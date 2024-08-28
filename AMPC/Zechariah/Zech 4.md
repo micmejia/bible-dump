@@ -154,7 +154,7 @@ Then he said to me, This [addition of the bowl to the candlestick, causing it to
 
 
 
-For who are you, O great mountain [of human obstacles]? Before Zerubbabel [who with Joshua had led the return of the exiles from Babylon and was undertaking the rebuilding of the temple, before him] you shall become a plain [a mere [^a]molehill]! And he shall bring forth the finishing gable stone [of the new temple] with loud shoutings of the people, crying, Grace, grace to it! 
+For who are you, O great mountain [of human obstacles]? Before Zerubbabel [who with Joshua had led the return of the exiles from Babylon and was undertaking the rebuilding of the temple, before him] you shall become a plain [a mere molehill]! And he shall bring forth the finishing gable stone [of the new temple] with loud shoutings of the people, crying, Grace, grace to it! 
 
 
 
@@ -301,4 +301,4 @@ And he answered me, Do you not know what these are? And I said, No, my lord.
 
 
 
-Then said he, These are the two [^b]sons of oil [Joshua the high priest and Zerubbabel the prince of Judah, the two anointed ones] who stand before the Lord of the whole earth [as His anointed instruments].
+Then said he, These are the two sons of oil [Joshua the high priest and Zerubbabel the prince of Judah, the two anointed ones] who stand before the Lord of the whole earth [as His anointed instruments].

@@ -25,7 +25,7 @@ Therefore it shall be, when you have crossed over the Jordan, _that_ on Mount Eb
 And there you shall build an altar to the Lord your God, an altar of stones; you shall not use an iron _tool_ on them. 
 
 ###### 6 
-You shall build with [^a]whole stones the altar of the Lord your God, and offer burnt offerings on it to the Lord your God. 
+You shall build with whole stones the altar of the Lord your God, and offer burnt offerings on it to the Lord your God. 
 
 ###### 7 
 You shall offer peace offerings, and shall eat there, and rejoice before the Lord your God. 
@@ -52,7 +52,7 @@ and these shall stand on Mount Ebal to curse: Reuben, Gad, Asher, Zebulun, Dan, 
 "And the Levites shall speak with a loud voice and say to all the men of Israel: 
 
 ###### 15 
-'Cursed _is_ the one who makes a carved or molded image, [^b]an abomination to the Lord, the work of the hands of the craftsman, and sets _it_ up in secret.' "And all the people shall answer and say, 'Amen!' 
+'Cursed _is_ the one who makes a carved or molded image, an abomination to the Lord, the work of the hands of the craftsman, and sets _it_ up in secret.' "And all the people shall answer and say, 'Amen!' 
 
 ###### 16 
 'Cursed _is_ the one who treats his father or his mother with contempt.' "And all the people shall say, 'Amen!' 

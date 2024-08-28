@@ -10,13 +10,13 @@ next: ['Gal 6']
 
 
 ###### 1 
-Stand[^a] fast therefore in the liberty by which Christ has made us free, and do not be entangled again with a yoke of bondage. 
+Stand fast therefore in the liberty by which Christ has made us free, and do not be entangled again with a yoke of bondage. 
 
 ###### 2 
 Indeed I, Paul, say to you that if you become circumcised, Christ will profit you nothing. 
 
 ###### 3 
-And I testify again to every man who becomes circumcised that he is [^b]a debtor to keep the whole law. 
+And I testify again to every man who becomes circumcised that he is a debtor to keep the whole law. 
 
 ###### 4 
 You have become estranged from Christ, you who _attempt to_ be justified by law; you have fallen from grace. 
@@ -43,7 +43,7 @@ I have confidence in you, in the Lord, that you will have no other mind; but he 
 And I, brethren, if I still preach circumcision, why do I still suffer persecution? Then the offense of the cross has ceased. 
 
 ###### 12 
-I could wish that those who trouble you would even [^c]cut themselves off! 
+I could wish that those who trouble you would even cut themselves off! 
 
 ###### 13 
 For you, brethren, have been called to liberty; only do not _use_ liberty as an opportunity for the flesh, but through love serve one another. 
@@ -64,19 +64,19 @@ For the flesh lusts against the Spirit, and the Spirit against the flesh; and th
 But if you are led by the Spirit, you are not under the law. 
 
 ###### 19 
-Now the works of the flesh are evident, which are: [^d]adultery, [^e]fornication, uncleanness, lewdness, 
+Now the works of the flesh are evident, which are: adultery, fornication, uncleanness, lewdness, 
 
 ###### 20 
 idolatry, sorcery, hatred, contentions, jealousies, outbursts of wrath, selfish ambitions, dissensions, heresies, 
 
 ###### 21 
-envy, [^f]murders, drunkenness, revelries, and the like; of which I tell you beforehand, just as I also told _you_ in time past, that those who practice such things will not inherit the kingdom of God. 
+envy, murders, drunkenness, revelries, and the like; of which I tell you beforehand, just as I also told _you_ in time past, that those who practice such things will not inherit the kingdom of God. 
 
 ###### 22 
 But the fruit of the Spirit is love, joy, peace, longsuffering, kindness, goodness, faithfulness, 
 
 ###### 23 
-[^g]gentleness, self-control. Against such there is no law. 
+gentleness, self-control. Against such there is no law. 
 
 ###### 24 
 And those _who are_ Christ's have crucified the flesh with its passions and desires. 

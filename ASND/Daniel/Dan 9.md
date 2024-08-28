@@ -7,7 +7,7 @@ next: ['Dan 10']
 # Daniel 9
 
 ***
-###### 1-2 Si Darius na taga-Media na anak ni Ahasuerus[^a] ang hari noon sa buong Babilonia. Noong unang taon ng paghahari niya, nalaman ko sa mga Kasulatan na mananatiling giba ang Jerusalem sa loob ng 70 taon, ayon sa sinabi ng Panginoon kay Propeta Jeremias. 
+###### 1-2 Si Darius na taga-Media na anak ni Ahasuerus ang hari noon sa buong Babilonia. Noong unang taon ng paghahari niya, nalaman ko sa mga Kasulatan na mananatiling giba ang Jerusalem sa loob ng 70 taon, ayon sa sinabi ng Panginoon kay Propeta Jeremias. 
 
 
 
@@ -40,7 +40,7 @@ next: ['Dan 10']
 
 
 
-Dahil dito, lumapit ako sa Panginoong Dios at nanalangin. Nag-ayuno ako, nagdamit ng sako, at naglagay ng abo sa ulo.[^b] 
+Dahil dito, lumapit ako sa Panginoong Dios at nanalangin. Nag-ayuno ako, nagdamit ng sako, at naglagay ng abo sa ulo. 
 
 
 
@@ -469,7 +469,7 @@ Kaya handa kayong parusahan kami; at ginawa nʼyo nga dahil palagi kayong tama s
 
 
 
-Kaya, Panginoon, ayon sa inyong ginagawang matuwid, nakikiusap ako na alisin nʼyo na ang inyong galit sa Jerusalem, ang inyong lungsod at banal[^c] na bundok. Dahil sa aming kasalanan at sa kasalanan ng aming mga ninuno, hinamak kami at ang Jerusalem ng mga taong nakapaligid sa amin. 
+Kaya, Panginoon, ayon sa inyong ginagawang matuwid, nakikiusap ako na alisin nʼyo na ang inyong galit sa Jerusalem, ang inyong lungsod at banal na bundok. Dahil sa aming kasalanan at sa kasalanan ng aming mga ninuno, hinamak kami at ang Jerusalem ng mga taong nakapaligid sa amin. 
 
 
 
@@ -502,7 +502,7 @@ Kaya, Panginoon, ayon sa inyong ginagawang matuwid, nakikiusap ako na alisin nʼ
 
 
 
-"Kaya ngayon, O Dios, pakinggan nʼyo ang aking panalangin at pagsamo. Alang-alang sa inyong pangalan, muli nʼyong itayo ang inyong templong[^d] <i class="trans-change">nagiba at_ napabayaan. 
+"Kaya ngayon, O Dios, pakinggan nʼyo ang aking panalangin at pagsamo. Alang-alang sa inyong pangalan, muli nʼyong itayo ang inyong templong <i class="trans-change">nagiba at_ napabayaan. 
 
 
 
@@ -634,7 +634,7 @@ Patuloy akong nananalangin at sinasabi ang aking kasalanan at ang kasalanan ng a
 
 
 
-At habang nananalangin ako, mabilis na lumipad papunta sa akin si Gabriel na nakita ko noon sa aking pangitain. Oras iyon ng panghapong paghahandog.[^e] 
+At habang nananalangin ako, mabilis na lumipad papunta sa akin si Gabriel na nakita ko noon sa aking pangitain. Oras iyon ng panghapong paghahandog. 
 
 
 
@@ -733,7 +733,7 @@ Sa simula pa lamang ng iyong panalangin ay may ipinahayag na ang Dios, kung kaya
 
 
 
-"490 taon[^f] ang itinakda <i class="trans-change">ng Dios_ sa banal na lungsod at sa mga kababayan mo para tigilan nila ang pagrerebelde <i class="trans-change">sa Dios_, para mapatawad ang kanilang kasalanan, para mapairal <i class="trans-change">ng Dios_ ang walang hanggang katuwiran, para matupad ang pangitain at propesiya, at para maihandog na muli ang templo <i class="trans-change">sa Dios_. 
+"490 taon ang itinakda <i class="trans-change">ng Dios_ sa banal na lungsod at sa mga kababayan mo para tigilan nila ang pagrerebelde <i class="trans-change">sa Dios_, para mapatawad ang kanilang kasalanan, para mapairal <i class="trans-change">ng Dios_ ang walang hanggang katuwiran, para matupad ang pangitain at propesiya, at para maihandog na muli ang templo <i class="trans-change">sa Dios_. 
 
 
 
@@ -766,7 +766,7 @@ Sa simula pa lamang ng iyong panalangin ay may ipinahayag na ang Dios, kung kaya
 
 
 
-"Dapat mong malaman at maintindihan na mula sa panahong iniutos na muling itayo ang Jerusalem hanggang sa pagdating ng pinunong hinirang ng Dios ay lilipas muna ang 49 <i class="trans-change">na taon_.[^g] At sa loob ng 434 <i class="trans-change">na taon_[^h] ay muling itatayo ang Jerusalem na may mga plasa at tanggulan. Magiging magulo sa panahong iyon. 
+"Dapat mong malaman at maintindihan na mula sa panahong iniutos na muling itayo ang Jerusalem hanggang sa pagdating ng pinunong hinirang ng Dios ay lilipas muna ang 49 <i class="trans-change">na taon_. At sa loob ng 434 <i class="trans-change">na taon_ ay muling itatayo ang Jerusalem na may mga plasa at tanggulan. Magiging magulo sa panahong iyon. 
 
 
 
@@ -799,7 +799,7 @@ Sa simula pa lamang ng iyong panalangin ay may ipinahayag na ang Dios, kung kaya
 
 
 
-Pagkatapos ng 434 <i class="trans-change">na taon_,[^i] papatayin ang <i class="trans-change">pinunong_ hinirang <i class="trans-change">ng Dios_ at walang tutulong sa kanya.[^j] Darating ang isang hari at sisirain ng mga tauhan niya ang bayan at ang templo. At ayon sa itinakda <i class="trans-change">ng Dios_, ang pagwasak at digmaan ay magpapatuloy hanggang sa katapusan. Ang katapusan ay darating na parang baha. 
+Pagkatapos ng 434 <i class="trans-change">na taon_, papatayin ang <i class="trans-change">pinunong_ hinirang <i class="trans-change">ng Dios_ at walang tutulong sa kanya. Darating ang isang hari at sisirain ng mga tauhan niya ang bayan at ang templo. At ayon sa itinakda <i class="trans-change">ng Dios_, ang pagwasak at digmaan ay magpapatuloy hanggang sa katapusan. Ang katapusan ay darating na parang baha. 
 
 
 

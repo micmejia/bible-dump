@@ -24,7 +24,7 @@ I charge you, O daughters of Jerusalem, Do not stir up nor awaken love Until it 
 Who _is_ this coming up from the wilderness, Leaning upon her beloved? I awakened you under the apple tree. There your mother brought you forth; There she _who_ bore you brought _you_ forth. 
 
 ###### 6 
-Set me as a seal upon your heart, As a seal upon your arm; For love _is as_ strong as death, Jealousy _as_ [^a]cruel as [^b]the grave; Its flames _are_ flames of fire, [^c]A most vehement flame. 
+Set me as a seal upon your heart, As a seal upon your arm; For love _is as_ strong as death, Jealousy _as_ cruel as the grave; Its flames _are_ flames of fire, A most vehement flame. 
 
 ###### 7 
 Many waters cannot quench love, Nor can the floods drown it. If a man would give for love All the wealth of his house, It would be utterly despised. 
@@ -48,4 +48,4 @@ My own vineyard _is_ before me. You, O Solomon, _may have_ a thousand, And those
 You who dwell in the gardens, The companions listen for your voice-- Let me hear it! 
 
 ###### 14 
-Make[^d] haste, my beloved, And be like a gazelle Or a young stag On the mountains of spices.
+Make haste, my beloved, And be like a gazelle Or a young stag On the mountains of spices.

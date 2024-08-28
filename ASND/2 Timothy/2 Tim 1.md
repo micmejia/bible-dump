@@ -402,7 +402,7 @@ Pinili ako <i class="trans-change">ng Dios_ na maging apostol at guro para ipaha
 
 
 
-Ito ang dahilan kaya ako dumaranas ng mga paghihirap. Ngunit hindi ko ito ikinakahiya, dahil kilala ko kung sino ang sinasampalatayanan ko at natitiyak kong maiingatan niya hanggang sa huling araw ang ipinagkatiwala ko sa kanya.[^a] 
+Ito ang dahilan kaya ako dumaranas ng mga paghihirap. Ngunit hindi ko ito ikinakahiya, dahil kilala ko kung sino ang sinasampalatayanan ko at natitiyak kong maiingatan niya hanggang sa huling araw ang ipinagkatiwala ko sa kanya. 
 
 
 
@@ -534,7 +534,7 @@ Alam mong tinalikuran ako ng halos lahat <i class="trans-change">ng mga kapatid_
 
 
 
-Kaawaan sana ng Dios si Onesiforus at ang pamilya niya, dahil lagi niya akong tinutulungan,[^b] at hindi niya ako ikinahiya kahit na akoʼy isang bilanggo. 
+Kaawaan sana ng Dios si Onesiforus at ang pamilya niya, dahil lagi niya akong tinutulungan, at hindi niya ako ikinahiya kahit na akoʼy isang bilanggo. 
 
 
 

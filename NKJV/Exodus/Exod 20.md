@@ -13,7 +13,7 @@ next: ['Exod 21']
 And God spoke all these words, saying: 
 
 ###### 2 
-"I _am_ the Lord your God, who brought you out of the land of Egypt, out of the house of [^a]bondage. 
+"I _am_ the Lord your God, who brought you out of the land of Egypt, out of the house of bondage. 
 
 ###### 3 
 "You shall have no other gods before Me. 
@@ -22,7 +22,7 @@ And God spoke all these words, saying:
 "You shall not make for yourself a carved image--any likeness _of anything_ that _is_ in heaven above, or that _is_ in the earth beneath, or that _is_ in the water under the earth; 
 
 ###### 5 
-you shall not bow down to them nor [^b]serve them. For I, the Lord your God, _am_ a jealous God, visiting[^c] the iniquity of the fathers upon the children to the third and fourth _generations_ of those who hate Me, 
+you shall not bow down to them nor serve them. For I, the Lord your God, _am_ a jealous God, visiting the iniquity of the fathers upon the children to the third and fourth _generations_ of those who hate Me, 
 
 ###### 6 
 but showing mercy to thousands, to those who love Me and keep My commandments. 
@@ -79,7 +79,7 @@ Then the Lord said to Moses, "Thus you shall say to the children of Israel: 'You
 You shall not make _anything to be_ with Me--gods of silver or gods of gold you shall not make for yourselves. 
 
 ###### 24 
-An altar of earth you shall make for Me, and you shall sacrifice on it your burnt offerings and your peace offerings, your sheep and your oxen. In every place where I [^d]record My name I will come to you, and I will bless you. 
+An altar of earth you shall make for Me, and you shall sacrifice on it your burnt offerings and your peace offerings, your sheep and your oxen. In every place where I record My name I will come to you, and I will bless you. 
 
 ###### 25 
 And if you make Me an altar of stone, you shall not build it of hewn stone; for if you use your tool on it, you have profaned it. 

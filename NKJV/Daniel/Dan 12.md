@@ -12,7 +12,7 @@ up: ['Daniel']
 "At that time Michael shall stand up, The great prince who stands _watch_ over the sons of your people; And there shall be a time of trouble, Such as never was since there was a nation, _Even_ to that time. And at that time your people shall be delivered, Every one who is found written in the book. 
 
 ###### 2 
-And many of those who sleep in the dust of the earth shall awake, Some to everlasting life, Some to shame _and_ everlasting [^a]contempt. 
+And many of those who sleep in the dust of the earth shall awake, Some to everlasting life, Some to shame _and_ everlasting contempt. 
 
 ###### 3 
 Those who are wise shall shine Like the brightness of the firmament, And those who turn many to righteousness Like the stars forever and ever. 

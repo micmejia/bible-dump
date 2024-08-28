@@ -10,7 +10,7 @@ next: ['Gen 38']
 
 
 ###### 1 
-Now Jacob dwelt in the land where his father was a [^a]stranger, in the land of Canaan. 
+Now Jacob dwelt in the land where his father was a stranger, in the land of Canaan. 
 
 ###### 2 
 This _is_ the history of Jacob. Joseph, _being_ seventeen years old, was feeding the flock with his brothers. And the lad _was_ with the sons of Bilhah and the sons of Zilpah, his father's wives; and Joseph brought a bad report of them to his father. 
@@ -64,7 +64,7 @@ And the man said, "They have departed from here, for I heard them say, 'Let us g
 Now when they saw him afar off, even before he came near them, they conspired against him to kill him. 
 
 ###### 19 
-Then they said to one another, "Look, this [^b]dreamer is coming! 
+Then they said to one another, "Look, this dreamer is coming! 
 
 ###### 20 
 Come therefore, let us now kill him and cast him into some pit; and we shall say, 'Some wild beast has devoured him.' We shall see what will become of his dreams!" 
@@ -115,4 +115,4 @@ Then Jacob tore his clothes, put sackcloth on his waist, and mourned for his son
 And all his sons and all his daughters arose to comfort him; but he refused to be comforted, and he said, "For I shall go down into the grave to my son in mourning." Thus his father wept for him. 
 
 ###### 36 
-Now the [^c]Midianites had sold him in Egypt to Potiphar, an officer of Pharaoh _and_ captain of the guard.
+Now the Midianites had sold him in Egypt to Potiphar, an officer of Pharaoh _and_ captain of the guard.

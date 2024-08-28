@@ -700,7 +700,7 @@ Ang 30 Kawikaang ito na isinulat ko ay magdudulot sa iyo ng mga karunungan at pa
 
 
 
-Sa pamamagitan nitoʼy malalaman mo ang mga katotohanan at masasagot mo ang mga magtatanong sa iyo.[^a] 
+Sa pamamagitan nitoʼy malalaman mo ang mga katotohanan at masasagot mo ang mga magtatanong sa iyo. 
 
 
 
@@ -931,7 +931,7 @@ dahil kapag hindi ka nakabayad, kukunin nila pati ang higaan mo.
 
 
 
-Huwag mong aalisin ang mga muhon[^b] na inilagay noon ng mga ninuno mo. 
+Huwag mong aalisin ang mga muhon na inilagay noon ng mga ninuno mo. 
 
 
 

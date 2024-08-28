@@ -172,7 +172,7 @@ Nakapaligid sa trono ang 24 pang trono kung saan nakaupo ang 24 na namumuno na n
 
 
 
-Mula sa tronoʼy kumikidlat, kumukulog at may umuugong. Sa harap ng tronoʼy may pitong nakasinding ilawan. Ito ang pitong Espiritu ng Dios.[^a] 
+Mula sa tronoʼy kumikidlat, kumukulog at may umuugong. Sa harap ng tronoʼy may pitong nakasinding ilawan. Ito ang pitong Espiritu ng Dios. 
 
 
 
@@ -238,7 +238,7 @@ Sa harap ng trono ay mayroon ding parang dagat na salamin na kasinglinaw ng kris
 
 
 
-Ang unang nilalang ay parang leon, ang pangalawa ay parang guya,[^b] ang pangatlo ay may mukha na parang tao, at ang pang-apat ay parang agilang lumilipad. 
+Ang unang nilalang ay parang leon, ang pangalawa ay parang guya, ang pangatlo ay may mukha na parang tao, at ang pang-apat ay parang agilang lumilipad. 
 
 
 

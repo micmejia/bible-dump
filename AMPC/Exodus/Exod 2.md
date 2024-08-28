@@ -91,7 +91,7 @@ And when she could no longer hide him, she took for him an ark _or_ basket made 
 
 
 
-And his sister [Miriam] stood some distance away to [^a]learn what would be done to him. 
+And his sister [Miriam] stood some distance away to learn what would be done to him. 
 
 
 
@@ -322,7 +322,7 @@ And the man said, Who made you a prince and a judge over us? Do you intend to ki
 
 
 
-When Pharaoh heard of it, he sought to slay Moses. But Moses fled from Pharaoh's presence and [^b]took refuge in the land of Midian, where he sat down by a well. 
+When Pharaoh heard of it, he sought to slay Moses. But Moses fled from Pharaoh's presence and took refuge in the land of Midian, where he sat down by a well. 
 
 
 

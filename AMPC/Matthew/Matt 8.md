@@ -49,7 +49,7 @@ When Jesus came down from the mountain, great throngs followed Him.
 
 
 
-And behold, a leper came up to Him and, prostrating himself, worshiped Him, saying, Lord, if You are willing, You are able to [^a]cleanse me by curing me. 
+And behold, a leper came up to Him and, prostrating himself, worshiped Him, saying, Lord, if You are willing, You are able to cleanse me by curing me. 
 
 
 
@@ -70,7 +70,7 @@ And behold, a leper came up to Him and, prostrating himself, worshiped Him, sayi
 
 
 
-And He reached out His hand and touched him, saying, I am willing; be cleansed [^b]by being cured. And instantly his leprosy was cured _and_ cleansed. 
+And He reached out His hand and touched him, saying, I am willing; be cleansed by being cured. And instantly his leprosy was cured _and_ cleansed. 
 
 
 
@@ -133,7 +133,7 @@ As Jesus went into Capernaum, a centurion came up to Him, begging Him,
 
 
 
-And saying, Lord, my servant boy is lying at the house paralyzed _and_ [^c]distressed with intense pains. 
+And saying, Lord, my servant boy is lying at the house paralyzed _and_ distressed with intense pains. 
 
 
 
@@ -217,7 +217,7 @@ For I also am a man subject to authority, with soldiers subject to me. And I say
 
 
 
-When Jesus heard him, He marveled and said to those who followed Him [[^d]who adhered steadfastly to Him, conforming to His example in living and, if need be, in dying also], I tell you truly, I have not found so much faith as this [^e]with anyone, even in Israel. 
+When Jesus heard him, He marveled and said to those who followed Him [who adhered steadfastly to Him, conforming to His example in living and, if need be, in dying also], I tell you truly, I have not found so much faith as this with anyone, even in Israel. 
 
 
 
@@ -280,7 +280,7 @@ While the sons _and_ heirs of the kingdom will be driven out into the darkness o
 
 
 
-Then to the centurion Jesus said, Go; it shall be done for you as you have believed. And the servant boy was restored to health at that very [^f]moment. 
+Then to the centurion Jesus said, Go; it shall be done for you as you have believed. And the servant boy was restored to health at that very moment. 
 
 
 
@@ -343,7 +343,7 @@ He touched her hand and the fever left her; and she got up and began waiting on 
 
 
 
-When evening came, they brought to Him many who were [^g]under the power of demons, and He drove out the spirits with a word and restored to health all who were sick. 
+When evening came, they brought to Him many who were under the power of demons, and He drove out the spirits with a word and restored to health all who were sick. 
 
 
 
@@ -364,7 +364,7 @@ When evening came, they brought to Him many who were [^g]under the power of demo
 
 
 
-And thus He fulfilled what was spoken by the prophet Isaiah, He Himself took [[^h]in order to carry away] our weaknesses _and_ infirmities and bore [^i]away our diseases. 
+And thus He fulfilled what was spoken by the prophet Isaiah, He Himself took [in order to carry away] our weaknesses _and_ infirmities and bore away our diseases. 
 
 
 
@@ -448,7 +448,7 @@ And Jesus replied to him, Foxes have holes and the birds of the air have lodging
 
 
 
-Another of the disciples said to Him, Lord, let me first go and bury [[^j]care for till death] my father. 
+Another of the disciples said to Him, Lord, let me first go and bury [care for till death] my father. 
 
 
 
@@ -469,7 +469,7 @@ Another of the disciples said to Him, Lord, let me first go and bury [[^j]care f
 
 
 
-But Jesus said to him, Follow Me, and leave the dead [[^k]in sin] to bury their own dead. 
+But Jesus said to him, Follow Me, and leave the dead [in sin] to bury their own dead. 
 
 
 
@@ -511,7 +511,7 @@ And after He got into the boat, His disciples followed Him.
 
 
 
-And [^l]suddenly, behold, there arose a violent storm on the sea, so that the boat was being covered up by the waves; but He was sleeping. 
+And suddenly, behold, there arose a violent storm on the sea, so that the boat was being covered up by the waves; but He was sleeping. 
 
 
 
@@ -553,7 +553,7 @@ And they went and awakened Him, saying, Lord, rescue _and_ preserve us! We are p
 
 
 
-And He said to them, Why are you timid _and_ afraid, O you of little faith? Then He got up and rebuked the winds and the sea, and there was a great _and_ wonderful calm ([^m]a perfect peaceableness). 
+And He said to them, Why are you timid _and_ afraid, O you of little faith? Then He got up and rebuked the winds and the sea, and there was a great _and_ wonderful calm (a perfect peaceableness). 
 
 
 

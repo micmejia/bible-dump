@@ -154,7 +154,7 @@ In all your dwelling places the cities shall be laid waste and the high places s
 
 
 
-And the slain shall fall in the midst of you, and you shall [^a]know, understand, _and_ realize that I am the Lord. 
+And the slain shall fall in the midst of you, and you shall know, understand, _and_ realize that I am the Lord. 
 
 
 

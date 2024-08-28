@@ -370,7 +370,7 @@ Kayong <i class="trans-change">mayayaman na_ nakasakay sa mga puting asno at nak
 
 
 
-Pakinggan nʼyo ang mga salaysay ng mga tao sa paligid ng mga balon. Isinasalaysay nila ang mga pagtatagumpay[^a] ng Panginoon sa pamamagitan ng kanyang mga sundalo sa Israel. Pagkatapos, nagmartsa ang mga mamamayan ng Panginoon sa may pintuan ng lungsod <i class="trans-change">na nagsasabi_, 
+Pakinggan nʼyo ang mga salaysay ng mga tao sa paligid ng mga balon. Isinasalaysay nila ang mga pagtatagumpay ng Panginoon sa pamamagitan ng kanyang mga sundalo sa Israel. Pagkatapos, nagmartsa ang mga mamamayan ng Panginoon sa may pintuan ng lungsod <i class="trans-change">na nagsasabi_, 
 
 
 

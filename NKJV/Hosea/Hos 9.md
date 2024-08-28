@@ -31,13 +31,13 @@ For indeed they are gone because of destruction. Egypt shall gather them up; Mem
 The days of punishment have come; The days of recompense have come. Israel knows! The prophet _is_ a fool, The spiritual man _is_ insane, Because of the greatness of your iniquity and great enmity. 
 
 ###### 8 
-The watchman of Ephraim _is_ with my God; But the prophet _is_ a [^a]fowler's snare in all his ways-- Enmity in the house of his God. 
+The watchman of Ephraim _is_ with my God; But the prophet _is_ a fowler's snare in all his ways-- Enmity in the house of his God. 
 
 ###### 9 
 They are deeply corrupted, As in the days of Gibeah. He will remember their iniquity; He will punish their sins. 
 
 ###### 10 
-"I found Israel Like grapes in the wilderness; I saw your fathers As the firstfruits on the fig tree in its first season. _But_ they went to Baal Peor, And [^b]separated themselves _to that_ shame; They became an abomination like the thing they loved. 
+"I found Israel Like grapes in the wilderness; I saw your fathers As the firstfruits on the fig tree in its first season. _But_ they went to Baal Peor, And separated themselves _to that_ shame; They became an abomination like the thing they loved. 
 
 ###### 11 
 _As for_ Ephraim, their glory shall fly away like a bird-- No birth, no pregnancy, and no conception! 

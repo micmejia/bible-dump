@@ -91,7 +91,7 @@ So that by putting it on we may not be found naked (without a body).
 
 
 
-For while we are still in this tent, we groan under the burden _and_ sigh deeply (weighed down, depressed, oppressed)--not that we want to put off the body (the clothing of the spirit), but rather that we would be further clothed, so that what is mortal (our dying body) may be swallowed up by life [[^a]after the resurrection]. 
+For while we are still in this tent, we groan under the burden _and_ sigh deeply (weighed down, depressed, oppressed)--not that we want to put off the body (the clothing of the spirit), but rather that we would be further clothed, so that what is mortal (our dying body) may be swallowed up by life [after the resurrection]. 
 
 
 
@@ -154,7 +154,7 @@ So then, we are always full of good _and_ hopeful _and_ confident courage; we kn
 
 
 
-For we walk by faith [we [^b]regulate our lives and conduct ourselves by our conviction or belief respecting man's relationship to God and divine things, with trust and holy fervor; thus we walk] not by sight _or_ appearance. 
+For we walk by faith [we regulate our lives and conduct ourselves by our conviction or belief respecting man's relationship to God and divine things, with trust and holy fervor; thus we walk] not by sight _or_ appearance. 
 
 
 
@@ -217,7 +217,7 @@ Therefore, whether we are at home [on earth away from Him] or away from home [an
 
 
 
-For we must all appear _and_ be revealed as we are before the judgment seat of Christ, so that each one may receive [his pay] according to what he has done in the body, whether good or evil [considering [^c]what his purpose and motive have been, and what he has [^d]achieved, been busy with, and given himself and his attention to accomplishing]. 
+For we must all appear _and_ be revealed as we are before the judgment seat of Christ, so that each one may receive [his pay] according to what he has done in the body, whether good or evil [considering what his purpose and motive have been, and what he has achieved, been busy with, and given himself and his attention to accomplishing]. 
 
 
 
@@ -238,7 +238,7 @@ For we must all appear _and_ be revealed as we are before the judgment seat of C
 
 
 
-Therefore, being conscious of fearing the Lord with respect _and_ reverence, we seek to win people over [to persuade them]. But [^e]what sort of persons we are is plainly recognized _and_ thoroughly understood by God, and I hope that it is plainly recognized _and_ thoroughly understood also by your consciences (your inborn discernment). 
+Therefore, being conscious of fearing the Lord with respect _and_ reverence, we seek to win people over [to persuade them]. But what sort of persons we are is plainly recognized _and_ thoroughly understood by God, and I hope that it is plainly recognized _and_ thoroughly understood also by your consciences (your inborn discernment). 
 
 
 
@@ -259,7 +259,7 @@ Therefore, being conscious of fearing the Lord with respect _and_ reverence, we 
 
 
 
-We are not commending ourselves to you again, but we are providing you with an occasion _and_ incentive to be [rightfully] proud of us, so that you may have a reply for those who pride themselves on surface appearances [[^f]on the virtues they only appear to have], although their heart is devoid of them. 
+We are not commending ourselves to you again, but we are providing you with an occasion _and_ incentive to be [rightfully] proud of us, so that you may have a reply for those who pride themselves on surface appearances [on the virtues they only appear to have], although their heart is devoid of them. 
 
 
 
@@ -448,4 +448,4 @@ So we are Christ's ambassadors, God making His appeal as it were through us. We 
 
 
 
-For our sake He made Christ [virtually] to be sin Who knew no sin, so that in _and_ through Him we might become [[^g]endued with, viewed as being in, and examples of] the righteousness of God [what we ought to be, approved and acceptable and in right relationship with Him, by His goodness].
+For our sake He made Christ [virtually] to be sin Who knew no sin, so that in _and_ through Him we might become [endued with, viewed as being in, and examples of] the righteousness of God [what we ought to be, approved and acceptable and in right relationship with Him, by His goodness].

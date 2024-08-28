@@ -10,7 +10,7 @@ next: ['Isa 17']
 
 
 ###### 1 
-Send the lamb to the ruler of the land, From [^a]Sela to the wilderness, To the mount of the daughter of Zion. 
+Send the lamb to the ruler of the land, From Sela to the wilderness, To the mount of the daughter of Zion. 
 
 ###### 2 
 For it shall be as a wandering bird thrown out of the nest; _So_ shall be the daughters of Moab at the fords of the Arnon. 
@@ -19,13 +19,13 @@ For it shall be as a wandering bird thrown out of the nest; _So_ shall be the da
 "Take counsel, execute judgment; Make your shadow like the night in the middle of the day; Hide the outcasts, Do not betray him who escapes. 
 
 ###### 4 
-Let My outcasts dwell with you, O Moab; Be a shelter to them from the face of the [^b]spoiler. For the extortioner is at an end, Devastation ceases, The oppressors are consumed out of the land. 
+Let My outcasts dwell with you, O Moab; Be a shelter to them from the face of the spoiler. For the extortioner is at an end, Devastation ceases, The oppressors are consumed out of the land. 
 
 ###### 5 
 In mercy the throne will be established; And One will sit on it in truth, in the tabernacle of David, Judging and seeking justice and hastening righteousness." 
 
 ###### 6 
-We have heard of the pride of Moab-- _He is_ very proud-- Of his haughtiness and his pride and his wrath; _But_ his [^c]lies _shall_ not _be_ so. 
+We have heard of the pride of Moab-- _He is_ very proud-- Of his haughtiness and his pride and his wrath; _But_ his lies _shall_ not _be_ so. 
 
 ###### 7 
 Therefore Moab shall wail for Moab; Everyone shall wail. For the foundations of Kir Hareseth you shall mourn; Surely _they are_ stricken. 
@@ -34,13 +34,13 @@ Therefore Moab shall wail for Moab; Everyone shall wail. For the foundations of 
 For the fields of Heshbon languish, _And_ the vine of Sibmah; The lords of the nations have broken down its choice plants, Which have reached to Jazer And wandered through the wilderness. Her branches are stretched out, They are gone over the sea. 
 
 ###### 9 
-Therefore I will bewail the vine of Sibmah, With the weeping of Jazer; I will drench you with my tears, O Heshbon and Elealeh; For [^d]battle cries have fallen Over your summer fruits and your harvest. 
+Therefore I will bewail the vine of Sibmah, With the weeping of Jazer; I will drench you with my tears, O Heshbon and Elealeh; For battle cries have fallen Over your summer fruits and your harvest. 
 
 ###### 10 
 Gladness is taken away, And joy from the plentiful field; In the vineyards there will be no singing, Nor will there be shouting; No treaders will tread out wine in the presses; I have made their shouting cease. 
 
 ###### 11 
-Therefore my [^e]heart shall resound like a harp for Moab, And my inner being for [^f]Kir Heres. 
+Therefore my heart shall resound like a harp for Moab, And my inner being for Kir Heres. 
 
 ###### 12 
 And it shall come to pass, When it is seen that Moab is weary on the high place, That he will come to his sanctuary to pray; But he will not prevail. 

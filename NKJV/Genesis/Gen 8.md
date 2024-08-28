@@ -70,7 +70,7 @@ Every animal, every creeping thing, every bird, _and_ whatever creeps on the ear
 Then Noah built an altar to the Lord, and took of every clean animal and of every clean bird, and offered burnt offerings on the altar. 
 
 ###### 21 
-And the Lord smelled a soothing aroma. Then the Lord said in His heart, "I will never again curse the ground for man's sake, although the imagination[^a] of man's heart _is_ evil from his youth; nor will I again destroy every living thing as I have done. 
+And the Lord smelled a soothing aroma. Then the Lord said in His heart, "I will never again curse the ground for man's sake, although the imagination of man's heart _is_ evil from his youth; nor will I again destroy every living thing as I have done. 
 
 ###### 22 
 "While the earth remains, Seedtime and harvest, Cold and heat, Winter and summer, And day and night Shall not cease."

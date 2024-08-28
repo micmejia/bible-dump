@@ -70,7 +70,7 @@ And [he] arose and went with all the people who were with him to Baale-judah [Ki
 
 
 
-And they set the ark of God upon a new cart and brought it [^a]out of the house of Abinadab, which was on the hill; and Uzzah and Ahio, sons of Abinadab, drove the new cart. 
+And they set the ark of God upon a new cart and brought it out of the house of Abinadab, which was on the hill; and Uzzah and Ahio, sons of Abinadab, drove the new cart. 
 
 
 

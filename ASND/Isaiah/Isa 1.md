@@ -105,7 +105,7 @@ Pakinggan ninyo langit at lupa, dahil sinabi ng Panginoon, "Inalagaan koʼt pina
 
 
 
-Kahit ang mga bakaʼy kilala ang kanilang tagapag-alaga,[^a] at ang mga asnoʼy alam kung saang sabsaban sila pinapakain ng nagmamay-ari sa kanila, pero ang mga mamamayan kong Israelita ay hindi nakakakilala sa akin." 
+Kahit ang mga bakaʼy kilala ang kanilang tagapag-alaga, at ang mga asnoʼy alam kung saang sabsaban sila pinapakain ng nagmamay-ari sa kanila, pero ang mga mamamayan kong Israelita ay hindi nakakakilala sa akin." 
 
 
 
@@ -270,7 +270,7 @@ Hindi na mapakinabangan ang inyong bansa; sinunog ng mga dayuhan ang mga lungsod
 
 
 
-Walang natira kundi ang Jerusalem.[^b] Para itong silungan sa isang ubasan o isang kubol sa taniman ng mga pipino <i class="trans-change">na mag-isang nakatayo_, at para ring lungsod na pinalibutan ng kaaway. 
+Walang natira kundi ang Jerusalem. Para itong silungan sa isang ubasan o isang kubol sa taniman ng mga pipino <i class="trans-change">na mag-isang nakatayo_, at para ring lungsod na pinalibutan ng kaaway. 
 
 
 
@@ -567,7 +567,7 @@ Linisin ninyo ang inyong sarili. Tigilan na ninyo ang paggawa ng kasamaan sa aki
 
 
 
-Pag-aralan ninyong gumawa ng mabuti at pairalin ang katarungan. Sawayin ninyo ang mga nang-aapi[^c] at ipagtanggol ninyo ang karapatan ng mga ulila at mga biyuda." 
+Pag-aralan ninyong gumawa ng mabuti at pairalin ang katarungan. Sawayin ninyo ang mga nang-aapi at ipagtanggol ninyo ang karapatan ng mga ulila at mga biyuda." 
 
 
 
@@ -633,7 +633,7 @@ Sinabi pa ng Panginoon, "Halikayoʼt pag-usapan natin ito. Kahit gaano man karum
 
 
 
-Kung susunod lang kayo sa akin ay pagpapalain ko kayo.[^d] 
+Kung susunod lang kayo sa akin ay pagpapalain ko kayo. 
 
 
 
@@ -897,7 +897,7 @@ Muli ko kayong bibigyan ng mga pinuno at mga tagapayo, katulad noong una. At ang
 
 
 
-Magsisisi ang mga tao sa Jerusalem,[^e] at ito ay ililigtas ng Dios at magiging matuwid ang pagtrato ng mga pinuno sa lahat ng mga mamamayan. 
+Magsisisi ang mga tao sa Jerusalem, at ito ay ililigtas ng Dios at magiging matuwid ang pagtrato ng mga pinuno sa lahat ng mga mamamayan. 
 
 
 

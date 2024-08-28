@@ -16,10 +16,10 @@ next: ['Mal 4']
 "But who can endure the day of His coming? And who can stand when He appears? For He _is_ like a refiner's fire And like launderers' soap. 
 
 ###### 3 
-He will sit as a refiner and a purifier of silver; He will purify the sons of Levi, And [^a]purge them as gold and silver, That they may offer to the Lord An offering in righteousness. 
+He will sit as a refiner and a purifier of silver; He will purify the sons of Levi, And purge them as gold and silver, That they may offer to the Lord An offering in righteousness. 
 
 ###### 4 
-"Then the offering of Judah and Jerusalem Will be [^b]pleasant to the Lord, As in the days of old, As in former years. 
+"Then the offering of Judah and Jerusalem Will be pleasant to the Lord, As in the days of old, As in former years. 
 
 ###### 5 
 And I will come near you for judgment; I will be a swift witness Against sorcerers, Against adulterers, Against perjurers, Against those who exploit wage earners and widows and orphans, And against those who turn away an alien-- Because they do not fear Me," Says the Lord of hosts. 
@@ -46,19 +46,19 @@ Bring all the tithes into the storehouse, That there may be food in My house, An
 "And all nations will call you blessed, For you will be a delightful land," Says the Lord of hosts. ## The People Complain Harshly 
 
 ###### 13 
-"Your words have been [^c]harsh against Me," Says the Lord, "Yet you say, 'What have we spoken against You?' 
+"Your words have been harsh against Me," Says the Lord, "Yet you say, 'What have we spoken against You?' 
 
 ###### 14 
 You have said, 'It is useless to serve God; What profit _is it_ that we have kept His ordinance, And that we have walked as mourners Before the Lord of hosts? 
 
 ###### 15 
-So now we call the proud blessed, For those who do wickedness are [^d]raised up; They even tempt God and go free.' " ## A Book of Remembrance 
+So now we call the proud blessed, For those who do wickedness are raised up; They even tempt God and go free.' " ## A Book of Remembrance 
 
 ###### 16 
-Then those who feared the Lord spoke to one another, And the Lord listened and heard _them;_ So a book of remembrance was written before Him For those who fear the Lord And who [^e]meditate on His name. 
+Then those who feared the Lord spoke to one another, And the Lord listened and heard _them;_ So a book of remembrance was written before Him For those who fear the Lord And who meditate on His name. 
 
 ###### 17 
-"They shall be Mine," says the Lord of hosts, "On the day that I make them My jewels.[^f] And I will spare them As a man spares his own son who serves him." 
+"They shall be Mine," says the Lord of hosts, "On the day that I make them My jewels. And I will spare them As a man spares his own son who serves him." 
 
 ###### 18 
 Then you shall again discern Between the righteous and the wicked, Between one who serves God And one who does not serve Him.

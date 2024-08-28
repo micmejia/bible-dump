@@ -40,7 +40,7 @@ next: ['Isa 10']
 
 
 
-Pero darating ang araw na mawawala rin ang kadiliman sa <i class="trans-change">lupaing_ nasa kahirapan. Noong una, inilagay ng Panginoon sa kahihiyan ang lupain ng Zebulun at Naftali. Pero darating ang araw na pararangalan niya ang mga lugar na ito na daanan patungo sa lawa[^a] at nasa kabila ng <i class="trans-change">Ilog ng_ Jordan. Ang mga lugar na itoʼy sakop ng Galilea at tinitirhan ng mga hindi Judio. 
+Pero darating ang araw na mawawala rin ang kadiliman sa <i class="trans-change">lupaing_ nasa kahirapan. Noong una, inilagay ng Panginoon sa kahihiyan ang lupain ng Zebulun at Naftali. Pero darating ang araw na pararangalan niya ang mga lugar na ito na daanan patungo sa lawa at nasa kabila ng <i class="trans-change">Ilog ng_ Jordan. Ang mga lugar na itoʼy sakop ng Galilea at tinitirhan ng mga hindi Judio. 
 
 
 
@@ -139,7 +139,7 @@ Nabubuhay sa kadiliman ang mga tao roon, ngunit makakakita sila ng matinding liw
 
 
 
-Sapagkat palalayain nʼyo sila sa mga umaapi sa kanila. Magiging katulad sila ng mga hayop na binali nʼyo ang pamatok na kahoy na pasan-pasan nila at ang pamalo na ipinapalo sa kanila. Gagawin nʼyo po sa kanila ang ginawa nʼyo noon nang lupigin nʼyo ang mga taga-Midian.[^b] 
+Sapagkat palalayain nʼyo sila sa mga umaapi sa kanila. Magiging katulad sila ng mga hayop na binali nʼyo ang pamatok na kahoy na pasan-pasan nila at ang pamalo na ipinapalo sa kanila. Gagawin nʼyo po sa kanila ang ginawa nʼyo noon nang lupigin nʼyo ang mga taga-Midian. 
 
 
 
@@ -304,7 +304,7 @@ Sinabi ng Panginoon na parurusahan niya ang Israel, ang lahi ni Jacob.
 
 
 
-At alam[^c] ito ng lahat ng tao sa Israel,[^d] pati ng mga nasa Samaria na kabisera nito. Pero nagmamataas pa rin sila at payabang na sinasabi, 
+At alam ito ng lahat ng tao sa Israel, pati ng mga nasa Samaria na kabisera nito. Pero nagmamataas pa rin sila at payabang na sinasabi, 
 
 
 
@@ -667,7 +667,7 @@ Dahil sa galit ng Panginoong Makapangyarihan, masusunog ang kanilang lupain, at 
 
 
 
-Anumang pagkain ang makita nila ay kukunin nila at kakainin, pero hindi pa rin sila mabubusog. Kaya kakainin na nila pati ang kanilang mga anak.[^e] 
+Anumang pagkain ang makita nila ay kukunin nila at kakainin, pero hindi pa rin sila mabubusog. Kaya kakainin na nila pati ang kanilang mga anak. 
 
 
 

@@ -9,13 +9,13 @@ next: ['Ezek 2']
 
 
 ###### 1 
-Now it came to pass in the thirtieth year, in the fourth _month,_ on the fifth _day_ of the month, as I _was_ among the captives by the River Chebar, _that_ the heavens were opened and I saw visions[^a] of God. 
+Now it came to pass in the thirtieth year, in the fourth _month,_ on the fifth _day_ of the month, as I _was_ among the captives by the River Chebar, _that_ the heavens were opened and I saw visions of God. 
 
 ###### 2 
 On the fifth _day_ of the month, which _was_ in the fifth year of King Jehoiachin's captivity, 
 
 ###### 3 
-the word of the Lord came expressly to Ezekiel the priest, the son of Buzi, in the land of the [^b]Chaldeans by the River Chebar; and the hand of the Lord was upon him there. 
+the word of the Lord came expressly to Ezekiel the priest, the son of Buzi, in the land of the Chaldeans by the River Chebar; and the hand of the Lord was upon him there. 
 
 ###### 4 
 Then I looked, and behold, a whirlwind was coming out of the north, a great cloud with raging fire engulfing itself; and brightness _was_ all around it and radiating out of its midst like the color of amber, out of the midst of the fire. 
@@ -27,7 +27,7 @@ Also from within it _came_ the likeness of four living creatures. And this _was_
 Each one had four faces, and each one had four wings. 
 
 ###### 7 
-Their [^c]legs _were_ straight, and the soles of their feet _were_ like the soles of calves' feet. They sparkled like the color of burnished bronze. 
+Their legs _were_ straight, and the soles of their feet _were_ like the soles of calves' feet. They sparkled like the color of burnished bronze. 
 
 ###### 8 
 The hands of a man _were_ under their wings on their four sides; and each of the four had faces and wings. 
@@ -66,13 +66,13 @@ As for their rims, they were so high they were awesome; and their rims _were_ fu
 When the living creatures went, the wheels went beside them; and when the living creatures were lifted up from the earth, the wheels were lifted up. 
 
 ###### 20 
-Wherever the spirit wanted to go, they went, _because_ there the spirit went; and the wheels were lifted together with them, for the spirit of the [^d]living creatures _was_ in the wheels. 
+Wherever the spirit wanted to go, they went, _because_ there the spirit went; and the wheels were lifted together with them, for the spirit of the living creatures _was_ in the wheels. 
 
 ###### 21 
-When those went, _these_ went; when those stood, _these_ stood; and when those were lifted up from the earth, the wheels were lifted up together with them, for the spirit of the [^e]living creatures _was_ in the wheels. 
+When those went, _these_ went; when those stood, _these_ stood; and when those were lifted up from the earth, the wheels were lifted up together with them, for the spirit of the living creatures _was_ in the wheels. 
 
 ###### 22 
-The likeness of the [^f]firmament above the heads of the [^g]living creatures _was_ like the color of an awesome crystal, stretched out over their heads. 
+The likeness of the firmament above the heads of the living creatures _was_ like the color of an awesome crystal, stretched out over their heads. 
 
 ###### 23 
 And under the firmament their wings _spread out_ straight, one toward another. Each one had two which covered one side, and each one had two which covered the other side of the body. 

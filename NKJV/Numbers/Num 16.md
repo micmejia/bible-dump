@@ -16,13 +16,13 @@ Now Korah the son of Izhar, the son of Kohath, the son of Levi, with Dathan and 
 and they rose up before Moses with some of the children of Israel, two hundred and fifty leaders of the congregation, representatives of the congregation, men of renown. 
 
 ###### 3 
-They gathered together against Moses and Aaron, and said to them, "_You_ [^a]_take_ too much upon yourselves, for all the congregation _is_ holy, every one of them, and the Lord _is_ among them. Why then do you exalt yourselves above the assembly of the Lord?" 
+They gathered together against Moses and Aaron, and said to them, "_You_ _take_ too much upon yourselves, for all the congregation _is_ holy, every one of them, and the Lord _is_ among them. Why then do you exalt yourselves above the assembly of the Lord?" 
 
 ###### 4 
 So when Moses heard _it,_ he fell on his face; 
 
 ###### 5 
-and he spoke to Korah and all his company, saying, "Tomorrow morning the Lord will show who _is_ His and _who is_ holy,[^b] and will cause _him_ to come near to Him. That one whom He chooses He will cause to come near to Him. 
+and he spoke to Korah and all his company, saying, "Tomorrow morning the Lord will show who _is_ His and _who is_ holy, and will cause _him_ to come near to Him. That one whom He chooses He will cause to come near to Him. 
 
 ###### 6 
 Do this: Take censers, Korah and all your company; 
@@ -52,7 +52,7 @@ _Is it_ a small thing that you have brought us up out of a land flowing with mil
 Moreover you have not brought us into a land flowing with milk and honey, nor given us inheritance of fields and vineyards. Will you put out the eyes of these men? We will not come up!" 
 
 ###### 15 
-Then Moses was very angry, and said to the Lord, "Do not [^c]respect their offering. I have not taken one donkey from them, nor have I hurt one of them." 
+Then Moses was very angry, and said to the Lord, "Do not respect their offering. I have not taken one donkey from them, nor have I hurt one of them." 
 
 ###### 16 
 And Moses said to Korah, "Tomorrow, you and all your company be present before the Lord--you and they, as well as Aaron. 
@@ -73,7 +73,7 @@ And the Lord spoke to Moses and Aaron, saying,
 "Separate yourselves from among this congregation, that I may consume them in a moment." 
 
 ###### 22 
-Then they fell[^d] on their faces, and said, "O God, the God of the spirits of all flesh, shall one man sin, and You be angry with all the congregation?" 
+Then they fell on their faces, and said, "O God, the God of the spirits of all flesh, shall one man sin, and You be angry with all the congregation?" 
 
 ###### 23 
 So the Lord spoke to Moses, saying, 
@@ -121,13 +121,13 @@ Then the Lord spoke to Moses, saying:
 "Tell Eleazar, the son of Aaron the priest, to pick up the censers out of the blaze, for they are holy, and scatter the fire some distance away. 
 
 ###### 38 
-The censers of these men who sinned [^e]against their own souls, let them be made into hammered plates as a covering for the altar. Because they presented them before the Lord, therefore they are holy; and they shall be a sign to the children of Israel." 
+The censers of these men who sinned against their own souls, let them be made into hammered plates as a covering for the altar. Because they presented them before the Lord, therefore they are holy; and they shall be a sign to the children of Israel." 
 
 ###### 39 
 So Eleazar the priest took the bronze censers, which those who were burned up had presented, and they were hammered out as a covering on the altar, 
 
 ###### 40 
-_to be_ a [^f]memorial to the children of Israel that no outsider, who _is_ not a descendant of Aaron, should come near to offer incense before the Lord, that he might not become like Korah and his companions, just as the Lord had said to him through Moses. ## Complaints of the People 
+_to be_ a memorial to the children of Israel that no outsider, who _is_ not a descendant of Aaron, should come near to offer incense before the Lord, that he might not become like Korah and his companions, just as the Lord had said to him through Moses. ## Complaints of the People 
 
 ###### 41 
 On the next day all the congregation of the children of Israel complained against Moses and Aaron, saying, "You have killed the people of the Lord." 
@@ -145,7 +145,7 @@ And the Lord spoke to Moses, saying,
 "Get away from among this congregation, that I may consume them in a moment." And they fell on their faces. 
 
 ###### 46 
-So Moses said to Aaron, "Take a censer and put fire in it from the altar, put incense _on it,_ and take it quickly to the congregation and make [^g]atonement for them; for wrath has gone out from the Lord. The plague has begun." 
+So Moses said to Aaron, "Take a censer and put fire in it from the altar, put incense _on it,_ and take it quickly to the congregation and make atonement for them; for wrath has gone out from the Lord. The plague has begun." 
 
 ###### 47 
 Then Aaron took _it_ as Moses commanded, and ran into the midst of the assembly; and already the plague had begun among the people. So he put in the incense and made atonement for the people. 

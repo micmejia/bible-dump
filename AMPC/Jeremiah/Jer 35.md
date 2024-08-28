@@ -238,7 +238,7 @@ But we have dwelt in tents and have obeyed and done according to all that Jonada
 
 
 
-But when [^a]Nebuchadrezzar king of Babylon came up against the land, we said, Come and let us go to Jerusalem for fear of the army of the Chaldeans and the army of the Syrians. So we are living in Jerusalem. 
+But when Nebuchadrezzar king of Babylon came up against the land, we said, Come and let us go to Jerusalem for fear of the army of the Chaldeans and the army of the Syrians. So we are living in Jerusalem. 
 
 
 

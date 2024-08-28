@@ -271,7 +271,7 @@ Alalahanin ninyo kung paano ko kayo pinagpala sa lahat ng ginawa ninyo. Ako ang 
 
 
 
-"Kaya dumaan tayo sa mga kadugo na lahi ni Esau, na naninirahan sa Seir. Hindi tayo dumaan sa daan ng Araba,[^a] na nanggagaling sa <i class="trans-change">mga bayan ng_ Elat at Ezion Geber. Nang naglalakbay na tayo sa daan sa ilang ng Moab, 
+"Kaya dumaan tayo sa mga kadugo na lahi ni Esau, na naninirahan sa Seir. Hindi tayo dumaan sa daan ng Araba, na nanggagaling sa <i class="trans-change">mga bayan ng_ Elat at Ezion Geber. Nang naglalakbay na tayo sa daan sa ilang ng Moab, 
 
 
 
@@ -766,7 +766,7 @@ Ito rin ang ginawa ng Panginoon sa mga lahi ni Esau na nakatira sa Seir; pinagpa
 
 
 
-Ito rin ang nangyari nang sinalakay ng taga-Caftor[^b] ang mga taga-Avim na naninirahan sa mga baryo ng Gaza. Nilipol nila ang mga taga-Avim at tinirhan ang lupain ng mga ito. 
+Ito rin ang nangyari nang sinalakay ng taga-Caftor ang mga taga-Avim na naninirahan sa mga baryo ng Gaza. Nilipol nila ang mga taga-Avim at tinirhan ang lupain ng mga ito. 
 
 
 
@@ -1063,7 +1063,7 @@ Pero hindi pumayag si Haring Sihon ng Heshbon na padaanin tayo dahil pinatigas n
 
 
 
-"Nang nakikipaglaban si Sihon at ang kanyang mga sundalo[^c] sa atin doon sa Jahaz, 
+"Nang nakikipaglaban si Sihon at ang kanyang mga sundalo sa atin doon sa Jahaz, 
 
 
 
@@ -1129,7 +1129,7 @@ ibinigay siya ng Panginoon na ating Dios sa atin at pinatay natin siya, pati ang
 
 
 
-Nang panahong iyon, sinakop natin ang lahat ng kanyang bayan at nilipol sila ng lubusan[^d] – mga lalaki, babae at mga bata. Wala tayong itinirang buhay. 
+Nang panahong iyon, sinakop natin ang lahat ng kanyang bayan at nilipol sila ng lubusan – mga lalaki, babae at mga bata. Wala tayong itinirang buhay. 
 
 
 

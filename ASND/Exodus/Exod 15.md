@@ -73,7 +73,7 @@ Umawit si Moises at ang mga Israelita ng awit sa Panginoon: "Aawitan ko ang Pang
 
 
 
-Ang Panginoon ang nagbibigay sa akin ng lakas, at siya ang aking awit. Siya ang nagligtas sa akin. Siya ang aking Dios, at pupurihin ko siya. Siya ang Dios ng aking ama,[^a] at itataas ko siya. 
+Ang Panginoon ang nagbibigay sa akin ng lakas, at siya ang aking awit. Siya ang nagligtas sa akin. Siya ang aking Dios, at pupurihin ko siya. Siya ang Dios ng aking ama, at itataas ko siya. 
 
 
 
@@ -403,7 +403,7 @@ O Panginoon, sino po ba ang dios na katulad nʼyo? Wala kayong katulad sa kabana
 
 
 
-Sa pamamagitan ng inyong kapangyarihan,[^b] nilamon ng lupa ang aming mga kaaway. 
+Sa pamamagitan ng inyong kapangyarihan, nilamon ng lupa ang aming mga kaaway. 
 
 
 
@@ -502,7 +502,7 @@ Maririnig ito ng mga bansa at manginginig sila sa takot. Lubhang matatakot ang m
 
 
 
-Ang mga pinuno ng Edom at Moab ay manginginig sa takot, at ang mga pinuno[^c] ng Canaan ay hihimatayin sa takot. 
+Ang mga pinuno ng Edom at Moab ay manginginig sa takot, at ang mga pinuno ng Canaan ay hihimatayin sa takot. 
 
 
 
@@ -766,7 +766,7 @@ At dinala ni Moises ang mga Israelita mula sa Dagat na Pula papunta sa ilang ng 
 
 
 
-Nang makarating sila sa Mara, <i class="trans-change">nakakita sila ng tubig_, pero hindi nila ito mainom dahil mapait. (Ito ang dahilan kung bakit Mara ang pangalan ng lugar.)[^d] 
+Nang makarating sila sa Mara, <i class="trans-change">nakakita sila ng tubig_, pero hindi nila ito mainom dahil mapait. (Ito ang dahilan kung bakit Mara ang pangalan ng lugar.) 
 
 
 

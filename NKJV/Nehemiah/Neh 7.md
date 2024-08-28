@@ -13,7 +13,7 @@ next: ['Neh 8']
 Then it was, when the wall was built and I had hung the doors, when the gatekeepers, the singers, and the Levites had been appointed, 
 
 ###### 2 
-that I gave the charge of Jerusalem to my brother Hanani, and Hananiah the leader of the [^a]citadel, for he _was_ a faithful man and feared God more than many. 
+that I gave the charge of Jerusalem to my brother Hanani, and Hananiah the leader of the citadel, for he _was_ a faithful man and feared God more than many. 
 
 ###### 3 
 And I said to them, "Do not let the gates of Jerusalem be opened until the sun is hot; and while they stand _guard,_ let them shut and bar the doors; and appoint guards from among the inhabitants of Jerusalem, one at his watch station and another in front of his own house." ## The Captives Who Returned to Jerusalem 
@@ -28,7 +28,7 @@ Then my God put it into my heart to gather the nobles, the rulers, and the peopl
 These _are_ the people of the province who came back from the captivity, of those who had been carried away, whom Nebuchadnezzar the king of Babylon had carried away, and who returned to Jerusalem and Judah, everyone to his city. 
 
 ###### 7 
-Those who came with Zerubbabel _were_ Jeshua, Nehemiah, [^b]Azariah, Raamiah, Nahamani, Mordecai, Bilshan, [^c]Mispereth, Bigvai, Nehum, and Baanah. The number of the men of the people of Israel: 
+Those who came with Zerubbabel _were_ Jeshua, Nehemiah, Azariah, Raamiah, Nahamani, Mordecai, Bilshan, Mispereth, Bigvai, Nehum, and Baanah. The number of the men of the people of Israel: 
 
 ###### 8 
 the sons of Parosh, two thousand one hundred and seventy-two; 
@@ -52,7 +52,7 @@ the sons of Zattu, eight hundred and forty-five;
 the sons of Zaccai, seven hundred and sixty; 
 
 ###### 15 
-the sons of [^d]Binnui, six hundred and forty-eight; 
+the sons of Binnui, six hundred and forty-eight; 
 
 ###### 16 
 the sons of Bebai, six hundred and twenty-eight; 
@@ -79,10 +79,10 @@ the sons of Hashum, three hundred and twenty-eight;
 the sons of Bezai, three hundred and twenty-four; 
 
 ###### 24 
-the sons of [^e]Hariph, one hundred and twelve; 
+the sons of Hariph, one hundred and twelve; 
 
 ###### 25 
-the sons of [^f]Gibeon, ninety-five; 
+the sons of Gibeon, ninety-five; 
 
 ###### 26 
 the men of Bethlehem and Netophah, one hundred and eighty-eight; 
@@ -91,10 +91,10 @@ the men of Bethlehem and Netophah, one hundred and eighty-eight;
 the men of Anathoth, one hundred and twenty-eight; 
 
 ###### 28 
-the men of [^g]Beth Azmaveth, forty-two; 
+the men of Beth Azmaveth, forty-two; 
 
 ###### 29 
-the men of [^h]Kirjath Jearim, Chephirah, and Beeroth, seven hundred and forty-three; 
+the men of Kirjath Jearim, Chephirah, and Beeroth, seven hundred and forty-three; 
 
 ###### 30 
 the men of Ramah and Geba, six hundred and twenty-one; 
@@ -136,7 +136,7 @@ the sons of Pashhur, one thousand two hundred and forty-seven;
 the sons of Harim, one thousand and seventeen. 
 
 ###### 43 
-The Levites: the sons of Jeshua, of Kadmiel, _and_ of the sons of [^i]Hodevah, seventy-four. 
+The Levites: the sons of Jeshua, of Kadmiel, _and_ of the sons of Hodevah, seventy-four. 
 
 ###### 44 
 The singers: the sons of Asaph, one hundred and forty-eight. 
@@ -148,10 +148,10 @@ The gatekeepers: the sons of Shallum, the sons of Ater, the sons of Talmon, the 
 The Nethinim: the sons of Ziha, the sons of Hasupha, the sons of Tabbaoth, 
 
 ###### 47 
-the sons of Keros, the sons of [^j]Sia, the sons of Padon, 
+the sons of Keros, the sons of Sia, the sons of Padon, 
 
 ###### 48 
-the sons of [^k]Lebana, the sons of [^l]Hagaba, the sons of [^m]Salmai, 
+the sons of Lebana, the sons of Hagaba, the sons of Salmai, 
 
 ###### 49 
 the sons of Hanan, the sons of Giddel, the sons of Gahar, 
@@ -163,13 +163,13 @@ the sons of Reaiah, the sons of Rezin, the sons of Nekoda,
 the sons of Gazzam, the sons of Uzza, the sons of Paseah, 
 
 ###### 52 
-the sons of Besai, the sons of Meunim, the sons of [^n]Nephishesim, 
+the sons of Besai, the sons of Meunim, the sons of Nephishesim, 
 
 ###### 53 
 the sons of Bakbuk, the sons of Hakupha, the sons of Harhur, 
 
 ###### 54 
-the sons of [^o]Bazlith, the sons of Mehida, the sons of Harsha, 
+the sons of Bazlith, the sons of Mehida, the sons of Harsha, 
 
 ###### 55 
 the sons of Barkos, the sons of Sisera, the sons of Tamah, 
@@ -178,31 +178,31 @@ the sons of Barkos, the sons of Sisera, the sons of Tamah,
 the sons of Neziah, and the sons of Hatipha. 
 
 ###### 57 
-The sons of Solomon's servants: the sons of Sotai, the sons of Sophereth, the sons of [^p]Perida, 
+The sons of Solomon's servants: the sons of Sotai, the sons of Sophereth, the sons of Perida, 
 
 ###### 58 
 the sons of Jaala, the sons of Darkon, the sons of Giddel, 
 
 ###### 59 
-the sons of Shephatiah, the sons of Hattil, the sons of Pochereth of Zebaim, and the sons of [^q]Amon. 
+the sons of Shephatiah, the sons of Hattil, the sons of Pochereth of Zebaim, and the sons of Amon. 
 
 ###### 60 
 All the Nethinim, and the sons of Solomon's servants, _were_ three hundred and ninety-two. 
 
 ###### 61 
-And these _were_ the ones who came up from Tel Melah, Tel Harsha, Cherub, [^r]Addon, and Immer, but they could not identify their father's house nor their lineage, whether they _were_ of Israel: 
+And these _were_ the ones who came up from Tel Melah, Tel Harsha, Cherub, Addon, and Immer, but they could not identify their father's house nor their lineage, whether they _were_ of Israel: 
 
 ###### 62 
 the sons of Delaiah, the sons of Tobiah, the sons of Nekoda, six hundred and forty-two; 
 
 ###### 63 
-and of the priests: the sons of Habaiah, the sons of [^s]Koz, the sons of Barzillai, who took a wife of the daughters of Barzillai the Gileadite, and was called by their name. 
+and of the priests: the sons of Habaiah, the sons of Koz, the sons of Barzillai, who took a wife of the daughters of Barzillai the Gileadite, and was called by their name. 
 
 ###### 64 
 These sought their listing _among_ those who were registered by genealogy, but it was not found; therefore they were excluded from the priesthood as defiled. 
 
 ###### 65 
-And the [^t]governor said to them that they should not eat of the most holy things till a priest could consult with the Urim and Thummim. 
+And the governor said to them that they should not eat of the most holy things till a priest could consult with the Urim and Thummim. 
 
 ###### 66 
 Altogether the whole assembly _was_ forty-two thousand three hundred and sixty, 
@@ -217,7 +217,7 @@ Their horses were seven hundred and thirty-six, their mules two hundred and fort
 _their_ camels four hundred and thirty-five, _and_ donkeys six thousand seven hundred and twenty. 
 
 ###### 70 
-And some of the heads of the fathers' _houses_ gave to the work. The [^u]governor gave to the treasury one thousand gold drachmas, fifty basins, and five hundred and thirty priestly garments. 
+And some of the heads of the fathers' _houses_ gave to the work. The governor gave to the treasury one thousand gold drachmas, fifty basins, and five hundred and thirty priestly garments. 
 
 ###### 71 
 Some of the heads of the fathers' _houses_ gave to the treasury of the work twenty thousand gold drachmas, and two thousand two hundred silver minas. 

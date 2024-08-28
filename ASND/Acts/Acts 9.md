@@ -73,7 +73,7 @@ Patuloy pa rin ang pagbabanta ni Saulo sa buhay ng mga tagasunod ng Panginoon. P
 
 
 
-at humingi ng mga sulat <i class="trans-change">na ipapakita niya_ sa mga sambahan ng mga Judio sa Damascus bilang <i class="trans-change">katibayan na binibigyan siya ng_ kapangyarihang hulihin at dalhin sa Jerusalem ang sinumang makikita niya roon na sumusunod sa pamamaraan <i class="trans-change">ni Jesus_,[^a] lalaki man ito o babae. 
+at humingi ng mga sulat <i class="trans-change">na ipapakita niya_ sa mga sambahan ng mga Judio sa Damascus bilang <i class="trans-change">katibayan na binibigyan siya ng_ kapangyarihang hulihin at dalhin sa Jerusalem ang sinumang makikita niya roon na sumusunod sa pamamaraan <i class="trans-change">ni Jesus_, lalaki man ito o babae. 
 
 
 
@@ -436,7 +436,7 @@ at ipinakita ko sa kanya sa pamamagitan ng isang pangitain na pumasok ka sa kina
 
 
 
-Pero sumagot si Ananias, "Panginoon, marami po akong nababalitaan tungkol sa taong iyon, na malupit siya sa inyong mga pinabanal[^b] sa Jerusalem. 
+Pero sumagot si Ananias, "Panginoon, marami po akong nababalitaan tungkol sa taong iyon, na malupit siya sa inyong mga pinabanal sa Jerusalem. 
 
 
 
@@ -469,7 +469,7 @@ Pero sumagot si Ananias, "Panginoon, marami po akong nababalitaan tungkol sa tao
 
 
 
-Narito siya ngayon sa Damascus at binigyan siya ng kapangyarihan ng mga namamahalang pari na hulihin ang lahat ng kumikilala sa iyo."[^c] 
+Narito siya ngayon sa Damascus at binigyan siya ng kapangyarihan ng mga namamahalang pari na hulihin ang lahat ng kumikilala sa iyo." 
 
 
 
@@ -1195,7 +1195,7 @@ Nakita ng lahat ng naninirahan sa Lyda at sa Sharon na gumaling na si Eneas, at 
 
 
 
-Sa <i class="trans-change">lungsod ng_ Jopa, may isang babaeng mananampalataya na ang pangalan ay Tabita. (Sa Griego, ang kanyang pangalan ay Dorcas[^d]) Marami siyang nagawang mabuti lalung-lalo na sa mga dukha. 
+Sa <i class="trans-change">lungsod ng_ Jopa, may isang babaeng mananampalataya na ang pangalan ay Tabita. (Sa Griego, ang kanyang pangalan ay Dorcas) Marami siyang nagawang mabuti lalung-lalo na sa mga dukha. 
 
 
 

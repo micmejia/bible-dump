@@ -363,7 +363,7 @@ Elijah said to [King] Ahaziah, Thus says the Lord: Since you have sent messenger
 
 
 
-So Ahaziah died according to the word of the Lord which Elijah had spoken. [^a]Joram [also a son of Ahab] reigned in Israel in his stead in the second year of Jehoram son of Jehoshaphat king of Judah, because Ahaziah had no son [but his brother]. 
+So Ahaziah died according to the word of the Lord which Elijah had spoken. Joram [also a son of Ahab] reigned in Israel in his stead in the second year of Jehoram son of Jehoshaphat king of Judah, because Ahaziah had no son [but his brother]. 
 
 
 

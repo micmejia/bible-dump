@@ -112,7 +112,7 @@ So then he went forth from the land of the Chaldeans and settled in Haran. And f
 
 
 
-Yet He gave him no inheritable property in it, [no] not even enough ground to set his foot on; but He promised that He would give it to Him for a [^a]permanent possession and to his descendants after him, even though [as yet] he had no child. 
+Yet He gave him no inheritable property in it, [no] not even enough ground to set his foot on; but He promised that He would give it to Him for a permanent possession and to his descendants after him, even though [as yet] he had no child. 
 
 
 
@@ -175,7 +175,7 @@ But I will judge the nation to whom they will be slaves, said God, and after tha
 
 
 
-And [God] made with Abraham a covenant (an agreement to be religiously observed) [^b]of which circumcision was the seal. And under these circumstances [Abraham] became the father of Isaac and circumcised him on the eighth day; and Isaac [did so] when he became the father of Jacob, and Jacob [when each of his sons was born], the twelve patriarchs. 
+And [God] made with Abraham a covenant (an agreement to be religiously observed) of which circumcision was the seal. And under these circumstances [Abraham] became the father of Isaac and circumcised him on the eighth day; and Isaac [did so] when he became the father of Jacob, and Jacob [when each of his sons was born], the twelve patriarchs. 
 
 
 
@@ -343,7 +343,7 @@ And Jacob went down into Egypt, where he himself died, as did [also] our forefat
 
 
 
-And their [^c]bodies [Jacob's and Joseph's] were taken back to Shechem and laid in the tomb which Abraham had purchased for a sum of [silver] money from the sons of Hamor in Shechem. 
+And their bodies [Jacob's and Joseph's] were taken back to Shechem and laid in the tomb which Abraham had purchased for a sum of [silver] money from the sons of Hamor in Shechem. 
 
 
 
@@ -490,7 +490,7 @@ So Moses was educated in all the wisdom _and_ culture of the Egyptians, and he w
 
 
 
-And when he was in his fortieth year, it came into his heart to visit his kinsmen the children of Israel [[^d]to help them and to care for them]. 
+And when he was in his fortieth year, it came into his heart to visit his kinsmen the children of Israel [to help them and to care for them]. 
 
 
 
@@ -553,7 +553,7 @@ He expected his brethren to understand that God was granting them deliverance by
 
 
 
-Then on the next day he [^e]suddenly appeared to some who were quarreling _and_ fighting among themselves, and he urged them to make peace _and_ become reconciled, saying, Men, you are brethren; why do you abuse _and_ wrong one another? 
+Then on the next day he suddenly appeared to some who were quarreling _and_ fighting among themselves, and he urged them to make peace _and_ become reconciled, saying, Men, you are brethren; why do you abuse _and_ wrong one another? 
 
 
 
@@ -1078,7 +1078,7 @@ Was it not My hand that made all these things?
 
 
 
-You stubborn _and_ stiff-necked people, still heathen _and_ uncircumcised in heart and ears, you are always [^f]actively resisting the Holy Spirit. As your forefathers [were], so you [are and so you do]! 
+You stubborn _and_ stiff-necked people, still heathen _and_ uncircumcised in heart and ears, you are always actively resisting the Holy Spirit. As your forefathers [were], so you [are and so you do]! 
 
 
 
@@ -1267,4 +1267,4 @@ And while they were stoning Stephen, he prayed, Lord Jesus, receive _and_ accept
 
 
 
-And falling on his knees, he cried out loudly, Lord, fix not this sin upon them [lay it not to their charge]! And when he had said this, he fell asleep [^g][in death].
+And falling on his knees, he cried out loudly, Lord, fix not this sin upon them [lay it not to their charge]! And when he had said this, he fell asleep [in death].

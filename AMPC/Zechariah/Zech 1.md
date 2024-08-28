@@ -174,7 +174,7 @@ Upon the twenty-fourth day of the eleventh month, which is the month of Shebat, 
 
 
 
-I saw in the night [vision] and behold, a [^a]Man riding upon a red horse, and He stood among the myrtle trees that were in a low valley _or_ bottom, and behind Him there were horses, red, bay _or_ flame-colored, and white. 
+I saw in the night [vision] and behold, a Man riding upon a red horse, and He stood among the myrtle trees that were in a low valley _or_ bottom, and behind Him there were horses, red, bay _or_ flame-colored, and white. 
 
 
 
@@ -195,7 +195,7 @@ I saw in the night [vision] and behold, a [^a]Man riding upon a red horse, and H
 
 
 
-Then said I, O my lord, what are these? And the [^b]angel who talked with me said, I will show you what these are. 
+Then said I, O my lord, what are these? And the angel who talked with me said, I will show you what these are. 
 
 
 
@@ -237,7 +237,7 @@ And the Man who stood among the myrtle trees answered and said, These are they w
 
 
 
-And the men on the horses answered [^c]the Angel of the Lord Who stood among the myrtle trees and said, We have walked to and fro through the earth [patrolling it] and behold, all the earth sits at rest [in peaceful security]. 
+And the men on the horses answered the Angel of the Lord Who stood among the myrtle trees and said, We have walked to and fro through the earth [patrolling it] and behold, all the earth sits at rest [in peaceful security]. 
 
 
 

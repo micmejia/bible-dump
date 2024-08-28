@@ -216,7 +216,7 @@ The Lord does not delay _and_ is not tardy _or_ slow about what He promises, acc
 
 
 
-But the day of the Lord will come like a thief, and then the heavens will vanish (pass away) with a thunderous crash, and the [[^a]material] elements [of the universe] will be dissolved with fire, and the earth and the works that are upon it will be burned up. 
+But the day of the Lord will come like a thief, and then the heavens will vanish (pass away) with a thunderous crash, and the [material] elements [of the universe] will be dissolved with fire, and the earth and the works that are upon it will be burned up. 
 
 
 
@@ -237,7 +237,7 @@ But the day of the Lord will come like a thief, and then the heavens will vanish
 
 
 
-Since all these things are thus [^b]in the process of being dissolved, what kind of person ought [each of] you to be [in the meanwhile] in consecrated _and_ holy behavior and devout _and_ godly qualities, 
+Since all these things are thus in the process of being dissolved, what kind of person ought [each of] you to be [in the meanwhile] in consecrated _and_ holy behavior and devout _and_ godly qualities, 
 
 
 
@@ -258,7 +258,7 @@ Since all these things are thus [^b]in the process of being dissolved, what kind
 
 
 
-While you wait and earnestly long for (expect and hasten) the coming of the day of God by reason of which the flaming heavens will be dissolved, and the [[^c]material] elements [of the universe] will flare _and_ melt with fire? 
+While you wait and earnestly long for (expect and hasten) the coming of the day of God by reason of which the flaming heavens will be dissolved, and the [material] elements [of the universe] will flare _and_ melt with fire? 
 
 
 
@@ -300,7 +300,7 @@ But we look for new heavens and a new earth according to His promise, in which r
 
 
 
-So, beloved, since you are expecting these things, be eager to be found by Him [at His coming] without spot or blemish and at peace [in serene confidence, [^d]free from fears and agitating passions and moral conflicts]. 
+So, beloved, since you are expecting these things, be eager to be found by Him [at His coming] without spot or blemish and at peace [in serene confidence, free from fears and agitating passions and moral conflicts]. 
 
 
 
@@ -321,7 +321,7 @@ So, beloved, since you are expecting these things, be eager to be found by Him [
 
 
 
-And consider that the long-suffering of our Lord [[^e]His slowness in avenging wrongs and judging the world] is salvation ([^f]that which is conducive to the soul's safety), even as our beloved brother Paul also wrote to you according to the spiritual insight given him, 
+And consider that the long-suffering of our Lord [His slowness in avenging wrongs and judging the world] is salvation (that which is conducive to the soul's safety), even as our beloved brother Paul also wrote to you according to the spiritual insight given him, 
 
 
 
@@ -342,7 +342,7 @@ And consider that the long-suffering of our Lord [[^e]His slowness in avenging w
 
 
 
-Speaking of this as he does in all of his letters. There are some things in those [epistles of Paul] that are difficult to understand, which the ignorant and unstable twist _and_ misconstrue to their own [^g]utter destruction, just as [they distort and misinterpret] the rest of the Scriptures. 
+Speaking of this as he does in all of his letters. There are some things in those [epistles of Paul] that are difficult to understand, which the ignorant and unstable twist _and_ misconstrue to their own utter destruction, just as [they distort and misinterpret] the rest of the Scriptures. 
 
 
 
@@ -384,4 +384,4 @@ Let me warn you therefore, beloved, that knowing these things beforehand, you sh
 
 
 
-But grow in grace (undeserved favor, spiritual strength) and [^h]recognition _and_ knowledge _and_ understanding of our Lord and Savior Jesus Christ (the Messiah). To Him [be] glory (honor, majesty, and splendor) both now and to the day of eternity. Amen (so be it)!
+But grow in grace (undeserved favor, spiritual strength) and recognition _and_ knowledge _and_ understanding of our Lord and Savior Jesus Christ (the Messiah). To Him [be] glory (honor, majesty, and splendor) both now and to the day of eternity. Amen (so be it)!

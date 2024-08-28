@@ -25,13 +25,13 @@ And when he has arisen, his kingdom shall be broken up and divided toward the fo
 "Also the king of the South shall become strong, as well as _one_ of his princes; and he shall gain power over him and have dominion. His dominion _shall be_ a great dominion. 
 
 ###### 6 
-And at the end of _some_ years they shall join forces, for the daughter of the king of the South shall go to the king of the North to make an agreement; but she shall not retain the power of her [^a]authority, and neither he nor his [^b]authority shall stand; but she shall be given up, with those who brought her, and with him who begot her, and with him who strengthened her in _those_ times. 
+And at the end of _some_ years they shall join forces, for the daughter of the king of the South shall go to the king of the North to make an agreement; but she shall not retain the power of her authority, and neither he nor his authority shall stand; but she shall be given up, with those who brought her, and with him who begot her, and with him who strengthened her in _those_ times. 
 
 ###### 7 
 But from a branch of her roots _one_ shall arise in his place, who shall come with an army, enter the fortress of the king of the North, and deal with them and prevail. 
 
 ###### 8 
-And he shall also carry their gods captive to Egypt, with their [^c]princes _and_ their precious articles of silver and gold; and he shall continue _more_ years than the king of the North. 
+And he shall also carry their gods captive to Egypt, with their princes _and_ their precious articles of silver and gold; and he shall continue _more_ years than the king of the North. 
 
 ###### 9 
 "Also _the king of the North_ shall come to the kingdom of the king of the South, but shall return to his own land. 
@@ -43,22 +43,22 @@ However his sons shall stir up strife, and assemble a multitude of great forces;
 "And the king of the South shall be moved with rage, and go out and fight with him, with the king of the North, who shall muster a great multitude; but the multitude shall be given into the hand of his _enemy._ 
 
 ###### 12 
-When he has taken away the multitude, his heart will be [^d]lifted up; and he will cast down tens of thousands, but he will not prevail. 
+When he has taken away the multitude, his heart will be lifted up; and he will cast down tens of thousands, but he will not prevail. 
 
 ###### 13 
 For the king of the North will return and muster a multitude greater than the former, and shall certainly come at the end of some years with a great army and much equipment. 
 
 ###### 14 
-"Now in those times many shall rise up against the king of the South. Also, [^e]violent men of your people shall exalt themselves [^f]in fulfillment of the vision, but they shall fall. 
+"Now in those times many shall rise up against the king of the South. Also, violent men of your people shall exalt themselves in fulfillment of the vision, but they shall fall. 
 
 ###### 15 
-So the king of the North shall come and build a siege mound, and take a fortified city; and the [^g]forces of the South shall not withstand _him._ Even his choice troops _shall have_ no strength to resist. 
+So the king of the North shall come and build a siege mound, and take a fortified city; and the forces of the South shall not withstand _him._ Even his choice troops _shall have_ no strength to resist. 
 
 ###### 16 
-But he who comes against him shall do according to his own will, and no one shall stand against him. He shall stand in the Glorious Land with destruction in his [^h]power. 
+But he who comes against him shall do according to his own will, and no one shall stand against him. He shall stand in the Glorious Land with destruction in his power. 
 
 ###### 17 
-"He shall also set his face to enter with the strength of his whole kingdom, and [^i]upright ones with him; thus shall he do. And he shall give him the daughter of women to destroy it; but she shall not stand _with him,_ or be for him. 
+"He shall also set his face to enter with the strength of his whole kingdom, and upright ones with him; thus shall he do. And he shall give him the daughter of women to destroy it; but she shall not stand _with him,_ or be for him. 
 
 ###### 18 
 After this he shall turn his face to the coastlands, and shall take many. But a ruler shall bring the reproach against them to an end; and with the reproach removed, he shall turn back on him. 
@@ -73,19 +73,19 @@ Then he shall turn his face toward the fortress of his own land; but he shall st
 And in his place shall arise a vile person, to whom they will not give the honor of royalty; but he shall come in peaceably, and seize the kingdom by intrigue. 
 
 ###### 22 
-With the [^j]force of a flood they shall be swept away from before him and be broken, and also the prince of the covenant. 
+With the force of a flood they shall be swept away from before him and be broken, and also the prince of the covenant. 
 
 ###### 23 
 And after the league _is made_ with him he shall act deceitfully, for he shall come up and become strong with a small _number of_ people. 
 
 ###### 24 
-He shall enter peaceably, even into the richest places of the province; and he shall do _what_ his fathers have not done, nor his forefathers: he shall disperse among them the plunder, [^k]spoil, and riches; and he shall devise his plans against the strongholds, but _only_ for a time. 
+He shall enter peaceably, even into the richest places of the province; and he shall do _what_ his fathers have not done, nor his forefathers: he shall disperse among them the plunder, spoil, and riches; and he shall devise his plans against the strongholds, but _only_ for a time. 
 
 ###### 25 
 "He shall stir up his power and his courage against the king of the South with a great army. And the king of the South shall be stirred up to battle with a very great and mighty army; but he shall not stand, for they shall devise plans against him. 
 
 ###### 26 
-Yes, those who eat of the portion of his delicacies shall destroy him; his army shall [^l]be swept away, and many shall fall down slain. 
+Yes, those who eat of the portion of his delicacies shall destroy him; his army shall be swept away, and many shall fall down slain. 
 
 ###### 27 
 Both these kings' hearts _shall be_ bent on evil, and they shall speak lies at the same table; but it shall not prosper, for the end _will_ still _be_ at the appointed time. 
@@ -97,19 +97,19 @@ While returning to his land with great riches, his heart shall be _moved_ agains
 "At the appointed time he shall return and go toward the south; but it shall not be like the former or the latter. 
 
 ###### 30 
-For ships from [^m]Cyprus shall come against him; therefore he shall be grieved, and return in rage against the holy covenant, and do _damage._ "So he shall return and show regard for those who forsake the holy covenant. 
+For ships from Cyprus shall come against him; therefore he shall be grieved, and return in rage against the holy covenant, and do _damage._ "So he shall return and show regard for those who forsake the holy covenant. 
 
 ###### 31 
-And [^n]forces shall be mustered by him, and they shall defile the sanctuary fortress; then they shall take away the daily _sacrifices,_ and place _there_ the abomination of desolation. 
+And forces shall be mustered by him, and they shall defile the sanctuary fortress; then they shall take away the daily _sacrifices,_ and place _there_ the abomination of desolation. 
 
 ###### 32 
-Those who do wickedly against the covenant he shall [^o]corrupt with flattery; but the people who know their God shall be strong, and carry out _great exploits._ 
+Those who do wickedly against the covenant he shall corrupt with flattery; but the people who know their God shall be strong, and carry out _great exploits._ 
 
 ###### 33 
 And those of the people who understand shall instruct many; yet _for many_ days they shall fall by sword and flame, by captivity and plundering. 
 
 ###### 34 
-Now when they fall, they shall be aided with a little help; but many shall join with them by [^p]intrigue. 
+Now when they fall, they shall be aided with a little help; but many shall join with them by intrigue. 
 
 ###### 35 
 And _some_ of those of understanding shall fall, to refine them, purify _them,_ and make _them_ white, _until_ the time of the end; because _it is_ still for the appointed time. 
@@ -118,19 +118,19 @@ And _some_ of those of understanding shall fall, to refine them, purify _them,_ 
 "Then the king shall do according to his own will: he shall exalt and magnify himself above every god, shall speak blasphemies against the God of gods, and shall prosper till the wrath has been accomplished; for what has been determined shall be done. 
 
 ###### 37 
-He shall regard neither the [^q]God of his fathers nor the desire of women, nor regard any god; for he shall exalt himself above _them_ all. 
+He shall regard neither the God of his fathers nor the desire of women, nor regard any god; for he shall exalt himself above _them_ all. 
 
 ###### 38 
 But in their place he shall honor a god of fortresses; and a god which his fathers did not know he shall honor with gold and silver, with precious stones and pleasant things. 
 
 ###### 39 
-Thus he shall act against the strongest fortresses with a foreign god, which he shall acknowledge, _and_ advance _its_ glory; and he shall cause them to rule over many, and divide the land for [^r]gain. ## The Northern King's Conquests 
+Thus he shall act against the strongest fortresses with a foreign god, which he shall acknowledge, _and_ advance _its_ glory; and he shall cause them to rule over many, and divide the land for gain. ## The Northern King's Conquests 
 
 ###### 40 
 "At the time of the end the king of the South shall attack him; and the king of the North shall come against him like a whirlwind, with chariots, horsemen, and with many ships; and he shall enter the countries, overwhelm _them,_ and pass through. 
 
 ###### 41 
-He shall also enter the Glorious Land, and many _countries_ shall be overthrown; but these shall escape from his hand: Edom, Moab, and the [^s]prominent people of Ammon. 
+He shall also enter the Glorious Land, and many _countries_ shall be overthrown; but these shall escape from his hand: Edom, Moab, and the prominent people of Ammon. 
 
 ###### 42 
 He shall stretch out his hand against the countries, and the land of Egypt shall not escape. 

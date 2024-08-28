@@ -634,7 +634,7 @@ Ngayon, tayong lahat ay makakalapit sa Ama sa pamamagitan ng iisang <i class="tr
 
 
 
-Kaya kayong mga hindi Judio ay hindi na mga dayuhan o taga-ibang bansa, kundi kaisa na ng mga pinabanal[^a] at kabilang sa pamilya ng Dios. 
+Kaya kayong mga hindi Judio ay hindi na mga dayuhan o taga-ibang bansa, kundi kaisa na ng mga pinabanal at kabilang sa pamilya ng Dios. 
 
 
 

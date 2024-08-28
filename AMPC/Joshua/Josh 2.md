@@ -448,7 +448,7 @@ But if you tell this business of ours, we shall be guiltless of your oath which 
 
 
 
-And she said, According to your words, so it is. Then she sent them away and they departed; and she bound the [^a]scarlet cord in the window. 
+And she said, According to your words, so it is. Then she sent them away and they departed; and she bound the scarlet cord in the window. 
 
 
 

@@ -21,7 +21,7 @@ We have become orphans and waifs, Our mothers _are_ like widows.
 We pay for the water we drink, And our wood comes at a price. 
 
 ###### 5 
-_They_ pursue at our [^a]heels; We labor _and_ have no rest. 
+_They_ pursue at our heels; We labor _and_ have no rest. 
 
 ###### 6 
 We have given our hand _to_ the Egyptians _And_ the Assyrians, to be satisfied with bread. 
@@ -69,7 +69,7 @@ You, O Lord, remain forever; Your throne from generation to generation.
 Why do You forget us forever, _And_ forsake us for so long a time? 
 
 ###### 21 
-Turn us back to You, O Lord, and we will be [^b]restored; Renew our days as of old, 
+Turn us back to You, O Lord, and we will be restored; Renew our days as of old, 
 
 ###### 22 
 Unless You have utterly rejected us, _And_ are very angry with us!

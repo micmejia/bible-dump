@@ -111,7 +111,7 @@ In every prayer of mine I always make my entreaty _and_ petition for you all wit
 
 
 
-[I thank my God] for your fellowship (your [^a]sympathetic cooperation and contributions and partnership) in advancing the good news (the Gospel) from the first day [you heard it] until now. 
+[I thank my God] for your fellowship (your sympathetic cooperation and contributions and partnership) in advancing the good news (the Gospel) from the first day [you heard it] until now. 
 
 
 
@@ -153,7 +153,7 @@ And I am convinced _and_ sure of this very thing, that He Who began a good work 
 
 
 
-It is right _and_ appropriate for me to have this confidence _and_ feel this way about you all, because [^b]you have me in your heart _and_ I hold you in my heart as partakers _and_ sharers, one _and_ all with me, of grace (God's unmerited favor and spiritual blessing). [This is true] both when I am shut up in prison and when I am out in the defense and confirmation of the good news (the Gospel). 
+It is right _and_ appropriate for me to have this confidence _and_ feel this way about you all, because you have me in your heart _and_ I hold you in my heart as partakers _and_ sharers, one _and_ all with me, of grace (God's unmerited favor and spiritual blessing). [This is true] both when I am shut up in prison and when I am out in the defense and confirmation of the good news (the Gospel). 
 
 
 
@@ -174,7 +174,7 @@ It is right _and_ appropriate for me to have this confidence _and_ feel this way
 
 
 
-For God is my witness how I long for _and_ [^c]pursue you all with love, in the tender mercy of Christ Jesus [Himself]! 
+For God is my witness how I long for _and_ pursue you all with love, in the tender mercy of Christ Jesus [Himself]! 
 
 
 
@@ -195,7 +195,7 @@ For God is my witness how I long for _and_ [^c]pursue you all with love, in the 
 
 
 
-And this I pray: that your love may abound yet more and more _and_ extend to its fullest development in knowledge and all keen insight [that your love may [^d]display itself in greater depth of acquaintance and more comprehensive discernment], 
+And this I pray: that your love may abound yet more and more _and_ extend to its fullest development in knowledge and all keen insight [that your love may display itself in greater depth of acquaintance and more comprehensive discernment], 
 
 
 
@@ -237,7 +237,7 @@ So that you may surely learn to sense what is vital, _and_ approve _and_ prize w
 
 
 
-May you abound in _and_ be filled with the fruits of righteousness (of right standing with God and right doing) which come through Jesus Christ (the Anointed One), to the honor and praise of God [[^e]that His glory may be both manifested and recognized]. 
+May you abound in _and_ be filled with the fruits of righteousness (of right standing with God and right doing) which come through Jesus Christ (the Anointed One), to the honor and praise of God [that His glory may be both manifested and recognized]. 
 
 
 
@@ -342,7 +342,7 @@ Some, it is true, [actually] preach Christ (the Messiah) [for no better reason t
 
 
 
-[^f]The latter [proclaim Christ] out of love, because they recognize _and_ know that I am [providentially] put here for the defense of the good news (the Gospel). 
+The latter [proclaim Christ] out of love, because they recognize _and_ know that I am [providentially] put here for the defense of the good news (the Gospel). 
 
 
 
@@ -363,7 +363,7 @@ Some, it is true, [actually] preach Christ (the Messiah) [for no better reason t
 
 
 
-[^g]But the former preach Christ out of a party spirit, insincerely [out of no pure motive, but thinking to annoy me], supposing they are making my bondage more bitter _and_ my chains more galling. 
+But the former preach Christ out of a party spirit, insincerely [out of no pure motive, but thinking to annoy me], supposing they are making my bondage more bitter _and_ my chains more galling. 
 
 
 
@@ -405,7 +405,7 @@ But what does it matter, so long as either way, whether in pretense [for persona
 
 
 
-For I am well assured _and_ indeed know that through your prayers and a [^h]bountiful supply of the Spirit of Jesus Christ (the Messiah) this will turn out for my preservation (for the spiritual health and [^i]welfare of my own soul) _and_ avail toward the saving work of the Gospel. 
+For I am well assured _and_ indeed know that through your prayers and a bountiful supply of the Spirit of Jesus Christ (the Messiah) this will turn out for my preservation (for the spiritual health and welfare of my own soul) _and_ avail toward the saving work of the Gospel. 
 
 
 

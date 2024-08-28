@@ -85,10 +85,10 @@ You have bought Me no sweet cane with money, Nor have you satisfied Me with the 
 "I, _even_ I, _am_ He who blots out your transgressions for My own sake; And I will not remember your sins. 
 
 ###### 26 
-Put Me in remembrance; Let us contend together; State your _case,_ that you may be [^a]acquitted. 
+Put Me in remembrance; Let us contend together; State your _case,_ that you may be acquitted. 
 
 ###### 27 
-Your first father sinned, And your [^b]mediators have transgressed against Me. 
+Your first father sinned, And your mediators have transgressed against Me. 
 
 ###### 28 
 Therefore I will profane the princes of the sanctuary; I will give Jacob to the curse, And Israel to reproaches.

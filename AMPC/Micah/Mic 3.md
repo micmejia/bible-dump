@@ -259,4 +259,4 @@ Its heads judge for reward _and_ a bribe and its priests teach for hire and its 
 
 
 
-Therefore shall Zion on your account be [^a]plowed like a field, Jerusalem shall become heaps [of ruins], and the mountain of the house [of the Lord] like a densely wooded height.
+Therefore shall Zion on your account be plowed like a field, Jerusalem shall become heaps [of ruins], and the mountain of the house [of the Lord] like a densely wooded height.

@@ -90,7 +90,7 @@ Not domineering [as arrogant, dictatorial, and overbearing persons] over those i
 
 
 
-And [then] when the Chief Shepherd is revealed, you will win the [^a]conqueror's crown of glory. 
+And [then] when the Chief Shepherd is revealed, you will win the conqueror's crown of glory. 
 
 
 
@@ -111,7 +111,7 @@ And [then] when the Chief Shepherd is revealed, you will win the [^a]conqueror's
 
 
 
-Likewise, you who are younger _and_ of lesser rank, be subject to the elders (the ministers and spiritual guides of the church)--[giving them due respect and yielding to their counsel]. Clothe (apron) yourselves, all of you, with humility [as the garb of a servant, [^b]so that its covering cannot possibly be stripped from you, with freedom from pride and arrogance] toward one another. For God sets Himself against the proud (the insolent, the overbearing, the disdainful, the presumptuous, the boastful)--[and He opposes, frustrates, and defeats them], but gives grace (favor, blessing) to the humble. 
+Likewise, you who are younger _and_ of lesser rank, be subject to the elders (the ministers and spiritual guides of the church)--[giving them due respect and yielding to their counsel]. Clothe (apron) yourselves, all of you, with humility [as the garb of a servant, so that its covering cannot possibly be stripped from you, with freedom from pride and arrogance] toward one another. For God sets Himself against the proud (the insolent, the overbearing, the disdainful, the presumptuous, the boastful)--[and He opposes, frustrates, and defeats them], but gives grace (favor, blessing) to the humble. 
 
 
 
@@ -153,7 +153,7 @@ Therefore humble yourselves [demote, lower yourselves in your own estimation] un
 
 
 
-Casting the [^c]whole of your care [all your anxieties, all your worries, all your concerns, [^d]once and for all] on Him, for He cares for you affectionately _and_ cares about you [^e]watchfully. 
+Casting the whole of your care [all your anxieties, all your worries, all your concerns, once and for all] on Him, for He cares for you affectionately _and_ cares about you watchfully. 
 
 
 
@@ -174,7 +174,7 @@ Casting the [^c]whole of your care [all your anxieties, all your worries, all yo
 
 
 
-Be well balanced (temperate, sober of mind), be vigilant _and_ cautious at all times; for that enemy of yours, the devil, roams around like a lion roaring [[^f]in fierce hunger], seeking someone to seize upon _and_ devour. 
+Be well balanced (temperate, sober of mind), be vigilant _and_ cautious at all times; for that enemy of yours, the devil, roams around like a lion roaring [in fierce hunger], seeking someone to seize upon _and_ devour. 
 
 
 
@@ -195,7 +195,7 @@ Be well balanced (temperate, sober of mind), be vigilant _and_ cautious at all t
 
 
 
-Withstand him; be firm in faith [against his onset--rooted, established, strong, immovable, and determined], knowing that the same ([^g]identical) sufferings are appointed to your brotherhood (the whole body of Christians) throughout the world. 
+Withstand him; be firm in faith [against his onset--rooted, established, strong, immovable, and determined], knowing that the same (identical) sufferings are appointed to your brotherhood (the whole body of Christians) throughout the world. 
 
 
 
@@ -300,4 +300,4 @@ She [your sister church here] in Babylon, [who is] elect (chosen) with [yourselv
 
 
 
-Salute one another with a kiss of love [the symbol of mutual affection]. To all of you that are in Christ _Jesus_ (the Messiah), may there be peace ([^h]every kind of peace and blessing, especially peace with God, and [^i] freedom from fears, agitating passions, and moral conflicts). _Amen (so be it)._
+Salute one another with a kiss of love [the symbol of mutual affection]. To all of you that are in Christ _Jesus_ (the Messiah), may there be peace (every kind of peace and blessing, especially peace with God, and  freedom from fears, agitating passions, and moral conflicts). _Amen (so be it)._

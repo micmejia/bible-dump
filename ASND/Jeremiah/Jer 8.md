@@ -634,7 +634,7 @@ Sinabi ng Panginoon, "Makinig kayo! Magpapadala ako ng mga kaaway na parang mga 
 
 
 
-Pakinggan nʼyo ang iyakan ng mga kababayan ko na naririnig sa buong lupain. <i class="trans-change">Sinabi nila,_ "Wala na ba ang Panginoon sa Jerusalem?[^a] Wala na ba roon ang Dios na Hari ng Jerusalem?" <i class="trans-change">Sumagot ang Panginoon,_ "Bakit nʼyo ako ginalit sa pamamagitan ng pagsamba nʼyo sa mga dios-diosang walang kabuluhan?" 
+Pakinggan nʼyo ang iyakan ng mga kababayan ko na naririnig sa buong lupain. <i class="trans-change">Sinabi nila,_ "Wala na ba ang Panginoon sa Jerusalem? Wala na ba roon ang Dios na Hari ng Jerusalem?" <i class="trans-change">Sumagot ang Panginoon,_ "Bakit nʼyo ako ginalit sa pamamagitan ng pagsamba nʼyo sa mga dios-diosang walang kabuluhan?" 
 
 
 

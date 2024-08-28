@@ -16,10 +16,10 @@ Then the men of Kirjath Jearim came and took the ark of the Lord, and brought it
 So it was that the ark remained in Kirjath Jearim a long time; it was there twenty years. And all the house of Israel lamented after the Lord. 
 
 ###### 3 
-Then Samuel spoke to all the house of Israel, saying, "If you return to the Lord with all your hearts, _then_ put away the foreign gods and the Ashtoreths[^a] from among you, and prepare your hearts for the Lord, and serve Him only; and He will deliver you from the hand of the Philistines." 
+Then Samuel spoke to all the house of Israel, saying, "If you return to the Lord with all your hearts, _then_ put away the foreign gods and the Ashtoreths from among you, and prepare your hearts for the Lord, and serve Him only; and He will deliver you from the hand of the Philistines." 
 
 ###### 4 
-So the children of Israel put away the Baals and the [^b]Ashtoreths, and served the Lord only. 
+So the children of Israel put away the Baals and the Ashtoreths, and served the Lord only. 
 
 ###### 5 
 And Samuel said, "Gather all Israel to Mizpah, and I will pray to the Lord for you." 
@@ -40,10 +40,10 @@ And Samuel took a suckling lamb and offered _it as_ a whole burnt offering to th
 Now as Samuel was offering up the burnt offering, the Philistines drew near to battle against Israel. But the Lord thundered with a loud thunder upon the Philistines that day, and so confused them that they were overcome before Israel. 
 
 ###### 11 
-And the men of Israel went out of Mizpah and pursued the Philistines, and [^c]drove them back as far as below Beth Car. 
+And the men of Israel went out of Mizpah and pursued the Philistines, and drove them back as far as below Beth Car. 
 
 ###### 12 
-Then Samuel took a stone and set _it_ up between Mizpah and Shen, and called its name [^d]Ebenezer, saying, "Thus far the Lord has helped us." 
+Then Samuel took a stone and set _it_ up between Mizpah and Shen, and called its name Ebenezer, saying, "Thus far the Lord has helped us." 
 
 ###### 13 
 So the Philistines were subdued, and they did not come anymore into the territory of Israel. And the hand of the Lord was against the Philistines all the days of Samuel. 

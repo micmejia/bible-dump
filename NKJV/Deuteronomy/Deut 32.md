@@ -13,7 +13,7 @@ next: ['Deut 33']
 "Give ear, O heavens, and I will speak; And hear, O earth, the words of my mouth. 
 
 ###### 2 
-Let my [^a]teaching drop as the rain, My speech distill as the dew, As raindrops on the tender herb, And as showers on the grass. 
+Let my teaching drop as the rain, My speech distill as the dew, As raindrops on the tender herb, And as showers on the grass. 
 
 ###### 3 
 For I proclaim the name of the Lord: Ascribe greatness to our God. 
@@ -25,19 +25,19 @@ _He is_ the Rock, His work _is_ perfect; For all His ways _are_ justice, A God o
 "They have corrupted themselves; _They are_ not His children, Because of their blemish: A perverse and crooked generation. 
 
 ###### 6 
-Do you thus deal[^b] with the Lord, O foolish and unwise people? _Is_ He not your Father, _who_ bought you? Has He not made you and established you? 
+Do you thus deal with the Lord, O foolish and unwise people? _Is_ He not your Father, _who_ bought you? Has He not made you and established you? 
 
 ###### 7 
 "Remember the days of old, Consider the years of many generations. Ask your father, and he will show you; Your elders, and they will tell you: 
 
 ###### 8 
-When the Most High divided their inheritance to the nations, When He separated the sons of Adam, He set the boundaries of the peoples According to the number of the [^c]children of Israel. 
+When the Most High divided their inheritance to the nations, When He separated the sons of Adam, He set the boundaries of the peoples According to the number of the children of Israel. 
 
 ###### 9 
 For the Lord's portion _is_ His people; Jacob _is_ the place of His inheritance. 
 
 ###### 10 
-"He found him in a desert land And in the wasteland, a howling wilderness; He encircled him, He instructed him, He kept him as the [^d]apple of His eye. 
+"He found him in a desert land And in the wasteland, a howling wilderness; He encircled him, He instructed him, He kept him as the apple of His eye. 
 
 ###### 11 
 As an eagle stirs up its nest, Hovers over its young, Spreading out its wings, taking them up, Carrying them on its wings, 
@@ -55,7 +55,7 @@ Curds from the cattle, and milk of the flock, With fat of lambs; And rams of the
 "But Jeshurun grew fat and kicked; You grew fat, you grew thick, You are obese! Then he forsook God _who_ made him, And scornfully esteemed the Rock of his salvation. 
 
 ###### 16 
-They provoked Him to jealousy with foreign _gods;_ With [^e]abominations they provoked Him to anger. 
+They provoked Him to jealousy with foreign _gods;_ With abominations they provoked Him to anger. 
 
 ###### 17 
 They sacrificed to demons, not to God, _To gods_ they did not know, To new _gods,_ new arrivals That your fathers did not fear. 
@@ -70,10 +70,10 @@ Of the Rock _who_ begot you, you are unmindful, And have forgotten the God who f
 And He said: 'I will hide My face from them, I will see what their end _will be,_ For they _are_ a perverse generation, Children in whom _is_ no faith. 
 
 ###### 21 
-They have provoked Me to jealousy by _what_ is not God; They have moved Me to anger by their [^f]foolish idols. But I will provoke them to jealousy by _those who are_ not a nation; I will move them to anger by a foolish nation. 
+They have provoked Me to jealousy by _what_ is not God; They have moved Me to anger by their foolish idols. But I will provoke them to jealousy by _those who are_ not a nation; I will move them to anger by a foolish nation. 
 
 ###### 22 
-For a fire is kindled in My anger, And shall burn to the [^g]lowest [^h]hell; It shall consume the earth with her increase, And set on fire the foundations of the mountains. 
+For a fire is kindled in My anger, And shall burn to the lowest hell; It shall consume the earth with her increase, And set on fire the foundations of the mountains. 
 
 ###### 23 
 'I will heap disasters on them; I will spend My arrows on them. 
@@ -130,16 +130,16 @@ Who ate the fat of their sacrifices, _And_ drank the wine of their drink offerin
 For I raise My hand to heaven, And say, "_As_ I live forever, 
 
 ###### 41 
-If I [^i]whet My glittering sword, And My hand takes hold on judgment, I will render vengeance to My enemies, And repay those who hate Me. 
+If I whet My glittering sword, And My hand takes hold on judgment, I will render vengeance to My enemies, And repay those who hate Me. 
 
 ###### 42 
 I will make My arrows drunk with blood, And My sword shall devour flesh, With the blood of the slain and the captives, From the heads of the leaders of the enemy." ' 
 
 ###### 43 
-"Rejoice, O Gentiles, _with_ His [^j]people; For He will avenge the blood of His servants, And render vengeance to His adversaries; He will provide atonement for His land _and_ His people." 
+"Rejoice, O Gentiles, _with_ His people; For He will avenge the blood of His servants, And render vengeance to His adversaries; He will provide atonement for His land _and_ His people." 
 
 ###### 44 
-So Moses came with [^k]Joshua the son of Nun and spoke all the words of this song in the hearing of the people. 
+So Moses came with Joshua the son of Nun and spoke all the words of this song in the hearing of the people. 
 
 ###### 45 
 Moses finished speaking all these words to all Israel, 
@@ -148,7 +148,7 @@ Moses finished speaking all these words to all Israel,
 and he said to them: "Set your hearts on all the words which I testify among you today, which you shall command your children to be careful to observe--all the words of this law. 
 
 ###### 47 
-For it _is_ not a [^l]futile thing for you, because it _is_ your life, and by this word you shall prolong _your_ days in the land which you cross over the Jordan to possess." ## Moses to Die on Mount Nebo 
+For it _is_ not a futile thing for you, because it _is_ your life, and by this word you shall prolong _your_ days in the land which you cross over the Jordan to possess." ## Moses to Die on Mount Nebo 
 
 ###### 48 
 Then the Lord spoke to Moses that very same day, saying: 
@@ -157,10 +157,10 @@ Then the Lord spoke to Moses that very same day, saying:
 "Go up this mountain of the Abarim, Mount Nebo, which _is_ in the land of Moab, across from Jericho; view the land of Canaan, which I give to the children of Israel as a possession; 
 
 ###### 50 
-and die on the mountain which you ascend, and be [^m]gathered to your people, just as Aaron your brother died on Mount Hor and was gathered to his people; 
+and die on the mountain which you ascend, and be gathered to your people, just as Aaron your brother died on Mount Hor and was gathered to his people; 
 
 ###### 51 
-because you trespassed against Me among the children of Israel at the waters of [^n]Meribah Kadesh, in the Wilderness of Zin, because you did not hallow Me in the midst of the children of Israel. 
+because you trespassed against Me among the children of Israel at the waters of Meribah Kadesh, in the Wilderness of Zin, because you did not hallow Me in the midst of the children of Israel. 
 
 ###### 52 
 Yet you shall see the land before _you,_ though you shall not go there, into the land which I am giving to the children of Israel."

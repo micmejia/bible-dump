@@ -39,7 +39,7 @@ up: ['Esther']
 
 
 
-Pinagbayad ni Haring Ahasuerus ng buwis ang lahat ng mamamayan sa buong kaharian niya, pati na ang nakatira sa mga isla.[^a] 
+Pinagbayad ni Haring Ahasuerus ng buwis ang lahat ng mamamayan sa buong kaharian niya, pati na ang nakatira sa mga isla. 
 
 
 

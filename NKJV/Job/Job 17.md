@@ -13,7 +13,7 @@ next: ['Job 18']
 "My spirit is broken, My days are extinguished, The grave _is ready_ for me. 
 
 ###### 2 
-_Are_ not mockers with me? And does not my eye [^a]dwell on their provocation? 
+_Are_ not mockers with me? And does not my eye dwell on their provocation? 
 
 ###### 3 
 "Now put down a pledge for me with Yourself. Who _is_ he _who_ will shake hands with me? 
@@ -37,10 +37,10 @@ Upright _men_ are astonished at this, And the innocent stirs himself up against 
 Yet the righteous will hold to his way, And he who has clean hands will be stronger and stronger. 
 
 ###### 10 
-"But please, come back again, [^b]all of you, For I shall not find _one_ wise _man_ among you. 
+"But please, come back again, all of you, For I shall not find _one_ wise _man_ among you. 
 
 ###### 11 
-My days are past, My purposes are broken off, _Even_ the [^c]thoughts of my heart. 
+My days are past, My purposes are broken off, _Even_ the thoughts of my heart. 
 
 ###### 12 
 They change the night into day; 'The light _is_ near,' _they say,_ in the face of darkness. 
@@ -55,4 +55,4 @@ If I say to corruption, 'You _are_ my father,' And to the worm, 'You _are_ my mo
 Where then _is_ my hope? As for my hope, who can see it? 
 
 ###### 16 
-_Will_ they go down to the gates of [^d]Sheol? Shall _we have_ rest together in the dust?"
+_Will_ they go down to the gates of Sheol? Shall _we have_ rest together in the dust?"

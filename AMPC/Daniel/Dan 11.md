@@ -70,7 +70,7 @@ And now I will show you the truth. Behold, there shall arise three more kings in
 
 
 
-Then a [^a]mighty [warlike, threatening] king shall arise who shall rule with great dominion and do according to his [own] will. 
+Then a mighty [warlike, threatening] king shall arise who shall rule with great dominion and do according to his [own] will. 
 
 
 
@@ -427,7 +427,7 @@ Then he shall turn his face back toward the fortresses of his own land [of Syria
 
 
 
-Then shall [^b]stand up in his place _or_ office one who shall send an exactor of tribute to pass through the glory of the kingdom, but within a few days he shall be destroyed, [yet] neither in anger nor in battle. 
+Then shall stand up in his place _or_ office one who shall send an exactor of tribute to pass through the glory of the kingdom, but within a few days he shall be destroyed, [yet] neither in anger nor in battle. 
 
 
 
@@ -448,7 +448,7 @@ Then shall [^b]stand up in his place _or_ office one who shall send an exactor o
 
 
 
-And in his place _or_ office [in Syria] shall arise a [^c]contemptuous _and_ contemptible person, to whom royal majesty _and_ honor of the kingdom have not been given. But he shall come in without warning in time of security and shall obtain the kingdom by flatteries, intrigues, _and_ cunning hypocritical conduct. 
+And in his place _or_ office [in Syria] shall arise a contemptuous _and_ contemptible person, to whom royal majesty _and_ honor of the kingdom have not been given. But he shall come in without warning in time of security and shall obtain the kingdom by flatteries, intrigues, _and_ cunning hypocritical conduct. 
 
 
 
@@ -763,7 +763,7 @@ And some of those who are wise, prudent, _and_ understanding shall be weakened _
 
 
 
-And the [^d]king shall do according to his will; he shall exalt himself and magnify himself above every god and shall speak astonishing things against the God of gods and shall prosper till the indignation be accomplished, for that which is determined [by God] shall be done. 
+And the king shall do according to his will; he shall exalt himself and magnify himself above every god and shall speak astonishing things against the God of gods and shall prosper till the indignation be accomplished, for that which is determined [by God] shall be done. 
 
 
 

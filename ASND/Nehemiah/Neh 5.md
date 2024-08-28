@@ -337,7 +337,7 @@ Nagpatuloy ako sa pagsasalita, "Hindi maganda ang ginagawa ninyo. Dapat sanaʼy 
 
 
 
-Ako mismo at ang aking mga kamag-anak, pati ang mga tauhan ko ay nagpahiram ng pera at trigo sa mga kababayan nating nangangailangan. Pero huwag na natin silang pagbayarin sa mga utang nila![^a] 
+Ako mismo at ang aking mga kamag-anak, pati ang mga tauhan ko ay nagpahiram ng pera at trigo sa mga kababayan nating nangangailangan. Pero huwag na natin silang pagbayarin sa mga utang nila! 
 
 
 
@@ -436,7 +436,7 @@ Sumagot sila, "Ibabalik namin ang lahat ng iyon sa kanila. Hindi na namin sila s
 
 
 
-Ipinagpag ko ang balabal[^b] ko sa baywang ko at sinabi, "Ganito nawa ang gawin ng Dios sa mga bahay at ari-arian ninyo kapag hindi ninyo tinupad ang pangako ninyo. Kunin nawa niya ang lahat ng ito sa inyo." Ang lahat ng tao roon ay sumagot, "Siya nawa," at pinuri nila ang Panginoon. At tinupad ng mga pinuno at ng mga opisyal ang pangako nila. ## Ang Pagiging Mapagbigay ni Nehemias 
+Ipinagpag ko ang balabal ko sa baywang ko at sinabi, "Ganito nawa ang gawin ng Dios sa mga bahay at ari-arian ninyo kapag hindi ninyo tinupad ang pangako ninyo. Kunin nawa niya ang lahat ng ito sa inyo." Ang lahat ng tao roon ay sumagot, "Siya nawa," at pinuri nila ang Panginoon. At tinupad ng mga pinuno at ng mga opisyal ang pangako nila. ## Ang Pagiging Mapagbigay ni Nehemias 
 
 
 
@@ -535,7 +535,7 @@ Ngunit ang mga gobernador na nauna sa akin ay naging pasanin ng mga tao, dahil h
 
 
 
-Sa halip, ginawa ko ang lahat para maitayong muli ang pader sa tulong ng mga tauhan ko. At hindi ako[^c] nang-angkin ng lupa. 
+Sa halip, ginawa ko ang lahat para maitayong muli ang pader sa tulong ng mga tauhan ko. At hindi ako nang-angkin ng lupa. 
 
 
 

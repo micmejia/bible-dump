@@ -1327,7 +1327,7 @@ Inagaw nila ang lungsod at pinatay ang hari at ang lahat ng naninirahan dito, pa
 
 
 
-Sinakop nga ni Josue ang buong lupain – ang mga kabundukan, ang Negev, ang kaburulan sa kanluran[^a] at mga libis, pati na ang mga hari nito. Nilipol nang lubusan nina Josue ang lahat ng naninirahan dito, at walang naiwang buhay. Ginawa nila ito ayon sa utos ng Panginoon, ang Dios ng Israel. 
+Sinakop nga ni Josue ang buong lupain – ang mga kabundukan, ang Negev, ang kaburulan sa kanluran at mga libis, pati na ang mga hari nito. Nilipol nang lubusan nina Josue ang lahat ng naninirahan dito, at walang naiwang buhay. Ginawa nila ito ayon sa utos ng Panginoon, ang Dios ng Israel. 
 
 
 

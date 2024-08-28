@@ -10,7 +10,7 @@ next: ['Luke 11']
 
 
 ###### 1 
-After these things the Lord appointed [^a]seventy others also, and sent them two by two before His face into every city and place where He Himself was about to go. 
+After these things the Lord appointed seventy others also, and sent them two by two before His face into every city and place where He Himself was about to go. 
 
 ###### 2 
 Then He said to them, "The harvest truly _is_ great, but the laborers _are_ few; therefore pray the Lord of the harvest to send out laborers into His harvest. 
@@ -40,10 +40,10 @@ And heal the sick there, and say to them, 'The kingdom of God has come near to y
 But whatever city you enter, and they do not receive you, go out into its streets and say, 
 
 ###### 11 
-'The very dust of your city which clings to [^b]us we wipe off against you. Nevertheless know this, that the kingdom of God has come near you.' 
+'The very dust of your city which clings to us we wipe off against you. Nevertheless know this, that the kingdom of God has come near you.' 
 
 ###### 12 
-[^c]But I say to you that it will be more tolerable in that Day for Sodom than for that city. ## Woe to the Impenitent Cities 
+But I say to you that it will be more tolerable in that Day for Sodom than for that city. ## Woe to the Impenitent Cities 
 
 ###### 13 
 "Woe to you, Chorazin! Woe to you, Bethsaida! For if the mighty works which were done in you had been done in Tyre and Sidon, they would have repented long ago, sitting in sackcloth and ashes. 
@@ -52,13 +52,13 @@ But whatever city you enter, and they do not receive you, go out into its street
 But it will be more tolerable for Tyre and Sidon at the judgment than for you. 
 
 ###### 15 
-And you, Capernaum, [^d]who are exalted to heaven, will be brought down to Hades. 
+And you, Capernaum, who are exalted to heaven, will be brought down to Hades. 
 
 ###### 16 
 He who hears you hears Me, he who rejects you rejects Me, and he who rejects Me rejects Him who sent Me." ## The Seventy Return with Joy 
 
 ###### 17 
-Then the [^e]seventy returned with joy, saying, "Lord, even the demons are subject to us in Your name." 
+Then the seventy returned with joy, saying, "Lord, even the demons are subject to us in Your name." 
 
 ###### 18 
 And He said to them, "I saw Satan fall like lightning from heaven. 
@@ -67,13 +67,13 @@ And He said to them, "I saw Satan fall like lightning from heaven.
 Behold, I give you the authority to trample on serpents and scorpions, and over all the power of the enemy, and nothing shall by any means hurt you. 
 
 ###### 20 
-Nevertheless do not rejoice in this, that the spirits are subject to you, but [^f]rather rejoice because your names are written in heaven." ## Jesus Rejoices in the Spirit 
+Nevertheless do not rejoice in this, that the spirits are subject to you, but rather rejoice because your names are written in heaven." ## Jesus Rejoices in the Spirit 
 
 ###### 21 
 In that hour Jesus rejoiced in the Spirit and said, "I thank You, Father, Lord of heaven and earth, that You have hidden these things from _the_ wise and prudent and revealed them to babes. Even so, Father, for so it seemed good in Your sight. 
 
 ###### 22 
-All[^g] things have been delivered to Me by My Father, and no one knows who the Son is except the Father, and who the Father is except the Son, and _the one_ to whom the Son wills to reveal _Him._" 
+All things have been delivered to Me by My Father, and no one knows who the Son is except the Father, and who the Father is except the Son, and _the one_ to whom the Son wills to reveal _Him._" 
 
 ###### 23 
 Then He turned to _His_ disciples and said privately, "Blessed _are_ the eyes which see the things you see; 
@@ -82,7 +82,7 @@ Then He turned to _His_ disciples and said privately, "Blessed _are_ the eyes wh
 for I tell you that many prophets and kings have desired to see what you see, and have not seen _it,_ and to hear what you hear, and have not heard _it._" ## The Parable of the Good Samaritan 
 
 ###### 25 
-And behold, a certain [^h]lawyer stood up and tested Him, saying, "Teacher, what shall I do to inherit eternal life?" 
+And behold, a certain lawyer stood up and tested Him, saying, "Teacher, what shall I do to inherit eternal life?" 
 
 ###### 26 
 He said to him, "What is written in the law? What is your reading _of it?_" 
@@ -97,7 +97,7 @@ And He said to him, "You have answered rightly; do this and you will live."
 But he, wanting to justify himself, said to Jesus, "And who is my neighbor?" 
 
 ###### 30 
-Then Jesus answered and said: "A certain _man_ went down from Jerusalem to Jericho, and fell among [^i]thieves, who stripped him of his clothing, wounded _him,_ and departed, leaving _him_ half dead. 
+Then Jesus answered and said: "A certain _man_ went down from Jerusalem to Jericho, and fell among thieves, who stripped him of his clothing, wounded _him,_ and departed, leaving _him_ half dead. 
 
 ###### 31 
 Now by chance a certain priest came down that road. And when he saw him, he passed by on the other side. 
@@ -112,7 +112,7 @@ But a certain Samaritan, as he journeyed, came where he was. And when he saw him
 So he went to _him_ and bandaged his wounds, pouring on oil and wine; and he set him on his own animal, brought him to an inn, and took care of him. 
 
 ###### 35 
-On the next day, [^j]when he departed, he took out two denarii, gave _them_ to the innkeeper, and said to him, 'Take care of him; and whatever more you spend, when I come again, I will repay you.' 
+On the next day, when he departed, he took out two denarii, gave _them_ to the innkeeper, and said to him, 'Take care of him; and whatever more you spend, when I come again, I will repay you.' 
 
 ###### 36 
 So which of these three do you think was neighbor to him who fell among the thieves?" 
@@ -124,13 +124,13 @@ And he said, "He who showed mercy on him." Then Jesus said to him, "Go and do li
 Now it happened as they went that He entered a certain village; and a certain woman named Martha welcomed Him into her house. 
 
 ###### 39 
-And she had a sister called Mary, who also sat at [^k]Jesus' feet and heard His word. 
+And she had a sister called Mary, who also sat at Jesus' feet and heard His word. 
 
 ###### 40 
 But Martha was distracted with much serving, and she approached Him and said, "Lord, do You not care that my sister has left me to serve alone? Therefore tell her to help me." 
 
 ###### 41 
-And [^l]Jesus answered and said to her, "Martha, Martha, you are worried and troubled about many things. 
+And Jesus answered and said to her, "Martha, Martha, you are worried and troubled about many things. 
 
 ###### 42 
 But one thing is needed, and Mary has chosen that good part, which will not be taken away from her."

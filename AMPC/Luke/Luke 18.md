@@ -28,7 +28,7 @@ next: ['Luke 19']
 
 
 
-Also [Jesus] told them a parable to the effect that they ought always to pray and not to [^a]turn coward (faint, lose heart, and give up). 
+Also [Jesus] told them a parable to the effect that they ought always to pray and not to turn coward (faint, lose heart, and give up). 
 
 
 
@@ -112,7 +112,7 @@ And for a time he would not; but later he said to himself, Though I have neither
 
 
 
-Yet because this widow continues to bother me, I will defend _and_ protect _and_ avenge her, lest she give me [^b]intolerable annoyance _and_ wear me out by her continual coming _or_ [^c]at the last she come and rail on me _or_ [^d]assault me _or_ [^e]strangle me. 
+Yet because this widow continues to bother me, I will defend _and_ protect _and_ avenge her, lest she give me intolerable annoyance _and_ wear me out by her continual coming _or_ at the last she come and rail on me _or_ assault me _or_ strangle me. 
 
 
 
@@ -154,7 +154,7 @@ Then the Lord said, Listen to what the unjust judge says!
 
 
 
-And will not [our just] God defend _and_ protect _and_ avenge His elect (His chosen ones), who cry to Him day and night? Will He [^f]defer them _and_ [^g]delay help on their behalf? 
+And will not [our just] God defend _and_ protect _and_ avenge His elect (His chosen ones), who cry to Him day and night? Will He defer them _and_ delay help on their behalf? 
 
 
 
@@ -175,7 +175,7 @@ And will not [our just] God defend _and_ protect _and_ avenge His elect (His cho
 
 
 
-I tell you, He will defend _and_ protect _and_ avenge them speedily. However, when the Son of Man comes, will He find [[^h]persistence in] faith on the earth? 
+I tell you, He will defend _and_ protect _and_ avenge them speedily. However, when the Son of Man comes, will He find [persistence in] faith on the earth? 
 
 
 
@@ -217,7 +217,7 @@ He also told this parable to some people who trusted in themselves _and_ were co
 
 
 
-Two men went up into the temple [[^i]enclosure] to pray, the one a Pharisee and the other a tax collector. 
+Two men went up into the temple [enclosure] to pray, the one a Pharisee and the other a tax collector. 
 
 
 
@@ -238,7 +238,7 @@ Two men went up into the temple [[^i]enclosure] to pray, the one a Pharisee and 
 
 
 
-The Pharisee [^j]took his stand ostentatiously and began to pray thus before _and_ with himself: God, I thank You that I am not like the rest of men--extortioners (robbers), swindlers [unrighteous in heart and life], adulterers--or even like this tax collector here. 
+The Pharisee took his stand ostentatiously and began to pray thus before _and_ with himself: God, I thank You that I am not like the rest of men--extortioners (robbers), swindlers [unrighteous in heart and life], adulterers--or even like this tax collector here. 
 
 
 
@@ -280,7 +280,7 @@ I fast twice a week; I give tithes of all that I gain.
 
 
 
-But the tax collector, [merely] standing at a distance, would not even lift up his eyes to heaven, but kept striking his breast, saying, O God, be favorable (be gracious, be merciful) to me, the [^k]especially wicked sinner that I am! 
+But the tax collector, [merely] standing at a distance, would not even lift up his eyes to heaven, but kept striking his breast, saying, O God, be favorable (be gracious, be merciful) to me, the especially wicked sinner that I am! 
 
 
 
@@ -343,7 +343,7 @@ Now they were also bringing [even] babies to Him that He might touch them, and w
 
 
 
-But Jesus called them [[^l]the parents] to Him, saying, Allow the little children to come to Me, and do not hinder them, for to such [as these] belongs the kingdom of God. 
+But Jesus called them [the parents] to Him, saying, Allow the little children to come to Me, and do not hinder them, for to such [as these] belongs the kingdom of God. 
 
 
 
@@ -385,7 +385,7 @@ Truly I say to you, whoever does not accept _and_ receive _and_ welcome the king
 
 
 
-And a certain ruler asked Him, Good Teacher [You who are [^m]essentially and perfectly [^n]morally good], what shall I do to inherit eternal life [to partake of eternal salvation in the Messiah's kingdom]? 
+And a certain ruler asked Him, Good Teacher [You who are essentially and perfectly morally good], what shall I do to inherit eternal life [to partake of eternal salvation in the Messiah's kingdom]? 
 
 
 
@@ -406,7 +406,7 @@ And a certain ruler asked Him, Good Teacher [You who are [^m]essentially and per
 
 
 
-Jesus said to him, Why do you call Me [[^o]essentially and perfectly [^p]morally] good? No one is [[^q]essentially and perfectly [^r]morally] good--except God only. 
+Jesus said to him, Why do you call Me [essentially and perfectly morally] good? No one is [essentially and perfectly morally] good--except God only. 
 
 
 
@@ -469,7 +469,7 @@ And he replied, All these I have kept from my youth.
 
 
 
-And when Jesus heard it, He said to him, One thing you still lack. Sell everything that you have and [^s]divide [the money] among the poor, and you will have [rich] treasure in heaven; and come back [and] follow Me [become My disciple, join My party, and accompany Me]. 
+And when Jesus heard it, He said to him, One thing you still lack. Sell everything that you have and divide [the money] among the poor, and you will have [rich] treasure in heaven; and come back [and] follow Me [become My disciple, join My party, and accompany Me]. 
 
 
 
@@ -826,7 +826,7 @@ And he shouted, saying, Jesus, Son of David, take pity _and_ have mercy on me!
 
 
 
-But those who were in front reproved him, telling him to keep quiet; yet he [^t]screamed _and_ shrieked so much the more, Son of David, take pity _and_ have mercy on me! 
+But those who were in front reproved him, telling him to keep quiet; yet he screamed _and_ shrieked so much the more, Son of David, take pity _and_ have mercy on me! 
 
 
 
@@ -889,7 +889,7 @@ What do you want Me to do for you? He said, Lord, let me receive my sight!
 
 
 
-And Jesus said to him, Receive your sight! Your faith ([^u]your trust and confidence that spring from your faith in God) has healed you. 
+And Jesus said to him, Receive your sight! Your faith (your trust and confidence that spring from your faith in God) has healed you. 
 
 
 
@@ -910,4 +910,4 @@ And Jesus said to him, Receive your sight! Your faith ([^u]your trust and confid
 
 
 
-And instantly he received his sight and began to follow Jesus, [^v]recognizing, praising, _and_ honoring God; and all the people, when they saw it, praised God.
+And instantly he received his sight and began to follow Jesus, recognizing, praising, _and_ honoring God; and all the people, when they saw it, praised God.

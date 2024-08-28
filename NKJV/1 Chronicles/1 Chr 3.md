@@ -10,7 +10,7 @@ next: ['1 Chr 4']
 
 
 ###### 1 
-Now these were the sons of David who were born to him in Hebron: The firstborn _was_ Amnon, by Ahinoam the Jezreelitess; the second, [^a]Daniel, by Abigail the Carmelitess; 
+Now these were the sons of David who were born to him in Hebron: The firstborn _was_ Amnon, by Ahinoam the Jezreelitess; the second, Daniel, by Abigail the Carmelitess; 
 
 ###### 2 
 the third, Absalom the son of Maacah, the daughter of Talmai, king of Geshur; the fourth, Adonijah the son of Haggith; 
@@ -22,28 +22,28 @@ the fifth, Shephatiah, by Abital; the sixth, Ithream, by his wife Eglah.
 _These_ six were born to him in Hebron. There he reigned seven years and six months, and in Jerusalem he reigned thirty-three years. 
 
 ###### 5 
-And these were born to him in Jerusalem: [^b]Shimea, Shobab, Nathan, and Solomon--four by [^c]Bathshua the daughter of [^d]Ammiel. 
+And these were born to him in Jerusalem: Shimea, Shobab, Nathan, and Solomon--four by Bathshua the daughter of Ammiel. 
 
 ###### 6 
-Also _there_ were Ibhar, [^e]Elishama, [^f]Eliphelet, 
+Also _there_ were Ibhar, Elishama, Eliphelet, 
 
 ###### 7 
 Nogah, Nepheg, Japhia, 
 
 ###### 8 
-Elishama, [^g]Eliada, and Eliphelet--nine _in all._ 
+Elishama, Eliada, and Eliphelet--nine _in all._ 
 
 ###### 9 
 _These were_ all the sons of David, besides the sons of the concubines, and Tamar their sister. ## The Family of Solomon 
 
 ###### 10 
-Solomon's son _was_ Rehoboam; [^h]Abijah _was_ his son, Asa his son, Jehoshaphat his son, 
+Solomon's son _was_ Rehoboam; Abijah _was_ his son, Asa his son, Jehoshaphat his son, 
 
 ###### 11 
-[^i]Joram his son, [^j]Ahaziah his son, [^k]Joash his son, 
+Joram his son, Ahaziah his son, Joash his son, 
 
 ###### 12 
-Amaziah his son, [^l]Azariah his son, Jotham his son, 
+Amaziah his son, Azariah his son, Jotham his son, 
 
 ###### 13 
 Ahaz his son, Hezekiah his son, Manasseh his son, 
@@ -52,13 +52,13 @@ Ahaz his son, Hezekiah his son, Manasseh his son,
 Amon his son, _and_ Josiah his son. 
 
 ###### 15 
-The sons of Josiah _were_ Johanan the firstborn, the second [^m]Jehoiakim, the third Zedekiah, and the fourth [^n]Shallum. 
+The sons of Josiah _were_ Johanan the firstborn, the second Jehoiakim, the third Zedekiah, and the fourth Shallum. 
 
 ###### 16 
-The sons of Jehoiakim _were_ [^o]Jeconiah his son _and_ [^p]Zedekiah his son. ## The Family of Jeconiah 
+The sons of Jehoiakim _were_ Jeconiah his son _and_ Zedekiah his son. ## The Family of Jeconiah 
 
 ###### 17 
-And the sons of [^q]Jeconiah [^r]_were_ Assir, Shealtiel his son, 
+And the sons of Jeconiah _were_ Assir, Shealtiel his son, 
 
 ###### 18 
 _and_ Malchiram, Pedaiah, Shenazzar, Jecamiah, Hoshama, and Nedabiah. 

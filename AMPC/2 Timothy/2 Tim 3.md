@@ -175,7 +175,7 @@ For among them are those who worm their way into homes and captivate silly _and_
 
 
 
-Now just as [^a]Jannes and Jambres were hostile to _and_ resisted Moses, so these men also are hostile to _and_ oppose the Truth. They have depraved _and_ distorted minds, and are reprobate _and_ counterfeit _and_ to be rejected as far as the faith is concerned. 
+Now just as Jannes and Jambres were hostile to _and_ resisted Moses, so these men also are hostile to _and_ oppose the Truth. They have depraved _and_ distorted minds, and are reprobate _and_ counterfeit _and_ to be rejected as far as the faith is concerned. 
 
 
 
@@ -322,7 +322,7 @@ But as for you, continue to hold to the things that you have learned and of whic
 
 
 
-And how from your childhood you have had a knowledge of _and_ been acquainted with the sacred Writings, which are able to instruct you _and_ give you the understanding for salvation which comes through faith in Christ Jesus [through the [^b]leaning of the entire human personality on God in Christ Jesus in absolute trust and confidence in His power, wisdom, and goodness]. 
+And how from your childhood you have had a knowledge of _and_ been acquainted with the sacred Writings, which are able to instruct you _and_ give you the understanding for salvation which comes through faith in Christ Jesus [through the leaning of the entire human personality on God in Christ Jesus in absolute trust and confidence in His power, wisdom, and goodness]. 
 
 
 

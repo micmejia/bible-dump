@@ -280,7 +280,7 @@ And a border _or_ barrier before the guardrooms was one cubit on this side, and 
 
 
 
-And [^a]_the man_ [an angel] measured the gate from the outer wall of one chamber _or_ guardroom to the outer wall of another--a breadth of twenty-five cubits from door to door. 
+And _the man_ [an angel] measured the gate from the outer wall of one chamber _or_ guardroom to the outer wall of another--a breadth of twenty-five cubits from door to door. 
 
 
 
@@ -301,7 +301,7 @@ And [^a]_the man_ [an angel] measured the gate from the outer wall of one chambe
 
 
 
-And [^b]the open part of the porch _or_ vestibule of the gateway on the outside was twenty cubits, the chambers _or_ guardrooms of the gate being round about. 
+And the open part of the porch _or_ vestibule of the gateway on the outside was twenty cubits, the chambers _or_ guardrooms of the gate being round about. 
 
 
 
@@ -931,7 +931,7 @@ And slabs _or_ hooks a handbreadth long were fastened within [the room] round ab
 
 
 
-[^c]Then _the man_ [an angel] led me [from without] into the inner court, and behold, there were two chambers in the inner court: one beside the north gate but facing the south, and one beside the south gate but looking toward the north. 
+Then _the man_ [an angel] led me [from without] into the inner court, and behold, there were two chambers in the inner court: one beside the north gate but facing the south, and one beside the south gate but looking toward the north. 
 
 
 

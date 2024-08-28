@@ -238,7 +238,7 @@ The princes of Judah are like those who remove the landmark [the barrier between
 
 
 
-Ephraim is oppressed; he is broken _and_ crushed by [divine] judgment, because he was content to walk after idols (images) _and_ man's [evil] command [^a](_vanities and filth_). 
+Ephraim is oppressed; he is broken _and_ crushed by [divine] judgment, because he was content to walk after idols (images) _and_ man's [evil] command (_vanities and filth_). 
 
 
 

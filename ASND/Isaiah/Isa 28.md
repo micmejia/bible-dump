@@ -535,7 +535,7 @@ Sapagkat nagmamalaki kayo at nagsasabing, "Nakipagkasundo kami sa kamatayan <i c
 
 
 
-Kaya ito ang sinabi ng Panginoong Dios: "Makinig kayo! Maglalagay ako ng batong pundasyon sa Zion, batong maaasahan, matibay, at mahalaga. Ang mga sumasampalataya sa kanya ay huwag maging padalos-dalos[^a] sa kanilang mga ginagawa. 
+Kaya ito ang sinabi ng Panginoong Dios: "Makinig kayo! Maglalagay ako ng batong pundasyon sa Zion, batong maaasahan, matibay, at mahalaga. Ang mga sumasampalataya sa kanya ay huwag maging padalos-dalos sa kanilang mga ginagawa. 
 
 
 
@@ -667,7 +667,7 @@ Palagi itong darating sa inyo, araw-araw, sa umaga at sa gabi, at tiyak na mapap
 
 
 
-Sapagkat kayoʼy matutulad sa taong maiksi ang higaan at makitid ang kumot.[^b] 
+Sapagkat kayoʼy matutulad sa taong maiksi ang higaan at makitid ang kumot. 
 
 
 

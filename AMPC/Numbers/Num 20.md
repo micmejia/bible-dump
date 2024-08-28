@@ -238,7 +238,7 @@ And Moses and Aaron assembled the congregation before the rock and Moses said to
 
 
 
-And Moses lifted up his hand and with his rod he smote the rock [^a]twice. And the water came out abundantly, and the congregation drank, and their livestock. 
+And Moses lifted up his hand and with his rod he smote the rock twice. And the water came out abundantly, and the congregation drank, and their livestock. 
 
 
 
@@ -259,7 +259,7 @@ And Moses lifted up his hand and with his rod he smote the rock [^a]twice. And t
 
 
 
-And the Lord said to Moses and Aaron, Because you did not believe in (rely on, cling to) Me to sanctify Me in the eyes of the Israelites, you therefore [^b]shall not bring this congregation into the land which I have given them. 
+And the Lord said to Moses and Aaron, Because you did not believe in (rely on, cling to) Me to sanctify Me in the eyes of the Israelites, you therefore shall not bring this congregation into the land which I have given them. 
 
 
 
@@ -448,7 +448,7 @@ But Edom said, You shall not go through. And Edom came out against Israel with m
 
 
 
-Thus Edom refused to give Israel passage through his territory, [^c]so Israel turned away from him. 
+Thus Edom refused to give Israel passage through his territory, so Israel turned away from him. 
 
 
 

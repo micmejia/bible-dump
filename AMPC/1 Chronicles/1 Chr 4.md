@@ -364,7 +364,7 @@ The sons of Jehallelel: Ziph, Ziphah, Tiria, and Asarel.
 
 
 
-The sons of Ezrah: Jether, Mered, Epher, and Jalon. [^a]These are the sons of Bithiah daughter of Pharaoh, whom Mered married: she bore Miriam, Shammai, and Ishbah the father of Eshtemoa. 
+The sons of Ezrah: Jether, Mered, Epher, and Jalon. These are the sons of Bithiah daughter of Pharaoh, whom Mered married: she bore Miriam, Shammai, and Ishbah the father of Eshtemoa. 
 
 
 

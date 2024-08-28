@@ -574,7 +574,7 @@ Moreover, the light of the moon will be like the light of the sun, and the light
 
 
 
-Behold, the [^a]Name of the Lord comes from afar, burning with His anger, and in thick, rising smoke. His lips are full of indignation, and His tongue is like a consuming fire. 
+Behold, the Name of the Lord comes from afar, burning with His anger, and in thick, rising smoke. His lips are full of indignation, and His tongue is like a consuming fire. 
 
 
 

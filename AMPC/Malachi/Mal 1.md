@@ -279,7 +279,7 @@ But you [priests] profane it when [by your actions] you say, The table of the Lo
 
 
 
-You say also, Behold, what a drudgery _and_ weariness this is! And you have sniffed at it, says the Lord of hosts. And you have brought that which was [^a]taken by violence, or the lame or the sick; this you bring as an offering! Shall I accept this from your hand? says the Lord. 
+You say also, Behold, what a drudgery _and_ weariness this is! And you have sniffed at it, says the Lord of hosts. And you have brought that which was taken by violence, or the lame or the sick; this you bring as an offering! Shall I accept this from your hand? says the Lord. 
 
 
 

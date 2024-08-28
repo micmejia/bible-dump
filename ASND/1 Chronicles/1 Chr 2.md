@@ -205,7 +205,7 @@ Ang mga anak na lalaki ni Perez ay sina Hezron at Hamul.
 
 
 
-Lima lahat ang anak na lalaki ni Zera: sina Zimri, Etan, Heman, Calcol at Darda.[^a] 
+Lima lahat ang anak na lalaki ni Zera: sina Zimri, Etan, Heman, Calcol at Darda. 
 
 
 
@@ -238,7 +238,7 @@ Lima lahat ang anak na lalaki ni Zera: sina Zimri, Etan, Heman, Calcol at Darda.
 
 
 
-Ang anak na lalaki ni Carmi[^b] ay si Acar.[^c] Si Acar ang nagdala ng kasamaan sa Israel dahil kinuha niya ang bagay na inilaan nang buo[^d] para sa Dios. 
+Ang anak na lalaki ni Carmi ay si Acar. Si Acar ang nagdala ng kasamaan sa Israel dahil kinuha niya ang bagay na inilaan nang buo para sa Dios. 
 
 
 
@@ -304,7 +304,7 @@ Ang anak na lalaki ni Etan ay si Azaria. ## Ang Lahi na Pinagmulan ni David
 
 
 
-Ang mga anak na lalaki ni Hezron ay sina Jerameel, Ram at Caleb.[^e] 
+Ang mga anak na lalaki ni Hezron ay sina Jerameel, Ram at Caleb. 
 
 
 
@@ -370,7 +370,7 @@ Si Ram ang ama ni Aminadab, at si Aminadab naman ang ama ni Nashon na pinuno ng 
 
 
 
-Si Nashon ang ama ni Salmon,[^f] at si Salmon ang ama ni Boaz. 
+Si Nashon ang ama ni Salmon, at si Salmon ang ama ni Boaz. 
 
 
 
@@ -634,7 +634,7 @@ Ang anak ni Hezron na si Caleb ay may mga anak sa asawa niyang si Azuba na tinat
 
 
 
-Pagkamatay ni Azuba, napangasawa ni Caleb si Efrat[^g] at ang naging anak nila ay si Hur. 
+Pagkamatay ni Azuba, napangasawa ni Caleb si Efrat at ang naging anak nila ay si Hur. 
 
 
 
@@ -766,7 +766,7 @@ Si Segub ang ama ni Jair, na namahala ng 23 bayan sa Gilead.
 
 
 
-(Dumating ang panahon na inagaw ni Geshur at ni Aram ang mga bayan ni Jair[^h] at ang Kenat, pati ang 60 bayan sa paligid nito.) Silang lahat ang angkan ni Makir na ama ni Gilead. 
+(Dumating ang panahon na inagaw ni Geshur at ni Aram ang mga bayan ni Jair at ang Kenat, pati ang 60 bayan sa paligid nito.) Silang lahat ang angkan ni Makir na ama ni Gilead. 
 
 
 
@@ -1723,7 +1723,7 @@ si Salma na ama ni Betlehem, at si Haref na ama ni Bet Gader.
 
 
 
-Ang angkan ni Shobal na ama ni Kiriat Jearim ay ang mga Haroe, ang kalahati ng mga naninirahan sa Manahat,[^i] 
+Ang angkan ni Shobal na ama ni Kiriat Jearim ay ang mga Haroe, ang kalahati ng mga naninirahan sa Manahat, 
 
 
 
@@ -1822,4 +1822,4 @@ Ang angkan ni Salma ay ang mga taga-Betlehem, mga taga-Netofa, mga taga-Atrot Be
 
 
 
-Ang lahi ng mga Tirateo, Shimeateo at Sucateo na magagaling sumulat ng mga dokumento ay nakatira sa bayan ng Jabez. Sila ang mga Keneo na nagmula kay Hamat, na ama ng pamilya ni Bet Recab.[^j]
+Ang lahi ng mga Tirateo, Shimeateo at Sucateo na magagaling sumulat ng mga dokumento ay nakatira sa bayan ng Jabez. Sila ang mga Keneo na nagmula kay Hamat, na ama ng pamilya ni Bet Recab.

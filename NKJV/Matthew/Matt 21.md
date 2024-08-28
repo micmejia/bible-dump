@@ -10,7 +10,7 @@ next: ['Matt 22']
 
 
 ###### 1 
-Now when they drew near Jerusalem, and came to [^a]Bethphage, at the Mount of Olives, then Jesus sent two disciples, 
+Now when they drew near Jerusalem, and came to Bethphage, at the Mount of Olives, then Jesus sent two disciples, 
 
 ###### 2 
 saying to them, "Go into the village opposite you, and immediately you will find a donkey tied, and a colt with her. Loose _them_ and bring _them_ to Me. 
@@ -19,7 +19,7 @@ saying to them, "Go into the village opposite you, and immediately you will find
 And if anyone says anything to you, you shall say, 'The Lord has need of them,' and immediately he will send them." 
 
 ###### 4 
-[^b]All this was done that it might be fulfilled which was spoken by the prophet, saying: 
+All this was done that it might be fulfilled which was spoken by the prophet, saying: 
 
 ###### 5 
 "Tell the daughter of Zion, 'Behold, your King is coming to you, Lowly, and sitting on a donkey, A colt, the foal of a donkey.' " 
@@ -28,7 +28,7 @@ And if anyone says anything to you, you shall say, 'The Lord has need of them,' 
 So the disciples went and did as Jesus commanded them. 
 
 ###### 7 
-They brought the donkey and the colt, laid their clothes on them, [^c]and set _Him_ on them. 
+They brought the donkey and the colt, laid their clothes on them, and set _Him_ on them. 
 
 ###### 8 
 And a very great multitude spread their clothes on the road; others cut down branches from the trees and spread _them_ on the road. 
@@ -43,7 +43,7 @@ And when He had come into Jerusalem, all the city was moved, saying, "Who is thi
 So the multitudes said, "This is Jesus, the prophet from Nazareth of Galilee." ## Jesus Cleanses the Temple 
 
 ###### 12 
-Then Jesus went into the temple [^d]of God and drove out all those who bought and sold in the temple, and overturned the tables of the money changers and the seats of those who sold doves. 
+Then Jesus went into the temple of God and drove out all those who bought and sold in the temple, and overturned the tables of the money changers and the seats of those who sold doves. 
 
 ###### 13 
 And He said to them, "It is written, 'My house shall be called a house of prayer,' but you have made it a 'den of thieves.' " 
@@ -52,7 +52,7 @@ And He said to them, "It is written, 'My house shall be called a house of prayer
 Then _the_ blind and _the_ lame came to Him in the temple, and He healed them. 
 
 ###### 15 
-But when the chief priests and scribes saw the wonderful things that He did, and the children crying out in the temple and saying, "Hosanna to the Son of David!" they were [^e]indignant 
+But when the chief priests and scribes saw the wonderful things that He did, and the children crying out in the temple and saying, "Hosanna to the Son of David!" they were indignant 
 
 ###### 16 
 and said to Him, "Do You hear what these are saying?" And Jesus said to them, "Yes. Have you never read, 'Out of the mouth of babes and nursing infants You have perfected praise'?" 
@@ -103,7 +103,7 @@ Then he came to the second and said likewise. And he answered and said, 'I _go,_
 Which of the two did the will of _his_ father?" They said to Him, "The first." Jesus said to them, "Assuredly, I say to you that tax collectors and harlots enter the kingdom of God before you. 
 
 ###### 32 
-For John came to you in the way of righteousness, and you did not believe him; but tax collectors and harlots believed him; and when you saw _it,_ you did not afterward [^f]relent and believe him. ## The Parable of the Wicked Vinedressers 
+For John came to you in the way of righteousness, and you did not believe him; but tax collectors and harlots believed him; and when you saw _it,_ you did not afterward relent and believe him. ## The Parable of the Wicked Vinedressers 
 
 ###### 33 
 "Hear another parable: There was a certain landowner who planted a vineyard and set a hedge around it, dug a winepress in it and built a tower. And he leased it to vinedressers and went into a far country. 
@@ -130,7 +130,7 @@ So they took him and cast _him_ out of the vineyard and killed _him._
 "Therefore, when the owner of the vineyard comes, what will he do to those vinedressers?" 
 
 ###### 41 
-They said to Him, "He will destroy those wicked men miserably, and lease _his_ vineyard to other vinedressers who will [^g]render to him the fruits in their seasons." 
+They said to Him, "He will destroy those wicked men miserably, and lease _his_ vineyard to other vinedressers who will render to him the fruits in their seasons." 
 
 ###### 42 
 Jesus said to them, "Have you never read in the Scriptures: 'The stone which the builders rejected Has become the chief cornerstone. This was the Lord's doing, And it is marvelous in our eyes'? 
@@ -142,7 +142,7 @@ Jesus said to them, "Have you never read in the Scriptures: 'The stone which the
 And whoever falls on this stone will be broken; but on whomever it falls, it will grind him to powder." 
 
 ###### 45 
-Now when the chief priests and Pharisees heard His parables, they [^h]perceived that He was speaking of them. 
+Now when the chief priests and Pharisees heard His parables, they perceived that He was speaking of them. 
 
 ###### 46 
 But when they sought to lay hands on Him, they feared the multitudes, because they took Him for a prophet.

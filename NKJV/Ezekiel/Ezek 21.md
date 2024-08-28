@@ -13,7 +13,7 @@ next: ['Ezek 22']
 And the word of the Lord came to me, saying, 
 
 ###### 2 
-"Son of man, set your face toward Jerusalem, preach[^a] against the holy places, and prophesy against the land of Israel; 
+"Son of man, set your face toward Jerusalem, preach against the holy places, and prophesy against the land of Israel; 
 
 ###### 3 
 and say to the land of Israel, 'Thus says the Lord: "Behold, I _am_ against you, and I will draw My sword out of its sheath and cut off both righteous and wicked from you. 
@@ -25,7 +25,7 @@ Because I will cut off both righteous and wicked from you, therefore My sword sh
 that all flesh may know that I, the Lord, have drawn My sword out of its sheath; it shall not return anymore." ' 
 
 ###### 6 
-Sigh therefore, son of man, with [^b]a breaking heart, and sigh with bitterness before their eyes. 
+Sigh therefore, son of man, with a breaking heart, and sigh with bitterness before their eyes. 
 
 ###### 7 
 And it shall be when they say to you, 'Why are you sighing?' that you shall answer, 'Because of the news; when it comes, every heart will melt, all hands will be feeble, every spirit will faint, and all knees will be weak _as_ water. Behold, it is coming and shall be brought to pass,' says the Lord God." 
@@ -55,7 +55,7 @@ And He has given it to be polished, That it may be handled; This sword is sharpe
 I have set the point of the sword against all their gates, That the heart may melt and many may stumble. Ah! _It is_ made bright; _It is_ grasped for slaughter: 
 
 ###### 16 
-"Swords[^c] at the ready! Thrust right! Set your blade! Thrust left-- Wherever your [^d]edge is ordered! 
+"Swords at the ready! Thrust right! Set your blade! Thrust left-- Wherever your edge is ordered! 
 
 ###### 17 
 "I also will beat My fists together, And I will cause My fury to rest; I, the Lord, have spoken." 
@@ -70,7 +70,7 @@ The word of the Lord came to me again, saying:
 Appoint a road for the sword to go to Rabbah of the Ammonites, and to Judah, into fortified Jerusalem. 
 
 ###### 21 
-For the king of Babylon stands at the parting of the road, at the fork of the two roads, to use divination: he shakes the arrows, he consults the [^e]images, he looks at the liver. 
+For the king of Babylon stands at the parting of the road, at the fork of the two roads, to use divination: he shakes the arrows, he consults the images, he looks at the liver. 
 
 ###### 22 
 In his right hand is the divination for Jerusalem: to set up battering rams, to call for a slaughter, to lift the voice with shouting, to set battering rams against the gates, to heap up a _siege_ mound, and to build a wall. 
@@ -88,7 +88,7 @@ And it will be to them like a false divination in the eyes of those who have swo
 thus says the Lord God: "Remove the turban, and take off the crown; Nothing _shall remain_ the same. Exalt the humble, and humble the exalted. 
 
 ###### 27 
-[^f]Overthrown, overthrown, I will make it overthrown! It shall be no _longer,_ Until He comes whose right it is, And I will give it _to_ _Him_." ' ## A Sword Against the Ammonites 
+Overthrown, overthrown, I will make it overthrown! It shall be no _longer,_ Until He comes whose right it is, And I will give it _to_ _Him_." ' ## A Sword Against the Ammonites 
 
 ###### 28 
 "And you, son of man, prophesy and say, 'Thus says the Lord God concerning the Ammonites and concerning their reproach,' and say: 'A sword, a sword _is_ drawn, Polished for slaughter, For consuming, for flashing-- 
@@ -97,7 +97,7 @@ thus says the Lord God: "Remove the turban, and take off the crown; Nothing _sha
 While they see false visions for you, While they divine a lie to you, To bring you on the necks of the wicked, the slain Whose day has come, Whose iniquity _shall_ end. 
 
 ###### 30 
-'Return _it_ to its sheath. I will judge you In the place where you were created, In the land of your [^g]nativity. 
+'Return _it_ to its sheath. I will judge you In the place where you were created, In the land of your nativity. 
 
 ###### 31 
 I will pour out My indignation on you; I will blow against you with the fire of My wrath, And deliver you into the hands of brutal men _who are_ skillful to destroy. 

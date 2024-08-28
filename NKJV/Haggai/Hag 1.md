@@ -18,7 +18,7 @@ In the second year of King Darius, in the sixth month, on the first day of the m
 Then the word of the Lord came by Haggai the prophet, saying, 
 
 ###### 4 
-"_Is it_ time for you yourselves to dwell in your paneled houses, and this [^a]temple _to lie_ in ruins?" 
+"_Is it_ time for you yourselves to dwell in your paneled houses, and this temple _to lie_ in ruins?" 
 
 ###### 5 
 Now therefore, thus says the Lord of hosts: "Consider your ways! 
@@ -30,7 +30,7 @@ Now therefore, thus says the Lord of hosts: "Consider your ways!
 Thus says the Lord of hosts: "Consider your ways! 
 
 ###### 8 
-Go up to the mountains and bring wood and build the [^b]temple, that I may take pleasure in it and be glorified," says the Lord. 
+Go up to the mountains and bring wood and build the temple, that I may take pleasure in it and be glorified," says the Lord. 
 
 ###### 9 
 "_You_ looked for much, but indeed _it came to_ little; and when you brought it home, I blew it away. Why?" says the Lord of hosts. "Because of My house that _is in_ ruins, while every one of you runs to his own house. 

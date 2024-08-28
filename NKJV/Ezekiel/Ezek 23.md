@@ -19,7 +19,7 @@ The word of the Lord came again to me, saying:
 They committed harlotry in Egypt, They committed harlotry in their youth; Their breasts were there embraced, Their virgin bosom was there pressed. 
 
 ###### 4 
-Their names: [^a]Oholah the elder and [^b]Oholibah her sister; They were Mine, And they bore sons and daughters. _As for_ their names, Samaria _is_ Oholah, and Jerusalem _is_ Oholibah. ## The Older Sister, Samaria 
+Their names: Oholah the elder and Oholibah her sister; They were Mine, And they bore sons and daughters. _As for_ their names, Samaria _is_ Oholah, and Jerusalem _is_ Oholibah. ## The Older Sister, Samaria 
 
 ###### 5 
 "Oholah played the harlot even though she was Mine; And she lusted for her lovers, the neighboring Assyrians, 
@@ -58,7 +58,7 @@ Girded with belts around their waists, Flowing turbans on their heads, All of th
 As soon as her eyes saw them, She lusted for them And sent messengers to them in Chaldea. 
 
 ###### 17 
-"Then the [^c]Babylonians came to her, into the bed of love, And they defiled her with their immorality; So she was defiled by them, and alienated herself from them. 
+"Then the Babylonians came to her, into the bed of love, And they defiled her with their immorality; So she was defiled by them, and alienated herself from them. 
 
 ###### 18 
 She revealed her harlotry and uncovered her nakedness. Then I alienated Myself from her, As I had alienated Myself from her sister. 
@@ -67,7 +67,7 @@ She revealed her harlotry and uncovered her nakedness. Then I alienated Myself f
 "Yet she multiplied her harlotry In calling to remembrance the days of her youth, When she had played the harlot in the land of Egypt. 
 
 ###### 20 
-For she lusted for her [^d]paramours, Whose flesh _is like_ the flesh of donkeys, And whose issue _is like_ the issue of horses. 
+For she lusted for her paramours, Whose flesh _is like_ the flesh of donkeys, And whose issue _is like_ the issue of horses. 
 
 ###### 21 
 Thus you called to remembrance the lewdness of your youth, When the Egyptians pressed your bosom Because of your youthful breasts. ## Judgment on Jerusalem 
@@ -109,7 +109,7 @@ You have walked in the way of your sister; therefore I will put her cup in your 
 You will be filled with drunkenness and sorrow, The cup of horror and desolation, The cup of your sister Samaria. 
 
 ###### 34 
-You shall drink and drain it, You shall break its [^e]shards, And tear at your own breasts; For I have spoken,' Says the Lord God. 
+You shall drink and drain it, You shall break its shards, And tear at your own breasts; For I have spoken,' Says the Lord God. 
 
 ###### 35 
 "Therefore thus says the Lord God: 'Because you have forgotten Me and cast Me behind your back, Therefore you shall bear the _penalty_ _Of_ your lewdness and your harlotry.' " ## Both Sisters Judged 
@@ -133,7 +133,7 @@ For after they had slain their children for their idols, on the same day they ca
 You sat on a stately couch, with a table prepared before it, on which you had set My incense and My oil. 
 
 ###### 42 
-The sound of a carefree multitude _was_ with her, and [^f]Sabeans _were_ brought from the wilderness with men of the common sort, who put bracelets on their [^g]wrists and beautiful crowns on their heads. 
+The sound of a carefree multitude _was_ with her, and Sabeans _were_ brought from the wilderness with men of the common sort, who put bracelets on their wrists and beautiful crowns on their heads. 
 
 ###### 43 
 Then I said concerning _her who had grown_ old in adulteries, 'Will they commit harlotry with her now, and she _with them?_' 
@@ -148,7 +148,7 @@ But righteous men will judge them after the manner of adulteresses, and after th
 "For thus says the Lord God: 'Bring up an assembly against them, give them up to trouble and plunder. 
 
 ###### 47 
-The assembly shall stone them with stones and [^h]execute them with their swords; they shall slay their sons and their daughters, and burn their houses with fire. 
+The assembly shall stone them with stones and execute them with their swords; they shall slay their sons and their daughters, and burn their houses with fire. 
 
 ###### 48 
 Thus I will cause lewdness to cease from the land, that all women may be taught not to practice your lewdness. 

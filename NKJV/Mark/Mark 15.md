@@ -19,7 +19,7 @@ Then Pilate asked Him, "Are You the King of the Jews?" He answered and said to h
 And the chief priests accused Him of many things, but He answered nothing. 
 
 ###### 4 
-Then Pilate asked Him again, saying, "Do You answer nothing? See how many things [^a]they testify against You!" 
+Then Pilate asked Him again, saying, "Do You answer nothing? See how many things they testify against You!" 
 
 ###### 5 
 But Jesus still answered nothing, so that Pilate marveled. ## Taking the Place of Barabbas 
@@ -31,7 +31,7 @@ Now at the feast he was accustomed to releasing one prisoner to them, whomever t
 And there was one named Barabbas, _who was_ chained with his fellow rebels; they had committed murder in the rebellion. 
 
 ###### 8 
-Then the multitude, [^b]crying aloud, began to ask _him to do_ just as he had always done for them. 
+Then the multitude, crying aloud, began to ask _him to do_ just as he had always done for them. 
 
 ###### 9 
 But Pilate answered them, saying, "Do you want me to release to you the King of the Jews?" 
@@ -55,7 +55,7 @@ Then Pilate said to them, "Why, what evil has He done?" But they cried out all t
 So Pilate, wanting to gratify the crowd, released Barabbas to them; and he delivered Jesus, after he had scourged _Him,_ to be crucified. ## The Soldiers Mock Jesus 
 
 ###### 16 
-Then the soldiers led Him away into the hall called [^c]Praetorium, and they called together the whole garrison. 
+Then the soldiers led Him away into the hall called Praetorium, and they called together the whole garrison. 
 
 ###### 17 
 And they clothed Him with purple; and they twisted a crown of thorns, put it on His _head,_ 
@@ -85,13 +85,13 @@ And when they crucified Him, they divided His garments, casting lots for them _t
 Now it was the third hour, and they crucified Him. 
 
 ###### 26 
-And the inscription of His [^d]accusation was written above: THE KING OF THE JEWS. 
+And the inscription of His accusation was written above: THE KING OF THE JEWS. 
 
 ###### 27 
 With Him they also crucified two robbers, one on His right and the other on His left. 
 
 ###### 28 
-[^e]So the Scripture was fulfilled which says, "And He was numbered with the transgressors." 
+So the Scripture was fulfilled which says, "And He was numbered with the transgressors." 
 
 ###### 29 
 And those who passed by blasphemed Him, wagging their heads and saying, "Aha! _You_ who destroy the temple and build _it_ in three days, 
@@ -103,7 +103,7 @@ save Yourself, and come down from the cross!"
 Likewise the chief priests also, mocking among themselves with the scribes, said, "He saved others; Himself He cannot save. 
 
 ###### 32 
-Let the Christ, the King of Israel, descend now from the cross, that we may see and [^f]believe." Even those who were crucified with Him reviled Him. ## Jesus Dies on the Cross 
+Let the Christ, the King of Israel, descend now from the cross, that we may see and believe." Even those who were crucified with Him reviled Him. ## Jesus Dies on the Cross 
 
 ###### 33 
 Now when the sixth hour had come, there was darkness over the whole land until the ninth hour. 
@@ -124,7 +124,7 @@ And Jesus cried out with a loud voice, and breathed His last.
 Then the veil of the temple was torn in two from top to bottom. 
 
 ###### 39 
-So when the centurion, who stood opposite Him, saw that [^g]He cried out like this and breathed His last, he said, "Truly this Man was the Son of God!" 
+So when the centurion, who stood opposite Him, saw that He cried out like this and breathed His last, he said, "Truly this Man was the Son of God!" 
 
 ###### 40 
 There were also women looking on from afar, among whom were Mary Magdalene, Mary the mother of James the Less and of Joses, and Salome, 

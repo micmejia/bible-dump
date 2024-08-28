@@ -10,7 +10,7 @@ next: ['Jer 6']
 
 
 ###### 1 
-"Run to and fro through the streets of Jerusalem; See now and know; And seek in her open places If you can find a man, If there is _anyone_ who executes [^a]judgment, Who seeks the truth, And I will pardon her. 
+"Run to and fro through the streets of Jerusalem; See now and know; And seek in her open places If you can find a man, If there is _anyone_ who executes judgment, Who seeks the truth, And I will pardon her. 
 
 ###### 2 
 Though they say, '_As_ the Lord lives,' Surely they swear falsely." 
@@ -37,13 +37,13 @@ They were _like_ well-fed lusty stallions; Every one neighed after his neighbor'
 Shall I not punish _them_ for these _things?_" says the Lord. "And shall I not avenge Myself on such a nation as this? 
 
 ###### 10 
-"Go up on her walls and destroy, But do not [^b]make a complete end. Take away her branches, For they _are_ not the Lord's. 
+"Go up on her walls and destroy, But do not make a complete end. Take away her branches, For they _are_ not the Lord's. 
 
 ###### 11 
 For the house of Israel and the house of Judah Have dealt very treacherously with Me," says the Lord. 
 
 ###### 12 
-They have lied about the Lord, And said, "_It is_ not He. Neither will [^c]evil come upon us, Nor shall we see sword or famine. 
+They have lied about the Lord, And said, "_It is_ not He. Neither will evil come upon us, Nor shall we see sword or famine. 
 
 ###### 13 
 And the prophets become wind, For the word _is_ not in them. Thus shall it be done to them." 
@@ -61,7 +61,7 @@ Their quiver _is_ like an open tomb; They _are_ all mighty men.
 And they shall eat up your harvest and your bread, _Which_ your sons and daughters should eat. They shall eat up your flocks and your herds; They shall eat up your vines and your fig trees; They shall destroy your fortified cities, In which you trust, with the sword. 
 
 ###### 18 
-"Nevertheless in those days," says the Lord, "I will not [^d]make a complete end of you. 
+"Nevertheless in those days," says the Lord, "I will not make a complete end of you. 
 
 ###### 19 
 And it will be when you say, 'Why does the Lord our God do all these _things_ to us?' then you shall answer them, 'Just as you have forsaken Me and served foreign gods in your land, so you shall serve aliens in a land _that is_ not yours.' 
@@ -70,7 +70,7 @@ And it will be when you say, 'Why does the Lord our God do all these _things_ to
 "Declare this in the house of Jacob And proclaim it in Judah, saying, 
 
 ###### 21 
-'Hear this now, O foolish people, Without [^e]understanding, Who have eyes and see not, And who have ears and hear not: 
+'Hear this now, O foolish people, Without understanding, Who have eyes and see not, And who have ears and hear not: 
 
 ###### 22 
 Do you not fear Me?' says the Lord. 'Will you not tremble at My presence, Who have placed the sand as the bound of the sea, By a perpetual decree, that it cannot pass beyond it? And though its waves toss to and fro, Yet they cannot prevail; Though they roar, yet they cannot pass over it. 
@@ -91,7 +91,7 @@ Your iniquities have turned these _things_ away, And your sins have withheld goo
 As a cage is full of birds, So their houses _are_ full of deceit. Therefore they have become great and grown rich. 
 
 ###### 28 
-They have grown fat, they are sleek; Yes, they [^f]surpass the deeds of the wicked; They do not plead the cause, The cause of the fatherless; Yet they prosper, And the right of the needy they do not defend. 
+They have grown fat, they are sleek; Yes, they surpass the deeds of the wicked; They do not plead the cause, The cause of the fatherless; Yet they prosper, And the right of the needy they do not defend. 
 
 ###### 29 
 Shall I not punish _them_ for these _things?_' says the Lord. 'Shall I not avenge Myself on such a nation as this?' 

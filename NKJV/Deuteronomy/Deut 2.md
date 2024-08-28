@@ -10,7 +10,7 @@ next: ['Deut 3']
 
 
 ###### 1 
-"Then we turned and journeyed into the wilderness of the Way of the Red Sea, as the Lord spoke to me, and we [^a]skirted Mount Seir for many days. 
+"Then we turned and journeyed into the wilderness of the Way of the Red Sea, as the Lord spoke to me, and we skirted Mount Seir for many days. 
 
 ###### 2 
 "And the Lord spoke to me, saying: 
@@ -28,7 +28,7 @@ Do not meddle with them, for I will not give you _any_ of their land, no, not so
 You shall buy food from them with money, that you may eat; and you shall also buy water from them with money, that you may drink. 
 
 ###### 7 
-"For the Lord your God has blessed you in all the work of your hand. He knows your [^b]trudging through this great wilderness. These forty years the Lord your God _has been_ with you; you have lacked nothing." ' 
+"For the Lord your God has blessed you in all the work of your hand. He knows your trudging through this great wilderness. These forty years the Lord your God _has been_ with you; you have lacked nothing." ' 
 
 ###### 8 
 "And when we passed beyond our brethren, the descendants of Esau who dwell in Seir, away from the road of the plain, away from Elath and Ezion Geber, we turned and passed by way of the Wilderness of Moab. 
@@ -40,19 +40,19 @@ Then the Lord said to me, 'Do not harass Moab, nor contend with them in battle, 
 (The Emim had dwelt there in times past, a people as great and numerous and tall as the Anakim. 
 
 ###### 11 
-They were also regarded as [^c]giants, like the Anakim, but the Moabites call them Emim. 
+They were also regarded as giants, like the Anakim, but the Moabites call them Emim. 
 
 ###### 12 
-The Horites formerly dwelt in Seir, but the descendants of Esau dispossessed them and destroyed them from before them, and dwelt in their [^d]place, just as Israel did to the land of their possession which the Lord gave them.) 
+The Horites formerly dwelt in Seir, but the descendants of Esau dispossessed them and destroyed them from before them, and dwelt in their place, just as Israel did to the land of their possession which the Lord gave them.) 
 
 ###### 13 
-" 'Now rise and cross over the [^e]Valley of the Zered.' So we crossed over the Valley of the Zered. 
+" 'Now rise and cross over the Valley of the Zered.' So we crossed over the Valley of the Zered. 
 
 ###### 14 
-And the time we took to come from Kadesh Barnea until we crossed over the Valley of the Zered _was_ thirty-eight years, until all the generation of the men of war [^f]was consumed from the midst of the camp, just as the Lord had sworn to them. 
+And the time we took to come from Kadesh Barnea until we crossed over the Valley of the Zered _was_ thirty-eight years, until all the generation of the men of war was consumed from the midst of the camp, just as the Lord had sworn to them. 
 
 ###### 15 
-For indeed the hand of the Lord was against them, to destroy them from the midst of the camp until they [^g]were consumed. 
+For indeed the hand of the Lord was against them, to destroy them from the midst of the camp until they were consumed. 
 
 ###### 16 
 "So it was, when all the men of war had finally perished from among the people, 
@@ -67,7 +67,7 @@ that the Lord spoke to me, saying:
 And _when_ you come near the people of Ammon, do not harass them or meddle with them, for I will not give you _any_ of the land of the people of Ammon _as_ a possession, because I have given it to the descendants of Lot _as_ a possession.' " 
 
 ###### 20 
-(That was also regarded as a land of [^h]giants; giants formerly dwelt there. But the Ammonites call them Zamzummim, 
+(That was also regarded as a land of giants; giants formerly dwelt there. But the Ammonites call them Zamzummim, 
 
 ###### 21 
 a people as great and numerous and tall as the Anakim. But the Lord destroyed them before them, and they dispossessed them and dwelt in their place, 
@@ -79,10 +79,10 @@ just as He had done for the descendants of Esau, who dwelt in Seir, when He dest
 And the Avim, who dwelt in villages as far as Gaza--the Caphtorim, who came from Caphtor, destroyed them and dwelt in their place.) 
 
 ###### 24 
-" 'Rise, take your journey, and cross over the River Arnon. Look, I have given into your hand Sihon the Amorite, king of Heshbon, and his land. Begin [^i]to possess _it,_ and engage him in battle. 
+" 'Rise, take your journey, and cross over the River Arnon. Look, I have given into your hand Sihon the Amorite, king of Heshbon, and his land. Begin to possess _it,_ and engage him in battle. 
 
 ###### 25 
-This day I will begin to put the dread and fear of you upon the nations [^j]under the whole heaven, who shall hear the report of you, and shall tremble and be in anguish because of you.' ## King Sihon Defeated 
+This day I will begin to put the dread and fear of you upon the nations under the whole heaven, who shall hear the report of you, and shall tremble and be in anguish because of you.' ## King Sihon Defeated 
 
 ###### 26 
 "And I sent messengers from the Wilderness of Kedemoth to Sihon king of Heshbon, with words of peace, saying, 
@@ -106,7 +106,7 @@ just as the descendants of Esau who dwell in Seir and the Moabites who dwell in 
 Then Sihon and all his people came out against us to fight at Jahaz. 
 
 ###### 33 
-And the Lord our God delivered him [^k]over to us; so we defeated him, his sons, and all his people. 
+And the Lord our God delivered him over to us; so we defeated him, his sons, and all his people. 
 
 ###### 34 
 We took all his cities at that time, and we utterly destroyed the men, women, and little ones of every city; we left none remaining. 

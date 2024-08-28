@@ -13,19 +13,19 @@ next: ['Acts 25']
 Now after five days Ananias the high priest came down with the elders and a certain orator _named_ Tertullus. These gave evidence to the governor against Paul. 
 
 ###### 2 
-And when he was called upon, Tertullus began his accusation, saying: "Seeing that through you we enjoy great peace, and [^a]prosperity is being brought to this nation by your foresight, 
+And when he was called upon, Tertullus began his accusation, saying: "Seeing that through you we enjoy great peace, and prosperity is being brought to this nation by your foresight, 
 
 ###### 3 
 we accept _it_ always and in all places, most noble Felix, with all thankfulness. 
 
 ###### 4 
-Nevertheless, not to be tedious to you any further, I beg you to hear, by your [^b]courtesy, a few words from us. 
+Nevertheless, not to be tedious to you any further, I beg you to hear, by your courtesy, a few words from us. 
 
 ###### 5 
 For we have found this man a plague, a creator of dissension among all the Jews throughout the world, and a ringleader of the sect of the Nazarenes. 
 
 ###### 6 
-He even tried to profane the temple, and we seized him, [^c]and wanted to judge him according to our law. 
+He even tried to profane the temple, and we seized him, and wanted to judge him according to our law. 
 
 ###### 7 
 But the commander Lysias came by and with great violence took _him_ out of our hands, 
@@ -34,7 +34,7 @@ But the commander Lysias came by and with great violence took _him_ out of our h
 commanding his accusers to come to you. By examining him yourself you may ascertain all these things of which we accuse him." 
 
 ###### 9 
-And the Jews also [^d]assented, maintaining that these things were so. ## The Defense Before Felix 
+And the Jews also assented, maintaining that these things were so. ## The Defense Before Felix 
 
 ###### 10 
 Then Paul, after the governor had nodded to him to speak, answered: "Inasmuch as I know that you have been for many years a judge of this nation, I do the more cheerfully answer for myself, 
@@ -52,7 +52,7 @@ Nor can they prove the things of which they now accuse me.
 But this I confess to you, that according to the Way which they call a sect, so I worship the God of my fathers, believing all things which are written in the Law and in the Prophets. 
 
 ###### 15 
-I have hope in God, which they themselves also accept, that there will be a resurrection [^e]of _the_ dead, both of _the_ just and _the_ unjust. 
+I have hope in God, which they themselves also accept, that there will be a resurrection of _the_ dead, both of _the_ just and _the_ unjust. 
 
 ###### 16 
 This _being_ so, I myself always strive to have a conscience without offense toward God and men. 
@@ -67,7 +67,7 @@ in the midst of which some Jews from Asia found me purified in the temple, neith
 They ought to have been here before you to object if they had anything against me. 
 
 ###### 20 
-Or else let those who are _here_ themselves say [^f]if they found any wrongdoing in me while I stood before the council, 
+Or else let those who are _here_ themselves say if they found any wrongdoing in me while I stood before the council, 
 
 ###### 21 
 unless _it is_ for this one statement which I cried out, standing among them, 'Concerning the resurrection of the dead I am being judged by you this day.' " ## Felix Procrastinates 
@@ -85,7 +85,7 @@ And after some days, when Felix came with his wife Drusilla, who was Jewish, he 
 Now as he reasoned about righteousness, self-control, and the judgment to come, Felix was afraid and answered, "Go away for now; when I have a convenient time I will call for you." 
 
 ###### 26 
-Meanwhile he also hoped that money would be given him by Paul, [^g]that he might release him. Therefore he sent for him more often and conversed with him. 
+Meanwhile he also hoped that money would be given him by Paul, that he might release him. Therefore he sent for him more often and conversed with him. 
 
 ###### 27 
 But after two years Porcius Festus succeeded Felix; and Felix, wanting to do the Jews a favor, left Paul bound.

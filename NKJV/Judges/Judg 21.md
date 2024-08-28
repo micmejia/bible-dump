@@ -12,7 +12,7 @@ up: ['Judges']
 Now the men of Israel had sworn an oath at Mizpah, saying, "None of us shall give his daughter to Benjamin as a wife." 
 
 ###### 2 
-Then the people came to [^a]the house of God, and remained there before God till evening. They lifted up their voices and wept bitterly, 
+Then the people came to the house of God, and remained there before God till evening. They lifted up their voices and wept bitterly, 
 
 ###### 3 
 and said, "O Lord God of Israel, why has this come to pass in Israel, that today there should be one tribe _missing_ in Israel?" 

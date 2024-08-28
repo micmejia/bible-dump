@@ -217,7 +217,7 @@ But he who disowns _and_ denies _and_ rejects _and_ refuses to acknowledge Me be
 
 
 
-And everyone who makes a statement _or_ speaks a word against the Son of Man, it will be forgiven him; but he who blasphemes against the Holy Spirit [that is, whoever [^a]intentionally comes short of the reverence due the Holy Spirit], it will not be forgiven him [for him there is no forgiveness]. 
+And everyone who makes a statement _or_ speaks a word against the Son of Man, it will be forgiven him; but he who blasphemes against the Holy Spirit [that is, whoever intentionally comes short of the reverence due the Holy Spirit], it will not be forgiven him [for him there is no forgiveness]. 
 
 
 
@@ -259,7 +259,7 @@ And when they bring you before the synagogues and the magistrates and the author
 
 
 
-For the Holy Spirit will teach you in that very hour _and_ [^b]moment what [you] ought to say. 
+For the Holy Spirit will teach you in that very hour _and_ moment what [you] ought to say. 
 
 
 
@@ -322,7 +322,7 @@ But He told him, Man, who has appointed Me a judge or umpire _and_ divider over 
 
 
 
-And He said to them, Guard yourselves and keep free from all covetousness (the immoderate desire for wealth, the greedy longing to have more); for a man's life does not consist in _and_ is not derived from possessing [^c]overflowing abundance _or_ that which is [^d]over and above his needs. 
+And He said to them, Guard yourselves and keep free from all covetousness (the immoderate desire for wealth, the greedy longing to have more); for a man's life does not consist in _and_ is not derived from possessing overflowing abundance _or_ that which is over and above his needs. 
 
 
 
@@ -385,7 +385,7 @@ And he considered _and_ debated within himself, What shall I do? I have no place
 
 
 
-And he said, I will do this: I will pull down my storehouses and build larger ones, and there I will store all [^e]my grain _or produce_ and my goods. 
+And he said, I will do this: I will pull down my storehouses and build larger ones, and there I will store all my grain _or produce_ and my goods. 
 
 
 
@@ -427,7 +427,7 @@ And I will say to my soul, Soul, you have many good things laid up, [enough] for
 
 
 
-But God said to him, You fool! This very night [^f] they [the messengers of God] will demand your soul of you; and all the things that you have prepared, whose will they be? 
+But God said to him, You fool! This very night  they [the messengers of God] will demand your soul of you; and all the things that you have prepared, whose will they be? 
 
 
 
@@ -532,7 +532,7 @@ Observe _and_ consider the ravens; for they neither sow nor reap, they have neit
 
 
 
-And which of you by being overly anxious _and_ troubled with cares can add a [^g]cubit to his stature _or_ a moment [unit] of time to his [^h]age [the length of his life]? 
+And which of you by being overly anxious _and_ troubled with cares can add a cubit to his stature _or_ a moment [unit] of time to his age [the length of his life]? 
 
 
 
@@ -574,7 +574,7 @@ If then you are not able to do such a little thing as that, why are you anxious 
 
 
 
-Consider the lilies, how they grow. They neither [wearily] toil nor spin _nor_ [^i]_weave_; yet I tell you, even Solomon in all his glory (his splendor and magnificence) was not arrayed like one of these. 
+Consider the lilies, how they grow. They neither [wearily] toil nor spin _nor_ _weave_; yet I tell you, even Solomon in all his glory (his splendor and magnificence) was not arrayed like one of these. 
 
 
 
@@ -616,7 +616,7 @@ But if God so clothes the grass in the field, which is alive today, and tomorrow
 
 
 
-And you, do not seek [by meditating and reasoning to inquire into] what you are to eat and what you are to drink; nor be of anxious (troubled) mind [[^j]unsettled, excited, worried, and [^k]in suspense]; 
+And you, do not seek [by meditating and reasoning to inquire into] what you are to eat and what you are to drink; nor be of anxious (troubled) mind [unsettled, excited, worried, and in suspense]; 
 
 
 
@@ -784,7 +784,7 @@ And be like men who are waiting for their master to return home from the marriag
 
 
 
-Blessed (happy, fortunate, and [^l]to be envied) are those servants whom the master finds awake _and_ alert _and_ watching when he comes. Truly I say to you, he will gird himself and have them recline at table and will come and serve them! 
+Blessed (happy, fortunate, and to be envied) are those servants whom the master finds awake _and_ alert _and_ watching when he comes. Truly I say to you, he will gird himself and have them recline at table and will come and serve them! 
 
 
 
@@ -805,7 +805,7 @@ Blessed (happy, fortunate, and [^l]to be envied) are those servants whom the mas
 
 
 
-If he comes in the second watch (before midnight) or the third watch (after midnight), and finds them so, blessed (happy, fortunate, and [^m]to be envied) are those servants! 
+If he comes in the second watch (before midnight) or the third watch (after midnight), and finds them so, blessed (happy, fortunate, and to be envied) are those servants! 
 
 
 
@@ -847,7 +847,7 @@ But of this be assured: if the householder had known at what time the burglar wa
 
 
 
-You also must be ready, for the Son of Man is coming at an hour _and_ a [^n]moment when you do not anticipate it. 
+You also must be ready, for the Son of Man is coming at an hour _and_ a moment when you do not anticipate it. 
 
 
 
@@ -910,7 +910,7 @@ And the Lord said, Who then is that faithful steward, the wise man whom his mast
 
 
 
-Blessed (happy and [^o]to be envied) is that servant whom his master finds so doing when he arrives. 
+Blessed (happy and to be envied) is that servant whom his master finds so doing when he arrives. 
 
 
 
@@ -973,7 +973,7 @@ But if that servant says in his heart, My master is late in coming, and begins t
 
 
 
-The master of that servant will come on a day when he does not expect him and at an hour of which he does not know, and will punish him _and_ cut him off and assign his lot with [^p]the unfaithful. 
+The master of that servant will come on a day when he does not expect him and at an hour of which he does not know, and will punish him _and_ cut him off and assign his lot with the unfaithful. 
 
 
 
@@ -1057,7 +1057,7 @@ I have come to cast fire upon the earth, and how I wish that it were already kin
 
 
 
-I have a baptism with which to be baptized, and how greatly _and_ sorely I am urged on (impelled, [^q]constrained) until it is accomplished! 
+I have a baptism with which to be baptized, and how greatly _and_ sorely I am urged on (impelled, constrained) until it is accomplished! 
 
 
 
@@ -1183,7 +1183,7 @@ And when [you see that] a south wind is blowing, you say, There will be severe h
 
 
 
-You playactors (hypocrites)! You know how [intelligently] to discern _and_ interpret _and_ [^r]prove the looks of the earth and sky; but how is it that you do not know how to discern _and_ interpret _and_ apply the proof to this present time? 
+You playactors (hypocrites)! You know how [intelligently] to discern _and_ interpret _and_ prove the looks of the earth and sky; but how is it that you do not know how to discern _and_ interpret _and_ apply the proof to this present time? 
 
 
 

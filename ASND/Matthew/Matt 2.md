@@ -40,7 +40,7 @@ next: ['Matt 3']
 
 
 
-Ipinanganak si Jesus sa bayan ng Betlehem <i class="trans-change">sa lalawigan_ ng Judea noong si Herodes ang hari. <i class="trans-change">Isang araw,_ dumating sa Jerusalem ang ilang taong dalubhasa[^a] galing sa silangan. 
+Ipinanganak si Jesus sa bayan ng Betlehem <i class="trans-change">sa lalawigan_ ng Judea noong si Herodes ang hari. <i class="trans-change">Isang araw,_ dumating sa Jerusalem ang ilang taong dalubhasa galing sa silangan. 
 
 
 
@@ -205,7 +205,7 @@ Sumagot sila, "Sa Betlehem <i class="trans-change">na sakop_ ng Juda, dahil gani
 
 
 
-'Ikaw, Betlehem sa lupain ng Juda, hindi ka huli sa mga pangunahing bayan ng Juda; dahil magmumula sa iyo ang isang pinuno na magsisilbing pastol ng mga mamamayan kong Israelita.' "[^b] 
+'Ikaw, Betlehem sa lupain ng Juda, hindi ka huli sa mga pangunahing bayan ng Juda; dahil magmumula sa iyo ang isang pinuno na magsisilbing pastol ng mga mamamayan kong Israelita.' " 
 
 
 
@@ -436,7 +436,7 @@ Kaya nang gabi ring iyon, umalis papuntang Egipto si Jose, kasama ang bata at an
 
 
 
-At nanatili sila roon hanggang sa mamatay si Herodes. Sa gayon, natupad ang sinabi ng Panginoon sa pamamagitan ng propeta, "Tinawag ko mula sa Egipto ang aking anak."[^c] ## Ipinapatay ni Herodes ang mga Batang Lalaki 
+At nanatili sila roon hanggang sa mamatay si Herodes. Sa gayon, natupad ang sinabi ng Panginoon sa pamamagitan ng propeta, "Tinawag ko mula sa Egipto ang aking anak." ## Ipinapatay ni Herodes ang mga Batang Lalaki 
 
 
 
@@ -535,7 +535,7 @@ Sa ginawang kalupitan ni Herodes, natupad ang sinabi ni Propeta Jeremias,
 
 
 
-"May narinig na iyakan at malakas na panaghoy sa Rama. Iniiyakan ni Raquel ang pagkamatay ng kanyang mga anak, at ayaw niyang magpaaliw dahil patay na ang mga ito."[^d] ## Ang Pagbabalik Mula sa Egipto 
+"May narinig na iyakan at malakas na panaghoy sa Rama. Iniiyakan ni Raquel ang pagkamatay ng kanyang mga anak, at ayaw niyang magpaaliw dahil patay na ang mga ito." ## Ang Pagbabalik Mula sa Egipto 
 
 
 

@@ -322,7 +322,7 @@ On the second day they compassed the city enclosure once and returned to the cam
 
 
 
-On the seventh day they rose early at daybreak and marched around the city as usual, only on that day they compassed the city [^a]seven times. 
+On the seventh day they rose early at daybreak and marched around the city as usual, only on that day they compassed the city seven times. 
 
 
 
@@ -511,7 +511,7 @@ So the young men, the spies, went in and brought out Rahab, her father and mothe
 
 
 
-And they [^b] burned the city with fire and all that was in it; only the silver, the gold, and the vessels of bronze and of iron they put into the treasury of the house of the Lord. 
+And they  burned the city with fire and all that was in it; only the silver, the gold, and the vessels of bronze and of iron they put into the treasury of the house of the Lord. 
 
 
 

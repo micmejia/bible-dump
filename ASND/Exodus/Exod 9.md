@@ -964,7 +964,7 @@ Pero alam kong ikaw at ang mga opisyal mo ay hindi pa rin natatakot sa Panginoon
 
 
 
-(Nasira ang mga pananim na flax[^a] at sebada,[^b] dahil aanihin na noon ang sebada at namumulaklak na ang flax. 
+(Nasira ang mga pananim na flax at sebada, dahil aanihin na noon ang sebada at namumulaklak na ang flax. 
 
 
 
@@ -997,7 +997,7 @@ Pero alam kong ikaw at ang mga opisyal mo ay hindi pa rin natatakot sa Panginoon
 
 
 
-Pero hindi nasira ang mga trigo[^c] dahil hindi pa aanihin ang mga ito.) 
+Pero hindi nasira ang mga trigo dahil hindi pa aanihin ang mga ito.) 
 
 
 

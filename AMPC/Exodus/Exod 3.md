@@ -49,7 +49,7 @@ Now Moses kept the flock of Jethro his father-in-law, the priest of Midian; and 
 
 
 
-The [^a]Angel of the Lord appeared to him in a flame of fire out of the midst of a bush; and he looked, and behold, the bush burned with fire, yet was not consumed. 
+The Angel of the Lord appeared to him in a flame of fire out of the midst of a bush; and he looked, and behold, the bush burned with fire, yet was not consumed. 
 
 
 
@@ -238,7 +238,7 @@ Come now therefore, and I will send you to Pharaoh, that you may bring forth My 
 
 
 
-And Moses said to God, [^b]Who am I, that I should go to Pharaoh and bring the Israelites out of Egypt? 
+And Moses said to God, Who am I, that I should go to Pharaoh and bring the Israelites out of Egypt? 
 
 
 
@@ -322,7 +322,7 @@ And God said to Moses, I Am Who I Am _and_ What I Am, _and_ I Will Be What I Wil
 
 
 
-God said also to Moses, This shall you say to the Israelites: The Lord, the God of your fathers, of Abraham, of Isaac, and of Jacob, has sent me to you! This is My [^c]name forever, and by this name I am to be remembered to all generations. 
+God said also to Moses, This shall you say to the Israelites: The Lord, the God of your fathers, of Abraham, of Isaac, and of Jacob, has sent me to you! This is My name forever, and by this name I am to be remembered to all generations. 
 
 
 

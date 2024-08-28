@@ -13,7 +13,7 @@ next: ['Isa 37']
 Now it came to pass in the fourteenth year of King Hezekiah _that_ Sennacherib king of Assyria came up against all the fortified cities of Judah and took them. 
 
 ###### 2 
-Then the king of Assyria sent _the_ [^a]Rabshakeh with a great army from Lachish to King Hezekiah at Jerusalem. And he stood by the aqueduct from the upper pool, on the highway to the Fuller's Field. 
+Then the king of Assyria sent _the_ Rabshakeh with a great army from Lachish to King Hezekiah at Jerusalem. And he stood by the aqueduct from the upper pool, on the highway to the Fuller's Field. 
 
 ###### 3 
 And Eliakim the son of Hilkiah, who was over the household, Shebna the scribe, and Joah the son of Asaph, the recorder, came out to him. 
@@ -22,7 +22,7 @@ And Eliakim the son of Hilkiah, who was over the household, Shebna the scribe, a
 Then _the_ Rabshakeh said to them, "Say now to Hezekiah, 'Thus says the great king, the king of Assyria: "What confidence is this in which you trust? 
 
 ###### 5 
-I say you speak of having plans and power for war; but _they are_ [^b]mere words. Now in whom do you trust, that you rebel against me? 
+I say you speak of having plans and power for war; but _they are_ mere words. Now in whom do you trust, that you rebel against me? 
 
 ###### 6 
 Look! You are trusting in the staff of this broken reed, Egypt, on which if a man leans, it will go into his hand and pierce it. So _is_ Pharaoh king of Egypt to all who trust in him. 
@@ -40,7 +40,7 @@ How then will you repel one captain of the least of my master's servants, and pu
 Have I now come up without the Lord against this land to destroy it? The Lord said to me, 'Go up against this land, and destroy it.' " 
 
 ###### 11 
-Then Eliakim, Shebna, and Joah said to _the_ Rabshakeh, "Please speak to your servants in Aramaic, for we understand _it;_ and do not speak to us in [^c]Hebrew in the hearing of the people who _are_ on the wall." 
+Then Eliakim, Shebna, and Joah said to _the_ Rabshakeh, "Please speak to your servants in Aramaic, for we understand _it;_ and do not speak to us in Hebrew in the hearing of the people who _are_ on the wall." 
 
 ###### 12 
 But _the_ Rabshakeh said, "Has my master sent me to your master and to you to speak these words, and not to the men who sit on the wall, who will eat and drink their own waste with you?" 
@@ -70,7 +70,7 @@ Where _are_ the gods of Hamath and Arpad? Where _are_ the gods of Sepharvaim? In
 Who among all the gods of these lands have delivered their countries from my hand, that the Lord should deliver Jerusalem from my hand?' " 
 
 ###### 21 
-But they [^d]held their peace and answered him not a word; for the king's commandment was, "Do not answer him." 
+But they held their peace and answered him not a word; for the king's commandment was, "Do not answer him." 
 
 ###### 22 
 Then Eliakim the son of Hilkiah, who _was_ over the household, Shebna the scribe, and Joah the son of Asaph, the recorder, came to Hezekiah with _their_ clothes torn, and told him the words of _the_ Rabshakeh.

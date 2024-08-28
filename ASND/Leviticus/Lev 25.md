@@ -172,7 +172,7 @@ Pero maaari kayong kumuha nito para may makain kayo, ang inyong mga alipin mga m
 
 
 
-mga alaga nʼyong hayop, at mga hayop sa gubat na nasa inyong lupain. ## Ang Taon ng Pagpapalaya at Pagsasauli ###### 8-9 Tuwing ika-49 na taon,[^a] sa ikasampung araw ng ikapitong buwan, ang Araw ng Pagtubos, patunugin ninyo ang mga trumpeta sa buong lupain. 
+mga alaga nʼyong hayop, at mga hayop sa gubat na nasa inyong lupain. ## Ang Taon ng Pagpapalaya at Pagsasauli ###### 8-9 Tuwing ika-49 na taon, sa ikasampung araw ng ikapitong buwan, ang Araw ng Pagtubos, patunugin ninyo ang mga trumpeta sa buong lupain. 
 
 
 

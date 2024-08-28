@@ -34,7 +34,7 @@ Then Joseph brought in his father Jacob and set him before Pharaoh; and Jacob bl
 Pharaoh said to Jacob, "How old _are_ you?" 
 
 ###### 9 
-And Jacob said to Pharaoh, "The days of the years of my [^a]pilgrimage _are_ one hundred and thirty years; few and evil have been the days of the years of my life, and they have not attained to the days of the years of the life of my fathers in the days of their pilgrimage." 
+And Jacob said to Pharaoh, "The days of the years of my pilgrimage _are_ one hundred and thirty years; few and evil have been the days of the years of my life, and they have not attained to the days of the years of the life of my fathers in the days of their pilgrimage." 
 
 ###### 10 
 So Jacob blessed Pharaoh, and went out from before Pharaoh. 
@@ -58,7 +58,7 @@ So when the money failed in the land of Egypt and in the land of Canaan, all the
 Then Joseph said, "Give your livestock, and I will give you _bread_ for your livestock, if the money is gone." 
 
 ###### 17 
-So they brought their livestock to Joseph, and Joseph gave them bread _in exchange_ for the horses, the flocks, the cattle of the herds, and for the donkeys. Thus he [^b]fed them with bread _in exchange_ for all their livestock that year. 
+So they brought their livestock to Joseph, and Joseph gave them bread _in exchange_ for the horses, the flocks, the cattle of the herds, and for the donkeys. Thus he fed them with bread _in exchange_ for all their livestock that year. 
 
 ###### 18 
 When that year had ended, they came to him the next year and said to him, "We will not hide from my lord that our money is gone; my lord also has our herds of livestock. There is nothing left in the sight of my lord but our bodies and our lands. 
@@ -70,7 +70,7 @@ Why should we die before your eyes, both we and our land? Buy us and our land fo
 Then Joseph bought all the land of Egypt for Pharaoh; for every man of the Egyptians sold his field, because the famine was severe upon them. So the land became Pharaoh's. 
 
 ###### 21 
-And as for the people, he [^c]moved them into the cities, from _one_ end of the borders of Egypt to the _other_ end. 
+And as for the people, he moved them into the cities, from _one_ end of the borders of Egypt to the _other_ end. 
 
 ###### 22 
 Only the land of the priests he did not buy; for the priests had rations _allotted to them_ by Pharaoh, and they ate their rations which Pharaoh gave them; therefore they did not sell their lands. 

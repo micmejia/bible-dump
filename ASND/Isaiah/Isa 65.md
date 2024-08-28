@@ -469,7 +469,7 @@ Ang inyong mga pangalan ay susumpain ng aking mga pinili, at ako, ang Panginoong
 
 
 
-Ang sinumang magsasabi ng pagpapala o manunumpa sa lupain <i class="trans-change">ng Israel_, gagawin niya ito sa pangalan ko – ang Dios na tapat.[^a] Sapagkat kakalimutan ko na ang mga nagdaang hirap, at itoʼy papawiin ko na sa aking paningin. 
+Ang sinumang magsasabi ng pagpapala o manunumpa sa lupain <i class="trans-change">ng Israel_, gagawin niya ito sa pangalan ko – ang Dios na tapat. Sapagkat kakalimutan ko na ang mga nagdaang hirap, at itoʼy papawiin ko na sa aking paningin. 
 
 
 

@@ -172,7 +172,7 @@ At nakita nila sina Elias at Moises na nakikipag-usap kay Jesus.
 
 
 
-Sinabi ni Pedro kay Jesus, "Guro, mabutiʼt narito po kami![^a] Gagawa kami ng tatlong kubol:[^b] isa po para sa inyo, isa para kay Moises at isa para kay Elias." 
+Sinabi ni Pedro kay Jesus, "Guro, mabutiʼt narito po kami! Gagawa kami ng tatlong kubol: isa po para sa inyo, isa para kay Moises at isa para kay Elias." 
 
 
 
@@ -1426,7 +1426,7 @@ Ang mga uod doon ay hindi namamatay, at ang apoy ay hindi rin namamatay.
 
 
 
-"Sapagkat ang lahat ay aasinan[^c] sa apoy. 
+"Sapagkat ang lahat ay aasinan sa apoy. 
 
 
 
@@ -1459,4 +1459,4 @@ Ang mga uod doon ay hindi namamatay, at ang apoy ay hindi rin namamatay.
 
 
 
-Mabuti ang asin, pero kung mawalan ng lasa,[^d] wala nang magagawa upang ibalik ang lasa nito. Dapat maging tulad kayo sa asin na nakakatulong sa tao. Tulungan ninyo ang isaʼt isa upang maging mapayapa ang pagsasamahan ninyo."[^e]
+Mabuti ang asin, pero kung mawalan ng lasa, wala nang magagawa upang ibalik ang lasa nito. Dapat maging tulad kayo sa asin na nakakatulong sa tao. Tulungan ninyo ang isaʼt isa upang maging mapayapa ang pagsasamahan ninyo."

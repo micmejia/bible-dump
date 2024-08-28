@@ -28,7 +28,7 @@ Then he said to them, "Do you know Laban the son of Nahor?" And they said, "We k
 So he said to them, "Is he well?" And they said, "_He is_ well. And look, his daughter Rachel is coming with the sheep." 
 
 ###### 7 
-Then he said, "Look, _it is_ still [^a]high day; _it is_ not time for the cattle to be gathered together. Water the sheep, and go and feed _them._" 
+Then he said, "Look, _it is_ still high day; _it is_ not time for the cattle to be gathered together. Water the sheep, and go and feed _them._" 
 
 ###### 8 
 But they said, "We cannot until all the flocks are gathered together, and they have rolled the stone from the well's mouth; then we water the sheep." 
@@ -58,7 +58,7 @@ Then Laban said to Jacob, "Because you _are_ my relative, should you therefore s
 Now Laban had two daughters: the name of the elder _was_ Leah, and the name of the younger _was_ Rachel. 
 
 ###### 17 
-Leah's eyes _were_ [^b]delicate, but Rachel was beautiful of form and appearance. 
+Leah's eyes _were_ delicate, but Rachel was beautiful of form and appearance. 
 
 ###### 18 
 Now Jacob loved Rachel; so he said, "I will serve you seven years for Rachel your younger daughter." 
@@ -85,7 +85,7 @@ And Laban gave his maid Zilpah to his daughter Leah _as_ a maid.
 So it came to pass in the morning, that behold, it _was_ Leah. And he said to Laban, "What is this you have done to me? Was it not for Rachel that I served you? Why then have you deceived me?" 
 
 ###### 26 
-And Laban said, "It must not be done so in our [^c]country, to give the younger before the firstborn. 
+And Laban said, "It must not be done so in our country, to give the younger before the firstborn. 
 
 ###### 27 
 Fulfill her week, and we will give you this one also for the service which you will serve with me still another seven years." 
@@ -100,16 +100,16 @@ And Laban gave his maid Bilhah to his daughter Rachel as a maid.
 Then _Jacob_ also went in to Rachel, and he also loved Rachel more than Leah. And he served with Laban still another seven years. ## The Children of Jacob 
 
 ###### 31 
-When the Lord saw that Leah _was_ [^d]unloved, He opened her womb; but Rachel _was_ barren. 
+When the Lord saw that Leah _was_ unloved, He opened her womb; but Rachel _was_ barren. 
 
 ###### 32 
-So Leah conceived and bore a son, and she called his name [^e]Reuben; for she said, "The Lord has surely looked on my affliction. Now therefore, my husband will love me." 
+So Leah conceived and bore a son, and she called his name Reuben; for she said, "The Lord has surely looked on my affliction. Now therefore, my husband will love me." 
 
 ###### 33 
-Then she conceived again and bore a son, and said, "Because the Lord has heard that I _am_ [^f]unloved, He has therefore given me this _son_ also." And she called his name [^g]Simeon. 
+Then she conceived again and bore a son, and said, "Because the Lord has heard that I _am_ unloved, He has therefore given me this _son_ also." And she called his name Simeon. 
 
 ###### 34 
-She conceived again and bore a son, and said, "Now this time my husband will become attached to me, because I have borne him three sons." Therefore his name was called [^h]Levi. 
+She conceived again and bore a son, and said, "Now this time my husband will become attached to me, because I have borne him three sons." Therefore his name was called Levi. 
 
 ###### 35 
-And she conceived again and bore a son, and said, "Now I will praise the Lord." Therefore she called his name Judah.[^i] Then she stopped bearing.
+And she conceived again and bore a son, and said, "Now I will praise the Lord." Therefore she called his name Judah. Then she stopped bearing.

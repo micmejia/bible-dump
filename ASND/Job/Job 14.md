@@ -106,7 +106,7 @@ Ang katulad nito ay isang bulaklak, namumukadkad pero agad nalalanta. Katulad di
 
 
 
-Kaya <i class="trans-change">Panginoon,_ bakit kailangan nʼyo pang bantayan nang ganito ang tao? Gusto nʼyo pa ba siyang[^a] hatulan sa inyong hukuman? 
+Kaya <i class="trans-change">Panginoon,_ bakit kailangan nʼyo pang bantayan nang ganito ang tao? Gusto nʼyo pa ba siyang hatulan sa inyong hukuman? 
 
 
 

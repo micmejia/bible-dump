@@ -49,7 +49,7 @@ And the word of the Lord came to me, saying,
 
 
 
-Son of man, set your face against Gog, of the land of [^a]Magog, the prince of Rosh, of Meshech, and of Tubal, and prophesy against him, 
+Son of man, set your face against Gog, of the land of Magog, the prince of Rosh, of Meshech, and of Tubal, and prophesy against him, 
 
 
 

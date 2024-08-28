@@ -10,7 +10,7 @@ next: ['Josh 3']
 
 
 ###### 1 
-Now Joshua the son of Nun sent out two men from [^a]Acacia Grove to spy secretly, saying, "Go, view the land, especially Jericho." So they went, and came to the house of a harlot named Rahab, and [^b]lodged there. 
+Now Joshua the son of Nun sent out two men from Acacia Grove to spy secretly, saying, "Go, view the land, especially Jericho." So they went, and came to the house of a harlot named Rahab, and lodged there. 
 
 ###### 2 
 And it was told the king of Jericho, saying, "Behold, men have come here tonight from the children of Israel to search out the country." 
@@ -43,7 +43,7 @@ For we have heard how the Lord dried up the water of the Red Sea for you when yo
 And as soon as we heard _these things,_ our hearts melted; neither did there remain any more courage in anyone because of you, for the Lord your God, He _is_ God in heaven above and on earth beneath. 
 
 ###### 12 
-Now therefore, I beg you, swear to me by the Lord, since I have shown you kindness, that you also will show kindness to my father's house, and give me [^c]a true token, 
+Now therefore, I beg you, swear to me by the Lord, since I have shown you kindness, that you also will show kindness to my father's house, and give me a true token, 
 
 ###### 13 
 and spare my father, my mother, my brothers, my sisters, and all that they have, and deliver our lives from death." 
@@ -58,16 +58,16 @@ Then she let them down by a rope through the window, for her house _was_ on the 
 And she said to them, "Get to the mountain, lest the pursuers meet you. Hide there three days, until the pursuers have returned. Afterward you may go your way." 
 
 ###### 17 
-So the men said to her: "We _will be_ blameless[^d] of this oath of yours which you have made us swear, 
+So the men said to her: "We _will be_ blameless of this oath of yours which you have made us swear, 
 
 ###### 18 
-unless, _when_ we come into the land, you bind this line of scarlet cord in the window through which you let us down, and unless you [^e]bring your father, your mother, your brothers, and all your father's household to your own home. 
+unless, _when_ we come into the land, you bind this line of scarlet cord in the window through which you let us down, and unless you bring your father, your mother, your brothers, and all your father's household to your own home. 
 
 ###### 19 
-So it shall be _that_ whoever goes outside the doors of your house into the street, his blood _shall be_ on his own head, and we _will be_ [^f]guiltless. And whoever is with you in the house, his [^g]blood _shall be_ on our head if a hand is laid on him. 
+So it shall be _that_ whoever goes outside the doors of your house into the street, his blood _shall be_ on his own head, and we _will be_ guiltless. And whoever is with you in the house, his blood _shall be_ on our head if a hand is laid on him. 
 
 ###### 20 
-And if you tell this business of ours, then we will be [^h]free from your oath which you made us swear." 
+And if you tell this business of ours, then we will be free from your oath which you made us swear." 
 
 ###### 21 
 Then she said, "According to your words, so _be_ it." And she sent them away, and they departed. And she bound the scarlet cord in the window. 

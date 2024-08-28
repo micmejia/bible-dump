@@ -10,7 +10,7 @@ next: ['Isa 29']
 
 
 ###### 1 
-Woe to the crown of pride, to the drunkards of Ephraim, Whose glorious beauty _is_ a fading flower Which _is_ at the head of the [^a]verdant valleys, To those who are overcome with wine! 
+Woe to the crown of pride, to the drunkards of Ephraim, Whose glorious beauty _is_ a fading flower Which _is_ at the head of the verdant valleys, To those who are overcome with wine! 
 
 ###### 2 
 Behold, the Lord has a mighty and strong one, Like a tempest of hail and a destroying storm, Like a flood of mighty waters overflowing, Who will bring _them_ down to the earth with _His_ hand. 
@@ -19,7 +19,7 @@ Behold, the Lord has a mighty and strong one, Like a tempest of hail and a destr
 The crown of pride, the drunkards of Ephraim, Will be trampled underfoot; 
 
 ###### 4 
-And the glorious beauty is a fading flower Which _is_ at the head of the [^b]verdant valley, Like the first fruit before the summer, Which an observer sees; He eats it up while it is still in his hand. 
+And the glorious beauty is a fading flower Which _is_ at the head of the verdant valley, Like the first fruit before the summer, Which an observer sees; He eats it up while it is still in his hand. 
 
 ###### 5 
 In that day the Lord of hosts will be For a crown of glory and a diadem of beauty To the remnant of His people, 
@@ -70,10 +70,10 @@ As often as it goes out it will take you; For morning by morning it will pass ov
 For the bed is too short to stretch out _on,_ And the covering so narrow that one cannot wrap himself _in it._ 
 
 ###### 21 
-For the Lord will rise up as _at_ Mount Perazim, He will be angry as in the Valley of Gibeon-- That He may do His work, His awesome work, And bring to pass His act, His [^c]unusual act. 
+For the Lord will rise up as _at_ Mount Perazim, He will be angry as in the Valley of Gibeon-- That He may do His work, His awesome work, And bring to pass His act, His unusual act. 
 
 ###### 22 
-Now therefore, do not be mockers, Lest your bonds be made strong; For I have heard from the Lord God of hosts, A [^d]destruction determined even upon the whole earth. ## Listen to the Teaching of God 
+Now therefore, do not be mockers, Lest your bonds be made strong; For I have heard from the Lord God of hosts, A destruction determined even upon the whole earth. ## Listen to the Teaching of God 
 
 ###### 23 
 Give ear and hear my voice, Listen and hear my speech. 
@@ -82,7 +82,7 @@ Give ear and hear my voice, Listen and hear my speech.
 Does the plowman keep plowing all day to sow? Does he keep turning his soil and breaking the clods? 
 
 ###### 25 
-When he has leveled its surface, Does he not sow the black cummin And scatter the cummin, Plant the wheat in rows, The barley in the appointed place, And the [^e]spelt in its place? 
+When he has leveled its surface, Does he not sow the black cummin And scatter the cummin, Plant the wheat in rows, The barley in the appointed place, And the spelt in its place? 
 
 ###### 26 
 For He instructs him in right judgment, His God teaches him. 
@@ -94,4 +94,4 @@ For the black cummin is not threshed with a threshing sledge, Nor is a cartwheel
 Bread _flour_ must be ground; Therefore he does not thresh it forever, Break _it with_ his cartwheel, Or crush it _with_ his horsemen. 
 
 ###### 29 
-This also comes from the Lord of hosts, _Who_ is wonderful in counsel _and_ excellent in [^f]guidance.
+This also comes from the Lord of hosts, _Who_ is wonderful in counsel _and_ excellent in guidance.

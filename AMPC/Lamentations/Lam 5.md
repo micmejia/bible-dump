@@ -153,7 +153,7 @@ We have given the hand [as a pledge of fidelity and submission] to the Egyptians
 
 
 
-Our fathers sinned and are no more, and [^a]we have borne their iniquities. 
+Our fathers sinned and are no more, and we have borne their iniquities. 
 
 
 
@@ -468,4 +468,4 @@ Turn us to Yourself, O Lord, and we shall be turned _and_ restored! Renew our da
 
 
 
-Or have You utterly rejected us? [^b]Or are You exceedingly angry with us [still]?
+Or have You utterly rejected us? Or are You exceedingly angry with us [still]?

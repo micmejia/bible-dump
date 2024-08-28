@@ -502,7 +502,7 @@ Kaya sinabi ng Panginoong Dios sa ahas, "Dahil sa ginawa mong ito, parurusahan k
 
 
 
-Ikaw at ang babae ay mag-aaway. Ang lahi mo at ang lahi niya[^a] ay mag-aaway din. Dudurugin niya ang ulo mo at tutuklawin mo ang sakong niya." 
+Ikaw at ang babae ay mag-aaway. Ang lahi mo at ang lahi niya ay mag-aaway din. Dudurugin niya ang ulo mo at tutuklawin mo ang sakong niya." 
 
 
 
@@ -535,7 +535,7 @@ Ikaw at ang babae ay mag-aaway. Ang lahi mo at ang lahi niya[^a] ay mag-aaway di
 
 
 
-Sinabi rin niya sa babae, "Dahil sa ginawa mo, dadagdagan ko ang paghihirap mo sa pagbubuntis at mararamdaman mo ang sobrang sakit sa iyong panganganak. Pero sa kabila niyan, hahangarin mo pa rin ang iyong asawa at maghahari siya sa iyo."[^b] 
+Sinabi rin niya sa babae, "Dahil sa ginawa mo, dadagdagan ko ang paghihirap mo sa pagbubuntis at mararamdaman mo ang sobrang sakit sa iyong panganganak. Pero sa kabila niyan, hahangarin mo pa rin ang iyong asawa at maghahari siya sa iyo." 
 
 
 
@@ -667,7 +667,7 @@ Kinakailangang magpakahirap ka nang husto para makakain, hanggang sa bumalik ka 
 
 
 
-Pinangalanan ni Adan[^c] ang asawa niya na "Eva"[^d] dahil siya ang magiging ina ng lahat ng tao. 
+Pinangalanan ni Adan ang asawa niya na "Eva" dahil siya ang magiging ina ng lahat ng tao. 
 
 
 
@@ -799,4 +799,4 @@ Kaya pinaalis siya ng Panginoong Dios sa halamanan ng Eden para sakahin ang lupa
 
 
 
-Nang mapaalis na ng Panginoong Dios ang tao, naglagay siya ng mga kerubin[^e] sa bandang silangan ng halamanan ng Eden. At naglagay din siya ng espada na naglalagablab at umiikot para walang makalapit sa puno na nagbibigay ng buhay.
+Nang mapaalis na ng Panginoong Dios ang tao, naglagay siya ng mga kerubin sa bandang silangan ng halamanan ng Eden. At naglagay din siya ng espada na naglalagablab at umiikot para walang makalapit sa puno na nagbibigay ng buhay.

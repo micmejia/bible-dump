@@ -61,7 +61,7 @@ You shall drink the milk of the Gentiles, And milk the breast of kings; You shal
 "Instead of bronze I will bring gold, Instead of iron I will bring silver, Instead of wood, bronze, And instead of stones, iron. I will also make your officers peace, And your magistrates righteousness. 
 
 ###### 18 
-Violence shall no longer be heard in your land, Neither [^a]wasting nor destruction within your borders; But you shall call your walls Salvation, And your gates Praise. ## God the Glory of His People 
+Violence shall no longer be heard in your land, Neither wasting nor destruction within your borders; But you shall call your walls Salvation, And your gates Praise. ## God the Glory of His People 
 
 ###### 19 
 "The sun shall no longer be your light by day, Nor for brightness shall the moon give light to you; But the Lord will be to you an everlasting light, And your God your glory. 

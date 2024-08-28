@@ -172,7 +172,7 @@ May balon doon na ginawa ni Jacob. Dahil tanghaling-tapat na noon at pagod na si
 
 
 
-Sumagot ang babae, "Kayo po ay isang Judio at ako ay Samaritano, at babae pa.[^a] Bakit po kayo makikiinom sa akin?" (Sinabi niya ito dahil hindi nakikitungo ang mga Judio sa mga Samaritano.) 
+Sumagot ang babae, "Kayo po ay isang Judio at ako ay Samaritano, at babae pa. Bakit po kayo makikiinom sa akin?" (Sinabi niya ito dahil hindi nakikitungo ang mga Judio sa mga Samaritano.) 
 
 
 

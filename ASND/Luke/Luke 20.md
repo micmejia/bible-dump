@@ -139,7 +139,7 @@ Sinagot sila ni Jesus, "Tatanungin ko rin kayo. Sabihin ninyo sa akin,
 
 
 
-kanino galing ang awtoridad ni Juan para magbautismo, sa Dios[^a] o sa tao?" 
+kanino galing ang awtoridad ni Juan para magbautismo, sa Dios o sa tao?" 
 
 
 
@@ -568,7 +568,7 @@ Tiyak na pupuntahan niya ang mga magsasaka at papatayin. Pagkatapos, pauupahan n
 
 
 
-Tiningnan sila ni Jesus at tinanong, "Ano ba ang ibig sabihin ng talatang ito sa Kasulatan: 'Ang batong tinanggihan ng mga tagapagtayo ng bahay ang siyang naging batong pundasyon.'[^b] 
+Tiningnan sila ni Jesus at tinanong, "Ano ba ang ibig sabihin ng talatang ito sa Kasulatan: 'Ang batong tinanggihan ng mga tagapagtayo ng bahay ang siyang naging batong pundasyon.' 
 
 
 
@@ -733,7 +733,7 @@ Sinabi ng mga espiya kay Jesus, "Guro, alam naming totoo ang mga sinasabi at iti
 
 
 
-Ngayon para sa inyo, tama po ba na <i class="trans-change">tayong mga Judio ay_ magbayad ng buwis sa Emperador ng Roma[^c] o hindi?" 
+Ngayon para sa inyo, tama po ba na <i class="trans-change">tayong mga Judio ay_ magbayad ng buwis sa Emperador ng Roma o hindi?" 
 
 
 
@@ -799,7 +799,7 @@ Pero alam ni Jesus ang katusuhan nila, kaya sinabi niya,
 
 
 
-"Patingin nga ng pera.[^d] Kaninong mukha at pangalan ang nakaukit dito?" Sumagot sila, "Sa Emperador." 
+"Patingin nga ng pera. Kaninong mukha at pangalan ang nakaukit dito?" Sumagot sila, "Sa Emperador." 
 
 
 
@@ -931,7 +931,7 @@ May ilang Saduceo na lumapit kay Jesus at nagtanong. (Ang mga Saduceo ay hindi n
 
 
 
-Sinabi nila, "Guro, ayon po sa <i class="trans-change">batas na_ isinulat ni Moises, kapag ang isang lalaki ay namatay na walang anak sa kanyang asawa, dapat ay pakasalan ng kapatid niyang lalaki ang naiwan niyang asawa, para magkaanak sila para sa kanya.[^e] 
+Sinabi nila, "Guro, ayon po sa <i class="trans-change">batas na_ isinulat ni Moises, kapag ang isang lalaki ay namatay na walang anak sa kanyang asawa, dapat ay pakasalan ng kapatid niyang lalaki ang naiwan niyang asawa, para magkaanak sila para sa kanya. 
 
 
 
@@ -1162,7 +1162,7 @@ Hindi na rin sila mamamatay dahil matutulad na sila sa mga anghel. Silaʼy mga a
 
 
 
-Maging si Moises ay nagpapatunay na muling bubuhayin ang mga patay. Sapagkat nang naroon siya sa nagliliyab na mababang punongkahoy, tinawag niya ang Panginoon na 'Dios nina Abraham, Isaac at Jacob.'[^f] 
+Maging si Moises ay nagpapatunay na muling bubuhayin ang mga patay. Sapagkat nang naroon siya sa nagliliyab na mababang punongkahoy, tinawag niya ang Panginoon na 'Dios nina Abraham, Isaac at Jacob.' 
 
 
 
@@ -1360,7 +1360,7 @@ Samantalang si David na rin ang nagsabi sa Aklat ng mga Salmo, 'Sinabi ng Pangin
 
 
 
-hanggang sa mapasuko ko sa iyo ang iyong mga kaaway.'[^g] 
+hanggang sa mapasuko ko sa iyo ang iyong mga kaaway.' 
 
 
 
@@ -1459,7 +1459,7 @@ Habang nakikinig kay Jesus ang mga tao, sinabi niya sa mga tagasunod niya,
 
 
 
-"Mag-ingat kayo sa mga tagapagturo ng Kautusan. Mahilig silang lumibot na nakasuot ng espesyal na damit.[^h] At gustong-gusto nilang batiin silaʼt igalang sa matataong lugar. Mahilig silang maupo sa mga upuang pandangal sa mga sambahan at mga handaan. 
+"Mag-ingat kayo sa mga tagapagturo ng Kautusan. Mahilig silang lumibot na nakasuot ng espesyal na damit. At gustong-gusto nilang batiin silaʼt igalang sa matataong lugar. Mahilig silang maupo sa mga upuang pandangal sa mga sambahan at mga handaan. 
 
 
 

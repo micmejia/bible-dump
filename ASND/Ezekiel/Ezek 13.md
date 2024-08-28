@@ -667,7 +667,7 @@ Nilalapastangan ninyo ako sa harap ng mga mamamayan ko para lang sa kaunting seb
 
 
 
-"Kaya <i class="trans-change">ako,_ ang Panginoong Dios, ay nagsasabing: Labis akong nagagalit sa mga anting-anting na ginagamit ninyo para biktimahin ang mga tao na parang mga ibong nahuli sa bitag. Hahablutin ko ang mga anting-anting ninyo sa kamay[^a] at palalayain ko ang mga taong hinuli ninyo na parang ibon. 
+"Kaya <i class="trans-change">ako,_ ang Panginoong Dios, ay nagsasabing: Labis akong nagagalit sa mga anting-anting na ginagamit ninyo para biktimahin ang mga tao na parang mga ibong nahuli sa bitag. Hahablutin ko ang mga anting-anting ninyo sa kamay at palalayain ko ang mga taong hinuli ninyo na parang ibon. 
 
 
 
@@ -733,7 +733,7 @@ Pupunitin ko rin ang mga belo ninyo at ililigtas ko ang mga mamamayan mula sa mg
 
 
 
-"Pinalungkot ninyo ang mga matuwid sa pamamagitan ng inyong kasinungalingan, na kahit ako ay hindi sila nabigyan ng kalungkutan. Pinalakas ninyo ang loob ng masasama na ipagpatuloy ang kasamaan nila sa pamamagitan ng mga pangakong maliligtas sila sa kamatayan.[^b] 
+"Pinalungkot ninyo ang mga matuwid sa pamamagitan ng inyong kasinungalingan, na kahit ako ay hindi sila nabigyan ng kalungkutan. Pinalakas ninyo ang loob ng masasama na ipagpatuloy ang kasamaan nila sa pamamagitan ng mga pangakong maliligtas sila sa kamatayan. 
 
 
 

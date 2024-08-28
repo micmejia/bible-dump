@@ -28,7 +28,7 @@ next: ['Acts 24']
 
 
 
-Then Paul, gazing earnestly at the council (Sanhedrin), said, Brethren, I have lived before God, doing my duty with a perfectly good conscience until this very day [[^a]as a citizen, a true and loyal Jew]. 
+Then Paul, gazing earnestly at the council (Sanhedrin), said, Brethren, I have lived before God, doing my duty with a perfectly good conscience until this very day [as a citizen, a true and loyal Jew]. 
 
 
 
@@ -742,4 +742,4 @@ Having read the letter, he asked to what province [Paul] belonged. When he disco
 
 
 
-He said, I will hear your case [^b]fully when your accusers also have come. And he ordered that an eye be kept on him in Herod's palace (the Praetorium).
+He said, I will hear your case fully when your accusers also have come. And he ordered that an eye be kept on him in Herod's palace (the Praetorium).

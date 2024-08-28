@@ -10,7 +10,7 @@ next: ['Eph 5']
 
 
 ###### 1 
-I, therefore, the prisoner [^a]of the Lord, [^b]beseech you to walk worthy of the calling with which you were called, 
+I, therefore, the prisoner of the Lord, beseech you to walk worthy of the calling with which you were called, 
 
 ###### 2 
 with all lowliness and gentleness, with longsuffering, bearing with one another in love, 
@@ -25,7 +25,7 @@ _There is_ one body and one Spirit, just as you were called in one hope of your 
 one Lord, one faith, one baptism; 
 
 ###### 6 
-one God and Father of all, who _is_ above all, and through all, and in [^c]you all. ## Spiritual Gifts 
+one God and Father of all, who _is_ above all, and through all, and in you all. ## Spiritual Gifts 
 
 ###### 7 
 But to each one of us grace was given according to the measure of Christ's gift. 
@@ -34,7 +34,7 @@ But to each one of us grace was given according to the measure of Christ's gift.
 Therefore He says: "When He ascended on high, He led captivity captive, And gave gifts to men." 
 
 ###### 9 
-(Now this, "He ascended"--what does it mean but that He also [^d]first descended into the lower parts of the earth? 
+(Now this, "He ascended"--what does it mean but that He also first descended into the lower parts of the earth? 
 
 ###### 10 
 He who descended is also the One who ascended far above all the heavens, that He might fill all things.) 
@@ -43,7 +43,7 @@ He who descended is also the One who ascended far above all the heavens, that He
 And He Himself gave some _to be_ apostles, some prophets, some evangelists, and some pastors and teachers, 
 
 ###### 12 
-for the equipping of the saints for the work of ministry, for the [^e]edifying of the body of Christ, 
+for the equipping of the saints for the work of ministry, for the edifying of the body of Christ, 
 
 ###### 13 
 till we all come to the unity of the faith and of the knowledge of the Son of God, to a perfect man, to the measure of the stature of the fullness of Christ; 
@@ -58,7 +58,7 @@ but, speaking the truth in love, may grow up in all things into Him who is the h
 from whom the whole body, joined and knit together by what every joint supplies, according to the effective working by which every part does its share, causes growth of the body for the edifying of itself in love. ## The New Man 
 
 ###### 17 
-This I say, therefore, and testify in the Lord, that you should no longer walk as [^f]the rest of the Gentiles walk, in the futility of their mind, 
+This I say, therefore, and testify in the Lord, that you should no longer walk as the rest of the Gentiles walk, in the futility of their mind, 
 
 ###### 18 
 having their understanding darkened, being alienated from the life of God, because of the ignorance that is in them, because of the blindness of their heart; 
@@ -88,19 +88,19 @@ Therefore, putting away lying, "_Let_ each one _of you_ speak truth with his nei
 "Be angry, and do not sin": do not let the sun go down on your wrath, 
 
 ###### 27 
-nor give [^g]place to the devil. 
+nor give place to the devil. 
 
 ###### 28 
 Let him who stole steal no longer, but rather let him labor, working with _his_ hands what is good, that he may have something to give him who has need. 
 
 ###### 29 
-Let no corrupt word proceed out of your mouth, but what is good for necessary [^h]edification, that it may impart grace to the hearers. 
+Let no corrupt word proceed out of your mouth, but what is good for necessary edification, that it may impart grace to the hearers. 
 
 ###### 30 
 And do not grieve the Holy Spirit of God, by whom you were sealed for the day of redemption. 
 
 ###### 31 
-Let all bitterness, wrath, anger, [^i]clamor, and evil speaking be put away from you, with all malice. 
+Let all bitterness, wrath, anger, clamor, and evil speaking be put away from you, with all malice. 
 
 ###### 32 
 And be kind to one another, tenderhearted, forgiving one another, even as God in Christ forgave you.

@@ -10,10 +10,10 @@ next: ['Eccl 10']
 
 
 ###### 1 
-For I [^a]considered all this in my heart, so that I could declare it all: that the righteous and the wise and their works _are_ in the hand of God. People know neither love nor hatred _by_ anything _they see_ before them. 
+For I considered all this in my heart, so that I could declare it all: that the righteous and the wise and their works _are_ in the hand of God. People know neither love nor hatred _by_ anything _they see_ before them. 
 
 ###### 2 
-All things _come_ alike to all: One event _happens_ to the righteous and the wicked; To the [^b]good, the clean, and the unclean; To him who sacrifices and him who does not sacrifice. As is the good, so _is_ the sinner; He who takes an oath as _he_ who fears an oath. 
+All things _come_ alike to all: One event _happens_ to the righteous and the wicked; To the good, the clean, and the unclean; To him who sacrifices and him who does not sacrifice. As is the good, so _is_ the sinner; He who takes an oath as _he_ who fears an oath. 
 
 ###### 3 
 This _is_ an evil in all that is done under the sun: that one thing _happens_ to all. Truly the hearts of the sons of men are full of evil; madness _is_ in their hearts while they live, and after that _they go_ to the dead. 
@@ -34,7 +34,7 @@ Go, eat your bread with joy, And drink your wine with a merry heart; For God has
 Let your garments always be white, And let your head lack no oil. 
 
 ###### 9 
-[^c]Live joyfully with the wife whom you love all the days of your vain life which He has given you under the sun, all your days of vanity; for that _is_ your portion in life, and in the labor which you perform under the sun. 
+Live joyfully with the wife whom you love all the days of your vain life which He has given you under the sun, all your days of vanity; for that _is_ your portion in life, and in the labor which you perform under the sun. 
 
 ###### 10 
 Whatever your hand finds to do, do _it_ with your might; for _there is_ no work or device or knowledge or wisdom in the grave where you are going. 
@@ -49,7 +49,7 @@ For man also does not know his time: Like fish taken in a cruel net, Like birds 
 This wisdom I have also seen under the sun, and it _seemed_ great to me: 
 
 ###### 14 
-_There was_ a little city with few men in it; and a great king came against it, besieged it, and built great [^d]snares around it. 
+_There was_ a little city with few men in it; and a great king came against it, besieged it, and built great snares around it. 
 
 ###### 15 
 Now there was found in it a poor wise man, and he by his wisdom delivered the city. Yet no one remembered that same poor man. 

@@ -10,31 +10,31 @@ next: ['Deut 13']
 
 
 ###### 1 
-"These _are_ the statutes and judgments which you shall be careful to observe in the land which the Lord God of your fathers is giving you to possess, all[^a] the days that you live on the earth. 
+"These _are_ the statutes and judgments which you shall be careful to observe in the land which the Lord God of your fathers is giving you to possess, all the days that you live on the earth. 
 
 ###### 2 
 You shall utterly destroy all the places where the nations which you shall dispossess served their gods, on the high mountains and on the hills and under every green tree. 
 
 ###### 3 
-And you shall destroy their altars, break their _sacred_ pillars, and burn their [^b]wooden images with fire; you shall cut down the carved images of their gods and destroy their names from that place. 
+And you shall destroy their altars, break their _sacred_ pillars, and burn their wooden images with fire; you shall cut down the carved images of their gods and destroy their names from that place. 
 
 ###### 4 
 You shall not worship the Lord your God _with_ such _things._ 
 
 ###### 5 
-"But you shall seek the place where the Lord your God chooses, out of all your tribes, to put His name for His dwelling[^c] place; and there you shall go. 
+"But you shall seek the place where the Lord your God chooses, out of all your tribes, to put His name for His dwelling place; and there you shall go. 
 
 ###### 6 
 There you shall take your burnt offerings, your sacrifices, your tithes, the heave offerings of your hand, your vowed offerings, your freewill offerings, and the firstborn of your herds and flocks. 
 
 ###### 7 
-And there you shall eat before the Lord your God, and you shall rejoice in [^d]all to which you have put your hand, you and your households, in which the Lord your God has blessed you. 
+And there you shall eat before the Lord your God, and you shall rejoice in all to which you have put your hand, you and your households, in which the Lord your God has blessed you. 
 
 ###### 8 
 "You shall not at all do as we are doing here today--every man doing whatever _is_ right in his own eyes-- 
 
 ###### 9 
-for as yet you have not come to the rest[^e] and the inheritance which the Lord your God is giving you. 
+for as yet you have not come to the rest and the inheritance which the Lord your God is giving you. 
 
 ###### 10 
 But _when_ you cross over the Jordan and dwell in the land which the Lord your God is giving you to inherit, and He gives you rest from all your enemies round about, so that you dwell in safety, 
@@ -58,13 +58,13 @@ but in the place which the Lord chooses, in one of your tribes, there you shall 
 Only you shall not eat the blood; you shall pour it on the earth like water. 
 
 ###### 17 
-You may not eat within your gates the tithe of your grain or your new wine or your oil, of the firstborn of your herd or your flock, of any of your offerings which you vow, of your freewill offerings, or of the [^f]heave offering of your hand. 
+You may not eat within your gates the tithe of your grain or your new wine or your oil, of the firstborn of your herd or your flock, of any of your offerings which you vow, of your freewill offerings, or of the heave offering of your hand. 
 
 ###### 18 
-But you must eat them before the Lord your God in the place which the Lord your God chooses, you and your son and your daughter, your male servant and your female servant, and the Levite who _is_ within your gates; and you shall rejoice before the Lord your God in [^g]all to which you put your hands. 
+But you must eat them before the Lord your God in the place which the Lord your God chooses, you and your son and your daughter, your male servant and your female servant, and the Levite who _is_ within your gates; and you shall rejoice before the Lord your God in all to which you put your hands. 
 
 ###### 19 
-[^h]Take heed to yourself that you do not forsake the Levite as long as you live in your land. 
+Take heed to yourself that you do not forsake the Levite as long as you live in your land. 
 
 ###### 20 
 "When the Lord your God enlarges your border as He has promised you, and you say, 'Let me eat meat,' because you long to eat meat, you may eat as much meat as your heart desires. 
@@ -100,7 +100,7 @@ Observe and obey all these words which I command you, that it may go well with y
 take heed to yourself that you are not ensnared to follow them, after they are destroyed from before you, and that you do not inquire after their gods, saying, 'How did these nations serve their gods? I also will do likewise.' 
 
 ###### 31 
-You shall not worship the Lord your God in that way; for every [^i]abomination to the Lord which He hates they have done to their gods; for they burn even their sons and daughters in the fire to their gods. 
+You shall not worship the Lord your God in that way; for every abomination to the Lord which He hates they have done to their gods; for they burn even their sons and daughters in the fire to their gods. 
 
 ###### 32 
 "Whatever I command you, be careful to observe it; you shall not add to it nor take away from it.

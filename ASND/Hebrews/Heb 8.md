@@ -172,7 +172,7 @@ Kung nandito pa siya sa lupa, hindi siya maaaring maging pari dahil mayroon nang
 
 
 
-Ang pag-aalay na ginagawa nila ay anino lang ng mga bagay na nangyayari roon sa langit. Sapagkat nang itatayo na ni Moises ang Toldang Sambahan, mahigpit siyang pinagbilinan <i class="trans-change">ng Dios_, "Kailangang sundin mo ang planong ipinakita ko sa iyo sa bundok."[^a] 
+Ang pag-aalay na ginagawa nila ay anino lang ng mga bagay na nangyayari roon sa langit. Sapagkat nang itatayo na ni Moises ang Toldang Sambahan, mahigpit siyang pinagbilinan <i class="trans-change">ng Dios_, "Kailangang sundin mo ang planong ipinakita ko sa iyo sa bundok." 
 
 
 
@@ -403,7 +403,7 @@ Hindi na nila kailangan pang turuan ang mga kababayan o kapatid nila na kilalani
 
 
 
-Sapagkat patatawarin ko ang kasamaan nila at lilimutin ko na ang mga kasalanan nila."[^b] 
+Sapagkat patatawarin ko ang kasamaan nila at lilimutin ko na ang mga kasalanan nila." 
 
 
 

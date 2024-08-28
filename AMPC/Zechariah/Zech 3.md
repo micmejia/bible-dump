@@ -28,7 +28,7 @@ next: ['Zech 4']
 
 
 
-Then [the guiding angel] showed me Joshua the high priest standing before [^a]the Angel of the Lord, and Satan standing at Joshua's right hand to be his adversary _and_ to accuse him. 
+Then [the guiding angel] showed me Joshua the high priest standing before the Angel of the Lord, and Satan standing at Joshua's right hand to be his adversary _and_ to accuse him. 
 
 
 
@@ -175,7 +175,7 @@ Thus says the Lord of hosts: If you will walk in My ways and keep My charge, the
 
 
 
-Hear now, O Joshua the high priest, you and your colleagues who [usually] sit before you--for they are men who are a sign _or_ omen [types of what is to come]--for behold, I will bring forth My servant the [^b]Branch. 
+Hear now, O Joshua the high priest, you and your colleagues who [usually] sit before you--for they are men who are a sign _or_ omen [types of what is to come]--for behold, I will bring forth My servant the Branch. 
 
 
 

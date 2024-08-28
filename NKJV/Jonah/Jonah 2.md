@@ -25,13 +25,13 @@ Then I said, 'I have been cast out of Your sight; Yet I will look again toward Y
 The waters surrounded me, _even_ to my soul; The deep closed around me; Weeds were wrapped around my head. 
 
 ###### 6 
-I went down to the [^a]moorings of the mountains; The earth with its bars _closed_ behind me forever; Yet You have brought up my life from the pit, O Lord, my God. 
+I went down to the moorings of the mountains; The earth with its bars _closed_ behind me forever; Yet You have brought up my life from the pit, O Lord, my God. 
 
 ###### 7 
 "When my soul fainted within me, I remembered the Lord; And my prayer went _up_ to You, Into Your holy temple. 
 
 ###### 8 
-"Those who regard worthless idols Forsake their own [^b]Mercy. 
+"Those who regard worthless idols Forsake their own Mercy. 
 
 ###### 9 
 But I will sacrifice to You With the voice of thanksgiving; I will pay what I have vowed. Salvation _is_ of the Lord." 

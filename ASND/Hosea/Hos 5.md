@@ -106,7 +106,7 @@ Nagrerebelde kayo sa akin at gusto ninyong pumatay, kaya didisiplinahin ko kayon
 
 
 
-Alam ko ang lahat ng tungkol sa inyo na mga taga-Israel.[^a] Wala kayong maililihim sa akin. Sumasamba kayo sa mga dios-diosan[^b] kaya naging marumi kayo. 
+Alam ko ang lahat ng tungkol sa inyo na mga taga-Israel. Wala kayong maililihim sa akin. Sumasamba kayo sa mga dios-diosan kaya naging marumi kayo. 
 
 
 
@@ -238,7 +238,7 @@ Maghahandog kayo ng mga tupa, kambing, at mga baka sa paglapit ninyo sa akin. Pe
 
 
 
-Nagtaksil kayo sa akin, dahil nagkaanak kayo sa labas. Kaya lilipulin ko kayo at sisirain ko ang lupain ninyo sa loob lamang ng isang buwan.[^c] ## Ang Labanan ng Juda at Israel 
+Nagtaksil kayo sa akin, dahil nagkaanak kayo sa labas. Kaya lilipulin ko kayo at sisirain ko ang lupain ninyo sa loob lamang ng isang buwan. ## Ang Labanan ng Juda at Israel 
 
 
 
@@ -271,7 +271,7 @@ Nagtaksil kayo sa akin, dahil nagkaanak kayo sa labas. Kaya lilipulin ko kayo at
 
 
 
-"Hipan ninyo ang mga trumpeta <i class="trans-change">para bigyang babala ang mga tao_ sa Gibea at Rama! Iparinig ang sigaw ng digmaan sa Bet Aven! Magbantay kayo, kayong mga mamamayan ng Benjamin.[^d] 
+"Hipan ninyo ang mga trumpeta <i class="trans-change">para bigyang babala ang mga tao_ sa Gibea at Rama! Iparinig ang sigaw ng digmaan sa Bet Aven! Magbantay kayo, kayong mga mamamayan ng Benjamin. 
 
 
 
@@ -337,7 +337,7 @@ Mawawasak ang Israel sa araw ng pagpaparusa. Tiyak na mangyayari ang sinasabi ko
 
 
 
-Ang mga pinuno ng Juda ay katulad ng taong naglilipat ng muhon[^e] <i class="trans-change">dahil inagaw nila ang lupain ng Israel_. Kaya ibubuhos ko sa kanila ang aking galit na parang baha. 
+Ang mga pinuno ng Juda ay katulad ng taong naglilipat ng muhon <i class="trans-change">dahil inagaw nila ang lupain ng Israel_. Kaya ibubuhos ko sa kanila ang aking galit na parang baha. 
 
 
 
@@ -436,7 +436,7 @@ Ang katulad koʼy insektong ngumangatngat sa Israel at sa Juda.
 
 
 
-"Nang makita ng mga taga-Israel at taga-Juda ang kanilang masamang kalagayan,[^f] humingi ng tulong ang Israel sa makapangyarihang hari ng Asiria. Pero hindi ito makakatulong sa kanila.[^g] 
+"Nang makita ng mga taga-Israel at taga-Juda ang kanilang masamang kalagayan, humingi ng tulong ang Israel sa makapangyarihang hari ng Asiria. Pero hindi ito makakatulong sa kanila. 
 
 
 

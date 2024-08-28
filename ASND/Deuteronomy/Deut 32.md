@@ -271,7 +271,7 @@ Alalahanin ninyo ang mga taon na lumipas; isipin ninyo ang mga lumipas na henera
 
 
 
-Nang binigyan ng Kataas-taasang Dios ang mga bansa ng lupain nila at nang pinagbukod-bukod niya ang mga mamamayan, nilagyan niya sila ng hangganan ayon sa dami ng mga anghel ng Dios.[^a] 
+Nang binigyan ng Kataas-taasang Dios ang mga bansa ng lupain nila at nang pinagbukod-bukod niya ang mga mamamayan, nilagyan niya sila ng hangganan ayon sa dami ng mga anghel ng Dios. 
 
 
 
@@ -502,7 +502,7 @@ Binigyan niya sila ng keso at gatas ng mga baka at kambing, at binigyan ng matat
 
 
 
-Naging maunlad ang mga Israelita[^b] pero nagrebelde sila. Tumaba sila at lumakas, ngunit tinalikuran nila ang Dios na lumikha sa kanila, at sinuway nila ang kanilang Bato <i class="trans-change">na kanlungan_ na kanilang Tagapagligtas. 
+Naging maunlad ang mga Israelita pero nagrebelde sila. Tumaba sila at lumakas, ngunit tinalikuran nila ang Dios na lumikha sa kanila, at sinuway nila ang kanilang Bato <i class="trans-change">na kanlungan_ na kanilang Tagapagligtas. 
 
 
 
@@ -733,7 +733,7 @@ Pinagselos nila ako sa mga hindi tunay na dios, at ginalit nila ako sa kanilang 
 
 
 
-Naglalagablab na parang apoy ang aking galit; susunugin nito ang lupa at ang lahat ng naroon, pati ang kailaliman ng lupa,[^c] at ang pundasyon ng mga bundok. 
+Naglalagablab na parang apoy ang aking galit; susunugin nito ang lupa at ang lahat ng naroon, pati ang kailaliman ng lupa, at ang pundasyon ng mga bundok. 
 
 
 
@@ -1426,7 +1426,7 @@ Dadanak ang kanilang dugo sa aking pana, at ang aking espada ang papatay sa kani
 
 
 
-Mga bansa, purihin nʼyo ang mga mamamayan ng Panginoon.[^d] Sapagkat gaganti ang Panginoon sa mga pumatay sa kanyang mga lingkod. Gaganti siya sa kanyang mga kaaway, at lilinisin niya ang kanyang lupain at ang kanyang mamamayan. 
+Mga bansa, purihin nʼyo ang mga mamamayan ng Panginoon. Sapagkat gaganti ang Panginoon sa mga pumatay sa kanyang mga lingkod. Gaganti siya sa kanyang mga kaaway, at lilinisin niya ang kanyang lupain at ang kanyang mamamayan. 
 
 
 

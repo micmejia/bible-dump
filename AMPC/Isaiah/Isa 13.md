@@ -154,7 +154,7 @@ Wail, for the day of the Lord is at hand; as destruction from the Almighty _and_
 
 
 
-Therefore will [^a]all hands be feeble, and every man's heart will melt. 
+Therefore will all hands be feeble, and every man's heart will melt. 
 
 
 
@@ -280,7 +280,7 @@ I will make a man more rare than fine gold, and mankind scarcer than the pure go
 
 
 
-Therefore I will make the heavens tremble; and the [^b]earth shall be shaken out of its place at the wrath of the Lord of hosts in the day of His fierce anger. 
+Therefore I will make the heavens tremble; and the earth shall be shaken out of its place at the wrath of the Lord of hosts in the day of His fierce anger. 
 
 
 
@@ -469,4 +469,4 @@ But wild beasts of the desert will lie down there, and the people's houses will 
 
 
 
-And [^c]wolves _and_ howling creatures will cry _and_ answer in the deserted castles, and jackals in the pleasant palaces. And [Babylon's] time has nearly come, and her days will not be prolonged.
+And wolves _and_ howling creatures will cry _and_ answer in the deserted castles, and jackals in the pleasant palaces. And [Babylon's] time has nearly come, and her days will not be prolonged.

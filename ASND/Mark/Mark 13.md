@@ -205,7 +205,7 @@ Kaya sinabi ni Jesus sa kanila, "Mag-ingat kayo at huwag palilinlang kaninuman.
 
 
 
-Sapagkat marami ang darating at magsasabi na sila ang Cristo,[^a] at marami ang ililigaw nila. 
+Sapagkat marami ang darating at magsasabi na sila ang Cristo, at marami ang ililigaw nila. 
 
 
 
@@ -502,7 +502,7 @@ Kapopootan kayo ng lahat dahil sa pagsunod ninyo sa akin. Ngunit ang mananatilin
 
 
 
-Ang nasa labas ng bahay[^b] ay huwag nang pumasok para kumuha ng anuman. 
+Ang nasa labas ng bahay ay huwag nang pumasok para kumuha ng anuman. 
 
 
 
@@ -667,7 +667,7 @@ Sapagkat sa panahong iyon, makakaranas ang mga tao ng mga paghihirap na hindi pa
 
 
 
-Kung hindi paiikliin[^c] ng Panginoon ang panahong iyon, walang matitirang buhay. Ngunit alang-alang sa kanyang mga pinili, paiikliin niya ang panahong iyon. 
+Kung hindi paiikliin ng Panginoon ang panahong iyon, walang matitirang buhay. Ngunit alang-alang sa kanyang mga pinili, paiikliin niya ang panahong iyon. 
 
 
 
@@ -832,7 +832,7 @@ Kaya mag-ingat kayo! Binabalaan ko na kayo habang hindi pa nangyayari ang mga it
 
 
 
-at mahuhulog ang mga bituin mula sa langit. Ang mga bagay[^d] sa kalawakan ay mayayanig at mawawala sa kani-kanilang landas. 
+at mahuhulog ang mga bituin mula sa langit. Ang mga bagay sa kalawakan ay mayayanig at mawawala sa kani-kanilang landas. 
 
 
 
@@ -1030,7 +1030,7 @@ Sinasabi ko sa inyo ang totoo, matutupad ang lahat ng ito bago mawala ang henera
 
 
 
-"Ang langit at ang lupa ay maglalaho, ngunit ang mga salita ko ay mananatili magpakailanman."[^e] ## Walang Taong Nakakaalam Kung Kailan Babalik si Jesus 
+"Ang langit at ang lupa ay maglalaho, ngunit ang mga salita ko ay mananatili magpakailanman." ## Walang Taong Nakakaalam Kung Kailan Babalik si Jesus 
 
 
 

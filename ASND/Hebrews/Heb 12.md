@@ -205,7 +205,7 @@ Baka nakalimutan nʼyo na ang pangaral ng Dios sa inyo bilang mga anak niya: "An
 
 
 
-Sapagkat dinidisiplina ng Panginoon ang mga minamahal niya, at pinapalo niya ang itinuturing niyang mga anak."[^a] 
+Sapagkat dinidisiplina ng Panginoon ang mga minamahal niya, at pinapalo niya ang itinuturing niyang mga anak." 
 
 
 
@@ -535,7 +535,7 @@ Ingatan nʼyo na walang sinuman <i class="trans-change">sa inyo_ ang tatalikod s
 
 
 
-<i class="trans-change">Ingatan din ninyo na_ walang sinuman <i class="trans-change">sa inyo_ ang gagawa ng sekswal na imoralidad o mamumuhay nang gaya ni Esau, na hindi pinahalagahan ang mga espiritwal na bagay, dahil ipinagpalit niya ang karapatan niya bilang panganay sa isang kainan.[^b] 
+<i class="trans-change">Ingatan din ninyo na_ walang sinuman <i class="trans-change">sa inyo_ ang gagawa ng sekswal na imoralidad o mamumuhay nang gaya ni Esau, na hindi pinahalagahan ang mga espiritwal na bagay, dahil ipinagpalit niya ang karapatan niya bilang panganay sa isang kainan. 
 
 
 
@@ -667,7 +667,7 @@ Nakarinig din sila ng tunog ng trumpeta at boses ng nagsasalita. At nang marinig
 
 
 
-dahil hindi nila makayanan ang utos na ito: "Ang sinumang tumapak sa bundok, kahit hayop, ay babatuhin hanggang sa mamatay."[^c] 
+dahil hindi nila makayanan ang utos na ito: "Ang sinumang tumapak sa bundok, kahit hayop, ay babatuhin hanggang sa mamatay." 
 
 
 
@@ -700,7 +700,7 @@ dahil hindi nila makayanan ang utos na ito: "Ang sinumang tumapak sa bundok, kah
 
 
 
-Tunay na kakila-kilabot ang tanawing iyon, kaya maging si Moises ay nagsabi, "Nanginginig ako sa takot!"[^d] 
+Tunay na kakila-kilabot ang tanawing iyon, kaya maging si Moises ay nagsabi, "Nanginginig ako sa takot!" 
 
 
 
@@ -766,7 +766,7 @@ Tunay na kakila-kilabot ang tanawing iyon, kaya maging si Moises ay nagsabi, "Na
 
 
 
-Lumapit kayo sa pagtitipon[^e] ng mga itinuturing na mga panganay <i class="trans-change">ng Dios_, na ang mga pangalan nila ay nakasulat sa langit. Lumapit kayo sa Dios na siyang hukom ng lahat, at sa mga espiritu <i class="trans-change">ng mga taong_ itinuring na matuwid <i class="trans-change">ng Dios_ at ginawa na <i class="trans-change">niyang_ ganap. 
+Lumapit kayo sa pagtitipon ng mga itinuturing na mga panganay <i class="trans-change">ng Dios_, na ang mga pangalan nila ay nakasulat sa langit. Lumapit kayo sa Dios na siyang hukom ng lahat, at sa mga espiritu <i class="trans-change">ng mga taong_ itinuring na matuwid <i class="trans-change">ng Dios_ at ginawa na <i class="trans-change">niyang_ ganap. 
 
 
 
@@ -865,7 +865,7 @@ Kaya mag-ingat kayo at huwag tanggihan ang <i class="trans-change">Dios na_ nags
 
 
 
-Yumanig noon ang lupa nang magsalita ang Dios. At ngayon ay nangako siya, "Minsan ko pang yayanigin ang mundo, pati na rin ang langit."[^f] 
+Yumanig noon ang lupa nang magsalita ang Dios. At ngayon ay nangako siya, "Minsan ko pang yayanigin ang mundo, pati na rin ang langit." 
 
 
 
@@ -964,4 +964,4 @@ Kaya magpasalamat tayo sa Dios dahil kabilang na tayo sa kaharian niya na hindi 
 
 
 
-dahil <i class="trans-change">kapag nagparusa_ ang ating Dios, itoʼy parang apoy na nakakatupok.[^g]
+dahil <i class="trans-change">kapag nagparusa_ ang ating Dios, itoʼy parang apoy na nakakatupok.

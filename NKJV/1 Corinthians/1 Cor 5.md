@@ -10,10 +10,10 @@ next: ['1 Cor 6']
 
 
 ###### 1 
-It is actually reported _that there is_ sexual immorality among you, and such sexual immorality as is not even [^a]named among the Gentiles--that a man has his father's wife! 
+It is actually reported _that there is_ sexual immorality among you, and such sexual immorality as is not even named among the Gentiles--that a man has his father's wife! 
 
 ###### 2 
-And you are [^b]puffed up, and have not rather mourned, that he who has done this deed might be taken away from among you. 
+And you are puffed up, and have not rather mourned, that he who has done this deed might be taken away from among you. 
 
 ###### 3 
 For I indeed, as absent in body but present in spirit, have already judged (as though I were present) him who has so done this deed. 
@@ -22,19 +22,19 @@ For I indeed, as absent in body but present in spirit, have already judged (as t
 In the name of our Lord Jesus Christ, when you are gathered together, along with my spirit, with the power of our Lord Jesus Christ, 
 
 ###### 5 
-deliver such a one to Satan for the destruction of the flesh, that his spirit may be saved in the day of the Lord [^c]Jesus. 
+deliver such a one to Satan for the destruction of the flesh, that his spirit may be saved in the day of the Lord Jesus. 
 
 ###### 6 
 Your glorying _is_ not good. Do you not know that a little leaven leavens the whole lump? 
 
 ###### 7 
-Therefore [^d]purge out the old leaven, that you may be a new lump, since you truly are unleavened. For indeed Christ, our Passover, was sacrificed [^e]for us. 
+Therefore purge out the old leaven, that you may be a new lump, since you truly are unleavened. For indeed Christ, our Passover, was sacrificed for us. 
 
 ###### 8 
 Therefore let us keep the feast, not with old leaven, nor with the leaven of malice and wickedness, but with the unleavened _bread_ of sincerity and truth. ## Immorality Must Be Judged 
 
 ###### 9 
-I wrote to you in my epistle not to [^f]keep company with sexually immoral people. 
+I wrote to you in my epistle not to keep company with sexually immoral people. 
 
 ###### 10 
 Yet _I_ certainly _did_ not _mean_ with the sexually immoral people of this world, or with the covetous, or extortioners, or idolaters, since then you would need to go out of the world. 

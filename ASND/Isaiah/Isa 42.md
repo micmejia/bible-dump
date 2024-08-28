@@ -106,7 +106,7 @@ Hindi siya sisigaw o magsasalita nang malakas sa mga lansangan.
 
 
 
-Hindi niya pababayaan ang mahihina ang pananampalataya[^a] at hindi niya tatalikuran ang mga nawalan ng pag-asa. Matapat niyang papairalin ang katarungan. 
+Hindi niya pababayaan ang mahihina ang pananampalataya at hindi niya tatalikuran ang mga nawalan ng pag-asa. Matapat niyang papairalin ang katarungan. 
 
 
 
@@ -139,7 +139,7 @@ Hindi niya pababayaan ang mahihina ang pananampalataya[^a] at hindi niya tatalik
 
 
 
-Hindi siya manghihina o mawawalan ng pag-asa hanggaʼt hindi niya lubusang napapairal ang katarungan sa buong mundo. Pati ang mga tao sa malalayong lugar[^b] ay maghihintay sa kanyang mga turo." 
+Hindi siya manghihina o mawawalan ng pag-asa hanggaʼt hindi niya lubusang napapairal ang katarungan sa buong mundo. Pati ang mga tao sa malalayong lugar ay maghihintay sa kanyang mga turo." 
 
 
 
@@ -700,7 +700,7 @@ Marami na kayong nakikita pero hindi ninyo pinapansin. Nakakarinig kayo pero aya
 
 
 
-Nais ng Panginoon na parangalan ang kanyang kautusan para ipakita na matuwid siya.[^c] 
+Nais ng Panginoon na parangalan ang kanyang kautusan para ipakita na matuwid siya. 
 
 
 

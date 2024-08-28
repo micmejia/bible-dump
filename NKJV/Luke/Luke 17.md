@@ -10,16 +10,16 @@ next: ['Luke 18']
 
 
 ###### 1 
-Then He said to the disciples, "It is impossible that no [^a]offenses should come, but woe _to him_ through whom they do come! 
+Then He said to the disciples, "It is impossible that no offenses should come, but woe _to him_ through whom they do come! 
 
 ###### 2 
-It would be better for him if a millstone were hung around his neck, and he were thrown into the sea, than that he should [^b]offend one of these little ones. 
+It would be better for him if a millstone were hung around his neck, and he were thrown into the sea, than that he should offend one of these little ones. 
 
 ###### 3 
-Take heed to yourselves. If your brother sins [^c]against you, rebuke him; and if he repents, forgive him. 
+Take heed to yourselves. If your brother sins against you, rebuke him; and if he repents, forgive him. 
 
 ###### 4 
-And if he sins against you seven times in a day, and seven times in a day returns [^d]to you, saying, 'I repent,' you shall forgive him." ## Faith and Duty 
+And if he sins against you seven times in a day, and seven times in a day returns to you, saying, 'I repent,' you shall forgive him." ## Faith and Duty 
 
 ###### 5 
 And the apostles said to the Lord, "Increase our faith." 
@@ -34,7 +34,7 @@ And which of you, having a servant plowing or tending sheep, will say to him whe
 But will he not rather say to him, 'Prepare something for my supper, and gird yourself and serve me till I have eaten and drunk, and afterward you will eat and drink'? 
 
 ###### 9 
-Does he thank that servant because he did the things that were commanded [^e]him? I think not. 
+Does he thank that servant because he did the things that were commanded him? I think not. 
 
 ###### 10 
 So likewise you, when you have done all those things which you are commanded, say, 'We are unprofitable servants. We have done what was our duty to do.' " ## Ten Lepers Cleansed 
@@ -70,13 +70,13 @@ And He said to him, "Arise, go your way. Your faith has made you well." ## The C
 Now when He was asked by the Pharisees when the kingdom of God would come, He answered them and said, "The kingdom of God does not come with observation; 
 
 ###### 21 
-nor will they say, [^f]'See here!' or 'See there!' For indeed, the kingdom of God is [^g]within you." 
+nor will they say, 'See here!' or 'See there!' For indeed, the kingdom of God is within you." 
 
 ###### 22 
 Then He said to the disciples, "The days will come when you will desire to see one of the days of the Son of Man, and you will not see _it._ 
 
 ###### 23 
-And they will say to you, [^h]'Look here!' or 'Look there!' Do not go after _them_ or follow _them._ 
+And they will say to you, 'Look here!' or 'Look there!' Do not go after _them_ or follow _them._ 
 
 ###### 24 
 For as the lightning that flashes out of one _part_ under heaven shines to the other _part_ under heaven, so also the Son of Man will be in His day. 
@@ -100,7 +100,7 @@ but on the day that Lot went out of Sodom it rained fire and brimstone from heav
 Even so will it be in the day when the Son of Man is revealed. 
 
 ###### 31 
-"In that day, he who is on the housetop, and his [^i]goods _are_ in the house, let him not come down to take them away. And likewise the one who is in the field, let him not turn back. 
+"In that day, he who is on the housetop, and his goods _are_ in the house, let him not come down to take them away. And likewise the one who is in the field, let him not turn back. 
 
 ###### 32 
 Remember Lot's wife. 
@@ -109,13 +109,13 @@ Remember Lot's wife.
 Whoever seeks to save his life will lose it, and whoever loses his life will preserve it. 
 
 ###### 34 
-I tell you, in that night there will be two [^j]_men_ in one bed: the one will be taken and the other will be left. 
+I tell you, in that night there will be two _men_ in one bed: the one will be taken and the other will be left. 
 
 ###### 35 
 Two _women_ will be grinding together: the one will be taken and the other left. 
 
 ###### 36 
-[^k]Two _men_ will be in the field: the one will be taken and the other left." 
+Two _men_ will be in the field: the one will be taken and the other left." 
 
 ###### 37 
 And they answered and said to Him, "Where, Lord?" So He said to them, "Wherever the body is, there the eagles will be gathered together."

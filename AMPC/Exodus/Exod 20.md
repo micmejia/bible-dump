@@ -301,7 +301,7 @@ You shall not commit murder.
 
 
 
-You shall not commit [^a]adultery. 
+You shall not commit adultery. 
 
 
 

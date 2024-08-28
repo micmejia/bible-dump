@@ -139,7 +139,7 @@ Bigla nilang nakita sina Moises at Elias na nakikipag-usap kay Jesus.
 
 
 
-Sinabi ni Pedro kay Jesus, "Panginoon, mabutiʼt narito kami.[^a] Kung gusto nʼyo po, gagawa ako ng tatlong kubol: isa para sa inyo, isa para kay Moises at isa para kay Elias." 
+Sinabi ni Pedro kay Jesus, "Panginoon, mabutiʼt narito kami. Kung gusto nʼyo po, gagawa ako ng tatlong kubol: isa para sa inyo, isa para kay Moises at isa para kay Elias." 
 
 
 
@@ -865,7 +865,7 @@ Sumagot si Pedro, "Oo, nagbabayad siya." Nang makabalik si Pedro sa tinutuluyan 
 
 
 
-Sumagot si Pedro, "Sa ibang tao po." Sinabi ni Jesus, "Kung ganoon, nangangahulugan na hindi kailangang magbayad ng buwis ang mga anak.[^b] 
+Sumagot si Pedro, "Sa ibang tao po." Sinabi ni Jesus, "Kung ganoon, nangangahulugan na hindi kailangang magbayad ng buwis ang mga anak. 
 
 
 
@@ -898,4 +898,4 @@ Sumagot si Pedro, "Sa ibang tao po." Sinabi ni Jesus, "Kung ganoon, nangangahulu
 
 
 
-Pero kung hindi tayo magbabayad, baka sumama ang loob nila sa atin.[^c] Kaya pumunta ka sa lawa at mamingwit. Ibuka mo ang bibig ng unang isdang mahuhuli mo at makikita mo roon ang perang sapat na pambayad sa buwis nating dalawa. Kunin mo ito at ibayad sa mga nangongolekta ng buwis para sa templo."
+Pero kung hindi tayo magbabayad, baka sumama ang loob nila sa atin. Kaya pumunta ka sa lawa at mamingwit. Ibuka mo ang bibig ng unang isdang mahuhuli mo at makikita mo roon ang perang sapat na pambayad sa buwis nating dalawa. Kunin mo ito at ibayad sa mga nangongolekta ng buwis para sa templo."

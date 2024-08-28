@@ -19,13 +19,13 @@ older women as mothers, younger women as sisters, with all purity. ## Honor True
 Honor widows who are really widows. 
 
 ###### 4 
-But if any widow has children or grandchildren, let them first learn to show piety at home and to repay their parents; for this is [^a]good and acceptable before God. 
+But if any widow has children or grandchildren, let them first learn to show piety at home and to repay their parents; for this is good and acceptable before God. 
 
 ###### 5 
 Now she who is really a widow, and left alone, trusts in God and continues in supplications and prayers night and day. 
 
 ###### 6 
-But she who lives in [^b]pleasure is dead while she lives. 
+But she who lives in pleasure is dead while she lives. 
 
 ###### 7 
 And these things command, that they may be blameless. 
@@ -40,10 +40,10 @@ Do not let a widow under sixty years old be taken into the number, _and not unle
 well reported for good works: if she has brought up children, if she has lodged strangers, if she has washed the saints' feet, if she has relieved the afflicted, if she has diligently followed every good work. 
 
 ###### 11 
-But [^c]refuse _the_ younger widows; for when they have begun to grow wanton against Christ, they desire to marry, 
+But refuse _the_ younger widows; for when they have begun to grow wanton against Christ, they desire to marry, 
 
 ###### 12 
-having condemnation because they have cast off their first [^d]faith. 
+having condemnation because they have cast off their first faith. 
 
 ###### 13 
 And besides they learn _to be_ idle, wandering about from house to house, and not only idle but also gossips and busybodies, saying things which they ought not. 
@@ -55,7 +55,7 @@ Therefore I desire that _the_ younger _widows_ marry, bear children, manage the 
 For some have already turned aside after Satan. 
 
 ###### 16 
-If any believing [^e]man or woman has widows, let them [^f]relieve them, and do not let the church be burdened, that it may relieve those who are really widows. ## Honor the Elders 
+If any believing man or woman has widows, let them relieve them, and do not let the church be burdened, that it may relieve those who are really widows. ## Honor the Elders 
 
 ###### 17 
 Let the elders who rule well be counted worthy of double honor, especially those who labor in the word and doctrine. 
@@ -70,13 +70,13 @@ Do not receive an accusation against an elder except from two or three witnesses
 Those who are sinning rebuke in the presence of all, that the rest also may fear. 
 
 ###### 21 
-I charge _you_ before God and the Lord Jesus Christ and the [^g]elect angels that you observe these things without prejudice, doing nothing with partiality. 
+I charge _you_ before God and the Lord Jesus Christ and the elect angels that you observe these things without prejudice, doing nothing with partiality. 
 
 ###### 22 
 Do not lay hands on anyone hastily, nor share in other people's sins; keep yourself pure. 
 
 ###### 23 
-No longer drink only water, but use a little wine for your stomach's sake and your frequent [^h]infirmities. 
+No longer drink only water, but use a little wine for your stomach's sake and your frequent infirmities. 
 
 ###### 24 
 Some men's sins are clearly evident, preceding _them_ to judgment, but those of some _men_ follow later. 

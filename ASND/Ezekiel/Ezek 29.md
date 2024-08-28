@@ -337,7 +337,7 @@ Magiging mapanglaw ang Egipto at malalaman ninyong ako ang Panginoon. "At dahil 
 
 
 
-kalaban kita at ang ilog mo. Wawasakin ko ang Egipto at magiging mapanglaw ito mula sa Migdol papuntang Aswan,[^a] hanggang sa hangganan ng Etiopia.[^b] 
+kalaban kita at ang ilog mo. Wawasakin ko ang Egipto at magiging mapanglaw ito mula sa Migdol papuntang Aswan, hanggang sa hangganan ng Etiopia. 
 
 
 

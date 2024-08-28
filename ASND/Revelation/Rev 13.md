@@ -40,7 +40,7 @@ next: ['Rev 14']
 
 
 
-Pagkatapos, may nakita akong halimaw na umaahon sa dagat. Pito ang ulo nito at sampu ang sungay. Bawat sungay nito ay may korona, at sa bawat ulo naman ay may nakasulat na pangalang lumalapastangan sa Dios.[^a] 
+Pagkatapos, may nakita akong halimaw na umaahon sa dagat. Pito ang ulo nito at sampu ang sungay. Bawat sungay nito ay may korona, at sa bawat ulo naman ay may nakasulat na pangalang lumalapastangan sa Dios. 
 
 
 
@@ -238,7 +238,7 @@ Nagsalita siya ng kalapastanganan laban sa Dios, laban sa pangalan ng Dios, sa k
 
 
 
-Hinayaan din ang halimaw na makipaglaban at talunin ang mga pinabanal[^b] <i class="trans-change">ng Dios_. At binigyan din siya ng kapangyarihang maghari sa lahat ng <i class="trans-change">tao sa mundo, anumang_ angkan, lahi, wika at bansa. 
+Hinayaan din ang halimaw na makipaglaban at talunin ang mga pinabanal <i class="trans-change">ng Dios_. At binigyan din siya ng kapangyarihang maghari sa lahat ng <i class="trans-change">tao sa mundo, anumang_ angkan, lahi, wika at bansa. 
 
 
 

@@ -13,7 +13,7 @@ next: ['Job 8']
 "_Is there_ not a time of hard service for man on earth? _Are not_ his days also like the days of a hired man? 
 
 ###### 2 
-Like a servant who [^a]earnestly desires the shade, And like a hired man who eagerly looks for his wages, 
+Like a servant who earnestly desires the shade, And like a hired man who eagerly looks for his wages, 
 
 ###### 3 
 So I have been allotted months of futility, And wearisome nights have been appointed to me. 
@@ -52,22 +52,22 @@ When I say, 'My bed will comfort me, My couch will ease my complaint,'
 Then You scare me with dreams And terrify me with visions, 
 
 ###### 15 
-So that my soul chooses strangling _And_ death rather than [^b]my body. 
+So that my soul chooses strangling _And_ death rather than my body. 
 
 ###### 16 
-I loathe _my life;_ I would not live forever. Let me alone, For my days _are but_ [^c]a breath. 
+I loathe _my life;_ I would not live forever. Let me alone, For my days _are but_ a breath. 
 
 ###### 17 
 "What _is_ man, that You should exalt him, _That_ You should set Your heart on him, 
 
 ###### 18 
-That You should [^d]visit him every morning, _And_ test him every moment? 
+That You should visit him every morning, _And_ test him every moment? 
 
 ###### 19 
 How long? Will You not look away from me, And let me alone till I swallow my saliva? 
 
 ###### 20 
-Have I sinned? What have I done to You, O watcher of men? Why have You set me as Your target, So that I am a burden [^e]to myself? 
+Have I sinned? What have I done to You, O watcher of men? Why have You set me as Your target, So that I am a burden to myself? 
 
 ###### 21 
 Why then do You not pardon my transgression, And take away my iniquity? For now I will lie down in the dust, And You will seek me diligently, But I _will_ no longer _be._"

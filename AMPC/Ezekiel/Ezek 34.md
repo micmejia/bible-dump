@@ -490,7 +490,7 @@ Therefore will I rescue My flock, and they shall no more be a prey; and I will j
 
 
 
-And I will raise up over them one Shepherd and He shall feed them, even My Servant [^a]David; He shall feed them and He shall be their Shepherd. 
+And I will raise up over them one Shepherd and He shall feed them, even My Servant David; He shall feed them and He shall be their Shepherd. 
 
 
 
@@ -595,7 +595,7 @@ And the tree of the field shall yield its fruit and the earth shall yield its in
 
 
 
-And they shall no more be a prey to the nations, nor shall the beasts of the earth devour them, but they shall dwell safely and none shall make them afraid [in the [^b]day of the Messiah's reign]. 
+And they shall no more be a prey to the nations, nor shall the beasts of the earth devour them, but they shall dwell safely and none shall make them afraid [in the day of the Messiah's reign]. 
 
 
 

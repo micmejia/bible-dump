@@ -322,7 +322,7 @@ I have not obeyed the voice of my teachers nor submitted _and_ consented to thos
 
 
 
-[^a]Drink waters out of your own cistern [of a pure marriage relationship], and fresh running waters out of your own well. 
+Drink waters out of your own cistern [of a pure marriage relationship], and fresh running waters out of your own well. 
 
 
 

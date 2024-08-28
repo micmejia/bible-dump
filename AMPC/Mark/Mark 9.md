@@ -91,7 +91,7 @@ And His garments became glistening, intensely white, as no fuller (cloth dresser
 
 
 
-And Elijah appeared [there] to them, accompanied by Moses, and they were [^a]holding [a protracted] conversation with Jesus. 
+And Elijah appeared [there] to them, accompanied by Moses, and they were holding [a protracted] conversation with Jesus. 
 
 
 
@@ -112,7 +112,7 @@ And Elijah appeared [there] to them, accompanied by Moses, and they were [^a]hol
 
 
 
-And [^b]Peter took up the conversation, saying, Master, it is good _and_ suitable _and_ beautiful for us to be here. Let us make three booths (tents)--one for You and one for Moses and one for Elijah. 
+And Peter took up the conversation, saying, Master, it is good _and_ suitable _and_ beautiful for us to be here. Let us make three booths (tents)--one for You and one for Moses and one for Elijah. 
 
 
 
@@ -133,7 +133,7 @@ And [^b]Peter took up the conversation, saying, Master, it is good _and_ suitabl
 
 
 
-For he did not [really] know what to say, for they were in a violent fright ([^c]aghast with dread). 
+For he did not [really] know what to say, for they were in a violent fright (aghast with dread). 
 
 
 
@@ -154,7 +154,7 @@ For he did not [really] know what to say, for they were in a violent fright ([^c
 
 
 
-And a cloud threw a shadow upon them, and a voice came out of the cloud, saying, This is My Son, the [[^d]most dearworthy] Beloved One. Be [^e]constantly listening to _and_ obeying Him! 
+And a cloud threw a shadow upon them, and a voice came out of the cloud, saying, This is My Son, the [most dearworthy] Beloved One. Be constantly listening to _and_ obeying Him! 
 
 
 
@@ -196,7 +196,7 @@ And looking around, they suddenly no longer saw anyone with them except Jesus on
 
 
 
-And as they were coming back down the mountain, He admonished _and_ [^f]expressly ordered them to tell no one what they had seen until the Son of Man should rise from among the dead. 
+And as they were coming back down the mountain, He admonished _and_ expressly ordered them to tell no one what they had seen until the Son of Man should rise from among the dead. 
 
 
 
@@ -259,7 +259,7 @@ And they asked Him, Why do the scribes say that it is necessary for Elijah to co
 
 
 
-And He said to them, Elijah, it is true, does come first to restore all things _and_ [^g]set them to rights. And how is it written of the Son of Man that He will suffer many things _and_ be utterly despised _and_ be treated with contempt _and_ rejected? 
+And He said to them, Elijah, it is true, does come first to restore all things _and_ set them to rights. And how is it written of the Son of Man that He will suffer many things _and_ be utterly despised _and_ be treated with contempt _and_ rejected? 
 
 
 
@@ -322,7 +322,7 @@ And when they came to the [nine] disciples, they saw a great crowd around them a
 
 
 
-And immediately all the crowd, when they saw Jesus [[^h]returning from the holy mount, His face and person yet glistening], they were greatly amazed and ran up to Him [and] greeted Him. 
+And immediately all the crowd, when they saw Jesus [returning from the holy mount, His face and person yet glistening], they were greatly amazed and ran up to Him [and] greeted Him. 
 
 
 
@@ -385,7 +385,7 @@ And one of the throng replied to Him, Teacher, I brought my son to You, for he h
 
 
 
-And wherever it lays hold of him [so as to make him its own], it dashes him down _and_ convulses him, and he foams [at the mouth] and grinds his teeth, _and_ he [[^i]falls into a motionless stupor and] is wasting away. And I asked Your disciples to drive it out, and they were not able [to do it]. 
+And wherever it lays hold of him [so as to make him its own], it dashes him down _and_ convulses him, and he foams [at the mouth] and grinds his teeth, _and_ he [falls into a motionless stupor and] is wasting away. And I asked Your disciples to drive it out, and they were not able [to do it]. 
 
 
 
@@ -406,7 +406,7 @@ And wherever it lays hold of him [so as to make him its own], it dashes him down
 
 
 
-And He answered them, O unbelieving generation [without any faith]! How long [^j]shall I [have to do] with you? How long am I to bear with you? Bring him to Me. 
+And He answered them, O unbelieving generation [without any faith]! How long shall I [have to do] with you? How long am I to bear with you? Bring him to Me. 
 
 
 
@@ -511,7 +511,7 @@ And Jesus said, [You say to Me], If You can do anything? [Why,] all things can b
 
 
 
-At once the father of the boy gave [an [^k]eager, [^l]piercing, inarticulate] cry _with tears_, and he said, Lord, I believe! [Constantly] help my [^m]weakness of faith! 
+At once the father of the boy gave [an eager, piercing, inarticulate] cry _with tears_, and he said, Lord, I believe! [Constantly] help my weakness of faith! 
 
 
 
@@ -574,7 +574,7 @@ And after giving a [hoarse, clamoring, fear-stricken] shriek of anguish and conv
 
 
 
-But Jesus took [[^n]a strong grip of] his hand and began lifting him up, and he stood. 
+But Jesus took [a strong grip of] his hand and began lifting him up, and he stood. 
 
 
 
@@ -616,7 +616,7 @@ And when He had gone indoors, His disciples asked Him privately, Why could not w
 
 
 
-And He replied to them, This kind cannot be driven out by anything but prayer [^o]_and fasting_. 
+And He replied to them, This kind cannot be driven out by anything but prayer _and fasting_. 
 
 
 
@@ -658,7 +658,7 @@ They went on from there and passed along through Galilee. And He did not wish to
 
 
 
-For He was [engaged for the time being in] teaching His disciples. He said to them, The Son of Man is being delivered into the hands of men, and they will put Him to death; and when He has been killed, after three days He will rise [[^p]from death]. 
+For He was [engaged for the time being in] teaching His disciples. He said to them, The Son of Man is being delivered into the hands of men, and they will put Him to death; and when He has been killed, after three days He will rise [from death]. 
 
 
 
@@ -805,7 +805,7 @@ Whoever in My name _and_ for My sake accepts _and_ receives _and_ welcomes one s
 
 
 
-John said to Him, Teacher, we saw a man who does not follow along with us driving out demons in Your name, and we forbade him to do it, because he [^q]is not one of our band [of Your disciples]. 
+John said to Him, Teacher, we saw a man who does not follow along with us driving out demons in Your name, and we forbade him to do it, because he is not one of our band [of Your disciples]. 
 
 
 
@@ -889,7 +889,7 @@ For I tell you truly, whoever gives you a cup of water to drink because you belo
 
 
 
-And whoever causes one of these little ones (these believers) who [^r]acknowledge _and_ cleave to Me to stumble _and_ sin, it would be better (more profitable and wholesome) for him if a [huge] millstone were hung about his neck, and he were thrown into the sea. 
+And whoever causes one of these little ones (these believers) who acknowledge _and_ cleave to Me to stumble _and_ sin, it would be better (more profitable and wholesome) for him if a [huge] millstone were hung about his neck, and he were thrown into the sea. 
 
 
 
@@ -910,7 +910,7 @@ And whoever causes one of these little ones (these believers) who [^r]acknowledg
 
 
 
-And if your hand puts a stumbling block before you _and_ causes you to sin, cut it off! It is more profitable _and_ wholesome for you to go into life [[^s]that is really worthwhile] maimed than with two hands to go to hell (Gehenna), into the fire that cannot be put out.[^t] 
+And if your hand puts a stumbling block before you _and_ causes you to sin, cut it off! It is more profitable _and_ wholesome for you to go into life [that is really worthwhile] maimed than with two hands to go to hell (Gehenna), into the fire that cannot be put out. 
 
 
 
@@ -931,7 +931,7 @@ And if your hand puts a stumbling block before you _and_ causes you to sin, cut 
 
 
 
-And if your foot is a cause of stumbling _and_ sin to you, cut it off! It is more profitable _and_ wholesome for you to enter into life [that is really worthwhile] crippled than, having two feet, to be cast into hell (Gehenna)[^u]. 
+And if your foot is a cause of stumbling _and_ sin to you, cut it off! It is more profitable _and_ wholesome for you to enter into life [that is really worthwhile] crippled than, having two feet, to be cast into hell (Gehenna). 
 
 
 
@@ -973,7 +973,7 @@ And if your eye causes you to stumble _and_ sin, pluck it out! It is more profit
 
 
 
-Where their worm [[^v]which preys on the inhabitants and is a symbol of the wounds inflicted on the man himself by his sins] does not die, and the fire is not put out. 
+Where their worm [which preys on the inhabitants and is a symbol of the wounds inflicted on the man himself by his sins] does not die, and the fire is not put out. 
 
 
 

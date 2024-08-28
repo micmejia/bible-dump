@@ -406,7 +406,7 @@ And they called out to inquire whether Simon who was surnamed Peter was staying 
 
 
 
-And while Peter was [^a]earnestly revolving the vision in his mind _and_ meditating on it, the [Holy] Spirit said to him, Behold, three men are looking for you! 
+And while Peter was earnestly revolving the vision in his mind _and_ meditating on it, the [Holy] Spirit said to him, Behold, three men are looking for you! 
 
 
 
@@ -469,7 +469,7 @@ Then Peter went down to the men and said, I am the man you seek; what is the pur
 
 
 
-And they said, Cornelius, a centurion (captain) who is just _and_ upright _and_ in right standing with God, being God-fearing _and_ obedient and well spoken of by the whole Jewish nation, has been instructed by a holy angel to send for you to come to his house; and he [^b]has received in answer [to prayer] a warning to listen to _and_ act upon what you have to say. 
+And they said, Cornelius, a centurion (captain) who is just _and_ upright _and_ in right standing with God, being God-fearing _and_ obedient and well spoken of by the whole Jewish nation, has been instructed by a holy angel to send for you to come to his house; and he has received in answer [to prayer] a warning to listen to _and_ act upon what you have to say. 
 
 
 
@@ -658,7 +658,7 @@ And Cornelius said, This is now the fourth day since about this time I was obser
 
 
 
-And he said, Cornelius, your prayer has been heard _and_ harkened to, and your donations to the poor have been known _and_ [^c]preserved before God [so that He heeds and is about to help you]. 
+And he said, Cornelius, your prayer has been heard _and_ harkened to, and your donations to the poor have been known _and_ preserved before God [so that He heeds and is about to help you]. 
 
 
 
@@ -700,7 +700,7 @@ Send therefore to Joppa and ask for Simon who is surnamed Peter; he is staying i
 
 
 
-So at once I sent for you, and you [being a Jew] have done a kind _and_ [^d]courteous _and_ handsome thing in coming. Now then, we are all present in the sight of God to listen to all that you have been instructed by the Lord to say. 
+So at once I sent for you, and you [being a Jew] have done a kind _and_ courteous _and_ handsome thing in coming. Now then, we are all present in the sight of God to listen to all that you have been instructed by the Lord to say. 
 
 
 
@@ -742,7 +742,7 @@ And Peter opened his mouth and said: Most certainly _and_ thoroughly I now perce
 
 
 
-But in every nation he who venerates _and_ has a reverential fear for God, treating Him with worshipful obedience and living uprightly, is acceptable to Him _and_ [^e]sure of being received and welcomed [by Him]. 
+But in every nation he who venerates _and_ has a reverential fear for God, treating Him with worshipful obedience and living uprightly, is acceptable to Him _and_ sure of being received and welcomed [by Him]. 
 
 
 
@@ -805,7 +805,7 @@ The [same] message which was proclaimed throughout all Judea, starting from Gali
 
 
 
-How God anointed _and_ consecrated Jesus of Nazareth with the [Holy] Spirit and with strength _and_ ability _and_ power; how He went about doing good and, [^f]in particular, curing all who were harassed _and_ oppressed by [the power of] the devil, for God was with Him. 
+How God anointed _and_ consecrated Jesus of Nazareth with the [Holy] Spirit and with strength _and_ ability _and_ power; how He went about doing good and, in particular, curing all who were harassed _and_ oppressed by [the power of] the devil, for God was with Him. 
 
 
 

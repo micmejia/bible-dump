@@ -436,7 +436,7 @@ Sinabi niya sa akin, "Daniel, huwag kang matakot. Sapagkat sa unang araw pa lama
 
 
 
-Pero hindi ako nakarating agad dito dahil sa loob ng 21 araw ay hinadlangan ako ng pinuno[^a] ng kaharian ng Persia. Mabuti na lang at tinulungan ako ni Micael na pinuno ng mga anghel dahil ako lang ang nakikipaglaban sa pinuno ng Persia. 
+Pero hindi ako nakarating agad dito dahil sa loob ng 21 araw ay hinadlangan ako ng pinuno ng kaharian ng Persia. Mabuti na lang at tinulungan ako ni Micael na pinuno ng mga anghel dahil ako lang ang nakikipaglaban sa pinuno ng Persia. 
 
 
 
@@ -667,7 +667,7 @@ Sinabi niya sa akin, "Ikaw na mahal ng Dios, huwag kang matakot o mag-alala. Mag
 
 
 
-Sumagot siya, "Kinakailangang bumalik ako sa pakikipaglaban sa pinuno ng Persia. Pagkatapos, darating naman ang pinuno[^b] ng Grecia. Pero alam mo ba kung bakit ako pumarito sa iyo? 
+Sumagot siya, "Kinakailangang bumalik ako sa pakikipaglaban sa pinuno ng Persia. Pagkatapos, darating naman ang pinuno ng Grecia. Pero alam mo ba kung bakit ako pumarito sa iyo? 
 
 
 
@@ -700,4 +700,4 @@ Sumagot siya, "Kinakailangang bumalik ako sa pakikipaglaban sa pinuno ng Persia.
 
 
 
-Naparito ako para ipaliwanag sa iyo ang nakasulat sa Aklat ng Katotohanan. Sa aking pakikipaglaban, walang ibang tumulong sa akin kundi si Micael lamang, ang pinuno[^c] ng Israel.
+Naparito ako para ipaliwanag sa iyo ang nakasulat sa Aklat ng Katotohanan. Sa aking pakikipaglaban, walang ibang tumulong sa akin kundi si Micael lamang, ang pinuno ng Israel.

@@ -217,7 +217,7 @@ Will you steal, murder, commit adultery, swear falsely, burn incense to Baal, an
 
 
 
-And [then dare to] come and stand before Me in this house, which is called by My [^a]Name, and say, [By the discharge of this religious formality] we are set free!--only to go on with this wickedness _and_ these abominations? 
+And [then dare to] come and stand before Me in this house, which is called by My Name, and say, [By the discharge of this religious formality] we are set free!--only to go on with this wickedness _and_ these abominations? 
 
 
 
@@ -385,7 +385,7 @@ Do you not see what they are doing in the cities of Judah and in the streets of 
 
 
 
-The children gather wood, the fathers kindle the fire, and the women knead the dough, to make cakes for the [^b]queen of heaven; and they pour out drink offerings to other gods, that they may provoke Me to anger! 
+The children gather wood, the fathers kindle the fire, and the women knead the dough, to make cakes for the queen of heaven; and they pour out drink offerings to other gods, that they may provoke Me to anger! 
 
 
 

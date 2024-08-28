@@ -175,7 +175,7 @@ And the Lord shall save _and_ give victory to the tents of Judah first, that the
 
 
 
-In that day will the Lord guard _and_ defend the inhabitants of Jerusalem, and he who is [spiritually] feeble _and_ stumbles among them in that day [of persecution] shall become [strong and noble] like David; and the house of David [shall maintain its supremacy] like God, like the [^a]Angel of the Lord Who is before them. 
+In that day will the Lord guard _and_ defend the inhabitants of Jerusalem, and he who is [spiritually] feeble _and_ stumbles among them in that day [of persecution] shall become [strong and noble] like David; and the house of David [shall maintain its supremacy] like God, like the Angel of the Lord Who is before them. 
 
 
 
@@ -238,7 +238,7 @@ And I will pour out upon the house of David and upon the inhabitants of Jerusale
 
 
 
-In that day shall there be a great mourning in Jerusalem, as the mourning of [the city of] Hadadrimmon in the Valley of Megiddo [over beloved King [^b]Josiah]. 
+In that day shall there be a great mourning in Jerusalem, as the mourning of [the city of] Hadadrimmon in the Valley of Megiddo [over beloved King Josiah]. 
 
 
 

@@ -22,19 +22,19 @@ So all went to be registered, everyone to his own city.
 Joseph also went up from Galilee, out of the city of Nazareth, into Judea, to the city of David, which is called Bethlehem, because he was of the house and lineage of David, 
 
 ###### 5 
-to be registered with Mary, his betrothed [^a]wife, who was with child. 
+to be registered with Mary, his betrothed wife, who was with child. 
 
 ###### 6 
 So it was, that while they were there, the days were completed for her to be delivered. 
 
 ###### 7 
-And she brought forth her firstborn Son, and wrapped Him in swaddling cloths, and laid Him in a [^b]manger, because there was no room for them in the inn. ## Glory in the Highest 
+And she brought forth her firstborn Son, and wrapped Him in swaddling cloths, and laid Him in a manger, because there was no room for them in the inn. ## Glory in the Highest 
 
 ###### 8 
 Now there were in the same country shepherds living out in the fields, keeping watch over their flock by night. 
 
 ###### 9 
-And [^c]behold, an angel of the Lord stood before them, and the glory of the Lord shone around them, and they were greatly afraid. 
+And behold, an angel of the Lord stood before them, and the glory of the Lord shone around them, and they were greatly afraid. 
 
 ###### 10 
 Then the angel said to them, "Do not be afraid, for behold, I bring you good tidings of great joy which will be to all people. 
@@ -43,13 +43,13 @@ Then the angel said to them, "Do not be afraid, for behold, I bring you good tid
 For there is born to you this day in the city of David a Savior, who is Christ the Lord. 
 
 ###### 12 
-And this _will be_ the sign to you: You will find a Babe wrapped in swaddling cloths, lying in a [^d]manger." 
+And this _will be_ the sign to you: You will find a Babe wrapped in swaddling cloths, lying in a manger." 
 
 ###### 13 
 And suddenly there was with the angel a multitude of the heavenly host praising God and saying: 
 
 ###### 14 
-"Glory to God in the highest, And on earth peace, goodwill[^e] toward men!" 
+"Glory to God in the highest, And on earth peace, goodwill toward men!" 
 
 ###### 15 
 So it was, when the angels had gone away from them into heaven, that the shepherds said to one another, "Let us now go to Bethlehem and see this thing that has come to pass, which the Lord has made known to us." 
@@ -58,7 +58,7 @@ So it was, when the angels had gone away from them into heaven, that the shepher
 And they came with haste and found Mary and Joseph, and the Babe lying in a manger. 
 
 ###### 17 
-Now when they had seen _Him,_ they made [^f]widely known the saying which was told them concerning this Child. 
+Now when they had seen _Him,_ they made widely known the saying which was told them concerning this Child. 
 
 ###### 18 
 And all those who heard _it_ marveled at those things which were told them by the shepherds. 
@@ -70,7 +70,7 @@ But Mary kept all these things and pondered _them_ in her heart.
 Then the shepherds returned, glorifying and praising God for all the things that they had heard and seen, as it was told them. ## Circumcision of Jesus 
 
 ###### 21 
-And when eight days were completed [^g]for the circumcision of the Child, His name was called Jesus, the name given by the angel before He was conceived in the womb. ## Jesus Presented in the Temple 
+And when eight days were completed for the circumcision of the Child, His name was called Jesus, the name given by the angel before He was conceived in the womb. ## Jesus Presented in the Temple 
 
 ###### 22 
 Now when the days of her purification according to the law of Moses were completed, they brought Him to Jerusalem to present _Him_ to the Lord 
@@ -106,7 +106,7 @@ Which You have prepared before the face of all peoples,
 A light to _bring_ revelation to the Gentiles, And the glory of Your people Israel." 
 
 ###### 33 
-[^h]And Joseph and His mother marveled at those things which were spoken of Him. 
+And Joseph and His mother marveled at those things which were spoken of Him. 
 
 ###### 34 
 Then Simeon blessed them, and said to Mary His mother, "Behold, this _Child_ is destined for the fall and rising of many in Israel, and for a sign which will be spoken against 
@@ -118,16 +118,16 @@ Then Simeon blessed them, and said to Mary His mother, "Behold, this _Child_ is 
 Now there was one, Anna, a prophetess, the daughter of Phanuel, of the tribe of Asher. She was of a great age, and had lived with a husband seven years from her virginity; 
 
 ###### 37 
-and this woman _was_ a widow [^i]of about eighty-four years, who did not depart from the temple, but served _God_ with fastings and prayers night and day. 
+and this woman _was_ a widow of about eighty-four years, who did not depart from the temple, but served _God_ with fastings and prayers night and day. 
 
 ###### 38 
-And coming in that instant she gave thanks to [^j]the Lord, and spoke of Him to all those who looked for redemption in Jerusalem. ## The Family Returns to Nazareth 
+And coming in that instant she gave thanks to the Lord, and spoke of Him to all those who looked for redemption in Jerusalem. ## The Family Returns to Nazareth 
 
 ###### 39 
 So when they had performed all things according to the law of the Lord, they returned to Galilee, to their _own_ city, Nazareth. 
 
 ###### 40 
-And the Child grew and became strong [^k]in spirit, filled with wisdom; and the grace of God was upon Him. ## The Boy Jesus Amazes the Scholars 
+And the Child grew and became strong in spirit, filled with wisdom; and the grace of God was upon Him. ## The Boy Jesus Amazes the Scholars 
 
 ###### 41 
 His parents went to Jerusalem every year at the Feast of the Passover. 
@@ -136,7 +136,7 @@ His parents went to Jerusalem every year at the Feast of the Passover.
 And when He was twelve years old, they went up to Jerusalem according to the custom of the feast. 
 
 ###### 43 
-When they had finished the days, as they returned, the Boy Jesus lingered behind in Jerusalem. And [^l]Joseph and His mother did not know _it;_ 
+When they had finished the days, as they returned, the Boy Jesus lingered behind in Jerusalem. And Joseph and His mother did not know _it;_ 
 
 ###### 44 
 but supposing Him to have been in the company, they went a day's journey, and sought Him among _their_ relatives and acquaintances. 
@@ -160,7 +160,7 @@ And He said to them, "Why did you seek Me? Did you not know that I must be about
 But they did not understand the statement which He spoke to them. ## Jesus Advances in Wisdom and Favor 
 
 ###### 51 
-Then He went down with them and came to Nazareth, and was [^m]subject to them, but His mother kept all these things in her heart. 
+Then He went down with them and came to Nazareth, and was subject to them, but His mother kept all these things in her heart. 
 
 ###### 52 
 And Jesus increased in wisdom and stature, and in favor with God and men.

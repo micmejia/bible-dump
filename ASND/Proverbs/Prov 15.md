@@ -139,7 +139,7 @@ Nakikita ng Panginoon ang lahat ng lugar. Minamasdan niya ang ginagawa ng masasa
 
 
 
-Ang malumanay na pananalita ay nakapagpapasigla ng kalooban ng tao,[^a] ngunit ang masakit na salita ay nakakasugat ng puso. 
+Ang malumanay na pananalita ay nakapagpapasigla ng kalooban ng tao, ngunit ang masakit na salita ay nakakasugat ng puso. 
 
 
 
@@ -205,7 +205,7 @@ Hindi pinapansin ng taong hangal ang pagtutuwid ng kanyang ama, ngunit ang taong
 
 
 
-Dadami ang kayamanan sa tahanan ng mga matuwid, ngunit anumang pag-aari ng masasama ay mawawala.[^b] 
+Dadami ang kayamanan sa tahanan ng mga matuwid, ngunit anumang pag-aari ng masasama ay mawawala. 
 
 
 

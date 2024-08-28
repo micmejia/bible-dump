@@ -27,7 +27,7 @@ next: ['Eph 2']
 
 
 
-Paul, an apostle (special messenger) of Christ Jesus (the Messiah), by the divine will (the purpose and the choice of God) to the saints (the consecrated, set-apart ones) [^a]at Ephesus who are also faithful _and_ loyal _and_ steadfast in Christ Jesus: 
+Paul, an apostle (special messenger) of Christ Jesus (the Messiah), by the divine will (the purpose and the choice of God) to the saints (the consecrated, set-apart ones) at Ephesus who are also faithful _and_ loyal _and_ steadfast in Christ Jesus: 
 
 
 
@@ -111,7 +111,7 @@ Even as [in His love] He chose us [actually picked us out for Himself as His own
 
 
 
-For He foreordained us (destined us, planned in love for us) to be adopted (revealed) as His own children through Jesus Christ, in accordance with the purpose of His will [[^b]because it pleased Him and was His kind intent]-- 
+For He foreordained us (destined us, planned in love for us) to be adopted (revealed) as His own children through Jesus Christ, in accordance with the purpose of His will [because it pleased Him and was His kind intent]-- 
 
 
 
@@ -195,7 +195,7 @@ Which He lavished upon us in every kind of wisdom and understanding (practical i
 
 
 
-Making known to us the mystery (secret) of His will (of His plan, of His purpose). [And it is this:] In accordance with His good pleasure (His merciful intention) which He had previously purposed _and_ set forth in [^c]Him, 
+Making known to us the mystery (secret) of His will (of His plan, of His purpose). [And it is this:] In accordance with His good pleasure (His merciful intention) which He had previously purposed _and_ set forth in Him, 
 
 
 

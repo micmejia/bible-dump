@@ -40,7 +40,7 @@ next: ['Gen 19']
 
 
 
-Nagpakita ang Panginoon kay Abraham nang nakatira pa siya malapit sa malalaking puno[^a] ni Mamre. Mainit ang araw noon, at si Abraham ay nakaupo sa pintuan ng kanyang tolda. 
+Nagpakita ang Panginoon kay Abraham nang nakatira pa siya malapit sa malalaking puno ni Mamre. Mainit ang araw noon, at si Abraham ay nakaupo sa pintuan ng kanyang tolda. 
 
 
 
@@ -106,7 +106,7 @@ Habang nagmamasid siya, may nakita siyang tatlong lalaki na nakatayo sa di-kalay
 
 
 
-At sinabi, "Panginoon,[^b] kung maaari, dumaan po muna kayo rito sa amin. 
+At sinabi, "Panginoon, kung maaari, dumaan po muna kayo rito sa amin. 
 
 
 

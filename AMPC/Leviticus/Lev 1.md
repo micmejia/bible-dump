@@ -27,7 +27,7 @@ next: ['Lev 2']
 
 
 
-The Lord [^a]called to Moses out of the Tent of Meeting, and said to him, 
+The Lord called to Moses out of the Tent of Meeting, and said to him, 
 
 
 
@@ -90,7 +90,7 @@ If his offering is a burnt offering from the herd, he shall offer a male without
 
 
 
-And he shall lay [both] his hands upon the head of the burnt offering [transferring symbolically his guilt to the victim], and it shall be [^b]an acceptable atonement for him. 
+And he shall lay [both] his hands upon the head of the burnt offering [transferring symbolically his guilt to the victim], and it shall be an acceptable atonement for him. 
 
 
 

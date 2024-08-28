@@ -271,7 +271,7 @@ May mga binhi namang nahulog sa lupang may matitinik na damo. Lumago ang mga dam
 
 
 
-Ang iba namaʼy nahulog sa mabuting lupa. Tumubo at lumago ang mga ito, at namunga. Ang ibaʼy katamtaman lang ang bunga; ang ibaʼy marami, at ang iba namaʼy napakarami."[^a] 
+Ang iba namaʼy nahulog sa mabuting lupa. Tumubo at lumago ang mga ito, at namunga. Ang ibaʼy katamtaman lang ang bunga; ang ibaʼy marami, at ang iba namaʼy napakarami." 
 
 
 
@@ -304,7 +304,7 @@ Ang iba namaʼy nahulog sa mabuting lupa. Tumubo at lumago ang mga ito, at namun
 
 
 
-Pagkatapos, sinabi ni Jesus, "Kayong mga nakikinig, dapat nʼyo itong pag-isipan."[^b] ## Ang Layunin ng mga Talinghaga 
+Pagkatapos, sinabi ni Jesus, "Kayong mga nakikinig, dapat nʼyo itong pag-isipan." ## Ang Layunin ng mga Talinghaga 
 
 
 
@@ -370,7 +370,7 @@ Nang nakauwi na ang mga tao, tinanong siya ng 12 <i class="trans-change">apostol
 
 
 
-Sinabi ni Jesus sa kanila, "Ipinagkaloob sa inyo <i class="trans-change">na malaman_ ang mga lihim tungkol sa paghahari ng Dios, ngunit sa iba[^c] ay ipinapahayag ito sa pamamagitan ng talinghaga, 
+Sinabi ni Jesus sa kanila, "Ipinagkaloob sa inyo <i class="trans-change">na malaman_ ang mga lihim tungkol sa paghahari ng Dios, ngunit sa iba ay ipinapahayag ito sa pamamagitan ng talinghaga, 
 
 
 
@@ -403,7 +403,7 @@ Sinabi ni Jesus sa kanila, "Ipinagkaloob sa inyo <i class="trans-change">na mala
 
 
 
-upang <i class="trans-change">matupad ang nakasulat sa Kasulatan_, 'Tumingin man sila nang tumingin, hindi sila makakakita. Makinig man sila nang makinig, hindi sila makakaunawa. Dahil kung makakaunawa sila, magsisisi sila sa kanilang kasalanan at patatawarin sila ng Dios.'[^d]" ## Ang Kahulugan ng Talinghaga tungkol sa Manghahasik 
+upang <i class="trans-change">matupad ang nakasulat sa Kasulatan_, 'Tumingin man sila nang tumingin, hindi sila makakakita. Makinig man sila nang makinig, hindi sila makakaunawa. Dahil kung makakaunawa sila, magsisisi sila sa kanilang kasalanan at patatawarin sila ng Dios.'" ## Ang Kahulugan ng Talinghaga tungkol sa Manghahasik 
 
 
 
@@ -667,7 +667,7 @@ Ngunit dahil sa mga alalahanin dito sa mundo, paghahangad na yumaman, at paghaha
 
 
 
-Ngunit ang mabuting lupa na hinasikan ng binhi ay ang mga taong nakikinig ng salita <i class="trans-change">ng Dios_ at tumanggap nito. Kaya namumunga ito <i class="trans-change">sa kanilang buhay_. Ang ibaʼy katamtaman lang ang bunga; ang ibaʼy marami, at ang iba namaʼy napakarami."[^e] ## Ang Talinghaga tungkol sa Ilaw 
+Ngunit ang mabuting lupa na hinasikan ng binhi ay ang mga taong nakikinig ng salita <i class="trans-change">ng Dios_ at tumanggap nito. Kaya namumunga ito <i class="trans-change">sa kanilang buhay_. Ang ibaʼy katamtaman lang ang bunga; ang ibaʼy marami, at ang iba namaʼy napakarami." ## Ang Talinghaga tungkol sa Ilaw 
 
 
 
@@ -733,7 +733,7 @@ Sinabi pa ni Jesus sa kanila, "Walang taong nagsindi ng ilaw at pagkatapos ay ta
 
 
 
-Ganoon din naman, walang nakatagong hindi malalantad, at walang lihim na hindi mabubunyag.[^f] 
+Ganoon din naman, walang nakatagong hindi malalantad, at walang lihim na hindi mabubunyag. 
 
 
 
@@ -766,7 +766,7 @@ Ganoon din naman, walang nakatagong hindi malalantad, at walang lihim na hindi m
 
 
 
-Kayong mga nakikinig, dapat nʼyo itong pag-isipan."[^g] 
+Kayong mga nakikinig, dapat nʼyo itong pag-isipan." 
 
 
 
@@ -799,7 +799,7 @@ Kayong mga nakikinig, dapat nʼyo itong pag-isipan."[^g]
 
 
 
-Sinabi pa niya, "Makinig kayong mabuti sa sinasabi ko. Bibigyan kayo ng Dios ng pang-unawa ayon sa inyong pakikinig,[^h] at dadagdagan pa niya ito. 
+Sinabi pa niya, "Makinig kayong mabuti sa sinasabi ko. Bibigyan kayo ng Dios ng pang-unawa ayon sa inyong pakikinig, at dadagdagan pa niya ito. 
 
 
 
@@ -1030,7 +1030,7 @@ Sinabi pa ni Jesus, "Sa ano kaya maitutulad ang paghahari ng Dios? Sa ano ko kay
 
 
 
-Katulad ito ng isang buto ng mustasa[^i] na siyang pinakamaliit sa lahat ng buto. 
+Katulad ito ng isang buto ng mustasa na siyang pinakamaliit sa lahat ng buto. 
 
 
 

@@ -43,22 +43,22 @@ and the earth opened its mouth and swallowed them up together with Korah when th
 Nevertheless the children of Korah did not die. 
 
 ###### 12 
-The sons of Simeon according to their families _were: of_ [^a]Nemuel, the family of the Nemuelites; _of_ Jamin, the family of the Jaminites; _of_ [^b]Jachin, the family of the Jachinites; 
+The sons of Simeon according to their families _were: of_ Nemuel, the family of the Nemuelites; _of_ Jamin, the family of the Jaminites; _of_ Jachin, the family of the Jachinites; 
 
 ###### 13 
-_of_ [^c]Zerah, the family of the Zarhites; _of_ Shaul, the family of the Shaulites. 
+_of_ Zerah, the family of the Zarhites; _of_ Shaul, the family of the Shaulites. 
 
 ###### 14 
 These _are_ the families of the Simeonites: twenty-two thousand two hundred. 
 
 ###### 15 
-The sons of Gad according to their families _were: of_ [^d]Zephon, the family of the Zephonites; _of_ Haggi, the family of the Haggites; _of_ Shuni, the family of the Shunites; 
+The sons of Gad according to their families _were: of_ Zephon, the family of the Zephonites; _of_ Haggi, the family of the Haggites; _of_ Shuni, the family of the Shunites; 
 
 ###### 16 
-_of_ [^e]Ozni, the family of the Oznites; _of_ Eri, the family of the Erites; 
+_of_ Ozni, the family of the Oznites; _of_ Eri, the family of the Erites; 
 
 ###### 17 
-_of_ [^f]Arod, the family of the Arodites; _of_ Areli, the family of the Arelites. 
+_of_ Arod, the family of the Arodites; _of_ Areli, the family of the Arelites. 
 
 ###### 18 
 These _are_ the families of the sons of Gad according to those who were numbered of them: forty thousand five hundred. 
@@ -76,10 +76,10 @@ And the sons of Perez were: _of_ Hezron, the family of the Hezronites; _of_ Hamu
 These _are_ the families of Judah according to those who were numbered of them: seventy-six thousand five hundred. 
 
 ###### 23 
-The sons of Issachar according to their families _were: of_ Tola, the family of the Tolaites; of [^g]Puah, the family of the [^h]Punites; 
+The sons of Issachar according to their families _were: of_ Tola, the family of the Tolaites; of Puah, the family of the Punites; 
 
 ###### 24 
-of [^i]Jashub, the family of the Jashubites; of Shimron, the family of the Shimronites. 
+of Jashub, the family of the Jashubites; of Shimron, the family of the Shimronites. 
 
 ###### 25 
 These _are_ the families of Issachar according to those who were numbered of them: sixty-four thousand three hundred. 
@@ -97,7 +97,7 @@ The sons of Joseph according to their families, by Manasseh and Ephraim, _were:_
 The sons of Manasseh: of Machir, the family of the Machirites; and Machir begot Gilead; of Gilead, the family of the Gileadites. 
 
 ###### 30 
-These _are_ the sons of Gilead: _of_ [^j]Jeezer, the family of the Jeezerites; of Helek, the family of the Helekites; 
+These _are_ the sons of Gilead: _of_ Jeezer, the family of the Jeezerites; of Helek, the family of the Helekites; 
 
 ###### 31 
 _of_ Asriel, the family of the Asrielites; _of_ Shechem, the family of the Shechemites; 
@@ -112,7 +112,7 @@ Now Zelophehad the son of Hepher had no sons, but daughters; and the names of th
 These _are_ the families of Manasseh; and those who were numbered of them _were_ fifty-two thousand seven hundred. 
 
 ###### 35 
-These _are_ the sons of Ephraim according to their families: of Shuthelah, the family of the Shuthalhites; of [^k]Becher, the family of the Bachrites; of Tahan, the family of the Tahanites. 
+These _are_ the sons of Ephraim according to their families: of Shuthelah, the family of the Shuthalhites; of Becher, the family of the Bachrites; of Tahan, the family of the Tahanites. 
 
 ###### 36 
 And these _are_ the sons of Shuthelah: of Eran, the family of the Eranites. 
@@ -124,16 +124,16 @@ These _are_ the families of the sons of Ephraim according to those who were numb
 The sons of Benjamin according to their families were: of Bela, the family of the Belaites; of Ashbel, the family of the Ashbelites; of Ahiram, the family of the Ahiramites; 
 
 ###### 39 
-of Shupham,[^l] the family of the Shuphamites; of [^m]Hupham, the family of the Huphamites. 
+of Shupham, the family of the Shuphamites; of Hupham, the family of the Huphamites. 
 
 ###### 40 
-And the sons of Bela were [^n]Ard and Naaman: _of Ard,_ the family of the Ardites; of Naaman, the family of the Naamites. 
+And the sons of Bela were Ard and Naaman: _of Ard,_ the family of the Ardites; of Naaman, the family of the Naamites. 
 
 ###### 41 
 These _are_ the sons of Benjamin according to their families; and those who were numbered of them _were_ forty-five thousand six hundred. 
 
 ###### 42 
-These _are_ the sons of Dan according to their families: of [^o]Shuham, the family of the Shuhamites. These _are_ the families of Dan according to their families. 
+These _are_ the sons of Dan according to their families: of Shuham, the family of the Shuhamites. These _are_ the families of Dan according to their families. 
 
 ###### 43 
 All the families of the Shuhamites, according to those who were numbered of them, _were_ sixty-four thousand four hundred. 
@@ -151,7 +151,7 @@ And the name of the daughter of Asher _was_ Serah.
 These _are_ the families of the sons of Asher according to those who were numbered of them: fifty-three thousand four hundred. 
 
 ###### 48 
-The sons of Naphtali according to their families _were:_ of [^p]Jahzeel, the family of the Jahzeelites; of Guni, the family of the Gunites; 
+The sons of Naphtali according to their families _were:_ of Jahzeel, the family of the Jahzeelites; of Guni, the family of the Gunites; 
 
 ###### 49 
 of Jezer, the family of the Jezerites; of Shillem, the family of the Shillemites. 

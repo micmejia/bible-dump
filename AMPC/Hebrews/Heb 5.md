@@ -133,7 +133,7 @@ So too Christ (the Messiah) did not exalt Himself to be made a high priest, but 
 
 
 
-As He says also in another place, You are a Priest [appointed] forever after the order (with [^a]the rank) of Melchizedek. 
+As He says also in another place, You are a Priest [appointed] forever after the order (with the rank) of Melchizedek. 
 
 
 
@@ -154,7 +154,7 @@ As He says also in another place, You are a Priest [appointed] forever after the
 
 
 
-In the days of His flesh [Jesus] offered up definite, special petitions [for that which He not only wanted [^b]but needed] and supplications with strong crying and tears to Him Who was [always] able to save Him [out] from death, and He was heard because of His reverence toward God [His godly fear, His piety, [^c] in that He shrank from the horrors of separation from the bright presence of the Father]. 
+In the days of His flesh [Jesus] offered up definite, special petitions [for that which He not only wanted but needed] and supplications with strong crying and tears to Him Who was [always] able to save Him [out] from death, and He was heard because of His reverence toward God [His godly fear, His piety,  in that He shrank from the horrors of separation from the bright presence of the Father]. 
 
 
 
@@ -217,7 +217,7 @@ And, [His completed experience] making Him perfectly [equipped], He became the A
 
 
 
-Being [^d]designated _and_ recognized _and_ saluted by God as High Priest after the order (with [^e]the rank) of Melchizedek. 
+Being designated _and_ recognized _and_ saluted by God as High Priest after the order (with the rank) of Melchizedek. 
 
 
 
@@ -238,7 +238,7 @@ Being [^d]designated _and_ recognized _and_ saluted by God as High Priest after 
 
 
 
-Concerning this we have much to say which is hard to explain, since you have become dull in your [spiritual] hearing _and_ sluggish [even [^f]slothful in achieving spiritual insight]. 
+Concerning this we have much to say which is hard to explain, since you have become dull in your [spiritual] hearing _and_ sluggish [even slothful in achieving spiritual insight]. 
 
 
 

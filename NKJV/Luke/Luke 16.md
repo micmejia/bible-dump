@@ -10,7 +10,7 @@ next: ['Luke 17']
 
 
 ###### 1 
-He also said to His disciples: "There was a certain rich man who had a steward, and an accusation was brought to him that this man was [^a]wasting his goods. 
+He also said to His disciples: "There was a certain rich man who had a steward, and an accusation was brought to him that this man was wasting his goods. 
 
 ###### 2 
 So he called him and said to him, 'What is this I hear about you? Give an account of your stewardship, for you can no longer be steward.' 
@@ -25,16 +25,16 @@ I have resolved what to do, that when I am put out of the stewardship, they may 
 "So he called every one of his master's debtors to _him,_ and said to the first, 'How much do you owe my master?' 
 
 ###### 6 
-And he said, 'A hundred [^b]measures of oil.' So he said to him, 'Take your bill, and sit down quickly and write fifty.' 
+And he said, 'A hundred measures of oil.' So he said to him, 'Take your bill, and sit down quickly and write fifty.' 
 
 ###### 7 
-Then he said to another, 'And how much do you owe?' So he said, 'A hundred [^c]measures of wheat.' And he said to him, 'Take your bill, and write eighty.' 
+Then he said to another, 'And how much do you owe?' So he said, 'A hundred measures of wheat.' And he said to him, 'Take your bill, and write eighty.' 
 
 ###### 8 
 So the master commended the unjust steward because he had dealt shrewdly. For the sons of this world are more shrewd in their generation than the sons of light. 
 
 ###### 9 
-"And I say to you, make friends for yourselves by unrighteous [^d]mammon, that when [^e]you fail, they may receive you into an everlasting home. 
+"And I say to you, make friends for yourselves by unrighteous mammon, that when you fail, they may receive you into an everlasting home. 
 
 ###### 10 
 He who _is_ faithful in _what is_ least is faithful also in much; and he who is unjust in _what is_ least is unjust also in much. 
@@ -49,7 +49,7 @@ And if you have not been faithful in what is another man's, who will give you wh
 "No servant can serve two masters; for either he will hate the one and love the other, or else he will be loyal to the one and despise the other. You cannot serve God and mammon." ## The Law, the Prophets, and the Kingdom 
 
 ###### 14 
-Now the Pharisees, who were lovers of money, also heard all these things, and they [^f]derided Him. 
+Now the Pharisees, who were lovers of money, also heard all these things, and they derided Him. 
 
 ###### 15 
 And He said to them, "You are those who justify yourselves before men, but God knows your hearts. For what is highly esteemed among men is an abomination in the sight of God. 
@@ -58,19 +58,19 @@ And He said to them, "You are those who justify yourselves before men, but God k
 "The law and the prophets _were_ until John. Since that time the kingdom of God has been preached, and everyone is pressing into it. 
 
 ###### 17 
-And it is easier for heaven and earth to pass away than for one [^g]tittle of the law to fail. 
+And it is easier for heaven and earth to pass away than for one tittle of the law to fail. 
 
 ###### 18 
 "Whoever divorces his wife and marries another commits adultery; and whoever marries her who is divorced from _her_ husband commits adultery. ## The Rich Man and Lazarus 
 
 ###### 19 
-"There was a certain rich man who was clothed in purple and fine linen and [^h]fared sumptuously every day. 
+"There was a certain rich man who was clothed in purple and fine linen and fared sumptuously every day. 
 
 ###### 20 
 But there was a certain beggar named Lazarus, full of sores, who was laid at his gate, 
 
 ###### 21 
-desiring to be fed with [^i]the crumbs which fell from the rich man's table. Moreover the dogs came and licked his sores. 
+desiring to be fed with the crumbs which fell from the rich man's table. Moreover the dogs came and licked his sores. 
 
 ###### 22 
 So it was that the beggar died, and was carried by the angels to Abraham's bosom. The rich man also died and was buried. 

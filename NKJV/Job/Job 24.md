@@ -52,7 +52,7 @@ The dying groan in the city, And the souls of the wounded cry out; Yet God does 
 The murderer rises with the light; He kills the poor and needy; And in the night he is like a thief. 
 
 ###### 15 
-The eye of the adulterer waits for the twilight, Saying, 'No eye will see me'; And he [^a]disguises _his_ face. 
+The eye of the adulterer waits for the twilight, Saying, 'No eye will see me'; And he disguises _his_ face. 
 
 ###### 16 
 In the dark they break into houses Which they marked for themselves in the daytime; They do not know the light. 
@@ -64,13 +64,13 @@ For the morning is the same to them as the shadow of death; If _someone_ recogni
 "They _should be_ swift on the face of the waters, Their portion _should be_ cursed in the earth, _So that_ no _one would_ turn into the way of their vineyards. 
 
 ###### 19 
-As drought and heat [^b]consume the snow waters, _So_ [^c]the grave _consumes those who_ have sinned. 
+As drought and heat consume the snow waters, _So_ the grave _consumes those who_ have sinned. 
 
 ###### 20 
 The womb _should_ forget him, The worm _should_ feed sweetly on him; He _should_ be remembered no more, And wickedness _should_ be broken like a tree. 
 
 ###### 21 
-For he [^d]preys on the barren _who_ do not bear, And does no good for the widow. 
+For he preys on the barren _who_ do not bear, And does no good for the widow. 
 
 ###### 22 
 "But _God_ draws the mighty away with His power; He rises up, but no _man_ is sure of life. 
@@ -79,7 +79,7 @@ For he [^d]preys on the barren _who_ do not bear, And does no good for the widow
 He gives them security, and they rely _on it;_ Yet His eyes _are_ on their ways. 
 
 ###### 24 
-They are exalted for a little while, Then they are gone. They are brought low; They are [^e]taken out of the way like all _others;_ They dry out like the heads of grain. 
+They are exalted for a little while, Then they are gone. They are brought low; They are taken out of the way like all _others;_ They dry out like the heads of grain. 
 
 ###### 25 
 "Now if _it is_ not _so,_ who will prove me a liar, And make my speech worth nothing?"

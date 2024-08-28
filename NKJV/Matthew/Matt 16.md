@@ -16,22 +16,22 @@ Then the Pharisees and Sadducees came, and testing Him asked that He would show 
 He answered and said to them, "When it is evening you say, '_It will be_ fair weather, for the sky is red'; 
 
 ###### 3 
-and in the morning, '_It will be_ foul weather today, for the sky is red and threatening.' [^a]Hypocrites! You know how to discern the face of the sky, but you cannot _discern_ the signs of the times. 
+and in the morning, '_It will be_ foul weather today, for the sky is red and threatening.' Hypocrites! You know how to discern the face of the sky, but you cannot _discern_ the signs of the times. 
 
 ###### 4 
-A wicked and adulterous generation seeks after a sign, and no sign shall be given to it except the sign of [^b]the prophet Jonah." And He left them and departed. ## The Leaven of the Pharisees and Sadducees 
+A wicked and adulterous generation seeks after a sign, and no sign shall be given to it except the sign of the prophet Jonah." And He left them and departed. ## The Leaven of the Pharisees and Sadducees 
 
 ###### 5 
 Now when His disciples had come to the other side, they had forgotten to take bread. 
 
 ###### 6 
-Then Jesus said to them, "Take heed and beware of the [^c]leaven of the Pharisees and the Sadducees." 
+Then Jesus said to them, "Take heed and beware of the leaven of the Pharisees and the Sadducees." 
 
 ###### 7 
 And they reasoned among themselves, saying, "_It is_ because we have taken no bread." 
 
 ###### 8 
-But Jesus, being aware of _it,_ said to them, "O you of little faith, why do you reason among yourselves because you [^d]have brought no bread? 
+But Jesus, being aware of _it,_ said to them, "O you of little faith, why do you reason among yourselves because you have brought no bread? 
 
 ###### 9 
 Do you not yet understand, or remember the five loaves of the five thousand and how many baskets you took up? 
@@ -40,10 +40,10 @@ Do you not yet understand, or remember the five loaves of the five thousand and 
 Nor the seven loaves of the four thousand and how many large baskets you took up? 
 
 ###### 11 
-How is it you do not understand that I did not speak to you concerning bread?--_but_ to beware of the [^e]leaven of the Pharisees and Sadducees." 
+How is it you do not understand that I did not speak to you concerning bread?--_but_ to beware of the leaven of the Pharisees and Sadducees." 
 
 ###### 12 
-Then they understood that He did not tell _them_ to beware of the leaven of bread, but of the [^f]doctrine of the Pharisees and Sadducees. ## Peter Confesses Jesus as the Christ 
+Then they understood that He did not tell _them_ to beware of the leaven of bread, but of the doctrine of the Pharisees and Sadducees. ## Peter Confesses Jesus as the Christ 
 
 ###### 13 
 When Jesus came into the region of Caesarea Philippi, He asked His disciples, saying, "Who do men say that I, the Son of Man, am?" 
@@ -61,10 +61,10 @@ Simon Peter answered and said, "You are the Christ, the Son of the living God."
 Jesus answered and said to him, "Blessed are you, Simon Bar-Jonah, for flesh and blood has not revealed _this_ to you, but My Father who is in heaven. 
 
 ###### 18 
-And I also say to you that you are Peter, and on this rock I will build My church, and the gates of Hades shall not [^g]prevail against it. 
+And I also say to you that you are Peter, and on this rock I will build My church, and the gates of Hades shall not prevail against it. 
 
 ###### 19 
-And I will give you the keys of the kingdom of heaven, and whatever you bind on earth [^h]will be bound in heaven, and whatever you loose on earth will be loosed in heaven." 
+And I will give you the keys of the kingdom of heaven, and whatever you bind on earth will be bound in heaven, and whatever you loose on earth will be loosed in heaven." 
 
 ###### 20 
 Then He commanded His disciples that they should tell no one that He was Jesus the Christ. ## Jesus Predicts His Death and Resurrection 
@@ -73,10 +73,10 @@ Then He commanded His disciples that they should tell no one that He was Jesus t
 From that time Jesus began to show to His disciples that He must go to Jerusalem, and suffer many things from the elders and chief priests and scribes, and be killed, and be raised the third day. 
 
 ###### 22 
-Then Peter took Him aside and began to rebuke Him, saying, [^i]"Far be it from You, Lord; this shall not happen to You!" 
+Then Peter took Him aside and began to rebuke Him, saying, "Far be it from You, Lord; this shall not happen to You!" 
 
 ###### 23 
-But He turned and said to Peter, "Get behind Me, Satan! You are [^j]an offense to Me, for you are not mindful of the things of God, but the things of men." ## Take Up the Cross and Follow Him 
+But He turned and said to Peter, "Get behind Me, Satan! You are an offense to Me, for you are not mindful of the things of God, but the things of men." ## Take Up the Cross and Follow Him 
 
 ###### 24 
 Then Jesus said to His disciples, "If anyone desires to come after Me, let him deny himself, and take up his cross, and follow Me. 

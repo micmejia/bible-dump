@@ -19,13 +19,13 @@ Then I saw a strong angel proclaiming with a loud voice, "Who is worthy to open 
 And no one in heaven or on the earth or under the earth was able to open the scroll, or to look at it. 
 
 ###### 4 
-So I wept much, because no one was found worthy to open [^a]and read the scroll, or to look at it. 
+So I wept much, because no one was found worthy to open and read the scroll, or to look at it. 
 
 ###### 5 
-But one of the elders said to me, "Do not weep. Behold, the Lion of the tribe of Judah, the Root of David, has prevailed to open the scroll and [^b]to loose its seven seals." 
+But one of the elders said to me, "Do not weep. Behold, the Lion of the tribe of Judah, the Root of David, has prevailed to open the scroll and to loose its seven seals." 
 
 ###### 6 
-And I looked, [^c]and behold, in the midst of the throne and of the four living creatures, and in the midst of the elders, stood a Lamb as though it had been slain, having seven horns and seven eyes, which are the seven Spirits of God sent out into all the earth. 
+And I looked, and behold, in the midst of the throne and of the four living creatures, and in the midst of the elders, stood a Lamb as though it had been slain, having seven horns and seven eyes, which are the seven Spirits of God sent out into all the earth. 
 
 ###### 7 
 Then He came and took the scroll out of the right hand of Him who sat on the throne. ## Worthy Is the Lamb 
@@ -37,7 +37,7 @@ Now when He had taken the scroll, the four living creatures and the twenty-four 
 And they sang a new song, saying: "You are worthy to take the scroll, And to open its seals; For You were slain, And have redeemed us to God by Your blood Out of every tribe and tongue and people and nation, 
 
 ###### 10 
-And have made [^d]us kings[^e] and priests to our God; And [^f]we shall reign on the earth." 
+And have made us kings and priests to our God; And we shall reign on the earth." 
 
 ###### 11 
 Then I looked, and I heard the voice of many angels around the throne, the living creatures, and the elders; and the number of them was ten thousand times ten thousand, and thousands of thousands, 
@@ -46,7 +46,7 @@ Then I looked, and I heard the voice of many angels around the throne, the livin
 saying with a loud voice: "Worthy is the Lamb who was slain To receive power and riches and wisdom, And strength and honor and glory and blessing!" 
 
 ###### 13 
-And every creature which is in heaven and on the earth and under the earth and such as are in the sea, and all that are in them, I heard saying: "Blessing and honor and glory and power _Be_ to Him who sits on the throne, And to the Lamb, forever and [^g]ever!" 
+And every creature which is in heaven and on the earth and under the earth and such as are in the sea, and all that are in them, I heard saying: "Blessing and honor and glory and power _Be_ to Him who sits on the throne, And to the Lamb, forever and ever!" 
 
 ###### 14 
-Then the four living creatures said, "Amen!" And the [^h]twenty-four elders fell down and worshiped [^i]Him who lives forever and ever.
+Then the four living creatures said, "Amen!" And the twenty-four elders fell down and worshiped Him who lives forever and ever.

@@ -172,7 +172,7 @@ Kung gagawin mo ito, tutuparin ng Panginoon ang pangako niya sa akin, na kung an
 
 
 
-"Ito pa ang bilin ko sa iyo: Nalaman mo kung ano ang ginawa sa akin ni Joab na anak ni Zeruya. Pinatay niya ang dalawang kumander ng mga sundalo ng Israel na si Abner na anak ni Ner at si Amasa na anak ni Jeter. Pinatay niya sila na parang mga kaaway, pero ginawa niya iyon sa panahon na walang labanan. Siya ang may pananagutan sa pagkamatay nila.[^a] 
+"Ito pa ang bilin ko sa iyo: Nalaman mo kung ano ang ginawa sa akin ni Joab na anak ni Zeruya. Pinatay niya ang dalawang kumander ng mga sundalo ng Israel na si Abner na anak ni Ner at si Amasa na anak ni Jeter. Pinatay niya sila na parang mga kaaway, pero ginawa niya iyon sa panahon na walang labanan. Siya ang may pananagutan sa pagkamatay nila. 
 
 
 
@@ -337,7 +337,7 @@ Pero ngayon, ikaw ang hahatol sa kanya. Matalino ka, at alam mo kung ano ang dap
 
 
 
-Pagkatapos, namatay si David at inilibing sa kanyang lungsod.[^b] 
+Pagkatapos, namatay si David at inilibing sa kanyang lungsod. 
 
 
 
@@ -931,7 +931,7 @@ Kaya tinanggal ni Solomon si Abiatar sa kanyang tungkulin bilang pari ng Pangino
 
 
 
-Hindi tumulong si Joab kay Absalom na maging hari, pero tumulong siya kay Adonia. Kaya nang mabalitaan niya ang pagkamatay ni Adonia, tumakas siya papunta sa tolda ng Panginoon at humawak sa <i class="trans-change">parang_ mga sungay na bahagi ng altar.[^c] 
+Hindi tumulong si Joab kay Absalom na maging hari, pero tumulong siya kay Adonia. Kaya nang mabalitaan niya ang pagkamatay ni Adonia, tumakas siya papunta sa tolda ng Panginoon at humawak sa <i class="trans-change">parang_ mga sungay na bahagi ng altar. 
 
 
 
@@ -1063,7 +1063,7 @@ Siya at ang angkan niya ang mananagot magpakailanman sa pagkamatay ng mga taong 
 
 
 
-Kaya pinuntahan ni Benaya si Joab at pinatay. Inilibing siya <i class="trans-change">malapit_ sa bahay[^d] niya sa ilang. 
+Kaya pinuntahan ni Benaya si Joab at pinatay. Inilibing siya <i class="trans-change">malapit_ sa bahay niya sa ilang. 
 
 
 

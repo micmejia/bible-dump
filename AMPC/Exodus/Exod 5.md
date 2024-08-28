@@ -238,7 +238,7 @@ The taskmasters of the people went out, and their officers, and they said to the
 
 
 
-Go, get [^a]straw where you can find it; but your work shall not be diminished in the least. 
+Go, get straw where you can find it; but your work shall not be diminished in the least. 
 
 
 

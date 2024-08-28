@@ -205,7 +205,7 @@ Kung binigyan siya ng amo niya ng mapapangasawa at nagkaanak sila, lalaya siya s
 
 
 
-dadalhin siya ng amo niya sa presensya ng Dios[^a] doon sa may pintuan o hamba <i class="trans-change">ng lugar na pinagsasambahan_. Bubutasan ng amo niya ang isa sa tainga niya at magiging alipin siya ng amo niya magpakailanman. 
+dadalhin siya ng amo niya sa presensya ng Dios doon sa may pintuan o hamba <i class="trans-change">ng lugar na pinagsasambahan_. Bubutasan ng amo niya ang isa sa tainga niya at magiging alipin siya ng amo niya magpakailanman. 
 
 
 
@@ -502,7 +502,7 @@ Pero kung sinadya niya at plinano ang pagpatay, patayin nʼyo siya kahit na luma
 
 
 
-"Ang sinumang mananakit[^b] sa kanyang ama o ina ay papatayin. 
+"Ang sinumang mananakit sa kanyang ama o ina ay papatayin. 
 
 
 
@@ -733,7 +733,7 @@ Pero kung makakabangon ang alipin pagkalipas ng isa o dalawang araw, hindi siya 
 
 
 
-"Kung may nag-aaway at nasaktan ang isang buntis, at napaanak ito nang wala pa sa oras,[^c] pero walang masamang nangyari sa kanya, pagbabayarin ang nakasakit ayon sa halagang hinihingi ng asawa at pinayagan ng hukom. 
+"Kung may nag-aaway at nasaktan ang isang buntis, at napaanak ito nang wala pa sa oras, pero walang masamang nangyari sa kanya, pagbabayarin ang nakasakit ayon sa halagang hinihingi ng asawa at pinayagan ng hukom. 
 
 
 

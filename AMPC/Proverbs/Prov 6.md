@@ -70,7 +70,7 @@ You are snared with the words of your lips, you are caught by the speech of your
 
 
 
-Do this now [at once and earnestly], my son, and deliver yourself when you have put yourself into the [^a]power of your neighbor; go, bestir _and_ humble yourself, and beg your neighbor [to pay his debt and thereby release you]. 
+Do this now [at once and earnestly], my son, and deliver yourself when you have put yourself into the power of your neighbor; go, bestir _and_ humble yourself, and beg your neighbor [to pay his debt and thereby release you]. 
 
 
 

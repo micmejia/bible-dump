@@ -58,7 +58,7 @@ According to the number of years after the Jubilee you shall buy from your neigh
 According to the multitude of years you shall increase its price, and according to the fewer number of years you shall diminish its price; for he sells to you _according_ to the number _of the years_ of the crops. 
 
 ###### 17 
-Therefore you shall not [^a]oppress one another, but you shall fear your God; for I _am_ the Lord your God. ## Provisions for the Seventh Year 
+Therefore you shall not oppress one another, but you shall fear your God; for I _am_ the Lord your God. ## Provisions for the Seventh Year 
 
 ###### 18 
 'So you shall observe My statutes and keep My judgments, and perform them; and you will dwell in the land in safety. 
@@ -112,7 +112,7 @@ And if a man purchases a house from the Levites, then the house that was sold in
 But the field of the common-land of their cities may not be sold, for it _is_ their perpetual possession. ## Lending to the Poor 
 
 ###### 35 
-'If one of your brethren becomes poor, and [^b]falls into poverty among you, then you shall help him, like a stranger or a sojourner, that he may live with you. 
+'If one of your brethren becomes poor, and falls into poverty among you, then you shall help him, like a stranger or a sojourner, that he may live with you. 
 
 ###### 36 
 Take no usury or interest from him; but fear your God, that your brother may live with you. 
@@ -136,7 +136,7 @@ And _then_ he shall depart from you--he and his children with him--and shall ret
 For they _are_ My servants, whom I brought out of the land of Egypt; they shall not be sold as slaves. 
 
 ###### 43 
-You shall not rule over him with [^c]rigor, but you shall fear your God. 
+You shall not rule over him with rigor, but you shall fear your God. 
 
 ###### 44 
 And as for your male and female slaves whom you may have--from the nations that are around you, from them you may buy male and female slaves. 

@@ -13,7 +13,7 @@ next: ['John 14']
 Now before the Feast of the Passover, when Jesus knew that His hour had come that He should depart from this world to the Father, having loved His own who were in the world, He loved them to the end. 
 
 ###### 2 
-And [^a]supper being ended, the devil having already put it into the heart of Judas Iscariot, Simon's _son,_ to betray Him, 
+And supper being ended, the devil having already put it into the heart of Judas Iscariot, Simon's _son,_ to betray Him, 
 
 ###### 3 
 Jesus, knowing that the Father had given all things into His hands, and that He had come from God and was going to God, 
@@ -43,7 +43,7 @@ Jesus said to him, "He who is bathed needs only to wash _his_ feet, but is compl
 For He knew who would betray Him; therefore He said, "You are not all clean." 
 
 ###### 12 
-So when He had washed their feet, taken His garments, and sat down again, He said to them, "Do you [^b]know what I have done to you? 
+So when He had washed their feet, taken His garments, and sat down again, He said to them, "Do you know what I have done to you? 
 
 ###### 13 
 You call Me Teacher and Lord, and you say well, for _so_ I am. 
@@ -61,7 +61,7 @@ Most assuredly, I say to you, a servant is not greater than his master; nor is h
 If you know these things, blessed are you if you do them. ## Jesus Identifies His Betrayer 
 
 ###### 18 
-"I do not speak concerning all of you. I know whom I have chosen; but that the Scripture may be fulfilled, 'He who eats [^c]bread with Me has lifted up his heel against Me.' 
+"I do not speak concerning all of you. I know whom I have chosen; but that the Scripture may be fulfilled, 'He who eats bread with Me has lifted up his heel against Me.' 
 
 ###### 19 
 Now I tell you before it comes, that when it does come to pass, you may believe that I am _He._ 
@@ -76,13 +76,13 @@ When Jesus had said these things, He was troubled in spirit, and testified and s
 Then the disciples looked at one another, perplexed about whom He spoke. 
 
 ###### 23 
-Now there was [^d]leaning on Jesus' bosom one of His disciples, whom Jesus loved. 
+Now there was leaning on Jesus' bosom one of His disciples, whom Jesus loved. 
 
 ###### 24 
 Simon Peter therefore motioned to him to ask who it was of whom He spoke. 
 
 ###### 25 
-Then, leaning [^e]back on Jesus' breast, he said to Him, "Lord, who is it?" 
+Then, leaning back on Jesus' breast, he said to Him, "Lord, who is it?" 
 
 ###### 26 
 Jesus answered, "It is he to whom I shall give a piece of bread when I have dipped _it._" And having dipped the bread, He gave _it_ to Judas Iscariot, _the son_ of Simon. 

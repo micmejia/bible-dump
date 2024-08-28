@@ -37,7 +37,7 @@ For I also am a man placed under authority, having soldiers under me. And I say 
 When Jesus heard these things, He marveled at him, and turned around and said to the crowd that followed Him, "I say to you, I have not found such great faith, not even in Israel!" 
 
 ###### 10 
-And those who were sent, returning to the house, found the servant well [^a]who had been sick. ## Jesus Raises the Son of the Widow of Nain 
+And those who were sent, returning to the house, found the servant well who had been sick. ## Jesus Raises the Son of the Widow of Nain 
 
 ###### 11 
 Now it happened, the day after, _that_ He went into a city called Nain; and many of His disciples went with Him, and a large crowd. 
@@ -55,7 +55,7 @@ Then He came and touched the open coffin, and those who carried _him_ stood stil
 So he who was dead sat up and began to speak. And He presented him to his mother. 
 
 ###### 16 
-Then fear [^b]came upon all, and they glorified God, saying, "A great prophet has risen up among us"; and, "God has visited His people." 
+Then fear came upon all, and they glorified God, saying, "A great prophet has risen up among us"; and, "God has visited His people." 
 
 ###### 17 
 And this report about Him went throughout all Judea and all the surrounding region. ## John the Baptist Sends Messengers to Jesus 
@@ -64,19 +64,19 @@ And this report about Him went throughout all Judea and all the surrounding regi
 Then the disciples of John reported to him concerning all these things. 
 
 ###### 19 
-And John, calling two of his disciples to _him,_ sent _them_ to [^c]Jesus, saying, "Are You the Coming One, or [^d]do we look for another?" 
+And John, calling two of his disciples to _him,_ sent _them_ to Jesus, saying, "Are You the Coming One, or do we look for another?" 
 
 ###### 20 
 When the men had come to Him, they said, "John the Baptist has sent us to You, saying, 'Are You the Coming One, or do we look for another?' " 
 
 ###### 21 
-And that very hour He cured many of [^e]infirmities, afflictions, and evil spirits; and to many blind He gave sight. 
+And that very hour He cured many of infirmities, afflictions, and evil spirits; and to many blind He gave sight. 
 
 ###### 22 
 Jesus answered and said to them, "Go and tell John the things you have seen and heard: that _the_ blind see, _the_ lame walk, _the_ lepers are cleansed, _the_ deaf hear, _the_ dead are raised, _the_ poor have the gospel preached to them. 
 
 ###### 23 
-And blessed is _he_ who is not [^f]offended because of Me." 
+And blessed is _he_ who is not offended because of Me." 
 
 ###### 24 
 When the messengers of John had departed, He began to speak to the multitudes concerning John: "What did you go out into the wilderness to see? A reed shaken by the wind? 
@@ -91,16 +91,16 @@ But what did you go out to see? A prophet? Yes, I say to you, and more than a pr
 This is _he_ of whom it is written: 'Behold, I send My messenger before Your face, Who will prepare Your way before You.' 
 
 ###### 28 
-For I say to you, among those born of women there is [^g]not a greater prophet than John the Baptist; but he who is least in the kingdom of God is greater than he." 
+For I say to you, among those born of women there is not a greater prophet than John the Baptist; but he who is least in the kingdom of God is greater than he." 
 
 ###### 29 
-And when all the people heard _Him,_ even the tax collectors [^h]justified God, having been baptized with the baptism of John. 
+And when all the people heard _Him,_ even the tax collectors justified God, having been baptized with the baptism of John. 
 
 ###### 30 
-But the Pharisees and [^i]lawyers rejected the will of God for themselves, not having been baptized by him. 
+But the Pharisees and lawyers rejected the will of God for themselves, not having been baptized by him. 
 
 ###### 31 
-[^j]And the Lord said, "To what then shall I liken the men of this generation, and what are they like? 
+And the Lord said, "To what then shall I liken the men of this generation, and what are they like? 
 
 ###### 32 
 They are like children sitting in the marketplace and calling to one another, saying: 'We played the flute for you, And you did not dance; We mourned to you, And you did not weep.' 
@@ -109,7 +109,7 @@ They are like children sitting in the marketplace and calling to one another, sa
 For John the Baptist came neither eating bread nor drinking wine, and you say, 'He has a demon.' 
 
 ###### 34 
-The Son of Man has come eating and drinking, and you say, 'Look, a glutton and a [^k]winebibber, a friend of tax collectors and sinners!' 
+The Son of Man has come eating and drinking, and you say, 'Look, a glutton and a winebibber, a friend of tax collectors and sinners!' 
 
 ###### 35 
 But wisdom is justified by all her children." ## A Sinful Woman Forgiven 

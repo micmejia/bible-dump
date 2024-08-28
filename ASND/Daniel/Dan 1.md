@@ -72,7 +72,7 @@ Nang ikatlong taon ng paghahari ni Jehoyakim sa Juda, sinalakay ni Haring Nebuca
 
 
 
-Binihag niya si Haring Jehoyakim ayon sa kalooban ng Panginoon. Kinuha niya ang ilang mga kagamitan sa templo ng Dios at dinala sa Babilonia.[^a] Inilagay niya ang mga ito sa taguan ng kayamanan doon sa templo ng kanyang dios. 
+Binihag niya si Haring Jehoyakim ayon sa kalooban ng Panginoon. Kinuha niya ang ilang mga kagamitan sa templo ng Dios at dinala sa Babilonia. Inilagay niya ang mga ito sa taguan ng kayamanan doon sa templo ng kanyang dios. 
 
 
 
@@ -138,7 +138,7 @@ Nag-utos si Haring Nebucadnezar kay Ashpenaz na pinuno ng mga tauhan niya na pum
 
 
 
-Kinakailangan na ang mga ito ay gwapo, malusog, matalino, mabilis kumilos at madaling turuan para maging karapat-dapat maglingkod sa hari. Inutusan din niya si Ashpenaz na turuan sila ng wika at mga panitikan ng mga taga-Babilonia.[^b] 
+Kinakailangan na ang mga ito ay gwapo, malusog, matalino, mabilis kumilos at madaling turuan para maging karapat-dapat maglingkod sa hari. Inutusan din niya si Ashpenaz na turuan sila ng wika at mga panitikan ng mga taga-Babilonia. 
 
 
 
@@ -270,7 +270,7 @@ Pinalitan ni Ashpenaz ang kanilang mga pangalan. Si Daniel ay pinangalanang Belt
 
 
 
-Pero ipinasya ni Daniel na hindi siya kakain ng pagkain ng hari o iinom ng kanyang inumin para hindi siya marumihan.[^c] Kaya nakiusap siya kay Ashpenaz na huwag siyang bigyan ng pagkain at inuming iyon. 
+Pero ipinasya ni Daniel na hindi siya kakain ng pagkain ng hari o iinom ng kanyang inumin para hindi siya marumihan. Kaya nakiusap siya kay Ashpenaz na huwag siyang bigyan ng pagkain at inuming iyon. 
 
 
 
@@ -666,7 +666,7 @@ Nakipag-usap ang hari sa kanila, at napansin ng hari na wala ni isa man sa mga k
 
 
 
-Sa lahat ng itinanong ng hari sa kanila, nakita niya na ang kanilang kaalaman ay sampung ulit na mas mahusay kaysa sa kaalaman ng mga salamangkero at engkantador[^d] sa buong kaharian niya. 
+Sa lahat ng itinanong ng hari sa kanila, nakita niya na ang kanilang kaalaman ay sampung ulit na mas mahusay kaysa sa kaalaman ng mga salamangkero at engkantador sa buong kaharian niya. 
 
 
 
@@ -699,4 +699,4 @@ Sa lahat ng itinanong ng hari sa kanila, nakita niya na ang kanilang kaalaman ay
 
 
 
-Patuloy na naglingkod si Daniel <i class="trans-change">kay Nebucadnezar_ hanggang sa unang taon ng paghahari ni Cyrus.[^e]
+Patuloy na naglingkod si Daniel <i class="trans-change">kay Nebucadnezar_ hanggang sa unang taon ng paghahari ni Cyrus.

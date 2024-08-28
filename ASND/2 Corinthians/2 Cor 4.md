@@ -139,7 +139,7 @@ Ngunit kung may mga hindi nakakaintindi sa Magandang Balita na aming ipinapahaya
 
 
 
-Ayaw nilang maniwala sa Magandang Balita dahil ang kanilang mga isipan ay binulag ni Satanas na naghahari sa mundong ito.[^a] Binulag niya sila para hindi nila maintindihan ang Magandang Balita tungkol sa kapangyarihan ni Cristo, na siyang larawan ng Dios. 
+Ayaw nilang maniwala sa Magandang Balita dahil ang kanilang mga isipan ay binulag ni Satanas na naghahari sa mundong ito. Binulag niya sila para hindi nila maintindihan ang Magandang Balita tungkol sa kapangyarihan ni Cristo, na siyang larawan ng Dios. 
 
 
 
@@ -436,7 +436,7 @@ Maaaring mamatay kami <i class="trans-change">dahil sa aming pangangaral_, pero 
 
 
 
-Sinasabi ng Kasulatan, "Sumampalataya ako, kaya nagsalita ako."[^b] Ganoon din ang aming ginagawa: Sumasampalataya kami, kaya nagsasalita kami. 
+Sinasabi ng Kasulatan, "Sumampalataya ako, kaya nagsalita ako." Ganoon din ang aming ginagawa: Sumasampalataya kami, kaya nagsasalita kami. 
 
 
 

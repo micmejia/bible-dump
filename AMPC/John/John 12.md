@@ -154,7 +154,7 @@ Now he did not say this because he cared for the poor but because he was a thief
 
 
 
-But Jesus said, Let her alone. It was [intended] that she should keep it for the time of My preparation for burial. [She has kept it that she might have it for the time of My [^a]embalming.] 
+But Jesus said, Let her alone. It was [intended] that she should keep it for the time of My preparation for burial. [She has kept it that she might have it for the time of My embalming.] 
 
 
 
@@ -553,7 +553,7 @@ Anyone who loves his life loses it, but anyone who hates his life in this world 
 
 
 
-If anyone serves Me, he must continue to follow Me [[^b]to cleave steadfastly to Me, conform wholly to My example in living and, if need be, in dying] and wherever I am, there will My servant be also. If anyone serves Me, the Father will honor him. 
+If anyone serves Me, he must continue to follow Me [to cleave steadfastly to Me, conform wholly to My example in living and, if need be, in dying] and wherever I am, there will My servant be also. If anyone serves Me, the Father will honor him. 
 
 
 

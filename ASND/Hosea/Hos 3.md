@@ -73,7 +73,7 @@ Sinabi ng Panginoon sa akin, "Umalis ka at ipakita mong muli ang pagmamahal mo s
 
 
 
-Kaya binili ko siya[^a] sa halagang 15 pirasong pilak at apat na sakong sebada.[^b] 
+Kaya binili ko siya sa halagang 15 pirasong pilak at apat na sakong sebada. 
 
 
 
@@ -139,7 +139,7 @@ At sinabi ko sa kanya, "Makisama ka sa akin ng mahabang panahon, at huwag ka nan
 
 
 
-Nangangahulugan ito na sa mahabang panahon ang mga Israelita ay mawawalan ng hari, pinuno, mga handog, alaalang bato, espesyal na damit[^c] <i class="trans-change">sa panghuhula_, at mga dios-diosan. 
+Nangangahulugan ito na sa mahabang panahon ang mga Israelita ay mawawalan ng hari, pinuno, mga handog, alaalang bato, espesyal na damit <i class="trans-change">sa panghuhula_, at mga dios-diosan. 
 
 
 

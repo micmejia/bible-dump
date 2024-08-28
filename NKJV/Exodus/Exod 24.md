@@ -16,7 +16,7 @@ Now He said to Moses, "Come up to the Lord, you and Aaron, Nadab and Abihu, and 
 And Moses alone shall come near the Lord, but they shall not come near; nor shall the people go up with him." 
 
 ###### 3 
-So Moses came and told the people all the words of the Lord and all the [^a]judgments. And all the people answered with one voice and said, "All the words which the Lord has said we will do." 
+So Moses came and told the people all the words of the Lord and all the judgments. And all the people answered with one voice and said, "All the words which the Lord has said we will do." 
 
 ###### 4 
 And Moses wrote all the words of the Lord. And he rose early in the morning, and built an altar at the foot of the mountain, and twelve pillars according to the twelve tribes of Israel. 
@@ -37,10 +37,10 @@ And Moses took the blood, sprinkled _it_ on the people, and said, "This is the b
 Then Moses went up, also Aaron, Nadab, and Abihu, and seventy of the elders of Israel, 
 
 ###### 10 
-and they saw the God of Israel. And _there was_ under His feet as it were a paved work of sapphire stone, and it was like the very[^b] heavens in _its_ clarity. 
+and they saw the God of Israel. And _there was_ under His feet as it were a paved work of sapphire stone, and it was like the very heavens in _its_ clarity. 
 
 ###### 11 
-But on the nobles of the children of Israel He did not [^c]lay His hand. So they saw God, and they ate and drank. 
+But on the nobles of the children of Israel He did not lay His hand. So they saw God, and they ate and drank. 
 
 ###### 12 
 Then the Lord said to Moses, "Come up to Me on the mountain and be there; and I will give you tablets of stone, and the law and commandments which I have written, that you may teach them." 

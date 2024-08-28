@@ -49,13 +49,13 @@ Its leaves _were_ lovely, Its fruit abundant, And in it _was_ food for all. The 
 "I saw in the visions of my head _while_ on my bed, and there was a watcher, a holy one, coming down from heaven. 
 
 ###### 14 
-He cried [^a]aloud and said thus: 'Chop down the tree and cut off its branches, Strip off its leaves and scatter its fruit. Let the beasts get out from under it, And the birds from its branches. 
+He cried aloud and said thus: 'Chop down the tree and cut off its branches, Strip off its leaves and scatter its fruit. Let the beasts get out from under it, And the birds from its branches. 
 
 ###### 15 
 Nevertheless leave the stump and roots in the earth, _Bound_ with a band of iron and bronze, In the tender grass of the field. Let it be wet with the dew of heaven, And _let_ him graze with the beasts On the grass of the earth. 
 
 ###### 16 
-Let his heart be changed from _that of_ a man, Let him be given the heart of a beast, And let seven times[^b] pass over him. 
+Let his heart be changed from _that of_ a man, Let him be given the heart of a beast, And let seven times pass over him. 
 
 ###### 17 
 'This decision _is_ by the decree of the watchers, And the sentence by the word of the holy ones, In order that the living may know That the Most High rules in the kingdom of men, Gives it to whomever He will, And sets over it the lowest of men.' 
@@ -64,7 +64,7 @@ Let his heart be changed from _that of_ a man, Let him be given the heart of a b
 "This dream I, King Nebuchadnezzar, have seen. Now you, Belteshazzar, declare its interpretation, since all the wise _men_ of my kingdom are not able to make known to me the interpretation; but you _are_ able, for the Spirit of the Holy God _is_ in you." ## Daniel Explains the Second Dream 
 
 ###### 19 
-Then Daniel, whose name _was_ Belteshazzar, was astonished for a time, and his thoughts troubled him. _So_ the king spoke, and said, "Belteshazzar, do not let the dream or its interpretation trouble you." Belteshazzar answered and said, "My lord, _may_ the dream [^c]concern those who hate you, and its interpretation [^d]concern your enemies! 
+Then Daniel, whose name _was_ Belteshazzar, was astonished for a time, and his thoughts troubled him. _So_ the king spoke, and said, "Belteshazzar, do not let the dream or its interpretation trouble you." Belteshazzar answered and said, "My lord, _may_ the dream concern those who hate you, and its interpretation concern your enemies! 
 
 ###### 20 
 "The tree that you saw, which grew and became strong, whose height reached to the heavens and which _could be_ seen by all the earth, 
@@ -76,25 +76,25 @@ whose leaves _were_ lovely and its fruit abundant, in which _was_ food for all, 
 it _is_ you, O king, who have grown and become strong; for your greatness has grown and reaches to the heavens, and your dominion to the end of the earth. 
 
 ###### 23 
-"And inasmuch as the king saw a watcher, a holy one, coming down from heaven and saying, 'Chop down the tree and destroy it, but leave its stump and roots in the earth, _bound_ with a band of iron and bronze in the tender grass of the field; let it be wet with the dew of heaven, and let him graze with the beasts of the field, till seven [^e]times pass over him'; 
+"And inasmuch as the king saw a watcher, a holy one, coming down from heaven and saying, 'Chop down the tree and destroy it, but leave its stump and roots in the earth, _bound_ with a band of iron and bronze in the tender grass of the field; let it be wet with the dew of heaven, and let him graze with the beasts of the field, till seven times pass over him'; 
 
 ###### 24 
 this is the interpretation, O king, and this is the decree of the Most High, which has come upon my lord the king: 
 
 ###### 25 
-They shall drive you from men, your dwelling shall be with the beasts of the field, and they shall make you eat grass like oxen. They shall wet you with the dew of heaven, and seven [^f]times shall pass over you, till you know that the Most High rules in the kingdom of men, and gives it to whomever He chooses. 
+They shall drive you from men, your dwelling shall be with the beasts of the field, and they shall make you eat grass like oxen. They shall wet you with the dew of heaven, and seven times shall pass over you, till you know that the Most High rules in the kingdom of men, and gives it to whomever He chooses. 
 
 ###### 26 
-"And inasmuch as they gave the command to leave the stump _and_ roots of the tree, your kingdom shall be assured to you, after you come to know that Heaven[^g] rules. 
+"And inasmuch as they gave the command to leave the stump _and_ roots of the tree, your kingdom shall be assured to you, after you come to know that Heaven rules. 
 
 ###### 27 
-Therefore, O king, let my advice be acceptable to you; break off your sins by _being_ righteous, and your iniquities by showing mercy to _the_ poor. Perhaps there may be a [^h]lengthening of your prosperity." ## Nebuchadnezzar's Humiliation 
+Therefore, O king, let my advice be acceptable to you; break off your sins by _being_ righteous, and your iniquities by showing mercy to _the_ poor. Perhaps there may be a lengthening of your prosperity." ## Nebuchadnezzar's Humiliation 
 
 ###### 28 
 All _this_ came upon King Nebuchadnezzar. 
 
 ###### 29 
-At the end of the twelve months he was walking [^i]about the royal palace of Babylon. 
+At the end of the twelve months he was walking about the royal palace of Babylon. 
 
 ###### 30 
 The king spoke, saying, "Is not this great Babylon, that I have built for a royal dwelling by my mighty power and for the honor of my majesty?" 
@@ -103,13 +103,13 @@ The king spoke, saying, "Is not this great Babylon, that I have built for a roya
 While the word _was still_ in the king's mouth, a voice fell from heaven: "King Nebuchadnezzar, to you it is spoken: the kingdom has departed from you! 
 
 ###### 32 
-And they shall drive you from men, and your dwelling _shall be_ with the beasts of the field. They shall make you eat grass like oxen; and seven [^j]times shall pass over you, until you know that the Most High rules in the kingdom of men, and gives it to whomever He chooses." 
+And they shall drive you from men, and your dwelling _shall be_ with the beasts of the field. They shall make you eat grass like oxen; and seven times shall pass over you, until you know that the Most High rules in the kingdom of men, and gives it to whomever He chooses." 
 
 ###### 33 
 That very hour the word was fulfilled concerning Nebuchadnezzar; he was driven from men and ate grass like oxen; his body was wet with the dew of heaven till his hair had grown like eagles' _feathers_ and his nails like birds' _claws._ ## Nebuchadnezzar Praises God 
 
 ###### 34 
-And at the end of the [^k]time I, Nebuchadnezzar, lifted my eyes to heaven, and my understanding returned to me; and I blessed the Most High and praised and honored Him who lives forever: For His dominion _is_ an everlasting dominion, And His kingdom _is_ from generation to generation. 
+And at the end of the time I, Nebuchadnezzar, lifted my eyes to heaven, and my understanding returned to me; and I blessed the Most High and praised and honored Him who lives forever: For His dominion _is_ an everlasting dominion, And His kingdom _is_ from generation to generation. 
 
 ###### 35 
 All the inhabitants of the earth _are_ reputed as nothing; He does according to His will in the army of heaven And _among_ the inhabitants of the earth. No one can restrain His hand Or say to Him, "What have You done?" 

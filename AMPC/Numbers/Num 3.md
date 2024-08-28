@@ -805,7 +805,7 @@ And the pillars of the surrounding court and their sockets _or_ bases, with thei
 
 
 
-But those to encamp before the tabernacle toward the east, before the Tent of Meeting, toward the sunrise, were to be Moses and Aaron and his sons, keeping the full charge of the rites of the sanctuary in whatever was required for the Israelites; and the [^a]excluded [one not a descendant of Aaron and called of God] who came near [the sanctuary] was to be put to death. 
+But those to encamp before the tabernacle toward the east, before the Tent of Meeting, toward the sunrise, were to be Moses and Aaron and his sons, keeping the full charge of the rites of the sanctuary in whatever was required for the Israelites; and the excluded [one not a descendant of Aaron and called of God] who came near [the sanctuary] was to be put to death. 
 
 
 

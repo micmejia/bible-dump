@@ -304,7 +304,7 @@ Hinuli siya, hinatulan, at pinatay. Walang nakaisip, isa man sa mga salinlahi ni
 
 
 
-Kahit na wala siyang ginawang kasalanan at anumang pandaraya,[^a] inilibing siyang parang isang kriminal; inilibing siyang kasama ng mga mayayaman. 
+Kahit na wala siyang ginawang kasalanan at anumang pandaraya, inilibing siyang parang isang kriminal; inilibing siyang kasama ng mga mayayaman. 
 
 
 
@@ -403,4 +403,4 @@ Kapag nakita niya ang bunga ng kanyang paghihirap, matutuwa siya. <i class="tran
 
 
 
-Dahil dito, pararangalan ko siya katulad ng mga taong tanyag at makapangyarihan dahil ibinigay niya ang buhay niya. Ibinilang siya na isa sa mga makasalanan. Nagdusa siya para sa maraming makasalanan[^b] at hiniling pa niya sa Dios na silaʼy patawarin."
+Dahil dito, pararangalan ko siya katulad ng mga taong tanyag at makapangyarihan dahil ibinigay niya ang buhay niya. Ibinilang siya na isa sa mga makasalanan. Nagdusa siya para sa maraming makasalanan at hiniling pa niya sa Dios na silaʼy patawarin."

@@ -238,7 +238,7 @@ Hindi ka nasiyahan sa mga handog na sinusunog at mga handog sa paglilinis.
 
 
 
-Kaya sinabi ko sa iyo, 'Narito ako para tuparin ang kalooban mo, O Dios, ayon sa nasusulat sa Kasulatan tungkol sa akin.' "[^a] 
+Kaya sinabi ko sa iyo, 'Narito ako para tuparin ang kalooban mo, O Dios, ayon sa nasusulat sa Kasulatan tungkol sa akin.' " 
 
 
 
@@ -469,7 +469,7 @@ At hinihintay na lang niya ngayon ang panahong pasukuin sa kanya <i class="trans
 
 
 
-Kaya sa pamamagitan lang ng minsang paghahandog, ginawa niyang ganap magpakailanman ang mga pinabanal[^b] niya. 
+Kaya sa pamamagitan lang ng minsang paghahandog, ginawa niyang ganap magpakailanman ang mga pinabanal niya. 
 
 
 
@@ -535,7 +535,7 @@ Ang Banal na Espiritu mismo ang nagpapatotoo tungkol dito. Sapagkat sinabi niya,
 
 
 
-" 'Ganito ang <i class="trans-change">bagong_ kasunduan na gagawin ko sa kanila sa darating na panahon,' sabi ng Panginoon: 'Ilalagay ko ang aking mga utos sa puso nila at itatanim ko ang mga ito sa kanilang isipan.' "[^c] 
+" 'Ganito ang <i class="trans-change">bagong_ kasunduan na gagawin ko sa kanila sa darating na panahon,' sabi ng Panginoon: 'Ilalagay ko ang aking mga utos sa puso nila at itatanim ko ang mga ito sa kanilang isipan.' " 
 
 
 
@@ -568,7 +568,7 @@ Ang Banal na Espiritu mismo ang nagpapatotoo tungkol dito. Sapagkat sinabi niya,
 
 
 
-Dagdag pa niya, "Tuluyan ko nang lilimutin ang mga kasalanan at kasamaan nila."[^d] 
+Dagdag pa niya, "Tuluyan ko nang lilimutin ang mga kasalanan at kasamaan nila." 
 
 
 
@@ -733,7 +733,7 @@ At dahil mayroon tayong dakilang punong pari na namamahala sa pamilya ng Dios,
 
 
 
-lumapit tayo sa kanya nang may tapat na puso at matatag na pananampalataya, dahil nilinis[^e] na <i class="trans-change">ng dugo ni Jesus_ ang mga puso natin mula sa maruming pag-iisip, at nahugasan na ang mga katawan natin ng malinis na tubig. 
+lumapit tayo sa kanya nang may tapat na puso at matatag na pananampalataya, dahil nilinis na <i class="trans-change">ng dugo ni Jesus_ ang mga puso natin mula sa maruming pag-iisip, at nahugasan na ang mga katawan natin ng malinis na tubig. 
 
 
 
@@ -997,7 +997,7 @@ Gaano pa kaya kabigat ang parusang tatanggapin ng taong lumapastangan sa Anak ng
 
 
 
-Sapagkat kilala natin ang Dios na nagsabi, "Ako ang maghihiganti; ako ang magpaparusa."[^f] At mayroon ding nakasulat na ganito: "Hahatulan ng Panginoon ang mga taong sakop niya."[^g] 
+Sapagkat kilala natin ang Dios na nagsabi, "Ako ang maghihiganti; ako ang magpaparusa." At mayroon ding nakasulat na ganito: "Hahatulan ng Panginoon ang mga taong sakop niya." 
 
 
 
@@ -1261,7 +1261,7 @@ Sapagkat <i class="trans-change">sinasabi sa Kasulatan_, "Sandaling panahon na l
 
 
 
-At mabubuhay ang taong itinuring kong matuwid dahil sa pananampalataya niya. Ngunit kung tumalikod siya sa akin, hindi ko na siya kalulugdan."[^h] 
+At mabubuhay ang taong itinuring kong matuwid dahil sa pananampalataya niya. Ngunit kung tumalikod siya sa akin, hindi ko na siya kalulugdan." 
 
 
 

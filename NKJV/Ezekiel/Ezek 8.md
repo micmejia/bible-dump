@@ -16,7 +16,7 @@ And it came to pass in the sixth year, in the sixth _month,_ on the fifth _day_ 
 Then I looked, and there was a likeness, like the appearance of fire--from the appearance of His waist and downward, fire; and from His waist and upward, like the appearance of brightness, like the color of amber. 
 
 ###### 3 
-He stretched out the form of a hand, and took me by a lock of my hair; and the Spirit lifted me up between earth and heaven, and brought me in visions of God to Jerusalem, to the door of the north gate of the inner _court,_ where the seat of the image of jealousy _was,_ which provokes[^a] to jealousy. 
+He stretched out the form of a hand, and took me by a lock of my hair; and the Spirit lifted me up between earth and heaven, and brought me in visions of God to Jerusalem, to the door of the north gate of the inner _court,_ where the seat of the image of jealousy _was,_ which provokes to jealousy. 
 
 ###### 4 
 And behold, the glory of the God of Israel _was_ there, like the vision that I saw in the plain. 
@@ -37,7 +37,7 @@ Then He said to me, "Son of man, dig into the wall"; and when I dug into the wal
 And He said to me, "Go in, and see the wicked abominations which they are doing there." 
 
 ###### 10 
-So I went in and saw, and there--every sort of creeping thing, abominable beasts, and all the idols of the house of Israel, [^b]portrayed all around on the walls. 
+So I went in and saw, and there--every sort of creeping thing, abominable beasts, and all the idols of the house of Israel, portrayed all around on the walls. 
 
 ###### 11 
 And there stood before them seventy men of the elders of the house of Israel, and in their midst stood Jaazaniah the son of Shaphan. Each man had a censer in his hand, and a thick cloud of incense went up. 
@@ -49,7 +49,7 @@ Then He said to me, "Son of man, have you seen what the elders of the house of I
 And He said to me, "Turn again, _and_ you will see greater abominations that they are doing." 
 
 ###### 14 
-So He brought me to the door of the north gate of the Lord's house; and to my dismay, women were sitting there weeping for [^c]Tammuz. 
+So He brought me to the door of the north gate of the Lord's house; and to my dismay, women were sitting there weeping for Tammuz. 
 
 ###### 15 
 Then He said to me, "Have you seen _this,_ O son of man? Turn again, you will see greater abominations than these." 

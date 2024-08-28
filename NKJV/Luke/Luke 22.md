@@ -28,7 +28,7 @@ And they were glad, and agreed to give him money.
 So he promised and sought opportunity to betray Him to them in the absence of the multitude. ## Jesus and His Disciples Prepare the Passover 
 
 ###### 7 
-Then came the Day of Unleavened Bread, when the Passover must be [^a]killed. 
+Then came the Day of Unleavened Bread, when the Passover must be killed. 
 
 ###### 8 
 And He sent Peter and John, saying, "Go and prepare the Passover for us, that we may eat." 
@@ -49,7 +49,7 @@ Then he will show you a large, furnished upper room; there make ready."
 So they went and found it just as He had said to them, and they prepared the Passover. ## Jesus Institutes the Lord's Supper 
 
 ###### 14 
-When the hour had come, He sat down, and the [^b]twelve apostles with Him. 
+When the hour had come, He sat down, and the twelve apostles with Him. 
 
 ###### 15 
 Then He said to them, "With _fervent_ desire I have desired to eat this Passover with you before I suffer; 
@@ -61,7 +61,7 @@ for I say to you, I will no longer eat of it until it is fulfilled in the kingdo
 Then He took the cup, and gave thanks, and said, "Take this and divide _it_ among yourselves; 
 
 ###### 18 
-for I say to you, [^c]I will not drink of the fruit of the vine until the kingdom of God comes." 
+for I say to you, I will not drink of the fruit of the vine until the kingdom of God comes." 
 
 ###### 19 
 And He took bread, gave thanks and broke _it,_ and gave _it_ to them, saying, "This is My body which is given for you; do this in remembrance of Me." 
@@ -100,7 +100,7 @@ And I bestow upon you a kingdom, just as My Father bestowed _one_ upon Me,
 that you may eat and drink at My table in My kingdom, and sit on thrones judging the twelve tribes of Israel." ## Jesus Predicts Peter's Denial 
 
 ###### 31 
-[^d]And the Lord said, "Simon, Simon! Indeed, Satan has asked for you, that he may sift _you_ as wheat. 
+And the Lord said, "Simon, Simon! Indeed, Satan has asked for you, that he may sift _you_ as wheat. 
 
 ###### 32 
 But I have prayed for you, that your faith should not fail; and when you have returned to _Me,_ strengthen your brethren." 
@@ -118,7 +118,7 @@ And He said to them, "When I sent you without money bag, knapsack, and sandals, 
 Then He said to them, "But now, he who has a money bag, let him take _it,_ and likewise a knapsack; and he who has no sword, let him sell his garment and buy one. 
 
 ###### 37 
-For I say to you that this which is written must still be [^e]accomplished in Me: 'And He was numbered with the transgressors.' For the things concerning Me have an end." 
+For I say to you that this which is written must still be accomplished in Me: 'And He was numbered with the transgressors.' For the things concerning Me have an end." 
 
 ###### 38 
 So they said, "Lord, look, here _are_ two swords." And He said to them, "It is enough." ## The Prayer in the Garden 
@@ -136,7 +136,7 @@ And He was withdrawn from them about a stone's throw, and He knelt down and pray
 saying, "Father, if it is Your will, take this cup away from Me; nevertheless not My will, but Yours, be done." 
 
 ###### 43 
-[^f]Then an angel appeared to Him from heaven, strengthening Him. 
+Then an angel appeared to Him from heaven, strengthening Him. 
 
 ###### 44 
 And being in agony, He prayed more earnestly. Then His sweat became like great drops of blood falling down to the ground. 
@@ -178,7 +178,7 @@ Now when they had kindled a fire in the midst of the courtyard and sat down toge
 And a certain servant girl, seeing him as he sat by the fire, looked intently at him and said, "This man was also with Him." 
 
 ###### 57 
-But he denied [^g]Him, saying, "Woman, I do not know Him." 
+But he denied Him, saying, "Woman, I do not know Him." 
 
 ###### 58 
 And after a little while another saw him and said, "You also are of them." But Peter said, "Man, I am not!" 
@@ -187,10 +187,10 @@ And after a little while another saw him and said, "You also are of them." But P
 Then after about an hour had passed, another confidently affirmed, saying, "Surely this _fellow_ also was with Him, for he is a Galilean." 
 
 ###### 60 
-But Peter said, "Man, I do not know what you are saying!" Immediately, while he was still speaking, [^h]the rooster crowed. 
+But Peter said, "Man, I do not know what you are saying!" Immediately, while he was still speaking, the rooster crowed. 
 
 ###### 61 
-And the Lord turned and looked at Peter. Then Peter remembered the word of the Lord, how He had said to him, "Before the rooster [^i]crows, you will deny Me three times." 
+And the Lord turned and looked at Peter. Then Peter remembered the word of the Lord, how He had said to him, "Before the rooster crows, you will deny Me three times." 
 
 ###### 62 
 So Peter went out and wept bitterly. ## Jesus Mocked and Beaten 
@@ -199,7 +199,7 @@ So Peter went out and wept bitterly. ## Jesus Mocked and Beaten
 Now the men who held Jesus mocked Him and beat Him. 
 
 ###### 64 
-[^j]And having blindfolded Him, they struck Him on the face and asked Him, saying, "Prophesy! Who is the one who struck You?" 
+And having blindfolded Him, they struck Him on the face and asked Him, saying, "Prophesy! Who is the one who struck You?" 
 
 ###### 65 
 And many other things they blasphemously spoke against Him. ## Jesus Faces the Sanhedrin 
@@ -211,7 +211,7 @@ As soon as it was day, the elders of the people, both chief priests and scribes,
 "If You are the Christ, tell us." But He said to them, "If I tell you, you will by no means believe. 
 
 ###### 68 
-And if I [^k]also ask _you,_ you will by no means answer [^l]Me or let _Me_ go. 
+And if I also ask _you,_ you will by no means answer Me or let _Me_ go. 
 
 ###### 69 
 Hereafter the Son of Man will sit on the right hand of the power of God." 

@@ -406,7 +406,7 @@ Beware lest there should be among you a man or woman, or family or tribe, whose 
 
 
 
-And lest, when he hears the words of this curse _and_ oath, he flatters _and_ congratulates himself in his [mind and] heart, saying, I shall have peace _and_ safety, [^a]though I walk in the stubbornness of my [mind and] heart [bringing down a hurricane of destruction] and sweep away the watered land with the dry. 
+And lest, when he hears the words of this curse _and_ oath, he flatters _and_ congratulates himself in his [mind and] heart, saying, I shall have peace _and_ safety, though I walk in the stubbornness of my [mind and] heart [bringing down a hurricane of destruction] and sweep away the watered land with the dry. 
 
 
 

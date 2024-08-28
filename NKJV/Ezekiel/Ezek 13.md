@@ -13,19 +13,19 @@ next: ['Ezek 14']
 And the word of the Lord came to me, saying, 
 
 ###### 2 
-"Son of man, prophesy against the prophets of Israel who prophesy, and say to those who prophesy out of their own heart,[^a] 'Hear the word of the Lord!' " 
+"Son of man, prophesy against the prophets of Israel who prophesy, and say to those who prophesy out of their own heart, 'Hear the word of the Lord!' " 
 
 ###### 3 
-Thus says the Lord God: "Woe to the foolish prophets, who follow their own spirit and have seen [^b]nothing! 
+Thus says the Lord God: "Woe to the foolish prophets, who follow their own spirit and have seen nothing! 
 
 ###### 4 
 O Israel, your prophets are like foxes in the deserts. 
 
 ###### 5 
-You have not gone up into the [^c]gaps to build a wall for the house of Israel to stand in battle on the day of the Lord. 
+You have not gone up into the gaps to build a wall for the house of Israel to stand in battle on the day of the Lord. 
 
 ###### 6 
-They have envisioned futility and false divination, saying, 'Thus says the Lord!' But the Lord has not sent them; yet they hope that the word may [^d]be confirmed. 
+They have envisioned futility and false divination, saying, 'Thus says the Lord!' But the Lord has not sent them; yet they hope that the word may be confirmed. 
 
 ###### 7 
 Have you not seen a futile vision, and have you not spoken false divination? You say, 'The Lord says,' but I have not spoken." 
@@ -37,7 +37,7 @@ Therefore thus says the Lord God: "Because you have spoken nonsense and envision
 "My hand will be against the prophets who envision futility and who divine lies; they shall not be in the assembly of My people, nor be written in the record of the house of Israel, nor shall they enter into the land of Israel. Then you shall know that I _am_ the Lord God. 
 
 ###### 10 
-"Because, indeed, because they have seduced My people, saying, 'Peace!' when _there is_ no peace--and one builds a wall, and they plaster[^e] it with untempered _mortar_-- 
+"Because, indeed, because they have seduced My people, saying, 'Peace!' when _there is_ no peace--and one builds a wall, and they plaster it with untempered _mortar_-- 
 
 ###### 11 
 say to those who plaster _it_ with untempered _mortar,_ that it will fall. There will be flooding rain, and you, O great hailstones, shall fall; and a stormy wind shall tear _it_ down. 
@@ -58,16 +58,16 @@ So I will break down the wall you have plastered with untempered _mortar,_ and b
 _that is,_ the prophets of Israel who prophesy concerning Jerusalem, and who see visions of peace for her when _there is_ no peace,' " says the Lord God. 
 
 ###### 17 
-"Likewise, son of man, set your face against the daughters of your people, who prophesy out of their own [^f]heart; prophesy against them, 
+"Likewise, son of man, set your face against the daughters of your people, who prophesy out of their own heart; prophesy against them, 
 
 ###### 18 
-and say, 'Thus says the Lord God: "Woe to the _women_ who sew _magic_ charms [^g]on their sleeves and make veils for the heads of people of every height to hunt souls! Will you hunt the souls of My people, and keep yourselves alive? 
+and say, 'Thus says the Lord God: "Woe to the _women_ who sew _magic_ charms on their sleeves and make veils for the heads of people of every height to hunt souls! Will you hunt the souls of My people, and keep yourselves alive? 
 
 ###### 19 
 And will you profane Me among My people for handfuls of barley and for pieces of bread, killing people who should not die, and keeping people alive who should not live, by your lying to My people who listen to lies?" 
 
 ###### 20 
-'Therefore thus says the Lord God: "Behold, I _am_ against your _magic_ charms by which you hunt souls there like [^h]birds. I will tear them from your arms, and let the souls go, the souls you hunt like birds. 
+'Therefore thus says the Lord God: "Behold, I _am_ against your _magic_ charms by which you hunt souls there like birds. I will tear them from your arms, and let the souls go, the souls you hunt like birds. 
 
 ###### 21 
 I will also tear off your veils and deliver My people out of your hand, and they shall no longer be as prey in your hand. Then you shall know that I _am_ the Lord. 

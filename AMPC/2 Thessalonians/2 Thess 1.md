@@ -153,7 +153,7 @@ This is positive proof of the just _and_ right judgment of God to the end that y
 
 
 
-And to [[^a]recompense] you who are so distressed _and_ afflicted [by granting you] relief _and_ rest along with us [your fellow sufferers] when the Lord Jesus is revealed from heaven with His mighty angels in a flame of fire, 
+And to [recompense] you who are so distressed _and_ afflicted [by granting you] relief _and_ rest along with us [your fellow sufferers] when the Lord Jesus is revealed from heaven with His mighty angels in a flame of fire, 
 
 
 
@@ -237,7 +237,7 @@ When He comes to be glorified in His saints [on that day He will be made more gl
 
 
 
-With this in view we constantly pray for you, that our God may deem _and_ count you worthy of [your] calling and [His] every gracious purpose of goodness, and with power may complete in [your] every particular work of faith (faith which is that [^b]leaning of the whole human personality on God in absolute trust and confidence in His power, wisdom, and goodness). 
+With this in view we constantly pray for you, that our God may deem _and_ count you worthy of [your] calling and [His] every gracious purpose of goodness, and with power may complete in [your] every particular work of faith (faith which is that leaning of the whole human personality on God in absolute trust and confidence in His power, wisdom, and goodness). 
 
 
 

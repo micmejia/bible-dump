@@ -10,7 +10,7 @@ next: ['Exod 6']
 
 
 ###### 1 
-Afterward Moses and Aaron went in and told Pharaoh, "Thus says the Lord God of Israel: 'Let My people go, that they may [^a]hold a feast to Me in the wilderness.' " 
+Afterward Moses and Aaron went in and told Pharaoh, "Thus says the Lord God of Israel: 'Let My people go, that they may hold a feast to Me in the wilderness.' " 
 
 ###### 2 
 And Pharaoh said, "Who _is_ the Lord, that I should obey His voice to let Israel go? I do not know the Lord, nor will I let Israel go." 
@@ -70,7 +70,7 @@ And the officers of the children of Israel saw _that_ they _were_ in trouble aft
 Then, as they came out from Pharaoh, they met Moses and Aaron who stood there to meet them. 
 
 ###### 21 
-And they said to them, "Let the Lord look on you and judge, because you have made [^b]us abhorrent in the sight of Pharaoh and in the sight of his servants, to put a sword in their hand to kill us." ## Israel's Deliverance Assured 
+And they said to them, "Let the Lord look on you and judge, because you have made us abhorrent in the sight of Pharaoh and in the sight of his servants, to put a sword in their hand to kill us." ## Israel's Deliverance Assured 
 
 ###### 22 
 So Moses returned to the Lord and said, "Lord, why have You brought trouble on this people? Why _is_ it You have sent me? 

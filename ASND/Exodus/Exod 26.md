@@ -469,7 +469,7 @@ at ilaylay din sa bawat gilid ang isaʼt kalahating talampakan ng tela na sobra 
 
 
 
-Ang ibabaw ng talukbong ng Tolda ay papatungan ng balat ng lalaking tupa na kinulayan ng pula, at papatungan din ng magandang klase ng balat.[^a] 
+Ang ibabaw ng talukbong ng Tolda ay papatungan ng balat ng lalaking tupa na kinulayan ng pula, at papatungan din ng magandang klase ng balat. 
 
 
 
@@ -568,7 +568,7 @@ Ang haba ng bawat tabla ay 15 talampakan at ang lapad ay dalawang talampakan.
 
 
 
-Ang bawat tabla ay nilagyan ng dalawang mitsa[^b] para maidugtong ito sa isa pang tabla. Ganito ang ginawa nila sa bawat tabla. 
+Ang bawat tabla ay nilagyan ng dalawang mitsa para maidugtong ito sa isa pang tabla. Ganito ang ginawa nila sa bawat tabla. 
 
 
 
@@ -964,7 +964,7 @@ Ang biga sa gitna ng balangkas ay manggagaling sa dulo ng Tolda papunta sa kabil
 
 
 
-Pabalutan ng ginto ang mga tabla at palagyan ng mga argolyang[^c] ginto na pagsusuotan ng mga biga, pabalutan din ng ginto ang mga biga. 
+Pabalutan ng ginto ang mga tabla at palagyan ng mga argolyang ginto na pagsusuotan ng mga biga, pabalutan din ng ginto ang mga biga. 
 
 
 

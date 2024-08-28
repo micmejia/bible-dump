@@ -82,7 +82,7 @@ Then he prepared a great feast for them; and after they ate and drank, he sent t
 And it happened after this that Ben-Hadad king of Syria gathered all his army, and went up and besieged Samaria. 
 
 ###### 25 
-And there was a great famine in Samaria; and indeed they besieged it until a donkey's head was _sold_ for eighty _shekels_ of silver, and one-fourth of a [^a]kab of dove droppings for five _shekels_ of silver. 
+And there was a great famine in Samaria; and indeed they besieged it until a donkey's head was _sold_ for eighty _shekels_ of silver, and one-fourth of a kab of dove droppings for five _shekels_ of silver. 
 
 ###### 26 
 Then, as the king of Israel was passing by on the wall, a woman cried out to him, saying, "Help, my lord, O king!" 

@@ -205,7 +205,7 @@ Kung gagawin mo ito, malalaman mo kung ano ang pagkatakot sa Panginoon at mauuna
 
 
 
-Sapagkat ang Panginoon ang nagbibigay ng karunungan, kaalaman, at ng pang-unawa. ###### 7-8 Iniingatan niya ang namumuhay nang matuwid, matapat, at walang kapintasan. Binibigyan din niya sila ng katagumpayan.[^a] 
+Sapagkat ang Panginoon ang nagbibigay ng karunungan, kaalaman, at ng pang-unawa. ###### 7-8 Iniingatan niya ang namumuhay nang matuwid, matapat, at walang kapintasan. Binibigyan din niya sila ng katagumpayan. 
 
 
 

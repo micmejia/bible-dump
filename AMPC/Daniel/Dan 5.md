@@ -532,7 +532,7 @@ Then was the part of the hand sent from the presence of [the Most High God], and
 
 
 
-And this is the [^a]inscription that was written, mene, mene, tekel, upharsin--numbered, numbered, weighed, divisions. 
+And this is the inscription that was written, mene, mene, tekel, upharsin--numbered, numbered, weighed, divisions. 
 
 
 
@@ -595,7 +595,7 @@ tekel, You are weighed in the balances and are found wanting;
 
 
 
-[^b]peres, Your kingdom _and_ your kingship are divided and given to the Medes and Persians. [Foretold in Isa. 21:2, 5, 9.] 
+peres, Your kingdom _and_ your kingship are divided and given to the Medes and Persians. [Foretold in Isa. 21:2, 5, 9.] 
 
 
 

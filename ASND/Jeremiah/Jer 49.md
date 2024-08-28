@@ -832,7 +832,7 @@ Nanghihina ang mga taga-Damascus at tumakas sila dahil sa takot. Takot at sakit 
 
 
 
-Ang tanyag at masayang[^a] lungsod ng Damascus ay itinakwil. 
+Ang tanyag at masayang lungsod ng Damascus ay itinakwil. 
 
 
 
@@ -1096,7 +1096,7 @@ Ang mga kamelyo nila at ang lahat ng kawan nila ay magiging inyo. Pangangalatin 
 
 
 
-Magiging malungkot ang Hazor magpakailanman at walang taong maninirahan doon kundi magiging tirahan na lang ng mga asong-gubat.' "[^b] ## Ang Mensahe tungkol sa Elam 
+Magiging malungkot ang Hazor magpakailanman at walang taong maninirahan doon kundi magiging tirahan na lang ng mga asong-gubat.' " ## Ang Mensahe tungkol sa Elam 
 
 
 

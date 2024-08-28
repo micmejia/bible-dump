@@ -271,7 +271,7 @@ At ito ang dahilan ng pagkahirang ko bilang apostol at tagapangaral sa mga hindi
 
 
 
-Gusto kong sa lahat ng pagtitipon-tipon[^a] ay manalangin ang mga lalaki nang may malinis na kalooban, na sa pagtaas nila ng kamay sa pananalangin ay walang galit o pakikipagtalo. 
+Gusto kong sa lahat ng pagtitipon-tipon ay manalangin ang mga lalaki nang may malinis na kalooban, na sa pagtaas nila ng kamay sa pananalangin ay walang galit o pakikipagtalo. 
 
 
 

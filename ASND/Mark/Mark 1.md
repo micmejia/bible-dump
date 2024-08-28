@@ -6,7 +6,7 @@ next: ['Mark 2']
 # Mark 1
 
 ***
-###### 1-2 Ito ang Magandang Balita tungkol kay Jesu-Cristo na Anak ng Dios. Nagsimula ito nang matupad ang isinulat ni Propeta Isaias <i class="trans-change">tungkol sa sinabi ng Dios sa kanyang Anak:_ "Ipapadala ko ang aking mensahero. Mauuna siya sa iyo upang ihanda ang dadaanan mo.[^a] 
+###### 1-2 Ito ang Magandang Balita tungkol kay Jesu-Cristo na Anak ng Dios. Nagsimula ito nang matupad ang isinulat ni Propeta Isaias <i class="trans-change">tungkol sa sinabi ng Dios sa kanyang Anak:_ "Ipapadala ko ang aking mensahero. Mauuna siya sa iyo upang ihanda ang dadaanan mo. 
 
 
 
@@ -39,7 +39,7 @@ next: ['Mark 2']
 
 
 
-Maririnig ang kanyang sigaw sa ilang, na nagsasabi, 'Ihanda ninyo ang daan para sa Panginoon, tuwirin ninyo ang mga landas na kanyang dadaanan.' "[^b] ###### 4-5 <i class="trans-change">At natupad ito_ noong dumating si Juan na tagapagbautismo roon sa ilang. Napakaraming tao ang pumunta sa kanya galing sa Jerusalem at sa buong <i class="trans-change">lalawigan ng_ Judea. Nangaral si Juan <i class="trans-change">sa mga tao_, "Magsisi kayo at talikdan ang inyong mga kasalanan; magpabautismo kayo para sa kapatawaran ng inyong mga kasalanan." Ipinahayag nila ang kanilang mga kasalanan at binautismuhan sila ni Juan sa Ilog ng Jordan. 
+Maririnig ang kanyang sigaw sa ilang, na nagsasabi, 'Ihanda ninyo ang daan para sa Panginoon, tuwirin ninyo ang mga landas na kanyang dadaanan.' " ###### 4-5 <i class="trans-change">At natupad ito_ noong dumating si Juan na tagapagbautismo roon sa ilang. Napakaraming tao ang pumunta sa kanya galing sa Jerusalem at sa buong <i class="trans-change">lalawigan ng_ Judea. Nangaral si Juan <i class="trans-change">sa mga tao_, "Magsisi kayo at talikdan ang inyong mga kasalanan; magpabautismo kayo para sa kapatawaran ng inyong mga kasalanan." Ipinahayag nila ang kanilang mga kasalanan at binautismuhan sila ni Juan sa Ilog ng Jordan. 
 
 
 
@@ -105,7 +105,7 @@ Ang damit ni Juan ay gawa sa balahibo ng kamelyo at ang sinturon niyaʼy gawa sa
 
 
 
-Ito ang ipinapahayag niya, "May isang darating na kasunod ko, mas makapangyarihan siya kaysa sa akin at hindi man lang ako karapat-dapat na maging alipin niya.[^c] 
+Ito ang ipinapahayag niya, "May isang darating na kasunod ko, mas makapangyarihan siya kaysa sa akin at hindi man lang ako karapat-dapat na maging alipin niya. 
 
 
 
@@ -369,7 +369,7 @@ Nang mabilanggo si Juan <i class="trans-change">na tagapagbautismo_, pumunta si 
 
 
 
-Sinabi niya, "Dumating na ang takdang panahon! Malapit na[^d] ang paghahari ng Dios. Pagsisihan na ninyo ang inyong mga kasalanan at maniwala kayo sa Magandang Balita!" 
+Sinabi niya, "Dumating na ang takdang panahon! Malapit na ang paghahari ng Dios. Pagsisihan na ninyo ang inyong mga kasalanan at maniwala kayo sa Magandang Balita!" 
 
 
 
@@ -435,7 +435,7 @@ Sinabi niya, "Dumating na ang takdang panahon! Malapit na[^d] ang paghahari ng D
 
 
 
-Sinabi ni Jesus sa kanila, "Sumunod kayo sa akin at gagawin ko kayong mangingisda ng mga tao."[^e] 
+Sinabi ni Jesus sa kanila, "Sumunod kayo sa akin at gagawin ko kayong mangingisda ng mga tao." 
 
 
 
@@ -1194,7 +1194,7 @@ Kaya nilibot ni Jesus ang buong Galilea at nangaral siya sa mga sambahan ng mga 
 
 
 
-Lumapit kay Jesus ang isang lalaking may malubhang sakit sa balat.[^f] Lumuhod ito sa harap niya at nagmakaawang <i class="trans-change">pagalingin siya_. Sinabi niya, "Kung gusto nʼyo po, mapapagaling nʼyo ako upang maituring akong malinis."[^g] 
+Lumapit kay Jesus ang isang lalaking may malubhang sakit sa balat. Lumuhod ito sa harap niya at nagmakaawang <i class="trans-change">pagalingin siya_. Sinabi niya, "Kung gusto nʼyo po, mapapagaling nʼyo ako upang maituring akong malinis." 
 
 
 

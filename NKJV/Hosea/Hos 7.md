@@ -10,10 +10,10 @@ next: ['Hos 8']
 
 
 ###### 1 
-"When I would have healed Israel, Then the iniquity of Ephraim was uncovered, And the wickedness of Samaria. For they have committed fraud; A thief comes in; A band of robbers [^a]takes spoil outside. 
+"When I would have healed Israel, Then the iniquity of Ephraim was uncovered, And the wickedness of Samaria. For they have committed fraud; A thief comes in; A band of robbers takes spoil outside. 
 
 ###### 2 
-They [^b]do not consider in their hearts _That_ I remember all their wickedness; Now their own deeds have surrounded them; They are before My face. 
+They do not consider in their hearts _That_ I remember all their wickedness; Now their own deeds have surrounded them; They are before My face. 
 
 ###### 3 
 They make a king glad with their wickedness, And princes with their lies. 
@@ -22,10 +22,10 @@ They make a king glad with their wickedness, And princes with their lies.
 "They _are_ all adulterers. Like an oven heated by a baker-- He ceases stirring _the fire_ after kneading the dough, Until it is leavened. 
 
 ###### 5 
-In the day of our king Princes have made _him_ sick, [^c]inflamed with wine; He stretched out his hand with scoffers. 
+In the day of our king Princes have made _him_ sick, inflamed with wine; He stretched out his hand with scoffers. 
 
 ###### 6 
-They prepare their heart like an oven, While they lie in wait; [^d]Their baker sleeps all night; In the morning it burns like a flaming fire. 
+They prepare their heart like an oven, While they lie in wait; Their baker sleeps all night; In the morning it burns like a flaming fire. 
 
 ###### 7 
 They are all hot, like an oven, And have devoured their judges; All their kings have fallen. None among them calls upon Me. 
@@ -40,7 +40,7 @@ Aliens have devoured his strength, But he does not know _it;_ Yes, gray hairs ar
 And the pride of Israel testifies to his face, But they do not return to the Lord their God, Nor seek Him for all this. ## Futile Reliance on the Nations 
 
 ###### 11 
-"Ephraim also is like a silly dove, without [^e]sense-- They call to Egypt, They go to Assyria. 
+"Ephraim also is like a silly dove, without sense-- They call to Egypt, They go to Assyria. 
 
 ###### 12 
 Wherever they go, I will spread My net on them; I will bring them down like birds of the air; I will chastise them According to what their congregation has heard. 
@@ -49,10 +49,10 @@ Wherever they go, I will spread My net on them; I will bring them down like bird
 "Woe to them, for they have fled from Me! Destruction to them, Because they have transgressed against Me! Though I redeemed them, Yet they have spoken lies against Me. 
 
 ###### 14 
-They did not cry out to Me with their heart When they wailed upon their beds. "They [^f]assemble together for grain and new wine, [^g]They rebel against Me; 
+They did not cry out to Me with their heart When they wailed upon their beds. "They assemble together for grain and new wine, They rebel against Me; 
 
 ###### 15 
 Though I disciplined _and_ strengthened their arms, Yet they devise evil against Me; 
 
 ###### 16 
-They return, _but_ not [^h]to the Most High; They are like a treacherous bow. Their princes shall fall by the sword For the cursings of their tongue. This _shall be_ their derision in the land of Egypt.
+They return, _but_ not to the Most High; They are like a treacherous bow. Their princes shall fall by the sword For the cursings of their tongue. This _shall be_ their derision in the land of Egypt.

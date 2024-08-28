@@ -52,7 +52,7 @@ He who despises the word will be destroyed, But he who fears the commandment wil
 The law of the wise _is_ a fountain of life, To turn _one_ away from the snares of death. 
 
 ###### 15 
-Good understanding [^a]gains favor, But the way of the unfaithful _is_ hard. 
+Good understanding gains favor, But the way of the unfaithful _is_ hard. 
 
 ###### 16 
 Every prudent _man_ acts with knowledge, But a fool lays open _his_ folly. 
@@ -61,7 +61,7 @@ Every prudent _man_ acts with knowledge, But a fool lays open _his_ folly.
 A wicked messenger falls into trouble, But a faithful ambassador _brings_ health. 
 
 ###### 18 
-Poverty and shame _will come_ to him who [^b]disdains correction, But he who regards a rebuke will be honored. 
+Poverty and shame _will come_ to him who disdains correction, But he who regards a rebuke will be honored. 
 
 ###### 19 
 A desire accomplished is sweet to the soul, But _it is_ an abomination to fools to depart from evil. 
@@ -76,10 +76,10 @@ Evil pursues sinners, But to the righteous, good shall be repaid.
 A good _man_ leaves an inheritance to his children's children, But the wealth of the sinner is stored up for the righteous. 
 
 ###### 23 
-Much food _is in_ the [^c]fallow _ground_ of the poor, And for lack of justice there is [^d]waste. 
+Much food _is in_ the fallow _ground_ of the poor, And for lack of justice there is waste. 
 
 ###### 24 
-He who spares his rod hates his son, But he who loves him disciplines him [^e]promptly. 
+He who spares his rod hates his son, But he who loves him disciplines him promptly. 
 
 ###### 25 
 The righteous eats to the satisfying of his soul, But the stomach of the wicked shall be in want.

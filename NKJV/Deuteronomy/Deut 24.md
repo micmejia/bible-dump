@@ -10,7 +10,7 @@ next: ['Deut 25']
 
 
 ###### 1 
-"When a man takes a wife and marries her, and it happens that she finds no favor in his eyes because he has found some [^a]uncleanness in her, and he writes her a certificate of divorce, puts _it_ in her hand, and sends her out of his house, 
+"When a man takes a wife and marries her, and it happens that she finds no favor in his eyes because he has found some uncleanness in her, and he writes her a certificate of divorce, puts _it_ in her hand, and sends her out of his house, 
 
 ###### 2 
 when she has departed from his house, and goes and becomes another man's _wife,_ 
@@ -19,16 +19,16 @@ when she has departed from his house, and goes and becomes another man's _wife,_
 _if_ the latter husband detests her and writes her a certificate of divorce, puts _it_ in her hand, and sends her out of his house, or if the latter husband dies who took her as his wife, 
 
 ###### 4 
-_then_ her former husband who divorced her must not take her back to be his wife after she has been defiled; for that _is_ [^b]an abomination before the Lord, and you shall not bring sin on the land which the Lord your God is giving you _as_ an inheritance. ## Miscellaneous Laws 
+_then_ her former husband who divorced her must not take her back to be his wife after she has been defiled; for that _is_ an abomination before the Lord, and you shall not bring sin on the land which the Lord your God is giving you _as_ an inheritance. ## Miscellaneous Laws 
 
 ###### 5 
 "When a man has taken a new wife, he shall not go out to war or be charged with any business; he shall be free at home one year, and bring happiness to his wife whom he has taken. 
 
 ###### 6 
-"No man shall take the lower or the upper millstone in pledge, for he takes [^c]_one's_ living in pledge. 
+"No man shall take the lower or the upper millstone in pledge, for he takes _one's_ living in pledge. 
 
 ###### 7 
-"If a man is found [^d]kidnapping any of his brethren of the children of Israel, and mistreats him or sells him, then that kidnapper shall die; and you shall put away the evil from among you. 
+"If a man is found kidnapping any of his brethren of the children of Israel, and mistreats him or sells him, then that kidnapper shall die; and you shall put away the evil from among you. 
 
 ###### 8 
 "Take heed in an outbreak of leprosy, that you carefully observe and do according to all that the priests, the Levites, shall teach you; just as I commanded them, _so_ you shall be careful to do. 
@@ -43,7 +43,7 @@ Remember what the Lord your God did to Miriam on the way when you came out of Eg
 You shall stand outside, and the man to whom you lend shall bring the pledge out to you. 
 
 ###### 12 
-And if the man _is_ poor, you shall not [^e]keep his pledge overnight. 
+And if the man _is_ poor, you shall not keep his pledge overnight. 
 
 ###### 13 
 You shall in any case return the pledge to him again when the sun goes down, that he may sleep in his own garment and bless you; and it shall be righteousness to you before the Lord your God. 

@@ -448,7 +448,7 @@ And to Joseph in the land of Egypt were born Manasseh and Ephraim, whom Asenath 
 
 
 
-And the sons of [^a]Benjamin: Bela, Becher, Ashbel, Gera, Naaman, Ehi, Rosh, Muppim, Huppim, and Ard. 
+And the sons of Benjamin: Bela, Becher, Ashbel, Gera, Naaman, Ehi, Rosh, Muppim, Huppim, and Ard. 
 
 
 

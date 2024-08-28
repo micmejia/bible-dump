@@ -69,7 +69,7 @@ Vapor of vapors _and_ futility of futilities, says the Preacher. Vapor of vapors
 
 
 
-What profit does man have left from all his toil at which he toils [^a]under the sun? [Is life worth living?] 
+What profit does man have left from all his toil at which he toils under the sun? [Is life worth living?] 
 
 
 
@@ -279,7 +279,7 @@ I, the Preacher, have been king over Israel in Jerusalem.
 
 
 
-And I applied myself by heart _and_ mind to seek and search out by [human] [^b]wisdom all human activity under heaven. It is a miserable business which [^c]God has given to the sons of man with which to busy themselves. 
+And I applied myself by heart _and_ mind to seek and search out by [human] wisdom all human activity under heaven. It is a miserable business which God has given to the sons of man with which to busy themselves. 
 
 
 

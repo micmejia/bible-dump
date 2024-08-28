@@ -27,7 +27,7 @@ next: ['Joel 2']
 
 
 
-The word of the Lord that came to [^a]Joel the son of Pethuel. 
+The word of the Lord that came to Joel the son of Pethuel. 
 
 
 

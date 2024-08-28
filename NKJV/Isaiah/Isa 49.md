@@ -10,7 +10,7 @@ next: ['Isa 50']
 
 
 ###### 1 
-"Listen, O coastlands, to Me, And take heed, you peoples from afar! The Lord has called Me from the womb; From the [^a]matrix of My mother He has made mention of My name. 
+"Listen, O coastlands, to Me, And take heed, you peoples from afar! The Lord has called Me from the womb; From the matrix of My mother He has made mention of My name. 
 
 ###### 2 
 And He has made My mouth like a sharp sword; In the shadow of His hand He has hidden Me, And made Me a polished shaft; In His quiver He has hidden Me." 
@@ -19,19 +19,19 @@ And He has made My mouth like a sharp sword; In the shadow of His hand He has hi
 "And He said to me, 'You _are_ My servant, O Israel, In whom I will be glorified.' 
 
 ###### 4 
-Then I said, 'I have labored in vain, I have spent my strength for nothing and in vain; Yet surely my [^b]just reward _is_ with the Lord, And my [^c]work with my God.' " 
+Then I said, 'I have labored in vain, I have spent my strength for nothing and in vain; Yet surely my just reward _is_ with the Lord, And my work with my God.' " 
 
 ###### 5 
-"And now the Lord says, Who formed Me from the womb _to be_ His Servant, To bring Jacob back to Him, So that Israel is [^d]gathered to Him (For I shall be glorious in the eyes of the Lord, And My God shall be My strength), 
+"And now the Lord says, Who formed Me from the womb _to be_ His Servant, To bring Jacob back to Him, So that Israel is gathered to Him (For I shall be glorious in the eyes of the Lord, And My God shall be My strength), 
 
 ###### 6 
 Indeed He says, 'It is too small a thing that You should be My Servant To raise up the tribes of Jacob, And to restore the preserved ones of Israel; I will also give You as a light to the Gentiles, That You should be My salvation to the ends of the earth.' " 
 
 ###### 7 
-Thus says the Lord, The Redeemer of Israel, [^e]their Holy One, To Him [^f]whom man despises, To Him whom the nation abhors, To the Servant of rulers: "Kings shall see and arise, Princes also shall worship, Because of the Lord who is faithful, The Holy One of Israel; And He has chosen You." 
+Thus says the Lord, The Redeemer of Israel, their Holy One, To Him whom man despises, To Him whom the nation abhors, To the Servant of rulers: "Kings shall see and arise, Princes also shall worship, Because of the Lord who is faithful, The Holy One of Israel; And He has chosen You." 
 
 ###### 8 
-Thus says the Lord: "In an acceptable[^g] time I have heard You, And in the day of salvation I have helped You; I will [^h]preserve You and give You As a covenant to the people, To restore the earth, To cause them to inherit the desolate [^i]heritages; 
+Thus says the Lord: "In an acceptable time I have heard You, And in the day of salvation I have helped You; I will preserve You and give You As a covenant to the people, To restore the earth, To cause them to inherit the desolate heritages; 
 
 ###### 9 
 That You may say to the prisoners, 'Go forth,' To those who _are_ in darkness, 'Show yourselves.' "They shall feed along the roads, And their pastures _shall be_ on all desolate heights. 
@@ -52,13 +52,13 @@ Sing, O heavens! Be joyful, O earth! And break out in singing, O mountains! For 
 But Zion said, "The Lord has forsaken me, And my Lord has forgotten me." 
 
 ###### 15 
-"Can a woman forget her nursing child, [^j]And not have compassion on the son of her womb? Surely they may forget, Yet I will not forget you. 
+"Can a woman forget her nursing child, And not have compassion on the son of her womb? Surely they may forget, Yet I will not forget you. 
 
 ###### 16 
 See, I have inscribed you on the palms _of My hands;_ Your walls _are_ continually before Me. 
 
 ###### 17 
-Your [^k]sons shall make haste; Your destroyers and those who laid you waste Shall go away from you. 
+Your sons shall make haste; Your destroyers and those who laid you waste Shall go away from you. 
 
 ###### 18 
 Lift up your eyes, look around and see; All these gather together _and_ come to you. _As_ I live," says the Lord, "You shall surely clothe yourselves with them all as an ornament, And bind them _on you_ as a bride _does._ 
@@ -73,13 +73,13 @@ The children you will have, After you have lost the others, Will say again in yo
 Then you will say in your heart, 'Who has begotten these for me, Since I have lost my children and am desolate, A captive, and wandering to and fro? And who has brought these up? There I was, left alone; But these, where _were_ they?' " 
 
 ###### 22 
-Thus says the Lord God: "Behold, I will lift My hand in an oath to the nations, And set up My [^l]standard for the peoples; They shall bring your sons in _their_ [^m]arms, And your daughters shall be carried on _their_ shoulders; 
+Thus says the Lord God: "Behold, I will lift My hand in an oath to the nations, And set up My standard for the peoples; They shall bring your sons in _their_ arms, And your daughters shall be carried on _their_ shoulders; 
 
 ###### 23 
 Kings shall be your foster fathers, And their queens your nursing mothers; They shall bow down to you with _their_ faces to the earth, And lick up the dust of your feet. Then you will know that I _am_ the Lord, For they shall not be ashamed who wait for Me." 
 
 ###### 24 
-Shall the prey be taken from the mighty, Or the captives [^n]of the righteous be delivered? 
+Shall the prey be taken from the mighty, Or the captives of the righteous be delivered? 
 
 ###### 25 
 But thus says the Lord: "Even the captives of the mighty shall be taken away, And the prey of the terrible be delivered; For I will contend with him who contends with you, And I will save your children. 

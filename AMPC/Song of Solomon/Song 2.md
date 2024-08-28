@@ -133,7 +133,7 @@ Sustain me with raisins, refresh me with apples, for I am sick with love.
 
 
 
-[I can feel] [^a]his left hand under my head and his right hand embraces me! 
+[I can feel] his left hand under my head and his right hand embraces me! 
 
 
 
@@ -280,7 +280,7 @@ The flowers appear on the earth; the time of the singing [of birds] has come, an
 
 
 
-The fig tree puts forth _and_ ripens her green figs, and the vines are in blossom and give forth their fragrance. [^b]Arise, my love, my fair one, and come away. 
+The fig tree puts forth _and_ ripens her green figs, and the vines are in blossom and give forth their fragrance. Arise, my love, my fair one, and come away. 
 
 
 
@@ -301,7 +301,7 @@ The fig tree puts forth _and_ ripens her green figs, and the vines are in blosso
 
 
 
-[So I went with him, and when we were climbing the rocky steps up the hillside, my beloved shepherd said to me] O my dove, [while you are here] in the seclusion of the clefts in the solid rock, in the sheltered _and_ secret place of the cliff, let me see your face, [^c]let me hear your voice; for your voice is sweet, and your face is lovely. 
+[So I went with him, and when we were climbing the rocky steps up the hillside, my beloved shepherd said to me] O my dove, [while you are here] in the seclusion of the clefts in the solid rock, in the sheltered _and_ secret place of the cliff, let me see your face, let me hear your voice; for your voice is sweet, and your face is lovely. 
 
 
 
@@ -322,7 +322,7 @@ The fig tree puts forth _and_ ripens her green figs, and the vines are in blosso
 
 
 
-[My heart was touched and I fervently sang to him my desire] Take for us the foxes, the [^d]little foxes that spoil the vineyards [of our love], for our vineyards are in blossom. 
+[My heart was touched and I fervently sang to him my desire] Take for us the foxes, the little foxes that spoil the vineyards [of our love], for our vineyards are in blossom. 
 
 
 

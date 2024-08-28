@@ -153,7 +153,7 @@ He is not here, but has risen! Remember how He told you while He was still in Ga
 
 
 
-That the Son of Man must be given over into the hands of sinful men (men [^a]whose way or nature is to act in opposition to God) and be crucified and on the third day rise [[^b]from death]. 
+That the Son of Man must be given over into the hands of sinful men (men whose way or nature is to act in opposition to God) and be crucified and on the third day rise [from death]. 
 
 
 
@@ -237,7 +237,7 @@ Now it was Mary Magdalene and Joanna and Mary the mother of James, and the other
 
 
 
-But these reports seemed to the men an idle tale ([^c]madness, [^d]feigned things, [^e]nonsense), and they did not believe the women. 
+But these reports seemed to the men an idle tale (madness, feigned things, nonsense), and they did not believe the women. 
 
 
 
@@ -363,7 +363,7 @@ But their eyes were held, so that they did not recognize Him.
 
 
 
-And He said to them, What is this discussion that you are exchanging ([^f]throwing back and forth) between yourselves as you walk along? And they stood still, looking sad _and_ downcast. 
+And He said to them, What is this discussion that you are exchanging (throwing back and forth) between yourselves as you walk along? And they stood still, looking sad _and_ downcast. 
 
 
 
@@ -468,7 +468,7 @@ But we were hoping that it was He Who would redeem _and_ set Israel free. Yes, a
 
 
 
-And moreover, some women of our company astounded us _and_ [^g]drove us out of our senses. They were at the tomb early [in the morning] 
+And moreover, some women of our company astounded us _and_ drove us out of our senses. They were at the tomb early [in the morning] 
 
 
 
@@ -552,7 +552,7 @@ And [Jesus] said to them, O foolish ones [sluggish in mind, dull of perception] 
 
 
 
-Was it not necessary _and_ [^h]essentially fitting that the Christ (the Messiah) should suffer all these things before entering into His glory (His majesty and splendor)? 
+Was it not necessary _and_ essentially fitting that the Christ (the Messiah) should suffer all these things before entering into His glory (His majesty and splendor)? 
 
 
 
@@ -657,7 +657,7 @@ And it occurred that as He reclined at table with them, He took [a loaf of] brea
 
 
 
-When their eyes were [instantly] opened and they [clearly] recognized Him, and He vanished ([^i]departed invisibly). 
+When their eyes were [instantly] opened and they [clearly] recognized Him, and He vanished (departed invisibly). 
 
 
 
@@ -741,7 +741,7 @@ Who said, The Lord really has risen and has appeared to Simon (Peter)!
 
 
 
-Then they [themselves] [^j]related [in full] what had happened on the road, and how He was known _and_ recognized by them in the breaking of bread. 
+Then they [themselves] related [in full] what had happened on the road, and how He was known _and_ recognized by them in the breaking of bread. 
 
 
 
@@ -762,7 +762,7 @@ Then they [themselves] [^j]related [in full] what had happened on the road, and 
 
 
 
-Now while they were talking about this, Jesus Himself took His stand among them and said to them, Peace ([^k]freedom from all the distresses that are experienced as the result of sin) be to you! 
+Now while they were talking about this, Jesus Himself took His stand among them and said to them, Peace (freedom from all the distresses that are experienced as the result of sin) be to you! 
 
 
 
@@ -972,7 +972,7 @@ Then He [thoroughly] opened up their minds to understand the Scriptures,
 
 
 
-And said to them, Thus it is written that the Christ (the Messiah) should suffer and on the third day rise from ([^l] among) the dead, 
+And said to them, Thus it is written that the Christ (the Messiah) should suffer and on the third day rise from ( among) the dead, 
 
 
 

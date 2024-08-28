@@ -46,7 +46,7 @@ Now God worked unusual miracles by the hands of Paul,
 so that even handkerchiefs or aprons were brought from his body to the sick, and the diseases left them and the evil spirits went out of them. 
 
 ###### 13 
-Then some of the itinerant Jewish exorcists took it upon themselves to call the name of the Lord Jesus over those who had evil spirits, saying, [^a]"We [^b]exorcise you by the Jesus whom Paul preaches." 
+Then some of the itinerant Jewish exorcists took it upon themselves to call the name of the Lord Jesus over those who had evil spirits, saying, "We exorcise you by the Jesus whom Paul preaches." 
 
 ###### 14 
 Also there were seven sons of Sceva, a Jewish chief priest, who did so. 
@@ -55,7 +55,7 @@ Also there were seven sons of Sceva, a Jewish chief priest, who did so.
 And the evil spirit answered and said, "Jesus I know, and Paul I know; but who are you?" 
 
 ###### 16 
-Then the man in whom the evil spirit was leaped on them, [^c]overpowered them, and prevailed against [^d]them, so that they fled out of that house naked and wounded. 
+Then the man in whom the evil spirit was leaped on them, overpowered them, and prevailed against them, so that they fled out of that house naked and wounded. 
 
 ###### 17 
 This became known both to all Jews and Greeks dwelling in Ephesus; and fear fell on them all, and the name of the Lord Jesus was magnified. 
@@ -79,7 +79,7 @@ So he sent into Macedonia two of those who ministered to him, Timothy and Erastu
 And about that time there arose a great commotion about the Way. 
 
 ###### 24 
-For a certain man named Demetrius, a silversmith, who made silver shrines of [^e]Diana, brought no small profit to the craftsmen. 
+For a certain man named Demetrius, a silversmith, who made silver shrines of Diana, brought no small profit to the craftsmen. 
 
 ###### 25 
 He called them together with the workers of similar occupation, and said: "Men, you know that we have our prosperity by this trade. 
@@ -88,7 +88,7 @@ He called them together with the workers of similar occupation, and said: "Men, 
 Moreover you see and hear that not only at Ephesus, but throughout almost all Asia, this Paul has persuaded and turned away many people, saying that they are not gods which are made with hands. 
 
 ###### 27 
-So not only is this trade of ours in danger of falling into disrepute, but also the temple of the great goddess Diana may be despised and [^f]her magnificence destroyed, whom all Asia and the world worship." 
+So not only is this trade of ours in danger of falling into disrepute, but also the temple of the great goddess Diana may be despised and her magnificence destroyed, whom all Asia and the world worship." 
 
 ###### 28 
 Now when they heard _this,_ they were full of wrath and cried out, saying, "Great _is_ Diana of the Ephesians!" 
@@ -100,7 +100,7 @@ So the whole city was filled with confusion, and rushed into the theater with on
 And when Paul wanted to go in to the people, the disciples would not allow him. 
 
 ###### 31 
-Then some of the [^g]officials of Asia, who were his friends, sent to him pleading that he would not venture into the theater. 
+Then some of the officials of Asia, who were his friends, sent to him pleading that he would not venture into the theater. 
 
 ###### 32 
 Some therefore cried one thing and some another, for the assembly was confused, and most of them did not know why they had come together. 
@@ -112,22 +112,22 @@ And they drew Alexander out of the multitude, the Jews putting him forward. And 
 But when they found out that he was a Jew, all with one voice cried out for about two hours, "Great _is_ Diana of the Ephesians!" 
 
 ###### 35 
-And when the city clerk had quieted the crowd, he said: "Men of Ephesus, what man is there who does not know that the city of the Ephesians is temple guardian of the great goddess [^h]Diana, and of the _image_ which fell down from [^i]Zeus? 
+And when the city clerk had quieted the crowd, he said: "Men of Ephesus, what man is there who does not know that the city of the Ephesians is temple guardian of the great goddess Diana, and of the _image_ which fell down from Zeus? 
 
 ###### 36 
 Therefore, since these things cannot be denied, you ought to be quiet and do nothing rashly. 
 
 ###### 37 
-For you have brought these men here who are neither robbers of temples nor blasphemers of [^j]your goddess. 
+For you have brought these men here who are neither robbers of temples nor blasphemers of your goddess. 
 
 ###### 38 
-Therefore, if Demetrius and his fellow craftsmen have a [^k]case against anyone, the courts are open and there are proconsuls. Let them bring charges against one another. 
+Therefore, if Demetrius and his fellow craftsmen have a case against anyone, the courts are open and there are proconsuls. Let them bring charges against one another. 
 
 ###### 39 
 But if you have any other inquiry to make, it shall be determined in the lawful assembly. 
 
 ###### 40 
-For we are in danger of being [^l]called in question for today's uproar, there being no reason which we may give to account for this disorderly gathering." 
+For we are in danger of being called in question for today's uproar, there being no reason which we may give to account for this disorderly gathering." 
 
 ###### 41 
 And when he had said these things, he dismissed the assembly.

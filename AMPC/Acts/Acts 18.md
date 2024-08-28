@@ -238,7 +238,7 @@ For I am with you, and no man shall assault you to harm you, for I have many peo
 
 
 
-So he settled down among them for a year and six months, teaching the Word of God [concerning the [^a]attainment through Christ of eternal salvation in the kingdom of God]. 
+So he settled down among them for a year and six months, teaching the Word of God [concerning the attainment through Christ of eternal salvation in the kingdom of God]. 
 
 
 
@@ -280,7 +280,7 @@ But when Gallio was proconsul of Achaia (most of Greece), the Jews unitedly made
 
 
 
-Declaring, This fellow is advising _and_ inducing _and_ inciting people to worship God in violation of the [^b]Law [of Rome and of Moses]. 
+Declaring, This fellow is advising _and_ inducing _and_ inciting people to worship God in violation of the Law [of Rome and of Moses]. 
 
 
 
@@ -385,7 +385,7 @@ Then they [the Greeks] all seized Sosthenes, the leader of the synagogue, and be
 
 
 
-Afterward Paul remained many days longer, and then told the brethren farewell and sailed for Syria; and he was accompanied by Priscilla and Aquila. At Cenchreae he [[^c]Paul] cut his hair, for he had made a vow. 
+Afterward Paul remained many days longer, and then told the brethren farewell and sailed for Syria; and he was accompanied by Priscilla and Aquila. At Cenchreae he [Paul] cut his hair, for he had made a vow. 
 
 
 

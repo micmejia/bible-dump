@@ -28,7 +28,7 @@ next: ['Matt 25']
 
 
 
-Jesus departed from the temple [^a]area and was going on His way when His disciples came up to Him to call His attention to the buildings of the temple _and_ point them out to Him. 
+Jesus departed from the temple area and was going on His way when His disciples came up to Him to call His attention to the buildings of the temple _and_ point them out to Him. 
 
 
 
@@ -112,7 +112,7 @@ Jesus answered them, Be careful that no one misleads you [deceiving you and lead
 
 
 
-For many will come in (on the strength of) My name [[^b]appropriating the name which belongs to Me], saying, I am the Christ (the Messiah), and they will lead many astray. 
+For many will come in (on the strength of) My name [appropriating the name which belongs to Me], saying, I am the Christ (the Messiah), and they will lead many astray. 
 
 
 
@@ -175,7 +175,7 @@ For nation will rise against nation, and kingdom against kingdom, and there will
 
 
 
-All this is but the beginning [the early pains] of the [^c]birth pangs [of the [^d]intolerable anguish]. 
+All this is but the beginning [the early pains] of the birth pangs [of the intolerable anguish]. 
 
 
 
@@ -217,7 +217,7 @@ Then they will hand you over to suffer affliction _and_ tribulation and put you 
 
 
 
-And then many will be offended _and_ repelled _and_ will [^e]begin to distrust _and_ desert [Him Whom they ought to trust and obey] _and_ will stumble and fall away and betray one another _and_ pursue one another with hatred. 
+And then many will be offended _and_ repelled _and_ will begin to distrust _and_ desert [Him Whom they ought to trust and obey] _and_ will stumble and fall away and betray one another _and_ pursue one another with hatred. 
 
 
 
@@ -259,7 +259,7 @@ And many false prophets will rise up and deceive _and_ lead many into error.
 
 
 
-And the love of [^f]the great body of people will grow cold because of the multiplied lawlessness _and_ iniquity, 
+And the love of the great body of people will grow cold because of the multiplied lawlessness _and_ iniquity, 
 
 
 
@@ -322,7 +322,7 @@ And this good news of the kingdom (the Gospel) will be preached throughout the w
 
 
 
-So when you see the appalling sacrilege [the abomination that astonishes and makes desolate], spoken of by the prophet Daniel, standing in the Holy Place--let the reader take notice _and_ [^g]ponder _and_ consider _and_ heed [this]-- 
+So when you see the appalling sacrilege [the abomination that astonishes and makes desolate], spoken of by the prophet Daniel, standing in the Holy Place--let the reader take notice _and_ ponder _and_ consider _and_ heed [this]-- 
 
 
 
@@ -574,7 +574,7 @@ So if they say to you, Behold, He is in the wilderness (desert)--do not go out t
 
 
 
-For just as the lightning flashes from the east and shines _and_ [^h]is seen as far as the west, so will the coming of the Son of Man be. 
+For just as the lightning flashes from the east and shines _and_ is seen as far as the west, so will the coming of the Son of Man be. 
 
 
 
@@ -637,7 +637,7 @@ Immediately after the tribulation of those days the sun will be darkened, and th
 
 
 
-Then the sign of the Son of Man will appear in the sky, and then all the tribes of the earth will mourn _and_ [^i]beat their breasts _and_ lament in anguish, and they will see the Son of Man coming on the clouds of heaven with power and great glory [in brilliancy and splendor]. 
+Then the sign of the Son of Man will appear in the sky, and then all the tribes of the earth will mourn _and_ beat their breasts _and_ lament in anguish, and they will see the Son of Man coming on the clouds of heaven with power and great glory [in brilliancy and splendor]. 
 
 
 
@@ -658,7 +658,7 @@ Then the sign of the Son of Man will appear in the sky, and then all the tribes 
 
 
 
-And He will send out His angels with a loud trumpet call, and they will gather His elect (His chosen ones) from the four winds, [even] from one end of the [^j]universe to the other. 
+And He will send out His angels with a loud trumpet call, and they will gather His elect (His chosen ones) from the four winds, [even] from one end of the universe to the other. 
 
 
 
@@ -679,7 +679,7 @@ And He will send out His angels with a loud trumpet call, and they will gather H
 
 
 
-From the fig tree learn this lesson: as soon as its [^k]young shoots become soft and tender and it puts out its leaves, you know [^l]of a surety that summer is near. 
+From the fig tree learn this lesson: as soon as its young shoots become soft and tender and it puts out its leaves, you know of a surety that summer is near. 
 
 
 
@@ -700,7 +700,7 @@ From the fig tree learn this lesson: as soon as its [^k]young shoots become soft
 
 
 
-So also when you see these signs, [^m]all taken together, coming to pass, you may know [^n]of a surety that He is near, at the very doors. 
+So also when you see these signs, all taken together, coming to pass, you may know of a surety that He is near, at the very doors. 
 
 
 
@@ -721,7 +721,7 @@ So also when you see these signs, [^m]all taken together, coming to pass, you ma
 
 
 
-Truly I tell you, this generation ([^o]the whole multitude of people living at the same time, [^p]in a definite, [^q]given period) will not pass away till all these things [^r]taken together take place. 
+Truly I tell you, this generation (the whole multitude of people living at the same time, in a definite, given period) will not pass away till all these things taken together take place. 
 
 
 
@@ -742,7 +742,7 @@ Truly I tell you, this generation ([^o]the whole multitude of people living at t
 
 
 
-[^s]Sky and earth will pass away, but My words will not pass away. 
+Sky and earth will pass away, but My words will not pass away. 
 
 
 
@@ -889,7 +889,7 @@ Two women will be grinding at the hand mill; one will be taken and one will be l
 
 
 
-Watch therefore [[^t]give strict attention, be cautious and active], for you do not know in what kind of a day [[^u]whether a near or remote one] your Lord is coming. 
+Watch therefore [give strict attention, be cautious and active], for you do not know in what kind of a day [whether a near or remote one] your Lord is coming. 
 
 
 
@@ -910,7 +910,7 @@ Watch therefore [[^t]give strict attention, be cautious and active], for you do 
 
 
 
-But understand this: had the householder known in what [part of the night, whether in a [^v]night or a morning] watch the thief was coming, he would have watched and would not have allowed his house to be [^w]undermined _and_ broken into. 
+But understand this: had the householder known in what [part of the night, whether in a night or a morning] watch the thief was coming, he would have watched and would not have allowed his house to be undermined _and_ broken into. 
 
 
 
@@ -973,7 +973,7 @@ Who then is the faithful, thoughtful, _and_ wise servant, whom his master has pu
 
 
 
-Blessed (happy, fortunate, and [^x]to be envied) is that servant whom, when his master comes, he will find so doing. 
+Blessed (happy, fortunate, and to be envied) is that servant whom, when his master comes, he will find so doing. 
 
 
 
@@ -1078,4 +1078,4 @@ The master of that servant will come on a day when he does not expect him and at
 
 
 
-And will punish him [[^y]cut him up by scourging] and put him with the pretenders (hypocrites); there will be weeping and grinding of teeth.
+And will punish him [cut him up by scourging] and put him with the pretenders (hypocrites); there will be weeping and grinding of teeth.

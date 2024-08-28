@@ -111,7 +111,7 @@ Not so the wicked [those disobedient and living without God are not so]. But the
 
 
 
-Therefore the wicked [those disobedient and living without God] shall not stand [justified] in the judgment, nor [^b]sinners in the congregation of the righteous [those who are upright and in right standing with God]. 
+Therefore the wicked [those disobedient and living without God] shall not stand [justified] in the judgment, nor sinners in the congregation of the righteous [those who are upright and in right standing with God]. 
 
 
 

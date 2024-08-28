@@ -364,7 +364,7 @@ As for the word that you have spoken to us in the name of the Lord, we will not 
 
 
 
-But we will certainly perform every word of the vows we have made: to burn incense to the [^a]queen of heaven and to pour out drink offerings to her as we have done--we and our fathers, our kings and our princes--in the cities of Judah and in the streets of Jerusalem; for then we had plenty of food and were well off _and_ prosperous and saw no evil. 
+But we will certainly perform every word of the vows we have made: to burn incense to the queen of heaven and to pour out drink offerings to her as we have done--we and our fathers, our kings and our princes--in the cities of Judah and in the streets of Jerusalem; for then we had plenty of food and were well off _and_ prosperous and saw no evil. 
 
 
 
@@ -637,4 +637,4 @@ And this will be the sign to you, says the Lord, that I will punish you in this 
 
 
 
-Thus says the Lord: Behold, I will give Pharaoh Hophra king of Egypt into the hands of his enemies and into the hands of those who seek his life, just as I gave Zedekiah king of Judah into the hand of [^b]Nebuchadrezzar king of Babylon, who was his enemy and was seeking his life.
+Thus says the Lord: Behold, I will give Pharaoh Hophra king of Egypt into the hands of his enemies and into the hands of those who seek his life, just as I gave Zedekiah king of Judah into the hand of Nebuchadrezzar king of Babylon, who was his enemy and was seeking his life.

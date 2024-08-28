@@ -436,7 +436,7 @@ Ang akala ninyoʼy matuwid ang inyong ginagawa, pero ipapakita ko kung anong kla
 
 
 
-At hindi talaga makakatulong sa inyo ang inyong mga dios-diosan kapag humingi kayo ng tulong sa kanila. Silang lahat ay tatangayin ng hangin. At mapapadpad sila sa isang ihip lamang. Pero ang mga nagtitiwala sa akin ay maninirahan sa lupa[^a] at sasamba sa aking banal na bundok. 
+At hindi talaga makakatulong sa inyo ang inyong mga dios-diosan kapag humingi kayo ng tulong sa kanila. Silang lahat ay tatangayin ng hangin. At mapapadpad sila sa isang ihip lamang. Pero ang mga nagtitiwala sa akin ay maninirahan sa lupa at sasamba sa aking banal na bundok. 
 
 
 

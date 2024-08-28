@@ -55,7 +55,7 @@ And he will take the best of your fields, your vineyards, and your olive groves,
 He will take a tenth of your grain and your vintage, and give it to his officers and servants. 
 
 ###### 16 
-And he will take your male servants, your female servants, your finest [^a]young men, and your donkeys, and put _them_ to his work. 
+And he will take your male servants, your female servants, your finest young men, and your donkeys, and put _them_ to his work. 
 
 ###### 17 
 He will take a tenth of your sheep. And you will be his servants. 

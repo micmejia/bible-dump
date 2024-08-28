@@ -10,16 +10,16 @@ next: ['Jas 5']
 
 
 ###### 1 
-Where do [^a]wars and fights _come_ from among you? Do _they_ not _come_ from your _desires for_ pleasure that war in your members? 
+Where do wars and fights _come_ from among you? Do _they_ not _come_ from your _desires for_ pleasure that war in your members? 
 
 ###### 2 
-You lust and do not have. You murder and covet and cannot obtain. You fight and [^b]war. [^c]Yet you do not have because you do not ask. 
+You lust and do not have. You murder and covet and cannot obtain. You fight and war. Yet you do not have because you do not ask. 
 
 ###### 3 
 You ask and do not receive, because you ask amiss, that you may spend _it_ on your pleasures. 
 
 ###### 4 
-[^d]Adulterers and adulteresses! Do you not know that friendship with the world is enmity with God? Whoever therefore wants to be a friend of the world makes himself an enemy of God. 
+Adulterers and adulteresses! Do you not know that friendship with the world is enmity with God? Whoever therefore wants to be a friend of the world makes himself an enemy of God. 
 
 ###### 5 
 Or do you think that the Scripture says in vain, "The Spirit who dwells in us yearns jealously"? 
@@ -43,10 +43,10 @@ Humble yourselves in the sight of the Lord, and He will lift you up. ## Do Not J
 Do not speak evil of one another, brethren. He who speaks evil of a brother and judges his brother, speaks evil of the law and judges the law. But if you judge the law, you are not a doer of the law but a judge. 
 
 ###### 12 
-There is one [^e]Lawgiver, who is able to save and to destroy. Who[^f] are you to judge [^g]another? ## Do Not Boast About Tomorrow 
+There is one Lawgiver, who is able to save and to destroy. Who are you to judge another? ## Do Not Boast About Tomorrow 
 
 ###### 13 
-Come now, you who say, "Today or tomorrow [^h]we will go to such and such a city, spend a year there, buy and sell, and make a profit"; 
+Come now, you who say, "Today or tomorrow we will go to such and such a city, spend a year there, buy and sell, and make a profit"; 
 
 ###### 14 
 whereas you do not know what _will happen_ tomorrow. For what _is_ your life? It is even a vapor that appears for a little time and then vanishes away. 

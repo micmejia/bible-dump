@@ -27,7 +27,7 @@ next: ['Lam 2']
 
 
 
-How solitary _and_ lonely sits the city [Jerusalem] that was [once] full of people! How like a widow has she become! She who was [^a]great among the nations and princess among the provinces has become a tributary [in servitude]! 
+How solitary _and_ lonely sits the city [Jerusalem] that was [once] full of people! How like a widow has she become! She who was great among the nations and princess among the provinces has become a tributary [in servitude]! 
 
 
 
@@ -216,7 +216,7 @@ Her filthiness was in _and_ on her skirts; she did not [seriously and earnestly]
 
 
 
-The adversary has spread out his hand upon all her precious _and_ desirable things; for she has seen the nations enter her sanctuary [of the temple]--[^b]when You commanded that they should not even enter Your congregation [in the outer courts]. 
+The adversary has spread out his hand upon all her precious _and_ desirable things; for she has seen the nations enter her sanctuary [of the temple]--when You commanded that they should not even enter Your congregation [in the outer courts]. 
 
 
 

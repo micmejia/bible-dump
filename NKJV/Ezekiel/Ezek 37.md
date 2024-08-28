@@ -34,10 +34,10 @@ So I prophesied as I was commanded; and as I prophesied, there was a noise, and 
 Indeed, as I looked, the sinews and the flesh came upon them, and the skin covered them over; but _there was_ no breath in them. 
 
 ###### 9 
-Also He said to me, "Prophesy to the breath, prophesy, son of man, and say to the [^a]breath, 'Thus says the Lord God: "Come from the four winds, O breath, and breathe on these slain, that they may live." ' " 
+Also He said to me, "Prophesy to the breath, prophesy, son of man, and say to the breath, 'Thus says the Lord God: "Come from the four winds, O breath, and breathe on these slain, that they may live." ' " 
 
 ###### 10 
-So I prophesied as He commanded me, and [^b]breath came into them, and they lived, and stood upon their feet, an exceedingly great army. 
+So I prophesied as He commanded me, and breath came into them, and they lived, and stood upon their feet, an exceedingly great army. 
 
 ###### 11 
 Then He said to me, "Son of man, these bones are the whole house of Israel. They indeed say, 'Our bones are dry, our hope is lost, and we ourselves are cut off!' 
@@ -85,7 +85,7 @@ They shall not defile themselves anymore with their idols, nor with their detest
 Then they shall dwell in the land that I have given to Jacob My servant, where your fathers dwelt; and they shall dwell there, they, their children, and their children's children, forever; and My servant David _shall be_ their prince forever. 
 
 ###### 26 
-Moreover I will [^c]make a covenant of peace with them, and it shall be an everlasting covenant with them; I will establish them and multiply them, and I will set My sanctuary in their midst forevermore. 
+Moreover I will make a covenant of peace with them, and it shall be an everlasting covenant with them; I will establish them and multiply them, and I will set My sanctuary in their midst forevermore. 
 
 ###### 27 
 My tabernacle also shall be with them; indeed I will be their God, and they shall be My people. 

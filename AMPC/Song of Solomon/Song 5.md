@@ -70,7 +70,7 @@ I went to sleep, but my heart stayed awake. [I dreamed that I heard] the voice o
 
 
 
-[But weary from a day in the vineyards, I had already sought my rest] I had put off my garment--[^a]how could I [again] put it on? I had washed my feet--how could I [again] soil them? 
+[But weary from a day in the vineyards, I had already sought my rest] I had put off my garment--how could I [again] put it on? I had washed my feet--how could I [again] soil them? 
 
 
 
@@ -343,4 +343,4 @@ His legs are like strong and steady pillars of marble set upon bases of fine gol
 
 
 
-His voice _and_ speech are exceedingly sweet; yes, he is altogether lovely [the whole of him delights and is precious]. [^b]This is my beloved, and this is my friend, O daughters of Jerusalem!
+His voice _and_ speech are exceedingly sweet; yes, he is altogether lovely [the whole of him delights and is precious]. This is my beloved, and this is my friend, O daughters of Jerusalem!

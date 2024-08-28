@@ -16,7 +16,7 @@ next: ['Exod 23']
 If the thief is found breaking in, and he is struck so that he dies, _there shall be_ no guilt for his bloodshed. 
 
 ###### 3 
-If the sun has risen on him, _there shall be_ guilt for his bloodshed. He should make full restitution; if he has nothing, then he shall be sold[^a] for his theft. 
+If the sun has risen on him, _there shall be_ guilt for his bloodshed. He should make full restitution; if he has nothing, then he shall be sold for his theft. 
 
 ###### 4 
 If the theft is certainly found alive in his hand, whether it is an ox or donkey or sheep, he shall restore double. 
@@ -70,7 +70,7 @@ If her father utterly refuses to give her to him, he shall pay money according t
 "He who sacrifices to _any_ god, except to the Lord only, he shall be utterly destroyed. 
 
 ###### 21 
-"You shall neither mistreat a [^b]stranger nor oppress him, for you were strangers in the land of Egypt. 
+"You shall neither mistreat a stranger nor oppress him, for you were strangers in the land of Egypt. 
 
 ###### 22 
 "You shall not afflict any widow or fatherless child. 

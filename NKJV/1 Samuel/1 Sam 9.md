@@ -10,7 +10,7 @@ next: ['1 Sam 10']
 
 
 ###### 1 
-There was a man of Benjamin whose name _was_ Kish the son of Abiel, the son of Zeror, the son of Bechorath, the son of Aphiah, a Benjamite, a mighty man of [^a]power. 
+There was a man of Benjamin whose name _was_ Kish the son of Abiel, the son of Zeror, the son of Bechorath, the son of Aphiah, a Benjamite, a mighty man of power. 
 
 ###### 2 
 And he had a choice and handsome son whose name _was_ Saul. _There was_ not a more handsome person than he among the children of Israel. From his shoulders upward _he was_ taller than any of the people. 
@@ -34,10 +34,10 @@ Then Saul said to his servant, "But look, _if_ we go, what shall we bring the ma
 And the servant answered Saul again and said, "Look, I have here at hand one-fourth of a shekel of silver. I will give _that_ to the man of God, to tell us our way." 
 
 ###### 9 
-(Formerly in Israel, when a man went [^b]to inquire of God, he spoke thus: "Come, let us go to the seer"; for _he who is_ now _called_ a prophet was formerly called a seer.) 
+(Formerly in Israel, when a man went to inquire of God, he spoke thus: "Come, let us go to the seer"; for _he who is_ now _called_ a prophet was formerly called a seer.) 
 
 ###### 10 
-Then Saul said to his servant, [^c]"Well said; come, let us go." So they went to the city where the man of God _was._ 
+Then Saul said to his servant, "Well said; come, let us go." So they went to the city where the man of God _was._ 
 
 ###### 11 
 As they went up the hill to the city, they met some young women going out to draw water, and said to them, "Is the seer here?" 
@@ -55,7 +55,7 @@ So they went up to the city. As they were coming into the city, there was Samuel
 Now the Lord had told Samuel in his ear the day before Saul came, saying, 
 
 ###### 16 
-"Tomorrow about this time I will send you a man from the land of Benjamin, and you shall anoint him [^d]commander over My people Israel, that he may save My people from the hand of the Philistines; for I have looked upon My people, because their cry has come to Me." 
+"Tomorrow about this time I will send you a man from the land of Benjamin, and you shall anoint him commander over My people Israel, that he may save My people from the hand of the Philistines; for I have looked upon My people, because their cry has come to Me." 
 
 ###### 17 
 So when Samuel saw Saul, the Lord said to him, "There he is, the man of whom I spoke to you. This one shall reign over My people." 
@@ -67,10 +67,10 @@ Then Saul drew near to Samuel in the gate, and said, "Please tell me, where _is_
 Samuel answered Saul and said, "I _am_ the seer. Go up before me to the high place, for you shall eat with me today; and tomorrow I will let you go and will tell you all that _is_ in your heart. 
 
 ###### 20 
-But as for your donkeys that were lost three days ago, do not be anxious about them, for they have been found. And [^e]on whom _is_ all the desire of Israel? _Is it_ not on you and on all your father's house?" 
+But as for your donkeys that were lost three days ago, do not be anxious about them, for they have been found. And on whom _is_ all the desire of Israel? _Is it_ not on you and on all your father's house?" 
 
 ###### 21 
-And Saul answered and said, "_Am_ I not a Benjamite, of the smallest of the tribes of Israel, and my family the least of all the families of the [^f]tribe of Benjamin? Why then do you speak like this to me?" 
+And Saul answered and said, "_Am_ I not a Benjamite, of the smallest of the tribes of Israel, and my family the least of all the families of the tribe of Benjamin? Why then do you speak like this to me?" 
 
 ###### 22 
 Now Samuel took Saul and his servant and brought them into the hall, and had them sit in the place of honor among those who were invited; there _were_ about thirty persons. 
@@ -82,10 +82,10 @@ And Samuel said to the cook, "Bring the portion which I gave you, of which I sai
 So the cook took up the thigh with its upper part and set _it_ before Saul. And _Samuel_ said, "Here it is, what was kept back. _It_ was set apart for you. Eat; for until this time it has been kept for you, since I said I invited the people." So Saul ate with Samuel that day. 
 
 ###### 25 
-When they had come down from the high place into the city, [^g]_Samuel_ spoke with Saul on the top of the house. 
+When they had come down from the high place into the city, _Samuel_ spoke with Saul on the top of the house. 
 
 ###### 26 
 They arose early; and it was about the dawning of the day that Samuel called to Saul on the top of the house, saying, "Get up, that I may send you on your way." And Saul arose, and both of them went outside, he and Samuel. ## Saul Anointed King 
 
 ###### 27 
-As they were going down to the outskirts of the city, Samuel said to Saul, "Tell the servant to go on ahead of us." And he went on. "But you stand here [^h]awhile, that I may announce to you the word of God."
+As they were going down to the outskirts of the city, Samuel said to Saul, "Tell the servant to go on ahead of us." And he went on. "But you stand here awhile, that I may announce to you the word of God."

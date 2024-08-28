@@ -28,7 +28,7 @@ next: ['Luke 16']
 
 
 
-Now the tax collectors and [notorious and [^a]especially wicked] sinners were all coming near to [Jesus] to listen to Him. 
+Now the tax collectors and [notorious and especially wicked] sinners were all coming near to [Jesus] to listen to Him. 
 
 
 
@@ -49,7 +49,7 @@ Now the tax collectors and [notorious and [^a]especially wicked] sinners were al
 
 
 
-And the Pharisees and the scribes kept muttering _and_ indignantly complaining, saying, This man accepts _and_ receives _and_ welcomes [[^b]preeminently wicked] sinners and eats with them. 
+And the Pharisees and the scribes kept muttering _and_ indignantly complaining, saying, This man accepts _and_ receives _and_ welcomes [preeminently wicked] sinners and eats with them. 
 
 
 
@@ -154,7 +154,7 @@ And when he gets home, he summons together [his] friends and [his] neighbors, sa
 
 
 
-Thus, I tell you, there will be more joy in heaven over one [[^c]especially] wicked person who repents ([^d]changes his mind, abhorring his errors and misdeeds, and determines to enter upon a better course of life) than over ninety-nine righteous persons who have no need of repentance. 
+Thus, I tell you, there will be more joy in heaven over one [especially] wicked person who repents (changes his mind, abhorring his errors and misdeeds, and determines to enter upon a better course of life) than over ninety-nine righteous persons who have no need of repentance. 
 
 
 
@@ -217,7 +217,7 @@ And when she has found it, she summons her [women] friends and neighbors, saying
 
 
 
-Even so, I tell you, there is joy among _and_ in the presence of the angels of God over one [[^e]especially] wicked person who repents ([^f]changes his mind for the better, heartily amending his ways, with abhorrence of his past sins). 
+Even so, I tell you, there is joy among _and_ in the presence of the angels of God over one [especially] wicked person who repents (changes his mind for the better, heartily amending his ways, with abhorrence of his past sins). 
 
 
 
@@ -301,7 +301,7 @@ And not many days after that, the younger son gathered up all that he had and jo
 
 
 
-And when he had spent all he had, a [^g]mighty famine came upon that country, and he began to fall behind _and_ be in want. 
+And when he had spent all he had, a mighty famine came upon that country, and he began to fall behind _and_ be in want. 
 
 
 
@@ -343,7 +343,7 @@ So he went and forced (glued) himself upon one of the citizens of that country, 
 
 
 
-And he would gladly have fed on _and_ [^h]_filled his belly with_ the [^i]carob pods that the hogs were eating, but [they could not satisfy his hunger and] nobody gave him anything [better]. 
+And he would gladly have fed on _and_ _filled his belly with_ the carob pods that the hogs were eating, but [they could not satisfy his hunger and] nobody gave him anything [better]. 
 
 
 
@@ -427,7 +427,7 @@ I am no longer worthy to be called your son; [just] make me like one of your hir
 
 
 
-So he got up and came to his [own] father. But while he was still a long way off, his father saw him and was moved with pity _and_ tenderness [for him]; and he ran and embraced him and kissed him [[^j]fervently]. 
+So he got up and came to his [own] father. But while he was still a long way off, his father saw him and was moved with pity _and_ tenderness [for him]; and he ran and embraced him and kissed him [fervently]. 
 
 
 
@@ -490,7 +490,7 @@ But the father said to his bond servants, Bring quickly the best robe (the festi
 
 
 
-And bring out [^k]that [wheat-]fattened calf and kill it; and let us [^l]revel _and_ feast _and_ be happy _and_ make merry, 
+And bring out that [wheat-]fattened calf and kill it; and let us revel _and_ feast _and_ be happy _and_ make merry, 
 
 
 
@@ -511,7 +511,7 @@ And bring out [^k]that [wheat-]fattened calf and kill it; and let us [^l]revel _
 
 
 
-Because this my son was dead and is alive again; he was lost and is found! And they began to [^m]revel _and_ feast _and_ make merry. 
+Because this my son was dead and is alive again; he was lost and is found! And they began to revel _and_ feast _and_ make merry. 
 
 
 
@@ -574,7 +574,7 @@ And having called one of the servant [boys] to him, he began to ask what this me
 
 
 
-And he said to him, Your brother has come, and your father has killed [^n]that [wheat-]fattened calf, because he has received him back safe and well. 
+And he said to him, Your brother has come, and your father has killed that [wheat-]fattened calf, because he has received him back safe and well. 
 
 
 
@@ -616,7 +616,7 @@ But [the elder brother] was angry [with deep-seated wrath] and resolved not to g
 
 
 
-But he answered his father, Look! These many years I have served you, and I have never disobeyed your command. Yet you never gave me [so much as] a [little] kid, that I might [^o]revel _and_ feast _and_ be happy _and_ make merry with my friends; 
+But he answered his father, Look! These many years I have served you, and I have never disobeyed your command. Yet you never gave me [so much as] a [little] kid, that I might revel _and_ feast _and_ be happy _and_ make merry with my friends; 
 
 
 
@@ -637,7 +637,7 @@ But he answered his father, Look! These many years I have served you, and I have
 
 
 
-But when this son of yours arrived, who has devoured your estate with immoral women, you have killed for him [^p]that [wheat-] fattened calf! 
+But when this son of yours arrived, who has devoured your estate with immoral women, you have killed for him that [wheat-] fattened calf! 
 
 
 
@@ -679,4 +679,4 @@ And the father said to him, Son, you are always with me, and all that is mine is
 
 
 
-But it was fitting to make merry, to [^q]revel _and_ feast and rejoice, for this brother of yours was dead and is alive again! He was lost and is found!
+But it was fitting to make merry, to revel _and_ feast and rejoice, for this brother of yours was dead and is alive again! He was lost and is found!

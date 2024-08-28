@@ -13,7 +13,7 @@ next: ['Ezek 39']
 Now the word of the Lord came to me, saying, 
 
 ###### 2 
-"Son of man, set your face against Gog, of the land of Magog, [^a]the prince of Rosh, Meshech, and Tubal, and prophesy against him, 
+"Son of man, set your face against Gog, of the land of Magog, the prince of Rosh, Meshech, and Tubal, and prophesy against him, 
 
 ###### 3 
 and say, 'Thus says the Lord God: "Behold, I _am_ against you, O Gog, the prince of Rosh, Meshech, and Tubal. 
@@ -22,7 +22,7 @@ and say, 'Thus says the Lord God: "Behold, I _am_ against you, O Gog, the prince
 I will turn you around, put hooks into your jaws, and lead you out, with all your army, horses, and horsemen, all splendidly clothed, a great company _with_ bucklers and shields, all of them handling swords. 
 
 ###### 5 
-Persia, [^b]Ethiopia, and [^c]Libya are with them, all of them _with_ shield and helmet; 
+Persia, Ethiopia, and Libya are with them, all of them _with_ shield and helmet; 
 
 ###### 6 
 Gomer and all its troops; the house of Togarmah _from_ the far north and all its troops--many people _are_ with you. 
@@ -40,7 +40,7 @@ You will ascend, coming like a storm, covering the land like a cloud, you and al
 'Thus says the Lord God: "On that day it shall come to pass _that_ thoughts will arise in your mind, and you will make an evil plan: 
 
 ###### 11 
-You will say, 'I will go up against a land of unwalled villages; I will go to a peaceful people, who dwell [^d]safely, all of them dwelling without walls, and having neither bars nor gates'-- 
+You will say, 'I will go up against a land of unwalled villages; I will go to a peaceful people, who dwell safely, all of them dwelling without walls, and having neither bars nor gates'-- 
 
 ###### 12 
 to take plunder and to take booty, to stretch out your hand against the waste places _that are again_ inhabited, and against a people gathered from the nations, who have acquired livestock and goods, who dwell in the midst of the land. 
@@ -64,7 +64,7 @@ Thus says the Lord God: "Are _you_ he of whom I have spoken in former days by My
 "And it will come to pass at the same time, when Gog comes against the land of Israel," says the Lord God, "_that_ My fury will show in My face. 
 
 ###### 19 
-For in My jealousy _and_ in the fire of My wrath I have spoken: 'Surely in that day there shall be a great [^e]earthquake in the land of Israel, 
+For in My jealousy _and_ in the fire of My wrath I have spoken: 'Surely in that day there shall be a great earthquake in the land of Israel, 
 
 ###### 20 
 so that the fish of the sea, the birds of the heavens, the beasts of the field, all creeping things that creep on the earth, and all men who _are_ on the face of the earth shall shake at My presence. The mountains shall be thrown down, the steep places shall fall, and every wall shall fall to the ground.' 

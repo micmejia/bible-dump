@@ -205,7 +205,7 @@ Linisin nʼyo ang inyong mga puso sa presensya ng Panginoon, kayong mga taga-Jud
 
 
 
-Balaan mo ang mga taga-Jerusalem[^a] na tumakas agad sila dahil magpapadala ako ng kapahamakan mula sa hilaga." 
+Balaan mo ang mga taga-Jerusalem na tumakas agad sila dahil magpapadala ako ng kapahamakan mula sa hilaga." 
 
 
 
@@ -271,7 +271,7 @@ Ang tagapagwasak na sasalakay sa mga bansa ay parang leon na lumabas sa pinagtat
 
 
 
-Kaya isuot nʼyo na ang damit na panluksa[^b] at umiyak dahil matindi pa rin ang galit ng Panginoon sa atin. 
+Kaya isuot nʼyo na ang damit na panluksa at umiyak dahil matindi pa rin ang galit ng Panginoon sa atin. 
 
 
 
@@ -1030,4 +1030,4 @@ Jerusalem malapit ka nang mawasak. Ano ang ginagawa mo? Bakit nakadamit ka pa ng
 
 
 
-Narinig ko ang pag-iyak at pagdaing, na parang babaeng nanganganak sa kanyang panganay. Iyak ito ng mga mamamayan ng Jerusalem[^c] na parang hinahabol ang kanilang hininga. Itinataas nila ang kanilang mga kamay <i class="trans-change">at nagsasabing_, "Kawawa naman kami; at parang hihimatayin na, sapagkat nariyan na ang <i class="trans-change">aming_ mga <i class="trans-change">kaaway na_ papatay sa amin."
+Narinig ko ang pag-iyak at pagdaing, na parang babaeng nanganganak sa kanyang panganay. Iyak ito ng mga mamamayan ng Jerusalem na parang hinahabol ang kanilang hininga. Itinataas nila ang kanilang mga kamay <i class="trans-change">at nagsasabing_, "Kawawa naman kami; at parang hihimatayin na, sapagkat nariyan na ang <i class="trans-change">aming_ mga <i class="trans-change">kaaway na_ papatay sa amin."

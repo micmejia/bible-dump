@@ -448,7 +448,7 @@ And the Lord has fulfilled His promise which He made: I have risen up in the pla
 
 
 
-And I have made there a place for the ark [the token of [^a]His presence], in which is the covenant [the Ten Commandments] of the Lord which He made with our fathers when He brought them out of the land of Egypt. 
+And I have made there a place for the ark [the token of His presence], in which is the covenant [the Ten Commandments] of the Lord which He made with our fathers when He brought them out of the land of Egypt. 
 
 
 
@@ -700,7 +700,7 @@ Then hear in heaven and do and judge Your servants, condemning the wicked by bri
 
 
 
-When Your people Israel are struck down before the enemy because they have sinned against You, and they turn again to You, confess Your [^b]name (Your revelation of Yourself), and pray, beseeching You in this house, 
+When Your people Israel are struck down before the enemy because they have sinned against You, and they turn again to You, confess Your name (Your revelation of Yourself), and pray, beseeching You in this house, 
 
 
 
@@ -910,7 +910,7 @@ For they will hear of Your great name (Your revelation of Yourself), Your strong
 
 
 
-Hear in heaven, Your dwelling place, and do according to all that the stranger asks of You, so that all peoples of the earth may know Your name [and [^c]Your revelation of Your presence] and fear _and_ revere You, as do Your people Israel, and may know _and_ comprehend that this house which I have built is called by Your Name [and contains the token of Your presence]. 
+Hear in heaven, Your dwelling place, and do according to all that the stranger asks of You, so that all peoples of the earth may know Your name [and Your revelation of Your presence] and fear _and_ revere You, as do Your people Israel, and may know _and_ comprehend that this house which I have built is called by Your Name [and contains the token of Your presence]. 
 
 
 

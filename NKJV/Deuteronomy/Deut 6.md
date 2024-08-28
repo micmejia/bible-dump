@@ -16,10 +16,10 @@ next: ['Deut 7']
 that you may fear the Lord your God, to keep all His statutes and His commandments which I command you, you and your son and your grandson, all the days of your life, and that your days may be prolonged. 
 
 ###### 3 
-Therefore hear, O Israel, and [^a]be careful to observe _it,_ that it may be well with you, and that you may multiply greatly as the Lord God of your fathers has promised you--'a land flowing with milk and honey.' 
+Therefore hear, O Israel, and be careful to observe _it,_ that it may be well with you, and that you may multiply greatly as the Lord God of your fathers has promised you--'a land flowing with milk and honey.' 
 
 ###### 4 
-"Hear, O Israel: [^b]The Lord our God, the Lord _is_ one! 
+"Hear, O Israel: The Lord our God, the Lord _is_ one! 
 
 ###### 5 
 You shall love the Lord your God with all your heart, with all your soul, and with all your strength. 
@@ -37,7 +37,7 @@ You shall bind them as a sign on your hand, and they shall be as frontlets betwe
 You shall write them on the doorposts of your house and on your gates. ## Caution Against Disobedience 
 
 ###### 10 
-"So it shall be, when the Lord your God brings you into the land of which He [^c]swore to your fathers, to Abraham, Isaac, and Jacob, to give you large and beautiful cities which you did not build, 
+"So it shall be, when the Lord your God brings you into the land of which He swore to your fathers, to Abraham, Isaac, and Jacob, to give you large and beautiful cities which you did not build, 
 
 ###### 11 
 houses full of all good things, which you did not fill, hewn-out wells which you did not dig, vineyards and olive trees which you did not plant--when you have eaten and are full-- 
@@ -55,7 +55,7 @@ You shall not go after other gods, the gods of the peoples who _are_ all around 
 (for the Lord your God _is_ a jealous God among you), lest the anger of the Lord your God be aroused against you and destroy you from the face of the earth. 
 
 ###### 16 
-"You shall not [^d]tempt the Lord your God as you [^e]tempted _Him_ in Massah. 
+"You shall not tempt the Lord your God as you tempted _Him_ in Massah. 
 
 ###### 17 
 You shall diligently keep the commandments of the Lord your God, His testimonies, and His statutes which He has commanded you. 
@@ -76,10 +76,10 @@ then you shall say to your son: 'We were slaves of Pharaoh in Egypt, and the Lor
 and the Lord showed signs and wonders before our eyes, great and severe, against Egypt, Pharaoh, and all his household. 
 
 ###### 23 
-Then He brought us out from there, that He might bring us in, to give us the land of which He [^f]swore to our fathers. 
+Then He brought us out from there, that He might bring us in, to give us the land of which He swore to our fathers. 
 
 ###### 24 
-And the Lord commanded us to [^g]observe all these [^h]statutes, to fear the Lord our God, for our good always, that He might preserve us alive, as _it is_ [^i]this day. 
+And the Lord commanded us to observe all these statutes, to fear the Lord our God, for our good always, that He might preserve us alive, as _it is_ this day. 
 
 ###### 25 
 Then it will be righteousness for us, if we are careful to observe all these commandments before the Lord our God, as He has commanded us.'

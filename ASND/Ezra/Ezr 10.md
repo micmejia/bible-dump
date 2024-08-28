@@ -897,4 +897,4 @@ sina Jeyel, Matitia, Zabad, Zebina, Jadai, Joel at Benaya, na galing sa pamilya 
 
 
 
-Silang lahat ang nagsipag-asawa ng mga dayuhang babae, at ang iba sa kanila ay may mga anak sa mga babaeng ito.[^a]
+Silang lahat ang nagsipag-asawa ng mga dayuhang babae, at ang iba sa kanila ay may mga anak sa mga babaeng ito.

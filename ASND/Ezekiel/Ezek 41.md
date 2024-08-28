@@ -535,7 +535,7 @@ Pagkatapos, sinukat din ng tao ang haba ng gusali <i class="trans-change">sa kan
 
 
 
-ay nababalot ng tabla,[^a] pati ang palibot ng maliliit na bintana. Ang tatlong silid sa magkabilang daanan ay nababalot din ng tabla mula sa sahig hanggang bintana. Ang mga bintanang ito ay maaaring isara. 
+ay nababalot ng tabla, pati ang palibot ng maliliit na bintana. Ang tatlong silid sa magkabilang daanan ay nababalot din ng tabla mula sa sahig hanggang bintana. Ang mga bintanang ito ay maaaring isara. 
 
 
 

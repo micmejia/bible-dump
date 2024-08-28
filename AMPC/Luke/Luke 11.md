@@ -70,7 +70,7 @@ And He said to them, When you pray, say: _Our_ Father _Who is in heaven_, hallow
 
 
 
-Give us daily our bread [[^a]food for the morrow]. 
+Give us daily our bread [food for the morrow]. 
 
 
 
@@ -196,7 +196,7 @@ I tell you, although he will not get up and supply him anything because he is hi
 
 
 
-So I say to you, Ask _and_ [^b]keep on asking and it shall be given you; seek _and_ [^c]keep on seeking and you shall find; knock _and_ [^d]keep on knocking and the door shall be opened to you. 
+So I say to you, Ask _and_ keep on asking and it shall be given you; seek _and_ keep on seeking and you shall find; knock _and_ keep on knocking and the door shall be opened to you. 
 
 
 
@@ -217,7 +217,7 @@ So I say to you, Ask _and_ [^b]keep on asking and it shall be given you; seek _a
 
 
 
-For everyone who asks _and_ [^e]keeps on asking receives; and he who seeks _and_ [^f]keeps on seeking finds; and to him who knocks _and_ [^g]keeps on knocking, the door shall be opened. 
+For everyone who asks _and_ keeps on asking receives; and he who seeks _and_ keeps on seeking finds; and to him who knocks _and_ keeps on knocking, the door shall be opened. 
 
 
 
@@ -238,7 +238,7 @@ For everyone who asks _and_ [^e]keeps on asking receives; and he who seeks _and_
 
 
 
-What father among you, if his son asks for [^h]_a loaf of bread, will give him a stone; or if he asks for_ a fish, will instead of a fish give him a serpent? 
+What father among you, if his son asks for _a loaf of bread, will give him a stone; or if he asks for_ a fish, will instead of a fish give him a serpent? 
 
 
 
@@ -280,7 +280,7 @@ Or if he asks for an egg, will give him a scorpion?
 
 
 
-If you then, evil as you are, know how to give good gifts [gifts [^i]that are to their advantage] to your children, how much more will your heavenly Father give the Holy Spirit to those who ask _and_ [^j]continue to ask Him! 
+If you then, evil as you are, know how to give good gifts [gifts that are to their advantage] to your children, how much more will your heavenly Father give the Holy Spirit to those who ask _and_ continue to ask Him! 
 
 
 
@@ -448,7 +448,7 @@ But if I drive out the demons by the finger of God, then the kingdom of God has 
 
 
 
-When the strong man, fully armed, [[^k]from his courtyard] guards his own dwelling, his belongings are undisturbed [his property is at peace and is secure]. 
+When the strong man, fully armed, [from his courtyard] guards his own dwelling, his belongings are undisturbed [his property is at peace and is secure]. 
 
 
 
@@ -574,7 +574,7 @@ And it goes and brings other spirits, seven [of them], more evil than itself, an
 
 
 
-Now it occurred that as He was saying these things, a certain woman in the crowd raised her voice and said to Him, Blessed (happy and [^l]to be envied) is the womb that bore You and the breasts that You sucked! 
+Now it occurred that as He was saying these things, a certain woman in the crowd raised her voice and said to Him, Blessed (happy and to be envied) is the womb that bore You and the breasts that You sucked! 
 
 
 
@@ -595,7 +595,7 @@ Now it occurred that as He was saying these things, a certain woman in the crowd
 
 
 
-But He said, Blessed (happy and [^m]to be envied) rather are those who hear the Word of God and obey _and_ practice it! 
+But He said, Blessed (happy and to be envied) rather are those who hear the Word of God and obey _and_ practice it! 
 
 
 
@@ -658,7 +658,7 @@ For [just] as Jonah became a sign to the people of Nineveh, so will also the Son
 
 
 
-The queen of the South will arise in the judgment with the people of this age _and_ generation and condemn them; for she came from the ends of the [inhabited] earth to listen to the wisdom of Solomon, and notice, [^n]here is more than Solomon. 
+The queen of the South will arise in the judgment with the people of this age _and_ generation and condemn them; for she came from the ends of the [inhabited] earth to listen to the wisdom of Solomon, and notice, here is more than Solomon. 
 
 
 
@@ -679,7 +679,7 @@ The queen of the South will arise in the judgment with the people of this age _a
 
 
 
-The men of Nineveh will appear as witnesses at the judgment with this generation and will condemn it; for they repented at the preaching of Jonah, and behold, [^o]here is more than Jonah. 
+The men of Nineveh will appear as witnesses at the judgment with this generation and will condemn it; for they repented at the preaching of Jonah, and behold, here is more than Jonah. 
 
 
 
@@ -721,7 +721,7 @@ No one after lighting a lamp puts it in a cellar _or_ crypt or under a bushel me
 
 
 
-Your eye is the lamp of your body; when your eye ([^p]your conscience) is sound _and_ fulfilling its office, your whole body is full of light; but when it is not sound _and_ is not fulfilling its office, your body is full of darkness. 
+Your eye is the lamp of your body; when your eye (your conscience) is sound _and_ fulfilling its office, your whole body is full of light; but when it is not sound _and_ is not fulfilling its office, your body is full of darkness. 
 
 
 
@@ -973,7 +973,7 @@ One of the experts in the [Mosaic] Law answered Him, Teacher, in saying this, Yo
 
 
 
-But He said, Woe to you, the lawyers, also! For you load men with oppressive burdens hard to bear, and you do not personally [even [^q]gently] touch the burdens with one of your fingers. 
+But He said, Woe to you, the lawyers, also! For you load men with oppressive burdens hard to bear, and you do not personally [even gently] touch the burdens with one of your fingers. 
 
 
 
@@ -994,7 +994,7 @@ But He said, Woe to you, the lawyers, also! For you load men with oppressive bur
 
 
 
-Woe to you! For you are [^r]rebuilding _and_ repairing the tombs of the prophets, whom your fathers killed (destroyed). 
+Woe to you! For you are rebuilding _and_ repairing the tombs of the prophets, whom your fathers killed (destroyed). 
 
 
 
@@ -1120,7 +1120,7 @@ Woe to you, lawyers (experts in the Mosaic Law)! For you have taken away the key
 
 
 
-As He left there, the scribes and the Pharisees [followed Him closely, and they] began [^s]to be enraged with _and_ set themselves violently against Him and to draw Him out _and_ provoke Him to speak of many things, 
+As He left there, the scribes and the Pharisees [followed Him closely, and they] began to be enraged with _and_ set themselves violently against Him and to draw Him out _and_ provoke Him to speak of many things, 
 
 
 

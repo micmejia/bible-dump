@@ -106,7 +106,7 @@ Sinabi ng Panginoon kay Moises,
 
 
 
-"Ang hangganan sa timog ay ang ilang ng Zin sa may hangganan ng Edom. Magsisimula ito sa katimugang bahagi ng Dagat na Patay.[^a] 
+"Ang hangganan sa timog ay ang ilang ng Zin sa may hangganan ng Edom. Magsisimula ito sa katimugang bahagi ng Dagat na Patay. 
 
 
 
@@ -370,7 +370,7 @@ hanggang sa Zifron at magtatapos sa Hazar Enan.
 
 
 
-Pagkatapos, bababa ito papunta sa Ribla, sa bandang silangan ng Ain, at magpapatuloy ito sa mga burol sa silangan ng Lawa ng Galilea.[^b] 
+Pagkatapos, bababa ito papunta sa Ribla, sa bandang silangan ng Ain, at magpapatuloy ito sa mga burol sa silangan ng Lawa ng Galilea. 
 
 
 

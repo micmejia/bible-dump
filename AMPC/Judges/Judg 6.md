@@ -238,7 +238,7 @@ And I said to you, I am the Lord your God; fear not the gods of the Amorites, in
 
 
 
-Now the [^a]Angel of the Lord came and sat under the oak (terebinth) at Ophrah, which belonged to Joash the Abiezrite, and his son Gideon was beating wheat in the winepress to hide it from the Midianites. 
+Now the Angel of the Lord came and sat under the oak (terebinth) at Ophrah, which belonged to Joash the Abiezrite, and his son Gideon was beating wheat in the winepress to hide it from the Midianites. 
 
 
 

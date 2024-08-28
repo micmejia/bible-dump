@@ -300,7 +300,7 @@ Would you therefore wait till they were grown? Would you therefore refrain from 
 
 
 
-Then they wept aloud again; and Orpah [^a]kissed her mother-in-law [good-bye], but Ruth clung to her. 
+Then they wept aloud again; and Orpah kissed her mother-in-law [good-bye], but Ruth clung to her. 
 
 
 
@@ -342,7 +342,7 @@ And Naomi said, See, your sister-in-law has gone back to her people and to her g
 
 
 
-And Ruth said, Urge me not to leave you or to turn back from following you; for where you go I will go, and where you lodge I will lodge. [^b]Your people shall be my people and your God my God. 
+And Ruth said, Urge me not to leave you or to turn back from following you; for where you go I will go, and where you lodge I will lodge. Your people shall be my people and your God my God. 
 
 
 

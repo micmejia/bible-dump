@@ -270,7 +270,7 @@ Magiging katangi-tangi ang araw na iyon, dahil walang gabi kundi panay araw lang
 
 
 
-Sa araw na iyon, dadaloy ang sariwang tubig mula sa Jerusalem. Ang kalahati nito ay dadaloy sa Dagat na Patay[^a] at ang kalahati ay sa Dagat ng Mediteraneo.[^b] Patuloy itong dadaloy sa panahon ng tag-araw at tag-ulan. 
+Sa araw na iyon, dadaloy ang sariwang tubig mula sa Jerusalem. Ang kalahati nito ay dadaloy sa Dagat na Patay at ang kalahati ay sa Dagat ng Mediteraneo. Patuloy itong dadaloy sa panahon ng tag-araw at tag-ulan. 
 
 
 
@@ -501,7 +501,7 @@ Iyan ang parusa sa Egipto at sa lahat ng bansang hindi pupunta <i class="trans-c
 
 
 
-Sa araw na iyon na sasamba ang mga bansa sa Panginoon, isusulat sa mga kampanilyang palamuti ng mga kabayo ang mga katagang, "Itinalaga sa Panginoon."[^c] Ang mga lutuan sa templo ng Panginoon ay magiging kasimbanal ng mga mangkok na ginagamit sa altar. 
+Sa araw na iyon na sasamba ang mga bansa sa Panginoon, isusulat sa mga kampanilyang palamuti ng mga kabayo ang mga katagang, "Itinalaga sa Panginoon." Ang mga lutuan sa templo ng Panginoon ay magiging kasimbanal ng mga mangkok na ginagamit sa altar. 
 
 
 

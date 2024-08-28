@@ -139,7 +139,7 @@ Tinanong din sila ni Jesus, "Ano ba ang iniutos sa inyo ni Moises?"
 
 
 
-Sumagot ang mga Pariseo, "Ipinahintulot ni Moises na maaaring gumawa ang lalaki ng kasulatan ng paghihiwalay, at pagkatapos ay pwede na niyang hiwalayan ang kanyang asawa."[^a] 
+Sumagot ang mga Pariseo, "Ipinahintulot ni Moises na maaaring gumawa ang lalaki ng kasulatan ng paghihiwalay, at pagkatapos ay pwede na niyang hiwalayan ang kanyang asawa." 
 
 
 
@@ -205,7 +205,7 @@ Sinabi sa kanila ni Jesus, "Ibinigay ni Moises sa inyo ang kautusang iyan dahil 
 
 
 
-Ngunit sa simula pa, nang likhain ng Dios ang mundo, 'ginawa niya ang tao na lalaki at babae.'[^b] 
+Ngunit sa simula pa, nang likhain ng Dios ang mundo, 'ginawa niya ang tao na lalaki at babae.' 
 
 
 
@@ -271,7 +271,7 @@ Ngunit sa simula pa, nang likhain ng Dios ang mundo, 'ginawa niya ang tao na lal
 
 
 
-At silang dalawa ay magiging isa.'[^c] Hindi na sila dalawa kundi isa na lang. 
+At silang dalawa ay magiging isa.' Hindi na sila dalawa kundi isa na lang. 
 
 
 
@@ -634,7 +634,7 @@ Sumagot si Jesus, "Bakit mo sinasabing mabuti ako? Ang Dios lang ang mabuti, wal
 
 
 
-<i class="trans-change">Tungkol sa tanong mo,_ alam mo ang sinasabi ng Kautusan: 'Huwag kang papatay, huwag kang mangangalunya, huwag kang magnanakaw, huwag kang sasaksi ng kasinungalingan, huwag kang mandadaya, at igalang mo ang iyong ama at ina.' "[^d] 
+<i class="trans-change">Tungkol sa tanong mo,_ alam mo ang sinasabi ng Kautusan: 'Huwag kang papatay, huwag kang mangangalunya, huwag kang magnanakaw, huwag kang sasaksi ng kasinungalingan, huwag kang mandadaya, at igalang mo ang iyong ama at ina.' " 
 
 
 
@@ -1261,7 +1261,7 @@ Sumagot sila, "Sana po, kapag naghahari na kayo ay paupuin nʼyo kami <i class="
 
 
 
-Pero sinabi ni Jesus sa kanila, "Hindi ninyo alam kung ano ang hinihingi ninyo. Kaya nʼyo bang tiisin ang mga pagdurusang titiisin ko? Kaya nʼyo ba ang mga hirap na daranasin ko?"[^e] 
+Pero sinabi ni Jesus sa kanila, "Hindi ninyo alam kung ano ang hinihingi ninyo. Kaya nʼyo bang tiisin ang mga pagdurusang titiisin ko? Kaya nʼyo ba ang mga hirap na daranasin ko?" 
 
 
 
@@ -1558,7 +1558,7 @@ Dumating sina Jesus sa Jerico. At nang paalis na siya roon kasama ang mga tagasu
 
 
 
-Nang marinig niyang dumadaan si Jesus na taga-Nazaret, sumigaw siya, "Jesus, Anak ni David,[^f] maawa po kayo sa akin!" 
+Nang marinig niyang dumadaan si Jesus na taga-Nazaret, sumigaw siya, "Jesus, Anak ni David, maawa po kayo sa akin!" 
 
 
 
@@ -1723,4 +1723,4 @@ Tinanong siya ni Jesus, "Ano ang gusto mong gawin ko sa iyo?" Sumagot ang bulag,
 
 
 
-Sinabi ni Jesus sa kanya, "Umuwi ka na; pinagaling[^g] ka ng iyong pananampalataya." Nakakita siya agad, at sumunod siya kay Jesus sa daan.
+Sinabi ni Jesus sa kanya, "Umuwi ka na; pinagaling ka ng iyong pananampalataya." Nakakita siya agad, at sumunod siya kay Jesus sa daan.

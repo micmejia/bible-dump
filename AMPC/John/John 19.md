@@ -112,7 +112,7 @@ Then Pilate went out again and said to them, See, I bring Him out to you, so tha
 
 
 
-So Jesus came out wearing the thorny crown and purple cloak, and Pilate said to them, See, [here is] the [^a]Man! 
+So Jesus came out wearing the thorny crown and purple cloak, and Pilate said to them, See, [here is] the Man! 
 
 
 
@@ -553,7 +553,7 @@ But by the cross of Jesus stood His mother, His mother's sister, Mary the [wife]
 
 
 
-So Jesus, seeing His mother there, and the disciple whom He loved standing near, said to His mother, [[^b]Dear] woman, See, [here is] your son! 
+So Jesus, seeing His mother there, and the disciple whom He loved standing near, said to His mother, [Dear] woman, See, [here is] your son! 
 
 
 

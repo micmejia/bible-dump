@@ -111,7 +111,7 @@ Let marriage be held in honor (esteemed worthy, precious, of great price, and es
 
 
 
-Let your [^a]character _or_ moral disposition be free from love of money [including greed, avarice, lust, and craving for earthly possessions] and be satisfied with your present [circumstances and with what you have]; for He [God] [^b]Himself has said, I will not in any way fail you _nor_ [^c]give you up _nor_ leave you without support. [I will] not, [^d][I will] not, [I will] not in any degree leave you helpless _nor_ forsake _nor_ [^e]let [you] down ([^f]relax My hold on you)! [[^g]Assuredly not!] 
+Let your character _or_ moral disposition be free from love of money [including greed, avarice, lust, and craving for earthly possessions] and be satisfied with your present [circumstances and with what you have]; for He [God] Himself has said, I will not in any way fail you _nor_ give you up _nor_ leave you without support. [I will] not, [I will] not, [I will] not in any degree leave you helpless _nor_ forsake _nor_ let [you] down (relax My hold on you)! [Assuredly not!] 
 
 
 
@@ -153,7 +153,7 @@ So we take comfort _and_ are encouraged _and_ confidently _and_ boldly say, The 
 
 
 
-Remember your leaders _and_ superiors in authority [for it was they] who brought to you the Word of God. Observe attentively _and_ consider their manner of living (the outcome of their well-spent lives) and imitate their faith ([^h]their conviction that God exists and is the Creator and Ruler of all things, the Provider and Bestower of eternal salvation through Christ, and their [^i]leaning of the entire human personality on God in absolute trust and confidence in His power, wisdom, and goodness). 
+Remember your leaders _and_ superiors in authority [for it was they] who brought to you the Word of God. Observe attentively _and_ consider their manner of living (the outcome of their well-spent lives) and imitate their faith (their conviction that God exists and is the Creator and Ruler of all things, the Provider and Bestower of eternal salvation through Christ, and their leaning of the entire human personality on God in absolute trust and confidence in His power, wisdom, and goodness). 
 
 
 
@@ -216,7 +216,7 @@ Do not be carried about by different _and_ varied and alien teachings; for it is
 
 
 
-We have an altar from which those who serve _and_ [^j]worship in the tabernacle have no right to eat. 
+We have an altar from which those who serve _and_ worship in the tabernacle have no right to eat. 
 
 
 
@@ -342,7 +342,7 @@ Through Him, therefore, let us constantly _and_ at all times offer up to God a s
 
 
 
-Do not forget _or_ neglect to do kindness _and_ good, to be generous _and_ distribute _and_ contribute to the needy [of the church [^k]as embodiment and proof of fellowship], for such sacrifices are pleasing to God. 
+Do not forget _or_ neglect to do kindness _and_ good, to be generous _and_ distribute _and_ contribute to the needy [of the church as embodiment and proof of fellowship], for such sacrifices are pleasing to God. 
 
 
 

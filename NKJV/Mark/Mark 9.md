@@ -10,7 +10,7 @@ next: ['Mark 10']
 
 
 ###### 1 
-And He said to them, "Assuredly, I say to you that there are some standing here who will not taste death till they see the kingdom of God [^a]present with power." ## Jesus Transfigured on the Mount 
+And He said to them, "Assuredly, I say to you that there are some standing here who will not taste death till they see the kingdom of God present with power." ## Jesus Transfigured on the Mount 
 
 ###### 2 
 Now after six days Jesus took Peter, James, and John, and led them up on a high mountain apart by themselves; and He was transfigured before them. 
@@ -64,7 +64,7 @@ Then one of the crowd answered and said, "Teacher, I brought You my son, who has
 And wherever it seizes him, it throws him down; he foams at the mouth, gnashes his teeth, and becomes rigid. So I spoke to Your disciples, that they should cast it out, but they could not." 
 
 ###### 19 
-He answered him and said, "O faithless[^b] generation, how long shall I be with you? How long shall I [^c]bear with you? Bring him to Me." 
+He answered him and said, "O faithless generation, how long shall I be with you? How long shall I bear with you? Bring him to Me." 
 
 ###### 20 
 Then they brought him to Him. And when he saw Him, immediately the spirit convulsed him, and he fell on the ground and wallowed, foaming at the mouth. 
@@ -76,7 +76,7 @@ So He asked his father, "How long has this been happening to him?" And he said, 
 And often he has thrown him both into the fire and into the water to destroy him. But if You can do anything, have compassion on us and help us." 
 
 ###### 23 
-Jesus said to him, "If[^d] you can believe, all things _are_ possible to him who believes." 
+Jesus said to him, "If you can believe, all things _are_ possible to him who believes." 
 
 ###### 24 
 Immediately the father of the child cried out and said with tears, "Lord, I believe; help my unbelief!" 
@@ -94,7 +94,7 @@ But Jesus took him by the hand and lifted him up, and he arose.
 And when He had come into the house, His disciples asked Him privately, "Why could we not cast it out?" 
 
 ###### 29 
-So He said to them, "This kind can come out by nothing but prayer [^e]and fasting." ## Jesus Again Predicts His Death and Resurrection 
+So He said to them, "This kind can come out by nothing but prayer and fasting." ## Jesus Again Predicts His Death and Resurrection 
 
 ###### 30 
 Then they departed from there and passed through Galilee, and He did not want anyone to know _it._ 
@@ -106,7 +106,7 @@ For He taught His disciples and said to them, "The Son of Man is being betrayed 
 But they did not understand this saying, and were afraid to ask Him. ## Who Is the Greatest? 
 
 ###### 33 
-Then He came to Capernaum. And when He was in the house He asked them, "What was it you [^f]disputed among yourselves on the road?" 
+Then He came to Capernaum. And when He was in the house He asked them, "What was it you disputed among yourselves on the road?" 
 
 ###### 34 
 But they kept silent, for on the road they had disputed among themselves who _would be the_ greatest. 
@@ -127,34 +127,34 @@ Now John answered Him, saying, "Teacher, we saw someone who does not follow us c
 But Jesus said, "Do not forbid him, for no one who works a miracle in My name can soon afterward speak evil of Me. 
 
 ###### 40 
-For he who is not against [^g]us is on [^h]our side. 
+For he who is not against us is on our side. 
 
 ###### 41 
 For whoever gives you a cup of water to drink in My name, because you belong to Christ, assuredly, I say to you, he will by no means lose his reward. ## Jesus Warns of Offenses 
 
 ###### 42 
-"But whoever causes one of these little ones who believe in Me [^i]to stumble, it would be better for him if a millstone were hung around his neck, and he were thrown into the sea. 
+"But whoever causes one of these little ones who believe in Me to stumble, it would be better for him if a millstone were hung around his neck, and he were thrown into the sea. 
 
 ###### 43 
-If your hand causes you to sin, cut it off. It is better for you to enter into life [^j]maimed, rather than having two hands, to go to [^k]hell, into the fire that shall never be quenched-- 
+If your hand causes you to sin, cut it off. It is better for you to enter into life maimed, rather than having two hands, to go to hell, into the fire that shall never be quenched-- 
 
 ###### 44 
-[^l]where 'Their worm does not die And the fire is not quenched.' 
+where 'Their worm does not die And the fire is not quenched.' 
 
 ###### 45 
-And if your foot causes you to sin, cut it off. It is better for you to enter life lame, rather than having two feet, to be cast into [^m]hell, [^n]into the fire that shall never be quenched-- 
+And if your foot causes you to sin, cut it off. It is better for you to enter life lame, rather than having two feet, to be cast into hell, into the fire that shall never be quenched-- 
 
 ###### 46 
 where 'Their worm does not die And the fire is not quenched.' 
 
 ###### 47 
-And if your eye causes you to sin, pluck it out. It is better for you to enter the kingdom of God with one eye, rather than having two eyes, to be cast into [^o]hell fire-- 
+And if your eye causes you to sin, pluck it out. It is better for you to enter the kingdom of God with one eye, rather than having two eyes, to be cast into hell fire-- 
 
 ###### 48 
 where 'Their worm does not die And the fire is not quenched.' ## Tasteless Salt Is Worthless 
 
 ###### 49 
-"For everyone will be seasoned with fire, and[^p] every sacrifice will be seasoned with salt. 
+"For everyone will be seasoned with fire, and every sacrifice will be seasoned with salt. 
 
 ###### 50 
 Salt _is_ good, but if the salt loses its flavor, how will you season it? Have salt in yourselves, and have peace with one another."

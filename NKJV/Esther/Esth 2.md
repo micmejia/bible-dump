@@ -16,28 +16,28 @@ After these things, when the wrath of King Ahasuerus subsided, he remembered Vas
 Then the king's servants who attended him said: "Let beautiful young virgins be sought for the king; 
 
 ###### 3 
-and let the king appoint officers in all the provinces of his kingdom, that they may gather all the beautiful young virgins to [^a]Shushan the [^b]citadel, into the women's quarters, under the custody of [^c]Hegai the king's eunuch, custodian of the women. And let beauty preparations be given _them._ 
+and let the king appoint officers in all the provinces of his kingdom, that they may gather all the beautiful young virgins to Shushan the citadel, into the women's quarters, under the custody of Hegai the king's eunuch, custodian of the women. And let beauty preparations be given _them._ 
 
 ###### 4 
 Then let the young woman who pleases the king be queen instead of Vashti." This thing pleased the king, and he did so. 
 
 ###### 5 
-In [^d]Shushan the [^e]citadel there was a certain Jew whose name _was_ Mordecai the son of Jair, the son of Shimei, the son of Kish, a Benjamite. 
+In Shushan the citadel there was a certain Jew whose name _was_ Mordecai the son of Jair, the son of Shimei, the son of Kish, a Benjamite. 
 
 ###### 6 
-_Kish_[^f] had been carried away from Jerusalem with the captives who had been captured with [^g]Jeconiah king of Judah, whom Nebuchadnezzar the king of Babylon had carried away. 
+_Kish_ had been carried away from Jerusalem with the captives who had been captured with Jeconiah king of Judah, whom Nebuchadnezzar the king of Babylon had carried away. 
 
 ###### 7 
 And _Mordecai_ had brought up Hadassah, that _is,_ Esther, his uncle's daughter, for she had neither father nor mother. The young woman _was_ lovely and beautiful. When her father and mother died, Mordecai took her as his own daughter. 
 
 ###### 8 
-So it was, when the king's command and decree were heard, and when many young women were gathered at [^h]Shushan the [^i]citadel, _under_ the custody of Hegai, that Esther also was taken to the king's palace, into the care of Hegai the custodian of the women. 
+So it was, when the king's command and decree were heard, and when many young women were gathered at Shushan the citadel, _under_ the custody of Hegai, that Esther also was taken to the king's palace, into the care of Hegai the custodian of the women. 
 
 ###### 9 
-Now the young woman pleased him, and she obtained his favor; so he readily gave beauty preparations to her, besides [^j]her allowance. Then seven choice maidservants were provided for her from the king's palace, and he moved her and her maidservants to the best _place_ in the house of the women. 
+Now the young woman pleased him, and she obtained his favor; so he readily gave beauty preparations to her, besides her allowance. Then seven choice maidservants were provided for her from the king's palace, and he moved her and her maidservants to the best _place_ in the house of the women. 
 
 ###### 10 
-Esther had not [^k]revealed her people or family, for Mordecai had charged her not to reveal _it._ 
+Esther had not revealed her people or family, for Mordecai had charged her not to reveal _it._ 
 
 ###### 11 
 And every day Mordecai paced in front of the court of the women's quarters, to learn of Esther's welfare and what was happening to her. 
@@ -61,7 +61,7 @@ So Esther was taken to King Ahasuerus, into his royal palace, in the tenth month
 The king loved Esther more than all the _other_ women, and she obtained grace and favor in his sight more than all the virgins; so he set the royal crown upon her head and made her queen instead of Vashti. 
 
 ###### 18 
-Then the king made a great feast, the Feast of Esther, for all his officials and servants; and he proclaimed a holiday in the provinces and gave gifts according to the [^l]generosity of a king. ## Mordecai Discovers a Plot 
+Then the king made a great feast, the Feast of Esther, for all his officials and servants; and he proclaimed a holiday in the provinces and gave gifts according to the generosity of a king. ## Mordecai Discovers a Plot 
 
 ###### 19 
 When virgins were gathered together a second time, Mordecai sat within the king's gate. 
@@ -70,7 +70,7 @@ When virgins were gathered together a second time, Mordecai sat within the king'
 _Now_ Esther had not revealed her family and her people, just as Mordecai had charged her, for Esther obeyed the command of Mordecai as when she was brought up by him. 
 
 ###### 21 
-In those days, while Mordecai sat within the king's gate, two of the king's eunuchs, [^m]Bigthan and Teresh, doorkeepers, became furious and sought to lay hands on King Ahasuerus. 
+In those days, while Mordecai sat within the king's gate, two of the king's eunuchs, Bigthan and Teresh, doorkeepers, became furious and sought to lay hands on King Ahasuerus. 
 
 ###### 22 
 So the matter became known to Mordecai, who told Queen Esther, and Esther informed the king in Mordecai's name. 

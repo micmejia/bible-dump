@@ -72,7 +72,7 @@ next: ['1 Cor 2']
 
 
 
-<i class="trans-change">Mahal kong mga kapatid_ sa iglesya[^a] ng Dios diyan sa Corinto. Kayoʼy naging kanya sa inyong pakikipag-isa kay Cristo Jesus. Tinawag niya kayo upang maging banal,[^b] kasama ng lahat ng kumikilala sa ating Panginoong Jesu-Cristo saan mang lugar. Siyaʼy Panginoon nating lahat. 
+<i class="trans-change">Mahal kong mga kapatid_ sa iglesya ng Dios diyan sa Corinto. Kayoʼy naging kanya sa inyong pakikipag-isa kay Cristo Jesus. Tinawag niya kayo upang maging banal, kasama ng lahat ng kumikilala sa ating Panginoong Jesu-Cristo saan mang lugar. Siyaʼy Panginoon nating lahat. 
 
 
 
@@ -402,7 +402,7 @@ Sinasabi ko ito, dahil may nagbalita sa akin mula sa tahanan ni Cloe na may mga 
 
 
 
-Ito ang ibig kong sabihin: Ang iba daw sa inyo ay nagsasabi, "Kay Pablo ako"; ang iba naman ay "Kay Apolos ako." May iba ring nagsasabi, "Kay Pedro[^c] ako"; at ang iba naman ay "Kay Cristo ako." 
+Ito ang ibig kong sabihin: Ang iba daw sa inyo ay nagsasabi, "Kay Pablo ako"; ang iba naman ay "Kay Apolos ako." May iba ring nagsasabi, "Kay Pedro ako"; at ang iba naman ay "Kay Cristo ako." 
 
 
 
@@ -633,7 +633,7 @@ Ang mensahe ng <i class="trans-change">pagkamatay ni Cristo sa_ krus ay kamangma
 
 
 
-Sapagkat sinasabi ng Kasulatan, "Sisirain ko ang karunungan ng marurunong, at ipapawalang-saysay ko ang katalinuhan ng matatalino."[^d] 
+Sapagkat sinasabi ng Kasulatan, "Sisirain ko ang karunungan ng marurunong, at ipapawalang-saysay ko ang katalinuhan ng matatalino." 
 
 
 
@@ -1029,4 +1029,4 @@ Dahil sa kanya, tayoʼy nakay Cristo Jesus. Si Cristo ang karunungan ng Dios par
 
 
 
-Kaya gaya ng sinasabi sa Kasulatan, "Ang gustong magmalaki, ipagmalaki lamang ang ginawa ng Dios."[^e]
+Kaya gaya ng sinasabi sa Kasulatan, "Ang gustong magmalaki, ipagmalaki lamang ang ginawa ng Dios."

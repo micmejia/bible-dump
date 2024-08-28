@@ -370,7 +370,7 @@ pero sinabi sa kanila ng anghel, "Huwag kayong matakot dahil naparito ako upang 
 
 
 
-Sapagkat isinilang ngayon <i class="trans-change">sa Betlehem_, sa bayan ni <i class="trans-change">Haring_ David, ang inyong Tagapagligtas, ang Cristo[^a] <i class="trans-change">na siyang_ Panginoon. 
+Sapagkat isinilang ngayon <i class="trans-change">sa Betlehem_, sa bayan ni <i class="trans-change">Haring_ David, ang inyong Tagapagligtas, ang Cristo <i class="trans-change">na siyang_ Panginoon. 
 
 
 
@@ -766,7 +766,7 @@ Dumating ang araw na maghahandog sina Jose at Maria sa templo ng Jerusalem ayon 
 
 
 
-Sapagkat nasusulat sa Kautusan ng Panginoon, "Ang bawat panganay na lalaki ay kailangang ihandog sa Panginoon."[^b] 
+Sapagkat nasusulat sa Kautusan ng Panginoon, "Ang bawat panganay na lalaki ay kailangang ihandog sa Panginoon." 
 
 
 
@@ -799,7 +799,7 @@ Sapagkat nasusulat sa Kautusan ng Panginoon, "Ang bawat panganay na lalaki ay ka
 
 
 
-At <i class="trans-change">upang maituring na malinis si Maria,_ naghandog sila ayon sa sinasabi ng Kautusan ng Panginoon: "isang pares ng batu-bato o dalawang inakay na kalapati."[^c] 
+At <i class="trans-change">upang maituring na malinis si Maria,_ naghandog sila ayon sa sinasabi ng Kautusan ng Panginoon: "isang pares ng batu-bato o dalawang inakay na kalapati." 
 
 
 
@@ -1228,7 +1228,7 @@ Naroon din <i class="trans-change">sa templo_ ang isang babaeng propeta <i class
 
 
 
-bago siya nabiyuda. At ngayon, 84 na taon na siya.[^d] Palagi siyang nasa templo; araw-gabi ay sumasamba <i class="trans-change">siya sa Dios_ sa pamamagitan ng pananalangin at pag-aayuno. 
+bago siya nabiyuda. At ngayon, 84 na taon na siya. Palagi siyang nasa templo; araw-gabi ay sumasamba <i class="trans-change">siya sa Dios_ sa pamamagitan ng pananalangin at pag-aayuno. 
 
 
 
@@ -1360,7 +1360,7 @@ Lumaki ang batang si Jesus, at naging malakas at napakatalino. At pinagpala siya
 
 
 
-Bawat taon pumupunta ang mga magulang ni Jesus sa Jerusalem para dumalo sa Pista ng Paglampas ng Anghel.[^e] 
+Bawat taon pumupunta ang mga magulang ni Jesus sa Jerusalem para dumalo sa Pista ng Paglampas ng Anghel. 
 
 
 

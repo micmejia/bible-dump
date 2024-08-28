@@ -280,7 +280,7 @@ Son of man, take up a lamentation over the king of Tyre and say to him, Thus say
 
 
 
-You were in [^a]Eden, the garden of God; every precious stone was your covering, the carnelian, topaz, jasper, chrysolite, beryl, onyx, sapphire, carbuncle, and emerald; and your settings and your sockets _and_ engravings were wrought in gold. On the day that you were created they were prepared. 
+You were in Eden, the garden of God; every precious stone was your covering, the carnelian, topaz, jasper, chrysolite, beryl, onyx, sapphire, carbuncle, and emerald; and your settings and your sockets _and_ engravings were wrought in gold. On the day that you were created they were prepared. 
 
 
 

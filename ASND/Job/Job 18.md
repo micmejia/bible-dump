@@ -634,7 +634,7 @@ Palalayasin siya mula rito sa maliwanag na daigdig patungo sa madilim na lugar n
 
 
 
-Wala siyang magiging anak o apo at walang matitirang buhay sa pamilya[^a] niya. 
+Wala siyang magiging anak o apo at walang matitirang buhay sa pamilya niya. 
 
 
 
@@ -667,7 +667,7 @@ Wala siyang magiging anak o apo at walang matitirang buhay sa pamilya[^a] niya.
 
 
 
-Ang mga tao sa saanmang lugar[^b] ay magtataka at matatakot sa mga nangyayari sa kanya. 
+Ang mga tao sa saanmang lugar ay magtataka at matatakot sa mga nangyayari sa kanya. 
 
 
 

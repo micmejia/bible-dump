@@ -16,34 +16,34 @@ Again the word of the Lord came to me, saying,
 "Son of man, cause Jerusalem to know her abominations, 
 
 ###### 3 
-and say, 'Thus says the Lord God to Jerusalem: "Your [^a]birth and your nativity _are_ from the land of Canaan; your father _was_ an Amorite and your mother a Hittite. 
+and say, 'Thus says the Lord God to Jerusalem: "Your birth and your nativity _are_ from the land of Canaan; your father _was_ an Amorite and your mother a Hittite. 
 
 ###### 4 
 _As for_ your nativity, on the day you were born your navel cord was not cut, nor were you washed in water to cleanse _you;_ you were not rubbed with salt nor wrapped in swaddling cloths. 
 
 ###### 5 
-No eye pitied you, to do any of these things for you, to have compassion on you; but you were thrown out into the open field, when you yourself were [^b]loathed on the day you were born. 
+No eye pitied you, to do any of these things for you, to have compassion on you; but you were thrown out into the open field, when you yourself were loathed on the day you were born. 
 
 ###### 6 
 "And when I passed by you and saw you struggling in your own blood, I said to you in your blood, 'Live!' Yes, I said to you in your blood, 'Live!' 
 
 ###### 7 
-I made you [^c]thrive like a plant in the field; and you grew, matured, and became very beautiful. _Your_ breasts were formed, your hair grew, but you _were_ naked and bare. 
+I made you thrive like a plant in the field; and you grew, matured, and became very beautiful. _Your_ breasts were formed, your hair grew, but you _were_ naked and bare. 
 
 ###### 8 
-"When I passed by you again and looked upon you, indeed your time _was_ the time of love; so I spread [^d]My wing over you and covered your nakedness. Yes, I swore an oath to you and entered into a covenant with you, and you became Mine," says the Lord God. 
+"When I passed by you again and looked upon you, indeed your time _was_ the time of love; so I spread My wing over you and covered your nakedness. Yes, I swore an oath to you and entered into a covenant with you, and you became Mine," says the Lord God. 
 
 ###### 9 
 "Then I washed you in water; yes, I thoroughly washed off your blood, and I anointed you with oil. 
 
 ###### 10 
-I clothed you in embroidered cloth and gave you sandals of [^e]badger skin; I clothed you with fine linen and covered you with silk. 
+I clothed you in embroidered cloth and gave you sandals of badger skin; I clothed you with fine linen and covered you with silk. 
 
 ###### 11 
 I adorned you with ornaments, put bracelets on your wrists, and a chain on your neck. 
 
 ###### 12 
-And I put a [^f]jewel in your nose, earrings in your ears, and a beautiful crown on your head. 
+And I put a jewel in your nose, earrings in your ears, and a beautiful crown on your head. 
 
 ###### 13 
 Thus you were adorned with gold and silver, and your clothing _was of_ fine linen, silk, and embroidered cloth. You ate _pastry of_ fine flour, honey, and oil. You were exceedingly beautiful, and succeeded to royalty. 
@@ -55,7 +55,7 @@ Your fame went out among the nations because of your beauty, for it _was_ perfec
 "But you trusted in your own beauty, played the harlot because of your fame, and poured out your harlotry on everyone passing by who _would have_ it. 
 
 ###### 16 
-You took some of your garments and adorned multicolored [^g]high places for yourself, and played the harlot on them. _Such_ things should not happen, nor be. 
+You took some of your garments and adorned multicolored high places for yourself, and played the harlot on them. _Such_ things should not happen, nor be. 
 
 ###### 17 
 You have also taken your beautiful jewelry from My gold and My silver, which I had given you, and made for yourself male images and played the harlot with them. 
@@ -64,7 +64,7 @@ You have also taken your beautiful jewelry from My gold and My silver, which I h
 You took your embroidered garments and covered them, and you set My oil and My incense before them. 
 
 ###### 19 
-Also My food which I gave you--the pastry of fine flour, oil, and honey _which_ I fed you--you set it before them as [^h]sweet incense; and _so_ it was," says the Lord God. 
+Also My food which I gave you--the pastry of fine flour, oil, and honey _which_ I fed you--you set it before them as sweet incense; and _so_ it was," says the Lord God. 
 
 ###### 20 
 "Moreover you took your sons and your daughters, whom you bore to Me, and these you sacrificed to them to be devoured. _Were_ your _acts_ of harlotry a small matter, 
@@ -79,7 +79,7 @@ And in all your abominations and acts of harlotry you did not remember the days 
 "Then it was so, after all your wickedness--'Woe, woe to you!' says the Lord God-- 
 
 ###### 24 
-_that_ you also built for yourself a shrine, and made a [^i]high place for yourself in every street. 
+_that_ you also built for yourself a shrine, and made a high place for yourself in every street. 
 
 ###### 25 
 You built your high places at the head of every road, and made your beauty to be abhorred. You offered yourself to everyone who passed by, and multiplied your acts of harlotry. 
@@ -88,7 +88,7 @@ You built your high places at the head of every road, and made your beauty to be
 You also committed harlotry with the Egyptians, your very fleshly neighbors, and increased your acts of harlotry to provoke Me to anger. 
 
 ###### 27 
-"Behold, therefore, I stretched out My hand against you, diminished your [^j]allotment, and gave you up to the will of those who hate you, the daughters of the Philistines, who were ashamed of your lewd behavior. 
+"Behold, therefore, I stretched out My hand against you, diminished your allotment, and gave you up to the will of those who hate you, the daughters of the Philistines, who were ashamed of your lewd behavior. 
 
 ###### 28 
 You also played the harlot with the Assyrians, because you were insatiable; indeed you played the harlot with them and still were not satisfied. 
@@ -100,13 +100,13 @@ Moreover you multiplied your acts of harlotry as far as the land of the trader, 
 "How degenerate is your heart!" says the Lord God, "seeing you do all these _things,_ the deeds of a brazen harlot. ## Jerusalem's Adultery 
 
 ###### 31 
-"You erected your shrine at the head of every road, and built your [^k]high place in every street. Yet you were not like a harlot, because you scorned payment. 
+"You erected your shrine at the head of every road, and built your high place in every street. Yet you were not like a harlot, because you scorned payment. 
 
 ###### 32 
 _You are_ an adulterous wife, _who_ takes strangers instead of her husband. 
 
 ###### 33 
-Men make payment to all harlots, but you made your payments to all your lovers, and [^l]hired them to come to you from all around for your harlotry. 
+Men make payment to all harlots, but you made your payments to all your lovers, and hired them to come to you from all around for your harlotry. 
 
 ###### 34 
 You are the opposite of _other_ women in your harlotry, because no one solicited you to be a harlot. In that you gave payment but no payment was given you, therefore you are the opposite." ## Jerusalem's Lovers Will Abuse Her 
@@ -124,7 +124,7 @@ surely, therefore, I will gather all your lovers with whom you took pleasure, al
 And I will judge you as women who break wedlock or shed blood are judged; I will bring blood upon you in fury and jealousy. 
 
 ###### 39 
-I will also give you into their hand, and they shall throw down your shrines and break down your [^m]high places. They shall also strip you of your clothes, take your beautiful jewelry, and leave you naked and bare. 
+I will also give you into their hand, and they shall throw down your shrines and break down your high places. They shall also strip you of your clothes, take your beautiful jewelry, and leave you naked and bare. 
 
 ###### 40 
 "They shall also bring up an assembly against you, and they shall stone you with stones and thrust you through with their swords. 
@@ -136,13 +136,13 @@ They shall burn your houses with fire, and execute judgments on you in the sight
 So I will lay to rest My fury toward you, and My jealousy shall depart from you. I will be quiet, and be angry no more. 
 
 ###### 43 
-Because you did not remember the days of your youth, but [^n]agitated Me with all these _things,_ surely I will also recompense your [^o]deeds on _your own_ head," says the Lord God. "And you shall not commit lewdness in addition to all your abominations. ## More Wicked than Samaria and Sodom 
+Because you did not remember the days of your youth, but agitated Me with all these _things,_ surely I will also recompense your deeds on _your own_ head," says the Lord God. "And you shall not commit lewdness in addition to all your abominations. ## More Wicked than Samaria and Sodom 
 
 ###### 44 
 "Indeed everyone who quotes proverbs will use _this_ proverb against you: 'Like mother, like daughter!' 
 
 ###### 45 
-You _are_ your mother's daughter, [^p]loathing husband and children; and you _are_ the sister of your sisters, who loathed their husbands and children; your mother _was_ a Hittite and your father an Amorite. 
+You _are_ your mother's daughter, loathing husband and children; and you _are_ the sister of your sisters, who loathed their husbands and children; your mother _was_ a Hittite and your father an Amorite. 
 
 ###### 46 
 "Your elder sister _is_ Samaria, who dwells with her daughters to the north of you; and your younger sister, who dwells to the south of you, _is_ Sodom and her daughters. 
@@ -157,7 +157,7 @@ You did not walk in their ways nor act according to their abominations; but, as 
 Look, this was the iniquity of your sister Sodom: She and her daughter had pride, fullness of food, and abundance of idleness; neither did she strengthen the hand of the poor and needy. 
 
 ###### 50 
-And they were haughty and committed abomination before Me; therefore I took them away as [^q]I saw _fit._ 
+And they were haughty and committed abomination before Me; therefore I took them away as I saw _fit._ 
 
 ###### 51 
 "Samaria did not commit half of your sins; but you have multiplied your abominations more than they, and have justified your sisters by all the abominations which you have done. 
@@ -178,7 +178,7 @@ When your sisters, Sodom and her daughters, return to their former state, and Sa
 For your sister Sodom was not a byword in your mouth in the days of your pride, 
 
 ###### 57 
-before your wickedness was uncovered. It was like the time of the reproach of the daughters of [^r]Syria and all _those_ around her, and of the daughters of the Philistines, who despise you everywhere. 
+before your wickedness was uncovered. It was like the time of the reproach of the daughters of Syria and all _those_ around her, and of the daughters of the Philistines, who despise you everywhere. 
 
 ###### 58 
 You have paid for your lewdness and your abominations," says the Lord. 

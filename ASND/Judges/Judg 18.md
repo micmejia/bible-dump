@@ -469,7 +469,7 @@ Mula roon, nagpatuloy sila sa paglalakbay hanggang sa nakarating sila sa bahay n
 
 
 
-Pagkatapos, ang limang lalaking iyon na nagmanman sa Laish ay nagsabi sa mga kasama nila, "Alam nʼyo ba na ang isa sa mga bahay dito ay may espesyal na damit[^a] <i class="trans-change">ng pari_, may dios-diosan na nababalutan ng pilak, at iba pang dios-diosan. Ano kaya ang dapat nating gawin?" 
+Pagkatapos, ang limang lalaking iyon na nagmanman sa Laish ay nagsabi sa mga kasama nila, "Alam nʼyo ba na ang isa sa mga bahay dito ay may espesyal na damit <i class="trans-change">ng pari_, may dios-diosan na nababalutan ng pilak, at iba pang dios-diosan. Ano kaya ang dapat nating gawin?" 
 
 
 
@@ -898,7 +898,7 @@ Walang tumulong sa mga taga-Laish dahil malayo sila sa Sidon at wala silang kaka
 
 
 
-Pinalitan nila ng Dan ang pangalan nito ayon sa pangalan ng ninuno nilang si Dan, na isa sa mga anak ni Jacob.[^b] 
+Pinalitan nila ng Dan ang pangalan nito ayon sa pangalan ng ninuno nilang si Dan, na isa sa mga anak ni Jacob. 
 
 
 

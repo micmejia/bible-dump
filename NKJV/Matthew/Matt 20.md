@@ -25,10 +25,10 @@ and said to them, 'You also go into the vineyard, and whatever is right I will g
 Again he went out about the sixth and the ninth hour, and did likewise. 
 
 ###### 6 
-And about the eleventh hour he went out and found others standing [^a]idle, and said to them, 'Why have you been standing here idle all day?' 
+And about the eleventh hour he went out and found others standing idle, and said to them, 'Why have you been standing here idle all day?' 
 
 ###### 7 
-They said to him, 'Because no one hired us.' He said to them, 'You also go into the vineyard, [^b]and whatever is right you will receive.' 
+They said to him, 'Because no one hired us.' He said to them, 'You also go into the vineyard, and whatever is right you will receive.' 
 
 ###### 8 
 "So when evening had come, the owner of the vineyard said to his steward, 'Call the laborers and give them _their_ wages, beginning with the last to the first.' 
@@ -40,7 +40,7 @@ And when those came who _were hired_ about the eleventh hour, they each received
 But when the first came, they supposed that they would receive more; and they likewise received each a denarius. 
 
 ###### 11 
-And when they had received _it,_ they [^c]complained against the landowner, 
+And when they had received _it,_ they complained against the landowner, 
 
 ###### 12 
 saying, 'These last _men_ have worked _only_ one hour, and you made them equal to us who have borne the burden and the heat of the day.' 
@@ -55,7 +55,7 @@ Take _what is_ yours and go your way. I wish to give to this last man _the same_
 Is it not lawful for me to do what I wish with my own things? Or is your eye evil because I am good?' 
 
 ###### 16 
-So the last will be first, and the first last. For[^d] many are called, but few chosen." ## Jesus a Third Time Predicts His Death and Resurrection 
+So the last will be first, and the first last. For many are called, but few chosen." ## Jesus a Third Time Predicts His Death and Resurrection 
 
 ###### 17 
 Now Jesus, going up to Jerusalem, took the twelve disciples aside on the road and said to them, 
@@ -73,10 +73,10 @@ Then the mother of Zebedee's sons came to Him with her sons, kneeling down and a
 And He said to her, "What do you wish?" She said to Him, "Grant that these two sons of mine may sit, one on Your right hand and the other on the left, in Your kingdom." 
 
 ###### 22 
-But Jesus answered and said, "You do not know what you ask. Are you able to drink the cup that I am about to drink, [^e]and be baptized with the baptism that I am baptized with?" They said to Him, "We are able." 
+But Jesus answered and said, "You do not know what you ask. Are you able to drink the cup that I am about to drink, and be baptized with the baptism that I am baptized with?" They said to Him, "We are able." 
 
 ###### 23 
-So He said to them, "You will indeed drink My cup, [^f]and be baptized with the baptism that I am baptized with; but to sit on My right hand and on My left is not Mine to give, but _it is for those_ for whom it is prepared by My Father." 
+So He said to them, "You will indeed drink My cup, and be baptized with the baptism that I am baptized with; but to sit on My right hand and on My left is not Mine to give, but _it is for those_ for whom it is prepared by My Father." 
 
 ###### 24 
 And when the ten heard _it,_ they were greatly displeased with the two brothers. 

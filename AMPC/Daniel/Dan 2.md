@@ -679,7 +679,7 @@ You, O king, saw, and behold, [there was] a great image. This image which was mi
 
 
 
-As for this [^a]image, its head was of fine gold, its breast and its arms of silver, its belly and its thighs of bronze, 
+As for this image, its head was of fine gold, its breast and its arms of silver, its belly and its thighs of bronze, 
 
 
 
@@ -721,7 +721,7 @@ Its legs of iron, its feet partly of iron and partly of clay [the baked clay of 
 
 
 
-As you looked, a [^b]Stone was cut out without human hands, which smote the image on its feet of iron and [baked] clay [of the potter] and broke them to pieces. 
+As you looked, a Stone was cut out without human hands, which smote the image on its feet of iron and [baked] clay [of the potter] and broke them to pieces. 
 
 
 

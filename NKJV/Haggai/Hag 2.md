@@ -9,13 +9,13 @@ up: ['Haggai']
 
 
 ###### 1 
-In the seventh _month,_ on the twenty-first of the month, the word of the Lord came [^a]by Haggai the prophet, saying: 
+In the seventh _month,_ on the twenty-first of the month, the word of the Lord came by Haggai the prophet, saying: 
 
 ###### 2 
 "Speak now to Zerubbabel the son of Shealtiel, governor of Judah, and to Joshua the son of Jehozadak, the high priest, and to the remnant of the people, saying: 
 
 ###### 3 
-'Who is left among you who saw this [^b]temple in its former glory? And how do you see it now? In comparison with it, _is this_ not in your eyes as nothing? 
+'Who is left among you who saw this temple in its former glory? And how do you see it now? In comparison with it, _is this_ not in your eyes as nothing? 
 
 ###### 4 
 Yet now be strong, Zerubbabel,' says the Lord; 'and be strong, Joshua, son of Jehozadak, the high priest; and be strong, all you people of the land,' says the Lord, 'and work; for I _am_ with you,' says the Lord of hosts. 
@@ -27,13 +27,13 @@ Yet now be strong, Zerubbabel,' says the Lord; 'and be strong, Joshua, son of Je
 "For thus says the Lord of hosts: 'Once more (it _is_ a little while) I will shake heaven and earth, the sea and dry land; 
 
 ###### 7 
-and I will shake all nations, and they shall come to the [^c]Desire of All Nations, and I will fill this [^d]temple with glory,' says the Lord of hosts. 
+and I will shake all nations, and they shall come to the Desire of All Nations, and I will fill this temple with glory,' says the Lord of hosts. 
 
 ###### 8 
 'The silver _is_ Mine, and the gold _is_ Mine,' says the Lord of hosts. 
 
 ###### 9 
-'The glory of this latter [^e]temple shall be greater than the former,' says the Lord of hosts. 'And in this place I will give peace,' says the Lord of hosts." ## The People Are Defiled 
+'The glory of this latter temple shall be greater than the former,' says the Lord of hosts. 'And in this place I will give peace,' says the Lord of hosts." ## The People Are Defiled 
 
 ###### 10 
 On the twenty-fourth _day_ of the ninth _month,_ in the second year of Darius, the word of the Lord came by Haggai the prophet, saying, 

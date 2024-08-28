@@ -259,7 +259,7 @@ But when the king came in to view the guests, he looked intently at a man there 
 
 
 
-And he said, Friend, how did you come in here without putting on the [appropriate] wedding garment? And he was speechless ([^a]muzzled, gagged). 
+And he said, Friend, how did you come in here without putting on the [appropriate] wedding garment? And he was speechless (muzzled, gagged). 
 
 
 
@@ -343,7 +343,7 @@ Then the Pharisees went and consulted _and_ plotted together how they might enta
 
 
 
-And they sent their disciples to Him along with the Herodians, saying, Teacher, we know that You are [^b]sincere _and_ what You profess to be and that You teach the way of God truthfully, regardless of consequences _and_ being afraid of no man; for You are impartial _and_ do not regard either the person _or_ the position of anyone. 
+And they sent their disciples to Him along with the Herodians, saying, Teacher, we know that You are sincere _and_ what You profess to be and that You teach the way of God truthfully, regardless of consequences _and_ being afraid of no man; for You are impartial _and_ do not regard either the person _or_ the position of anyone. 
 
 
 
@@ -700,7 +700,7 @@ I am the God of Abraham, and the God of Isaac, and the God of Jacob? He is not t
 
 
 
-And when the throng heard it, they were astonished _and_ filled with [[^c]glad] amazement at His teaching. 
+And when the throng heard it, they were astonished _and_ filled with [glad] amazement at His teaching. 
 
 
 
@@ -721,7 +721,7 @@ And when the throng heard it, they were astonished _and_ filled with [[^c]glad] 
 
 
 
-Now when the Pharisees heard that He had silenced ([^d]muzzled) the Sadducees, they gathered together. 
+Now when the Pharisees heard that He had silenced (muzzled) the Sadducees, they gathered together. 
 
 
 
@@ -763,7 +763,7 @@ And one of their number, a lawyer, asked Him a question to test Him.
 
 
 
-Teacher, which [^e]kind of commandment is great and important (the principal kind) in the Law? [Some commandments are light--which are heavy?] 
+Teacher, which kind of commandment is great and important (the principal kind) in the Law? [Some commandments are light--which are heavy?] 
 
 
 
@@ -847,7 +847,7 @@ And a second is like it: You shall love your neighbor as [you do] yourself.
 
 
 
-These two commandments [^f]sum up _and_ upon them depend all the Law and the Prophets. 
+These two commandments sum up _and_ upon them depend all the Law and the Prophets. 
 
 
 

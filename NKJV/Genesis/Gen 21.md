@@ -16,7 +16,7 @@ And the Lord visited Sarah as He had said, and the Lord did for Sarah as He had 
 For Sarah conceived and bore Abraham a son in his old age, at the set time of which God had spoken to him. 
 
 ###### 3 
-And Abraham called the name of his son who was born to him--whom Sarah bore to him--Isaac.[^a] 
+And Abraham called the name of his son who was born to him--whom Sarah bore to him--Isaac. 
 
 ###### 4 
 Then Abraham circumcised his son Isaac when he was eight days old, as God had commanded him. 
@@ -25,7 +25,7 @@ Then Abraham circumcised his son Isaac when he was eight days old, as God had co
 Now Abraham was one hundred years old when his son Isaac was born to him. 
 
 ###### 6 
-And Sarah said, "God has [^b]made me laugh, _and_ all who hear will laugh with me." 
+And Sarah said, "God has made me laugh, _and_ all who hear will laugh with me." 
 
 ###### 7 
 She also said, "Who would have said to Abraham that Sarah would nurse children? For I have borne _him_ a son in his old age." ## Hagar and Ishmael Depart 
@@ -34,22 +34,22 @@ She also said, "Who would have said to Abraham that Sarah would nurse children? 
 So the child grew and was weaned. And Abraham made a great feast on the same day that Isaac was weaned. 
 
 ###### 9 
-And Sarah saw the son of Hagar the Egyptian, whom she had borne to Abraham, scoffing.[^c] 
+And Sarah saw the son of Hagar the Egyptian, whom she had borne to Abraham, scoffing. 
 
 ###### 10 
 Therefore she said to Abraham, "Cast out this bondwoman and her son; for the son of this bondwoman shall not be heir with my son, _namely_ with Isaac." 
 
 ###### 11 
-And the matter was very [^d]displeasing in Abraham's sight because of his son. 
+And the matter was very displeasing in Abraham's sight because of his son. 
 
 ###### 12 
 But God said to Abraham, "Do not let it be displeasing in your sight because of the lad or because of your bondwoman. Whatever Sarah has said to you, listen to her voice; for in Isaac your seed shall be called. 
 
 ###### 13 
-Yet I will also make a nation of the son of the bondwoman, because he _is_ your [^e]seed." 
+Yet I will also make a nation of the son of the bondwoman, because he _is_ your seed." 
 
 ###### 14 
-So Abraham rose early in the morning, and took bread and [^f]a skin of water; and putting _it_ on her shoulder, he gave _it_ and the boy to Hagar, and sent her away. Then she departed and wandered in the Wilderness of Beersheba. 
+So Abraham rose early in the morning, and took bread and a skin of water; and putting _it_ on her shoulder, he gave _it_ and the boy to Hagar, and sent her away. Then she departed and wandered in the Wilderness of Beersheba. 
 
 ###### 15 
 And the water in the skin was used up, and she placed the boy under one of the shrubs. 
@@ -76,7 +76,7 @@ He dwelt in the Wilderness of Paran; and his mother took a wife for him from the
 And it came to pass at that time that Abimelech and Phichol, the commander of his army, spoke to Abraham, saying, "God _is_ with you in all that you do. 
 
 ###### 23 
-Now therefore, swear[^g] to me by God that you will not deal falsely with me, with my offspring, or with my posterity; but that according to the kindness that I have done to you, you will do to me and to the land in which you have dwelt." 
+Now therefore, swear to me by God that you will not deal falsely with me, with my offspring, or with my posterity; but that according to the kindness that I have done to you, you will do to me and to the land in which you have dwelt." 
 
 ###### 24 
 And Abraham said, "I will swear." 
@@ -88,7 +88,7 @@ Then Abraham rebuked Abimelech because of a well of water which Abimelech's serv
 And Abimelech said, "I do not know who has done this thing; you did not tell me, nor had I heard _of it_ until today." 
 
 ###### 27 
-So Abraham took sheep and oxen and gave them to Abimelech, and the two of them made a [^h]covenant. 
+So Abraham took sheep and oxen and gave them to Abimelech, and the two of them made a covenant. 
 
 ###### 28 
 And Abraham set seven ewe lambs of the flock by themselves. 
@@ -100,7 +100,7 @@ Then Abimelech asked Abraham, "What _is the meaning of_ these seven ewe lambs wh
 And he said, "You will take _these_ seven ewe lambs from my hand, that they may be my witness that I have dug this well." 
 
 ###### 31 
-Therefore he called that place [^i]Beersheba, because the two of them swore an oath there. 
+Therefore he called that place Beersheba, because the two of them swore an oath there. 
 
 ###### 32 
 Thus they made a covenant at Beersheba. So Abimelech rose with Phichol, the commander of his army, and they returned to the land of the Philistines. 

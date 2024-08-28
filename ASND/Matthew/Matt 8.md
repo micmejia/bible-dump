@@ -73,7 +73,7 @@ Nang bumaba na si Jesus mula sa bundok, sinundan siya ng napakaraming tao.
 
 
 
-Lumapit sa kanya ang isang lalaking may malubhang sakit sa balat[^a] at lumuhod sa harap niya, at sinabi, "Panginoon, kung gusto nʼyo po, mapapagaling nʼyo ako upang maituring akong malinis." 
+Lumapit sa kanya ang isang lalaking may malubhang sakit sa balat at lumuhod sa harap niya, at sinabi, "Panginoon, kung gusto nʼyo po, mapapagaling nʼyo ako upang maituring akong malinis." 
 
 
 
@@ -403,7 +403,7 @@ Sinasabi ko rin sa inyo na maraming hindi Judio mula sa ibaʼt ibang dako ang ka
 
 
 
-Ngunit maraming Judio, na paghaharian sana ng Dios, ang itatapon sa matinding kadiliman sa labas. At doon ay iiyak sila, at magngangalit ang kanilang mga ngipin."[^b] 
+Ngunit maraming Judio, na paghaharian sana ng Dios, ang itatapon sa matinding kadiliman sa labas. At doon ay iiyak sila, at magngangalit ang kanilang mga ngipin." 
 
 
 
@@ -568,7 +568,7 @@ Nang magtakip-silim na, maraming sinasaniban ng masasamang espiritu ang dinala n
 
 
 
-Ginawa niya ang mga ito upang matupad ang sinabi ni Propeta Isaias, "Kinuha niya ang ating mga sakit at inalis ang ating mga karamdaman."[^c] ## Ang Pagsunod kay Jesus 
+Ginawa niya ang mga ito upang matupad ang sinabi ni Propeta Isaias, "Kinuha niya ang ating mga sakit at inalis ang ating mga karamdaman." ## Ang Pagsunod kay Jesus 
 
 
 
@@ -700,7 +700,7 @@ Pero sinagot siya ni Jesus, "May mga lungga ang mga asong-gubat, at may mga puga
 
 
 
-Isa pa sa mga tagasunod niya ang nagsabi, "Panginoon, pauwiin po muna ninyo ako para maipalibing ko ang aking ama."[^d] 
+Isa pa sa mga tagasunod niya ang nagsabi, "Panginoon, pauwiin po muna ninyo ako para maipalibing ko ang aking ama." 
 
 
 
@@ -931,7 +931,7 @@ Namangha ang mga tagasunod niya at sinabi, "Anong klaseng tao ito? Kahit ang han
 
 
 
-Nang dumating siya sa kabila <i class="trans-change">ng lawa_, sa lupain ng mga Gadareno,[^e] sinalubong siya ng dalawang lalaking galing sa mga <i class="trans-change">kwebang_ libingan. Ang mga lalaking itoʼy sinasaniban ng masasamang espiritu. Napakababangis nila, kaya walang nakakadaan doon. 
+Nang dumating siya sa kabila <i class="trans-change">ng lawa_, sa lupain ng mga Gadareno, sinalubong siya ng dalawang lalaking galing sa mga <i class="trans-change">kwebang_ libingan. Ang mga lalaking itoʼy sinasaniban ng masasamang espiritu. Napakababangis nila, kaya walang nakakadaan doon. 
 
 
 

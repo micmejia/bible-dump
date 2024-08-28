@@ -13,7 +13,7 @@ next: ['Deut 12']
 "Therefore you shall love the Lord your God, and keep His charge, His statutes, His judgments, and His commandments always. 
 
 ###### 2 
-Know today that _I do_ not _speak_ with your children, who have not known and who have not seen the [^a]chastening of the Lord your God, His greatness and His mighty hand and His outstretched arm-- 
+Know today that _I do_ not _speak_ with your children, who have not known and who have not seen the chastening of the Lord your God, His greatness and His mighty hand and His outstretched arm-- 
 
 ###### 3 
 His signs and His acts which He did in the midst of Egypt, to Pharaoh king of Egypt, and to all his land; 
@@ -25,16 +25,16 @@ what He did to the army of Egypt, to their horses and their chariots: how He mad
 what He did for you in the wilderness until you came to this place; 
 
 ###### 6 
-and what He did to Dathan and Abiram the sons of Eliab, the son of Reuben: how the earth opened its mouth and swallowed them up, their households, their tents, and all the substance that _was_ [^b]in their possession, in the midst of all Israel-- 
+and what He did to Dathan and Abiram the sons of Eliab, the son of Reuben: how the earth opened its mouth and swallowed them up, their households, their tents, and all the substance that _was_ in their possession, in the midst of all Israel-- 
 
 ###### 7 
-but your eyes have seen every great [^c]act of the Lord which He did. 
+but your eyes have seen every great act of the Lord which He did. 
 
 ###### 8 
 "Therefore you shall keep every commandment which I command you today, that you may be strong, and go in and possess the land which you cross over to possess, 
 
 ###### 9 
-and that you may prolong _your_ days in the land which the Lord [^d]swore to give your fathers, to them and their descendants, 'a land flowing with milk and honey.' 
+and that you may prolong _your_ days in the land which the Lord swore to give your fathers, to them and their descendants, 'a land flowing with milk and honey.' 
 
 ###### 10 
 For the land which you go to possess _is_ not like the land of Egypt from which you have come, where you sowed your seed and watered _it_ by foot, as a vegetable garden; 
@@ -46,13 +46,13 @@ but the land which you cross over to possess _is_ a land of hills and valleys, w
 a land for which the Lord your God cares; the eyes of the Lord your God _are_ always on it, from the beginning of the year to the very end of the year. 
 
 ###### 13 
-'And it shall be that if you earnestly [^e]obey My commandments which I command you today, to love the Lord your God and serve Him with all your heart and with all your soul, 
+'And it shall be that if you earnestly obey My commandments which I command you today, to love the Lord your God and serve Him with all your heart and with all your soul, 
 
 ###### 14 
-then I[^f] will give _you_ the rain for your land in its season, the early rain and the latter rain, that you may gather in your grain, your new wine, and your oil. 
+then I will give _you_ the rain for your land in its season, the early rain and the latter rain, that you may gather in your grain, your new wine, and your oil. 
 
 ###### 15 
-And I will send grass in your fields for your livestock, that you may eat and be [^g]filled.' 
+And I will send grass in your fields for your livestock, that you may eat and be filled.' 
 
 ###### 16 
 Take heed to yourselves, lest your heart be deceived, and you turn aside and serve other gods and worship them, 
@@ -61,7 +61,7 @@ Take heed to yourselves, lest your heart be deceived, and you turn aside and ser
 lest the Lord's anger be aroused against you, and He shut up the heavens so that there be no rain, and the land yield no produce, and you perish quickly from the good land which the Lord is giving you. 
 
 ###### 18 
-"Therefore you shall [^h]lay up these words of mine in your heart and in your soul, and bind them as a sign on your hand, and they shall be as frontlets between your eyes. 
+"Therefore you shall lay up these words of mine in your heart and in your soul, and bind them as a sign on your hand, and they shall be as frontlets between your eyes. 
 
 ###### 19 
 You shall teach them to your children, speaking of them when you sit in your house, when you walk by the way, when you lie down, and when you rise up. 
@@ -79,10 +79,10 @@ that your days and the days of your children may be multiplied in the land of wh
 then the Lord will drive out all these nations from before you, and you will dispossess greater and mightier nations than yourselves. 
 
 ###### 24 
-Every place on which the sole of your foot treads shall be yours: from the wilderness and Lebanon, from the river, the River Euphrates, even to the [^i]Western Sea, shall be your territory. 
+Every place on which the sole of your foot treads shall be yours: from the wilderness and Lebanon, from the river, the River Euphrates, even to the Western Sea, shall be your territory. 
 
 ###### 25 
-No man shall be able to stand [^j]against you; the Lord your God will put the dread of you and the fear of you upon all the land where you tread, just as He has said to you. 
+No man shall be able to stand against you; the Lord your God will put the dread of you and the fear of you upon all the land where you tread, just as He has said to you. 
 
 ###### 26 
 "Behold, I set before you today a blessing and a curse: 

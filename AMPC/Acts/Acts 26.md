@@ -364,7 +364,7 @@ But arise and stand upon your feet; for I have appeared to you for this purpose,
 
 
 
-[^a]Choosing you out [selecting you for Myself] _and_ [^b]delivering you from among this [Jewish] people and the Gentiles to whom I am sending you-- 
+Choosing you out [selecting you for Myself] _and_ delivering you from among this [Jewish] people and the Gentiles to whom I am sending you-- 
 
 
 
@@ -448,7 +448,7 @@ But made known openly first of all to those at Damascus, then at Jerusalem and t
 
 
 
-Because of these things the Jews seized me in the temple [[^c]enclosure] and tried to do away with me. 
+Because of these things the Jews seized me in the temple [enclosure] and tried to do away with me. 
 
 
 
@@ -469,7 +469,7 @@ Because of these things the Jews seized me in the temple [[^c]enclosure] and tri
 
 
 
-[But] to this day I have had the help which comes from God [as my [^d]ally], and so I stand here testifying to small and great alike, asserting nothing beyond what the prophets and Moses declared would come to pass-- 
+[But] to this day I have had the help which comes from God [as my ally], and so I stand here testifying to small and great alike, asserting nothing beyond what the prophets and Moses declared would come to pass-- 
 
 
 

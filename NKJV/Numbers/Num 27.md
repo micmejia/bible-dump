@@ -19,7 +19,7 @@ And they stood before Moses, before Eleazar the priest, and before the leaders a
 "Our father died in the wilderness; but he was not in the company of those who gathered together against the Lord, in company with Korah, but he died in his own sin; and he had no sons. 
 
 ###### 4 
-Why should the name of our father be removed[^a] from among his family because he had no son? Give us a [^b]possession among our father's brothers." 
+Why should the name of our father be removed from among his family because he had no son? Give us a possession among our father's brothers." 
 
 ###### 5 
 So Moses brought their case before the Lord. 
@@ -46,7 +46,7 @@ And if his father has no brothers, then you shall give his inheritance to the re
 Now the Lord said to Moses: "Go up into this Mount Abarim, and see the land which I have given to the children of Israel. 
 
 ###### 13 
-And when you have seen it, you also shall [^c]be gathered to your people, as Aaron your brother was gathered. 
+And when you have seen it, you also shall be gathered to your people, as Aaron your brother was gathered. 
 
 ###### 14 
 For in the Wilderness of Zin, during the strife of the congregation, you rebelled against My command to hallow Me at the waters before their eyes." (These _are_ the waters of Meribah, at Kadesh in the Wilderness of Zin.) 
@@ -64,7 +64,7 @@ who may go out before them and go in before them, who may lead them out and brin
 And the Lord said to Moses: "Take Joshua the son of Nun with you, a man in whom _is_ the Spirit, and lay your hand on him; 
 
 ###### 19 
-set him before Eleazar the priest and before all the congregation, and inaugurate[^d] him in their sight. 
+set him before Eleazar the priest and before all the congregation, and inaugurate him in their sight. 
 
 ###### 20 
 And you shall give _some_ of your authority to him, that all the congregation of the children of Israel may be obedient. 
@@ -76,4 +76,4 @@ He shall stand before Eleazar the priest, who shall inquire before the Lord for 
 So Moses did as the Lord commanded him. He took Joshua and set him before Eleazar the priest and before all the congregation. 
 
 ###### 23 
-And he laid his hands on him and [^e]inaugurated him, just as the Lord commanded by the hand of Moses.
+And he laid his hands on him and inaugurated him, just as the Lord commanded by the hand of Moses.

@@ -238,7 +238,7 @@ All [things that are] Mine are Yours, and all [things that are] Yours belong to 
 
 
 
-And [now] I am no more in the world, but these are [still] in the world, and I am coming to You. Holy Father, keep in Your Name [[^a]in the knowledge of Yourself] those whom You have given Me, that they may be one as We [are one]. 
+And [now] I am no more in the world, but these are [still] in the world, and I am coming to You. Holy Father, keep in Your Name [in the knowledge of Yourself] those whom You have given Me, that they may be one as We [are one]. 
 
 
 
@@ -259,7 +259,7 @@ And [now] I am no more in the world, but these are [still] in the world, and I a
 
 
 
-While I was with them, I kept _and_ preserved them in Your Name [[^b]in the knowledge and worship of You]. Those You have given Me I guarded _and_ protected, and not one of them has perished _or_ is lost except the son of perdition [Judas Iscariot--the one who is now doomed to destruction, destined to be lost], that the Scripture might be fulfilled. 
+While I was with them, I kept _and_ preserved them in Your Name [in the knowledge and worship of You]. Those You have given Me I guarded _and_ protected, and not one of them has perished _or_ is lost except the son of perdition [Judas Iscariot--the one who is now doomed to destruction, destined to be lost], that the Scripture might be fulfilled. 
 
 
 
@@ -553,4 +553,4 @@ O just _and_ righteous Father, although the world has not known You _and_ has fa
 
 
 
-I have made Your Name known to them _and_ revealed Your character _and_ Your very [^c]Self, and I will continue to make [You] known, that the love which You have bestowed upon Me may be in them [felt in their hearts] and that I [Myself] may be in them.
+I have made Your Name known to them _and_ revealed Your character _and_ Your very Self, and I will continue to make [You] known, that the love which You have bestowed upon Me may be in them [felt in their hearts] and that I [Myself] may be in them.

@@ -13,7 +13,7 @@ next: ['Job 24']
 Then Job answered and said: 
 
 ###### 2 
-"Even today my complaint is bitter; [^a]My hand is listless because of my groaning. 
+"Even today my complaint is bitter; My hand is listless because of my groaning. 
 
 ###### 3 
 Oh, that I knew where I might find Him, _That_ I might come to His seat! 
@@ -43,7 +43,7 @@ But He knows the way that I take; _When_ He has tested me, I shall come forth as
 My foot has held fast to His steps; I have kept His way and not turned aside. 
 
 ###### 12 
-I have not departed from the commandment of His lips; I have treasured the words of His mouth More than my [^b]necessary _food._ 
+I have not departed from the commandment of His lips; I have treasured the words of His mouth More than my necessary _food._ 
 
 ###### 13 
 "But He _is_ unique, and who can make Him change? And _whatever_ His soul desires, _that_ He does. 
@@ -58,4 +58,4 @@ Therefore I am terrified at His presence; When I consider _this,_ I am afraid of
 For God made my heart weak, And the Almighty terrifies me; 
 
 ###### 17 
-Because I was not cut off [^c]from the presence of darkness, And He did _not_ hide deep darkness from my face.
+Because I was not cut off from the presence of darkness, And He did _not_ hide deep darkness from my face.

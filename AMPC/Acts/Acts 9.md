@@ -28,7 +28,7 @@ next: ['Acts 10']
 
 
 
-Meanwhile Saul, [^a]still drawing his breath hard from threatening and murderous desire against the disciples of the Lord, went to the high priest 
+Meanwhile Saul, still drawing his breath hard from threatening and murderous desire against the disciples of the Lord, went to the high priest 
 
 
 
@@ -112,7 +112,7 @@ And he fell to the ground. Then he heard a voice saying to him, Saul, Saul, why 
 
 
 
-And Saul said, Who are You, Lord? And He said, I am Jesus, Whom you are persecuting. [^b]_It is dangerous and it will turn out badly for you to keep kicking against the goad [to offer vain and perilous resistance]._ 
+And Saul said, Who are You, Lord? And He said, I am Jesus, Whom you are persecuting. _It is dangerous and it will turn out badly for you to keep kicking against the goad [to offer vain and perilous resistance]._ 
 
 
 

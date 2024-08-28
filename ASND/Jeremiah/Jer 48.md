@@ -304,7 +304,7 @@ Ang mga mamamayan ng Moab ay mag-iiyakan nang malakas habang paakyat sila sa Luh
 
 
 
-May pakpak sana ang Moab para makalipad siya papalayo,[^a] dahil wala nang kabuluhan ang mga bayan nito at wala nang maninirahan dito. 
+May pakpak sana ang Moab para makalipad siya papalayo, dahil wala nang kabuluhan ang mga bayan nito at wala nang maninirahan dito. 
 
 
 
@@ -568,7 +568,7 @@ Pero mawawasak ang Moab at ang mga bayan nito. Papatayin ang kanilang matatapang
 
 
 
-Umiyak kayo, kayong lahat na kakampi ng Moab![^b] Sabihin nʼyo, 'Wala na ang Moab! Nabali na ang tungkod niya, ang tungkod na sagisag ng kapangyarihan at katanyagan niya.' 
+Umiyak kayo, kayong lahat na kakampi ng Moab! Sabihin nʼyo, 'Wala na ang Moab! Nabali na ang tungkod niya, ang tungkod na sagisag ng kapangyarihan at katanyagan niya.' 
 
 
 
@@ -1030,7 +1030,7 @@ Ako, ang Panginoon, nalalaman ko kung gaano kayo kayabang, pero iyan ay walang k
 
 
 
-Kaya iiyak ako para sa mga taga-Moab at mga taga-Kir Hareset.[^c] 
+Kaya iiyak ako para sa mga taga-Moab at mga taga-Kir Hareset. 
 
 
 
@@ -1162,7 +1162,7 @@ Ang iyakan ng mga taga-Heshbon ay naririnig hanggang sa Eleale at Jahaz. Ang iya
 
 
 
-Patitigilin ko sa Moab ang mga naghahandog sa mga sambahan sa matataas na lugar[^d] at nagsusunog ng insenso sa mga dios-diosan nila. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito. 
+Patitigilin ko sa Moab ang mga naghahandog sa mga sambahan sa matataas na lugar at nagsusunog ng insenso sa mga dios-diosan nila. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito. 
 
 
 
@@ -1360,7 +1360,7 @@ Sinabi pa ng Panginoon, "Tingnan nʼyo! Ang kaaway ng Moab ay parang agila na lu
 
 
 
-Sasakupin ang mga lungsod[^e] at ang mga kampo <i class="trans-change">ng Moab_. Sa mga araw na iyon, matatakot ang mga sundalo ng Moab katulad ng isang babaeng malapit nang manganak. 
+Sasakupin ang mga lungsod at ang mga kampo <i class="trans-change">ng Moab_. Sa mga araw na iyon, matatakot ang mga sundalo ng Moab katulad ng isang babaeng malapit nang manganak. 
 
 
 

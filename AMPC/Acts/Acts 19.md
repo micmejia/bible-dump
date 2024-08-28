@@ -217,7 +217,7 @@ But when some became more and more stubborn (hardened and unbelieving), discredi
 
 
 
-This continued for two years, so that all the inhabitants of [the province of] Asia, Jews as well as Greeks, heard the Word of the Lord [concerning the [^a]attainment through Christ of eternal salvation in the kingdom of God]. 
+This continued for two years, so that all the inhabitants of [the province of] Asia, Jews as well as Greeks, heard the Word of the Lord [concerning the attainment through Christ of eternal salvation in the kingdom of God]. 
 
 
 
@@ -322,7 +322,7 @@ Seven sons of a certain Jewish chief priest named Sceva were doing this.
 
 
 
-But [one] evil spirit retorted, Jesus I know, and Paul I know [^b]about, but who are you? 
+But [one] evil spirit retorted, Jesus I know, and Paul I know about, but who are you? 
 
 
 
@@ -343,7 +343,7 @@ But [one] evil spirit retorted, Jesus I know, and Paul I know [^b]about, but who
 
 
 
-Then the man in whom the evil spirit dwelt leaped upon them, mastering [^c]two of them, and was so violent against them that they dashed out of that house [in fear], stripped naked and wounded. 
+Then the man in whom the evil spirit dwelt leaped upon them, mastering two of them, and was so violent against them that they dashed out of that house [in fear], stripped naked and wounded. 
 
 
 
@@ -385,7 +385,7 @@ This became known to all who lived in Ephesus, both Jews and Greeks, and alarm _
 
 
 
-Many also of those who were now believers came making [^d]full confession _and_ thoroughly exposing their [former deceptive and evil] practices. 
+Many also of those who were now believers came making full confession _and_ thoroughly exposing their [former deceptive and evil] practices. 
 
 
 
@@ -406,7 +406,7 @@ Many also of those who were now believers came making [^d]full confession _and_ 
 
 
 
-And many of those who had practiced curious, magical arts collected their books and [throwing them, [^e]book after book, on the pile] burned them in the sight of everybody. When they counted the value of them, they found it amounted to 50,000 pieces of silver ([^f]about $9,300). 
+And many of those who had practiced curious, magical arts collected their books and [throwing them, book after book, on the pile] burned them in the sight of everybody. When they counted the value of them, they found it amounted to 50,000 pieces of silver (about $9,300). 
 
 
 
@@ -427,7 +427,7 @@ And many of those who had practiced curious, magical arts collected their books 
 
 
 
-Thus the Word of the Lord [concerning the [^g]attainment through Christ of eternal salvation in the kingdom of God] grew _and_ spread _and_ intensified, prevailing mightily. 
+Thus the Word of the Lord [concerning the attainment through Christ of eternal salvation in the kingdom of God] grew _and_ spread _and_ intensified, prevailing mightily. 
 
 
 
@@ -511,7 +511,7 @@ But as time went on, there arose no little disturbance concerning the Way [of th
 
 
 
-For a man named Demetrius, a silversmith, who made silver shrines of [the goddess] Artemis [^h][Diana], brought no small income to his craftsmen. 
+For a man named Demetrius, a silversmith, who made silver shrines of [the goddess] Artemis [Diana], brought no small income to his craftsmen. 
 
 
 

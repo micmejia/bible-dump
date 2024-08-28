@@ -16,13 +16,13 @@ next: ['Deut 27']
 that you shall take some of the first of all the produce of the ground, which you shall bring from your land that the Lord your God is giving you, and put _it_ in a basket and go to the place where the Lord your God chooses to make His name abide. 
 
 ###### 3 
-And you shall go to the one who is priest in those days, and say to him, 'I declare today to the Lord [^a]your God that I have come to the country which the Lord swore to our fathers to give us.' 
+And you shall go to the one who is priest in those days, and say to him, 'I declare today to the Lord your God that I have come to the country which the Lord swore to our fathers to give us.' 
 
 ###### 4 
 "Then the priest shall take the basket out of your hand and set it down before the altar of the Lord your God. 
 
 ###### 5 
-And you shall answer and say before the Lord your God: 'My father _was_ a [^b]Syrian, about to perish, and he went down to Egypt and [^c]dwelt there, few in number; and there he became a nation, great, mighty, and populous. 
+And you shall answer and say before the Lord your God: 'My father _was_ a Syrian, about to perish, and he went down to Egypt and dwelt there, few in number; and there he became a nation, great, mighty, and populous. 
 
 ###### 6 
 But the Egyptians mistreated us, afflicted us, and laid hard bondage on us. 
@@ -46,13 +46,13 @@ So you shall rejoice in every good _thing_ which the Lord your God has given to 
 "When you have finished laying aside all the tithe of your increase in the third year--the year of tithing--and have given _it_ to the Levite, the stranger, the fatherless, and the widow, so that they may eat within your gates and be filled, 
 
 ###### 13 
-then you shall say before the Lord your God: 'I have removed the [^d]holy _tithe_ from _my_ house, and also have given them to the Levite, the stranger, the fatherless, and the widow, according to all Your commandments which You have commanded me; I have not transgressed Your commandments, nor have I forgotten _them._ 
+then you shall say before the Lord your God: 'I have removed the holy _tithe_ from _my_ house, and also have given them to the Levite, the stranger, the fatherless, and the widow, according to all Your commandments which You have commanded me; I have not transgressed Your commandments, nor have I forgotten _them._ 
 
 ###### 14 
-I have not eaten any of it [^e]when in mourning, nor have I removed _any_ of it [^f]for an unclean _use,_ nor given _any_ of it for the dead. I have obeyed the voice of the Lord my God, and have done according to all that You have commanded me. 
+I have not eaten any of it when in mourning, nor have I removed _any_ of it for an unclean _use,_ nor given _any_ of it for the dead. I have obeyed the voice of the Lord my God, and have done according to all that You have commanded me. 
 
 ###### 15 
-Look down from Your holy [^g]habitation, from heaven, and bless Your people Israel and the land which You have given us, just as You swore to our fathers, "a land flowing with milk and honey." ' ## A Special People of God 
+Look down from Your holy habitation, from heaven, and bless Your people Israel and the land which You have given us, just as You swore to our fathers, "a land flowing with milk and honey." ' ## A Special People of God 
 
 ###### 16 
 "This day the Lord your God commands you to observe these statutes and judgments; therefore you shall be careful to observe them with all your heart and with all your soul. 
@@ -64,4 +64,4 @@ Today you have proclaimed the Lord to be your God, and that you will walk in His
 Also today the Lord has proclaimed you to be His special people, just as He promised you, that _you_ should keep all His commandments, 
 
 ###### 19 
-and that He will set you high above all nations which He has made, in praise, in name, and in honor, and that you may be a [^h]holy people to the Lord your God, just as He has spoken."
+and that He will set you high above all nations which He has made, in praise, in name, and in honor, and that you may be a holy people to the Lord your God, just as He has spoken."

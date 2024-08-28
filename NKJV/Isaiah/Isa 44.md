@@ -49,7 +49,7 @@ The blacksmith with the tongs works one in the coals, Fashions it with hammers, 
 The craftsman stretches out _his_ rule, He marks one out with chalk; He fashions it with a plane, He marks it out with the compass, And makes it like the figure of a man, According to the beauty of a man, that it may remain in the house. 
 
 ###### 14 
-He cuts down cedars for himself, And takes the cypress and the oak; He [^a]secures _it_ for himself among the trees of the forest. He plants a pine, and the rain nourishes _it._ 
+He cuts down cedars for himself, And takes the cypress and the oak; He secures _it_ for himself among the trees of the forest. He plants a pine, and the rain nourishes _it._ 
 
 ###### 15 
 Then it shall be for a man to burn, For he will take some of it and warm himself; Yes, he kindles _it_ and bakes bread; Indeed he makes a god and worships _it;_ He makes it a carved image, and falls down to it. 
@@ -61,7 +61,7 @@ He burns half of it in the fire; With this half he eats meat; He roasts a roast,
 And the rest of it he makes into a god, His carved image. He falls down before it and worships _it,_ Prays to it and says, "Deliver me, for you _are_ my god!" 
 
 ###### 18 
-They do not know nor understand; For He has [^b]shut their eyes, so that they cannot see, _And_ their hearts, so that they cannot understand. 
+They do not know nor understand; For He has shut their eyes, so that they cannot see, _And_ their hearts, so that they cannot understand. 
 
 ###### 19 
 And no one considers in his heart, Nor _is there_ knowledge nor understanding to say, "I have burned half of it in the fire, Yes, I have also baked bread on its coals; I have roasted meat and eaten _it;_ And shall I make the rest of it an abomination? Shall I fall down before a block of wood?" 
@@ -79,7 +79,7 @@ I have blotted out, like a thick cloud, your transgressions, And like a cloud, y
 Sing, O heavens, for the Lord has done _it!_ Shout, you lower parts of the earth; Break forth into singing, you mountains, O forest, and every tree in it! For the Lord has redeemed Jacob, And glorified Himself in Israel. ## Judah Will Be Restored 
 
 ###### 24 
-Thus says the Lord, your Redeemer, And He who formed you from the womb: "I _am_ the Lord, who makes all _things,_ Who stretches out the heavens [^c]all alone, Who spreads abroad the earth by Myself; 
+Thus says the Lord, your Redeemer, And He who formed you from the womb: "I _am_ the Lord, who makes all _things,_ Who stretches out the heavens all alone, Who spreads abroad the earth by Myself; 
 
 ###### 25 
 Who frustrates the signs of the babblers, And drives diviners mad; Who turns wise men backward, And makes their knowledge foolishness; 

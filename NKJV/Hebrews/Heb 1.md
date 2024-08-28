@@ -9,13 +9,13 @@ next: ['Heb 2']
 
 
 ###### 1 
-God, who [^a]at various times and in various ways spoke in time past to the fathers by the prophets, 
+God, who at various times and in various ways spoke in time past to the fathers by the prophets, 
 
 ###### 2 
-has in these last days spoken to us by _His_ Son, whom He has appointed heir of all things, through whom also He made the [^b]worlds; 
+has in these last days spoken to us by _His_ Son, whom He has appointed heir of all things, through whom also He made the worlds; 
 
 ###### 3 
-who being the brightness of _His_ glory and the express image of His person, and upholding all things by the word of His power, when He had [^c]by Himself [^d]purged [^e]our sins, sat down at the right hand of the Majesty on high, 
+who being the brightness of _His_ glory and the express image of His person, and upholding all things by the word of His power, when He had by Himself purged our sins, sat down at the right hand of the Majesty on high, 
 
 ###### 4 
 having become so much better than the angels, as He has by inheritance obtained a more excellent name than they. ## The Son Exalted Above Angels 
@@ -30,7 +30,7 @@ But when He again brings the firstborn into the world, He says: "Let all the ang
 And of the angels He says: "Who makes His angels spirits And His ministers a flame of fire." 
 
 ###### 8 
-But to the Son _He says:_ "Your throne, O God, _is_ forever and ever; A [^f]scepter of righteousness _is_ the scepter of Your kingdom. 
+But to the Son _He says:_ "Your throne, O God, _is_ forever and ever; A scepter of righteousness _is_ the scepter of Your kingdom. 
 
 ###### 9 
 You have loved righteousness and hated lawlessness; Therefore God, Your God, has anointed You With the oil of gladness more than Your companions." 

@@ -139,7 +139,7 @@ Ngunit kayo ang aking kalasag. Pinalalakas nʼyo ako at pinagtatagumpay <i class
 
 
 
-Tumawag ako sa inyo Panginoon at sinagot nʼyo ako mula sa inyong banal[^a] na bundok. 
+Tumawag ako sa inyo Panginoon at sinagot nʼyo ako mula sa inyong banal na bundok. 
 
 
 

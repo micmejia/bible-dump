@@ -73,7 +73,7 @@ Ito ang mga lupaing natanggap ng lahi ni Juda, na hinati ayon sa bawat sambahaya
 
 
 
-Ang kanilang hangganan sa timog ay nagsisimula sa baybayin ng katimugang bahagi ng Dagat na Patay[^a] 
+Ang kanilang hangganan sa timog ay nagsisimula sa baybayin ng katimugang bahagi ng Dagat na Patay 
 
 
 
@@ -238,7 +238,7 @@ paakyat sa Bet Hogla, at papunta sa hilaga ng Bet Araba hanggang sa Bato ni Boha
 
 
 
-Mula rito, papunta sa Lambak ng Acor[^b] hanggang sa Debir, at paliko sa hilaga papunta sa Gilgal na nakaharap sa Daang Paahon ng Adumim sa katimugang bahagi ng daluyan ng tubig. At umaabot ito papunta sa mga bukal ng En Shemesh at palabas ng En Rogel. 
+Mula rito, papunta sa Lambak ng Acor hanggang sa Debir, at paliko sa hilaga papunta sa Gilgal na nakaharap sa Daang Paahon ng Adumim sa katimugang bahagi ng daluyan ng tubig. At umaabot ito papunta sa mga bukal ng En Shemesh at palabas ng En Rogel. 
 
 
 
@@ -1096,7 +1096,7 @@ Lebaot, Shilhim, Ayin at Rimon – 29 na bayan lahat, kasama ang mga bayan at 
 
 
 
-Ang <i class="trans-change">mga bayan sa_ kaburulan sa kanluran[^c]: Estaol, Zora, Ashna, 
+Ang <i class="trans-change">mga bayan sa_ kaburulan sa kanluran: Estaol, Zora, Ashna, 
 
 
 

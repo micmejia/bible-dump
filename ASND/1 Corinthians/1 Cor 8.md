@@ -436,4 +436,4 @@ At sa ganitong paraan ay nagkasala ka na rin kay Cristo, dahil nagkasala ka sa i
 
 
 
-Kaya kung ang kinakain ko ay nagiging dahilan ng pagkakasala ng aking kapatid, hindi na lang ako kakain nito[^a] kailanman, para hindi magkasala ang aking kapatid.
+Kaya kung ang kinakain ko ay nagiging dahilan ng pagkakasala ng aking kapatid, hindi na lang ako kakain nito kailanman, para hindi magkasala ang aking kapatid.

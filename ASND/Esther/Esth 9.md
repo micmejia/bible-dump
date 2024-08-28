@@ -568,7 +568,7 @@ Pero sa Susa, patuloy pa ang pagpatay ng mga Judio sa kanilang mga kalaban. At n
 
 
 
-Ito ang dahilan kung bakit ang mga Judiong nasa probinsya ay nagdiriwang ng pista sa ika-14 na araw ng buwan ng Adar. Sa araw na iyon, nagbibigayan sila ng mga regalo.[^a] ## Ang Pista ng "Purim" 
+Ito ang dahilan kung bakit ang mga Judiong nasa probinsya ay nagdiriwang ng pista sa ika-14 na araw ng buwan ng Adar. Sa araw na iyon, nagbibigayan sila ng mga regalo. ## Ang Pista ng "Purim" 
 
 
 
@@ -667,7 +667,7 @@ Sa sulat na ito, sinabi ni Mordecai sa mga Judio na dapat alalahanin nila at ipa
 
 
 
-Itoʼy para alalahanin ang araw na nakaligtas sila sa mga kalaban, na ang kalungkutan nila ay naging kaligayahan at ang kanilang iyakan ay naging kasayahan. Kaya sinabi sa kanila ni Mordecai sa sulat na dapat magdiwang sila ng pista, magsaya sa araw na iyon, at magbigayan ng mga regalo[^b] sa isaʼt isa at sa mahihirap. 
+Itoʼy para alalahanin ang araw na nakaligtas sila sa mga kalaban, na ang kalungkutan nila ay naging kaligayahan at ang kanilang iyakan ay naging kasayahan. Kaya sinabi sa kanila ni Mordecai sa sulat na dapat magdiwang sila ng pista, magsaya sa araw na iyon, at magbigayan ng mga regalo sa isaʼt isa at sa mahihirap. 
 
 
 
@@ -799,7 +799,7 @@ Pero nang malaman ng hari ang planong ito sa pamamagitan ni Reyna Ester, nagpasu
 
 
 
-Ito ang dahilan kaya tinawag ang pistang iyon na Purim,[^c] na mula sa salitang "pur", <i class="trans-change">na ang ibig sabihin ay palabunutan._ At dahil sa sulat ni Mordecai at ayon sa karanasan nila, 
+Ito ang dahilan kaya tinawag ang pistang iyon na Purim, na mula sa salitang "pur", <i class="trans-change">na ang ibig sabihin ay palabunutan._ At dahil sa sulat ni Mordecai at ayon sa karanasan nila, 
 
 
 

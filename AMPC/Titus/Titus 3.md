@@ -300,7 +300,7 @@ Do your utmost to speed Zenas the lawyer and Apollos on their way; see that they
 
 
 
-And let our own [people really] learn to apply themselves to good deeds (to honest labor and honorable employment), so that they may be able to meet necessary demands [^a]whenever the occasion may require and not be living idle _and_ uncultivated _and_ unfruitful lives. 
+And let our own [people really] learn to apply themselves to good deeds (to honest labor and honorable employment), so that they may be able to meet necessary demands whenever the occasion may require and not be living idle _and_ uncultivated _and_ unfruitful lives. 
 
 
 

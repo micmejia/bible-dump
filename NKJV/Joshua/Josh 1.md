@@ -24,13 +24,13 @@ From the wilderness and this Lebanon as far as the great river, the River Euphra
 No man shall _be able to_ stand before you all the days of your life; as I was with Moses, _so_ I will be with you. I will not leave you nor forsake you. 
 
 ###### 6 
-Be strong and of good courage, for to this people you shall [^a]divide as an inheritance the land which I swore to their fathers to give them. 
+Be strong and of good courage, for to this people you shall divide as an inheritance the land which I swore to their fathers to give them. 
 
 ###### 7 
-Only be strong and very courageous, that you may observe to do according to all the law which Moses My servant commanded you; do not turn from it to the right hand or to the left, that you may [^b]prosper wherever you go. 
+Only be strong and very courageous, that you may observe to do according to all the law which Moses My servant commanded you; do not turn from it to the right hand or to the left, that you may prosper wherever you go. 
 
 ###### 8 
-This Book of the Law shall not depart from your mouth, but you[^c] shall meditate in it day and night, that you may observe to do according to all that is written in it. For then you will make your way prosperous, and then you will have good success. 
+This Book of the Law shall not depart from your mouth, but you shall meditate in it day and night, that you may observe to do according to all that is written in it. For then you will make your way prosperous, and then you will have good success. 
 
 ###### 9 
 Have I not commanded you? Be strong and of good courage; do not be afraid, nor be dismayed, for the Lord your God _is_ with you wherever you go." ## The Order to Cross the Jordan 
@@ -48,7 +48,7 @@ And to the Reubenites, the Gadites, and half the tribe of Manasseh Joshua spoke,
 "Remember the word which Moses the servant of the Lord commanded you, saying, 'The Lord your God is giving you rest and is giving you this land.' 
 
 ###### 14 
-Your wives, your little ones, and your livestock shall remain in the land which Moses gave you on this side of the Jordan. But you shall [^d]pass before your brethren armed, all your mighty men of valor, and help them, 
+Your wives, your little ones, and your livestock shall remain in the land which Moses gave you on this side of the Jordan. But you shall pass before your brethren armed, all your mighty men of valor, and help them, 
 
 ###### 15 
 until the Lord has given your brethren rest, as He _gave_ you, and they also have taken possession of the land which the Lord your God is giving them. Then you shall return to the land of your possession and enjoy it, which Moses the Lord's servant gave you on this side of the Jordan toward the sunrise." 

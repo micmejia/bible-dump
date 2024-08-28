@@ -73,7 +73,7 @@ next: ['Hos 7']
 
 
 
-Para tayong mga patay na agad niyang bubuhayin. Hindi magtatagal,[^a] at ibabangon niya tayo para mamuhay sa kanyang presensya. 
+Para tayong mga patay na agad niyang bubuhayin. Hindi magtatagal, at ibabangon niya tayo para mamuhay sa kanyang presensya. 
 
 
 
@@ -139,7 +139,7 @@ Pagsikapan nating makilala ang Panginoon. Siyaʼy tiyak na darating, kasintiyak 
 
 
 
-<i class="trans-change">Pero sinabi ng Panginoon,_ "O Israel[^b] at Juda, ano ang gagawin ko sa inyo? Ang pag-ibig ninyo sa akin ay parang ambon o hamog sa umaga na madaling mawala. 
+<i class="trans-change">Pero sinabi ng Panginoon,_ "O Israel at Juda, ano ang gagawin ko sa inyo? Ang pag-ibig ninyo sa akin ay parang ambon o hamog sa umaga na madaling mawala. 
 
 
 
@@ -205,7 +205,7 @@ Kaya nga binalaan ko kayo sa pamamagitan ng mga propeta na kayoʼy mapapahamak a
 
 
 
-Sapagkat hindi ang <i class="trans-change">inyong mga_ handog ang nais ko, kundi ang <i class="trans-change">inyong_ pagmamahal.[^c] Mas nanaisin ko pang kilalanin <i class="trans-change">ninyo_ ako kaysa sa <i class="trans-change">mag-alay kayo ng_ mga handog na sinusunog. 
+Sapagkat hindi ang <i class="trans-change">inyong mga_ handog ang nais ko, kundi ang <i class="trans-change">inyong_ pagmamahal. Mas nanaisin ko pang kilalanin <i class="trans-change">ninyo_ ako kaysa sa <i class="trans-change">mag-alay kayo ng_ mga handog na sinusunog. 
 
 
 
@@ -238,7 +238,7 @@ Sapagkat hindi ang <i class="trans-change">inyong mga_ handog ang nais ko, kundi
 
 
 
-Pero tulad ni Adan, sinira ninyo ang kasunduan <i class="trans-change">natin_. Nagtaksil kayo sa akin diyan <i class="trans-change">sa inyong lugar_.[^d] 
+Pero tulad ni Adan, sinira ninyo ang kasunduan <i class="trans-change">natin_. Nagtaksil kayo sa akin diyan <i class="trans-change">sa inyong lugar_. 
 
 
 
@@ -304,7 +304,7 @@ Ang bayan ng Gilead ay tirahan ng masasamang tao at mga mamamatay-tao.
 
 
 
-Ang inyong mga pari ay parang mga tulisan na nag-aabang ng kanilang mabibiktima. Pumapatay sila sa daang patungo sa Shekem,[^e] at gumagawa ng marami pang nakakahiyang gawain. 
+Ang inyong mga pari ay parang mga tulisan na nag-aabang ng kanilang mabibiktima. Pumapatay sila sa daang patungo sa Shekem, at gumagawa ng marami pang nakakahiyang gawain. 
 
 
 
@@ -337,7 +337,7 @@ Ang inyong mga pari ay parang mga tulisan na nag-aabang ng kanilang mabibiktima.
 
 
 
-Mga taga-Israel, kakila-kilabot ang nakita ko sa inyo. Sumasamba kayo sa mga dios-diosan, kaya naging marumi[^f] kayo. 
+Mga taga-Israel, kakila-kilabot ang nakita ko sa inyo. Sumasamba kayo sa mga dios-diosan, kaya naging marumi kayo. 
 
 
 

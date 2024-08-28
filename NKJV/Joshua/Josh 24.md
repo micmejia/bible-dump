@@ -12,10 +12,10 @@ up: ['Joshua']
 Then Joshua gathered all the tribes of Israel to Shechem and called for the elders of Israel, for their heads, for their judges, and for their officers; and they presented themselves before God. 
 
 ###### 2 
-And Joshua said to all the people, "Thus says the Lord God of Israel: 'Your fathers, _including_ Terah, the father of Abraham and the father of Nahor, dwelt on the other side of [^a]the River in old times; and they served other gods. 
+And Joshua said to all the people, "Thus says the Lord God of Israel: 'Your fathers, _including_ Terah, the father of Abraham and the father of Nahor, dwelt on the other side of the River in old times; and they served other gods. 
 
 ###### 3 
-Then I took your father Abraham from the other side of [^b]the River, led him throughout all the land of Canaan, and multiplied his [^c]descendants and gave him Isaac. 
+Then I took your father Abraham from the other side of the River, led him throughout all the land of Canaan, and multiplied his descendants and gave him Isaac. 
 
 ###### 4 
 To Isaac I gave Jacob and Esau. To Esau I gave the mountains of Seir to possess, but Jacob and his children went down to Egypt. 
@@ -48,10 +48,10 @@ I sent the hornet before you which drove them out from before you, _also_ the tw
 I have given you a land for which you did not labor, and cities which you did not build, and you dwell in them; you eat of the vineyards and olive groves which you did not plant.' 
 
 ###### 14 
-"Now therefore, fear the Lord, serve Him in sincerity and in truth, and put away the gods which your fathers served on the other side of [^d]the River and in Egypt. Serve the Lord! 
+"Now therefore, fear the Lord, serve Him in sincerity and in truth, and put away the gods which your fathers served on the other side of the River and in Egypt. Serve the Lord! 
 
 ###### 15 
-And if it seems evil to you to serve the Lord, choose for yourselves this day whom you will serve, whether the gods which your fathers served that _were_ on the other side of [^e]the River, or the gods of the Amorites, in whose land you dwell. But as for me and my house, we will serve the Lord." 
+And if it seems evil to you to serve the Lord, choose for yourselves this day whom you will serve, whether the gods which your fathers served that _were_ on the other side of the River, or the gods of the Amorites, in whose land you dwell. But as for me and my house, we will serve the Lord." 
 
 ###### 16 
 So the people answered and said: "Far be it from us that we should forsake the Lord to serve other gods; 
@@ -81,7 +81,7 @@ So Joshua said to the people, "You _are_ witnesses against yourselves that you h
 And the people said to Joshua, "The Lord our God we will serve, and His voice we will obey!" 
 
 ###### 25 
-So Joshua made[^f] a covenant with the people that day, and made for them a statute and an ordinance in Shechem. 
+So Joshua made a covenant with the people that day, and made for them a statute and an ordinance in Shechem. 
 
 ###### 26 
 Then Joshua wrote these words in the Book of the Law of God. And he took a large stone, and set it up there under the oak that _was_ by the sanctuary of the Lord. 
@@ -102,7 +102,7 @@ And they buried him within the border of his inheritance at Timnath Serah, which
 Israel served the Lord all the days of Joshua, and all the days of the elders who outlived Joshua, who had known all the works of the Lord which He had done for Israel. 
 
 ###### 32 
-The bones of Joseph, which the children of Israel had brought up out of Egypt, they buried at Shechem, in the plot of ground which Jacob had bought from the sons of Hamor the father of Shechem for one hundred [^g]pieces of silver, and which had become an inheritance of the children of Joseph. 
+The bones of Joseph, which the children of Israel had brought up out of Egypt, they buried at Shechem, in the plot of ground which Jacob had bought from the sons of Hamor the father of Shechem for one hundred pieces of silver, and which had become an inheritance of the children of Joseph. 
 
 ###### 33 
 And Eleazar the son of Aaron died. They buried him in a hill _belonging to_ Phinehas his son, which was given to him in the mountains of Ephraim.

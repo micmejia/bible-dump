@@ -172,7 +172,7 @@ May oras ng pagluha at may oras ng pagtawa; may oras ng pagluluksa at may oras n
 
 
 
-May oras ng pagkakalat ng bato at may oras ng pagtitipon nito; may oras ng pagsasama[^a] at may oras ng paghihiwalay. 
+May oras ng pagkakalat ng bato at may oras ng pagtitipon nito; may oras ng pagsasama at may oras ng paghihiwalay. 
 
 
 

@@ -10,13 +10,13 @@ next: ['Job 15']
 
 
 ###### 1 
-"Man _who is_ born of woman Is of few days and full of [^a]trouble. 
+"Man _who is_ born of woman Is of few days and full of trouble. 
 
 ###### 2 
 He comes forth like a flower and fades away; He flees like a shadow and does not continue. 
 
 ###### 3 
-And do You open Your eyes on such a one, And bring [^b]me to judgment with Yourself? 
+And do You open Your eyes on such a one, And bring me to judgment with Yourself? 
 
 ###### 4 
 Who can bring a clean _thing_ out of an unclean? No one! 
@@ -25,7 +25,7 @@ Who can bring a clean _thing_ out of an unclean? No one!
 Since his days _are_ determined, The number of his months _is_ with You; You have appointed his limits, so that he cannot pass. 
 
 ###### 6 
-Look away from him that he may [^c]rest, Till like a hired man he finishes his day. 
+Look away from him that he may rest, Till like a hired man he finishes his day. 
 
 ###### 7 
 "For there is hope for a tree, If it is cut down, that it will sprout again, And that its tender shoots will not cease. 
@@ -37,7 +37,7 @@ Though its root may grow old in the earth, And its stump may die in the ground,
 _Yet_ at the scent of water it will bud And bring forth branches like a plant. 
 
 ###### 10 
-But man dies and [^d]is laid away; Indeed he [^e]breathes his last And where _is_ he? 
+But man dies and is laid away; Indeed he breathes his last And where _is_ he? 
 
 ###### 11 
 _As_ water disappears from the sea, And a river becomes parched and dries up, 
@@ -58,7 +58,7 @@ You shall call, and I will answer You; You shall desire the work of Your hands.
 For now You number my steps, But do not watch over my sin. 
 
 ###### 17 
-My transgression _is_ sealed up in a bag, And You [^f]cover my iniquity. 
+My transgression _is_ sealed up in a bag, And You cover my iniquity. 
 
 ###### 18 
 "But _as_ a mountain falls _and_ crumbles away, And _as_ a rock is moved from its place; 

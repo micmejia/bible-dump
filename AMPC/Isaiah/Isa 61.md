@@ -49,7 +49,7 @@ The Spirit of the Lord God is upon me, because the Lord has anointed _and_ quali
 
 
 
-To proclaim the acceptable year of the Lord [the year of His favor] [^a]and the day of vengeance of our God, to comfort all who mourn, 
+To proclaim the acceptable year of the Lord [the year of His favor] and the day of vengeance of our God, to comfort all who mourn, 
 
 
 

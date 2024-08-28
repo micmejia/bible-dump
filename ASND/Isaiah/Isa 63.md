@@ -370,7 +370,7 @@ Pero nagrebelde sila at pinalungkot nila ang Banal niyang Espiritu. Kung kaya, k
 
 
 
-Pero sa huli naalala nila ang mga lumipas na panahon, noong pinalabas ni Moises ang mga mamamayan niya sa Egipto. Nagtanong sila, "Nasaan na ang Panginoon na nagpatawid sa atin[^a] sa dagat kasama ng ating pinunong si Moises na parang isang pastol ng mga tupa? Nasaan na ang Panginoon na nagpadala sa atin ng kanyang Espiritu? 
+Pero sa huli naalala nila ang mga lumipas na panahon, noong pinalabas ni Moises ang mga mamamayan niya sa Egipto. Nagtanong sila, "Nasaan na ang Panginoon na nagpatawid sa atin sa dagat kasama ng ating pinunong si Moises na parang isang pastol ng mga tupa? Nasaan na ang Panginoon na nagpadala sa atin ng kanyang Espiritu? 
 
 
 
@@ -535,7 +535,7 @@ Tingnan nʼyo po kami mula sa langit, na siyang iyong banal at dakilang tahanan.
 
 
 
-Sapagkat kayo ang aming Ama, kahit na hindi kami kilalanin ni Abraham at ni Jacob[^b] na kanilang lahi. Totoo, Panginoon, kayo ang aming Ama, ang aming Tagapagligtas mula pa noon. 
+Sapagkat kayo ang aming Ama, kahit na hindi kami kilalanin ni Abraham at ni Jacob na kanilang lahi. Totoo, Panginoon, kayo ang aming Ama, ang aming Tagapagligtas mula pa noon. 
 
 
 

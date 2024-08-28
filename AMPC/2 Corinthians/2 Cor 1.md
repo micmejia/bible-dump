@@ -111,7 +111,7 @@ Who comforts (consoles and encourages) us in every trouble (calamity and afflict
 
 
 
-For just as Christ's [[^a]own] sufferings fall to our lot [^b][as they overflow upon His disciples, and we share and experience them] abundantly, so through Christ comfort (consolation and encouragement) is also [shared and experienced] abundantly by us. 
+For just as Christ's [own] sufferings fall to our lot [as they overflow upon His disciples, and we share and experience them] abundantly, so through Christ comfort (consolation and encouragement) is also [shared and experienced] abundantly by us. 
 
 
 
@@ -216,7 +216,7 @@ Indeed, we felt within ourselves that we had received the [very] sentence of dea
 
 
 
-[For it is He] Who rescued _and_ saved us from such a perilous death, and He will still rescue _and_ save us; in _and_ on Him we have set our hope (our joyful and confident expectation) that He will again deliver us [from danger and destruction and [^c]draw us to Himself], 
+[For it is He] Who rescued _and_ saved us from such a perilous death, and He will still rescue _and_ save us; in _and_ on Him we have set our hope (our joyful and confident expectation) that He will again deliver us [from danger and destruction and draw us to Himself], 
 
 
 
@@ -258,7 +258,7 @@ While you also cooperate by your prayers for us [helping and laboring together w
 
 
 
-It is a reason for pride _and_ exultation to which our conscience testifies that we have conducted ourselves in the world [generally] and especially toward you, with devout _and_ pure motives and godly sincerity, not in fleshly wisdom but by the grace of God (the unmerited favor and [^d]merciful kindness by which God, exerting His holy influence upon souls, turns them to Christ, and keeps, strengthens, and increases them in Christian virtues). 
+It is a reason for pride _and_ exultation to which our conscience testifies that we have conducted ourselves in the world [generally] and especially toward you, with devout _and_ pure motives and godly sincerity, not in fleshly wisdom but by the grace of God (the unmerited favor and merciful kindness by which God, exerting His holy influence upon souls, turns them to Christ, and keeps, strengthens, and increases them in Christian virtues). 
 
 
 
@@ -279,7 +279,7 @@ It is a reason for pride _and_ exultation to which our conscience testifies that
 
 
 
-For we write you nothing else but simply what you can read and understand [there is no double meaning to what we say], and I hope that you will become thoroughly acquainted [with [^e]divine things] _and_ know _and_ understand [them] accurately _and_ well to the end, 
+For we write you nothing else but simply what you can read and understand [there is no double meaning to what we say], and I hope that you will become thoroughly acquainted [with divine things] _and_ know _and_ understand [them] accurately _and_ well to the end, 
 
 
 
@@ -447,7 +447,7 @@ For as many as are the promises of God, they all find their Yes [answer] in Him 
 
 
 
-But it is God Who confirms _and_ makes us steadfast _and_ establishes us [in joint fellowship] with you in Christ, and has consecrated _and_ anointed us [[^f]enduing us with the gifts of the Holy Spirit]; 
+But it is God Who confirms _and_ makes us steadfast _and_ establishes us [in joint fellowship] with you in Christ, and has consecrated _and_ anointed us [enduing us with the gifts of the Holy Spirit]; 
 
 
 
@@ -510,4 +510,4 @@ But I call upon God as my soul's witness: it was to avoid hurting you that I ref
 
 
 
-Not that we have dominion [over you] _and_ lord it over your faith, but [rather that we work with you as] fellow laborers [to promote] your joy, for in [your] faith ([^g]in your strong and welcome conviction or belief that Jesus is the Messiah, through Whom we obtain eternal salvation in the kingdom of God) you stand firm.
+Not that we have dominion [over you] _and_ lord it over your faith, but [rather that we work with you as] fellow laborers [to promote] your joy, for in [your] faith (in your strong and welcome conviction or belief that Jesus is the Messiah, through Whom we obtain eternal salvation in the kingdom of God) you stand firm.

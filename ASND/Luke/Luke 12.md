@@ -40,7 +40,7 @@ next: ['Luke 13']
 
 
 
-Libu-libong tao ang dumagsa <i class="trans-change">kay Jesus_, kaya nagkakasiksikan na sila. Binalaan ni Jesus ang mga tagasunod niya, "Mag-ingat kayo at baka mahawa kayo sa ugali[^a] ng mga Pariseo na pakitang-tao. 
+Libu-libong tao ang dumagsa <i class="trans-change">kay Jesus_, kaya nagkakasiksikan na sila. Binalaan ni Jesus ang mga tagasunod niya, "Mag-ingat kayo at baka mahawa kayo sa ugali ng mga Pariseo na pakitang-tao. 
 
 
 
@@ -1063,7 +1063,7 @@ Sa halip, unahin ninyo ang mapabilang sa kaharian ng Dios at pati ang mga pangan
 
 
 
-"Kayong mga tagasunod ko ay kaunti lang.[^b] Ngunit huwag kayong matakot, dahil ipinagkaloob ng inyong Ama na maghari kayong kasama niya. 
+"Kayong mga tagasunod ko ay kaunti lang. Ngunit huwag kayong matakot, dahil ipinagkaloob ng inyong Ama na maghari kayong kasama niya. 
 
 
 
@@ -1459,7 +1459,7 @@ Ngunit kawawa ang alipin kung inaakala niyang matatagalan pa bago bumalik ang am
 
 
 
-Darating ang amo niya sa araw o oras na hindi niya inaasahan, at parurusahan siya nang matindi[^c] at isasama sa mga hindi mapagkakatiwalaan. 
+Darating ang amo niya sa araw o oras na hindi niya inaasahan, at parurusahan siya nang matindi at isasama sa mga hindi mapagkakatiwalaan. 
 
 
 
@@ -1492,7 +1492,7 @@ Darating ang amo niya sa araw o oras na hindi niya inaasahan, at parurusahan siy
 
 
 
-"Ang aliping nakakaalam ng kagustuhan ng amo niya ngunit hindi naghahanda at hindi gumagawa ng kanyang tungkulin ay tatanggap ng mabigat na parusa.[^d] 
+"Ang aliping nakakaalam ng kagustuhan ng amo niya ngunit hindi naghahanda at hindi gumagawa ng kanyang tungkulin ay tatanggap ng mabigat na parusa. 
 
 
 
@@ -1558,7 +1558,7 @@ At ang aliping hindi nakakaalam ng kagustuhan ng amo niya, at nakagawa ng kamali
 
 
 
-"Naparito ako sa lupa upang magdala ng apoy[^e] at gusto ko sanang magliyab na ito. 
+"Naparito ako sa lupa upang magdala ng apoy at gusto ko sanang magliyab na ito. 
 
 
 
@@ -1888,4 +1888,4 @@ Kapag may magdedemanda sa iyo, pagsikapan mong makipag-ayos sa kanya habang papu
 
 
 
-Tinitiyak ko sa iyo, hindi ka makakalabas ng bilangguan hanggaʼt hindi mo nababayaran ang lahat ng multa[^f] mo."
+Tinitiyak ko sa iyo, hindi ka makakalabas ng bilangguan hanggaʼt hindi mo nababayaran ang lahat ng multa mo."

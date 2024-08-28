@@ -898,7 +898,7 @@ Bago mangako sa Dios ay isiping mabuti, baka magsisi ka sa bandang huli.
 
 
 
-Ibinigay sa atin ng Panginoon ang ating budhi[^a] at isipan upang makita ang ating kaloob-looban. 
+Ibinigay sa atin ng Panginoon ang ating budhi at isipan upang makita ang ating kaloob-looban. 
 
 
 
@@ -964,7 +964,7 @@ Ang haring mabuti at tapat ay hindi mapapahamak, at magtatagal siya sa kanyang l
 
 
 
-Karangalan ng kabataan ang kanilang kalakasan, at karangalan naman ng matatanda ang kanilang katandaan.[^b] 
+Karangalan ng kabataan ang kanilang kalakasan, at karangalan naman ng matatanda ang kanilang katandaan. 
 
 
 

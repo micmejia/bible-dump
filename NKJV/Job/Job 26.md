@@ -31,7 +31,7 @@ Sheol _is_ naked before Him, And Destruction has no covering.
 He stretches out the north over empty space; _He_ hangs the earth on nothing. 
 
 ###### 8 
-He binds up the water in His thick clouds, Yet the clouds [^a]are not broken under it. 
+He binds up the water in His thick clouds, Yet the clouds are not broken under it. 
 
 ###### 9 
 He covers the face of _His_ throne, _And_ spreads His cloud over it. 
@@ -40,10 +40,10 @@ He covers the face of _His_ throne, _And_ spreads His cloud over it.
 He drew a circular horizon on the face of the waters, At the boundary of light and darkness. 
 
 ###### 11 
-The pillars of heaven tremble, And are [^b]astonished at His rebuke. 
+The pillars of heaven tremble, And are astonished at His rebuke. 
 
 ###### 12 
-He stirs up the sea with His power, And by His understanding He breaks up [^c]the storm. 
+He stirs up the sea with His power, And by His understanding He breaks up the storm. 
 
 ###### 13 
 By His Spirit He adorned the heavens; His hand pierced the fleeing serpent. 

@@ -73,7 +73,7 @@ Sa mga araw na iyon, pitong babae ang mag-aagawan sa isang lalaki at sasabihin n
 
 
 
-Darating ang araw na pasasaganain at pagagandahin ng Panginoon ang mga pananim[^a] sa Israel, at ang mga ani ng lupain ay magiging karangalan at kaligayahan ng natitirang mga tao sa Jerusalem. 
+Darating ang araw na pasasaganain at pagagandahin ng Panginoon ang mga pananim sa Israel, at ang mga ani ng lupain ay magiging karangalan at kaligayahan ng natitirang mga tao sa Jerusalem. 
 
 
 
@@ -172,7 +172,7 @@ Sa pamamagitan ng kanyang kapangyarihan, hahatulan niya at lilinisin ang kasamaa
 
 
 
-Pagkatapos, lilikha ang Panginoon ng ulap na lililim sa ibabaw ng Jerusalem[^b] at sa mga nagtitipon doon. Lilikha rin siya ng nagniningas na apoy na magbibigay ng liwanag kung gabi. Tatakip ito sa Jerusalem na parang isang malapad na tolda, 
+Pagkatapos, lilikha ang Panginoon ng ulap na lililim sa ibabaw ng Jerusalem at sa mga nagtitipon doon. Lilikha rin siya ng nagniningas na apoy na magbibigay ng liwanag kung gabi. Tatakip ito sa Jerusalem na parang isang malapad na tolda, 
 
 
 

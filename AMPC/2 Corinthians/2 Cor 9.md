@@ -133,7 +133,7 @@ That is why I thought it necessary to urge these brethren to go to you before I 
 
 
 
-[Remember] this: he who sows sparingly _and_ grudgingly will also reap sparingly _and_ grudgingly, and he who sows generously [[^a]that blessings may come to someone] will also reap generously _and_ with blessings. 
+[Remember] this: he who sows sparingly _and_ grudgingly will also reap sparingly _and_ grudgingly, and he who sows generously [that blessings may come to someone] will also reap generously _and_ with blessings. 
 
 
 
@@ -154,7 +154,7 @@ That is why I thought it necessary to urge these brethren to go to you before I 
 
 
 
-Let each one [give] as he has made up his own mind _and_ purposed in his heart, not reluctantly _or_ sorrowfully or under compulsion, for God loves (He [^b]takes pleasure in, prizes above other things, and is unwilling to abandon or to do without) a cheerful (joyous, "prompt to do it") giver [whose heart is in his giving]. 
+Let each one [give] as he has made up his own mind _and_ purposed in his heart, not reluctantly _or_ sorrowfully or under compulsion, for God loves (He takes pleasure in, prizes above other things, and is unwilling to abandon or to do without) a cheerful (joyous, "prompt to do it") giver [whose heart is in his giving]. 
 
 
 
@@ -175,7 +175,7 @@ Let each one [give] as he has made up his own mind _and_ purposed in his heart, 
 
 
 
-And God is able to make all grace (every favor and [^c]earthly blessing) come to you in abundance, so that you may always _and_ under all circumstances _and_ whatever the need [^d]be self-sufficient [possessing enough to require no aid or support and furnished in abundance for every good work and charitable donation]. 
+And God is able to make all grace (every favor and earthly blessing) come to you in abundance, so that you may always _and_ under all circumstances _and_ whatever the need be self-sufficient [possessing enough to require no aid or support and furnished in abundance for every good work and charitable donation]. 
 
 
 
@@ -217,7 +217,7 @@ As it is written, He [the benevolent person] scatters abroad; He gives to the po
 
 
 
-And [God] Who provides seed for the sower and bread for eating will also provide and multiply your [resources for] sowing and increase the fruits of your righteousness [[^e]which manifests itself in active goodness, kindness, and charity]. 
+And [God] Who provides seed for the sower and bread for eating will also provide and multiply your [resources for] sowing and increase the fruits of your righteousness [which manifests itself in active goodness, kindness, and charity]. 
 
 
 

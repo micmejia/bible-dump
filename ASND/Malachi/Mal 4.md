@@ -72,7 +72,7 @@ Sinabi ng Panginoong Makapangyarihan, "Tiyak na darating ang araw <i class="tran
 
 
 
-Pero kayong may paggalang sa akin ay ililigtas ko gaya ng pagsikat ng araw[^a] na ang sinag nito ay nagbibigay ng kabutihan. At lulundag kayo sa tuwa, na parang mga guyang pinakawalan sa kulungan. 
+Pero kayong may paggalang sa akin ay ililigtas ko gaya ng pagsikat ng araw na ang sinag nito ay nagbibigay ng kabutihan. At lulundag kayo sa tuwa, na parang mga guyang pinakawalan sa kulungan. 
 
 
 
@@ -138,7 +138,7 @@ Pagdating ng araw na isakatuparan ko na ang mga bagay na ito, lilipulin ninyo an
 
 
 
-"Sundin ninyo[^b] ang Kautusang ibinigay ng aking lingkod na si Moises. Ang mga utos at mga tuntuning iyan ay ibinigay ko sa kanya doon sa Bundok ng Sinai[^c] upang sundin ng lahat ng mamamayan ng Israel. 
+"Sundin ninyo ang Kautusang ibinigay ng aking lingkod na si Moises. Ang mga utos at mga tuntuning iyan ay ibinigay ko sa kanya doon sa Bundok ng Sinai upang sundin ng lahat ng mamamayan ng Israel. 
 
 
 

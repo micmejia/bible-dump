@@ -22,10 +22,10 @@ Do not desire his delicacies, For they _are_ deceptive food.
 Do not overwork to be rich; Because of your own understanding, cease! 
 
 ###### 5 
-[^a]Will you set your eyes on that which is not? For _riches_ certainly make themselves wings; They fly away like an eagle _toward_ heaven. 
+Will you set your eyes on that which is not? For _riches_ certainly make themselves wings; They fly away like an eagle _toward_ heaven. 
 
 ###### 6 
-Do not eat the bread of a[^b] miser, Nor desire his delicacies; 
+Do not eat the bread of a miser, Nor desire his delicacies; 
 
 ###### 7 
 For as he thinks in his heart, so _is_ he. "Eat and drink!" he says to you, But his heart is not with you. 
@@ -37,7 +37,7 @@ The morsel you have eaten, you will vomit up, And waste your pleasant words.
 Do not speak in the hearing of a fool, For he will despise the wisdom of your words. 
 
 ###### 10 
-Do not remove the ancient [^c]landmark, Nor enter the fields of the fatherless; 
+Do not remove the ancient landmark, Nor enter the fields of the fatherless; 
 
 ###### 11 
 For their Redeemer _is_ mighty; He will plead their cause against you. 
@@ -49,19 +49,19 @@ Apply your heart to instruction, And your ears to words of knowledge.
 Do not withhold correction from a child, For _if_ you beat him with a rod, he will not die. 
 
 ###### 14 
-You shall beat him with a rod, And deliver his soul from [^d]hell. 
+You shall beat him with a rod, And deliver his soul from hell. 
 
 ###### 15 
 My son, if your heart is wise, My heart will rejoice--indeed, I myself; 
 
 ###### 16 
-Yes, my [^e]inmost being will rejoice When your lips speak right things. 
+Yes, my inmost being will rejoice When your lips speak right things. 
 
 ###### 17 
 Do not let your heart envy sinners, But _be zealous_ for the fear of the Lord all the day; 
 
 ###### 18 
-For surely there is a [^f]hereafter, And your hope will not be cut off. 
+For surely there is a hereafter, And your hope will not be cut off. 
 
 ###### 19 
 Hear, my son, and be wise; And guide your heart in the way. 
@@ -100,7 +100,7 @@ Who has woe? Who has sorrow? Who has contentions? Who has complaints? Who has wo
 Those who linger long at the wine, Those who go in search of mixed wine. 
 
 ###### 31 
-Do not look on the wine when it is red, When it sparkles in the cup, _When_ it [^g]swirls around smoothly; 
+Do not look on the wine when it is red, When it sparkles in the cup, _When_ it swirls around smoothly; 
 
 ###### 32 
 At the last it bites like a serpent, And stings like a viper. 
@@ -109,7 +109,7 @@ At the last it bites like a serpent, And stings like a viper.
 Your eyes will see strange things, And your heart will utter perverse things. 
 
 ###### 34 
-Yes, you will be like one who lies down in the [^h]midst of the sea, Or like one who lies at the top of the mast, _saying:_ 
+Yes, you will be like one who lies down in the midst of the sea, Or like one who lies at the top of the mast, _saying:_ 
 
 ###### 35 
 "They have struck me, _but_ I was not hurt; They have beaten me, but I did not feel _it._ When shall I awake, that I may seek another _drink?_"

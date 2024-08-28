@@ -238,7 +238,7 @@ Nanalig si Abram sa Panginoon. At dahil dito, itinuring siyang matuwid.
 
 
 
-Sinabi pa niya kay Abram, "Ako ang Panginoon na nag-utos sa iyo na lisanin ang Ur na sakop ng mga Caldeo[^a] para ibigay sa iyo ang lupaing ito at magiging pag-aari mo." 
+Sinabi pa niya kay Abram, "Ako ang Panginoon na nag-utos sa iyo na lisanin ang Ur na sakop ng mga Caldeo para ibigay sa iyo ang lupaing ito at magiging pag-aari mo." 
 
 
 

@@ -133,7 +133,7 @@ And if anyone attempts to injure them, fire pours from their mouth and consumes 
 
 
 
-These [two witnesses] have power to shut up the sky, so that no rain may fall during the days of their prophesying (their [^a]prediction of events relating to Christ's kingdom and its speedy triumph); and they also have power to turn the waters into blood and to smite _and_ scourge the earth with all manner of plagues as often as they choose. 
+These [two witnesses] have power to shut up the sky, so that no rain may fall during the days of their prophesying (their prediction of events relating to Christ's kingdom and its speedy triumph); and they also have power to turn the waters into blood and to smite _and_ scourge the earth with all manner of plagues as often as they choose. 
 
 
 
@@ -175,7 +175,7 @@ But when they have finished their testimony _and_ their evidence is all in, the 
 
 
 
-And their dead bodies [will lie exposed] in the open street ([^b]a public square) of the great city which is in a spiritual sense called [by the mystical and allegorical names of] Sodom and Egypt, where also their Lord was crucified. 
+And their dead bodies [will lie exposed] in the open street (a public square) of the great city which is in a spiritual sense called [by the mystical and allegorical names of] Sodom and Egypt, where also their Lord was crucified. 
 
 
 
@@ -343,7 +343,7 @@ The seventh angel then blew [his] trumpet, and there were mighty voices in heave
 
 
 
-Then the twenty-four elders [of [^c]the heavenly Sanhedrin], who sit on their thrones before God, prostrated themselves before Him and worshiped, 
+Then the twenty-four elders [of the heavenly Sanhedrin], who sit on their thrones before God, prostrated themselves before Him and worshiped, 
 
 
 

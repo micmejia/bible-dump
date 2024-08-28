@@ -280,7 +280,7 @@ And God looked upon the world and saw how degenerate, debased, _and_ vicious it 
 
 
 
-God said to Noah, I intend to make an end of all flesh, for through men the land is filled with violence; and behold, I will [^a]destroy them and the land. 
+God said to Noah, I intend to make an end of all flesh, for through men the land is filled with violence; and behold, I will destroy them and the land. 
 
 
 
@@ -343,7 +343,7 @@ And this is the way you are to make it: the length of the ark shall be 300 cubit
 
 
 
-You shall make a roof or [^b]window [a place for light] for the ark and finish it to a cubit [at least 18 inches] above--and the [^c]door of the ark you shall put in the side of it; and you shall make it with lower, second, and third stories. 
+You shall make a roof or window [a place for light] for the ark and finish it to a cubit [at least 18 inches] above--and the door of the ark you shall put in the side of it; and you shall make it with lower, second, and third stories. 
 
 
 

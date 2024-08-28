@@ -49,16 +49,16 @@ Gather the people together, men and women and little ones, and the stranger who 
 and _that_ their children, who have not known it, may hear and learn to fear the Lord your God as long as you live in the land which you cross the Jordan to possess." ## Prediction of Israel's Rebellion 
 
 ###### 14 
-Then the Lord said to Moses, "Behold, the days approach when you must die; call Joshua, and present yourselves in the tabernacle of meeting, that I may [^a]inaugurate him." So Moses and Joshua went and presented themselves in the tabernacle of meeting. 
+Then the Lord said to Moses, "Behold, the days approach when you must die; call Joshua, and present yourselves in the tabernacle of meeting, that I may inaugurate him." So Moses and Joshua went and presented themselves in the tabernacle of meeting. 
 
 ###### 15 
 Now the Lord appeared at the tabernacle in a pillar of cloud, and the pillar of cloud stood above the door of the tabernacle. 
 
 ###### 16 
-And the Lord said to Moses: "Behold, you will [^b]rest with your fathers; and this people will rise and play the harlot with the gods of the foreigners of the land, where they go _to be_ among them, and they will forsake Me and break My covenant which I have made with them. 
+And the Lord said to Moses: "Behold, you will rest with your fathers; and this people will rise and play the harlot with the gods of the foreigners of the land, where they go _to be_ among them, and they will forsake Me and break My covenant which I have made with them. 
 
 ###### 17 
-Then My anger shall be aroused against them in that day, and I will forsake them, and I will hide My face from them, and they shall be [^c]devoured. And many evils and troubles shall befall them, so that they will say in that day, 'Have not these evils come upon us because our God _is_ not among us?' 
+Then My anger shall be aroused against them in that day, and I will forsake them, and I will hide My face from them, and they shall be devoured. And many evils and troubles shall befall them, so that they will say in that day, 'Have not these evils come upon us because our God _is_ not among us?' 
 
 ###### 18 
 And I will surely hide My face in that day because of all the evil which they have done, in that they have turned to other gods. 

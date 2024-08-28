@@ -6,7 +6,7 @@ next: ['Lev 2']
 # Leviticus 1
 
 ***
-###### 1-2 Tinawag ng Panginoon si Moises at kinausap doon sa Toldang Tipanan.[^a] Inutusan niya si Moises na sabihin sa mga taga-Israel: Kapag may naghahandog sa inyo ng hayop sa Panginoon, maghandog siya ng baka, tupa, o kambing. 
+###### 1-2 Tinawag ng Panginoon si Moises at kinausap doon sa Toldang Tipanan. Inutusan niya si Moises na sabihin sa mga taga-Israel: Kapag may naghahandog sa inyo ng hayop sa Panginoon, maghandog siya ng baka, tupa, o kambing. 
 
 
 
@@ -72,7 +72,7 @@ Kung baka ang kanyang iaalay bilang handog na sinusunog, kinakailangan ay lalaki
 
 
 
-Ipapatong niya ang kanyang kamay sa ulo ng bakang inihahandog niya, at itoʼy tatanggapin ng Panginoon para matubos siya sa kanyang mga kasalanan.[^b] 
+Ipapatong niya ang kanyang kamay sa ulo ng bakang inihahandog niya, at itoʼy tatanggapin ng Panginoon para matubos siya sa kanyang mga kasalanan. 
 
 
 
@@ -237,7 +237,7 @@ At ilalagay nila nang maayos sa apoy ang mga hiniwang karne, pati ang ulo at tab
 
 
 
-Pero huhugasan muna ng naghahandog ang mga lamang-loob, ang mga hita at pagkatapos, susunugin ng pari ang mga ito roon sa altar bilang handog na sinusunog. Ang mabangong samyo ng handog na ito sa pamamagitan ng apoy[^c] ay makalulugod sa Panginoon. 
+Pero huhugasan muna ng naghahandog ang mga lamang-loob, ang mga hita at pagkatapos, susunugin ng pari ang mga ito roon sa altar bilang handog na sinusunog. Ang mabangong samyo ng handog na ito sa pamamagitan ng apoy ay makalulugod sa Panginoon. 
 
 
 
@@ -402,7 +402,7 @@ Pagkatapos, huhugasan ng naghahandog ang mga lamang-loob at mga paa, at saka ibi
 
 
 
-Kapag ibon ang iaalay ng isang tao bilang handog na sinusunog para sa Panginoon, kinakailangang kalapati o batu-bato.[^d] 
+Kapag ibon ang iaalay ng isang tao bilang handog na sinusunog para sa Panginoon, kinakailangang kalapati o batu-bato. 
 
 
 
@@ -468,7 +468,7 @@ Itoʼy dadalhin ng pari sa altar, pipilipitin niya ang leeg hanggang sa maputol 
 
 
 
-Pagkatapos, aalisin niya ang butsi at bituka[^e] nito, at ihahagis sa gawing silangan ng altar sa pinaglalagyan ng abo. 
+Pagkatapos, aalisin niya ang butsi at bituka nito, at ihahagis sa gawing silangan ng altar sa pinaglalagyan ng abo. 
 
 
 

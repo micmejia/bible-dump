@@ -22,7 +22,7 @@ Their nobles have sent their lads for water; They went to the cisterns _and_ fou
 Because the ground is parched, For there was no rain in the land, The plowmen were ashamed; They covered their heads. 
 
 ###### 5 
-Yes, the deer also gave birth in the field, But [^a]left because there was no grass. 
+Yes, the deer also gave birth in the field, But left because there was no grass. 
 
 ###### 6 
 And the wild donkeys stood in the desolate heights; They sniffed at the wind like jackals; Their eyes failed because _there was_ no grass." 
@@ -46,10 +46,10 @@ Then the Lord said to me, "Do not pray for this people, for _their_ good.
 When they fast, I will not hear their cry; and when they offer burnt offering and grain offering, I will not accept them. But I will consume them by the sword, by the famine, and by the pestilence." 
 
 ###### 13 
-Then I said, "Ah, Lord God! Behold, the prophets say to them, 'You shall not see the sword, nor shall you have famine, but I will give you [^b]assured peace in this place.' " 
+Then I said, "Ah, Lord God! Behold, the prophets say to them, 'You shall not see the sword, nor shall you have famine, but I will give you assured peace in this place.' " 
 
 ###### 14 
-And the Lord said to me, "The prophets prophesy lies in My name. I have not sent them, commanded them, nor spoken to them; they prophesy to you a false vision, [^c]divination, a worthless thing, and the deceit of their heart. 
+And the Lord said to me, "The prophets prophesy lies in My name. I have not sent them, commanded them, nor spoken to them; they prophesy to you a false vision, divination, a worthless thing, and the deceit of their heart. 
 
 ###### 15 
 Therefore thus says the Lord concerning the prophets who prophesy in My name, whom I did not send, and who say, 'Sword and famine shall not be in this land'--'By sword and famine those prophets shall be consumed! 

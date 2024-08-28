@@ -204,7 +204,7 @@ Ang mga anak na lalaki ni Jafet ay sina Gomer, Magog, Madai, Javan, Tubal, Meshe
 
 
 
-Si Gomer ay may mga anak din na lalaki na sina Ashkenaz, Rifat,[^a] at Togarma. 
+Si Gomer ay may mga anak din na lalaki na sina Ashkenaz, Rifat, at Togarma. 
 
 
 
@@ -237,7 +237,7 @@ Si Gomer ay may mga anak din na lalaki na sina Ashkenaz, Rifat,[^a] at Togarma.
 
 
 
-Ang mga anak na lalaki ni Javan ay sina Elisha, Tarshish, Kitim at Rodanim.[^b] ## Ang Lahi ni Ham 
+Ang mga anak na lalaki ni Javan ay sina Elisha, Tarshish, Kitim at Rodanim. ## Ang Lahi ni Ham 
 
 
 
@@ -270,7 +270,7 @@ Ang mga anak na lalaki ni Javan ay sina Elisha, Tarshish, Kitim at Rodanim.[^b] 
 
 
 
-Ang mga anak na lalaki ni Ham ay sina Cush, Mizraim,[^c] Put, at Canaan. 
+Ang mga anak na lalaki ni Ham ay sina Cush, Mizraim, Put, at Canaan. 
 
 
 
@@ -435,7 +435,7 @@ Patruseo, Caslu, at mga Caftoreo na siyang pinagmulan ng mga Filisteo.
 
 
 
-Si Canaan ang ama nina Sidon at Het.[^d] Si Sidon ang panganay. 
+Si Canaan ang ama nina Sidon at Het. Si Sidon ang panganay. 
 
 
 
@@ -567,7 +567,7 @@ Arvadeo, Zemareo at Hamateo. ## Ang Lahi ni Shem
 
 
 
-Ang mga anak na lalaki ni Shem: sina Elam, Ashur, Arfaxad, Lud at Aram. Ang mga anak na lalaki ni Aram ay sina,[^e] Uz, Hul, Geter at Meshec.[^f] 
+Ang mga anak na lalaki ni Shem: sina Elam, Ashur, Arfaxad, Lud at Aram. Ang mga anak na lalaki ni Aram ay sina, Uz, Hul, Geter at Meshec. 
 
 
 
@@ -732,7 +732,7 @@ Hadoram, Uzal, Dikla,
 
 
 
-Obal,[^g] Abimael, Sheba, 
+Obal, Abimael, Sheba, 
 
 
 
@@ -1128,7 +1128,7 @@ Ang mga anak na lalaki ni Midian ay sina Efa, Efer, Hanoc, Abida at Eldaa. Silan
 
 
 
-Si Abraham ang ama ni Isaac. Ang mga anak ni Isaac ay sina Esau at Israel.[^h] 
+Si Abraham ang ama ni Isaac. Ang mga anak ni Isaac ay sina Esau at Israel. 
 
 
 
@@ -1194,7 +1194,7 @@ Ang mga anak na lalaki ni Esau ay sina Elifaz, Reuel, Jeush, Jalam at Kora.
 
 
 
-Ang mga anak na lalaki ni Elifaz ay sina Teman, Omar, Zefo,[^i] Gatam, Kenaz at Amalek. Si Amalek ay anak niya kay Timna.[^j] 
+Ang mga anak na lalaki ni Elifaz ay sina Teman, Omar, Zefo, Gatam, Kenaz at Amalek. Si Amalek ay anak niya kay Timna. 
 
 
 
@@ -1293,7 +1293,7 @@ Ang mga anak na lalaki ni Seir ay sina Lotan, Shobal, Zibeon, Ana, Dishon, Ezer 
 
 
 
-Ang mga anak na lalaki ni Lotan ay sina Hori at Homam.[^k] Magkapatid sina Lotan at Timna <i class="trans-change">na isa pang asawa ni Elipaz_. 
+Ang mga anak na lalaki ni Lotan ay sina Hori at Homam. Magkapatid sina Lotan at Timna <i class="trans-change">na isa pang asawa ni Elipaz_. 
 
 
 
@@ -1326,7 +1326,7 @@ Ang mga anak na lalaki ni Lotan ay sina Hori at Homam.[^k] Magkapatid sina Lotan
 
 
 
-Ang mga anak na lalaki ni Shobal ay sina Alvan,[^l] Manahat, Ebal, Shefo[^m] at Onam. Ang mga anak na lalaki ni Zibeon ay sina Aya at Ana. 
+Ang mga anak na lalaki ni Shobal ay sina Alvan, Manahat, Ebal, Shefo at Onam. Ang mga anak na lalaki ni Zibeon ay sina Aya at Ana. 
 
 
 
@@ -1359,7 +1359,7 @@ Ang mga anak na lalaki ni Shobal ay sina Alvan,[^l] Manahat, Ebal, Shefo[^m] at 
 
 
 
-Ang anak na lalaki ni Ana ay si Dishon. Ang mga anak na lalaki ni Dishon ay sina Hemdan,[^n] Eshban, Itran at Keran. 
+Ang anak na lalaki ni Ana ay si Dishon. Ang mga anak na lalaki ni Dishon ay sina Hemdan, Eshban, Itran at Keran. 
 
 
 
@@ -1392,7 +1392,7 @@ Ang anak na lalaki ni Ana ay si Dishon. Ang mga anak na lalaki ni Dishon ay sina
 
 
 
-Ang mga anak na lalaki ni Ezer ay sina Bilhan, Zaavan at Akan.[^o] Ang mga anak na lalaki ni Dishan[^p] ay sina Uz at Aran. ## Ang mga Hari ng Edom 
+Ang mga anak na lalaki ni Ezer ay sina Bilhan, Zaavan at Akan. Ang mga anak na lalaki ni Dishan ay sina Uz at Aran. ## Ang mga Hari ng Edom 
 
 
 

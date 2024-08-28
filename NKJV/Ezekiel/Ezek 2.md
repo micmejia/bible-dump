@@ -19,7 +19,7 @@ Then the Spirit entered me when He spoke to me, and set me on my feet; and I hea
 And He said to me: "Son of man, I am sending you to the children of Israel, to a rebellious nation that has rebelled against Me; they and their fathers have transgressed against Me to this very day. 
 
 ###### 4 
-For _they are_ [^a]impudent and stubborn children. I am sending you to them, and you shall say to them, 'Thus says the Lord God.' 
+For _they are_ impudent and stubborn children. I am sending you to them, and you shall say to them, 'Thus says the Lord God.' 
 
 ###### 5 
 As for them, whether they hear or whether they refuse--for they _are_ a rebellious house--yet they will know that a prophet has been among them. 

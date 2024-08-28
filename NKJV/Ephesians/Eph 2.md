@@ -13,7 +13,7 @@ next: ['Eph 3']
 And you _He made alive,_ who were dead in trespasses and sins, 
 
 ###### 2 
-in which you once walked according to the [^a]course of this world, according to the prince of the power of the air, the spirit who now works in the sons of disobedience, 
+in which you once walked according to the course of this world, according to the prince of the power of the air, the spirit who now works in the sons of disobedience, 
 
 ###### 3 
 among whom also we all once conducted ourselves in the lusts of our flesh, fulfilling the desires of the flesh and of the mind, and were by nature children of wrath, just as the others. 

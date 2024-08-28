@@ -271,7 +271,7 @@ Sinabi nila sa mga mamamayan ng Israel, "Napakabuti ng lupaing aming pinuntahan.
 
 
 
-Kung nalulugod ang Panginoon sa atin, gagabayan niya tayo papunta sa lupang iyon – ang maganda at masaganang lupain,[^a] at ibibigay niya ito sa atin. 
+Kung nalulugod ang Panginoon sa atin, gagabayan niya tayo papunta sa lupang iyon – ang maganda at masaganang lupain, at ibibigay niya ito sa atin. 
 
 
 

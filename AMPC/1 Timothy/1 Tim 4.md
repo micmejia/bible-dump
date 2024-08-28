@@ -217,7 +217,7 @@ This saying is reliable _and_ worthy of complete acceptance by everybody.
 
 
 
-With a view to this we toil and strive, [yes and] [^a]_suffer reproach_, because we have [fixed our] hope on the living God, Who is the Savior (Preserver, Maintainer, Deliverer) of all men, especially of those who believe (trust in, rely on, and adhere to Him). 
+With a view to this we toil and strive, [yes and] _suffer reproach_, because we have [fixed our] hope on the living God, Who is the Savior (Preserver, Maintainer, Deliverer) of all men, especially of those who believe (trust in, rely on, and adhere to Him). 
 
 
 

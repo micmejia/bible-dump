@@ -172,7 +172,7 @@ Mula sa dagat ay biglang lumitaw ang apat na magkakaibang hayop.
 
 
 
-"Ang pangalawang hayop ay parang oso. Nakatayo siya sa dalawang hulihang paa[^a] at may kagat siyang tatlong tadyang. May tinig na nagsabi sa kanya, 'Sige, magpakasawa ka sa karne.' 
+"Ang pangalawang hayop ay parang oso. Nakatayo siya sa dalawang hulihang paa at may kagat siyang tatlong tadyang. May tinig na nagsabi sa kanya, 'Sige, magpakasawa ka sa karne.' 
 
 
 
@@ -436,7 +436,7 @@ At ang natitirang tatlong hayop ay inalisan ng kapangyarihan, pero hinayaang mab
 
 
 
-"Pagkatapos, nakita ko ang parang tao[^b] na pinaliligiran ng ulap. Lumapit siya sa <i class="trans-change">Dios na_ Nabubuhay Magpakailanman. 
+"Pagkatapos, nakita ko ang parang tao na pinaliligiran ng ulap. Lumapit siya sa <i class="trans-change">Dios na_ Nabubuhay Magpakailanman. 
 
 
 
@@ -601,7 +601,7 @@ Sinabi niya, 'Ang apat na hayop ay nangangahulugan ng apat na haring maghahari s
 
 
 
-Pero ang mga banal[^c] ng Kataas-taasang <i class="trans-change">Dios_ ang siyang bibigyan ng kapangyarihang maghari magpakailanman.' 
+Pero ang mga banal ng Kataas-taasang <i class="trans-change">Dios_ ang siyang bibigyan ng kapangyarihang maghari magpakailanman.' 
 
 
 
@@ -832,7 +832,7 @@ Ang sampung sungay ay ang sampung hari na maghahari sa kahariang iyon. Papalit s
 
 
 
-Magsasalita siya laban sa Kataas-taasang <i class="trans-change">Dios,_ at uusigin niya ang mga banal ng Dios. Sisikapin niyang baguhin ang mga pista[^d] at Kautusan. Ipapasakop sa kanya ang mga banal ng Dios sa loob ng tatloʼt kalahating taon. 
+Magsasalita siya laban sa Kataas-taasang <i class="trans-change">Dios,_ at uusigin niya ang mga banal ng Dios. Sisikapin niyang baguhin ang mga pista at Kautusan. Ipapasakop sa kanya ang mga banal ng Dios sa loob ng tatloʼt kalahating taon. 
 
 
 
@@ -898,7 +898,7 @@ Pero hahatulan siya, kukunin ang kanyang kapangyarihan, at lilipulin nang lubos.
 
 
 
-At pagkatapos ay ibibigay sa banal na mga mamamayan ng Kataas-taasang <i class="trans-change">Dios_ ang pamamahala at kapangyarihan sa mga kaharian ng buong mundo. Kaya maghahari sila magpakailanman, at ang lahat ng kaharian[^e] ay magpapasakop sa kanila. 
+At pagkatapos ay ibibigay sa banal na mga mamamayan ng Kataas-taasang <i class="trans-change">Dios_ ang pamamahala at kapangyarihan sa mga kaharian ng buong mundo. Kaya maghahari sila magpakailanman, at ang lahat ng kaharian ay magpapasakop sa kanila. 
 
 
 

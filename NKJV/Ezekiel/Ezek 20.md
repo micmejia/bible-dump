@@ -31,7 +31,7 @@ On that day I raised My hand in an oath to them, to bring them out of the land o
 Then I said to them, 'Each of you, throw away the abominations which are before his eyes, and do not defile yourselves with the idols of Egypt. I _am_ the Lord your God.' 
 
 ###### 8 
-But they rebelled against Me and would not [^a]obey Me. They did not all cast away the abominations which were before their eyes, nor did they forsake the idols of Egypt. Then I said, 'I will pour out My fury on them and fulfill My anger against them in the midst of the land of Egypt.' 
+But they rebelled against Me and would not obey Me. They did not all cast away the abominations which were before their eyes, nor did they forsake the idols of Egypt. Then I said, 'I will pour out My fury on them and fulfill My anger against them in the midst of the land of Egypt.' 
 
 ###### 9 
 But I acted for My name's sake, that it should not be profaned before the Gentiles among whom they _were,_ in whose sight I had made Myself known to them, to bring them out of the land of Egypt. 
@@ -40,7 +40,7 @@ But I acted for My name's sake, that it should not be profaned before the Gentil
 "Therefore I made them go out of the land of Egypt and brought them into the wilderness. 
 
 ###### 11 
-And I gave them My statutes and [^b]showed them My judgments, 'which, _if_ a man does, he shall live by them.' 
+And I gave them My statutes and showed them My judgments, 'which, _if_ a man does, he shall live by them.' 
 
 ###### 12 
 Moreover I also gave them My Sabbaths, to be a sign between them and Me, that they might know that I _am_ the Lord who sanctifies them. 
@@ -73,7 +73,7 @@ hallow My Sabbaths, and they will be a sign between Me and you, that you may kno
 "Notwithstanding, the children rebelled against Me; they did not walk in My statutes, and were not careful to observe My judgments, 'which, _if_ a man does, he shall live by them'; but they profaned My Sabbaths. Then I said I would pour out My fury on them and fulfill My anger against them in the wilderness. 
 
 ###### 22 
-Nevertheless I [^c]withdrew My hand and acted for My name's sake, that it should not be profaned in the sight of the Gentiles, in whose sight I had brought them out. 
+Nevertheless I withdrew My hand and acted for My name's sake, that it should not be profaned in the sight of the Gentiles, in whose sight I had brought them out. 
 
 ###### 23 
 Also I raised My hand in an oath to those in the wilderness, that I would scatter them among the Gentiles and disperse them throughout the countries, 
@@ -85,7 +85,7 @@ because they had not executed My judgments, but had despised My statutes, profan
 "Therefore I also gave them up to statutes _that were_ not good, and judgments by which they could not live; 
 
 ###### 26 
-and I pronounced them unclean because of their ritual gifts, in that they caused all [^d]their firstborn to pass through _the fire,_ that I might make them desolate and that they might know that I am the Lord." ' 
+and I pronounced them unclean because of their ritual gifts, in that they caused all their firstborn to pass through _the fire,_ that I might make them desolate and that they might know that I am the Lord." ' 
 
 ###### 27 
 "Therefore, son of man, speak to the house of Israel, and say to them, 'Thus says the Lord God: "In this too your fathers have blasphemed Me, by being unfaithful to Me. 
@@ -94,7 +94,7 @@ and I pronounced them unclean because of their ritual gifts, in that they caused
 When I brought them into the land _concerning_ which I had raised My hand in an oath to give them, and they saw all the high hills and all the thick trees, there they offered their sacrifices and provoked Me with their offerings. There they also sent up their sweet aroma and poured out their drink offerings. 
 
 ###### 29 
-Then I said to them, 'What _is_ this [^e]high place to which you go?' So its name is called [^f]Bamah to this day." ' 
+Then I said to them, 'What _is_ this high place to which you go?' So its name is called Bamah to this day." ' 
 
 ###### 30 
 Therefore say to the house of Israel, 'Thus says the Lord God: "Are you defiling yourselves in the manner of your fathers, and committing harlotry according to their abominations? 
@@ -127,7 +127,7 @@ I will purge the rebels from among you, and those who transgress against Me; I w
 "As for you, O house of Israel," thus says the Lord God: "Go, serve every one of you his idols--and hereafter--if you will not obey Me; but profane My holy name no more with your gifts and your idols. 
 
 ###### 40 
-For on My holy mountain, on the mountain height of Israel," says the Lord God, "there all the house of Israel, all of them in the land, shall serve Me; there I will accept them, and there I will require your offerings and the firstfruits of your [^g]sacrifices, together with all your holy things. 
+For on My holy mountain, on the mountain height of Israel," says the Lord God, "there all the house of Israel, all of them in the land, shall serve Me; there I will accept them, and there I will require your offerings and the firstfruits of your sacrifices, together with all your holy things. 
 
 ###### 41 
 I will accept you as a sweet aroma when I bring you out from the peoples and gather you out of the countries where you have been scattered; and I will be hallowed in you before the Gentiles. 
@@ -136,7 +136,7 @@ I will accept you as a sweet aroma when I bring you out from the peoples and gat
 Then you shall know that I _am_ the Lord, when I bring you into the land of Israel, into the country _for_ which I raised My hand in an oath to give to your fathers. 
 
 ###### 43 
-And there you shall remember your ways and all your doings with which you were defiled; and you shall [^h]loathe yourselves in your own sight because of all the evils that you have committed. 
+And there you shall remember your ways and all your doings with which you were defiled; and you shall loathe yourselves in your own sight because of all the evils that you have committed. 
 
 ###### 44 
 Then you shall know that I _am_ the Lord, when I have dealt with you for My name's sake, not according to your wicked ways nor according to your corrupt doings, O house of Israel," says the Lord God.' " ## Fire in the Forest 
@@ -145,7 +145,7 @@ Then you shall know that I _am_ the Lord, when I have dealt with you for My name
 Furthermore the word of the Lord came to me, saying, 
 
 ###### 46 
-"Son of man, set your face toward the south; [^i]preach against the south and prophesy against the forest land, the [^j]South, 
+"Son of man, set your face toward the south; preach against the south and prophesy against the forest land, the South, 
 
 ###### 47 
 and say to the forest of the South, 'Hear the word of the Lord! Thus says the Lord God: "Behold, I will kindle a fire in you, and it shall devour every green tree and every dry tree in you; the blazing flame shall not be quenched, and all faces from the south to the north shall be scorched by it. 

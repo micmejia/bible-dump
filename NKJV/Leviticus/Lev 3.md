@@ -10,7 +10,7 @@ next: ['Lev 4']
 
 
 ###### 1 
-'When his offering _is_ a sacrifice of a peace offering, if he offers _it_ of the herd, whether male or female, he shall offer it without [^a]blemish before the Lord. 
+'When his offering _is_ a sacrifice of a peace offering, if he offers _it_ of the herd, whether male or female, he shall offer it without blemish before the Lord. 
 
 ###### 2 
 And he shall lay his hand on the head of his offering, and kill it _at_ the door of the tabernacle of meeting; and Aaron's sons, the priests, shall sprinkle the blood all around on the altar. 
@@ -58,4 +58,4 @@ the two kidneys and the fat that _is_ on them by the flanks, and the fatty lobe 
 and the priest shall burn them on the altar _as_ food, an offering made by fire for a sweet aroma; all the fat _is_ the Lord's. 
 
 ###### 17 
-'_This shall be_ a perpetual[^b] statute throughout your generations in all your dwellings: you shall eat neither fat nor blood.' "
+'_This shall be_ a perpetual statute throughout your generations in all your dwellings: you shall eat neither fat nor blood.' "

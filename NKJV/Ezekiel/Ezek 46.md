@@ -22,13 +22,13 @@ Likewise the people of the land shall worship at the entrance to this gateway be
 The burnt offering that the prince offers to the Lord on the Sabbath day _shall be_ six lambs without blemish, and a ram without blemish; 
 
 ###### 5 
-and the grain offering _shall be one_ ephah for a ram, and the grain offering for the lambs, [^a]as much as he wants to give, as well as a hin of oil with every ephah. 
+and the grain offering _shall be one_ ephah for a ram, and the grain offering for the lambs, as much as he wants to give, as well as a hin of oil with every ephah. 
 
 ###### 6 
 On the day of the New Moon _it shall be_ a young bull without blemish, six lambs, and a ram; they shall be without blemish. 
 
 ###### 7 
-He shall prepare a grain offering of an ephah for a bull, an ephah for a ram, [^b]as much as he wants to give for the lambs, and a hin of oil with every ephah. 
+He shall prepare a grain offering of an ephah for a bull, an ephah for a ram, as much as he wants to give for the lambs, and a hin of oil with every ephah. 
 
 ###### 8 
 When the prince enters, he shall go in by way of the vestibule of the gateway, and go out the same way. 
@@ -46,7 +46,7 @@ At the festivals and the appointed feast days the grain offering shall be an eph
 "Now when the prince makes a voluntary burnt offering or voluntary peace offering to the Lord, the gate that faces toward the east shall then be opened for him; and he shall prepare his burnt offering and his peace offerings as he did on the Sabbath day. Then he shall go out, and after he goes out the gate shall be shut. 
 
 ###### 13 
-"You shall daily make a burnt offering to the Lord _of_ a lamb of the first year without blemish; you shall prepare it [^c]every morning. 
+"You shall daily make a burnt offering to the Lord _of_ a lamb of the first year without blemish; you shall prepare it every morning. 
 
 ###### 14 
 And you shall prepare a grain offering with it every morning, a sixth of an ephah, and a third of a hin of oil to moisten the fine flour. This grain offering is a perpetual ordinance, to be made regularly to the Lord. 
@@ -76,7 +76,7 @@ Then he brought me out into the outer court and caused me to pass by the four co
 In the four corners of the court _were_ enclosed courts, forty _cubits_ long and thirty wide; all four corners _were_ the same size. 
 
 ###### 23 
-_There was_ a row _of building stones_ all around in them, all around the four of them; and [^d]cooking hearths were made under the rows of stones all around. 
+_There was_ a row _of building stones_ all around in them, all around the four of them; and cooking hearths were made under the rows of stones all around. 
 
 ###### 24 
-And he said to me, "These _are_ the [^e]kitchens where the ministers of the [^f]temple shall boil the sacrifices of the people."
+And he said to me, "These _are_ the kitchens where the ministers of the temple shall boil the sacrifices of the people."

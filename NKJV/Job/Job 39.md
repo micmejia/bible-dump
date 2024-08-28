@@ -16,16 +16,16 @@ next: ['Job 40']
 Can you number the months _that_ they fulfill? Or do you know the time when they bear young? 
 
 ###### 3 
-They bow down, They bring forth their young, They deliver their [^a]offspring. 
+They bow down, They bring forth their young, They deliver their offspring. 
 
 ###### 4 
 Their young ones are healthy, They grow strong with grain; They depart and do not return to them. 
 
 ###### 5 
-"Who set the wild donkey free? Who loosed the bonds of the [^b]onager, 
+"Who set the wild donkey free? Who loosed the bonds of the onager, 
 
 ###### 6 
-Whose home I have made the wilderness, And the [^c]barren land his dwelling? 
+Whose home I have made the wilderness, And the barren land his dwelling? 
 
 ###### 7 
 He scorns the tumult of the city; He does not heed the shouts of the driver. 
@@ -43,7 +43,7 @@ Can you bind the wild ox in the furrow with ropes? Or will he plow the valleys b
 Will you trust him because his strength _is_ great? Or will you leave your labor to him? 
 
 ###### 12 
-Will you trust him to bring home your [^d]grain, And gather it to your threshing floor? 
+Will you trust him to bring home your grain, And gather it to your threshing floor? 
 
 ###### 13 
 "The wings of the ostrich wave proudly, But are her wings and pinions _like the_ kindly stork's? 
@@ -55,7 +55,7 @@ For she leaves her eggs on the ground, And warms them in the dust;
 She forgets that a foot may crush them, Or that a wild beast may break them. 
 
 ###### 16 
-She treats her young harshly, as though _they were_ not hers; Her labor is in vain, without [^e]concern, 
+She treats her young harshly, as though _they were_ not hers; Her labor is in vain, without concern, 
 
 ###### 17 
 Because God deprived her of wisdom, And did not endow her with understanding. 
@@ -64,10 +64,10 @@ Because God deprived her of wisdom, And did not endow her with understanding.
 When she lifts herself on high, She scorns the horse and its rider. 
 
 ###### 19 
-"Have you given the horse strength? Have you clothed his neck with [^f]thunder? 
+"Have you given the horse strength? Have you clothed his neck with thunder? 
 
 ###### 20 
-Can you [^g]frighten him like a locust? His majestic snorting strikes terror. 
+Can you frighten him like a locust? His majestic snorting strikes terror. 
 
 ###### 21 
 He paws in the valley, and rejoices in _his_ strength; He gallops into the clash of arms. 

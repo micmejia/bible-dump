@@ -10,10 +10,10 @@ next: ['Matt 8']
 
 
 ###### 1 
-"Judge[^a] not, that you be not judged. 
+"Judge not, that you be not judged. 
 
 ###### 2 
-For with what [^b]judgment you judge, you will be judged; and with the measure you use, it will be measured back to you. 
+For with what judgment you judge, you will be judged; and with the measure you use, it will be measured back to you. 
 
 ###### 3 
 And why do you look at the speck in your brother's eye, but do not consider the plank in your own eye? 
@@ -49,7 +49,7 @@ Therefore, whatever you want men to do to you, do also to them, for this is the 
 "Enter by the narrow gate; for wide _is_ the gate and broad _is_ the way that leads to destruction, and there are many who go in by it. 
 
 ###### 14 
-[^c]Because narrow _is_ the gate and [^d]difficult _is_ the way which leads to life, and there are few who find it. ## You Will Know Them by Their Fruits 
+Because narrow _is_ the gate and difficult _is_ the way which leads to life, and there are few who find it. ## You Will Know Them by Their Fruits 
 
 ###### 15 
 "Beware of false prophets, who come to you in sheep's clothing, but inwardly they are ravenous wolves. 

@@ -10,7 +10,7 @@ next: ['Ezek 42']
 
 
 ###### 1 
-Then he brought me into the [^a]sanctuary and measured the doorposts, six cubits wide on one side and six cubits wide on the other side--the width of the tabernacle. 
+Then he brought me into the sanctuary and measured the doorposts, six cubits wide on one side and six cubits wide on the other side--the width of the tabernacle. 
 
 ###### 2 
 The width of the entryway _was_ ten cubits, and the side walls of the entrance _were_ five cubits on this side and five cubits on the other side; and he measured its length, forty cubits, and its width, twenty cubits. 
@@ -22,10 +22,10 @@ Also he went inside and measured the doorposts, two cubits; and the entrance, si
 He measured the length, twenty cubits; and the width, twenty cubits, beyond the sanctuary; and he said to me, "This _is_ the Most Holy _Place._" ## The Side Chambers on the Wall 
 
 ###### 5 
-Next, he measured the wall of the [^b]temple, six cubits. The width of each side chamber all around the temple _was_ four cubits on every side. 
+Next, he measured the wall of the temple, six cubits. The width of each side chamber all around the temple _was_ four cubits on every side. 
 
 ###### 6 
-The side chambers _were_ in three stories, one above the other, thirty chambers in each story; they rested on [^c]ledges which _were_ for the side chambers all around, that they might be supported, but not fastened to the wall of the temple. 
+The side chambers _were_ in three stories, one above the other, thirty chambers in each story; they rested on ledges which _were_ for the side chambers all around, that they might be supported, but not fastened to the wall of the temple. 
 
 ###### 7 
 As one went up from story to story, the side chambers became wider all around, because their supporting ledges in the wall of the temple ascended like steps; therefore the width of the structure increased as one went up _from_ the lowest _story_ to the highest by way of the middle one. 
@@ -34,7 +34,7 @@ As one went up from story to story, the side chambers became wider all around, b
 I also saw an elevation all around the temple; it was the foundation of the side chambers, a full rod, _that is,_ six cubits _high._ 
 
 ###### 9 
-The thickness of the outer wall of the side chambers _was_ five cubits, and so also the remaining terrace by the place of the side chambers of the [^d]temple. 
+The thickness of the outer wall of the side chambers _was_ five cubits, and so also the remaining terrace by the place of the side chambers of the temple. 
 
 ###### 10 
 And between _it and_ the _wall_ chambers was a width of twenty cubits all around the temple on every side. 
@@ -52,13 +52,13 @@ So he measured the temple, one hundred cubits long; and the separating courtyard
 also the width of the eastern face of the temple, including the separating courtyard, _was_ one hundred cubits. 
 
 ###### 15 
-He measured the length of the building behind it, facing the separating courtyard, with its galleries on the one side and on the other side, one hundred cubits, as well as the inner [^e]temple and the porches of the court, 
+He measured the length of the building behind it, facing the separating courtyard, with its galleries on the one side and on the other side, one hundred cubits, as well as the inner temple and the porches of the court, 
 
 ###### 16 
 their doorposts and the beveled window frames. And the galleries all around their three stories opposite the threshold were paneled with wood from the ground to the windows--the windows were covered-- 
 
 ###### 17 
-from the space above the door, even to the inner [^f]room, as well as outside, and on every wall all around, inside and outside, by measure. 
+from the space above the door, even to the inner room, as well as outside, and on every wall all around, inside and outside, by measure. 
 
 ###### 18 
 And _it was_ made with cherubim and palm trees, a palm tree between cherub and cherub. _Each_ cherub had two faces, 

@@ -436,7 +436,7 @@ Ipapapatay ko ang mga mamamayan mo sa pamamagitan ng espada ng mga makapangyarih
 
 
 
-Papatayin ko ang lahat ng hayop sa Egipto <i class="trans-change">na nanginginain_[^a] sa tabi ng ilog. Kaya wala nang hayop o taong magpapalabo ng tubig nito. 
+Papatayin ko ang lahat ng hayop sa Egipto <i class="trans-change">na nanginginain_ sa tabi ng ilog. Kaya wala nang hayop o taong magpapalabo ng tubig nito. 
 
 
 
@@ -634,7 +634,7 @@ Noong ika-12 taon, nang ika-15 araw ng buwan ding iyon, sinabi sa akin ng Pangin
 
 
 
-Sabihin mo sa kanila, 'Nakakahigit ba kayo kaysa sa iba? Kayo rin ay ihuhulog doon sa ilalim ng lupa kasama ng mga hindi naniniwala sa Dios[^b] 
+Sabihin mo sa kanila, 'Nakakahigit ba kayo kaysa sa iba? Kayo rin ay ihuhulog doon sa ilalim ng lupa kasama ng mga hindi naniniwala sa Dios 
 
 
 
@@ -898,7 +898,7 @@ Hindi sila binigyan ng marangal na libing katulad ng mga tanyag na mandirigma na
 
 
 
-"Naroon din <i class="trans-change">sa lugar ng mga patay_[^c] ang hari ng Edom at ang lahat ng pinuno niya. Makapangyarihan sila noon, pero ngayon, nakalibing na sila kasama ng mga hindi naniniwala sa Dios na namatay sa digmaan. 
+"Naroon din <i class="trans-change">sa lugar ng mga patay_ ang hari ng Edom at ang lahat ng pinuno niya. Makapangyarihan sila noon, pero ngayon, nakalibing na sila kasama ng mga hindi naniniwala sa Dios na namatay sa digmaan. 
 
 
 

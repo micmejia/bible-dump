@@ -205,7 +205,7 @@ At hindi rin ba ninyo nabasa sa Kautusan na ang mga pari <i class="trans-change"
 
 
 
-Tandaan ninyo: may naririto ngayon na mas dakila pa kaysa sa templo. ###### 7-8 Sapagkat <i class="trans-change">ako na_ Anak ng Tao ang siyang makapagsasabi kung ano ang dapat gawin sa Araw ng Pamamahinga. Kung alam lang sana ninyo ang ibig sabihin ng <i class="trans-change">sinabi ng Dios sa Kasulatan_: 'Hindi ang handog ninyo ang hinahangad ko kundi ang maging maawain kayo,'[^a] hindi sana ninyo hinatulan ang mga taong walang kasalanan." ## Ang Lalaking Paralisado ang Isang Kamay 
+Tandaan ninyo: may naririto ngayon na mas dakila pa kaysa sa templo. ###### 7-8 Sapagkat <i class="trans-change">ako na_ Anak ng Tao ang siyang makapagsasabi kung ano ang dapat gawin sa Araw ng Pamamahinga. Kung alam lang sana ninyo ang ibig sabihin ng <i class="trans-change">sinabi ng Dios sa Kasulatan_: 'Hindi ang handog ninyo ang hinahangad ko kundi ang maging maawain kayo,' hindi sana ninyo hinatulan ang mga taong walang kasalanan." ## Ang Lalaking Paralisado ang Isang Kamay 
 
 
 
@@ -601,7 +601,7 @@ Hindi siya makikipagtalo o mambubulyaw, at hindi maririnig ang kanyang tinig sa 
 
 
 
-Hindi niya ipapahamak ang mahihina ang pananampalataya o pababayaan ang mga nawawalan ng pag-asa.[^b] <i class="trans-change">Hindi siya titigil_ hanggaʼt hindi niya napapairal ang katarungan. 
+Hindi niya ipapahamak ang mahihina ang pananampalataya o pababayaan ang mga nawawalan ng pag-asa. <i class="trans-change">Hindi siya titigil_ hanggaʼt hindi niya napapairal ang katarungan. 
 
 
 
@@ -634,7 +634,7 @@ Hindi niya ipapahamak ang mahihina ang pananampalataya o pababayaan ang mga nawa
 
 
 
-At ang mga tao sa lahat ng bansa ay mananalig sa kanya."[^c] ## Si Jesus at si Satanas 
+At ang mga tao sa lahat ng bansa ay mananalig sa kanya." ## Si Jesus at si Satanas 
 
 
 
@@ -700,7 +700,7 @@ May dinala ang mga tao kay Jesus na isang lalaking bulag at pipi na sinasaniban 
 
 
 
-Namangha ang lahat at sinabi, "Ito na nga kaya ang Anak ni David?"[^d] 
+Namangha ang lahat at sinabi, "Ito na nga kaya ang Anak ni David?" 
 
 
 
@@ -733,7 +733,7 @@ Namangha ang lahat at sinabi, "Ito na nga kaya ang Anak ni David?"[^d]
 
 
 
-Pero nang marinig ito ng mga Pariseo, sinabi nila, "Si Satanas[^e] na pinuno ng masasamang espiritu ang nagbigay sa kanya ng kapangyarihang magpalayas ng masasamang espiritu!" 
+Pero nang marinig ito ng mga Pariseo, sinabi nila, "Si Satanas na pinuno ng masasamang espiritu ang nagbigay sa kanya ng kapangyarihang magpalayas ng masasamang espiritu!" 
 
 
 
@@ -898,7 +898,7 @@ Ngayon, kung nagpapalayas ako ng masasamang espiritu sa pamamagitan ng Espiritu 
 
 
 
-"Hindi maaaring pasukin ng magnanakaw ang bahay ng malakas na tao kung hindi muna niya ito gagapusin. Ngunit kapag naigapos na niya, maaari na niyang nakawan ang bahay nito.[^f] 
+"Hindi maaaring pasukin ng magnanakaw ang bahay ng malakas na tao kung hindi muna niya ito gagapusin. Ngunit kapag naigapos na niya, maaari na niyang nakawan ang bahay nito. 
 
 
 
@@ -1294,7 +1294,7 @@ Kung paanong nasa tiyan ng dambuhalang isda si Jonas sa loob ng tatlong araw at 
 
 
 
-Sa Araw ng Paghuhukom, tatayo[^g] ang mga taga-Nineve at kokondenahin ang henerasyong ito, dahil nagsisi sila nang mangaral sa kanila si Jonas. At ngayon, narito ang higit pa kay Jonas, <i class="trans-change">na nangangaral sa inyo, pero ayaw nʼyong magsisi._ 
+Sa Araw ng Paghuhukom, tatayo ang mga taga-Nineve at kokondenahin ang henerasyong ito, dahil nagsisi sila nang mangaral sa kanila si Jonas. At ngayon, narito ang higit pa kay Jonas, <i class="trans-change">na nangangaral sa inyo, pero ayaw nʼyong magsisi._ 
 
 
 

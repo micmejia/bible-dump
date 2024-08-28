@@ -364,7 +364,7 @@ Besides Solomon's 3,300 overseers in charge of the people doing the work.
 
 
 
-The king commanded, and they hewed _and_ brought out [^a]great, costly stones in order to lay the foundation of the house with dressed stone. 
+The king commanded, and they hewed _and_ brought out great, costly stones in order to lay the foundation of the house with dressed stone. 
 
 
 

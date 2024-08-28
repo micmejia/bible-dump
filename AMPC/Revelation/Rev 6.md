@@ -175,7 +175,7 @@ When the Lamb broke open the fourth seal, I heard the fourth living creature cal
 
 
 
-So I looked, and behold, an ashy pale horse [[^a]black and blue as if made so by bruising], and its rider's name was Death, and Hades (the realm of the dead) followed him closely. And they were given authority _and_ power over a fourth part of the earth to kill with the sword and with famine and with plague (pestilence, disease) and with wild beasts of the earth. 
+So I looked, and behold, an ashy pale horse [black and blue as if made so by bruising], and its rider's name was Death, and Hades (the realm of the dead) followed him closely. And they were given authority _and_ power over a fourth part of the earth to kill with the sword and with famine and with plague (pestilence, disease) and with wild beasts of the earth. 
 
 
 
@@ -238,7 +238,7 @@ They cried in a loud voice, O [Sovereign] Lord, holy and true, how long now befo
 
 
 
-Then they were each given a [^b]long _and_ flowing _and_ festive white robe and told to rest _and_ wait patiently a little while longer, until the number should be complete of their fellow servants and their brethren who were to be killed as they themselves had been. 
+Then they were each given a long _and_ flowing _and_ festive white robe and told to rest _and_ wait patiently a little while longer, until the number should be complete of their fellow servants and their brethren who were to be killed as they themselves had been. 
 
 
 
@@ -301,7 +301,7 @@ And the stars of the sky dropped to the earth like a fig tree shedding its unrip
 
 
 
-And the [^c]sky rolled up like a scroll _and_ vanished, and every mountain and island was dislodged from its place. 
+And the sky rolled up like a scroll _and_ vanished, and every mountain and island was dislodged from its place. 
 
 
 
@@ -343,7 +343,7 @@ Then the kings of the earth and their noblemen and their magnates and their mili
 
 
 
-And they called to the mountains and the rocks, Fall on (before) us and hide us from the face of Him Who sits on the throne and from the [^d]deep-seated indignation _and_ wrath of the Lamb. 
+And they called to the mountains and the rocks, Fall on (before) us and hide us from the face of Him Who sits on the throne and from the deep-seated indignation _and_ wrath of the Lamb. 
 
 
 

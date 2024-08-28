@@ -10,7 +10,7 @@ next: ['Acts 7']
 
 
 ###### 1 
-Now in those days, when _the number of_ the disciples was multiplying, there arose a complaint against the Hebrews by the Hellenists,[^a] because their widows were neglected in the daily distribution. 
+Now in those days, when _the number of_ the disciples was multiplying, there arose a complaint against the Hebrews by the Hellenists, because their widows were neglected in the daily distribution. 
 
 ###### 2 
 Then the twelve summoned the multitude of the disciples and said, "It is not desirable that we should leave the word of God and serve tables. 
@@ -31,7 +31,7 @@ whom they set before the apostles; and when they had prayed, they laid hands on 
 Then the word of God spread, and the number of the disciples multiplied greatly in Jerusalem, and a great many of the priests were obedient to the faith. ## Stephen Accused of Blasphemy 
 
 ###### 8 
-And Stephen, full of [^b]faith and power, did great wonders and signs among the people. 
+And Stephen, full of faith and power, did great wonders and signs among the people. 
 
 ###### 9 
 Then there arose some from what is called the Synagogue of the Freedmen (Cyrenians, Alexandrians, and those from Cilicia and Asia), disputing with Stephen. 
@@ -46,7 +46,7 @@ Then they secretly induced men to say, "We have heard him speak blasphemous word
 And they stirred up the people, the elders, and the scribes; and they came upon _him,_ seized him, and brought _him_ to the council. 
 
 ###### 13 
-They also set up false witnesses who said, "This man does not cease to speak [^c]blasphemous words against this holy place and the law; 
+They also set up false witnesses who said, "This man does not cease to speak blasphemous words against this holy place and the law; 
 
 ###### 14 
 for we have heard him say that this Jesus of Nazareth will destroy this place and change the customs which Moses delivered to us." 

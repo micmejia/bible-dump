@@ -28,7 +28,7 @@ next: ['Isa 43']
 
 
 
-Behold my [^a]Servant, Whom I uphold, My elect in Whom My soul delights! I have put My Spirit upon Him; He will bring forth justice _and_ right _and_ reveal truth to the nations. 
+Behold my Servant, Whom I uphold, My elect in Whom My soul delights! I have put My Spirit upon Him; He will bring forth justice _and_ right _and_ reveal truth to the nations. 
 
 
 

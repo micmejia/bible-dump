@@ -39,7 +39,7 @@ next: ['Deut 2']
 
 
 
-Ang <i class="trans-change">aklat na ito ay tungkol sa_ mga mensahe na sinabi ni Moises sa lahat ng Israelita noong naroon pa sila sa ilang, sa silangan ng <i class="trans-change">Ilog ng_ Jordan. Nagkakampo sila sa Kapatagan ng Jordan[^a] malapit sa Suf, sa gitna ng Paran, Tofel, Laban, Hazerot at Dizahab. 
+Ang <i class="trans-change">aklat na ito ay tungkol sa_ mga mensahe na sinabi ni Moises sa lahat ng Israelita noong naroon pa sila sa ilang, sa silangan ng <i class="trans-change">Ilog ng_ Jordan. Nagkakampo sila sa Kapatagan ng Jordan malapit sa Suf, sa gitna ng Paran, Tofel, Laban, Hazerot at Dizahab. 
 
 
 
@@ -72,7 +72,7 @@ Ang <i class="trans-change">aklat na ito ay tungkol sa_ mga mensahe na sinabi ni
 
 
 
-(Mga 11 araw na paglalakbay mula sa Bundok ng Sinai[^b] papunta sa Kadesh Barnea kung dadaan sa Bundok ng Seir.) 
+(Mga 11 araw na paglalakbay mula sa Bundok ng Sinai papunta sa Kadesh Barnea kung dadaan sa Bundok ng Seir.) 
 
 
 
@@ -138,7 +138,7 @@ Nang unang araw ng ika-11 buwan, sa ika-40 taon, mula nang umalis ang mga Israel
 
 
 
-Nangyari ito matapos matalo ni Moises[^c] si Sihon na hari ng mga Amoreo, na nakatira sa Heshbon, at si Haring Og ng Bashan na nakatira sa Ashtarot at Edrei. 
+Nangyari ito matapos matalo ni Moises si Sihon na hari ng mga Amoreo, na nakatira sa Heshbon, at si Haring Og ng Bashan na nakatira sa Ashtarot at Edrei. 
 
 
 
@@ -237,7 +237,7 @@ Kaya sinabi nga sa kanila ni Moises ang mga kautusan <i class="trans-change">ng 
 
 
 
-kaya umalis na kayo. Pumunta kayo sa kaburulan ng mga Amoreo at sa mga lugar sa palibot nito – sa Kapatagan ng Jordan, sa kabundukan, sa kaburulan sa kanluran,[^d] sa Negev, at sa mga lugar sa tabing-dagat. Pumunta kayo sa lupain ng Canaan at sa Lebanon, hanggang sa malaking Ilog ng Eufrates. 
+kaya umalis na kayo. Pumunta kayo sa kaburulan ng mga Amoreo at sa mga lugar sa palibot nito – sa Kapatagan ng Jordan, sa kabundukan, sa kaburulan sa kanluran, sa Negev, at sa mga lugar sa tabing-dagat. Pumunta kayo sa lupain ng Canaan at sa Lebanon, hanggang sa malaking Ilog ng Eufrates. 
 
 
 
@@ -633,7 +633,7 @@ At sinabi ko rin sa inyo noon ang lahat ng dapat ninyong gawin. ## Nagpadala Sil
 
 
 
-"Ayon sa iniutos ng Panginoon na ating Dios, umalis tayo sa Bundok ng Sinai,[^e] at naglakbay sa malawak at nakakatakot na ilang na nakita mismo ninyo, at pumunta tayo sa kaburulan ng mga Amoreo. Pagdating natin sa Kadesh Barnea, 
+"Ayon sa iniutos ng Panginoon na ating Dios, umalis tayo sa Bundok ng Sinai, at naglakbay sa malawak at nakakatakot na ilang na nakita mismo ninyo, at pumunta tayo sa kaburulan ng mga Amoreo. Pagdating natin sa Kadesh Barnea, 
 
 
 

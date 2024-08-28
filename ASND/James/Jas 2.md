@@ -139,7 +139,7 @@ Kung aasikasuhin nʼyo nang mabuti ang nakasuot ng mamahaling damit at bibigyan 
 
 
 
-hindi baʼt may pinapaboran kayo ayon sa masama ninyong pag-iisip?[^a] 
+hindi baʼt may pinapaboran kayo ayon sa masama ninyong pag-iisip? 
 
 
 
@@ -271,7 +271,7 @@ Hindi baʼt sila ang nanlalait sa marangal na pangalan <i class="trans-change">n
 
 
 
-Pero kung sinusunod nʼyo ang utos ng Hari sa Kasulatan, na nagsasabi, "Mahalin mo ang iyong kapwa, gaya ng pagmamahal mo sa iyong sarili,"[^b] mabuti ang ginagawa ninyo. 
+Pero kung sinusunod nʼyo ang utos ng Hari sa Kasulatan, na nagsasabi, "Mahalin mo ang iyong kapwa, gaya ng pagmamahal mo sa iyong sarili," mabuti ang ginagawa ninyo. 
 
 
 
@@ -370,7 +370,7 @@ Ang tumutupad sa buong Kautusan pero lumabag sa isa sa mga ito ay lumabag na rin
 
 
 
-Sapagkat ang Dios na nag-utos, "Huwag kang mangangalunya," ay nagsabi ring, "Huwag kang papatay."[^c] Hindi ka nga nangangalunya, pero pumapatay ka naman, nilalabag mo pa rin ang Kautusan. 
+Sapagkat ang Dios na nag-utos, "Huwag kang mangangalunya," ay nagsabi ring, "Huwag kang papatay." Hindi ka nga nangangalunya, pero pumapatay ka naman, nilalabag mo pa rin ang Kautusan. 
 
 
 
@@ -568,7 +568,7 @@ at sasabihan mo, "Pagpalain ka ng Dios at hindi ka sana ginawin at magutom," per
 
 
 
-Ganito rin naman ang pananampalataya; kung hindi ito kinakikitaan ng <i class="trans-change">mabuting_ gawa, wala itong kabuluhan.[^d] 
+Ganito rin naman ang pananampalataya; kung hindi ito kinakikitaan ng <i class="trans-change">mabuting_ gawa, wala itong kabuluhan. 
 
 
 
@@ -733,7 +733,7 @@ Hindi baʼt itinuring na matuwid <i class="trans-change">ng Dios_ ang ninuno nat
 
 
 
-Makikita mo na ang pananampalataya niyaʼy may kasamang <i class="trans-change">mabuting_ gawa. Naipakita na tunay[^e] ang pananampalataya niya sa pamamagitan ng <i class="trans-change">mabuting_ gawa. 
+Makikita mo na ang pananampalataya niyaʼy may kasamang <i class="trans-change">mabuting_ gawa. Naipakita na tunay ang pananampalataya niya sa pamamagitan ng <i class="trans-change">mabuting_ gawa. 
 
 
 
@@ -766,7 +766,7 @@ Makikita mo na ang pananampalataya niyaʼy may kasamang <i class="trans-change">
 
 
 
-Natupad ang sinasabi ng Kasulatan, "Sumampalataya si Abraham sa Dios, at dahil dito, itinuring siyang matuwid. Tinawag pa nga siyang kaibigan ng Dios."[^f] 
+Natupad ang sinasabi ng Kasulatan, "Sumampalataya si Abraham sa Dios, at dahil dito, itinuring siyang matuwid. Tinawag pa nga siyang kaibigan ng Dios." 
 
 
 

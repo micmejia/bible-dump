@@ -172,7 +172,7 @@ Sapagkat sasalakayin ang Babilonia ng isang bansa mula sa hilaga, at magiging ma
 
 
 
-Magtatanong sila ng daan papuntang Jerusalem[^a] at pupunta sila roon. Gagawa sila ng walang hanggang kasunduan sa akin at hindi na nila ito kakalimutan. 
+Magtatanong sila ng daan papuntang Jerusalem at pupunta sila roon. Gagawa sila ng walang hanggang kasunduan sa akin at hindi na nila ito kakalimutan. 
 
 
 
@@ -403,7 +403,7 @@ Sasamsamin nila ang mga ari-arian ng Babilonia at talagang magsasawa sila. <i cl
 
 
 
-Pero ilalagay ko sa kahihiyan ang inyong bansa.[^b] Magiging pinakaaba ito sa lahat ng bansa, at magiging isa itong mapanglaw at disyerto. 
+Pero ilalagay ko sa kahihiyan ang inyong bansa. Magiging pinakaaba ito sa lahat ng bansa, at magiging isa itong mapanglaw at disyerto. 
 
 
 

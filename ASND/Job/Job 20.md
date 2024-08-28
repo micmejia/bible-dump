@@ -535,7 +535,7 @@ Isusuka niyang parang pagkain ang kayamanang ninakaw niya. Ipapasuka ito ng Dios
 
 
 
-Sisipsipin niya ang kamandag ng mga ahas at ang pangil[^a] ng ahas ang papatay sa kanya. 
+Sisipsipin niya ang kamandag ng mga ahas at ang pangil ng ahas ang papatay sa kanya. 
 
 
 
@@ -865,7 +865,7 @@ Tutusok ito sa kanyang apdo at tatagos sa kanyang katawan. At makakaramdam siya 
 
 
 
-Mawawala ang kanyang kayamanan sa kadiliman. Susunugin siya ng apoy na hindi tao ang nagpaningas, pati na ang lahat ng naiwan sa kanyang tirahan.[^b] 
+Mawawala ang kanyang kayamanan sa kadiliman. Susunugin siya ng apoy na hindi tao ang nagpaningas, pati na ang lahat ng naiwan sa kanyang tirahan. 
 
 
 

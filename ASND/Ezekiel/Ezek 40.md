@@ -1162,7 +1162,7 @@ Pagkatapos, may nakita akong silid na may pintuan, sa tapat ng balkonahe sa daan
 
 
 
-Sa magkabilang panig ng balkonahe ay may dalawang mesa na pinagkakatayan ng mga hayop na handog na sinusunog, handog sa paglilinis at handog na pambayad ng kasalanan.[^a] 
+Sa magkabilang panig ng balkonahe ay may dalawang mesa na pinagkakatayan ng mga hayop na handog na sinusunog, handog sa paglilinis at handog na pambayad ng kasalanan. 
 
 
 

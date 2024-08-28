@@ -139,7 +139,7 @@ Sa mga araw na iyon isusugo ko roon ang dalawang saksi ko. Magsusuot sila ng dam
 
 
 
-Ang dalawang saksing ito ay ang dalawang punong olibo[^a] at dalawang ilawan sa harap ng Panginoon ng buong mundo. 
+Ang dalawang saksing ito ay ang dalawang punong olibo at dalawang ilawan sa harap ng Panginoon ng buong mundo. 
 
 
 

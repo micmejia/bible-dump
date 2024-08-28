@@ -36,7 +36,7 @@ This is a faithful saying, and these things I want you to affirm constantly, tha
 But avoid foolish disputes, genealogies, contentions, and strivings about the law; for they are unprofitable and useless. 
 
 ###### 10 
-Reject a divisive man after the first and second [^a]admonition, 
+Reject a divisive man after the first and second admonition, 
 
 ###### 11 
 knowing that such a person is warped and sinning, being self-condemned. ## Final Messages 

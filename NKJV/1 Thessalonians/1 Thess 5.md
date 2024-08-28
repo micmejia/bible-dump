@@ -24,7 +24,7 @@ But you, brethren, are not in darkness, so that this Day should overtake you as 
 You are all sons of light and sons of the day. We are not of the night nor of darkness. 
 
 ###### 6 
-Therefore let us not sleep, as others _do,_ but let us watch and be [^a]sober. 
+Therefore let us not sleep, as others _do,_ but let us watch and be sober. 
 
 ###### 7 
 For those who sleep, sleep at night, and those who get drunk are drunk at night. 
@@ -39,16 +39,16 @@ For God did not appoint us to wrath, but to obtain salvation through our Lord Je
 who died for us, that whether we wake or sleep, we should live together with Him. 
 
 ###### 11 
-Therefore [^b]comfort each other and [^c]edify one another, just as you also are doing. ## Various Exhortations 
+Therefore comfort each other and edify one another, just as you also are doing. ## Various Exhortations 
 
 ###### 12 
-And we urge you, brethren, to recognize those who labor among you, and are over you in the Lord and [^d]admonish you, 
+And we urge you, brethren, to recognize those who labor among you, and are over you in the Lord and admonish you, 
 
 ###### 13 
 and to esteem them very highly in love for their work's sake. Be at peace among yourselves. 
 
 ###### 14 
-Now we [^e]exhort you, brethren, warn those who are [^f]unruly, comfort the fainthearted, uphold the weak, be patient with all. 
+Now we exhort you, brethren, warn those who are unruly, comfort the fainthearted, uphold the weak, be patient with all. 
 
 ###### 15 
 See that no one renders evil for evil to anyone, but always pursue what is good both for yourselves and for all. 
@@ -75,7 +75,7 @@ Test all things; hold fast what is good.
 Abstain from every form of evil. ## Blessing and Admonition 
 
 ###### 23 
-Now may the God of peace Himself sanctify[^g] you completely; and may your whole spirit, soul, and body be preserved blameless at the coming of our Lord Jesus Christ. 
+Now may the God of peace Himself sanctify you completely; and may your whole spirit, soul, and body be preserved blameless at the coming of our Lord Jesus Christ. 
 
 ###### 24 
 He who calls you _is_ faithful, who also will do _it._ 
@@ -87,7 +87,7 @@ Brethren, pray for us.
 Greet all the brethren with a holy kiss. 
 
 ###### 27 
-I charge you by the Lord that this [^h]epistle be read to all the [^i]holy brethren. 
+I charge you by the Lord that this epistle be read to all the holy brethren. 
 
 ###### 28 
 The grace of our Lord Jesus Christ _be_ with you. Amen.

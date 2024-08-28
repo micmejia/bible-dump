@@ -10,7 +10,7 @@ next: ['Prov 18']
 
 
 ###### 1 
-Better _is_ a dry morsel with quietness, Than a house full of [^a]feasting _with_ strife. 
+Better _is_ a dry morsel with quietness, Than a house full of feasting _with_ strife. 
 
 ###### 2 
 A wise servant will rule over a son who causes shame, And will share an inheritance among the brothers. 
@@ -19,7 +19,7 @@ A wise servant will rule over a son who causes shame, And will share an inherita
 The refining pot _is_ for silver and the furnace for gold, But the Lord tests the hearts. 
 
 ###### 4 
-An evildoer gives heed to false lips; A liar listens eagerly to a [^b]spiteful tongue. 
+An evildoer gives heed to false lips; A liar listens eagerly to a spiteful tongue. 
 
 ###### 5 
 He who mocks the poor reproaches his Maker; He who is glad at calamity will not go unpunished. 
@@ -61,22 +61,22 @@ Why _is there_ in the hand of a fool the purchase price of wisdom, Since _he has
 A friend loves at all times, And a brother is born for adversity. 
 
 ###### 18 
-A man devoid of [^c]understanding [^d]shakes hands in a pledge, _And_ becomes [^e]surety for his friend. 
+A man devoid of understanding shakes hands in a pledge, _And_ becomes surety for his friend. 
 
 ###### 19 
 He who loves transgression loves strife, And he who exalts his gate seeks destruction. 
 
 ###### 20 
-He who has a [^f]deceitful heart finds no good, And he who has a perverse tongue falls into evil. 
+He who has a deceitful heart finds no good, And he who has a perverse tongue falls into evil. 
 
 ###### 21 
 He who begets a scoffer _does so_ to his sorrow, And the father of a fool has no joy. 
 
 ###### 22 
-A merry heart [^g]does good, _like_ medicine, But a broken spirit dries the bones. 
+A merry heart does good, _like_ medicine, But a broken spirit dries the bones. 
 
 ###### 23 
-A wicked _man_ accepts a bribe [^h]behind the back To pervert the ways of justice. 
+A wicked _man_ accepts a bribe behind the back To pervert the ways of justice. 
 
 ###### 24 
 Wisdom _is_ in the sight of him who has understanding, But the eyes of a fool _are_ on the ends of the earth. 

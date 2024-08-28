@@ -25,13 +25,13 @@ The Spirit of God has made me, And the breath of the Almighty gives me life.
 If you can answer me, Set _your words_ in order before me; Take your stand. 
 
 ###### 6 
-Truly I _am_ [^a]as your spokesman before God; I also have been formed out of clay. 
+Truly I _am_ as your spokesman before God; I also have been formed out of clay. 
 
 ###### 7 
 Surely no fear of me will terrify you, Nor will my hand be heavy on you. 
 
 ###### 8 
-"Surely you have spoken [^b]in my hearing, And I have heard the sound of _your_ words, _saying,_ 
+"Surely you have spoken in my hearing, And I have heard the sound of _your_ words, _saying,_ 
 
 ###### 9 
 'I _am_ pure, without transgression; I _am_ innocent, and _there is_ no iniquity in me. 
@@ -61,13 +61,13 @@ Then He opens the ears of men, And seals their instruction.
 In order to turn man _from his_ deed, And conceal pride from man, 
 
 ###### 18 
-He keeps back his soul from the Pit, And his life from [^c]perishing by the sword. 
+He keeps back his soul from the Pit, And his life from perishing by the sword. 
 
 ###### 19 
 "_Man_ is also chastened with pain on his bed, And with strong _pain_ in many of his bones, 
 
 ###### 20 
-So that his life abhors bread, And his soul [^d]succulent food. 
+So that his life abhors bread, And his soul succulent food. 
 
 ###### 21 
 His flesh wastes away from sight, And his bones stick out _which once_ were not seen. 
@@ -79,7 +79,7 @@ Yes, his soul draws near the Pit, And his life to the executioners.
 "If there is a messenger for him, A mediator, one among a thousand, To show man His uprightness, 
 
 ###### 24 
-Then He is gracious to him, and says, 'Deliver him from going down to the Pit; I have found [^e]a ransom'; 
+Then He is gracious to him, and says, 'Deliver him from going down to the Pit; I have found a ransom'; 
 
 ###### 25 
 His flesh shall be young like a child's, He shall return to the days of his youth. 
@@ -91,7 +91,7 @@ He shall pray to God, and He will delight in him, He shall see His face with joy
 Then he looks at men and says, 'I have sinned, and perverted _what was_ right, And it did not profit me.' 
 
 ###### 28 
-He will redeem [^f]his soul from going down to the Pit, And his life shall see the light. 
+He will redeem his soul from going down to the Pit, And his life shall see the light. 
 
 ###### 29 
 "Behold, God works all these _things,_ Twice, _in fact,_ three _times_ with a man, 
@@ -106,4 +106,4 @@ To bring back his soul from the Pit, That he may be enlightened with the light o
 If you have anything to say, answer me; Speak, for I desire to justify you. 
 
 ###### 33 
-If not, listen to me; [^g]Hold your peace, and I will teach you wisdom."
+If not, listen to me; Hold your peace, and I will teach you wisdom."

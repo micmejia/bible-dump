@@ -384,7 +384,7 @@ But the Lord stood by me and strengthened me, so that through me the [Gospel] me
 
 
 
-[And indeed] the Lord will certainly deliver _and_ [^a]draw me to Himself from every assault of evil. He will preserve _and_ bring me safe unto His heavenly kingdom. To Him be the glory forever and ever. Amen (so be it). 
+[And indeed] the Lord will certainly deliver _and_ draw me to Himself from every assault of evil. He will preserve _and_ bring me safe unto His heavenly kingdom. To Him be the glory forever and ever. Amen (so be it). 
 
 
 

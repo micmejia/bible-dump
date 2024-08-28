@@ -205,7 +205,7 @@ Sabihin mo sa kanila na ito ang sinabi ng Panginoong Dios: Nang piliin ko ang Is
 
 
 
-Isinumpa ko sa kanila na palalayain ko sila sa Egipto at dadalhin sa lupaing pinili ko para sa kanila – isang maganda at masaganang lupain,[^a] ang lupaing pinakamaganda sa lahat. 
+Isinumpa ko sa kanila na palalayain ko sila sa Egipto at dadalhin sa lupaing pinili ko para sa kanila – isang maganda at masaganang lupain, ang lupaing pinakamaganda sa lahat. 
 
 
 
@@ -964,7 +964,7 @@ Sapagkat nang dalhin ko sila sa lupaing ipinangako ko sa kanila, nag-alay sila n
 
 
 
-Tinanong ko sila, 'Ano iyang matataas na lugar na pinupuntahan ninyo?' " Ang sagot nila, "Bama."[^b] (Hanggang ngayon, Bama ang tawag sa matataas na lugar na iyon). 
+Tinanong ko sila, 'Ano iyang matataas na lugar na pinupuntahan ninyo?' " Ang sagot nila, "Bama." (Hanggang ngayon, Bama ang tawag sa matataas na lugar na iyon). 
 
 
 

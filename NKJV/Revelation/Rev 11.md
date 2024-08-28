@@ -10,7 +10,7 @@ next: ['Rev 12']
 
 
 ###### 1 
-Then I was given a reed like a measuring rod. [^a]And the angel stood, saying, "Rise and measure the temple of God, the altar, and those who worship there. 
+Then I was given a reed like a measuring rod. And the angel stood, saying, "Rise and measure the temple of God, the altar, and those who worship there. 
 
 ###### 2 
 But leave out the court which is outside the temple, and do not measure it, for it has been given to the Gentiles. And they will tread the holy city underfoot _for_ forty-two months. 
@@ -19,7 +19,7 @@ But leave out the court which is outside the temple, and do not measure it, for 
 And I will give _power_ to my two witnesses, and they will prophesy one thousand two hundred and sixty days, clothed in sackcloth." 
 
 ###### 4 
-These are the two olive trees and the two lampstands standing before the [^b]God of the earth. 
+These are the two olive trees and the two lampstands standing before the God of the earth. 
 
 ###### 5 
 And if anyone wants to harm them, fire proceeds from their mouth and devours their enemies. And if anyone wants to harm them, he must be killed in this manner. 
@@ -31,10 +31,10 @@ These have power to shut heaven, so that no rain falls in the days of their prop
 When they finish their testimony, the beast that ascends out of the bottomless pit will make war against them, overcome them, and kill them. 
 
 ###### 8 
-And their dead bodies _will lie_ in the street of the great city which spiritually is called Sodom and Egypt, where also [^c]our Lord was crucified. 
+And their dead bodies _will lie_ in the street of the great city which spiritually is called Sodom and Egypt, where also our Lord was crucified. 
 
 ###### 9 
-Then _those_ from the peoples, tribes, tongues, and nations [^d]will see their dead bodies three-and-a-half days, and not allow their dead bodies to be put into graves. 
+Then _those_ from the peoples, tribes, tongues, and nations will see their dead bodies three-and-a-half days, and not allow their dead bodies to be put into graves. 
 
 ###### 10 
 And those who dwell on the earth will rejoice over them, make merry, and send gifts to one another, because these two prophets tormented those who dwell on the earth. ## The Witnesses Resurrected 
@@ -43,7 +43,7 @@ And those who dwell on the earth will rejoice over them, make merry, and send gi
 Now after the three-and-a-half days the breath of life from God entered them, and they stood on their feet, and great fear fell on those who saw them. 
 
 ###### 12 
-And [^e]they heard a loud voice from heaven saying to them, "Come up here." And they ascended to heaven in a cloud, and their enemies saw them. 
+And they heard a loud voice from heaven saying to them, "Come up here." And they ascended to heaven in a cloud, and their enemies saw them. 
 
 ###### 13 
 In the same hour there was a great earthquake, and a tenth of the city fell. In the earthquake seven thousand people were killed, and the rest were afraid and gave glory to the God of heaven. 
@@ -52,16 +52,16 @@ In the same hour there was a great earthquake, and a tenth of the city fell. In 
 The second woe is past. Behold, the third woe is coming quickly. ## Seventh Trumpet: The Kingdom Proclaimed 
 
 ###### 15 
-Then the seventh angel sounded: And there were loud voices in heaven, saying, "The [^f]kingdoms of this world have become _the kingdoms_ of our Lord and of His Christ, and He shall reign forever and ever!" 
+Then the seventh angel sounded: And there were loud voices in heaven, saying, "The kingdoms of this world have become _the kingdoms_ of our Lord and of His Christ, and He shall reign forever and ever!" 
 
 ###### 16 
 And the twenty-four elders who sat before God on their thrones fell on their faces and worshiped God, 
 
 ###### 17 
-saying: "We give You thanks, O Lord God Almighty, The One who is and who was [^g]and who is to come, Because You have taken Your great power and reigned. 
+saying: "We give You thanks, O Lord God Almighty, The One who is and who was and who is to come, Because You have taken Your great power and reigned. 
 
 ###### 18 
-The nations were angry, and Your [^h]wrath has come, And the time of the dead, that they should be judged, And that You should reward Your servants the prophets and the saints, And those who fear Your name, small and great, And should destroy those who destroy the earth." 
+The nations were angry, and Your wrath has come, And the time of the dead, that they should be judged, And that You should reward Your servants the prophets and the saints, And those who fear Your name, small and great, And should destroy those who destroy the earth." 
 
 ###### 19 
-Then the temple of God was opened in heaven, and the ark of [^i]His covenant was seen in His temple. And there were lightnings, noises, thunderings, an earthquake, and great hail.
+Then the temple of God was opened in heaven, and the ark of His covenant was seen in His temple. And there were lightnings, noises, thunderings, an earthquake, and great hail.

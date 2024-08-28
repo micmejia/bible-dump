@@ -10,7 +10,7 @@ next: ['Num 26']
 
 
 ###### 1 
-Now Israel remained in Acacia Grove,[^a] and the people began to commit harlotry with the women of Moab. 
+Now Israel remained in Acacia Grove, and the people began to commit harlotry with the women of Moab. 
 
 ###### 2 
 They invited the people to the sacrifices of their gods, and the people ate and bowed down to their gods. 
@@ -46,7 +46,7 @@ Then the Lord spoke to Moses, saying:
 Therefore say, 'Behold, I give to him My covenant of peace; 
 
 ###### 13 
-and it shall be to him and his descendants after him a covenant of an everlasting priesthood, because he was zealous for his God, and made [^b]atonement for the children of Israel.' " 
+and it shall be to him and his descendants after him a covenant of an everlasting priesthood, because he was zealous for his God, and made atonement for the children of Israel.' " 
 
 ###### 14 
 Now the name of the Israelite who was killed, who was killed with the Midianite woman, _was_ Zimri the son of Salu, a leader of a father's house among the Simeonites. 
@@ -58,7 +58,7 @@ And the name of the Midianite woman who was killed _was_ Cozbi the daughter of Z
 Then the Lord spoke to Moses, saying: 
 
 ###### 17 
-"Harass the Midianites, and [^c]attack them; 
+"Harass the Midianites, and attack them; 
 
 ###### 18 
-for they harassed you with their schemes[^d] by which they seduced you in the matter of Peor and in the matter of Cozbi, the daughter of a leader of Midian, their sister, who was killed in the day of the plague because of Peor."
+for they harassed you with their schemes by which they seduced you in the matter of Peor and in the matter of Cozbi, the daughter of a leader of Midian, their sister, who was killed in the day of the plague because of Peor."

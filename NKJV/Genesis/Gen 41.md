@@ -73,7 +73,7 @@ And the gaunt and ugly cows ate up the first seven, the fat cows.
 When they had eaten them up, no one would have known that they had eaten them, for they _were_ just as ugly as at the beginning. So I awoke. 
 
 ###### 22 
-Also I saw in my dream, and suddenly seven [^a]heads came up on one stalk, full and good. 
+Also I saw in my dream, and suddenly seven heads came up on one stalk, full and good. 
 
 ###### 23 
 Then behold, seven heads, withered, thin, _and_ blighted by the east wind, sprang up after them. 
@@ -85,7 +85,7 @@ And the thin heads devoured the seven good heads. So I told _this_ to the magici
 Then Joseph said to Pharaoh, "The dreams of Pharaoh _are_ one; God has shown Pharaoh what He _is_ about to do: 
 
 ###### 26 
-The seven good cows _are_ seven years, and the seven good [^b]heads _are_ seven years; the dreams _are_ one. 
+The seven good cows _are_ seven years, and the seven good heads _are_ seven years; the dreams _are_ one. 
 
 ###### 27 
 And the seven thin and ugly cows which came up after them _are_ seven years, and the seven empty heads blighted by the east wind are seven years of famine. 
@@ -109,13 +109,13 @@ And the dream was repeated to Pharaoh twice because the thing _is_ established b
 "Now therefore, let Pharaoh select a discerning and wise man, and set him over the land of Egypt. 
 
 ###### 34 
-Let Pharaoh do _this,_ and let him appoint [^c]officers over the land, to collect one-fifth _of the produce_ of the land of Egypt in the seven plentiful years. 
+Let Pharaoh do _this,_ and let him appoint officers over the land, to collect one-fifth _of the produce_ of the land of Egypt in the seven plentiful years. 
 
 ###### 35 
-And let them gather all the food of those good years that are coming, and store up grain under the [^d]authority of Pharaoh, and let them keep food in the cities. 
+And let them gather all the food of those good years that are coming, and store up grain under the authority of Pharaoh, and let them keep food in the cities. 
 
 ###### 36 
-Then that food shall be as a [^e]reserve for the land for the seven years of famine which shall be in the land of Egypt, that the land may not [^f]perish during the famine." ## Joseph's Rise to Power 
+Then that food shall be as a reserve for the land for the seven years of famine which shall be in the land of Egypt, that the land may not perish during the famine." ## Joseph's Rise to Power 
 
 ###### 37 
 So the advice was good in the eyes of Pharaoh and in the eyes of all his servants. 
@@ -127,7 +127,7 @@ And Pharaoh said to his servants, "Can we find _such a one_ as this, a man in wh
 Then Pharaoh said to Joseph, "Inasmuch as God has shown you all this, _there is_ no one as discerning and wise as you. 
 
 ###### 40 
-You shall be [^g]over my house, and all my people shall be ruled according to your word; only in regard to the throne will I be greater than you." 
+You shall be over my house, and all my people shall be ruled according to your word; only in regard to the throne will I be greater than you." 
 
 ###### 41 
 And Pharaoh said to Joseph, "See, I have set you over all the land of Egypt." 
@@ -142,13 +142,13 @@ And he had him ride in the second chariot which he had; and they cried out befor
 Pharaoh also said to Joseph, "I _am_ Pharaoh, and without your consent no man may lift his hand or foot in all the land of Egypt." 
 
 ###### 45 
-And Pharaoh called Joseph's name [^h]Zaphnath-Paaneah. And he gave him as a wife Asenath, the daughter of Poti-Pherah priest of On. So Joseph went out over _all_ the land of Egypt. 
+And Pharaoh called Joseph's name Zaphnath-Paaneah. And he gave him as a wife Asenath, the daughter of Poti-Pherah priest of On. So Joseph went out over _all_ the land of Egypt. 
 
 ###### 46 
 Joseph was thirty years old when he stood before Pharaoh king of Egypt. And Joseph went out from the presence of Pharaoh, and went throughout all the land of Egypt. 
 
 ###### 47 
-Now in the seven plentiful years the ground brought forth [^i]abundantly. 
+Now in the seven plentiful years the ground brought forth abundantly. 
 
 ###### 48 
 So he gathered up all the food of the seven years which were in the land of Egypt, and laid up the food in the cities; he laid up in every city the food of the fields which surrounded them. 
@@ -160,10 +160,10 @@ Joseph gathered very much grain, as the sand of the sea, until he stopped counti
 And to Joseph were born two sons before the years of famine came, whom Asenath, the daughter of Poti-Pherah priest of On, bore to him. 
 
 ###### 51 
-Joseph called the name of the firstborn [^j]Manasseh: "For God has made me forget all my toil and all my father's house." 
+Joseph called the name of the firstborn Manasseh: "For God has made me forget all my toil and all my father's house." 
 
 ###### 52 
-And the name of the second he called [^k]Ephraim: "For God has caused me to be fruitful in the land of my affliction." 
+And the name of the second he called Ephraim: "For God has caused me to be fruitful in the land of my affliction." 
 
 ###### 53 
 Then the seven years of plenty which were in the land of Egypt ended, 
@@ -175,7 +175,7 @@ and the seven years of famine began to come, as Joseph had said. The famine was 
 So when all the land of Egypt was famished, the people cried to Pharaoh for bread. Then Pharaoh said to all the Egyptians, "Go to Joseph; whatever he says to you, do." 
 
 ###### 56 
-The famine was over all the face of the earth, and Joseph opened [^l]all the storehouses and sold to the Egyptians. And the famine became severe in the land of Egypt. 
+The famine was over all the face of the earth, and Joseph opened all the storehouses and sold to the Egyptians. And the famine became severe in the land of Egypt. 
 
 ###### 57 
 So all countries came to Joseph in Egypt to buy _grain,_ because the famine was severe in all lands.

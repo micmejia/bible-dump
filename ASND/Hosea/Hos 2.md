@@ -40,7 +40,7 @@ next: ['Hos 3']
 
 
 
-"Kaya tawagin ninyo ang inyong kapwa Israelita na 'Aking mga mamamayan'[^a] at 'Kinaawaan.' "[^b] ## Sumama sa Ibang Lalaki si Gomer 
+"Kaya tawagin ninyo ang inyong kapwa Israelita na 'Aking mga mamamayan' at 'Kinaawaan.' " ## Sumama sa Ibang Lalaki si Gomer 
 
 
 
@@ -304,7 +304,7 @@ At ngayon, ilalantad ko ang kanyang kahalayan sa harap ng kanyang mga lalaki, at
 
 
 
-Wawakasan ko na ang lahat ng espesyal na araw ng pagsamba na ginagawa niya taun-taon, buwan-buwan, at linggu-linggo.[^c] 
+Wawakasan ko na ang lahat ng espesyal na araw ng pagsamba na ginagawa niya taun-taon, buwan-buwan, at linggu-linggo. 
 
 
 
@@ -436,7 +436,7 @@ Parurusahan ko siya dahil may mga panahong nagsusunog siya ng mga insenso sa <i 
 
 
 
-Pagbalik namin, ibabalik ko sa kanya ang mga ubasan niya, at ang Lambak ng Acor[^d] ay gagawin kong daanan na magpapaalala ng magandang kinabukasan. At sasagutin niya ako katulad ng ginawa niya noong panahon ng kanyang kabataan, noong kinuha ko siya sa lupain ng Egipto." 
+Pagbalik namin, ibabalik ko sa kanya ang mga ubasan niya, at ang Lambak ng Acor ay gagawin kong daanan na magpapaalala ng magandang kinabukasan. At sasagutin niya ako katulad ng ginawa niya noong panahon ng kanyang kabataan, noong kinuha ko siya sa lupain ng Egipto." 
 
 
 
@@ -469,7 +469,7 @@ Pagbalik namin, ibabalik ko sa kanya ang mga ubasan niya, at ang Lambak ng Acor[
 
 
 
-Sinabi ng Panginoon <i class="trans-change">sa mga Israelita_, "Sa araw na iyon <i class="trans-change">ng inyong pagbabalik sa akin_, tatawagin ninyo ako na inyong asawa at hindi na ninyo ako tatawaging Baal.[^e] 
+Sinabi ng Panginoon <i class="trans-change">sa mga Israelita_, "Sa araw na iyon <i class="trans-change">ng inyong pagbabalik sa akin_, tatawagin ninyo ako na inyong asawa at hindi na ninyo ako tatawaging Baal. 
 
 
 
@@ -667,7 +667,7 @@ Sa araw na iyon, sasagutin ko ang mga dalangin ninyo. <i class="trans-change">Ak
 
 
 
-ang mga trigo, ubas, at mga olibo para sa inyo na tinatawag na Jezreel.[^f] 
+ang mga trigo, ubas, at mga olibo para sa inyo na tinatawag na Jezreel. 
 
 
 
@@ -700,4 +700,4 @@ ang mga trigo, ubas, at mga olibo para sa inyo na tinatawag na Jezreel.[^f]
 
 
 
-Patitirahin ko kayo sa inyong lupain bilang mga mamamayan ko. Kaaawaan ko kayong tinatawag na Lo Ruhama,[^g] at tatawagin ko kayong aking mga mamamayan kayong tinatawag na Lo Ami.[^h] At sasabihin ninyo na ako ang inyong Dios."
+Patitirahin ko kayo sa inyong lupain bilang mga mamamayan ko. Kaaawaan ko kayong tinatawag na Lo Ruhama, at tatawagin ko kayong aking mga mamamayan kayong tinatawag na Lo Ami. At sasabihin ninyo na ako ang inyong Dios."

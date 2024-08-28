@@ -49,7 +49,7 @@ Now when Jesus was born in Bethlehem of Judea in the days of Herod the king, beh
 
 
 
-Where is He Who has been born King of the Jews? For we have seen His star in the east [^a]at its rising and have come to worship Him. 
+Where is He Who has been born King of the Jews? For we have seen His star in the east at its rising and have come to worship Him. 
 
 
 
@@ -91,7 +91,7 @@ When Herod the king heard this, he was disturbed _and_ troubled, and the whole o
 
 
 
-So he called together all the chief priests and learned men (scribes) of the people and [^b]anxiously asked them where the Christ was to be born. 
+So he called together all the chief priests and learned men (scribes) of the people and anxiously asked them where the Christ was to be born. 
 
 
 
@@ -133,7 +133,7 @@ They replied to him, In Bethlehem of Judea, for so it is written by the prophet:
 
 
 
-And you Bethlehem, in the land of Judah, you are not in any way least _or_ insignificant among the [^c]chief cities of Judah; for from you shall come a Ruler ([^d]Leader) Who will govern _and_ [^e]shepherd My people Israel. 
+And you Bethlehem, in the land of Judah, you are not in any way least _or_ insignificant among the chief cities of Judah; for from you shall come a Ruler (Leader) Who will govern _and_ shepherd My people Israel. 
 
 
 
@@ -154,7 +154,7 @@ And you Bethlehem, in the land of Judah, you are not in any way least _or_ insig
 
 
 
-Then Herod sent for the wise men [astrologers] secretly, and [^f]accurately to the last point ascertained from them the time of the appearing of the star [that is, [^g]how long the star had made itself visible since its rising in the east]. 
+Then Herod sent for the wise men [astrologers] secretly, and accurately to the last point ascertained from them the time of the appearing of the star [that is, how long the star had made itself visible since its rising in the east]. 
 
 
 
@@ -175,7 +175,7 @@ Then Herod sent for the wise men [astrologers] secretly, and [^f]accurately to t
 
 
 
-Then he sent them to Bethlehem, saying, Go and search for the Child carefully _and_ diligently, and when you have found [^h]Him, bring me word, that I too may come and worship Him. 
+Then he sent them to Bethlehem, saying, Go and search for the Child carefully _and_ diligently, and when you have found Him, bring me word, that I too may come and worship Him. 
 
 
 
@@ -196,7 +196,7 @@ Then he sent them to Bethlehem, saying, Go and search for the Child carefully _a
 
 
 
-When they had listened to the king, they went their way, and behold, the star which had been seen in the east [^i]in its rising went before them until it came and stood over the place where the young Child was. 
+When they had listened to the king, they went their way, and behold, the star which had been seen in the east in its rising went before them until it came and stood over the place where the young Child was. 
 
 
 
@@ -259,7 +259,7 @@ And on going into the house, they saw the Child with Mary His mother, and they f
 
 
 
-And [^j]receiving an answer to their asking, they were divinely instructed _and_ warned in a dream not to go back to Herod; so they departed to their own country by a different way. 
+And receiving an answer to their asking, they were divinely instructed _and_ warned in a dream not to go back to Herod; so they departed to their own country by a different way. 
 
 
 
@@ -280,7 +280,7 @@ And [^j]receiving an answer to their asking, they were divinely instructed _and_
 
 
 
-Now after they had gone, behold, an angel of the Lord appeared to Joseph in a dream and said, Get up! [[^k]Tenderly] take _unto you_ the young Child and His mother and flee to Egypt; and remain there till I tell you [otherwise], for Herod intends to search for the Child in order to destroy Him. 
+Now after they had gone, behold, an angel of the Lord appeared to Joseph in a dream and said, Get up! [Tenderly] take _unto you_ the young Child and His mother and flee to Egypt; and remain there till I tell you [otherwise], for Herod intends to search for the Child in order to destroy Him. 
 
 
 
@@ -427,7 +427,7 @@ But when Herod died, behold, an angel of the Lord appeared in a dream to Joseph 
 
 
 
-And said, Rise, [[^l]tenderly] take _unto you_ the Child and His mother and go to the land of Israel, for those who sought the Child's life are dead. 
+And said, Rise, [tenderly] take _unto you_ the Child and His mother and go to the land of Israel, for those who sought the Child's life are dead. 
 
 
 
@@ -448,7 +448,7 @@ And said, Rise, [[^l]tenderly] take _unto you_ the Child and His mother and go t
 
 
 
-Then he awoke and arose and [[^m]tenderly] took the Child and His mother and came into the land of Israel. 
+Then he awoke and arose and [tenderly] took the Child and His mother and came into the land of Israel. 
 
 
 

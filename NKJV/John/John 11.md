@@ -61,7 +61,7 @@ Then Thomas, who is called the Twin, said to his fellow disciples, "Let us also 
 So when Jesus came, He found that he had already been in the tomb four days. 
 
 ###### 18 
-Now Bethany was near Jerusalem, about [^a]two miles away. 
+Now Bethany was near Jerusalem, about two miles away. 
 
 ###### 19 
 And many of the Jews had joined the women around Martha and Mary, to comfort them concerning their brother. 
@@ -97,10 +97,10 @@ And when she had said these things, she went her way and secretly called Mary he
 As soon as she heard _that,_ she arose quickly and came to Him. 
 
 ###### 30 
-Now Jesus had not yet come into the town, but [^b]was in the place where Martha met Him. 
+Now Jesus had not yet come into the town, but was in the place where Martha met Him. 
 
 ###### 31 
-Then the Jews who were with her in the house, and comforting her, when they saw that Mary rose up quickly and went out, followed her, [^c]saying, "She is going to the tomb to weep there." 
+Then the Jews who were with her in the house, and comforting her, when they saw that Mary rose up quickly and went out, followed her, saying, "She is going to the tomb to weep there." 
 
 ###### 32 
 Then, when Mary came where Jesus was, and saw Him, she fell down at His feet, saying to Him, "Lord, if You had been here, my brother would not have died." 
@@ -130,7 +130,7 @@ Jesus said, "Take away the stone." Martha, the sister of him who was dead, said 
 Jesus said to her, "Did I not say to you that if you would believe you would see the glory of God?" 
 
 ###### 41 
-Then they took away the stone [^d]_from the place_ where the dead man was lying. And Jesus lifted up _His_ eyes and said, "Father, I thank You that You have heard Me. 
+Then they took away the stone _from the place_ where the dead man was lying. And Jesus lifted up _His_ eyes and said, "Father, I thank You that You have heard Me. 
 
 ###### 42 
 And I know that You always hear Me, but because of the people who are standing by I said _this,_ that they may believe that You sent Me." 
@@ -157,7 +157,7 @@ If we let Him alone like this, everyone will believe in Him, and the Romans will
 And one of them, Caiaphas, being high priest that year, said to them, "You know nothing at all, 
 
 ###### 50 
-nor do you consider that it is expedient for [^e]us that one man should die for the people, and not that the whole nation should perish." 
+nor do you consider that it is expedient for us that one man should die for the people, and not that the whole nation should perish." 
 
 ###### 51 
 Now this he did not say on his own _authority;_ but being high priest that year he prophesied that Jesus would die for the nation, 

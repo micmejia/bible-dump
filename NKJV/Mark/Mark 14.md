@@ -10,19 +10,19 @@ next: ['Mark 15']
 
 
 ###### 1 
-After two days it was the Passover and _the Feast_ of Unleavened Bread. And the chief priests and the scribes sought how they might take Him by [^a]trickery and put _Him_ to death. 
+After two days it was the Passover and _the Feast_ of Unleavened Bread. And the chief priests and the scribes sought how they might take Him by trickery and put _Him_ to death. 
 
 ###### 2 
 But they said, "Not during the feast, lest there be an uproar of the people." ## The Anointing at Bethany 
 
 ###### 3 
-And being in Bethany at the house of Simon the leper, as He sat at the table, a woman came having an alabaster flask of very costly [^b]oil of spikenard. Then she broke the flask and poured _it_ on His head. 
+And being in Bethany at the house of Simon the leper, as He sat at the table, a woman came having an alabaster flask of very costly oil of spikenard. Then she broke the flask and poured _it_ on His head. 
 
 ###### 4 
 But there were some who were indignant among themselves, and said, "Why was this fragrant oil wasted? 
 
 ###### 5 
-For it might have been sold for more than three hundred denarii and given to the poor." And they criticized[^c] her sharply. 
+For it might have been sold for more than three hundred denarii and given to the poor." And they criticized her sharply. 
 
 ###### 6 
 But Jesus said, "Let her alone. Why do you trouble her? She has done a good work for Me. 
@@ -43,7 +43,7 @@ Then Judas Iscariot, one of the twelve, went to the chief priests to betray Him 
 And when they heard _it,_ they were glad, and promised to give him money. So he sought how he might conveniently betray Him. ## Jesus Celebrates the Passover with His Disciples 
 
 ###### 12 
-Now on the first day of Unleavened Bread, when they [^d]killed the Passover _lamb,_ His disciples said to Him, "Where do You want us to go and prepare, that You may eat the Passover?" 
+Now on the first day of Unleavened Bread, when they killed the Passover _lamb,_ His disciples said to Him, "Where do You want us to go and prepare, that You may eat the Passover?" 
 
 ###### 13 
 And He sent out two of His disciples and said to them, "Go into the city, and a man will meet you carrying a pitcher of water; follow him. 
@@ -64,7 +64,7 @@ In the evening He came with the twelve.
 Now as they sat and ate, Jesus said, "Assuredly, I say to you, one of you who eats with Me will betray Me." 
 
 ###### 19 
-And they began to be sorrowful, and to say to Him one by one, "_Is_ it I?" [^e]And another _said,_ "_Is_ it I?" 
+And they began to be sorrowful, and to say to Him one by one, "_Is_ it I?" And another _said,_ "_Is_ it I?" 
 
 ###### 20 
 He answered and said to them, "_It is_ one of the twelve, who dips with Me in the dish. 
@@ -73,28 +73,28 @@ He answered and said to them, "_It is_ one of the twelve, who dips with Me in th
 The Son of Man indeed goes just as it is written of Him, but woe to that man by whom the Son of Man is betrayed! It would have been good for that man if he had never been born." ## Jesus Institutes the Lord's Supper 
 
 ###### 22 
-And as they were eating, Jesus took bread, blessed and broke _it,_ and gave _it_ to them and said, "Take, [^f]eat; this is My body." 
+And as they were eating, Jesus took bread, blessed and broke _it,_ and gave _it_ to them and said, "Take, eat; this is My body." 
 
 ###### 23 
 Then He took the cup, and when He had given thanks He gave _it_ to them, and they all drank from it. 
 
 ###### 24 
-And He said to them, "This is My blood of the [^g]new covenant, which is shed for many. 
+And He said to them, "This is My blood of the new covenant, which is shed for many. 
 
 ###### 25 
 Assuredly, I say to you, I will no longer drink of the fruit of the vine until that day when I drink it new in the kingdom of God." 
 
 ###### 26 
-And when they had sung [^h]a hymn, they went out to the Mount of Olives. ## Jesus Predicts Peter's Denial 
+And when they had sung a hymn, they went out to the Mount of Olives. ## Jesus Predicts Peter's Denial 
 
 ###### 27 
-Then Jesus said to them, "All of you will be made to stumble [^i]because of Me this night, for it is written: 'I will strike the Shepherd, And the sheep will be scattered.' 
+Then Jesus said to them, "All of you will be made to stumble because of Me this night, for it is written: 'I will strike the Shepherd, And the sheep will be scattered.' 
 
 ###### 28 
 "But after I have been raised, I will go before you to Galilee." 
 
 ###### 29 
-Peter said to Him, "Even if all are made to [^j]stumble, yet I _will_ not _be._" 
+Peter said to Him, "Even if all are made to stumble, yet I _will_ not _be._" 
 
 ###### 30 
 Jesus said to him, "Assuredly, I say to you that today, _even_ this night, before the rooster crows twice, you will deny Me three times." 
@@ -175,7 +175,7 @@ But Peter followed Him at a distance, right into the courtyard of the high pries
 Now the chief priests and all the council sought testimony against Jesus to put Him to death, but found none. 
 
 ###### 56 
-For many bore false witness against Him, but their testimonies [^k]did not agree. 
+For many bore false witness against Him, but their testimonies did not agree. 
 
 ###### 57 
 Then some rose up and bore false witness against Him, saying, 
@@ -202,7 +202,7 @@ Then the high priest tore his clothes and said, "What further need do we have of
 You have heard the blasphemy! What do you think?" And they all condemned Him to be deserving of death. 
 
 ###### 65 
-Then some began to spit on Him, and to blindfold Him, and to beat Him, and to say to Him, "Prophesy!" And the officers [^l]struck Him with the palms of their hands. ## Peter Denies Jesus, and Weeps 
+Then some began to spit on Him, and to blindfold Him, and to beat Him, and to say to Him, "Prophesy!" And the officers struck Him with the palms of their hands. ## Peter Denies Jesus, and Weeps 
 
 ###### 66 
 Now as Peter was below in the courtyard, one of the servant girls of the high priest came. 
@@ -217,7 +217,7 @@ But he denied it, saying, "I neither know nor understand what you are saying." A
 And the servant girl saw him again, and began to say to those who stood by, "This is _one_ of them." 
 
 ###### 70 
-But he denied it again. And a little later those who stood by said to Peter again, "Surely you are _one_ of them; for you are a Galilean, [^m]and your [^n]speech shows _it._" 
+But he denied it again. And a little later those who stood by said to Peter again, "Surely you are _one_ of them; for you are a Galilean, and your speech shows _it._" 
 
 ###### 71 
 Then he began to curse and swear, "I do not know this Man of whom you speak!" 

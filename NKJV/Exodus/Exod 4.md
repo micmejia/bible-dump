@@ -34,10 +34,10 @@ And He said, "Put your hand in your bosom again." So he put his hand in his boso
 "Then it will be, if they do not believe you, nor heed the message of the first sign, that they may believe the message of the latter sign. 
 
 ###### 9 
-And it shall be, if they do not believe even these two signs, or listen to your voice, that you shall take water from [^a]the river and pour _it_ on the dry _land._ The water which you take from the river will become blood on the dry _land._" 
+And it shall be, if they do not believe even these two signs, or listen to your voice, that you shall take water from the river and pour _it_ on the dry _land._ The water which you take from the river will become blood on the dry _land._" 
 
 ###### 10 
-Then Moses said to the Lord, "O my Lord, I _am_ not eloquent, neither before nor since You have spoken to Your servant; but I _am_ slow of speech and [^b]slow of tongue." 
+Then Moses said to the Lord, "O my Lord, I _am_ not eloquent, neither before nor since You have spoken to Your servant; but I _am_ slow of speech and slow of tongue." 
 
 ###### 11 
 So the Lord said to him, "Who has made man's mouth? Or who makes the mute, the deaf, the seeing, or the blind? _Have_ not I, the Lord? 
@@ -82,10 +82,10 @@ So I say to you, let My son go that he may serve Me. But if you refuse to let hi
 And it came to pass on the way, at the encampment, that the Lord met him and sought to kill him. 
 
 ###### 25 
-Then Zipporah took a sharp stone and cut off the foreskin of her son and [^c]cast _it_ at [^d]_Moses'_ feet, and said, "Surely you _are_ a husband of blood to me!" 
+Then Zipporah took a sharp stone and cut off the foreskin of her son and cast _it_ at _Moses'_ feet, and said, "Surely you _are_ a husband of blood to me!" 
 
 ###### 26 
-So He let him go. Then she said, "_You are_ a [^e]husband of blood!"--because of the circumcision. 
+So He let him go. Then she said, "_You are_ a husband of blood!"--because of the circumcision. 
 
 ###### 27 
 And the Lord said to Aaron, "Go into the wilderness to meet Moses." So he went and met him on the mountain of God, and kissed him. 

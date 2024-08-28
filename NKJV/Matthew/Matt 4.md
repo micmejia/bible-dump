@@ -28,7 +28,7 @@ Then the devil took Him up into the holy city, set Him on the pinnacle of the te
 and said to Him, "If You are the Son of God, throw Yourself down. For it is written: 'He shall give His angels charge over you,' and, 'In _their_ hands they shall bear you up, Lest you dash your foot against a stone.' " 
 
 ###### 7 
-Jesus said to him, "It is written again, 'You shall not [^a]tempt the Lord your God.' " 
+Jesus said to him, "It is written again, 'You shall not tempt the Lord your God.' " 
 
 ###### 8 
 Again, the devil took Him up on an exceedingly high mountain, and showed Him all the kingdoms of the world and their glory. 
@@ -37,7 +37,7 @@ Again, the devil took Him up on an exceedingly high mountain, and showed Him all
 And he said to Him, "All these things I will give You if You will fall down and worship me." 
 
 ###### 10 
-Then Jesus said to him, [^b]"Away with you, Satan! For it is written, 'You shall worship the Lord your God, and Him only you shall serve.' " 
+Then Jesus said to him, "Away with you, Satan! For it is written, 'You shall worship the Lord your God, and Him only you shall serve.' " 
 
 ###### 11 
 Then the devil left Him, and behold, angels came and ministered to Him. ## Jesus Begins His Galilean Ministry 
@@ -58,7 +58,7 @@ that it might be fulfilled which was spoken by Isaiah the prophet, saying:
 The people who sat in darkness have seen a great light, And upon those who sat in the region and shadow of death Light has dawned." 
 
 ###### 17 
-From that time Jesus began to preach and to say, "Repent, for the kingdom of heaven [^c]is at hand." ## Four Fishermen Called as Disciples 
+From that time Jesus began to preach and to say, "Repent, for the kingdom of heaven is at hand." ## Four Fishermen Called as Disciples 
 
 ###### 18 
 And Jesus, walking by the Sea of Galilee, saw two brothers, Simon called Peter, and Andrew his brother, casting a net into the sea; for they were fishermen. 
@@ -79,7 +79,7 @@ and immediately they left the boat and their father, and followed Him. ## Jesus 
 And Jesus went about all Galilee, teaching in their synagogues, preaching the gospel of the kingdom, and healing all kinds of sickness and all kinds of disease among the people. 
 
 ###### 24 
-Then [^d]His fame went throughout all Syria; and they brought to Him all sick people who were afflicted with various diseases and torments, and those who were demon-possessed, epileptics, and paralytics; and He healed them. 
+Then His fame went throughout all Syria; and they brought to Him all sick people who were afflicted with various diseases and torments, and those who were demon-possessed, epileptics, and paralytics; and He healed them. 
 
 ###### 25 
-Great multitudes followed Him--from Galilee, and _from_ [^e]Decapolis, Jerusalem, Judea, and beyond the Jordan.
+Great multitudes followed Him--from Galilee, and _from_ Decapolis, Jerusalem, Judea, and beyond the Jordan.

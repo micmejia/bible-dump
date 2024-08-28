@@ -73,7 +73,7 @@ Nagkwento si Jesus sa mga tagasunod niya upang turuan silang laging manalangin a
 
 
 
-Sinabi niya, "Sa isang bayan ay may isang hukom na walang takot sa Dios at walang iginagalang na tao.[^a] 
+Sinabi niya, "Sa isang bayan ay may isang hukom na walang takot sa Dios at walang iginagalang na tao. 
 
 
 
@@ -403,7 +403,7 @@ Tumayo ang Pariseo at nanalangin tungkol sa kanyang sarili. Sinabi niya, 'O Dios
 
 
 
-Dalawang beses akong nag-aayuno sa isang linggo, at nagbibigay ako ng ikapu[^b] ng lahat ng kinikita ko!' 
+Dalawang beses akong nag-aayuno sa isang linggo, at nagbibigay ako ng ikapu ng lahat ng kinikita ko!' 
 
 
 
@@ -667,7 +667,7 @@ Sumagot si Jesus, "Bakit mo sinasabing mabuti ako? Ang Dios lang ang mabuti, wal
 
 
 
-Alam mo ang sinasabi ng Kautusan: 'Huwag kang mangangalunya, huwag kang papatay, huwag kang magnanakaw, huwag kang sasaksi ng kasinungalingan, at igalang mo ang iyong ama at ina.' "[^c] 
+Alam mo ang sinasabi ng Kautusan: 'Huwag kang mangangalunya, huwag kang papatay, huwag kang magnanakaw, huwag kang sasaksi ng kasinungalingan, at igalang mo ang iyong ama at ina.' " 
 
 
 
@@ -1261,7 +1261,7 @@ Sinabi sa kanya ng mga tao, "Dumadaan si Jesus na taga-Nazaret."
 
 
 
-Sumigaw ang bulag, "Jesus, Anak ni David,[^d] maawa po kayo sa akin!" 
+Sumigaw ang bulag, "Jesus, Anak ni David, maawa po kayo sa akin!" 
 
 
 
@@ -1393,7 +1393,7 @@ Tumigil si Jesus at iniutos na dalhin sa kanya ang bulag. Nang makalapit ang bul
 
 
 
-Sinabi sa kanya ni Jesus, "Makakita ka na! Pinagaling[^e] ka ng iyong pananampalataya." 
+Sinabi sa kanya ni Jesus, "Makakita ka na! Pinagaling ka ng iyong pananampalataya." 
 
 
 

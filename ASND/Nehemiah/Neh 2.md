@@ -436,7 +436,7 @@ umalis ako nang hatinggabi na may ilang kasama. Hindi ko sinabi kahit kanino ang
 
 
 
-Lumabas kami sa pintuang nakaharap sa lambak at pumunta sa Balon ng Dragon[^a] hanggang sa may pintuan ng pinagtatapunan ng basura. Pinagmasdan kong mabuti ang mga nagibang pader ng Jerusalem at ang mga pintuan nitong nasunog. 
+Lumabas kami sa pintuang nakaharap sa lambak at pumunta sa Balon ng Dragon hanggang sa may pintuan ng pinagtatapunan ng basura. Pinagmasdan kong mabuti ang mga nagibang pader ng Jerusalem at ang mga pintuan nitong nasunog. 
 
 
 

@@ -55,7 +55,7 @@ And seeing the man who had been healed standing with them, they could say nothin
 But when they had commanded them to go aside out of the council, they conferred among themselves, 
 
 ###### 16 
-saying, "What shall we do to these men? For, indeed, that a [^a]notable miracle has been done through them _is_ evident[^b] to all who dwell in Jerusalem, and we cannot deny _it._ 
+saying, "What shall we do to these men? For, indeed, that a notable miracle has been done through them _is_ evident to all who dwell in Jerusalem, and we cannot deny _it._ 
 
 ###### 17 
 But so that it spreads no further among the people, let us severely threaten them, that from now on they speak to no man in this name." 
@@ -82,7 +82,7 @@ And being let go, they went to their own _companions_ and reported all that the 
 So when they heard that, they raised their voice to God with one accord and said: "Lord, You _are_ God, who made heaven and earth and the sea, and all that is in them, 
 
 ###### 25 
-who [^c]by the mouth of Your servant David have said: 'Why did the nations rage, And the people plot vain things? 
+who by the mouth of Your servant David have said: 'Why did the nations rage, And the people plot vain things? 
 
 ###### 26 
 The kings of the earth took their stand, And the rulers were gathered together Against the Lord and against His Christ.' 
@@ -115,7 +115,7 @@ Nor was there anyone among them who lacked; for all who were possessors of lands
 and laid _them_ at the apostles' feet; and they distributed to each as anyone had need. 
 
 ###### 36 
-And [^d]Joses, who was also named Barnabas by the apostles (which is translated Son of [^e]Encouragement), a Levite of the country of Cyprus, 
+And Joses, who was also named Barnabas by the apostles (which is translated Son of Encouragement), a Levite of the country of Cyprus, 
 
 ###### 37 
 having land, sold _it,_ and brought the money and laid _it_ at the apostles' feet.

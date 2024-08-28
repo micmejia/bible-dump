@@ -427,7 +427,7 @@ Yes, the Lord answered and said to His people, Behold, I am sending you grain an
 
 
 
-But I will remove far off from you the northern [destroyer's] army and will drive it into a land barren and desolate, with its front toward the eastern [Dead] Sea and with its rear toward the western [Mediterranean] Sea. And its stench shall come up [like that of a decaying mass of locusts, a symbol and forecast of the fate of the northern army in the final day of the Lord], and its foul odor shall come up, because [^a]He has done great things [the Lord will have destroyed the invaders]! 
+But I will remove far off from you the northern [destroyer's] army and will drive it into a land barren and desolate, with its front toward the eastern [Dead] Sea and with its rear toward the western [Mediterranean] Sea. And its stench shall come up [like that of a decaying mass of locusts, a symbol and forecast of the fate of the northern army in the final day of the Lord], and its foul odor shall come up, because He has done great things [the Lord will have destroyed the invaders]! 
 
 
 

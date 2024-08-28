@@ -172,7 +172,7 @@ Sapagkat <i class="trans-change">hindi nila alam na_ si Cristo ang hangganan ng 
 
 
 
-Ganito ang isinulat ni Moises tungkol sa taong itinuturing ng Dios na matuwid batay sa Kautusan: "Ang taong sumusunod sa Kautusan ay mabubuhay nang ayon sa Kautusan."[^a] 
+Ganito ang isinulat ni Moises tungkol sa taong itinuturing ng Dios na matuwid batay sa Kautusan: "Ang taong sumusunod sa Kautusan ay mabubuhay nang ayon sa Kautusan." 
 
 
 
@@ -271,7 +271,7 @@ Pero ganito naman ang sinasabi ng Kasulatan tungkol sa pagiging matuwid sa pamam
 
 
 
-Sa halip, sinasabi ng Kasulatan, "Ang salita <i class="trans-change">ng Dios_ ay malapit sa iyo; nasa bibig at puso mo."[^b] Itoʼy <i class="trans-change">walang iba kundi_ ang pananampalataya na ipinangangaral namin: 
+Sa halip, sinasabi ng Kasulatan, "Ang salita <i class="trans-change">ng Dios_ ay malapit sa iyo; nasa bibig at puso mo." Itoʼy <i class="trans-change">walang iba kundi_ ang pananampalataya na ipinangangaral namin: 
 
 
 
@@ -370,7 +370,7 @@ Sapagkat itinuring <i class="trans-change">ng Dios_ na matuwid ang taong sumasam
 
 
 
-Sapagkat sinasabi sa Kasulatan, "Hindi mabibigo ang sinumang sumasampalataya sa kanya."[^c] 
+Sapagkat sinasabi sa Kasulatan, "Hindi mabibigo ang sinumang sumasampalataya sa kanya." 
 
 
 
@@ -403,7 +403,7 @@ Sapagkat sinasabi sa Kasulatan, "Hindi mabibigo ang sinumang sumasampalataya sa 
 
 
 
-<i class="trans-change">At ang pangakong itoʼy para sa lahat_ dahil walang pagkakaiba ang Judio sa hindi Judio.[^d] Ang Panginoon ay Panginoon ng lahat, at pinagpapala niya nang masagana ang lahat ng tumatawag sa kanya. 
+<i class="trans-change">At ang pangakong itoʼy para sa lahat_ dahil walang pagkakaiba ang Judio sa hindi Judio. Ang Panginoon ay Panginoon ng lahat, at pinagpapala niya nang masagana ang lahat ng tumatawag sa kanya. 
 
 
 
@@ -436,7 +436,7 @@ Sapagkat sinasabi sa Kasulatan, "Hindi mabibigo ang sinumang sumasampalataya sa 
 
 
 
-Sapagkat <i class="trans-change">sinasabi sa Kasulatan_, "Maliligtas ang lahat ng tumatawag sa Panginoon."[^e] 
+Sapagkat <i class="trans-change">sinasabi sa Kasulatan_, "Maliligtas ang lahat ng tumatawag sa Panginoon." 
 
 
 
@@ -502,7 +502,7 @@ Pero paano sila tatawag kung hindi naman sila sumasampalataya sa kanya? At paano
 
 
 
-At paano makakapangaral ang sinuman kung hindi naman siya isinugo? Ayon sa Kasulatan, "Napakagandang pagmasdan ang pagdating ng mga nagdadala ng magandang balita."[^f] 
+At paano makakapangaral ang sinuman kung hindi naman siya isinugo? Ayon sa Kasulatan, "Napakagandang pagmasdan ang pagdating ng mga nagdadala ng magandang balita." 
 
 
 
@@ -535,7 +535,7 @@ At paano makakapangaral ang sinuman kung hindi naman siya isinugo? Ayon sa Kasul
 
 
 
-Pero hindi naman tinatanggap ng lahat ang Magandang Balita. Sinabi nga ni Isaias, "Panginoon, sino po ba ang naniwala sa sinabi namin?"[^g] 
+Pero hindi naman tinatanggap ng lahat ang Magandang Balita. Sinabi nga ni Isaias, "Panginoon, sino po ba ang naniwala sa sinabi namin?" 
 
 
 
@@ -601,7 +601,7 @@ Sasampalataya lang ang tao kung maririnig niya ang mensahe tungkol kay Cristo, a
 
 
 
-Ito ngayon ang tanong ko: Hindi ba nakarinig ang mga Israelita? Nakarinig sila, dahil <i class="trans-change">sinasabi sa Kasulatan_, "Narinig sa lahat ng dako ang kanilang tinig, at ang sinabi nila ay nakarating sa buong mundo."[^h] 
+Ito ngayon ang tanong ko: Hindi ba nakarinig ang mga Israelita? Nakarinig sila, dahil <i class="trans-change">sinasabi sa Kasulatan_, "Narinig sa lahat ng dako ang kanilang tinig, at ang sinabi nila ay nakarating sa buong mundo." 
 
 
 
@@ -634,7 +634,7 @@ Ito ngayon ang tanong ko: Hindi ba nakarinig ang mga Israelita? Nakarinig sila, 
 
 
 
-Kung ganoon, hindi ba nila ito naunawaan? Naunawaan nila, dahil ayon sa isinulat ni Moises, <i class="trans-change">sinabi ng Dios sa kanila,_ "Iinggitin ko kayo sa pamamagitan ng ibang bansa. Iinisin ko kayo dahil ipapakita ko ang aking awa sa mga taong hindi nakakakilala sa akin."[^i] 
+Kung ganoon, hindi ba nila ito naunawaan? Naunawaan nila, dahil ayon sa isinulat ni Moises, <i class="trans-change">sinabi ng Dios sa kanila,_ "Iinggitin ko kayo sa pamamagitan ng ibang bansa. Iinisin ko kayo dahil ipapakita ko ang aking awa sa mga taong hindi nakakakilala sa akin." 
 
 
 
@@ -667,7 +667,7 @@ Kung ganoon, hindi ba nila ito naunawaan? Naunawaan nila, dahil ayon sa isinulat
 
 
 
-At buong tapang naman na sinabi ni Isaias <i class="trans-change">ang sinabing ito ng Dios_: "Natagpuan ako ng mga taong hindi naghahanap sa akin. Ipinakilala ko ang aking sarili sa mga hindi nagtatanong tungkol sa akin."[^j] 
+At buong tapang naman na sinabi ni Isaias <i class="trans-change">ang sinabing ito ng Dios_: "Natagpuan ako ng mga taong hindi naghahanap sa akin. Ipinakilala ko ang aking sarili sa mga hindi nagtatanong tungkol sa akin." 
 
 
 
@@ -700,4 +700,4 @@ At buong tapang naman na sinabi ni Isaias <i class="trans-change">ang sinabing i
 
 
 
-Pero tungkol naman sa Israel, ito ang sinabi ng Dios: "Matagal akong nanawagan at naghintay sa isang bansang matigas ang ulo at suwail."[^k]
+Pero tungkol naman sa Israel, ito ang sinabi ng Dios: "Matagal akong nanawagan at naghintay sa isang bansang matigas ang ulo at suwail."

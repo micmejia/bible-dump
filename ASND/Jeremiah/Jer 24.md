@@ -172,7 +172,7 @@ Pagkatapos, sinabi sa akin ng Panginoon,
 
 
 
-"<i class="trans-change">Ako,_ ang Panginoon, ang Dios ng Israel ay nagsasabing ituturing kong parang magagandang igos ang mga Israelitang ipinabihag ko sa mga taga-Babilonia.[^a] 
+"<i class="trans-change">Ako,_ ang Panginoon, ang Dios ng Israel ay nagsasabing ituturing kong parang magagandang igos ang mga Israelitang ipinabihag ko sa mga taga-Babilonia. 
 
 
 

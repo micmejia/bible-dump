@@ -106,7 +106,7 @@ Ang anak ni Shobal na si Reaya ay ama ni Jahat. Si Jahat ang ama nina Ahumai at 
 
 
 
-Ito ang mga anak[^a] ni Etam: sina Jezreel, Ishma at Idbas. Si Hazelelponi ang kapatid nilang babae. 
+Ito ang mga anak ni Etam: sina Jezreel, Ishma at Idbas. Si Hazelelponi ang kapatid nilang babae. 
 
 
 
@@ -238,7 +238,7 @@ Ang mga anak na lalaki nina Naara at Ashur ay sina Ahuzam, Hefer, Temeni at Haah
 
 
 
-Ang mga anak naman nina Hela <i class="trans-change">at Ashur_ ay sina Zeret, Zohar,[^b] Etnan, 
+Ang mga anak naman nina Hela <i class="trans-change">at Ashur_ ay sina Zeret, Zohar, Etnan, 
 
 
 
@@ -304,7 +304,7 @@ at Koz. Si Koz ang ama nina Anub at Hazobeba, at ang pinagmulan ng pamilya ni Ah
 
 
 
-May isang tao na ang pangalan ay Jabez. Kagalang-galang siya kaysa sa mga kapatid niyang lalaki. Pinangalanan siya ng kanyang ina na Jabez[^c] dahil sinabi ng kanyang ina, "Labis akong nahirapan sa panganganak ko sa kanya." 
+May isang tao na ang pangalan ay Jabez. Kagalang-galang siya kaysa sa mga kapatid niyang lalaki. Pinangalanan siya ng kanyang ina na Jabez dahil sinabi ng kanyang ina, "Labis akong nahirapan sa panganganak ko sa kanya." 
 
 
 
@@ -403,7 +403,7 @@ Si Kelub na kapatid ni Shuha ang ama ni Mehir. Si Mehir ang ama ni Eston, at
 
 
 
-si Eston ang ama nina Bet Rafa, Pasea at Tehina. Si Tehina ang ama ni Ir Nahash. Sila ang angkan ni Reca.[^d] 
+si Eston ang ama nina Bet Rafa, Pasea at Tehina. Si Tehina ang ama ni Ir Nahash. Sila ang angkan ni Reca. 
 
 
 
@@ -436,7 +436,7 @@ si Eston ang ama nina Bet Rafa, Pasea at Tehina. Si Tehina ang ama ni Ir Nahash.
 
 
 
-Ang mga anak na lalaki ni Kenaz ay sina Otniel at Seraya. Ang mga anak ni Otniel ay sina Hatat at Meonotai.[^e] 
+Ang mga anak na lalaki ni Kenaz ay sina Otniel at Seraya. Ang mga anak ni Otniel ay sina Hatat at Meonotai. 
 
 
 
@@ -469,7 +469,7 @@ Ang mga anak na lalaki ni Kenaz ay sina Otniel at Seraya. Ang mga anak ni Otniel
 
 
 
-Si Meonotai ang ama ni Ofra. Si Seraya naman ang ama ni Joab, na nagtatag ng Lambak ng mga Panday.[^f] Tinawag itong Lambak ng mga Panday dahil doon nakatira ang maraming panday. 
+Si Meonotai ang ama ni Ofra. Si Seraya naman ang ama ni Joab, na nagtatag ng Lambak ng mga Panday. Tinawag itong Lambak ng mga Panday dahil doon nakatira ang maraming panday. 
 
 
 
@@ -535,7 +535,7 @@ Ito ang mga anak na lalaki ni Caleb na anak ni Jefune: sina Iru, Elah at Naam. A
 
 
 
-Ang mga anak na lalaki ni Jehalelel ay sina Zif, Zifa, Tiria at Asarel. <sup class="versenum">17-18</sup>Ang mga anak na lalaki ni Ezra ay sina Jeter, Mered, Efer at Jalon. Asawa ni Mered si Bitia na anak ng Faraon.[^g] Ang mga anak nila ay sina Miriam, Shamai at Ishba. Si Ishba ang ama ni Estemoa. May asawa rin si Mered na taga-Judea, at ang mga anak nila ay sina Jered na ama ni Gedor, Heber na ama ni Soco, at Jekutiel na ama ni Zanoa. 
+Ang mga anak na lalaki ni Jehalelel ay sina Zif, Zifa, Tiria at Asarel. <sup class="versenum">17-18</sup>Ang mga anak na lalaki ni Ezra ay sina Jeter, Mered, Efer at Jalon. Asawa ni Mered si Bitia na anak ng Faraon. Ang mga anak nila ay sina Miriam, Shamai at Ishba. Si Ishba ang ama ni Estemoa. May asawa rin si Mered na taga-Judea, at ang mga anak nila ay sina Jered na ama ni Gedor, Heber na ama ni Soco, at Jekutiel na ama ni Zanoa. 
 
 
 
@@ -1030,7 +1030,7 @@ Tumira rin sila sa limang bayan sa paligid nila: sa Etam, Ayin, Rimon, Token at 
 
 
 
-pati na rin sa mga baryo sa paligid ng mga bayang ito hanggang sa Baalat.[^h] Ito ang mga lugar na tinirhan nila, at naitago nila ang mga talaan ng kanilang angkan. <i class="trans-change">Ito ang iba pang lahi ni Simeon:_ 
+pati na rin sa mga baryo sa paligid ng mga bayang ito hanggang sa Baalat. Ito ang mga lugar na tinirhan nila, at naitago nila ang mga talaan ng kanilang angkan. <i class="trans-change">Ito ang iba pang lahi ni Simeon:_ 
 
 
 

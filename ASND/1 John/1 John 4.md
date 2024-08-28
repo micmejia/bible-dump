@@ -304,7 +304,7 @@ Ang sinumang hindi umiibig sa kanyang kapwa ay hindi kumikilala sa Dios dahil an
 
 
 
-Ipinakita ng Dios ang kanyang pag-ibig sa atin nang isinugo niya ang kanyang kaisa-isang[^a] anak dito sa mundo, upang sa pamamagitan niya ay magkaroon tayo ng buhay na walang hanggan. 
+Ipinakita ng Dios ang kanyang pag-ibig sa atin nang isinugo niya ang kanyang kaisa-isang anak dito sa mundo, upang sa pamamagitan niya ay magkaroon tayo ng buhay na walang hanggan. 
 
 
 

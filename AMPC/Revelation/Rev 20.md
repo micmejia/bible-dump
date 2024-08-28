@@ -133,7 +133,7 @@ The remainder of the dead were not restored to life again until the thousand yea
 
 
 
-Blessed (happy, [^a]to be envied) and holy (spiritually whole, of unimpaired innocence and proved virtue) is the person who takes part (shares) in the first resurrection! Over them the second death exerts no power _or_ authority, but they shall be ministers of God and of Christ (the Messiah), and they shall rule along with Him a thousand years. 
+Blessed (happy, to be envied) and holy (spiritually whole, of unimpaired innocence and proved virtue) is the person who takes part (shares) in the first resurrection! Over them the second death exerts no power _or_ authority, but they shall be ministers of God and of Christ (the Messiah), and they shall rule along with Him a thousand years. 
 
 
 
@@ -259,7 +259,7 @@ Then I saw a great white throne and the One Who was seated upon it, from Whose p
 
 
 
-I [also] saw the dead, great and small; they stood before the throne, and books were opened. Then another book was opened, which is [the Book] of Life. And the dead were judged (sentenced) by what they had done [[^b]their whole way of feeling and acting, their aims and endeavors] in accordance with what was recorded in the books. 
+I [also] saw the dead, great and small; they stood before the throne, and books were opened. Then another book was opened, which is [the Book] of Life. And the dead were judged (sentenced) by what they had done [their whole way of feeling and acting, their aims and endeavors] in accordance with what was recorded in the books. 
 
 
 
@@ -280,7 +280,7 @@ I [also] saw the dead, great and small; they stood before the throne, and books 
 
 
 
-And the sea delivered up the dead who were in it, death and Hades ([^c]the state of death or disembodied existence) surrendered the dead in them, and all were tried _and_ their cases determined by what they had done [according to their motives, aims, and works]. 
+And the sea delivered up the dead who were in it, death and Hades (the state of death or disembodied existence) surrendered the dead in them, and all were tried _and_ their cases determined by what they had done [according to their motives, aims, and works]. 
 
 
 
@@ -301,7 +301,7 @@ And the sea delivered up the dead who were in it, death and Hades ([^c]the state
 
 
 
-Then death and Hades ([^d]the state of death or disembodied existence) were thrown into the lake of fire. This is the second death, the lake of fire. 
+Then death and Hades (the state of death or disembodied existence) were thrown into the lake of fire. This is the second death, the lake of fire. 
 
 
 

@@ -10,7 +10,7 @@ next: ['Jer 39']
 
 
 ###### 1 
-Now Shephatiah the son of Mattan, Gedaliah the son of Pashhur, Jucal[^a] the son of Shelemiah, and Pashhur the son of Malchiah heard the words that Jeremiah had spoken to all the people, saying, 
+Now Shephatiah the son of Mattan, Gedaliah the son of Pashhur, Jucal the son of Shelemiah, and Pashhur the son of Malchiah heard the words that Jeremiah had spoken to all the people, saying, 
 
 ###### 2 
 "Thus says the Lord: 'He who remains in this city shall die by the sword, by famine, and by pestilence; but he who goes over to the Chaldeans shall live; his life shall be as a prize to him, and he shall live.' 
@@ -19,16 +19,16 @@ Now Shephatiah the son of Mattan, Gedaliah the son of Pashhur, Jucal[^a] the son
 Thus says the Lord: 'This city shall surely be given into the hand of the king of Babylon's army, which shall take it.' " 
 
 ###### 4 
-Therefore the princes said to the king, "Please, let this man be put to death, for thus he [^b]weakens the hands of the men of war who remain in this city, and the hands of all the people, by speaking such words to them. For this man does not seek the [^c]welfare of this people, but their harm." 
+Therefore the princes said to the king, "Please, let this man be put to death, for thus he weakens the hands of the men of war who remain in this city, and the hands of all the people, by speaking such words to them. For this man does not seek the welfare of this people, but their harm." 
 
 ###### 5 
 Then Zedekiah the king said, "Look, he _is_ in your hand. For the king can _do_ nothing against you." 
 
 ###### 6 
-So they took Jeremiah and cast him into the dungeon of Malchiah [^d]the king's son, which _was_ in the court of the prison, and they let Jeremiah down with ropes. And in the dungeon _there was_ no water, but mire. So Jeremiah sank in the mire. 
+So they took Jeremiah and cast him into the dungeon of Malchiah the king's son, which _was_ in the court of the prison, and they let Jeremiah down with ropes. And in the dungeon _there was_ no water, but mire. So Jeremiah sank in the mire. 
 
 ###### 7 
-Now Ebed-Melech the Ethiopian, one of the [^e]eunuchs, who was in the king's house, heard that they had put Jeremiah in the dungeon. When the king was sitting at the Gate of Benjamin, 
+Now Ebed-Melech the Ethiopian, one of the eunuchs, who was in the king's house, heard that they had put Jeremiah in the dungeon. When the king was sitting at the Gate of Benjamin, 
 
 ###### 8 
 Ebed-Melech went out of the king's house and spoke to the king, saying: 
@@ -58,10 +58,10 @@ Jeremiah said to Zedekiah, "If I declare _it_ to you, will you not surely put me
 So Zedekiah the king swore secretly to Jeremiah, saying, "_As_ the Lord lives, who made our very souls, I will not put you to death, nor will I give you into the hand of these men who seek your life." 
 
 ###### 17 
-Then Jeremiah said to Zedekiah, "Thus says the Lord, the God of hosts, the God of Israel: 'If you surely surrender[^f] to the king of Babylon's princes, then your soul shall live; this city shall not be burned with fire, and you and your house shall live. 
+Then Jeremiah said to Zedekiah, "Thus says the Lord, the God of hosts, the God of Israel: 'If you surely surrender to the king of Babylon's princes, then your soul shall live; this city shall not be burned with fire, and you and your house shall live. 
 
 ###### 18 
-But if you do not [^g]surrender to the king of Babylon's princes, then this city shall be given into the hand of the Chaldeans; they shall burn it with fire, and you shall not escape from their hand.' " 
+But if you do not surrender to the king of Babylon's princes, then this city shall be given into the hand of the Chaldeans; they shall burn it with fire, and you shall not escape from their hand.' " 
 
 ###### 19 
 And Zedekiah the king said to Jeremiah, "I am afraid of the Jews who have defected to the Chaldeans, lest they deliver me into their hand, and they abuse me." 
@@ -70,10 +70,10 @@ And Zedekiah the king said to Jeremiah, "I am afraid of the Jews who have defect
 But Jeremiah said, "They shall not deliver _you._ Please, obey the voice of the Lord which I speak to you. So it shall be well with you, and your soul shall live. 
 
 ###### 21 
-But if you refuse to [^h]surrender, this _is_ the word that the Lord has shown me: 
+But if you refuse to surrender, this _is_ the word that the Lord has shown me: 
 
 ###### 22 
-'Now behold, all the women who are left in the king of Judah's house _shall be_ surrendered to the king of Babylon's princes, and those _women_ shall say: "Your close friends have [^i]set upon you And prevailed against you; Your feet have sunk in the mire, _And_ they have [^j]turned away again." 
+'Now behold, all the women who are left in the king of Judah's house _shall be_ surrendered to the king of Babylon's princes, and those _women_ shall say: "Your close friends have set upon you And prevailed against you; Your feet have sunk in the mire, _And_ they have turned away again." 
 
 ###### 23 
 'So they shall surrender all your wives and children to the Chaldeans. You shall not escape from their hand, but shall be taken by the hand of the king of Babylon. And you shall cause this city to be burned with fire.' " 

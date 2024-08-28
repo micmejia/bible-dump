@@ -799,7 +799,7 @@ Nang maipako na ng mga sundalo si Jesus, kinuha nila ang kanyang damit at hinati
 
 
 
-Sinabi ng isang sundalo, "Huwag na natin itong paghatian. Magpalabunutan na lang tayo kung kanino ito mapupunta." Nangyari ito upang matupad ang sinabi sa Kasulatan, "Pinaghati-hatian nila ang aking damit, at nagpalabunutan sila para sa aking damit-panloob."[^a] At ito nga ang ginawa ng mga sundalo. 
+Sinabi ng isang sundalo, "Huwag na natin itong paghatian. Magpalabunutan na lang tayo kung kanino ito mapupunta." Nangyari ito upang matupad ang sinabi sa Kasulatan, "Pinaghati-hatian nila ang aking damit, at nagpalabunutan sila para sa aking damit-panloob." At ito nga ang ginawa ng mga sundalo. 
 
 
 
@@ -832,7 +832,7 @@ Sinabi ng isang sundalo, "Huwag na natin itong paghatian. Magpalabunutan na lang
 
 
 
-Nakatayo malapit sa krus ni Jesus ang kanyang ina, ang kapatid ng kanyang ina, si Maria na asawa ni Clopas, at si Maria na taga-Magdala.[^b] 
+Nakatayo malapit sa krus ni Jesus ang kanyang ina, ang kapatid ng kanyang ina, si Maria na asawa ni Clopas, at si Maria na taga-Magdala. 
 
 
 
@@ -1162,7 +1162,7 @@ Sa halip, sinaksak ng sibat ng isa sa kanila ang tagiliran ni Jesus at biglang d
 
 
 
-Nakita ko mismo ang mga pangyayari, at isinasalaysay ko ito sa inyo. Totoong nangyari ito, kaya alam kong totoo ang mga sinasabi ko. Isinasalaysay ko ito upang sumampalataya rin kayo.[^c] 
+Nakita ko mismo ang mga pangyayari, at isinasalaysay ko ito sa inyo. Totoong nangyari ito, kaya alam kong totoo ang mga sinasabi ko. Isinasalaysay ko ito upang sumampalataya rin kayo. 
 
 
 
@@ -1195,7 +1195,7 @@ Nakita ko mismo ang mga pangyayari, at isinasalaysay ko ito sa inyo. Totoong nan
 
 
 
-Nangyari ang mga bagay na ito upang matupad ang sinasabi sa Kasulatan: "Walang mababali ni isa man sa kanyang mga buto."[^d] 
+Nangyari ang mga bagay na ito upang matupad ang sinasabi sa Kasulatan: "Walang mababali ni isa man sa kanyang mga buto." 
 
 
 
@@ -1228,7 +1228,7 @@ Nangyari ang mga bagay na ito upang matupad ang sinasabi sa Kasulatan: "Walang m
 
 
 
-Sinasabi rin sa isa pang bahagi ng Kasulatan, "Pagmamasdan nila ang taong sinaksak nila."[^e] ## Ang Paglilibing kay Jesus 
+Sinasabi rin sa isa pang bahagi ng Kasulatan, "Pagmamasdan nila ang taong sinaksak nila." ## Ang Paglilibing kay Jesus 
 
 
 

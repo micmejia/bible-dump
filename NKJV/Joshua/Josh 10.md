@@ -70,7 +70,7 @@ And do not stay _there_ yourselves, _but_ pursue your enemies, and attack their 
 Then it happened, while Joshua and the children of Israel made an end of slaying them with a very great slaughter, till they had finished, that those who escaped entered fortified cities. 
 
 ###### 21 
-And all the people returned to the camp, to Joshua at Makkedah, in peace. No one [^a]moved his tongue against any of the children of Israel. 
+And all the people returned to the camp, to Joshua at Makkedah, in peace. No one moved his tongue against any of the children of Israel. 
 
 ###### 22 
 Then Joshua said, "Open the mouth of the cave, and bring out those five kings to me from the cave." 
@@ -82,16 +82,16 @@ And they did so, and brought out those five kings to him from the cave: the king
 So it was, when they brought out those kings to Joshua, that Joshua called for all the men of Israel, and said to the captains of the men of war who went with him, "Come near, put your feet on the necks of these kings." And they drew near and put their feet on their necks. 
 
 ###### 25 
-Then Joshua said to [^b]them, "Do not be afraid, nor be dismayed; be strong and of good courage, for thus the Lord will do to all your enemies against whom you fight." 
+Then Joshua said to them, "Do not be afraid, nor be dismayed; be strong and of good courage, for thus the Lord will do to all your enemies against whom you fight." 
 
 ###### 26 
-And afterward Joshua struck [^c]them and killed them, and hanged them on five trees; and they were hanging on the trees until evening. 
+And afterward Joshua struck them and killed them, and hanged them on five trees; and they were hanging on the trees until evening. 
 
 ###### 27 
 So it was at the time of the going down of the sun _that_ Joshua commanded, and they took them down from the trees, cast them into the cave where they had been hidden, and laid large stones against the cave's mouth, _which remain_ until this very day. ## Conquest of the Southland 
 
 ###### 28 
-On that day Joshua took Makkedah, and struck it and its king with the edge of the sword. He utterly destroyed [^d]them--all the people who _were_ in it. He let none remain. He also did to the king of Makkedah as he had done to the king of Jericho. 
+On that day Joshua took Makkedah, and struck it and its king with the edge of the sword. He utterly destroyed them--all the people who _were_ in it. He let none remain. He also did to the king of Makkedah as he had done to the king of Jericho. 
 
 ###### 29 
 Then Joshua passed from Makkedah, and all Israel with him, to Libnah; and they fought against Libnah. 
@@ -127,7 +127,7 @@ Then Joshua returned, and all Israel with him, to Debir; and they fought against
 And he took it and its king and all its cities; they struck them with the edge of the sword and utterly destroyed all the people who _were_ in it. He left none remaining; as he had done to Hebron, so he did to Debir and its king, as he had done also to Libnah and its king. 
 
 ###### 40 
-So Joshua conquered all the land: the mountain country and the [^e]South and the lowland and the wilderness slopes, and all their kings; he left none remaining, but utterly destroyed all that breathed, as the Lord God of Israel had commanded. 
+So Joshua conquered all the land: the mountain country and the South and the lowland and the wilderness slopes, and all their kings; he left none remaining, but utterly destroyed all that breathed, as the Lord God of Israel had commanded. 
 
 ###### 41 
 And Joshua conquered them from Kadesh Barnea as far as Gaza, and all the country of Goshen, even as far as Gibeon. 

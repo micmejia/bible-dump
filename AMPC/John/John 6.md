@@ -238,7 +238,7 @@ Jesus said, Make all the people recline (sit down). Now the ground (a pasture) w
 
 
 
-Jesus took the loaves, and when He had given thanks, He distributed [^a]_to the disciples and the disciples_ to the reclining people; so also [He did] with the fish, as much as they wanted. 
+Jesus took the loaves, and when He had given thanks, He distributed _to the disciples and the disciples_ to the reclining people; so also [He did] with the fish, as much as they wanted. 
 
 
 
@@ -280,7 +280,7 @@ When they had all had enough, He said to His disciples, Gather up now the fragme
 
 
 
-So accordingly they gathered them up, and they filled twelve [[^b]small hand] baskets with fragments left over by those who had eaten from the five barley loaves. 
+So accordingly they gathered them up, and they filled twelve [small hand] baskets with fragments left over by those who had eaten from the five barley loaves. 
 
 
 
@@ -637,7 +637,7 @@ Jesus replied, This is the work (service) that God asks of you: that you believe
 
 
 
-Therefore they said to Him, What sign (miracle, wonderwork) will [^c]You perform then, so that we may see it and believe _and_ rely on _and_ adhere to You? What [supernatural] work have You [to show what You can do]? 
+Therefore they said to Him, What sign (miracle, wonderwork) will You perform then, so that we may see it and believe _and_ rely on _and_ adhere to You? What [supernatural] work have You [to show what You can do]? 
 
 
 
@@ -889,7 +889,7 @@ Now the Jews murmured _and_ found fault with _and_ grumbled about Jesus because 
 
 
 
-They kept asking, Is not this Jesus, the [^d]Son of Joseph, Whose father and mother we know? How then can He say, I have come down from heaven? 
+They kept asking, Is not this Jesus, the Son of Joseph, Whose father and mother we know? How then can He say, I have come down from heaven? 
 
 
 

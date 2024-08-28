@@ -40,7 +40,7 @@ Why have you prophesied in the name of the Lord, saying, 'This house shall be li
 When the princes of Judah heard these things, they came up from the king's house to the house of the Lord and sat down in the entry of the New Gate of the Lord's _house._ 
 
 ###### 11 
-And the priests and the prophets spoke to the princes and all the people, saying, [^a]"This man deserves to die! For he has prophesied against this city, as you have heard with your ears." 
+And the priests and the prophets spoke to the princes and all the people, saying, "This man deserves to die! For he has prophesied against this city, as you have heard with your ears." 
 
 ###### 12 
 Then Jeremiah spoke to all the princes and all the people, saying: "The Lord sent me to prophesy against this house and against this city with all the words that you have heard. 
@@ -49,7 +49,7 @@ Then Jeremiah spoke to all the princes and all the people, saying: "The Lord sen
 Now therefore, amend your ways and your doings, and obey the voice of the Lord your God; then the Lord will relent concerning the doom that He has pronounced against you. 
 
 ###### 14 
-As for me, here I am, in your hand; do with me as seems good and [^b]proper to you. 
+As for me, here I am, in your hand; do with me as seems good and proper to you. 
 
 ###### 15 
 But know for certain that if you put me to death, you will surely bring innocent blood on yourselves, on this city, and on its inhabitants; for truly the Lord has sent me to you to speak all these words in your hearing." 
@@ -61,7 +61,7 @@ So the princes and all the people said to the priests and the prophets, "This ma
 Then certain of the elders of the land rose up and spoke to all the assembly of the people, saying: 
 
 ###### 18 
-"Micah of Moresheth prophesied in the days of Hezekiah king of Judah, and spoke to all the people of Judah, saying, 'Thus says the Lord of hosts: "Zion shall be plowed _like_ a field, Jerusalem shall become heaps of ruins, And the mountain of the [^c]temple Like the [^d]bare hills of the forest." ' 
+"Micah of Moresheth prophesied in the days of Hezekiah king of Judah, and spoke to all the people of Judah, saying, 'Thus says the Lord of hosts: "Zion shall be plowed _like_ a field, Jerusalem shall become heaps of ruins, And the mountain of the temple Like the bare hills of the forest." ' 
 
 ###### 19 
 Did Hezekiah king of Judah and all Judah ever put him to death? Did he not fear the Lord and seek the Lord's favor? And the Lord relented concerning the doom which He had pronounced against them. But we are doing great evil against ourselves." 
@@ -76,7 +76,7 @@ And when Jehoiakim the king, with all his mighty men and all the princes, heard 
 Then Jehoiakim the king sent men to Egypt: Elnathan the son of Achbor, and _other_ men _who went_ with him to Egypt. 
 
 ###### 23 
-And they brought Urijah from Egypt and brought him to Jehoiakim the king, who killed him with the sword and cast his dead body into the graves of the [^e]common people. 
+And they brought Urijah from Egypt and brought him to Jehoiakim the king, who killed him with the sword and cast his dead body into the graves of the common people. 
 
 ###### 24 
 Nevertheless the hand of Ahikam the son of Shaphan was with Jeremiah, so that they should not give him into the hand of the people to put him to death.

@@ -271,7 +271,7 @@ Sa maikling panahon ginawa ninyong mas mababa ang kalagayan niya kaysa sa mga an
 
 
 
-at ipinasakop nʼyo sa kanyang kapangyarihan ang lahat ng bagay."[^a] <i class="trans-change">Ang sinasabi ng Kasulatan na_ ipinasakop ang lahat ng bagay sa tao ay nangangahulugang darating ang araw na walang anumang bagay na hindi maipapasakop sa tao. Pero ngayon, hindi pa natin nakikita na sakop ng tao ang lahat ng bagay. 
+at ipinasakop nʼyo sa kanyang kapangyarihan ang lahat ng bagay." <i class="trans-change">Ang sinasabi ng Kasulatan na_ ipinasakop ang lahat ng bagay sa tao ay nangangahulugang darating ang araw na walang anumang bagay na hindi maipapasakop sa tao. Pero ngayon, hindi pa natin nakikita na sakop ng tao ang lahat ng bagay. 
 
 
 
@@ -403,7 +403,7 @@ Si Jesus ang naglilinis ng ating mga kasalanan. At ang kanyang Ama ay siya rin n
 
 
 
-Ito ang sinabi niya <i class="trans-change">sa kanyang Ama_: "Ipapahayag ko sa aking mga kapatid ang mga ginawa mo, at aawit ako ng papuri sa iyo sa piling ng mga sumasamba sa iyo."[^b] 
+Ito ang sinabi niya <i class="trans-change">sa kanyang Ama_: "Ipapahayag ko sa aking mga kapatid ang mga ginawa mo, at aawit ako ng papuri sa iyo sa piling ng mga sumasamba sa iyo." 
 
 
 
@@ -436,7 +436,7 @@ Ito ang sinabi niya <i class="trans-change">sa kanyang Ama_: "Ipapahayag ko sa a
 
 
 
-Sinabi rin niya, "Magtitiwala ako sa Dios."[^c] At idinagdag pa niya, "Narito ako, kasama ang mga anak ng Dios na kanyang ibinigay sa akin."[^d] 
+Sinabi rin niya, "Magtitiwala ako sa Dios." At idinagdag pa niya, "Narito ako, kasama ang mga anak ng Dios na kanyang ibinigay sa akin." 
 
 
 

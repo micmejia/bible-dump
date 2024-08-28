@@ -58,7 +58,7 @@ But if the unbeliever departs, let him depart; a brother or a sister is not unde
 For how do you know, O wife, whether you will save _your_ husband? Or how do you know, O husband, whether you will save _your_ wife? ## Live as You Are Called 
 
 ###### 17 
-But as God has distributed to each one, as the Lord has called each one, so let him walk. And so I [^a]ordain in all the churches. 
+But as God has distributed to each one, as the Lord has called each one, so let him walk. And so I ordain in all the churches. 
 
 ###### 18 
 Was anyone called while circumcised? Let him not become uncircumcised. Was anyone called while uncircumcised? Let him not be circumcised. 
@@ -103,7 +103,7 @@ those who weep as though they did not weep, those who rejoice as though they did
 and those who use this world as not misusing _it._ For the form of this world is passing away. 
 
 ###### 32 
-But I want you to be without [^b]care. He who is unmarried [^c]cares for the things of the Lord--how he may please the Lord. 
+But I want you to be without care. He who is unmarried cares for the things of the Lord--how he may please the Lord. 
 
 ###### 33 
 But he who is married cares about the things of the world--how he may please _his_ wife. 
@@ -115,13 +115,13 @@ There is a difference between a wife and a virgin. The unmarried woman cares abo
 And this I say for your own profit, not that I may put a leash on you, but for what is proper, and that you may serve the Lord without distraction. 
 
 ###### 36 
-But if any man thinks he is behaving improperly toward his [^d]virgin, if she is past the flower of youth, and thus it must be, let him do what he wishes. He does not sin; let them marry. 
+But if any man thinks he is behaving improperly toward his virgin, if she is past the flower of youth, and thus it must be, let him do what he wishes. He does not sin; let them marry. 
 
 ###### 37 
-Nevertheless he who stands steadfast in his heart, having no necessity, but has power over his own will, and has so determined in his heart that he will keep his [^e]virgin, does well. 
+Nevertheless he who stands steadfast in his heart, having no necessity, but has power over his own will, and has so determined in his heart that he will keep his virgin, does well. 
 
 ###### 38 
-So then he who gives [^f]_her_ in marriage does well, but he who does not give _her_ in marriage does better. 
+So then he who gives _her_ in marriage does well, but he who does not give _her_ in marriage does better. 
 
 ###### 39 
 A wife is bound by law as long as her husband lives; but if her husband dies, she is at liberty to be married to whom she wishes, only in the Lord. 

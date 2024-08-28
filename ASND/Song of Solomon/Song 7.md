@@ -370,7 +370,7 @@ Ako ay sa kanya lang, at ako lamang ang kanyang inaasam.
 
 
 
-Halika mahal ko, pumunta tayo sa bukid at doon magpalipas ng gabi, sa tabi ng mga bulaklak ng henna.[^a] 
+Halika mahal ko, pumunta tayo sa bukid at doon magpalipas ng gabi, sa tabi ng mga bulaklak ng henna. 
 
 
 

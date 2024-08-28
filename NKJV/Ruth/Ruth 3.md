@@ -10,7 +10,7 @@ next: ['Ruth 4']
 
 
 ###### 1 
-Then Naomi her mother-in-law said to her, "My daughter, shall I not seek security[^a] for you, that it may be well with you? 
+Then Naomi her mother-in-law said to her, "My daughter, shall I not seek security for you, that it may be well with you? 
 
 ###### 2 
 Now Boaz, whose young women you were with, _is he_ not our relative? In fact, he is winnowing barley tonight at the threshing floor. 
@@ -34,7 +34,7 @@ And after Boaz had eaten and drunk, and his heart was cheerful, he went to lie d
 Now it happened at midnight that the man was startled, and turned himself; and there, a woman was lying at his feet. 
 
 ###### 9 
-And he said, "Who _are_ you?" So she answered, "I _am_ Ruth, your maidservant. Take[^b] your maidservant under your wing, for you are a [^c]close relative." 
+And he said, "Who _are_ you?" So she answered, "I _am_ Ruth, your maidservant. Take your maidservant under your wing, for you are a close relative." 
 
 ###### 10 
 Then he said, "Blessed _are_ you of the Lord, my daughter! For you have shown more kindness at the end than at the beginning, in that you did not go after young men, whether poor or rich. 
@@ -52,10 +52,10 @@ Stay this night, and in the morning it shall be _that_ if he will perform the du
 So she lay at his feet until morning, and she arose before one could recognize another. Then he said, "Do not let it be known that the woman came to the threshing floor." 
 
 ###### 15 
-Also he said, "Bring the [^d]shawl that _is_ on you and hold it." And when she held it, he measured six _ephahs_ of barley, and laid _it_ on her. Then [^e]she went into the city. 
+Also he said, "Bring the shawl that _is_ on you and hold it." And when she held it, he measured six _ephahs_ of barley, and laid _it_ on her. Then she went into the city. 
 
 ###### 16 
-When she came to her mother-in-law, she said, [^f]"_Is_ that you, my daughter?" Then she told her all that the man had done for her. 
+When she came to her mother-in-law, she said, "_Is_ that you, my daughter?" Then she told her all that the man had done for her. 
 
 ###### 17 
 And she said, "These six _ephahs_ of barley he gave me; for he said to me, 'Do not go empty-handed to your mother-in-law.' " 

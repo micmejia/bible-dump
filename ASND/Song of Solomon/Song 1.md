@@ -39,7 +39,7 @@ next: ['Song 2']
 
 
 
-Ang pinakamagandang awit ni Solomon.[^a] 
+Ang pinakamagandang awit ni Solomon. 
 
 
 
@@ -138,7 +138,7 @@ Kay sarap amuyin ng iyong pabango, at ang ganda ng pangalan mo, kaya hindi katak
 
 
 
-Sige na, O aking hari, dalhin mo ako sa iyong silid. Sa piling mo,[^b] kami ay maligaya. Mas gusto pa namin ang pag-ibig mo kaysa anumang inumin. Tama lang na umibig sila sa iyo! 
+Sige na, O aking hari, dalhin mo ako sa iyong silid. Sa piling mo, kami ay maligaya. Mas gusto pa namin ang pag-ibig mo kaysa anumang inumin. Tama lang na umibig sila sa iyo! 
 
 
 
@@ -204,7 +204,7 @@ O mga babaeng taga-Jerusalem, maitim nga ako gaya ng mga tolda sa Kedar, pero ma
 
 
 
-Huwag ninyo akong hamakin[^c] dahil sa kulay ng aking balat. Maitim nga pagkat nabibilad sa init ng araw. Nagalit sa akin ang mga kapatid kong lalaki, at doon sa ubasan akoʼy pinagtrabaho nila. Dahil ditoʼy napabayaan ko ang sarili ko.[^d] 
+Huwag ninyo akong hamakin dahil sa kulay ng aking balat. Maitim nga pagkat nabibilad sa init ng araw. Nagalit sa akin ang mga kapatid kong lalaki, at doon sa ubasan akoʼy pinagtrabaho nila. Dahil ditoʼy napabayaan ko ang sarili ko. 
 
 
 
@@ -303,7 +303,7 @@ Kung hindi mo alam, O babaeng ubod ng ganda, sundan ang bakas ng <i class="trans
 
 
 
-O irog ko, tulad moʼy isang babaeng kabayo <i class="trans-change">na nagustuhan ng lalaking kabayo na humihila_ ng karwahe ng hari ng Egipto.[^e] 
+O irog ko, tulad moʼy isang babaeng kabayo <i class="trans-change">na nagustuhan ng lalaking kabayo na humihila_ ng karwahe ng hari ng Egipto. 
 
 
 
@@ -468,7 +468,7 @@ Parang samyo ng mira ang bango ng aking iniibig, habang sa aking dibdib siya ay 
 
 
 
-Ang mahal koʼy tulad ng kumpol ng mga bulaklak na henna, na namumulaklak doon sa ubasan ng En Gedi.[^f] 
+Ang mahal koʼy tulad ng kumpol ng mga bulaklak na henna, na namumulaklak doon sa ubasan ng En Gedi. 
 
 
 

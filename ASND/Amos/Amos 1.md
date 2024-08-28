@@ -72,7 +72,7 @@ Ito ang mensahe ni Amos na isang pastol ng mga tupa na taga-Tekoa. Ang mensaheng
 
 
 
-Sinabi ni Amos: "Umaatungal ang Panginoon mula sa Zion;[^a] dumadagundong ang tinig niya mula sa Jerusalem. Dahil dito natutuyo ang mga pastulan ng mga pastol at nalalanta ang <i class="trans-change">mga tanim sa_ tuktok ng <i class="trans-change">Bundok ng_ Carmel." ## Ang Parusa sa Bansang Syria 
+Sinabi ni Amos: "Umaatungal ang Panginoon mula sa Zion; dumadagundong ang tinig niya mula sa Jerusalem. Dahil dito natutuyo ang mga pastulan ng mga pastol at nalalanta ang <i class="trans-change">mga tanim sa_ tuktok ng <i class="trans-change">Bundok ng_ Carmel." ## Ang Parusa sa Bansang Syria 
 
 
 
@@ -105,7 +105,7 @@ Sinabi ni Amos: "Umaatungal ang Panginoon mula sa Zion;[^a] dumadagundong ang ti
 
 
 
-Ito ang sinasabi ng Panginoon <i class="trans-change">tungkol sa Syria_: "Dahil sa patuloy na pagkakasala ng mga taga-Damascus,[^b] parurusahan ko sila. Sapagkat pinagmalupitan nila ang mga taga-Gilead na <i class="trans-change">parang_ giniik ng tabla na may mga ngiping bakal sa ilalim. 
+Ito ang sinasabi ng Panginoon <i class="trans-change">tungkol sa Syria_: "Dahil sa patuloy na pagkakasala ng mga taga-Damascus, parurusahan ko sila. Sapagkat pinagmalupitan nila ang mga taga-Gilead na <i class="trans-change">parang_ giniik ng tabla na may mga ngiping bakal sa ilalim. 
 
 
 
@@ -171,7 +171,7 @@ Kaya susunugin ko ang palasyo ni <i class="trans-change">Haring_ Hazael at ang m
 
 
 
-Wawasakin ko ang pintuan ng Damascus at papatayin ko ang pinuno ng Lambak ng Aven at ng Bet Eden.[^c] Bibihagin at dadalhin sa Kir ang mga mamamayan ng Syria.[^d] <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito." ## Ang Parusa sa Bansang Filistia 
+Wawasakin ko ang pintuan ng Damascus at papatayin ko ang pinuno ng Lambak ng Aven at ng Bet Eden. Bibihagin at dadalhin sa Kir ang mga mamamayan ng Syria. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito." ## Ang Parusa sa Bansang Filistia 
 
 
 
@@ -204,7 +204,7 @@ Wawasakin ko ang pintuan ng Damascus at papatayin ko ang pinuno ng Lambak ng Ave
 
 
 
-Ito ang sinasabi ng Panginoon <i class="trans-change">tungkol sa Filistia_: "Dahil sa patuloy na pagkakasala ng mga taga-Gaza,[^e] parurusahan ko sila. Sapagkat binihag nila ang lahat ng naninirahan sa mga bayan at ipinagbili bilang mga alipin sa Edom. 
+Ito ang sinasabi ng Panginoon <i class="trans-change">tungkol sa Filistia_: "Dahil sa patuloy na pagkakasala ng mga taga-Gaza, parurusahan ko sila. Sapagkat binihag nila ang lahat ng naninirahan sa mga bayan at ipinagbili bilang mga alipin sa Edom. 
 
 
 
@@ -237,7 +237,7 @@ Ito ang sinasabi ng Panginoon <i class="trans-change">tungkol sa Filistia_: "Dah
 
 
 
-Kaya susunugin ko ang mga pader[^f] ng Gaza at ang matitibay na bahagi ng lungsod na ito. 
+Kaya susunugin ko ang mga pader ng Gaza at ang matitibay na bahagi ng lungsod na ito. 
 
 
 
@@ -270,7 +270,7 @@ Kaya susunugin ko ang mga pader[^f] ng Gaza at ang matitibay na bahagi ng lungso
 
 
 
-Lilipulin ko ang mga pinuno ng Ashdod at ng Ashkelon, at parurusahan ko ang mga taga-Ekron.[^g] At ang mga Filisteong makakatakas sa parusa ay mamamatay din. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito." ## Ang Parusa sa Bansang Tyre 
+Lilipulin ko ang mga pinuno ng Ashdod at ng Ashkelon, at parurusahan ko ang mga taga-Ekron. At ang mga Filisteong makakatakas sa parusa ay mamamatay din. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito." ## Ang Parusa sa Bansang Tyre 
 
 
 
@@ -402,7 +402,7 @@ Ito ang sinasabi ng Panginoon <i class="trans-change">tungkol sa Edom_: "Dahil s
 
 
 
-Kaya susunugin ko ang Teman at ang matitibay na bahagi ng Bozra."[^h] ## Ang Parusa sa Bansang Ammon 
+Kaya susunugin ko ang Teman at ang matitibay na bahagi ng Bozra." ## Ang Parusa sa Bansang Ammon 
 
 
 
@@ -468,7 +468,7 @@ Ito ang sinasabi ng Panginoon <i class="trans-change">tungkol sa Ammon_: "Dahil 
 
 
 
-Kaya susunugin ko ang mga pader ng Rabba[^i] at ang matitibay na bahagi ng lungsod na ito habang nagsisigawan ang mga kaaway na sumasalakay sa kanila, na parang umuugong na bagyo. 
+Kaya susunugin ko ang mga pader ng Rabba at ang matitibay na bahagi ng lungsod na ito habang nagsisigawan ang mga kaaway na sumasalakay sa kanila, na parang umuugong na bagyo. 
 
 
 

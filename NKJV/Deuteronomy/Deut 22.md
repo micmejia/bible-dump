@@ -10,19 +10,19 @@ next: ['Deut 23']
 
 
 ###### 1 
-"You shall not see your brother's ox or his sheep going astray, and [^a]hide yourself from them; you shall certainly bring them back to your brother. 
+"You shall not see your brother's ox or his sheep going astray, and hide yourself from them; you shall certainly bring them back to your brother. 
 
 ###### 2 
 And if your brother _is_ not near you, or if you do not know him, then you shall bring it to your own house, and it shall remain with you until your brother seeks it; then you shall restore it to him. 
 
 ###### 3 
-You shall do the same with his donkey, and so shall you do with his garment; with any lost thing of your brother's, which he has lost and you have found, you shall do likewise; you [^b]must not hide yourself. 
+You shall do the same with his donkey, and so shall you do with his garment; with any lost thing of your brother's, which he has lost and you have found, you shall do likewise; you must not hide yourself. 
 
 ###### 4 
 "You shall not see your brother's donkey or his ox fall down along the road, and hide yourself from them; you shall surely help him lift _them_ up again. 
 
 ###### 5 
-"A woman shall not wear anything that pertains to a man, nor shall a man put on a woman's garment, for all who do so _are_ [^c]an abomination to the Lord your God. 
+"A woman shall not wear anything that pertains to a man, nor shall a man put on a woman's garment, for all who do so _are_ an abomination to the Lord your God. 
 
 ###### 6 
 "If a bird's nest happens to be before you along the way, in any tree or on the ground, with young ones or eggs, with the mother sitting on the young or on the eggs, you shall not take the mother with the young; 
@@ -70,7 +70,7 @@ and they shall fine him one hundred _shekels_ of silver and give _them_ to the f
 "But if the thing is true, _and evidences of_ virginity are not found for the young woman, 
 
 ###### 21 
-then they shall bring out the young woman to the door of her father's house, and the men of her city shall stone her to death with stones, because she has done a disgraceful thing in Israel, to play the harlot in her father's house. So you shall [^d]put away the evil from among you. 
+then they shall bring out the young woman to the door of her father's house, and the men of her city shall stone her to death with stones, because she has done a disgraceful thing in Israel, to play the harlot in her father's house. So you shall put away the evil from among you. 
 
 ###### 22 
 "If a man is found lying with a woman married to a husband, then both of them shall die--the man that lay with the woman, and the woman; so you shall put away the evil from Israel. 

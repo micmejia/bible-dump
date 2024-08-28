@@ -13,7 +13,7 @@ next: ['Eph 4']
 For this reason I, Paul, the prisoner of Christ Jesus for you Gentiles-- 
 
 ###### 2 
-if indeed you have heard of the [^a]dispensation of the grace of God which was given to me for you, 
+if indeed you have heard of the dispensation of the grace of God which was given to me for you, 
 
 ###### 3 
 how that by revelation He made known to me the mystery (as I have briefly written already, 
@@ -34,10 +34,10 @@ of which I became a minister according to the gift of the grace of God given to 
 To me, who am less than the least of all the saints, this grace was given, that I should preach among the Gentiles the unsearchable riches of Christ, 
 
 ###### 9 
-and to make all see what _is_ the [^b]fellowship of the mystery, which from the beginning of the ages has been hidden in God who created all things [^c]through Jesus Christ; 
+and to make all see what _is_ the fellowship of the mystery, which from the beginning of the ages has been hidden in God who created all things through Jesus Christ; 
 
 ###### 10 
-to the intent that now the [^d]manifold wisdom of God might be made known by the church to the [^e]principalities and powers in the heavenly _places,_ 
+to the intent that now the manifold wisdom of God might be made known by the church to the principalities and powers in the heavenly _places,_ 
 
 ###### 11 
 according to the eternal purpose which He accomplished in Christ Jesus our Lord, 
@@ -49,7 +49,7 @@ in whom we have boldness and access with confidence through faith in Him.
 Therefore I ask that you do not lose heart at my tribulations for you, which is your glory. ## Appreciation of the Mystery 
 
 ###### 14 
-For this reason I bow my knees to the Father [^f]of our Lord Jesus Christ, 
+For this reason I bow my knees to the Father of our Lord Jesus Christ, 
 
 ###### 15 
 from whom the whole family in heaven and earth is named, 

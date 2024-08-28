@@ -72,7 +72,7 @@ Ito ang mensahe ng Panginoon para sa mga taga-Israel sa pamamagitan ni Malakias.
 
 
 
-<i class="trans-change">Sinabi ng Panginoon,_ "Mahal ko kayo. Pero nagtatanong pa kayo, 'Paano mo kami minahal?' Alalahanin ninyo na kahit magkapatid sina Esau at Jacob, minahal[^a] ko si Jacob 
+<i class="trans-change">Sinabi ng Panginoon,_ "Mahal ko kayo. Pero nagtatanong pa kayo, 'Paano mo kami minahal?' Alalahanin ninyo na kahit magkapatid sina Esau at Jacob, minahal ko si Jacob 
 
 
 
@@ -237,7 +237,7 @@ Sinabi ng Panginoong Makapangyarihan sa mga pari, "Iginagalang ng anak ang kanya
 
 
 
-Nilalapastangan ninyo ako sa pamamagitan ng paghahandog ng maruruming[^b] handog sa aking altar. Pero nagtatanong pa kayo, 'Paano naging marumi ang aming handog?'[^c] Naging marumi ang inyong handog dahil sinasabi ninyo na walang kabuluhan ang aking altar. 
+Nilalapastangan ninyo ako sa pamamagitan ng paghahandog ng maruruming handog sa aking altar. Pero nagtatanong pa kayo, 'Paano naging marumi ang aming handog?' Naging marumi ang inyong handog dahil sinasabi ninyo na walang kabuluhan ang aking altar. 
 
 
 
@@ -369,7 +369,7 @@ Sinabi ng Makapangyarihang Panginoon, "May isa sana sa mga pari nʼyo na magsara
 
 
 
-Ang totoo, pinupuri ang aking pangalan ng mga bansa, mula silangan hanggang kanluran.[^d] Kahit saan nagsusunog ang mga tao ng insenso at naghahandog[^e] ng malinis[^f] na handog sa akin na Panginoong Makapangyarihan. 
+Ang totoo, pinupuri ang aking pangalan ng mga bansa, mula silangan hanggang kanluran. Kahit saan nagsusunog ang mga tao ng insenso at naghahandog ng malinis na handog sa akin na Panginoong Makapangyarihan. 
 
 
 
@@ -435,7 +435,7 @@ Pero kayo, nilalapastangan ninyo ako, dahil sinasabi ninyong marumi ang aking al
 
 
 
-Sinasabi pa ninyo na nagsasawa na kayo sa paghahandog at binabalewala ninyo ang aking altar.[^g] Kaya hinahandugan ninyo ako ng mga hayop na may sugat,[^h] pilay o may sakit. Akala ba ninyoʼy tatanggapin ko iyan? 
+Sinasabi pa ninyo na nagsasawa na kayo sa paghahandog at binabalewala ninyo ang aking altar. Kaya hinahandugan ninyo ako ng mga hayop na may sugat, pilay o may sakit. Akala ba ninyoʼy tatanggapin ko iyan? 
 
 
 

@@ -49,7 +49,7 @@ Now the Pharisees and Sadducees came up to Jesus, and they asked Him to show the
 
 
 
-He replied to them, [^a]_When it is evening you say, It will be fair weather, for the sky is red,_ 
+He replied to them, _When it is evening you say, It will be fair weather, for the sky is red,_ 
 
 
 
@@ -196,7 +196,7 @@ But Jesus, aware of this, asked, Why are you discussing among yourselves the fac
 
 
 
-Do you not yet discern (perceive and understand)? Do you not remember the five loaves of the five thousand, and how many [[^b]small hand] baskets you gathered? 
+Do you not yet discern (perceive and understand)? Do you not remember the five loaves of the five thousand, and how many [small hand] baskets you gathered? 
 
 
 
@@ -217,7 +217,7 @@ Do you not yet discern (perceive and understand)? Do you not remember the five l
 
 
 
-Nor the seven loaves for the four thousand, and how many [[^c]large provision] baskets you took up? 
+Nor the seven loaves for the four thousand, and how many [large provision] baskets you took up? 
 
 
 
@@ -364,7 +364,7 @@ Simon Peter replied, You are the Christ, the Son of the living God.
 
 
 
-Then Jesus answered him, Blessed (happy, fortunate, and [^d]to be envied) are you, Simon Bar-Jonah. For flesh and blood [men] have not revealed this to you, but My Father Who is in heaven. 
+Then Jesus answered him, Blessed (happy, fortunate, and to be envied) are you, Simon Bar-Jonah. For flesh and blood [men] have not revealed this to you, but My Father Who is in heaven. 
 
 
 
@@ -385,7 +385,7 @@ Then Jesus answered him, Blessed (happy, fortunate, and [^d]to be envied) are yo
 
 
 
-And I tell you, you are [^e]Peter [Greek, _Petros_--a large piece of rock], and on this rock [Greek, _petra_--a [^f]huge rock like Gibraltar] I will build My church, and the gates of Hades (the powers of the [^g]infernal region) shall [^h]not overpower it [or be strong to its detriment or hold out against it]. 
+And I tell you, you are Peter [Greek, _Petros_--a large piece of rock], and on this rock [Greek, _petra_--a huge rock like Gibraltar] I will build My church, and the gates of Hades (the powers of the infernal region) shall not overpower it [or be strong to its detriment or hold out against it]. 
 
 
 
@@ -406,7 +406,7 @@ And I tell you, you are [^e]Peter [Greek, _Petros_--a large piece of rock], and 
 
 
 
-I will give you the keys of the kingdom of heaven; and whatever you bind (declare to be improper and unlawful) on earth [^i]must be what is already bound in heaven; and whatever you loose (declare lawful) on earth [^j]must be what is already loosed in heaven. 
+I will give you the keys of the kingdom of heaven; and whatever you bind (declare to be improper and unlawful) on earth must be what is already bound in heaven; and whatever you loose (declare lawful) on earth must be what is already loosed in heaven. 
 
 
 
@@ -448,7 +448,7 @@ Then He sternly _and_ strictly charged _and_ warned the disciples to tell no one
 
 
 
-From that time forth Jesus began [clearly] to show His disciples that He must go to Jerusalem and suffer many things at the hands of the elders and the high priests and scribes, and be killed, and on the third day be raised [^k]from death. 
+From that time forth Jesus began [clearly] to show His disciples that He must go to Jerusalem and suffer many things at the hands of the elders and the high priests and scribes, and be killed, and on the third day be raised from death. 
 
 
 
@@ -469,7 +469,7 @@ From that time forth Jesus began [clearly] to show His disciples that He must go
 
 
 
-Then Peter took Him aside [^l]to speak to Him privately and began to reprove and [^m]charge Him sharply, saying, God forbid, Lord! This must never happen to You! 
+Then Peter took Him aside to speak to Him privately and began to reprove and charge Him sharply, saying, God forbid, Lord! This must never happen to You! 
 
 
 
@@ -490,7 +490,7 @@ Then Peter took Him aside [^l]to speak to Him privately and began to reprove and
 
 
 
-But Jesus turned [^n]away from Peter and said to him, Get behind Me, Satan! You are in My way [an offense and a hindrance and a snare to Me]; for you are [^o]minding what partakes not of the nature _and_ quality of God, but of men. 
+But Jesus turned away from Peter and said to him, Get behind Me, Satan! You are in My way [an offense and a hindrance and a snare to Me]; for you are minding what partakes not of the nature _and_ quality of God, but of men. 
 
 
 
@@ -511,7 +511,7 @@ But Jesus turned [^n]away from Peter and said to him, Get behind Me, Satan! You 
 
 
 
-Then Jesus said to His disciples, If anyone desires to be My disciple, let him deny himself [disregard, lose sight of, and forget himself and his own interests] and take up his cross and follow Me [[^p]cleave steadfastly to Me, conform wholly to My example in living and, if need be, in dying, also]. 
+Then Jesus said to His disciples, If anyone desires to be My disciple, let him deny himself [disregard, lose sight of, and forget himself and his own interests] and take up his cross and follow Me [cleave steadfastly to Me, conform wholly to My example in living and, if need be, in dying, also]. 
 
 
 
@@ -553,7 +553,7 @@ For whoever is bent on saving his [temporal] life [his comfort and security here
 
 
 
-For what will it profit a man if he gains the whole world and forfeits his life [his blessed [^q]life in the kingdom of God]? Or what would a man give as an exchange for his [blessed] [^r]life [in the kingdom of God]? 
+For what will it profit a man if he gains the whole world and forfeits his life [his blessed life in the kingdom of God]? Or what would a man give as an exchange for his [blessed] life [in the kingdom of God]? 
 
 
 

@@ -31,7 +31,7 @@ that no one should take advantage of and defraud his brother in this matter, bec
 For God did not call us to uncleanness, but in holiness. 
 
 ###### 8 
-Therefore he who rejects _this_ does not reject man, but God, who[^a] has also given us His Holy Spirit. ## A Brotherly and Orderly Life 
+Therefore he who rejects _this_ does not reject man, but God, who has also given us His Holy Spirit. ## A Brotherly and Orderly Life 
 
 ###### 9 
 But concerning brotherly love you have no need that I should write to you, for you yourselves are taught by God to love one another; 
@@ -46,13 +46,13 @@ that you also aspire to lead a quiet life, to mind your own business, and to wor
 that you may walk properly toward those who are outside, and _that_ you may lack nothing. ## The Comfort of Christ's Coming 
 
 ###### 13 
-But I do not want you to be ignorant, brethren, concerning those who have fallen [^b]asleep, lest you sorrow as others who have no hope. 
+But I do not want you to be ignorant, brethren, concerning those who have fallen asleep, lest you sorrow as others who have no hope. 
 
 ###### 14 
-For if we believe that Jesus died and rose again, even so God will bring with Him those who [^c]sleep in Jesus. 
+For if we believe that Jesus died and rose again, even so God will bring with Him those who sleep in Jesus. 
 
 ###### 15 
-For this we say to you by the word of the Lord, that we who are alive _and_ remain until the coming of the Lord will by no means precede those who are [^d]asleep. 
+For this we say to you by the word of the Lord, that we who are alive _and_ remain until the coming of the Lord will by no means precede those who are asleep. 
 
 ###### 16 
 For the Lord Himself will descend from heaven with a shout, with the voice of an archangel, and with the trumpet of God. And the dead in Christ will rise first. 

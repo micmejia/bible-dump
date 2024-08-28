@@ -106,7 +106,7 @@ Sinabi ng Panginoon sa akin,
 
 
 
-O mga bundok ng Israel, mga burol, mga lambak, at mga kapatagan, dinggin ninyo ang sinasabi ng Panginoong Dios: Padadalhan ko kayo ng digmaan at gigibain ko ang mga sambahan sa matataas na lugar.[^a] 
+O mga bundok ng Israel, mga burol, mga lambak, at mga kapatagan, dinggin ninyo ang sinasabi ng Panginoong Dios: Padadalhan ko kayo ng digmaan at gigibain ko ang mga sambahan sa matataas na lugar. 
 
 
 

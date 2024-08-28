@@ -237,7 +237,7 @@ Higit bang mabuti ang Nineve kaysa sa <i class="trans-change">lungsod ng_ Tebes 
 
 
 
-Ang Etiopia[^a] at ang <i class="trans-change">buong_ Egipto ang pinanggagalingan ng lakas ng Tebes, at ang akala niyaʼy mananatili ito magpakailanman. Ang Put at ang Libya ay mga bansang kakampi rin niya. 
+Ang Etiopia at ang <i class="trans-change">buong_ Egipto ang pinanggagalingan ng lakas ng Tebes, at ang akala niyaʼy mananatili ito magpakailanman. Ang Put at ang Libya ay mga bansang kakampi rin niya. 
 
 
 

@@ -10,7 +10,7 @@ next: ['2 Sam 10']
 
 
 ###### 1 
-Now David said, "Is there still anyone who is left of the house of Saul, that I may show him [^a]kindness for Jonathan's sake?" 
+Now David said, "Is there still anyone who is left of the house of Saul, that I may show him kindness for Jonathan's sake?" 
 
 ###### 2 
 And _there was_ a servant of the house of Saul whose name _was_ Ziba. So when they had called him to David, the king said to him, "_Are_ you Ziba?" He said, "At your service!" 
@@ -25,7 +25,7 @@ So the king said to him, "Where _is_ he?" And Ziba said to the king, "Indeed he 
 Then King David sent and brought him out of the house of Machir the son of Ammiel, from Lo Debar. 
 
 ###### 6 
-Now when Mephibosheth[^b] the son of Jonathan, the son of Saul, had come to David, he fell on his face and prostrated himself. Then David said, "Mephibosheth?" And he answered, "Here is your servant!" 
+Now when Mephibosheth the son of Jonathan, the son of Saul, had come to David, he fell on his face and prostrated himself. Then David said, "Mephibosheth?" And he answered, "Here is your servant!" 
 
 ###### 7 
 So David said to him, "Do not fear, for I will surely show you kindness for Jonathan your father's sake, and will restore to you all the land of Saul your grandfather; and you shall eat bread at my table continually." 
@@ -40,7 +40,7 @@ And the king called to Ziba, Saul's servant, and said to him, "I have given to y
 You therefore, and your sons and your servants, shall work the land for him, and you shall bring in _the harvest,_ that your master's son may have food to eat. But Mephibosheth your master's son shall eat bread at my table always." Now Ziba had fifteen sons and twenty servants. 
 
 ###### 11 
-Then Ziba said to the king, "According to all that my lord the king has commanded his servant, so will your servant do." "As for Mephibosheth," _said the king,_ "he shall eat at [^c]my table like one of the king's sons." 
+Then Ziba said to the king, "According to all that my lord the king has commanded his servant, so will your servant do." "As for Mephibosheth," _said the king,_ "he shall eat at my table like one of the king's sons." 
 
 ###### 12 
 Mephibosheth had a young son whose name _was_ Micha. And all who dwelt in the house of Ziba _were_ servants of Mephibosheth. 

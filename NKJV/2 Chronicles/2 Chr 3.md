@@ -10,7 +10,7 @@ next: ['2 Chr 4']
 
 
 ###### 1 
-Now Solomon began to build the house of the Lord at Jerusalem on Mount Moriah, where [^a]_the Lord_ had appeared to his father David, at the place that David had prepared on the threshing floor of Ornan[^b] the Jebusite. 
+Now Solomon began to build the house of the Lord at Jerusalem on Mount Moriah, where _the Lord_ had appeared to his father David, at the place that David had prepared on the threshing floor of Ornan the Jebusite. 
 
 ###### 2 
 And he began to build on the second _day_ of the second month in the fourth year of his reign. 
@@ -19,10 +19,10 @@ And he began to build on the second _day_ of the second month in the fourth year
 This is the foundation which Solomon laid for building the house of God: The length _was_ sixty cubits (by cubits according to the former measure) and the width twenty cubits. 
 
 ###### 4 
-And the vestibule that _was_ in front _of_ [^c]_the sanctuary_ was twenty cubits long across the width of the house, and the height _was_ [^d]one hundred and twenty. He overlaid the inside with pure gold. 
+And the vestibule that _was_ in front _of_ _the sanctuary_ was twenty cubits long across the width of the house, and the height _was_ one hundred and twenty. He overlaid the inside with pure gold. 
 
 ###### 5 
-The larger [^e]room he paneled with cypress which he overlaid with fine gold, and he carved palm trees and chainwork on it. 
+The larger room he paneled with cypress which he overlaid with fine gold, and he carved palm trees and chainwork on it. 
 
 ###### 6 
 And he decorated the house with precious stones for beauty, and the gold _was_ gold from Parvaim. 
@@ -52,10 +52,10 @@ The wings of these cherubim spanned twenty cubits overall. They stood on their f
 And he made the veil of blue, purple, crimson, and fine linen, and wove cherubim into it. 
 
 ###### 15 
-Also he made in front of the [^f]temple two pillars [^g]thirty-five cubits [^h]high, and the capital that _was_ on the top of each of _them_ was five cubits. 
+Also he made in front of the temple two pillars thirty-five cubits high, and the capital that _was_ on the top of each of _them_ was five cubits. 
 
 ###### 16 
 He made wreaths of chainwork, as in the inner sanctuary, and put _them_ on top of the pillars; and he made one hundred pomegranates, and put _them_ on the wreaths of chainwork. 
 
 ###### 17 
-Then he set up the pillars before the temple, one on the right hand and the other on the left; he called the name of the one on the right hand [^i]Jachin, and the name of the one on the left [^j]Boaz.
+Then he set up the pillars before the temple, one on the right hand and the other on the left; he called the name of the one on the right hand Jachin, and the name of the one on the left Boaz.

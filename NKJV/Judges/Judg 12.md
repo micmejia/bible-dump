@@ -10,7 +10,7 @@ next: ['Judg 13']
 
 
 ###### 1 
-Then the men of Ephraim [^a]gathered together, crossed over toward Zaphon, and said to Jephthah, "Why did you cross over to fight against the people of Ammon, and did not call us to go with you? We will burn your house down on you with fire!" 
+Then the men of Ephraim gathered together, crossed over toward Zaphon, and said to Jephthah, "Why did you cross over to fight against the people of Ammon, and did not call us to go with you? We will burn your house down on you with fire!" 
 
 ###### 2 
 And Jephthah said to them, "My people and I were in a great struggle with the people of Ammon; and when I called you, you did not deliver me out of their hands. 
@@ -25,7 +25,7 @@ Now Jephthah gathered together all the men of Gilead and fought against Ephraim.
 The Gileadites seized the fords of the Jordan before the Ephraimites _arrived._ And when _any_ Ephraimite who escaped said, "Let me cross over," the men of Gilead would say to him, "_Are_ you an Ephraimite?" If he said, "No," 
 
 ###### 6 
-then they would say to him, "Then say, 'Shibboleth'!"[^b] And he would say, "Sibboleth," for he could not [^c]pronounce _it_ right. Then they would take him and kill him at the fords of the Jordan. There fell at that time forty-two thousand Ephraimites. 
+then they would say to him, "Then say, 'Shibboleth'!" And he would say, "Sibboleth," for he could not pronounce _it_ right. Then they would take him and kill him at the fords of the Jordan. There fell at that time forty-two thousand Ephraimites. 
 
 ###### 7 
 And Jephthah judged Israel six years. Then Jephthah the Gileadite died and was buried among the cities of Gilead. ## Ibzan, Elon, and Abdon 

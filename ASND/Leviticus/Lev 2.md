@@ -40,7 +40,7 @@ next: ['Lev 3']
 
 
 
-Kapag may nag-aalay ng handog ng pagpaparangal[^a] sa Panginoon, gagamitin niya ang magandang klaseng harina, at lalagyan niya ng langis[^b] at insenso. 
+Kapag may nag-aalay ng handog ng pagpaparangal sa Panginoon, gagamitin niya ang magandang klaseng harina, at lalagyan niya ng langis at insenso. 
 
 
 
@@ -73,7 +73,7 @@ Kapag may nag-aalay ng handog ng pagpaparangal[^a] sa Panginoon, gagamitin niya 
 
 
 
-Dadalhin niya ito sa mga paring mula sa angkan ni Aaron. Kukuha ang pari ng isang dakot na pinagsama-samang harina at langis, at susunugin niya ito sa altar kasama na ang insenso na inilagay sa harina. Susunugin niya ito na pinakaalaala sa Panginoon.[^c] Ang mabangong samyo ng handog na ito sa pamamagitan ng apoy[^d] ay makalulugod sa Panginoon. 
+Dadalhin niya ito sa mga paring mula sa angkan ni Aaron. Kukuha ang pari ng isang dakot na pinagsama-samang harina at langis, at susunugin niya ito sa altar kasama na ang insenso na inilagay sa harina. Susunugin niya ito na pinakaalaala sa Panginoon. Ang mabangong samyo ng handog na ito sa pamamagitan ng apoy ay makalulugod sa Panginoon. 
 
 
 
@@ -403,7 +403,7 @@ Huwag kayong mag-alay ng mga handog na may pampaalsa bilang handog ng pagpaparan
 
 
 
-Maaari ninyong ihandog ang pampaalsa o pulot bilang handog mula sa una ninyong ani,[^e] pero huwag ninyong susunugin sa altar. 
+Maaari ninyong ihandog ang pampaalsa o pulot bilang handog mula sa una ninyong ani, pero huwag ninyong susunugin sa altar. 
 
 
 
@@ -469,7 +469,7 @@ Lagyan ninyo ng asin ang lahat ng inyong handog ng pagpaparangal, dahil ang asin
 
 
 
-Kapag maghahandog kayo mula sa una ninyong ani para parangalan ang Panginoon, maghandog kayo ng mga giniling na butil[^f] na binusa. 
+Kapag maghahandog kayo mula sa una ninyong ani para parangalan ang Panginoon, maghandog kayo ng mga giniling na butil na binusa. 
 
 
 

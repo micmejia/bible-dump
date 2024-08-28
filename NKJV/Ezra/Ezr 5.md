@@ -13,10 +13,10 @@ next: ['Ezr 6']
 Then the prophet Haggai and Zechariah the son of Iddo, prophets, prophesied to the Jews who _were_ in Judah and Jerusalem, in the name of the God of Israel, _who was_ over them. 
 
 ###### 2 
-So Zerubbabel the son of Shealtiel and Jeshua the son of [^a]Jozadak rose up and began to build the house of God which _is_ in Jerusalem; and the prophets of God _were_ with them, helping them. 
+So Zerubbabel the son of Shealtiel and Jeshua the son of Jozadak rose up and began to build the house of God which _is_ in Jerusalem; and the prophets of God _were_ with them, helping them. 
 
 ###### 3 
-At the same time Tattenai the governor of _the region_ beyond [^b]the River and Shethar-Boznai and their companions came to them and spoke thus to them: "Who has commanded you to build this [^c]temple and finish this wall?" 
+At the same time Tattenai the governor of _the region_ beyond the River and Shethar-Boznai and their companions came to them and spoke thus to them: "Who has commanded you to build this temple and finish this wall?" 
 
 ###### 4 
 Then, accordingly, we told them the names of the men who were constructing this building. 
@@ -31,7 +31,7 @@ This is a copy of the letter that Tattenai sent: The governor of _the region_ be
 (They sent a letter to him, in which was written thus.) To Darius the king: All peace. 
 
 ###### 8 
-Let it be known to the king that we went into the province of Judea, to the [^d]temple of the great God, which is being built with [^e]heavy stones, and timber is being laid in the walls; and this work goes on diligently and prospers in their hands. 
+Let it be known to the king that we went into the province of Judea, to the temple of the great God, which is being built with heavy stones, and timber is being laid in the walls; and this work goes on diligently and prospers in their hands. 
 
 ###### 9 
 Then we asked those elders, _and_ spoke thus to them: "Who commanded you to build this temple and to finish these walls?" 
@@ -40,13 +40,13 @@ Then we asked those elders, _and_ spoke thus to them: "Who commanded you to buil
 We also asked them their names to inform you, that we might write the names of the men who _were_ chief among them. 
 
 ###### 11 
-And thus they returned us an answer, saying: "We are the servants of the God of heaven and earth, and we are rebuilding the [^f]temple that was built many years ago, which a great king of Israel built and completed. 
+And thus they returned us an answer, saying: "We are the servants of the God of heaven and earth, and we are rebuilding the temple that was built many years ago, which a great king of Israel built and completed. 
 
 ###### 12 
 But because our fathers provoked the God of heaven to wrath, He gave them into the hand of Nebuchadnezzar king of Babylon, the Chaldean, _who_ destroyed this temple and carried the people away to Babylon. 
 
 ###### 13 
-However, in the first year of Cyrus king of Babylon, King Cyrus issued a decree to build this [^g]house of God. 
+However, in the first year of Cyrus king of Babylon, King Cyrus issued a decree to build this house of God. 
 
 ###### 14 
 Also, the gold and silver articles of the house of God, which Nebuchadnezzar had taken from the temple that _was_ in Jerusalem and carried into the temple of Babylon--those King Cyrus took from the temple of Babylon, and they were given to one named Sheshbazzar, whom he had made governor. 

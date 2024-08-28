@@ -73,7 +73,7 @@ Minsan ay nananalangin si Jesus sa isang lugar. Pagkatapos niyang manalangin, si
 
 
 
-Sinabi ni Jesus sa kanila, "Kapag nananalangin kayo, ganito ang sabihin ninyo: 'Ama, sambahin nawa kayo ng mga tao.[^a] Nawaʼy magsimula na ang inyong paghahari. 
+Sinabi ni Jesus sa kanila, "Kapag nananalangin kayo, ganito ang sabihin ninyo: 'Ama, sambahin nawa kayo ng mga tao. Nawaʼy magsimula na ang inyong paghahari. 
 
 
 
@@ -370,7 +370,7 @@ Sapagkat ang lahat ng humihingi ay nakakatanggap; ang naghahanap ay nakakakita; 
 
 
 
-Kayong mga magulang,[^b] kung ang anak nʼyo ay humihingi ng isda, ahas ba ang ibibigay ninyo? 
+Kayong mga magulang, kung ang anak nʼyo ay humihingi ng isda, ahas ba ang ibibigay ninyo? 
 
 
 
@@ -502,7 +502,7 @@ Minsan, pinalayas ni Jesus ang isang masamang espiritu na sanhi ng pagkapipi ng 
 
 
 
-Pero may ilan sa kanila ang nagsabi, "Si Satanas[^c] na pinuno ng masasamang espiritu ang nagbigay sa kanya ng kapangyarihang magpalayas ng masasamang espiritu!" 
+Pero may ilan sa kanila ang nagsabi, "Si Satanas na pinuno ng masasamang espiritu ang nagbigay sa kanya ng kapangyarihang magpalayas ng masasamang espiritu!" 
 
 
 
@@ -535,7 +535,7 @@ Pero may ilan sa kanila ang nagsabi, "Si Satanas[^c] na pinuno ng masasamang esp
 
 
 
-Ang iba naman ay gustong subukin si Jesus, kaya hiniling nilang magpakita siya ng himala mula sa Dios[^d] bilang patunay <i class="trans-change">na sugo siya ng Dios_. 
+Ang iba naman ay gustong subukin si Jesus, kaya hiniling nilang magpakita siya ng himala mula sa Dios bilang patunay <i class="trans-change">na sugo siya ng Dios_. 
 
 
 
@@ -601,7 +601,7 @@ Pero alam niya ang kanilang iniisip, kaya sinabi niya sa kanila, "Kung ang <i cl
 
 
 
-Kaya kung si Satanas at ang mga kampon niya ay nagkakahati-hati at nag-aaway-away, paano mananatili ang kaharian niya? <i class="trans-change">Tinatanong ko ito sa inyo_ dahil sinasabi ninyo na nagpapalayas ako ng masasamang espiritu sa pamamagitan ng kapangyarihan ni Satanas.[^e] 
+Kaya kung si Satanas at ang mga kampon niya ay nagkakahati-hati at nag-aaway-away, paano mananatili ang kaharian niya? <i class="trans-change">Tinatanong ko ito sa inyo_ dahil sinasabi ninyo na nagpapalayas ako ng masasamang espiritu sa pamamagitan ng kapangyarihan ni Satanas. 
 
 
 
@@ -1030,7 +1030,7 @@ Kung paanong naging palatandaan si Jonas sa mga taga-Nineve, ganoon din <i class
 
 
 
-Sa Araw ng Paghuhukom, tatayo[^f] ang Reyna ng Timog[^g] at ipapamukha sa henerasyong ito ang kanilang kasalanan. Sapagkat nanggaling pa siya sa napakalayong lugar upang makinig sa karunungan ni Solomon. At ngayon, narito ang isang nakahihigit pa kay Solomon, <i class="trans-change">pero ayaw ninyong makinig sa kanya._ 
+Sa Araw ng Paghuhukom, tatayo ang Reyna ng Timog at ipapamukha sa henerasyong ito ang kanilang kasalanan. Sapagkat nanggaling pa siya sa napakalayong lugar upang makinig sa karunungan ni Solomon. At ngayon, narito ang isang nakahihigit pa kay Solomon, <i class="trans-change">pero ayaw ninyong makinig sa kanya._ 
 
 
 
@@ -1393,7 +1393,7 @@ Para maging malinis kayo, kaawaan ninyo ang mga mahihirap at tulungan nʼyo sila
 
 
 
-"Nakakaawa kayong mga Pariseo! Ibinibigay nga ninyo ang ikapu[^h] ng mga pampalasa[^i] at mga gulay ninyo, pero kinakaligtaan naman ninyo ang makatarungan <i class="trans-change">na pakikitungo sa kapwa_ at ang pag-ibig sa Dios. Magbigay kayo ng mga ikapu ninyo, pero huwag naman ninyong kaligtaang gawin ang mas mahalagang bagay. 
+"Nakakaawa kayong mga Pariseo! Ibinibigay nga ninyo ang ikapu ng mga pampalasa at mga gulay ninyo, pero kinakaligtaan naman ninyo ang makatarungan <i class="trans-change">na pakikitungo sa kapwa_ at ang pag-ibig sa Dios. Magbigay kayo ng mga ikapu ninyo, pero huwag naman ninyong kaligtaang gawin ang mas mahalagang bagay. 
 
 
 
@@ -1690,7 +1690,7 @@ Kaya mananagot ang henerasyong ito sa pagkamatay ng mga propeta ng Dios mula nan
 
 
 
-mula kay Abel hanggang kay Zacarias na pinatay sa pagitan ng altar[^j] at ng templo. Oo, tinitiyak ko sa inyo na parurusahan ang henerasyong ito dahil sa ginawa nila. 
+mula kay Abel hanggang kay Zacarias na pinatay sa pagitan ng altar at ng templo. Oo, tinitiyak ko sa inyo na parurusahan ang henerasyong ito dahil sa ginawa nila. 
 
 
 

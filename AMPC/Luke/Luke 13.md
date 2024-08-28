@@ -70,7 +70,7 @@ And He replied by saying to them, Do you think that these Galileans were greater
 
 
 
-I tell you, No; but unless you repent ([^a]change your mind for the better and heartily amend your ways, with abhorrence of your past sins), you will all likewise perish _and_ be lost [^b]eternally. 
+I tell you, No; but unless you repent (change your mind for the better and heartily amend your ways, with abhorrence of your past sins), you will all likewise perish _and_ be lost eternally. 
 
 
 
@@ -112,7 +112,7 @@ Or those eighteen on whom the tower in Siloam fell and killed them--do you think
 
 
 
-I tell you, No; but unless you repent ([^c]change your mind for the better and heartily amend your ways, with abhorrence of your past sins), you will all likewise perish _and_ be lost [^d]eternally. 
+I tell you, No; but unless you repent (change your mind for the better and heartily amend your ways, with abhorrence of your past sins), you will all likewise perish _and_ be lost eternally. 
 
 
 
@@ -154,7 +154,7 @@ And He told them this parable: A certain man had a fig tree, planted in his vine
 
 
 
-So he said to the vinedresser, See here! For these three years I have come looking for fruit on this fig tree and I find none. Cut it down! Why should it continue also to use up the ground [to [^e]deplete the soil, intercept the sun, and take up room]? 
+So he said to the vinedresser, See here! For these three years I have come looking for fruit on this fig tree and I find none. Cut it down! Why should it continue also to use up the ground [to deplete the soil, intercept the sun, and take up room]? 
 
 
 
@@ -238,7 +238,7 @@ Now Jesus was teaching in one of the synagogues on the Sabbath.
 
 
 
-And there was a woman there who for eighteen years had had an [^f]infirmity caused by a spirit ([^g]a demon of sickness). She was [^h]bent completely forward and utterly unable to straighten herself up _or_ to [^i]look upward. 
+And there was a woman there who for eighteen years had had an infirmity caused by a spirit (a demon of sickness). She was bent completely forward and utterly unable to straighten herself up _or_ to look upward. 
 
 
 
@@ -280,7 +280,7 @@ And when Jesus saw her, He called [her to Him] and said to her, Woman, you are r
 
 
 
-Then He laid [His] hands on her, and instantly she was made straight, and she [^j]recognized _and_ thanked _and_ praised God. 
+Then He laid [His] hands on her, and instantly she was made straight, and she recognized _and_ thanked _and_ praised God. 
 
 
 
@@ -301,7 +301,7 @@ Then He laid [His] hands on her, and instantly she was made straight, and she [^
 
 
 
-But the [^k]leader of the synagogue, indignant because Jesus had healed on the Sabbath, said to the crowd, There are six days on which work ought to be done; so come on those days and be cured, and not on the Sabbath day. 
+But the leader of the synagogue, indignant because Jesus had healed on the Sabbath, said to the crowd, There are six days on which work ought to be done; so come on those days and be cured, and not on the Sabbath day. 
 
 
 
@@ -406,7 +406,7 @@ This led Him to say, What is the kingdom of God like? And to what shall I compar
 
 
 
-It is like a grain of mustard seed, which a man took and planted in his own garden; and it grew and became a tree, and the wild birds [^l]found shelter _and_ roosted _and_ nested in its branches. 
+It is like a grain of mustard seed, which a man took and planted in his own garden; and it grew and became a tree, and the wild birds found shelter _and_ roosted _and_ nested in its branches. 
 
 
 
@@ -532,7 +532,7 @@ Strive to enter by the narrow door [force yourselves through it], for many, I te
 
 
 
-When once the Master of the house gets up and closes the door, and you begin to stand outside and to knock at the door [again and again], saying, Lord, open to us! He will answer you, I do not know where [[^m]what household--certainly not Mine] you come from. 
+When once the Master of the house gets up and closes the door, and you begin to stand outside and to knock at the door [again and again], saying, Lord, open to us! He will answer you, I do not know where [what household--certainly not Mine] you come from. 
 
 
 
@@ -574,7 +574,7 @@ Then you will begin to say, We ate and drank in Your presence, and You taught in
 
 
 
-But He will say, I tell you, I do not know where [[^n]what household--certainly not Mine] you come from; depart from Me, all you wrongdoers! 
+But He will say, I tell you, I do not know where [what household--certainly not Mine] you come from; depart from Me, all you wrongdoers! 
 
 
 

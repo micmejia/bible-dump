@@ -304,7 +304,7 @@ Pagkatapos, ipinatawag ni Moises sina Datan at Abiram, na mga anak ni Eliab. Per
 
 
 
-Hindi pa ba sapat na kinuha mo kami sa Egipto na maganda at masaganang lupain[^a] para patayin lang kami rito sa ilang? At ngayon, gusto mo pang maghari sa amin. 
+Hindi pa ba sapat na kinuha mo kami sa Egipto na maganda at masaganang lupain para patayin lang kami rito sa ilang? At ngayon, gusto mo pang maghari sa amin. 
 
 
 

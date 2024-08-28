@@ -39,7 +39,7 @@ next: ['Eph 2']
 
 
 
-<i class="trans-change">Mula kay_ Pablo na apostol ni Cristo Jesus ayon sa kalooban ng Dios. Mahal kong mga pinabanal[^a] sa Efeso, mga matatapat na nakay Cristo Jesus: 
+<i class="trans-change">Mula kay_ Pablo na apostol ni Cristo Jesus ayon sa kalooban ng Dios. Mahal kong mga pinabanal sa Efeso, mga matatapat na nakay Cristo Jesus: 
 
 
 

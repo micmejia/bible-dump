@@ -40,7 +40,7 @@ next: ['Isa 44']
 
 
 
-Pero ito ngayon ang sinasabi ng Panginoong lumikha sa iyo, O Israel: "Huwag kang matakot dahil ililigtas kita.[^a] Tinawag kita sa pangalan mo, at ikaw ay akin. 
+Pero ito ngayon ang sinasabi ng Panginoong lumikha sa iyo, O Israel: "Huwag kang matakot dahil ililigtas kita. Tinawag kita sa pangalan mo, at ikaw ay akin. 
 
 
 
@@ -106,7 +106,7 @@ Kapag dumaan ka sa tubig, akoʼy kasama mo. Kapag tatawid ka ng mga ilog, hindi 
 
 
 
-Sapagkat ako ang Panginoon mong Dios, ang Banal na Dios ng Israel, na iyong Tagapagligtas. Ibibigay ko <i class="trans-change">sa ibang bansa_ ang Egipto, ang Etiopia,[^b] at ang Seba bilang kapalit mo. 
+Sapagkat ako ang Panginoon mong Dios, ang Banal na Dios ng Israel, na iyong Tagapagligtas. Ibibigay ko <i class="trans-change">sa ibang bansa_ ang Egipto, ang Etiopia, at ang Seba bilang kapalit mo. 
 
 
 
@@ -469,7 +469,7 @@ Mula pa noon ako na ang Dios. Walang makakatakas sa aking mga kamay. Walang maka
 
 
 
-Ito ang sinasabi ng Panginoon ninyong Tagapagligtas, ang Banal na Dios ng Israel, "Para maligtas kayo, ipapasalakay ko ang Babilonia[^c] sa mga sundalo ng isang bansa, at tatakas sila sa pamamagitan ng mga barkong kanilang ipinagmamalaki. 
+Ito ang sinasabi ng Panginoon ninyong Tagapagligtas, ang Banal na Dios ng Israel, "Para maligtas kayo, ipapasalakay ko ang Babilonia sa mga sundalo ng isang bansa, at tatakas sila sa pamamagitan ng mga barkong kanilang ipinagmamalaki. 
 
 
 
@@ -667,7 +667,7 @@ dahil bagong bagay na ang gagawin ko. Itoʼy nangyayari at nakikita na ninyo. Ga
 
 
 
-Pararangalan ako ng maiilap na hayop, pati na ng mga asong-gubat[^d] at mga kuwago, dahil maglalagay ako ng mga bukal sa disyerto para may mainom ang mga pinili kong mamamayan. 
+Pararangalan ako ng maiilap na hayop, pati na ng mga asong-gubat at mga kuwago, dahil maglalagay ako ng mga bukal sa disyerto para may mainom ang mga pinili kong mamamayan. 
 
 
 

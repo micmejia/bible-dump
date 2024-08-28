@@ -403,7 +403,7 @@ Ngunit hindi siya magdadalawang-isip na ibagsak ang mga napopoot sa kanya. ## An
 
 
 
-Kung tutuparin at susundin ninyong mabuti ang mga utos, tutuparin ng Panginoon na inyong Dios ang kanyang kasunduan na mamahalin[^a] niya kayo, gaya ng ipinangako niya sa inyong mga ninuno. 
+Kung tutuparin at susundin ninyong mabuti ang mga utos, tutuparin ng Panginoon na inyong Dios ang kanyang kasunduan na mamahalin niya kayo, gaya ng ipinangako niya sa inyong mga ninuno. 
 
 
 

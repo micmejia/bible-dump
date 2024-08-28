@@ -259,7 +259,7 @@ Behold, you have heard what the kings of Assyria have done to all lands, destroy
 
 
 
-Have the gods of the nations delivered those whom my predecessors have destroyed, as [^a]Gozan, Haran [of Mesopotamia], Rezeph, and the children of Eden who were in Telassar? 
+Have the gods of the nations delivered those whom my predecessors have destroyed, as Gozan, Haran [of Mesopotamia], Rezeph, and the children of Eden who were in Telassar? 
 
 
 
@@ -763,7 +763,7 @@ For I will defend this city to save it, for My own sake and for the sake of My s
 
 
 
-And the [^b]Angel of the Lord went forth, and [^c]slew 185,000 in the camp of the Assyrians; and when [the living] arose early in the morning, behold, all these were dead bodies. 
+And the Angel of the Lord went forth, and slew 185,000 in the camp of the Assyrians; and when [the living] arose early in the morning, behold, all these were dead bodies. 
 
 
 

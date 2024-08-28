@@ -111,7 +111,7 @@ And His feet shall stand in that day upon the Mount of Olives, which lies before
 
 
 
-And you shall flee by the valley of My mountains, for the valley of the mountains shall reach to Azal, and you shall flee as you fled from before the earthquake in the days of Uzziah king of Judah; and the Lord my [Zechariah's] [^a]God shall come, and all the holy ones [saints and angels] with _Him_. 
+And you shall flee by the valley of My mountains, for the valley of the mountains shall reach to Azal, and you shall flee as you fled from before the earthquake in the days of Uzziah king of Judah; and the Lord my [Zechariah's] God shall come, and all the holy ones [saints and angels] with _Him_. 
 
 
 

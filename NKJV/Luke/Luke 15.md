@@ -13,7 +13,7 @@ next: ['Luke 16']
 Then all the tax collectors and the sinners drew near to Him to hear Him. 
 
 ###### 2 
-And the Pharisees and scribes complained, saying, "This Man [^a]receives sinners and eats with them." 
+And the Pharisees and scribes complained, saying, "This Man receives sinners and eats with them." 
 
 ###### 3 
 So He spoke this parable to them, saying: 
@@ -28,10 +28,10 @@ And when he has found _it,_ he lays _it_ on his shoulders, rejoicing.
 And when he comes home, he calls together _his_ friends and neighbors, saying to them, 'Rejoice with me, for I have found my sheep which was lost!' 
 
 ###### 7 
-I say to you that likewise there will be more joy in heaven over one sinner who repents than over ninety-nine [^b]just persons who need no repentance. ## The Parable of the Lost Coin 
+I say to you that likewise there will be more joy in heaven over one sinner who repents than over ninety-nine just persons who need no repentance. ## The Parable of the Lost Coin 
 
 ###### 8 
-"Or what woman, having ten silver [^c]coins, if she loses one coin, does not light a lamp, sweep the house, and search carefully until she finds _it?_ 
+"Or what woman, having ten silver coins, if she loses one coin, does not light a lamp, sweep the house, and search carefully until she finds _it?_ 
 
 ###### 9 
 And when she has found _it,_ she calls _her_ friends and neighbors together, saying, 'Rejoice with me, for I have found the piece which I lost!' 
@@ -46,7 +46,7 @@ Then He said: "A certain man had two sons.
 And the younger of them said to _his_ father, 'Father, give me the portion of goods that falls _to me._' So he divided to them _his_ livelihood. 
 
 ###### 13 
-And not many days after, the younger son gathered all together, journeyed to a far country, and there wasted his possessions with [^d]prodigal living. 
+And not many days after, the younger son gathered all together, journeyed to a far country, and there wasted his possessions with prodigal living. 
 
 ###### 14 
 But when he had spent all, there arose a severe famine in that land, and he began to be in want. 
@@ -55,7 +55,7 @@ But when he had spent all, there arose a severe famine in that land, and he bega
 Then he went and joined himself to a citizen of that country, and he sent him into his fields to feed swine. 
 
 ###### 16 
-And he would gladly have filled his stomach with the [^e]pods that the swine ate, and no one gave him _anything._ 
+And he would gladly have filled his stomach with the pods that the swine ate, and no one gave him _anything._ 
 
 ###### 17 
 "But when he came to himself, he said, 'How many of my father's hired servants have bread enough and to spare, and I perish with hunger! 
@@ -73,7 +73,7 @@ and I am no longer worthy to be called your son. Make me like one of your hired 
 And the son said to him, 'Father, I have sinned against heaven and in your sight, and am no longer worthy to be called your son.' 
 
 ###### 22 
-"But the father said to his servants, [^f]'Bring out the best robe and put _it_ on him, and put a ring on his hand and sandals on _his_ feet. 
+"But the father said to his servants, 'Bring out the best robe and put _it_ on him, and put a ring on his hand and sandals on _his_ feet. 
 
 ###### 23 
 And bring the fatted calf here and kill _it,_ and let us eat and be merry; 

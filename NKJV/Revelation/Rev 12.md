@@ -31,7 +31,7 @@ Then the woman fled into the wilderness, where she has a place prepared by God, 
 And war broke out in heaven: Michael and his angels fought with the dragon; and the dragon and his angels fought, 
 
 ###### 8 
-but they [^a]did not prevail, nor was a place found for [^b]them in heaven any longer. 
+but they did not prevail, nor was a place found for them in heaven any longer. 
 
 ###### 9 
 So the great dragon was cast out, that serpent of old, called the Devil and Satan, who deceives the whole world; he was cast to the earth, and his angels were cast out with him. 
@@ -58,4 +58,4 @@ So the serpent spewed water out of his mouth like a flood after the woman, that 
 But the earth helped the woman, and the earth opened its mouth and swallowed up the flood which the dragon had spewed out of his mouth. 
 
 ###### 17 
-And the dragon was enraged with the woman, and he went to make war with the rest of her offspring, who keep the commandments of God and have the testimony of Jesus [^c]Christ.
+And the dragon was enraged with the woman, and he went to make war with the rest of her offspring, who keep the commandments of God and have the testimony of Jesus Christ.

@@ -139,7 +139,7 @@ Ngunit itinuring <i class="trans-change">ng Dios_ si Jesus na higit kaysa kay Mo
 
 
 
-Alam natin na may gumawa ng bawat bahay. Ngunit[^a] ang Dios ang gumawa ng lahat ng bagay. 
+Alam natin na may gumawa ng bawat bahay. Ngunit ang Dios ang gumawa ng lahat ng bagay. 
 
 
 
@@ -370,7 +370,7 @@ Kaya galit na galit ako sa henerasyong ito at sinabi ko, "Laging lumalayo ang pu
 
 
 
-Kaya sa galit ko, isinumpa kong hindi nila makakamtan ang kapahingahang galing sa akin.' "[^b] 
+Kaya sa galit ko, isinumpa kong hindi nila makakamtan ang kapahingahang galing sa akin.' " 
 
 
 
@@ -502,7 +502,7 @@ Sapagkat kasama tayo ni Cristo kung mananatiling matatag ang pananampalataya nat
 
 
 
-Gaya nga ng nabanggit <i class="trans-change">sa Kasulatan_: "Kung marinig nʼyo ngayon ang tinig ng Dios, huwag ninyong patigasin ang puso nʼyo tulad <i class="trans-change">ng ginawa noon ng mga ninuno nʼyo_ nang naghimagsik sila laban <i class="trans-change">sa Dios_."[^c] 
+Gaya nga ng nabanggit <i class="trans-change">sa Kasulatan_: "Kung marinig nʼyo ngayon ang tinig ng Dios, huwag ninyong patigasin ang puso nʼyo tulad <i class="trans-change">ng ginawa noon ng mga ninuno nʼyo_ nang naghimagsik sila laban <i class="trans-change">sa Dios_." 
 
 
 

@@ -25,7 +25,7 @@ But what does the divine response say to him? "I have reserved for Myself seven 
 Even so then, at this present time there is a remnant according to the election of grace. 
 
 ###### 6 
-And if by grace, then _it is_ no longer of works; otherwise grace is no longer grace. [^a]But if _it is_ of works, it is no longer grace; otherwise work is no longer work. 
+And if by grace, then _it is_ no longer of works; otherwise grace is no longer grace. But if _it is_ of works, it is no longer grace; otherwise work is no longer work. 
 
 ###### 7 
 What then? Israel has not obtained what it seeks; but the elect have obtained it, and the rest were blinded. 
@@ -40,10 +40,10 @@ And David says: "Let their table become a snare and a trap, A stumbling block an
 Let their eyes be darkened, so that they do not see, And bow down their back always." ## Israel's Rejection Not Final 
 
 ###### 11 
-I say then, have they stumbled that they should fall? Certainly not! But through their [^b]fall, to provoke them to jealousy, salvation _has come_ to the Gentiles. 
+I say then, have they stumbled that they should fall? Certainly not! But through their fall, to provoke them to jealousy, salvation _has come_ to the Gentiles. 
 
 ###### 12 
-Now if their [^c]fall _is_ riches for the world, and their failure riches for the Gentiles, how much more their fullness! 
+Now if their fall _is_ riches for the world, and their failure riches for the Gentiles, how much more their fullness! 
 
 ###### 13 
 For I speak to you Gentiles; inasmuch as I am an apostle to the Gentiles, I magnify my ministry, 
@@ -58,7 +58,7 @@ For if their being cast away _is_ the reconciling of the world, what _will_ thei
 For if the firstfruit _is_ holy, the lump _is_ also _holy;_ and if the root _is_ holy, so _are_ the branches. 
 
 ###### 17 
-And if some of the branches were broken off, and you, being a wild olive tree, were grafted in among them, and with them became a partaker of the root and [^d]fatness of the olive tree, 
+And if some of the branches were broken off, and you, being a wild olive tree, were grafted in among them, and with them became a partaker of the root and fatness of the olive tree, 
 
 ###### 18 
 do not boast against the branches. But if you do boast, _remember that_ you do not support the root, but the root _supports_ you. 
@@ -73,7 +73,7 @@ Well _said._ Because of unbelief they were broken off, and you stand by faith. D
 For if God did not spare the natural branches, He may not spare you either. 
 
 ###### 22 
-Therefore consider the goodness and severity of God: on those who fell, severity; but toward you, [^e]goodness, if you continue in _His_ goodness. Otherwise you also will be cut off. 
+Therefore consider the goodness and severity of God: on those who fell, severity; but toward you, goodness, if you continue in _His_ goodness. Otherwise you also will be cut off. 
 
 ###### 23 
 And they also, if they do not continue in unbelief, will be grafted in, for God is able to graft them in again. 
@@ -82,10 +82,10 @@ And they also, if they do not continue in unbelief, will be grafted in, for God 
 For if you were cut out of the olive tree which is wild by nature, and were grafted contrary to nature into a cultivated olive tree, how much more will these, who _are_ natural _branches,_ be grafted into their own olive tree? 
 
 ###### 25 
-For I do not desire, brethren, that you should be ignorant of this mystery, lest you should be wise in your own [^f]opinion, that blindness in part has happened to Israel until the fullness of the Gentiles has come in. 
+For I do not desire, brethren, that you should be ignorant of this mystery, lest you should be wise in your own opinion, that blindness in part has happened to Israel until the fullness of the Gentiles has come in. 
 
 ###### 26 
-And so all Israel will be [^g]saved, as it is written: "The Deliverer will come out of Zion, And He will turn away ungodliness from Jacob; 
+And so all Israel will be saved, as it is written: "The Deliverer will come out of Zion, And He will turn away ungodliness from Jacob; 
 
 ###### 27 
 For this _is_ My covenant with them, When I take away their sins." 
@@ -103,7 +103,7 @@ For as you were once disobedient to God, yet have now obtained mercy through the
 even so these also have now been disobedient, that through the mercy shown you they also may obtain mercy. 
 
 ###### 32 
-For God has [^h]committed them all to disobedience, that He might have mercy on all. 
+For God has committed them all to disobedience, that He might have mercy on all. 
 
 ###### 33 
 Oh, the depth of the riches both of the wisdom and knowledge of God! How unsearchable _are_ His judgments and His ways past finding out! 

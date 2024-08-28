@@ -70,7 +70,7 @@ Then I saw what seemed to be a glassy sea blended with fire, and those who had c
 
 
 
-And they sang the song of Moses the servant of God and the song of the Lamb, saying, Mighty and marvelous are Your works, O Lord God the Omnipotent! Righteous (just) and true are Your ways, O Sovereign of the ages (King of the [^a]_nations_)! 
+And they sang the song of Moses the servant of God and the song of the Lamb, saying, Mighty and marvelous are Your works, O Lord God the Omnipotent! Righteous (just) and true are Your ways, O Sovereign of the ages (King of the _nations_)! 
 
 
 

@@ -112,7 +112,7 @@ When Christ, Who is our life, appears, then you also will appear with Him in [th
 
 
 
-So kill (deaden, [^a]deprive of power) the evil desire lurking in your members [those animal impulses and all that is earthly in you that is employed in sin]: sexual vice, impurity, sensual appetites, unholy desires, and all greed _and_ covetousness, for that is idolatry (the deifying of self and other created things instead of God). 
+So kill (deaden, deprive of power) the evil desire lurking in your members [those animal impulses and all that is earthly in you that is employed in sin]: sexual vice, impurity, sensual appetites, unholy desires, and all greed _and_ covetousness, for that is idolatry (the deifying of self and other created things instead of God). 
 
 
 
@@ -217,7 +217,7 @@ Do not lie to one another, for you have stripped off the old (unregenerate) self
 
 
 
-And have clothed yourselves with the new [spiritual self], which is [ever in the process of being] renewed _and_ remolded into [fuller and more perfect [^b]knowledge upon] knowledge after the image (the likeness) of Him Who created it. 
+And have clothed yourselves with the new [spiritual self], which is [ever in the process of being] renewed _and_ remolded into [fuller and more perfect knowledge upon] knowledge after the image (the likeness) of Him Who created it. 
 
 
 
@@ -238,7 +238,7 @@ And have clothed yourselves with the new [spiritual self], which is [ever in the
 
 
 
-[In this new creation all distinctions vanish.] There [^c]is no room for _and_ there can be neither Greek nor Jew, circumcised nor uncircumcised, [nor difference between nations whether alien] barbarians or Scythians [[^d]who are the most savage of all], nor slave or free man; but Christ is all and in all [[^e]everything and everywhere, to all men, without distinction of person]. 
+[In this new creation all distinctions vanish.] There is no room for _and_ there can be neither Greek nor Jew, circumcised nor uncircumcised, [nor difference between nations whether alien] barbarians or Scythians [who are the most savage of all], nor slave or free man; but Christ is all and in all [everything and everywhere, to all men, without distinction of person]. 
 
 
 

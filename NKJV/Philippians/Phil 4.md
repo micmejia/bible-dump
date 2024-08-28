@@ -15,13 +15,13 @@ Therefore, my beloved and longed-for brethren, my joy and crown, so stand fast i
 I implore Euodia and I implore Syntyche to be of the same mind in the Lord. 
 
 ###### 3 
-[^a]And I urge you also, true companion, help these women who labored with me in the gospel, with Clement also, and the rest of my fellow workers, whose names _are_ in the Book of Life. 
+And I urge you also, true companion, help these women who labored with me in the gospel, with Clement also, and the rest of my fellow workers, whose names _are_ in the Book of Life. 
 
 ###### 4 
 Rejoice in the Lord always. Again I will say, rejoice! 
 
 ###### 5 
-Let your [^b]gentleness be known to all men. The Lord _is_ at hand. 
+Let your gentleness be known to all men. The Lord _is_ at hand. 
 
 ###### 6 
 Be anxious for nothing, but in everything by prayer and supplication, with thanksgiving, let your requests be made known to God; 
@@ -36,16 +36,16 @@ Finally, brethren, whatever things are true, whatever things _are_ noble, whatev
 The things which you learned and received and heard and saw in me, these do, and the God of peace will be with you. ## Philippian Generosity 
 
 ###### 10 
-But I rejoiced in the Lord greatly that now at last your[^c] care for me has flourished again; though you surely did care, but you lacked opportunity. 
+But I rejoiced in the Lord greatly that now at last your care for me has flourished again; though you surely did care, but you lacked opportunity. 
 
 ###### 11 
 Not that I speak in regard to need, for I have learned in whatever state I am, to be content: 
 
 ###### 12 
-I know how to [^d]be abased, and I know how to [^e]abound. Everywhere and in all things I have learned both to be full and to be hungry, both to abound and to suffer need. 
+I know how to be abased, and I know how to abound. Everywhere and in all things I have learned both to be full and to be hungry, both to abound and to suffer need. 
 
 ###### 13 
-I can do all things through [^f]Christ who strengthens me. 
+I can do all things through Christ who strengthens me. 
 
 ###### 14 
 Nevertheless you have done well that you shared in my distress. 
@@ -60,7 +60,7 @@ For even in Thessalonica you sent _aid_ once and again for my necessities.
 Not that I seek the gift, but I seek the fruit that abounds to your account. 
 
 ###### 18 
-Indeed I [^g]have all and abound. I am full, having received from Epaphroditus the things _sent_ from you, a sweet-smelling aroma, an acceptable sacrifice, well pleasing to God. 
+Indeed I have all and abound. I am full, having received from Epaphroditus the things _sent_ from you, a sweet-smelling aroma, an acceptable sacrifice, well pleasing to God. 
 
 ###### 19 
 And my God shall supply all your need according to His riches in glory by Christ Jesus. 
@@ -75,4 +75,4 @@ Greet every saint in Christ Jesus. The brethren who are with me greet you.
 All the saints greet you, but especially those who are of Caesar's household. 
 
 ###### 23 
-The grace of our Lord Jesus Christ be with [^h]you all. Amen.
+The grace of our Lord Jesus Christ be with you all. Amen.

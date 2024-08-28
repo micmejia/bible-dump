@@ -19,7 +19,7 @@ Now Moses called all Israel and said to them: "You have seen all that the Lord d
 the great trials which your eyes have seen, the signs, and those great wonders. 
 
 ###### 4 
-Yet the Lord has not given you a heart to [^a]perceive and eyes to see and ears to hear, to this _very_ day. 
+Yet the Lord has not given you a heart to perceive and eyes to see and ears to hear, to this _very_ day. 
 
 ###### 5 
 And I have led you forty years in the wilderness. Your clothes have not worn out on you, and your sandals have not worn out on your feet. 
@@ -58,13 +58,13 @@ but with _him_ who stands here with us today before the Lord our God, as well as
 (for you know that we dwelt in the land of Egypt and that we came through the nations which you passed by, 
 
 ###### 17 
-and you saw their [^b]abominations and their idols which _were_ among them--wood and stone and silver and gold); 
+and you saw their abominations and their idols which _were_ among them--wood and stone and silver and gold); 
 
 ###### 18 
 so that there may not be among you man or woman or family or tribe, whose heart turns away today from the Lord our God, to go _and_ serve the gods of these nations, and that there may not be among you a root bearing bitterness or wormwood; 
 
 ###### 19 
-and so it may not happen, when he hears the words of this curse, that he blesses himself in his heart, saying, 'I shall have peace, even though I [^c]follow the dictates of my heart'--as though the drunkard could be included with the sober. 
+and so it may not happen, when he hears the words of this curse, that he blesses himself in his heart, saying, 'I shall have peace, even though I follow the dictates of my heart'--as though the drunkard could be included with the sober. 
 
 ###### 20 
 "The Lord would not spare him; for then the anger of the Lord and His jealousy would burn against that man, and every curse that is written in this book would settle on him, and the Lord would blot out his name from under heaven. 

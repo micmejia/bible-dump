@@ -280,7 +280,7 @@ Let not sin therefore rule as king in your mortal (short-lived, perishable) bodi
 
 
 
-Do not continue offering or yielding your bodily members [and [^a]faculties] to sin as instruments (tools) of wickedness. But offer _and_ yield yourselves to God as though you have been raised from the dead to [perpetual] life, and your bodily members [and [^b]faculties] to God, presenting them as implements of righteousness. 
+Do not continue offering or yielding your bodily members [and faculties] to sin as instruments (tools) of wickedness. But offer _and_ yield yourselves to God as though you have been raised from the dead to [perpetual] life, and your bodily members [and faculties] to God, presenting them as implements of righteousness. 
 
 
 
@@ -406,7 +406,7 @@ And having been set free from sin, you have become the servants of righteousness
 
 
 
-I am speaking in familiar human terms because of your natural limitations. For as you yielded your bodily members [and [^c]faculties] as servants to impurity and ever increasing lawlessness, so now yield your bodily members [and [^d]faculties] once for all as servants to righteousness (right being and doing) [which leads] to sanctification. 
+I am speaking in familiar human terms because of your natural limitations. For as you yielded your bodily members [and faculties] as servants to impurity and ever increasing lawlessness, so now yield your bodily members [and faculties] once for all as servants to righteousness (right being and doing) [which leads] to sanctification. 
 
 
 

@@ -49,7 +49,7 @@ _Is_ my strength the strength of stones? Or is my flesh bronze?
 _Is_ my help not within me? And is success driven from me? 
 
 ###### 14 
-"To him who is [^a]afflicted, kindness _should be shown_ by his friend, Even though he forsakes the fear of the Almighty. 
+"To him who is afflicted, kindness _should be shown_ by his friend, Even though he forsakes the fear of the Almighty. 
 
 ###### 15 
 My brothers have dealt deceitfully like a brook, Like the streams of the brooks that pass away, 
@@ -67,7 +67,7 @@ The paths of their way turn aside, They go nowhere and perish.
 The caravans of Tema look, The travelers of Sheba hope for them. 
 
 ###### 20 
-They are disappointed[^b] because they were confident; They come there and are confused. 
+They are disappointed because they were confident; They come there and are confused. 
 
 ###### 21 
 For now you are nothing, You see terror and are afraid. 
@@ -94,7 +94,7 @@ Yes, you overwhelm the fatherless, And you undermine your friend.
 Now therefore, be pleased to look at me; For I would never lie to your face. 
 
 ###### 29 
-Yield now, let there be no injustice! Yes, concede, my righteousness [^c]still stands! 
+Yield now, let there be no injustice! Yes, concede, my righteousness still stands! 
 
 ###### 30 
-Is there injustice on my tongue? Cannot my [^d]taste discern the unsavory?
+Is there injustice on my tongue? Cannot my taste discern the unsavory?

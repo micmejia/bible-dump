@@ -73,7 +73,7 @@ Sinabi ng Panginoon kay Noe, "Pumasok ka sa barko kasama ng buong pamilya mo. Sa
 
 
 
-Magdala ka ng pitong pares sa bawat uri ng malinis[^a] na hayop, pero isang pares lang sa bawat uri ng maruming hayop. 
+Magdala ka ng pitong pares sa bawat uri ng malinis na hayop, pero isang pares lang sa bawat uri ng maruming hayop. 
 
 
 

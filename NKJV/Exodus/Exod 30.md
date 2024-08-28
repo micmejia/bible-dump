@@ -16,7 +16,7 @@ next: ['Exod 31']
 A cubit _shall be_ its length and a cubit its width--it shall be square--and two cubits _shall be_ its height. Its horns _shall be_ of one piece with it. 
 
 ###### 3 
-And you shall overlay its top, its sides all around, and its horns with pure gold; and you shall make for it a [^a]molding of gold all around. 
+And you shall overlay its top, its sides all around, and its horns with pure gold; and you shall make for it a molding of gold all around. 
 
 ###### 4 
 Two gold rings you shall make for it, under the molding on both its sides. You shall place _them_ on its two sides, and they will be holders for the poles with which to bear it. 
@@ -31,7 +31,7 @@ And you shall put it before the veil that _is_ before the ark of the Testimony, 
 "Aaron shall burn on it sweet incense every morning; when he tends the lamps, he shall burn incense on it. 
 
 ###### 8 
-And when Aaron lights the lamps [^b]at twilight, he shall burn incense on it, a perpetual incense before the Lord throughout your generations. 
+And when Aaron lights the lamps at twilight, he shall burn incense on it, a perpetual incense before the Lord throughout your generations. 
 
 ###### 9 
 You shall not offer strange incense on it, or a burnt offering, or a grain offering; nor shall you pour a drink offering on it. 
@@ -43,25 +43,25 @@ And Aaron shall make atonement upon its horns once a year with the blood of the 
 Then the Lord spoke to Moses, saying: 
 
 ###### 12 
-"When you take the census of the children of Israel for their number, then every man shall give a[^c] ransom for himself to the Lord, when you number them, that there may be no plague among them when _you_ number them. 
+"When you take the census of the children of Israel for their number, then every man shall give a ransom for himself to the Lord, when you number them, that there may be no plague among them when _you_ number them. 
 
 ###### 13 
 This is what everyone among those who are numbered shall give: half a shekel according to the shekel of the sanctuary (a shekel _is_ twenty gerahs). The half-shekel _shall be_ an offering to the Lord. 
 
 ###### 14 
-Everyone included among those who are numbered, from twenty years old and above, shall give an [^d]offering to the Lord. 
+Everyone included among those who are numbered, from twenty years old and above, shall give an offering to the Lord. 
 
 ###### 15 
 The rich shall not give more and the poor shall not give less than half a shekel, when _you_ give an offering to the Lord, to make atonement for yourselves. 
 
 ###### 16 
-And you shall take the atonement money of the children of Israel, and shall [^e]appoint it for the service of the tabernacle of meeting, that it may be a memorial for the children of Israel before the Lord, to make atonement for yourselves." ## The Bronze Laver 
+And you shall take the atonement money of the children of Israel, and shall appoint it for the service of the tabernacle of meeting, that it may be a memorial for the children of Israel before the Lord, to make atonement for yourselves." ## The Bronze Laver 
 
 ###### 17 
 Then the Lord spoke to Moses, saying: 
 
 ###### 18 
-"You shall also make a [^f]laver of bronze, with its base also of bronze, for washing. You shall put it between the tabernacle of meeting and the altar. And you shall put water in it, 
+"You shall also make a laver of bronze, with its base also of bronze, for washing. You shall put it between the tabernacle of meeting and the altar. And you shall put water in it, 
 
 ###### 19 
 for Aaron and his sons shall wash their hands and their feet in water from it. 
@@ -70,7 +70,7 @@ for Aaron and his sons shall wash their hands and their feet in water from it.
 When they go into the tabernacle of meeting, or when they come near the altar to minister, to burn an offering made by fire to the Lord, they shall wash with water, lest they die. 
 
 ###### 21 
-So they shall wash their hands and their feet, lest they die. And it shall be a [^g]statute forever to them--to him and his descendants throughout their generations." ## The Holy Anointing Oil 
+So they shall wash their hands and their feet, lest they die. And it shall be a statute forever to them--to him and his descendants throughout their generations." ## The Holy Anointing Oil 
 
 ###### 22 
 Moreover the Lord spoke to Moses, saying: 
@@ -106,7 +106,7 @@ And you shall anoint Aaron and his sons, and consecrate them, that _they_ may mi
 It shall not be poured on man's flesh; nor shall you make _any other_ like it, according to its composition. It _is_ holy, _and_ it shall be holy to you. 
 
 ###### 33 
-Whoever [^h]compounds _any_ like it, or whoever puts _any_ of it on an outsider, shall be [^i]cut off from his people.' " ## The Incense 
+Whoever compounds _any_ like it, or whoever puts _any_ of it on an outsider, shall be cut off from his people.' " ## The Incense 
 
 ###### 34 
 And the Lord said to Moses: "Take sweet spices, stacte and onycha and galbanum, and pure frankincense with _these_ sweet spices; there shall be equal amounts of each. 
@@ -118,7 +118,7 @@ You shall make of these an incense, a compound according to the art of the perfu
 And you shall beat _some_ of it very fine, and put some of it before the Testimony in the tabernacle of meeting where I will meet with you. It shall be most holy to you. 
 
 ###### 37 
-But _as for_ the incense which you shall make, you shall not make any for yourselves, according to its [^j]composition. It shall be to you holy for the Lord. 
+But _as for_ the incense which you shall make, you shall not make any for yourselves, according to its composition. It shall be to you holy for the Lord. 
 
 ###### 38 
 Whoever makes _any_ like it, to smell it, he shall be cut off from his people."

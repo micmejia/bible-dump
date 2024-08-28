@@ -25,7 +25,7 @@ Why have you brought up the assembly of the Lord into this wilderness, that we a
 And why have you made us come up out of Egypt, to bring us to this evil place? It _is_ not a place of grain or figs or vines or pomegranates; nor _is_ there any water to drink." 
 
 ###### 6 
-So Moses and Aaron went from the presence of the assembly to the door of the tabernacle of meeting, and they [^a]fell on their faces. And the glory of the Lord appeared to them. 
+So Moses and Aaron went from the presence of the assembly to the door of the tabernacle of meeting, and they fell on their faces. And the glory of the Lord appeared to them. 
 
 ###### 7 
 Then the Lord spoke to Moses, saying, 
@@ -46,13 +46,13 @@ Then Moses lifted his hand and struck the rock twice with his rod; and water cam
 Then the Lord spoke to Moses and Aaron, "Because you did not believe Me, to hallow Me in the eyes of the children of Israel, therefore you shall not bring this assembly into the land which I have given them." 
 
 ###### 13 
-This _was_ the water of [^b]Meribah, because the children of Israel contended with the Lord, and He was hallowed among them. ## Passage Through Edom Refused 
+This _was_ the water of Meribah, because the children of Israel contended with the Lord, and He was hallowed among them. ## Passage Through Edom Refused 
 
 ###### 14 
 Now Moses sent messengers from Kadesh to the king of Edom. "Thus says your brother Israel: 'You know all the hardship that has befallen us, 
 
 ###### 15 
-how our fathers went down to Egypt, and we dwelt in Egypt a long time, and the Egyptians [^c]afflicted us and our fathers. 
+how our fathers went down to Egypt, and we dwelt in Egypt a long time, and the Egyptians afflicted us and our fathers. 
 
 ###### 16 
 When we cried out to the Lord, He heard our voice and sent the Angel and brought us up out of Egypt; now here we are in Kadesh, a city on the edge of your border. 
@@ -79,7 +79,7 @@ Now the children of Israel, the whole congregation, journeyed from Kadesh and ca
 And the Lord spoke to Moses and Aaron in Mount Hor by the border of the land of Edom, saying: 
 
 ###### 24 
-"Aaron shall [^d]be gathered to his people, for he shall not enter the land which I have given to the children of Israel, because you rebelled against My word at the water of Meribah. 
+"Aaron shall be gathered to his people, for he shall not enter the land which I have given to the children of Israel, because you rebelled against My word at the water of Meribah. 
 
 ###### 25 
 Take Aaron and Eleazar his son, and bring them up to Mount Hor; 

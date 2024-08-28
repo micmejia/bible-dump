@@ -16,13 +16,13 @@ Now it happened, as He went into the house of one of the rulers of the Pharisees
 And behold, there was a certain man before Him who had dropsy. 
 
 ###### 3 
-And Jesus, answering, spoke to the lawyers and Pharisees, saying, "Is it lawful to heal on the [^a]Sabbath?" 
+And Jesus, answering, spoke to the lawyers and Pharisees, saying, "Is it lawful to heal on the Sabbath?" 
 
 ###### 4 
 But they kept silent. And He took _him_ and healed him, and let him go. 
 
 ###### 5 
-Then He answered them, saying, "Which of you, having a [^b]donkey or an ox that has fallen into a pit, will not immediately pull him out on the Sabbath day?" 
+Then He answered them, saying, "Which of you, having a donkey or an ox that has fallen into a pit, will not immediately pull him out on the Sabbath day?" 
 
 ###### 6 
 And they could not answer Him regarding these things. ## Take the Lowly Place 
@@ -40,19 +40,19 @@ and he who invited you and him come and say to you, 'Give place to this man,' an
 But when you are invited, go and sit down in the lowest place, so that when he who invited you comes he may say to you, 'Friend, go up higher.' Then you will have glory in the presence of those who sit at the table with you. 
 
 ###### 11 
-For whoever exalts himself will be [^c]humbled, and he who humbles himself will be exalted." 
+For whoever exalts himself will be humbled, and he who humbles himself will be exalted." 
 
 ###### 12 
 Then He also said to him who invited Him, "When you give a dinner or a supper, do not ask your friends, your brothers, your relatives, nor rich neighbors, lest they also invite you back, and you be repaid. 
 
 ###### 13 
-But when you give a feast, invite _the_ poor, _the_ [^d]maimed, _the_ lame, _the_ blind. 
+But when you give a feast, invite _the_ poor, _the_ maimed, _the_ lame, _the_ blind. 
 
 ###### 14 
 And you will be blessed, because they cannot repay you; for you shall be repaid at the resurrection of the just." ## The Parable of the Great Supper 
 
 ###### 15 
-Now when one of those who sat at the table with Him heard these things, he said to Him, "Blessed _is_ he who shall eat [^e]bread in the kingdom of God!" 
+Now when one of those who sat at the table with Him heard these things, he said to Him, "Blessed _is_ he who shall eat bread in the kingdom of God!" 
 
 ###### 16 
 Then He said to him, "A certain man gave a great supper and invited many, 
@@ -70,7 +70,7 @@ And another said, 'I have bought five yoke of oxen, and I am going to test them.
 Still another said, 'I have married a wife, and therefore I cannot come.' 
 
 ###### 21 
-So that servant came and reported these things to his master. Then the master of the house, being angry, said to his servant, 'Go out quickly into the streets and lanes of the city, and bring in here _the_ poor and _the_ [^f]maimed and _the_ lame and _the_ blind.' 
+So that servant came and reported these things to his master. Then the master of the house, being angry, said to his servant, 'Go out quickly into the streets and lanes of the city, and bring in here _the_ poor and _the_ maimed and _the_ lame and _the_ blind.' 
 
 ###### 22 
 And the servant said, 'Master, it is done as you commanded, and still there is room.' 
@@ -112,4 +112,4 @@ So likewise, whoever of you does not forsake all that he has cannot be My discip
 "Salt _is_ good; but if the salt has lost its flavor, how shall it be seasoned? 
 
 ###### 35 
-It is neither fit for the land nor for the [^g]dunghill, _but_ men throw it out. He who has ears to hear, let him hear!"
+It is neither fit for the land nor for the dunghill, _but_ men throw it out. He who has ears to hear, let him hear!"

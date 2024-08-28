@@ -39,7 +39,7 @@ next: ['2 Thess 2']
 
 
 
-<i class="trans-change">Mula kay_ Pablo, <i class="trans-change">kasama_ sina Silas at Timoteo. <i class="trans-change">Mahal kong mga kapatid_ sa iglesya[^a] diyan sa Tesalonica na nasa Dios na ating Ama at sa Panginoong Jesu-Cristo: 
+<i class="trans-change">Mula kay_ Pablo, <i class="trans-change">kasama_ sina Silas at Timoteo. <i class="trans-change">Mahal kong mga kapatid_ sa iglesya diyan sa Tesalonica na nasa Dios na ating Ama at sa Panginoong Jesu-Cristo: 
 
 
 

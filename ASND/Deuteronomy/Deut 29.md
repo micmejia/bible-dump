@@ -106,7 +106,7 @@ Ipinatawag ni Moises ang lahat ng Israelita at sinabi sa kanila, "Nakita ninyo a
 
 
 
-Nakita ninyo noon ang matinding pagsubok[^a], ang mga himala at ang mga kamangha-manghang gawa. 
+Nakita ninyo noon ang matinding pagsubok, ang mga himala at ang mga kamangha-manghang gawa. 
 
 
 

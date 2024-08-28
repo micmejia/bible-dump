@@ -832,7 +832,7 @@ At nang nanganganak na siya, lumabas ang kamay ng isang sanggol. Tinalian ito ng
 
 
 
-Pero ipinasok ng sanggol ang kamay nito at ang kakambal niya ang unang lumabas. Sinabi ng manghihilot, "Nakipag-unahan kang lumabas." Kaya pinangalanan ang sanggol na Perez.[^a] 
+Pero ipinasok ng sanggol ang kamay nito at ang kakambal niya ang unang lumabas. Sinabi ng manghihilot, "Nakipag-unahan kang lumabas." Kaya pinangalanan ang sanggol na Perez. 
 
 
 
@@ -865,4 +865,4 @@ Pero ipinasok ng sanggol ang kamay nito at ang kakambal niya ang unang lumabas. 
 
 
 
-Pagkatapos, lumabas din ang kakambal na may taling pula sa kamay. At pinangalanan siyang Zera.[^b]
+Pagkatapos, lumabas din ang kakambal na may taling pula sa kamay. At pinangalanan siyang Zera.

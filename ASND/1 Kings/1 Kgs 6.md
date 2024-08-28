@@ -700,7 +700,7 @@ Kaya natatakpan lahat ng ginto ang loob ng templo, pati na ang altar na nasa loo
 
 
 
-Nagpalagay si Solomon sa loob ng Pinakabanal na Lugar ng dalawang kerubin[^a] na gawa sa kahoy na olibo, na ang bawat isa ay 15 talampakan ang taas. <sup class="versenum">24-26</sup>Ang dalawang kerubing ito ay magkasinglaki at magkasinghugis. Ang bawat isa ay may dalawang pakpak, at bawat pakpak ay may habang pitoʼt kalahating talampakan. Kaya ang haba mula sa dulo ng isang pakpak hanggang sa dulo ng isa pang pakpak ay 15 talampakan. 
+Nagpalagay si Solomon sa loob ng Pinakabanal na Lugar ng dalawang kerubin na gawa sa kahoy na olibo, na ang bawat isa ay 15 talampakan ang taas. <sup class="versenum">24-26</sup>Ang dalawang kerubing ito ay magkasinglaki at magkasinghugis. Ang bawat isa ay may dalawang pakpak, at bawat pakpak ay may habang pitoʼt kalahating talampakan. Kaya ang haba mula sa dulo ng isang pakpak hanggang sa dulo ng isa pang pakpak ay 15 talampakan. 
 
 
 

@@ -1063,7 +1063,7 @@ Sumagot sila, "Hindi ka namin babatuhin dahil sa mabubuti mong gawa, kundi dahil
 
 
 
-Sumagot si Jesus, "Hindi baʼt nakasulat sa Kautusan na <i class="trans-change">sinabi ng Dios na_ kayoʼy mga dios?[^a] 
+Sumagot si Jesus, "Hindi baʼt nakasulat sa Kautusan na <i class="trans-change">sinabi ng Dios na_ kayoʼy mga dios? 
 
 
 

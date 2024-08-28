@@ -28,7 +28,7 @@ next: ['Isa 33']
 
 
 
-Behold, a [^a]King will reign in righteousness, and princes will rule with justice. 
+Behold, a King will reign in righteousness, and princes will rule with justice. 
 
 
 
@@ -406,7 +406,7 @@ My people shall dwell in a peaceable habitation, in safe dwellings, and in quiet
 
 
 
-But it [the wrath of the Lord] shall hail, coming down overpoweringly on the forest [the army of the Assyrians], and the capital [^b]city shall be utterly humbled _and_ laid prostrate. 
+But it [the wrath of the Lord] shall hail, coming down overpoweringly on the forest [the army of the Assyrians], and the capital city shall be utterly humbled _and_ laid prostrate. 
 
 
 

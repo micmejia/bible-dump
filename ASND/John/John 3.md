@@ -106,7 +106,7 @@ Isang gabi, pumunta siya kay Jesus at sinabi, "Guro, alam naming isa kayong taga
 
 
 
-Sumagot si Jesus, "Sinasabi ko sa iyo ang totoo, hindi mapapabilang sa kaharian ng Dios ang hindi ipinanganak na muli."[^a] 
+Sumagot si Jesus, "Sinasabi ko sa iyo ang totoo, hindi mapapabilang sa kaharian ng Dios ang hindi ipinanganak na muli." 
 
 
 
@@ -469,7 +469,7 @@ Walang sinumang nakapunta sa langit maliban sa <i class="trans-change">akin na_ 
 
 
 
-<i class="trans-change">Sinabi pa ni Jesus,_ "Kung paanong itinaas ni Moises ang ahas <i class="trans-change">na tanso_ sa ilang ay ganoon din naman, <i class="trans-change">ako na_ Anak ng Tao ay dapat ding itaas,[^b] 
+<i class="trans-change">Sinabi pa ni Jesus,_ "Kung paanong itinaas ni Moises ang ahas <i class="trans-change">na tanso_ sa ilang ay ganoon din naman, <i class="trans-change">ako na_ Anak ng Tao ay dapat ding itaas, 
 
 
 
@@ -535,7 +535,7 @@ upang ang sinumang sumasampalataya sa akin ay magkaroon ng buhay na walang hangg
 
 
 
-"Sapagkat ganito ang pag-ibig ng Dios sa <i class="trans-change">mga tao sa_ sanlibutan: Ibinigay niya ang kanyang Bugtong[^c] na Anak, upang ang sinumang sumasampalataya sa kanya ay hindi mapahamak kundi magkaroon ng buhay na walang hanggan. 
+"Sapagkat ganito ang pag-ibig ng Dios sa <i class="trans-change">mga tao sa_ sanlibutan: Ibinigay niya ang kanyang Bugtong na Anak, upang ang sinumang sumasampalataya sa kanya ay hindi mapahamak kundi magkaroon ng buhay na walang hanggan. 
 
 
 
@@ -832,7 +832,7 @@ Nagbabautismo rin si Juan sa Enon, malapit sa Salim, dahil maraming tubig doon. 
 
 
 
-Ngayon, nagkaroon ng pagtatalo ang ilang tagasunod ni Juan at ang isang Judio tungkol sa bautismo.[^d] 
+Ngayon, nagkaroon ng pagtatalo ang ilang tagasunod ni Juan at ang isang Judio tungkol sa bautismo. 
 
 
 

@@ -112,7 +112,7 @@ You shall not behave so toward the Lord your God.
 
 
 
-But you shall seek the place which the Lord your God shall choose out of all your tribes to put His [^a]Name and make His dwelling place, and there shall you come; 
+But you shall seek the place which the Lord your God shall choose out of all your tribes to put His Name and make His dwelling place, and there shall you come; 
 
 
 
@@ -175,7 +175,7 @@ And there you shall eat before the Lord your God, and you shall rejoice in all t
 
 
 
-You [^b]shall not do according to all we do here [in the camp] this day, every man doing whatever looks right in his own eyes. 
+You shall not do according to all we do here [in the camp] this day, every man doing whatever looks right in his own eyes. 
 
 
 

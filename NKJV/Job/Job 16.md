@@ -13,10 +13,10 @@ next: ['Job 17']
 Then Job answered and said: 
 
 ###### 2 
-"I have heard many such things; Miserable[^a] comforters _are_ you all! 
+"I have heard many such things; Miserable comforters _are_ you all! 
 
 ###### 3 
-Shall [^b]words of wind have an end? Or what provokes you that you answer? 
+Shall words of wind have an end? Or what provokes you that you answer? 
 
 ###### 4 
 I also could speak as you _do,_ If your soul were in my soul's place. I could heap up words against you, And shake my head at you; 
@@ -46,16 +46,16 @@ God has delivered me to the ungodly, And turned me over to the hands of the wick
 I was at ease, but He has shattered me; He also has taken _me_ by my neck, and shaken me to pieces; He has set me up for His target, 
 
 ###### 13 
-His archers surround me. He pierces my [^c]heart and does not pity; He pours out my gall on the ground. 
+His archers surround me. He pierces my heart and does not pity; He pours out my gall on the ground. 
 
 ###### 14 
-He breaks me with wound upon wound; He runs at me like a [^d]warrior. 
+He breaks me with wound upon wound; He runs at me like a warrior. 
 
 ###### 15 
-"I have sewn sackcloth over my skin, And laid my [^e]head in the dust. 
+"I have sewn sackcloth over my skin, And laid my head in the dust. 
 
 ###### 16 
-My face is [^f]flushed from weeping, And on my eyelids _is_ the shadow of death; 
+My face is flushed from weeping, And on my eyelids _is_ the shadow of death; 
 
 ###### 17 
 Although no violence _is_ in my hands, And my prayer _is_ pure. 
@@ -70,7 +70,7 @@ Surely even now my witness _is_ in heaven, And my evidence _is_ on high.
 My friends scorn me; My eyes pour out _tears_ to God. 
 
 ###### 21 
-Oh, that one might plead for a man with God, As a man _pleads_ for his [^g]neighbor! 
+Oh, that one might plead for a man with God, As a man _pleads_ for his neighbor! 
 
 ###### 22 
 For when a few years are finished, I shall go the way of no return.

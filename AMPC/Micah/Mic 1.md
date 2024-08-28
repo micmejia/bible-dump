@@ -132,7 +132,7 @@ All this is because of the transgression of Jacob and the sins of the house of I
 
 
 
-Therefore I [the Lord] will make Samaria a [^a]heap in the open country, a place for planting vineyards; and I will pour down into the ravine her stones and lay bare her foundations. 
+Therefore I [the Lord] will make Samaria a heap in the open country, a place for planting vineyards; and I will pour down into the ravine her stones and lay bare her foundations. 
 
 
 
@@ -216,7 +216,7 @@ For [Samaria's] wounds are incurable and they come even to Judah; He [the Lord] 
 
 
 
-In Gath [a city in Philistia] announce it not; _in_ [^b]_Acco_ weep not at all, [betraying your grief to foreigners; but among your own people] in Beth-le-aphrah [house of dust] roll yourself in the dust. 
+In Gath [a city in Philistia] announce it not; _in_ _Acco_ weep not at all, [betraying your grief to foreigners; but among your own people] in Beth-le-aphrah [house of dust] roll yourself in the dust. 
 
 
 

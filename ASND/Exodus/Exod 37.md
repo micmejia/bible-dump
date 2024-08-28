@@ -106,7 +106,7 @@ Binalutan ito ng purong ginto sa loob at labas, at nilagyan ng hinulmang ginto a
 
 
 
-Ginawaan din nila ito ng apat na argolyang[^a] ginto at ikinabit sa apat na paa nito. 
+Ginawaan din nila ito ng apat na argolyang ginto at ikinabit sa apat na paa nito. 
 
 
 
@@ -337,7 +337,7 @@ Binalutan ito ng purong ginto at nilagyan ng hinulmang ginto ang palibot nito.
 
 
 
-Nilagyan din nila ng sinepa[^b] ang bawat gilid. Mga apat na pulgada ang lapad at nilagyan din nila ng hinulmang ginto ang sinepa. 
+Nilagyan din nila ng sinepa ang bawat gilid. Mga apat na pulgada ang lapad at nilagyan din nila ng hinulmang ginto ang sinepa. 
 
 
 

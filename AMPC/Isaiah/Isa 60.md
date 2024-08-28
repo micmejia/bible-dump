@@ -112,7 +112,7 @@ Lift up your eyes round about you and see! They all gather themselves together, 
 
 
 
-Then you shall see and be radiant, and your heart shall thrill _and_ tremble with joy [at the glorious deliverance] and be enlarged; because the abundant wealth of the [Dead] [^a]Sea shall be turned to you, unto you shall the nations come with their treasures. 
+Then you shall see and be radiant, and your heart shall thrill _and_ tremble with joy [at the glorious deliverance] and be enlarged; because the abundant wealth of the [Dead] Sea shall be turned to you, unto you shall the nations come with their treasures. 
 
 
 

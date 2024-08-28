@@ -10,13 +10,13 @@ next: ['Heb 7']
 
 
 ###### 1 
-Therefore, leaving the discussion of the elementary _principles_ of Christ, let us go on to [^a]perfection, not laying again the foundation of repentance from dead works and of faith toward God, 
+Therefore, leaving the discussion of the elementary _principles_ of Christ, let us go on to perfection, not laying again the foundation of repentance from dead works and of faith toward God, 
 
 ###### 2 
 of the doctrine of baptisms, of laying on of hands, of resurrection of the dead, and of eternal judgment. 
 
 ###### 3 
-And this [^b]we will do if God permits. 
+And this we will do if God permits. 
 
 ###### 4 
 For _it is_ impossible for those who were once enlightened, and have tasted the heavenly gift, and have become partakers of the Holy Spirit, 
@@ -25,7 +25,7 @@ For _it is_ impossible for those who were once enlightened, and have tasted the 
 and have tasted the good word of God and the powers of the age to come, 
 
 ###### 6 
-[^c]if they fall away, to renew them again to repentance, since they crucify again for themselves the Son of God, and put _Him_ to an open shame. 
+if they fall away, to renew them again to repentance, since they crucify again for themselves the Son of God, and put _Him_ to an open shame. 
 
 ###### 7 
 For the earth which drinks in the rain that often comes upon it, and bears herbs useful for those by whom it is cultivated, receives blessing from God; 
@@ -37,13 +37,13 @@ but if it bears thorns and briers, _it is_ rejected and near to being cursed, wh
 But, beloved, we are confident of better things concerning you, yes, things that accompany salvation, though we speak in this manner. 
 
 ###### 10 
-For God _is_ not unjust to forget your work and [^d]labor of love which you have shown toward His name, _in that_ you have ministered to the saints, and do minister. 
+For God _is_ not unjust to forget your work and labor of love which you have shown toward His name, _in that_ you have ministered to the saints, and do minister. 
 
 ###### 11 
 And we desire that each one of you show the same diligence to the full assurance of hope until the end, 
 
 ###### 12 
-that you do not become [^e]sluggish, but imitate those who through faith and patience inherit the promises. ## God's Infallible Purpose in Christ 
+that you do not become sluggish, but imitate those who through faith and patience inherit the promises. ## God's Infallible Purpose in Christ 
 
 ###### 13 
 For when God made a promise to Abraham, because He could swear by no one greater, He swore by Himself, 
@@ -58,10 +58,10 @@ And so, after he had patiently endured, he obtained the promise.
 For men indeed swear by the greater, and an oath for confirmation _is_ for them an end of all dispute. 
 
 ###### 17 
-Thus God, determining to show more abundantly to the heirs of promise the [^f]immutability of His counsel, [^g]confirmed _it_ by an oath, 
+Thus God, determining to show more abundantly to the heirs of promise the immutability of His counsel, confirmed _it_ by an oath, 
 
 ###### 18 
-that by two [^h]immutable things, in which it _is_ impossible for God to lie, we [^i]might have strong consolation, who have fled for refuge to lay hold of the hope set before _us._ 
+that by two immutable things, in which it _is_ impossible for God to lie, we might have strong consolation, who have fled for refuge to lay hold of the hope set before _us._ 
 
 ###### 19 
 This _hope_ we have as an anchor of the soul, both sure and steadfast, and which enters the _Presence_ behind the veil, 

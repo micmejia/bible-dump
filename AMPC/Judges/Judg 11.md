@@ -826,7 +826,7 @@ And he said, Go. And he sent her away for two months, and she went with her comp
 
 
 
-At the end of two months she returned to her father, who [^a]did with her according to his vow which he had vowed. She never mated with a man. This became a custom in Israel-- 
+At the end of two months she returned to her father, who did with her according to his vow which he had vowed. She never mated with a man. This became a custom in Israel-- 
 
 
 

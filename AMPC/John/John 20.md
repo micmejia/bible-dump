@@ -154,7 +154,7 @@ Then Simon Peter came up, following him, and went into the tomb and saw the line
 
 
 
-But the burial napkin (kerchief) which had been around Jesus' head, was not lying with the other linen cloths, but was [still] [^a]rolled up (wrapped round and round) in a place by itself. 
+But the burial napkin (kerchief) which had been around Jesus' head, was not lying with the other linen cloths, but was [still] rolled up (wrapped round and round) in a place by itself. 
 
 
 
@@ -490,7 +490,7 @@ And having said this, He breathed on them and said to them, Receive the Holy Spi
 
 
 
-[Now having received the Holy Spirit, and being [^b]led and directed by Him] if you forgive the sins of anyone, they are forgiven; if you retain the sins of anyone, they are retained. 
+[Now having received the Holy Spirit, and being led and directed by Him] if you forgive the sins of anyone, they are forgiven; if you retain the sins of anyone, they are retained. 
 
 
 
@@ -616,7 +616,7 @@ Thomas answered Him, My Lord and my God!
 
 
 
-Jesus said to him, Because you have seen Me, _Thomas_, do you now believe (trust, have faith)? Blessed _and_ happy _and_ [^c]to be envied are those who have never seen Me and yet have believed _and_ adhered to _and_ trusted _and_ relied on Me. 
+Jesus said to him, Because you have seen Me, _Thomas_, do you now believe (trust, have faith)? Blessed _and_ happy _and_ to be envied are those who have never seen Me and yet have believed _and_ adhered to _and_ trusted _and_ relied on Me. 
 
 
 
@@ -658,4 +658,4 @@ There are also many other signs _and_ miracles which Jesus performed in the pres
 
 
 
-But these are written (recorded) in order that you may believe that Jesus is the Christ (the Anointed One), the Son of God, and that through believing _and_ cleaving to _and_ trusting _and_ relying upon Him you may have life through (in) His name [[^d]through Who He is].
+But these are written (recorded) in order that you may believe that Jesus is the Christ (the Anointed One), the Son of God, and that through believing _and_ cleaving to _and_ trusting _and_ relying upon Him you may have life through (in) His name [through Who He is].

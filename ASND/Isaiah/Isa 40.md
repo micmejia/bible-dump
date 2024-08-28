@@ -931,7 +931,7 @@ Kayong mga mamamayan ng Israel na lahi ni Jacob, bakit kayo nagrereklamo na ang 
 
 
 
-Hindi nʼyo ba alam o hindi nʼyo ba narinig na ang Panginoon ay walang hanggang Dios na lumikha ng buong mundo?[^a] Hindi siya napapagod o nanghihina at walang nakakaarok ng kanyang isip. 
+Hindi nʼyo ba alam o hindi nʼyo ba narinig na ang Panginoon ay walang hanggang Dios na lumikha ng buong mundo? Hindi siya napapagod o nanghihina at walang nakakaarok ng kanyang isip. 
 
 
 

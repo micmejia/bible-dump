@@ -13,16 +13,16 @@ next: ['Gen 17']
 Now Sarai, Abram's wife, had borne him no _children._ And she had an Egyptian maidservant whose name was Hagar. 
 
 ###### 2 
-So Sarai said to Abram, "See now, the Lord has restrained me from bearing _children._ Please, go in to my maid; perhaps I shall [^a]obtain children by her." And Abram heeded the voice of Sarai. 
+So Sarai said to Abram, "See now, the Lord has restrained me from bearing _children._ Please, go in to my maid; perhaps I shall obtain children by her." And Abram heeded the voice of Sarai. 
 
 ###### 3 
 Then Sarai, Abram's wife, took Hagar her maid, the Egyptian, and gave her to her husband Abram to be his wife, after Abram had dwelt ten years in the land of Canaan. 
 
 ###### 4 
-So he went in to Hagar, and she conceived. And when she saw that she had conceived, her mistress became despised in her [^b]eyes. 
+So he went in to Hagar, and she conceived. And when she saw that she had conceived, her mistress became despised in her eyes. 
 
 ###### 5 
-Then Sarai said to Abram, [^c]"My wrong _be_ upon you! I gave my maid into your embrace; and when she saw that she had conceived, I became despised in her eyes. The Lord judge between you and me." 
+Then Sarai said to Abram, "My wrong _be_ upon you! I gave my maid into your embrace; and when she saw that she had conceived, I became despised in her eyes. The Lord judge between you and me." 
 
 ###### 6 
 So Abram said to Sarai, "Indeed your maid _is_ in your hand; do to her as you please." And when Sarai dealt harshly with her, she fled from her presence. 
@@ -40,16 +40,16 @@ The Angel of the Lord said to her, "Return to your mistress, and submit yourself
 Then the Angel of the Lord said to her, "I will multiply your descendants exceedingly, so that they shall not be counted for multitude." 
 
 ###### 11 
-And the Angel of the Lord said to her: "Behold, you _are_ with child, And you shall bear a son. You shall call his name [^d]Ishmael, Because the Lord has heard your affliction. 
+And the Angel of the Lord said to her: "Behold, you _are_ with child, And you shall bear a son. You shall call his name Ishmael, Because the Lord has heard your affliction. 
 
 ###### 12 
 He shall be a wild man; His hand _shall be_ against every man, And every man's hand against him. And he shall dwell in the presence of all his brethren." 
 
 ###### 13 
-Then she called the name of the Lord who spoke to her, You-Are-[^e]the-God-Who-Sees; for she said, "Have I also here [^f]seen Him who sees me?" 
+Then she called the name of the Lord who spoke to her, You-Are-the-God-Who-Sees; for she said, "Have I also here seen Him who sees me?" 
 
 ###### 14 
-Therefore the well was called Beer Lahai Roi;[^g] observe, _it is_ between Kadesh and Bered. 
+Therefore the well was called Beer Lahai Roi; observe, _it is_ between Kadesh and Bered. 
 
 ###### 15 
 So Hagar bore Abram a son; and Abram named his son, whom Hagar bore, Ishmael. 

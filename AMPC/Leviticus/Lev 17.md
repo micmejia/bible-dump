@@ -91,7 +91,7 @@ If any man of the house of Israel kills an ox or lamb or goat in the camp or kil
 
 
 
-And does not bring it to the door of the Tent of Meeting to offer it as an offering to the Lord before the Lord's tabernacle, [guilt for shedding] [^a]blood shall be imputed to that man; he has shed blood and shall be cut off from among his people. 
+And does not bring it to the door of the Tent of Meeting to offer it as an offering to the Lord before the Lord's tabernacle, [guilt for shedding] blood shall be imputed to that man; he has shed blood and shall be cut off from among his people. 
 
 
 

@@ -12,7 +12,7 @@ up: ['Leviticus']
 Now the Lord spoke to Moses, saying, 
 
 ###### 2 
-"Speak to the children of Israel, and say to them: 'When a man [^a]consecrates by a vow certain persons to the Lord, according to your [^b]valuation, 
+"Speak to the children of Israel, and say to them: 'When a man consecrates by a vow certain persons to the Lord, according to your valuation, 
 
 ###### 3 
 if your valuation is of a male from twenty years old up to sixty years old, then your valuation shall be fifty shekels of silver, according to the shekel of the sanctuary. 
@@ -48,13 +48,13 @@ and the priest shall set a value for it, whether it is good or bad; as you, the 
 But if he _wants_ at all _to_ redeem it, then he must add one-fifth to your valuation. 
 
 ###### 14 
-'And when a man [^c]dedicates his house _to be_ holy to the Lord, then the priest shall set a value for it, whether it is good or bad; as the priest values it, so it shall stand. 
+'And when a man dedicates his house _to be_ holy to the Lord, then the priest shall set a value for it, whether it is good or bad; as the priest values it, so it shall stand. 
 
 ###### 15 
-If he who dedicated it _wants to_ [^d]redeem his house, then he must add one-fifth of the money of your valuation to it, and it shall be his. 
+If he who dedicated it _wants to_ redeem his house, then he must add one-fifth of the money of your valuation to it, and it shall be his. 
 
 ###### 16 
-'If a man [^e]dedicates to the Lord _part_ of a field of his possession, then your valuation shall be according to the seed for it. A homer of barley seed _shall be valued_ at fifty shekels of silver. 
+'If a man dedicates to the Lord _part_ of a field of his possession, then your valuation shall be according to the seed for it. A homer of barley seed _shall be valued_ at fifty shekels of silver. 
 
 ###### 17 
 If he dedicates his field from the Year of Jubilee, according to your valuation it shall stand. 
@@ -90,7 +90,7 @@ And all your valuations shall be according to the shekel of the sanctuary: twent
 And if _it is_ an unclean animal, then he shall redeem _it_ according to your valuation, and shall add one-fifth to it; or if it is not redeemed, then it shall be sold according to your valuation. 
 
 ###### 28 
-'Nevertheless no [^f]devoted _offering_ that a man may devote to the Lord of all that he has, _both_ man and beast, or the field of his possession, shall be sold or redeemed; every devoted _offering is_ most holy to the Lord. 
+'Nevertheless no devoted _offering_ that a man may devote to the Lord of all that he has, _both_ man and beast, or the field of his possession, shall be sold or redeemed; every devoted _offering is_ most holy to the Lord. 
 
 ###### 29 
 No person under the ban, who may become doomed to destruction among men, shall be redeemed, _but_ shall surely be put to death. 

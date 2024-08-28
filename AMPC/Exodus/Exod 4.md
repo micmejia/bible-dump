@@ -28,7 +28,7 @@ next: ['Exod 5']
 
 
 
-And Moses answered, [^a]But behold, they will not believe me or listen to _and_ obey my voice; for they will say, The Lord has not appeared to you. 
+And Moses answered, But behold, they will not believe me or listen to _and_ obey my voice; for they will say, The Lord has not appeared to you. 
 
 
 
@@ -532,7 +532,7 @@ Along the way at a [resting-] place, the Lord met [Moses] and sought to kill him
 
 
 
-[Now apparently he had [^b]failed to circumcise one of his sons, his wife being opposed to it; but seeing his life in such danger] Zipporah took a flint knife and cut off the foreskin of her son and cast it to touch [Moses'] feet, and said, Surely a husband of blood you are to me! 
+[Now apparently he had failed to circumcise one of his sons, his wife being opposed to it; but seeing his life in such danger] Zipporah took a flint knife and cut off the foreskin of her son and cast it to touch [Moses'] feet, and said, Surely a husband of blood you are to me! 
 
 
 

@@ -106,7 +106,7 @@ para kayo at ang mga anak at mga apo ninyo ay gumalang sa Panginoon na inyong Di
 
 
 
-Makinig <i class="trans-change">kayo, O mamamayan ng_ Israel, at sundin ninyo ang kanyang mga utos para maging mabuti ang inyong kalagayan at upang lalo pa kayong dumami sa maganda at masaganang lupain,[^a] ayon sa ipinangako ng Panginoon, ang Dios ng inyong mga ninuno. 
+Makinig <i class="trans-change">kayo, O mamamayan ng_ Israel, at sundin ninyo ang kanyang mga utos para maging mabuti ang inyong kalagayan at upang lalo pa kayong dumami sa maganda at masaganang lupain, ayon sa ipinangako ng Panginoon, ang Dios ng inyong mga ninuno. 
 
 
 
@@ -139,7 +139,7 @@ Makinig <i class="trans-change">kayo, O mamamayan ng_ Israel, at sundin ninyo an
 
 
 
-"Makinig <i class="trans-change">kayo, O mga mamamayan ng_ Israel: Ang Panginoon na ating Dios ay iisang Panginoon lang.[^b] 
+"Makinig <i class="trans-change">kayo, O mga mamamayan ng_ Israel: Ang Panginoon na ating Dios ay iisang Panginoon lang. 
 
 
 
@@ -700,7 +700,7 @@ Itataboy niya sa inyong harapan ang lahat ng inyong mga kaaway ayon sa kanyang s
 
 
 
-Sabihin ninyo sa kanila, 'Mga alipin kami noon ng hari[^c] ng Egipto, pero inilabas kami roon ng Panginoon sa pamamagitan ng kanyang kapangyarihan. 
+Sabihin ninyo sa kanila, 'Mga alipin kami noon ng hari ng Egipto, pero inilabas kami roon ng Panginoon sa pamamagitan ng kanyang kapangyarihan. 
 
 
 

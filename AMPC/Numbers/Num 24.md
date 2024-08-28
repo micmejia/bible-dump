@@ -154,7 +154,7 @@ As valleys are they spread forth, as gardens by the riverside, as [rare spice] o
 
 
 
-[Israel] shall pour water out of his own buckets [have his own sources of rich blessing and plenty], and his offspring shall dwell by many waters, and his king shall be higher than [^a]Agag, and his kingdom shall be exalted. 
+[Israel] shall pour water out of his own buckets [have his own sources of rich blessing and plenty], and his offspring shall dwell by many waters, and his king shall be higher than Agag, and his kingdom shall be exalted. 
 
 
 
@@ -364,7 +364,7 @@ He speaks, who heard the words of God and knew the knowledge of the Most High, w
 
 
 
-I see Him, but not now; I behold Him, but He is not near. A [^b]star (Star) shall come forth out of Jacob, and a scepter (Scepter) shall rise out of Israel and shall crush all the corners of Moab and break down all the sons of Sheth [Moab's sons of tumult]. 
+I see Him, but not now; I behold Him, but He is not near. A star (Star) shall come forth out of Jacob, and a scepter (Scepter) shall rise out of Israel and shall crush all the corners of Moab and break down all the sons of Sheth [Moab's sons of tumult]. 
 
 
 
@@ -427,7 +427,7 @@ Out of Jacob shall one (One) come having dominion and shall destroy the remnant 
 
 
 
-[Balaam] looked at Amalek and took up his [prophetic] utterance, and said: Amalek is the foremost of the [neighboring] nations, but in his latter end he shall [^c]come to destruction. 
+[Balaam] looked at Amalek and took up his [prophetic] utterance, and said: Amalek is the foremost of the [neighboring] nations, but in his latter end he shall come to destruction. 
 
 
 

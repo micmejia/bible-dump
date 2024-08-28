@@ -27,7 +27,7 @@ next: ['Jas 2']
 
 
 
-James, a servant of God and of the Lord Jesus Christ, to the twelve tribes scattered abroad [among the Gentiles in the dispersion]: Greetings ([^a]rejoice)! 
+James, a servant of God and of the Lord Jesus Christ, to the twelve tribes scattered abroad [among the Gentiles in the dispersion]: Greetings (rejoice)! 
 
 
 
@@ -111,7 +111,7 @@ But let endurance _and_ steadfastness _and_ patience have full play _and_ do a t
 
 
 
-If any of you is deficient in wisdom, let him ask of [^b]the giving God [Who gives] to everyone liberally _and_ ungrudgingly, without reproaching _or_ faultfinding, and it will be given him. 
+If any of you is deficient in wisdom, let him ask of the giving God [Who gives] to everyone liberally _and_ ungrudgingly, without reproaching _or_ faultfinding, and it will be given him. 
 
 
 
@@ -258,7 +258,7 @@ For the sun comes up with a scorching heat and parches the grass; its flower fal
 
 
 
-Blessed (happy, [^c]to be envied) is the man who is patient under trial _and_ stands up under temptation, for when he has stood the test _and_ been approved, he will receive [the victor's] crown of life which God has promised to those who love Him. 
+Blessed (happy, to be envied) is the man who is patient under trial _and_ stands up under temptation, for when he has stood the test _and_ been approved, he will receive [the victor's] crown of life which God has promised to those who love Him. 
 
 
 
@@ -363,7 +363,7 @@ Do not be misled, my beloved brethren.
 
 
 
-Every good gift and every perfect ([^d]free, large, full) gift is from above; it comes down from the Father of all [that gives] light, in [the shining of] Whom there can be no variation [rising or setting] or shadow cast by His turning [as in an eclipse]. 
+Every good gift and every perfect (free, large, full) gift is from above; it comes down from the Father of all [that gives] light, in [the shining of] Whom there can be no variation [rising or setting] or shadow cast by His turning [as in an eclipse]. 
 
 
 
@@ -573,4 +573,4 @@ If anyone thinks himself to be religious (piously observant of the external duti
 
 
 
-External [^e]religious worship [[^f]religion as it is expressed in outward acts] that is pure and unblemished in the sight of God the Father is this: to visit _and_ help _and_ care for the orphans and widows in their affliction _and_ need, and to keep oneself unspotted _and_ uncontaminated from the world.
+External religious worship [religion as it is expressed in outward acts] that is pure and unblemished in the sight of God the Father is this: to visit _and_ help _and_ care for the orphans and widows in their affliction _and_ need, and to keep oneself unspotted _and_ uncontaminated from the world.

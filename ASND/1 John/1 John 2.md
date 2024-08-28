@@ -436,7 +436,7 @@ Sumusulat ako sa inyo, mga anak, dahil pinatawad na <i class="trans-change">ng D
 
 
 
-Sumusulat ako sa inyo, mga ama, dahil nakilala nʼyo na siya na mula pa sa simula ay nariyan na.[^a] Sumusulat ako sa inyo, mga kabataan, dahil nalupig na ninyo si Satanas.[^b] 
+Sumusulat ako sa inyo, mga ama, dahil nakilala nʼyo na siya na mula pa sa simula ay nariyan na. Sumusulat ako sa inyo, mga kabataan, dahil nalupig na ninyo si Satanas. 
 
 
 
@@ -898,7 +898,7 @@ Isinusulat ko sa inyo ang tungkol sa mga taong nanlilinlang sa inyo.
 
 
 
-Kung tungkol naman sa inyo, ang <i class="trans-change">Banal na_ Espiritu[^c] na tinanggap ninyo kay Cristo ay nananatili sa inyo, kaya hindi na kailangang turuan pa kayo ng iba. Sapagkat ang <i class="trans-change">Banal na_ Espiritu ang magtuturo sa inyo sa lahat ng bagay. At ang mga itinuturo niya ay katotohanan at hindi kasinungalingan. At gaya ng itinuro niya sa inyo, manatili kayo kay Cristo. 
+Kung tungkol naman sa inyo, ang <i class="trans-change">Banal na_ Espiritu na tinanggap ninyo kay Cristo ay nananatili sa inyo, kaya hindi na kailangang turuan pa kayo ng iba. Sapagkat ang <i class="trans-change">Banal na_ Espiritu ang magtuturo sa inyo sa lahat ng bagay. At ang mga itinuturo niya ay katotohanan at hindi kasinungalingan. At gaya ng itinuro niya sa inyo, manatili kayo kay Cristo. 
 
 
 

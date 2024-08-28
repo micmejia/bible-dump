@@ -112,7 +112,7 @@ Begging us most insistently for the favor _and_ the fellowship of contributing i
 
 
 
-Nor [was this gift of theirs merely the contribution] that we expected, but first they gave themselves to the Lord and to us [as His agents] by the will of God [[^a]entirely disregarding their personal interests, they gave as much as they possibly could, having put themselves at our disposal to be directed by the will of God]-- 
+Nor [was this gift of theirs merely the contribution] that we expected, but first they gave themselves to the Lord and to us [as His agents] by the will of God [entirely disregarding their personal interests, they gave as much as they possibly could, having put themselves at our disposal to be directed by the will of God]-- 
 
 
 

@@ -364,7 +364,7 @@ Exterminate the sower from Babylon, and the one who handles the sickle in the ti
 
 
 
-Israel is a hunted _and_ scattered sheep [driven hither and thither and preyed upon by savage beasts]; the lions have chased him. First the king of Assyria devoured him, and now at last [^a]Nebuchadrezzar king of Babylon has broken _and_ gnawed his bones. 
+Israel is a hunted _and_ scattered sheep [driven hither and thither and preyed upon by savage beasts]; the lions have chased him. First the king of Assyria devoured him, and now at last Nebuchadrezzar king of Babylon has broken _and_ gnawed his bones. 
 
 
 
@@ -826,7 +826,7 @@ A sword _and_ a drought upon her waters, that they may be dried up! For it is a 
 
 
 
-Therefore [^b]wild beasts of the desert shall dwell [in Babylon] with the jackals, and ostriches shall dwell there. And it shall never again be inhabited with people, even from generation to generation. 
+Therefore wild beasts of the desert shall dwell [in Babylon] with the jackals, and ostriches shall dwell there. And it shall never again be inhabited with people, even from generation to generation. 
 
 
 

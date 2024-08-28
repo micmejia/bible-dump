@@ -106,7 +106,7 @@ Itinatagubilin siya sa mga taong nag-aalaga sa kanya at namamahala ng mga ari-ar
 
 
 
-Ganoon din naman ang kalagayan natin bago dumating si Cristo[^a] – inalipin tayo ng mga panuntunan ng mundong ito. 
+Ganoon din naman ang kalagayan natin bago dumating si Cristo – inalipin tayo ng mga panuntunan ng mundong ito. 
 
 
 
@@ -898,7 +898,7 @@ Ngunit <i class="trans-change">ang asawang si Sara ay_ hindi alipin, <i class="t
 
 
 
-Sapagkat sinasabi sa Kasulatan: "Matuwa ka, baog na babae, ikaw na hindi pa nagkakaanak! Humiyaw ka sa kagalakan, ikaw na hindi pa nakakaranas ng sakit sa panganganak. Sapagkat kahit iniwan ka ng asawa mo, mas marami ang magiging anak mo kaysa sa babaeng kapiling ang kanyang asawa."[^b] 
+Sapagkat sinasabi sa Kasulatan: "Matuwa ka, baog na babae, ikaw na hindi pa nagkakaanak! Humiyaw ka sa kagalakan, ikaw na hindi pa nakakaranas ng sakit sa panganganak. Sapagkat kahit iniwan ka ng asawa mo, mas marami ang magiging anak mo kaysa sa babaeng kapiling ang kanyang asawa." 
 
 
 
@@ -997,7 +997,7 @@ Noong una, si <i class="trans-change">Isaac na_ ipinanganak ayon sa Espiritu ay 
 
 
 
-Pero ano ba ang sinasabi sa Kasulatan? "Palayasin mo ang babaeng alipin at ang anak niya, dahil ang anak ng babaeng alipin ay hindi maaaring makibahagi sa mamanahin ng anak ng babaeng hindi alipin."[^c] 
+Pero ano ba ang sinasabi sa Kasulatan? "Palayasin mo ang babaeng alipin at ang anak niya, dahil ang anak ng babaeng alipin ay hindi maaaring makibahagi sa mamanahin ng anak ng babaeng hindi alipin." 
 
 
 

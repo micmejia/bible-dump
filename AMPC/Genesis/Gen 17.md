@@ -133,7 +133,7 @@ Nor shall your name any longer be Abram [high, exalted father]; but your name sh
 
 
 
-And I will make you exceedingly fruitful and I will make nations of you, and [^a]kings will come from you. 
+And I will make you exceedingly fruitful and I will make nations of you, and kings will come from you. 
 
 
 

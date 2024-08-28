@@ -172,7 +172,7 @@ Isinara nʼyo ang isipan ng aking mga kaibigan para hindi sila makaunawa. Kaya h
 
 
 
-Katulad sila ng taong nandadaya sa kanyang mga kaibigan para magkapera, at ito ang magiging dahilan ng paghihirap[^a] ng kanyang mga anak. 
+Katulad sila ng taong nandadaya sa kanyang mga kaibigan para magkapera, at ito ang magiging dahilan ng paghihirap ng kanyang mga anak. 
 
 
 

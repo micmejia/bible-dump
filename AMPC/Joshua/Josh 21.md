@@ -91,7 +91,7 @@ So the Israelites gave to the Levites out of their own inheritance, at the comma
 
 
 
-The [first] lot came out for the families of the Kohathites. So those [^a]Levites who were descendants of Aaron the priest received by lot from the tribes of Judah, Simeon, and Benjamin thirteen cities. 
+The [first] lot came out for the families of the Kohathites. So those Levites who were descendants of Aaron the priest received by lot from the tribes of Judah, Simeon, and Benjamin thirteen cities. 
 
 
 

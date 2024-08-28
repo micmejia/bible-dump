@@ -832,7 +832,7 @@ Kaya ipinatayo namin ang altar, hindi para sa mga handog na sinusunog o sa iba p
 
 
 
-kundi para maging tanda para sa amin, sa inyo, at para sa mga susunod nating henerasyon na sinasamba namin ang Panginoon sa pamamagitan ng mga handog na sinusunog, mga handog bilang pagpaparangal sa Panginoon at ng iba pang mga handog na naroon sa Tolda niya.[^a] Kaya hindi makapagsasabi ang mga kaapu-apuhan nʼyo sa mga kaapu-apuhan namin ang ganito, 'Wala kayong pakialam sa Panginoon!' 
+kundi para maging tanda para sa amin, sa inyo, at para sa mga susunod nating henerasyon na sinasamba namin ang Panginoon sa pamamagitan ng mga handog na sinusunog, mga handog bilang pagpaparangal sa Panginoon at ng iba pang mga handog na naroon sa Tolda niya. Kaya hindi makapagsasabi ang mga kaapu-apuhan nʼyo sa mga kaapu-apuhan namin ang ganito, 'Wala kayong pakialam sa Panginoon!' 
 
 
 

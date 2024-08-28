@@ -40,7 +40,7 @@ next: ['Job 6']
 
 
 
-"<i class="trans-change">Job,_ kahit humingi ka ng tulong, walang tutulong sa iyo. Kahit ang mga anghel[^a] ay hindi ka tutulungan. 
+"<i class="trans-change">Job,_ kahit humingi ka ng tulong, walang tutulong sa iyo. Kahit ang mga anghel ay hindi ka tutulungan. 
 
 
 
@@ -865,7 +865,7 @@ Dadami ang iyong angkan na parang kasindami ng mga damo sa lupa.
 
 
 
-Hahaba ang buhay mo at hindi ka mamamatay nang hindi sa tamang panahon.[^b] 
+Hahaba ang buhay mo at hindi ka mamamatay nang hindi sa tamang panahon. 
 
 
 

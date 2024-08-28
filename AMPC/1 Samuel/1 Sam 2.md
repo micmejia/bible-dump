@@ -217,7 +217,7 @@ He will guard the feet of His godly ones, but the wicked shall be silenced _and_
 
 
 
-The adversaries of the Lord shall be broken to pieces; against them will He thunder in heaven. The Lord will judge [all peoples] to the ends of the earth; and He will give strength to [^a]His king (King) and exalt the power of His anointed (Anointed [^b]His Christ). 
+The adversaries of the Lord shall be broken to pieces; against them will He thunder in heaven. The Lord will judge [all peoples] to the ends of the earth; and He will give strength to His king (King) and exalt the power of His anointed (Anointed His Christ). 
 
 
 
@@ -742,7 +742,7 @@ And what befalls your two sons, Hophni and Phinehas, shall be a sign to you--in 
 
 
 
-And I will raise up for Myself a [^c]faithful priest (Priest), who shall do according to what is in My heart and mind. And I will build him a sure house, and he shall walk before My anointed (Anointed) forever. 
+And I will raise up for Myself a faithful priest (Priest), who shall do according to what is in My heart and mind. And I will build him a sure house, and he shall walk before My anointed (Anointed) forever. 
 
 
 

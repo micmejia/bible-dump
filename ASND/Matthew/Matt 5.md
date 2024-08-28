@@ -172,7 +172,7 @@ Mapalad ang mga naghihinagpis, dahil aaliwin sila ng Dios.
 
 
 
-Mapalad ang mga mapagpakumbaba, dahil mamanahin nila ang mundo.[^a] 
+Mapalad ang mga mapagpakumbaba, dahil mamanahin nila ang mundo. 
 
 
 
@@ -436,7 +436,7 @@ Ganoon din ang ginawa nila sa mga propeta noong una. Kaya magalak kayo dahil mal
 
 
 
-"Kayong <i class="trans-change">mga tagasunod ko ang_ nagsisilbing asin sa mundo. Ngunit kung mag-iba ang lasa[^b] ng asin, wala nang magagawa para ibalik ang lasa nito. Wala na itong pakinabang kaya itinatapon na lang at tinatapak-tapakan ng mga tao. 
+"Kayong <i class="trans-change">mga tagasunod ko ang_ nagsisilbing asin sa mundo. Ngunit kung mag-iba ang lasa ng asin, wala nang magagawa para ibalik ang lasa nito. Wala na itong pakinabang kaya itinatapon na lang at tinatapak-tapakan ng mga tao. 
 
 
 
@@ -601,7 +601,7 @@ Ganoon din ang dapat ninyong gawin. Pagliwanagin ninyo ang inyong ilaw sa mga ta
 
 
 
-Sinasabi ko sa inyo ang totoo, hanggaʼt may langit at may lupa, kahit ang kaliit-liitang bahagi ng Kautusan ay hindi mawawalan ng kabuluhan hanggaʼt hindi natutupad ang lahat.[^c] 
+Sinasabi ko sa inyo ang totoo, hanggaʼt may langit at may lupa, kahit ang kaliit-liitang bahagi ng Kautusan ay hindi mawawalan ng kabuluhan hanggaʼt hindi natutupad ang lahat. 
 
 
 
@@ -700,7 +700,7 @@ Kaya tandaan ninyo: kung hindi ninyo mahihigitan ang pagsunod ng mga tagapagturo
 
 
 
-<i class="trans-change">Sinabi pa ni Jesus,_ "Narinig ninyo na sinabi noong una sa ating mga ninuno, 'Huwag kayong papatay,[^d] dahil ang sinumang pumatay ay parurusahan.' 
+<i class="trans-change">Sinabi pa ni Jesus,_ "Narinig ninyo na sinabi noong una sa ating mga ninuno, 'Huwag kayong papatay, dahil ang sinumang pumatay ay parurusahan.' 
 
 
 
@@ -865,7 +865,7 @@ iwanan mo muna ang handog mo sa harap ng altar. Makipagkasundo ka muna sa iyong 
 
 
 
-Tinitiyak ko sa iyo, hindi ka makakalabas ng bilangguan hanggaʼt hindi mo nababayaran ang kabuuan ng utang mo."[^e] ## Ang Turo tungkol sa Pangangalunya 
+Tinitiyak ko sa iyo, hindi ka makakalabas ng bilangguan hanggaʼt hindi mo nababayaran ang kabuuan ng utang mo." ## Ang Turo tungkol sa Pangangalunya 
 
 
 
@@ -898,7 +898,7 @@ Tinitiyak ko sa iyo, hindi ka makakalabas ng bilangguan hanggaʼt hindi mo nabab
 
 
 
-"Narinig ninyo na sinabi <i class="trans-change">noong una_, 'Huwag kang mangangalunya.'[^f] 
+"Narinig ninyo na sinabi <i class="trans-change">noong una_, 'Huwag kang mangangalunya.' 
 
 
 
@@ -1030,7 +1030,7 @@ At kung ang kanang kamay mo ang dahilan ng iyong pagkakasala, putulin mo ito at 
 
 
 
-"Sinabi rin <i class="trans-change">noong una_, 'Kung nais ng isang lalaki na hiwalayan ang kanyang asawa, kinakailangang bigyan niya ito ng kasulatan ng paghihiwalay.'[^g] 
+"Sinabi rin <i class="trans-change">noong una_, 'Kung nais ng isang lalaki na hiwalayan ang kanyang asawa, kinakailangang bigyan niya ito ng kasulatan ng paghihiwalay.' 
 
 
 
@@ -1096,7 +1096,7 @@ Ngunit sinasabi ko sa inyo na kapag hiniwalayan ng lalaki ang kanyang asawa sa a
 
 
 
-"Narinig din ninyo na sinabi noong una sa ating mga ninuno, 'Kapag ang tao ay nangako at nanumpa pa sa pangalan ng Panginoon, kailangang tuparin niya ito.'[^h] 
+"Narinig din ninyo na sinabi noong una sa ating mga ninuno, 'Kapag ang tao ay nangako at nanumpa pa sa pangalan ng Panginoon, kailangang tuparin niya ito.' 
 
 
 
@@ -1558,7 +1558,7 @@ Kung ang mamahalin lang ninyo ay ang mga nagmamahal sa inyo, anong gantimpala an
 
 
 
-At kung ang binabati lang ninyo ay ang mga kaibigan[^i] ninyo, ano ang ginawa ninyo na nakakahigit sa iba? Hindi baʼt ginagawa rin iyan ng mga taong hindi kumikilala sa Dios? 
+At kung ang binabati lang ninyo ay ang mga kaibigan ninyo, ano ang ginawa ninyo na nakakahigit sa iba? Hindi baʼt ginagawa rin iyan ng mga taong hindi kumikilala sa Dios? 
 
 
 
@@ -1591,4 +1591,4 @@ At kung ang binabati lang ninyo ay ang mga kaibigan[^i] ninyo, ano ang ginawa ni
 
 
 
-Kaya dapat kayong maging ganap,[^j] tulad ng inyong Amang nasa langit."
+Kaya dapat kayong maging ganap, tulad ng inyong Amang nasa langit."

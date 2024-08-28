@@ -34,19 +34,19 @@ So he answered and said to me: "This _is_ the word of the Lord to Zerubbabel: 'N
 Moreover the word of the Lord came to me, saying: 
 
 ###### 9 
-"The hands of Zerubbabel Have laid the foundation of this [^a]temple; His hands shall also finish _it._ Then you will know That the Lord of hosts has sent Me to you. 
+"The hands of Zerubbabel Have laid the foundation of this temple; His hands shall also finish _it._ Then you will know That the Lord of hosts has sent Me to you. 
 
 ###### 10 
-For who has despised the day of small things? For these seven rejoice to see The [^b]plumb line in the hand of Zerubbabel. They are the eyes of the Lord, Which scan to and fro throughout the whole earth." 
+For who has despised the day of small things? For these seven rejoice to see The plumb line in the hand of Zerubbabel. They are the eyes of the Lord, Which scan to and fro throughout the whole earth." 
 
 ###### 11 
 Then I answered and said to him, "What _are_ these two olive trees--at the right of the lampstand and at its left?" 
 
 ###### 12 
-And I further answered and said to him, "What _are these_ two olive branches that _drip_ [^c]into the receptacles of the two gold pipes from which the golden _oil_ drains?" 
+And I further answered and said to him, "What _are these_ two olive branches that _drip_ into the receptacles of the two gold pipes from which the golden _oil_ drains?" 
 
 ###### 13 
 Then he answered me and said, "Do you not know what these _are?_" And I said, "No, my lord." 
 
 ###### 14 
-So he said, "These _are_ the two [^d]anointed ones, who stand beside the Lord of the whole earth."
+So he said, "These _are_ the two anointed ones, who stand beside the Lord of the whole earth."

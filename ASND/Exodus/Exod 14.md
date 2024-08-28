@@ -832,7 +832,7 @@ Nang mag-uumaga na, tiningnan ng Panginoon ang mga sundalo ng Egipto mula sa mak
 
 
 
-Tinanggal[^a] niya ang mga gulong ng mga karwahe nila para mahirapan silang patakbuhin ito. Sinabi ng mga Egipcio, "Umatras na lang tayo sa mga Israelita, dahil ang Panginoon ang lumalaban sa atin para sa kanila." 
+Tinanggal niya ang mga gulong ng mga karwahe nila para mahirapan silang patakbuhin ito. Sinabi ng mga Egipcio, "Umatras na lang tayo sa mga Israelita, dahil ang Panginoon ang lumalaban sa atin para sa kanila." 
 
 
 

@@ -46,7 +46,7 @@ So all the men of Israel were gathered against the city, united together as one 
 Then the tribes of Israel sent men through all the tribe of Benjamin, saying, "What _is_ this wickedness that has occurred among you? 
 
 ###### 13 
-Now therefore, deliver up the men, the [^a]perverted men who _are_ in Gibeah, that we may put them to death and remove the evil from Israel!" But the children of Benjamin would not listen to the voice of their brethren, the children of Israel. 
+Now therefore, deliver up the men, the perverted men who _are_ in Gibeah, that we may put them to death and remove the evil from Israel!" But the children of Benjamin would not listen to the voice of their brethren, the children of Israel. 
 
 ###### 14 
 Instead, the children of Benjamin gathered together from their cities to Gibeah, to go to battle against the children of Israel. 
@@ -61,7 +61,7 @@ Among all this people _were_ seven hundred select men _who were_ left-handed; ev
 Now besides Benjamin, the men of Israel numbered four hundred thousand men who drew the sword; all of these _were_ men of war. 
 
 ###### 18 
-Then the children of Israel arose and went up to [^b]the house of God to inquire of God. They said, "Which of us shall go up first to battle against the children of Benjamin?" The Lord said, "Judah first!" 
+Then the children of Israel arose and went up to the house of God to inquire of God. They said, "Which of us shall go up first to battle against the children of Benjamin?" The Lord said, "Judah first!" 
 
 ###### 19 
 So the children of Israel rose in the morning and encamped against Gibeah. 
@@ -85,7 +85,7 @@ So the children of Israel approached the children of Benjamin on the second day.
 And Benjamin went out against them from Gibeah on the second day, and cut down to the ground eighteen thousand more of the children of Israel; all these drew the sword. 
 
 ###### 26 
-Then all the children of Israel, that is, all the people, went up and came to [^c]the house of God and wept. They sat there before the Lord and fasted that day until evening; and they offered burnt offerings and peace offerings before the Lord. 
+Then all the children of Israel, that is, all the people, went up and came to the house of God and wept. They sat there before the Lord and fasted that day until evening; and they offered burnt offerings and peace offerings before the Lord. 
 
 ###### 27 
 So the children of Israel inquired of the Lord (the ark of the covenant of God _was_ there in those days, 
@@ -109,10 +109,10 @@ And the children of Benjamin said, "They _are_ defeated before us, as at first."
 So all the men of Israel rose from their place and put themselves in battle array at Baal Tamar. Then Israel's men in ambush burst forth from their position in the plain of Geba. 
 
 ###### 34 
-And ten thousand select men from all Israel came against Gibeah, and the battle was fierce. But [^d]_the Benjamites_ did not know that disaster _was_ upon them. 
+And ten thousand select men from all Israel came against Gibeah, and the battle was fierce. But _the Benjamites_ did not know that disaster _was_ upon them. 
 
 ###### 35 
-The Lord [^e]defeated Benjamin before Israel. And the children of Israel destroyed that day twenty-five thousand one hundred Benjamites; all these drew the sword. 
+The Lord defeated Benjamin before Israel. And the children of Israel destroyed that day twenty-five thousand one hundred Benjamites; all these drew the sword. 
 
 ###### 36 
 So the children of Benjamin saw that they were defeated. The men of Israel had given ground to the Benjamites, because they relied on the men in ambush whom they had set against Gibeah. 
@@ -124,7 +124,7 @@ And the men in ambush quickly rushed upon Gibeah; the men in ambush spread out a
 Now the appointed signal between the men of Israel and the men in ambush was that they would make a great cloud of smoke rise up from the city, 
 
 ###### 39 
-whereupon the men of Israel would turn in battle. Now Benjamin had begun [^f]to strike _and_ kill about thirty of the men of Israel. For they said, "Surely they are defeated before us, as _in_ the first battle." 
+whereupon the men of Israel would turn in battle. Now Benjamin had begun to strike _and_ kill about thirty of the men of Israel. For they said, "Surely they are defeated before us, as _in_ the first battle." 
 
 ###### 40 
 But when the cloud began to rise from the city in a column of smoke, the Benjamites looked behind them, and there was the whole city going up _in smoke_ to heaven. 
@@ -133,7 +133,7 @@ But when the cloud began to rise from the city in a column of smoke, the Benjami
 And when the men of Israel turned back, the men of Benjamin panicked, for they saw that disaster had come upon them. 
 
 ###### 42 
-Therefore they [^g]turned _their backs_ before the men of Israel in the direction of the wilderness; but the battle overtook them, and whoever _came_ out of the cities they destroyed in their midst. 
+Therefore they turned _their backs_ before the men of Israel in the direction of the wilderness; but the battle overtook them, and whoever _came_ out of the cities they destroyed in their midst. 
 
 ###### 43 
 They surrounded the Benjamites, chased them, _and_ easily trampled them down as far as the front of Gibeah toward the east. 
@@ -142,10 +142,10 @@ They surrounded the Benjamites, chased them, _and_ easily trampled them down as 
 And eighteen thousand men of Benjamin fell; all these _were_ men of valor. 
 
 ###### 45 
-Then [^h]they turned and fled toward the wilderness to the rock of Rimmon; and they cut down five thousand of them on the highways. Then they pursued them relentlessly up to Gidom, and killed two thousand of them. 
+Then they turned and fled toward the wilderness to the rock of Rimmon; and they cut down five thousand of them on the highways. Then they pursued them relentlessly up to Gidom, and killed two thousand of them. 
 
 ###### 46 
-So all who fell of Benjamin that day were twenty-five thousand men who drew the sword; all these _were_ [^i]men of valor. 
+So all who fell of Benjamin that day were twenty-five thousand men who drew the sword; all these _were_ men of valor. 
 
 ###### 47 
 But six hundred men turned and fled toward the wilderness to the rock of Rimmon, and they stayed at the rock of Rimmon for four months. 

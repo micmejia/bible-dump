@@ -13,7 +13,7 @@ next: ['Isa 32']
 Woe to those who go down to Egypt for help, _And_ rely on horses, Who trust in chariots because _they are_ many, And in horsemen because they are very strong, But who do not look to the Holy One of Israel, Nor seek the Lord! 
 
 ###### 2 
-Yet He also _is_ wise and will bring disaster, And will not [^a]call back His words, But will arise against the house of evildoers, And against the help of those who work iniquity. 
+Yet He also _is_ wise and will bring disaster, And will not call back His words, But will arise against the house of evildoers, And against the help of those who work iniquity. 
 
 ###### 3 
 Now the Egyptians _are_ men, and not God; And their horses are flesh, and not spirit. When the Lord stretches out His hand, Both he who helps will fall, And he who is helped will fall down; They all will perish together. ## God Will Deliver Jerusalem 

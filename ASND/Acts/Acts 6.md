@@ -370,7 +370,7 @@ pero hindi nila kayang talunin si Esteban dahil binigyan siya ng karunungan ng <
 
 
 
-Kaya lihim nilang sinulsulan[^a] ang ilang tao na magsabi, "Narinig namin si Esteban na nagsalita ng masama laban kay Moises at sa Dios." 
+Kaya lihim nilang sinulsulan ang ilang tao na magsabi, "Narinig namin si Esteban na nagsalita ng masama laban kay Moises at sa Dios." 
 
 
 

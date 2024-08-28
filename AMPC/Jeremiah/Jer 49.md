@@ -133,7 +133,7 @@ Behold, I will bring terror upon you, says the Lord, the Lord of hosts, from all
 
 
 
-And [^a]afterward I will reverse the captivity of the children of Ammon _and_ restore their fortunes, says the Lord. 
+And afterward I will reverse the captivity of the children of Ammon _and_ restore their fortunes, says the Lord. 
 
 
 
@@ -280,7 +280,7 @@ For thus says the Lord: Behold, they [Israel] whose rule was not to drink the cu
 
 
 
-For I have sworn by Myself, says the Lord, that Bozrah [in Edom, between Petra and the Dead Sea] shall become a horror, a reproach, a waste, and a curse; and all its cities shall be [^b]perpetual wastes. 
+For I have sworn by Myself, says the Lord, that Bozrah [in Edom, between Petra and the Dead Sea] shall become a horror, a reproach, a waste, and a curse; and all its cities shall be perpetual wastes. 
 
 
 
@@ -343,7 +343,7 @@ For, behold, I will make you [Edom] small among the nations and despised among m
 
 
 
-Your [object of] horror (your idol) has deceived you, and the pride of your heart [has deceived you], O you who dwell in the clefts of the rock [Sela or [^c]Petra], who hold _and_ occupy the height of the hill. Though you make your nest as high as the eagle's, I will bring you down from there, says the Lord. 
+Your [object of] horror (your idol) has deceived you, and the pride of your heart [has deceived you], O you who dwell in the clefts of the rock [Sela or Petra], who hold _and_ occupy the height of the hill. Though you make your nest as high as the eagle's, I will bring you down from there, says the Lord. 
 
 
 
@@ -595,7 +595,7 @@ And I will kindle a fire in the wall of Damascus, and it will consume the palace
 
 
 
-Concerning Kedar [a tribe of nomad Arabs] and concerning the kingdoms of [^d]Hazor, which Nebuchadrezzar king of Babylon shall smite: Thus says the Lord [to him]: Arise, go up against Kedar and destroy the sons of the east. 
+Concerning Kedar [a tribe of nomad Arabs] and concerning the kingdoms of Hazor, which Nebuchadrezzar king of Babylon shall smite: Thus says the Lord [to him]: Arise, go up against Kedar and destroy the sons of the east. 
 
 
 
@@ -637,7 +637,7 @@ Their tents and their flocks shall they [the Chaldeans] take--their tent hanging
 
 
 
-Flee, wander far off, dwell deep [in the deserts], O you inhabitants of Hazor [in the Arabian Desert] says the Lord, for [^e]Nebuchadrezzar king of Babylon has planned a course against you and has conceived a purpose against you. 
+Flee, wander far off, dwell deep [in the deserts], O you inhabitants of Hazor [in the Arabian Desert] says the Lord, for Nebuchadrezzar king of Babylon has planned a course against you and has conceived a purpose against you. 
 
 
 
@@ -784,7 +784,7 @@ And upon Elam will I bring the four winds from the four corners of heaven; and I
 
 
 
-And I will cause [^f]Elam to be dismayed _and_ terrified before their enemies and before those who seek _and_ demand their lives; and I will bring evil _and_ disaster upon them, even My fierce anger, says the Lord. And I will send the sword after them until I have consumed them. 
+And I will cause Elam to be dismayed _and_ terrified before their enemies and before those who seek _and_ demand their lives; and I will bring evil _and_ disaster upon them, even My fierce anger, says the Lord. And I will send the sword after them until I have consumed them. 
 
 
 
@@ -826,4 +826,4 @@ And I will set My throne [of judgment] in Elam [whose capital city was Shushan, 
 
 
 
-But it shall be [^g]in the latter days (the end of days) that I will reverse the captivity and restore the fortunes of Elam, says the Lord.
+But it shall be in the latter days (the end of days) that I will reverse the captivity and restore the fortunes of Elam, says the Lord.

@@ -40,7 +40,7 @@ next: ['Judg 10']
 
 
 
-Isang araw, pumunta si Abimelec na anak ni Gideon[^a] sa mga kamag-anak ng kanyang ina sa Shekem. Sinabi niya sa kanila, 
+Isang araw, pumunta si Abimelec na anak ni Gideon sa mga kamag-anak ng kanyang ina sa Shekem. Sinabi niya sa kanila, 
 
 
 
@@ -172,7 +172,7 @@ Binigyan nila si Abimelec ng 70 pirasong pilak mula sa templo ni Baal Berit, at 
 
 
 
-Pagkatapos, pumunta si Abimelec sa bahay ng kanyang ama sa Ofra. At doon, sa ibabaw ng isang bato, pinatay niya ang 70[^b] kapatid niya sa ama niyang si Gideon. Pero ang bunsong si Jotam ay hindi napatay dahil nakapagtago ito. 
+Pagkatapos, pumunta si Abimelec sa bahay ng kanyang ama sa Ofra. At doon, sa ibabaw ng isang bato, pinatay niya ang 70 kapatid niya sa ama niyang si Gideon. Pero ang bunsong si Jotam ay hindi napatay dahil nakapagtago ito. 
 
 
 
@@ -1228,7 +1228,7 @@ Nang makita sila ni Gaal, sinabi niya kay Zebul, "Tingnan mo! May mga taong papa
 
 
 
-Sinabi ni Gaal, "Pero tingnan mo nga! May mga tao ring bumababa sa may gitna ng dalawang bundok, at mayroon pang dumaraan malapit sa banal na puno ng terebinto!"[^c] 
+Sinabi ni Gaal, "Pero tingnan mo nga! May mga tao ring bumababa sa may gitna ng dalawang bundok, at mayroon pang dumaraan malapit sa banal na puno ng terebinto!" 
 
 
 
@@ -1525,7 +1525,7 @@ Buong araw na nakikipaglaban sina Abimelec. Nasakop nila ang lungsod at pinagpap
 
 
 
-Nang mabalitaan ito ng mga nakatira sa Tore ng Shekem, nagtago sila sa templo ni El Berit[^d] na napapalibutan ng pader. 
+Nang mabalitaan ito ng mga nakatira sa Tore ng Shekem, nagtago sila sa templo ni El Berit na napapalibutan ng pader. 
 
 
 
@@ -1822,7 +1822,7 @@ Agad niyang tinawag ang tagadala ng armas niya at sinabihan, "Patayin mo ako ng 
 
 
 
-Nang makita ng mga tauhan ni Abimelec[^e] na patay na siya, nagsiuwi sila. 
+Nang makita ng mga tauhan ni Abimelec na patay na siya, nagsiuwi sila. 
 
 
 

@@ -205,7 +205,7 @@ Ito ang <i class="trans-change">nilalaman ng_ sulat na ibinigay ni Haring Artase
 
 
 
-Inuutusan kita at ng aking pitong tagapayo na alamin mo ang mga nangyayari sa Juda at sa Jerusalem kung talaga bang sinusunod nila ang Kautusan ng iyong Dios, na lubos mong nalalaman.[^a] 
+Inuutusan kita at ng aking pitong tagapayo na alamin mo ang mga nangyayari sa Juda at sa Jerusalem kung talaga bang sinusunod nila ang Kautusan ng iyong Dios, na lubos mong nalalaman. 
 
 
 

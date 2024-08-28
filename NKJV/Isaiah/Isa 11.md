@@ -10,7 +10,7 @@ next: ['Isa 12']
 
 
 ###### 1 
-There shall come forth a [^a]Rod from the [^b]stem of Jesse, And a Branch shall [^c]grow out of his roots. 
+There shall come forth a Rod from the stem of Jesse, And a Branch shall grow out of his roots. 
 
 ###### 2 
 The Spirit of the Lord shall rest upon Him, The Spirit of wisdom and understanding, The Spirit of counsel and might, The Spirit of knowledge and of the fear of the Lord. 
@@ -40,19 +40,19 @@ They shall not hurt nor destroy in all My holy mountain, For the earth shall be 
 "And in that day there shall be a Root of Jesse, Who shall stand as a banner to the people; For the Gentiles shall seek Him, And His resting place shall be glorious." 
 
 ###### 11 
-It shall come to pass in that day _That_ the Lord shall set His hand again the second time To recover the remnant of His people who are left, From Assyria and Egypt, From Pathros and Cush, From Elam and Shinar, From Hamath and the [^d]islands of the sea. 
+It shall come to pass in that day _That_ the Lord shall set His hand again the second time To recover the remnant of His people who are left, From Assyria and Egypt, From Pathros and Cush, From Elam and Shinar, From Hamath and the islands of the sea. 
 
 ###### 12 
-He will set up a banner for the nations, And will [^e]assemble the outcasts of Israel, And gather together the dispersed of Judah From the four [^f]corners of the earth. 
+He will set up a banner for the nations, And will assemble the outcasts of Israel, And gather together the dispersed of Judah From the four corners of the earth. 
 
 ###### 13 
 Also the envy of Ephraim shall depart, And the adversaries of Judah shall be cut off; Ephraim shall not envy Judah, And Judah shall not harass Ephraim. 
 
 ###### 14 
-But they shall fly down upon the shoulder of the Philistines toward the west; Together they shall plunder the [^g]people of the East; They shall lay their hand on Edom and Moab; And the people of Ammon shall obey them. 
+But they shall fly down upon the shoulder of the Philistines toward the west; Together they shall plunder the people of the East; They shall lay their hand on Edom and Moab; And the people of Ammon shall obey them. 
 
 ###### 15 
-The Lord will utterly [^h]destroy the tongue of the Sea of Egypt; With His mighty wind He will shake His fist over [^i]the River, And strike it in the seven streams, And make _men_ cross over [^j]dry-shod. 
+The Lord will utterly destroy the tongue of the Sea of Egypt; With His mighty wind He will shake His fist over the River, And strike it in the seven streams, And make _men_ cross over dry-shod. 
 
 ###### 16 
 There will be a highway for the remnant of His people Who will be left from Assyria, As it was for Israel In the day that he came up from the land of Egypt.

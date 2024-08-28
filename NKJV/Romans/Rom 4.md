@@ -10,16 +10,16 @@ next: ['Rom 5']
 
 
 ###### 1 
-What then shall we say that Abraham our father[^a] has found according to the flesh? 
+What then shall we say that Abraham our father has found according to the flesh? 
 
 ###### 2 
 For if Abraham was justified by works, he has _something_ to boast about, but not before God. 
 
 ###### 3 
-For what does the Scripture say? "Abraham believed God, and it was [^b]accounted to him for righteousness." 
+For what does the Scripture say? "Abraham believed God, and it was accounted to him for righteousness." 
 
 ###### 4 
-Now to him who works, the wages are not counted [^c]as grace but as debt. ## David Celebrates the Same Truth 
+Now to him who works, the wages are not counted as grace but as debt. ## David Celebrates the Same Truth 
 
 ###### 5 
 But to him who does not work but believes on Him who justifies the ungodly, his faith is accounted for righteousness, 
@@ -55,7 +55,7 @@ For if those who are of the law _are_ heirs, faith is made void and the promise 
 because the law brings about wrath; for where there is no law _there is_ no transgression. 
 
 ###### 16 
-Therefore _it is_ of faith that _it might be_ according to grace, so that the promise might be [^d]sure to all the seed, not only to those who are of the law, but also to those who are of the faith of Abraham, who is the father of us all 
+Therefore _it is_ of faith that _it might be_ according to grace, so that the promise might be sure to all the seed, not only to those who are of the law, but also to those who are of the faith of Abraham, who is the father of us all 
 
 ###### 17 
 (as it is written, "I have made you a father of many nations") in the presence of Him whom he believed--God, who gives life to the dead and calls those things which do not exist as though they did; 

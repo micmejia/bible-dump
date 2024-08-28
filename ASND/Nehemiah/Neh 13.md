@@ -633,7 +633,7 @@ Hindi ba ganito rin ang ginawa ng inyong mga ninuno, kaya tayo at ang lungsod na
 
 
 
-Kaya nag-utos ako na isara ang pintuan ng lungsod tuwing Biyernes[^a] habang papalubog ang araw, at huwag itong bubuksan hanggaʼt hindi pa natatapos ang Araw ng Pamamahinga. Pinabantayan ko sa mga tauhan ko ang mga pintuan para walang makapasok na kahit anong tinda sa lungsod sa Araw ng Pamamahinga. 
+Kaya nag-utos ako na isara ang pintuan ng lungsod tuwing Biyernes habang papalubog ang araw, at huwag itong bubuksan hanggaʼt hindi pa natatapos ang Araw ng Pamamahinga. Pinabantayan ko sa mga tauhan ko ang mga pintuan para walang makapasok na kahit anong tinda sa lungsod sa Araw ng Pamamahinga. 
 
 
 

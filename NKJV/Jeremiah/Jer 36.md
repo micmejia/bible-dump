@@ -19,13 +19,13 @@ Now it came to pass in the fourth year of Jehoiakim the son of Josiah, king of J
 It may be that the house of Judah will hear all the adversities which I purpose to bring upon them, that everyone may turn from his evil way, that I may forgive their iniquity and their sin." 
 
 ###### 4 
-Then Jeremiah called Baruch the son of Neriah; and Baruch wrote on a scroll of a book, [^a]at the instruction of Jeremiah, all the words of the Lord which He had spoken to him. 
+Then Jeremiah called Baruch the son of Neriah; and Baruch wrote on a scroll of a book, at the instruction of Jeremiah, all the words of the Lord which He had spoken to him. 
 
 ###### 5 
 And Jeremiah commanded Baruch, saying, "I _am_ confined, I cannot go into the house of the Lord. 
 
 ###### 6 
-You go, therefore, and read from the scroll which you have written [^b]at my instruction, the words of the Lord, in the hearing of the people in the Lord's house on the day of fasting. And you shall also read them in the hearing of all Judah who come from their cities. 
+You go, therefore, and read from the scroll which you have written at my instruction, the words of the Lord, in the hearing of the people in the Lord's house on the day of fasting. And you shall also read them in the hearing of all Judah who come from their cities. 
 
 ###### 7 
 It may be that they will present their supplication before the Lord, and everyone will turn from his evil way. For great _is_ the anger and the fury that the Lord has pronounced against this people." 
@@ -37,7 +37,7 @@ And Baruch the son of Neriah did according to all that Jeremiah the prophet comm
 Now it came to pass in the fifth year of Jehoiakim the son of Josiah, king of Judah, in the ninth month, _that_ they proclaimed a fast before the Lord to all the people in Jerusalem, and to all the people who came from the cities of Judah to Jerusalem. 
 
 ###### 10 
-Then Baruch read from the book the words of Jeremiah in the house of the Lord, in the chamber of Gemariah the son of Shaphan the scribe, in the upper court at the entry of the New Gate of the Lord's house, in the [^c]hearing of all the people. ## The Scroll Read in the Palace 
+Then Baruch read from the book the words of Jeremiah in the house of the Lord, in the chamber of Gemariah the son of Shaphan the scribe, in the upper court at the entry of the New Gate of the Lord's house, in the hearing of all the people. ## The Scroll Read in the Palace 
 
 ###### 11 
 When Michaiah the son of Gemariah, the son of Shaphan, heard all the words of the Lord from the book, 
@@ -58,7 +58,7 @@ And they said to him, "Sit down now, and read it in our hearing." So Baruch read
 Now it happened, when they had heard all the words, that they looked in fear from one to another, and said to Baruch, "We will surely tell the king of all these words." 
 
 ###### 17 
-And they asked Baruch, saying, "Tell us now, how did you write all these words--[^d]at his instruction?" 
+And they asked Baruch, saying, "Tell us now, how did you write all these words--at his instruction?" 
 
 ###### 18 
 So Baruch answered them, "He proclaimed with his mouth all these words to me, and I wrote _them_ with ink in the book." 
@@ -85,10 +85,10 @@ Yet they were not afraid, nor did they tear their garments, the king nor any of 
 Nevertheless Elnathan, Delaiah, and Gemariah implored the king not to burn the scroll; but he would not listen to them. 
 
 ###### 26 
-And the king commanded Jerahmeel [^e]the king's son, Seraiah the son of Azriel, and Shelemiah the son of Abdeel, to seize Baruch the scribe and Jeremiah the prophet, but the Lord hid them. ## Jeremiah Rewrites the Scroll 
+And the king commanded Jerahmeel the king's son, Seraiah the son of Azriel, and Shelemiah the son of Abdeel, to seize Baruch the scribe and Jeremiah the prophet, but the Lord hid them. ## Jeremiah Rewrites the Scroll 
 
 ###### 27 
-Now after the king had burned the scroll with the words which Baruch had written [^f]at the instruction of Jeremiah, the word of the Lord came to Jeremiah, saying: 
+Now after the king had burned the scroll with the words which Baruch had written at the instruction of Jeremiah, the word of the Lord came to Jeremiah, saying: 
 
 ###### 28 
 "Take yet another scroll, and write on it all the former words that were in the first scroll which Jehoiakim the king of Judah has burned. 
@@ -100,7 +100,7 @@ And you shall say to Jehoiakim king of Judah, 'Thus says the Lord: "You have bur
 Therefore thus says the Lord concerning Jehoiakim king of Judah: "He shall have no one to sit on the throne of David, and his dead body shall be cast out to the heat of the day and the frost of the night. 
 
 ###### 31 
-I will punish him, his [^g]family, and his servants for their iniquity; and I will bring on them, on the inhabitants of Jerusalem, and on the men of Judah all the doom that I have pronounced against them; but they did not heed." ' " 
+I will punish him, his family, and his servants for their iniquity; and I will bring on them, on the inhabitants of Jerusalem, and on the men of Judah all the doom that I have pronounced against them; but they did not heed." ' " 
 
 ###### 32 
-Then Jeremiah took another scroll and gave it to Baruch the scribe, the son of Neriah, who wrote on it [^h]at the instruction of Jeremiah all the words of the book which Jehoiakim king of Judah had burned in the fire. And besides, there were added to them many similar words.
+Then Jeremiah took another scroll and gave it to Baruch the scribe, the son of Neriah, who wrote on it at the instruction of Jeremiah all the words of the book which Jehoiakim king of Judah had burned in the fire. And besides, there were added to them many similar words.

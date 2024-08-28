@@ -238,7 +238,7 @@ Now the brethren at once sent Paul and Silas away by night to Beroea; and when t
 
 
 
-Now these [Jews] were better disposed _and_ more noble than those in Thessalonica, for they were entirely ready _and_ accepted _and_ welcomed the message [[^a]concerning the attainment through Christ of eternal salvation in the kingdom of God] with inclination of mind _and_ eagerness, searching _and_ examining the Scriptures daily to see if these things were so. 
+Now these [Jews] were better disposed _and_ more noble than those in Thessalonica, for they were entirely ready _and_ accepted _and_ welcomed the message [concerning the attainment through Christ of eternal salvation in the kingdom of God] with inclination of mind _and_ eagerness, searching _and_ examining the Scriptures daily to see if these things were so. 
 
 
 
@@ -280,7 +280,7 @@ Many of them therefore became believers, together with not a few prominent Greek
 
 
 
-But when the Jews of Thessalonica learned that the Word of God [[^b]concerning the attainment through Christ of eternal salvation in the kingdom of God] was also preached by Paul at Beroea, they came there too, disturbing _and_ inciting the masses. 
+But when the Jews of Thessalonica learned that the Word of God [concerning the attainment through Christ of eternal salvation in the kingdom of God] was also preached by Paul at Beroea, they came there too, disturbing _and_ inciting the masses. 
 
 
 
@@ -406,7 +406,7 @@ And some also of the Epicurean and Stoic philosophers encountered him _and_ bega
 
 
 
-And they took hold of him and brought him to the [^c]Areopagus [Mars Hill meeting place], saying, May we know what this novel (unheard of and unprecedented) teaching is which you are openly declaring? 
+And they took hold of him and brought him to the Areopagus [Mars Hill meeting place], saying, May we know what this novel (unheard of and unprecedented) teaching is which you are openly declaring? 
 
 
 
@@ -637,7 +637,7 @@ Since then we are God's offspring, we ought not to suppose that Deity (the Godhe
 
 
 
-Such [former] ages of ignorance God, it is true, ignored _and_ allowed to pass unnoticed; but now He charges all people everywhere to repent ([^d]to change their minds for the better and heartily to amend their ways, with abhorrence of their past sins), 
+Such [former] ages of ignorance God, it is true, ignored _and_ allowed to pass unnoticed; but now He charges all people everywhere to repent (to change their minds for the better and heartily to amend their ways, with abhorrence of their past sins), 
 
 
 

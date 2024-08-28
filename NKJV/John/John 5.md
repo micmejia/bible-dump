@@ -13,10 +13,10 @@ next: ['John 6']
 After this there was a feast of the Jews, and Jesus went up to Jerusalem. 
 
 ###### 2 
-Now there is in Jerusalem by the Sheep _Gate_ a pool, which is called in Hebrew, [^a]Bethesda, having five porches. 
+Now there is in Jerusalem by the Sheep _Gate_ a pool, which is called in Hebrew, Bethesda, having five porches. 
 
 ###### 3 
-In these lay a great multitude of sick people, blind, lame, [^b]paralyzed, [^c]waiting for the moving of the water. 
+In these lay a great multitude of sick people, blind, lame, paralyzed, waiting for the moving of the water. 
 
 ###### 4 
 For an angel went down at a certain time into the pool and stirred up the water; then whoever stepped in first, after the stirring of the water, was made well of whatever disease he had. 
@@ -55,7 +55,7 @@ Afterward Jesus found him in the temple, and said to him, "See, you have been ma
 The man departed and told the Jews that it was Jesus who had made him well. ## Honor the Father and the Son 
 
 ###### 16 
-For this reason the Jews persecuted Jesus, [^d]and sought to kill Him, because He had done these things on the Sabbath. 
+For this reason the Jews persecuted Jesus, and sought to kill Him, because He had done these things on the Sabbath. 
 
 ###### 17 
 But Jesus answered them, "My Father has been working until now, and I have been working." 
@@ -100,7 +100,7 @@ and come forth--those who have done good, to the resurrection of life, and those
 I can of Myself do nothing. As I hear, I judge; and My judgment is righteous, because I do not seek My own will but the will of the Father who sent Me. ## The Fourfold Witness 
 
 ###### 31 
-"If I bear witness of Myself, My witness is not [^e]true. 
+"If I bear witness of Myself, My witness is not true. 
 
 ###### 32 
 There is another who bears witness of Me, and I know that the witness which He witnesses of Me is true. 

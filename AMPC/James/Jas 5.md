@@ -426,4 +426,4 @@ And [then] he prayed again and the heavens supplied rain and the land produced i
 
 
 
-Let the [latter] one be sure that whoever turns a sinner from his evil course will save [that one's] soul from death and will cover a multitude of sins [[^a]procure the pardon of the many sins committed by the convert].
+Let the [latter] one be sure that whoever turns a sinner from his evil course will save [that one's] soul from death and will cover a multitude of sins [procure the pardon of the many sins committed by the convert].

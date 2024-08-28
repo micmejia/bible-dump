@@ -91,7 +91,7 @@ And no man shall come up with you, neither let any man be seen throughout all th
 
 
 
-So Moses cut two tables of stone like the first, and he rose up early in the morning and went up on Mount Sinai, as the Lord had commanded him, and took [^a]in his hand two tables of stone. 
+So Moses cut two tables of stone like the first, and he rose up early in the morning and went up on Mount Sinai, as the Lord had commanded him, and took in his hand two tables of stone. 
 
 
 
@@ -721,7 +721,7 @@ And when Moses had finished speaking with them, he put a veil on his face.
 
 
 
-But when Moses went in before the Lord to speak with Him, [^b]he took the veil off until he came out. And he came out and told the Israelites what he was commanded. 
+But when Moses went in before the Lord to speak with Him, he took the veil off until he came out. And he came out and told the Israelites what he was commanded. 
 
 
 

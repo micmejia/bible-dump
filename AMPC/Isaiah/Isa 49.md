@@ -70,7 +70,7 @@ And He has made my mouth like a sharp sword; in the shadow of His hand has He hi
 
 
 
-And [the Lord] said to me, You are My [^a]servant, Israel [you who strive with God and with men and prevail], in whom I will be glorified. 
+And [the Lord] said to me, You are My servant, Israel [you who strive with God and with men and prevail], in whom I will be glorified. 
 
 
 
@@ -196,7 +196,7 @@ Thus says the Lord, In an acceptable _and_ favorable time I have heard _and_ ans
 
 
 
-Saying to those who are bound, Come forth, and to those who are in [spiritual] darkness, Show yourselves [come into the light of the Sun of righteousness]. They shall feed in [^b]all the ways [in which they go], and their pastures shall be [not in deserts, but] on all the bare [grass-covered] hills. 
+Saying to those who are bound, Come forth, and to those who are in [spiritual] darkness, Show yourselves [come into the light of the Sun of righteousness]. They shall feed in all the ways [in which they go], and their pastures shall be [not in deserts, but] on all the bare [grass-covered] hills. 
 
 
 

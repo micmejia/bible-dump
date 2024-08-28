@@ -73,7 +73,7 @@ Mga taga-Jerusalem, ihanda ninyo ang inyong mga kawal, dahil napapaligiran na ka
 
 
 
-<i class="trans-change">Sinabi ng Panginoon,_ "Betlehem Efrata, kahit na isa ka sa pinakamaliit[^a] na bayan sa Juda, manggagaling sa iyo ang taong maglilingkod sa akin bilang pinuno ng Israel. Ang kanyang mga ninuno ay kilalang-kilala noong unang panahon." 
+<i class="trans-change">Sinabi ng Panginoon,_ "Betlehem Efrata, kahit na isa ka sa pinakamaliit na bayan sa Juda, manggagaling sa iyo ang taong maglilingkod sa akin bilang pinuno ng Israel. Ang kanyang mga ninuno ay kilalang-kilala noong unang panahon." 
 
 
 
@@ -106,7 +106,7 @@ Mga taga-Jerusalem, ihanda ninyo ang inyong mga kawal, dahil napapaligiran na ka
 
 
 
-Kaya ang mga mamamayan ng Israel ay ipapaubaya ng Panginoon sa kanilang mga kaaway hanggang sa maisilang ng babaeng namimilipit sa sakit[^b] ang sanggol <i class="trans-change">na lalaki na mamumuno sa Israel_. Pagkatapos, ang mga kababayan ng pinunong ito <i class="trans-change">na nabihag ng ibang bansa_ ay babalik sa kanilang mga kapwa Israelita. 
+Kaya ang mga mamamayan ng Israel ay ipapaubaya ng Panginoon sa kanilang mga kaaway hanggang sa maisilang ng babaeng namimilipit sa sakit ang sanggol <i class="trans-change">na lalaki na mamumuno sa Israel_. Pagkatapos, ang mga kababayan ng pinunong ito <i class="trans-change">na nabihag ng ibang bansa_ ay babalik sa kanilang mga kapwa Israelita. 
 
 
 
@@ -139,7 +139,7 @@ Kaya ang mga mamamayan ng Israel ay ipapaubaya ng Panginoon sa kanilang mga kaaw
 
 
 
-Pamamahalaan niya <i class="trans-change">ang mga mamamayan ng Israel_ sa pamamagitan ng lakas at kapangyarihan ng Panginoon. Ang katulad niyaʼy isang pastol na nagbabantay ng kanyang kawan. Kaya mamumuhay sila nang mapayapa dahil kikilalanin ng mga tao sa buong mundo[^c] ang kanyang kadakilaan. 
+Pamamahalaan niya <i class="trans-change">ang mga mamamayan ng Israel_ sa pamamagitan ng lakas at kapangyarihan ng Panginoon. Ang katulad niyaʼy isang pastol na nagbabantay ng kanyang kawan. Kaya mamumuhay sila nang mapayapa dahil kikilalanin ng mga tao sa buong mundo ang kanyang kadakilaan. 
 
 
 
@@ -172,7 +172,7 @@ Pamamahalaan niya <i class="trans-change">ang mga mamamayan ng Israel_ sa pamama
 
 
 
-Bibigyan niya ng mabuting kalagayan[^d] ang kanyang mga mamamayan. ## Kalayaan at Kapahamakan Kapag sinalakay ng mga taga-Asiria ang ating bansa at pasukin ang matitibay na bahagi ng ating lungsod, lalabanan natin sila sa pangunguna ng ating mga mahuhusay na pinuno. 
+Bibigyan niya ng mabuting kalagayan ang kanyang mga mamamayan. ## Kalayaan at Kapahamakan Kapag sinalakay ng mga taga-Asiria ang ating bansa at pasukin ang matitibay na bahagi ng ating lungsod, lalabanan natin sila sa pangunguna ng ating mga mahuhusay na pinuno. 
 
 
 
@@ -205,7 +205,7 @@ Bibigyan niya ng mabuting kalagayan[^d] ang kanyang mga mamamayan. ## Kalayaan a
 
 
 
-Tatalunin nila at pamumunuan ang Asiria, ang lupain ni Nimrod, sa pamamagitan ng kanilang mga armas. Kaya ililigtas nila[^e] tayo kapag sinalakay ng mga taga-Asiria ang ating bansa. 
+Tatalunin nila at pamumunuan ang Asiria, ang lupain ni Nimrod, sa pamamagitan ng kanilang mga armas. Kaya ililigtas nila tayo kapag sinalakay ng mga taga-Asiria ang ating bansa. 
 
 
 

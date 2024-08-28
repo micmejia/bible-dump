@@ -139,7 +139,7 @@ Pero dahil sa matigas ang ulo mo at ayaw mong magsisi, pinabibigat mo ang parusa
 
 
 
-Sapagkat ibibigay ng Dios sa bawat isa ang nararapat ayon sa kanyang mga gawa.[^a] 
+Sapagkat ibibigay ng Dios sa bawat isa ang nararapat ayon sa kanyang mga gawa. 
 
 
 
@@ -337,7 +337,7 @@ Sapagkat pantay-pantay ang pagtingin ng Dios sa lahat ng tao.
 
 
 
-Ang mga taong nagkakasala na walang alam sa Kautusan <i class="trans-change">ni Moises_ ay mapapahamak,[^b] at ang kaparusahan nila ay hindi ibabatay sa Kautusan. Ang mga nakakaalam naman ng Kautusan <i class="trans-change">ni Moises_, pero patuloy na gumagawa ng kasamaan ay parurusahan na batay sa Kautusan. 
+Ang mga taong nagkakasala na walang alam sa Kautusan <i class="trans-change">ni Moises_ ay mapapahamak, at ang kaparusahan nila ay hindi ibabatay sa Kautusan. Ang mga nakakaalam naman ng Kautusan <i class="trans-change">ni Moises_, pero patuloy na gumagawa ng kasamaan ay parurusahan na batay sa Kautusan. 
 
 
 
@@ -733,7 +733,7 @@ Nagmamalaki kayo na nasa inyo ang Kautusan <i class="trans-change">ng Dios_, per
 
 
 
-Sinasabi sa Kasulatan, "Dahil sa inyo, nilalapastangan ng mga hindi Judio ang pangalan ng Dios."[^c] 
+Sinasabi sa Kasulatan, "Dahil sa inyo, nilalapastangan ng mga hindi Judio ang pangalan ng Dios." 
 
 
 
@@ -898,4 +898,4 @@ Ang pagka-Judio ng isang tao ay hindi dahil sa Judio ang kanyang mga magulang at
 
 
 
-Ang tunay na Judio ay ang taong nabago[^d] ang puso sa pamamagitan ng Espiritu, at hindi dahil tuli siya ayon sa Kautusan. Ang ganyang tao ay pinupuri ng Dios kahit hindi pinupuri ng tao.
+Ang tunay na Judio ay ang taong nabago ang puso sa pamamagitan ng Espiritu, at hindi dahil tuli siya ayon sa Kautusan. Ang ganyang tao ay pinupuri ng Dios kahit hindi pinupuri ng tao.

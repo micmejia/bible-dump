@@ -106,7 +106,7 @@ Mapalad ang mga taong gumagawa nito at ang mga sumusunod sa aking mga ipinapagaw
 
 
 
-Huwag isipin ng mga dayuhang nag-alay ng kanilang sarili sa Panginoon na hindi sila isasama ng Panginoon sa kanyang mga mamamayan. Huwag ding isipin ng mga taong nagpakapon na dahil hindi na sila magkakaanak,[^a] <i class="trans-change">ay hindi sila maaaring isama sa mga mamamayan ng Dios_. 
+Huwag isipin ng mga dayuhang nag-alay ng kanilang sarili sa Panginoon na hindi sila isasama ng Panginoon sa kanyang mga mamamayan. Huwag ding isipin ng mga taong nagpakapon na dahil hindi na sila magkakaanak, <i class="trans-change">ay hindi sila maaaring isama sa mga mamamayan ng Dios_. 
 
 
 

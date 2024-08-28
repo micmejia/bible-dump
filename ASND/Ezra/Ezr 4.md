@@ -139,7 +139,7 @@ Ngunit ito ang sagot nina Zerubabel, Jeshua, at ng mga pinuno ng mga pamilya: "I
 
 
 
-Kaya pinahina ang loob at tinakot ng mga taong dati nang nakatira sa lupaing iyon[^a] ang mga tao sa Juda para hindi nila maipagpatuloy ang pagpapagawa nila <i class="trans-change">ng templo_. 
+Kaya pinahina ang loob at tinakot ng mga taong dati nang nakatira sa lupaing iyon ang mga tao sa Juda para hindi nila maipagpatuloy ang pagpapagawa nila <i class="trans-change">ng templo_. 
 
 
 
@@ -238,7 +238,7 @@ Nang maging hari si Ahasuerus, ang mga kalaban ng mga naninirahan sa Jerusalem a
 
 
 
-At kahit na noong si Artaserses na ang hari ng Persia, sumulat din sila sa kanya. Sila ay sina Bishlam, Mitredat, Tabeel, at ang iba pa nilang mga kasama. Isinulat nila ito sa wikang Aramico at isinalin ito <i class="trans-change">sa wika ng mga taga-Persia_. <sup class="versenum">8-11</sup>Sumulat din kay Haring Artaserses si Rehum na gobernador at si Shimsai na kalihim laban sa mga taga-Jerusalem. Ito ang <i class="trans-change">nilalaman ng_ sulat nila: "Mahal na Haring Artaserses, "<i class="trans-change">Una po sa lahat_ nangungumusta kami sa inyo, kaming mga lingkod nʼyo rito sa <i class="trans-change">lalawigan ng_ kanluran ng Eufrates. Kasama po sa mga nangungumusta ay ang mga kasama naming mga pinuno at opisyal, ang mga tao sa Tripolis, Persia, Erec, Babilonia, at ang mga tao sa Susa sa lupain ng Elam. Kinukumusta rin po kayo ng mga taong pinaalis sa kanilang mga lugar ni Osnapar,[^b] ang tanyag at makapangyarihan <i class="trans-change">na hari ng Asiria_. Itong mga mamamayan ay pinatira niya sa lungsod ng Samaria at sa ibang mga lugar sa kanluran ng Eufrates. 
+At kahit na noong si Artaserses na ang hari ng Persia, sumulat din sila sa kanya. Sila ay sina Bishlam, Mitredat, Tabeel, at ang iba pa nilang mga kasama. Isinulat nila ito sa wikang Aramico at isinalin ito <i class="trans-change">sa wika ng mga taga-Persia_. <sup class="versenum">8-11</sup>Sumulat din kay Haring Artaserses si Rehum na gobernador at si Shimsai na kalihim laban sa mga taga-Jerusalem. Ito ang <i class="trans-change">nilalaman ng_ sulat nila: "Mahal na Haring Artaserses, "<i class="trans-change">Una po sa lahat_ nangungumusta kami sa inyo, kaming mga lingkod nʼyo rito sa <i class="trans-change">lalawigan ng_ kanluran ng Eufrates. Kasama po sa mga nangungumusta ay ang mga kasama naming mga pinuno at opisyal, ang mga tao sa Tripolis, Persia, Erec, Babilonia, at ang mga tao sa Susa sa lupain ng Elam. Kinukumusta rin po kayo ng mga taong pinaalis sa kanilang mga lugar ni Osnapar, ang tanyag at makapangyarihan <i class="trans-change">na hari ng Asiria_. Itong mga mamamayan ay pinatira niya sa lungsod ng Samaria at sa ibang mga lugar sa kanluran ng Eufrates. 
 
 
 
@@ -271,7 +271,7 @@ At kahit na noong si Artaserses na ang hari ng Persia, sumulat din sila sa kanya
 
 
 
-"Mahal na Hari, gusto po naming malaman nʼyo na muling ipinapatayo ng mga Judio ang lungsod ng Jerusalem. Ang mamamayan nito ay masasama at rebelde. Dumating ang mga ito sa lungsod mula sa mga lugar na inyong nasasakupan. Inaayos na nga nila ang mga pader pati na po ang mga pundasyon nito.[^c] 
+"Mahal na Hari, gusto po naming malaman nʼyo na muling ipinapatayo ng mga Judio ang lungsod ng Jerusalem. Ang mamamayan nito ay masasama at rebelde. Dumating ang mga ito sa lungsod mula sa mga lugar na inyong nasasakupan. Inaayos na nga nila ang mga pader pati na po ang mga pundasyon nito. 
 
 
 

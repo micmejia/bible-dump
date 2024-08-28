@@ -28,13 +28,13 @@ But now, do not therefore be grieved or angry with yourselves because you sold m
 For these two years the famine _has been_ in the land, and _there are_ still five years in which _there will be_ neither plowing nor harvesting. 
 
 ###### 7 
-And God sent me before you to preserve a [^a]posterity for you in the earth, and to save your lives by a great deliverance. 
+And God sent me before you to preserve a posterity for you in the earth, and to save your lives by a great deliverance. 
 
 ###### 8 
 So now _it was_ not you _who_ sent me here, but God; and He has made me a father to Pharaoh, and lord of all his house, and a ruler throughout all the land of Egypt. 
 
 ###### 9 
-"Hurry and go up to my father, and say to him, 'Thus says your son Joseph: "God has made me lord of all Egypt; come down to me, do not [^b]tarry. 
+"Hurry and go up to my father, and say to him, 'Thus says your son Joseph: "God has made me lord of all Egypt; come down to me, do not tarry. 
 
 ###### 10 
 You shall dwell in the land of Goshen, and you shall be near to me, you and your children, your children's children, your flocks and your herds, and all that you have. 
@@ -61,7 +61,7 @@ Now the report of it was heard in Pharaoh's house, saying, "Joseph's brothers ha
 And Pharaoh said to Joseph, "Say to your brothers, 'Do this: Load your animals and depart; go to the land of Canaan. 
 
 ###### 18 
-Bring your father and your households and come to me; I will give you the best of the land of Egypt, and you will eat the [^c]fat of the land. 
+Bring your father and your households and come to me; I will give you the best of the land of Egypt, and you will eat the fat of the land. 
 
 ###### 19 
 Now you are commanded--do this: Take carts out of the land of Egypt for your little ones and your wives; bring your father and come. 
@@ -70,7 +70,7 @@ Now you are commanded--do this: Take carts out of the land of Egypt for your lit
 Also do not be concerned about your goods, for the best of all the land of Egypt _is_ yours.' " 
 
 ###### 21 
-Then the sons of Israel did so; and Joseph gave them carts,[^d] according to the command of Pharaoh, and he gave them provisions for the journey. 
+Then the sons of Israel did so; and Joseph gave them carts, according to the command of Pharaoh, and he gave them provisions for the journey. 
 
 ###### 22 
 He gave to all of them, to each man, changes of garments; but to Benjamin he gave three hundred _pieces_ of silver and five changes of garments. 

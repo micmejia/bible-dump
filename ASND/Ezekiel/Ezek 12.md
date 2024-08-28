@@ -436,7 +436,7 @@ Kahit ang pinuno nilaʼy papasanin ang sarili niyang dala-dalahan at aalis nang 
 
 
 
-Pero huhulihin ko siya <i class="trans-change">na parang hayop_ at dadalhin sa Babilonia sa lupain ng mga Caldeo. Pero hindi niya ito makikita,[^a] at doon siya mamamatay. 
+Pero huhulihin ko siya <i class="trans-change">na parang hayop_ at dadalhin sa Babilonia sa lupain ng mga Caldeo. Pero hindi niya ito makikita, at doon siya mamamatay. 
 
 
 

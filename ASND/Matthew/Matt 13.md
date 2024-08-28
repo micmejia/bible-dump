@@ -271,7 +271,7 @@ May mga binhi namang nahulog sa lupang may matitinik na damo. Lumago ang mga dam
 
 
 
-Ang iba namaʼy nahulog sa mabuting lupa, <i class="trans-change">lumago_ at namunga. Ang ibaʼy napakarami ng bunga, ang ibaʼy marami-rami, at ang iba namaʼy katamtaman lang.[^a] 
+Ang iba namaʼy nahulog sa mabuting lupa, <i class="trans-change">lumago_ at namunga. Ang ibaʼy napakarami ng bunga, ang ibaʼy marami-rami, at ang iba namaʼy katamtaman lang. 
 
 
 
@@ -304,7 +304,7 @@ Ang iba namaʼy nahulog sa mabuting lupa, <i class="trans-change">lumago_ at nam
 
 
 
-Kayong mga nakikinig, dapat ninyo itong pag-isipan!"[^b] ## Ang Layunin ng mga Talinghaga 
+Kayong mga nakikinig, dapat ninyo itong pag-isipan!" ## Ang Layunin ng mga Talinghaga 
 
 
 
@@ -370,7 +370,7 @@ Pagkatapos, lumapit kay Jesus ang mga tagasunod niya at nagtanong, "Bakit po kay
 
 
 
-Sumagot si Jesus, "Ipinagkaloob sa inyo na malaman ang mga lihim tungkol sa paghahari ng Dios,[^c] pero hindi ito ipinagkaloob sa iba. 
+Sumagot si Jesus, "Ipinagkaloob sa inyo na malaman ang mga lihim tungkol sa paghahari ng Dios, pero hindi ito ipinagkaloob sa iba. 
 
 
 
@@ -502,7 +502,7 @@ Sa kanila natupad ang sinabi noon ni Isaias: 'Makinig man kayo nang makinig, hin
 
 
 
-Dahil matigas ang puso ng mga taong ito. Tinakpan nila ang kanilang mga tainga, at ipinikit ang kanilang mga mata, dahil baka makakita sila at makarinig, at maunawaan nila kung ano ang tama, at magbalik-loob sila sa akin, at pagalingin ko sila.'[^d] 
+Dahil matigas ang puso ng mga taong ito. Tinakpan nila ang kanilang mga tainga, at ipinikit ang kanilang mga mata, dahil baka makakita sila at makarinig, at maunawaan nila kung ano ang tama, at magbalik-loob sila sa akin, at pagalingin ko sila.' 
 
 
 
@@ -766,7 +766,7 @@ Ang lupang may matitinik na damo, kung saan nahulog ang iba pang binhi ay ang mg
 
 
 
-Ngunit ang mabuting lupang hinasikan ng binhi ay ang mga taong nakikinig sa salita <i class="trans-change">ng Dios_ at nakakaunawa nito. Kaya namumunga ito <i class="trans-change">sa kanilang buhay_. Ang ibaʼy napakarami ang bunga, ang ibaʼy marami, at ang iba namaʼy katamtaman lang."[^e] ## Ang Talinghaga tungkol sa mga Damo sa Triguhan 
+Ngunit ang mabuting lupang hinasikan ng binhi ay ang mga taong nakikinig sa salita <i class="trans-change">ng Dios_ at nakakaunawa nito. Kaya namumunga ito <i class="trans-change">sa kanilang buhay_. Ang ibaʼy napakarami ang bunga, ang ibaʼy marami, at ang iba namaʼy katamtaman lang." ## Ang Talinghaga tungkol sa mga Damo sa Triguhan 
 
 
 
@@ -1030,7 +1030,7 @@ Hayaan na lang muna ninyong lumagong pareho hanggang sa anihan. Kapag dumating n
 
 
 
-Ikinuwento pa sa kanila ni Jesus ang paghahalintulad na ito: "Ang kaharian ng Dios ay katulad ng isang buto ng mustasa[^f] na itinanim ng isang tao sa kanyang bukid. 
+Ikinuwento pa sa kanila ni Jesus ang paghahalintulad na ito: "Ang kaharian ng Dios ay katulad ng isang buto ng mustasa na itinanim ng isang tao sa kanyang bukid. 
 
 
 
@@ -1162,7 +1162,7 @@ Gumamit si Jesus ng mga paghahalintulad o mga talinghaga sa lahat ng kanyang pan
 
 
 
-Sa ganitong paraan ay natupad ang sinabi ng Dios sa pamamagitan ng kanyang propeta: "Magsasalita ako sa kanila sa pamamagitan ng paghahalintulad. Sasabihin ko sa kanila ang mga bagay na nalilihim mula pa nang likhain ang mundo."[^g] ## Ang Kahulugan ng Talinghaga tungkol sa mga Damo sa Triguhan 
+Sa ganitong paraan ay natupad ang sinabi ng Dios sa pamamagitan ng kanyang propeta: "Magsasalita ako sa kanila sa pamamagitan ng paghahalintulad. Sasabihin ko sa kanila ang mga bagay na nalilihim mula pa nang likhain ang mundo." ## Ang Kahulugan ng Talinghaga tungkol sa mga Damo sa Triguhan 
 
 
 
@@ -1393,7 +1393,7 @@ Kung paanong binubunot at sinusunog ang masasamang damo, ganoon din ang mangyaya
 
 
 
-Itatapon sila sa nagliliyab na apoy, at dooʼy iiyak sila at magngangalit ang kanilang ngipin.[^h] 
+Itatapon sila sa nagliliyab na apoy, at dooʼy iiyak sila at magngangalit ang kanilang ngipin. 
 
 
 
@@ -1459,7 +1459,7 @@ Pero ang matutuwid ay magniningning na parang araw sa kaharian ng kanilang Ama. 
 
 
 
-<i class="trans-change">Sinabi pa ni Jesus,_ "Ang kaharian ng Dios ay katulad ng kayamanang nakabaon sa isang bukid. Nang mahukay ito ng isang tao, itinago[^i] niya itong muli. At sa tuwa niyaʼy umuwi siya at ipinagbili ang lahat ng kanyang ari-arian, at binili niya ang bukid na iyon." ## Ang Paghahalintulad sa Perlas 
+<i class="trans-change">Sinabi pa ni Jesus,_ "Ang kaharian ng Dios ay katulad ng kayamanang nakabaon sa isang bukid. Nang mahukay ito ng isang tao, itinago niya itong muli. At sa tuwa niyaʼy umuwi siya at ipinagbili ang lahat ng kanyang ari-arian, at binili niya ang bukid na iyon." ## Ang Paghahalintulad sa Perlas 
 
 
 
@@ -1591,7 +1591,7 @@ Nang makatagpo siya ng isang mamahaling perlas, ipinagbili niya ang lahat ng kan
 
 
 
-Nang mapuno ang lambat, hinila nila ito papunta sa dalampasigan. Pagkatapos, naupo sila para pagbukud-bukurin ang mga isda. Ang mabubuting isda ay inilagay nila sa mga basket, at ang mga walang kwenta[^j] ay itinapon nila. 
+Nang mapuno ang lambat, hinila nila ito papunta sa dalampasigan. Pagkatapos, naupo sila para pagbukud-bukurin ang mga isda. Ang mabubuting isda ay inilagay nila sa mga basket, at ang mga walang kwenta ay itinapon nila. 
 
 
 
@@ -1723,7 +1723,7 @@ Pagkatapos, tinanong sila ni Jesus, "Naunawaan ba ninyong lahat ang sinabi ko?" 
 
 
 
-At sinabi ni Jesus sa kanila, "Kaya nga, ang bawat tagapagturo ng Kautusan na naturuan tungkol sa kaharian ng Dios ay maitutulad sa isang may-ari ng bahay na <i class="trans-change">maraming ari-arian sa bodega niya_. Hindi lang ang mga lumang bagay ang kanyang inilalabas sa bodega kundi pati ang mga bago."[^k] ## Hindi Tinanggap si Jesus sa Nazaret 
+At sinabi ni Jesus sa kanila, "Kaya nga, ang bawat tagapagturo ng Kautusan na naturuan tungkol sa kaharian ng Dios ay maitutulad sa isang may-ari ng bahay na <i class="trans-change">maraming ari-arian sa bodega niya_. Hindi lang ang mga lumang bagay ang kanyang inilalabas sa bodega kundi pati ang mga bago." ## Hindi Tinanggap si Jesus sa Nazaret 
 
 
 

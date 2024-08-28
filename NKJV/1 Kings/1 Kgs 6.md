@@ -10,31 +10,31 @@ next: ['1 Kgs 7']
 
 
 ###### 1 
-And it came to pass in the four hundred and [^a]eightieth year after the children of Israel had come out of the land of Egypt, in the fourth year of Solomon's reign over Israel, in the month of [^b]Ziv, which _is_ the second month, that he began to build the house of the Lord. 
+And it came to pass in the four hundred and eightieth year after the children of Israel had come out of the land of Egypt, in the fourth year of Solomon's reign over Israel, in the month of Ziv, which _is_ the second month, that he began to build the house of the Lord. 
 
 ###### 2 
 Now the house which King Solomon built for the Lord, its length _was_ sixty cubits, its width twenty, and its height thirty cubits. 
 
 ###### 3 
-The vestibule in front of the [^c]sanctuary of the house _was_ [^d]twenty cubits long across the width of the house, _and_ the width of [^e]_the vestibule extended_ [^f]ten cubits from the front of the house. 
+The vestibule in front of the sanctuary of the house _was_ twenty cubits long across the width of the house, _and_ the width of _the vestibule extended_ ten cubits from the front of the house. 
 
 ###### 4 
 And he made for the house windows with beveled frames. 
 
 ###### 5 
-Against the wall of the [^g]temple he built chambers all around, _against_ the walls of the temple, all around the sanctuary and the [^h]inner sanctuary. Thus he made side chambers all around it. 
+Against the wall of the temple he built chambers all around, _against_ the walls of the temple, all around the sanctuary and the inner sanctuary. Thus he made side chambers all around it. 
 
 ###### 6 
-The lowest chamber _was_ five cubits wide, the middle _was_ six cubits wide, and the third _was_ seven cubits wide; for he made narrow ledges around the outside of the temple, so that _the support beams_ would not be fastened into the walls of the [^i]temple. 
+The lowest chamber _was_ five cubits wide, the middle _was_ six cubits wide, and the third _was_ seven cubits wide; for he made narrow ledges around the outside of the temple, so that _the support beams_ would not be fastened into the walls of the temple. 
 
 ###### 7 
 And the temple, when it was being built, was built with stone finished at the quarry, so that no hammer or chisel _or_ any iron tool was heard in the temple while it was being built. 
 
 ###### 8 
-The doorway for the [^j]middle story _was_ on the right side of the temple. They went up by stairs to the middle _story,_ and from the middle to the third. 
+The doorway for the middle story _was_ on the right side of the temple. They went up by stairs to the middle _story,_ and from the middle to the third. 
 
 ###### 9 
-So he built the [^k]temple and finished it, and he paneled the temple with beams and boards of cedar. 
+So he built the temple and finished it, and he paneled the temple with beams and boards of cedar. 
 
 ###### 10 
 And he built side chambers against the entire temple, each five cubits high; they were attached to the temple with cedar beams. 
@@ -43,7 +43,7 @@ And he built side chambers against the entire temple, each five cubits high; the
 Then the word of the Lord came to Solomon, saying: 
 
 ###### 12 
-"_Concerning_ this [^l]temple which you are building, if you walk in My statutes, execute My judgments, keep all My commandments, and walk in them, then I will perform My [^m]word with you, which I spoke to your father David. 
+"_Concerning_ this temple which you are building, if you walk in My statutes, execute My judgments, keep all My commandments, and walk in them, then I will perform My word with you, which I spoke to your father David. 
 
 ###### 13 
 And I will dwell among the children of Israel, and will not forsake My people Israel." 
@@ -64,7 +64,7 @@ And in front of it the temple sanctuary was forty cubits _long._
 The inside of the temple was cedar, carved with ornamental buds and open flowers. All _was_ cedar; there was no stone _to be_ seen. 
 
 ###### 19 
-And he prepared the [^n]inner sanctuary inside the temple, to set the ark of the covenant of the Lord there. 
+And he prepared the inner sanctuary inside the temple, to set the ark of the covenant of the Lord there. 
 
 ###### 20 
 The inner sanctuary _was_ twenty cubits long, twenty cubits wide, and twenty cubits high. He overlaid it with pure gold, and overlaid the altar of cedar. 
@@ -88,7 +88,7 @@ And the other cherub _was_ ten cubits; both cherubim _were_ of the same size and
 The height of one cherub _was_ ten cubits, and so _was_ the other cherub. 
 
 ###### 27 
-Then he set the cherubim inside the inner [^o]room; and they stretched out the wings of the cherubim so that the wing of the one touched _one_ wall, and the wing of the other cherub touched the other wall. And their wings touched each other in the middle of the room. 
+Then he set the cherubim inside the inner room; and they stretched out the wings of the cherubim so that the wing of the one touched _one_ wall, and the wing of the other cherub touched the other wall. And their wings touched each other in the middle of the room. 
 
 ###### 28 
 Also he overlaid the cherubim with gold. 
@@ -100,13 +100,13 @@ Then he carved all the walls of the temple all around, both the inner and outer 
 And the floor of the temple he overlaid with gold, both the inner and outer _sanctuaries._ 
 
 ###### 31 
-For the entrance of the inner sanctuary he made doors _of_ olive wood; the lintel _and_ doorposts _were_ [^p]one-fifth _of the wall._ 
+For the entrance of the inner sanctuary he made doors _of_ olive wood; the lintel _and_ doorposts _were_ one-fifth _of the wall._ 
 
 ###### 32 
 The two doors _were of_ olive wood; and he carved on them figures of cherubim, palm trees, and open flowers, and overlaid _them_ with gold; and he spread gold on the cherubim and on the palm trees. 
 
 ###### 33 
-So for the door of the [^q]sanctuary he also made doorposts _of_ olive wood, [^r]one-fourth _of the wall._ 
+So for the door of the sanctuary he also made doorposts _of_ olive wood, one-fourth _of the wall._ 
 
 ###### 34 
 And the two doors _were of_ cypress wood; two panels _comprised_ one folding door, and two panels _comprised_ the other folding door. 
@@ -118,7 +118,7 @@ Then he carved cherubim, palm trees, and open flowers _on them,_ and overlaid _t
 And he built the inner court with three rows of hewn stone and a row of cedar beams. 
 
 ###### 37 
-In the fourth year the foundation of the house of the Lord was laid, in the month of [^s]Ziv. 
+In the fourth year the foundation of the house of the Lord was laid, in the month of Ziv. 
 
 ###### 38 
-And in the eleventh year, in the month of [^t]Bul, which is the eighth month, the house was finished in all its details and according to all its plans. So he was seven years in building it.
+And in the eleventh year, in the month of Bul, which is the eighth month, the house was finished in all its details and according to all its plans. So he was seven years in building it.

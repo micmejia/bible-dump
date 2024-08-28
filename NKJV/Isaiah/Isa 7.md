@@ -10,28 +10,28 @@ next: ['Isa 8']
 
 
 ###### 1 
-Now it came to pass in the days of Ahaz the son of Jotham, the son of Uzziah, king of Judah, _that_ Rezin king of Syria and Pekah the son of Remaliah, king of Israel, went up to Jerusalem to _make_ war against it, but could not [^a]prevail against it. 
+Now it came to pass in the days of Ahaz the son of Jotham, the son of Uzziah, king of Judah, _that_ Rezin king of Syria and Pekah the son of Remaliah, king of Israel, went up to Jerusalem to _make_ war against it, but could not prevail against it. 
 
 ###### 2 
-And it was told to the house of David, saying, "Syria's forces are [^b]deployed in Ephraim." So his heart and the heart of his people were moved as the trees of the woods are moved with the wind. 
+And it was told to the house of David, saying, "Syria's forces are deployed in Ephraim." So his heart and the heart of his people were moved as the trees of the woods are moved with the wind. 
 
 ###### 3 
-Then the Lord said to Isaiah, "Go out now to meet Ahaz, you and [^c]Shear-Jashub your son, at the end of the aqueduct from the upper pool, on the highway to the Fuller's Field, 
+Then the Lord said to Isaiah, "Go out now to meet Ahaz, you and Shear-Jashub your son, at the end of the aqueduct from the upper pool, on the highway to the Fuller's Field, 
 
 ###### 4 
-and say to him: [^d]'Take heed, and [^e]be quiet; do not fear or be fainthearted for these two stubs of smoking firebrands, for the fierce anger of Rezin and Syria, and the son of Remaliah. 
+and say to him: 'Take heed, and be quiet; do not fear or be fainthearted for these two stubs of smoking firebrands, for the fierce anger of Rezin and Syria, and the son of Remaliah. 
 
 ###### 5 
 Because Syria, Ephraim, and the son of Remaliah have plotted evil against you, saying, 
 
 ###### 6 
-"Let us go up against Judah and [^f]trouble it, and let us make a gap in its wall for ourselves, and set a king over them, the son of Tabel"-- 
+"Let us go up against Judah and trouble it, and let us make a gap in its wall for ourselves, and set a king over them, the son of Tabel"-- 
 
 ###### 7 
 thus says the Lord God: "It shall not stand, Nor shall it come to pass. 
 
 ###### 8 
-For the head of Syria _is_ Damascus, And the head of Damascus _is_ Rezin. Within sixty-five years Ephraim will be [^g]broken, _So that it will_ not _be_ a people. 
+For the head of Syria _is_ Damascus, And the head of Damascus _is_ Rezin. Within sixty-five years Ephraim will be broken, _So that it will_ not _be_ a people. 
 
 ###### 9 
 The head of Ephraim _is_ Samaria, And the head of Samaria _is_ Remaliah's son. If you will not believe, Surely you shall not be established." ' " ## The Immanuel Prophecy 
@@ -40,7 +40,7 @@ The head of Ephraim _is_ Samaria, And the head of Samaria _is_ Remaliah's son. I
 Moreover the Lord spoke again to Ahaz, saying, 
 
 ###### 11 
-"Ask a sign for yourself from the Lord your God; [^h]ask it either in the depth or in the height above." 
+"Ask a sign for yourself from the Lord your God; ask it either in the depth or in the height above." 
 
 ###### 12 
 But Ahaz said, "I will not ask, nor will I test the Lord!" 
@@ -49,7 +49,7 @@ But Ahaz said, "I will not ask, nor will I test the Lord!"
 Then he said, "Hear now, O house of David! _Is it_ a small thing for you to weary men, but will you weary my God also? 
 
 ###### 14 
-Therefore the Lord Himself will give you a sign: Behold, the virgin shall conceive and bear a Son, and shall call His name Immanuel.[^i] 
+Therefore the Lord Himself will give you a sign: Behold, the virgin shall conceive and bear a Son, and shall call His name Immanuel. 
 
 ###### 15 
 Curds and honey He shall eat, that He may know to refuse the evil and choose the good. 
@@ -67,7 +67,7 @@ And it shall come to pass in that day _That_ the Lord will whistle for the fly T
 They will come, and all of them will rest In the desolate valleys and in the clefts of the rocks, And on all thorns and in all pastures. 
 
 ###### 20 
-In the same day the Lord will shave with a hired razor, With those from beyond [^j]the River, with the king of Assyria, The head and the hair of the legs, And will also remove the beard. 
+In the same day the Lord will shave with a hired razor, With those from beyond the River, with the king of Assyria, The head and the hair of the legs, And will also remove the beard. 
 
 ###### 21 
 It shall be in that day _That_ a man will keep alive a young cow and two sheep; 

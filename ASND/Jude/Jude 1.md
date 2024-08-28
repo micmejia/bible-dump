@@ -104,7 +104,7 @@ Sumainyo nawa ang higit pang awa, kapayapaan, at pag-ibig <i class="trans-change
 
 
 
-Mga minamahal, gustong-gusto ko sanang sumulat sa inyo tungkol sa kaligtasang natanggap natin, pero naisip ko na mas kailangan ko ngayong sumulat tungkol sa mga bagay na magpapalakas ng inyong loob upang manindigan sa mga aral ng ating pananampalataya. Ang mga aral na ito ay ipinagkatiwala ng Dios sa mga pinabanal[^a] <i class="trans-change">niya_, at hindi dapat baguhin. 
+Mga minamahal, gustong-gusto ko sanang sumulat sa inyo tungkol sa kaligtasang natanggap natin, pero naisip ko na mas kailangan ko ngayong sumulat tungkol sa mga bagay na magpapalakas ng inyong loob upang manindigan sa mga aral ng ating pananampalataya. Ang mga aral na ito ay ipinagkatiwala ng Dios sa mga pinabanal <i class="trans-change">niya_, at hindi dapat baguhin. 
 
 
 
@@ -401,7 +401,7 @@ Nakakaawa ang sasapitin ng mga taong ito dahil sinunod nila ang ginawa ni Cain. 
 
 
 
-Ang mga taong itoʼy nakakasira[^b] sa pagsasalo-salo ninyo bilang magkakapatid sa Panginoon. Ang tanging habol nila ay kumain at uminom, at hindi sila nahihiya sa ginagawa nila. Wala silang iniisip kundi ang kanilang sarili. Para silang mga ulap na tinatangay ng hangin pero wala namang dalang ulan. Para rin silang mga punongkahoy na walang bunga sa kapanahunan nito, binunot pati ang ugat at talagang patay na. 
+Ang mga taong itoʼy nakakasira sa pagsasalo-salo ninyo bilang magkakapatid sa Panginoon. Ang tanging habol nila ay kumain at uminom, at hindi sila nahihiya sa ginagawa nila. Wala silang iniisip kundi ang kanilang sarili. Para silang mga ulap na tinatangay ng hangin pero wala namang dalang ulan. Para rin silang mga punongkahoy na walang bunga sa kapanahunan nito, binunot pati ang ugat at talagang patay na. 
 
 
 

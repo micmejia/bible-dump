@@ -106,7 +106,7 @@ Ibinigay ko ang tungkulin ng pamamahala sa Jerusalem sa kapatid kong si Hanani k
 
 
 
-Sinabi ko sa kanila, "Huwag nʼyong pabayaang nakabukas ang mga pintuan ng lungsod kapag tanghaling-tapat,[^a] kahit may mga guwardya pa na nagbabantay. Dapat nakasara ito at nakakandado. Maglagay din kayo ng mga guwardya mula sa mga mamamayan ng Jerusalem. Ang iba sa kanila ay ilagay <i class="trans-change">sa pader na_ malapit sa mga bahay nila, at ang iba naman ay ilagay sa ibang bahagi ng pader." ## Ang Talaan ng mga Tao na Bumalik mula sa Pagkabihag. 
+Sinabi ko sa kanila, "Huwag nʼyong pabayaang nakabukas ang mga pintuan ng lungsod kapag tanghaling-tapat, kahit may mga guwardya pa na nagbabantay. Dapat nakasara ito at nakakandado. Maglagay din kayo ng mga guwardya mula sa mga mamamayan ng Jerusalem. Ang iba sa kanila ay ilagay <i class="trans-change">sa pader na_ malapit sa mga bahay nila, at ang iba naman ay ilagay sa ibang bahagi ng pader." ## Ang Talaan ng mga Tao na Bumalik mula sa Pagkabihag. 
 
 
 
@@ -370,7 +370,7 @@ Dahil nga hindi nila makita ang talaan ng kanilang mga ninuno, hindi sila tinang
 
 
 
-Sinabihan sila ng gobernador <i class="trans-change">ng Juda_ na hindi sila maaaring kumain ng mga pagkain na inihandog sa Dios hanggaʼt walang pari na sasangguni sa Panginoon tungkol sa kanilang pagkapari sa pamamagitan ng "Urim" at "Thummim".[^e] <sup class="versenum">66-69</sup>Ang kabuuang bilang ng mga lalaki mula sa pagkabihag ay 42,360, hindi pa kabilang dito ang mga alipin nilang lalaki at babae na 7, 337 at mga mang-aawit na lalaki at babae na 245. May dala silang 736 na kabayo, 245 mola,[^f] 435 kamelyo, at 6,720 asno. 
+Sinabihan sila ng gobernador <i class="trans-change">ng Juda_ na hindi sila maaaring kumain ng mga pagkain na inihandog sa Dios hanggaʼt walang pari na sasangguni sa Panginoon tungkol sa kanilang pagkapari sa pamamagitan ng "Urim" at "Thummim". <sup class="versenum">66-69</sup>Ang kabuuang bilang ng mga lalaki mula sa pagkabihag ay 42,360, hindi pa kabilang dito ang mga alipin nilang lalaki at babae na 7, 337 at mga mang-aawit na lalaki at babae na 245. May dala silang 736 na kabayo, 245 mola, 435 kamelyo, at 6,720 asno. 
 
 
 

@@ -139,7 +139,7 @@ Nakipaglaban din si David kay Haring Hadadezer ng Zoba, na anak ni Rehob, habang
 
 
 
-Naagaw nila David ang 1,000 niyang karwahe, 7,000 mangangarwahe,[^a] at 20,000 sundalo. Pinilayan nila David ang mga kabayo na humihila ng mga karwahe, maliban lang sa 100 kabayo na itinira nila <i class="trans-change">para gamitin_. 
+Naagaw nila David ang 1,000 niyang karwahe, 7,000 mangangarwahe, at 20,000 sundalo. Pinilayan nila David ang mga kabayo na humihila ng mga karwahe, maliban lang sa 100 kabayo na itinira nila <i class="trans-change">para gamitin_. 
 
 
 
@@ -172,7 +172,7 @@ Naagaw nila David ang 1,000 niyang karwahe, 7,000 mangangarwahe,[^a] at 20,000 s
 
 
 
-Nang dumating ang mga Arameo[^b] mula sa Damascus para tulungan si Hadadezer, pinatay nila David ang 22,000 sa mga ito. 
+Nang dumating ang mga Arameo mula sa Damascus para tulungan si Hadadezer, pinatay nila David ang 22,000 sa mga ito. 
 
 
 
@@ -271,7 +271,7 @@ Kinuha ni David ang mga gintong kalasag na pag-aari ng mga opisyal ni Hadadezer,
 
 
 
-Kinuha rin niya ang napakaraming tanso sa Beta[^c] at Berotai, mga bayang sakop ni Hadadezer. 
+Kinuha rin niya ang napakaraming tanso sa Beta at Berotai, mga bayang sakop ni Hadadezer. 
 
 
 
@@ -304,7 +304,7 @@ Kinuha rin niya ang napakaraming tanso sa Beta[^c] at Berotai, mga bayang sakop 
 
 
 
-Nabalitaan ni Haring Tou[^d] ng Hamat na tinalo ni David ang buong sundalo ni Hadadezer. 
+Nabalitaan ni Haring Tou ng Hamat na tinalo ni David ang buong sundalo ni Hadadezer. 
 
 
 
@@ -403,7 +403,7 @@ Inihandog ito ni Haring David sa Panginoon, gaya ng ginawa niya sa mga pilak at 
 
 
 
-ang Edom,[^e] Moab, Ammon, Filistia at Amalek. Inihandog din niya ang mga nasamsam nila mula kay Haring Hadadezer ng Zoba, na anak ni Rehob. 
+ang Edom, Moab, Ammon, Filistia at Amalek. Inihandog din niya ang mga nasamsam nila mula kay Haring Hadadezer ng Zoba, na anak ni Rehob. 
 
 
 
@@ -436,7 +436,7 @@ ang Edom,[^e] Moab, Ammon, Filistia at Amalek. Inihandog din niya ang mga nasams
 
 
 
-Naging tanyag pa si David nang mapatay niya ang 18,000 Edomita[^f] sa lambak na tinatawag na Asin. 
+Naging tanyag pa si David nang mapatay niya ang 18,000 Edomita sa lambak na tinatawag na Asin. 
 
 
 
@@ -601,4 +601,4 @@ Sina Zadok na anak ni Ahitub at Ahimelec na anak ni Abiatar ang mga <i class="tr
 
 
 
-Si Benaya na anak ni Jehoyada ang namumuno sa mga Kereteo at Peleteo <i class="trans-change">na mga personal niyang tagapagbantay_. At ang mga anak niyang lalaki ang mga tagapayo[^g] niya.
+Si Benaya na anak ni Jehoyada ang namumuno sa mga Kereteo at Peleteo <i class="trans-change">na mga personal niyang tagapagbantay_. At ang mga anak niyang lalaki ang mga tagapayo niya.

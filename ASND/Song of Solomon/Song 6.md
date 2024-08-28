@@ -337,7 +337,7 @@ nag-iisa lang ang aking sinisinta. Tunay na maganda at walang kapintasan. Ang ta
 
 
 
-<i class="trans-change">Ang sabi nila,_ "Sino ba ito na kapag tiningnan ay parang bukang-liwayway ang kagandahan? Kasingganda siya ng buwan, nakakasilaw na parang araw at nakakamangha tulad ng mga bituin."[^a] 
+<i class="trans-change">Ang sabi nila,_ "Sino ba ito na kapag tiningnan ay parang bukang-liwayway ang kagandahan? Kasingganda siya ng buwan, nakakasilaw na parang araw at nakakamangha tulad ng mga bituin." 
 
 
 
@@ -436,4 +436,4 @@ Hindi ko namalayan, ako palaʼy nandoon na sa maharlikang higaan kasama ang akin
 
 
 
-Bumalik ka, dalagang taga-Shulam, bumalik ka para makita ka namin.[^b] Bakit gusto ninyong makita ang dalaga ng Shulam na sumasayaw sa gitna ng mga manonood?
+Bumalik ka, dalagang taga-Shulam, bumalik ka para makita ka namin. Bakit gusto ninyong makita ang dalaga ng Shulam na sumasayaw sa gitna ng mga manonood?

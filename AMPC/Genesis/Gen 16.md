@@ -154,7 +154,7 @@ But Abram said to Sarai, See here, your maid is in your hands _and_ power; do as
 
 
 
-But [^a]the Angel of the Lord found her by a spring of water in the wilderness on the road to Shur. 
+But the Angel of the Lord found her by a spring of water in the wilderness on the road to Shur. 
 
 
 
@@ -259,7 +259,7 @@ And the Angel of the Lord continued, See now, you are with child and shall bear 
 
 
 
-And he [Ishmael] will be as a [^b]wild ass among men; his hand will be against every man and every man's hand against him, and he will live to the east _and_ on the borders of all his kinsmen. 
+And he [Ishmael] will be as a wild ass among men; his hand will be against every man and every man's hand against him, and he will live to the east _and_ on the borders of all his kinsmen. 
 
 
 
@@ -301,7 +301,7 @@ So she called the name of the Lord Who spoke to her, You are a God of seeing, fo
 
 
 
-Therefore the well was called Beer-lahai-roi [A well to the Living One Who sees me]; it is [^c]between Kadesh and Bered. 
+Therefore the well was called Beer-lahai-roi [A well to the Living One Who sees me]; it is between Kadesh and Bered. 
 
 
 
@@ -322,7 +322,7 @@ Therefore the well was called Beer-lahai-roi [A well to the Living One Who sees 
 
 
 
-And Hagar bore Abram a son, and Abram called the name of his son whom Hagar bore [^d]Ishmael. 
+And Hagar bore Abram a son, and Abram called the name of his son whom Hagar bore Ishmael. 
 
 
 

@@ -111,7 +111,7 @@ Morning was already breaking when Jesus came to the beach and stood there. Howev
 
 
 
-So Jesus said to them, [^a]Boys (children), you do not have any meat (fish), do you? [Have you caught anything to eat along with your bread?] They answered Him, No! 
+So Jesus said to them, Boys (children), you do not have any meat (fish), do you? [Have you caught anything to eat along with your bread?] They answered Him, No! 
 
 
 

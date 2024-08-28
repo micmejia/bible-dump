@@ -12,7 +12,7 @@ up: ['Deuteronomy']
 Then Moses went up from the plains of Moab to Mount Nebo, to the top of Pisgah, which is across from Jericho. And the Lord showed him all the land of Gilead as far as Dan, 
 
 ###### 2 
-all Naphtali and the land of Ephraim and Manasseh, all the land of Judah as far as the [^a]Western Sea, 
+all Naphtali and the land of Ephraim and Manasseh, all the land of Judah as far as the Western Sea, 
 
 ###### 3 
 the South, and the plain of the Valley of Jericho, the city of palm trees, as far as Zoar. 
@@ -27,7 +27,7 @@ So Moses the servant of the Lord died there in the land of Moab, according to th
 And He buried him in a valley in the land of Moab, opposite Beth Peor; but no one knows his grave to this day. 
 
 ###### 7 
-Moses _was_ one hundred and twenty years old when he died. His [^b]eyes were not dim nor his natural vigor [^c]diminished. 
+Moses _was_ one hundred and twenty years old when he died. His eyes were not dim nor his natural vigor diminished. 
 
 ###### 8 
 And the children of Israel wept for Moses in the plains of Moab thirty days. So the days of weeping _and_ mourning for Moses ended. 

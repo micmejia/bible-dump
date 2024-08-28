@@ -112,7 +112,7 @@ For they all gave out of their abundance (their surplus); but she has contribute
 
 
 
-And as some were saying of the temple that it was decorated with handsome (shapely and magnificent) stones and consecrated offerings [[^a]laid up to be kept], He said, 
+And as some were saying of the temple that it was decorated with handsome (shapely and magnificent) stones and consecrated offerings [laid up to be kept], He said, 
 
 
 
@@ -175,7 +175,7 @@ And they asked Him, Teacher, when will this happen? And what sign will there be 
 
 
 
-And He said, Be on your guard _and_ be careful that you are not led astray; for many will come in My name [[^b]appropriating to themselves the name Messiah which belongs to Me], saying, I am He! and, The time is at hand! Do not go out after them. 
+And He said, Be on your guard _and_ be careful that you are not led astray; for many will come in My name [appropriating to themselves the name Messiah which belongs to Me], saying, I am He! and, The time is at hand! Do not go out after them. 
 
 
 
@@ -238,7 +238,7 @@ Then He told them, Nation will rise against nation, and kingdom against kingdom.
 
 
 
-There will be mighty _and_ violent earthquakes, and in various places famines and pestilences (plagues: [^c]malignant and contagious or infectious epidemic diseases which are deadly and devastating); and there will be sights of terror and great signs from heaven. 
+There will be mighty _and_ violent earthquakes, and in various places famines and pestilences (plagues: malignant and contagious or infectious epidemic diseases which are deadly and devastating); and there will be sights of terror and great signs from heaven. 
 
 
 
@@ -406,7 +406,7 @@ But not a hair of your head shall perish.
 
 
 
-By your steadfastness _and_ patient endurance you [^d]shall win the [^e]true life of your souls. 
+By your steadfastness _and_ patient endurance you shall win the true life of your souls. 
 
 
 
@@ -511,7 +511,7 @@ Alas for those who are pregnant and for those who have babies which they are nur
 
 
 
-They will fall by [^f]the mouth _and_ the edge of the sword and will be led away as captives to _and_ among all nations; and Jerusalem will be trodden down by the Gentiles until the times of the Gentiles are fulfilled (completed). 
+They will fall by the mouth _and_ the edge of the sword and will be led away as captives to _and_ among all nations; and Jerusalem will be trodden down by the Gentiles until the times of the Gentiles are fulfilled (completed). 
 
 
 
@@ -532,7 +532,7 @@ They will fall by [^f]the mouth _and_ the edge of the sword and will be led away
 
 
 
-And there will be signs in the sun and moon and stars; and upon the earth [there will be] distress (trouble and anguish) of nations in bewilderment _and_ perplexity [[^g]without resources, left wanting, embarrassed, in doubt, not knowing which way to turn] at the roaring ([^h]the echo) of the tossing of the sea, 
+And there will be signs in the sun and moon and stars; and upon the earth [there will be] distress (trouble and anguish) of nations in bewilderment _and_ perplexity [without resources, left wanting, embarrassed, in doubt, not knowing which way to turn] at the roaring (the echo) of the tossing of the sea, 
 
 
 
@@ -553,7 +553,7 @@ And there will be signs in the sun and moon and stars; and upon the earth [there
 
 
 
-Men swooning away _or_ expiring with fear _and_ dread _and_ apprehension and expectation of the things that are coming on the world; for the [very] powers of the heavens will be shaken _and_ [^i]caused to totter. 
+Men swooning away _or_ expiring with fear _and_ dread _and_ apprehension and expectation of the things that are coming on the world; for the [very] powers of the heavens will be shaken _and_ caused to totter. 
 
 
 
@@ -679,7 +679,7 @@ Even so, when you see these things taking place, understand _and_ know that the 
 
 
 
-Truly I tell you, this generation ([^j]those living at that definite period of time) will not perish _and_ pass away until all has taken place. 
+Truly I tell you, this generation (those living at that definite period of time) will not perish _and_ pass away until all has taken place. 
 
 
 
@@ -700,7 +700,7 @@ Truly I tell you, this generation ([^j]those living at that definite period of t
 
 
 
-The [^k]sky and the earth ([^l]the universe, the world) will pass away, but My words will not pass away. 
+The sky and the earth (the universe, the world) will pass away, but My words will not pass away. 
 
 
 
@@ -721,7 +721,7 @@ The [^k]sky and the earth ([^l]the universe, the world) will pass away, but My w
 
 
 
-But take heed to yourselves _and_ be on your guard, lest your hearts be overburdened _and_ depressed (weighed down) with the [^m]giddiness _and_ headache _and_ [^n]nausea of self-indulgence, drunkenness, and worldly worries _and_ cares pertaining to [the [^o]business of] this life, and [lest] that day come upon you suddenly like a trap _or_ a noose; 
+But take heed to yourselves _and_ be on your guard, lest your hearts be overburdened _and_ depressed (weighed down) with the giddiness _and_ headache _and_ nausea of self-indulgence, drunkenness, and worldly worries _and_ cares pertaining to [the business of] this life, and [lest] that day come upon you suddenly like a trap _or_ a noose; 
 
 
 
@@ -784,7 +784,7 @@ Keep awake then _and_ watch at all times [be discreet, attentive, and ready], pr
 
 
 
-Now in the daytime Jesus was teaching in [[^p]the porches and courts of] the temple, but at night He would go out and stay on the mount called Olivet. 
+Now in the daytime Jesus was teaching in [the porches and courts of] the temple, but at night He would go out and stay on the mount called Olivet. 
 
 
 
@@ -805,4 +805,4 @@ Now in the daytime Jesus was teaching in [[^p]the porches and courts of] the tem
 
 
 
-And early in the morning all the people came to Him in the temple [[^q]porches or courts] to listen to Him.
+And early in the morning all the people came to Him in the temple [porches or courts] to listen to Him.

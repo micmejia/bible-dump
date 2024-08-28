@@ -71,7 +71,7 @@ up: ['Philemon']
 
 
 
-kasama si Afia na <i class="trans-change">ating_ kapatid, si Arkipus na kapwa natin sundalo <i class="trans-change">ni Cristo_, at ang mga mananampalatayang nagtitipon[^a] sa iyong tahanan <i class="trans-change">sa pagsamba sa Dios_: 
+kasama si Afia na <i class="trans-change">ating_ kapatid, si Arkipus na kapwa natin sundalo <i class="trans-change">ni Cristo_, at ang mga mananampalatayang nagtitipon sa iyong tahanan <i class="trans-change">sa pagsamba sa Dios_: 
 
 
 
@@ -170,7 +170,7 @@ Lagi akong nagpapasalamat sa Dios sa tuwing ipinapanalangin kita,
 
 
 
-dahil nabalitaan ko ang iyong pananampalataya sa Panginoong Jesus at ang pagmamahal mo sa lahat ng mga pinabanal[^b] <i class="trans-change">ng Dios_. 
+dahil nabalitaan ko ang iyong pananampalataya sa Panginoong Jesus at ang pagmamahal mo sa lahat ng mga pinabanal <i class="trans-change">ng Dios_. 
 
 
 
@@ -203,7 +203,7 @@ dahil nabalitaan ko ang iyong pananampalataya sa Panginoong Jesus at ang pagmama
 
 
 
-Idinadalangin ko na sana ang pagiging mapagbigay mo, <i class="trans-change">na bunga_ ng iyong pananampalataya,[^c] ay magpatuloy habang lumalago ang iyong pang-unawa sa lahat ng mabubuting bagay na ibinigay sa atin dahil tayoʼy nakay Cristo. 
+Idinadalangin ko na sana ang pagiging mapagbigay mo, <i class="trans-change">na bunga_ ng iyong pananampalataya, ay magpatuloy habang lumalago ang iyong pang-unawa sa lahat ng mabubuting bagay na ibinigay sa atin dahil tayoʼy nakay Cristo. 
 
 
 
@@ -566,7 +566,7 @@ Kahit na alipin mo siya, isa na rin siyang minamahal na kapatid. Napamahal siya 
 
 
 
-Kaya kung itinuturing mo akong kamanggagawa[^d] <i class="trans-change">sa Panginoon,_ tanggapin mo siya na parang ako ang iyong tinatanggap. 
+Kaya kung itinuturing mo akong kamanggagawa <i class="trans-change">sa Panginoon,_ tanggapin mo siya na parang ako ang iyong tinatanggap. 
 
 
 

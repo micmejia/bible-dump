@@ -49,7 +49,7 @@ At that time Herod the governor heard the reports about Jesus,
 
 
 
-And he said to his attendants, This is John the Baptist; He has been raised from the dead, and that is why the powers [^a]of performing miracles are at work in Him. 
+And he said to his attendants, This is John the Baptist; He has been raised from the dead, and that is why the powers of performing miracles are at work in Him. 
 
 
 
@@ -70,7 +70,7 @@ And he said to his attendants, This is John the Baptist; He has been raised from
 
 
 
-For Herod had arrested John and bound him and put him in prison [to [^b]stow him out of the way] on account _and_ for the sake of Herodias, his brother Philip's wife, 
+For Herod had arrested John and bound him and put him in prison [to stow him out of the way] on account _and_ for the sake of Herodias, his brother Philip's wife, 
 
 
 
@@ -175,7 +175,7 @@ And so he promised with an oath to give her whatever she might ask.
 
 
 
-And she, being put forward _and_ prompted by her mother, said, Give me the head of John the Baptist right here on a [^c]platter. 
+And she, being put forward _and_ prompted by her mother, said, Give me the head of John the Baptist right here on a platter. 
 
 
 
@@ -238,7 +238,7 @@ He sent and had John beheaded in the prison.
 
 
 
-And his head was brought in on a [^d]platter and given [^e]to the little maid, and she brought it to her mother. 
+And his head was brought in on a platter and given to the little maid, and she brought it to her mother. 
 
 
 
@@ -427,7 +427,7 @@ Then He ordered the crowds to recline on the grass; and He took the five loaves 
 
 
 
-And they all ate and were satisfied. And they picked up twelve [[^f]small hand] baskets full of the broken pieces left over. 
+And they all ate and were satisfied. And they picked up twelve [small hand] baskets full of the broken pieces left over. 
 
 
 

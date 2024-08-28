@@ -22,13 +22,13 @@ And one cried to another and said: "Holy, holy, holy _is_ the Lord of hosts; The
 And the posts of the door were shaken by the voice of him who cried out, and the house was filled with smoke. 
 
 ###### 5 
-So I said: "Woe _is_ me, for I am [^a]undone! Because I _am_ a man of unclean lips, And I dwell in the midst of a people of unclean lips; For my eyes have seen the King, The Lord of hosts." 
+So I said: "Woe _is_ me, for I am undone! Because I _am_ a man of unclean lips, And I dwell in the midst of a people of unclean lips; For my eyes have seen the King, The Lord of hosts." 
 
 ###### 6 
 Then one of the seraphim flew to me, having in his hand a live coal _which_ he had taken with the tongs from the altar. 
 
 ###### 7 
-And he touched my mouth _with it,_ and said: "Behold, this has touched your lips; Your iniquity is taken away, And your sin [^b]purged." 
+And he touched my mouth _with it,_ and said: "Behold, this has touched your lips; Your iniquity is taken away, And your sin purged." 
 
 ###### 8 
 Also I heard the voice of the Lord, saying: "Whom shall I send, And who will go for Us?" Then I said, "Here _am_ I! Send me." 

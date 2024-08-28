@@ -271,7 +271,7 @@ Nang naroon na ako, marami akong nakitang kahoy sa magkabilang pampang.
 
 
 
-At sinabi niya sa akin, "Ang tubig na itoʼy dumadaloy sa lupain sa silangan papunta sa Araba[^a] papunta sa Dagat <i class="trans-change">na Patay_. Ang dagat na ito ay magiging sariwang tubig na <i class="trans-change">at hindi maalat_. 
+At sinabi niya sa akin, "Ang tubig na itoʼy dumadaloy sa lupain sa silangan papunta sa Araba papunta sa Dagat <i class="trans-change">na Patay_. Ang dagat na ito ay magiging sariwang tubig na <i class="trans-change">at hindi maalat_. 
 
 
 
@@ -601,7 +601,7 @@ Kaya ang hangganan sa hilaga ay magsisimula sa Dagat ng Mediteraneo hanggang sa 
 
 
 
-"Ang hangganan sa silangan ay mula sa hangganan ng Hauran at Damascus papuntang <i class="trans-change">Ilog_ ng Jordan (sa pagitan ng Gilead at ng Israel) patungo sa Dagat na Patay[^b] hanggang sa Tamar.[^c] Ito ang hangganan sa silangan. 
+"Ang hangganan sa silangan ay mula sa hangganan ng Hauran at Damascus papuntang <i class="trans-change">Ilog_ ng Jordan (sa pagitan ng Gilead at ng Israel) patungo sa Dagat na Patay hanggang sa Tamar. Ito ang hangganan sa silangan. 
 
 
 
@@ -634,7 +634,7 @@ Kaya ang hangganan sa hilaga ay magsisimula sa Dagat ng Mediteraneo hanggang sa 
 
 
 
-"Ang hangganan naman sa Timog ay simula sa Tamar patungo sa bukal ng Meriba Kadesh[^d] hanggang sa Lambak ng Egipto patungo sa Dagat ng Mediteraneo. Ito ang hangganan sa Timog. 
+"Ang hangganan naman sa Timog ay simula sa Tamar patungo sa bukal ng Meriba Kadesh hanggang sa Lambak ng Egipto patungo sa Dagat ng Mediteraneo. Ito ang hangganan sa Timog. 
 
 
 

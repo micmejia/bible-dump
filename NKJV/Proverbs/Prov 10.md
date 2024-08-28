@@ -31,7 +31,7 @@ Blessings _are_ on the head of the righteous, But violence covers the mouth of t
 The memory of the righteous _is_ blessed, But the name of the wicked will rot. 
 
 ###### 8 
-The wise in heart will receive commands, But [^a]a prating fool will [^b]fall. 
+The wise in heart will receive commands, But a prating fool will fall. 
 
 ###### 9 
 He who walks with integrity walks securely, But he who perverts his ways will become known. 
@@ -46,7 +46,7 @@ The mouth of the righteous _is_ a well of life, But violence covers the mouth of
 Hatred stirs up strife, But love covers all sins. 
 
 ###### 13 
-Wisdom is found on the lips of him who has understanding, But a rod _is_ for the back of him who [^c]is devoid of understanding. 
+Wisdom is found on the lips of him who has understanding, But a rod _is_ for the back of him who is devoid of understanding. 
 
 ###### 14 
 Wise _people_ store up knowledge, But the mouth of the foolish _is_ near destruction. 
@@ -58,7 +58,7 @@ The rich man's wealth _is_ his strong city; The destruction of the poor _is_ the
 The labor of the righteous _leads_ to life, The wages of the wicked to sin. 
 
 ###### 17 
-He who keeps instruction _is in_ the way of life, But he who refuses correction [^d]goes astray. 
+He who keeps instruction _is in_ the way of life, But he who refuses correction goes astray. 
 
 ###### 18 
 Whoever hides hatred _has_ lying lips, And whoever spreads slander _is_ a fool. 
@@ -70,7 +70,7 @@ In the multitude of words sin is not lacking, But he who restrains his lips _is_
 The tongue of the righteous _is_ choice silver; The heart of the wicked _is worth_ little. 
 
 ###### 21 
-The lips of the righteous feed many, But fools die for lack of [^e]wisdom. 
+The lips of the righteous feed many, But fools die for lack of wisdom. 
 
 ###### 22 
 The blessing of the Lord makes _one_ rich, And He adds no sorrow with it. 
@@ -97,7 +97,7 @@ The hope of the righteous _will be_ gladness, But the expectation of the wicked 
 The way of the Lord _is_ strength for the upright, But destruction _will come_ to the workers of iniquity. 
 
 ###### 30 
-The righteous will never be removed, But the wicked will not inhabit the [^f]earth. 
+The righteous will never be removed, But the wicked will not inhabit the earth. 
 
 ###### 31 
 The mouth of the righteous brings forth wisdom, But the perverse tongue will be cut out. 

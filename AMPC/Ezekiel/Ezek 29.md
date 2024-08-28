@@ -322,7 +322,7 @@ And I will reverse the captivity of Egypt [as I will that of Israel] and will ca
 
 
 
-It shall be the lowliest of the kingdoms, neither shall it [^a]exalt itself any more above the nations; I will diminish [the Egyptians] so they shall never again rule over the nations. 
+It shall be the lowliest of the kingdoms, neither shall it exalt itself any more above the nations; I will diminish [the Egyptians] so they shall never again rule over the nations. 
 
 
 
@@ -385,7 +385,7 @@ In the twenty-seventh year [after King Jehoiachin was taken to Babylon], in the 
 
 
 
-Son of man, [^b]Nebuchadrezzar king of Babylon caused his army to render heavy service [at My bidding] against Tyre; every [soldier's] head became bald and every shoulder was worn _and_ peeled [with carrying loads of earth and stones for siege works]. Yet he had no remuneration from Tyre [in proportion to the time and labor expended in the thirteen years' siege], either for himself or his army, for the work that he had done against it [for Me]. 
+Son of man, Nebuchadrezzar king of Babylon caused his army to render heavy service [at My bidding] against Tyre; every [soldier's] head became bald and every shoulder was worn _and_ peeled [with carrying loads of earth and stones for siege works]. Yet he had no remuneration from Tyre [in proportion to the time and labor expended in the thirteen years' siege], either for himself or his army, for the work that he had done against it [for Me]. 
 
 
 

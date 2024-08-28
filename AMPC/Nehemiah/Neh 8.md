@@ -280,7 +280,7 @@ And all the people went their way to eat, drink, send portions, and make great r
 
 
 
-On the second day, all the heads of fathers' houses, with the priests and Levites, gathered to Ezra the scribe to study _and_ understand the words of [^a]divine instruction. 
+On the second day, all the heads of fathers' houses, with the priests and Levites, gathered to Ezra the scribe to study _and_ understand the words of divine instruction. 
 
 
 

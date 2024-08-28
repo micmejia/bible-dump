@@ -205,7 +205,7 @@ Huwag din ninyong dungisan ang inyong sarili sa inyong pagpunta sa libing ng kam
 
 
 
-Italaga ninyo ang inyong sarili para sa akin na inyong Dios, at huwag ninyong lapastanganin ang aking pangalan. Itoʼy dapat ninyong gawin dahil kayo ang nag-aalay ng mga handog sa pamamagitan ng apoy,[^a] para sa akin na siyang pagkain ko. 
+Italaga ninyo ang inyong sarili para sa akin na inyong Dios, at huwag ninyong lapastanganin ang aking pangalan. Itoʼy dapat ninyong gawin dahil kayo ang nag-aalay ng mga handog sa pamamagitan ng apoy, para sa akin na siyang pagkain ko. 
 
 
 
@@ -271,7 +271,7 @@ Huwag kayong mag-asawa ng babaeng marumi dahil nagbebenta siya ng panandaliang a
 
 
 
-Kinakailangang kayo ay ituring na banal ng inyong kapwa Israelita dahil kayo ang nag-aalay ng mga handog para sa akin.[^b] Dapat nila kayong ituring na banal dahil ako ang Panginoon ay banal at ginawa kong banal ang aking mga tao.[^c] 
+Kinakailangang kayo ay ituring na banal ng inyong kapwa Israelita dahil kayo ang nag-aalay ng mga handog para sa akin. Dapat nila kayong ituring na banal dahil ako ang Panginoon ay banal at ginawa kong banal ang aking mga tao. 
 
 
 
@@ -337,7 +337,7 @@ Kung kayoʼy may anak na babae na nagdudulot ng kahihiyan sa inyo dahil sa nagbe
 
 
 
-Kung ang punong pari[^d] ay namatayan ng kamag-anak, huwag niyang guguluhin ang kanyang buhok ni pupunitin ang kanyang damit <i class="trans-change">bilang tanda ng pagluluksa_. 
+Kung ang punong pari ay namatayan ng kamag-anak, huwag niyang guguluhin ang kanyang buhok ni pupunitin ang kanyang damit <i class="trans-change">bilang tanda ng pagluluksa_. 
 
 
 

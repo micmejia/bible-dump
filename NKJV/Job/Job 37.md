@@ -16,7 +16,7 @@ next: ['Job 38']
 Hear attentively the thunder of His voice, And the rumbling _that_ comes from His mouth. 
 
 ###### 3 
-He sends it forth under the whole heaven, His [^a]lightning to the ends of the earth. 
+He sends it forth under the whole heaven, His lightning to the ends of the earth. 
 
 ###### 4 
 After it a voice roars; He thunders with His majestic voice, And He does not restrain them when His voice is heard. 
@@ -25,7 +25,7 @@ After it a voice roars; He thunders with His majestic voice, And He does not res
 God thunders marvelously with His voice; He does great things which we cannot comprehend. 
 
 ###### 6 
-For He says to the snow, 'Fall _on_ the earth'; Likewise to the [^b]gentle rain and the heavy rain of His strength. 
+For He says to the snow, 'Fall _on_ the earth'; Likewise to the gentle rain and the heavy rain of His strength. 
 
 ###### 7 
 He seals the hand of every man, That all men may know His work. 
@@ -40,19 +40,19 @@ From the chamber _of the south_ comes the whirlwind, And cold from the scatterin
 By the breath of God ice is given, And the broad waters are frozen. 
 
 ###### 11 
-Also with moisture He saturates the thick clouds; He scatters His [^c]bright clouds. 
+Also with moisture He saturates the thick clouds; He scatters His bright clouds. 
 
 ###### 12 
-And they swirl about, being turned by His guidance, That they may do whatever He commands them On the face of [^d]the whole earth. 
+And they swirl about, being turned by His guidance, That they may do whatever He commands them On the face of the whole earth. 
 
 ###### 13 
-He causes it to come, Whether for [^e]correction, Or for His land, Or for mercy. 
+He causes it to come, Whether for correction, Or for His land, Or for mercy. 
 
 ###### 14 
 "Listen to this, O Job; Stand still and consider the wondrous works of God. 
 
 ###### 15 
-Do you know when God [^f]dispatches them, And causes the light of His cloud to shine? 
+Do you know when God dispatches them, And causes the light of His cloud to shine? 
 
 ###### 16 
 Do you know how the clouds are balanced, Those wondrous works of Him who is perfect in knowledge? 

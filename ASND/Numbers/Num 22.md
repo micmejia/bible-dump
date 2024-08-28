@@ -733,7 +733,7 @@ Kaya kinaumagahan, inihanda ni Balaam ang kanyang asno at sumama sa mga pinuno n
 
 
 
-kasama ang kanyang dalawang katulong. Pero habang naglalakbay[^a] si Balaam, nagalit ang Panginoon, kaya hinarang siya ng anghel ng Panginoon sa daan. 
+kasama ang kanyang dalawang katulong. Pero habang naglalakbay si Balaam, nagalit ang Panginoon, kaya hinarang siya ng anghel ng Panginoon sa daan. 
 
 
 
@@ -1360,4 +1360,4 @@ At naghandog doon si Balak ng baka at tupa. Ibinigay niya ang ibang mga karne ka
 
 
 
-Kinaumagahan, dinala ni Balak si Balaam sa Bamot Baal at doon nakita niya sa ibaba ang buong[^b] mamamayan ng Israel.
+Kinaumagahan, dinala ni Balak si Balaam sa Bamot Baal at doon nakita niya sa ibaba ang buong mamamayan ng Israel.

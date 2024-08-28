@@ -16,7 +16,7 @@ Now the Lord spoke to Moses in the Wilderness of Sinai, in the first month of th
 "Let the children of Israel keep the Passover at its appointed time. 
 
 ###### 3 
-On the fourteenth day of this month, [^a]at twilight, you shall [^b]keep it at its appointed time. According to all its [^c]rites and ceremonies you shall keep it." 
+On the fourteenth day of this month, at twilight, you shall keep it at its appointed time. According to all its rites and ceremonies you shall keep it." 
 
 ###### 4 
 So Moses told the children of Israel that they should keep the Passover. 
@@ -37,19 +37,19 @@ And Moses said to them, "Stand still, that I may hear what the Lord will command
 Then the Lord spoke to Moses, saying, 
 
 ###### 10 
-"Speak to the children of Israel, saying: 'If anyone of you or your [^d]posterity is unclean because of a corpse, or _is_ far away on a journey, he may still keep the Lord's Passover. 
+"Speak to the children of Israel, saying: 'If anyone of you or your posterity is unclean because of a corpse, or _is_ far away on a journey, he may still keep the Lord's Passover. 
 
 ###### 11 
 On the fourteenth day of the second month, at twilight, they may keep it. They shall eat it with unleavened bread and bitter herbs. 
 
 ###### 12 
-They shall leave none of it until morning, nor break one of its bones. According to all the [^e]ordinances of the Passover they shall keep it. 
+They shall leave none of it until morning, nor break one of its bones. According to all the ordinances of the Passover they shall keep it. 
 
 ###### 13 
 But the man who _is_ clean and is not on a journey, and ceases to keep the Passover, that same person shall be cut off from among his people, because he did not bring the offering of the Lord at its appointed time; that man shall bear his sin. 
 
 ###### 14 
-'And if a stranger [^f]dwells among you, and would keep the Lord's Passover, he must do so according to the rite of the Passover and according to its ceremony; you shall have one [^g]ordinance, both for the stranger and the native of the land.' " ## The Cloud and the Fire 
+'And if a stranger dwells among you, and would keep the Lord's Passover, he must do so according to the rite of the Passover and according to its ceremony; you shall have one ordinance, both for the stranger and the native of the land.' " ## The Cloud and the Fire 
 
 ###### 15 
 Now on the day that the tabernacle was raised up, the cloud covered the tabernacle, the tent of the Testimony; from evening until morning it was above the tabernacle like the appearance of fire. 
@@ -58,10 +58,10 @@ Now on the day that the tabernacle was raised up, the cloud covered the tabernac
 So it was always: the cloud covered it _by day,_ and the appearance of fire by night. 
 
 ###### 17 
-Whenever the cloud was [^h]taken up from above the tabernacle, after that the children of Israel would journey; and in the place where the cloud settled, there the children of Israel would pitch their tents. 
+Whenever the cloud was taken up from above the tabernacle, after that the children of Israel would journey; and in the place where the cloud settled, there the children of Israel would pitch their tents. 
 
 ###### 18 
-At the [^i]command of the Lord the children of Israel would journey, and at the command of the Lord they would camp; as long as the cloud stayed above the tabernacle they remained encamped. 
+At the command of the Lord the children of Israel would journey, and at the command of the Lord they would camp; as long as the cloud stayed above the tabernacle they remained encamped. 
 
 ###### 19 
 Even when the cloud continued long, many days above the tabernacle, the children of Israel kept the charge of the Lord and did not journey. 

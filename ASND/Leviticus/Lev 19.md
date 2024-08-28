@@ -667,7 +667,7 @@ Sundin ninyo ang aking mga utos. Huwag ninyong palalahian ang isang hayop sa iba
 
 
 
-Kung ang isang lalaki ay sumiping sa isang aliping babae na nakatakdang ikasal sa ibang lalaki, pero hindi pa natutubos o napapalaya ang babae,[^a] dapat silang parusahan. Pero huwag silang patayin dahil hindi pa napapalaya ang nasabing babae. <sup class="versenum">21-22</sup>Kinakailangang magdala ang lalaki ng lalaking tupa malapit sa may pintuan ng Toldang Tipanan bilang handog na pambayad sa kanyang kasalanan sa Panginoon. Sa paghahandog ng pari ng tupang iyon sa aking harapan, matutubos ang lalaking iyon sa kanyang kasalanan at patatawarin ko siya. 
+Kung ang isang lalaki ay sumiping sa isang aliping babae na nakatakdang ikasal sa ibang lalaki, pero hindi pa natutubos o napapalaya ang babae, dapat silang parusahan. Pero huwag silang patayin dahil hindi pa napapalaya ang nasabing babae. <sup class="versenum">21-22</sup>Kinakailangang magdala ang lalaki ng lalaking tupa malapit sa may pintuan ng Toldang Tipanan bilang handog na pambayad sa kanyang kasalanan sa Panginoon. Sa paghahandog ng pari ng tupang iyon sa aking harapan, matutubos ang lalaking iyon sa kanyang kasalanan at patatawarin ko siya. 
 
 
 

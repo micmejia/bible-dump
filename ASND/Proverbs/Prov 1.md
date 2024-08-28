@@ -237,7 +237,7 @@ upang maunawaan nila ang kahulugan ng mga kawikaan, mga talinghaga, at mga bugto
 
 
 
-Ang pagkatakot sa Panginoon <i class="trans-change">na may paggalang_ ang simula ng karunungan. Ngunit sa hangal,[^a] walang halaga ang karunungan at ayaw niyang maturuan upang maituwid ang kanyang pag-uugali. ## Payo sa Pag-iwas sa Masamang Tao 
+Ang pagkatakot sa Panginoon <i class="trans-change">na may paggalang_ ang simula ng karunungan. Ngunit sa hangal, walang halaga ang karunungan at ayaw niyang maturuan upang maituwid ang kanyang pag-uugali. ## Payo sa Pag-iwas sa Masamang Tao 
 
 
 

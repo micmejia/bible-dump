@@ -16,10 +16,10 @@ And Jethro, the priest of Midian, Moses' father-in-law, heard of all that God ha
 Then Jethro, Moses' father-in-law, took Zipporah, Moses' wife, after he had sent her back, 
 
 ###### 3 
-with her two sons, of whom the name of one _was_ [^a]Gershom (for he said, "I have been a [^b]stranger in a foreign land") 
+with her two sons, of whom the name of one _was_ Gershom (for he said, "I have been a stranger in a foreign land") 
 
 ###### 4 
-and the name of the other _was_ [^c]Eliezer (for _he said,_ "The God of my father _was_ my help, and delivered me from the sword of Pharaoh"); 
+and the name of the other _was_ Eliezer (for _he said,_ "The God of my father _was_ my help, and delivered me from the sword of Pharaoh"); 
 
 ###### 5 
 and Jethro, Moses' father-in-law, came with his sons and his wife to Moses in the wilderness, where he was encamped at the mountain of God. 
@@ -40,22 +40,22 @@ Then Jethro rejoiced for all the good which the Lord had done for Israel, whom H
 And Jethro said, "Blessed _be_ the Lord, who has delivered you out of the hand of the Egyptians and out of the hand of Pharaoh, _and_ who has delivered the people from under the hand of the Egyptians. 
 
 ###### 11 
-Now I know that the Lord _is_ greater than all the gods; for in the very thing in which they [^d]behaved proudly, _He was_ above them." 
+Now I know that the Lord _is_ greater than all the gods; for in the very thing in which they behaved proudly, _He was_ above them." 
 
 ###### 12 
-Then Jethro, Moses' father-in-law, [^e]took a burnt offering and _other_ sacrifices _to offer_ to God. And Aaron came with all the elders of Israel to eat bread with Moses' father-in-law before God. 
+Then Jethro, Moses' father-in-law, took a burnt offering and _other_ sacrifices _to offer_ to God. And Aaron came with all the elders of Israel to eat bread with Moses' father-in-law before God. 
 
 ###### 13 
 And so it was, on the next day, that Moses sat to judge the people; and the people stood before Moses from morning until evening. 
 
 ###### 14 
-So when Moses' father-in-law saw all that he did for the people, he said, "What _is_ this thing that you are doing for the people? Why do you alone [^f]sit, and all the people stand before you from morning until evening?" 
+So when Moses' father-in-law saw all that he did for the people, he said, "What _is_ this thing that you are doing for the people? Why do you alone sit, and all the people stand before you from morning until evening?" 
 
 ###### 15 
 And Moses said to his father-in-law, "Because the people come to me to inquire of God. 
 
 ###### 16 
-When they have a [^g]difficulty, they come to me, and I judge between one and another; and I make known the statutes of God and His laws." 
+When they have a difficulty, they come to me, and I judge between one and another; and I make known the statutes of God and His laws." 
 
 ###### 17 
 So Moses' father-in-law said to him, "The thing that you do _is_ not good. 
@@ -64,7 +64,7 @@ So Moses' father-in-law said to him, "The thing that you do _is_ not good.
 Both you and these people who _are_ with you will surely wear yourselves out. For this thing _is_ too much for you; you are not able to perform it by yourself. 
 
 ###### 19 
-Listen now to my voice; I will give you [^h]counsel, and God will be with you: Stand before God for the people, so that you may bring the difficulties to God. 
+Listen now to my voice; I will give you counsel, and God will be with you: Stand before God for the people, so that you may bring the difficulties to God. 
 
 ###### 20 
 And you shall teach them the statutes and the laws, and show them the way in which they must walk and the work they must do. 
@@ -85,7 +85,7 @@ So Moses heeded the voice of his father-in-law and did all that he had said.
 And Moses chose able men out of all Israel, and made them heads over the people: rulers of thousands, rulers of hundreds, rulers of fifties, and rulers of tens. 
 
 ###### 26 
-So they judged the people at all times; the hard[^i] cases they brought to Moses, but they judged every small case themselves. 
+So they judged the people at all times; the hard cases they brought to Moses, but they judged every small case themselves. 
 
 ###### 27 
 Then Moses let his father-in-law depart, and he went his way to his own land.

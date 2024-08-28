@@ -16,7 +16,7 @@ Beloved, do not believe every spirit, but test the spirits, whether they are of 
 By this you know the Spirit of God: Every spirit that confesses that Jesus Christ has come in the flesh is of God, 
 
 ###### 3 
-and every spirit that does not confess [^a]that Jesus [^b]Christ has come in the flesh is not of God. And this is the _spirit_ of the Antichrist, which you have heard was coming, and is now already in the world. 
+and every spirit that does not confess that Jesus Christ has come in the flesh is not of God. And this is the _spirit_ of the Antichrist, which you have heard was coming, and is now already in the world. 
 
 ###### 4 
 You are of God, little children, and have overcome them, because He who is in you is greater than he who is in the world. 
@@ -64,10 +64,10 @@ Love has been perfected among us in this: that we may have boldness in the day o
 There is no fear in love; but perfect love casts out fear, because fear involves torment. But he who fears has not been made perfect in love. 
 
 ###### 19 
-We love [^c]Him because He first loved us. ## Obedience by Faith 
+We love Him because He first loved us. ## Obedience by Faith 
 
 ###### 20 
-If someone says, "I love God," and hates his brother, he is a liar; for he who does not love his brother whom he has seen, [^d]how can he love God whom he has not seen? 
+If someone says, "I love God," and hates his brother, he is a liar; for he who does not love his brother whom he has seen, how can he love God whom he has not seen? 
 
 ###### 21 
 And this commandment we have from Him: that he who loves God _must_ love his brother also.

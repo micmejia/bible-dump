@@ -138,7 +138,7 @@ Kailangang isalaysay ito sa bawat henerasyon ng inyong lahi.
 
 
 
-Sunud-sunod na sumalakay ang mga pulutong ng balang. Ang mga naiwan na tanim na hindi naubos ng unang pulutong ay kinain ng sumunod na pulutong hanggang sa naubos ang mga tanim.[^a] 
+Sunud-sunod na sumalakay ang mga pulutong ng balang. Ang mga naiwan na tanim na hindi naubos ng unang pulutong ay kinain ng sumunod na pulutong hanggang sa naubos ang mga tanim. 
 
 
 
@@ -204,7 +204,7 @@ Kayong mga lasenggo, bumangon kayo at umiyak nang malakas! Sapagkat wala na kayo
 
 
 
-Ang lupain ng Panginoon[^b] ay sinalakay ng napakaraming balang.[^c] Matalas ang kanilang mga ngipin na parang mga ngipin ng leon. 
+Ang lupain ng Panginoon ay sinalakay ng napakaraming balang. Matalas ang kanilang mga ngipin na parang mga ngipin ng leon. 
 
 
 
@@ -270,7 +270,7 @@ Sinira nila ang mga tanim na ubas ng Panginoon at ang kanyang mga puno ng igos. 
 
 
 
-Umiyak kayo katulad ng isang dalaga[^d] na nakadamit ng sako[^e] na namatayan ng binatang mapapangasawa. 
+Umiyak kayo katulad ng isang dalaga na nakadamit ng sako na namatayan ng binatang mapapangasawa. 
 
 
 

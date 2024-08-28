@@ -601,7 +601,7 @@ Ngayong alam nʼyo na ang mga bagay na ito, mapalad kayo kung gagawin nʼyo ang 
 
 
 
-"Hindi ko sinasabing mapalad kayong lahat, dahil kilala ko ang mga pinili ko. Pero kailangang matupad ang sinasabi sa Kasulatan na 'Trinaydor ako ng nakisalo sa akin sa pagkain.'[^a] 
+"Hindi ko sinasabing mapalad kayong lahat, dahil kilala ko ang mga pinili ko. Pero kailangang matupad ang sinasabi sa Kasulatan na 'Trinaydor ako ng nakisalo sa akin sa pagkain.' 
 
 
 

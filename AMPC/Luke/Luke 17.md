@@ -49,7 +49,7 @@ And [Jesus] said to His disciples, Temptations (snares, traps set to entice to s
 
 
 
-It would be more profitable for him if a millstone were hung around his neck and he were hurled into the sea than that he should cause to sin _or_ be a snare to one of these little ones [[^a]lowly in rank or influence]. 
+It would be more profitable for him if a millstone were hung around his neck and he were hurled into the sea than that he should cause to sin _or_ be a snare to one of these little ones [lowly in rank or influence]. 
 
 
 
@@ -70,7 +70,7 @@ It would be more profitable for him if a millstone were hung around his neck and
 
 
 
-[^b]Pay attention _and_ always be on your guard [looking out for one another]. If your brother sins (misses the mark), solemnly tell him so _and_ reprove him, and if he repents (feels sorry for having sinned), forgive him. 
+Pay attention _and_ always be on your guard [looking out for one another]. If your brother sins (misses the mark), solemnly tell him so _and_ reprove him, and if he repents (feels sorry for having sinned), forgive him. 
 
 
 
@@ -322,7 +322,7 @@ And when He saw them, He said to them, Go [at once] and show yourselves to the p
 
 
 
-Then one of them, upon seeing that he was cured, turned back, [^c]recognizing _and_ thanking _and_ praising God with a loud voice; 
+Then one of them, upon seeing that he was cured, turned back, recognizing _and_ thanking _and_ praising God with a loud voice; 
 
 
 
@@ -385,7 +385,7 @@ Then Jesus asked, Were not [all] ten cleansed? Where are the nine?
 
 
 
-Was there no one found to return and to [^d]recognize _and_ give thanks _and_ praise to God except this alien? 
+Was there no one found to return and to recognize _and_ give thanks _and_ praise to God except this alien? 
 
 
 
@@ -700,7 +700,7 @@ Remember Lot's wife!
 
 
 
-Whoever tries to preserve his life will lose it, but whoever loses his life will preserve and [^e]quicken it. 
+Whoever tries to preserve his life will lose it, but whoever loses his life will preserve and quicken it. 
 
 
 
@@ -763,7 +763,7 @@ There will be two women grinding together; one will be taken and the other will 
 
 
 
-[^f]_Two men will be in the field; one will be taken and the other will be left._ 
+_Two men will be in the field; one will be taken and the other will be left._ 
 
 
 

@@ -16,19 +16,19 @@ Now Joseph had been taken down to Egypt. And Potiphar, an officer of Pharaoh, ca
 The Lord was with Joseph, and he was a successful man; and he was in the house of his master the Egyptian. 
 
 ###### 3 
-And his master saw that the Lord _was_ with him and that the Lord made all he did [^a]to prosper in his hand. 
+And his master saw that the Lord _was_ with him and that the Lord made all he did to prosper in his hand. 
 
 ###### 4 
-So Joseph found favor in his sight, and served him. Then he made him overseer of his house, and all _that_ he had he put [^b]under his authority. 
+So Joseph found favor in his sight, and served him. Then he made him overseer of his house, and all _that_ he had he put under his authority. 
 
 ###### 5 
 So it was, from the time _that_ he had made him overseer of his house and all that he had, that the Lord blessed the Egyptian's house for Joseph's sake; and the blessing of the Lord was on all that he had in the house and in the field. 
 
 ###### 6 
-Thus he left all that he had in Joseph's [^c]hand, and he did not know what he had except for the [^d]bread which he ate. Now Joseph was handsome in form and appearance. 
+Thus he left all that he had in Joseph's hand, and he did not know what he had except for the bread which he ate. Now Joseph was handsome in form and appearance. 
 
 ###### 7 
-And it came to pass after these things that his master's wife [^e]cast longing eyes on Joseph, and she said, "Lie with me." 
+And it came to pass after these things that his master's wife cast longing eyes on Joseph, and she said, "Lie with me." 
 
 ###### 8 
 But he refused and said to his master's wife, "Look, my master does not know what _is_ with me in the house, and he has committed all that he has to my hand. 
@@ -49,7 +49,7 @@ that she caught him by his garment, saying, "Lie with me." But he left his garme
 And so it was, when she saw that he had left his garment in her hand and fled outside, 
 
 ###### 14 
-that she called to the men of her house and spoke to them, saying, "See, he has brought in to us a Hebrew to [^f]mock us. He came in to me to lie with me, and I cried out with a loud voice. 
+that she called to the men of her house and spoke to them, saying, "See, he has brought in to us a Hebrew to mock us. He came in to me to lie with me, and I cried out with a loud voice. 
 
 ###### 15 
 And it happened, when he heard that I lifted my voice and cried out, that he left his garment with me, and fled and went outside." 
@@ -70,10 +70,10 @@ So it was, when his master heard the words which his wife spoke to him, saying, 
 Then Joseph's master took him and put him into the prison, a place where the king's prisoners _were_ confined. And he was there in the prison. 
 
 ###### 21 
-But the Lord was with Joseph and showed him mercy, and He gave[^g] him favor in the sight of the keeper of the prison. 
+But the Lord was with Joseph and showed him mercy, and He gave him favor in the sight of the keeper of the prison. 
 
 ###### 22 
 And the keeper of the prison committed to Joseph's hand all the prisoners who _were_ in the prison; whatever they did there, it was his doing. 
 
 ###### 23 
-The keeper of the prison did not look into anything _that was_ under [^h]_Joseph's_ authority, because the Lord was with him; and whatever he did, the Lord made _it_ prosper.
+The keeper of the prison did not look into anything _that was_ under _Joseph's_ authority, because the Lord was with him; and whatever he did, the Lord made _it_ prosper.

@@ -13,7 +13,7 @@ next: ['Luke 24']
 Then the whole multitude of them arose and led Him to Pilate. 
 
 ###### 2 
-And they began to accuse Him, saying, "We found this _fellow_ perverting [^a]the nation, and forbidding to pay taxes to Caesar, saying that He Himself is Christ, a King." 
+And they began to accuse Him, saying, "We found this _fellow_ perverting the nation, and forbidding to pay taxes to Caesar, saying that He Himself is Christ, a King." 
 
 ###### 3 
 Then Pilate asked Him, saying, "Are You the King of the Jews?" He answered him and said, "_It is as_ you say." 
@@ -25,7 +25,7 @@ So Pilate said to the chief priests and the crowd, "I find no fault in this Man.
 But they were the more fierce, saying, "He stirs up the people, teaching throughout all Judea, beginning from Galilee to this place." ## Jesus Faces Herod 
 
 ###### 6 
-When Pilate heard [^b]of Galilee, he asked if the Man were a Galilean. 
+When Pilate heard of Galilee, he asked if the Man were a Galilean. 
 
 ###### 7 
 And as soon as he knew that He belonged to Herod's jurisdiction, he sent Him to Herod, who was also in Jerusalem at that time. 
@@ -40,7 +40,7 @@ Then he questioned Him with many words, but He answered him nothing.
 And the chief priests and scribes stood and vehemently accused Him. 
 
 ###### 11 
-Then Herod, with his [^c]men of war, treated Him with contempt and mocked _Him,_ arrayed Him in a gorgeous robe, and sent Him back to Pilate. 
+Then Herod, with his men of war, treated Him with contempt and mocked _Him,_ arrayed Him in a gorgeous robe, and sent Him back to Pilate. 
 
 ###### 12 
 That very day Pilate and Herod became friends with each other, for previously they had been at enmity with each other. ## Taking the Place of Barabbas 
@@ -52,13 +52,13 @@ Then Pilate, when he had called together the chief priests, the rulers, and the 
 said to them, "You have brought this Man to me, as one who misleads the people. And indeed, having examined _Him_ in your presence, I have found no fault in this Man concerning those things of which you accuse Him; 
 
 ###### 15 
-no, neither did Herod, for [^d]I sent you back to him; and indeed nothing deserving of death has been done by Him. 
+no, neither did Herod, for I sent you back to him; and indeed nothing deserving of death has been done by Him. 
 
 ###### 16 
 I will therefore chastise Him and release _Him_" 
 
 ###### 17 
-(for[^e] it was necessary for him to release one to them at the feast). 
+(for it was necessary for him to release one to them at the feast). 
 
 ###### 18 
 And they all cried out at once, saying, "Away with this _Man,_ and release to us Barabbas"-- 
@@ -76,13 +76,13 @@ But they shouted, saying, "Crucify _Him,_ crucify Him!"
 Then he said to them the third time, "Why, what evil has He done? I have found no reason for death in Him. I will therefore chastise Him and let _Him_ go." 
 
 ###### 23 
-But they were insistent, demanding with loud voices that He be crucified. And the voices of these men [^f]and of the chief priests prevailed. 
+But they were insistent, demanding with loud voices that He be crucified. And the voices of these men and of the chief priests prevailed. 
 
 ###### 24 
 So Pilate gave sentence that it should be as they requested. 
 
 ###### 25 
-And he released [^g]to them the one they requested, who for rebellion and murder had been thrown into prison; but he delivered Jesus to their will. ## The King on a Cross 
+And he released to them the one they requested, who for rebellion and murder had been thrown into prison; but he delivered Jesus to their will. ## The King on a Cross 
 
 ###### 26 
 Now as they led Him away, they laid hold of a certain man, Simon a Cyrenian, who was coming from the country, and on him they laid the cross that he might bear _it_ after Jesus. 
@@ -109,7 +109,7 @@ There were also two others, criminals, led with Him to be put to death.
 And when they had come to the place called Calvary, there they crucified Him, and the criminals, one on the right hand and the other on the left. 
 
 ###### 34 
-[^h]Then Jesus said, "Father, forgive them, for they do not know what they do." And they divided His garments and cast lots. 
+Then Jesus said, "Father, forgive them, for they do not know what they do." And they divided His garments and cast lots. 
 
 ###### 35 
 And the people stood looking on. But even the rulers with them sneered, saying, "He saved others; let Him save Himself if He is the Christ, the chosen of God." 
@@ -121,10 +121,10 @@ The soldiers also mocked Him, coming and offering Him sour wine,
 and saying, "If You are the King of the Jews, save Yourself." 
 
 ###### 38 
-And an inscription also was [^i]written over Him in letters of Greek, Latin, and Hebrew: THIS IS THE KING OF THE JEWS. 
+And an inscription also was written over Him in letters of Greek, Latin, and Hebrew: THIS IS THE KING OF THE JEWS. 
 
 ###### 39 
-Then one of the criminals who were hanged blasphemed Him, saying, [^j]"If You are the Christ, save Yourself and us." 
+Then one of the criminals who were hanged blasphemed Him, saying, "If You are the Christ, save Yourself and us." 
 
 ###### 40 
 But the other, answering, rebuked him, saying, "Do you not even fear God, seeing you are under the same condemnation? 
@@ -133,16 +133,16 @@ But the other, answering, rebuked him, saying, "Do you not even fear God, seeing
 And we indeed justly, for we receive the due reward of our deeds; but this Man has done nothing wrong." 
 
 ###### 42 
-Then he said [^k]to Jesus, "Lord, remember me when You come into Your kingdom." 
+Then he said to Jesus, "Lord, remember me when You come into Your kingdom." 
 
 ###### 43 
 And Jesus said to him, "Assuredly, I say to you, today you will be with Me in Paradise." ## Jesus Dies on the Cross 
 
 ###### 44 
-Now it [^l]was about the sixth hour, and there was darkness over all the earth until the ninth hour. 
+Now it was about the sixth hour, and there was darkness over all the earth until the ninth hour. 
 
 ###### 45 
-Then the sun was [^m]darkened, and the veil of the temple was torn in [^n]two. 
+Then the sun was darkened, and the veil of the temple was torn in two. 
 
 ###### 46 
 And when Jesus had cried out with a loud voice, He said, "Father, 'into Your hands I commit My spirit.' " Having said this, He breathed His last. 
@@ -160,7 +160,7 @@ But all His acquaintances, and the women who followed Him from Galilee, stood at
 Now behold, _there was_ a man named Joseph, a council member, a good and just man. 
 
 ###### 51 
-He had not consented to their decision and deed. _He was_ from Arimathea, a city of the Jews, who[^o] himself was also waiting for the kingdom of God. 
+He had not consented to their decision and deed. _He was_ from Arimathea, a city of the Jews, who himself was also waiting for the kingdom of God. 
 
 ###### 52 
 This man went to Pilate and asked for the body of Jesus. 

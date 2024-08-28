@@ -10,7 +10,7 @@ next: ['Deut 9']
 
 
 ###### 1 
-"Every commandment which I command you today you must [^a]be careful to observe, that you may live and multiply,[^b] and go in and possess the land of which the Lord [^c]swore to your fathers. 
+"Every commandment which I command you today you must be careful to observe, that you may live and multiply, and go in and possess the land of which the Lord swore to your fathers. 
 
 ###### 2 
 And you shall remember that the Lord your God led you all the way these forty years in the wilderness, to humble you _and_ test you, to know what _was_ in your heart, whether you would keep His commandments or not. 
@@ -22,7 +22,7 @@ So He humbled you, allowed you to hunger, and fed you with manna which you did n
 Your garments did not wear out on you, nor did your foot swell these forty years. 
 
 ###### 5 
-You should [^d]know in your heart that as a man chastens his son, _so_ the Lord your God chastens you. 
+You should know in your heart that as a man chastens his son, _so_ the Lord your God chastens you. 
 
 ###### 6 
 "Therefore you shall keep the commandments of the Lord your God, to walk in His ways and to fear Him. 
@@ -43,13 +43,13 @@ When you have eaten and are full, then you shall bless the Lord your God for the
 "Beware that you do not forget the Lord your God by not keeping His commandments, His judgments, and His statutes which I command you today, 
 
 ###### 12 
-lest--_when_ you have eaten and are [^e]full, and have built beautiful houses and dwell _in them;_ 
+lest--_when_ you have eaten and are full, and have built beautiful houses and dwell _in them;_ 
 
 ###### 13 
-and _when_ your herds and your flocks multiply, and your silver and your gold are [^f]multiplied, and all that you have is multiplied; 
+and _when_ your herds and your flocks multiply, and your silver and your gold are multiplied, and all that you have is multiplied; 
 
 ###### 14 
-when your heart [^g]is lifted up, and you forget the Lord your God who brought you out of the land of Egypt, from the house of bondage; 
+when your heart is lifted up, and you forget the Lord your God who brought you out of the land of Egypt, from the house of bondage; 
 
 ###### 15 
 who led you through that great and terrible wilderness, _in which were_ fiery serpents and scorpions and thirsty land where there was no water; who brought water for you out of the flinty rock; 
@@ -61,7 +61,7 @@ who fed you in the wilderness with manna, which your fathers did not know, that 
 then you say in your heart, 'My power and the might of my hand have gained me this wealth.' 
 
 ###### 18 
-"And you shall remember the Lord your God, for _it is_ He who gives you power to get wealth, that He may [^h]establish His covenant which He swore to your fathers, as _it is_ this day. 
+"And you shall remember the Lord your God, for _it is_ He who gives you power to get wealth, that He may establish His covenant which He swore to your fathers, as _it is_ this day. 
 
 ###### 19 
 Then it shall be, if you by any means forget the Lord your God, and follow other gods, and serve them and worship them, I testify against you this day that you shall surely perish. 

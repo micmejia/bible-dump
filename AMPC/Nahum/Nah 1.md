@@ -27,7 +27,7 @@ next: ['Nah 2']
 
 
 
-The burden _or_ oracle (the thing to be lifted up) concerning [^a]Nineveh [the capital of Assyria]. The book of the vision of Nahum of Elkosh. 
+The burden _or_ oracle (the thing to be lifted up) concerning Nineveh [the capital of Assyria]. The book of the vision of Nahum of Elkosh. 
 
 
 
@@ -174,7 +174,7 @@ The Lord is good, a Strength _and_ Stronghold in the day of trouble; He knows (r
 
 
 
-But with an [^b]overrunning flood He will make a full end of [Nineveh's very] site and pursue His enemies into darkness. 
+But with an overrunning flood He will make a full end of [Nineveh's very] site and pursue His enemies into darkness. 
 
 
 
@@ -237,7 +237,7 @@ For [the Ninevites] are as bundles of thorn branches [for fuel], and even while 
 
 
 
-There is one gone forth out of you [O Nineveh] who plots evil against the Lord, a villainous [^c]counselor [the king of Assyria, who counsels for wickedness and worthlessness]. 
+There is one gone forth out of you [O Nineveh] who plots evil against the Lord, a villainous counselor [the king of Assyria, who counsels for wickedness and worthlessness]. 
 
 
 

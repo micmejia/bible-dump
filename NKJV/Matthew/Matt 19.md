@@ -19,7 +19,7 @@ And great multitudes followed Him, and He healed them there.
 The Pharisees also came to Him, testing Him, and saying to Him, "Is it lawful for a man to divorce his wife for _just_ any reason?" 
 
 ###### 4 
-And He answered and said to them, "Have you not read that He who [^a]made _them_ at the beginning 'made them male and female,' 
+And He answered and said to them, "Have you not read that He who made _them_ at the beginning 'made them male and female,' 
 
 ###### 5 
 and said, 'For this reason a man shall leave his father and mother and be joined to his wife, and the two shall become one flesh'? 
@@ -34,7 +34,7 @@ They said to Him, "Why then did Moses command to give a certificate of divorce, 
 He said to them, "Moses, because of the hardness of your hearts, permitted you to divorce your wives, but from the beginning it was not so. 
 
 ###### 9 
-And I say to you, whoever divorces his wife, except for [^b]sexual immorality, and marries another, commits adultery; and whoever marries her who is divorced commits adultery." 
+And I say to you, whoever divorces his wife, except for sexual immorality, and marries another, commits adultery; and whoever marries her who is divorced commits adultery." 
 
 ###### 10 
 His disciples said to Him, "If such is the case of the man with _his_ wife, it is better not to marry." ## Jesus Teaches on Celibacy 
@@ -43,7 +43,7 @@ His disciples said to Him, "If such is the case of the man with _his_ wife, it i
 But He said to them, "All cannot accept this saying, but only _those_ to whom it has been given: 
 
 ###### 12 
-For there are [^c]eunuchs who were born thus from _their_ mother's womb, and there are eunuchs who were made eunuchs by men, and there are eunuchs who have made themselves eunuchs for the kingdom of heaven's sake. He who is able to accept _it,_ let him accept _it."_ ## Jesus Blesses Little Children 
+For there are eunuchs who were born thus from _their_ mother's womb, and there are eunuchs who were made eunuchs by men, and there are eunuchs who have made themselves eunuchs for the kingdom of heaven's sake. He who is able to accept _it,_ let him accept _it."_ ## Jesus Blesses Little Children 
 
 ###### 13 
 Then little children were brought to Him that He might put _His_ hands on them and pray, but the disciples rebuked them. 
@@ -55,10 +55,10 @@ But Jesus said, "Let the little children come to Me, and do not forbid them; for
 And He laid _His_ hands on them and departed from there. ## Jesus Counsels the Rich Young Ruler 
 
 ###### 16 
-Now behold, one came and said to Him, "Good[^d] Teacher, what good thing shall I do that I may have eternal life?" 
+Now behold, one came and said to Him, "Good Teacher, what good thing shall I do that I may have eternal life?" 
 
 ###### 17 
-So He said to him, [^e]"Why do you call Me good? [^f]No one _is_ good but One, _that is,_ God. But if you want to enter into life, keep the commandments." 
+So He said to him, "Why do you call Me good? No one _is_ good but One, _that is,_ God. But if you want to enter into life, keep the commandments." 
 
 ###### 18 
 He said to Him, "Which ones?" Jesus said, "'You shall not murder,' 'You shall not commit adultery,' 'You shall not steal,' 'You shall not bear false witness,' 
@@ -67,7 +67,7 @@ He said to Him, "Which ones?" Jesus said, "'You shall not murder,' 'You shall no
 'Honor your father and _your_ mother,' and, 'You shall love your neighbor as yourself.' " 
 
 ###### 20 
-The young man said to Him, "All these things I have kept [^g]from my youth. What do I still lack?" 
+The young man said to Him, "All these things I have kept from my youth. What do I still lack?" 
 
 ###### 21 
 Jesus said to him, "If you want to be perfect, go, sell what you have and give to the poor, and you will have treasure in heaven; and come, follow Me." 
@@ -94,7 +94,7 @@ Then Peter answered and said to Him, "See, we have left all and followed You. Th
 So Jesus said to them, "Assuredly I say to you, that in the regeneration, when the Son of Man sits on the throne of His glory, you who have followed Me will also sit on twelve thrones, judging the twelve tribes of Israel. 
 
 ###### 29 
-And everyone who has left houses or brothers or sisters or father or mother [^h]or wife or children or [^i]lands, for My name's sake, shall receive a hundredfold, and inherit eternal life. 
+And everyone who has left houses or brothers or sisters or father or mother or wife or children or lands, for My name's sake, shall receive a hundredfold, and inherit eternal life. 
 
 ###### 30 
 But many _who are_ first will be last, and the last first.

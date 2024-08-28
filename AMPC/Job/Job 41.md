@@ -721,4 +721,4 @@ Upon earth there is not [the crocodile's] equal, a creature made without fear _a
 
 
 
-He looks all mighty [beasts of prey] in the face [without terror]; he is monarch over all the sons of pride. [And now, Job, [^a]who are you who dares not arouse the unmastered crocodile, yet who dares resist Me, the beast's Creator, to My face? Everything under the heavens is Mine; therefore, who can have a claim against God?]
+He looks all mighty [beasts of prey] in the face [without terror]; he is monarch over all the sons of pride. [And now, Job, who are you who dares not arouse the unmastered crocodile, yet who dares resist Me, the beast's Creator, to My face? Everything under the heavens is Mine; therefore, who can have a claim against God?]

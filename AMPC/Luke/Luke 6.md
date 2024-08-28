@@ -196,7 +196,7 @@ But He was aware all along of their thoughts, and He said to the man with the wi
 
 
 
-Then Jesus said to them, I ask you, is it lawful _and_ right on the Sabbath to do good [[^a]so that someone derives advantage from it] or to do evil, to save a life [and [^b]make a soul safe] or to destroy it? 
+Then Jesus said to them, I ask you, is it lawful _and_ right on the Sabbath to do good [so that someone derives advantage from it] or to do evil, to save a life [and make a soul safe] or to destroy it? 
 
 
 
@@ -217,7 +217,7 @@ Then Jesus said to them, I ask you, is it lawful _and_ right on the Sabbath to d
 
 
 
-Then He glanced around at them all and said to the man, Stretch out your hand! And he did so, and his hand was fully restored [^c]_like the other one_. 
+Then He glanced around at them all and said to the man, Stretch out your hand! And he did so, and his hand was fully restored _like the other one_. 
 
 
 
@@ -406,7 +406,7 @@ Even those who were disturbed _and_ troubled with unclean spirits, and they were
 
 
 
-And all the multitude were seeking to touch Him, for healing power was all the while going forth from Him and curing them all [[^d]saving them from severe illnesses or calamities]. 
+And all the multitude were seeking to touch Him, for healing power was all the while going forth from Him and curing them all [saving them from severe illnesses or calamities]. 
 
 
 
@@ -427,7 +427,7 @@ And all the multitude were seeking to touch Him, for healing power was all the w
 
 
 
-And solemnly lifting up His eyes on His disciples, He said: Blessed (happy--[^e]with life-joy and satisfaction in God's favor and salvation, apart from your outward condition--and [^f]to be envied) are you poor _and_ [^g]lowly _and_ afflicted (destitute of wealth, influence, position, and honor), for the kingdom of God is yours! 
+And solemnly lifting up His eyes on His disciples, He said: Blessed (happy--with life-joy and satisfaction in God's favor and salvation, apart from your outward condition--and to be envied) are you poor _and_ lowly _and_ afflicted (destitute of wealth, influence, position, and honor), for the kingdom of God is yours! 
 
 
 
@@ -448,7 +448,7 @@ And solemnly lifting up His eyes on His disciples, He said: Blessed (happy--[^e]
 
 
 
-Blessed (happy--[^h]with life-joy and satisfaction in God's favor and salvation, apart from your outward condition--and [^i]to be envied) are you who hunger _and_ seek with eager desire now, for you shall be filled _and_ completely satisfied! Blessed (happy--[^j]with life-joy and satisfaction in God's favor and salvation, apart from your outward condition--and [^k]to be envied) are you who weep _and_ sob now, for you shall laugh! 
+Blessed (happy--with life-joy and satisfaction in God's favor and salvation, apart from your outward condition--and to be envied) are you who hunger _and_ seek with eager desire now, for you shall be filled _and_ completely satisfied! Blessed (happy--with life-joy and satisfaction in God's favor and salvation, apart from your outward condition--and to be envied) are you who weep _and_ sob now, for you shall laugh! 
 
 
 
@@ -469,7 +469,7 @@ Blessed (happy--[^h]with life-joy and satisfaction in God's favor and salvation,
 
 
 
-Blessed (happy--[^l]with life-joy and satisfaction in God's favor and salvation, apart from your outward condition--and [^m]to be envied) are you when people despise (hate) you, and when they exclude _and_ excommunicate you [as disreputable] and revile _and_ denounce you and defame _and_ cast out _and_ spurn your name as evil (wicked) on account of the Son of Man. 
+Blessed (happy--with life-joy and satisfaction in God's favor and salvation, apart from your outward condition--and to be envied) are you when people despise (hate) you, and when they exclude _and_ excommunicate you [as disreputable] and revile _and_ denounce you and defame _and_ cast out _and_ spurn your name as evil (wicked) on account of the Son of Man. 
 
 
 
@@ -511,7 +511,7 @@ Rejoice _and_ be glad at such a time and exult _and_ leap for joy, for behold, y
 
 
 
-But woe to (alas for) you who are rich ([^n]abounding in material resources), for you already are receiving your consolation (the solace and sense of strengthening and cheer that come from prosperity) _and_ have taken and enjoyed your comfort in full [having nothing left to be awarded you]. 
+But woe to (alas for) you who are rich (abounding in material resources), for you already are receiving your consolation (the solace and sense of strengthening and cheer that come from prosperity) _and_ have taken and enjoyed your comfort in full [having nothing left to be awarded you]. 
 
 
 
@@ -574,7 +574,7 @@ Woe to (alas for) you when everyone speaks fairly _and_ handsomely of you _and_ 
 
 
 
-But I say to you who are listening now to Me: [[^o]in order to heed, make it a practice to] love your enemies, treat well (do good to, act nobly toward) those who detest you _and_ pursue you with hatred, 
+But I say to you who are listening now to Me: [in order to heed, make it a practice to] love your enemies, treat well (do good to, act nobly toward) those who detest you _and_ pursue you with hatred, 
 
 
 
@@ -616,7 +616,7 @@ Invoke blessings upon _and_ pray for the happiness of those who curse you, implo
 
 
 
-To the one who strikes you on the [^p]jaw _or_ cheek, offer the other [^q]jaw _or_ cheek also; and from him who takes away your outer garment, do not withhold your undergarment as well. 
+To the one who strikes you on the jaw _or_ cheek, offer the other jaw _or_ cheek also; and from him who takes away your outer garment, do not withhold your undergarment as well. 
 
 
 
@@ -637,7 +637,7 @@ To the one who strikes you on the [^p]jaw _or_ cheek, offer the other [^q]jaw _o
 
 
 
-Give away to everyone who begs of you [who is [^r]in want of necessities], and of him who takes away from you your goods, do not demand _or_ require them back again. 
+Give away to everyone who begs of you [who is in want of necessities], and of him who takes away from you your goods, do not demand _or_ require them back again. 
 
 
 
@@ -679,7 +679,7 @@ And as you would like _and_ desire that men would do to you, do exactly so to th
 
 
 
-If you [merely] love those who love you, what [^s]quality of credit _and_ thanks is that to you? For even [^t]the [very] sinners love their lovers (those who love them). 
+If you [merely] love those who love you, what quality of credit _and_ thanks is that to you? For even the [very] sinners love their lovers (those who love them). 
 
 
 
@@ -700,7 +700,7 @@ If you [merely] love those who love you, what [^s]quality of credit _and_ thanks
 
 
 
-And if you are kind _and_ good _and_ do favors to _and_ benefit those who are kind _and_ good _and_ do favors to _and_ benefit you, what [^u]quality of credit _and_ thanks is that to you? For even [^v]the preeminently sinful do the same. 
+And if you are kind _and_ good _and_ do favors to _and_ benefit those who are kind _and_ good _and_ do favors to _and_ benefit you, what quality of credit _and_ thanks is that to you? For even the preeminently sinful do the same. 
 
 
 
@@ -721,7 +721,7 @@ And if you are kind _and_ good _and_ do favors to _and_ benefit those who are ki
 
 
 
-And if you lend money [^w]at interest to those from whom you hope to receive, what [^x]quality of credit _and_ thanks is that to you? Even notorious sinners lend money [^y]at interest to sinners, so as to recover as much again. 
+And if you lend money at interest to those from whom you hope to receive, what quality of credit _and_ thanks is that to you? Even notorious sinners lend money at interest to sinners, so as to recover as much again. 
 
 
 
@@ -742,7 +742,7 @@ And if you lend money [^w]at interest to those from whom you hope to receive, wh
 
 
 
-But love your enemies and be kind _and_ do good [doing favors [^z]so that someone derives benefit from them] and lend, expecting _and_ hoping for nothing in return _but_ [^aa]considering nothing as lost _and_ despairing of no one; and then your recompense (your reward) will be great (rich, strong, intense, and abundant), and you will be sons of the Most High, for He is kind _and_ charitable _and_ good to the ungrateful _and_ the selfish and wicked. 
+But love your enemies and be kind _and_ do good [doing favors so that someone derives benefit from them] and lend, expecting _and_ hoping for nothing in return _but_ [^aa]considering nothing as lost _and_ despairing of no one; and then your recompense (your reward) will be great (rich, strong, intense, and abundant), and you will be sons of the Most High, for He is kind _and_ charitable _and_ good to the ungrateful _and_ the selfish and wicked. 
 
 
 

@@ -37,7 +37,7 @@ the table and its utensils, the pure _gold_ lampstand with all its utensils, the
 the altar of burnt offering with all its utensils, and the laver and its base-- 
 
 ###### 10 
-the [^a]garments of ministry, the holy garments for Aaron the priest and the garments of his sons, to minister as priests, 
+the garments of ministry, the holy garments for Aaron the priest and the garments of his sons, to minister as priests, 
 
 ###### 11 
 and the anointing oil and sweet incense for the holy _place._ According to all that I have commanded you they shall do." ## The Sabbath Law 
@@ -46,10 +46,10 @@ and the anointing oil and sweet incense for the holy _place._ According to all t
 And the Lord spoke to Moses, saying, 
 
 ###### 13 
-"Speak also to the children of Israel, saying: 'Surely My Sabbaths you shall keep, for it _is_ a sign between Me and you throughout your generations, that _you_ may know that I _am_ the Lord who sanctifies[^b] you. 
+"Speak also to the children of Israel, saying: 'Surely My Sabbaths you shall keep, for it _is_ a sign between Me and you throughout your generations, that _you_ may know that I _am_ the Lord who sanctifies you. 
 
 ###### 14 
-You shall keep the Sabbath, therefore, for _it is_ holy to you. Everyone who [^c]profanes it shall surely be put to death; for whoever does _any_ work on it, that person shall be cut off from among his people. 
+You shall keep the Sabbath, therefore, for _it is_ holy to you. Everyone who profanes it shall surely be put to death; for whoever does _any_ work on it, that person shall be cut off from among his people. 
 
 ###### 15 
 Work shall be done for six days, but the seventh _is_ the Sabbath of rest, holy to the Lord. Whoever does _any_ work on the Sabbath day, he shall surely be put to death. 

@@ -205,7 +205,7 @@ Kahit ang usa ay iniwanan ang anak niya na kasisilang pa lang dahil wala nang sa
 
 
 
-Ang mga asnong-gubat ay tumatayo sa mga burol at humihingal na parang asong-gubat.[^a] Nanlalabo na ang kanilang paningin dahil sa kawalan ng pagkain." 
+Ang mga asnong-gubat ay tumatayo sa mga burol at humihingal na parang asong-gubat. Nanlalabo na ang kanilang paningin dahil sa kawalan ng pagkain." 
 
 
 
@@ -601,7 +601,7 @@ At tungkol naman sa mga taong naniniwala sa sinabi nila, ang mga bangkay nilaʼy
 
 
 
-Kung pupunta ako sa mga bukid at lungsod, nakikita ko ang mga bangkay ng mga namatay sa digmaan at taggutom. Ang mga propeta at pari ay patuloy sa gawain nila pero hindi nila alam kung ano ang ginagawa nila."[^b] ## Lumapit ang mga Tao sa Panginoon 
+Kung pupunta ako sa mga bukid at lungsod, nakikita ko ang mga bangkay ng mga namatay sa digmaan at taggutom. Ang mga propeta at pari ay patuloy sa gawain nila pero hindi nila alam kung ano ang ginagawa nila." ## Lumapit ang mga Tao sa Panginoon 
 
 
 
@@ -634,7 +634,7 @@ Kung pupunta ako sa mga bukid at lungsod, nakikita ko ang mga bangkay ng mga nam
 
 
 
-<i class="trans-change">O_ Panginoon, talaga bang itinakwil nʼyo na ang Juda? Talaga bang galit po kayo sa Jerusalem?[^c] Bakit nʼyo po kami pinarusahan ng ganito at parang wala na kaming pag-asang gumaling? Umasa po kaming bibigyan nʼyo kami ng kapayapaan, pero hindi naman ito dumating. Umasa po kaming mapapabuti ang kalagayan namin, pero takot ang dumating sa amin. 
+<i class="trans-change">O_ Panginoon, talaga bang itinakwil nʼyo na ang Juda? Talaga bang galit po kayo sa Jerusalem? Bakit nʼyo po kami pinarusahan ng ganito at parang wala na kaming pag-asang gumaling? Umasa po kaming bibigyan nʼyo kami ng kapayapaan, pero hindi naman ito dumating. Umasa po kaming mapapabuti ang kalagayan namin, pero takot ang dumating sa amin. 
 
 
 

@@ -13,19 +13,19 @@ next: ['Lev 7']
 And the Lord spoke to Moses, saying: 
 
 ###### 2 
-"If a person sins and commits a trespass against the Lord by lying[^a] to his neighbor about what was delivered to him for safekeeping, or about [^b]a pledge, or about a robbery, or if he has extorted from his neighbor, 
+"If a person sins and commits a trespass against the Lord by lying to his neighbor about what was delivered to him for safekeeping, or about a pledge, or about a robbery, or if he has extorted from his neighbor, 
 
 ###### 3 
 or if he has found what was lost and lies concerning it, and swears falsely--in any one of these things that a man may do in which he sins: 
 
 ###### 4 
-then it shall be, because he has sinned and is guilty, that he shall [^c]restore what he has stolen, or the thing which he has extorted, or what was delivered to him for safekeeping, or the lost thing which he found, 
+then it shall be, because he has sinned and is guilty, that he shall restore what he has stolen, or the thing which he has extorted, or what was delivered to him for safekeeping, or the lost thing which he found, 
 
 ###### 5 
 or all that about which he has sworn falsely. He shall restore its full value, add one-fifth more to it, _and_ give it to whomever it belongs, on the day of his trespass offering. 
 
 ###### 6 
-And he shall bring his trespass offering to the Lord, a ram without blemish from the flock, with your [^d]valuation, as a trespass offering, to the priest. 
+And he shall bring his trespass offering to the Lord, a ram without blemish from the flock, with your valuation, as a trespass offering, to the priest. 
 
 ###### 7 
 So the priest shall make atonement for him before the Lord, and he shall be forgiven for any one of these things that he may have done in which he trespasses." ## The Law of the Burnt Offering 
@@ -58,7 +58,7 @@ He shall take from it his handful of the fine flour of the grain offering, with 
 And the remainder of it Aaron and his sons shall eat; with unleavened bread it shall be eaten in a holy place; in the court of the tabernacle of meeting they shall eat it. 
 
 ###### 17 
-It shall not be baked with leaven. I have given it _as_ their [^e]portion of My offerings made by fire; it _is_ most holy, like the sin offering and the trespass offering. 
+It shall not be baked with leaven. I have given it _as_ their portion of My offerings made by fire; it _is_ most holy, like the sin offering and the trespass offering. 
 
 ###### 18 
 All the males among the children of Aaron may eat it. _It shall be_ a statute forever in your generations concerning the offerings made by fire to the Lord. Everyone who touches them must be holy.' " 
@@ -70,10 +70,10 @@ And the Lord spoke to Moses, saying,
 "This _is_ the offering of Aaron and his sons, which they shall offer to the Lord, _beginning_ on the day when he is anointed: one-tenth of an ephah of fine flour as a daily grain offering, half of it in the morning and half of it at night. 
 
 ###### 21 
-It shall be made in a pan with oil. _When it is_ mixed, you shall bring it in. The baked pieces of the grain offering you shall offer _for_ a [^f]sweet aroma to the Lord. 
+It shall be made in a pan with oil. _When it is_ mixed, you shall bring it in. The baked pieces of the grain offering you shall offer _for_ a sweet aroma to the Lord. 
 
 ###### 22 
-The priest from among his sons, who is anointed in his place, shall offer it. _It is_ a statute forever to the Lord. It shall be [^g]wholly burned. 
+The priest from among his sons, who is anointed in his place, shall offer it. _It is_ a statute forever to the Lord. It shall be wholly burned. 
 
 ###### 23 
 For every grain offering for the priest shall be wholly burned. It shall not be eaten." ## The Law of the Sin Offering 
@@ -88,7 +88,7 @@ Also the Lord spoke to Moses, saying,
 The priest who offers it for sin shall eat it. In a holy place it shall be eaten, in the court of the tabernacle of meeting. 
 
 ###### 27 
-Everyone who touches its flesh [^h]must be holy. And when its blood is sprinkled on any garment, you shall wash that on which it was sprinkled, in a holy place. 
+Everyone who touches its flesh must be holy. And when its blood is sprinkled on any garment, you shall wash that on which it was sprinkled, in a holy place. 
 
 ###### 28 
 But the earthen vessel in which it is boiled shall be broken. And if it is boiled in a bronze pot, it shall be both scoured and rinsed in water. 
@@ -97,4 +97,4 @@ But the earthen vessel in which it is boiled shall be broken. And if it is boile
 All the males among the priests may eat it. It _is_ most holy. 
 
 ###### 30 
-But no sin offering from which _any_ of the blood is brought into the tabernacle of meeting, to make atonement in [^i]the holy _place_, shall be eaten. It shall be burned in the fire.
+But no sin offering from which _any_ of the blood is brought into the tabernacle of meeting, to make atonement in the holy _place_, shall be eaten. It shall be burned in the fire.

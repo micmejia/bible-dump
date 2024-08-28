@@ -22,10 +22,10 @@ And Jacob called his sons and said, "Gather together, that I may tell you what s
 Unstable as water, you shall not excel, Because you went up to your father's bed; Then you defiled _it_-- He went up to my couch. 
 
 ###### 5 
-"Simeon and Levi _are_ brothers; Instruments of [^a]cruelty _are in_ their dwelling place. 
+"Simeon and Levi _are_ brothers; Instruments of cruelty _are in_ their dwelling place. 
 
 ###### 6 
-Let not my soul enter their council; Let not my honor be united to their assembly; For in their anger they slew a man, And in their self-will they [^b]hamstrung an ox. 
+Let not my soul enter their council; Let not my honor be united to their assembly; For in their anger they slew a man, And in their self-will they hamstrung an ox. 
 
 ###### 7 
 Cursed _be_ their anger, for _it is_ fierce; And their wrath, for it is cruel! I will divide them in Jacob And scatter them in Israel. 
@@ -34,10 +34,10 @@ Cursed _be_ their anger, for _it is_ fierce; And their wrath, for it is cruel! I
 "Judah, you _are he_ whom your brothers shall praise; Your hand _shall be_ on the neck of your enemies; Your father's children shall bow down before you. 
 
 ###### 9 
-Judah _is_ a lion's whelp; From the prey, my son, you have gone up. He [^c]bows down, he lies down as a lion; And as a lion, who shall rouse him? 
+Judah _is_ a lion's whelp; From the prey, my son, you have gone up. He bows down, he lies down as a lion; And as a lion, who shall rouse him? 
 
 ###### 10 
-The [^d]scepter shall not depart from Judah, Nor a lawgiver from between his feet, Until Shiloh comes; And to Him _shall be_ the obedience of the people. 
+The scepter shall not depart from Judah, Nor a lawgiver from between his feet, Until Shiloh comes; And to Him _shall be_ the obedience of the people. 
 
 ###### 11 
 Binding his donkey to the vine, And his donkey's colt to the choice vine, He washed his garments in wine, And his clothes in the blood of grapes. 
@@ -64,7 +64,7 @@ Dan shall be a serpent by the way, A viper by the path, That bites the horse's h
 I have waited for your salvation, O Lord! 
 
 ###### 19 
-"Gad,[^e] a troop shall [^f]tramp upon him, But he shall triumph at last. 
+"Gad, a troop shall tramp upon him, But he shall triumph at last. 
 
 ###### 20 
 "Bread from Asher _shall be_ rich, And he shall yield royal dainties. 
@@ -79,7 +79,7 @@ I have waited for your salvation, O Lord!
 The archers have bitterly grieved him, Shot _at him_ and hated him. 
 
 ###### 24 
-But his bow remained in strength, And the arms of his hands were [^g]made strong By the hands of the Mighty _God_ of Jacob (From there _is_ the Shepherd, the Stone of Israel), 
+But his bow remained in strength, And the arms of his hands were made strong By the hands of the Mighty _God_ of Jacob (From there _is_ the Shepherd, the Stone of Israel), 
 
 ###### 25 
 By the God of your father who will help you, And by the Almighty who will bless you _With_ blessings of heaven above, Blessings of the deep that lies beneath, Blessings of the breasts and of the womb. 

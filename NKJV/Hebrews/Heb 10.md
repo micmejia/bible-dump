@@ -13,7 +13,7 @@ next: ['Heb 11']
 For the law, having a shadow of the good things to come, _and_ not the very image of the things, can never with these same sacrifices, which they offer continually year by year, make those who approach perfect. 
 
 ###### 2 
-For then would they not have ceased to be offered? For the worshipers, once [^a]purified, would have had no more consciousness of sins. 
+For then would they not have ceased to be offered? For the worshipers, once purified, would have had no more consciousness of sins. 
 
 ###### 3 
 But in those _sacrifices there is_ a reminder of sins every year. 
@@ -34,10 +34,10 @@ Then I said, 'Behold, I have come-- In the volume of the book it is written of M
 Previously saying, "Sacrifice and offering, burnt offerings, and _offerings_ for sin You did not desire, nor had pleasure _in them_" (which are offered according to the law), 
 
 ###### 9 
-then He said, "Behold, I have come to do Your will, [^b]O God." He takes away the first that He may establish the second. 
+then He said, "Behold, I have come to do Your will, O God." He takes away the first that He may establish the second. 
 
 ###### 10 
-By that will we have been [^c]sanctified through the offering of the body of Jesus Christ once _for all._ ## Christ's Death Perfects the Sanctified 
+By that will we have been sanctified through the offering of the body of Jesus Christ once _for all._ ## Christ's Death Perfects the Sanctified 
 
 ###### 11 
 And every priest stands ministering daily and offering repeatedly the same sacrifices, which can never take away sins. 
@@ -49,7 +49,7 @@ But this Man, after He had offered one sacrifice for sins forever, sat down at t
 from that time waiting till His enemies are made His footstool. 
 
 ###### 14 
-For by one offering He has perfected forever those who are being [^d]sanctified. 
+For by one offering He has perfected forever those who are being sanctified. 
 
 ###### 15 
 But the Holy Spirit also witnesses to us; for after He had said before, 
@@ -61,10 +61,10 @@ But the Holy Spirit also witnesses to us; for after He had said before,
 _then He adds,_ "Their sins and their lawless deeds I will remember no more." 
 
 ###### 18 
-Now where there is [^e]remission of these, _there is_ no longer an offering for sin. ## Hold Fast Your Confession 
+Now where there is remission of these, _there is_ no longer an offering for sin. ## Hold Fast Your Confession 
 
 ###### 19 
-Therefore, brethren, having boldness[^f] to enter the Holiest by the blood of Jesus, 
+Therefore, brethren, having boldness to enter the Holiest by the blood of Jesus, 
 
 ###### 20 
 by a new and living way which He consecrated for us, through the veil, that is, His flesh, 
@@ -97,19 +97,19 @@ Anyone who has rejected Moses' law dies without mercy on _the testimony of_ two 
 Of how much worse punishment, do you suppose, will he be thought worthy who has trampled the Son of God underfoot, counted the blood of the covenant by which he was sanctified a common thing, and insulted the Spirit of grace? 
 
 ###### 30 
-For we know Him who said, "Vengeance is Mine, I will repay," [^g]says the Lord. And again, "The Lord will judge His people." 
+For we know Him who said, "Vengeance is Mine, I will repay," says the Lord. And again, "The Lord will judge His people." 
 
 ###### 31 
 It is a fearful thing to fall into the hands of the living God. 
 
 ###### 32 
-But recall the former days in which, after you were [^h]illuminated, you endured a great struggle with sufferings: 
+But recall the former days in which, after you were illuminated, you endured a great struggle with sufferings: 
 
 ###### 33 
 partly while you were made a spectacle both by reproaches and tribulations, and partly while you became companions of those who were so treated; 
 
 ###### 34 
-for you had compassion on [^i]me in my chains, and joyfully accepted the plundering of your [^j]goods, knowing that you have a better and an enduring possession for yourselves [^k]in heaven. 
+for you had compassion on me in my chains, and joyfully accepted the plundering of your goods, knowing that you have a better and an enduring possession for yourselves in heaven. 
 
 ###### 35 
 Therefore do not cast away your confidence, which has great reward. 
@@ -118,10 +118,10 @@ Therefore do not cast away your confidence, which has great reward.
 For you have need of endurance, so that after you have done the will of God, you may receive the promise: 
 
 ###### 37 
-"For yet a little while, _And_ He[^l] who is coming will come and will not [^m]tarry. 
+"For yet a little while, _And_ He who is coming will come and will not tarry. 
 
 ###### 38 
-Now the[^n] just shall live by faith; But if _anyone_ draws back, My soul has no pleasure in him." 
+Now the just shall live by faith; But if _anyone_ draws back, My soul has no pleasure in him." 
 
 ###### 39 
-But we are not of those who draw back to [^o]perdition, but of those who believe to the saving of the soul.
+But we are not of those who draw back to perdition, but of those who believe to the saving of the soul.

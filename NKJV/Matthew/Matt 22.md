@@ -25,7 +25,7 @@ Again, he sent out other servants, saying, 'Tell those who are invited, "See, I 
 But they made light of it and went their ways, one to his own farm, another to his business. 
 
 ###### 6 
-And the rest seized his servants, treated _them_ [^a]spitefully, and killed _them._ 
+And the rest seized his servants, treated _them_ spitefully, and killed _them._ 
 
 ###### 7 
 But when the king heard _about it,_ he was furious. And he sent out his armies, destroyed those murderers, and burned up their city. 
@@ -46,7 +46,7 @@ So those servants went out into the highways and gathered together all whom they
 So he said to him, 'Friend, how did you come in here without a wedding garment?' And he was speechless. 
 
 ###### 13 
-Then the king said to the servants, 'Bind him hand and foot, [^b]take him away, and cast _him_ into outer darkness; there will be weeping and gnashing of teeth.' 
+Then the king said to the servants, 'Bind him hand and foot, take him away, and cast _him_ into outer darkness; there will be weeping and gnashing of teeth.' 
 
 ###### 14 
 "For many are called, but few _are_ chosen." ## The Pharisees: Is It Lawful to Pay Taxes to Caesar? 
@@ -55,13 +55,13 @@ Then the king said to the servants, 'Bind him hand and foot, [^b]take him away, 
 Then the Pharisees went and plotted how they might entangle Him in _His_ talk. 
 
 ###### 16 
-And they sent to Him their disciples with the Herodians, saying, "Teacher, we know that You are true, and teach the way of God in truth; nor do You care about anyone, for You do not [^c]regard the person of men. 
+And they sent to Him their disciples with the Herodians, saying, "Teacher, we know that You are true, and teach the way of God in truth; nor do You care about anyone, for You do not regard the person of men. 
 
 ###### 17 
 Tell us, therefore, what do You think? Is it lawful to pay taxes to Caesar, or not?" 
 
 ###### 18 
-But Jesus [^d]perceived their wickedness, and said, "Why do you test Me, _you_ hypocrites? 
+But Jesus perceived their wickedness, and said, "Why do you test Me, _you_ hypocrites? 
 
 ###### 19 
 Show Me the tax money." So they brought Him a denarius. 
@@ -70,7 +70,7 @@ Show Me the tax money." So they brought Him a denarius.
 And He said to them, "Whose image and inscription _is_ this?" 
 
 ###### 21 
-They said to Him, "Caesar's." And He said to them, "Render[^e] therefore to Caesar the things that are Caesar's, and to God the things that are God's." 
+They said to Him, "Caesar's." And He said to them, "Render therefore to Caesar the things that are Caesar's, and to God the things that are God's." 
 
 ###### 22 
 When they had heard _these words,_ they marveled, and left Him and went their way. ## The Sadducees: What About the Resurrection? 
@@ -94,10 +94,10 @@ Last of all the woman died also.
 Therefore, in the resurrection, whose wife of the seven will she be? For they all had her." 
 
 ###### 29 
-Jesus answered and said to them, "You are [^f]mistaken, not knowing the Scriptures nor the power of God. 
+Jesus answered and said to them, "You are mistaken, not knowing the Scriptures nor the power of God. 
 
 ###### 30 
-For in the resurrection they neither marry nor are given in marriage, but are like angels [^g]of God in heaven. 
+For in the resurrection they neither marry nor are given in marriage, but are like angels of God in heaven. 
 
 ###### 31 
 But concerning the resurrection of the dead, have you not read what was spoken to you by God, saying, 

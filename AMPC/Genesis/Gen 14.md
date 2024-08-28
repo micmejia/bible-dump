@@ -49,7 +49,7 @@ In the days of the kings Amraphel of Shinar, Arioch of Ellasar, Chedorlaomer of 
 
 
 
-They made war on the kings Bera of Sodom, Birsha of Gomorrah, Shinab of Admah, Shemeber of Zeboiim, and the king of Bela, [^a]that is, Zoar. 
+They made war on the kings Bera of Sodom, Birsha of Gomorrah, Shinab of Admah, Shemeber of Zeboiim, and the king of Bela, that is, Zoar. 
 
 
 

@@ -70,7 +70,7 @@ For the law of the Spirit of life [which is] in Christ Jesus [the law of our new
 
 
 
-For God has done what the Law could not do, [its power] being weakened by the flesh [[^a]the entire nature of man without the Holy Spirit]. Sending His own Son in the guise of sinful flesh and as an offering for sin, [God] condemned sin in the flesh [[^b]subdued, overcame, [^c]deprived it of its power over all who accept that sacrifice], 
+For God has done what the Law could not do, [its power] being weakened by the flesh [the entire nature of man without the Holy Spirit]. Sending His own Son in the guise of sinful flesh and as an offering for sin, [God] condemned sin in the flesh [subdued, overcame, deprived it of its power over all who accept that sacrifice], 
 
 
 
@@ -112,7 +112,7 @@ So that the righteous _and_ just requirement of the Law might be fully met in us
 
 
 
-For those who are according to the flesh _and_ are controlled by its unholy desires set their minds on _and_ [^d]pursue those things which gratify the flesh, but those who are according to the Spirit _and_ are controlled by the desires of the Spirit set their minds on _and_ [^e]seek those things which gratify the [Holy] Spirit. 
+For those who are according to the flesh _and_ are controlled by its unholy desires set their minds on _and_ pursue those things which gratify the flesh, but those who are according to the Spirit _and_ are controlled by the desires of the Spirit set their minds on _and_ seek those things which gratify the [Holy] Spirit. 
 
 
 
@@ -133,7 +133,7 @@ For those who are according to the flesh _and_ are controlled by its unholy desi
 
 
 
-Now the mind of the flesh [which is sense and reason without the Holy Spirit] is death [death that [^f]comprises all the miseries arising from sin, both here and hereafter]. But the mind of the [Holy] Spirit is life and [soul] peace [both now and forever]. 
+Now the mind of the flesh [which is sense and reason without the Holy Spirit] is death [death that comprises all the miseries arising from sin, both here and hereafter]. But the mind of the [Holy] Spirit is life and [soul] peace [both now and forever]. 
 
 
 
@@ -385,7 +385,7 @@ And if we are [His] children, then we are [His] heirs also: heirs of God and fel
 
 
 
-[But what of that?] For I consider that the sufferings of this present time (this present life) are not worth being compared with the glory that is about to be revealed to us _and_ in us _and_ [^g]for us _and_ [^h]conferred on us! 
+[But what of that?] For I consider that the sufferings of this present time (this present life) are not worth being compared with the glory that is about to be revealed to us _and_ in us _and_ for us _and_ conferred on us! 
 
 
 
@@ -427,7 +427,7 @@ For [even the whole] creation (all nature) waits expectantly _and_ longs earnest
 
 
 
-For the creation (nature) was subjected to [^i]frailty (to futility, condemned to frustration), not because of some intentional fault on its part, but by the will of Him Who so subjected it--[yet] with the hope 
+For the creation (nature) was subjected to frailty (to futility, condemned to frustration), not because of some intentional fault on its part, but by the will of Him Who so subjected it--[yet] with the hope 
 
 
 
@@ -595,7 +595,7 @@ And He Who searches the hearts of men knows what is in the mind of the [Holy] Sp
 
 
 
-We are assured _and_ know that [[^j]God being a partner in their labor] all things work together _and_ are [fitting into a plan] for good to _and_ for those who love God and are called according to [His] design _and_ purpose. 
+We are assured _and_ know that [God being a partner in their labor] all things work together _and_ are [fitting into a plan] for good to _and_ for those who love God and are called according to [His] design _and_ purpose. 
 
 
 
@@ -616,7 +616,7 @@ We are assured _and_ know that [[^j]God being a partner in their labor] all thin
 
 
 
-For those whom He foreknew [of whom He was [^k]aware and [^l]loved beforehand], He also destined from the beginning [foreordaining them] to be molded into the image of His Son [and share inwardly His likeness], that He might become the firstborn among many brethren. 
+For those whom He foreknew [of whom He was aware and loved beforehand], He also destined from the beginning [foreordaining them] to be molded into the image of His Son [and share inwardly His likeness], that He might become the firstborn among many brethren. 
 
 
 
@@ -784,7 +784,7 @@ Even as it is written, For Thy sake we are put to death all the day long; we are
 
 
 
-Yet amid all these things we are more than conquerors [^m]_and_ gain a surpassing victory through Him Who loved us. 
+Yet amid all these things we are more than conquerors _and_ gain a surpassing victory through Him Who loved us. 
 
 
 
@@ -805,7 +805,7 @@ Yet amid all these things we are more than conquerors [^m]_and_ gain a surpassin
 
 
 
-For I am persuaded beyond doubt (am sure) that neither death nor life, nor angels nor principalities, nor things [^n]impending _and_ threatening nor things to come, nor powers, 
+For I am persuaded beyond doubt (am sure) that neither death nor life, nor angels nor principalities, nor things impending _and_ threatening nor things to come, nor powers, 
 
 
 

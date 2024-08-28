@@ -469,7 +469,7 @@ Mga kapatid, tinawag kayo upang maging malaya. Ngunit huwag ninyong gamitin ang 
 
 
 
-Sapagkat ang buod ng buong Kautusan ay nasa isang utos: "Mahalin mo ang iyong kapwa gaya ng iyong sarili."[^a] 
+Sapagkat ang buod ng buong Kautusan ay nasa isang utos: "Mahalin mo ang iyong kapwa gaya ng iyong sarili." 
 
 
 
@@ -667,7 +667,7 @@ Ang mga taong sumusunod sa ninanasa ng laman ay makikilala sa gawa nila: sekswal
 
 
 
-pagsamba sa mga dios-diosan, pangkukulam, pagkapoot, pag-aaway-away, pagkasakim,[^b] pagkagalit, pagkakawatak-watak, pagkakahati-hati, 
+pagsamba sa mga dios-diosan, pangkukulam, pagkapoot, pag-aaway-away, pagkasakim, pagkagalit, pagkakawatak-watak, pagkakahati-hati, 
 
 
 

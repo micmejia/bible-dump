@@ -28,7 +28,7 @@ next: ['Matt 13']
 
 
 
-At that [^a]particular time Jesus went through the fields of standing grain on the Sabbath; and His disciples were hungry, and they began to pick off the spikes of grain and to eat. 
+At that particular time Jesus went through the fields of standing grain on the Sabbath; and His disciples were hungry, and they began to pick off the spikes of grain and to eat. 
 
 
 
@@ -133,7 +133,7 @@ Or have you never read in the Law that on the Sabbath the priests in the temple 
 
 
 
-But I tell you, Something greater _and_ [^b]more exalted _and_ more majestic than the temple is here! 
+But I tell you, Something greater _and_ more exalted _and_ more majestic than the temple is here! 
 
 
 
@@ -322,7 +322,7 @@ But the Pharisees went out and held a consultation against Him, how they might d
 
 
 
-But being aware of this, Jesus went away from there. And many people [^c]joined _and_ accompanied Him, and He cured all of them, 
+But being aware of this, Jesus went away from there. And many people joined _and_ accompanied Him, and He cured all of them, 
 
 
 
@@ -343,7 +343,7 @@ But being aware of this, Jesus went away from there. And many people [^c]joined 
 
 
 
-And strictly charged them _and_ sharply warned them not to make Him [^d]publicly known. 
+And strictly charged them _and_ sharply warned them not to make Him publicly known. 
 
 
 
@@ -385,7 +385,7 @@ This was in fulfillment of what was spoken by the prophet Isaiah,
 
 
 
-Behold, My Servant Whom I have chosen, My Beloved in _and_ with Whom My soul is well pleased _and_ [^e]has found its delight. I will put My Spirit upon Him, and He shall proclaim _and_ [^f]show forth justice to the nations. 
+Behold, My Servant Whom I have chosen, My Beloved in _and_ with Whom My soul is well pleased _and_ has found its delight. I will put My Spirit upon Him, and He shall proclaim _and_ show forth justice to the nations. 
 
 
 
@@ -427,7 +427,7 @@ He will not strive _or_ wrangle or cry out loudly; nor will anyone hear His voic
 
 
 
-A bruised reed He will not break, and a smoldering (dimly burning) wick He will not quench, till He brings [^g]justice _and_ a just cause to victory. 
+A bruised reed He will not break, and a smoldering (dimly burning) wick He will not quench, till He brings justice _and_ a just cause to victory. 
 
 
 
@@ -448,7 +448,7 @@ A bruised reed He will not break, and a smoldering (dimly burning) wick He will 
 
 
 
-And in _and_ on His name will the Gentiles (the [^h]peoples outside of Israel) set their hopes. 
+And in _and_ on His name will the Gentiles (the peoples outside of Israel) set their hopes. 
 
 
 
@@ -511,7 +511,7 @@ And all the [crowds of] people were stunned with bewildered wonder and said, Thi
 
 
 
-But the Pharisees, hearing it, said, This [^i]Man drives out demons only by _and_ with the help of Beelzebub, the prince of demons. 
+But the Pharisees, hearing it, said, This Man drives out demons only by _and_ with the help of Beelzebub, the prince of demons. 
 
 
 
@@ -574,7 +574,7 @@ And if Satan drives out Satan, he has become divided against himself _and_ disun
 
 
 
-And if I drive out the demons by [help of] Beelzebub, by whose [help] do your sons drive them out? [^j]For this reason they shall be your judges. 
+And if I drive out the demons by [help of] Beelzebub, by whose [help] do your sons drive them out? For this reason they shall be your judges. 
 
 
 
@@ -595,7 +595,7 @@ And if I drive out the demons by [help of] Beelzebub, by whose [help] do your so
 
 
 
-But if it is by the Spirit of God that I drive out the demons, then the kingdom of God has come upon you [[^k]before you expected it]. 
+But if it is by the Spirit of God that I drive out the demons, then the kingdom of God has come upon you [before you expected it]. 
 
 
 
@@ -637,7 +637,7 @@ Or how can a person go into a strong man's house and carry off his goods (the en
 
 
 
-He who is not with Me [definitely [^l]on My side] is against Me, and he who does not [definitely] gather with Me _and_ for [^m]My side scatters. 
+He who is not with Me [definitely on My side] is against Me, and he who does not [definitely] gather with Me _and_ for My side scatters. 
 
 
 
@@ -658,7 +658,7 @@ He who is not with Me [definitely [^l]on My side] is against Me, and he who does
 
 
 
-Therefore I tell you, every sin and blasphemy (every evil, abusive, [^n]injurious speaking, or indignity against sacred things) can be forgiven men, but blasphemy against the [Holy] Spirit shall not _and_ [^o]cannot be forgiven. 
+Therefore I tell you, every sin and blasphemy (every evil, abusive, injurious speaking, or indignity against sacred things) can be forgiven men, but blasphemy against the [Holy] Spirit shall not _and_ cannot be forgiven. 
 
 
 
@@ -721,7 +721,7 @@ Either make the tree sound (healthy and good), and its fruit sound (healthy and 
 
 
 
-You offspring of vipers! How can you speak good things when you are evil (wicked)? For out of the fullness (the overflow, the [^p]superabundance) of the heart the mouth speaks. 
+You offspring of vipers! How can you speak good things when you are evil (wicked)? For out of the fullness (the overflow, the superabundance) of the heart the mouth speaks. 
 
 
 
@@ -742,7 +742,7 @@ You offspring of vipers! How can you speak good things when you are evil (wicked
 
 
 
-The good man from his inner good treasure [^q]flings forth good things, and the evil man out of his inner evil storehouse [^r]flings forth evil things. 
+The good man from his inner good treasure flings forth good things, and the evil man out of his inner evil storehouse flings forth evil things. 
 
 
 
@@ -763,7 +763,7 @@ The good man from his inner good treasure [^q]flings forth good things, and the 
 
 
 
-But I tell you, on the day of judgment men will have to give account for every [^s]idle (inoperative, nonworking) word they speak. 
+But I tell you, on the day of judgment men will have to give account for every idle (inoperative, nonworking) word they speak. 
 
 
 
@@ -826,7 +826,7 @@ Then some of the scribes and Pharisees said to Him, Teacher, we desire to see a 
 
 
 
-But He replied to them, An evil and adulterous generation (a generation [^t]morally unfaithful to God) seeks _and_ demands a sign; but no sign shall be given to it except the sign of the prophet Jonah. 
+But He replied to them, An evil and adulterous generation (a generation morally unfaithful to God) seeks _and_ demands a sign; but no sign shall be given to it except the sign of the prophet Jonah. 
 
 
 
@@ -994,7 +994,7 @@ Jesus was still speaking to the people when behold, His mother and brothers stoo
 
 
 
-[^u]_Someone said to Him, Listen! Your mother and Your brothers are standing outside, seeking to speak to You._ 
+_Someone said to Him, Listen! Your mother and Your brothers are standing outside, seeking to speak to You._ 
 
 
 
@@ -1036,7 +1036,7 @@ But He replied to the man who told Him, Who is My mother, and who are My brother
 
 
 
-And stretching out His hand toward [not only the twelve disciples but all] [^v]His adherents, He said, Here are My mother and My brothers. 
+And stretching out His hand toward [not only the twelve disciples but all] His adherents, He said, Here are My mother and My brothers. 
 
 
 

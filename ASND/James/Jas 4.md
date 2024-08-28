@@ -172,7 +172,7 @@ Kayong mga hindi tapat sa Dios, hindi nʼyo ba alam na kaaway ng Dios ang umiibi
 
 
 
-Huwag ninyong isipin na walang kabuluhan ang sinasabi ng Kasulatan, "Ayaw ng Espiritung pinatira sa atin na may kaagaw sa pag-ibig niya."[^a] 
+Huwag ninyong isipin na walang kabuluhan ang sinasabi ng Kasulatan, "Ayaw ng Espiritung pinatira sa atin na may kaagaw sa pag-ibig niya." 
 
 
 
@@ -205,7 +205,7 @@ Huwag ninyong isipin na walang kabuluhan ang sinasabi ng Kasulatan, "Ayaw ng Esp
 
 
 
-Ngunit sapat ang biyayang ibinigay ng Dios. Kaya nga sinasabi sa Kasulatan, "Kinakalaban ng Dios ang mga mapagmataas, pero kinakaawaan niya ang mapagpakumbaba."[^b] 
+Ngunit sapat ang biyayang ibinigay ng Dios. Kaya nga sinasabi sa Kasulatan, "Kinakalaban ng Dios ang mga mapagmataas, pero kinakaawaan niya ang mapagpakumbaba." 
 
 
 
@@ -403,7 +403,7 @@ Mga kapatid, huwag ninyong siraan ang isaʼt isa. Ang naninira o humahatol sa ka
 
 
 
-Ngunit ang Dios lang ang nagbigay ng Kautusan at siya lamang ang hukom. Tanging siya ang may kakayahang magligtas at magparusa.[^c] Kaya sino ka para husgahan ang kapwa mo? ## Paalala sa Pagmamalaki 
+Ngunit ang Dios lang ang nagbigay ng Kautusan at siya lamang ang hukom. Tanging siya ang may kakayahang magligtas at magparusa. Kaya sino ka para husgahan ang kapwa mo? ## Paalala sa Pagmamalaki 
 
 
 

@@ -9,10 +9,10 @@ next: ['1 Kgs 2']
 
 
 ###### 1 
-Now King David was old, [^a]advanced in years; and they put covers on him, but he could not get warm. 
+Now King David was old, advanced in years; and they put covers on him, but he could not get warm. 
 
 ###### 2 
-Therefore his servants said to him, "Let a young woman, a virgin, be sought for our lord the king, and let her [^b]stand before the king, and let her care for him; and let her lie in your bosom, that our lord the king may be warm." 
+Therefore his servants said to him, "Let a young woman, a virgin, be sought for our lord the king, and let her stand before the king, and let her care for him; and let her lie in your bosom, that our lord the king may be warm." 
 
 ###### 3 
 So they sought for a lovely young woman throughout all the territory of Israel, and found Abishag the Shunammite, and brought her to the king. 
@@ -21,10 +21,10 @@ So they sought for a lovely young woman throughout all the territory of Israel, 
 The young woman _was_ very lovely; and she cared for the king, and served him; but the king did not know her. 
 
 ###### 5 
-Then Adonijah the [^c]son of Haggith exalted himself, saying, "I will [^d]be king"; and he prepared for himself chariots and horsemen, and fifty men to run before him. 
+Then Adonijah the son of Haggith exalted himself, saying, "I will be king"; and he prepared for himself chariots and horsemen, and fifty men to run before him. 
 
 ###### 6 
-(And his father had not [^e]rebuked him at any time by saying, "Why have you done so?" He _was_ also very good-looking. _His mother_ had borne him after Absalom.) 
+(And his father had not rebuked him at any time by saying, "Why have you done so?" He _was_ also very good-looking. _His mother_ had borne him after Absalom.) 
 
 ###### 7 
 Then he conferred with Joab the son of Zeruiah and with Abiathar the priest, and they followed and helped Adonijah. 
@@ -33,7 +33,7 @@ Then he conferred with Joab the son of Zeruiah and with Abiathar the priest, and
 But Zadok the priest, Benaiah the son of Jehoiada, Nathan the prophet, Shimei, Rei, and the mighty men who _belonged_ to David were not with Adonijah. 
 
 ###### 9 
-And Adonijah sacrificed sheep and oxen and fattened cattle by the stone of [^f]Zoheleth, which _is_ by En Rogel;[^g] he also invited all his brothers, the king's sons, and all the men of Judah, the king's servants. 
+And Adonijah sacrificed sheep and oxen and fattened cattle by the stone of Zoheleth, which _is_ by En Rogel; he also invited all his brothers, the king's sons, and all the men of Judah, the king's servants. 
 
 ###### 10 
 But he did not invite Nathan the prophet, Benaiah, the mighty men, or Solomon his brother. 
@@ -81,7 +81,7 @@ So they told the king, saying, "Here is Nathan the prophet." And when he came in
 And Nathan said, "My lord, O king, have you said, 'Adonijah shall reign after me, and he shall sit on my throne'? 
 
 ###### 25 
-For he has gone down today, and has sacrificed oxen and fattened cattle and sheep in abundance, and has invited all the king's sons, and the commanders of the army, and Abiathar the priest; and look! They are eating and drinking before him; and they say, '_Long_[^h] live King Adonijah!' 
+For he has gone down today, and has sacrificed oxen and fattened cattle and sheep in abundance, and has invited all the king's sons, and the commanders of the army, and Abiathar the priest; and look! They are eating and drinking before him; and they say, '_Long_ live King Adonijah!' 
 
 ###### 26 
 But he has not invited me--me your servant--nor Zadok the priest, nor Benaiah the son of Jehoiada, nor your servant Solomon. 
@@ -105,10 +105,10 @@ Then Bathsheba bowed with _her_ face to the earth, and paid homage to the king, 
 And King David said, "Call to me Zadok the priest, Nathan the prophet, and Benaiah the son of Jehoiada." So they came before the king. 
 
 ###### 33 
-The king also said to them, "Take with you the servants of your lord, and have Solomon my son ride on my own mule, and take him down to Gihon.[^i] 
+The king also said to them, "Take with you the servants of your lord, and have Solomon my son ride on my own mule, and take him down to Gihon. 
 
 ###### 34 
-There let Zadok the priest and Nathan the prophet anoint him king over Israel; and blow the horn, and say, [^j]'_Long_ live King Solomon!' 
+There let Zadok the priest and Nathan the prophet anoint him king over Israel; and blow the horn, and say, '_Long_ live King Solomon!' 
 
 ###### 35 
 Then you shall come up after him, and he shall come and sit on my throne, and he shall be king in my place. For I have appointed him to be ruler over Israel and Judah." 
@@ -123,7 +123,7 @@ As the Lord has been with my lord the king, even so may He be with Solomon, and 
 So Zadok the priest, Nathan the prophet, Benaiah the son of Jehoiada, the Cherethites, and the Pelethites went down and had Solomon ride on King David's mule, and took him to Gihon. 
 
 ###### 39 
-Then Zadok the priest took a horn of oil from the tabernacle and anointed Solomon. And they blew the horn, and all the people said, [^k]"_Long_ live King Solomon!" 
+Then Zadok the priest took a horn of oil from the tabernacle and anointed Solomon. And they blew the horn, and all the people said, "_Long_ live King Solomon!" 
 
 ###### 40 
 And all the people went up after him; and the people played the flutes and rejoiced with great joy, so that the earth _seemed to_ split with their sound. 

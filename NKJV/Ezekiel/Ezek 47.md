@@ -10,7 +10,7 @@ next: ['Ezek 48']
 
 
 ###### 1 
-Then he brought me back to the door of the [^a]temple; and there was water, flowing from under the threshold of the temple toward the east, for the front of the temple faced east; the water was flowing from under the right side of the temple, south of the altar. 
+Then he brought me back to the door of the temple; and there was water, flowing from under the threshold of the temple toward the east, for the front of the temple faced east; the water was flowing from under the right side of the temple, south of the altar. 
 
 ###### 2 
 He brought me out by way of the north gate, and led me around on the outside to the outer gateway that faces east; and there was water, running out on the right side. 
@@ -31,10 +31,10 @@ He said to me, "Son of man, have you seen _this?_" Then he brought me and return
 When I returned, there, along the bank of the river, _were_ very many trees on one side and the other. 
 
 ###### 8 
-Then he said to me: "This water flows toward the eastern region, goes down into the [^b]valley, and enters the sea. _When it_ reaches the sea, _its_ waters are healed. 
+Then he said to me: "This water flows toward the eastern region, goes down into the valley, and enters the sea. _When it_ reaches the sea, _its_ waters are healed. 
 
 ###### 9 
-And it shall be _that_ every living thing that moves, wherever [^c]the rivers go, will live. There will be a very great multitude of fish, because these waters go there; for they will be healed, and everything will live wherever the river goes. 
+And it shall be _that_ every living thing that moves, wherever the rivers go, will live. There will be a very great multitude of fish, because these waters go there; for they will be healed, and everything will live wherever the river goes. 
 
 ###### 10 
 It shall be _that_ fishermen will stand by it from En Gedi to En Eglaim; they will be _places_ for spreading their nets. Their fish will be of the same kinds as the fish of the Great Sea, exceedingly many. 
@@ -43,7 +43,7 @@ It shall be _that_ fishermen will stand by it from En Gedi to En Eglaim; they wi
 But its swamps and marshes will not be healed; they will be given over to salt. 
 
 ###### 12 
-Along the bank of the river, on this side and that, will grow all _kinds of_ trees used for food; their leaves will not wither, and their fruit will not fail. They will bear fruit every month, because their water flows from the sanctuary. Their fruit will be for food, and their leaves for medicine."[^d] ## Borders of the Land 
+Along the bank of the river, on this side and that, will grow all _kinds of_ trees used for food; their leaves will not wither, and their fruit will not fail. They will bear fruit every month, because their water flows from the sanctuary. Their fruit will be for food, and their leaves for medicine." ## Borders of the Land 
 
 ###### 13 
 Thus says the Lord God: "These _are_ the borders by which you shall divide the land as an inheritance among the twelve tribes of Israel. Joseph _shall have two_ portions. 
@@ -64,7 +64,7 @@ Thus the boundary shall be from the Sea to Hazar Enan, the border of Damascus; a
 "On the east side you shall mark out the border from between Hauran and Damascus, and between Gilead and the land of Israel, along the Jordan, and along the eastern side of the sea. _This is_ the east side. 
 
 ###### 19 
-"The south side, toward the [^e]South, _shall be_ from Tamar to the waters of [^f]Meribah by Kadesh, along the brook to the Great Sea. _This is_ the south side, toward the South. 
+"The south side, toward the South, _shall be_ from Tamar to the waters of Meribah by Kadesh, along the brook to the Great Sea. _This is_ the south side, toward the South. 
 
 ###### 20 
 "The west side _shall be_ the Great Sea, from the _southern_ boundary until one comes to a point opposite Hamath. This _is_ the west side. 

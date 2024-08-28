@@ -22,10 +22,10 @@ For behold, the days are coming,' says the Lord, 'that I will bring back from ca
 Now these _are_ the words that the Lord spoke concerning Israel and Judah. 
 
 ###### 5 
-"For thus says the Lord: 'We have heard a voice of trembling, Of [^a]fear, and not of peace. 
+"For thus says the Lord: 'We have heard a voice of trembling, Of fear, and not of peace. 
 
 ###### 6 
-Ask now, and see, Whether a [^b]man is ever in [^c]labor with child? So why do I see every man _with_ his hands on his loins Like a woman in labor, And all faces turned pale? 
+Ask now, and see, Whether a man is ever in labor with child? So why do I see every man _with_ his hands on his loins Like a woman in labor, And all faces turned pale? 
 
 ###### 7 
 Alas! For that day _is_ great, So that none _is_ like it; And it _is_ the time of Jacob's trouble, But he shall be saved out of it. 
@@ -61,7 +61,7 @@ Why do you cry about your affliction? Your sorrow _is_ incurable. Because of the
 For I will restore health to you And heal you of your wounds,' says the Lord, 'Because they called you an outcast _saying:_ "This _is_ Zion; No one seeks her." ' 
 
 ###### 18 
-"Thus says the Lord: 'Behold, I will bring back the captivity of Jacob's tents, And have mercy on his dwelling places; The city shall be built upon its own [^d]mound, And the palace shall remain according to its own plan. 
+"Thus says the Lord: 'Behold, I will bring back the captivity of Jacob's tents, And have mercy on his dwelling places; The city shall be built upon its own mound, And the palace shall remain according to its own plan. 
 
 ###### 19 
 Then out of them shall proceed thanksgiving And the voice of those who make merry; I will multiply them, and they shall not diminish; I will also glorify them, and they shall not be small. 
@@ -76,7 +76,7 @@ Their nobles shall be from among them, And their governor shall come from their 
 'You shall be My people, And I will be your God.' " 
 
 ###### 23 
-Behold, the whirlwind of the Lord Goes forth with fury, A [^e]continuing whirlwind; It will fall violently on the head of the wicked. 
+Behold, the whirlwind of the Lord Goes forth with fury, A continuing whirlwind; It will fall violently on the head of the wicked. 
 
 ###### 24 
 The fierce anger of the Lord will not return until He has done it, And until He has performed the intents of His heart. In the latter days you will consider it.

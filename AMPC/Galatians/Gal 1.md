@@ -27,7 +27,7 @@ next: ['Gal 2']
 
 
 
-Paul, an apostle--[special messenger appointed and commissioned and sent out] not from [any body of] men nor by _or_ through [^a]any man, but by _and_ through Jesus Christ (the Messiah) and God the Father, Who raised Him from among the dead-- 
+Paul, an apostle--[special messenger appointed and commissioned and sent out] not from [any body of] men nor by _or_ through any man, but by _and_ through Jesus Christ (the Messiah) and God the Father, Who raised Him from among the dead-- 
 
 
 
@@ -90,7 +90,7 @@ Grace _and_ spiritual blessing be to you and [soul] peace from God the Father an
 
 
 
-Who gave (yielded) Himself up [[^b]to atone] for our sins [and [^c]to save and sanctify us], in order to rescue _and_ deliver us from this present wicked age _and_ world order, in accordance with the will _and_ purpose _and_ plan of our God and Father-- 
+Who gave (yielded) Himself up [to atone] for our sins [and to save and sanctify us], in order to rescue _and_ deliver us from this present wicked age _and_ world order, in accordance with the will _and_ purpose _and_ plan of our God and Father-- 
 
 
 
@@ -132,7 +132,7 @@ To Him [be ascribed all] the glory through all the ages of the ages _and_ the et
 
 
 
-I am surprised _and_ astonished that you are so quickly [^d]turning renegade _and_ deserting Him Who invited _and_ called you [^e]by the grace (unmerited favor) of Christ (the Messiah) [and that you are transferring your allegiance] to a different [even an opposition] gospel. 
+I am surprised _and_ astonished that you are so quickly turning renegade _and_ deserting Him Who invited _and_ called you by the grace (unmerited favor) of Christ (the Messiah) [and that you are transferring your allegiance] to a different [even an opposition] gospel. 
 
 
 
@@ -153,7 +153,7 @@ I am surprised _and_ astonished that you are so quickly [^d]turning renegade _an
 
 
 
-Not that there is [or could be] any other [genuine Gospel], but there are [obviously] some who are troubling _and_ disturbing _and_ bewildering you [[^f]with a different kind of teaching which they offer as a gospel] and want to pervert _and_ distort the Gospel of Christ (the Messiah) [into something which it absolutely is not]. 
+Not that there is [or could be] any other [genuine Gospel], but there are [obviously] some who are troubling _and_ disturbing _and_ bewildering you [with a different kind of teaching which they offer as a gospel] and want to pervert _and_ distort the Gospel of Christ (the Messiah) [into something which it absolutely is not]. 
 
 
 

@@ -19,7 +19,7 @@ A good _man_ obtains favor from the Lord, But a man of wicked intentions He will
 A man is not established by wickedness, But the root of the righteous cannot be moved. 
 
 ###### 4 
-An[^a] excellent wife _is_ the crown of her husband, But she who causes shame _is_ like rottenness in his bones. 
+An excellent wife _is_ the crown of her husband, But she who causes shame _is_ like rottenness in his bones. 
 
 ###### 5 
 The thoughts of the righteous _are_ right, _But_ the counsels of the wicked _are_ deceitful. 
@@ -34,13 +34,13 @@ The wicked are overthrown and _are_ no more, But the house of the righteous will
 A man will be commended according to his wisdom, But he who is of a perverse heart will be despised. 
 
 ###### 9 
-Better _is the one_ who is [^b]slighted but has a servant, Than he who honors himself but lacks bread. 
+Better _is the one_ who is slighted but has a servant, Than he who honors himself but lacks bread. 
 
 ###### 10 
 A righteous _man_ regards the life of his animal, But the tender mercies of the wicked _are_ cruel. 
 
 ###### 11 
-He who [^c]tills his land will be satisfied with bread, But he who follows [^d]frivolity _is_ devoid of [^e]understanding. 
+He who tills his land will be satisfied with bread, But he who follows frivolity _is_ devoid of understanding. 
 
 ###### 12 
 The wicked covet the catch of evil _men,_ But the root of the righteous yields _fruit._ 
@@ -70,7 +70,7 @@ The truthful lip shall be established forever, But a lying tongue _is_ but for a
 Deceit is in the heart of those who devise evil, But counselors of peace have joy. 
 
 ###### 21 
-No grave [^f]trouble will overtake the righteous, But the wicked shall be filled with evil. 
+No grave trouble will overtake the righteous, But the wicked shall be filled with evil. 
 
 ###### 22 
 Lying lips _are_ an abomination to the Lord, But those who deal truthfully _are_ His delight. 

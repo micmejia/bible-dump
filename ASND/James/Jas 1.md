@@ -39,7 +39,7 @@ next: ['Jas 2']
 
 
 
-<i class="trans-change">Mula kay_ Santiago na lingkod[^a] ng Dios at ng Panginoong Jesu-Cristo. <i class="trans-change">Mahal kong_ mga mananampalataya na nagsipangalat saan man sa mundo.[^b] ## Ang Pananampalataya at Karunungan 
+<i class="trans-change">Mula kay_ Santiago na lingkod ng Dios at ng Panginoong Jesu-Cristo. <i class="trans-change">Mahal kong_ mga mananampalataya na nagsipangalat saan man sa mundo. ## Ang Pananampalataya at Karunungan 
 
 
 
@@ -336,7 +336,7 @@ Dapat ikagalak ng mga mahihirap na kapatid <i class="trans-change">kay Cristo_ a
 
 
 
-Ang mga mayayaman naman <i class="trans-change">na kapatid kay Cristo_ ay dapat ding ikarangal ang pagkakababa sa kanila <i class="trans-change">ng Dios_, dahil lilipas sila katulad ng mga bulaklak sa parang.[^c] 
+Ang mga mayayaman naman <i class="trans-change">na kapatid kay Cristo_ ay dapat ding ikarangal ang pagkakababa sa kanila <i class="trans-change">ng Dios_, dahil lilipas sila katulad ng mga bulaklak sa parang. 
 
 
 
@@ -600,7 +600,7 @@ Lahat ng mabubuti at angkop na kaloob ay nanggagaling sa Dios na siyang lumikha 
 
 
 
-Ayon sa kanyang kalooban, ginawa niya tayong mga anak niya sa pamamagitan ng pagkilala natin sa katotohanan,[^d] upang maging higit tayo sa lahat ng nilikha niya. ## Pagdinig at Pagsunod 
+Ayon sa kanyang kalooban, ginawa niya tayong mga anak niya sa pamamagitan ng pagkilala natin sa katotohanan, upang maging higit tayo sa lahat ng nilikha niya. ## Pagdinig at Pagsunod 
 
 
 

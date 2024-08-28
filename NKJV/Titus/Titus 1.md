@@ -18,16 +18,16 @@ in hope of eternal life which God, who cannot lie, promised before time began,
 but has in due time manifested His word through preaching, which was committed to me according to the commandment of God our Savior; 
 
 ###### 4 
-To Titus, a true son in _our_ common faith: Grace, mercy, _and_ peace from God the Father and [^a]the Lord Jesus Christ our Savior. ## Qualified Elders 
+To Titus, a true son in _our_ common faith: Grace, mercy, _and_ peace from God the Father and the Lord Jesus Christ our Savior. ## Qualified Elders 
 
 ###### 5 
 For this reason I left you in Crete, that you should set in order the things that are lacking, and appoint elders in every city as I commanded you-- 
 
 ###### 6 
-if a man is blameless, the husband of one wife, having faithful children not accused of [^b]dissipation or insubordination. 
+if a man is blameless, the husband of one wife, having faithful children not accused of dissipation or insubordination. 
 
 ###### 7 
-For a [^c]bishop must be blameless, as a steward of God, not self-willed, not quick-tempered, not given to wine, not violent, not greedy for money, 
+For a bishop must be blameless, as a steward of God, not self-willed, not quick-tempered, not given to wine, not violent, not greedy for money, 
 
 ###### 8 
 but hospitable, a lover of what is good, sober-minded, just, holy, self-controlled, 
@@ -54,4 +54,4 @@ not giving heed to Jewish fables and commandments of men who turn from the truth
 To the pure all things are pure, but to those who are defiled and unbelieving nothing is pure; but even their mind and conscience are defiled. 
 
 ###### 16 
-They profess to know God, but in works they deny _Him,_ being [^d]abominable, disobedient, and disqualified for every good work.
+They profess to know God, but in works they deny _Him,_ being abominable, disobedient, and disqualified for every good work.

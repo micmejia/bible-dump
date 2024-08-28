@@ -16,16 +16,16 @@ Now this _is_ the genealogy of the sons of Noah: Shem, Ham, and Japheth. And son
 The sons of Japheth _were_ Gomer, Magog, Madai, Javan, Tubal, Meshech, and Tiras. 
 
 ###### 3 
-The sons of Gomer _were_ Ashkenaz, [^a]Riphath, and Togarmah. 
+The sons of Gomer _were_ Ashkenaz, Riphath, and Togarmah. 
 
 ###### 4 
-The sons of Javan _were_ Elishah, Tarshish, Kittim, and [^b]Dodanim. 
+The sons of Javan _were_ Elishah, Tarshish, Kittim, and Dodanim. 
 
 ###### 5 
 From these the coastland _peoples_ of the Gentiles were separated into their lands, everyone according to his language, according to their families, into their nations. 
 
 ###### 6 
-The sons of Ham _were_ Cush, Mizraim, [^c]Put, and Canaan. 
+The sons of Ham _were_ Cush, Mizraim, Put, and Canaan. 
 
 ###### 7 
 The sons of Cush _were_ Seba, Havilah, Sabtah, Raamah, and Sabtechah; and the sons of Raamah _were_ Sheba and Dedan. 
@@ -70,19 +70,19 @@ And the border of the Canaanites was from Sidon as you go toward Gerar, as far a
 These _were_ the sons of Ham, according to their families, according to their languages, in their lands _and_ in their nations. 
 
 ###### 21 
-And _children_ were born also to Shem, the father of all the children of Eber, [^d]the brother of Japheth the elder. 
+And _children_ were born also to Shem, the father of all the children of Eber, the brother of Japheth the elder. 
 
 ###### 22 
 The sons of Shem _were_ Elam, Asshur, Arphaxad, Lud, and Aram. 
 
 ###### 23 
-The sons of Aram _were_ Uz, Hul, Gether, and [^e]Mash. 
+The sons of Aram _were_ Uz, Hul, Gether, and Mash. 
 
 ###### 24 
-[^f]Arphaxad begot Salah, and Salah begot Eber. 
+Arphaxad begot Salah, and Salah begot Eber. 
 
 ###### 25 
-To Eber were born two sons: the name of one _was_ [^g]Peleg, for in his days the earth was divided; and his brother's name _was_ Joktan. 
+To Eber were born two sons: the name of one _was_ Peleg, for in his days the earth was divided; and his brother's name _was_ Joktan. 
 
 ###### 26 
 Joktan begot Almodad, Sheleph, Hazarmaveth, Jerah, 
@@ -91,7 +91,7 @@ Joktan begot Almodad, Sheleph, Hazarmaveth, Jerah,
 Hadoram, Uzal, Diklah, 
 
 ###### 28 
-[^h]Obal, Abimael, Sheba, 
+Obal, Abimael, Sheba, 
 
 ###### 29 
 Ophir, Havilah, and Jobab. All these _were_ the sons of Joktan. 

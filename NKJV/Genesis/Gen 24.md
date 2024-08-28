@@ -16,7 +16,7 @@ Now Abraham was old, well advanced in age; and the Lord had blessed Abraham in a
 So Abraham said to the oldest servant of his house, who ruled over all that he had, "Please, put your hand under my thigh, 
 
 ###### 3 
-and I will make you swear[^a] by the Lord, the God of heaven and the God of the earth, that you will not take a wife for my son from the daughters of the Canaanites, among whom I dwell; 
+and I will make you swear by the Lord, the God of heaven and the God of the earth, that you will not take a wife for my son from the daughters of the Canaanites, among whom I dwell; 
 
 ###### 4 
 but you shall go to my country and to my family, and take a wife for my son Isaac." 
@@ -28,7 +28,7 @@ And the servant said to him, "Perhaps the woman will not be willing to follow me
 But Abraham said to him, "Beware that you do not take my son back there. 
 
 ###### 7 
-The Lord God of heaven, who took me from my father's house and from the land of my family, and who spoke to me and swore to me, saying, 'To your [^b]descendants I give this land,' He will send His angel before you, and you shall take a wife for my son from there. 
+The Lord God of heaven, who took me from my father's house and from the land of my family, and who spoke to me and swore to me, saying, 'To your descendants I give this land,' He will send His angel before you, and you shall take a wife for my son from there. 
 
 ###### 8 
 And if the woman is not willing to follow you, then you will be released from this oath; only do not take my son back there." 
@@ -52,7 +52,7 @@ Behold, _here_ I stand by the well of water, and the daughters of the men of the
 Now let it be that the young woman to whom I say, 'Please let down your pitcher that I may drink,' and she says, 'Drink, and I will also give your camels a drink'--_let_ her _be the one_ You have appointed for Your servant Isaac. And by this I will know that You have shown kindness to my master." 
 
 ###### 15 
-And it happened, before he had finished speaking, that behold, Rebekah,[^c] who was born to Bethuel, son of Milcah, the wife of Nahor, Abraham's brother, came out with her pitcher on her shoulder. 
+And it happened, before he had finished speaking, that behold, Rebekah, who was born to Bethuel, son of Milcah, the wife of Nahor, Abraham's brother, came out with her pitcher on her shoulder. 
 
 ###### 16 
 Now the young woman _was_ very beautiful to behold, a virgin; no man had known her. And she went down to the well, filled her pitcher, and came up. 
@@ -76,7 +76,7 @@ And the man, wondering at her, remained silent so as to know whether the Lord ha
 So it was, when the camels had finished drinking, that the man took a golden nose ring weighing half a shekel, and two bracelets for her wrists weighing ten _shekels_ of gold, 
 
 ###### 23 
-and said, "Whose daughter _are_ you? Tell me, please, is there room _in_ your father's house for us [^d]to lodge?" 
+and said, "Whose daughter _are_ you? Tell me, please, is there room _in_ your father's house for us to lodge?" 
 
 ###### 24 
 So she said to him, "I _am_ the daughter of Bethuel, Milcah's son, whom she bore to Nahor." 
@@ -127,7 +127,7 @@ but you shall go to my father's house and to my family, and take a wife for my s
 And I said to my master, 'Perhaps the woman will not follow me.' 
 
 ###### 40 
-But he said to me, 'The Lord, before whom I walk, will send His angel with you and [^e]prosper your way; and you shall take a wife for my son from my family and from my father's house. 
+But he said to me, 'The Lord, before whom I walk, will send His angel with you and prosper your way; and you shall take a wife for my son from my family and from my father's house. 
 
 ###### 41 
 You will be clear from this oath when you arrive among my family; for if they will not give _her_ to you, then you will be released from my oath.' 
@@ -175,7 +175,7 @@ And he and the men who _were_ with him ate and drank and stayed all night. Then 
 But her brother and her mother said, "Let the young woman stay with us _a few_ days, at least ten; after that she may go." 
 
 ###### 56 
-And he said to them, "Do not [^f]hinder me, since the Lord has prospered my way; send me away so that I may go to my master." 
+And he said to them, "Do not hinder me, since the Lord has prospered my way; send me away so that I may go to my master." 
 
 ###### 57 
 So they said, "We will call the young woman and ask her personally." 

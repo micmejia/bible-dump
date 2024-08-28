@@ -10,7 +10,7 @@ next: ['Gen 45']
 
 
 ###### 1 
-And he commanded [^a]the steward of his house, saying, "Fill the men's sacks with food, as much as they can carry, and put each man's money in the mouth of his sack. 
+And he commanded the steward of his house, saying, "Fill the men's sacks with food, as much as they can carry, and put each man's money in the mouth of his sack. 
 
 ###### 2 
 Also put my cup, the silver cup, in the mouth of the sack of the youngest, and his grain money." So he did according to the word that Joseph had spoken. 
@@ -43,7 +43,7 @@ And he said, "Now also _let_ it _be_ according to your words; he with whom it is
 Then each man speedily let down his sack to the ground, and each opened his sack. 
 
 ###### 12 
-So he searched. He began with the oldest and [^b]left off with the youngest; and the cup was found in Benjamin's sack. 
+So he searched. He began with the oldest and left off with the youngest; and the cup was found in Benjamin's sack. 
 
 ###### 13 
 Then they tore their clothes, and each man loaded his donkey and returned to the city. 
@@ -109,4 +109,4 @@ For your servant became surety for the lad to my father, saying, 'If I do not br
 Now therefore, please let your servant remain instead of the lad as a slave to my lord, and let the lad go up with his brothers. 
 
 ###### 34 
-For how shall I go up to my father if the lad _is_ not with me, lest perhaps I see the evil that would [^c]come upon my father?"
+For how shall I go up to my father if the lad _is_ not with me, lest perhaps I see the evil that would come upon my father?"

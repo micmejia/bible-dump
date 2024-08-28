@@ -13,7 +13,7 @@ next: ['John 18']
 Jesus spoke these words, lifted up His eyes to heaven, and said: "Father, the hour has come. Glorify Your Son, that Your Son also may glorify You, 
 
 ###### 2 
-as You have given Him authority over all flesh, that He [^a]should give eternal life to as many as You have given Him. 
+as You have given Him authority over all flesh, that He should give eternal life to as many as You have given Him. 
 
 ###### 3 
 And this is eternal life, that they may know You, the only true God, and Jesus Christ whom You have sent. 
@@ -22,10 +22,10 @@ And this is eternal life, that they may know You, the only true God, and Jesus C
 I have glorified You on the earth. I have finished the work which You have given Me to do. 
 
 ###### 5 
-And now, O Father, glorify Me together [^b]with Yourself, with the glory which I had with You before the world was. ## Jesus Prays for His Disciples 
+And now, O Father, glorify Me together with Yourself, with the glory which I had with You before the world was. ## Jesus Prays for His Disciples 
 
 ###### 6 
-"I have [^c]manifested Your name to the men whom You have given Me out of the world. They were Yours, You gave them to Me, and they have kept Your word. 
+"I have manifested Your name to the men whom You have given Me out of the world. They were Yours, You gave them to Me, and they have kept Your word. 
 
 ###### 7 
 Now they have known that all things which You have given Me are from You. 
@@ -40,10 +40,10 @@ For I have given to them the words which You have given Me; and they have receiv
 And all Mine are Yours, and Yours are Mine, and I am glorified in them. 
 
 ###### 11 
-Now I am no longer in the world, but these are in the world, and I come to You. Holy Father, keep[^d] through Your name those whom You have given Me, that they may be one as We _are._ 
+Now I am no longer in the world, but these are in the world, and I come to You. Holy Father, keep through Your name those whom You have given Me, that they may be one as We _are._ 
 
 ###### 12 
-While I was with them [^e]in the world, I kept them in [^f]Your name. Those whom You gave Me I have kept; and none of them is [^g]lost except the son of [^h]perdition, that the Scripture might be fulfilled. 
+While I was with them in the world, I kept them in Your name. Those whom You gave Me I have kept; and none of them is lost except the son of perdition, that the Scripture might be fulfilled. 
 
 ###### 13 
 But now I come to You, and these things I speak in the world, that they may have My joy fulfilled in themselves. 
@@ -58,7 +58,7 @@ I do not pray that You should take them out of the world, but that You should ke
 They are not of the world, just as I am not of the world. 
 
 ###### 17 
-Sanctify[^i] them by Your truth. Your word is truth. 
+Sanctify them by Your truth. Your word is truth. 
 
 ###### 18 
 As You sent Me into the world, I also have sent them into the world. 
@@ -67,7 +67,7 @@ As You sent Me into the world, I also have sent them into the world.
 And for their sakes I sanctify Myself, that they also may be sanctified by the truth. ## Jesus Prays for All Believers 
 
 ###### 20 
-"I do not pray for these alone, but also for those who [^j]will believe in Me through their word; 
+"I do not pray for these alone, but also for those who will believe in Me through their word; 
 
 ###### 21 
 that they all may be one, as You, Father, _are_ in Me, and I in You; that they also may be one in Us, that the world may believe that You sent Me. 

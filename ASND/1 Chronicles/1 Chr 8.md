@@ -106,7 +106,7 @@ Noha at Rafa.
 
 
 
-Ang mga anak na lalaki ni Bela ay sina Adar, Gera, Abihud,[^a] 
+Ang mga anak na lalaki ni Bela ay sina Adar, Gera, Abihud, 
 
 
 
@@ -502,7 +502,7 @@ Sila ang mga pinuno ng mga pamilya nila ayon sa talaan ng kanilang mga lahi, at 
 
 
 
-Si Jeyel[^b] na ama ni Gibeon ay tumira sa Gibeon. Ang pangalan ng asawa niya ay Maaca. 
+Si Jeyel na ama ni Gibeon ay tumira sa Gibeon. Ang pangalan ng asawa niya ay Maaca. 
 
 
 
@@ -535,7 +535,7 @@ Si Jeyel[^b] na ama ni Gibeon ay tumira sa Gibeon. Ang pangalan ng asawa niya ay
 
 
 
-Ang mga anak niyang lalaki mula sa panganay hanggang sa pinakabata ay sina Abdon, Zur, Kish, Baal, Ner,[^c] Nadab, 
+Ang mga anak niyang lalaki mula sa panganay hanggang sa pinakabata ay sina Abdon, Zur, Kish, Baal, Ner, Nadab, 
 
 
 
@@ -568,7 +568,7 @@ Ang mga anak niyang lalaki mula sa panganay hanggang sa pinakabata ay sina Abdon
 
 
 
-Gedor, Ahio, Zeker,[^d] 
+Gedor, Ahio, Zeker, 
 
 
 
@@ -601,7 +601,7 @@ Gedor, Ahio, Zeker,[^d]
 
 
 
-at Miklot na ama ni Shimea.[^e] Tumira sila malapit sa kanilang mga kamag-anak sa Jerusalem. 
+at Miklot na ama ni Shimea. Tumira sila malapit sa kanilang mga kamag-anak sa Jerusalem. 
 
 
 
@@ -634,7 +634,7 @@ at Miklot na ama ni Shimea.[^e] Tumira sila malapit sa kanilang mga kamag-anak s
 
 
 
-Si Ner ang ama ni Kish, si Kish ang ama ni Saul, at si Saul ang ama ni Jonatan, Malki Shua, Abinadab at Eshbaal.[^f] 
+Si Ner ang ama ni Kish, si Kish ang ama ni Saul, at si Saul ang ama ni Jonatan, Malki Shua, Abinadab at Eshbaal. 
 
 
 
@@ -667,7 +667,7 @@ Si Ner ang ama ni Kish, si Kish ang ama ni Saul, at si Saul ang ama ni Jonatan, 
 
 
 
-Ang anak ni Jonatan ay si Merib Baal[^g] na ama ni Micas. 
+Ang anak ni Jonatan ay si Merib Baal na ama ni Micas. 
 
 
 
@@ -733,7 +733,7 @@ Ang mga anak na lalaki ni Micas ay sina Piton, Melec, Tarea at Ahaz.
 
 
 
-Si Ahaz ang ama ni Jehoada,[^h] at si Jehoada ang ama nina Alemet, Azmavet at Zimri. Si Zimri ang ama ni Moza, 
+Si Ahaz ang ama ni Jehoada, at si Jehoada ang ama nina Alemet, Azmavet at Zimri. Si Zimri ang ama ni Moza, 
 
 
 
@@ -766,7 +766,7 @@ Si Ahaz ang ama ni Jehoada,[^h] at si Jehoada ang ama nina Alemet, Azmavet at Zi
 
 
 
-at si Moza ang ama ni Binea. Ang anak ni Binea ay si Rafa,[^i] na ama ni Eleasa, na ama ni Azel. 
+at si Moza ang ama ni Binea. Ang anak ni Binea ay si Rafa, na ama ni Eleasa, na ama ni Azel. 
 
 
 

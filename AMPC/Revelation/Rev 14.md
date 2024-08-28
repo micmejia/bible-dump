@@ -49,7 +49,7 @@ Then I looked, and behold, the Lamb stood on Mount Zion, and with Him 144,000 [m
 
 
 
-And I heard a voice from heaven like the sound of great waters and like the rumbling of mighty thunder; the voice I heard [seemed like the music] of harpists [^a]accompanying themselves on their harps. 
+And I heard a voice from heaven like the sound of great waters and like the rumbling of mighty thunder; the voice I heard [seemed like the music] of harpists accompanying themselves on their harps. 
 
 
 
@@ -70,7 +70,7 @@ And I heard a voice from heaven like the sound of great waters and like the rumb
 
 
 
-And they sang a new song before the throne [of God] and before the four living creatures and before the elders [of [^b]the heavenly Sanhedrin]. No one could learn [to sing] that song except the 144,000 who had been ransomed (purchased, redeemed) from the earth. 
+And they sang a new song before the throne [of God] and before the four living creatures and before the elders [of the heavenly Sanhedrin]. No one could learn [to sing] that song except the 144,000 who had been ransomed (purchased, redeemed) from the earth. 
 
 
 
@@ -91,7 +91,7 @@ And they sang a new song before the throne [of God] and before the four living c
 
 
 
-These are they who have not defiled themselves by relations with women, for they are [[^c]pure as] virgins. These are they who follow the Lamb wherever He goes. These are they who have been ransomed (purchased, redeemed) from among men as the firstfruits for God and the Lamb. 
+These are they who have not defiled themselves by relations with women, for they are [pure as] virgins. These are they who follow the Lamb wherever He goes. These are they who have been ransomed (purchased, redeemed) from among men as the firstfruits for God and the Lamb. 
 
 
 
@@ -175,7 +175,7 @@ And he cried with a mighty voice, Revere God and give Him glory (honor and prais
 
 
 
-Then another angel, a second, followed, declaring, Fallen, fallen is Babylon the great! She who made all nations drink of the [maddening] wine of her passionate unchastity [[^d]idolatry]. 
+Then another angel, a second, followed, declaring, Fallen, fallen is Babylon the great! She who made all nations drink of the [maddening] wine of her passionate unchastity [idolatry]. 
 
 
 
@@ -280,7 +280,7 @@ Here [comes in a call for] the steadfastness of the saints [the patience, the en
 
 
 
-Then I heard further [[^e]perceiving the distinct words of] a voice from heaven, saying, Write this: Blessed (happy, [^f]to be envied) are the dead from now on who die in the Lord! Yes, blessed (happy, [^g]to be envied indeed), says the Spirit, [in] that they may rest from their labors, for their works (deeds) do follow (attend, accompany) them! 
+Then I heard further [perceiving the distinct words of] a voice from heaven, saying, Write this: Blessed (happy, to be envied) are the dead from now on who die in the Lord! Yes, blessed (happy, to be envied indeed), says the Spirit, [in] that they may rest from their labors, for their works (deeds) do follow (attend, accompany) them! 
 
 
 
@@ -301,7 +301,7 @@ Then I heard further [[^e]perceiving the distinct words of] a voice from heaven,
 
 
 
-Again I looked, and behold, [I saw] a white cloud, and sitting on the cloud [^h]One resembling a Son of Man, with a crown of gold on His head and a sharp scythe (sickle) in His hand. 
+Again I looked, and behold, [I saw] a white cloud, and sitting on the cloud One resembling a Son of Man, with a crown of gold on His head and a sharp scythe (sickle) in His hand. 
 
 
 

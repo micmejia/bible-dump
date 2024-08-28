@@ -27,7 +27,7 @@ next: ['1 John 2']
 
 
 
-[We are writing] about the Word of Life [[^a]in] Him Who existed from the beginning, Whom we have heard, Whom we have seen with our [own] eyes, Whom we have gazed upon [for ourselves] and have touched with our [own] hands. 
+[We are writing] about the Word of Life [in] Him Who existed from the beginning, Whom we have heard, Whom we have seen with our [own] eyes, Whom we have gazed upon [for ourselves] and have touched with our [own] hands. 
 
 
 
@@ -48,7 +48,7 @@ next: ['1 John 2']
 
 
 
-And the Life [[^b]an aspect of His being] was revealed (made manifest, demonstrated), and we saw [as eyewitnesses] and are testifying to and declare to you the Life, the eternal Life [[^c]in Him] Who already existed with the Father and Who [actually] was made visible (was revealed) to us [His followers]. 
+And the Life [an aspect of His being] was revealed (made manifest, demonstrated), and we saw [as eyewitnesses] and are testifying to and declare to you the Life, the eternal Life [in Him] Who already existed with the Father and Who [actually] was made visible (was revealed) to us [His followers]. 
 
 
 
@@ -69,7 +69,7 @@ And the Life [[^b]an aspect of His being] was revealed (made manifest, demonstra
 
 
 
-What we have seen and [ourselves] heard, we are also telling you, so that you too may [^d]realize _and_ enjoy fellowship as partners _and_ partakers with us. And [this] fellowship that we have [which is a [^e]distinguishing mark of Christians] is with the Father and with His Son Jesus Christ (the Messiah). 
+What we have seen and [ourselves] heard, we are also telling you, so that you too may realize _and_ enjoy fellowship as partners _and_ partakers with us. And [this] fellowship that we have [which is a distinguishing mark of Christians] is with the Father and with His Son Jesus Christ (the Messiah). 
 
 
 
@@ -90,7 +90,7 @@ What we have seen and [ourselves] heard, we are also telling you, so that you to
 
 
 
-And we are now writing these things to you so that our joy [in seeing you included] may be full [and [^f]_your_ joy may be complete]. 
+And we are now writing these things to you so that our joy [in seeing you included] may be full [and _your_ joy may be complete]. 
 
 
 
@@ -111,7 +111,7 @@ And we are now writing these things to you so that our joy [in seeing you includ
 
 
 
-And this is the message [the message of [^g]promise] which we have heard from Him and now are reporting to you: God is Light, and there is no darkness in Him at all [[^h]no, not in any way]. 
+And this is the message [the message of promise] which we have heard from Him and now are reporting to you: God is Light, and there is no darkness in Him at all [no, not in any way]. 
 
 
 

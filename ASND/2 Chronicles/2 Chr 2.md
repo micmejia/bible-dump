@@ -106,7 +106,7 @@ Nagpatawag siya ng 70,000 tagahakot, 80,000 tagatabas ng mga bato sa mababang ba
 
 
 
-Nagpadala si Solomon ng ganitong mensahe kay Haring Hiram[^a] ng Tyre: "Padalhan mo ako ng mga kahoy na sedro gaya ng ipinadala mo sa aking amang si David nang nagpatayo siya ng palasyo niya. 
+Nagpadala si Solomon ng ganitong mensahe kay Haring Hiram ng Tyre: "Padalhan mo ako ng mga kahoy na sedro gaya ng ipinadala mo sa aking amang si David nang nagpatayo siya ng palasyo niya. 
 
 
 
@@ -139,7 +139,7 @@ Nagpadala si Solomon ng ganitong mensahe kay Haring Hiram[^a] ng Tyre: "Padalhan
 
 
 
-Magpapatayo ako ng templo para sa karangalan ng pangalan ng Panginoon na aking Dios. Magiging banal ang lugar na ito na pinagsusunugan ng mabangong insenso, hinahandugan ng banal na tinapay, pinag-aalayan ng mga handog na sinusunog tuwing umaga at gabi at sa Araw ng Pamamahinga, sa Pista ng Pagsisimula ng Buwan[^b] at sa iba pang mga pista sa pagpaparangal sa Panginoon na aming Dios. Ang tuntuning itoʼy dapat tuparin ng mga Israelita magpakailanman. 
+Magpapatayo ako ng templo para sa karangalan ng pangalan ng Panginoon na aking Dios. Magiging banal ang lugar na ito na pinagsusunugan ng mabangong insenso, hinahandugan ng banal na tinapay, pinag-aalayan ng mga handog na sinusunog tuwing umaga at gabi at sa Araw ng Pamamahinga, sa Pista ng Pagsisimula ng Buwan at sa iba pang mga pista sa pagpaparangal sa Panginoon na aming Dios. Ang tuntuning itoʼy dapat tuparin ng mga Israelita magpakailanman. 
 
 
 
@@ -469,7 +469,7 @@ Purihin ang Panginoon, ang Dios ng Israel na gumawa ng langit at lupa! Binigyan 
 
 
 
-Ang kanyang ina ay mula sa Dan at ang kanyang amaʼy mula sa Tyre. Dalubhasa siya sa paggawa sa ginto, pilak, tanso, bakal, bato at kahoy, at sa paggawa ng telang kulay ube,[^c] pula at asul, at pinong <i class="trans-change">telang_ linen. Dalubhasa siya sa kahit anong uri ng pag-ukit, at makakagawa siya ng anumang uri ng disenyo na ipapagawa mo sa kanya. Gagawa siya kasama ng iyong manggagawa at ng mga manggagawa na pinili ng kagalang-galang[^d] na si David, na iyong ama. 
+Ang kanyang ina ay mula sa Dan at ang kanyang amaʼy mula sa Tyre. Dalubhasa siya sa paggawa sa ginto, pilak, tanso, bakal, bato at kahoy, at sa paggawa ng telang kulay ube, pula at asul, at pinong <i class="trans-change">telang_ linen. Dalubhasa siya sa kahit anong uri ng pag-ukit, at makakagawa siya ng anumang uri ng disenyo na ipapagawa mo sa kanya. Gagawa siya kasama ng iyong manggagawa at ng mga manggagawa na pinili ng kagalang-galang na si David, na iyong ama. 
 
 
 

@@ -270,7 +270,7 @@ Ganito ang laging nangyayari taun-taon. Sa tuwing pupunta si Hanna sa bahay ng P
 
 
 
-Sinasabi ni Elkana sa kanya, "Bakit ka umiiyak? Bakit ayaw mong kumain? Bakit ka malungkot? Mas mahalaga ba para sa iyo ang sampung anak kaysa sa akin?" <sup class="versenum">9-10</sup><i class="trans-change">Minsan,_ pagkatapos nilang kumain <i class="trans-change">sa bahay ng Panginoon_ sa Shilo, tumayo si Hanna at nanalangin nang umiiyak dahil sa labis na kalungkutan. Nakaupo noon ang pari na si Eli sa may pintuan ng bahay ng Panginoon.[^a] 
+Sinasabi ni Elkana sa kanya, "Bakit ka umiiyak? Bakit ayaw mong kumain? Bakit ka malungkot? Mas mahalaga ba para sa iyo ang sampung anak kaysa sa akin?" <sup class="versenum">9-10</sup><i class="trans-change">Minsan,_ pagkatapos nilang kumain <i class="trans-change">sa bahay ng Panginoon_ sa Shilo, tumayo si Hanna at nanalangin nang umiiyak dahil sa labis na kalungkutan. Nakaupo noon ang pari na si Eli sa may pintuan ng bahay ng Panginoon. 
 
 
 
@@ -534,7 +534,7 @@ Kinabukasan, maagang bumangon si Elkana at ang kanyang pamilya, at silaʼy sumam
 
 
 
-At dumating ang panahon na nagbuntis siya at nanganak ng isang lalaki. Pinangalanan niya itong Samuel,[^b] dahil sinabi niya, "Hiningi ko siya sa Panginoon." ## Inihandog ni Hanna si Samuel 
+At dumating ang panahon na nagbuntis siya at nanganak ng isang lalaki. Pinangalanan niya itong Samuel, dahil sinabi niya, "Hiningi ko siya sa Panginoon." ## Inihandog ni Hanna si Samuel 
 
 
 
@@ -798,4 +798,4 @@ Hiningi ko po ang batang ito sa Panginoon at ibinigay niya ang kahilingan ko.
 
 
 
-Kaya ngayon, ihahandog ko po siya sa Panginoon. Maglilingkod po ang batang ito sa Panginoon sa buong buhay niya." Pagkatapos ay sumamba sila sa[^c] Panginoon.
+Kaya ngayon, ihahandog ko po siya sa Panginoon. Maglilingkod po ang batang ito sa Panginoon sa buong buhay niya." Pagkatapos ay sumamba sila sa Panginoon.

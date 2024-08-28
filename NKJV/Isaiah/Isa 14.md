@@ -19,7 +19,7 @@ Then people will take them and bring them to their place, and the house of Israe
 It shall come to pass in the day the Lord gives you rest from your sorrow, and from your fear and the hard bondage in which you were made to serve, 
 
 ###### 4 
-that you will take up this proverb against the king of Babylon, and say: "How the oppressor has ceased, The golden[^a] city ceased! 
+that you will take up this proverb against the king of Babylon, and say: "How the oppressor has ceased, The golden city ceased! 
 
 ###### 5 
 The Lord has broken the staff of the wicked, The scepter of the rulers; 
@@ -31,10 +31,10 @@ He who struck the people in wrath with a continual stroke, He who ruled the nati
 The whole earth is at rest _and_ quiet; They break forth into singing. 
 
 ###### 8 
-Indeed the cypress trees rejoice over you, _And_ the cedars of Lebanon, _Saying,_ 'Since you [^b]were cut down, No woodsman has come up against us.' 
+Indeed the cypress trees rejoice over you, _And_ the cedars of Lebanon, _Saying,_ 'Since you were cut down, No woodsman has come up against us.' 
 
 ###### 9 
-"Hell[^c] from beneath is excited about you, To meet _you_ at your coming; It stirs up the dead for you, All the chief ones of the earth; It has raised up from their thrones All the kings of the nations. 
+"Hell from beneath is excited about you, To meet _you_ at your coming; It stirs up the dead for you, All the chief ones of the earth; It has raised up from their thrones All the kings of the nations. 
 
 ###### 10 
 They all shall speak and say to you: 'Have you also become as weak as we? Have you become like us? 
@@ -43,7 +43,7 @@ They all shall speak and say to you: 'Have you also become as weak as we? Have y
 Your pomp is brought down to Sheol, _And_ the sound of your stringed instruments; The maggot is spread under you, And worms cover you.' ## The Fall of Lucifer 
 
 ###### 12 
-"How you are fallen from heaven, O [^d]Lucifer, son of the morning! _How_ you are cut down to the ground, You who weakened the nations! 
+"How you are fallen from heaven, O Lucifer, son of the morning! _How_ you are cut down to the ground, You who weakened the nations! 
 
 ###### 13 
 For you have said in your heart: 'I will ascend into heaven, I will exalt my throne above the stars of God; I will also sit on the mount of the congregation On the farthest sides of the north; 
@@ -52,19 +52,19 @@ For you have said in your heart: 'I will ascend into heaven, I will exalt my thr
 I will ascend above the heights of the clouds, I will be like the Most High.' 
 
 ###### 15 
-Yet you shall be brought down to Sheol, To the [^e]lowest depths of the Pit. 
+Yet you shall be brought down to Sheol, To the lowest depths of the Pit. 
 
 ###### 16 
 "Those who see you will gaze at you, _And_ consider you, _saying:_ '_Is_ this the man who made the earth tremble, Who shook kingdoms, 
 
 ###### 17 
-Who made the world as a wilderness And destroyed its cities, _Who_ [^f]did not open the house of his prisoners?' 
+Who made the world as a wilderness And destroyed its cities, _Who_ did not open the house of his prisoners?' 
 
 ###### 18 
 "All the kings of the nations, All of them, sleep in glory, Everyone in his own house; 
 
 ###### 19 
-But you are cast out of your grave Like an [^g]abominable branch, _Like_ the garment of those who are slain, [^h]Thrust through with a sword, Who go down to the stones of the pit, Like a corpse trodden underfoot. 
+But you are cast out of your grave Like an abominable branch, _Like_ the garment of those who are slain, Thrust through with a sword, Who go down to the stones of the pit, Like a corpse trodden underfoot. 
 
 ###### 20 
 You will not be joined with them in burial, Because you have destroyed your land _And_ slain your people. The brood of evildoers shall never be named. 
@@ -91,7 +91,7 @@ This _is_ the purpose that is purposed against the whole earth, And this _is_ th
 For the Lord of hosts has purposed, And who will annul _it?_ His hand _is_ stretched out, And who will turn it back?" ## Philistia Destroyed 
 
 ###### 28 
-This is the [^i]burden which came in the year that King Ahaz died. 
+This is the burden which came in the year that King Ahaz died. 
 
 ###### 29 
 "Do not rejoice, all you of Philistia, Because the rod that struck you is broken; For out of the serpent's roots will come forth a viper, And its offspring _will be_ a fiery flying serpent. 
@@ -100,7 +100,7 @@ This is the [^i]burden which came in the year that King Ahaz died.
 The firstborn of the poor will feed, And the needy will lie down in safety; I will kill your roots with famine, And it will slay your remnant. 
 
 ###### 31 
-Wail, O gate! Cry, O city! All you of Philistia _are_ dissolved; For smoke will come from the north, And no one _will be_ alone in his [^j]appointed times." 
+Wail, O gate! Cry, O city! All you of Philistia _are_ dissolved; For smoke will come from the north, And no one _will be_ alone in his appointed times." 
 
 ###### 32 
 What will they answer the messengers of the nation? That the Lord has founded Zion, And the poor of His people shall take refuge in it.

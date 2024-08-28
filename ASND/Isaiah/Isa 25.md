@@ -238,7 +238,7 @@ Dito sa Bundok ng Zion, ang Panginoong Makapangyarihan ay maghahanda ng isang pi
 
 
 
-At sa bundok ding ito, papawiin niya ang kalungkutan[^a] ng mga tao sa lahat ng bansa. 
+At sa bundok ding ito, papawiin niya ang kalungkutan ng mga tao sa lahat ng bansa. 
 
 
 

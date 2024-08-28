@@ -205,7 +205,7 @@ Alalahanin ninyo kung gaano kayo nanamlay <i class="trans-change">sa pananampala
 
 
 
-Ngunit ito ang gusto ko sa inyo: kinasusuklaman ninyo ang mga ginagawa ng mga Nicolaita,[^a] na kinasusuklaman ko rin. 
+Ngunit ito ang gusto ko sa inyo: kinasusuklaman ninyo ang mga ginagawa ng mga Nicolaita, na kinasusuklaman ko rin. 
 
 
 
@@ -832,7 +832,7 @@ Papatayin ko ang mga tagasunod niya upang malaman ng lahat ng iglesya na alam ko
 
 
 
-Ipagpatuloy na lang ninyo ang inyong katapatan sa akin hanggang sa pagdating ko. <sup class="versenum">26-27</sup>Sapagkat ang mga magtatagumpay at patuloy na sumusunod sa kalooban ko hanggang sa wakas ay bibigyan ko ng kapangyarihang mamahala sa mga bansa, tulad ng kapangyarihang ibinigay sa akin ng aking Ama. Mamamahala sila sa pamamagitan ng kamay na bakal at dudurugin nila ang mga bansa gaya ng pagdurog sa palayok.[^b] 
+Ipagpatuloy na lang ninyo ang inyong katapatan sa akin hanggang sa pagdating ko. <sup class="versenum">26-27</sup>Sapagkat ang mga magtatagumpay at patuloy na sumusunod sa kalooban ko hanggang sa wakas ay bibigyan ko ng kapangyarihang mamahala sa mga bansa, tulad ng kapangyarihang ibinigay sa akin ng aking Ama. Mamamahala sila sa pamamagitan ng kamay na bakal at dudurugin nila ang mga bansa gaya ng pagdurog sa palayok. 
 
 
 
@@ -865,7 +865,7 @@ Ipagpatuloy na lang ninyo ang inyong katapatan sa akin hanggang sa pagdating ko.
 
 
 
-At ibibigay ko rin sa kanila ang tala sa umaga.[^c] 
+At ibibigay ko rin sa kanila ang tala sa umaga. 
 
 
 

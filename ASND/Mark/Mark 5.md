@@ -40,7 +40,7 @@ next: ['Mark 6']
 
 
 
-Dumating sila sa kabila ng lawa, sa lupain ng mga Geraseno.[^a] 
+Dumating sila sa kabila ng lawa, sa lupain ng mga Geraseno. 
 
 
 
@@ -601,7 +601,7 @@ Pero hindi pumayag si Jesus. Sa halip, sinabi niya sa lalaki, "Umuwi ka sa pamil
 
 
 
-Kaya umalis ang lalaki at ipinamalita sa Decapolis,[^b] ang ginawa sa kanya ni Jesus. At namangha ang lahat <i class="trans-change">ng nakarinig tungkol sa nangyari_. ## Ang Anak ni Jairus at ang Babaeng Dinudugo 
+Kaya umalis ang lalaki at ipinamalita sa Decapolis, ang ginawa sa kanya ni Jesus. At namangha ang lahat <i class="trans-change">ng nakarinig tungkol sa nangyari_. ## Ang Anak ni Jairus at ang Babaeng Dinudugo 
 
 
 
@@ -1063,7 +1063,7 @@ Alam ng babae kung ano ang nangyari sa kanya, kaya lumapit siyang nanginginig sa
 
 
 
-Pagkatapos, sinabi sa kanya ni Jesus, "Anak, pinagaling[^c] ka ng iyong pananampalataya. Umuwi kang mapayapa. Magaling ka na." 
+Pagkatapos, sinabi sa kanya ni Jesus, "Anak, pinagaling ka ng iyong pananampalataya. Umuwi kang mapayapa. Magaling ka na." 
 
 
 

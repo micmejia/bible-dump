@@ -139,7 +139,7 @@ ang mga lalagyan ng abo, pala, mangkok, malalaking tinidor para sa karne at mga 
 
 
 
-Magpagawa ka rin ng parilyang tanso para sa altar, at lagyan ito ng argolyang[^a] tanso sa bawat sulok. 
+Magpagawa ka rin ng parilyang tanso para sa altar, at lagyan ito ng argolyang tanso sa bawat sulok. 
 
 
 
@@ -700,4 +700,4 @@ Kailangang purong tanso ang lahat ng kagamitan sa Toldang Sambahan pati na ang l
 
 
 
-Ilagay ang lalagyan ng ilaw sa labas ng kurtina na tumatakip sa <i class="trans-change">Kahon ng_ Kasunduan. Si Aaron at ang mga anak niyang lalaki ang mag-aasikaso sa mga ilaw sa Toldang Tipanan.[^b] Sisindihan nila ito sa aking presensya araw at gabi. Ang tuntuning itoʼy dapat sundin ng mga Israelita at ng susunod pa nilang mga henerasyon.
+Ilagay ang lalagyan ng ilaw sa labas ng kurtina na tumatakip sa <i class="trans-change">Kahon ng_ Kasunduan. Si Aaron at ang mga anak niyang lalaki ang mag-aasikaso sa mga ilaw sa Toldang Tipanan. Sisindihan nila ito sa aking presensya araw at gabi. Ang tuntuning itoʼy dapat sundin ng mga Israelita at ng susunod pa nilang mga henerasyon.

@@ -10,16 +10,16 @@ next: ['Deut 18']
 
 
 ###### 1 
-"You shall not sacrifice to the Lord your God a bull or sheep which has any [^a]blemish _or_ defect, for that _is_ an [^b]abomination to the Lord your God. 
+"You shall not sacrifice to the Lord your God a bull or sheep which has any blemish _or_ defect, for that _is_ an abomination to the Lord your God. 
 
 ###### 2 
-"If there is found among you, within any of your [^c]gates which the Lord your God gives you, a man or a woman who has been wicked in the sight of the Lord your God, in transgressing His covenant, 
+"If there is found among you, within any of your gates which the Lord your God gives you, a man or a woman who has been wicked in the sight of the Lord your God, in transgressing His covenant, 
 
 ###### 3 
 who has gone and served other gods and worshiped them, either the sun or moon or any of the host of heaven, which I have not commanded, 
 
 ###### 4 
-and it is told you, and you hear _of it,_ then you shall inquire diligently. And if _it is_ indeed true _and_ certain that such an [^d]abomination has been committed in Israel, 
+and it is told you, and you hear _of it,_ then you shall inquire diligently. And if _it is_ indeed true _and_ certain that such an abomination has been committed in Israel, 
 
 ###### 5 
 then you shall bring out to your gates that man or woman who has committed that wicked thing, and shall stone to death that man or woman with stones. 
@@ -67,4 +67,4 @@ Neither shall he multiply wives for himself, lest his heart turn away; nor shall
 And it shall be with him, and he shall read it all the days of his life, that he may learn to fear the Lord his God and be careful to observe all the words of this law and these statutes, 
 
 ###### 20 
-that his heart may not [^e]be lifted above his brethren, that he may not turn aside from the commandment _to_ the right hand or _to_ the left, and that he may [^f]prolong _his_ days in his kingdom, he and his children in the midst of Israel.
+that his heart may not be lifted above his brethren, that he may not turn aside from the commandment _to_ the right hand or _to_ the left, and that he may prolong _his_ days in his kingdom, he and his children in the midst of Israel.

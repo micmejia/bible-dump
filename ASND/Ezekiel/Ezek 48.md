@@ -600,7 +600,7 @@ Katabi ng lupain <i class="trans-change">ng lahi_ ni Benjamin sa gawing timog ay
 
 
 
-Ang hangganan sa timog ng lupaing para <i class="trans-change">sa lahi_ ni Gad ay magsisimula sa Tamar patungo sa bukal ng Meribat Kadesh[^a] hanggang sa Lambak ng Egipto patungo sa Dagat ng Mediteraneo. 
+Ang hangganan sa timog ng lupaing para <i class="trans-change">sa lahi_ ni Gad ay magsisimula sa Tamar patungo sa bukal ng Meribat Kadesh hanggang sa Lambak ng Egipto patungo sa Dagat ng Mediteraneo. 
 
 
 

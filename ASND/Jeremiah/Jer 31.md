@@ -106,7 +106,7 @@ Sinabi pa ng Panginoon, "Sa araw na iyon, akoʼy magiging Dios ng buong Israel a
 
 
 
-Noong una,[^a] ang Panginoon ay nagpakita sa mga Israelita at nagsabi, "Inibig ko kayo ng walang hanggang pag-ibig. Sa kagandahang-loob ko, pinalapit ko kayo sa akin. 
+Noong una, ang Panginoon ay nagpakita sa mga Israelita at nagsabi, "Inibig ko kayo ng walang hanggang pag-ibig. Sa kagandahang-loob ko, pinalapit ko kayo sa akin. 
 
 
 
@@ -205,7 +205,7 @@ Muli kayong magtatanim ng ubas sa mga burol ng Samaria at pakikinabangan nʼyo a
 
 
 
-Darating ang araw na ang mga nagbabantay ng lungsod ay sisigaw doon sa kabundukan ng Efraim, 'Halikayo, pumunta tayo sa Jerusalem[^b] para sumamba sa Panginoon na ating Dios.' " 
+Darating ang araw na ang mga nagbabantay ng lungsod ay sisigaw doon sa kabundukan ng Efraim, 'Halikayo, pumunta tayo sa Jerusalem para sumamba sa Panginoon na ating Dios.' " 
 
 
 
@@ -238,7 +238,7 @@ Darating ang araw na ang mga nagbabantay ng lungsod ay sisigaw doon sa kabunduka
 
 
 
-Sinabi ng Panginoon, "Umawit kayo at humiyaw para sa Israel,[^c] ang bansang pinakadakila sa lahat ng bansa. Magpuri kayo at sumigaw, 'O Panginoon, iligtas mo ang mga mamamayan mo, ang mga natitirang buhay sa mga taga-Israel.' 
+Sinabi ng Panginoon, "Umawit kayo at humiyaw para sa Israel, ang bansang pinakadakila sa lahat ng bansa. Magpuri kayo at sumigaw, 'O Panginoon, iligtas mo ang mga mamamayan mo, ang mga natitirang buhay sa mga taga-Israel.' 
 
 
 
@@ -304,7 +304,7 @@ Makinig kayo! Ako ang kukuha sa kanila at titipunin ko sila mula sa hilaga at sa
 
 
 
-Mag-iiyakan sila sa tuwa at mananalangin habang dinadala ko sila pauwi. Dadalhin ko sila sa mga bukal, dadaan sila sa magandang daan at hindi sila matitisod. Sapagkat ako ang ama ng Israel; at si Efraim[^d] ang panganay kong anak. 
+Mag-iiyakan sila sa tuwa at mananalangin habang dinadala ko sila pauwi. Dadalhin ko sila sa mga bukal, dadaan sila sa magandang daan at hindi sila matitisod. Sapagkat ako ang ama ng Israel; at si Efraim ang panganay kong anak. 
 
 
 
@@ -766,7 +766,7 @@ Kailan pa kayo babalik sa akin, mga anak kong naliligaw? Gagawa ako ng bagong ba
 
 
 
-Sinabi ng Panginoong Makapangyarihan, ang Dios ng Israel, "Kapag naibalik ko na ang mga mamamayan ng Juda sa lupain nila mula sa pagkabihag,[^e] muli nilang sasabihin, 'Pagpalain nawa ng Panginoon ang banal na bundok <i class="trans-change">ng Jerusalem_ na tinitirhan niya.' 
+Sinabi ng Panginoong Makapangyarihan, ang Dios ng Israel, "Kapag naibalik ko na ang mga mamamayan ng Juda sa lupain nila mula sa pagkabihag, muli nilang sasabihin, 'Pagpalain nawa ng Panginoon ang banal na bundok <i class="trans-change">ng Jerusalem_ na tinitirhan niya.' 
 
 
 
@@ -832,7 +832,7 @@ Maninirahan ang mga tao sa Juda at sa mga bayan nito, pati na ang mga magbubukid
 
 
 
-Sapagkat pagpapahingahin ko ang mga napapagod at bubusugin ko ang mga nanghihina dahil sa gutom. <i class="trans-change">Kaya sasabihin ng mga tao,_[^f] 
+Sapagkat pagpapahingahin ko ang mga napapagod at bubusugin ko ang mga nanghihina dahil sa gutom. <i class="trans-change">Kaya sasabihin ng mga tao,_ 
 
 
 

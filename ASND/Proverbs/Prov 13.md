@@ -403,7 +403,7 @@ Ang kayamanang nakuha sa pandaraya ay madaling nawawala, ngunit ang kayamanang p
 
 
 
-Ang hangarin na naantala ay nakapanghihina, ngunit ang hangarin na natupad ay nakapagpapalakas at nakapagpapasigla.[^a] 
+Ang hangarin na naantala ay nakapanghihina, ngunit ang hangarin na natupad ay nakapagpapalakas at nakapagpapasigla. 
 
 
 

@@ -7,7 +7,7 @@ next: ['Mal 3']
 # Malachi 2
 
 ***
-###### 1-2 Sinabi pa ng Panginoong Makapangyarihan sa mga pari, "Ito ang aking babala sa inyo: Kung hindi ninyo pakikinggan ang sinasabi ko at hindi ninyo pahahalagahan ang pagpaparangal sa akin, susumpain ko kayo, pati na ang mga pagpapalang tinatanggap ninyo <i class="trans-change">bilang mga pari_.[^a] Sa katunayan, ginawa ko na iyan dahil hindi ninyo pinahahalagahan ang pagpaparangal sa akin. 
+###### 1-2 Sinabi pa ng Panginoong Makapangyarihan sa mga pari, "Ito ang aking babala sa inyo: Kung hindi ninyo pakikinggan ang sinasabi ko at hindi ninyo pahahalagahan ang pagpaparangal sa akin, susumpain ko kayo, pati na ang mga pagpapalang tinatanggap ninyo <i class="trans-change">bilang mga pari_. Sa katunayan, ginawa ko na iyan dahil hindi ninyo pinahahalagahan ang pagpaparangal sa akin. 
 
 
 
@@ -106,7 +106,7 @@ Dapat ninyong malaman na binabalaan ko kayo upang magpatuloy ang aking kasunduan
 
 
 
-Sa aking kasunduan kay Levi, ipinangako ko sa kanya ang buhay[^b] at kapayapaan, basta igalang lamang niya ako. At iyan nga ang kanyang ginawa. 
+Sa aking kasunduan kay Levi, ipinangako ko sa kanya ang buhay at kapayapaan, basta igalang lamang niya ako. At iyan nga ang kanyang ginawa. 
 
 
 
@@ -271,7 +271,7 @@ Kaya ipinahamak at ipinahiya ko kayo sa lahat ng tao dahil hindi ninyo sinunod a
 
 
 
-<i class="trans-change">Sinabi ni Malakias sa mga Israelita:_ Hindi baʼt iisa ang ating ama?[^c] At iisang Dios ang lumalang sa atin? Bakit hindi tayo nagiging tapat sa isaʼt isa? Sa ginagawa nating ito, binabalewala natin ang kasunduan <i class="trans-change">ng Dios_ sa ating mga ninuno. 
+<i class="trans-change">Sinabi ni Malakias sa mga Israelita:_ Hindi baʼt iisa ang ating ama? At iisang Dios ang lumalang sa atin? Bakit hindi tayo nagiging tapat sa isaʼt isa? Sa ginagawa nating ito, binabalewala natin ang kasunduan <i class="trans-change">ng Dios_ sa ating mga ninuno. 
 
 
 
@@ -304,7 +304,7 @@ Kaya ipinahamak at ipinahiya ko kayo sa lahat ng tao dahil hindi ninyo sinunod a
 
 
 
-Naging taksil ang mga taga-Juda. Gumawa sila ng kasuklam-suklam sa Jerusalem at sa <i class="trans-change">buong bansa ng_ Israel. Sapagkat dinungisan nila ang templo[^d] na mahal ng Panginoon sa pamamagitan ng pagpapakasal sa mga babaeng sumasamba sa ibang mga dios. 
+Naging taksil ang mga taga-Juda. Gumawa sila ng kasuklam-suklam sa Jerusalem at sa <i class="trans-change">buong bansa ng_ Israel. Sapagkat dinungisan nila ang templo na mahal ng Panginoon sa pamamagitan ng pagpapakasal sa mga babaeng sumasamba sa ibang mga dios. 
 
 
 
@@ -337,7 +337,7 @@ Naging taksil ang mga taga-Juda. Gumawa sila ng kasuklam-suklam sa Jerusalem at 
 
 
 
-Huwag na sanang ituring na kabilang sa mga mamamayan ng Israel ang mga taong gumagawa nito, pati na ang mga anak nila at mga apo,[^e] kahit na maghandog pa sila sa Panginoong Makapangyarihan. 
+Huwag na sanang ituring na kabilang sa mga mamamayan ng Israel ang mga taong gumagawa nito, pati na ang mga anak nila at mga apo, kahit na maghandog pa sila sa Panginoong Makapangyarihan. 
 
 
 
@@ -436,7 +436,7 @@ Itinatanong ninyo kung bakit? Sapagkat saksi ang Panginoon na nagtaksil kayo sa 
 
 
 
-Hindi baʼt pinag-isa kayo ng Dios sa katawan at sa espiritu para maging kanya?[^f] At bakit niya kayo pinag-isa? Sapagkat gusto niyang magkaroon kayo ng mga anak na makadios. Kaya siguraduhin ninyong hindi kayo magtataksil sa babaeng pinakasalan ninyo noong inyong kabataan. 
+Hindi baʼt pinag-isa kayo ng Dios sa katawan at sa espiritu para maging kanya? At bakit niya kayo pinag-isa? Sapagkat gusto niyang magkaroon kayo ng mga anak na makadios. Kaya siguraduhin ninyong hindi kayo magtataksil sa babaeng pinakasalan ninyo noong inyong kabataan. 
 
 
 

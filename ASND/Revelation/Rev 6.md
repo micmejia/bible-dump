@@ -271,7 +271,7 @@ Nang tanggalin ng Tupa ang ikaapat na selyo, narinig kong sinabi ng ikaapat na b
 
 
 
-At nakita ko ang isang maputlang kabayo. Ang pangalan ng nakasakay ay Kamatayan, at kasunod nito ang Hades.[^a] Binigyan sila ng kapangyarihang patayin ang ikaapat na bahagi ng <i class="trans-change">populasyon ng_ mundo sa pamamagitan ng digmaan, gutom, sakit at mababangis na hayop. 
+At nakita ko ang isang maputlang kabayo. Ang pangalan ng nakasakay ay Kamatayan, at kasunod nito ang Hades. Binigyan sila ng kapangyarihang patayin ang ikaapat na bahagi ng <i class="trans-change">populasyon ng_ mundo sa pamamagitan ng digmaan, gutom, sakit at mababangis na hayop. 
 
 
 

@@ -112,7 +112,7 @@ And he said, Blessed be the Lord, the God of Israel, Who has fulfilled with His 
 
 
 
-Since the day that I brought My people out of the land of Egypt, I chose no city among all the tribes of Israel to build a house in, that My Name might be there, [^a]neither chose I any man to be a ruler over My people Israel; 
+Since the day that I brought My people out of the land of Egypt, I chose no city among all the tribes of Israel to build a house in, that My Name might be there, neither chose I any man to be a ruler over My people Israel; 
 
 
 
@@ -889,4 +889,4 @@ So now arise, O Lord God, and come into Your resting place, You and the ark of Y
 
 
 
-O Lord God, [^b]turn not away the face of [me] Your anointed one; [earnestly] remember Your good deeds, mercy, _and_ steadfast love for David Your servant.
+O Lord God, turn not away the face of [me] Your anointed one; [earnestly] remember Your good deeds, mercy, _and_ steadfast love for David Your servant.

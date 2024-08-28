@@ -112,7 +112,7 @@ Behold, I have appointed him (Him) [David, as a representative of the Messiah, o
 
 
 
-Behold, you [^a][Israel] shall call nations that you know not, and nations that do not know you shall run to you because of the Lord your God, and of the Holy One of Israel, for He has glorified you. 
+Behold, you [Israel] shall call nations that you know not, and nations that do not know you shall run to you because of the Lord your God, and of the Holy One of Israel, for He has glorified you. 
 
 
 

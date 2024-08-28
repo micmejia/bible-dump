@@ -19,25 +19,25 @@ Now it came to pass in the eleventh year, in the third _month,_ on the first _da
 Indeed Assyria _was_ a cedar in Lebanon, With fine branches that shaded the forest, And of high stature; And its top was among the thick boughs. 
 
 ###### 4 
-The waters made it grow; Underground waters gave it height, With their rivers running around the place where it was planted, And sent out [^a]rivulets to all the trees of the field. 
+The waters made it grow; Underground waters gave it height, With their rivers running around the place where it was planted, And sent out rivulets to all the trees of the field. 
 
 ###### 5 
 'Therefore its height was exalted above all the trees of the field; Its boughs were multiplied, And its branches became long because of the abundance of water, As it sent them out. 
 
 ###### 6 
-All the birds of the heavens made their nests in its boughs; Under its branches all the beasts of the field brought forth their young; And in its shadow all great nations [^b]made their home. 
+All the birds of the heavens made their nests in its boughs; Under its branches all the beasts of the field brought forth their young; And in its shadow all great nations made their home. 
 
 ###### 7 
 'Thus it was beautiful in greatness and in the length of its branches, Because its roots reached to abundant waters. 
 
 ###### 8 
-The cedars in the garden of God could not hide it; The fir trees were not like its boughs, And the [^c]chestnut trees were not like its branches; No tree in the garden of God was like it in beauty. 
+The cedars in the garden of God could not hide it; The fir trees were not like its boughs, And the chestnut trees were not like its branches; No tree in the garden of God was like it in beauty. 
 
 ###### 9 
 I made it beautiful with a multitude of branches, So that all the trees of Eden envied it, That _were_ in the garden of God.' 
 
 ###### 10 
-"Therefore thus says the Lord God: 'Because you have increased in height, and it set its top among the thick boughs, and its heart was [^d]lifted up in its height, 
+"Therefore thus says the Lord God: 'Because you have increased in height, and it set its top among the thick boughs, and its heart was lifted up in its height, 
 
 ###### 11 
 therefore I will deliver it into the hand of the mighty one of the nations, and he shall surely deal with it; I have driven it out for its wickedness. 
@@ -52,10 +52,10 @@ And aliens, the most terrible of the nations, have cut it down and left it; its 
 So that no trees by the waters may ever again exalt themselves for their height, nor set their tops among the thick boughs, that no tree which drinks water may ever be high enough to reach up to them. 'For they have all been delivered to death, To the depths of the earth, Among the children of men who go down to the Pit.' 
 
 ###### 15 
-"Thus says the Lord God: 'In the day when it went down to [^e]hell, I caused mourning. I covered the deep because of it. I restrained its rivers, and the great waters were held back. I caused Lebanon to [^f]mourn for it, and all the trees of the field wilted because of it. 
+"Thus says the Lord God: 'In the day when it went down to hell, I caused mourning. I covered the deep because of it. I restrained its rivers, and the great waters were held back. I caused Lebanon to mourn for it, and all the trees of the field wilted because of it. 
 
 ###### 16 
-I made the nations shake at the sound of its fall, when I cast it down to [^g]hell together with those who descend into the Pit; and all the trees of Eden, the choice and best of Lebanon, all that drink water, were comforted in the depths of the earth. 
+I made the nations shake at the sound of its fall, when I cast it down to hell together with those who descend into the Pit; and all the trees of Eden, the choice and best of Lebanon, all that drink water, were comforted in the depths of the earth. 
 
 ###### 17 
 They also went down to hell with it, with those slain by the sword; and _those who were_ its _strong_ arm dwelt in its shadows among the nations. 

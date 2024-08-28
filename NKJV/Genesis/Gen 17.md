@@ -10,7 +10,7 @@ next: ['Gen 18']
 
 
 ###### 1 
-When Abram was ninety-nine years old, the Lord appeared to Abram and said to him, "I _am_ [^a]Almighty God; walk before Me and be blameless. 
+When Abram was ninety-nine years old, the Lord appeared to Abram and said to him, "I _am_ Almighty God; walk before Me and be blameless. 
 
 ###### 2 
 And I will make My covenant between Me and you, and will multiply you exceedingly." 
@@ -19,10 +19,10 @@ And I will make My covenant between Me and you, and will multiply you exceedingl
 Then Abram fell on his face, and God talked with him, saying: 
 
 ###### 4 
-"As for Me, behold, My covenant is with you, and you shall be a father of [^b]many nations. 
+"As for Me, behold, My covenant is with you, and you shall be a father of many nations. 
 
 ###### 5 
-No longer shall your name be called [^c]Abram, but your name shall be [^d]Abraham; for I have made you a father of [^e]many nations. 
+No longer shall your name be called Abram, but your name shall be Abraham; for I have made you a father of many nations. 
 
 ###### 6 
 I will make you exceedingly fruitful; and I will make nations of you, and kings shall come from you. 
@@ -31,7 +31,7 @@ I will make you exceedingly fruitful; and I will make nations of you, and kings 
 And I will establish My covenant between Me and you and your descendants after you in their generations, for an everlasting covenant, to be God to you and your descendants after you. 
 
 ###### 8 
-Also I give to you and your descendants after you the land in[^f] which you are a stranger, all the land of Canaan, as an everlasting possession; and I will be their God." 
+Also I give to you and your descendants after you the land in which you are a stranger, all the land of Canaan, as an everlasting possession; and I will be their God." 
 
 ###### 9 
 And God said to Abraham: "As for you, you shall keep My covenant, you and your descendants after you throughout their generations. 
@@ -52,7 +52,7 @@ He who is born in your house and he who is bought with your money must be circum
 And the uncircumcised male child, who is not circumcised in the flesh of his foreskin, that person shall be cut off from his people; he has broken My covenant." 
 
 ###### 15 
-Then God said to Abraham, "As for Sarai your wife, you shall not call her name Sarai, but [^g]Sarah _shall be_ her name. 
+Then God said to Abraham, "As for Sarai your wife, you shall not call her name Sarai, but Sarah _shall be_ her name. 
 
 ###### 16 
 And I will bless her and also give you a son by her; then I will bless her, and she shall be _a mother_ _of_ nations; kings of peoples shall be from her." 

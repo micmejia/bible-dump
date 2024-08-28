@@ -139,7 +139,7 @@ Sabihin mo sa lahat ng mahuhusay na mananahi na binigyan ko ng kakayahang manahi
 
 
 
-Ito ang mga damit na tatahiin nila: ang bulsa na nasa dibdib, ang espesyal na damit,[^a] ang damit-panlabas, ang damit-panloob na binurdahan, ang turban at ang sinturon. Itatahi rin nila ng banal na mga damit ang mga anak na lalaki ni Aaron para makapaglingkod sila sa akin bilang mga pari. 
+Ito ang mga damit na tatahiin nila: ang bulsa na nasa dibdib, ang espesyal na damit, ang damit-panlabas, ang damit-panloob na binurdahan, ang turban at ang sinturon. Itatahi rin nila ng banal na mga damit ang mga anak na lalaki ni Aaron para makapaglingkod sila sa akin bilang mga pari. 
 
 
 
@@ -304,7 +304,7 @@ Ang sinturon nito ay gawa sa pinong <i class="trans-change">telang_ linen na bin
 
 
 
-"Magpakuha ka ng dalawang batong onix at iukit mo rito ang mga pangalan ng mga anak na lalaki ni Jacob.[^b] 
+"Magpakuha ka ng dalawang batong onix at iukit mo rito ang mga pangalan ng mga anak na lalaki ni Jacob. 
 
 
 
@@ -502,7 +502,7 @@ palagyan mo ng dalawang mala-kwintas na tali na purong ginto para maikabit sa ma
 
 
 
-"Magpagawa ka ng bulsa sa dibdib na ginagamit sa pag-alam ng kalooban ng Panginoon.[^c] Kailangang maganda ang pagkakagawa nito, at ang tela nitoʼy kapareho ng tela ng espesyal na damit <i class="trans-change">ng mga pari_: pinong <i class="trans-change">telang_ linen na may lanang <i class="trans-change">kulay_ ginto, asul, kulay ube at pula. 
+"Magpagawa ka ng bulsa sa dibdib na ginagamit sa pag-alam ng kalooban ng Panginoon. Kailangang maganda ang pagkakagawa nito, at ang tela nitoʼy kapareho ng tela ng espesyal na damit <i class="trans-change">ng mga pari_: pinong <i class="trans-change">telang_ linen na may lanang <i class="trans-change">kulay_ ginto, asul, kulay ube at pula. 
 
 
 
@@ -997,7 +997,7 @@ Pagkatapos, talian ninyo ng asul na panali ang mga pang-ilalim na parang singsin
 
 
 
-Ilagay sa bulsa na nasa dibdib ang 'Urim' at 'Thummim'[^d] para naroon ito sa bulsa ni Aaron kapag pupunta siya sa aking presensya para malaman ang kalooban ko para sa mga Israelita. ## Ang Iba pang Damit ng mga Pari 
+Ilagay sa bulsa na nasa dibdib ang 'Urim' at 'Thummim' para naroon ito sa bulsa ni Aaron kapag pupunta siya sa aking presensya para malaman ang kalooban ko para sa mga Israelita. ## Ang Iba pang Damit ng mga Pari 
 
 
 
@@ -1294,7 +1294,7 @@ Magpatahi ka rin ng mga damit-panloob, mga sinturon, at mga turban para sa mga a
 
 
 
-"Ipasuot mo ang mga damit sa kapatid mong si Aaron at sa mga anak niyang lalaki, at pagkatapos, pahiran[^e] mo sila ng langis at ordinahan. Italaga mo sila sa akin para makapaghandog sila sa akin bilang mga pari. 
+"Ipasuot mo ang mga damit sa kapatid mong si Aaron at sa mga anak niyang lalaki, at pagkatapos, pahiran mo sila ng langis at ordinahan. Italaga mo sila sa akin para makapaghandog sila sa akin bilang mga pari. 
 
 
 

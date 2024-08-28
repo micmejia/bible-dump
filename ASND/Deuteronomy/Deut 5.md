@@ -73,7 +73,7 @@ Tinipon ni Moises ang lahat ng mga Israelita at sinabi sa kanila, "O mga Israeli
 
 
 
-Gumawa sa atin ng kasunduan ang Panginoon na ating Dios sa Bundok ng Sinai.[^a] 
+Gumawa sa atin ng kasunduan ang Panginoon na ating Dios sa Bundok ng Sinai. 
 
 
 

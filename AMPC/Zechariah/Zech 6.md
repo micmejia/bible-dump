@@ -280,7 +280,7 @@ And say to him, Thus says the Lord of hosts: [You, Joshua] behold (look at, keep
 
 
 
-Yes, [you are building a temple of the Lord, but] it is He Who shall build the [true] temple of the Lord, and He shall bear the honor _and_ glory [as of the only begotten of the Father] and shall sit and rule upon His throne. And He shall be a [^a]Priest upon His throne, and the counsel of peace shall be between the two [offices--Priest and King]. 
+Yes, [you are building a temple of the Lord, but] it is He Who shall build the [true] temple of the Lord, and He shall bear the honor _and_ glory [as of the only begotten of the Father] and shall sit and rule upon His throne. And He shall be a Priest upon His throne, and the counsel of peace shall be between the two [offices--Priest and King]. 
 
 
 

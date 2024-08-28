@@ -766,7 +766,7 @@ Pagkatapos, dinala nila si Jesus sa lugar na tinatawag na Golgota, na ang ibig s
 
 
 
-Pagdating nila roon, binigyan nila si Jesus ng alak na may halong mira,[^a] pero hindi niya ito ininom. 
+Pagdating nila roon, binigyan nila si Jesus ng alak na may halong mira, pero hindi niya ito ininom. 
 
 
 
@@ -1129,7 +1129,7 @@ Nang mag-alas dose na ng tanghali, dumilim ang buong lupain sa loob ng tatlong o
 
 
 
-Nang mag-alas tres na ng hapon, sumigaw si Jesus nang malakas, "Eloi, Eloi, lema sabachtani?" na ang ibig sabihin ay "Dios ko, Dios ko, bakit mo ako pinabayaan?"[^b] 
+Nang mag-alas tres na ng hapon, sumigaw si Jesus nang malakas, "Eloi, Eloi, lema sabachtani?" na ang ibig sabihin ay "Dios ko, Dios ko, bakit mo ako pinabayaan?" 
 
 
 

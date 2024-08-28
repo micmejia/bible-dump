@@ -90,7 +90,7 @@ Which He promised in advance [long ago] through His prophets in the sacred Scrip
 
 
 
-And [as to His divine nature] according to the Spirit of holiness was openly [^a]designated the Son of God in power [in a striking, triumphant and miraculous manner] by His resurrection from the dead, even Jesus Christ our Lord (the Messiah, the Anointed One). 
+And [as to His divine nature] according to the Spirit of holiness was openly designated the Son of God in power [in a striking, triumphant and miraculous manner] by His resurrection from the dead, even Jesus Christ our Lord (the Messiah, the Anointed One). 
 
 
 
@@ -174,7 +174,7 @@ To [you then] all God's beloved ones in Rome, called to be saints _and_ designat
 
 
 
-First, I thank my God through Jesus Christ for all of you, because [the report of] your faith is made known to all the world _and_ is [^b]commended everywhere. 
+First, I thank my God through Jesus Christ for all of you, because [the report of] your faith is made known to all the world _and_ is commended everywhere. 
 
 
 
@@ -447,7 +447,7 @@ For ever since the creation of the world His invisible nature _and_ attributes, 
 
 
 
-Because when they knew _and_ recognized Him as God, they did not honor _and_ glorify Him as God or give Him thanks. But instead they became futile _and_ [^c]godless in their thinking [with vain imaginings, foolish reasoning, and stupid speculations] and their senseless minds were darkened. 
+Because when they knew _and_ recognized Him as God, they did not honor _and_ glorify Him as God or give Him thanks. But instead they became futile _and_ godless in their thinking [with vain imaginings, foolish reasoning, and stupid speculations] and their senseless minds were darkened. 
 
 
 
@@ -573,7 +573,7 @@ For this reason God gave them over _and_ abandoned them to vile affections _and_
 
 
 
-And the men also turned from natural relations with women and were set ablaze (burning out, consumed) with lust for one another--men committing shameful acts with men and suffering in their own [^d]bodies _and_ personalities the inevitable consequences _and_ penalty of their wrong-doing _and_ going astray, which was [their] fitting retribution. 
+And the men also turned from natural relations with women and were set ablaze (burning out, consumed) with lust for one another--men committing shameful acts with men and suffering in their own bodies _and_ personalities the inevitable consequences _and_ penalty of their wrong-doing _and_ going astray, which was [their] fitting retribution. 
 
 
 

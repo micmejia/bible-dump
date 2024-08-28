@@ -40,10 +40,10 @@ For he and all who were with him were astonished at the catch of fish which they
 and so also _were_ James and John, the sons of Zebedee, who were partners with Simon. And Jesus said to Simon, "Do not be afraid. From now on you will catch men." 
 
 ###### 11 
-So when they had brought their boats to land, they [^a]forsook all and followed Him. ## Jesus Cleanses a Leper 
+So when they had brought their boats to land, they forsook all and followed Him. ## Jesus Cleanses a Leper 
 
 ###### 12 
-And it happened when He was in a certain city, that behold, a man who was full of leprosy saw Jesus; and he fell on _his_ face and [^b]implored Him, saying, "Lord, if You are willing, You can make me clean." 
+And it happened when He was in a certain city, that behold, a man who was full of leprosy saw Jesus; and he fell on _his_ face and implored Him, saying, "Lord, if You are willing, You can make me clean." 
 
 ###### 13 
 Then He put out _His_ hand and touched him, saying, "I am willing; be cleansed." Immediately the leprosy left him. 
@@ -58,7 +58,7 @@ However, the report went around concerning Him all the more; and great multitude
 So He Himself _often_ withdrew into the wilderness and prayed. ## Jesus Forgives and Heals a Paralytic 
 
 ###### 17 
-Now it happened on a certain day, as He was teaching, that there were Pharisees and teachers of the law sitting by, who had come out of every town of Galilee, Judea, and Jerusalem. And the power of the Lord was _present_ [^c]to heal them. 
+Now it happened on a certain day, as He was teaching, that there were Pharisees and teachers of the law sitting by, who had come out of every town of Galilee, Judea, and Jerusalem. And the power of the Lord was _present_ to heal them. 
 
 ###### 18 
 Then behold, men brought on a bed a man who was paralyzed, whom they sought to bring in and lay before Him. 
@@ -97,7 +97,7 @@ So he left all, rose up, and followed Him.
 Then Levi gave Him a great feast in his own house. And there were a great number of tax collectors and others who sat down with them. 
 
 ###### 30 
-[^d]And their scribes and the Pharisees [^e]complained against His disciples, saying, "Why do You eat and drink with tax collectors and sinners?" 
+And their scribes and the Pharisees complained against His disciples, saying, "Why do You eat and drink with tax collectors and sinners?" 
 
 ###### 31 
 Jesus answered and said to them, "Those who are well have no need of a physician, but those who are sick. 
@@ -106,7 +106,7 @@ Jesus answered and said to them, "Those who are well have no need of a physician
 I have not come to call _the_ righteous, but sinners, to repentance." ## Jesus Is Questioned About Fasting 
 
 ###### 33 
-Then they said to Him, "Why[^f] do the disciples of John fast often and make prayers, and likewise those of the Pharisees, but Yours eat and drink?" 
+Then they said to Him, "Why do the disciples of John fast often and make prayers, and likewise those of the Pharisees, but Yours eat and drink?" 
 
 ###### 34 
 And He said to them, "Can you make the friends of the bridegroom fast while the bridegroom is with them? 
@@ -115,13 +115,13 @@ And He said to them, "Can you make the friends of the bridegroom fast while the 
 But the days will come when the bridegroom will be taken away from them; then they will fast in those days." 
 
 ###### 36 
-Then He spoke a parable to them: "No one [^g]puts a piece from a new garment on an old one; otherwise the new makes a tear, and also the piece that was _taken_ out of the new does not match the old. 
+Then He spoke a parable to them: "No one puts a piece from a new garment on an old one; otherwise the new makes a tear, and also the piece that was _taken_ out of the new does not match the old. 
 
 ###### 37 
 And no one puts new wine into old wineskins; or else the new wine will burst the wineskins and be spilled, and the wineskins will be ruined. 
 
 ###### 38 
-But new wine must be put into new wineskins, [^h]and both are preserved. 
+But new wine must be put into new wineskins, and both are preserved. 
 
 ###### 39 
-And no one, having drunk old _wine,_ [^i]immediately desires new; for he says, 'The old is [^j]better.' "
+And no one, having drunk old _wine,_ immediately desires new; for he says, 'The old is better.' "

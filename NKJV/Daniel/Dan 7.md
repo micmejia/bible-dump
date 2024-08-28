@@ -10,7 +10,7 @@ next: ['Dan 8']
 
 
 ###### 1 
-In the first year of Belshazzar king of Babylon, Daniel [^a]had a dream and visions of his head _while_ on his bed. Then he wrote down the dream, telling [^b]the main facts. 
+In the first year of Belshazzar king of Babylon, Daniel had a dream and visions of his head _while_ on his bed. Then he wrote down the dream, telling the main facts. 
 
 ###### 2 
 Daniel spoke, saying, "I saw in my vision by night, and behold, the four winds of heaven were stirring up the Great Sea. 
@@ -31,16 +31,16 @@ The first _was_ like a lion, and had eagle's wings. I watched till its wings wer
 "After this I saw in the night visions, and behold, a fourth beast, dreadful and terrible, exceedingly strong. It had huge iron teeth; it was devouring, breaking in pieces, and trampling the residue with its feet. It _was_ different from all the beasts that _were_ before it, and it had ten horns. 
 
 ###### 8 
-I was considering the horns, and there was another horn, a little one, coming up among them, before whom three of the first horns were plucked out by the roots. And there, in this horn, _were_ eyes like the eyes of a man, and a mouth speaking [^c]pompous words. ## Vision of the Ancient of Days 
+I was considering the horns, and there was another horn, a little one, coming up among them, before whom three of the first horns were plucked out by the roots. And there, in this horn, _were_ eyes like the eyes of a man, and a mouth speaking pompous words. ## Vision of the Ancient of Days 
 
 ###### 9 
-"I watched till thrones were [^d]put in place, And the Ancient of Days was seated; His garment _was_ white as snow, And the hair of His head _was_ like pure wool. His throne _was_ a fiery flame, Its wheels a burning fire; 
+"I watched till thrones were put in place, And the Ancient of Days was seated; His garment _was_ white as snow, And the hair of His head _was_ like pure wool. His throne _was_ a fiery flame, Its wheels a burning fire; 
 
 ###### 10 
-A fiery stream issued And came forth from before Him. A thousand thousands ministered to Him; Ten thousand times ten thousand stood before Him. The [^e]court was seated, And the books were opened. 
+A fiery stream issued And came forth from before Him. A thousand thousands ministered to Him; Ten thousand times ten thousand stood before Him. The court was seated, And the books were opened. 
 
 ###### 11 
-"I watched then because of the sound of the [^f]pompous words which the horn was speaking; I watched till the beast was slain, and its body destroyed and given to the burning flame. 
+"I watched then because of the sound of the pompous words which the horn was speaking; I watched till the beast was slain, and its body destroyed and given to the burning flame. 
 
 ###### 12 
 As for the rest of the beasts, they had their dominion taken away, yet their lives were prolonged for a season and a time. 
@@ -52,13 +52,13 @@ As for the rest of the beasts, they had their dominion taken away, yet their liv
 Then to Him was given dominion and glory and a kingdom, That all peoples, nations, and languages should serve Him. His dominion _is_ an everlasting dominion, Which shall not pass away, And His kingdom _the one_ Which shall not be destroyed. ## Daniel's Visions Interpreted 
 
 ###### 15 
-"I, Daniel, was grieved in my spirit [^g]within _my_ body, and the visions of my head troubled me. 
+"I, Daniel, was grieved in my spirit within _my_ body, and the visions of my head troubled me. 
 
 ###### 16 
 I came near to one of those who stood by, and asked him the truth of all this. So he told me and made known to me the interpretation of these things: 
 
 ###### 17 
-'Those great beasts, which are four, _are_ four [^h]kings _which_ arise out of the earth. 
+'Those great beasts, which are four, _are_ four kings _which_ arise out of the earth. 
 
 ###### 18 
 But the saints of the Most High shall receive the kingdom, and possess the kingdom forever, even forever and ever.' 
@@ -67,7 +67,7 @@ But the saints of the Most High shall receive the kingdom, and possess the kingd
 "Then I wished to know the truth about the fourth beast, which was different from all the others, exceedingly dreadful, _with_ its teeth of iron and its nails of bronze, _which_ devoured, broke in pieces, and trampled the residue with its feet; 
 
 ###### 20 
-and the ten horns that _were_ on its head, and the other _horn_ which came up, before which three fell, namely, that horn which had eyes and a mouth which spoke [^i]pompous words, whose appearance _was_ greater than his fellows. 
+and the ten horns that _were_ on its head, and the other _horn_ which came up, before which three fell, namely, that horn which had eyes and a mouth which spoke pompous words, whose appearance _was_ greater than his fellows. 
 
 ###### 21 
 "I was watching; and the same horn was making war against the saints, and prevailing against them, 
@@ -82,7 +82,7 @@ until the Ancient of Days came, and a judgment was made _in favor_ of the saints
 The ten horns _are_ ten kings _Who_ shall arise from this kingdom. And another shall rise after them; He shall be different from the first _ones,_ And shall subdue three kings. 
 
 ###### 25 
-He shall speak _pompous_ words against the Most High, Shall persecute[^j] the saints of the Most High, And shall intend to change times and law. Then _the saints_ shall be given into his hand For a time and times and half a time. 
+He shall speak _pompous_ words against the Most High, Shall persecute the saints of the Most High, And shall intend to change times and law. Then _the saints_ shall be given into his hand For a time and times and half a time. 
 
 ###### 26 
 'But the court shall be seated, And they shall take away his dominion, To consume and destroy _it_ forever. 
@@ -91,4 +91,4 @@ He shall speak _pompous_ words against the Most High, Shall persecute[^j] the sa
 Then the kingdom and dominion, And the greatness of the kingdoms under the whole heaven, Shall be given to the people, the saints of the Most High. His kingdom _is_ an everlasting kingdom, And all dominions shall serve and obey Him.' 
 
 ###### 28 
-"This _is_ the end of the [^k]account. As for me, Daniel, my thoughts greatly troubled me, and my countenance changed; but I kept the matter in my heart."
+"This _is_ the end of the account. As for me, Daniel, my thoughts greatly troubled me, and my countenance changed; but I kept the matter in my heart."

@@ -271,7 +271,7 @@ Alalahanin ninyo na hindi dahil matuwid kayo kaya ibinibigay ng Panginoon na iny
 
 
 
-Kahit doon sa Bundok ng Sinai,[^a] ginalit ninyo ang Panginoon, kaya gusto na lang niya kayong patayin. 
+Kahit doon sa Bundok ng Sinai, ginalit ninyo ang Panginoon, kaya gusto na lang niya kayong patayin. 
 
 
 
@@ -535,7 +535,7 @@ Pabayaan mo akong puksain sila para hindi na sila maalala pa. Pagkatapos, gagawi
 
 
 
-At nakita ko ang pagkakasala nʼyo sa Panginoon na inyong Dios. Gumawa kayo ng dios-diosang guya.[^b] Napakadali ninyong tumalikod sa mga iniutos ng Panginoon sa inyo. 
+At nakita ko ang pagkakasala nʼyo sa Panginoon na inyong Dios. Gumawa kayo ng dios-diosang guya. Napakadali ninyong tumalikod sa mga iniutos ng Panginoon sa inyo. 
 
 
 

@@ -271,7 +271,7 @@ Sa wakas ay magiging payapa na rin ang buong mundo. At mag-aawitan ang mga tao s
 
 
 
-Magagalak pati ang mga puno ng sipres[^a] at sedro sa Lebanon dahil sa nangyari sa hari. Para silang tao na nagsasabi, 'Ngayong wala ka na, wala nang puputol sa amin.' 
+Magagalak pati ang mga puno ng sipres at sedro sa Lebanon dahil sa nangyari sa hari. Para silang tao na nagsasabi, 'Ngayong wala ka na, wala nang puputol sa amin.' 
 
 
 

@@ -154,7 +154,7 @@ Shall a trumpet be blown in the city and the people not be alarmed _and_ afraid?
 
 
 
-Surely the Lord God will do nothing [^a]without revealing His secret to His servants the prophets. 
+Surely the Lord God will do nothing without revealing His secret to His servants the prophets. 
 
 
 

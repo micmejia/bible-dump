@@ -10,10 +10,10 @@ next: ['Rev 17']
 
 
 ###### 1 
-Then I heard a loud voice from the temple saying to the seven angels, "Go and pour out the [^a]bowls of the wrath of God on the earth." ## First Bowl: Loathsome Sores 
+Then I heard a loud voice from the temple saying to the seven angels, "Go and pour out the bowls of the wrath of God on the earth." ## First Bowl: Loathsome Sores 
 
 ###### 2 
-So the first went and poured out his bowl upon the earth, and a [^b]foul and loathsome sore came upon the men who had the mark of the beast and those who worshiped his image. ## Second Bowl: The Sea Turns to Blood 
+So the first went and poured out his bowl upon the earth, and a foul and loathsome sore came upon the men who had the mark of the beast and those who worshiped his image. ## Second Bowl: The Sea Turns to Blood 
 
 ###### 3 
 Then the second angel poured out his bowl on the sea, and it became blood as of a dead _man;_ and every living creature in the sea died. ## Third Bowl: The Waters Turn to Blood 
@@ -22,13 +22,13 @@ Then the second angel poured out his bowl on the sea, and it became blood as of 
 Then the third angel poured out his bowl on the rivers and springs of water, and they became blood. 
 
 ###### 5 
-And I heard the angel of the waters saying: "You are righteous, [^c]O Lord, The One who is and who [^d]was and who is to be, Because You have judged these things. 
+And I heard the angel of the waters saying: "You are righteous, O Lord, The One who is and who was and who is to be, Because You have judged these things. 
 
 ###### 6 
-For they have shed the blood of saints and prophets, And You have given them blood to drink. [^e]For it is their just due." 
+For they have shed the blood of saints and prophets, And You have given them blood to drink. For it is their just due." 
 
 ###### 7 
-And I heard [^f]another from the altar saying, "Even so, Lord God Almighty, true and righteous _are_ Your judgments." ## Fourth Bowl: Men Are Scorched 
+And I heard another from the altar saying, "Even so, Lord God Almighty, true and righteous _are_ Your judgments." ## Fourth Bowl: Men Are Scorched 
 
 ###### 8 
 Then the fourth angel poured out his bowl on the sun, and power was given to him to scorch men with fire. 
@@ -49,13 +49,13 @@ Then the sixth angel poured out his bowl on the great river Euphrates, and its w
 And I saw three unclean spirits like frogs _coming_ out of the mouth of the dragon, out of the mouth of the beast, and out of the mouth of the false prophet. 
 
 ###### 14 
-For they are spirits of demons, performing signs, _which_ go out to the kings [^g]of the earth and of the whole world, to gather them to the battle of that great day of God Almighty. 
+For they are spirits of demons, performing signs, _which_ go out to the kings of the earth and of the whole world, to gather them to the battle of that great day of God Almighty. 
 
 ###### 15 
 "Behold, I am coming as a thief. Blessed _is_ he who watches, and keeps his garments, lest he walk naked and they see his shame." 
 
 ###### 16 
-And they gathered them together to the place called in Hebrew, [^h]Armageddon. ## Seventh Bowl: The Earth Utterly Shaken 
+And they gathered them together to the place called in Hebrew, Armageddon. ## Seventh Bowl: The Earth Utterly Shaken 
 
 ###### 17 
 Then the seventh angel poured out his bowl into the air, and a loud voice came out of the temple of heaven, from the throne, saying, "It is done!" 

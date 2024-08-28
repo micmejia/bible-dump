@@ -43,7 +43,7 @@ Then Joshua rose up early in the morning and mustered the people, and went up, h
 And all the people of war who _were_ with him went up and drew near; and they came before the city and camped on the north side of Ai. Now a valley _lay_ between them and Ai. 
 
 ###### 12 
-So he took about five thousand men and set them in ambush between Bethel and Ai, on the west side of [^a]the city. 
+So he took about five thousand men and set them in ambush between Bethel and Ai, on the west side of the city. 
 
 ###### 13 
 And when they had set the people, all the army that _was_ on the north of the city, and its rear guard on the west of the city, Joshua went that night into the midst of the valley. 

@@ -16,16 +16,16 @@ O Lord, You _are_ my God. I will exalt You, I will praise Your name, For You hav
 For You have made a city a ruin, A fortified city a ruin, A palace of foreigners to be a city no more; It will never be rebuilt. 
 
 ###### 3 
-Therefore the strong people will glorify You; The city of the [^a]terrible nations will fear You. 
+Therefore the strong people will glorify You; The city of the terrible nations will fear You. 
 
 ###### 4 
 For You have been a strength to the poor, A strength to the needy in his distress, A refuge from the storm, A shade from the heat; For the blast of the terrible ones _is_ as a storm _against_ the wall. 
 
 ###### 5 
-You will reduce the noise of aliens, As heat in a dry place; _As_ heat in the shadow of a cloud, The song of the terrible ones will be [^b]diminished. 
+You will reduce the noise of aliens, As heat in a dry place; _As_ heat in the shadow of a cloud, The song of the terrible ones will be diminished. 
 
 ###### 6 
-And in this mountain The Lord of hosts will make for all people A feast of [^c]choice pieces, A feast of [^d]wines on the lees, Of fat things full of marrow, Of well-refined wines on the lees. 
+And in this mountain The Lord of hosts will make for all people A feast of choice pieces, A feast of wines on the lees, Of fat things full of marrow, Of well-refined wines on the lees. 
 
 ###### 7 
 And He will destroy on this mountain The surface of the covering cast over all people, And the veil that is spread over all nations. 

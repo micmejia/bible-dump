@@ -364,7 +364,7 @@ But while he lingered, the men seized him and his wife and his two daughters by 
 
 
 
-And when they had brought them forth, they said, Escape for your life! Do not look behind you or stop anywhere in [^a]the whole valley; escape to the mountains [of Moab], lest you be consumed. 
+And when they had brought them forth, they said, Escape for your life! Do not look behind you or stop anywhere in the whole valley; escape to the mountains [of Moab], lest you be consumed. 
 
 
 
@@ -553,7 +553,7 @@ He overthrew, destroyed, _and_ ended those cities, and all the valley and all th
 
 
 
-But [Lot's] wife looked back from behind him, and she [^b]became a pillar of salt. 
+But [Lot's] wife looked back from behind him, and she became a pillar of salt. 
 
 
 
@@ -595,7 +595,7 @@ Abraham went up early the next morning to the place where he [only the day befor
 
 
 
-And he looked toward Sodom and Gomorrah, and toward all the land of the valley, and saw, and behold, the smoke of [^c]the country went up like the smoke of a furnace. 
+And he looked toward Sodom and Gomorrah, and toward all the land of the valley, and saw, and behold, the smoke of the country went up like the smoke of a furnace. 
 
 
 

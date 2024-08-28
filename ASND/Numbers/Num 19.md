@@ -73,7 +73,7 @@ Sinabi ng Panginoon kina Moises at Aaron,
 
 
 
-"Ito pa ang isang tuntunin na gusto kong tuparin ninyo: Sabihan ninyo ang mga Israelita na dalhan kayo ng isang pulang dumalagang baka na walang kapintasan at hindi pa nagagamit sa pag-aararo.[^a] 
+"Ito pa ang isang tuntunin na gusto kong tuparin ninyo: Sabihan ninyo ang mga Israelita na dalhan kayo ng isang pulang dumalagang baka na walang kapintasan at hindi pa nagagamit sa pag-aararo. 
 
 
 
@@ -436,7 +436,7 @@ Kailangang linisin niya ang kanyang sarili ng tubig na ginagamit sa paglilinis s
 
 
 
-Ang sinumang makakahipo sa bangkay na hindi naglinis ng kanyang sarili[^b] ay para na rin niyang dinungisan ang Tolda ng Panginoon. Kailangang huwag na ninyong ituring na kababayan ang taong iyon. Dahil hindi siya nawisikan ng tubig na ginagamit sa paglilinis, marumi pa rin siya. 
+Ang sinumang makakahipo sa bangkay na hindi naglinis ng kanyang sarili ay para na rin niyang dinungisan ang Tolda ng Panginoon. Kailangang huwag na ninyong ituring na kababayan ang taong iyon. Dahil hindi siya nawisikan ng tubig na ginagamit sa paglilinis, marumi pa rin siya. 
 
 
 

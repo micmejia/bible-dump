@@ -25,10 +25,10 @@ He said to them, "Thus and so Micah did for me. He has hired me, and I have beco
 So they said to him, "Please inquire of God, that we may know whether the journey on which we go will be prosperous." 
 
 ###### 6 
-And the priest said to them, "Go in peace. [^a]The presence of the Lord _be_ with you on your way." 
+And the priest said to them, "Go in peace. The presence of the Lord _be_ with you on your way." 
 
 ###### 7 
-So the five men departed and went to Laish. They saw the people who _were_ there, how they dwelt safely, in the manner of the Sidonians, quiet and secure. _There were_ no rulers in the land who might put _them_ to shame for anything. They _were_ far from the Sidonians, and they had no ties [^b]with anyone. 
+So the five men departed and went to Laish. They saw the people who _were_ there, how they dwelt safely, in the manner of the Sidonians, quiet and secure. _There were_ no rulers in the land who might put _them_ to shame for anything. They _were_ far from the Sidonians, and they had no ties with anyone. 
 
 ###### 8 
 Then _the spies_ came back to their brethren at Zorah and Eshtaol, and their brethren said to them, "What _is_ your _report?_" 
@@ -43,7 +43,7 @@ When you go, you will come to a secure people and a large land. For God has give
 And six hundred men of the family of the Danites went from there, from Zorah and Eshtaol, armed with weapons of war. 
 
 ###### 12 
-Then they went up and encamped in Kirjath Jearim in Judah. (Therefore they call that place Mahaneh Dan[^c] to this day. There _it is,_ west of Kirjath Jearim.) 
+Then they went up and encamped in Kirjath Jearim in Judah. (Therefore they call that place Mahaneh Dan to this day. There _it is,_ west of Kirjath Jearim.) 
 
 ###### 13 
 And they passed from there to the mountains of Ephraim, and came to the house of Micah. 
@@ -79,10 +79,10 @@ When they were a good way from the house of Micah, the men who _were_ in the hou
 And they called out to the children of Dan. So they turned around and said to Micah, "What ails you, that you have gathered such a company?" 
 
 ###### 24 
-So he said, "You have taken away my [^d]gods which I made, and the priest, and you have gone away. Now what more do I have? How can you say to me, 'What ails you?' " 
+So he said, "You have taken away my gods which I made, and the priest, and you have gone away. Now what more do I have? How can you say to me, 'What ails you?' " 
 
 ###### 25 
-And the children of Dan said to him, "Do not let your voice be heard among us, lest [^e]angry men fall upon you, and you lose your life, with the lives of your household!" 
+And the children of Dan said to him, "Do not let your voice be heard among us, lest angry men fall upon you, and you lose your life, with the lives of your household!" 
 
 ###### 26 
 Then the children of Dan went their way. And when Micah saw that they _were_ too strong for him, he turned and went back to his house. ## Danites Settle in Laish 
@@ -97,7 +97,7 @@ _There was_ no deliverer, because it _was_ far from Sidon, and they had no ties 
 And they called the name of the city Dan, after the name of Dan their father, who was born to Israel. However, the name of the city formerly _was_ Laish. 
 
 ###### 30 
-Then the children of Dan set up for themselves the carved image; and Jonathan the son of Gershom, the son of [^f]Manasseh, and his sons were priests to the tribe of Dan until the day of the captivity of the land. 
+Then the children of Dan set up for themselves the carved image; and Jonathan the son of Gershom, the son of Manasseh, and his sons were priests to the tribe of Dan until the day of the captivity of the land. 
 
 ###### 31 
 So they set up for themselves Micah's carved image which he made, all the time that the house of God was in Shiloh.

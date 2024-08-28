@@ -238,7 +238,7 @@ Ang Egipto ba? Ang bansang ito at ang hari nito ay parang nabaling tungkod na na
 
 
 
-Maaari ninyong sabihin na nagtitiwala kayo sa Panginoon na inyong Dios, pero hindi baʼt ikaw din Hezekia ang nagpagiba ng mga sambahan niya sa matataas na lugar[^a] pati ng mga altar nito. At sinabi mo pa sa mga nakatira sa Jerusalem at mga lungsod ng Juda na sumamba sila sa <i class="trans-change">nag-iisang_ altar doon sa Jerusalem?" 
+Maaari ninyong sabihin na nagtitiwala kayo sa Panginoon na inyong Dios, pero hindi baʼt ikaw din Hezekia ang nagpagiba ng mga sambahan niya sa matataas na lugar pati ng mga altar nito. At sinabi mo pa sa mga nakatira sa Jerusalem at mga lungsod ng Juda na sumamba sila sa <i class="trans-change">nag-iisang_ altar doon sa Jerusalem?" 
 
 
 

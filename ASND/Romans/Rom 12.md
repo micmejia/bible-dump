@@ -436,7 +436,7 @@ At dahil may pag-asa kayo sa buhay, magalak kayo. Magtiis kayo sa mga paghihirap
 
 
 
-Tulungan ninyo ang mga pinabanal[^a] <i class="trans-change">ng Dios_ na nangangailangan, at patuluyin ninyo sa inyong mga tahanan ang walang matutuluyan. 
+Tulungan ninyo ang mga pinabanal <i class="trans-change">ng Dios_ na nangangailangan, at patuluyin ninyo sa inyong mga tahanan ang walang matutuluyan. 
 
 
 
@@ -535,7 +535,7 @@ Makigalak kayo sa mga nagagalak, at makiramay kayo sa mga naghihinagpis.
 
 
 
-Mamuhay kayo nang mapayapa sa isaʼt isa.[^b] Huwag kayong magmataas, sa halip ay makipagkaibigan kayo sa mga taong mababa ang kalagayan. Huwag kayong magmarunong. 
+Mamuhay kayo nang mapayapa sa isaʼt isa. Huwag kayong magmataas, sa halip ay makipagkaibigan kayo sa mga taong mababa ang kalagayan. Huwag kayong magmarunong. 
 
 
 
@@ -634,7 +634,7 @@ Hanggaʼt maaari, mamuhay kayo nang mapayapa sa lahat ng tao.
 
 
 
-Mga minamahal, huwag kayong maghihiganti. Ipaubaya ninyo iyan <i class="trans-change">sa Dios_. Sapagkat sinabi ng Panginoon sa Kasulatan, "Ako ang maghihiganti; ako ang magpaparusa."[^c] 
+Mga minamahal, huwag kayong maghihiganti. Ipaubaya ninyo iyan <i class="trans-change">sa Dios_. Sapagkat sinabi ng Panginoon sa Kasulatan, "Ako ang maghihiganti; ako ang magpaparusa." 
 
 
 
@@ -667,7 +667,7 @@ Mga minamahal, huwag kayong maghihiganti. Ipaubaya ninyo iyan <i class="trans-ch
 
 
 
-Kaya, "Kung nagugutom ang iyong kaaway, pakainin mo. Kung siyaʼy nauuhaw, painumin mo. Dahil kapag ginawa mo ang mga ito, mapapahiya siya sa kanyang sarili."[^d] 
+Kaya, "Kung nagugutom ang iyong kaaway, pakainin mo. Kung siyaʼy nauuhaw, painumin mo. Dahil kapag ginawa mo ang mga ito, mapapahiya siya sa kanyang sarili." 
 
 
 

@@ -37,7 +37,7 @@ And in the morning the word of the Lord came to me, saying,
 "Son of man, has not the house of Israel, the rebellious house, said to you, 'What are you doing?' 
 
 ###### 10 
-Say to them, 'Thus says the Lord God: "This burden[^a] _concerns_ the prince in Jerusalem and all the house of Israel who are among them." ' 
+Say to them, 'Thus says the Lord God: "This burden _concerns_ the prince in Jerusalem and all the house of Israel who are among them." ' 
 
 ###### 11 
 Say, 'I _am_ a sign to you. As I have done, so shall it be done to them; they shall be carried away into captivity.' 
@@ -61,7 +61,7 @@ But I will spare a few of their men from the sword, from famine, and from pestil
 Moreover the word of the Lord came to me, saying, 
 
 ###### 18 
-"Son of man, eat your bread with [^b]quaking, and drink your water with trembling and anxiety. 
+"Son of man, eat your bread with quaking, and drink your water with trembling and anxiety. 
 
 ###### 19 
 And say to the people of the land, 'Thus says the Lord God to the inhabitants of Jerusalem _and_ to the land of Israel: "They shall eat their bread with anxiety, and drink their water with dread, so that her land may be emptied of all who are in it, because of the violence of all those who dwell in it. 
@@ -76,10 +76,10 @@ And the word of the Lord came to me, saying,
 "Son of man, what _is_ this proverb _that_ you _people_ have about the land of Israel, which says, 'The days are prolonged, and every vision fails'? 
 
 ###### 23 
-Tell them therefore, 'Thus says the Lord God: "I will lay this proverb to rest, and they shall no more use it as a proverb in Israel." ' But say to them, ' "The days are at hand, and the [^c]fulfillment of every vision. 
+Tell them therefore, 'Thus says the Lord God: "I will lay this proverb to rest, and they shall no more use it as a proverb in Israel." ' But say to them, ' "The days are at hand, and the fulfillment of every vision. 
 
 ###### 24 
-For no more shall there be any false[^d] vision or flattering divination within the house of Israel. 
+For no more shall there be any false vision or flattering divination within the house of Israel. 
 
 ###### 25 
 For I _am_ the Lord. I speak, and the word which I speak will come to pass; it will no more be postponed; for in your days, O rebellious house, I will say the word and perform it," says the Lord God.' " 

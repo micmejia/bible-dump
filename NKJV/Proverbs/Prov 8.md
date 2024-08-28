@@ -13,7 +13,7 @@ next: ['Prov 9']
 Does not wisdom cry out, And understanding lift up her voice? 
 
 ###### 2 
-She takes her stand on the top of the [^a]high hill, Beside the way, where the paths meet. 
+She takes her stand on the top of the high hill, Beside the way, where the paths meet. 
 
 ###### 3 
 She cries out by the gates, at the entry of the city, At the entrance of the doors: 
@@ -22,7 +22,7 @@ She cries out by the gates, at the entry of the city, At the entrance of the doo
 "To you, O men, I call, And my voice _is_ to the sons of men. 
 
 ###### 5 
-O you [^b]simple ones, understand prudence, And you fools, be of an understanding heart. 
+O you simple ones, understand prudence, And you fools, be of an understanding heart. 
 
 ###### 6 
 Listen, for I will speak of excellent things, And from the opening of my lips _will come_ right things; 
@@ -55,7 +55,7 @@ Counsel _is_ mine, and sound wisdom; I _am_ understanding, I have strength.
 By me kings reign, And rulers decree justice. 
 
 ###### 16 
-By me princes rule, and nobles, All the judges of [^c]the earth. 
+By me princes rule, and nobles, All the judges of the earth. 
 
 ###### 17 
 I love those who love me, And those who seek me diligently will find me. 
@@ -67,7 +67,7 @@ Riches and honor _are_ with me, Enduring riches and righteousness.
 My fruit _is_ better than gold, yes, than fine gold, And my revenue than choice silver. 
 
 ###### 20 
-I [^d]traverse the way of righteousness, In the midst of the paths of justice, 
+I traverse the way of righteousness, In the midst of the paths of justice, 
 
 ###### 21 
 That I may cause those who love me to inherit wealth, That I may fill their treasuries. 
@@ -85,7 +85,7 @@ When _there were_ no depths I was brought forth, When _there were_ no fountains 
 Before the mountains were settled, Before the hills, I was brought forth; 
 
 ###### 26 
-While as yet He had not made the earth or the [^e]fields, Or the [^f]primal dust of the world. 
+While as yet He had not made the earth or the fields, Or the primal dust of the world. 
 
 ###### 27 
 When He prepared the heavens, I _was_ there, When He drew a circle on the face of the deep, 
@@ -97,7 +97,7 @@ When He established the clouds above, When He strengthened the fountains of the 
 When He assigned to the sea its limit, So that the waters would not transgress His command, When He marked out the foundations of the earth, 
 
 ###### 30 
-Then I was beside Him _as_ [^g]a master craftsman; And I was daily _His_ delight, Rejoicing always before Him, 
+Then I was beside Him _as_ a master craftsman; And I was daily _His_ delight, Rejoicing always before Him, 
 
 ###### 31 
 Rejoicing in His inhabited world, And my delight _was_ with the sons of men. 

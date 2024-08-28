@@ -49,7 +49,7 @@ Now after this the Lord chose _and_ appointed seventy others and sent them out a
 
 
 
-And He said to them, The harvest indeed is abundant [[^a]there is much ripe grain], but the farmhands are few. Pray therefore the Lord of the harvest to send out laborers into His harvest. 
+And He said to them, The harvest indeed is abundant [there is much ripe grain], but the farmhands are few. Pray therefore the Lord of the harvest to send out laborers into His harvest. 
 
 
 
@@ -112,7 +112,7 @@ Carry no purse, no provisions bag, no [change of] sandals; refrain from [retardi
 
 
 
-Whatever house you enter, first say, Peace be to this household! [[^b]Freedom from all the distresses that result from sin be with this family]. 
+Whatever house you enter, first say, Peace be to this household! [Freedom from all the distresses that result from sin be with this family]. 
 
 
 
@@ -448,7 +448,7 @@ Nevertheless, do not rejoice at this, that the spirits are subject to you, but r
 
 
 
-In that same hour He rejoiced _and_ gloried in the Holy Spirit and said, I thank You, Father, Lord of heaven and earth, that You have concealed these things [relating to salvation] from the wise and understanding _and_ learned, and revealed them to babes (the childish, unskilled, and untaught). Yes, Father, for such was Your gracious [^c]will _and_ choice _and_ good pleasure. 
+In that same hour He rejoiced _and_ gloried in the Holy Spirit and said, I thank You, Father, Lord of heaven and earth, that You have concealed these things [relating to salvation] from the wise and understanding _and_ learned, and revealed them to babes (the childish, unskilled, and untaught). Yes, Father, for such was Your gracious will _and_ choice _and_ good pleasure. 
 
 
 
@@ -490,7 +490,7 @@ All things have been given over into My power by My Father; and no one knows Who
 
 
 
-Then turning to His disciples, He said privately, Blessed (happy, [^d]to be envied) are those whose eyes see what you see! 
+Then turning to His disciples, He said privately, Blessed (happy, to be envied) are those whose eyes see what you see! 
 
 
 
@@ -616,7 +616,7 @@ And Jesus said to him, You have answered correctly; do this, and you will live [
 
 
 
-And he, [^e]determined to acquit himself of reproach, said to Jesus, And who is my neighbor? 
+And he, determined to acquit himself of reproach, said to Jesus, And who is my neighbor? 
 
 
 
@@ -637,7 +637,7 @@ And he, [^e]determined to acquit himself of reproach, said to Jesus, And who is 
 
 
 
-Jesus, [^f]taking him up, replied, A certain man was going from Jerusalem down to Jericho, and he fell among robbers, who stripped him of his clothes and belongings and beat him and went their way, [[^g]unconcernedly] leaving him half dead, as it happened. 
+Jesus, taking him up, replied, A certain man was going from Jerusalem down to Jericho, and he fell among robbers, who stripped him of his clothes and belongings and beat him and went their way, [unconcernedly] leaving him half dead, as it happened. 
 
 
 
@@ -658,7 +658,7 @@ Jesus, [^f]taking him up, replied, A certain man was going from Jerusalem down t
 
 
 
-Now by [^h]coincidence a certain priest was going down along that road, and when he saw him, he passed by on the other side. 
+Now by coincidence a certain priest was going down along that road, and when he saw him, he passed by on the other side. 
 
 
 
@@ -889,4 +889,4 @@ But the Lord replied to her by saying, Martha, Martha, you are anxious and troub
 
 
 
-There is need of only one _or but_ [^i]_a few things_. Mary has chosen the good portion [[^j]that which is to her advantage], which shall not be taken away from her.
+There is need of only one _or but_ _a few things_. Mary has chosen the good portion [that which is to her advantage], which shall not be taken away from her.

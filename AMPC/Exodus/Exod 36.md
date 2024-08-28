@@ -406,7 +406,7 @@ He made fifty clasps of bronze to couple the tent together into one whole.
 
 
 
-He made a covering for the tent of [^a]rams' skins tanned red, and above it a covering of dolphin _or_ porpoise skins. 
+He made a covering for the tent of rams' skins tanned red, and above it a covering of dolphin _or_ porpoise skins. 
 
 
 

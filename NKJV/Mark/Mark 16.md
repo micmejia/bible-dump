@@ -27,13 +27,13 @@ And entering the tomb, they saw a young man clothed in a long white robe sitting
 But he said to them, "Do not be alarmed. You seek Jesus of Nazareth, who was crucified. He is risen! He is not here. See the place where they laid Him. 
 
 ###### 7 
-But go, tell His disciples--and Peter--that He is going [^a]before you into Galilee; there you will see Him, as He said to you." 
+But go, tell His disciples--and Peter--that He is going before you into Galilee; there you will see Him, as He said to you." 
 
 ###### 8 
-So they went out [^b]quickly and fled from the tomb, for they trembled and were amazed. And they said nothing to anyone, for they were afraid. ## Mary Magdalene Sees the Risen Lord 
+So they went out quickly and fled from the tomb, for they trembled and were amazed. And they said nothing to anyone, for they were afraid. ## Mary Magdalene Sees the Risen Lord 
 
 ###### 9 
-[^c]Now when _He_ rose early on the first _day_ of the week, He appeared first to Mary Magdalene, out of whom He had cast seven demons. 
+Now when _He_ rose early on the first _day_ of the week, He appeared first to Mary Magdalene, out of whom He had cast seven demons. 
 
 ###### 10 
 She went and told those who had been with Him, as they mourned and wept. 
@@ -57,10 +57,10 @@ And He said to them, "Go into all the world and preach the gospel to every creat
 He who believes and is baptized will be saved; but he who does not believe will be condemned. 
 
 ###### 17 
-And these signs will follow those who [^d]believe: In My name they will cast out demons; they will speak with new tongues; 
+And these signs will follow those who believe: In My name they will cast out demons; they will speak with new tongues; 
 
 ###### 18 
-they[^e] will take up serpents; and if they drink anything deadly, it will by no means hurt them; they will lay hands on the sick, and they will recover." ## Christ Ascends to God's Right Hand 
+they will take up serpents; and if they drink anything deadly, it will by no means hurt them; they will lay hands on the sick, and they will recover." ## Christ Ascends to God's Right Hand 
 
 ###### 19 
 So then, after the Lord had spoken to them, He was received up into heaven, and sat down at the right hand of God. 

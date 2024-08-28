@@ -865,7 +865,7 @@ Sabihin mo na <i class="trans-change">ako,_ ang Panginoong Dios ay nagsasabi: In
 
 
 
-Nagtitiwala kayo sa inyong espada,[^a] gumagawa kayo ng mga kasuklam-suklam na bagay, at nakikiapid. At sa kabila nitoʼy inaakala ninyong kayo ang magmamay-ari ng lupain? 
+Nagtitiwala kayo sa inyong espada, gumagawa kayo ng mga kasuklam-suklam na bagay, at nakikiapid. At sa kabila nitoʼy inaakala ninyong kayo ang magmamay-ari ng lupain? 
 
 
 

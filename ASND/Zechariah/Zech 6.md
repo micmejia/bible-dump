@@ -172,7 +172,7 @@ Tinanong ko ang anghel na nakikipag-usap sa akin, "Ano po ang ibig sabihin ng mg
 
 
 
-Sumagot ang anghel, "Ang mga iyan ay ang apat na hangin sa kalawakan[^a] na paparating mula sa presensya ng Panginoon ng buong mundo. 
+Sumagot ang anghel, "Ang mga iyan ay ang apat na hangin sa kalawakan na paparating mula sa presensya ng Panginoon ng buong mundo. 
 
 
 
@@ -205,7 +205,7 @@ Sumagot ang anghel, "Ang mga iyan ay ang apat na hangin sa kalawakan[^a] na papa
 
 
 
-Ang karwaheng hinihila ng mga itim na kabayo ay papunta sa isang lugar sa hilaga. Ang karwaheng hinihila ng mga puting kabayo ay papunta sa kanluran.[^b] At ang karwaheng hinihila ng mga batik-batik na kabayo ay papunta sa isang lugar sa timog." 
+Ang karwaheng hinihila ng mga itim na kabayo ay papunta sa isang lugar sa hilaga. Ang karwaheng hinihila ng mga puting kabayo ay papunta sa kanluran. At ang karwaheng hinihila ng mga batik-batik na kabayo ay papunta sa isang lugar sa timog." 
 
 
 
@@ -238,7 +238,7 @@ Ang karwaheng hinihila ng mga itim na kabayo ay papunta sa isang lugar sa hilaga
 
 
 
-Nang papalabas pa lang ang malalakas na kabayo, nagmamadali na silang lumibot sa buong mundo. Sinabi ng anghel[^c] <i class="trans-change">sa kanila_, "Sige, libutin na ninyo ang buong mundo." Kaya nilibot nila ang buong mundo. 
+Nang papalabas pa lang ang malalakas na kabayo, nagmamadali na silang lumibot sa buong mundo. Sinabi ng anghel <i class="trans-change">sa kanila_, "Sige, libutin na ninyo ang buong mundo." Kaya nilibot nila ang buong mundo. 
 
 
 
@@ -271,7 +271,7 @@ Nang papalabas pa lang ang malalakas na kabayo, nagmamadali na silang lumibot sa
 
 
 
-At malakas na sinabi ng Panginoon[^d] sa akin, "Tingnan mo ang mga kabayong patungo sa isang lugar sa hilaga. Sila ang magbibigay ng kapahingahan sa aking Espiritu sa dakong iyon sa hilaga." ## Ang Korona para kay Josue 
+At malakas na sinabi ng Panginoon sa akin, "Tingnan mo ang mga kabayong patungo sa isang lugar sa hilaga. Sila ang magbibigay ng kapahingahan sa aking Espiritu sa dakong iyon sa hilaga." ## Ang Korona para kay Josue 
 
 
 
@@ -370,7 +370,7 @@ Sinabi ng Panginoon sa akin,
 
 
 
-Ipagawa mong korona ang mga pilak at ginto, at isuot ito sa ulo ng punong pari na si Josue na anak ni Jehozadak. <sup class="versenum">12-13</sup>Sabihin mo sa kanya na <i class="trans-change">ako,_ ang Panginoong Makapangyarihan, ay nagsasabi, 'Ang taong tinatawag na Sanga ay lalago sa kalagayan niya ngayon,[^e] at itatayo niyang muli ang aking templo. Pararangalan siya bilang hari at mamamahala siya. Ang pari ay tatayo sa tabi ng kanyang trono[^f] at magkakaroon sila ng mabuting relasyon.' 
+Ipagawa mong korona ang mga pilak at ginto, at isuot ito sa ulo ng punong pari na si Josue na anak ni Jehozadak. <sup class="versenum">12-13</sup>Sabihin mo sa kanya na <i class="trans-change">ako,_ ang Panginoong Makapangyarihan, ay nagsasabi, 'Ang taong tinatawag na Sanga ay lalago sa kalagayan niya ngayon, at itatayo niyang muli ang aking templo. Pararangalan siya bilang hari at mamamahala siya. Ang pari ay tatayo sa tabi ng kanyang trono at magkakaroon sila ng mabuting relasyon.' 
 
 
 
@@ -403,7 +403,7 @@ Ipagawa mong korona ang mga pilak at ginto, at isuot ito sa ulo ng punong pari n
 
 
 
-Ang korona ay ilalagay sa aking templo bilang pag-alaala kina Heldai,[^g] Tobia, Jedaya, at Josia[^h] na anak ni Zefanias." 
+Ang korona ay ilalagay sa aking templo bilang pag-alaala kina Heldai, Tobia, Jedaya, at Josia na anak ni Zefanias." 
 
 
 

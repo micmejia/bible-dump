@@ -10,13 +10,13 @@ next: ['2 Tim 4']
 
 
 ###### 1 
-But know this, that in the last days [^a]perilous times will come: 
+But know this, that in the last days perilous times will come: 
 
 ###### 2 
 For men will be lovers of themselves, lovers of money, boasters, proud, blasphemers, disobedient to parents, unthankful, unholy, 
 
 ###### 3 
-unloving, [^b]unforgiving, slanderers, without self-control, brutal, despisers of good, 
+unloving, unforgiving, slanderers, without self-control, brutal, despisers of good, 
 
 ###### 4 
 traitors, headstrong, haughty, lovers of pleasure rather than lovers of God, 
@@ -55,7 +55,7 @@ But you must continue in the things which you have learned and been assured of, 
 and that from childhood you have known the Holy Scriptures, which are able to make you wise for salvation through faith which is in Christ Jesus. 
 
 ###### 16 
-All Scripture _is_ given by inspiration of God, and _is_ profitable for doctrine, for reproof, for correction, for [^c]instruction in righteousness, 
+All Scripture _is_ given by inspiration of God, and _is_ profitable for doctrine, for reproof, for correction, for instruction in righteousness, 
 
 ###### 17 
 that the man of God may be complete, thoroughly equipped for every good work.

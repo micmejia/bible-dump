@@ -403,7 +403,7 @@ Nang maitabi na nila ang kanilang mga bangka, iniwan nila ang lahat at sumunod k
 
 
 
-Isang araw, nang nasa isang bayan si Jesus, lumapit sa kanya ang isang lalaking may malubhang sakit sa balat,[^a] Lumuhod ito sa harap niya at nagmakaawa <i class="trans-change">na pagalingin siya_. Sinabi niya, "Panginoon, kung gusto nʼyo po, mapapagaling nʼyo ako upang maituring akong malinis." 
+Isang araw, nang nasa isang bayan si Jesus, lumapit sa kanya ang isang lalaking may malubhang sakit sa balat, Lumuhod ito sa harap niya at nagmakaawa <i class="trans-change">na pagalingin siya_. Sinabi niya, "Panginoon, kung gusto nʼyo po, mapapagaling nʼyo ako upang maituring akong malinis." 
 
 
 
@@ -667,7 +667,7 @@ Pero hindi sila makapasok dahil sa dami ng tao. Kaya umakyat sila sa bubong at b
 
 
 
-Nang makita ni Jesus ang kanilang pananampalataya, sinabi niya sa paralitiko, "Kaibigan,[^b] pinatawad na ang mga kasalanan mo." 
+Nang makita ni Jesus ang kanilang pananampalataya, sinabi niya sa paralitiko, "Kaibigan, pinatawad na ang mga kasalanan mo." 
 
 
 

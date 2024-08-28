@@ -238,7 +238,7 @@ Sinabi niya ito, hindi dahil nagmamalasakit siya sa mga mahihirap kundi dahil is
 
 
 
-Pero sinabi ni Jesus, "Hayaan mo siya. Ibinuhos niya ito sa katawan ko bilang paghahanda sa aking libing.[^a] 
+Pero sinabi ni Jesus, "Hayaan mo siya. Ibinuhos niya ito sa katawan ko bilang paghahanda sa aking libing. 
 
 
 
@@ -436,7 +436,7 @@ Kinabukasan, nabalitaan ng maraming tao na dumalo sa pista na papunta si Jesus s
 
 
 
-Kaya kumuha sila ng mga palaspas at sinalubong si Jesus. Sumisigaw sila, "Purihin ang Dios! Pagpalain ang dumarating na ito sa pangalan ng Panginoon.[^b] Pagpalain ang Hari ng Israel!" 
+Kaya kumuha sila ng mga palaspas at sinalubong si Jesus. Sumisigaw sila, "Purihin ang Dios! Pagpalain ang dumarating na ito sa pangalan ng Panginoon. Pagpalain ang Hari ng Israel!" 
 
 
 
@@ -502,7 +502,7 @@ Nakakita si Jesus ng isang batang asno at sinakyan niya ito, gaya ng nakasaad sa
 
 
 
-"Huwag kayong matakot, mga taga-Zion! Makinig kayo! Paparating na ang inyong Hari na nakasakay sa isang batang asno!"[^c] 
+"Huwag kayong matakot, mga taga-Zion! Makinig kayo! Paparating na ang inyong Hari na nakasakay sa isang batang asno!" 
 
 
 
@@ -634,7 +634,7 @@ Kaya marami ang sumalubong kay Jesus, dahil nabalitaan nila ang ginawa niyang hi
 
 
 
-Dahil dito, nag-usap-usap ang mga Pariseo, "Tingnan ninyo, sumusunod na sa kanya ang lahat ng tao,[^d] at wala tayong magawa!" ## May mga Griegong Naghanap kay Jesus 
+Dahil dito, nag-usap-usap ang mga Pariseo, "Tingnan ninyo, sumusunod na sa kanya ang lahat ng tao, at wala tayong magawa!" ## May mga Griegong Naghanap kay Jesus 
 
 
 
@@ -1129,7 +1129,7 @@ At kapag itinaas na ako mula sa lupa, ilalapit ko ang lahat ng tao sa akin."
 
 
 
-Sumagot ang mga tao sa kanya, "Nakasaad sa Kasulatan na ang Cristoʼy mabubuhay nang walang hanggan. Bakit mo sinasabing kailangang mamatay[^e] ang Anak ng Tao? Sino ba ang Anak ng Tao na tinutukoy mo?" 
+Sumagot ang mga tao sa kanya, "Nakasaad sa Kasulatan na ang Cristoʼy mabubuhay nang walang hanggan. Bakit mo sinasabing kailangang mamatay ang Anak ng Tao? Sino ba ang Anak ng Tao na tinutukoy mo?" 
 
 
 
@@ -1195,7 +1195,7 @@ Sumagot si Jesus, "Maikling panahon na lang ninyong makakasama ang ilaw. Kaya ma
 
 
 
-Kaya sumampalataya kayo sa <i class="trans-change">akin na siyang_ ilaw <i class="trans-change">ninyo_ habang narito pa <i class="trans-change">ako_, para maliwanagan ang isipan ninyo."[^f] Pagkasabi ni Jesus nito, umalis siya at nagtago sa kanila. ## Ayaw Manampalataya ng mga Judio kay Jesus 
+Kaya sumampalataya kayo sa <i class="trans-change">akin na siyang_ ilaw <i class="trans-change">ninyo_ habang narito pa <i class="trans-change">ako_, para maliwanagan ang isipan ninyo." Pagkasabi ni Jesus nito, umalis siya at nagtago sa kanila. ## Ayaw Manampalataya ng mga Judio kay Jesus 
 
 
 
@@ -1261,7 +1261,7 @@ Kahit na nakita ng mga Judio ang maraming himala na ginawa ni Jesus, hindi pa ri
 
 
 
-Sa ganoon, natupad ang sinabi ni Propeta Isaias, "Panginoon, sino ang naniwala sa aming mensahe? Sino sa mga pinakitaan mo ng iyong kapangyarihan ang sumampalataya?"[^g] 
+Sa ganoon, natupad ang sinabi ni Propeta Isaias, "Panginoon, sino ang naniwala sa aming mensahe? Sino sa mga pinakitaan mo ng iyong kapangyarihan ang sumampalataya?" 
 
 
 
@@ -1327,7 +1327,7 @@ Sinabi pa ni Isaias na kaya ayaw nilang sumampalataya ay dahil:
 
 
 
-"Binulag ng Dios ang kanilang mga mata upang hindi sila makakita, at isinara niya ang kanilang mga isip[^h] upang hindi sila makaunawa, dahil baka manumbalik pa sila sa kanya, at pagalingin niya sila."[^i] 
+"Binulag ng Dios ang kanilang mga mata upang hindi sila makakita, at isinara niya ang kanilang mga isip upang hindi sila makaunawa, dahil baka manumbalik pa sila sa kanya, at pagalingin niya sila." 
 
 
 

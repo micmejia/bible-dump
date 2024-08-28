@@ -40,7 +40,7 @@ next: ['Ezek 46']
 
 
 
-<i class="trans-change">Sinabi pa ng Panginoon_, "Kapag pinaghati-hati nʼyo na ang lupain para sa bawat lahi ng Israel, bigyan ninyo ako ng parte na 12 kilometro ang haba at sampung kilometro[^a] ang luwang. Ang lupaing ito ay ituturing na banal. 
+<i class="trans-change">Sinabi pa ng Panginoon_, "Kapag pinaghati-hati nʼyo na ang lupain para sa bawat lahi ng Israel, bigyan ninyo ako ng parte na 12 kilometro ang haba at sampung kilometro ang luwang. Ang lupaing ito ay ituturing na banal. 
 
 
 
@@ -106,7 +106,7 @@ Ang bahagi nito na 875 talampakan na parisukat ang siyang pagtatayuan ng templo,
 
 
 
-Ang natirang kalahati na 12 kilometro ang haba at 5 kilometro ang luwang ay para sa mga Levita. Sila ang magmamay-ari nito at dito sila maninirahan.[^b] 
+Ang natirang kalahati na 12 kilometro ang haba at 5 kilometro ang luwang ay para sa mga Levita. Sila ang magmamay-ari nito at dito sila maninirahan. 
 
 
 
@@ -304,7 +304,7 @@ Gamitin ninyo ang tamang timbangan, sukatan, o takalan.
 
 
 
-Ang 'homer'[^c] ang batayan ng panukat sa pagbilang. Ang isang 'homer' ay sampung 'epa'[^d] o sampung 'bat'.[^e] 
+Ang 'homer' ang batayan ng panukat sa pagbilang. Ang isang 'homer' ay sampung 'epa' o sampung 'bat'. 
 
 
 
@@ -337,7 +337,7 @@ Ang 'homer'[^c] ang batayan ng panukat sa pagbilang. Ang isang 'homer' ay sampun
 
 
 
-Ang 'shekel'[^f] ang siyang batayan ng pagsukat ng bigat. Ang isang 'shekel' ay 20 'gera', at ang 60 'shekel' ay isang 'mina'. ## Mga Natatanging Kaloob at mga Araw 
+Ang 'shekel' ang siyang batayan ng pagsukat ng bigat. Ang isang 'shekel' ay 20 'gera', at ang 60 'shekel' ay isang 'mina'. ## Mga Natatanging Kaloob at mga Araw 
 
 
 
@@ -370,7 +370,7 @@ Ang 'shekel'[^f] ang siyang batayan ng pagsukat ng bigat. Ang isang 'shekel' ay 
 
 
 
-"Ito ang mga kaloob na dapat ninyong ibigay <i class="trans-change">sa pinuno ng Israel_: isa sa bawat 60 ng inani ninyong trigo at sebada,[^g] 
+"Ito ang mga kaloob na dapat ninyong ibigay <i class="trans-change">sa pinuno ng Israel_: isa sa bawat 60 ng inani ninyong trigo at sebada, 
 
 
 
@@ -436,7 +436,7 @@ isa sa bawat 100 na bat ng langis <i class="trans-change">ng olibo_ (ang takalan
 
 
 
-at isang tupa sa bawat 200 ninyong hayop. Ang mga kaloob na itoʼy gagamiting handog para sa pagpaparangal sa akin, handog na sinusunog at handog para sa mabuting relasyon,[^h] upang mapatawad ang mga kasalanan ninyo. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito. 
+at isang tupa sa bawat 200 ninyong hayop. Ang mga kaloob na itoʼy gagamiting handog para sa pagpaparangal sa akin, handog na sinusunog at handog para sa mabuting relasyon, upang mapatawad ang mga kasalanan ninyo. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito. 
 
 
 

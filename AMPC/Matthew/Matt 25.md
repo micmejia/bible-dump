@@ -322,7 +322,7 @@ For it is like a man who was about to take a long journey, and he called his ser
 
 
 
-To one he gave five talents [probably about $5,000], to another two, to another one--to each in proportion to his own [^a]personal ability. Then he departed _and_ left the country. 
+To one he gave five talents [probably about $5,000], to another two, to another one--to each in proportion to his own personal ability. Then he departed _and_ left the country. 
 
 
 
@@ -448,7 +448,7 @@ And he who had received the five talents came and brought him five more, saying,
 
 
 
-His master said to him, Well done, you upright (honorable, [^b]admirable) and faithful servant! You have been faithful _and_ trustworthy over a little; I will put you in charge of much. Enter into _and_ share the joy (the delight, the [^c]blessedness) which your master enjoys. 
+His master said to him, Well done, you upright (honorable, admirable) and faithful servant! You have been faithful _and_ trustworthy over a little; I will put you in charge of much. Enter into _and_ share the joy (the delight, the blessedness) which your master enjoys. 
 
 
 
@@ -490,7 +490,7 @@ And he also who had the two talents came forward, saying, Master, you entrusted 
 
 
 
-His master said to him, Well done, you upright (honorable, [^d]admirable) and faithful servant! You have been faithful _and_ trustworthy over a little; I will put you in charge of much. Enter into _and_ share the joy (the delight, the [^e]blessedness) which your master enjoys. 
+His master said to him, Well done, you upright (honorable, admirable) and faithful servant! You have been faithful _and_ trustworthy over a little; I will put you in charge of much. Enter into _and_ share the joy (the delight, the blessedness) which your master enjoys. 
 
 
 
@@ -616,7 +616,7 @@ So take the talent away from him and give it to the one who has the ten talents.
 
 
 
-For to everyone who has will more be given, and he will be [^f]furnished richly so that he will have an abundance; but from the one who does not have, even what he does have will be taken away. 
+For to everyone who has will more be given, and he will be furnished richly so that he will have an abundance; but from the one who does not have, even what he does have will be taken away. 
 
 
 
@@ -721,7 +721,7 @@ And He will cause the sheep to stand at His right hand, but the goats at His lef
 
 
 
-Then the King will say to those at His right hand, Come, you blessed of My Father [you [^g]favored of God and appointed to eternal salvation], inherit (receive as your own) the kingdom prepared for you from the foundation of the world. 
+Then the King will say to those at His right hand, Come, you blessed of My Father [you favored of God and appointed to eternal salvation], inherit (receive as your own) the kingdom prepared for you from the foundation of the world. 
 
 
 
@@ -742,7 +742,7 @@ Then the King will say to those at His right hand, Come, you blessed of My Fathe
 
 
 
-For I was hungry and you gave Me food, I was thirsty and you gave Me something to drink, I was a stranger and you [^h]brought Me together with yourselves _and_ welcomed _and_ entertained _and_ [^i]lodged Me, 
+For I was hungry and you gave Me food, I was thirsty and you gave Me something to drink, I was a stranger and you brought Me together with yourselves _and_ welcomed _and_ entertained _and_ lodged Me, 
 
 
 
@@ -763,7 +763,7 @@ For I was hungry and you gave Me food, I was thirsty and you gave Me something t
 
 
 
-I was naked and you clothed Me, I was sick and you visited Me [^j]with help _and_ ministering care, I was in prison and you came to see Me. 
+I was naked and you clothed Me, I was sick and you visited Me with help _and_ ministering care, I was in prison and you came to see Me. 
 
 
 
@@ -847,7 +847,7 @@ And when did we see You sick or in prison and came to visit You?
 
 
 
-And the King will reply to them, Truly I tell you, in so far as you did it for one of the least [[^k]in the estimation of men] of these My brethren, you did it for Me. 
+And the King will reply to them, Truly I tell you, in so far as you did it for one of the least [in the estimation of men] of these My brethren, you did it for Me. 
 
 
 
@@ -910,7 +910,7 @@ For I was hungry and you gave Me no food, I was thirsty and you gave Me nothing 
 
 
 
-I was a stranger and you did not welcome Me _and_ entertain Me, I was naked and you did not clothe Me, I was sick and in prison and you did not visit Me [^l]with help _and_ ministering care. 
+I was a stranger and you did not welcome Me _and_ entertain Me, I was naked and you did not clothe Me, I was sick and in prison and you did not visit Me with help _and_ ministering care. 
 
 
 
@@ -952,7 +952,7 @@ Then they also [in their turn] will answer, Lord, when did we see You hungry or 
 
 
 
-And He will reply to them, Solemnly I declare to you, in so far as you failed to do it for the least [[^m]in the estimation of men] of these, you failed to do it for Me. 
+And He will reply to them, Solemnly I declare to you, in so far as you failed to do it for the least [in the estimation of men] of these, you failed to do it for Me. 
 
 
 

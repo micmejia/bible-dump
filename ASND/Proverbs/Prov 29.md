@@ -832,7 +832,7 @@ Ang taong nakikipagsabwatan sa magnanakaw ay ipinapahamak ang kanyang sarili. Ka
 
 
 
-Mapanganib kung tayo ay matatakutin.[^a] Ngunit kung magtitiwala tayo sa Panginoon ay ligtas tayo. 
+Mapanganib kung tayo ay matatakutin. Ngunit kung magtitiwala tayo sa Panginoon ay ligtas tayo. 
 
 
 

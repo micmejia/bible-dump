@@ -19,7 +19,7 @@ Then the Lord spoke to Moses, saying:
 Outside the veil of the Testimony, in the tabernacle of meeting, Aaron shall be in charge of it from evening until morning before the Lord continually; _it shall be_ a statute forever in your generations. 
 
 ###### 4 
-He shall [^a]be in charge of the lamps on the pure _gold_ lampstand before the Lord continually. ## The Bread of the Tabernacle 
+He shall be in charge of the lamps on the pure _gold_ lampstand before the Lord continually. ## The Bread of the Tabernacle 
 
 ###### 5 
 "And you shall take fine flour and bake twelve cakes with it. Two-tenths _of an ephah_ shall be in each cake. 
@@ -43,7 +43,7 @@ Now the son of an Israelite woman, whose father _was_ an Egyptian, went out amon
 And the Israelite woman's son blasphemed the name _of the Lord_ and cursed; and so they brought him to Moses. (His mother's name _was_ Shelomith the daughter of Dibri, of the tribe of Dan.) 
 
 ###### 12 
-Then they put him [^b]in custody, that [^c]the mind of the Lord might be shown to them. 
+Then they put him in custody, that the mind of the Lord might be shown to them. 
 
 ###### 13 
 And the Lord spoke to Moses, saying, 
@@ -52,7 +52,7 @@ And the Lord spoke to Moses, saying,
 "Take outside the camp him who has cursed; then let all who heard _him_ lay their hands on his head, and let all the congregation stone him. 
 
 ###### 15 
-"Then you shall speak to the children of Israel, saying: 'Whoever curses his God shall [^d]bear his sin. 
+"Then you shall speak to the children of Israel, saying: 'Whoever curses his God shall bear his sin. 
 
 ###### 16 
 And whoever blasphemes the name of the Lord shall surely be put to death. All the congregation shall certainly stone him, the stranger as well as him who is born in the land. When he blasphemes the name _of the Lord_, he shall be put to death. 
@@ -73,7 +73,7 @@ fracture for fracture, eye for eye, tooth for tooth; as he has caused disfigurem
 And whoever kills an animal shall restore it; but whoever kills a man shall be put to death. 
 
 ###### 22 
-You shall have the[^e] same law for the stranger and for one from your own country; for I _am_ the Lord your God.' " 
+You shall have the same law for the stranger and for one from your own country; for I _am_ the Lord your God.' " 
 
 ###### 23 
 Then Moses spoke to the children of Israel; and they took outside the camp him who had cursed, and stoned him with stones. So the children of Israel did as the Lord commanded Moses.

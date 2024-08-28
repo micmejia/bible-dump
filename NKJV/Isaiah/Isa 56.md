@@ -22,7 +22,7 @@ Do not let the son of the foreigner Who has joined himself to the Lord Speak, sa
 For thus says the Lord: "To the eunuchs who keep My Sabbaths, And choose what pleases Me, And hold fast My covenant, 
 
 ###### 5 
-Even to them I will give in My house And within My walls a place and a name Better than that of sons and daughters; I will give [^a]them an everlasting name That shall not be cut off. 
+Even to them I will give in My house And within My walls a place and a name Better than that of sons and daughters; I will give them an everlasting name That shall not be cut off. 
 
 ###### 6 
 "Also the sons of the foreigner Who join themselves to the Lord, to serve Him, And to love the name of the Lord, to be His servants-- Everyone who keeps from defiling the Sabbath, And holds fast My covenant-- 
@@ -37,10 +37,10 @@ The Lord God, who gathers the outcasts of Israel, says, "Yet I will gather to hi
 All you beasts of the field, come to devour, All you beasts in the forest. 
 
 ###### 10 
-His watchmen _are_ blind, They are all ignorant; They _are_ all dumb dogs, They cannot bark; [^b]Sleeping, lying down, loving to slumber. 
+His watchmen _are_ blind, They are all ignorant; They _are_ all dumb dogs, They cannot bark; Sleeping, lying down, loving to slumber. 
 
 ###### 11 
-Yes, _they are_ greedy[^c] dogs _Which_ never[^d] have enough. And they _are_ shepherds Who cannot understand; They all look to their own way, Every one for his own gain, From his _own_ territory. 
+Yes, _they are_ greedy dogs _Which_ never have enough. And they _are_ shepherds Who cannot understand; They all look to their own way, Every one for his own gain, From his _own_ territory. 
 
 ###### 12 
 "Come," _one says,_ "I will bring wine, And we will fill ourselves with intoxicating drink; Tomorrow will be as today, _And_ much more abundant."

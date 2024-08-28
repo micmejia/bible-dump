@@ -73,7 +73,7 @@ May apat na anak na lalaki si Isacar: sina Tola, Pua, Jashub at Shimron.
 
 
 
-Ang mga anak na lalaki ni Tola ay sina Uzi, Refaya, Jeriel, Jamai, Ibsam at Shemuel.[^a] Sila ang mga pinuno ng kanilang mga pamilya. Nang si David ang hari, 22,600 ang bilang ng mga lalaking handa sa paglilingkod sa militar mula sa mga angkan ni Tola. 
+Ang mga anak na lalaki ni Tola ay sina Uzi, Refaya, Jeriel, Jamai, Ibsam at Shemuel. Sila ang mga pinuno ng kanilang mga pamilya. Nang si David ang hari, 22,600 ang bilang ng mga lalaking handa sa paglilingkod sa militar mula sa mga angkan ni Tola. 
 
 
 
@@ -403,7 +403,7 @@ Sila ang mga pinuno ng kanilang mga pamilya. May 17,200 silang kalalakihang hand
 
 
 
-Ang mga anak na lalaki ni Ir ay sina Shupim at si Hupim,[^b] at ang anak ni Aher ay si Hushim. ## Ang Lahi ni Naftali 
+Ang mga anak na lalaki ni Ir ay sina Shupim at si Hupim, at ang anak ni Aher ay si Hushim. ## Ang Lahi ni Naftali 
 
 
 
@@ -436,7 +436,7 @@ Ang mga anak na lalaki ni Ir ay sina Shupim at si Hupim,[^b] at ang anak ni Aher
 
 
 
-Ang mga anak na lalaki ni Naftali kay Bilha ay sina Jahziel,[^c] Guni, Jezer at Shilem.[^d] 
+Ang mga anak na lalaki ni Naftali kay Bilha ay sina Jahziel, Guni, Jezer at Shilem. 
 
 
 
@@ -502,7 +502,7 @@ May <i class="trans-change">dalawang_ anak si Manase sa asawa niyang Arameo. Sil
 
 
 
-at siya ang naghanap ng asawa para kina Hupim at Shupim.[^e] May kapatid na babae si Makir na ang pangalan ay Maaca. Ang isa pang anak ni Makir ay si Zelofehad na ang mga anak ay puro babae. 
+at siya ang naghanap ng asawa para kina Hupim at Shupim. May kapatid na babae si Makir na ang pangalan ay Maaca. Ang isa pang anak ni Makir ay si Zelofehad na ang mga anak ay puro babae. 
 
 
 
@@ -766,7 +766,7 @@ Matagal ang paghihinagpis ni Efraim sa kanilang pagkamatay, at pumunta ang kanya
 
 
 
-Nang <i class="trans-change">bandang_ huli, sumiping si Efraim sa kanyang asawa; nabuntis ito at nanganak ng lalaki. Pinangalanan ni Efraim ang bata na Beria,[^f] dahil sa kasawiang dumating sa kanilang pamilya. 
+Nang <i class="trans-change">bandang_ huli, sumiping si Efraim sa kanyang asawa; nabuntis ito at nanganak ng lalaki. Pinangalanan ni Efraim ang bata na Beria, dahil sa kasawiang dumating sa kanilang pamilya. 
 
 
 
@@ -964,7 +964,7 @@ Ang lupaing natanggap at tinirhan ng lahi ni Efraim ay ang Betel at ang mga bary
 
 
 
-Ang lahi ni Manase ang nagmamay-ari sa mga lungsod ng Bet Shan, Taanac, Megido at Dor, pati sa mga baryo sa paligid nito. Sa mga bayang ito nakatira ang lahi ni Jose na anak ni Israel.[^g] ## Ang Lahi ni Asher 
+Ang lahi ni Manase ang nagmamay-ari sa mga lungsod ng Bet Shan, Taanac, Megido at Dor, pati sa mga baryo sa paligid nito. Sa mga bayang ito nakatira ang lahi ni Jose na anak ni Israel. ## Ang Lahi ni Asher 
 
 
 
@@ -1129,7 +1129,7 @@ Ang mga anak na lalaki ni Jaflet ay sina Pasac, Bimhal at Asvat.
 
 
 
-Ang mga anak na lalaki ni Shomer ay sina Ahi, Roga,[^h] Hubba at Aram. 
+Ang mga anak na lalaki ni Shomer ay sina Ahi, Roga, Hubba at Aram. 
 
 
 
@@ -1162,7 +1162,7 @@ Ang mga anak na lalaki ni Shomer ay sina Ahi, Roga,[^h] Hubba at Aram.
 
 
 
-Ang mga anak na lalaki ng kapatid ni Shomer na si Helem[^i] ay sina Zofa, Imna, Sheles at Amal. 
+Ang mga anak na lalaki ng kapatid ni Shomer na si Helem ay sina Zofa, Imna, Sheles at Amal. 
 
 
 
@@ -1228,7 +1228,7 @@ Ang mga anak na lalaki ni Zofa ay sina Shua, Harnefer, Shual, Beri, Imra,
 
 
 
-Bezer, Hod, Shama, Shilsha, Itran,[^j] at Beera. 
+Bezer, Hod, Shama, Shilsha, Itran, at Beera. 
 
 
 

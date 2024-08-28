@@ -535,7 +535,7 @@ Gagamitin niyang panangga sa dibdib ang katuwiran, at helmet ang kaligtasan. Isu
 
 
 
-Gagantihan niya ang kanyang mga kaaway ayon sa kanilang ginawa, pati na ang mga nasa malalayong lugar.[^a] Madadama nila ang kanyang galit. 
+Gagantihan niya ang kanyang mga kaaway ayon sa kanilang ginawa, pati na ang mga nasa malalayong lugar. Madadama nila ang kanyang galit. 
 
 
 
@@ -568,7 +568,7 @@ Gagantihan niya ang kanyang mga kaaway ayon sa kanilang ginawa, pati na ang mga 
 
 
 
-Igagalang siya at dadakilain kahit saan, dahil darating siya na parang rumaragasang tubig na pinapadpad ng napakalakas na hangin.[^b] 
+Igagalang siya at dadakilain kahit saan, dahil darating siya na parang rumaragasang tubig na pinapadpad ng napakalakas na hangin. 
 
 
 
@@ -601,7 +601,7 @@ Igagalang siya at dadakilain kahit saan, dahil darating siya na parang rumaragas
 
 
 
-Sinabi ng Panginoon, "Darating sa Zion[^c] ang magliligtas sa inyong mga lahi ni Jacob, at kanyang ililigtas ang mga nagsisisi sa kanilang mga kasalanan. 
+Sinabi ng Panginoon, "Darating sa Zion ang magliligtas sa inyong mga lahi ni Jacob, at kanyang ililigtas ang mga nagsisisi sa kanilang mga kasalanan. 
 
 
 

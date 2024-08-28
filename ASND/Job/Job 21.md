@@ -370,7 +370,7 @@ Walang tigil ang panganganak ng kanilang mga baka at hindi ito nakukunan.
 
 
 
-Marami silang anak, parang kawan ng tupa sa dami.[^a] Nagsasayawan sila, 
+Marami silang anak, parang kawan ng tupa sa dami. Nagsasayawan sila, 
 
 
 

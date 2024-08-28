@@ -112,4 +112,4 @@ Say this to him: The Lord speaks thus: Behold, what I have built I will break do
 
 
 
-And should you [^a]seek great things for yourself? Seek them not; for behold, I will bring evil upon all flesh, says the Lord, but your life I will give to you [as your only booty and] as a [snatched] prize of war wherever you go.
+And should you seek great things for yourself? Seek them not; for behold, I will bring evil upon all flesh, says the Lord, but your life I will give to you [as your only booty and] as a [snatched] prize of war wherever you go.

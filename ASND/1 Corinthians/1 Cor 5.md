@@ -73,7 +73,7 @@ May nagbalita sa akin na mayroon diyan sa inyo na gumagawa ng sekswal na imorali
 
 
 
-At <i class="trans-change">sa kabila ng pangyayaring ito,_ nagawa pa ninyong magyabang! Dapat sana ay naghinagpis kayo at pinalayas na ninyo sa inyong grupo ang gumagawa nito. ###### 3-4 Kahit na wala ako riyan ng personal, nariyan naman ako sa espiritu. At sa pangalan[^a] ng ating Panginoong Jesu-Cristo, hinatulan ko na ang taong iyon. Kaya sa pagtitipon ninyo, isipin ninyo na parang nariyan na rin ako sa espiritu. At sa kapangyarihang ibinigay sa atin ng ating Panginoong Jesu-Cristo, 
+At <i class="trans-change">sa kabila ng pangyayaring ito,_ nagawa pa ninyong magyabang! Dapat sana ay naghinagpis kayo at pinalayas na ninyo sa inyong grupo ang gumagawa nito. ###### 3-4 Kahit na wala ako riyan ng personal, nariyan naman ako sa espiritu. At sa pangalan ng ating Panginoong Jesu-Cristo, hinatulan ko na ang taong iyon. Kaya sa pagtitipon ninyo, isipin ninyo na parang nariyan na rin ako sa espiritu. At sa kapangyarihang ibinigay sa atin ng ating Panginoong Jesu-Cristo, 
 
 
 
@@ -238,7 +238,7 @@ Kaya ipagdiwang natin ang pistang ito hindi sa pamamagitan ng tinapay na may lum
 
 
 
-Sumulat ako sa inyo noon na huwag kayong makikisama sa mga imoral.[^b] 
+Sumulat ako sa inyo noon na huwag kayong makikisama sa mga imoral. 
 
 
 
@@ -304,4 +304,4 @@ Hindi ko tinutukoy dito ang mga taong hindi sumasampalataya sa Dios – ang mga 
 
 
 
-Ang tinutukoy ko na huwag ninyong pakikisamahan ay ang mga nagsasabing silaʼy mga kapatid <i class="trans-change">sa Panginoon_ pero mga imoral, sakim, sumasamba sa dios-diosan, mapanlait, lasenggo, at magnanakaw. Ni huwag kayong makisalo sa kanila sa pagkain. <sup class="versenum">12-13</sup>Kung sabagay, ano ba ang karapatan nating husgahan ang mga hindi mananampalataya? Ang Dios na ang huhusga sa kanila. Ngunit tungkulin ninyo na husgahan ang mga kapatid kung tama o mali ang kanilang ginagawa, <i class="trans-change">dahil sinasabi ng Kasulatan,_ "Paalisin ninyo sa inyong grupo ang taong masama."[^c]
+Ang tinutukoy ko na huwag ninyong pakikisamahan ay ang mga nagsasabing silaʼy mga kapatid <i class="trans-change">sa Panginoon_ pero mga imoral, sakim, sumasamba sa dios-diosan, mapanlait, lasenggo, at magnanakaw. Ni huwag kayong makisalo sa kanila sa pagkain. <sup class="versenum">12-13</sup>Kung sabagay, ano ba ang karapatan nating husgahan ang mga hindi mananampalataya? Ang Dios na ang huhusga sa kanila. Ngunit tungkulin ninyo na husgahan ang mga kapatid kung tama o mali ang kanilang ginagawa, <i class="trans-change">dahil sinasabi ng Kasulatan,_ "Paalisin ninyo sa inyong grupo ang taong masama."

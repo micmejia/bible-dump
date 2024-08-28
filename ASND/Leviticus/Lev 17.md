@@ -172,7 +172,7 @@ Iwiwisik ng pari ang dugo ng handog na hayop sa altar na pinaghahandugan para sa
 
 
 
-Kaya hindi na kayo dapat maghandog sa mga demonyo na mukhang kambing,[^a] dahil ito ang maglalayo sa inyo sa Panginoon. Dapat ninyong sundin ang tuntuning ito, kayo at ng susunod pang mga henerasyon magpakailanman. 
+Kaya hindi na kayo dapat maghandog sa mga demonyo na mukhang kambing, dahil ito ang maglalayo sa inyo sa Panginoon. Dapat ninyong sundin ang tuntuning ito, kayo at ng susunod pang mga henerasyon magpakailanman. 
 
 
 

@@ -34,7 +34,7 @@ Ain, Rimmon, Ether, and Ashan: four cities and their villages;
 and all the villages that _were_ all around these cities as far as Baalath Beer, Ramah of the South. This _was_ the inheritance of the tribe of the children of Simeon according to their families. 
 
 ###### 9 
-The inheritance of the children of Simeon _was included_ in the share of the children of Judah, for the share of the children of Judah was [^a]too much for them. Therefore the children of Simeon had _their_ inheritance within the inheritance of [^b]that people. ## The Land of Zebulun 
+The inheritance of the children of Simeon _was included_ in the share of the children of Judah, for the share of the children of Judah was too much for them. Therefore the children of Simeon had _their_ inheritance within the inheritance of that people. ## The Land of Zebulun 
 
 ###### 10 
 The third lot came out for the children of Zebulun according to their families, and the border of their inheritance was as far as Sarid. 
@@ -49,7 +49,7 @@ Then from Sarid it went eastward toward the sunrise along the border of Chisloth
 And from there it passed along on the east of Gath Hepher, toward Eth Kazin, and extended to Rimmon, which borders on Neah. 
 
 ###### 14 
-Then the border went around it on the north side of Hannathon, and [^c]it ended in the Valley of Jiphthah El. 
+Then the border went around it on the north side of Hannathon, and it ended in the Valley of Jiphthah El. 
 
 ###### 15 
 Included were Kattath, Nahallal, Shimron, Idalah, and Bethlehem: twelve cities with their villages. 
@@ -91,7 +91,7 @@ Alammelech, Amad, and Mishal; it reached to Mount Carmel westward, along _the Br
 It turned toward the sunrise to Beth Dagon; and it reached to Zebulun and to the Valley of Jiphthah El, then northward beyond Beth Emek and Neiel, bypassing Cabul _which was_ on the left, 
 
 ###### 28 
-including [^d]Ebron, Rehob, Hammon, and Kanah, as far as Greater Sidon. 
+including Ebron, Rehob, Hammon, and Kanah, as far as Greater Sidon. 
 
 ###### 29 
 And the border turned to Ramah and to the fortified city of Tyre; then the border turned to Hosah, and ended at the sea by the region of Achzib. 
@@ -106,7 +106,7 @@ This _was_ the inheritance of the tribe of the children of Asher according to th
 The sixth lot came out to the children of Naphtali, for the children of Naphtali according to their families. 
 
 ###### 33 
-And their border began at Heleph, enclosing the territory from the terebinth tree in Zaanannim, Adami Nekeb, and Jabneel, as far as Lakkum; [^e]it ended at the Jordan. 
+And their border began at Heleph, enclosing the territory from the terebinth tree in Zaanannim, Adami Nekeb, and Jabneel, as far as Lakkum; it ended at the Jordan. 
 
 ###### 34 
 From Heleph the border extended westward to Aznoth Tabor, and went out from there toward Hukkok; it adjoined Zebulun on the south side and Asher on the west side, and ended at Judah by the Jordan toward the sunrise. 
@@ -145,7 +145,7 @@ Eltekeh, Gibbethon, Baalath,
 Jehud, Bene Berak, Gath Rimmon, 
 
 ###### 46 
-Me Jarkon, and Rakkon, with the region [^f]near [^g]Joppa. 
+Me Jarkon, and Rakkon, with the region near Joppa. 
 
 ###### 47 
 And the border of the children of Dan went beyond these, because the children of Dan went up to fight against Leshem and took it; and they struck it with the edge of the sword, took possession of it, and dwelt in it. They called Leshem, Dan, after the name of Dan their father. 
@@ -154,7 +154,7 @@ And the border of the children of Dan went beyond these, because the children of
 This _is_ the inheritance of the tribe of the children of Dan according to their families, these cities with their villages. ## Joshua's Inheritance 
 
 ###### 49 
-When they had [^h]made an end of dividing the land as an inheritance according to their borders, the children of Israel gave an inheritance among them to Joshua the son of Nun. 
+When they had made an end of dividing the land as an inheritance according to their borders, the children of Israel gave an inheritance among them to Joshua the son of Nun. 
 
 ###### 50 
 According to the word of the Lord they gave him the city which he asked for, Timnath Serah in the mountains of Ephraim; and he built the city and dwelt in it. 

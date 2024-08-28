@@ -217,7 +217,7 @@ And they said to him, Where is Sarah your wife? And he said, [She is here] in th
 
 
 
-[^a][The Lord] said, I will surely return to you when the season comes round, and behold, Sarah your wife will have a son. And Sarah was listening _and_ heard it at the tent door which was behind Him. 
+[The Lord] said, I will surely return to you when the season comes round, and behold, Sarah your wife will have a son. And Sarah was listening _and_ heard it at the tent door which was behind Him. 
 
 
 
@@ -301,7 +301,7 @@ And the Lord asked Abraham, Why did Sarah laugh, saying, Shall I really bear a c
 
 
 
-Is anything too hard _or_ too wonderful [^b]for the Lord? At the appointed time, when the season [for her delivery] comes around, I will return to you and Sarah shall have borne a son. 
+Is anything too hard _or_ too wonderful for the Lord? At the appointed time, when the season [for her delivery] comes around, I will return to you and Sarah shall have borne a son. 
 
 
 

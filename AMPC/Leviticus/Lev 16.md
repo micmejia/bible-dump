@@ -49,7 +49,7 @@ After the death of Aaron's two sons, when they drew near before the Lord [offere
 
 
 
-The Lord said to Moses, Tell Aaron your brother he [^a]must not come at all times into the Holy of Holies within the veil before the mercy seat upon the ark, lest he die; for I will appear in the cloud on the mercy seat. 
+The Lord said to Moses, Tell Aaron your brother he must not come at all times into the Holy of Holies within the veil before the mercy seat upon the ark, lest he die; for I will appear in the cloud on the mercy seat. 
 
 
 
@@ -448,7 +448,7 @@ And when he has finished atoning for the Holy of Holies and the Tent of Meeting 
 
 
 
-And Aaron shall lay both his hands upon the head of the live goat and confess over him all the iniquities of the Israelites and all their transgressions, all their sins; and he shall put them upon the head of the goat [the sin-bearer], and send him away into the wilderness by the hand of a man [^b]who is timely (ready, fit). 
+And Aaron shall lay both his hands upon the head of the live goat and confess over him all the iniquities of the Israelites and all their transgressions, all their sins; and he shall put them upon the head of the goat [the sin-bearer], and send him away into the wilderness by the hand of a man who is timely (ready, fit). 
 
 
 

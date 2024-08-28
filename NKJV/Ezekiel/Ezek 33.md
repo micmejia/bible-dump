@@ -22,7 +22,7 @@ when he sees the sword coming upon the land, if he blows the trumpet and warns t
 then whoever hears the sound of the trumpet and does not take warning, if the sword comes and takes him away, his blood shall be on his _own_ head. 
 
 ###### 5 
-He heard the sound of the trumpet, but did not take warning; his blood shall be upon himself. But he who takes warning will [^a]save his life. 
+He heard the sound of the trumpet, but did not take warning; his blood shall be upon himself. But he who takes warning will save his life. 
 
 ###### 6 
 But if the watchman sees the sword coming and does not blow the trumpet, and the people are not warned, and the sword comes and takes _any_ person from among them, he is taken away in his iniquity; but his blood I will require at the watchman's hand.' 
@@ -34,10 +34,10 @@ But if the watchman sees the sword coming and does not blow the trumpet, and the
 When I say to the wicked, 'O wicked _man,_ you shall surely die!' and you do not speak to warn the wicked from his way, that wicked _man_ shall die in his iniquity; but his blood I will require at your hand. 
 
 ###### 9 
-Nevertheless if you warn the wicked to turn from his way, and he does not turn from his way, he shall die in his iniquity; but you have [^b]delivered your soul. 
+Nevertheless if you warn the wicked to turn from his way, and he does not turn from his way, he shall die in his iniquity; but you have delivered your soul. 
 
 ###### 10 
-"Therefore you, O son of man, say to the house of Israel: 'Thus you say, "If our transgressions and our sins _lie_ upon us, and we pine[^c] away in them, how can we then live?" ' 
+"Therefore you, O son of man, say to the house of Israel: 'Thus you say, "If our transgressions and our sins _lie_ upon us, and we pine away in them, how can we then live?" ' 
 
 ###### 11 
 Say to them: '_As_ I live,' says the Lord God, 'I have no pleasure in the death of the wicked, but that the wicked turn from his way and live. Turn, turn from your evil ways! For why should you die, O house of Israel?' ## The Fairness of God's Judgment 
@@ -49,7 +49,7 @@ Say to them: '_As_ I live,' says the Lord God, 'I have no pleasure in the death 
 When I say to the righteous _that_ he shall surely live, but he trusts in his own righteousness and commits iniquity, none of his righteous works shall be remembered; but because of the iniquity that he has committed, he shall die. 
 
 ###### 14 
-Again, when I say to the wicked, 'You shall surely die,' if he turns from his sin and does [^d]what is lawful and [^e]right, 
+Again, when I say to the wicked, 'You shall surely die,' if he turns from his sin and does what is lawful and right, 
 
 ###### 15 
 _if_ the wicked restores the pledge, gives back what he has stolen, and walks in the statutes of life without committing iniquity, he shall surely live; he shall not die. 
@@ -58,7 +58,7 @@ _if_ the wicked restores the pledge, gives back what he has stolen, and walks in
 None of his sins which he has committed shall be remembered against him; he has done what is lawful and right; he shall surely live. 
 
 ###### 17 
-"Yet the children of your people say, 'The way of the Lord is not [^f]fair.' But it is their way which is not fair! 
+"Yet the children of your people say, 'The way of the Lord is not fair.' But it is their way which is not fair! 
 
 ###### 18 
 When the righteous turns from his righteousness and commits iniquity, he shall die because of it. 
@@ -67,10 +67,10 @@ When the righteous turns from his righteousness and commits iniquity, he shall d
 But when the wicked turns from his wickedness and does what is lawful and right, he shall live because of it. 
 
 ###### 20 
-Yet you say, 'The way of the Lord is not [^g]fair.' O house of Israel, I will judge every one of you according to his own ways." ## The Fall of Jerusalem 
+Yet you say, 'The way of the Lord is not fair.' O house of Israel, I will judge every one of you according to his own ways." ## The Fall of Jerusalem 
 
 ###### 21 
-And it came to pass in the twelfth year of our captivity, in the tenth _month,_ on the fifth _day_ of the month, _that_ one who had escaped from Jerusalem came to me and said, "The city has been [^h]captured!" 
+And it came to pass in the twelfth year of our captivity, in the tenth _month,_ on the fifth _day_ of the month, _that_ one who had escaped from Jerusalem came to me and said, "The city has been captured!" 
 
 ###### 22 
 Now the hand of the Lord had been upon me the evening before the man came who had escaped. And He had opened my mouth; so when he came to me in the morning, my mouth was opened, and I was no longer mute. ## The Cause of Judah's Ruin 
@@ -91,7 +91,7 @@ You rely on your sword, you commit abominations, and you defile one another's wi
 "Say thus to them, 'Thus says the Lord God: "_As_ I live, surely those who _are_ in the ruins shall fall by the sword, and the one who _is_ in the open field I will give to the beasts to be devoured, and those who _are_ in the strongholds and caves shall die of the pestilence. 
 
 ###### 28 
-For I will make the land most desolate, [^i]her arrogant strength shall cease, and the mountains of Israel shall be so desolate that no one will pass through. 
+For I will make the land most desolate, her arrogant strength shall cease, and the mountains of Israel shall be so desolate that no one will pass through. 
 
 ###### 29 
 Then they shall know that I _am_ the Lord, when I have made the land most desolate because of all their abominations which they have committed." ' ## Hearing and Not Doing 

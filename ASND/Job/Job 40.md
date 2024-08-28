@@ -436,7 +436,7 @@ Kapag nagawa mo ang mga ito, ako ang pupuri sa iyo at tatanggapin ko na may kaka
 
 
 
-"Tingnan mo ang hayop na Behemot,[^a] nilalang ko rin siya katulad mo. Kumakain ito ng damo na tulad ng baka, 
+"Tingnan mo ang hayop na Behemot, nilalang ko rin siya katulad mo. Kumakain ito ng damo na tulad ng baka, 
 
 
 

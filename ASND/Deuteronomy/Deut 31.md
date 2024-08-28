@@ -667,7 +667,7 @@ Tatalikuran ko sila sa panahong iyon dahil sa lahat ng kasamaang ginawa nila at 
 
 
 
-Dadalhin ko sila sa maganda at masaganang lupain[^a] na ipinangako kong ibibigay sa kanilang mga ninuno. Doon, mabubuhay sila nang masagana; kakain sila ng lahat ng pagkaing gusto nila, at mabubusog sila. Pero tatalikuran nila ako at sasamba sa ibang mga dios. Susuwayin nila ang aking kasunduan. 
+Dadalhin ko sila sa maganda at masaganang lupain na ipinangako kong ibibigay sa kanilang mga ninuno. Doon, mabubuhay sila nang masagana; kakain sila ng lahat ng pagkaing gusto nila, at mabubusog sila. Pero tatalikuran nila ako at sasamba sa ibang mga dios. Susuwayin nila ang aking kasunduan. 
 
 
 

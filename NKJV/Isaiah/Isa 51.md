@@ -10,7 +10,7 @@ next: ['Isa 52']
 
 
 ###### 1 
-"Listen to Me, you who [^a]follow after righteousness, You who seek the Lord: Look to the rock _from which_ you were hewn, And to the hole of the pit _from which_ you were dug. 
+"Listen to Me, you who follow after righteousness, You who seek the Lord: Look to the rock _from which_ you were hewn, And to the hole of the pit _from which_ you were dug. 
 
 ###### 2 
 Look to Abraham your father, And to Sarah _who_ bore you; For I called him alone, And blessed him and increased him." 
@@ -25,7 +25,7 @@ For the Lord will comfort Zion, He will comfort all her waste places; He will ma
 My righteousness _is_ near, My salvation has gone forth, And My arms will judge the peoples; The coastlands will wait upon Me, And on My arm they will trust. 
 
 ###### 6 
-Lift up your eyes to the heavens, And look on the earth beneath. For the heavens will vanish away like smoke, The earth will grow old like a garment, And those who dwell in it will die in like manner; But My salvation will be forever, And My righteousness will not be [^b]abolished. 
+Lift up your eyes to the heavens, And look on the earth beneath. For the heavens will vanish away like smoke, The earth will grow old like a garment, And those who dwell in it will die in like manner; But My salvation will be forever, And My righteousness will not be abolished. 
 
 ###### 7 
 "Listen to Me, you who know righteousness, You people in whose heart _is_ My law: Do not fear the reproach of men, Nor be afraid of their insults. 
@@ -55,7 +55,7 @@ The captive exile hastens, that he may be loosed, That he should not die in the 
 But I _am_ the Lord your God, Who divided the sea whose waves roared-- The Lord of hosts _is_ His name. 
 
 ###### 16 
-And I have put My words in your mouth; I have covered you with the shadow of My hand, That I may [^c]plant the heavens, Lay the foundations of the earth, And say to Zion, 'You _are_ My people.' " ## God's Fury Removed 
+And I have put My words in your mouth; I have covered you with the shadow of My hand, That I may plant the heavens, Lay the foundations of the earth, And say to Zion, 'You _are_ My people.' " ## God's Fury Removed 
 
 ###### 17 
 Awake, awake! Stand up, O Jerusalem, You who have drunk at the hand of the Lord The cup of His fury; You have drunk the dregs of the cup of trembling, _And_ drained _it_ out. 
@@ -76,4 +76,4 @@ Therefore please hear this, you afflicted, And drunk but not with wine.
 Thus says your Lord, The Lord and your God, _Who_ pleads the cause of His people: "See, I have taken out of your hand The cup of trembling, The dregs of the cup of My fury; You shall no longer drink it. 
 
 ###### 23 
-But I will put it into the hand of those who afflict you, Who have said to [^d]you, 'Lie down, that we may walk over you.' And you have laid your body like the ground, And as the street, for those who walk over."
+But I will put it into the hand of those who afflict you, Who have said to you, 'Lie down, that we may walk over you.' And you have laid your body like the ground, And as the street, for those who walk over."

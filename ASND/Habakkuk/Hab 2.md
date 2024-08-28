@@ -139,7 +139,7 @@ Ito ang sagot ng Panginoon kay Habakuk: "Isulat nang malinaw sa sulatang bato an
 
 
 
-<i class="trans-change">Ito ang isulat mo:_ "Tingnan mo ang mga taong mapagmataas. Hindi matuwid ang kanilang pamumuhay. Pero ang taong matuwid ay mabubuhay dahil sa kanyang pananampalataya.[^a] 
+<i class="trans-change">Ito ang isulat mo:_ "Tingnan mo ang mga taong mapagmataas. Hindi matuwid ang kanilang pamumuhay. Pero ang taong matuwid ay mabubuhay dahil sa kanyang pananampalataya. 
 
 
 
@@ -172,7 +172,7 @@ Ito ang sagot ng Panginoon kay Habakuk: "Isulat nang malinaw sa sulatang bato an
 
 
 
-Ang totoo, hindi maaasahan ang kayamanan.[^b] At ang mga taong mapagmataas na sakim sa kayamanan ay laging balisa at walang kasiyahan. Tulad nilaʼy kamatayan na hindi makukuntento. Kaya binibihag nila ang maraming bansa. 
+Ang totoo, hindi maaasahan ang kayamanan. At ang mga taong mapagmataas na sakim sa kayamanan ay laging balisa at walang kasiyahan. Tulad nilaʼy kamatayan na hindi makukuntento. Kaya binibihag nila ang maraming bansa. 
 
 
 
@@ -238,7 +238,7 @@ Pero kukutyain sila ng mga bansang iyon sa pamamagitan ng mga salitang ito, " 'N
 
 
 
-Bigla nga kayong gagantihan ng mga bansang binihag ninyo,[^c] at dahil sa kanila ay manginginig kayo sa takot, at sila naman ang sasamsam ng inyong mga ari-arian. 
+Bigla nga kayong gagantihan ng mga bansang binihag ninyo, at dahil sa kanila ay manginginig kayo sa takot, at sila naman ang sasamsam ng inyong mga ari-arian. 
 
 
 
@@ -304,7 +304,7 @@ Dahil maraming bansa ang sinamsaman ninyo ng mga ari-arian, kayo naman ang sasam
 
 
 
-" 'Nakakaawa kayo, kayong nagpapatayo ng mga bahay[^d] sa pamamagitan ng perang nakuha ninyo sa masamang paraan. Pinatitibay ninyo ang inyong mga bahay upang makaligtas kayo kapag dumating ang kapahamakan. 
+" 'Nakakaawa kayo, kayong nagpapatayo ng mga bahay sa pamamagitan ng perang nakuha ninyo sa masamang paraan. Pinatitibay ninyo ang inyong mga bahay upang makaligtas kayo kapag dumating ang kapahamakan. 
 
 
 
@@ -337,7 +337,7 @@ Dahil maraming bansa ang sinamsaman ninyo ng mga ari-arian, kayo naman ang sasam
 
 
 
-Dahil sa pagpatay ninyo ng maraming tao, kayo rin ay papatayin at wawasakin ang inyong mga bahay.[^e] 
+Dahil sa pagpatay ninyo ng maraming tao, kayo rin ay papatayin at wawasakin ang inyong mga bahay. 
 
 
 
@@ -535,7 +535,7 @@ Sapagkat kung paanong ang karagatan ay puno ng tubig, ang <i class="trans-change
 
 
 
-Ngayon kayo naman ang ilalagay sa kahihiyan sa halip na parangalan, dahil parurusahan kayo ng Panginoon. Kayo naman ang paiinumin niya sa tasa ng kanyang galit, at kapag lasing na kayo, makikita ang inyong kahubaran[^f] at malalagay kayo sa kahihiyan. 
+Ngayon kayo naman ang ilalagay sa kahihiyan sa halip na parangalan, dahil parurusahan kayo ng Panginoon. Kayo naman ang paiinumin niya sa tasa ng kanyang galit, at kapag lasing na kayo, makikita ang inyong kahubaran at malalagay kayo sa kahihiyan. 
 
 
 

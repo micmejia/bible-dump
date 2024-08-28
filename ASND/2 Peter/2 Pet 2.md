@@ -469,7 +469,7 @@ Tinalikuran nila ang tamang daan, kaya sila naligaw. Sinunod nila ang halimbawa 
 
 
 
-At dahil nilabag niya ang utos ng Dios, sinumbatan siya ng asno[^a] niyang nakapagsalita na parang tao upang mapigilan siya sa kabaliwan niya. 
+At dahil nilabag niya ang utos ng Dios, sinumbatan siya ng asno niyang nakapagsalita na parang tao upang mapigilan siya sa kabaliwan niya. 
 
 
 
@@ -667,4 +667,4 @@ Mas mabuti pang hindi na nila natagpuan ang landas patungo sa matuwid na pamumuh
 
 
 
-Bagay sa kanila ang kasabihan, "Ang asoʼy kumakain ng suka niya."[^b] At, "Ang baboy, paliguan man ay babalik din sa kanyang lubluban."
+Bagay sa kanila ang kasabihan, "Ang asoʼy kumakain ng suka niya." At, "Ang baboy, paliguan man ay babalik din sa kanyang lubluban."

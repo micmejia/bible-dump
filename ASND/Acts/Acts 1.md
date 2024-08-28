@@ -138,7 +138,7 @@ Nagbautismo si Juan sa tubig, ngunit makalipas lang ang ilang araw ay babautismu
 
 
 
-Minsan nang nagtitipon sila, tinanong nila si Jesus, "Panginoon, ito na po ba ang panahon na ibabalik ninyo ang kaharian ng Israel?"[^a] 
+Minsan nang nagtitipon sila, tinanong nila si Jesus, "Panginoon, ito na po ba ang panahon na ibabalik ninyo ang kaharian ng Israel?" 
 
 
 
@@ -369,7 +369,7 @@ Pagkatapos noon, bumalik ang mga apostol sa Jerusalem galing sa Bundok ng mga Ol
 
 
 
-Pagdating nila sa Jerusalem, dumiretso sila sa kwarto na nasa itaas ng bahay na tinutuluyan nila. Sila ay sina Pedro, Juan, Santiago, Andres, Felipe, Tomas, Bartolome, Mateo, Santiago na anak ni Alfeus, Simon na makabayan,[^b] at si Judas na anak ni Santiago. 
+Pagdating nila sa Jerusalem, dumiretso sila sa kwarto na nasa itaas ng bahay na tinutuluyan nila. Sila ay sina Pedro, Juan, Santiago, Andres, Felipe, Tomas, Bartolome, Mateo, Santiago na anak ni Alfeus, Simon na makabayan, at si Judas na anak ni Santiago. 
 
 
 
@@ -600,7 +600,7 @@ Nalaman ito ng lahat ng tao sa Jerusalem, kaya tinawag nila ang lugar na iyon na
 
 
 
-<i class="trans-change">Sinabi pa ni Pedro,_ "Nasusulat sa mga Salmo, 'Pabayaan na lang ang kanyang tirahan, at dapat walang tumira roon.'[^c] At <i class="trans-change">nasusulat din_, 'Ibibigay na lang sa iba ang kanyang tungkulin.' <sup class="versenum">21-22</sup>"Kaya kinakailangan nating pumili ng tao <i class="trans-change">na ipapalit kay Judas, na_ kasama nating magpapatotoo sa muling pagkabuhay ni Jesus. Dapat isa siya sa mga kasama natin na naglingkod sa Panginoong Jesus noong nandito pa siya sa mundo, mula noong nagbabautismo si Juan hanggang sa panahon na dinala si Jesus sa langit." 
+<i class="trans-change">Sinabi pa ni Pedro,_ "Nasusulat sa mga Salmo, 'Pabayaan na lang ang kanyang tirahan, at dapat walang tumira roon.' At <i class="trans-change">nasusulat din_, 'Ibibigay na lang sa iba ang kanyang tungkulin.' <sup class="versenum">21-22</sup>"Kaya kinakailangan nating pumili ng tao <i class="trans-change">na ipapalit kay Judas, na_ kasama nating magpapatotoo sa muling pagkabuhay ni Jesus. Dapat isa siya sa mga kasama natin na naglingkod sa Panginoong Jesus noong nandito pa siya sa mundo, mula noong nagbabautismo si Juan hanggang sa panahon na dinala si Jesus sa langit." 
 
 
 

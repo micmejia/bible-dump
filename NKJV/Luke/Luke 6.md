@@ -10,7 +10,7 @@ next: ['Luke 7']
 
 
 ###### 1 
-Now it happened [^a]on the second Sabbath after the first that He went through the grainfields. And His disciples plucked the heads of grain and ate _them,_ rubbing _them_ in _their_ hands. 
+Now it happened on the second Sabbath after the first that He went through the grainfields. And His disciples plucked the heads of grain and ate _them,_ rubbing _them_ in _their_ hands. 
 
 ###### 2 
 And some of the Pharisees said to them, "Why are you doing what is not lawful to do on the Sabbath?" 
@@ -34,10 +34,10 @@ So the scribes and Pharisees watched Him closely, whether He would heal on the S
 But He knew their thoughts, and said to the man who had the withered hand, "Arise and stand here." And he arose and stood. 
 
 ###### 9 
-Then Jesus said to them, "I will ask you one thing: Is it lawful on the Sabbath to do good or to do evil, to save life or [^b]to destroy?" 
+Then Jesus said to them, "I will ask you one thing: Is it lawful on the Sabbath to do good or to do evil, to save life or to destroy?" 
 
 ###### 10 
-And when He had looked around at them all, He said to [^c]the man, "Stretch out your hand." And he did so, and his hand was restored [^d]as whole as the other. 
+And when He had looked around at them all, He said to the man, "Stretch out your hand." And he did so, and his hand was restored as whole as the other. 
 
 ###### 11 
 But they were filled with rage, and discussed with one another what they might do to Jesus. ## The Twelve Apostles 
@@ -70,7 +70,7 @@ And the whole multitude sought to touch Him, for power went out from Him and hea
 Then He lifted up His eyes toward His disciples, and said: "Blessed _are you_ poor, For yours is the kingdom of God. 
 
 ###### 21 
-Blessed _are you_ who hunger now, For you shall be filled.[^e] Blessed _are you_ who weep now, For you shall laugh. 
+Blessed _are you_ who hunger now, For you shall be filled. Blessed _are you_ who weep now, For you shall laugh. 
 
 ###### 22 
 Blessed are you when men hate you, And when they exclude you, And revile _you,_ and cast out your name as evil, For the Son of Man's sake. 
@@ -85,7 +85,7 @@ Rejoice in that day and leap for joy! For indeed your reward _is_ great in heave
 Woe to you who are full, For you shall hunger. Woe to you who laugh now, For you shall mourn and weep. 
 
 ###### 26 
-Woe [^f]to you when [^g]all men speak well of you, For so did their fathers to the false prophets. ## Love Your Enemies 
+Woe to you when all men speak well of you, For so did their fathers to the false prophets. ## Love Your Enemies 
 
 ###### 27 
 "But I say to you who hear: Love your enemies, do good to those who hate you, 
@@ -112,7 +112,7 @@ And if you do good to those who do good to you, what credit is that to you? For 
 And if you lend _to those_ from whom you hope to receive back, what credit is that to you? For even sinners lend to sinners to receive as much back. 
 
 ###### 35 
-But love your enemies, do good, and lend, [^h]hoping for nothing in return; and your reward will be great, and you will be sons of the Most High. For He is kind to the unthankful and evil. 
+But love your enemies, do good, and lend, hoping for nothing in return; and your reward will be great, and you will be sons of the Most High. For He is kind to the unthankful and evil. 
 
 ###### 36 
 Therefore be merciful, just as your Father also is merciful. ## Do Not Judge 
@@ -142,7 +142,7 @@ Or how can you say to your brother, 'Brother, let me remove the speck that _is_ 
 For every tree is known by its own fruit. For _men_ do not gather figs from thorns, nor do they gather grapes from a bramble bush. 
 
 ###### 45 
-A good man out of the good treasure of his heart brings forth good; and an evil man out of the evil [^i]treasure of his heart brings forth evil. For out of the abundance of the heart his mouth speaks. ## Build on the Rock 
+A good man out of the good treasure of his heart brings forth good; and an evil man out of the evil treasure of his heart brings forth evil. For out of the abundance of the heart his mouth speaks. ## Build on the Rock 
 
 ###### 46 
 "But why do you call Me 'Lord, Lord,' and not do the things which I say? 
@@ -151,7 +151,7 @@ A good man out of the good treasure of his heart brings forth good; and an evil 
 Whoever comes to Me, and hears My sayings and does them, I will show you whom he is like: 
 
 ###### 48 
-He is like a man building a house, who dug deep and laid the foundation on the rock. And when the flood arose, the stream beat vehemently against that house, and could not shake it, for it was [^j]founded on the rock. 
+He is like a man building a house, who dug deep and laid the foundation on the rock. And when the flood arose, the stream beat vehemently against that house, and could not shake it, for it was founded on the rock. 
 
 ###### 49 
-But he who heard and did nothing is like a man who built a house on the earth without a foundation, against which the stream beat vehemently; and immediately it [^k]fell. And the ruin of that house was great."
+But he who heard and did nothing is like a man who built a house on the earth without a foundation, against which the stream beat vehemently; and immediately it fell. And the ruin of that house was great."

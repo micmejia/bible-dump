@@ -10,7 +10,7 @@ next: ['2 Kgs 10']
 
 
 ###### 1 
-And Elisha the prophet called one of the sons of the prophets, and said to him, "Get[^a] yourself ready, take this flask of oil in your hand, and go to Ramoth Gilead. 
+And Elisha the prophet called one of the sons of the prophets, and said to him, "Get yourself ready, take this flask of oil in your hand, and go to Ramoth Gilead. 
 
 ###### 2 
 Now when you arrive at that place, look there for Jehu the son of Jehoshaphat, the son of Nimshi, and go in and make him rise up from among his associates, and take him to an inner room. 
@@ -46,22 +46,22 @@ Then Jehu came out to the servants of his master, and _one_ said to him, "_Is_ a
 And they said, "A lie! Tell us now." So he said, "Thus and thus he spoke to me, saying, 'Thus says the Lord: "I have anointed you king over Israel." ' " 
 
 ###### 13 
-Then each man hastened to take his garment and put _it_ [^b]under him on the top of the steps; and they blew trumpets, saying, "Jehu is king!" ## Joram of Israel Killed 
+Then each man hastened to take his garment and put _it_ under him on the top of the steps; and they blew trumpets, saying, "Jehu is king!" ## Joram of Israel Killed 
 
 ###### 14 
 So Jehu the son of Jehoshaphat, the son of Nimshi, conspired against Joram. (Now Joram had been defending Ramoth Gilead, he and all Israel, against Hazael king of Syria. 
 
 ###### 15 
-But King [^c]Joram had returned to Jezreel to recover from the wounds which the Syrians had inflicted on him when he fought with Hazael king of Syria.) And Jehu said, "If you are so minded, let no one leave _or_ escape from the city to go and tell _it_ in Jezreel." 
+But King Joram had returned to Jezreel to recover from the wounds which the Syrians had inflicted on him when he fought with Hazael king of Syria.) And Jehu said, "If you are so minded, let no one leave _or_ escape from the city to go and tell _it_ in Jezreel." 
 
 ###### 16 
 So Jehu rode in a chariot and went to Jezreel, for Joram was laid up there; and Ahaziah king of Judah had come down to see Joram. 
 
 ###### 17 
-Now a watchman stood on the tower in Jezreel, and he saw the company of Jehu as he came, and said, "I see a company of men." And Joram said, "Get a horseman and send him to meet them, and let him say, [^d]'_Is it_ peace?' " 
+Now a watchman stood on the tower in Jezreel, and he saw the company of Jehu as he came, and said, "I see a company of men." And Joram said, "Get a horseman and send him to meet them, and let him say, '_Is it_ peace?' " 
 
 ###### 18 
-So the horseman went to meet him, and said, "Thus says the king: '_Is it_ peace?' " And Jehu said, "What have you to do with peace? [^e]Turn around and follow me." So the watchman reported, saying, "The messenger went to them, but is not coming back." 
+So the horseman went to meet him, and said, "Thus says the king: '_Is it_ peace?' " And Jehu said, "What have you to do with peace? Turn around and follow me." So the watchman reported, saying, "The messenger went to them, but is not coming back." 
 
 ###### 19 
 Then he sent out a second horseman who came to them, and said, "Thus says the king: '_Is it_ peace?' " And Jehu answered, "What have you to do with peace? Turn around and follow me." 
@@ -70,7 +70,7 @@ Then he sent out a second horseman who came to them, and said, "Thus says the ki
 So the watchman reported, saying, "He went up to them and is not coming back; and the driving _is_ like the driving of Jehu the son of Nimshi, for he drives furiously!" 
 
 ###### 21 
-Then Joram said, [^f]"Make ready." And his chariot was made ready. Then Joram king of Israel and Ahaziah king of Judah went out, each in his chariot; and they went out to meet Jehu, and [^g]met him on the property of Naboth the Jezreelite. 
+Then Joram said, "Make ready." And his chariot was made ready. Then Joram king of Israel and Ahaziah king of Judah went out, each in his chariot; and they went out to meet Jehu, and met him on the property of Naboth the Jezreelite. 
 
 ###### 22 
 Now it happened, when Joram saw Jehu, that he said, "_Is it_ peace, Jehu?" So he answered, "What peace, as long as the harlotries of your mother Jezebel and her witchcraft _are so_ many?" 
@@ -79,16 +79,16 @@ Now it happened, when Joram saw Jehu, that he said, "_Is it_ peace, Jehu?" So he
 Then Joram turned around and fled, and said to Ahaziah, "Treachery, Ahaziah!" 
 
 ###### 24 
-Now Jehu [^h]drew his bow with full strength and shot Jehoram between his arms; and the arrow came out at his heart, and he sank down in his chariot. 
+Now Jehu drew his bow with full strength and shot Jehoram between his arms; and the arrow came out at his heart, and he sank down in his chariot. 
 
 ###### 25 
 Then _Jehu_ said to Bidkar his captain, "Pick _him_ up, _and_ throw him into the tract of the field of Naboth the Jezreelite; for remember, when you and I were riding together behind Ahab his father, that the Lord laid this burden upon him: 
 
 ###### 26 
-'Surely I saw yesterday the blood of Naboth and the blood of his sons,' says the Lord, 'and I will repay you [^i]in this plot,' says the Lord. Now therefore, take _and_ throw him on the plot _of ground,_ according to the word of the Lord." ## Ahaziah of Judah Killed 
+'Surely I saw yesterday the blood of Naboth and the blood of his sons,' says the Lord, 'and I will repay you in this plot,' says the Lord. Now therefore, take _and_ throw him on the plot _of ground,_ according to the word of the Lord." ## Ahaziah of Judah Killed 
 
 ###### 27 
-But when Ahaziah king of Judah saw _this,_ he fled by the road to [^j]Beth Haggan. So Jehu pursued him, and said, [^k]"Shoot him also in the chariot." _And they shot him_ at the Ascent of Gur, which is by Ibleam. Then he fled to Megiddo, and died there. 
+But when Ahaziah king of Judah saw _this,_ he fled by the road to Beth Haggan. So Jehu pursued him, and said, "Shoot him also in the chariot." _And they shot him_ at the Ascent of Gur, which is by Ibleam. Then he fled to Megiddo, and died there. 
 
 ###### 28 
 And his servants carried him in the chariot to Jerusalem, and buried him in his tomb with his fathers in the City of David. 

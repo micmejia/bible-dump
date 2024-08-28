@@ -216,7 +216,7 @@ Their wings touched one another; they turned not when they went but went every o
 
 
 
-As for the [^a]likeness of their faces, they each had the face of a man [in front], and each had the face of a lion on the right side and the face of an ox on the left side; the four also had the face of an eagle [at the back of their heads]. 
+As for the likeness of their faces, they each had the face of a man [in front], and each had the face of a lion on the right side and the face of an ox on the left side; the four also had the face of an eagle [at the back of their heads]. 
 
 
 

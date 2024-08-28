@@ -13,13 +13,13 @@ next: ['Job 16']
 Then Eliphaz the Temanite answered and said: 
 
 ###### 2 
-"Should a wise man answer with empty knowledge, And fill [^a]himself with the east wind? 
+"Should a wise man answer with empty knowledge, And fill himself with the east wind? 
 
 ###### 3 
 Should he reason with unprofitable talk, Or by speeches with which he can do no good? 
 
 ###### 4 
-Yes, you cast off fear, And restrain [^b]prayer before God. 
+Yes, you cast off fear, And restrain prayer before God. 
 
 ###### 5 
 For your iniquity teaches your mouth, And you choose the tongue of the crafty. 
@@ -40,10 +40,10 @@ What do you know that we do not know? _What_ do you understand that _is_ not in 
 Both the gray-haired and the aged _are_ among us, Much older than your father. 
 
 ###### 11 
-_Are_ the consolations of God too small for you, And the word _spoken_ [^c]gently with you? 
+_Are_ the consolations of God too small for you, And the word _spoken_ gently with you? 
 
 ###### 12 
-Why does your heart carry you away, And [^d]what do your eyes wink at, 
+Why does your heart carry you away, And what do your eyes wink at, 
 
 ###### 13 
 That you turn your spirit against God, And let _such_ words go out of your mouth? 
@@ -64,13 +64,13 @@ How much less man, _who is_ abominable and filthy, Who drinks iniquity like wate
 What wise men have told, Not hiding _anything received_ from their fathers, 
 
 ###### 19 
-To whom alone the [^e]land was given, And no alien passed among them: 
+To whom alone the land was given, And no alien passed among them: 
 
 ###### 20 
 The wicked man writhes with pain all _his_ days, And the number of years is hidden from the oppressor. 
 
 ###### 21 
-[^f]Dreadful sounds _are_ in his ears; In prosperity the destroyer comes upon him. 
+Dreadful sounds _are_ in his ears; In prosperity the destroyer comes upon him. 
 
 ###### 22 
 He does not believe that he will return from darkness, For a sword is waiting for him. 
@@ -79,7 +79,7 @@ He does not believe that he will return from darkness, For a sword is waiting fo
 He wanders about for bread, _saying,_ 'Where _is it?_' He knows that a day of darkness is ready at his hand. 
 
 ###### 24 
-Trouble and anguish make him afraid; They overpower him, like a king ready for [^g]battle. 
+Trouble and anguish make him afraid; They overpower him, like a king ready for battle. 
 
 ###### 25 
 For he stretches out his hand against God, And acts defiantly against the Almighty, 

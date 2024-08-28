@@ -10,7 +10,7 @@ next: ['1 Chr 10']
 
 
 ###### 1 
-So all Israel was [^a]recorded by genealogies, and indeed, they _were_ inscribed in the book of the kings of Israel. But Judah was carried away captive to Babylon because of their unfaithfulness. 
+So all Israel was recorded by genealogies, and indeed, they _were_ inscribed in the book of the kings of Israel. But Judah was carried away captive to Babylon because of their unfaithfulness. 
 
 ###### 2 
 And the first inhabitants who _dwelt_ in their possessions in their cities _were_ Israelites, priests, Levites, and the Nethinim. ## Dwellers in Jerusalem 
@@ -40,13 +40,13 @@ and their brethren, according to their generations--nine hundred and fifty-six. 
 Of the priests: Jedaiah, Jehoiarib, and Jachin; 
 
 ###### 11 
-[^b]Azariah the son of Hilkiah, the son of Meshullam, the son of Zadok, the son of Meraioth, the son of Ahitub, the officer over the house of God; 
+Azariah the son of Hilkiah, the son of Meshullam, the son of Zadok, the son of Meraioth, the son of Ahitub, the officer over the house of God; 
 
 ###### 12 
 Adaiah the son of Jeroham, the son of Pashur, the son of Malchijah; Maasai the son of Adiel, the son of Jahzerah, the son of Meshullam, the son of Meshillemith, the son of Immer; 
 
 ###### 13 
-and their brethren, heads of their fathers' houses--one thousand seven hundred and sixty. _They were_ [^c]very able men for the work of the service of the house of God. ## The Levites at Jerusalem 
+and their brethren, heads of their fathers' houses--one thousand seven hundred and sixty. _They were_ very able men for the work of the service of the house of God. ## The Levites at Jerusalem 
 
 ###### 14 
 Of the Levites: Shemaiah the son of Hasshub, the son of Azrikam, the son of Hashabiah, of the sons of Merari; 
@@ -64,13 +64,13 @@ And the gatekeepers _were_ Shallum, Akkub, Talmon, Ahiman, and their brethren. S
 Until then _they had been_ gatekeepers for the camps of the children of Levi at the King's Gate on the east. 
 
 ###### 19 
-Shallum the son of Kore, the son of Ebiasaph, the son of Korah, and his brethren, from his father's house, the Korahites, _were_ in charge of the work of the service, [^d]gatekeepers of the tabernacle. Their fathers had been keepers of the entrance to the camp of the Lord. 
+Shallum the son of Kore, the son of Ebiasaph, the son of Korah, and his brethren, from his father's house, the Korahites, _were_ in charge of the work of the service, gatekeepers of the tabernacle. Their fathers had been keepers of the entrance to the camp of the Lord. 
 
 ###### 20 
 And Phinehas the son of Eleazar had been the officer over them in time past; the Lord _was_ with him. 
 
 ###### 21 
-Zechariah the son of Meshelemiah _was_ [^e]keeper of the door of the tabernacle of meeting. 
+Zechariah the son of Meshelemiah _was_ keeper of the door of the tabernacle of meeting. 
 
 ###### 22 
 All those chosen as gatekeepers _were_ two hundred and twelve. They were recorded by their genealogy, in their villages. David and Samuel the seer had appointed them to their trusted office. 
@@ -88,7 +88,7 @@ And their brethren in their villages _had_ to come with them from time to time f
 For in this trusted office _were_ four chief gatekeepers; they were Levites. And they had charge over the chambers and treasuries of the house of God. 
 
 ###### 27 
-And they lodged _all_ around the house of God because [^f]they _had_ the responsibility, and they _were_ in charge of opening _it_ every morning. ## Other Levite Responsibilities 
+And they lodged _all_ around the house of God because they _had_ the responsibility, and they _were_ in charge of opening _it_ every morning. ## Other Levite Responsibilities 
 
 ###### 28 
 Now _some_ of them were in charge of the serving vessels, for they brought them in and took them out by count. 
@@ -118,10 +118,10 @@ Jeiel the father of Gibeon, whose wife's name _was_ Maacah, dwelt at Gibeon.
 His firstborn son _was_ Abdon, then Zur, Kish, Baal, Ner, Nadab, 
 
 ###### 37 
-Gedor, Ahio, [^g]Zechariah, and Mikloth. 
+Gedor, Ahio, Zechariah, and Mikloth. 
 
 ###### 38 
-And Mikloth begot [^h]Shimeam. They also dwelt alongside their relatives in Jerusalem, with their brethren. 
+And Mikloth begot Shimeam. They also dwelt alongside their relatives in Jerusalem, with their brethren. 
 
 ###### 39 
 Ner begot Kish, Kish begot Saul, and Saul begot Jonathan, Malchishua, Abinadab, and Esh-Baal. 
@@ -130,13 +130,13 @@ Ner begot Kish, Kish begot Saul, and Saul begot Jonathan, Malchishua, Abinadab, 
 The son of Jonathan _was_ Merib-Baal, and Merib-Baal begot Micah. 
 
 ###### 41 
-The sons of Micah _were_ Pithon, Melech, [^i]Tahrea, and[^j] Ahaz. 
+The sons of Micah _were_ Pithon, Melech, Tahrea, and Ahaz. 
 
 ###### 42 
-And Ahaz begot [^k]Jarah; Jarah begot Alemeth, Azmaveth, and Zimri; and Zimri begot Moza; 
+And Ahaz begot Jarah; Jarah begot Alemeth, Azmaveth, and Zimri; and Zimri begot Moza; 
 
 ###### 43 
-Moza begot Binea, [^l]Rephaiah his son, Eleasah his son, and Azel his son. 
+Moza begot Binea, Rephaiah his son, Eleasah his son, and Azel his son. 
 
 ###### 44 
 And Azel had six sons whose names _were_ these: Azrikam, Bocheru, Ishmael, Sheariah, Obadiah, and Hanan; these _were_ the sons of Azel.

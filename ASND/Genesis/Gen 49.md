@@ -469,7 +469,7 @@ Kaya dahil sa masaganang katas ng ubas, magniningning ang iyong mga mata at sa m
 
 
 
-"Ikaw Isacar, katulad ka ng malakas na asno pero nagpapahinga sa tirahan ng mga tupa.[^a] 
+"Ikaw Isacar, katulad ka ng malakas na asno pero nagpapahinga sa tirahan ng mga tupa. 
 
 
 
@@ -733,7 +733,7 @@ Magiging katulad ka ng makamandag na ahas sa tabi ng daan na tumutuklaw ng paa n
 
 
 
-"Ikaw Jose, katulad ka ng mailap na asno sa tabi ng bukal o sa tabi ng bangin.[^b] 
+"Ikaw Jose, katulad ka ng mailap na asno sa tabi ng bukal o sa tabi ng bangin. 
 
 
 

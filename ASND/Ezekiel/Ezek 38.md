@@ -172,7 +172,7 @@ Paiikutin kita at kakawitan ko ng kawil ang panga mo. Hihilahin kita kasama ang 
 
 
 
-Sasama sa kanila ang mga sundalo ng Persia, Etiopia[^a] at Libya na may mga kalasag at helmet, 
+Sasama sa kanila ang mga sundalo ng Persia, Etiopia at Libya na may mga kalasag at helmet, 
 
 
 

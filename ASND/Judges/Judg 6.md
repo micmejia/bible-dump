@@ -271,7 +271,7 @@ Nang tumawag sila sa Panginoon,
 
 
 
-pinadalhan sila ng Panginoon ng <i class="trans-change">isang_ propeta na nagsabi sa kanila, "Ito ang sinasabi ng Panginoon na inyong Dios:[^a] 'Inilabas ko kayo sa Egipto na kung saan inalipin kayo. 
+pinadalhan sila ng Panginoon ng <i class="trans-change">isang_ propeta na nagsabi sa kanila, "Ito ang sinasabi ng Panginoon na inyong Dios: 'Inilabas ko kayo sa Egipto na kung saan inalipin kayo. 
 
 
 
@@ -436,7 +436,7 @@ Nagpakita sa kanya ang anghel ng Panginoon at sinabi, "Ikaw, magiting na sundalo
 
 
 
-Sumagot si Gideon, "Kung[^b] sumasaamin nga ang Panginoon, bakit ganito ang kalagayan namin? Bakit hindi na siya gumagawa ng mga himala gaya ng ginawa niya noon nang inilabas niya sa Egipto ang aming mga ninuno, ayon na rin sa mga kwento nila sa amin? At ngayon, pinabayaan na kami ng Panginoon at ipinaubaya sa mga Midianita." 
+Sumagot si Gideon, "Kung sumasaamin nga ang Panginoon, bakit ganito ang kalagayan namin? Bakit hindi na siya gumagawa ng mga himala gaya ng ginawa niya noon nang inilabas niya sa Egipto ang aming mga ninuno, ayon na rin sa mga kwento nila sa amin? At ngayon, pinabayaan na kami ng Panginoon at ipinaubaya sa mga Midianita." 
 
 
 

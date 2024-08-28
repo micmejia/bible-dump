@@ -10,7 +10,7 @@ next: ['Jer 28']
 
 
 ###### 1 
-In[^a] the beginning of the reign of [^b]Jehoiakim the son of Josiah, king of Judah, this word came to Jeremiah from the Lord, saying, 
+In the beginning of the reign of Jehoiakim the son of Josiah, king of Judah, this word came to Jeremiah from the Lord, saying, 
 
 ###### 2 
 "Thus says the Lord to me: 'Make for yourselves bonds and yokes, and put them on your neck, 
@@ -34,7 +34,7 @@ So all nations shall serve him and his son and his son's son, until the time of 
 And it shall be, _that_ the nation and kingdom which will not serve Nebuchadnezzar the king of Babylon, and which will not put its neck under the yoke of the king of Babylon, that nation I will punish,' says the Lord, 'with the sword, the famine, and the pestilence, until I have consumed them by his hand. 
 
 ###### 9 
-Therefore do not listen to your prophets, your diviners, your [^c]dreamers, your soothsayers, or your sorcerers, who speak to you, saying, "You shall not serve the king of Babylon." 
+Therefore do not listen to your prophets, your diviners, your dreamers, your soothsayers, or your sorcerers, who speak to you, saying, "You shall not serve the king of Babylon." 
 
 ###### 10 
 For they prophesy a lie to you, to remove you far from your land; and I will drive you out, and you will perish. 

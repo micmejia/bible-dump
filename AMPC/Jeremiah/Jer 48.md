@@ -385,7 +385,7 @@ Bemoan him, all you [nations] who are around him, and all you [nations more remo
 
 
 
-Come down from your glory, you inhabitant of the Daughter of [^a]Dibon, and sit on the ground among the thirsty! For the destroyer of Moab is advancing against you; he will destroy your strongholds. 
+Come down from your glory, you inhabitant of the Daughter of Dibon, and sit on the ground among the thirsty! For the destroyer of Moab is advancing against you; he will destroy your strongholds. 
 
 
 
@@ -889,7 +889,7 @@ Kerioth [and the cities] shall be taken and the strongholds seized; and the hear
 
 
 
-And Moab shall be [^b]destroyed from being a nation, because he has magnified himself against the Lord. 
+And Moab shall be destroyed from being a nation, because he has magnified himself against the Lord. 
 
 
 
@@ -994,4 +994,4 @@ Woe to you, O Moab! The people of [the god] Chemosh _are_ undone; for your sons 
 
 
 
-Yet will I reverse the captivity _and_ [^c]restore the fortunes of Moab in the latter days, says the Lord. Thus far is the judgment on Moab.
+Yet will I reverse the captivity _and_ restore the fortunes of Moab in the latter days, says the Lord. Thus far is the judgment on Moab.

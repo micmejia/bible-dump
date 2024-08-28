@@ -22,7 +22,7 @@ As he journeyed he came near Damascus, and suddenly a light shone around him fro
 Then he fell to the ground, and heard a voice saying to him, "Saul, Saul, why are you persecuting Me?" 
 
 ###### 5 
-And he said, "Who are You, Lord?" Then the Lord said, "I am Jesus, whom you are persecuting. [^a]It _is_ hard for you to kick against the goads." 
+And he said, "Who are You, Lord?" Then the Lord said, "I am Jesus, whom you are persecuting. It _is_ hard for you to kick against the goads." 
 
 ###### 6 
 So he, trembling and astonished, said, "Lord, what do You want me to do?" Then the Lord _said_ to him, "Arise and go into the city, and you will be told what you must do." 
@@ -46,19 +46,19 @@ So the Lord _said_ to him, "Arise and go to the street called Straight, and inqu
 And in a vision he has seen a man named Ananias coming in and putting _his_ hand on him, so that he might receive his sight." 
 
 ###### 13 
-Then Ananias answered, "Lord, I have heard from many about this man, how much [^b]harm he has done to Your saints in Jerusalem. 
+Then Ananias answered, "Lord, I have heard from many about this man, how much harm he has done to Your saints in Jerusalem. 
 
 ###### 14 
 And here he has authority from the chief priests to bind all who call on Your name." 
 
 ###### 15 
-But the Lord said to him, "Go, for he is a chosen vessel of Mine to bear My name before Gentiles, kings, and the children[^c] of Israel. 
+But the Lord said to him, "Go, for he is a chosen vessel of Mine to bear My name before Gentiles, kings, and the children of Israel. 
 
 ###### 16 
 For I will show him how many things he must suffer for My name's sake." 
 
 ###### 17 
-And Ananias went his way and entered the house; and laying his hands on him he said, "Brother Saul, the Lord [^d]Jesus, who appeared to you on the road as you came, has sent me that you may receive your sight and be filled with the Holy Spirit." 
+And Ananias went his way and entered the house; and laying his hands on him he said, "Brother Saul, the Lord Jesus, who appeared to you on the road as you came, has sent me that you may receive your sight and be filled with the Holy Spirit." 
 
 ###### 18 
 Immediately there fell from his eyes _something_ like scales, and he received his sight at once; and he arose and was baptized. 
@@ -67,7 +67,7 @@ Immediately there fell from his eyes _something_ like scales, and he received hi
 So when he had received food, he was strengthened. Then Saul spent some days with the disciples at Damascus. ## Saul Preaches Christ 
 
 ###### 20 
-Immediately he preached [^e]the Christ in the synagogues, that He is the Son of God. 
+Immediately he preached the Christ in the synagogues, that He is the Son of God. 
 
 ###### 21 
 Then all who heard were amazed, and said, "Is this not he who destroyed those who called on this name in Jerusalem, and has come here for that purpose, so that he might bring them bound to the chief priests?" 
@@ -94,13 +94,13 @@ But Barnabas took him and brought _him_ to the apostles. And he declared to them
 So he was with them at Jerusalem, coming in and going out. 
 
 ###### 29 
-And he spoke boldly in the name of the Lord Jesus and disputed against the Hellenists,[^f] but they attempted to kill him. 
+And he spoke boldly in the name of the Lord Jesus and disputed against the Hellenists, but they attempted to kill him. 
 
 ###### 30 
 When the brethren found out, they brought him down to Caesarea and sent him out to Tarsus. ## The Church Prospers 
 
 ###### 31 
-Then the [^g]churches throughout all Judea, Galilee, and Samaria had peace and were edified.[^h] And walking in the fear of the Lord and in the comfort of the Holy Spirit, they were multiplied. ## Aeneas Healed 
+Then the churches throughout all Judea, Galilee, and Samaria had peace and were edified. And walking in the fear of the Lord and in the comfort of the Holy Spirit, they were multiplied. ## Aeneas Healed 
 
 ###### 32 
 Now it came to pass, as Peter went through all _parts of the country,_ that he also came down to the saints who dwelt in Lydda. 
@@ -115,7 +115,7 @@ And Peter said to him, "Aeneas, Jesus the Christ heals you. Arise and make your 
 So all who dwelt at Lydda and Sharon saw him and turned to the Lord. ## Dorcas Restored to Life 
 
 ###### 36 
-At Joppa there was a certain disciple named [^i]Tabitha, which is translated [^j]Dorcas. This woman was full of good works and charitable deeds which she did. 
+At Joppa there was a certain disciple named Tabitha, which is translated Dorcas. This woman was full of good works and charitable deeds which she did. 
 
 ###### 37 
 But it happened in those days that she became sick and died. When they had washed her, they laid _her_ in an upper room. 

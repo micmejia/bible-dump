@@ -13,7 +13,7 @@ next: ['Gen 49']
 Now it came to pass after these things that Joseph was told, "Indeed your father _is_ sick"; and he took with him his two sons, Manasseh and Ephraim. 
 
 ###### 2 
-And Jacob was told, "Look, your son Joseph is coming to you"; and Israel [^a]strengthened himself and sat up on the bed. 
+And Jacob was told, "Look, your son Joseph is coming to you"; and Israel strengthened himself and sat up on the bed. 
 
 ###### 3 
 Then Jacob said to Joseph: "God Almighty appeared to me at Luz in the land of Canaan and blessed me, 
@@ -25,7 +25,7 @@ and said to me, 'Behold, I will make you fruitful and multiply you, and I will m
 And now your two sons, Ephraim and Manasseh, who were born to you in the land of Egypt before I came to you in Egypt, _are_ mine; as Reuben and Simeon, they shall be mine. 
 
 ###### 6 
-Your [^b]offspring [^c]whom you beget after them shall be yours; they will be called by the name of their brothers in their inheritance. 
+Your offspring whom you beget after them shall be yours; they will be called by the name of their brothers in their inheritance. 
 
 ###### 7 
 But as for me, when I came from Padan, Rachel died beside me in the land of Canaan on the way, when _there was_ but a little distance to go to Ephrath; and I buried her there on the way to Ephrath (that is, Bethlehem)." 
@@ -73,4 +73,4 @@ So he blessed them that day, saying, "By you Israel will bless, saying, 'May God
 Then Israel said to Joseph, "Behold, I am dying, but God will be with you and bring you back to the land of your fathers. 
 
 ###### 22 
-Moreover I have given to you one [^d]portion above your brothers, which I took from the hand of the Amorite with my sword and my bow."
+Moreover I have given to you one portion above your brothers, which I took from the hand of the Amorite with my sword and my bow."

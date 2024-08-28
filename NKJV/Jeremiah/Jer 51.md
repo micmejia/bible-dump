@@ -10,7 +10,7 @@ next: ['Jer 52']
 
 
 ###### 1 
-Thus says the Lord: "Behold, I will raise up against Babylon, Against those who dwell in [^a]Leb Kamai, A destroying wind. 
+Thus says the Lord: "Behold, I will raise up against Babylon, Against those who dwell in Leb Kamai, A destroying wind. 
 
 ###### 2 
 And I will send winnowers to Babylon, Who shall winnow her and empty her land. For in the day of doom They shall be against her all around. 
@@ -40,7 +40,7 @@ We would have healed Babylon, But she is not healed. Forsake her, and let us go 
 The Lord has revealed our righteousness. Come and let us declare in Zion the work of the Lord our God. 
 
 ###### 11 
-Make[^b] the arrows bright! Gather the shields! The Lord has raised up the spirit of the kings of the Medes. For His plan _is_ against Babylon to destroy it, Because it _is_ the vengeance of the Lord, The vengeance for His temple. 
+Make the arrows bright! Gather the shields! The Lord has raised up the spirit of the kings of the Medes. For His plan _is_ against Babylon to destroy it, Because it _is_ the vengeance of the Lord, The vengeance for His temple. 
 
 ###### 12 
 Set up the standard on the walls of Babylon; Make the guard strong, Set up the watchmen, Prepare the ambushes. For the Lord has both devised and done What He spoke against the inhabitants of Babylon. 
@@ -130,7 +130,7 @@ In their excitement I will prepare their feasts; I will make them drunk, That th
 "I will bring them down Like lambs to the slaughter, Like rams with male goats. 
 
 ###### 41 
-"Oh, how Sheshach[^c] is taken! Oh, how the praise of the whole earth is seized! How Babylon has become desolate among the nations! 
+"Oh, how Sheshach is taken! Oh, how the praise of the whole earth is seized! How Babylon has become desolate among the nations! 
 
 ###### 42 
 The sea has come up over Babylon; She is covered with the multitude of its waves. 
@@ -139,10 +139,10 @@ The sea has come up over Babylon; She is covered with the multitude of its waves
 Her cities are a desolation, A dry land and a wilderness, A land where no one dwells, Through which no son of man passes. 
 
 ###### 44 
-I will punish Bel[^d] in Babylon, And I will bring out of his mouth what he has swallowed; And the nations shall not stream to him anymore. Yes, the wall of Babylon shall fall. 
+I will punish Bel in Babylon, And I will bring out of his mouth what he has swallowed; And the nations shall not stream to him anymore. Yes, the wall of Babylon shall fall. 
 
 ###### 45 
-"My people, go out of the midst of her! And let everyone deliver [^e]himself from the fierce anger of the Lord. 
+"My people, go out of the midst of her! And let everyone deliver himself from the fierce anger of the Lord. 
 
 ###### 46 
 And lest your heart faint, And you fear for the rumor that _will be_ heard in the land (A rumor will come _one_ year, And after that, in _another_ year A rumor _will come,_ And violence in the land, Ruler against ruler), 
@@ -160,13 +160,13 @@ As Babylon _has caused_ the slain of Israel to fall, So at Babylon the slain of 
 You who have escaped the sword, Get away! Do not stand still! Remember the Lord afar off, And let Jerusalem come to your mind. 
 
 ###### 51 
-We are ashamed because we have heard reproach. Shame has covered our faces, For strangers have come into the [^f]sanctuaries of the Lord's house. 
+We are ashamed because we have heard reproach. Shame has covered our faces, For strangers have come into the sanctuaries of the Lord's house. 
 
 ###### 52 
 "Therefore behold, the days are coming," says the Lord, "That I will bring judgment on her carved images, And throughout all her land the wounded shall groan. 
 
 ###### 53 
-Though Babylon were to [^g]mount up to heaven, And though she were to fortify the height of her strength, _Yet_ from Me plunderers would come to her," says the Lord. 
+Though Babylon were to mount up to heaven, And though she were to fortify the height of her strength, _Yet_ from Me plunderers would come to her," says the Lord. 
 
 ###### 54 
 The sound of a cry _comes_ from Babylon, And great destruction from the land of the Chaldeans, 
@@ -181,7 +181,7 @@ Because the plunderer comes against her, against Babylon, And her mighty men are
 "And I will make drunk Her princes and wise men, Her governors, her deputies, and her mighty men. And they shall sleep a perpetual sleep And not awake," says the King, Whose name _is_ the Lord of hosts. 
 
 ###### 58 
-Thus says the Lord of hosts: "The broad walls of Babylon shall be utterly broken,[^h] And her high gates shall be burned with fire; The people will labor in vain, And the nations, because of the fire; And they shall be weary." ## Jeremiah's Command to Seraiah 
+Thus says the Lord of hosts: "The broad walls of Babylon shall be utterly broken, And her high gates shall be burned with fire; The people will labor in vain, And the nations, because of the fire; And they shall be weary." ## Jeremiah's Command to Seraiah 
 
 ###### 59 
 The word which Jeremiah the prophet commanded Seraiah the son of Neriah, the son of Mahseiah, when he went with Zedekiah the king of Judah to Babylon in the fourth year of his reign. And Seraiah _was_ the quartermaster. 

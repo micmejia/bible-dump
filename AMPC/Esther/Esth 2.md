@@ -238,7 +238,7 @@ Esther had not made known her nationality or her kindred, for Mordecai had charg
 
 
 
-And Mordecai [who was an [^a]attendant in the king's court] walked every day before the court of the harem to learn how Esther was and what would become of her. 
+And Mordecai [who was an attendant in the king's court] walked every day before the court of the harem to learn how Esther was and what would become of her. 
 
 
 
@@ -427,7 +427,7 @@ And when the maidens were gathered together the second time, Mordecai was sittin
 
 
 
-Now Esther had not yet revealed her nationality or her people, for she obeyed Mordecai's command to her [[^b]to fear God and execute His commands] just as when she was being brought up by him. 
+Now Esther had not yet revealed her nationality or her people, for she obeyed Mordecai's command to her [to fear God and execute His commands] just as when she was being brought up by him. 
 
 
 

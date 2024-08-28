@@ -139,7 +139,7 @@ Dahil dito, nanginig at namutla ang hari sa tindi ng takot.
 
 
 
-Kaya sumigaw siya na ipatawag ang marurunong sa Babilonia: ang mga salamangkero, mga astrologo,[^a] at mga manghuhula. <i class="trans-change">Nang dumating sila,_ sinabi niya sa kanila, "Ang sinumang makabasa ng nakasulat na iyan at makapagpaliwanag ng kahulugan ay bibihisan ko ng maharlikang damit at pasusuotan ko ng gintong kwintas. At siyaʼy magiging pangatlong pinakamataas na pinuno sa aking kaharian." 
+Kaya sumigaw siya na ipatawag ang marurunong sa Babilonia: ang mga salamangkero, mga astrologo, at mga manghuhula. <i class="trans-change">Nang dumating sila,_ sinabi niya sa kanila, "Ang sinumang makabasa ng nakasulat na iyan at makapagpaliwanag ng kahulugan ay bibihisan ko ng maharlikang damit at pasusuotan ko ng gintong kwintas. At siyaʼy magiging pangatlong pinakamataas na pinuno sa aking kaharian." 
 
 
 
@@ -238,7 +238,7 @@ Kaya lalong natakot at namutla si Haring Belshazar. Litong-lito naman ang isip n
 
 
 
-Nang marinig ng reyna[^b] ang kanilang pagkakagulo, lumapit siya sa kanila at sinabi, "Mabuhay ang Mahal na Hari! Huwag kang matakot o mag-alala, 
+Nang marinig ng reyna ang kanilang pagkakagulo, lumapit siya sa kanila at sinabi, "Mabuhay ang Mahal na Hari! Huwag kang matakot o mag-alala, 
 
 
 
@@ -271,7 +271,7 @@ Nang marinig ng reyna[^b] ang kanilang pagkakagulo, lumapit siya sa kanila at si
 
 
 
-dahil may isang tao sa iyong kaharian na nasa kanya ang espiritu ng banal na mga dios.[^c] Noong panahon ng iyong amang si Haring Nebucadnezar, ang taong ito ay nagpamalas ng kanyang karunungan tulad sa karunungan ng mga dios. Ginawa siya ng iyong ama na pinuno ng mga salamangkero, engkantador, manghuhula, at mga astrologo. 
+dahil may isang tao sa iyong kaharian na nasa kanya ang espiritu ng banal na mga dios. Noong panahon ng iyong amang si Haring Nebucadnezar, ang taong ito ay nagpamalas ng kanyang karunungan tulad sa karunungan ng mga dios. Ginawa siya ng iyong ama na pinuno ng mga salamangkero, engkantador, manghuhula, at mga astrologo. 
 
 
 
@@ -766,7 +766,7 @@ Ang Tekel ay nangangahulugan na tinimbang ka <i class="trans-change">ng Dios_ at
 
 
 
-Ang Parsin[^d] ay nangangahulugan na ang kaharian moʼy mahahati at ibibigay sa Media at Persia." 
+Ang Parsin ay nangangahulugan na ang kaharian moʼy mahahati at ibibigay sa Media at Persia." 
 
 
 
@@ -832,7 +832,7 @@ Ang Parsin[^d] ay nangangahulugan na ang kaharian moʼy mahahati at ibibigay sa 
 
 
 
-Nang gabi ring iyon, pinatay si Belshazar na hari ng mga taga-Babilonia.[^e] 
+Nang gabi ring iyon, pinatay si Belshazar na hari ng mga taga-Babilonia. 
 
 
 

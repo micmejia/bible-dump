@@ -73,7 +73,7 @@ Sinabi ng Panginoon kay Moises,
 
 
 
-"Sabihin mo sa mga Israelita na kung ang isang lalaki o babae ay gagawa ng isang panata na itatalaga niya ang kanyang sarili sa paglilingkod sa akin bilang Nazareo,[^a] 
+"Sabihin mo sa mga Israelita na kung ang isang lalaki o babae ay gagawa ng isang panata na itatalaga niya ang kanyang sarili sa paglilingkod sa akin bilang Nazareo, 
 
 
 
@@ -238,7 +238,7 @@ At habang hindi pa natatapos ang kanyang panata sa Panginoon, hindi siya dapat l
 
 
 
-kahit na ama pa niya ito, ina o kapatid. Hindi niya dapat dungisan ang kanyang sarili dahil lang sa kanila. Dahil ang kanyang buhok ay simbolo ng pagtatalaga niya ng kanyang buhay sa Panginoon.[^b] 
+kahit na ama pa niya ito, ina o kapatid. Hindi niya dapat dungisan ang kanyang sarili dahil lang sa kanila. Dahil ang kanyang buhok ay simbolo ng pagtatalaga niya ng kanyang buhay sa Panginoon. 
 
 
 
@@ -304,7 +304,7 @@ Kaya sa buong panahon ng pagtatalaga niya ng kanyang buhay, ibinukod siya para s
 
 
 
-"Kung may biglang namatay sa kanyang tabi, at dahil ditoʼy nadumihan ang kanyang buhok[^c] na simbolo ng kanyang pagkakatalaga sa Panginoon, kailangang ahitin niya ito sa ikapitong araw, iyon ang araw ng kanyang paglilinis. 
+"Kung may biglang namatay sa kanyang tabi, at dahil ditoʼy nadumihan ang kanyang buhok na simbolo ng kanyang pagkakatalaga sa Panginoon, kailangang ahitin niya ito sa ikapitong araw, iyon ang araw ng kanyang paglilinis. 
 
 
 
@@ -370,7 +370,7 @@ Sa ikawalong araw, kailangang magdala siya ng dalawang kalapati o dalawang ibon 
 
 
 
-Ihahandog ng pari ang isa bilang handog sa paglilinis at ang isa bilang handog na sinusunog. Sa pamamagitan nito, mapapatawad siya sa kasalanan niya na paghipo sa patay. Sa mismong araw na iyon, itatalaga niyang <i class="trans-change">muli_ ang kanyang sarili[^d] <i class="trans-change">at muli niyang pahahabain ang kanyang buhok_. 
+Ihahandog ng pari ang isa bilang handog sa paglilinis at ang isa bilang handog na sinusunog. Sa pamamagitan nito, mapapatawad siya sa kasalanan niya na paghipo sa patay. Sa mismong araw na iyon, itatalaga niyang <i class="trans-change">muli_ ang kanyang sarili <i class="trans-change">at muli niyang pahahabain ang kanyang buhok_. 
 
 
 

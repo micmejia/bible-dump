@@ -511,7 +511,7 @@ Now before the faith came, we were perpetually guarded under the Law, kept in cu
 
 
 
-So that the Law served [^a][to us Jews] as our trainer [our guardian, our guide to Christ, to lead us] until Christ [came], that we might be justified (declared righteous, put in right standing with God) by _and_ through faith. 
+So that the Law served [to us Jews] as our trainer [our guardian, our guide to Christ, to lead us] until Christ [came], that we might be justified (declared righteous, put in right standing with God) by _and_ through faith. 
 
 
 
@@ -595,7 +595,7 @@ For as many [of you] as were baptized into Christ [into a spiritual union and co
 
 
 
-There is [now no distinction] neither Jew nor Greek, there is neither slave nor free, there is not male [^b]and female; for you are all one in Christ Jesus. 
+There is [now no distinction] neither Jew nor Greek, there is neither slave nor free, there is not male and female; for you are all one in Christ Jesus. 
 
 
 

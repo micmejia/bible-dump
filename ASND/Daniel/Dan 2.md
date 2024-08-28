@@ -73,7 +73,7 @@ Noong pangalawang taon ng paghahari ni Nebucadnezar, nagkaroon siya ng mga panag
 
 
 
-Ipinatawag niya ang kanyang mga salamangkero, engkantador, mangkukulam, at mga astrologo[^a] para ipaliwanag nila ang kanyang mga panaginip. 
+Ipinatawag niya ang kanyang mga salamangkero, engkantador, mangkukulam, at mga astrologo para ipaliwanag nila ang kanyang mga panaginip. 
 
 
 
@@ -139,7 +139,7 @@ Sinabi niya sa kanila, "Nanaginip ako at binabagabag ako nito, kaya ipinatawag k
 
 
 
-Sumagot ang mga astrologo sa hari sa wikang Aramico,[^b] "Mahal na Hari, sabihin nʼyo po sa <i class="trans-change">amin na_ inyong mga lingkod ang inyong panaginip at ipapaliwanag namin sa inyo ang kahulugan nito." 
+Sumagot ang mga astrologo sa hari sa wikang Aramico, "Mahal na Hari, sabihin nʼyo po sa <i class="trans-change">amin na_ inyong mga lingkod ang inyong panaginip at ipapaliwanag namin sa inyo ang kahulugan nito." 
 
 
 
@@ -403,7 +403,7 @@ Napakahirap ng inyong hinihingi, Mahal na Hari. Ang mga dios lang ang makakagawa
 
 
 
-Dahil sa sagot nilang ito, galit na galit ang hari. At nag-utos siyang patayin ang lahat ng marurunong[^c] na mga tao sa Babilonia. 
+Dahil sa sagot nilang ito, galit na galit ang hari. At nag-utos siyang patayin ang lahat ng marurunong na mga tao sa Babilonia. 
 
 
 
@@ -535,7 +535,7 @@ Pagkatapos, pumunta si Daniel sa hari at hiniling niya na bigyan siya ng panahon
 
 
 
-Hiniling niya sa mga ito na manalangin para kaawaan sila ng Dios sa langit[^d] at para malaman nila ang kahulugan ng panaginip ng hari, upang hindi sila patayin kasama ng iba pang marurunong na tao sa Babilonia. 
+Hiniling niya sa mga ito na manalangin para kaawaan sila ng Dios sa langit at para malaman nila ang kahulugan ng panaginip ng hari, upang hindi sila patayin kasama ng iba pang marurunong na tao sa Babilonia. 
 
 
 
@@ -1030,7 +1030,7 @@ Ang ulo nito ay purong ginto, ang mga bisig at dibdib ay pilak, ang tiyan at hit
 
 
 
-Ang kanyang mga binti ay bakal at ang kanyang mga paa naman ay bakal at luwad.[^e] 
+Ang kanyang mga binti ay bakal at ang kanyang mga paa naman ay bakal at luwad. 
 
 
 
@@ -1162,7 +1162,7 @@ Agad namang nadurog ang <i class="trans-change">buong rebulto na gawa sa_ bakal,
 
 
 
-Mahal na Hari, kayo ang hari ng mga hari. Ginawa kayong hari ng Dios sa langit[^f] at binigyan ng kapangyarihan, kalakasan, at karangalan. 
+Mahal na Hari, kayo ang hari ng mga hari. Ginawa kayong hari ng Dios sa langit at binigyan ng kapangyarihan, kalakasan, at karangalan. 
 
 
 

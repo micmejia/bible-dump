@@ -40,7 +40,7 @@ next: ['Gen 5']
 
 
 
-Pagkatapos noon, sumiping si Adan sa asawa niyang si Eva at nagbuntis ito. Nang manganak si Eva, sinabi niya, "Nagkaroon ako ng anak na lalaki sa pamamagitan ng tulong ng Panginoon, kaya Cain ang ipapangalan ko sa kanya."[^a] 
+Pagkatapos noon, sumiping si Adan sa asawa niyang si Eva at nagbuntis ito. Nang manganak si Eva, sinabi niya, "Nagkaroon ako ng anak na lalaki sa pamamagitan ng tulong ng Panginoon, kaya Cain ang ipapangalan ko sa kanya." 
 
 
 
@@ -238,7 +238,7 @@ Kaya tinanong siya ng Panginoon, "Ano ba ang ikinagagalit mo? Bakit ka nakasiman
 
 
 
-Kung mabuti lang ang ginawa mo, maligaya ka[^b] sana. Pero mag-ingat ka! Dahil kung hindi mabuti ang ginagawa mo, ang kasalanan ay maghahari sa iyo. Sapagkat ang kasalanan ay katulad ng mabagsik na hayop na nagbabantay sa iyo para tuklawin ka. Kaya kailangang talunin mo ito." 
+Kung mabuti lang ang ginawa mo, maligaya ka sana. Pero mag-ingat ka! Dahil kung hindi mabuti ang ginagawa mo, ang kasalanan ay maghahari sa iyo. Sapagkat ang kasalanan ay katulad ng mabagsik na hayop na nagbabantay sa iyo para tuklawin ka. Kaya kailangang talunin mo ito." 
 
 
 
@@ -502,7 +502,7 @@ Itinataboy ninyo ako ngayon sa lupaing ito at sa inyong harapan. Wala na akong m
 
 
 
-Pero sinabi ng Panginoon kay Cain, "Hindi iyan mangyayari sa iyo! Sapagkat ang sinumang papatay sa iyo ay gagantihan ko ng pitong beses."[^c] Kaya nilagyan ng Panginoon ng palatandaan si Cain para hindi siya patayin ng kahit sinong makakakita sa kanya. 
+Pero sinabi ng Panginoon kay Cain, "Hindi iyan mangyayari sa iyo! Sapagkat ang sinumang papatay sa iyo ay gagantihan ko ng pitong beses." Kaya nilagyan ng Panginoon ng palatandaan si Cain para hindi siya patayin ng kahit sinong makakakita sa kanya. 
 
 
 
@@ -535,7 +535,7 @@ Pero sinabi ng Panginoon kay Cain, "Hindi iyan mangyayari sa iyo! Sapagkat ang s
 
 
 
-Pagkatapos, lumayo si Cain sa Panginoon at doon tumira sa lugar ng Nod,[^d] sa bandang silangan ng Eden. ## Ang mga Lahi ni Cain 
+Pagkatapos, lumayo si Cain sa Panginoon at doon tumira sa lugar ng Nod, sa bandang silangan ng Eden. ## Ang mga Lahi ni Cain 
 
 
 
@@ -832,7 +832,7 @@ Kung pitong beses ang tindi ng ganti sa taong pumatay kay Cain, 77 beses ang tin
 
 
 
-Sumiping muli si Adan kay Eva at nanganak ng isang lalaki at pinangalanan niya itong Set.[^e] Sinabi niya, "Muli akong binigyan ng Dios ng anak na lalaki bilang kapalit ni Abel na pinatay ni Cain." 
+Sumiping muli si Adan kay Eva at nanganak ng isang lalaki at pinangalanan niya itong Set. Sinabi niya, "Muli akong binigyan ng Dios ng anak na lalaki bilang kapalit ni Abel na pinatay ni Cain." 
 
 
 

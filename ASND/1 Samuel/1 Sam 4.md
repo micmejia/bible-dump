@@ -568,4 +568,4 @@ Nang panahon ding iyon, kabuwanan ng manugang ni Eli na asawa ni Finehas. Nang m
 
 
 
-Nang nag-aagaw buhay na siya, sinabi sa kanya ng mga manghihilot, "Lakasan mo ang loob mo. Lalaki ang anak mo." Pero hindi na siya sumagot. <sup class="versenum">21-22</sup><i class="trans-change">Bago siya namatay_, Icabod[^a] ang ipinangalan niya sa bata, dahil sinabi niya, "Wala na ang makapangyarihang presensya <i class="trans-change">ng Dios_ sa Israel." Sinabi niya ito dahil naagaw ang Kahon ng Dios at napatay ang asawa niya at biyenan niyang lalaki.
+Nang nag-aagaw buhay na siya, sinabi sa kanya ng mga manghihilot, "Lakasan mo ang loob mo. Lalaki ang anak mo." Pero hindi na siya sumagot. <sup class="versenum">21-22</sup><i class="trans-change">Bago siya namatay_, Icabod ang ipinangalan niya sa bata, dahil sinabi niya, "Wala na ang makapangyarihang presensya <i class="trans-change">ng Dios_ sa Israel." Sinabi niya ito dahil naagaw ang Kahon ng Dios at napatay ang asawa niya at biyenan niyang lalaki.

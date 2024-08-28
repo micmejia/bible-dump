@@ -667,7 +667,7 @@ Doon sa lambak, naghukay ng bagong balon ang mga alipin ni Isaac at nakatagpo si
 
 
 
-Pero nakipagtalo ang mga pastol na taga-Gerar at mga pastol ni Isaac na kanila raw ang balon na iyon. Kaya pinangalanan ni Isaac ang balon na Esek,[^a] dahil nakipagtalo ang mga taga-Gerar sa kanya. 
+Pero nakipagtalo ang mga pastol na taga-Gerar at mga pastol ni Isaac na kanila raw ang balon na iyon. Kaya pinangalanan ni Isaac ang balon na Esek, dahil nakipagtalo ang mga taga-Gerar sa kanya. 
 
 
 
@@ -700,7 +700,7 @@ Pero nakipagtalo ang mga pastol na taga-Gerar at mga pastol ni Isaac na kanila r
 
 
 
-Muling naghukay ang mga alipin ni Isaac ng ibang balon, pero pinag-awayan din nila ito ng mga taga-Gerar. Kaya pinangalanan ni Isaac ang balon na Sitna.[^b] 
+Muling naghukay ang mga alipin ni Isaac ng ibang balon, pero pinag-awayan din nila ito ng mga taga-Gerar. Kaya pinangalanan ni Isaac ang balon na Sitna. 
 
 
 
@@ -733,7 +733,7 @@ Muling naghukay ang mga alipin ni Isaac ng ibang balon, pero pinag-awayan din ni
 
 
 
-Umalis sina Isaac doon at muling naghukay ng panibagong balon. Hindi na nila ito pinag-awayan, kaya pinangalanan ito ni Isaac na Rehobot.[^c] Sapagkat sinabi niya, "Ngayoʼy binigyan tayo ng Panginoon ng malawak na lugar para lalo pa tayong dumami sa lugar na ito." 
+Umalis sina Isaac doon at muling naghukay ng panibagong balon. Hindi na nila ito pinag-awayan, kaya pinangalanan ito ni Isaac na Rehobot. Sapagkat sinabi niya, "Ngayoʼy binigyan tayo ng Panginoon ng malawak na lugar para lalo pa tayong dumami sa lugar na ito." 
 
 
 
@@ -1096,7 +1096,7 @@ Sa araw ding iyon, dumating ang mga alipin ni Isaac at ibinalita sa kanya na may
 
 
 
-Pinangalanan ni Isaac ang balon na iyon na Shiba. Kaya hanggang ngayon, ang lugar na iyon ay tinatawag na Beersheba.[^d] ## Nag-asawa si Esau ng Hindi Nila Kalahi 
+Pinangalanan ni Isaac ang balon na iyon na Shiba. Kaya hanggang ngayon, ang lugar na iyon ay tinatawag na Beersheba. ## Nag-asawa si Esau ng Hindi Nila Kalahi 
 
 
 

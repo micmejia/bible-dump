@@ -469,7 +469,7 @@ And Balaam rose up in the morning and saddled his donkey and went with the princ
 
 
 
-And God's anger was kindled because he went, and the [^a]Angel of the Lord stood in the way as an adversary against him. Now he was riding upon his donkey, and his two servants were with him. 
+And God's anger was kindled because he went, and the Angel of the Lord stood in the way as an adversary against him. Now he was riding upon his donkey, and his two servants were with him. 
 
 
 

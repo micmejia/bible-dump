@@ -91,7 +91,7 @@ But [inside] beyond the second curtain _or_ veil, [there stood another] tabernac
 
 
 
-It had the golden [^a]altar of incense and the ark (chest) of the covenant, covered over with wrought gold. This [ark] contained a golden jar which held the manna and the rod of Aaron that sprouted and the [two stone] slabs of the covenant [bearing the Ten Commandments]. 
+It had the golden altar of incense and the ark (chest) of the covenant, covered over with wrought gold. This [ark] contained a golden jar which held the manna and the rod of Aaron that sprouted and the [two stone] slabs of the covenant [bearing the Ten Commandments]. 
 
 
 
@@ -301,7 +301,7 @@ For if [the mere] sprinkling of unholy _and_ defiled persons with blood of goats
 
 
 
-How much more surely shall the blood of Christ, Who [^b]by virtue of [His] eternal Spirit [His own preexistent [^c]divine personality] has offered Himself as an unblemished sacrifice to God, purify our consciences from dead works _and_ lifeless observances to serve the [ever] living God? 
+How much more surely shall the blood of Christ, Who by virtue of [His] eternal Spirit [His own preexistent divine personality] has offered Himself as an unblemished sacrifice to God, purify our consciences from dead works _and_ lifeless observances to serve the [ever] living God? 
 
 
 
@@ -595,4 +595,4 @@ And just as it is appointed for [all] men once to die, and after that the [certa
 
 
 
-Even so it is that Christ, having been offered to take upon Himself _and_ bear as a burden the sins of many once _and_ [^d]once for all, will appear a second time, not to carry any burden of sin _nor_ to deal with sin, but to bring to full salvation those who are [eagerly, constantly, and patiently] waiting for _and_ expecting Him.
+Even so it is that Christ, having been offered to take upon Himself _and_ bear as a burden the sins of many once _and_ once for all, will appear a second time, not to carry any burden of sin _nor_ to deal with sin, but to bring to full salvation those who are [eagerly, constantly, and patiently] waiting for _and_ expecting Him.

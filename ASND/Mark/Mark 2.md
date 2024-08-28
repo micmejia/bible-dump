@@ -634,7 +634,7 @@ Ngunit darating ang araw na kukunin sa kanila ang lalaking ikakasal, at saka sil
 
 
 
-<i class="trans-change">Sinabi pa ni Jesus,_ "Walang nagtatagpi ng bagong tela sa lumang damit, dahil uurong[^a] ang bagong tela <i class="trans-change">kapag nilabhan_ at lalo pang lalaki ang punit. 
+<i class="trans-change">Sinabi pa ni Jesus,_ "Walang nagtatagpi ng bagong tela sa lumang damit, dahil uurong ang bagong tela <i class="trans-change">kapag nilabhan_ at lalo pang lalaki ang punit. 
 
 
 
@@ -667,7 +667,7 @@ Ngunit darating ang araw na kukunin sa kanila ang lalaking ikakasal, at saka sil
 
 
 
-Wala ring naglalagay ng bagong alak sa lumang sisidlang-balat, dahil puputok ang sisidlan at matatapon ang alak, at pareho itong hindi na mapapakinabangan. Sa halip, inilalagay ang bagong alak sa bagong sisidlang-balat."[^b] ## Ang Tanong tungkol sa Araw ng Pamamahinga 
+Wala ring naglalagay ng bagong alak sa lumang sisidlang-balat, dahil puputok ang sisidlan at matatapon ang alak, at pareho itong hindi na mapapakinabangan. Sa halip, inilalagay ang bagong alak sa bagong sisidlang-balat." ## Ang Tanong tungkol sa Araw ng Pamamahinga 
 
 
 

@@ -13,13 +13,13 @@ next: ['1 Kgs 9']
 Now Solomon assembled the elders of Israel and all the heads of the tribes, the chief fathers of the children of Israel, to King Solomon in Jerusalem, that they might bring up the ark of the covenant of the Lord from the City of David, which _is_ Zion. 
 
 ###### 2 
-Therefore all the men of Israel assembled with King Solomon at the feast in the month of [^a]Ethanim, which _is_ the seventh month. 
+Therefore all the men of Israel assembled with King Solomon at the feast in the month of Ethanim, which _is_ the seventh month. 
 
 ###### 3 
 So all the elders of Israel came, and the priests took up the ark. 
 
 ###### 4 
-Then they brought up the ark of the Lord, the [^b]tabernacle of meeting, and all the holy furnishings that _were_ in the tabernacle. The priests and the Levites brought them up. 
+Then they brought up the ark of the Lord, the tabernacle of meeting, and all the holy furnishings that _were_ in the tabernacle. The priests and the Levites brought them up. 
 
 ###### 5 
 Also King Solomon, and all the congregation of Israel who were assembled with him, _were_ with him before the ark, sacrificing sheep and oxen that could not be counted or numbered for multitude. 
@@ -31,7 +31,7 @@ Then the priests brought in the ark of the covenant of the Lord to its place, in
 For the cherubim spread _their_ two wings over the place of the ark, and the cherubim overshadowed the ark and its poles. 
 
 ###### 8 
-The poles extended so that the [^c]ends of the poles could be seen from the holy _place,_ in front of the inner sanctuary; but they could not be seen from outside. And they are there to this day. 
+The poles extended so that the ends of the poles could be seen from the holy _place,_ in front of the inner sanctuary; but they could not be seen from outside. And they are there to this day. 
 
 ###### 9 
 Nothing _was_ in the ark except the two tablets of stone which Moses put there at Horeb, when the Lord made _a covenant_ with the children of Israel, when they came out of the land of Egypt. 
@@ -58,7 +58,7 @@ And he said: "Blessed _be_ the Lord God of Israel, who spoke with His mouth to m
 'Since the day that I brought My people Israel out of Egypt, I have chosen no city from any tribe of Israel _in which_ to build a house, that My name might be there; but I chose David to be over My people Israel.' 
 
 ###### 17 
-Now it was in the heart of my father David to build a [^d]temple for the name of the Lord God of Israel. 
+Now it was in the heart of my father David to build a temple for the name of the Lord God of Israel. 
 
 ###### 18 
 But the Lord said to my father David, 'Whereas it was in your heart to build a temple for My name, you did well that it was in your heart. 
@@ -67,7 +67,7 @@ But the Lord said to my father David, 'Whereas it was in your heart to build a t
 Nevertheless you shall not build the temple, but your son who will come from your body, he shall build the temple for My name.' 
 
 ###### 20 
-So the Lord has fulfilled His word which He spoke; and I have [^e]filled the position of my father David, and sit on the throne of Israel, as the Lord promised; and I have built a temple for the name of the Lord God of Israel. 
+So the Lord has fulfilled His word which He spoke; and I have filled the position of my father David, and sit on the throne of Israel, as the Lord promised; and I have built a temple for the name of the Lord God of Israel. 
 
 ###### 21 
 And there I have made a place for the ark, in which _is_ the covenant of the Lord which He made with our fathers, when He brought them out of the land of Egypt." ## Solomon's Prayer of Dedication 
@@ -94,7 +94,7 @@ And now I pray, O God of Israel, let Your word come true, which You have spoken 
 Yet regard the prayer of Your servant and his supplication, O Lord my God, and listen to the cry and the prayer which Your servant is praying before You today: 
 
 ###### 29 
-that Your eyes may be open toward this [^f]temple night and day, toward the place of which You said, 'My name shall be there,' that You may hear the prayer which Your servant makes toward this place. 
+that Your eyes may be open toward this temple night and day, toward the place of which You said, 'My name shall be there,' that You may hear the prayer which Your servant makes toward this place. 
 
 ###### 30 
 And may You hear the supplication of Your servant and of Your people Israel, when they pray toward this place. Hear in heaven Your dwelling place; and when You hear, forgive. 
@@ -118,7 +118,7 @@ then hear in heaven, and forgive the sin of Your people Israel, and bring them b
 then hear in heaven, and forgive the sin of Your servants, Your people Israel, that You may teach them the good way in which they should walk; and send rain on Your land which You have given to Your people as an inheritance. 
 
 ###### 37 
-"When there is famine in the land, pestilence _or_ blight _or_ mildew, locusts _or_ grasshoppers; when their enemy besieges them in the land of their [^g]cities; whatever plague or whatever sickness _there is;_ 
+"When there is famine in the land, pestilence _or_ blight _or_ mildew, locusts _or_ grasshoppers; when their enemy besieges them in the land of their cities; whatever plague or whatever sickness _there is;_ 
 
 ###### 38 
 whatever prayer, whatever supplication is made by anyone, _or_ by all Your people Israel, when each one knows the plague of his own heart, and spreads out his hands toward this temple: 
@@ -142,19 +142,19 @@ hear in heaven Your dwelling place, and do according to all for which the foreig
 "When Your people go out to battle against their enemy, wherever You send them, and when they pray to the Lord toward the city which You have chosen and the temple which I have built for Your name, 
 
 ###### 45 
-then hear in heaven their prayer and their supplication, and maintain their [^h]cause. 
+then hear in heaven their prayer and their supplication, and maintain their cause. 
 
 ###### 46 
 "When they sin against You (for _there is_ no one who does not sin), and You become angry with them and deliver them to the enemy, and they take them captive to the land of the enemy, far or near; 
 
 ###### 47 
-_yet_ when they [^i]come to themselves in the land where they were carried captive, and repent, and make supplication to You in the land of those who took them captive, saying, 'We have sinned and done wrong, we have committed wickedness'; 
+_yet_ when they come to themselves in the land where they were carried captive, and repent, and make supplication to You in the land of those who took them captive, saying, 'We have sinned and done wrong, we have committed wickedness'; 
 
 ###### 48 
 and _when_ they return to You with all their heart and with all their soul in the land of their enemies who led them away captive, and pray to You toward their land which You gave to their fathers, the city which You have chosen and the temple which I have built for Your name: 
 
 ###### 49 
-then hear in heaven Your dwelling place their prayer and their supplication, and maintain their [^j]cause, 
+then hear in heaven Your dwelling place their prayer and their supplication, and maintain their cause, 
 
 ###### 50 
 and forgive Your people who have sinned against You, and all their transgressions which they have transgressed against You; and grant them compassion before those who took them captive, that they may have compassion on them 
@@ -175,7 +175,7 @@ And so it was, when Solomon had finished praying all this prayer and supplicatio
 Then he stood and blessed all the assembly of Israel with a loud voice, saying: 
 
 ###### 56 
-"Blessed _be_ the Lord, who has given rest[^k] to His people Israel, according to all that He promised. There has not failed one word of all His good promise, which He promised through His servant Moses. 
+"Blessed _be_ the Lord, who has given rest to His people Israel, according to all that He promised. There has not failed one word of all His good promise, which He promised through His servant Moses. 
 
 ###### 57 
 May the Lord our God be with us, as He was with our fathers. May He not leave us nor forsake us, 
@@ -190,7 +190,7 @@ And may these words of mine, with which I have made supplication before the Lord
 that all the peoples of the earth may know that the Lord _is_ God; _there is_ no other. 
 
 ###### 61 
-Let your heart therefore be [^l]loyal to the Lord our God, to walk in His statutes and keep His commandments, as at this day." ## Solomon Dedicates the Temple 
+Let your heart therefore be loyal to the Lord our God, to walk in His statutes and keep His commandments, as at this day." ## Solomon Dedicates the Temple 
 
 ###### 62 
 Then the king and all Israel with him offered sacrifices before the Lord. 
@@ -205,4 +205,4 @@ On the same day the king consecrated the middle of the court that _was_ in front
 At that time Solomon held a feast, and all Israel with him, a great assembly from the entrance of Hamath to the Brook of Egypt, before the Lord our God, seven days and seven _more_ days--fourteen days. 
 
 ###### 66 
-On the eighth day he sent the people away; and they [^m]blessed the king, and went to their tents joyful and glad of heart for all the good that the Lord had done for His servant David, and for Israel His people.
+On the eighth day he sent the people away; and they blessed the king, and went to their tents joyful and glad of heart for all the good that the Lord had done for His servant David, and for Israel His people.

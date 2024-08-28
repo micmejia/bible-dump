@@ -40,7 +40,7 @@ next: ['Luke 23']
 
 
 
-Nalalapit na noon ang Pista ng Tinapay na Walang Pampaalsa na tinatawag ding Pista ng Paglampas ng Anghel.[^a] 
+Nalalapit na noon ang Pista ng Tinapay na Walang Pampaalsa na tinatawag ding Pista ng Paglampas ng Anghel. 
 
 
 
@@ -568,7 +568,7 @@ Sapagkat sinasabi ko sa inyo na hindi na ako muling kakain nito hanggang sa matu
 
 
 
-Pagkatapos, kumuha siya ng inumin,[^b] nagpasalamat sa Dios, at sinabi sa kanila, "Kunin ninyo ito at paghati-hatian. 
+Pagkatapos, kumuha siya ng inumin, nagpasalamat sa Dios, at sinabi sa kanila, "Kunin ninyo ito at paghati-hatian. 
 
 
 
@@ -898,7 +898,7 @@ Ngunit hindi kayo dapat maging ganoon. Ang mas mataas ay dapat magpakababa, at a
 
 
 
-Sapagkat sino ba ang mas mataas, ang pinaglilingkuran[^c] o ang naglilingkod? Siyempre, ang pinaglilingkuran. Ngunit naglilingkod ako sa inyo <i class="trans-change">kahit na ako ang Panginoon ninyo_." 
+Sapagkat sino ba ang mas mataas, ang pinaglilingkuran o ang naglilingkod? Siyempre, ang pinaglilingkuran. Ngunit naglilingkod ako sa inyo <i class="trans-change">kahit na ako ang Panginoon ninyo_." 
 
 
 
@@ -1228,7 +1228,7 @@ Pagkatapos, sinabi ni Jesus sa mga tagasunod niya, "Noong suguin ko kayo nang wa
 
 
 
-Sapagkat sinasabi ko sa inyo na kailangang matupad ang sinasabing ito ng Kasulatan tungkol sa akin: 'Itinuring siyang isang kriminal.'[^d] At natutupad na ito ngayon!" 
+Sapagkat sinasabi ko sa inyo na kailangang matupad ang sinasabing ito ng Kasulatan tungkol sa akin: 'Itinuring siyang isang kriminal.' At natutupad na ito ngayon!" 
 
 
 
@@ -1360,7 +1360,7 @@ Pagdating nila roon, sinabi niya sa kanila, "Manalangin kayo upang hindi kayo ma
 
 
 
-Iniwan niya ang mga tagasunod niya at lumayo nang kaunti.[^e] Pagkatapos, lumuhod siya at nanalangin, 
+Iniwan niya ang mga tagasunod niya at lumayo nang kaunti. Pagkatapos, lumuhod siya at nanalangin, 
 
 
 
@@ -1393,7 +1393,7 @@ Iniwan niya ang mga tagasunod niya at lumayo nang kaunti.[^e] Pagkatapos, lumuho
 
 
 
-"Ama, kung maaari ay ilayo nʼyo sana sa akin ang mga paghihirap na darating.[^f] Ngunit hindi ang kalooban ko ang masunod kundi ang kalooban ninyo." 
+"Ama, kung maaari ay ilayo nʼyo sana sa akin ang mga paghihirap na darating. Ngunit hindi ang kalooban ko ang masunod kundi ang kalooban ninyo." 
 
 
 

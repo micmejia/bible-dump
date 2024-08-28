@@ -73,7 +73,7 @@ Dumating ang panahon na si Juan na tagapagbautismo ay pumunta at nangaral sa ila
 
 
 
-Ito ang kanyang sinasabi, "Magsisi na kayo sa inyong mga kasalanan, dahil malapit na[^a] ang paghahari ng Dios."[^b] 
+Ito ang kanyang sinasabi, "Magsisi na kayo sa inyong mga kasalanan, dahil malapit na ang paghahari ng Dios." 
 
 
 
@@ -106,7 +106,7 @@ Ito ang kanyang sinasabi, "Magsisi na kayo sa inyong mga kasalanan, dahil malapi
 
 
 
-Si Juan ang tinutukoy ni Propeta Isaias nang sabihin niya, "Maririnig ang sigaw ng isang tao sa ilang, na nagsasabi: 'Ihanda ninyo ang daan para sa Panginoon. Tuwirin ninyo ang mga landas na kanyang dadaanan.' "[^c] 
+Si Juan ang tinutukoy ni Propeta Isaias nang sabihin niya, "Maririnig ang sigaw ng isang tao sa ilang, na nagsasabi: 'Ihanda ninyo ang daan para sa Panginoon. Tuwirin ninyo ang mga landas na kanyang dadaanan.' " 
 
 
 
@@ -370,7 +370,7 @@ Tandaan ninyo, ngayon pa lang ay nakaamba na ang palakol para putulin ang mga pu
 
 
 
-"Binabautismuhan ko kayo sa tubig bilang tanda ng inyong pagsisisi, ngunit may isang darating na kasunod ko, mas makapangyarihan siya kaysa sa akin. Ni hindi ako karapat-dapat na maging alipin niya.[^d] Babautismuhan niya kayo sa Banal na Espiritu at sa apoy. 
+"Binabautismuhan ko kayo sa tubig bilang tanda ng inyong pagsisisi, ngunit may isang darating na kasunod ko, mas makapangyarihan siya kaysa sa akin. Ni hindi ako karapat-dapat na maging alipin niya. Babautismuhan niya kayo sa Banal na Espiritu at sa apoy. 
 
 
 

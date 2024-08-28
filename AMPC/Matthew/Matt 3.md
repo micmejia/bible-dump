@@ -49,7 +49,7 @@ In those days there appeared John the Baptist, preaching in the Wilderness (Dese
 
 
 
-And saying, Repent ([^a]think differently; change your mind, regretting your sins and changing your conduct), for the kingdom of heaven is at hand. 
+And saying, Repent (think differently; change your mind, regretting your sins and changing your conduct), for the kingdom of heaven is at hand. 
 
 
 
@@ -70,7 +70,7 @@ And saying, Repent ([^a]think differently; change your mind, regretting your sin
 
 
 
-This is he who was mentioned by the prophet Isaiah when he said, The voice of one crying in the wilderness (shouting in the desert), Prepare the road for the Lord, make His highways straight (level, [^b]direct). 
+This is he who was mentioned by the prophet Isaiah when he said, The voice of one crying in the wilderness (shouting in the desert), Prepare the road for the Lord, make His highways straight (level, direct). 
 
 
 
@@ -238,7 +238,7 @@ And already the ax is lying at the root of the trees; every tree therefore that 
 
 
 
-I indeed baptize you [^c]in (with) water [^d]because of repentance [that is, because of your [^e]changing your minds for the better, heartily amending your ways, with abhorrence of your past sins]. But He Who is coming after me is mightier than I, Whose sandals I am not worthy _or_ fit to take off _or_ carry; He will baptize you with the Holy Spirit and with fire. 
+I indeed baptize you in (with) water because of repentance [that is, because of your changing your minds for the better, heartily amending your ways, with abhorrence of your past sins]. But He Who is coming after me is mightier than I, Whose sandals I am not worthy _or_ fit to take off _or_ carry; He will baptize you with the Holy Spirit and with fire. 
 
 
 
@@ -301,7 +301,7 @@ Then Jesus came from Galilee to the Jordan to John to be baptized by him.
 
 
 
-But John [^f]protested strenuously, having in mind to prevent Him, saying, It is I who have need to be baptized by You, and do You come to me? 
+But John protested strenuously, having in mind to prevent Him, saying, It is I who have need to be baptized by You, and do You come to me? 
 
 
 
@@ -322,7 +322,7 @@ But John [^f]protested strenuously, having in mind to prevent Him, saying, It is
 
 
 
-But Jesus replied to him, [^g]Permit it just now; for this is the fitting way for [both of] us to fulfill all righteousness [that is, to [^h]perform completely whatever is right]. Then he permitted Him. 
+But Jesus replied to him, Permit it just now; for this is the fitting way for [both of] us to fulfill all righteousness [that is, to perform completely whatever is right]. Then he permitted Him. 
 
 
 

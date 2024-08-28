@@ -469,7 +469,7 @@ Ako ang tumawag kay Cyrus para isagawa ang aking layunin. Gagawin kong tama ang 
 
 
 
-Sinabi ng Panginoon <i class="trans-change">sa Israel_, "Masasakop mo ang mga taga-Egipto, ang mga taga-Etiopia[^a] at ang mga taga-Sabea na ang mga lalaki ay matatangkad. Paparito sila sa iyo na dala ang kanilang mga kayamanan at mga ani. Silaʼy magiging mga bihag mo. Luluhod sila sa iyo at magsasabi, 'Ang Dios ay totoong kasama mo, at wala nang ibang Dios!' " 
+Sinabi ng Panginoon <i class="trans-change">sa Israel_, "Masasakop mo ang mga taga-Egipto, ang mga taga-Etiopia at ang mga taga-Sabea na ang mga lalaki ay matatangkad. Paparito sila sa iyo na dala ang kanilang mga kayamanan at mga ani. Silaʼy magiging mga bihag mo. Luluhod sila sa iyo at magsasabi, 'Ang Dios ay totoong kasama mo, at wala nang ibang Dios!' " 
 
 
 
@@ -733,7 +733,7 @@ Isangguni ninyo sa isaʼt isa, at ihayag ang inyong usapin. Sino ang humula noon
 
 
 
-"Lumapit kayo sa akin para maligtas kayo, kayong lahat sa buong mundo.[^b] Sapagkat ako ang Dios at maliban sa akin ay wala nang iba pa. 
+"Lumapit kayo sa akin para maligtas kayo, kayong lahat sa buong mundo. Sapagkat ako ang Dios at maliban sa akin ay wala nang iba pa. 
 
 
 

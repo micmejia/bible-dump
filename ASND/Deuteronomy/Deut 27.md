@@ -106,7 +106,7 @@ Kapag nakatawid na kayo sa Jordan, doon sa lupaing ibinibigay sa inyo ng Pangino
 
 
 
-Isulat ninyo sa mga batong ito ang lahat ng kautusan kapag nakapasok na kayo sa maganda at masaganang lupain[^a] na ibinibigay sa inyo ng Panginoon na inyong Dios, ang Dios ng inyong mga ninuno, ayon sa ipinangako niya sa inyo. 
+Isulat ninyo sa mga batong ito ang lahat ng kautusan kapag nakapasok na kayo sa maganda at masaganang lupain na ibinibigay sa inyo ng Panginoon na inyong Dios, ang Dios ng inyong mga ninuno, ayon sa ipinangako niya sa inyo. 
 
 
 
@@ -502,7 +502,7 @@ At ito <i class="trans-change">ang mga lahi_ na tatayo sa Bundok ng Ebal para su
 
 
 
-"Sumpain ang taong gagawa ng anumang mga dios-diosan na gawa sa bato o tanso at sasambahin ito kahit palihim. Sapagkat kinasusuklaman ng Panginoon ang dios-diosang ginawa ng tao." At sasagot ang lahat ng tao, "Amen!"[^b] 
+"Sumpain ang taong gagawa ng anumang mga dios-diosan na gawa sa bato o tanso at sasambahin ito kahit palihim. Sapagkat kinasusuklaman ng Panginoon ang dios-diosang ginawa ng tao." At sasagot ang lahat ng tao, "Amen!" 
 
 
 

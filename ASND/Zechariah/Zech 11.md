@@ -73,7 +73,7 @@ Kayong mga taga-Lebanon, buksan ninyo ang mga pintuan ng inyong lungsod at nang 
 
 
 
-Kung paanong nasira ang inyong mga magaganda at mayayabong na mga puno ng sedro, ganoon din masisira ang mga puno ng sipres[^a] at mga puno ng ensina ng Bashan.[^b] 
+Kung paanong nasira ang inyong mga magaganda at mayayabong na mga puno ng sedro, ganoon din masisira ang mga puno ng sipres at mga puno ng ensina ng Bashan. 
 
 
 
@@ -106,7 +106,7 @@ Kung paanong nasira ang inyong mga magaganda at mayayabong na mga puno ng sedro,
 
 
 
-Umiiyak ang mga pastol dahil nasira ang kanilang berdeng pastulan. Pati ang mga leon[^c] ay umaatungal dahil nasira ang kagubatan ng Jordan <i class="trans-change">na kanilang tinitirhan_. ## Ang Dalawang Pastol 
+Umiiyak ang mga pastol dahil nasira ang kanilang berdeng pastulan. Pati ang mga leon ay umaatungal dahil nasira ang kagubatan ng Jordan <i class="trans-change">na kanilang tinitirhan_. ## Ang Dalawang Pastol 
 
 
 
@@ -139,7 +139,7 @@ Umiiyak ang mga pastol dahil nasira ang kanilang berdeng pastulan. Pati ang mga 
 
 
 
-Ito ang sinabi ng Panginoon kong Dios: "Alagaan mo ang mga tupang[^d] kakatayin. 
+Ito ang sinabi ng Panginoon kong Dios: "Alagaan mo ang mga tupang kakatayin. 
 
 
 
@@ -205,7 +205,7 @@ Ang mga bumibili at kumakatay sa kanila ay hindi pinarurusahan. Ang mga nagtitin
 
 
 
-"<i class="trans-change">Alagaan mo ang aking mga mamamayan,_ dahil <i class="trans-change">ako,_ ang Panginoon, ay nagsasabing hindi ko na kahahabagan ang mga tao sa mundo.[^e] Ako mismo ang uudyok sa bawat tao na magpasakop sa kanyang kapwa at sa kanyang hari. At silang mga namamahala ay magdadala ng kapahamakan sa buong mundo, at hindi ko ililigtas ang mga tao mula sa kanilang mga kamay." 
+"<i class="trans-change">Alagaan mo ang aking mga mamamayan,_ dahil <i class="trans-change">ako,_ ang Panginoon, ay nagsasabing hindi ko na kahahabagan ang mga tao sa mundo. Ako mismo ang uudyok sa bawat tao na magpasakop sa kanyang kapwa at sa kanyang hari. At silang mga namamahala ay magdadala ng kapahamakan sa buong mundo, at hindi ko ililigtas ang mga tao mula sa kanilang mga kamay." 
 
 
 
@@ -238,7 +238,7 @@ Ang mga bumibili at kumakatay sa kanila ay hindi pinarurusahan. Ang mga nagtitin
 
 
 
-Kaya inalagaan ko ang mga tupang kakatayin ng mga nagbebenta ng mga tupa.[^f] Kumuha ako ng dalawang tungkod; ang isa ay tinawag kong Kabutihan[^g] at ang isa naman ay tinawag kong Pagkakaisa. 
+Kaya inalagaan ko ang mga tupang kakatayin ng mga nagbebenta ng mga tupa. Kumuha ako ng dalawang tungkod; ang isa ay tinawag kong Kabutihan at ang isa naman ay tinawag kong Pagkakaisa. 
 
 
 
@@ -271,7 +271,7 @@ Kaya inalagaan ko ang mga tupang kakatayin ng mga nagbebenta ng mga tupa.[^f] Ku
 
 
 
-Pinaalis ko ang tatlong pastol sa loob lamang ng isang buwan. Naubos na ang pasensya ko sa kanila,[^h] at sila rin ay galit sa akin. 
+Pinaalis ko ang tatlong pastol sa loob lamang ng isang buwan. Naubos na ang pasensya ko sa kanila, at sila rin ay galit sa akin. 
 
 
 
@@ -370,7 +370,7 @@ Pagkatapos, kinuha ko ang tungkod na tinatawag na Kabutihan at binali ko upang i
 
 
 
-Kaya ng araw ding iyon, ipinawalang-bisa ang kasunduan. At nalaman ng mga nagbebenta ng mga tupa[^i] na nanonood sa akin na may mensahe ang Panginoon sa mga ginagawa kong ito. 
+Kaya ng araw ding iyon, ipinawalang-bisa ang kasunduan. At nalaman ng mga nagbebenta ng mga tupa na nanonood sa akin na may mensahe ang Panginoon sa mga ginagawa kong ito. 
 
 
 
@@ -436,7 +436,7 @@ Sinabi ko sa kanila, "Kung sa palagay ninyo ay dapat akong bigyan ng sahod, ibig
 
 
 
-Sinabi ng Panginoon sa akin, "Ilagay mo ang pilak na iyan sa kabang-yaman[^j] <i class="trans-change">ng templo_." Kaya kinuha ko ang 30 pirasong pilak, na inaakala nilang sapat na bilang aking sahod, at inilagay ko iyon sa kabang-yaman ng templo ng Panginoon. 
+Sinabi ng Panginoon sa akin, "Ilagay mo ang pilak na iyan sa kabang-yaman <i class="trans-change">ng templo_." Kaya kinuha ko ang 30 pirasong pilak, na inaakala nilang sapat na bilang aking sahod, at inilagay ko iyon sa kabang-yaman ng templo ng Panginoon. 
 
 
 
@@ -535,7 +535,7 @@ Sinabing muli ng Panginoon sa akin, "Magkunwari kang isang walang kwentang pasto
 
 
 
-Sapagkat may ilalagay akong pinuno sa Israel na ang katulad ay isang <i class="trans-change">walang kwentang_ pastol. Hindi niya tutulungan ang mga tupang halos mamamatay na,[^k] o hahanapin ang mga nawawala,[^l] o gagamutin ang mga sugatan, o pakakainin ang mga payat. Ngunit kakainin niya ang karne ng matatabang tupa at aalisin ang mga kuko nito. 
+Sapagkat may ilalagay akong pinuno sa Israel na ang katulad ay isang <i class="trans-change">walang kwentang_ pastol. Hindi niya tutulungan ang mga tupang halos mamamatay na, o hahanapin ang mga nawawala, o gagamutin ang mga sugatan, o pakakainin ang mga payat. Ngunit kakainin niya ang karne ng matatabang tupa at aalisin ang mga kuko nito. 
 
 
 

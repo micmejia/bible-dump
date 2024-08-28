@@ -468,7 +468,7 @@ Maraming Israelita ang panunumbalikin niya sa Panginoon na kanilang Dios.
 
 
 
-Mauuna siya sa Panginoon upang ihanda ang mga tao sa pagdating ng Panginoon. Gagawin niya ito sa tulong ng <i class="trans-change">Banal na_ Espiritu at sa pamamagitan ng kapangyarihang katulad ng kay Elias <i class="trans-change">noon_. Tuturuan niya ang mga magulang[^a] na mahalin ang kanilang mga anak, at ibabalik niya sa matuwid na pag-iisip ang mga taong masuwayin <i class="trans-change">sa Dios_." 
+Mauuna siya sa Panginoon upang ihanda ang mga tao sa pagdating ng Panginoon. Gagawin niya ito sa tulong ng <i class="trans-change">Banal na_ Espiritu at sa pamamagitan ng kapangyarihang katulad ng kay Elias <i class="trans-change">noon_. Tuturuan niya ang mga magulang na mahalin ang kanilang mga anak, at ibabalik niya sa matuwid na pag-iisip ang mga taong masuwayin <i class="trans-change">sa Dios_." 
 
 
 
@@ -798,7 +798,7 @@ Nang ikaanim na buwan <i class="trans-change">ng pagbubuntis ni Elizabet_, inutu
 
 
 
-Pinapunta siya sa isang birhen[^b] na ang pangalan ay Maria. Nakatakda nang ikasal si Maria kay Jose na mula sa lahi ni <i class="trans-change">Haring_ David. 
+Pinapunta siya sa isang birhen na ang pangalan ay Maria. Nakatakda nang ikasal si Maria kay Jose na mula sa lahi ni <i class="trans-change">Haring_ David. 
 
 
 
@@ -831,7 +831,7 @@ Pinapunta siya sa isang birhen[^b] na ang pangalan ay Maria. Nakatakda nang ikas
 
 
 
-Sinabi ni Gabriel kay Maria, "Matuwa ka,[^c] <i class="trans-change">Maria,_ ikaw na pinagpala <i class="trans-change">ng Dios_. Sumasaiyo ang Panginoon." 
+Sinabi ni Gabriel kay Maria, "Matuwa ka, <i class="trans-change">Maria,_ ikaw na pinagpala <i class="trans-change">ng Dios_. Sumasaiyo ang Panginoon." 
 
 
 

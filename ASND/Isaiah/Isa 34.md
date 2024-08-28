@@ -304,7 +304,7 @@ Sapagkat ang Panginoon ay may itinakdang araw upang maghiganti sa kanyang mga ka
 
 
 
-Ang mga sapa at ang lupa sa Edom ay masisira.[^a] Ang buong bansa ay masusunog at hindi na mapapakinabangan. 
+Ang mga sapa at ang lupa sa Edom ay masisira. Ang buong bansa ay masusunog at hindi na mapapakinabangan. 
 
 
 
@@ -535,7 +535,7 @@ Ang mga kuwago ay magpupugad doon, mangingitlog, mamimisa, at iingatan nila ang 
 
 
 
-Tingnan ninyo ang aklat ng Panginoon at basahin. <i class="trans-change">Wala ni isa man sa mga sinabi ko ang hindi matutupad_. Walang mawawala ni isa man sa mga hayop na iyon, at wala ni isa man sa mga ito ang walang kapares, sapagkat iyan ang ipinasya ng Panginoon, at siya mismo[^b] ang magtitipon sa kanila. 
+Tingnan ninyo ang aklat ng Panginoon at basahin. <i class="trans-change">Wala ni isa man sa mga sinabi ko ang hindi matutupad_. Walang mawawala ni isa man sa mga hayop na iyon, at wala ni isa man sa mga ito ang walang kapares, sapagkat iyan ang ipinasya ng Panginoon, at siya mismo ang magtitipon sa kanila. 
 
 
 

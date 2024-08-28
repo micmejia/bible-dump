@@ -139,7 +139,7 @@ kundi payapa kang mamamatay. Ang mga mamamayan moʼy magsusunog ng mga insenso p
 
 
 
-Pagkatapos, pumunta si Jeremias sa Jerusalem, at sinabi ang lahat ng ito kay Haring Zedekia.[^a] 
+Pagkatapos, pumunta si Jeremias sa Jerusalem, at sinabi ang lahat ng ito kay Haring Zedekia. 
 
 
 
@@ -436,7 +436,7 @@ Pero nagbago ang inyong mga isip at inilagay ninyo ako sa kahihiyan. Inalipin ul
 
 
 
-"Kaya <i class="trans-change">ako,_ ang Panginoon ay nagsasabing dahil hindi ninyo ako sinunod at hindi ninyo pinalaya ang inyong mga alipin na mga kababayan ninyo, bibigyan ko kayo ng kalayaan – ang kalayaan na mamatay sa digmaan, sa gutom at sa sakit. Kayoʼy gagawin kong kasuklam-suklam sa paningin ng lahat ng kaharian sa daigdig. <sup class="versenum">18-19</sup>Ang mga pinuno ng Juda at Jerusalem, at ang mga namamahala sa palasyo, pati ang mga pari at ang mga mamamayan ay nakipagkasundo sa akin, at pinatunayan ito sa pamamagitan ng paghati ng guya,[^b] at ang bawat isaʼy dumaan sa pagitan nito. Pero hindi nila tinupad ang nakasaad doon sa kasunduan kaya gagawin ko sa kanila ang ginawa nila sa guyang pinatay at hinati. 
+"Kaya <i class="trans-change">ako,_ ang Panginoon ay nagsasabing dahil hindi ninyo ako sinunod at hindi ninyo pinalaya ang inyong mga alipin na mga kababayan ninyo, bibigyan ko kayo ng kalayaan – ang kalayaan na mamatay sa digmaan, sa gutom at sa sakit. Kayoʼy gagawin kong kasuklam-suklam sa paningin ng lahat ng kaharian sa daigdig. <sup class="versenum">18-19</sup>Ang mga pinuno ng Juda at Jerusalem, at ang mga namamahala sa palasyo, pati ang mga pari at ang mga mamamayan ay nakipagkasundo sa akin, at pinatunayan ito sa pamamagitan ng paghati ng guya, at ang bawat isaʼy dumaan sa pagitan nito. Pero hindi nila tinupad ang nakasaad doon sa kasunduan kaya gagawin ko sa kanila ang ginawa nila sa guyang pinatay at hinati. 
 
 
 

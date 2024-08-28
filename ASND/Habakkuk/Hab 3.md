@@ -39,7 +39,7 @@ up: ['Habakkuk']
 
 
 
-Ito ang panalangin ni Propeta Habakuk:[^a] 
+Ito ang panalangin ni Propeta Habakuk: 
 
 
 
@@ -105,7 +105,7 @@ Ito ang panalangin ni Propeta Habakuk:[^a]
 
 
 
-"Ikaw ang Banal na Dios na darating[^b] mula sa Teman at sa Bundok ng Paran.[^c] At ang inyong kadakilaan ay makikita sa kalangitan, at dahil dito pupurihin kayo ng mga tao sa mundo. 
+"Ikaw ang Banal na Dios na darating mula sa Teman at sa Bundok ng Paran. At ang inyong kadakilaan ay makikita sa kalangitan, at dahil dito pupurihin kayo ng mga tao sa mundo. 
 
 
 
@@ -303,7 +303,7 @@ Ang mga bundok <i class="trans-change">ay parang mga tao na_ nanginig nang makit
 
 
 
-Tumigil ang araw at ang buwan sa kanilang kinaroroonan sa kislap ng nagliliparan nʼyong pana at kumikinang nʼyong sibat.[^d] 
+Tumigil ang araw at ang buwan sa kanilang kinaroroonan sa kislap ng nagliliparan nʼyong pana at kumikinang nʼyong sibat. 
 
 
 
@@ -567,4 +567,4 @@ magagalak pa rin ako dahil ang Panginoong Dios ang nagliligtas sa akin.
 
 
 
-Siya ang nagbibigay sa akin ng kalakasan. Pinalalakas niya ang aking mga paa na tulad ng mga paa ng usa, upang makaakyat ako sa matataas na lugar."[^e]
+Siya ang nagbibigay sa akin ng kalakasan. Pinalalakas niya ang aking mga paa na tulad ng mga paa ng usa, upang makaakyat ako sa matataas na lugar."

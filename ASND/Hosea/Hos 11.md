@@ -40,7 +40,7 @@ next: ['Hos 12']
 
 
 
-<i class="trans-change">Sinabi ng Panginoon,_ "Minahal ko ang Israel noong kabataan niya.[^a] Itinuring ko siyang anak at tinawag ko siya mula sa Egipto.[^b] 
+<i class="trans-change">Sinabi ng Panginoon,_ "Minahal ko ang Israel noong kabataan niya. Itinuring ko siyang anak at tinawag ko siya mula sa Egipto. 
 
 
 
@@ -73,7 +73,7 @@ next: ['Hos 12']
 
 
 
-Pero ngayon, kahit na patuloy kong[^c] tinatawag ang mga mamamayan ng Israel, lalo pa silang lumayo sa akin.[^d] Naghahandog sila at nagsusunog ng mga insenso sa <i class="trans-change">dios-diosang si_ Baal. 
+Pero ngayon, kahit na patuloy kong tinatawag ang mga mamamayan ng Israel, lalo pa silang lumayo sa akin. Naghahandog sila at nagsusunog ng mga insenso sa <i class="trans-change">dios-diosang si_ Baal. 
 
 
 
@@ -106,7 +106,7 @@ Pero ngayon, kahit na patuloy kong[^c] tinatawag ang mga mamamayan ng Israel, la
 
 
 
-Ako <i class="trans-change">ang nag-alaga sa kanila_. Inakay ko sila[^e] at tinuruang lumakad, pero hindi nila kinilala na ako ang kumalinga[^f] sa kanila. 
+Ako <i class="trans-change">ang nag-alaga sa kanila_. Inakay ko sila at tinuruang lumakad, pero hindi nila kinilala na ako ang kumalinga sa kanila. 
 
 
 
@@ -337,7 +337,7 @@ Hindi ko na ipadarama ang matindi kong galit; hindi ko na gigibain ang Israel, d
 
 
 
-"Susunod kayo sa akin kapag umatungal ako na parang leon. At kapag umatungal na ako, dali-dali[^g] kayong uuwi mula sa kanluran. 
+"Susunod kayo sa akin kapag umatungal ako na parang leon. At kapag umatungal na ako, dali-dali kayong uuwi mula sa kanluran. 
 
 
 
@@ -370,7 +370,7 @@ Hindi ko na ipadarama ang matindi kong galit; hindi ko na gigibain ang Israel, d
 
 
 
-Mabilis[^h] kayong darating na parang mga ibon mula sa Egipto o parang mga kalapating mula sa Asiria. Pauuwiin ko kayong muli sa inyong mga tahanan. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito." ## Parurusahan ang Israel at ang Juda 
+Mabilis kayong darating na parang mga ibon mula sa Egipto o parang mga kalapating mula sa Asiria. Pauuwiin ko kayong muli sa inyong mga tahanan. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito." ## Parurusahan ang Israel at ang Juda 
 
 
 

@@ -766,7 +766,7 @@ Kaya sinabi niya <i class="trans-change">sa mga tagasunod ni Juan_, "Bumalik kay
 
 
 
-Mapalad ang taong hindi nagdududa[^a] sa akin." 
+Mapalad ang taong hindi nagdududa sa akin." 
 
 
 
@@ -898,7 +898,7 @@ Pumunta kayo roon para makita ang isang propeta, hindi ba? Totoo, isa nga siyang
 
 
 
-Siya ang binabanggit <i class="trans-change">ng Dios_ sa Kasulatan, 'Ipapadala ko ang aking mensahero. Mauuna siya sa iyo upang ihanda ang dadaanan mo.'[^b] 
+Siya ang binabanggit <i class="trans-change">ng Dios_ sa Kasulatan, 'Ipapadala ko ang aking mensahero. Mauuna siya sa iyo upang ihanda ang dadaanan mo.' 
 
 
 
@@ -1162,7 +1162,7 @@ At nang dumating naman <i class="trans-change">ako na_ Anak ng Tao, nakita ninyo
 
 
 
-Ganoon pa man, ang mga taong sumusunod sa kalooban ng Dios ay sumasang-ayon sa ipinapagawa ng Dios sa amin."[^c] ## Binuhusan ng Pabango si Jesus 
+Ganoon pa man, ang mga taong sumusunod sa kalooban ng Dios ay sumasang-ayon sa ipinapagawa ng Dios sa amin." ## Binuhusan ng Pabango si Jesus 
 
 
 

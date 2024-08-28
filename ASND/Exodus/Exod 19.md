@@ -271,7 +271,7 @@ Sinabi ng Panginoon kay Moises, "Darating ako sa iyo sa pamamagitan ng makapal n
 
 
 
-At sinabi sa kanya ng Panginoon, "Puntahan mo ang mga tao at sabihin sa kanilang linisin ang sarili nila[^a] ngayon at bukas. Kailangang labhan nila ang kanilang mga damit. 
+At sinabi sa kanya ng Panginoon, "Puntahan mo ang mga tao at sabihin sa kanilang linisin ang sarili nila ngayon at bukas. Kailangang labhan nila ang kanilang mga damit. 
 
 
 
@@ -535,7 +535,7 @@ Pagkatapos, dinala ni Moises sa labas ng kampo ang mga tao para makipagkita sa D
 
 
 
-Nabalot ng usok ang Bundok ng Sinai dahil bumaba roon ang Panginoon sa anyo ng apoy. Pumaitaas ang usok kagaya ng usok na nanggaling sa hurno at nayanig nang malakas ang bundok,[^b] 
+Nabalot ng usok ang Bundok ng Sinai dahil bumaba roon ang Panginoon sa anyo ng apoy. Pumaitaas ang usok kagaya ng usok na nanggaling sa hurno at nayanig nang malakas ang bundok, 
 
 
 
@@ -568,7 +568,7 @@ Nabalot ng usok ang Bundok ng Sinai dahil bumaba roon ang Panginoon sa anyo ng a
 
 
 
-at lalo pang lumakas ang tunog ng trumpeta. Nagsalita si Moises at sinagot siya ng Panginoon sa pamamagitan ng kulog.[^c] 
+at lalo pang lumakas ang tunog ng trumpeta. Nagsalita si Moises at sinagot siya ng Panginoon sa pamamagitan ng kulog. 
 
 
 

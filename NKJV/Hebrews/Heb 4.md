@@ -13,7 +13,7 @@ next: ['Heb 5']
 Therefore, since a promise remains of entering His rest, let us fear lest any of you seem to have come short of it. 
 
 ###### 2 
-For indeed the gospel was preached to us as well as to them; but the word which they heard did not profit them, [^a]not being mixed with faith in those who heard _it._ 
+For indeed the gospel was preached to us as well as to them; but the word which they heard did not profit them, not being mixed with faith in those who heard _it._ 
 
 ###### 3 
 For we who have believed do enter that rest, as He has said: "So I swore in My wrath, 'They shall not enter My rest,' " although the works were finished from the foundation of the world. 
@@ -31,7 +31,7 @@ Since therefore it remains that some _must_ enter it, and those to whom it was f
 again He designates a certain day, saying in David, "Today," after such a long time, as it has been said: "Today, if you will hear His voice, Do not harden your hearts." 
 
 ###### 8 
-For if [^b]Joshua had given them rest, then He would not afterward have spoken of another day. 
+For if Joshua had given them rest, then He would not afterward have spoken of another day. 
 
 ###### 9 
 There remains therefore a rest for the people of God. 

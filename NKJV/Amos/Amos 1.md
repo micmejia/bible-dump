@@ -21,7 +21,7 @@ Thus says the Lord: "For three transgressions of Damascus, and for four, I will 
 But I will send a fire into the house of Hazael, Which shall devour the palaces of Ben-Hadad. 
 
 ###### 5 
-I will also break the _gate_ bar of Damascus, And cut off the inhabitant from the Valley of Aven, And the one who [^a]holds the scepter from [^b]Beth Eden. The people of Syria shall go captive to Kir," Says the Lord. 
+I will also break the _gate_ bar of Damascus, And cut off the inhabitant from the Valley of Aven, And the one who holds the scepter from Beth Eden. The people of Syria shall go captive to Kir," Says the Lord. 
 
 ###### 6 
 Thus says the Lord: "For three transgressions of Gaza, and for four, I will not turn away its _punishment,_ Because they took captive the whole captivity To deliver _them_ up to Edom. 

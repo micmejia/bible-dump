@@ -321,7 +321,7 @@ Stand therefore [hold your ground], having tightened the belt of truth around yo
 
 
 
-And having shod your feet in preparation [to face the enemy with the [^a]firm-footed stability, the promptness, and the readiness [^b]produced by the good news] of the Gospel of peace. 
+And having shod your feet in preparation [to face the enemy with the firm-footed stability, the promptness, and the readiness produced by the good news] of the Gospel of peace. 
 
 
 
@@ -342,7 +342,7 @@ And having shod your feet in preparation [to face the enemy with the [^a]firm-fo
 
 
 
-Lift up over all the [covering] shield of [^c]saving faith, upon which you can quench all the flaming missiles of the wicked [one]. 
+Lift up over all the [covering] shield of saving faith, upon which you can quench all the flaming missiles of the wicked [one]. 
 
 
 
@@ -363,7 +363,7 @@ Lift up over all the [covering] shield of [^c]saving faith, upon which you can q
 
 
 
-And take the helmet of salvation and the sword that the Spirit [^d]wields, which is the Word of God. 
+And take the helmet of salvation and the sword that the Spirit wields, which is the Word of God. 
 
 
 
@@ -468,7 +468,7 @@ Now that you may know how I am and what I am doing, Tychicus, the beloved brothe
 
 
 
-I have sent him to you for this very purpose, that you may know how we are and that he may [^e]console _and_ cheer _and_ encourage _and_ strengthen your hearts. 
+I have sent him to you for this very purpose, that you may know how we are and that he may console _and_ cheer _and_ encourage _and_ strengthen your hearts. 
 
 
 

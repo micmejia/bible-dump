@@ -40,7 +40,7 @@ next: ['Mark 15']
 
 
 
-Dalawang araw na lang noon bago sumapit ang Pista ng Paglampas ng Anghel[^a] at Pista ng Tinapay na Walang Pampaalsa. Ang mga namamahalang pari at ang mga tagapagturo ng Kautusan ay naghahanap ng pagkakataon upang lihim nilang madakip at maipapatay si Jesus. 
+Dalawang araw na lang noon bago sumapit ang Pista ng Paglampas ng Anghel at Pista ng Tinapay na Walang Pampaalsa. Ang mga namamahalang pari at ang mga tagapagturo ng Kautusan ay naghahanap ng pagkakataon upang lihim nilang madakip at maipapatay si Jesus. 
 
 
 
@@ -700,7 +700,7 @@ Habang kumakain sila, kumuha ng tinapay si Jesus. Nagpasalamat siya <i class="tr
 
 
 
-Pagkatapos, kumuha siya ng inumin,[^b] nagpasalamat sa Dios, at ibinigay sa kanila. At uminom silang lahat. 
+Pagkatapos, kumuha siya ng inumin, nagpasalamat sa Dios, at ibinigay sa kanila. At uminom silang lahat. 
 
 
 
@@ -832,7 +832,7 @@ Umawit sila ng papuri sa Dios at pagkatapos ay pumunta sila sa Bundok ng mga Oli
 
 
 
-Sinabi ni Jesus sa mga tagasunod niya, "Iiwan ninyo akong lahat, dahil sinabi <i class="trans-change">ng Dios_ sa Kasulatan, 'Papatayin ko ang pastol at magsisipangalat ang mga tupa.'[^c] 
+Sinabi ni Jesus sa mga tagasunod niya, "Iiwan ninyo akong lahat, dahil sinabi <i class="trans-change">ng Dios_ sa Kasulatan, 'Papatayin ko ang pastol at magsisipangalat ang mga tupa.' 
 
 
 
@@ -1129,7 +1129,7 @@ Lumayo siya nang kaunti, lumuhod sa lupa at nanalangin na kung maaari ay huwag n
 
 
 
-Sinabi niya, "Ama, magagawa nʼyo ang lahat ng bagay. Kung maaari, ilayo nʼyo sa akin ang mga paghihirap na darating.[^d] Ngunit hindi ang kalooban ko ang masunod kundi ang kalooban ninyo." 
+Sinabi niya, "Ama, magagawa nʼyo ang lahat ng bagay. Kung maaari, ilayo nʼyo sa akin ang mga paghihirap na darating. Ngunit hindi ang kalooban ko ang masunod kundi ang kalooban ninyo." 
 
 
 
@@ -1195,7 +1195,7 @@ Binalikan ni Jesus <i class="trans-change">ang tatlo niyang tagasunod_ at dinatn
 
 
 
-<i class="trans-change">At sinabi niya sa kanila,_ "Magpuyat kayo at manalangin para hindi kayo madaig ng tukso. Ang espiritu ay handang sumunod, ngunit mahina ang laman."[^e] 
+<i class="trans-change">At sinabi niya sa kanila,_ "Magpuyat kayo at manalangin para hindi kayo madaig ng tukso. Ang espiritu ay handang sumunod, ngunit mahina ang laman." 
 
 
 

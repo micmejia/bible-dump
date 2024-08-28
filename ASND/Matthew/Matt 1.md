@@ -336,7 +336,7 @@ Si Uzia ang ama ni Jotam, si Jotam ang ama ni Ahaz, at si Ahaz ang ama ni Hezeki
 
 
 
-Si Hezekia ang ama ni Manase, si Manase ang ama ni Amos,[^a] si Amos ang ama ni Josia, 
+Si Hezekia ang ama ni Manase, si Manase ang ama ni Amos, si Amos ang ama ni Josia, 
 
 
 
@@ -699,7 +699,7 @@ Habang pinag-iisipan ito ni Jose, nagpakita sa kanya sa panaginip ang isang angh
 
 
 
-Manganganak siya ng isang lalaki at papangalanan mo siyang Jesus,[^b] dahil ililigtas niya ang kanyang bayan sa kanilang mga kasalanan." 
+Manganganak siya ng isang lalaki at papangalanan mo siyang Jesus, dahil ililigtas niya ang kanyang bayan sa kanilang mga kasalanan." 
 
 
 
@@ -765,7 +765,7 @@ Nangyari ang lahat ng ito upang matupad ang sinabi ng Panginoon sa pamamagitan n
 
 
 
-"Magbubuntis ang isang birhen[^c] at manganganak ng isang lalaki. Tatawagin siyang Emmanuel"[^d] (na ang ibig sabihin, "Kasama natin ang Dios"). 
+"Magbubuntis ang isang birhen at manganganak ng isang lalaki. Tatawagin siyang Emmanuel" (na ang ibig sabihin, "Kasama natin ang Dios"). 
 
 
 

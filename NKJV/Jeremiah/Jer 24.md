@@ -22,7 +22,7 @@ Then the Lord said to me, "What do you see, Jeremiah?" And I said, "Figs, the go
 Again the word of the Lord came to me, saying, 
 
 ###### 5 
-"Thus says the Lord, the God of Israel: 'Like these good figs, so will I [^a]acknowledge those who are carried away captive from Judah, whom I have sent out of this place for _their own_ good, into the land of the Chaldeans. 
+"Thus says the Lord, the God of Israel: 'Like these good figs, so will I acknowledge those who are carried away captive from Judah, whom I have sent out of this place for _their own_ good, into the land of the Chaldeans. 
 
 ###### 6 
 For I will set My eyes on them for good, and I will bring them back to this land; I will build them and not pull _them_ down, and I will plant them and not pluck _them_ up. 
@@ -37,4 +37,4 @@ Then I will give them a heart to know Me, that I _am_ the Lord; and they shall b
 I will deliver them to trouble into all the kingdoms of the earth, for _their_ harm, _to be_ a reproach and a byword, a taunt and a curse, in all places where I shall drive them. 
 
 ###### 10 
-And I will send the sword, the famine, and the pestilence among them, till they are [^b]consumed from the land that I gave to them and their fathers.' "
+And I will send the sword, the famine, and the pestilence among them, till they are consumed from the land that I gave to them and their fathers.' "

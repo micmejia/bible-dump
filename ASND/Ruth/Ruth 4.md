@@ -39,7 +39,7 @@ up: ['Ruth']
 
 
 
-Pumunta si Boaz sa pintuang bayan[^a] at naupo roon. Nang dumaan ang sinasabi niyang mas malapit na kamag-anak <i class="trans-change">ni Elimelec_, sinabi ni Boaz sa kanya, "Kaibigan, halikaʼt maupo ka." Lumapit naman ang lalaki at naupo. 
+Pumunta si Boaz sa pintuang bayan at naupo roon. Nang dumaan ang sinasabi niyang mas malapit na kamag-anak <i class="trans-change">ni Elimelec_, sinabi ni Boaz sa kanya, "Kaibigan, halikaʼt maupo ka." Lumapit naman ang lalaki at naupo. 
 
 
 
@@ -171,7 +171,7 @@ Naisip kong ipaalam ito sa iyo. Kaya kung gusto mo, bilhin mo ito sa harapan ng 
 
 
 
-Pero sinabi ni Boaz, "Sa araw na tubusin mo ang lupa kay Naomi, kailangang pakasalan mo si Ruth, ang Moabitang biyuda,[^b] para <i class="trans-change">kapag nagkaanak kayo,_ mananatili ang lupa sa pamilya ng kamag-anak nating namatay."[^c] 
+Pero sinabi ni Boaz, "Sa araw na tubusin mo ang lupa kay Naomi, kailangang pakasalan mo si Ruth, ang Moabitang biyuda, para <i class="trans-change">kapag nagkaanak kayo,_ mananatili ang lupa sa pamilya ng kamag-anak nating namatay." 
 
 
 
@@ -270,7 +270,7 @@ Nang panahong iyon sa Israel, para matiyak ang pagtubos ng lupa o ang paglilipat
 
 
 
-Kaya nang sabihin ng lalaki kay Boaz, "Ikaw na lang ang tumubos ng lupa," hinubad agad niya ang kanyang sandalyas at ibinigay kay Boaz.[^d] 
+Kaya nang sabihin ng lalaki kay Boaz, "Ikaw na lang ang tumubos ng lupa," hinubad agad niya ang kanyang sandalyas at ibinigay kay Boaz. 
 
 
 
@@ -336,7 +336,7 @@ Sinabi ni Boaz sa mga tagapamahala ng bayan at sa lahat ng tao roon, "Mga saksi 
 
 
 
-At bukod pa rito, pakakasalan ko si Ruth na Moabita, na biyuda ni Mahlon, para <i class="trans-change">kapag nagkaanak kami,_ mananatili ang lupain ni Mahlon sa kanyang pamilya,[^e] at hindi mawawala ang lahi niya sa kanyang mga kababayan. Saksi nga kayo sa araw na ito!" 
+At bukod pa rito, pakakasalan ko si Ruth na Moabita, na biyuda ni Mahlon, para <i class="trans-change">kapag nagkaanak kami,_ mananatili ang lupain ni Mahlon sa kanyang pamilya, at hindi mawawala ang lahi niya sa kanyang mga kababayan. Saksi nga kayo sa araw na ito!" 
 
 
 

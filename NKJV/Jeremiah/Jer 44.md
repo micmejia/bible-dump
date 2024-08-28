@@ -10,7 +10,7 @@ next: ['Jer 45']
 
 
 ###### 1 
-The word that came to Jeremiah concerning all the Jews who dwell in the land of Egypt, who dwell at Migdol, at Tahpanhes, at Noph,[^a] and in the country of Pathros, saying, 
+The word that came to Jeremiah concerning all the Jews who dwell in the land of Egypt, who dwell at Migdol, at Tahpanhes, at Noph, and in the country of Pathros, saying, 
 
 ###### 2 
 "Thus says the Lord of hosts, the God of Israel: 'You have seen all the calamity that I have brought on Jerusalem and on all the cities of Judah; and behold, this day they _are_ a desolation, and no one dwells in them, 
@@ -25,7 +25,7 @@ However I have sent to you all My servants the prophets, rising early and sendin
 But they did not listen or incline their ear to turn from their wickedness, to burn no incense to other gods. 
 
 ###### 6 
-So My fury and My anger were poured out and kindled in the cities of Judah and in the streets of Jerusalem; and they [^b]are wasted _and_ desolate, as it is this day.' 
+So My fury and My anger were poured out and kindled in the cities of Judah and in the streets of Jerusalem; and they are wasted _and_ desolate, as it is this day.' 
 
 ###### 7 
 "Now therefore, thus says the Lord, the God of hosts, the God of Israel: 'Why do you commit _this_ great evil against yourselves, to cut off from you man and woman, child and infant, out of Judah, leaving none to remain, 
@@ -37,10 +37,10 @@ in that you provoke Me to wrath with the works of your hands, burning incense to
 Have you forgotten the wickedness of your fathers, the wickedness of the kings of Judah, the wickedness of their wives, your own wickedness, and the wickedness of your wives, which they committed in the land of Judah and in the streets of Jerusalem? 
 
 ###### 10 
-They have not been humbled,[^c] to this day, nor have they feared; they have not walked in My law or in My statutes that I set before you and your fathers.' 
+They have not been humbled, to this day, nor have they feared; they have not walked in My law or in My statutes that I set before you and your fathers.' 
 
 ###### 11 
-"Therefore thus says the Lord of hosts, the God of Israel: 'Behold, I will set My face against you for catastrophe and for [^d]cutting off all Judah. 
+"Therefore thus says the Lord of hosts, the God of Israel: 'Behold, I will set My face against you for catastrophe and for cutting off all Judah. 
 
 ###### 12 
 And I will take the remnant of Judah who have set their faces to go into the land of Egypt to dwell there, and they shall all be consumed _and_ fall in the land of Egypt. They shall be consumed by the sword _and_ by famine. They shall die, from the least to the greatest, by the sword and by famine; and they shall be an oath, an astonishment, a curse and a reproach! 
@@ -49,7 +49,7 @@ And I will take the remnant of Judah who have set their faces to go into the lan
 For I will punish those who dwell in the land of Egypt, as I have punished Jerusalem, by the sword, by famine, and by pestilence, 
 
 ###### 14 
-so that none of the remnant of Judah who have gone into the land of Egypt to dwell there shall escape or survive, lest they return to the land of Judah, to which they desire[^e] to return and dwell. For none shall return except those who escape.' " 
+so that none of the remnant of Judah who have gone into the land of Egypt to dwell there shall escape or survive, lest they return to the land of Judah, to which they desire to return and dwell. For none shall return except those who escape.' " 
 
 ###### 15 
 Then all the men who knew that their wives had burned incense to other gods, with all the women who stood by, a great multitude, and all the people who dwelt in the land of Egypt, in Pathros, answered Jeremiah, saying: 
@@ -58,7 +58,7 @@ Then all the men who knew that their wives had burned incense to other gods, wit
 "_As for_ the word that you have spoken to us in the name of the Lord, we will not listen to you! 
 
 ###### 17 
-But we will certainly do whatever has gone out of our own mouth, to burn incense to the queen of heaven and pour out drink offerings to her, as we have done, we and our fathers, our kings and our princes, in the cities of Judah and in the streets of Jerusalem. For _then_ we had plenty of [^f]food, were well-off, and saw no trouble. 
+But we will certainly do whatever has gone out of our own mouth, to burn incense to the queen of heaven and pour out drink offerings to her, as we have done, we and our fathers, our kings and our princes, in the cities of Judah and in the streets of Jerusalem. For _then_ we had plenty of food, were well-off, and saw no trouble. 
 
 ###### 18 
 But since we stopped burning incense to the queen of heaven and pouring out drink offerings to her, we have lacked everything and have been consumed by the sword and by famine." 

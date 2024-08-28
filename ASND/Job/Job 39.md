@@ -436,7 +436,7 @@ Maaasahan mo kaya siyang tipunin at hakutin ang iyong ani papunta sa giikan?
 
 
 
-"Napakagandang tingnan ng pakpak ng malaking ibong[^a] kapag itoʼy pumapagaspas, pero hindi nito mapantayan ang ganda ng pakpak ng tagak. 
+"Napakagandang tingnan ng pakpak ng malaking ibong kapag itoʼy pumapagaspas, pero hindi nito mapantayan ang ganda ng pakpak ng tagak. 
 
 
 
@@ -634,7 +634,7 @@ Pero kapag tumakbo na siya, tinatawanan niya ang kabayo at ang sakay nito.
 
 
 
-"<i class="trans-change">Job,_ ikaw ba ang nagbibigay ng lakas sa kabayo? Ikaw din ba ang naglagay ng kanyang kiling?[^b] 
+"<i class="trans-change">Job,_ ikaw ba ang nagbibigay ng lakas sa kabayo? Ikaw din ba ang naglagay ng kanyang kiling? 
 
 
 
@@ -733,7 +733,7 @@ Kumakahig siya sa lupa na parang ipinagmamalaki ang kanyang lakas. Pagkatapos ay
 
 
 
-Wala siyang kinatatakutan, ni hindi siya natatakot sa espada.[^c] 
+Wala siyang kinatatakutan, ni hindi siya natatakot sa espada. 
 
 
 

@@ -19,7 +19,7 @@ For then the king of Babylon's army besieged Jerusalem, and Jeremiah the prophet
 For Zedekiah king of Judah had shut him up, saying, "Why do you prophesy and say, 'Thus says the Lord: "Behold, I will give this city into the hand of the king of Babylon, and he shall take it; 
 
 ###### 4 
-and Zedekiah king of Judah shall not escape from the hand of the Chaldeans, but shall surely be delivered into the hand of the king of Babylon, and shall speak with him [^a]face to face, and see him eye to eye; 
+and Zedekiah king of Judah shall not escape from the hand of the Chaldeans, but shall surely be delivered into the hand of the king of Babylon, and shall speak with him face to face, and see him eye to eye; 
 
 ###### 5 
 then he shall lead Zedekiah to Babylon, and there he shall be until I visit him," says the Lord; "though you fight with the Chaldeans, you shall not succeed" '?" 
@@ -37,7 +37,7 @@ Then Hanamel my uncle's son came to me in the court of the prison according to t
 So I bought the field from Hanamel, the son of my uncle who _was_ in Anathoth, and weighed _out to_ him the money--seventeen shekels of silver. 
 
 ###### 10 
-And I signed the [^b]deed and sealed _it,_ took witnesses, and weighed the money on the scales. 
+And I signed the deed and sealed _it,_ took witnesses, and weighed the money on the scales. 
 
 ###### 11 
 So I took the purchase deed, _both_ that which was sealed _according_ to the law and custom, and that which was open; 
@@ -58,13 +58,13 @@ For thus says the Lord of hosts, the God of Israel: "Houses and fields and viney
 "Now when I had delivered the purchase deed to Baruch the son of Neriah, I prayed to the Lord, saying: 
 
 ###### 17 
-'Ah, Lord God! Behold, You have made the heavens and the earth by Your great power and outstretched arm. There is nothing too [^c]hard for You. 
+'Ah, Lord God! Behold, You have made the heavens and the earth by Your great power and outstretched arm. There is nothing too hard for You. 
 
 ###### 18 
 _You_ show lovingkindness to thousands, and repay the iniquity of the fathers into the bosom of their children after them--the Great, the Mighty God, whose name _is_ the Lord of hosts. 
 
 ###### 19 
-_You are_ great in counsel and mighty in [^d]work, for Your eyes _are_ open to all the ways of the sons of men, to give everyone according to his ways and according to the fruit of his doings. 
+_You are_ great in counsel and mighty in work, for Your eyes _are_ open to all the ways of the sons of men, to give everyone according to his ways and according to the fruit of his doings. 
 
 ###### 20 
 You have set signs and wonders in the land of Egypt, to this day, and in Israel and among _other_ men; and You have made Yourself a name, as it is this day. 
@@ -109,7 +109,7 @@ because of all the evil of the children of Israel and the children of Judah, whi
 And they have turned to Me the back, and not the face; though I taught them, rising up early and teaching _them,_ yet they have not listened to receive instruction. 
 
 ###### 34 
-But they set their abominations in [^e]the house which is called by My name, to defile it. 
+But they set their abominations in the house which is called by My name, to defile it. 
 
 ###### 35 
 And they built the high places of Baal which _are_ in the Valley of the Son of Hinnom, to cause their sons and their daughters to pass through _the fire_ to Molech, which I did not command them, nor did it come into My mind that they should do this abomination, to cause Judah to sin.' 
@@ -130,7 +130,7 @@ then I will give them one heart and one way, that they may fear Me forever, for 
 And I will make an everlasting covenant with them, that I will not turn away from doing them good; but I will put My fear in their hearts so that they will not depart from Me. 
 
 ###### 41 
-Yes, I will rejoice over them to do them good, and I will [^f]assuredly plant them in this land, with all My heart and with all My soul.' 
+Yes, I will rejoice over them to do them good, and I will assuredly plant them in this land, with all My heart and with all My soul.' 
 
 ###### 42 
 "For thus says the Lord: 'Just as I have brought all this great calamity on this people, so I will bring on them all the good that I have promised them. 
@@ -139,4 +139,4 @@ Yes, I will rejoice over them to do them good, and I will [^f]assuredly plant th
 And fields will be bought in this land of which you say, "_It is_ desolate, without man or beast; it has been given into the hand of the Chaldeans." 
 
 ###### 44 
-Men will buy fields for money, sign deeds and seal _them,_ and take witnesses, in the land of Benjamin, in the places around Jerusalem, in the cities of Judah, in the cities of the mountains, in the cities of the [^g]lowland, and in the cities of the [^h]South; for I will cause their captives to return,' says the Lord."
+Men will buy fields for money, sign deeds and seal _them,_ and take witnesses, in the land of Benjamin, in the places around Jerusalem, in the cities of Judah, in the cities of the mountains, in the cities of the lowland, and in the cities of the South; for I will cause their captives to return,' says the Lord."

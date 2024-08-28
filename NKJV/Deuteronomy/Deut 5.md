@@ -25,25 +25,25 @@ The Lord talked with you face to face on the mountain from the midst of the fire
 I stood between the Lord and you at that time, to declare to you the word of the Lord; for you were afraid because of the fire, and you did not go up the mountain. _He_ said: 
 
 ###### 6 
-'I _am_ the Lord your God who brought you out of the land of Egypt, out of the house of [^a]bondage. 
+'I _am_ the Lord your God who brought you out of the land of Egypt, out of the house of bondage. 
 
 ###### 7 
-'You shall have no other gods [^b]before Me. 
+'You shall have no other gods before Me. 
 
 ###### 8 
 'You shall not make for yourself a carved image--any likeness _of anything_ that _is_ in heaven above, or that _is_ in the earth beneath, or that _is_ in the water under the earth; 
 
 ###### 9 
-you shall not bow[^c] down to them nor serve them. For I, the Lord your God, _am_ a jealous God, [^d]visiting the iniquity of the fathers upon the children to the third and fourth _generations_ of those who hate Me, 
+you shall not bow down to them nor serve them. For I, the Lord your God, _am_ a jealous God, visiting the iniquity of the fathers upon the children to the third and fourth _generations_ of those who hate Me, 
 
 ###### 10 
-but showing mercy to thousands, to those who love Me and [^e]keep My commandments. 
+but showing mercy to thousands, to those who love Me and keep My commandments. 
 
 ###### 11 
-'You shall not take the name of the Lord your God in vain, for the Lord will not hold _him_ [^f]guiltless who takes His name in vain. 
+'You shall not take the name of the Lord your God in vain, for the Lord will not hold _him_ guiltless who takes His name in vain. 
 
 ###### 12 
-'Observe the Sabbath day, to [^g]keep it holy, as the Lord your God commanded you. 
+'Observe the Sabbath day, to keep it holy, as the Lord your God commanded you. 
 
 ###### 13 
 Six days you shall labor and do all your work, 
@@ -103,7 +103,7 @@ Go and say to them, "Return to your tents."
 But as for you, stand here by Me, and I will speak to you all the commandments, the statutes, and the judgments which you shall teach them, that they may observe _them_ in the land which I am giving them to possess.' 
 
 ###### 32 
-"Therefore you shall [^h]be careful to do as the Lord your God has commanded you; you shall not turn aside to the right hand or to the left. 
+"Therefore you shall be careful to do as the Lord your God has commanded you; you shall not turn aside to the right hand or to the left. 
 
 ###### 33 
 You shall walk in all the ways which the Lord your God has commanded you, that you may live and _that it may be_ well with you, and _that_ you may prolong _your_ days in the land which you shall possess.

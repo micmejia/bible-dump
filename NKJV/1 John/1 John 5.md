@@ -18,7 +18,7 @@ By this we know that we love the children of God, when we love God and keep His 
 For this is the love of God, that we keep His commandments. And His commandments are not burdensome. 
 
 ###### 4 
-For whatever is born of God overcomes the world. And this is the victory that has overcome the world--[^a]our faith. 
+For whatever is born of God overcomes the world. And this is the victory that has overcome the world--our faith. 
 
 ###### 5 
 Who is he who overcomes the world, but he who believes that Jesus is the Son of God? ## The Certainty of God's Witness 
@@ -27,13 +27,13 @@ Who is he who overcomes the world, but he who believes that Jesus is the Son of 
 This is He who came by water and blood--Jesus Christ; not only by water, but by water and blood. And it is the Spirit who bears witness, because the Spirit is truth. 
 
 ###### 7 
-For there are three that bear witness [^b]in heaven: the Father, the Word, and the Holy Spirit; and these three are one. 
+For there are three that bear witness in heaven: the Father, the Word, and the Holy Spirit; and these three are one. 
 
 ###### 8 
 And there are three that bear witness on earth: the Spirit, the water, and the blood; and these three agree as one. 
 
 ###### 9 
-If we receive the witness of men, the witness of God is greater; for this is the witness of [^c]God which He has testified of His Son. 
+If we receive the witness of men, the witness of God is greater; for this is the witness of God which He has testified of His Son. 
 
 ###### 10 
 He who believes in the Son of God has the witness in himself; he who does not believe God has made Him a liar, because he has not believed the testimony that God has given of His Son. 
@@ -42,10 +42,10 @@ He who believes in the Son of God has the witness in himself; he who does not be
 And this is the testimony: that God has given us eternal life, and this life is in His Son. 
 
 ###### 12 
-He who has the Son has [^d]life; he who does not have the Son of God does not have life. 
+He who has the Son has life; he who does not have the Son of God does not have life. 
 
 ###### 13 
-These things I have written to you who believe in the name of the Son of God, that you may know that you have eternal life, [^e]and that you may _continue to_ believe in the name of the Son of God. ## Confidence and Compassion in Prayer 
+These things I have written to you who believe in the name of the Son of God, that you may know that you have eternal life, and that you may _continue to_ believe in the name of the Son of God. ## Confidence and Compassion in Prayer 
 
 ###### 14 
 Now this is the confidence that we have in Him, that if we ask anything according to His will, He hears us. 
@@ -60,7 +60,7 @@ If anyone sees his brother sinning a sin _which does_ not _lead_ to death, he wi
 All unrighteousness is sin, and there is sin not _leading_ to death. ## Knowing the True--Rejecting the False 
 
 ###### 18 
-We know that whoever is born of God does not sin; but he who has been born of God keeps[^f] [^g]himself, and the wicked one does not touch him. 
+We know that whoever is born of God does not sin; but he who has been born of God keeps himself, and the wicked one does not touch him. 
 
 ###### 19 
 We know that we are of God, and the whole world lies _under the sway of_ the wicked one. 

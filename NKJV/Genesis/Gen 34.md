@@ -16,13 +16,13 @@ Now Dinah the daughter of Leah, whom she had borne to Jacob, went out to see the
 And when Shechem the son of Hamor the Hivite, prince of the country, saw her, he took her and lay with her, and violated her. 
 
 ###### 3 
-His soul [^a]was strongly attracted to Dinah the daughter of Jacob, and he loved the young woman and spoke [^b]kindly to the young woman. 
+His soul was strongly attracted to Dinah the daughter of Jacob, and he loved the young woman and spoke kindly to the young woman. 
 
 ###### 4 
 So Shechem spoke to his father Hamor, saying, "Get me this young woman as a wife." 
 
 ###### 5 
-And Jacob heard that he had defiled Dinah his daughter. Now his sons were with his livestock in the field; so Jacob held[^c] his peace until they came. 
+And Jacob heard that he had defiled Dinah his daughter. Now his sons were with his livestock in the field; so Jacob held his peace until they came. 
 
 ###### 6 
 Then Hamor the father of Shechem went out to Jacob to speak with him. 
@@ -43,7 +43,7 @@ So you shall dwell with us, and the land shall be before you. Dwell and trade in
 Then Shechem said to her father and her brothers, "Let me find favor in your eyes, and whatever you say to me I will give. 
 
 ###### 12 
-Ask me ever so much dowry[^d] and gift, and I will give according to what you say to me; but give me the young woman as a wife." 
+Ask me ever so much dowry and gift, and I will give according to what you say to me; but give me the young woman as a wife." 
 
 ###### 13 
 But the sons of Jacob answered Shechem and Hamor his father, and spoke deceitfully, because he had defiled Dinah their sister. 

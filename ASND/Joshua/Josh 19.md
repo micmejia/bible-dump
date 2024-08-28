@@ -73,7 +73,7 @@ Ang ikalawang pinartihan ng lupa ay ang sambahayan ng lahi ni Simeon. Ang lupain
 
 
 
-Kasama rito ang Beersheba (o Sheba),[^a] Molada, 
+Kasama rito ang Beersheba (o Sheba), Molada, 
 
 
 
@@ -931,7 +931,7 @@ paliko ito pasilangan papuntang Bet Dagon at umaabot sa Zebulun at sa Lambak ng 
 
 
 
-Ebron,[^b] Rehob, Hammon, Kana at hanggang sa Malaking Sidon. 
+Ebron, Rehob, Hammon, Kana at hanggang sa Malaking Sidon. 
 
 
 
@@ -1129,7 +1129,7 @@ Ang hangganan ng lupain nila ay nagsimula sa Helef at sa puno ng terebinto sa Za
 
 
 
-Mula roon, paliko ito sa kanluran papuntang Aznot Tabor, pagkatapos sa Hukok, hanggang sa hangganan ng Zebulun sa timog, sa hangganan ng Asher sa kanluran at sa <i class="trans-change">Ilog ng_ Jordan[^c] sa silangan. 
+Mula roon, paliko ito sa kanluran papuntang Aznot Tabor, pagkatapos sa Hukok, hanggang sa hangganan ng Zebulun sa timog, sa hangganan ng Asher sa kanluran at sa <i class="trans-change">Ilog ng_ Jordan sa silangan. 
 
 
 
@@ -1558,7 +1558,7 @@ Me Jarkon at Rakon, pati rin ang lupain na nakaharap sa Jopa.
 
 
 
-Nahirapan ang mga lahi ni Dan sa pag-agaw ng lupain nila, kaya nilusob nila ang Leshem[^d] at pinatay ang mga naninirahan dito. Naagaw nila ito at doon sila tumira. Pinalitan nila ang pangalan nito ng Dan ayon sa pangalan ng ninuno nilang si Dan. 
+Nahirapan ang mga lahi ni Dan sa pag-agaw ng lupain nila, kaya nilusob nila ang Leshem at pinatay ang mga naninirahan dito. Naagaw nila ito at doon sila tumira. Pinalitan nila ang pangalan nito ng Dan ayon sa pangalan ng ninuno nilang si Dan. 
 
 
 

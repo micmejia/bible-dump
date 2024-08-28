@@ -72,7 +72,7 @@ Ngayon, nais kong ipakilala sa inyo ang kapatid nating si Febe. Naglilingkod siy
 
 
 
-Tanggapin ninyo siya <i class="trans-change">bilang kapatid_ sa Panginoon gaya ng nararapat gawin ng mga pinabanal[^a] <i class="trans-change">ng Dios._ Tulungan ninyo siya sa anumang kakailanganin niya dahil marami siyang natulungan at isa na ako roon. 
+Tanggapin ninyo siya <i class="trans-change">bilang kapatid_ sa Panginoon gaya ng nararapat gawin ng mga pinabanal <i class="trans-change">ng Dios._ Tulungan ninyo siya sa anumang kakailanganin niya dahil marami siyang natulungan at isa na ako roon. 
 
 
 
@@ -171,7 +171,7 @@ Itinaya nila ang kanilang buhay alang-alang sa akin. Malaki ang utang na loob ko
 
 
 
-Ikumusta rin ninyo ako sa mga mananampalatayang[^b] nagtitipon sa kanilang tahanan. Ipaabot din ninyo ang pangangamusta ko sa minamahal kong kaibigan na si Epenetus. Siya ang unang sumampalataya kay Cristo Jesus sa <i class="trans-change">probinsya ng_ Asia. 
+Ikumusta rin ninyo ako sa mga mananampalatayang nagtitipon sa kanilang tahanan. Ipaabot din ninyo ang pangangamusta ko sa minamahal kong kaibigan na si Epenetus. Siya ang unang sumampalataya kay Cristo Jesus sa <i class="trans-change">probinsya ng_ Asia. 
 
 
 
@@ -534,7 +534,7 @@ Kumusta rin kina Filologus, Julia, Nereus at sa kapatid niyang babae na si Olimp
 
 
 
-Magbatian kayo bilang mga magkakapatid kay Cristo.[^c] Kinukumusta kayo ng lahat ng iglesya ni Cristo rito. 
+Magbatian kayo bilang mga magkakapatid kay Cristo. Kinukumusta kayo ng lahat ng iglesya ni Cristo rito. 
 
 
 
@@ -600,7 +600,7 @@ Mga kapatid, mag-ingat kayo sa mga taong lumilikha ng pagkakahati-hati at gumugu
 
 
 
-Ang mga taong ganyan ay hindi naglilingkod sa Panginoong Jesu-Cristo, kundi sa sarili nilang hangarin[^d] <i class="trans-change">sila sumusunod_. Dinadaya nila ang mga kulang sa kaalaman sa pamamagitan ng mahuhusay at magaganda nilang pananalita. 
+Ang mga taong ganyan ay hindi naglilingkod sa Panginoong Jesu-Cristo, kundi sa sarili nilang hangarin <i class="trans-change">sila sumusunod_. Dinadaya nila ang mga kulang sa kaalaman sa pamamagitan ng mahuhusay at magaganda nilang pananalita. 
 
 
 
@@ -765,7 +765,7 @@ Kinukumusta kayo ni Timoteo na kapwa ko manggagawa sa Panginoon, at nina Lucius,
 
 
 
-Kinukumusta rin kayo ni Gaius. Akong si Pablo ay nakikituloy dito sa bahay niya, at dito rin nagtitipon ang mga mananampalataya[^e] <i class="trans-change">sa lugar na ito_. Kinukumusta rin kayo ni Erastus na tresurero ng lungsod at ng ating kapatid na si Quartus. [ 
+Kinukumusta rin kayo ni Gaius. Akong si Pablo ay nakikituloy dito sa bahay niya, at dito rin nagtitipon ang mga mananampalataya <i class="trans-change">sa lugar na ito_. Kinukumusta rin kayo ni Erastus na tresurero ng lungsod at ng ating kapatid na si Quartus. [ 
 
 
 

@@ -22,13 +22,13 @@ explaining and demonstrating that the Christ had to suffer and rise again from t
 And some of them were persuaded; and a great multitude of the devout Greeks, and not a few of the leading women, joined Paul and Silas. ## Assault on Jason's House 
 
 ###### 5 
-But the Jews [^a]who were not persuaded, [^b]becoming envious, took some of the evil men from the marketplace, and gathering a mob, set all the city in an uproar and attacked the house of Jason, and sought to bring them out to the people. 
+But the Jews who were not persuaded, becoming envious, took some of the evil men from the marketplace, and gathering a mob, set all the city in an uproar and attacked the house of Jason, and sought to bring them out to the people. 
 
 ###### 6 
 But when they did not find them, they dragged Jason and some brethren to the rulers of the city, crying out, "These who have turned the world upside down have come here too. 
 
 ###### 7 
-Jason has [^c]harbored them, and these are all acting contrary to the decrees of Caesar, saying there is another king--Jesus." 
+Jason has harbored them, and these are all acting contrary to the decrees of Caesar, saying there is another king--Jesus." 
 
 ###### 8 
 And they troubled the crowd and the rulers of the city when they heard these things. 
@@ -40,7 +40,7 @@ So when they had taken security from Jason and the rest, they let them go. ## Mi
 Then the brethren immediately sent Paul and Silas away by night to Berea. When they arrived, they went into the synagogue of the Jews. 
 
 ###### 11 
-These were more [^d]fair-minded than those in Thessalonica, in that they received the word with all readiness, and searched the Scriptures daily _to find out_ whether these things were so. 
+These were more fair-minded than those in Thessalonica, in that they received the word with all readiness, and searched the Scriptures daily _to find out_ whether these things were so. 
 
 ###### 12 
 Therefore many of them believed, and also not a few of the Greeks, prominent women as well as men. 
@@ -55,16 +55,16 @@ Then immediately the brethren sent Paul away, to go to the sea; but both Silas a
 So those who conducted Paul brought him to Athens; and receiving a command for Silas and Timothy to come to him with all speed, they departed. ## The Philosophers at Athens 
 
 ###### 16 
-Now while Paul waited for them at Athens, his spirit was provoked within him when he saw that the city was [^e]given over to idols. 
+Now while Paul waited for them at Athens, his spirit was provoked within him when he saw that the city was given over to idols. 
 
 ###### 17 
 Therefore he reasoned in the synagogue with the Jews and with the _Gentile_ worshipers, and in the marketplace daily with those who happened to be there. 
 
 ###### 18 
-[^f]Then certain Epicurean and Stoic philosophers encountered him. And some said, "What does this [^g]babbler want to say?" Others said, "He seems to be a proclaimer of foreign gods," because he preached to them Jesus and the resurrection. 
+Then certain Epicurean and Stoic philosophers encountered him. And some said, "What does this babbler want to say?" Others said, "He seems to be a proclaimer of foreign gods," because he preached to them Jesus and the resurrection. 
 
 ###### 19 
-And they took him and brought him to the [^h]Areopagus, saying, "May we know what this new doctrine _is_ of which you speak? 
+And they took him and brought him to the Areopagus, saying, "May we know what this new doctrine _is_ of which you speak? 
 
 ###### 20 
 For you are bringing some strange things to our ears. Therefore we want to know what these things mean." 
@@ -73,7 +73,7 @@ For you are bringing some strange things to our ears. Therefore we want to know 
 For all the Athenians and the foreigners who were there spent their time in nothing else but either to tell or to hear some new thing. ## Addressing the Areopagus 
 
 ###### 22 
-Then Paul stood in the midst of the [^i]Areopagus and said, "Men of Athens, I perceive that in all things you are very religious; 
+Then Paul stood in the midst of the Areopagus and said, "Men of Athens, I perceive that in all things you are very religious; 
 
 ###### 23 
 for as I was passing through and considering the objects of your worship, I even found an altar with this inscription: TO THE UNKNOWN GOD. Therefore, the One whom you worship without knowing, Him I proclaim to you: 
@@ -85,7 +85,7 @@ God, who made the world and everything in it, since He is Lord of heaven and ear
 Nor is He worshiped with men's hands, as though He needed anything, since He gives to all life, breath, and all things. 
 
 ###### 26 
-And He has made from one [^j]blood every nation of men to dwell on all the face of the earth, and has determined their preappointed times and the boundaries of their dwellings, 
+And He has made from one blood every nation of men to dwell on all the face of the earth, and has determined their preappointed times and the boundaries of their dwellings, 
 
 ###### 27 
 so that they should seek the Lord, in the hope that they might grope for Him and find Him, though He is not far from each one of us; 

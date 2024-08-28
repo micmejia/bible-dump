@@ -13,10 +13,10 @@ next: ['Jas 4']
 My brethren, let not many of you become teachers, knowing that we shall receive a stricter judgment. 
 
 ###### 2 
-For we all stumble in many things. If anyone does not stumble in word, he _is_ a [^a]perfect man, able also to bridle the whole body. 
+For we all stumble in many things. If anyone does not stumble in word, he _is_ a perfect man, able also to bridle the whole body. 
 
 ###### 3 
-[^b]Indeed, we put bits in horses' mouths that they may obey us, and we turn their whole body. 
+Indeed, we put bits in horses' mouths that they may obey us, and we turn their whole body. 
 
 ###### 4 
 Look also at ships: although they are so large and are driven by fierce winds, they are turned by a very small rudder wherever the pilot desires. 
@@ -25,7 +25,7 @@ Look also at ships: although they are so large and are driven by fierce winds, t
 Even so the tongue is a little member and boasts great things. See how great a forest a little fire kindles! 
 
 ###### 6 
-And the tongue _is_ a fire, a world of [^c]iniquity. The tongue is so set among our members that it defiles the whole body, and sets on fire the course of [^d]nature; and it is set on fire by [^e]hell. 
+And the tongue _is_ a fire, a world of iniquity. The tongue is so set among our members that it defiles the whole body, and sets on fire the course of nature; and it is set on fire by hell. 
 
 ###### 7 
 For every kind of beast and bird, of reptile and creature of the sea, is tamed and has been tamed by mankind. 
@@ -34,7 +34,7 @@ For every kind of beast and bird, of reptile and creature of the sea, is tamed a
 But no man can tame the tongue. _It is_ an unruly evil, full of deadly poison. 
 
 ###### 9 
-With it we bless our God and Father, and with it we curse men, who have been made in the [^f]similitude of God. 
+With it we bless our God and Father, and with it we curse men, who have been made in the similitude of God. 
 
 ###### 10 
 Out of the same mouth proceed blessing and cursing. My brethren, these things ought not to be so. 
@@ -43,13 +43,13 @@ Out of the same mouth proceed blessing and cursing. My brethren, these things ou
 Does a spring send forth fresh _water_ and bitter from the same opening? 
 
 ###### 12 
-Can a fig tree, my brethren, bear olives, or a grapevine bear figs? [^g]Thus no spring yields both salt water and fresh. ## Heavenly Versus Demonic Wisdom 
+Can a fig tree, my brethren, bear olives, or a grapevine bear figs? Thus no spring yields both salt water and fresh. ## Heavenly Versus Demonic Wisdom 
 
 ###### 13 
 Who _is_ wise and understanding among you? Let him show by good conduct _that_ his works _are done_ in the meekness of wisdom. 
 
 ###### 14 
-But if you have bitter envy and [^h]self-seeking in your hearts, do not boast and lie against the truth. 
+But if you have bitter envy and self-seeking in your hearts, do not boast and lie against the truth. 
 
 ###### 15 
 This wisdom does not descend from above, but _is_ earthly, sensual, demonic. 

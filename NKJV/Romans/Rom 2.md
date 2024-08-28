@@ -22,7 +22,7 @@ And do you think this, O man, you who judge those practicing such things, and do
 Or do you despise the riches of His goodness, forbearance, and longsuffering, not knowing that the goodness of God leads you to repentance? 
 
 ###### 5 
-But in accordance with your hardness and your [^a]impenitent heart you are [^b]treasuring up for yourself wrath in the day of wrath and revelation of the righteous judgment of God, 
+But in accordance with your hardness and your impenitent heart you are treasuring up for yourself wrath in the day of wrath and revelation of the righteous judgment of God, 
 
 ###### 6 
 who "will render to each one according to his deeds": 
@@ -34,7 +34,7 @@ eternal life to those who by patient continuance in doing good seek for glory, h
 but to those who are self-seeking and do not obey the truth, but obey unrighteousness--indignation and wrath, 
 
 ###### 9 
-tribulation and anguish, on every soul of man who does evil, of the Jew first and also of the [^c]Greek; 
+tribulation and anguish, on every soul of man who does evil, of the Jew first and also of the Greek; 
 
 ###### 10 
 but glory, honor, and peace to everyone who works what is good, to the Jew first and also to the Greek. 
@@ -58,7 +58,7 @@ who show the work of the law written in their hearts, their conscience also bear
 in the day when God will judge the secrets of men by Jesus Christ, according to my gospel. ## The Jews Guilty as the Gentiles 
 
 ###### 17 
-[^d]Indeed you are called a Jew, and rest[^e] on the law, and make your boast in God, 
+Indeed you are called a Jew, and rest on the law, and make your boast in God, 
 
 ###### 18 
 and know _His_ will, and approve the things that are excellent, being instructed out of the law, 
@@ -88,10 +88,10 @@ For circumcision is indeed profitable if you keep the law; but if you are a brea
 Therefore, if an uncircumcised man keeps the righteous requirements of the law, will not his uncircumcision be counted as circumcision? 
 
 ###### 27 
-And will not the physically uncircumcised, if he fulfills the law, judge you who, _even_ with _your_ [^f]written _code_ and circumcision, _are_ a transgressor of the law? 
+And will not the physically uncircumcised, if he fulfills the law, judge you who, _even_ with _your_ written _code_ and circumcision, _are_ a transgressor of the law? 
 
 ###### 28 
 For he is not a Jew who _is one_ outwardly, nor _is_ circumcision that which _is_ outward in the flesh; 
 
 ###### 29 
-but _he is_ a Jew who _is one_ inwardly; and circumcision _is that_ of the heart, in the Spirit, not in the letter; whose [^g]praise _is_ not from men but from God.
+but _he is_ a Jew who _is one_ inwardly; and circumcision _is that_ of the heart, in the Spirit, not in the letter; whose praise _is_ not from men but from God.

@@ -49,7 +49,7 @@ Are we starting to commend ourselves again? Or we do not, like some [false teach
 
 
 
-[No] you yourselves are our letter of recommendation (our credentials), written in [^a]your hearts, to be known (perceived, recognized) and read by everybody. 
+[No] you yourselves are our letter of recommendation (our credentials), written in your hearts, to be known (perceived, recognized) and read by everybody. 
 
 
 
@@ -175,7 +175,7 @@ Now if the dispensation of death engraved in letters on stone [the ministration 
 
 
 
-Why should not the dispensation of the Spirit [this spiritual [^b]ministry whose task it is to cause men to obtain and be governed by the Holy Spirit] be attended with much greater _and_ more splendid glory? 
+Why should not the dispensation of the Spirit [this spiritual ministry whose task it is to cause men to obtain and be governed by the Holy Spirit] be attended with much greater _and_ more splendid glory? 
 
 
 
@@ -217,7 +217,7 @@ For if the service that condemns [the ministration of doom] had glory, how infin
 
 
 
-Indeed, in view of this fact, what once had splendor [[^c]the glory of the Law in the face of Moses] has come to have no splendor at all, because of the overwhelming glory that exceeds _and_ excels it [[^d]the glory of the Gospel in the face of Jesus Christ]. 
+Indeed, in view of this fact, what once had splendor [the glory of the Law in the face of Moses] has come to have no splendor at all, because of the overwhelming glory that exceeds _and_ excels it [the glory of the Gospel in the face of Jesus Christ]. 
 
 
 

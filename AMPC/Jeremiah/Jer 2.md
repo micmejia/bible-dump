@@ -427,7 +427,7 @@ Your own wickedness shall chasten _and_ correct you, and your backslidings _and_
 
 
 
-For long ago [in Egypt] I broke your yoke and burst your bonds [not that you might be free, but that you might serve Me] [^a]_and_ long ago you shattered the yoke and snapped the bonds [of My law which I put upon you]; you said, I will not serve _and_ obey You! For upon every high hill and under every green tree you [eagerly] prostrated yourself [in idolatrous worship], playing the harlot. 
+For long ago [in Egypt] I broke your yoke and burst your bonds [not that you might be free, but that you might serve Me] _and_ long ago you shattered the yoke and snapped the bonds [of My law which I put upon you]; you said, I will not serve _and_ obey You! For upon every high hill and under every green tree you [eagerly] prostrated yourself [in idolatrous worship], playing the harlot. 
 
 
 

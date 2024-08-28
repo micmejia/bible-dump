@@ -40,7 +40,7 @@ Now _men were_ lying in wait, staying with her in the room. And she said to him,
 Then Delilah said to Samson, "Look, you have mocked me and told me lies. Now, please tell me what you may be bound with." 
 
 ###### 11 
-So he said to her, "If they bind me securely with new ropes [^a]that have never been used, then I shall become weak, and be like any _other_ man." 
+So he said to her, "If they bind me securely with new ropes that have never been used, then I shall become weak, and be like any _other_ man." 
 
 ###### 12 
 Therefore Delilah took new ropes and bound him with them, and said to him, "The Philistines _are_ upon you, Samson!" And _men were_ lying in wait, staying in the room. But he broke them off his arms like a thread. 
@@ -55,7 +55,7 @@ So she wove _it_ tightly with the batten of the loom, and said to him, "The Phil
 Then she said to him, "How can you say, 'I love you,' when your heart _is_ not with me? You have mocked me these three times, and have not told me where your great strength _lies._" 
 
 ###### 16 
-And it came to pass, when she pestered him daily with her words and pressed him, _so_ that his soul was [^b]vexed to death, 
+And it came to pass, when she pestered him daily with her words and pressed him, _so_ that his soul was vexed to death, 
 
 ###### 17 
 that he told her all his heart, and said to her, "No razor has ever come upon my head, for I _have been_ a Nazirite to God from my mother's womb. If I am shaven, then my strength will leave me, and I shall become weak, and be like any _other_ man." 
@@ -64,13 +64,13 @@ that he told her all his heart, and said to her, "No razor has ever come upon my
 When Delilah saw that he had told her all his heart, she sent and called for the lords of the Philistines, saying, "Come up once more, for he has told me all his heart." So the lords of the Philistines came up to her and brought the money in their hand. 
 
 ###### 19 
-Then she lulled him to sleep on her knees, and called for a man and had him shave off the seven locks of his head. Then [^c]she began to torment him, and his strength left him. 
+Then she lulled him to sleep on her knees, and called for a man and had him shave off the seven locks of his head. Then she began to torment him, and his strength left him. 
 
 ###### 20 
 And she said, "The Philistines _are_ upon you, Samson!" So he awoke from his sleep, and said, "I will go out as before, at other times, and shake myself free!" But he did not know that the Lord had departed from him. 
 
 ###### 21 
-Then the Philistines took him and [^d]put out his eyes, and brought him down to Gaza. They bound him with bronze fetters, and he became a grinder in the prison. 
+Then the Philistines took him and put out his eyes, and brought him down to Gaza. They bound him with bronze fetters, and he became a grinder in the prison. 
 
 ###### 22 
 However, the hair of his head began to grow again after it had been shaven. ## Samson Dies with the Philistines 

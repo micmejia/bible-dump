@@ -13,16 +13,16 @@ next: ['Mark 4']
 And He entered the synagogue again, and a man was there who had a withered hand. 
 
 ###### 2 
-So they watched Him closely, whether He would heal him on the Sabbath, so that they might [^a]accuse Him. 
+So they watched Him closely, whether He would heal him on the Sabbath, so that they might accuse Him. 
 
 ###### 3 
-And He said to the man who had the withered hand, [^b]"Step forward." 
+And He said to the man who had the withered hand, "Step forward." 
 
 ###### 4 
 Then He said to them, "Is it lawful on the Sabbath to do good or to do evil, to save life or to kill?" But they kept silent. 
 
 ###### 5 
-And when He had looked around at them with anger, being grieved by the hardness of their hearts, He said to the man, "Stretch out your hand." And he stretched _it_ out, and his hand was restored [^c]as whole as the other. 
+And when He had looked around at them with anger, being grieved by the hardness of their hearts, He said to the man, "Stretch out your hand." And he stretched _it_ out, and his hand was restored as whole as the other. 
 
 ###### 6 
 Then the Pharisees went out and immediately plotted with the Herodians against Him, how they might destroy Him. ## A Great Multitude Follows Jesus 
@@ -49,13 +49,13 @@ But He sternly warned them that they should not make Him known. ## The Twelve Ap
 And He went up on the mountain and called to _Him_ those He Himself wanted. And they came to Him. 
 
 ###### 14 
-Then He appointed twelve, [^d]that they might be with Him and that He might send them out to preach, 
+Then He appointed twelve, that they might be with Him and that He might send them out to preach, 
 
 ###### 15 
-and to have [^e]power [^f]to heal sicknesses and to cast out demons: 
+and to have power to heal sicknesses and to cast out demons: 
 
 ###### 16 
-[^g]Simon, to whom He gave the name Peter; 
+Simon, to whom He gave the name Peter; 
 
 ###### 17 
 James the _son_ of Zebedee and John the brother of James, to whom He gave the name Boanerges, that is, "Sons of Thunder"; 
@@ -103,7 +103,7 @@ because they said, "He has an unclean spirit." ## Jesus' Mother and Brothers Sen
 Then His brothers and His mother came, and standing outside they sent to Him, calling Him. 
 
 ###### 32 
-And a multitude was sitting around Him; and they said to Him, "Look, Your mother and Your brothers [^h]are outside seeking You." 
+And a multitude was sitting around Him; and they said to Him, "Look, Your mother and Your brothers are outside seeking You." 
 
 ###### 33 
 But He answered them, saying, "Who is My mother, or My brothers?" 

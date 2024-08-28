@@ -567,7 +567,7 @@ Ang lahat ng sasampalataya at magpapabautismo ay maliligtas, ngunit ang hindi sa
 
 
 
-At ito ang mga palatandaang makikita sa mga taong sumasampalataya sa akin: sa pamamagitan ng aking kapangyarihan,[^a] magpapalayas sila ng masasamang espiritu; magsasalita sila sa ibang mga wika; 
+At ito ang mga palatandaang makikita sa mga taong sumasampalataya sa akin: sa pamamagitan ng aking kapangyarihan, magpapalayas sila ng masasamang espiritu; magsasalita sila sa ibang mga wika; 
 
 
 

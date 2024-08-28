@@ -364,7 +364,7 @@ O Lord, according to all Your rightness _and_ justice, I beseech You, let Your a
 
 
 
-Now therefore, O our God, listen to _and_ heed the prayer of Your servant [^a][Daniel] and his supplications, and for Your own sake cause Your face to shine upon Your sanctuary which is desolate. 
+Now therefore, O our God, listen to _and_ heed the prayer of Your servant [Daniel] and his supplications, and for Your own sake cause Your face to shine upon Your sanctuary which is desolate. 
 
 
 

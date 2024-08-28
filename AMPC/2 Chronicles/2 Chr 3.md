@@ -91,7 +91,7 @@ Now these are the measurements for the foundations which Solomon laid for the ho
 
 
 
-The porch _or_ vestibule across the front of the house was the same length as the house's breadth, twenty cubits, and the [^a]height 120 cubits. He overlaid it inside with pure gold. 
+The porch _or_ vestibule across the front of the house was the same length as the house's breadth, twenty cubits, and the height 120 cubits. He overlaid it inside with pure gold. 
 
 
 

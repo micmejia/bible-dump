@@ -91,7 +91,7 @@ He took his brother by the heel in [their mother's] womb, and in the strength [o
 
 
 
-Yes, he had power over the [^a]Angel [of the Lord] and prevailed; he wept and sought His favor. He met Him in Bethel, and there [God] spoke with [him and through him with] us-- 
+Yes, he had power over the Angel [of the Lord] and prevailed; he wept and sought His favor. He met Him in Bethel, and there [God] spoke with [him and through him with] us-- 
 
 
 

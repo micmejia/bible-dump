@@ -40,7 +40,7 @@ next: ['Isa 9']
 
 
 
-Sinabi ng Panginoon sa akin, "Kumuha ka ng isang malapad na sulatan, at isulat mo ang mga katagang ito: 'Maher Shalal Hash Baz.' "[^a] 
+Sinabi ng Panginoon sa akin, "Kumuha ka ng isang malapad na sulatan, at isulat mo ang mga katagang ito: 'Maher Shalal Hash Baz.' " 
 
 
 
@@ -205,7 +205,7 @@ Sinabi pa ng Panginoon sa akin,
 
 
 
-"Dahil sa tinanggihan ng mga taong ito[^b] ang tubig ng Shiloa na umaagos nang banayad,[^c] at natutuwa sila kay Haring Rezin at Haring Peka, 
+"Dahil sa tinanggihan ng mga taong ito ang tubig ng Shiloa na umaagos nang banayad, at natutuwa sila kay Haring Rezin at Haring Peka, 
 
 
 
@@ -271,7 +271,7 @@ ipapasalakay ko sila sa hari ng Asiria at sa mga sundalo nito na parang Ilog ng 
 
 
 
-Dadagsa sila sa Juda gaya ng baha na ang tubig ay tumataas hanggang leeg at umaapaw sa buong lupain." Pero kasama namin ang Dios![^d] 
+Dadagsa sila sa Juda gaya ng baha na ang tubig ay tumataas hanggang leeg at umaapaw sa buong lupain." Pero kasama namin ang Dios! 
 
 
 
@@ -337,7 +337,7 @@ Kayong mga bansa, kahit na magsama-sama kayo, magkakawatak-watak pa rin kayo. Ma
 
 
 
-Anuman ang binabalak ninyo laban sa amin ay hindi magtatagumpay, dahil kasama namin ang Dios.[^e] ## Panawagan ng Pagtitiwala sa Dios 
+Anuman ang binabalak ninyo laban sa amin ay hindi magtatagumpay, dahil kasama namin ang Dios. ## Panawagan ng Pagtitiwala sa Dios 
 
 
 
@@ -601,7 +601,7 @@ Magtitiwala ako sa Panginoon kahit na tinalikuran niya ang lahi ni Jacob. Sa kan
 
 
 
-Ako at ang mga anak kong ibinigay ng Panginoon ay mga palatandaan para sa Israel[^f] mula sa Panginoong Makapangyarihan na nakatira sa Bundok ng Zion. 
+Ako at ang mga anak kong ibinigay ng Panginoon ay mga palatandaan para sa Israel mula sa Panginoong Makapangyarihan na nakatira sa Bundok ng Zion. 
 
 
 

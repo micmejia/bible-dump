@@ -196,7 +196,7 @@ And the Lord said to Moses, Make a fiery serpent [of bronze] and set it on a pol
 
 
 
-And Moses made a serpent of bronze and put it on a pole, and if a serpent had bitten any man, when he looked to the serpent of bronze [[^a]attentively, expectantly, with a steady and absorbing gaze], he lived. 
+And Moses made a serpent of bronze and put it on a pole, and if a serpent had bitten any man, when he looked to the serpent of bronze [attentively, expectantly, with a steady and absorbing gaze], he lived. 
 
 
 

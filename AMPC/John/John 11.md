@@ -847,7 +847,7 @@ Jesus said, Take away the stone. Martha, the sister of the dead man, exclaimed, 
 
 
 
-Jesus said to her, Did I not tell you _and_ [^a]promise you that if you would believe _and_ rely on Me, you would see the glory of God? 
+Jesus said to her, Did I not tell you _and_ promise you that if you would believe _and_ rely on Me, you would see the glory of God? 
 
 
 
@@ -1015,7 +1015,7 @@ So the chief priests and Pharisees called a meeting of the council (the Sanhedri
 
 
 
-If we let Him alone to go on like this, everyone will believe in Him _and_ adhere to Him, and the Romans will come and suppress _and_ destroy _and_ take away our [holy] place and our nation [[^b]our temple and city and our civil organization]. 
+If we let Him alone to go on like this, everyone will believe in Him _and_ adhere to Him, and the Romans will come and suppress _and_ destroy _and_ take away our [holy] place and our nation [our temple and city and our civil organization]. 
 
 
 
@@ -1183,7 +1183,7 @@ Now the Jewish Passover was at hand, and many from the country went up to Jerusa
 
 
 
-So they kept looking for Jesus and questioned among themselves as they were standing about in the temple [[^c]area], What do you think? Will He not come to the Feast at all? 
+So they kept looking for Jesus and questioned among themselves as they were standing about in the temple [area], What do you think? Will He not come to the Feast at all? 
 
 
 

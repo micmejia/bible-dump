@@ -12,10 +12,10 @@ up: ['1 Peter']
 The elders who are among you I exhort, I who am a fellow elder and a witness of the sufferings of Christ, and also a partaker of the glory that will be revealed: 
 
 ###### 2 
-Shepherd the flock of God which is among you, serving as overseers, not by compulsion but [^a]willingly, not for dishonest gain but eagerly; 
+Shepherd the flock of God which is among you, serving as overseers, not by compulsion but willingly, not for dishonest gain but eagerly; 
 
 ###### 3 
-nor as being [^b]lords over those entrusted to you, but being examples to the flock; 
+nor as being lords over those entrusted to you, but being examples to the flock; 
 
 ###### 4 
 and when the Chief Shepherd appears, you will receive the crown of glory that does not fade away. ## Submit to God, Resist the Devil 
@@ -30,13 +30,13 @@ Therefore humble yourselves under the mighty hand of God, that He may exalt you 
 casting all your care upon Him, for He cares for you. 
 
 ###### 8 
-Be [^c]sober, be [^d]vigilant; [^e]because your adversary the devil walks about like a roaring lion, seeking whom he may devour. 
+Be sober, be vigilant; because your adversary the devil walks about like a roaring lion, seeking whom he may devour. 
 
 ###### 9 
 Resist him, steadfast in the faith, knowing that the same sufferings are experienced by your brotherhood in the world. 
 
 ###### 10 
-But [^f]may the God of all grace, who called [^g]us to His eternal glory by Christ Jesus, after you have suffered a while, [^h]perfect, establish, strengthen, and settle _you._ 
+But may the God of all grace, who called us to His eternal glory by Christ Jesus, after you have suffered a while, perfect, establish, strengthen, and settle _you._ 
 
 ###### 11 
 To Him _be_ the glory and the dominion forever and ever. Amen. ## Farewell and Peace 

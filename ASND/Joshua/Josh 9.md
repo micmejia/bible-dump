@@ -40,7 +40,7 @@ next: ['Josh 10']
 
 
 
-Narinig ng lahat ng hari sa kanluran ng Jordan ang pagtatagumpay ng mga Israelita. (Ito ay ang mga hari ng mga Heteo, Amoreo, Cananeo, Perezeo, Hiveo, at mga Jebuseo.) Nakatira sila sa mga kabundukan, kaburulan sa kanluran[^a] at sa baybayin ng Dagat ng Mediteraneo hanggang sa Lebanon. 
+Narinig ng lahat ng hari sa kanluran ng Jordan ang pagtatagumpay ng mga Israelita. (Ito ay ang mga hari ng mga Heteo, Amoreo, Cananeo, Perezeo, Hiveo, at mga Jebuseo.) Nakatira sila sa mga kabundukan, kaburulan sa kanluran at sa baybayin ng Dagat ng Mediteraneo hanggang sa Lebanon. 
 
 
 

@@ -133,7 +133,7 @@ Or do you suppose that the Scripture is speaking to no purpose that says, The Sp
 
 
 
-But He gives us more and more grace ([^a]power of the Holy Spirit, to meet this evil tendency and all others fully). That is why He says, God sets Himself against the proud and haughty, but gives grace [continually] to the lowly (those who are humble enough to receive it). 
+But He gives us more and more grace (power of the Holy Spirit, to meet this evil tendency and all others fully). That is why He says, God sets Himself against the proud and haughty, but gives grace [continually] to the lowly (those who are humble enough to receive it). 
 
 
 

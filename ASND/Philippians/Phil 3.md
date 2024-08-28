@@ -106,7 +106,7 @@ Mag-ingat kayo sa mga <i class="trans-change">Judio na_ namimilit na tuliin <i c
 
 
 
-Ngunit tayo ang totoong tuli,[^a] dahil sumasamba tayo sa Dios sa tulong ng <i class="trans-change">Banal na_ Espiritu, at ipinagmamalaki ang ginawa ni Cristo Jesus. Hindi tayo nagtitiwala sa mga panlabas na seremonya o panuntunan <i class="trans-change">para maligtas tayo_. 
+Ngunit tayo ang totoong tuli, dahil sumasamba tayo sa Dios sa tulong ng <i class="trans-change">Banal na_ Espiritu, at ipinagmamalaki ang ginawa ni Cristo Jesus. Hindi tayo nagtitiwala sa mga panlabas na seremonya o panuntunan <i class="trans-change">para maligtas tayo_. 
 
 
 
@@ -634,7 +634,7 @@ Sapagkat maraming namumuhay na salungat sa aral tungkol sa kamatayan ni Cristo s
 
 
 
-Kapahamakan ang kahihinatnan nila dahil dinidios nila ang kanilang tiyan.[^b] Ipinagmamalaki pa nila ang mga bagay na dapat sana nilang ikahiya, at wala silang iniisip kundi ang mga makamundong bagay. 
+Kapahamakan ang kahihinatnan nila dahil dinidios nila ang kanilang tiyan. Ipinagmamalaki pa nila ang mga bagay na dapat sana nilang ikahiya, at wala silang iniisip kundi ang mga makamundong bagay. 
 
 
 

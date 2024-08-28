@@ -12,7 +12,7 @@ next: ['1 Cor 2']
 Paul, called _to be_ an apostle of Jesus Christ through the will of God, and Sosthenes _our_ brother, 
 
 ###### 2 
-To the church of God which is at Corinth, to those who are [^a]sanctified in Christ Jesus, called _to be_ saints, with all who in every place call on the name of Jesus Christ our Lord, both theirs and ours: 
+To the church of God which is at Corinth, to those who are sanctified in Christ Jesus, called _to be_ saints, with all who in every place call on the name of Jesus Christ our Lord, both theirs and ours: 
 
 ###### 3 
 Grace to you and peace from God our Father and the Lord Jesus Christ. ## Spiritual Gifts at Corinth 
@@ -21,10 +21,10 @@ Grace to you and peace from God our Father and the Lord Jesus Christ. ## Spiritu
 I thank my God always concerning you for the grace of God which was given to you by Christ Jesus, 
 
 ###### 5 
-that you were enriched in everything by Him in all [^b]utterance and all knowledge, 
+that you were enriched in everything by Him in all utterance and all knowledge, 
 
 ###### 6 
-even as the testimony of Christ was confirmed [^c]in you, 
+even as the testimony of Christ was confirmed in you, 
 
 ###### 7 
 so that you come short in no gift, eagerly waiting for the revelation of our Lord Jesus Christ, 
@@ -36,10 +36,10 @@ who will also confirm you to the end, _that you may be_ blameless in the day of 
 God _is_ faithful, by whom you were called into the fellowship of His Son, Jesus Christ our Lord. ## Sectarianism Is Sin 
 
 ###### 10 
-Now I plead with you, brethren, by the name of our Lord Jesus Christ, that you all [^d]speak the same thing, and _that_ there be no [^e]divisions among you, but _that_ you be perfectly joined together in the same mind and in the same judgment. 
+Now I plead with you, brethren, by the name of our Lord Jesus Christ, that you all speak the same thing, and _that_ there be no divisions among you, but _that_ you be perfectly joined together in the same mind and in the same judgment. 
 
 ###### 11 
-For it has been declared to me concerning you, my brethren, by those of Chloe's _household,_ that there are [^f]contentions among you. 
+For it has been declared to me concerning you, my brethren, by those of Chloe's _household,_ that there are contentions among you. 
 
 ###### 12 
 Now I say this, that each of you says, "I am of Paul," or "I am of Apollos," or "I am of Cephas," or "I am of Christ." 
@@ -60,13 +60,13 @@ Yes, I also baptized the household of Stephanas. Besides, I do not know whether 
 For Christ did not send me to baptize, but to preach the gospel, not with wisdom of words, lest the cross of Christ should be made of no effect. ## Christ the Power and Wisdom of God 
 
 ###### 18 
-For the [^g]message of the cross is foolishness to those who are perishing, but to us who are being saved it is the power of God. 
+For the message of the cross is foolishness to those who are perishing, but to us who are being saved it is the power of God. 
 
 ###### 19 
 For it is written: "I will destroy the wisdom of the wise, And bring to nothing the understanding of the prudent." 
 
 ###### 20 
-Where _is_ the wise? Where _is_ the scribe? Where _is_ the [^h]disputer of this age? Has not God made foolish the wisdom of this world? 
+Where _is_ the wise? Where _is_ the scribe? Where _is_ the disputer of this age? Has not God made foolish the wisdom of this world? 
 
 ###### 21 
 For since, in the wisdom of God, the world through wisdom did not know God, it pleased God through the foolishness of the message preached to save those who believe. 
@@ -75,7 +75,7 @@ For since, in the wisdom of God, the world through wisdom did not know God, it p
 For Jews request a sign, and Greeks seek after wisdom; 
 
 ###### 23 
-but we preach Christ crucified, to the Jews a [^i]stumbling block and to the [^j]Greeks foolishness, 
+but we preach Christ crucified, to the Jews a stumbling block and to the Greeks foolishness, 
 
 ###### 24 
 but to those who are called, both Jews and Greeks, Christ the power of God and the wisdom of God. 
@@ -84,13 +84,13 @@ but to those who are called, both Jews and Greeks, Christ the power of God and t
 Because the foolishness of God is wiser than men, and the weakness of God is stronger than men. ## Glory Only in the Lord 
 
 ###### 26 
-For [^k]you see your calling, brethren, that not many wise according to the flesh, not many mighty, not many [^l]noble, _are called._ 
+For you see your calling, brethren, that not many wise according to the flesh, not many mighty, not many noble, _are called._ 
 
 ###### 27 
 But God has chosen the foolish things of the world to put to shame the wise, and God has chosen the weak things of the world to put to shame the things which are mighty; 
 
 ###### 28 
-and the [^m]base things of the world and the things which are despised God has chosen, and the things which are not, to bring to nothing the things that are, 
+and the base things of the world and the things which are despised God has chosen, and the things which are not, to bring to nothing the things that are, 
 
 ###### 29 
 that no flesh should glory in His presence. 

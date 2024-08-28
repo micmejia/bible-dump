@@ -153,7 +153,7 @@ In this way [our] witnessing concerning Christ (the Messiah) was so confirmed _a
 
 
 
-That you are not [consciously] falling behind _or_ lacking in any special spiritual endowment _or_ Christian grace [[^a]the reception of which is due to the power of divine grace operating in your souls by the Holy Spirit], while you wait _and_ watch [constantly living in hope] for the coming of our Lord Jesus Christ _and_ [His] being made visible to all. 
+That you are not [consciously] falling behind _or_ lacking in any special spiritual endowment _or_ Christian grace [the reception of which is due to the power of divine grace operating in your souls by the Holy Spirit], while you wait _and_ watch [constantly living in hope] for the coming of our Lord Jesus Christ _and_ [His] being made visible to all. 
 
 
 

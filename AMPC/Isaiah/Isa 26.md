@@ -28,7 +28,7 @@ next: ['Isa 27']
 
 
 
-In that day shall this song be sung in the land of Judah: [^a]We have a strong city; [the Lord] sets up salvation as walls and bulwarks. 
+In that day shall this song be sung in the land of Judah: We have a strong city; [the Lord] sets up salvation as walls and bulwarks. 
 
 
 

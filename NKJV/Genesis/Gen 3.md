@@ -25,13 +25,13 @@ Then the serpent said to the woman, "You will not surely die.
 For God knows that in the day you eat of it your eyes will be opened, and you will be like God, knowing good and evil." 
 
 ###### 6 
-So when the woman saw that the tree _was_ good for food, that it _was_ [^a]pleasant to the eyes, and a tree desirable to make _one_ wise, she took of its fruit and ate. She also gave to her husband with her, and he ate. 
+So when the woman saw that the tree _was_ good for food, that it _was_ pleasant to the eyes, and a tree desirable to make _one_ wise, she took of its fruit and ate. She also gave to her husband with her, and he ate. 
 
 ###### 7 
-Then the eyes of both of them were opened, and they knew that they _were_ naked; and they sewed fig leaves together and made themselves [^b]coverings. 
+Then the eyes of both of them were opened, and they knew that they _were_ naked; and they sewed fig leaves together and made themselves coverings. 
 
 ###### 8 
-And they heard the [^c]sound of the Lord God walking in the garden in the [^d]cool of the day, and Adam and his wife hid themselves from the presence of the Lord God among the trees of the garden. 
+And they heard the sound of the Lord God walking in the garden in the cool of the day, and Adam and his wife hid themselves from the presence of the Lord God among the trees of the garden. 
 
 ###### 9 
 Then the Lord God called to Adam and said to him, "Where _are_ you?" 
@@ -55,19 +55,19 @@ So the Lord God said to the serpent: "Because you have done this, You _are_ curs
 And I will put enmity Between you and the woman, And between your seed and her Seed; He shall bruise your head, And you shall bruise His heel." 
 
 ###### 16 
-To the woman He said: "I will greatly multiply your sorrow and your conception; In pain you shall bring forth children; Your desire _shall be_ [^e]for your husband, And he shall rule over you." 
+To the woman He said: "I will greatly multiply your sorrow and your conception; In pain you shall bring forth children; Your desire _shall be_ for your husband, And he shall rule over you." 
 
 ###### 17 
 Then to Adam He said, "Because you have heeded the voice of your wife, and have eaten from the tree of which I commanded you, saying, 'You shall not eat of it': "Cursed _is_ the ground for your sake; In toil you shall eat _of_ it All the days of your life. 
 
 ###### 18 
-Both thorns and thistles it shall [^f]bring forth for you, And you shall eat the herb of the field. 
+Both thorns and thistles it shall bring forth for you, And you shall eat the herb of the field. 
 
 ###### 19 
 In the sweat of your face you shall eat bread Till you return to the ground, For out of it you were taken; For dust you _are,_ And to dust you shall return." 
 
 ###### 20 
-And Adam called his wife's name Eve,[^g] because she was the mother of all living. 
+And Adam called his wife's name Eve, because she was the mother of all living. 
 
 ###### 21 
 Also for Adam and his wife the Lord God made tunics of skin, and clothed them. 

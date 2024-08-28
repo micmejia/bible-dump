@@ -31,7 +31,7 @@ When you sound the advance the second time, then the camps that lie on the south
 And when the assembly is to be gathered together, you shall blow, but not sound the advance. 
 
 ###### 8 
-The sons of Aaron, the priests, shall blow the trumpets; and these shall be to you as an [^a]ordinance forever throughout your generations. 
+The sons of Aaron, the priests, shall blow the trumpets; and these shall be to you as an ordinance forever throughout your generations. 
 
 ###### 9 
 "When you go to war in your land against the enemy who oppresses you, then you shall sound an alarm with the trumpets, and you will be remembered before the Lord your God, and you will be saved from your enemies. 
@@ -49,7 +49,7 @@ And the children of Israel set out from the Wilderness of Sinai on their journey
 So they started out for the first time according to the command of the Lord by the hand of Moses. 
 
 ###### 14 
-The [^b]standard of the camp of the children of Judah set out first according to their armies; over their army was Nahshon the son of Amminadab. 
+The standard of the camp of the children of Judah set out first according to their armies; over their army was Nahshon the son of Amminadab. 
 
 ###### 15 
 Over the army of the tribe of the children of Issachar _was_ Nethanel the son of Zuar. 
@@ -70,7 +70,7 @@ Over the army of the tribe of the children of Simeon _was_ Shelumiel the son of 
 And over the army of the tribe of the children of Gad _was_ Eliasaph the son of Deuel. 
 
 ###### 21 
-Then the Kohathites set out, carrying the holy things. (The tabernacle would be [^c]prepared for their arrival.) 
+Then the Kohathites set out, carrying the holy things. (The tabernacle would be prepared for their arrival.) 
 
 ###### 22 
 And the standard of the camp of the children of Ephraim set out according to their armies; over their army _was_ Elishama the son of Ammihud. 
@@ -94,13 +94,13 @@ And over the army of the tribe of the children of Naphtali _was_ Ahira the son o
 Thus _was_ the order of march of the children of Israel, according to their armies, when they began their journey. 
 
 ###### 29 
-Now Moses said to Hobab the son of Reuel[^d] the Midianite, Moses' father-in-law, "We are setting out for the place of which the Lord said, 'I will give it to you.' Come with us, and we will treat you well; for the Lord has promised good things to Israel." 
+Now Moses said to Hobab the son of Reuel the Midianite, Moses' father-in-law, "We are setting out for the place of which the Lord said, 'I will give it to you.' Come with us, and we will treat you well; for the Lord has promised good things to Israel." 
 
 ###### 30 
 And he said to him, "I will not go, but I will depart to my _own_ land and to my relatives." 
 
 ###### 31 
-So _Moses_ said, "Please do not leave, inasmuch as you know how we are to camp in the wilderness, and you can [^e]be our eyes. 
+So _Moses_ said, "Please do not leave, inasmuch as you know how we are to camp in the wilderness, and you can be our eyes. 
 
 ###### 32 
 And it shall be, if you go with us--indeed it shall be--that whatever good the Lord will do to us, the same we will do to you." 

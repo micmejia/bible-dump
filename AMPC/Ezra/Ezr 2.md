@@ -1330,7 +1330,7 @@ These sought their names among those enrolled in the genealogies, but they were 
 
 
 
-[Zerubbabel] the governor told them they should not eat of the most holy things [the priests' food] until there should be a priest with Urim and Thummim [who by consulting these articles in his breastplate could [^a]know God's will in the matter]. 
+[Zerubbabel] the governor told them they should not eat of the most holy things [the priests' food] until there should be a priest with Urim and Thummim [who by consulting these articles in his breastplate could know God's will in the matter]. 
 
 
 

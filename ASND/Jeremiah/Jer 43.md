@@ -304,7 +304,7 @@ Doon sa Tapanhes, sinabi ng Panginoon kay Jeremias,
 
 
 
-"Habang nakatingin ang mga taga-Juda, kumuha ka ng malalaking bato at ibaon mo sa lupa sa gitna ng daan papasok sa palasyo ng Faraon[^a] sa Tapanhes. 
+"Habang nakatingin ang mga taga-Juda, kumuha ka ng malalaking bato at ibaon mo sa lupa sa gitna ng daan papasok sa palasyo ng Faraon sa Tapanhes. 
 
 
 
@@ -436,4 +436,4 @@ Susunugin niya ang mga templo ng mga dios-diosan sa Egipto. Ang ibang mga dios-d
 
 
 
-Talagang wawasakin niya ang mga haligi ng dios-diosan sa Heliopolis[^b] sa Egipto, at susunugin niya ang mga templo ng mga dios-diosan doon.' "
+Talagang wawasakin niya ang mga haligi ng dios-diosan sa Heliopolis sa Egipto, at susunugin niya ang mga templo ng mga dios-diosan doon.' "

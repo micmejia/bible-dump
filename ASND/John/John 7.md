@@ -73,7 +73,7 @@ Pagkatapos nito, nilibot ni Jesus ang Galilea. Iniwasan niyang pumunta sa Judea 
 
 
 
-Nang malapit na ang pista ng mga Judio na tinatawag na Pista ng Pagtatayo ng mga Kubol,[^a] 
+Nang malapit na ang pista ng mga Judio na tinatawag na Pista ng Pagtatayo ng mga Kubol, 
 
 
 

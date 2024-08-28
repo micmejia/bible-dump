@@ -28,7 +28,7 @@ next: ['1 Cor 4']
 
 
 
-However, brethren, I could not talk to you as to spiritual [men], but as to nonspiritual [men of the flesh, in whom the carnal nature predominates], as to mere infants [in the new life] in Christ [[^a]unable to talk yet!] 
+However, brethren, I could not talk to you as to spiritual [men], but as to nonspiritual [men of the flesh, in whom the carnal nature predominates], as to mere infants [in the new life] in Christ [unable to talk yet!] 
 
 
 
@@ -196,7 +196,7 @@ He who plants and he who waters are equal (one in aim, of the same importance an
 
 
 
-For we are fellow workmen (joint promoters, laborers together) with _and_ for God; _you_ are God's [^b]garden _and_ vineyard _and_ field under cultivation, [you are] God's building. 
+For we are fellow workmen (joint promoters, laborers together) with _and_ for God; _you_ are God's garden _and_ vineyard _and_ field under cultivation, [you are] God's building. 
 
 
 
@@ -343,7 +343,7 @@ But if any person's work is burned up [under the test], he will suffer the loss 
 
 
 
-Do you not discern _and_ understand that you [the whole church at Corinth] are God's temple (His sanctuary), and that God's Spirit has His permanent dwelling in you [to be at home in you, [^c]collectively as a church and also individually]? 
+Do you not discern _and_ understand that you [the whole church at Corinth] are God's temple (His sanctuary), and that God's Spirit has His permanent dwelling in you [to be at home in you, collectively as a church and also individually]? 
 
 
 
@@ -364,7 +364,7 @@ Do you not discern _and_ understand that you [the whole church at Corinth] are G
 
 
 
-If anyone [^d]does hurt to God's temple _or_ corrupts it [[^e]with false doctrines] _or_ destroys it, God will [^f]do hurt to him _and_ bring him to the corruption of death _and_ destroy him. For the temple of God is holy (sacred to Him) and that [temple] you [[^g]the believing church and its individual believers] are. 
+If anyone does hurt to God's temple _or_ corrupts it [with false doctrines] _or_ destroys it, God will do hurt to him _and_ bring him to the corruption of death _and_ destroy him. For the temple of God is holy (sacred to Him) and that [temple] you [the believing church and its individual believers] are. 
 
 
 
@@ -469,7 +469,7 @@ So let no one exult proudly concerning men [boasting of having this or that man 
 
 
 
-Whether Paul or Apollos or Cephas (Peter), or the universe or life or death, or the immediate _and_ [^h]threatening present or the [subsequent and uncertain] future--all are yours, 
+Whether Paul or Apollos or Cephas (Peter), or the universe or life or death, or the immediate _and_ threatening present or the [subsequent and uncertain] future--all are yours, 
 
 
 

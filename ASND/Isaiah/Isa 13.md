@@ -634,7 +634,7 @@ Papatayin ng mga taga-Media ang mga kabataang lalaki sa pamamagitan ng pana. Pat
 
 
 
-Ang Babilonia ay kahariang pinakamaganda sa lahat ng kaharian. Ipinagmamalaki ito ng kanyang mga mamamayan.[^a] Pero wawasakin ko ito katulad ng Sodom at Gomora. 
+Ang Babilonia ay kahariang pinakamaganda sa lahat ng kaharian. Ipinagmamalaki ito ng kanyang mga mamamayan. Pero wawasakin ko ito katulad ng Sodom at Gomora. 
 
 
 
@@ -733,4 +733,4 @@ Magiging tirahan na lang ito ng mga hayop sa gubat. Titirhan ng mga kuwago at ng
 
 
 
-Aalulong doon sa mga tore nila at mga palasyo ang mga asong-gubat.[^b] Nalalapit na ang wakas ng Babilonia; hindi na ito magtatagal.
+Aalulong doon sa mga tore nila at mga palasyo ang mga asong-gubat. Nalalapit na ang wakas ng Babilonia; hindi na ito magtatagal.

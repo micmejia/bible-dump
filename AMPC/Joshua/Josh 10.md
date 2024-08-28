@@ -847,7 +847,7 @@ And he took it, with its king and all its towns, and they smote them with the sw
 
 
 
-So Joshua smote all the land, the hill country, the South, the lowland, and the slopes, and all their kings. He left none remaining, but utterly destroyed all that breathed, as the [^a]Lord, the God of Israel, commanded. 
+So Joshua smote all the land, the hill country, the South, the lowland, and the slopes, and all their kings. He left none remaining, but utterly destroyed all that breathed, as the Lord, the God of Israel, commanded. 
 
 
 

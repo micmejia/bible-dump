@@ -448,7 +448,7 @@ When the sticks on which you write shall be in your hand before their eyes,
 
 
 
-Then say to them, Thus says the Lord God: Behold, I will take the children of Israel from among the nations to which they have gone, and will [^a]gather them from every side and bring them into their own land. 
+Then say to them, Thus says the Lord God: Behold, I will take the children of Israel from among the nations to which they have gone, and will gather them from every side and bring them into their own land. 
 
 
 
@@ -469,7 +469,7 @@ Then say to them, Thus says the Lord God: Behold, I will take the children of Is
 
 
 
-And I will make them one nation in the land, upon the mountains of Israel, and one [^b]King shall be King over them all; and they shall be no longer two nations, neither be divided into two kingdoms any more. 
+And I will make them one nation in the land, upon the mountains of Israel, and one King shall be King over them all; and they shall be no longer two nations, neither be divided into two kingdoms any more. 
 
 
 
@@ -511,7 +511,7 @@ They shall not defile themselves any more with their idols and their detestable 
 
 
 
-And [^c]David My Servant shall be King over them, and they all shall have one Shepherd. They shall also walk in My ordinances and heed My statutes and do them. 
+And David My Servant shall be King over them, and they all shall have one Shepherd. They shall also walk in My ordinances and heed My statutes and do them. 
 
 
 

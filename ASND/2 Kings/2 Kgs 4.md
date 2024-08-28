@@ -766,7 +766,7 @@ Tinawag ng babae ang asawa niya at sinabi, "Padalhan mo ako ng isang utusan at i
 
 
 
-Nagtanong ang asawa niya, "Bakit ngayon ka pupunta? Hindi naman Pista ng Pagsisimula ng Buwan[^a] o Araw ng Pamamahinga?" Sumagot ang babae, "Ayos lang iyon." 
+Nagtanong ang asawa niya, "Bakit ngayon ka pupunta? Hindi naman Pista ng Pagsisimula ng Buwan o Araw ng Pamamahinga?" Sumagot ang babae, "Ayos lang iyon." 
 
 
 
@@ -1228,7 +1228,7 @@ Tinawag ni Eliseo si Gehazi at sinabi, "Tawagin mo ang kanyang ina." Kaya tinawa
 
 
 
-Nagpatirapa ang babae sa paanan ni Eliseo <i class="trans-change">bilang pagpapasalamat_[^b] <i class="trans-change">sa kanya_. Kinuha niya ang anak niya at dinala sa ibaba. ## Ang Himala sa Panahon ng Taggutom 
+Nagpatirapa ang babae sa paanan ni Eliseo <i class="trans-change">bilang pagpapasalamat_ <i class="trans-change">sa kanya_. Kinuha niya ang anak niya at dinala sa ibaba. ## Ang Himala sa Panahon ng Taggutom 
 
 
 
@@ -1327,7 +1327,7 @@ Pumunta sa bukid para kumuha ng mga gulay ang isa sa mga propeta. Nakakita siya 
 
 
 
-<i class="trans-change">Pagkaluto ng pagkain,_ ipinamahagi niya ito sa mga tao. Pero habang kumakain, sumigaw sila, "Lingkod ng Dios, napakasama ng lasa nito!"[^c] Kaya hindi na nila ito kinain. 
+<i class="trans-change">Pagkaluto ng pagkain,_ ipinamahagi niya ito sa mga tao. Pero habang kumakain, sumigaw sila, "Lingkod ng Dios, napakasama ng lasa nito!" Kaya hindi na nila ito kinain. 
 
 
 
@@ -1393,7 +1393,7 @@ Sinabi ni Eliseo, "Kumuha ka ng harina." Ibinuhos niya ang harina sa palayok at 
 
 
 
-<i class="trans-change">Isang araw,_ may isang lalaking galing sa Baal Shalisha na nagdala kay Eliseo ng isang sako na may lamang 20 tinapay na gawa sa unang ani ng sebada at mga bagong aning butil. Sinabi ni Eliseo, "Ibigay mo iyan sa grupo ng mga propeta[^d] para kainin." 
+<i class="trans-change">Isang araw,_ may isang lalaking galing sa Baal Shalisha na nagdala kay Eliseo ng isang sako na may lamang 20 tinapay na gawa sa unang ani ng sebada at mga bagong aning butil. Sinabi ni Eliseo, "Ibigay mo iyan sa grupo ng mga propeta para kainin." 
 
 
 

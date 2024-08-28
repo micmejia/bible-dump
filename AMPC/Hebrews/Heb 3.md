@@ -175,7 +175,7 @@ Therefore, as the Holy Spirit says: Today, if you will hear His voice,
 
 
 
-Do not harden your hearts, as [happened] in the rebellion [of Israel] _and_ their provocation _and_ [^a]embitterment [of Me] in the day of testing in the wilderness, 
+Do not harden your hearts, as [happened] in the rebellion [of Israel] _and_ their provocation _and_ embitterment [of Me] in the day of testing in the wilderness, 
 
 
 
@@ -196,7 +196,7 @@ Do not harden your hearts, as [happened] in the rebellion [of Israel] _and_ thei
 
 
 
-Where your fathers tried [My patience] _and_ tested [My forbearance] and [^b]found I stood their test, and they saw My works for forty years. 
+Where your fathers tried [My patience] _and_ tested [My forbearance] and found I stood their test, and they saw My works for forty years. 
 
 
 
@@ -301,7 +301,7 @@ But instead warn (admonish, urge, and encourage) one another every day, as long 
 
 
 
-For we [^c]have become fellows with Christ (the Messiah) _and_ share in all He has for us, if only we hold our first newborn confidence _and_ original assured expectation [in virtue of which we are believers] firm _and_ unshaken to the end. 
+For we have become fellows with Christ (the Messiah) _and_ share in all He has for us, if only we hold our first newborn confidence _and_ original assured expectation [in virtue of which we are believers] firm _and_ unshaken to the end. 
 
 
 
@@ -364,7 +364,7 @@ For who were they who heard _and_ yet were rebellious _and_ provoked [Him]? Was 
 
 
 
-And with whom was He irritated _and_ provoked _and_ grieved for forty years? Was it not with those who sinned, whose [^d]dismembered bodies were strewn _and_ left in the desert? 
+And with whom was He irritated _and_ provoked _and_ grieved for forty years? Was it not with those who sinned, whose dismembered bodies were strewn _and_ left in the desert? 
 
 
 

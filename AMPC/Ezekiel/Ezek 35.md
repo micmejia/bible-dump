@@ -196,7 +196,7 @@ And I will fill [Edom's] mountains with his slain men; on your hills and in your
 
 
 
-I will make you a perpetual desolation and your [^a]cities shall not be inhabited. Then you will know, understand, _and_ realize that I am the Lord [the Sovereign Ruler, Who calls forth loyalty and obedient service]. 
+I will make you a perpetual desolation and your cities shall not be inhabited. Then you will know, understand, _and_ realize that I am the Lord [the Sovereign Ruler, Who calls forth loyalty and obedient service]. 
 
 
 

@@ -49,7 +49,7 @@ The Lord said to Moses, Depart, go up from here, you and the people whom you hav
 
 
 
-I will send an [^a]Angel before you, and I will drive out the Canaanite, Amorite, Hittite, Perizzite, Hivite, and Jebusite. 
+I will send an Angel before you, and I will drive out the Canaanite, Amorite, Hittite, Perizzite, Hivite, and Jebusite. 
 
 
 

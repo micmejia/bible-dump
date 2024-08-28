@@ -337,7 +337,7 @@ May mga daanan papasok sa ibabang palapag ng gusaling ito kung galing ka sa band
 
 
 
-Mayroon ding mga silid sa bandang timog[^a] na pader ng bakuran sa loob. Ang mga silid na ito na nasa gilid ng bakuran sa loob ay malapit din sa gusali <i class="trans-change">sa kanluran_. 
+Mayroon ding mga silid sa bandang timog na pader ng bakuran sa loob. Ang mga silid na ito na nasa gilid ng bakuran sa loob ay malapit din sa gusali <i class="trans-change">sa kanluran_. 
 
 
 
@@ -436,7 +436,7 @@ katulad din sa mga silid sa timog. May pintuan pagdating mismo sa daanan na papa
 
 
 
-Sinabi sa akin ng tao, "Ang mga silid na ito sa gawing timog at hilaga na nasa gilid ng bakuran sa loob ay mga banal na silid. Sapagkat diyan kumakain ang mga pari ng mga banal na handog na inihandog nila sa Panginoon. Gagamitin din nila ang mga silid na ito bilang lalagyan ng mga handog ng pagpaparangal sa Panginoon, handog sa paglilinis at handog na pambayad ng kasalanan.[^b] Sapagkat banal ang mga silid na ito. 
+Sinabi sa akin ng tao, "Ang mga silid na ito sa gawing timog at hilaga na nasa gilid ng bakuran sa loob ay mga banal na silid. Sapagkat diyan kumakain ang mga pari ng mga banal na handog na inihandog nila sa Panginoon. Gagamitin din nila ang mga silid na ito bilang lalagyan ng mga handog ng pagpaparangal sa Panginoon, handog sa paglilinis at handog na pambayad ng kasalanan. Sapagkat banal ang mga silid na ito. 
 
 
 
@@ -469,7 +469,7 @@ Sinabi sa akin ng tao, "Ang mga silid na ito sa gawing timog at hilaga na nasa g
 
 
 
-Kapag ang mga pari ay lumabas na sa mga banal na silid[^c] na ito, hindi sila dapat pumunta agad sa bakuran sa labas. Dapat magbihis muna sila ng ibang damit bago sila pumunta sa bahagi ng templo na para sa mga tao." 
+Kapag ang mga pari ay lumabas na sa mga banal na silid na ito, hindi sila dapat pumunta agad sa bakuran sa labas. Dapat magbihis muna sila ng ibang damit bago sila pumunta sa bahagi ng templo na para sa mga tao." 
 
 
 

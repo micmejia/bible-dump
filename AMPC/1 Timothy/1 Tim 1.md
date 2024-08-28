@@ -90,7 +90,7 @@ As I urged you when I was on my way to Macedonia, stay on where you are at Ephes
 
 
 
-Nor to give importance to _or_ occupy themselves with legends (fables, myths) and endless genealogies, which foster _and_ promote useless speculations _and_ questionings rather than acceptance in faith of God's administration _and_ the divine training that is in faith ([^a]in that leaning of the entire human personality on God in absolute trust and confidence)-- 
+Nor to give importance to _or_ occupy themselves with legends (fables, myths) and endless genealogies, which foster _and_ promote useless speculations _and_ questionings rather than acceptance in faith of God's administration _and_ the divine training that is in faith (in that leaning of the entire human personality on God in absolute trust and confidence)-- 
 
 
 
@@ -384,7 +384,7 @@ Now to the King of eternity, incorruptible _and_ immortal, invisible, the only G
 
 
 
-This charge _and_ admonition I commit in trust to you, Timothy, my son, [^b]in accordance with prophetic intimations which I formerly received concerning you, so that inspired _and_ aided by them you may wage the good warfare, 
+This charge _and_ admonition I commit in trust to you, Timothy, my son, in accordance with prophetic intimations which I formerly received concerning you, so that inspired _and_ aided by them you may wage the good warfare, 
 
 
 
@@ -405,7 +405,7 @@ This charge _and_ admonition I commit in trust to you, Timothy, my son, [^b]in a
 
 
 
-Holding fast to faith ([^c]that leaning of the entire human personality on God in absolute trust and confidence) and having a good (clear) conscience. By rejecting _and_ thrusting from them [their conscience], some individuals have made shipwreck of their faith. 
+Holding fast to faith (that leaning of the entire human personality on God in absolute trust and confidence) and having a good (clear) conscience. By rejecting _and_ thrusting from them [their conscience], some individuals have made shipwreck of their faith. 
 
 
 

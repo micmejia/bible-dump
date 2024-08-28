@@ -39,7 +39,7 @@ next: ['Phil 2']
 
 
 
-<i class="trans-change">Mula kay_ Pablo, kasama si Timoteo na kapwa ko lingkod[^a] ni Jesu-Cristo. Mahal kong mga banal[^b] na nakay Cristo Jesus diyan sa Filipos, kasama ng mga namumuno sa inyo at ng mga tumutulong sa kanila: 
+<i class="trans-change">Mula kay_ Pablo, kasama si Timoteo na kapwa ko lingkod ni Jesu-Cristo. Mahal kong mga banal na nakay Cristo Jesus diyan sa Filipos, kasama ng mga namumuno sa inyo at ng mga tumutulong sa kanila: 
 
 
 

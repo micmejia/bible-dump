@@ -204,7 +204,7 @@ Wala nang gabi roon, kaya hindi na kailangan ang mga ilawan o ang liwanag ng ara
 
 
 
-At sinabi sa akin ng anghel, "Ang mga salitang ito ay totoo at maaasahan. Ang Panginoong Dios, na nagpapahayag sa kanyang mga propeta,[^a] ang siyang nagsugo ng anghel niya upang ipakita sa mga lingkod niya ang mga bagay na malapit nang mangyari." 
+At sinabi sa akin ng anghel, "Ang mga salitang ito ay totoo at maaasahan. Ang Panginoong Dios, na nagpapahayag sa kanyang mga propeta, ang siyang nagsugo ng anghel niya upang ipakita sa mga lingkod niya ang mga bagay na malapit nang mangyari." 
 
 
 
@@ -468,7 +468,7 @@ Ako ang Alpha at ang Omega, <i class="trans-change">na ang ibig sabihin,_ ang un
 
 
 
-"Mapalad ang naglilinis ng mga damit nila,[^b] dahil papayagan silang makapasok sa lungsod at kumain ng bunga ng punongkahoy na nagbibigay-buhay. 
+"Mapalad ang naglilinis ng mga damit nila, dahil papayagan silang makapasok sa lungsod at kumain ng bunga ng punongkahoy na nagbibigay-buhay. 
 
 
 
@@ -501,7 +501,7 @@ Ako ang Alpha at ang Omega, <i class="trans-change">na ang ibig sabihin,_ ang un
 
 
 
-Pero maiiwan sa labas ang masasamang tao,[^c] mga mangkukulam, mga imoral, mga mamamatay-tao, mga sumasamba sa mga dios-diosan, at ang lahat ng nabubuhay sa kasinungalingan. 
+Pero maiiwan sa labas ang masasamang tao, mga mangkukulam, mga imoral, mga mamamatay-tao, mga sumasamba sa mga dios-diosan, at ang lahat ng nabubuhay sa kasinungalingan. 
 
 
 
@@ -666,7 +666,7 @@ At ang sinumang magbawas sa mga nilalaman ng aklat na ito ay aalisan ng Dios ng 
 
 
 
-Si Jesus ang nagpapatunay sa lahat ng nakasulat dito. At sinabi pa niya, "Talagang malapit na akong dumating!" <i class="trans-change">Sinabi ko naman,_ "Sana nga po![^d] Pumarito na po kayo, Panginoong Jesus." 
+Si Jesus ang nagpapatunay sa lahat ng nakasulat dito. At sinabi pa niya, "Talagang malapit na akong dumating!" <i class="trans-change">Sinabi ko naman,_ "Sana nga po! Pumarito na po kayo, Panginoong Jesus." 
 
 
 

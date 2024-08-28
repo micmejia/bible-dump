@@ -73,7 +73,7 @@ next: ['Hos 11']
 
 
 
-Mapanlinlang sila,[^a] at ngayon dapat na nilang pagdusahan ang kanilang mga kasalanan. Gigibain ng Panginoon ang mga altar nila at mga alaalang bato. 
+Mapanlinlang sila, at ngayon dapat na nilang pagdusahan ang kanilang mga kasalanan. Gigibain ng Panginoon ang mga altar nila at mga alaalang bato. 
 
 
 
@@ -139,7 +139,7 @@ Siguradong sasabihin nila sa bandang huli, 'Wala kaming hari dahil wala kaming t
 
 
 
-Puro salita lang sila[^b] <i class="trans-change">pero hindi naman nila tinutupad_. Nanunumpa sila ng kasinungalingan at gumagawa ng kasunduan <i class="trans-change">na hindi naman nila tinutupad_. Kaya ang katarungan ay parang nakakalasong damo na tumutubo sa binungkal na lupain. 
+Puro salita lang sila <i class="trans-change">pero hindi naman nila tinutupad_. Nanunumpa sila ng kasinungalingan at gumagawa ng kasunduan <i class="trans-change">na hindi naman nila tinutupad_. Kaya ang katarungan ay parang nakakalasong damo na tumutubo sa binungkal na lupain. 
 
 
 
@@ -205,7 +205,7 @@ Puro salita lang sila[^b] <i class="trans-change">pero hindi naman nila tinutupa
 
 
 
-at dadalhin sa Asiria at ireregalo sa dakilang hari roon. Mapapahiya ang Israel[^c] sa kanyang pagtitiwala sa mga dios-diosan.[^d] 
+at dadalhin sa Asiria at ireregalo sa dakilang hari roon. Mapapahiya ang Israel sa kanyang pagtitiwala sa mga dios-diosan. 
 
 
 
@@ -238,7 +238,7 @@ at dadalhin sa Asiria at ireregalo sa dakilang hari roon. Mapapahiya ang Israel[
 
 
 
-Mawawala ang kanyang[^e] hari na parang kahoy na tinangay ng agos. 
+Mawawala ang kanyang hari na parang kahoy na tinangay ng agos. 
 
 
 
@@ -271,7 +271,7 @@ Mawawala ang kanyang[^e] hari na parang kahoy na tinangay ng agos.
 
 
 
-Gigibain ang mga sambahan sa mga matataas na lugar ng Aven,[^f] na naging dahilan ng pagkakasala ng mga taga-Israel. Matatakpan ang kanilang mga altar ng matataas na damo at mga halamang may tinik. Sasabihin nila sa mga bundok at mga burol, 'Tabunan ninyo kami!' " ## Hinatulan ang Israel 
+Gigibain ang mga sambahan sa mga matataas na lugar ng Aven, na naging dahilan ng pagkakasala ng mga taga-Israel. Matatakpan ang kanilang mga altar ng matataas na damo at mga halamang may tinik. Sasabihin nila sa mga bundok at mga burol, 'Tabunan ninyo kami!' " ## Hinatulan ang Israel 
 
 
 
@@ -337,7 +337,7 @@ Gigibain ang mga sambahan sa mga matataas na lugar ng Aven,[^f] na naging dahila
 
 
 
-Gusto ko na kayong parusahan. Kaya magsasanib ang mga bansa upang lusubin kayo[^g] dahil sa patuloy ninyong pagkakasala. 
+Gusto ko na kayong parusahan. Kaya magsasanib ang mga bansa upang lusubin kayo dahil sa patuloy ninyong pagkakasala. 
 
 
 
@@ -370,7 +370,7 @@ Gusto ko na kayong parusahan. Kaya magsasanib ang mga bansa upang lusubin kayo[^
 
 
 
-<i class="trans-change">Noon,_ para kayong dumalagang baka na sinanay na gumiik at gustong-gusto ang gawaing ito. Pero ngayon, pahihirapan ko kayong mga taga-Israel[^h] at pati ang mga taga-Juda. Magiging tulad kayo ng dumalagang baka na sisingkawan ang makinis niyang leeg at pahihirapan sa paghila ng pang-araro. 
+<i class="trans-change">Noon,_ para kayong dumalagang baka na sinanay na gumiik at gustong-gusto ang gawaing ito. Pero ngayon, pahihirapan ko kayong mga taga-Israel at pati ang mga taga-Juda. Magiging tulad kayo ng dumalagang baka na sisingkawan ang makinis niyang leeg at pahihirapan sa paghila ng pang-araro. 
 
 
 
@@ -403,7 +403,7 @@ Gusto ko na kayong parusahan. Kaya magsasanib ang mga bansa upang lusubin kayo[^
 
 
 
-<i class="trans-change">Sinabi ko sa inyo,_ 'Palambutin ninyo ang inyong mga puso tulad ng binungkal na lupa. Magtanim kayo ng katuwiran at mag-aani kayo ng pagmamahal. Sapagkat panahon na para magbalik-loob kayo sa akin hanggang sa aking pagdating, at pauulanan ko kayo ng tagumpay.'[^i] 
+<i class="trans-change">Sinabi ko sa inyo,_ 'Palambutin ninyo ang inyong mga puso tulad ng binungkal na lupa. Magtanim kayo ng katuwiran at mag-aani kayo ng pagmamahal. Sapagkat panahon na para magbalik-loob kayo sa akin hanggang sa aking pagdating, at pauulanan ko kayo ng tagumpay.' 
 
 
 
@@ -469,7 +469,7 @@ Gusto ko na kayong parusahan. Kaya magsasanib ang mga bansa upang lusubin kayo[^
 
 
 
-darating ang digmaan sa inyong mga mamamayan at magigiba ang inyong mga napapaderang lungsod. Gagawin ng mga kalaban ninyo ang ginawa ni Shalman[^j] sa <i class="trans-change">lungsod ng_ Bet Arbel nang pagluray-lurayin niya ang mga ina at ang kanilang mga anak. 
+darating ang digmaan sa inyong mga mamamayan at magigiba ang inyong mga napapaderang lungsod. Gagawin ng mga kalaban ninyo ang ginawa ni Shalman sa <i class="trans-change">lungsod ng_ Bet Arbel nang pagluray-lurayin niya ang mga ina at ang kanilang mga anak. 
 
 
 

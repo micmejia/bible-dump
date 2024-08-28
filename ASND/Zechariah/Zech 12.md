@@ -271,7 +271,7 @@ Una kong pagtatagumpayin ang <i class="trans-change">ibang mga lungsod ng_ Juda 
 
 
 
-Sa araw na iyon, iingatan ng Panginoon ang mga nakatira sa Jerusalem upang kahit na ang pinakamahina sa kanila ay magiging kasinlakas ni David. Ang mga angkan ni David ay magiging parang Dios,[^a] parang anghel ng Panginoon na nangunguna sa kanila. 
+Sa araw na iyon, iingatan ng Panginoon ang mga nakatira sa Jerusalem upang kahit na ang pinakamahina sa kanila ay magiging kasinlakas ni David. Ang mga angkan ni David ay magiging parang Dios, parang anghel ng Panginoon na nangunguna sa kanila. 
 
 
 
@@ -337,7 +337,7 @@ Sa araw na iyon, lilipulin ko ang lahat ng bansang sasalakay sa Jerusalem.
 
 
 
-"Bibigyan ko ang mga angkan ni David at ang mga taga-Jerusalem ng espiritung maawain at mapanalanginin. Pagmamasdan nila ako[^b] na kanilang sinibat, at iiyak sila katulad ng magulang na umiiyak sa pagkamatay ng kanilang kaisa-isang anak o anak na panganay. 
+"Bibigyan ko ang mga angkan ni David at ang mga taga-Jerusalem ng espiritung maawain at mapanalanginin. Pagmamasdan nila ako na kanilang sinibat, at iiyak sila katulad ng magulang na umiiyak sa pagkamatay ng kanilang kaisa-isang anak o anak na panganay. 
 
 
 

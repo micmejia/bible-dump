@@ -15,13 +15,13 @@ Now Solomon the son of David was strengthened in his kingdom, and the Lord his G
 And Solomon spoke to all Israel, to the captains of thousands and of hundreds, to the judges, and to every leader in all Israel, the heads of the fathers' _houses._ 
 
 ###### 3 
-Then Solomon, and all the assembly with him, went to [^a]the high place that _was_ at Gibeon; for the tabernacle of meeting with God was there, which Moses the servant of the Lord had made in the wilderness. 
+Then Solomon, and all the assembly with him, went to the high place that _was_ at Gibeon; for the tabernacle of meeting with God was there, which Moses the servant of the Lord had made in the wilderness. 
 
 ###### 4 
 But David had brought up the ark of God from Kirjath Jearim to _the place_ David had prepared for it, for he had pitched a tent for it at Jerusalem. 
 
 ###### 5 
-Now the bronze altar that Bezalel the son of Uri, the son of Hur, had made, [^b]he put before the tabernacle of the Lord; Solomon and the assembly sought Him _there._ 
+Now the bronze altar that Bezalel the son of Uri, the son of Hur, had made, he put before the tabernacle of the Lord; Solomon and the assembly sought Him _there._ 
 
 ###### 6 
 And Solomon went up there to the bronze altar before the Lord, which _was_ at the tabernacle of meeting, and offered a thousand burnt offerings on it. 
@@ -45,7 +45,7 @@ Then God said to Solomon: "Because this was in your heart, and you have not aske
 wisdom and knowledge _are_ granted to you; and I will give you riches and wealth and honor, such as none of the kings have had who _were_ before you, nor shall any after you have the like." ## Solomon's Military and Economic Power 
 
 ###### 13 
-So Solomon came to Jerusalem from [^c]the high place that _was_ at Gibeon, from before the tabernacle of meeting, and reigned over Israel. 
+So Solomon came to Jerusalem from the high place that _was_ at Gibeon, from before the tabernacle of meeting, and reigned over Israel. 
 
 ###### 14 
 And Solomon gathered chariots and horsemen; he had one thousand four hundred chariots and twelve thousand horsemen, whom he stationed in the chariot cities and with the king in Jerusalem. 
@@ -57,4 +57,4 @@ Also the king made silver and gold as common in Jerusalem as stones, and he made
 And Solomon had horses imported from Egypt and Keveh; the king's merchants bought them in Keveh at the _current_ price. 
 
 ###### 17 
-They also acquired and imported from Egypt a chariot for six hundred _shekels_ of silver, and a horse for one hundred and fifty; thus, [^d]through their agents, they exported them to all the kings of the Hittites and the kings of Syria.
+They also acquired and imported from Egypt a chariot for six hundred _shekels_ of silver, and a horse for one hundred and fifty; thus, through their agents, they exported them to all the kings of the Hittites and the kings of Syria.

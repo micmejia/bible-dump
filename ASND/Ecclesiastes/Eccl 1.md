@@ -39,7 +39,7 @@ next: ['Eccl 2']
 
 
 
-Ito ang sinabi ng mangangaral[^a] na anak ni David na hari ng Jerusalem: 
+Ito ang sinabi ng mangangaral na anak ni David na hari ng Jerusalem: 
 
 
 

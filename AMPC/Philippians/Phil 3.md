@@ -154,7 +154,7 @@ As to my zeal, I was a persecutor of the church, and by the Law's standard of ri
 
 
 
-But whatever former things I had that might have been gains to me, I have come to consider as [[^a]one combined] loss for Christ's sake. 
+But whatever former things I had that might have been gains to me, I have come to consider as [one combined] loss for Christ's sake. 
 
 
 
@@ -217,7 +217,7 @@ And that I may [actually] be found _and_ known as in Him, not having any [self-a
 
 
 
-[For my determined purpose is] that I may know Him [that I may progressively become more deeply and intimately acquainted with Him, perceiving and recognizing and understanding the wonders of His Person more strongly and more clearly], and that I may in that same way come to know the power outflowing from His resurrection [[^b]which it exerts over believers], and that I may so share His sufferings as to be continually transformed [in spirit into His likeness even] to His death, [in the hope] 
+[For my determined purpose is] that I may know Him [that I may progressively become more deeply and intimately acquainted with Him, perceiving and recognizing and understanding the wonders of His Person more strongly and more clearly], and that I may in that same way come to know the power outflowing from His resurrection [which it exerts over believers], and that I may so share His sufferings as to be continually transformed [in spirit into His likeness even] to His death, [in the hope] 
 
 
 
@@ -238,7 +238,7 @@ And that I may [actually] be found _and_ known as in Him, not having any [self-a
 
 
 
-That if possible I may attain to the [[^c]spiritual and moral] resurrection [that lifts me] out from among the dead [even while in the body]. 
+That if possible I may attain to the [spiritual and moral] resurrection [that lifts me] out from among the dead [even while in the body]. 
 
 
 
@@ -406,7 +406,7 @@ For there are many, of whom I have often told you and now tell you even with tea
 
 
 
-They are doomed _and_ their [^d]fate is eternal misery (perdition); their god is their stomach (their appetites, their sensuality) and they glory in their shame, [^e]siding with earthly things _and_ being of their party. 
+They are doomed _and_ their fate is eternal misery (perdition); their god is their stomach (their appetites, their sensuality) and they glory in their shame, siding with earthly things _and_ being of their party. 
 
 
 
@@ -427,7 +427,7 @@ They are doomed _and_ their [^d]fate is eternal misery (perdition); their god is
 
 
 
-But we are citizens of the state (commonwealth, homeland) which is in heaven, and from it also we [^f]earnestly _and_ patiently await [the coming of] the Lord Jesus Christ (the Messiah) [as] Savior, 
+But we are citizens of the state (commonwealth, homeland) which is in heaven, and from it also we earnestly _and_ patiently await [the coming of] the Lord Jesus Christ (the Messiah) [as] Savior, 
 
 
 
@@ -448,4 +448,4 @@ But we are citizens of the state (commonwealth, homeland) which is in heaven, an
 
 
 
-Who will [^g]transform _and_ fashion anew the body of our humiliation to conform to _and_ be like the body of His glory _and_ majesty, by exerting that power which enables Him even to subject everything to Himself.
+Who will transform _and_ fashion anew the body of our humiliation to conform to _and_ be like the body of His glory _and_ majesty, by exerting that power which enables Him even to subject everything to Himself.

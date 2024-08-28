@@ -304,7 +304,7 @@ Kayo ang nakakita ng mga dakilang bagay na ito na ginawa ng Panginoon.
 
 
 
-Kung susunod kayo, mabubuhay kayo nang matagal doon sa maganda at masaganang lupain[^a] na ipinangako ng Panginoon na ibibigay sa inyong mga ninuno at sa kanilang mga salinlahi. 
+Kung susunod kayo, mabubuhay kayo nang matagal doon sa maganda at masaganang lupain na ipinangako ng Panginoon na ibibigay sa inyong mga ninuno at sa kanilang mga salinlahi. 
 
 
 
@@ -799,7 +799,7 @@ itataboy ng Panginoon ang mga tao sa lupain na inyong aangkinin kahit na mas mal
 
 
 
-Ang lahat ng lupang matatapakan ninyo ay magiging inyo: mula sa disyerto papunta sa Lebanon, at mula sa Ilog ng Eufrates hanggang sa Dagat ng Mediteraneo.[^b] 
+Ang lahat ng lupang matatapakan ninyo ay magiging inyo: mula sa disyerto papunta sa Lebanon, at mula sa Ilog ng Eufrates hanggang sa Dagat ng Mediteraneo. 
 
 
 
@@ -997,7 +997,7 @@ Kapag dinala kayo ng Panginoon na inyong Dios sa lupain na inyong titirhan at aa
 
 
 
-Ang mga bundok na ito ay nasa kanluran ng <i class="trans-change">Ilog ng_ Jordan, sa lupain ng mga Cananeo na naninirahan sa Lambak ng Jordan[^c] malapit sa bayan ng Gilgal. Hindi ito malayo sa mga malalaking puno ng Moreh. 
+Ang mga bundok na ito ay nasa kanluran ng <i class="trans-change">Ilog ng_ Jordan, sa lupain ng mga Cananeo na naninirahan sa Lambak ng Jordan malapit sa bayan ng Gilgal. Hindi ito malayo sa mga malalaking puno ng Moreh. 
 
 
 

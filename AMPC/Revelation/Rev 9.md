@@ -28,7 +28,7 @@ next: ['Rev 10']
 
 
 
-Then the fifth angel blew [his] trumpet, and I saw a star that had fallen from the sky to the earth; and to the angel was given the key [^a]of the shaft of the Abyss (the bottomless pit). 
+Then the fifth angel blew [his] trumpet, and I saw a star that had fallen from the sky to the earth; and to the angel was given the key of the shaft of the Abyss (the bottomless pit). 
 
 
 
@@ -49,7 +49,7 @@ Then the fifth angel blew [his] trumpet, and I saw a star that had fallen from t
 
 
 
-He opened the [^b]long shaft of the Abyss (the bottomless pit), and smoke like the smoke of a huge furnace puffed out of the [^c]long shaft, so that the sun and the atmosphere were darkened by the smoke from the long shaft. 
+He opened the long shaft of the Abyss (the bottomless pit), and smoke like the smoke of a huge furnace puffed out of the long shaft, so that the sun and the atmosphere were darkened by the smoke from the long shaft. 
 
 
 

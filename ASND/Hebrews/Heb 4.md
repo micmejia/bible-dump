@@ -106,7 +106,7 @@ Sapagkat nakarinig din tayo ng Magandang Balita katulad nila, pero naging walang
 
 
 
-Tayong mga sumasampalataya ang magkakamit ng kapahingahang mula sa Dios. <i class="trans-change">Ngunit hindi ito makakamit ng hindi sumasampalataya,_ dahil sinabi ng Dios, "Sa galit ko, isinumpa kong hindi nila makakamtan ang kapahingahang galing sa akin."[^a] <i class="trans-change">Hindi ibig sabihin na wala pa ang kapahingahan._ Ang totoo, nariyan na ito mula pa nang likhain ang mundo. 
+Tayong mga sumasampalataya ang magkakamit ng kapahingahang mula sa Dios. <i class="trans-change">Ngunit hindi ito makakamit ng hindi sumasampalataya,_ dahil sinabi ng Dios, "Sa galit ko, isinumpa kong hindi nila makakamtan ang kapahingahang galing sa akin." <i class="trans-change">Hindi ibig sabihin na wala pa ang kapahingahan._ Ang totoo, nariyan na ito mula pa nang likhain ang mundo. 
 
 
 
@@ -139,7 +139,7 @@ Tayong mga sumasampalataya ang magkakamit ng kapahingahang mula sa Dios. <i clas
 
 
 
-Sapagkat sinasabi ng Kasulatan tungkol sa ikapitong araw, "Sa ikapitong araw, nagpahinga ang Dios sa kanyang paglikha."[^b] 
+Sapagkat sinasabi ng Kasulatan tungkol sa ikapitong araw, "Sa ikapitong araw, nagpahinga ang Dios sa kanyang paglikha." 
 
 
 
@@ -238,7 +238,7 @@ Malinaw na niloob ng Dios na may magkakamit ng kapahingahang ito, pero ang mga n
 
 
 
-Kaya muling nagtakda ang Dios ng isa pang pagkakataon, na walang iba kundi ngayon. Dahil pagkalipas ng matagal na panahon sinabi ng Dios sa pamamagitan ni David, "Kung marinig nʼyo ngayon ang tinig ng Dios, huwag ninyong patigasin ang puso ninyo."[^c] 
+Kaya muling nagtakda ang Dios ng isa pang pagkakataon, na walang iba kundi ngayon. Dahil pagkalipas ng matagal na panahon sinabi ng Dios sa pamamagitan ni David, "Kung marinig nʼyo ngayon ang tinig ng Dios, huwag ninyong patigasin ang puso ninyo." 
 
 
 

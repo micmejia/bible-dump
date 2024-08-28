@@ -10,7 +10,7 @@ next: ['Neh 11']
 
 
 ###### 1 
-Now those who placed _their_ seal on _the document were:_ Nehemiah the [^a]governor, the son of Hacaliah, and Zedekiah, 
+Now those who placed _their_ seal on _the document were:_ Nehemiah the governor, the son of Hacaliah, and Zedekiah, 
 
 ###### 2 
 Seraiah, Azariah, Jeremiah, 
@@ -100,7 +100,7 @@ these joined with their brethren, their nobles, and entered into a curse and an 
 We would not give our daughters as wives to the peoples of the land, nor take their daughters for our sons; 
 
 ###### 31 
-_if_ the peoples of the land brought [^b]wares or any grain to sell on the Sabbath day, we would not buy it from them on the Sabbath, or on a holy day; and we would forego the seventh year's _produce_ and the exacting[^c] of every debt. 
+_if_ the peoples of the land brought wares or any grain to sell on the Sabbath day, we would not buy it from them on the Sabbath, or on a holy day; and we would forego the seventh year's _produce_ and the exacting of every debt. 
 
 ###### 32 
 Also we made ordinances for ourselves, to exact from ourselves yearly one-third of a shekel for the service of the house of our God: 
@@ -118,7 +118,7 @@ And _we made ordinances_ to bring the firstfruits of our ground and the firstfru
 to bring the firstborn of our sons and our cattle, as _it is_ written in the Law, and the firstborn of our herds and our flocks, to the house of our God, to the priests who minister in the house of our God; 
 
 ###### 37 
-to bring the firstfruits of our dough, our offerings, the fruit from all kinds of trees, _the_ new wine and oil, to the priests, to the storerooms of the [^d]house of our God; and to bring the tithes of our land to the Levites, for the Levites should receive the tithes in all our farming communities. 
+to bring the firstfruits of our dough, our offerings, the fruit from all kinds of trees, _the_ new wine and oil, to the priests, to the storerooms of the house of our God; and to bring the tithes of our land to the Levites, for the Levites should receive the tithes in all our farming communities. 
 
 ###### 38 
 And the priest, the descendant of Aaron, shall be with the Levites when the Levites receive tithes; and the Levites shall bring up a tenth of the tithes to the house of our God, to the rooms of the storehouse. 

@@ -502,7 +502,7 @@ Ito ang sinabi ng Panginoon kay Propeta Jeremias tungkol sa pagsalakay ni Haring
 
 
 
-Bakit tumakas ang matatapang nʼyong kawal?[^a] Tumakas sila dahil itinaboy sila ng Panginoon. 
+Bakit tumakas ang matatapang nʼyong kawal? Tumakas sila dahil itinaboy sila ng Panginoon. 
 
 
 

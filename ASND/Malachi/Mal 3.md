@@ -40,7 +40,7 @@ next: ['Mal 4']
 
 
 
-Makinig kayo sa sinasabi ng Panginoong Makapangyarihan: "Ipapadala ko ang aking mensahero. Mauuna siya sa iyo upang ihanda ang dadaanan mo. At ang Panginoon na inyong hinihintay ay biglang darating sa kanyang templo. Darating ang inyong pinakahihintay na sugo na magsasagawa ng aking kasunduan." ###### 2-3 Pero sino ang makatatagal sa araw ng kanyang pagdating? Sino ang makakaharap sa kanya kapag nagpakita na siya? Sapagkat para siyang apoy na nagpapadalisay ng bakal o parang sabon na nakakalinis. Lilinisin niya ang mga <i class="trans-change">paring_ Levita, tulad ng pagpapadalisay ng pilak at ginto, upang maging malinis ang kanilang buhay at maging karapat-dapat silang maghandog sa Panginoon.[^a] 
+Makinig kayo sa sinasabi ng Panginoong Makapangyarihan: "Ipapadala ko ang aking mensahero. Mauuna siya sa iyo upang ihanda ang dadaanan mo. At ang Panginoon na inyong hinihintay ay biglang darating sa kanyang templo. Darating ang inyong pinakahihintay na sugo na magsasagawa ng aking kasunduan." ###### 2-3 Pero sino ang makatatagal sa araw ng kanyang pagdating? Sino ang makakaharap sa kanya kapag nagpakita na siya? Sapagkat para siyang apoy na nagpapadalisay ng bakal o parang sabon na nakakalinis. Lilinisin niya ang mga <i class="trans-change">paring_ Levita, tulad ng pagpapadalisay ng pilak at ginto, upang maging malinis ang kanilang buhay at maging karapat-dapat silang maghandog sa Panginoon. 
 
 
 
@@ -172,7 +172,7 @@ Sinabi pa ng Panginoong Makapangyarihan, "Ako, ang Panginoon, ay hindi nagbabago
 
 
 
-Tulad ng inyong mga ninuno, hindi kayo sumunod sa aking mga tuntunin. Manumbalik kayo sa akin, ang Panginoong Makapangyarihan, at babalik[^b] ako sa inyo. Pero itinatanong ninyo, 'Paano kami manunumbalik sa inyo?' 
+Tulad ng inyong mga ninuno, hindi kayo sumunod sa aking mga tuntunin. Manumbalik kayo sa akin, ang Panginoong Makapangyarihan, at babalik ako sa inyo. Pero itinatanong ninyo, 'Paano kami manunumbalik sa inyo?' 
 
 
 
@@ -205,7 +205,7 @@ Tulad ng inyong mga ninuno, hindi kayo sumunod sa aking mga tuntunin. Manumbalik
 
 
 
-Magtatanong din ako sa inyo, maaari bang nakawan ng tao ang Dios? <i class="trans-change">Parang imposible._ Pero ninanakawan ninyo ako. At itinatanong inyo, 'Paano namin kayo ninanakawan?' <i class="trans-change">Ninanakawan ninyo ako dahil hindi ninyo ibinibigay ang inyong_ mga ikapu[^c] at mga handog. 
+Magtatanong din ako sa inyo, maaari bang nakawan ng tao ang Dios? <i class="trans-change">Parang imposible._ Pero ninanakawan ninyo ako. At itinatanong inyo, 'Paano namin kayo ninanakawan?' <i class="trans-change">Ninanakawan ninyo ako dahil hindi ninyo ibinibigay ang inyong_ mga ikapu at mga handog. 
 
 
 
@@ -271,7 +271,7 @@ Iyan ang dahilan kung bakit ko isinumpa ang buong bansa.
 
 
 
-Pero ngayon, hinahamon ko kayo na subukan ninyo ako, ang Panginoong Makapangyarihan. Dalhin ninyo nang buo ang inyong mga ikapu sa bodega ng templo upang may pagkain sa aking templo. Kapag ginawa ninyo ito, padadalhan ko kayo ng ulan[^d] at ibubuhos ko ang sobra-sobrang pagpapala. 
+Pero ngayon, hinahamon ko kayo na subukan ninyo ako, ang Panginoong Makapangyarihan. Dalhin ninyo nang buo ang inyong mga ikapu sa bodega ng templo upang may pagkain sa aking templo. Kapag ginawa ninyo ito, padadalhan ko kayo ng ulan at ibubuhos ko ang sobra-sobrang pagpapala. 
 
 
 
@@ -337,7 +337,7 @@ Hindi ko papayagang sirain ng peste ang inyong mga pananim o malagas ang bunga n
 
 
 
-Tatawagin kayong mapalad[^e] ng lahat ng bansa, dahil napakabuting tirhan ang inyong lupain. <i class="trans-change">Ako,_ ang Panginoong Makapangyarihan, ang nagsasabi nito." 
+Tatawagin kayong mapalad ng lahat ng bansa, dahil napakabuting tirhan ang inyong lupain. <i class="trans-change">Ako,_ ang Panginoong Makapangyarihan, ang nagsasabi nito." 
 
 
 

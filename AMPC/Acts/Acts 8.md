@@ -28,7 +28,7 @@ next: ['Acts 9']
 
 
 
-And Saul was [not only] consenting to [Stephen's] death [he was [^a]pleased and [^b]entirely approving]. On that day a great _and_ severe persecution broke out against the church which was in Jerusalem; and they were all scattered throughout the regions of Judea and Samaria, except the apostles (special messengers). 
+And Saul was [not only] consenting to [Stephen's] death [he was pleased and entirely approving]. On that day a great _and_ severe persecution broke out against the church which was in Jerusalem; and they were all scattered throughout the regions of Judea and Samaria, except the apostles (special messengers). 
 
 
 
@@ -49,7 +49,7 @@ And Saul was [not only] consenting to [Stephen's] death [he was [^a]pleased and 
 
 
 
-[A party of] devout men [^c]with others helped to carry out _and_ bury Stephen and made great lamentation over him. 
+[A party of] devout men with others helped to carry out _and_ bury Stephen and made great lamentation over him. 
 
 
 
@@ -91,7 +91,7 @@ But Saul shamefully treated _and_ laid waste the church continuously [with cruel
 
 
 
-Now those who were scattered abroad went about [through the land from place to place] preaching the glad tidings, the Word [[^d]the doctrine concerning the attainment through Christ of salvation in the kingdom of God]. 
+Now those who were scattered abroad went about [through the land from place to place] preaching the glad tidings, the Word [the doctrine concerning the attainment through Christ of salvation in the kingdom of God]. 
 
 
 
@@ -469,7 +469,7 @@ You have neither part nor lot in this matter, for your heart is all wrong in God
 
 
 
-So repent of this depravity _and_ wickedness of yours and pray to the Lord that, if possible, this [^e]contriving thought _and_ purpose of your heart may be removed _and_ disregarded _and_ forgiven you. 
+So repent of this depravity _and_ wickedness of yours and pray to the Lord that, if possible, this contriving thought _and_ purpose of your heart may be removed _and_ disregarded _and_ forgiven you. 
 
 
 
@@ -490,7 +490,7 @@ So repent of this depravity _and_ wickedness of yours and pray to the Lord that,
 
 
 
-For I see that you are in the gall of bitterness and in [^f]a bond forged by iniquity [to fetter souls]. 
+For I see that you are in the gall of bitterness and in a bond forged by iniquity [to fetter souls]. 
 
 
 
@@ -553,7 +553,7 @@ Now when [the apostles] had borne their testimony and preached the message of th
 
 
 
-But an angel of the Lord said to Philip, Rise and proceed southward _or_ at midday on the road that runs from Jerusalem down to Gaza. This is the desert [[^g]route]. 
+But an angel of the Lord said to Philip, Rise and proceed southward _or_ at midday on the road that runs from Jerusalem down to Gaza. This is the desert [route]. 
 
 
 
@@ -700,7 +700,7 @@ Now this was the passage of Scripture which he was reading: Like a sheep He was 
 
 
 
-In His humiliation [^h] He was taken away by distressing _and_ oppressive judgment _and_ justice was denied Him [caused to cease]. Who can describe _or_ relate in full [^i]the wickedness of His contemporaries (generation)? For His life is taken from the earth _and_ [^j]a bloody death inflicted upon Him. 
+In His humiliation  He was taken away by distressing _and_ oppressive judgment _and_ justice was denied Him [caused to cease]. Who can describe _or_ relate in full the wickedness of His contemporaries (generation)? For His life is taken from the earth _and_ a bloody death inflicted upon Him. 
 
 
 
@@ -784,7 +784,7 @@ And as they continued along on the way, they came to some water, and the eunuch 
 
 
 
-[^k]_And Philip said, If you believe with all your heart [if you have_ [^l]_a conviction, full of joyful trust, that Jesus is the Messiah and accept Him as the Author of your salvation in the kingdom of God, giving Him your obedience, then] you may. And he replied, I do believe that Jesus Christ is the Son of God._ 
+_And Philip said, If you believe with all your heart [if you have_ _a conviction, full of joyful trust, that Jesus is the Messiah and accept Him as the Author of your salvation in the kingdom of God, giving Him your obedience, then] you may. And he replied, I do believe that Jesus Christ is the Son of God._ 
 
 
 
@@ -826,7 +826,7 @@ And he ordered that the chariot be stopped; and both Philip and the eunuch went 
 
 
 
-And when they came up out of the water, the Spirit of the Lord [[^m]suddenly] caught away Philip; and the eunuch saw him no more, and he went on his way rejoicing. 
+And when they came up out of the water, the Spirit of the Lord [suddenly] caught away Philip; and the eunuch saw him no more, and he went on his way rejoicing. 
 
 
 

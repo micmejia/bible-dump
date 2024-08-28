@@ -28,7 +28,7 @@ And he said: "Blessed _be_ the Lord God of Israel, who has fulfilled with His ha
 Yet I have chosen Jerusalem, that My name may be there, and I have chosen David to be over My people Israel.' 
 
 ###### 7 
-Now it was in the heart of my father David to build a [^a]temple for the name of the Lord God of Israel. 
+Now it was in the heart of my father David to build a temple for the name of the Lord God of Israel. 
 
 ###### 8 
 But the Lord said to my father David, 'Whereas it was in your heart to build a temple for My name, you did well in that it was in your heart. 
@@ -43,7 +43,7 @@ So the Lord has fulfilled His word which He spoke, and I have filled the positio
 And there I have put the ark, in which _is_ the covenant of the Lord which He made with the children of Israel." ## Solomon's Prayer of Dedication 
 
 ###### 12 
-Then [^b]_Solomon_ stood before the altar of the Lord in the presence of all the assembly of Israel, and spread out his hands 
+Then _Solomon_ stood before the altar of the Lord in the presence of all the assembly of Israel, and spread out his hands 
 
 ###### 13 
 (for Solomon had made a bronze platform five cubits long, five cubits wide, and three cubits high, and had set it in the midst of the court; and he stood on it, knelt down on his knees before all the assembly of Israel, and spread out his hands toward heaven); 
@@ -61,7 +61,7 @@ Therefore, Lord God of Israel, now keep what You promised Your servant David my 
 And now, O Lord God of Israel, let Your word come true, which You have spoken to Your servant David. 
 
 ###### 18 
-"But will God indeed dwell with men on the earth? Behold, heaven and the heaven of heavens cannot contain You. How much less this [^c]temple which I have built! 
+"But will God indeed dwell with men on the earth? Behold, heaven and the heaven of heavens cannot contain You. How much less this temple which I have built! 
 
 ###### 19 
 Yet regard the prayer of Your servant and his supplication, O Lord my God, and listen to the cry and the prayer which Your servant is praying before You: 
@@ -106,7 +106,7 @@ that they may fear You, to walk in Your ways as long as they live in the land wh
 "Moreover, concerning a foreigner, who is not of Your people Israel, but has come from a far country for the sake of Your great name and Your mighty hand and Your outstretched arm, when they come and pray in this temple; 
 
 ###### 33 
-then hear from heaven Your dwelling place, and do according to all for which the foreigner calls to You, that all peoples of the earth may know Your name and fear You, as _do_ Your people Israel, and that they may know that [^d]this temple which I have built is called by Your name. 
+then hear from heaven Your dwelling place, and do according to all for which the foreigner calls to You, that all peoples of the earth may know Your name and fear You, as _do_ Your people Israel, and that they may know that this temple which I have built is called by Your name. 
 
 ###### 34 
 "When Your people go out to battle against their enemies, wherever You send them, and when they pray to You toward this city which You have chosen and the temple which I have built for Your name, 
@@ -118,7 +118,7 @@ then hear from heaven their prayer and their supplication, and maintain their ca
 "When they sin against You (for _there is_ no one who does not sin), and You become angry with them and deliver them to the enemy, and they take them captive to a land far or near; 
 
 ###### 37 
-_yet_ when they [^e]come to themselves in the land where they were carried captive, and repent, and make supplication to You in the land of their captivity, saying, 'We have sinned, we have done wrong, and have committed wickedness'; 
+_yet_ when they come to themselves in the land where they were carried captive, and repent, and make supplication to You in the land of their captivity, saying, 'We have sinned, we have done wrong, and have committed wickedness'; 
 
 ###### 38 
 and _when_ they return to You with all their heart and with all their soul in the land of their captivity, where they have been carried captive, and pray toward their land which You gave to their fathers, the city which You have chosen, and toward the temple which I have built for Your name: 

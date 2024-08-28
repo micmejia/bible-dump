@@ -205,7 +205,7 @@ Ngayon, magsugo ka ng mga tao sa Jopa at ipasundo mo si Simon na tinatawag na Pe
 
 
 
-Doon siya nakatira kay Simon na mangungulti ng balat.[^a] Ang bahay niya ay nasa tabi ng dagat." 
+Doon siya nakatira kay Simon na mangungulti ng balat. Ang bahay niya ay nasa tabi ng dagat." 
 
 
 
@@ -304,7 +304,7 @@ Ikinuwento ni Cornelius sa kanila ang lahat ng nangyari, at pagkatapos ay inutus
 
 
 
-Kinabukasan, nang malapit na sila sa bayan ng Jopa, umakyat si Pedro sa bubong <i class="trans-change">ng bahay_[^b] para manalangin. Tanghaling-tapat noon 
+Kinabukasan, nang malapit na sila sa bayan ng Jopa, umakyat si Pedro sa bubong <i class="trans-change">ng bahay_ para manalangin. Tanghaling-tapat noon 
 
 
 

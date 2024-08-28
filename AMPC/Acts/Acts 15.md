@@ -70,7 +70,7 @@ And when Paul and Barnabas had no small disagreement and discussion with them, i
 
 
 
-So, being [^a]fitted out _and_ sent on their way by the church, they went through both Phoenicia and Samaria telling of the conversion of the Gentiles (the heathen), and they caused great rejoicing among all the brethren. 
+So, being fitted out _and_ sent on their way by the church, they went through both Phoenicia and Samaria telling of the conversion of the Gentiles (the heathen), and they caused great rejoicing among all the brethren. 
 
 
 
@@ -112,7 +112,7 @@ When they arrived in Jerusalem, they were heartily welcomed by the church and th
 
 
 
-But some who believed [who [^b]acknowledged Jesus as their Savior and devoted themselves to Him] belonged to the sect of the Pharisees, and they rose up and said, It is necessary to circumcise [the Gentile converts] and to charge them to obey the Law of Moses. 
+But some who believed [who acknowledged Jesus as their Savior and devoted themselves to Him] belonged to the sect of the Pharisees, and they rose up and said, It is necessary to circumcise [the Gentile converts] and to charge them to obey the Law of Moses. 
 
 
 
@@ -154,7 +154,7 @@ The apostles and the elders were assembled together to look into _and_ consider 
 
 
 
-And after there had been a long debate, Peter got up and said to them, Brethren, you know that quite a while ago God made a choice _or_ selection from among you, that by my mouth the Gentiles should hear the message of the Gospel [concerning the [^c]attainment through Christ of salvation in the kingdom of God] and believe (credit and place their confidence in it). 
+And after there had been a long debate, Peter got up and said to them, Brethren, you know that quite a while ago God made a choice _or_ selection from among you, that by my mouth the Gentiles should hear the message of the Gospel [concerning the attainment through Christ of salvation in the kingdom of God] and believe (credit and place their confidence in it). 
 
 
 
@@ -196,7 +196,7 @@ And God, Who is acquainted with _and_ understands the heart, bore witness to the
 
 
 
-And He made no difference between us and them, but cleansed their hearts by faith ([^d]by a strong and welcome conviction that Jesus is the Messiah, through Whom we obtain eternal salvation in the kingdom of God). 
+And He made no difference between us and them, but cleansed their hearts by faith (by a strong and welcome conviction that Jesus is the Messiah, through Whom we obtain eternal salvation in the kingdom of God). 
 
 
 
@@ -511,7 +511,7 @@ With [them they sent] the following letter: The brethren, both the apostles and 
 
 
 
-As we have heard that some persons from our number have disturbed you with their teaching, unsettling your minds _and_ [^e]throwing you into confusion, although we gave them no express orders _or_ instructions [on the points in question], 
+As we have heard that some persons from our number have disturbed you with their teaching, unsettling your minds _and_ throwing you into confusion, although we gave them no express orders _or_ instructions [on the points in question], 
 
 
 
@@ -742,7 +742,7 @@ _However, Silas decided to stay on there._
 
 
 
-But Paul and Barnabas remained in Antioch and with many others also continued teaching and proclaiming the good news, the Word of the Lord [concerning the [^f]attainment through Christ of eternal salvation in God's kingdom]. 
+But Paul and Barnabas remained in Antioch and with many others also continued teaching and proclaiming the good news, the Word of the Lord [concerning the attainment through Christ of eternal salvation in God's kingdom]. 
 
 
 

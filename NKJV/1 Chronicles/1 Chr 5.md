@@ -13,7 +13,7 @@ next: ['1 Chr 6']
 Now the sons of Reuben the firstborn of Israel--he _was_ indeed the firstborn, but because he defiled his father's bed, his birthright was given to the sons of Joseph, the son of Israel, so that the genealogy is not listed according to the birthright; 
 
 ###### 2 
-yet Judah prevailed over his brothers, and from him _came_ a ruler, although [^a]the birthright was Joseph's-- 
+yet Judah prevailed over his brothers, and from him _came_ a ruler, although the birthright was Joseph's-- 
 
 ###### 3 
 the sons of Reuben the firstborn of Israel were Hanoch, Pallu, Hezron, and Carmi. 
@@ -25,7 +25,7 @@ The sons of Joel _were_ Shemaiah his son, Gog his son, Shimei his son,
 Micah his son, Reaiah his son, Baal his son, 
 
 ###### 6 
-and Beerah his son, whom [^b]Tiglath-Pileser king of Assyria carried into captivity. He _was_ leader of the Reubenites. 
+and Beerah his son, whom Tiglath-Pileser king of Assyria carried into captivity. He _was_ leader of the Reubenites. 
 
 ###### 7 
 And his brethren by their families, when the genealogy of their generations was registered: the chief, Jeiel, and Zechariah, 
@@ -34,7 +34,7 @@ And his brethren by their families, when the genealogy of their generations was 
 and Bela the son of Azaz, the son of Shema, the son of Joel, who dwelt in Aroer, as far as Nebo and Baal Meon. 
 
 ###### 9 
-Eastward they settled as far as the [^c]entrance of the wilderness this side of the River Euphrates, because their cattle had [^d]multiplied in the land of Gilead. 
+Eastward they settled as far as the entrance of the wilderness this side of the River Euphrates, because their cattle had multiplied in the land of Gilead. 
 
 ###### 10 
 Now in the days of Saul they made war with the Hagrites, who fell by their hand; and they dwelt in their tents throughout the entire _area_ east of Gilead. ## The Family of Gad 
@@ -55,7 +55,7 @@ These _were_ the children of Abihail the son of Huri, the son of Jaroah, the son
 Ahi the son of Abdiel, the son of Guni, _was_ chief of their father's house. 
 
 ###### 16 
-And _the Gadites_ dwelt in Gilead, in Bashan and in its villages, and in all the [^e]common-lands of Sharon within their borders. 
+And _the Gadites_ dwelt in Gilead, in Bashan and in its villages, and in all the common-lands of Sharon within their borders. 
 
 ###### 17 
 All these were registered by genealogies in the days of Jotham king of Judah, and in the days of Jeroboam king of Israel. 
@@ -67,7 +67,7 @@ The sons of Reuben, the Gadites, and half the tribe of Manasseh _had_ forty-four
 They made war with the Hagrites, Jetur, Naphish, and Nodab. 
 
 ###### 20 
-And they were helped against them, and the Hagrites were delivered into their hand, and all who _were_ with them, for they cried out to God in the battle. He [^f]heeded their prayer, because they put their trust in Him. 
+And they were helped against them, and the Hagrites were delivered into their hand, and all who _were_ with them, for they cried out to God in the battle. He heeded their prayer, because they put their trust in Him. 
 
 ###### 21 
 Then they took away their livestock--fifty thousand of their camels, two hundred and fifty thousand of their sheep, and two thousand of their donkeys--also one hundred thousand of their men; 
@@ -85,4 +85,4 @@ These _were_ the heads of their fathers' houses: Epher, Ishi, Eliel, Azriel, Jer
 And they were unfaithful to the God of their fathers, and played the harlot after the gods of the peoples of the land, whom God had destroyed before them. 
 
 ###### 26 
-So the God of Israel stirred up the spirit of Pul king of Assyria, that is, Tiglath-Pileser[^g] king of Assyria. He carried the Reubenites, the Gadites, and the half-tribe of Manasseh into captivity. He took them to Halah, Habor, Hara, and the river of Gozan to this day.
+So the God of Israel stirred up the spirit of Pul king of Assyria, that is, Tiglath-Pileser king of Assyria. He carried the Reubenites, the Gadites, and the half-tribe of Manasseh into captivity. He took them to Halah, Habor, Hara, and the river of Gozan to this day.

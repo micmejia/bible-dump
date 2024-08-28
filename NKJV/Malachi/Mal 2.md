@@ -16,7 +16,7 @@ next: ['Mal 3']
 If you will not hear, And if you will not take _it_ to heart, To give glory to My name," Says the Lord of hosts, "I will send a curse upon you, And I will curse your blessings. Yes, I have cursed them already, Because you do not take _it_ to heart. 
 
 ###### 3 
-"Behold, I will rebuke your descendants And spread refuse on your faces, The refuse of your solemn feasts; And _one_ will take you away [^a]with it. 
+"Behold, I will rebuke your descendants And spread refuse on your faces, The refuse of your solemn feasts; And _one_ will take you away with it. 
 
 ###### 4 
 Then you shall know that I have sent this commandment to you, That My covenant with Levi may continue," Says the Lord of hosts. 
@@ -25,7 +25,7 @@ Then you shall know that I have sent this commandment to you, That My covenant w
 "My covenant was with him, _one_ of life and peace, And I gave them to him _that he might_ fear _Me;_ So he feared Me And was reverent before My name. 
 
 ###### 6 
-The[^b] law of truth was in his mouth, And [^c]injustice was not found on his lips. He walked with Me in peace and equity, And turned many away from iniquity. 
+The law of truth was in his mouth, And injustice was not found on his lips. He walked with Me in peace and equity, And turned many away from iniquity. 
 
 ###### 7 
 "For the lips of a priest should keep knowledge, And _people_ should seek the law from his mouth; For he is the messenger of the Lord of hosts. 
@@ -43,7 +43,7 @@ Have we not all one Father? Has not one God created us? Why do we deal treachero
 Judah has dealt treacherously, And an abomination has been committed in Israel and in Jerusalem, For Judah has profaned The Lord's holy _institution_ which He loves: He has married the daughter of a foreign god. 
 
 ###### 12 
-May the Lord cut off from the tents of Jacob The man who does this, being [^d]awake and aware, Yet who brings an offering to the Lord of hosts! 
+May the Lord cut off from the tents of Jacob The man who does this, being awake and aware, Yet who brings an offering to the Lord of hosts! 
 
 ###### 13 
 And this is the second thing you do: You cover the altar of the Lord with tears, With weeping and crying; So He does not regard the offering anymore, Nor receive _it_ with goodwill from your hands. 

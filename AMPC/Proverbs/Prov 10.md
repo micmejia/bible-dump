@@ -217,7 +217,7 @@ He who walks uprightly walks securely, but he who takes a crooked way shall be f
 
 
 
-He who winks with the eye [craftily and with malice] causes sorrow; the foolish of lips will fall headlong _but_ [^a]_he who boldly reproves makes peace_. 
+He who winks with the eye [craftily and with malice] causes sorrow; the foolish of lips will fall headlong _but_ _he who boldly reproves makes peace_. 
 
 
 
@@ -280,7 +280,7 @@ Hatred stirs up contentions, but love covers all transgressions.
 
 
 
-On the lips of him who has discernment skillful _and_ godly [^b]Wisdom is found, but discipline _and_ the rod are for the back of him who is without sense _and_ understanding. 
+On the lips of him who has discernment skillful _and_ godly Wisdom is found, but discipline _and_ the rod are for the back of him who is without sense _and_ understanding. 
 
 
 

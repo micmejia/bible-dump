@@ -139,7 +139,7 @@ Si Gomer ay may mga anak din na lalaki na sina Ashkenaz, Rifat at Togarma.
 
 
 
-Ang mga anak naman ni Javan ay sina Elisha, Tarshish, Kitim at Dodanim.[^a] 
+Ang mga anak naman ni Javan ay sina Elisha, Tarshish, Kitim at Dodanim. 
 
 
 
@@ -205,7 +205,7 @@ Ito ang mga lahi ni Jafet. Sila ang pinagmulan ng mga tao na nakatira sa mga dal
 
 
 
-Ang mga anak ni Ham na lalaki ay sina Cush, Mizraim[^b], Put at Canaan. 
+Ang mga anak ni Ham na lalaki ay sina Cush, Mizraim, Put at Canaan. 
 
 
 
@@ -304,7 +304,7 @@ May isa pang anak si Cush na ang pangalan ay Nimrod. Si Nimrod ay naging magitin
 
 
 
-Alam ng Panginoon[^c] na mahusay siyang mangangaso; dito nanggaling ang kasabihang, "Katulad ka ni Nimrod na alam ng Panginoon na mahusay na mangangaso." 
+Alam ng Panginoon na mahusay siyang mangangaso; dito nanggaling ang kasabihang, "Katulad ka ni Nimrod na alam ng Panginoon na mahusay na mangangaso." 
 
 
 
@@ -337,7 +337,7 @@ Alam ng Panginoon[^c] na mahusay siyang mangangaso; dito nanggaling ang kasabiha
 
 
 
-Ang unang kaharian na pinamahalaan ni Nimrod ay ang Babilonia, Erec, Akad. Ang lahat ng ito[^d] ay sakop ng Shinar. 
+Ang unang kaharian na pinamahalaan ni Nimrod ay ang Babilonia, Erec, Akad. Ang lahat ng ito ay sakop ng Shinar. 
 
 
 
@@ -436,7 +436,7 @@ at Resen na nasa gitna ng Nineve at ng Cala na isang tanyag na lungsod.
 
 
 
-Si Mizraim[^e] ang pinagmulan ng mga Ludeo, Anameo, Lehabeo, Naftu, 
+Si Mizraim ang pinagmulan ng mga Ludeo, Anameo, Lehabeo, Naftu, 
 
 
 

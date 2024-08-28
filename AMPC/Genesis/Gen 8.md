@@ -280,7 +280,7 @@ Then he waited another seven days and sent forth the dove, but she did not retur
 
 
 
-In the year 601 [of Noah's life], on the first day of the first month, the waters were drying up from the land. And Noah [^a]removed the covering of the ark and looked, and behold, the surface of the ground was drying. 
+In the year 601 [of Noah's life], on the first day of the first month, the waters were drying up from the land. And Noah removed the covering of the ark and looked, and behold, the surface of the ground was drying. 
 
 
 

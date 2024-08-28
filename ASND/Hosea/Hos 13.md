@@ -40,7 +40,7 @@ next: ['Hos 14']
 
 
 
-"Noong una, kapag nagsalita ang lahi ni Efraim, nanginginig sa takot ang ibang mga lahi ng Israel dahil tinitingala nila ang lahi ni Efraim. Pero nagkasala ang mga mamamayan nito dahil sumamba sila sa <i class="trans-change">dios-diosang_ si Baal. Kaya nga namatay[^a] sila. 
+"Noong una, kapag nagsalita ang lahi ni Efraim, nanginginig sa takot ang ibang mga lahi ng Israel dahil tinitingala nila ang lahi ni Efraim. Pero nagkasala ang mga mamamayan nito dahil sumamba sila sa <i class="trans-change">dios-diosang_ si Baal. Kaya nga namatay sila. 
 
 
 
@@ -73,7 +73,7 @@ next: ['Hos 14']
 
 
 
-Hanggang ngayon, kayo <i class="trans-change">na tinatawag na Efraim_[^b] ay patuloy pa rin sa paggawa ng kasalanan.[^c] Gumagawa kayo ng mga dios-diosan mula sa inyong mga pilak upang sambahin. Pero ang lahat ng ito ay gawa lamang ng tao at ayon lang sa kanyang naisip. Sinasabi pa ninyo na maghahandog kayo ng tao sa mga dios-diosang baka at hahalik sa mga ito. 
+Hanggang ngayon, kayo <i class="trans-change">na tinatawag na Efraim_ ay patuloy pa rin sa paggawa ng kasalanan. Gumagawa kayo ng mga dios-diosan mula sa inyong mga pilak upang sambahin. Pero ang lahat ng ito ay gawa lamang ng tao at ayon lang sa kanyang naisip. Sinasabi pa ninyo na maghahandog kayo ng tao sa mga dios-diosang baka at hahalik sa mga ito. 
 
 
 
@@ -139,7 +139,7 @@ Kaya mawawala kayo gaya ng ulap sa umaga o hamog, o gaya ng ipa sa giikan na tin
 
 
 
-"Ako ang Panginoon na inyong Dios <i class="trans-change">na naglabas sa inyo_ sa Egipto.[^d] Wala kayong kikilalaning Dios at Tagapagligtas maliban sa akin. 
+"Ako ang Panginoon na inyong Dios <i class="trans-change">na naglabas sa inyo_ sa Egipto. Wala kayong kikilalaning Dios at Tagapagligtas maliban sa akin. 
 
 
 
@@ -271,7 +271,7 @@ Pupuksain ko kayong mga taga-Israel dahil ako na nagligtas sa inyo ay kinalaban 
 
 
 
-<i class="trans-change">Hindi ko makakalimutan_ ang mga kasalanan ninyo.[^e] Para itong kasulatang binalot at itinago. 
+<i class="trans-change">Hindi ko makakalimutan_ ang mga kasalanan ninyo. Para itong kasulatang binalot at itinago. 
 
 
 

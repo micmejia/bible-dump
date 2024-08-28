@@ -31,7 +31,7 @@ Then Moses brought Aaron and his sons and washed them with water.
 And he put the tunic on him, girded him with the sash, clothed him with the robe, and put the ephod on him; and he girded him with the intricately woven band of the ephod, and with it tied _the ephod_ on him. 
 
 ###### 8 
-Then he put the breastplate on him, and he put the [^a]Urim and the Thummim in the breastplate. 
+Then he put the breastplate on him, and he put the Urim and the Thummim in the breastplate. 
 
 ###### 9 
 And he put the turban on his head. Also on the turban, on its front, he put the golden plate, the holy crown, as the Lord had commanded Moses. 
@@ -40,19 +40,19 @@ And he put the turban on his head. Also on the turban, on its front, he put the 
 Also Moses took the anointing oil, and anointed the tabernacle and all that _was_ in it, and consecrated them. 
 
 ###### 11 
-He sprinkled some of it on the altar seven times, anointed the altar and all its utensils, and the laver and its base, to [^b]consecrate them. 
+He sprinkled some of it on the altar seven times, anointed the altar and all its utensils, and the laver and its base, to consecrate them. 
 
 ###### 12 
 And he poured some of the anointing oil on Aaron's head and anointed him, to consecrate him. 
 
 ###### 13 
-Then Moses brought Aaron's sons and put tunics on them, girded them with sashes, and put [^c]hats on them, as the Lord had commanded Moses. 
+Then Moses brought Aaron's sons and put tunics on them, girded them with sashes, and put hats on them, as the Lord had commanded Moses. 
 
 ###### 14 
 And he brought the bull for the sin offering. Then Aaron and his sons laid their hands on the head of the bull for the sin offering, 
 
 ###### 15 
-and Moses killed _it_. Then he took the blood, and put _some_ on the horns of the altar all around with his finger, and purified the altar. And he poured the blood at the base of the altar, and consecrated it, to make [^d]atonement for it. 
+and Moses killed _it_. Then he took the blood, and put _some_ on the horns of the altar all around with his finger, and purified the altar. And he poured the blood at the base of the altar, and consecrated it, to make atonement for it. 
 
 ###### 16 
 Then he took all the fat that _was_ on the entrails, the fatty lobe _attached to_ the liver, and the two kidneys with their fat, and Moses burned _them_ on the altar. 
@@ -70,7 +70,7 @@ and Moses killed _it._ Then he sprinkled the blood all around on the altar.
 And he cut the ram into pieces; and Moses burned the head, the pieces, and the fat. 
 
 ###### 21 
-Then he washed the entrails and the legs in water. And Moses burned the whole ram on the altar. It _was_ a burnt sacrifice for a [^e]sweet aroma, an offering made by fire to the Lord, as the Lord had commanded Moses. 
+Then he washed the entrails and the legs in water. And Moses burned the whole ram on the altar. It _was_ a burnt sacrifice for a sweet aroma, an offering made by fire to the Lord, as the Lord had commanded Moses. 
 
 ###### 22 
 And he brought the second ram, the ram of consecration. Then Aaron and his sons laid their hands on the head of the ram, 
@@ -112,7 +112,7 @@ And you shall not go outside the door of the tabernacle of meeting _for_ seven d
 As he has done this day, _so_ the Lord has commanded to do, to make atonement for you. 
 
 ###### 35 
-Therefore you shall stay _at_ the door of the tabernacle of meeting day and night for seven days, and keep the [^f]charge of the Lord, so that you may not die; for so I have been commanded." 
+Therefore you shall stay _at_ the door of the tabernacle of meeting day and night for seven days, and keep the charge of the Lord, so that you may not die; for so I have been commanded." 
 
 ###### 36 
 So Aaron and his sons did all the things that the Lord had commanded by the hand of Moses.

@@ -105,7 +105,7 @@ Mga anak, sundin nʼyo ang mga magulang nʼyo dahil ito ang nararapat gawin <i c
 
 
 
-<i class="trans-change">At ito ang pangako,_ "Giginhawa ka at hahaba ang buhay mo rito sa lupa."[^a] 
+<i class="trans-change">At ito ang pangako,_ "Giginhawa ka at hahaba ang buhay mo rito sa lupa." 
 
 
 
@@ -138,7 +138,7 @@ Mga anak, sundin nʼyo ang mga magulang nʼyo dahil ito ang nararapat gawin <i c
 
 
 
-At kayo namang mga magulang,[^b] huwag kayong gumawa ng mga bagay na ikasasama ng loob ng mga anak ninyo. Sa halip, palakihin ninyo sila nang may disiplina at turuan ng mga aral ng Panginoon. ## Aral sa mga Alipin at mga Amo 
+At kayo namang mga magulang, huwag kayong gumawa ng mga bagay na ikasasama ng loob ng mga anak ninyo. Sa halip, palakihin ninyo sila nang may disiplina at turuan ng mga aral ng Panginoon. ## Aral sa mga Alipin at mga Amo 
 
 
 
@@ -600,7 +600,7 @@ Isuot nʼyo bilang helmet ang tinanggap ninyong kaligtasan, at gamitin nʼyo bil
 
 
 
-At manalangin kayo sa lahat ng oras sa tulong ng <i class="trans-change">Banal na_ Espiritu. Ipanalangin nʼyo ang lahat ng dapat ipanalangin. Huwag kayong magpabaya; patuloy kayong manalangin lalo na para sa lahat ng mga pinabanal.[^c] 
+At manalangin kayo sa lahat ng oras sa tulong ng <i class="trans-change">Banal na_ Espiritu. Ipanalangin nʼyo ang lahat ng dapat ipanalangin. Huwag kayong magpabaya; patuloy kayong manalangin lalo na para sa lahat ng mga pinabanal. 
 
 
 

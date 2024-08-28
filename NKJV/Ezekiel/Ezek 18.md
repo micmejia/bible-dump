@@ -25,13 +25,13 @@ The word of the Lord came to me again, saying,
 But if a man is just And does what is lawful and right; 
 
 ###### 6 
-If he has not eaten [^a]on the mountains, Nor lifted up his eyes to the idols of the house of Israel, Nor defiled his neighbor's wife, Nor approached a woman during her impurity; 
+If he has not eaten on the mountains, Nor lifted up his eyes to the idols of the house of Israel, Nor defiled his neighbor's wife, Nor approached a woman during her impurity; 
 
 ###### 7 
 If he has not oppressed anyone, _But_ has restored to the debtor his pledge; Has robbed no one by violence, _But_ has given his bread to the hungry And covered the naked with clothing; 
 
 ###### 8 
-If he has not [^b]exacted usury Nor taken any increase, _But_ has withdrawn his hand from iniquity _And_ executed true [^c]judgment between man and man; 
+If he has not exacted usury Nor taken any increase, _But_ has withdrawn his hand from iniquity _And_ executed true judgment between man and man; 
 
 ###### 9 
 _If_ he has walked in My statutes And kept My judgments faithfully-- He _is_ just; He shall surely live!" Says the Lord God. 
@@ -40,7 +40,7 @@ _If_ he has walked in My statutes And kept My judgments faithfully-- He _is_ jus
 "If he begets a son _who is_ a robber Or a shedder of blood, _Who_ does any of these _things_ 
 
 ###### 11 
-And does none of those _duties,_ But has eaten [^d]on the mountains Or defiled his neighbor's wife; 
+And does none of those _duties,_ But has eaten on the mountains Or defiled his neighbor's wife; 
 
 ###### 12 
 If he has oppressed the poor and needy, Robbed by violence, Not restored the pledge, Lifted his eyes to the idols, _Or_ committed abomination; 
@@ -52,13 +52,13 @@ If he has exacted usury Or taken increase-- Shall he then live? He shall not liv
 "_If,_ however, he begets a son Who sees all the sins which his father has done, And considers but does not do likewise; 
 
 ###### 15 
-_Who_ has not eaten [^e]on the mountains, Nor lifted his eyes to the idols of the house of Israel, Nor defiled his neighbor's wife; 
+_Who_ has not eaten on the mountains, Nor lifted his eyes to the idols of the house of Israel, Nor defiled his neighbor's wife; 
 
 ###### 16 
 Has not oppressed anyone, Nor withheld a pledge, Nor robbed by violence, _But_ has given his bread to the hungry And covered the naked with clothing; 
 
 ###### 17 
-_Who_ has withdrawn his hand from [^f]the poor _And_ not received usury or increase, But has executed My judgments And walked in My statutes-- He shall not die for the iniquity of his father; He shall surely live! 
+_Who_ has withdrawn his hand from the poor _And_ not received usury or increase, But has executed My judgments And walked in My statutes-- He shall not die for the iniquity of his father; He shall surely live! 
 
 ###### 18 
 "_As for_ his father, Because he cruelly oppressed, Robbed his brother by violence, And did what _is_ not good among his people, Behold, he shall die for his iniquity. ## Turn and Live 

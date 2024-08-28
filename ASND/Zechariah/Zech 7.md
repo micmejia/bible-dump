@@ -172,7 +172,7 @@ At kung silaʼy kumakain at umiinom, ginagawa nila iyan para lamang sa sarili ni
 
 
 
-Ito rin ang mensahe na ipinasabi ko sa mga propeta noon, nang masagana pa ang Jerusalem at marami pa itong tao pati ang mga bayang nasa paligid nito, at pati na ang Negev[^a] at ang kaburulan sa kanluran."[^b] ###### 8-9 Sinabi <i class="trans-change">muli_ ng Panginoong Makapangyarihan kay Zacarias, "Ito ang sinabi ko <i class="trans-change">sa aking mga mamamayan_: 'Humatol kayo nang makatarungan. Ipakita ninyo ang inyong kabutihan at habag sa isaʼt isa. 
+Ito rin ang mensahe na ipinasabi ko sa mga propeta noon, nang masagana pa ang Jerusalem at marami pa itong tao pati ang mga bayang nasa paligid nito, at pati na ang Negev at ang kaburulan sa kanluran." ###### 8-9 Sinabi <i class="trans-change">muli_ ng Panginoong Makapangyarihan kay Zacarias, "Ito ang sinabi ko <i class="trans-change">sa aking mga mamamayan_: 'Humatol kayo nang makatarungan. Ipakita ninyo ang inyong kabutihan at habag sa isaʼt isa. 
 
 
 

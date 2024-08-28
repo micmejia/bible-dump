@@ -34,7 +34,7 @@ And these are the sons of Benjamin: Sallu the son of Meshullam, the son of Joed,
 and after him Gabbai _and_ Sallai, nine hundred and twenty-eight. 
 
 ###### 9 
-Joel the son of Zichri _was_ their overseer, and Judah the son of [^a]Senuah _was_ second over the city. 
+Joel the son of Zichri _was_ their overseer, and Judah the son of Senuah _was_ second over the city. 
 
 ###### 10 
 Of the priests: Jedaiah the son of Joiarib, and Jachin; 
@@ -49,16 +49,16 @@ Their brethren who did the work of the house _were_ eight hundred and twenty-two
 and his brethren, heads of the fathers' _houses, were_ two hundred and forty-two; and Amashai the son of Azarel, the son of Ahzai, the son of Meshillemoth, the son of Immer, 
 
 ###### 14 
-and their brethren, mighty men of valor, _were_ one hundred and twenty-eight. Their overseer _was_ Zabdiel [^b]the son of _one of_ the great men. 
+and their brethren, mighty men of valor, _were_ one hundred and twenty-eight. Their overseer _was_ Zabdiel the son of _one of_ the great men. 
 
 ###### 15 
 Also of the Levites: Shemaiah the son of Hasshub, the son of Azrikam, the son of Hashabiah, the son of Bunni; 
 
 ###### 16 
-Shabbethai and Jozabad, of the heads of the Levites, _had_ the oversight of the business outside of the [^c]house of God; 
+Shabbethai and Jozabad, of the heads of the Levites, _had_ the oversight of the business outside of the house of God; 
 
 ###### 17 
-Mattaniah the son of [^d]Micha, the son of Zabdi, the son of Asaph, the leader _who_ began the thanksgiving with prayer; Bakbukiah, the second among his brethren; and Abda the son of Shammua, the son of Galal, the son of Jeduthun. 
+Mattaniah the son of Micha, the son of Zabdi, the son of Asaph, the leader _who_ began the thanksgiving with prayer; Bakbukiah, the second among his brethren; and Abda the son of Shammua, the son of Galal, the son of Jeduthun. 
 
 ###### 18 
 All the Levites in the holy city _were_ two hundred and eighty-four. 
@@ -73,13 +73,13 @@ And the rest of Israel, of the priests _and_ Levites, _were_ in all the cities o
 But the Nethinim dwelt in Ophel. And Ziha and Gishpa _were_ over the Nethinim. 
 
 ###### 22 
-Also the overseer of the Levites at Jerusalem _was_ Uzzi the son of Bani, the son of Hashabiah, the son of Mattaniah, the son of Micha, of the sons of Asaph, the singers in charge of the [^e]service of the [^f]house of God. 
+Also the overseer of the Levites at Jerusalem _was_ Uzzi the son of Bani, the son of Hashabiah, the son of Mattaniah, the son of Micha, of the sons of Asaph, the singers in charge of the service of the house of God. 
 
 ###### 23 
-For _it was_ the king's command concerning them that a [^g]certain portion should be for the singers, a quota day by day. 
+For _it was_ the king's command concerning them that a certain portion should be for the singers, a quota day by day. 
 
 ###### 24 
-Pethahiah the son of Meshezabel, of the children of Zerah the son of Judah, _was_ the[^h] king's deputy in all matters concerning the people. ## The People Dwelling Outside Jerusalem 
+Pethahiah the son of Meshezabel, of the children of Zerah the son of Judah, _was_ the king's deputy in all matters concerning the people. ## The People Dwelling Outside Jerusalem 
 
 ###### 25 
 And as for the villages with their fields, _some_ of the children of Judah dwelt in Kirjath Arba and its villages, Dibon and its villages, Jekabzeel and its villages; 

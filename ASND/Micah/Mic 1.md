@@ -39,7 +39,7 @@ next: ['Mic 2']
 
 
 
-Ito ang mensahe ng Panginoon tungkol sa Samaria at Jerusalem.[^a] Ipinahayag niya ito kay Micas na taga-Moreshet noong <i class="trans-change">magkakasunod na_ naghari sa Juda sina Jotam, Ahaz at Hezekia. <i class="trans-change">Sinabi ni Micas:_ 
+Ito ang mensahe ng Panginoon tungkol sa Samaria at Jerusalem. Ipinahayag niya ito kay Micas na taga-Moreshet noong <i class="trans-change">magkakasunod na_ naghari sa Juda sina Jotam, Ahaz at Hezekia. <i class="trans-change">Sinabi ni Micas:_ 
 
 
 
@@ -72,7 +72,7 @@ Ito ang mensahe ng Panginoon tungkol sa Samaria at Jerusalem.[^a] Ipinahayag niy
 
 
 
-Makinig kayong mabuti, lahat kayong mga mamamayan sa buong mundo.[^b] Sapagkat sasaksi ang Panginoong Dios laban sa inyo mula sa kanyang banal na templo.[^c] ## Parurusahan ang Israel at Juda 
+Makinig kayong mabuti, lahat kayong mga mamamayan sa buong mundo. Sapagkat sasaksi ang Panginoong Dios laban sa inyo mula sa kanyang banal na templo. ## Parurusahan ang Israel at Juda 
 
 
 
@@ -171,7 +171,7 @@ Ang mga bundok na kanyang malalakaran ay matutunaw na parang mga kandila na nadi
 
 
 
-Mangyayari ang lahat ng ito dahil sa mga kasalanan ng mga mamamayan ng Israel at Juda.[^d] Ang mga taga-Samaria ang nag-udyok sa ibang mga mamamayan ng Israel para magkasala. At ang mga taga-Jerusalem naman ang nag-udyok sa ibang mga mamamayan ng Juda para sumamba sa mga dios-diosan. 
+Mangyayari ang lahat ng ito dahil sa mga kasalanan ng mga mamamayan ng Israel at Juda. Ang mga taga-Samaria ang nag-udyok sa ibang mga mamamayan ng Israel para magkasala. At ang mga taga-Jerusalem naman ang nag-udyok sa ibang mga mamamayan ng Juda para sumamba sa mga dios-diosan. 
 
 
 
@@ -237,7 +237,7 @@ Kaya <i class="trans-change">sinabi ng Panginoon,_ "Gigibain ko ang Samaria at t
 
 
 
-Madudurog ang lahat ng imahen ng dios-diosan ng Samaria, at masusunog ang lahat ng ibinayad ng mga lalaki sa kanilang pakikipagtalik sa mga babaeng bayaran sa templo.[^e] Nakapagtipon <i class="trans-change">ng mga imahen_ ang Samaria sa pamamagitan ng mga ibinayad sa mga babaeng bayaran sa templo, kaya <i class="trans-change">kukunin ng kanyang mga kalaban ang mga pilak at ginto na binalot sa mga imahen para_ gamitin din <i class="trans-change">ng kanyang mga kalaban_ na pambayad sa mga babaeng bayaran sa kanilang templo." 
+Madudurog ang lahat ng imahen ng dios-diosan ng Samaria, at masusunog ang lahat ng ibinayad ng mga lalaki sa kanilang pakikipagtalik sa mga babaeng bayaran sa templo. Nakapagtipon <i class="trans-change">ng mga imahen_ ang Samaria sa pamamagitan ng mga ibinayad sa mga babaeng bayaran sa templo, kaya <i class="trans-change">kukunin ng kanyang mga kalaban ang mga pilak at ginto na binalot sa mga imahen para_ gamitin din <i class="trans-change">ng kanyang mga kalaban_ na pambayad sa mga babaeng bayaran sa kanilang templo." 
 
 
 
@@ -270,7 +270,7 @@ Madudurog ang lahat ng imahen ng dios-diosan ng Samaria, at masusunog ang lahat 
 
 
 
-<i class="trans-change">Sinabi pa ni Micas:_ Dahil sa pagkawasak ng Samaria, iiyak ako at magdadalamhati. Maglalakad ako nang nakapaa at nakahubad <i class="trans-change">para ipakita ang aking kalungkutan_. Iiyak ako nang malakas na parang asong-gubat[^f] at tulad ng paghuni ng kuwago. 
+<i class="trans-change">Sinabi pa ni Micas:_ Dahil sa pagkawasak ng Samaria, iiyak ako at magdadalamhati. Maglalakad ako nang nakapaa at nakahubad <i class="trans-change">para ipakita ang aking kalungkutan_. Iiyak ako nang malakas na parang asong-gubat at tulad ng paghuni ng kuwago. 
 
 
 
@@ -303,7 +303,7 @@ Madudurog ang lahat ng imahen ng dios-diosan ng Samaria, at masusunog ang lahat 
 
 
 
-Sapagkat ang pagkagiba ng Samaria ay parang sugat na hindi na gagaling, at mangyayari rin ito sa Juda hanggang sa Jerusalem na siyang kabisera na lungsod[^g] ng aking mga kababayan. 
+Sapagkat ang pagkagiba ng Samaria ay parang sugat na hindi na gagaling, at mangyayari rin ito sa Juda hanggang sa Jerusalem na siyang kabisera na lungsod ng aking mga kababayan. 
 
 
 
@@ -336,7 +336,7 @@ Sapagkat ang pagkagiba ng Samaria ay parang sugat na hindi na gagaling, at mangy
 
 
 
-<i class="trans-change">Mga taga-Juda,_ huwag ninyong ibalita sa <i class="trans-change">ating mga kalaban na_ mga taga-Gat <i class="trans-change">ang tungkol sa darating na kapahamakan sa atin_. Huwag ninyong ipapakita na umiiyak kayo. Doon ninyo ipakita sa bayan ng Bet Leafra[^h] ang inyong kalungkutan sa pamamagitan ng paggulong sa lupa. 
+<i class="trans-change">Mga taga-Juda,_ huwag ninyong ibalita sa <i class="trans-change">ating mga kalaban na_ mga taga-Gat <i class="trans-change">ang tungkol sa darating na kapahamakan sa atin_. Huwag ninyong ipapakita na umiiyak kayo. Doon ninyo ipakita sa bayan ng Bet Leafra ang inyong kalungkutan sa pamamagitan ng paggulong sa lupa. 
 
 
 
@@ -468,7 +468,7 @@ Mga mamamayan ng Lakish, isingkaw ninyo ang mga kabayo sa karwahe <i class="tran
 
 
 
-Kayong mga taga-Juda, magpaalam na kayo[^i] sa <i class="trans-change">bayan ng_ Moreshet Gat <i class="trans-change">dahil sasakupin na rin iyan ng mga kalaban. Sasakupin din_ ang bayan[^j] ng Aczib, <i class="trans-change">kaya_ wala nang maaasahang tulong ang inyong mga hari mula sa bayang iyon. 
+Kayong mga taga-Juda, magpaalam na kayo sa <i class="trans-change">bayan ng_ Moreshet Gat <i class="trans-change">dahil sasakupin na rin iyan ng mga kalaban. Sasakupin din_ ang bayan ng Aczib, <i class="trans-change">kaya_ wala nang maaasahang tulong ang inyong mga hari mula sa bayang iyon. 
 
 
 
@@ -501,7 +501,7 @@ Kayong mga taga-Juda, magpaalam na kayo[^i] sa <i class="trans-change">bayan ng_
 
 
 
-Kayong mga mamamayan ng Maresha, padadalhan kayo ng Panginoon[^k] ng kalaban na sasakop sa inyo. Mga taga-Juda,[^l] ang inyong mga pinuno ay magtatago sa <i class="trans-change">kweba ng_ Adulam. 
+Kayong mga mamamayan ng Maresha, padadalhan kayo ng Panginoon ng kalaban na sasakop sa inyo. Mga taga-Juda, ang inyong mga pinuno ay magtatago sa <i class="trans-change">kweba ng_ Adulam. 
 
 
 
@@ -534,4 +534,4 @@ Kayong mga mamamayan ng Maresha, padadalhan kayo ng Panginoon[^k] ng kalaban na 
 
 
 
-Kukunin sa inyo ang pinakamamahal ninyong mga anak[^m] at dadalhin sa ibang bayan, kaya magluluksa kayo para sa kanila at ipapakita ninyo ang inyong kalungkutan sa pamamagitan ng pagpapakalbo na parang ulo ng agila.[^n]
+Kukunin sa inyo ang pinakamamahal ninyong mga anak at dadalhin sa ibang bayan, kaya magluluksa kayo para sa kanila at ipapakita ninyo ang inyong kalungkutan sa pamamagitan ng pagpapakalbo na parang ulo ng agila.

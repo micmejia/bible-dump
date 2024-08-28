@@ -40,7 +40,7 @@ next: ['Dan 4']
 
 
 
-Nagpagawa si Haring Nebucadnezar ng rebultong ginto.[^a] May 90 talampakan ang taas at 9 na talampakan ang lapad. Ipinatayo niya ito sa kapatagan ng Dura sa lalawigan ng Babilonia. ###### 2-3 Pagkatapos, ipinatawag ni Haring Nebucadnezar ang mga gobernador, mga mayor, mga komisyoner, mga tagapayo, mga ingat-yaman, mga hukom, at iba pang mga opisyal ng lalawigan para dumalo sa pagtatalaga ng nasabing rebulto. Nang naroon na sila nakatayo sa harap ng rebulto, 
+Nagpagawa si Haring Nebucadnezar ng rebultong ginto. May 90 talampakan ang taas at 9 na talampakan ang lapad. Ipinatayo niya ito sa kapatagan ng Dura sa lalawigan ng Babilonia. ###### 2-3 Pagkatapos, ipinatawag ni Haring Nebucadnezar ang mga gobernador, mga mayor, mga komisyoner, mga tagapayo, mga ingat-yaman, mga hukom, at iba pang mga opisyal ng lalawigan para dumalo sa pagtatalaga ng nasabing rebulto. Nang naroon na sila nakatayo sa harap ng rebulto, 
 
 
 
@@ -205,7 +205,7 @@ Kaya nang marinig nila ang tunog ng mga instrumento, agad silang lumuhod at suma
 
 
 
-Nang panahong iyon, may ilang taga-Babilonia[^b] na lumapit sa hari at pinaratangan nila ang mga Judio. 
+Nang panahong iyon, may ilang taga-Babilonia na lumapit sa hari at pinaratangan nila ang mga Judio. 
 
 
 
@@ -766,7 +766,7 @@ At silang tatlo na nakagapos ay bumagsak sa naglalagablab na hurno.
 
 
 
-Sinabi ng hari, "Tingnan ninyo! Apat na ang nakikita kong palakad-lakad sa gitna ng apoy. Hindi na sila nakagapos at hindi sila nasusunog. At ang isa sa kanila ay parang dios."[^c] 
+Sinabi ng hari, "Tingnan ninyo! Apat na ang nakikita kong palakad-lakad sa gitna ng apoy. Hindi na sila nakagapos at hindi sila nasusunog. At ang isa sa kanila ay parang dios." 
 
 
 

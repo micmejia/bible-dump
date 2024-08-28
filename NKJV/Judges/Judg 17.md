@@ -22,7 +22,7 @@ So when he had returned the eleven hundred _shekels_ of silver to his mother, hi
 Thus he returned the silver to his mother. Then his mother took two hundred _shekels_ of silver and gave them to the silversmith, and he made it into a carved image and a molded image; and they were in the house of Micah. 
 
 ###### 5 
-The man Micah had a shrine, and made an ephod and household[^a] idols; and he consecrated one of his sons, who became his priest. 
+The man Micah had a shrine, and made an ephod and household idols; and he consecrated one of his sons, who became his priest. 
 
 ###### 6 
 In those days _there was_ no king in Israel; everyone did _what was_ right in his own eyes. 
@@ -43,7 +43,7 @@ Micah said to him, "Dwell with me, and be a father and a priest to me, and I wil
 Then the Levite was content to dwell with the man; and the young man became like one of his sons to him. 
 
 ###### 12 
-So Micah consecrated[^b] the Levite, and the young man became his priest, and lived in the house of Micah. 
+So Micah consecrated the Levite, and the young man became his priest, and lived in the house of Micah. 
 
 ###### 13 
 Then Micah said, "Now I know that the Lord will be good to me, since I have a Levite as priest!"

@@ -16,7 +16,7 @@ There was a man of the Pharisees named Nicodemus, a ruler of the Jews.
 This man came to Jesus by night and said to Him, "Rabbi, we know that You are a teacher come from God; for no one can do these signs that You do unless God is with him." 
 
 ###### 3 
-Jesus answered and said to him, "Most assuredly, I say to you, unless one is born [^a]again, he cannot see the kingdom of God." 
+Jesus answered and said to him, "Most assuredly, I say to you, unless one is born again, he cannot see the kingdom of God." 
 
 ###### 4 
 Nicodemus said to Him, "How can a man be born when he is old? Can he enter a second time into his mother's womb and be born?" 
@@ -46,13 +46,13 @@ Most assuredly, I say to you, We speak what We know and testify what We have see
 If I have told you earthly things and you do not believe, how will you believe if I tell you heavenly things? 
 
 ###### 13 
-No one has ascended to heaven but He who came down from heaven, _that is,_ the Son of Man [^b]who is in heaven. 
+No one has ascended to heaven but He who came down from heaven, _that is,_ the Son of Man who is in heaven. 
 
 ###### 14 
 And as Moses lifted up the serpent in the wilderness, even so must the Son of Man be lifted up, 
 
 ###### 15 
-that whoever believes in Him should [^c]not perish but have eternal life. 
+that whoever believes in Him should not perish but have eternal life. 
 
 ###### 16 
 For God so loved the world that He gave His only begotten Son, that whoever believes in Him should not perish but have everlasting life. 

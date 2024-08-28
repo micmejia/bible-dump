@@ -18,25 +18,25 @@ I will also gather all nations, And bring them down to the Valley of Jehoshaphat
 They have cast lots for My people, Have given a boy _as payment_ for a harlot, And sold a girl for wine, that they may drink. 
 
 ###### 4 
-"Indeed, what have you to do with Me, O Tyre and Sidon, and all the coasts of Philistia? Will you [^a]retaliate against Me? But if you [^b]retaliate against Me, Swiftly and speedily I will return your [^c]retaliation upon your own head; 
+"Indeed, what have you to do with Me, O Tyre and Sidon, and all the coasts of Philistia? Will you retaliate against Me? But if you retaliate against Me, Swiftly and speedily I will return your retaliation upon your own head; 
 
 ###### 5 
-Because you have taken My silver and My gold, And have carried into your temples My [^d]prized possessions. 
+Because you have taken My silver and My gold, And have carried into your temples My prized possessions. 
 
 ###### 6 
 Also the people of Judah and the people of Jerusalem You have sold to the Greeks, That you may remove them far from their borders. 
 
 ###### 7 
-"Behold, I will raise them Out of the place to which you have sold them, And will return your [^e]retaliation upon your own head. 
+"Behold, I will raise them Out of the place to which you have sold them, And will return your retaliation upon your own head. 
 
 ###### 8 
-I will sell your sons and your daughters Into the hand of the people of Judah, And they will sell them to the Sabeans,[^f] To a people far off; For the Lord has spoken." 
+I will sell your sons and your daughters Into the hand of the people of Judah, And they will sell them to the Sabeans, To a people far off; For the Lord has spoken." 
 
 ###### 9 
 Proclaim this among the nations: "Prepare for war! Wake up the mighty men, Let all the men of war draw near, Let them come up. 
 
 ###### 10 
-Beat your plowshares into swords And your [^g]pruning hooks into spears; Let the weak say, 'I _am_ strong.' " 
+Beat your plowshares into swords And your pruning hooks into spears; Let the weak say, 'I _am_ strong.' " 
 
 ###### 11 
 Assemble and come, all you nations, And gather together all around. Cause Your mighty ones to go down there, O Lord. 
@@ -60,7 +60,7 @@ The Lord also will roar from Zion, And utter His voice from Jerusalem; The heave
 "So you shall know that I _am_ the Lord your God, Dwelling in Zion My holy mountain. Then Jerusalem shall be holy, And no aliens shall ever pass through her again." ## God Blesses His People 
 
 ###### 18 
-And it will come to pass in that day _That_ the mountains shall drip with new wine, The hills shall flow with milk, And all the brooks of Judah shall be flooded with water; A fountain shall flow from the house of the Lord And water the Valley of [^h]Acacias. 
+And it will come to pass in that day _That_ the mountains shall drip with new wine, The hills shall flow with milk, And all the brooks of Judah shall be flooded with water; A fountain shall flow from the house of the Lord And water the Valley of Acacias. 
 
 ###### 19 
 "Egypt shall be a desolation, And Edom a desolate wilderness, Because of violence _against_ the people of Judah, For they have shed innocent blood in their land. 

@@ -364,4 +364,4 @@ But the earth came to the rescue of the woman, and the ground opened its mouth a
 
 
 
-So then the dragon was furious (enraged) at the woman, and he went away to wage war on the remainder of her descendants--[on those] who obey God's commandments and who have the testimony of Jesus _Christ_ [and adhere to it and [^a]bear witness to Him].
+So then the dragon was furious (enraged) at the woman, and he went away to wage war on the remainder of her descendants--[on those] who obey God's commandments and who have the testimony of Jesus _Christ_ [and adhere to it and bear witness to Him].

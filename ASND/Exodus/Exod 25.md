@@ -238,7 +238,7 @@ langis ng olibo para sa ilaw, mga sangkap sa langis na pamahid at pabango sa ins
 
 
 
-batong onix at iba pang mamahaling bato na ilalagay sa espesyal na damit[^a] <i class="trans-change">ng punong pari_ at sa bulsa sa dibdib nito. 
+batong onix at iba pang mamahaling bato na ilalagay sa espesyal na damit <i class="trans-change">ng punong pari_ at sa bulsa sa dibdib nito. 
 
 
 
@@ -403,7 +403,7 @@ Balutan ninyo ito ng purong ginto sa loob at labas, at palagyan ng hinulmang gin
 
 
 
-Maghulma ka ng apat na argolyang[^b] ginto at ikabit ito sa apat na paa nito, dalawa sa bawat gilid. 
+Maghulma ka ng apat na argolyang ginto at ikabit ito sa apat na paa nito, dalawa sa bawat gilid. 
 
 
 
@@ -1030,7 +1030,7 @@ Ang lalagyan ng ilaw ay may anim na sanga, tigtatatlo sa bawat gilid.
 
 
 
-Ang bawat sanga ay may tatlong lalagyan na hugis bulaklak ng almendro.[^c] 
+Ang bawat sanga ay may tatlong lalagyan na hugis bulaklak ng almendro. 
 
 
 

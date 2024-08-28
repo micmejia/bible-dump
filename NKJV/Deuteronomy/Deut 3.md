@@ -16,7 +16,7 @@ next: ['Deut 4']
 And the Lord said to me, 'Do not fear him, for I have delivered him and all his people and his land into your hand; you shall do to him as you did to Sihon king of the Amorites, who dwelt at Heshbon.' 
 
 ###### 3 
-"So the Lord our God also delivered into our hands Og king of Bashan, with all his people, and we [^a]attacked him until he had no survivors remaining. 
+"So the Lord our God also delivered into our hands Og king of Bashan, with all his people, and we attacked him until he had no survivors remaining. 
 
 ###### 4 
 And we took all his cities at that time; there was not a city which we did not take from them: sixty cities, all the region of Argob, the kingdom of Og in Bashan. 
@@ -40,16 +40,16 @@ But all the livestock and the spoil of the cities we took as booty for ourselves
 all the cities of the plain, all Gilead, and all Bashan, as far as Salcah and Edrei, cities of the kingdom of Og in Bashan. 
 
 ###### 11 
-"For only Og king of Bashan remained of the remnant of the [^b]giants. Indeed his bedstead _was_ an iron bedstead. (_Is_ it not in Rabbah of the people of Ammon?) Nine cubits _is_ its length and four cubits its width, according to the standard cubit. ## The Land East of the Jordan Divided 
+"For only Og king of Bashan remained of the remnant of the giants. Indeed his bedstead _was_ an iron bedstead. (_Is_ it not in Rabbah of the people of Ammon?) Nine cubits _is_ its length and four cubits its width, according to the standard cubit. ## The Land East of the Jordan Divided 
 
 ###### 12 
 "And this land, _which_ we possessed at that time, from Aroer, which _is_ by the River Arnon, and half the mountains of Gilead and its cities, I gave to the Reubenites and the Gadites. 
 
 ###### 13 
-The rest of Gilead, and all Bashan, the kingdom of Og, I gave to half the tribe of Manasseh. (All the region of Argob, with all Bashan, was called the land of the [^c]giants. 
+The rest of Gilead, and all Bashan, the kingdom of Og, I gave to half the tribe of Manasseh. (All the region of Argob, with all Bashan, was called the land of the giants. 
 
 ###### 14 
-Jair the son of Manasseh took all the region of Argob, as far as the border of the Geshurites and the Maachathites, and called Bashan after his own name, [^d]Havoth Jair, to this day.) 
+Jair the son of Manasseh took all the region of Argob, as far as the border of the Geshurites and the Maachathites, and called Bashan after his own name, Havoth Jair, to this day.) 
 
 ###### 15 
 "Also I gave Gilead to Machir. 
@@ -79,7 +79,7 @@ You must not fear them, for the Lord your God Himself fights for you.' ## Moses 
 "Then I pleaded with the Lord at that time, saying: 
 
 ###### 24 
-'O Lord God, You have begun to show Your servant Your greatness and Your [^e]mighty hand, for what god _is there_ in heaven or on earth who can do _anything_ like Your works and Your mighty _deeds?_ 
+'O Lord God, You have begun to show Your servant Your greatness and Your mighty hand, for what god _is there_ in heaven or on earth who can do _anything_ like Your works and Your mighty _deeds?_ 
 
 ###### 25 
 I pray, let me cross over and see the good land beyond the Jordan, those pleasant mountains, and Lebanon.' 
@@ -91,7 +91,7 @@ I pray, let me cross over and see the good land beyond the Jordan, those pleasan
 Go up to the top of Pisgah, and lift your eyes toward the west, the north, the south, and the east; behold _it_ with your eyes, for you shall not cross over this Jordan. 
 
 ###### 28 
-But command[^f] Joshua, and encourage him and strengthen him; for he shall go over before this people, and he shall cause them to inherit the land which you will see.' 
+But command Joshua, and encourage him and strengthen him; for he shall go over before this people, and he shall cause them to inherit the land which you will see.' 
 
 ###### 29 
 "So we stayed in the valley opposite Beth Peor.

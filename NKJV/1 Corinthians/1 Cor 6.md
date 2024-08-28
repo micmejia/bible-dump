@@ -19,7 +19,7 @@ Do you not know that the saints will judge the world? And if the world will be j
 Do you not know that we shall judge angels? How much more, things that pertain to this life? 
 
 ###### 4 
-If then you have [^a]judgments concerning things pertaining to this life, do you appoint those who are least esteemed by the church to judge? 
+If then you have judgments concerning things pertaining to this life, do you appoint those who are least esteemed by the church to judge? 
 
 ###### 5 
 I say this to your shame. Is it so, that there is not a wise man among you, not even one, who will be able to judge between his brethren? 
@@ -34,16 +34,16 @@ Now therefore, it is already an utter failure for you that you go to law against
 No, you yourselves do wrong and cheat, and _you do_ these things _to your_ brethren! 
 
 ###### 9 
-Do you not know that the unrighteous will not inherit the kingdom of God? Do not be deceived. Neither fornicators, nor idolaters, nor adulterers, nor [^b]homosexuals, nor [^c]sodomites, 
+Do you not know that the unrighteous will not inherit the kingdom of God? Do not be deceived. Neither fornicators, nor idolaters, nor adulterers, nor homosexuals, nor sodomites, 
 
 ###### 10 
 nor thieves, nor covetous, nor drunkards, nor revilers, nor extortioners will inherit the kingdom of God. 
 
 ###### 11 
-And such were some of you. But you were washed, but you were [^d]sanctified, but you were justified in the name of the Lord Jesus and by the Spirit of our God. ## Glorify God in Body and Spirit 
+And such were some of you. But you were washed, but you were sanctified, but you were justified in the name of the Lord Jesus and by the Spirit of our God. ## Glorify God in Body and Spirit 
 
 ###### 12 
-All things are lawful for me, but all things are not [^e]helpful. All things are lawful for me, but I will not be brought under the power of [^f]any. 
+All things are lawful for me, but all things are not helpful. All things are lawful for me, but I will not be brought under the power of any. 
 
 ###### 13 
 Foods for the stomach and the stomach for foods, but God will destroy both it and them. Now the body _is_ not for sexual immorality but for the Lord, and the Lord for the body. 
@@ -67,4 +67,4 @@ Flee sexual immorality. Every sin that a man does is outside the body, but he wh
 Or do you not know that your body is the temple of the Holy Spirit _who is_ in you, whom you have from God, and you are not your own? 
 
 ###### 20 
-For you were bought at a price; therefore glorify God in your body [^g]and in your spirit, which are God's.
+For you were bought at a price; therefore glorify God in your body and in your spirit, which are God's.

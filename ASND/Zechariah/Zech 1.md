@@ -39,7 +39,7 @@ next: ['Zech 2']
 
 
 
-May sinabi ang Panginoon kay Propeta Zacarias noong ikawalong buwan ng ikalawang taon ng paghahari ni Darius <i class="trans-change">sa Persia_. Si Zacarias ay anak ni Berekia na anak ni Iddo. ###### 2-3 Inutusan ng Panginoong Makapangyarihan si Zacarias na sabihin ito sa mga mamamayan <i class="trans-change">ng Israel_: "Matindi ang galit ko sa inyong mga ninuno. Kaya magbalik-loob na kayo sa akin at manunumbalik[^a] ako sa inyo. 
+May sinabi ang Panginoon kay Propeta Zacarias noong ikawalong buwan ng ikalawang taon ng paghahari ni Darius <i class="trans-change">sa Persia_. Si Zacarias ay anak ni Berekia na anak ni Iddo. ###### 2-3 Inutusan ng Panginoong Makapangyarihan si Zacarias na sabihin ito sa mga mamamayan <i class="trans-change">ng Israel_: "Matindi ang galit ko sa inyong mga ninuno. Kaya magbalik-loob na kayo sa akin at manunumbalik ako sa inyo. 
 
 
 
@@ -402,7 +402,7 @@ pero matindi ang galit ko sa mga bansang nagpapasarap sa buhay. Hindi ako gaanon
 
 
 
-Kaya babalik[^b] akong may awa sa Jerusalem, at itatayo kong muli[^c] ang lungsod na ito pati na ang aking templo." 
+Kaya babalik akong may awa sa Jerusalem, at itatayo kong muli ang lungsod na ito pati na ang aking templo." 
 
 
 

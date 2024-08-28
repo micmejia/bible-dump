@@ -33,16 +33,16 @@ with goodwill doing service, as to the Lord, and not to men,
 knowing that whatever good anyone does, he will receive the same from the Lord, whether _he is_ a slave or free. 
 
 ###### 9 
-And you, masters, do the same things to them, giving up threatening, knowing that [^a]your own Master also is in heaven, and there is no partiality with Him. ## The Whole Armor of God 
+And you, masters, do the same things to them, giving up threatening, knowing that your own Master also is in heaven, and there is no partiality with Him. ## The Whole Armor of God 
 
 ###### 10 
 Finally, my brethren, be strong in the Lord and in the power of His might. 
 
 ###### 11 
-Put on the whole armor of God, that you may be able to stand against the [^b]wiles of the devil. 
+Put on the whole armor of God, that you may be able to stand against the wiles of the devil. 
 
 ###### 12 
-For we do not wrestle against flesh and blood, but against principalities, against powers, against the rulers of [^c]the darkness of this age, against spiritual _hosts_ of wickedness in the heavenly _places._ 
+For we do not wrestle against flesh and blood, but against principalities, against powers, against the rulers of the darkness of this age, against spiritual _hosts_ of wickedness in the heavenly _places._ 
 
 ###### 13 
 Therefore take up the whole armor of God, that you may be able to withstand in the evil day, and having done all, to stand. 

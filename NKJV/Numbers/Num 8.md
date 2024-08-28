@@ -28,7 +28,7 @@ Then the Lord spoke to Moses, saying:
 "Take the Levites from among the children of Israel and cleanse them _ceremonially._ 
 
 ###### 7 
-Thus you shall do to them to cleanse them: Sprinkle water of purification on them, and let[^a] them shave all their body, and let them wash their clothes, and _so_ make themselves clean. 
+Thus you shall do to them to cleanse them: Sprinkle water of purification on them, and let them shave all their body, and let them wash their clothes, and _so_ make themselves clean. 
 
 ###### 8 
 Then let them take a young bull with its grain offering of fine flour mixed with oil, and you shall take another young bull as a sin offering. 
@@ -40,7 +40,7 @@ And you shall bring the Levites before the tabernacle of meeting, and you shall 
 So you shall bring the Levites before the Lord, and the children of Israel shall lay their hands on the Levites; 
 
 ###### 11 
-and Aaron shall [^b]offer the Levites before the Lord _like_ a wave offering from the children of Israel, that they may perform the work of the Lord. 
+and Aaron shall offer the Levites before the Lord _like_ a wave offering from the children of Israel, that they may perform the work of the Lord. 
 
 ###### 12 
 Then the Levites shall lay their hands on the heads of the young bulls, and you shall offer one as a sin offering and the other as a burnt offering to the Lord, to make atonement for the Levites. 
@@ -58,7 +58,7 @@ After that the Levites shall go in to service the tabernacle of meeting. So you 
 For they _are_ wholly given to Me from among the children of Israel; I have taken them for Myself instead of all who open the womb, the firstborn of all the children of Israel. 
 
 ###### 17 
-For all the firstborn among the children of Israel _are_ Mine, _both_ man and beast; on the day that I struck all the firstborn in the land of Egypt I [^c]sanctified them to Myself. 
+For all the firstborn among the children of Israel _are_ Mine, _both_ man and beast; on the day that I struck all the firstborn in the land of Egypt I sanctified them to Myself. 
 
 ###### 18 
 I have taken the Levites instead of all the firstborn of the children of Israel. 

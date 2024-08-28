@@ -568,7 +568,7 @@ Kaya pinapunta nila kay Jesus ang ilan sa kanilang mga kasamahan at ang ilan sa 
 
 
 
-Ano sa palagay nʼyo? Tama po ba na <i class="trans-change">tayong mga Judio ay_ magbayad ng buwis sa Emperador ng Roma[^a] o hindi?" 
+Ano sa palagay nʼyo? Tama po ba na <i class="trans-change">tayong mga Judio ay_ magbayad ng buwis sa Emperador ng Roma o hindi?" 
 
 
 
@@ -634,7 +634,7 @@ Pero alam ni Jesus ang masama nilang balak, kaya sinabi niya, "Mga pakitang-tao!
 
 
 
-Patingin nga ng perang ipinambabayad ng buwis." Iniabot nila sa kanya ang pera.[^b] 
+Patingin nga ng perang ipinambabayad ng buwis." Iniabot nila sa kanya ang pera. 
 
 
 
@@ -799,7 +799,7 @@ Nang araw ding iyon, lumapit at nagtanong kay Jesus ang ilang mga Saduceo – mg
 
 
 
-Sinabi nila, "Guro, sinabi ni Moises na kapag ang isang lalaki ay namatay na walang anak sa asawa niya, dapat pakasalan ng kanyang kapatid ang naiwan niyang asawa para magkaanak sila para sa kanya.[^c] 
+Sinabi nila, "Guro, sinabi ni Moises na kapag ang isang lalaki ay namatay na walang anak sa asawa niya, dapat pakasalan ng kanyang kapatid ang naiwan niyang asawa para magkaanak sila para sa kanya. 
 
 
 
@@ -1063,7 +1063,7 @@ Tungkol naman sa muling pagkabuhay, hindi ba ninyo nabasa <i class="trans-change
 
 
 
-'Ako ang Dios nila Abraham, Isaac, at Jacob.'[^d] Hindi siya Dios ng mga patay kundi ng mga buhay." 
+'Ako ang Dios nila Abraham, Isaac, at Jacob.' Hindi siya Dios ng mga patay kundi ng mga buhay." 
 
 
 
@@ -1228,7 +1228,7 @@ Isa sa kanila, na tagapagturo ng Kautusan, ang nagtanong kay Jesus upang subukin
 
 
 
-Sumagot si Jesus, " 'Mahalin mo ang Panginoon mong Dios nang buong puso, nang buong kaluluwa, at nang buong pag-iisip.'[^e] 
+Sumagot si Jesus, " 'Mahalin mo ang Panginoon mong Dios nang buong puso, nang buong kaluluwa, at nang buong pag-iisip.' 
 
 
 
@@ -1294,7 +1294,7 @@ Ito ang pinakamahalagang utos sa lahat.
 
 
 
-At ang ikalawang pinakamahalagang utos ay katulad din nito: 'Mahalin mo ang iyong kapwa katulad ng pagmamahal mo sa iyong sarili.'[^f] 
+At ang ikalawang pinakamahalagang utos ay katulad din nito: 'Mahalin mo ang iyong kapwa katulad ng pagmamahal mo sa iyong sarili.' 
 
 
 
@@ -1327,7 +1327,7 @@ At ang ikalawang pinakamahalagang utos ay katulad din nito: 'Mahalin mo ang iyon
 
 
 
-Ang buong Kautusan ni Moises at ang mga isinulat ng mga propeta ay nakasalalay sa dalawang utos na ito."[^g] ## Ang Tanong tungkol sa Cristo 
+Ang buong Kautusan ni Moises at ang mga isinulat ng mga propeta ay nakasalalay sa dalawang utos na ito." ## Ang Tanong tungkol sa Cristo 
 
 
 
@@ -1393,7 +1393,7 @@ Habang nagkakatipon pa ang mga Pariseo, tinanong sila ni Jesus,
 
 
 
-"Ano ba ang pagkakakilala ninyo sa Cristo? Kaninong angkan[^h] siya <i class="trans-change">nagmula_?" Sumagot sila, "Kay David." 
+"Ano ba ang pagkakakilala ninyo sa Cristo? Kaninong angkan siya <i class="trans-change">nagmula_?" Sumagot sila, "Kay David." 
 
 
 
@@ -1459,7 +1459,7 @@ Sinabi ni Jesus sa kanila, "Kung angkan <i class="trans-change">lang_ siya ni Da
 
 
 
-'Sinabi ng Panginoon sa aking Panginoon, Maupo ka sa aking kanan hanggang sa mapasuko ko sa iyo ang iyong mga kaaway.'[^i] 
+'Sinabi ng Panginoon sa aking Panginoon, Maupo ka sa aking kanan hanggang sa mapasuko ko sa iyo ang iyong mga kaaway.' 
 
 
 

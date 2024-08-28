@@ -13,7 +13,7 @@ next: ['Exod 27']
 "Moreover you shall make the tabernacle _with_ ten curtains _of_ fine woven linen and blue, purple, and scarlet _thread;_ with artistic designs of cherubim you shall weave them. 
 
 ###### 2 
-The length of each curtain _shall be_ twenty-eight cubits, and the width of each curtain four cubits. And every one of the curtains shall have [^a]the same measurements. 
+The length of each curtain _shall be_ twenty-eight cubits, and the width of each curtain four cubits. And every one of the curtains shall have the same measurements. 
 
 ###### 3 
 Five curtains shall be coupled to one another, and _the other_ five curtains _shall be_ coupled to one another. 
@@ -58,7 +58,7 @@ And a cubit on one side and a cubit on the other side, of what remains of the le
 Ten cubits _shall be_ the length of a board, and a cubit and a half _shall be_ the width of each board. 
 
 ###### 17 
-Two [^b]tenons _shall be_ in each board for binding one to another. Thus you shall make for all the boards of the tabernacle. 
+Two tenons _shall be_ in each board for binding one to another. Thus you shall make for all the boards of the tabernacle. 
 
 ###### 18 
 And you shall make the boards for the tabernacle, twenty boards for the south side. 
@@ -79,7 +79,7 @@ For the far side of the tabernacle, westward, you shall make six boards.
 And you shall also make two boards for the two back corners of the tabernacle. 
 
 ###### 24 
-They shall be [^c]coupled together at the bottom and they shall be coupled together at the top by one ring. Thus it shall be for both of them. They shall be for the two corners. 
+They shall be coupled together at the bottom and they shall be coupled together at the top by one ring. Thus it shall be for both of them. They shall be for the two corners. 
 
 ###### 25 
 So there shall be eight boards with their sockets of silver--sixteen sockets--two sockets under each of the boards. 

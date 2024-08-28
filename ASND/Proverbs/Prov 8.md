@@ -535,7 +535,7 @@ Sa pamamagitan ko nakakapamuno ang mga hari at ang mga pinunoʼy nakagagawa ng m
 
 
 
-Sa pamamagitan ko makakapamuno ang mga tagapamahala at mga opisyal – ang lahat na namumuno ng matuwid.[^a] 
+Sa pamamagitan ko makakapamuno ang mga tagapamahala at mga opisyal – ang lahat na namumuno ng matuwid. 
 
 
 

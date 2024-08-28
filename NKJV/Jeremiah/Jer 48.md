@@ -10,22 +10,22 @@ next: ['Jer 49']
 
 
 ###### 1 
-Against Moab. Thus says the Lord of hosts, the God of Israel: "Woe to Nebo! For it is plundered, Kirjathaim is shamed _and_ taken; [^a]The high stronghold is shamed and dismayed-- 
+Against Moab. Thus says the Lord of hosts, the God of Israel: "Woe to Nebo! For it is plundered, Kirjathaim is shamed _and_ taken; The high stronghold is shamed and dismayed-- 
 
 ###### 2 
-No more praise of Moab. In Heshbon they have devised evil against her: 'Come, and let us cut her off as a nation.' You also shall be cut down, O Madmen![^b] The sword shall pursue you; 
+No more praise of Moab. In Heshbon they have devised evil against her: 'Come, and let us cut her off as a nation.' You also shall be cut down, O Madmen! The sword shall pursue you; 
 
 ###### 3 
 A voice of crying _shall be_ from Horonaim: 'Plundering and great destruction!' 
 
 ###### 4 
-"Moab is destroyed; [^c]Her little ones have caused a cry to be heard; 
+"Moab is destroyed; Her little ones have caused a cry to be heard; 
 
 ###### 5 
 For in the Ascent of Luhith they ascend with continual weeping; For in the descent of Horonaim the enemies have heard a cry of destruction. 
 
 ###### 6 
-"Flee, save your lives! And be like [^d]the juniper in the wilderness. 
+"Flee, save your lives! And be like the juniper in the wilderness. 
 
 ###### 7 
 For because you have trusted in your works and your treasures, You also shall be taken. And Chemosh shall go forth into captivity, His priests and his princes together. 
@@ -40,10 +40,10 @@ And the plunderer shall come against every city; No one shall escape. The valley
 Cursed _is_ he who does the work of the Lord deceitfully, And cursed _is_ he who keeps back his sword from blood. 
 
 ###### 11 
-"Moab has been at ease from [^e]his youth; He has settled on his dregs, And has not been emptied from vessel to vessel, Nor has he gone into captivity. Therefore his taste remained in him, And his scent has not changed. 
+"Moab has been at ease from his youth; He has settled on his dregs, And has not been emptied from vessel to vessel, Nor has he gone into captivity. Therefore his taste remained in him, And his scent has not changed. 
 
 ###### 12 
-"Therefore behold, the days are coming," says the Lord, "That I shall send him [^f]wine-workers Who will tip him over And empty his vessels And break the bottles. 
+"Therefore behold, the days are coming," says the Lord, "That I shall send him wine-workers Who will tip him over And empty his vessels And break the bottles. 
 
 ###### 13 
 Moab shall be ashamed of Chemosh, As the house of Israel was ashamed of Bethel, their confidence. 
@@ -82,7 +82,7 @@ On Kirjathaim and Beth Gamul and Beth Meon,
 On Kerioth and Bozrah, On all the cities of the land of Moab, Far or near. 
 
 ###### 25 
-The [^g]horn of Moab is cut off, And his arm is broken," says the Lord. 
+The horn of Moab is cut off, And his arm is broken," says the Lord. 
 
 ###### 26 
 "Make him drunk, Because he exalted _himself_ against the Lord. Moab shall wallow in his vomit, And he shall also be in derision. 
@@ -97,22 +97,22 @@ You who dwell in Moab, Leave the cities and dwell in the rock, And be like the d
 "We have heard the pride of Moab (He _is_ exceedingly proud), Of his loftiness and arrogance and pride, And of the haughtiness of his heart." 
 
 ###### 30 
-"I know his wrath," says the Lord, "But it _is_ not right; His [^h]lies have made nothing right. 
+"I know his wrath," says the Lord, "But it _is_ not right; His lies have made nothing right. 
 
 ###### 31 
-Therefore I will wail for Moab, And I will cry out for all Moab; [^i]I will mourn for the men of Kir Heres. 
+Therefore I will wail for Moab, And I will cry out for all Moab; I will mourn for the men of Kir Heres. 
 
 ###### 32 
 O vine of Sibmah! I will weep for you with the weeping of Jazer. Your plants have gone over the sea, They reach to the sea of Jazer. The plunderer has fallen on your summer fruit and your vintage. 
 
 ###### 33 
-Joy and gladness are taken From the plentiful field And from the land of Moab; I have caused wine to [^j]fail from the winepresses; No one will tread with joyous shouting-- Not joyous shouting! 
+Joy and gladness are taken From the plentiful field And from the land of Moab; I have caused wine to fail from the winepresses; No one will tread with joyous shouting-- Not joyous shouting! 
 
 ###### 34 
-"From the cry of Heshbon to Elealeh and to Jahaz They have uttered their voice, From Zoar to Horonaim, _Like_ [^k]a three-year-old heifer; For the waters of Nimrim also shall be desolate. 
+"From the cry of Heshbon to Elealeh and to Jahaz They have uttered their voice, From Zoar to Horonaim, _Like_ a three-year-old heifer; For the waters of Nimrim also shall be desolate. 
 
 ###### 35 
-"Moreover," says the Lord, "I will cause to cease in Moab The one who offers _sacrifices_ in the [^l]high places And burns incense to his gods. 
+"Moreover," says the Lord, "I will cause to cease in Moab The one who offers _sacrifices_ in the high places And burns incense to his gods. 
 
 ###### 36 
 Therefore My heart shall wail like flutes for Moab, And like flutes My heart shall wail For the men of Kir Heres. Therefore the riches they have acquired have perished. 

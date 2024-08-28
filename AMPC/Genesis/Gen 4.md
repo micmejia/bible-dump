@@ -112,7 +112,7 @@ And Abel brought of the firstborn of his flock and of the fat portions. And the 
 
 
 
-But for [^a]Cain and his offering He had no respect _or_ regard. So Cain was exceedingly angry _and_ indignant, and he looked sad _and_ depressed. 
+But for Cain and his offering He had no respect _or_ regard. So Cain was exceedingly angry _and_ indignant, and he looked sad _and_ depressed. 
 
 
 
@@ -175,7 +175,7 @@ If you do well, will you not be accepted? And if you do not do well, sin crouche
 
 
 
-And Cain said to his brother, [^b]Let us go out to the field. And when they were in the field, Cain rose up against Abel his brother and killed him. 
+And Cain said to his brother, Let us go out to the field. And when they were in the field, Cain rose up against Abel his brother and killed him. 
 
 
 
@@ -280,7 +280,7 @@ When you till the ground, it shall no longer yield to you its strength; you shal
 
 
 
-Then Cain said to the Lord, My punishment is [^c]greater than I can bear. 
+Then Cain said to the Lord, My punishment is greater than I can bear. 
 
 
 
@@ -322,7 +322,7 @@ Behold, You have driven me out this day from the face of the land, and from Your
 
 
 
-And the Lord said to him, [^d]Therefore, if anyone kills Cain, vengeance shall be taken on him sevenfold. And the Lord set a [^e]mark _or_ sign upon Cain, lest anyone finding him should kill him. 
+And the Lord said to him, Therefore, if anyone kills Cain, vengeance shall be taken on him sevenfold. And the Lord set a mark _or_ sign upon Cain, lest anyone finding him should kill him. 
 
 
 
@@ -364,7 +364,7 @@ So Cain went away from the presence of the Lord and dwelt in the land of Nod [wa
 
 
 
-And Cain's wife [one of Adam's offspring] became pregnant and bore Enoch; and Cain built a [^f]city and named it after his son Enoch. 
+And Cain's wife [one of Adam's offspring] became pregnant and bore Enoch; and Cain built a city and named it after his son Enoch. 
 
 
 

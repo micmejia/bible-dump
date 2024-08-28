@@ -48,16 +48,16 @@ from Dan, Ahiezer the son of Ammishaddai;
 from Asher, Pagiel the son of Ocran; 
 
 ###### 14 
-from Gad, Eliasaph the son of Deuel;[^a] 
+from Gad, Eliasaph the son of Deuel; 
 
 ###### 15 
 from Naphtali, Ahira the son of Enan." 
 
 ###### 16 
-These _were_ chosen[^b] from the congregation, leaders of their fathers' tribes, heads of the divisions in Israel. 
+These _were_ chosen from the congregation, leaders of their fathers' tribes, heads of the divisions in Israel. 
 
 ###### 17 
-Then Moses and Aaron took these men who had been [^c]mentioned by name, 
+Then Moses and Aaron took these men who had been mentioned by name, 
 
 ###### 18 
 and they assembled all the congregation together on the first _day_ of the second month; and they recited their ancestry by families, by their fathers' houses, according to the number of names, from twenty years old and above, each one individually. 
@@ -165,7 +165,7 @@ And when the tabernacle is to go forward, the Levites shall take it down; and wh
 The children of Israel shall pitch their tents, everyone by his own camp, everyone by his own standard, according to their armies; 
 
 ###### 53 
-but the Levites shall camp around the tabernacle of the Testimony, that there may be no wrath on the congregation of the children of Israel; and the Levites shall keep[^d] charge of the tabernacle of the Testimony." 
+but the Levites shall camp around the tabernacle of the Testimony, that there may be no wrath on the congregation of the children of Israel; and the Levites shall keep charge of the tabernacle of the Testimony." 
 
 ###### 54 
 Thus the children of Israel did; according to all that the Lord commanded Moses, so they did.

@@ -28,7 +28,7 @@ next: ['Jer 40']
 
 
 
-In the ninth year of Zedekiah king of Judah, in the tenth month, [^a]Nebuchadrezzar king of Babylon and all his army came against Jerusalem and besieged it. 
+In the ninth year of Zedekiah king of Judah, in the tenth month, Nebuchadrezzar king of Babylon and all his army came against Jerusalem and besieged it. 
 
 
 
@@ -70,7 +70,7 @@ And in the eleventh year of Zedekiah, in the fourth month, on the ninth day of t
 
 
 
-[[^b]When Jerusalem was taken] all the princes of the king of Babylon came in and sat in the Middle Gate: Nergal-sharezer, Samgar-nebo, Sarsechim [the Rabsaris] a chief of the eunuchs, and Nergal-sharezer [II, the Rabmag] a chief of the magicians, with all the rest of the officials of the king of Babylon. 
+[When Jerusalem was taken] all the princes of the king of Babylon came in and sat in the Middle Gate: Nergal-sharezer, Samgar-nebo, Sarsechim [the Rabsaris] a chief of the eunuchs, and Nergal-sharezer [II, the Rabmag] a chief of the magicians, with all the rest of the officials of the king of Babylon. 
 
 
 

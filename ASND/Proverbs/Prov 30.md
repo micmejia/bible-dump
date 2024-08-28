@@ -502,7 +502,7 @@ May mga tao namang sakim at napakalupit, pati mahihirap ay kanilang ginigipit.
 
 
 
-Ang mga taong sakim ay parang linta. Ang laging sinasabi ay, "Bigyan mo ako!" May apat[^a] na bagay na hindi kontento: 
+Ang mga taong sakim ay parang linta. Ang laging sinasabi ay, "Bigyan mo ako!" May apat na bagay na hindi kontento: 
 
 
 
@@ -601,7 +601,7 @@ Ang anak na kumukutya at sumusuway sa kanyang magulang ay tutukain ng uwak sa mg
 
 
 
-May apat[^b] na bagay na para sa akin ay kahanga-hanga at hindi ko maunawaan: 
+May apat na bagay na para sa akin ay kahanga-hanga at hindi ko maunawaan: 
 
 
 
@@ -700,7 +700,7 @@ Ganito ang ginagawa ng babaeng nagtataksil sa kanyang asawa: Sumisiping siya sa 
 
 
 
-May apat[^c] na bagay na hindi matanggap <i class="trans-change">ng mga tao_ sa mundo: <sup class="versenum">22-23</sup>Ang aliping naging hari, ang mangmang na sagana sa pagkain, ang babaeng masungit na nakapag-asawa, at ang babaeng alipin na pumalit sa kanyang amo. 
+May apat na bagay na hindi matanggap <i class="trans-change">ng mga tao_ sa mundo: <sup class="versenum">22-23</sup>Ang aliping naging hari, ang mangmang na sagana sa pagkain, ang babaeng masungit na nakapag-asawa, at ang babaeng alipin na pumalit sa kanyang amo. 
 
 
 
@@ -799,7 +799,7 @@ Ang mga langgam, kahit mahina, nag-iipon sila ng pagkain kung tag-araw.
 
 
 
-Ang mga badyer,[^d] kahit mahihina sila, nakagagawa sila ng kanilang tirahan sa mabatong lugar. 
+Ang mga badyer, kahit mahihina sila, nakagagawa sila ng kanilang tirahan sa mabatong lugar. 
 
 
 
@@ -898,7 +898,7 @@ Ang mga butiki, kahit madaling hulihin ng kamay, matatagpuan kahit sa palasyo ng
 
 
 
-May apat[^e] na nilalang na akala mo kung sino kapag lumakad: 
+May apat na nilalang na akala mo kung sino kapag lumakad: 
 
 
 
@@ -1030,4 +1030,4 @@ Kung sa kahangalan moʼy nagmamayabang ka at nagbabalak ng masama, tigilan mo na
 
 
 
-Hindi ba kapag hinalo nang hinalo ang malapot na gatas ay magiging mantikilya?[^f] Hindi ba kapag sinuntok mo ang ilong ng isang tao ay magdurugo ito? Kaya kapag ginalit mo ang tao tiyak na magkakaroon ng gulo.
+Hindi ba kapag hinalo nang hinalo ang malapot na gatas ay magiging mantikilya? Hindi ba kapag sinuntok mo ang ilong ng isang tao ay magdurugo ito? Kaya kapag ginalit mo ang tao tiyak na magkakaroon ng gulo.

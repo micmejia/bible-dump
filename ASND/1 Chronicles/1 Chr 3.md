@@ -40,7 +40,7 @@ next: ['1 Chr 4']
 
 
 
-Ito ang mga anak na lalaki ni David na isinilang sa Hebron: Si Amnon ang panganay, na anak niya kay Ahinoam na taga-Jezreel. Si Daniel[^a] ang pangalawa, na anak niya kay Abigail na taga-Carmel. 
+Ito ang mga anak na lalaki ni David na isinilang sa Hebron: Si Amnon ang panganay, na anak niya kay Ahinoam na taga-Jezreel. Si Daniel ang pangalawa, na anak niya kay Abigail na taga-Carmel. 
 
 
 
@@ -172,7 +172,7 @@ Silang anim ay isinilang sa Hebron, kung saan naghari si David sa loob ng pitong
 
 
 
-At ito ang mga anak niyang lalaki na isinilang doon: si Shimea, Shobab, Natan at Solomon. Silang apat ang anak niya sa asawa niyang si Batsheba[^b] na anak ni Amiel. 
+At ito ang mga anak niyang lalaki na isinilang doon: si Shimea, Shobab, Natan at Solomon. Silang apat ang anak niya sa asawa niyang si Batsheba na anak ni Amiel. 
 
 
 
@@ -205,7 +205,7 @@ At ito ang mga anak niyang lalaki na isinilang doon: si Shimea, Shobab, Natan at
 
 
 
-May siyam pa siyang anak na sina Ibhar, Elishua[^c] Elifelet, 
+May siyam pa siyang anak na sina Ibhar, Elishua Elifelet, 
 
 
 
@@ -370,7 +370,7 @@ Ito ang angkan ni Solomon <i class="trans-change">na naging hari_: Rehoboam, Abi
 
 
 
-Jehoram,[^d] Ahazia, Joash, 
+Jehoram, Ahazia, Joash, 
 
 
 
@@ -403,7 +403,7 @@ Jehoram,[^d] Ahazia, Joash,
 
 
 
-Amazia, Azaria,[^e] Jotam, 
+Amazia, Azaria, Jotam, 
 
 
 
@@ -535,7 +535,7 @@ Ito ang mga anak ni Josia: Ang panganay ay si Johanan, ang ikalawa ay si Jehoyak
 
 
 
-Ang pumalit kay Jehoyakim bilang hari ay si Jehoyakin[^f] na kanyang anak. At ang pumalit kay Jehoyakin ay si Zedekia <i class="trans-change">na kanyang tiyuhin_.[^g] ## Ang Angkan ni Jehoyakin 
+Ang pumalit kay Jehoyakim bilang hari ay si Jehoyakin na kanyang anak. At ang pumalit kay Jehoyakin ay si Zedekia <i class="trans-change">na kanyang tiyuhin_. ## Ang Angkan ni Jehoyakin 
 
 
 

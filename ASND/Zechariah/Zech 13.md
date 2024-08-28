@@ -172,7 +172,7 @@ At kung may magtatanong tungkol sa mga sugat nila sa katawan, sasabihin nila, 'N
 
 
 
-Sinabi ng Panginoong Makapangyarihan, "Ihanda ang espada! Patayin ang pastol[^a] ko na aking lingkod. Patayin siya at mangangalat ang mga tupa, ang aba <i class="trans-change">kong mga mamamayan_. At parurusahan ko <i class="trans-change">sila_. 
+Sinabi ng Panginoong Makapangyarihan, "Ihanda ang espada! Patayin ang pastol ko na aking lingkod. Patayin siya at mangangalat ang mga tupa, ang aba <i class="trans-change">kong mga mamamayan_. At parurusahan ko <i class="trans-change">sila_. 
 
 
 

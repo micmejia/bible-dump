@@ -280,4 +280,4 @@ I will surely gather all of you, O Jacob; I will surely collect the remnant of I
 
 
 
-The [^a]Breaker [the Messiah] will go up before them. They will break through, pass in through the gate and go out through it, and their King will pass on before them, the Lord at their head.
+The Breaker [the Messiah] will go up before them. They will break through, pass in through the gate and go out through it, and their King will pass on before them, the Lord at their head.

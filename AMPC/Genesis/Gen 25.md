@@ -175,7 +175,7 @@ The days of Abraham's life were 175 years.
 
 
 
-Then Abraham's spirit was released, and he died at a good (ample, full) old age, an old man, satisfied _and_ satiated, and [^a]was gathered to his people. 
+Then Abraham's spirit was released, and he died at a good (ample, full) old age, an old man, satisfied _and_ satiated, and was gathered to his people. 
 
 
 
@@ -196,7 +196,7 @@ Then Abraham's spirit was released, and he died at a good (ample, full) old age,
 
 
 
-And his sons [^b]Isaac and Ishmael buried him in the cave of Machpelah, in the field of Ephron the son of Zohar the Hittite, which is east of Mamre, 
+And his sons Isaac and Ishmael buried him in the cave of Machpelah, in the field of Ephron the son of Zohar the Hittite, which is east of Mamre, 
 
 
 

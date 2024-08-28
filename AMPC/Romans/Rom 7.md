@@ -112,7 +112,7 @@ Likewise, my brethren, you have undergone death as to the Law through the [cruci
 
 
 
-When we were living in the flesh (mere physical lives), the sinful passions that were awakened _and_ aroused up by [what] the Law [makes sin] were constantly operating in our natural powers (in our bodily organs, [^a]in the sensitive appetites and wills of the flesh), so that we bore fruit for death. 
+When we were living in the flesh (mere physical lives), the sinful passions that were awakened _and_ aroused up by [what] the Law [makes sin] were constantly operating in our natural powers (in our bodily organs, in the sensitive appetites and wills of the flesh), so that we bore fruit for death. 
 
 
 
@@ -322,7 +322,7 @@ We know that the Law is spiritual; but I am a creature of the flesh [carnal, uns
 
 
 
-For I do not understand my own actions [I am baffled, bewildered]. I do not practice _or_ accomplish what I wish, but I do the very thing that I loathe [[^b]which my moral instinct condemns]. 
+For I do not understand my own actions [I am baffled, bewildered]. I do not practice _or_ accomplish what I wish, but I do the very thing that I loathe [which my moral instinct condemns]. 
 
 
 
@@ -427,7 +427,7 @@ For I fail to practice the good deeds I desire to do, but the evil deeds that I 
 
 
 
-Now if I do what I do not desire to do, it is no longer I doing it [it is not myself that acts], but the sin [principle] which dwells within me [[^c]fixed and operating in my soul]. 
+Now if I do what I do not desire to do, it is no longer I doing it [it is not myself that acts], but the sin [principle] which dwells within me [fixed and operating in my soul]. 
 
 
 
@@ -490,7 +490,7 @@ For I endorse _and_ delight in the Law of God in my inmost self [with my new nat
 
 
 
-But I discern in my bodily members [[^d]in the sensitive appetites and wills of the flesh] a different law (rule of action) at war against the law of my mind (my reason) and making me a prisoner to the law of sin that dwells in my bodily organs [[^e]in the sensitive appetites and wills of the flesh]. 
+But I discern in my bodily members [in the sensitive appetites and wills of the flesh] a different law (rule of action) at war against the law of my mind (my reason) and making me a prisoner to the law of sin that dwells in my bodily organs [in the sensitive appetites and wills of the flesh]. 
 
 
 

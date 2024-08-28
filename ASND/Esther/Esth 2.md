@@ -205,7 +205,7 @@ Nang panahong iyon, may isang Judio na nakatira sa lungsod ng Susa. Ang pangalan
 
 
 
-Isa siya sa mga bihag ni Haring Nebucadnezar na dinala <i class="trans-change">sa Babilonia_ mula sa Jerusalem, kasama ni Haring Jehoyakin[^a] ng Juda. 
+Isa siya sa mga bihag ni Haring Nebucadnezar na dinala <i class="trans-change">sa Babilonia_ mula sa Jerusalem, kasama ni Haring Jehoyakin ng Juda. 
 
 
 
@@ -469,7 +469,7 @@ At bago siya pumunta sa hari, bibigyan siya ng anumang damit at alahas na gusto 
 
 
 
-Pupunta siya sa hari pagsapit ng gabi at kinabukasan, dadalhin siya sa tirahan ng mga asawa ng hari na pinamamahalaan ni Shaasgaz na isa sa mga pinunong mataas ang katungkulan. Siya ang namamahala sa mga asawa ng hari. Walang sinuman sa kanila ang makakabalik sa hari maliban lang kung magustuhan siya at ipatawag ng hari. <sup class="versenum">15-16</sup>Nang ikasampung buwan, buwan ng Tibet, at ikapitong taon ng paghahari ni Ahasuerus, dumating ang araw na si Ester[^b] na ang haharap sa hari sa palasyo. Sinunod ni Ester ang payo ni Hegai, ang pinunong nangangalaga sa kanila sa tahanan ng mga babae. Isinuot niya ang damit na sinabi ni Hegai na isuot niya. Ganoon na lang ang paghanga at pagpuri ng mga nakakita sa kanya, at dinala siya sa palasyo ng hari. 
+Pupunta siya sa hari pagsapit ng gabi at kinabukasan, dadalhin siya sa tirahan ng mga asawa ng hari na pinamamahalaan ni Shaasgaz na isa sa mga pinunong mataas ang katungkulan. Siya ang namamahala sa mga asawa ng hari. Walang sinuman sa kanila ang makakabalik sa hari maliban lang kung magustuhan siya at ipatawag ng hari. <sup class="versenum">15-16</sup>Nang ikasampung buwan, buwan ng Tibet, at ikapitong taon ng paghahari ni Ahasuerus, dumating ang araw na si Ester na ang haharap sa hari sa palasyo. Sinunod ni Ester ang payo ni Hegai, ang pinunong nangangalaga sa kanila sa tahanan ng mga babae. Isinuot niya ang damit na sinabi ni Hegai na isuot niya. Ganoon na lang ang paghanga at pagpuri ng mga nakakita sa kanya, at dinala siya sa palasyo ng hari. 
 
 
 
@@ -634,7 +634,7 @@ Hindi pa rin sinasabi ni Ester na isa siyang Judio, tulad ng bilin ni Mordecai. 
 
 
 
-Nang panahong si Mordecai ay <i class="trans-change">isa nang opisyal na_ nakapwesto sa pintuan ng palasyo, may dalawang pinuno ng hari na ang mga pangalan ay Bigtana[^c] at Teres. Sila ang mga guwardya ng pintuan ng kwarto ng hari. Galit sila kay Haring Ahasuerus, at nagplano silang patayin ito. 
+Nang panahong si Mordecai ay <i class="trans-change">isa nang opisyal na_ nakapwesto sa pintuan ng palasyo, may dalawang pinuno ng hari na ang mga pangalan ay Bigtana at Teres. Sila ang mga guwardya ng pintuan ng kwarto ng hari. Galit sila kay Haring Ahasuerus, at nagplano silang patayin ito. 
 
 
 

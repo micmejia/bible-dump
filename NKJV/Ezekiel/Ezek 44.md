@@ -19,10 +19,10 @@ And the Lord said to me, "This gate shall be shut; it shall not be opened, and n
 _As for_ the prince, _because_ he _is_ the prince, he may sit in it to eat bread before the Lord; he shall enter by way of the vestibule of the gateway, and go out the same way." ## Those Admitted to the Temple 
 
 ###### 4 
-Also He brought me by way of the north gate to the front of the [^a]temple; so I looked, and behold, the glory of the Lord filled the house of the Lord; and I fell on my face. 
+Also He brought me by way of the north gate to the front of the temple; so I looked, and behold, the glory of the Lord filled the house of the Lord; and I fell on my face. 
 
 ###### 5 
-And the Lord said to me, "Son of man, [^b]mark well, see with your eyes and hear with your ears, all that I say to you concerning all the ordinances of the house of the Lord and all its laws. Mark well who may enter the house and all who go out from the sanctuary. 
+And the Lord said to me, "Son of man, mark well, see with your eyes and hear with your ears, all that I say to you concerning all the ordinances of the house of the Lord and all its laws. Mark well who may enter the house and all who go out from the sanctuary. 
 
 ###### 6 
 "Now say to the rebellious, to the house of Israel, 'Thus says the Lord God: "O house of Israel, let Us have no more of all your abominations. 
@@ -43,7 +43,7 @@ Thus says the Lord God: "No foreigner, uncircumcised in heart or uncircumcised i
 Yet they shall be ministers in My sanctuary, _as_ gatekeepers of the house and ministers of the house; they shall slay the burnt offering and the sacrifice for the people, and they shall stand before them to minister to them. 
 
 ###### 12 
-Because they ministered to them before their idols and caused[^c] the house of Israel to fall into iniquity, therefore I have raised My hand in an oath against them," says the Lord God, "that they shall bear their iniquity. 
+Because they ministered to them before their idols and caused the house of Israel to fall into iniquity, therefore I have raised My hand in an oath against them," says the Lord God, "that they shall bear their iniquity. 
 
 ###### 13 
 And they shall not come near Me to minister to Me as priest, nor come near any of My holy things, nor into the Most Holy _Place;_ but they shall bear their shame and their abominations which they have committed. 
@@ -97,7 +97,7 @@ And on the day that he goes to the sanctuary to minister in the sanctuary, he mu
 They shall eat the grain offering, the sin offering, and the trespass offering; every dedicated thing in Israel shall be theirs. 
 
 ###### 30 
-The best[^d] of all firstfruits of any kind, and every sacrifice of any kind from all your sacrifices, shall be the priest's; also you shall give to the priest the first of your ground meal, to cause a blessing to rest on your house. 
+The best of all firstfruits of any kind, and every sacrifice of any kind from all your sacrifices, shall be the priest's; also you shall give to the priest the first of your ground meal, to cause a blessing to rest on your house. 
 
 ###### 31 
 The priests shall not eat anything, bird or beast, that died naturally or was torn _by wild beasts._

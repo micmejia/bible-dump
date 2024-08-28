@@ -568,7 +568,7 @@ Pero kung dinungisan mo ang iyong sarili sa pamamagitan ng pakikipagtalik sa iba
 
 
 
-sumusumpa ako na magiging halimbawa sa mga tao ang sumpa ng Dios sa iyo. At sanaʼy hindi ka magkaanak.[^a] 
+sumusumpa ako na magiging halimbawa sa mga tao ang sumpa ng Dios sa iyo. At sanaʼy hindi ka magkaanak. 
 
 
 

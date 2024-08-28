@@ -13,16 +13,16 @@ next: ['1 Cor 10']
 Am I not an apostle? Am I not free? Have I not seen Jesus Christ our Lord? Are you not my work in the Lord? 
 
 ###### 2 
-If I am not an apostle to others, yet doubtless I am to you. For you are the [^a]seal of my apostleship in the Lord. 
+If I am not an apostle to others, yet doubtless I am to you. For you are the seal of my apostleship in the Lord. 
 
 ###### 3 
 My defense to those who examine me is this: 
 
 ###### 4 
-Do we have no [^b]right to eat and drink? 
+Do we have no right to eat and drink? 
 
 ###### 5 
-Do we have no right to take along [^c]a believing wife, as _do_ also the other apostles, the brothers of the Lord, and Cephas? 
+Do we have no right to take along a believing wife, as _do_ also the other apostles, the brothers of the Lord, and Cephas? 
 
 ###### 6 
 Or _is it_ only Barnabas and I _who_ have no right to refrain from working? 
@@ -61,28 +61,28 @@ For if I preach the gospel, I have nothing to boast of, for necessity is laid up
 For if I do this willingly, I have a reward; but if against my will, I have been entrusted with a stewardship. 
 
 ###### 18 
-What is my reward then? That when I preach the gospel, I may present the gospel [^d]of Christ without charge, that I may not abuse my authority in the gospel. ## Serving All Men 
+What is my reward then? That when I preach the gospel, I may present the gospel of Christ without charge, that I may not abuse my authority in the gospel. ## Serving All Men 
 
 ###### 19 
 For though I am free from all _men,_ I have made myself a servant to all, that I might win the more; 
 
 ###### 20 
-and to the Jews I became as a Jew, that I might win Jews; to those _who are_ under the law, as under the [^e]law, that I might win those _who are_ under the law; 
+and to the Jews I became as a Jew, that I might win Jews; to those _who are_ under the law, as under the law, that I might win those _who are_ under the law; 
 
 ###### 21 
-to those _who are_ without law, as without law (not being without [^f]law toward God, but under [^g]law toward Christ), that I might win those _who are_ without law; 
+to those _who are_ without law, as without law (not being without law toward God, but under law toward Christ), that I might win those _who are_ without law; 
 
 ###### 22 
-to the weak I became [^h]as weak, that I might win the weak. I have become all things to all _men,_ that I might by all means save some. 
+to the weak I became as weak, that I might win the weak. I have become all things to all _men,_ that I might by all means save some. 
 
 ###### 23 
 Now this I do for the gospel's sake, that I may be partaker of it with _you._ ## Striving for a Crown 
 
 ###### 24 
-Do you not know that those who run in a race all run, but one receives the prize? Run in such a way that you may [^i]obtain _it._ 
+Do you not know that those who run in a race all run, but one receives the prize? Run in such a way that you may obtain _it._ 
 
 ###### 25 
-And everyone who competes _for the prize_ [^j]is temperate in all things. Now they _do it_ to obtain a perishable crown, but we _for_ an imperishable _crown._ 
+And everyone who competes _for the prize_ is temperate in all things. Now they _do it_ to obtain a perishable crown, but we _for_ an imperishable _crown._ 
 
 ###### 26 
 Therefore I run thus: not with uncertainty. Thus I fight: not as _one who_ beats the air. 

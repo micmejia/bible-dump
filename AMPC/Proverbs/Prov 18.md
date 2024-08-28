@@ -196,7 +196,7 @@ The words of a whisperer _or_ talebearer are as dainty morsels; they go down int
 
 
 
-He who is loose _and_ slack in his work is brother to him who is a destroyer _and_ [^a]_he who does not use his endeavors to heal himself is brother to him who commits suicide_. 
+He who is loose _and_ slack in his work is brother to him who is a destroyer _and_ _he who does not use his endeavors to heal himself is brother to him who commits suicide_. 
 
 
 

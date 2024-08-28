@@ -112,7 +112,7 @@ Then came the word of the Lord to Isaiah, saying,
 
 
 
-Go, and say to Hezekiah, Thus says the Lord, the God of David your father: I have heard your prayer, I have seen your tears; behold, I will [^a]add to your life fifteen years. 
+Go, and say to Hezekiah, Thus says the Lord, the God of David your father: I have heard your prayer, I have seen your tears; behold, I will add to your life fifteen years. 
 
 
 

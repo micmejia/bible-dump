@@ -73,7 +73,7 @@ Sinabi sa akin ng Panginoon,
 
 
 
-"Anak ng tao, humarap ka sa Bundok ng Seir[^a] at sabihin mo ito laban sa mga mamamayan niya. 
+"Anak ng tao, humarap ka sa Bundok ng Seir at sabihin mo ito laban sa mga mamamayan niya. 
 
 
 

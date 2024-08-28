@@ -257,7 +257,7 @@ Once he was unprofitable to you, but now he is indeed profitable to you as well 
 
 
 
-I am sending him back to you in [^a]his own person, [and it is like sending] my very heart. 
+I am sending him back to you in his own person, [and it is like sending] my very heart. 
 
 
 
@@ -362,7 +362,7 @@ Not as a slave any longer but as [something] more than a slave, as a brother [Ch
 
 
 
-If then you consider me a partner _and_ a [^b]comrade in fellowship, welcome _and_ receive him as you would [welcome and receive] me. 
+If then you consider me a partner _and_ a comrade in fellowship, welcome _and_ receive him as you would [welcome and receive] me. 
 
 
 

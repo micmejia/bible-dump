@@ -70,7 +70,7 @@ He who walks in uprightness reverently _and_ worshipfully fears the Lord, but he
 
 
 
-In the [^a]fool's own mouth is a rod [to shame] his pride, but the wise men's lips preserve them. 
+In the fool's own mouth is a rod [to shame] his pride, but the wise men's lips preserve them. 
 
 
 

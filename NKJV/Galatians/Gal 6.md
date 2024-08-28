@@ -9,7 +9,7 @@ up: ['Galatians']
 
 
 ###### 1 
-Brethren, if a man is [^a]overtaken in any trespass, you who _are_ spiritual restore such a one in a spirit of gentleness, considering yourself lest you also be tempted. 
+Brethren, if a man is overtaken in any trespass, you who _are_ spiritual restore such a one in a spirit of gentleness, considering yourself lest you also be tempted. 
 
 ###### 2 
 Bear one another's burdens, and so fulfill the law of Christ. 
@@ -48,7 +48,7 @@ As many as desire to make a good showing in the flesh, these _would_ compel you 
 For not even those who are circumcised keep the law, but they desire to have you circumcised that they may boast in your flesh. 
 
 ###### 14 
-But God forbid that I should boast except in the cross of our Lord Jesus Christ, by [^b]whom the world has been crucified to me, and I to the world. 
+But God forbid that I should boast except in the cross of our Lord Jesus Christ, by whom the world has been crucified to me, and I to the world. 
 
 ###### 15 
 For in Christ Jesus neither circumcision nor uncircumcision avails anything, but a new creation. ## Blessing and a Plea 

@@ -112,7 +112,7 @@ Behold, I have allotted to you as an inheritance for your tribes those nations t
 
 
 
-The Lord your God will thrust them out from before you and drive them out of your sight, and you shall possess their land, as the Lord your God [^a]promised you. 
+The Lord your God will thrust them out from before you and drive them out of your sight, and you shall possess their land, as the Lord your God promised you. 
 
 
 
@@ -238,7 +238,7 @@ One man of you shall put to flight a thousand, for it is the Lord your God Who f
 
 
 
-Be very watchful of yourselves, therefore, to [^b]love the Lord your God. 
+Be very watchful of yourselves, therefore, to love the Lord your God. 
 
 
 

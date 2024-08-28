@@ -616,7 +616,7 @@ You shall sell me food to eat and sell me water to drink; only let me walk throu
 
 
 
-As the sons of Esau, who dwell in Seir, and the Moabites, who dwell in Ar, [^a]did for me, until I go over the Jordan into the land which the Lord our God gives us. 
+As the sons of Esau, who dwell in Seir, and the Moabites, who dwell in Ar, did for me, until I go over the Jordan into the land which the Lord our God gives us. 
 
 
 

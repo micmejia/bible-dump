@@ -469,7 +469,7 @@ Bakit mo siya pinararatangan na hindi niya sinasagot ang daing ng tao?
 
 
 
-Ang totoo, palaging[^a] nagsasalita ang Dios, kaya lang hindi nakikinig ang mga tao. 
+Ang totoo, palaging nagsasalita ang Dios, kaya lang hindi nakikinig ang mga tao. 
 
 
 
@@ -799,7 +799,7 @@ Malapit na siyang mamatay at mapunta sa lugar ng mga patay.
 
 
 
-kahahabagan siya ng Dios.[^b] At sasabihin ng Dios, 'Iligtas nʼyo siya sa kamatayan. Nakatagpo ako ng pantubos sa kanya.' 
+kahahabagan siya ng Dios. At sasabihin ng Dios, 'Iligtas nʼyo siya sa kamatayan. Nakatagpo ako ng pantubos sa kanya.' 
 
 
 

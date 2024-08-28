@@ -10,16 +10,16 @@ next: ['Ps 5']
 
 
 ###### 1 
-Hear me when I call, O God of my righteousness! You have relieved me in _my_ distress; [^b]Have mercy on me, and hear my prayer. 
+Hear me when I call, O God of my righteousness! You have relieved me in _my_ distress; Have mercy on me, and hear my prayer. 
 
 ###### 2 
 How long, O you sons of men, _Will you turn_ my glory to shame? _How long_ will you love worthlessness _And_ seek falsehood? <i class="selah">Selah_ 
 
 ###### 3 
-But know that the Lord has [^c]set apart for Himself him who is godly; The Lord will hear when I call to Him. 
+But know that the Lord has set apart for Himself him who is godly; The Lord will hear when I call to Him. 
 
 ###### 4 
-Be[^d] angry, and do not sin. Meditate within your heart on your bed, and be still. <i class="selah">Selah_ 
+Be angry, and do not sin. Meditate within your heart on your bed, and be still. <i class="selah">Selah_ 
 
 ###### 5 
 Offer the sacrifices of righteousness, And put your trust in the Lord. 

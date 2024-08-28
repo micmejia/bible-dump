@@ -304,7 +304,7 @@ Hindi matuwid ang gawain ng taong may kasalanan, ngunit matuwid ang gawain ng ta
 
 
 
-Mas mabuti pang tumirang mag-isa sa bubungan ng bahay[^a] kaysa sa loob ng bahay na ang kasama ay asawang palaaway. 
+Mas mabuti pang tumirang mag-isa sa bubungan ng bahay kaysa sa loob ng bahay na ang kasama ay asawang palaaway. 
 
 
 

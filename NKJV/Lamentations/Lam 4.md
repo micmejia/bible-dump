@@ -10,10 +10,10 @@ next: ['Lam 5']
 
 
 ###### 1 
-How the gold has become dim! _How_ changed the fine gold! The stones of the sanctuary are [^a]scattered At the head of every street. 
+How the gold has become dim! _How_ changed the fine gold! The stones of the sanctuary are scattered At the head of every street. 
 
 ###### 2 
-The precious sons of Zion, [^b]Valuable as fine gold, How they are [^c]regarded as clay pots, The work of the hands of the potter! 
+The precious sons of Zion, Valuable as fine gold, How they are regarded as clay pots, The work of the hands of the potter! 
 
 ###### 3 
 Even the jackals present their breasts To nurse their young; _But_ the daughter of my people _is_ cruel, Like ostriches in the wilderness. 
@@ -28,7 +28,7 @@ Those who ate delicacies Are desolate in the streets; Those who were brought up 
 The punishment of the iniquity of the daughter of my people Is greater than the punishment of the sin of Sodom, Which was overthrown in a moment, With no hand to help her! 
 
 ###### 7 
-Her [^d]Nazirites were [^e]brighter than snow And whiter than milk; They were more ruddy in body than rubies, _Like_ sapphire in their [^f]appearance. 
+Her Nazirites were brighter than snow And whiter than milk; They were more ruddy in body than rubies, _Like_ sapphire in their appearance. 
 
 ###### 8 
 _Now_ their appearance is blacker than soot; They go unrecognized in the streets; Their skin clings to their bones, It has become as dry as wood. 
@@ -37,7 +37,7 @@ _Now_ their appearance is blacker than soot; They go unrecognized in the streets
 _Those_ slain by the sword are better off Than _those_ who die of hunger; For these pine away, Stricken _for lack_ of the fruits of the field. 
 
 ###### 10 
-The hands of the compassionate women Have [^g]cooked their own children; They became food for them In the destruction of the daughter of my people. 
+The hands of the compassionate women Have cooked their own children; They became food for them In the destruction of the daughter of my people. 
 
 ###### 11 
 The Lord has fulfilled His fury, He has poured out His fierce anger. He kindled a fire in Zion, And it has devoured its foundations. 
@@ -55,13 +55,13 @@ They wandered blind in the streets; They have defiled themselves with blood, So 
 They cried out to them, "Go away, unclean! Go away, go away, Do not touch us!" When they fled and wandered, _Those_ among the nations said, "They shall no longer dwell _here._" 
 
 ###### 16 
-The [^h]face of the Lord scattered them; He no longer regards them. _The people_ do not respect the priests Nor show favor to the elders. 
+The face of the Lord scattered them; He no longer regards them. _The people_ do not respect the priests Nor show favor to the elders. 
 
 ###### 17 
 Still our eyes failed us, _Watching_ vainly for our help; In our watching we watched For a nation _that_ could not save _us._ 
 
 ###### 18 
-They [^i]tracked our steps So that we could not walk in our streets. Our end was near; Our days were over, For our end had come. 
+They tracked our steps So that we could not walk in our streets. Our end was near; Our days were over, For our end had come. 
 
 ###### 19 
 Our pursuers were swifter Than the eagles of the heavens. They pursued us on the mountains And lay in wait for us in the wilderness. 
@@ -73,4 +73,4 @@ The breath of our nostrils, the anointed of the Lord, Was caught in their pits, 
 Rejoice and be glad, O daughter of Edom, _You_ who dwell in the land of Uz! The cup shall also pass over to you And you shall become drunk and make yourself naked. 
 
 ###### 22 
-_The punishment of_ your iniquity [^j]is accomplished, O daughter of Zion; He will no longer send you into captivity. He will punish your iniquity, O daughter of Edom; He will uncover your sins!
+_The punishment of_ your iniquity is accomplished, O daughter of Zion; He will no longer send you into captivity. He will punish your iniquity, O daughter of Edom; He will uncover your sins!

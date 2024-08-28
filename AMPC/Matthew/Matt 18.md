@@ -133,7 +133,7 @@ And whoever receives _and_ accepts _and_ welcomes one little child like this for
 
 
 
-But whoever causes one of these little ones who believe in _and_ [^a]acknowledge _and_ cleave to Me to stumble and sin [that is, who entices him or hinders him in right conduct or thought], it would be better ([^b]more expedient and profitable or advantageous) for him to have a great millstone fastened around his neck and to be sunk in the depth of the sea. 
+But whoever causes one of these little ones who believe in _and_ acknowledge _and_ cleave to Me to stumble and sin [that is, who entices him or hinders him in right conduct or thought], it would be better (more expedient and profitable or advantageous) for him to have a great millstone fastened around his neck and to be sunk in the depth of the sea. 
 
 
 
@@ -238,7 +238,7 @@ Beware that you do not despise _or_ feel scornful toward _or_ think little of on
 
 
 
-[^c]_For the Son of man came to save [_[^d]_from the penalty of eternal death] that which was lost._ 
+_For the Son of man came to save [__from the penalty of eternal death] that which was lost._ 
 
 
 
@@ -385,7 +385,7 @@ If he pays no attention to them [refusing to listen and obey], tell it to the ch
 
 
 
-Truly I tell you, whatever you forbid _and_ declare to be improper and unlawful on earth must be [^e]what is already forbidden in heaven, and whatever you permit _and_ declare proper and lawful on earth must be [^f]what is already permitted in heaven. 
+Truly I tell you, whatever you forbid _and_ declare to be improper and unlawful on earth must be what is already forbidden in heaven, and whatever you permit _and_ declare proper and lawful on earth must be what is already permitted in heaven. 
 
 
 
@@ -406,7 +406,7 @@ Truly I tell you, whatever you forbid _and_ declare to be improper and unlawful 
 
 
 
-Again I tell you, if two of you on earth agree (harmonize together, make a symphony together) about whatever [anything and [^g]everything] they may ask, it will come to pass _and_ be done for them by My Father in heaven. 
+Again I tell you, if two of you on earth agree (harmonize together, make a symphony together) about whatever [anything and everything] they may ask, it will come to pass _and_ be done for them by My Father in heaven. 
 
 
 
@@ -448,7 +448,7 @@ For wherever two or three are gathered (drawn together as My followers) in (into
 
 
 
-Then Peter came up to Him and said, Lord, how many times may my brother sin against me and I forgive him _and_ [^h]let it go? [As many as] up to seven times? 
+Then Peter came up to Him and said, Lord, how many times may my brother sin against me and I forgive him _and_ let it go? [As many as] up to seven times? 
 
 
 

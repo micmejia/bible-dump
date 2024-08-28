@@ -10,10 +10,10 @@ next: ['Zech 13']
 
 
 ###### 1 
-The [^a]burden of the word of the Lord against Israel. Thus says the Lord, who stretches out the heavens, lays the foundation of the earth, and forms the spirit of man within him: 
+The burden of the word of the Lord against Israel. Thus says the Lord, who stretches out the heavens, lays the foundation of the earth, and forms the spirit of man within him: 
 
 ###### 2 
-"Behold, I will make Jerusalem a cup of [^b]drunkenness to all the surrounding peoples, when they lay siege against Judah and Jerusalem. 
+"Behold, I will make Jerusalem a cup of drunkenness to all the surrounding peoples, when they lay siege against Judah and Jerusalem. 
 
 ###### 3 
 And it shall happen in that day that I will make Jerusalem a very heavy stone for all peoples; all who would heave it away will surely be cut in pieces, though all nations of the earth are gathered against it. 
@@ -40,7 +40,7 @@ It shall be in that day _that_ I will seek to destroy all the nations that come 
 "And I will pour on the house of David and on the inhabitants of Jerusalem the Spirit of grace and supplication; then they will look on Me whom they pierced. Yes, they will mourn for Him as one mourns for _his_ only _son,_ and grieve for Him as one grieves for a firstborn. 
 
 ###### 11 
-In that day there shall be a great mourning in Jerusalem, like the mourning at Hadad Rimmon in the plain of [^c]Megiddo. 
+In that day there shall be a great mourning in Jerusalem, like the mourning at Hadad Rimmon in the plain of Megiddo. 
 
 ###### 12 
 And the land shall mourn, every family by itself: the family of the house of David by itself, and their wives by themselves; the family of the house of Nathan by itself, and their wives by themselves; 

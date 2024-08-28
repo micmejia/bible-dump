@@ -106,7 +106,7 @@ At noong ikaapat na buwan ng ika-11 taon ng paghahari ni Zedekia, nawasak ng mga
 
 
 
-Nang mapasok na nila ang Jerusalem, ang lahat ng pinuno ng hari ng Babilonia ay umupo sa Gitnang Pintuan[^a] ng lungsod. Naroon sina Nergal Sharezer na taga-Samgar, Nebo, Sarsekim na isang pinuno, at isa pang Nergal Sharezer na isang opisyal, at ang iba pang mga pinuno ng hari ng Babilonia. 
+Nang mapasok na nila ang Jerusalem, ang lahat ng pinuno ng hari ng Babilonia ay umupo sa Gitnang Pintuan ng lungsod. Naroon sina Nergal Sharezer na taga-Samgar, Nebo, Sarsekim na isang pinuno, at isa pang Nergal Sharezer na isang opisyal, at ang iba pang mga pinuno ng hari ng Babilonia. 
 
 
 
@@ -139,7 +139,7 @@ Nang mapasok na nila ang Jerusalem, ang lahat ng pinuno ng hari ng Babilonia ay 
 
 
 
-Nang makita sila ni Haring Zedekia at ng mga sundalo nito, tumakas sila pagsapit ng gabi. Doon sila dumaan sa halamanan ng hari, sa pintuang nasa pagitan ng dalawang pader, at pumunta sila sa Lambak ng Jordan.[^b] 
+Nang makita sila ni Haring Zedekia at ng mga sundalo nito, tumakas sila pagsapit ng gabi. Doon sila dumaan sa halamanan ng hari, sa pintuang nasa pagitan ng dalawang pader, at pumunta sila sa Lambak ng Jordan. 
 
 
 

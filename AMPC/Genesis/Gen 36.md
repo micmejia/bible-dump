@@ -448,7 +448,7 @@ These are the sons of Seir the Horite, the inhabitants of the land: Lotan, Shoba
 
 
 
-Dishon, Ezer, and Dishan. These are the chiefs of the [^a]Horites, the sons of Seir in the land of Edom. 
+Dishon, Ezer, and Dishan. These are the chiefs of the Horites, the sons of Seir in the land of Edom. 
 
 
 

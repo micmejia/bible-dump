@@ -73,13 +73,13 @@ So they all ate and were filled, and they took up twelve baskets full of the fra
 Now those who had eaten were about five thousand men, besides women and children. ## Jesus Walks on the Sea 
 
 ###### 22 
-Immediately Jesus [^a]made His disciples get into the boat and go before Him to the other side, while He sent the multitudes away. 
+Immediately Jesus made His disciples get into the boat and go before Him to the other side, while He sent the multitudes away. 
 
 ###### 23 
 And when He had sent the multitudes away, He went up on the mountain by Himself to pray. Now when evening came, He was alone there. 
 
 ###### 24 
-But the boat was now [^b]in the middle of the sea, tossed by the waves, for the wind was contrary. 
+But the boat was now in the middle of the sea, tossed by the waves, for the wind was contrary. 
 
 ###### 25 
 Now in the fourth watch of the night Jesus went to them, walking on the sea. 
@@ -88,7 +88,7 @@ Now in the fourth watch of the night Jesus went to them, walking on the sea.
 And when the disciples saw Him walking on the sea, they were troubled, saying, "It is a ghost!" And they cried out for fear. 
 
 ###### 27 
-But immediately Jesus spoke to them, saying, [^c]"Be of good cheer! [^d]It is I; do not be afraid." 
+But immediately Jesus spoke to them, saying, "Be of good cheer! It is I; do not be afraid." 
 
 ###### 28 
 And Peter answered Him and said, "Lord, if it is You, command me to come to You on the water." 
@@ -97,7 +97,7 @@ And Peter answered Him and said, "Lord, if it is You, command me to come to You 
 So He said, "Come." And when Peter had come down out of the boat, he walked on the water to go to Jesus. 
 
 ###### 30 
-But when he saw [^e]that the wind _was_ boisterous, he was afraid; and beginning to sink he cried out, saying, "Lord, save me!" 
+But when he saw that the wind _was_ boisterous, he was afraid; and beginning to sink he cried out, saying, "Lord, save me!" 
 
 ###### 31 
 And immediately Jesus stretched out _His_ hand and caught him, and said to him, "O you of little faith, why did you doubt?" 
@@ -106,10 +106,10 @@ And immediately Jesus stretched out _His_ hand and caught him, and said to him, 
 And when they got into the boat, the wind ceased. 
 
 ###### 33 
-Then those who were in the boat [^f]came and worshiped Him, saying, "Truly You are the Son of God." ## Many Touch Him and Are Made Well 
+Then those who were in the boat came and worshiped Him, saying, "Truly You are the Son of God." ## Many Touch Him and Are Made Well 
 
 ###### 34 
-When they had crossed over, they came [^g]to the land of Gennesaret. 
+When they had crossed over, they came to the land of Gennesaret. 
 
 ###### 35 
 And when the men of that place recognized Him, they sent out into all that surrounding region, brought to Him all who were sick, 

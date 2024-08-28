@@ -172,7 +172,7 @@ Hindi ka na tatawaging, "Itinakwil" o "Pinabayaan". Ikaw ay tatawaging, "Kaligay
 
 
 
-Siya na lumikha sa iyo[^a] ay magpapakasal sa iyo na parang isang binata na ikakasal sa isang birhen. At kung papaanong ang nobyo ay nagagalak sa kanyang nobya, ang iyong Dios ay nagagalak din sa iyo. 
+Siya na lumikha sa iyo ay magpapakasal sa iyo na parang isang binata na ikakasal sa isang birhen. At kung papaanong ang nobyo ay nagagalak sa kanyang nobya, ang iyong Dios ay nagagalak din sa iyo. 
 
 
 
@@ -370,7 +370,7 @@ Kayo mismong nag-aani ng trigo ang kakain nito, at pupurihin ninyo ako. Kayo mis
 
 
 
-Makinig kayo! Nagpadala ng mensahe ang Panginoon sa buong mundo,[^b] na nagsasabi, "Sabihin ninyo sa lahat ng taga-Israel na ang kanilang Tagapagligtas ay dumating na, at may dalang gantimpala. 
+Makinig kayo! Nagpadala ng mensahe ang Panginoon sa buong mundo, na nagsasabi, "Sabihin ninyo sa lahat ng taga-Israel na ang kanilang Tagapagligtas ay dumating na, at may dalang gantimpala. 
 
 
 
@@ -403,4 +403,4 @@ Makinig kayo! Nagpadala ng mensahe ang Panginoon sa buong mundo,[^b] na nagsasab
 
 
 
-Tatawagin silang 'Banal'[^c] at 'Iniligtas ng Panginoon.' At ang Jerusalem naman ay tatawaging, 'Lungsod na Pinananabikan' at 'Lungsod na hindi na Pinabayaan.' "
+Tatawagin silang 'Banal' at 'Iniligtas ng Panginoon.' At ang Jerusalem naman ay tatawaging, 'Lungsod na Pinananabikan' at 'Lungsod na hindi na Pinabayaan.' "

@@ -31,13 +31,13 @@ Now it came to pass, when the vessels were full, that she said to her son, "Brin
 Then she came and told the man of God. And he said, "Go, sell the oil and pay your debt; and you _and_ your sons live on the rest." ## Elisha Raises the Shunammite's Son 
 
 ###### 8 
-Now it happened one day that Elisha went to Shunem, where there _was_ a [^a]notable woman, and she [^b]persuaded him to eat some food. So it was, as often as he passed by, he would turn in there to eat some food. 
+Now it happened one day that Elisha went to Shunem, where there _was_ a notable woman, and she persuaded him to eat some food. So it was, as often as he passed by, he would turn in there to eat some food. 
 
 ###### 9 
 And she said to her husband, "Look now, I know that this _is_ a holy man of God, who passes by us regularly. 
 
 ###### 10 
-Please, let us make [^c]a small upper room on the wall; and let us put a bed for him there, and a table and a chair and a lampstand; so it will be, whenever he comes to us, he can turn in there." 
+Please, let us make a small upper room on the wall; and let us put a bed for him there, and a table and a chair and a lampstand; so it will be, whenever he comes to us, he can turn in there." 
 
 ###### 11 
 And it happened one day that he came there, and he turned in to the upper room and lay down there. 
@@ -55,7 +55,7 @@ So he said, "What then _is_ to be done for her?" And Gehazi answered, "Actually,
 So he said, "Call her." When he had called her, she stood in the doorway. 
 
 ###### 16 
-Then he said, [^d]"About this time next year you shall embrace a son." And she said, "No, my lord. Man of God, do not lie to your maidservant!" 
+Then he said, "About this time next year you shall embrace a son." And she said, "No, my lord. Man of God, do not lie to your maidservant!" 
 
 ###### 17 
 But the woman conceived, and bore a son when the appointed time had come, of which Elisha had told her. 
@@ -76,7 +76,7 @@ And she went up and laid him on the bed of the man of God, shut _the door_ upon 
 Then she called to her husband, and said, "Please send me one of the young men and one of the donkeys, that I may run to the man of God and come back." 
 
 ###### 23 
-So he said, "Why are you going to him today? _It is_ neither the New Moon nor the Sabbath." And she said, [^e]"_It is_ well." 
+So he said, "Why are you going to him today? _It is_ neither the New Moon nor the Sabbath." And she said, "_It is_ well." 
 
 ###### 24 
 Then she saddled a donkey, and said to her servant, "Drive, and go forward; do not slacken the pace for me unless I tell you." 
@@ -94,7 +94,7 @@ Now when she came to the man of God at the hill, she caught him by the feet, but
 So she said, "Did I ask a son of my lord? Did I not say, 'Do not deceive me'?" 
 
 ###### 29 
-Then he said to Gehazi, "Get[^f] yourself ready, and take my staff in your hand, and be on your way. If you meet anyone, do not greet him; and if anyone greets you, do not answer him; but lay my staff on the face of the child." 
+Then he said to Gehazi, "Get yourself ready, and take my staff in your hand, and be on your way. If you meet anyone, do not greet him; and if anyone greets you, do not answer him; but lay my staff on the face of the child." 
 
 ###### 30 
 And the mother of the child said, "_As_ the Lord lives, and _as_ your soul lives, I will not leave you." So he arose and followed her. 

@@ -10,7 +10,7 @@ next: ['Job 11']
 
 
 ###### 1 
-"My soul loathes my life; I will [^a]give free course to my complaint, I will speak in the bitterness of my soul. 
+"My soul loathes my life; I will give free course to my complaint, I will speak in the bitterness of my soul. 
 
 ###### 2 
 I will say to God, 'Do not condemn me; Show me why You contend with me. 
@@ -52,7 +52,7 @@ You have granted me life and favor, And Your care has preserved my spirit.
 If I sin, then You mark me, And will not acquit me of my iniquity. 
 
 ###### 15 
-If I am wicked, woe to me; Even _if_ I am righteous, I [^b]cannot lift up my head. _I am_ full of disgrace; See my misery! 
+If I am wicked, woe to me; Even _if_ I am righteous, I cannot lift up my head. _I am_ full of disgrace; See my misery! 
 
 ###### 16 
 If _my head_ is exalted, You hunt me like a fierce lion, And again You show Yourself awesome against me. 

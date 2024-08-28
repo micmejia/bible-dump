@@ -733,7 +733,7 @@ Tinanong siya ni Jesus, "Ano ang gusto mo?" Sumagot siya, "Kung maaari po sana, 
 
 
 
-Pero sinagot sila ni Jesus, "Hindi ninyo alam kung ano ang hinihingi ninyo. Kaya ba ninyong tiisin ang mga pagdurusang titiisin ko?"[^a] Sumagot sila, "Opo, kaya namin." 
+Pero sinagot sila ni Jesus, "Hindi ninyo alam kung ano ang hinihingi ninyo. Kaya ba ninyong tiisin ang mga pagdurusang titiisin ko?" Sumagot sila, "Opo, kaya namin." 
 
 
 
@@ -997,7 +997,7 @@ Nang papaalis na sa Jerico si Jesus at ang mga tagasunod niya, sinundan sila ng 
 
 
 
-Samantala, may dalawang bulag doon na nakaupo sa tabi ng daan. Nang marinig nilang dumaraan si Jesus, sumigaw sila, "Panginoon, Anak ni David,[^b] maawa po kayo sa amin!" 
+Samantala, may dalawang bulag doon na nakaupo sa tabi ng daan. Nang marinig nilang dumaraan si Jesus, sumigaw sila, "Panginoon, Anak ni David, maawa po kayo sa amin!" 
 
 
 

@@ -106,7 +106,7 @@ Pero sa bandang huli, mauubusan kayo ng mga trigo at bagong katas ng ubas.
 
 
 
-Lilisanin ninyo <i class="trans-change">ang Israel,_ ang lupain ng Panginoon, at babalik kayo[^a] sa Egipto, at <i class="trans-change">ang iba sa inyo ay pupunta_ sa Asiria, at doon ay kakain kayo ng mga pagkaing itinuturing ninyong marumi. 
+Lilisanin ninyo <i class="trans-change">ang Israel,_ ang lupain ng Panginoon, at babalik kayo sa Egipto, at <i class="trans-change">ang iba sa inyo ay pupunta_ sa Asiria, at doon ay kakain kayo ng mga pagkaing itinuturing ninyong marumi. 
 
 
 
@@ -139,7 +139,7 @@ Lilisanin ninyo <i class="trans-change">ang Israel,_ ang lupain ng Panginoon, at
 
 
 
-Hindi na kayo papayagang maghandog ng inumin sa Panginoon. Maghandog man kayo ng mga handog ay hindi rin siya malulugod. At ang sinumang kumain ng mga handog na iyan ay ituturing na marumi dahil katulad ito ng pagkain sa bahay ng namatayan.[^b] Ang inyong mga pagkain ay para lamang sa inyong sarili at hindi maaaring ihandog sa templo ng Panginoon. 
+Hindi na kayo papayagang maghandog ng inumin sa Panginoon. Maghandog man kayo ng mga handog ay hindi rin siya malulugod. At ang sinumang kumain ng mga handog na iyan ay ituturing na marumi dahil katulad ito ng pagkain sa bahay ng namatayan. Ang inyong mga pagkain ay para lamang sa inyong sarili at hindi maaaring ihandog sa templo ng Panginoon. 
 
 
 
@@ -205,7 +205,7 @@ Hindi na kayo papayagang maghandog ng inumin sa Panginoon. Maghandog man kayo ng
 
 
 
-Kahit na makatakas kayo sa kapahamakan, titipunin pa rin kayo sa Egipto at ililibing sa Memfis.[^c] Matatakpan ng mga damo at matitinik na halaman ang inyong mga mamahaling kagamitang pilak at ang inyong mga tolda. 
+Kahit na makatakas kayo sa kapahamakan, titipunin pa rin kayo sa Egipto at ililibing sa Memfis. Matatakpan ng mga damo at matitinik na halaman ang inyong mga mamahaling kagamitang pilak at ang inyong mga tolda. 
 
 
 
@@ -271,7 +271,7 @@ Kahit na makatakas kayo sa kapahamakan, titipunin pa rin kayo sa Egipto at ilili
 
 
 
-Bilang propeta, kasama ko ang Dios sa pagbabantay sa inyo na mga taga-Israel. Pero kahit saan ako pumunta ay nais ninyo akong ipahamak; para akong ibon na gusto ninyong mahuli sa bitag. Galit sa <i class="trans-change">akin ang mga tao sa Israel, na itinuturing ng_ Dios na kanyang tahanan.[^d] 
+Bilang propeta, kasama ko ang Dios sa pagbabantay sa inyo na mga taga-Israel. Pero kahit saan ako pumunta ay nais ninyo akong ipahamak; para akong ibon na gusto ninyong mahuli sa bitag. Galit sa <i class="trans-change">akin ang mga tao sa Israel, na itinuturing ng_ Dios na kanyang tahanan. 
 
 
 
@@ -304,7 +304,7 @@ Bilang propeta, kasama ko ang Dios sa pagbabantay sa inyo na mga taga-Israel. Pe
 
 
 
-Napakasama na ninyo tulad ng mga lalaki noon sa Gibea.[^e] Aalalahanin ng Dios ang inyong mga kasamaan, at parurusahan niya kayo sa inyong mga kasalanan." 
+Napakasama na ninyo tulad ng mga lalaki noon sa Gibea. Aalalahanin ng Dios ang inyong mga kasamaan, at parurusahan niya kayo sa inyong mga kasalanan." 
 
 
 
@@ -337,7 +337,7 @@ Napakasama na ninyo tulad ng mga lalaki noon sa Gibea.[^e] Aalalahanin ng Dios a
 
 
 
-<i class="trans-change">Sinabi ng Panginoon,_ "Mga taga-Israel, noong piliin ko[^f] ang mga ninuno ninyo <i class="trans-change">na maging aking mga mamamayan, tuwang-tuwa ako_. Gaya <i class="trans-change">ng taong tuwang-tuwa_ nang makakita ng ubas na tumubo sa disyerto o nang makakita ng unang bunga ng puno ng igos. Pero nang pumunta sila sa Baal Peor, itinalaga nila ang kanilang sarili sa mga nakakasuklam na dios-diosan, at naging gaya sila ng mga kasuklam-suklam na dios-diosang iyon na kanilang iniibig. 
+<i class="trans-change">Sinabi ng Panginoon,_ "Mga taga-Israel, noong piliin ko ang mga ninuno ninyo <i class="trans-change">na maging aking mga mamamayan, tuwang-tuwa ako_. Gaya <i class="trans-change">ng taong tuwang-tuwa_ nang makakita ng ubas na tumubo sa disyerto o nang makakita ng unang bunga ng puno ng igos. Pero nang pumunta sila sa Baal Peor, itinalaga nila ang kanilang sarili sa mga nakakasuklam na dios-diosan, at naging gaya sila ng mga kasuklam-suklam na dios-diosang iyon na kanilang iniibig. 
 
 
 

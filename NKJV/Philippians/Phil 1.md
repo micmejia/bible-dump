@@ -9,7 +9,7 @@ next: ['Phil 2']
 
 
 ###### 1 
-Paul and Timothy, bondservants of Jesus Christ, To all the saints in Christ Jesus who are in Philippi, with the [^a]bishops and deacons: 
+Paul and Timothy, bondservants of Jesus Christ, To all the saints in Christ Jesus who are in Philippi, with the bishops and deacons: 
 
 ###### 2 
 Grace to you and peace from God our Father and the Lord Jesus Christ. ## Thankfulness and Prayer 
@@ -45,7 +45,7 @@ being filled with the fruits of righteousness which _are_ by Jesus Christ, to th
 But I want you to know, brethren, that the things _which happened_ to me have actually turned out for the furtherance of the gospel, 
 
 ###### 13 
-so that it has become evident to the whole [^b]palace guard, and to all the rest, that my chains are in Christ; 
+so that it has become evident to the whole palace guard, and to all the rest, that my chains are in Christ; 
 
 ###### 14 
 and most of the brethren in the Lord, having become confident by my chains, are much more bold to speak the word without fear. 
@@ -54,7 +54,7 @@ and most of the brethren in the Lord, having become confident by my chains, are 
 Some indeed preach Christ even from envy and strife, and some also from goodwill: 
 
 ###### 16 
-[^c]The former preach Christ from selfish ambition, not sincerely, supposing to add affliction to my chains; 
+The former preach Christ from selfish ambition, not sincerely, supposing to add affliction to my chains; 
 
 ###### 17 
 but the latter out of love, knowing that I am appointed for the defense of the gospel. 
@@ -72,10 +72,10 @@ according to my earnest expectation and hope that in nothing I shall be ashamed,
 For to me, to live _is_ Christ, and to die _is_ gain. 
 
 ###### 22 
-But if _I_ live on in the flesh, this _will mean_ fruit from _my_ labor; yet what I shall choose I [^d]cannot tell. 
+But if _I_ live on in the flesh, this _will mean_ fruit from _my_ labor; yet what I shall choose I cannot tell. 
 
 ###### 23 
-[^e]For I am hard-pressed between the two, having a desire to depart and be with Christ, _which is_ far better. 
+For I am hard-pressed between the two, having a desire to depart and be with Christ, _which is_ far better. 
 
 ###### 24 
 Nevertheless to remain in the flesh _is_ more needful for you. 
@@ -90,7 +90,7 @@ that your rejoicing for me may be more abundant in Jesus Christ by my coming to 
 Only let your conduct be worthy of the gospel of Christ, so that whether I come and see you or am absent, I may hear of your affairs, that you stand fast in one spirit, with one mind striving together for the faith of the gospel, 
 
 ###### 28 
-and not in any way terrified by your adversaries, which is to them a proof of perdition, but [^f]to you of salvation, and that from God. 
+and not in any way terrified by your adversaries, which is to them a proof of perdition, but to you of salvation, and that from God. 
 
 ###### 29 
 For to you it has been granted on behalf of Christ, not only to believe in Him, but also to suffer for His sake, 

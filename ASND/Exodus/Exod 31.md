@@ -106,7 +106,7 @@ Sinabi ng Panginoon kay Moises,
 
 
 
-Pinuspos ko siya ng aking Espiritu[^a] para bigyan siya ng kapangyarihan na magkaroon ng karunungan at kakayahan sa anumang gawain: 
+Pinuspos ko siya ng aking Espiritu para bigyan siya ng kapangyarihan na magkaroon ng karunungan at kakayahan sa anumang gawain: 
 
 
 

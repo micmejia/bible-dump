@@ -39,7 +39,7 @@ up: ['Joel']
 
 
 
-<i class="trans-change">Sinabi ng Panginoon,_ "Sa panahong iyon na ibabalik ko ang mabuting kalagayan ng Juda at Jerusalem,[^a] 
+<i class="trans-change">Sinabi ng Panginoon,_ "Sa panahong iyon na ibabalik ko ang mabuting kalagayan ng Juda at Jerusalem, 
 
 
 
@@ -72,7 +72,7 @@ up: ['Joel']
 
 
 
-titipunin ko ang mga bansa at dadalhin ko sila sa Lambak ni Jehoshafat.[^b] Doon ko sila hahatulan dahil sa kanilang ginawa sa mga Israelita na aking mamamayan na pag-aari ko. Pinangalat nila ang mga Israelita sa ibaʼt ibang bansa at pinaghati-hatian ang aking lupain. 
+titipunin ko ang mga bansa at dadalhin ko sila sa Lambak ni Jehoshafat. Doon ko sila hahatulan dahil sa kanilang ginawa sa mga Israelita na aking mamamayan na pag-aari ko. Pinangalat nila ang mga Israelita sa ibaʼt ibang bansa at pinaghati-hatian ang aking lupain. 
 
 
 
@@ -138,7 +138,7 @@ Nagpalabunutan sila para <i class="trans-change">paghati-hatian_ ang aking mga m
 
 
 
-"Kayong mga taga-Tyre, taga-Sidon, at ang lahat ng lugar ng Filistia, ano ba itong ginagawa ninyo laban sa akin? Ginagantihan ba ninyo ako sa mga bagay na aking ginawa? Kung ganoon, gagantihan ko agad kayo sa inyong ginagawa.[^c] 
+"Kayong mga taga-Tyre, taga-Sidon, at ang lahat ng lugar ng Filistia, ano ba itong ginagawa ninyo laban sa akin? Ginagantihan ba ninyo ako sa mga bagay na aking ginawa? Kung ganoon, gagantihan ko agad kayo sa inyong ginagawa. 
 
 
 
@@ -270,7 +270,7 @@ Pero tutulungan ko silang makaalis sa mga bayang sa mga bayang pinagbilhan ninyo
 
 
 
-Ipagbibili ko ang inyong mga anak sa mga taga-Juda, at ipagbibili naman nila ang mga ito sa mga taga-Sabea[^d] na nakatira sa malayong lugar." <i class="trans-change">Mangyayari nga ito,_ dahil <i class="trans-change">ako,_ ang Panginoon, ang nagsasabi nito. 
+Ipagbibili ko ang inyong mga anak sa mga taga-Juda, at ipagbibili naman nila ang mga ito sa mga taga-Sabea na nakatira sa malayong lugar." <i class="trans-change">Mangyayari nga ito,_ dahil <i class="trans-change">ako,_ ang Panginoon, ang nagsasabi nito. 
 
 
 
@@ -369,7 +369,7 @@ Gawin ninyong mga espada ang sudsod ng inyong mga araro at gawin ninyong mga sib
 
 
 
-Pumarito kayo, lahat kayong mga bansang nasa paligid, at magtipon kayo doon <i class="trans-change">sa Lambak ni Jehoshafat_. Panginoon, papuntahin nʼyo na po <i class="trans-change">roon_ ang inyong hukbo.[^e] 
+Pumarito kayo, lahat kayong mga bansang nasa paligid, at magtipon kayo doon <i class="trans-change">sa Lambak ni Jehoshafat_. Panginoon, papuntahin nʼyo na po <i class="trans-change">roon_ ang inyong hukbo. 
 
 
 
@@ -534,7 +534,7 @@ Magdidilim ang araw at ang buwan, at hindi na magliliwanag ang mga bituin.
 
 
 
-Aatungal <i class="trans-change">na parang leon_ ang Panginoon mula sa Zion;[^f] dadagundong ang kanyang tinig mula sa Jerusalem. Kaya mayayanig ang lupa at langit. Pero ang Panginoon ang matibay na kanlungan para sa mga Israelita na kanyang mamamayan. ## Ang mga Pagpapalang para sa mga Mamamayan ng Dios 
+Aatungal <i class="trans-change">na parang leon_ ang Panginoon mula sa Zion; dadagundong ang kanyang tinig mula sa Jerusalem. Kaya mayayanig ang lupa at langit. Pero ang Panginoon ang matibay na kanlungan para sa mga Israelita na kanyang mamamayan. ## Ang mga Pagpapalang para sa mga Mamamayan ng Dios 
 
 
 
@@ -600,7 +600,7 @@ Aatungal <i class="trans-change">na parang leon_ ang Panginoon mula sa Zion;[^f]
 
 
 
-Sa panahong iyon, <i class="trans-change">pagpapalain ko kayo_. Magiging sagana ang inyong bagong katas ng ubas <i class="trans-change">na mula sa maraming ubas_ sa mga bundok. Magiging sagana rin ang inyong gatas <i class="trans-change">mula sa maraming baka at kambing na nanginginain_ sa mga burol. At hindi na matutuyuan ang inyong mga sapa at ilog. At may bukal mula sa templo ng Panginoon na dadaloy sa lambak na may mga punong akasya.[^g] 
+Sa panahong iyon, <i class="trans-change">pagpapalain ko kayo_. Magiging sagana ang inyong bagong katas ng ubas <i class="trans-change">na mula sa maraming ubas_ sa mga bundok. Magiging sagana rin ang inyong gatas <i class="trans-change">mula sa maraming baka at kambing na nanginginain_ sa mga burol. At hindi na matutuyuan ang inyong mga sapa at ilog. At may bukal mula sa templo ng Panginoon na dadaloy sa lambak na may mga punong akasya. 
 
 
 
@@ -699,4 +699,4 @@ Pero ang Juda at ang Jerusalem ay titirhan magpakailanman.
 
 
 
-Ipaghihiganti ko ang mga pinatay sa aking mga mamamayan. Parurusahan ko ang mga gumawa nito sa kanila.[^h] <i class="trans-change">Ako,_ ang Panginoon na nakatira sa Zion."
+Ipaghihiganti ko ang mga pinatay sa aking mga mamamayan. Parurusahan ko ang mga gumawa nito sa kanila. <i class="trans-change">Ako,_ ang Panginoon na nakatira sa Zion."

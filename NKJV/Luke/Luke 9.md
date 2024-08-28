@@ -58,7 +58,7 @@ And they did so, and made them all sit down.
 Then He took the five loaves and the two fish, and looking up to heaven, He blessed and broke them, and gave _them_ to the disciples to set before the multitude. 
 
 ###### 17 
-So they all ate and were [^a]filled, and twelve baskets of the leftover fragments were taken up by them. ## Peter Confesses Jesus as the Christ 
+So they all ate and were filled, and twelve baskets of the leftover fragments were taken up by them. ## Peter Confesses Jesus as the Christ 
 
 ###### 18 
 And it happened, as He was alone praying, _that_ His disciples joined Him, and He asked them, saying, "Who do the crowds say that I am?" 
@@ -76,7 +76,7 @@ And He strictly warned and commanded them to tell this to no one,
 saying, "The Son of Man must suffer many things, and be rejected by the elders and chief priests and scribes, and be killed, and be raised the third day." ## Take Up the Cross and Follow Him 
 
 ###### 23 
-Then He said to _them_ all, "If anyone desires to come after Me, let him deny himself, and take up his cross [^b]daily, and follow Me. 
+Then He said to _them_ all, "If anyone desires to come after Me, let him deny himself, and take up his cross daily, and follow Me. 
 
 ###### 24 
 For whoever desires to save his life will lose it, but whoever loses his life for My sake will save it. 
@@ -100,19 +100,19 @@ As He prayed, the appearance of His face was altered, and His robe _became_ whit
 And behold, two men talked with Him, who were Moses and Elijah, 
 
 ###### 31 
-who appeared in glory and spoke of His [^c]decease which He was about to accomplish at Jerusalem. 
+who appeared in glory and spoke of His decease which He was about to accomplish at Jerusalem. 
 
 ###### 32 
 But Peter and those with him were heavy with sleep; and when they were fully awake, they saw His glory and the two men who stood with Him. 
 
 ###### 33 
-Then it happened, as they were parting from Him, _that_ Peter said to Jesus, "Master, it is good for us to be here; and let us make three [^d]tabernacles: one for You, one for Moses, and one for Elijah"--not knowing what he said. 
+Then it happened, as they were parting from Him, _that_ Peter said to Jesus, "Master, it is good for us to be here; and let us make three tabernacles: one for You, one for Moses, and one for Elijah"--not knowing what he said. 
 
 ###### 34 
 While he was saying this, a cloud came and overshadowed them; and they were fearful as they entered the cloud. 
 
 ###### 35 
-And a voice came out of the cloud, saying, "This is [^e]My beloved Son. Hear Him!" 
+And a voice came out of the cloud, saying, "This is My beloved Son. Hear Him!" 
 
 ###### 36 
 When the voice had ceased, Jesus was found alone. But they kept quiet, and told no one in those days any of the things they had seen. ## A Boy Is Healed 
@@ -130,7 +130,7 @@ And behold, a spirit seizes him, and he suddenly cries out; it convulses him so 
 So I implored Your disciples to cast it out, but they could not." 
 
 ###### 41 
-Then Jesus answered and said, "O [^f]faithless and perverse generation, how long shall I be with you and [^g]bear with you? Bring your son here." 
+Then Jesus answered and said, "O faithless and perverse generation, how long shall I be with you and bear with you? Bring your son here." 
 
 ###### 42 
 And as he was still coming, the demon threw him down and convulsed _him._ Then Jesus rebuked the unclean spirit, healed the child, and gave him back to his father. ## Jesus Again Predicts His Death 
@@ -157,7 +157,7 @@ and said to them, "Whoever receives this little child in My name receives Me; an
 Now John answered and said, "Master, we saw someone casting out demons in Your name, and we forbade him because he does not follow with us." 
 
 ###### 50 
-But Jesus said to him, "Do not forbid _him,_ for he who is not against [^h]us is on [^i]our side." ## A Samaritan Village Rejects the Savior 
+But Jesus said to him, "Do not forbid _him,_ for he who is not against us is on our side." ## A Samaritan Village Rejects the Savior 
 
 ###### 51 
 Now it came to pass, when the time had come for Him to be received up, that He steadfastly set His face to go to Jerusalem, 
@@ -169,13 +169,13 @@ and sent messengers before His face. And as they went, they entered a village of
 But they did not receive Him, because His face was _set_ for the journey to Jerusalem. 
 
 ###### 54 
-And when His disciples James and John saw _this,_ they said, "Lord, do You want us to command fire to come down from heaven and consume them, [^j]just as Elijah did?" 
+And when His disciples James and John saw _this,_ they said, "Lord, do You want us to command fire to come down from heaven and consume them, just as Elijah did?" 
 
 ###### 55 
-But He turned and rebuked them, [^k]and said, "You do not know what manner of spirit you are of. 
+But He turned and rebuked them, and said, "You do not know what manner of spirit you are of. 
 
 ###### 56 
-[^l]For the Son of Man did not come to destroy men's lives but to save _them._" And they went to another village. ## The Cost of Discipleship 
+For the Son of Man did not come to destroy men's lives but to save _them._" And they went to another village. ## The Cost of Discipleship 
 
 ###### 57 
 Now it happened as they journeyed on the road, _that_ someone said to Him, "Lord, I will follow You wherever You go." 

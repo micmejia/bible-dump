@@ -154,7 +154,7 @@ But there went up a mist (fog, vapor) from the land and watered the whole surfac
 
 
 
-Then the Lord God formed man from the [^a]dust of the ground and breathed into his nostrils the breath _or_ spirit of life, and man became a living being. 
+Then the Lord God formed man from the dust of the ground and breathed into his nostrils the breath _or_ spirit of life, and man became a living being. 
 
 
 

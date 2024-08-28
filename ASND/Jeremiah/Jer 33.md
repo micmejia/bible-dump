@@ -238,7 +238,7 @@ papasukin pa rin ito ng mga taga-Babilonia. Maraming mamamatay sa lungsod na ito
 
 
 
-Pababalikin ko ang mga taga-Israel at taga-Juda mula sa pagkakabihag[^a], at itatayo ko ulit ang lungsod nila katulad noon. 
+Pababalikin ko ang mga taga-Israel at taga-Juda mula sa pagkakabihag, at itatayo ko ulit ang lungsod nila katulad noon. 
 
 
 
@@ -535,7 +535,7 @@ Sa panahong iyon, pamamahalain ko ang haring matuwid na mula sa angkan ni David.
 
 
 
-At sa panahon ding iyon maliligtas ang mga taga-Juda at mamumuhay nang payapa ang mga taga-Jerusalem. Ang Jerusalem ay tatawaging, 'Ang Panginoon ang Ating Katuwiran.' "[^b] 
+At sa panahon ding iyon maliligtas ang mga taga-Juda at mamumuhay nang payapa ang mga taga-Jerusalem. Ang Jerusalem ay tatawaging, 'Ang Panginoon ang Ating Katuwiran.' " 
 
 
 

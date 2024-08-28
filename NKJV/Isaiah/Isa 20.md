@@ -10,10 +10,10 @@ next: ['Isa 21']
 
 
 ###### 1 
-In the year that Tartan[^a] came to Ashdod, when Sargon the king of Assyria sent him, and he fought against Ashdod and took it, 
+In the year that Tartan came to Ashdod, when Sargon the king of Assyria sent him, and he fought against Ashdod and took it, 
 
 ###### 2 
-at the same time the Lord spoke by Isaiah the son of Amoz, saying, "Go, and remove the sackcloth from your [^b]body, and take your sandals off your feet." And he did so, walking naked and barefoot. 
+at the same time the Lord spoke by Isaiah the son of Amoz, saying, "Go, and remove the sackcloth from your body, and take your sandals off your feet." And he did so, walking naked and barefoot. 
 
 ###### 3 
 Then the Lord said, "Just as My servant Isaiah has walked naked and barefoot three years _for_ a sign and a wonder against Egypt and Ethiopia, 

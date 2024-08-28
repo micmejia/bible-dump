@@ -10,7 +10,7 @@ next: ['Rom 11']
 
 
 ###### 1 
-Brethren, my heart's desire and prayer to God for [^a]Israel is that they may be saved. 
+Brethren, my heart's desire and prayer to God for Israel is that they may be saved. 
 
 ###### 2 
 For I bear them witness that they have a zeal for God, but not according to knowledge. 
@@ -52,7 +52,7 @@ For "whoever calls on the name of the Lord shall be saved." ## Israel Rejects th
 How then shall they call on Him in whom they have not believed? And how shall they believe in Him of whom they have not heard? And how shall they hear without a preacher? 
 
 ###### 15 
-And how shall they preach unless they are sent? As it is written: "How beautiful are the feet of those who [^b]preach the gospel of peace, Who bring glad tidings of good things!" 
+And how shall they preach unless they are sent? As it is written: "How beautiful are the feet of those who preach the gospel of peace, Who bring glad tidings of good things!" 
 
 ###### 16 
 But they have not all obeyed the gospel. For Isaiah says, "Lord, who has believed our report?" 

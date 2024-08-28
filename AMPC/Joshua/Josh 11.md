@@ -427,7 +427,7 @@ Not a city made peace with the Israelites except the Hivites, the people of Gibe
 
 
 
-For it was of the Lord to harden their hearts that they should come against Israel in battle, that [Israel] might [^a]destroy them utterly, and that without favor _and_ mercy, as the Lord commanded Moses. 
+For it was of the Lord to harden their hearts that they should come against Israel in battle, that [Israel] might destroy them utterly, and that without favor _and_ mercy, as the Lord commanded Moses. 
 
 
 

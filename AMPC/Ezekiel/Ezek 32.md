@@ -616,7 +616,7 @@ But you [Meshech and Tubal] shall be broken in the midst of the uncircumcised an
 
 
 
-Edom is there, her kings and all her princes, who for all their might are laid with those who were slain by the sword; they shall lie with the [^a]uncircumcised (the heathen) and with those who go down to the pit. 
+Edom is there, her kings and all her princes, who for all their might are laid with those who were slain by the sword; they shall lie with the uncircumcised (the heathen) and with those who go down to the pit. 
 
 
 

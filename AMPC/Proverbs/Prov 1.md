@@ -48,7 +48,7 @@ The proverbs (truths obscurely expressed, maxims, and parables) of Solomon son o
 
 
 
-[^a]That people may know skillful _and_ godly [^b]Wisdom and instruction, discern _and_ comprehend the words of understanding _and_ insight, 
+That people may know skillful _and_ godly Wisdom and instruction, discern _and_ comprehend the words of understanding _and_ insight, 
 
 
 
@@ -426,7 +426,7 @@ So are the ways of everyone who is greedy of gain; such [greed for plunder] take
 
 
 
-[^c]Wisdom cries aloud in the street, she raises her voice in the markets; 
+Wisdom cries aloud in the street, she raises her voice in the markets; 
 
 
 
@@ -489,7 +489,7 @@ How long, O simple ones [open to evil], will you love being simple? And the scof
 
 
 
-If you will turn (repent) _and_ give heed to my reproof, behold, I [[^d]Wisdom] will pour out my spirit upon you, I will make my words known to you. 
+If you will turn (repent) _and_ give heed to my reproof, behold, I [Wisdom] will pour out my spirit upon you, I will make my words known to you. 
 
 
 

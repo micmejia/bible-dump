@@ -21,13 +21,13 @@ Issachar, Zebulun, and Benjamin;
 Dan, Naphtali, Gad, and Asher. 
 
 ###### 5 
-All those [^a]who were descendants of Jacob were seventy[^b] persons (for Joseph was in Egypt _already_). 
+All those who were descendants of Jacob were seventy persons (for Joseph was in Egypt _already_). 
 
 ###### 6 
 And Joseph died, all his brothers, and all that generation. 
 
 ###### 7 
-But the children of Israel were fruitful and increased abundantly, multiplied and [^c]grew exceedingly mighty; and the land was filled with them. 
+But the children of Israel were fruitful and increased abundantly, multiplied and grew exceedingly mighty; and the land was filled with them. 
 
 ###### 8 
 Now there arose a new king over Egypt, who did not know Joseph. 
@@ -45,7 +45,7 @@ Therefore they set taskmasters over them to afflict them with their burdens. And
 But the more they afflicted them, the more they multiplied and grew. And they were in dread of the children of Israel. 
 
 ###### 13 
-So the Egyptians made the children of Israel serve with [^d]rigor. 
+So the Egyptians made the children of Israel serve with rigor. 
 
 ###### 14 
 And they made their lives bitter with hard bondage--in mortar, in brick, and in all manner of service in the field. All their service in which they made them serve _was_ with rigor. 
@@ -63,13 +63,13 @@ But the midwives feared God, and did not do as the king of Egypt commanded them,
 So the king of Egypt called for the midwives and said to them, "Why have you done this thing, and saved the male children alive?" 
 
 ###### 19 
-And the midwives said to Pharaoh, "Because the Hebrew women _are_ not like the Egyptian women; for they [^e]_are_ lively and give birth before the midwives come to them." 
+And the midwives said to Pharaoh, "Because the Hebrew women _are_ not like the Egyptian women; for they _are_ lively and give birth before the midwives come to them." 
 
 ###### 20 
-Therefore God dealt well with the midwives, and the people multiplied and [^f]grew very mighty. 
+Therefore God dealt well with the midwives, and the people multiplied and grew very mighty. 
 
 ###### 21 
-And so it was, because the midwives feared God, that He [^g]provided households for them. 
+And so it was, because the midwives feared God, that He provided households for them. 
 
 ###### 22 
-So Pharaoh commanded all his people, saying, "Every son who is [^h]born you shall cast into the river, and every daughter you shall save alive."
+So Pharaoh commanded all his people, saying, "Every son who is born you shall cast into the river, and every daughter you shall save alive."

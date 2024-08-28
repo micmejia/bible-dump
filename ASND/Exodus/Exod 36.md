@@ -733,7 +733,7 @@ Ang haba ng bawat tabla ay 15 talampakan at dalawang talampakan ang lapad.
 
 
 
-Ang bawat tabla ay nilagyan ng dalawang mitsa[^a] para maidugtong ito sa isa pang tabla. Ganito ang ginawa nila sa bawat tabla. 
+Ang bawat tabla ay nilagyan ng dalawang mitsa para maidugtong ito sa isa pang tabla. Ganito ang ginawa nila sa bawat tabla. 
 
 
 
@@ -1129,7 +1129,7 @@ Ang biga sa gitna ng balangkas ay inilagay nila mula sa dulo ng Tolda papunta sa
 
 
 
-Binalutan nila ng ginto ang mga tabla at nilagyan ng argolyang[^b] ginto na siyang humahawak sa mga tabla. Binalutan din nila ng ginto ang mga biga. 
+Binalutan nila ng ginto ang mga tabla at nilagyan ng argolyang ginto na siyang humahawak sa mga tabla. Binalutan din nila ng ginto ang mga biga. 
 
 
 

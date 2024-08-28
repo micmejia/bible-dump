@@ -10,7 +10,7 @@ next: ['1 Kgs 4']
 
 
 ###### 1 
-Now Solomon made [^a]a treaty with Pharaoh king of Egypt, and married Pharaoh's daughter; then he brought her to the City of David until he had finished building his own house, and the house of the Lord, and the wall all around Jerusalem. 
+Now Solomon made a treaty with Pharaoh king of Egypt, and married Pharaoh's daughter; then he brought her to the City of David until he had finished building his own house, and the house of the Lord, and the wall all around Jerusalem. 
 
 ###### 2 
 Meanwhile the people sacrificed at the high places, because there was no house built for the name of the Lord until those days. 
@@ -34,7 +34,7 @@ Now, O Lord my God, You have made Your servant king instead of my father David, 
 And Your servant _is_ in the midst of Your people whom You have chosen, a great people, too numerous to be numbered or counted. 
 
 ###### 9 
-Therefore give to Your servant an [^b]understanding heart to judge Your people, that I may discern between good and evil. For who is able to judge this great people of Yours?" 
+Therefore give to Your servant an understanding heart to judge Your people, that I may discern between good and evil. For who is able to judge this great people of Yours?" 
 
 ###### 10 
 The speech pleased the Lord, that Solomon had asked this thing. 
@@ -49,7 +49,7 @@ behold, I have done according to your words; see, I have given you a wise and un
 And I have also given you what you have not asked: both riches and honor, so that there shall not be anyone like you among the kings all your days. 
 
 ###### 14 
-So if you walk in My ways, to keep My statutes and My commandments, as your father David walked, then I will lengthen[^c] your days." 
+So if you walk in My ways, to keep My statutes and My commandments, as your father David walked, then I will lengthen your days." 
 
 ###### 15 
 Then Solomon awoke; and indeed it had been a dream. And he came to Jerusalem and stood before the ark of the covenant of the Lord, offered up burnt offerings, offered peace offerings, and made a feast for all his servants. ## Solomon's Wise Judgment 
@@ -61,7 +61,7 @@ Now two women _who were_ harlots came to the king, and stood before him.
 And one woman said, "O my lord, this woman and I dwell in the same house; and I gave birth while she _was_ in the house. 
 
 ###### 18 
-Then it happened, the third day after I had given birth, that this woman also gave birth. And we _were_ together; [^d]no one _was_ with us in the house, except the two of us in the house. 
+Then it happened, the third day after I had given birth, that this woman also gave birth. And we _were_ together; no one _was_ with us in the house, except the two of us in the house. 
 
 ###### 19 
 And this woman's son died in the night, because she lay on him. 

@@ -436,7 +436,7 @@ Kaya tinapat sila ni Jesus, "Patay na si Lazarus.
 
 
 
-Ngunit nagpapasalamat ako na wala ako roon, <i class="trans-change">dahil ang gagawin kong himala sa kanya ay_ para sa kabutihan ninyo, upang lalo pa kayong sumampalataya <i class="trans-change">sa akin_.[^a] Tayo na, puntahan natin siya." 
+Ngunit nagpapasalamat ako na wala ako roon, <i class="trans-change">dahil ang gagawin kong himala sa kanya ay_ para sa kabutihan ninyo, upang lalo pa kayong sumampalataya <i class="trans-change">sa akin_. Tayo na, puntahan natin siya." 
 
 
 
@@ -1030,7 +1030,7 @@ Pagdating ni Maria sa kinaroroonan ni Jesus, lumuhod siya sa harap nito at sinab
 
 
 
-Nabagbag ang puso ni Jesus[^b] at naawa siya nang makita niyang umiiyak si Maria, pati na ang mga kasama nitong mga Judio. 
+Nabagbag ang puso ni Jesus at naawa siya nang makita niyang umiiyak si Maria, pati na ang mga kasama nitong mga Judio. 
 
 
 
@@ -1261,7 +1261,7 @@ Muling nabagbag ang puso ni Jesus. Kaya pumunta siya sa pinaglibingan kay Lazaru
 
 
 
-Sinabi ni Jesus sa kanya, "Hindi baʼt sinabi ko sa iyo na kung sasampalataya ka ay makikita mo ang kapangyarihan[^c] ng Dios?" 
+Sinabi ni Jesus sa kanya, "Hindi baʼt sinabi ko sa iyo na kung sasampalataya ka ay makikita mo ang kapangyarihan ng Dios?" 
 
 
 
@@ -1525,7 +1525,7 @@ Kaya ipinatawag ng mga namamahalang pari at ng mga Pariseo ang lahat ng miyembro
 
 
 
-Kapag pinabayaan natin siya, maniniwala ang lahat ng tao sa kanya <i class="trans-change">na siya ang hari ng Israel_. Kapag nangyari iyan, lulusubin tayo ng mga hukbong Romano at wawasakin nila ang templo at ang ating bansa."[^d] 
+Kapag pinabayaan natin siya, maniniwala ang lahat ng tao sa kanya <i class="trans-change">na siya ang hari ng Israel_. Kapag nangyari iyan, lulusubin tayo ng mga hukbong Romano at wawasakin nila ang templo at ang ating bansa." 
 
 
 

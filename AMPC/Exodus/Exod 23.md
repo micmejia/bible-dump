@@ -427,7 +427,7 @@ The first of the firstfruits of your ground you shall bring into the house of th
 
 
 
-Behold, I send an [^a]Angel before you to keep _and_ guard you on the way and to bring you to the place I have prepared. 
+Behold, I send an Angel before you to keep _and_ guard you on the way and to bring you to the place I have prepared. 
 
 
 
@@ -448,7 +448,7 @@ Behold, I send an [^a]Angel before you to keep _and_ guard you on the way and to
 
 
 
-Give heed to Him, listen to _and_ obey His voice; be not rebellious before Him _or_ provoke Him, for He will not pardon your transgression; for My [^b]Name is in Him. 
+Give heed to Him, listen to _and_ obey His voice; be not rebellious before Him _or_ provoke Him, for He will not pardon your transgression; for My Name is in Him. 
 
 
 

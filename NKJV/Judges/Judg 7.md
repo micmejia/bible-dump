@@ -28,7 +28,7 @@ So he brought the people down to the water. And the Lord said to Gideon, "Everyo
 And the number of those who lapped, _putting_ their hand to their mouth, was three hundred men; but all the rest of the people got down on their knees to drink water. 
 
 ###### 7 
-Then the Lord said to Gideon, "By the three hundred men who lapped I will save you, and deliver the Midianites into your hand. Let all the _other_ people go, every man to his [^a]place." 
+Then the Lord said to Gideon, "By the three hundred men who lapped I will save you, and deliver the Midianites into your hand. Let all the _other_ people go, every man to his place." 
 
 ###### 8 
 So the people took provisions and their trumpets in their hands. And he sent away all _the rest of_ Israel, every man to his tent, and retained those three hundred men. Now the camp of Midian was below him in the valley. 
@@ -40,10 +40,10 @@ It happened on the same night that the Lord said to him, "Arise, go down against
 But if you are afraid to go down, go down to the camp with Purah your servant, 
 
 ###### 11 
-and you shall hear what they say; and afterward [^b]your hands shall be strengthened to go down against the camp." Then he went down with Purah his servant to the outpost of the armed men who _were_ in the camp. 
+and you shall hear what they say; and afterward your hands shall be strengthened to go down against the camp." Then he went down with Purah his servant to the outpost of the armed men who _were_ in the camp. 
 
 ###### 12 
-Now the Midianites and Amalekites, all the people of the East, were lying in the valley as numerous as locusts; and their camels _were_ [^c]without number, as the sand by the seashore in multitude. 
+Now the Midianites and Amalekites, all the people of the East, were lying in the valley as numerous as locusts; and their camels _were_ without number, as the sand by the seashore in multitude. 
 
 ###### 13 
 And when Gideon had come, there was a man telling a dream to his companion. He said, "I have had a dream: _To my_ surprise, a loaf of barley bread tumbled into the camp of Midian; it came to a tent and struck it so that it fell and overturned, and the tent collapsed." 
@@ -73,7 +73,7 @@ Then the three companies blew the trumpets and broke the pitchers--they held the
 And every man stood in his place all around the camp; and the whole army ran and cried out and fled. 
 
 ###### 22 
-When the three hundred blew the trumpets, the Lord set every man's sword against his companion throughout the whole camp; and the army fled to [^d]Beth Acacia, toward Zererah, as far as the border of Abel Meholah, by Tabbath. 
+When the three hundred blew the trumpets, the Lord set every man's sword against his companion throughout the whole camp; and the army fled to Beth Acacia, toward Zererah, as far as the border of Abel Meholah, by Tabbath. 
 
 ###### 23 
 And the men of Israel gathered together from Naphtali, Asher, and all Manasseh, and pursued the Midianites. 

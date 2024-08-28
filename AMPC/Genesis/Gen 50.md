@@ -552,4 +552,4 @@ And Joseph took an oath from the sons of Israel, saying, God will surely visit y
 
 
 
-So Joseph died, being 110 years old; and they embalmed him, and he was put [^a]in a coffin in Egypt.
+So Joseph died, being 110 years old; and they embalmed him, and he was put in a coffin in Egypt.

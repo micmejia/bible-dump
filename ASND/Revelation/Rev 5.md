@@ -40,7 +40,7 @@ next: ['Rev 6']
 
 
 
-Pagkatapos nito, nakita ko ang nakarolyong kasulatan na hawak-hawak ng nakaupo sa trono sa kanang kamay niya. May nakasulat sa magkabilang panig nito, at may pitong selyo[^a] para hindi mabuksan. 
+Pagkatapos nito, nakita ko ang nakarolyong kasulatan na hawak-hawak ng nakaupo sa trono sa kanang kamay niya. May nakasulat sa magkabilang panig nito, at may pitong selyo para hindi mabuksan. 
 
 
 
@@ -205,7 +205,7 @@ Sinabi sa akin ng isa sa mga namumuno, "Huwag kang umiyak dahil si Jesus na tina
 
 
 
-Pagkatapos, nakita ko ang isang Tupa[^b] na mukhang pinatay, pero nakatayo na sa pagitan ng mga namumuno at ng tronong napapaligiran ng apat na buhay na nilalang. Mayroon itong pitong sungay at pitong mata, na siyang pitong Espiritu ng Dios[^c] na isinugo sa lahat ng lugar sa mundo. 
+Pagkatapos, nakita ko ang isang Tupa na mukhang pinatay, pero nakatayo na sa pagitan ng mga namumuno at ng tronong napapaligiran ng apat na buhay na nilalang. Mayroon itong pitong sungay at pitong mata, na siyang pitong Espiritu ng Dios na isinugo sa lahat ng lugar sa mundo. 
 
 
 
@@ -271,7 +271,7 @@ Lumapit ang Tupa sa trono at kinuha niya ang kasulatan sa kanang kamay ng nakaup
 
 
 
-Nang kunin niya iyon, lumuhod sa harap ng Tupa ang apat na buhay na nilalang at ang 24 na namumuno at sumamba sa kanya. Ang bawat isa sa kanila ay may hawak na gintong sisidlan na puno ng insenso, na siyang panalangin ng mga pinabanal.[^d] May alpa[^e] rin silang tinutugtog, 
+Nang kunin niya iyon, lumuhod sa harap ng Tupa ang apat na buhay na nilalang at ang 24 na namumuno at sumamba sa kanya. Ang bawat isa sa kanila ay may hawak na gintong sisidlan na puno ng insenso, na siyang panalangin ng mga pinabanal. May alpa rin silang tinutugtog, 
 
 
 

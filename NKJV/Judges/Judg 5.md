@@ -13,7 +13,7 @@ next: ['Judg 6']
 Then Deborah and Barak the son of Abinoam sang on that day, saying: 
 
 ###### 2 
-"When[^a] leaders lead in Israel, When the people [^b]willingly offer themselves, Bless the Lord! 
+"When leaders lead in Israel, When the people willingly offer themselves, Bless the Lord! 
 
 ###### 3 
 "Hear, O kings! Give ear, O princes! I, _even_ I, will sing to the Lord; I will sing praise to the Lord God of Israel. 
@@ -22,7 +22,7 @@ Then Deborah and Barak the son of Abinoam sang on that day, saying:
 "Lord, when You went out from Seir, When You marched from the field of Edom, The earth trembled and the heavens poured, The clouds also poured water; 
 
 ###### 5 
-The mountains [^c]gushed before the Lord, This Sinai, before the Lord God of Israel. 
+The mountains gushed before the Lord, This Sinai, before the Lord God of Israel. 
 
 ###### 6 
 "In the days of Shamgar, son of Anath, In the days of Jael, The highways were deserted, And the travelers walked along the byways. 
@@ -52,13 +52,13 @@ Far from the noise of the archers, among the watering places, There they shall r
 From Ephraim _were_ those whose roots were in Amalek. After you, Benjamin, with your peoples, From Machir rulers came down, And from Zebulun those who bear the recruiter's staff. 
 
 ###### 15 
-And [^d]the princes of Issachar _were_ with Deborah; As Issachar, so _was_ Barak Sent into the valley [^e]under his command; Among the divisions of Reuben _There were_ great resolves of heart. 
+And the princes of Issachar _were_ with Deborah; As Issachar, so _was_ Barak Sent into the valley under his command; Among the divisions of Reuben _There were_ great resolves of heart. 
 
 ###### 16 
 Why did you sit among the sheepfolds, To hear the pipings for the flocks? The divisions of Reuben have great searchings of heart. 
 
 ###### 17 
-Gilead stayed beyond the Jordan, And why did Dan remain [^f]on ships? Asher continued at the seashore, And stayed by his inlets. 
+Gilead stayed beyond the Jordan, And why did Dan remain on ships? Asher continued at the seashore, And stayed by his inlets. 
 
 ###### 18 
 Zebulun _is_ a people _who_ jeopardized their lives to the point of death, Naphtali also, on the heights of the battlefield. 
@@ -76,7 +76,7 @@ The torrent of Kishon swept them away, That ancient torrent, the torrent of Kish
 Then the horses' hooves pounded, The galloping, galloping of his steeds. 
 
 ###### 23 
-'Curse Meroz,' said the [^g]angel of the Lord, 'Curse its inhabitants bitterly, Because they did not come to the help of the Lord, To the help of the Lord against the mighty.' 
+'Curse Meroz,' said the angel of the Lord, 'Curse its inhabitants bitterly, Because they did not come to the help of the Lord, To the help of the Lord against the mighty.' 
 
 ###### 24 
 "Most blessed among women is Jael, The wife of Heber the Kenite; Blessed is she among women in tents. 
@@ -94,7 +94,7 @@ At her feet he sank, he fell, he lay still; At her feet he sank, he fell; Where 
 "The mother of Sisera looked through the window, And cried out through the lattice, 'Why is his chariot _so_ long in coming? Why tarries the clatter of his chariots?' 
 
 ###### 29 
-Her wisest [^h]ladies answered her, Yes, she [^i]answered herself, 
+Her wisest ladies answered her, Yes, she answered herself, 
 
 ###### 30 
 'Are they not finding and dividing the spoil: To every man a girl _or_ two; For Sisera, plunder of dyed garments, Plunder of garments embroidered and dyed, Two pieces of dyed embroidery for the neck of the looter?' 

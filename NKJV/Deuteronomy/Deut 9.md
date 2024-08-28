@@ -22,10 +22,10 @@ Therefore understand today that the Lord your God _is_ He who goes over before y
 "Do not think in your heart, after the Lord your God has cast them out before you, saying, 'Because of my righteousness the Lord has brought me in to possess this land'; but _it is_ because of the wickedness of these nations _that_ the Lord is driving them out from before you. 
 
 ###### 5 
-_It is_ not because of your righteousness or the uprightness of your heart _that_ you go in to possess their land, but because of the wickedness of these nations _that_ the Lord your God drives them out from before you, and that He may [^a]fulfill the word which the Lord swore to your fathers, to Abraham, Isaac, and Jacob. 
+_It is_ not because of your righteousness or the uprightness of your heart _that_ you go in to possess their land, but because of the wickedness of these nations _that_ the Lord your God drives them out from before you, and that He may fulfill the word which the Lord swore to your fathers, to Abraham, Isaac, and Jacob. 
 
 ###### 6 
-Therefore understand that the Lord your God is not giving you this good land to possess because of your righteousness, for you _are_ a stiff-necked[^b] people. 
+Therefore understand that the Lord your God is not giving you this good land to possess because of your righteousness, for you _are_ a stiff-necked people. 
 
 ###### 7 
 "Remember! Do not forget how you provoked the Lord your God to wrath in the wilderness. From the day that you departed from the land of Egypt until you came to this place, you have been rebellious against the Lord. 
@@ -37,7 +37,7 @@ Also in Horeb you provoked the Lord to wrath, so that the Lord was angry _enough
 When I went up into the mountain to receive the tablets of stone, the tablets of the covenant which the Lord made with you, then I stayed on the mountain forty days and forty nights. I neither ate bread nor drank water. 
 
 ###### 10 
-Then the Lord delivered to me two tablets of stone written with the finger of God, and on them _were_ all the words which the Lord had spoken to you on the mountain from the midst of the fire in[^c] the day of the assembly. 
+Then the Lord delivered to me two tablets of stone written with the finger of God, and on them _were_ all the words which the Lord had spoken to you on the mountain from the midst of the fire in the day of the assembly. 
 
 ###### 11 
 And it came to pass, at the end of forty days and forty nights, _that_ the Lord gave me the two tablets of stone, the tablets of the covenant. 
@@ -46,7 +46,7 @@ And it came to pass, at the end of forty days and forty nights, _that_ the Lord 
 "Then the Lord said to me, 'Arise, go down quickly from here, for your people whom you brought out of Egypt have acted corruptly; they have quickly turned aside from the way which I commanded them; they have made themselves a molded image.' 
 
 ###### 13 
-"Furthermore the Lord spoke to me, saying, 'I have seen this people, and indeed they are a [^d]stiff-necked people. 
+"Furthermore the Lord spoke to me, saying, 'I have seen this people, and indeed they are a stiff-necked people. 
 
 ###### 14 
 Let Me alone, that I may destroy them and blot out their name from under heaven; and I will make of you a nation mightier and greater than they.' 
@@ -61,7 +61,7 @@ And I looked, and behold, you had sinned against the Lord your God--had made for
 Then I took the two tablets and threw them out of my two hands and broke them before your eyes. 
 
 ###### 18 
-And I fell[^e] down before the Lord, as at the first, forty days and forty nights; I neither ate bread nor drank water, because of all your sin which you committed in doing wickedly in the sight of the Lord, to provoke Him to anger. 
+And I fell down before the Lord, as at the first, forty days and forty nights; I neither ate bread nor drank water, because of all your sin which you committed in doing wickedly in the sight of the Lord, to provoke Him to anger. 
 
 ###### 19 
 For I was afraid of the anger and hot displeasure with which the Lord was angry with you, to destroy you. But the Lord listened to me at that time also. 
@@ -73,7 +73,7 @@ And the Lord was very angry with Aaron _and_ would have destroyed him; so I pray
 Then I took your sin, the calf which you had made, and burned it with fire and crushed it _and_ ground _it_ very small, until it was as fine as dust; and I threw its dust into the brook that descended from the mountain. 
 
 ###### 22 
-"Also at Taberah and Massah and Kibroth Hattaavah you [^f]provoked the Lord to wrath. 
+"Also at Taberah and Massah and Kibroth Hattaavah you provoked the Lord to wrath. 
 
 ###### 23 
 Likewise, when the Lord sent you from Kadesh Barnea, saying, 'Go up and possess the land which I have given you,' then you rebelled against the commandment of the Lord your God, and you did not believe Him nor obey His voice. 
@@ -82,7 +82,7 @@ Likewise, when the Lord sent you from Kadesh Barnea, saying, 'Go up and possess 
 You have been rebellious against the Lord from the day that I knew you. 
 
 ###### 25 
-"Thus I [^g]prostrated myself before the Lord; forty days and forty nights I kept prostrating myself, because the Lord had said He would destroy you. 
+"Thus I prostrated myself before the Lord; forty days and forty nights I kept prostrating myself, because the Lord had said He would destroy you. 
 
 ###### 26 
 Therefore I prayed to the Lord, and said: 'O Lord God, do not destroy Your people and Your inheritance whom You have redeemed through Your greatness, whom You have brought out of Egypt with a mighty hand. 

@@ -469,7 +469,7 @@ Magiging inyong lahat ang mga produkto na kanilang inihahandog mula sa unang ani
 
 
 
-"Ang lahat ng bagay sa Israel na ibinigay sa akin nang buo[^a] ay magiging inyo. 
+"Ang lahat ng bagay sa Israel na ibinigay sa akin nang buo ay magiging inyo. 
 
 
 
@@ -568,7 +568,7 @@ Tubusin ninyo ito kung isang buwan na ang edad at kailangang tubusin ninyo ito s
 
 
 
-Pero huwag ninyong tutubusin ang panganay na toro, tupa o kambing dahil sa akin ito. <i class="trans-change">Katayin ninyo ito_ at iwisik ninyo ang dugo sa altar at sunugin ang mga taba bilang handog sa pamamagitan ng apoy.[^b] Ang mabangong samyo ng handog na ito ay makalulugod sa akin. 
+Pero huwag ninyong tutubusin ang panganay na toro, tupa o kambing dahil sa akin ito. <i class="trans-change">Katayin ninyo ito_ at iwisik ninyo ang dugo sa altar at sunugin ang mga taba bilang handog sa pamamagitan ng apoy. Ang mabangong samyo ng handog na ito ay makalulugod sa akin. 
 
 
 
@@ -634,7 +634,7 @@ Sa inyo ang karne nito, gaya ng dibdib at ng kanang paa ng handog na itinataas n
 
 
 
-Ibinibigay ko sa inyo ang lahat ng mga handog na itinataas ng mga Israelita sa akin. Para ito sa inyo at sa inyong mga angkan bilang inyong bahagi magpakailanman. Kasunduan ko ito sa iyo at sa iyong angkan na hindi magbabago magpakailanman."[^c] 
+Ibinibigay ko sa inyo ang lahat ng mga handog na itinataas ng mga Israelita sa akin. Para ito sa inyo at sa inyong mga angkan bilang inyong bahagi magpakailanman. Kasunduan ko ito sa iyo at sa iyong angkan na hindi magbabago magpakailanman." 
 
 
 

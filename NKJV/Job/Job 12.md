@@ -16,13 +16,13 @@ Then Job answered and said:
 "No doubt you _are_ the people, And wisdom will die with you! 
 
 ###### 3 
-But I have [^a]understanding as well as you; I _am_ not inferior to you. Indeed, who does not _know_ such things as these? 
+But I have understanding as well as you; I _am_ not inferior to you. Indeed, who does not _know_ such things as these? 
 
 ###### 4 
 "I am one mocked by his friends, Who called on God, and He answered him, The just and blameless _who is_ ridiculed. 
 
 ###### 5 
-A [^b]lamp is despised in the thought of one who is at ease; _It is_ made ready for those whose feet slip. 
+A lamp is despised in the thought of one who is at ease; _It is_ made ready for those whose feet slip. 
 
 ###### 6 
 The tents of robbers prosper, And those who provoke God are secure-- In what God provides by His hand. 
@@ -37,13 +37,13 @@ Or speak to the earth, and it will teach you; And the fish of the sea will expla
 Who among all these does not know That the hand of the Lord has done this, 
 
 ###### 10 
-In whose hand _is_ the [^c]life of every living thing, And the breath of [^d]all mankind? 
+In whose hand _is_ the life of every living thing, And the breath of all mankind? 
 
 ###### 11 
-Does not the ear test words And the [^e]mouth taste its food? 
+Does not the ear test words And the mouth taste its food? 
 
 ###### 12 
-Wisdom _is_ with aged men, And with [^f]length of days, understanding. 
+Wisdom _is_ with aged men, And with length of days, understanding. 
 
 ###### 13 
 "With Him _are_ wisdom and strength, He has counsel and understanding. 
@@ -64,22 +64,22 @@ He leads counselors away plundered, And makes fools of the judges.
 He loosens the bonds of kings, And binds their waist with a belt. 
 
 ###### 19 
-He leads [^g]princes away plundered, And overthrows the mighty. 
+He leads princes away plundered, And overthrows the mighty. 
 
 ###### 20 
 He deprives the trusted ones of speech, And takes away the discernment of the elders. 
 
 ###### 21 
-He pours contempt on princes, And [^h]disarms the mighty. 
+He pours contempt on princes, And disarms the mighty. 
 
 ###### 22 
 He uncovers deep things out of darkness, And brings the shadow of death to light. 
 
 ###### 23 
-He makes nations great, and destroys them; He [^i]enlarges nations, and guides them. 
+He makes nations great, and destroys them; He enlarges nations, and guides them. 
 
 ###### 24 
-He takes away the [^j]understanding of the chiefs of the people of the earth, And makes them wander in a pathless wilderness. 
+He takes away the understanding of the chiefs of the people of the earth, And makes them wander in a pathless wilderness. 
 
 ###### 25 
 They grope in the dark without light, And He makes them stagger like a drunken _man._

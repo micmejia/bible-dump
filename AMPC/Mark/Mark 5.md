@@ -70,7 +70,7 @@ And as soon as He got out of the boat, there met Him out of the tombs a man [und
 
 
 
-This man [^a]continually lived among the tombs, and no one could subdue him any more, even with a chain; 
+This man continually lived among the tombs, and no one could subdue him any more, even with a chain; 
 
 
 
@@ -91,7 +91,7 @@ This man [^a]continually lived among the tombs, and no one could subdue him any 
 
 
 
-For he had been bound often with shackles for the feet and [^b]handcuffs, but the handcuffs of [light] chains he wrenched apart, and the shackles he rubbed _and_ ground together _and_ broke in pieces; and no one had strength enough to restrain _or_ tame him. 
+For he had been bound often with shackles for the feet and handcuffs, but the handcuffs of [light] chains he wrenched apart, and the shackles he rubbed _and_ ground together _and_ broke in pieces; and no one had strength enough to restrain _or_ tame him. 
 
 
 
@@ -112,7 +112,7 @@ For he had been bound often with shackles for the feet and [^b]handcuffs, but th
 
 
 
-Night and day among the tombs and on the mountains he was always [^c]shrieking _and_ screaming and [^d]beating _and_ bruising _and_ [^e]cutting himself with stones. 
+Night and day among the tombs and on the mountains he was always shrieking _and_ screaming and beating _and_ bruising _and_ cutting himself with stones. 
 
 
 
@@ -154,7 +154,7 @@ And when from a distance he saw Jesus, he ran and fell on his knees before Him i
 
 
 
-And crying out with a loud voice, he said, What have You to do with me, Jesus, Son of the Most High God? [What is there in common between us?] I [^f]solemnly implore you by God, do not begin to torment me! 
+And crying out with a loud voice, he said, What have You to do with me, Jesus, Son of the Most High God? [What is there in common between us?] I solemnly implore you by God, do not begin to torment me! 
 
 
 
@@ -322,7 +322,7 @@ The hog feeders ran away, and told [it] in the town and in the country. And [the
 
 
 
-And they came to Jesus and looked intently _and_ searchingly at the man who had been a demoniac, sitting there, clothed and in his right mind, [the same man] who had had the legion [of demons]; and they were [^g]seized with alarm _and_ struck with fear. 
+And they came to Jesus and looked intently _and_ searchingly at the man who had been a demoniac, sitting there, clothed and in his right mind, [the same man] who had had the legion [of demons]; and they were seized with alarm _and_ struck with fear. 
 
 
 
@@ -511,7 +511,7 @@ And begged Him earnestly, saying, My little daughter is at the point of death. C
 
 
 
-And Jesus went with him; and a great crowd kept following Him and pressed Him [^h]from all sides [so as almost to suffocate Him]. 
+And Jesus went with him; and a great crowd kept following Him and pressed Him from all sides [so as almost to suffocate Him]. 
 
 
 
@@ -553,7 +553,7 @@ And there was a woman who had had a flow of blood for twelve years,
 
 
 
-And who had endured much [^i]suffering under [the hands of] many physicians and had spent all that she had, and was no better but instead grew worse. 
+And who had endured much suffering under [the hands of] many physicians and had spent all that she had, and was no better but instead grew worse. 
 
 
 
@@ -616,7 +616,7 @@ For she kept saying, If I only touch His garments, I shall be restored to health
 
 
 
-And immediately her flow of blood was dried up at the source, and [[^j]suddenly] she felt in her body that she was healed of her [[^k]distressing] ailment. 
+And immediately her flow of blood was dried up at the source, and [suddenly] she felt in her body that she was healed of her [distressing] ailment. 
 
 
 
@@ -658,7 +658,7 @@ And Jesus, recognizing in Himself that the power proceeding from Him had gone fo
 
 
 
-And the disciples kept saying to Him, You see the crowd pressing hard around You [^l]from all sides, and You ask, Who touched Me? 
+And the disciples kept saying to Him, You see the crowd pressing hard around You from all sides, and You ask, Who touched Me? 
 
 
 
@@ -721,7 +721,7 @@ But the woman, knowing what had been done for her, though alarmed _and_ frighten
 
 
 
-And He said to her, Daughter, your faith (your [^m]trust and confidence in Me, springing from faith in God) has restored you to health. Go in [^n](into) peace and be continually healed _and_ freed from your [[^o]distressing bodily] disease. 
+And He said to her, Daughter, your faith (your trust and confidence in Me, springing from faith in God) has restored you to health. Go in (into) peace and be continually healed _and_ freed from your [distressing bodily] disease. 
 
 
 
@@ -763,7 +763,7 @@ While He was still speaking, there came some from the ruler's house, who said [t
 
 
 
-[^p]_Overhearing_ but ignoring what they said, Jesus said to the ruler of the synagogue, Do not be seized with alarm _and_ struck with fear; only keep on believing. 
+_Overhearing_ but ignoring what they said, Jesus said to the ruler of the synagogue, Do not be seized with alarm _and_ struck with fear; only keep on believing. 
 
 
 
@@ -805,7 +805,7 @@ And He permitted no one to accompany Him except Peter and James and John the bro
 
 
 
-When they arrived at the house of the ruler of the synagogue, He [^q]looked [carefully and with understanding] at [the] tumult and _the people_ weeping and wailing loudly. 
+When they arrived at the house of the ruler of the synagogue, He looked [carefully and with understanding] at [the] tumult and _the people_ weeping and wailing loudly. 
 
 
 
@@ -847,7 +847,7 @@ And when He had gone in, He said to them, Why do you make an uproar and weep? Th
 
 
 
-And they laughed _and_ [^r]jeered at Him. But He put them all out, and, taking the child's father and mother and those who were with Him, He went in where the little girl was _lying_. 
+And they laughed _and_ jeered at Him. But He put them all out, and, taking the child's father and mother and those who were with Him, He went in where the little girl was _lying_. 
 
 
 
@@ -868,7 +868,7 @@ And they laughed _and_ [^r]jeered at Him. But He put them all out, and, taking t
 
 
 
-Gripping her [firmly] by the hand, He said to her, Talitha cumi--which translated is, Little girl, I say to you, arise [[^s]from the sleep of death]! 
+Gripping her [firmly] by the hand, He said to her, Talitha cumi--which translated is, Little girl, I say to you, arise [from the sleep of death]! 
 
 
 
@@ -910,4 +910,4 @@ And instantly the girl got up and started walking around--for she was twelve yea
 
 
 
-And He strictly commanded _and_ warned them that no one should know this, and He [[^t]expressly] told them to give her [something] to eat.
+And He strictly commanded _and_ warned them that no one should know this, and He [expressly] told them to give her [something] to eat.

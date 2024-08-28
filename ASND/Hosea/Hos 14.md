@@ -270,7 +270,7 @@ Muli silang maninirahan na kinakalinga ko. Sila ay <i class="trans-change">uunla
 
 
 
-"Mga taga-Israel,[^a] lumayo na kayo sa mga dios-diosan. Ako ang tutugon <i class="trans-change">ng inyong mga dalangin_ at ako ang kakalinga sa inyo. <i class="trans-change">Poprotektahan ko kayo;_ akoʼy magiging parang puno ng sipres[^b] na mayabong <i class="trans-change">na magbibigay ng lilim_. Ako ang nagpapaunlad sa inyo."[^c] ## Huling Payo 
+"Mga taga-Israel, lumayo na kayo sa mga dios-diosan. Ako ang tutugon <i class="trans-change">ng inyong mga dalangin_ at ako ang kakalinga sa inyo. <i class="trans-change">Poprotektahan ko kayo;_ akoʼy magiging parang puno ng sipres na mayabong <i class="trans-change">na magbibigay ng lilim_. Ako ang nagpapaunlad sa inyo." ## Huling Payo 
 
 
 

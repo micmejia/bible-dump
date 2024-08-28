@@ -70,7 +70,7 @@ And as for you, remain outside the camp seven days; whoever has killed any perso
 Purify every garment, everything made of leather, everything woven of goats' _hair,_ and everything made of wood." 
 
 ###### 21 
-Then Eleazar the priest said to the men of war who had gone to the battle, "This _is_ the [^a]ordinance of the law which the Lord commanded Moses: 
+Then Eleazar the priest said to the men of war who had gone to the battle, "This _is_ the ordinance of the law which the Lord commanded Moses: 
 
 ###### 22 
 Only the gold, the silver, the bronze, the iron, the tin, and the lead, 
@@ -85,19 +85,19 @@ And you shall wash your clothes on the seventh day and be clean, and afterward y
 Now the Lord spoke to Moses, saying: 
 
 ###### 26 
-"Count up the plunder that was [^b]taken--of man and beast--you and Eleazar the priest and the chief fathers of the congregation; 
+"Count up the plunder that was taken--of man and beast--you and Eleazar the priest and the chief fathers of the congregation; 
 
 ###### 27 
 and divide the plunder into two parts, between those who took part in the war, who went out to battle, and all the congregation. 
 
 ###### 28 
-And levy a [^c]tribute for the Lord on the men of war who went out to battle: one of every five hundred of the persons, the cattle, the donkeys, and the sheep; 
+And levy a tribute for the Lord on the men of war who went out to battle: one of every five hundred of the persons, the cattle, the donkeys, and the sheep; 
 
 ###### 29 
 take _it_ from their half, and give _it_ to Eleazar the priest as a heave offering to the Lord. 
 
 ###### 30 
-And from the children of Israel's half you shall take one of every fifty, drawn from the persons, the cattle, the donkeys, and the sheep, from all the livestock, and give them to the Levites who [^d]keep charge of the tabernacle of the Lord." 
+And from the children of Israel's half you shall take one of every fifty, drawn from the persons, the cattle, the donkeys, and the sheep, from all the livestock, and give them to the Levites who keep charge of the tabernacle of the Lord." 
 
 ###### 31 
 So Moses and Eleazar the priest did as the Lord commanded Moses. 
@@ -118,7 +118,7 @@ and thirty-two thousand persons in all, of women who had not known a man intimat
 And the half, the portion for those who had gone out to war, was in number three hundred and thirty-seven thousand five hundred sheep; 
 
 ###### 37 
-and the Lord's [^e]tribute of the sheep was six hundred and seventy-five. 
+and the Lord's tribute of the sheep was six hundred and seventy-five. 
 
 ###### 38 
 The cattle _were_ thirty-six thousand, of which the Lord's tribute _was_ seventy-two. 
@@ -157,7 +157,7 @@ Then the officers who _were_ over thousands of the army, the captains of thousan
 and they said to Moses, "Your servants have taken a count of the men of war who _are_ under our command, and not a man of us is missing. 
 
 ###### 50 
-Therefore we have brought an offering for the Lord, what every man found of ornaments of gold: armlets and bracelets and signet rings and earrings and necklaces, to make [^f]atonement for ourselves before the Lord." 
+Therefore we have brought an offering for the Lord, what every man found of ornaments of gold: armlets and bracelets and signet rings and earrings and necklaces, to make atonement for ourselves before the Lord." 
 
 ###### 51 
 So Moses and Eleazar the priest received the gold from them, all the fashioned ornaments. 

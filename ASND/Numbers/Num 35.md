@@ -832,7 +832,7 @@ dadalhin pa rin siya sa kapulungan kasama ng taong gustong maghiganti sa kanya, 
 
 
 
-<i class="trans-change">Kung mapatunayan na hindi niya sinasadya ang pagpatay,_ kailangang proteksyunan ng sambayanan ang taong nakapatay laban sa mga tao na gustong maghiganti sa kanya, at ibabalik siya sa lungsod na tanggulan, kung saan siya tumakas. Kailangang magpaiwan siya roon hanggang hindi pa namamatay ang punong pari na itinalaga sa paglilingkod.[^a] 
+<i class="trans-change">Kung mapatunayan na hindi niya sinasadya ang pagpatay,_ kailangang proteksyunan ng sambayanan ang taong nakapatay laban sa mga tao na gustong maghiganti sa kanya, at ibabalik siya sa lungsod na tanggulan, kung saan siya tumakas. Kailangang magpaiwan siya roon hanggang hindi pa namamatay ang punong pari na itinalaga sa paglilingkod. 
 
 
 

@@ -19,19 +19,19 @@ For length of days and long life And peace they will add to you.
 Let not mercy and truth forsake you; Bind them around your neck, Write them on the tablet of your heart, 
 
 ###### 4 
-_And_ so find favor and [^a]high esteem In the sight of God and man. 
+_And_ so find favor and high esteem In the sight of God and man. 
 
 ###### 5 
 Trust in the Lord with all your heart, And lean not on your own understanding; 
 
 ###### 6 
-In all your ways acknowledge Him, And He shall [^b]direct your paths. 
+In all your ways acknowledge Him, And He shall direct your paths. 
 
 ###### 7 
 Do not be wise in your own eyes; Fear the Lord and depart from evil. 
 
 ###### 8 
-It will be health to your [^c]flesh, And strength[^d] to your bones. 
+It will be health to your flesh, And strength to your bones. 
 
 ###### 9 
 Honor the Lord with your possessions, And with the firstfruits of all your increase; 
@@ -61,7 +61,7 @@ Length of days _is_ in her right hand, In her left hand riches and honor.
 Her ways _are_ ways of pleasantness, And all her paths _are_ peace. 
 
 ###### 18 
-She _is_ a tree of life to those who take hold of her, And happy _are all_ who [^e]retain her. 
+She _is_ a tree of life to those who take hold of her, And happy _are all_ who retain her. 
 
 ###### 19 
 The Lord by wisdom founded the earth; By understanding He established the heavens; 
@@ -88,7 +88,7 @@ Do not be afraid of sudden terror, Nor of trouble from the wicked when it comes;
 For the Lord will be your confidence, And will keep your foot from being caught. 
 
 ###### 27 
-Do not withhold good from [^f]those to whom it is due, When it is in the power of your hand to do _so._ 
+Do not withhold good from those to whom it is due, When it is in the power of your hand to do _so._ 
 
 ###### 28 
 Do not say to your neighbor, "Go, and come back, And tomorrow I will give _it,_" When you have it with you. 

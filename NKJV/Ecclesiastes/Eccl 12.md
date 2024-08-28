@@ -9,7 +9,7 @@ up: ['Ecclesiastes']
 
 
 ###### 1 
-Remember now your Creator in the days of your youth, Before the [^a]difficult days come, And the years draw near when you say, "I have no pleasure in them": 
+Remember now your Creator in the days of your youth, Before the difficult days come, And the years draw near when you say, "I have no pleasure in them": 
 
 ###### 2 
 While the sun and the light, The moon and the stars, Are not darkened, And the clouds do not return after the rain; 
@@ -24,7 +24,7 @@ When the doors are shut in the streets, And the sound of grinding is low; When o
 Also they are afraid of height, And of terrors in the way; When the almond tree blossoms, The grasshopper is a burden, And desire fails. For man goes to his eternal home, And the mourners go about the streets. 
 
 ###### 6 
-_Remember your Creator_ before the silver cord is [^b]loosed, Or the golden bowl is broken, Or the pitcher shattered at the fountain, Or the wheel broken at the well. 
+_Remember your Creator_ before the silver cord is loosed, Or the golden bowl is broken, Or the pitcher shattered at the fountain, Or the wheel broken at the well. 
 
 ###### 7 
 Then the dust will return to the earth as it was, And the spirit will return to God who gave it. 
@@ -33,13 +33,13 @@ Then the dust will return to the earth as it was, And the spirit will return to 
 "Vanity of vanities," says the Preacher, "All _is_ vanity." ## The Whole Duty of Man 
 
 ###### 9 
-And moreover, because the Preacher was wise, he still taught the people knowledge; yes, he pondered and sought out _and_ set[^c] in order many proverbs. 
+And moreover, because the Preacher was wise, he still taught the people knowledge; yes, he pondered and sought out _and_ set in order many proverbs. 
 
 ###### 10 
-The Preacher sought to find [^d]acceptable words; and _what was_ written _was_ upright--words of truth. 
+The Preacher sought to find acceptable words; and _what was_ written _was_ upright--words of truth. 
 
 ###### 11 
-The words of the wise are like goads, and the words of [^e]scholars are like well-driven nails, given by one Shepherd. 
+The words of the wise are like goads, and the words of scholars are like well-driven nails, given by one Shepherd. 
 
 ###### 12 
 And further, my son, be admonished by these. Of making many books _there is_ no end, and much study _is_ wearisome to the flesh. 

@@ -49,7 +49,7 @@ Then Jesus, full of _and_ controlled by the Holy Spirit, returned from the Jorda
 
 
 
-For (during) forty days in the wilderness (desert), where He was tempted ([^a]tried, tested exceedingly) by the devil. And He ate nothing during those days, and when they were completed, He was hungry. 
+For (during) forty days in the wilderness (desert), where He was tempted (tried, tested exceedingly) by the devil. And He ate nothing during those days, and when they were completed, He was hungry. 
 
 
 
@@ -91,7 +91,7 @@ Then the devil said to Him, If You are the Son of God, order this stone to turn 
 
 
 
-And Jesus replied to him, It is written, Man shall not live _and_ be sustained by (on) bread alone [^b]_but by every word and expression of God_. 
+And Jesus replied to him, It is written, Man shall not live _and_ be sustained by (on) bread alone _but by every word and expression of God_. 
 
 
 
@@ -112,7 +112,7 @@ And Jesus replied to him, It is written, Man shall not live _and_ be sustained b
 
 
 
-Then the devil took Him up to a high mountain and showed Him all the kingdoms of the habitable world in a moment of time [[^c]in the twinkling of an eye]. 
+Then the devil took Him up to a high mountain and showed Him all the kingdoms of the habitable world in a moment of time [in the twinkling of an eye]. 
 
 
 
@@ -154,7 +154,7 @@ And he said to Him, To You I will give all this power _and_ authority and their 
 
 
 
-Therefore if You will do homage to _and_ worship me [[^d]just once], it shall all be Yours. 
+Therefore if You will do homage to _and_ worship me [just once], it shall all be Yours. 
 
 
 
@@ -175,7 +175,7 @@ Therefore if You will do homage to _and_ worship me [[^d]just once], it shall al
 
 
 
-And Jesus replied to him, [^e]_Get behind Me, Satan_! It is written, You shall do homage to _and_ worship the Lord your God, and Him only shall you serve. 
+And Jesus replied to him, _Get behind Me, Satan_! It is written, You shall do homage to _and_ worship the Lord your God, and Him only shall you serve. 
 
 
 
@@ -196,7 +196,7 @@ And Jesus replied to him, [^e]_Get behind Me, Satan_! It is written, You shall d
 
 
 
-Then he took Him to Jerusalem and set Him on [^f]a gable of the temple, and said to Him, If You are the Son of God, cast Yourself down from here; 
+Then he took Him to Jerusalem and set Him on a gable of the temple, and said to Him, If You are the Son of God, cast Yourself down from here; 
 
 
 
@@ -259,7 +259,7 @@ And on their hands they will bear you up, lest you strike your foot against a st
 
 
 
-And Jesus replied to him, [The Scripture] says, You shall not tempt (try, [^g]test exceedingly) the Lord your God. 
+And Jesus replied to him, [The Scripture] says, You shall not tempt (try, test exceedingly) the Lord your God. 
 
 
 
@@ -280,7 +280,7 @@ And Jesus replied to him, [The Scripture] says, You shall not tempt (try, [^g]te
 
 
 
-And when the devil had ended every [the complete cycle of] temptation, he [temporarily] left Him [that is, [^h]stood off from Him] until another more opportune _and_ favorable time. 
+And when the devil had ended every [the complete cycle of] temptation, he [temporarily] left Him [that is, stood off from Him] until another more opportune _and_ favorable time. 
 
 
 
@@ -322,7 +322,7 @@ Then Jesus went back full of _and_ under the power of the [Holy] Spirit into Gal
 
 
 
-And He Himself conducted [[^i]a course of] teaching in their synagogues, being [^j]recognized _and_ honored _and_ praised by all. 
+And He Himself conducted [a course of] teaching in their synagogues, being recognized _and_ honored _and_ praised by all. 
 
 
 
@@ -343,7 +343,7 @@ And He Himself conducted [[^i]a course of] teaching in their synagogues, being [
 
 
 
-So He came to Nazareth, [[^k]that Nazareth] where He had been brought up, and He entered the synagogue, as was His custom on the Sabbath day. And He stood up to read. 
+So He came to Nazareth, [that Nazareth] where He had been brought up, and He entered the synagogue, as was His custom on the Sabbath day. And He stood up to read. 
 
 
 
@@ -406,7 +406,7 @@ The Spirit of the Lord [is] upon Me, because He has anointed Me [the Anointed On
 
 
 
-To proclaim the accepted _and_ acceptable year of the Lord [the day [^l]when salvation and the free favors of God profusely abound]. 
+To proclaim the accepted _and_ acceptable year of the Lord [the day when salvation and the free favors of God profusely abound]. 
 
 
 
@@ -448,7 +448,7 @@ Then He rolled up the book and gave it back to the attendant and sat down; and t
 
 
 
-And He began to speak to them: Today this Scripture has been fulfilled [^m]while you are present _and_ hearing. 
+And He began to speak to them: Today this Scripture has been fulfilled while you are present _and_ hearing. 
 
 
 
@@ -469,7 +469,7 @@ And He began to speak to them: Today this Scripture has been fulfilled [^m]while
 
 
 
-And all spoke well of Him and marveled at the words of grace that came forth from His mouth; and they said, Is not this Joseph's [^n]Son? 
+And all spoke well of Him and marveled at the words of grace that came forth from His mouth; and they said, Is not this Joseph's Son? 
 
 
 
@@ -721,7 +721,7 @@ Now in the synagogue there was a man who was possessed by the foul spirit of a d
 
 
 
-Ah, [^o]_let us alone_! What have You to do with us [What have [^p]we in common], Jesus of Nazareth? Have You come to destroy us? I know Who You are--the Holy One of God! 
+Ah, _let us alone_! What have You to do with us [What have we in common], Jesus of Nazareth? Have You come to destroy us? I know Who You are--the Holy One of God! 
 
 
 
@@ -742,7 +742,7 @@ Ah, [^o]_let us alone_! What have You to do with us [What have [^p]we in common]
 
 
 
-But Jesus rebuked him, saying, Be silent (muzzled, gagged), and come out of him! And when the demon had thrown the man down in their midst, he came out of him without injuring him in any [^q]possible way. 
+But Jesus rebuked him, saying, Be silent (muzzled, gagged), and come out of him! And when the demon had thrown the man down in their midst, he came out of him without injuring him in any possible way. 
 
 
 

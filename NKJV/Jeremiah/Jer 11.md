@@ -22,7 +22,7 @@ and say to them, 'Thus says the Lord God of Israel: "Cursed _is_ the man who doe
 which I commanded your fathers in the day I brought them out of the land of Egypt, from the iron furnace, saying, 'Obey My voice, and do according to all that I command you; so shall you be My people, and I will be your God,' 
 
 ###### 5 
-that I may establish the oath which I have sworn to your fathers, to give them 'a land flowing with milk and honey,' as _it is_ this day." ' " And I answered and said, [^a]"So be it, Lord." 
+that I may establish the oath which I have sworn to your fathers, to give them 'a land flowing with milk and honey,' as _it is_ this day." ' " And I answered and said, "So be it, Lord." 
 
 ###### 6 
 Then the Lord said to me, "Proclaim all these words in the cities of Judah and in the streets of Jerusalem, saying: 'Hear the words of this covenant and do them. 
@@ -31,7 +31,7 @@ Then the Lord said to me, "Proclaim all these words in the cities of Judah and i
 For I earnestly exhorted your fathers in the day I brought them up out of the land of Egypt, until this day, rising early and exhorting, saying, "Obey My voice." 
 
 ###### 8 
-Yet they did not obey or incline their ear, but everyone [^b]followed the dictates of his evil heart; therefore I will bring upon them all the words of this covenant, which I commanded _them_ to do, but _which_ they have not done.' " 
+Yet they did not obey or incline their ear, but everyone followed the dictates of his evil heart; therefore I will bring upon them all the words of this covenant, which I commanded _them_ to do, but _which_ they have not done.' " 
 
 ###### 9 
 And the Lord said to me, "A conspiracy has been found among the men of Judah and among the inhabitants of Jerusalem. 
@@ -40,7 +40,7 @@ And the Lord said to me, "A conspiracy has been found among the men of Judah and
 They have turned back to the iniquities of their forefathers who refused to hear My words, and they have gone after other gods to serve them; the house of Israel and the house of Judah have broken My covenant which I made with their fathers." 
 
 ###### 11 
-Therefore thus says the Lord: "Behold, I will surely bring calamity on them which they will not be able to [^c]escape; and though they cry out to Me, I will not listen to them. 
+Therefore thus says the Lord: "Behold, I will surely bring calamity on them which they will not be able to escape; and though they cry out to Me, I will not listen to them. 
 
 ###### 12 
 Then the cities of Judah and the inhabitants of Jerusalem will go and cry out to the gods to whom they offer incense, but they will not save them at all in the time of their trouble. 
@@ -67,7 +67,7 @@ Now the Lord gave me knowledge _of it,_ and I know _it;_ for You showed me their
 But I _was_ like a docile lamb brought to the slaughter; and I did not know that they had devised schemes against me, _saying,_ "Let us destroy the tree with its fruit, and let us cut him off from the land of the living, that his name may be remembered no more." 
 
 ###### 20 
-But, O Lord of hosts, You who judge righteously, Testing the [^d]mind and the heart, Let me see Your vengeance on them, For to You I have revealed my cause. 
+But, O Lord of hosts, You who judge righteously, Testing the mind and the heart, Let me see Your vengeance on them, For to You I have revealed my cause. 
 
 ###### 21 
 "Therefore thus says the Lord concerning the men of Anathoth who seek your life, saying, 'Do not prophesy in the name of the Lord, lest you die by our hand'-- 

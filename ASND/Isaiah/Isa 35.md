@@ -238,7 +238,7 @@ Lulundag na parang usa ang mga pilay at sisigaw sa tuwa ang mga pipi. Aagos ang 
 
 
 
-Ang mainit na buhanginan ay magiging tubigan. At sa tigang na lupain ay bubukal ang tubig. Tutubo ang sari-saring damo sa lugar na tinitirhan noon ng mga asong-gubat.[^a] 
+Ang mainit na buhanginan ay magiging tubigan. At sa tigang na lupain ay bubukal ang tubig. Tutubo ang sari-saring damo sa lugar na tinitirhan noon ng mga asong-gubat. 
 
 
 
@@ -304,7 +304,7 @@ Magkakaroon ng maluwang na lansangan sa ilang at iyon ay tatawaging, "Banal na L
 
 
 
-Walang leon o anumang mababangis na hayop na makakaraan doon kundi ang mga tinubos[^b] lamang ng Panginoon. 
+Walang leon o anumang mababangis na hayop na makakaraan doon kundi ang mga tinubos lamang ng Panginoon. 
 
 
 

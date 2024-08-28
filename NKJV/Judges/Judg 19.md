@@ -16,7 +16,7 @@ And it came to pass in those days, when _there was_ no king in Israel, that ther
 But his concubine played the harlot against him, and went away from him to her father's house at Bethlehem in Judah, and was there four whole months. 
 
 ###### 3 
-Then her husband arose and went after her, to speak [^a]kindly to her _and_ bring her back, having his servant and a couple of donkeys with him. So she brought him into her father's house; and when the father of the young woman saw him, he was glad to meet him. 
+Then her husband arose and went after her, to speak kindly to her _and_ bring her back, having his servant and a couple of donkeys with him. So she brought him into her father's house; and when the father of the young woman saw him, he was glad to meet him. 
 
 ###### 4 
 Now his father-in-law, the young woman's father, detained him; and he stayed with him three days. So they ate and drank and lodged there. 
@@ -34,7 +34,7 @@ And when the man stood to depart, his father-in-law urged him; so he lodged ther
 Then he arose early in the morning on the fifth day to depart, but the young woman's father said, "Please refresh your heart." So they delayed until afternoon; and both of them ate. 
 
 ###### 9 
-And when the man stood to depart--he and his concubine and his servant--his father-in-law, the young woman's father, said to him, "Look, the day is now drawing toward evening; please spend the night. See, the day is coming to an end; lodge here, that your heart may be merry. Tomorrow go your way early, so that you may get [^b]home." 
+And when the man stood to depart--he and his concubine and his servant--his father-in-law, the young woman's father, said to him, "Look, the day is now drawing toward evening; please spend the night. See, the day is coming to an end; lodge here, that your heart may be merry. Tomorrow go your way early, so that you may get home." 
 
 ###### 10 
 However, the man was not willing to spend that night; so he rose and departed, and came opposite Jebus (that _is,_ Jerusalem). With him were the two saddled donkeys; his concubine _was_ also with him. 
@@ -73,13 +73,13 @@ And the old man said, "Peace _be_ with you! However, _let_ all your needs _be_ m
 So he brought him into his house, and gave fodder to the donkeys. And they washed their feet, and ate and drank. ## Gibeah's Crime 
 
 ###### 22 
-As they were enjoying themselves, suddenly certain men of the city, perverted[^c] men, surrounded the house _and_ beat on the door. They spoke to the master of the house, the old man, saying, "Bring out the man who came to your house, that we may know him _carnally!_" 
+As they were enjoying themselves, suddenly certain men of the city, perverted men, surrounded the house _and_ beat on the door. They spoke to the master of the house, the old man, saying, "Bring out the man who came to your house, that we may know him _carnally!_" 
 
 ###### 23 
 But the man, the master of the house, went out to them and said to them, "No, my brethren! I beg you, do not act _so_ wickedly! Seeing this man has come into my house, do not commit this outrage. 
 
 ###### 24 
-Look, _here is_ my virgin daughter and [^d]_the man's_ concubine; let me bring them out now. Humble them, and do with them as you please; but to this man do not do such a vile thing!" 
+Look, _here is_ my virgin daughter and _the man's_ concubine; let me bring them out now. Humble them, and do with them as you please; but to this man do not do such a vile thing!" 
 
 ###### 25 
 But the men would not heed him. So the man took his concubine and brought _her_ out to them. And they knew her and abused her all night until morning; and when the day began to break, they let her go. 
@@ -94,7 +94,7 @@ When her master arose in the morning, and opened the doors of the house and went
 And he said to her, "Get up and let us be going." But there was no answer. So the man lifted her onto the donkey; and the man got up and went to his place. 
 
 ###### 29 
-When he entered his house he took a knife, laid hold of his concubine, and divided her into twelve pieces, [^e]limb by limb, and sent her throughout all the territory of Israel. 
+When he entered his house he took a knife, laid hold of his concubine, and divided her into twelve pieces, limb by limb, and sent her throughout all the territory of Israel. 
 
 ###### 30 
 And so it was that all who saw it said, "No such deed has been done or seen from the day that the children of Israel came up from the land of Egypt until this day. Consider it, confer, and speak up!"

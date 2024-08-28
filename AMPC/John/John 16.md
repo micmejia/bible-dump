@@ -490,7 +490,7 @@ So for the present you are also in sorrow (in distress and depressed); but I wil
 
 
 
-And when that time comes, you will ask nothing of Me [you will need to ask Me no questions]. I assure you, most solemnly I tell you, that My Father will grant you whatever you ask in My Name [as [^a]presenting all that I Am]. 
+And when that time comes, you will ask nothing of Me [you will need to ask Me no questions]. I assure you, most solemnly I tell you, that My Father will grant you whatever you ask in My Name [as presenting all that I Am]. 
 
 
 
@@ -511,7 +511,7 @@ And when that time comes, you will ask nothing of Me [you will need to ask Me no
 
 
 
-Up to this time you have not asked a [single] thing in My Name [as [^b]presenting all that I Am]; but now ask _and_ keep on asking and you will receive, so that your joy (gladness, delight) may be full _and_ complete. 
+Up to this time you have not asked a [single] thing in My Name [as presenting all that I Am]; but now ask _and_ keep on asking and you will receive, so that your joy (gladness, delight) may be full _and_ complete. 
 
 
 

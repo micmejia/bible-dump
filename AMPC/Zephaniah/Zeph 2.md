@@ -154,7 +154,7 @@ And the seacoast shall be pastures, with [deserted] dwelling places _and_ caves 
 
 
 
-The [^a]seacoast shall belong to the remnant of the house of Judah; they shall pasture their flocks upon it; in the houses of [deserted Philistine] Ashkelon shall they of Judah lie down in the evening. For the Lord their [Judah's] God shall visit them [for their relief] and restore them from their captivity. 
+The seacoast shall belong to the remnant of the house of Judah; they shall pasture their flocks upon it; in the houses of [deserted Philistine] Ashkelon shall they of Judah lie down in the evening. For the Lord their [Judah's] God shall visit them [for their relief] and restore them from their captivity. 
 
 
 

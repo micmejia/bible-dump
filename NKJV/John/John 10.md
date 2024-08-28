@@ -31,7 +31,7 @@ Jesus used this illustration, but they did not understand the things which He sp
 Then Jesus said to them again, "Most assuredly, I say to you, I am the door of the sheep. 
 
 ###### 8 
-All who _ever_ came [^a]before Me are thieves and robbers, but the sheep did not hear them. 
+All who _ever_ came before Me are thieves and robbers, but the sheep did not hear them. 
 
 ###### 9 
 I am the door. If anyone enters by Me, he will be saved, and will go in and out and find pasture. 
@@ -43,7 +43,7 @@ The thief does not come except to steal, and to kill, and to destroy. I have com
 "I am the good shepherd. The good shepherd gives His life for the sheep. 
 
 ###### 12 
-But a [^b]hireling, _he who is_ not the shepherd, one who does not own the sheep, sees the wolf coming and leaves the sheep and flees; and the wolf catches the sheep and scatters them. 
+But a hireling, _he who is_ not the shepherd, one who does not own the sheep, sees the wolf coming and leaves the sheep and flees; and the wolf catches the sheep and scatters them. 
 
 ###### 13 
 The hireling flees because he is a hireling and does not care about the sheep. 
@@ -67,7 +67,7 @@ No one takes it from Me, but I lay it down of Myself. I have power to lay it dow
 Therefore there was a division again among the Jews because of these sayings. 
 
 ###### 20 
-And many of them said, "He has a demon and is [^c]mad. Why do you listen to Him?" 
+And many of them said, "He has a demon and is mad. Why do you listen to Him?" 
 
 ###### 21 
 Others said, "These are not the words of one who has a demon. Can a demon open the eyes of the blind?" ## The Shepherd Knows His Sheep 
@@ -79,13 +79,13 @@ Now it was the Feast of Dedication in Jerusalem, and it was winter.
 And Jesus walked in the temple, in Solomon's porch. 
 
 ###### 24 
-Then the Jews surrounded Him and said to Him, "How long do You keep us in [^d]doubt? If You are the Christ, tell us plainly." 
+Then the Jews surrounded Him and said to Him, "How long do You keep us in doubt? If You are the Christ, tell us plainly." 
 
 ###### 25 
 Jesus answered them, "I told you, and you do not believe. The works that I do in My Father's name, they bear witness of Me. 
 
 ###### 26 
-But you do not believe, because you are not of My sheep, [^e]as I said to you. 
+But you do not believe, because you are not of My sheep, as I said to you. 
 
 ###### 27 
 My sheep hear My voice, and I know them, and they follow Me. 
@@ -121,7 +121,7 @@ do you say of Him whom the Father sanctified and sent into the world, 'You are b
 If I do not do the works of My Father, do not believe Me; 
 
 ###### 38 
-but if I do, though you do not believe Me, believe the works, that you may know and [^f]believe that the Father _is_ in Me, and I in Him." 
+but if I do, though you do not believe Me, believe the works, that you may know and believe that the Father _is_ in Me, and I in Him." 
 
 ###### 39 
 Therefore they sought again to seize Him, but He escaped out of their hand. ## The Believers Beyond Jordan 

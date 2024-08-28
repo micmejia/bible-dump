@@ -385,7 +385,7 @@ Then certain of the elders of the land arose and said to all the assembly of the
 
 
 
-Micah of Moresheth prophesied in the days of Hezekiah king of Judah and said to all the people of Judah, Thus says the Lord of hosts: Zion shall be [^a]plowed like a field, and Jerusalem shall become heaps [of ruins], and the mountain of the house [of the Lord--Mount Moriah, on which stands the temple, shall become covered not with buildings, but] like a densely wooded height. 
+Micah of Moresheth prophesied in the days of Hezekiah king of Judah and said to all the people of Judah, Thus says the Lord of hosts: Zion shall be plowed like a field, and Jerusalem shall become heaps [of ruins], and the mountain of the house [of the Lord--Mount Moriah, on which stands the temple, shall become covered not with buildings, but] like a densely wooded height. 
 
 
 

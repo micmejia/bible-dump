@@ -133,7 +133,7 @@ And the Lord came down to see the city and the tower which the sons of men had b
 
 
 
-And the Lord said, Behold, they are one people and they have [^a]all one language; and this is only the beginning of what they will do, and now nothing they have imagined they can do will be impossible for them. 
+And the Lord said, Behold, they are one people and they have all one language; and this is only the beginning of what they will do, and now nothing they have imagined they can do will be impossible for them. 
 
 
 
@@ -553,7 +553,7 @@ And Nahor lived after Terah was born 119 years and had other sons and daughters.
 
 
 
-After Terah had lived 70 years, he became the father of [at different times], [^b]Abram and Nahor and Haran, [his firstborn]. 
+After Terah had lived 70 years, he became the father of [at different times], Abram and Nahor and Haran, [his firstborn]. 
 
 
 
@@ -595,7 +595,7 @@ Now this is the history of the descendants of Terah. Terah was the father of Abr
 
 
 
-Haran died before his father Terah [died] in the land of his birth, in [^c]Ur of the Chaldees. 
+Haran died before his father Terah [died] in the land of his birth, in Ur of the Chaldees. 
 
 
 

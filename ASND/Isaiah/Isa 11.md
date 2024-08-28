@@ -40,7 +40,7 @@ next: ['Isa 12']
 
 
 
-Ang maharlikang angkan ni David[^a] ay parang punong pinutol. Pero kung papaanong ang tuod ay nagkakaroon ng usbong, darating din ang isang bagong hari mula sa angkan ni David. 
+Ang maharlikang angkan ni David ay parang punong pinutol. Pero kung papaanong ang tuod ay nagkakaroon ng usbong, darating din ang isang bagong hari mula sa angkan ni David. 
 
 
 
@@ -370,7 +370,7 @@ Darating ang araw at isisilang ang bagong hari mula sa lahi ni David na magsisil
 
 
 
-Sa araw na iyon, muling gagamitin ng Panginoon ang kanyang kapangyarihan para pauwiin ang mga natitira sa mga mamamayan niya na dinalang bihag sa Asiria, Egipto, Patros, Etiopia,[^b] Elam, Babilonia, Hamat at sa iba pang malalayong lugar. 
+Sa araw na iyon, muling gagamitin ng Panginoon ang kanyang kapangyarihan para pauwiin ang mga natitira sa mga mamamayan niya na dinalang bihag sa Asiria, Egipto, Patros, Etiopia, Elam, Babilonia, Hamat at sa iba pang malalayong lugar. 
 
 
 

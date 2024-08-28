@@ -153,7 +153,7 @@ You shall set the altar of the burnt offering before the door of the tabernacle 
 
 
 
-And you shall [^a]set the laver between the Tent of Meeting and the altar and put water in it. 
+And you shall set the laver between the Tent of Meeting and the altar and put water in it. 
 
 
 

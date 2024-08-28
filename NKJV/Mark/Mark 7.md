@@ -13,10 +13,10 @@ next: ['Mark 8']
 Then the Pharisees and some of the scribes came together to Him, having come from Jerusalem. 
 
 ###### 2 
-Now [^a]when they saw some of His disciples eat bread with defiled, that is, with unwashed hands, [^b]they found fault. 
+Now when they saw some of His disciples eat bread with defiled, that is, with unwashed hands, they found fault. 
 
 ###### 3 
-For the Pharisees and all the Jews do not eat unless they wash _their_ hands [^c]in a special way, holding the tradition of the elders. 
+For the Pharisees and all the Jews do not eat unless they wash _their_ hands in a special way, holding the tradition of the elders. 
 
 ###### 4 
 _When they come_ from the marketplace, they do not eat unless they wash. And there are many other things which they have received and hold, _like_ the washing of cups, pitchers, copper vessels, and couches. 
@@ -31,10 +31,10 @@ He answered and said to them, "Well did Isaiah prophesy of you hypocrites, as it
 And in vain they worship Me, Teaching _as_ doctrines the commandments of men.' 
 
 ###### 8 
-For laying aside the commandment of God, you hold the tradition of men--[^d]the washing of pitchers and cups, and many other such things you do." 
+For laying aside the commandment of God, you hold the tradition of men--the washing of pitchers and cups, and many other such things you do." 
 
 ###### 9 
-He said to them, "_All too_ well you [^e]reject the commandment of God, that you may keep your tradition. 
+He said to them, "_All too_ well you reject the commandment of God, that you may keep your tradition. 
 
 ###### 10 
 For Moses said, 'Honor your father and your mother'; and, 'He who curses father or mother, let him be put to death.' 
@@ -55,7 +55,7 @@ When He had called all the multitude to _Himself,_ He said to them, "Hear Me, ev
 There is nothing that enters a man from outside which can defile him; but the things which come out of him, those are the things that defile a man. 
 
 ###### 16 
-If[^f] anyone has ears to hear, let him hear!" 
+If anyone has ears to hear, let him hear!" 
 
 ###### 17 
 When He had entered a house away from the crowd, His disciples asked Him concerning the parable. 
@@ -64,7 +64,7 @@ When He had entered a house away from the crowd, His disciples asked Him concern
 So He said to them, "Are you thus without understanding also? Do you not perceive that whatever enters a man from outside cannot defile him, 
 
 ###### 19 
-because it does not enter his heart but his stomach, and is eliminated, [^g]_thus_ purifying all foods?" 
+because it does not enter his heart but his stomach, and is eliminated, _thus_ purifying all foods?" 
 
 ###### 20 
 And He said, "What comes out of a man, that defiles a man. 
@@ -79,13 +79,13 @@ thefts, covetousness, wickedness, deceit, lewdness, an evil eye, blasphemy, prid
 All these evil things come from within and defile a man." ## A Gentile Shows Her Faith 
 
 ###### 24 
-From there He arose and went to the region of Tyre [^h]and Sidon. And He entered a house and wanted no one to know _it,_ but He could not be hidden. 
+From there He arose and went to the region of Tyre and Sidon. And He entered a house and wanted no one to know _it,_ but He could not be hidden. 
 
 ###### 25 
 For a woman whose young daughter had an unclean spirit heard about Him, and she came and fell at His feet. 
 
 ###### 26 
-The woman was a [^i]Greek, a [^j]Syro-Phoenician by birth, and she kept [^k]asking Him to cast the demon out of her daughter. 
+The woman was a Greek, a Syro-Phoenician by birth, and she kept asking Him to cast the demon out of her daughter. 
 
 ###### 27 
 But Jesus said to her, "Let the children be filled first, for it is not good to take the children's bread and throw _it_ to the little dogs." 
@@ -112,7 +112,7 @@ And He took him aside from the multitude, and put His fingers in his ears, and H
 Then, looking up to heaven, He sighed, and said to him, "Ephphatha," that is, "Be opened." 
 
 ###### 35 
-Immediately his ears were opened, and the [^l]impediment of his tongue was loosed, and he spoke plainly. 
+Immediately his ears were opened, and the impediment of his tongue was loosed, and he spoke plainly. 
 
 ###### 36 
 Then He commanded them that they should tell no one; but the more He commanded them, the more widely they proclaimed _it._ 

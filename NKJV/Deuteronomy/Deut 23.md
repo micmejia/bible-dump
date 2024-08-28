@@ -19,7 +19,7 @@ next: ['Deut 24']
 "An Ammonite or Moabite shall not enter the assembly of the Lord; even to the tenth generation none of his _descendants_ shall enter the assembly of the Lord forever, 
 
 ###### 4 
-because they did not meet you with bread and water on the road when you came out of Egypt, and because they hired against you Balaam the son of Beor from Pethor of [^a]Mesopotamia, to curse you. 
+because they did not meet you with bread and water on the road when you came out of Egypt, and because they hired against you Balaam the son of Beor from Pethor of Mesopotamia, to curse you. 
 
 ###### 5 
 Nevertheless the Lord your God would not listen to Balaam, but the Lord your God turned the curse into a blessing for you, because the Lord your God loves you. 
@@ -55,13 +55,13 @@ For the Lord your God walks in the midst of your camp, to deliver you and give y
 "You shall not give back to his master the slave who has escaped from his master to you. 
 
 ###### 16 
-He may dwell with you in your midst, in the place which he chooses within one of your gates, where it [^b]seems best to him; you shall not oppress him. 
+He may dwell with you in your midst, in the place which he chooses within one of your gates, where it seems best to him; you shall not oppress him. 
 
 ###### 17 
-"There shall be no _ritual_ [^c]harlot of the daughters of Israel, or a perverted[^d] one of the sons of Israel. 
+"There shall be no _ritual_ harlot of the daughters of Israel, or a perverted one of the sons of Israel. 
 
 ###### 18 
-You shall not bring the wages of a harlot or the price of a dog to the house of the Lord your God for any vowed offering, for both of these _are_ [^e]an abomination to the Lord your God. 
+You shall not bring the wages of a harlot or the price of a dog to the house of the Lord your God for any vowed offering, for both of these _are_ an abomination to the Lord your God. 
 
 ###### 19 
 "You shall not charge interest to your brother--interest on money _or_ food _or_ anything that is lent out at interest. 

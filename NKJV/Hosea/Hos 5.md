@@ -10,7 +10,7 @@ next: ['Hos 6']
 
 
 ###### 1 
-"Hear this, O priests! Take heed, O house of Israel! Give ear, O house of the king! For [^a]yours _is_ the judgment, Because you have been a snare to Mizpah And a net spread on Tabor. 
+"Hear this, O priests! Take heed, O house of Israel! Give ear, O house of the king! For yours _is_ the judgment, Because you have been a snare to Mizpah And a net spread on Tabor. 
 
 ###### 2 
 The revolters are deeply involved in slaughter, Though I rebuke them all. 
@@ -19,7 +19,7 @@ The revolters are deeply involved in slaughter, Though I rebuke them all.
 I know Ephraim, And Israel is not hidden from Me; For now, O Ephraim, you commit harlotry; Israel is defiled. 
 
 ###### 4 
-"They[^b] do not direct their deeds Toward turning to their God, For the spirit of harlotry is in their midst, And they do not know the Lord. 
+"They do not direct their deeds Toward turning to their God, For the spirit of harlotry is in their midst, And they do not know the Lord. 
 
 ###### 5 
 The pride of Israel testifies to his face; Therefore Israel and Ephraim stumble in their iniquity; Judah also stumbles with them. 
@@ -28,7 +28,7 @@ The pride of Israel testifies to his face; Therefore Israel and Ephraim stumble 
 "With their flocks and herds They shall go to seek the Lord, But they will not find _Him;_ He has withdrawn Himself from them. 
 
 ###### 7 
-They have dealt treacherously with the Lord, For they have begotten [^c]pagan children. Now a New Moon shall devour them and their heritage. 
+They have dealt treacherously with the Lord, For they have begotten pagan children. Now a New Moon shall devour them and their heritage. 
 
 ###### 8 
 "Blow the ram's horn in Gibeah, The trumpet in Ramah! Cry aloud _at_ Beth Aven, '_Look_ behind you, O Benjamin!' 
@@ -52,4 +52,4 @@ Therefore I _will be_ to Ephraim like a moth, And to the house of Judah like rot
 For I _will be_ like a lion to Ephraim, And like a young lion to the house of Judah. I, _even_ I, will tear _them_ and go away; I will take _them_ away, and no one shall rescue. 
 
 ###### 15 
-I will return again to My place Till they [^d]acknowledge their offense. Then they will seek My face; In their affliction they will earnestly seek Me."
+I will return again to My place Till they acknowledge their offense. Then they will seek My face; In their affliction they will earnestly seek Me."

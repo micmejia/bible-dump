@@ -70,7 +70,7 @@ If anyone imagines that he has come to know _and_ understand much [of divine thi
 
 
 
-But if one loves God truly [[^a]with affectionate reverence, prompt obedience, and grateful recognition of His blessing], he is known by God [[^b]recognized as worthy of His intimacy and love, and he is owned by Him]. 
+But if one loves God truly [with affectionate reverence, prompt obedience, and grateful recognition of His blessing], he is known by God [recognized as worthy of His intimacy and love, and he is owned by Him]. 
 
 
 

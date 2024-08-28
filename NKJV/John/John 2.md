@@ -40,7 +40,7 @@ When the master of the feast had tasted the water that was made wine, and did no
 And he said to him, "Every man at the beginning sets out the good wine, and when the _guests_ have well drunk, then the inferior. You have kept the good wine until now!" 
 
 ###### 11 
-This beginning of signs Jesus did in Cana of Galilee, and [^a]manifested His glory; and His disciples believed in Him. 
+This beginning of signs Jesus did in Cana of Galilee, and manifested His glory; and His disciples believed in Him. 
 
 ###### 12 
 After this He went down to Capernaum, He, His mother, His brothers, and His disciples; and they did not stay there many days. ## Jesus Cleanses the Temple 
@@ -49,7 +49,7 @@ After this He went down to Capernaum, He, His mother, His brothers, and His disc
 Now the Passover of the Jews was at hand, and Jesus went up to Jerusalem. 
 
 ###### 14 
-And He found in the temple those who sold oxen and sheep and doves, and the money changers [^b]doing business. 
+And He found in the temple those who sold oxen and sheep and doves, and the money changers doing business. 
 
 ###### 15 
 When He had made a whip of cords, He drove them all out of the temple, with the sheep and the oxen, and poured out the changers' money and overturned the tables. 
@@ -58,7 +58,7 @@ When He had made a whip of cords, He drove them all out of the temple, with the 
 And He said to those who sold doves, "Take these things away! Do not make My Father's house a house of merchandise!" 
 
 ###### 17 
-Then His disciples remembered that it was written, "Zeal for Your house [^c]has eaten Me up." 
+Then His disciples remembered that it was written, "Zeal for Your house has eaten Me up." 
 
 ###### 18 
 So the Jews answered and said to Him, "What sign do You show to us, since You do these things?" 
@@ -73,7 +73,7 @@ Then the Jews said, "It has taken forty-six years to build this temple, and will
 But He was speaking of the temple of His body. 
 
 ###### 22 
-Therefore, when He had risen from the dead, His disciples remembered that He had said this [^d]to them; and they believed the Scripture and the word which Jesus had said. ## The Discerner of Hearts 
+Therefore, when He had risen from the dead, His disciples remembered that He had said this to them; and they believed the Scripture and the word which Jesus had said. ## The Discerner of Hearts 
 
 ###### 23 
 Now when He was in Jerusalem at the Passover, during the feast, many believed in His name when they saw the signs which He did. 

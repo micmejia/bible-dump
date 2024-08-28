@@ -25,13 +25,13 @@ Then Abraham stood up from before his dead, and spoke to the sons of Heth, sayin
 And the sons of Heth answered Abraham, saying to him, 
 
 ###### 6 
-"Hear us, my lord: You _are_ a [^a]mighty prince among us; bury your dead in the choicest of our burial places. None of us will withhold from you his burial place, that you may bury your dead." 
+"Hear us, my lord: You _are_ a mighty prince among us; bury your dead in the choicest of our burial places. None of us will withhold from you his burial place, that you may bury your dead." 
 
 ###### 7 
 Then Abraham stood up and bowed himself to the people of the land, the sons of Heth. 
 
 ###### 8 
-And he spoke with them, saying, "If it is your wish that I bury my dead out of my sight, hear me, and [^b]meet with Ephron the son of Zohar for me, 
+And he spoke with them, saying, "If it is your wish that I bury my dead out of my sight, hear me, and meet with Ephron the son of Zohar for me, 
 
 ###### 9 
 that he may give me the cave of Machpelah which he has, which _is_ at the end of his field. Let him give it to me at the full price, as property for a burial place among you." 

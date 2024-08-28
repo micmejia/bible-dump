@@ -40,7 +40,7 @@ next: ['Isa 18']
 
 
 
-Ang mensaheng itoʼy tungkol sa Damascus:[^a] "Makinig kayo! Ang Damascus ay hindi na magiging lungsod dahil magigiba ito. 
+Ang mensaheng itoʼy tungkol sa Damascus: "Makinig kayo! Ang Damascus ay hindi na magiging lungsod dahil magigiba ito. 
 
 
 
@@ -106,7 +106,7 @@ Wala nang titira sa lungsod ng Aroer. Magiging pastulan na lamang ito ng mga hay
 
 
 
-Mawawasak ang mga napapaderang mga lungsod ng Israel,[^b] at mawawala ang kapangyarihan ng Damascus. Ang sasapitin ng mga matitira sa Aram[^c] ay katulad ng sinapit ng mga taga-Israel. <i class="trans-change">Ako,_ ang Panginoong Makapangyarihan, ang nagsasabi nito. 
+Mawawasak ang mga napapaderang mga lungsod ng Israel, at mawawala ang kapangyarihan ng Damascus. Ang sasapitin ng mga matitira sa Aram ay katulad ng sinapit ng mga taga-Israel. <i class="trans-change">Ako,_ ang Panginoong Makapangyarihan, ang nagsasabi nito. 
 
 
 
@@ -304,7 +304,7 @@ Hindi na nila papansinin ang mga altar na sila mismo ang gumawa. Hindi na rin ni
 
 
 
-Sa araw na iyon, ang matitibay nilang lungsod ay mawawasak at iiwan na lang nila, katulad ng mga lungsod ng mga Amoreo at Hiveo[^d] na iniwan ng mga ito nang dumating ang mga Israelita. 
+Sa araw na iyon, ang matitibay nilang lungsod ay mawawasak at iiwan na lang nila, katulad ng mga lungsod ng mga Amoreo at Hiveo na iniwan ng mga ito nang dumating ang mga Israelita. 
 
 
 

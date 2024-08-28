@@ -553,7 +553,7 @@ Solomon had 4,000 stalls for horses and chariots, and 12,000 horsemen, stationed
 
 
 
-And he ruled over [^a]all the kings from the [Euphrates] River to the land of Philistia and to the frontier of Egypt. 
+And he ruled over all the kings from the [Euphrates] River to the land of Philistia and to the frontier of Egypt. 
 
 
 

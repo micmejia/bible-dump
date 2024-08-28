@@ -13,13 +13,13 @@ next: ['Num 7']
 Then the Lord spoke to Moses, saying, 
 
 ###### 2 
-"Speak to the children of Israel, and say to them: 'When either a man or woman [^a]consecrates an offering to take the vow of a Nazirite, to separate himself to the Lord, 
+"Speak to the children of Israel, and say to them: 'When either a man or woman consecrates an offering to take the vow of a Nazirite, to separate himself to the Lord, 
 
 ###### 3 
 he shall separate himself from wine and _similar_ drink; he shall drink neither vinegar made from wine nor vinegar made from _similar_ drink; neither shall he drink any grape juice, nor eat fresh grapes or raisins. 
 
 ###### 4 
-All the days of his [^b]separation he shall eat nothing that is produced by the grapevine, from seed to skin. 
+All the days of his separation he shall eat nothing that is produced by the grapevine, from seed to skin. 
 
 ###### 5 
 'All the days of the vow of his separation no razor shall come upon his head; until the days are fulfilled for which he separated himself to the Lord, he shall be holy. _Then_ he shall let the locks of the hair of his head grow. 
@@ -28,7 +28,7 @@ All the days of his [^b]separation he shall eat nothing that is produced by the 
 All the days that he separates himself to the Lord he shall not go near a dead body. 
 
 ###### 7 
-He shall not [^c]make himself unclean even for his father or his mother, for his brother or his sister, when they die, because his separation to God _is_ on his head. 
+He shall not make himself unclean even for his father or his mother, for his brother or his sister, when they die, because his separation to God _is_ on his head. 
 
 ###### 8 
 All the days of his separation he shall be holy to the Lord. 
@@ -43,7 +43,7 @@ Then on the eighth day he shall bring two turtledoves or two young pigeons to th
 and the priest shall offer one as a sin offering and _the_ other as a burnt offering, and make atonement for him, because he sinned in regard to the corpse; and he shall sanctify his head that same day. 
 
 ###### 12 
-He shall consecrate to the Lord the days of his separation, and bring a male lamb in its first year as a trespass offering; but the former days shall be [^d]lost, because his separation was defiled. 
+He shall consecrate to the Lord the days of his separation, and bring a male lamb in its first year as a trespass offering; but the former days shall be lost, because his separation was defiled. 
 
 ###### 13 
 'Now this _is_ the law of the Nazirite: When the days of his separation are fulfilled, he shall be brought to the door of the tabernacle of meeting. 
@@ -85,7 +85,7 @@ And the Lord spoke to Moses, saying:
 The Lord make His face shine upon you, And be gracious to you; 
 
 ###### 26 
-The Lord [^e]lift up His countenance upon you, And give you peace." ' 
+The Lord lift up His countenance upon you, And give you peace." ' 
 
 ###### 27 
-"So they shall [^f]put My name on the children of Israel, and I will bless them."
+"So they shall put My name on the children of Israel, and I will bless them."

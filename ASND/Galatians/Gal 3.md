@@ -205,7 +205,7 @@ Hindi baʼt ibinigay sa inyo ng Dios ang kanyang Espiritu, at sa pamamagitan niy
 
 
 
-Tingnan nʼyo ang nangyari kay Abraham. <i class="trans-change">Ayon sa Kasulatan,_ "Sumampalataya siya sa Dios, kaya itinuring siyang matuwid."[^a] 
+Tingnan nʼyo ang nangyari kay Abraham. <i class="trans-change">Ayon sa Kasulatan,_ "Sumampalataya siya sa Dios, kaya itinuring siyang matuwid." 
 
 
 
@@ -271,7 +271,7 @@ Malinaw na ang mga sumasampalataya sa Dios ang siyang mga tunay na anak ni Abrah
 
 
 
-Noon pa man, sinasabi na sa Kasulatan na ituturing na matuwid ng Dios ang mga hindi Judio sa pamamagitan ng pananampalataya <i class="trans-change">nila_. At ang Magandang Balitang itoʼy ipinahayag ng Dios kay Abraham <i class="trans-change">nang sabihin niya_, "Pagpapalain <i class="trans-change">ko_ ang lahat ng bansa sa pamamagitan mo."[^b] 
+Noon pa man, sinasabi na sa Kasulatan na ituturing na matuwid ng Dios ang mga hindi Judio sa pamamagitan ng pananampalataya <i class="trans-change">nila_. At ang Magandang Balitang itoʼy ipinahayag ng Dios kay Abraham <i class="trans-change">nang sabihin niya_, "Pagpapalain <i class="trans-change">ko_ ang lahat ng bansa sa pamamagitan mo." 
 
 
 
@@ -337,7 +337,7 @@ Sumampalataya si Abraham sa Dios <i class="trans-change">at pinagpala siya_. Kay
 
 
 
-Ngunit ang lahat ng umaasang maituturing na matuwid sa pamamagitan ng pagsunod sa Kautusan ay isinumpa na <i class="trans-change">ng Dios_. Sapagkat sinasabi sa Kasulatan, "Isinusumpa ang sinumang hindi sumusunod sa lahat ng nasusulat sa aklat ng Kautusan."[^c] 
+Ngunit ang lahat ng umaasang maituturing na matuwid sa pamamagitan ng pagsunod sa Kautusan ay isinumpa na <i class="trans-change">ng Dios_. Sapagkat sinasabi sa Kasulatan, "Isinusumpa ang sinumang hindi sumusunod sa lahat ng nasusulat sa aklat ng Kautusan." 
 
 
 
@@ -370,7 +370,7 @@ Ngunit ang lahat ng umaasang maituturing na matuwid sa pamamagitan ng pagsunod s
 
 
 
-Malinaw na walang taong ituturing na matuwid sa harap ng Dios sa pamamagitan ng pagsunod sa Kautusan dahil <i class="trans-change">sinasabi sa Kasulatan_, "Ang taong itinuring na matuwid ng Dios dahil sa pananampalataya niya ay mabubuhay."[^d] 
+Malinaw na walang taong ituturing na matuwid sa harap ng Dios sa pamamagitan ng pagsunod sa Kautusan dahil <i class="trans-change">sinasabi sa Kasulatan_, "Ang taong itinuring na matuwid ng Dios dahil sa pananampalataya niya ay mabubuhay." 
 
 
 
@@ -403,7 +403,7 @@ Malinaw na walang taong ituturing na matuwid sa harap ng Dios sa pamamagitan ng 
 
 
 
-Ang Kautusan ay hindi nakabatay sa pananampalataya. Sapagkat <i class="trans-change">sinasabi sa Kasulatan_, "Ang nagnanais mabuhay sa pamamagitan ng Kautusan ay kailangang sumunod sa lahat ng iniuutos nito."[^e] 
+Ang Kautusan ay hindi nakabatay sa pananampalataya. Sapagkat <i class="trans-change">sinasabi sa Kasulatan_, "Ang nagnanais mabuhay sa pamamagitan ng Kautusan ay kailangang sumunod sa lahat ng iniuutos nito." 
 
 
 
@@ -436,7 +436,7 @@ Ang Kautusan ay hindi nakabatay sa pananampalataya. Sapagkat <i class="trans-cha
 
 
 
-Ngunit hindi natin masunod ang lahat ng iniuutos ng Kautusan, kaya sinumpa tayo <i class="trans-change">ng Dios_. Pero ngayon, tinubos na tayo ni Cristo sa sumpang ito. Sinumpa siya alang-alang sa atin, dahil sinasabi sa Kasulatan, "Isinumpa ang sinumang binitay sa puno."[^f] 
+Ngunit hindi natin masunod ang lahat ng iniuutos ng Kautusan, kaya sinumpa tayo <i class="trans-change">ng Dios_. Pero ngayon, tinubos na tayo ni Cristo sa sumpang ito. Sinumpa siya alang-alang sa atin, dahil sinasabi sa Kasulatan, "Isinumpa ang sinumang binitay sa puno." 
 
 
 
@@ -535,7 +535,7 @@ Mga kapatid, bibigyan ko kayo ng halimbawa. Hindi maaaring basta na lang ipawala
 
 
 
-Ngayon, nangako ang Dios kay Abraham at sa kanyang salinlahi. Hindi niya sinabi, "sa mga apo[^g] mo," na nangangahulugang marami, kundi "sa apo mo," na ang ibig sabihin ay iisa, at itoʼy walang iba kundi si Cristo. 
+Ngayon, nangako ang Dios kay Abraham at sa kanyang salinlahi. Hindi niya sinabi, "sa mga apo mo," na nangangahulugang marami, kundi "sa apo mo," na ang ibig sabihin ay iisa, at itoʼy walang iba kundi si Cristo. 
 
 
 
@@ -898,7 +898,7 @@ Kayong lahat ay mga anak ng Dios dahil sa pananampalataya ninyo kay Cristo Jesus
 
 
 
-Sapagkat binautismuhan kayo sa pakikipag-isa ninyo kay Cristo[^h] at namumuhay kayong katulad niya. 
+Sapagkat binautismuhan kayo sa pakikipag-isa ninyo kay Cristo at namumuhay kayong katulad niya. 
 
 
 

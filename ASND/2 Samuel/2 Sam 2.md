@@ -238,7 +238,7 @@ Ipakita sana ng Panginoon ang pagmamahal at katapatan niya sa inyo, at ipapakita
 
 
 
-At ngayon, magpakatatag kayo at lakasan nʼyo ang loob nʼyo kahit patay na ang hari[^a] ninyong si Saul. Ako naman ay pinili ng mga taga-Juda bilang kanilang hari." ## Ang Alitan sa Pagitan ng Pamilya nina David at Saul 
+At ngayon, magpakatatag kayo at lakasan nʼyo ang loob nʼyo kahit patay na ang hari ninyong si Saul. Ako naman ay pinili ng mga taga-Juda bilang kanilang hari." ## Ang Alitan sa Pagitan ng Pamilya nina David at Saul 
 
 
 
@@ -535,7 +535,7 @@ at tumayo ang 12 tauhan ni Ishboshet na mula sa lahi ni Benjamin para makipaglab
 
 
 
-Hinawakan nila ang ulo ng isaʼt isa at nagsaksakan hanggang sa mamatay silang lahat. Kaya tinawag na Helkat Hazurim[^b] ang lugar na iyon sa Gibeon. 
+Hinawakan nila ang ulo ng isaʼt isa at nagsaksakan hanggang sa mamatay silang lahat. Kaya tinawag na Helkat Hazurim ang lugar na iyon sa Gibeon. 
 
 
 
@@ -898,7 +898,7 @@ Kaya pinatunog ni Joab ang trumpeta, at ang lahat niyang tauhan ay tumigil sa pa
 
 
 
-Buong gabing naglakad si Abner at ang mga tauhan niya sa Lambak ng Jordan.[^c] Tumawid sila sa <i class="trans-change">Ilog ng_ Jordan at nagpatuloy sa paglalakad buong umaga hanggang sa makarating sila sa Mahanaim. 
+Buong gabing naglakad si Abner at ang mga tauhan niya sa Lambak ng Jordan. Tumawid sila sa <i class="trans-change">Ilog ng_ Jordan at nagpatuloy sa paglalakad buong umaga hanggang sa makarating sila sa Mahanaim. 
 
 
 

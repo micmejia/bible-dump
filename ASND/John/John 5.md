@@ -73,7 +73,7 @@ Pagkatapos nito, pumunta si Jesus sa Jerusalem upang dumalo sa isang pista ng mg
 
 
 
-Sa isang pintuan ng lungsod ng Jerusalem, kung saan idinadaan ang mga tupa ay may paliguan na ang tawag sa wikang Hebreo ay Betesda.[^a] Sa paligid nito ay may limang silungan, 
+Sa isang pintuan ng lungsod ng Jerusalem, kung saan idinadaan ang mga tupa ay may paliguan na ang tawag sa wikang Hebreo ay Betesda. Sa paligid nito ay may limang silungan, 
 
 
 
@@ -139,7 +139,7 @@ kung saan nakahiga ang maraming may sakit – mga bulag, pilay at mga paralitiko
 
 
 
-Hinihintay nilang gumalaw ang tubig, dahil paminsan-minsan, may isang anghel ng Dios na bumababa at kinakalawkaw ang tubig. Ang unang makalusong sa tubig pagkatapos makalawkaw ng anghel ay gumagaling, kahit ano pa ang kanyang sakit.][^b] 
+Hinihintay nilang gumalaw ang tubig, dahil paminsan-minsan, may isang anghel ng Dios na bumababa at kinakalawkaw ang tubig. Ang unang makalusong sa tubig pagkatapos makalawkaw ng anghel ay gumagaling, kahit ano pa ang kanyang sakit.] 
 
 
 
@@ -832,7 +832,7 @@ upang parangalan ng lahat ang Anak tulad ng pagpaparangal nila sa Ama. Kaya, ang
 
 
 
-Sinasabi ko sa inyo ang totoo, darating ang panahon, at dumating na nga, na maririnig ng mga patay ang salita[^c] ng Anak ng Dios, at ang makinig sa kanya ay mabubuhay. 
+Sinasabi ko sa inyo ang totoo, darating ang panahon, at dumating na nga, na maririnig ng mga patay ang salita ng Anak ng Dios, at ang makinig sa kanya ay mabubuhay. 
 
 
 
@@ -1426,7 +1426,7 @@ Kilala ko talaga kayo at alam kong wala sa mga puso ninyo ang pagmamahal sa Dios
 
 
 
-Naparito ako sa pangalan[^d] ng aking Ama, ngunit ayaw ninyo akong tanggapin. Pero kung may dumating sa sarili niyang pangalan ay tinatanggap ninyo siya. 
+Naparito ako sa pangalan ng aking Ama, ngunit ayaw ninyo akong tanggapin. Pero kung may dumating sa sarili niyang pangalan ay tinatanggap ninyo siya. 
 
 
 

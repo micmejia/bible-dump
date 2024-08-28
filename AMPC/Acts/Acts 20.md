@@ -154,7 +154,7 @@ But we [ourselves] sailed from Philippi after the days of Unleavened Bread [the 
 
 
 
-And on the first day of the week, when we were assembled together to break bread [[^a]the Lord's Supper], Paul discoursed with them, intending to leave the next morning; and he kept on with his message until midnight. 
+And on the first day of the week, when we were assembled together to break bread [the Lord's Supper], Paul discoursed with them, intending to leave the next morning; and he kept on with his message until midnight. 
 
 
 
@@ -448,7 +448,7 @@ How I did not shrink from telling you anything that was for your benefit and tea
 
 
 
-But constantly _and_ earnestly I bore testimony both to Jews and Greeks, urging them to turn in repentance [[^b]that is due] to God and to have faith in our Lord Jesus Christ [[^c]that is due Him]. 
+But constantly _and_ earnestly I bore testimony both to Jews and Greeks, urging them to turn in repentance [that is due] to God and to have faith in our Lord Jesus Christ [that is due Him]. 
 
 
 
@@ -595,7 +595,7 @@ For I never shrank _or_ kept back _or_ fell short from declaring to you the whol
 
 
 
-Take care _and_ be on guard for yourselves and the whole flock over which the Holy Spirit has appointed you bishops and guardians, to shepherd (tend and feed and guide) the church of the Lord _or_ [^d]_of God_ which He obtained for Himself [buying it and saving it for Himself] with His own blood. 
+Take care _and_ be on guard for yourselves and the whole flock over which the Holy Spirit has appointed you bishops and guardians, to shepherd (tend and feed and guide) the church of the Lord _or_ _of God_ which He obtained for Himself [buying it and saving it for Himself] with His own blood. 
 
 
 
@@ -742,7 +742,7 @@ You yourselves know personally that these hands ministered to my own needs and t
 
 
 
-In everything I have pointed out to you [by example] that, by working diligently in this manner, we ought to assist the weak, being mindful of the words of the Lord Jesus, how He Himself said, It is more blessed (makes one happier and more [^e]to be envied) to give than to receive. 
+In everything I have pointed out to you [by example] that, by working diligently in this manner, we ought to assist the weak, being mindful of the words of the Lord Jesus, how He Himself said, It is more blessed (makes one happier and more to be envied) to give than to receive. 
 
 
 

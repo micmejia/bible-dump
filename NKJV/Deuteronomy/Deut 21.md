@@ -22,7 +22,7 @@ And it shall be _that_ the elders of the city nearest to the slain man will take
 The elders of that city shall bring the heifer down to a valley with flowing water, which is neither plowed nor sown, and they shall break the heifer's neck there in the valley. 
 
 ###### 5 
-Then the priests, the sons of Levi, shall come near, for the Lord your God has chosen them to minister to Him and to bless in the name of the Lord; by their word every controversy and every [^a]assault shall be _settled._ 
+Then the priests, the sons of Levi, shall come near, for the Lord your God has chosen them to minister to Him and to bless in the name of the Lord; by their word every controversy and every assault shall be _settled._ 
 
 ###### 6 
 And all the elders of that city nearest to the slain _man_ shall wash their hands over the heifer whose neck was broken in the valley. 

@@ -10,7 +10,7 @@ next: ['Exod 22']
 
 
 ###### 1 
-"Now these _are_ the [^a]judgments which you shall set before them: 
+"Now these _are_ the judgments which you shall set before them: 
 
 ###### 2 
 If you buy a Hebrew servant, he shall serve six years; and in the seventh he shall go out free and pay nothing. 
@@ -31,7 +31,7 @@ then his master shall bring him to the judges. He shall also bring him to the do
 "And if a man sells his daughter to be a female slave, she shall not go out as the male slaves do. 
 
 ###### 8 
-If she [^b]does not please her master, who has betrothed her to himself, then he shall let her be redeemed. He shall have no right to sell her to a foreign people, since he has dealt deceitfully with her. 
+If she does not please her master, who has betrothed her to himself, then he shall let her be redeemed. He shall have no right to sell her to a foreign people, since he has dealt deceitfully with her. 
 
 ###### 9 
 And if he has betrothed her to his son, he shall deal with her according to the custom of daughters. 
@@ -64,7 +64,7 @@ However, if he did not lie in wait, but God delivered _him_ into his hand, then 
 "If men contend with each other, and one strikes the other with a stone or with _his_ fist, and he does not die but is confined to _his_ bed, 
 
 ###### 19 
-if he rises again and walks about outside with his staff, then he who struck _him_ shall be [^c]acquitted. He shall only pay _for_ the loss of his time, and shall provide _for him_ to be thoroughly healed. 
+if he rises again and walks about outside with his staff, then he who struck _him_ shall be acquitted. He shall only pay _for_ the loss of his time, and shall provide _for him_ to be thoroughly healed. 
 
 ###### 20 
 "And if a man beats his male or female servant with a rod, so that he dies under his hand, he shall surely be punished. 
@@ -73,7 +73,7 @@ if he rises again and walks about outside with his staff, then he who struck _hi
 Notwithstanding, if he remains alive a day or two, he shall not be punished; for he _is_ his property. 
 
 ###### 22 
-"If men [^d]fight, and hurt a woman with child, so that [^e]she gives birth prematurely, yet no harm follows, he shall surely be punished accordingly as the woman's husband imposes on him; and he shall pay as the judges _determine._ 
+"If men fight, and hurt a woman with child, so that she gives birth prematurely, yet no harm follows, he shall surely be punished accordingly as the woman's husband imposes on him; and he shall pay as the judges _determine._ 
 
 ###### 23 
 But if _any_ harm follows, then you shall give life for life, 
@@ -91,10 +91,10 @@ burn for burn, wound for wound, stripe for stripe.
 And if he knocks out the tooth of his male or female servant, he shall let him go free for the sake of his tooth. ## Animal Control Laws 
 
 ###### 28 
-"If an ox gores a man or a woman to death, then the ox shall surely be stoned, and its flesh shall not be eaten; but the owner of the ox _shall be_ [^f]acquitted. 
+"If an ox gores a man or a woman to death, then the ox shall surely be stoned, and its flesh shall not be eaten; but the owner of the ox _shall be_ acquitted. 
 
 ###### 29 
-But if the ox [^g]tended to thrust with its horn in times past, and it has been made known to his owner, and he has not kept it confined, so that it has killed a man or a woman, the ox shall be stoned and its owner also shall be put to death. 
+But if the ox tended to thrust with its horn in times past, and it has been made known to his owner, and he has not kept it confined, so that it has killed a man or a woman, the ox shall be stoned and its owner also shall be put to death. 
 
 ###### 30 
 If there is imposed on him a sum of money, then he shall pay to redeem his life, whatever is imposed on him. 

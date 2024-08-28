@@ -18,22 +18,22 @@ She has not obeyed _His_ voice, She has not received correction; She has not tru
 Her princes in her midst _are_ roaring lions; Her judges _are_ evening wolves That leave not a bone till morning. 
 
 ###### 4 
-Her prophets are insolent, treacherous people; Her priests have [^a]polluted the sanctuary, They have done violence to the law. 
+Her prophets are insolent, treacherous people; Her priests have polluted the sanctuary, They have done violence to the law. 
 
 ###### 5 
-The Lord _is_ righteous in her midst, He will do no unrighteousness. [^b]Every morning He brings His justice to light; He never fails, But the unjust knows no shame. 
+The Lord _is_ righteous in her midst, He will do no unrighteousness. Every morning He brings His justice to light; He never fails, But the unjust knows no shame. 
 
 ###### 6 
 "I have cut off nations, Their fortresses are devastated; I have made their streets desolate, With none passing by. Their cities are destroyed; _There is_ no one, no inhabitant. 
 
 ###### 7 
-I said, 'Surely you will fear Me, You will receive instruction'-- So that her dwelling would not be cut off, _Despite_ everything for which I punished her. But [^c]they rose early and corrupted all their deeds. ## A Faithful Remnant 
+I said, 'Surely you will fear Me, You will receive instruction'-- So that her dwelling would not be cut off, _Despite_ everything for which I punished her. But they rose early and corrupted all their deeds. ## A Faithful Remnant 
 
 ###### 8 
-"Therefore wait for Me," says the Lord, "Until the day I rise up [^d]for plunder; My determination _is_ to gather the nations To My assembly of kingdoms, To pour on them My indignation, All My fierce anger; All the earth shall be devoured With the fire of My jealousy. 
+"Therefore wait for Me," says the Lord, "Until the day I rise up for plunder; My determination _is_ to gather the nations To My assembly of kingdoms, To pour on them My indignation, All My fierce anger; All the earth shall be devoured With the fire of My jealousy. 
 
 ###### 9 
-"For then I will restore to the peoples a pure [^e]language, That they all may call on the name of the Lord, To serve Him with one accord. 
+"For then I will restore to the peoples a pure language, That they all may call on the name of the Lord, To serve Him with one accord. 
 
 ###### 10 
 From beyond the rivers of Ethiopia My worshipers, The daughter of My dispersed ones, Shall bring My offering. 
@@ -51,7 +51,7 @@ The remnant of Israel shall do no unrighteousness And speak no lies, Nor shall a
 Sing, O daughter of Zion! Shout, O Israel! Be glad and rejoice with all _your_ heart, O daughter of Jerusalem! 
 
 ###### 15 
-The Lord has taken away your judgments, He has cast out your enemy. The King of Israel, the Lord, _is_ in your midst; You shall [^f]see disaster no more. 
+The Lord has taken away your judgments, He has cast out your enemy. The King of Israel, the Lord, _is_ in your midst; You shall see disaster no more. 
 
 ###### 16 
 In that day it shall be said to Jerusalem: "Do not fear; Zion, let not your hands be weak. 
@@ -66,4 +66,4 @@ The Lord your God in your midst, The Mighty One, will save; He will rejoice over
 Behold, at that time I will deal with all who afflict you; I will save the lame, And gather those who were driven out; I will appoint them for praise and fame In every land where they were put to shame. 
 
 ###### 20 
-At that time I will bring you back, Even at the time I gather you; For I will give you [^g]fame and praise Among all the peoples of the earth, When I return your captives before your eyes," Says the Lord.
+At that time I will bring you back, Even at the time I gather you; For I will give you fame and praise Among all the peoples of the earth, When I return your captives before your eyes," Says the Lord.

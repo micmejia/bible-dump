@@ -13,7 +13,7 @@ next: ['Num 20']
 Now the Lord spoke to Moses and Aaron, saying, 
 
 ###### 2 
-"This _is_ the [^a]ordinance of the law which the Lord has commanded, saying: 'Speak to the children of Israel, that they bring you a red heifer without [^b]blemish, in which there _is_ no defect _and_ on which a yoke has never come. 
+"This _is_ the ordinance of the law which the Lord has commanded, saying: 'Speak to the children of Israel, that they bring you a red heifer without blemish, in which there _is_ no defect _and_ on which a yoke has never come. 
 
 ###### 3 
 You shall give it to Eleazar the priest, that he may take it outside the camp, and it shall be slaughtered before him; 
@@ -34,13 +34,13 @@ Then the priest shall wash his clothes, he shall bathe in water, and afterward h
 And the one who burns it shall wash his clothes in water, bathe in water, and shall be unclean until evening. 
 
 ###### 9 
-Then a man _who is_ clean shall gather up the ashes of the heifer, and store _them_ outside the camp in a clean place; and they shall be kept for the congregation of the children of Israel for the water of [^c]purification; it _is_ for purifying from sin. 
+Then a man _who is_ clean shall gather up the ashes of the heifer, and store _them_ outside the camp in a clean place; and they shall be kept for the congregation of the children of Israel for the water of purification; it _is_ for purifying from sin. 
 
 ###### 10 
 And the one who gathers the ashes of the heifer shall wash his clothes, and be unclean until evening. It shall be a statute forever to the children of Israel and to the stranger who dwells among them. 
 
 ###### 11 
-'He who touches the dead [^d]body of anyone shall be unclean seven days. 
+'He who touches the dead body of anyone shall be unclean seven days. 
 
 ###### 12 
 He shall purify himself with the water on the third day and on the seventh day; _then_ he will be clean. But if he does not purify himself on the third day and on the seventh day, he will not be clean. 
@@ -58,7 +58,7 @@ and every open vessel, which has no cover fastened on it, _is_ unclean.
 Whoever in the open field touches one who is slain by a sword or who has died, or a bone of a man, or a grave, shall be unclean seven days. 
 
 ###### 17 
-'And for an unclean _person_ they shall take some of the ashes of the heifer burnt for purification from sin, and [^e]running water shall be put on them in a vessel. 
+'And for an unclean _person_ they shall take some of the ashes of the heifer burnt for purification from sin, and running water shall be put on them in a vessel. 
 
 ###### 18 
 A clean person shall take hyssop and dip _it_ in the water, sprinkle _it_ on the tent, on all the vessels, on the persons who were there, or on the one who touched a bone, the slain, the dead, or a grave. 

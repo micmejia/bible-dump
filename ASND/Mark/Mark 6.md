@@ -1789,4 +1789,4 @@ Kaya nagmamadaling pumunta ang mga tao sa mga karatig lugar, inilagay sa mga hig
 
 
 
-Kahit saan siya pumunta, sa nayon, sa bayan, o sa kabukiran, dinadala ng mga tao ang mga may sakit sa kanila sa mga lugar na pinagtitipunan ng mga tao. Nagmamakaawa sila kay Jesus na kung maaari ay pahipuin niya ang mga may sakit kahit man lang sa laylayan[^a] ng kanyang damit. At ang lahat ng nakahipo ay gumaling.
+Kahit saan siya pumunta, sa nayon, sa bayan, o sa kabukiran, dinadala ng mga tao ang mga may sakit sa kanila sa mga lugar na pinagtitipunan ng mga tao. Nagmamakaawa sila kay Jesus na kung maaari ay pahipuin niya ang mga may sakit kahit man lang sa laylayan ng kanyang damit. At ang lahat ng nakahipo ay gumaling.

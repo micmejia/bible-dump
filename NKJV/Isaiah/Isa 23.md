@@ -10,13 +10,13 @@ next: ['Isa 24']
 
 
 ###### 1 
-The burden[^a] against Tyre. Wail, you ships of Tarshish! For it is laid waste, So that there is no house, no harbor; From the land of [^b]Cyprus it is revealed to them. 
+The burden against Tyre. Wail, you ships of Tarshish! For it is laid waste, So that there is no house, no harbor; From the land of Cyprus it is revealed to them. 
 
 ###### 2 
-Be still, you inhabitants of the coastland, You merchants of Sidon, [^c]Whom those who cross the sea have filled. 
+Be still, you inhabitants of the coastland, You merchants of Sidon, Whom those who cross the sea have filled. 
 
 ###### 3 
-And on great waters the grain of Shihor, The harvest of [^d]the River, _is_ her revenue; And she is a marketplace for the nations. 
+And on great waters the grain of Shihor, The harvest of the River, _is_ her revenue; And she is a marketplace for the nations. 
 
 ###### 4 
 Be ashamed, O Sidon; For the sea has spoken, The strength of the sea, saying, "I do not labor, nor bring forth children; Neither do I rear young men, _Nor_ bring up virgins." 
@@ -34,10 +34,10 @@ _Is_ this your joyous _city,_ Whose antiquity _is_ from ancient days, Whose feet
 Who has taken this counsel against Tyre, the crowning _city,_ Whose merchants _are_ princes, Whose traders _are_ the honorable of the earth? 
 
 ###### 9 
-The Lord of hosts has purposed it, To [^e]bring to dishonor the pride of all glory, To bring into contempt all the honorable of the earth. 
+The Lord of hosts has purposed it, To bring to dishonor the pride of all glory, To bring into contempt all the honorable of the earth. 
 
 ###### 10 
-Overflow through your land like [^f]the River, O daughter of Tarshish; _There is_ no more [^g]strength. 
+Overflow through your land like the River, O daughter of Tarshish; _There is_ no more strength. 
 
 ###### 11 
 He stretched out His hand over the sea, He shook the kingdoms; The Lord has given a commandment against Canaan To destroy its strongholds. 
@@ -61,4 +61,4 @@ Now it shall come to pass in that day that Tyre will be forgotten seventy years,
 And it shall be, at the end of seventy years, that the Lord will deal with Tyre. She will return to her hire, and commit fornication with all the kingdoms of the world on the face of the earth. 
 
 ###### 18 
-Her gain and her pay will be set apart for the Lord; it will not be treasured nor laid up, for her gain will be for those who dwell before the Lord, to eat sufficiently, and for [^h]fine clothing.
+Her gain and her pay will be set apart for the Lord; it will not be treasured nor laid up, for her gain will be for those who dwell before the Lord, to eat sufficiently, and for fine clothing.

@@ -238,7 +238,7 @@ Nangako pa kami na tutuparin namin ang utos na magbibigay kami bawat taon ng apa
 
 
 
-Nakalaan ito para sa tinapay na inihahandog sa presensya ng Dios, sa mga handog na sinusunog at mga handog bilang pagpaparangal sa Panginoon na inihahandog araw-araw, sa mga handog para sa Araw ng Pamamahinga, para sa Pista ng Pagsisimula ng Buwan,[^a] at sa iba pang mga pista; maging sa iba pang mga banal na handog tulad ng handog sa paglilinis na inihahandog upang matubos ang mga mamamayan ng Israel sa kanilang mga kasalanan. Ginagamit din ang perang ito sa iba pang mga pangangailangan sa templo ng aming Dios. 
+Nakalaan ito para sa tinapay na inihahandog sa presensya ng Dios, sa mga handog na sinusunog at mga handog bilang pagpaparangal sa Panginoon na inihahandog araw-araw, sa mga handog para sa Araw ng Pamamahinga, para sa Pista ng Pagsisimula ng Buwan, at sa iba pang mga pista; maging sa iba pang mga banal na handog tulad ng handog sa paglilinis na inihahandog upang matubos ang mga mamamayan ng Israel sa kanilang mga kasalanan. Ginagamit din ang perang ito sa iba pang mga pangangailangan sa templo ng aming Dios. 
 
 
 

@@ -19,10 +19,10 @@ He had a little book open in his hand. And he set his right foot on the sea and 
 and cried with a loud voice, as _when_ a lion roars. When he cried out, seven thunders uttered their voices. 
 
 ###### 4 
-Now when the seven thunders [^a]uttered their voices, I was about to write; but I heard a voice from heaven saying [^b]to me, "Seal up the things which the seven thunders uttered, and do not write them." 
+Now when the seven thunders uttered their voices, I was about to write; but I heard a voice from heaven saying to me, "Seal up the things which the seven thunders uttered, and do not write them." 
 
 ###### 5 
-The angel whom I saw standing on the sea and on the land raised up his [^c]hand to heaven 
+The angel whom I saw standing on the sea and on the land raised up his hand to heaven 
 
 ###### 6 
 and swore by Him who lives forever and ever, who created heaven and the things that are in it, the earth and the things that are in it, and the sea and the things that are in it, that there should be delay no longer, 
@@ -40,4 +40,4 @@ So I went to the angel and said to him, "Give me the little book." And he said t
 Then I took the little book out of the angel's hand and ate it, and it was as sweet as honey in my mouth. But when I had eaten it, my stomach became bitter. 
 
 ###### 11 
-And [^d]he said to me, "You must prophesy again about many peoples, nations, tongues, and kings."
+And he said to me, "You must prophesy again about many peoples, nations, tongues, and kings."

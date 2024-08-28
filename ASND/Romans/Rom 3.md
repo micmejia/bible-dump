@@ -139,7 +139,7 @@ Kung hindi naging tapat ang ilan sa pagsunod sa Dios, nangangahulugan bang hindi
 
 
 
-Aba hindi! Sapagkat tapat ang Dios sa kanyang mga salita, maging sinungaling man ang lahat ng tao. Gaya nga ng sinasabi sa Kasulatan, "Mapapatunayang tapat ka sa iyong salita, at laging tama sa iyong paghatol."[^a] 
+Aba hindi! Sapagkat tapat ang Dios sa kanyang mga salita, maging sinungaling man ang lahat ng tao. Gaya nga ng sinasabi sa Kasulatan, "Mapapatunayang tapat ka sa iyong salita, at laging tama sa iyong paghatol." 
 
 
 
@@ -403,7 +403,7 @@ Walang nakakaunawa tungkol sa Dios, walang nagsisikap na makilala siya.
 
 
 
-Ang lahat ay tumalikod <i class="trans-change">sa Dios_ at naging walang kabuluhan. Walang gumagawa ng mabuti, wala kahit isa."[^b] 
+Ang lahat ay tumalikod <i class="trans-change">sa Dios_ at naging walang kabuluhan. Walang gumagawa ng mabuti, wala kahit isa." 
 
 
 
@@ -436,7 +436,7 @@ Ang lahat ay tumalikod <i class="trans-change">sa Dios_ at naging walang kabuluh
 
 
 
-"Ang kanilang pananalitaʼy[^c] <i class="trans-change">hindi masikmura_ tulad ng bukas na libingan. Ang kanilang sinasabiʼy[^d] puro pandaraya.[^e] Ang mga salita[^f] nilaʼy parang kamandag ng ahas.[^g] 
+"Ang kanilang pananalitaʼy <i class="trans-change">hindi masikmura_ tulad ng bukas na libingan. Ang kanilang sinasabiʼy puro pandaraya. Ang mga salita nilaʼy parang kamandag ng ahas. 
 
 
 
@@ -469,7 +469,7 @@ Ang lahat ay tumalikod <i class="trans-change">sa Dios_ at naging walang kabuluh
 
 
 
-Ang <i class="trans-change">lumalabas sa_ kanilang bibig ay panay pagmumura at masasakit na salita.[^h] 
+Ang <i class="trans-change">lumalabas sa_ kanilang bibig ay panay pagmumura at masasakit na salita. 
 
 
 
@@ -568,7 +568,7 @@ Kapahamakan at hinagpis ang dala nila kahit saan.
 
 
 
-Hindi nila alam ang mamuhay nang mapayapa,[^i] 
+Hindi nila alam ang mamuhay nang mapayapa, 
 
 
 
@@ -601,7 +601,7 @@ Hindi nila alam ang mamuhay nang mapayapa,[^i]
 
 
 
-at wala silang takot sa Dios."[^j] 
+at wala silang takot sa Dios." 
 
 
 

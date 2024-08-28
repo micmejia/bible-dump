@@ -6,7 +6,7 @@ next: ['Ruth 2']
 # Ruth 1
 
 ***
-###### 1-2 Noong panahon na hindi pa mga hari ang namumuno[^a] <i class="trans-change">sa Israel_, nagkaroon ng taggutom sa lupaing ito. Kaya si Elimelec na taga-Betlehem na sakop ng Juda ay pumunta sa Moab kasama ang asawa at dalawang anak niyang lalaki, para roon muna manirahan. Ang pangalan ng asawa niya ay Naomi at ang dalawang anak nila ay sina Mahlon at Kilion. Mga angkan sila ni Efrata na taga-Betlehem. Habang naroon sila sa Moab, 
+###### 1-2 Noong panahon na hindi pa mga hari ang namumuno <i class="trans-change">sa Israel_, nagkaroon ng taggutom sa lupaing ito. Kaya si Elimelec na taga-Betlehem na sakop ng Juda ay pumunta sa Moab kasama ang asawa at dalawang anak niyang lalaki, para roon muna manirahan. Ang pangalan ng asawa niya ay Naomi at ang dalawang anak nila ay sina Mahlon at Kilion. Mga angkan sila ni Efrata na taga-Betlehem. Habang naroon sila sa Moab, 
 
 
 
@@ -336,7 +336,7 @@ hihintayin nʼyo ba silang lumaki? Hindi ba kayo mag-aasawa alang-alang sa kanil
 
 
 
-At umiyak na naman sila nang malakas. Pagkatapos, hinalikan ni Orpah ang biyenan niya at umuwi,[^b] pero si Ruth naman ay nagpaiwang kasama ni Naomi. 
+At umiyak na naman sila nang malakas. Pagkatapos, hinalikan ni Orpah ang biyenan niya at umuwi, pero si Ruth naman ay nagpaiwang kasama ni Naomi. 
 
 
 
@@ -369,7 +369,7 @@ At umiyak na naman sila nang malakas. Pagkatapos, hinalikan ni Orpah ang biyenan
 
 
 
-Sinabi ni Naomi, "Bumalik na ang bilas mo sa mga kababayan niya at sa kanyang dios,[^c] kaya sumama ka na rin sa kanya." 
+Sinabi ni Naomi, "Bumalik na ang bilas mo sa mga kababayan niya at sa kanyang dios, kaya sumama ka na rin sa kanya." 
 
 
 
@@ -534,7 +534,7 @@ Kaya nagpatuloy silang dalawa sa paglalakbay hanggang sa nakarating sila sa Betl
 
 
 
-Sinabi ni Naomi sa kanila, "Huwag nʼyo na akong tawaging Naomi,[^d] kundi tawagin ninyo akong Mara,[^e] dahil pinapait ng Makapangyarihang Dios ang buhay ko. 
+Sinabi ni Naomi sa kanila, "Huwag nʼyo na akong tawaging Naomi, kundi tawagin ninyo akong Mara, dahil pinapait ng Makapangyarihang Dios ang buhay ko. 
 
 
 
@@ -600,4 +600,4 @@ Pag-alis ko rito ay nasa sa akin ang lahat, pero ibinalik ako ng Panginoon nang 
 
 
 
-Nagsisimula pa lang ang anihan ng sebada[^f] nang dumating si Naomi sa Betlehem kasama ang manugang niyang si Ruth na Moabita.
+Nagsisimula pa lang ang anihan ng sebada nang dumating si Naomi sa Betlehem kasama ang manugang niyang si Ruth na Moabita.

@@ -217,7 +217,7 @@ Thus God has taken away the flocks of your father and given them to me.
 
 
 
-And I had a [^a]dream at the time the flock conceived. I looked up and saw that the rams which mated with the she-goats were streaked, speckled, and spotted. 
+And I had a dream at the time the flock conceived. I looked up and saw that the rams which mated with the she-goats were streaked, speckled, and spotted. 
 
 
 
@@ -238,7 +238,7 @@ And I had a [^a]dream at the time the flock conceived. I looked up and saw that 
 
 
 
-And the [^b]Angel of God said to me in the dream, Jacob. And I said, Here am I. 
+And the Angel of God said to me in the dream, Jacob. And I said, Here am I. 
 
 
 
@@ -637,7 +637,7 @@ It is in my power to do you harm; but the God of your father spoke to me last ni
 
 
 
-And now you felt you must go because you were homesick for your father's house, but why did you steal my [household] [^c]gods? 
+And now you felt you must go because you were homesick for your father's house, but why did you steal my [household] gods? 
 
 
 
@@ -994,7 +994,7 @@ And Jacob said to his brethren, Gather stones; and they took stones and made a h
 
 
 
-Laban called it Jegar-sahadutha [witness heap, _in Aramaic_], but Jacob called it Galeed [[^d]witness heap, _in Hebrew_.] 
+Laban called it Jegar-sahadutha [witness heap, _in Aramaic_], but Jacob called it Galeed [witness heap, _in Hebrew_.] 
 
 
 

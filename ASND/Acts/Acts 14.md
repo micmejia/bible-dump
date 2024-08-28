@@ -469,7 +469,7 @@ Ang templo ng kanilang dios na si Zeus ay malapit lang sa labas ng lungsod. Kaya
 
 
 
-Nang malaman iyon nina Bernabe at Pablo, pinunit nila ang kanilang damit[^a] at tumakbo sila sa gitna ng mga tao at sumigaw, 
+Nang malaman iyon nina Bernabe at Pablo, pinunit nila ang kanilang damit at tumakbo sila sa gitna ng mga tao at sumigaw, 
 
 
 
@@ -898,7 +898,7 @@ Mula roon, bumiyahe sila pabalik sa Antioc <i class="trans-change">na sakop ng S
 
 
 
-Nang dumating sina Pablo at Bernabe sa Antioc, tinipon nila ang mga mananampalataya[^b] at ikinuwento sa kanila ang lahat ng ginawa ng Dios sa pamamagitan nila, at kung paanong binigyan ng Dios ang mga hindi Judio ng pagkakataong sumampalataya. 
+Nang dumating sina Pablo at Bernabe sa Antioc, tinipon nila ang mga mananampalataya at ikinuwento sa kanila ang lahat ng ginawa ng Dios sa pamamagitan nila, at kung paanong binigyan ng Dios ang mga hindi Judio ng pagkakataong sumampalataya. 
 
 
 

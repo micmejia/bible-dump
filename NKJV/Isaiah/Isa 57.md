@@ -10,7 +10,7 @@ next: ['Isa 58']
 
 
 ###### 1 
-The righteous perishes, And no man takes _it_ to heart; Merciful men _are_ taken away, While no one considers That the righteous is taken away from [^a]evil. 
+The righteous perishes, And no man takes _it_ to heart; Merciful men _are_ taken away, While no one considers That the righteous is taken away from evil. 
 
 ###### 2 
 He shall enter into peace; They shall rest in their beds, _Each one_ walking _in_ his uprightness. 
@@ -31,7 +31,7 @@ Among the smooth _stones_ of the stream _Is_ your portion; They, they, _are_ you
 "On a lofty and high mountain You have set your bed; Even there you went up To offer sacrifice. 
 
 ###### 8 
-Also behind the doors and their posts You have set up your remembrance; For you have uncovered yourself _to those other_ than Me, And have gone up to them; You have enlarged your bed And [^b]made _a covenant_ with them; You have loved their bed, Where you saw _their_ [^c]nudity. 
+Also behind the doors and their posts You have set up your remembrance; For you have uncovered yourself _to those other_ than Me, And have gone up to them; You have enlarged your bed And made _a covenant_ with them; You have loved their bed, Where you saw _their_ nudity. 
 
 ###### 9 
 You went to the king with ointment, And increased your perfumes; You sent your messengers far off, And _even_ descended to Sheol. 
@@ -40,7 +40,7 @@ You went to the king with ointment, And increased your perfumes; You sent your m
 You are wearied in the length of your way; _Yet_ you did not say, 'There is no hope.' You have found the life of your hand; Therefore you were not grieved. 
 
 ###### 11 
-"And of whom have you been afraid, or feared, That you have lied And not remembered Me, Nor taken _it_ to your heart? Is it not because I have [^d]held My peace from of old That you do not fear Me? 
+"And of whom have you been afraid, or feared, That you have lied And not remembered Me, Nor taken _it_ to your heart? Is it not because I have held My peace from of old That you do not fear Me? 
 
 ###### 12 
 I will declare your righteousness And your works, For they will not profit you. 
@@ -58,7 +58,7 @@ For thus says the High and Lofty One Who inhabits eternity, whose name _is_ Holy
 For I will not contend forever, Nor will I always be angry; For the spirit would fail before Me, And the souls _which_ I have made. 
 
 ###### 17 
-For the iniquity of his covetousness I was angry and struck him; I hid and was angry, And he went on [^e]backsliding in the way of his heart. 
+For the iniquity of his covetousness I was angry and struck him; I hid and was angry, And he went on backsliding in the way of his heart. 
 
 ###### 18 
 I have seen his ways, and will heal him; I will also lead him, And restore comforts to him And to his mourners. 

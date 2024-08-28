@@ -766,7 +766,7 @@ Tyre, Sidon, mga pulo sa ibayong dagat,
 
 
 
-Dedan, Tema, Buz, ang mga nasa malalayong lugar,[^a] 
+Dedan, Tema, Buz, ang mga nasa malalayong lugar, 
 
 
 
@@ -865,7 +865,7 @@ Zimri, Elam, Media,
 
 
 
-ang mga bansa sa hilaga, malayo man o malapit, at ang lahat ng kaharian sa buong daigdig. At ang huling paiinumin ay ang Babilonia.[^b] 
+ang mga bansa sa hilaga, malayo man o malapit, at ang lahat ng kaharian sa buong daigdig. At ang huling paiinumin ay ang Babilonia. 
 
 
 
@@ -1030,7 +1030,7 @@ Sinisimulan ko na ang pagpapadala ng kaparusahan sa Jerusalem, ang lungsod na pi
 
 
 
-Maririnig ang tinig niya sa buong daigdig,[^c] dahil ihahabla niya ang mga bansa. Hahatulan niya ang lahat, at ipapapatay niya sa digmaan ang masasama.' <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito." 
+Maririnig ang tinig niya sa buong daigdig, dahil ihahabla niya ang mga bansa. Hahatulan niya ang lahat, at ipapapatay niya sa digmaan ang masasama.' <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito." 
 
 
 

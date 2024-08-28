@@ -70,7 +70,7 @@ Then rose up Zerubbabel son of Shealtiel [heir to the throne of Judah] and Jeshu
 
 
 
-Then Tattenai, governor on the west side of the [Euphrates] River, and Shethar-bozenai and their companions came to them and said, Who [^a]authorized you to build this house and to restore this wall? 
+Then Tattenai, governor on the west side of the [Euphrates] River, and Shethar-bozenai and their companions came to them and said, Who authorized you to build this house and to restore this wall? 
 
 
 

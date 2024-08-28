@@ -25,13 +25,13 @@ Then he said to me, "This _is_ the curse that goes out over the face of the whol
 Then the angel who talked with me came out and said to me, "Lift your eyes now, and see what this _is_ that goes forth." 
 
 ###### 6 
-So I asked, "What _is_ it?" And he said, "It _is_ a [^a]basket that is going forth." He also said, "This _is_ their resemblance throughout the earth: 
+So I asked, "What _is_ it?" And he said, "It _is_ a basket that is going forth." He also said, "This _is_ their resemblance throughout the earth: 
 
 ###### 7 
 Here _is_ a lead disc lifted up, and this _is_ a woman sitting inside the basket"; 
 
 ###### 8 
-then he said, "This _is_ Wickedness!" And he thrust her down into the basket, and threw the lead [^b]cover over its mouth. 
+then he said, "This _is_ Wickedness!" And he thrust her down into the basket, and threw the lead cover over its mouth. 
 
 ###### 9 
 Then I raised my eyes and looked, and there _were_ two women, coming with the wind in their wings; for they had wings like the wings of a stork, and they lifted up the basket between earth and heaven. 
@@ -40,4 +40,4 @@ Then I raised my eyes and looked, and there _were_ two women, coming with the wi
 So I said to the angel who talked with me, "Where are they carrying the basket?" 
 
 ###### 11 
-And he said to me, "To build a house for it in the land of [^c]Shinar; when it is ready, _the basket_ will be set there on its base."
+And he said to me, "To build a house for it in the land of Shinar; when it is ready, _the basket_ will be set there on its base."

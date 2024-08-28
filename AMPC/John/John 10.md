@@ -154,7 +154,7 @@ Jesus used this parable (illustration) with them, but they did not understand wh
 
 
 
-So Jesus said again, I assure you, most solemnly I tell you, that I Myself am the Door [^a]for the sheep. 
+So Jesus said again, I assure you, most solemnly I tell you, that I Myself am the Door for the sheep. 
 
 
 
@@ -217,7 +217,7 @@ I am the Door; anyone who enters in through Me will be saved (will live). He wil
 
 
 
-The thief comes only in order to steal and kill and destroy. I came that they may have _and_ enjoy life, and have it in abundance (to the full, till it [^b]overflows). 
+The thief comes only in order to steal and kill and destroy. I came that they may have _and_ enjoy life, and have it in abundance (to the full, till it overflows). 
 
 
 
@@ -343,7 +343,7 @@ Even as [truly as] the Father knows Me and I also know the Father--and I am givi
 
 
 
-And I have other sheep [beside these] that are not of this fold. I must bring _and_ [^c]impel those also; and they will listen to My voice _and_ heed My call, and so there will be [they will become] one flock under one Shepherd. 
+And I have other sheep [beside these] that are not of this fold. I must bring _and_ impel those also; and they will listen to My voice _and_ heed My call, and so there will be [they will become] one flock under one Shepherd. 
 
 
 
@@ -658,7 +658,7 @@ I and the Father are One.
 
 
 
-Again the Jews [^d]brought up stones to stone Him. 
+Again the Jews brought up stones to stone Him. 
 
 
 
@@ -700,7 +700,7 @@ Jesus said to them, My Father has enabled Me to do many good deeds. [I have show
 
 
 
-The Jews replied, We are not going to stone You for a good act, but for blasphemy, because You, a mere [^e]Man, make Yourself [out to be] God. 
+The Jews replied, We are not going to stone You for a good act, but for blasphemy, because You, a mere Man, make Yourself [out to be] God. 
 
 
 

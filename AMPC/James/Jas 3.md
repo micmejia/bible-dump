@@ -28,7 +28,7 @@ next: ['Jas 4']
 
 
 
-Not many [of you] should become teachers ([^a]self-constituted censors and reprovers of others), my brethren, for you know that we [teachers] will be judged by a higher standard _and_ with greater severity [than other people; thus we assume the greater accountability and the more condemnation]. 
+Not many [of you] should become teachers (self-constituted censors and reprovers of others), my brethren, for you know that we [teachers] will be judged by a higher standard _and_ with greater severity [than other people; thus we assume the greater accountability and the more condemnation]. 
 
 
 

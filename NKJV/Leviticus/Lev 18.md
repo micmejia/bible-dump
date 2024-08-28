@@ -16,7 +16,7 @@ Then the Lord spoke to Moses, saying,
 "Speak to the children of Israel, and say to them: 'I am the Lord your God. 
 
 ###### 3 
-According to [^a]the doings of the land of Egypt, where you dwelt, you shall not do; and according to the doings of the land of Canaan, where I am bringing you, you shall not do; nor shall you walk in their [^b]ordinances. 
+According to the doings of the land of Egypt, where you dwelt, you shall not do; and according to the doings of the land of Canaan, where I am bringing you, you shall not do; nor shall you walk in their ordinances. 
 
 ###### 4 
 You shall observe My judgments and keep My ordinances, to walk in them: I _am_ the Lord your God. 
@@ -82,10 +82,10 @@ Nor shall you mate with any animal, to defile yourself with it. Nor shall any wo
 'Do not defile yourselves with any of these things; for by all these the nations are defiled, which I am casting out before you. 
 
 ###### 25 
-For the land is defiled; therefore I visit[^c] the punishment of its iniquity upon it, and the land vomits out its inhabitants. 
+For the land is defiled; therefore I visit the punishment of its iniquity upon it, and the land vomits out its inhabitants. 
 
 ###### 26 
-You shall therefore [^d]keep My statutes and My judgments, and shall not commit _any_ of these abominations, _either_ any of your own nation or any stranger who dwells among you 
+You shall therefore keep My statutes and My judgments, and shall not commit _any_ of these abominations, _either_ any of your own nation or any stranger who dwells among you 
 
 ###### 27 
 (for all these abominations the men of the land have done, who _were_ before you, and thus the land is defiled), 
@@ -94,7 +94,7 @@ You shall therefore [^d]keep My statutes and My judgments, and shall not commit 
 lest the land vomit you out also when you defile it, as it vomited out the nations that _were_ before you. 
 
 ###### 29 
-For whoever commits any of these abominations, the persons who commit _them_ shall be [^e]cut off from among their people. 
+For whoever commits any of these abominations, the persons who commit _them_ shall be cut off from among their people. 
 
 ###### 30 
-'Therefore you shall keep My [^f]ordinance, so that _you_ do not commit _any_ of these abominable customs which were committed before you, and that you do not defile yourselves by them: I _am_ the Lord your God.' "
+'Therefore you shall keep My ordinance, so that _you_ do not commit _any_ of these abominable customs which were committed before you, and that you do not defile yourselves by them: I _am_ the Lord your God.' "

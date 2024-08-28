@@ -91,7 +91,7 @@ And when the wine was all gone, the mother of Jesus said to Him, They have no mo
 
 
 
-Jesus said to her, [[^a]Dear] woman, what is that to you and to Me? [What do we have in common? Leave it to Me.] My time (hour to act) has not yet come. 
+Jesus said to her, [Dear] woman, what is that to you and to Me? [What do we have in common? Leave it to Me.] My time (hour to act) has not yet come. 
 
 
 
@@ -301,7 +301,7 @@ Now the Passover of the Jews was approaching, so Jesus went up to Jerusalem.
 
 
 
-There He found in the temple [[^b]enclosure] those who were selling oxen and sheep and doves, and the money changers sitting there [also at their stands]. 
+There He found in the temple [enclosure] those who were selling oxen and sheep and doves, and the money changers sitting there [also at their stands]. 
 
 
 
@@ -322,7 +322,7 @@ There He found in the temple [[^b]enclosure] those who were selling oxen and she
 
 
 
-And having made a lash (a whip) of cords, He drove them all out of the temple [[^c]enclosure]--both the sheep and the oxen--spilling _and_ scattering the brokers' money and upsetting _and_ tossing around their trays (their stands). 
+And having made a lash (a whip) of cords, He drove them all out of the temple [enclosure]--both the sheep and the oxen--spilling _and_ scattering the brokers' money and upsetting _and_ tossing around their trays (their stands). 
 
 
 
@@ -385,7 +385,7 @@ And His disciples remembered that it is written [in the Holy Scriptures], Zeal (
 
 
 
-Then the Jews retorted, What sign can [^d]You show us, seeing You do these things? [What sign, miracle, token, indication can You give us as evidence that You have authority and are commissioned to act in this way?] 
+Then the Jews retorted, What sign can You show us, seeing You do these things? [What sign, miracle, token, indication can You give us as evidence that You have authority and are commissioned to act in this way?] 
 
 
 

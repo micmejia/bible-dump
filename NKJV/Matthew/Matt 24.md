@@ -25,10 +25,10 @@ And Jesus answered and said to them: "Take heed that no one deceives you.
 For many will come in My name, saying, 'I am the Christ,' and will deceive many. 
 
 ###### 6 
-And you will hear of wars and rumors of wars. See that you are not troubled; for [^a]all _these things_ must come to pass, but the end is not yet. 
+And you will hear of wars and rumors of wars. See that you are not troubled; for all _these things_ must come to pass, but the end is not yet. 
 
 ###### 7 
-For nation will rise against nation, and kingdom against kingdom. And there will be famines, [^b]pestilences, and earthquakes in various places. 
+For nation will rise against nation, and kingdom against kingdom. And there will be famines, pestilences, and earthquakes in various places. 
 
 ###### 8 
 All these _are_ the beginning of sorrows. 
@@ -73,7 +73,7 @@ And pray that your flight may not be in winter or on the Sabbath.
 For then there will be great tribulation, such as has not been since the beginning of the world until this time, no, nor ever shall be. 
 
 ###### 22 
-And unless those days were shortened, no flesh would be saved; but for the [^c]elect's sake those days will be shortened. 
+And unless those days were shortened, no flesh would be saved; but for the elect's sake those days will be shortened. 
 
 ###### 23 
 "Then if anyone says to you, 'Look, here _is_ the Christ!' or 'There!' do not believe _it._ 
@@ -100,13 +100,13 @@ For wherever the carcass is, there the eagles will be gathered together. ## The 
 Then the sign of the Son of Man will appear in heaven, and then all the tribes of the earth will mourn, and they will see the Son of Man coming on the clouds of heaven with power and great glory. 
 
 ###### 31 
-And He will send His angels with a great sound of a trumpet, and they will gather together His [^d]elect from the four winds, from one end of heaven to the other. ## The Parable of the Fig Tree 
+And He will send His angels with a great sound of a trumpet, and they will gather together His elect from the four winds, from one end of heaven to the other. ## The Parable of the Fig Tree 
 
 ###### 32 
 "Now learn this parable from the fig tree: When its branch has already become tender and puts forth leaves, you know that summer _is_ near. 
 
 ###### 33 
-So you also, when you see all these things, know that [^e]it is near--at the doors! 
+So you also, when you see all these things, know that it is near--at the doors! 
 
 ###### 34 
 Assuredly, I say to you, this generation will by no means pass away till all these things take place. 
@@ -115,7 +115,7 @@ Assuredly, I say to you, this generation will by no means pass away till all the
 Heaven and earth will pass away, but My words will by no means pass away. ## No One Knows the Day or Hour 
 
 ###### 36 
-"But of that day and hour no one knows, not even the angels of [^f]heaven, but My Father only. 
+"But of that day and hour no one knows, not even the angels of heaven, but My Father only. 
 
 ###### 37 
 But as the days of Noah _were,_ so also will the coming of the Son of Man be. 
@@ -133,16 +133,16 @@ Then two _men_ will be in the field: one will be taken and the other left.
 Two _women will be_ grinding at the mill: one will be taken and the other left. 
 
 ###### 42 
-Watch therefore, for you do not know what [^g]hour your Lord is coming. 
+Watch therefore, for you do not know what hour your Lord is coming. 
 
 ###### 43 
-But know this, that if the master of the house had known what [^h]hour the thief would come, he would have watched and not allowed his house to be broken into. 
+But know this, that if the master of the house had known what hour the thief would come, he would have watched and not allowed his house to be broken into. 
 
 ###### 44 
 Therefore you also be ready, for the Son of Man is coming at an hour you do not expect. ## The Faithful Servant and the Evil Servant 
 
 ###### 45 
-"Who then is a faithful and wise servant, whom his master made ruler over his household, to give them food [^i]in due season? 
+"Who then is a faithful and wise servant, whom his master made ruler over his household, to give them food in due season? 
 
 ###### 46 
 Blessed _is_ that servant whom his master, when he comes, will find so doing. 
@@ -151,7 +151,7 @@ Blessed _is_ that servant whom his master, when he comes, will find so doing.
 Assuredly, I say to you that he will make him ruler over all his goods. 
 
 ###### 48 
-But if that evil servant says in his heart, 'My master is delaying [^j]his coming,' 
+But if that evil servant says in his heart, 'My master is delaying his coming,' 
 
 ###### 49 
 and begins to beat _his_ fellow servants, and to eat and drink with the drunkards, 

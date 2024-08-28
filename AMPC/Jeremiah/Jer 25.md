@@ -238,7 +238,7 @@ Moreover, I will take from them the voice of mirth and the voice of gladness, th
 
 
 
-And this whole land shall be a waste and an astonishment, and these nations shall serve the king of Babylon [^a]seventy years. 
+And this whole land shall be a waste and an astonishment, and these nations shall serve the king of Babylon seventy years. 
 
 
 

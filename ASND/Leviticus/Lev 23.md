@@ -568,7 +568,7 @@ Kung aani kayo, huwag ninyong uubusin ang mga nasa gilid ng inyong mga bukid, at
 
 
 
-Huwag kayong magtrabaho sa araw na iyon, sa halip mag-alay kayo ng handog sa pamamagitan ng apoy para sa Panginoon. ## Ang Araw ng Pagtubos <sup class="versenum">26-28</sup>Ang ikasampung araw ng ikapitong buwan ding iyon ay Araw ng Pagtubos.[^a] Huwag kayong magtatrabaho sa araw na iyon kundi magtipon kayo sa pagsamba sa Panginoon na may pag-aayuno at pag-aalay ng handog sa pamamagitan ng apoy. Sapagkat sa araw na iyon gagawin ang seremonya ng pagtubos sa inyong mga kasalanan sa Panginoon na inyong Dios. 
+Huwag kayong magtrabaho sa araw na iyon, sa halip mag-alay kayo ng handog sa pamamagitan ng apoy para sa Panginoon. ## Ang Araw ng Pagtubos <sup class="versenum">26-28</sup>Ang ikasampung araw ng ikapitong buwan ding iyon ay Araw ng Pagtubos. Huwag kayong magtatrabaho sa araw na iyon kundi magtipon kayo sa pagsamba sa Panginoon na may pag-aayuno at pag-aalay ng handog sa pamamagitan ng apoy. Sapagkat sa araw na iyon gagawin ang seremonya ng pagtubos sa inyong mga kasalanan sa Panginoon na inyong Dios. 
 
 
 
@@ -700,7 +700,7 @@ Sa unang araw, huwag kayong magtatrabaho, sa halip magtipon kayo at sumamba sa P
 
 
 
-Sa loob ng pitong araw, mag-aalay kayo ng handog sa pamamagitan ng apoy para sa Panginoon. Sa ikawalong araw,[^b] hindi rin kayo magtatrabaho kundi muli kayong magtipon sa pagsamba sa Panginoon, at maghandog sa kanya. Iyan ang panghuling araw ng inyong pagtitipon. 
+Sa loob ng pitong araw, mag-aalay kayo ng handog sa pamamagitan ng apoy para sa Panginoon. Sa ikawalong araw, hindi rin kayo magtatrabaho kundi muli kayong magtipon sa pagsamba sa Panginoon, at maghandog sa kanya. Iyan ang panghuling araw ng inyong pagtitipon. 
 
 
 

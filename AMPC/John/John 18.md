@@ -364,7 +364,7 @@ But Peter was standing outside at the door. So the other disciple, who was known
 
 
 
-Then the maid who was in charge at the door said to Peter, You are not also one of the disciples of this [^a]Man, are you? He said, I am not! 
+Then the maid who was in charge at the door said to Peter, You are not also one of the disciples of this Man, are you? He said, I am not! 
 
 
 
@@ -469,7 +469,7 @@ Why do you ask Me? Ask those who have heard [Me] what I said to them. See! They 
 
 
 
-But when He said this, one of the attendants who stood by struck Jesus, saying, Is that how [^b]You answer the high priest? 
+But when He said this, one of the attendants who stood by struck Jesus, saying, Is that how You answer the high priest? 
 
 
 
@@ -616,7 +616,7 @@ Then they brought Jesus from Caiaphas into the Praetorium (judgment hall, govern
 
 
 
-So Pilate went out to them and said, What accusation do you bring against this [^c]Man? 
+So Pilate went out to them and said, What accusation do you bring against this Man? 
 
 
 

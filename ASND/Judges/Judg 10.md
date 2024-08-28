@@ -139,7 +139,7 @@ Sumunod kay Tola ay si Jair na taga-Gilead. Pinamunuan niya ang Israel sa loob n
 
 
 
-Mayroon siyang 30 anak, at ang bawat isa sa kanilaʼy may asnong sinasakyan. Ang mga ito ang namamahala sa 30 bayan sa Gilead na tinatawag ngayon na bayan ni Jair.[^a] 
+Mayroon siyang 30 anak, at ang bawat isa sa kanilaʼy may asnong sinasakyan. Ang mga ito ang namamahala sa 30 bayan sa Gilead na tinatawag ngayon na bayan ni Jair. 
 
 
 
@@ -205,7 +205,7 @@ Nang mamatay si Jair, inilibing siya sa Kamon. ## Pinahirapan ng mga Ammonita an
 
 
 
-Muling gumawa ng kasamaan ang mga Israelita sa paningin ng Panginoon. Itinakwil nila ang Panginoon at sumamba sila sa <i class="trans-change">mga imahen ni_ Baal at ni Ashtoret, at sa mga dios-diosan ng Aram,[^b] Sidon, Moab, Ammon at Filisteo. 
+Muling gumawa ng kasamaan ang mga Israelita sa paningin ng Panginoon. Itinakwil nila ang Panginoon at sumamba sila sa <i class="trans-change">mga imahen ni_ Baal at ni Ashtoret, at sa mga dios-diosan ng Aram, Sidon, Moab, Ammon at Filisteo. 
 
 
 
@@ -337,7 +337,7 @@ Tumawid din ang mga taga-Ammon sa <i class="trans-change">kanluran ng Ilog ng_ J
 
 
 
-Kaya humingi ng tulong ang mga Israelita sa Panginoon. Sinabi nila, "Nagkasala po kami laban sa inyo, dahil tumalikod kami sa inyo na aming Dios at sumamba sa <i class="trans-change">mga imahen ni_ Baal." <sup class="versenum">11-12</sup>Sumagot ang Panginoon, "Nang pinahirapan kayo ng mga Egipcio, Amoreo, Ammonita, Filisteo, Sidoneo, Amalekita at mga Maon,[^c] humingi kayo ng tulong sa akin at iniligtas ko kayo. 
+Kaya humingi ng tulong ang mga Israelita sa Panginoon. Sinabi nila, "Nagkasala po kami laban sa inyo, dahil tumalikod kami sa inyo na aming Dios at sumamba sa <i class="trans-change">mga imahen ni_ Baal." <sup class="versenum">11-12</sup>Sumagot ang Panginoon, "Nang pinahirapan kayo ng mga Egipcio, Amoreo, Ammonita, Filisteo, Sidoneo, Amalekita at mga Maon, humingi kayo ng tulong sa akin at iniligtas ko kayo. 
 
 
 

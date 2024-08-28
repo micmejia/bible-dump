@@ -16,7 +16,7 @@ And I, brethren, could not speak to you as to spiritual _people_ but as to carna
 I fed you with milk and not with solid food; for until now you were not able _to receive it,_ and even now you are still not able; 
 
 ###### 3 
-for you are still carnal. For where _there are_ envy, strife, and divisions among you, are you not carnal and [^a]behaving like _mere_ men? 
+for you are still carnal. For where _there are_ envy, strife, and divisions among you, are you not carnal and behaving like _mere_ men? 
 
 ###### 4 
 For when one says, "I am of Paul," and another, "I _am_ of Apollos," are you not carnal? ## Watering, Working, Warning 
@@ -58,7 +58,7 @@ If anyone's work is burned, he will suffer loss; but he himself will be saved, y
 Do you not know that you are the temple of God and _that_ the Spirit of God dwells in you? 
 
 ###### 17 
-If anyone [^b]defiles the temple of God, God will destroy him. For the temple of God is holy, which _temple_ you are. ## Avoid Worldly Wisdom 
+If anyone defiles the temple of God, God will destroy him. For the temple of God is holy, which _temple_ you are. ## Avoid Worldly Wisdom 
 
 ###### 18 
 Let no one deceive himself. If anyone among you seems to be wise in this age, let him become a fool that he may become wise. 

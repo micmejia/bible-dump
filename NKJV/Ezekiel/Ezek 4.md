@@ -31,7 +31,7 @@ And when you have completed them, lie again on your right side; then you shall b
 "Therefore you shall set your face toward the siege of Jerusalem; your arm _shall be_ uncovered, and you shall prophesy against it. 
 
 ###### 8 
-And surely I will [^a]restrain you so that you cannot turn from one side to another till you have ended the days of your siege. 
+And surely I will restrain you so that you cannot turn from one side to another till you have ended the days of your siege. 
 
 ###### 9 
 "Also take for yourself wheat, barley, beans, lentils, millet, and spelt; put them into one vessel, and make bread of them for yourself. _During_ the number of days that you lie on your side, three hundred and ninety days, you shall eat it. 
@@ -49,7 +49,7 @@ And you shall eat it _as_ barley cakes; and bake it using fuel of human waste in
 Then the Lord said, "So shall the children of Israel eat their defiled bread among the Gentiles, where I will drive them." 
 
 ###### 14 
-So I said, "Ah, Lord God! Indeed I have never defiled myself from my youth till now; I have never eaten what died of itself or was torn by beasts, nor has abominable[^b] flesh ever come into my mouth." 
+So I said, "Ah, Lord God! Indeed I have never defiled myself from my youth till now; I have never eaten what died of itself or was torn by beasts, nor has abominable flesh ever come into my mouth." 
 
 ###### 15 
 Then He said to me, "See, I am giving you cow dung instead of human waste, and you shall prepare your bread over it." 

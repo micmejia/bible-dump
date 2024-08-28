@@ -304,7 +304,7 @@ Ang sinumang hindi kumakalinga sa sariling kamag-anak, lalo na sa sariling pamil
 
 
 
-Ang isama mo lang sa listahan ng mga biyuda na tutulungan ay ang mga hindi bababa sa 60 taong gulang at naging tapat sa asawa niya,[^a] 
+Ang isama mo lang sa listahan ng mga biyuda na tutulungan ay ang mga hindi bababa sa 60 taong gulang at naging tapat sa asawa niya, 
 
 
 
@@ -337,7 +337,7 @@ Ang isama mo lang sa listahan ng mga biyuda na tutulungan ay ang mga hindi babab
 
 
 
-kilala sa paggawa ng mabuti gaya ng maayos na pagpapalaki ng mga anak, bukas ang tahanan sa mga nakikituloy, naglilingkod[^b] sa mga pinabanal[^c] <i class="trans-change">ng Dios_, tumutulong sa mga nangangailangan, at inilalaan ang sarili sa mabubuting gawa. 
+kilala sa paggawa ng mabuti gaya ng maayos na pagpapalaki ng mga anak, bukas ang tahanan sa mga nakikituloy, naglilingkod sa mga pinabanal <i class="trans-change">ng Dios_, tumutulong sa mga nangangailangan, at inilalaan ang sarili sa mabubuting gawa. 
 
 
 
@@ -601,7 +601,7 @@ Ang mga namumuno sa iglesya na naglilingkod nang mabuti ay dapat bigyan ng narar
 
 
 
-Sapagkat sinasabi sa Kasulatan, "Huwag mong bubusalan ang baka habang gumigiik"[^d] at sinasabi pa, "Nararapat bigyan ng sahod ang manggagawa."[^e] 
+Sapagkat sinasabi sa Kasulatan, "Huwag mong bubusalan ang baka habang gumigiik" at sinasabi pa, "Nararapat bigyan ng sahod ang manggagawa." 
 
 
 
@@ -766,7 +766,7 @@ Huwag kang padalos-dalos sa pagpapatong ng kamay mo sa kahit sino <i class="tran
 
 
 
-Dahil sa madalas na pananakit ng sikmura mo, uminom ka ng kaunting alak.[^f] 
+Dahil sa madalas na pananakit ng sikmura mo, uminom ka ng kaunting alak. 
 
 
 

@@ -9,7 +9,7 @@ next: ['Deut 2']
 
 
 ###### 1 
-These _are_ the words which Moses spoke to all Israel on this side of the Jordan in the wilderness, in the [^a]plain opposite [^b]Suph, between Paran, Tophel, Laban, Hazeroth, and Dizahab. 
+These _are_ the words which Moses spoke to all Israel on this side of the Jordan in the wilderness, in the plain opposite Suph, between Paran, Tophel, Laban, Hazeroth, and Dizahab. 
 
 ###### 2 
 _It is_ eleven days' _journey_ from Horeb by way of Mount Seir to Kadesh Barnea. 
@@ -18,7 +18,7 @@ _It is_ eleven days' _journey_ from Horeb by way of Mount Seir to Kadesh Barnea.
 Now it came to pass in the fortieth year, in the eleventh month, on the first _day_ of the month, _that_ Moses spoke to the children of Israel according to all that the Lord had given him as commandments to them, 
 
 ###### 4 
-after he had killed Sihon king of the Amorites, who dwelt in Heshbon, and Og king of Bashan, who dwelt at Ashtaroth in[^c] Edrei. 
+after he had killed Sihon king of the Amorites, who dwelt in Heshbon, and Og king of Bashan, who dwelt at Ashtaroth in Edrei. 
 
 ###### 5 
 On this side of the Jordan in the land of Moab, Moses began to explain this law, saying, 
@@ -27,13 +27,13 @@ On this side of the Jordan in the land of Moab, Moses began to explain this law,
 "The Lord our God spoke to us in Horeb, saying: 'You have dwelt long enough at this mountain. 
 
 ###### 7 
-Turn and take your journey, and go to the mountains of the Amorites, to all the neighboring _places_ in the [^d]plain, in the mountains and in the lowland, in the South and on the seacoast, to the land of the Canaanites and to Lebanon, as far as the great river, the River Euphrates. 
+Turn and take your journey, and go to the mountains of the Amorites, to all the neighboring _places_ in the plain, in the mountains and in the lowland, in the South and on the seacoast, to the land of the Canaanites and to Lebanon, as far as the great river, the River Euphrates. 
 
 ###### 8 
-See, I have set the land before you; go in and possess the land which the Lord [^e]swore to your fathers--to Abraham, Isaac, and Jacob--to give to them and their descendants after them.' ## Tribal Leaders Appointed 
+See, I have set the land before you; go in and possess the land which the Lord swore to your fathers--to Abraham, Isaac, and Jacob--to give to them and their descendants after them.' ## Tribal Leaders Appointed 
 
 ###### 9 
-"And I spoke to you at that time, saying: 'I [^f]alone am not able to bear you. 
+"And I spoke to you at that time, saying: 'I alone am not able to bear you. 
 
 ###### 10 
 The Lord your God has multiplied you, and here you _are_ today, as the stars of heaven in multitude. 
@@ -45,13 +45,13 @@ May the Lord God of your fathers make you a thousand times more numerous than yo
 How can I alone bear your problems and your burdens and your complaints? 
 
 ###### 13 
-Choose wise, understanding, and knowledgeable men from among your tribes, and I will make them [^g]heads over you.' 
+Choose wise, understanding, and knowledgeable men from among your tribes, and I will make them heads over you.' 
 
 ###### 14 
 And you answered me and said, 'The thing which you have told _us_ to do _is_ good.' 
 
 ###### 15 
-So I took the heads of your tribes, wise and knowledgeable men, and [^h]made them heads over you, leaders of thousands, leaders of hundreds, leaders of fifties, leaders of tens, and officers for your tribes. 
+So I took the heads of your tribes, wise and knowledgeable men, and made them heads over you, leaders of thousands, leaders of hundreds, leaders of fifties, leaders of tens, and officers for your tribes. 
 
 ###### 16 
 "Then I commanded your judges at that time, saying, 'Hear _the cases_ between your brethren, and judge righteously between a man and his brother or the stranger who is with him. 
@@ -90,7 +90,7 @@ They also took _some_ of the fruit of the land in their hands and brought _it_ d
 and you complained in your tents, and said, 'Because the Lord hates us, He has brought us out of the land of Egypt to deliver us into the hand of the Amorites, to destroy us. 
 
 ###### 28 
-Where can we go up? Our brethren have [^i]discouraged our hearts, saying, "The people _are_ greater and taller than we; the cities _are_ great and fortified up to heaven; moreover we have seen the sons of the Anakim there." ' 
+Where can we go up? Our brethren have discouraged our hearts, saying, "The people _are_ greater and taller than we; the cities _are_ great and fortified up to heaven; moreover we have seen the sons of the Anakim there." ' 
 
 ###### 29 
 "Then I said to you, 'Do not be terrified, or afraid of them. 
@@ -111,10 +111,10 @@ who went in the way before you to search out a place for you to pitch your tents
 "And the Lord heard the sound of your words, and was angry, and took an oath, saying, 
 
 ###### 35 
-'Surely not one of these men of this evil generation shall see that good land of which I [^j]swore to give to your fathers, 
+'Surely not one of these men of this evil generation shall see that good land of which I swore to give to your fathers, 
 
 ###### 36 
-except Caleb the son of Jephunneh; he shall see it, and to him and his children I am giving the land on which he walked, because he [^k]wholly followed the Lord.' 
+except Caleb the son of Jephunneh; he shall see it, and to him and his children I am giving the land on which he walked, because he wholly followed the Lord.' 
 
 ###### 37 
 The Lord was also angry with me for your sakes, saying, 'Even you shall not go in there. 
@@ -135,7 +135,7 @@ But _as for_ you, turn and take your journey into the wilderness by the Way of t
 "And the Lord said to me, 'Tell them, "Do not go up nor fight, for I _am_ not among you; lest you be defeated before your enemies." ' 
 
 ###### 43 
-So I spoke to you; yet you would not listen, but rebelled against the command of the Lord, and presumptuously[^l] went up into the mountain. 
+So I spoke to you; yet you would not listen, but rebelled against the command of the Lord, and presumptuously went up into the mountain. 
 
 ###### 44 
 And the Amorites who dwelt in that mountain came out against you and chased you as bees do, and drove you back from Seir to Hormah. 

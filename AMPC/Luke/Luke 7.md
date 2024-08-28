@@ -133,7 +133,7 @@ For he loves our nation and he built us our synagogue [at his own expense].
 
 
 
-And Jesus went with them. But when He was not far from the house, the centurion sent [some] friends to Him, saying, Lord, do not trouble [Yourself], for I am not [^a]sufficiently worthy to have You come under my roof; 
+And Jesus went with them. But when He was not far from the house, the centurion sent [some] friends to Him, saying, Lord, do not trouble [Yourself], for I am not sufficiently worthy to have You come under my roof; 
 
 
 
@@ -217,7 +217,7 @@ Now when Jesus heard this, He marveled at him, and He turned and said to the cro
 
 
 
-And when the messengers who had been sent returned to the house, they found the bond servant [^b]_who had been ill_ quite well again. 
+And when the messengers who had been sent returned to the house, they found the bond servant _who had been ill_ quite well again. 
 
 
 
@@ -238,7 +238,7 @@ And when the messengers who had been sent returned to the house, they found the 
 
 
 
-[^c]Soon afterward, Jesus went to a town called Nain, and His disciples and a great throng accompanied Him. 
+Soon afterward, Jesus went to a town called Nain, and His disciples and a great throng accompanied Him. 
 
 
 
@@ -301,7 +301,7 @@ And when the Lord saw her, He had compassion on her and said to her, Do not weep
 
 
 
-And He went forward and touched the funeral bier, and the pallbearers stood still. And He said, Young man, I say to you, arise [[^d]from death]! 
+And He went forward and touched the funeral bier, and the pallbearers stood still. And He said, Young man, I say to you, arise [from death]! 
 
 
 
@@ -343,7 +343,7 @@ And the man [who was] dead sat up and began to speak. And [Jesus] gave him [back
 
 
 
-Profound _and_ reverent fear seized them all, and they began [^e]to recognize God _and_ praise _and_ give thanks, saying, A great [^f]Prophet has appeared among us! And God has visited His people [in order to help and care for and provide for them]! 
+Profound _and_ reverent fear seized them all, and they began to recognize God _and_ praise _and_ give thanks, saying, A great Prophet has appeared among us! And God has visited His people [in order to help and care for and provide for them]! 
 
 
 
@@ -448,7 +448,7 @@ So the men came to Jesus and said, John the Baptist sent us to You to ask, Are Y
 
 
 
-In that very hour Jesus was healing many [people] of sicknesses and distressing bodily plagues and evil spirits, and to many who were blind He gave [[^g]a free, gracious, joy-giving gift of] sight. 
+In that very hour Jesus was healing many [people] of sicknesses and distressing bodily plagues and evil spirits, and to many who were blind He gave [a free, gracious, joy-giving gift of] sight. 
 
 
 
@@ -490,7 +490,7 @@ So He replied to them, Go and tell John what you have seen and heard: the blind 
 
 
 
-And blessed (happy--[^h]with life-joy and satisfaction in God's favor and salvation, apart from outward conditions--and [^i]to be envied) is he who takes no offense in Me _and_ who is not hurt _or_ resentful _or_ annoyed _or_ repelled _or_ made to stumble [[^j]whatever may occur]. 
+And blessed (happy--with life-joy and satisfaction in God's favor and salvation, apart from outward conditions--and to be envied) is he who takes no offense in Me _and_ who is not hurt _or_ resentful _or_ annoyed _or_ repelled _or_ made to stumble [whatever may occur]. 
 
 
 
@@ -595,7 +595,7 @@ This is the one of whom it is written, Behold, I send My messenger before Your f
 
 
 
-I tell you, among those born of women there is no one greater than John; but [^k]he that is inferior [to the other citizens] in the kingdom of God is greater [in incomparable privilege] than he. 
+I tell you, among those born of women there is no one greater than John; but he that is inferior [to the other citizens] in the kingdom of God is greater [in incomparable privilege] than he. 
 
 
 
@@ -616,7 +616,7 @@ I tell you, among those born of women there is no one greater than John; but [^k
 
 
 
-And all the people who heard Him, even the tax collectors, acknowledged the justice of God [in [^l]calling them to repentance and in pronouncing future wrath on the impenitent], being baptized with the baptism of John. 
+And all the people who heard Him, even the tax collectors, acknowledged the justice of God [in calling them to repentance and in pronouncing future wrath on the impenitent], being baptized with the baptism of John. 
 
 
 
@@ -742,7 +742,7 @@ The Son of Man has come eating and drinking, and you say, Behold, a Man Who is a
 
 
 
-Yet wisdom is vindicated ([^m]shown to be true and divine) by all her children [[^n]by their life, character, and deeds]. 
+Yet wisdom is vindicated (shown to be true and divine) by all her children [by their life, character, and deeds]. 
 
 
 
@@ -784,7 +784,7 @@ One of the Pharisees asked Jesus to dine with him, and He went into the Pharisee
 
 
 
-And behold, a woman of the town who was [^o]an especially wicked sinner, when she learned that He was reclining at table in the Pharisee's house, brought an alabaster flask of ointment (perfume). 
+And behold, a woman of the town who was an especially wicked sinner, when she learned that He was reclining at table in the Pharisee's house, brought an alabaster flask of ointment (perfume). 
 
 
 
@@ -952,7 +952,7 @@ Then turning toward the woman, He said to Simon, Do you see this woman? When I c
 
 
 
-You gave Me no kiss, but she from the moment I came in has not ceased [[^p]intermittently] to kiss My feet tenderly _and_ caressingly. 
+You gave Me no kiss, but she from the moment I came in has not ceased [intermittently] to kiss My feet tenderly _and_ caressingly. 
 
 
 
@@ -973,7 +973,7 @@ You gave Me no kiss, but she from the moment I came in has not ceased [[^p]inter
 
 
 
-You did not anoint My head with [^q][cheap, ordinary] oil, but she has anointed My feet with [^r][costly, rare] perfume. 
+You did not anoint My head with [cheap, ordinary] oil, but she has anointed My feet with [costly, rare] perfume. 
 
 
 
@@ -1057,4 +1057,4 @@ Then those who were at table with Him began to say among themselves, Who is this
 
 
 
-But Jesus said to the woman, Your faith has saved you; go (enter) [^s]into peace [[^t]in freedom from all the distresses that are experienced as the result of sin].
+But Jesus said to the woman, Your faith has saved you; go (enter) into peace [in freedom from all the distresses that are experienced as the result of sin].

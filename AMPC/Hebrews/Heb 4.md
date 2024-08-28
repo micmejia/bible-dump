@@ -28,7 +28,7 @@ next: ['Heb 5']
 
 
 
-Therefore, while the promise of entering His rest still holds _and_ is offered [today], let us be afraid [[^a]to distrust it], lest any of you should [^b]think he has come too late _and_ has come short of [reaching] it. 
+Therefore, while the promise of entering His rest still holds _and_ is offered [today], let us be afraid [to distrust it], lest any of you should think he has come too late _and_ has come short of [reaching] it. 
 
 
 
@@ -49,7 +49,7 @@ Therefore, while the promise of entering His rest still holds _and_ is offered [
 
 
 
-For indeed we have had the glad tidings [Gospel of God] proclaimed to us just as truly as they [the Israelites of old did when the good news of deliverance from bondage came to them]; but the message they heard did not benefit them, because it was not mixed with faith (with [^c]the leaning of the entire personality on God in absolute trust and confidence in His power, wisdom, and goodness) by those who heard it; [^d]_neither were they united in faith with the ones [Joshua and Caleb] who heard (did believe)._ 
+For indeed we have had the glad tidings [Gospel of God] proclaimed to us just as truly as they [the Israelites of old did when the good news of deliverance from bondage came to them]; but the message they heard did not benefit them, because it was not mixed with faith (with the leaning of the entire personality on God in absolute trust and confidence in His power, wisdom, and goodness) by those who heard it; _neither were they united in faith with the ones [Joshua and Caleb] who heard (did believe)._ 
 
 
 
@@ -70,7 +70,7 @@ For indeed we have had the glad tidings [Gospel of God] proclaimed to us just as
 
 
 
-For we who have believed (adhered to and trusted in and relied on God) do enter that rest, [^e]in accordance with His declaration that those [who did not believe] should not enter when He said, As I swore in My wrath, They shall not enter My rest; and this He said although [His] works had been completed _and_ prepared [and waiting for all who would believe] from the foundation of the world. 
+For we who have believed (adhered to and trusted in and relied on God) do enter that rest, in accordance with His declaration that those [who did not believe] should not enter when He said, As I swore in My wrath, They shall not enter My rest; and this He said although [His] works had been completed _and_ prepared [and waiting for all who would believe] from the foundation of the world. 
 
 
 
@@ -217,7 +217,7 @@ So then, there is still awaiting a full _and_ complete Sabbath-rest reserved for
 
 
 
-For he who has once entered [God's] rest also has ceased from [the weariness and pain] of human labors, just as God rested from those labors [^f]peculiarly His own. 
+For he who has once entered [God's] rest also has ceased from [the weariness and pain] of human labors, just as God rested from those labors peculiarly His own. 
 
 
 
@@ -259,7 +259,7 @@ Let us therefore be zealous _and_ exert ourselves _and_ strive diligently to ent
 
 
 
-For the Word that God speaks is alive and full of power [making it active, operative, energizing, and effective]; it is sharper than any two-edged sword, penetrating to the dividing line of the [^g]breath of life (soul) and [the immortal] spirit, and of joints and marrow [of the deepest parts of our nature], exposing _and_ sifting _and_ analyzing _and_ judging the very thoughts and purposes of the heart. 
+For the Word that God speaks is alive and full of power [making it active, operative, energizing, and effective]; it is sharper than any two-edged sword, penetrating to the dividing line of the breath of life (soul) and [the immortal] spirit, and of joints and marrow [of the deepest parts of our nature], exposing _and_ sifting _and_ analyzing _and_ judging the very thoughts and purposes of the heart. 
 
 
 

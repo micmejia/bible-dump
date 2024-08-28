@@ -406,7 +406,7 @@ Baalath and Tamar (Tadmor) in the wilderness, in the land of Judah,
 
 
 
-And all the store cities which Solomon had and cities for his chariots and cities for his horsemen, and whatever Solomon desired to build [^a]for his pleasure in Jerusalem, in Lebanon, and in all the land of his dominion. 
+And all the store cities which Solomon had and cities for his chariots and cities for his horsemen, and whatever Solomon desired to build for his pleasure in Jerusalem, in Lebanon, and in all the land of his dominion. 
 
 
 

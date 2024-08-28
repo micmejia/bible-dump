@@ -39,7 +39,7 @@ next: ['Rom 2']
 
 
 
-<i class="trans-change">Mula kay_ Pablo na lingkod[^a] ni Cristo Jesus. Pinili at tinawag ako ng Dios na maging apostol upang ipangaral ang kanyang Magandang Balita. 
+<i class="trans-change">Mula kay_ Pablo na lingkod ni Cristo Jesus. Pinili at tinawag ako ng Dios na maging apostol upang ipangaral ang kanyang Magandang Balita. 
 
 
 
@@ -72,7 +72,7 @@ next: ['Rom 2']
 
 
 
-Ang Magandang Balitang itoʼy ipinangako ng Dios noon sa pamamagitan ng mga propeta at nakasulat sa Banal na Kasulatan. ###### 3-4 Ang balitang itoʼy tungkol sa kanyang Anak, ang ating Panginoong Jesu-Cristo. Sa kanyang pagkatao, isinilang siya sa lahi ni <i class="trans-change">Haring_ David, at sa kanyang banal na espiritu,[^b] napatunayang siya ang makapangyarihang Anak ng Dios, nang siyaʼy nabuhay mula sa mga patay. 
+Ang Magandang Balitang itoʼy ipinangako ng Dios noon sa pamamagitan ng mga propeta at nakasulat sa Banal na Kasulatan. ###### 3-4 Ang balitang itoʼy tungkol sa kanyang Anak, ang ating Panginoong Jesu-Cristo. Sa kanyang pagkatao, isinilang siya sa lahi ni <i class="trans-change">Haring_ David, at sa kanyang banal na espiritu, napatunayang siya ang makapangyarihang Anak ng Dios, nang siyaʼy nabuhay mula sa mga patay. 
 
 
 
@@ -171,7 +171,7 @@ At kayong <i class="trans-change">mga mananampalataya riyan sa Roma_ ay kabilang
 
 
 
-Sa inyong lahat diyan sa Roma na minamahal ng Dios at tinawag na maging banal,[^c] sumainyo nawa ang biyaya at kapayapaang galing sa Dios na ating Ama at sa Panginoong Jesu-Cristo. ## Ang Dahilan ng Pagpunta ni Pablo sa Roma 
+Sa inyong lahat diyan sa Roma na minamahal ng Dios at tinawag na maging banal, sumainyo nawa ang biyaya at kapayapaang galing sa Dios na ating Ama at sa Panginoong Jesu-Cristo. ## Ang Dahilan ng Pagpunta ni Pablo sa Roma 
 
 
 
@@ -501,7 +501,7 @@ Hindi ko ikinakahiya ang Magandang Balita <i class="trans-change">tungkol kay Cr
 
 
 
-Sapagkat ipinapahayag <i class="trans-change">sa Magandang Balita_ kung paano itinuturing ng Dios na matuwid ang tao,[^d] at itoʼy sa pamamagitan lang ng pananampalataya. Ayon nga sa Kasulatan, "Sa pananampalataya mabubuhay ang matuwid."[^e] ## Ang Galit ng Dios sa Lahat ng Kasamaan 
+Sapagkat ipinapahayag <i class="trans-change">sa Magandang Balita_ kung paano itinuturing ng Dios na matuwid ang tao, at itoʼy sa pamamagitan lang ng pananampalataya. Ayon nga sa Kasulatan, "Sa pananampalataya mabubuhay ang matuwid." ## Ang Galit ng Dios sa Lahat ng Kasamaan 
 
 
 

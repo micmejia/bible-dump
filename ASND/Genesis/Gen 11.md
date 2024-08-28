@@ -73,7 +73,7 @@ Noon, isang wika lang ang ginagamit ng lahat ng tao sa buong mundo.
 
 
 
-Habang lumilipat ng tirahan ang mga tao patungo sa silangan, nakarating sila sa isang patag na lugar sa Shinar, at doon sila nanirahan. ###### 3-4 Ngayon, sinabi ng mga tao, "Magtayo tayo ng isang lungsod na may tore na aabot sa langit, para maging tanyag tayo at hindi mangalat sa buong mundo." Kaya gumawa sila ng mga tisa,[^a] at pinainitan nila ito nang mabuti para tumigas nang husto. Tisa ang ginamit nila sa halip na bato. At aspalto ang ginamit nila bilang semento. 
+Habang lumilipat ng tirahan ang mga tao patungo sa silangan, nakarating sila sa isang patag na lugar sa Shinar, at doon sila nanirahan. ###### 3-4 Ngayon, sinabi ng mga tao, "Magtayo tayo ng isang lungsod na may tore na aabot sa langit, para maging tanyag tayo at hindi mangalat sa buong mundo." Kaya gumawa sila ng mga tisa, at pinainitan nila ito nang mabuti para tumigas nang husto. Tisa ang ginamit nila sa halip na bato. At aspalto ang ginamit nila bilang semento. 
 
 
 
@@ -238,7 +238,7 @@ Kaya pinangalat sila ng Panginoon sa buong mundo <i class="trans-change">dahil h
 
 
 
-Ang lungsod na ito ay tinawag na Babel[^b] dahil doon pinag-iba-iba ng Panginoon ang wika ng mga tao, at mula roon ay pinangalat niya sila sa buong mundo. ## Ang mga Lahi ni Shem 
+Ang lungsod na ito ay tinawag na Babel dahil doon pinag-iba-iba ng Panginoon ang wika ng mga tao, at mula roon ay pinangalat niya sila sa buong mundo. ## Ang mga Lahi ni Shem 
 
 
 
@@ -865,7 +865,7 @@ Ito ang salaysay tungkol sa pamilya ni Tera: Si Tera ang ama nina Abram, Nahor a
 
 
 
-Namatay si Haran doon sa Ur na sakop ng mga Caldeo,[^c] sa lugar mismo kung saan isinilang siya. Namatay siya habang buhay pa ang ama niyang si Tera. 
+Namatay si Haran doon sa Ur na sakop ng mga Caldeo, sa lugar mismo kung saan isinilang siya. Namatay siya habang buhay pa ang ama niyang si Tera. 
 
 
 
@@ -997,4 +997,4 @@ Umalis si Tera sa Ur na sakop ng mga Caldeo. Kasama niya ang anak niyang si Abra
 
 
 
-Doon namatay si Tera sa edad na 205.[^d]
+Doon namatay si Tera sa edad na 205.

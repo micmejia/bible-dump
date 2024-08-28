@@ -10,7 +10,7 @@ next: ['1 Tim 5']
 
 
 ###### 1 
-Now the Spirit [^a]expressly says that in latter times some will depart from the faith, giving heed to deceiving spirits and doctrines of demons, 
+Now the Spirit expressly says that in latter times some will depart from the faith, giving heed to deceiving spirits and doctrines of demons, 
 
 ###### 2 
 speaking lies in hypocrisy, having their own conscience seared with a hot iron, 
@@ -22,7 +22,7 @@ forbidding to marry, _and commanding_ to abstain from foods which God created to
 For every creature of God _is_ good, and nothing is to be refused if it is received with thanksgiving; 
 
 ###### 5 
-for it is [^b]sanctified by the word of God and prayer. ## A Good Servant of Jesus Christ 
+for it is sanctified by the word of God and prayer. ## A Good Servant of Jesus Christ 
 
 ###### 6 
 If you instruct the brethren in these things, you will be a good minister of Jesus Christ, nourished in the words of faith and of the good doctrine which you have carefully followed. 
@@ -37,16 +37,16 @@ For bodily exercise profits a little, but godliness is profitable for all things
 This _is_ a faithful saying and worthy of all acceptance. 
 
 ###### 10 
-For to this _end_ [^c]we both labor and suffer reproach, because we trust in the living God, who is _the_ Savior of all men, especially of those who believe. 
+For to this _end_ we both labor and suffer reproach, because we trust in the living God, who is _the_ Savior of all men, especially of those who believe. 
 
 ###### 11 
 These things command and teach. ## Take Heed to Your Ministry 
 
 ###### 12 
-Let no one [^d]despise your youth, but be an example to the believers in word, in conduct, in love, [^e]in spirit, in faith, in purity. 
+Let no one despise your youth, but be an example to the believers in word, in conduct, in love, in spirit, in faith, in purity. 
 
 ###### 13 
-Till I come, give attention to reading, to exhortation, to [^f]doctrine. 
+Till I come, give attention to reading, to exhortation, to doctrine. 
 
 ###### 14 
 Do not neglect the gift that is in you, which was given to you by prophecy with the laying on of the hands of the eldership. 

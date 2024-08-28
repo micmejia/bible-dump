@@ -91,7 +91,7 @@ And I approached [my wife] the prophetess, and when she had conceived and borne 
 
 
 
-For before the child knows how to say, My father or my mother, the riches of Damascus [Syria's capital] and the spoil of Samaria [Israel's capital] [^a]shall be carried away before the king of Assyria. 
+For before the child knows how to say, My father or my mother, the riches of Damascus [Syria's capital] and the spoil of Samaria [Israel's capital] shall be carried away before the king of Assyria. 
 
 
 
@@ -175,7 +175,7 @@ Now therefore, behold, the Lord brings upon them the waters of the River [Euphra
 
 
 
-And it will [^b]sweep on into Judah; it will overflow _and_ go over [the hills], reaching even [but only] to the neck [of which Jerusalem is the head], and the outstretched wings [of the armies of Assyria] shall fill the breadth of Your land, O Immanuel [^c][Messiah, God is with us]! 
+And it will sweep on into Judah; it will overflow _and_ go over [the hills], reaching even [but only] to the neck [of which Jerusalem is the head], and the outstretched wings [of the armies of Assyria] shall fill the breadth of Your land, O Immanuel [Messiah, God is with us]! 
 
 
 
@@ -385,7 +385,7 @@ And I will wait for the Lord, Who is hiding His face from the house of Jacob; an
 
 
 
-Behold, I and the children whom the Lord has given me are [^d]signs and wonders [that are to take place] in Israel from the Lord of hosts, Who dwells on Mount Zion. 
+Behold, I and the children whom the Lord has given me are signs and wonders [that are to take place] in Israel from the Lord of hosts, Who dwells on Mount Zion. 
 
 
 

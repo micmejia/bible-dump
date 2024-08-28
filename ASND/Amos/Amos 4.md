@@ -436,4 +436,4 @@ Dahil sa panghihina, pasuray-suray kayong naghahanap ng maiinom. Palipat-lipat k
 
 
 
-Ang Dios ang lumikha ng mga bundok at ng hangin,[^a] at siya rin ang nagpapalipas ng araw para maging gabi. Ipinapaalam niya sa tao ang kanyang mga plano at siya ang namamahala sa buong mundo. Ang kanyang pangalan ay Panginoon, ang Dios na Makapangyarihan.
+Ang Dios ang lumikha ng mga bundok at ng hangin, at siya rin ang nagpapalipas ng araw para maging gabi. Ipinapaalam niya sa tao ang kanyang mga plano at siya ang namamahala sa buong mundo. Ang kanyang pangalan ay Panginoon, ang Dios na Makapangyarihan.

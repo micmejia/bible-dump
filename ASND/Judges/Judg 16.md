@@ -172,7 +172,7 @@ Kaya tinanong ni Delaila si Samson. Sinabi niya, "Ipagtapat mo sa akin ang sekre
 
 
 
-Sumagot si Samson, "Kung gagapusin ako ng pitong sariwang bagting ng pana,[^a] magiging katulad na lang ng karaniwang tao ang lakas ko." 
+Sumagot si Samson, "Kung gagapusin ako ng pitong sariwang bagting ng pana, magiging katulad na lang ng karaniwang tao ang lakas ko." 
 
 
 
@@ -370,7 +370,7 @@ Kaya kumuha si Delaila ng bagong lubid na hindi pa nagagamit at iginapos niya si
 
 
 
-Kaya sinabing muli ni Delaila kay Samson, "Hanggang ngayon, niloloko mo pa rin ako at nagsisinungaling ka. Sige na, ipagtapat mo na kung paano ka maigagapos." Sinabi ni Samson, "Kung itatali mo ng pitong tirintas ang buhok ko sa teral[^b] at ipinulupot sa isang tulos, magiging katulad na lang ng karaniwang tao ang lakas ko." 
+Kaya sinabing muli ni Delaila kay Samson, "Hanggang ngayon, niloloko mo pa rin ako at nagsisinungaling ka. Sige na, ipagtapat mo na kung paano ka maigagapos." Sinabi ni Samson, "Kung itatali mo ng pitong tirintas ang buhok ko sa teral at ipinulupot sa isang tulos, magiging katulad na lang ng karaniwang tao ang lakas ko." 
 
 
 
@@ -733,7 +733,7 @@ Muling nagkatipon ang mga pinuno ng mga Filisteo para magdiwang at mag-alay ng m
 
 
 
-Sinabi ni Samson sa utusan[^c] na nag-aakay sa kanya, "Pahawakin mo ako sa haligi ng templong ito para makasandal ako." 
+Sinabi ni Samson sa utusan na nag-aakay sa kanya, "Pahawakin mo ako sa haligi ng templong ito para makasandal ako." 
 
 
 

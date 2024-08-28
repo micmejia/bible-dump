@@ -69,7 +69,7 @@ To Timothy, [my] beloved child: Grace (favor and spiritual blessing), mercy, and
 
 
 
-I thank God Whom I worship with a pure conscience, [^a]in the spirit of my fathers, when without ceasing I remember you night and day in my prayers, 
+I thank God Whom I worship with a pure conscience, in the spirit of my fathers, when without ceasing I remember you night and day in my prayers, 
 
 
 
@@ -111,7 +111,7 @@ And when, as I recall your tears, I yearn to see you so that I may be filled wit
 
 
 
-I am calling up memories of your sincere _and_ unqualified faith (the [^b]leaning of your entire personality on God in Christ in absolute trust and confidence in His power, wisdom, and goodness), [a faith] that first lived permanently in [the heart of] your grandmother Lois and your mother Eunice and now, I am [fully] persuaded, [dwells] in you also. 
+I am calling up memories of your sincere _and_ unqualified faith (the leaning of your entire personality on God in Christ in absolute trust and confidence in His power, wisdom, and goodness), [a faith] that first lived permanently in [the heart of] your grandmother Lois and your mother Eunice and now, I am [fully] persuaded, [dwells] in you also. 
 
 
 
@@ -132,7 +132,7 @@ I am calling up memories of your sincere _and_ unqualified faith (the [^b]leanin
 
 
 
-That is why I would remind you to stir up (rekindle the embers of, fan the flame of, and keep burning) the [gracious] gift of God, [the inner fire] that is in you by means of the laying on of my hands [[^c]with those of the elders at your ordination]. 
+That is why I would remind you to stir up (rekindle the embers of, fan the flame of, and keep burning) the [gracious] gift of God, [the inner fire] that is in you by means of the laying on of my hands [with those of the elders at your ordination]. 
 
 
 
@@ -174,7 +174,7 @@ For God did not give us a spirit of timidity (of cowardice, of craven and cringi
 
 
 
-Do not blush _or_ be ashamed then, to testify to _and_ for our Lord, nor of me, a prisoner for His sake, but [[^d]with me] take your share of the suffering [to which the preaching] of the Gospel [may expose you, and do it] in the power of God. 
+Do not blush _or_ be ashamed then, to testify to _and_ for our Lord, nor of me, a prisoner for His sake, but [with me] take your share of the suffering [to which the preaching] of the Gospel [may expose you, and do it] in the power of God. 
 
 
 
@@ -258,7 +258,7 @@ For [the proclaiming of] this [Gospel] I was appointed a herald (preacher) and a
 
 
 
-And this is why I am suffering as I do. Still I am not ashamed, for I know (perceive, have knowledge of, and am acquainted with) Him Whom I have believed (adhered to and trusted in and relied on), and I am [positively] persuaded that He is able to guard _and_ keep that which has been entrusted to me _and_ which [^e]I have committed [to Him] until that day. 
+And this is why I am suffering as I do. Still I am not ashamed, for I know (perceive, have knowledge of, and am acquainted with) Him Whom I have believed (adhered to and trusted in and relied on), and I am [positively] persuaded that He is able to guard _and_ keep that which has been entrusted to me _and_ which I have committed [to Him] until that day. 
 
 
 

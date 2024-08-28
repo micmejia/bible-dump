@@ -667,7 +667,7 @@ At kung may magtatanong, 'Bakit ginawa ng Panginoon na ating Dios ang lahat ng i
 
 
 
-"Sabihin nʼyo ito sa mga mamamayan ng Israel[^a] at Juda. 
+"Sabihin nʼyo ito sa mga mamamayan ng Israel at Juda. 
 
 
 

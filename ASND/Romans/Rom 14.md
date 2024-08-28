@@ -139,7 +139,7 @@ Hindi dapat hamakin ng taong kumakain ng kahit ano ang tao na ang kinakain ay gu
 
 
 
-at sa Dios lang din sila mananagot. Kaya, sino ka para humatol sa utusan ng iba? Ang Amo[^a] lang niya ang makapagsasabi kung mabuti o masama ang ginagawa niya. At talagang magagawa niya ang tama, dahil ang Panginoon ang tutulong sa kanya. 
+at sa Dios lang din sila mananagot. Kaya, sino ka para humatol sa utusan ng iba? Ang Amo lang niya ang makapagsasabi kung mabuti o masama ang ginagawa niya. At talagang magagawa niya ang tama, dahil ang Panginoon ang tutulong sa kanya. 
 
 
 
@@ -370,7 +370,7 @@ Kaya huwag ninyong hahatulan o hahamakin ang inyong kapatid <i class="trans-chan
 
 
 
-Sapagkat sinasabi sa Kasulatan, "Ako, ang Panginoon na buhay ay sumusumpa na darating ang araw na luluhod ang lahat ng tao sa akin at kikilalanin akong Dios."[^b] 
+Sapagkat sinasabi sa Kasulatan, "Ako, ang Panginoon na buhay ay sumusumpa na darating ang araw na luluhod ang lahat ng tao sa akin at kikilalanin akong Dios." 
 
 
 
@@ -766,4 +766,4 @@ Kaya anuman ang iyong paniniwala sa mga bagay na ito, ikaw na lang at ang Dios a
 
 
 
-Pero ang sinumang kumakain nang may pag-aalinlangan ay nagkakasala[^c] dahil hindi na ito ayon sa kanyang paniniwala. Sapagkat kasalanan ang anumang bagay na ginagawa natin na hindi ayon sa ating paniniwala.
+Pero ang sinumang kumakain nang may pag-aalinlangan ay nagkakasala dahil hindi na ito ayon sa kanyang paniniwala. Sapagkat kasalanan ang anumang bagay na ginagawa natin na hindi ayon sa ating paniniwala.

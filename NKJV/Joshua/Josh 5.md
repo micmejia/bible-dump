@@ -10,13 +10,13 @@ next: ['Josh 6']
 
 
 ###### 1 
-So it was, when all the kings of the Amorites who _were_ on the west side of the Jordan, and all the kings of the Canaanites who _were_ by the sea, heard that the Lord had dried up the waters of the Jordan from before the children of Israel until [^a]we had crossed over, that [^b]their heart melted; and there was no spirit in them any longer because of the children of Israel. 
+So it was, when all the kings of the Amorites who _were_ on the west side of the Jordan, and all the kings of the Canaanites who _were_ by the sea, heard that the Lord had dried up the waters of the Jordan from before the children of Israel until we had crossed over, that their heart melted; and there was no spirit in them any longer because of the children of Israel. 
 
 ###### 2 
 At that time the Lord said to Joshua, "Make flint knives for yourself, and circumcise the sons of Israel again the second time." 
 
 ###### 3 
-So Joshua made flint knives for himself, and circumcised the sons of Israel at [^c]the hill of the foreskins. 
+So Joshua made flint knives for himself, and circumcised the sons of Israel at the hill of the foreskins. 
 
 ###### 4 
 And this _is_ the reason why Joshua circumcised them: All the people who came out of Egypt _who were_ males, all the men of war, had died in the wilderness on the way, after they had come out of Egypt. 
@@ -25,7 +25,7 @@ And this _is_ the reason why Joshua circumcised them: All the people who came ou
 For all the people who came out had been circumcised, but all the people born in the wilderness, on the way as they came out of Egypt, had not been circumcised. 
 
 ###### 6 
-For the children of Israel walked forty years in the wilderness, till all the people _who were_ men of war, who came out of Egypt, were [^d]consumed, because they did not obey the voice of the Lord--to whom the Lord swore that He would not show them the land which the Lord had sworn to their fathers that He would give us, "a land flowing with milk and honey." 
+For the children of Israel walked forty years in the wilderness, till all the people _who were_ men of war, who came out of Egypt, were consumed, because they did not obey the voice of the Lord--to whom the Lord swore that He would not show them the land which the Lord had sworn to their fathers that He would give us, "a land flowing with milk and honey." 
 
 ###### 7 
 Then Joshua circumcised their sons _whom_ He raised up in their place; for they were uncircumcised, because they had not been circumcised on the way. 
@@ -34,13 +34,13 @@ Then Joshua circumcised their sons _whom_ He raised up in their place; for they 
 So it was, when they had finished circumcising all the people, that they stayed in their places in the camp till they were healed. 
 
 ###### 9 
-Then the Lord said to Joshua, "This day I have rolled away the reproach of Egypt from you." Therefore the name of the place is called Gilgal[^e] to this day. 
+Then the Lord said to Joshua, "This day I have rolled away the reproach of Egypt from you." Therefore the name of the place is called Gilgal to this day. 
 
 ###### 10 
 Now the children of Israel camped in Gilgal, and kept the Passover on the fourteenth day of the month at twilight on the plains of Jericho. 
 
 ###### 11 
-And they ate of the produce of the land on the day after the Passover, unleavened bread and [^f]parched grain, on the very same day. 
+And they ate of the produce of the land on the day after the Passover, unleavened bread and parched grain, on the very same day. 
 
 ###### 12 
 Then the manna ceased on the day after they had eaten the produce of the land; and the children of Israel no longer had manna, but they ate the food of the land of Canaan that year. ## The Commander of the Army of the Lord 

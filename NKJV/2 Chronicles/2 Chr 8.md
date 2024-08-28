@@ -13,7 +13,7 @@ next: ['2 Chr 9']
 It came to pass at the end of twenty years, when Solomon had built the house of the Lord and his own house, 
 
 ###### 2 
-that the cities which [^a]Hiram had given to Solomon, Solomon built them; and he settled the children of Israel there. 
+that the cities which Hiram had given to Solomon, Solomon built them; and he settled the children of Israel there. 
 
 ###### 3 
 And Solomon went to Hamath Zobah and seized it. 
@@ -34,7 +34,7 @@ All the people _who were_ left of the Hittites, Amorites, Perizzites, Hivites, a
 that is, their descendants who were left in the land after them, whom the children of Israel did not destroy--from these Solomon raised forced labor, as it is to this day. 
 
 ###### 9 
-But Solomon did not make the children of Israel [^b]servants for his work. Some _were_ men of war, captains of his officers, captains of his chariots, and his cavalry. 
+But Solomon did not make the children of Israel servants for his work. Some _were_ men of war, captains of his officers, captains of his chariots, and his cavalry. 
 
 ###### 10 
 And others _were_ chiefs of the officials of King Solomon: two hundred and fifty, who ruled over the people. 
@@ -49,16 +49,16 @@ Then Solomon offered burnt offerings to the Lord on the altar of the Lord which 
 according to the daily rate, offering according to the commandment of Moses, for the Sabbaths, the New Moons, and the three appointed yearly feasts--the Feast of Unleavened Bread, the Feast of Weeks, and the Feast of Tabernacles. 
 
 ###### 14 
-And, according to the [^c]order of David his father, he appointed the divisions of the priests for their service, the Levites for their duties (to praise and serve before the priests) as the duty of each day required, and the gatekeepers by their divisions at each gate; for so David the man of God had commanded. 
+And, according to the order of David his father, he appointed the divisions of the priests for their service, the Levites for their duties (to praise and serve before the priests) as the duty of each day required, and the gatekeepers by their divisions at each gate; for so David the man of God had commanded. 
 
 ###### 15 
 They did not depart from the command of the king to the priests and Levites concerning any matter or concerning the treasuries. 
 
 ###### 16 
-Now all the work of Solomon was well-ordered [^d]from the day of the foundation of the house of the Lord until it was finished. So the house of the Lord was completed. 
+Now all the work of Solomon was well-ordered from the day of the foundation of the house of the Lord until it was finished. So the house of the Lord was completed. 
 
 ###### 17 
-Then Solomon went to Ezion Geber and [^e]Elath on the seacoast, in the land of Edom. 
+Then Solomon went to Ezion Geber and Elath on the seacoast, in the land of Edom. 
 
 ###### 18 
 And Hiram sent him ships by the hand of his servants, and servants who knew the sea. They went with the servants of Solomon to Ophir, and acquired four hundred and fifty talents of gold from there, and brought it to King Solomon.

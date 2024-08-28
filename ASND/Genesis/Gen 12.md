@@ -139,7 +139,7 @@ Pagpapalain ko ang magmamagandang loob sa iyo. Pero isusumpa ko naman ang susump
 
 
 
-Pagdating nila sa Canaan, nagpatuloy sila hanggang sa nakarating sa malaking puno[^a] ng Moreh roon sa Shekem. (Nang panahong iyon, naroon pa ang mga Cananeo). 
+Pagdating nila sa Canaan, nagpatuloy sila hanggang sa nakarating sa malaking puno ng Moreh roon sa Shekem. (Nang panahong iyon, naroon pa ang mga Cananeo). 
 
 
 
@@ -436,7 +436,7 @@ Kaya pagdating nila sa Egipto, nakita nga ng mga Egipcio ang kagandahan ni Sarai
 
 
 
-At nang makita siya ng mga opisyal ng Faraon,[^b] sinabi nila sa hari kung gaano siya kaganda. Kaya dinala si Sarai roon sa palasyo. 
+At nang makita siya ng mga opisyal ng Faraon, sinabi nila sa hari kung gaano siya kaganda. Kaya dinala si Sarai roon sa palasyo. 
 
 
 

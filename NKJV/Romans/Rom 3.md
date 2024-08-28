@@ -13,13 +13,13 @@ next: ['Rom 4']
 What advantage then has the Jew, or what _is_ the profit of circumcision? 
 
 ###### 2 
-Much in every way! Chiefly because to them were committed the [^a]oracles of God. 
+Much in every way! Chiefly because to them were committed the oracles of God. 
 
 ###### 3 
 For what if some did not believe? Will their unbelief make the faithfulness of God without effect? 
 
 ###### 4 
-Certainly not! Indeed, let God be [^b]true but every man a liar. As it is written: "That You may be justified in Your words, And may overcome when You are judged." 
+Certainly not! Indeed, let God be true but every man a liar. As it is written: "That You may be justified in Your words, And may overcome when You are judged." 
 
 ###### 5 
 But if our unrighteousness demonstrates the righteousness of God, what shall we say? _Is_ God unjust who inflicts wrath? (I speak as a man.) 
@@ -31,7 +31,7 @@ Certainly not! For then how will God judge the world?
 For if the truth of God has increased through my lie to His glory, why am I also still judged as a sinner? 
 
 ###### 8 
-And _why_ not _say,_ "Let us do evil that good may come"?--as we are slanderously reported and as some affirm that we say. Their [^c]condemnation is just. ## All Have Sinned 
+And _why_ not _say,_ "Let us do evil that good may come"?--as we are slanderously reported and as some affirm that we say. Their condemnation is just. ## All Have Sinned 
 
 ###### 9 
 What then? Are we better _than they?_ Not at all. For we have previously charged both Jews and Greeks that they are all under sin. 
@@ -46,7 +46,7 @@ There is none who understands; There is none who seeks after God.
 They have all turned aside; They have together become unprofitable; There is none who does good, no, not one." 
 
 ###### 13 
-"Their throat _is_ an open [^d]tomb; With their tongues they have practiced deceit"; "The poison of asps _is_ under their lips"; 
+"Their throat _is_ an open tomb; With their tongues they have practiced deceit"; "The poison of asps _is_ under their lips"; 
 
 ###### 14 
 "Whose mouth _is_ full of cursing and bitterness." 
@@ -64,7 +64,7 @@ And the way of peace they have not known."
 "There is no fear of God before their eyes." 
 
 ###### 19 
-Now we know that whatever the law says, it says to those who are under the law, that every mouth may be stopped, and all the world may become [^e]guilty before God. 
+Now we know that whatever the law says, it says to those who are under the law, that every mouth may be stopped, and all the world may become guilty before God. 
 
 ###### 20 
 Therefore by the deeds of the law no flesh will be justified in His sight, for by the law _is_ the knowledge of sin. ## God's Righteousness Through Faith 
@@ -73,16 +73,16 @@ Therefore by the deeds of the law no flesh will be justified in His sight, for b
 But now the righteousness of God apart from the law is revealed, being witnessed by the Law and the Prophets, 
 
 ###### 22 
-even the righteousness of God, through faith in Jesus Christ, to all [^f]and on all who believe. For there is no difference; 
+even the righteousness of God, through faith in Jesus Christ, to all and on all who believe. For there is no difference; 
 
 ###### 23 
 for all have sinned and fall short of the glory of God, 
 
 ###### 24 
-being justified [^g]freely by His grace through the redemption that is in Christ Jesus, 
+being justified freely by His grace through the redemption that is in Christ Jesus, 
 
 ###### 25 
-whom God set forth _as_ a [^h]propitiation by His blood, through faith, to demonstrate His righteousness, because in His forbearance God had passed over the sins that were previously committed, 
+whom God set forth _as_ a propitiation by His blood, through faith, to demonstrate His righteousness, because in His forbearance God had passed over the sins that were previously committed, 
 
 ###### 26 
 to demonstrate at the present time His righteousness, that He might be just and the justifier of the one who has faith in Jesus. ## Boasting Excluded 
@@ -91,7 +91,7 @@ to demonstrate at the present time His righteousness, that He might be just and 
 Where _is_ boasting then? It is excluded. By what law? Of works? No, but by the law of faith. 
 
 ###### 28 
-Therefore we conclude that a man is [^i]justified by faith apart from the deeds of the law. 
+Therefore we conclude that a man is justified by faith apart from the deeds of the law. 
 
 ###### 29 
 Or _is He_ the God of the Jews only? _Is He_ not also the God of the Gentiles? Yes, of the Gentiles also, 

@@ -133,7 +133,7 @@ The blind receive their sight and the lame walk, lepers are cleansed (by healing
 
 
 
-And blessed (happy, fortunate, and [^a]to be envied) is he who takes no offense at Me _and_ finds no cause for stumbling in _or_ through Me _and_ is not hindered from seeing the Truth. 
+And blessed (happy, fortunate, and to be envied) is he who takes no offense at Me _and_ finds no cause for stumbling in _or_ through Me _and_ is not hindered from seeing the Truth. 
 
 
 
@@ -196,7 +196,7 @@ What did you go out to see then? A man clothed in soft garments? Behold, those w
 
 
 
-But what did you go out to see? A prophet? Yes, I tell you, and one [[^b]out of the common, more eminent, more remarkable, and] [^c]superior to a prophet. 
+But what did you go out to see? A prophet? Yes, I tell you, and one [out of the common, more eminent, more remarkable, and] superior to a prophet. 
 
 
 
@@ -259,7 +259,7 @@ Truly I tell you, among those born of women there has not risen anyone greater t
 
 
 
-And from the days of John the Baptist until the present time, the kingdom of heaven has endured violent assault, and violent men seize it by force [as a precious prize--a [^d]share in the heavenly kingdom is sought with most ardent zeal and intense exertion]. 
+And from the days of John the Baptist until the present time, the kingdom of heaven has endured violent assault, and violent men seize it by force [as a precious prize--a share in the heavenly kingdom is sought with most ardent zeal and intense exertion]. 
 
 
 
@@ -322,7 +322,7 @@ And if you are willing to receive _and_ accept it, John himself is Elijah who wa
 
 
 
-He who has ears to hear, let him be listening _and_ let him consider _and_ [^e]perceive _and_ comprehend by hearing. 
+He who has ears to hear, let him be listening _and_ let him consider _and_ perceive _and_ comprehend by hearing. 
 
 
 
@@ -406,7 +406,7 @@ For John came neither eating nor drinking [with others], and they say, He has a 
 
 
 
-The Son of Man came eating and drinking [with others], and they say, Behold, a glutton and a wine drinker, a friend of tax collectors _and_ [[^f]especially wicked] sinners! Yet wisdom is justified _and_ vindicated by what she does (her deeds) _and by_ [^g]_her children_. 
+The Son of Man came eating and drinking [with others], and they say, Behold, a glutton and a wine drinker, a friend of tax collectors _and_ [especially wicked] sinners! Yet wisdom is justified _and_ vindicated by what she does (her deeds) _and by_ _her children_. 
 
 
 
@@ -532,7 +532,7 @@ But I tell you, it shall be more endurable for the land of Sodom on the day of j
 
 
 
-At that time Jesus began to say, I thank You, Father, Lord of heaven and earth [and [^h]I acknowledge openly _and_ joyfully to Your honor], that You have hidden these things from the wise _and_ clever and learned, and revealed them to babies [to the [^i]childish, untaught, and unskilled]. 
+At that time Jesus began to say, I thank You, Father, Lord of heaven and earth [and I acknowledge openly _and_ joyfully to Your honor], that You have hidden these things from the wise _and_ clever and learned, and revealed them to babies [to the childish, untaught, and unskilled]. 
 
 
 
@@ -574,7 +574,7 @@ Yes, Father, [I praise You that] such was Your gracious will _and_ good pleasure
 
 
 
-All things have been entrusted _and_ delivered to Me by My Father; and no one [^j]fully knows _and_ [^k]accurately understands the Son except the Father, and no one [^l]fully knows _and_ [^m]accurately understands the Father except the Son and anyone to whom the Son [^n]deliberately wills to make Him known. 
+All things have been entrusted _and_ delivered to Me by My Father; and no one fully knows _and_ accurately understands the Son except the Father, and no one fully knows _and_ accurately understands the Father except the Son and anyone to whom the Son deliberately wills to make Him known. 
 
 
 
@@ -595,7 +595,7 @@ All things have been entrusted _and_ delivered to Me by My Father; and no one [^
 
 
 
-Come to Me, all you who labor and are heavy-laden _and_ overburdened, and I will cause you to rest. [I will [^o]ease and relieve and [^p]refresh [^q]your souls.] 
+Come to Me, all you who labor and are heavy-laden _and_ overburdened, and I will cause you to rest. [I will ease and relieve and refresh your souls.] 
 
 
 
@@ -616,7 +616,7 @@ Come to Me, all you who labor and are heavy-laden _and_ overburdened, and I will
 
 
 
-Take My yoke upon you and learn of Me, for I am gentle (meek) and humble (lowly) in heart, and you will find rest ([^r]relief and ease and refreshment and [^s]recreation and blessed quiet) for your souls. 
+Take My yoke upon you and learn of Me, for I am gentle (meek) and humble (lowly) in heart, and you will find rest (relief and ease and refreshment and recreation and blessed quiet) for your souls. 
 
 
 
@@ -637,4 +637,4 @@ Take My yoke upon you and learn of Me, for I am gentle (meek) and humble (lowly)
 
 
 
-For My yoke is wholesome (useful, [^t]good--not harsh, hard, sharp, or pressing, but comfortable, gracious, and pleasant), and My burden is light _and_ easy to be borne.
+For My yoke is wholesome (useful, good--not harsh, hard, sharp, or pressing, but comfortable, gracious, and pleasant), and My burden is light _and_ easy to be borne.

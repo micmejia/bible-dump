@@ -406,7 +406,7 @@ Even in [the light of] these words they with difficulty prevented the people fro
 
 
 
-But some Jews arrived there from Antioch and Iconium; and having persuaded the people _and_ won them over, they stoned Paul and [[^a]afterward] dragged him out of the town, thinking that he was dead. 
+But some Jews arrived there from Antioch and Iconium; and having persuaded the people _and_ won them over, they stoned Paul and [afterward] dragged him out of the town, thinking that he was dead. 
 
 
 

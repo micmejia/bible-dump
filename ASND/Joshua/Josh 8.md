@@ -469,7 +469,7 @@ Kaya pumwesto na ang mga sundalo. Ang ibang mga sundalo ay nasa bandang hilaga n
 
 
 
-Nang makita ng hari ng Ai sina Josue, maaga paʼy agad-agad na siyang lumabas sa lungsod kasama ang mga tauhan niya, at pumunta sa lugar na nakaharap sa Lambak ng Jordan[^a] para makipaglaban sa Israel. Hindi nila alam na may lulusob sa kanila galing sa likod ng lungsod. 
+Nang makita ng hari ng Ai sina Josue, maaga paʼy agad-agad na siyang lumabas sa lungsod kasama ang mga tauhan niya, at pumunta sa lugar na nakaharap sa Lambak ng Jordan para makipaglaban sa Israel. Hindi nila alam na may lulusob sa kanila galing sa likod ng lungsod. 
 
 
 
@@ -1063,7 +1063,7 @@ Ipinagawa niya ito ayon sa utos ni Moises na lingkod ng Panginoon sa mga Israeli
 
 
 
-Sa harap ng mga Israelita, kinopya ni Josue sa mga bato[^b] ang kautusang isinulat ni Moises. 
+Sa harap ng mga Israelita, kinopya ni Josue sa mga bato ang kautusang isinulat ni Moises. 
 
 
 

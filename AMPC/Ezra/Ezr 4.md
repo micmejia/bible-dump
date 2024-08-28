@@ -511,4 +511,4 @@ When the copy of King Artaxerxes' letter was read before Rehum, Shimshai the scr
 
 
 
-Then the [^a]work on the house of God in Jerusalem stopped. It stopped until the second year of Darius [I] king of Persia.
+Then the work on the house of God in Jerusalem stopped. It stopped until the second year of Darius [I] king of Persia.

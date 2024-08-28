@@ -343,7 +343,7 @@ And if this is the way You deal with me, kill me, I pray You, at once, and be gr
 
 
 
-And the Lord said to Moses, Gather for Me [^a]seventy men of the elders of Israel whom you know to be the elders of the people and officers over them; and bring them to the Tent of Meeting and let them stand there with you. 
+And the Lord said to Moses, Gather for Me seventy men of the elders of Israel whom you know to be the elders of the people and officers over them; and bring them to the Tent of Meeting and let them stand there with you. 
 
 
 
@@ -616,7 +616,7 @@ Joshua son of Nun, the minister of Moses, one of his chosen men, said, My lord M
 
 
 
-But Moses said to him, Are you [^b]envious _or_ jealous for my sake? Would that all the Lord's people were prophets and that the Lord would put His Spirit upon them! 
+But Moses said to him, Are you envious _or_ jealous for my sake? Would that all the Lord's people were prophets and that the Lord would put His Spirit upon them! 
 
 
 

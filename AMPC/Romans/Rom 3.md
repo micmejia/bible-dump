@@ -427,7 +427,7 @@ Now we know that whatever the Law says, it speaks to those who are under the Law
 
 
 
-For no person will be justified (made righteous, acquitted, and judged acceptable) in His sight by observing the works prescribed by the Law. For [the real function of] the Law is to make men recognize _and_ be conscious of sin [[^a]not mere perception, but an acquaintance with sin which works toward repentance, faith, and holy character]. 
+For no person will be justified (made righteous, acquitted, and judged acceptable) in His sight by observing the works prescribed by the Law. For [the real function of] the Law is to make men recognize _and_ be conscious of sin [not mere perception, but an acquaintance with sin which works toward repentance, faith, and holy character]. 
 
 
 
@@ -490,7 +490,7 @@ Namely, the righteousness of God which comes by believing _with_ personal trust 
 
 
 
-Since all have sinned and are falling short of the honor _and_ glory [^b]which God bestows _and_ receives. 
+Since all have sinned and are falling short of the honor _and_ glory which God bestows _and_ receives. 
 
 
 
@@ -532,7 +532,7 @@ Since all have sinned and are falling short of the honor _and_ glory [^b]which G
 
 
 
-Whom God put forward [[^c]before the eyes of all] as a mercy seat _and_ propitiation by His blood [the cleansing and life-giving sacrifice of atonement and reconciliation, to be received] through faith. This was to show God's righteousness, because in His divine forbearance He had passed over _and_ ignored former sins without punishment. 
+Whom God put forward [before the eyes of all] as a mercy seat _and_ propitiation by His blood [the cleansing and life-giving sacrifice of atonement and reconciliation, to be received] through faith. This was to show God's righteousness, because in His divine forbearance He had passed over _and_ ignored former sins without punishment. 
 
 
 
@@ -553,7 +553,7 @@ Whom God put forward [[^c]before the eyes of all] as a mercy seat _and_ propitia
 
 
 
-It was to demonstrate _and_ prove at the present time ([^d]in the now season) that He Himself is righteous and that He justifies _and_ accepts as righteous him who has [true] faith in Jesus. 
+It was to demonstrate _and_ prove at the present time (in the now season) that He Himself is righteous and that He justifies _and_ accepts as righteous him who has [true] faith in Jesus. 
 
 
 
@@ -637,7 +637,7 @@ Or is God merely [the God] of Jews? Is He not the God of Gentiles also? Yes, of 
 
 
 
-Since it is one and the same God Who will justify the circumcised by faith [[^e]which germinated from Abraham] and the uncircumcised through their [newly acquired] faith. [For it is the same trusting faith in both cases, a firmly relying faith in Jesus Christ]. 
+Since it is one and the same God Who will justify the circumcised by faith [which germinated from Abraham] and the uncircumcised through their [newly acquired] faith. [For it is the same trusting faith in both cases, a firmly relying faith in Jesus Christ]. 
 
 
 

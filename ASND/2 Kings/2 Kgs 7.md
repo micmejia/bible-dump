@@ -40,7 +40,7 @@ next: ['2 Kgs 8']
 
 
 
-Sinabi ni Eliseo, "Pakinggan mo ang mensahe ng Panginoon: Bukas, sa ganito ring oras, <i class="trans-change">magiging mura ang bilihin_ sa pamilihan[^a] ng Samaria. Isang pirasong pilak na lang ang halaga ng isang takal na harina at ganoon din ang halaga ng dalawang takal ng sebada." 
+Sinabi ni Eliseo, "Pakinggan mo ang mensahe ng Panginoon: Bukas, sa ganito ring oras, <i class="trans-change">magiging mura ang bilihin_ sa pamilihan ng Samaria. Isang pirasong pilak na lang ang halaga ng isang takal na harina at ganoon din ang halaga ng dalawang takal ng sebada." 
 
 
 
@@ -106,7 +106,7 @@ Sinabi ng opisyal na katiwala ng hari, "Kahit na magpaulan pa ang Panginoon hind
 
 
 
-May apat na tao na may malubhang sakit sa balat[^b] na nakaupo sa pintuan ng lungsod. Sinabi nila sa isaʼt isa, "Bakit kailangan nating umupo rito hanggang sa mamatay? 
+May apat na tao na may malubhang sakit sa balat na nakaupo sa pintuan ng lungsod. Sinabi nila sa isaʼt isa, "Bakit kailangan nating umupo rito hanggang sa mamatay? 
 
 
 

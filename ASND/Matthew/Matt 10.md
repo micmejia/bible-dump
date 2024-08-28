@@ -40,7 +40,7 @@ next: ['Matt 11']
 
 
 
-Tinawag ni Jesus ang kanyang 12 tagasunod[^a] at binigyan sila ng kapangyarihang magpalayas ng masasamang espiritu at magpagaling ng anumang sakit at karamdaman. 
+Tinawag ni Jesus ang kanyang 12 tagasunod at binigyan sila ng kapangyarihang magpalayas ng masasamang espiritu at magpagaling ng anumang sakit at karamdaman. 
 
 
 
@@ -139,7 +139,7 @@ si Felipe, si Bartolome, si Tomas, si Mateo na maniningil ng buwis, si Santiago 
 
 
 
-si Simon na makabayan,[^b] at si Judas Iscariote na siyang nagtraydor kay Jesus <i class="trans-change">nang bandang huli_. ## Sinugo ni Jesus ang Labindalawang Apostol 
+si Simon na makabayan, at si Judas Iscariote na siyang nagtraydor kay Jesus <i class="trans-change">nang bandang huli_. ## Sinugo ni Jesus ang Labindalawang Apostol 
 
 
 
@@ -238,7 +238,7 @@ Sa halip, puntahan ninyo ang mga Israelita na parang mga nawawalang tupa.
 
 
 
-Ipahayag ninyo sa kanila na malapit na[^c] ang paghahari ng Dios. 
+Ipahayag ninyo sa kanila na malapit na ang paghahari ng Dios. 
 
 
 
@@ -304,7 +304,7 @@ Pagalingin nʼyo ang mga may sakit, buhayin ang mga patay, pagalingin ang mga ma
 
 
 
-Huwag kayong magbaon ng pera,[^d] 
+Huwag kayong magbaon ng pera, 
 
 
 
@@ -370,7 +370,7 @@ o kayaʼy magdala ng bag, damit na pambihis, sandalyas o tungkod. Sapagkat ang m
 
 
 
-"Sa alin mang bayan o nayon na inyong pupuntahan, humanap kayo ng taong malugod kayong tatanggapin sa kanyang bahay,[^e] at makituloy kayo roon hanggang sa pag-alis ninyo. 
+"Sa alin mang bayan o nayon na inyong pupuntahan, humanap kayo ng taong malugod kayong tatanggapin sa kanyang bahay, at makituloy kayo roon hanggang sa pag-alis ninyo. 
 
 
 
@@ -832,7 +832,7 @@ Kapag inuusig kayo sa isang bayan, pumunta kayo sa ibang bayan. Dahil ang totoo,
 
 
 
-Sapat na sa isang mag-aaral na maging katulad ng kanyang guro, at sa alipin na maging katulad ng kanyang amo. Kung akong pinuno ninyo ay tinatawag nilang Satanas,[^f] gaano pa kaya kasama ang itatawag nila sa inyong mga tagasunod ko?" ## Ang Dapat Katakutan 
+Sapat na sa isang mag-aaral na maging katulad ng kanyang guro, at sa alipin na maging katulad ng kanyang amo. Kung akong pinuno ninyo ay tinatawag nilang Satanas, gaano pa kaya kasama ang itatawag nila sa inyong mga tagasunod ko?" ## Ang Dapat Katakutan 
 
 
 
@@ -898,7 +898,7 @@ Sapat na sa isang mag-aaral na maging katulad ng kanyang guro, at sa alipin na m
 
 
 
-Ang mga bagay na sa inyo ko lang sinasabi ay sabihin ninyo sa lahat,[^g] at ang mga ibinubulong ko sa inyo ay ipamalita ninyo sa mga tao. 
+Ang mga bagay na sa inyo ko lang sinasabi ay sabihin ninyo sa lahat, at ang mga ibinubulong ko sa inyo ay ipamalita ninyo sa mga tao. 
 
 
 
@@ -1129,7 +1129,7 @@ Ngunit ang hindi kumikilala sa akin sa harap ng mga tao ay hindi ko rin kikilala
 
 
 
-"Huwag ninyong isipin na naparito ako sa lupa upang magkaroon nang maayos na relasyon ang mga tao. Naparito ako upang magkaroon sila ng hidwaan.[^h] 
+"Huwag ninyong isipin na naparito ako sa lupa upang magkaroon nang maayos na relasyon ang mga tao. Naparito ako upang magkaroon sila ng hidwaan. 
 
 
 
@@ -1195,7 +1195,7 @@ Dahil sa akin, kokontrahin ng anak na lalaki ang kanyang ama, at kokontrahin ng 
 
 
 
-Ang magiging kaaway ng isang tao ay ang sarili niyang sambahayan.[^i] 
+Ang magiging kaaway ng isang tao ay ang sarili niyang sambahayan. 
 
 
 
@@ -1261,7 +1261,7 @@ Ang magiging kaaway ng isang tao ay ang sarili niyang sambahayan.[^i]
 
 
 
-Ang sinumang ayaw sumunod sa akin dahil natatakot siyang mamatay para sa akin[^j] ay hindi karapat-dapat sa akin. 
+Ang sinumang ayaw sumunod sa akin dahil natatakot siyang mamatay para sa akin ay hindi karapat-dapat sa akin. 
 
 
 

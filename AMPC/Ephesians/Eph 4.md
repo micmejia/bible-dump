@@ -175,7 +175,7 @@ Yet grace (God's unmerited favor) was given to each of us individually [not indi
 
 
 
-Therefore it is said, When He ascended on high, He led captivity captive [He led a train of [^a]vanquished foes] and He bestowed gifts on men. 
+Therefore it is said, When He ascended on high, He led captivity captive [He led a train of vanquished foes] and He bestowed gifts on men. 
 
 
 
@@ -280,7 +280,7 @@ His intention was the perfecting _and_ the full equipping of the saints (His con
 
 
 
-[That it might develop] until we all attain oneness in the faith and in the comprehension of the [[^b]full and accurate] knowledge of the Son of God, that [we might arrive] at really mature manhood (the completeness of personality which is nothing less than the standard height of Christ's own perfection), the measure of the stature of the fullness of the Christ _and_ the completeness found in Him. 
+[That it might develop] until we all attain oneness in the faith and in the comprehension of the [full and accurate] knowledge of the Son of God, that [we might arrive] at really mature manhood (the completeness of personality which is nothing less than the standard height of Christ's own perfection), the measure of the stature of the fullness of the Christ _and_ the completeness found in Him. 
 
 
 
@@ -301,7 +301,7 @@ His intention was the perfecting _and_ the full equipping of the saints (His con
 
 
 
-So then, we may no longer be children, tossed [like ships] to and fro between chance gusts of teaching _and_ wavering with every changing wind of doctrine, [the prey of] the cunning _and_ cleverness of [^c]unscrupulous men, [gamblers engaged] in every shifting form of trickery in inventing errors to mislead. 
+So then, we may no longer be children, tossed [like ships] to and fro between chance gusts of teaching _and_ wavering with every changing wind of doctrine, [the prey of] the cunning _and_ cleverness of unscrupulous men, [gamblers engaged] in every shifting form of trickery in inventing errors to mislead. 
 
 
 
@@ -322,7 +322,7 @@ So then, we may no longer be children, tossed [like ships] to and fro between ch
 
 
 
-Rather, let our lives lovingly [^d]express truth [in all things, speaking truly, dealing truly, living truly]. Enfolded in love, let us grow up in every way _and_ in all things into Him Who is the Head, [even] Christ (the Messiah, the Anointed One). 
+Rather, let our lives lovingly express truth [in all things, speaking truly, dealing truly, living truly]. Enfolded in love, let us grow up in every way _and_ in all things into Him Who is the Head, [even] Christ (the Messiah, the Anointed One). 
 
 
 
@@ -385,7 +385,7 @@ So this I say and solemnly testify in [the name of] the Lord [as in His presence
 
 
 
-Their [^e]moral understanding is darkened _and_ their reasoning is beclouded. [They are] alienated (estranged, self-banished) from the life of God [with no share in it; this is] because of the ignorance (the want of knowledge and perception, the willful blindness) that is [^f]deep-seated in them, due to their hardness of heart [to the insensitiveness of their moral nature]. 
+Their moral understanding is darkened _and_ their reasoning is beclouded. [They are] alienated (estranged, self-banished) from the life of God [with no share in it; this is] because of the ignorance (the want of knowledge and perception, the willful blindness) that is deep-seated in them, due to their hardness of heart [to the insensitiveness of their moral nature]. 
 
 
 

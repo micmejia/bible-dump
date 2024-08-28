@@ -40,7 +40,7 @@ next: ['2 Cor 10']
 
 
 
-Hindi ko na kinakailangang sumulat pa sa inyo tungkol sa pagtulong sa mga pinabanal[^a] <i class="trans-change">ng Dios sa Judea_, 
+Hindi ko na kinakailangang sumulat pa sa inyo tungkol sa pagtulong sa mga pinabanal <i class="trans-change">ng Dios sa Judea_, 
 
 
 
@@ -403,7 +403,7 @@ Pasasaganain kayo ng Dios sa lahat ng bagay para lagi kayong makatulong sa iba. 
 
 
 
-Dahil sa inyong pagbibigay, hindi lamang ninyo tinutugunan ang pangangailangan ng mga mananampalataya[^b] <i class="trans-change">na nasa Judea_, kundi magiging dahilan din ito para marami ang magpasalamat sa Dios. 
+Dahil sa inyong pagbibigay, hindi lamang ninyo tinutugunan ang pangangailangan ng mga mananampalataya <i class="trans-change">na nasa Judea_, kundi magiging dahilan din ito para marami ang magpasalamat sa Dios. 
 
 
 

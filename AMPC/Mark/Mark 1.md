@@ -27,7 +27,7 @@ next: ['Mark 2']
 
 
 
-The beginning [of the facts] of the good news (the Gospel) of Jesus Christ, [^a]_the Son of God_. 
+The beginning [of the facts] of the good news (the Gospel) of Jesus Christ, _the Son of God_. 
 
 
 
@@ -48,7 +48,7 @@ The beginning [of the facts] of the good news (the Gospel) of Jesus Christ, [^a]
 
 
 
-[^b]Just as it is written in the prophet Isaiah: Behold, I send My messenger before Your face, who will make ready Your way-- 
+Just as it is written in the prophet Isaiah: Behold, I send My messenger before Your face, who will make ready Your way-- 
 
 
 
@@ -69,7 +69,7 @@ The beginning [of the facts] of the good news (the Gospel) of Jesus Christ, [^a]
 
 
 
-A voice of one crying in the wilderness [shouting in the desert], Prepare the way of the Lord, make His [^c]beaten tracks straight (level and passable)! 
+A voice of one crying in the wilderness [shouting in the desert], Prepare the way of the Lord, make His beaten tracks straight (level and passable)! 
 
 
 
@@ -90,7 +90,7 @@ A voice of one crying in the wilderness [shouting in the desert], Prepare the wa
 
 
 
-John the Baptist appeared in the wilderness (desert), preaching a baptism [[^d]obligating] repentance ([^e]a change of one's mind for the better, heartily amending one's ways, with abhorrence of his past sins) in order [^f]to obtain forgiveness of _and_ release from sins. 
+John the Baptist appeared in the wilderness (desert), preaching a baptism [obligating] repentance (a change of one's mind for the better, heartily amending one's ways, with abhorrence of his past sins) in order to obtain forgiveness of _and_ release from sins. 
 
 
 
@@ -111,7 +111,7 @@ John the Baptist appeared in the wilderness (desert), preaching a baptism [[^d]o
 
 
 
-And there kept going out to him [continuously] all the country of Judea and all the inhabitants of Jerusalem; and they were baptized by him in the river Jordan, [^g]as they were confessing their sins. 
+And there kept going out to him [continuously] all the country of Judea and all the inhabitants of Jerusalem; and they were baptized by him in the river Jordan, as they were confessing their sins. 
 
 
 
@@ -216,7 +216,7 @@ In those days Jesus came from Nazareth of Galilee and was baptized by John in th
 
 
 
-And when He came up out of the water, at once he [John] saw the heavens torn open and the [Holy] Spirit like a dove coming down [[^h]to enter] [^i]into Him. 
+And when He came up out of the water, at once he [John] saw the heavens torn open and the [Holy] Spirit like a dove coming down [to enter] into Him. 
 
 
 
@@ -237,7 +237,7 @@ And when He came up out of the water, at once he [John] saw the heavens torn ope
 
 
 
-And there came a voice [^j]out from within heaven, You are My Beloved Son; in You I am well pleased. 
+And there came a voice out from within heaven, You are My Beloved Son; in You I am well pleased. 
 
 
 
@@ -321,7 +321,7 @@ Now after John was arrested _and_ put in prison, Jesus came into Galilee, preach
 
 
 
-And saying, The [appointed period of] time is fulfilled (completed), and the kingdom of God is at hand; repent ([^k]have a change of mind which issues in regret for past sins and in change of conduct for the better) and believe (trust in, rely on, and adhere to) the good news (the Gospel). 
+And saying, The [appointed period of] time is fulfilled (completed), and the kingdom of God is at hand; repent (have a change of mind which issues in regret for past sins and in change of conduct for the better) and believe (trust in, rely on, and adhere to) the good news (the Gospel). 
 
 
 
@@ -363,7 +363,7 @@ And passing along the shore of the Sea of Galilee, He saw Simon [Peter] and Andr
 
 
 
-And Jesus said to them, Come after Me _and_ [^l]be My disciples, and I will make you to become fishers of men. 
+And Jesus said to them, Come after Me _and_ be My disciples, and I will make you to become fishers of men. 
 
 
 
@@ -384,7 +384,7 @@ And Jesus said to them, Come after Me _and_ [^l]be My disciples, and I will make
 
 
 
-And at once they left their nets and [[^m]yielding up all claim to them] followed [with] Him [[^n]joining Him as disciples and siding with His party]. 
+And at once they left their nets and [yielding up all claim to them] followed [with] Him [joining Him as disciples and siding with His party]. 
 
 
 
@@ -426,7 +426,7 @@ He went on a little farther and saw James the _son_ of Zebedee, and John his bro
 
 
 
-And immediately He called out to them, and [[^o]abandoning all mutual claims] they left their father Zebedee in the boat with the hired men and went off after Him [[^p]to be His disciples, side with His party, and follow Him]. 
+And immediately He called out to them, and [abandoning all mutual claims] they left their father Zebedee in the boat with the hired men and went off after Him [to be His disciples, side with His party, and follow Him]. 
 
 
 
@@ -552,7 +552,7 @@ And Jesus rebuked him, saying, Hush up (be muzzled, gagged), and come out of him
 
 
 
-And the unclean spirit, throwing the man into convulsions and [^q]screeching with a loud voice, came out of him. 
+And the unclean spirit, throwing the man into convulsions and screeching with a loud voice, came out of him. 
 
 
 
@@ -573,7 +573,7 @@ And the unclean spirit, throwing the man into convulsions and [^q]screeching wit
 
 
 
-And they were all so amazed _and_ [^r]almost terrified that they kept questioning _and_ demanding one of another, saying, What is this? What new (fresh) teaching! With authority He gives orders even to the unclean spirits and they obey Him! 
+And they were all so amazed _and_ almost terrified that they kept questioning _and_ demanding one of another, saying, What is this? What new (fresh) teaching! With authority He gives orders even to the unclean spirits and they obey Him! 
 
 
 
@@ -636,7 +636,7 @@ And at once He left the synagogue and went into the house of Simon [Peter] and A
 
 
 
-Now Simon's mother-in-law [^s]had for some time been lying sick with a fever, and at once they told Him about her. 
+Now Simon's mother-in-law had for some time been lying sick with a fever, and at once they told Him about her. 
 
 
 
@@ -720,7 +720,7 @@ Until the whole town was gathered together about the door.
 
 
 
-And He cured many who were afflicted with various diseases; and He drove out many demons, but would not allow the demons to talk because they knew Him [[^t]intuitively]. 
+And He cured many who were afflicted with various diseases; and He drove out many demons, but would not allow the demons to talk because they knew Him [intuitively]. 
 
 
 
@@ -741,7 +741,7 @@ And He cured many who were afflicted with various diseases; and He drove out man
 
 
 
-And in the morning, long before daylight, He got up and went out to a [^u]deserted place, and there He prayed. 
+And in the morning, long before daylight, He got up and went out to a deserted place, and there He prayed. 
 
 
 
@@ -762,7 +762,7 @@ And in the morning, long before daylight, He got up and went out to a [^u]desert
 
 
 
-And Simon [Peter] and those who were with him followed Him [[^v]pursuing Him eagerly and hunting Him out], 
+And Simon [Peter] and those who were with him followed Him [pursuing Him eagerly and hunting Him out], 
 
 
 
@@ -951,4 +951,4 @@ And said to him, See that you tell nothing [of this] to anyone; but begone, show
 
 
 
-But he went out and began to talk so freely about it and blaze abroad the news [spreading it everywhere] that [Jesus] could no longer openly go into a town but was outside in [lonely] desert places. But the people kept on coming to Him from [^w]all sides _and_ every quarter.
+But he went out and began to talk so freely about it and blaze abroad the news [spreading it everywhere] that [Jesus] could no longer openly go into a town but was outside in [lonely] desert places. But the people kept on coming to Him from all sides _and_ every quarter.

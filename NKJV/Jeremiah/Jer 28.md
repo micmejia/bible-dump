@@ -19,7 +19,7 @@ And it happened in the same year, at the beginning of the reign of Zedekiah king
 Within two full years I will bring back to this place all the vessels of the Lord's house, that Nebuchadnezzar king of Babylon took away from this place and carried to Babylon. 
 
 ###### 4 
-And I will bring back to this place [^a]Jeconiah the son of Jehoiakim, king of Judah, with all the captives of Judah who went to Babylon,' says the Lord, 'for I will break the yoke of the king of Babylon.' " 
+And I will bring back to this place Jeconiah the son of Jehoiakim, king of Judah, with all the captives of Judah who went to Babylon,' says the Lord, 'for I will break the yoke of the king of Babylon.' " 
 
 ###### 5 
 Then the prophet Jeremiah spoke to the prophet Hananiah in the presence of the priests and in the presence of all the people who stood in the house of the Lord, 

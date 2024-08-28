@@ -139,7 +139,7 @@ Kaya maligo ka, magpabango, at isuot ang pinakamaganda mong damit. Pumunta ka sa
 
 
 
-Kapag matutulog na siya, tingnan mo kung saan siya hihiga. At kapag tulog na siya, puntahan mo at iangat ang kumot sa paanan niya, at doon ka mahiga.[^a] At sasabihin niya sa iyo kung ano ang gagawin mo." 
+Kapag matutulog na siya, tingnan mo kung saan siya hihiga. At kapag tulog na siya, puntahan mo at iangat ang kumot sa paanan niya, at doon ka mahiga. At sasabihin niya sa iyo kung ano ang gagawin mo." 
 
 
 
@@ -271,7 +271,7 @@ Nang matapos kumain at uminom si Boaz, gumanda ang pakiramdam niya. Nahiga siya 
 
 
 
-At nang maghahatinggabi na ay nagising si <i class="trans-change">Boaz_, at nang nag-inat[^b] siya, nagulat siya na may babaeng nakahiga sa paanan niya. 
+At nang maghahatinggabi na ay nagising si <i class="trans-change">Boaz_, at nang nag-inat siya, nagulat siya na may babaeng nakahiga sa paanan niya. 
 
 
 
@@ -337,7 +337,7 @@ Nagtanong si Boaz, "Sino ka?" Sumagot siya, "Ako po si Ruth. Isa po ako sa malap
 
 
 
-Sinabi ni Boaz, "Anak, pagpalain ka nawa ng Panginoon. Ang katapatan na ipinakita mo ngayon <i class="trans-change">sa pamilya mo_ ay mas higit pa sa ipinakita mo noon.[^c] Sapagkat hindi ka humabol sa mga binata, mayaman man o mahirap. 
+Sinabi ni Boaz, "Anak, pagpalain ka nawa ng Panginoon. Ang katapatan na ipinakita mo ngayon <i class="trans-change">sa pamilya mo_ ay mas higit pa sa ipinakita mo noon. Sapagkat hindi ka humabol sa mga binata, mayaman man o mahirap. 
 
 
 
@@ -502,7 +502,7 @@ Kaya natulog si Ruth sa paanan ni Boaz hanggang sa mag-umaga, pero madilim-dilim
 
 
 
-Sinabi ni Boaz <i class="trans-change">kay Ruth_, "Dalhin mo rito sa akin ang balabal mo at ilatag mo." Inilatag ito ni Ruth, at nilagyan ni Boaz ng mga anim na kilong sebada at ipinasan kay Ruth. At bumalik si Ruth[^d] sa bayan. 
+Sinabi ni Boaz <i class="trans-change">kay Ruth_, "Dalhin mo rito sa akin ang balabal mo at ilatag mo." Inilatag ito ni Ruth, at nilagyan ni Boaz ng mga anim na kilong sebada at ipinasan kay Ruth. At bumalik si Ruth sa bayan. 
 
 
 

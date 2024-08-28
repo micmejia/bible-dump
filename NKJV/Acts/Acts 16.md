@@ -25,10 +25,10 @@ And as they went through the cities, they delivered to them the decrees to keep,
 So the churches were strengthened in the faith, and increased in number daily. ## The Macedonian Call 
 
 ###### 6 
-Now when they had gone through Phrygia and the region of Galatia, they were forbidden by the Holy Spirit to preach the word in [^a]Asia. 
+Now when they had gone through Phrygia and the region of Galatia, they were forbidden by the Holy Spirit to preach the word in Asia. 
 
 ###### 7 
-After they had come to Mysia, they tried to go into Bithynia, but the [^b]Spirit did not permit them. 
+After they had come to Mysia, they tried to go into Bithynia, but the Spirit did not permit them. 
 
 ###### 8 
 So passing by Mysia, they came down to Troas. 
@@ -43,7 +43,7 @@ Now after he had seen the vision, immediately we sought to go to Macedonia, conc
 Therefore, sailing from Troas, we ran a straight course to Samothrace, and the next _day_ came to Neapolis, 
 
 ###### 12 
-and from there to Philippi, which is the [^c]foremost city of that part of Macedonia, a colony. And we were staying in that city for some days. 
+and from there to Philippi, which is the foremost city of that part of Macedonia, a colony. And we were staying in that city for some days. 
 
 ###### 13 
 And on the Sabbath day we went out of the city to the riverside, where prayer was customarily made; and we sat down and spoke to the women who met _there._ 
@@ -61,7 +61,7 @@ Now it happened, as we went to prayer, that a certain slave girl possessed with 
 This girl followed Paul and us, and cried out, saying, "These men are the servants of the Most High God, who proclaim to us the way of salvation." 
 
 ###### 18 
-And this she did for many days. But Paul, greatly [^d]annoyed, turned and said to the spirit, "I command you in the name of Jesus Christ to come out of her." And he came out that very hour. 
+And this she did for many days. But Paul, greatly annoyed, turned and said to the spirit, "I command you in the name of Jesus Christ to come out of her." And he came out that very hour. 
 
 ###### 19 
 But when her masters saw that their hope of profit was gone, they seized Paul and Silas and dragged _them_ into the marketplace to the authorities. 
@@ -112,7 +112,7 @@ And he took them the same hour of the night and washed _their_ stripes. And imme
 Now when he had brought them into his house, he set food before them; and he rejoiced, having believed in God with all his household. ## Paul Refuses to Depart Secretly 
 
 ###### 35 
-And when it was day, the magistrates sent the [^e]officers, saying, "Let those men go." 
+And when it was day, the magistrates sent the officers, saying, "Let those men go." 
 
 ###### 36 
 So the keeper of the prison reported these words to Paul, saying, "The magistrates have sent to let you go. Now therefore depart, and go in peace." 

@@ -175,7 +175,7 @@ The grass withers, the flower fades, when the breath of the Lord blows upon it; 
 
 
 
-The [^a]grass withers, the flower fades, but the word of our God will stand forever. 
+The grass withers, the flower fades, but the word of our God will stand forever. 
 
 
 

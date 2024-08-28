@@ -10,7 +10,7 @@ next: ['Jer 42']
 
 
 ###### 1 
-Now it came to pass in the seventh month _that_ Ishmael the son of Nethaniah, the son of Elishama, of the royal [^a]family and of the officers of the king, came with ten men to Gedaliah the son of Ahikam, at Mizpah. And there they ate bread together in Mizpah. 
+Now it came to pass in the seventh month _that_ Ishmael the son of Nethaniah, the son of Elishama, of the royal family and of the officers of the king, came with ten men to Gedaliah the son of Ahikam, at Mizpah. And there they ate bread together in Mizpah. 
 
 ###### 2 
 Then Ishmael the son of Nethaniah, and the ten men who were with him, arose and struck Gedaliah the son of Ahikam, the son of Shaphan, with the sword, and killed him whom the king of Babylon had made governor over the land. 
@@ -28,13 +28,13 @@ that certain men came from Shechem, from Shiloh, and from Samaria, eighty men wi
 Now Ishmael the son of Nethaniah went out from Mizpah to meet them, weeping as he went along; and it happened as he met them that he said to them, "Come to Gedaliah the son of Ahikam!" 
 
 ###### 7 
-So it was, when they came into the midst of the city, that Ishmael the son of Nethaniah killed them _and cast them_ into the midst of a [^b]pit, he and the men who were with him. 
+So it was, when they came into the midst of the city, that Ishmael the son of Nethaniah killed them _and cast them_ into the midst of a pit, he and the men who were with him. 
 
 ###### 8 
 But ten men were found among them who said to Ishmael, "Do not kill us, for we have treasures of wheat, barley, oil, and honey in the field." So he desisted and did not kill them among their brethren. 
 
 ###### 9 
-Now the [^c]pit into which Ishmael had cast all the dead bodies of the men whom he had slain, because of Gedaliah, _was_ the same one Asa the king had made for fear of Baasha king of Israel. Ishmael the son of Nethaniah filled it with _the_ slain. 
+Now the pit into which Ishmael had cast all the dead bodies of the men whom he had slain, because of Gedaliah, _was_ the same one Asa the king had made for fear of Baasha king of Israel. Ishmael the son of Nethaniah filled it with _the_ slain. 
 
 ###### 10 
 Then Ishmael carried away captive all the rest of the people who _were_ in Mizpah, the king's daughters and all the people who remained in Mizpah, whom Nebuzaradan the captain of the guard had committed to Gedaliah the son of Ahikam. And Ishmael the son of Nethaniah carried them away captive and departed to go over to the Ammonites. 

@@ -9,7 +9,7 @@ next: ['Neh 2']
 
 
 ###### 1 
-The words of Nehemiah the son of Hachaliah. It came to pass in the month of Chislev, _in_ the twentieth year, as I was in Shushan[^a] the [^b]citadel, 
+The words of Nehemiah the son of Hachaliah. It came to pass in the month of Chislev, _in_ the twentieth year, as I was in Shushan the citadel, 
 
 ###### 2 
 that Hanani one of my brethren came with men from Judah; and I asked them concerning the Jews who had escaped, who had survived the captivity, and concerning Jerusalem. 
@@ -21,7 +21,7 @@ And they said to me, "The survivors who are left from the captivity in the provi
 So it was, when I heard these words, that I sat down and wept, and mourned _for many_ days; I was fasting and praying before the God of heaven. 
 
 ###### 5 
-And I said: "I pray, Lord God of heaven, O great and awesome God, _You_ who keep _Your_ covenant and mercy with those who love [^c]You and observe [^d]Your commandments, 
+And I said: "I pray, Lord God of heaven, O great and awesome God, _You_ who keep _Your_ covenant and mercy with those who love You and observe Your commandments, 
 
 ###### 6 
 please let Your ear be attentive and Your eyes open, that You may hear the prayer of Your servant which I pray before You now, day and night, for the children of Israel Your servants, and confess the sins of the children of Israel which we have sinned against You. Both my father's house and I have sinned. 
@@ -30,7 +30,7 @@ please let Your ear be attentive and Your eyes open, that You may hear the praye
 We have acted very corruptly against You, and have not kept the commandments, the statutes, nor the ordinances which You commanded Your servant Moses. 
 
 ###### 8 
-Remember, I pray, the word that You commanded Your servant Moses, saying, '_If_ you [^e]are unfaithful, I will scatter you among the nations; 
+Remember, I pray, the word that You commanded Your servant Moses, saying, '_If_ you are unfaithful, I will scatter you among the nations; 
 
 ###### 9 
 but _if_ you return to Me, and keep My commandments and do them, though some of you were cast out to the farthest part of the heavens, _yet_ I will gather them from there, and bring them to the place which I have chosen as a dwelling for My name.' 

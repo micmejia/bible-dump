@@ -6,7 +6,7 @@ next: ['Gal 2']
 # Galatians 1
 
 ***
-###### 1-2 <i class="trans-change">Mula kay_ Pablo na isang apostol, kasama ang lahat ng kapatid dito. Ang pagka-apostol ko ay hindi galing sa tao o sa pamamagitan ng tao, kundi sa pamamagitan ni Jesu-Cristo at ng Dios Ama na muling bumuhay sa kanya mula sa kamatayan. <i class="trans-change">Mahal kong mga kapatid_ sa mga iglesya[^a] diyan sa Galacia: 
+###### 1-2 <i class="trans-change">Mula kay_ Pablo na isang apostol, kasama ang lahat ng kapatid dito. Ang pagka-apostol ko ay hindi galing sa tao o sa pamamagitan ng tao, kundi sa pamamagitan ni Jesu-Cristo at ng Dios Ama na muling bumuhay sa kanya mula sa kamatayan. <i class="trans-change">Mahal kong mga kapatid_ sa mga iglesya diyan sa Galacia: 
 
 
 

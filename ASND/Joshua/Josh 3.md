@@ -172,7 +172,7 @@ para malaman nʼyo kung saan kayo dadaan, dahil hindi pa kayo nakakadaan doon. P
 
 
 
-Pagkatapos, sinabi ni Josue sa mga tao, "Linisin nʼyo ang inyong sarili[^a] dahil bukas ipapakita sa inyo ng Panginoon ang mga kamangha-manghang bagay." 
+Pagkatapos, sinabi ni Josue sa mga tao, "Linisin nʼyo ang inyong sarili dahil bukas ipapakita sa inyo ng Panginoon ang mga kamangha-manghang bagay." 
 
 
 
@@ -469,7 +469,7 @@ Kapag lumusong na ang mga pari na tagabuhat ng Kahon ng <i class="trans-change">
 
 
 
-huminto agad sa pagdaloy ang tubig. Naipon ang tubig sa malayo, sa lugar na tinatawag na Adam – isang bayan malapit sa Zaretan. Walang tubig na dumaloy papunta sa Dagat na Patay,[^b] kaya nakatawid ang mga tao sa lugar na malapit sa Jerico. 
+huminto agad sa pagdaloy ang tubig. Naipon ang tubig sa malayo, sa lugar na tinatawag na Adam – isang bayan malapit sa Zaretan. Walang tubig na dumaloy papunta sa Dagat na Patay, kaya nakatawid ang mga tao sa lugar na malapit sa Jerico. 
 
 
 

@@ -12,7 +12,7 @@ up: ['Matthew']
 Now after the Sabbath, as the first _day_ of the week began to dawn, Mary Magdalene and the other Mary came to see the tomb. 
 
 ###### 2 
-And behold, there was a great earthquake; for an angel of the Lord descended from heaven, and came and rolled back the stone [^a]from the door, and sat on it. 
+And behold, there was a great earthquake; for an angel of the Lord descended from heaven, and came and rolled back the stone from the door, and sat on it. 
 
 ###### 3 
 His countenance was like lightning, and his clothing as white as snow. 
@@ -33,7 +33,7 @@ And go quickly and tell His disciples that He is risen from the dead, and indeed
 So they went out quickly from the tomb with fear and great joy, and ran to bring His disciples word. ## The Women Worship the Risen Lord 
 
 ###### 9 
-And [^b]as they went to tell His disciples, behold, Jesus met them, saying, "Rejoice!" So they came and held Him by the feet and worshiped Him. 
+And as they went to tell His disciples, behold, Jesus met them, saying, "Rejoice!" So they came and held Him by the feet and worshiped Him. 
 
 ###### 10 
 Then Jesus said to them, "Do not be afraid. Go _and_ tell My brethren to go to Galilee, and there they will see Me." ## The Soldiers Are Bribed 
@@ -63,7 +63,7 @@ When they saw Him, they worshiped Him; but some doubted.
 And Jesus came and spoke to them, saying, "All authority has been given to Me in heaven and on earth. 
 
 ###### 19 
-Go [^c]therefore and make disciples of all the nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, 
+Go therefore and make disciples of all the nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, 
 
 ###### 20 
-teaching them to observe all things that I have commanded you; and lo, I am with you always, _even_ to the end of the age." [^d]Amen.
+teaching them to observe all things that I have commanded you; and lo, I am with you always, _even_ to the end of the age." Amen.

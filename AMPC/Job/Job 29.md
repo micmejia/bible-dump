@@ -301,7 +301,7 @@ The blessing of him who was about to perish came upon me, and I caused the widow
 
 
 
-I put on [^a]righteousness, and it clothed me _or_ clothed itself with me; my justice was like a robe and a turban _or_ a diadem _or_ a crown! 
+I put on righteousness, and it clothed me _or_ clothed itself with me; my justice was like a robe and a turban _or_ a diadem _or_ a crown! 
 
 
 

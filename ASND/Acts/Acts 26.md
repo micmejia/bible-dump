@@ -337,7 +337,7 @@ Ang aming 12 lahi ay umaasa na matutupad ang pangakong ito. Kaya araw at gabi na
 
 
 
-Ganito ang aking ginawa noon sa Jerusalem. Sa pamamagitan ng kapangyarihang ibinigay sa akin ng mga namamahalang pari, maraming pinabanal[^a] <i class="trans-change">ng Dios_ ang ipinabilanggo ko. At nang hatulan sila ng kamatayan, sumang-ayon ako. 
+Ganito ang aking ginawa noon sa Jerusalem. Sa pamamagitan ng kapangyarihang ibinigay sa akin ng mga namamahalang pari, maraming pinabanal <i class="trans-change">ng Dios_ ang ipinabilanggo ko. At nang hatulan sila ng kamatayan, sumang-ayon ako. 
 
 
 

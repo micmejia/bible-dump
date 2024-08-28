@@ -49,7 +49,7 @@ In the fifteenth year of Tiberius Caesar's reign--when Pontius Pilate was govern
 
 
 
-In the high priesthood of Annas and Caiaphas, the Word of God [[^a]concerning the attainment through Christ of salvation in the kingdom of God] came to John son of Zachariah in the wilderness (desert). 
+In the high priesthood of Annas and Caiaphas, the Word of God [concerning the attainment through Christ of salvation in the kingdom of God] came to John son of Zachariah in the wilderness (desert). 
 
 
 
@@ -70,7 +70,7 @@ In the high priesthood of Annas and Caiaphas, the Word of God [[^a]concerning th
 
 
 
-And he went into all the country round about the Jordan, preaching a baptism of repentance ([^b]of hearty amending of their ways, with abhorrence of past wrongdoing) unto the forgiveness of sin. 
+And he went into all the country round about the Jordan, preaching a baptism of repentance (of hearty amending of their ways, with abhorrence of past wrongdoing) unto the forgiveness of sin. 
 
 
 
@@ -133,7 +133,7 @@ Every valley _and_ ravine shall be filled up, and every mountain and hill shall 
 
 
 
-And all mankind shall see (behold and [^c]understand and at last acknowledge) the salvation of God (the deliverance from eternal death [^d]decreed by God). 
+And all mankind shall see (behold and understand and at last acknowledge) the salvation of God (the deliverance from eternal death decreed by God). 
 
 
 
@@ -154,7 +154,7 @@ And all mankind shall see (behold and [^c]understand and at last acknowledge) th
 
 
 
-So he said to the crowds who came out to be baptized by him, You offspring of vipers! Who [^e]secretly warned you to flee from the coming wrath? 
+So he said to the crowds who came out to be baptized by him, You offspring of vipers! Who secretly warned you to flee from the coming wrath? 
 
 
 
@@ -175,7 +175,7 @@ So he said to the crowds who came out to be baptized by him, You offspring of vi
 
 
 
-Bear fruits that are deserving _and_ consistent with [your] repentance [that is, [^f]conduct worthy of a heart changed, a heart abhorring sin]. And do not begin to say to yourselves, We have Abraham as our father; for I tell you that God is able from these stones to raise up descendants for Abraham. 
+Bear fruits that are deserving _and_ consistent with [your] repentance [that is, conduct worthy of a heart changed, a heart abhorring sin]. And do not begin to say to yourselves, We have Abraham as our father; for I tell you that God is able from these stones to raise up descendants for Abraham. 
 
 
 
@@ -301,7 +301,7 @@ And he said to them, Exact _and_ collect no more than the fixed amount appointed
 
 
 
-Those serving as soldiers also asked him, And we, what shall we do? And he replied to them, Never demand _or_ enforce [^g]by terrifying people or by accusing wrongfully, and always be satisfied with your rations (supplies) _and_ with your allowance (wages). 
+Those serving as soldiers also asked him, And we, what shall we do? And he replied to them, Never demand _or_ enforce by terrifying people or by accusing wrongfully, and always be satisfied with your rations (supplies) _and_ with your allowance (wages). 
 
 
 
@@ -406,7 +406,7 @@ So with many other [various] appeals and admonitions he preached the good news (
 
 
 
-But Herod the tetrarch, who had been [repeatedly] told about his fault _and_ reproved _with_ rebuke [^h]producing conviction by [John] for [having] Herodias, his brother's wife, and for all the wicked things that Herod had done, 
+But Herod the tetrarch, who had been [repeatedly] told about his fault _and_ reproved _with_ rebuke producing conviction by [John] for [having] Herodias, his brother's wife, and for all the wicked things that Herod had done, 
 
 
 

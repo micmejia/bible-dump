@@ -39,7 +39,7 @@ up: ['Amos']
 
 
 
-<i class="trans-change">Sinabi ni Amos:_ Nakita ko ang Panginoon na nakatayo malapit sa altar at sinabi niya, "Hampasin mo ang itaas na bahagi ng mga haligi ng templo upang mawasak ang bubong[^a] at nang mabagsakan ang mga tao. Ang matitirang buhay ay mamamatay sa digmaan. Wala ni isa mang makakatakas o makakaligtas. 
+<i class="trans-change">Sinabi ni Amos:_ Nakita ko ang Panginoon na nakatayo malapit sa altar at sinabi niya, "Hampasin mo ang itaas na bahagi ng mga haligi ng templo upang mawasak ang bubong at nang mabagsakan ang mga tao. Ang matitirang buhay ay mamamatay sa digmaan. Wala ni isa mang makakatakas o makakaligtas. 
 
 
 
@@ -237,7 +237,7 @@ Ang Dios ang gumawa ng kanyang <i class="trans-change">sariling_ tirahan sa lang
 
 
 
-Sinabi ng Panginoon, "Ang turing ko sa inyo na mga taga-Israel ay katulad lang sa mga taga-Etiopia.[^b] Totoong inilabas ko kayo sa Egipto, pero inilabas ko rin ang mga Filisteo sa Caftor[^c] at ang mga Arameo[^d] sa Kir. 
+Sinabi ng Panginoon, "Ang turing ko sa inyo na mga taga-Israel ay katulad lang sa mga taga-Etiopia. Totoong inilabas ko kayo sa Egipto, pero inilabas ko rin ang mga Filisteo sa Caftor at ang mga Arameo sa Kir. 
 
 
 
@@ -435,7 +435,7 @@ upang masakop ng mga Israelita ang natitirang lupain ng Edom at ang iba pang mga
 
 
 
-Sinabi pa ng Panginoon <i class="trans-change">tungkol sa mga taga-Israel_, "Darating ang araw <i class="trans-change">na magiging masagana ang kanilang ani_, hindi pa nga nila natatapos ang pag-aani, sinisimulan na naman ang pag-aararo. At hindi pa natatapos ang pagpisa ng ubas, panahon na naman ng pagtatanim nito. Kung titingnan ang napakaraming ubas na namumunga sa mga bundok at burol, para bang dumadaloy ang matamis na bagong katas nito.[^e] 
+Sinabi pa ng Panginoon <i class="trans-change">tungkol sa mga taga-Israel_, "Darating ang araw <i class="trans-change">na magiging masagana ang kanilang ani_, hindi pa nga nila natatapos ang pag-aani, sinisimulan na naman ang pag-aararo. At hindi pa natatapos ang pagpisa ng ubas, panahon na naman ng pagtatanim nito. Kung titingnan ang napakaraming ubas na namumunga sa mga bundok at burol, para bang dumadaloy ang matamis na bagong katas nito. 
 
 
 
@@ -468,7 +468,7 @@ Sinabi pa ng Panginoon <i class="trans-change">tungkol sa mga taga-Israel_, "Dar
 
 
 
-Pababalikin ko ang mga mamamayan kong Israelita sa kanilang lupain mula sa pagkakabihag.[^f] Muli nilang itatayo ang kanilang mga nasirang bayan at doon na sila maninirahan. Magtatanim sila ng ubas at iinom ng katas nito. Magtatanim sila sa kanilang mga halamanan, at kakainin nila ang mga bunga nito. 
+Pababalikin ko ang mga mamamayan kong Israelita sa kanilang lupain mula sa pagkakabihag. Muli nilang itatayo ang kanilang mga nasirang bayan at doon na sila maninirahan. Magtatanim sila ng ubas at iinom ng katas nito. Magtatanim sila sa kanilang mga halamanan, at kakainin nila ang mga bunga nito. 
 
 
 

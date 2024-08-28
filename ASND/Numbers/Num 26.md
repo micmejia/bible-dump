@@ -172,7 +172,7 @@ Kaya nakipag-usap sina Moises at Eleazar na pari sa mga Israelita roon sa kapata
 
 
 
-Ang mga lahi ni Reuben na panganay na anak ni Jacob,[^a] ay ang mga pamilya nina Hanoc, Palu, 
+Ang mga lahi ni Reuben na panganay na anak ni Jacob, ay ang mga pamilya nina Hanoc, Palu, 
 
 
 

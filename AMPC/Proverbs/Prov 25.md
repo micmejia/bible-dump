@@ -469,7 +469,7 @@ If your enemy is hungry, give him bread to eat; and if he is thirsty, give him w
 
 
 
-For in doing so, you will [^a]heap coals of fire upon his head, and the Lord will reward you. 
+For in doing so, you will heap coals of fire upon his head, and the Lord will reward you. 
 
 
 

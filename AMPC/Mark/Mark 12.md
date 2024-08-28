@@ -217,7 +217,7 @@ Now what will the owner of the vineyard do? He will come and destroy the tenants
 
 
 
-Have you not even read this [passage of] Scripture: The very Stone which [[^a]after putting It to the test] the builders rejected has become the Head of the corner [Cornerstone]; 
+Have you not even read this [passage of] Scripture: The very Stone which [after putting It to the test] the builders rejected has become the Head of the corner [Cornerstone]; 
 
 
 
@@ -301,7 +301,7 @@ But they sent some of the Pharisees and of the Herodians to Him for the purpose 
 
 
 
-And they came up and said to Him, Teacher, we know that You are [^b]sincere _and_ what You profess to be, that You cannot lie, _and_ that You have no personal bias for anyone; for You are not influenced by partiality _and_ have no [^c]regard for anyone's external condition _or_ position, but in [and on the basis of] truth You teach the way of God. Is it lawful (permissible and right) to give tribute ([^d]poll taxes) to Caesar or not? 
+And they came up and said to Him, Teacher, we know that You are sincere _and_ what You profess to be, that You cannot lie, _and_ that You have no personal bias for anyone; for You are not influenced by partiality _and_ have no regard for anyone's external condition _or_ position, but in [and on the basis of] truth You teach the way of God. Is it lawful (permissible and right) to give tribute (poll taxes) to Caesar or not? 
 
 
 
@@ -343,7 +343,7 @@ Should we pay [them] or should we not pay [them]? But knowing their hypocrisy, H
 
 
 
-And they brought [Him one]. Then He asked them, Whose image (picture) is this? And whose superscription ([^e]title)? They said to Him, Caesar's. 
+And they brought [Him one]. Then He asked them, Whose image (picture) is this? And whose superscription (title)? They said to Him, Caesar's. 
 
 
 
@@ -364,7 +364,7 @@ And they brought [Him one]. Then He asked them, Whose image (picture) is this? A
 
 
 
-Jesus said to them, Pay to Caesar the things that are Caesar's and to [^f]God the things that are God's. And they [^g]stood marveling _and_ greatly amazed at Him. 
+Jesus said to them, Pay to Caesar the things that are Caesar's and to God the things that are God's. And they stood marveling _and_ greatly amazed at Him. 
 
 
 
@@ -595,7 +595,7 @@ He is not the God of [the] dead, but of [the] living! You are very wrong.
 
 
 
-Then one of the scribes came up and listened to them disputing with one another, and, noticing that Jesus answered them fitly _and_ admirably, he asked Him, Which commandment is first _and_ most important of all [[^h]in its nature]? 
+Then one of the scribes came up and listened to them disputing with one another, and, noticing that Jesus answered them fitly _and_ admirably, he asked Him, Which commandment is first _and_ most important of all [in its nature]? 
 
 
 
@@ -637,7 +637,7 @@ Jesus answered, The first _and_ principal _one of all commands_ is: Hear, O Isra
 
 
 
-And you shall love the Lord your God [^i]out of _and_ with your whole heart and out of _and_ with all your soul (your [^j]life) and out of _and_ with all your mind (with [^k]your faculty of thought and your moral understanding) and out of _and_ with all your strength. [^l]_This is the first and principal commandment_. 
+And you shall love the Lord your God out of _and_ with your whole heart and out of _and_ with all your soul (your life) and out of _and_ with all your mind (with your faculty of thought and your moral understanding) and out of _and_ with all your strength. _This is the first and principal commandment_. 
 
 
 
@@ -700,7 +700,7 @@ And the scribe said to Him, Excellently _and_ fitly _and_ admirably answered, Te
 
 
 
-And to love Him out of _and_ with all the heart and with all the understanding [with the [^m]faculty of quick apprehension and intelligence and keenness of discernment] and with all the strength, and to love one's neighbor as oneself, is much more than all the whole burnt offerings and sacrifices. 
+And to love Him out of _and_ with all the heart and with all the understanding [with the faculty of quick apprehension and intelligence and keenness of discernment] and with all the strength, and to love one's neighbor as oneself, is much more than all the whole burnt offerings and sacrifices. 
 
 
 
@@ -721,7 +721,7 @@ And to love Him out of _and_ with all the heart and with all the understanding [
 
 
 
-And when Jesus saw that he answered intelligently (discreetly and [^n]having his wits about him), He said to him, You are not far from the kingdom of God. And after that no one ventured _or_ dared to ask Him any further question. 
+And when Jesus saw that he answered intelligently (discreetly and having his wits about him), He said to him, You are not far from the kingdom of God. And after that no one ventured _or_ dared to ask Him any further question. 
 
 
 
@@ -742,7 +742,7 @@ And when Jesus saw that he answered intelligently (discreetly and [^n]having his
 
 
 
-And as Jesus taught in [a [^o]porch or court of] the temple, He said, How can the scribes say that the Christ is David's Son? 
+And as Jesus taught in [a porch or court of] the temple, He said, How can the scribes say that the Christ is David's Son? 
 
 
 
@@ -826,7 +826,7 @@ And in [the course of] His teaching, He said, Beware of the scribes, who like to
 
 
 
-And [have] the front seats in the synagogues and the [^p]chief couches (places of honor) at feasts, 
+And [have] the front seats in the synagogues and the chief couches (places of honor) at feasts, 
 
 
 
@@ -889,7 +889,7 @@ And He sat down opposite the treasury and saw how the crowd was casting money in
 
 
 
-And a widow who was poverty-stricken came and put in two copper mites [the smallest of coins], which together make [^q]half of a cent. 
+And a widow who was poverty-stricken came and put in two copper mites [the smallest of coins], which together make half of a cent. 
 
 
 

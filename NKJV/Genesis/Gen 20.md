@@ -16,13 +16,13 @@ And Abraham journeyed from there to the South, and dwelt between Kadesh and Shur
 Now Abraham said of Sarah his wife, "She _is_ my sister." And Abimelech king of Gerar sent and took Sarah. 
 
 ###### 3 
-But God came to Abimelech in a dream by night, and said to him, "Indeed you _are_ a dead man because of the woman whom you have taken, for she _is_ [^a]a man's wife." 
+But God came to Abimelech in a dream by night, and said to him, "Indeed you _are_ a dead man because of the woman whom you have taken, for she _is_ a man's wife." 
 
 ###### 4 
 But Abimelech had not come near her; and he said, "Lord, will You slay a righteous nation also? 
 
 ###### 5 
-Did he not say to me, 'She _is_ my sister'? And she, even she herself said, 'He _is_ my brother.' In the [^b]integrity of my heart and innocence of my hands I have done this." 
+Did he not say to me, 'She _is_ my sister'? And she, even she herself said, 'He _is_ my brother.' In the integrity of my heart and innocence of my hands I have done this." 
 
 ###### 6 
 And God said to him in a dream, "Yes, I know that you did this in the integrity of your heart. For I also withheld you from sinning against Me; therefore I did not let you touch her. 
@@ -34,7 +34,7 @@ Now therefore, restore the man's wife; for he _is_ a prophet, and he will pray f
 So Abimelech rose early in the morning, called all his servants, and told all these things in their hearing; and the men were very much afraid. 
 
 ###### 9 
-And Abimelech called Abraham and said to him, "What have you done to us? How have I [^c]offended you, that you have brought on me and on my kingdom a great sin? You have done deeds to me that ought not to be done." 
+And Abimelech called Abraham and said to him, "What have you done to us? How have I offended you, that you have brought on me and on my kingdom a great sin? You have done deeds to me that ought not to be done." 
 
 ###### 10 
 Then Abimelech said to Abraham, "What did you have in view, that you have done this thing?" 
@@ -55,7 +55,7 @@ Then Abimelech took sheep, oxen, and male and female servants, and gave _them_ t
 And Abimelech said, "See, my land _is_ before you; dwell where it pleases you." 
 
 ###### 16 
-Then to Sarah he said, "Behold, I have given your brother a thousand _pieces_ of silver; indeed this [^d]vindicates you before all who _are_ with you and before everybody." Thus she was [^e]rebuked. 
+Then to Sarah he said, "Behold, I have given your brother a thousand _pieces_ of silver; indeed this vindicates you before all who _are_ with you and before everybody." Thus she was rebuked. 
 
 ###### 17 
 So Abraham prayed to God; and God healed Abimelech, his wife, and his female servants. Then they bore _children;_ 

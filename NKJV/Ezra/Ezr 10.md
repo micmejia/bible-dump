@@ -12,7 +12,7 @@ up: ['Ezra']
 Now while Ezra was praying, and while he was confessing, weeping, and bowing down before the house of God, a very large assembly of men, women, and children gathered to him from Israel; for the people wept very bitterly. 
 
 ###### 2 
-And Shechaniah the son of Jehiel, _one_ of the sons of Elam, spoke up and said to Ezra, "We have trespassed[^a] against our God, and have taken pagan wives from the peoples of the land; yet now there is hope in Israel in spite of this. 
+And Shechaniah the son of Jehiel, _one_ of the sons of Elam, spoke up and said to Ezra, "We have trespassed against our God, and have taken pagan wives from the peoples of the land; yet now there is hope in Israel in spite of this. 
 
 ###### 3 
 Now therefore, let us make a covenant with our God to put away all these wives and those who have been born to them, according to the advice of my master and of those who tremble at the commandment of our God; and let it be done according to the law. 
@@ -36,7 +36,7 @@ and that whoever would not come within three days, according to the instructions
 So all the men of Judah and Benjamin gathered at Jerusalem within three days. It _was_ the ninth month, on the twentieth of the month; and all the people sat in the open square of the house of God, trembling because of _this_ matter and because of heavy rain. 
 
 ###### 10 
-Then Ezra the priest stood up and said to them, "You have [^b]transgressed and [^c]have taken pagan wives, adding to the guilt of Israel. 
+Then Ezra the priest stood up and said to them, "You have transgressed and have taken pagan wives, adding to the guilt of Israel. 
 
 ###### 11 
 Now therefore, make confession to the Lord God of your fathers, and do His will; separate yourselves from the peoples of the land, and from the pagan wives." 
@@ -60,7 +60,7 @@ Then the descendants of the captivity did so. And Ezra the priest, _with_ certai
 By the first day of the first month they finished _questioning_ all the men who had taken pagan wives. ## Pagan Wives Put Away 
 
 ###### 18 
-And among the sons of the priests who had taken pagan wives _the following_ were found of the sons of Jeshua the son of [^d]Jozadak, and his brothers: Maaseiah, Eliezer, Jarib, and Gedaliah. 
+And among the sons of the priests who had taken pagan wives _the following_ were found of the sons of Jeshua the son of Jozadak, and his brothers: Maaseiah, Eliezer, Jarib, and Gedaliah. 
 
 ###### 19 
 And they gave their promise that they would put away their wives; and _being_ guilty, _they presented_ a ram of the flock as their trespass offering. 
@@ -93,7 +93,7 @@ of the sons of Zattu: Elioenai, Eliashib, Mattaniah, Jeremoth, Zabad, and Aziza;
 of the sons of Bebai: Jehohanan, Hananiah, Zabbai, _and_ Athlai; 
 
 ###### 29 
-of the sons of Bani: Meshullam, Malluch, Adaiah, Jashub, Sheal, _and_ [^e]Ramoth; 
+of the sons of Bani: Meshullam, Malluch, Adaiah, Jashub, Sheal, _and_ Ramoth; 
 
 ###### 30 
 of the sons of Pahath-Moab: Adna, Chelal, Benaiah, Maaseiah, Mattaniah, Bezalel, Binnui, and Manasseh; 
@@ -111,13 +111,13 @@ of the sons of Hashum: Mattenai, Mattattah, Zabad, Eliphelet, Jeremai, Manasseh,
 of the sons of Bani: Maadai, Amram, Uel, 
 
 ###### 35 
-Benaiah, Bedeiah, [^f]Cheluh, 
+Benaiah, Bedeiah, Cheluh, 
 
 ###### 36 
 Vaniah, Meremoth, Eliashib, 
 
 ###### 37 
-Mattaniah, Mattenai, [^g]Jaasai, 
+Mattaniah, Mattenai, Jaasai, 
 
 ###### 38 
 Bani, Binnui, Shimei, 
@@ -135,7 +135,7 @@ Azarel, Shelemiah, Shemariah,
 Shallum, Amariah, _and_ Joseph; 
 
 ###### 43 
-of the sons of Nebo: Jeiel, Mattithiah, Zabad, Zebina, [^h]Jaddai, Joel, _and_ Benaiah. 
+of the sons of Nebo: Jeiel, Mattithiah, Zabad, Zebina, Jaddai, Joel, _and_ Benaiah. 
 
 ###### 44 
 All these had taken pagan wives, and _some_ of them had wives _by whom_ they had children.

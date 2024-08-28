@@ -13,7 +13,7 @@ next: ['Matt 12']
 Now it came to pass, when Jesus finished commanding His twelve disciples, that He departed from there to teach and to preach in their cities. 
 
 ###### 2 
-And when John had heard in prison about the works of Christ, he [^a]sent two of his disciples 
+And when John had heard in prison about the works of Christ, he sent two of his disciples 
 
 ###### 3 
 and said to Him, "Are You the Coming One, or do we look for another?" 
@@ -58,13 +58,13 @@ He who has ears to hear, let him hear!
 "But to what shall I liken this generation? It is like children sitting in the marketplaces and calling to their companions, 
 
 ###### 17 
-and saying: 'We played the flute for you, And you did not dance; We mourned to you, And you did not [^b]lament.' 
+and saying: 'We played the flute for you, And you did not dance; We mourned to you, And you did not lament.' 
 
 ###### 18 
 For John came neither eating nor drinking, and they say, 'He has a demon.' 
 
 ###### 19 
-The Son of Man came eating and drinking, and they say, 'Look, a glutton and a [^c]winebibber, a friend of tax collectors and sinners!' But wisdom is justified by her [^d]children." ## Woe to the Impenitent Cities 
+The Son of Man came eating and drinking, and they say, 'Look, a glutton and a winebibber, a friend of tax collectors and sinners!' But wisdom is justified by her children." ## Woe to the Impenitent Cities 
 
 ###### 20 
 Then He began to rebuke the cities in which most of His mighty works had been done, because they did not repent: 
@@ -76,7 +76,7 @@ Then He began to rebuke the cities in which most of His mighty works had been do
 But I say to you, it will be more tolerable for Tyre and Sidon in the day of judgment than for you. 
 
 ###### 23 
-And you, Capernaum, who[^e] are exalted to heaven, will be brought down to Hades; for if the mighty works which were done in you had been done in Sodom, it would have remained until this day. 
+And you, Capernaum, who are exalted to heaven, will be brought down to Hades; for if the mighty works which were done in you had been done in Sodom, it would have remained until this day. 
 
 ###### 24 
 But I say to you that it shall be more tolerable for the land of Sodom in the day of judgment than for you." ## Jesus Gives True Rest 
@@ -94,7 +94,7 @@ All things have been delivered to Me by My Father, and no one knows the Son exce
 Come to Me, all _you_ who labor and are heavy laden, and I will give you rest. 
 
 ###### 29 
-Take My yoke upon you and learn from Me, for I am [^f]gentle and lowly in heart, and you will find rest for your souls. 
+Take My yoke upon you and learn from Me, for I am gentle and lowly in heart, and you will find rest for your souls. 
 
 ###### 30 
 For My yoke _is_ easy and My burden is light."

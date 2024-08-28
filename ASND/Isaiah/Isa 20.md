@@ -106,7 +106,7 @@ Bago ito nangyari, sinabi ng Panginoon kay Isaias na anak ni Amoz, "Hubarin mo a
 
 
 
-Sinabi ng Panginoon, "Ang lingkod kong si Isaias ay palakad-lakad nang hubad at nakayapak sa loob ng tatlong taon. Itoʼy isang babala para sa Egipto at Etiopia.[^a] 
+Sinabi ng Panginoon, "Ang lingkod kong si Isaias ay palakad-lakad nang hubad at nakayapak sa loob ng tatlong taon. Itoʼy isang babala para sa Egipto at Etiopia. 
 
 
 
@@ -139,7 +139,7 @@ Sinabi ng Panginoon, "Ang lingkod kong si Isaias ay palakad-lakad nang hubad at 
 
 
 
-Sapagkat bibihagin ng hari ng Asiria ang mga taga-Egipto at mga taga-Etiopia,[^b] bata man o matanda. Bibihagin sila nang hubad at nakayapak. Makikita ang kanilang puwit, at talaga ngang mapapahiya ang mga Egipcio. 
+Sapagkat bibihagin ng hari ng Asiria ang mga taga-Egipto at mga taga-Etiopia, bata man o matanda. Bibihagin sila nang hubad at nakayapak. Makikita ang kanilang puwit, at talaga ngang mapapahiya ang mga Egipcio. 
 
 
 
@@ -205,4 +205,4 @@ Ang mga umaasa sa Etiopia at ipinagmamalaki ang Egipto ay manlulupaypay at mapap
 
 
 
-Sa araw na mangyari iyon, sasabihin ng mga Filisteo,[^c] 'Tingnan ninyo ang nangyari sa mga bansang ating inaasahan at hinihingan ng tulong para tayoʼy maligtas sa hari ng Asiria. Paano na tayo maliligtas?' "
+Sa araw na mangyari iyon, sasabihin ng mga Filisteo, 'Tingnan ninyo ang nangyari sa mga bansang ating inaasahan at hinihingan ng tulong para tayoʼy maligtas sa hari ng Asiria. Paano na tayo maliligtas?' "

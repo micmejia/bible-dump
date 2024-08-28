@@ -16,7 +16,7 @@ next: ['Jer 9']
 They shall spread them before the sun and the moon and all the host of heaven, which they have loved and which they have served and after which they have walked, which they have sought and which they have worshiped. They shall not be gathered nor buried; they shall be like refuse on the face of the earth. 
 
 ###### 3 
-Then death shall be chosen rather than life by all the [^a]residue of those who remain of this evil family, who remain in all the places where I have driven them," says the Lord of hosts. ## The Peril of False Teaching 
+Then death shall be chosen rather than life by all the residue of those who remain of this evil family, who remain in all the places where I have driven them," says the Lord of hosts. ## The Peril of False Teaching 
 
 ###### 4 
 "Moreover you shall say to them, 'Thus says the Lord: "Will they fall and not rise? Will one turn away and not return? 
@@ -40,16 +40,16 @@ The wise men are ashamed, They are dismayed and taken. Behold, they have rejecte
 Therefore I will give their wives to others, _And_ their fields to those who will inherit _them;_ Because from the least even to the greatest Everyone is given to covetousness; From the prophet even to the priest Everyone deals falsely. 
 
 ###### 11 
-For they have healed the hurt of the daughter of My people [^b]slightly, Saying, 'Peace, peace!' When _there is_ no peace. 
+For they have healed the hurt of the daughter of My people slightly, Saying, 'Peace, peace!' When _there is_ no peace. 
 
 ###### 12 
 Were they ashamed when they had committed abomination? No! They were not at all ashamed, Nor did they know how to blush. Therefore they shall fall among those who fall; In the time of their punishment They shall be cast down," says the Lord. 
 
 ###### 13 
-"I will surely [^c]consume them," says the Lord. "No grapes _shall be_ on the vine, Nor figs on the fig tree, And the leaf shall fade; And _the things_ I have given them shall pass away from them." ' " 
+"I will surely consume them," says the Lord. "No grapes _shall be_ on the vine, Nor figs on the fig tree, And the leaf shall fade; And _the things_ I have given them shall pass away from them." ' " 
 
 ###### 14 
-"Why do we sit still? Assemble yourselves, And let us enter the fortified cities, And let us be silent there. For the Lord our God has put us to silence And given us water[^d] of gall to drink, Because we have sinned against the Lord. 
+"Why do we sit still? Assemble yourselves, And let us enter the fortified cities, And let us be silent there. For the Lord our God has put us to silence And given us water of gall to drink, Because we have sinned against the Lord. 
 
 ###### 15 
 "_We_ looked for peace, but no good _came;_ And for a time of health, and there was trouble! 

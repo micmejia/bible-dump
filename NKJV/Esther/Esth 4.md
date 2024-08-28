@@ -10,7 +10,7 @@ next: ['Esth 5']
 
 
 ###### 1 
-When Mordecai learned all that had happened, [^a]he tore his clothes and put on sackcloth and ashes, and went out into the midst of the city. He cried out with a loud and bitter cry. 
+When Mordecai learned all that had happened, he tore his clothes and put on sackcloth and ashes, and went out into the midst of the city. He cried out with a loud and bitter cry. 
 
 ###### 2 
 He went as far as the front of the king's gate, for no one _might_ enter the king's gate clothed with sackcloth. 
@@ -31,7 +31,7 @@ So Hathach went out to Mordecai in the city square that _was_ in front of the ki
 And Mordecai told him all that had happened to him, and the sum of money that Haman had promised to pay into the king's treasuries to destroy the Jews. 
 
 ###### 8 
-He also gave him a copy of the written decree for their destruction, which was given at [^b]Shushan, that he might show it to Esther and explain it to her, and that he might command her to go in to the king to make supplication to him and plead before him for her people. 
+He also gave him a copy of the written decree for their destruction, which was given at Shushan, that he might show it to Esther and explain it to her, and that he might command her to go in to the king to make supplication to him and plead before him for her people. 
 
 ###### 9 
 So Hathach returned and told Esther the words of Mordecai. 
@@ -55,7 +55,7 @@ For if you remain completely silent at this time, relief and deliverance will ar
 Then Esther told _them_ to reply to Mordecai: 
 
 ###### 16 
-"Go, gather all the Jews who are present in [^c]Shushan, and fast for me; neither eat nor drink for three days, night or day. My maids and I will fast likewise. And so I will go to the king, which _is_ against the law; and if I perish, I perish!" 
+"Go, gather all the Jews who are present in Shushan, and fast for me; neither eat nor drink for three days, night or day. My maids and I will fast likewise. And so I will go to the king, which _is_ against the law; and if I perish, I perish!" 
 
 ###### 17 
-So Mordecai went his way and did according to all that Esther commanded [^d]him.
+So Mordecai went his way and did according to all that Esther commanded him.

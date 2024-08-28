@@ -10,19 +10,19 @@ next: ['Deut 15']
 
 
 ###### 1 
-"You _are_ the children of the Lord your God; you shall not cut yourselves nor [^a]shave the front of your head for the dead. 
+"You _are_ the children of the Lord your God; you shall not cut yourselves nor shave the front of your head for the dead. 
 
 ###### 2 
 For you _are_ a holy people to the Lord your God, and the Lord has chosen you to be a people for Himself, a special treasure above all the peoples who _are_ on the face of the earth. ## Clean and Unclean Meat 
 
 ###### 3 
-"You shall not eat any [^b]detestable thing. 
+"You shall not eat any detestable thing. 
 
 ###### 4 
 These _are_ the animals which you may eat: the ox, the sheep, the goat, 
 
 ###### 5 
-the deer, the gazelle, the roe deer, the wild goat, the [^c]mountain goat, the antelope, and the mountain sheep. 
+the deer, the gazelle, the roe deer, the wild goat, the mountain goat, the antelope, and the mountain sheep. 
 
 ###### 6 
 And you may eat every animal with cloven hooves, having the hoof split into two parts, _and that_ chews the cud, among the animals. 
@@ -64,7 +64,7 @@ the jackdaw, the carrion vulture, the fisher owl,
 the stork, the heron after its kind, and the hoopoe and the bat. 
 
 ###### 19 
-"Also every [^d]creeping thing that flies is unclean for you; they shall not be eaten. 
+"Also every creeping thing that flies is unclean for you; they shall not be eaten. 
 
 ###### 20 
 "You may eat all clean birds. 
@@ -88,7 +88,7 @@ then you shall exchange _it_ for money, take the money in your hand, and go to t
 And you shall spend that money for whatever your heart desires: for oxen or sheep, for wine or similar drink, for whatever your heart desires; you shall eat there before the Lord your God, and you shall rejoice, you and your household. 
 
 ###### 27 
-You shall not [^e]forsake the Levite who _is_ within your gates, for he has no part nor inheritance with you. 
+You shall not forsake the Levite who _is_ within your gates, for he has no part nor inheritance with you. 
 
 ###### 28 
 "At the end of _every_ third year you shall bring out the tithe of your produce of that year and store _it_ up within your gates. 

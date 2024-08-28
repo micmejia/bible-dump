@@ -172,7 +172,7 @@ Nang marinig ito ni Abram, nagpatirapa siya <i class="trans-change">bilang pagga
 
 
 
-Mula ngayon, hindi na Abram ang itatawag sa iyo kundi Abraham[^a] dahil gagawin kitang ama ng maraming bansa. 
+Mula ngayon, hindi na Abram ang itatawag sa iyo kundi Abraham dahil gagawin kitang ama ng maraming bansa. 
 
 
 
@@ -436,7 +436,7 @@ Ang sinumang lalaki sa inyo na tumangging magpatuli ay huwag ninyong ituring na 
 
 
 
-Sinabi pa ng Dios kay Abraham, "Tungkol naman sa asawa mong si Sarai, hindi mo na siya tatawaging Sarai, kundi mula ngayon ay Sara[^b] na ang itatawag mo sa kanya. 
+Sinabi pa ng Dios kay Abraham, "Tungkol naman sa asawa mong si Sarai, hindi mo na siya tatawaging Sarai, kundi mula ngayon ay Sara na ang itatawag mo sa kanya. 
 
 
 
@@ -568,7 +568,7 @@ Sinabi niya sa Dios, "Kung ganoon po ang mangyayari, nawaʼy pagpalain nʼyo rin
 
 
 
-Sumagot ang Dios, "Ang totoo ay ito: Ang asawa mong si Sara ay manganganak ng lalaki at papangalanan mo siyang Isaac.[^c] Sa kanya ko ipagpapatuloy ang kasunduan ko sa iyo, at magpapatuloy ang kasunduang ito sa mga lahi niya magpakailanman. 
+Sumagot ang Dios, "Ang totoo ay ito: Ang asawa mong si Sara ay manganganak ng lalaki at papangalanan mo siyang Isaac. Sa kanya ko ipagpapatuloy ang kasunduan ko sa iyo, at magpapatuloy ang kasunduang ito sa mga lahi niya magpakailanman. 
 
 
 
@@ -601,7 +601,7 @@ Sumagot ang Dios, "Ang totoo ay ito: Ang asawa mong si Sara ay manganganak ng la
 
 
 
-Tungkol naman kay Ishmael, narinig ko ang kahilingan mo para sa kanya. Pagpapalain ko siya at bibigyan ng maraming lahi. Magiging ama siya ng 12 pinuno, at ang mga lahi niya ay magiging mga tanyag na tao.[^d] 
+Tungkol naman kay Ishmael, narinig ko ang kahilingan mo para sa kanya. Pagpapalain ko siya at bibigyan ng maraming lahi. Magiging ama siya ng 12 pinuno, at ang mga lahi niya ay magiging mga tanyag na tao. 
 
 
 

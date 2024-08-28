@@ -205,7 +205,7 @@ Huwag na kayong pumunta sa Betel, sa Gilgal, o sa Beersheba, <i class="trans-cha
 
 
 
-Dumulog kayo sa akin, kayong mga lahi ni Jose, at mabubuhay kayo. Dahil kung hindi, lulusubin ko kayo na parang apoy. Kaya malilipol ang Betel at walang makakapigil nito.[^a] 
+Dumulog kayo sa akin, kayong mga lahi ni Jose, at mabubuhay kayo. Dahil kung hindi, lulusubin ko kayo na parang apoy. Kaya malilipol ang Betel at walang makakapigil nito. 
 
 
 
@@ -238,7 +238,7 @@ Dumulog kayo sa akin, kayong mga lahi ni Jose, at mabubuhay kayo. Dahil kung hin
 
 
 
-<i class="trans-change">Nakakaawa kayo!_ Ang katarungan ay ginagawa ninyong marumi[^b] at pinawawalang-halaga ninyo ang katuwiran!" 
+<i class="trans-change">Nakakaawa kayo!_ Ang katarungan ay ginagawa ninyong marumi at pinawawalang-halaga ninyo ang katuwiran!" 
 
 
 
@@ -304,7 +304,7 @@ Ang Dios ang lumikha ng <i class="trans-change">grupo ng mga bituing tinatawag n
 
 
 
-Agad niyang winawasak ang matitibay na napapaderang bayan,[^c] at dinudurog ang napapaderang lungsod. 
+Agad niyang winawasak ang matitibay na napapaderang bayan, at dinudurog ang napapaderang lungsod. 
 
 
 
@@ -370,7 +370,7 @@ Kayong mga taga-Israel, napopoot kayo sa humahatol nang tama at nagsasabi ng tot
 
 
 
-Inaapi ninyo ang mga mahihirap at pinipilit na magbigay sa inyo ng kanilang ani.[^d] Kaya hindi kayo makakatira sa ipinatayo ninyong mansyon, at hindi kayo makakainom ng katas mula sa itinanim ninyong mga ubas. 
+Inaapi ninyo ang mga mahihirap at pinipilit na magbigay sa inyo ng kanilang ani. Kaya hindi kayo makakatira sa ipinatayo ninyong mansyon, at hindi kayo makakainom ng katas mula sa itinanim ninyong mga ubas. 
 
 
 
@@ -403,7 +403,7 @@ Inaapi ninyo ang mga mahihirap at pinipilit na magbigay sa inyo ng kanilang ani.
 
 
 
-Sapagkat alam ko[^e] kung gaano karami at kabigat ang inyong mga kasalanan. Inuusig ninyo ang mga taong walang kasalanan at kinikikilan pa ninyo. Hindi ninyo binibigyan ng hustisya sa hukuman ang mga mahihirap. 
+Sapagkat alam ko kung gaano karami at kabigat ang inyong mga kasalanan. Inuusig ninyo ang mga taong walang kasalanan at kinikikilan pa ninyo. Hindi ninyo binibigyan ng hustisya sa hukuman ang mga mahihirap. 
 
 
 
@@ -535,7 +535,7 @@ Kapootan ninyo ang masama at gawin ang mabuti, at pairalin ninyo ang hustisya sa
 
 
 
-Kaya ito ang sinasabi ng Panginoong Dios na Makapangyarihan: "<i class="trans-change">Darating ang araw na_ maririnig ang mga iyakan at panaghoy sa mga plasa at mga lansangan. Ipapatawag ang mga magsasaka para umiyak <i class="trans-change">sa mga patay_[^f] na kasama ng mga taong inupahan para umiyak. 
+Kaya ito ang sinasabi ng Panginoong Dios na Makapangyarihan: "<i class="trans-change">Darating ang araw na_ maririnig ang mga iyakan at panaghoy sa mga plasa at mga lansangan. Ipapatawag ang mga magsasaka para umiyak <i class="trans-change">sa mga patay_ na kasama ng mga taong inupahan para umiyak. 
 
 
 
@@ -568,7 +568,7 @@ Kaya ito ang sinasabi ng Panginoong Dios na Makapangyarihan: "<i class="trans-ch
 
 
 
-May mga iyakan din sa inyong mga taniman ng ubas.[^g] <i class="trans-change">Mangyayari ito_ dahil parurusahan ko kayo. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito." ## Ang Araw ng Paghatol ng Dios 
+May mga iyakan din sa inyong mga taniman ng ubas. <i class="trans-change">Mangyayari ito_ dahil parurusahan ko kayo. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito." ## Ang Araw ng Paghatol ng Dios 
 
 
 

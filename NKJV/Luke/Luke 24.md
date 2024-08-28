@@ -9,7 +9,7 @@ up: ['Luke']
 
 
 ###### 1 
-Now on the first _day_ of the week, very early in the morning, they, [^a]and certain _other women_ with them, came to the tomb bringing the spices which they had prepared. 
+Now on the first _day_ of the week, very early in the morning, they, and certain _other women_ with them, came to the tomb bringing the spices which they had prepared. 
 
 ###### 2 
 But they found the stone rolled away from the tomb. 
@@ -18,7 +18,7 @@ But they found the stone rolled away from the tomb.
 Then they went in and did not find the body of the Lord Jesus. 
 
 ###### 4 
-And it happened, as they were [^b]greatly perplexed about this, that behold, two men stood by them in shining garments. 
+And it happened, as they were greatly perplexed about this, that behold, two men stood by them in shining garments. 
 
 ###### 5 
 Then, as they were afraid and bowed _their_ faces to the earth, they said to them, "Why do you seek the living among the dead? 
@@ -39,13 +39,13 @@ Then they returned from the tomb and told all these things to the eleven and to 
 It was Mary Magdalene, Joanna, Mary _the mother_ of James, and the other _women_ with them, who told these things to the apostles. 
 
 ###### 11 
-And their words seemed to them like [^c]idle tales, and they did not believe them. 
+And their words seemed to them like idle tales, and they did not believe them. 
 
 ###### 12 
-But Peter arose and ran to the tomb; and stooping down, he saw the linen cloths [^d]lying by themselves; and he departed, marveling to himself at what had happened. ## The Road to Emmaus 
+But Peter arose and ran to the tomb; and stooping down, he saw the linen cloths lying by themselves; and he departed, marveling to himself at what had happened. ## The Road to Emmaus 
 
 ###### 13 
-Now behold, two of them were traveling that same day to a village called Emmaus, which was [^e]seven miles from Jerusalem. 
+Now behold, two of them were traveling that same day to a village called Emmaus, which was seven miles from Jerusalem. 
 
 ###### 14 
 And they talked together of all these things which had happened. 
@@ -57,7 +57,7 @@ So it was, while they conversed and reasoned, that Jesus Himself drew near and w
 But their eyes were restrained, so that they did not know Him. 
 
 ###### 17 
-And He said to them, "What kind of conversation _is_ this that you have with one another as you [^f]walk and are sad?" 
+And He said to them, "What kind of conversation _is_ this that you have with one another as you walk and are sad?" 
 
 ###### 18 
 Then the one whose name was Cleopas answered and said to Him, "Are You the only stranger in Jerusalem, and have You not known the things which happened there in these days?" 
@@ -87,10 +87,10 @@ Then He said to them, "O foolish ones, and slow of heart to believe in all that 
 Ought not the Christ to have suffered these things and to enter into His glory?" 
 
 ###### 27 
-And beginning at Moses and all the Prophets, He [^g]expounded to them in all the Scriptures the things concerning Himself. ## The Disciples' Eyes Opened 
+And beginning at Moses and all the Prophets, He expounded to them in all the Scriptures the things concerning Himself. ## The Disciples' Eyes Opened 
 
 ###### 28 
-Then they drew near to the village where they were going, and He [^h]indicated that He would have gone farther. 
+Then they drew near to the village where they were going, and He indicated that He would have gone farther. 
 
 ###### 29 
 But they constrained Him, saying, "Abide with us, for it is toward evening, and the day is far spent." And He went in to stay with them. 
@@ -111,7 +111,7 @@ So they rose up that very hour and returned to Jerusalem, and found the eleven a
 saying, "The Lord is risen indeed, and has appeared to Simon!" 
 
 ###### 35 
-And they told about the things _that had happened_ on the road, and how He was [^i]known to them in the breaking of bread. ## Jesus Appears to His Disciples 
+And they told about the things _that had happened_ on the road, and how He was known to them in the breaking of bread. ## Jesus Appears to His Disciples 
 
 ###### 36 
 Now as they said these things, Jesus Himself stood in the midst of them, and said to them, "Peace to you." 
@@ -126,13 +126,13 @@ And He said to them, "Why are you troubled? And why do doubts arise in your hear
 Behold My hands and My feet, that it is I Myself. Handle Me and see, for a spirit does not have flesh and bones as you see I have." 
 
 ###### 40 
-[^j]When He had said this, He showed them His hands and His feet. 
+When He had said this, He showed them His hands and His feet. 
 
 ###### 41 
 But while they still did not believe for joy, and marveled, He said to them, "Have you any food here?" 
 
 ###### 42 
-So they gave Him a piece of a broiled fish [^k]and some honeycomb. 
+So they gave Him a piece of a broiled fish and some honeycomb. 
 
 ###### 43 
 And He took _it_ and ate in their presence. ## The Scriptures Opened 
@@ -144,7 +144,7 @@ Then He said to them, "These _are_ the words which I spoke to you while I was st
 And He opened their understanding, that they might comprehend the Scriptures. 
 
 ###### 46 
-Then He said to them, "Thus it is written, [^l]and thus it was necessary for the Christ to suffer and to rise from the dead the third day, 
+Then He said to them, "Thus it is written, and thus it was necessary for the Christ to suffer and to rise from the dead the third day, 
 
 ###### 47 
 and that repentance and remission of sins should be preached in His name to all nations, beginning at Jerusalem. 
@@ -153,7 +153,7 @@ and that repentance and remission of sins should be preached in His name to all 
 And you are witnesses of these things. 
 
 ###### 49 
-Behold, I send the Promise of My Father upon you; but tarry in the city [^m]of Jerusalem until you are endued with power from on high." ## The Ascension 
+Behold, I send the Promise of My Father upon you; but tarry in the city of Jerusalem until you are endued with power from on high." ## The Ascension 
 
 ###### 50 
 And He led them out as far as Bethany, and He lifted up His hands and blessed them. 
@@ -165,4 +165,4 @@ Now it came to pass, while He blessed them, that He was parted from them and car
 And they worshiped Him, and returned to Jerusalem with great joy, 
 
 ###### 53 
-and were continually in the temple [^n]praising and blessing God. [^o]Amen.
+and were continually in the temple praising and blessing God. Amen.

@@ -1261,7 +1261,7 @@ Sasabihin ko sa Dios ang lahat ng aking ginawa. Haharap ako sa kanya katulad ng 
 
 
 
-"Kung inaabuso ko ang aking lupain, o kinamkam ko ito sa iba,[^a] 
+"Kung inaabuso ko ang aking lupain, o kinamkam ko ito sa iba, 
 
 
 

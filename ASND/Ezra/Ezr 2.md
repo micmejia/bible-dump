@@ -205,7 +205,7 @@ Dahil nga hindi nila makita ang talaan ng mga ninuno nila, hindi sila tinanggap 
 
 
 
-Pinagbawalan sila ng gobernador <i class="trans-change">ng Juda_ na kumain ng mga pagkaing inihandog sa Dios habang walang pari na sasangguni <i class="trans-change">sa Panginoon tungkol sa pagkapari nila_ sa pamamagitan ng "Urim" at "Thummim".[^b] <sup class="versenum">64-67</sup>Ang kabuuang bilang ng mga bumalik mula sa pagkabihag ay 42,360, maliban sa 7,337 na mga alipin nila, at 200 lalaki at babaeng mang-aawit. May dala silang 736 na mga kabayo, 245 mola,[^c] 435 kamelyo, at 6,720 asno. 
+Pinagbawalan sila ng gobernador <i class="trans-change">ng Juda_ na kumain ng mga pagkaing inihandog sa Dios habang walang pari na sasangguni <i class="trans-change">sa Panginoon tungkol sa pagkapari nila_ sa pamamagitan ng "Urim" at "Thummim". <sup class="versenum">64-67</sup>Ang kabuuang bilang ng mga bumalik mula sa pagkabihag ay 42,360, maliban sa 7,337 na mga alipin nila, at 200 lalaki at babaeng mang-aawit. May dala silang 736 na mga kabayo, 245 mola, 435 kamelyo, at 6,720 asno. 
 
 
 

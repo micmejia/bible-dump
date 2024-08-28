@@ -337,7 +337,7 @@ Sinabi ni Eliseo sa hari ng Israel, "Mag-ingat kayo! Huwag kayong dumaan sa luga
 
 
 
-Kaya nag-utos ang hari ng Israel na sabihan ang mga nakatira sa lugar na sinasabi ni Eliseo na maging handa sila. Palaging nagbibigay ng babala si Eliseo sa hari.[^a] 
+Kaya nag-utos ang hari ng Israel na sabihan ang mga nakatira sa lugar na sinasabi ni Eliseo na maging handa sila. Palaging nagbibigay ng babala si Eliseo sa hari. 
 
 
 
@@ -601,7 +601,7 @@ Nanalangin si Eliseo, "Panginoon, buksan po ninyo ang mga mata ng katulong ko pa
 
 
 
-Habang papunta ang mga kaaway kay Eliseo, nanalangin siya, "Panginoon, bulagin[^b] po ninyo ang mga taong ito." Kaya binulag sila ng Panginoon ayon sa hiling ni Eliseo. 
+Habang papunta ang mga kaaway kay Eliseo, nanalangin siya, "Panginoon, bulagin po ninyo ang mga taong ito." Kaya binulag sila ng Panginoon ayon sa hiling ni Eliseo. 
 
 
 
@@ -733,7 +733,7 @@ Pagkakita ng hari ng Israel sa kanila, tinanong niya si Eliseo, "Papatayin ko po
 
 
 
-Sumagot si Eliseo, "Huwag mo silang patayin. Pinapatay ba natin ang mga bihag sa labanan? Bigyan mo sila ng makakain at maiinom at pabalikin mo sila sa kanilang hari."[^c] 
+Sumagot si Eliseo, "Huwag mo silang patayin. Pinapatay ba natin ang mga bihag sa labanan? Bigyan mo sila ng makakain at maiinom at pabalikin mo sila sa kanilang hari." 
 
 
 
@@ -832,7 +832,7 @@ Kinalaunan, tinipon ni Haring Ben Hadad ng Aram ang kanyang buong hukbo, at nilu
 
 
 
-Dahil dito, nagkaroon ng malaking taggutom sa lungsod, hanggang <i class="trans-change">sa nagsitaasan ang mga bilihin_. Ang halaga ng ulo ng asno ay 80 pirasong pilak at ang isang gatang na dumi ng kalapati[^d] ay limang pirasong pilak. 
+Dahil dito, nagkaroon ng malaking taggutom sa lungsod, hanggang <i class="trans-change">sa nagsitaasan ang mga bilihin_. Ang halaga ng ulo ng asno ay 80 pirasong pilak at ang isang gatang na dumi ng kalapati ay limang pirasong pilak. 
 
 
 
@@ -865,7 +865,7 @@ Dahil dito, nagkaroon ng malaking taggutom sa lungsod, hanggang <i class="trans-
 
 
 
-Isang araw, habang dumaraan ang hari ng Israel sa itaas ng pader,[^e] may isang babae na sumigaw sa kanya, "Tulungan po ninyo ako, Mahal na Hari!" 
+Isang araw, habang dumaraan ang hari ng Israel sa itaas ng pader, may isang babae na sumigaw sa kanya, "Tulungan po ninyo ako, Mahal na Hari!" 
 
 
 

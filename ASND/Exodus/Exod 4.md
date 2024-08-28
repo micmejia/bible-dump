@@ -73,7 +73,7 @@ Nagtanong si Moises, "Paano po kung hindi maniwala sa akin ang mga Israelita o m
 
 
 
-Sinabi sa kanya ng Panginoon, "Ano iyang hawak mo?" Sumagot si Moises, "Baston[^a] po." 
+Sinabi sa kanya ng Panginoon, "Ano iyang hawak mo?" Sumagot si Moises, "Baston po." 
 
 
 
@@ -205,7 +205,7 @@ Sinabi ng Panginoon, "Gawin mo ang himalang ito para maniwala sila na ako ang Pa
 
 
 
-Sinabi pa ng Panginoon, "Ilagay mo ang kamay mo sa loob ng damit mo." Sinunod ito ni Moises, at nang ilabas niya ang kanyang kamay, namuti ito dahil tinubuan ng isang malubhang sakit sa balat.[^b] 
+Sinabi pa ng Panginoon, "Ilagay mo ang kamay mo sa loob ng damit mo." Sinunod ito ni Moises, at nang ilabas niya ang kanyang kamay, namuti ito dahil tinubuan ng isang malubhang sakit sa balat. 
 
 
 

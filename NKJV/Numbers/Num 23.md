@@ -28,7 +28,7 @@ Then the Lord put a word in Balaam's mouth, and said, "Return to Balak, and thus
 So he returned to him, and there he was, standing by his burnt offering, he and all the princes of Moab. 
 
 ###### 7 
-And he took up his [^a]oracle and said: "Balak the king of Moab has brought me from Aram, From the mountains of the east. 'Come, curse Jacob for me, And come, denounce Israel!' 
+And he took up his oracle and said: "Balak the king of Moab has brought me from Aram, From the mountains of the east. 'Come, curse Jacob for me, And come, denounce Israel!' 
 
 ###### 8 
 "How shall I curse whom God has not cursed? And how shall I denounce _whom_ the Lord has not denounced? 
@@ -37,7 +37,7 @@ And he took up his [^a]oracle and said: "Balak the king of Moab has brought me f
 For from the top of the rocks I see him, And from the hills I behold him; There! A people dwelling alone, Not reckoning itself among the nations. 
 
 ###### 10 
-"Who can count the [^b]dust of Jacob, Or number one-fourth of Israel? Let me die the death of the righteous, And let my end be like his!" 
+"Who can count the dust of Jacob, Or number one-fourth of Israel? Let me die the death of the righteous, And let my end be like his!" 
 
 ###### 11 
 Then Balak said to Balaam, "What have you done to me? I took you to curse my enemies, and look, you have blessed _them_ bountifully!" 
@@ -52,7 +52,7 @@ Then Balak said to him, "Please come with me to another place from which you may
 So he brought him to the field of Zophim, to the top of Pisgah, and built seven altars, and offered a bull and a ram on _each_ altar. 
 
 ###### 15 
-And he said to Balak, "Stand here by your burnt offering while I [^c]meet _the Lord_ over there." 
+And he said to Balak, "Stand here by your burnt offering while I meet _the Lord_ over there." 
 
 ###### 16 
 Then the Lord met Balaam, and put a word in his mouth, and said, "Go back to Balak, and thus you shall speak." 
@@ -70,13 +70,13 @@ Then he took up his oracle and said: "Rise up, Balak, and hear! Listen to me, so
 Behold, I have received _a command_ to bless; He has blessed, and I cannot reverse it. 
 
 ###### 21 
-"He has not observed iniquity in Jacob, Nor has He seen [^d]wickedness in Israel. The Lord his God _is_ with him, And the shout of a King _is_ among them. 
+"He has not observed iniquity in Jacob, Nor has He seen wickedness in Israel. The Lord his God _is_ with him, And the shout of a King _is_ among them. 
 
 ###### 22 
 God brings them out of Egypt; He has strength like a wild ox. 
 
 ###### 23 
-"For _there is_ no [^e]sorcery against Jacob, Nor any [^f]divination against Israel. It now must be said of Jacob And of Israel, 'Oh, what God has done!' 
+"For _there is_ no sorcery against Jacob, Nor any divination against Israel. It now must be said of Jacob And of Israel, 'Oh, what God has done!' 
 
 ###### 24 
 Look, a people rises like a lioness, And lifts itself up like a lion; It shall not lie down until it devours the prey, And drinks the blood of the slain." 
@@ -91,7 +91,7 @@ So Balaam answered and said to Balak, "Did I not tell you, saying, 'All that the
 Then Balak said to Balaam, "Please come, I will take you to another place; perhaps it will please God that you may curse them for me from there." 
 
 ###### 28 
-So Balak took Balaam to the top of Peor, that overlooks the [^g]wasteland. 
+So Balak took Balaam to the top of Peor, that overlooks the wasteland. 
 
 ###### 29 
 Then Balaam said to Balak, "Build for me here seven altars, and prepare for me here seven bulls and seven rams." 

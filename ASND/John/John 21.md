@@ -171,7 +171,7 @@ Nang madaling-araw na, may nakita silang nakatayo sa dalampasigan. Pero hindi ni
 
 
 
-Tinawag sila ni Jesus, "Mga kaibigan,[^a] may huli ba kayo?" Sumagot sila, "Wala po." 
+Tinawag sila ni Jesus, "Mga kaibigan, may huli ba kayo?" Sumagot sila, "Wala po." 
 
 
 

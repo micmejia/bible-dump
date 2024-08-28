@@ -19,7 +19,7 @@ And it came to pass in the twelfth year, in the twelfth _month,_ on the first _d
 'Thus says the Lord God: "I will therefore spread My net over you with a company of many people, And they will draw you up in My net. 
 
 ###### 4 
-Then I will leave you on the land; I will cast you out on the open fields, And cause to [^a]settle on you all the birds of the heavens. And with you I will fill the beasts of the whole earth. 
+Then I will leave you on the land; I will cast you out on the open fields, And cause to settle on you all the birds of the heavens. And with you I will fill the beasts of the whole earth. 
 
 ###### 5 
 I will lay your flesh on the mountains, And fill the valleys with your carcass. 
@@ -31,7 +31,7 @@ I will lay your flesh on the mountains, And fill the valleys with your carcass.
 When _I_ put out your light, I will cover the heavens, and make its stars dark; I will cover the sun with a cloud, And the moon shall not give her light. 
 
 ###### 8 
-All the [^b]bright lights of the heavens I will make dark over you, And bring darkness upon your land," Says the Lord God. 
+All the bright lights of the heavens I will make dark over you, And bring darkness upon your land," Says the Lord God. 
 
 ###### 9 
 'I will also trouble the hearts of many peoples, when I bring your destruction among the nations, into the countries which you have not known. 
@@ -49,7 +49,7 @@ By the swords of the mighty warriors, all of them the most terrible of the natio
 Also I will destroy all its animals From beside its great waters; The foot of man shall muddy them no more, Nor shall the hooves of animals muddy them. 
 
 ###### 14 
-Then I will make their waters [^c]clear, And make their rivers run like oil," Says the Lord God. 
+Then I will make their waters clear, And make their rivers run like oil," Says the Lord God. 
 
 ###### 15 
 "When I make the land of Egypt desolate, And the country is destitute of all that once filled it, When I strike all who dwell in it, Then they shall know that I _am_ the Lord. 

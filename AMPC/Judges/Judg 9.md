@@ -952,7 +952,7 @@ And Abimelech and the company with him rushed forward and stood in the entrance 
 
 
 
-And Abimelech fought against the city all that day. He took the city and slew the people who were in it. He demolished the city and [^a]sowed it with salt. 
+And Abimelech fought against the city all that day. He took the city and slew the people who were in it. He demolished the city and sowed it with salt. 
 
 
 

@@ -73,7 +73,7 @@ Pagkatapos ng 20 taong pagpapatayo ni Solomon ng templo ng Panginoon at ng kanya
 
 
 
-muli niyang ipinatayo ang mga bayan na ibinigay sa kanya ni Hiram[^a] at pinatirhan sa mga Israelita. 
+muli niyang ipinatayo ang mga bayan na ibinigay sa kanya ni Hiram at pinatirhan sa mga Israelita. 
 
 
 
@@ -304,7 +304,7 @@ Ang 250 sa kanilaʼy ginawa ni Solomon na mga opisyal na namamahala ng mga gumag
 
 
 
-Nang matapos na ang palasyo na ipinagawa ni Solomon para sa kanyang asawa na anak ng Faraon,[^b] inilipat niya ang kanyang asawa roon mula sa Lungsod ni David. Sapagkat sinabi niya, "Hindi pwedeng tumira ang asawa ko sa palasyo ni Haring David, dahil banal ang lugar na iyon dahil naroon dati ang Kahon ng Panginoon." 
+Nang matapos na ang palasyo na ipinagawa ni Solomon para sa kanyang asawa na anak ng Faraon, inilipat niya ang kanyang asawa roon mula sa Lungsod ni David. Sapagkat sinabi niya, "Hindi pwedeng tumira ang asawa ko sa palasyo ni Haring David, dahil banal ang lugar na iyon dahil naroon dati ang Kahon ng Panginoon." 
 
 
 
@@ -370,7 +370,7 @@ Pagkatapos, naghandog si Solomon ng mga handog na sinusunog para sa Panginoon sa
 
 
 
-Tinupad niya ang utos ni Moises na maghandog ayon sa nararapat na ihandog araw-araw at sa panahon ng Araw ng Pamamahinga, Pista ng Pagsisimula ng Buwan,[^c] at ng tatlong pista na ipinagdiriwang taun-taon: ang Pista ng Tinapay na Walang Pampaalsa, Pista ng Pag-aani, at Pista ng Pagtatayo ng mga Kubol. 
+Tinupad niya ang utos ni Moises na maghandog ayon sa nararapat na ihandog araw-araw at sa panahon ng Araw ng Pamamahinga, Pista ng Pagsisimula ng Buwan, at ng tatlong pista na ipinagdiriwang taun-taon: ang Pista ng Tinapay na Walang Pampaalsa, Pista ng Pag-aani, at Pista ng Pagtatayo ng mga Kubol. 
 
 
 

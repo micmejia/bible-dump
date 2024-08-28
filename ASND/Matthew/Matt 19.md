@@ -139,7 +139,7 @@ May mga Pariseong pumunta sa kanya para hanapan siya ng butas. Kaya nagtanong si
 
 
 
-Sumagot si Jesus, "Hindi ba ninyo nabasa sa Kasulatan na sa simula pa lang, nang likhain ng Dios ang mundo, 'ginawa niya ang tao na lalaki at babae?'[^a] 
+Sumagot si Jesus, "Hindi ba ninyo nabasa sa Kasulatan na sa simula pa lang, nang likhain ng Dios ang mundo, 'ginawa niya ang tao na lalaki at babae?' 
 
 
 
@@ -172,7 +172,7 @@ Sumagot si Jesus, "Hindi ba ninyo nabasa sa Kasulatan na sa simula pa lang, nang
 
 
 
-'Dahil dito, iiwan ng lalaki ang kanyang ama at ina, at magsasama sila ng kanyang asawa. At silang dalawa ay magiging isa.'[^b] 
+'Dahil dito, iiwan ng lalaki ang kanyang ama at ina, at magsasama sila ng kanyang asawa. At silang dalawa ay magiging isa.' 
 
 
 
@@ -238,7 +238,7 @@ Hindi na sila dalawa kundi isa na lang. Kaya hindi dapat paghiwalayin ng tao ang
 
 
 
-Nagtanong <i class="trans-change">uli_ ang mga Pariseo, "Pero bakit sinabi ni Moises na pwedeng hiwalayan ng lalaki ang asawa niya, bastaʼt bigyan niya ito ng kasulatan ng paghihiwalay?"[^c] 
+Nagtanong <i class="trans-change">uli_ ang mga Pariseo, "Pero bakit sinabi ni Moises na pwedeng hiwalayan ng lalaki ang asawa niya, bastaʼt bigyan niya ito ng kasulatan ng paghihiwalay?" 
 
 
 
@@ -634,7 +634,7 @@ Sumagot si Jesus, "Bakit itinatanong mo sa akin kung ano ang mabuti? Isa lang an
 
 
 
-igalang mo ang iyong ama at ina,[^d] at mahalin mo ang kapwa mo tulad ng pagmamahal mo sa iyong sarili."[^e] 
+igalang mo ang iyong ama at ina, at mahalin mo ang kapwa mo tulad ng pagmamahal mo sa iyong sarili." 
 
 
 
@@ -931,7 +931,7 @@ Nagsalita si Pedro, "Paano naman po kami? Iniwan namin ang lahat para sumunod sa
 
 
 
-Sumagot si Jesus, "Sinasabi ko sa inyo ang totoo, darating ang araw na babaguhin ng Dios ang mundo, at <i class="trans-change">ako na_ Anak ng Tao ay uupo sa aking trono. At kayong mga tagasunod ko ay uupo rin sa 12 trono upang husgahan[^f] ang 12 lahi ng Israel. 
+Sumagot si Jesus, "Sinasabi ko sa inyo ang totoo, darating ang araw na babaguhin ng Dios ang mundo, at <i class="trans-change">ako na_ Anak ng Tao ay uupo sa aking trono. At kayong mga tagasunod ko ay uupo rin sa 12 trono upang husgahan ang 12 lahi ng Israel. 
 
 
 

@@ -132,7 +132,7 @@ Who is it that is victorious over [that conquers] the world but he who believes 
 
 
 
-This is He Who came by (with) water and blood [[^a]His baptism and His death], Jesus Christ (the Messiah)--not by (in) the water only, but by (in) the water and the blood. And it is the [Holy] Spirit Who bears witness, because the [Holy] Spirit is the Truth. 
+This is He Who came by (with) water and blood [His baptism and His death], Jesus Christ (the Messiah)--not by (in) the water only, but by (in) the water and the blood. And it is the [Holy] Spirit Who bears witness, because the [Holy] Spirit is the Truth. 
 
 
 
@@ -153,7 +153,7 @@ This is He Who came by (with) water and blood [[^a]His baptism and His death], J
 
 
 
-So there are three witnesses [^b]_in heaven: the Father, the Word and the Holy Spirit, and these three are One;_ 
+So there are three witnesses _in heaven: the Father, the Word and the Holy Spirit, and these three are One;_ 
 
 
 
@@ -279,7 +279,7 @@ He who possesses the Son has that life; he who does not possess the Son of God d
 
 
 
-I write this to you who believe in (adhere to, trust in, and rely on) the name of the Son of God [in [^c]the peculiar services and blessings conferred by Him on men], so that you may know [with settled and absolute knowledge] that you [already] have life, [^d]yes, eternal life. 
+I write this to you who believe in (adhere to, trust in, and rely on) the name of the Son of God [in the peculiar services and blessings conferred by Him on men], so that you may know [with settled and absolute knowledge] that you [already] have life, yes, eternal life. 
 
 
 

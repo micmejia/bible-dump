@@ -106,7 +106,7 @@ Pagkatapos, kumuha ang kanyang ina ng 200 pilak at ibinigay sa platero. Ginamit 
 
 
 
-May sariling sambahan si Micas at nagpagawa siya ng mga dios-diosan at espesyal na damit[^a] <i class="trans-change">ng pari_. At ginawa niyang pari ang isa sa mga anak niyang lalaki. 
+May sariling sambahan si Micas at nagpagawa siya ng mga dios-diosan at espesyal na damit <i class="trans-change">ng pari_. At ginawa niyang pari ang isa sa mga anak niyang lalaki. 
 
 
 
@@ -172,7 +172,7 @@ Nang panahong iyon, walang hari sa Israel, kaya ang bawat isa ay malaya kung ano
 
 
 
-May isang binatilyong Levita[^b] na nakatira sa Betlehem na sakop ng Juda. 
+May isang binatilyong Levita na nakatira sa Betlehem na sakop ng Juda. 
 
 
 
@@ -238,7 +238,7 @@ Isang araw, umalis siya para maghanap ng matitirhan sa ibang lugar. Sa kanyang p
 
 
 
-Tinanong siya ni Micas, "Taga-saan ka?" Sumagot siya, "Taga-Betlehem po ako, na sakop ng Juda, at isa po akong Levita. Naghahanap po ako ng matitirhan." <sup class="versenum">10-11</sup>Sinabi ni Micas, "Dito ka na lang tumira kasama ko. Gagawin kitang tagapayo[^c] ko at pari. At bawat taon, bibigyan kita ng sampung pirasong pilak, bukod pa sa mga damit at pagkain na ibibigay ko sa iyo." Pumayag ang Levita sa sinabi ni Micas at itinuring siya ni Micas na isa sa kanyang mga anak. 
+Tinanong siya ni Micas, "Taga-saan ka?" Sumagot siya, "Taga-Betlehem po ako, na sakop ng Juda, at isa po akong Levita. Naghahanap po ako ng matitirhan." <sup class="versenum">10-11</sup>Sinabi ni Micas, "Dito ka na lang tumira kasama ko. Gagawin kitang tagapayo ko at pari. At bawat taon, bibigyan kita ng sampung pirasong pilak, bukod pa sa mga damit at pagkain na ibibigay ko sa iyo." Pumayag ang Levita sa sinabi ni Micas at itinuring siya ni Micas na isa sa kanyang mga anak. 
 
 
 

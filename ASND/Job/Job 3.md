@@ -271,7 +271,7 @@ Hindi na nga lang sana ako ipinanganak ng gabing iyon, at wala rin sanang kasaya
 
 
 
-Sumpain nawa ang gabing iyon ng mga manunumpa na alam kung paano pakilusin ang Leviatan.[^a] 
+Sumpain nawa ang gabing iyon ng mga manunumpa na alam kung paano pakilusin ang Leviatan. 
 
 
 
@@ -469,7 +469,7 @@ Kung namatay na sana ako noon, tahimik na sana ako ngayong natutulog at nagpapah
 
 
 
-kasama ng mga hari at mga pinuno ng mundo na nagtayo ng mga palasyo[^b] na giba na ngayon.[^c] 
+kasama ng mga hari at mga pinuno ng mundo na nagtayo ng mga palasyo na giba na ngayon. 
 
 
 

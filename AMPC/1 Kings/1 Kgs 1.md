@@ -48,7 +48,7 @@ And King David was old and advanced in years; they covered him with [bed]clothes
 
 
 
-So his servants [the [^a]physicians] said to him, Let there be sought for my lord the king a young virgin, and let her wait on and be useful to the king; let her lie in your bosom, that my lord the king may get warm. 
+So his servants [the physicians] said to him, Let there be sought for my lord the king a young virgin, and let her wait on and be useful to the king; let her lie in your bosom, that my lord the king may get warm. 
 
 
 
@@ -153,7 +153,7 @@ David his father had never in his life displeased him by asking, Why have you do
 
 
 
-He conferred with [^b]Joab son of Zeruiah [David's half sister] and with Abiathar the priest, and they followed Adonijah and helped him. 
+He conferred with Joab son of Zeruiah [David's half sister] and with Abiathar the priest, and they followed Adonijah and helped him. 
 
 
 

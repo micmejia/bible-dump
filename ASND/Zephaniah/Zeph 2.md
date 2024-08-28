@@ -73,7 +73,7 @@ next: ['Zeph 3']
 
 
 
-bago dumating ang itinakdang araw na kayoʼy palalayasin[^a] at ipapadpad na parang mga ipa. <i class="trans-change">Magsisi na kayo_ bago dumating ang araw ng pagbuhos ng Panginoon ng kanyang matinding galit. 
+bago dumating ang itinakdang araw na kayoʼy palalayasin at ipapadpad na parang mga ipa. <i class="trans-change">Magsisi na kayo_ bago dumating ang araw ng pagbuhos ng Panginoon ng kanyang matinding galit. 
 
 
 
@@ -172,7 +172,7 @@ Wala nang titira sa Gaza at Ashkelon. Ang <i class="trans-change">mga mamamayan 
 
 
 
-Nakakaawa kayong mga Filisteo[^b] na nakatira sa tabing-dagat. Ito ang sinasabi ng Panginoon laban sa inyo: "Kayong mga Filisteo sa Canaan, lilipulin ko kayo, at walang matitira sa inyo." 
+Nakakaawa kayong mga Filisteo na nakatira sa tabing-dagat. Ito ang sinasabi ng Panginoon laban sa inyo: "Kayong mga Filisteo sa Canaan, lilipulin ko kayo, at walang matitira sa inyo." 
 
 
 
@@ -337,7 +337,7 @@ Sisindakin sila ng Panginoon dahil lilipulin niya ang lahat ng mga dios-diosan s
 
 
 
-<i class="trans-change">Sinabi ng Panginoon,_ "Kayo ring mga taga-Etiopia[^c] ipapapatay ko kayo sa digmaan. 
+<i class="trans-change">Sinabi ng Panginoon,_ "Kayo ring mga taga-Etiopia ipapapatay ko kayo sa digmaan. 
 
 
 
@@ -370,7 +370,7 @@ Sisindakin sila ng Panginoon dahil lilipulin niya ang lahat ng mga dios-diosan s
 
 
 
-"Parurusahan ko rin ang Asiria na nasa hilaga. Magiging tulad ng ilang ang Nineve,[^d] tigang na parang disyerto. 
+"Parurusahan ko rin ang Asiria na nasa hilaga. Magiging tulad ng ilang ang Nineve, tigang na parang disyerto. 
 
 
 

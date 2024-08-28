@@ -175,7 +175,7 @@ He was closely associated with the proconsul, Sergius Paulus, who was an intelli
 
 
 
-But Elymas [^a]the wise man--for that is the translation of his name [[^b]which he had given himself]--opposed them, seeking to keep the proconsul from accepting the faith. 
+But Elymas the wise man--for that is the translation of his name [which he had given himself]--opposed them, seeking to keep the proconsul from accepting the faith. 
 
 
 
@@ -385,7 +385,7 @@ The God of this people Israel selected our forefathers and made this people grea
 
 
 
-And for about forty years [^c]_like a fatherly nurse_ He cared for them in the wilderness _and_ endured their behavior. 
+And for about forty years _like a fatherly nurse_ He cared for them in the wilderness _and_ endured their behavior. 
 
 
 
@@ -532,7 +532,7 @@ Before His coming John had [already] preached baptism of repentance to all the p
 
 
 
-And as John was ending his course, he asked, What _or_ [^d]_who_ do you secretly think that I am? I am not He [the Christ. No], but note that after me One is coming, the sandals of Whose feet I am not worthy to untie! 
+And as John was ending his course, he asked, What _or_ _who_ do you secretly think that I am? I am not He [the Christ. No], but note that after me One is coming, the sandals of Whose feet I am not worthy to untie! 
 
 
 
@@ -700,7 +700,7 @@ So now we are bringing you the good news (Gospel) that what God promised to our 
 
 
 
-This He has [^e]completely fulfilled for us, their children, by raising up Jesus, as it is written in the second psalm, You are My Son; today I have begotten You [[^f]caused You to arise, to be born; [^g]formally shown You to be the Messiah by the resurrection]. 
+This He has completely fulfilled for us, their children, by raising up Jesus, as it is written in the second psalm, You are My Son; today I have begotten You [caused You to arise, to be born; formally shown You to be the Messiah by the resurrection]. 
 
 
 
@@ -763,7 +763,7 @@ For this reason He says also in another psalm, You will not allow Your Holy One 
 
 
 
-For David, after he had served God's will _and_ purpose _and_ counsel in his own generation, fell asleep [[^h]in death] and was buried among his forefathers, and he did see corruption _and_ undergo putrefaction _and_ dissolution [of the grave]. 
+For David, after he had served God's will _and_ purpose _and_ counsel in his own generation, fell asleep [in death] and was buried among his forefathers, and he did see corruption _and_ undergo putrefaction _and_ dissolution [of the grave]. 
 
 
 
@@ -826,7 +826,7 @@ So let it be clearly known _and_ understood by you, brethren, that through this 
 
 
 
-And that through Him everyone who believes [who [^i]acknowledges Jesus as his Savior and devotes himself to Him] is absolved (cleared and freed) from every charge from which he could not be justified _and_ freed by the Law of Moses _and_ given right standing with God. 
+And that through Him everyone who believes [who acknowledges Jesus as his Savior and devotes himself to Him] is absolved (cleared and freed) from every charge from which he could not be justified _and_ freed by the Law of Moses _and_ given right standing with God. 
 
 
 
@@ -868,7 +868,7 @@ Take care, therefore, lest there come upon you what is spoken in the prophets:
 
 
 
-Look, you scoffers _and_ scorners, and marvel and perish _and_ vanish away; for I am doing a deed in your days, a deed which you will never have confidence in _or_ believe, [even] if someone [[^j]clearly describing it in detail] declares it to you. 
+Look, you scoffers _and_ scorners, and marvel and perish _and_ vanish away; for I am doing a deed in your days, a deed which you will never have confidence in _or_ believe, [even] if someone [clearly describing it in detail] declares it to you. 
 
 
 
@@ -931,7 +931,7 @@ And when the congregation of the synagogue dispersed, many of the Jews and the d
 
 
 
-The next Sabbath almost the entire city gathered together to hear the Word of God [concerning [^k]the attainment through Christ of salvation in the kingdom of God]. 
+The next Sabbath almost the entire city gathered together to hear the Word of God [concerning the attainment through Christ of salvation in the kingdom of God]. 
 
 
 
@@ -973,7 +973,7 @@ But when the Jews saw the crowds, filled with envy _and_ jealousy they contradic
 
 
 
-And Paul and Barnabas spoke out plainly _and_ boldly, saying, It was necessary that God's message [concerning [^l]salvation through Christ] should be spoken to you first. But since you thrust it from you, you pass this judgment on yourselves that you are unworthy of eternal life _and_ out of your own mouth you will be judged. [Now] behold, we turn to the Gentiles (the heathen). 
+And Paul and Barnabas spoke out plainly _and_ boldly, saying, It was necessary that God's message [concerning salvation through Christ] should be spoken to you first. But since you thrust it from you, you pass this judgment on yourselves that you are unworthy of eternal life _and_ out of your own mouth you will be judged. [Now] behold, we turn to the Gentiles (the heathen). 
 
 
 

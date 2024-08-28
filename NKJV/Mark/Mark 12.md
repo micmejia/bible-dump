@@ -10,7 +10,7 @@ next: ['Mark 13']
 
 
 ###### 1 
-Then He began to speak to them in parables: "A man planted a vineyard and set a hedge around _it,_ dug _a place for_ the wine vat and built a tower. And he leased it to [^a]vinedressers and went into a far country. 
+Then He began to speak to them in parables: "A man planted a vineyard and set a hedge around _it,_ dug _a place for_ the wine vat and built a tower. And he leased it to vinedressers and went into a far country. 
 
 ###### 2 
 Now at vintage-time he sent a servant to the vinedressers, that he might receive some of the fruit of the vineyard from the vinedressers. 
@@ -19,7 +19,7 @@ Now at vintage-time he sent a servant to the vinedressers, that he might receive
 And they took _him_ and beat him and sent _him_ away empty-handed. 
 
 ###### 4 
-Again he sent them another servant, [^b]and at him they threw stones, wounded _him_ in the head, and sent _him_ away shamefully treated. 
+Again he sent them another servant, and at him they threw stones, wounded _him_ in the head, and sent _him_ away shamefully treated. 
 
 ###### 5 
 And again he sent another, and him they killed; and many others, beating some and killing some. 
@@ -28,7 +28,7 @@ And again he sent another, and him they killed; and many others, beating some an
 Therefore still having one son, his beloved, he also sent him to them last, saying, 'They will respect my son.' 
 
 ###### 7 
-But those [^c]vinedressers said among themselves, 'This is the heir. Come, let us kill him, and the inheritance will be ours.' 
+But those vinedressers said among themselves, 'This is the heir. Come, let us kill him, and the inheritance will be ours.' 
 
 ###### 8 
 So they took him and killed _him_ and cast _him_ out of the vineyard. 
@@ -49,7 +49,7 @@ And they sought to lay hands on Him, but feared the multitude, for they knew He 
 Then they sent to Him some of the Pharisees and the Herodians, to catch Him in _His_ words. 
 
 ###### 14 
-When they had come, they said to Him, "Teacher, we know that You are true, and [^d]care about no one; for You do not [^e]regard the person of men, but teach the way of God in truth. Is it lawful to pay taxes to Caesar, or not? 
+When they had come, they said to Him, "Teacher, we know that You are true, and care about no one; for You do not regard the person of men, but teach the way of God in truth. Is it lawful to pay taxes to Caesar, or not? 
 
 ###### 15 
 Shall we pay, or shall we not pay?" But He, knowing their hypocrisy, said to them, "Why do you test Me? Bring Me a denarius that I may see _it._" 
@@ -58,7 +58,7 @@ Shall we pay, or shall we not pay?" But He, knowing their hypocrisy, said to the
 So they brought _it._ And He said to them, "Whose image and inscription _is_ this?" They said to Him, "Caesar's." 
 
 ###### 17 
-And Jesus answered and said to them, [^f]"Render to Caesar the things that are Caesar's, and to God the things that are God's." And they marveled at Him. ## The Sadducees: What About the Resurrection? 
+And Jesus answered and said to them, "Render to Caesar the things that are Caesar's, and to God the things that are God's." And they marveled at Him. ## The Sadducees: What About the Resurrection? 
 
 ###### 18 
 Then _some_ Sadducees, who say there is no resurrection, came to Him; and they asked Him, saying: 
@@ -79,7 +79,7 @@ So the seven had her and left no offspring. Last of all the woman died also.
 Therefore, in the resurrection, when they rise, whose wife will she be? For all seven had her as wife." 
 
 ###### 24 
-Jesus answered and said to them, "Are you not therefore [^g]mistaken, because you do not know the Scriptures nor the power of God? 
+Jesus answered and said to them, "Are you not therefore mistaken, because you do not know the Scriptures nor the power of God? 
 
 ###### 25 
 For when they rise from the dead, they neither marry nor are given in marriage, but are like angels in heaven. 
@@ -88,16 +88,16 @@ For when they rise from the dead, they neither marry nor are given in marriage, 
 But concerning the dead, that they rise, have you not read in the book of Moses, in the _burning_ bush _passage,_ how God spoke to him, saying, 'I _am_ the God of Abraham, the God of Isaac, and the God of Jacob'? 
 
 ###### 27 
-He is not the God of the dead, but the God of the living. You are therefore greatly [^h]mistaken." ## The Scribes: Which Is the First Commandment of All? 
+He is not the God of the dead, but the God of the living. You are therefore greatly mistaken." ## The Scribes: Which Is the First Commandment of All? 
 
 ###### 28 
-Then one of the scribes came, and having heard them reasoning together, [^i]perceiving that He had answered them well, asked Him, "Which is the [^j]first commandment of all?" 
+Then one of the scribes came, and having heard them reasoning together, perceiving that He had answered them well, asked Him, "Which is the first commandment of all?" 
 
 ###### 29 
-Jesus answered him, "The [^k]first of all the commandments _is:_ 'Hear, O Israel, the Lord our God, the Lord is one. 
+Jesus answered him, "The first of all the commandments _is:_ 'Hear, O Israel, the Lord our God, the Lord is one. 
 
 ###### 30 
-And you shall love the Lord your God with all your heart, with all your soul, with all your mind, and with all your strength.' [^l]This _is_ the first commandment. 
+And you shall love the Lord your God with all your heart, with all your soul, with all your mind, and with all your strength.' This _is_ the first commandment. 
 
 ###### 31 
 And the second, like _it, is_ this: 'You shall love your neighbor as yourself.' There is no other commandment greater than these." 
@@ -106,7 +106,7 @@ And the second, like _it, is_ this: 'You shall love your neighbor as yourself.' 
 So the scribe said to Him, "Well _said,_ Teacher. You have spoken the truth, for there is one God, and there is no other but He. 
 
 ###### 33 
-And to love Him with all the heart, with all the understanding, [^m]with all the soul, and with all the strength, and to love one's neighbor as oneself, is more than all the whole burnt offerings and sacrifices." 
+And to love Him with all the heart, with all the understanding, with all the soul, and with all the strength, and to love one's neighbor as oneself, is more than all the whole burnt offerings and sacrifices." 
 
 ###### 34 
 Now when Jesus saw that he answered wisely, He said to him, "You are not far from the kingdom of God." But after that no one dared question Him. ## Jesus: How Can David Call His Descendant Lord? 
@@ -127,13 +127,13 @@ Then He said to them in His teaching, "Beware of the scribes, who desire to go a
 the best seats in the synagogues, and the best places at feasts, 
 
 ###### 40 
-who devour widows' houses, and [^n]for a pretense make long prayers. These will receive greater condemnation." ## The Widow's Two Mites 
+who devour widows' houses, and for a pretense make long prayers. These will receive greater condemnation." ## The Widow's Two Mites 
 
 ###### 41 
 Now Jesus sat opposite the treasury and saw how the people put money into the treasury. And many _who were_ rich put in much. 
 
 ###### 42 
-Then one poor widow came and threw in two [^o]mites, which make a [^p]quadrans. 
+Then one poor widow came and threw in two mites, which make a quadrans. 
 
 ###### 43 
 So He called His disciples to _Himself_ and said to them, "Assuredly, I say to you that this poor widow has put in more than all those who have given to the treasury; 

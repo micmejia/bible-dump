@@ -13,19 +13,19 @@ next: ['Rev 16']
 Then I saw another sign in heaven, great and marvelous: seven angels having the seven last plagues, for in them the wrath of God is complete. 
 
 ###### 2 
-And I saw _something_ like a sea of glass mingled with fire, and those who have the victory over the beast, over his image and [^a]over his mark _and_ over the number of his name, standing on the sea of glass, having harps of God. 
+And I saw _something_ like a sea of glass mingled with fire, and those who have the victory over the beast, over his image and over his mark _and_ over the number of his name, standing on the sea of glass, having harps of God. 
 
 ###### 3 
-They sing the song of Moses, the servant of God, and the song of the Lamb, saying: "Great and marvelous _are_ Your works, Lord God Almighty! Just and true _are_ Your ways, O King of the [^b]saints! 
+They sing the song of Moses, the servant of God, and the song of the Lamb, saying: "Great and marvelous _are_ Your works, Lord God Almighty! Just and true _are_ Your ways, O King of the saints! 
 
 ###### 4 
 Who shall not fear You, O Lord, and glorify Your name? For _You_ alone _are_ holy. For all nations shall come and worship before You, For Your judgments have been manifested." 
 
 ###### 5 
-After these things I looked, and [^c]behold, the [^d]temple of the tabernacle of the testimony in heaven was opened. 
+After these things I looked, and behold, the temple of the tabernacle of the testimony in heaven was opened. 
 
 ###### 6 
-And out of the [^e]temple came the seven angels having the seven plagues, clothed in pure bright linen, and having their chests girded with golden bands. 
+And out of the temple came the seven angels having the seven plagues, clothed in pure bright linen, and having their chests girded with golden bands. 
 
 ###### 7 
 Then one of the four living creatures gave to the seven angels seven golden bowls full of the wrath of God who lives forever and ever. 

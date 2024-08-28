@@ -72,7 +72,7 @@ next: ['Col 2']
 
 
 
-<i class="trans-change">Mahal kong_ mga taga-Colosas, pinabanal[^a] at matatapat na kapatid na nakay Cristo: Sumainyo nawa ang biyaya at kapayapaang galing sa Dios na ating Ama. ## Ang Panalangin ni Pablo para sa mga Taga-Colosas 
+<i class="trans-change">Mahal kong_ mga taga-Colosas, pinabanal at matatapat na kapatid na nakay Cristo: Sumainyo nawa ang biyaya at kapayapaang galing sa Dios na ating Ama. ## Ang Panalangin ni Pablo para sa mga Taga-Colosas 
 
 
 
@@ -600,7 +600,7 @@ Bago pa man likhain ang anumang bagay, naroon na si Cristo, at sa pamamagitan ni
 
 
 
-Si Cristo ang ulo ng iglesya na kanyang katawan. Siya ang pinagmulan[^b] nito, ang unang nabuhay sa mga patay, para maging pinakadakila siya sa lahat. 
+Si Cristo ang ulo ng iglesya na kanyang katawan. Siya ang pinagmulan nito, ang unang nabuhay sa mga patay, para maging pinakadakila siya sa lahat. 
 
 
 
@@ -666,7 +666,7 @@ Sapagkat minabuti ng Dios na <i class="trans-change">ang pagka-Dios niya ay_ man
 
 
 
-at sa pamamagitan ni Cristo, ipagkakasundo sa kanya ang lahat <i class="trans-change">ng nilikha_ sa langit at sa mundo. <i class="trans-change">Ginawa niya ito_ sa pamamagitan ng dugo[^c] ni Cristo sa krus. 
+at sa pamamagitan ni Cristo, ipagkakasundo sa kanya ang lahat <i class="trans-change">ng nilikha_ sa langit at sa mundo. <i class="trans-change">Ginawa niya ito_ sa pamamagitan ng dugo ni Cristo sa krus. 
 
 
 

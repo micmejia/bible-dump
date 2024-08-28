@@ -79,7 +79,7 @@ Bondservants, obey in all things your masters according to the flesh, not with e
 And whatever you do, do it heartily, as to the Lord and not to men, 
 
 ###### 24 
-knowing that from the Lord you will receive the reward of the inheritance; for[^a] you serve the Lord Christ. 
+knowing that from the Lord you will receive the reward of the inheritance; for you serve the Lord Christ. 
 
 ###### 25 
 But he who does wrong will be repaid for what he has done, and there is no partiality.

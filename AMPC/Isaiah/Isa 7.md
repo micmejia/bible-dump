@@ -364,7 +364,7 @@ For before the child shall know [enough] to refuse the evil and choose the good,
 
 
 
-The Lord shall bring upon you and upon your people and upon your father's house such days as have not come since the day that Ephraim [the ten northern tribes] departed from Judah--even the king of [^a]Assyria. 
+The Lord shall bring upon you and upon your people and upon your father's house such days as have not come since the day that Ephraim [the ten northern tribes] departed from Judah--even the king of Assyria. 
 
 
 

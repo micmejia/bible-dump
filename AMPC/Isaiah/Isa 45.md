@@ -154,7 +154,7 @@ That men may know from the east _and_ the rising of the sun and from the west _a
 
 
 
-I form the light and create darkness, I make peace [national well-being] and I create [physical] [^a]evil (calamity); I am the Lord, Who does all these things. 
+I form the light and create darkness, I make peace [national well-being] and I create [physical] evil (calamity); I am the Lord, Who does all these things. 
 
 
 

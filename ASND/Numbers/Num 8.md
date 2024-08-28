@@ -205,7 +205,7 @@ Sinabi ng Panginoon kay Moises,
 
 
 
-"Ibukod ang mga Levita sa ibang mga Israelita, at linisin sila.[^a] 
+"Ibukod ang mga Levita sa ibang mga Israelita, at linisin sila. 
 
 
 
@@ -370,7 +370,7 @@ Dalhin mo ang mga Levita sa aking presensya at ipapatong ng mga Israelita ang ka
 
 
 
-Si Aaron ang magtatalaga sa kanila sa aking presensya bilang espesyal na handog[^b] mula sa mga Israelita, para makapaglingkod sila sa akin. 
+Si Aaron ang magtatalaga sa kanila sa aking presensya bilang espesyal na handog mula sa mga Israelita, para makapaglingkod sila sa akin. 
 
 
 

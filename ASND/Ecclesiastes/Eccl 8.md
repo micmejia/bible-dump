@@ -106,7 +106,7 @@ Sundin mo ang utos ng hari, dahil ipinangako mo sa Dios na gagawin mo ito.
 
 
 
-Huwag mong pababayaan ang tungkulin mo sa hari, at huwag kang sasama sa mga nagpaplano ng masama laban sa kanya,[^a] dahil kayang gawin ng hari ang anumang gustuhin niya. 
+Huwag mong pababayaan ang tungkulin mo sa hari, at huwag kang sasama sa mga nagpaplano ng masama laban sa kanya, dahil kayang gawin ng hari ang anumang gustuhin niya. 
 
 
 
@@ -271,7 +271,7 @@ Dahil walang sinuman ang nakakaalam ng hinaharap, walang makapagsasabi kung ano 
 
 
 
-Kung paanong hindi mapipigilan ng tao ang hangin,[^b] hindi rin niya mapipigilan ang kanyang kamatayan. Tulad sa isang labanan, hindi siya makakaatras. At ang kasamaan niyaʼy hindi makapagliligtas sa kanya sa kamatayan. 
+Kung paanong hindi mapipigilan ng tao ang hangin, hindi rin niya mapipigilan ang kanyang kamatayan. Tulad sa isang labanan, hindi siya makakaatras. At ang kasamaan niyaʼy hindi makapagliligtas sa kanya sa kamatayan. 
 
 
 
@@ -337,7 +337,7 @@ Pinagmasdan ko ang mga bagay na nangyayari rito sa mundo, nakita kong ang mga ta
 
 
 
-Nakita ko ring ibinuburol ang masasama. Sila ang laging pumapasok sa banal na lungsod <i class="trans-change">ng Jerusalem_ at doon gumagawa ng kasamaan. At pinupuri[^c] pa sila ng mga taong taga-roon mismo sa lugar na ginagawan nila ng kasamaan. Wala itong kabuluhan. 
+Nakita ko ring ibinuburol ang masasama. Sila ang laging pumapasok sa banal na lungsod <i class="trans-change">ng Jerusalem_ at doon gumagawa ng kasamaan. At pinupuri pa sila ng mga taong taga-roon mismo sa lugar na ginagawan nila ng kasamaan. Wala itong kabuluhan. 
 
 
 

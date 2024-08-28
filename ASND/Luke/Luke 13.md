@@ -205,7 +205,7 @@ Hindi! Ngunit tinitiyak ko sa inyo: mapapahamak din kayo tulad nila kung hindi n
 
 
 
-Pagkatapos, ikinuwento ni Jesus ang talinghaga na ito: "May isang taong may tanim na puno ng igos[^a] sa ubasan niya. Pinuntahan niya ito upang tingnan kung may bunga, pero wala siyang nakita. 
+Pagkatapos, ikinuwento ni Jesus ang talinghaga na ito: "May isang taong may tanim na puno ng igos sa ubasan niya. Pinuntahan niya ito upang tingnan kung may bunga, pero wala siyang nakita. 
 
 
 
@@ -634,7 +634,7 @@ Nagpatuloy si Jesus sa pagtuturo niya, "Ano kaya ang katulad ng paghahari ng Dio
 
 
 
-Katulad ito ng isang buto ng mustasa[^b] na itinanim ng isang tao sa kanyang taniman. Tumubo iyon at lumaki na <i class="trans-change">parang_ punongkahoy <i class="trans-change">ang taas_, at pinamugaran ng mga ibon ang mga sanga nito." ## Ang Paghahalintulad sa Pampaalsa 
+Katulad ito ng isang buto ng mustasa na itinanim ng isang tao sa kanyang taniman. Tumubo iyon at lumaki na <i class="trans-change">parang_ punongkahoy <i class="trans-change">ang taas_, at pinamugaran ng mga ibon ang mga sanga nito." ## Ang Paghahalintulad sa Pampaalsa 
 
 
 
@@ -931,7 +931,7 @@ Sasagot naman siya, 'Hindi ko kayo kilala. Lumayo kayo sa akin, kayong lahat na 
 
 
 
-Iiyak kayo at magngangalit ang inyong ngipin[^c] kapag nakita ninyo sina Abraham, Isaac, Jacob at ang lahat ng propeta na napabilang sa paghahari ng Dios, habang kayo naman ay itinaboy sa labas.[^d] 
+Iiyak kayo at magngangalit ang inyong ngipin kapag nakita ninyo sina Abraham, Isaac, Jacob at ang lahat ng propeta na napabilang sa paghahari ng Dios, habang kayo naman ay itinaboy sa labas. 
 
 
 
@@ -964,7 +964,7 @@ Iiyak kayo at magngangalit ang inyong ngipin[^c] kapag nakita ninyo sina Abraham
 
 
 
-Makikita rin ninyo ang mga hindi Judio mula sa ibaʼt ibang dako[^e] ng mundo na kasalo sa handaan ng paghahari ng Dios. 
+Makikita rin ninyo ang mga hindi Judio mula sa ibaʼt ibang dako ng mundo na kasalo sa handaan ng paghahari ng Dios. 
 
 
 
@@ -1063,7 +1063,7 @@ Nang mga sandaling iyon, dumating ang ilang Pariseo at sinabi kay Jesus, "Umalis
 
 
 
-Sumagot si Jesus, "Sabihin ninyo sa asong-gubat[^f] na iyon na patuloy akong magpapalayas ng masasamang espiritu at magpapagaling ng may sakit ngayon at hanggang bukas, at sa ikatlong araw ay tatapusin ko na ang gawain ko. 
+Sumagot si Jesus, "Sabihin ninyo sa asong-gubat na iyon na patuloy akong magpapalayas ng masasamang espiritu at magpapagaling ng may sakit ngayon at hanggang bukas, at sa ikatlong araw ay tatapusin ko na ang gawain ko. 
 
 
 
@@ -1162,4 +1162,4 @@ Basta kailangang ipagpatuloy ko ang aking paglalakbay ngayon, bukas at sa makala
 
 
 
-Kaya bahala na kayo sa sarili ninyo. Sapagkat hindi nʼyo na ako makikita hanggang sa dumating ang panahon na sabihin ninyo, 'Pagpalain ang dumarating sa pangalan ng Panginoon.' "[^g]
+Kaya bahala na kayo sa sarili ninyo. Sapagkat hindi nʼyo na ako makikita hanggang sa dumating ang panahon na sabihin ninyo, 'Pagpalain ang dumarating sa pangalan ng Panginoon.' "

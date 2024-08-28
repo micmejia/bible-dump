@@ -259,7 +259,7 @@ Also I make a decree that whoever shall change _or_ infringe on this order, let 
 
 
 
-May the God Who has caused His [^a]Name to dwell there overthrow all kings and peoples who put forth their hands to alter this or to destroy this house of God in Jerusalem. I Darius make a decree; let it be executed speedily _and_ exactly. 
+May the God Who has caused His Name to dwell there overthrow all kings and peoples who put forth their hands to alter this or to destroy this house of God in Jerusalem. I Darius make a decree; let it be executed speedily _and_ exactly. 
 
 
 

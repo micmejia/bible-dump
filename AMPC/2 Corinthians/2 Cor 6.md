@@ -28,7 +28,7 @@ next: ['2 Cor 7']
 
 
 
-Laboring together [as God's fellow workers] with Him then, we beg of you not to receive the grace of God in vain [that [^a]merciful kindness by which God exerts His holy influence on souls and turns them to Christ, keeping and strengthening them--do not receive it to no purpose]. 
+Laboring together [as God's fellow workers] with Him then, we beg of you not to receive the grace of God in vain [that merciful kindness by which God exerts His holy influence on souls and turns them to Christ, keeping and strengthening them--do not receive it to no purpose]. 
 
 
 

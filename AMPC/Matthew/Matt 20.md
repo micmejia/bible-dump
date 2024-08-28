@@ -28,7 +28,7 @@ next: ['Matt 21']
 
 
 
-For the kingdom of heaven is like the owner of an estate who went out in the morning [^a]along with the dawn to hire workmen for his vineyard. 
+For the kingdom of heaven is like the owner of an estate who went out in the morning along with the dawn to hire workmen for his vineyard. 
 
 
 
@@ -154,7 +154,7 @@ And about the eleventh hour (five o'clock) he went out and found still others st
 
 
 
-They answered him, Because nobody has hired us. He told them, You go out into the vineyard also [^b]_and you will get whatever is just and fair_. 
+They answered him, Because nobody has hired us. He told them, You go out into the vineyard also _and you will get whatever is just and fair_. 
 
 
 
@@ -259,7 +259,7 @@ And when they received it, they grumbled at the owner of the estate,
 
 
 
-Saying, These [men] who came last worked no more than an hour, and yet you have made them rank with us who have borne the burden and the [^c]scorching heat of the day. 
+Saying, These [men] who came last worked no more than an hour, and yet you have made them rank with us who have borne the burden and the scorching heat of the day. 
 
 
 
@@ -343,7 +343,7 @@ Am I not permitted to do what I choose with what is mine? [Or do you begrudge my
 
 
 
-So those who [now] are last will be first [then], and those who [now] are first will be last [then]. [^d]_For many are called, but few chosen._ 
+So those who [now] are last will be first [then], and those who [now] are first will be last [then]. _For many are called, but few chosen._ 
 
 
 
@@ -469,7 +469,7 @@ And He asked her, What do you wish? She answered Him, Give orders that these two
 
 
 
-But Jesus replied, You do not realize what you are asking. Are you able to drink the cup that I am about to drink [^e]_and to be baptized with the baptism with which I am baptized_? They answered, We are able. 
+But Jesus replied, You do not realize what you are asking. Are you able to drink the cup that I am about to drink _and to be baptized with the baptism with which I am baptized_? They answered, We are able. 
 
 
 
@@ -490,7 +490,7 @@ But Jesus replied, You do not realize what you are asking. Are you able to drink
 
 
 
-He said to them, You will drink My cup, but seats at My right hand and at My left are not Mine to give, but they are for those for whom they have been [^f]ordained _and_ prepared by My Father. 
+He said to them, You will drink My cup, but seats at My right hand and at My left are not Mine to give, but they are for those for whom they have been ordained _and_ prepared by My Father. 
 
 
 

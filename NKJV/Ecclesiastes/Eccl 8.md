@@ -10,7 +10,7 @@ next: ['Eccl 9']
 
 
 ###### 1 
-Who _is_ like a wise _man?_ And who knows the interpretation of a thing? A man's wisdom makes his face shine, And the [^a]sternness of his face is changed. ## Obey Authorities for God's Sake 
+Who _is_ like a wise _man?_ And who knows the interpretation of a thing? A man's wisdom makes his face shine, And the sternness of his face is changed. ## Obey Authorities for God's Sake 
 
 ###### 2 
 I _say,_ "Keep the king's commandment for the sake of your oath to God. 
@@ -22,10 +22,10 @@ Do not be hasty to go from his presence. Do not take your stand for an evil thin
 Where the word of a king _is, there is_ power; And who may say to him, "What are you doing?" 
 
 ###### 5 
-He who keeps his command will experience nothing harmful; And a wise man's heart [^b]discerns both time and judgment, 
+He who keeps his command will experience nothing harmful; And a wise man's heart discerns both time and judgment, 
 
 ###### 6 
-Because for every matter there is a time and judgment, Though the misery of man [^c]increases greatly. 
+Because for every matter there is a time and judgment, Though the misery of man increases greatly. 
 
 ###### 7 
 For he does not know what will happen; So who can tell him when it will occur? 
@@ -37,7 +37,7 @@ No one has power over the spirit to retain the spirit, And no one has power in t
 All this I have seen, and applied my heart to every work that is done under the sun: _There is_ a time in which one man rules over another to his own hurt. ## Death Comes to All 
 
 ###### 10 
-Then I saw the wicked buried, who had come and gone from the place of holiness, and they were forgotten[^d] in the city where they had so done. This also _is_ vanity. 
+Then I saw the wicked buried, who had come and gone from the place of holiness, and they were forgotten in the city where they had so done. This also _is_ vanity. 
 
 ###### 11 
 Because the sentence against an evil work is not executed speedily, therefore the heart of the sons of men is fully set in them to do evil. 

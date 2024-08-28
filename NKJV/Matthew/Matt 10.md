@@ -16,10 +16,10 @@ And when He had called His twelve disciples to _Him,_ He gave them power _over_ 
 Now the names of the twelve apostles are these: first, Simon, who is called Peter, and Andrew his brother; James the _son_ of Zebedee, and John his brother; 
 
 ###### 3 
-Philip and Bartholomew; Thomas and Matthew the tax collector; James the _son_ of Alphaeus, and [^a]Lebbaeus, whose surname was Thaddaeus; 
+Philip and Bartholomew; Thomas and Matthew the tax collector; James the _son_ of Alphaeus, and Lebbaeus, whose surname was Thaddaeus; 
 
 ###### 4 
-Simon the [^b]Cananite, and Judas Iscariot, who also betrayed Him. ## Sending Out the Twelve 
+Simon the Cananite, and Judas Iscariot, who also betrayed Him. ## Sending Out the Twelve 
 
 ###### 5 
 These twelve Jesus sent out and commanded them, saying: "Do not go into the way of the Gentiles, and do not enter a city of the Samaritans. 
@@ -28,10 +28,10 @@ These twelve Jesus sent out and commanded them, saying: "Do not go into the way 
 But go rather to the lost sheep of the house of Israel. 
 
 ###### 7 
-And as you go, preach, saying, 'The kingdom of heaven [^c]is at hand.' 
+And as you go, preach, saying, 'The kingdom of heaven is at hand.' 
 
 ###### 8 
-Heal the sick, [^d]cleanse the lepers, [^e]raise the dead, cast out demons. Freely you have received, freely give. 
+Heal the sick, cleanse the lepers, raise the dead, cast out demons. Freely you have received, freely give. 
 
 ###### 9 
 Provide neither gold nor silver nor copper in your money belts, 
@@ -55,7 +55,7 @@ And whoever will not receive you nor hear your words, when you depart from that 
 Assuredly, I say to you, it will be more tolerable for the land of Sodom and Gomorrah in the day of judgment than for that city! ## Persecutions Are Coming 
 
 ###### 16 
-"Behold, I send you out as sheep in the midst of wolves. Therefore be wise as serpents and harmless[^f] as doves. 
+"Behold, I send you out as sheep in the midst of wolves. Therefore be wise as serpents and harmless as doves. 
 
 ###### 17 
 But beware of men, for they will deliver you up to councils and scourge you in their synagogues. 
@@ -82,7 +82,7 @@ When they persecute you in this city, flee to another. For assuredly, I say to y
 "A disciple is not above _his_ teacher, nor a servant above his master. 
 
 ###### 25 
-It is enough for a disciple that he be like his teacher, and a servant like his master. If they have called the master of the house [^g]Beelzebub, how much more _will they call_ those of his household! 
+It is enough for a disciple that he be like his teacher, and a servant like his master. If they have called the master of the house Beelzebub, how much more _will they call_ those of his household! 
 
 ###### 26 
 Therefore do not fear them. For there is nothing covered that will not be revealed, and hidden that will not be known. ## Jesus Teaches the Fear of God 
@@ -91,10 +91,10 @@ Therefore do not fear them. For there is nothing covered that will not be reveal
 "Whatever I tell you in the dark, speak in the light; and what you hear in the ear, preach on the housetops. 
 
 ###### 28 
-And do not fear those who kill the body but cannot kill the soul. But rather fear Him who is able to destroy both soul and body in [^h]hell. 
+And do not fear those who kill the body but cannot kill the soul. But rather fear Him who is able to destroy both soul and body in hell. 
 
 ###### 29 
-Are not two sparrows sold for a [^i]copper coin? And not one of them falls to the ground apart from your Father's will. 
+Are not two sparrows sold for a copper coin? And not one of them falls to the ground apart from your Father's will. 
 
 ###### 30 
 But the very hairs of your head are all numbered. 
@@ -112,7 +112,7 @@ But whoever denies Me before men, him I will also deny before My Father who is i
 "Do not think that I came to bring peace on earth. I did not come to bring peace but a sword. 
 
 ###### 35 
-For I have come to 'set[^j] a man against his father, a daughter against her mother, and a daughter-in-law against her mother-in-law'; 
+For I have come to 'set a man against his father, a daughter against her mother, and a daughter-in-law against her mother-in-law'; 
 
 ###### 36 
 and 'a man's enemies _will be_ those of his _own_ household.' 

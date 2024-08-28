@@ -271,7 +271,7 @@ Ngunit <i class="trans-change">kahit na bahagi tayo ng iisang katawan_, binigyan
 
 
 
-Tulad ng sinasabi sa Kasulatan, "Nang umakyat siya sa langit, marami siyang dinalang bihag at binigyan niya ng mga kaloob ang mga tao."[^a] 
+Tulad ng sinasabi sa Kasulatan, "Nang umakyat siya sa langit, marami siyang dinalang bihag at binigyan niya ng mga kaloob ang mga tao." 
 
 
 
@@ -403,7 +403,7 @@ Ang ibaʼy ginawa niyang apostol, ang ibaʼy propeta, ang ibaʼy mangangaral ng 
 
 
 
-<i class="trans-change">Ginawa niya ito_ para ihanda sa paglilingkod ang mga pinabanal,[^b] at para lumago at maging matatag <i class="trans-change">sila bilang_ katawan ni Cristo. 
+<i class="trans-change">Ginawa niya ito_ para ihanda sa paglilingkod ang mga pinabanal, at para lumago at maging matatag <i class="trans-change">sila bilang_ katawan ni Cristo. 
 
 
 
@@ -832,7 +832,7 @@ Ipakita nʼyong binago na kayo ng Dios at binigyan ng buhay na matuwid at banal 
 
 
 
-Kaya huwag na kayong magsisinungaling. Ang bawat isaʼy magsabi ng katotohanan sa kanyang mga kapatid[^c] <i class="trans-change">kay Cristo_, dahil kabilang tayong lahat sa iisang katawan. 
+Kaya huwag na kayong magsisinungaling. Ang bawat isaʼy magsabi ng katotohanan sa kanyang mga kapatid <i class="trans-change">kay Cristo_, dahil kabilang tayong lahat sa iisang katawan. 
 
 
 
@@ -865,7 +865,7 @@ Kaya huwag na kayong magsisinungaling. Ang bawat isaʼy magsabi ng katotohanan s
 
 
 
-Kung magalit man kayo, huwag kayong magkasala.[^d] At huwag nʼyong hayaan na lumipas ang araw na galit pa rin kayo. 
+Kung magalit man kayo, huwag kayong magkasala. At huwag nʼyong hayaan na lumipas ang araw na galit pa rin kayo. 
 
 
 

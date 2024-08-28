@@ -205,7 +205,7 @@ Ang lahat ng lungsod na ito ay napapalibutan ng matataas na pader na may pintuan
 
 
 
-"Nilipol natin sila nang lubusan[^a] katulad ng ginawa natin kay Haring Sihon ng Heshbon. Pinatay natin ang lahat ng tao sa bawat lungsod na ating naagaw – mga lalaki, babae at bata. 
+"Nilipol natin sila nang lubusan katulad ng ginawa natin kay Haring Sihon ng Heshbon. Pinatay natin ang lahat ng tao sa bawat lungsod na ating naagaw – mga lalaki, babae at bata. 
 
 
 
@@ -370,7 +370,7 @@ Inagaw natin ang lahat ng bayan na nasa talampas, ang buong Gilead at ang buong 
 
 
 
-(Si Haring Og lang ang nag-iisang natira sa mga lahi ng Refaimeo. Ang higaan niyang bakal[^b] ay may habang 13 talampakan at anim na talampakan ang lapad. Makikita pa ito ngayon sa Rabba na lungsod ng mga Ammonita.) ## Ang Paghahati-hati ng Lupa 
+(Si Haring Og lang ang nag-iisang natira sa mga lahi ng Refaimeo. Ang higaan niyang bakal ay may habang 13 talampakan at anim na talampakan ang lapad. Makikita pa ito ngayon sa Rabba na lungsod ng mga Ammonita.) ## Ang Paghahati-hati ng Lupa 
 
 
 
@@ -568,7 +568,7 @@ Ibinigay ko sa mga lahi nina Reuben at Gad ang mga lupain mula sa Gilead hanggan
 
 
 
-Ang hangganan sa kanluran ay ang Kapatagan ng Jordan[^c] pati na ang <i class="trans-change">Ilog ng_ Jordan, mula sa <i class="trans-change">Lawa ng_ Galilea hanggang sa Dagat na Patay[^d] sa ibabang bahagi ng libis ng Pisga sa silangan. 
+Ang hangganan sa kanluran ay ang Kapatagan ng Jordan pati na ang <i class="trans-change">Ilog ng_ Jordan, mula sa <i class="trans-change">Lawa ng_ Galilea hanggang sa Dagat na Patay sa ibabang bahagi ng libis ng Pisga sa silangan. 
 
 
 
@@ -601,7 +601,7 @@ Ang hangganan sa kanluran ay ang Kapatagan ng Jordan[^c] pati na ang <i class="t
 
 
 
-"Nang panahong iyon, inutusan ko ang mga angkan ninyo na naninirahan sa silangan ng Jordan,[^e] 'Kahit na ibinigay ng Panginoon na inyong Dios ang lupang ito para angkinin ninyo, kailangang tumawid ang lahat ng sundalo ninyo <i class="trans-change">sa Ilog ng Jordan_ na armado at handang manguna sa inyong mga kapatid na Israelita sa pakikipaglaban. 
+"Nang panahong iyon, inutusan ko ang mga angkan ninyo na naninirahan sa silangan ng Jordan, 'Kahit na ibinigay ng Panginoon na inyong Dios ang lupang ito para angkinin ninyo, kailangang tumawid ang lahat ng sundalo ninyo <i class="trans-change">sa Ilog ng Jordan_ na armado at handang manguna sa inyong mga kapatid na Israelita sa pakikipaglaban. 
 
 
 

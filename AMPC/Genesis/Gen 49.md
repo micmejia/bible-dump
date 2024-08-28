@@ -28,7 +28,7 @@ next: ['Gen 50']
 
 
 
-And Jacob called for his sons and said, Gather yourselves together [around me], that I may tell you what shall befall you [^a]in the latter _or_ last days. 
+And Jacob called for his sons and said, Gather yourselves together [around me], that I may tell you what shall befall you in the latter _or_ last days. 
 
 
 
@@ -70,7 +70,7 @@ Gather yourselves together and hear, you sons of Jacob; and hearken to Israel yo
 
 
 
-Reuben, you are my [^b]firstborn, my might, the beginning (the firstfruits) of my manly strength _and_ vigor; [your birthright gave you] the preeminence in dignity and the preeminence in power. 
+Reuben, you are my firstborn, my might, the beginning (the firstfruits) of my manly strength _and_ vigor; [your birthright gave you] the preeminence in dignity and the preeminence in power. 
 
 
 
@@ -91,7 +91,7 @@ Reuben, you are my [^b]firstborn, my might, the beginning (the firstfruits) of m
 
 
 
-But unstable _and_ boiling over like water, you shall [^c]not excel _and_ have the preeminence [of the firstborn], because you went to your father's bed; you defiled it--he went to my couch! 
+But unstable _and_ boiling over like water, you shall not excel _and_ have the preeminence [of the firstborn], because you went to your father's bed; you defiled it--he went to my couch! 
 
 
 
@@ -154,7 +154,7 @@ O my soul, come not into their secret council; unto their assembly let not my ho
 
 
 
-Cursed be their anger, for it was fierce, and their wrath, for it was cruel. I will divide them in Jacob and [^d]scatter them in Israel. 
+Cursed be their anger, for it was fierce, and their wrath, for it was cruel. I will divide them in Jacob and scatter them in Israel. 
 
 
 
@@ -574,7 +574,7 @@ The blessings of your father [on you] are greater than the blessings of my foref
 
 
 
-Benjamin is a [^e]ravenous wolf, in the morning devouring the prey and at night dividing the spoil. 
+Benjamin is a ravenous wolf, in the morning devouring the prey and at night dividing the spoil. 
 
 
 

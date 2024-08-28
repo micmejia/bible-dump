@@ -133,7 +133,7 @@ And [the man] paid attention to them, expecting that he was going to get somethi
 
 
 
-But Peter said, Silver and gold (money) I do not have; but what I do have, that I give to you: in [the [^a]use of] the name of Jesus Christ of Nazareth, walk! 
+But Peter said, Silver and gold (money) I do not have; but what I do have, that I give to you: in [the use of] the name of Jesus Christ of Nazareth, walk! 
 
 
 
@@ -175,7 +175,7 @@ Then he took hold of the man's right hand with a firm grip and raised him up. An
 
 
 
-And leaping forth he stood and [^b]began to walk, and he went into the temple with them, walking and leaping and praising God. 
+And leaping forth he stood and began to walk, and he went into the temple with them, walking and leaping and praising God. 
 
 
 
@@ -280,7 +280,7 @@ And Peter, seeing it, answered the people, You men of Israel, why are you so sur
 
 
 
-The God of Abraham and of Isaac and of Jacob, the God of our forefathers, has glorified His Servant _and_ [^c]Son Jesus [doing Him this honor], Whom you indeed delivered up and denied _and_ rejected _and_ disowned in the presence of Pilate, when he had determined to let Him go. 
+The God of Abraham and of Isaac and of Jacob, the God of our forefathers, has glorified His Servant _and_ Son Jesus [doing Him this honor], Whom you indeed delivered up and denied _and_ rejected _and_ disowned in the presence of Pilate, when he had determined to let Him go. 
 
 
 
@@ -406,7 +406,7 @@ Thus has God fulfilled what He foretold by the mouth of all the prophets, that H
 
 
 
-So repent (change your mind and purpose); turn around _and_ return [to God], that your sins may be erased (blotted out, wiped clean), that times of refreshing (of recovering from the effects of heat, of [^d]reviving with fresh air) may come from the presence of the Lord; 
+So repent (change your mind and purpose); turn around _and_ return [to God], that your sins may be erased (blotted out, wiped clean), that times of refreshing (of recovering from the effects of heat, of reviving with fresh air) may come from the presence of the Lord; 
 
 
 
@@ -490,7 +490,7 @@ Thus Moses said _to the forefathers_, The Lord God will raise up for you a Proph
 
 
 
-And it shall be that every soul that does not listen to _and_ understand by hearing _and_ heed that Prophet shall be utterly [^e]exterminated from among the people. 
+And it shall be that every soul that does not listen to _and_ understand by hearing _and_ heed that Prophet shall be utterly exterminated from among the people. 
 
 
 
@@ -553,4 +553,4 @@ You are the descendants (sons) of the prophets and the heirs of the covenant whi
 
 
 
-It was to you first that God sent His Servant _and_ Son _Jesus_, when He raised Him up [[^f]provided and gave Him for us], to bless you in turning every one of you from your wickedness _and_ evil ways.
+It was to you first that God sent His Servant _and_ Son _Jesus_, when He raised Him up [provided and gave Him for us], to bless you in turning every one of you from your wickedness _and_ evil ways.

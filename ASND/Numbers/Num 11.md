@@ -106,7 +106,7 @@ Dahil dito, humingi ng tulong ang mga Israelita kay Moises, at nanalangin si Moi
 
 
 
-Kaya ang lugar na iyon ay pinangalanang Tabera,[^a] dahil nagpadala ang Panginoon ng apoy sa kanila. 
+Kaya ang lugar na iyon ay pinangalanang Tabera, dahil nagpadala ang Panginoon ng apoy sa kanila. 
 
 
 
@@ -205,7 +205,7 @@ Noong naroon tayo sa Egipto, nakakakain tayo ng mga libreng isda at ng mga pipin
 
 
 
-Pero dito wala tayong ganang kumain;[^b] puro 'manna' lang ang ating kinakain." 
+Pero dito wala tayong ganang kumain; puro 'manna' lang ang ating kinakain." 
 
 
 
@@ -502,7 +502,7 @@ Kaya sinabi ng Panginoon kay Moises, "Tipunin mo ang 70 sa mga tagapamahala ng I
 
 
 
-Bababa ako at makikipag-usap sa iyo roon, at ibibigay ko sa kanila ang ibang kapangyarihan[^c] na ibinigay ko sa iyo upang makatulong sila sa pamamahala ng mga tao para hindi lang ikaw mag-isa ang namamahala. 
+Bababa ako at makikipag-usap sa iyo roon, at ibibigay ko sa kanila ang ibang kapangyarihan na ibinigay ko sa iyo upang makatulong sila sa pamamahala ng mga tao para hindi lang ikaw mag-isa ang namamahala. 
 
 
 
@@ -535,7 +535,7 @@ Bababa ako at makikipag-usap sa iyo roon, at ibibigay ko sa kanila ang ibang kap
 
 
 
-"Pagkatapos, sabihin mo sa mga tao na linisin nila ang kanilang sarili[^d] dahil bukas, may makakain na silang karne. Sabihin mo ito sa kanila: 'Narinig ko ang inyong reklamo na gusto ninyong kumain ng karne. At sinasabi ninyo na mas mabuti pa ang inyong kalagayan sa Egipto. Kaya bukas, bibigyan ko kayo ng karne para makakain kayo. 
+"Pagkatapos, sabihin mo sa mga tao na linisin nila ang kanilang sarili dahil bukas, may makakain na silang karne. Sabihin mo ito sa kanila: 'Narinig ko ang inyong reklamo na gusto ninyong kumain ng karne. At sinasabi ninyo na mas mabuti pa ang inyong kalagayan sa Egipto. Kaya bukas, bibigyan ko kayo ng karne para makakain kayo. 
 
 
 
@@ -601,7 +601,7 @@ Hindi lang isang araw, o dalawa, o lima, o 10, o 20 araw ang pagkain ninyo nito,
 
 
 
-kundi isang buwan, hanggang sa magsawa kayo[^e] at hindi na kayo makakain nito. Dahil itinakwil ninyo ako na sumasama sa inyo, at nagreklamo kayo sa akin na sanaʼy hindi na lang kayo umalis sa Egipto.' " 
+kundi isang buwan, hanggang sa magsawa kayo at hindi na kayo makakain nito. Dahil itinakwil ninyo ako na sumasama sa inyo, at nagreklamo kayo sa akin na sanaʼy hindi na lang kayo umalis sa Egipto.' " 
 
 
 
@@ -766,7 +766,7 @@ Kaya lumakad si Moises at sinabi sa mga tao ang sinabi ng Panginoon. Tinipon niy
 
 
 
-Pagkatapos, bumaba ang Panginoon sa pamamagitan ng ulap at nakipag-usap kay Moises. Kinuha niya ang ibang kapangyarihan[^f] ni Moises at ibinigay sa 70 tagapamahala. At nang matanggap nila ito, nagsalita sila kagaya ng mga propeta pero hindi na ito nangyari pang muli. 
+Pagkatapos, bumaba ang Panginoon sa pamamagitan ng ulap at nakipag-usap kay Moises. Kinuha niya ang ibang kapangyarihan ni Moises at ibinigay sa 70 tagapamahala. At nang matanggap nila ito, nagsalita sila kagaya ng mga propeta pero hindi na ito nangyari pang muli. 
 
 
 
@@ -1063,7 +1063,7 @@ Pero habang nginunguya pa nila ang karne at hindi pa nalululon ito, nagalit ang 
 
 
 
-Kaya tinawag ang lugar na iyon na Kibrot Hataava[^g] dahil doon inilibing ang mga taong matatakaw sa karne. 
+Kaya tinawag ang lugar na iyon na Kibrot Hataava dahil doon inilibing ang mga taong matatakaw sa karne. 
 
 
 

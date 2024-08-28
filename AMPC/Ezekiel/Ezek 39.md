@@ -238,7 +238,7 @@ So that My people shall take no firewood out of the field or cut down any out of
 
 
 
-And in that day, I will give to Gog a place for burial there in Israel, the valley of those who pass through on the east side in front of the [Dead] Sea [the highway between Syria, Petra, and Egypt], and it will delay _and_ stop those who pass through. And there shall they [^a]bury Gog and all his multitude, and they shall call it the Valley of Hamon-gog [multitude of Gog]. 
+And in that day, I will give to Gog a place for burial there in Israel, the valley of those who pass through on the east side in front of the [Dead] Sea [the highway between Syria, Petra, and Egypt], and it will delay _and_ stop those who pass through. And there shall they bury Gog and all his multitude, and they shall call it the Valley of Hamon-gog [multitude of Gog]. 
 
 
 

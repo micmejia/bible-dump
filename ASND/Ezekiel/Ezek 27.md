@@ -106,7 +106,7 @@ Sinabi sa akin ng Panginoon,
 
 
 
-ang <i class="trans-change">lungsod na_ daungan ng mga barko[^a] na sentro ng kalakalan ng mga taong nakatira malapit sa dagat. Sabihin mong ako, ang Panginoong Dios, ang nagsasabi: 'Ipinagmamalaki mo Tyre, ang iyong kagandahan at sinasabi mong wala kang kapintasan. 
+ang <i class="trans-change">lungsod na_ daungan ng mga barko na sentro ng kalakalan ng mga taong nakatira malapit sa dagat. Sabihin mong ako, ang Panginoong Dios, ang nagsasabi: 'Ipinagmamalaki mo Tyre, ang iyong kagandahan at sinasabi mong wala kang kapintasan. 
 
 
 
@@ -205,7 +205,7 @@ Tulad ka ng isang malaking barko na gawa sa kahoy na abeto mula sa Senir. Ang pa
 
 
 
-Ang mga sagwan moʼy yari sa kahoy na ensina mula sa Bashan. At ang sahig moʼy gawa sa mga kahoy na galing pa sa isla[^b] ng Cyprus[^c] na may disenyong gawa sa pangil ng elepante. 
+Ang mga sagwan moʼy yari sa kahoy na ensina mula sa Bashan. At ang sahig moʼy gawa sa mga kahoy na galing pa sa isla ng Cyprus na may disenyong gawa sa pangil ng elepante. 
 
 
 
@@ -436,7 +436,7 @@ Mga taga-Arbad at taga-Helek ang nagbabantay sa palibot ng iyong mga pader. At a
 
 
 
-Nakipagkalakalan din sa iyo ang Grecia,[^d] Tubal at Meshec, at ang ibinayad nila sa iyo ay mga alipin at mga gamit na yari sa tanso. 
+Nakipagkalakalan din sa iyo ang Grecia, Tubal at Meshec, at ang ibinayad nila sa iyo ay mga alipin at mga gamit na yari sa tanso. 
 
 
 
@@ -502,7 +502,7 @@ Ang ibinayad naman sa iyo ng mga taga-Bet Togarma ay mga kabayong pantrabaho at 
 
 
 
-" 'Nakipagkalakalan din sa iyo ang mga taga-Dedan[^e] at marami kang suki sa mga lugar sa tabing-dagat. At ang ibinayad nila ay mga pangil ng elepante at maiitim at matitigas na kahoy. 
+" 'Nakipagkalakalan din sa iyo ang mga taga-Dedan at marami kang suki sa mga lugar sa tabing-dagat. At ang ibinayad nila ay mga pangil ng elepante at maiitim at matitigas na kahoy. 
 
 
 

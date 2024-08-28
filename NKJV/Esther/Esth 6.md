@@ -10,10 +10,10 @@ next: ['Esth 7']
 
 
 ###### 1 
-That night [^a]the king could not sleep. So one was commanded to bring the book of the records of the chronicles; and they were read before the king. 
+That night the king could not sleep. So one was commanded to bring the book of the records of the chronicles; and they were read before the king. 
 
 ###### 2 
-And it was found written that Mordecai had told of [^b]Bigthana and Teresh, two of the king's eunuchs, the doorkeepers who had sought to lay hands on King Ahasuerus. 
+And it was found written that Mordecai had told of Bigthana and Teresh, two of the king's eunuchs, the doorkeepers who had sought to lay hands on King Ahasuerus. 
 
 ###### 3 
 Then the king said, "What honor or dignity has been bestowed on Mordecai for this?" And the king's servants who attended him said, "Nothing has been done for him." 
@@ -31,10 +31,10 @@ So Haman came in, and the king asked him, "What shall be done for the man whom t
 And Haman answered the king, "_For_ the man whom the king delights to honor, 
 
 ###### 8 
-let a royal robe be brought which the king has worn, and a horse on which the king has ridden, which has a royal [^c]crest placed on its head. 
+let a royal robe be brought which the king has worn, and a horse on which the king has ridden, which has a royal crest placed on its head. 
 
 ###### 9 
-Then let this robe and horse be delivered to the hand of one of the king's most noble princes, that he may array the man whom the king delights to honor. Then [^d]parade him on horseback through the city square, and proclaim before him: 'Thus shall it be done to the man whom the king delights to honor!' " 
+Then let this robe and horse be delivered to the hand of one of the king's most noble princes, that he may array the man whom the king delights to honor. Then parade him on horseback through the city square, and proclaim before him: 'Thus shall it be done to the man whom the king delights to honor!' " 
 
 ###### 10 
 Then the king said to Haman, "Hurry, take the robe and the horse, as you have suggested, and do so for Mordecai the Jew who sits within the king's gate! Leave nothing undone of all that you have spoken." 

@@ -799,7 +799,7 @@ Sino ba ang hinahamak at nilalapastangan mo? Sino ang pinagtataasan mo ng boses 
 
 
 
-Kinutya mo ako sa pamamagitan ng iyong mga sugo. Sinabi mo pa, 'Sa pamamagitan ng aking maraming karwahe naakyat ko ang matataas na mga bundok pati ang tuktok ng bundok ng Lebanon. Pinutol ko ang pinakamataas na mga puno ng sedro at natatanging sipres[^a] nito. Nakarating ako sa tuktok na may makapal na kagubatan. 
+Kinutya mo ako sa pamamagitan ng iyong mga sugo. Sinabi mo pa, 'Sa pamamagitan ng aking maraming karwahe naakyat ko ang matataas na mga bundok pati ang tuktok ng bundok ng Lebanon. Pinutol ko ang pinakamataas na mga puno ng sedro at natatanging sipres nito. Nakarating ako sa tuktok na may makapal na kagubatan. 
 
 
 
@@ -832,7 +832,7 @@ Kinutya mo ako sa pamamagitan ng iyong mga sugo. Sinabi mo pa, 'Sa pamamagitan n
 
 
 
-Naghukay ako ng balon sa ibang mga lugar[^b] at uminom ng tubig mula rito. Sa pagdaan ko, natuyo ang mga sapa sa Egipto.' 
+Naghukay ako ng balon sa ibang mga lugar at uminom ng tubig mula rito. Sa pagdaan ko, natuyo ang mga sapa sa Egipto.' 
 
 
 

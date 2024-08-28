@@ -22,7 +22,7 @@ Surely He has turned His hand against me Time and time again throughout the day.
 He has aged my flesh and my skin, And broken my bones. 
 
 ###### 5 
-He has besieged me And surrounded _me_ with bitterness and [^a]woe. 
+He has besieged me And surrounded _me_ with bitterness and woe. 
 
 ###### 6 
 He has set me in dark places Like the dead of long ago. 
@@ -37,7 +37,7 @@ Even when I cry and shout, He shuts out my prayer.
 He has blocked my ways with hewn stone; He has made my paths crooked. 
 
 ###### 10 
-He _has been_ to me a bear lying in wait, _Like_ a lion in [^b]ambush. 
+He _has been_ to me a bear lying in wait, _Like_ a lion in ambush. 
 
 ###### 11 
 He has turned aside my ways and torn me in pieces; He has made me desolate. 
@@ -46,7 +46,7 @@ He has turned aside my ways and torn me in pieces; He has made me desolate.
 He has bent His bow And set me up as a target for the arrow. 
 
 ###### 13 
-He has caused the [^c]arrows of His quiver To pierce my [^d]loins. 
+He has caused the arrows of His quiver To pierce my loins. 
 
 ###### 14 
 I have become the ridicule of all my people-- Their taunting song all the day. 
@@ -55,19 +55,19 @@ I have become the ridicule of all my people-- Their taunting song all the day.
 He has filled me with bitterness, He has made me drink wormwood. 
 
 ###### 16 
-He has also broken my teeth with gravel, And [^e]covered me with ashes. 
+He has also broken my teeth with gravel, And covered me with ashes. 
 
 ###### 17 
-You have moved my soul far from peace; I have forgotten [^f]prosperity. 
+You have moved my soul far from peace; I have forgotten prosperity. 
 
 ###### 18 
 And I said, "My strength and my hope Have perished from the Lord." 
 
 ###### 19 
-Remember my affliction and roaming, The wormwood and the [^g]gall. 
+Remember my affliction and roaming, The wormwood and the gall. 
 
 ###### 20 
-My soul still remembers And [^h]sinks within me. 
+My soul still remembers And sinks within me. 
 
 ###### 21 
 This I recall to my mind, Therefore I have hope. 
@@ -106,7 +106,7 @@ For the Lord will not cast off forever.
 Though He causes grief, Yet He will show compassion According to the multitude of His mercies. 
 
 ###### 33 
-For He does not afflict [^i]willingly, Nor grieve the children of men. 
+For He does not afflict willingly, Nor grieve the children of men. 
 
 ###### 34 
 To crush under one's feet All the prisoners of the earth, 
@@ -124,7 +124,7 @@ Who _is_ he _who_ speaks and it comes to pass, _When_ the Lord has not commanded
 _Is it_ not from the mouth of the Most High That woe and well-being proceed? 
 
 ###### 39 
-Why should a living man [^j]complain, A man for the punishment of his sins? 
+Why should a living man complain, A man for the punishment of his sins? 
 
 ###### 40 
 Let us search out and examine our ways, And turn back to the Lord; 
@@ -166,7 +166,7 @@ My eyes bring suffering to my soul Because of all the daughters of my city.
 My enemies without cause Hunted me down like a bird. 
 
 ###### 53 
-They [^k]silenced my life in the pit And threw [^l]stones at me. 
+They silenced my life in the pit And threw stones at me. 
 
 ###### 54 
 The waters flowed over my head; I said, "I am cut off!" 
@@ -184,7 +184,7 @@ You drew near on the day I called on You, And said, "Do not fear!"
 O Lord, You have pleaded the case for my soul; You have redeemed my life. 
 
 ###### 59 
-O Lord, You have seen [^m]_how_ I am wronged; Judge my case. 
+O Lord, You have seen _how_ I am wronged; Judge my case. 
 
 ###### 60 
 You have seen all their vengeance, All their schemes against me. 
@@ -202,7 +202,7 @@ Look at their sitting down and their rising up; I _am_ their taunting song.
 Repay them, O Lord, According to the work of their hands. 
 
 ###### 65 
-Give them [^n]a veiled heart; Your curse _be_ upon them! 
+Give them a veiled heart; Your curse _be_ upon them! 
 
 ###### 66 
 In Your anger, Pursue and destroy them From under the heavens of the Lord.

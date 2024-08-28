@@ -28,7 +28,7 @@ next: ['Rom 6']
 
 
 
-Therefore, since we are justified ([^a]acquitted, declared righteous, and given a right standing with God) through faith, let us [grasp the fact that we] have [the peace of reconciliation to hold and to [^b]enjoy] peace with God through our Lord Jesus Christ (the Messiah, the Anointed One). 
+Therefore, since we are justified (acquitted, declared righteous, and given a right standing with God) through faith, let us [grasp the fact that we] have [the peace of reconciliation to hold and to enjoy] peace with God through our Lord Jesus Christ (the Messiah, the Anointed One). 
 
 
 
@@ -91,7 +91,7 @@ Moreover [let us also be full of joy now!] let us exult _and_ triumph in our tro
 
 
 
-And endurance (fortitude) develops maturity of [^c]character (approved faith and [^d]tried integrity). And character [of this sort] produces [the habit of] [^e]joyful and confident hope of eternal salvation. 
+And endurance (fortitude) develops maturity of character (approved faith and tried integrity). And character [of this sort] produces [the habit of] joyful and confident hope of eternal salvation. 
 
 
 
@@ -196,7 +196,7 @@ But God shows _and_ clearly proves His [own] love for us by the fact that while 
 
 
 
-Therefore, since we are now justified ([^f]acquitted, made righteous, and brought into right relationship with God) by Christ's blood, how much more [certain is it that] we shall be saved by Him from the indignation _and_ wrath of God. 
+Therefore, since we are now justified (acquitted, made righteous, and brought into right relationship with God) by Christ's blood, how much more [certain is it that] we shall be saved by Him from the indignation _and_ wrath of God. 
 
 
 
@@ -217,7 +217,7 @@ Therefore, since we are now justified ([^f]acquitted, made righteous, and brough
 
 
 
-For if while we were enemies we were reconciled to God through the death of His Son, it is much more [certain], now that we are reconciled, that we shall be saved (daily delivered from sin's dominion) through His [[^g]resurrection] life. 
+For if while we were enemies we were reconciled to God through the death of His Son, it is much more [certain], now that we are reconciled, that we shall be saved (daily delivered from sin's dominion) through His [resurrection] life. 
 
 
 
@@ -259,7 +259,7 @@ Not only so, but we also rejoice _and_ exultingly glory in God [in His love and 
 
 
 
-Therefore, as sin came into the world through one man, and death as the result of sin, so death spread to all men, [[^h]no one being able to stop it or to escape its power] because all men sinned. 
+Therefore, as sin came into the world through one man, and death as the result of sin, so death spread to all men, [no one being able to stop it or to escape its power] because all men sinned. 
 
 
 
@@ -301,7 +301,7 @@ Therefore, as sin came into the world through one man, and death as the result o
 
 
 
-Yet death held sway from Adam to Moses [the Lawgiver], even over those who did not themselves transgress [a positive command] as Adam did. Adam was a type (prefigure) of the One Who was to come [in reverse, [^i]the former destructive, the Latter saving]. 
+Yet death held sway from Adam to Moses [the Lawgiver], even over those who did not themselves transgress [a positive command] as Adam did. Adam was a type (prefigure) of the One Who was to come [in reverse, the former destructive, the Latter saving]. 
 
 
 
@@ -343,7 +343,7 @@ But God's free gift is not at all to be compared to the trespass [His grace is o
 
 
 
-Nor is the free gift at all to be compared to the effect of that one [man's] sin. For the sentence [following the trespass] of one [man] brought condemnation, whereas the free gift [following] many transgressions brings justification ([^j]an act of righteousness). 
+Nor is the free gift at all to be compared to the effect of that one [man's] sin. For the sentence [following the trespass] of one [man] brought condemnation, whereas the free gift [following] many transgressions brings justification (an act of righteousness). 
 
 
 
@@ -406,7 +406,7 @@ Well then, as one man's trespass [one man's false step and falling away led] to 
 
 
 
-For just as by one man's disobedience (failing to hear, [^k]heedlessness, and carelessness) the many were constituted sinners, so by one Man's obedience the many will be constituted righteous (made acceptable to God, brought into right standing with Him). 
+For just as by one man's disobedience (failing to hear, heedlessness, and carelessness) the many were constituted sinners, so by one Man's obedience the many will be constituted righteous (made acceptable to God, brought into right standing with Him). 
 
 
 

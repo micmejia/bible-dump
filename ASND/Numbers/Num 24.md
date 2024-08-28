@@ -106,7 +106,7 @@ at nakita niya ang mga Israelita na nagkakampo ayon sa kani-kanilang lahi. Pagka
 
 
 
-at sinabi niya, "Ako si Balaam na anak ni Beor, at may malinaw akong pang-unawa.[^a] 
+at sinabi niya, "Ako si Balaam na anak ni Beor, at may malinaw akong pang-unawa. 
 
 
 
@@ -139,7 +139,7 @@ at sinabi niya, "Ako si Balaam na anak ni Beor, at may malinaw akong pang-unawa.
 
 
 
-Narinig ko ang salita ng Dios, at nakakita ako ng isang pangitain na mula sa Makapangyarihang <i class="trans-change">Dios_. Nagpatirapa ako at nagpahayag siya sa akin.[^b] Ito ang aking mensahe: 
+Narinig ko ang salita ng Dios, at nakakita ako ng isang pangitain na mula sa Makapangyarihang <i class="trans-change">Dios_. Nagpatirapa ako at nagpahayag siya sa akin. Ito ang aking mensahe: 
 
 
 
@@ -502,7 +502,7 @@ Uuwi ako ngayon din sa aking mga kababayan, pero bago ako umalis, paaalalahanan 
 
 
 
-Pagkatapos, sinabi ni Balaam ang mensaheng ito: "Ako si Balaam na anak ni Beor, at may malinaw akong pang-unawa.[^c] 
+Pagkatapos, sinabi ni Balaam ang mensaheng ito: "Ako si Balaam na anak ni Beor, at may malinaw akong pang-unawa. 
 
 
 
@@ -535,7 +535,7 @@ Pagkatapos, sinabi ni Balaam ang mensaheng ito: "Ako si Balaam na anak ni Beor, 
 
 
 
-Narinig ko ang salita ng Kataas-taasang Dios, at nakakita ako ng pangitain mula sa Makapangyarihang <i class="trans-change">Dios_. Nagpatirapa ako sa kanya at nagpahayag siya sa akin.[^d] Ito ang aking mensahe: 
+Narinig ko ang salita ng Kataas-taasang Dios, at nakakita ako ng pangitain mula sa Makapangyarihang <i class="trans-change">Dios_. Nagpatirapa ako sa kanya at nagpahayag siya sa akin. Ito ang aking mensahe: 
 
 
 
@@ -568,7 +568,7 @@ Narinig ko ang salita ng Kataas-taasang Dios, at nakakita ako ng pangitain mula 
 
 
 
-"May nakita ako sa aking pangitain na hindi pa nangyayari. Sa hinaharap, mamamahala ang isang hari[^e] sa Israel mula sa lahi ni Jacob. Ibabagsak niya ang mga Moabita at ang lahat ng lahi ni Set. 
+"May nakita ako sa aking pangitain na hindi pa nangyayari. Sa hinaharap, mamamahala ang isang hari sa Israel mula sa lahi ni Jacob. Ibabagsak niya ang mga Moabita at ang lahat ng lahi ni Set. 
 
 
 
@@ -634,7 +634,7 @@ Sasakupin niya ang Edom na kanyang kaaway, na tinatawag din na Seir, habang tuma
 
 
 
-Mamumuno ang isang pinuno sa Israel[^f] at ibabagsak niya ang mga natirang buhay sa lungsod <i class="trans-change">ng Moab_." ## Ang Huling Mensahe ni Balaam 
+Mamumuno ang isang pinuno sa Israel at ibabagsak niya ang mga natirang buhay sa lungsod <i class="trans-change">ng Moab_." ## Ang Huling Mensahe ni Balaam 
 
 
 

@@ -69,7 +69,7 @@ The workers of the city, from all the tribes of Israel, shall cultivate it.
 The entire district _shall be_ twenty-five thousand _cubits_ by twenty-five thousand _cubits,_ foursquare. You shall set apart the holy district with the property of the city. 
 
 ###### 21 
-"The rest _shall belong_ to the prince, on one side and on the other of the holy district and of the city's property, next to the twenty-five thousand _cubits_ of the _holy_ district as far as the eastern border, and westward next to the twenty-five thousand as far as the western border, adjacent to the _tribal_ portions; _it shall belong_ to the prince. It shall be the holy district, and the sanctuary of the [^a]temple _shall be_ in the center. 
+"The rest _shall belong_ to the prince, on one side and on the other of the holy district and of the city's property, next to the twenty-five thousand _cubits_ of the _holy_ district as far as the eastern border, and westward next to the twenty-five thousand as far as the western border, adjacent to the _tribal_ portions; _it shall belong_ to the prince. It shall be the holy district, and the sanctuary of the temple _shall be_ in the center. 
 
 ###### 22 
 Moreover, apart from the possession of the Levites and the possession of the city _which are_ in the midst of what _belongs_ to the prince, _the area_ between the border of Judah and the border of Benjamin shall belong to the prince. 
@@ -90,7 +90,7 @@ by the border of Issachar, from the east side to the west, Zebulun _shall have_ 
 by the border of Zebulun, from the east side to the west, Gad _shall have_ one _section;_ 
 
 ###### 28 
-by the border of Gad, on the south side, toward the [^b]South, the border shall be from Tamar _to_ the waters of [^c]Meribah _by_ Kadesh, along the brook to the Great Sea. 
+by the border of Gad, on the south side, toward the South, the border shall be from Tamar _to_ the waters of Meribah _by_ Kadesh, along the brook to the Great Sea. 
 
 ###### 29 
 This _is_ the land which you shall divide by lot as an inheritance among the tribes of Israel, and these _are_ their portions," says the Lord God. ## The Gates of the City and Its Name 
@@ -111,4 +111,4 @@ on the south side, measuring four thousand five hundred _cubits,_ three gates: o
 on the west side, four thousand five hundred _cubits_ with their three gates: one gate for Gad, one gate for Asher, and one gate for Naphtali. 
 
 ###### 35 
-All the way around _shall be_ eighteen thousand _cubits;_ and the name of the city from _that_ day _shall be:_ THE[^d] LORD _IS_ THERE."
+All the way around _shall be_ eighteen thousand _cubits;_ and the name of the city from _that_ day _shall be:_ THE LORD _IS_ THERE."

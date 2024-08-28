@@ -337,7 +337,7 @@ Masasabi mo pa kayang isa kang dios, sa harap ng mga papatay sa iyo? Para sa kan
 
 
 
-Kaya mamamatay ka ng tulad ng kamatayan ng mga taong hindi naniniwala sa akin,[^a] sa kamay ng mga dayuhan. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito." 
+Kaya mamamatay ka ng tulad ng kamatayan ng mga taong hindi naniniwala sa akin, sa kamay ng mga dayuhan. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito." 
 
 
 
@@ -469,7 +469,7 @@ Nasa Eden ka pa noon, sa halamanan ng Dios. Napapalamutian ka ng sari-saring mam
 
 
 
-Hinirang kita bilang kerubin na magbabantay sa banal kong bundok. Lumalakad ka sa gitna ng nagniningning[^b] na bato. 
+Hinirang kita bilang kerubin na magbabantay sa banal kong bundok. Lumalakad ka sa gitna ng nagniningning na bato. 
 
 
 

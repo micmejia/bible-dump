@@ -91,7 +91,7 @@ And again they shouted, Hallelujah (praise the Lord)! The smoke of her [burning]
 
 
 
-Then the twenty-four elders [of [^a]the heavenly Sanhedrin] and the four living creatures fell prostrate and worshiped [paying divine honors to] God, Who sits on the throne, saying, Amen! Hallelujah (praise the Lord)! 
+Then the twenty-four elders [of the heavenly Sanhedrin] and the four living creatures fell prostrate and worshiped [paying divine honors to] God, Who sits on the throne, saying, Amen! Hallelujah (praise the Lord)! 
 
 
 
@@ -196,7 +196,7 @@ She has been permitted to dress in fine (radiant) linen, dazzling and white--for
 
 
 
-Then [the angel] said to me, Write this down: Blessed (happy, [^b]to be envied) are those who are summoned (invited, called) to the marriage supper of the Lamb. And he said to me [further], These are the true words (the genuine and exact declarations) of God. 
+Then [the angel] said to me, Write this down: Blessed (happy, to be envied) are those who are summoned (invited, called) to the marriage supper of the Lamb. And he said to me [further], These are the true words (the genuine and exact declarations) of God. 
 
 
 
@@ -280,7 +280,7 @@ His eyes [blaze] like a flame of fire, and on His head are many kingly crowns (d
 
 
 
-He is dressed in a robe dyed by [^c]dipping in blood, and the title by which He is called is The Word of God. 
+He is dressed in a robe dyed by dipping in blood, and the title by which He is called is The Word of God. 
 
 
 
@@ -364,7 +364,7 @@ And on His garment (robe) and on His thigh He has a name (title) inscribed, king
 
 
 
-Then I saw a single angel stationed in the sun's [^d]light, and with a mighty voice he shouted to all the birds that fly across the sky, Come, gather yourselves together for the great supper of God, 
+Then I saw a single angel stationed in the sun's light, and with a mighty voice he shouted to all the birds that fly across the sky, Come, gather yourselves together for the great supper of God, 
 
 
 

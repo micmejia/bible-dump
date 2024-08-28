@@ -112,7 +112,7 @@ On the third day Abraham looked up and saw the place in the distance.
 
 
 
-And Abraham said to his servants, Settle down _and_ stay here with the donkey, and I and the young man will go yonder and worship and [^a]come again to you. 
+And Abraham said to his servants, Settle down _and_ stay here with the donkey, and I and the young man will go yonder and worship and come again to you. 
 
 
 
@@ -175,7 +175,7 @@ And Isaac said to Abraham, My father! And he said, Here I am, my son. [Isaac] sa
 
 
 
-Abraham said, My son, [^b]God Himself will provide a lamb for the burnt offering. So the two went on together. 
+Abraham said, My son, God Himself will provide a lamb for the burnt offering. So the two went on together. 
 
 
 
@@ -196,7 +196,7 @@ Abraham said, My son, [^b]God Himself will provide a lamb for the burnt offering
 
 
 
-When they came to the place of which God had told him, Abraham built an altar there; then he laid the wood in order and [^c]bound Isaac his son and laid him on the altar on the wood. 
+When they came to the place of which God had told him, Abraham built an altar there; then he laid the wood in order and bound Isaac his son and laid him on the altar on the wood. 
 
 
 
@@ -238,7 +238,7 @@ And Abraham stretched forth his hand and took hold of the knife to slay his son.
 
 
 
-But the [^d]Angel of the Lord called to him from heaven and said, Abraham, Abraham! He answered, Here I am. 
+But the Angel of the Lord called to him from heaven and said, Abraham, Abraham! He answered, Here I am. 
 
 
 
@@ -385,7 +385,7 @@ In blessing I will bless you and in multiplying I will multiply your descendants
 
 
 
-And in your Seed [[^e]Christ] shall all the nations of the earth be blessed _and_ [by Him] bless themselves, because you have heard _and_ obeyed My voice. 
+And in your Seed [Christ] shall all the nations of the earth be blessed _and_ [by Him] bless themselves, because you have heard _and_ obeyed My voice. 
 
 
 

@@ -10,7 +10,7 @@ next: ['2 Chr 8']
 
 
 ###### 1 
-When Solomon had finished praying, fire came down from heaven and consumed the burnt offering and the sacrifices; and the glory of the Lord filled the [^a]temple. 
+When Solomon had finished praying, fire came down from heaven and consumed the burnt offering and the sacrifices; and the glory of the Lord filled the temple. 
 
 ###### 2 
 And the priests could not enter the house of the Lord, because the glory of the Lord had filled the Lord's house. 
@@ -25,13 +25,13 @@ Then the king and all the people offered sacrifices before the Lord.
 King Solomon offered a sacrifice of twenty-two thousand bulls and one hundred and twenty thousand sheep. So the king and all the people dedicated the house of God. 
 
 ###### 6 
-And the priests attended to their services; the Levites also with instruments of the music of the Lord, which King David had made to praise the Lord, saying, "For His mercy _endures_ forever," whenever David offered praise by their [^b]ministry. The priests sounded trumpets opposite them, while all Israel stood. 
+And the priests attended to their services; the Levites also with instruments of the music of the Lord, which King David had made to praise the Lord, saying, "For His mercy _endures_ forever," whenever David offered praise by their ministry. The priests sounded trumpets opposite them, while all Israel stood. 
 
 ###### 7 
 Furthermore Solomon consecrated the middle of the court that _was_ in front of the house of the Lord; for there he offered burnt offerings and the fat of the peace offerings, because the bronze altar which Solomon had made was not able to receive the burnt offerings, the grain offerings, and the fat. 
 
 ###### 8 
-At that time Solomon kept the feast seven days, and all Israel with him, a very great assembly from the entrance of Hamath to the[^c] Brook of Egypt. 
+At that time Solomon kept the feast seven days, and all Israel with him, a very great assembly from the entrance of Hamath to the Brook of Egypt. 
 
 ###### 9 
 And on the eighth day they held a sacred assembly, for they observed the dedication of the altar seven days, and the feast seven days. 
@@ -55,7 +55,7 @@ if My people who are called by My name will humble themselves, and pray and seek
 Now My eyes will be open and My ears attentive to prayer _made_ in this place. 
 
 ###### 16 
-For now I have chosen and [^d]sanctified this house, that My name may be there forever; and [^e]My eyes and [^f]My heart will be there perpetually. 
+For now I have chosen and sanctified this house, that My name may be there forever; and My eyes and My heart will be there perpetually. 
 
 ###### 17 
 As for you, if you walk before Me as your father David walked, and do according to all that I have commanded you, and if you keep My statutes and My judgments, 
@@ -67,10 +67,10 @@ then I will establish the throne of your kingdom, as I covenanted with David you
 "But if you turn away and forsake My statutes and My commandments which I have set before you, and go and serve other gods, and worship them, 
 
 ###### 20 
-then I will uproot them from My land which I have given them; and this house which I have [^g]sanctified for My name I will cast out of My sight, and will make it a proverb and a byword among all peoples. 
+then I will uproot them from My land which I have given them; and this house which I have sanctified for My name I will cast out of My sight, and will make it a proverb and a byword among all peoples. 
 
 ###### 21 
-"And _as for_ this [^h]house, which [^i]is exalted, everyone who passes by it will be astonished and say, 'Why has the Lord done thus to this land and this house?' 
+"And _as for_ this house, which is exalted, everyone who passes by it will be astonished and say, 'Why has the Lord done thus to this land and this house?' 
 
 ###### 22 
 Then they will answer, 'Because they forsook the Lord God of their fathers, who brought them out of the land of Egypt, and embraced other gods, and worshiped them and served them; therefore He has brought all this calamity on them.' "

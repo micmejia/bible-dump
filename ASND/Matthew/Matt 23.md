@@ -172,7 +172,7 @@ Ipinapatupad nila sa inyo ang mahihirap nilang kautusan, pero sila mismo ay hind
 
 
 
-Ang lahat ng ginagawa nila ay pakitang-tao lang. <i class="trans-change">At upang ipakita na napakarelihiyoso nila_, nilalakihan nila ang kanilang mga pilakterya[^a] at hinahabaan ang laylayan[^b] <i class="trans-change">ng kanilang mga damit_. 
+Ang lahat ng ginagawa nila ay pakitang-tao lang. <i class="trans-change">At upang ipakita na napakarelihiyoso nila_, nilalakihan nila ang kanilang mga pilakterya at hinahabaan ang laylayan <i class="trans-change">ng kanilang mga damit_. 
 
 
 
@@ -766,7 +766,7 @@ At kapag nanumpa siya sa langit, nanunumpa rin siya pati sa trono ng Dios at sa 
 
 
 
-"Nakakaawa kayong mga tagapagturo ng Kautusan at mga Pariseo, kayong mga mapagkunwari! Ibinibigay nga ninyo kahit ang ikapu[^c] ng inyong mga pampalasa,[^d] ngunit hindi naman ninyo sinusunod ang mga mas mahalagang utos tungkol sa pagiging makatarungan, mahabagin, at pagiging tapat. Dapat ngang magbigay kayo ng inyong mga ikapu, pero huwag naman ninyong kaligtaang gawin ang mga mas mahalagang utos. 
+"Nakakaawa kayong mga tagapagturo ng Kautusan at mga Pariseo, kayong mga mapagkunwari! Ibinibigay nga ninyo kahit ang ikapu ng inyong mga pampalasa, ngunit hindi naman ninyo sinusunod ang mga mas mahalagang utos tungkol sa pagiging makatarungan, mahabagin, at pagiging tapat. Dapat ngang magbigay kayo ng inyong mga ikapu, pero huwag naman ninyong kaligtaang gawin ang mga mas mahalagang utos. 
 
 
 
@@ -832,7 +832,7 @@ Mga bulag na tagaakay! Sinasala ninyo ang maliliit na insekto <i class="trans-ch
 
 
 
-"Nakakaawa kayong mga tagapagturo ng Kautusan at mga Pariseo, kayong mga mapagkunwari! Nililinis ninyo ang labas ng tasa at pinggan <i class="trans-change">ayon sa inyong seremonya_, ngunit ang loob ng puso ninyoʼy puno naman ng kasakiman at katakawan.[^e] 
+"Nakakaawa kayong mga tagapagturo ng Kautusan at mga Pariseo, kayong mga mapagkunwari! Nililinis ninyo ang labas ng tasa at pinggan <i class="trans-change">ayon sa inyong seremonya_, ngunit ang loob ng puso ninyoʼy puno naman ng kasakiman at katakawan. 
 
 
 
@@ -865,7 +865,7 @@ Mga bulag na tagaakay! Sinasala ninyo ang maliliit na insekto <i class="trans-ch
 
 
 
-Mga bulag na Pariseo! Linisin muna ninyo ang loob ng tasa at baso, at magiging malinis din ang labas nito.[^f] 
+Mga bulag na Pariseo! Linisin muna ninyo ang loob ng tasa at baso, at magiging malinis din ang labas nito. 
 
 
 
@@ -1294,4 +1294,4 @@ Kaya bahala na kayo sa sarili ninyo.
 
 
 
-Sapagkat hindi nʼyo na ako makikita hanggang sa dumating ang panahon na sabihin ninyo, 'Pagpalain ang dumarating sa pangalan ng Panginoon.' "[^g]
+Sapagkat hindi nʼyo na ako makikita hanggang sa dumating ang panahon na sabihin ninyo, 'Pagpalain ang dumarating sa pangalan ng Panginoon.' "

@@ -10,7 +10,7 @@ next: ['John 13']
 
 
 ###### 1 
-Then, six days before the Passover, Jesus came to Bethany, where Lazarus was [^a]who had been dead, whom He had raised from the dead. 
+Then, six days before the Passover, Jesus came to Bethany, where Lazarus was who had been dead, whom He had raised from the dead. 
 
 ###### 2 
 There they made Him a supper; and Martha served, but Lazarus was one of those who sat at the table with Him. 
@@ -22,13 +22,13 @@ Then Mary took a pound of very costly oil of spikenard, anointed the feet of Jes
 But one of His disciples, Judas Iscariot, Simon's _son,_ who would betray Him, said, 
 
 ###### 5 
-"Why was this fragrant oil not sold for [^b]three hundred denarii and given to the poor?" 
+"Why was this fragrant oil not sold for three hundred denarii and given to the poor?" 
 
 ###### 6 
 This he said, not that he cared for the poor, but because he was a thief, and had the money box; and he used to take what was put in it. 
 
 ###### 7 
-But Jesus said, "Let her alone; [^c]she has kept this for the day of My burial. 
+But Jesus said, "Let her alone; she has kept this for the day of My burial. 
 
 ###### 8 
 For the poor you have with you always, but Me you do not have always." ## The Plot to Kill Lazarus 
@@ -79,7 +79,7 @@ Philip came and told Andrew, and in turn Andrew and Philip told Jesus.
 But Jesus answered them, saying, "The hour has come that the Son of Man should be glorified. 
 
 ###### 24 
-Most assuredly, I say to you, unless a grain of wheat falls into the ground and dies, it remains alone; but if it dies, it produces much [^d]grain. 
+Most assuredly, I say to you, unless a grain of wheat falls into the ground and dies, it remains alone; but if it dies, it produces much grain. 
 
 ###### 25 
 He who loves his life will lose it, and he who hates his life in this world will keep it for eternal life. 
@@ -103,7 +103,7 @@ Jesus answered and said, "This voice did not come because of Me, but for your sa
 Now is the judgment of this world; now the ruler of this world will be cast out. 
 
 ###### 32 
-And I, if I am [^e]lifted up from the earth, will draw all _peoples_ to Myself." 
+And I, if I am lifted up from the earth, will draw all _peoples_ to Myself." 
 
 ###### 33 
 This He said, signifying by what death He would die. 
@@ -130,7 +130,7 @@ Therefore they could not believe, because Isaiah said again:
 "He has blinded their eyes and hardened their hearts, Lest they should see with _their_ eyes, Lest they should understand with _their_ hearts and turn, So that I should heal them." 
 
 ###### 41 
-These things Isaiah said [^f]when he saw His glory and spoke of Him. ## Walk in the Light 
+These things Isaiah said when he saw His glory and spoke of Him. ## Walk in the Light 
 
 ###### 42 
 Nevertheless even among the rulers many believed in Him, but because of the Pharisees they did not confess _Him,_ lest they should be put out of the synagogue; 
@@ -148,7 +148,7 @@ And he who sees Me sees Him who sent Me.
 I have come _as_ a light into the world, that whoever believes in Me should not abide in darkness. 
 
 ###### 47 
-And if anyone hears My words and does not [^g]believe, I do not judge him; for I did not come to judge the world but to save the world. 
+And if anyone hears My words and does not believe, I do not judge him; for I did not come to judge the world but to save the world. 
 
 ###### 48 
 He who rejects Me, and does not receive My words, has that which judges him--the word that I have spoken will judge him in the last day. 

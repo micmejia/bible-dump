@@ -22,7 +22,7 @@ saying, "Do not harm the earth, the sea, or the trees till we have sealed the se
 And I heard the number of those who were sealed. One hundred _and_ forty-four thousand of all the tribes of the children of Israel _were_ sealed: 
 
 ###### 5 
-of the tribe of Judah twelve thousand _were_ sealed; of the tribe of Reuben twelve thousand _were_ [^a]sealed; of the tribe of Gad twelve thousand _were_ sealed; 
+of the tribe of Judah twelve thousand _were_ sealed; of the tribe of Reuben twelve thousand _were_ sealed; of the tribe of Gad twelve thousand _were_ sealed; 
 
 ###### 6 
 of the tribe of Asher twelve thousand _were_ sealed; of the tribe of Naphtali twelve thousand _were_ sealed; of the tribe of Manasseh twelve thousand _were_ sealed; 
@@ -49,7 +49,7 @@ saying: "Amen! Blessing and glory and wisdom, Thanksgiving and honor and power a
 Then one of the elders answered, saying to me, "Who are these arrayed in white robes, and where did they come from?" 
 
 ###### 14 
-And I said to him, [^b]"Sir, you know." So he said to me, "These are the ones who come out of the great tribulation, and washed their robes and made them white in the blood of the Lamb. 
+And I said to him, "Sir, you know." So he said to me, "These are the ones who come out of the great tribulation, and washed their robes and made them white in the blood of the Lamb. 
 
 ###### 15 
 Therefore they are before the throne of God, and serve Him day and night in His temple. And He who sits on the throne will dwell among them. 
@@ -58,4 +58,4 @@ Therefore they are before the throne of God, and serve Him day and night in His 
 They shall neither hunger anymore nor thirst anymore; the sun shall not strike them, nor any heat; 
 
 ###### 17 
-for the Lamb who is in the midst of the throne will shepherd them and lead them to [^c]living fountains of waters. And God will wipe away every tear from their eyes."
+for the Lamb who is in the midst of the throne will shepherd them and lead them to living fountains of waters. And God will wipe away every tear from their eyes."

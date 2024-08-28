@@ -28,7 +28,7 @@ next: ['Mal 4']
 
 
 
-Behold, I send My [^a]messenger, and he shall prepare the way before Me. And the Lord [the Messiah], Whom you seek, will suddenly come to His temple; the [^b]Messenger _or_ Angel of the covenant, Whom you desire, behold, He shall come, says the Lord of hosts. 
+Behold, I send My messenger, and he shall prepare the way before Me. And the Lord [the Messiah], Whom you seek, will suddenly come to His temple; the Messenger _or_ Angel of the covenant, Whom you desire, behold, He shall come, says the Lord of hosts. 
 
 
 

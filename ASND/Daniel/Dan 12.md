@@ -39,7 +39,7 @@ up: ['Daniel']
 
 
 
-"Sa panahong iyon,[^a] darating si Micael, ang makapangyarihang pinuno[^b] na nagtatanggol sa iyong mga kababayan. Magiging mahirap ang kalagayan sa mga panahong iyon, at ang matinding kahirapang ito ay hindi pa nangyayari mula nang naging bansa ang Israel. Pero ililigtas sa paghihirap ang iyong mga kababayan na ang mga pangalan ay nakasulat sa aklat.[^c] 
+"Sa panahong iyon, darating si Micael, ang makapangyarihang pinuno na nagtatanggol sa iyong mga kababayan. Magiging mahirap ang kalagayan sa mga panahong iyon, at ang matinding kahirapang ito ay hindi pa nangyayari mula nang naging bansa ang Israel. Pero ililigtas sa paghihirap ang iyong mga kababayan na ang mga pangalan ay nakasulat sa aklat. 
 
 
 
@@ -303,7 +303,7 @@ Hindi ko naintindihan ang kanyang sagot kaya tinanong ko siya, "Ano po ba ang ka
 
 
 
-Sumagot siya, "Sige na,[^d] Daniel, <i class="trans-change">hayaan mo na iyon_, dahil ang sagot sa tanong moʼy mananatiling lihim at hindi maaaring sabihin hanggang sa dumating ang katapusan. 
+Sumagot siya, "Sige na, Daniel, <i class="trans-change">hayaan mo na iyon_, dahil ang sagot sa tanong moʼy mananatiling lihim at hindi maaaring sabihin hanggang sa dumating ang katapusan. 
 
 
 

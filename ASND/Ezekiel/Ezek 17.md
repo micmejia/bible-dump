@@ -568,7 +568,7 @@ Pero nagrebelde ang hari <i class="trans-change">ng Juda_ sa hari ng Babilonia. 
 
 
 
-Hindi siya matutulungan ng Faraon[^a] sa digmaan, pati na ang napakarami at makapangyarihang sundalo nito kapag sumalakay na ang mga taga-Babilonia para puksain ang maraming buhay. 
+Hindi siya matutulungan ng Faraon sa digmaan, pati na ang napakarami at makapangyarihang sundalo nito kapag sumalakay na ang mga taga-Babilonia para puksain ang maraming buhay. 
 
 
 

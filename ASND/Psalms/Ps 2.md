@@ -205,7 +205,7 @@ Sa galit ng Dios, silaʼy binigyang babala, at sa tindi ng kanyang poot silaʼy 
 
 
 
-Sinabi niya, "Iniluklok ko na ang hinirang kong hari sa kanyang trono sa Zion,[^a] sa banal kong bundok." 
+Sinabi niya, "Iniluklok ko na ang hinirang kong hari sa kanyang trono sa Zion, sa banal kong bundok." 
 
 
 
@@ -238,7 +238,7 @@ Sinabi niya, "Iniluklok ko na ang hinirang kong hari sa kanyang trono sa Zion,[^
 
 
 
-<i class="trans-change">Sinabi ng hari na hinirang ng Dios_, "Sasabihin ko ang sinabi sa akin ng Panginoon: 'Ikaw ang Anak ko, at ngayon, ipapahayag ko na ako ang iyong Ama.[^b] 
+<i class="trans-change">Sinabi ng hari na hinirang ng Dios_, "Sasabihin ko ang sinabi sa akin ng Panginoon: 'Ikaw ang Anak ko, at ngayon, ipapahayag ko na ako ang iyong Ama. 
 
 
 

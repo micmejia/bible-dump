@@ -25,7 +25,7 @@ Just as I was in the days of my prime, When the friendly counsel of God _was_ ov
 When the Almighty _was_ yet with me, _When_ my children _were_ around me; 
 
 ###### 6 
-When my steps were bathed with [^a]cream, And the rock poured out rivers of oil for me! 
+When my steps were bathed with cream, And the rock poured out rivers of oil for me! 
 
 ###### 7 
 "When I went out to the gate by the city, _When_ I took my seat in the open square, 

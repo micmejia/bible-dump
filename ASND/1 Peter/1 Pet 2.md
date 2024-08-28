@@ -205,7 +205,7 @@ kayo na tulad din ng batong buhay ay itinatayo ng Dios bilang isang gusaling esp
 
 
 
-Sapagkat sinasabi <i class="trans-change">ng Dios_ sa Kasulatan, "May pinili akong maghahari sa Zion. Tulad niyaʼy mahalagang bato na ginawa kong pundasyon. Ang sumasampalataya sa kanya ay hindi mapapahiya."[^a] 
+Sapagkat sinasabi <i class="trans-change">ng Dios_ sa Kasulatan, "May pinili akong maghahari sa Zion. Tulad niyaʼy mahalagang bato na ginawa kong pundasyon. Ang sumasampalataya sa kanya ay hindi mapapahiya." 
 
 
 
@@ -238,7 +238,7 @@ Sapagkat sinasabi <i class="trans-change">ng Dios_ sa Kasulatan, "May pinili ako
 
 
 
-Kaya kayong sumasampalataya ay pararangalan ng Dios. Ngunit sa taong hindi sumasampalataya ay naganap ang sinasabi sa Kasulatan, "Ang batong itinakwil ng mga tagapagtayo ay siyang naging batong pundasyon."[^b] 
+Kaya kayong sumasampalataya ay pararangalan ng Dios. Ngunit sa taong hindi sumasampalataya ay naganap ang sinasabi sa Kasulatan, "Ang batong itinakwil ng mga tagapagtayo ay siyang naging batong pundasyon." 
 
 
 
@@ -271,7 +271,7 @@ Kaya kayong sumasampalataya ay pararangalan ng Dios. Ngunit sa taong hindi sumas
 
 
 
-"Ang batong ito ay naging katitisuran sa mga tao, at nakakapagpadapa sa kanila."[^c] Natitisod sila dahil ayaw nilang sundin ang salita ng Dios; ganoon ang nakatalaga para sa kanila. 
+"Ang batong ito ay naging katitisuran sa mga tao, at nakakapagpadapa sa kanila." Natitisod sila dahil ayaw nilang sundin ang salita ng Dios; ganoon ang nakatalaga para sa kanila. 
 
 
 

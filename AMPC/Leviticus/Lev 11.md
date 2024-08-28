@@ -49,7 +49,7 @@ And the Lord said to Moses and Aaron,
 
 
 
-Say to the Israelites: These are the animals [^a]which you may eat among all the beasts that are on the earth. 
+Say to the Israelites: These are the animals which you may eat among all the beasts that are on the earth. 
 
 
 

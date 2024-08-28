@@ -196,7 +196,7 @@ For He said, Surely they are My people, sons who will not lie [who will not deal
 
 
 
-In all their affliction He was afflicted, and the [^a]Angel of His presence saved them; in His love and in His pity He redeemed them; and He lifted them up and carried them all the days of old. 
+In all their affliction He was afflicted, and the Angel of His presence saved them; in His love and in His pity He redeemed them; and He lifted them up and carried them all the days of old. 
 
 
 

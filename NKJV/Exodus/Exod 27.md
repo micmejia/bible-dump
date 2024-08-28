@@ -67,7 +67,7 @@ The length of the court _shall be_ one hundred cubits, the width fifty throughou
 All the utensils of the tabernacle for all its service, all its pegs, and all the pegs of the court, _shall be_ of bronze. ## The Care of the Lampstand 
 
 ###### 20 
-"And you shall command the children of Israel that they bring you pure oil of pressed olives for the light, to cause the lamp to [^a]burn continually. 
+"And you shall command the children of Israel that they bring you pure oil of pressed olives for the light, to cause the lamp to burn continually. 
 
 ###### 21 
 In the tabernacle of meeting, outside the veil which _is_ before the Testimony, Aaron and his sons shall tend it from evening until morning before the Lord. _It shall be_ a statute forever to their generations on behalf of the children of Israel.

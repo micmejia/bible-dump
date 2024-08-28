@@ -13,7 +13,7 @@ next: ['Acts 4']
 Now Peter and John went up together to the temple at the hour of prayer, the ninth _hour._ 
 
 ###### 2 
-And a certain man lame from his mother's womb was carried, whom they laid daily at the gate of the temple which is called Beautiful, to [^a]ask alms from those who entered the temple; 
+And a certain man lame from his mother's womb was carried, whom they laid daily at the gate of the temple which is called Beautiful, to ask alms from those who entered the temple; 
 
 ###### 3 
 who, seeing Peter and John about to go into the temple, asked for alms. 
@@ -52,7 +52,7 @@ The God of Abraham, Isaac, and Jacob, the God of our fathers, glorified His Serv
 But you denied the Holy One and the Just, and asked for a murderer to be granted to you, 
 
 ###### 15 
-and killed the [^b]Prince of life, whom God raised from the dead, of which we are witnesses. 
+and killed the Prince of life, whom God raised from the dead, of which we are witnesses. 
 
 ###### 16 
 And His name, through faith in His name, has made this man strong, whom you see and know. Yes, the faith which _comes_ through Him has given him this perfect soundness in the presence of you all. 
@@ -67,10 +67,10 @@ But those things which God foretold by the mouth of all His prophets, that the C
 Repent therefore and be converted, that your sins may be blotted out, so that times of refreshing may come from the presence of the Lord, 
 
 ###### 20 
-and that He may send [^c]Jesus Christ, who was [^d]preached to you before, 
+and that He may send Jesus Christ, who was preached to you before, 
 
 ###### 21 
-whom heaven must receive until the times of restoration of all things, which God has spoken by the mouth of all His holy prophets since [^e]the world began. 
+whom heaven must receive until the times of restoration of all things, which God has spoken by the mouth of all His holy prophets since the world began. 
 
 ###### 22 
 For Moses truly said to the fathers, 'The Lord your God will raise up for you a Prophet like me from your brethren. Him you shall hear in all things, whatever He says to you. 
@@ -79,7 +79,7 @@ For Moses truly said to the fathers, 'The Lord your God will raise up for you a 
 And it shall be _that_ every soul who will not hear that Prophet shall be utterly destroyed from among the people.' 
 
 ###### 24 
-Yes, and all the prophets, from Samuel and those who follow, as many as have spoken, have also [^f]foretold these days. 
+Yes, and all the prophets, from Samuel and those who follow, as many as have spoken, have also foretold these days. 
 
 ###### 25 
 You are sons of the prophets, and of the covenant which God made with our fathers, saying to Abraham, 'And in your seed all the families of the earth shall be blessed.' 

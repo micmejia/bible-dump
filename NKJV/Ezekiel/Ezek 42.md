@@ -25,7 +25,7 @@ In front of the chambers, toward the inside, _was_ a walk ten cubits wide, at a 
 Now the upper chambers _were_ shorter, because the galleries took away _space_ from them more than from the lower and middle stories of the building. 
 
 ###### 6 
-For they _were_ in three _stories_ and did not have pillars like the pillars of the courts; therefore _the upper level_ was [^a]shortened more than the lower and middle levels from the ground up. 
+For they _were_ in three _stories_ and did not have pillars like the pillars of the courts; therefore _the upper level_ was shortened more than the lower and middle levels from the ground up. 
 
 ###### 7 
 And a wall which _was_ outside ran parallel to the chambers, at the front of the chambers, toward the outer court; its length _was_ fifty cubits. 
@@ -52,10 +52,10 @@ Then he said to me, "The north chambers _and_ the south chambers, which _are_ op
 When the priests enter them, they shall not go out of the holy _chamber_ into the outer court; but there they shall leave their garments in which they minister, for they _are_ holy. They shall put on other garments; then they may approach _that_ which _is_ for the people." ## Outer Dimensions of the Temple 
 
 ###### 15 
-Now when he had finished measuring the inner [^b]temple, he brought me out through the gateway that faces toward the east, and measured it all around. 
+Now when he had finished measuring the inner temple, he brought me out through the gateway that faces toward the east, and measured it all around. 
 
 ###### 16 
-He measured the east side with the [^c]measuring rod, five hundred rods by the measuring rod all around. 
+He measured the east side with the measuring rod, five hundred rods by the measuring rod all around. 
 
 ###### 17 
 He measured the north side, five hundred rods by the measuring rod all around. 
@@ -67,4 +67,4 @@ He measured the south side, five hundred rods by the measuring rod.
 He came around to the west side _and_ measured five hundred rods by the measuring rod. 
 
 ###### 20 
-He measured it on the four sides; it had a wall all around, five hundred _cubits_ long and five hundred wide, to separate the holy areas from the [^d]common.
+He measured it on the four sides; it had a wall all around, five hundred _cubits_ long and five hundred wide, to separate the holy areas from the common.

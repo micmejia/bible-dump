@@ -40,7 +40,7 @@ next: ['Neh 4']
 
 
 
-Itinayo ni Eliashib na punong pari at ng mga kasamahan niyang pari ang pintuan na tinatawag na Tupa. Matapos nilang ikabit ang pintuan, itinalaga nila ito <i class="trans-change">sa Dios_. Itinayo rin nila at itinalaga ang mga pader hanggang sa Tore ng Isang Daan[^a] at sa Tore ni Hananel. 
+Itinayo ni Eliashib na punong pari at ng mga kasamahan niyang pari ang pintuan na tinatawag na Tupa. Matapos nilang ikabit ang pintuan, itinalaga nila ito <i class="trans-change">sa Dios_. Itinayo rin nila at itinalaga ang mga pader hanggang sa Tore ng Isang Daan at sa Tore ni Hananel. 
 
 
 
@@ -106,7 +106,7 @@ Ang nagtayo ng sumunod na bahagi ng pader ay ang mga taga-Jerico, at sumunod sa 
 
 
 
-Itinayo ng mga anak ni Hasena ang pintuan na tinatawag na Isda.[^b] Nilagyan nila ito ng mga hamba, ikinabit ang mga pinto, at ginawan ng mga trangka. 
+Itinayo ng mga anak ni Hasena ang pintuan na tinatawag na Isda. Nilagyan nila ito ng mga hamba, ikinabit ang mga pinto, at ginawan ng mga trangka. 
 
 
 
@@ -205,7 +205,7 @@ At ang sumunod sa kanya ay mga taga-Tekoa. Ngunit ang mga pinuno nila ay hindi s
 
 
 
-Ang nagtayo ng Lumang Pintuan[^c] ay si Joyada na anak ni Pasea at si Meshulam na anak ni Besodeya. Nilagyan nila ito ng mga hamba, ikinabit ang mga pinto, at ginawan ng mga trangka. 
+Ang nagtayo ng Lumang Pintuan ay si Joyada na anak ni Pasea at si Meshulam na anak ni Besodeya. Nilagyan nila ito ng mga hamba, ikinabit ang mga pinto, at ginawan ng mga trangka. 
 
 
 
@@ -535,7 +535,7 @@ Ang nagtayo ng Pintuan ng Bukal ay ang anak ni Col Hoze na si Shalum, na pinuno 
 
 
 
-Ang sumunod sa kanya ay ang anak ni Azbuk na si Nehemias, na pinuno ng kalahating distrito ng Bet Zur. Itinayo niya ang pader na nakaharap sa libingan[^d] ni David hanggang sa pinag-iimbakan ng tubig at sa kampo ng mga sundalo. 
+Ang sumunod sa kanya ay ang anak ni Azbuk na si Nehemias, na pinuno ng kalahating distrito ng Bet Zur. Itinayo niya ang pader na nakaharap sa libingan ni David hanggang sa pinag-iimbakan ng tubig at sa kampo ng mga sundalo. 
 
 
 
@@ -601,7 +601,7 @@ Ang nagtayo ng sumunod na bahagi ng pader ay ang mga Levita na pinamumunuan ni R
 
 
 
-Ang sumunod sa kanya ay ang mga kababayan niya na pinamumunuan ng anak ni Henadad na si Binui,[^e] na pinuno ng kalahating distrito ng Keila. 
+Ang sumunod sa kanya ay ang mga kababayan niya na pinamumunuan ng anak ni Henadad na si Binui, na pinuno ng kalahating distrito ng Keila. 
 
 
 

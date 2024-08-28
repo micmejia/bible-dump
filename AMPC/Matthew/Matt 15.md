@@ -322,7 +322,7 @@ Let them alone _and_ disregard them; they are blind guides _and_ teachers. And i
 
 
 
-But Peter said to Him, Explain this [^a]proverb (this [^b]maxim) to us. 
+But Peter said to Him, Explain this proverb (this maxim) to us. 
 
 
 
@@ -343,7 +343,7 @@ But Peter said to Him, Explain this [^a]proverb (this [^b]maxim) to us.
 
 
 
-And He said, Are you also even yet dull _and_ ignorant [without understanding and [^c]unable to put things together]? 
+And He said, Are you also even yet dull _and_ ignorant [without understanding and unable to put things together]? 
 
 
 
@@ -364,7 +364,7 @@ And He said, Are you also even yet dull _and_ ignorant [without understanding an
 
 
 
-Do you not see _and_ understand that whatever goes into the mouth passes into the [^d]abdomen and so passes on into the place where discharges are deposited? 
+Do you not see _and_ understand that whatever goes into the mouth passes into the abdomen and so passes on into the place where discharges are deposited? 
 
 
 
@@ -553,7 +553,7 @@ But she came and, kneeling, worshiped Him and kept praying, Lord, help me!
 
 
 
-And He answered, It is not right (proper, becoming, or fair) to take the children's bread and throw it to the [^e]little dogs. 
+And He answered, It is not right (proper, becoming, or fair) to take the children's bread and throw it to the little dogs. 
 
 
 
@@ -574,7 +574,7 @@ And He answered, It is not right (proper, becoming, or fair) to take the childre
 
 
 
-She said, Yes, Lord, yet even the little pups ([^f]little whelps) eat the crumbs that fall from their [young] masters' table. 
+She said, Yes, Lord, yet even the little pups (little whelps) eat the crumbs that fall from their [young] masters' table. 
 
 
 
@@ -595,7 +595,7 @@ She said, Yes, Lord, yet even the little pups ([^f]little whelps) eat the crumbs
 
 
 
-Then Jesus answered her, O woman, great is your faith! Be it done for you as you wish. And her daughter was cured from that [^g]moment. 
+Then Jesus answered her, O woman, great is your faith! Be it done for you as you wish. And her daughter was cured from that moment. 
 
 
 
@@ -658,7 +658,7 @@ And a great multitude came to Him, bringing with them the lame, the maimed, the 
 
 
 
-So that the crowd was amazed when they saw the dumb speaking, the maimed made whole, the lame walking, and the blind seeing; and they [^h]recognized _and_ praised _and_ thanked _and_ glorified the God of Israel. 
+So that the crowd was amazed when they saw the dumb speaking, the maimed made whole, the lame walking, and the blind seeing; and they recognized _and_ praised _and_ thanked _and_ glorified the God of Israel. 
 
 
 
@@ -784,7 +784,7 @@ He took the seven loaves and the fish, and when He had given thanks, He broke th
 
 
 
-And they all ate and were satisfied. And they gathered up seven [[^i]large provision] baskets full of the broken pieces that were left over. 
+And they all ate and were satisfied. And they gathered up seven [large provision] baskets full of the broken pieces that were left over. 
 
 
 

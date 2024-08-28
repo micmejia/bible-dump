@@ -22,7 +22,7 @@ But He answered and said to them, "I also will ask you one thing, and answer Me:
 The baptism of John--was it from heaven or from men?" 
 
 ###### 5 
-And they reasoned among themselves, saying, "If we say, 'From heaven,' He will say, 'Why [^a]then did you not believe him?' 
+And they reasoned among themselves, saying, "If we say, 'From heaven,' He will say, 'Why then did you not believe him?' 
 
 ###### 6 
 But if we say, 'From men,' all the people will stone us, for they are persuaded that John was a prophet." 
@@ -34,10 +34,10 @@ So they answered that they did not know where _it was_ from.
 And Jesus said to them, "Neither will I tell you by what authority I do these things." ## The Parable of the Wicked Vinedressers 
 
 ###### 9 
-Then He began to tell the people this parable: "A certain man planted a vineyard, leased it to [^b]vinedressers, and went into a far country for a long time. 
+Then He began to tell the people this parable: "A certain man planted a vineyard, leased it to vinedressers, and went into a far country for a long time. 
 
 ###### 10 
-Now at [^c]vintage-time he sent a servant to the vinedressers, that they might give him some of the fruit of the vineyard. But the vinedressers beat him and sent _him_ away empty-handed. 
+Now at vintage-time he sent a servant to the vinedressers, that they might give him some of the fruit of the vineyard. But the vinedressers beat him and sent _him_ away empty-handed. 
 
 ###### 11 
 Again he sent another servant; and they beat him also, treated _him_ shamefully, and sent _him_ away empty-handed. 
@@ -64,7 +64,7 @@ Then He looked at them and said, "What then is this that is written: 'The stone 
 Whoever falls on that stone will be broken; but on whomever it falls, it will grind him to powder." 
 
 ###### 19 
-And the chief priests and the scribes that very hour sought to lay hands on Him, but they [^d]feared the people--for they knew He had spoken this parable against them. ## The Pharisees: Is It Lawful to Pay Taxes to Caesar? 
+And the chief priests and the scribes that very hour sought to lay hands on Him, but they feared the people--for they knew He had spoken this parable against them. ## The Pharisees: Is It Lawful to Pay Taxes to Caesar? 
 
 ###### 20 
 So they watched _Him,_ and sent spies who pretended to be righteous, that they might seize on His words, in order to deliver Him to the power and the authority of the governor. 
@@ -76,13 +76,13 @@ Then they asked Him, saying, "Teacher, we know that You say and teach rightly, a
 Is it lawful for us to pay taxes to Caesar or not?" 
 
 ###### 23 
-But He perceived their craftiness, and said to them, [^e]"Why do you test Me? 
+But He perceived their craftiness, and said to them, "Why do you test Me? 
 
 ###### 24 
 Show Me a denarius. Whose image and inscription does it have?" They answered and said, "Caesar's." 
 
 ###### 25 
-And He said to them, "Render[^f] therefore to Caesar the things that are Caesar's, and to God the things that are God's." 
+And He said to them, "Render therefore to Caesar the things that are Caesar's, and to God the things that are God's." 
 
 ###### 26 
 But they could not catch Him in His words in the presence of the people. And they marveled at His answer and kept silent. ## The Sadducees: What About the Resurrection? 
@@ -97,10 +97,10 @@ saying: "Teacher, Moses wrote to us _that_ if a man's brother dies, having a wif
 Now there were seven brothers. And the first took a wife, and died without children. 
 
 ###### 30 
-And the second [^g]took her as wife, and he died childless. 
+And the second took her as wife, and he died childless. 
 
 ###### 31 
-Then the third took her, and in like manner the seven [^h]also; and they left no children, and died. 
+Then the third took her, and in like manner the seven also; and they left no children, and died. 
 
 ###### 32 
 Last of all the woman died also. 

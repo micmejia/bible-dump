@@ -196,7 +196,7 @@ As it is written, God gave them a spirit (an attitude) of stupor, eyes that shou
 
 
 
-And David says, Let their table (their feasting, banqueting) become a snare and a trap, a pitfall and a [^a]just retribution [[^b]rebounding like a boomerang upon them]; 
+And David says, Let their table (their feasting, banqueting) become a snare and a trap, a pitfall and a just retribution [rebounding like a boomerang upon them]; 
 
 
 
@@ -532,7 +532,7 @@ For if you have been cut from what is by nature a wild olive tree, and against n
 
 
 
-Lest you be self-opinionated (wise in your own conceits), I do not want you to miss this hidden truth _and_ mystery, brethren: a hardening (insensibility) has [temporarily] befallen a part of Israel [to last] until the [^c]full number of the ingathering of the Gentiles has come in, 
+Lest you be self-opinionated (wise in your own conceits), I do not want you to miss this hidden truth _and_ mystery, brethren: a hardening (insensibility) has [temporarily] befallen a part of Israel [to last] until the full number of the ingathering of the Gentiles has come in, 
 
 
 

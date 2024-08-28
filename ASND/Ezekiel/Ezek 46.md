@@ -73,7 +73,7 @@ Sinabi pa ng Panginoong Dios, "Ang daanan papunta sa bakuran sa loob na nakahara
 
 
 
-Ang pinuno ay dadaan sa balkonahe ng daanang <i class="trans-change">nakaharap sa silangan_ at tatayo siya sa may pintuan habang ang pari ay nag-aalay ng kanyang handog na sinusunog at handog para sa mabuting relasyon.[^a] Ang pinuno ay sasamba sa akin doon sa may pintuan at pagkatapos ay lalabas siya, ngunit hindi isasara ang pintuan hanggang sa gumabi. 
+Ang pinuno ay dadaan sa balkonahe ng daanang <i class="trans-change">nakaharap sa silangan_ at tatayo siya sa may pintuan habang ang pari ay nag-aalay ng kanyang handog na sinusunog at handog para sa mabuting relasyon. Ang pinuno ay sasamba sa akin doon sa may pintuan at pagkatapos ay lalabas siya, ngunit hindi isasara ang pintuan hanggang sa gumabi. 
 
 
 
@@ -667,7 +667,7 @@ Pagkatapos, dinala ako ng tao sa banal na mga silid ng mga pari sa gawing timog.
 
 
 
-Sinabi niya sa akin, "Dito sa lugar na ito nagluluto ang mga pari ng handog na pambayad ng kasalanan,[^b] handog sa paglilinis, at handog ng pagpaparangal sa Panginoon. Dito sila magluluto para maiwasan nila ang pagdadala ng mga handog sa labas ng bulwagan. Sa ganitong paraan hindi maapektuhan ang mga tao sa kabanalan nito."[^c] <sup class="versenum">21-22</sup>Pagkatapos, dinala niya ako sa bulwagan sa labas, at ipinakita sa akin ang apat na sulok nito. Sa bawat sulok nito ay may maliliit na bakuran na 68 talampakan ang haba at 50 talampakan ang luwang, at pare-pareho ang laki nito. 
+Sinabi niya sa akin, "Dito sa lugar na ito nagluluto ang mga pari ng handog na pambayad ng kasalanan, handog sa paglilinis, at handog ng pagpaparangal sa Panginoon. Dito sila magluluto para maiwasan nila ang pagdadala ng mga handog sa labas ng bulwagan. Sa ganitong paraan hindi maapektuhan ang mga tao sa kabanalan nito." <sup class="versenum">21-22</sup>Pagkatapos, dinala niya ako sa bulwagan sa labas, at ipinakita sa akin ang apat na sulok nito. Sa bawat sulok nito ay may maliliit na bakuran na 68 talampakan ang haba at 50 talampakan ang luwang, at pare-pareho ang laki nito. 
 
 
 

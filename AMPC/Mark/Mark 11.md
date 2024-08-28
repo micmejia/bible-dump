@@ -196,7 +196,7 @@ And many [of the people] spread their garments on the road, and others [scattere
 
 
 
-And those who went before and those who followed cried out [ [^a]with a cry of happiness], Hosanna! [Be graciously inclined and propitious to Him!] Praised _and_ blessed is He Who comes in the name of the Lord! 
+And those who went before and those who followed cried out [ with a cry of happiness], Hosanna! [Be graciously inclined and propitious to Him!] Praised _and_ blessed is He Who comes in the name of the Lord! 
 
 
 
@@ -238,7 +238,7 @@ Praised _and_ blessed _in the name of the Lord_ is the coming kingdom of our fat
 
 
 
-And Jesus went into Jerusalem and entered the temple [[^b]enclosure]; and when He had looked around, surveying _and_ observing everything, as it was already late, He went out to Bethany together with the Twelve [apostles]. 
+And Jesus went into Jerusalem and entered the temple [enclosure]; and when He had looked around, surveying _and_ observing everything, as it was already late, He went out to Bethany together with the Twelve [apostles]. 
 
 
 
@@ -280,7 +280,7 @@ On the day following, when they had come away from Bethany, He was hungry.
 
 
 
-And seeing in the distance a fig tree [covered] with leaves, He went to see if He could find any [fruit] on it [[^c]for in the fig tree the fruit appears at the same time as the leaves]. But when He came up to it, He found nothing but leaves, for the fig season had not yet come. 
+And seeing in the distance a fig tree [covered] with leaves, He went to see if He could find any [fruit] on it [for in the fig tree the fruit appears at the same time as the leaves]. But when He came up to it, He found nothing but leaves, for the fig season had not yet come. 
 
 
 
@@ -322,7 +322,7 @@ And He said to it, No one ever again shall eat fruit from you. And His disciples
 
 
 
-And they came to Jerusalem. And He went into the temple [area, the [^d]porches and courts] and began to drive out those who sold and bought in the temple area, and He overturned the [[^e]four-footed] tables of the money changers and the seats of those who dealt in doves; 
+And they came to Jerusalem. And He went into the temple [area, the porches and courts] and began to drive out those who sold and bought in the temple area, and He overturned the [four-footed] tables of the money changers and the seats of those who dealt in doves; 
 
 
 
@@ -406,7 +406,7 @@ And the chief priests and the scribes heard [of this] and kept seeking some way 
 
 
 
-And when evening came on, _He and_ [^f]_His disciples_, as accustomed, went out of the city. 
+And when evening came on, _He and_ _His disciples_, as accustomed, went out of the city. 
 
 
 
@@ -532,7 +532,7 @@ For this reason I am telling you, whatever you ask for in prayer, believe (trust
 
 
 
-And whenever you stand praying, if you have anything against anyone, forgive him _and_ [^g]let it drop (leave it, let it go), in order that your Father Who is in heaven may also forgive you your [own] failings _and_ shortcomings _and_ let them drop. 
+And whenever you stand praying, if you have anything against anyone, forgive him _and_ let it drop (leave it, let it go), in order that your Father Who is in heaven may also forgive you your [own] failings _and_ shortcomings _and_ let them drop. 
 
 
 
@@ -553,7 +553,7 @@ And whenever you stand praying, if you have anything against anyone, forgive him
 
 
 
-[^h]_But if you do not forgive, neither will your Father in heaven forgive your failings and shortcomings._ 
+_But if you do not forgive, neither will your Father in heaven forgive your failings and shortcomings._ 
 
 
 
@@ -574,7 +574,7 @@ And whenever you stand praying, if you have anything against anyone, forgive him
 
 
 
-And they came again to Jerusalem. And when Jesus was walking about in the [[^i]courts and porches of the] temple, the chief priests and the scribes and the elders came to Him, 
+And they came again to Jerusalem. And when Jesus was walking about in the [courts and porches of the] temple, the chief priests and the scribes and the elders came to Him, 
 
 
 

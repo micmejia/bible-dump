@@ -28,10 +28,10 @@ Then the Lord spoke to Moses, "Say to Aaron, 'Stretch out your hand with your ro
 So Aaron stretched out his hand over the waters of Egypt, and the frogs came up and covered the land of Egypt. 
 
 ###### 7 
-And the magicians did so with their [^a]enchantments, and brought up frogs on the land of Egypt. 
+And the magicians did so with their enchantments, and brought up frogs on the land of Egypt. 
 
 ###### 8 
-Then Pharaoh called for Moses and Aaron, and said, "Entreat[^b] the Lord that He may take away the frogs from me and from my people; and I will let the people go, that they may sacrifice to the Lord." 
+Then Pharaoh called for Moses and Aaron, and said, "Entreat the Lord that He may take away the frogs from me and from my people; and I will let the people go, that they may sacrifice to the Lord." 
 
 ###### 9 
 And Moses said to Pharaoh, "Accept the honor of saying when I shall intercede for you, for your servants, and for your people, to destroy the frogs from you and your houses, _that_ they may remain in the river only." 
@@ -55,16 +55,16 @@ They gathered them together in heaps, and the land stank.
 But when Pharaoh saw that there was relief, he hardened his heart and did not heed them, as the Lord had said. ## The Third Plague: Lice 
 
 ###### 16 
-So the Lord said to Moses, "Say to Aaron, 'Stretch out your rod, and strike the dust of the land, so that it may become [^c]lice throughout all the land of Egypt.' " 
+So the Lord said to Moses, "Say to Aaron, 'Stretch out your rod, and strike the dust of the land, so that it may become lice throughout all the land of Egypt.' " 
 
 ###### 17 
 And they did so. For Aaron stretched out his hand with his rod and struck the dust of the earth, and it became lice on man and beast. All the dust of the land became lice throughout all the land of Egypt. 
 
 ###### 18 
-Now the magicians so worked with their [^d]enchantments to bring forth lice, but they could not. So there were lice on man and beast. 
+Now the magicians so worked with their enchantments to bring forth lice, but they could not. So there were lice on man and beast. 
 
 ###### 19 
-Then the magicians said to Pharaoh, "This _is_ the[^e] finger of God." But Pharaoh's heart grew hard, and he did not heed them, just as the Lord had said. ## The Fourth Plague: Flies 
+Then the magicians said to Pharaoh, "This _is_ the finger of God." But Pharaoh's heart grew hard, and he did not heed them, just as the Lord had said. ## The Fourth Plague: Flies 
 
 ###### 20 
 And the Lord said to Moses, "Rise early in the morning and stand before Pharaoh as he comes out to the water. Then say to him, 'Thus says the Lord: "Let My people go, that they may serve Me. 
@@ -76,7 +76,7 @@ Or else, if you will not let My people go, behold, I will send swarms _of flies_
 And in that day I will set apart the land of Goshen, in which My people dwell, that no swarms _of flies_ shall be there, in order that you may know that I _am_ the Lord in the midst of the land. 
 
 ###### 23 
-I will [^f]make a difference between My people and your people. Tomorrow this sign shall be." ' " 
+I will make a difference between My people and your people. Tomorrow this sign shall be." ' " 
 
 ###### 24 
 And the Lord did so. Thick swarms _of flies_ came into the house of Pharaoh, _into_ his servants' houses, and into all the land of Egypt. The land was corrupted because of the swarms _of flies._ 
@@ -85,7 +85,7 @@ And the Lord did so. Thick swarms _of flies_ came into the house of Pharaoh, _in
 Then Pharaoh called for Moses and Aaron, and said, "Go, sacrifice to your God in the land." 
 
 ###### 26 
-And Moses said, "It is not right to do so, for we would be sacrificing the abomination of the Egyptians to the Lord our God. If we sacrifice the abomination of the Egyptians before their eyes, then will they not [^g]stone us? 
+And Moses said, "It is not right to do so, for we would be sacrificing the abomination of the Egyptians to the Lord our God. If we sacrifice the abomination of the Egyptians before their eyes, then will they not stone us? 
 
 ###### 27 
 We will go three days' journey into the wilderness and sacrifice to the Lord our God as He will command us." 

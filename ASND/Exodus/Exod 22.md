@@ -271,7 +271,7 @@ Kung ang baka o asno o tupa na ninakaw niya ay nasa kanya pa, babayaran niya ito
 
 
 
-Pero kung hindi nahuli ang magnanakaw, haharap sa presensya ng Dios[^a] ang pinagpataguan para malaman kung kinuha niya o hindi ang ipinatago sa kanya. 
+Pero kung hindi nahuli ang magnanakaw, haharap sa presensya ng Dios ang pinagpataguan para malaman kung kinuha niya o hindi ang ipinatago sa kanya. 
 
 
 
@@ -304,7 +304,7 @@ Pero kung hindi nahuli ang magnanakaw, haharap sa presensya ng Dios[^a] ang pina
 
 
 
-"Kung may dalawang taong nagtatalo tungkol sa kung sino sa kanila ang may-ari ng isang pag-aari kagaya ng baka, asno, tupa, damit o kahit anong bagay, dapat nilang dalhin ang kaso nila sa presensya ng Dios.[^b] Ang taong nagkasala ayon sa desisyon ng Dios ay magbabayad ng doble sa <i class="trans-change">totoong_ may-ari. 
+"Kung may dalawang taong nagtatalo tungkol sa kung sino sa kanila ang may-ari ng isang pag-aari kagaya ng baka, asno, tupa, damit o kahit anong bagay, dapat nilang dalhin ang kaso nila sa presensya ng Dios. Ang taong nagkasala ayon sa desisyon ng Dios ay magbabayad ng doble sa <i class="trans-change">totoong_ may-ari. 
 
 
 
@@ -667,7 +667,7 @@ Kung hindi pumayag ang ama ng dalaga na ibigay ang kanyang anak na maging asawa 
 
 
 
-"Ang sinumang maghahandog sa ibang dios maliban sa akin ay kailangang patayin.[^c] 
+"Ang sinumang maghahandog sa ibang dios maliban sa akin ay kailangang patayin. 
 
 
 
@@ -700,7 +700,7 @@ Kung hindi pumayag ang ama ng dalaga na ibigay ang kanyang anak na maging asawa 
 
 
 
-"Huwag ninyong pagmamalupitan ang mga dayuhan[^d] dahil mga dayuhan din kayo noon sa Egipto. 
+"Huwag ninyong pagmamalupitan ang mga dayuhan dahil mga dayuhan din kayo noon sa Egipto. 
 
 
 
@@ -799,7 +799,7 @@ Kung gagawin ninyo ito, at humingi sila ng tulong sa akin, siguradong tutulungan
 
 
 
-Talagang magagalit ako sa inyo at papatayin ko kayo sa labanan.[^e] Mabibiyuda ang inyong mga asawa at mauulila ang inyong mga anak. 
+Talagang magagalit ako sa inyo at papatayin ko kayo sa labanan. Mabibiyuda ang inyong mga asawa at mauulila ang inyong mga anak. 
 
 
 

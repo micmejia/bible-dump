@@ -259,7 +259,7 @@ And if they are ashamed of all that they have done, make known to them the form 
 
 
 
-This is the law of the house [of the Lord]: The whole area round about on the top of the mountain [^a][Mount Moriah] shall be most holy, separated, _and_ set apart. Behold, this is the law of the house [of the Lord]. 
+This is the law of the house [of the Lord]: The whole area round about on the top of the mountain [Mount Moriah] shall be most holy, separated, _and_ set apart. Behold, this is the law of the house [of the Lord]. 
 
 
 

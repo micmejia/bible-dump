@@ -403,7 +403,7 @@ At kikilalanin ng lahat na si Jesu-Cristo ang Panginoon, sa ikapupuri ng Dios Am
 
 
 
-Mga minamahal, kung paanong lagi ninyo akong sinusunod noong magkakasama pa tayo, lalo sana kayong maging masunurin kahit ngayong malayo na ako sa inyo. Sikapin ninyong ipamuhay[^a] ang kaligtasang tinanggap nʼyo, <i class="trans-change">at gawin nʼyo ito_ nang may takot at paggalang <i class="trans-change">sa Dios_. 
+Mga minamahal, kung paanong lagi ninyo akong sinusunod noong magkakasama pa tayo, lalo sana kayong maging masunurin kahit ngayong malayo na ako sa inyo. Sikapin ninyong ipamuhay ang kaligtasang tinanggap nʼyo, <i class="trans-change">at gawin nʼyo ito_ nang may takot at paggalang <i class="trans-change">sa Dios_. 
 
 
 
@@ -535,7 +535,7 @@ para maging malinis kayo at walang kapintasang mga anak ng Dios sa gitna ng mga 
 
 
 
-habang pinaninindigan nʼyo[^b] ang salita na nagbibigay ng buhay <i class="trans-change">na walang hanggan_. At kung gagawin nʼyo ito, may maipagmamalaki ako sa pagbabalik ni Cristo, dahil alam kong hindi nasayang ang pagsisikap ko sa inyo. 
+habang pinaninindigan nʼyo ang salita na nagbibigay ng buhay <i class="trans-change">na walang hanggan_. At kung gagawin nʼyo ito, may maipagmamalaki ako sa pagbabalik ni Cristo, dahil alam kong hindi nasayang ang pagsisikap ko sa inyo. 
 
 
 
@@ -568,7 +568,7 @@ habang pinaninindigan nʼyo[^b] ang salita na nagbibigay ng buhay <i class="tran
 
 
 
-Ang paglilingkod ninyo na bunga ng inyong pananampalataya ay tulad sa isang handog. At kung kinakailangang ibuhos ko ang aking dugo[^c] sa handog na ito, maligaya pa rin ako at makikigalak sa inyo. 
+Ang paglilingkod ninyo na bunga ng inyong pananampalataya ay tulad sa isang handog. At kung kinakailangang ibuhos ko ang aking dugo sa handog na ito, maligaya pa rin ako at makikigalak sa inyo. 
 
 
 

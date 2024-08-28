@@ -25,7 +25,7 @@ For Mordecai _was_ great in the king's palace, and his fame spread throughout al
 Thus the Jews defeated all their enemies with the stroke of the sword, with slaughter and destruction, and did what they pleased with those who hated them. 
 
 ###### 6 
-And in Shushan[^a] the [^b]citadel the Jews killed and destroyed five hundred men. 
+And in Shushan the citadel the Jews killed and destroyed five hundred men. 
 
 ###### 7 
 Also Parshandatha, Dalphon, Aspatha, 
@@ -37,10 +37,10 @@ Poratha, Adalia, Aridatha,
 Parmashta, Arisai, Aridai, and Vajezatha-- 
 
 ###### 10 
-the ten sons of Haman the son of Hammedatha, the enemy of the Jews--they killed; but they did not lay a hand on the [^c]plunder. 
+the ten sons of Haman the son of Hammedatha, the enemy of the Jews--they killed; but they did not lay a hand on the plunder. 
 
 ###### 11 
-On that day the number of those who were killed in [^d]Shushan the [^e]citadel [^f]was brought to the king. 
+On that day the number of those who were killed in Shushan the citadel was brought to the king. 
 
 ###### 12 
 And the king said to Queen Esther, "The Jews have killed and destroyed five hundred men in Shushan the citadel, and the ten sons of Haman. What have they done in the rest of the king's provinces? Now what _is_ your petition? It shall be granted to you. Or what _is_ your further request? It shall be done." 
@@ -52,16 +52,16 @@ Then Esther said, "If it pleases the king, let it be granted to the Jews who _ar
 So the king commanded this to be done; the decree was issued in Shushan, and they hanged Haman's ten sons. 
 
 ###### 15 
-And the Jews who _were_ in [^g]Shushan gathered together again on the fourteenth day of the month of Adar and killed three hundred men at Shushan; but they did not lay a hand on the plunder. 
+And the Jews who _were_ in Shushan gathered together again on the fourteenth day of the month of Adar and killed three hundred men at Shushan; but they did not lay a hand on the plunder. 
 
 ###### 16 
 The remainder of the Jews in the king's provinces gathered together and protected their lives, had rest from their enemies, and killed seventy-five thousand of their enemies; but they did not lay a hand on the plunder. 
 
 ###### 17 
-_This was_ on the thirteenth day of the month of Adar. And on the fourteenth of [^h]_the month_ they rested and made it a day of feasting and gladness. ## The Feast of Purim 
+_This was_ on the thirteenth day of the month of Adar. And on the fourteenth of _the month_ they rested and made it a day of feasting and gladness. ## The Feast of Purim 
 
 ###### 18 
-But the Jews who _were_ at [^i]Shushan assembled together on the thirteenth _day,_ as well as on the fourteenth; and on the fifteenth of [^j]_the month_ they rested, and made it a day of feasting and gladness. 
+But the Jews who _were_ at Shushan assembled together on the thirteenth _day,_ as well as on the fourteenth; and on the fifteenth of _the month_ they rested, and made it a day of feasting and gladness. 
 
 ###### 19 
 Therefore the Jews of the villages who dwelt in the unwalled towns celebrated the fourteenth day of the month of Adar _with_ gladness and feasting, as a holiday, and for sending presents to one another. 
@@ -82,10 +82,10 @@ So the Jews accepted the custom which they had begun, as Mordecai had written to
 because Haman, the son of Hammedatha the Agagite, the enemy of all the Jews, had plotted against the Jews to annihilate them, and had cast Pur (that _is,_ the lot), to consume them and destroy them; 
 
 ###### 25 
-but when [^k]_Esther_ came before the king, he commanded by letter that [^l]this wicked plot which _Haman_ had devised against the Jews should return on his own head, and that he and his sons should be hanged on the gallows. 
+but when _Esther_ came before the king, he commanded by letter that this wicked plot which _Haman_ had devised against the Jews should return on his own head, and that he and his sons should be hanged on the gallows. 
 
 ###### 26 
-So they called these days Purim, after the name [^m]Pur. Therefore, because of all the words of this letter, what they had seen concerning this matter, and what had happened to them, 
+So they called these days Purim, after the name Pur. Therefore, because of all the words of this letter, what they had seen concerning this matter, and what had happened to them, 
 
 ###### 27 
 the Jews established and imposed it upon themselves and their descendants and all who would join them, that without fail they should celebrate these two days every year, according to the written _instructions_ and according to the _prescribed_ time, 

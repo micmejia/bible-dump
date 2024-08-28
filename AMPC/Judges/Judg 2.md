@@ -28,7 +28,7 @@ next: ['Judg 3']
 
 
 
-Now the [^a]Angel of the Lord went up from Gilgal to Bochim. And He said, I brought you up from Egypt and have brought you to the land which I swore to give to your fathers, and I said, I will never break My covenant with you; 
+Now the Angel of the Lord went up from Gilgal to Bochim. And He said, I brought you up from Egypt and have brought you to the land which I swore to give to your fathers, and I said, I will never break My covenant with you; 
 
 
 

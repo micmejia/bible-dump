@@ -72,7 +72,7 @@ Sa mga namumuno sa iglesya, may nais akong ipakiusap sa inyo bilang isa ring nam
 
 
 
-Alagaan ninyong mabuti ang mga mananampalatayang[^a] kasama ninyo. Katulad sila ng mga tupa at kayo ang mga tagapag-alaga nila. Dapat taos-puso ninyo silang pangalagaan, dahil ito ang nais ng Dios. Hindi dahil sa napipilitan lang kayo, o dahil sa may hinihintay kayong kapalit, kundi dahil sa nais talaga ninyong makatulong sa kanila. 
+Alagaan ninyong mabuti ang mga mananampalatayang kasama ninyo. Katulad sila ng mga tupa at kayo ang mga tagapag-alaga nila. Dapat taos-puso ninyo silang pangalagaan, dahil ito ang nais ng Dios. Hindi dahil sa napipilitan lang kayo, o dahil sa may hinihintay kayong kapalit, kundi dahil sa nais talaga ninyong makatulong sa kanila. 
 
 
 
@@ -171,7 +171,7 @@ At pagdating ni <i class="trans-change">Cristo na siyang_ Pangulong Tagapag-alag
 
 
 
-At kayo namang mga kabataan, magpasakop kayo sa matatanda. At kayong lahat <i class="trans-change">na mga mananampalataya_, magpakumbaba kayo at maglingkod sa isaʼt isa, dahil sinasabi sa Kasulatan, "Kinamumuhian ng Dios ang mga mapagmataas, ngunit kinakaawaan niya ang mga mapagpakumbaba."[^b] 
+At kayo namang mga kabataan, magpasakop kayo sa matatanda. At kayong lahat <i class="trans-change">na mga mananampalataya_, magpakumbaba kayo at maglingkod sa isaʼt isa, dahil sinasabi sa Kasulatan, "Kinamumuhian ng Dios ang mga mapagmataas, ngunit kinakaawaan niya ang mga mapagpakumbaba." 
 
 
 
@@ -468,4 +468,4 @@ Kinukumusta kayo ng mga mananampalataya sa Babilonia. Katulad nʼyo, mga pinili 
 
 
 
-Magbatian kayo bilang magkakapatid kay Cristo.[^c] Sa inyong lahat na nakay Cristo, sumainyo nawa ang kapayapaan.
+Magbatian kayo bilang magkakapatid kay Cristo. Sa inyong lahat na nakay Cristo, sumainyo nawa ang kapayapaan.

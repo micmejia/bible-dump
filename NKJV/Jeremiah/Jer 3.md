@@ -13,7 +13,7 @@ next: ['Jer 4']
 "They say, 'If a man divorces his wife, And she goes from him And becomes another man's, May he return to her again?' Would not that land be greatly polluted? But you have played the harlot with many lovers; Yet return to Me," says the Lord. 
 
 ###### 2 
-"Lift up your eyes to the desolate heights and see: Where have you not [^a]lain _with men?_ By the road you have sat for them Like an Arabian in the wilderness; And you have polluted the land With your harlotries and your wickedness. 
+"Lift up your eyes to the desolate heights and see: Where have you not lain _with men?_ By the road you have sat for them Like an Arabian in the wilderness; And you have polluted the land With your harlotries and your wickedness. 
 
 ###### 3 
 Therefore the showers have been withheld, And there has been no latter rain. You have had a harlot's forehead; You refuse to be ashamed. 
@@ -46,7 +46,7 @@ Then the Lord said to me, "Backsliding Israel has shown herself more righteous t
 Go and proclaim these words toward the north, and say: 'Return, backsliding Israel,' says the Lord; 'I will not cause My anger to fall on you. For I _am_ merciful,' says the Lord; 'I will not remain angry forever. 
 
 ###### 13 
-Only acknowledge your iniquity, That you have transgressed against the Lord your God, And have scattered your [^b]charms To alien deities under every green tree, And you have not obeyed My voice,' says the Lord. 
+Only acknowledge your iniquity, That you have transgressed against the Lord your God, And have scattered your charms To alien deities under every green tree, And you have not obeyed My voice,' says the Lord. 
 
 ###### 14 
 "Return, O backsliding children," says the Lord; "for I am married to you. I will take you, one from a city and two from a family, and I will bring you to Zion. 
@@ -58,7 +58,7 @@ And I will give you shepherds according to My heart, who will feed you with know
 "Then it shall come to pass, when you are multiplied and increased in the land in those days," says the Lord, "that they will say no more, 'The ark of the covenant of the Lord.' It shall not come to mind, nor shall they remember it, nor shall they visit _it,_ nor shall it be made anymore. 
 
 ###### 17 
-"At that time Jerusalem shall be called The Throne of the Lord, and all the nations shall be gathered to it, to the name of the Lord, to Jerusalem. No more shall they follow[^c] the dictates of their evil hearts. 
+"At that time Jerusalem shall be called The Throne of the Lord, and all the nations shall be gathered to it, to the name of the Lord, to Jerusalem. No more shall they follow the dictates of their evil hearts. 
 
 ###### 18 
 "In those days the house of Judah shall walk with the house of Israel, and they shall come together out of the land of the north to the land that I have given as an inheritance to your fathers. 
@@ -67,7 +67,7 @@ And I will give you shepherds according to My heart, who will feed you with know
 "But I said: 'How can I put you among the children And give you a pleasant land, A beautiful heritage of the hosts of nations?' "And I said: 'You shall call Me, "My Father," And not turn away from Me.' 
 
 ###### 20 
-Surely, _as_ a wife treacherously departs from her [^d]husband, So have you dealt treacherously with Me, O house of Israel," says the Lord. 
+Surely, _as_ a wife treacherously departs from her husband, So have you dealt treacherously with Me, O house of Israel," says the Lord. 
 
 ###### 21 
 A voice was heard on the desolate heights, Weeping _and_ supplications of the children of Israel. For they have perverted their way; They have forgotten the Lord their God. 
@@ -82,4 +82,4 @@ Truly, in vain _is salvation hoped for_ from the hills, _And from_ the multitude
 For shame has devoured The labor of our fathers from our youth-- Their flocks and their herds, Their sons and their daughters. 
 
 ###### 25 
-We lie down in our shame, And our [^e]reproach covers us. For we have sinned against the Lord our God, We and our fathers, From our youth even to this day, And have not obeyed the voice of the Lord our God."
+We lie down in our shame, And our reproach covers us. For we have sinned against the Lord our God, We and our fathers, From our youth even to this day, And have not obeyed the voice of the Lord our God."

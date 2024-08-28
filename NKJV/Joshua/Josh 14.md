@@ -31,13 +31,13 @@ Then the children of Judah came to Joshua in Gilgal. And Caleb the son of Jephun
 I _was_ forty years old when Moses the servant of the Lord sent me from Kadesh Barnea to spy out the land, and I brought back word to him as _it was_ in my heart. 
 
 ###### 8 
-Nevertheless my brethren who went up with me made the [^a]heart of the people melt, but I wholly followed the Lord my God. 
+Nevertheless my brethren who went up with me made the heart of the people melt, but I wholly followed the Lord my God. 
 
 ###### 9 
 So Moses swore on that day, saying, 'Surely the land where your foot has trodden shall be your inheritance and your children's forever, because you have wholly followed the Lord my God.' 
 
 ###### 10 
-And now, behold, the Lord has kept me alive, as He said, these forty-five years, ever since the Lord spoke this word to Moses while Israel [^b]wandered in the wilderness; and now, here I am this day, eighty-five years old. 
+And now, behold, the Lord has kept me alive, as He said, these forty-five years, ever since the Lord spoke this word to Moses while Israel wandered in the wilderness; and now, here I am this day, eighty-five years old. 
 
 ###### 11 
 As yet I _am as_ strong this day as on the day that Moses sent me; just as my strength _was_ then, so now _is_ my strength for war, both for going out and for coming in. 

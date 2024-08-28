@@ -271,7 +271,7 @@ Kaya <i class="trans-change">ako_, ang Panginoong Dios, ang nagsasabi nito sa in
 
 
 
-Natatakot kayo sa digmaan[^a] pero ipapalasap ko ito sa inyo. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito. 
+Natatakot kayo sa digmaan pero ipapalasap ko ito sa inyo. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito. 
 
 
 

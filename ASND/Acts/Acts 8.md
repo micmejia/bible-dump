@@ -865,7 +865,7 @@ Kaya umalis si Felipe, at doon ay nakita niya ang taong taga-Etiopia. Pauwi na i
 
 
 
-Nakasakay siya sa kanyang karwahe[^a] at nagbabasa ng aklat ni Propeta Isaias. 
+Nakasakay siya sa kanyang karwahe at nagbabasa ng aklat ni Propeta Isaias. 
 
 
 
@@ -1261,4 +1261,4 @@ Pagkaahon nila sa tubig, bigla na lang kinuha si Felipe ng Espiritu ng Panginoon
 
 
 
-Namalayan na lang ni Felipe na siyaʼy nasa lugar na ng Azotus.[^b] Nangaral siya ng Magandang Balita sa mga bayan na dinadaanan niya hanggang makarating siya sa Cesarea.
+Namalayan na lang ni Felipe na siyaʼy nasa lugar na ng Azotus. Nangaral siya ng Magandang Balita sa mga bayan na dinadaanan niya hanggang makarating siya sa Cesarea.

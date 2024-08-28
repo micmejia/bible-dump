@@ -25,10 +25,10 @@ Now Deborah, a prophetess, the wife of Lapidoth, was judging Israel at that time
 And she would sit under the palm tree of Deborah between Ramah and Bethel in the mountains of Ephraim. And the children of Israel came up to her for judgment. 
 
 ###### 6 
-Then she sent and called for Barak the son of Abinoam from Kedesh in Naphtali, and said to him, "Has not the Lord God of Israel commanded, 'Go and [^a]deploy _troops_ at Mount Tabor; take with you ten thousand men of the sons of Naphtali and of the sons of Zebulun; 
+Then she sent and called for Barak the son of Abinoam from Kedesh in Naphtali, and said to him, "Has not the Lord God of Israel commanded, 'Go and deploy _troops_ at Mount Tabor; take with you ten thousand men of the sons of Naphtali and of the sons of Zebulun; 
 
 ###### 7 
-and against you I will deploy Sisera, the commander of Jabin's army, with his chariots and his multitude at the River Kishon; and I will [^b]deliver him into your hand'?" 
+and against you I will deploy Sisera, the commander of Jabin's army, with his chariots and his multitude at the River Kishon; and I will deliver him into your hand'?" 
 
 ###### 8 
 And Barak said to her, "If you will go with me, then I will go; but if you will not go with me, I will not go!" 
@@ -37,7 +37,7 @@ And Barak said to her, "If you will go with me, then I will go; but if you will 
 So she said, "I will surely go with you; nevertheless there will be no glory for you in the journey you are taking, for the Lord will sell Sisera into the hand of a woman." Then Deborah arose and went with Barak to Kedesh. 
 
 ###### 10 
-And Barak called Zebulun and Naphtali to Kedesh; he went up with ten thousand men under[^c] his command, and Deborah went up with him. 
+And Barak called Zebulun and Naphtali to Kedesh; he went up with ten thousand men under his command, and Deborah went up with him. 
 
 ###### 11 
 Now Heber the Kenite, of the children of Hobab the father-in-law of Moses, had separated himself from the Kenites and pitched his tent near the terebinth tree at Zaanaim, which _is_ beside Kedesh. 
@@ -49,7 +49,7 @@ And they reported to Sisera that Barak the son of Abinoam had gone up to Mount T
 So Sisera gathered together all his chariots, nine hundred chariots of iron, and all the people who _were_ with him, from Harosheth Hagoyim to the River Kishon. 
 
 ###### 14 
-Then Deborah said to Barak, [^d]"Up! For this _is_ the day in which the Lord has delivered Sisera into your hand. Has not the Lord gone out before you?" So Barak went down from Mount Tabor with ten thousand men following him. 
+Then Deborah said to Barak, "Up! For this _is_ the day in which the Lord has delivered Sisera into your hand. Has not the Lord gone out before you?" So Barak went down from Mount Tabor with ten thousand men following him. 
 
 ###### 15 
 And the Lord routed Sisera and all _his_ chariots and all _his_ army with the edge of the sword before Barak; and Sisera alighted from _his_ chariot and fled away on foot. 
@@ -61,7 +61,7 @@ But Barak pursued the chariots and the army as far as Harosheth Hagoyim, and all
 However, Sisera had fled away on foot to the tent of Jael, the wife of Heber the Kenite; for _there was_ peace between Jabin king of Hazor and the house of Heber the Kenite. 
 
 ###### 18 
-And Jael went out to meet Sisera, and said to him, "Turn aside, my lord, turn aside to me; do not fear." And when he had turned aside with her into the tent, she covered him with a [^e]blanket. 
+And Jael went out to meet Sisera, and said to him, "Turn aside, my lord, turn aside to me; do not fear." And when he had turned aside with her into the tent, she covered him with a blanket. 
 
 ###### 19 
 Then he said to her, "Please give me a little water to drink, for I am thirsty." So she opened a jug of milk, gave him a drink, and covered him. 

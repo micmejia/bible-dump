@@ -196,7 +196,7 @@ When you bear (produce) much fruit, My Father is honored _and_ glorified, and yo
 
 
 
-I have loved you, [just] as the Father has loved Me; abide in My love [[^a]continue in His love with Me]. 
+I have loved you, [just] as the Father has loved Me; abide in My love [continue in His love with Me]. 
 
 
 
@@ -343,7 +343,7 @@ I do not call you servants (slaves) any longer, for the servant does not know wh
 
 
 
-You have not chosen Me, but I have chosen you and I have appointed you [I have planted you], that you might go and bear fruit _and_ keep on bearing, and that your fruit may be lasting [that it may remain, abide], so that whatever you ask the Father in My Name [as [^b]presenting all that I Am], He may give it to you. 
+You have not chosen Me, but I have chosen you and I have appointed you [I have planted you], that you might go and bear fruit _and_ keep on bearing, and that your fruit may be lasting [that it may remain, abide], so that whatever you ask the Father in My Name [as presenting all that I Am], He may give it to you. 
 
 
 

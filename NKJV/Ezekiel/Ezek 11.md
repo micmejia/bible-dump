@@ -13,10 +13,10 @@ next: ['Ezek 12']
 Then the Spirit lifted me up and brought me to the East Gate of the Lord's house, which faces eastward; and there at the door of the gate were twenty-five men, among whom I saw Jaazaniah the son of Azzur, and Pelatiah the son of Benaiah, princes of the people. 
 
 ###### 2 
-And He said to me: "Son of man, these _are_ the men who devise iniquity and give wicked [^a]counsel in this city, 
+And He said to me: "Son of man, these _are_ the men who devise iniquity and give wicked counsel in this city, 
 
 ###### 3 
-who say, '_The time is_ not near to build houses; this _city is_ the [^b]caldron, and we _are_ the meat.' 
+who say, '_The time is_ not near to build houses; this _city is_ the caldron, and we _are_ the meat.' 
 
 ###### 4 
 Therefore prophesy against them, prophesy, O son of man!" 
@@ -40,7 +40,7 @@ You have feared the sword; and I will bring a sword upon you," says the Lord God
 You shall fall by the sword. I will judge you at the border of Israel. Then you shall know that I _am_ the Lord. 
 
 ###### 11 
-This _city_ shall not be your [^c]caldron, nor shall you be the meat in its midst. I will judge you at the border of Israel. 
+This _city_ shall not be your caldron, nor shall you be the meat in its midst. I will judge you at the border of Israel. 
 
 ###### 12 
 And you shall know that I _am_ the Lord; for you have not walked in My statutes nor executed My judgments, but have done according to the customs of the Gentiles which _are_ all around you." ' " 
@@ -55,7 +55,7 @@ Again the word of the Lord came to me, saying,
 "Son of man, your brethren, your relatives, your countrymen, and all the house of Israel in its entirety, _are_ those about whom the inhabitants of Jerusalem have said, 'Get far away from the Lord; this land has been given to us as a possession.' 
 
 ###### 16 
-Therefore say, 'Thus says the Lord God: "Although I have cast them far off among the Gentiles, and although I have scattered them among the countries, yet I shall be a little [^d]sanctuary for them in the countries where they have gone." ' 
+Therefore say, 'Thus says the Lord God: "Although I have cast them far off among the Gentiles, and although I have scattered them among the countries, yet I shall be a little sanctuary for them in the countries where they have gone." ' 
 
 ###### 17 
 Therefore say, 'Thus says the Lord God: "I will gather you from the peoples, assemble you from the countries where you have been scattered, and I will give you the land of Israel." ' 
@@ -64,7 +64,7 @@ Therefore say, 'Thus says the Lord God: "I will gather you from the peoples, ass
 And they will go there, and they will take away all its detestable things and all its abominations from there. 
 
 ###### 19 
-Then I will give them one heart, and I will put a new spirit within [^e]them, and take the stony heart out of their flesh, and give them a heart of flesh, 
+Then I will give them one heart, and I will put a new spirit within them, and take the stony heart out of their flesh, and give them a heart of flesh, 
 
 ###### 20 
 that they may walk in My statutes and keep My judgments and do them; and they shall be My people, and I will be their God. 
@@ -79,7 +79,7 @@ So the cherubim lifted up their wings, with the wheels beside them, and the glor
 And the glory of the Lord went up from the midst of the city and stood on the mountain, which _is_ on the east side of the city. 
 
 ###### 24 
-Then the Spirit took me up and brought me in a vision by the Spirit of God into [^f]Chaldea, to those in captivity. And the vision that I had seen went up from me. 
+Then the Spirit took me up and brought me in a vision by the Spirit of God into Chaldea, to those in captivity. And the vision that I had seen went up from me. 
 
 ###### 25 
 So I spoke to those in captivity of all the things the Lord had shown me.

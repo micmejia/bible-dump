@@ -70,7 +70,7 @@ And He sent them out to announce _and_ preach the kingdom of God and to bring he
 
 
 
-And He said to them, Do not take anything for your journey--neither walking stick, nor [^a]wallet [for a collection bag], nor food of any kind, nor money, and do not have two undergarments (tunics). 
+And He said to them, Do not take anything for your journey--neither walking stick, nor wallet [for a collection bag], nor food of any kind, nor money, and do not have two undergarments (tunics). 
 
 
 
@@ -259,7 +259,7 @@ But when the crowds learned of it, [they] followed Him; and He welcomed them and
 
 
 
-Now the day began to decline, and the Twelve came and said to Him, Dismiss the crowds _and_ send them away, so that they may go to the neighboring hamlets _and_ villages and the surrounding country and find lodging and get a [^b]supply of provisions, for we are here in an uninhabited (barren, solitary) place. 
+Now the day began to decline, and the Twelve came and said to Him, Dismiss the crowds _and_ send them away, so that they may go to the neighboring hamlets _and_ villages and the surrounding country and find lodging and get a supply of provisions, for we are here in an uninhabited (barren, solitary) place. 
 
 
 
@@ -364,7 +364,7 @@ And taking the five loaves and the two fish, He looked up to heaven and [praisin
 
 
 
-And all the people ate and were satisfied. And they gathered up what remained over--twelve [[^c]small hand] baskets of broken pieces. 
+And all the people ate and were satisfied. And they gathered up what remained over--twelve [small hand] baskets of broken pieces. 
 
 
 
@@ -448,7 +448,7 @@ And He said to them, But who do you [yourselves] say that I am? And Peter replie
 
 
 
-But He strictly charged and sharply commanded them [[^d]under penalty] to tell this to no one [no one, [^e]whoever he might be], 
+But He strictly charged and sharply commanded them [under penalty] to tell this to no one [no one, whoever he might be], 
 
 
 
@@ -469,7 +469,7 @@ But He strictly charged and sharply commanded them [[^d]under penalty] to tell t
 
 
 
-Saying, The Son of Man must suffer many things and be [[^f]deliberately] disapproved _and_ repudiated _and_ rejected on the part of the elders and chief priests and scribes, and be put to death and on the third day be raised [again]. 
+Saying, The Son of Man must suffer many things and be [deliberately] disapproved _and_ repudiated _and_ rejected on the part of the elders and chief priests and scribes, and be put to death and on the third day be raised [again]. 
 
 
 
@@ -490,7 +490,7 @@ Saying, The Son of Man must suffer many things and be [[^f]deliberately] disappr
 
 
 
-And He said to all, If any person wills to come after Me, let him deny himself [[^g]disown himself, [^h]forget, lose sight of himself and his own interests, [^i]refuse and give up himself] and take up his cross daily and follow Me [[^j]cleave steadfastly to Me, conform wholly to My example in living and, if need be, in dying also]. 
+And He said to all, If any person wills to come after Me, let him deny himself [disown himself, forget, lose sight of himself and his own interests, refuse and give up himself] and take up his cross daily and follow Me [cleave steadfastly to Me, conform wholly to My example in living and, if need be, in dying also]. 
 
 
 
@@ -511,7 +511,7 @@ And He said to all, If any person wills to come after Me, let him deny himself [
 
 
 
-For whoever would preserve his life _and_ save it will lose _and_ destroy it, but whoever loses his life for My sake, he will preserve _and_ save it [[^k]from the penalty of eternal death]. 
+For whoever would preserve his life _and_ save it will lose _and_ destroy it, but whoever loses his life for My sake, he will preserve _and_ save it [from the penalty of eternal death]. 
 
 
 
@@ -553,7 +553,7 @@ For what does it profit a man, if he gains the whole world and ruins or forfeits
 
 
 
-Because whoever is ashamed of Me and of My teachings, of him will the Son of Man be ashamed when He comes in the [[^l]threefold] glory (the splendor and majesty) of Himself and of the Father and of the holy angels. 
+Because whoever is ashamed of Me and of My teachings, of him will the Son of Man be ashamed when He comes in the [threefold] glory (the splendor and majesty) of Himself and of the Father and of the holy angels. 
 
 
 
@@ -616,7 +616,7 @@ Now about eight days after these teachings, Jesus took with Him Peter and John a
 
 
 
-And as He was praying, the appearance of His countenance became altered (different), and His raiment became dazzling white [[^m]flashing with the brilliance of lightning]. 
+And as He was praying, the appearance of His countenance became altered (different), and His raiment became dazzling white [flashing with the brilliance of lightning]. 
 
 
 
@@ -742,7 +742,7 @@ But even as he was saying this, a cloud came and began to overshadow them, and t
 
 
 
-Then there came a voice out of the cloud, saying, This is My Son, My Chosen One _or_ [^n]_My Beloved_; listen to _and_ yield to _and_ obey Him! 
+Then there came a voice out of the cloud, saying, This is My Son, My Chosen One _or_ _My Beloved_; listen to _and_ yield to _and_ obey Him! 
 
 
 
@@ -868,7 +868,7 @@ And I implored Your disciples to drive it out, but they could not.
 
 
 
-Jesus answered, O [faithless ones] unbelieving _and_ without trust in God, a perverse ([^o]wayward, [^p]crooked and [^q]warped) generation! Until when _and_ how long am I to be with you and bear with you? Bring your son here [to Me]. 
+Jesus answered, O [faithless ones] unbelieving _and_ without trust in God, a perverse (wayward, crooked and warped) generation! Until when _and_ how long am I to be with you and bear with you? Bring your son here [to Me]. 
 
 
 
@@ -931,7 +931,7 @@ And all were astounded at the evidence of God's mighty power _and_ His majesty _
 
 
 
-Let these words sink into your ears: the Son of Man is about to be delivered into the hands of men [[^r]whose conduct is opposed to God]. 
+Let these words sink into your ears: the Son of Man is about to be delivered into the hands of men [whose conduct is opposed to God]. 
 
 
 
@@ -1141,7 +1141,7 @@ But [the people] would not welcome _or_ receive _or_ accept Him, because His fac
 
 
 
-And when His disciples James and John observed this, they said, Lord, do You wish us to command fire to come down from heaven and consume them, [^s]_even as Elijah did_? 
+And when His disciples James and John observed this, they said, Lord, do You wish us to command fire to come down from heaven and consume them, _even as Elijah did_? 
 
 
 
@@ -1162,7 +1162,7 @@ And when His disciples James and John observed this, they said, Lord, do You wis
 
 
 
-But He turned and rebuked _and_ severely censured them. [^t]_He said, You do not know of what sort of spirit you are,_ 
+But He turned and rebuked _and_ severely censured them. _He said, You do not know of what sort of spirit you are,_ 
 
 
 
@@ -1183,7 +1183,7 @@ But He turned and rebuked _and_ severely censured them. [^t]_He said, You do not
 
 
 
-_For the Son of Man did not come to destroy men's lives, but to save them_ [^u]_[from the penalty of eternal death]_. And they journeyed on to another village. 
+_For the Son of Man did not come to destroy men's lives, but to save them_ _[from the penalty of eternal death]_. And they journeyed on to another village. 
 
 
 
@@ -1246,7 +1246,7 @@ And Jesus told him, Foxes have lurking holes and the birds of the air have roost
 
 
 
-And He said to another, [^v]Become My disciple, side with My party, and accompany Me! But he replied, _Lord_, permit me first to go and bury ([^w]await the death of) my father. 
+And He said to another, Become My disciple, side with My party, and accompany Me! But he replied, _Lord_, permit me first to go and bury (await the death of) my father. 
 
 
 
@@ -1267,7 +1267,7 @@ And He said to another, [^v]Become My disciple, side with My party, and accompan
 
 
 
-But Jesus said to him, Allow the dead to bury their own dead; but as for you, go _and_ publish abroad [^x]throughout all regions the kingdom of God. 
+But Jesus said to him, Allow the dead to bury their own dead; but as for you, go _and_ publish abroad throughout all regions the kingdom of God. 
 
 
 

@@ -40,7 +40,7 @@ next: ['Isa 50']
 
 
 
-Makinig kayo sa akin, kayong mga naninirahan sa malalayong lugar:[^a] Hindi pa man ako isinilang, tinawag na ako ng Panginoon para maglingkod sa kanya. 
+Makinig kayo sa akin, kayong mga naninirahan sa malalayong lugar: Hindi pa man ako isinilang, tinawag na ako ng Panginoon para maglingkod sa kanya. 
 
 
 
@@ -205,7 +205,7 @@ Ang Panginoon ang pumili sa akin na maging lingkod niya, para pabalikin sa kanya
 
 
 
-Sinabi niya, "Ikaw na lingkod ko, marami pang mga gawain ang ipapagawa ko sa iyo, maliban sa pagpapabalik sa mga Israelita na aking kinakalinga. Gagawin pa kitang[^b] ilaw ng mga bansa para maligtas ang buong mundo."[^c] 
+Sinabi niya, "Ikaw na lingkod ko, marami pang mga gawain ang ipapagawa ko sa iyo, maliban sa pagpapabalik sa mga Israelita na aking kinakalinga. Gagawin pa kitang ilaw ng mga bansa para maligtas ang buong mundo." 
 
 
 
@@ -271,7 +271,7 @@ Ang Panginoon, ang Tagapagligtas at Banal na Dios ng Israel ay nagsabi sa taong 
 
 
 
-Ito ang sinabi ng Panginoon, "Sa tamang panahon[^d] ay tutugunin kita, sa araw ng pagliligtas ay tutulungan kita. Iingatan kita, at sa pamamagitan mo gagawa ako ng kasunduan sa mga tao. Muli mong itatayo ang lupain ng Israel na nawasak, at muli mo itong ibibigay sa aking mga mamamayan. 
+Ito ang sinabi ng Panginoon, "Sa tamang panahon ay tutugunin kita, sa araw ng pagliligtas ay tutulungan kita. Iingatan kita, at sa pamamagitan mo gagawa ako ng kasunduan sa mga tao. Muli mong itatayo ang lupain ng Israel na nawasak, at muli mo itong ibibigay sa aking mga mamamayan. 
 
 
 
@@ -403,7 +403,7 @@ Gagawin kong daanan ang aking mga bundok na kanilang dadaanan. Ang mga lugar na 
 
 
 
-Darating ang aking mga mamamayan mula sa malayo. Manggagaling ang iba sa hilaga, ang iba namaʼy sa kanluran, at ang ibaʼy galing pa sa Sinim."[^e] 
+Darating ang aking mga mamamayan mula sa malayo. Manggagaling ang iba sa hilaga, ang iba namaʼy sa kanluran, at ang ibaʼy galing pa sa Sinim." 
 
 
 
@@ -469,7 +469,7 @@ Umawit ka sa tuwa, O langit. At magalak ka, O mundo! Umawit kayo, kayong mga bun
 
 
 
-Pero sinabi ng mga taga-Jerusalem,[^f] "Pinabayaan na kami ng Panginoon; nakalimutan na niya kami." 
+Pero sinabi ng mga taga-Jerusalem, "Pinabayaan na kami ng Panginoon; nakalimutan na niya kami." 
 
 
 
@@ -568,7 +568,7 @@ Pero sinabi ng mga taga-Jerusalem,[^f] "Pinabayaan na kami ng Panginoon; nakalim
 
 
 
-Malapit nang dumating ang muling magtatayo sa iyo,[^g] at ang mga nagwasak sa iyo ay paaalisin na. 
+Malapit nang dumating ang muling magtatayo sa iyo, at ang mga nagwasak sa iyo ay paaalisin na. 
 
 
 
@@ -667,7 +667,7 @@ Nawasak ka at pinabayaang giba, pero ngayon ay titirhan ka na ng iyong mga mamam
 
 
 
-Sasabihin ng mga anak ninyong ipinanganak sa panahon ng inyong pagdadalamhati,[^h] 'Ang lugar na itoʼy napakaliit para sa amin. Kailangan namin ng mas malaking lugar.' 
+Sasabihin ng mga anak ninyong ipinanganak sa panahon ng inyong pagdadalamhati, 'Ang lugar na itoʼy napakaliit para sa amin. Kailangan namin ng mas malaking lugar.' 
 
 
 
@@ -700,7 +700,7 @@ Sasabihin ng mga anak ninyong ipinanganak sa panahon ng inyong pagdadalamhati,[^
 
 
 
-At sasabihin mo sa iyong sarili, 'Sino ang nanganak ng mga ito para sa akin? Namatay ang karamihan ng aking mga mamamayan,[^i] at dahil doon akoʼy nagluksa. Ang iba sa kanila ay binihag at dinala sa ibang bansa, at nag-iisa na lamang ako. Kaya saan galing ang mga ito? Sino ang nag-alaga sa kanila?' " 
+At sasabihin mo sa iyong sarili, 'Sino ang nanganak ng mga ito para sa akin? Namatay ang karamihan ng aking mga mamamayan, at dahil doon akoʼy nagluksa. Ang iba sa kanila ay binihag at dinala sa ibang bansa, at nag-iisa na lamang ako. Kaya saan galing ang mga ito? Sino ang nag-alaga sa kanila?' " 
 
 
 
@@ -733,7 +733,7 @@ At sasabihin mo sa iyong sarili, 'Sino ang nanganak ng mga ito para sa akin? Nam
 
 
 
-Ito ang sinabi ng Panginoong Dios: "Sesenyasan ko ang mga bansa at ibabalik nila sa iyo ang iyong mga mamamayan na parang mga sanggol na kanilang kinalinga.[^j] 
+Ito ang sinabi ng Panginoong Dios: "Sesenyasan ko ang mga bansa at ibabalik nila sa iyo ang iyong mga mamamayan na parang mga sanggol na kanilang kinalinga. 
 
 
 
@@ -766,7 +766,7 @@ Ito ang sinabi ng Panginoong Dios: "Sesenyasan ko ang mga bansa at ibabalik nila
 
 
 
-Maglilingkod sa iyo ang mga hari at mga reyna. Sila ang mag-aalaga sa iyo. Luluhod sila sa iyo <i class="trans-change">bilang paggalang,_ at magpapasakop sa iyo.[^k] Sa ganoon malalaman mong ako ang Panginoon, at ang mga nagtitiwala sa akin ay hindi mabibigo." 
+Maglilingkod sa iyo ang mga hari at mga reyna. Sila ang mag-aalaga sa iyo. Luluhod sila sa iyo <i class="trans-change">bilang paggalang,_ at magpapasakop sa iyo. Sa ganoon malalaman mong ako ang Panginoon, at ang mga nagtitiwala sa akin ay hindi mabibigo." 
 
 
 
@@ -799,7 +799,7 @@ Maglilingkod sa iyo ang mga hari at mga reyna. Sila ang mag-aalaga sa iyo. Luluh
 
 
 
-Mababawi mo pa ba ang mga sinamsam ng mga sundalong malulupit?[^l] Maililigtas pa ba ang mga binihag nila? 
+Mababawi mo pa ba ang mga sinamsam ng mga sundalong malulupit? Maililigtas pa ba ang mga binihag nila? 
 
 
 
@@ -832,7 +832,7 @@ Mababawi mo pa ba ang mga sinamsam ng mga sundalong malulupit?[^l] Maililigtas p
 
 
 
-Pero ito ang sagot ng Panginoon, "Oo, maililigtas mo pa ang mga binihag ng mga sundalong malulupit at mababawi mo pa ang mga sinamsam nila. Sapagkat lalabanan ko ang mga lumalaban sa iyo at ililigtas ko ang iyong mga mamamayan.[^m] 
+Pero ito ang sagot ng Panginoon, "Oo, maililigtas mo pa ang mga binihag ng mga sundalong malulupit at mababawi mo pa ang mga sinamsam nila. Sapagkat lalabanan ko ang mga lumalaban sa iyo at ililigtas ko ang iyong mga mamamayan. 
 
 
 

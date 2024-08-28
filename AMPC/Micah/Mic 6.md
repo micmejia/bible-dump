@@ -112,7 +112,7 @@ For I brought you up out of the land of Egypt and redeemed you out of the house 
 
 
 
-O My people, [earnestly] remember now what Balak king of Moab devised and what Balaam the son of Beor answered him; [remember what the Lord did for you] from [^a]Shittim to Gilgal, that you may know the righteous _and_ saving acts of the Lord. 
+O My people, [earnestly] remember now what Balak king of Moab devised and what Balaam the son of Beor answered him; [remember what the Lord did for you] from Shittim to Gilgal, that you may know the righteous _and_ saving acts of the Lord. 
 
 
 

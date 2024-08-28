@@ -73,7 +73,7 @@ Pagkatapos, nilibot ni Jesus ang mga bayan at mga nayon <i class="trans-change">
 
 
 
-at ilang babaeng pinagaling niya sa sakit o pinalaya sa masasamang espiritu. Kabilang dito si Maria na taga-Magdala[^a] na pinalaya niya mula sa pitong masasamang espiritu, 
+at ilang babaeng pinagaling niya sa sakit o pinalaya sa masasamang espiritu. Kabilang dito si Maria na taga-Magdala na pinalaya niya mula sa pitong masasamang espiritu, 
 
 
 
@@ -271,7 +271,7 @@ May mga binhi namang nahulog sa lupang may matitinik na damo. Sabay na tumubo an
 
 
 
-Ang iba namaʼy nahulog sa mabuting lupa. Tumubo ang mga ito at namunga nang napakarami."[^b] Pagkatapos, sinabi ni Jesus, "Kayong mga nakikinig, dapat nʼyo itong pag-isipan!"[^c] ## Ang Layunin ng mga Talinghaga 
+Ang iba namaʼy nahulog sa mabuting lupa. Tumubo ang mga ito at namunga nang napakarami." Pagkatapos, sinabi ni Jesus, "Kayong mga nakikinig, dapat nʼyo itong pag-isipan!" ## Ang Layunin ng mga Talinghaga 
 
 
 
@@ -337,7 +337,7 @@ Tinanong si Jesus ng mga tagasunod niya kung ano ang kahulugan ng talinghaga na 
 
 
 
-Sumagot si Jesus, "Ipinagkaloob sa inyo na malaman ang mga lihim tungkol sa paghahari ng Dios, ngunit sa ibaʼy ipinapahayag ito sa pamamagitan ng talinghaga, upang 'tumingin man silaʼy hindi makakita, at makinig man silaʼy hindi makaunawa.' "[^d] ## Ang Kahulugan ng Talinghaga tungkol sa Manghahasik 
+Sumagot si Jesus, "Ipinagkaloob sa inyo na malaman ang mga lihim tungkol sa paghahari ng Dios, ngunit sa ibaʼy ipinapahayag ito sa pamamagitan ng talinghaga, upang 'tumingin man silaʼy hindi makakita, at makinig man silaʼy hindi makaunawa.' " ## Ang Kahulugan ng Talinghaga tungkol sa Manghahasik 
 
 
 
@@ -568,7 +568,7 @@ Ngunit ang mabuting lupang hinasikan ng binhi ay ang mga taong nakikinig sa sali
 
 
 
-Ganoon din naman, walang natatagong hindi mahahayag at walang lihim na hindi malalaman at mabubunyag.[^e] 
+Ganoon din naman, walang natatagong hindi mahahayag at walang lihim na hindi malalaman at mabubunyag. 
 
 
 
@@ -799,7 +799,7 @@ Nang naglalayag na sila, nakatulog si Jesus. Maya-mayaʼy lumakas ang hangin at 
 
 
 
-Nilapitan si Jesus ng mga tagasunod niya at ginising, "Guro![^f] Guro! Lulubog na tayo!" Bumangon si Jesus at pinatigil ang <i class="trans-change">malakas na_ hangin at ang malalaking alon. Tumigil ang mga ito at biglang kumalma ang panahon. 
+Nilapitan si Jesus ng mga tagasunod niya at ginising, "Guro! Guro! Lulubog na tayo!" Bumangon si Jesus at pinatigil ang <i class="trans-change">malakas na_ hangin at ang malalaking alon. Tumigil ang mga ito at biglang kumalma ang panahon. 
 
 
 
@@ -865,7 +865,7 @@ Pagkatapos, tinanong ni Jesus ang mga tagasunod niya, "Nasaan ang pananampalatay
 
 
 
-Nagpatuloy sila sa paglalayag hanggang sa makarating sila sa lupain ng mga Geraseno[^g] na katapat ng Galilea. 
+Nagpatuloy sila sa paglalayag hanggang sa makarating sila sa lupain ng mga Geraseno na katapat ng Galilea. 
 
 
 
@@ -1228,7 +1228,7 @@ Ikinuwento sa kanila ng mga nakakita kung paano gumaling ang lalaking sinaniban 
 
 
 
-Nakiusap ang lahat ng Geraseno[^h] kay Jesus na umalis sa kanilang bayan dahil takot na takot sila. Kaya muling sumakay si Jesus sa bangka upang bumalik sa pinanggalingan niya. 
+Nakiusap ang lahat ng Geraseno kay Jesus na umalis sa kanilang bayan dahil takot na takot sila. Kaya muling sumakay si Jesus sa bangka upang bumalik sa pinanggalingan niya. 
 
 
 
@@ -1459,7 +1459,7 @@ May isang babae roon na 12 taon nang dinudugo at hindi mapagaling ng kahit sino.
 
 
 
-Nang makalapit siya sa likuran ni Jesus, hinipo niya ang laylayan[^i] ng damit ni Jesus, at biglang tumigil ang kanyang pagdurugo. 
+Nang makalapit siya sa likuran ni Jesus, hinipo niya ang laylayan ng damit ni Jesus, at biglang tumigil ang kanyang pagdurugo. 
 
 
 
@@ -1591,7 +1591,7 @@ Nang malaman ng babae na hindi pala lihim <i class="trans-change">kay Jesus_ ang
 
 
 
-Sinabi sa kanya ni Jesus, "Anak, pinagaling[^j] ka ng iyong pananampalataya. Umuwi kang mapayapa." 
+Sinabi sa kanya ni Jesus, "Anak, pinagaling ka ng iyong pananampalataya. Umuwi kang mapayapa." 
 
 
 

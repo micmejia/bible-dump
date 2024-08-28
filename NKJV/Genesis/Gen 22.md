@@ -22,13 +22,13 @@ So Abraham rose early in the morning and saddled his donkey, and took two of his
 Then on the third day Abraham lifted his eyes and saw the place afar off. 
 
 ###### 5 
-And Abraham said to his young men, "Stay here with the donkey; the [^a]lad and I will go yonder and worship, and we will come back to you." 
+And Abraham said to his young men, "Stay here with the donkey; the lad and I will go yonder and worship, and we will come back to you." 
 
 ###### 6 
 So Abraham took the wood of the burnt offering and laid _it_ on Isaac his son; and he took the fire in his hand, and a knife, and the two of them went together. 
 
 ###### 7 
-But Isaac spoke to Abraham his father and said, "My father!" And he said, "Here I am, my son." Then he said, "Look, the fire and the wood, but where _is_ the [^b]lamb for a burnt offering?" 
+But Isaac spoke to Abraham his father and said, "My father!" And he said, "Here I am, my son." Then he said, "Look, the fire and the wood, but where _is_ the lamb for a burnt offering?" 
 
 ###### 8 
 And Abraham said, "My son, God will provide for Himself the lamb for a burnt offering." So the two of them went together. 
@@ -49,7 +49,7 @@ And He said, "Do not lay your hand on the lad, or do anything to him; for now I 
 Then Abraham lifted his eyes and looked, and there behind _him was_ a ram caught in a thicket by its horns. So Abraham went and took the ram, and offered it up for a burnt offering instead of his son. 
 
 ###### 14 
-And Abraham called the name of the place, [^c]The-Lord-Will-Provide; as it is said _to_ this day, "In the Mount of the Lord it shall be provided." 
+And Abraham called the name of the place, The-Lord-Will-Provide; as it is said _to_ this day, "In the Mount of the Lord it shall be provided." 
 
 ###### 15 
 Then the Angel of the Lord called to Abraham a second time out of heaven, 
@@ -76,7 +76,7 @@ Huz his firstborn, Buz his brother, Kemuel the father of Aram,
 Chesed, Hazo, Pildash, Jidlaph, and Bethuel." 
 
 ###### 23 
-And Bethuel begot [^d]Rebekah. These eight Milcah bore to Nahor, Abraham's brother. 
+And Bethuel begot Rebekah. These eight Milcah bore to Nahor, Abraham's brother. 
 
 ###### 24 
 His concubine, whose name was Reumah, also bore Tebah, Gaham, Thahash, and Maachah.

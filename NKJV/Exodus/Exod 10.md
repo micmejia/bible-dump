@@ -58,7 +58,7 @@ For they covered the face of the whole earth, so that the land was darkened; and
 Then Pharaoh called for Moses and Aaron in haste, and said, "I have sinned against the Lord your God and against you. 
 
 ###### 17 
-Now therefore, please forgive my sin only this once, and entreat[^a] the Lord your God, that He may take away from me this death only." 
+Now therefore, please forgive my sin only this once, and entreat the Lord your God, that He may take away from me this death only." 
 
 ###### 18 
 So he went out from Pharaoh and entreated the Lord. 
@@ -70,7 +70,7 @@ And the Lord turned a very strong west wind, which took the locusts away and ble
 But the Lord hardened Pharaoh's heart, and he did not let the children of Israel go. ## The Ninth Plague: Darkness 
 
 ###### 21 
-Then the Lord said to Moses, "Stretch out your hand toward heaven, that there may be darkness over the land of Egypt, [^b]darkness _which_ may even be felt." 
+Then the Lord said to Moses, "Stretch out your hand toward heaven, that there may be darkness over the land of Egypt, darkness _which_ may even be felt." 
 
 ###### 22 
 So Moses stretched out his hand toward heaven, and there was thick darkness in all the land of Egypt three days. 
@@ -82,7 +82,7 @@ They did not see one another; nor did anyone rise from his place for three days.
 Then Pharaoh called to Moses and said, "Go, serve the Lord; only let your flocks and your herds be kept back. Let your little ones also go with you." 
 
 ###### 25 
-But Moses said, "You must also give [^c]us sacrifices and burnt offerings, that we may sacrifice to the Lord our God. 
+But Moses said, "You must also give us sacrifices and burnt offerings, that we may sacrifice to the Lord our God. 
 
 ###### 26 
 Our livestock also shall go with us; not a hoof shall be left behind. For we must take some of them to serve the Lord our God, and even we do not know with what we must serve the Lord until we arrive there." 

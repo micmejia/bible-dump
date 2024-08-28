@@ -19,7 +19,7 @@ And he said: "The Lord came from Sinai, And dawned on them from Seir; He shone f
 Yes, He loves the people; All His saints _are_ in Your hand; They sit down at Your feet; _Everyone_ receives Your words. 
 
 ###### 4 
-Moses [^a]commanded a law for us, A heritage of the congregation of Jacob. 
+Moses commanded a law for us, A heritage of the congregation of Jacob. 
 
 ###### 5 
 And He was King in Jeshurun, When the leaders of the people were gathered, All the tribes of Israel together. 
@@ -31,7 +31,7 @@ And He was King in Jeshurun, When the leaders of the people were gathered, All t
 And this he said of Judah: "Hear, Lord, the voice of Judah, And bring him to his people; Let his hands be sufficient for him, And may You be a help against his enemies." 
 
 ###### 8 
-And of Levi he said: "_Let_ Your [^b]Thummim and Your Urim _be_ with Your holy one, Whom You tested at Massah, And with whom You contended at the waters of Meribah, 
+And of Levi he said: "_Let_ Your Thummim and Your Urim _be_ with Your holy one, Whom You tested at Massah, And with whom You contended at the waters of Meribah, 
 
 ###### 9 
 Who says of his father and mother, 'I have not seen them'; Nor did he acknowledge his brothers, Or know his own children; For they have observed Your word And kept Your covenant. 
@@ -94,4 +94,4 @@ The eternal God _is your_ refuge, And underneath _are_ the everlasting arms; He 
 Then Israel shall dwell in safety, The fountain of Jacob alone, In a land of grain and new wine; His heavens shall also drop dew. 
 
 ###### 29 
-Happy _are_ you, O Israel! Who _is_ like you, a people saved by the Lord, The shield of your help And the sword of your majesty! Your enemies shall submit to you, And you shall tread down their [^c]high places."
+Happy _are_ you, O Israel! Who _is_ like you, a people saved by the Lord, The shield of your help And the sword of your majesty! Your enemies shall submit to you, And you shall tread down their high places."

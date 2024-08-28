@@ -238,7 +238,7 @@ Pero ngayon ay malaya na tayo sa Kautusan, dahil namatay na tayo sa <i class="tr
 
 
 
-Ang ibig ko bang sabihin ay masama ang Kautusan? Aba, hindi! Sapagkat kung walang Kautusan hindi ko malalaman kung ano ang kasalanan. Halimbawa, kung hindi sinabi ng Kautusang, "Huwag kang maging sakim,"[^a] hindi ko sana nalaman na masama pala ang pagiging sakim. 
+Ang ibig ko bang sabihin ay masama ang Kautusan? Aba, hindi! Sapagkat kung walang Kautusan hindi ko malalaman kung ano ang kasalanan. Halimbawa, kung hindi sinabi ng Kautusang, "Huwag kang maging sakim," hindi ko sana nalaman na masama pala ang pagiging sakim. 
 
 
 
@@ -766,7 +766,7 @@ Sa kaibuturan ng aking puso, nalulugod ako sa Kautusan ng Dios,
 
 
 
-pero may napapansin akong ibang kapangyarihan[^b] na kumikilos sa aking pagkatao, na sumasalungat sa pagsunod ko sa Kautusan na alam ko. Dahil dito, naging alipin ako ng kapangyarihan ng kasalanang likas sa aking pagkatao. 
+pero may napapansin akong ibang kapangyarihan na kumikilos sa aking pagkatao, na sumasalungat sa pagsunod ko sa Kautusan na alam ko. Dahil dito, naging alipin ako ng kapangyarihan ng kasalanang likas sa aking pagkatao. 
 
 
 
@@ -832,4 +832,4 @@ Kawawa naman ako! Sino ang magliligtas sa akin <i class="trans-change">sa makasa
 
 
 
-Salamat sa Dios, <i class="trans-change">siya ang magliligtas sa akin_ sa pamamagitan ni Jesu-Cristo na ating Panginoon! Ito ang aking kalagayan: Ang kaisipan ko ay nagpapasakop sa Kautusan ng Dios, pero ang aking makasalanang pagkatao ay nagpapasakop sa kapangyarihan[^c] ng kasalanan.
+Salamat sa Dios, <i class="trans-change">siya ang magliligtas sa akin_ sa pamamagitan ni Jesu-Cristo na ating Panginoon! Ito ang aking kalagayan: Ang kaisipan ko ay nagpapasakop sa Kautusan ng Dios, pero ang aking makasalanang pagkatao ay nagpapasakop sa kapangyarihan ng kasalanan.

@@ -13,10 +13,10 @@ next: ['Lev 15']
 Then the Lord spoke to Moses, saying, 
 
 ###### 2 
-"This shall be the law of the [^a]leper for the day of his cleansing: He shall be brought to the priest. 
+"This shall be the law of the leper for the day of his cleansing: He shall be brought to the priest. 
 
 ###### 3 
-And the priest shall go out of the camp, and the priest shall examine _him;_ and indeed, _if_ the [^b]leprosy is healed in the leper, 
+And the priest shall go out of the camp, and the priest shall examine _him;_ and indeed, _if_ the leprosy is healed in the leper, 
 
 ###### 4 
 then the priest shall command to take for him who is to be cleansed two living _and_ clean birds, cedar wood, scarlet, and hyssop. 
@@ -61,7 +61,7 @@ Then the priest shall dip his right finger in the oil that _is_ in his left hand
 And of the rest of the oil in his hand, the priest shall put _some_ on the tip of the right ear of him who is to be cleansed, on the thumb of his right hand, and on the big toe of his right foot, on the blood of the trespass offering. 
 
 ###### 18 
-The rest of the oil that _is_ in the priest's hand he shall put on the head of him who is to be cleansed. So the priest shall make [^c]atonement for him before the Lord. 
+The rest of the oil that _is_ in the priest's hand he shall put on the head of him who is to be cleansed. So the priest shall make atonement for him before the Lord. 
 
 ###### 19 
 "Then the priest shall offer the sin offering, and make atonement for him who is to be cleansed from his uncleanness. Afterward he shall kill the burnt offering. 
@@ -70,7 +70,7 @@ The rest of the oil that _is_ in the priest's hand he shall put on the head of h
 And the priest shall offer the burnt offering and the grain offering on the altar. So the priest shall make atonement for him, and he shall be clean. 
 
 ###### 21 
-"But if he _is_ poor and cannot afford it, then he shall take one male lamb _as_ a trespass offering to be waved, to make atonement for him, [^d]one-tenth _of an ephah_ of fine flour mixed with oil as a grain offering, a log of oil, 
+"But if he _is_ poor and cannot afford it, then he shall take one male lamb _as_ a trespass offering to be waved, to make atonement for him, one-tenth _of an ephah_ of fine flour mixed with oil as a grain offering, a log of oil, 
 
 ###### 22 
 and two turtledoves or two young pigeons, such as he is able to afford: one shall be a sin offering and the other a burnt offering. 
@@ -109,7 +109,7 @@ This _is_ the law _for one_ who had a leprous sore, who cannot afford the usual 
 And the Lord spoke to Moses and Aaron, saying: 
 
 ###### 34 
-"When you have come into the land of Canaan, which I give you as a possession, and I put the [^e]leprous plague in a house in the land of your possession, 
+"When you have come into the land of Canaan, which I give you as a possession, and I put the leprous plague in a house in the land of your possession, 
 
 ###### 35 
 and he who owns the house comes and tells the priest, saying, 'It seems to me that _there is_ some plague in the house,' 
@@ -118,10 +118,10 @@ and he who owns the house comes and tells the priest, saying, 'It seems to me th
 then the priest shall command that they empty the house, before the priest goes _into it_ to examine the plague, that all that _is_ in the house may not be made unclean; and afterward the priest shall go in to examine the house. 
 
 ###### 37 
-And he shall examine the plague; and indeed _if_ the plague _is_ on the walls of the house with ingrained streaks, greenish or reddish, which appear to be [^f]deep in the wall, 
+And he shall examine the plague; and indeed _if_ the plague _is_ on the walls of the house with ingrained streaks, greenish or reddish, which appear to be deep in the wall, 
 
 ###### 38 
-then the priest shall go out of the house, to the door of the house, and [^g]shut up the house seven days. 
+then the priest shall go out of the house, to the door of the house, and shut up the house seven days. 
 
 ###### 39 
 And the priest shall come again on the seventh day and look; and indeed _if_ the plague has spread on the walls of the house, 
@@ -145,7 +145,7 @@ then the priest shall come and look; and indeed _if_ the plague has spread in th
 And he shall break down the house, its stones, its timber, and all the plaster of the house, and he shall carry _them_ outside the city to an unclean place. 
 
 ###### 46 
-Moreover he who goes into the house at all while it is shut up shall be [^h]unclean until evening. 
+Moreover he who goes into the house at all while it is shut up shall be unclean until evening. 
 
 ###### 47 
 And he who lies down in the house shall wash his clothes, and he who eats in the house shall wash his clothes. 
@@ -163,7 +163,7 @@ Then he shall kill one of the birds in an earthen vessel over running water;
 and he shall take the cedar wood, the hyssop, the scarlet, and the living bird, and dip them in the blood of the slain bird and in the running water, and sprinkle the house seven times. 
 
 ###### 52 
-And he shall [^i]cleanse the house with the blood of the bird and the running water and the living bird, with the cedar wood, the hyssop, and the scarlet. 
+And he shall cleanse the house with the blood of the bird and the running water and the living bird, with the cedar wood, the hyssop, and the scarlet. 
 
 ###### 53 
 Then he shall let the living bird loose outside the city in the open field, and make atonement for the house, and it shall be clean. 

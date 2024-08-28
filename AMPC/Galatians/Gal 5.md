@@ -49,7 +49,7 @@ In [this] freedom Christ has made us free [and completely liberated us]; stand f
 
 
 
-Notice, it is I, Paul, who tells you that if you receive circumcision, Christ will be of no profit (advantage, avail) to you [[^a]for if you distrust Him, you can gain nothing from Him]. 
+Notice, it is I, Paul, who tells you that if you receive circumcision, Christ will be of no profit (advantage, avail) to you [for if you distrust Him, you can gain nothing from Him]. 
 
 
 
@@ -112,7 +112,7 @@ If you seek to be justified _and_ declared righteous _and_ to be given a right s
 
 
 
-For we, [not relying on the Law but] through the [Holy] Spirit's [help], by faith anticipate _and_ wait for the blessing _and_ good for which our righteousness _and_ right standing with God [our [^b]conformity to His will in purpose, thought, and action, causes us] to hope. 
+For we, [not relying on the Law but] through the [Holy] Spirit's [help], by faith anticipate _and_ wait for the blessing _and_ good for which our righteousness _and_ right standing with God [our conformity to His will in purpose, thought, and action, causes us] to hope. 
 
 
 
@@ -259,7 +259,7 @@ But, brethren, if I still preach circumcision [as some accuse me of doing, as ne
 
 
 
-I wish those who unsettle _and_ confuse you would [[^c]go all the way and] cut themselves off! 
+I wish those who unsettle _and_ confuse you would [go all the way and] cut themselves off! 
 
 
 
@@ -280,7 +280,7 @@ I wish those who unsettle _and_ confuse you would [[^c]go all the way and] cut t
 
 
 
-For you, brethren, were [indeed] called to freedom; only [do not let your] freedom be an incentive to your flesh _and_ an opportunity _or_ excuse [for [^d]selfishness], but through love you should serve one another. 
+For you, brethren, were [indeed] called to freedom; only [do not let your] freedom be an incentive to your flesh _and_ an opportunity _or_ excuse [for selfishness], but through love you should serve one another. 
 
 
 
@@ -301,7 +301,7 @@ For you, brethren, were [indeed] called to freedom; only [do not let your] freed
 
 
 
-For the whole Law [concerning human relationships] is [^e]complied with in the one precept, You shall love your neighbor as [you do] yourself. 
+For the whole Law [concerning human relationships] is complied with in the one precept, You shall love your neighbor as [you do] yourself. 
 
 
 
@@ -490,7 +490,7 @@ But the fruit of the [Holy] Spirit [the work which His presence within accomplis
 
 
 
-Gentleness (meekness, humility), self-control (self-restraint, continence). Against such things there is no law [[^f]that can bring a charge]. 
+Gentleness (meekness, humility), self-control (self-restraint, continence). Against such things there is no law [that can bring a charge]. 
 
 
 
@@ -532,7 +532,7 @@ And those who belong to Christ Jesus (the Messiah) have crucified the flesh (the
 
 
 
-If we live by the [Holy] Spirit, let us also walk by the Spirit. [If by the Holy Spirit [^g]we have our life in God, let us go forward [^h]walking in line, our conduct controlled by the Spirit.] 
+If we live by the [Holy] Spirit, let us also walk by the Spirit. [If by the Holy Spirit we have our life in God, let us go forward walking in line, our conduct controlled by the Spirit.] 
 
 
 

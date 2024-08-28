@@ -10,7 +10,7 @@ next: ['Isa 64']
 
 
 ###### 1 
-Who _is_ this who comes from Edom, With dyed garments from Bozrah, This _One who is_ [^a]glorious in His apparel, Traveling in the greatness of His strength?-- "I who speak in righteousness, mighty to save." 
+Who _is_ this who comes from Edom, With dyed garments from Bozrah, This _One who is_ glorious in His apparel, Traveling in the greatness of His strength?-- "I who speak in righteousness, mighty to save." 
 
 ###### 2 
 Why _is_ Your apparel red, And Your garments like one who treads in the winepress? 
@@ -34,13 +34,13 @@ I will mention the lovingkindnesses of the Lord _And_ the praises of the Lord, A
 For He said, "Surely they _are_ My people, Children _who_ will not lie." So He became their Savior. 
 
 ###### 9 
-In all their affliction He was [^b]afflicted, And the Angel of His Presence saved them; In His love and in His pity He redeemed them; And He bore them and carried them All the days of old. 
+In all their affliction He was afflicted, And the Angel of His Presence saved them; In His love and in His pity He redeemed them; And He bore them and carried them All the days of old. 
 
 ###### 10 
 But they rebelled and grieved His Holy Spirit; So He turned Himself against them as an enemy, _And_ He fought against them. 
 
 ###### 11 
-Then he remembered the days of old, Moses _and_ his people, _saying:_ "Where _is_ He who brought them up out of the sea With the [^c]shepherd of His flock? Where _is_ He who put His Holy Spirit within them, 
+Then he remembered the days of old, Moses _and_ his people, _saying:_ "Where _is_ He who brought them up out of the sea With the shepherd of His flock? Where _is_ He who put His Holy Spirit within them, 
 
 ###### 12 
 Who led _them_ by the right hand of Moses, With His glorious arm, Dividing the water before them To make for Himself an everlasting name, 

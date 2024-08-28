@@ -280,7 +280,7 @@ And when your days are fulfilled and you sleep with your fathers, I will set up 
 
 
 
-He shall build a house for My [^a]Name [and My Presence], and I will establish the throne of his kingdom forever. 
+He shall build a house for My Name [and My Presence], and I will establish the throne of his kingdom forever. 
 
 
 

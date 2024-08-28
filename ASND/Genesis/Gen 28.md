@@ -73,7 +73,7 @@ Kaya ipinatawag ni Isaac si Jacob. Pagdating niya, binasbasan niya ito at inutus
 
 
 
-Maghanda ka at pumunta sa Padan Aram,[^a] doon sa <i class="trans-change">lolo mong_ si Betuel na ama ng iyong ina. Doon ka pumili ng iyong mapapangasawa sa isa sa mga dalagang anak ni Laban na kapatid ng iyong ina. 
+Maghanda ka at pumunta sa Padan Aram, doon sa <i class="trans-change">lolo mong_ si Betuel na ama ng iyong ina. Doon ka pumili ng iyong mapapangasawa sa isa sa mga dalagang anak ni Laban na kapatid ng iyong ina. 
 
 
 
@@ -436,7 +436,7 @@ Ngayon, nanaginip siya na may isang hagdan na nakatayo sa lupa na abot hanggang 
 
 
 
-Nakita rin niya ang Panginoon na nakatayo sa itaas ng hagdan[^b] at sinabi sa kanya, "Ako ang Panginoon, ang Dios ni Abraham at ni Isaac. Ibibigay ko sa iyo at sa mga lahi mo ang lupaing ito na iyong hinihigaan. 
+Nakita rin niya ang Panginoon na nakatayo sa itaas ng hagdan at sinabi sa kanya, "Ako ang Panginoon, ang Dios ni Abraham at ni Isaac. Ibibigay ko sa iyo at sa mga lahi mo ang lupaing ito na iyong hinihigaan. 
 
 
 
@@ -634,7 +634,7 @@ Maagang bumangon si Jacob. Kinuha niya ang batong inunan niya noong gabi at itin
 
 
 
-Pinangalanan ni Jacob ang lugar na iyon na Betel.[^c] Dati ay Luz ang pangalan ng lugar na iyon. 
+Pinangalanan ni Jacob ang lugar na iyon na Betel. Dati ay Luz ang pangalan ng lugar na iyon. 
 
 
 
@@ -733,4 +733,4 @@ at kung makakabalik po akong muli sa bahay ng aking ama na walang masamang nangy
 
 
 
-Ang bato pong ito na itinayo ko bilang isang alaala ay magpapatunay ng inyong presensya sa lugar[^d] na ito. At ibibigay ko po sa inyo ang ikasampung bahagi ng lahat ng ibibigay nʼyo sa akin."
+Ang bato pong ito na itinayo ko bilang isang alaala ay magpapatunay ng inyong presensya sa lugar na ito. At ibibigay ko po sa inyo ang ikasampung bahagi ng lahat ng ibibigay nʼyo sa akin."

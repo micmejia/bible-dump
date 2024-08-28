@@ -172,7 +172,7 @@ Kulay ube at pula ang damit ng babae, at may mga alahas siyang ginto, mamahaling
 
 
 
-Nakasulat sa noo niya ang pangalang ito na may lihim na kahulugan: "Ang sikat na lungsod ng Babilonia, ang ina ng lahat ng babaeng bayaran[^a] at ng lahat ng kasamaan sa buong mundo." 
+Nakasulat sa noo niya ang pangalang ito na may lihim na kahulugan: "Ang sikat na lungsod ng Babilonia, ang ina ng lahat ng babaeng bayaran at ng lahat ng kasamaan sa buong mundo." 
 
 
 
@@ -205,7 +205,7 @@ Nakasulat sa noo niya ang pangalang ito na may lihim na kahulugan: "Ang sikat na
 
 
 
-At nakita kong lasing ang babaeng iyon sa dugo ng mga pinabanal[^b] <i class="trans-change">ng Dios_ na <i class="trans-change">ipinapatay_ niya dahil sa pagsunod nila kay Jesus. Namangha ako nang makita ko siya. 
+At nakita kong lasing ang babaeng iyon sa dugo ng mga pinabanal <i class="trans-change">ng Dios_ na <i class="trans-change">ipinapatay_ niya dahil sa pagsunod nila kay Jesus. Namangha ako nang makita ko siya. 
 
 
 
@@ -403,7 +403,7 @@ Ang halimaw na buhay noon, pero patay na ngayon, ang siyang ikawalong hari. Kabi
 
 
 
-"Ang sampung sungay na nakita mo ay ang sampung hari na hindi pa naghahari. Bibigyan sila ng kapangyarihang maghari kasama ang halimaw sa loob lang ng maikling panahon.[^c] 
+"Ang sampung sungay na nakita mo ay ang sampung hari na hindi pa naghahari. Bibigyan sila ng kapangyarihang maghari kasama ang halimaw sa loob lang ng maikling panahon. 
 
 
 
@@ -436,7 +436,7 @@ Ang halimaw na buhay noon, pero patay na ngayon, ang siyang ikawalong hari. Kabi
 
 
 
-Iisa ang layunin ng sampung haring iyon. At ipapailalim nila ang kapangyarihan at pamamahala nila sa halimaw.[^d] 
+Iisa ang layunin ng sampung haring iyon. At ipapailalim nila ang kapangyarihan at pamamahala nila sa halimaw. 
 
 
 

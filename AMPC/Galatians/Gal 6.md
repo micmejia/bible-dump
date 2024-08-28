@@ -48,7 +48,7 @@ Brethren, if any person is overtaken in misconduct _or_ sin of any sort, you who
 
 
 
-Bear (endure, carry) one another's burdens _and_ [^a]troublesome moral faults, and in this way fulfill _and_ observe perfectly the law of Christ (the Messiah) _and_ complete [^b]what is lacking [in your obedience to it]. 
+Bear (endure, carry) one another's burdens _and_ troublesome moral faults, and in this way fulfill _and_ observe perfectly the law of Christ (the Messiah) _and_ complete what is lacking [in your obedience to it]. 
 
 
 
@@ -90,7 +90,7 @@ For if any person thinks himself to be somebody [too important to condescend to 
 
 
 
-But let every person carefully scrutinize _and_ examine _and_ test his own conduct _and_ his own work. He can then have the personal satisfaction _and_ joy of doing something commendable [[^c]in itself alone] without [resorting to] boastful comparison with his neighbor. 
+But let every person carefully scrutinize _and_ examine _and_ test his own conduct _and_ his own work. He can then have the personal satisfaction _and_ joy of doing something commendable [in itself alone] without [resorting to] boastful comparison with his neighbor. 
 
 
 
@@ -111,7 +111,7 @@ But let every person carefully scrutinize _and_ examine _and_ test his own condu
 
 
 
-For every person will have to bear ([^d]be equal to understanding and calmly receive) his own [[^e]little] load [^f][of oppressive faults]. 
+For every person will have to bear (be equal to understanding and calmly receive) his own [little] load [of oppressive faults]. 
 
 
 
@@ -153,7 +153,7 @@ Let him who receives instruction in the Word [of God] share all good things with
 
 
 
-Do not be deceived _and_ deluded _and_ misled; God will not allow Himself to be sneered at (scorned, disdained, or mocked [^g]by mere pretensions or professions, or by His precepts being set aside.) [He inevitably deludes himself who attempts to delude God.] For whatever a man sows, that _and_ [^h]that only is what he will reap. 
+Do not be deceived _and_ deluded _and_ misled; God will not allow Himself to be sneered at (scorned, disdained, or mocked by mere pretensions or professions, or by His precepts being set aside.) [He inevitably deludes himself who attempts to delude God.] For whatever a man sows, that _and_ that only is what he will reap. 
 
 
 
@@ -216,7 +216,7 @@ And let us not lose heart _and_ grow weary _and_ faint in acting nobly _and_ doi
 
 
 
-So then, as occasion _and_ opportunity open up to us, let us do good [[^i]morally] to all people [not only [^j]being useful or profitable to them, but also doing what is for their spiritual good and advantage]. Be mindful to be a blessing, especially to those of the household of faith [those who belong to God's family with you, the believers]. 
+So then, as occasion _and_ opportunity open up to us, let us do good [morally] to all people [not only being useful or profitable to them, but also doing what is for their spiritual good and advantage]. Be mindful to be a blessing, especially to those of the household of faith [those who belong to God's family with you, the believers]. 
 
 
 
@@ -237,7 +237,7 @@ So then, as occasion _and_ opportunity open up to us, let us do good [[^i]morall
 
 
 
-See with what large letters I am writing with my own hand. [[^k]Mark carefully these closing words of mine.] 
+See with what large letters I am writing with my own hand. [Mark carefully these closing words of mine.] 
 
 
 
@@ -363,7 +363,7 @@ Peace and mercy be upon all who walk by this rule [who discipline themselves and
 
 
 
-From now on let no person trouble me [by [^l]making it necessary for me to vindicate my apostolic authority and the divine truth of my Gospel], for I bear on my body the [brand] marks of the Lord Jesus [the wounds, scars, and other outward evidence of persecutions--these testify to His ownership of me]! 
+From now on let no person trouble me [by making it necessary for me to vindicate my apostolic authority and the divine truth of my Gospel], for I bear on my body the [brand] marks of the Lord Jesus [the wounds, scars, and other outward evidence of persecutions--these testify to His ownership of me]! 
 
 
 

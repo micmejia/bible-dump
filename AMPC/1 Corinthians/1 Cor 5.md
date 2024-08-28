@@ -112,7 +112,7 @@ In the name of the Lord Jesus _Christ_, on the man who has committed such a deed
 
 
 
-You are to deliver this man over to Satan [^a]for physical discipline [to destroy carnal lusts which prompted him to incest], that [his] spirit may [yet] be saved in the day of the Lord Jesus. 
+You are to deliver this man over to Satan for physical discipline [to destroy carnal lusts which prompted him to incest], that [his] spirit may [yet] be saved in the day of the Lord Jesus. 
 
 
 

@@ -46,13 +46,13 @@ And Boaz answered and said to her, "It has been fully reported to me, all that y
 The Lord repay your work, and a full reward be given you by the Lord God of Israel, under whose wings you have come for refuge." 
 
 ###### 13 
-Then she said, "Let me find favor in your sight, my lord; for you have comforted me, and have spoken [^a]kindly to your maidservant, though I am not like one of your maidservants." 
+Then she said, "Let me find favor in your sight, my lord; for you have comforted me, and have spoken kindly to your maidservant, though I am not like one of your maidservants." 
 
 ###### 14 
 Now Boaz said to her at mealtime, "Come here, and eat of the bread, and dip your piece of bread in the vinegar." So she sat beside the reapers, and he passed parched _grain_ to her; and she ate and was satisfied, and kept some back. 
 
 ###### 15 
-And when she rose up to [^b]glean, Boaz commanded his young men, saying, "Let her glean even among the sheaves, and do not [^c]reproach her. 
+And when she rose up to glean, Boaz commanded his young men, saying, "Let her glean even among the sheaves, and do not reproach her. 
 
 ###### 16 
 Also let _grain_ from the bundles fall purposely for her; leave _it_ that she may glean, and do not rebuke her." 
@@ -67,13 +67,13 @@ Then she took _it_ up and went into the city, and her mother-in-law saw what she
 And her mother-in-law said to her, "Where have you gleaned today? And where did you work? Blessed be the one who took notice of you." So she told her mother-in-law with whom she had worked, and said, "The man's name with whom I worked today _is_ Boaz." 
 
 ###### 20 
-Then Naomi said to her daughter-in-law, "Blessed _be_ he of the Lord, who has not forsaken His kindness to the living and the dead!" And Naomi said to her, "This man _is_ a relation of ours, one of [^d]our close relatives." 
+Then Naomi said to her daughter-in-law, "Blessed _be_ he of the Lord, who has not forsaken His kindness to the living and the dead!" And Naomi said to her, "This man _is_ a relation of ours, one of our close relatives." 
 
 ###### 21 
 Ruth the Moabitess said, "He also said to me, 'You shall stay close by my young men until they have finished all my harvest.' " 
 
 ###### 22 
-And Naomi said to Ruth her daughter-in-law, "_It is_ good, my daughter, that you go out with his young women, and that people do not [^e]meet you in any other field." 
+And Naomi said to Ruth her daughter-in-law, "_It is_ good, my daughter, that you go out with his young women, and that people do not meet you in any other field." 
 
 ###### 23 
 So she stayed close by the young women of Boaz, to glean until the end of barley harvest and wheat harvest; and she dwelt with her mother-in-law.

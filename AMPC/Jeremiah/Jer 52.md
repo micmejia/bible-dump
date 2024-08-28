@@ -90,7 +90,7 @@ For all this came to pass in Jerusalem and Judah because of the anger of the Lor
 
 
 
-And in the ninth year of his reign, in the tenth month, on the tenth day of the month, [^a]Nebuchadrezzar king of Babylon came, he and all his army, against Jerusalem; and they pitched against it and built moveable towers _and_ siege mounds against it round about. 
+And in the ninth year of his reign, in the tenth month, on the tenth day of the month, Nebuchadrezzar king of Babylon came, he and all his army, against Jerusalem; and they pitched against it and built moveable towers _and_ siege mounds against it round about. 
 
 
 
@@ -237,7 +237,7 @@ And the king of Babylon slew the sons of Zedekiah before his eyes; he slew also 
 
 
 
-Then he put out the eyes of Zedekiah; and the king of Babylon bound him with shackles and carried him to Babylon and put him in prison [^b][mill] till the day of his death. 
+Then he put out the eyes of Zedekiah; and the king of Babylon bound him with shackles and carried him to Babylon and put him in prison [mill] till the day of his death. 
 
 
 
@@ -426,7 +426,7 @@ Also the small bowls and the firepans and the basins and the pots and the lampst
 
 
 
-The two pillars, one Sea _or_ huge laver, and [^c]twelve bronze bulls _or_ oxen under the Sea, which King Solomon had made in the house of the Lord--the bronze of all these things was beyond weighing. 
+The two pillars, one Sea _or_ huge laver, and twelve bronze bulls _or_ oxen under the Sea, which King Solomon had made in the house of the Lord--the bronze of all these things was beyond weighing. 
 
 
 
@@ -720,4 +720,4 @@ Jehoiachin put off his prison garments, and he dined regularly at the king's tab
 
 
 
-And his allowance, a continual one, was given him by the king of Babylon, a portion according to his requirements until the day of his death, [^d]all the days of his life.
+And his allowance, a continual one, was given him by the king of Babylon, a portion according to his requirements until the day of his death, all the days of his life.

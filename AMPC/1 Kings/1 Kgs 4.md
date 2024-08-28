@@ -448,7 +448,7 @@ Judah and Israel were many, like the sand which is by the sea in multitude; they
 
 
 
-Solomon reigned [^a]over all the kingdoms from the [Euphrates] River to the land of the Philistines and to the border of Egypt; they brought tribute and served Solomon all the days of his life. 
+Solomon reigned over all the kingdoms from the [Euphrates] River to the land of the Philistines and to the border of Egypt; they brought tribute and served Solomon all the days of his life. 
 
 
 
@@ -658,7 +658,7 @@ Solomon's wisdom excelled the wisdom of all the people of the East and all the w
 
 
 
-For he was wiser [^b]than all other men--than Ethan the Ezrahite, and Heman, Calcol, and Darda, the sons of Mahol. His fame was in all the nations round about. 
+For he was wiser than all other men--than Ethan the Ezrahite, and Heman, Calcol, and Darda, the sons of Mahol. His fame was in all the nations round about. 
 
 
 

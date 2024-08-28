@@ -31,7 +31,7 @@ _It is_ a regular burnt offering which was ordained at Mount Sinai for a sweet a
 And its drink offering _shall be_ one-fourth of a hin for each lamb; in a holy _place_ you shall pour out the drink to the Lord as an offering. 
 
 ###### 8 
-The other lamb you shall offer in the evening; as the morning grain offering and its drink offering, you shall offer _it_ as an offering made by fire, a [^a]sweet aroma to the Lord. ## Sabbath Offerings 
+The other lamb you shall offer in the evening; as the morning grain offering and its drink offering, you shall offer _it_ as an offering made by fire, a sweet aroma to the Lord. ## Sabbath Offerings 
 
 ###### 9 
 'And on the Sabbath day two lambs in their first year, without blemish, and two-tenths _of an ephah_ of fine flour as a grain offering, mixed with oil, with its drink offering-- 
@@ -61,7 +61,7 @@ Also one kid of the goats as a sin offering to the Lord shall be offered, beside
 And on the fifteenth day of this month _is_ the feast; unleavened bread shall be eaten for seven days. 
 
 ###### 18 
-On the first day _you shall have_ a holy [^b]convocation. You shall do no [^c]customary work. 
+On the first day _you shall have_ a holy convocation. You shall do no customary work. 
 
 ###### 19 
 And you shall present an offering made by fire as a burnt offering to the Lord: two young bulls, one ram, and seven lambs in their first year. Be sure they are without blemish. 
@@ -73,7 +73,7 @@ Their grain offering shall be of fine flour mixed with oil: three-tenths _of an 
 you shall offer one-tenth _of an ephah_ for each of the seven lambs; 
 
 ###### 22 
-also one goat _as_ a sin offering, to make [^d]atonement for you. 
+also one goat _as_ a sin offering, to make atonement for you. 
 
 ###### 23 
 You shall offer these besides the burnt offering of the morning, which _is_ for a regular burnt offering. 
@@ -97,7 +97,7 @@ with their grain offering of fine flour mixed with oil: three-tenths _of an epha
 and one-tenth for each of the seven lambs; 
 
 ###### 30 
-_also_ one kid of the goats, to make [^e]atonement for you. 
+_also_ one kid of the goats, to make atonement for you. 
 
 ###### 31 
-Be sure they are without [^f]blemish. You shall present _them_ with their drink offerings, besides the regular burnt offering with its grain offering.
+Be sure they are without blemish. You shall present _them_ with their drink offerings, besides the regular burnt offering with its grain offering.

@@ -766,7 +766,7 @@ Sinabi pa niya, "<i class="trans-change">Ako na_ Anak ng Tao ay kailangang duman
 
 
 
-Pagkatapos, sinabi niya sa kanilang lahat, "Ang sinumang gustong sumunod sa akin ay hindi dapat inuuna ang sarili. At dapat ay handa siyang humarap kahit sa kamatayan[^a] alang-alang sa pagsunod niya sa akin araw-araw. 
+Pagkatapos, sinabi niya sa kanilang lahat, "Ang sinumang gustong sumunod sa akin ay hindi dapat inuuna ang sarili. At dapat ay handa siyang humarap kahit sa kamatayan alang-alang sa pagsunod niya sa akin araw-araw. 
 
 
 
@@ -1096,7 +1096,7 @@ Tulog na tulog noon sina Pedro. Pero nagising sila at nakita nila ang nagliliwan
 
 
 
-Nang paalis na ang dalawang lalaki, sinabi ni Pedro kay Jesus, "Guro, mabuti poʼt narito kami.[^b] Gagawa po kami ng tatlong kubol:[^c] isa para sa inyo, isa para kay Moises at isa para kay Elias." (Ang totoo, hindi niya alam ang sinasabi niya.) 
+Nang paalis na ang dalawang lalaki, sinabi ni Pedro kay Jesus, "Guro, mabuti poʼt narito kami. Gagawa po kami ng tatlong kubol: isa para sa inyo, isa para kay Moises at isa para kay Elias." (Ang totoo, hindi niya alam ang sinasabi niya.) 
 
 
 
@@ -1822,7 +1822,7 @@ Nang malaman iyon ng mga tagasunod ni Jesus na sina Santiago at Juan, sinabi nil
 
 
 
-Pero lumingon si Jesus at pinagsabihan sila.[^d] 
+Pero lumingon si Jesus at pinagsabihan sila. 
 
 
 
@@ -1954,7 +1954,7 @@ Pero sinagot siya ni Jesus, "May mga lungga ang mga asong-gubat, at may mga puga
 
 
 
-Sinabi ni Jesus sa isa, "Sumunod ka sa akin." Pero sumagot siya, "Panginoon, pauwiin po muna ninyo ako para maipalibing ko ang aking ama."[^e] 
+Sinabi ni Jesus sa isa, "Sumunod ka sa akin." Pero sumagot siya, "Panginoon, pauwiin po muna ninyo ako para maipalibing ko ang aking ama." 
 
 
 

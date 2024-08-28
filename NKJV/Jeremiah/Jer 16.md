@@ -34,7 +34,7 @@ Nor shall _men_ break _bread_ in mourning for them, to comfort them for the dead
 Also you shall not go into the house of feasting to sit with them, to eat and drink." 
 
 ###### 9 
-For thus says the Lord of hosts, the God of Israel: "Behold, I will cause to cease from this place, before your eyes and in your days, the voice of [^a]mirth and the voice of gladness, the voice of the bridegroom and the voice of the bride. 
+For thus says the Lord of hosts, the God of Israel: "Behold, I will cause to cease from this place, before your eyes and in your days, the voice of mirth and the voice of gladness, the voice of the bridegroom and the voice of the bride. 
 
 ###### 10 
 "And it shall be, when you show this people all these words, and they say to you, 'Why has the Lord pronounced all this great disaster against us? Or what _is_ our iniquity? Or what _is_ our sin that we have committed against the Lord our God?' 
@@ -43,7 +43,7 @@ For thus says the Lord of hosts, the God of Israel: "Behold, I will cause to cea
 then you shall say to them, 'Because your fathers have forsaken Me,' says the Lord; 'they have walked after other gods and have served them and worshiped them, and have forsaken Me and not kept My law. 
 
 ###### 12 
-And you have done worse than your fathers, for behold, each one [^b]follows the dictates of his own evil heart, so that no one listens to Me. 
+And you have done worse than your fathers, for behold, each one follows the dictates of his own evil heart, so that no one listens to Me. 
 
 ###### 13 
 Therefore I will cast you out of this land into a land that you do not know, neither you nor your fathers; and there you shall serve other gods day and night, where I will not show you favor.' ## God Will Restore Israel 

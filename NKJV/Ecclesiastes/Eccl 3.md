@@ -13,7 +13,7 @@ next: ['Eccl 4']
 To everything _there is_ a season, A time for every purpose under heaven: 
 
 ###### 2 
-A time [^a]to be born, And a time to die; A time to plant, And a time to pluck _what is_ planted; 
+A time to be born, And a time to die; A time to plant, And a time to pluck _what is_ planted; 
 
 ###### 3 
 A time to kill, And a time to heal; A time to break down, And a time to build up; 
@@ -52,13 +52,13 @@ and also that every man should eat and drink and enjoy the good of all his labor
 I know that whatever God does, It shall be forever. Nothing can be added to it, And nothing taken from it. God does _it,_ that men should fear before Him. 
 
 ###### 15 
-That which is has already been, And what is to be has already been; And God [^b]requires an account of [^c]what is past. ## Injustice Seems to Prevail 
+That which is has already been, And what is to be has already been; And God requires an account of what is past. ## Injustice Seems to Prevail 
 
 ###### 16 
-Moreover I saw under the sun: _In_ the place of [^d]judgment, Wickedness _was_ there; And _in_ the place of righteousness, [^e]Iniquity _was_ there. 
+Moreover I saw under the sun: _In_ the place of judgment, Wickedness _was_ there; And _in_ the place of righteousness, Iniquity _was_ there. 
 
 ###### 17 
-I said in my heart, "God shall judge the righteous and the wicked, For _there is_ a time there for every [^f]purpose and for every work." 
+I said in my heart, "God shall judge the righteous and the wicked, For _there is_ a time there for every purpose and for every work." 
 
 ###### 18 
 I said in my heart, "Concerning the condition of the sons of men, God tests them, that they may see that they themselves are _like_ animals." 
@@ -70,7 +70,7 @@ For what happens to the sons of men also happens to animals; one thing befalls t
 All go to one place: all are from the dust, and all return to dust. 
 
 ###### 21 
-Who[^g] knows the spirit of the sons of men, which goes upward, and the spirit of the animal, which goes down to the earth? 
+Who knows the spirit of the sons of men, which goes upward, and the spirit of the animal, which goes down to the earth? 
 
 ###### 22 
-So I perceived that nothing _is_ better than that a man should rejoice in his own works, for that _is_ his [^h]heritage. For who can bring him to see what will happen after him?
+So I perceived that nothing _is_ better than that a man should rejoice in his own works, for that _is_ his heritage. For who can bring him to see what will happen after him?

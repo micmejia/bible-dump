@@ -31,7 +31,7 @@ So these governors and satraps thronged before the king, and said thus to him: "
 All the governors of the kingdom, the administrators and satraps, the counselors and advisors, have consulted together to establish a royal statute and to make a firm decree, that whoever petitions any god or man for thirty days, except you, O king, shall be cast into the den of lions. 
 
 ###### 8 
-Now, O king, establish the decree and sign the writing, so that it cannot be changed, according to the law of the Medes and Persians, which [^a]does not alter." 
+Now, O king, establish the decree and sign the writing, so that it cannot be changed, according to the law of the Medes and Persians, which does not alter." 
 
 ###### 9 
 Therefore King Darius signed the written decree. ## Daniel in the Lions' Den 
@@ -43,16 +43,16 @@ Now when Daniel knew that the writing was signed, he went home. And in his upper
 Then these men assembled and found Daniel praying and making supplication before his God. 
 
 ###### 12 
-And they went before the king, and spoke concerning the king's decree: "Have you not signed a decree that every man who petitions any god or man within thirty days, except you, O king, shall be cast into the den of lions?" The king answered and said, "The thing _is_ true, according to the law of the Medes and Persians, which [^b]does not alter." 
+And they went before the king, and spoke concerning the king's decree: "Have you not signed a decree that every man who petitions any god or man within thirty days, except you, O king, shall be cast into the den of lions?" The king answered and said, "The thing _is_ true, according to the law of the Medes and Persians, which does not alter." 
 
 ###### 13 
-So they answered and said before the king, "That Daniel, who is [^c]one of the captives from Judah, does not show due regard for you, O king, or for the decree that you have signed, but makes his petition three times a day." 
+So they answered and said before the king, "That Daniel, who is one of the captives from Judah, does not show due regard for you, O king, or for the decree that you have signed, but makes his petition three times a day." 
 
 ###### 14 
-And the king, when he heard _these_ words, was greatly displeased with himself, and set _his_ heart on Daniel to deliver him; and he [^d]labored till the going down of the sun to deliver him. 
+And the king, when he heard _these_ words, was greatly displeased with himself, and set _his_ heart on Daniel to deliver him; and he labored till the going down of the sun to deliver him. 
 
 ###### 15 
-Then these men [^e]approached the king, and said to the king, "Know, O king, that _it is_ the law of the Medes and Persians that no decree or statute which the king establishes may be changed." 
+Then these men approached the king, and said to the king, "Know, O king, that _it is_ the law of the Medes and Persians that no decree or statute which the king establishes may be changed." 
 
 ###### 16 
 So the king gave the command, and they brought Daniel and cast _him_ into the den of lions. _But_ the king spoke, saying to Daniel, "Your God, whom you serve continually, He will deliver you." 
@@ -61,13 +61,13 @@ So the king gave the command, and they brought Daniel and cast _him_ into the de
 Then a stone was brought and laid on the mouth of the den, and the king sealed it with his own signet ring and with the signets of his lords, that the purpose concerning Daniel might not be changed. ## Daniel Saved from the Lions 
 
 ###### 18 
-Now the king went to his palace and spent the night fasting; and no [^f]musicians were brought before him. Also his sleep [^g]went from him. 
+Now the king went to his palace and spent the night fasting; and no musicians were brought before him. Also his sleep went from him. 
 
 ###### 19 
 Then the king arose very early in the morning and went in haste to the den of lions. 
 
 ###### 20 
-And when he came to the den, he cried out with a [^h]lamenting voice to Daniel. The king spoke, saying to Daniel, "Daniel, servant of the living God, has your God, whom you serve continually, been able to deliver you from the lions?" 
+And when he came to the den, he cried out with a lamenting voice to Daniel. The king spoke, saying to Daniel, "Daniel, servant of the living God, has your God, whom you serve continually, been able to deliver you from the lions?" 
 
 ###### 21 
 Then Daniel said to the king, "O king, live forever! 
@@ -88,7 +88,7 @@ Then King Darius wrote: To all peoples, nations, and languages that dwell in all
 I make a decree that in every dominion of my kingdom _men must_ tremble and fear before the God of Daniel. For He _is_ the living God, And steadfast forever; His kingdom _is the one_ which shall not be destroyed, And His dominion _shall endure_ to the end. 
 
 ###### 27 
-He delivers and rescues, And He works signs and wonders In heaven and on earth, Who has delivered Daniel from the [^i]power of the lions. 
+He delivers and rescues, And He works signs and wonders In heaven and on earth, Who has delivered Daniel from the power of the lions. 
 
 ###### 28 
 So this Daniel prospered in the reign of Darius and in the reign of Cyrus the Persian.

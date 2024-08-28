@@ -238,7 +238,7 @@ Ito ang pahayag ng Dios tungkol sa mga hayop sa Negev: Nilakbay ng mga taga-Juda
 
 
 
-Ang bansang iyon ay ang Egipto, na ang tulong ay walang silbi. Kaya tinatawag ko itong "Dragon[^a] na Inutil." 
+Ang bansang iyon ay ang Egipto, na ang tulong ay walang silbi. Kaya tinatawag ko itong "Dragon na Inutil." 
 
 
 

@@ -153,7 +153,7 @@ For thus says the Lord of hosts: Yet once more, in a little while, I will shake 
 
 
 
-And I will shake all nations and the [^a]desire _and_ the precious things of all nations shall come in, and I will fill this house with splendor, says the Lord of hosts. 
+And I will shake all nations and the desire _and_ the precious things of all nations shall come in, and I will fill this house with splendor, says the Lord of hosts. 
 
 
 

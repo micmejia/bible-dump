@@ -733,7 +733,7 @@ Kaya naakit niya ang lalaki sa pamamagitan ng kanyang matatamis at nakakaakit na
 
 
 
-Sumunod agad ang lalaki na parang bakang hinihila papunta sa katayan, o tulad ng isang usa[^a] na patungo sa bitag, 
+Sumunod agad ang lalaki na parang bakang hinihila papunta sa katayan, o tulad ng isang usa na patungo sa bitag, 
 
 
 

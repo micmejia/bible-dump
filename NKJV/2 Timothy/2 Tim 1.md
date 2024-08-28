@@ -9,7 +9,7 @@ next: ['2 Tim 2']
 
 
 ###### 1 
-Paul, an apostle of [^a]Jesus Christ by the will of God, according to the promise of life which is in Christ Jesus, 
+Paul, an apostle of Jesus Christ by the will of God, according to the promise of life which is in Christ Jesus, 
 
 ###### 2 
 To Timothy, a beloved son: Grace, mercy, _and_ peace from God the Father and Christ Jesus our Lord. ## Timothy's Faith and Heritage 
@@ -21,7 +21,7 @@ I thank God, whom I serve with a pure conscience, as _my_ forefathers _did,_ as 
 greatly desiring to see you, being mindful of your tears, that I may be filled with joy, 
 
 ###### 5 
-when I call to remembrance the [^b]genuine faith that is in you, which dwelt first in your grandmother Lois and your mother Eunice, and I am persuaded is in you also. 
+when I call to remembrance the genuine faith that is in you, which dwelt first in your grandmother Lois and your mother Eunice, and I am persuaded is in you also. 
 
 ###### 6 
 Therefore I remind you to stir up the gift of God which is in you through the laying on of my hands. 
@@ -39,7 +39,7 @@ who has saved us and called _us_ with a holy calling, not according to our works
 but has now been revealed by the appearing of our Savior Jesus Christ, _who_ has abolished death and brought life and immortality to light through the gospel, 
 
 ###### 11 
-to which I was appointed a preacher, an apostle, and a teacher [^c]of the Gentiles. 
+to which I was appointed a preacher, an apostle, and a teacher of the Gentiles. 
 
 ###### 12 
 For this reason I also suffer these things; nevertheless I am not ashamed, for I know whom I have believed and am persuaded that He is able to keep what I have committed to Him until that Day. ## Be Loyal to the Faith 
@@ -60,4 +60,4 @@ The Lord grant mercy to the household of Onesiphorus, for he often refreshed me,
 but when he arrived in Rome, he sought me out very zealously and found _me._ 
 
 ###### 18 
-The Lord grant to him that he may find mercy from the Lord in that Day--and you know very well how many ways he ministered [^d]_to me_ at Ephesus.
+The Lord grant to him that he may find mercy from the Lord in that Day--and you know very well how many ways he ministered _to me_ at Ephesus.

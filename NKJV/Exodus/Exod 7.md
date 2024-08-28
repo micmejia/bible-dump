@@ -19,7 +19,7 @@ You shall speak all that I command you. And Aaron your brother shall tell Pharao
 And I will harden Pharaoh's heart, and multiply My signs and My wonders in the land of Egypt. 
 
 ###### 4 
-But Pharaoh will not heed you, so that I may lay My hand on Egypt and bring My [^a]armies _and_ My people, the children of Israel, out of the land of Egypt by great judgments. 
+But Pharaoh will not heed you, so that I may lay My hand on Egypt and bring My armies _and_ My people, the children of Israel, out of the land of Egypt by great judgments. 
 
 ###### 5 
 And the Egyptians shall know that I _am_ the Lord, when I stretch out My hand on Egypt and bring out the children of Israel from among them." 
@@ -40,7 +40,7 @@ Then the Lord spoke to Moses and Aaron, saying,
 So Moses and Aaron went in to Pharaoh, and they did so, just as the Lord commanded. And Aaron cast down his rod before Pharaoh and before his servants, and it became a serpent. 
 
 ###### 11 
-But Pharaoh also called the wise men and the [^b]sorcerers; so the magicians of Egypt, they also did in like manner with their [^c]enchantments. 
+But Pharaoh also called the wise men and the sorcerers; so the magicians of Egypt, they also did in like manner with their enchantments. 
 
 ###### 12 
 For every man threw down his rod, and they became serpents. But Aaron's rod swallowed up their rods. 
@@ -55,13 +55,13 @@ So the Lord said to Moses: "Pharaoh's heart _is_ hard; he refuses to let the peo
 Go to Pharaoh in the morning, when he goes out to the water, and you shall stand by the river's bank to meet him; and the rod which was turned to a serpent you shall take in your hand. 
 
 ###### 16 
-And you shall say to him, 'The Lord God of the Hebrews has sent me to you, saying, "Let My people go, that they may [^d]serve Me in the wilderness"; but indeed, until now you would not hear! 
+And you shall say to him, 'The Lord God of the Hebrews has sent me to you, saying, "Let My people go, that they may serve Me in the wilderness"; but indeed, until now you would not hear! 
 
 ###### 17 
 Thus says the Lord: "By this you shall know that I _am_ the Lord. Behold, I will strike the waters which _are_ in the river with the rod that _is_ in my hand, and they shall be turned to blood. 
 
 ###### 18 
-And the fish that _are_ in the river shall die, the river shall stink, and the Egyptians will loathe[^e] to drink the water of the river." ' " 
+And the fish that _are_ in the river shall die, the river shall stink, and the Egyptians will loathe to drink the water of the river." ' " 
 
 ###### 19 
 Then the Lord spoke to Moses, "Say to Aaron, 'Take your rod and stretch out your hand over the waters of Egypt, over their streams, over their rivers, over their ponds, and over all their pools of water, that they may become blood. And there shall be blood throughout all the land of Egypt, both in _buckets of_ wood and _pitchers of_ stone.' " 
@@ -73,7 +73,7 @@ And Moses and Aaron did so, just as the Lord commanded. So he lifted up the rod 
 The fish that _were_ in the river died, the river stank, and the Egyptians could not drink the water of the river. So there was blood throughout all the land of Egypt. 
 
 ###### 22 
-Then the magicians of Egypt did so with their [^f]enchantments; and Pharaoh's heart grew hard, and he did not heed them, as the Lord had said. 
+Then the magicians of Egypt did so with their enchantments; and Pharaoh's heart grew hard, and he did not heed them, as the Lord had said. 
 
 ###### 23 
 And Pharaoh turned and went into his house. Neither was his heart moved by this. 

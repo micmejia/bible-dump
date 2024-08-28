@@ -40,7 +40,7 @@ the border shall proceed to Ziphron, and it shall end at Hazar Enan. This shall 
 'You shall mark out your eastern border from Hazar Enan to Shepham; 
 
 ###### 11 
-the border shall go down from Shepham to Riblah on the east side of Ain; the border shall go down and reach to the eastern [^a]side of the Sea of Chinnereth; 
+the border shall go down from Shepham to Riblah on the east side of Ain; the border shall go down and reach to the eastern side of the Sea of Chinnereth; 
 
 ###### 12 
 the border shall go down along the Jordan, and it shall end at the Salt Sea. This shall be your land with its surrounding boundaries.' " 
@@ -94,4 +94,4 @@ a leader from the tribe of the children of Asher, Ahihud the son of Shelomi;
 and a leader from the tribe of the children of Naphtali, Pedahel the son of Ammihud." 
 
 ###### 29 
-These _are_ the ones the Lord commanded to [^b]divide the inheritance among the children of Israel in the land of Canaan.
+These _are_ the ones the Lord commanded to divide the inheritance among the children of Israel in the land of Canaan.

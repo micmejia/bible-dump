@@ -22,7 +22,7 @@ As for Saul, he made havoc of the church, entering every house, and dragging off
 Therefore those who were scattered went everywhere preaching the word. 
 
 ###### 5 
-Then Philip went down to [^a]the city of Samaria and preached Christ to them. 
+Then Philip went down to the city of Samaria and preached Christ to them. 
 
 ###### 6 
 And the multitudes with one accord heeded the things spoken by Philip, hearing and seeing the miracles which he did. 
@@ -34,13 +34,13 @@ For unclean spirits, crying with a loud voice, came out of many who were possess
 And there was great joy in that city. ## The Sorcerer's Profession of Faith 
 
 ###### 9 
-But there was a certain man called Simon, who previously practiced [^b]sorcery in the city and astonished the [^c]people of Samaria, claiming that he was someone great, 
+But there was a certain man called Simon, who previously practiced sorcery in the city and astonished the people of Samaria, claiming that he was someone great, 
 
 ###### 10 
 to whom they all gave heed, from the least to the greatest, saying, "This man is the great power of God." 
 
 ###### 11 
-And they heeded him because he had astonished them with his [^d]sorceries for a long time. 
+And they heeded him because he had astonished them with his sorceries for a long time. 
 
 ###### 12 
 But when they believed Philip as he preached the things concerning the kingdom of God and the name of Jesus Christ, both men and women were baptized. 
@@ -85,7 +85,7 @@ Then Simon answered and said, "Pray to the Lord for me, that none of the things 
 So when they had testified and preached the word of the Lord, they returned to Jerusalem, preaching the gospel in many villages of the Samaritans. ## Christ Is Preached to an Ethiopian 
 
 ###### 26 
-Now an angel of the Lord spoke to Philip, saying, "Arise and go toward the south along the road which goes down from Jerusalem to Gaza." This is [^e]desert. 
+Now an angel of the Lord spoke to Philip, saying, "Arise and go toward the south along the road which goes down from Jerusalem to Gaza." This is desert. 
 
 ###### 27 
 So he arose and went. And behold, a man of Ethiopia, a eunuch of great authority under Candace the queen of the Ethiopians, who had charge of all her treasury, and had come to Jerusalem to worship, 
@@ -118,7 +118,7 @@ Then Philip opened his mouth, and beginning at this Scripture, preached Jesus to
 Now as they went down the road, they came to some water. And the eunuch said, "See, _here is_ water. What hinders me from being baptized?" 
 
 ###### 37 
-[^f]Then Philip said, "If you believe with all your heart, you may." And he answered and said, "I believe that Jesus Christ is the Son of God." 
+Then Philip said, "If you believe with all your heart, you may." And he answered and said, "I believe that Jesus Christ is the Son of God." 
 
 ###### 38 
 So he commanded the chariot to stand still. And both Philip and the eunuch went down into the water, and he baptized him. 
@@ -127,4 +127,4 @@ So he commanded the chariot to stand still. And both Philip and the eunuch went 
 Now when they came up out of the water, the Spirit of the Lord caught Philip away, so that the eunuch saw him no more; and he went on his way rejoicing. 
 
 ###### 40 
-But Philip was found at [^g]Azotus. And passing through, he preached in all the cities till he came to Caesarea.
+But Philip was found at Azotus. And passing through, he preached in all the cities till he came to Caesarea.

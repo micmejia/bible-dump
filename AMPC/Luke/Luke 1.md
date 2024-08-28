@@ -27,7 +27,7 @@ next: ['Luke 2']
 
 
 
-Since [[^a]as is well known] many have undertaken to put in order _and_ draw up a [[^b]thorough] narrative of the surely established deeds which have been accomplished _and_ fulfilled [^c] in _and_ among us, 
+Since [as is well known] many have undertaken to put in order _and_ draw up a [thorough] narrative of the surely established deeds which have been accomplished _and_ fulfilled  in _and_ among us, 
 
 
 
@@ -48,7 +48,7 @@ Since [[^a]as is well known] many have undertaken to put in order _and_ draw up 
 
 
 
-Exactly as they were handed down to us by those who from the [[^d]official] beginning [of Jesus' ministry] were eyewitnesses and ministers of the Word [that is, of [^e]the doctrine concerning the attainment through Christ of salvation in the kingdom of God], 
+Exactly as they were handed down to us by those who from the [official] beginning [of Jesus' ministry] were eyewitnesses and ministers of the Word [that is, of the doctrine concerning the attainment through Christ of salvation in the kingdom of God], 
 
 
 
@@ -69,7 +69,7 @@ Exactly as they were handed down to us by those who from the [[^d]official] begi
 
 
 
-It seemed good _and_ desirable to me, [and so I have determined] also after [^f]having searched out diligently _and_ followed all things closely _and_ traced accurately the course from the highest to the minutest detail from the very first, to write an orderly account for you, most excellent Theophilus, 
+It seemed good _and_ desirable to me, [and so I have determined] also after having searched out diligently _and_ followed all things closely _and_ traced accurately the course from the highest to the minutest detail from the very first, to write an orderly account for you, most excellent Theophilus, 
 
 
 
@@ -90,7 +90,7 @@ It seemed good _and_ desirable to me, [and so I have determined] also after [^f]
 
 
 
-[My purpose is] that you may know the full truth _and_ understand with certainty _and_ security against error the accounts (histories) _and_ doctrines of the faith of which you have been informed _and_ in which you have been [^g]orally instructed. 
+[My purpose is] that you may know the full truth _and_ understand with certainty _and_ security against error the accounts (histories) _and_ doctrines of the faith of which you have been informed _and_ in which you have been orally instructed. 
 
 
 
@@ -111,7 +111,7 @@ It seemed good _and_ desirable to me, [and so I have determined] also after [^f]
 
 
 
-In the days when Herod was king of Judea there was a certain priest whose name was Zachariah, [^h]of the daily service (the division) of Abia; and his wife was also a descendant of Aaron, and her name was Elizabeth. 
+In the days when Herod was king of Judea there was a certain priest whose name was Zachariah, of the daily service (the division) of Abia; and his wife was also a descendant of Aaron, and her name was Elizabeth. 
 
 
 
@@ -153,7 +153,7 @@ And they both were righteous in the sight of God, walking blamelessly in all the
 
 
 
-But they had no child, for Elizabeth was barren; and both were [^i]far advanced in years. 
+But they had no child, for Elizabeth was barren; and both were far advanced in years. 
 
 
 
@@ -195,7 +195,7 @@ Now while on duty, serving as priest before God in the order of his division,
 
 
 
-As was the custom of the priesthood, it fell to him by lot to enter [the [^j]sanctuary of] the temple of the Lord and burn incense. 
+As was the custom of the priesthood, it fell to him by lot to enter [the sanctuary of] the temple of the Lord and burn incense. 
 
 
 
@@ -279,7 +279,7 @@ And when Zachariah saw him, he was troubled, and fear took possession of him.
 
 
 
-But the angel said to him, Do not be afraid, Zachariah, because your petition [^k]was heard, and your wife Elizabeth will bear you a son, and you must call his name John [God is favorable]. 
+But the angel said to him, Do not be afraid, Zachariah, because your petition was heard, and your wife Elizabeth will bear you a son, and you must call his name John [God is favorable]. 
 
 
 
@@ -321,7 +321,7 @@ And you shall have joy and exultant delight, and many will rejoice over his birt
 
 
 
-For he will be great _and_ distinguished in the sight of the Lord. And he must drink no wine nor strong drink, and he will be filled with _and_ controlled by the Holy Spirit even [^l]in _and_ from his mother's womb. 
+For he will be great _and_ distinguished in the sight of the Lord. And he must drink no wine nor strong drink, and he will be filled with _and_ controlled by the Holy Spirit even in _and_ from his mother's womb. 
 
 
 
@@ -363,7 +363,7 @@ And he will turn back _and_ cause to return many of the sons of Israel to the Lo
 
 
 
-And he will [himself] go before Him in the spirit and power of Elijah, to turn back the hearts of the fathers to the children, and the disobedient _and_ incredulous _and_ unpersuadable to the wisdom of the upright [which is [^m]the knowledge and holy love of the will of God]--in order to make ready for the Lord a people [perfectly] prepared [in spirit, [^n]adjusted and disposed and placed in the right moral state]. 
+And he will [himself] go before Him in the spirit and power of Elijah, to turn back the hearts of the fathers to the children, and the disobedient _and_ incredulous _and_ unpersuadable to the wisdom of the upright [which is the knowledge and holy love of the will of God]--in order to make ready for the Lord a people [perfectly] prepared [in spirit, adjusted and disposed and placed in the right moral state]. 
 
 
 
@@ -426,7 +426,7 @@ And the angel replied to him, I am Gabriel. I stand in the [very] presence of Go
 
 
 
-Now behold, you will be _and_ [^o]will continue to be silent and not able to speak till the day when these things take place, because you have not believed what I told you; but my words are [^p]of a kind which will be fulfilled in the appointed _and_ proper time. 
+Now behold, you will be _and_ will continue to be silent and not able to speak till the day when these things take place, because you have not believed what I told you; but my words are of a kind which will be fulfilled in the appointed _and_ proper time. 
 
 
 
@@ -447,7 +447,7 @@ Now behold, you will be _and_ [^o]will continue to be silent and not able to spe
 
 
 
-Now the people kept waiting for Zachariah, and they wondered at his delaying [so long] in the [^q]sanctuary. 
+Now the people kept waiting for Zachariah, and they wondered at his delaying [so long] in the sanctuary. 
 
 
 
@@ -468,7 +468,7 @@ Now the people kept waiting for Zachariah, and they wondered at his delaying [so
 
 
 
-But when he did come out, he was unable to speak to them; and they [[^r]clearly] perceived that he had seen a vision in the [^s]sanctuary; and he kept making signs to them, still he remained dumb. 
+But when he did come out, he was unable to speak to them; and they [clearly] perceived that he had seen a vision in the sanctuary; and he kept making signs to them, still he remained dumb. 
 
 
 
@@ -510,7 +510,7 @@ And when his time of performing priestly functions was ended, he returned to his
 
 
 
-Now after this his wife Elizabeth became pregnant, and for five months she secluded herself [^t]entirely, saying, [I have hid myself] 
+Now after this his wife Elizabeth became pregnant, and for five months she secluded herself entirely, saying, [I have hid myself] 
 
 
 
@@ -531,7 +531,7 @@ Now after this his wife Elizabeth became pregnant, and for five months she seclu
 
 
 
-[^u]Because thus the Lord has dealt with me in the days when He deigned to look on me to take away my reproach among men. 
+Because thus the Lord has dealt with me in the days when He deigned to look on me to take away my reproach among men. 
 
 
 
@@ -573,7 +573,7 @@ Now in the sixth month [after that], the angel Gabriel was sent from God to a to
 
 
 
-To a girl never having been married _and_ a [^v]virgin engaged to be married to a man whose name was Joseph, a descendant of the house of David; and the virgin's name was Mary. 
+To a girl never having been married _and_ a virgin engaged to be married to a man whose name was Joseph, a descendant of the house of David; and the virgin's name was Mary. 
 
 
 
@@ -594,7 +594,7 @@ To a girl never having been married _and_ a [^v]virgin engaged to be married to 
 
 
 
-And he came to her and said, Hail, O favored one [[^w]endued with grace]! The Lord is with you! [^x]_Blessed (favored of God) are you before all other women!_ 
+And he came to her and said, Hail, O favored one [endued with grace]! The Lord is with you! _Blessed (favored of God) are you before all other women!_ 
 
 
 
@@ -636,7 +636,7 @@ But _when she saw him_, she was greatly troubled _and_ disturbed _and_ confused 
 
 
 
-And the angel said to her, Do not be afraid, Mary, for you have found grace ([^y]free, spontaneous, absolute favor and loving-kindness) with God. 
+And the angel said to her, Do not be afraid, Mary, for you have found grace (free, spontaneous, absolute favor and loving-kindness) with God. 
 
 
 
@@ -951,7 +951,7 @@ For behold, the instant the sound of your salutation reached my ears, the baby i
 
 
 
-And blessed (happy, [^z]to be envied) is she who believed that there would be a fulfillment of the things that were spoken to her from the Lord. 
+And blessed (happy, to be envied) is she who believed that there would be a fulfillment of the things that were spoken to her from the Lord. 
 
 
 

@@ -699,7 +699,7 @@ Huwag itong ipaalam sa Gat, o sa mga lansangan ng Ashkelon, baka ikagalak ito ng
 
 
 
-O Bundok ng Gilboa, wala sanang ulan o hamog na dumating sa iyo. Wala sanang tumubong pananim sa iyong bukirin upang ihandog <i class="trans-change">sa Dios_.[^a] Sapagkat diyan nadungisan <i class="trans-change">ng mga kaaway_ ang pananggalang ng magiting na si Haring Saul. At wala nang magpapahid dito ng langis <i class="trans-change">upang itoʼy linisin at pakintabin_. 
+O Bundok ng Gilboa, wala sanang ulan o hamog na dumating sa iyo. Wala sanang tumubong pananim sa iyong bukirin upang ihandog <i class="trans-change">sa Dios_. Sapagkat diyan nadungisan <i class="trans-change">ng mga kaaway_ ang pananggalang ng magiting na si Haring Saul. At wala nang magpapahid dito ng langis <i class="trans-change">upang itoʼy linisin at pakintabin_. 
 
 
 

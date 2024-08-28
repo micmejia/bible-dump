@@ -49,7 +49,7 @@ And Solomon made an alliance with Pharaoh king of Egypt and took Pharaoh's daugh
 
 
 
-But the people sacrificed [to God] in the high places [as the heathen did to their idols], for there was no house yet built to the [^a]Name of the Lord. 
+But the people sacrificed [to God] in the high places [as the heathen did to their idols], for there was no house yet built to the Name of the Lord. 
 
 
 
@@ -112,7 +112,7 @@ The king went to Gibeon [near Jerusalem, where stood the tabernacle and the bron
 
 
 
-In Gibeon the Lord appeared to Solomon in a dream by night. And God said, [^b]Ask what I shall give you. 
+In Gibeon the Lord appeared to Solomon in a dream by night. And God said, Ask what I shall give you. 
 
 
 
@@ -154,7 +154,7 @@ Solomon said, You have shown to Your servant David my father great mercy _and_ l
 
 
 
-Now, O Lord my God, You have made Your servant king instead of David my father, and I am [^c]but a lad [in wisdom and experience]; I know not how to go out (begin) or come in (finish). 
+Now, O Lord my God, You have made Your servant king instead of David my father, and I am but a lad [in wisdom and experience]; I know not how to go out (begin) or come in (finish). 
 
 
 

@@ -172,7 +172,7 @@ Nakatayo naman sa di-kalayuan ang kapatid na babae ng sanggol para tingnan kung 
 
 
 
-Ngayon, lumusong ang anak na babae ng Faraon sa <i class="trans-change">Ilog ng_ Nilo para maligo. Habang naliligo ang prinsesa,[^a] ang mga utusang babae naman niya ay naglalakad-lakad sa pampang. Nakita ng prinsesa ang basket sa matataas na damo kaya ipinakuha niya ito sa isa sa kanyang mga utusan. 
+Ngayon, lumusong ang anak na babae ng Faraon sa <i class="trans-change">Ilog ng_ Nilo para maligo. Habang naliligo ang prinsesa, ang mga utusang babae naman niya ay naglalakad-lakad sa pampang. Nakita ng prinsesa ang basket sa matataas na damo kaya ipinakuha niya ito sa isa sa kanyang mga utusan. 
 
 
 
@@ -238,7 +238,7 @@ Binuksan niya ang basket at nakita ang umiiyak na sanggol, kaya naawa siya rito.
 
 
 
-Pagkatapos, lumapit ang kapatid na babae ng sanggol sa prinsesa[^b] at nagtanong, "Gusto nʼyo po bang ikuha ko kayo ng isang babaeng Hebreo na magpapasuso <i class="trans-change">at mag-aalaga_ sa sanggol para sa inyo?" 
+Pagkatapos, lumapit ang kapatid na babae ng sanggol sa prinsesa at nagtanong, "Gusto nʼyo po bang ikuha ko kayo ng isang babaeng Hebreo na magpapasuso <i class="trans-change">at mag-aalaga_ sa sanggol para sa inyo?" 
 
 
 
@@ -337,7 +337,7 @@ Sinabi ng prinsesa sa ina ng bata, "Dalhin mo ang sanggol na ito at pasusuhin pa
 
 
 
-Nang lumaki na ang sanggol, dinala siya ng kanyang ina sa prinsesa at itinuring siya ng prinsesa bilang tunay niyang anak. Pinangalanan ng prinsesa ang bata na Moises,[^c] dahil sinabi niya, "Kinuha ko siya sa tubig." ## Tumakas si Moises Papuntang Midian 
+Nang lumaki na ang sanggol, dinala siya ng kanyang ina sa prinsesa at itinuring siya ng prinsesa bilang tunay niyang anak. Pinangalanan ng prinsesa ang bata na Moises, dahil sinabi niya, "Kinuha ko siya sa tubig." ## Tumakas si Moises Papuntang Midian 
 
 
 
@@ -601,7 +601,7 @@ May dumating doon na mga pastol at pinapaalis nila ang mga babae at ang kanilang
 
 
 
-Pag-uwi ng mga babae sa ama nilang si Reuel,[^d] tinanong niya sila, "Bakit parang napaaga ang pag-uwi nʼyo?" 
+Pag-uwi ng mga babae sa ama nilang si Reuel, tinanong niya sila, "Bakit parang napaaga ang pag-uwi nʼyo?" 
 
 
 
@@ -733,7 +733,7 @@ Nagtanong ang kanilang ama, "Nasaan na siya? Bakit ninyo siya iniwan? Tawagin ni
 
 
 
-<i class="trans-change">Nagbuntis_ si Zipora at nanganak ng isang lalaki, at pinangalanan ito ni Moises na Gershom,[^e] dahil sinabi niya, "Dayuhan ako sa lupaing ito." 
+<i class="trans-change">Nagbuntis_ si Zipora at nanganak ng isang lalaki, at pinangalanan ito ni Moises na Gershom, dahil sinabi niya, "Dayuhan ako sa lupaing ito." 
 
 
 

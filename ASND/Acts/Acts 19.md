@@ -799,7 +799,7 @@ Nang panahon ding iyon, nagkaroon ng malaking kaguluhan <i class="trans-change">
 
 
 
-May isang platero roon[^a] na nagngangalang Demetrius. Gumagawa siya at ang kanyang mga tauhan ng maliliit na templong yari sa pilak na iginaya sa templo ni Artemis <i class="trans-change">na kanilang diosa_, at itoʼy pinagkakakitaan nila nang malaki. 
+May isang platero roon na nagngangalang Demetrius. Gumagawa siya at ang kanyang mga tauhan ng maliliit na templong yari sa pilak na iginaya sa templo ni Artemis <i class="trans-change">na kanilang diosa_, at itoʼy pinagkakakitaan nila nang malaki. 
 
 
 

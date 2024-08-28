@@ -601,7 +601,7 @@ sina Santiago at Juan na mga anak ni Zebedee (tinawag niya silang Boanerges na a
 
 
 
-si Andres, si Felipe, si Bartolome, si Mateo, si Tomas, si Santiago na anak ni Alfeus, si Tadeus, si Simon na makabayan[^a] 
+si Andres, si Felipe, si Bartolome, si Mateo, si Tomas, si Santiago na anak ni Alfeus, si Tadeus, si Simon na makabayan 
 
 
 
@@ -733,7 +733,7 @@ Nang mabalitaan ng pamilya ni Jesus ang mga ginagawa niya, siyaʼy sinundo nila,
 
 
 
-May dumating namang mga tagapagturo ng Kautusan galing sa Jerusalem, at sinabi nila, "Sinasaniban siya ni Satanas[^b] na pinuno ng masasamang espiritu. At ito ang nagbibigay sa kanya ng kapangyarihang magpalayas ng masasamang espiritu." 
+May dumating namang mga tagapagturo ng Kautusan galing sa Jerusalem, at sinabi nila, "Sinasaniban siya ni Satanas na pinuno ng masasamang espiritu. At ito ang nagbibigay sa kanya ng kapangyarihang magpalayas ng masasamang espiritu." 
 
 
 
@@ -898,7 +898,7 @@ Kaya kung si Satanas at ang mga kampon niya ay nagkakahati-hati at nag-aaway-awa
 
 
 
-"Hindi maaaring pasukin ng magnanakaw ang bahay ng malakas na tao kung hindi niya muna ito gagapusin. Ngunit kapag naigapos na niya, maaari na niyang nakawan ang bahay nito.[^c] 
+"Hindi maaaring pasukin ng magnanakaw ang bahay ng malakas na tao kung hindi niya muna ito gagapusin. Ngunit kapag naigapos na niya, maaari na niyang nakawan ang bahay nito. 
 
 
 

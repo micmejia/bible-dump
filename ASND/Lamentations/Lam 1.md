@@ -72,7 +72,7 @@ Napakalungkot na sa Jerusalem na dati ay puno ng mga tao. Ang kilalang-kilala no
 
 
 
-Buong pait siyang umiiyak magdamag. Mga luha niyaʼy dumadaloy sa kanyang mga pisngi. Walang dumamay sa kanya, isa man sa kanyang mga minamahal.[^a] Pinagtaksilan siya ng lahat ng kaibigan niya, na ngayoʼy kanyang kaaway. 
+Buong pait siyang umiiyak magdamag. Mga luha niyaʼy dumadaloy sa kanyang mga pisngi. Walang dumamay sa kanya, isa man sa kanyang mga minamahal. Pinagtaksilan siya ng lahat ng kaibigan niya, na ngayoʼy kanyang kaaway. 
 
 
 
@@ -138,7 +138,7 @@ Lubhang pinahirapan ang Juda at ang mga mamamayan niyaʼy binihag. Doon na sila 
 
 
 
-Ang mga daan patungo sa Jerusalem[^b] ay <i class="trans-change">puno na ng_ kalungkutan, dahil wala nang dumadalo sa mga takdang pista. Sa mga pintuang bayan ay wala na ring mga tao. Ang mga pari ay dumadaing, at ang mga dalaga ay nagdadalamhati. Napakapait ng sinapit ng Jerusalem. 
+Ang mga daan patungo sa Jerusalem ay <i class="trans-change">puno na ng_ kalungkutan, dahil wala nang dumadalo sa mga takdang pista. Sa mga pintuang bayan ay wala na ring mga tao. Ang mga pari ay dumadaing, at ang mga dalaga ay nagdadalamhati. Napakapait ng sinapit ng Jerusalem. 
 
 
 
@@ -270,7 +270,7 @@ Ngayong ang Jerusalem ay nagdadalamhati at naguguluhan, naalala niya ang lahat n
 
 
 
-Napakalaki ng kasalanan ng Jerusalem, kaya naging marumi siya. Ang lahat ng pumupuri noon sa kanya ngayoʼy hinahamak na siya, dahil nakita nila ang kanyang kahihiyan.[^c] Sa hiya ay napadaing siya at tumalikod. 
+Napakalaki ng kasalanan ng Jerusalem, kaya naging marumi siya. Ang lahat ng pumupuri noon sa kanya ngayoʼy hinahamak na siya, dahil nakita nila ang kanyang kahihiyan. Sa hiya ay napadaing siya at tumalikod. 
 
 
 
@@ -501,7 +501,7 @@ Inipon niya ang lahat ng aking mga kasalanan at inilagay sa aking batok bilang p
 
 
 
-Itinakwil ng Panginoon ang lahat ng mga kawal ko. Tinipon niya ang aking mga kaaway para lipulin ang aking mga kabataang sundalo. Ang mga mamamayan[^d] ng Juda ay naging tulad ng ubas na ipinasok ng Panginoon sa pigaan at tinapak-tapakan. 
+Itinakwil ng Panginoon ang lahat ng mga kawal ko. Tinipon niya ang aking mga kaaway para lipulin ang aking mga kabataang sundalo. Ang mga mamamayan ng Juda ay naging tulad ng ubas na ipinasok ng Panginoon sa pigaan at tinapak-tapakan. 
 
 
 

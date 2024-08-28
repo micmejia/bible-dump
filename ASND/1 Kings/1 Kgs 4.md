@@ -634,7 +634,7 @@ Si Shimei na anak ni Ela, <i class="trans-change">na namamahala_ sa Benjamin.
 
 
 
-Si Geber na anak ni Uri, <i class="trans-change">na namamahala_ sa Gilead na sakop noon ni Sihon na hari ng mga Amoreo at ni Haring Og ng Bashan. Si Geber lang ang gobernador sa buong distritong ito.[^a] ## Ang Kasaganaan at ang Karunungan ni Solomon 
+Si Geber na anak ni Uri, <i class="trans-change">na namamahala_ sa Gilead na sakop noon ni Sihon na hari ng mga Amoreo at ni Haring Og ng Bashan. Si Geber lang ang gobernador sa buong distritong ito. ## Ang Kasaganaan at ang Karunungan ni Solomon 
 
 
 
@@ -865,7 +865,7 @@ Kaya habang nabubuhay si Solomon, may kapayapaan sa Juda at sa Israel, mula Dan 
 
 
 
-May 40,000[^b] kwadra si Solomon para sa kanyang mga kabayong pangkarwahe at may 12,000 siyang mangangabayo.[^c] 
+May 40,000 kwadra si Solomon para sa kanyang mga kabayong pangkarwahe at may 12,000 siyang mangangabayo. 
 
 
 
@@ -1096,7 +1096,7 @@ Gumawa siya ng 3,000 kawikaan at 1,005 awit.
 
 
 
-Makapagsasabi siya ng tungkol sa lahat ng uri ng pananim, mula sa malalaking punongkahoy hanggang sa maliliit na pananim.[^d] Makapagsasabi rin siya tungkol sa lahat ng uri ng hayop na lumalakad, gumagapang, lumilipad, at lumalangoy. 
+Makapagsasabi siya ng tungkol sa lahat ng uri ng pananim, mula sa malalaking punongkahoy hanggang sa maliliit na pananim. Makapagsasabi rin siya tungkol sa lahat ng uri ng hayop na lumalakad, gumagapang, lumilipad, at lumalangoy. 
 
 
 

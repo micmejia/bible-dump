@@ -13,7 +13,7 @@ next: ['Ezr 3']
 Now these _are_ the people of the province who came back from the captivity, of those who had been carried away, whom Nebuchadnezzar the king of Babylon had carried away to Babylon, and who returned to Jerusalem and Judah, everyone to his _own_ city. 
 
 ###### 2 
-_Those_ who came with Zerubbabel _were_ Jeshua, Nehemiah, [^a]Seraiah, [^b]Reelaiah, Mordecai, Bilshan, [^c]Mispar, Bigvai, [^d]Rehum, _and_ Baanah. The number of the men of the people of Israel: 
+_Those_ who came with Zerubbabel _were_ Jeshua, Nehemiah, Seraiah, Reelaiah, Mordecai, Bilshan, Mispar, Bigvai, Rehum, _and_ Baanah. The number of the men of the people of Israel: 
 
 ###### 3 
 the people of Parosh, two thousand one hundred and seventy-two; 
@@ -37,7 +37,7 @@ the people of Zattu, nine hundred and forty-five;
 the people of Zaccai, seven hundred and sixty; 
 
 ###### 10 
-the people of [^e]Bani, six hundred and forty-two; 
+the people of Bani, six hundred and forty-two; 
 
 ###### 11 
 the people of Bebai, six hundred and twenty-three; 
@@ -61,13 +61,13 @@ the people of Ater of Hezekiah, ninety-eight;
 the people of Bezai, three hundred and twenty-three; 
 
 ###### 18 
-the people of [^f]Jorah, one hundred and twelve; 
+the people of Jorah, one hundred and twelve; 
 
 ###### 19 
 the people of Hashum, two hundred and twenty-three; 
 
 ###### 20 
-the people of [^g]Gibbar, ninety-five; 
+the people of Gibbar, ninety-five; 
 
 ###### 21 
 the people of Bethlehem, one hundred and twenty-three; 
@@ -79,10 +79,10 @@ the men of Netophah, fifty-six;
 the men of Anathoth, one hundred and twenty-eight; 
 
 ###### 24 
-the people of [^h]Azmaveth, forty-two; 
+the people of Azmaveth, forty-two; 
 
 ###### 25 
-the people of [^i]Kirjath Arim, Chephirah, and Beeroth, seven hundred and forty-three; 
+the people of Kirjath Arim, Chephirah, and Beeroth, seven hundred and forty-three; 
 
 ###### 26 
 the people of Ramah and Geba, six hundred and twenty-one; 
@@ -127,7 +127,7 @@ the sons of Pashhur, one thousand two hundred and forty-seven;
 the sons of Harim, one thousand and seventeen. 
 
 ###### 40 
-The Levites: the sons of Jeshua and Kadmiel, of the sons of [^j]Hodaviah, seventy-four. 
+The Levites: the sons of Jeshua and Kadmiel, of the sons of Hodaviah, seventy-four. 
 
 ###### 41 
 The singers: the sons of Asaph, one hundred and twenty-eight. 
@@ -139,7 +139,7 @@ The sons of the gatekeepers: the sons of Shallum, the sons of Ater, the sons of 
 The Nethinim: the sons of Ziha, the sons of Hasupha, the sons of Tabbaoth, 
 
 ###### 44 
-the sons of Keros, the sons of [^k]Siaha, the sons of Padon, 
+the sons of Keros, the sons of Siaha, the sons of Padon, 
 
 ###### 45 
 the sons of Lebanah, the sons of Hagabah, the sons of Akkub, 
@@ -157,13 +157,13 @@ the sons of Rezin, the sons of Nekoda, the sons of Gazzam,
 the sons of Uzza, the sons of Paseah, the sons of Besai, 
 
 ###### 50 
-the sons of Asnah, the sons of Meunim, the sons of [^l]Nephusim, 
+the sons of Asnah, the sons of Meunim, the sons of Nephusim, 
 
 ###### 51 
 the sons of Bakbuk, the sons of Hakupha, the sons of Harhur, 
 
 ###### 52 
-the sons of [^m]Bazluth, the sons of Mehida, the sons of Harsha, 
+the sons of Bazluth, the sons of Mehida, the sons of Harsha, 
 
 ###### 53 
 the sons of Barkos, the sons of Sisera, the sons of Tamah, 
@@ -172,31 +172,31 @@ the sons of Barkos, the sons of Sisera, the sons of Tamah,
 the sons of Neziah, and the sons of Hatipha. 
 
 ###### 55 
-The sons of Solomon's servants: the sons of Sotai, the sons of Sophereth, the sons of [^n]Peruda, 
+The sons of Solomon's servants: the sons of Sotai, the sons of Sophereth, the sons of Peruda, 
 
 ###### 56 
 the sons of Jaala, the sons of Darkon, the sons of Giddel, 
 
 ###### 57 
-the sons of Shephatiah, the sons of Hattil, the sons of Pochereth of Zebaim, and the sons of [^o]Ami. 
+the sons of Shephatiah, the sons of Hattil, the sons of Pochereth of Zebaim, and the sons of Ami. 
 
 ###### 58 
 All the Nethinim and the children of Solomon's servants were three hundred and ninety-two. 
 
 ###### 59 
-And these _were_ the ones who came up from Tel Melah, Tel Harsha, Cherub, [^p]Addan, and Immer; but they could not [^q]identify their father's house or their [^r]genealogy, whether they _were_ of Israel: 
+And these _were_ the ones who came up from Tel Melah, Tel Harsha, Cherub, Addan, and Immer; but they could not identify their father's house or their genealogy, whether they _were_ of Israel: 
 
 ###### 60 
 the sons of Delaiah, the sons of Tobiah, and the sons of Nekoda, six hundred and fifty-two; 
 
 ###### 61 
-and of the sons of the priests: the sons of Habaiah, the sons of [^s]Koz, and the sons of Barzillai, who took a wife of the daughters of Barzillai the Gileadite, and was called by their name. 
+and of the sons of the priests: the sons of Habaiah, the sons of Koz, and the sons of Barzillai, who took a wife of the daughters of Barzillai the Gileadite, and was called by their name. 
 
 ###### 62 
 These sought their listing _among_ those who were registered by genealogy, but they were not found; therefore they _were excluded_ from the priesthood as defiled. 
 
 ###### 63 
-And the [^t]governor said to them that they should not eat of the most holy things till a priest could consult with the Urim and Thummim. 
+And the governor said to them that they should not eat of the most holy things till a priest could consult with the Urim and Thummim. 
 
 ###### 64 
 The whole assembly together _was_ forty-two thousand three hundred _and_ sixty, 

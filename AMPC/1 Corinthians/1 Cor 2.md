@@ -28,7 +28,7 @@ next: ['1 Cor 3']
 
 
 
-As for myself, brethren, when I came to you, I did not come proclaiming to you the testimony _and_ evidence _or_ [^a]_mystery and secret_ of God [concerning what He has done through Christ for the salvation of men] in lofty words of eloquence or human philosophy _and_ wisdom; 
+As for myself, brethren, when I came to you, I did not come proclaiming to you the testimony _and_ evidence _or_ _mystery and secret_ of God [concerning what He has done through Christ for the salvation of men] in lofty words of eloquence or human philosophy _and_ wisdom; 
 
 
 
@@ -70,7 +70,7 @@ For I resolved to know nothing (to be acquainted with nothing, to make a display
 
 
 
-And I was in ([^b]passed into a state of) weakness and fear (dread) and great trembling [[^c]after I had come] among you. 
+And I was in (passed into a state of) weakness and fear (dread) and great trembling [after I had come] among you. 
 
 
 
@@ -91,7 +91,7 @@ And I was in ([^b]passed into a state of) weakness and fear (dread) and great tr
 
 
 
-And my language and my message were not set forth in persuasive (enticing and plausible) words of wisdom, but they were in demonstration of the [Holy] Spirit and power [[^d]a proof by the Spirit and power of God, operating on me and stirring in the minds of my hearers the most holy emotions and thus persuading them], 
+And my language and my message were not set forth in persuasive (enticing and plausible) words of wisdom, but they were in demonstration of the [Holy] Spirit and power [a proof by the Spirit and power of God, operating on me and stirring in the minds of my hearers the most holy emotions and thus persuading them], 
 
 
 
@@ -196,7 +196,7 @@ None of the rulers of this age _or_ world perceived _and_ recognized _and_ under
 
 
 
-But, on the contrary, as the Scripture says, What eye has not seen and ear has not heard and has not entered into the heart of man, [all that] God has prepared (made and keeps ready) for those who love Him [[^e]who hold Him in affectionate reverence, promptly obeying Him and gratefully recognizing the benefits He has bestowed]. 
+But, on the contrary, as the Scripture says, What eye has not seen and ear has not heard and has not entered into the heart of man, [all that] God has prepared (made and keeps ready) for those who love Him [who hold Him in affectionate reverence, promptly obeying Him and gratefully recognizing the benefits He has bestowed]. 
 
 
 
@@ -217,7 +217,7 @@ But, on the contrary, as the Scripture says, What eye has not seen and ear has n
 
 
 
-Yet to us God has unveiled _and_ revealed them by _and_ through His Spirit, for the [Holy] Spirit searches diligently, exploring _and_ examining everything, even sounding the profound and bottomless things of God [the [^f]divine counsels and things hidden and beyond man's scrutiny]. 
+Yet to us God has unveiled _and_ revealed them by _and_ through His Spirit, for the [Holy] Spirit searches diligently, exploring _and_ examining everything, even sounding the profound and bottomless things of God [the divine counsels and things hidden and beyond man's scrutiny]. 
 
 
 
@@ -322,7 +322,7 @@ But the natural, nonspiritual man does not accept _or_ welcome _or_ admit into h
 
 
 
-But the spiritual man tries all things [he [^g]examines, investigates, inquires into, questions, and discerns all things], yet is himself to be put on trial and judged by no one [he can read the meaning of everything, but no one can properly discern _or_ appraise _or_ get an insight into him]. 
+But the spiritual man tries all things [he examines, investigates, inquires into, questions, and discerns all things], yet is himself to be put on trial and judged by no one [he can read the meaning of everything, but no one can properly discern _or_ appraise _or_ get an insight into him]. 
 
 
 

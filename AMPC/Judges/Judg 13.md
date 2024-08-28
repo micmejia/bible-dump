@@ -70,7 +70,7 @@ And there was a certain man of Zorah, of the tribe of the Danites, whose name wa
 
 
 
-And the [^a]Angel of the Lord appeared to the woman and said to her, Behold, you are barren and have no children, but you shall become pregnant and bear a son. 
+And the Angel of the Lord appeared to the woman and said to her, Behold, you are barren and have no children, but you shall become pregnant and bear a son. 
 
 
 
@@ -133,7 +133,7 @@ For behold, you shall become pregnant and bear a son. No razor shall come upon h
 
 
 
-Then the woman went and told her husband, saying, A [^b]Man of God came to me and his face was like the face of the Angel of God, to be greatly and reverently feared. I did not ask him from where he came, and he did not tell me his name. 
+Then the woman went and told her husband, saying, A Man of God came to me and his face was like the face of the Angel of God, to be greatly and reverently feared. I did not ask him from where he came, and he did not tell me his name. 
 
 
 

@@ -175,7 +175,7 @@ Behold, their valiant ones cry without; the ambassadors of peace weep bitterly.
 
 
 
-The highways lie waste, the wayfaring man ceases. The enemy has broken the covenant, he has despised the cities _and_ [^a]_the witnesses_, he regards no man. 
+The highways lie waste, the wayfaring man ceases. The enemy has broken the covenant, he has despised the cities _and_ _the witnesses_, he regards no man. 
 
 
 

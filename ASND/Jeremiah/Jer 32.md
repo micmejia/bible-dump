@@ -139,7 +139,7 @@ Ikinulong siya roon ni Haring Zedekia dahil sa kanyang ipinahayag. Sapagkat sina
 
 
 
-Si Haring Zedekia ay hindi makakaligtas sa mga taga-Babilonia,[^a] kundi talagang ihaharap siya sa hari ng Babilonia <i class="trans-change">para hatulan_. 
+Si Haring Zedekia ay hindi makakaligtas sa mga taga-Babilonia, kundi talagang ihaharap siya sa hari ng Babilonia <i class="trans-change">para hatulan_. 
 
 
 
@@ -733,7 +733,7 @@ Sa pamamagitan ng mga himala at mga kahanga-hangang bagay, at sa kapangyarihan n
 
 
 
-Ibinigay po ninyo sa kanila ang maganda at masaganang lupain[^b] na siyang ipinangako nʼyong ibibigay sa kanilang mga ninuno. 
+Ibinigay po ninyo sa kanila ang maganda at masaganang lupain na siyang ipinangako nʼyong ibibigay sa kanilang mga ninuno. 
 
 
 
@@ -1459,4 +1459,4 @@ At muling magbibilihan ng mga bukid sa lupaing ito na ngayon ay malungkot at wal
 
 
 
-"Muling magbibilihan ng mga bukid, na lalagdaan, tatatakan at sasaksihan ang mga kasulatan ng bilihan. Gagawin ito sa lupain ni Benjamin, sa mga lugar sa palibot ng Jerusalem, sa mga bayan ng Juda, sa mga bayan sa kabundukan at kaburulan sa kanluran, at sa Negev. <i class="trans-change">Mangyayari ito_ dahil pababalikin ko ang mga mamamayan ko sa lupain nila mula sa pagkakabihag.[^c] <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito."
+"Muling magbibilihan ng mga bukid, na lalagdaan, tatatakan at sasaksihan ang mga kasulatan ng bilihan. Gagawin ito sa lupain ni Benjamin, sa mga lugar sa palibot ng Jerusalem, sa mga bayan ng Juda, sa mga bayan sa kabundukan at kaburulan sa kanluran, at sa Negev. <i class="trans-change">Mangyayari ito_ dahil pababalikin ko ang mga mamamayan ko sa lupain nila mula sa pagkakabihag. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito."

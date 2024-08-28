@@ -832,7 +832,7 @@ Kung hindi ako gumawa sa harap nila ng mga himalang kailanmaʼy hindi nagawa nin
 
 
 
-Sa ginawa nilang ito, natupad ang nakasulat sa kanilang Kautusan: 'Napopoot sila sa akin nang walang dahilan.' "[^a] 
+Sa ginawa nilang ito, natupad ang nakasulat sa kanilang Kautusan: 'Napopoot sila sa akin nang walang dahilan.' " 
 
 
 

@@ -24,7 +24,7 @@ Then the Lord said, "_Is it_ right for you to be angry?"
 So Jonah went out of the city and sat on the east side of the city. There he made himself a shelter and sat under it in the shade, till he might see what would become of the city. 
 
 ###### 6 
-And the Lord God prepared a [^a]plant and made it come up over Jonah, that it might be shade for his head to deliver him from his misery. So Jonah [^b]was very grateful for the plant. 
+And the Lord God prepared a plant and made it come up over Jonah, that it might be shade for his head to deliver him from his misery. So Jonah was very grateful for the plant. 
 
 ###### 7 
 But as morning dawned the next day God prepared a worm, and it _so_ damaged the plant that it withered. 
@@ -36,7 +36,7 @@ And it happened, when the sun arose, that God prepared a vehement east wind; and
 Then God said to Jonah, "_Is it_ right for you to be angry about the plant?" And he said, "_It is_ right for me to be angry, even to death!" 
 
 ###### 10 
-But the Lord said, "You have had pity on the plant for which you have not labored, nor made it grow, which [^c]came up in a night and perished in a night. 
+But the Lord said, "You have had pity on the plant for which you have not labored, nor made it grow, which came up in a night and perished in a night. 
 
 ###### 11 
 And should I not pity Nineveh, that great city, in which are more than one hundred and twenty thousand persons who cannot discern between their right hand and their left--and much livestock?"

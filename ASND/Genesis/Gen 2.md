@@ -667,7 +667,7 @@ Nilikha ng Panginoong Dios mula sa lupa ang lahat ng uri ng hayop na nakatira sa
 
 
 
-Kaya pinangalanan ng tao ang mga hayop na nakatira sa lupa pati ang mga hayop na lumilipad. Pero para kay Adan,[^a] wala kahit isa sa kanila ang nararapat na maging kasama niya na makakatulong sa kanya. 
+Kaya pinangalanan ng tao ang mga hayop na nakatira sa lupa pati ang mga hayop na lumilipad. Pero para kay Adan, wala kahit isa sa kanila ang nararapat na maging kasama niya na makakatulong sa kanya. 
 
 
 
@@ -766,7 +766,7 @@ Ang tadyang na kinuha ng Panginoong Dios sa lalaki ay nilikha niyang babae, at d
 
 
 
-Sinabi ng lalaki, "Narito na ang isang tulad ko! Buto na kinuha sa aking mga buto, at laman na kinuha sa aking laman. Tatawagin siyang 'babae,' dahil kinuha siya mula sa lalaki."[^b] 
+Sinabi ng lalaki, "Narito na ang isang tulad ko! Buto na kinuha sa aking mga buto, at laman na kinuha sa aking laman. Tatawagin siyang 'babae,' dahil kinuha siya mula sa lalaki." 
 
 
 

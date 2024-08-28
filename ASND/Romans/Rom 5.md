@@ -139,7 +139,7 @@ At nagagalak din tayo kahit na dumaranas tayo ng mga paghihirap, dahil natututo 
 
 
 
-Alam natin na ang pagtitiis ay nagpapabuti sa ating pagkatao.[^a] At kung mabuti ang ating pagkatao,[^b] may pag-asa tayo <i class="trans-change">na makakabahagi tayo sa kadakilaan ng Dios_. 
+Alam natin na ang pagtitiis ay nagpapabuti sa ating pagkatao. At kung mabuti ang ating pagkatao, may pag-asa tayo <i class="trans-change">na makakabahagi tayo sa kadakilaan ng Dios_. 
 
 
 
@@ -304,7 +304,7 @@ Pero ipinakita ng Dios sa atin ang kanyang pag-ibig sa ganitong paraan: Kahit no
 
 
 
-At ngayong itinuring na tayong matuwid sa pamamagitan ng dugo ni Cristo, tiyak na maliligtas tayo sa parusa[^c] <i class="trans-change">ng Dios_ dahil kay Cristo. 
+At ngayong itinuring na tayong matuwid sa pamamagitan ng dugo ni Cristo, tiyak na maliligtas tayo sa parusa <i class="trans-change">ng Dios_ dahil kay Cristo. 
 
 
 

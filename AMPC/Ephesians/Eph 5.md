@@ -49,7 +49,7 @@ Therefore be imitators of God [copy Him _and_ follow His example], as well-belov
 
 
 
-And walk in love, [esteeming and delighting in one another] as Christ loved us and gave Himself up for us, a [^a]slain offering and sacrifice to God [for you, so that it became] a sweet fragrance. 
+And walk in love, [esteeming and delighting in one another] as Christ loved us and gave Himself up for us, a slain offering and sacrifice to God [for you, so that it became] a sweet fragrance. 
 
 
 
@@ -70,7 +70,7 @@ And walk in love, [esteeming and delighting in one another] as Christ loved us a
 
 
 
-But immorality (sexual vice) and all impurity [[^b]of lustful, rich, wasteful living] or greediness must not even be named among you, as is fitting _and_ proper among saints (God's consecrated people). 
+But immorality (sexual vice) and all impurity [of lustful, rich, wasteful living] or greediness must not even be named among you, as is fitting _and_ proper among saints (God's consecrated people). 
 
 
 
@@ -196,7 +196,7 @@ For once you were darkness, but now you are light in the Lord; walk as children 
 
 
 
-For the fruit (the effect, the product) of the Light _or_ [^c]_the Spirit_ [consists] in every form of kindly goodness, uprightness of heart, and trueness of life. 
+For the fruit (the effect, the product) of the Light _or_ _the Spirit_ [consists] in every form of kindly goodness, uprightness of heart, and trueness of life. 
 
 
 
@@ -238,7 +238,7 @@ And try to learn [in your experience] what is pleasing to the Lord [let your liv
 
 
 
-Take no part in _and_ have no fellowship with the fruitless deeds _and_ enterprises of darkness, but instead [let your lives be so in contrast as to] [^d]expose _and_ reprove _and_ convict them. 
+Take no part in _and_ have no fellowship with the fruitless deeds _and_ enterprises of darkness, but instead [let your lives be so in contrast as to] expose _and_ reprove _and_ convict them. 
 
 
 
@@ -406,7 +406,7 @@ And do not get drunk with wine, for that is debauchery; but ever be filled _and_
 
 
 
-Speak out to one another in psalms and hymns and spiritual songs, offering praise with voices [[^e]and instruments] and making melody with all your heart to the Lord, 
+Speak out to one another in psalms and hymns and spiritual songs, offering praise with voices [and instruments] and making melody with all your heart to the Lord, 
 
 
 
@@ -700,4 +700,4 @@ This mystery is very great, but I speak concerning [the relation of] Christ and 
 
 
 
-However, let each man of you [without exception] love his wife as [being in a sense] his very own self; and let the wife see that she respects _and_ reverences her husband [[^f]that she notices him, regards him, honors him, prefers him, venerates, and esteems him; and [^g]that she defers to him, praises him, and loves and admires him exceedingly].
+However, let each man of you [without exception] love his wife as [being in a sense] his very own self; and let the wife see that she respects _and_ reverences her husband [that she notices him, regards him, honors him, prefers him, venerates, and esteems him; and that she defers to him, praises him, and loves and admires him exceedingly].

@@ -205,7 +205,7 @@ Sa ibabaw ng lupa <i class="trans-change">tumutubo ang mga tanim kung saan_ nagm
 
 
 
-Ang mga bato roon ay may mga safiro[^a] at ang mga alikabok ay may ginto. 
+Ang mga bato roon ay may mga safiro at ang mga alikabok ay may ginto. 
 
 
 
@@ -634,7 +634,7 @@ Ang halaga nitoʼy higit pa sa koral, jasper, o rubi.
 
 
 
-Hindi ito mapapantayan ng <i class="trans-change">mamahaling batong_ topaz na mula sa Etiopia[^b] at hindi rin mababayaran ng purong ginto. 
+Hindi ito mapapantayan ng <i class="trans-change">mamahaling batong_ topaz na mula sa Etiopia at hindi rin mababayaran ng purong ginto. 
 
 
 

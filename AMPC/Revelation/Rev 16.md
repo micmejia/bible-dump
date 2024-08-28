@@ -322,7 +322,7 @@ For really they are the spirits of demons that perform signs (wonders, miracles)
 
 
 
-Behold, I am going to come like a thief! Blessed (happy, [^a]to be envied) is he who stays awake (alert) and who guards his clothes, so that he may not be naked and [have the shame of being] seen exposed! 
+Behold, I am going to come like a thief! Blessed (happy, to be envied) is he who stays awake (alert) and who guards his clothes, so that he may not be naked and [have the shame of being] seen exposed! 
 
 
 

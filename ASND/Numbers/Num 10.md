@@ -337,7 +337,7 @@ Pero iba ang pagpapatunog ng trumpeta kapag titipunin sila.
 
 
 
-At sa panahon ng inyong pagsasaya – sa inyong pagdiriwang ng pista, pati na ng Pista ng Pagsisimula ng Buwan[^a] – patutunugin din ninyo ang mga trumpeta kung mag-aalay kayo ng mga handog na sinusunog at handog para sa mabuting relasyon. Ang mga trumpetang ito ang magpapaalala sa akin na inyong Dios <i class="trans-change">ng aking kasunduan sa inyo_. Ako ang Panginoon na inyong Dios." ## Umalis ang mga Israelita sa Sinai 
+At sa panahon ng inyong pagsasaya – sa inyong pagdiriwang ng pista, pati na ng Pista ng Pagsisimula ng Buwan – patutunugin din ninyo ang mga trumpeta kung mag-aalay kayo ng mga handog na sinusunog at handog para sa mabuting relasyon. Ang mga trumpetang ito ang magpapaalala sa akin na inyong Dios <i class="trans-change">ng aking kasunduan sa inyo_. Ako ang Panginoon na inyong Dios." ## Umalis ang mga Israelita sa Sinai 
 
 
 

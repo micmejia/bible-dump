@@ -403,7 +403,7 @@ Ngunit dumating na si Cristo na punong pari ng bagong pamamaraan na higit na mab
 
 
 
-Minsan lang pumasok si Cristo sa Pinakabanal na Lugar. At hindi dugo ng kambing o ng guya[^a] ang dala niya kundi ang sarili niyang dugo. At sa pamamagitan ng kanyang dugo, tinubos niya tayo <i class="trans-change">sa mga kasalanan natin_ magpakailanman. 
+Minsan lang pumasok si Cristo sa Pinakabanal na Lugar. At hindi dugo ng kambing o ng guya ang dala niya kundi ang sarili niyang dugo. At sa pamamagitan ng kanyang dugo, tinubos niya tayo <i class="trans-change">sa mga kasalanan natin_ magpakailanman. 
 
 
 
@@ -667,7 +667,7 @@ Sapagkat nang ipahayag ni Moises ang Kautusan sa mga tao, kumuha siya ng dugo ng
 
 
 
-At sinabi niya: "Ito ang dugong nagpapatibay sa kasunduang <i class="trans-change">ibinigay at_ ipinatutupad sa inyo ng Dios."[^b] 
+At sinabi niya: "Ito ang dugong nagpapatibay sa kasunduang <i class="trans-change">ibinigay at_ ipinatutupad sa inyo ng Dios." 
 
 
 

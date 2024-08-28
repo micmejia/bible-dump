@@ -106,7 +106,7 @@ Sinabi ni Elias kay Eliseo, "Maiwan ka na lang dito, dahil pinapapunta ako ng Pa
 
 
 
-May grupo ng mga propeta roon sa Betel na pumunta kay Eliseo at nagtanong, "Alam mo bang kukunin na ng Panginoon ang guro[^a] mo sa araw na ito?" Sumagot si Eliseo, "Oo, alam ko, pero huwag na nating pag-usapan." 
+May grupo ng mga propeta roon sa Betel na pumunta kay Eliseo at nagtanong, "Alam mo bang kukunin na ng Panginoon ang guro mo sa araw na ito?" Sumagot si Eliseo, "Oo, alam ko, pero huwag na nating pag-usapan." 
 
 
 
@@ -304,7 +304,7 @@ Hinubad ni Elias ang balabal niya, inirolyo ito at inihampas sa tubig. Nahawi an
 
 
 
-Pagkatawid nila, sinabi ni Elias kay Eliseo, "Bago ako kunin sa iyo, sabihin mo sa akin kung ano ang gusto mong gawin ko para sa iyo." Sumagot si Eliseo, "Gusto kong ipamana mo sa akin ang dobleng bahagi ng iyong kapangyarihan."[^b] 
+Pagkatawid nila, sinabi ni Elias kay Eliseo, "Bago ako kunin sa iyo, sabihin mo sa akin kung ano ang gusto mong gawin ko para sa iyo." Sumagot si Eliseo, "Gusto kong ipamana mo sa akin ang dobleng bahagi ng iyong kapangyarihan." 
 
 
 
@@ -568,7 +568,7 @@ Pagbalik nila kay Eliseo, na nasa Jerico pa, sinabi ni Eliseo sa kanila, "Hindi 
 
 
 
-Ang mga tao sa lungsod <i class="trans-change">ng Jerico_ ay nagsabi kay Eliseo, "Ginoo, nakita naman po ninyo na mabuti ang kinatatayuan ng aming lugar, pero marumi ang tubig at hindi tinutubuan ng pananim ang lupa."[^c] 
+Ang mga tao sa lungsod <i class="trans-change">ng Jerico_ ay nagsabi kay Eliseo, "Ginoo, nakita naman po ninyo na mabuti ang kinatatayuan ng aming lugar, pero marumi ang tubig at hindi tinutubuan ng pananim ang lupa." 
 
 
 
@@ -634,7 +634,7 @@ Sinabi ni Eliseo, "Dalhan ninyo ako ng bagong mangkok at lagyan ito ng asin." Ka
 
 
 
-Pumunta siya sa bukal at inihagis doon ang asin at sinabi, "Ito ang sinasabi ng Panginoon: Lilinis ang tubig na ito. At mula ngayon, hindi na ito magiging sanhi ng kamatayan o hindi pagtubo ng mga pananim."[^d] 
+Pumunta siya sa bukal at inihagis doon ang asin at sinabi, "Ito ang sinasabi ng Panginoon: Lilinis ang tubig na ito. At mula ngayon, hindi na ito magiging sanhi ng kamatayan o hindi pagtubo ng mga pananim." 
 
 
 

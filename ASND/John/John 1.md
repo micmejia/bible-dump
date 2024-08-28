@@ -171,7 +171,7 @@ Ang Salita ang pinagmumulan ng buhay, at ang buhay na itoʼy ilaw, dahil ito ang
 
 
 
-Ang ilaw na itoʼy nagliliwanag sa kadiliman,[^a] at hindi ito nadaig ng kadiliman.[^b] 
+Ang ilaw na itoʼy nagliliwanag sa kadiliman, at hindi ito nadaig ng kadiliman. 
 
 
 
@@ -534,7 +534,7 @@ Nagpatotoo si Juan tungkol sa kanya at ito ang kanyang sinabi: "Siya ang tinutuk
 
 
 
-Sa kasaganaan ng kanyang biyaya[^c] ay tumanggap tayong lahat ng sunud-sunod na pagpapala. 
+Sa kasaganaan ng kanyang biyaya ay tumanggap tayong lahat ng sunud-sunod na pagpapala. 
 
 
 
@@ -600,7 +600,7 @@ Ibinigay sa atin ng Dios ang Kautusan sa pamamagitan ni Moises, ngunit ang biyay
 
 
 
-Wala pang nakakita sa Dios <i class="trans-change">Ama_ kahit kailan, ngunit ipinakilala siya sa atin ng kanyang Bugtong na Anak,[^d] na Dios din nga at kapiling ng Ama.[^e] ## Ang Patotoo ni Juan tungkol kay Jesus <sup class="versenum">19-20</sup>Pinapunta <i class="trans-change">ng mga pinuno_ ng mga Judio sa Jerusalem ang ilang mga pari at Levita upang tanungin si Juan kung sino talaga siya. Tinapat sila ni Juan. Sinabi niya, "Hindi ako ang Cristo." 
+Wala pang nakakita sa Dios <i class="trans-change">Ama_ kahit kailan, ngunit ipinakilala siya sa atin ng kanyang Bugtong na Anak, na Dios din nga at kapiling ng Ama. ## Ang Patotoo ni Juan tungkol kay Jesus <sup class="versenum">19-20</sup>Pinapunta <i class="trans-change">ng mga pinuno_ ng mga Judio sa Jerusalem ang ilang mga pari at Levita upang tanungin si Juan kung sino talaga siya. Tinapat sila ni Juan. Sinabi niya, "Hindi ako ang Cristo." 
 
 
 
@@ -699,7 +699,7 @@ Nagtanong sila, "Kung ganoon, sino ka? Ikaw ba si <i class="trans-change">Propet
 
 
 
-Sumagot si Juan, "Ako ang taong binanggit ni Propeta Isaias nang sabihin niya, 'Maririnig ang sigaw ng isang tao sa ilang <i class="trans-change">na nagsasabi_, Tuwirin ninyo ang dadaanan ng Panginoon.' "[^f] 
+Sumagot si Juan, "Ako ang taong binanggit ni Propeta Isaias nang sabihin niya, 'Maririnig ang sigaw ng isang tao sa ilang <i class="trans-change">na nagsasabi_, Tuwirin ninyo ang dadaanan ng Panginoon.' " 
 
 
 
@@ -732,7 +732,7 @@ Sumagot si Juan, "Ako ang taong binanggit ni Propeta Isaias nang sabihin niya, '
 
 
 
-Ang mga nagsugo sa mga taong pumunta kay Juan ay mga Pariseo.[^g] 
+Ang mga nagsugo sa mga taong pumunta kay Juan ay mga Pariseo. 
 
 
 
@@ -831,7 +831,7 @@ Sumagot si Juan, "Nagbabautismo ako sa tubig, ngunit may nakatayong kasama ninyo
 
 
 
-Siya ang <i class="trans-change">sinasabi kong_ darating na kasunod ko, at ni hindi man lang ako karapat-dapat na maging alipin niya."[^h] 
+Siya ang <i class="trans-change">sinasabi kong_ darating na kasunod ko, at ni hindi man lang ako karapat-dapat na maging alipin niya." 
 
 
 
@@ -1326,7 +1326,7 @@ Ang isa sa dalawang nakarinig ng sinabi ni Juan at sumunod kay Jesus ay si Andre
 
 
 
-Isinama niya si Simon kay Jesus. At nang makarating sila kay Jesus, tiningnan ni Jesus si Simon at sinabi, "Ikaw si Simon na anak ni Juan, mula ngayon ay tatawagin ka nang Cefas." (Ang Cefas ay pareho rin ng pangalang Pedro.)[^i] ## Ang Pagtawag ni Jesus kina Felipe at Natanael 
+Isinama niya si Simon kay Jesus. At nang makarating sila kay Jesus, tiningnan ni Jesus si Simon at sinabi, "Ikaw si Simon na anak ni Juan, mula ngayon ay tatawagin ka nang Cefas." (Ang Cefas ay pareho rin ng pangalang Pedro.) ## Ang Pagtawag ni Jesus kina Felipe at Natanael 
 
 
 
@@ -1491,7 +1491,7 @@ Tinanong siya ni Natanael, "May mabuti bang nanggagaling sa Nazaret?" Sumagot si
 
 
 
-Nang makita ni Jesus na papalapit sa kanya si Natanael, sinabi niya, "Narito ang isang tunay na Israelita na hindi nandaraya."[^j] 
+Nang makita ni Jesus na papalapit sa kanya si Natanael, sinabi niya, "Narito ang isang tunay na Israelita na hindi nandaraya." 
 
 
 

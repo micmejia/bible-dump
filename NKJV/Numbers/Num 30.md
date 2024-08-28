@@ -19,7 +19,7 @@ If a man makes a vow to the Lord, or swears an oath to bind himself by some agre
 "Or if a woman makes a vow to the Lord, and binds _herself_ by some agreement while in her father's house in her youth, 
 
 ###### 4 
-and her father hears her vow and the agreement by which she has bound herself, and her father [^a]holds his peace, then all her vows shall stand, and every agreement with which she has bound herself shall stand. 
+and her father hears her vow and the agreement by which she has bound herself, and her father holds his peace, then all her vows shall stand, and every agreement with which she has bound herself shall stand. 
 
 ###### 5 
 But if her father overrules her on the day that he hears, then none of her vows nor her agreements by which she has bound herself shall stand; and the Lord will release her, because her father overruled her. 
@@ -43,7 +43,7 @@ But if her husband overrules her on the day that he hears _it,_ he shall make vo
 and her husband heard _it,_ and made no response to her _and_ did not overrule her, then all her vows shall stand, and every agreement by which she bound herself shall stand. 
 
 ###### 12 
-But if her husband truly made them void on the day he heard _them,_ then whatever proceeded from her lips concerning her vows or concerning the agreement binding her, it shall not stand; her husband has made them [^b]void, and the Lord will release her. 
+But if her husband truly made them void on the day he heard _them,_ then whatever proceeded from her lips concerning her vows or concerning the agreement binding her, it shall not stand; her husband has made them void, and the Lord will release her. 
 
 ###### 13 
 Every vow and every binding oath to afflict her soul, her husband may confirm it, or her husband may make it void. 

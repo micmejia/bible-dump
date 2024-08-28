@@ -217,7 +217,7 @@ Jesus replied, Have I been with all of you for so long a time, and do you not re
 
 
 
-Do you not believe that I am in the Father, and that the Father is in Me? What I am telling you I do not say on My own authority _and_ of My own accord; but the Father Who lives continually in Me does the ([^a]_His_) works (His own miracles, deeds of power). 
+Do you not believe that I am in the Father, and that the Father is in Me? What I am telling you I do not say on My own authority _and_ of My own accord; but the Father Who lives continually in Me does the (_His_) works (His own miracles, deeds of power). 
 
 
 
@@ -280,7 +280,7 @@ I assure you, most solemnly I tell you, if anyone steadfastly believes in Me, he
 
 
 
-And I will do [I Myself will grant] whatever you ask in My Name [as [^b]presenting all that I Am], so that the Father may be glorified _and_ extolled in (through) the Son. 
+And I will do [I Myself will grant] whatever you ask in My Name [as presenting all that I Am], so that the Father may be glorified _and_ extolled in (through) the Son. 
 
 
 
@@ -301,7 +301,7 @@ And I will do [I Myself will grant] whatever you ask in My Name [as [^b]presenti
 
 
 
-[Yes] I will grant [I Myself will do for you] whatever you shall ask in My Name [as [^c]presenting all that I Am]. 
+[Yes] I will grant [I Myself will do for you] whatever you shall ask in My Name [as presenting all that I Am]. 
 
 
 
@@ -658,4 +658,4 @@ I will not talk with you much more, for the prince (evil genius, ruler) of the w
 
 
 
-But [[^d]Satan is coming and] I do as the Father has commanded Me, so that the world may know (be convinced) that I love the Father and that I do only what the Father has instructed Me to do. [I act in full agreement with His orders.] Rise, let us go away from here.
+But [Satan is coming and] I do as the Father has commanded Me, so that the world may know (be convinced) that I love the Father and that I do only what the Father has instructed Me to do. [I act in full agreement with His orders.] Rise, let us go away from here.

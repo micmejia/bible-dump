@@ -28,7 +28,7 @@ For indeed, when we came to Macedonia, our bodies had no rest, but we were troub
 Nevertheless God, who comforts the downcast, comforted us by the coming of Titus, 
 
 ###### 7 
-and not only by his coming, but also by the [^a]consolation with which he was comforted in you, when he told us of your earnest desire, your mourning, your zeal for me, so that I rejoiced even more. 
+and not only by his coming, but also by the consolation with which he was comforted in you, when he told us of your earnest desire, your mourning, your zeal for me, so that I rejoiced even more. 
 
 ###### 8 
 For even if I made you sorry with my letter, I do not regret it; though I did regret it. For I perceive that the same epistle made you sorry, though only for a while. 

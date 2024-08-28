@@ -49,7 +49,7 @@ When Jesus had ended this discourse, He said to His disciples,
 
 
 
-You know that the Passover is in two days--and the Son of Man will be delivered up [^a]treacherously to be crucified. 
+You know that the Passover is in two days--and the Son of Man will be delivered up treacherously to be crucified. 
 
 
 
@@ -70,7 +70,7 @@ You know that the Passover is in two days--and the Son of Man will be delivered 
 
 
 
-Then the chief priests and the elders of the people gathered in the [[^b]open] court of the palace of the high priest, whose name was Caiaphas, 
+Then the chief priests and the elders of the people gathered in the [open] court of the palace of the high priest, whose name was Caiaphas, 
 
 
 
@@ -469,7 +469,7 @@ And as they were eating, He said, Solemnly I say to you, one of you will betray 
 
 
 
-They were exceedingly pained _and_ distressed _and_ deeply hurt _and_ sorrowful and began to say to Him one after another, [^c]Surely it cannot be I, Lord, can it? 
+They were exceedingly pained _and_ distressed _and_ deeply hurt _and_ sorrowful and began to say to Him one after another, Surely it cannot be I, Lord, can it? 
 
 
 
@@ -532,7 +532,7 @@ The Son of Man is going just as it is written of Him; but woe to that man by who
 
 
 
-Judas, the betrayer, said, [^d]Surely it is not I, is it, Master? He said to him, You have stated [the fact]. 
+Judas, the betrayer, said, Surely it is not I, is it, Master? He said to him, You have stated [the fact]. 
 
 
 
@@ -553,7 +553,7 @@ Judas, the betrayer, said, [^d]Surely it is not I, is it, Master? He said to him
 
 
 
-Now as they were eating, Jesus took bread and, [^e]praising God, gave thanks _and_ asked Him to bless it to their use, and when He had broken it, He gave it to the disciples and said, Take, eat; this is My body. 
+Now as they were eating, Jesus took bread and, praising God, gave thanks _and_ asked Him to bless it to their use, and when He had broken it, He gave it to the disciples and said, Take, eat; this is My body. 
 
 
 
@@ -595,7 +595,7 @@ And He took a cup, and when He had given thanks, He gave it to them, saying, Dri
 
 
 
-For this is My blood of the _new_ covenant, which [[^f]ratifies the agreement and] is [^g]being poured out for many for the forgiveness of sins. 
+For this is My blood of the _new_ covenant, which [ratifies the agreement and] is being poured out for many for the forgiveness of sins. 
 
 
 
@@ -616,7 +616,7 @@ For this is My blood of the _new_ covenant, which [[^f]ratifies the agreement an
 
 
 
-I say to you, I shall not drink again of this fruit of the vine until that day when I drink it with you new _and_ [^h]of superior quality in My Father's kingdom. 
+I say to you, I shall not drink again of this fruit of the vine until that day when I drink it with you new _and_ of superior quality in My Father's kingdom. 
 
 
 
@@ -721,7 +721,7 @@ Peter declared to Him, Though they all are offended _and_ stumble _and_ fall awa
 
 
 
-Jesus said to him, Solemnly I declare to you, this very night, before a [^i]single rooster crows, you will deny _and_ disown Me three times. 
+Jesus said to him, Solemnly I declare to you, this very night, before a single rooster crows, you will deny _and_ disown Me three times. 
 
 
 
@@ -784,7 +784,7 @@ Then Jesus went with them to a place called Gethsemane, and He told His disciple
 
 
 
-And taking with Him Peter and the two sons of Zebedee, He began to [^j]show grief _and_ distress of mind and was [^k]deeply depressed. 
+And taking with Him Peter and the two sons of Zebedee, He began to show grief _and_ distress of mind and was deeply depressed. 
 
 
 
@@ -805,7 +805,7 @@ And taking with Him Peter and the two sons of Zebedee, He began to [^j]show grie
 
 
 
-Then He said to them, My soul is very sad _and_ deeply grieved, so that [^l]I am almost dying of sorrow. Stay here and keep awake _and_ keep watch with Me. 
+Then He said to them, My soul is very sad _and_ deeply grieved, so that I am almost dying of sorrow. Stay here and keep awake _and_ keep watch with Me. 
 
 
 
@@ -952,7 +952,7 @@ So, leaving them again, He went away and prayed for the third time, using the sa
 
 
 
-Then He returned to the disciples and said to them, Are you still sleeping and taking your rest? Behold, the hour is at hand, and the Son of Man is betrayed into the hands of [^m]especially wicked sinners [[^n]whose way or nature it is to act in opposition to God]. 
+Then He returned to the disciples and said to them, Are you still sleeping and taking your rest? Behold, the hour is at hand, and the Son of Man is betrayed into the hands of especially wicked sinners [whose way or nature it is to act in opposition to God]. 
 
 
 
@@ -1036,7 +1036,7 @@ Now the betrayer had given them a sign, saying, The One I shall kiss is the Man;
 
 
 
-And he came up to Jesus at once and said, Hail (greetings, good health to You, long life to You), Master! And he [^o]embraced Him and kissed Him [^p]with [pretended] warmth and devotion. 
+And he came up to Jesus at once and said, Hail (greetings, good health to You, long life to You), Master! And he embraced Him and kissed Him with [pretended] warmth and devotion. 
 
 
 
@@ -1120,7 +1120,7 @@ Then Jesus said to him, Put your sword back into its place, for all who draw the
 
 
 
-Do you suppose that I cannot appeal to My Father, and He will immediately provide Me with more than twelve legions [[^q]more than 80,000] of angels? 
+Do you suppose that I cannot appeal to My Father, and He will immediately provide Me with more than twelve legions [more than 80,000] of angels? 
 
 
 
@@ -1162,7 +1162,7 @@ But how then would the Scriptures be fulfilled, that it must come about this way
 
 
 
-At that moment Jesus said to the crowds, Have you come out with swords and clubs as [you would] against a robber to capture Me? Day after day I was [^r]accustomed to sit in the [^s]porches _and_ courts of the temple teaching, and you did not arrest Me. 
+At that moment Jesus said to the crowds, Have you come out with swords and clubs as [you would] against a robber to capture Me? Day after day I was accustomed to sit in the porches _and_ courts of the temple teaching, and you did not arrest Me. 
 
 
 
@@ -1288,7 +1288,7 @@ But they found none, though many witnesses came forward [to testify]. At last tw
 
 
 
-And testified, This [^t]Fellow said, I am able to tear down the [^u]sanctuary of the temple of God and to build it up again in three days. 
+And testified, This Fellow said, I am able to tear down the sanctuary of the temple of God and to build it up again in three days. 
 
 
 
@@ -1330,7 +1330,7 @@ And the high priest stood up and said, Have You no answer to make? What about th
 
 
 
-But Jesus kept silent. And the high priest said to Him, [^v]I call upon you to swear by the living God, and tell us whether you are the Christ, the Son of God. 
+But Jesus kept silent. And the high priest said to Him, I call upon you to swear by the living God, and tell us whether you are the Christ, the Son of God. 
 
 
 
@@ -1351,7 +1351,7 @@ But Jesus kept silent. And the high priest said to Him, [^v]I call upon you to s
 
 
 
-Jesus said to him, [^w]You have stated [the fact]. More than that, I tell you: You will in the future see the Son of Man seated at the right hand of [^x]the Almighty and coming on the clouds of the sky. 
+Jesus said to him, You have stated [the fact]. More than that, I tell you: You will in the future see the Son of Man seated at the right hand of the Almighty and coming on the clouds of the sky. 
 
 
 
@@ -1414,7 +1414,7 @@ What do you think now? They answered, He deserves to be put to death.
 
 
 
-Then they spat in His face and struck Him with their fists; and some [^y]slapped Him in the face, 
+Then they spat in His face and struck Him with their fists; and some slapped Him in the face, 
 
 
 
@@ -1456,7 +1456,7 @@ Saying, Prophesy to us, You Christ (the Messiah)! Who was it that struck You?
 
 
 
-Now Peter was sitting outside in the courtyard, and [^z]one maid came up to him and said, You were also with Jesus the Galilean! 
+Now Peter was sitting outside in the courtyard, and one maid came up to him and said, You were also with Jesus the Galilean! 
 
 
 

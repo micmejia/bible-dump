@@ -196,7 +196,7 @@ And most of the crowd kept spreading their garments on the road, and others kept
 
 
 
-And the crowds that went ahead of Him and those that followed Him kept shouting, Hosanna ([^a]O be propitious, graciously inclined) to the Son of David, [[^b]the Messiah]! Blessed (praised, glorified) is He Who comes in the name of the Lord! Hosanna (O be favorably disposed) in the highest [heaven]! 
+And the crowds that went ahead of Him and those that followed Him kept shouting, Hosanna (O be propitious, graciously inclined) to the Son of David, [the Messiah]! Blessed (praised, glorified) is He Who comes in the name of the Lord! Hosanna (O be favorably disposed) in the highest [heaven]! 
 
 
 
@@ -217,7 +217,7 @@ And the crowds that went ahead of Him and those that followed Him kept shouting,
 
 
 
-And when He entered Jerusalem, all the city became agitated and [^c][trembling with excitement] said, Who is [^d]This? 
+And when He entered Jerusalem, all the city became agitated and [trembling with excitement] said, Who is This? 
 
 
 
@@ -259,7 +259,7 @@ And the crowds replied, This is the prophet Jesus from Nazareth of Galilee.
 
 
 
-And Jesus went into the temple ([^e]whole temple enclosure) and drove out all who bought and sold in the [^f]sacred place, and He turned over the [^g]four-footed tables of the money changers and the chairs of those who sold doves. 
+And Jesus went into the temple (whole temple enclosure) and drove out all who bought and sold in the sacred place, and He turned over the four-footed tables of the money changers and the chairs of those who sold doves. 
 
 
 
@@ -301,7 +301,7 @@ He said to them, The Scripture says, My house shall be called a house of prayer;
 
 
 
-And the blind and the lame came to Him in the [^h]porches _and_ courts of the temple, and He cured them. 
+And the blind and the lame came to Him in the porches _and_ courts of the temple, and He cured them. 
 
 
 
@@ -322,7 +322,7 @@ And the blind and the lame came to Him in the [^h]porches _and_ courts of the te
 
 
 
-But when the chief priests and the scribes saw the wonderful things that He did and the boys _and_ the girls _and_ the [^i]youths _and_ the maidens crying out in the [^j]porches _and_ courts of the temple, Hosanna (O be propitious, graciously inclined) to the Son of David! they were indignant. 
+But when the chief priests and the scribes saw the wonderful things that He did and the boys _and_ the girls _and_ the youths _and_ the maidens crying out in the porches _and_ courts of the temple, Hosanna (O be propitious, graciously inclined) to the Son of David! they were indignant. 
 
 
 
@@ -406,7 +406,7 @@ In the early dawn the next morning, as He was coming back to the city, He was hu
 
 
 
-And as He saw [^k]one single leafy fig tree [^l]above the roadside, He went to it but He found nothing but leaves on it [[^m]seeing that in the fig tree the fruit appears at the same time as the leaves]. And He said to it, Never again shall fruit grow on you! And the fig tree withered up at once. 
+And as He saw one single leafy fig tree above the roadside, He went to it but He found nothing but leaves on it [seeing that in the fig tree the fruit appears at the same time as the leaves]. And He said to it, Never again shall fruit grow on you! And the fig tree withered up at once. 
 
 
 
@@ -448,7 +448,7 @@ When the disciples saw it, they marveled greatly and asked, How is it that the f
 
 
 
-And Jesus answered them, Truly I say to you, if you have faith (a [^n]firm relying trust) and do not doubt, you will not only do what has been done to the fig tree, but even if you say to this mountain, Be taken up and cast into the sea, it will be done. 
+And Jesus answered them, Truly I say to you, if you have faith (a firm relying trust) and do not doubt, you will not only do what has been done to the fig tree, but even if you say to this mountain, Be taken up and cast into the sea, it will be done. 
 
 
 
@@ -490,7 +490,7 @@ And whatever you ask for in prayer, having faith _and_ [really] believing, you w
 
 
 
-And when He entered the sacred [^o]enclosure of the temple, the chief priests and elders of the people came up to Him as He was teaching and said, By what [^p]power of authority are You doing these things, and who gave You this power of authority? 
+And when He entered the sacred enclosure of the temple, the chief priests and elders of the people came up to Him as He was teaching and said, By what power of authority are You doing these things, and who gave You this power of authority? 
 
 
 
@@ -511,7 +511,7 @@ And when He entered the sacred [^o]enclosure of the temple, the chief priests an
 
 
 
-Jesus answered them, I also will ask you a question, and if you give Me the answer, then I also will tell you by what [^q]power of authority I do these things. 
+Jesus answered them, I also will ask you a question, and if you give Me the answer, then I also will tell you by what power of authority I do these things. 
 
 
 
@@ -532,7 +532,7 @@ Jesus answered them, I also will ask you a question, and if you give Me the answ
 
 
 
-The baptism of John--from where was it? From heaven or from men? And they reasoned _and_ argued with one another, If we say, From heaven, [^r]He will ask us, Why then did you not believe him? 
+The baptism of John--from where was it? From heaven or from men? And they reasoned _and_ argued with one another, If we say, From heaven, He will ask us, Why then did you not believe him? 
 
 
 
@@ -574,7 +574,7 @@ But if we say, From men--we are afraid of _and_ must reckon with the multitude, 
 
 
 
-So they answered Jesus, We do not know. And He said to them, Neither will I tell you by what [^s]power of authority I do these things. 
+So they answered Jesus, We do not know. And He said to them, Neither will I tell you by what power of authority I do these things. 
 
 
 
@@ -868,7 +868,7 @@ Now when the owner of the vineyard comes back, what will he do to those tenants?
 
 
 
-They said to Him, He will put those wretches to a miserable death and rent the vineyard to other tenants [^t]of such a character that they will give him the fruits promptly in their season. 
+They said to Him, He will put those wretches to a miserable death and rent the vineyard to other tenants of such a character that they will give him the fruits promptly in their season. 
 
 
 
@@ -931,7 +931,7 @@ I tell you, for this reason the kingdom of God will be taken away from you and g
 
 
 
-[^u]_And whoever falls on this Stone will be broken to pieces, but he on whom It falls will be crushed to powder [and It will_ [^v]_winnow him_, [^w]_scattering him like dust]_. 
+_And whoever falls on this Stone will be broken to pieces, but he on whom It falls will be crushed to powder [and It will_ _winnow him_, _scattering him like dust]_. 
 
 
 

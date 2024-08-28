@@ -205,7 +205,7 @@ Muling nagpakita sa akin ang anghel na nakipag-usap sa akin at sinabi, "Tingnan 
 
 
 
-Nagtanong ako, "Ano iyan?" Sinabi niya, "Kaing." At sinabi pa niya, "Iyan ay sumisimbolo sa kasalanan[^a] ng mga tao sa buong lupain <i class="trans-change">ng Israel_." 
+Nagtanong ako, "Ano iyan?" Sinabi niya, "Kaing." At sinabi pa niya, "Iyan ay sumisimbolo sa kasalanan ng mga tao sa buong lupain <i class="trans-change">ng Israel_." 
 
 
 
@@ -304,7 +304,7 @@ Sinabi ng anghel, "Ang babaeng iyan ay sumisimbolo sa kasamaan." Itinulak niya a
 
 
 
-Pagkatapos, may nakita akong dalawang babaeng lumilipad na tinatangay ng hangin. Ang kanilang mga pakpak ay tulad ng sa tagak.[^b] Binuhat nila ang kaing at inilipad paitaas. 
+Pagkatapos, may nakita akong dalawang babaeng lumilipad na tinatangay ng hangin. Ang kanilang mga pakpak ay tulad ng sa tagak. Binuhat nila ang kaing at inilipad paitaas. 
 
 
 
@@ -370,4 +370,4 @@ Tinanong ko ang anghel na nakikipag-usap sa akin, "Saan nila dadalhin ang kaing?
 
 
 
-Sumagot siya, "Sa Babilonia,[^c] kung saan gagawa ng templo para sa kaing. At kapag natapos na ang templo, ilalagay ito roon para sambahin."
+Sumagot siya, "Sa Babilonia, kung saan gagawa ng templo para sa kaing. At kapag natapos na ang templo, ilalagay ito roon para sambahin."

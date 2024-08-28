@@ -40,7 +40,7 @@ next: ['Exod 6']
 
 
 
-Pagkatapos, pumunta sina Moises at Aaron sa Faraon[^a] at sinabi, "Ito ang sinasabi ng Panginoon, ang Dios ng Israel: 'Payagan mong umalis ang mga mamamayan ko, para makapagdaos sila ng pista sa ilang para sa akin.' " 
+Pagkatapos, pumunta sina Moises at Aaron sa Faraon at sinabi, "Ito ang sinasabi ng Panginoon, ang Dios ng Israel: 'Payagan mong umalis ang mga mamamayan ko, para makapagdaos sila ng pista sa ilang para sa akin.' " 
 
 
 
@@ -106,7 +106,7 @@ Sinabi ng Faraon, "Sino ba ang Panginoon para makinig ako sa kanya at payagang u
 
 
 
-Sumagot sina Moises at Aaron, "Nagpakita sa amin ang Dios ng mga Israelita. Kaya kung maaari, payagan mo kaming umalis ng tatlong araw papunta sa ilang para makapaghandog kami sa Panginoon naming Dios, dahil kung hindi, papatayin niya kami sa pamamagitan ng sakit o digmaan."[^b] 
+Sumagot sina Moises at Aaron, "Nagpakita sa amin ang Dios ng mga Israelita. Kaya kung maaari, payagan mo kaming umalis ng tatlong araw papunta sa ilang para makapaghandog kami sa Panginoon naming Dios, dahil kung hindi, papatayin niya kami sa pamamagitan ng sakit o digmaan." 
 
 
 

@@ -10,7 +10,7 @@ next: ['1 Kgs 3']
 
 
 ###### 1 
-Now the days of David drew near that he should die, and he [^a]charged Solomon his son, saying: 
+Now the days of David drew near that he should die, and he charged Solomon his son, saying: 
 
 ###### 2 
 "I go the way of all the earth; be strong, therefore, and prove yourself a man. 
@@ -37,7 +37,7 @@ Therefore do according to your wisdom, and do not let his gray hair go down to t
 Now therefore, do not hold him guiltless, for you _are_ a wise man and know what you ought to do to him; but bring his gray hair down to the grave with blood." ## Death of David 
 
 ###### 10 
-So David [^b]rested with his fathers, and was buried in the City of David. 
+So David rested with his fathers, and was buried in the City of David. 
 
 ###### 11 
 The period that David reigned over Israel _was_ forty years; seven years he reigned in Hebron, and in Jerusalem he reigned thirty-three years. 
@@ -55,7 +55,7 @@ Moreover he said, "I have something _to say_ to you." And she said, "Say it."
 Then he said, "You know that the kingdom was mine, and all Israel had set their expectations on me, that I should reign. However, the kingdom has been turned over, and has become my brother's; for it was his from the Lord. 
 
 ###### 16 
-Now I ask one petition of you; do not [^c]deny me." And she said to him, "Say it." 
+Now I ask one petition of you; do not deny me." And she said to him, "Say it." 
 
 ###### 17 
 Then he said, "Please speak to King Solomon, for he will not refuse you, that he may give me Abishag the Shunammite as wife." 
@@ -67,7 +67,7 @@ So Bathsheba said, "Very well, I will speak for you to the king."
 Bathsheba therefore went to King Solomon, to speak to him for Adonijah. And the king rose up to meet her and bowed down to her, and sat down on his throne and had a throne set for the king's mother; so she sat at his right hand. 
 
 ###### 20 
-Then she said, "I desire one small petition of you; do not [^d]refuse me." And the king said to her, "Ask it, my mother, for I will not refuse you." 
+Then she said, "I desire one small petition of you; do not refuse me." And the king said to her, "Ask it, my mother, for I will not refuse you." 
 
 ###### 21 
 So she said, "Let Abishag the Shunammite be given to Adonijah your brother as wife." 
@@ -79,13 +79,13 @@ And King Solomon answered and said to his mother, "Now why do you ask Abishag th
 Then King Solomon swore by the Lord, saying, "May God do so to me, and more also, if Adonijah has not spoken this word against his own life! 
 
 ###### 24 
-Now therefore, _as_ the Lord lives, who has confirmed me and set me on the throne of David my father, and who has established a [^e]house for me, as He promised, Adonijah shall be put to death today!" 
+Now therefore, _as_ the Lord lives, who has confirmed me and set me on the throne of David my father, and who has established a house for me, as He promised, Adonijah shall be put to death today!" 
 
 ###### 25 
 So King Solomon sent by the hand of Benaiah the son of Jehoiada; and he struck him down, and he died. ## Abiathar Exiled, Joab Executed 
 
 ###### 26 
-And to Abiathar the priest the king said, "Go to Anathoth, to your own fields, for [^f]you _are_ deserving of death; but I will not put you to death at this time, because you carried the ark of the Lord God before my father David, and because you were afflicted every time my father was afflicted." 
+And to Abiathar the priest the king said, "Go to Anathoth, to your own fields, for you _are_ deserving of death; but I will not put you to death at this time, because you carried the ark of the Lord God before my father David, and because you were afflicted every time my father was afflicted." 
 
 ###### 27 
 So Solomon removed Abiathar from being priest to the Lord, that he might fulfill the word of the Lord which He spoke concerning the house of Eli at Shiloh. 
@@ -103,7 +103,7 @@ So Benaiah went to the tabernacle of the Lord, and said to him, "Thus says the k
 Then the king said to him, "Do as he has said, and strike him down and bury him, that you may take away from me and from the house of my father the innocent blood which Joab shed. 
 
 ###### 32 
-So the Lord will return his [^g]blood on his head, because he struck down two men more righteous and better than he, and killed them with the sword--Abner the son of Ner, the commander of the army of Israel, and Amasa the son of Jether, the commander of the army of Judah--though my father David did not know _it._ 
+So the Lord will return his blood on his head, because he struck down two men more righteous and better than he, and killed them with the sword--Abner the son of Ner, the commander of the army of Israel, and Amasa the son of Jether, the commander of the army of Judah--though my father David did not know _it._ 
 
 ###### 33 
 Their blood shall therefore return upon the head of Joab and upon the head of his descendants forever. But upon David and his descendants, upon his house and his throne, there shall be peace forever from the Lord." 
@@ -118,7 +118,7 @@ The king put Benaiah the son of Jehoiada in his place over the army, and the kin
 Then the king sent and called for Shimei, and said to him, "Build yourself a house in Jerusalem and dwell there, and do not go out from there anywhere. 
 
 ###### 37 
-For it shall be, on the day you go out and cross the Brook Kidron, know for certain you shall surely die; your [^h]blood shall be on your own head." 
+For it shall be, on the day you go out and cross the Brook Kidron, know for certain you shall surely die; your blood shall be on your own head." 
 
 ###### 38 
 And Shimei said to the king, "The saying _is_ good. As my lord the king has said, so your servant will do." So Shimei dwelt in Jerusalem many days. 

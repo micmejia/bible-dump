@@ -370,7 +370,7 @@ Manlulumo ang mga manghahabi at ang iba pang mga manggagawa.
 
 
 
-Hangal ang mga pinuno ng Zoan! Kinikilala silang mga pinakamatalinong tagapayo ng Faraon,[^a] pero ang kanilang mga payo ay walang kabuluhan. Paano nila nasabi sa Faraon, "Lahi kami ng matatalino at ng mga hari noong unang panahon." 
+Hangal ang mga pinuno ng Zoan! Kinikilala silang mga pinakamatalinong tagapayo ng Faraon, pero ang kanilang mga payo ay walang kabuluhan. Paano nila nasabi sa Faraon, "Lahi kami ng matatalino at ng mga hari noong unang panahon." 
 
 
 
@@ -436,7 +436,7 @@ Faraon, nasaan na ngayon ang matatalino mong tao? Kung talagang matatalino sila,
 
 
 
-Talagang mga mangmang ang mga pinuno ng Zoan at Memfis.[^b] Madali silang malinlang. Silang mga pinuno ang siyang dapat sanang manguna sa mga mamamayan ng Egipto, pero sila pa ang luminlang sa kanila. 
+Talagang mga mangmang ang mga pinuno ng Zoan at Memfis. Madali silang malinlang. Silang mga pinuno ang siyang dapat sanang manguna sa mga mamamayan ng Egipto, pero sila pa ang luminlang sa kanila. 
 
 
 
@@ -601,7 +601,7 @@ Matatakot sila sa Juda, kahit marinig lang nila ang pangalan nito. Mangyayari it
 
 
 
-Sa araw na iyon, limang lungsod ng Egipto ang susunod sa Panginoong Makapangyarihan, at magsasalita sila sa wikang Hebreo.[^c] Isa sa mga lungsod na itoʼy tatawaging, Lungsod ng Araw.[^d] 
+Sa araw na iyon, limang lungsod ng Egipto ang susunod sa Panginoong Makapangyarihan, at magsasalita sila sa wikang Hebreo. Isa sa mga lungsod na itoʼy tatawaging, Lungsod ng Araw. 
 
 
 

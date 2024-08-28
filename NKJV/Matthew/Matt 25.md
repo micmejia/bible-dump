@@ -25,7 +25,7 @@ but the wise took oil in their vessels with their lamps.
 But while the bridegroom was delayed, they all slumbered and slept. 
 
 ###### 6 
-"And at midnight a cry was _heard:_ 'Behold, the bridegroom [^a]is coming; go out to meet him!' 
+"And at midnight a cry was _heard:_ 'Behold, the bridegroom is coming; go out to meet him!' 
 
 ###### 7 
 Then all those virgins arose and trimmed their lamps. 
@@ -46,7 +46,7 @@ And while they went to buy, the bridegroom came, and those who were ready went i
 But he answered and said, 'Assuredly, I say to you, I do not know you.' 
 
 ###### 13 
-"Watch therefore, for you know neither the day nor the hour [^b]in which the Son of Man is coming. ## The Parable of the Talents 
+"Watch therefore, for you know neither the day nor the hour in which the Son of Man is coming. ## The Parable of the Talents 
 
 ###### 14 
 "For _the kingdom of heaven is_ like a man traveling to a far country, _who_ called his own servants and delivered his goods to them. 
@@ -100,7 +100,7 @@ So take the talent from him, and give _it_ to him who has ten talents.
 And cast the unprofitable servant into the outer darkness. There will be weeping and gnashing of teeth.' ## The Son of Man Will Judge the Nations 
 
 ###### 31 
-"When the Son of Man comes in His glory, and all the [^c]holy angels with Him, then He will sit on the throne of His glory. 
+"When the Son of Man comes in His glory, and all the holy angels with Him, then He will sit on the throne of His glory. 
 
 ###### 32 
 All the nations will be gathered before Him, and He will separate them one from another, as a shepherd divides _his_ sheep from the goats. 
@@ -139,7 +139,7 @@ for I was hungry and you gave Me no food; I was thirsty and you gave Me no drink
 I was a stranger and you did not take Me in, naked and you did not clothe Me, sick and in prison and you did not visit Me.' 
 
 ###### 44 
-"Then they also will answer [^d]Him, saying, 'Lord, when did we see You hungry or thirsty or a stranger or naked or sick or in prison, and did not minister to You?' 
+"Then they also will answer Him, saying, 'Lord, when did we see You hungry or thirsty or a stranger or naked or sick or in prison, and did not minister to You?' 
 
 ###### 45 
 Then He will answer them, saying, 'Assuredly, I say to you, inasmuch as you did not do _it_ to one of the least of these, you did not do _it_ to Me.' 

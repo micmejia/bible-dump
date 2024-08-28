@@ -16,7 +16,7 @@ Then Zophar the Naamathite answered and said:
 "Therefore my anxious thoughts make me answer, Because of the turmoil within me. 
 
 ###### 3 
-I have heard the rebuke [^a]that reproaches me, And the spirit of my understanding causes me to answer. 
+I have heard the rebuke that reproaches me, And the spirit of my understanding causes me to answer. 
 
 ###### 4 
 "Do you _not_ know this of old, Since man was placed on earth, 
@@ -46,7 +46,7 @@ His bones are full of his youthful vigor, But it will lie down with him in the d
 "Though evil is sweet in his mouth, _And_ he hides it under his tongue, 
 
 ###### 13 
-_Though_ he spares it and does not forsake it, But still keeps it in his [^b]mouth, 
+_Though_ he spares it and does not forsake it, But still keeps it in his mouth, 
 
 ###### 14 
 _Yet_ his food in his stomach turns sour; It becomes cobra venom within him. 
@@ -64,16 +64,16 @@ He will not see the streams, The rivers flowing with honey and cream.
 He will restore that for which he labored, And will not swallow _it_ down; From the proceeds of business He will get no enjoyment. 
 
 ###### 19 
-For he has [^c]oppressed _and_ forsaken the poor, He has violently seized a house which he did not build. 
+For he has oppressed _and_ forsaken the poor, He has violently seized a house which he did not build. 
 
 ###### 20 
-"Because he knows no quietness in his [^d]heart, He will not save anything he desires. 
+"Because he knows no quietness in his heart, He will not save anything he desires. 
 
 ###### 21 
 Nothing is left for him to eat; Therefore his well-being will not last. 
 
 ###### 22 
-In his self-sufficiency he will be in distress; Every hand of [^e]misery will come against him. 
+In his self-sufficiency he will be in distress; Every hand of misery will come against him. 
 
 ###### 23 
 _When_ he is about to fill his stomach, _God_ will cast on him the fury of His wrath, And will rain _it_ on him while he is eating. 
@@ -82,7 +82,7 @@ _When_ he is about to fill his stomach, _God_ will cast on him the fury of His w
 He will flee from the iron weapon; A bronze bow will pierce him through. 
 
 ###### 25 
-It is drawn, and comes out of the body; Yes, the glittering _point comes_ out of his [^f]gall. Terrors _come_ upon him; 
+It is drawn, and comes out of the body; Yes, the glittering _point comes_ out of his gall. Terrors _come_ upon him; 
 
 ###### 26 
 Total darkness _is_ reserved for his treasures. An unfanned fire will consume him; It shall go ill with him who is left in his tent. 

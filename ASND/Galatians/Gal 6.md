@@ -534,7 +534,7 @@ Hindi na mahalaga kung tuli tayo o hindi. Ang tanging mahalaga ay kung binago na
 
 
 
-Sa lahat ng pinili ng Dios[^a] at namumuhay ayon sa mga turo kong ito, sumainyo nawa ang kapayapaan at awa <i class="trans-change">ng Dios_. 
+Sa lahat ng pinili ng Dios at namumuhay ayon sa mga turo kong ito, sumainyo nawa ang kapayapaan at awa <i class="trans-change">ng Dios_. 
 
 
 

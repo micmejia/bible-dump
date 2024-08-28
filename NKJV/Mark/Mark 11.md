@@ -10,7 +10,7 @@ next: ['Mark 12']
 
 
 ###### 1 
-Now when they drew near Jerusalem, to [^a]Bethphage and Bethany, at the Mount of Olives, He sent two of His disciples; 
+Now when they drew near Jerusalem, to Bethphage and Bethany, at the Mount of Olives, He sent two of His disciples; 
 
 ###### 2 
 and He said to them, "Go into the village opposite you; and as soon as you have entered it you will find a colt tied, on which no one has sat. Loose it and bring _it._ 
@@ -19,7 +19,7 @@ and He said to them, "Go into the village opposite you; and as soon as you have 
 And if anyone says to you, 'Why are you doing this?' say, 'The Lord has need of it,' and immediately he will send it here." 
 
 ###### 4 
-So they went their way, and found [^b]the colt tied by the door outside on the street, and they loosed it. 
+So they went their way, and found the colt tied by the door outside on the street, and they loosed it. 
 
 ###### 5 
 But some of those who stood there said to them, "What are you doing, loosing the colt?" 
@@ -37,7 +37,7 @@ And many spread their clothes on the road, and others cut down leafy branches fr
 Then those who went before and those who followed cried out, saying: "Hosanna! 'Blessed _is_ He who comes in the name of the Lord!' 
 
 ###### 10 
-Blessed _is_ the kingdom of our father David That comes [^c]in the name of the Lord! Hosanna in the highest!" 
+Blessed _is_ the kingdom of our father David That comes in the name of the Lord! Hosanna in the highest!" 
 
 ###### 11 
 And Jesus went into Jerusalem and into the temple. So when He had looked around at all things, as the hour was already late, He went out to Bethany with the twelve. ## The Fig Tree Withered 
@@ -85,7 +85,7 @@ Therefore I say to you, whatever things you ask when you pray, believe that you 
 "And whenever you stand praying, if you have anything against anyone, forgive him, that your Father in heaven may also forgive you your trespasses. 
 
 ###### 26 
-[^d]But if you do not forgive, neither will your Father in heaven forgive your trespasses." ## Jesus' Authority Questioned 
+But if you do not forgive, neither will your Father in heaven forgive your trespasses." ## Jesus' Authority Questioned 
 
 ###### 27 
 Then they came again to Jerusalem. And as He was walking in the temple, the chief priests, the scribes, and the elders came to Him. 

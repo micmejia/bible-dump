@@ -10,10 +10,10 @@ next: ['Isa 46']
 
 
 ###### 1 
-"Thus says the Lord to His anointed, To Cyrus, whose right hand I have [^a]held-- To subdue nations before him And loose the armor of kings, To open before him the double doors, So that the gates will not be shut: 
+"Thus says the Lord to His anointed, To Cyrus, whose right hand I have held-- To subdue nations before him And loose the armor of kings, To open before him the double doors, So that the gates will not be shut: 
 
 ###### 2 
-'I will go before you And[^b] make the [^c]crooked places straight; I will break in pieces the gates of bronze And cut the bars of iron. 
+'I will go before you And make the crooked places straight; I will break in pieces the gates of bronze And cut the bars of iron. 
 
 ###### 3 
 I will give you the treasures of darkness And hidden riches of secret places, That you may know that I, the Lord, Who call _you_ by your name, _Am_ the God of Israel. 
@@ -46,7 +46,7 @@ Thus says the Lord, The Holy One of Israel, and his Maker: "Ask Me of things to 
 I have made the earth, And created man on it. I--My hands--stretched out the heavens, And all their host I have commanded. 
 
 ###### 13 
-I have raised him up in righteousness, And I will [^d]direct all his ways; He shall build My city And let My exiles go free, Not for price nor reward," Says the Lord of hosts. ## The Lord, the Only Savior 
+I have raised him up in righteousness, And I will direct all his ways; He shall build My city And let My exiles go free, Not for price nor reward," Says the Lord of hosts. ## The Lord, the Only Savior 
 
 ###### 14 
 Thus says the Lord: "The labor of Egypt and merchandise of Cush And of the Sabeans, men of stature, Shall come over to you, and they shall be yours; They shall walk behind you, They shall come over in chains; And they shall bow down to you. They will make supplication to you, _saying,_ 'Surely God _is_ in you, And _there is_ no other; _There is_ no other God.' " 
@@ -61,10 +61,10 @@ They shall be ashamed And also disgraced, all of them; They shall go in confusio
 _But_ Israel shall be saved by the Lord With an everlasting salvation; You shall not be ashamed or disgraced Forever and ever. 
 
 ###### 18 
-For thus says the Lord, Who created the heavens, Who is God, Who formed the earth and made it, Who has established it, Who did not create it [^e]in vain, Who formed it to be inhabited: "I _am_ the Lord, and _there is_ no other. 
+For thus says the Lord, Who created the heavens, Who is God, Who formed the earth and made it, Who has established it, Who did not create it in vain, Who formed it to be inhabited: "I _am_ the Lord, and _there is_ no other. 
 
 ###### 19 
-I have not spoken in secret, In a dark place of the earth; I did not say to the seed of Jacob, 'Seek Me [^f]in vain'; I, the Lord, speak righteousness, I declare things that are right. 
+I have not spoken in secret, In a dark place of the earth; I did not say to the seed of Jacob, 'Seek Me in vain'; I, the Lord, speak righteousness, I declare things that are right. 
 
 ###### 20 
 "Assemble yourselves and come; Draw near together, You _who have_ escaped from the nations. They have no knowledge, Who carry the wood of their carved image, And pray to a god _that_ cannot save. 
@@ -79,7 +79,7 @@ Tell and bring forth _your case;_ Yes, let them take counsel together. Who has d
 I have sworn by Myself; The word has gone out of My mouth _in_ righteousness, And shall not return, That to Me every knee shall bow, Every tongue shall take an oath. 
 
 ###### 24 
-He shall say, [^g]'Surely in the Lord I have righteousness and strength. To Him _men_ shall come, And all shall be ashamed Who are incensed against Him. 
+He shall say, 'Surely in the Lord I have righteousness and strength. To Him _men_ shall come, And all shall be ashamed Who are incensed against Him. 
 
 ###### 25 
 In the Lord all the descendants of Israel Shall be justified, and shall glory.' "

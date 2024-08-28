@@ -238,7 +238,7 @@ dahil binigyan din ng bahagi ang mga kalahing babae kagaya ng mga kalahi niyang 
 
 
 
-Ang hangganan ng lupain <i class="trans-change">ng lahi_ ni Manase ay nagmula sa Asher hanggang sa Micmetat, sa silangan ng Shekem papuntang timog sa <i class="trans-change">lupain ng_ mga nakatira malapit sa bukal ng Tapua.[^a] 
+Ang hangganan ng lupain <i class="trans-change">ng lahi_ ni Manase ay nagmula sa Asher hanggang sa Micmetat, sa silangan ng Shekem papuntang timog sa <i class="trans-change">lupain ng_ mga nakatira malapit sa bukal ng Tapua. 
 
 
 

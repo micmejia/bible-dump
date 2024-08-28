@@ -10,16 +10,16 @@ next: ['Ezek 11']
 
 
 ###### 1 
-And I looked, and there in the firmament[^a] that was above the head of the cherubim, there appeared something like a sapphire stone, having the appearance of the likeness of a throne. 
+And I looked, and there in the firmament that was above the head of the cherubim, there appeared something like a sapphire stone, having the appearance of the likeness of a throne. 
 
 ###### 2 
 Then He spoke to the man clothed with linen, and said, "Go in among the wheels, under the cherub, fill your hands with coals of fire from among the cherubim, and scatter _them_ over the city." And he went in as I watched. 
 
 ###### 3 
-Now the cherubim were standing on the [^b]south side of the [^c]temple when the man went in, and the cloud filled the inner court. 
+Now the cherubim were standing on the south side of the temple when the man went in, and the cloud filled the inner court. 
 
 ###### 4 
-Then the glory of the Lord went up from the cherub, _and paused_ over the threshold of the [^d]temple; and the house was filled with the cloud, and the court was full of the brightness of the Lord's glory. 
+Then the glory of the Lord went up from the cherub, _and paused_ over the threshold of the temple; and the house was filled with the cloud, and the court was full of the brightness of the Lord's glory. 
 
 ###### 5 
 And the sound of the wings of the cherubim was heard _even_ in the outer court, like the voice of Almighty God when He speaks. 
@@ -46,7 +46,7 @@ When they went, they went toward _any of_ their four directions; they did not tu
 And their whole body, with their back, their hands, their wings, and the wheels that the four had, _were_ full of eyes all around. 
 
 ###### 13 
-As for the wheels, they were called in my [^e]hearing, "Wheel." 
+As for the wheels, they were called in my hearing, "Wheel." 
 
 ###### 14 
 Each one had four faces: the first face _was_ the face of a cherub, the second face the face of a man, the third the face of a lion, and the fourth the face of an eagle. 
@@ -58,10 +58,10 @@ And the cherubim were lifted up. This _was_ the living creature I saw by the Riv
 When the cherubim went, the wheels went beside them; and when the cherubim lifted their wings to mount up from the earth, the same wheels also did not turn from beside them. 
 
 ###### 17 
-When [^f]_the cherubim_ stood still, _the wheels_ stood still, and when [^g]_one_ was lifted up, [^h]_the other_ lifted itself up, for the spirit of the living creature _was_ in them. 
+When _the cherubim_ stood still, _the wheels_ stood still, and when _one_ was lifted up, _the other_ lifted itself up, for the spirit of the living creature _was_ in them. 
 
 ###### 18 
-Then the glory of the Lord departed from the threshold of the [^i]temple and stood over the cherubim. 
+Then the glory of the Lord departed from the threshold of the temple and stood over the cherubim. 
 
 ###### 19 
 And the cherubim lifted their wings and mounted up from the earth in my sight. When they went out, the wheels _were_ beside them; and they stood at the door of the east gate of the Lord's house, and the glory of the God of Israel _was_ above them. 

@@ -73,7 +73,7 @@ next: ['Jer 4']
 
 
 
-"Tingnan ninyo ang matataas na lugar <i class="trans-change">kung saan kayo sumasamba sa inyong mga dios-diosan_. May mga lugar pa ba roon na hindi ninyo dinungisan? Pinarumi ninyo ang lupain dahil sa kasamaan ninyo. Para kayong babaeng bayaran na nakaupo sa tabi ng daan at naghihintay ng lalaki. Tulad din kayo ng isang mapagsamantalang tao[^a] na naghihintay ng mabibiktima niya sa ilang. 
+"Tingnan ninyo ang matataas na lugar <i class="trans-change">kung saan kayo sumasamba sa inyong mga dios-diosan_. May mga lugar pa ba roon na hindi ninyo dinungisan? Pinarumi ninyo ang lupain dahil sa kasamaan ninyo. Para kayong babaeng bayaran na nakaupo sa tabi ng daan at naghihintay ng lalaki. Tulad din kayo ng isang mapagsamantalang tao na naghihintay ng mabibiktima niya sa ilang. 
 
 
 
@@ -139,7 +139,7 @@ Iyan ang dahilan kung bakit hindi umuulan sa panahon ng tag-ulan. Pero sa kabila
 
 
 
-At ngayon sinasabi ninyo sa akin, 'Ama ko, kayo po ay kasama[^b] ko mula noong bata pa ako. 
+At ngayon sinasabi ninyo sa akin, 'Ama ko, kayo po ay kasama ko mula noong bata pa ako. 
 
 
 
@@ -403,7 +403,7 @@ Pagkatapos, sinabi sa akin ng Panginoon, "Kahit hindi tapat <i class="trans-chan
 
 
 
-Lumakad ka <i class="trans-change">ngayon_ at sabihin mo ito sa Israel,[^c] '<i class="trans-change">Ako,_ ang Panginoon ay nagsasabi: Israel na taksil, manumbalik ka, dahil mahabagin ako. Hindi na ako magagalit sa iyo kailanman. 
+Lumakad ka <i class="trans-change">ngayon_ at sabihin mo ito sa Israel, '<i class="trans-change">Ako,_ ang Panginoon ay nagsasabi: Israel na taksil, manumbalik ka, dahil mahabagin ako. Hindi na ako magagalit sa iyo kailanman. 
 
 
 
@@ -469,7 +469,7 @@ Aminin mo lang ang iyong kasalanan na naghimagsik ka sa akin, ang Panginoon na i
 
 
 
-Sinabi pa ng Panginoon, "Magbalik na kayo, kayong mga suwail na mga anak, dahil akin kayo.[^d] Kukunin ko ang isa o dalawa sa inyo mula sa bawat bayan o angkan at dadalhin sa Israel.[^e] 
+Sinabi pa ng Panginoon, "Magbalik na kayo, kayong mga suwail na mga anak, dahil akin kayo. Kukunin ko ang isa o dalawa sa inyo mula sa bawat bayan o angkan at dadalhin sa Israel. 
 
 
 

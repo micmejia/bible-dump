@@ -28,10 +28,10 @@ Then he took some of the seed of the land And planted it in a fertile field; He 
 And it grew and became a spreading vine of low stature; Its branches turned toward him, But its roots were under it. So it became a vine, Brought forth branches, And put forth shoots. 
 
 ###### 7 
-"But there was [^a]another great eagle with large wings and many feathers; And behold, this vine bent its roots toward him, And stretched its branches toward him, From the garden terrace where it had been planted, That he might water it. 
+"But there was another great eagle with large wings and many feathers; And behold, this vine bent its roots toward him, And stretched its branches toward him, From the garden terrace where it had been planted, That he might water it. 
 
 ###### 8 
-It was planted in [^b]good soil by many waters, To bring forth branches, bear fruit, _And_ become a majestic vine." ' 
+It was planted in good soil by many waters, To bring forth branches, bear fruit, _And_ become a majestic vine." ' 
 
 ###### 9 
 "Say, 'Thus says the Lord God: "Will it thrive? Will he not pull up its roots, Cut off its fruit, And leave it to wither? All of its spring leaves will wither, And no great power or many people Will be needed to pluck it up by its roots. 
@@ -58,19 +58,19 @@ But he rebelled against him by sending his ambassadors to Egypt, that they might
 '_As_ I live,' says the Lord God, 'surely in the place _where_ the king _dwells_ who made him king, whose oath he despised and whose covenant he broke--with him in the midst of Babylon he shall die. 
 
 ###### 17 
-Nor will Pharaoh with _his_ mighty army and great company do anything in the war, when they heap up a siege mound and build a [^c]wall to cut off many persons. 
+Nor will Pharaoh with _his_ mighty army and great company do anything in the war, when they heap up a siege mound and build a wall to cut off many persons. 
 
 ###### 18 
-Since he despised the oath by breaking the covenant, and in fact gave[^d] his hand and still did all these _things,_ he shall not escape.' " 
+Since he despised the oath by breaking the covenant, and in fact gave his hand and still did all these _things,_ he shall not escape.' " 
 
 ###### 19 
 Therefore thus says the Lord God: "_As_ I live, surely My oath which he despised, and My covenant which he broke, I will recompense on his own head. 
 
 ###### 20 
-I will spread My net over him, and he shall be taken in My snare. I will bring him to Babylon and try him there for the [^e]treason which he committed against Me. 
+I will spread My net over him, and he shall be taken in My snare. I will bring him to Babylon and try him there for the treason which he committed against Me. 
 
 ###### 21 
-All his [^f]fugitives with all his troops shall fall by the sword, and those who remain shall be scattered to every wind; and you shall know that I, the Lord, have spoken." ## Israel Exalted at Last 
+All his fugitives with all his troops shall fall by the sword, and those who remain shall be scattered to every wind; and you shall know that I, the Lord, have spoken." ## Israel Exalted at Last 
 
 ###### 22 
 Thus says the Lord God: "I will take also _one_ of the highest branches of the high cedar and set _it_ out. I will crop off from the topmost of its young twigs a tender one, and will plant _it_ on a high and prominent mountain. 

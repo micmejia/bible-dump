@@ -37,7 +37,7 @@ So he attacked them hip and thigh with a great slaughter; then he went down and 
 Now the Philistines went up, encamped in Judah, and deployed themselves against Lehi. 
 
 ###### 10 
-And the men of Judah said, "Why have you come up against us?" So they answered, "We have come up to [^a]arrest Samson, to do to him as he has done to us." 
+And the men of Judah said, "Why have you come up against us?" So they answered, "We have come up to arrest Samson, to do to him as he has done to us." 
 
 ###### 11 
 Then three thousand men of Judah went down to the cleft of the rock of Etam, and said to Samson, "Do you not know that the Philistines rule over us? What _is_ this you have done to us?" And he said to them, "As they did to me, so I have done to them." 
@@ -49,7 +49,7 @@ But they said to him, "We have come down to arrest you, that we may deliver you 
 So they spoke to him, saying, "No, but we will tie you securely and deliver you into their hand; but we will surely not kill you." And they bound him with two new ropes and brought him up from the rock. 
 
 ###### 14 
-When he came to Lehi, the Philistines came shouting against him. Then the Spirit of the Lord came mightily upon him; and the ropes that _were_ on his arms became like flax that is burned with fire, and his bonds [^b]broke loose from his hands. 
+When he came to Lehi, the Philistines came shouting against him. Then the Spirit of the Lord came mightily upon him; and the ropes that _were_ on his arms became like flax that is burned with fire, and his bonds broke loose from his hands. 
 
 ###### 15 
 He found a fresh jawbone of a donkey, reached out his hand and took it, and killed a thousand men with it. 
@@ -58,13 +58,13 @@ He found a fresh jawbone of a donkey, reached out his hand and took it, and kill
 Then Samson said: "With the jawbone of a donkey, Heaps upon heaps, With the jawbone of a donkey I have slain a thousand men!" 
 
 ###### 17 
-And so it was, when he had finished speaking, that he threw the jawbone from his hand, and called that place [^c]Ramath Lehi. 
+And so it was, when he had finished speaking, that he threw the jawbone from his hand, and called that place Ramath Lehi. 
 
 ###### 18 
 Then he became very thirsty; so he cried out to the Lord and said, "You have given this great deliverance by the hand of Your servant; and now shall I die of thirst and fall into the hand of the uncircumcised?" 
 
 ###### 19 
-So God split the hollow place that _is_ in [^d]Lehi, and water came out, and he drank; and his spirit returned, and he revived. Therefore he called its name [^e]En Hakkore, which is in Lehi to this day. 
+So God split the hollow place that _is_ in Lehi, and water came out, and he drank; and his spirit returned, and he revived. Therefore he called its name En Hakkore, which is in Lehi to this day. 
 
 ###### 20 
 And he judged Israel twenty years in the days of the Philistines.

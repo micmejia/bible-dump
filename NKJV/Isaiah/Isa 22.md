@@ -10,10 +10,10 @@ next: ['Isa 23']
 
 
 ###### 1 
-The [^a]burden against the Valley of Vision. What ails you now, that you have all gone up to the housetops, 
+The burden against the Valley of Vision. What ails you now, that you have all gone up to the housetops, 
 
 ###### 2 
-You who are full of noise, A [^b]tumultuous city, a joyous city? Your slain _men are_ not slain with the sword, Nor dead in battle. 
+You who are full of noise, A tumultuous city, a joyous city? Your slain _men are_ not slain with the sword, Nor dead in battle. 
 
 ###### 3 
 All your rulers have fled together; They are captured by the archers. All who are found in you are bound together; They have fled from afar. 
@@ -31,10 +31,10 @@ Elam bore the quiver With chariots of men _and_ horsemen, And Kir uncovered the 
 It shall come to pass _that_ your choicest valleys Shall be full of chariots, And the horsemen shall set themselves in array at the gate. 
 
 ###### 8 
-He removed the [^c]protection of Judah. You looked in that day to the armor of the House of the Forest; 
+He removed the protection of Judah. You looked in that day to the armor of the House of the Forest; 
 
 ###### 9 
-You also saw the [^d]damage to the city of David, That it was great; And you gathered together the waters of the lower pool. 
+You also saw the damage to the city of David, That it was great; And you gathered together the waters of the lower pool. 
 
 ###### 10 
 You numbered the houses of Jerusalem, And the houses you broke down To fortify the wall. 
@@ -64,7 +64,7 @@ Indeed, the Lord will throw you away violently, O mighty man, And will surely se
 He will surely turn violently and toss you like a ball Into a large country; There you shall die, and there your glorious chariots _Shall be_ the shame of your master's house. 
 
 ###### 19 
-So I will drive you out of your office, And from your position [^e]he will pull you down. 
+So I will drive you out of your office, And from your position he will pull you down. 
 
 ###### 20 
 'Then it shall be in that day, That I will call My servant Eliakim the son of Hilkiah; 

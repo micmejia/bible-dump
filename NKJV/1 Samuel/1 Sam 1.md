@@ -9,7 +9,7 @@ next: ['1 Sam 2']
 
 
 ###### 1 
-Now there was a certain man of Ramathaim Zophim, of the mountains of Ephraim, and his name _was_ Elkanah the son of Jeroham, the son of [^a]Elihu, the son of [^b]Tohu, the son of Zuph, an Ephraimite. 
+Now there was a certain man of Ramathaim Zophim, of the mountains of Ephraim, and his name _was_ Elkanah the son of Jeroham, the son of Elihu, the son of Tohu, the son of Zuph, an Ephraimite. 
 
 ###### 2 
 And he had two wives: the name of one _was_ Hannah, and the name of the other Peninnah. Peninnah had children, but Hannah had no children. 
@@ -33,10 +33,10 @@ So it was, year by year, when she went up to the house of the Lord, that she pro
 Then Elkanah her husband said to her, "Hannah, why do you weep? Why do you not eat? And why is your heart grieved? _Am_ I not better to you than ten sons?" 
 
 ###### 9 
-So Hannah arose after they had finished eating and drinking in Shiloh. Now Eli the priest was sitting on the seat by the doorpost of the [^c]tabernacle of the Lord. 
+So Hannah arose after they had finished eating and drinking in Shiloh. Now Eli the priest was sitting on the seat by the doorpost of the tabernacle of the Lord. 
 
 ###### 10 
-And she _was_ in bitterness of soul, and prayed to the Lord and [^d]wept in anguish. 
+And she _was_ in bitterness of soul, and prayed to the Lord and wept in anguish. 
 
 ###### 11 
 Then she made a vow and said, "O Lord of hosts, if You will indeed look on the affliction of Your maidservant and remember me, and not forget Your maidservant, but will give Your maidservant a male child, then I will give him to the Lord all the days of his life, and no razor shall come upon his head." 
@@ -54,7 +54,7 @@ So Eli said to her, "How long will you be drunk? Put your wine away from you!"
 But Hannah answered and said, "No, my lord, I _am_ a woman of sorrowful spirit. I have drunk neither wine nor intoxicating drink, but have poured out my soul before the Lord. 
 
 ###### 16 
-Do not consider your maidservant a wicked[^e] woman, for out of the abundance of my complaint and grief I have spoken until now." 
+Do not consider your maidservant a wicked woman, for out of the abundance of my complaint and grief I have spoken until now." 
 
 ###### 17 
 Then Eli answered and said, "Go in peace, and the God of Israel grant your petition which you have asked of Him." 
@@ -66,7 +66,7 @@ And she said, "Let your maidservant find favor in your sight." So the woman went
 Then they rose early in the morning and worshiped before the Lord, and returned and came to their house at Ramah. And Elkanah knew Hannah his wife, and the Lord remembered her. 
 
 ###### 20 
-So it came to pass in the process of time that Hannah conceived and bore a son, and called his name [^f]Samuel, _saying,_ "Because I have asked for him from the Lord." 
+So it came to pass in the process of time that Hannah conceived and bore a son, and called his name Samuel, _saying,_ "Because I have asked for him from the Lord." 
 
 ###### 21 
 Now the man Elkanah and all his house went up to offer to the Lord the yearly sacrifice and his vow. 
@@ -75,10 +75,10 @@ Now the man Elkanah and all his house went up to offer to the Lord the yearly sa
 But Hannah did not go up, for she said to her husband, "_Not_ until the child is weaned; then I will take him, that he may appear before the Lord and remain there forever." 
 
 ###### 23 
-So Elkanah her husband said to her, "Do what seems best to you; wait until you have weaned him. Only let the Lord [^g]establish [^h]His word." Then the woman stayed and nursed her son until she had weaned him. 
+So Elkanah her husband said to her, "Do what seems best to you; wait until you have weaned him. Only let the Lord establish His word." Then the woman stayed and nursed her son until she had weaned him. 
 
 ###### 24 
-Now when she had weaned him, she took him up with her, with [^i]three bulls, one ephah of flour, and a skin of wine, and brought him to the house of the Lord in Shiloh. And the child _was_ young. 
+Now when she had weaned him, she took him up with her, with three bulls, one ephah of flour, and a skin of wine, and brought him to the house of the Lord in Shiloh. And the child _was_ young. 
 
 ###### 25 
 Then they slaughtered a bull, and brought the child to Eli. 
@@ -90,4 +90,4 @@ And she said, "O my lord! As your soul lives, my lord, I _am_ the woman who stoo
 For this child I prayed, and the Lord has granted me my petition which I asked of Him. 
 
 ###### 28 
-Therefore I also have lent him to the Lord; as long as he lives he shall be [^j]lent to the Lord." So they worshiped the Lord there.
+Therefore I also have lent him to the Lord; as long as he lives he shall be lent to the Lord." So they worshiped the Lord there.

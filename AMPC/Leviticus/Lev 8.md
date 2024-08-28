@@ -742,7 +742,7 @@ As has been done this day, so the Lord has commanded to do for your atonement.
 
 
 
-At the door of the Tent of Meeting you shall remain day and night for seven days, [^a]doing what the Lord has charged you to do, that you die not; for so I am commanded. 
+At the door of the Tent of Meeting you shall remain day and night for seven days, doing what the Lord has charged you to do, that you die not; for so I am commanded. 
 
 
 

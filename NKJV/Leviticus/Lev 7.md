@@ -34,7 +34,7 @@ The trespass offering _is_ like the sin offering; _there is_ one law for them bo
 And the priest who offers anyone's burnt offering, that priest shall have for himself the skin of the burnt offering which he has offered. 
 
 ###### 9 
-Also every grain offering that is baked in the oven and all that is prepared in the covered pan, or [^a]in a pan, shall be the priest's who offers it. 
+Also every grain offering that is baked in the oven and all that is prepared in the covered pan, or in a pan, shall be the priest's who offers it. 
 
 ###### 10 
 Every grain offering, _whether_ mixed with oil or dry, shall belong to all the sons of Aaron, to one _as much_ as the other. ## The Law of Peace Offerings 
@@ -61,16 +61,16 @@ But if the sacrifice of his offering _is_ a vow or a voluntary offering, it shal
 the remainder of the flesh of the sacrifice on the third day must be burned with fire. 
 
 ###### 18 
-And if _any_ of the flesh of the sacrifice of his peace offering is eaten at all on the third day, it shall not be accepted, nor shall it be imputed to him; it shall be an abomination _to_ him who offers it, and the person who eats of it shall bear [^b]guilt. 
+And if _any_ of the flesh of the sacrifice of his peace offering is eaten at all on the third day, it shall not be accepted, nor shall it be imputed to him; it shall be an abomination _to_ him who offers it, and the person who eats of it shall bear guilt. 
 
 ###### 19 
-'The flesh that touches any unclean thing shall not be eaten. It shall be burned with fire. And as for the _clean_ flesh, all who are [^c]clean may eat of it. 
+'The flesh that touches any unclean thing shall not be eaten. It shall be burned with fire. And as for the _clean_ flesh, all who are clean may eat of it. 
 
 ###### 20 
 But the person who eats the flesh of the sacrifice of the peace offering that _belongs_ to the Lord, while he is unclean, that person shall be cut off from his people. 
 
 ###### 21 
-Moreover the person who touches any unclean thing, _such as_ human uncleanness, _an_ unclean animal, or any abominable[^d] unclean thing, and who eats the flesh of the sacrifice of the peace offering that _belongs_ to the Lord, that person shall be cut off from his people.' " ## Fat and Blood May Not Be Eaten 
+Moreover the person who touches any unclean thing, _such as_ human uncleanness, _an_ unclean animal, or any abominable unclean thing, and who eats the flesh of the sacrifice of the peace offering that _belongs_ to the Lord, that person shall be cut off from his people.' " ## Fat and Blood May Not Be Eaten 
 
 ###### 22 
 And the Lord spoke to Moses, saying, 
@@ -112,7 +112,7 @@ He among the sons of Aaron, who offers the blood of the peace offering and the f
 For the breast of the wave offering and the thigh of the heave offering I have taken from the children of Israel, from the sacrifices of their peace offerings, and I have given them to Aaron the priest and to his sons from the children of Israel by a statute forever.' " 
 
 ###### 35 
-This _is_ the consecrated portion for Aaron and his sons, from the offerings made by fire to the Lord, on the day when _Moses_ presented them to [^e]minister to the Lord as priests. 
+This _is_ the consecrated portion for Aaron and his sons, from the offerings made by fire to the Lord, on the day when _Moses_ presented them to minister to the Lord as priests. 
 
 ###### 36 
 The Lord commanded this to be given to them by the children of Israel, on the day that He anointed them, _by_ a statute forever throughout their generations. 

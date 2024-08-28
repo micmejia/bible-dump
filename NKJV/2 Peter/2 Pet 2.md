@@ -16,10 +16,10 @@ But there were also false prophets among the people, even as there will be false
 And many will follow their destructive ways, because of whom the way of truth will be blasphemed. 
 
 ###### 3 
-By covetousness they will exploit you with deceptive words; for a long time their judgment has not been idle, and their destruction [^a]does not slumber. ## Doom of False Teachers 
+By covetousness they will exploit you with deceptive words; for a long time their judgment has not been idle, and their destruction does not slumber. ## Doom of False Teachers 
 
 ###### 4 
-For if God did not spare the angels who sinned, but cast _them_ down to [^b]hell and delivered _them_ into chains of darkness, to be reserved for judgment; 
+For if God did not spare the angels who sinned, but cast _them_ down to hell and delivered _them_ into chains of darkness, to be reserved for judgment; 
 
 ###### 5 
 and did not spare the ancient world, but saved Noah, _one of_ eight _people_, a preacher of righteousness, bringing in the flood on the world of the ungodly; 
@@ -37,7 +37,7 @@ and delivered righteous Lot, _who was_ oppressed by the filthy conduct of the wi
 _then_ the Lord knows how to deliver the godly out of temptations and to reserve the unjust under punishment for the day of judgment, 
 
 ###### 10 
-and especially those who walk according to the flesh in the lust of uncleanness and despise authority. _They are_ presumptuous, self-willed. They are not afraid to speak evil of [^c]dignitaries, 
+and especially those who walk according to the flesh in the lust of uncleanness and despise authority. _They are_ presumptuous, self-willed. They are not afraid to speak evil of dignitaries, 
 
 ###### 11 
 whereas angels, who are greater in power and might, do not bring a reviling accusation against them before the Lord. ## Depravity of False Teachers 
@@ -46,10 +46,10 @@ whereas angels, who are greater in power and might, do not bring a reviling accu
 But these, like natural brute beasts made to be caught and destroyed, speak evil of the things they do not understand, and will utterly perish in their own corruption, 
 
 ###### 13 
-_and_ will receive the wages of unrighteousness, _as_ those who count it pleasure to [^d]carouse in the daytime. _They are_ spots and blemishes, [^e]carousing in their own deceptions while they feast with you, 
+_and_ will receive the wages of unrighteousness, _as_ those who count it pleasure to carouse in the daytime. _They are_ spots and blemishes, carousing in their own deceptions while they feast with you, 
 
 ###### 14 
-having eyes full of [^f]adultery and that cannot cease from sin, enticing unstable souls. They have a heart trained in covetous practices, _and are_ accursed children. 
+having eyes full of adultery and that cannot cease from sin, enticing unstable souls. They have a heart trained in covetous practices, _and are_ accursed children. 
 
 ###### 15 
 They have forsaken the right way and gone astray, following the way of Balaam the _son_ of Beor, who loved the wages of unrighteousness; 
@@ -58,13 +58,13 @@ They have forsaken the right way and gone astray, following the way of Balaam th
 but he was rebuked for his iniquity: a dumb donkey speaking with a man's voice restrained the madness of the prophet. 
 
 ###### 17 
-These are wells without water, [^g]clouds carried by a tempest, for whom is reserved the blackness of darkness [^h]forever. ## Deceptions of False Teachers 
+These are wells without water, clouds carried by a tempest, for whom is reserved the blackness of darkness forever. ## Deceptions of False Teachers 
 
 ###### 18 
-For when they speak great swelling _words_ of emptiness, they allure through the lusts of the flesh, through lewdness, the ones who [^i]have actually escaped from those who live in error. 
+For when they speak great swelling _words_ of emptiness, they allure through the lusts of the flesh, through lewdness, the ones who have actually escaped from those who live in error. 
 
 ###### 19 
-While they promise them liberty, they themselves are slaves of [^j]corruption; for by whom a person is overcome, by him also he is brought into [^k]bondage. 
+While they promise them liberty, they themselves are slaves of corruption; for by whom a person is overcome, by him also he is brought into bondage. 
 
 ###### 20 
 For if, after they have escaped the pollutions of the world through the knowledge of the Lord and Savior Jesus Christ, they are again entangled in them and overcome, the latter end is worse for them than the beginning. 

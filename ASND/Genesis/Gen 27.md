@@ -931,7 +931,7 @@ Lumapit si Jacob sa kanya at hinagkan ang kanyang ama. Nang maamoy ni Isaac ang 
 
 
 
-Nawaʼy bigyan ka ng Dios ng lupaing masagana ang ani na palaging may hamog na biyaya niya,[^a] para maging sagana ang pagkain at katas ng inumin mo. 
+Nawaʼy bigyan ka ng Dios ng lupaing masagana ang ani na palaging may hamog na biyaya niya, para maging sagana ang pagkain at katas ng inumin mo. 
 
 
 
@@ -1195,7 +1195,7 @@ Pero sumagot si Isaac, "Niloko ako ng nakababatang kapatid mo at nakuha na niya 
 
 
 
-Sinabi ni Esau, "Pangalawang beses na ito na niloko niya ako. Kaya pala Jacob[^b] ang pangalan niya. Kinuha na niya ang karapatan ko bilang panganay at ngayon, kinuha pa niya ang basbas na para sa akin." Pagkatapos, nagtanong siya, "Ama, wala na po bang natitirang basbas na para sa akin?" 
+Sinabi ni Esau, "Pangalawang beses na ito na niloko niya ako. Kaya pala Jacob ang pangalan niya. Kinuha na niya ang karapatan ko bilang panganay at ngayon, kinuha pa niya ang basbas na para sa akin." Pagkatapos, nagtanong siya, "Ama, wala na po bang natitirang basbas na para sa akin?" 
 
 
 

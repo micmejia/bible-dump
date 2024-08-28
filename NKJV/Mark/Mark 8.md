@@ -49,16 +49,16 @@ But He sighed deeply in His spirit, and said, "Why does this generation seek a s
 And He left them, and getting into the boat again, departed to the other side. 
 
 ###### 14 
-Now [^a]the disciples had forgotten to take bread, and they did not have more than one loaf with them in the boat. 
+Now the disciples had forgotten to take bread, and they did not have more than one loaf with them in the boat. 
 
 ###### 15 
-Then He charged them, saying, "Take heed, beware of the [^b]leaven of the Pharisees and the leaven of Herod." 
+Then He charged them, saying, "Take heed, beware of the leaven of the Pharisees and the leaven of Herod." 
 
 ###### 16 
 And they reasoned among themselves, saying, "_It is_ because we have no bread." 
 
 ###### 17 
-But Jesus, being aware of _it,_ said to them, "Why do you reason because you have no bread? Do you not yet perceive nor understand? Is your heart [^c]still hardened? 
+But Jesus, being aware of _it,_ said to them, "Why do you reason because you have no bread? Do you not yet perceive nor understand? Is your heart still hardened? 
 
 ###### 18 
 Having eyes, do you not see? And having ears, do you not hear? And do you not remember? 
@@ -85,7 +85,7 @@ And he looked up and said, "I see men like trees, walking."
 Then He put _His_ hands on his eyes again and made him look up. And he was restored and saw everyone clearly. 
 
 ###### 26 
-Then He sent him away to his house, saying, [^d]"Neither go into the town, nor tell anyone in the town." ## Peter Confesses Jesus as the Christ 
+Then He sent him away to his house, saying, "Neither go into the town, nor tell anyone in the town." ## Peter Confesses Jesus as the Christ 
 
 ###### 27 
 Now Jesus and His disciples went out to the towns of Caesarea Philippi; and on the road He asked His disciples, saying to them, "Who do men say that I am?" 
@@ -106,7 +106,7 @@ And He began to teach them that the Son of Man must suffer many things, and be r
 He spoke this word openly. Then Peter took Him aside and began to rebuke Him. 
 
 ###### 33 
-But when He had turned around and looked at His disciples, He rebuked Peter, saying, "Get behind Me, Satan! For you are not [^e]mindful of the things of God, but the things of men." ## Take Up the Cross and Follow Him 
+But when He had turned around and looked at His disciples, He rebuked Peter, saying, "Get behind Me, Satan! For you are not mindful of the things of God, but the things of men." ## Take Up the Cross and Follow Him 
 
 ###### 34 
 When He had called the people to _Himself,_ with His disciples also, He said to them, "Whoever desires to come after Me, let him deny himself, and take up his cross, and follow Me. 

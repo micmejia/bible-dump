@@ -271,7 +271,7 @@ Gumawa ng kasamaan ang mga Israelita sa paningin ng Panginoon dahil kinalimutan 
 
 
 
-Dahil dito, labis na nagalit ang Panginoon sa kanila, kaya hinayaan niya silang matalo ni Haring Cushan Rishataim ng Aram Naharaim.[^a] Silaʼy sinakop nito sa loob ng walong taon. 
+Dahil dito, labis na nagalit ang Panginoon sa kanila, kaya hinayaan niya silang matalo ni Haring Cushan Rishataim ng Aram Naharaim. Silaʼy sinakop nito sa loob ng walong taon. 
 
 
 
@@ -436,7 +436,7 @@ Muling gumawa ng kasamaan ang mga Israelita sa paningin ng Panginoon. Dahil dito
 
 
 
-Sa tulong ng mga Ammonita at Amalekita, nilusob at tinalo ni Eglon ang Israel, at sinakop ang lungsod ng Jerico.[^b] 
+Sa tulong ng mga Ammonita at Amalekita, nilusob at tinalo ni Eglon ang Israel, at sinakop ang lungsod ng Jerico. 
 
 
 

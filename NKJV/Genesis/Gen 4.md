@@ -10,13 +10,13 @@ next: ['Gen 5']
 
 
 ###### 1 
-Now Adam knew Eve his wife, and she conceived and bore [^a]Cain, and said, "I have acquired a man from the Lord." 
+Now Adam knew Eve his wife, and she conceived and bore Cain, and said, "I have acquired a man from the Lord." 
 
 ###### 2 
-Then she bore again, this time his brother [^b]Abel. Now Abel was a keeper of sheep, but Cain was a tiller of the ground. 
+Then she bore again, this time his brother Abel. Now Abel was a keeper of sheep, but Cain was a tiller of the ground. 
 
 ###### 3 
-And [^c]in the process of time it came to pass that Cain brought an offering of the fruit of the ground to the Lord. 
+And in the process of time it came to pass that Cain brought an offering of the fruit of the ground to the Lord. 
 
 ###### 4 
 Abel also brought of the firstborn of his flock and of their fat. And the Lord respected Abel and his offering, 
@@ -28,10 +28,10 @@ but He did not respect Cain and his offering. And Cain was very angry, and his c
 So the Lord said to Cain, "Why are you angry? And why has your countenance fallen? 
 
 ###### 7 
-If you do well, will you not be accepted? And if you do not do well, sin lies at the door. And its desire _is_ [^d]for you, but you should rule over it." 
+If you do well, will you not be accepted? And if you do not do well, sin lies at the door. And its desire _is_ for you, but you should rule over it." 
 
 ###### 8 
-Now Cain [^e]talked with Abel his [^f]brother; and it came to pass, when they were in the field, that Cain rose up against Abel his brother and killed him. 
+Now Cain talked with Abel his brother; and it came to pass, when they were in the field, that Cain rose up against Abel his brother and killed him. 
 
 ###### 9 
 Then the Lord said to Cain, "Where _is_ Abel your brother?" He said, "I do not know. _Am_ I my brother's keeper?" 
@@ -46,16 +46,16 @@ So now you _are_ cursed from the earth, which has opened its mouth to receive yo
 When you till the ground, it shall no longer yield its strength to you. A fugitive and a vagabond you shall be on the earth." 
 
 ###### 13 
-And Cain said to the Lord, "My [^g]punishment _is_ greater than I can bear! 
+And Cain said to the Lord, "My punishment _is_ greater than I can bear! 
 
 ###### 14 
 Surely You have driven me out this day from the face of the ground; I shall be hidden from Your face; I shall be a fugitive and a vagabond on the earth, and it will happen _that_ anyone who finds me will kill me." 
 
 ###### 15 
-And the Lord said to him, [^h]"Therefore, whoever kills Cain, vengeance shall be taken on him sevenfold." And the Lord set a mark on Cain, lest anyone finding him should kill him. ## The Family of Cain 
+And the Lord said to him, "Therefore, whoever kills Cain, vengeance shall be taken on him sevenfold." And the Lord set a mark on Cain, lest anyone finding him should kill him. ## The Family of Cain 
 
 ###### 16 
-Then Cain went out from the presence of the Lord and dwelt in the land of [^i]Nod on the east of Eden. 
+Then Cain went out from the presence of the Lord and dwelt in the land of Nod on the east of Eden. 
 
 ###### 17 
 And Cain knew his wife, and she conceived and bore Enoch. And he built a city, and called the name of the city after the name of his son--Enoch. 
@@ -70,19 +70,19 @@ Then Lamech took for himself two wives: the name of one _was_ Adah, and the name
 And Adah bore Jabal. He was the father of those who dwell in tents and have livestock. 
 
 ###### 21 
-His brother's name _was_ Jubal. He was the father of all those who play the harp and [^j]flute. 
+His brother's name _was_ Jubal. He was the father of all those who play the harp and flute. 
 
 ###### 22 
 And as for Zillah, she also bore Tubal-Cain, an instructor of every craftsman in bronze and iron. And the sister of Tubal-Cain _was_ Naamah. 
 
 ###### 23 
-Then Lamech said to his wives: "Adah and Zillah, hear my voice; Wives of Lamech, listen to my speech! For I have [^k]killed a man for wounding me, Even a young man [^l]for hurting me. 
+Then Lamech said to his wives: "Adah and Zillah, hear my voice; Wives of Lamech, listen to my speech! For I have killed a man for wounding me, Even a young man for hurting me. 
 
 ###### 24 
 If Cain shall be avenged sevenfold, Then Lamech seventy-sevenfold." ## A New Son 
 
 ###### 25 
-And Adam knew his wife again, and she bore a son and named him [^m]Seth, "For God has appointed another seed for me instead of Abel, whom Cain killed." 
+And Adam knew his wife again, and she bore a son and named him Seth, "For God has appointed another seed for me instead of Abel, whom Cain killed." 
 
 ###### 26 
-And as for Seth, to him also a son was born; and he named him [^n]Enosh. Then _men_ began to call on the name of the Lord.
+And as for Seth, to him also a son was born; and he named him Enosh. Then _men_ began to call on the name of the Lord.

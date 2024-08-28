@@ -19,7 +19,7 @@ that in a great trial of affliction the abundance of their joy and their deep po
 For I bear witness that according to _their_ ability, yes, and beyond _their_ ability, _they were_ freely willing, 
 
 ###### 4 
-imploring us with much urgency [^a]that we would receive the gift and the fellowship of the ministering to the saints. 
+imploring us with much urgency that we would receive the gift and the fellowship of the ministering to the saints. 
 
 ###### 5 
 And not _only_ as we had hoped, but they first gave themselves to the Lord, and _then_ to us by the will of God. 
@@ -55,7 +55,7 @@ but by an equality, _that_ now at this time your abundance _may supply_ their la
 As it is written, "He who _gathered_ much had nothing left over, and he who _gathered_ little had no lack." ## Collection for the Judean Saints 
 
 ###### 16 
-But thanks _be_ to God who [^b]puts the same earnest care for you into the heart of Titus. 
+But thanks _be_ to God who puts the same earnest care for you into the heart of Titus. 
 
 ###### 17 
 For he not only accepted the exhortation, but being more diligent, he went to you of his own accord. 
@@ -76,7 +76,7 @@ providing honorable things, not only in the sight of the Lord, but also in the s
 And we have sent with them our brother whom we have often proved diligent in many things, but now much more diligent, because of the great confidence which _we have_ in you. 
 
 ###### 23 
-If _anyone inquires_ about Titus, _he is_ my partner and fellow worker concerning you. Or if our brethren _are inquired about, they are_ messengers[^c] of the churches, the glory of Christ. 
+If _anyone inquires_ about Titus, _he is_ my partner and fellow worker concerning you. Or if our brethren _are inquired about, they are_ messengers of the churches, the glory of Christ. 
 
 ###### 24 
-Therefore show to them, [^d]and before the churches, the proof of your love and of our boasting on your behalf.
+Therefore show to them, and before the churches, the proof of your love and of our boasting on your behalf.

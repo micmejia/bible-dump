@@ -13,7 +13,7 @@ next: ['Acts 26']
 Now when Festus had come to the province, after three days he went up from Caesarea to Jerusalem. 
 
 ###### 2 
-Then the [^a]high priest and the chief men of the Jews informed him against Paul; and they petitioned him, 
+Then the high priest and the chief men of the Jews informed him against Paul; and they petitioned him, 
 
 ###### 3 
 asking a favor against him, that he would summon him to Jerusalem--while _they_ lay in ambush along the road to kill him. 
@@ -55,13 +55,13 @@ When they had been there many days, Festus laid Paul's case before the king, say
 about whom the chief priests and the elders of the Jews informed _me,_ when I was in Jerusalem, asking for a judgment against him. 
 
 ###### 16 
-To them I answered, 'It is not the custom of the Romans to deliver any man [^b]to destruction before the accused meets the accusers face to face, and has opportunity to answer for himself concerning the charge against him.' 
+To them I answered, 'It is not the custom of the Romans to deliver any man to destruction before the accused meets the accusers face to face, and has opportunity to answer for himself concerning the charge against him.' 
 
 ###### 17 
 Therefore when they had come together, without any delay, the next day I sat on the judgment seat and commanded the man to be brought in. 
 
 ###### 18 
-When the accusers stood up, they brought no accusation against him of such things as I [^c]supposed, 
+When the accusers stood up, they brought no accusation against him of such things as I supposed, 
 
 ###### 19 
 but had some questions against him about their own religion and about a certain Jesus, who had died, whom Paul affirmed to be alive. 
@@ -76,7 +76,7 @@ But when Paul appealed to be reserved for the decision of Augustus, I commanded 
 Then Agrippa said to Festus, "I also would like to hear the man myself." "Tomorrow," he said, "you shall hear him." 
 
 ###### 23 
-So the next day, when Agrippa and Bernice had come with great [^d]pomp, and had entered the auditorium with the commanders and the prominent men of the city, at Festus' command Paul was brought in. 
+So the next day, when Agrippa and Bernice had come with great pomp, and had entered the auditorium with the commanders and the prominent men of the city, at Festus' command Paul was brought in. 
 
 ###### 24 
 And Festus said: "King Agrippa and all the men who are here present with us, you see this man about whom the whole assembly of the Jews petitioned me, both at Jerusalem and here, crying out that he was not fit to live any longer. 

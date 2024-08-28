@@ -13,7 +13,7 @@ next: ['Isa 34']
 Woe to you who plunder, though you _have_ not _been_ plundered; And you who deal treacherously, though they have not dealt treacherously with you! When you cease plundering, You will be plundered; When you make an end of dealing treacherously, They will deal treacherously with you. 
 
 ###### 2 
-O Lord, be gracious to us; We have waited for You. Be [^a]their arm every morning, Our salvation also in the time of trouble. 
+O Lord, be gracious to us; We have waited for You. Be their arm every morning, Our salvation also in the time of trouble. 
 
 ###### 3 
 At the noise of the tumult the people shall flee; When You lift Yourself up, the nations shall be scattered; 
@@ -31,7 +31,7 @@ Wisdom and knowledge will be the stability of your times, _And_ the strength of 
 Surely their valiant ones shall cry outside, The ambassadors of peace shall weep bitterly. 
 
 ###### 8 
-The highways lie waste, The traveling man ceases. He has broken the covenant, [^b]He has despised the [^c]cities, He regards no man. 
+The highways lie waste, The traveling man ceases. He has broken the covenant, He has despised the cities, He regards no man. 
 
 ###### 9 
 The earth mourns _and_ languishes, Lebanon is shamed _and_ shriveled; Sharon is like a wilderness, And Bashan and Carmel shake off _their fruits._ ## Impending Judgment on Zion 
@@ -55,7 +55,7 @@ The sinners in Zion are afraid; Fearfulness has seized the hypocrites: "Who amon
 He who walks righteously and speaks uprightly, He who despises the gain of oppressions, Who gestures with his hands, refusing bribes, Who stops his ears from hearing of bloodshed, And shuts his eyes from seeing evil: 
 
 ###### 16 
-He will dwell on [^d]high; His place of defense _will be_ the fortress of rocks; Bread will be given him, His water _will be_ sure. ## The Land of the Majestic King 
+He will dwell on high; His place of defense _will be_ the fortress of rocks; Bread will be given him, His water _will be_ sure. ## The Land of the Majestic King 
 
 ###### 17 
 Your eyes will see the King in His beauty; They will see the land that is very far off. 
@@ -64,13 +64,13 @@ Your eyes will see the King in His beauty; They will see the land that is very f
 Your heart will meditate on terror: "Where _is_ the scribe? Where _is_ he who weighs? Where _is_ he who counts the towers?" 
 
 ###### 19 
-You will not see a fierce people, A people of obscure speech, beyond perception, Of a [^e]stammering tongue _that you_ cannot understand. 
+You will not see a fierce people, A people of obscure speech, beyond perception, Of a stammering tongue _that you_ cannot understand. 
 
 ###### 20 
 Look upon Zion, the city of our appointed feasts; Your eyes will see Jerusalem, a quiet home, A tabernacle _that_ will not be taken down; Not one of its stakes will ever be removed, Nor will any of its cords be broken. 
 
 ###### 21 
-But there the majestic Lord _will be_ for us A place of broad rivers _and_ streams, In which no [^f]galley with oars will sail, Nor majestic ships pass by 
+But there the majestic Lord _will be_ for us A place of broad rivers _and_ streams, In which no galley with oars will sail, Nor majestic ships pass by 
 
 ###### 22 
 (For the Lord _is_ our Judge, The Lord _is_ our Lawgiver, The Lord _is_ our King; He will save us); 

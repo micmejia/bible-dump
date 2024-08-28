@@ -195,7 +195,7 @@ Now a new king arose over Egypt who did not know Joseph.
 
 
 
-He said to his people, Behold, the Israelites are too many and too mighty for us [and they [^a]outnumber us both in people and in strength]. 
+He said to his people, Behold, the Israelites are too many and too mighty for us [and they outnumber us both in people and in strength]. 
 
 
 

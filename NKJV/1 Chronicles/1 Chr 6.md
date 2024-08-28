@@ -10,7 +10,7 @@ next: ['1 Chr 7']
 
 
 ###### 1 
-The sons of Levi _were_ Gershon,[^a] Kohath, and Merari. 
+The sons of Levi _were_ Gershon, Kohath, and Merari. 
 
 ###### 2 
 The sons of Kohath _were_ Amram, Izhar, Hebron, and Uzziel. 
@@ -37,13 +37,13 @@ Ahitub begot Zadok, and Zadok begot Ahimaaz;
 Ahimaaz begot Azariah, and Azariah begot Johanan; 
 
 ###### 10 
-Johanan begot Azariah (it was he who ministered as priest in the temple[^b] that Solomon built in Jerusalem); 
+Johanan begot Azariah (it was he who ministered as priest in the temple that Solomon built in Jerusalem); 
 
 ###### 11 
 Azariah begot Amariah, and Amariah begot Ahitub; 
 
 ###### 12 
-Ahitub begot Zadok, and Zadok begot [^c]Shallum; 
+Ahitub begot Zadok, and Zadok begot Shallum; 
 
 ###### 13 
 Shallum begot Hilkiah, and Hilkiah begot Azariah; 
@@ -55,7 +55,7 @@ Azariah begot Seraiah, and Seraiah begot Jehozadak.
 Jehozadak went _into captivity_ when the Lord carried Judah and Jerusalem into captivity by the hand of Nebuchadnezzar. 
 
 ###### 16 
-The sons of Levi _were_ Gershon,[^d] Kohath, and Merari. 
+The sons of Levi _were_ Gershon, Kohath, and Merari. 
 
 ###### 17 
 These are the names of the sons of Gershon: Libni and Shimei. 
@@ -70,10 +70,10 @@ The sons of Merari _were_ Mahli and Mushi. Now these _are_ the families of the L
 Of Gershon _were_ Libni his son, Jahath his son, Zimmah his son, 
 
 ###### 21 
-[^e]Joah his son, [^f]Iddo his son, Zerah his son, _and_ [^g]Jeatherai his son. 
+Joah his son, Iddo his son, Zerah his son, _and_ Jeatherai his son. 
 
 ###### 22 
-The sons of Kohath _were_ [^h]Amminadab his son, Korah his son, Assir his son, 
+The sons of Kohath _were_ Amminadab his son, Korah his son, Assir his son, 
 
 ###### 23 
 Elkanah his son, Ebiasaph his son, Assir his son, 
@@ -85,13 +85,13 @@ Tahath his son, Uriel his son, Uzziah his son, and Shaul his son.
 The sons of Elkanah _were_ Amasai and Ahimoth. 
 
 ###### 26 
-_As for_ Elkanah, the sons of Elkanah _were_ [^i]Zophai his son, [^j]Nahath his son, 
+_As for_ Elkanah, the sons of Elkanah _were_ Zophai his son, Nahath his son, 
 
 ###### 27 
-[^k]Eliab his son, Jeroham his son, _and_ Elkanah his son. 
+Eliab his son, Jeroham his son, _and_ Elkanah his son. 
 
 ###### 28 
-The sons of Samuel _were_ [^l]_Joel_ the firstborn, and Abijah [^m]the second. 
+The sons of Samuel _were_ _Joel_ the firstborn, and Abijah the second. 
 
 ###### 29 
 The sons of Merari _were_ Mahli, Libni his son, Shimei his son, Uzzah his son, 
@@ -106,10 +106,10 @@ Now these are the men whom David appointed over the service of song in the house
 They were ministering with music before the dwelling place of the tabernacle of meeting, until Solomon had built the house of the Lord in Jerusalem, and they served in their office according to their order. 
 
 ###### 33 
-And these _are_ the ones who [^n]ministered with their sons: Of the sons of the Kohathites _were_ Heman the singer, the son of Joel, the son of Samuel, 
+And these _are_ the ones who ministered with their sons: Of the sons of the Kohathites _were_ Heman the singer, the son of Joel, the son of Samuel, 
 
 ###### 34 
-the son of Elkanah, the son of Jeroham, the son of [^o]Eliel, the son of [^p]Toah, 
+the son of Elkanah, the son of Jeroham, the son of Eliel, the son of Toah, 
 
 ###### 35 
 the son of Zuph, the son of Elkanah, the son of Mahath, the son of Amasai, 
@@ -139,7 +139,7 @@ the son of Ethan, the son of Zimmah, the son of Shimei,
 the son of Jahath, the son of Gershon, the son of Levi. 
 
 ###### 44 
-Their brethren, the sons of Merari, on the left hand, _were_ [^q]Ethan the son of [^r]Kishi, the son of Abdi, the son of Malluch, 
+Their brethren, the sons of Merari, on the left hand, _were_ Ethan the son of Kishi, the son of Abdi, the son of Malluch, 
 
 ###### 45 
 the son of Hashabiah, the son of Amaziah, the son of Hilkiah, 
@@ -172,7 +172,7 @@ Zadok his son, _and_ Ahimaaz his son. ## Dwelling Places of the Levites
 Now these _are_ their dwelling places throughout their settlements in their territory, for they were _given_ by lot to the sons of Aaron, of the family of the Kohathites: 
 
 ###### 55 
-They gave them Hebron in the land of Judah, with its surrounding [^s]common-lands. 
+They gave them Hebron in the land of Judah, with its surrounding common-lands. 
 
 ###### 56 
 But the fields of the city and its villages they gave to Caleb the son of Jephunneh. 
@@ -181,13 +181,13 @@ But the fields of the city and its villages they gave to Caleb the son of Jephun
 And to the sons of Aaron they gave _one of_ the cities of refuge, Hebron; also Libnah with its common-lands, Jattir, Eshtemoa with its common-lands, 
 
 ###### 58 
-[^t]Hilen with its common-lands, Debir with its common-lands, 
+Hilen with its common-lands, Debir with its common-lands, 
 
 ###### 59 
-[^u]Ashan with its common-lands, and Beth Shemesh with its common-lands. 
+Ashan with its common-lands, and Beth Shemesh with its common-lands. 
 
 ###### 60 
-And from the tribe of Benjamin: Geba with its common-lands, [^v]Alemeth with its common-lands, and Anathoth with its common-lands. All their cities among their families _were_ thirteen. 
+And from the tribe of Benjamin: Geba with its common-lands, Alemeth with its common-lands, and Anathoth with its common-lands. All their cities among their families _were_ thirteen. 
 
 ###### 61 
 To the rest of the family of the tribe of the Kohathites _they gave_ by lot ten cities from half the tribe of Manasseh. 
@@ -199,7 +199,7 @@ And to the sons of Gershon, throughout their families, _they gave_ thirteen citi
 To the sons of Merari, throughout their families, _they gave_ twelve cities from the tribe of Reuben, from the tribe of Gad, and from the tribe of Zebulun. 
 
 ###### 64 
-So the children of Israel gave _these_ cities with their [^w]common-lands to the Levites. 
+So the children of Israel gave _these_ cities with their common-lands to the Levites. 
 
 ###### 65 
 And they gave by lot from the tribe of the children of Judah, from the tribe of the children of Simeon, and from the tribe of the children of Benjamin these cities which are called by _their_ names. 
@@ -220,10 +220,10 @@ Aijalon with its common-lands, and Gath Rimmon with its common-lands.
 And from the half-tribe of Manasseh: Aner with its common-lands and Bileam with its common-lands, for the rest of the family of the sons of Kohath. 
 
 ###### 71 
-From the family of the half-tribe of Manasseh the sons of Gershon _were given_ Golan in Bashan with its common-lands and [^x]Ashtaroth with its common-lands. 
+From the family of the half-tribe of Manasseh the sons of Gershon _were given_ Golan in Bashan with its common-lands and Ashtaroth with its common-lands. 
 
 ###### 72 
-And from the tribe of Issachar: [^y]Kedesh with its common-lands, Daberath with its common-lands, 
+And from the tribe of Issachar: Kedesh with its common-lands, Daberath with its common-lands, 
 
 ###### 73 
 Ramoth with its common-lands, and Anem with its common-lands. 
@@ -238,7 +238,7 @@ Hukok with its common-lands, and Rehob with its common-lands.
 And from the tribe of Naphtali: Kedesh in Galilee with its common-lands, Hammon with its common-lands, and Kirjathaim with its common-lands. 
 
 ###### 77 
-From the tribe of Zebulun the rest of the children of Merari _were given_ [^z]Rimmon with its common-lands and Tabor with its common-lands. 
+From the tribe of Zebulun the rest of the children of Merari _were given_ Rimmon with its common-lands and Tabor with its common-lands. 
 
 ###### 78 
 And on the other side of the Jordan, across from Jericho, on the east side of the Jordan, _they were given_ from the tribe of Reuben: Bezer in the wilderness with its common-lands, Jahzah with its common-lands, 

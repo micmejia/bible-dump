@@ -26,7 +26,7 @@ up: ['Obadiah']
 
 
 
-The vision of Obadiah. Thus says the Lord God concerning [^a]Edom: We have heard tidings from the Lord, and an ambassador is sent forth among the nations [saying], Arise, and let us rise up against [Edom] for battle! 
+The vision of Obadiah. Thus says the Lord God concerning Edom: We have heard tidings from the Lord, and an ambassador is sent forth among the nations [saying], Arise, and let us rise up against [Edom] for battle! 
 
 
 

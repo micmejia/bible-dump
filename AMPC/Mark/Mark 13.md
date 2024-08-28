@@ -28,7 +28,7 @@ next: ['Mark 14']
 
 
 
-And as [Jesus] was coming out of the temple [[^a]area], one of His disciples said to Him, Look, Teacher! Notice the sort _and_ quality of these stones and buildings! 
+And as [Jesus] was coming out of the temple [area], one of His disciples said to Him, Look, Teacher! Notice the sort _and_ quality of these stones and buildings! 
 
 
 
@@ -70,7 +70,7 @@ And Jesus replied to him, You see these great buildings? There will not be left 
 
 
 
-And as He sat on the Mount of Olives opposite the temple [[^b]enclosure], Peter and James and John and Andrew asked Him privately, 
+And as He sat on the Mount of Olives opposite the temple [enclosure], Peter and James and John and Andrew asked Him privately, 
 
 
 
@@ -133,7 +133,7 @@ And Jesus began to tell them, Be careful _and_ watchful that no one misleads you
 
 
 
-Many will come in [[^c]appropriating to themselves] the name [of Messiah] which belongs to Me [[^d]basing their claims on the use of My name], saying, I am [He]! And they will mislead many. 
+Many will come in [appropriating to themselves] the name [of Messiah] which belongs to Me [basing their claims on the use of My name], saying, I am [He]! And they will mislead many. 
 
 
 
@@ -175,7 +175,7 @@ And when you hear of wars and rumors of wars, do not get alarmed (troubled and f
 
 
 
-For nation will rise against nation, and kingdom against kingdom. There will be earthquakes in various places; there will be famines _and calamities_. This is but the beginning of the [^e]intolerable anguish _and_ suffering [only the first of the [^f]birth pangs]. 
+For nation will rise against nation, and kingdom against kingdom. There will be earthquakes in various places; there will be famines _and calamities_. This is but the beginning of the intolerable anguish _and_ suffering [only the first of the birth pangs]. 
 
 
 
@@ -238,7 +238,7 @@ And the good news (the Gospel) must first be preached to all nations.
 
 
 
-Now when they take you [to court] and put you under arrest, do not be anxious beforehand about what you are to say [^g]_nor_ [_even_] _meditate about it_; but say whatever is given you in that hour _and_ at [^h]the moment, for it is not you who will be speaking, but the Holy Spirit. 
+Now when they take you [to court] and put you under arrest, do not be anxious beforehand about what you are to say _nor_ [_even_] _meditate about it_; but say whatever is given you in that hour _and_ at the moment, for it is not you who will be speaking, but the Holy Spirit. 
 
 
 
@@ -280,7 +280,7 @@ And brother will hand over brother to death, and the father his child; and child
 
 
 
-And you will be hated _and_ detested by everybody for My name's sake, but he who patiently perseveres _and_ endures to the end will be saved ([^i]made a partaker of the salvation by Christ, and delivered [^j]from spiritual death). 
+And you will be hated _and_ detested by everybody for My name's sake, but he who patiently perseveres _and_ endures to the end will be saved (made a partaker of the salvation by Christ, and delivered from spiritual death). 
 
 
 
@@ -406,7 +406,7 @@ Pray that it may not occur in winter,
 
 
 
-For at that time there will be such affliction (oppression and tribulation) as has not been from the beginning of the creation which God created until this particular time--and [^k]positively never will be [again]. 
+For at that time there will be such affliction (oppression and tribulation) as has not been from the beginning of the creation which God created until this particular time--and positively never will be [again]. 
 
 
 
@@ -427,7 +427,7 @@ For at that time there will be such affliction (oppression and tribulation) as h
 
 
 
-And unless the Lord had shortened the days, no human being would be saved (rescued); but for the sake of the elect, His chosen ones (those whom He [^l]picked out for Himself), He has shortened the days. 
+And unless the Lord had shortened the days, no human being would be saved (rescued); but for the sake of the elect, His chosen ones (those whom He picked out for Himself), He has shortened the days. 
 
 
 
@@ -574,7 +574,7 @@ And then they will see the Son of Man coming in clouds with great (kingly) power
 
 
 
-And then He will send out the angels and will gather together His elect (those He has [^m]picked out for Himself) from the four winds, from the farthest bounds of the earth to the farthest bounds of heaven. 
+And then He will send out the angels and will gather together His elect (those He has picked out for Himself) from the four winds, from the farthest bounds of the earth to the farthest bounds of heaven. 
 
 
 
@@ -637,7 +637,7 @@ So also, when you see these things happening, you may recognize _and_ know that 
 
 
 
-Surely I say to you, this generation ([^n]the whole multitude of people living at that one time) positively will not perish _or_ pass away before all these things take place. 
+Surely I say to you, this generation (the whole multitude of people living at that one time) positively will not perish _or_ pass away before all these things take place. 
 
 
 
@@ -700,7 +700,7 @@ But of that day or that hour not a [single] person knows, not even the angels in
 
 
 
-Be on your guard [constantly alert], and watch [^o]_and pray_; for you do not know when the time will come. 
+Be on your guard [constantly alert], and watch _and pray_; for you do not know when the time will come. 
 
 
 
@@ -721,7 +721,7 @@ Be on your guard [constantly alert], and watch [^o]_and pray_; for you do not kn
 
 
 
-It is like a man [[^p]already] going on a journey; when he leaves home, he puts his servants in charge, each with his particular task, and he gives orders to the doorkeeper to be constantly alert _and_ on the watch. 
+It is like a man [already] going on a journey; when he leaves home, he puts his servants in charge, each with his particular task, and he gives orders to the doorkeeper to be constantly alert _and_ on the watch. 
 
 
 

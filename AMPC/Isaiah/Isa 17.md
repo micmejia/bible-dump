@@ -196,7 +196,7 @@ And they will not look to the [idolatrous] altars, the work of their hands, neit
 
 
 
-In that day will their [Syria's and Israel's] strong cities be like the forsaken places in the wood and on the mountaintop, as they [the [^a]Amorites and the Hivites] forsook their [cities] because of the children of Israel; and there will be desolation. 
+In that day will their [Syria's and Israel's] strong cities be like the forsaken places in the wood and on the mountaintop, as they [the Amorites and the Hivites] forsook their [cities] because of the children of Israel; and there will be desolation. 
 
 
 
@@ -301,4 +301,4 @@ The nations will rush _and_ roar like the rushing _and_ roaring of many waters--
 
 
 
-At evening time, behold, terror! And [^b]before the morning, they [the terrorizing Assyrians] are not. This is the portion of those who strip us [the Jews] of what belongs to us, and the lot of those who rob us. [Fulfilled in Isa. 37:36.]
+At evening time, behold, terror! And before the morning, they [the terrorizing Assyrians] are not. This is the portion of those who strip us [the Jews] of what belongs to us, and the lot of those who rob us. [Fulfilled in Isa. 37:36.]

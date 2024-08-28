@@ -154,7 +154,7 @@ Sheol (the place of the dead) is naked before God, and Abaddon (the place of des
 
 
 
-He it is Who spreads out the northern skies over emptiness and [^a]hangs the earth upon _or_ over nothing. 
+He it is Who spreads out the northern skies over emptiness and hangs the earth upon _or_ over nothing. 
 
 
 

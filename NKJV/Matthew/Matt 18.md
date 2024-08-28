@@ -28,19 +28,19 @@ Whoever receives one little child like this in My name receives Me. ## Jesus War
 "But whoever causes one of these little ones who believe in Me to sin, it would be better for him if a millstone were hung around his neck, and he were drowned in the depth of the sea. 
 
 ###### 7 
-Woe to the world because of [^a]offenses! For offenses must come, but woe to that man by whom the offense comes! 
+Woe to the world because of offenses! For offenses must come, but woe to that man by whom the offense comes! 
 
 ###### 8 
 "If your hand or foot causes you to sin, cut it off and cast _it_ from you. It is better for you to enter into life lame or maimed, rather than having two hands or two feet, to be cast into the everlasting fire. 
 
 ###### 9 
-And if your eye causes you to sin, pluck it out and cast _it_ from you. It is better for you to enter into life with one eye, rather than having two eyes, to be cast into [^b]hell fire. ## The Parable of the Lost Sheep 
+And if your eye causes you to sin, pluck it out and cast _it_ from you. It is better for you to enter into life with one eye, rather than having two eyes, to be cast into hell fire. ## The Parable of the Lost Sheep 
 
 ###### 10 
 "Take heed that you do not despise one of these little ones, for I say to you that in heaven their angels always see the face of My Father who is in heaven. 
 
 ###### 11 
-For[^c] the Son of Man has come to save that which was lost. 
+For the Son of Man has come to save that which was lost. 
 
 ###### 12 
 "What do you think? If a man has a hundred sheep, and one of them goes astray, does he not leave the ninety-nine and go to the mountains to seek the one that is straying? 
@@ -64,7 +64,7 @@ And if he refuses to hear them, tell _it_ to the church. But if he refuses even 
 "Assuredly, I say to you, whatever you bind on earth will be bound in heaven, and whatever you loose on earth will be loosed in heaven. 
 
 ###### 19 
-"Again[^d] I say to you that if two of you agree on earth concerning anything that they ask, it will be done for them by My Father in heaven. 
+"Again I say to you that if two of you agree on earth concerning anything that they ask, it will be done for them by My Father in heaven. 
 
 ###### 20 
 For where two or three are gathered together in My name, I am there in the midst of them." ## The Parable of the Unforgiving Servant 
@@ -94,7 +94,7 @@ Then the master of that servant was moved with compassion, released him, and for
 "But that servant went out and found one of his fellow servants who owed him a hundred denarii; and he laid hands on him and took _him_ by the throat, saying, 'Pay me what you owe!' 
 
 ###### 29 
-So his fellow servant fell down [^e]at his feet and begged him, saying, 'Have patience with me, and I will pay you [^f]all.' 
+So his fellow servant fell down at his feet and begged him, saying, 'Have patience with me, and I will pay you all.' 
 
 ###### 30 
 And he would not, but went and threw him into prison till he should pay the debt. 
@@ -112,4 +112,4 @@ Should you not also have had compassion on your fellow servant, just as I had pi
 And his master was angry, and delivered him to the torturers until he should pay all that was due to him. 
 
 ###### 35 
-"So My heavenly Father also will do to you if each of you, from his heart, does not forgive his brother [^g]his trespasses."
+"So My heavenly Father also will do to you if each of you, from his heart, does not forgive his brother his trespasses."

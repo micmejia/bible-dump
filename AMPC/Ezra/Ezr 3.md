@@ -49,7 +49,7 @@ When the seventh month came and the Israelites were in the towns, the people gat
 
 
 
-Then stood up Jeshua son of Jozadak, and his brethren the priests, and Zerubbabel son of Shealtiel, and his brethren, and they built the altar of the God of Israel to offer burnt offerings upon it, as it is written in the [^a]instructions of Moses the man of God. 
+Then stood up Jeshua son of Jozadak, and his brethren the priests, and Zerubbabel son of Shealtiel, and his brethren, and they built the altar of the God of Israel to offer burnt offerings upon it, as it is written in the instructions of Moses the man of God. 
 
 
 

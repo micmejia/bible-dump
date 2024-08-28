@@ -532,7 +532,7 @@ And the Lord appeared to him the same night and said, I am the God of Abraham yo
 
 
 
-And [Isaac] [^a]built an altar there and called on the name of the Lord and pitched his tent there; and there Isaac's servants were digging a well. 
+And [Isaac] built an altar there and called on the name of the Lord and pitched his tent there; and there Isaac's servants were digging a well. 
 
 
 

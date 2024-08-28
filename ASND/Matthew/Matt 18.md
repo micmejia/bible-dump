@@ -535,7 +535,7 @@ Ganito rin naman ang nararamdaman ng inyong Amang nasa langit. Ayaw niyang mawal
 
 
 
-Pero kung ayaw niyang makinig sa iyo, magsama ka ng isa o dalawa pang <i class="trans-change">kapatid sa pananampalataya_ 'para ang lahat ng pag-uusapan ninyo ay mapapatotohanan ng dalawa o tatlong saksi,'[^a] <i class="trans-change">ayon sa Kasulatan._ 
+Pero kung ayaw niyang makinig sa iyo, magsama ka ng isa o dalawa pang <i class="trans-change">kapatid sa pananampalataya_ 'para ang lahat ng pag-uusapan ninyo ay mapapatotohanan ng dalawa o tatlong saksi,' <i class="trans-change">ayon sa Kasulatan._ 
 
 
 
@@ -568,7 +568,7 @@ Pero kung ayaw niyang makinig sa iyo, magsama ka ng isa o dalawa pang <i class="
 
 
 
-Kung ayaw niyang makinig sa kanila, ipaalam ito sa iglesya, at kung pati sa iglesya ay ayaw niyang makinig, ituring ninyo siya bilang isang taong hindi kumikilala sa Dios o isang maniningil ng buwis."[^b] ## Kapangyarihang Magbawal at Magpahintulot 
+Kung ayaw niyang makinig sa kanila, ipaalam ito sa iglesya, at kung pati sa iglesya ay ayaw niyang makinig, ituring ninyo siya bilang isang taong hindi kumikilala sa Dios o isang maniningil ng buwis." ## Kapangyarihang Magbawal at Magpahintulot 
 
 
 

@@ -535,7 +535,7 @@ Kaya ngayon, narito ako sa gitna ng kapahamakan at kahihiyan."
 
 
 
-Dahil baka magtaksil din sa iyo ang iyong asawa.[^a] 
+Dahil baka magtaksil din sa iyo ang iyong asawa. 
 
 
 

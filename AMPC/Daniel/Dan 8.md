@@ -175,7 +175,7 @@ And he came to the ram that had the two horns which I had seen standing on the b
 
 
 
-And the he-goat [Alexander the Great] magnified himself exceedingly, and when he was [young and] strong, the [^a]great horn [he] was [suddenly] broken; and instead of [him] there came up four notable horns [to whom the kingdom was divided, one] toward [each of] the four winds of the heavens. 
+And the he-goat [Alexander the Great] magnified himself exceedingly, and when he was [young and] strong, the great horn [he] was [suddenly] broken; and instead of [him] there came up four notable horns [to whom the kingdom was divided, one] toward [each of] the four winds of the heavens. 
 
 
 
@@ -196,7 +196,7 @@ And the he-goat [Alexander the Great] magnified himself exceedingly, and when he
 
 
 
-Out of littleness _and_ small beginnings one of them came forth [Antiochus Epiphanes], a [^b]horn whose [impious presumption and pride] grew exceedingly great toward the south and toward the east and toward the ornament [the precious, blessed land of Israel]. 
+Out of littleness _and_ small beginnings one of them came forth [Antiochus Epiphanes], a horn whose [impious presumption and pride] grew exceedingly great toward the south and toward the east and toward the ornament [the precious, blessed land of Israel]. 
 
 
 

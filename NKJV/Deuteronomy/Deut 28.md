@@ -19,7 +19,7 @@ And all these blessings shall come upon you and overtake you, because you obey t
 "Blessed _shall_ you _be_ in the city, and blessed _shall_ you _be_ in the country. 
 
 ###### 4 
-"Blessed _shall be_ the [^a]fruit of your body, the produce of your ground and the increase of your herds, the increase of your cattle and the offspring of your flocks. 
+"Blessed _shall be_ the fruit of your body, the produce of your ground and the increase of your herds, the increase of your cattle and the offspring of your flocks. 
 
 ###### 5 
 "Blessed _shall be_ your basket and your kneading bowl. 
@@ -40,13 +40,13 @@ And all these blessings shall come upon you and overtake you, because you obey t
 Then all peoples of the earth shall see that you are called by the name of the Lord, and they shall be afraid of you. 
 
 ###### 11 
-And the Lord will grant you plenty of goods, in the fruit of your body, in the increase of your livestock, and in the produce of your ground, in the land of which the Lord [^b]swore to your fathers to give you. 
+And the Lord will grant you plenty of goods, in the fruit of your body, in the increase of your livestock, and in the produce of your ground, in the land of which the Lord swore to your fathers to give you. 
 
 ###### 12 
-The Lord will open to you His good [^c]treasure, the heavens, to give the rain to your land in its season, and to bless all the work of your hand. You shall lend to many nations, but you shall not borrow. 
+The Lord will open to you His good treasure, the heavens, to give the rain to your land in its season, and to bless all the work of your hand. You shall lend to many nations, but you shall not borrow. 
 
 ###### 13 
-And the Lord will make you the head and not the tail; you shall be above only, and not be beneath, if you [^d]heed the commandments of the Lord your God, which I command you today, and are careful to observe _them._ 
+And the Lord will make you the head and not the tail; you shall be above only, and not be beneath, if you heed the commandments of the Lord your God, which I command you today, and are careful to observe _them._ 
 
 ###### 14 
 So you shall not turn aside from any of the words which I command you this day, _to_ the right or the left, to go after other gods to serve them. ## Curses on Disobedience 
@@ -61,7 +61,7 @@ So you shall not turn aside from any of the words which I command you this day, 
 "Cursed _shall be_ your basket and your kneading bowl. 
 
 ###### 18 
-"Cursed _shall be_ the [^e]fruit of your body and the produce of your land, the increase of your cattle and the offspring of your flocks. 
+"Cursed _shall be_ the fruit of your body and the produce of your land, the increase of your cattle and the offspring of your flocks. 
 
 ###### 19 
 "Cursed _shall_ you _be_ when you come in, and cursed _shall_ you _be_ when you go out. 
@@ -70,10 +70,10 @@ So you shall not turn aside from any of the words which I command you this day, 
 "The Lord will send on you cursing, confusion, and rebuke in all that you set your hand to do, until you are destroyed and until you perish quickly, because of the wickedness of your doings in which you have forsaken Me. 
 
 ###### 21 
-The Lord will make the [^f]plague cling to you until He has consumed you from the land which you are going to possess. 
+The Lord will make the plague cling to you until He has consumed you from the land which you are going to possess. 
 
 ###### 22 
-The Lord will strike you with consumption, with fever, with inflammation, with severe burning fever, with the sword, with scorching,[^g] and with mildew; they shall pursue you until you perish. 
+The Lord will strike you with consumption, with fever, with inflammation, with severe burning fever, with the sword, with scorching, and with mildew; they shall pursue you until you perish. 
 
 ###### 23 
 And your heavens which _are_ over your head shall be bronze, and the earth which is under you _shall be_ iron. 
@@ -82,7 +82,7 @@ And your heavens which _are_ over your head shall be bronze, and the earth which
 The Lord will change the rain of your land to powder and dust; from the heaven it shall come down on you until you are destroyed. 
 
 ###### 25 
-"The Lord will cause you to be defeated before your enemies; you shall go out one way against them and flee seven ways before them; and you shall become [^h]troublesome to all the kingdoms of the earth. 
+"The Lord will cause you to be defeated before your enemies; you shall go out one way against them and flee seven ways before them; and you shall become troublesome to all the kingdoms of the earth. 
 
 ###### 26 
 Your carcasses shall be food for all the birds of the air and the beasts of the earth, and no one shall frighten _them_ away. 
@@ -103,7 +103,7 @@ And you shall grope at noonday, as a blind man gropes in darkness; you shall not
 Your ox _shall be_ slaughtered before your eyes, but you shall not eat of it; your donkey _shall be_ violently taken away from before you, and shall not be restored to you; your sheep _shall be_ given to your enemies, and you shall have no one to rescue _them._ 
 
 ###### 32 
-Your sons and your daughters _shall be_ given to another people, and your eyes shall look and fail _with longing_ for them all day long; and _there shall be_ [^i]no strength in your hand. 
+Your sons and your daughters _shall be_ given to another people, and your eyes shall look and fail _with longing_ for them all day long; and _there shall be_ no strength in your hand. 
 
 ###### 33 
 A nation whom you have not known shall eat the fruit of your land and the produce of your labor, and you shall be only oppressed and crushed continually. 
@@ -118,10 +118,10 @@ The Lord will strike you in the knees and on the legs with severe boils which ca
 "The Lord will bring you and the king whom you set over you to a nation which neither you nor your fathers have known, and there you shall serve other gods--wood and stone. 
 
 ###### 37 
-And you shall become an[^j] astonishment, a proverb, and a byword among all nations where the Lord will drive you. 
+And you shall become an astonishment, a proverb, and a byword among all nations where the Lord will drive you. 
 
 ###### 38 
-"You shall carry much seed out to the field but gather little in, for the locust shall [^k]consume it. 
+"You shall carry much seed out to the field but gather little in, for the locust shall consume it. 
 
 ###### 39 
 You shall plant vineyards and tend _them,_ but you shall neither drink _of_ the wine nor gather the _grapes;_ for the worms shall eat them. 
@@ -133,7 +133,7 @@ You shall have olive trees throughout all your territory, but you shall not anoi
 You shall beget sons and daughters, but they shall not be yours; for they shall go into captivity. 
 
 ###### 42 
-Locusts shall [^l]consume all your trees and the produce of your land. 
+Locusts shall consume all your trees and the produce of your land. 
 
 ###### 43 
 "The alien who _is_ among you shall rise higher and higher above you, and you shall come down lower and lower. 
@@ -142,7 +142,7 @@ Locusts shall [^l]consume all your trees and the produce of your land.
 He shall lend to you, but you shall not lend to him; he shall be the head, and you shall be the tail. 
 
 ###### 45 
-"Moreover all these curses shall come upon you and pursue and overtake you, until you are destroyed, because you [^m]did not obey the voice of the Lord your God, to keep His commandments and His statutes which He commanded you. 
+"Moreover all these curses shall come upon you and pursue and overtake you, until you are destroyed, because you did not obey the voice of the Lord your God, to keep His commandments and His statutes which He commanded you. 
 
 ###### 46 
 And they shall be upon you for a sign and a wonder, and on your descendants forever. 
@@ -166,19 +166,19 @@ And they shall eat the increase of your livestock and the produce of your land, 
 "They shall besiege you at all your gates until your high and fortified walls, in which you trust, come down throughout all your land; and they shall besiege you at all your gates throughout all your land which the Lord your God has given you. 
 
 ###### 53 
-You shall eat the [^n]fruit of your own body, the flesh of your sons and your daughters whom the Lord your God has given you, in the siege and desperate straits in which your enemy shall distress you. 
+You shall eat the fruit of your own body, the flesh of your sons and your daughters whom the Lord your God has given you, in the siege and desperate straits in which your enemy shall distress you. 
 
 ###### 54 
-The [^o]sensitive and very refined man among you will[^p] be hostile toward his brother, toward the wife of his bosom, and toward the rest of his children whom he leaves behind, 
+The sensitive and very refined man among you will be hostile toward his brother, toward the wife of his bosom, and toward the rest of his children whom he leaves behind, 
 
 ###### 55 
 so that he will not give any of them the flesh of his children whom he will eat, because he has nothing left in the siege and desperate straits in which your enemy shall distress you at all your gates. 
 
 ###### 56 
-The [^q]tender and [^r]delicate woman among you, who would not venture to set the sole of her foot on the ground because of her delicateness and sensitivity, [^s]will refuse to the husband of her bosom, and to her son and her daughter, 
+The tender and delicate woman among you, who would not venture to set the sole of her foot on the ground because of her delicateness and sensitivity, will refuse to the husband of her bosom, and to her son and her daughter, 
 
 ###### 57 
-her [^t]placenta which comes out from between her feet and her children whom she bears; for she will eat them secretly for lack of everything in the siege and desperate straits in which your enemy shall distress you at all your gates. 
+her placenta which comes out from between her feet and her children whom she bears; for she will eat them secretly for lack of everything in the siege and desperate straits in which your enemy shall distress you at all your gates. 
 
 ###### 58 
 "If you do not carefully observe all the words of this law that are written in this book, that you may fear this glorious and awesome name, THE LORD YOUR GOD, 
@@ -196,13 +196,13 @@ Also every sickness and every plague, which _is_ not written in this Book of the
 You shall be left few in number, whereas you were as the stars of heaven in multitude, because you would not obey the voice of the Lord your God. 
 
 ###### 63 
-And it shall be, _that_ just as the Lord rejoiced over you to do you good and multiply you, so the Lord will rejoice over you to destroy you and bring you to nothing; and you shall be plucked[^u] from off the land which you go to possess. 
+And it shall be, _that_ just as the Lord rejoiced over you to do you good and multiply you, so the Lord will rejoice over you to destroy you and bring you to nothing; and you shall be plucked from off the land which you go to possess. 
 
 ###### 64 
 "Then the Lord will scatter you among all peoples, from one end of the earth to the other, and there you shall serve other gods, which neither you nor your fathers have known--wood and stone. 
 
 ###### 65 
-And among those nations you shall find no rest, nor shall the sole of your foot have a resting place; but there the Lord will give you a [^v]trembling heart, failing eyes, and anguish of soul. 
+And among those nations you shall find no rest, nor shall the sole of your foot have a resting place; but there the Lord will give you a trembling heart, failing eyes, and anguish of soul. 
 
 ###### 66 
 Your life shall hang in doubt before you; you shall fear day and night, and have no assurance of life. 

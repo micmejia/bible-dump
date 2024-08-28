@@ -13,13 +13,13 @@ next: ['Num 12']
 Now _when_ the people complained, it displeased the Lord; for the Lord heard _it,_ and His anger was aroused. So the fire of the Lord burned among them, and consumed _some_ in the outskirts of the camp. 
 
 ###### 2 
-Then the people cried out to Moses, and when Moses prayed to the Lord, the fire was [^a]quenched. 
+Then the people cried out to Moses, and when Moses prayed to the Lord, the fire was quenched. 
 
 ###### 3 
-So he called the name of the place [^b]Taberah, because the fire of the Lord had burned among them. 
+So he called the name of the place Taberah, because the fire of the Lord had burned among them. 
 
 ###### 4 
-Now the mixed multitude who were among them [^c]yielded to intense craving; so the children of Israel also wept again and said: "Who will give us meat to eat? 
+Now the mixed multitude who were among them yielded to intense craving; so the children of Israel also wept again and said: "Who will give us meat to eat? 
 
 ###### 5 
 We remember the fish which we ate freely in Egypt, the cucumbers, the melons, the leeks, the onions, and the garlic; 
@@ -40,10 +40,10 @@ And when the dew fell on the camp in the night, the manna fell on it.
 Then Moses heard the people weeping throughout their families, everyone at the door of his tent; and the anger of the Lord was greatly aroused; Moses also was displeased. 
 
 ###### 11 
-So Moses said to the Lord, "Why have You afflicted Your servant? And why have I not found favor in Your sight, that You have laid the [^d]burden of all these people on me? 
+So Moses said to the Lord, "Why have You afflicted Your servant? And why have I not found favor in Your sight, that You have laid the burden of all these people on me? 
 
 ###### 12 
-Did I conceive all these people? Did I beget them, that You should say to me, 'Carry them in your bosom, as a guardian carries a nursing child,' to the land which You swore[^e] to their fathers? 
+Did I conceive all these people? Did I beget them, that You should say to me, 'Carry them in your bosom, as a guardian carries a nursing child,' to the land which You swore to their fathers? 
 
 ###### 13 
 Where am I to get meat to give to all these people? For they weep all over me, saying, 'Give us meat, that we may eat.' 
@@ -61,7 +61,7 @@ So the Lord said to Moses: "Gather to Me seventy men of the elders of Israel, wh
 Then I will come down and talk with you there. I will take of the Spirit that _is_ upon you and will put _the same_ upon them; and they shall bear the burden of the people with you, that you may not bear _it_ yourself alone. 
 
 ###### 18 
-Then you shall say to the people, [^f]'Consecrate yourselves for tomorrow, and you shall eat meat; for you have wept in the hearing of the Lord, saying, "Who will give us meat to eat? For _it was_ well with us in Egypt." Therefore the Lord will give you meat, and you shall eat. 
+Then you shall say to the people, 'Consecrate yourselves for tomorrow, and you shall eat meat; for you have wept in the hearing of the Lord, saying, "Who will give us meat to eat? For _it was_ well with us in Egypt." Therefore the Lord will give you meat, and you shall eat. 
 
 ###### 19 
 You shall eat, not one day, nor two days, nor five days, nor ten days, nor twenty days, 
@@ -76,13 +76,13 @@ And Moses said, "The people whom I _am_ among _are_ six hundred thousand men on 
 Shall flocks and herds be slaughtered for them, to provide enough for them? Or shall all the fish of the sea be gathered together for them, to provide enough for them?" 
 
 ###### 23 
-And the Lord said to Moses, "Has[^g] the Lord's arm been shortened? Now you shall see whether what I say will happen to you or not." 
+And the Lord said to Moses, "Has the Lord's arm been shortened? Now you shall see whether what I say will happen to you or not." 
 
 ###### 24 
 So Moses went out and told the people the words of the Lord, and he gathered the seventy men of the elders of the people and placed them around the tabernacle. 
 
 ###### 25 
-Then the Lord came down in the cloud, and spoke to him, and took of the Spirit that _was_ upon him, and placed _the same_ upon the seventy elders; and it happened, when the Spirit rested upon them, that they prophesied, [^h]although they never did _so_ again. 
+Then the Lord came down in the cloud, and spoke to him, and took of the Spirit that _was_ upon him, and placed _the same_ upon the seventy elders; and it happened, when the Spirit rested upon them, that they prophesied, although they never did _so_ again. 
 
 ###### 26 
 But two men had remained in the camp: the name of one _was_ Eldad, and the name of the other Medad. And the Spirit rested upon them. Now they _were_ among those listed, but who had not gone out to the tabernacle; yet they prophesied in the camp. 
@@ -94,7 +94,7 @@ And a young man ran and told Moses, and said, "Eldad and Medad are prophesying i
 So Joshua the son of Nun, Moses' assistant, _one_ of his choice men, answered and said, "Moses my lord, forbid them!" 
 
 ###### 29 
-Then Moses said to him, "Are you [^i]zealous for my sake? Oh, that all the Lord's people were prophets _and_ that the Lord would put His Spirit upon them!" 
+Then Moses said to him, "Are you zealous for my sake? Oh, that all the Lord's people were prophets _and_ that the Lord would put His Spirit upon them!" 
 
 ###### 30 
 And Moses returned to the camp, he and the elders of Israel. ## The Lord Sends Quail 
@@ -109,7 +109,7 @@ And the people stayed up all that day, all night, and all the next day, and gath
 But while the meat _was_ still between their teeth, before it was chewed, the wrath of the Lord was aroused against the people, and the Lord struck the people with a very great plague. 
 
 ###### 34 
-So he called the name of that place [^j]Kibroth Hattaavah, because there they buried the people who had yielded to craving. 
+So he called the name of that place Kibroth Hattaavah, because there they buried the people who had yielded to craving. 
 
 ###### 35 
 From Kibroth Hattaavah the people moved to Hazeroth, and camped at Hazeroth.

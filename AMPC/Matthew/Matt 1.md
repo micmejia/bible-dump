@@ -447,7 +447,7 @@ But as he was thinking this over, behold, an angel of the Lord appeared to him i
 
 
 
-She will bear a Son, and you shall call His name Jesus [the Greek form of the Hebrew Joshua, which means Savior], for He will save His people from their sins [that is, prevent them from [^a]failing and missing the true end and scope of life, which is God]. 
+She will bear a Son, and you shall call His name Jesus [the Greek form of the Hebrew Joshua, which means Savior], for He will save His people from their sins [that is, prevent them from failing and missing the true end and scope of life, which is God]. 
 
 
 

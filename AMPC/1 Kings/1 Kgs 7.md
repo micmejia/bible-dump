@@ -28,7 +28,7 @@ next: ['1 Kgs 8']
 
 
 
-Solomon was building his own house [^a]thirteen years, and he finished all of it. 
+Solomon was building his own house thirteen years, and he finished all of it. 
 
 
 

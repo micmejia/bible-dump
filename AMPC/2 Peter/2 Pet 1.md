@@ -48,7 +48,7 @@ Simon Peter, a servant and apostle (special messenger) of Jesus Christ, to those
 
 
 
-May grace (God's favor) and peace (which is [^a]perfect well-being, all necessary good, all spiritual prosperity, and [^b]freedom from fears and agitating passions and moral conflicts) be multiplied to you in [the full, personal, [^c]precise, and correct] knowledge of God and of Jesus our Lord. 
+May grace (God's favor) and peace (which is perfect well-being, all necessary good, all spiritual prosperity, and freedom from fears and agitating passions and moral conflicts) be multiplied to you in [the full, personal, precise, and correct] knowledge of God and of Jesus our Lord. 
 
 
 
@@ -69,7 +69,7 @@ May grace (God's favor) and peace (which is [^a]perfect well-being, all necessar
 
 
 
-For His divine power has bestowed upon us all things that [are requisite and suited] to life and godliness, through the [[^d]full, personal] knowledge of Him Who called us by _and_ to His own glory and excellence (virtue). 
+For His divine power has bestowed upon us all things that [are requisite and suited] to life and godliness, through the [full, personal] knowledge of Him Who called us by _and_ to His own glory and excellence (virtue). 
 
 
 
@@ -111,7 +111,7 @@ By means of these He has bestowed on us His precious and exceedingly great promi
 
 
 
-For this very reason, [^e]adding your diligence [to the divine promises], employ every effort in [^f]exercising your faith to develop virtue (excellence, resolution, Christian energy), and in [exercising] virtue [develop] knowledge (intelligence), 
+For this very reason, adding your diligence [to the divine promises], employ every effort in exercising your faith to develop virtue (excellence, resolution, Christian energy), and in [exercising] virtue [develop] knowledge (intelligence), 
 
 
 
@@ -174,7 +174,7 @@ And in [exercising] godliness [develop] brotherly affection, and in [exercising]
 
 
 
-For as these qualities are yours and increasingly abound in you, they will keep [you] from being idle or unfruitful unto the [[^g]full personal] knowledge of our Lord Jesus Christ (the Messiah, the Anointed One). 
+For as these qualities are yours and increasingly abound in you, they will keep [you] from being idle or unfruitful unto the [full personal] knowledge of our Lord Jesus Christ (the Messiah, the Anointed One). 
 
 
 
@@ -195,7 +195,7 @@ For as these qualities are yours and increasingly abound in you, they will keep 
 
 
 
-For whoever lacks these qualities is blind, [[^h]spiritually] shortsighted, [^i]seeing only what is near to him, and has become oblivious [to the fact] that he was cleansed from his old sins. 
+For whoever lacks these qualities is blind, [spiritually] shortsighted, seeing only what is near to him, and has become oblivious [to the fact] that he was cleansed from his old sins. 
 
 
 
@@ -405,7 +405,7 @@ We [actually] heard this voice borne out of heaven, for we were together with Hi
 
 
 
-And we have the prophetic word [made] firmer still. You will do well to pay close attention to it as to a lamp shining in a dismal (squalid and dark) place, until the day breaks through [the gloom] and the Morning Star rises ([^j]comes into being) in your hearts. 
+And we have the prophetic word [made] firmer still. You will do well to pay close attention to it as to a lamp shining in a dismal (squalid and dark) place, until the day breaks through [the gloom] and the Morning Star rises (comes into being) in your hearts. 
 
 
 

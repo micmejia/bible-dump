@@ -28,7 +28,7 @@ next: ['Isa 55']
 
 
 
-[^a]Sing, O barren one, you who did not bear; break forth into singing and cry aloud, you who did not travail with child! For the [spiritual] children of the desolate one will be more than the children of the married wife, says the Lord. 
+Sing, O barren one, you who did not bear; break forth into singing and cry aloud, you who did not travail with child! For the [spiritual] children of the desolate one will be more than the children of the married wife, says the Lord. 
 
 
 

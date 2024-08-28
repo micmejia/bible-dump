@@ -666,7 +666,7 @@ Inilatag niya ang Tolda at pinatungan niya ng pantaklob. <i class="trans-change"
 
 
 
-Pagkatapos, ipinasok niya sa Kahon ang malalapad na batong sinulatan ng mga utos ng Dios, at isinuksok niya sa argolya[^a] ng Kahon ang mga tukod na pambuhat, at tinakpan ito. 
+Pagkatapos, ipinasok niya sa Kahon ang malalapad na batong sinulatan ng mga utos ng Dios, at isinuksok niya sa argolya ng Kahon ang mga tukod na pambuhat, at tinakpan ito. 
 
 
 
@@ -1128,7 +1128,7 @@ Pagkatapos, inilagay ni Moises ang mga kurtina ng bakuran, na nakapaligid sa Tol
 
 
 
-Pagkatapos ng lahat ng ito, binalot ang Toldang Tipanan[^b] ng makapangyarihang presensya ng Panginoon na nasa anyo ng isang ulap. 
+Pagkatapos ng lahat ng ito, binalot ang Toldang Tipanan ng makapangyarihang presensya ng Panginoon na nasa anyo ng isang ulap. 
 
 
 

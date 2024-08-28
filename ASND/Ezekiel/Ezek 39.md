@@ -370,7 +370,7 @@ Hindi na nila kailangang mangahoy pa sa mga parang o kagubatan dahil may mga san
 
 
 
-"Sa panahong iyon, ililibing ko si Gog at ang napakarami niyang tauhan doon sa Israel, sa lambak ng mga manlalakbay, sa gawing silangan ng Dagat <i class="trans-change">na Patay_. <i class="trans-change">Napakalawak_ ng libingang iyon. Kaya hindi na makakadaan doon ang mga naglalakbay. At tatawagin itong Lambak ng Hukbo ni Gog.[^a] 
+"Sa panahong iyon, ililibing ko si Gog at ang napakarami niyang tauhan doon sa Israel, sa lambak ng mga manlalakbay, sa gawing silangan ng Dagat <i class="trans-change">na Patay_. <i class="trans-change">Napakalawak_ ng libingang iyon. Kaya hindi na makakadaan doon ang mga naglalakbay. At tatawagin itong Lambak ng Hukbo ni Gog. 
 
 
 
@@ -766,7 +766,7 @@ Ginawa ko lang sa kanila ang nararapat, ayon sa ginawa nilang kasamaan at kahala
 
 
 
-Sinabi pa ng Panginoong Dios, "Kahahabagan ko na ang mga mamamayan ng Israel, <i class="trans-change">ang lahi ni_ Jacob. Muli ko silang pauunlarin,[^b] para maparangalan ang banal kong pangalan. 
+Sinabi pa ng Panginoong Dios, "Kahahabagan ko na ang mga mamamayan ng Israel, <i class="trans-change">ang lahi ni_ Jacob. Muli ko silang pauunlarin, para maparangalan ang banal kong pangalan. 
 
 
 

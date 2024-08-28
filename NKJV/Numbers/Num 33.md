@@ -31,7 +31,7 @@ They departed from Succoth and camped at Etham, which _is_ on the edge of the wi
 They moved from Etham and turned back to Pi Hahiroth, which _is_ east of Baal Zephon; and they camped near Migdol. 
 
 ###### 8 
-They departed [^a]from before Hahiroth and passed through the midst of the sea into the wilderness, went three days' journey in the Wilderness of Etham, and camped at Marah. 
+They departed from before Hahiroth and passed through the midst of the sea into the wilderness, went three days' journey in the Wilderness of Etham, and camped at Marah. 
 
 ###### 9 
 They moved from Marah and came to Elim. At Elim _were_ twelve springs of water and seventy palm trees; so they camped there. 
@@ -55,7 +55,7 @@ They moved from Alush and camped at Rephidim, where there was no water for the p
 They departed from Rephidim and camped in the Wilderness of Sinai. 
 
 ###### 16 
-They moved from the Wilderness of Sinai and camped at [^b]Kibroth Hattaavah. 
+They moved from the Wilderness of Sinai and camped at Kibroth Hattaavah. 
 
 ###### 17 
 They departed from Kibroth Hattaavah and camped at Hazeroth. 
@@ -142,7 +142,7 @@ They departed from Punon and camped at Oboth.
 They departed from Oboth and camped at Ije Abarim, at the border of Moab. 
 
 ###### 45 
-They departed from [^c]Ijim and camped at Dibon Gad. 
+They departed from Ijim and camped at Dibon Gad. 
 
 ###### 46 
 They moved from Dibon Gad and camped at Almon Diblathaim. 
@@ -154,7 +154,7 @@ They moved from Almon Diblathaim and camped in the mountains of Abarim, before N
 They departed from the mountains of Abarim and camped in the plains of Moab by the Jordan, _across from_ Jericho. 
 
 ###### 49 
-They camped by the Jordan, from Beth Jesimoth as far as the Abel Acacia Grove[^d] in the plains of Moab. ## Instructions for the Conquest of Canaan 
+They camped by the Jordan, from Beth Jesimoth as far as the Abel Acacia Grove in the plains of Moab. ## Instructions for the Conquest of Canaan 
 
 ###### 50 
 Now the Lord spoke to Moses in the plains of Moab by the Jordan, _across from_ Jericho, saying, 
@@ -163,7 +163,7 @@ Now the Lord spoke to Moses in the plains of Moab by the Jordan, _across from_ J
 "Speak to the children of Israel, and say to them: 'When you have crossed the Jordan into the land of Canaan, 
 
 ###### 52 
-then you shall drive out all the inhabitants of the land from before you, destroy all their engraved stones, destroy all their molded images, and demolish all their [^e]high places; 
+then you shall drive out all the inhabitants of the land from before you, destroy all their engraved stones, destroy all their molded images, and demolish all their high places; 
 
 ###### 53 
 you shall dispossess _the inhabitants of_ the land and dwell in it, for I have given you the land to possess. 

@@ -13,7 +13,7 @@ next: ['1 Kgs 8']
 But Solomon took thirteen years to build his own house; so he finished all his house. 
 
 ###### 2 
-He also built the House of the Forest of Lebanon; its length _was_ [^a]one hundred cubits, its width [^b]fifty cubits, and its height thirty cubits, with four rows of cedar pillars, and cedar beams on the pillars. 
+He also built the House of the Forest of Lebanon; its length _was_ one hundred cubits, its width fifty cubits, and its height thirty cubits, with four rows of cedar pillars, and cedar beams on the pillars. 
 
 ###### 3 
 And _it was_ paneled with cedar above the beams that _were_ on forty-five pillars, fifteen _to_ a row. 
@@ -28,7 +28,7 @@ And all the doorways and doorposts _had_ rectangular frames; and window _was_ op
 He also made the Hall of Pillars: its length _was_ fifty cubits, and its width thirty cubits; and in front of them _was_ a portico with pillars, and a canopy _was_ in front of them. 
 
 ###### 7 
-Then he made a hall for the throne, the Hall of Judgment, where he might judge; and _it was_ paneled with cedar from floor to [^c]ceiling. 
+Then he made a hall for the throne, the Hall of Judgment, where he might judge; and _it was_ paneled with cedar from floor to ceiling. 
 
 ###### 8 
 And the house where he dwelt _had_ another court inside the hall, of like workmanship. Solomon also made a house like this hall for Pharaoh's daughter, whom he had taken _as wife._ 
@@ -46,13 +46,13 @@ And above _were_ costly stones, hewn to size, and cedar wood.
 The great court _was_ enclosed with three rows of hewn stones and a row of cedar beams. So were the inner court of the house of the Lord and the vestibule of the temple. ## Hiram the Craftsman 
 
 ###### 13 
-Now King Solomon sent and brought [^d]Huram from Tyre. 
+Now King Solomon sent and brought Huram from Tyre. 
 
 ###### 14 
 He _was_ the son of a widow from the tribe of Naphtali, and his father _was_ a man of Tyre, a bronze worker; he was filled with wisdom and understanding and skill in working with all kinds of bronze work. So he came to King Solomon and did all his work. ## The Bronze Pillars for the Temple 
 
 ###### 15 
-And he [^e]cast two pillars of bronze, each one eighteen cubits high, and a line of twelve cubits measured the circumference of each. 
+And he cast two pillars of bronze, each one eighteen cubits high, and a line of twelve cubits measured the circumference of each. 
 
 ###### 16 
 Then he made two capitals _of_ cast bronze, to set on the tops of the pillars. The height of one capital _was_ five cubits, and the height of the other capital _was_ five cubits. 
@@ -70,7 +70,7 @@ The capitals which _were_ on top of the pillars in the hall _were_ in the shape 
 The capitals on the two pillars also _had pomegranates_ above, by the convex surface which _was_ next to the network; and there _were_ two hundred such pomegranates in rows on each of the capitals all around. 
 
 ###### 21 
-Then he set up the pillars by the vestibule of the temple; he set up the pillar on the right and called its name [^f]Jachin, and he set up the pillar on the left and called its name [^g]Boaz. 
+Then he set up the pillars by the vestibule of the temple; he set up the pillar on the right and called its name Jachin, and he set up the pillar on the left and called its name Boaz. 
 
 ###### 22 
 The tops of the pillars were in the shape of lilies. So the work of the pillars was finished. ## The Sea and the Oxen 
@@ -85,10 +85,10 @@ Below its brim _were_ ornamental buds encircling it all around, ten to a cubit, 
 It stood on twelve oxen: three looking toward the north, three looking toward the west, three looking toward the south, and three looking toward the east; the Sea _was set_ upon them, and all their back parts _pointed_ inward. 
 
 ###### 26 
-It _was_ a handbreadth thick; and its brim was shaped like the brim of a cup, _like_ a lily blossom. It contained [^h]two thousand baths. ## The Carts and the Lavers 
+It _was_ a handbreadth thick; and its brim was shaped like the brim of a cup, _like_ a lily blossom. It contained two thousand baths. ## The Carts and the Lavers 
 
 ###### 27 
-He also made ten [^i]carts of bronze; four cubits _was_ the length of each cart, four cubits its width, and three cubits its height. 
+He also made ten carts of bronze; four cubits _was_ the length of each cart, four cubits its width, and three cubits its height. 
 
 ###### 28 
 And this _was_ the design of the carts: They had panels, and the panels _were_ between frames; 
@@ -118,16 +118,16 @@ On the top of the cart, at the height of half a cubit, _it was_ perfectly round.
 On the plates of its flanges and on its panels he engraved cherubim, lions, and palm trees, wherever there was a clear space on each, with wreaths all around. 
 
 ###### 37 
-Thus he made the ten carts. All of them were of [^j]the same mold, one measure, _and_ one shape. 
+Thus he made the ten carts. All of them were of the same mold, one measure, _and_ one shape. 
 
 ###### 38 
-Then he made ten lavers of bronze; each laver contained [^k]forty baths, _and_ each laver _was_ four cubits. On each of the ten carts _was_ a laver. 
+Then he made ten lavers of bronze; each laver contained forty baths, _and_ each laver _was_ four cubits. On each of the ten carts _was_ a laver. 
 
 ###### 39 
 And he put five carts on the right side of the house, and five on the left side of the house. He set the Sea on the right side of the house, toward the southeast. ## Furnishings of the Temple 
 
 ###### 40 
-Huram[^l] made the lavers and the shovels and the bowls. So Huram finished doing all the work that he was to do for King Solomon _for_ the house of the Lord: 
+Huram made the lavers and the shovels and the bowls. So Huram finished doing all the work that he was to do for King Solomon _for_ the house of the Lord: 
 
 ###### 41 
 the two pillars, the _two_ bowl-shaped capitals that _were_ on top of the two pillars; the two networks covering the two bowl-shaped capitals which _were_ on top of the pillars; 
@@ -142,7 +142,7 @@ the ten carts, and ten lavers on the carts;
 one Sea, and twelve oxen under the Sea; 
 
 ###### 45 
-the pots, the shovels, and the bowls. All these articles which [^m]Huram made for King Solomon _for_ the house of the Lord _were of_ burnished bronze. 
+the pots, the shovels, and the bowls. All these articles which Huram made for King Solomon _for_ the house of the Lord _were of_ burnished bronze. 
 
 ###### 46 
 In the plain of Jordan the king had them cast in clay molds, between Succoth and Zaretan. 
@@ -157,7 +157,7 @@ Thus Solomon had all the furnishings made for the house of the Lord: the altar o
 the lampstands of pure gold, five on the right _side_ and five on the left in front of the inner sanctuary, with the flowers and the lamps and the wick-trimmers of gold; 
 
 ###### 50 
-the basins, the trimmers, the bowls, the ladles, and the [^n]censers of pure gold; and the hinges of gold, _both_ for the doors of the inner room (the Most Holy _Place_) _and_ for the doors of the main hall of the temple. 
+the basins, the trimmers, the bowls, the ladles, and the censers of pure gold; and the hinges of gold, _both_ for the doors of the inner room (the Most Holy _Place_) _and_ for the doors of the main hall of the temple. 
 
 ###### 51 
 So all the work that King Solomon had done for the house of the Lord was finished; and Solomon brought in the things which his father David had dedicated: the silver and the gold and the furnishings. He put them in the treasuries of the house of the Lord.

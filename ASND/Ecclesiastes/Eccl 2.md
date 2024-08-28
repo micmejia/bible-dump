@@ -271,7 +271,7 @@ Bumili ako ng mga lalaki at babaeng alipin, at may mga alipin din ako na ipinang
 
 
 
-Nakaipon ako ng napakaraming ginto, pilak at iba pang mga kayamanang galing sa mga hari at mga lugar na aking nasasakupan. Marami akong mang-aawit, lalaki man o babae at marami rin akong mga asawa[^a] – ang kaligayahan ng isang lalaki. 
+Nakaipon ako ng napakaraming ginto, pilak at iba pang mga kayamanang galing sa mga hari at mga lugar na aking nasasakupan. Marami akong mang-aawit, lalaki man o babae at marami rin akong mga asawa – ang kaligayahan ng isang lalaki. 
 
 
 

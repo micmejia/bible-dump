@@ -403,7 +403,7 @@ na ibinigay nʼyo sa amin sa pamamagitan ng mga propetang lingkod ninyo. Sinabi 
 
 
 
-Sinabi rin sa amin ng mga propeta na huwag kaming magsisipag-asawa sa kanila, at huwag kaming tutulong na umunlad sila, para maging matibay at maunlad kami,[^a] at para manatili ang pag-unlad na ito sa mga lahi namin magpakailanman. 
+Sinabi rin sa amin ng mga propeta na huwag kaming magsisipag-asawa sa kanila, at huwag kaming tutulong na umunlad sila, para maging matibay at maunlad kami, at para manatili ang pag-unlad na ito sa mga lahi namin magpakailanman. 
 
 
 

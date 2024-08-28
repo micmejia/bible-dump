@@ -33,10 +33,10 @@ And Adoni-Bezek said, "Seventy kings with their thumbs and big toes cut off used
 Now the children of Judah fought against Jerusalem and took it; they struck it with the edge of the sword and set the city on fire. 
 
 ###### 9 
-And afterward the children of Judah went down to fight against the Canaanites who dwelt in the mountains, in the [^a]South, and in the lowland. 
+And afterward the children of Judah went down to fight against the Canaanites who dwelt in the mountains, in the South, and in the lowland. 
 
 ###### 10 
-Then Judah [^b]went against the Canaanites who dwelt in Hebron. (Now the name of Hebron _was_ formerly Kirjath Arba.) And they killed Sheshai, Ahiman, and Talmai. 
+Then Judah went against the Canaanites who dwelt in Hebron. (Now the name of Hebron _was_ formerly Kirjath Arba.) And they killed Sheshai, Ahiman, and Talmai. 
 
 ###### 11 
 From there they went against the inhabitants of Debir. (The name of Debir _was_ formerly Kirjath Sepher.) 
@@ -48,7 +48,7 @@ Then Caleb said, "Whoever attacks Kirjath Sepher and takes it, to him I will giv
 And Othniel the son of Kenaz, Caleb's younger brother, took it; so he gave him his daughter Achsah as wife. 
 
 ###### 14 
-Now it happened, when she came _to him,_ that [^c]she urged him to ask her father for a field. And she dismounted from _her_ donkey, and Caleb said to her, "What do you wish?" 
+Now it happened, when she came _to him,_ that she urged him to ask her father for a field. And she dismounted from _her_ donkey, and Caleb said to her, "What do you wish?" 
 
 ###### 15 
 So she said to him, "Give me a blessing; since you have given me land in the South, give me also springs of water." And Caleb gave her the upper springs and the lower springs. 
@@ -66,16 +66,16 @@ Also Judah took Gaza with its territory, Ashkelon with its territory, and Ekron 
 So the Lord was with Judah. And they drove out the mountaineers, but they could not drive out the inhabitants of the lowland, because they had chariots of iron. 
 
 ###### 20 
-And they gave Hebron to Caleb, as Moses had said. Then he [^d]expelled from there the three sons of Anak. 
+And they gave Hebron to Caleb, as Moses had said. Then he expelled from there the three sons of Anak. 
 
 ###### 21 
 But the children of Benjamin did not drive out the Jebusites who inhabited Jerusalem; so the Jebusites dwell with the children of Benjamin in Jerusalem to this day. 
 
 ###### 22 
-And the [^e]house of Joseph also went up against Bethel, and the Lord _was_ with them. 
+And the house of Joseph also went up against Bethel, and the Lord _was_ with them. 
 
 ###### 23 
-So the [^f]house of Joseph sent men to spy out Bethel. (The name of the city _was_ formerly Luz.) 
+So the house of Joseph sent men to spy out Bethel. (The name of the city _was_ formerly Luz.) 
 
 ###### 24 
 And when the spies saw a man coming out of the city, they said to him, "Please show us the entrance to the city, and we will show you mercy." 
@@ -90,13 +90,13 @@ And the man went to the land of the Hittites, built a city, and called its name 
 However, Manasseh did not drive out _the inhabitants of_ Beth Shean and its villages, or Taanach and its villages, or the inhabitants of Dor and its villages, or the inhabitants of Ibleam and its villages, or the inhabitants of Megiddo and its villages; for the Canaanites were determined to dwell in that land. 
 
 ###### 28 
-And it came to pass, when Israel was strong, that they put the Canaanites [^g]under tribute, but did not completely drive them out. 
+And it came to pass, when Israel was strong, that they put the Canaanites under tribute, but did not completely drive them out. 
 
 ###### 29 
 Nor did Ephraim drive out the Canaanites who dwelt in Gezer; so the Canaanites dwelt in Gezer among them. 
 
 ###### 30 
-Nor did Zebulun drive out the inhabitants of Kitron or the inhabitants of Nahalol; so the Canaanites dwelt among them, and [^h]were put under tribute. 
+Nor did Zebulun drive out the inhabitants of Kitron or the inhabitants of Nahalol; so the Canaanites dwelt among them, and were put under tribute. 
 
 ###### 31 
 Nor did Asher drive out the inhabitants of Acco or the inhabitants of Sidon, or of Ahlab, Achzib, Helbah, Aphik, or Rehob. 
@@ -111,7 +111,7 @@ Nor did Naphtali drive out the inhabitants of Beth Shemesh or the inhabitants of
 And the Amorites forced the children of Dan into the mountains, for they would not allow them to come down to the valley; 
 
 ###### 35 
-and the Amorites were determined to dwell in Mount Heres, in Aijalon, and in [^i]Shaalbim; yet when the strength of the house of Joseph became greater, they [^j]were put under tribute. 
+and the Amorites were determined to dwell in Mount Heres, in Aijalon, and in Shaalbim; yet when the strength of the house of Joseph became greater, they were put under tribute. 
 
 ###### 36 
 Now the boundary of the Amorites _was_ from the Ascent of Akrabbim, from Sela, and upward.

@@ -22,7 +22,7 @@ of the sons of Shecaniah, of the sons of Parosh, Zechariah; and registered with 
 of the sons of Pahath-Moab, Eliehoenai the son of Zerahiah, and with him two hundred males; 
 
 ###### 5 
-of [^a]the sons of Shechaniah, Ben-Jahaziel, and with him three hundred males; 
+of the sons of Shechaniah, Ben-Jahaziel, and with him three hundred males; 
 
 ###### 6 
 of the sons of Adin, Ebed the son of Jonathan, and with him fifty males; 
@@ -37,19 +37,19 @@ of the sons of Shephatiah, Zebadiah the son of Michael, and with him eighty male
 of the sons of Joab, Obadiah the son of Jehiel, and with him two hundred and eighteen males; 
 
 ###### 10 
-of [^b]the sons of Shelomith, Ben-Josiphiah, and with him one hundred and sixty males; 
+of the sons of Shelomith, Ben-Josiphiah, and with him one hundred and sixty males; 
 
 ###### 11 
 of the sons of Bebai, Zechariah the son of Bebai, and with him twenty-eight males; 
 
 ###### 12 
-of the sons of Azgad, Johanan [^c]the son of Hakkatan, and with him one hundred and ten males; 
+of the sons of Azgad, Johanan the son of Hakkatan, and with him one hundred and ten males; 
 
 ###### 13 
 of the last sons of Adonikam, whose names _are_ these--Eliphelet, Jeiel, and Shemaiah--and with them sixty males; 
 
 ###### 14 
-also of the sons of Bigvai, Uthai and [^d]Zabbud, and with them seventy males. ## Servants for the Temple 
+also of the sons of Bigvai, Uthai and Zabbud, and with them seventy males. ## Servants for the Temple 
 
 ###### 15 
 Now I gathered them by the river that flows to Ahava, and we camped there three days. And I looked among the people and the priests, and found none of the sons of Levi there. 
@@ -58,7 +58,7 @@ Now I gathered them by the river that flows to Ahava, and we camped there three 
 Then I sent for Eliezer, Ariel, Shemaiah, Elnathan, Jarib, Elnathan, Nathan, Zechariah, and Meshullam, leaders; also for Joiarib and Elnathan, men of understanding. 
 
 ###### 17 
-And I gave them a command for Iddo the chief man at the place Casiphia, and [^e]I told them what they should say to [^f]Iddo _and_ his brethren the Nethinim at the place Casiphia--that they should bring us servants for the house of our God. 
+And I gave them a command for Iddo the chief man at the place Casiphia, and I told them what they should say to Iddo _and_ his brethren the Nethinim at the place Casiphia--that they should bring us servants for the house of our God. 
 
 ###### 18 
 Then, by the good hand of our God upon us, they brought us a man of understanding, of the sons of Mahli the son of Levi, the son of Israel, namely Sherebiah, with his sons and brothers, eighteen men; 
@@ -91,7 +91,7 @@ I weighed into their hand six hundred and fifty talents of silver, silver articl
 twenty gold basins _worth_ a thousand drachmas, and two vessels of fine polished bronze, precious as gold. 
 
 ###### 28 
-And I said to them, "You _are_ holy[^g] to the Lord; the articles _are_ holy also; and the silver and the gold _are_ a freewill offering to the Lord God of your fathers. 
+And I said to them, "You _are_ holy to the Lord; the articles _are_ holy also; and the silver and the gold _are_ a freewill offering to the Lord God of your fathers. 
 
 ###### 29 
 Watch and keep _them_ until you weigh _them_ before the leaders of the priests and the Levites and heads of the fathers' _houses_ of Israel in Jerusalem, _in_ the chambers of the house of the Lord." 
@@ -115,4 +115,4 @@ with the number _and_ weight of everything. All the weight was written down at t
 The children of those who had been carried away captive, who had come from the captivity, offered burnt offerings to the God of Israel: twelve bulls for all Israel, ninety-six rams, seventy-seven lambs, and twelve male goats _as_ a sin offering. All _this was_ a burnt offering to the Lord. 
 
 ###### 36 
-And they delivered the king's orders to the king's satraps and the governors _in the region_ beyond [^h]the River. So they gave support to the people and the [^i]house of God.
+And they delivered the king's orders to the king's satraps and the governors _in the region_ beyond the River. So they gave support to the people and the house of God.

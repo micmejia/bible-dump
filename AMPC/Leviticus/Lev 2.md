@@ -259,7 +259,7 @@ No cereal offering that you bring to the Lord shall be made with leaven, for you
 
 
 
-As an offering of firstfruits you may offer leaven and honey to the Lord, but [^a]they shall not be burned on the altar for a sweet odor [to the Lord, for their aid to fermentation is symbolic of corruption in the human heart]. 
+As an offering of firstfruits you may offer leaven and honey to the Lord, but they shall not be burned on the altar for a sweet odor [to the Lord, for their aid to fermentation is symbolic of corruption in the human heart]. 
 
 
 

@@ -16,10 +16,10 @@ Behold, the Lord's hand is not shortened, That it cannot save; Nor His ear heavy
 But your iniquities have separated you from your God; And your sins have hidden _His_ face from you, So that He will not hear. 
 
 ###### 3 
-For your hands are defiled with [^a]blood, And your fingers with iniquity; Your lips have spoken lies, Your tongue has muttered perversity. 
+For your hands are defiled with blood, And your fingers with iniquity; Your lips have spoken lies, Your tongue has muttered perversity. 
 
 ###### 4 
-No one calls for justice, Nor does _any_ plead for truth. They trust in empty words and speak lies; They conceive [^b]evil and bring forth iniquity. 
+No one calls for justice, Nor does _any_ plead for truth. They trust in empty words and speak lies; They conceive evil and bring forth iniquity. 
 
 ###### 5 
 They hatch vipers' eggs and weave the spider's web; He who eats of their eggs dies, And _from_ that which is crushed a viper breaks out. 
@@ -52,7 +52,7 @@ In transgressing and lying against the Lord, And departing from our God, Speakin
 Justice is turned back, And righteousness stands afar off; For truth is fallen in the street, And equity cannot enter. 
 
 ###### 15 
-So truth fails, And he _who_ departs from evil makes himself a prey. ## The Redeemer of Zion Then the Lord saw _it,_ and [^c]it displeased Him That _there was_ no justice. 
+So truth fails, And he _who_ departs from evil makes himself a prey. ## The Redeemer of Zion Then the Lord saw _it,_ and it displeased Him That _there was_ no justice. 
 
 ###### 16 
 He saw that _there was_ no man, And wondered that _there was_ no intercessor; Therefore His own arm brought salvation for Him; And His own righteousness, it sustained Him. 

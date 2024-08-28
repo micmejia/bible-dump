@@ -91,7 +91,7 @@ Bid the older women similarly to be reverent _and_ devout in their deportment as
 
 
 
-So that they will wisely train the young women to be [^a]sane and sober of mind (temperate, disciplined) and to love their husbands and their children, 
+So that they will wisely train the young women to be sane and sober of mind (temperate, disciplined) and to love their husbands and their children, 
 
 
 
@@ -175,7 +175,7 @@ And show your own self in all respects to be a pattern _and_ a model of good dee
 
 
 
-And let your instruction be sound _and_ fit _and_ wise _and_ wholesome, vigorous _and_ [^b]irrefutable _and_ above censure, so that the opponent may be put to shame, finding nothing discrediting _or_ evil to say about us. 
+And let your instruction be sound _and_ fit _and_ wise _and_ wholesome, vigorous _and_ irrefutable _and_ above censure, so that the opponent may be put to shame, finding nothing discrediting _or_ evil to say about us. 
 
 
 

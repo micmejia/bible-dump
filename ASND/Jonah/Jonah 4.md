@@ -369,4 +369,4 @@ Sinabi sa kanya ng Panginoon, "Nanghinayang ka nga sa halamang iyon na tumubo sa
 
 
 
-Ako pa kaya ang hindi manghinayang sa malaking lungsod ng Nineve na may mahigit 120,000 tao na walang alam tungkol sa aking mga kautusan[^a] at marami ring mga hayop?"
+Ako pa kaya ang hindi manghinayang sa malaking lungsod ng Nineve na may mahigit 120,000 tao na walang alam tungkol sa aking mga kautusan at marami ring mga hayop?"

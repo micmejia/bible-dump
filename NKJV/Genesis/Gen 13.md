@@ -10,7 +10,7 @@ next: ['Gen 14']
 
 
 ###### 1 
-Then Abram went up from Egypt, he and his wife and all that he had, and Lot with him, to the [^a]South. 
+Then Abram went up from Egypt, he and his wife and all that he had, and Lot with him, to the South. 
 
 ###### 2 
 Abram _was_ very rich in livestock, in silver, and in gold. 
@@ -25,7 +25,7 @@ to the place of the altar which he had made there at first. And there Abram call
 Lot also, who went with Abram, had flocks and herds and tents. 
 
 ###### 6 
-Now the land was not able to [^b]support them, that they might dwell together, for their possessions were so great that they could not dwell together. 
+Now the land was not able to support them, that they might dwell together, for their possessions were so great that they could not dwell together. 
 
 ###### 7 
 And there was strife between the herdsmen of Abram's livestock and the herdsmen of Lot's livestock. The Canaanites and the Perizzites then dwelt in the land. 
@@ -52,7 +52,7 @@ But the men of Sodom _were_ exceedingly wicked and sinful against the Lord.
 And the Lord said to Abram, after Lot had separated from him: "Lift your eyes now and look from the place where you are--northward, southward, eastward, and westward; 
 
 ###### 15 
-for all the land which you see I give to you and your [^c]descendants forever. 
+for all the land which you see I give to you and your descendants forever. 
 
 ###### 16 
 And I will make your descendants as the dust of the earth; so that if a man could number the dust of the earth, _then_ your descendants also could be numbered. 
@@ -61,4 +61,4 @@ And I will make your descendants as the dust of the earth; so that if a man coul
 Arise, walk in the land through its length and its width, for I give it to you." 
 
 ###### 18 
-Then Abram moved _his_ tent, and went and dwelt by [^d]the terebinth trees of Mamre, which _are_ in Hebron, and built an altar there to the Lord.
+Then Abram moved _his_ tent, and went and dwelt by the terebinth trees of Mamre, which _are_ in Hebron, and built an altar there to the Lord.

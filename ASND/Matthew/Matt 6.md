@@ -304,7 +304,7 @@ Huwag nʼyo silang gayahin, dahil alam na ng inyong Ama kung ano ang kailangan n
 
 
 
-Kaya manalangin kayo ng katulad nito: 'Ama naming nasa langit, sambahin nawa kayo ng mga tao.[^a] 
+Kaya manalangin kayo ng katulad nito: 'Ama naming nasa langit, sambahin nawa kayo ng mga tao. 
 
 
 
@@ -436,7 +436,7 @@ Patawarin nʼyo kami sa aming mga kasalanan, tulad ng pagpapatawad namin sa mga 
 
 
 
-At huwag nʼyo kaming hayaang matukso kundi iligtas nʼyo po kami kay Satanas.[^b] [Sapagkat kayo ang Hari, ang Makapangyarihan at Dakilang <i class="trans-change">Dios_ magpakailanman!]' 
+At huwag nʼyo kaming hayaang matukso kundi iligtas nʼyo po kami kay Satanas. [Sapagkat kayo ang Hari, ang Makapangyarihan at Dakilang <i class="trans-change">Dios_ magpakailanman!]' 
 
 
 

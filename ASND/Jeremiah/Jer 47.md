@@ -40,7 +40,7 @@ next: ['Jer 48']
 
 
 
-Ito ang sinabi ng Panginoon kay Propeta Jeremias tungkol sa Filistia noong hindi pa sinasalakay ng Faraon[^a] ang Gaza: 
+Ito ang sinabi ng Panginoon kay Propeta Jeremias tungkol sa Filistia noong hindi pa sinasalakay ng Faraon ang Gaza: 
 
 
 
@@ -139,7 +139,7 @@ Maririnig nila ang ingay ng lagapak at mga yabag ng mga kabayo at mga karwahe. H
 
 
 
-Sapagkat darating ang araw na wawasakin ang lahat ng Filisteo pati ang mga kakampi nila na tumutulong sa kanila mula sa Tyre at Sidon. Wawasakin ng Panginoon ang mga Filisteo. Ito ang mga taong mula sa Caftor.[^b] 
+Sapagkat darating ang araw na wawasakin ang lahat ng Filisteo pati ang mga kakampi nila na tumutulong sa kanila mula sa Tyre at Sidon. Wawasakin ng Panginoon ang mga Filisteo. Ito ang mga taong mula sa Caftor. 
 
 
 

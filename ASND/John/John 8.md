@@ -238,7 +238,7 @@ Itinanong nila ito upang hanapan ng maipaparatang laban sa kanya. Pero yumuko la
 
 
 
-Pero paulit-ulit silang nagtanong, kaya tumayo[^a] si Jesus at sinabi sa kanila, "Kung sino sa inyo ang walang kasalanan ay siya ang maunang bumato sa kanya." 
+Pero paulit-ulit silang nagtanong, kaya tumayo si Jesus at sinabi sa kanila, "Kung sino sa inyo ang walang kasalanan ay siya ang maunang bumato sa kanya." 
 
 
 
@@ -931,7 +931,7 @@ Hindi nila naintindihan na nagsasalita si Jesus tungkol sa Ama.
 
 
 
-Kaya sinabi ni Jesus, "Kapag itinaas na ninyo[^b] <i class="trans-change">ako na_ Anak ng Tao, malalaman ninyo na ako nga <i class="trans-change">ang Cristo_. At malalaman din ninyo na ang lahat ng bagay na ginagawa at sinasabi ko ay ayon sa itinuro sa akin ng aking Ama. 
+Kaya sinabi ni Jesus, "Kapag itinaas na ninyo <i class="trans-change">ako na_ Anak ng Tao, malalaman ninyo na ako nga <i class="trans-change">ang Cristo_. At malalaman din ninyo na ang lahat ng bagay na ginagawa at sinasabi ko ay ayon sa itinuro sa akin ng aking Ama. 
 
 
 
@@ -1360,7 +1360,7 @@ Ngunit tinatangka ninyo akong patayin, kahit sinasabi ko lang sa inyo ang mga ka
 
 
 
-Ang mga ginagawa nʼyo ay katulad ng ginagawa ng inyong ama." Sumagot sila kay Jesus, "Hindi kami mga anak sa labas.[^c] Ang Dios ang aming Ama." 
+Ang mga ginagawa nʼyo ay katulad ng ginagawa ng inyong ama." Sumagot sila kay Jesus, "Hindi kami mga anak sa labas. Ang Dios ang aming Ama." 
 
 
 
@@ -1954,4 +1954,4 @@ Sumagot si Jesus, "Sinasabi ko sa inyo ang totoo, bago pa ipanganak si Abraham, 
 
 
 
-Dahil dito, pumulot ng mga bato ang mga tao upang batuhin siya. Pero nakapagtago[^d] si Jesus at umalis sa templo.
+Dahil dito, pumulot ng mga bato ang mga tao upang batuhin siya. Pero nakapagtago si Jesus at umalis sa templo.

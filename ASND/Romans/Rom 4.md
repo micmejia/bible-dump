@@ -106,7 +106,7 @@ Kung itinuring siya <i class="trans-change">ng Dios_ na matuwid dahil sa mga nag
 
 
 
-dahil sinasabi sa Kasulatan, "Sumampalataya si Abraham sa Dios, at dahil ditoʼy itinuring siyang matuwid <i class="trans-change">ng Dios_."[^a] 
+dahil sinasabi sa Kasulatan, "Sumampalataya si Abraham sa Dios, at dahil ditoʼy itinuring siyang matuwid <i class="trans-change">ng Dios_." 
 
 
 
@@ -271,7 +271,7 @@ Ito ang ibig sabihin ni Haring David nang banggitin niya ang pagiging mapalad ng
 
 
 
-Mapalad ang tao kapag hindi na ibibilang ng Panginoon laban sa kanya ang kanyang mga kasalanan."[^b] 
+Mapalad ang tao kapag hindi na ibibilang ng Panginoon laban sa kanya ang kanyang mga kasalanan." 
 
 
 
@@ -370,7 +370,7 @@ Kailan ba siya itinuring na matuwid? Hindi baʼt noong hindi pa siya tuli?
 
 
 
-Tinuli siya bilang tanda na itinuring na siyang matuwid dahil sa kanyang pananampalataya. Kaya si Abraham ay naging ama[^c] ng lahat ng mga mananampalatayang hindi tuli. At dahil nga sa kanilang pananampalataya, itinuring silang matuwid <i class="trans-change">ng Dios_. 
+Tinuli siya bilang tanda na itinuring na siyang matuwid dahil sa kanyang pananampalataya. Kaya si Abraham ay naging ama ng lahat ng mga mananampalatayang hindi tuli. At dahil nga sa kanilang pananampalataya, itinuring silang matuwid <i class="trans-change">ng Dios_. 
 
 
 
@@ -568,7 +568,7 @@ Kaya nakabatay ang pangako ng Dios sa pananampalataya, para itoʼy maging biyaya
 
 
 
-Gaya nga ng sinasabi sa Kasulatan, "Ginawa kitang ama ng maraming bansa."[^d] Kaya sa paningin ng Dios, si Abraham ang ating ama. At ang Dios na pinaniwalaan ni Abraham, ang siya ring Dios na bumubuhay sa mga patay at lumilikha ng mga bagay na wala pa. 
+Gaya nga ng sinasabi sa Kasulatan, "Ginawa kitang ama ng maraming bansa." Kaya sa paningin ng Dios, si Abraham ang ating ama. At ang Dios na pinaniwalaan ni Abraham, ang siya ring Dios na bumubuhay sa mga patay at lumilikha ng mga bagay na wala pa. 
 
 
 
@@ -601,7 +601,7 @@ Gaya nga ng sinasabi sa Kasulatan, "Ginawa kitang ama ng maraming bansa."[^d] Ka
 
 
 
-Kahit na wala nang pag-asang <i class="trans-change">maging ama_ si Abraham, nanalig pa rin siyang magiging ama siya ng maraming bansa; gaya nga ng sinabi ng Dios sa kanya, "Magiging kasindami ng bituin ang bilang ng mga anak mo."[^e] 
+Kahit na wala nang pag-asang <i class="trans-change">maging ama_ si Abraham, nanalig pa rin siyang magiging ama siya ng maraming bansa; gaya nga ng sinabi ng Dios sa kanya, "Magiging kasindami ng bituin ang bilang ng mga anak mo." 
 
 
 

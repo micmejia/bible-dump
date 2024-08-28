@@ -28,7 +28,7 @@ next: ['Rev 22']
 
 
 
-Then I saw a new [^a]sky (heaven) and a new earth, for the former [^b]sky and the former earth had passed away (vanished), and there no longer existed any sea. 
+Then I saw a new sky (heaven) and a new earth, for the former sky and the former earth had passed away (vanished), and there no longer existed any sea. 
 
 
 
@@ -364,7 +364,7 @@ The city lies in a square, its length being the same as its width. And he measur
 
 
 
-He measured its wall also--144 cubits (about 72 yards) by a man's measure [[^c]of a cubit from his elbow to his third fingertip], which is [the measure] of the angel. 
+He measured its wall also--144 cubits (about 72 yards) by a man's measure [of a cubit from his elbow to his third fingertip], which is [the measure] of the angel. 
 
 
 
@@ -574,4 +574,4 @@ They shall bring the glory (the splendor and majesty) and the honor of the natio
 
 
 
-But nothing that defiles _or_ profanes _or_ is [^d]unwashed shall ever enter it, nor anyone who commits abominations (unclean, detestable, morally repugnant things) or practices falsehood, but only those whose names are recorded in the Lamb's Book of Life.
+But nothing that defiles _or_ profanes _or_ is unwashed shall ever enter it, nor anyone who commits abominations (unclean, detestable, morally repugnant things) or practices falsehood, but only those whose names are recorded in the Lamb's Book of Life.

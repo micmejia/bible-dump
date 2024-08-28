@@ -238,7 +238,7 @@ For godly grief _and_ the pain God is permitted to direct, produce a repentance 
 
 
 
-For [you can look back now and] observe what this same godly sorrow has done for you _and_ has produced in you: what eagerness _and_ earnest care to explain _and_ clear yourselves [of all [^a]complicity in the condoning of incest], what indignation [at the sin], what alarm, what yearning, what zeal [to do justice to all concerned], what readiness to mete out punishment [[^b]to the offender]! At every point you have proved yourselves cleared _and_ guiltless in the matter. 
+For [you can look back now and] observe what this same godly sorrow has done for you _and_ has produced in you: what eagerness _and_ earnest care to explain _and_ clear yourselves [of all complicity in the condoning of incest], what indignation [at the sin], what alarm, what yearning, what zeal [to do justice to all concerned], what readiness to mete out punishment [to the offender]! At every point you have proved yourselves cleared _and_ guiltless in the matter. 
 
 
 

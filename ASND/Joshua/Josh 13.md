@@ -436,7 +436,7 @@ Nakasama rin ang kaharian ni Og na naghari sa Ashtarot at sa Edrei. Si Og ay isa
 
 
 
-Pero hindi naitaboy[^a] ng mga Israelita ang mga Geshureo at mga Maacateo, kaya nakatira pa rin sila kasama ng mga Israelita hanggang ngayon. 
+Pero hindi naitaboy ng mga Israelita ang mga Geshureo at mga Maacateo, kaya nakatira pa rin sila kasama ng mga Israelita hanggang ngayon. 
 
 
 
@@ -469,7 +469,7 @@ Pero hindi naitaboy[^a] ng mga Israelita ang mga Geshureo at mga Maacateo, kaya 
 
 
 
-Hindi binigyan ni Moises ang lahi ni Levi ng lupain bilang mana. Ang matatanggap nila ay ang bahagi ng mga handog sa pamamagitan ng apoy[^b] na para sa Panginoon, ang Dios ng Israel, ayon sa sinabi niya kay Moises. 
+Hindi binigyan ni Moises ang lahi ni Levi ng lupain bilang mana. Ang matatanggap nila ay ang bahagi ng mga handog sa pamamagitan ng apoy na para sa Panginoon, ang Dios ng Israel, ayon sa sinabi niya kay Moises. 
 
 
 
@@ -898,7 +898,7 @@ Nakasama rin ang mga lupain mula sa Heshbon hanggang sa Ramat Mizpa at Betomin, 
 
 
 
-Ang lupaing natanggap nila sa Lambak ng Jordan[^c] ay ang Bet Haram, Bet Nimra, Sucot, Zafon at ang nalalabi sa kaharian ni Haring Sihon ng Heshbon. Ang hangganan sa kanluran ay ang <i class="trans-change">Ilog ng_ Jordan hanggang sa Lawa ng Galilea. 
+Ang lupaing natanggap nila sa Lambak ng Jordan ay ang Bet Haram, Bet Nimra, Sucot, Zafon at ang nalalabi sa kaharian ni Haring Sihon ng Heshbon. Ang hangganan sa kanluran ay ang <i class="trans-change">Ilog ng_ Jordan hanggang sa Lawa ng Galilea. 
 
 
 

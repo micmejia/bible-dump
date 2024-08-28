@@ -172,7 +172,7 @@ Kaya 3,000 Israelita ang lumusob sa Ai, pero napaatras sila ng mga taga-Ai.
 
 
 
-Hinabol sila mula sa pintuan ng lungsod hanggang sa Shebarim[^a], at 36 ang napatay sa kanila habang bumababa sila sa kabundukan. Kaya naduwag at natakot ang mga Israelita. 
+Hinabol sila mula sa pintuan ng lungsod hanggang sa Shebarim, at 36 ang napatay sa kanila habang bumababa sila sa kabundukan. Kaya naduwag at natakot ang mga Israelita. 
 
 
 
@@ -436,7 +436,7 @@ Ito ang dahilan kung bakit hindi sila makalaban sa mga kaaway nila. Natakot sila
 
 
 
-"Tumayo ka at sabihin mo sa mga tao na linisin nila ang kanilang sarili[^b] para bukas, dahil ako, ang Panginoon na Dios ng Israel ay nagsasabi, 'O Israel, may tinatago kayong mga bagay na nakalaang ihandog nang buo sa akin. Hindi kayo makakalaban sa mga kaaway nʼyo hanggaʼt nasa inyo ang mga bagay na ito. 
+"Tumayo ka at sabihin mo sa mga tao na linisin nila ang kanilang sarili para bukas, dahil ako, ang Panginoon na Dios ng Israel ay nagsasabi, 'O Israel, may tinatago kayong mga bagay na nakalaang ihandog nang buo sa akin. Hindi kayo makakalaban sa mga kaaway nʼyo hanggaʼt nasa inyo ang mga bagay na ito. 
 
 
 
@@ -568,7 +568,7 @@ Kinabukasan, maagang pinalapit ni Josue ang mga Israelita ayon sa lahi nila. At 
 
 
 
-Pinalapit ang lahi ni Juda, at napili ang angkan ni Zera. Pinalapit ang angkan ni Zera at napili ang pamilya ni Zabdi.[^c] 
+Pinalapit ang lahi ni Juda, at napili ang angkan ni Zera. Pinalapit ang angkan ni Zera at napili ang pamilya ni Zabdi. 
 
 
 
@@ -799,7 +799,7 @@ Dinala nila ito kay Josue at sa lahat ng mga Israelita, at inilapag sa presensya
 
 
 
-At dinala ni Josue at ng lahat ng mga Israelita si Acan sa Lambak ng Acor,[^d] pati ang pilak, damit, isang baretang ginto, ang mga anak niya, mga baka, mga asno, mga tupa, tolda at ang lahat ng ari-arian niya. 
+At dinala ni Josue at ng lahat ng mga Israelita si Acan sa Lambak ng Acor, pati ang pilak, damit, isang baretang ginto, ang mga anak niya, mga baka, mga asno, mga tupa, tolda at ang lahat ng ari-arian niya. 
 
 
 

@@ -10,7 +10,7 @@ next: ['Isa 9']
 
 
 ###### 1 
-Moreover the Lord said to me, "Take a large scroll, and write on it with a man's pen concerning [^a]Maher-Shalal-Hash-Baz. 
+Moreover the Lord said to me, "Take a large scroll, and write on it with a man's pen concerning Maher-Shalal-Hash-Baz. 
 
 ###### 2 
 And I will take for Myself faithful witnesses to record, Uriah the priest and Zechariah the son of Jeberechiah." 
@@ -19,7 +19,7 @@ And I will take for Myself faithful witnesses to record, Uriah the priest and Ze
 Then I went to the prophetess, and she conceived and bore a son. Then the Lord said to me, "Call his name Maher-Shalal-Hash-Baz; 
 
 ###### 4 
-for before the child [^b]shall have knowledge to cry 'My father' and 'My mother,' the riches of Damascus and the [^c]spoil of Samaria will be taken away before the king of Assyria." 
+for before the child shall have knowledge to cry 'My father' and 'My mother,' the riches of Damascus and the spoil of Samaria will be taken away before the king of Assyria." 
 
 ###### 5 
 The Lord also spoke to me again, saying: 
@@ -28,31 +28,31 @@ The Lord also spoke to me again, saying:
 "Inasmuch as these people refused The waters of Shiloah that flow softly, And rejoice in Rezin and in Remaliah's son; 
 
 ###### 7 
-Now therefore, behold, the Lord brings up over them The waters of [^d]the River, strong and mighty-- The king of Assyria and all his glory; He will [^e]go up over all his channels And go over all his banks. 
+Now therefore, behold, the Lord brings up over them The waters of the River, strong and mighty-- The king of Assyria and all his glory; He will go up over all his channels And go over all his banks. 
 
 ###### 8 
-He will pass through Judah, He will overflow and pass over, He will reach up to the neck; And the stretching out of his wings Will [^f]fill the breadth of Your land, O Immanuel.[^g] 
+He will pass through Judah, He will overflow and pass over, He will reach up to the neck; And the stretching out of his wings Will fill the breadth of Your land, O Immanuel. 
 
 ###### 9 
 "Be shattered, O you peoples, and be broken in pieces! Give ear, all you from far countries. Gird yourselves, but be broken in pieces; Gird yourselves, but be broken in pieces. 
 
 ###### 10 
-Take counsel together, but it will come to nothing; Speak the word, but it will not stand, For [^h]God _is_ with us." ## Fear God, Heed His Word 
+Take counsel together, but it will come to nothing; Speak the word, but it will not stand, For God _is_ with us." ## Fear God, Heed His Word 
 
 ###### 11 
-For the Lord spoke thus to me with [^i]a strong hand, and instructed me that I should not walk in the way of this people, saying: 
+For the Lord spoke thus to me with a strong hand, and instructed me that I should not walk in the way of this people, saying: 
 
 ###### 12 
-"Do not say, 'A conspiracy,' Concerning all that this people call a conspiracy, Nor be afraid of their [^j]threats, nor be [^k]troubled. 
+"Do not say, 'A conspiracy,' Concerning all that this people call a conspiracy, Nor be afraid of their threats, nor be troubled. 
 
 ###### 13 
 The Lord of hosts, Him you shall hallow; _Let_ Him _be_ your fear, And _let_ Him _be_ your dread. 
 
 ###### 14 
-He will be as a [^l]sanctuary, But a stone of stumbling and a rock of [^m]offense To both the houses of Israel, As a trap and a snare to the inhabitants of Jerusalem. 
+He will be as a sanctuary, But a stone of stumbling and a rock of offense To both the houses of Israel, As a trap and a snare to the inhabitants of Jerusalem. 
 
 ###### 15 
-And many among them shall stumble; They shall fall and be broken, Be snared and [^n]taken." 
+And many among them shall stumble; They shall fall and be broken, Be snared and taken." 
 
 ###### 16 
 Bind up the testimony, Seal the law among my disciples. 
@@ -67,10 +67,10 @@ Here am I and the children whom the Lord has given me! _We_ are for signs and wo
 And when they say to you, "Seek those who are mediums and wizards, who whisper and mutter," should not a people seek their God? _Should they_ _seek_ the dead on behalf of the living? 
 
 ###### 20 
-To the law and to the testimony! If they do not speak according to this word, _it is_ because _there_[^o] _is_ no light in them. 
+To the law and to the testimony! If they do not speak according to this word, _it is_ because _there_ _is_ no light in them. 
 
 ###### 21 
-They will pass through it hard-pressed and hungry; and it shall happen, when they are hungry, that they will be enraged and curse [^p]their king and their God, and look upward. 
+They will pass through it hard-pressed and hungry; and it shall happen, when they are hungry, that they will be enraged and curse their king and their God, and look upward. 
 
 ###### 22 
 Then they will look to the earth, and see trouble and darkness, gloom of anguish; and _they will be_ driven into darkness.

@@ -997,7 +997,7 @@ Sapagkat darating ang mga araw na sasabihin ng mga tao, 'Mapalad ang mga babaeng
 
 
 
-Sa mga araw na iyon ay sasabihin ng mga tao sa mga bundok at sa mga burol, 'Tabunan ninyo kami!'[^a] 
+Sa mga araw na iyon ay sasabihin ng mga tao sa mga bundok at sa mga burol, 'Tabunan ninyo kami!' 
 
 
 
@@ -1030,7 +1030,7 @@ Sa mga araw na iyon ay sasabihin ng mga tao sa mga bundok at sa mga burol, 'Tabu
 
 
 
-Sapagkat kung ginawa nila ito sa akin na walang kasalanan,[^b] ano pa kaya sa mga taong may kasalanan?"[^c] 
+Sapagkat kung ginawa nila ito sa akin na walang kasalanan, ano pa kaya sa mga taong may kasalanan?" 
 
 
 
@@ -1459,7 +1459,7 @@ Sumagot si Jesus, "Sasabihin ko sa iyo ang totoo, ngayon din ay makakasama kita 
 
 
 
-Sumigaw nang malakas si Jesus, "Ama, ipinagkakatiwala ko sa inyo ang aking espiritu!"[^d] At pagkasabi niya nito, nalagot ang kanyang hininga. 
+Sumigaw nang malakas si Jesus, "Ama, ipinagkakatiwala ko sa inyo ang aking espiritu!" At pagkasabi niya nito, nalagot ang kanyang hininga. 
 
 
 

@@ -10,10 +10,10 @@ next: ['Rev 3']
 
 
 ###### 1 
-"To the [^a]angel of the church of Ephesus write, 'These things says He who holds the seven stars in His right hand, who walks in the midst of the seven golden lampstands: 
+"To the angel of the church of Ephesus write, 'These things says He who holds the seven stars in His right hand, who walks in the midst of the seven golden lampstands: 
 
 ###### 2 
-"I know your works, your labor, your [^b]patience, and that you cannot [^c]bear those who are evil. And you have tested those who say they are apostles and are not, and have found them liars; 
+"I know your works, your labor, your patience, and that you cannot bear those who are evil. And you have tested those who say they are apostles and are not, and have found them liars; 
 
 ###### 3 
 and you have persevered and have patience, and have labored for My name's sake and have not become weary. 
@@ -31,10 +31,10 @@ But this you have, that you hate the deeds of the Nicolaitans, which I also hate
 "He who has an ear, let him hear what the Spirit says to the churches. To him who overcomes I will give to eat from the tree of life, which is in the midst of the Paradise of God." ' ## The Persecuted Church 
 
 ###### 8 
-"And to the [^d]angel of the church in Smyrna write, 'These things says the First and the Last, who was dead, and came to life: 
+"And to the angel of the church in Smyrna write, 'These things says the First and the Last, who was dead, and came to life: 
 
 ###### 9 
-"I know your works, tribulation, and poverty (but you are rich); and _I know_ the blasphemy of those who say they are Jews and are not, but _are_ a [^e]synagogue of Satan. 
+"I know your works, tribulation, and poverty (but you are rich); and _I know_ the blasphemy of those who say they are Jews and are not, but _are_ a synagogue of Satan. 
 
 ###### 10 
 Do not fear any of those things which you are about to suffer. Indeed, the devil is about to throw _some_ of you into prison, that you may be tested, and you will have tribulation ten days. Be faithful until death, and I will give you the crown of life. 
@@ -43,7 +43,7 @@ Do not fear any of those things which you are about to suffer. Indeed, the devil
 "He who has an ear, let him hear what the Spirit says to the churches. He who overcomes shall not be hurt by the second death." ' ## The Compromising Church 
 
 ###### 12 
-"And to the [^f]angel of the church in Pergamos write, 'These things says He who has the sharp two-edged sword: 
+"And to the angel of the church in Pergamos write, 'These things says He who has the sharp two-edged sword: 
 
 ###### 13 
 "I know your works, and where you dwell, where Satan's throne _is._ And you hold fast to My name, and did not deny My faith even in the days in which Antipas _was_ My faithful martyr, who was killed among you, where Satan dwells. 
@@ -52,7 +52,7 @@ Do not fear any of those things which you are about to suffer. Indeed, the devil
 But I have a few things against you, because you have there those who hold the doctrine of Balaam, who taught Balak to put a stumbling block before the children of Israel, to eat things sacrificed to idols, and to commit sexual immorality. 
 
 ###### 15 
-Thus you also have those who hold the doctrine of the Nicolaitans, [^g]which thing I hate. 
+Thus you also have those who hold the doctrine of the Nicolaitans, which thing I hate. 
 
 ###### 16 
 Repent, or else I will come to you quickly and will fight against them with the sword of My mouth. 
@@ -61,25 +61,25 @@ Repent, or else I will come to you quickly and will fight against them with the 
 "He who has an ear, let him hear what the Spirit says to the churches. To him who overcomes I will give some of the hidden manna to eat. And I will give him a white stone, and on the stone a new name written which no one knows except him who receives _it._" ' ## The Corrupt Church 
 
 ###### 18 
-"And to the [^h]angel of the church in Thyatira write, 'These things says the Son of God, who has eyes like a flame of fire, and His feet like fine brass: 
+"And to the angel of the church in Thyatira write, 'These things says the Son of God, who has eyes like a flame of fire, and His feet like fine brass: 
 
 ###### 19 
-"I know your works, love, [^i]service, faith, and your [^j]patience; and _as_ for your works, the last _are_ more than the first. 
+"I know your works, love, service, faith, and your patience; and _as_ for your works, the last _are_ more than the first. 
 
 ###### 20 
-Nevertheless I have [^k]a few things against you, because you allow [^l]that woman Jezebel, who calls herself a prophetess, [^m]to teach and seduce My servants to commit sexual immorality and eat things sacrificed to idols. 
+Nevertheless I have a few things against you, because you allow that woman Jezebel, who calls herself a prophetess, to teach and seduce My servants to commit sexual immorality and eat things sacrificed to idols. 
 
 ###### 21 
-And I gave her time to [^n]repent of her sexual immorality, and she did not repent. 
+And I gave her time to repent of her sexual immorality, and she did not repent. 
 
 ###### 22 
-Indeed I will cast her into a sickbed, and those who commit adultery with her into great tribulation, unless they repent of [^o]their deeds. 
+Indeed I will cast her into a sickbed, and those who commit adultery with her into great tribulation, unless they repent of their deeds. 
 
 ###### 23 
-I will kill her children with death, and all the churches shall know that I am He who searches[^p] the minds and hearts. And I will give to each one of you according to your works. 
+I will kill her children with death, and all the churches shall know that I am He who searches the minds and hearts. And I will give to each one of you according to your works. 
 
 ###### 24 
-"Now to you I say, [^q]and to the rest in Thyatira, as many as do not have this doctrine, who have not known the depths of Satan, as they say, I [^r]will put on you no other burden. 
+"Now to you I say, and to the rest in Thyatira, as many as do not have this doctrine, who have not known the depths of Satan, as they say, I will put on you no other burden. 
 
 ###### 25 
 But hold fast what you have till I come. 

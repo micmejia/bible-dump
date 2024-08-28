@@ -469,7 +469,7 @@ Pero sumagot ang lalaki, 'Hindi ko kayo kilala.' "
 
 
 
-<i class="trans-change">Sinabi pa ni Jesus, "Ang paghahari ng Dios ay_ maitutulad sa <i class="trans-change">kwentong ito: May_ isang taong papunta sa malayong lugar. Kaya tinawag niya ang kanyang mga alipin at ipinagkatiwala sa kanila ang pera niya.[^a] 
+<i class="trans-change">Sinabi pa ni Jesus, "Ang paghahari ng Dios ay_ maitutulad sa <i class="trans-change">kwentong ito: May_ isang taong papunta sa malayong lugar. Kaya tinawag niya ang kanyang mga alipin at ipinagkatiwala sa kanila ang pera niya. 
 
 
 
@@ -1030,7 +1030,7 @@ Itapon ninyo ang walang silbing alipin na iyan sa kadiliman sa labas. Doon ay ii
 
 
 
-"Kapag <i class="trans-change">ako na_ Anak ng Tao ay dumating na bilang Hari,[^b] kasama ang lahat ng anghel, uupo ako sa aking dakilang trono. 
+"Kapag <i class="trans-change">ako na_ Anak ng Tao ay dumating na bilang Hari, kasama ang lahat ng anghel, uupo ako sa aking dakilang trono. 
 
 
 

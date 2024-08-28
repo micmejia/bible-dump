@@ -22,19 +22,19 @@ For the vision _is_ yet for an appointed time; But at the end it will speak, and
 "Behold the proud, His soul is not upright in him; But the just shall live by his faith. ## Woe to the Wicked 
 
 ###### 5 
-"Indeed, because he transgresses by wine, _He is_ a proud man, And he does not stay at home. Because he enlarges his desire as [^a]hell, And he _is_ like death, and cannot be satisfied, He gathers to himself all nations And heaps up for himself all peoples. 
+"Indeed, because he transgresses by wine, _He is_ a proud man, And he does not stay at home. Because he enlarges his desire as hell, And he _is_ like death, and cannot be satisfied, He gathers to himself all nations And heaps up for himself all peoples. 
 
 ###### 6 
-"Will not all these take up a proverb against him, And a taunting riddle against him, and say, 'Woe to him who increases _What_ is not his--how long? And to him who loads himself with [^b]many pledges'? 
+"Will not all these take up a proverb against him, And a taunting riddle against him, and say, 'Woe to him who increases _What_ is not his--how long? And to him who loads himself with many pledges'? 
 
 ###### 7 
-Will not [^c]your creditors rise up suddenly? Will they not awaken who oppress you? And you will become their booty. 
+Will not your creditors rise up suddenly? Will they not awaken who oppress you? And you will become their booty. 
 
 ###### 8 
-Because you have plundered many nations, All the remnant of the people shall plunder you, Because of men's [^d]blood And the violence of the land _and_ the city, And of all who dwell in it. 
+Because you have plundered many nations, All the remnant of the people shall plunder you, Because of men's blood And the violence of the land _and_ the city, And of all who dwell in it. 
 
 ###### 9 
-"Woe to him who covets evil gain for his house, That he may set his nest on high, That he may be delivered from the [^e]power of disaster! 
+"Woe to him who covets evil gain for his house, That he may set his nest on high, That he may be delivered from the power of disaster! 
 
 ###### 10 
 You give shameful counsel to your house, Cutting off many peoples, And sin _against_ your soul. 
@@ -46,16 +46,16 @@ For the stone will cry out from the wall, And the beam from the timbers will ans
 "Woe to him who builds a town with bloodshed, Who establishes a city by iniquity! 
 
 ###### 13 
-Behold, _is it_ not of the Lord of hosts That the peoples labor [^f]to feed the fire, And nations weary themselves in vain? 
+Behold, _is it_ not of the Lord of hosts That the peoples labor to feed the fire, And nations weary themselves in vain? 
 
 ###### 14 
 For the earth will be filled With the knowledge of the glory of the Lord, As the waters cover the sea. 
 
 ###### 15 
-"Woe to him who gives drink to his neighbor, [^g]Pressing _him to_ your bottle, Even to make _him_ drunk, That you may look on [^h]his nakedness! 
+"Woe to him who gives drink to his neighbor, Pressing _him to_ your bottle, Even to make _him_ drunk, That you may look on his nakedness! 
 
 ###### 16 
-You are filled with shame instead of glory. You also--drink! And [^i]be exposed as uncircumcised! The cup of the Lord's right hand _will be_ turned against you, And utter shame will be on your glory. 
+You are filled with shame instead of glory. You also--drink! And be exposed as uncircumcised! The cup of the Lord's right hand _will be_ turned against you, And utter shame will be on your glory. 
 
 ###### 17 
 For the violence _done to_ Lebanon will cover you, And the plunder of beasts _which_ made them afraid, Because of men's blood And the violence of the land _and_ the city, And of all who dwell in it. 

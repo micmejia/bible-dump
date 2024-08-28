@@ -16,7 +16,7 @@ Now all the people gathered together as one man in the open square that _was_ in
 So Ezra the priest brought the Law before the assembly of men and women and all who _could_ hear with understanding on the first day of the seventh month. 
 
 ###### 3 
-Then he read from it in the open square that _was_ in front of the Water Gate [^a]from morning until midday, before the men and women and those who could understand; and the ears of all the people _were attentive_ to the Book of the Law. 
+Then he read from it in the open square that _was_ in front of the Water Gate from morning until midday, before the men and women and those who could understand; and the ears of all the people _were attentive_ to the Book of the Law. 
 
 ###### 4 
 So Ezra the scribe stood on a platform of wood which they had made for the purpose; and beside him, at his right hand, stood Mattithiah, Shema, Anaiah, Urijah, Hilkiah, and Maaseiah; and at his left hand Pedaiah, Mishael, Malchijah, Hashum, Hashbadana, Zechariah, _and_ Meshullam. 
@@ -34,7 +34,7 @@ Also Jeshua, Bani, Sherebiah, Jamin, Akkub, Shabbethai, Hodijah, Maaseiah, Kelit
 So they read distinctly from the book, in the Law of God; and they gave the sense, and helped _them_ to understand the reading. 
 
 ###### 9 
-And Nehemiah, who _was_ the [^b]governor, Ezra the priest _and_ scribe, and the Levites who taught the people said to all the people, "This day _is_ holy to the Lord your God; do not mourn nor weep." For all the people wept, when they heard the words of the Law. 
+And Nehemiah, who _was_ the governor, Ezra the priest _and_ scribe, and the Levites who taught the people said to all the people, "This day _is_ holy to the Lord your God; do not mourn nor weep." For all the people wept, when they heard the words of the Law. 
 
 ###### 10 
 Then he said to them, "Go your way, eat the fat, drink the sweet, and send portions to those for whom nothing is prepared; for _this_ day _is_ holy to our Lord. Do not sorrow, for the joy of the Lord is your strength." 
@@ -49,7 +49,7 @@ And all the people went their way to eat and drink, to send portions and rejoice
 Now on the second day the heads of the fathers' _houses_ of all the people, with the priests and Levites, were gathered to Ezra the scribe, in order to understand the words of the Law. 
 
 ###### 14 
-And they found written in the Law, which the Lord had commanded by Moses, that the children of Israel should dwell in booths[^c] during the feast of the seventh month, 
+And they found written in the Law, which the Lord had commanded by Moses, that the children of Israel should dwell in booths during the feast of the seventh month, 
 
 ###### 15 
 and that they should announce and proclaim in all their cities and in Jerusalem, saying, "Go out to the mountain, and bring olive branches, branches of oil trees, myrtle branches, palm branches, and branches of leafy trees, to make booths, as _it is_ written." 
@@ -58,7 +58,7 @@ and that they should announce and proclaim in all their cities and in Jerusalem,
 Then the people went out and brought _them_ and made themselves booths, each one on the roof of his house, or in their courtyards or the courts of the house of God, and in the open square of the Water Gate and in the open square of the Gate of Ephraim. 
 
 ###### 17 
-So the whole assembly of those who had returned from the captivity made [^d]booths and sat under the booths; for since the days of Joshua the son of Nun until that day the children of Israel had not done so. And there was very great gladness. 
+So the whole assembly of those who had returned from the captivity made booths and sat under the booths; for since the days of Joshua the son of Nun until that day the children of Israel had not done so. And there was very great gladness. 
 
 ###### 18 
 Also day by day, from the first day until the last day, he read from the Book of the Law of God. And they kept the feast seven days; and on the eighth day _there was_ a sacred assembly, according to the _prescribed_ manner.

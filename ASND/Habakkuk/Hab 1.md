@@ -204,7 +204,7 @@ Kaya naging walang kabuluhan ang kautusan. At wala ring katarungan dahil ang mga
 
 
 
-Sapagkat pamamahalain ko ang mga taga-Babilonia,[^a] na kilala sa kalupitan at karahasan. Mabilis nilang sinasalakay ang <i class="trans-change">mga bansa sa_ buong mundo upang agawin ang mga lugar na hindi kanila. 
+Sapagkat pamamahalain ko ang mga taga-Babilonia, na kilala sa kalupitan at karahasan. Mabilis nilang sinasalakay ang <i class="trans-change">mga bansa sa_ buong mundo upang agawin ang mga lugar na hindi kanila. 
 
 
 

@@ -139,7 +139,7 @@ Nang maubos ang alak <i class="trans-change">sa handaan_, sinabi ng ina ni Jesus
 
 
 
-Sumagot si Jesus, "Babae,[^a] huwag po ninyo akong pangunahan. Hindi pa po dumarating ang panahon ko." 
+Sumagot si Jesus, "Babae, huwag po ninyo akong pangunahan. Hindi pa po dumarating ang panahon ko." 
 
 
 
@@ -205,7 +205,7 @@ Sinabi ng ina ni Jesus sa mga katulong, "Sundin ninyo ang anumang iutos niya."
 
 
 
-May anim na tapayan doon na ginagamit ng mga Judio sa ritwal nilang paghuhugas.[^b] Ang bawat tapayan ay naglalaman ng 20 hanggang 30 galon ng tubig. 
+May anim na tapayan doon na ginagamit ng mga Judio sa ritwal nilang paghuhugas. Ang bawat tapayan ay naglalaman ng 20 hanggang 30 galon ng tubig. 
 
 
 
@@ -436,7 +436,7 @@ Pagkatapos ng kasalan, pumunta si Jesus sa Capernaum, kasama ang kanyang ina, mg
 
 
 
-Malapit na noon ang pista ng mga Judio na tinatawag na Pista ng Paglampas ng Anghel,[^c] kaya pumunta si Jesus sa Jerusalem. 
+Malapit na noon ang pista ng mga Judio na tinatawag na Pista ng Paglampas ng Anghel, kaya pumunta si Jesus sa Jerusalem. 
 
 
 
@@ -568,7 +568,7 @@ Sinabi ni Jesus sa mga nagtitinda ng mga kalapati, "Alisin ninyo ang mga iyan! H
 
 
 
-Naalala ng mga tagasunod niya ang nakasulat <i class="trans-change">sa Kasulatan_: "Mapapahamak ako dahil sa pagmamalasakit ko sa bahay ninyo."[^d] 
+Naalala ng mga tagasunod niya ang nakasulat <i class="trans-change">sa Kasulatan_: "Mapapahamak ako dahil sa pagmamalasakit ko sa bahay ninyo." 
 
 
 

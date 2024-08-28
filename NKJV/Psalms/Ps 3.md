@@ -16,7 +16,7 @@ Lord, how they have increased who trouble me! Many _are_ they who rise up agains
 Many _are_ they who say of me, "_There is_ no help for him in God." <i class="selah">Selah_ 
 
 ###### 3 
-But You, O Lord, _are_ a shield [^a]for me, My glory and the One who lifts up my head. 
+But You, O Lord, _are_ a shield for me, My glory and the One who lifts up my head. 
 
 ###### 4 
 I cried to the Lord with my voice, And He heard me from His holy hill. <i class="selah">Selah_ 

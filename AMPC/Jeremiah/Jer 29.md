@@ -448,7 +448,7 @@ Hear therefore the word of the Lord, all you exiles whom I have sent away from J
 
 
 
-Thus says the Lord of hosts, the God of Israel, concerning Ahab son of Kolaiah and concerning Zedekiah son of Maaseiah, who are prophesying lies to you in My name: Behold, I will deliver them into the hand of [^a]Nebuchadrezzar king of Babylon, and he will slay them [those false prophets whom you say I have raised up for you in Babylon] before your eyes! 
+Thus says the Lord of hosts, the God of Israel, concerning Ahab son of Kolaiah and concerning Zedekiah son of Maaseiah, who are prophesying lies to you in My name: Behold, I will deliver them into the hand of Nebuchadrezzar king of Babylon, and he will slay them [those false prophets whom you say I have raised up for you in Babylon] before your eyes! 
 
 
 

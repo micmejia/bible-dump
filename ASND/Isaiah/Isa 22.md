@@ -40,7 +40,7 @@ next: ['Isa 23']
 
 
 
-Ang mensaheng itoʼy tungkol sa Lambak ng Pangitain.[^a] Ano ang nangyayari? Bakit kayo umaakyat sa mga bubong? 
+Ang mensaheng itoʼy tungkol sa Lambak ng Pangitain. Ano ang nangyayari? Bakit kayo umaakyat sa mga bubong? 
 
 
 
@@ -403,7 +403,7 @@ Gumawa kayo ng imbakan ng tubig sa pagitan ng dalawang pader, at itoʼy pinuno n
 
 
 
-Nanawagan sa inyo ang Panginoong Dios na Makapangyarihan na kayoʼy magdalamhati, umiyak, magpakalbo at magsuot ng damit na panluksa[^b] <i class="trans-change">bilang tanda ng inyong pagsisisi_. 
+Nanawagan sa inyo ang Panginoong Dios na Makapangyarihan na kayoʼy magdalamhati, umiyak, magpakalbo at magsuot ng damit na panluksa <i class="trans-change">bilang tanda ng inyong pagsisisi_. 
 
 
 

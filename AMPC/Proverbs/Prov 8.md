@@ -637,7 +637,7 @@ When He gave to the sea its limit _and_ His decree that the waters should not tr
 
 
 
-Then I [Wisdom] was [^a]beside Him as a master _and_ director of the work; and I was daily His delight, rejoicing before Him always, 
+Then I [Wisdom] was beside Him as a master _and_ director of the work; and I was daily His delight, rejoicing before Him always, 
 
 
 

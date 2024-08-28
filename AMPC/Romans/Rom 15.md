@@ -259,7 +259,7 @@ And again, Praise the Lord, all you Gentiles, and let all the peoples praise Him
 
 
 
-And further Isaiah says, There shall be a [^a]Sprout from the Root of Jesse, He Who rises to rule over the Gentiles; in Him shall the Gentiles hope. 
+And further Isaiah says, There shall be a Sprout from the Root of Jesse, He Who rises to rule over the Gentiles; in Him shall the Gentiles hope. 
 
 
 
@@ -490,7 +490,7 @@ This [ambition] is the reason why I have so frequently been hindered from coming
 
 
 
-But now since I have no further opportunity for work in these regions, and since I have longed for [^b]enough years to come to you, 
+But now since I have no further opportunity for work in these regions, and since I have longed for enough years to come to you, 
 
 
 

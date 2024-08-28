@@ -70,7 +70,7 @@ Now the Jewish Feast of Tabernacles was drawing near.
 
 
 
-So His brothers said to Him, Leave here and go into Judea, so that [^a]Your disciples [there] may also see the works that You do. [This is no place for You.] 
+So His brothers said to Him, Leave here and go into Judea, so that Your disciples [there] may also see the works that You do. [This is no place for You.] 
 
 
 
@@ -301,7 +301,7 @@ But no one dared speak out boldly about Him for fear of [the leaders of] the Jew
 
 
 
-When the Feast was already half over, Jesus went up into the temple [[^b]court] and began to teach. 
+When the Feast was already half over, Jesus went up into the temple [court] and began to teach. 
 
 
 
@@ -595,7 +595,7 @@ No, we know where this Man comes from; when the Christ arrives, no one is to kno
 
 
 
-Whereupon Jesus called out as He taught in the temple [[^c]porches], Do you know Me, and do you know where I am from? I have not come on My own authority _and_ of My own accord _and_ as self-appointed, but the One Who sent Me is true (real, genuine, steadfast); and Him you do not know! 
+Whereupon Jesus called out as He taught in the temple [porches], Do you know Me, and do you know where I am from? I have not come on My own authority _and_ of My own accord _and_ as self-appointed, but the One Who sent Me is true (real, genuine, steadfast); and Him you do not know! 
 
 
 
@@ -1120,4 +1120,4 @@ They answered him, Are you too from Galilee? Search [the Scriptures yourself], a
 
 
 
-[^d]And they went [back], each to his own house.
+And they went [back], each to his own house.

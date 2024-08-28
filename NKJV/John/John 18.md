@@ -22,7 +22,7 @@ Then Judas, having received a detachment _of troops,_ and officers from the chie
 Jesus therefore, knowing all things that would come upon Him, went forward and said to them, "Whom are you seeking?" 
 
 ###### 5 
-They answered Him, "Jesus [^a]of Nazareth." Jesus said to them, "I am _He._" And Judas, who betrayed Him, also stood with them. 
+They answered Him, "Jesus of Nazareth." Jesus said to them, "I am _He._" And Judas, who betrayed Him, also stood with them. 
 
 ###### 6 
 Now when He said to them, "I am _He,_" they drew back and fell to the ground. 
@@ -49,10 +49,10 @@ Then the detachment _of troops_ and the captain and the officers of the Jews arr
 And they led Him away to Annas first, for he was the father-in-law of Caiaphas who was high priest that year. 
 
 ###### 14 
-Now it was Caiaphas who advised the Jews that it was [^b]expedient that one man should die for the people. ## Peter Denies Jesus 
+Now it was Caiaphas who advised the Jews that it was expedient that one man should die for the people. ## Peter Denies Jesus 
 
 ###### 15 
-And Simon Peter followed Jesus, and so _did_ another[^c] disciple. Now that disciple was known to the high priest, and went with Jesus into the courtyard of the high priest. 
+And Simon Peter followed Jesus, and so _did_ another disciple. Now that disciple was known to the high priest, and went with Jesus into the courtyard of the high priest. 
 
 ###### 16 
 But Peter stood at the door outside. Then the other disciple, who was known to the high priest, went out and spoke to her who kept the door, and brought Peter in. 
@@ -67,13 +67,13 @@ Now the servants and officers who had made a fire of coals stood there, for it w
 The high priest then asked Jesus about His disciples and His doctrine. 
 
 ###### 20 
-Jesus answered him, "I spoke openly to the world. I always taught in synagogues and in the temple, where [^d]the Jews always meet, and in secret I have said nothing. 
+Jesus answered him, "I spoke openly to the world. I always taught in synagogues and in the temple, where the Jews always meet, and in secret I have said nothing. 
 
 ###### 21 
 Why do you ask Me? Ask those who have heard Me what I said to them. Indeed they know what I said." 
 
 ###### 22 
-And when He had said these things, one of the officers who stood by struck[^e] Jesus with the palm of his hand, saying, "Do You answer the high priest like that?" 
+And when He had said these things, one of the officers who stood by struck Jesus with the palm of his hand, saying, "Do You answer the high priest like that?" 
 
 ###### 23 
 Jesus answered him, "If I have spoken evil, bear witness of the evil; but if well, why do you strike Me?" 
@@ -91,13 +91,13 @@ One of the servants of the high priest, a relative _of him_ whose ear Peter cut 
 Peter then denied again; and immediately a rooster crowed. ## In Pilate's Court 
 
 ###### 28 
-Then they led Jesus from Caiaphas to the Praetorium, and it was early morning. But they themselves did not go into the [^f]Praetorium, lest they should be defiled, but that they might eat the Passover. 
+Then they led Jesus from Caiaphas to the Praetorium, and it was early morning. But they themselves did not go into the Praetorium, lest they should be defiled, but that they might eat the Passover. 
 
 ###### 29 
 Pilate then went out to them and said, "What accusation do you bring against this Man?" 
 
 ###### 30 
-They answered and said to him, "If He were not [^g]an evildoer, we would not have delivered Him up to you." 
+They answered and said to him, "If He were not an evildoer, we would not have delivered Him up to you." 
 
 ###### 31 
 Then Pilate said to them, "You take Him and judge Him according to your law." Therefore the Jews said to him, "It is not lawful for us to put anyone to death," 
@@ -106,7 +106,7 @@ Then Pilate said to them, "You take Him and judge Him according to your law." Th
 that the saying of Jesus might be fulfilled which He spoke, signifying by what death He would die. 
 
 ###### 33 
-Then Pilate entered the [^h]Praetorium again, called Jesus, and said to Him, "Are You the King of the Jews?" 
+Then Pilate entered the Praetorium again, called Jesus, and said to Him, "Are You the King of the Jews?" 
 
 ###### 34 
 Jesus answered him, "Are you speaking for yourself about this, or did others tell you this concerning Me?" 

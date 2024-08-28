@@ -28,7 +28,7 @@ next: ['Gen 21']
 
 
 
-Now Abraham journeyed from there toward the [^a]South country (the Negeb) and dwelt between Kadesh and Shur; and he lived temporarily in Gerar. 
+Now Abraham journeyed from there toward the South country (the Negeb) and dwelt between Kadesh and Shur; and he lived temporarily in Gerar. 
 
 
 

@@ -139,7 +139,7 @@ Pero sinagot ko sila,
 
 
 
-"Sabihin nʼyo kay Zedekia na ito ang sinasabi ng Panginoon, ang Dios ng Israel, 'Magiging walang kabuluhan ang mga sandata na inyong ginagamit sa pakikipagdigma nʼyo kay Nebucadnezar at sa mga kawal niya[^a] na nakapaligid na sa inyo. Titipunin ko sila[^b] sa gitna ng lungsod na ito. 
+"Sabihin nʼyo kay Zedekia na ito ang sinasabi ng Panginoon, ang Dios ng Israel, 'Magiging walang kabuluhan ang mga sandata na inyong ginagamit sa pakikipagdigma nʼyo kay Nebucadnezar at sa mga kawal niya na nakapaligid na sa inyo. Titipunin ko sila sa gitna ng lungsod na ito. 
 
 
 

@@ -28,7 +28,7 @@ next: ['Dan 8']
 
 
 
-[^a]In the first year of Belshazzar king of Babylon Daniel had a dream and visions in his head as he was lying upon his bed. Then he wrote down the dream and told the gist of the matter. 
+In the first year of Belshazzar king of Babylon Daniel had a dream and visions in his head as he was lying upon his bed. Then he wrote down the dream and told the gist of the matter. 
 
 
 
@@ -280,7 +280,7 @@ And as for the rest of the beasts, their power of dominion was taken away; yet t
 
 
 
-I saw in the night visions, and behold, [^b]on the clouds of the heavens came One like a Son of man, and He came to the Ancient of Days and was presented before Him. 
+I saw in the night visions, and behold, on the clouds of the heavens came One like a Son of man, and He came to the Ancient of Days and was presented before Him. 
 
 
 

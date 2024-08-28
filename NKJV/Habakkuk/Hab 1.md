@@ -9,13 +9,13 @@ next: ['Hab 2']
 
 
 ###### 1 
-The [^a]burden which the prophet Habakkuk saw. ## The Prophet's Question 
+The burden which the prophet Habakkuk saw. ## The Prophet's Question 
 
 ###### 2 
 O Lord, how long shall I cry, And You will not hear? Even cry out to You, "Violence!" And You will not save. 
 
 ###### 3 
-Why do You show me iniquity, And cause _me_ to see [^b]trouble? For plundering and violence _are_ before me; There is strife, and contention arises. 
+Why do You show me iniquity, And cause _me_ to see trouble? For plundering and violence _are_ before me; There is strife, and contention arises. 
 
 ###### 4 
 Therefore the law is powerless, And justice never goes forth. For the wicked surround the righteous; Therefore perverse judgment proceeds. ## The Lord's Reply 
@@ -30,7 +30,7 @@ For indeed I am raising up the Chaldeans, A bitter and hasty nation Which marche
 They are terrible and dreadful; Their judgment and their dignity proceed from themselves. 
 
 ###### 8 
-Their horses also are swifter than leopards, And more fierce than evening wolves. Their [^c]chargers [^d]charge ahead; Their cavalry comes from afar; They fly as the eagle _that_ hastens to eat. 
+Their horses also are swifter than leopards, And more fierce than evening wolves. Their chargers charge ahead; Their cavalry comes from afar; They fly as the eagle _that_ hastens to eat. 
 
 ###### 9 
 "They all come for violence; Their faces are set _like_ the east wind. They gather captives like sand. 
@@ -39,7 +39,7 @@ Their horses also are swifter than leopards, And more fierce than evening wolves
 They scoff at kings, And princes are scorned by them. They deride every stronghold, For they heap up earthen _mounds_ and seize it. 
 
 ###### 11 
-Then _his_ [^e]mind changes, and he transgresses; He commits offense, _Ascribing_ this power to his god." ## The Prophet's Second Question 
+Then _his_ mind changes, and he transgresses; He commits offense, _Ascribing_ this power to his god." ## The Prophet's Second Question 
 
 ###### 12 
 Are You not from everlasting, O Lord my God, my Holy One? We shall not die. O Lord, You have appointed them for judgment; O Rock, You have marked them for correction. 
@@ -54,7 +54,7 @@ _Why_ do You make men like fish of the sea, Like creeping things _that have_ no 
 They take up all of them with a hook, They catch them in their net, And gather them in their dragnet. Therefore they rejoice and are glad. 
 
 ###### 16 
-Therefore they sacrifice to their net, And burn incense to their dragnet; Because by them their share _is_ [^f]sumptuous And their food plentiful. 
+Therefore they sacrifice to their net, And burn incense to their dragnet; Because by them their share _is_ sumptuous And their food plentiful. 
 
 ###### 17 
 Shall they therefore empty their net, And continue to slay nations without pity?

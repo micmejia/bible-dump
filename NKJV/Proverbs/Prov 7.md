@@ -28,7 +28,7 @@ That they may keep you from the immoral woman, From the seductress _who_ flatter
 For at the window of my house I looked through my lattice, 
 
 ###### 7 
-And saw among the simple, I perceived among the [^a]youths, A young man devoid[^b] of understanding, 
+And saw among the simple, I perceived among the youths, A young man devoid of understanding, 
 
 ###### 8 
 Passing along the street near her corner; And he took the path to her house 
@@ -46,7 +46,7 @@ She _was_ loud and rebellious, Her feet would not stay at home.
 At times _she was_ outside, at times in the open square, Lurking at every corner. 
 
 ###### 13 
-So she caught him and kissed him; With an [^c]impudent face she said to him: 
+So she caught him and kissed him; With an impudent face she said to him: 
 
 ###### 14 
 "_I have_ peace offerings with me; Today I have paid my vows. 
@@ -64,19 +64,19 @@ I have perfumed my bed With myrrh, aloes, and cinnamon.
 Come, let us take our fill of love until morning; Let us delight ourselves with love. 
 
 ###### 19 
-For [^d]my husband _is_ not at home; He has gone on a long journey; 
+For my husband _is_ not at home; He has gone on a long journey; 
 
 ###### 20 
-He has taken a bag of money [^e]with him, _And_ will come home [^f]on the appointed day." 
+He has taken a bag of money with him, _And_ will come home on the appointed day." 
 
 ###### 21 
-[^g]With her enticing speech she caused him to yield, With her flattering lips she [^h]seduced him. 
+With her enticing speech she caused him to yield, With her flattering lips she seduced him. 
 
 ###### 22 
-Immediately he went after her, as an ox goes to the slaughter, Or [^i]as a fool to the correction of the [^j]stocks, 
+Immediately he went after her, as an ox goes to the slaughter, Or as a fool to the correction of the stocks, 
 
 ###### 23 
-Till an arrow struck his liver. As a bird hastens to the snare, He did not know it [^k]_would cost_ his life. 
+Till an arrow struck his liver. As a bird hastens to the snare, He did not know it _would cost_ his life. 
 
 ###### 24 
 Now therefore, listen to me, _my_ children; Pay attention to the words of my mouth: 
@@ -88,4 +88,4 @@ Do not let your heart turn aside to her ways, Do not stray into her paths;
 For she has cast down many wounded, And all who were slain by her were strong _men._ 
 
 ###### 27 
-Her house _is_ the way to [^l]hell, Descending to the chambers of death.
+Her house _is_ the way to hell, Descending to the chambers of death.

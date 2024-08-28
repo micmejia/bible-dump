@@ -13,7 +13,7 @@ next: ['Judg 9']
 Now the men of Ephraim said to him, "Why have you done this to us by not calling us when you went to fight with the Midianites?" And they reprimanded him sharply. 
 
 ###### 2 
-So he said to them, "What have I done now in comparison with you? _Is_ not the [^a]gleaning _of the grapes_ of Ephraim better than [^b]the vintage of Abiezer? 
+So he said to them, "What have I done now in comparison with you? _Is_ not the gleaning _of the grapes_ of Ephraim better than the vintage of Abiezer? 
 
 ###### 3 
 God has delivered into your hands the princes of Midian, Oreb and Zeeb. And what was I able to do in comparison with you?" Then their anger toward him subsided when he said that. 
@@ -25,7 +25,7 @@ When Gideon came to the Jordan, he and the three hundred men who _were_ with him
 Then he said to the men of Succoth, "Please give loaves of bread to the people who follow me, for they are exhausted, and I am pursuing Zebah and Zalmunna, kings of Midian." 
 
 ###### 6 
-And the leaders of Succoth said, "_Are_[^c] the hands of Zebah and Zalmunna now in your hand, that we should give bread to your army?" 
+And the leaders of Succoth said, "_Are_ the hands of Zebah and Zalmunna now in your hand, that we should give bread to your army?" 
 
 ###### 7 
 So Gideon said, "For this cause, when the Lord has delivered Zebah and Zalmunna into my hand, then I will tear your flesh with the thorns of the wilderness and with briers!" 
@@ -40,7 +40,7 @@ So he also spoke to the men of Penuel, saying, "When I come back in peace, I wil
 Now Zebah and Zalmunna _were_ at Karkor, and their armies with them, about fifteen thousand, all who were left of all the army of the people of the East; for one hundred and twenty thousand men who drew the sword had fallen. 
 
 ###### 11 
-Then Gideon went up by the road of those who dwell in tents on the east of Nobah and Jogbehah; and he [^d]attacked the army while the camp felt secure. 
+Then Gideon went up by the road of those who dwell in tents on the east of Nobah and Jogbehah; and he attacked the army while the camp felt secure. 
 
 ###### 12 
 When Zebah and Zalmunna fled, he pursued them; and he took the two kings of Midian, Zebah and Zalmunna, and routed the whole army. 
@@ -55,7 +55,7 @@ And he caught a young man of the men of Succoth and interrogated him; and he wro
 Then he came to the men of Succoth and said, "Here are Zebah and Zalmunna, about whom you ridiculed me, saying, '_Are_ the hands of Zebah and Zalmunna now in your hand, that we should give bread to your weary men?' " 
 
 ###### 16 
-And he took the elders of the city, and thorns of the wilderness and briers, and with them he [^e]taught the men of Succoth. 
+And he took the elders of the city, and thorns of the wilderness and briers, and with them he taught the men of Succoth. 
 
 ###### 17 
 Then he tore down the tower of Penuel and killed the men of the city. 
@@ -79,7 +79,7 @@ Then the men of Israel said to Gideon, "Rule over us, both you and your son, and
 But Gideon said to them, "I will not rule over you, nor shall my son rule over you; the Lord shall rule over you." 
 
 ###### 24 
-Then Gideon said to them, "I would like to [^f]make a request of you, that each of you would give me the earrings from his plunder." For they had golden earrings, because they _were_ Ishmaelites. 
+Then Gideon said to them, "I would like to make a request of you, that each of you would give me the earrings from his plunder." For they had golden earrings, because they _were_ Ishmaelites. 
 
 ###### 25 
 So they answered, "We will gladly give _them._" And they spread out a garment, and each man threw into it the earrings from his plunder. 

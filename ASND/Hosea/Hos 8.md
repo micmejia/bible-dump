@@ -40,7 +40,7 @@ next: ['Hos 9']
 
 
 
-"Hipan ninyo ang trumpeta upang bigyang babala ang aking mga mamamayan, ang <i class="trans-change">Israel na itinuturing kong_ tahanan,[^a] na lulusubin sila ng kalaban na kasimbilis ng agila. Sapagkat sinira nila ang kasunduan ko <i class="trans-change">sa kanila_ at nilabag nila ang aking Kautusan. 
+"Hipan ninyo ang trumpeta upang bigyang babala ang aking mga mamamayan, ang <i class="trans-change">Israel na itinuturing kong_ tahanan, na lulusubin sila ng kalaban na kasimbilis ng agila. Sapagkat sinira nila ang kasunduan ko <i class="trans-change">sa kanila_ at nilabag nila ang aking Kautusan. 
 
 
 
@@ -172,7 +172,7 @@ Pumili sila ng mga hari at mga opisyal na hindi ko pinili. Gumawa sila ng mga di
 
 
 
-Itinatakwil ko[^b] ang dios-diosang baka ng mga taga-Samaria. Galit na galit ako sa kanila. Hanggang kailan sila mananatiling marumi? 
+Itinatakwil ko ang dios-diosang baka ng mga taga-Samaria. Galit na galit ako sa kanila. Hanggang kailan sila mananatiling marumi? 
 
 
 
@@ -238,7 +238,7 @@ Ang dios-diosang baka ng Samaria ay ginawa lamang ng mga platero na taga-Israel.
 
 
 
-"Para silang naghahasik ng hangin at nag-aani ng buhawi.[^c] Para ring trigo na walang uhay, kaya walang makukuhang pagkain. At kung mamumunga man, taga-ibang bansa naman ang lalamon nito. 
+"Para silang naghahasik ng hangin at nag-aani ng buhawi. Para ring trigo na walang uhay, kaya walang makukuhang pagkain. At kung mamumunga man, taga-ibang bansa naman ang lalamon nito. 
 
 
 
@@ -304,7 +304,7 @@ Ang Israel ay parang nilamon ng ibang bansa. At ngayong nakikisalamuha na siya s
 
 
 
-Para siyang asnong-gubat na nag-iisa at naliligaw. Humingi siya ng tulong sa Asiria; binayaran niya[^d] ang kanyang mga kakamping bansa para ipagtanggol siya. 
+Para siyang asnong-gubat na nag-iisa at naliligaw. Humingi siya ng tulong sa Asiria; binayaran niya ang kanyang mga kakamping bansa para ipagtanggol siya. 
 
 
 
@@ -337,7 +337,7 @@ Para siyang asnong-gubat na nag-iisa at naliligaw. Humingi siya ng tulong sa Asi
 
 
 
-Pero kahit na nagpasakop siya sa mga bansang iyon, titipunin ko ngayon ang kanyang mga mamamayan at parurusahan. At magsisimula na ang kanilang paghihirap sa pang-aapi ng isang hari at ng mga opisyal[^e] niya. 
+Pero kahit na nagpasakop siya sa mga bansang iyon, titipunin ko ngayon ang kanyang mga mamamayan at parurusahan. At magsisimula na ang kanilang paghihirap sa pang-aapi ng isang hari at ng mga opisyal niya. 
 
 
 
@@ -436,7 +436,7 @@ Marami akong ipinasulat na kautusan para sa kanila, pero ang mga itoʼy itinurin
 
 
 
-Naghahandog sila sa akin at kinakain nila ang karneng handog,[^f] pero hindi ako nalulugod sa kanila. At ngayon aalalahanin ko ang kanilang kasamaan at parurusahan ko sila dahil sa kanilang mga kasalanan. Babalik sila sa Egipto. 
+Naghahandog sila sa akin at kinakain nila ang karneng handog, pero hindi ako nalulugod sa kanila. At ngayon aalalahanin ko ang kanilang kasamaan at parurusahan ko sila dahil sa kanilang mga kasalanan. Babalik sila sa Egipto. 
 
 
 
@@ -469,4 +469,4 @@ Naghahandog sila sa akin at kinakain nila ang karneng handog,[^f] pero hindi ako
 
 
 
-Kinalimutan ng mga taga-Israel ang lumikha sa kanila. Sila at ang mga taga-Juda ay nagtayo ng mga palasyo[^g] at maraming napapaderang bayan. Pero susunugin ko ang kanilang mga lungsod at ang matitibay na bahagi nito."
+Kinalimutan ng mga taga-Israel ang lumikha sa kanila. Sila at ang mga taga-Juda ay nagtayo ng mga palasyo at maraming napapaderang bayan. Pero susunugin ko ang kanilang mga lungsod at ang matitibay na bahagi nito."

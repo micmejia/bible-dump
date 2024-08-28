@@ -16,10 +16,10 @@ The word of the Lord that came to Jeremiah the prophet against the Philistines, 
 Thus says the Lord: "Behold, waters rise out of the north, And shall be an overflowing flood; They shall overflow the land and all that is in it, The city and those who dwell within; Then the men shall cry, And all the inhabitants of the land shall wail. 
 
 ###### 3 
-At the noise of the stamping hooves of his strong horses, At the rushing of his chariots, _At_ the rumbling of his wheels, The fathers will not look back for _their_ children, [^a]Lacking courage, 
+At the noise of the stamping hooves of his strong horses, At the rushing of his chariots, _At_ the rumbling of his wheels, The fathers will not look back for _their_ children, Lacking courage, 
 
 ###### 4 
-Because of the day that comes to plunder all the Philistines, To cut off from Tyre and Sidon every helper who remains; For the Lord shall plunder the Philistines, The remnant of the country of Caphtor.[^b] 
+Because of the day that comes to plunder all the Philistines, To cut off from Tyre and Sidon every helper who remains; For the Lord shall plunder the Philistines, The remnant of the country of Caphtor. 
 
 ###### 5 
 Baldness has come upon Gaza, Ashkelon is cut off _With_ the remnant of their valley. How long will you cut yourself? 
@@ -28,4 +28,4 @@ Baldness has come upon Gaza, Ashkelon is cut off _With_ the remnant of their val
 "O you sword of the Lord, How long until you are quiet? Put yourself up into your scabbard, Rest and be still! 
 
 ###### 7 
-How can [^c]it be quiet, Seeing the Lord has given it a charge Against Ashkelon and against the seashore? There He has appointed it."
+How can it be quiet, Seeing the Lord has given it a charge Against Ashkelon and against the seashore? There He has appointed it."

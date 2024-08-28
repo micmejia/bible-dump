@@ -49,7 +49,7 @@ Then _the man_ [an angel] brought me back the way of the outer gate of the sanct
 
 
 
-Then the Lord said to me, This gate shall be [^a]shut; it shall not be opened and no man shall enter in by it, for the Lord, the God of Israel, has entered in by it; therefore it shall remain shut. 
+Then the Lord said to me, This gate shall be shut; it shall not be opened and no man shall enter in by it, for the Lord, the God of Israel, has entered in by it; therefore it shall remain shut. 
 
 
 

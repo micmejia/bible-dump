@@ -28,7 +28,7 @@ Then He said, "Do not draw near this place. Take your sandals off your feet, for
 Moreover He said, "I _am_ the God of your father--the God of Abraham, the God of Isaac, and the God of Jacob." And Moses hid his face, for he was afraid to look upon God. 
 
 ###### 7 
-And the Lord said: "I have surely seen the oppression of My people who _are_ in Egypt, and have heard their cry because of their taskmasters, for I know their [^a]sorrows. 
+And the Lord said: "I have surely seen the oppression of My people who _are_ in Egypt, and have heard their cry because of their taskmasters, for I know their sorrows. 
 
 ###### 8 
 So I have come down to deliver them out of the hand of the Egyptians, and to bring them up from that land to a good and large land, to a land flowing with milk and honey, to the place of the Canaanites and the Hittites and the Amorites and the Perizzites and the Hivites and the Jebusites. 

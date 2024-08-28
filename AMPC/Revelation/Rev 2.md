@@ -469,7 +469,7 @@ I gave her time to repent, but she has no desire to repent of her immorality [sy
 
 
 
-Take note: I will throw her on a bed [[^a]of anguish], and those who commit adultery with her [her paramours] I will bring down to [^b]pressing distress _and_ severe affliction, unless they turn away their minds from conduct [such as] hers _and_ repent of [^c]_their_ doings. 
+Take note: I will throw her on a bed [of anguish], and those who commit adultery with her [her paramours] I will bring down to pressing distress _and_ severe affliction, unless they turn away their minds from conduct [such as] hers _and_ repent of _their_ doings. 
 
 
 

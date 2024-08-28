@@ -304,7 +304,7 @@ Ang mga kagamitang ginto at pilak sa templo ng Dios na dinala ni Haring Nebucadn
 
 
 
-Dapat nʼyong bigyan araw-araw ang mga pari sa Jerusalem ng mga pangangailangan nila gaya ng batang toro, lalaking tupa, at batang lalaking tupa bilang handog na sinusunog para sa Dios ng kalangitan,[^a] pati na rin trigo, asin, katas ng ubas, at langis. Dapat hindi kayo pumalya sa pagbibigay, 
+Dapat nʼyong bigyan araw-araw ang mga pari sa Jerusalem ng mga pangangailangan nila gaya ng batang toro, lalaking tupa, at batang lalaking tupa bilang handog na sinusunog para sa Dios ng kalangitan, pati na rin trigo, asin, katas ng ubas, at langis. Dapat hindi kayo pumalya sa pagbibigay, 
 
 
 
@@ -370,7 +370,7 @@ para makapag-alay sila ng mga handog na makakalugod sa Dios ng kalangitan, at ma
 
 
 
-"Iniuutos ko rin na ang sinumang hindi tutupad nito ay tutuhugin ng kahoy na tinanggal sa bahay niya, at ang bahay niya ay gigibain hanggang sa wala nang bahagi nito ang maiwang nakatayo.[^b] 
+"Iniuutos ko rin na ang sinumang hindi tutupad nito ay tutuhugin ng kahoy na tinanggal sa bahay niya, at ang bahay niya ay gigibain hanggang sa wala nang bahagi nito ang maiwang nakatayo. 
 
 
 
@@ -568,7 +568,7 @@ Masayang nagdiwang sa pagtatalaga ng templo ng Dios ang mamamayan ng Israel – 
 
 
 
-Sa pagtatalagang ito ng templo ng Dios, naghandog sila ng 100 toro, 200 lalaking tupa, at 400 batang lalaking tupa. Naghandog din sila ng 12 lalaking kambing bilang handog sa paglilinis[^c] ng bawat lahi ng Israel. 
+Sa pagtatalagang ito ng templo ng Dios, naghandog sila ng 100 toro, 200 lalaking tupa, at 400 batang lalaking tupa. Naghandog din sila ng 12 lalaking kambing bilang handog sa paglilinis ng bawat lahi ng Israel. 
 
 
 

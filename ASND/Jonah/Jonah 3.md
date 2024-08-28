@@ -172,7 +172,7 @@ Pumasok si Jonas sa Nineve. Pagkatapos ng maghapong paglalakad, sinabi niya <i c
 
 
 
-Naniwala ang mga taga-roon sa pahayag na ito mula sa Dios. Kaya lahat sila, mula sa pinakadakila hanggang sa pinakaaba ay nagsuot ng damit na panluksa[^a] at nag-ayuno <i class="trans-change">upang ipakita ang kanilang pagsisisi_. 
+Naniwala ang mga taga-roon sa pahayag na ito mula sa Dios. Kaya lahat sila, mula sa pinakadakila hanggang sa pinakaaba ay nagsuot ng damit na panluksa at nag-ayuno <i class="trans-change">upang ipakita ang kanilang pagsisisi_. 
 
 
 

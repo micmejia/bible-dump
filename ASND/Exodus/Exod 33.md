@@ -106,7 +106,7 @@ Pauunahin ko ang anghel sa inyo, at itataboy ko ang mga Cananeo, Amoreo, Heteo, 
 
 
 
-sa lugar na iyon. Kayo lang ang pupunta roon sa maganda at masaganang lupain;[^a] hindi ko kayo sasamahan dahil matigas ang mga ulo ninyo, at baka mapatay ko pa kayo habang nasa daan." 
+sa lugar na iyon. Kayo lang ang pupunta roon sa maganda at masaganang lupain; hindi ko kayo sasamahan dahil matigas ang mga ulo ninyo, at baka mapatay ko pa kayo habang nasa daan." 
 
 
 

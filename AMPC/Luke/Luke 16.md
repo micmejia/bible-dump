@@ -28,7 +28,7 @@ next: ['Luke 17']
 
 
 
-Also [Jesus] said to the disciples, There was a certain rich man who had a [^a]manager of his estate, and accusations [against this man] were brought to him, that he was squandering his [master's] possessions. 
+Also [Jesus] said to the disciples, There was a certain rich man who had a manager of his estate, and accusations [against this man] were brought to him, that he was squandering his [master's] possessions. 
 
 
 
@@ -133,7 +133,7 @@ So he summoned his master's debtors one by one, and he said to the first, How mu
 
 
 
-He said, A hundred measures [about 900 gallons] of oil. And he said to him, Take back your written acknowledgement of [^b]obligation, and sit down quickly and write fifty [about 450 gallons]. 
+He said, A hundred measures [about 900 gallons] of oil. And he said to him, Take back your written acknowledgement of obligation, and sit down quickly and write fifty [about 450 gallons]. 
 
 
 
@@ -154,7 +154,7 @@ He said, A hundred measures [about 900 gallons] of oil. And he said to him, Take
 
 
 
-After that he said to another, And how much do you owe? He said, A hundred measures [about 900 bushels] of wheat. He said to him, Take back your written acknowledgement of [^c]obligation, and write eighty [about 700 bushels]. 
+After that he said to another, And how much do you owe? He said, A hundred measures [about 900 bushels] of wheat. He said to him, Take back your written acknowledgement of obligation, and write eighty [about 700 bushels]. 
 
 
 
@@ -175,7 +175,7 @@ After that he said to another, And how much do you owe? He said, A hundred measu
 
 
 
-And [his] master praised the dishonest (unjust) manager for acting [^d]shrewdly _and_ [^e]prudently; for the sons of this age are shrewder _and_ more prudent _and_ wiser in [[^f]relation to] their own generation [to their own age and [^g]kind] than are the sons of light. 
+And [his] master praised the dishonest (unjust) manager for acting shrewdly _and_ prudently; for the sons of this age are shrewder _and_ more prudent _and_ wiser in [relation to] their own generation [to their own age and kind] than are the sons of light. 
 
 
 
@@ -196,7 +196,7 @@ And [his] master praised the dishonest (unjust) manager for acting [^d]shrewdly 
 
 
 
-And I tell you, make friends for yourselves by means of unrighteous mammon ([^h]deceitful riches, money, possessions), so that when it fails, they [those you have favored] may receive _and_ welcome you into the everlasting habitations (dwellings). 
+And I tell you, make friends for yourselves by means of unrighteous mammon (deceitful riches, money, possessions), so that when it fails, they [those you have favored] may receive _and_ welcome you into the everlasting habitations (dwellings). 
 
 
 
@@ -238,7 +238,7 @@ He who is faithful in a very little [thing] is faithful also in much, and he who
 
 
 
-Therefore if you have not been faithful in the [case of] unrighteous mammon ([^i]deceitful riches, money, possessions), who will entrust to you the true riches? 
+Therefore if you have not been faithful in the [case of] unrighteous mammon (deceitful riches, money, possessions), who will entrust to you the true riches? 
 
 
 
@@ -259,7 +259,7 @@ Therefore if you have not been faithful in the [case of] unrighteous mammon ([^i
 
 
 
-And if you have not proved faithful in that which belongs to another [whether God or man], who will give you that which is your own [that is, [^j]the true riches]? 
+And if you have not proved faithful in that which belongs to another [whether God or man], who will give you that which is your own [that is, the true riches]? 
 
 
 
@@ -280,7 +280,7 @@ And if you have not proved faithful in that which belongs to another [whether Go
 
 
 
-No servant is able to serve two masters; for either he will hate the one and love the other, or he will stand by _and_ be devoted to the one and despise the other. You cannot serve God and mammon (riches, or [^k]anything in which you trust and on which you rely). 
+No servant is able to serve two masters; for either he will hate the one and love the other, or he will stand by _and_ be devoted to the one and despise the other. You cannot serve God and mammon (riches, or anything in which you trust and on which you rely). 
 
 
 
@@ -343,7 +343,7 @@ But He said to them, You are the ones who declare yourselves just _and_ upright 
 
 
 
-Until John came, there were the Law and the Prophets; since then the good news (the Gospel) of the kingdom of God is being preached, and everyone strives violently to go in [would force his [^l]own way rather than God's way into it]. 
+Until John came, there were the Law and the Prophets; since then the good news (the Gospel) of the kingdom of God is being preached, and everyone strives violently to go in [would force his own way rather than God's way into it]. 
 
 
 
@@ -406,7 +406,7 @@ Whoever divorces (dismisses and repudiates) his wife and marries another commits
 
 
 
-There was a certain rich man who [habitually] clothed himself in purple and fine linen and [^m]reveled _and_ feasted _and_ made merry in splendor every day. 
+There was a certain rich man who [habitually] clothed himself in purple and fine linen and reveled _and_ feasted _and_ made merry in splendor every day. 
 
 
 
@@ -427,7 +427,7 @@ There was a certain rich man who [habitually] clothed himself in purple and fine
 
 
 
-And at his gate there [^n]was [carelessly] dropped down _and_ left a certain [^o]utterly destitute man named Lazarus, [reduced to begging alms and] covered with [[^p]ulcerated] sores. 
+And at his gate there was [carelessly] dropped down _and_ left a certain utterly destitute man named Lazarus, [reduced to begging alms and] covered with [ulcerated] sores. 
 
 
 
@@ -637,7 +637,7 @@ But Abraham said, They have Moses and the Prophets; let them hear _and_ listen t
 
 
 
-But he answered, No, father Abraham, but if someone from the dead goes to them, they will repent ([^q]change their minds for the better and heartily amend their ways, with abhorrence of their past sins). 
+But he answered, No, father Abraham, but if someone from the dead goes to them, they will repent (change their minds for the better and heartily amend their ways, with abhorrence of their past sins). 
 
 
 

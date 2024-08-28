@@ -12,16 +12,16 @@ next: ['Eccl 2']
 The words of the Preacher, the son of David, king in Jerusalem. 
 
 ###### 2 
-"Vanity[^a] of vanities," says the Preacher; "Vanity of vanities, all _is_ vanity." 
+"Vanity of vanities," says the Preacher; "Vanity of vanities, all _is_ vanity." 
 
 ###### 3 
-What profit has a man from all his labor In which he [^b]toils under the sun? 
+What profit has a man from all his labor In which he toils under the sun? 
 
 ###### 4 
 _One_ generation passes away, and _another_ generation comes; But the earth abides forever. 
 
 ###### 5 
-The sun also rises, and the sun goes down, And [^c]hastens to the place where it arose. 
+The sun also rises, and the sun goes down, And hastens to the place where it arose. 
 
 ###### 6 
 The wind goes toward the south, And turns around to the north; The wind whirls about continually, And comes again on its circuit. 
@@ -30,7 +30,7 @@ The wind goes toward the south, And turns around to the north; The wind whirls a
 All the rivers run into the sea, Yet the sea _is_ not full; To the place from which the rivers come, There they return again. 
 
 ###### 8 
-All things _are_ [^d]full of labor; Man cannot express _it._ The eye is not satisfied with seeing, Nor the ear filled with hearing. 
+All things _are_ full of labor; Man cannot express _it._ The eye is not satisfied with seeing, Nor the ear filled with hearing. 
 
 ###### 9 
 That which has been _is_ what will be, That which _is_ done is what will be done, And _there is_ nothing new under the sun. 
@@ -45,7 +45,7 @@ _There is_ no remembrance of former _things,_ Nor will there be any remembrance 
 I, the Preacher, was king over Israel in Jerusalem. 
 
 ###### 13 
-And I set my heart to seek and search out by wisdom concerning all that is done under heaven; this burdensome task God has given to the sons of man, by which they may be [^e]exercised. 
+And I set my heart to seek and search out by wisdom concerning all that is done under heaven; this burdensome task God has given to the sons of man, by which they may be exercised. 
 
 ###### 14 
 I have seen all the works that are done under the sun; and indeed, all _is_ vanity and grasping for the wind. 
@@ -54,7 +54,7 @@ I have seen all the works that are done under the sun; and indeed, all _is_ vani
 _What is_ crooked cannot be made straight, And what is lacking cannot be numbered. 
 
 ###### 16 
-I communed with my heart, saying, "Look, I have attained greatness, and have gained more wisdom than all who were before me in Jerusalem. My heart has [^f]understood great wisdom and knowledge." 
+I communed with my heart, saying, "Look, I have attained greatness, and have gained more wisdom than all who were before me in Jerusalem. My heart has understood great wisdom and knowledge." 
 
 ###### 17 
 And I set my heart to know wisdom and to know madness and folly. I perceived that this also is grasping for the wind. 

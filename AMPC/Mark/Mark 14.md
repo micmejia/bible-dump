@@ -70,7 +70,7 @@ For they kept saying, It must not be during the Feast, for fear that there might
 
 
 
-And while He was in Bethany, [a guest] in the house of Simon the leper, as He was reclining [at table], a woman came with an alabaster jar of ointment ([^a]perfume) of pure nard, very costly _and_ precious; and she broke the jar and poured [the perfume] over His head. 
+And while He was in Bethany, [a guest] in the house of Simon the leper, as He was reclining [at table], a woman came with an alabaster jar of ointment (perfume) of pure nard, very costly _and_ precious; and she broke the jar and poured [the perfume] over His head. 
 
 
 
@@ -91,7 +91,7 @@ And while He was in Bethany, [a guest] in the house of Simon the leper, as He wa
 
 
 
-But there were some who were moved with indignation and said to themselves, To what purpose was the ointment ([^b]perfume) thus wasted? 
+But there were some who were moved with indignation and said to themselves, To what purpose was the ointment (perfume) thus wasted? 
 
 
 
@@ -532,7 +532,7 @@ And He said to them, This is My blood [which ratifies] the _new_ covenant, [the 
 
 
 
-Solemnly _and_ surely I tell you, I shall not again drink of the fruit of the vine till that day when I drink it [^c]of a new _and_ a higher quality in God's kingdom. 
+Solemnly _and_ surely I tell you, I shall not again drink of the fruit of the vine till that day when I drink it of a new _and_ a higher quality in God's kingdom. 
 
 
 
@@ -700,7 +700,7 @@ Then they went to a place called Gethsemane, and He said to His disciples, Sit d
 
 
 
-And He took with Him Peter and James and John, and began to be [^d]struck with terror _and_ amazement and deeply troubled _and_ depressed. 
+And He took with Him Peter and James and John, and began to be struck with terror _and_ amazement and deeply troubled _and_ depressed. 
 
 
 
@@ -742,7 +742,7 @@ And He said to them, My soul is exceedingly sad (overwhelmed with grief) so that
 
 
 
-And going a little farther, He fell on the ground and kept praying that if it were possible the [[^e]fatal] hour might pass from Him. 
+And going a little farther, He fell on the ground and kept praying that if it were possible the [fatal] hour might pass from Him. 
 
 
 
@@ -868,7 +868,7 @@ And again He came back and found them sleeping, for their eyes were very heavy; 
 
 
 
-And He came back a third time and said to them, Are you still sleeping and resting? It is enough [of that]! The hour has come. The Son of Man is betrayed into the hands of sinful men (men [^f]whose way or nature is to act in opposition to God). 
+And He came back a third time and said to them, Are you still sleeping and resting? It is enough [of that]! The hour has come. The Son of Man is betrayed into the hands of sinful men (men whose way or nature is to act in opposition to God). 
 
 
 
@@ -952,7 +952,7 @@ Now the betrayer had given them a signal, saying, The One I shall kiss is [the M
 
 
 
-And when he came, he went up to Jesus immediately and said, Master! _Master_! and he [^g]embraced Him _and_ kissed Him fervently. 
+And when he came, he went up to Jesus immediately and said, Master! _Master_! and he embraced Him _and_ kissed Him fervently. 
 
 
 
@@ -1036,7 +1036,7 @@ And Jesus said to them, Have you come out with swords and clubs as [you would] a
 
 
 
-I was with you daily in the temple [[^h]porches and courts] teaching, and you did not seize Me; but [this has happened] that the Scriptures might be fulfilled. 
+I was with you daily in the temple [porches and courts] teaching, and you did not seize Me; but [this has happened] that the Scriptures might be fulfilled. 
 
 
 
@@ -1078,7 +1078,7 @@ Then [His disciples], forsaking Him, fled, all [of them].
 
 
 
-And a young man was following Him, with nothing but a linen cloth ([^i]sheet) thrown about [his] naked [body]; and they laid hold of him, 
+And a young man was following Him, with nothing but a linen cloth (sheet) thrown about [his] naked [body]; and they laid hold of him, 
 
 
 
@@ -1099,7 +1099,7 @@ And a young man was following Him, with nothing but a linen cloth ([^i]sheet) th
 
 
 
-But, leaving behind the linen cloth ([^j]sheet), he fled from them naked. 
+But, leaving behind the linen cloth (sheet), he fled from them naked. 
 
 
 
@@ -1141,7 +1141,7 @@ And they led Jesus away to the high priest, and all the chief priests and the el
 
 
 
-And Peter followed Him at a distance, even right into the courtyard of the high priest. And he was sitting [[^k]in the firelight] with the guards and warming himself at the fire. 
+And Peter followed Him at a distance, even right into the courtyard of the high priest. And he was sitting [in the firelight] with the guards and warming himself at the fire. 
 
 
 
@@ -1309,7 +1309,7 @@ But He kept still and did not answer at all. Again the high priest asked Him, Ar
 
 
 
-And Jesus said, I Am; and you will [all] see the Son of Man seated at the right hand of Power ([^l]the Almighty) and coming on the clouds of heaven. 
+And Jesus said, I Am; and you will [all] see the Son of Man seated at the right hand of Power (the Almighty) and coming on the clouds of heaven. 
 
 
 
@@ -1435,7 +1435,7 @@ And when she saw Peter warming himself, she gazed intently at him and said, You 
 
 
 
-But he denied it [^m]falsely _and_ disowned Him, saying, I neither know nor understand what you say. Then he went outside [the courtyard and was] into the [^n]vestibule. [^o]_And a cock crowed_. 
+But he denied it falsely _and_ disowned Him, saying, I neither know nor understand what you say. Then he went outside [the courtyard and was] into the vestibule. _And a cock crowed_. 
 
 
 
@@ -1477,7 +1477,7 @@ And the maidservant saw him, and began again to say to the bystanders, This [man
 
 
 
-But again he denied it [^p]falsely _and_ disowned Him. And after a short while, again the bystanders said to Peter, [^q]Really, you are one of them, for you are a Galilean [^r]_and your dialect shows it_. 
+But again he denied it falsely _and_ disowned Him. And after a short while, again the bystanders said to Peter, Really, you are one of them, for you are a Galilean _and your dialect shows it_. 
 
 
 
@@ -1519,4 +1519,4 @@ Then he commenced invoking a curse on himself [should he not be telling the trut
 
 
 
-And at once for the second time a cock crowed. And Peter remembered how Jesus said to him, Before a cock crows twice, you will [^s]utterly deny Me [disclaiming all connection with Me] three times. And [^t]having put his thought upon it [and remembering], he broke down _and_ wept aloud _and_ [^u]lamented.
+And at once for the second time a cock crowed. And Peter remembered how Jesus said to him, Before a cock crows twice, you will utterly deny Me [disclaiming all connection with Me] three times. And having put his thought upon it [and remembering], he broke down _and_ wept aloud _and_ lamented.

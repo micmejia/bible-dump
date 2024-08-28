@@ -40,7 +40,7 @@ next: ['Isa 13']
 
 
 
-Sa araw na iyon, aawit kayo: "Panginoon, pinupuri[^a] ko kayo. Nagalit kayo sa akin, pero hindi na ngayon, at ngayoʼy inaaliw nʼyo na ako. 
+Sa araw na iyon, aawit kayo: "Panginoon, pinupuri ko kayo. Nagalit kayo sa akin, pero hindi na ngayon, at ngayoʼy inaaliw nʼyo na ako. 
 
 
 
@@ -139,7 +139,7 @@ Kung paanong ang malamig na tubig ay nagbibigay kagalakan sa nauuhaw, kayo naman
 
 
 
-Pagsapit ng araw na iyon, aawit kayo: "Purihin ninyo ang Panginoon! Sambahin nʼyo siya! Sabihin nʼyo sa mga bansa ang kanyang mga ginawa. Sabihin nʼyo na karapat-dapat siyang purihin.[^b] 
+Pagsapit ng araw na iyon, aawit kayo: "Purihin ninyo ang Panginoon! Sambahin nʼyo siya! Sabihin nʼyo sa mga bansa ang kanyang mga ginawa. Sabihin nʼyo na karapat-dapat siyang purihin. 
 
 
 

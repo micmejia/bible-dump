@@ -733,7 +733,7 @@ Kung patatawarin nʼyo ang kasalanan ng isang tao, pinatawad na siya <i class="t
 
 
 
-Si Tomas na tinatawag na Kambal,[^a] na isa rin sa 12 <i class="trans-change">apostol_ ay hindi nila kasama noong nagpakita si Jesus. 
+Si Tomas na tinatawag na Kambal, na isa rin sa 12 <i class="trans-change">apostol_ ay hindi nila kasama noong nagpakita si Jesus. 
 
 
 

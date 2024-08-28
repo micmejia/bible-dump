@@ -13,10 +13,10 @@ next: ['Jer 34']
 Moreover the word of the Lord came to Jeremiah a second time, while he was still shut up in the court of the prison, saying, 
 
 ###### 2 
-"Thus says the Lord who made it, the Lord who formed it to establish it (the[^a] Lord _is_ His name): 
+"Thus says the Lord who made it, the Lord who formed it to establish it (the Lord _is_ His name): 
 
 ###### 3 
-'Call to Me, and I will answer you, and show you great and [^b]mighty things, which you do not know.' 
+'Call to Me, and I will answer you, and show you great and mighty things, which you do not know.' 
 
 ###### 4 
 "For thus says the Lord, the God of Israel, concerning the houses of this city and the houses of the kings of Judah, which have been pulled down _to fortify_ against the siege mounds and the sword: 
@@ -55,13 +55,13 @@ In the cities of the mountains, in the cities of the lowland, in the cities of t
 'In those days and at that time I will cause to grow up to David A Branch of righteousness; He shall execute judgment and righteousness in the earth. 
 
 ###### 16 
-In those days Judah will be saved, And Jerusalem will dwell safely. And this _is the name_ by which she will be called: [^c]THE LORD OUR RIGHTEOUSNESS.' 
+In those days Judah will be saved, And Jerusalem will dwell safely. And this _is the name_ by which she will be called: THE LORD OUR RIGHTEOUSNESS.' 
 
 ###### 17 
 "For thus says the Lord: 'David shall never lack a man to sit on the throne of the house of Israel; 
 
 ###### 18 
-nor shall the priests, the Levites, lack a man to offer burnt offerings before Me, to [^d]kindle grain offerings, and to sacrifice continually.' " ## The Permanence of God's Covenant 
+nor shall the priests, the Levites, lack a man to offer burnt offerings before Me, to kindle grain offerings, and to sacrifice continually.' " ## The Permanence of God's Covenant 
 
 ###### 19 
 And the word of the Lord came to Jeremiah, saying, 

@@ -105,7 +105,7 @@ Nakipag-usap si Solomon sa lahat ng mga Israelita – sa mga kumander ng mga lib
 
 
 
-Pagkatapos, umalis si Solomon at ang lahat ng tao papuntang sambahan sa matataas na lugar[^a] sa Gibeon, dahil naroon ang Toldang Tipanan ng Dios. Ang toldang ito ay ang ipinagawa ni Moises na lingkod ng Panginoon sa disyerto. 
+Pagkatapos, umalis si Solomon at ang lahat ng tao papuntang sambahan sa matataas na lugar sa Gibeon, dahil naroon ang Toldang Tipanan ng Dios. Ang toldang ito ay ang ipinagawa ni Moises na lingkod ng Panginoon sa disyerto. 
 
 
 
@@ -468,7 +468,7 @@ Pagkatapos, umalis si Solomon sa Toldang Tipanan doon sa sambahan sa matataas na
 
 
 
-Nakapagtipon si Solomon ng 1,400 karwahe at 12,000 kabayo.[^b] Inilagay niya ang iba nito sa mga lungsod na taguan ng kanyang mga karwahe, at ang ibaʼy doon sa Jerusalem. 
+Nakapagtipon si Solomon ng 1,400 karwahe at 12,000 kabayo. Inilagay niya ang iba nito sa mga lungsod na taguan ng kanyang mga karwahe, at ang ibaʼy doon sa Jerusalem. 
 
 
 
@@ -501,7 +501,7 @@ Nakapagtipon si Solomon ng 1,400 karwahe at 12,000 kabayo.[^b] Inilagay niya ang
 
 
 
-Nang panahong siya ang hari, ang pilak at ginto sa Jerusalem ay parang <i class="trans-change">ordinaryong_ mga bato lang, at ang kahoy na sedro ay kasindami ng <i class="trans-change">ordinaryong mga_ kahoy na sikomoro sa mga kaburulan sa kanluran.[^c] 
+Nang panahong siya ang hari, ang pilak at ginto sa Jerusalem ay parang <i class="trans-change">ordinaryong_ mga bato lang, at ang kahoy na sedro ay kasindami ng <i class="trans-change">ordinaryong mga_ kahoy na sikomoro sa mga kaburulan sa kanluran. 
 
 
 
@@ -534,7 +534,7 @@ Nang panahong siya ang hari, ang pilak at ginto sa Jerusalem ay parang <i class=
 
 
 
-Ang mga kabayo ni Solomon ay nagmula pa sa Egipto[^d] at sa Cilicia.[^e] Binili ito sa Cilicia ng kanyang mga tagabili sa tamang halaga. 
+Ang mga kabayo ni Solomon ay nagmula pa sa Egipto at sa Cilicia. Binili ito sa Cilicia ng kanyang mga tagabili sa tamang halaga. 
 
 
 
@@ -567,4 +567,4 @@ Ang mga kabayo ni Solomon ay nagmula pa sa Egipto[^d] at sa Cilicia.[^e] Binili 
 
 
 
-Nang panahong iyon, ang halaga ng karwahe na mula sa Egipto ay 600 pirasong pilak at ang kabayo ay 150 pirasong pilak. Ipinagbili rin nila ito sa lahat ng hari ng mga Heteo at mga Arameo.[^f]
+Nang panahong iyon, ang halaga ng karwahe na mula sa Egipto ay 600 pirasong pilak at ang kabayo ay 150 pirasong pilak. Ipinagbili rin nila ito sa lahat ng hari ng mga Heteo at mga Arameo.

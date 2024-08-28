@@ -21,7 +21,7 @@ It came also in the days of Jehoiakim the son of Josiah, king of Judah, until th
 Then the word of the Lord came to me, saying: 
 
 ###### 5 
-"Before I formed you in the womb I knew you; Before you were born I sanctified[^a] you; I [^b]ordained you a prophet to the nations." 
+"Before I formed you in the womb I knew you; Before you were born I sanctified you; I ordained you a prophet to the nations." 
 
 ###### 6 
 Then said I: "Ah, Lord God! Behold, I cannot speak, for I _am_ a youth." 
@@ -39,10 +39,10 @@ Then the Lord put forth His hand and touched my mouth, and the Lord said to me: 
 See, I have this day set you over the nations and over the kingdoms, To root out and to pull down, To destroy and to throw down, To build and to plant." 
 
 ###### 11 
-Moreover the word of the Lord came to me, saying, "Jeremiah, what do you see?" And I said, "I see a [^c]branch of an almond tree." 
+Moreover the word of the Lord came to me, saying, "Jeremiah, what do you see?" And I said, "I see a branch of an almond tree." 
 
 ###### 12 
-Then the Lord said to me, "You have seen well, for I am [^d]ready to perform My word." 
+Then the Lord said to me, "You have seen well, for I am ready to perform My word." 
 
 ###### 13 
 And the word of the Lord came to me the second time, saying, "What do you see?" And I said, "I see a boiling pot, and it is facing away from the north." 

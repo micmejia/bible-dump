@@ -205,7 +205,7 @@ Sa panglimang beses pinapunta ni Sanbalat sa akin ang alipin niya na may dalang 
 
 
 
-At ito ang nakasulat: "Ipinagtapat sa akin ni Geshem[^a] na kahit saan siya pumunta ay naririnig niyang ikaw at ang mga Judio ay nagbabalak mag-alsa, at iyan ang dahilan kung bakit muli ninyong ipinapatayo ang pader. At ayon sa narinig niya, gusto mong maging hari ng mga Judio, 
+At ito ang nakasulat: "Ipinagtapat sa akin ni Geshem na kahit saan siya pumunta ay naririnig niyang ikaw at ang mga Judio ay nagbabalak mag-alsa, at iyan ang dahilan kung bakit muli ninyong ipinapatayo ang pader. At ayon sa narinig niya, gusto mong maging hari ng mga Judio, 
 
 
 

@@ -40,7 +40,7 @@ next: ['Mark 12']
 
 
 
-Nang malapit na sina Jesus sa Jerusalem, <i class="trans-change">tumigil_ sila sa Bundok ng mga Olibo malapit sa <i class="trans-change">mga nayon ng_ Betfage at Betania.[^a] Pinauna ni Jesus ang dalawa niyang tagasunod. 
+Nang malapit na sina Jesus sa Jerusalem, <i class="trans-change">tumigil_ sila sa Bundok ng mga Olibo malapit sa <i class="trans-change">mga nayon ng_ Betfage at Betania. Pinauna ni Jesus ang dalawa niyang tagasunod. 
 
 
 
@@ -304,7 +304,7 @@ Maraming tao ang naglatag ng mga balabal nila sa daan, at ang iba naman ay nagla
 
 
 
-Ang mga nauuna kay Jesus at ang mga sumusunod sa kanya ay sumisigaw, "Purihin ang Dios! Pagpalain ang dumarating sa pangalan ng Panginoon![^b] 
+Ang mga nauuna kay Jesus at ang mga sumusunod sa kanya ay sumisigaw, "Purihin ang Dios! Pagpalain ang dumarating sa pangalan ng Panginoon! 
 
 
 
@@ -568,7 +568,7 @@ Pinagbawalan niya ang mga taong may paninda na dumaan sa templo.
 
 
 
-Pagkatapos, pinangaralan niya ang mga tao roon. Sinabi niya, "Hindi baʼt sinasabi <i class="trans-change">ng Dios_ sa Kasulatan, 'Ang aking bahay ay magiging bahay-panalanginan ng lahat ng bansa'?[^c] Ngunit ginawa ninyong pugad ng mga tulisan."[^d] 
+Pagkatapos, pinangaralan niya ang mga tao roon. Sinabi niya, "Hindi baʼt sinasabi <i class="trans-change">ng Dios_ sa Kasulatan, 'Ang aking bahay ay magiging bahay-panalanginan ng lahat ng bansa'? Ngunit ginawa ninyong pugad ng mga tulisan." 
 
 
 
@@ -931,7 +931,7 @@ Pagdating nila sa Jerusalem, bumalik si Jesus sa templo. At habang naglalakad si
 
 
 
-Tinanong nila si Jesus, "Ano ang awtoridad mo na gumawa ng mga bagay na ito?[^e] Sino ang nagbigay sa iyo ng awtoridad na iyan?" 
+Tinanong nila si Jesus, "Ano ang awtoridad mo na gumawa ng mga bagay na ito? Sino ang nagbigay sa iyo ng awtoridad na iyan?" 
 
 
 
@@ -997,7 +997,7 @@ Sinagot sila ni Jesus, "Tatanungin ko rin kayo. At kapag sinagot ninyo, sasabihi
 
 
 
-Kanino galing ang awtoridad ni Juan para magbautismo, sa Dios[^f] o sa tao? Sagutin ninyo ako!" 
+Kanino galing ang awtoridad ni Juan para magbautismo, sa Dios o sa tao? Sagutin ninyo ako!" 
 
 
 

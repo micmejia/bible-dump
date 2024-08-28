@@ -10,7 +10,7 @@ next: ['Gen 29']
 
 
 ###### 1 
-Then Isaac called Jacob and blessed him, and [^a]charged him, and said to him: "You shall not take a wife from the daughters of Canaan. 
+Then Isaac called Jacob and blessed him, and charged him, and said to him: "You shall not take a wife from the daughters of Canaan. 
 
 ###### 2 
 Arise, go to Padan Aram, to the house of Bethuel your mother's father; and take yourself a wife from there of the daughters of Laban your mother's brother. 
@@ -19,7 +19,7 @@ Arise, go to Padan Aram, to the house of Bethuel your mother's father; and take 
 "May God Almighty bless you, And make you fruitful and multiply you, That you may be an assembly of peoples; 
 
 ###### 4 
-And give you the blessing of Abraham, To you and your descendants with you, That you may inherit the land In[^b] which you are a stranger, Which God gave to Abraham." 
+And give you the blessing of Abraham, To you and your descendants with you, That you may inherit the land In which you are a stranger, Which God gave to Abraham." 
 
 ###### 5 
 So Isaac sent Jacob away, and he went to Padan Aram, to Laban the son of Bethuel the Syrian, the brother of Rebekah, the mother of Jacob and Esau. ## Esau Marries Mahalath 
@@ -52,7 +52,7 @@ And behold, the Lord stood above it and said: "I _am_ the Lord God of Abraham yo
 Also your descendants shall be as the dust of the earth; you shall spread abroad to the west and the east, to the north and the south; and in you and in your seed all the families of the earth shall be blessed. 
 
 ###### 15 
-Behold, I _am_ with you and will keep[^c] you wherever you go, and will bring you back to this land; for I will not leave you until I have done what I have spoken to you." 
+Behold, I _am_ with you and will keep you wherever you go, and will bring you back to this land; for I will not leave you until I have done what I have spoken to you." 
 
 ###### 16 
 Then Jacob awoke from his sleep and said, "Surely the Lord is in this place, and I did not know _it._" 
@@ -64,7 +64,7 @@ And he was afraid and said, "How awesome _is_ this place! This _is_ none other t
 Then Jacob rose early in the morning, and took the stone that he had put at his head, set it up as a pillar, and poured oil on top of it. 
 
 ###### 19 
-And he called the name of that place [^d]Bethel; but the name of that city had been Luz previously. 
+And he called the name of that place Bethel; but the name of that city had been Luz previously. 
 
 ###### 20 
 Then Jacob made a vow, saying, "If God will be with me, and keep me in this way that I am going, and give me bread to eat and clothing to put on, 
@@ -73,4 +73,4 @@ Then Jacob made a vow, saying, "If God will be with me, and keep me in this way 
 so that I come back to my father's house in peace, then the Lord shall be my God. 
 
 ###### 22 
-And this stone which I have set as a pillar shall be God's house, and of all that You give me I will surely give a [^e]tenth to You."
+And this stone which I have set as a pillar shall be God's house, and of all that You give me I will surely give a tenth to You."

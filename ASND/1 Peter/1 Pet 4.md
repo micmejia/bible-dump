@@ -601,7 +601,7 @@ Dumating na ang panahong magsisimula na ang Dios sa paghatol sa mga anak niya. A
 
 
 
-<i class="trans-change">Tulad ng sinasabi sa Kasulatan,_ "Kung ang mga matuwid ay halos hindi maligtas, ano pa kaya ang mangyayari sa mga makasalanan at hindi kumikilala sa Dios?"[^a] 
+<i class="trans-change">Tulad ng sinasabi sa Kasulatan,_ "Kung ang mga matuwid ay halos hindi maligtas, ano pa kaya ang mangyayari sa mga makasalanan at hindi kumikilala sa Dios?" 
 
 
 

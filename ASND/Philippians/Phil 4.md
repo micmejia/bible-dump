@@ -105,7 +105,7 @@ Nakikiusap ako kina Eudia at Syntique, na magkasundo na sila bilang magkapatid s
 
 
 
-At nakikiusap din ako sa iyo, tapat kong kasama sa pangangaral, na tulungan mo ang mga babaeng ito. Sapagkat katulong ko sila sa pagpapalaganap ng Magandang Balita, kasama nina Clement at ng iba ko pang kamanggagawa na ang mga pangalan ay nakasulat sa aklat ng buhay.[^a] 
+At nakikiusap din ako sa iyo, tapat kong kasama sa pangangaral, na tulungan mo ang mga babaeng ito. Sapagkat katulong ko sila sa pagpapalaganap ng Magandang Balita, kasama nina Clement at ng iba ko pang kamanggagawa na ang mga pangalan ay nakasulat sa aklat ng buhay. 
 
 
 
@@ -699,7 +699,7 @@ Purihin natin ang ating Dios at Ama magpakailanman. Amen. ## Mga Huling Panganga
 
 
 
-Ikumusta nʼyo ako sa lahat ng mga pinabanal[^b] diyan <i class="trans-change">ng Dios_ na nakay Cristo Jesus. Kinukumusta kayo ng mga kapatid <i class="trans-change">kay Cristo_ na kasama ko rito. 
+Ikumusta nʼyo ako sa lahat ng mga pinabanal diyan <i class="trans-change">ng Dios_ na nakay Cristo Jesus. Kinukumusta kayo ng mga kapatid <i class="trans-change">kay Cristo_ na kasama ko rito. 
 
 
 

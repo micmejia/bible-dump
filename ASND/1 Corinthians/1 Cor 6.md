@@ -40,7 +40,7 @@ next: ['1 Cor 7']
 
 
 
-Kapag may reklamo ang isa sa inyo laban sa kanyang kapatid, bakit dinadala niya ito sa hukom na hindi sumasampalataya sa Dios? Dapat dalhin niya ito sa mga sumasampalataya sa Dios[^a] 
+Kapag may reklamo ang isa sa inyo laban sa kanyang kapatid, bakit dinadala niya ito sa hukom na hindi sumasampalataya sa Dios? Dapat dalhin niya ito sa mga sumasampalataya sa Dios 
 
 
 
@@ -271,7 +271,7 @@ Kayo mismo ang talo sa pagkakaroon ninyo ng mga kaso laban sa isaʼt isa. Bakit 
 
 
 
-Ngunit ang nangyayari, kayo pa mismo ang gumagawa ng masama at nandaraya, at ginagawa ninyo ito mismo sa inyong kapatid <i class="trans-change">sa Panginoon_. <sup class="versenum">9-10</sup>Hindi nʼyo ba alam na hindi magmamana ng kaharian ng Dios ang masasama? Huwag kayong palilinlang! Sapagkat kailanmaʼy hindi magmamana ng kaharian ng Dios ang mga imoral,[^b] sumasamba sa dios-diosan, nangangalunya, nakikipagrelasyon sa kapwa lalaki o babae, magnanakaw, sakim, lasenggo, mapanlait, at mandarambong. 
+Ngunit ang nangyayari, kayo pa mismo ang gumagawa ng masama at nandaraya, at ginagawa ninyo ito mismo sa inyong kapatid <i class="trans-change">sa Panginoon_. <sup class="versenum">9-10</sup>Hindi nʼyo ba alam na hindi magmamana ng kaharian ng Dios ang masasama? Huwag kayong palilinlang! Sapagkat kailanmaʼy hindi magmamana ng kaharian ng Dios ang mga imoral, sumasamba sa dios-diosan, nangangalunya, nakikipagrelasyon sa kapwa lalaki o babae, magnanakaw, sakim, lasenggo, mapanlait, at mandarambong. 
 
 
 
@@ -469,7 +469,7 @@ Hindi baʼt tayong mga mananampalataya ay bahagi ng katawan ni Cristo? Iyan ang 
 
 
 
-Hindi baʼt ang nakikipagtalik sa ganoong babae ay nagiging kaisang-katawan niya? Sapagkat sinasabi sa Kasulatan, "Silang dalawaʼy magiging isa."[^c] 
+Hindi baʼt ang nakikipagtalik sa ganoong babae ay nagiging kaisang-katawan niya? Sapagkat sinasabi sa Kasulatan, "Silang dalawaʼy magiging isa." 
 
 
 

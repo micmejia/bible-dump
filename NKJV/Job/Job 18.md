@@ -19,7 +19,7 @@ Then Bildad the Shuhite answered and said:
 Why are we counted as beasts, _And_ regarded as stupid in your sight? 
 
 ###### 4 
-You[^a] who tear yourself in anger, Shall the earth be forsaken for you? Or shall the rock be removed from its place? 
+You who tear yourself in anger, Shall the earth be forsaken for you? Or shall the rock be removed from its place? 
 
 ###### 5 
 "The light of the wicked indeed goes out, And the flame of his fire does not shine. 
@@ -46,7 +46,7 @@ Terrors frighten him on every side, And drive him to his feet.
 His strength is starved, And destruction _is_ ready at his side. 
 
 ###### 13 
-It devours patches of his skin; The firstborn of death devours his [^b]limbs. 
+It devours patches of his skin; The firstborn of death devours his limbs. 
 
 ###### 14 
 He is uprooted from the shelter of his tent, And they parade him before the king of terrors. 
@@ -58,16 +58,16 @@ They dwell in his tent _who are_ none of his; Brimstone is scattered on his dwel
 His roots are dried out below, And his branch withers above. 
 
 ###### 17 
-The memory of him perishes from the earth, And he has no name [^c]among the renowned. 
+The memory of him perishes from the earth, And he has no name among the renowned. 
 
 ###### 18 
-[^d]He is driven from light into darkness, And chased out of the world. 
+He is driven from light into darkness, And chased out of the world. 
 
 ###### 19 
 He has neither son nor posterity among his people, Nor any remaining in his dwellings. 
 
 ###### 20 
-Those [^e]in the west are astonished at his day, As those [^f]in the east are frightened. 
+Those in the west are astonished at his day, As those in the east are frightened. 
 
 ###### 21 
 Surely such _are_ the dwellings of the wicked, And this _is_ the place _of him who_ does not know God."

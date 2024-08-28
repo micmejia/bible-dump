@@ -490,7 +490,7 @@ So the waters were healed to this day, as Elisha had said.
 
 
 
-He went up from Jericho to Bethel. On the way, [^a]young [maturing and accountable] boys came out of the city and mocked him and said to him, Go up [in a whirlwind], you baldhead! Go up, you baldhead! 
+He went up from Jericho to Bethel. On the way, young [maturing and accountable] boys came out of the city and mocked him and said to him, Go up [in a whirlwind], you baldhead! Go up, you baldhead! 
 
 
 

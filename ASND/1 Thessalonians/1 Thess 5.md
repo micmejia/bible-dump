@@ -237,7 +237,7 @@ Kaya nga, huwag tayong <i class="trans-change">maging pabaya_ katulad ng iba na 
 
 
 
-Sapagkat ang taong namumuhay sa kadiliman ay katulad ng taong <i class="trans-change">pabaya na_ natutulog o katulad ng lasing <i class="trans-change">na walang pagpipigil sa sarili_.[^a] 
+Sapagkat ang taong namumuhay sa kadiliman ay katulad ng taong <i class="trans-change">pabaya na_ natutulog o katulad ng lasing <i class="trans-change">na walang pagpipigil sa sarili_. 
 
 
 
@@ -864,7 +864,7 @@ Ipanalangin nʼyo rin kami, mga kapatid.
 
 
 
-Magiliw ninyong batiin ang lahat ng mga kapatid diyan.[^b] 
+Magiliw ninyong batiin ang lahat ng mga kapatid diyan. 
 
 
 

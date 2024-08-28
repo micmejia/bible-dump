@@ -31,7 +31,7 @@ but at the place where the Lord your God chooses to make His name abide, there y
 And you shall roast and eat _it_ in the place which the Lord your God chooses, and in the morning you shall turn and go to your tents. 
 
 ###### 8 
-Six days you shall eat unleavened bread, and on the seventh day there _shall be_ a [^a]sacred assembly to the Lord your God. You shall do no work _on it._ ## The Feast of Weeks Reviewed 
+Six days you shall eat unleavened bread, and on the seventh day there _shall be_ a sacred assembly to the Lord your God. You shall do no work _on it._ ## The Feast of Weeks Reviewed 
 
 ###### 9 
 "You shall count seven weeks for yourself; begin to count the seven weeks from _the time_ you begin _to put_ the sickle to the grain. 
@@ -49,7 +49,7 @@ And you shall remember that you were a slave in Egypt, and you shall be careful 
 "You shall observe the Feast of Tabernacles seven days, when you have gathered from your threshing floor and from your winepress. 
 
 ###### 14 
-And you shall rejoice in your feast, you and your son and your daughter, your male servant and your female servant and the Levite, the stranger and the fatherless and the widow, who _are_ within your [^b]gates. 
+And you shall rejoice in your feast, you and your son and your daughter, your male servant and your female servant and the Levite, the stranger and the fatherless and the widow, who _are_ within your gates. 
 
 ###### 15 
 Seven days you shall keep a sacred feast to the Lord your God in the place which the Lord chooses, because the Lord your God will bless you in all your produce and in all the work of your hands, so that you surely rejoice. 
@@ -61,16 +61,16 @@ Seven days you shall keep a sacred feast to the Lord your God in the place which
 Every man _shall give_ as he is able, according to the blessing of the Lord your God which He has given you. ## Justice Must Be Administered 
 
 ###### 18 
-"You shall appoint judges and officers in all your [^c]gates, which the Lord your God gives you, according to your tribes, and they shall judge the people with just judgment. 
+"You shall appoint judges and officers in all your gates, which the Lord your God gives you, according to your tribes, and they shall judge the people with just judgment. 
 
 ###### 19 
-You shall not pervert justice; you shall not [^d]show partiality, nor take a bribe, for a bribe blinds the eyes of the wise and [^e]twists the words of the righteous. 
+You shall not pervert justice; you shall not show partiality, nor take a bribe, for a bribe blinds the eyes of the wise and twists the words of the righteous. 
 
 ###### 20 
 You shall follow what is altogether just, that you may live and inherit the land which the Lord your God is giving you. 
 
 ###### 21 
-"You shall not plant for yourself any tree, as a [^f]wooden image, near the altar which you build for yourself to the Lord your God. 
+"You shall not plant for yourself any tree, as a wooden image, near the altar which you build for yourself to the Lord your God. 
 
 ###### 22 
 You shall not set up a _sacred_ pillar, which the Lord your God hates.

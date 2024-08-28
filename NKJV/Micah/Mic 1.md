@@ -36,22 +36,22 @@ Therefore I will wail and howl, I will go stripped and naked; I will make a wail
 For her wounds _are_ incurable. For it has come to Judah; It has come to the gate of My people-- To Jerusalem. 
 
 ###### 10 
-Tell _it_ not in Gath, Weep not at all; In [^a]Beth Aphrah Roll yourself in the dust. 
+Tell _it_ not in Gath, Weep not at all; In Beth Aphrah Roll yourself in the dust. 
 
 ###### 11 
-Pass by in naked shame, you inhabitant of [^b]Shaphir; The inhabitant of [^c]Zaanan does not go out. Beth Ezel mourns; Its place to stand is taken away from you. 
+Pass by in naked shame, you inhabitant of Shaphir; The inhabitant of Zaanan does not go out. Beth Ezel mourns; Its place to stand is taken away from you. 
 
 ###### 12 
-For the inhabitant of [^d]Maroth [^e]pined for good, But disaster came down from the Lord To the gate of Jerusalem. 
+For the inhabitant of Maroth pined for good, But disaster came down from the Lord To the gate of Jerusalem. 
 
 ###### 13 
 O inhabitant of Lachish, Harness the chariot to the swift steeds (She _was_ the beginning of sin to the daughter of Zion), For the transgressions of Israel were found in you. 
 
 ###### 14 
-Therefore you shall give presents to [^f]Moresheth Gath; The houses of Achzib[^g] _shall be_ a lie to the kings of Israel. 
+Therefore you shall give presents to Moresheth Gath; The houses of Achzib _shall be_ a lie to the kings of Israel. 
 
 ###### 15 
-I will yet bring an heir to you, O inhabitant of Mareshah;[^h] The glory of Israel shall come to Adullam.[^i] 
+I will yet bring an heir to you, O inhabitant of Mareshah; The glory of Israel shall come to Adullam. 
 
 ###### 16 
 Make yourself bald and cut off your hair, Because of your precious children; Enlarge your baldness like an eagle, For they shall go from you into captivity.

@@ -91,7 +91,7 @@ Therefore thus says the Lord God: Behold, I am against you, O Tyre, and will cau
 
 
 
-And they shall destroy the walls of Tyre and break down her towers; I will also [^a]scrape her dust from her and make her bare like the top of a rock. 
+And they shall destroy the walls of Tyre and break down her towers; I will also scrape her dust from her and make her bare like the top of a rock. 
 
 
 
@@ -154,7 +154,7 @@ And Tyre's daughters [her towns and villages on the mainland] in the level place
 
 
 
-For thus says the Lord God: Behold, I will bring from the north upon Tyre [^b]Nebuchadrezzar king of Babylon, a king of kings, with horses and chariots and with horsemen and a host of many people. 
+For thus says the Lord God: Behold, I will bring from the north upon Tyre Nebuchadrezzar king of Babylon, a king of kings, with horses and chariots and with horsemen and a host of many people. 
 
 
 
@@ -301,7 +301,7 @@ And I will cause the noise of your songs to cease, and the sound of your lyres s
 
 
 
-And I will make you [Tyre] a [^c]bare rock; you shall be a place upon which to spread nets; you shall never be rebuilt, for I the Lord have spoken it, says the Lord God. 
+And I will make you [Tyre] a bare rock; you shall be a place upon which to spread nets; you shall never be rebuilt, for I the Lord have spoken it, says the Lord God. 
 
 
 

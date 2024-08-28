@@ -469,7 +469,7 @@ Kung lalapit kayo sa akin nang buong puso, tutulungan ko kayo.
 
 
 
-Oo, tutulungan ko kayo at ibabalik mula sa pagkakabihag.[^a] Titipunin ko kayo mula sa ibaʼt ibang bansa na pinangalatan ko sa inyo, at ibabalik ko kayo sa sarili ninyong lupain. 
+Oo, tutulungan ko kayo at ibabalik mula sa pagkakabihag. Titipunin ko kayo mula sa ibaʼt ibang bansa na pinangalatan ko sa inyo, at ibabalik ko kayo sa sarili ninyong lupain. 
 
 
 

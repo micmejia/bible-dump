@@ -16,7 +16,7 @@ And so it was, when King Hezekiah heard _it,_ that he tore his clothes, covered 
 Then he sent Eliakim, who _was_ over the household, Shebna the scribe, and the elders of the priests, covered with sackcloth, to Isaiah the prophet, the son of Amoz. 
 
 ###### 3 
-And they said to him, "Thus says Hezekiah: 'This day _is_ a day of trouble and rebuke and [^a]blasphemy; for the children have come to birth, but _there is_ no strength to bring them forth. 
+And they said to him, "Thus says Hezekiah: 'This day _is_ a day of trouble and rebuke and blasphemy; for the children have come to birth, but _there is_ no strength to bring them forth. 
 
 ###### 4 
 It may be that the Lord your God will hear the words of _the_ Rabshakeh, whom his master the king of Assyria has sent to reproach the living God, and will rebuke the words which the Lord your God has heard. Therefore lift up _your_ prayer for the remnant that is left.' " 
@@ -82,7 +82,7 @@ this _is_ the word which the Lord has spoken concerning him: "The virgin, the da
 By your servants you have reproached the Lord, And said, 'By the multitude of my chariots I have come up to the height of the mountains, To the limits of Lebanon; I will cut down its tall cedars _And_ its choice cypress trees; I will enter its farthest height, To its fruitful forest. 
 
 ###### 25 
-I have dug and drunk water, And with the soles of my feet I have dried up All the brooks of [^b]defense.' 
+I have dug and drunk water, And with the soles of my feet I have dried up All the brooks of defense.' 
 
 ###### 26 
 "Did you not hear long ago _How_ I made it, From ancient times that I formed it? Now I have brought it to pass, That you should be For crushing fortified cities _into_ heaps of ruins. 
@@ -115,7 +115,7 @@ By the way that he came, By the same shall he return; And he shall not come into
 'For I will defend this city, to save it For My own sake and for My servant David's sake.' " ## Sennacherib's Defeat and Death 
 
 ###### 36 
-Then the angel[^c] of the Lord went out, and [^d]killed in the camp of the Assyrians one hundred and eighty-five thousand; and when _people_ arose early in the morning, there were the corpses--all dead. 
+Then the angel of the Lord went out, and killed in the camp of the Assyrians one hundred and eighty-five thousand; and when _people_ arose early in the morning, there were the corpses--all dead. 
 
 ###### 37 
 So Sennacherib king of Assyria departed and went away, returned _home,_ and remained at Nineveh. 

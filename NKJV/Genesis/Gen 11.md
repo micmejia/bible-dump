@@ -10,13 +10,13 @@ next: ['Gen 12']
 
 
 ###### 1 
-Now the whole earth had one language and one [^a]speech. 
+Now the whole earth had one language and one speech. 
 
 ###### 2 
 And it came to pass, as they journeyed from the east, that they found a plain in the land of Shinar, and they dwelt there. 
 
 ###### 3 
-Then they said to one another, "Come, let us make bricks and [^b]bake _them_ thoroughly." They had brick for stone, and they had asphalt for mortar. 
+Then they said to one another, "Come, let us make bricks and bake _them_ thoroughly." They had brick for stone, and they had asphalt for mortar. 
 
 ###### 4 
 And they said, "Come, let us build ourselves a city, and a tower whose top _is_ in the heavens; let us make a name for ourselves, lest we be scattered abroad over the face of the whole earth." 
@@ -34,7 +34,7 @@ Come, let Us go down and there confuse their language, that they may not underst
 So the Lord scattered them abroad from there over the face of all the earth, and they ceased building the city. 
 
 ###### 9 
-Therefore its name is called [^c]Babel, because there the Lord confused the language of all the earth; and from there the Lord scattered them abroad over the face of all the earth. ## Shem's Descendants 
+Therefore its name is called Babel, because there the Lord confused the language of all the earth; and from there the Lord scattered them abroad over the face of all the earth. ## Shem's Descendants 
 
 ###### 10 
 This _is_ the genealogy of Shem: Shem _was_ one hundred years old, and begot Arphaxad two years after the flood. 
@@ -85,7 +85,7 @@ Nahor lived twenty-nine years, and begot Terah.
 After he begot Terah, Nahor lived one hundred and nineteen years, and begot sons and daughters. 
 
 ###### 26 
-Now Terah lived seventy years, and begot [^d]Abram, Nahor, and Haran. ## Terah's Descendants 
+Now Terah lived seventy years, and begot Abram, Nahor, and Haran. ## Terah's Descendants 
 
 ###### 27 
 This _is_ the genealogy of Terah: Terah begot Abram, Nahor, and Haran. Haran begot Lot. 
@@ -94,7 +94,7 @@ This _is_ the genealogy of Terah: Terah begot Abram, Nahor, and Haran. Haran beg
 And Haran died before his father Terah in his native land, in Ur of the Chaldeans. 
 
 ###### 29 
-Then Abram and Nahor took wives: the name of Abram's wife _was_ Sarai,[^e] and the name of Nahor's wife, Milcah, the daughter of Haran the father of Milcah and the father of Iscah. 
+Then Abram and Nahor took wives: the name of Abram's wife _was_ Sarai, and the name of Nahor's wife, Milcah, the daughter of Haran the father of Milcah and the father of Iscah. 
 
 ###### 30 
 But Sarai was barren; she had no child. 

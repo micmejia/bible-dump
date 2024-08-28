@@ -91,7 +91,7 @@ Since you have [already] tasted the goodness _and_ kindness of the Lord.
 
 
 
-Come to Him [then, to that] Living Stone which men [^a]tried _and_ threw away, but which is chosen [and] precious in God's sight. 
+Come to Him [then, to that] Living Stone which men tried _and_ threw away, but which is chosen [and] precious in God's sight. 
 
 
 
@@ -133,7 +133,7 @@ Come to Him [then, to that] Living Stone which men [^a]tried _and_ threw away, b
 
 
 
-For thus it stands in Scripture: Behold, I am laying in Zion a chosen ([^b]honored), precious chief Cornerstone, and he who believes in Him [who adheres to, trusts in, and relies on Him] shall never be [^c]disappointed _or_ put to shame. 
+For thus it stands in Scripture: Behold, I am laying in Zion a chosen (honored), precious chief Cornerstone, and he who believes in Him [who adheres to, trusts in, and relies on Him] shall never be disappointed _or_ put to shame. 
 
 
 
@@ -196,7 +196,7 @@ And, A Stone that will cause stumbling and a Rock that will give [men] offense; 
 
 
 
-But you are a chosen race, a royal priesthood, a dedicated nation, [God's] own [^d]purchased, special people, that you may set forth the wonderful deeds _and_ display the virtues and perfections of Him Who called you out of darkness into His marvelous light. 
+But you are a chosen race, a royal priesthood, a dedicated nation, [God's] own purchased, special people, that you may set forth the wonderful deeds _and_ display the virtues and perfections of Him Who called you out of darkness into His marvelous light. 
 
 
 
@@ -259,7 +259,7 @@ Beloved, I implore you as aliens and strangers _and_ exiles [in this world] to a
 
 
 
-Conduct yourselves properly (honorably, righteously) among the Gentiles, so that, although they may slander you as evildoers, [yet] they may by witnessing your good deeds [come to] glorify God in the day of inspection [[^e]when God shall look upon you wanderers as a pastor or shepherd looks over his flock]. 
+Conduct yourselves properly (honorably, righteously) among the Gentiles, so that, although they may slander you as evildoers, [yet] they may by witnessing your good deeds [come to] glorify God in the day of inspection [when God shall look upon you wanderers as a pastor or shepherd looks over his flock]. 
 
 
 
@@ -427,7 +427,7 @@ For one is regarded favorably (is approved, acceptable, and thankworthy) if, as 
 
 
 
-[After all] what [^f]kind of glory [is there in it] if, when you do wrong and are punished for it, you take it patiently? But if you bear patiently with suffering [which results] when you do right _and_ that is undeserved, it is acceptable _and_ pleasing to God. 
+[After all] what kind of glory [is there in it] if, when you do wrong and are punished for it, you take it patiently? But if you bear patiently with suffering [which results] when you do right _and_ that is undeserved, it is acceptable _and_ pleasing to God. 
 
 
 
@@ -511,7 +511,7 @@ When He was reviled _and_ insulted, He did not revile _or_ offer insult in retur
 
 
 
-He personally bore our sins in His [own] body on the tree [^g][as on an altar and offered Himself on it], that we might die (cease to exist) to sin and live to righteousness. By His wounds you have been healed. 
+He personally bore our sins in His [own] body on the tree [as on an altar and offered Himself on it], that we might die (cease to exist) to sin and live to righteousness. By His wounds you have been healed. 
 
 
 
@@ -532,4 +532,4 @@ He personally bore our sins in His [own] body on the tree [^g][as on an altar an
 
 
 
-For you were going astray like [so many] sheep, but now you have come back to the Shepherd and Guardian ([^h]the Bishop) of your souls.
+For you were going astray like [so many] sheep, but now you have come back to the Shepherd and Guardian (the Bishop) of your souls.

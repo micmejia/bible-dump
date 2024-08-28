@@ -28,7 +28,7 @@ next: ['1 Pet 5']
 
 
 
-So, since Christ suffered in the flesh [^a]_for us, for you_, arm yourselves with the same thought _and_ [^b]purpose [patiently to suffer rather than fail to please God]. For whoever has suffered in the flesh [having [^c]the mind of Christ] is done with [intentional] sin [has stopped pleasing himself and the world, and pleases God], 
+So, since Christ suffered in the flesh _for us, for you_, arm yourselves with the same thought _and_ purpose [patiently to suffer rather than fail to please God]. For whoever has suffered in the flesh [having the mind of Christ] is done with [intentional] sin [has stopped pleasing himself and the world, and pleases God], 
 
 
 
@@ -133,7 +133,7 @@ But they will have to give an account to Him Who is ready to judge _and_ pass se
 
 
 
-For this is why the good news (the Gospel) was preached [[^d]in their lifetime] even to the dead, that though judged in fleshly bodies as men are, they might live in the spirit as God does. 
+For this is why the good news (the Gospel) was preached [in their lifetime] even to the dead, that though judged in fleshly bodies as men are, they might live in the spirit as God does. 
 
 
 
@@ -175,7 +175,7 @@ But the end _and_ culmination of all things has now come near; keep sound minded
 
 
 
-Above all things have intense _and_ unfailing love for one another, for love covers a multitude of sins [forgives and [^e]disregards the offenses of others]. 
+Above all things have intense _and_ unfailing love for one another, for love covers a multitude of sins [forgives and disregards the offenses of others]. 
 
 
 
@@ -217,7 +217,7 @@ Practice hospitality to one another (those of the household of faith). [Be hospi
 
 
 
-As each of you has received a gift (a particular spiritual talent, a gracious divine endowment), employ it for one another as [befits] good trustees of God's many-sided grace [faithful stewards of the [^f]extremely diverse powers and gifts granted to Christians by unmerited favor]. 
+As each of you has received a gift (a particular spiritual talent, a gracious divine endowment), employ it for one another as [befits] good trustees of God's many-sided grace [faithful stewards of the extremely diverse powers and gifts granted to Christians by unmerited favor]. 
 
 
 
@@ -238,7 +238,7 @@ As each of you has received a gift (a particular spiritual talent, a gracious di
 
 
 
-Whoever speaks, [let him do it as one who utters] oracles of God; whoever renders service, [let him do it] as with the strength which God furnishes [^g]abundantly, so that in all things God may be glorified through Jesus Christ (the Messiah). To Him be the glory and dominion forever and ever (through endless ages). Amen (so be it). 
+Whoever speaks, [let him do it as one who utters] oracles of God; whoever renders service, [let him do it] as with the strength which God furnishes abundantly, so that in all things God may be glorified through Jesus Christ (the Messiah). To Him be the glory and dominion forever and ever (through endless ages). Amen (so be it). 
 
 
 
@@ -301,7 +301,7 @@ But insofar as you are sharing Christ's sufferings, rejoice, so that when His gl
 
 
 
-If you are censured _and_ suffer abuse [because you bear] the name of Christ, blessed [are you--happy, fortunate, [^h]to be envied, [^i]with life-joy, and satisfaction in God's favor and salvation, regardless of your outward condition], because the Spirit of glory, the Spirit of God, is resting upon you. _On their part He is blasphemed, but on your part He is glorified_. 
+If you are censured _and_ suffer abuse [because you bear] the name of Christ, blessed [are you--happy, fortunate, to be envied, with life-joy, and satisfaction in God's favor and salvation, regardless of your outward condition], because the Spirit of glory, the Spirit of God, is resting upon you. _On their part He is blasphemed, but on your part He is glorified_. 
 
 
 

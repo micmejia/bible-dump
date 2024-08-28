@@ -172,7 +172,7 @@ Hindi maaaring makamtan ninuman sa sarili niyang <i class="trans-change">kagustu
 
 
 
-Ganoon din naman, hindi si Cristo ang nagparangal sa sarili niya na maging punong pari <i class="trans-change">kundi ang Dios_. Sapagkat sinabi sa kanya ng Dios, "Ikaw ang Anak ko, at ngayon ipapahayag ko na ako ang iyong Ama."[^a] 
+Ganoon din naman, hindi si Cristo ang nagparangal sa sarili niya na maging punong pari <i class="trans-change">kundi ang Dios_. Sapagkat sinabi sa kanya ng Dios, "Ikaw ang Anak ko, at ngayon ipapahayag ko na ako ang iyong Ama." 
 
 
 
@@ -205,7 +205,7 @@ Ganoon din naman, hindi si Cristo ang nagparangal sa sarili niya na maging punon
 
 
 
-At sinabi pa ng Dios sa ibang bahagi ng Kasulatan, "Ikaw ay pari magpakailanman, tulad ng pagkapari ni Melkizedek."[^b] 
+At sinabi pa ng Dios sa ibang bahagi ng Kasulatan, "Ikaw ay pari magpakailanman, tulad ng pagkapari ni Melkizedek." 
 
 
 
@@ -304,7 +304,7 @@ At kahit Anak siya <i class="trans-change">mismo ng Dios_, natutunan niya ang pa
 
 
 
-Naging ganap siya at pinagmulan ng walang hanggang kaligtasan[^c] ng lahat ng sumusunod sa kanya. 
+Naging ganap siya at pinagmulan ng walang hanggang kaligtasan ng lahat ng sumusunod sa kanya. 
 
 
 

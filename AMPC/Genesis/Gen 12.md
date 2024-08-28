@@ -70,7 +70,7 @@ And I will make of you a great nation, and I will bless you [with abundant incre
 
 
 
-And I will bless those who bless you [who confer prosperity or happiness upon you] and [^a]curse him who curses _or_ uses insolent language toward you; in you will all the families _and_ kindred of the earth be blessed [and by you they will bless themselves]. 
+And I will bless those who bless you [who confer prosperity or happiness upon you] and curse him who curses _or_ uses insolent language toward you; in you will all the families _and_ kindred of the earth be blessed [and by you they will bless themselves]. 
 
 
 
@@ -217,7 +217,7 @@ Abram journeyed on, still going toward the South (the Negeb).
 
 
 
-Now there was a famine in the land, and Abram [^b]went down into Egypt to live temporarily, for the famine in the land was oppressive (intense and grievous). 
+Now there was a famine in the land, and Abram went down into Egypt to live temporarily, for the famine in the land was oppressive (intense and grievous). 
 
 
 
@@ -280,7 +280,7 @@ So when the Egyptians see you, they will say, This is his wife; and they will ki
 
 
 
-Say, I beg of you, that you are [^c]my sister, so that it may go well with me for your sake and my life will be spared because of you. 
+Say, I beg of you, that you are my sister, so that it may go well with me for your sake and my life will be spared because of you. 
 
 
 
@@ -343,7 +343,7 @@ The princes of Pharaoh also saw her and commended her to Pharaoh, and she was ta
 
 
 
-And he treated Abram well for her sake; he acquired sheep, oxen, he-donkeys, menservants, maidservants, she-donkeys, and [^d]camels. 
+And he treated Abram well for her sake; he acquired sheep, oxen, he-donkeys, menservants, maidservants, she-donkeys, and camels. 
 
 
 

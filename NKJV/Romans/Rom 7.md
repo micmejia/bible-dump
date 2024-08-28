@@ -10,7 +10,7 @@ next: ['Rom 8']
 
 
 ###### 1 
-Or do you not know, brethren (for I speak to those who know the law), that the law [^a]has dominion over a man as long as he lives? 
+Or do you not know, brethren (for I speak to those who know the law), that the law has dominion over a man as long as he lives? 
 
 ###### 2 
 For the woman who has a husband is bound by the law to _her_ husband as long as he lives. But if the husband dies, she is released from the law of _her_ husband. 

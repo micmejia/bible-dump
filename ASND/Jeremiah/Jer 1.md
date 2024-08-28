@@ -171,7 +171,7 @@ Sinabi sa akin ng Panginoon,
 
 
 
-"<i class="trans-change">Jeremias,_ bago kita nilalang sa tiyan ng iyong ina, pinili[^a] na kita. At bago ka isinilang, hinirang na kita para maging propeta sa mga bansa." 
+"<i class="trans-change">Jeremias,_ bago kita nilalang sa tiyan ng iyong ina, pinili na kita. At bago ka isinilang, hinirang na kita para maging propeta sa mga bansa." 
 
 
 
@@ -402,7 +402,7 @@ Pagkatapos, tinanong ako ng Panginoon, "Jeremias, ano ang nakikita mo?" Sumagot 
 
 
 
-Sinabi ng Panginoon, "Tama ka, at nangangahulugan iyan na nagbabantay[^b] ako para tiyaking matutupad ang mga sinabi ko." 
+Sinabi ng Panginoon, "Tama ka, at nangangahulugan iyan na nagbabantay ako para tiyaking matutupad ang mga sinabi ko." 
 
 
 
@@ -501,7 +501,7 @@ Sinabi ng Panginoon, "<i class="trans-change">Tama, sapagkat_ may panganib mula 
 
 
 
-Ipapadala ko ang mga sundalo ng mga kaharian mula sa hilaga para salakayin ang Jerusalem. Ilalagay ng kanilang mga hari ang mga trono nila sa mga pintuan ng Jerusalem.[^c] Gigibain nila ang mga pader sa palibot nito at ang iba pang mga bayan ng Juda. 
+Ipapadala ko ang mga sundalo ng mga kaharian mula sa hilaga para salakayin ang Jerusalem. Ilalagay ng kanilang mga hari ang mga trono nila sa mga pintuan ng Jerusalem. Gigibain nila ang mga pader sa palibot nito at ang iba pang mga bayan ng Juda. 
 
 
 

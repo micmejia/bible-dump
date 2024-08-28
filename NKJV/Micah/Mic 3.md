@@ -13,7 +13,7 @@ next: ['Mic 4']
 And I said: "Hear now, O heads of Jacob, And you rulers of the house of Israel: _Is it_ not for you to know justice? 
 
 ###### 2 
-You who hate good and love evil; Who strip the skin from [^a]My people, And the flesh from their bones; 
+You who hate good and love evil; Who strip the skin from My people, And the flesh from their bones; 
 
 ###### 3 
 Who also eat the flesh of My people, Flay their skin from them, Break their bones, And chop _them_ in pieces Like _meat_ for the pot, Like flesh in the caldron." 
@@ -22,10 +22,10 @@ Who also eat the flesh of My people, Flay their skin from them, Break their bone
 Then they will cry to the Lord, But He will not hear them; He will even hide His face from them at that time, Because they have been evil in their deeds. 
 
 ###### 5 
-Thus says the Lord concerning the prophets Who make my people stray; Who chant [^b]"Peace" [^c]While they chew with their teeth, But who prepare war against him Who puts nothing into their mouths: 
+Thus says the Lord concerning the prophets Who make my people stray; Who chant "Peace" While they chew with their teeth, But who prepare war against him Who puts nothing into their mouths: 
 
 ###### 6 
-"Therefore you shall have night without [^d]vision, And you shall have darkness without divination; The sun shall go down on the prophets, And the day shall be dark for them. 
+"Therefore you shall have night without vision, And you shall have darkness without divination; The sun shall go down on the prophets, And the day shall be dark for them. 
 
 ###### 7 
 So the seers shall be ashamed, And the diviners abashed; Indeed they shall all cover their lips; For _there is_ no answer from God." 
@@ -34,13 +34,13 @@ So the seers shall be ashamed, And the diviners abashed; Indeed they shall all c
 But truly I am full of power by the Spirit of the Lord, And of justice and might, To declare to Jacob his transgression And to Israel his sin. 
 
 ###### 9 
-Now hear this, You heads of the house of Jacob And rulers of the house of Israel, Who abhor justice And [^e]pervert all equity, 
+Now hear this, You heads of the house of Jacob And rulers of the house of Israel, Who abhor justice And pervert all equity, 
 
 ###### 10 
 Who build up Zion with bloodshed And Jerusalem with iniquity: 
 
 ###### 11 
-Her heads judge for a bribe, Her priests teach for pay, And her prophets divine for [^f]money. Yet they lean on the Lord, and say, "Is not the Lord among us? No harm can come upon us." 
+Her heads judge for a bribe, Her priests teach for pay, And her prophets divine for money. Yet they lean on the Lord, and say, "Is not the Lord among us? No harm can come upon us." 
 
 ###### 12 
-Therefore because of you Zion shall be plowed _like_ a field, Jerusalem shall become heaps of ruins, And the mountain of the [^g]temple Like the bare hills of the forest.
+Therefore because of you Zion shall be plowed _like_ a field, Jerusalem shall become heaps of ruins, And the mountain of the temple Like the bare hills of the forest.

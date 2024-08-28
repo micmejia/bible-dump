@@ -70,7 +70,7 @@ By this you may know (perceive and recognize) the Spirit of God: every spirit wh
 
 
 
-And every spirit which does not acknowledge _and_ confess _that_ Jesus _Christ has come in the flesh_ [but would [^a]annul, destroy, [^b]sever, disunite Him] is not of God [does not proceed from Him]. This [[^c]nonconfession] is the [spirit] of the antichrist, [of] which you heard that it was coming, and now it is already in the world. 
+And every spirit which does not acknowledge _and_ confess _that_ Jesus _Christ has come in the flesh_ [but would annul, destroy, sever, disunite Him] is not of God [does not proceed from Him]. This [nonconfession] is the [spirit] of the antichrist, [of] which you heard that it was coming, and now it is already in the world. 
 
 
 
@@ -112,7 +112,7 @@ Little children, you are of God [you belong to Him] and have [already] defeated 
 
 
 
-They proceed from the world _and_ are of the world; therefore it is out of the world [its [^d]whole economy morally considered] that they speak, and the world listens (pays attention) to them. 
+They proceed from the world _and_ are of the world; therefore it is out of the world [its whole economy morally considered] that they speak, and the world listens (pays attention) to them. 
 
 
 
@@ -133,7 +133,7 @@ They proceed from the world _and_ are of the world; therefore it is out of the w
 
 
 
-We are [children] of God. Whoever is learning to know God [progressively to perceive, recognize, and understand God by observation and experience, and to [^e]get an ever-clearer knowledge of Him] listens to us; and he who is not of God does not listen _or_ pay attention to us. By this we know (recognize) the Spirit of Truth and the spirit of error. 
+We are [children] of God. Whoever is learning to know God [progressively to perceive, recognize, and understand God by observation and experience, and to get an ever-clearer knowledge of Him] listens to us; and he who is not of God does not listen _or_ pay attention to us. By this we know (recognize) the Spirit of Truth and the spirit of error. 
 
 
 
@@ -196,7 +196,7 @@ He who does not love has not become acquainted with God [does not and never did 
 
 
 
-In this the love of God was made manifest (displayed) where we are concerned: in that God sent His Son, the only begotten _or_ [^f]unique [Son], into the world so that we might live through Him. 
+In this the love of God was made manifest (displayed) where we are concerned: in that God sent His Son, the only begotten _or_ unique [Son], into the world so that we might live through Him. 
 
 
 
@@ -385,7 +385,7 @@ In this [union and communion with Him] love is brought to completion _and_ attai
 
 
 
-There is no fear in love [dread does not exist], but full-grown (complete, perfect) love [^g]turns fear out of doors _and_ expels every trace of terror! For fear [^h]brings with it the thought of punishment, and [so] he who is afraid has not reached the full maturity of love [is not yet grown into love's complete perfection]. 
+There is no fear in love [dread does not exist], but full-grown (complete, perfect) love turns fear out of doors _and_ expels every trace of terror! For fear brings with it the thought of punishment, and [so] he who is afraid has not reached the full maturity of love [is not yet grown into love's complete perfection]. 
 
 
 
@@ -427,7 +427,7 @@ We love _Him_, because He first loved us.
 
 
 
-If anyone says, I love God, and hates (detests, abominates) his brother [[^i]in Christ], he is a liar; for he who does not love his brother, whom he has seen, cannot love God, Whom he has not seen. 
+If anyone says, I love God, and hates (detests, abominates) his brother [in Christ], he is a liar; for he who does not love his brother, whom he has seen, cannot love God, Whom he has not seen. 
 
 
 
@@ -448,4 +448,4 @@ If anyone says, I love God, and hates (detests, abominates) his brother [[^i]in 
 
 
 
-And this command (charge, order, injunction) we have from Him: that he who loves God shall love his brother [[^j]believer] also.
+And this command (charge, order, injunction) we have from Him: that he who loves God shall love his brother [believer] also.

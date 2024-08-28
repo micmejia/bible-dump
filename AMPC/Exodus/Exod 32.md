@@ -721,7 +721,7 @@ But the Lord said to Moses, Whoever has sinned against Me, I will blot him [not 
 
 
 
-But now go, lead the people to the place of which I have told you. Behold, My [^a]Angel shall go before you. Nevertheless, in the day when I punish I will visit their sin upon them! 
+But now go, lead the people to the place of which I have told you. Behold, My Angel shall go before you. Nevertheless, in the day when I punish I will visit their sin upon them! 
 
 
 

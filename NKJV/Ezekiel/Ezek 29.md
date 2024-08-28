@@ -16,19 +16,19 @@ In the tenth year, in the tenth _month,_ on the twelfth _day_ of the month, the 
 "Son of man, set your face against Pharaoh king of Egypt, and prophesy against him, and against all Egypt. 
 
 ###### 3 
-Speak, and say, 'Thus says the Lord God: "Behold, I _am_ against you, O Pharaoh king of Egypt, O great monster who lies in the midst of his rivers, Who has said, 'My [^a]River _is_ my own; I have made _it_ for myself.' 
+Speak, and say, 'Thus says the Lord God: "Behold, I _am_ against you, O Pharaoh king of Egypt, O great monster who lies in the midst of his rivers, Who has said, 'My River _is_ my own; I have made _it_ for myself.' 
 
 ###### 4 
 But I will put hooks in your jaws, And cause the fish of your rivers to stick to your scales; I will bring you up out of the midst of your rivers, And all the fish in your rivers will stick to your scales. 
 
 ###### 5 
-I will leave you in the wilderness, You and all the fish of your rivers; You shall fall on the [^b]open field; You shall not be picked up or [^c]gathered. I have given you as food To the beasts of the field And to the birds of the heavens. 
+I will leave you in the wilderness, You and all the fish of your rivers; You shall fall on the open field; You shall not be picked up or gathered. I have given you as food To the beasts of the field And to the birds of the heavens. 
 
 ###### 6 
 "Then all the inhabitants of Egypt Shall know that I _am_ the Lord, Because they have been a staff of reed to the house of Israel. 
 
 ###### 7 
-When they took hold of you with the hand, You broke and tore all their [^d]shoulders; When they leaned on you, You broke and made all their backs quiver." 
+When they took hold of you with the hand, You broke and tore all their shoulders; When they leaned on you, You broke and made all their backs quiver." 
 
 ###### 8 
 'Therefore thus says the Lord God: "Surely I will bring a sword upon you and cut off from you man and beast. 
@@ -37,7 +37,7 @@ When they took hold of you with the hand, You broke and tore all their [^d]shoul
 And the land of Egypt shall become desolate and waste; then they will know that I _am_ the Lord, because he said, 'The River _is_ mine, and I have made _it._' 
 
 ###### 10 
-Indeed, therefore, I _am_ against you and against your rivers, and I will make the land of Egypt utterly waste and desolate, from [^e]Migdol _to_ Syene, as far as the border of Ethiopia. 
+Indeed, therefore, I _am_ against you and against your rivers, and I will make the land of Egypt utterly waste and desolate, from Migdol _to_ Syene, as far as the border of Ethiopia. 
 
 ###### 11 
 Neither foot of man shall pass through it nor foot of beast pass through it, and it shall be uninhabited forty years. 
@@ -70,4 +70,4 @@ Therefore thus says the Lord God: 'Surely I will give the land of Egypt to Nebuc
 I have given him the land of Egypt _for_ his labor, because they worked for Me,' says the Lord God. 
 
 ###### 21 
-'In that day I will cause the [^f]horn of the house of Israel to spring forth, and I will open your mouth to speak in their midst. Then they shall know that I _am_ the Lord.' "
+'In that day I will cause the horn of the house of Israel to spring forth, and I will open your mouth to speak in their midst. Then they shall know that I _am_ the Lord.' "

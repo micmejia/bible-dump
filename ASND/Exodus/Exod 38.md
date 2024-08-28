@@ -271,7 +271,7 @@ Isinuksok nila ang mga tukod sa argolya sa bawat gilid ng altar para mabuhat ito
 
 
 
-Pagkatapos, gumawa sila ng tansong planggana. Ang patungan nito ay tanso rin. Ang mga tansong ginamit dito ay galing sa <i class="trans-change">tanso na_ salamin ng mga babaeng naglilingkod sa pintuan ng Toldang Tipanan.[^a] ## Ang Paggawa sa Bakuran ng Toldang Tipanan 
+Pagkatapos, gumawa sila ng tansong planggana. Ang patungan nito ay tanso rin. Ang mga tansong ginamit dito ay galing sa <i class="trans-change">tanso na_ salamin ng mga babaeng naglilingkod sa pintuan ng Toldang Tipanan. ## Ang Paggawa sa Bakuran ng Toldang Tipanan 
 
 
 

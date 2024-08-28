@@ -172,7 +172,7 @@ Pero hindi ipinasama ni Jacob si Benjamin na nakababatang kapatid ni Jose dahil 
 
 
 
-Kaya pumunta ang mga anak ni Jacob[^a] sa Egipto kasama ng mga taga-ibang lugar para bumili ng pagkain, dahil laganap na ang taggutom sa buong Canaan. 
+Kaya pumunta ang mga anak ni Jacob sa Egipto kasama ng mga taga-ibang lugar para bumili ng pagkain, dahil laganap na ang taggutom sa buong Canaan. 
 
 
 
@@ -832,7 +832,7 @@ Nang nagpalipas sila ng gabi sa isang lugar, isa sa kanila ang nagbukas ng sako 
 
 
 
-Sumigaw siya sa kanyang mga kapatid, "Ibinalik ang ibinayad ko! Nandito sa sako ko." Nanlupaypay silang lahat at kinabahan.[^b] Nagtanungan sila, "Ano kaya itong ginawa ng Dios sa atin?" 
+Sumigaw siya sa kanyang mga kapatid, "Ibinalik ang ibinayad ko! Nandito sa sako ko." Nanlupaypay silang lahat at kinabahan. Nagtanungan sila, "Ano kaya itong ginawa ng Dios sa atin?" 
 
 
 

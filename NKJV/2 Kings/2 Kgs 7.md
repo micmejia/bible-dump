@@ -10,7 +10,7 @@ next: ['2 Kgs 8']
 
 
 ###### 1 
-Then Elisha said, "Hear the word of the Lord. Thus says the Lord: 'Tomorrow about this time a [^a]seah of fine flour _shall be sold_ for a shekel, and two seahs of barley for a shekel, at the gate of Samaria.' " 
+Then Elisha said, "Hear the word of the Lord. Thus says the Lord: 'Tomorrow about this time a seah of fine flour _shall be sold_ for a shekel, and two seahs of barley for a shekel, at the gate of Samaria.' " 
 
 ###### 2 
 So an officer on whose hand the king leaned answered the man of God and said, "Look, _if_ the Lord would make windows in heaven, could this thing be?" And he said, "In fact, you shall see _it_ with your eyes, but you shall not eat of it." ## The Syrians Flee 
@@ -34,7 +34,7 @@ Therefore they arose and fled at twilight, and left the camp intact--their tents
 And when these lepers came to the outskirts of the camp, they went into one tent and ate and drank, and carried from it silver and gold and clothing, and went and hid _them;_ then they came back and entered another tent, and carried _some_ from there _also,_ and went and hid _it._ 
 
 ###### 9 
-Then they said to one another, "We are not doing right. This day _is_ a day of good news, and we remain silent. If we wait until morning light, some [^b]punishment will come upon us. Now therefore, come, let us go and tell the king's household." 
+Then they said to one another, "We are not doing right. This day _is_ a day of good news, and we remain silent. If we wait until morning light, some punishment will come upon us. Now therefore, come, let us go and tell the king's household." 
 
 ###### 10 
 So they went and called to the gatekeepers of the city, and told them, saying, "We went to the Syrian camp, and surprisingly no one _was_ there, not a human sound--only horses and donkeys tied, and the tents intact." 
@@ -43,7 +43,7 @@ So they went and called to the gatekeepers of the city, and told them, saying, "
 And the gatekeepers called out, and they told _it_ to the king's household inside. 
 
 ###### 12 
-So the king arose in the night and said to his servants, "Let me now tell you what the Syrians have done to us. They know that we _are_ hungry; therefore they have gone out of the camp to [^c]hide themselves in the field, saying, 'When they come out of the city, we shall catch them alive, and get into the city.' " 
+So the king arose in the night and said to his servants, "Let me now tell you what the Syrians have done to us. They know that we _are_ hungry; therefore they have gone out of the camp to hide themselves in the field, saying, 'When they come out of the city, we shall catch them alive, and get into the city.' " 
 
 ###### 13 
 And one of his servants answered and said, "Please, let several _men_ take five of the remaining horses which are left in the city. Look, they _may either become_ like all the multitude of Israel that are left in it; or indeed, _I say,_ they _may become_ like all the multitude of Israel left from those who are consumed; so let us send them and see." 

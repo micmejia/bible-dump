@@ -10,19 +10,19 @@ next: ['1 Chr 9']
 
 
 ###### 1 
-Now Benjamin begot Bela his firstborn, Ashbel the second, [^a]Aharah the third, 
+Now Benjamin begot Bela his firstborn, Ashbel the second, Aharah the third, 
 
 ###### 2 
 Nohah the fourth, and Rapha the fifth. 
 
 ###### 3 
-The sons of Bela _were_ [^b]Addar, Gera, Abihud, 
+The sons of Bela _were_ Addar, Gera, Abihud, 
 
 ###### 4 
 Abishua, Naaman, Ahoah, 
 
 ###### 5 
-Gera, [^c]Shephuphan, and Huram. 
+Gera, Shephuphan, and Huram. 
 
 ###### 6 
 These _are_ the sons of Ehud, who were the heads of the fathers' _houses_ of the inhabitants of Geba, and who forced them to move to Manahath: 
@@ -70,7 +70,7 @@ Jakim, Zichri, Zabdi,
 Elienai, Zillethai, Eliel, 
 
 ###### 21 
-Adaiah, Beraiah, and Shimrath _were_ the sons of [^d]Shimei. 
+Adaiah, Beraiah, and Shimrath _were_ the sons of Shimei. 
 
 ###### 22 
 Ishpan, Eber, Eliel, 
@@ -94,31 +94,31 @@ Jaareshiah, Elijah, and Zichri _were_ the sons of Jeroham.
 These _were_ heads of the fathers' _houses_ by their generations, chief men. These dwelt in Jerusalem. 
 
 ###### 29 
-Now [^e]the father of Gibeon, whose wife's name _was_ Maacah, dwelt at Gibeon. 
+Now the father of Gibeon, whose wife's name _was_ Maacah, dwelt at Gibeon. 
 
 ###### 30 
 And his firstborn son _was_ Abdon, then Zur, Kish, Baal, Nadab, 
 
 ###### 31 
-Gedor, Ahio, [^f]Zecher, 
+Gedor, Ahio, Zecher, 
 
 ###### 32 
-and Mikloth, _who_ begot [^g]Shimeah. They also dwelt [^h]alongside their [^i]relatives in Jerusalem, with their brethren. 
+and Mikloth, _who_ begot Shimeah. They also dwelt alongside their relatives in Jerusalem, with their brethren. 
 
 ###### 33 
-Ner[^j] begot Kish, Kish begot Saul, and Saul begot Jonathan, Malchishua, [^k]Abinadab, and [^l]Esh-Baal. 
+Ner begot Kish, Kish begot Saul, and Saul begot Jonathan, Malchishua, Abinadab, and Esh-Baal. 
 
 ###### 34 
-The son of Jonathan _was_ [^m]Merib-Baal, and Merib-Baal begot Micah. 
+The son of Jonathan _was_ Merib-Baal, and Merib-Baal begot Micah. 
 
 ###### 35 
-The sons of Micah _were_ Pithon, Melech, [^n]Tarea, and Ahaz. 
+The sons of Micah _were_ Pithon, Melech, Tarea, and Ahaz. 
 
 ###### 36 
-And Ahaz begot [^o]Jehoaddah; Jehoaddah begot Alemeth, Azmaveth, and Zimri; and Zimri begot Moza. 
+And Ahaz begot Jehoaddah; Jehoaddah begot Alemeth, Azmaveth, and Zimri; and Zimri begot Moza. 
 
 ###### 37 
-Moza begot Binea, [^p]Raphah his son, Eleasah his son, _and_ Azel his son. 
+Moza begot Binea, Raphah his son, Eleasah his son, _and_ Azel his son. 
 
 ###### 38 
 Azel had six sons whose names _were_ these: Azrikam, Bocheru, Ishmael, Sheariah, Obadiah, and Hanan. All these _were_ the sons of Azel. 

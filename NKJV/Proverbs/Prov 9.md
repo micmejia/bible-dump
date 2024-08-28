@@ -13,7 +13,7 @@ next: ['Prov 10']
 Wisdom has built her house, She has hewn out her seven pillars; 
 
 ###### 2 
-She has slaughtered her meat, She has mixed her wine, She has also [^a]furnished her table. 
+She has slaughtered her meat, She has mixed her wine, She has also furnished her table. 
 
 ###### 3 
 She has sent out her maidens, She cries out from the highest places of the city, 
@@ -46,7 +46,7 @@ For by me your days will be multiplied, And years of life will be added to you.
 If you are wise, you are wise for yourself, And _if_ you scoff, you will bear _it_ alone." ## The Way of Folly 
 
 ###### 13 
-A foolish woman is [^b]clamorous; _She is_ simple, and knows nothing. 
+A foolish woman is clamorous; _She is_ simple, and knows nothing. 
 
 ###### 14 
 For she sits at the door of her house, On a seat _by_ the highest places of the city, 
@@ -55,10 +55,10 @@ For she sits at the door of her house, On a seat _by_ the highest places of the 
 To call to those who pass by, Who go straight on their way: 
 
 ###### 16 
-"Whoever _is_ [^c]simple, let him turn in here"; And _as for_ him who lacks understanding, she says to him, 
+"Whoever _is_ simple, let him turn in here"; And _as for_ him who lacks understanding, she says to him, 
 
 ###### 17 
 "Stolen water is sweet, And bread _eaten_ in secret is pleasant." 
 
 ###### 18 
-But he does not know that the dead _are_ there, _That_ her guests _are_ in the depths of [^d]hell.
+But he does not know that the dead _are_ there, _That_ her guests _are_ in the depths of hell.

@@ -91,7 +91,7 @@ Then the Israelites cried to the Lord, for [Jabin] had 900 chariots of iron and 
 
 
 
-Now Deborah, a [^a]prophetess, the wife of Lappidoth, judged Israel at that time. 
+Now Deborah, a prophetess, the wife of Lappidoth, judged Israel at that time. 
 
 
 

@@ -139,7 +139,7 @@ Sinabi pa ng Panginoon, "Darating ang araw na paghahariin ko ang isang hari na m
 
 
 
-Ito ang pangalang itatawag sa kanya, 'Ang Panginoon ang Ating Katuwiran.'[^a] At sa panahong iyon, maliligtas ang Juda at magkakaroon ng kapayapaan sa Israel. 
+Ito ang pangalang itatawag sa kanya, 'Ang Panginoon ang Ating Katuwiran.' At sa panahong iyon, maliligtas ang Juda at magkakaroon ng kapayapaan sa Israel. 
 
 
 
@@ -271,7 +271,7 @@ Nadudurog ang puso ko dahil sa mga <i class="trans-change">bulaang_ propeta. Nan
 
 
 
-Puno na ang lupain ng mga taong sumasamba sa mga dios-diosan,[^b] dahil gumagawa ng kasamaan ang mga propeta at nagmamalabis sa kapangyarihan nila. At dahil ditoʼy isinumpa ng Panginoon ang lupain, kaya natuyo at nalanta ang mga tanim. 
+Puno na ang lupain ng mga taong sumasamba sa mga dios-diosan, dahil gumagawa ng kasamaan ang mga propeta at nagmamalabis sa kapangyarihan nila. At dahil ditoʼy isinumpa ng Panginoon ang lupain, kaya natuyo at nalanta ang mga tanim. 
 
 
 

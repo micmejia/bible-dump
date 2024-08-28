@@ -238,7 +238,7 @@ Nilabag niya ang mga utos ko at naging mas masama pa kaysa sa ibang mga bansang 
 
 
 
-<i class="trans-change">Ako,_ ang Panginoong Dios, ay nagsasabi: <i class="trans-change">Kayong mga taga-Jerusalem,_ mas masama pa kayo kaysa sa mga bansang nasa palibot ninyo. Hindi ninyo sinunod ang mga utos at mga tuntunin ko, o sinunod[^a] man ang mga tuntunin ng mga bansang nasa palibot ninyo. 
+<i class="trans-change">Ako,_ ang Panginoong Dios, ay nagsasabi: <i class="trans-change">Kayong mga taga-Jerusalem,_ mas masama pa kayo kaysa sa mga bansang nasa palibot ninyo. Hindi ninyo sinunod ang mga utos at mga tuntunin ko, o sinunod man ang mga tuntunin ng mga bansang nasa palibot ninyo. 
 
 
 
@@ -403,7 +403,7 @@ Ako, ang buhay na Panginoong Dios, ay sumusumpang lilipulin ko kayo. Hindi ko ka
 
 
 
-Hahatiin ko kayo sa tatlo. Ang unang bahagi ay mamamatay sa gutom at sakit sa lungsod. Ang ikalawang bahagi ay mamamatay sa labas ng lungsod sa pamamagitan ng espada. At ang ikatlong bahagi ay pangangalatin ko sa buong daigdig at patuloy kong uusigin.[^b] 
+Hahatiin ko kayo sa tatlo. Ang unang bahagi ay mamamatay sa gutom at sakit sa lungsod. Ang ikalawang bahagi ay mamamatay sa labas ng lungsod sa pamamagitan ng espada. At ang ikatlong bahagi ay pangangalatin ko sa buong daigdig at patuloy kong uusigin. 
 
 
 

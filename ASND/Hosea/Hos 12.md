@@ -40,7 +40,7 @@ next: ['Hos 13']
 
 
 
-Ang mga taga-Israel[^a] ay umaasa sa mga walang kwentang bagay. Buong araw nilang hinahabol ang mga bagay na nagdadala sa kanila sa kapahamakan. Lalo pa silang naging malupit at sinungaling. Nakikipagkasundo sila sa Asiria at <i class="trans-change">sa Egipto, kung kaya_ nireregaluhan nila ang Egipto ng langis. 
+Ang mga taga-Israel ay umaasa sa mga walang kwentang bagay. Buong araw nilang hinahabol ang mga bagay na nagdadala sa kanila sa kapahamakan. Lalo pa silang naging malupit at sinungaling. Nakikipagkasundo sila sa Asiria at <i class="trans-change">sa Egipto, kung kaya_ nireregaluhan nila ang Egipto ng langis. 
 
 
 
@@ -106,7 +106,7 @@ May mga paratang din ang Panginoon laban sa mga taga-Juda na lahi ni Jacob. Paru
 
 
 
-Noong si Jacob <i class="trans-change">na kanilang ninuno_ ay nasa tiyan pa lamang ng kanyang ina, nais na niyang lampasan ang kanyang kakambal.[^b] At <i class="trans-change">noong lumaki na siya,_ nakipagbuno siya sa Dios 
+Noong si Jacob <i class="trans-change">na kanilang ninuno_ ay nasa tiyan pa lamang ng kanyang ina, nais na niyang lampasan ang kanyang kakambal. At <i class="trans-change">noong lumaki na siya,_ nakipagbuno siya sa Dios 
 
 
 
@@ -139,7 +139,7 @@ Noong si Jacob <i class="trans-change">na kanilang ninuno_ ay nasa tiyan pa lama
 
 
 
-sa pamamagitan ng anghel,[^c] at nagtagumpay siya. Umiiyak siya habang nagmamakaawang pagpalain siya ng anghel. Nakita niya ang Dios sa Betel, at doon nakipag-usap ang Dios sa kanya.[^d] 
+sa pamamagitan ng anghel, at nagtagumpay siya. Umiiyak siya habang nagmamakaawang pagpalain siya ng anghel. Nakita niya ang Dios sa Betel, at doon nakipag-usap ang Dios sa kanya. 
 
 
 
@@ -304,7 +304,7 @@ Nagyayabang pa kayong mga taga-Israel at sinasabing, 'Nakapag-ipon kami ng kayam
 
 
 
-Kaya ako, ang Panginoon ninyong Dios <i class="trans-change">na naglabas sa inyo_ sa Egipto, <i class="trans-change">ay nagsasabi:_ Patitirahin ko kayong muli sa mga kubol[^e] gaya ng ginagawa ninyo noon sa panahon ng Pista ng Pagtatayo ng mga Kubol.[^f] 
+Kaya ako, ang Panginoon ninyong Dios <i class="trans-change">na naglabas sa inyo_ sa Egipto, <i class="trans-change">ay nagsasabi:_ Patitirahin ko kayong muli sa mga kubol gaya ng ginagawa ninyo noon sa panahon ng Pista ng Pagtatayo ng mga Kubol. 
 
 
 
@@ -403,7 +403,7 @@ Pero patuloy pa rin ang mga taga-Gilead sa kanilang kasamaan, at sila ay naging 
 
 
 
-"Tumakas si Jacob at pumunta sa Aram[^g] at doon naglingkod bilang pastol para magkaasawa. 
+"Tumakas si Jacob at pumunta sa Aram at doon naglingkod bilang pastol para magkaasawa. 
 
 
 

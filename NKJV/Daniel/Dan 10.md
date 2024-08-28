@@ -10,16 +10,16 @@ next: ['Dan 11']
 
 
 ###### 1 
-In the third year of Cyrus king of Persia a message was revealed to Daniel, whose name was called Belteshazzar. The message _was_ true, [^a]but the appointed time _was_ long; and he understood the message, and had understanding of the vision. 
+In the third year of Cyrus king of Persia a message was revealed to Daniel, whose name was called Belteshazzar. The message _was_ true, but the appointed time _was_ long; and he understood the message, and had understanding of the vision. 
 
 ###### 2 
 In those days I, Daniel, was mourning three full weeks. 
 
 ###### 3 
-I ate no [^b]pleasant food, no meat or wine came into my mouth, nor did I anoint myself at all, till three whole weeks were fulfilled. 
+I ate no pleasant food, no meat or wine came into my mouth, nor did I anoint myself at all, till three whole weeks were fulfilled. 
 
 ###### 4 
-Now on the twenty-fourth day of the first month, as I was by the side of the great river, that _is,_ the [^c]Tigris, 
+Now on the twenty-fourth day of the first month, as I was by the side of the great river, that _is,_ the Tigris, 
 
 ###### 5 
 I lifted my eyes and looked, and behold, a certain man clothed in linen, whose waist _was_ girded with gold of Uphaz! 
@@ -31,7 +31,7 @@ His body _was_ like beryl, his face like the appearance of lightning, his eyes l
 And I, Daniel, alone saw the vision, for the men who were with me did not see the vision; but a great terror fell upon them, so that they fled to hide themselves. 
 
 ###### 8 
-Therefore I was left alone when I saw this great vision, and no strength remained in me; for my [^d]vigor was turned to [^e]frailty in me, and I retained no strength. 
+Therefore I was left alone when I saw this great vision, and no strength remained in me; for my vigor was turned to frailty in me, and I retained no strength. 
 
 ###### 9 
 Yet I heard the sound of his words; and while I heard the sound of his words I was in a deep sleep on my face, with my face to the ground. ## Prophecies Concerning Persia and Greece 
@@ -52,10 +52,10 @@ But the prince of the kingdom of Persia withstood me twenty-one days; and behold
 Now I have come to make you understand what will happen to your people in the latter days, for the vision _refers_ to _many_ days yet _to come._" 
 
 ###### 15 
-When he had spoken such words to me, I [^f]turned my face toward the ground and became speechless. 
+When he had spoken such words to me, I turned my face toward the ground and became speechless. 
 
 ###### 16 
-And suddenly, _one_ having the likeness of the [^g]sons of men touched my lips; then I opened my mouth and spoke, saying to him who stood before me, "My lord, because of the vision my sorrows have [^h]overwhelmed me, and I have retained no strength. 
+And suddenly, _one_ having the likeness of the sons of men touched my lips; then I opened my mouth and spoke, saying to him who stood before me, "My lord, because of the vision my sorrows have overwhelmed me, and I have retained no strength. 
 
 ###### 17 
 For how can this servant of my lord talk with you, my lord? As for me, no strength remains in me now, nor is any breath left in me." 

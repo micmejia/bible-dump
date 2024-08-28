@@ -31,7 +31,7 @@ So Isaac dwelt in Gerar.
 And the men of the place asked about his wife. And he said, "She _is_ my sister"; for he was afraid to say, "_She is_ my wife," _because he thought,_ "lest the men of the place kill me for Rebekah, because she _is_ beautiful to behold." 
 
 ###### 8 
-Now it came to pass, when he had been there a long time, that Abimelech king of the Philistines looked through a window, and saw, and there was Isaac, [^a]showing endearment to Rebekah his wife. 
+Now it came to pass, when he had been there a long time, that Abimelech king of the Philistines looked through a window, and saw, and there was Isaac, showing endearment to Rebekah his wife. 
 
 ###### 9 
 Then Abimelech called Isaac and said, "Quite obviously she _is_ your wife; so how could you say, 'She _is_ my sister'?" Isaac said to him, "Because I said, 'Lest I die on account of her.' " 
@@ -58,7 +58,7 @@ Now the Philistines had stopped up all the wells which his father's servants had
 And Abimelech said to Isaac, "Go away from us, for you are much mightier than we." 
 
 ###### 17 
-Then Isaac departed from there and [^b]pitched his tent in the Valley of Gerar, and dwelt there. 
+Then Isaac departed from there and pitched his tent in the Valley of Gerar, and dwelt there. 
 
 ###### 18 
 And Isaac dug again the wells of water which they had dug in the days of Abraham his father, for the Philistines had stopped them up after the death of Abraham. He called them by the names which his father had called them. 
@@ -67,13 +67,13 @@ And Isaac dug again the wells of water which they had dug in the days of Abraham
 Also Isaac's servants dug in the valley, and found a well of running water there. 
 
 ###### 20 
-But the herdsmen of Gerar quarreled with Isaac's herdsmen, saying, "The water _is_ ours." So he called the name of the well [^c]Esek, because they quarreled with him. 
+But the herdsmen of Gerar quarreled with Isaac's herdsmen, saying, "The water _is_ ours." So he called the name of the well Esek, because they quarreled with him. 
 
 ###### 21 
-Then they dug another well, and they quarreled over that _one_ also. So he called its name [^d]Sitnah. 
+Then they dug another well, and they quarreled over that _one_ also. So he called its name Sitnah. 
 
 ###### 22 
-And he moved from there and dug another well, and they did not quarrel over it. So he called its name [^e]Rehoboth, because he said, "For now the Lord has made room for us, and we shall be fruitful in the land." 
+And he moved from there and dug another well, and they did not quarrel over it. So he called its name Rehoboth, because he said, "For now the Lord has made room for us, and we shall be fruitful in the land." 
 
 ###### 23 
 Then he went up from there to Beersheba. 
@@ -91,7 +91,7 @@ Then Abimelech came to him from Gerar with Ahuzzath, one of his friends, and Phi
 And Isaac said to them, "Why have you come to me, since you hate me and have sent me away from you?" 
 
 ###### 28 
-But they said, "We have certainly seen that the Lord is with you. So we said, 'Let there now be an oath between us, between you and us; and let us make a [^f]covenant with you, 
+But they said, "We have certainly seen that the Lord is with you. So we said, 'Let there now be an oath between us, between you and us; and let us make a covenant with you, 
 
 ###### 29 
 that you will do us no harm, since we have not touched you, and since we have done nothing to you but good and have sent you away in peace. You _are_ now the blessed of the Lord.' " 
@@ -106,7 +106,7 @@ Then they arose early in the morning and swore an oath with one another; and Isa
 It came to pass the same day that Isaac's servants came and told him about the well which they had dug, and said to him, "We have found water." 
 
 ###### 33 
-So he called it [^g]Shebah. Therefore the name of the city _is_ [^h]Beersheba to this day. 
+So he called it Shebah. Therefore the name of the city _is_ Beersheba to this day. 
 
 ###### 34 
 When Esau was forty years old, he took as wives Judith the daughter of Beeri the Hittite, and Basemath the daughter of Elon the Hittite. 

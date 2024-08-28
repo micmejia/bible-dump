@@ -112,7 +112,7 @@ Nicodemus said to Him, How can a man be born when he is old? Can he enter his mo
 
 
 
-Jesus answered, I assure you, most solemnly I tell you, unless a man is born of water and [[^a]even] the Spirit, he cannot [ever] enter the kingdom of God. 
+Jesus answered, I assure you, most solemnly I tell you, unless a man is born of water and [even] the Spirit, he cannot [ever] enter the kingdom of God. 
 
 
 
@@ -280,7 +280,7 @@ If I have told you of things that happen right here on the earth and yet none of
 
 
 
-And yet no one has ever gone up to heaven, but there is One Who has come down from heaven--the Son of Man [Himself], [^b]_Who is (dwells, has His home) in heaven._ 
+And yet no one has ever gone up to heaven, but there is One Who has come down from heaven--the Son of Man [Himself], _Who is (dwells, has His home) in heaven._ 
 
 
 
@@ -322,7 +322,7 @@ And just as Moses lifted up the serpent in the desert [on a pole], so must [so i
 
 
 
-In order that everyone who believes in Him [who cleaves to Him, trusts Him, and relies on Him] may [^c]_not perish, but_ have eternal life _and_ [actually] live forever! 
+In order that everyone who believes in Him [who cleaves to Him, trusts Him, and relies on Him] may _not perish, but_ have eternal life _and_ [actually] live forever! 
 
 
 
@@ -343,7 +343,7 @@ In order that everyone who believes in Him [who cleaves to Him, trusts Him, and 
 
 
 
-For God so greatly loved _and_ dearly prized the world that He [even] gave up His only begotten ([^d]unique) Son, so that whoever believes in (trusts in, clings to, relies on) Him shall not perish (come to destruction, be lost) but have eternal (everlasting) life. 
+For God so greatly loved _and_ dearly prized the world that He [even] gave up His only begotten (unique) Son, so that whoever believes in (trusts in, clings to, relies on) Him shall not perish (come to destruction, be lost) but have eternal (everlasting) life. 
 
 
 
@@ -553,7 +553,7 @@ Therefore there arose a controversy between some of John's disciples and a Jew i
 
 
 
-So they came to John and reported to him, Rabbi, the Man Who was with you on the other side of the Jordan [[^e]at the Jordan crossing]--and to Whom you yourself have borne testimony--notice, here He is baptizing too, and everybody is flocking to Him! 
+So they came to John and reported to him, Rabbi, the Man Who was with you on the other side of the Jordan [at the Jordan crossing]--and to Whom you yourself have borne testimony--notice, here He is baptizing too, and everybody is flocking to Him! 
 
 
 
@@ -574,7 +574,7 @@ So they came to John and reported to him, Rabbi, the Man Who was with you on the
 
 
 
-John answered, A man can receive nothing [he can claim nothing, he can [^f]take unto himself nothing] except as it has been granted to him from heaven. [A man must be content to receive the gift which is given him from heaven; there is no other source.] 
+John answered, A man can receive nothing [he can claim nothing, he can take unto himself nothing] except as it has been granted to him from heaven. [A man must be content to receive the gift which is given him from heaven; there is no other source.] 
 
 
 

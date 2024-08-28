@@ -204,7 +204,7 @@ Noon ay naririnig ko lang po sa iba ang tungkol sa inyo, pero ngayon ay nakita k
 
 
 
-Kaya ako ay nahihiya sa lahat ng sinabi ko tungkol sa inyo, ako po ngayon ay nagsisisi sa pamamagitan ng pag-upo sa abo at alikabok."[^a] ## Ang Katapusan 
+Kaya ako ay nahihiya sa lahat ng sinabi ko tungkol sa inyo, ako po ngayon ay nagsisisi sa pamamagitan ng pag-upo sa abo at alikabok." ## Ang Katapusan 
 
 
 
@@ -501,7 +501,7 @@ Ang panganay niyang babae ay si Jemima, ang pangalawa ay si Kezia, at ang pangat
 
 
 
-Walang babaeng mas gaganda pa kaysa sa kanila sa buong lupain.[^b] Binigyan sila ni Job ng mana katulad ng kanilang mga kapatid na lalaki. 
+Walang babaeng mas gaganda pa kaysa sa kanila sa buong lupain. Binigyan sila ni Job ng mana katulad ng kanilang mga kapatid na lalaki. 
 
 
 

@@ -10,10 +10,10 @@ next: ['Col 3']
 
 
 ###### 1 
-For I want you to know what a great conflict[^a] I have for you and those in Laodicea, and _for_ as many as have not seen my face in the flesh, 
+For I want you to know what a great conflict I have for you and those in Laodicea, and _for_ as many as have not seen my face in the flesh, 
 
 ###### 2 
-that their hearts may be encouraged, being knit together in love, and _attaining_ to all riches of the full assurance of understanding, to the knowledge of the mystery of God, [^b]both of the Father and of Christ, 
+that their hearts may be encouraged, being knit together in love, and _attaining_ to all riches of the full assurance of understanding, to the knowledge of the mystery of God, both of the Father and of Christ, 
 
 ###### 3 
 in whom are hidden all the treasures of wisdom and knowledge. 
@@ -22,25 +22,25 @@ in whom are hidden all the treasures of wisdom and knowledge.
 Now this I say lest anyone should deceive you with persuasive words. 
 
 ###### 5 
-For though I am absent in the flesh, yet I am with you in spirit, rejoicing [^c]to see your _good_ order and the steadfastness of your faith in Christ. 
+For though I am absent in the flesh, yet I am with you in spirit, rejoicing to see your _good_ order and the steadfastness of your faith in Christ. 
 
 ###### 6 
 As you therefore have received Christ Jesus the Lord, so walk in Him, 
 
 ###### 7 
-rooted and built up in Him and established in the faith, as you have been taught, abounding [^d]in it with thanksgiving. 
+rooted and built up in Him and established in the faith, as you have been taught, abounding in it with thanksgiving. 
 
 ###### 8 
-Beware lest anyone [^e]cheat you through philosophy and empty deceit, according to the tradition of men, according to the basic principles of the world, and not according to Christ. 
+Beware lest anyone cheat you through philosophy and empty deceit, according to the tradition of men, according to the basic principles of the world, and not according to Christ. 
 
 ###### 9 
-For in Him dwells all the fullness of the Godhead [^f]bodily; 
+For in Him dwells all the fullness of the Godhead bodily; 
 
 ###### 10 
-and you are complete in Him, who is the head of all [^g]principality and power. ## Not Legalism but Christ 
+and you are complete in Him, who is the head of all principality and power. ## Not Legalism but Christ 
 
 ###### 11 
-In Him you were also circumcised with the circumcision made without hands, by putting off the body [^h]of the sins of the flesh, by the circumcision of Christ, 
+In Him you were also circumcised with the circumcision made without hands, by putting off the body of the sins of the flesh, by the circumcision of Christ, 
 
 ###### 12 
 buried with Him in baptism, in which you also were raised with _Him_ through faith in the working of God, who raised Him from the dead. 
@@ -49,25 +49,25 @@ buried with Him in baptism, in which you also were raised with _Him_ through fai
 And you, being dead in your trespasses and the uncircumcision of your flesh, He has made alive together with Him, having forgiven you all trespasses, 
 
 ###### 14 
-having wiped out the [^i]handwriting of requirements that was against us, which was contrary to us. And He has taken it out of the way, having nailed it to the cross. 
+having wiped out the handwriting of requirements that was against us, which was contrary to us. And He has taken it out of the way, having nailed it to the cross. 
 
 ###### 15 
 Having disarmed principalities and powers, He made a public spectacle of them, triumphing over them in it. 
 
 ###### 16 
-So let no one judge you in food or in drink, or regarding a [^j]festival or a new moon or sabbaths, 
+So let no one judge you in food or in drink, or regarding a festival or a new moon or sabbaths, 
 
 ###### 17 
-which are a shadow of things to come, but the [^k]substance is of Christ. 
+which are a shadow of things to come, but the substance is of Christ. 
 
 ###### 18 
-Let no one cheat you of your reward, taking delight in _false_ humility and worship of angels, intruding into those things which he has [^l]not seen, vainly puffed up by his fleshly mind, 
+Let no one cheat you of your reward, taking delight in _false_ humility and worship of angels, intruding into those things which he has not seen, vainly puffed up by his fleshly mind, 
 
 ###### 19 
 and not holding fast to the Head, from whom all the body, nourished and knit together by joints and ligaments, grows with the increase _that is_ from God. 
 
 ###### 20 
-[^m]Therefore, if you died with Christ from the basic principles of the world, why, as _though_ living in the world, do you subject yourselves to regulations-- 
+Therefore, if you died with Christ from the basic principles of the world, why, as _though_ living in the world, do you subject yourselves to regulations-- 
 
 ###### 21 
 "Do not touch, do not taste, do not handle," 
@@ -76,4 +76,4 @@ and not holding fast to the Head, from whom all the body, nourished and knit tog
 which all concern things which perish with the using--according to the commandments and doctrines of men? 
 
 ###### 23 
-These things indeed have an appearance of wisdom in self-imposed religion, _false_ humility, and [^n]neglect of the body, _but are_ of no value against the indulgence of the flesh.
+These things indeed have an appearance of wisdom in self-imposed religion, _false_ humility, and neglect of the body, _but are_ of no value against the indulgence of the flesh.

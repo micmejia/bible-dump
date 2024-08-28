@@ -19,10 +19,10 @@ Now the Lord spoke to Moses and Aaron, saying to them,
 Among the animals, whatever divides the hoof, having cloven hooves _and_ chewing the cud--that you may eat. 
 
 ###### 4 
-Nevertheless these you shall not eat among those that chew the cud or those that have cloven hooves: the camel, because it chews the cud but does not have cloven hooves, is [^a]unclean to you; 
+Nevertheless these you shall not eat among those that chew the cud or those that have cloven hooves: the camel, because it chews the cud but does not have cloven hooves, is unclean to you; 
 
 ###### 5 
-the [^b]rock hyrax, because it chews the cud but does not have cloven hooves, _is_ [^c]unclean to you; 
+the rock hyrax, because it chews the cud but does not have cloven hooves, _is_ unclean to you; 
 
 ###### 6 
 the hare, because it chews the cud but does not have cloven hooves, _is_ unclean to you; 
@@ -37,7 +37,7 @@ Their flesh you shall not eat, and their carcasses you shall not touch. They _ar
 'These you may eat of all that _are_ in the water: whatever in the water has fins and scales, whether in the seas or in the rivers--that you may eat. 
 
 ###### 10 
-But all in the seas or in the rivers that do not have fins and scales, all that move in the water or any living thing which _is_ in the water, they _are_ [^d]an abomination to you. 
+But all in the seas or in the rivers that do not have fins and scales, all that move in the water or any living thing which _is_ in the water, they _are_ an abomination to you. 
 
 ###### 11 
 They shall be an abomination to you; you shall not eat their flesh, but you shall regard their carcasses as an abomination. 
@@ -79,7 +79,7 @@ These you may eat: the locust after its kind, the destroying locust after its ki
 But all _other_ flying insects which have four feet _shall be_ an abomination to you. ## Unclean Animals 
 
 ###### 24 
-'By these you shall become [^e]unclean; whoever touches the carcass of any of them shall be unclean until evening; 
+'By these you shall become unclean; whoever touches the carcass of any of them shall be unclean until evening; 
 
 ###### 25 
 whoever carries part of the carcass of any of them shall wash his clothes and be unclean until evening: 
@@ -103,7 +103,7 @@ the gecko, the monitor lizard, the sand reptile, the sand lizard, and the chamel
 These _are_ unclean to you among all that creep. Whoever touches them when they are dead shall be unclean until evening. 
 
 ###### 32 
-Anything on which _any_ of them falls, when they are dead shall be [^f]unclean, whether _it is_ any item of wood or clothing or skin or sack, whatever item _it is_, in which _any_ work is done, it must be put in water. And it shall be unclean until evening; then it shall be clean. 
+Anything on which _any_ of them falls, when they are dead shall be unclean, whether _it is_ any item of wood or clothing or skin or sack, whatever item _it is_, in which _any_ work is done, it must be put in water. And it shall be unclean until evening; then it shall be clean. 
 
 ###### 33 
 Any earthen vessel into which _any_ of them falls you shall break; and whatever _is_ in it shall be unclean: 
@@ -121,7 +121,7 @@ Nevertheless a spring or a cistern, _in which there is_ plenty of water, shall b
 And if a part of _any such_ carcass falls on any planting seed which is to be sown, it _remains_ clean. 
 
 ###### 38 
-But if water is put on the seed, and if _a part_ of _any such_ carcass falls on it, it _becomes_ [^g]unclean to you. 
+But if water is put on the seed, and if _a part_ of _any such_ carcass falls on it, it _becomes_ unclean to you. 
 
 ###### 39 
 'And if any animal which you may eat dies, he who touches its carcass shall be unclean until evening. 
@@ -130,13 +130,13 @@ But if water is put on the seed, and if _a part_ of _any such_ carcass falls on 
 He who eats of its carcass shall wash his clothes and be unclean until evening. He also who carries its carcass shall wash his clothes and be unclean until evening. 
 
 ###### 41 
-'And every creeping thing that creeps on the earth _shall be_ [^h]an abomination. It shall not be eaten. 
+'And every creeping thing that creeps on the earth _shall be_ an abomination. It shall not be eaten. 
 
 ###### 42 
 Whatever crawls on its belly, whatever goes on _all_ fours, or whatever has many feet among all creeping things that creep on the earth--these you shall not eat, for they _are_ an abomination. 
 
 ###### 43 
-You shall not make [^i]yourselves [^j]abominable with any creeping thing that creeps; nor shall you make yourselves unclean with them, lest you be defiled by them. 
+You shall not make yourselves abominable with any creeping thing that creeps; nor shall you make yourselves unclean with them, lest you be defiled by them. 
 
 ###### 44 
 For I _am_ the Lord your God. You shall therefore consecrate yourselves, and you shall be holy; for I _am_ holy. Neither shall you defile yourselves with any creeping thing that creeps on the earth. 
@@ -145,7 +145,7 @@ For I _am_ the Lord your God. You shall therefore consecrate yourselves, and you
 For I _am_ the Lord who brings you up out of the land of Egypt, to be your God. You shall therefore be holy, for I _am_ holy. 
 
 ###### 46 
-'This _is_ the law [^k]of the animals and the birds and every living creature that moves in the waters, and of every creature that creeps on the earth, 
+'This _is_ the law of the animals and the birds and every living creature that moves in the waters, and of every creature that creeps on the earth, 
 
 ###### 47 
 to distinguish between the unclean and the clean, and between the animal that may be eaten and the animal that may not be eaten.' "

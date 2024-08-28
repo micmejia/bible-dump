@@ -40,7 +40,7 @@ next: ['Zech 4']
 
 
 
-Ipinakita sa akin ng Panginoon ang punong pari na si Josue na nakatayo sa harapan ng anghel ng Panginoon. Nakatayo naman sa gawing kanan niya si Satanas upang paratangan siya.[^a] 
+Ipinakita sa akin ng Panginoon ang punong pari na si Josue na nakatayo sa harapan ng anghel ng Panginoon. Nakatayo naman sa gawing kanan niya si Satanas upang paratangan siya. 
 
 
 
@@ -139,7 +139,7 @@ Marumi ang damit ni Josue habang nakatayo siya sa harapan ng anghel.
 
 
 
-Kaya sinabi ng anghel sa <i class="trans-change">iba pang_ mga <i class="trans-change">anghel na_ nakatayo sa harapan ni Josue, "Hubarin ninyo ang kanyang maruming damit." Pagkatapos, sinabi ng anghel kay Josue, "Inalis ko na ang iyong mga kasalanan. Ngayon, bibihisan kita ng bagong damit."[^b] 
+Kaya sinabi ng anghel sa <i class="trans-change">iba pang_ mga <i class="trans-change">anghel na_ nakatayo sa harapan ni Josue, "Hubarin ninyo ang kanyang maruming damit." Pagkatapos, sinabi ng anghel kay Josue, "Inalis ko na ang iyong mga kasalanan. Ngayon, bibihisan kita ng bagong damit." 
 
 
 
@@ -271,7 +271,7 @@ ng Makapangyarihang Panginoon: "Kung susunod ka sa aking mga pamamaraan at susun
 
 
 
-Ngayon, makinig ka, Josue na punong pari: Ikaw at ang mga kapwa mo pari ay larawan ng mga pangyayaring darating. Ihahayag ko ang aking lingkod na tinatawag na Sanga.[^c] 
+Ngayon, makinig ka, Josue na punong pari: Ikaw at ang mga kapwa mo pari ay larawan ng mga pangyayaring darating. Ihahayag ko ang aking lingkod na tinatawag na Sanga. 
 
 
 
@@ -304,7 +304,7 @@ Ngayon, makinig ka, Josue na punong pari: Ikaw at ang mga kapwa mo pari ay laraw
 
 
 
-Josue, tingnan mo ang batong inilagay ko sa iyong harapan, mayroon itong pitong mata.[^d] Uukitan ko ito, at aalisin ang kasalanan ng lupain ng Israel sa loob lamang ng isang araw.[^e] 
+Josue, tingnan mo ang batong inilagay ko sa iyong harapan, mayroon itong pitong mata. Uukitan ko ito, at aalisin ang kasalanan ng lupain ng Israel sa loob lamang ng isang araw. 
 
 
 

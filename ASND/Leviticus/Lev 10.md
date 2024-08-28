@@ -40,7 +40,7 @@ next: ['Lev 11']
 
 
 
-Ang dalawang anak ni Aaron na sina Nadab at Abihu ay kapwa kumuha ng lalagyan ng insenso. Nilagyan nila ito ng mga baga at insenso at inihandog sa Panginoon. Pero ang ginawa nilang itoʼy hindi ayon sa utos ng Panginoon, dahil iba ang apoy na kanilang ginamit para rito.[^a] 
+Ang dalawang anak ni Aaron na sina Nadab at Abihu ay kapwa kumuha ng lalagyan ng insenso. Nilagyan nila ito ng mga baga at insenso at inihandog sa Panginoon. Pero ang ginawa nilang itoʼy hindi ayon sa utos ng Panginoon, dahil iba ang apoy na kanilang ginamit para rito. 
 
 
 
@@ -106,7 +106,7 @@ Kaya nagpadala ng apoy ang Panginoon at sinunog sila hanggang sa silaʼy mamatay
 
 
 
-Sinabi ni Moises kay Aaron, "Iyan ang ibig sabihin ng Panginoon nang sabihin niya, 'Dapat malaman ng mga pari[^b] na akoʼy banal, at dapat akong parangalan ng lahat ng tao.' " Hindi umimik si Aaron. 
+Sinabi ni Moises kay Aaron, "Iyan ang ibig sabihin ng Panginoon nang sabihin niya, 'Dapat malaman ng mga pari na akoʼy banal, at dapat akong parangalan ng lahat ng tao.' " Hindi umimik si Aaron. 
 
 
 
@@ -238,7 +238,7 @@ Pagkatapos, sinabi ni Moises kay Aaron at sa mga anak niyang sina Eleazar at Ita
 
 
 
-Huwag muna kayong umalis sa pintuan ng Tolda.[^c] Mamamatay kayo kapag umalis kayo, dahil pinili kayo ng Panginoon para maging mga pari sa pamamagitan ng pagpahid sa inyo ng langis." At sinunod nila ang iniutos ni Moises. 
+Huwag muna kayong umalis sa pintuan ng Tolda. Mamamatay kayo kapag umalis kayo, dahil pinili kayo ng Panginoon para maging mga pari sa pamamagitan ng pagpahid sa inyo ng langis." At sinunod nila ang iniutos ni Moises. 
 
 
 
@@ -535,7 +535,7 @@ Kapag naghandog ang mga taga-Israel, ihandog nila ang pitso, at hita ng hayop pa
 
 
 
-Nang siyasatin ni Moises ang tungkol sa kambing na handog sa paglilinis,[^d] napag-alaman niyang nasunog na itong lahat.[^e] Kaya nagalit siya kina Eleazar at Itamar at sinabihan, 
+Nang siyasatin ni Moises ang tungkol sa kambing na handog sa paglilinis, napag-alaman niyang nasunog na itong lahat. Kaya nagalit siya kina Eleazar at Itamar at sinabihan, 
 
 
 
@@ -634,7 +634,7 @@ Sapagkat ang dugo nito ay hindi dinala sa loob ng Banal na Lugar, kinain sana ni
 
 
 
-Pero sumagot si Aaron kay Moises, "Kanina, naghandog ang aking mga anak ng kanilang handog sa paglilinis at handog na sinusunog,[^f] <i class="trans-change">pero namatay ang dalawa sa kanila_. Sa nangyaring ito <i class="trans-change">sa aking mga anak,_ matutuwa kaya ang Panginoon kung kinain ko ang handog sa paglilinis ngayong araw?" 
+Pero sumagot si Aaron kay Moises, "Kanina, naghandog ang aking mga anak ng kanilang handog sa paglilinis at handog na sinusunog, <i class="trans-change">pero namatay ang dalawa sa kanila_. Sa nangyaring ito <i class="trans-change">sa aking mga anak,_ matutuwa kaya ang Panginoon kung kinain ko ang handog sa paglilinis ngayong araw?" 
 
 
 

@@ -369,7 +369,7 @@ Dapat nating alalahanin na hindi ibinigay ang Kautusan para sa mga matuwid kundi
 
 
 
-na naaayon sa Magandang Balita ng[^a] dakila at mapagpalang Dios. Ipinagkatiwala sa akin <i class="trans-change">Ang Magandang Balitang_ ito <i class="trans-change">para ipahayag_. ## Pasasalamat sa Awa ng Dios 
+na naaayon sa Magandang Balita ng dakila at mapagpalang Dios. Ipinagkatiwala sa akin <i class="trans-change">Ang Magandang Balitang_ ito <i class="trans-change">para ipahayag_. ## Pasasalamat sa Awa ng Dios 
 
 
 

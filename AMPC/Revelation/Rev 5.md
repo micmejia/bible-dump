@@ -28,7 +28,7 @@ next: ['Rev 6']
 
 
 
-And I saw lying on the [^a]open hand of Him Who was seated on the throne a scroll (book) written within and on the back, closed _and_ sealed with seven seals; 
+And I saw lying on the open hand of Him Who was seated on the throne a scroll (book) written within and on the back, closed _and_ sealed with seven seals; 
 
 
 
@@ -112,7 +112,7 @@ And I wept audibly _and_ bitterly because no one was found fit to open the scrol
 
 
 
-Then one of the elders [[^b]of the heavenly Sanhedrin] said to me, Stop weeping! See, the Lion of the tribe of Judah, the Root (Source) of David, has won (has overcome and conquered)! He can open the scroll and break its seven seals! 
+Then one of the elders [of the heavenly Sanhedrin] said to me, Stop weeping! See, the Lion of the tribe of Judah, the Root (Source) of David, has won (has overcome and conquered)! He can open the scroll and break its seven seals! 
 
 
 
@@ -133,7 +133,7 @@ Then one of the elders [[^b]of the heavenly Sanhedrin] said to me, Stop weeping!
 
 
 
-And there between the throne and the four living creatures (beings) and among the elders [[^c]of the heavenly Sanhedrin] I saw a Lamb standing, as though it had been slain, with seven horns and with seven eyes, which are the seven Spirits of God [[^d]the sevenfold Holy Spirit] Who have been sent [on duty far and wide] into all the earth. 
+And there between the throne and the four living creatures (beings) and among the elders [of the heavenly Sanhedrin] I saw a Lamb standing, as though it had been slain, with seven horns and with seven eyes, which are the seven Spirits of God [the sevenfold Holy Spirit] Who have been sent [on duty far and wide] into all the earth. 
 
 
 
@@ -175,7 +175,7 @@ He then went and took the scroll from the right hand of Him Who sat on the thron
 
 
 
-And when He had taken the scroll, the four living creatures and the twenty-four elders [[^e]of the heavenly Sanhedrin] prostrated themselves before the Lamb. Each was holding a harp (lute or guitar), and they had golden bowls full of incense (fragrant spices and gums for burning), which are the prayers of God's people (the saints). 
+And when He had taken the scroll, the four living creatures and the twenty-four elders [of the heavenly Sanhedrin] prostrated themselves before the Lamb. Each was holding a harp (lute or guitar), and they had golden bowls full of incense (fragrant spices and gums for burning), which are the prayers of God's people (the saints). 
 
 
 
@@ -238,7 +238,7 @@ And You have made them a kingdom (royal race) and priests to our God, and they s
 
 
 
-Then I looked, and I heard the voices of many angels on every side of the throne and of the living creatures and the elders [[^f]of the heavenly Sanhedrin], and they numbered ten thousand times ten thousand and thousands of thousands, 
+Then I looked, and I heard the voices of many angels on every side of the throne and of the living creatures and the elders [of the heavenly Sanhedrin], and they numbered ten thousand times ten thousand and thousands of thousands, 
 
 
 
@@ -301,4 +301,4 @@ And I heard every created thing in heaven and on earth and under the earth [in H
 
 
 
-Then the four living creatures (beings) said, Amen (so be it)! And the elders [[^g]of the heavenly Sanhedrin] prostrated themselves and worshiped _Him Who lives forever and ever_.
+Then the four living creatures (beings) said, Amen (so be it)! And the elders [of the heavenly Sanhedrin] prostrated themselves and worshiped _Him Who lives forever and ever_.

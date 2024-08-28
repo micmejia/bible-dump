@@ -49,7 +49,7 @@ But Jesus went to the Mount of Olives.
 
 
 
-Early in the morning (at dawn), He came back into the temple [[^a]court], and the people came to Him in crowds. He sat down and was teaching them, 
+Early in the morning (at dawn), He came back into the temple [court], and the people came to Him in crowds. He sat down and was teaching them, 
 
 
 
@@ -406,7 +406,7 @@ I am One [of the Two] bearing testimony concerning Myself; and My Father, Who se
 
 
 
-Then they said to Him, Where is this [^b]Father of Yours? Jesus answered, You know My Father as little as you know Me. If you knew Me, you would know My Father also. 
+Then they said to Him, Where is this Father of Yours? Jesus answered, You know My Father as little as you know Me. If you knew Me, you would know My Father also. 
 
 
 
@@ -427,7 +427,7 @@ Then they said to Him, Where is this [^b]Father of Yours? Jesus answered, You kn
 
 
 
-Jesus said these things in the treasury while He was teaching in the temple [[^c]court]; but no one ventured to arrest Him, because His hour had not yet come. 
+Jesus said these things in the treasury while He was teaching in the temple [court]; but no one ventured to arrest Him, because His hour had not yet come. 
 
 
 
@@ -1099,7 +1099,7 @@ I assure you, most solemnly I tell you, if anyone observes My teaching [lives in
 
 
 
-The Jews said to Him, Now we know that You are under the power of a demon ([^d]insane). Abraham died, and also the prophets, yet You say, If a man keeps My word, he will never taste of death into all eternity. 
+The Jews said to Him, Now we know that You are under the power of a demon (insane). Abraham died, and also the prophets, yet You say, If a man keeps My word, he will never taste of death into all eternity. 
 
 
 
@@ -1246,4 +1246,4 @@ Jesus replied, I assure you, most solemnly I tell you, before Abraham was born, 
 
 
 
-So they took up stones to throw at Him, but Jesus, by mixing with the crowd, concealed Himself and went out of the temple [[^e]enclosure].
+So they took up stones to throw at Him, but Jesus, by mixing with the crowd, concealed Himself and went out of the temple [enclosure].

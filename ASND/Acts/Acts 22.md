@@ -304,7 +304,7 @@ Nagtanong ako, 'Sino po kayo?' Sumagot ang tinig, 'Akoʼy si Jesus na taga-Nazar
 
 
 
-Nakita ng mga kasama ko ang liwanag pero hindi nila narinig[^a] ang boses na nagsasalita sa akin. 
+Nakita ng mga kasama ko ang liwanag pero hindi nila narinig ang boses na nagsasalita sa akin. 
 
 
 

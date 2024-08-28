@@ -52,7 +52,7 @@ Then Jesus said to the centurion, "Go your way; and as you have believed, _so_ l
 Now when Jesus had come into Peter's house, He saw his wife's mother lying sick with a fever. 
 
 ###### 15 
-So He touched her hand, and the fever left her. And she arose and served [^a]them. ## Many Healed in the Evening 
+So He touched her hand, and the fever left her. And she arose and served them. ## Many Healed in the Evening 
 
 ###### 16 
 When evening had come, they brought to Him many who were demon-possessed. And He cast out the spirits with a word, and healed all who were sick, 
@@ -88,10 +88,10 @@ Then His disciples came to _Him_ and awoke Him, saying, "Lord, save us! We are p
 But He said to them, "Why are you fearful, O you of little faith?" Then He arose and rebuked the winds and the sea, and there was a great calm. 
 
 ###### 27 
-So the men marveled, saying, [^b]"Who can this be, that even the winds and the sea obey Him?" ## Two Demon-Possessed Men Healed 
+So the men marveled, saying, "Who can this be, that even the winds and the sea obey Him?" ## Two Demon-Possessed Men Healed 
 
 ###### 28 
-When He had come to the other side, to the country of the [^c]Gergesenes, there met Him two demon-possessed _men,_ coming out of the tombs, exceedingly fierce, so that no one could pass that way. 
+When He had come to the other side, to the country of the Gergesenes, there met Him two demon-possessed _men,_ coming out of the tombs, exceedingly fierce, so that no one could pass that way. 
 
 ###### 29 
 And suddenly they cried out, saying, "What have we to do with You, Jesus, You Son of God? Have You come here to torment us before the time?" 
@@ -100,7 +100,7 @@ And suddenly they cried out, saying, "What have we to do with You, Jesus, You So
 Now a good way off from them there was a herd of many swine feeding. 
 
 ###### 31 
-So the demons begged Him, saying, "If You cast us out, [^d]permit us to go away into the herd of swine." 
+So the demons begged Him, saying, "If You cast us out, permit us to go away into the herd of swine." 
 
 ###### 32 
 And He said to them, "Go." So when they had come out, they went into the herd of swine. And suddenly the whole herd of swine ran violently down the steep place into the sea, and perished in the water. 

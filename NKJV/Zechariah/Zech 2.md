@@ -31,10 +31,10 @@ For I,' says the Lord, 'will be a wall of fire all around her, and I will be the
 "Up, Zion! Escape, you who dwell with the daughter of Babylon." 
 
 ###### 8 
-For thus says the Lord of hosts: "He sent Me after glory, to the nations which plunder you; for he who touches you touches the [^a]apple of His eye. 
+For thus says the Lord of hosts: "He sent Me after glory, to the nations which plunder you; for he who touches you touches the apple of His eye. 
 
 ###### 9 
-For surely I will shake My hand against them, and they shall become [^b]spoil for their servants. Then you will know that the Lord of hosts has sent Me. 
+For surely I will shake My hand against them, and they shall become spoil for their servants. Then you will know that the Lord of hosts has sent Me. 
 
 ###### 10 
 "Sing and rejoice, O daughter of Zion! For behold, I am coming and I will dwell in your midst," says the Lord. 

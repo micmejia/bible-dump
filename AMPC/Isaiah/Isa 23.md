@@ -49,7 +49,7 @@ The mournful, inspired prediction (a burden to be lifted up) concerning Tyre: Wa
 
 
 
-Be still, you inhabitants of the coast, you merchants of Sidon, [^a]_your messengers_ passing over the sea have replenished you [with wealth and industry], 
+Be still, you inhabitants of the coast, you merchants of Sidon, _your messengers_ passing over the sea have replenished you [with wealth and industry], 
 
 
 
@@ -385,4 +385,4 @@ And after the end of seventy years the Lord will remember Tyre; and she will ret
 
 
 
-But her gain and her hire [the profits of Tyre's new prosperity] will be [^b]dedicated to the Lord [eventually]; it will not be treasured or stored up, for her gain will be used for those who dwell in the presence of the Lord [the ministers], that they may eat sufficiently and have durable _and_ stately clothing [suitable for those who minister at God's altar].
+But her gain and her hire [the profits of Tyre's new prosperity] will be dedicated to the Lord [eventually]; it will not be treasured or stored up, for her gain will be used for those who dwell in the presence of the Lord [the ministers], that they may eat sufficiently and have durable _and_ stately clothing [suitable for those who minister at God's altar].

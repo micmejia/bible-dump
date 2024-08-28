@@ -28,7 +28,7 @@ next: ['Jer 38']
 
 
 
-And Zedekiah son of Josiah, whom [^a]Nebuchadrezzar king of Babylon made king in the land of Judah, reigned instead of Coniah [also called Jeconiah and Jehoiachin] son of Jehoiakim. 
+And Zedekiah son of Josiah, whom Nebuchadrezzar king of Babylon made king in the land of Judah, reigned instead of Coniah [also called Jeconiah and Jehoiachin] son of Jehoiakim. 
 
 
 
@@ -343,7 +343,7 @@ Therefore the princes were enraged with Jeremiah and beat him and put him in pri
 
 
 
-When Jeremiah had come into [^b]the cells in the dungeon and had remained there many days, 
+When Jeremiah had come into the cells in the dungeon and had remained there many days, 
 
 
 

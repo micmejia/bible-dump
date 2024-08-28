@@ -73,7 +73,7 @@ Matandang matanda na si Abraham at pinagpala siya ng Panginoon sa lahat ng bagay
 
 
 
-Isang araw, kinausap niya ang tagapamahalang alipin[^a] niya na nag-aasikaso ng lahat ng ari-arian niya, "Ilagay mo ang kamay mo sa pagitan ng dalawang hita[^b] ko, 
+Isang araw, kinausap niya ang tagapamahalang alipin niya na nag-aasikaso ng lahat ng ari-arian niya, "Ilagay mo ang kamay mo sa pagitan ng dalawang hita ko, 
 
 
 
@@ -337,7 +337,7 @@ Kaya inilagay ng alipin ang kamay niya sa pagitan ng dalawang hita ni Abraham na
 
 
 
-Pagkatapos, kumuha ang alipin ng sampung kamelyo at mga mamahaling regalo mula sa amo niyang si Abraham. Lumakad siya agad papunta sa Aram Naharaim,[^c] ang bayan na tinitirhan ni Nahor. 
+Pagkatapos, kumuha ang alipin ng sampung kamelyo at mga mamahaling regalo mula sa amo niyang si Abraham. Lumakad siya agad papunta sa Aram Naharaim, ang bayan na tinitirhan ni Nahor. 
 
 
 

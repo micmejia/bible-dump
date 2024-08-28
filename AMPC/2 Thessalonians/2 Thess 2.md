@@ -70,7 +70,7 @@ Not to allow your minds to be quickly unsettled _or_ disturbed or kept excited _
 
 
 
-Let no one deceive _or_ beguile you in any way, for that day will not come except the [^a]apostasy comes first [unless the predicted great [^b]falling away of those who have professed to be Christians has come], and the man of lawlessness (sin) is revealed, who is the son of doom (of perdition), 
+Let no one deceive _or_ beguile you in any way, for that day will not come except the apostasy comes first [unless the predicted great falling away of those who have professed to be Christians has come], and the man of lawlessness (sin) is revealed, who is the son of doom (of perdition), 
 
 
 
@@ -154,7 +154,7 @@ And now you know what is restraining him [from being revealed at this time]; it 
 
 
 
-For the mystery of lawlessness (that hidden principle of rebellion against constituted authority) is already at work in the world, [but it is] restrained only until [^c]he who restrains is taken out of the way. 
+For the mystery of lawlessness (that hidden principle of rebellion against constituted authority) is already at work in the world, [but it is] restrained only until he who restrains is taken out of the way. 
 
 
 
@@ -280,7 +280,7 @@ In order that all may be judged _and_ condemned who did not believe in [who refu
 
 
 
-But we, brethren beloved by the Lord, ought _and_ are obligated [as those who are in debt] to give thanks always to God for you, because God chose you from the beginning [^d]_as His firstfruits (first converts)_ for salvation through the sanctifying work of the [Holy] Spirit and [your] belief in (adherence to, trust in, and reliance on) the Truth. 
+But we, brethren beloved by the Lord, ought _and_ are obligated [as those who are in debt] to give thanks always to God for you, because God chose you from the beginning _as His firstfruits (first converts)_ for salvation through the sanctifying work of the [Holy] Spirit and [your] belief in (adherence to, trust in, and reliance on) the Truth. 
 
 
 

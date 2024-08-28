@@ -337,7 +337,7 @@ Pero mag-ingat kayo! Huwag ninyong kalilimutan ang mga bagay na inyong nakita <i
 
 
 
-Alalahanin ninyo ang araw na tumayo kayo sa harap ng Panginoon na inyong Dios sa <i class="trans-change">Bundok ng_ Sinai,[^a] kung saan sinabi niya sa akin, 'Tipunin mo ang mga mamamayan sa aking presensya para makinig sa aking mga salita upang matuto silang gumalang sa akin habang nabubuhay pa sila, at para maituro nila ito sa kanilang mga anak.' 
+Alalahanin ninyo ang araw na tumayo kayo sa harap ng Panginoon na inyong Dios sa <i class="trans-change">Bundok ng_ Sinai, kung saan sinabi niya sa akin, 'Tipunin mo ang mga mamamayan sa aking presensya para makinig sa aking mga salita upang matuto silang gumalang sa akin habang nabubuhay pa sila, at para maituro nila ito sa kanilang mga anak.' 
 
 
 
@@ -1591,7 +1591,7 @@ Sinakop nila Moises ang lupain nito at ang lupain ni Haring Og ng Bashan. Sila a
 
 
 
-Ang kanilang mga lupain na nasakop ng mga Israelita ay mula sa Aroer na nasa itaas na bahagi ng Lambak ng Arnon, papunta sa Bundok ng Sirion[^b] na tinatawag ding Hermon, 
+Ang kanilang mga lupain na nasakop ng mga Israelita ay mula sa Aroer na nasa itaas na bahagi ng Lambak ng Arnon, papunta sa Bundok ng Sirion na tinatawag ding Hermon, 
 
 
 
@@ -1624,4 +1624,4 @@ Ang kanilang mga lupain na nasakop ng mga Israelita ay mula sa Aroer na nasa ita
 
 
 
-at ang lahat ng lupain sa Lambak ng Jordan[^c] sa silangan ng <i class="trans-change">Ilog ng_ Jordan hanggang sa Dagat na Patay,[^d] sa ibabang bahagi ng libis ng Pisga.
+at ang lahat ng lupain sa Lambak ng Jordan sa silangan ng <i class="trans-change">Ilog ng_ Jordan hanggang sa Dagat na Patay, sa ibabang bahagi ng libis ng Pisga.

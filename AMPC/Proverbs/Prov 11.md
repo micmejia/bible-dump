@@ -343,7 +343,7 @@ He who becomes security for an outsider shall smart for it, but he who hates sur
 
 
 
-A gracious _and_ good woman wins honor [for her husband], and violent men win riches _but_ [^a]_a woman who hates righteousness is a throne of dishonor for him_. 
+A gracious _and_ good woman wins honor [for her husband], and violent men win riches _but_ _a woman who hates righteousness is a throne of dishonor for him_. 
 
 
 
@@ -658,4 +658,4 @@ The fruit of the [uncompromisingly] righteous is a tree of life, and he who is w
 
 
 
-Behold, the [uncompromisingly] righteous shall be recompensed on earth; how much more the wicked and the sinner! _And_ [^b]_if the righteous are barely saved, what will become of the ungodly and wicked_?
+Behold, the [uncompromisingly] righteous shall be recompensed on earth; how much more the wicked and the sinner! _And_ _if the righteous are barely saved, what will become of the ungodly and wicked_?

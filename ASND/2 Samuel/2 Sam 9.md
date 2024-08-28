@@ -337,7 +337,7 @@ Pagkatapos, ipinatawag ng hari si Ziba, ang <i class="trans-change">dating_ utus
 
 
 
-Ikaw, ang mga anak mo, at ang mga utusan mo ang magsasaka ng lupain para sa kanya, at dapat mong dalhin sa kanya ang mga ani para may pagkain ang sambahayan ng amo mo.[^a] Pero si Mefiboset naman ay kakaing kasama ko." (May 15 anak na lalaki at 20 utusan si Ziba.) 
+Ikaw, ang mga anak mo, at ang mga utusan mo ang magsasaka ng lupain para sa kanya, at dapat mong dalhin sa kanya ang mga ani para may pagkain ang sambahayan ng amo mo. Pero si Mefiboset naman ay kakaing kasama ko." (May 15 anak na lalaki at 20 utusan si Ziba.) 
 
 
 

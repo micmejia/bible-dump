@@ -22,7 +22,7 @@ Then the Lord said to Jacob, "Return to the land of your fathers and to your fam
 So Jacob sent and called Rachel and Leah to the field, to his flock, 
 
 ###### 5 
-and said to them, "I see your father's [^a]countenance, that it _is_ not _favorable_ toward me as before; but the God of my father has been with me. 
+and said to them, "I see your father's countenance, that it _is_ not _favorable_ toward me as before; but the God of my father has been with me. 
 
 ###### 6 
 And you know that with all my might I have served your father. 
@@ -64,13 +64,13 @@ Then Jacob rose and set his sons and his wives on camels.
 And he carried away all his livestock and all his possessions which he had gained, his acquired livestock which he had gained in Padan Aram, to go to his father Isaac in the land of Canaan. 
 
 ###### 19 
-Now Laban had gone to shear his sheep, and Rachel had stolen the household[^b] idols that were her father's. 
+Now Laban had gone to shear his sheep, and Rachel had stolen the household idols that were her father's. 
 
 ###### 20 
 And Jacob stole away, unknown to Laban the Syrian, in that he did not tell him that he intended to flee. 
 
 ###### 21 
-So he fled with all that he had. He arose and crossed the river, and headed[^c] toward the mountains of Gilead. ## Laban Pursues Jacob 
+So he fled with all that he had. He arose and crossed the river, and headed toward the mountains of Gilead. ## Laban Pursues Jacob 
 
 ###### 22 
 And Laban was told on the third day that Jacob had fled. 
@@ -109,13 +109,13 @@ With whomever you find your gods, do not let him live. In the presence of our br
 And Laban went into Jacob's tent, into Leah's tent, and into the two maids' tents, but he did not find _them._ Then he went out of Leah's tent and entered Rachel's tent. 
 
 ###### 34 
-Now Rachel had taken the [^d]household idols, put them in the camel's saddle, and sat on them. And Laban [^e]searched all about the tent but did not find _them._ 
+Now Rachel had taken the household idols, put them in the camel's saddle, and sat on them. And Laban searched all about the tent but did not find _them._ 
 
 ###### 35 
-And she said to her father, "Let it not displease my lord that I cannot rise before you, for the manner of women _is_ with me." And he searched but did not find the [^f]household idols. 
+And she said to her father, "Let it not displease my lord that I cannot rise before you, for the manner of women _is_ with me." And he searched but did not find the household idols. 
 
 ###### 36 
-Then Jacob was angry and rebuked Laban, and Jacob answered and said to Laban: "What _is_ my [^g]trespass? What _is_ my sin, that you have so hotly pursued me? 
+Then Jacob was angry and rebuked Laban, and Jacob answered and said to Laban: "What _is_ my trespass? What _is_ my sin, that you have so hotly pursued me? 
 
 ###### 37 
 Although you have searched all my things, what part of your household things have you found? Set _it_ here before my brethren and your brethren, that they may judge between us both! 
@@ -139,7 +139,7 @@ Unless the God of my father, the God of Abraham and the Fear of Isaac, had been 
 And Laban answered and said to Jacob, "_These_ daughters _are_ my daughters, and _these_ children _are_ my children, and _this_ flock _is_ my flock; all that you see _is_ mine. But what can I do this day to these my daughters or to their children whom they have borne? 
 
 ###### 44 
-Now therefore, come, let us make a [^h]covenant, you and I, and let it be a witness between you and me." 
+Now therefore, come, let us make a covenant, you and I, and let it be a witness between you and me." 
 
 ###### 45 
 So Jacob took a stone and set it up _as_ a pillar. 
@@ -148,13 +148,13 @@ So Jacob took a stone and set it up _as_ a pillar.
 Then Jacob said to his brethren, "Gather stones." And they took stones and made a heap, and they ate there on the heap. 
 
 ###### 47 
-Laban called it [^i]Jegar Sahadutha, but Jacob called it [^j]Galeed. 
+Laban called it Jegar Sahadutha, but Jacob called it Galeed. 
 
 ###### 48 
 And Laban said, "This heap _is_ a witness between you and me this day." Therefore its name was called Galeed, 
 
 ###### 49 
-also Mizpah,[^k] because he said, "May the Lord watch between you and me when we are absent one from another. 
+also Mizpah, because he said, "May the Lord watch between you and me when we are absent one from another. 
 
 ###### 50 
 If you afflict my daughters, or if you take _other_ wives besides my daughters, _although_ no man _is_ with us--see, God _is_ witness between you and me!" 
@@ -166,7 +166,7 @@ Then Laban said to Jacob, "Here is this heap and here is _this_ pillar, which I 
 This heap _is_ a witness, and _this_ pillar _is_ a witness, that I will not pass beyond this heap to you, and you will not pass beyond this heap and this pillar to me, for harm. 
 
 ###### 53 
-The God of Abraham, the God of Nahor, and the God of their father judge between us." And Jacob swore by the [^l]Fear of his father Isaac. 
+The God of Abraham, the God of Nahor, and the God of their father judge between us." And Jacob swore by the Fear of his father Isaac. 
 
 ###### 54 
 Then Jacob offered a sacrifice on the mountain, and called his brethren to eat bread. And they ate bread and stayed all night on the mountain. 

@@ -16,7 +16,7 @@ Then Job answered and said:
 "How long will you torment my soul, And break me in pieces with words? 
 
 ###### 3 
-These ten times you have [^a]reproached me; You are not ashamed _that_ you [^b]have wronged me. 
+These ten times you have reproached me; You are not ashamed _that_ you have wronged me. 
 
 ###### 4 
 And if indeed I have erred, My error remains with me. 
@@ -28,10 +28,10 @@ If indeed you exalt _yourselves_ against me, And plead my disgrace against me,
 Know then that God has wronged me, And has surrounded me with His net. 
 
 ###### 7 
-"If I cry out concerning [^c]wrong, I am not heard. If I cry aloud, _there is_ no justice. 
+"If I cry out concerning wrong, I am not heard. If I cry aloud, _there is_ no justice. 
 
 ###### 8 
-He has [^d]fenced up my way, so that I cannot pass; And He has set darkness in my paths. 
+He has fenced up my way, so that I cannot pass; And He has set darkness in my paths. 
 
 ###### 9 
 He has stripped me of my glory, And taken the crown _from_ my head. 
@@ -58,7 +58,7 @@ Those who dwell in my house, and my maidservants, Count me as a stranger; I am a
 I call my servant, but he gives no answer; I beg him with my mouth. 
 
 ###### 17 
-My breath is offensive to my wife, And I am [^e]repulsive to the children of my own body. 
+My breath is offensive to my wife, And I am repulsive to the children of my own body. 
 
 ###### 18 
 Even young children despise me; I arise, and they speak against me. 
@@ -85,10 +85,10 @@ That they were engraved on a rock With an iron pen and lead, forever!
 For I know _that_ my Redeemer lives, And He shall stand at last on the earth; 
 
 ###### 26 
-And after my skin is [^f]destroyed, this _I know,_ That in my flesh I shall see God, 
+And after my skin is destroyed, this _I know,_ That in my flesh I shall see God, 
 
 ###### 27 
-Whom I shall see for myself, And my eyes shall behold, and not another. _How_ my [^g]heart yearns within me! 
+Whom I shall see for myself, And my eyes shall behold, and not another. _How_ my heart yearns within me! 
 
 ###### 28 
 If you should say, 'How shall we persecute him?'-- Since the root of the matter is found in me, 

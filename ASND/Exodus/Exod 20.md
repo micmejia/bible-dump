@@ -799,7 +799,7 @@ Kaya huwag kayong gagawa ng mga dios-diosang pilak o ginto para sambahing kasama
 
 
 
-"Gumawa kayo ng altar na lupa para sa akin at gawin ninyo itong pag-aalayan ng inyong mga tupa, kambing at mga baka bilang handog na sinusunog at handog para sa mabuting relasyon.[^a] Gawin ninyo ito sa lugar na pinili ko para sambahin ako, at doon ay pupuntahan ko kayo at pagpapalain. 
+"Gumawa kayo ng altar na lupa para sa akin at gawin ninyo itong pag-aalayan ng inyong mga tupa, kambing at mga baka bilang handog na sinusunog at handog para sa mabuting relasyon. Gawin ninyo ito sa lugar na pinili ko para sambahin ako, at doon ay pupuntahan ko kayo at pagpapalain. 
 
 
 

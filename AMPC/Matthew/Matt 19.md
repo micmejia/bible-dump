@@ -70,7 +70,7 @@ And great throngs accompanied Him, and He cured them there.
 
 
 
-And Pharisees came to Him and put Him to the test by asking, Is it lawful _and_ right to dismiss _and_ repudiate _and_ divorce one's wife for any _and_ [^a]every cause? 
+And Pharisees came to Him and put Him to the test by asking, Is it lawful _and_ right to dismiss _and_ repudiate _and_ divorce one's wife for any _and_ every cause? 
 
 
 
@@ -175,7 +175,7 @@ They said to Him, Why then did Moses command [us] to give a certificate of divor
 
 
 
-He said to them, Because of the hardness (stubbornness and perversity) of your hearts Moses permitted you to dismiss _and_ repudiate _and_ divorce your wives; but from the beginning it has not been [^b]so [ordained]. 
+He said to them, Because of the hardness (stubbornness and perversity) of your hearts Moses permitted you to dismiss _and_ repudiate _and_ divorce your wives; but from the beginning it has not been so [ordained]. 
 
 
 
@@ -196,7 +196,7 @@ He said to them, Because of the hardness (stubbornness and perversity) of your h
 
 
 
-I say to you: whoever dismisses (repudiates, divorces) his wife, except for unchastity, and marries another commits adultery, [^c]_and he who marries a divorced woman commits adultery_. 
+I say to you: whoever dismisses (repudiates, divorces) his wife, except for unchastity, and marries another commits adultery, _and he who marries a divorced woman commits adultery_. 
 
 
 
@@ -385,7 +385,7 @@ And He said to him, Why do you ask Me about the perfectly _and_ essentially good
 
 
 
-He said to Him, What [^d]sort of commandments? [Or, which ones?] And Jesus answered, You shall not kill, You shall not commit adultery, You shall not steal, You shall not bear false witness, 
+He said to Him, What sort of commandments? [Or, which ones?] And Jesus answered, You shall not kill, You shall not commit adultery, You shall not steal, You shall not bear false witness, 
 
 
 
@@ -448,7 +448,7 @@ The young man said, I have observed all these _from my youth_; what still do I l
 
 
 
-Jesus answered him, If you would be perfect [that is, [^e]have that spiritual maturity which accompanies self-sacrificing character], go and sell what you have and give to the poor, and you will have riches in heaven; and come, [^f]be My disciple [side with My party and follow Me]. 
+Jesus answered him, If you would be perfect [that is, have that spiritual maturity which accompanies self-sacrificing character], go and sell what you have and give to the poor, and you will have riches in heaven; and come, be My disciple [side with My party and follow Me]. 
 
 
 
@@ -532,7 +532,7 @@ Again I tell you, it is easier for a camel to go through the eye of a needle tha
 
 
 
-When the disciples heard this, they were utterly puzzled (astonished, bewildered), saying, Who then can be saved [[^g]from eternal death]? 
+When the disciples heard this, they were utterly puzzled (astonished, bewildered), saying, Who then can be saved [from eternal death]? 
 
 
 
@@ -574,7 +574,7 @@ But Jesus looked at them and said, With men this is impossible, but all things a
 
 
 
-Then Peter answered Him, saying, Behold, we have left [our] all and have become [^h]Your disciples [sided with Your party and followed You]. What then shall we receive? 
+Then Peter answered Him, saying, Behold, we have left [our] all and have become Your disciples [sided with Your party and followed You]. What then shall we receive? 
 
 
 
@@ -595,7 +595,7 @@ Then Peter answered Him, saying, Behold, we have left [our] all and have become 
 
 
 
-Jesus said to them, Truly I say to you, in the new age [the [^i]Messianic rebirth of the world], when the Son of Man shall sit down on the throne of His glory, you who have [become My disciples, sided with My party and] followed Me will also sit on twelve thrones and judge the twelve tribes of Israel. 
+Jesus said to them, Truly I say to you, in the new age [the Messianic rebirth of the world], when the Son of Man shall sit down on the throne of His glory, you who have [become My disciples, sided with My party and] followed Me will also sit on twelve thrones and judge the twelve tribes of Israel. 
 
 
 
@@ -616,7 +616,7 @@ Jesus said to them, Truly I say to you, in the new age [the [^i]Messianic rebirt
 
 
 
-And anyone _and_ everyone who has left houses or brothers or sisters or father or mother or children or lands for My name's sake will receive [^j]many [even a hundred] times more and will inherit eternal life. 
+And anyone _and_ everyone who has left houses or brothers or sisters or father or mother or children or lands for My name's sake will receive many [even a hundred] times more and will inherit eternal life. 
 
 
 

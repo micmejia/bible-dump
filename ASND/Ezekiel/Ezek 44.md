@@ -634,7 +634,7 @@ Kinakailangang magsuot din sila ng turban na <i class="trans-change">gawa sa tel
 
 
 
-At kapag lumabas na sila sa bulwagan sa labas na kinaroroonan ng mga tao, kinakailangang hubarin muna nila ang mga damit na ginamit nila sa paglilingkod at ilagay doon sa banal na silid, at saka sila magsuot ng pangkaraniwang damit para hindi mapinsala ang mga tao sa kabanalan nito.[^a] 
+At kapag lumabas na sila sa bulwagan sa labas na kinaroroonan ng mga tao, kinakailangang hubarin muna nila ang mga damit na ginamit nila sa paglilingkod at ilagay doon sa banal na silid, at saka sila magsuot ng pangkaraniwang damit para hindi mapinsala ang mga tao sa kabanalan nito. 
 
 
 
@@ -865,7 +865,7 @@ Huwag nilang dudungisan ang sarili nila sa pamamagitan ng paghipo sa bangkay, ma
 
 
 
-<i class="trans-change">Kapag nakahipo siya ng bangkay,_ kailangan niya ang paglilinis[^b] at maghintay ng pitong araw, 
+<i class="trans-change">Kapag nakahipo siya ng bangkay,_ kailangan niya ang paglilinis at maghintay ng pitong araw, 
 
 
 
@@ -964,7 +964,7 @@ bago siya makapasok sa bakuran sa loob ng templo at mag-alay ng handog sa paglil
 
 
 
-Ang pagkain nila ay magmumula sa mga handog ng pagpaparangal sa akin, handog sa paglilinis, at handog na pambayad ng kasalanan.[^c] Ang anumang bagay na itinalaga para sa akin ay para sa kanila. 
+Ang pagkain nila ay magmumula sa mga handog ng pagpaparangal sa akin, handog sa paglilinis, at handog na pambayad ng kasalanan. Ang anumang bagay na itinalaga para sa akin ay para sa kanila. 
 
 
 

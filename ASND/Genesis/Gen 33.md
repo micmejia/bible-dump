@@ -106,7 +106,7 @@ At pag-alis nila, pinauna niya ang dalawang aliping babae at ang mga anak nila, 
 
 
 
-Si Jacob ay nasa unahan nilang lahat at halos ilang beses[^a] siyang yumukod habang papalapit siya sa kanyang kapatid. 
+Si Jacob ay nasa unahan nilang lahat at halos ilang beses siyang yumukod habang papalapit siya sa kanyang kapatid. 
 
 
 
@@ -568,7 +568,7 @@ Kaya bumalik na lang si Esau sa Seir nang mismong araw na iyon.
 
 
 
-Pero sina Jacob ay pumunta sa Sucot. Pagdating nila roon, gumawa si Jacob ng tirahan at ginawaan din niya ng silungan ang mga hayop niya. Kaya ang lugar na iyon ay tinawag na Sucot.[^b] 
+Pero sina Jacob ay pumunta sa Sucot. Pagdating nila roon, gumawa si Jacob ng tirahan at ginawaan din niya ng silungan ang mga hayop niya. Kaya ang lugar na iyon ay tinawag na Sucot. 
 
 
 
@@ -601,7 +601,7 @@ Pero sina Jacob ay pumunta sa Sucot. Pagdating nila roon, gumawa si Jacob ng tir
 
 
 
-Hindi nagtagal, nakarating din sila sa Canaan mula sa Padan Aram[^c] na walang masamang nangyari sa kanila. Nakarating sila sa lungsod na pagmamay-ari ni Shekem. Nagpatayo sila ng mga tolda nila malapit sa lungsod. 
+Hindi nagtagal, nakarating din sila sa Canaan mula sa Padan Aram na walang masamang nangyari sa kanila. Nakarating sila sa lungsod na pagmamay-ari ni Shekem. Nagpatayo sila ng mga tolda nila malapit sa lungsod. 
 
 
 
@@ -667,4 +667,4 @@ Ang lupaing pinagtayuan nila ng mga tolda ay binili ni Jacob sa mga anak ni Hamo
 
 
 
-Gumawa si Jacob ng altar na pinangalanan niyang El Elohe Israel.[^d]
+Gumawa si Jacob ng altar na pinangalanan niyang El Elohe Israel.

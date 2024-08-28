@@ -22,13 +22,13 @@ And he sought to see who Jesus was, but could not because of the crowd, for he w
 So he ran ahead and climbed up into a sycamore tree to see Him, for He was going to pass that _way._ 
 
 ###### 5 
-And when Jesus came to the place, He looked up [^a]and saw him, and said to him, "Zacchaeus, [^b]make haste and come down, for today I must stay at your house." 
+And when Jesus came to the place, He looked up and saw him, and said to him, "Zacchaeus, make haste and come down, for today I must stay at your house." 
 
 ###### 6 
-So he [^c]made haste and came down, and received Him joyfully. 
+So he made haste and came down, and received Him joyfully. 
 
 ###### 7 
-But when they saw _it,_ they all [^d]complained, saying, "He has gone to be a guest with a man who is a sinner." 
+But when they saw _it,_ they all complained, saying, "He has gone to be a guest with a man who is a sinner." 
 
 ###### 8 
 Then Zacchaeus stood and said to the Lord, "Look, Lord, I give half of my goods to the poor; and if I have taken anything from anyone by false accusation, I restore fourfold." 
@@ -46,7 +46,7 @@ Now as they heard these things, He spoke another parable, because He was near Je
 Therefore He said: "A certain nobleman went into a far country to receive for himself a kingdom and to return. 
 
 ###### 13 
-So he called ten of his servants, delivered to them ten [^e]minas, and said to them, 'Do business till I come.' 
+So he called ten of his servants, delivered to them ten minas, and said to them, 'Do business till I come.' 
 
 ###### 14 
 But his citizens hated him, and sent a delegation after him, saying, 'We will not have this _man_ to reign over us.' 
@@ -70,7 +70,7 @@ Likewise he said to him, 'You also be over five cities.'
 "Then another came, saying, 'Master, here is your mina, which I have kept put away in a handkerchief. 
 
 ###### 21 
-For I feared you, because you are [^f]an austere man. You collect what you did not deposit, and reap what you did not sow.' 
+For I feared you, because you are an austere man. You collect what you did not deposit, and reap what you did not sow.' 
 
 ###### 22 
 And he said to him, 'Out of your own mouth I will judge you, _you_ wicked servant. You knew that I was an austere man, collecting what I did not deposit and reaping what I did not sow. 
@@ -94,7 +94,7 @@ But bring here those enemies of mine, who did not want me to reign over them, an
 When He had said this, He went on ahead, going up to Jerusalem. 
 
 ###### 29 
-And it came to pass, when He drew near to [^g]Bethphage and Bethany, at the mountain called Olivet, _that_ He sent two of His disciples, 
+And it came to pass, when He drew near to Bethphage and Bethany, at the mountain called Olivet, _that_ He sent two of His disciples, 
 
 ###### 30 
 saying, "Go into the village opposite _you,_ where as you enter you will find a colt tied, on which no one has ever sat. Loose it and bring _it here._ 
@@ -142,10 +142,10 @@ For days will come upon you when your enemies will build an embankment around yo
 and level you, and your children within you, to the ground; and they will not leave in you one stone upon another, because you did not know the time of your visitation." ## Jesus Cleanses the Temple 
 
 ###### 45 
-Then He went into the temple and began to drive out those who [^h]bought and sold in it, 
+Then He went into the temple and began to drive out those who bought and sold in it, 
 
 ###### 46 
-saying to them, "It is written, 'My house [^i]is a house of prayer,' but you have made it a 'den of thieves.' " 
+saying to them, "It is written, 'My house is a house of prayer,' but you have made it a 'den of thieves.' " 
 
 ###### 47 
 And He was teaching daily in the temple. But the chief priests, the scribes, and the leaders of the people sought to destroy Him, 

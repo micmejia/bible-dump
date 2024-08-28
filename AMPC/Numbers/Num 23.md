@@ -196,7 +196,7 @@ How can I curse those God has not cursed? Or how can I [violently] denounce thos
 
 
 
-For from the top of the rocks I see Israel, and from the hills I behold him. Behold, the people [of Israel] shall [^a]dwell alone and shall not be reckoned _and_ esteemed among the nations. 
+For from the top of the rocks I see Israel, and from the hills I behold him. Behold, the people [of Israel] shall dwell alone and shall not be reckoned _and_ esteemed among the nations. 
 
 
 

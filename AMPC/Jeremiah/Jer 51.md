@@ -553,7 +553,7 @@ Behold, I am against you, says the Lord, O destroying mountain [which is burning
 
 
 
-And [O Babylon] they shall not take your cracked stones for a cornerstone, or any stone for foundations, but you shall be waste _and_ [^a]desolate forever, says the Lord. 
+And [O Babylon] they shall not take your cracked stones for a cornerstone, or any stone for foundations, but you shall be waste _and_ desolate forever, says the Lord. 
 
 
 
@@ -721,7 +721,7 @@ For thus says the Lord of hosts, the God of Israel: The Daughter of Babylon is l
 
 
 
-[The inhabitants of Zion say] [^b]Nebuchadrezzar king of Babylon has devoured us, he has crushed us, he has made us an empty vessel. Like a monster he has swallowed us up, he has filled his belly with our delicacies; he has rinsed us out _and_ cast us away. 
+[The inhabitants of Zion say] Nebuchadrezzar king of Babylon has devoured us, he has crushed us, he has made us an empty vessel. Like a monster he has swallowed us up, he has filled his belly with our delicacies; he has rinsed us out _and_ cast us away. 
 
 
 
@@ -826,7 +826,7 @@ They [the Chaldean lords] shall be roaring together [before their sudden capture
 
 
 
-When the revelers are [^c]inflamed [with wine and lust during their drinking bouts], I will prepare them a feast [of My wrath] and make them drunk, that they may rejoice and fall asleep to a perpetual sleep and not waken, says the Lord. 
+When the revelers are inflamed [with wine and lust during their drinking bouts], I will prepare them a feast [of My wrath] and make them drunk, that they may rejoice and fall asleep to a perpetual sleep and not waken, says the Lord. 
 
 
 

@@ -34,7 +34,7 @@ To this _promise_ our twelve tribes, earnestly serving _God_ night and day, hope
 Why should it be thought incredible by you that God raises the dead? 
 
 ###### 9 
-"Indeed, I myself thought I must do many things [^a]contrary to the name of Jesus of Nazareth. 
+"Indeed, I myself thought I must do many things contrary to the name of Jesus of Nazareth. 
 
 ###### 10 
 This I also did in Jerusalem, and many of the saints I shut up in prison, having received authority from the chief priests; and when they were put to death, I cast my vote against _them._ 
@@ -58,10 +58,10 @@ So I said, 'Who are You, Lord?' And He said, 'I am Jesus, whom you are persecuti
 But rise and stand on your feet; for I have appeared to you for this purpose, to make you a minister and a witness both of the things which you have seen and of the things which I will yet reveal to you. 
 
 ###### 17 
-I will [^b]deliver you from the _Jewish_ people, as well as _from_ the Gentiles, to whom I [^c]now send you, 
+I will deliver you from the _Jewish_ people, as well as _from_ the Gentiles, to whom I now send you, 
 
 ###### 18 
-to open their eyes, _in order_ to turn _them_ from darkness to light, and _from_ the power of Satan to God, that they may receive forgiveness of sins and an inheritance among those who are sanctified[^d] by faith in Me.' ## Paul's Post-Conversion Life 
+to open their eyes, _in order_ to turn _them_ from darkness to light, and _from_ the power of Satan to God, that they may receive forgiveness of sins and an inheritance among those who are sanctified by faith in Me.' ## Paul's Post-Conversion Life 
 
 ###### 19 
 "Therefore, King Agrippa, I was not disobedient to the heavenly vision, 
@@ -82,7 +82,7 @@ that the Christ would suffer, that He would be the first to rise from the dead, 
 Now as he thus made his defense, Festus said with a loud voice, "Paul, you are beside yourself! Much learning is driving you mad!" 
 
 ###### 25 
-But he said, "I am not [^e]mad, most noble Festus, but speak the words of truth and reason. 
+But he said, "I am not mad, most noble Festus, but speak the words of truth and reason. 
 
 ###### 26 
 For the king, before whom I also speak freely, knows these things; for I am convinced that none of these things escapes his attention, since this thing was not done in a corner. 

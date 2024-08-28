@@ -28,7 +28,7 @@ next: ['Gen 16']
 
 
 
-After these things, the word of the Lord came to Abram in a vision, saying, Fear not, Abram, I am your [^a]Shield, your abundant compensation, _and_ your reward shall be exceedingly great. 
+After these things, the word of the Lord came to Abram in a vision, saying, Fear not, Abram, I am your Shield, your abundant compensation, _and_ your reward shall be exceedingly great. 
 
 
 
@@ -343,7 +343,7 @@ And you shall go to your fathers in peace; you shall be buried at a good old (ho
 
 
 
-And in the [^b]fourth generation they [your descendants] shall come back here [to Canaan] again, for the iniquity of the [^c]Amorites is not yet full _and_ complete. 
+And in the fourth generation they [your descendants] shall come back here [to Canaan] again, for the iniquity of the Amorites is not yet full _and_ complete. 
 
 
 

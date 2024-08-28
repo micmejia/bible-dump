@@ -303,7 +303,7 @@ May kapatid kaming dalagita, at ang kanyang dibdib ay hindi pa nababakas. Anong 
 
 
 
-Birhen man siya o hindi, iingatan namin siya.[^a] 
+Birhen man siya o hindi, iingatan namin siya. 
 
 
 

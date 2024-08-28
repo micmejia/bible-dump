@@ -37,7 +37,7 @@ And Judah said to Onan, "Go in to your brother's wife and marry her, and raise u
 But Onan knew that the heir would not be his; and it came to pass, when he went in to his brother's wife, that he emitted on the ground, lest he should give an heir to his brother. 
 
 ###### 10 
-And the thing which he did [^a]displeased the Lord; therefore He killed him also. 
+And the thing which he did displeased the Lord; therefore He killed him also. 
 
 ###### 11 
 Then Judah said to Tamar his daughter-in-law, "Remain a widow in your father's house till my son Shelah is grown." For he said, "Lest he also die like his brothers." And Tamar went and dwelt in her father's house. 
@@ -70,7 +70,7 @@ So she arose and went away, and laid aside her veil and put on the garments of h
 And Judah sent the young goat by the hand of his friend the Adullamite, to receive _his_ pledge from the woman's hand, but he did not find her. 
 
 ###### 21 
-Then he asked the men of that place, saying, "Where is the harlot who _was_ [^b]openly by the roadside?" And they said, "There was no harlot in this _place._" 
+Then he asked the men of that place, saying, "Where is the harlot who _was_ openly by the roadside?" And they said, "There was no harlot in this _place._" 
 
 ###### 22 
 So he returned to Judah and said, "I cannot find her. Also, the men of the place said there was no harlot in this _place._" 
@@ -79,7 +79,7 @@ So he returned to Judah and said, "I cannot find her. Also, the men of the place
 Then Judah said, "Let her take _them_ for herself, lest we be shamed; for I sent this young goat and you have not found her." 
 
 ###### 24 
-And it came to pass, about three months after, that Judah was told, saying, "Tamar your daughter-in-law has played the harlot; furthermore she _is_ [^c]with child by harlotry." So Judah said, "Bring her out and let her be burned!" 
+And it came to pass, about three months after, that Judah was told, saying, "Tamar your daughter-in-law has played the harlot; furthermore she _is_ with child by harlotry." So Judah said, "Bring her out and let her be burned!" 
 
 ###### 25 
 When she _was_ brought out, she sent to her father-in-law, saying, "By the man to whom these belong, I _am_ with child." And she said, "Please determine whose these _are_--the signet and cord, and staff." 
@@ -94,7 +94,7 @@ Now it came to pass, at the time for giving birth, that behold, twins _were_ in 
 And so it was, when she was giving birth, that _the one_ put out _his_ hand; and the midwife took a scarlet _thread_ and bound it on his hand, saying, "This one came out first." 
 
 ###### 29 
-Then it happened, as he drew back his hand, that his brother came out unexpectedly; and she said, "How did you break through? _This_ breach _be_ upon you!" Therefore his name was called Perez.[^d] 
+Then it happened, as he drew back his hand, that his brother came out unexpectedly; and she said, "How did you break through? _This_ breach _be_ upon you!" Therefore his name was called Perez. 
 
 ###### 30 
 Afterward his brother came out who had the scarlet _thread_ on his hand. And his name was called Zerah.

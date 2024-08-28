@@ -40,7 +40,7 @@ next: ['Isa 22']
 
 
 
-Ang mensaheng itoʼy tungkol sa Babilonia:[^a] Sasalakay ang mga kaaway na parang buhawi. Dadaan ito sa Negev mula sa ilang, sa nakakapangilabot na lupain. 
+Ang mensaheng itoʼy tungkol sa Babilonia: Sasalakay ang mga kaaway na parang buhawi. Dadaan ito sa Negev mula sa ilang, sa nakakapangilabot na lupain. 
 
 
 
@@ -337,7 +337,7 @@ At ngayon, tingnan nʼyo! May dumarating na mga karwahe na hila-hila ng dalawang
 
 
 
-Pagkatapos, sinabi ko, "Mga kapwa kong mga Israelita, na parang mga trigong ginigiik,[^b] sinasabi ko sa inyo ang mga bagay na aking napakinggan sa Panginoong Makapangyarihan, ang Dios ng Israel." ## Ang Mensahe tungkol sa Edom 
+Pagkatapos, sinabi ko, "Mga kapwa kong mga Israelita, na parang mga trigong ginigiik, sinasabi ko sa inyo ang mga bagay na aking napakinggan sa Panginoong Makapangyarihan, ang Dios ng Israel." ## Ang Mensahe tungkol sa Edom 
 
 
 
@@ -370,7 +370,7 @@ Pagkatapos, sinabi ko, "Mga kapwa kong mga Israelita, na parang mga trigong gini
 
 
 
-Ang mensaheng itoʼy tungkol sa Edom:[^c] May taong mula sa Edom[^d] na palaging nagtatanong sa akin, "Tagapagbantay, matagal pa ba ang umaga?" 
+Ang mensaheng itoʼy tungkol sa Edom: May taong mula sa Edom na palaging nagtatanong sa akin, "Tagapagbantay, matagal pa ba ang umaga?" 
 
 
 

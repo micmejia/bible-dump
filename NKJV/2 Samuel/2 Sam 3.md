@@ -16,7 +16,7 @@ Now there was a long war between the house of Saul and the house of David. But D
 Sons were born to David in Hebron: His firstborn was Amnon by Ahinoam the Jezreelitess; 
 
 ###### 3 
-his second, [^a]Chileab, by Abigail the widow of Nabal the Carmelite; the third, Absalom the son of Maacah, the daughter of Talmai, king of Geshur; 
+his second, Chileab, by Abigail the widow of Nabal the Carmelite; the third, Absalom the son of Maacah, the daughter of Talmai, king of Geshur; 
 
 ###### 4 
 the fourth, Adonijah the son of Haggith; the fifth, Shephatiah the son of Abital; 
@@ -37,7 +37,7 @@ Then Abner became very angry at the words of Ishbosheth, and said, "_Am_ I a dog
 May God do so to Abner, and more also, if I do not do for David as the Lord has sworn to him-- 
 
 ###### 10 
-to transfer the kingdom from the [^b]house of Saul, and set up the throne of David over Israel and over Judah, from Dan to Beersheba." 
+to transfer the kingdom from the house of Saul, and set up the throne of David over Israel and over Judah, from Dan to Beersheba." 
 
 ###### 11 
 And he could not answer Abner another word, because he feared him. 
@@ -52,16 +52,16 @@ And _David_ said, "Good, I will make a covenant with you. But one thing I requir
 So David sent messengers to Ishbosheth, Saul's son, saying, "Give _me_ my wife Michal, whom I betrothed to myself for a hundred foreskins of the Philistines." 
 
 ###### 15 
-And Ishbosheth sent and took her from _her_ husband, from [^c]Paltiel the son of Laish. 
+And Ishbosheth sent and took her from _her_ husband, from Paltiel the son of Laish. 
 
 ###### 16 
-Then her husband went along with her to Bahurim, [^d]weeping behind her. So Abner said to him, "Go, return!" And he returned. 
+Then her husband went along with her to Bahurim, weeping behind her. So Abner said to him, "Go, return!" And he returned. 
 
 ###### 17 
 Now Abner had communicated with the elders of Israel, saying, "In time past you were seeking for David _to be_ king over you. 
 
 ###### 18 
-Now then, do _it!_ For the Lord has spoken of David, saying, 'By the hand of My servant David, [^e]I will save My people Israel from the hand of the Philistines and the hand of all their enemies.' " 
+Now then, do _it!_ For the Lord has spoken of David, saying, 'By the hand of My servant David, I will save My people Israel from the hand of the Philistines and the hand of all their enemies.' " 
 
 ###### 19 
 And Abner also spoke in the hearing of Benjamin. Then Abner also went to speak in the hearing of David in Hebron all that seemed good to Israel and the whole house of Benjamin. 
@@ -73,7 +73,7 @@ So Abner and twenty men with him came to David at Hebron. And David made a feast
 Then Abner said to David, "I will arise and go, and gather all Israel to my lord the king, that they may make a covenant with you, and that you may reign over all that your heart desires." So David sent Abner away, and he went in peace. ## Joab Murders Abner 
 
 ###### 22 
-At that moment the servants of David and Joab came from a raid and brought much [^f]spoil with them. But Abner _was_ not with David in Hebron, for he had sent him away, and he had gone in peace. 
+At that moment the servants of David and Joab came from a raid and brought much spoil with them. But Abner _was_ not with David in Hebron, for he had sent him away, and he had gone in peace. 
 
 ###### 23 
 When Joab and all the troops that _were_ with him had come, they told Joab, saying, "Abner the son of Ner came to the king, and he sent him away, and he has gone in peace." 
@@ -88,13 +88,13 @@ Surely you realize that Abner the son of Ner came to deceive you, to know your g
 And when Joab had gone from David's presence, he sent messengers after Abner, who brought him back from the well of Sirah. But David did not know _it._ 
 
 ###### 27 
-Now when Abner had returned to Hebron, Joab took him aside in the gate to speak with him privately, and there [^g]stabbed him in the stomach, so that he died for the blood of Asahel his brother. 
+Now when Abner had returned to Hebron, Joab took him aside in the gate to speak with him privately, and there stabbed him in the stomach, so that he died for the blood of Asahel his brother. 
 
 ###### 28 
-Afterward, when David heard _it,_ he said, "My kingdom and I _are_ [^h]guiltless before the Lord forever of the blood of Abner the son of Ner. 
+Afterward, when David heard _it,_ he said, "My kingdom and I _are_ guiltless before the Lord forever of the blood of Abner the son of Ner. 
 
 ###### 29 
-Let it rest on the head of Joab and on all his father's house; and let there never fail to be in the [^i]house of Joab one who has a discharge or is a leper, who leans on a staff or falls by the sword, or who lacks bread." 
+Let it rest on the head of Joab and on all his father's house; and let there never fail to be in the house of Joab one who has a discharge or is a leper, who leans on a staff or falls by the sword, or who lacks bread." 
 
 ###### 30 
 So Joab and Abishai his brother killed Abner, because he had killed their brother Asahel at Gibeon in the battle. ## David's Mourning for Abner 

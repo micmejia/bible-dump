@@ -10,13 +10,13 @@ next: ['Gen 16']
 
 
 ###### 1 
-After these things the word of the Lord came to Abram in a vision, saying, "Do not be afraid, Abram. I _am_ your shield, [^a]your exceedingly great reward." 
+After these things the word of the Lord came to Abram in a vision, saying, "Do not be afraid, Abram. I _am_ your shield, your exceedingly great reward." 
 
 ###### 2 
-But Abram said, "Lord God, what will You give me, seeing I [^b]go childless, and the heir of my house _is_ Eliezer of Damascus?" 
+But Abram said, "Lord God, what will You give me, seeing I go childless, and the heir of my house _is_ Eliezer of Damascus?" 
 
 ###### 3 
-Then Abram said, "Look, You have given me no offspring; indeed one[^c] born in my house is my heir!" 
+Then Abram said, "Look, You have given me no offspring; indeed one born in my house is my heir!" 
 
 ###### 4 
 And behold, the word of the Lord _came_ to him, saying, "This one shall not be your heir, but one who will come from your own body shall be your heir." 
@@ -52,7 +52,7 @@ Then He said to Abram: "Know certainly that your descendants will be strangers i
 And also the nation whom they serve I will judge; afterward they shall come out with great possessions. 
 
 ###### 15 
-Now as for you, you shall [^d]go to your fathers in peace; you shall be buried at a good old age. 
+Now as for you, you shall go to your fathers in peace; you shall be buried at a good old age. 
 
 ###### 16 
 But in the fourth generation they shall return here, for the iniquity of the Amorites _is_ not yet complete." 

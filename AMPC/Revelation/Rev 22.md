@@ -153,7 +153,7 @@ And he [of the seven angels further] said to me, These statements are reliable (
 
 
 
-And behold, I am coming speedily. Blessed (happy and [^a]to be envied) is he who observes _and_ lays to heart _and_ keeps the truths of the prophecy (the predictions, consolations, and warnings) contained in this [little] book. 
+And behold, I am coming speedily. Blessed (happy and to be envied) is he who observes _and_ lays to heart _and_ keeps the truths of the prophecy (the predictions, consolations, and warnings) contained in this [little] book. 
 
 
 
@@ -216,7 +216,7 @@ But he said to me, Refrain! [You must not do that!] I am [only] a fellow servant
 
 
 
-And he [further] told me, Do not seal up the words of the prophecy of this book _and_ make no secret of them, for the time [^b]when things are brought to a crisis _and_ the period of their fulfillment is near. 
+And he [further] told me, Do not seal up the words of the prophecy of this book _and_ make no secret of them, for the time when things are brought to a crisis _and_ the period of their fulfillment is near. 
 
 
 
@@ -300,7 +300,7 @@ I am the Alpha and the Omega, the First and the Last (the Before all and the End
 
 
 
-Blessed (happy and [^c]to be envied) are those who cleanse their garments, that they may have the authority _and_ right to [approach] the tree of life and to enter through the gates into the city. 
+Blessed (happy and to be envied) are those who cleanse their garments, that they may have the authority _and_ right to [approach] the tree of life and to enter through the gates into the city. 
 
 
 
@@ -363,7 +363,7 @@ I, Jesus, have sent My messenger (angel) to you to witness _and_ to give you ass
 
 
 
-The [Holy] Spirit and the bride (the church, the true Christians) say, Come! And let him who is listening say, Come! And let everyone come who is thirsty [who is painfully conscious of his need [^d]of those things by which the soul is refreshed, supported, and strengthened]; and whoever [earnestly] desires to do it, let him come, take, appropriate, _and_ drink the water of Life without cost. 
+The [Holy] Spirit and the bride (the church, the true Christians) say, Come! And let him who is listening say, Come! And let everyone come who is thirsty [who is painfully conscious of his need of those things by which the soul is refreshed, supported, and strengthened]; and whoever [earnestly] desires to do it, let him come, take, appropriate, _and_ drink the water of Life without cost. 
 
 
 
@@ -384,7 +384,7 @@ The [Holy] Spirit and the bride (the church, the true Christians) say, Come! And
 
 
 
-I [personally solemnly] warn everyone who listens to the statements of the prophecy [the [^e]predictions and the consolations and admonitions pertaining to them] in this book: If anyone shall add anything to them, God will add _and_ lay upon him the plagues (the afflictions and the calamities) that are recorded _and_ described in this book. 
+I [personally solemnly] warn everyone who listens to the statements of the prophecy [the predictions and the consolations and admonitions pertaining to them] in this book: If anyone shall add anything to them, God will add _and_ lay upon him the plagues (the afflictions and the calamities) that are recorded _and_ described in this book. 
 
 
 
@@ -405,7 +405,7 @@ I [personally solemnly] warn everyone who listens to the statements of the proph
 
 
 
-And if anyone cancels _or_ takes away from the statements of the book of this prophecy [these [^f]predictions relating to Christ's kingdom and its speedy triumph, together with the consolations and admonitions or warnings pertaining to them], God will cancel _and_ take away from him his share in the tree of life and in the city of holiness (purity and hallowedness), which are described _and_ promised in this book. 
+And if anyone cancels _or_ takes away from the statements of the book of this prophecy [these predictions relating to Christ's kingdom and its speedy triumph, together with the consolations and admonitions or warnings pertaining to them], God will cancel _and_ take away from him his share in the tree of life and in the city of holiness (purity and hallowedness), which are described _and_ promised in this book. 
 
 
 
@@ -447,4 +447,4 @@ He Who gives this warning _and_ affirms _and_ testifies to these things says, Ye
 
 
 
-The grace (blessing and favor) of the Lord Jesus _Christ (the Messiah)_ be [^g]with all the saints (God's holy people, [^h]those set apart for God, to be, as it were, exclusively His). Amen (so let it be)!
+The grace (blessing and favor) of the Lord Jesus _Christ (the Messiah)_ be with all the saints (God's holy people, those set apart for God, to be, as it were, exclusively His). Amen (so let it be)!

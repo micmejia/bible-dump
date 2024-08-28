@@ -238,7 +238,7 @@ Mga minamahal, kahit na ganito ang sinasabi namin, nakakatiyak kaming nasa mabut
 
 
 
-Makatarungan ang Dios, at hindi niya magagawang kalimutan ang inyong <i class="trans-change">mabubuting_ gawa at ang pagmamahal na ipinakita ninyo sa kanya at patuloy na ipinapakita sa pamamagitan ng pagtulong sa mga <i class="trans-change">kapwa_ pinabanal[^a] <i class="trans-change">ng Dios_. 
+Makatarungan ang Dios, at hindi niya magagawang kalimutan ang inyong <i class="trans-change">mabubuting_ gawa at ang pagmamahal na ipinakita ninyo sa kanya at patuloy na ipinapakita sa pamamagitan ng pagtulong sa mga <i class="trans-change">kapwa_ pinabanal <i class="trans-change">ng Dios_. 
 
 
 
@@ -370,7 +370,7 @@ Tingnan nʼyo ang karanasan ni Abraham: Nang mangako ang Dios kay Abraham, hindi
 
 
 
-Sinabi niya, "Talagang pagpapalain kita at pararamihin ko ang lahi mo."[^b] 
+Sinabi niya, "Talagang pagpapalain kita at pararamihin ko ang lahi mo." 
 
 
 

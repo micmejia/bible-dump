@@ -106,7 +106,7 @@ Siguradong nabalitaan nʼyo na dahil sa biyaya ng Dios, ipinagkatiwala niya sa a
 
 
 
-Gaya ng nabanggit ko sa sulat na ito,[^a] ang Dios mismo ang nagpahayag sa akin tungkol sa kanyang lihim na plano <i class="trans-change">para sa inyo_. 
+Gaya ng nabanggit ko sa sulat na ito, ang Dios mismo ang nagpahayag sa akin tungkol sa kanyang lihim na plano <i class="trans-change">para sa inyo_. 
 
 
 
@@ -139,7 +139,7 @@ Gaya ng nabanggit ko sa sulat na ito,[^a] ang Dios mismo ang nagpahayag sa akin 
 
 
 
-Habang binabasa nʼyo ang sulat kong ito,[^b] malalaman nʼyo ang pagkakaunawa ko tungkol sa lihim na plano <i class="trans-change">ng Dios para sa inyo sa pamamagitan_ ni Cristo. 
+Habang binabasa nʼyo ang sulat kong ito, malalaman nʼyo ang pagkakaunawa ko tungkol sa lihim na plano <i class="trans-change">ng Dios para sa inyo sa pamamagitan_ ni Cristo. 
 
 
 
@@ -172,7 +172,7 @@ Habang binabasa nʼyo ang sulat kong ito,[^b] malalaman nʼyo ang pagkakaunawa k
 
 
 
-Hindi inihayag ng Dios ang planong ito sa mga tao noon, pero ipinahayag na niya ngayon sa mga banal[^c] na apostol at mga propeta sa pamamagitan ng <i class="trans-change">Banal na_ Espiritu. 
+Hindi inihayag ng Dios ang planong ito sa mga tao noon, pero ipinahayag na niya ngayon sa mga banal na apostol at mga propeta sa pamamagitan ng <i class="trans-change">Banal na_ Espiritu. 
 
 
 
@@ -271,7 +271,7 @@ Dahil sa biyaya ng Dios, naging tagapangaral ako ng Magandang Balitang ito sa pa
 
 
 
-Kahit ako ang pinakahamak sa lahat ng mga mananampalataya,[^d] ipinagkaloob pa rin sa akin <i class="trans-change">ng Dios_ ang pribilehiyong ipangaral sa mga hindi Judio ang hindi masukat na biyayang galing kay Cristo, 
+Kahit ako ang pinakahamak sa lahat ng mga mananampalataya, ipinagkaloob pa rin sa akin <i class="trans-change">ng Dios_ ang pribilehiyong ipangaral sa mga hindi Judio ang hindi masukat na biyayang galing kay Cristo, 
 
 
 
@@ -436,7 +436,7 @@ Sa pananampalataya natin kay Cristo Jesus at pakikipag-isa sa kanya, tayo ngayon
 
 
 
-Kaya huwag sana kayong panghinaan ng loob dahil sa mga paghihirap na dinaranas ko, dahil para ito sa ikabubuti[^e] ninyo. ## Ang Pag-ibig ni Cristo 
+Kaya huwag sana kayong panghinaan ng loob dahil sa mga paghihirap na dinaranas ko, dahil para ito sa ikabubuti ninyo. ## Ang Pag-ibig ni Cristo 
 
 
 
@@ -568,7 +568,7 @@ Ipinapanalangin ko na sa kadakilaan ng kapangyarihan niya ay palakasin niya ang 
 
 
 
-para manahan si Cristo sa mga puso nʼyo dahil sa inyong pananampalataya. Ipinapanalangin ko rin na maging matibay kayo at matatag sa pag-ibig ng Dios, <sup class="versenum">18-19</sup>para maunawaan nʼyo at ng iba pang mga pinabanal[^f] kung gaano kalawak, at kahaba, at kataas, at kalalim <i class="trans-change">ang pag-ibig ni Cristo sa atin_. Maranasan nʼyo sana ito, kahit hindi ito lubusang maunawaan, para maging ganap sa inyo ang katangian ng Dios. 
+para manahan si Cristo sa mga puso nʼyo dahil sa inyong pananampalataya. Ipinapanalangin ko rin na maging matibay kayo at matatag sa pag-ibig ng Dios, <sup class="versenum">18-19</sup>para maunawaan nʼyo at ng iba pang mga pinabanal kung gaano kalawak, at kahaba, at kataas, at kalalim <i class="trans-change">ang pag-ibig ni Cristo sa atin_. Maranasan nʼyo sana ito, kahit hindi ito lubusang maunawaan, para maging ganap sa inyo ang katangian ng Dios. 
 
 
 

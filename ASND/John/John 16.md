@@ -766,7 +766,7 @@ Ganyan din kayo. Nalulungkot kayo ngayon, pero magagalak kayo sa araw na magkita
 
 
 
-"Sa araw na iyon, hindi nʼyo na kailangang humingi sa akin[^a] ng kahit ano. Sinasabi ko sa inyo ang totoo, anumang hingin ninyo sa Ama sa aking pangalan ay ibibigay niya sa inyo. 
+"Sa araw na iyon, hindi nʼyo na kailangang humingi sa akin ng kahit ano. Sinasabi ko sa inyo ang totoo, anumang hingin ninyo sa Ama sa aking pangalan ay ibibigay niya sa inyo. 
 
 
 
@@ -1096,4 +1096,4 @@ Pero darating ang oras, at dumating na nga, na magkakawatak-watak kayo at magkak
 
 
 
-Sinabi ko sa inyo ang mga bagay na ito para magkaroon kayo ng kapayapaan sa akin.[^b] Daranas kayo ng paghihirap dito sa mundo,[^c] pero magpakatatag kayo dahil nagtagumpay na ako laban sa kapangyarihan ng mundo."
+Sinabi ko sa inyo ang mga bagay na ito para magkaroon kayo ng kapayapaan sa akin. Daranas kayo ng paghihirap dito sa mundo, pero magpakatatag kayo dahil nagtagumpay na ako laban sa kapangyarihan ng mundo."

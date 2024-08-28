@@ -10,7 +10,7 @@ next: ['Exod 33']
 
 
 ###### 1 
-Now when the people saw that Moses delayed coming down from the mountain, the people gathered together to Aaron, and said to him, "Come, make us [^a]gods that shall go before us; for _as for_ this Moses, the man who brought us up out of the land of Egypt, we do not know what has become of him." 
+Now when the people saw that Moses delayed coming down from the mountain, the people gathered together to Aaron, and said to him, "Come, make us gods that shall go before us; for _as for_ this Moses, the man who brought us up out of the land of Egypt, we do not know what has become of him." 
 
 ###### 2 
 And Aaron said to them, "Break off the golden earrings which _are_ in the ears of your wives, your sons, and your daughters, and bring _them_ to me." 
@@ -34,13 +34,13 @@ And the Lord said to Moses, "Go, get down! For your people whom you brought out 
 They have turned aside quickly out of the way which I commanded them. They have made themselves a molded calf, and worshiped it and sacrificed to it, and said, 'This _is_ your god, O Israel, that brought you out of the land of Egypt!' " 
 
 ###### 9 
-And the Lord said to Moses, "I have seen this people, and indeed it _is_ a [^b]stiff-necked people! 
+And the Lord said to Moses, "I have seen this people, and indeed it _is_ a stiff-necked people! 
 
 ###### 10 
-Now therefore, let Me alone, that My wrath may burn hot against them and I may [^c]consume them. And I will make of you a great nation." 
+Now therefore, let Me alone, that My wrath may burn hot against them and I may consume them. And I will make of you a great nation." 
 
 ###### 11 
-Then Moses pleaded with [^d]the Lord his God, and said: "Lord, why does Your wrath burn hot against Your people whom You have brought out of the land of Egypt with great power and with a mighty hand? 
+Then Moses pleaded with the Lord his God, and said: "Lord, why does Your wrath burn hot against Your people whom You have brought out of the land of Egypt with great power and with a mighty hand? 
 
 ###### 12 
 Why should the Egyptians speak, and say, 'He brought them out to harm them, to kill them in the mountains, and to consume them from the face of the earth'? Turn from Your fierce wrath, and relent from this harm to Your people. 
@@ -94,7 +94,7 @@ And he said to them, "Thus says the Lord God of Israel: 'Let every man put his s
 So the sons of Levi did according to the word of Moses. And about three thousand men of the people fell that day. 
 
 ###### 29 
-Then Moses said, [^e]"Consecrate yourselves today to the Lord, that He may bestow on you a blessing this day, for every man has opposed his son and his brother." 
+Then Moses said, "Consecrate yourselves today to the Lord, that He may bestow on you a blessing this day, for every man has opposed his son and his brother." 
 
 ###### 30 
 Now it came to pass on the next day that Moses said to the people, "You have committed a great sin. So now I will go up to the Lord; perhaps I can make atonement for your sin." 

@@ -139,7 +139,7 @@ Pagkatapos, sinabi ni Moises sa mga tao, "Alalahanin ninyo ang araw na ito, ang 
 
 
 
-<i class="trans-change">Alalahanin ninyo_ ang araw na ito ng buwan ng Abib[^a] – ang araw na inilabas kayo <i class="trans-change">sa Egipto_. 
+<i class="trans-change">Alalahanin ninyo_ ang araw na ito ng buwan ng Abib – ang araw na inilabas kayo <i class="trans-change">sa Egipto_. 
 
 
 
@@ -172,7 +172,7 @@ Pagkatapos, sinabi ni Moises sa mga tao, "Alalahanin ninyo ang araw na ito, ang 
 
 
 
-Dapat nʼyo itong ipagdiwang kapag dinala na kayo ng Panginoon sa lupain ng mga Cananeo, Heteo, Amoreo, Hiveo at mga Jebuseo. Ito ang lupaing ipinangako niya sa inyong mga ninuno na ibibigay sa inyo. Maganda at masaganang lupain[^b] na ito. 
+Dapat nʼyo itong ipagdiwang kapag dinala na kayo ng Panginoon sa lupain ng mga Cananeo, Heteo, Amoreo, Hiveo at mga Jebuseo. Ito ang lupaing ipinangako niya sa inyong mga ninuno na ibibigay sa inyo. Maganda at masaganang lupain na ito. 
 
 
 
@@ -601,7 +601,7 @@ Nang pinaalis na ng Faraon ang mga Israelita, hindi sila pinadaan ng Dios sa daa
 
 
 
-Kaya pinaliko sila ng Dios sa disyerto papunta sa Dagat na Pula.[^c] Armado ang mga Israelita <i class="trans-change">para sa labanan_ nang lisanin nila ang Egipto. 
+Kaya pinaliko sila ng Dios sa disyerto papunta sa Dagat na Pula. Armado ang mga Israelita <i class="trans-change">para sa labanan_ nang lisanin nila ang Egipto. 
 
 
 

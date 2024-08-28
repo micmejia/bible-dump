@@ -364,7 +364,7 @@ And Jacob awoke from his sleep and he said, Surely the Lord is in this place and
 
 
 
-He was afraid and said, How to be feared _and_ reverenced is this place! This is none other than the house of God, and [^a]this is the gateway to heaven! 
+He was afraid and said, How to be feared _and_ reverenced is this place! This is none other than the house of God, and this is the gateway to heaven! 
 
 
 

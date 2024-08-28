@@ -19,7 +19,7 @@ To rob the needy of justice, And to take what is right from the poor of My peopl
 What will you do in the day of punishment, And in the desolation _which_ will come from afar? To whom will you flee for help? And where will you leave your glory? 
 
 ###### 4 
-Without Me they shall bow down among the prisoners, And they shall fall [^a]among the slain." For all this His anger is not turned away, But His hand _is_ stretched out still. ## Arrogant Assyria Also Judged 
+Without Me they shall bow down among the prisoners, And they shall fall among the slain." For all this His anger is not turned away, But His hand _is_ stretched out still. ## Arrogant Assyria Also Judged 
 
 ###### 5 
 "Woe to Assyria, the rod of My anger And the staff in whose hand is My indignation. 
@@ -43,10 +43,10 @@ As my hand has found the kingdoms of the idols, Whose carved images excelled tho
 As I have done to Samaria and her idols, Shall I not do also to Jerusalem and her idols?' " 
 
 ###### 12 
-Therefore it shall come to pass, when the Lord has [^b]performed all His work on Mount Zion and on Jerusalem, _that He will say,_ "I will punish the fruit of the arrogant heart of the king of Assyria, and the glory of his haughty looks." 
+Therefore it shall come to pass, when the Lord has performed all His work on Mount Zion and on Jerusalem, _that He will say,_ "I will punish the fruit of the arrogant heart of the king of Assyria, and the glory of his haughty looks." 
 
 ###### 13 
-For he says: "By the strength of my hand I have done _it,_ And by my wisdom, for I am prudent; Also I have removed the boundaries of the people, And have robbed their treasuries; So I have put down the inhabitants like a [^c]valiant _man._ 
+For he says: "By the strength of my hand I have done _it,_ And by my wisdom, for I am prudent; Also I have removed the boundaries of the people, And have robbed their treasuries; So I have put down the inhabitants like a valiant _man._ 
 
 ###### 14 
 My hand has found like a nest the riches of the people, And as one gathers eggs _that are_ left, I have gathered all the earth; And there was no one who moved _his_ wing, Nor opened _his_ mouth with even a peep." 
@@ -55,7 +55,7 @@ My hand has found like a nest the riches of the people, And as one gathers eggs 
 Shall the ax boast itself against him who chops with it? _Or_ shall the saw exalt itself against him who saws with it? As if a rod could wield _itself_ against those who lift it up, _Or_ as if a staff could lift up, _as if it were_ not wood! 
 
 ###### 16 
-Therefore the Lord, the [^d]Lord of hosts, Will send leanness among his fat ones; And under his glory He will kindle a burning Like the burning of a fire. 
+Therefore the Lord, the Lord of hosts, Will send leanness among his fat ones; And under his glory He will kindle a burning Like the burning of a fire. 
 
 ###### 17 
 So the Light of Israel will be for a fire, And his Holy One for a flame; It will burn and devour His thorns and his briers in one day. 
@@ -67,7 +67,7 @@ And it will consume the glory of his forest and of his fruitful field, Both soul
 Then the rest of the trees of his forest Will be so few in number That a child may write them. ## The Returning Remnant of Israel 
 
 ###### 20 
-And it shall come to pass in that day _That_ the remnant of Israel, And such as have escaped of the house of Jacob, Will never again depend on him who [^e]defeated them, But will depend on the Lord, the Holy One of Israel, in truth. 
+And it shall come to pass in that day _That_ the remnant of Israel, And such as have escaped of the house of Jacob, Will never again depend on him who defeated them, But will depend on the Lord, the Holy One of Israel, in truth. 
 
 ###### 21 
 The remnant will return, the remnant of Jacob, To the Mighty God. 
@@ -85,7 +85,7 @@ Therefore thus says the Lord God of hosts: "O My people, who dwell in Zion, do n
 For yet a very little while and the indignation will cease, as will My anger in their destruction." 
 
 ###### 26 
-And the Lord of hosts will [^f]stir up a scourge for him like the slaughter of Midian at the rock of Oreb; _as_ His rod was on the sea, so will He lift it up in the manner of Egypt. 
+And the Lord of hosts will stir up a scourge for him like the slaughter of Midian at the rock of Oreb; _as_ His rod was on the sea, so will He lift it up in the manner of Egypt. 
 
 ###### 27 
 It shall come to pass in that day _That_ his burden will be taken away from your shoulder, And his yoke from your neck, And the yoke will be destroyed because of the anointing oil. 
@@ -94,10 +94,10 @@ It shall come to pass in that day _That_ his burden will be taken away from your
 He has come to Aiath, He has passed Migron; At Michmash he has attended to his equipment. 
 
 ###### 29 
-They have gone [^g]along the ridge, They have taken up lodging at Geba. Ramah is afraid, Gibeah of Saul has fled. 
+They have gone along the ridge, They have taken up lodging at Geba. Ramah is afraid, Gibeah of Saul has fled. 
 
 ###### 30 
-[^h]Lift up your voice, O daughter of Gallim! Cause it to be heard as far as Laish-- [^i]O poor Anathoth! 
+Lift up your voice, O daughter of Gallim! Cause it to be heard as far as Laish-- O poor Anathoth! 
 
 ###### 31 
 Madmenah has fled, The inhabitants of Gebim seek refuge. 

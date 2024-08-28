@@ -9,13 +9,13 @@ next: ['Ps 2']
 
 
 ###### 1 
-Blessed _is_ the man Who walks not in the counsel of the [^a]ungodly, Nor stands in the path of sinners, Nor sits in the seat of the scornful; 
+Blessed _is_ the man Who walks not in the counsel of the ungodly, Nor stands in the path of sinners, Nor sits in the seat of the scornful; 
 
 ###### 2 
-But his delight _is_ in the law of the Lord, And in His law he [^b]meditates day and night. 
+But his delight _is_ in the law of the Lord, And in His law he meditates day and night. 
 
 ###### 3 
-He shall be like a tree Planted by the [^c]rivers of water, That brings forth its fruit in its season, Whose leaf also shall not wither; And whatever he does shall prosper. 
+He shall be like a tree Planted by the rivers of water, That brings forth its fruit in its season, Whose leaf also shall not wither; And whatever he does shall prosper. 
 
 ###### 4 
 The ungodly _are_ not so, But _are_ like the chaff which the wind drives away. 

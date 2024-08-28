@@ -271,7 +271,7 @@ Mula rooʼy dinala ko sila sa magandang lupain para makinabang sa kasaganaan ng 
 
 
 
-Kahit ang mga pari ay hindi ako hinanap. Ang mga nagtuturo ng kautusan ay hindi ako kilala.[^a] Ang mga pinuno ay naghimagsik laban sa akin. At ang mga propeta ay nagpahayag sa pangalan ni Baal at sumunod sa walang kwentang mga dios-diosan. 
+Kahit ang mga pari ay hindi ako hinanap. Ang mga nagtuturo ng kautusan ay hindi ako kilala. Ang mga pinuno ay naghimagsik laban sa akin. At ang mga propeta ay nagpahayag sa pangalan ni Baal at sumunod sa walang kwentang mga dios-diosan. 
 
 
 
@@ -535,7 +535,7 @@ Ang mga kaaway niya ay parang mga leon na umuungal sa kanya. Sinira nila ang kan
 
 
 
-Ang mga taga-Memfis at mga taga-Tapanhes ang nagwasak sa kanya.[^b] 
+Ang mga taga-Memfis at mga taga-Tapanhes ang nagwasak sa kanya. 
 
 
 
@@ -601,7 +601,7 @@ Ang mga taga-Memfis at mga taga-Tapanhes ang nagwasak sa kanya.[^b]
 
 
 
-Ngayon, ano ang napala ninyo sa inyong paglapit sa Egipto at Asiria? Bakit kayo pumupunta sa Ilog ng Nilo[^c] at Ilog ng Eufrates? 
+Ngayon, ano ang napala ninyo sa inyong paglapit sa Egipto at Asiria? Bakit kayo pumupunta sa Ilog ng Nilo at Ilog ng Eufrates? 
 
 
 

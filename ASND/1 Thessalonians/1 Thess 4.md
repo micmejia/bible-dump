@@ -139,7 +139,7 @@ Nais ng Dios na maging banal kayo, kaya lumayo kayo sa sekswal na imoralidad.
 
 
 
-Dapat ay matutong makitungo ang bawat isa sa asawa niya[^a] sa banal at marangal na pamamaraan, 
+Dapat ay matutong makitungo ang bawat isa sa asawa niya sa banal at marangal na pamamaraan, 
 
 
 

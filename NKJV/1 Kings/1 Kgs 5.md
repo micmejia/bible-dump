@@ -16,13 +16,13 @@ Now Hiram king of Tyre sent his servants to Solomon, because he heard that they 
 Then Solomon sent to Hiram, saying: 
 
 ###### 3 
-You know how my father David could not build a house for the name of the Lord his God because of the wars which were fought against him on every side, until the Lord put [^a]_his foes_ under the soles of his feet. 
+You know how my father David could not build a house for the name of the Lord his God because of the wars which were fought against him on every side, until the Lord put _his foes_ under the soles of his feet. 
 
 ###### 4 
-But now the Lord my God has given me rest[^b] on every side; _there is_ neither adversary nor [^c]evil occurrence. 
+But now the Lord my God has given me rest on every side; _there is_ neither adversary nor evil occurrence. 
 
 ###### 5 
-And behold, [^d]I propose to build a house for the name of the Lord my God, as the Lord spoke to my father David, saying, "Your son, whom I will set on your throne in your place, he shall build the house for My name." 
+And behold, I propose to build a house for the name of the Lord my God, as the Lord spoke to my father David, saying, "Your son, whom I will set on your throne in your place, he shall build the house for My name." 
 
 ###### 6 
 Now therefore, command that they cut down cedars for me from Lebanon; and my servants will be with your servants, and I will pay you wages for your servants according to whatever you say. For you know _there is_ none among us who has skill to cut timber like the Sidonians. 
@@ -40,7 +40,7 @@ My servants shall bring _them_ down from Lebanon to the sea; I will float them i
 Then Hiram gave Solomon cedar and cypress logs _according to_ all his desire. 
 
 ###### 11 
-And Solomon gave Hiram twenty thousand [^e]kors of wheat _as_ food for his household, and [^f]twenty kors of pressed oil. Thus Solomon gave to Hiram year by year. 
+And Solomon gave Hiram twenty thousand kors of wheat _as_ food for his household, and twenty kors of pressed oil. Thus Solomon gave to Hiram year by year. 
 
 ###### 12 
 So the Lord gave Solomon wisdom, as He had promised him; and there was peace between Hiram and Solomon, and the two of them made a treaty together. 
@@ -55,10 +55,10 @@ And he sent them to Lebanon, ten thousand a month in shifts: they were one month
 Solomon had seventy thousand who carried burdens, and eighty thousand who quarried _stone_ in the mountains, 
 
 ###### 16 
-besides three thousand [^g]three hundred from the chiefs of Solomon's deputies, who supervised the people who labored in the work. 
+besides three thousand three hundred from the chiefs of Solomon's deputies, who supervised the people who labored in the work. 
 
 ###### 17 
-And the king commanded them to quarry large stones, costly stones, _and_ hewn stones, to lay the foundation of the [^h]temple. 
+And the king commanded them to quarry large stones, costly stones, _and_ hewn stones, to lay the foundation of the temple. 
 
 ###### 18 
-So Solomon's builders, Hiram's builders, and the Gebalites quarried _them;_ and they prepared timber and stones to build the [^i]temple.
+So Solomon's builders, Hiram's builders, and the Gebalites quarried _them;_ and they prepared timber and stones to build the temple.

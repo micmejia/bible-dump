@@ -271,7 +271,7 @@ At ang kayamanang ibibigay sa iyo ay higit pa kaysa sa kayamanan mo noon.
 
 
 
-"Tanungin mo ang mga matatanda. Alamin mo kung ano ang natutunan[^a] ng kanilang mga ninuno. 
+"Tanungin mo ang mga matatanda. Alamin mo kung ano ang natutunan ng kanilang mga ninuno. 
 
 
 

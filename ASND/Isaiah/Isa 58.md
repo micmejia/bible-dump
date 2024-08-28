@@ -172,7 +172,7 @@ Nag-aayuno nga kayo, pero nag-aaway-away naman kayo, nagtatalo, at nagsusuntukan
 
 
 
-Kapag nag-aayuno kayo, nagpepenitensya kayo. Yumuyuko kayo na parang mga damong kugon. Nagsusuot kayo ng damit na panluksa[^a] at humihiga sa abo. Iyan ba ang tinatawag ninyong ayuno? Akala ba ninyoʼy nakakalugod iyon sa akin? 
+Kapag nag-aayuno kayo, nagpepenitensya kayo. Yumuyuko kayo na parang mga damong kugon. Nagsusuot kayo ng damit na panluksa at humihiga sa abo. Iyan ba ang tinatawag ninyong ayuno? Akala ba ninyoʼy nakakalugod iyon sa akin? 
 
 
 
@@ -271,7 +271,7 @@ Bigyan ninyo ng pagkain ang mga nagugutom, patirahin ninyo sa inyong tahanan ang
 
 
 
-Kapag ginawa nʼyo ito, darating sa inyo ang kaligtasan[^b] na parang bukang-liwayway, at pagagalingin ko kayo agad. Ako na inyong Dios na matuwid ang mangunguna sa inyo at ipagtatanggol ko kayo sa pamamagitan ng aking kapangyarihan. 
+Kapag ginawa nʼyo ito, darating sa inyo ang kaligtasan na parang bukang-liwayway, at pagagalingin ko kayo agad. Ako na inyong Dios na matuwid ang mangunguna sa inyo at ipagtatanggol ko kayo sa pamamagitan ng aking kapangyarihan. 
 
 
 
@@ -370,7 +370,7 @@ at kung gagawin ninyo ang pagpapakain sa mga nagugutom, ang pagbibigay ng pangan
 
 
 
-Palagi ko kayong papatnubayan at bubusugin, kahit na mahirap ang kalagayan[^c] ninyo. Palalakasin ko kayo, at kayoʼy magiging parang halamanang sagana sa tubig at parang bukal na hindi nawawalan ng tubig. 
+Palagi ko kayong papatnubayan at bubusugin, kahit na mahirap ang kalagayan ninyo. Palalakasin ko kayo, at kayoʼy magiging parang halamanang sagana sa tubig at parang bukal na hindi nawawalan ng tubig. 
 
 
 

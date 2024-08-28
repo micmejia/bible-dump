@@ -39,7 +39,7 @@ up: ['Micah']
 
 
 
-<i class="trans-change">Sinabi ni Micas:_ Kawawa ako! Para akong isang gutom na naghahanap ng mga natirang bunga[^a] ng ubas o igos pero walang makita ni isa man. 
+<i class="trans-change">Sinabi ni Micas:_ Kawawa ako! Para akong isang gutom na naghahanap ng mga natirang bunga ng ubas o igos pero walang makita ni isa man. 
 
 
 
@@ -402,7 +402,7 @@ Makikita ito ng ating mga kaaway at mapapahiya sila. Sapagkat kinukutya nila tay
 
 
 
-Sa panahon ding iyon, pupunta sa inyo ang mga tao mula sa Asiria at sa mga lungsod ng Egipto, at mula sa Egipto hanggang sa Ilog <i class="trans-change">ng Eufrates_, at mula sa malalayong lugar.[^b] 
+Sa panahon ding iyon, pupunta sa inyo ang mga tao mula sa Asiria at sa mga lungsod ng Egipto, at mula sa Egipto hanggang sa Ilog <i class="trans-change">ng Eufrates_, at mula sa malalayong lugar. 
 
 
 

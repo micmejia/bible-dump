@@ -49,7 +49,7 @@ Jesus went away from there and came to His [own] country _and_ hometown [Nazaret
 
 
 
-And on the Sabbath He began to teach in the synagogue; and many who listened to Him were utterly astonished, saying, Where did this [^a]Man acquire all this? What is the wisdom [the broad and full intelligence which has been] given to Him? What mighty works _and_ exhibitions of power are wrought by His hands! 
+And on the Sabbath He began to teach in the synagogue; and many who listened to Him were utterly astonished, saying, Where did this Man acquire all this? What is the wisdom [the broad and full intelligence which has been] given to Him? What mighty works _and_ exhibitions of power are wrought by His hands! 
 
 
 
@@ -70,7 +70,7 @@ And on the Sabbath He began to teach in the synagogue; and many who listened to 
 
 
 
-Is not this the Carpenter, the son of Mary and the brother of James and Joses and Judas and Simon? And are not His sisters here among us? And they took offense at Him _and_ [^b]were hurt [that is, they [^c]disapproved of Him, and it hindered them from acknowledging His authority] _and_ they were caused to stumble _and_ fall. 
+Is not this the Carpenter, the son of Mary and the brother of James and Joses and Judas and Simon? And are not His sisters here among us? And they took offense at Him _and_ were hurt [that is, they disapproved of Him, and it hindered them from acknowledging His authority] _and_ they were caused to stumble _and_ fall. 
 
 
 
@@ -112,7 +112,7 @@ But Jesus said to them, A prophet is not without honor (deference, reverence) ex
 
 
 
-And He was not able to do [^d]even one work of power there, except that He laid His hands on a few sickly people [and] cured them. 
+And He was not able to do even one work of power there, except that He laid His hands on a few sickly people [and] cured them. 
 
 
 
@@ -175,7 +175,7 @@ And He called to Him the Twelve [apostles] and began to send them out [as His am
 
 
 
-He charged them to take nothing for their journey except a walking stick--no bread, [^e]no wallet for a collection bag, no money in their belts (girdles, purses)-- 
+He charged them to take nothing for their journey except a walking stick--no bread, no wallet for a collection bag, no money in their belts (girdles, purses)-- 
 
 
 
@@ -238,7 +238,7 @@ And He told them, Wherever you go into a house, stay there until you leave that 
 
 
 
-And if any community will not receive _and_ accept _and_ welcome you, and they refuse to listen to you, when you depart, shake off the dust that is on your feet, for a testimony against them. [^f]_Truly I tell you, it will be more tolerable for Sodom and Gomorrah in the judgment day than for that town._ 
+And if any community will not receive _and_ accept _and_ welcome you, and they refuse to listen to you, when you depart, shake off the dust that is on your feet, for a testimony against them. _Truly I tell you, it will be more tolerable for Sodom and Gomorrah in the judgment day than for that town._ 
 
 
 
@@ -259,7 +259,7 @@ And if any community will not receive _and_ accept _and_ welcome you, and they r
 
 
 
-So they went out and preached that men should repent [[^g]that they should change their minds for the better and heartily amend their ways, with abhorrence of their past sins]. 
+So they went out and preached that men should repent [that they should change their minds for the better and heartily amend their ways, with abhorrence of their past sins]. 
 
 
 
@@ -301,7 +301,7 @@ And they drove out many unclean spirits and anointed with oil many who were sick
 
 
 
-King Herod heard of it, for [Jesus'] name had become well known. [^h]He _and_ they [of his court] said, John the Baptist has been raised from the dead; that is why these mighty powers [[^i]of performing miracles] are at work in Him. 
+King Herod heard of it, for [Jesus'] name had become well known. He _and_ they [of his court] said, John the Baptist has been raised from the dead; that is why these mighty powers [of performing miracles] are at work in Him. 
 
 
 
@@ -343,7 +343,7 @@ King Herod heard of it, for [Jesus'] name had become well known. [^h]He _and_ th
 
 
 
-But when Herod heard [of it], he said, [[^j]This very] John, whom I beheaded, has been raised [from the dead]. 
+But when Herod heard [of it], he said, [This very] John, whom I beheaded, has been raised [from the dead]. 
 
 
 
@@ -427,7 +427,7 @@ And Herodias was angry (enraged) with him _and_ held a grudge against him and wa
 
 
 
-For Herod had [[^k]a reverential] fear of John, knowing that he was a righteous and holy man, and [continually] kept him safe [[^l]under guard]. When he heard [John speak], he was much perplexed; and [yet] he heard him gladly. 
+For Herod had [a reverential] fear of John, knowing that he was a righteous and holy man, and [continually] kept him safe [under guard]. When he heard [John speak], he was much perplexed; and [yet] he heard him gladly. 
 
 
 
@@ -469,7 +469,7 @@ But an opportune time came [for Herodias] when Herod on his birthday gave a banq
 
 
 
-For when the daughter [^m]of Herodias herself came in and danced, she pleased _and_ [^n]fascinated Herod and his guests; and the king said to the girl, Ask me for whatever you desire, and I will give it to you. 
+For when the daughter of Herodias herself came in and danced, she pleased _and_ fascinated Herod and his guests; and the king said to the girl, Ask me for whatever you desire, and I will give it to you. 
 
 
 
@@ -658,7 +658,7 @@ The apostles [sent out as missionaries] came back _and_ gathered together to Jes
 
 
 
-And He said to them, [[^o]As for you] come away by yourselves to a deserted place, and rest a while--for many were [continually] coming and going, and they had not even leisure enough to eat. 
+And He said to them, [As for you] come away by yourselves to a deserted place, and rest a while--for many were [continually] coming and going, and they had not even leisure enough to eat. 
 
 
 
@@ -742,7 +742,7 @@ As Jesus landed, He saw a great crowd waiting, and He was moved with compassion 
 
 
 
-And when [^p]the day was already far gone, His disciples came to Him and said, This is a desolate _and_ isolated place, and the hour is now late. 
+And when the day was already far gone, His disciples came to Him and said, This is a desolate _and_ isolated place, and the hour is now late. 
 
 
 
@@ -784,7 +784,7 @@ Send the crowds away to go into the country and villages round about and buy the
 
 
 
-But He replied to them, Give them something to eat yourselves. And they said to Him, Shall we go and buy 200 [^q]denarii [about forty dollars] worth of bread and give it to them to eat? 
+But He replied to them, Give them something to eat yourselves. And they said to Him, Shall we go and buy 200 denarii [about forty dollars] worth of bread and give it to them to eat? 
 
 
 
@@ -847,7 +847,7 @@ Then He commanded the people all to recline on the green grass by companies.
 
 
 
-So they threw themselves down in ranks of hundreds and fifties [with the [^r]regularity of an arrangement of beds of herbs, looking [^s]like so many garden plots]. 
+So they threw themselves down in ranks of hundreds and fifties [with the regularity of an arrangement of beds of herbs, looking like so many garden plots]. 
 
 
 
@@ -910,7 +910,7 @@ And they all ate and were satisfied.
 
 
 
-And they took up twelve [[^t]small hand] baskets full of broken pieces [from the loaves] and of the fish. 
+And they took up twelve [small hand] baskets full of broken pieces [from the loaves] and of the fish. 
 
 
 
@@ -1036,7 +1036,7 @@ And having seen that they were troubled _and_ tormented in [their] rowing, for t
 
 
 
-But when they saw Him walking on the sea they thought it was a ghost, and [^u]raised a [deep, throaty] shriek of terror. 
+But when they saw Him walking on the sea they thought it was a ghost, and raised a [deep, throaty] shriek of terror. 
 
 
 
@@ -1078,7 +1078,7 @@ For they all saw Him and were agitated (troubled and filled with fear and dread)
 
 
 
-And He went up into the boat with them, and the wind ceased ([^v]sank to rest as if exhausted by its own beating). And they were astonished exceedingly [beyond measure], 
+And He went up into the boat with them, and the wind ceased (sank to rest as if exhausted by its own beating). And they were astonished exceedingly [beyond measure], 
 
 
 
@@ -1099,7 +1099,7 @@ And He went up into the boat with them, and the wind ceased ([^v]sank to rest as
 
 
 
-For they failed to consider _or_ understand [the teaching and meaning of the miracle of] the loaves; [in fact] their hearts had [^w]grown callous [had become dull and had [^x]lost the power of understanding]. 
+For they failed to consider _or_ understand [the teaching and meaning of the miracle of] the loaves; [in fact] their hearts had grown callous [had become dull and had lost the power of understanding]. 
 
 
 
@@ -1120,7 +1120,7 @@ For they failed to consider _or_ understand [the teaching and meaning of the mir
 
 
 
-And when they had crossed over, they reached the land of Gennesaret and [^y]came to [anchor at] the shore. 
+And when they had crossed over, they reached the land of Gennesaret and came to [anchor at] the shore. 
 
 
 

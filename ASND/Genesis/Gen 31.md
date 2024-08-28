@@ -1492,7 +1492,7 @@ Pagkatapos, inutusan niya ang mga kamag-anak niya na magtumpok ng mga bato. At k
 
 
 
-Pinangalanan ni Laban ang tinumpok na mga bato na Jegar Sahaduta.[^a] Pero pinangalanan ito ni Jacob na Galeed.[^b] 
+Pinangalanan ni Laban ang tinumpok na mga bato na Jegar Sahaduta. Pero pinangalanan ito ni Jacob na Galeed. 
 
 
 
@@ -1558,7 +1558,7 @@ Sinabi ni Laban, "Ang mga batong ito na tinumpok ang magpapatunay sa kasunduan n
 
 
 
-Tinawag din iyon na Mizpa,[^c] dahil sinabi pa ni Laban, "Nawaʼy ingatan tayo ng Panginoon sa ating paghihiwalay. 
+Tinawag din iyon na Mizpa, dahil sinabi pa ni Laban, "Nawaʼy ingatan tayo ng Panginoon sa ating paghihiwalay. 
 
 
 

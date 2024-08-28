@@ -16,7 +16,7 @@ I tell the truth in Christ, I am not lying, my conscience also bearing me witnes
 that I have great sorrow and continual grief in my heart. 
 
 ###### 3 
-For I could wish that I myself were accursed from Christ for my brethren, my [^a]countrymen according to the flesh, 
+For I could wish that I myself were accursed from Christ for my brethren, my countrymen according to the flesh, 
 
 ###### 4 
 who are Israelites, to whom _pertain_ the adoption, the glory, the covenants, the giving of the law, the service _of God,_ and the promises; 
@@ -91,19 +91,19 @@ As He says also in Hosea: "I will call them My people, who were not My people, A
 Isaiah also cries out concerning Israel: "Though the number of the children of Israel be as the sand of the sea, The remnant will be saved. 
 
 ###### 28 
-For [^b]He will finish the work and cut _it_ short in righteousness, Because the Lord will make a short work upon the earth." 
+For He will finish the work and cut _it_ short in righteousness, Because the Lord will make a short work upon the earth." 
 
 ###### 29 
-And as Isaiah said before: "Unless the Lord of [^c]Sabaoth had left us a seed, We would have become like Sodom, And we would have been made like Gomorrah." ## Present Condition of Israel 
+And as Isaiah said before: "Unless the Lord of Sabaoth had left us a seed, We would have become like Sodom, And we would have been made like Gomorrah." ## Present Condition of Israel 
 
 ###### 30 
 What shall we say then? That Gentiles, who did not pursue righteousness, have attained to righteousness, even the righteousness of faith; 
 
 ###### 31 
-but Israel, pursuing the law of righteousness, has not attained to the law [^d]of righteousness. 
+but Israel, pursuing the law of righteousness, has not attained to the law of righteousness. 
 
 ###### 32 
-Why? Because _they did_ not _seek it_ by faith, but as it were, [^e]by the works of the law. For they stumbled at that stumbling stone. 
+Why? Because _they did_ not _seek it_ by faith, but as it were, by the works of the law. For they stumbled at that stumbling stone. 
 
 ###### 33 
 As it is written: "Behold, I lay in Zion a stumbling stone and rock of offense, And whoever believes on Him will not be put to shame."

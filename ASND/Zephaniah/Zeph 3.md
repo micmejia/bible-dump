@@ -303,7 +303,7 @@ Dahil sa mga ginawa kong ito akala ko igagalang na ako ng aking mga mamamayan at
 
 
 
-Pagkatapos, babaguhin ko ang mga tao,[^a] para lahat silaʼy lalapit sa akin at magkakaisang maglilingkod sa akin. 
+Pagkatapos, babaguhin ko ang mga tao, para lahat silaʼy lalapit sa akin at magkakaisang maglilingkod sa akin. 
 
 
 
@@ -336,7 +336,7 @@ Pagkatapos, babaguhin ko ang mga tao,[^a] para lahat silaʼy lalapit sa akin at 
 
 
 
-Ang aking mga mamamayang nangalat sa kabilang ibayo ng mga ilog ng Etiopia[^b] ay magdadala ng mga handog sa akin. 
+Ang aking mga mamamayang nangalat sa kabilang ibayo ng mga ilog ng Etiopia ay magdadala ng mga handog sa akin. 
 
 
 
@@ -369,7 +369,7 @@ Ang aking mga mamamayang nangalat sa kabilang ibayo ng mga ilog ng Etiopia[^b] a
 
 
 
-"Sa araw na iyon, <i class="trans-change">kayong mga taga-Jerusalem ay_ hindi na mapapahiya sa lahat ng mga kasalanang ginawa ninyo sa akin, dahil aalisin ko sa inyo ang mga mapagmataas at mayayabang. Kaya wala nang magyayabang doon sa aking banal na bundok.[^c] 
+"Sa araw na iyon, <i class="trans-change">kayong mga taga-Jerusalem ay_ hindi na mapapahiya sa lahat ng mga kasalanang ginawa ninyo sa akin, dahil aalisin ko sa inyo ang mga mapagmataas at mayayabang. Kaya wala nang magyayabang doon sa aking banal na bundok. 
 
 
 
@@ -402,7 +402,7 @@ Ang aking mga mamamayang nangalat sa kabilang ibayo ng mga ilog ng Etiopia[^b] a
 
 
 
-Pero mag-iiwan ako sa Jerusalem ng mga taong aba at mahihirap na hihingi ng tulong[^d] sa akin. 
+Pero mag-iiwan ako sa Jerusalem ng mga taong aba at mahihirap na hihingi ng tulong sa akin. 
 
 
 

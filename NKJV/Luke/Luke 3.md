@@ -13,7 +13,7 @@ next: ['Luke 4']
 Now in the fifteenth year of the reign of Tiberius Caesar, Pontius Pilate being governor of Judea, Herod being tetrarch of Galilee, his brother Philip tetrarch of Iturea and the region of Trachonitis, and Lysanias tetrarch of Abilene, 
 
 ###### 2 
-[^a]while Annas and Caiaphas were high priests, the word of God came to John the son of Zacharias in the wilderness. 
+while Annas and Caiaphas were high priests, the word of God came to John the son of Zacharias in the wilderness. 
 
 ###### 3 
 And he went into all the region around the Jordan, preaching a baptism of repentance for the remission of sins, 
@@ -28,7 +28,7 @@ Every valley shall be filled And every mountain and hill brought low; The crooke
 And all flesh shall see the salvation of God.' " ## John Preaches to the People 
 
 ###### 7 
-Then he said to the multitudes that came out to be baptized by him, "Brood[^b] of vipers! Who warned you to flee from the wrath to come? 
+Then he said to the multitudes that came out to be baptized by him, "Brood of vipers! Who warned you to flee from the wrath to come? 
 
 ###### 8 
 Therefore bear fruits worthy of repentance, and do not begin to say to yourselves, 'We have Abraham as _our_ father.' For I say to you that God is able to raise up children to Abraham from these stones. 
@@ -49,7 +49,7 @@ Then tax collectors also came to be baptized, and said to him, "Teacher, what sh
 And he said to them, "Collect no more than what is appointed for you." 
 
 ###### 14 
-Likewise the soldiers asked him, saying, "And what shall we do?" So he said to them, "Do not [^c]intimidate anyone or accuse falsely, and be content with your wages." 
+Likewise the soldiers asked him, saying, "And what shall we do?" So he said to them, "Do not intimidate anyone or accuse falsely, and be content with your wages." 
 
 ###### 15 
 Now as the people were in expectation, and all reasoned in their hearts about John, whether he was the Christ _or_ not, 
@@ -64,7 +64,7 @@ His winnowing fan _is_ in His hand, and He will thoroughly clean out His threshi
 And with many other exhortations he preached to the people. 
 
 ###### 19 
-But Herod the tetrarch, being rebuked by him concerning Herodias, his [^d]brother Philip's wife, and for all the evils which Herod had done, 
+But Herod the tetrarch, being rebuked by him concerning Herodias, his brother Philip's wife, and for all the evils which Herod had done, 
 
 ###### 20 
 also added this, above all, that he shut John up in prison. ## John Baptizes Jesus 

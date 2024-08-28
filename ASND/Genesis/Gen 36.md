@@ -733,7 +733,7 @@ Dishon, Ezer at Dishan. Naging pinuno rin sila ng mga Horeo na nakatira sa Edom.
 
 
 
-Ang mga anak na lalaki ni Lotan ay sina Hori at Heman.[^a] Si Lotan ay mayroong kapatid na babae na si Timna <i class="trans-change">na isa pang asawa ni Elifaz_. 
+Ang mga anak na lalaki ni Lotan ay sina Hori at Heman. Si Lotan ay mayroong kapatid na babae na si Timna <i class="trans-change">na isa pang asawa ni Elifaz_. 
 
 
 
@@ -1162,7 +1162,7 @@ Pagkamatay ni Hadad, pinalitan siya ni Samla na taga-Masreka.
 
 
 
-Pagkamatay ni Samla, pinalitan siya ni Shaul na taga-Rehobot na malapit sa ilog.[^b] 
+Pagkamatay ni Samla, pinalitan siya ni Shaul na taga-Rehobot na malapit sa ilog. 
 
 
 

@@ -24,19 +24,19 @@ Listen, please, and let me speak; _You said,_ 'I will question you, and you shal
 "I have heard of You by the hearing of the ear, But now my eye sees You. 
 
 ###### 6 
-Therefore I abhor[^a] _myself,_ And repent in dust and ashes." 
+Therefore I abhor _myself,_ And repent in dust and ashes." 
 
 ###### 7 
 And so it was, after the Lord had spoken these words to Job, that the Lord said to Eliphaz the Temanite, "My wrath is aroused against you and your two friends, for you have not spoken of Me _what is_ right, as My servant Job _has._ 
 
 ###### 8 
-Now therefore, take for yourselves seven bulls and seven rams, go to My servant Job, and offer up for yourselves a burnt offering; and My servant Job shall pray for you. For I will accept [^b]him, lest I deal with you _according to your_ folly; because you have not spoken of Me _what is_ right, as My servant Job _has._" 
+Now therefore, take for yourselves seven bulls and seven rams, go to My servant Job, and offer up for yourselves a burnt offering; and My servant Job shall pray for you. For I will accept him, lest I deal with you _according to your_ folly; because you have not spoken of Me _what is_ right, as My servant Job _has._" 
 
 ###### 9 
-So Eliphaz the Temanite and Bildad the Shuhite _and_ Zophar the Naamathite went and did as the Lord commanded them; for the Lord had [^c]accepted Job. 
+So Eliphaz the Temanite and Bildad the Shuhite _and_ Zophar the Naamathite went and did as the Lord commanded them; for the Lord had accepted Job. 
 
 ###### 10 
-And the Lord [^d]restored Job's losses when he prayed for his friends. Indeed the Lord gave Job twice as much as he had before. 
+And the Lord restored Job's losses when he prayed for his friends. Indeed the Lord gave Job twice as much as he had before. 
 
 ###### 11 
 Then all his brothers, all his sisters, and all those who had been his acquaintances before, came to him and ate food with him in his house; and they consoled him and comforted him for all the adversity that the Lord had brought upon him. Each one gave him a piece of silver and each a ring of gold. 
@@ -48,7 +48,7 @@ Now the Lord blessed the latter _days_ of Job more than his beginning; for he ha
 He also had seven sons and three daughters. 
 
 ###### 14 
-And he called the name of the first [^e]Jemimah, the name of the second [^f]Keziah, and the name of the third [^g]Keren-Happuch. 
+And he called the name of the first Jemimah, the name of the second Keziah, and the name of the third Keren-Happuch. 
 
 ###### 15 
 In all the land were found no women _so_ beautiful as the daughters of Job; and their father gave them an inheritance among their brothers. 

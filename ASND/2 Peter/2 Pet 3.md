@@ -171,7 +171,7 @@ Sasabihin nila, "Hindi baʼt nangako si Cristo na babalik siya? Nasaan na siya n
 
 
 
-Sinasadya nilang kalimutan ang katotohanan na nilikha ng Dios ang langit sa pamamagitan ng kanyang salita. At nilikha niya ang lupa mula sa tubig at sa pamamagitan ng tubig.[^a] 
+Sinasadya nilang kalimutan ang katotohanan na nilikha ng Dios ang langit sa pamamagitan ng kanyang salita. At nilikha niya ang lupa mula sa tubig at sa pamamagitan ng tubig. 
 
 
 
@@ -336,7 +336,7 @@ Hindi nagpapabaya ang Panginoon sa pagtupad sa pangako niya, gaya ng inaakala ng
 
 
 
-Ang araw ng Panginoon ay darating na tulad ng isang magnanakaw. Sa araw na iyon, biglang mawawala ang kalangitan na may nakakapangilabot na ugong. Masusunog ang lupa[^b], at mawawala ang lahat ng nasa lupa. 
+Ang araw ng Panginoon ay darating na tulad ng isang magnanakaw. Sa araw na iyon, biglang mawawala ang kalangitan na may nakakapangilabot na ugong. Masusunog ang lupa, at mawawala ang lahat ng nasa lupa. 
 
 
 

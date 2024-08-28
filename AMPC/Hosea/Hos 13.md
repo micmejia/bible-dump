@@ -301,7 +301,7 @@ The pains of a woman in childbirth are coming on for him [to be born]; but he is
 
 
 
-Should I ransom them from the power of Sheol (the place of the dead)? Should I redeem them from death? [^a]O death, where are your plagues? O Sheol, where is your destruction? Relenting _and_ compassion are hidden from My eyes. 
+Should I ransom them from the power of Sheol (the place of the dead)? Should I redeem them from death? O death, where are your plagues? O Sheol, where is your destruction? Relenting _and_ compassion are hidden from My eyes. 
 
 
 

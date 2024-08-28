@@ -799,7 +799,7 @@ Sa pamamagitan nito, makakagawa ka ng banal na mabangong langis na pamahid. <sup
 
 
 
-Italaga mo ang mga bagay na ito para maging napakabanal nito. Ibubukod ang sinumang makakahawak nito.[^a] 
+Italaga mo ang mga bagay na ito para maging napakabanal nito. Ibubukod ang sinumang makakahawak nito. 
 
 
 

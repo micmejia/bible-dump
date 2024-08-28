@@ -40,7 +40,7 @@ next: ['Deut 17']
 
 
 
-"Ipagdiwang ninyo ang Pista ng Paglampas ng Anghel sa buwan ng Abib[^a] bilang pagpaparangal sa Panginoon na inyong Dios, dahil sa buwan na itoʼy inilabas niya kayo nang gabi sa Egipto. 
+"Ipagdiwang ninyo ang Pista ng Paglampas ng Anghel sa buwan ng Abib bilang pagpaparangal sa Panginoon na inyong Dios, dahil sa buwan na itoʼy inilabas niya kayo nang gabi sa Egipto. 
 
 
 

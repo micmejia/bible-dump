@@ -10,7 +10,7 @@ next: ['Ezek 40']
 
 
 ###### 1 
-"And you, son of man, prophesy against Gog, and say, 'Thus says the Lord God: "Behold, I _am_ against you, O Gog, [^a]the prince of Rosh, Meshech, and Tubal; 
+"And you, son of man, prophesy against Gog, and say, 'Thus says the Lord God: "Behold, I _am_ against you, O Gog, the prince of Rosh, Meshech, and Tubal; 
 
 ###### 2 
 and I will turn you around and lead you on, bringing you up from the far north, and bring you against the mountains of Israel. 
@@ -19,13 +19,13 @@ and I will turn you around and lead you on, bringing you up from the far north, 
 Then I will knock the bow out of your left hand, and cause the arrows to fall out of your right hand. 
 
 ###### 4 
-You shall [^b]fall upon the mountains of Israel, you and all your troops and the peoples who _are_ with you; I will give you to birds of prey of every sort and _to_ the beasts of the field to be devoured. 
+You shall fall upon the mountains of Israel, you and all your troops and the peoples who _are_ with you; I will give you to birds of prey of every sort and _to_ the beasts of the field to be devoured. 
 
 ###### 5 
-You shall [^c]fall on [^d]the open field; for I have spoken," says the Lord God. 
+You shall fall on the open field; for I have spoken," says the Lord God. 
 
 ###### 6 
-"And I will send fire on Magog and on those who live [^e]in security in the coastlands. Then they shall know that I _am_ the Lord. 
+"And I will send fire on Magog and on those who live in security in the coastlands. Then they shall know that I _am_ the Lord. 
 
 ###### 7 
 So I will make My holy name known in the midst of My people Israel, and I will not _let them_ profane My holy name anymore. Then the nations shall know that _I am_ the Lord, the Holy One in Israel. 
@@ -34,13 +34,13 @@ So I will make My holy name known in the midst of My people Israel, and I will n
 Surely it is coming, and it shall be done," says the Lord God. "This _is_ the day of which I have spoken. 
 
 ###### 9 
-"Then those who dwell in the cities of Israel will go out and set on fire and burn the weapons, both the shields and bucklers, the bows and arrows, the [^f]javelins and spears; and they will make fires with them for seven years. 
+"Then those who dwell in the cities of Israel will go out and set on fire and burn the weapons, both the shields and bucklers, the bows and arrows, the javelins and spears; and they will make fires with them for seven years. 
 
 ###### 10 
 They will not take wood from the field nor cut down _any_ from the forests, because they will make fires with the weapons; and they will plunder those who plundered them, and pillage those who pillaged them," says the Lord God. ## The Burial of Gog 
 
 ###### 11 
-"It will come to pass in that day _that_ I will give Gog a burial place there in Israel, the valley of those who pass by east of the sea; and it will obstruct travelers, because there they will bury Gog and all his multitude. Therefore they will call _it_ the Valley of [^g]Hamon Gog. 
+"It will come to pass in that day _that_ I will give Gog a burial place there in Israel, the valley of those who pass by east of the sea; and it will obstruct travelers, because there they will bury Gog and all his multitude. Therefore they will call _it_ the Valley of Hamon Gog. 
 
 ###### 12 
 For seven months the house of Israel will be burying them, in order to cleanse the land. 
@@ -49,13 +49,13 @@ For seven months the house of Israel will be burying them, in order to cleanse t
 Indeed all the people of the land will be burying, and they will gain renown for it on the day that I am glorified," says the Lord God. 
 
 ###### 14 
-"They will set apart men regularly employed, with the help of [^h]a search party, to pass through the land and bury those bodies remaining on the ground, in order to cleanse it. At the end of seven months they will make a search. 
+"They will set apart men regularly employed, with the help of a search party, to pass through the land and bury those bodies remaining on the ground, in order to cleanse it. At the end of seven months they will make a search. 
 
 ###### 15 
-The search party will pass through the land; and _when anyone_ sees a man's bone, he shall [^i]set up a marker by it, till the buriers have buried it in the Valley of Hamon Gog. 
+The search party will pass through the land; and _when anyone_ sees a man's bone, he shall set up a marker by it, till the buriers have buried it in the Valley of Hamon Gog. 
 
 ###### 16 
-_The_ name of _the_ city _will_ also _be_ [^j]Hamonah. Thus they shall cleanse the land." ' ## A Triumphant Festival 
+_The_ name of _the_ city _will_ also _be_ Hamonah. Thus they shall cleanse the land." ' ## A Triumphant Festival 
 
 ###### 17 
 "And as for you, son of man, thus says the Lord God, 'Speak to every sort of bird and to every beast of the field: "Assemble yourselves and come; Gather together from all sides to My sacrificial meal Which I am sacrificing for you, A great sacrificial meal on the mountains of Israel, That you may eat flesh and drink blood. 
@@ -91,7 +91,7 @@ after they have borne their shame, and all their unfaithfulness in which they we
 When I have brought them back from the peoples and gathered them out of their enemies' lands, and I am hallowed in them in the sight of many nations, 
 
 ###### 28 
-then they shall know that I _am_ the Lord their God, who sent them into captivity among the nations, but also brought them back to their land, and left none of them [^k]captive any longer. 
+then they shall know that I _am_ the Lord their God, who sent them into captivity among the nations, but also brought them back to their land, and left none of them captive any longer. 
 
 ###### 29 
 And I will not hide My face from them anymore; for I shall have poured out My Spirit on the house of Israel,' says the Lord God."

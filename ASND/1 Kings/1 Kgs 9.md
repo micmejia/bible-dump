@@ -370,7 +370,7 @@ Matapos na maipatayo ni Solomon ang dalawang gusali – ang templo ng Panginoon 
 
 
 
-ibinigay niya ang 20 bayan sa Galilea kay Haring Hiram ng Tyre. Ginawa niya ito dahil tinustusan siya ni Hiram ng lahat ng kahoy na sedro at sipres[^a] at ng ginto na kanyang kailangan. 
+ibinigay niya ang 20 bayan sa Galilea kay Haring Hiram ng Tyre. Ginawa niya ito dahil tinustusan siya ni Hiram ng lahat ng kahoy na sedro at sipres at ng ginto na kanyang kailangan. 
 
 
 
@@ -436,7 +436,7 @@ Pero nang pumunta si Hiram <i class="trans-change">sa Galilea_ mula sa Tyre para
 
 
 
-Sinabi niya kay Solomon "Aking kapatid, anong klaseng mga bayan itong ibinigay mo sa akin?" Tinawag ni Hiram ang lupaing iyon na Cabul,[^b] at ganito pa rin ang tawag dito hanggang ngayon. 
+Sinabi niya kay Solomon "Aking kapatid, anong klaseng mga bayan itong ibinigay mo sa akin?" Tinawag ni Hiram ang lupaing iyon na Cabul, at ganito pa rin ang tawag dito hanggang ngayon. 
 
 
 
@@ -601,7 +601,7 @@ At ipinatayong muli ni Solomon ang Gezer.) Ipinatayo rin niya ang ibabang bahagi
 
 
 
-ang Baalat, ang Tamar[^c] na nasa disyerto na sakop ng kanyang lupain, 
+ang Baalat, ang Tamar na nasa disyerto na sakop ng kanyang lupain, 
 
 
 
@@ -766,7 +766,7 @@ Nang matapos na ang palasyo na ipinagawa ni Solomon para sa kanyang asawa, na an
 
 
 
-Tatlong beses sa bawat taon, nag-aalay si Solomon ng mga handog na sinusunog at mga handog para sa mabuting relasyon[^d] doon sa altar na ipinagawa niya para sa Panginoon. Nagsusunog din siya ng mga insenso sa presensya ng Panginoon. Kaya natapos ni Solomon ang pagpapatayo ng templo. 
+Tatlong beses sa bawat taon, nag-aalay si Solomon ng mga handog na sinusunog at mga handog para sa mabuting relasyon doon sa altar na ipinagawa niya para sa Panginoon. Nagsusunog din siya ng mga insenso sa presensya ng Panginoon. Kaya natapos ni Solomon ang pagpapatayo ng templo. 
 
 
 
@@ -799,7 +799,7 @@ Tatlong beses sa bawat taon, nag-aalay si Solomon ng mga handog na sinusunog at 
 
 
 
-Nagpagawa rin si Solomon ng mga barko sa Ezion Geber, malapit sa Elat[^e] na sakop ng Edom, sa dalampasigan ng Dagat na Pula. 
+Nagpagawa rin si Solomon ng mga barko sa Ezion Geber, malapit sa Elat na sakop ng Edom, sa dalampasigan ng Dagat na Pula. 
 
 
 

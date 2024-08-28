@@ -28,7 +28,7 @@ and all the firstborn in the land of Egypt shall die, from the firstborn of Phar
 Then there shall be a great cry throughout all the land of Egypt, such as was not like it _before,_ nor shall be like it again. 
 
 ###### 7 
-But against none of the children of Israel shall a dog [^a]move its tongue, against man or beast, that you may know that the Lord does make a difference between the Egyptians and Israel.' 
+But against none of the children of Israel shall a dog move its tongue, against man or beast, that you may know that the Lord does make a difference between the Egyptians and Israel.' 
 
 ###### 8 
 And all these your servants shall come down to me and bow down to me, saying, 'Get out, and all the people who follow you!' After that I will go out." Then he went out from Pharaoh in great anger. 

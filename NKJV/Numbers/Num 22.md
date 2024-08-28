@@ -19,10 +19,10 @@ Now Balak the son of Zippor saw all that Israel had done to the Amorites.
 And Moab was exceedingly afraid of the people because they _were_ many, and Moab was sick with dread because of the children of Israel. 
 
 ###### 4 
-So Moab said to the elders of Midian, "Now this company will [^a]lick up everything around us, as an ox licks up the grass of the field." And Balak the son of Zippor _was_ king of the Moabites at that time. 
+So Moab said to the elders of Midian, "Now this company will lick up everything around us, as an ox licks up the grass of the field." And Balak the son of Zippor _was_ king of the Moabites at that time. 
 
 ###### 5 
-Then he sent messengers to Balaam the son of Beor at Pethor, which _is_ near [^b]the River in the land of [^c]the sons of his people, to call him, saying: "Look, a people has come from Egypt. See, they cover the face of the earth, and are settling next to me! 
+Then he sent messengers to Balaam the son of Beor at Pethor, which _is_ near the River in the land of the sons of his people, to call him, saying: "Look, a people has come from Egypt. See, they cover the face of the earth, and are settling next to me! 
 
 ###### 6 
 Therefore please come at once, curse this people for me, for they _are_ too mighty for me. Perhaps I shall be able to defeat them and drive them out of the land, for I know that he whom you bless _is_ blessed, and he whom you curse is cursed." 
@@ -52,7 +52,7 @@ So Balaam rose in the morning and said to the princes of Balak, "Go back to your
 And the princes of Moab rose and went to Balak, and said, "Balaam refuses to come with us." 
 
 ###### 15 
-Then Balak again sent princes, more numerous and more [^d]honorable than they. 
+Then Balak again sent princes, more numerous and more honorable than they. 
 
 ###### 16 
 And they came to Balaam and said to him, "Thus says Balak the son of Zippor: 'Please let nothing hinder you from coming to me; 
@@ -94,22 +94,22 @@ And when the donkey saw the Angel of the Lord, she lay down under Balaam; so Bal
 Then the Lord opened the mouth of the donkey, and she said to Balaam, "What have I done to you, that you have struck me these three times?" 
 
 ###### 29 
-And Balaam said to the donkey, "Because you have [^e]abused me. I wish there were a sword in my hand, for now I would kill you!" 
+And Balaam said to the donkey, "Because you have abused me. I wish there were a sword in my hand, for now I would kill you!" 
 
 ###### 30 
-So the donkey said to Balaam, "_Am_ I not your donkey on which you have ridden, ever since _I became_ yours, to this day? Was I ever [^f]disposed to do this to you?" And he said, "No." 
+So the donkey said to Balaam, "_Am_ I not your donkey on which you have ridden, ever since _I became_ yours, to this day? Was I ever disposed to do this to you?" And he said, "No." 
 
 ###### 31 
 Then the Lord opened Balaam's eyes, and he saw the Angel of the Lord standing in the way with His drawn sword in His hand; and he bowed his head and fell flat on his face. 
 
 ###### 32 
-And the Angel of the Lord said to him, "Why have you struck your donkey these three times? Behold, I have come out [^g]to stand against you, because _your_ way is perverse[^h] before Me. 
+And the Angel of the Lord said to him, "Why have you struck your donkey these three times? Behold, I have come out to stand against you, because _your_ way is perverse before Me. 
 
 ###### 33 
 The donkey saw Me and turned aside from Me these three times. If she had not turned aside from Me, surely I would also have killed you by now, and let her live." 
 
 ###### 34 
-And Balaam said to the Angel of the Lord, "I have sinned, for I did not know You stood in the way against me. Now therefore, if it [^i]displeases You, I will turn back." 
+And Balaam said to the Angel of the Lord, "I have sinned, for I did not know You stood in the way against me. Now therefore, if it displeases You, I will turn back." 
 
 ###### 35 
 Then the Angel of the Lord said to Balaam, "Go with the men, but only the word that I speak to you, that you shall speak." So Balaam went with the princes of Balak. 
@@ -130,4 +130,4 @@ So Balaam went with Balak, and they came to Kirjath Huzoth.
 Then Balak offered oxen and sheep, and he sent _some_ to Balaam and to the princes who _were_ with him. ## Balaam's First Prophecy 
 
 ###### 41 
-So it was, the next day, that Balak took Balaam and brought him up to the high places of Baal, that from there he might observe [^j]the extent of the people.
+So it was, the next day, that Balak took Balaam and brought him up to the high places of Baal, that from there he might observe the extent of the people.

@@ -16,7 +16,7 @@ Now when Rachel saw that she bore Jacob no children, Rachel envied her sister, a
 And Jacob's anger was aroused against Rachel, and he said, "_Am_ I in the place of God, who has withheld from you the fruit of the womb?" 
 
 ###### 3 
-So she said, "Here is my maid Bilhah; go in to her, and she will bear _a child_ on my knees, that I also may [^a]have children by her." 
+So she said, "Here is my maid Bilhah; go in to her, and she will bear _a child_ on my knees, that I also may have children by her." 
 
 ###### 4 
 Then she gave him Bilhah her maid as wife, and Jacob went in to her. 
@@ -25,13 +25,13 @@ Then she gave him Bilhah her maid as wife, and Jacob went in to her.
 And Bilhah conceived and bore Jacob a son. 
 
 ###### 6 
-Then Rachel said, "God has judged my case; and He has also heard my voice and given me a son." Therefore she called his name [^b]Dan. 
+Then Rachel said, "God has judged my case; and He has also heard my voice and given me a son." Therefore she called his name Dan. 
 
 ###### 7 
 And Rachel's maid Bilhah conceived again and bore Jacob a second son. 
 
 ###### 8 
-Then Rachel said, "With [^c]great wrestlings I have wrestled with my sister, _and_ indeed I have prevailed." So she called his name [^d]Naphtali. 
+Then Rachel said, "With great wrestlings I have wrestled with my sister, _and_ indeed I have prevailed." So she called his name Naphtali. 
 
 ###### 9 
 When Leah saw that she had stopped bearing, she took Zilpah her maid and gave her to Jacob as wife. 
@@ -40,13 +40,13 @@ When Leah saw that she had stopped bearing, she took Zilpah her maid and gave he
 And Leah's maid Zilpah bore Jacob a son. 
 
 ###### 11 
-Then Leah said, [^e]"A troop comes!" So she called his name [^f]Gad. 
+Then Leah said, "A troop comes!" So she called his name Gad. 
 
 ###### 12 
 And Leah's maid Zilpah bore Jacob a second son. 
 
 ###### 13 
-Then Leah said, "I am happy, for the daughters will call me blessed." So she called his name [^g]Asher. 
+Then Leah said, "I am happy, for the daughters will call me blessed." So she called his name Asher. 
 
 ###### 14 
 Now Reuben went in the days of wheat harvest and found mandrakes in the field, and brought them to his mother Leah. Then Rachel said to Leah, "Please give me _some_ of your son's mandrakes." 
@@ -61,16 +61,16 @@ When Jacob came out of the field in the evening, Leah went out to meet him and s
 And God listened to Leah, and she conceived and bore Jacob a fifth son. 
 
 ###### 18 
-Leah said, "God has given me my wages, because I have given my maid to my husband." So she called his name [^h]Issachar. 
+Leah said, "God has given me my wages, because I have given my maid to my husband." So she called his name Issachar. 
 
 ###### 19 
 Then Leah conceived again and bore Jacob a sixth son. 
 
 ###### 20 
-And Leah said, "God has endowed me _with_ a good endowment; now my husband will dwell with me, because I have borne him six sons." So she called his name [^i]Zebulun. 
+And Leah said, "God has endowed me _with_ a good endowment; now my husband will dwell with me, because I have borne him six sons." So she called his name Zebulun. 
 
 ###### 21 
-Afterward she bore a daughter, and called her name [^j]Dinah. 
+Afterward she bore a daughter, and called her name Dinah. 
 
 ###### 22 
 Then God remembered Rachel, and God listened to her and opened her womb. 
@@ -79,7 +79,7 @@ Then God remembered Rachel, and God listened to her and opened her womb.
 And she conceived and bore a son, and said, "God has taken away my reproach." 
 
 ###### 24 
-So she called his name [^k]Joseph, and said, "The Lord shall add to me another son." ## Jacob's Agreement with Laban 
+So she called his name Joseph, and said, "The Lord shall add to me another son." ## Jacob's Agreement with Laban 
 
 ###### 25 
 And it came to pass, when Rachel had borne Joseph, that Jacob said to Laban, "Send me away, that I may go to my own place and to my country. 
@@ -97,7 +97,7 @@ Then he said, "Name me your wages, and I will give _it._"
 So _Jacob_ said to him, "You know how I have served you and how your livestock has been with me. 
 
 ###### 30 
-For what you had before I _came was_ little, and it has increased to a great amount; the Lord has blessed you [^l]since my coming. And now, when shall I also provide for my own house?" 
+For what you had before I _came was_ little, and it has increased to a great amount; the Lord has blessed you since my coming. And now, when shall I also provide for my own house?" 
 
 ###### 31 
 So he said, "What shall I give you?" And Jacob said, "You shall not give me anything. If you will do this thing for me, I will again feed and keep your flocks: 

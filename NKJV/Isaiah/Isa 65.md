@@ -19,10 +19,10 @@ I have stretched out My hands all day long to a rebellious people, Who walk in a
 A people who provoke Me to anger continually to My face; Who sacrifice in gardens, And burn incense on altars of brick; 
 
 ###### 4 
-Who sit among the graves, And spend the night in the tombs; Who eat swine's flesh, And the broth of [^a]abominable things is _in_ their vessels; 
+Who sit among the graves, And spend the night in the tombs; Who eat swine's flesh, And the broth of abominable things is _in_ their vessels; 
 
 ###### 5 
-Who say, 'Keep to yourself, Do not come near me, For I am holier than you!' These [^b]_are_ smoke in My nostrils, A fire that burns all the day. 
+Who say, 'Keep to yourself, Do not come near me, For I am holier than you!' These _are_ smoke in My nostrils, A fire that burns all the day. 
 
 ###### 6 
 "Behold, _it is_ written before Me: I will not keep silence, but will repay-- Even repay into their bosom-- 
@@ -40,7 +40,7 @@ I will bring forth descendants from Jacob, And from Judah an heir of My mountain
 Sharon shall be a fold of flocks, And the Valley of Achor a place for herds to lie down, For My people who have sought Me. 
 
 ###### 11 
-"But you _are_ those who forsake the Lord, Who forget My holy mountain, Who prepare a table for [^c]Gad, And who furnish a drink offering for [^d]Meni. 
+"But you _are_ those who forsake the Lord, Who forget My holy mountain, Who prepare a table for Gad, And who furnish a drink offering for Meni. 
 
 ###### 12 
 Therefore I will number you for the sword, And you shall all bow down to the slaughter; Because, when I called, you did not answer; When I spoke, you did not hear, But did evil before My eyes, And chose _that_ in which I do not delight." 
@@ -49,7 +49,7 @@ Therefore I will number you for the sword, And you shall all bow down to the sla
 Therefore thus says the Lord God: "Behold, My servants shall eat, But you shall be hungry; Behold, My servants shall drink, But you shall be thirsty; Behold, My servants shall rejoice, But you shall be ashamed; 
 
 ###### 14 
-Behold, My servants shall sing for joy of heart, But you shall cry for sorrow of heart, And wail for [^e]grief of spirit. 
+Behold, My servants shall sing for joy of heart, But you shall cry for sorrow of heart, And wail for grief of spirit. 
 
 ###### 15 
 You shall leave your name as a curse to My chosen; For the Lord God will slay you, And call His servants by another name; 
@@ -58,7 +58,7 @@ You shall leave your name as a curse to My chosen; For the Lord God will slay yo
 So that he who blesses himself in the earth Shall bless himself in the God of truth; And he who swears in the earth Shall swear by the God of truth; Because the former troubles are forgotten, And because they are hidden from My eyes. ## The Glorious New Creation 
 
 ###### 17 
-"For behold, I create new heavens and a new earth; And the former shall not be remembered or [^f]come to mind. 
+"For behold, I create new heavens and a new earth; And the former shall not be remembered or come to mind. 
 
 ###### 18 
 But be glad and rejoice forever in what I create; For behold, I create Jerusalem _as_ a rejoicing, And her people a joy. 

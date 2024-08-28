@@ -502,7 +502,7 @@ Naging pari siya, hindi dahil sa lahi niya ayon sa Kautusan, kundi dahil sa maka
 
 
 
-Sapagkat ito ang sinasabi <i class="trans-change">ng Kasulatan tungkol sa kanya_: "Ikaw ay pari magpakailanman, ayon sa pagkapari ni Melkizedek."[^a] 
+Sapagkat ito ang sinasabi <i class="trans-change">ng Kasulatan tungkol sa kanya_: "Ikaw ay pari magpakailanman, ayon sa pagkapari ni Melkizedek." 
 
 
 
@@ -634,7 +634,7 @@ Mas mabuti ang bagong pag-asang ito dahil nilakipan ito <i class="trans-change">
 
 
 
-pero nanumpa siya nang gawin niyang pari si Jesus. <i class="trans-change">Ito ang sinasabi ng Kasulatan:_ "Sumumpa ang Panginoon na ikaw ay pari magpakailanman.[^b] At hindi magbabago ang pasya niya." 
+pero nanumpa siya nang gawin niyang pari si Jesus. <i class="trans-change">Ito ang sinasabi ng Kasulatan:_ "Sumumpa ang Panginoon na ikaw ay pari magpakailanman. At hindi magbabago ang pasya niya." 
 
 
 

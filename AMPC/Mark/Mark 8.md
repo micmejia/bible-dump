@@ -154,7 +154,7 @@ And He commanded the multitude to recline upon the ground, and He [then] took th
 
 
 
-And they had a few small fish; and when He had [^a]praised God _and_ given thanks _and_ asked Him to bless them [to their use], He ordered that these also should be set before [them]. 
+And they had a few small fish; and when He had praised God _and_ given thanks _and_ asked Him to bless them [to their use], He ordered that these also should be set before [them]. 
 
 
 
@@ -175,7 +175,7 @@ And they had a few small fish; and when He had [^a]praised God _and_ given thank
 
 
 
-And they ate and were satisfied; and they took up seven [[^b]large provision] baskets full of the broken pieces left over. 
+And they ate and were satisfied; and they took up seven [large provision] baskets full of the broken pieces left over. 
 
 
 
@@ -301,7 +301,7 @@ And He went away _and_ left them and, getting into the boat again, He departed t
 
 
 
-Now they had [[^c]completely] forgotten to bring bread, and they had only one loaf with them in the boat. 
+Now they had [completely] forgotten to bring bread, and they had only one loaf with them in the boat. 
 
 
 
@@ -322,7 +322,7 @@ Now they had [[^c]completely] forgotten to bring bread, and they had only one lo
 
 
 
-And Jesus [repeatedly and expressly] charged _and_ admonished them, saying, Look out; keep on your guard _and_ beware of the leaven of the Pharisees and the leaven of Herod [^d]_and the Herodians_. 
+And Jesus [repeatedly and expressly] charged _and_ admonished them, saying, Look out; keep on your guard _and_ beware of the leaven of the Pharisees and the leaven of Herod _and the Herodians_. 
 
 
 
@@ -406,7 +406,7 @@ Having eyes, do you not see [with them], and having ears, do you not hear _and_ 
 
 
 
-When I broke the five loaves for the 5,000, how many [[^e]small hand] baskets full of broken pieces did you take up? They said to Him, Twelve. 
+When I broke the five loaves for the 5,000, how many [small hand] baskets full of broken pieces did you take up? They said to Him, Twelve. 
 
 
 
@@ -427,7 +427,7 @@ When I broke the five loaves for the 5,000, how many [[^e]small hand] baskets fu
 
 
 
-And [when I broke] the seven loaves for the 4,000, how many [[^f]large provision] baskets full of broken pieces did you take up? And they said to Him, Seven. 
+And [when I broke] the seven loaves for the 4,000, how many [large provision] baskets full of broken pieces did you take up? And they said to Him, Seven. 
 
 
 
@@ -448,7 +448,7 @@ And [when I broke] the seven loaves for the 4,000, how many [[^f]large provision
 
 
 
-And He [^g]kept repeating, Do you not yet understand? 
+And He kept repeating, Do you not yet understand? 
 
 
 
@@ -490,7 +490,7 @@ And they came to Bethsaida. And [people] brought to Him a blind man and begged H
 
 
 
-And He [^h]caught the blind man by the hand and led him out of the village; and when He had spit on his eyes and put His hands upon him, He asked him, Do you [[^i]possibly] see anything? 
+And He caught the blind man by the hand and led him out of the village; and when He had spit on his eyes and put His hands upon him, He asked him, Do you [possibly] see anything? 
 
 
 
@@ -532,7 +532,7 @@ And he looked up and said, I see people, but [they look] like trees, walking.
 
 
 
-Then He put His hands on his eyes again; and the man looked intently [that is, fixed his eyes on definite objects], and he was restored and saw everything distinctly [even what was [^j]at a distance]. 
+Then He put His hands on his eyes again; and the man looked intently [that is, fixed his eyes on definite objects], and he was restored and saw everything distinctly [even what was at a distance]. 
 
 
 
@@ -553,7 +553,7 @@ Then He put His hands on his eyes again; and the man looked intently [that is, f
 
 
 
-And He sent him away to his house, telling [him], Do not [even] enter the village [^k]_or tell anyone there_. 
+And He sent him away to his house, telling [him], Do not [even] enter the village _or tell anyone there_. 
 
 
 
@@ -658,7 +658,7 @@ And He charged them sharply to tell no one about Him.
 
 
 
-And He began to teach them that the Son of Man must of necessity suffer many things and be tested _and_ disapproved _and_ rejected by the elders and the chief priests and the scribes, and be put to death, and after three days rise again [[^l]from death]. 
+And He began to teach them that the Son of Man must of necessity suffer many things and be tested _and_ disapproved _and_ rejected by the elders and the chief priests and the scribes, and be put to death, and after three days rise again [from death]. 
 
 
 
@@ -679,7 +679,7 @@ And He began to teach them that the Son of Man must of necessity suffer many thi
 
 
 
-And He said this freely (frankly, plainly, and explicitly, making it unmistakable). And Peter took Him [^m]by the hand _and_ led Him aside and then [facing Him] began to rebuke Him. 
+And He said this freely (frankly, plainly, and explicitly, making it unmistakable). And Peter took Him by the hand _and_ led Him aside and then [facing Him] began to rebuke Him. 
 
 
 
@@ -700,7 +700,7 @@ And He said this freely (frankly, plainly, and explicitly, making it unmistakabl
 
 
 
-But turning around [His back to Peter] and seeing His disciples, He rebuked Peter, saying, Get behind Me, Satan! For you do not have a mind [^n]intent on promoting what God wills, but what pleases men [you are not on God's side, but that of men]. 
+But turning around [His back to Peter] and seeing His disciples, He rebuked Peter, saying, Get behind Me, Satan! For you do not have a mind intent on promoting what God wills, but what pleases men [you are not on God's side, but that of men]. 
 
 
 
@@ -721,7 +721,7 @@ But turning around [His back to Peter] and seeing His disciples, He rebuked Pete
 
 
 
-And Jesus called [to Him] the throng with His disciples and said to them, If anyone intends to come after Me, let him deny himself [forget, ignore, disown, and [^o]lose sight of himself and his own interests] and take up his cross, and [[^p]joining Me as a disciple and siding with My party] follow [^q]with Me [continually, cleaving steadfastly to Me]. 
+And Jesus called [to Him] the throng with His disciples and said to them, If anyone intends to come after Me, let him deny himself [forget, ignore, disown, and lose sight of himself and his own interests] and take up his cross, and [joining Me as a disciple and siding with My party] follow with Me [continually, cleaving steadfastly to Me]. 
 
 
 
@@ -742,7 +742,7 @@ And Jesus called [to Him] the throng with His disciples and said to them, If any
 
 
 
-For whoever wants to save his [[^r]higher, spiritual, eternal] life, will lose it [the [^s]lower, natural, temporal life [^t]which is lived only on earth]; and whoever gives up his life [which is lived only on earth] for My sake and the Gospel's will save it [his [^u]higher, spiritual life [^v]in the eternal kingdom of God]. 
+For whoever wants to save his [higher, spiritual, eternal] life, will lose it [the lower, natural, temporal life which is lived only on earth]; and whoever gives up his life [which is lived only on earth] for My sake and the Gospel's will save it [his higher, spiritual life in the eternal kingdom of God]. 
 
 
 
@@ -763,7 +763,7 @@ For whoever wants to save his [[^r]higher, spiritual, eternal] life, will lose i
 
 
 
-For what does it profit a man to gain the whole world, and forfeit his life [[^w]in the eternal kingdom of God]? 
+For what does it profit a man to gain the whole world, and forfeit his life [in the eternal kingdom of God]? 
 
 
 
@@ -784,7 +784,7 @@ For what does it profit a man to gain the whole world, and forfeit his life [[^w
 
 
 
-For what can a man give as an exchange ([^x]a compensation, a ransom, in return) for his [blessed] life [[^y]in the eternal kingdom of God]? 
+For what can a man give as an exchange (a compensation, a ransom, in return) for his [blessed] life [in the eternal kingdom of God]? 
 
 
 
@@ -805,4 +805,4 @@ For what can a man give as an exchange ([^x]a compensation, a ransom, in return)
 
 
 
-For whoever [^z]is ashamed [here and now] of Me and My words in this adulterous (unfaithful) and [preeminently] sinful generation, of him will the Son of Man also be ashamed when He comes in the glory (splendor and majesty) of His Father with the holy angels.
+For whoever is ashamed [here and now] of Me and My words in this adulterous (unfaithful) and [preeminently] sinful generation, of him will the Son of Man also be ashamed when He comes in the glory (splendor and majesty) of His Father with the holy angels.

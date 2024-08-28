@@ -111,7 +111,7 @@ And when they looked up, they [distinctly] saw that the stone was already rolled
 
 
 
-And going into the tomb, they saw a young man sitting [there] on the right [side], clothed in a [[^a]long, stately, sweeping] robe of white, and they were utterly amazed _and_ struck with terror. 
+And going into the tomb, they saw a young man sitting [there] on the right [side], clothed in a [long, stately, sweeping] robe of white, and they were utterly amazed _and_ struck with terror. 
 
 
 
@@ -195,7 +195,7 @@ Then they went out [and] fled from the tomb, for trembling and bewilderment _and
 
 
 
-[^b]Now Jesus, having risen [[^c]from death] early on the first day of the week, appeared first to Mary Magdalene, from whom He had driven out seven demons. 
+Now Jesus, having risen [from death] early on the first day of the week, appeared first to Mary Magdalene, from whom He had driven out seven demons. 
 
 
 
@@ -300,7 +300,7 @@ And they returned [to Jerusalem] and told the others, but they did not believe t
 
 
 
-Afterward He appeared to the Eleven [apostles themselves] as they reclined at table; and He reproved _and_ reproached them for their unbelief (their lack of faith) and their hardness of heart, because they had refused to believe those who had seen Him _and_ looked at Him attentively after He had risen [[^d]from death]. 
+Afterward He appeared to the Eleven [apostles themselves] as they reclined at table; and He reproved _and_ reproached them for their unbelief (their lack of faith) and their hardness of heart, because they had refused to believe those who had seen Him _and_ looked at Him attentively after He had risen [from death]. 
 
 
 
@@ -321,7 +321,7 @@ Afterward He appeared to the Eleven [apostles themselves] as they reclined at ta
 
 
 
-And He said to them, Go into all the world and preach _and_ publish openly the good news (the Gospel) to every creature [of the whole [^e]human race]. 
+And He said to them, Go into all the world and preach _and_ publish openly the good news (the Gospel) to every creature [of the whole human race]. 
 
 
 
@@ -342,7 +342,7 @@ And He said to them, Go into all the world and preach _and_ publish openly the g
 
 
 
-He who believes [who adheres to and trusts in and relies on the Gospel and Him Whom it sets forth] and is baptized will be saved [[^f]from the penalty of eternal death]; but he who does not believe [who does not adhere to and trust in and rely on the Gospel and Him Whom it sets forth] will be condemned. 
+He who believes [who adheres to and trusts in and relies on the Gospel and Him Whom it sets forth] and is baptized will be saved [from the penalty of eternal death]; but he who does not believe [who does not adhere to and trust in and rely on the Gospel and Him Whom it sets forth] will be condemned. 
 
 
 

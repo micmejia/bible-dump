@@ -238,7 +238,7 @@ Tinanong ng hari ang babae kung totoo ba ang tungkol doon at sinabi ng babae na 
 
 
 
-Pumunta si Eliseo sa Damascus, kung saan naroon ang may sakit na si Ben Hadad na hari ng Aram.[^a] Nang mabalitaan ng hari na dumating ang lingkod ng Dios, 
+Pumunta si Eliseo sa Damascus, kung saan naroon ang may sakit na si Ben Hadad na hari ng Aram. Nang mabalitaan ng hari na dumating ang lingkod ng Dios, 
 
 
 
@@ -304,7 +304,7 @@ sinabi niya kay Hazael, "Magdala ka ng regalo at salubungin mo ang lingkod ng Di
 
 
 
-Kaya pumunta si Hazael kay Eliseo na may dalang 40 kamelyo na kinargahan ng pinakamagandang produkto ng Damascus bilang regalo. Pagdating niya kay Eliseo, sinabi niya, "Inutusan po ako ng lingkod[^b] ninyong si Haring Ben Hadad ng Aram, para tanungin kayo kung gagaling pa siya sa sakit niya." 
+Kaya pumunta si Hazael kay Eliseo na may dalang 40 kamelyo na kinargahan ng pinakamagandang produkto ng Damascus bilang regalo. Pagdating niya kay Eliseo, sinabi niya, "Inutusan po ako ng lingkod ninyong si Haring Ben Hadad ng Aram, para tanungin kayo kung gagaling pa siya sa sakit niya." 
 
 
 
@@ -436,7 +436,7 @@ Tinanong siya ni Hazael, "Ginoo, bakit po kayo umiiyak?" Sumagot siya, "Dahil na
 
 
 
-Sumagot si Hazael, "Paano magagawa ng isang aliping katulad ko ang mga bagay na yan. Gayong akoʼy isang hamak na tagasunod lang?[^c]" Sumagot si Eliseo, "Ipinakita sa akin ng Panginoon na magiging hari ka ng Aram." 
+Sumagot si Hazael, "Paano magagawa ng isang aliping katulad ko ang mga bagay na yan. Gayong akoʼy isang hamak na tagasunod lang?" Sumagot si Eliseo, "Ipinakita sa akin ng Panginoon na magiging hari ka ng Aram." 
 
 
 
@@ -634,7 +634,7 @@ Sumunod siya sa pamumuhay ng mga hari ng Israel, tulad ng ginawa ng pamilya ni A
 
 
 
-Pero dahil kay David, hindi winasak ng Panginoon ang Juda dahil nangako ang Panginoon na hindi mawawalan si David ng angkan na maghahari magpakailanman.[^d] 
+Pero dahil kay David, hindi winasak ng Panginoon ang Juda dahil nangako ang Panginoon na hindi mawawalan si David ng angkan na maghahari magpakailanman. 
 
 
 

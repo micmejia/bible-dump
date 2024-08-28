@@ -70,7 +70,7 @@ And also some women who had been cured of evil spirits and diseases: Mary, calle
 
 
 
-And Joanna, the wife of Chuza, Herod's household manager; and Susanna; and many others, who ministered to _and_ provided for [^a]_Him and_ them out of their property _and_ personal belongings. 
+And Joanna, the wife of Chuza, Herod's household manager; and Susanna; and many others, who ministered to _and_ provided for _Him and_ them out of their property _and_ personal belongings. 
 
 
 
@@ -175,7 +175,7 @@ And other [seed] fell in the midst of the thorns, and the thorns grew up with it
 
 
 
-And some seed fell into good soil, and grew up and yielded a crop a hundred times [as great]. As He said these things, He called out, He who has ears to hear, let him be listening _and_ let him [^b]consider _and_ understand by hearing! 
+And some seed fell into good soil, and grew up and yielded a crop a hundred times [as great]. As He said these things, He called out, He who has ears to hear, let him be listening _and_ let him consider _and_ understand by hearing! 
 
 
 
@@ -259,7 +259,7 @@ Now the meaning of the parable is this: The seed is the Word of God.
 
 
 
-Those along the traveled road are the people who have heard; then the devil comes and carries away the message out of their hearts, that they may not believe ([^c]acknowledge Me as their Savior and devote themselves to Me) and be saved [here and hereafter]. 
+Those along the traveled road are the people who have heard; then the devil comes and carries away the message out of their hearts, that they may not believe (acknowledge Me as their Savior and devote themselves to Me) and be saved [here and hereafter]. 
 
 
 
@@ -322,7 +322,7 @@ And as for what fell among the thorns, these are [the people] who hear, but as t
 
 
 
-But as for that [seed] in the good soil, these are [the people] who, hearing the Word, hold it fast in a just ([^d]noble, virtuous) and worthy heart, and steadily bring forth fruit with patience. 
+But as for that [seed] in the good soil, these are [the people] who, hearing the Word, hold it fast in a just (noble, virtuous) and worthy heart, and steadily bring forth fruit with patience. 
 
 
 
@@ -385,7 +385,7 @@ For there is nothing hidden that shall not be disclosed, nor anything secret tha
 
 
 
-Be careful therefore how you listen. For to him who has [spiritual knowledge] will more be given; and from him who does not have [spiritual knowledge], even what he thinks _and_ [^e]guesses _and_ [^f]supposes that he has will be taken away. 
+Be careful therefore how you listen. For to him who has [spiritual knowledge] will more be given; and from him who does not have [spiritual knowledge], even what he thinks _and_ guesses _and_ supposes that he has will be taken away. 
 
 
 
@@ -490,7 +490,7 @@ One of those days He and His disciples got into a boat, and He said to them, Let
 
 
 
-But as they were sailing, He fell off to sleep. And a [^g] whirlwind revolving from below upwards swept down on the lake, and the boat was filling with water, and they were in great danger. 
+But as they were sailing, He fell off to sleep. And a  whirlwind revolving from below upwards swept down on the lake, and the boat was filling with water, and they were in great danger. 
 
 
 
@@ -511,7 +511,7 @@ But as they were sailing, He fell off to sleep. And a [^g] whirlwind revolving f
 
 
 
-And the disciples came and woke Him, saying, Master, Master, we are perishing! And He, being thoroughly awakened, [^h]censured _and_ [^i]blamed _and_ rebuked the wind and the raging waves; and they ceased, and there came a calm. 
+And the disciples came and woke Him, saying, Master, Master, we are perishing! And He, being thoroughly awakened, censured _and_ blamed _and_ rebuked the wind and the raging waves; and they ceased, and there came a calm. 
 
 
 
@@ -595,7 +595,7 @@ Now when Jesus stepped out on land, there met Him a certain man out of the town 
 
 
 
-And when he saw Jesus, he raised a deep (terrible) cry [from the depths of his throat] and fell down before Him [in terror] and shouted loudly, What have You [to do] with me, Jesus, Son of the Most High God? [[^j]What have we in common?] I beg You, do not torment me! 
+And when he saw Jesus, he raised a deep (terrible) cry [from the depths of his throat] and fell down before Him [in terror] and shouted loudly, What have You [to do] with me, Jesus, Son of the Most High God? [What have we in common?] I beg You, do not torment me! 
 
 
 
@@ -805,7 +805,7 @@ Then all the people of the country surrounding the Gerasenes' district asked [Je
 
 
 
-But the man from whom the demons had gone out kept begging _and_ [^k]praying that he might accompany Him _and_ be with Him, but [Jesus] sent him away, saying, 
+But the man from whom the demons had gone out kept begging _and_ praying that he might accompany Him _and_ be with Him, but [Jesus] sent him away, saying, 
 
 
 
@@ -868,7 +868,7 @@ Now when Jesus came back [to Galilee], the crowd received _and_ welcomed Him gla
 
 
 
-And there came a man named Jairus, who had [for a [^l]long time] been a director of the synagogue; and falling at the feet of Jesus, he begged Him to come to his house, 
+And there came a man named Jairus, who had [for a long time] been a director of the synagogue; and falling at the feet of Jesus, he begged Him to come to his house, 
 
 
 
@@ -910,7 +910,7 @@ For he had an only daughter, about twelve years of age, and she was dying. As [J
 
 
 
-And a woman who had suffered from a flow of blood for twelve years [^m]_and had spent all her living upon physicians_, and could not be healed by anyone, 
+And a woman who had suffered from a flow of blood for twelve years _and had spent all her living upon physicians_, and could not be healed by anyone, 
 
 
 
@@ -952,7 +952,7 @@ Came up behind Him and touched the fringe of His garment, and immediately her fl
 
 
 
-And Jesus said, Who is it who touched Me? When all were denying it, Peter [^n]_and those who were with him_ said, Master, the multitudes surround You _and_ press You on every side! 
+And Jesus said, Who is it who touched Me? When all were denying it, Peter _and those who were with him_ said, Master, the multitudes surround You _and_ press You on every side! 
 
 
 
@@ -1015,7 +1015,7 @@ And when the woman saw that she had not escaped notice, she came up trembling, a
 
 
 
-And He said to her, Daughter, your faith (your confidence and trust in Me) has made you well! Go (enter) [^o]into peace ([^p]untroubled, undisturbed well-being). 
+And He said to her, Daughter, your faith (your confidence and trust in Me) has made you well! Go (enter) into peace (untroubled, undisturbed well-being). 
 
 
 
@@ -1036,7 +1036,7 @@ And He said to her, Daughter, your faith (your confidence and trust in Me) has m
 
 
 
-While He was still speaking, a man from the house of the director of the synagogue came and said [to Jairus], Your daughter is dead; do not [^q]weary _and_ trouble the Teacher any further. 
+While He was still speaking, a man from the house of the director of the synagogue came and said [to Jairus], Your daughter is dead; do not weary _and_ trouble the Teacher any further. 
 
 
 
@@ -1057,7 +1057,7 @@ While He was still speaking, a man from the house of the director of the synagog
 
 
 
-But Jesus, on hearing this, answered him, Do not be seized with alarm _or_ struck with fear; simply believe [[^r]in Me as able to do this], and she shall be made well. 
+But Jesus, on hearing this, answered him, Do not be seized with alarm _or_ struck with fear; simply believe [in Me as able to do this], and she shall be made well. 
 
 
 
@@ -1141,7 +1141,7 @@ And they laughed Him to scorn, knowing full well that she was dead.
 
 
 
-And grasping her hand, He called, saying, Child, arise [[^s]from the sleep of death]! 
+And grasping her hand, He called, saying, Child, arise [from the sleep of death]! 
 
 
 
@@ -1162,7 +1162,7 @@ And grasping her hand, He called, saying, Child, arise [[^s]from the sleep of de
 
 
 
-And her spirit returned [[^t]from death], and she arose immediately; and He directed that she should be given something to eat. 
+And her spirit returned [from death], and she arose immediately; and He directed that she should be given something to eat. 
 
 
 

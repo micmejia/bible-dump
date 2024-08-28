@@ -28,13 +28,13 @@ And he, stooping down and looking in, saw the linen cloths lying _there;_ yet he
 Then Simon Peter came, following him, and went into the tomb; and he saw the linen cloths lying _there,_ 
 
 ###### 7 
-and the [^a]handkerchief that had been around His head, not lying with the linen cloths, but folded together in a place by itself. 
+and the handkerchief that had been around His head, not lying with the linen cloths, but folded together in a place by itself. 
 
 ###### 8 
 Then the other disciple, who came to the tomb first, went in also; and he saw and believed. 
 
 ###### 9 
-For as yet they did not [^b]know the Scripture, that He must rise again from the dead. 
+For as yet they did not know the Scripture, that He must rise again from the dead. 
 
 ###### 10 
 Then the disciples went away again to their own homes. ## Mary Magdalene Sees the Risen Lord 
@@ -55,16 +55,16 @@ Now when she had said this, she turned around and saw Jesus standing _there,_ an
 Jesus said to her, "Woman, why are you weeping? Whom are you seeking?" She, supposing Him to be the gardener, said to Him, "Sir, if You have carried Him away, tell me where You have laid Him, and I will take Him away." 
 
 ###### 16 
-Jesus said to her, "Mary!" She turned and said to [^c]Him, "Rabboni!" (which is to say, Teacher). 
+Jesus said to her, "Mary!" She turned and said to Him, "Rabboni!" (which is to say, Teacher). 
 
 ###### 17 
 Jesus said to her, "Do not cling to Me, for I have not yet ascended to My Father; but go to My brethren and say to them, 'I am ascending to My Father and your Father, and _to_ My God and your God.' " 
 
 ###### 18 
-Mary Magdalene came and told the [^d]disciples that she had seen the Lord, and _that_ He had spoken these things to her. ## The Apostles Commissioned 
+Mary Magdalene came and told the disciples that she had seen the Lord, and _that_ He had spoken these things to her. ## The Apostles Commissioned 
 
 ###### 19 
-Then, the same day at evening, being the first _day_ of the week, when the doors were shut where the disciples were [^e]assembled, for fear of the Jews, Jesus came and stood in the midst, and said to them, "Peace _be_ with you." 
+Then, the same day at evening, being the first _day_ of the week, when the doors were shut where the disciples were assembled, for fear of the Jews, Jesus came and stood in the midst, and said to them, "Peace _be_ with you." 
 
 ###### 20 
 When He had said this, He showed them _His_ hands and His side. Then the disciples were glad when they saw the Lord. 
@@ -94,7 +94,7 @@ Then He said to Thomas, "Reach your finger here, and look at My hands; and reach
 And Thomas answered and said to Him, "My Lord and my God!" 
 
 ###### 29 
-Jesus said to him, [^f]"Thomas, because you have seen Me, you have believed. Blessed _are_ those who have not seen and _yet_ have believed." ## That You May Believe 
+Jesus said to him, "Thomas, because you have seen Me, you have believed. Blessed _are_ those who have not seen and _yet_ have believed." ## That You May Believe 
 
 ###### 30 
 And truly Jesus did many other signs in the presence of His disciples, which are not written in this book; 

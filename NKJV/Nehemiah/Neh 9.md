@@ -10,7 +10,7 @@ next: ['Neh 10']
 
 
 ###### 1 
-Now on the twenty-fourth day of this month the children of Israel were assembled with fasting, in sackcloth, and with [^a]dust on their heads. 
+Now on the twenty-fourth day of this month the children of Israel were assembled with fasting, in sackcloth, and with dust on their heads. 
 
 ###### 2 
 Then those of Israelite lineage separated themselves from all foreigners; and they stood and confessed their sins and the iniquities of their fathers. 
@@ -19,7 +19,7 @@ Then those of Israelite lineage separated themselves from all foreigners; and th
 And they stood up in their place and read from the Book of the Law of the Lord their God _for one_-fourth of the day; and _for another_ fourth they confessed and worshiped the Lord their God. 
 
 ###### 4 
-Then Jeshua, Bani, Kadmiel, Shebaniah, Bunni, Sherebiah, Bani, _and_ Chenani stood on the [^b]stairs of the Levites and cried out with a loud voice to the Lord their God. 
+Then Jeshua, Bani, Kadmiel, Shebaniah, Bunni, Sherebiah, Bani, _and_ Chenani stood on the stairs of the Levites and cried out with a loud voice to the Lord their God. 
 
 ###### 5 
 And the Levites, Jeshua, Kadmiel, Bani, Hashabniah, Sherebiah, Hodijah, Shebaniah, _and_ Pethahiah, said: "Stand up _and_ bless the Lord your God Forever and ever! "Blessed be Your glorious name, Which is exalted above all blessing and praise! 
@@ -37,7 +37,7 @@ You found his heart faithful before You, And made a covenant with him To give th
 "You saw the affliction of our fathers in Egypt, And heard their cry by the Red Sea. 
 
 ###### 10 
-You showed signs and wonders against Pharaoh, Against all his servants, And against all the people of his land. For You knew that they acted [^c]proudly against them. So You made a name for Yourself, as _it is_ this day. 
+You showed signs and wonders against Pharaoh, Against all his servants, And against all the people of his land. For You knew that they acted proudly against them. So You made a name for Yourself, as _it is_ this day. 
 
 ###### 11 
 And You divided the sea before them, So that they went through the midst of the sea on the dry land; And their persecutors You threw into the deep, As a stone into the mighty waters. 
@@ -52,13 +52,13 @@ Moreover You led them by day with a cloudy pillar, And by night with a pillar of
 You made known to them Your holy Sabbath, And commanded them precepts, statutes and laws, By the hand of Moses Your servant. 
 
 ###### 15 
-You gave them bread from heaven for their hunger, And brought them water out of the rock for their thirst, And told them to go in to possess the land Which You had [^d]sworn to give them. 
+You gave them bread from heaven for their hunger, And brought them water out of the rock for their thirst, And told them to go in to possess the land Which You had sworn to give them. 
 
 ###### 16 
-"But they and our fathers acted [^e]proudly, Hardened[^f] their necks, And did not heed Your commandments. 
+"But they and our fathers acted proudly, Hardened their necks, And did not heed Your commandments. 
 
 ###### 17 
-They refused to obey, And they were not mindful of Your wonders That You did among them. But they hardened their necks, And [^g]in their rebellion They appointed a leader To return to their bondage. But You _are_ God, Ready to pardon, Gracious and merciful, Slow to anger, Abundant in kindness, And did not forsake them. 
+They refused to obey, And they were not mindful of Your wonders That You did among them. But they hardened their necks, And in their rebellion They appointed a leader To return to their bondage. But You _are_ God, Ready to pardon, Gracious and merciful, Slow to anger, Abundant in kindness, And did not forsake them. 
 
 ###### 18 
 "Even when they made a molded calf for themselves, And said, 'This _is_ your god That brought you up out of Egypt,' And worked great provocations, 
@@ -73,19 +73,19 @@ You also gave Your good Spirit to instruct them, And did not withhold Your manna
 Forty years You sustained them in the wilderness; They lacked nothing; Their clothes did not wear out And their feet did not swell. 
 
 ###### 22 
-"Moreover You gave them kingdoms and nations, And divided them into [^h]districts. So they took possession of the land of Sihon, [^i]The land of the king of Heshbon, And the land of Og king of Bashan. 
+"Moreover You gave them kingdoms and nations, And divided them into districts. So they took possession of the land of Sihon, The land of the king of Heshbon, And the land of Og king of Bashan. 
 
 ###### 23 
 You also multiplied their children as the stars of heaven, And brought them into the land Which You had told their fathers To go in and possess. 
 
 ###### 24 
-So the [^j]people went in And possessed the land; You subdued before them the inhabitants of the land, The Canaanites, And gave them into their hands, With their kings And the people of the land, That they might do with them as they wished. 
+So the people went in And possessed the land; You subdued before them the inhabitants of the land, The Canaanites, And gave them into their hands, With their kings And the people of the land, That they might do with them as they wished. 
 
 ###### 25 
-And they took strong cities and a rich land, And possessed houses full of all goods, Cisterns _already_ dug, vineyards, olive groves, And [^k]fruit trees in abundance. So they ate and were filled and grew fat, And delighted themselves in Your great goodness. 
+And they took strong cities and a rich land, And possessed houses full of all goods, Cisterns _already_ dug, vineyards, olive groves, And fruit trees in abundance. So they ate and were filled and grew fat, And delighted themselves in Your great goodness. 
 
 ###### 26 
-"Nevertheless they were disobedient And rebelled against You, Cast Your law behind their backs And killed Your prophets, who [^l]testified against them To turn them to Yourself; And they worked great provocations. 
+"Nevertheless they were disobedient And rebelled against You, Cast Your law behind their backs And killed Your prophets, who testified against them To turn them to Yourself; And they worked great provocations. 
 
 ###### 27 
 Therefore You delivered them into the hand of their enemies, Who oppressed them; And in the time of their trouble, When they cried to You, You heard from heaven; And according to Your abundant mercies You gave them deliverers who saved them From the hand of their enemies. 
@@ -94,16 +94,16 @@ Therefore You delivered them into the hand of their enemies, Who oppressed them;
 "But after they had rest, They again did evil before You. Therefore You left them in the hand of their enemies, So that they had dominion over them; Yet when they returned and cried out to You, You heard from heaven; And many times You delivered them according to Your mercies, 
 
 ###### 29 
-And [^m]testified against them, That You might bring them back to Your law. Yet they acted [^n]proudly, And did not heed Your commandments, But sinned against Your judgments, 'Which if a man does, he shall live by them.' And they shrugged their shoulders, [^o]Stiffened their necks, And would not hear. 
+And testified against them, That You might bring them back to Your law. Yet they acted proudly, And did not heed Your commandments, But sinned against Your judgments, 'Which if a man does, he shall live by them.' And they shrugged their shoulders, Stiffened their necks, And would not hear. 
 
 ###### 30 
-Yet for many years You had patience with them, And [^p]testified against them by Your Spirit in Your prophets. Yet they would not listen; Therefore You gave them into the hand of the peoples of the lands. 
+Yet for many years You had patience with them, And testified against them by Your Spirit in Your prophets. Yet they would not listen; Therefore You gave them into the hand of the peoples of the lands. 
 
 ###### 31 
 Nevertheless in Your great mercy You did not utterly consume them nor forsake them; For You _are_ God, gracious and merciful. 
 
 ###### 32 
-"Now therefore, our God, The great, the mighty, and awesome God, Who keeps covenant and mercy: Do not let all the [^q]trouble seem small before You That has come upon us, Our kings and our princes, Our priests and our prophets, Our fathers and on all Your people, From the days of the kings of Assyria until this day. 
+"Now therefore, our God, The great, the mighty, and awesome God, Who keeps covenant and mercy: Do not let all the trouble seem small before You That has come upon us, Our kings and our princes, Our priests and our prophets, Our fathers and on all Your people, From the days of the kings of Assyria until this day. 
 
 ###### 33 
 However You _are_ just in all that has befallen us; For You have dealt faithfully, But we have done wickedly. 

@@ -343,7 +343,7 @@ And also that He might deliver _and_ completely set free all those who through t
 
 
 
-For, as we all know, He [Christ] did not take hold of angels [[^a]the fallen angels, to give them a helping and delivering hand], but He did take hold of [[^b]the fallen] descendants of Abraham [to reach out to them a helping and delivering hand]. 
+For, as we all know, He [Christ] did not take hold of angels [the fallen angels, to give them a helping and delivering hand], but He did take hold of [the fallen] descendants of Abraham [to reach out to them a helping and delivering hand]. 
 
 
 
@@ -385,4 +385,4 @@ So it is evident that it was essential that He be made like His brethren in ever
 
 
 
-For because He Himself [in His humanity] has suffered in being tempted (tested and tried), He is able [immediately] [^c]to run to the cry of (assist, relieve) those who are being tempted _and_ tested _and_ tried [and who therefore are being exposed to suffering].
+For because He Himself [in His humanity] has suffered in being tempted (tested and tried), He is able [immediately] to run to the cry of (assist, relieve) those who are being tempted _and_ tested _and_ tried [and who therefore are being exposed to suffering].

@@ -49,7 +49,7 @@ And the Lord said to Moses and Aaron,
 
 
 
-When a man has a swelling on his skin, a scab, or a bright spot, and it becomes the disease of [^a]leprosy in his skin, then he shall be brought to the priest, to Aaron or one of his sons. 
+When a man has a swelling on his skin, a scab, or a bright spot, and it becomes the disease of leprosy in his skin, then he shall be brought to the priest, to Aaron or one of his sons. 
 
 
 

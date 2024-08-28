@@ -196,7 +196,7 @@ And other seed [of the same kind] fell into good (well-adapted) soil and brought
 
 
 
-And He said, He who has ears to hear, let him be hearing [and let him [^a]consider, and comprehend]. 
+And He said, He who has ears to hear, let him be hearing [and let him consider, and comprehend]. 
 
 
 
@@ -238,7 +238,7 @@ And as soon as He was alone, those who were around Him, with the Twelve [apostle
 
 
 
-And He said to them, To you has been entrusted the mystery of the kingdom of God [that is, [^b]the secret counsels of God which are hidden from the ungodly]; but for those outside [[^c]of our circle] everything becomes a parable, 
+And He said to them, To you has been entrusted the mystery of the kingdom of God [that is, the secret counsels of God which are hidden from the ungodly]; but for those outside [of our circle] everything becomes a parable, 
 
 
 
@@ -259,7 +259,7 @@ And He said to them, To you has been entrusted the mystery of the kingdom of God
 
 
 
-In order that they may [indeed] look _and_ look but not see _and_ perceive, and may hear _and_ hear but not grasp _and_ comprehend, [^d]lest haply they should turn again, and it [[^e]their willful rejection of the truth] should be forgiven them. 
+In order that they may [indeed] look _and_ look but not see _and_ perceive, and may hear _and_ hear but not grasp _and_ comprehend, lest haply they should turn again, and it [their willful rejection of the truth] should be forgiven them. 
 
 
 
@@ -448,7 +448,7 @@ And those sown on the good (well-adapted) soil are the ones who hear the Word an
 
 
 
-And He said to them, Is the lamp brought in to be put under a [^f]peck measure or under a bed, and not [to be put] on the lampstand? 
+And He said to them, Is the lamp brought in to be put under a peck measure or under a bed, and not [to be put] on the lampstand? 
 
 
 
@@ -469,7 +469,7 @@ And He said to them, Is the lamp brought in to be put under a [^f]peck measure o
 
 
 
-[[^g]Things are hidden temporarily only as a means to revelation.] For there is nothing hidden except to be revealed, nor is anything [temporarily] kept secret except in order that it may be made known. 
+[Things are hidden temporarily only as a means to revelation.] For there is nothing hidden except to be revealed, nor is anything [temporarily] kept secret except in order that it may be made known. 
 
 
 
@@ -511,7 +511,7 @@ If any man has ears to hear, let him be listening _and_ let him perceive _and_ c
 
 
 
-And He said to them, Be careful what you are hearing. The measure [^h][of thought and study] you give [to [^i]the truth you hear] will be the measure [^j][of virtue and knowledge] that comes back to you--and more [besides] will be given to you _who hear_. 
+And He said to them, Be careful what you are hearing. The measure [of thought and study] you give [to the truth you hear] will be the measure [of virtue and knowledge] that comes back to you--and more [besides] will be given to you _who hear_. 
 
 
 
@@ -532,7 +532,7 @@ And He said to them, Be careful what you are hearing. The measure [^h][of though
 
 
 
-For to him who has will more be given; and from him who has nothing, even what he has will be taken away [[^k]by force], 
+For to him who has will more be given; and from him who has nothing, even what he has will be taken away [by force], 
 
 
 
@@ -574,7 +574,7 @@ And He said, The kingdom of God is like a man who scatters seed upon the ground,
 
 
 
-And then continues sleeping and rising night and day while the seed sprouts and grows _and_ [^l]increases--he knows not how. 
+And then continues sleeping and rising night and day while the seed sprouts and grows _and_ increases--he knows not how. 
 
 
 
@@ -616,7 +616,7 @@ The earth produces [acting] by itself--first the blade, then the ear, then the f
 
 
 
-But when the grain is ripe _and_ permits, immediately he [^m]sends forth [the reapers] _and_ puts in the sickle, because the harvest stands ready. 
+But when the grain is ripe _and_ permits, immediately he sends forth [the reapers] _and_ puts in the sickle, because the harvest stands ready. 
 
 
 
@@ -700,7 +700,7 @@ Yet after it is sown, it grows up and becomes the greatest of all garden herbs a
 
 
 
-With many such parables [Jesus] spoke the Word to them, as they were able to hear _and_ [^n]to comprehend _and_ understand. 
+With many such parables [Jesus] spoke the Word to them, as they were able to hear _and_ to comprehend _and_ understand. 
 
 
 
@@ -721,7 +721,7 @@ With many such parables [Jesus] spoke the Word to them, as they were able to hea
 
 
 
-He did not tell them anything without a parable; but privately to His disciples ([^o]those who were peculiarly His own) He explained everything [fully]. 
+He did not tell them anything without a parable; but privately to His disciples (those who were peculiarly His own) He explained everything [fully]. 
 
 
 
@@ -784,7 +784,7 @@ And leaving the throng, they took Him with them, [just] as He was, in the boat [
 
 
 
-And a furious storm of wind [[^p]of hurricane proportions] arose, and the waves kept beating into the boat, so that it was already becoming filled. 
+And a furious storm of wind [of hurricane proportions] arose, and the waves kept beating into the boat, so that it was already becoming filled. 
 
 
 
@@ -826,7 +826,7 @@ But He [Himself] was in the stern [of the boat], asleep on the [leather] cushion
 
 
 
-And He arose and rebuked the wind and said to the sea, Hush now! Be still (muzzled)! And the wind ceased ([^q]sank to rest as if exhausted by its beating) and there was [immediately] a great calm ([^r]a perfect peacefulness). 
+And He arose and rebuked the wind and said to the sea, Hush now! Be still (muzzled)! And the wind ceased (sank to rest as if exhausted by its beating) and there was [immediately] a great calm (a perfect peacefulness). 
 
 
 
@@ -847,7 +847,7 @@ And He arose and rebuked the wind and said to the sea, Hush now! Be still (muzzl
 
 
 
-He said to them, Why are you so timid _and_ fearful? How is it that you have no faith (no [^s]firmly relying trust)? 
+He said to them, Why are you so timid _and_ fearful? How is it that you have no faith (no firmly relying trust)? 
 
 
 
@@ -868,4 +868,4 @@ He said to them, Why are you so timid _and_ fearful? How is it that you have no 
 
 
 
-And they were filled with great awe _and_ [^t]feared exceedingly and said one to another, Who then is this, that even wind and sea obey Him?
+And they were filled with great awe _and_ feared exceedingly and said one to another, Who then is this, that even wind and sea obey Him?

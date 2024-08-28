@@ -322,4 +322,4 @@ And He said, No [neither], but as Prince of the Lord's host have I now come. And
 
 
 
-And the Prince of the Lord's host said to Joshua, [^a]Loose your shoes from off your feet, for the place where you stand is holy. And Joshua did so.
+And the Prince of the Lord's host said to Joshua, Loose your shoes from off your feet, for the place where you stand is holy. And Joshua did so.

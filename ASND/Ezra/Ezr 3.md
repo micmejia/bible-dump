@@ -73,7 +73,7 @@ Nang dumating ang ikapitong buwan, noong nakatira na ang mga Israelita sa kani-k
 
 
 
-Pagkatapos, muling itinayo ang altar ng Dios ng Israel para makapag-alay dito ng mga handog na sinusunog ayon sa nakasulat sa Kautusan ni Moises na kanyang lingkod.[^a] Ang nagpatayo nito ay si Jeshua[^b] na anak ni Jozadak at ang iba pa niyang mga kasamahang pari, at si Zerubabel na anak ni Shealtiel at ang mga kamag-anak niya. 
+Pagkatapos, muling itinayo ang altar ng Dios ng Israel para makapag-alay dito ng mga handog na sinusunog ayon sa nakasulat sa Kautusan ni Moises na kanyang lingkod. Ang nagpatayo nito ay si Jeshua na anak ni Jozadak at ang iba pa niyang mga kasamahang pari, at si Zerubabel na anak ni Shealtiel at ang mga kamag-anak niya. 
 
 
 
@@ -106,7 +106,7 @@ Pagkatapos, muling itinayo ang altar ng Dios ng Israel para makapag-alay dito ng
 
 
 
-Kahit takot sila sa mga tao na dati nang nakatira sa lupaing iyon,[^c] itinayo nila ang altar sa dating pinagtayuan nito. Pagkatapos, nag-alay sila sa Panginoon ng mga handog na sinusunog sa umaga at gabi. 
+Kahit takot sila sa mga tao na dati nang nakatira sa lupaing iyon, itinayo nila ang altar sa dating pinagtayuan nito. Pagkatapos, nag-alay sila sa Panginoon ng mga handog na sinusunog sa umaga at gabi. 
 
 
 
@@ -172,7 +172,7 @@ Ipinagdiwang din nila ang Pista ng Pagtatayo ng mga Kubol ayon sa nakasulat <i c
 
 
 
-Bukod pa sa mga handog na sinusunog, naghahandog din sila ng mga handog sa bawat Pista ng Pagsisimula ng Buwan,[^d] at sa iba pang mga pista sa pagsamba sa Panginoon. At nag-aalay din sila ng handog na kusang-loob para sa Panginoon. 
+Bukod pa sa mga handog na sinusunog, naghahandog din sila ng mga handog sa bawat Pista ng Pagsisimula ng Buwan, at sa iba pang mga pista sa pagsamba sa Panginoon. At nag-aalay din sila ng handog na kusang-loob para sa Panginoon. 
 
 
 
@@ -304,7 +304,7 @@ Sinimulan ang pagpapatayo ng templo nang ikalawang buwan ng ikalawang taon mula 
 
 
 
-Silaʼy si Jeshua,[^e] ang mga anak niya at mga kamag-anak, si Kadmiel at ang mga anak niya. Silang lahat ay mula sa lahi ni Juda.[^f] Tumulong din sa kanila ang mga angkan at mga kamag-anak ni Henadad na mga Levita rin. 
+Silaʼy si Jeshua, ang mga anak niya at mga kamag-anak, si Kadmiel at ang mga anak niya. Silang lahat ay mula sa lahi ni Juda. Tumulong din sa kanila ang mga angkan at mga kamag-anak ni Henadad na mga Levita rin. 
 
 
 

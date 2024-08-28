@@ -301,7 +301,7 @@ Then Joseph took both [boys], Ephraim with his right hand toward Israel's left, 
 
 
 
-And Israel reached out his right hand and laid it on the head of Ephraim, who was the younger, and his left hand on Manasseh's head, [^a]crossing his hands intentionally, for Manasseh was the firstborn. 
+And Israel reached out his right hand and laid it on the head of Ephraim, who was the younger, and his left hand on Manasseh's head, crossing his hands intentionally, for Manasseh was the firstborn. 
 
 
 
@@ -343,7 +343,7 @@ Then [Jacob] blessed Joseph and said, God [Himself], before Whom my fathers Abra
 
 
 
-The [^b]redeeming Angel [that is, the Angel the Redeemer--not a created being but the Lord Himself] Who has redeemed me continually from every evil, bless the lads! And let my name be perpetuated in them [may they be worthy of having their names coupled with mine], and the names of my fathers Abraham and Isaac; and let them become a multitude in the midst of the earth. 
+The redeeming Angel [that is, the Angel the Redeemer--not a created being but the Lord Himself] Who has redeemed me continually from every evil, bless the lads! And let my name be perpetuated in them [may they be worthy of having their names coupled with mine], and the names of my fathers Abraham and Isaac; and let them become a multitude in the midst of the earth. 
 
 
 
@@ -406,7 +406,7 @@ And Joseph said, Not so, my father, for this is the firstborn; put your right ha
 
 
 
-But his father refused and said, I know, my son, I know. He also shall become a people and shall be great; but his younger brother shall be [^c]greater than he, and his offspring shall become a multitude of nations. 
+But his father refused and said, I know, my son, I know. He also shall become a people and shall be great; but his younger brother shall be greater than he, and his offspring shall become a multitude of nations. 
 
 
 

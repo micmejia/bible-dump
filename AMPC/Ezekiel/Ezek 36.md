@@ -511,7 +511,7 @@ And I will vindicate the holiness of My great name _and_ separate it for its hol
 
 
 
-For I will [^a]take you from among the nations and gather you out of all countries and bring you into your own land. 
+For I will take you from among the nations and gather you out of all countries and bring you into your own land. 
 
 
 

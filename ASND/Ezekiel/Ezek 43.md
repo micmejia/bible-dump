@@ -238,7 +238,7 @@ Habang nakatayo ang tao sa tabi ko, may narinig akong tinig mula sa templo.
 
 
 
-Ang sinabi sa akin, "Anak ng tao, ito ang aking trono, at ang patungan ng aking paa. Dito ako mananahan kasama ng mga Israelita magpakailanman. Hindi na muling lalapastanganin ng mga Israelita maging ng kanilang mga hari ang aking pangalan, sa pamamagitan ng pagsamba sa mga dios-diosan[^a], o sa mga monumento ng namatay nilang mga hari. 
+Ang sinabi sa akin, "Anak ng tao, ito ang aking trono, at ang patungan ng aking paa. Dito ako mananahan kasama ng mga Israelita magpakailanman. Hindi na muling lalapastanganin ng mga Israelita maging ng kanilang mga hari ang aking pangalan, sa pamamagitan ng pagsamba sa mga dios-diosan, o sa mga monumento ng namatay nilang mga hari. 
 
 
 
@@ -766,4 +766,4 @@ Sa ganitong paraan, malilinis ang altar at maaari nang gamitin pagkatapos.
 
 
 
-At mula sa ikawalong araw, maghahandog na ang mga pari ng inyong mga handog na sinusunog at mga handog para sa mabuting relasyon.[^b] At tatanggapin ko kayo. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito."
+At mula sa ikawalong araw, maghahandog na ang mga pari ng inyong mga handog na sinusunog at mga handog para sa mabuting relasyon. At tatanggapin ko kayo. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito."

@@ -73,7 +73,7 @@ Mga taga-Nineve, sinasalakay na kayo ng inyong mga kalaban na magpapangalat sa i
 
 
 
-Kahit na nilipol ninyo ang Israel at Juda[^a] na parang mga tanim na ubas[^b] na pinatay, ibabalik ng Panginoon ang kanilang kapangyarihan. 
+Kahit na nilipol ninyo ang Israel at Juda na parang mga tanim na ubas na pinatay, ibabalik ng Panginoon ang kanilang kapangyarihan. 
 
 
 
@@ -106,7 +106,7 @@ Kahit na nilipol ninyo ang Israel at Juda[^a] na parang mga tanim na ubas[^b] na
 
 
 
-Pula ang kalasag at damit ng mga sundalo ng inyong kalaban. At sa oras ng kanilang pagsalakay kumikislap ang metal ng kanilang mga karwahe at nagtatatakbo ang kanilang mga kabayo.[^c] 
+Pula ang kalasag at damit ng mga sundalo ng inyong kalaban. At sa oras ng kanilang pagsalakay kumikislap ang metal ng kanilang mga karwahe at nagtatatakbo ang kanilang mga kabayo. 
 
 
 
@@ -238,7 +238,7 @@ Mabubuksan ang mga pintuan ng <i class="trans-change">inyong lungsod sa bandang_
 
 
 
-Naipahayag na, na bibihagin kayo[^d] at dadalhin sa ibang bayan. Uungol ang inyong mga utusang babae na parang kalapati habang dinadagukan nila ang kanilang dibdib <i class="trans-change">dahil sa kalungkutan_. 
+Naipahayag na, na bibihagin kayo at dadalhin sa ibang bayan. Uungol ang inyong mga utusang babae na parang kalapati habang dinadagukan nila ang kanilang dibdib <i class="trans-change">dahil sa kalungkutan_. 
 
 
 
@@ -337,7 +337,7 @@ Ang <i class="trans-change">mga taong tumatakas mula sa_ Nineve ay parang tubig 
 
 
 
-Malilipol, mawawasak at magiging mapanglaw na ang Nineve! Kaya natatakot ang mga mamamayan nito, nanghihina ang buong katawan nila, nanginginig ang kanilang mga tuhod, at namumutla silang lahat. <sup class="versenum">11-12</sup>Ang Nineve ay parang yungib na tinitirhan ng mag-asawang leon at ng mga anak nito. Walang pwedeng manakit sa kanila sa yungib. Pinapatay at nilalapa ng lalaking leon ang kanyang biktima at ibinibigay sa kanyang asawa at mga anak. Pinupuno niya ang kanyang yungib ng karne ng kanyang mga biktima.[^e] Pero ngayon, ang Nineve ay wawasakin na. 
+Malilipol, mawawasak at magiging mapanglaw na ang Nineve! Kaya natatakot ang mga mamamayan nito, nanghihina ang buong katawan nila, nanginginig ang kanilang mga tuhod, at namumutla silang lahat. <sup class="versenum">11-12</sup>Ang Nineve ay parang yungib na tinitirhan ng mag-asawang leon at ng mga anak nito. Walang pwedeng manakit sa kanila sa yungib. Pinapatay at nilalapa ng lalaking leon ang kanyang biktima at ibinibigay sa kanyang asawa at mga anak. Pinupuno niya ang kanyang yungib ng karne ng kanyang mga biktima. Pero ngayon, ang Nineve ay wawasakin na. 
 
 
 
@@ -370,4 +370,4 @@ Malilipol, mawawasak at magiging mapanglaw na ang Nineve! Kaya natatakot ang mga
 
 
 
-Sapagkat sinasabi ng Panginoong Makapangyarihan, "Makinig kayong mga taga-Nineve! Kalaban ko kayo! Kaya susunugin ko ang inyong mga karwahe at mamamatay sa digmaan ang inyong mga kawal.[^f] Wawakasan ko na ang inyong pambibiktima sa lupain. Hindi na kayo makapagpapadala ng mga mensahero sa ibang bansa."
+Sapagkat sinasabi ng Panginoong Makapangyarihan, "Makinig kayong mga taga-Nineve! Kalaban ko kayo! Kaya susunugin ko ang inyong mga karwahe at mamamatay sa digmaan ang inyong mga kawal. Wawakasan ko na ang inyong pambibiktima sa lupain. Hindi na kayo makapagpapadala ng mga mensahero sa ibang bansa."

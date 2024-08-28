@@ -91,7 +91,7 @@ In every way and in every place, most excellent Felix, we accept _and_ acknowled
 
 
 
-But not to hinder _or_ detain you too long, I beg you in your clemency _and_ courtesy _and_ kindness to grant us a brief _and_ [^a]concise hearing. 
+But not to hinder _or_ detain you too long, I beg you in your clemency _and_ courtesy _and_ kindness to grant us a brief _and_ concise hearing. 
 
 
 
@@ -112,7 +112,7 @@ But not to hinder _or_ detain you too long, I beg you in your clemency _and_ cou
 
 
 
-For we have found this man a perfect pest (a real plague), an agitator _and_ source of disturbance to all the Jews throughout the world, and a ringleader of the [heretical, [^b]division-producing] sect of the Nazarenes. 
+For we have found this man a perfect pest (a real plague), an agitator _and_ source of disturbance to all the Jews throughout the world, and a ringleader of the [heretical, division-producing] sect of the Nazarenes. 
 
 
 
@@ -133,7 +133,7 @@ For we have found this man a perfect pest (a real plague), an agitator _and_ sou
 
 
 
-He also [even] tried to desecrate _and_ defile the temple, but we laid hands on him [^c]_and would have sentenced him by our Law_, 
+He also [even] tried to desecrate _and_ defile the temple, but we laid hands on him _and would have sentenced him by our Law_, 
 
 
 

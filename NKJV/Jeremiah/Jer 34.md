@@ -16,7 +16,7 @@ The word which came to Jeremiah from the Lord, when Nebuchadnezzar king of Babyl
 "Thus says the Lord, the God of Israel: 'Go and speak to Zedekiah king of Judah and tell him, "Thus says the Lord: 'Behold, I will give this city into the hand of the king of Babylon, and he shall burn it with fire. 
 
 ###### 3 
-And you shall not escape from his hand, but shall surely be taken and delivered into his hand; your eyes shall see the eyes of the king of Babylon, he shall speak with you face[^a] to face, and you shall go to Babylon.' " ' 
+And you shall not escape from his hand, but shall surely be taken and delivered into his hand; your eyes shall see the eyes of the king of Babylon, he shall speak with you face to face, and you shall go to Babylon.' " ' 
 
 ###### 4 
 Yet hear the word of the Lord, O Zedekiah king of Judah! Thus says the Lord concerning you: 'You shall not die by the sword. 
@@ -49,10 +49,10 @@ Therefore the word of the Lord came to Jeremiah from the Lord, saying,
 "Thus says the Lord, the God of Israel: 'I made a covenant with your fathers in the day that I brought them out of the land of Egypt, out of the house of bondage, saying, 
 
 ###### 14 
-"At the end of seven years let every man set free his Hebrew brother, who [^b]has been sold to him; and when he has served you six years, you shall let him go free from you." But your fathers did not obey Me nor incline their ear. 
+"At the end of seven years let every man set free his Hebrew brother, who has been sold to him; and when he has served you six years, you shall let him go free from you." But your fathers did not obey Me nor incline their ear. 
 
 ###### 15 
-Then you [^c]recently turned and did what was right in My sight--every man proclaiming liberty to his neighbor; and you made a covenant before Me in the house which is called by My name. 
+Then you recently turned and did what was right in My sight--every man proclaiming liberty to his neighbor; and you made a covenant before Me in the house which is called by My name. 
 
 ###### 16 
 Then you turned around and profaned My name, and every one of you brought back his male and female slaves, whom you had set at liberty, at their pleasure, and brought them back into subjection, to be your male and female slaves.' 
@@ -64,7 +64,7 @@ Then you turned around and profaned My name, and every one of you brought back h
 And I will give the men who have transgressed My covenant, who have not performed the words of the covenant which they made before Me, when they cut the calf in two and passed between the parts of it-- 
 
 ###### 19 
-the princes of Judah, the princes of Jerusalem, the [^d]eunuchs, the priests, and all the people of the land who passed between the parts of the calf-- 
+the princes of Judah, the princes of Jerusalem, the eunuchs, the priests, and all the people of the land who passed between the parts of the calf-- 
 
 ###### 20 
 I will give them into the hand of their enemies and into the hand of those who seek their life. Their dead bodies shall be for meat for the birds of the heaven and the beasts of the earth. 

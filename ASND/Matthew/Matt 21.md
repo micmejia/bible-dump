@@ -172,7 +172,7 @@ Nangyari ito upang matupad ang sinabi ng propeta:
 
 
 
-"Sabihin ninyo sa mga naninirahan sa Zion na paparating na ang kanilang hari! Mapagpakumbaba siya, at nakasakay sa asno, sa isang bisirong asno."[^a] 
+"Sabihin ninyo sa mga naninirahan sa Zion na paparating na ang kanilang hari! Mapagpakumbaba siya, at nakasakay sa asno, sa isang bisirong asno." 
 
 
 
@@ -304,7 +304,7 @@ Maraming tao ang naglatag ng kanilang mga balabal sa daan. Ang iba naman ay pumu
 
 
 
-Ang mga tao sa unahan ni Jesus at ang mga nasa hulihan ay sumisigaw, "Purihin ang Anak ni David![^b] Pagpalain ang dumarating sa pangalan ng Panginoon! Purihin ang Dios!"[^c] 
+Ang mga tao sa unahan ni Jesus at ang mga nasa hulihan ay sumisigaw, "Purihin ang Anak ni David! Pagpalain ang dumarating sa pangalan ng Panginoon! Purihin ang Dios!" 
 
 
 
@@ -436,7 +436,7 @@ Pumunta si Jesus sa templo at itinaboy niya ang mga nagtitinda at namimili roon.
 
 
 
-Sinabi niya sa kanila, "Sinasabi <i class="trans-change">ng Dios_ sa Kasulatan, 'Ang bahay ko ay bahay-panalanginan.'[^d] Pero ginawa ninyong pugad ng mga tulisan!"[^e] 
+Sinabi niya sa kanila, "Sinasabi <i class="trans-change">ng Dios_ sa Kasulatan, 'Ang bahay ko ay bahay-panalanginan.' Pero ginawa ninyong pugad ng mga tulisan!" 
 
 
 
@@ -502,7 +502,7 @@ May mga bulag at pilay na lumapit kay Jesus doon sa templo, at pinagaling niya s
 
 
 
-Nagalit ang mga namamahalang pari at mga tagapagturo ng Kautusan nang makita nila ang mga himalang ginawa ni Jesus, at nang marinig nila ang mga batang sumisigaw doon sa templo ng "Purihin ang Anak ni David!"[^f] 
+Nagalit ang mga namamahalang pari at mga tagapagturo ng Kautusan nang makita nila ang mga himalang ginawa ni Jesus, at nang marinig nila ang mga batang sumisigaw doon sa templo ng "Purihin ang Anak ni David!" 
 
 
 
@@ -535,7 +535,7 @@ Nagalit ang mga namamahalang pari at mga tagapagturo ng Kautusan nang makita nil
 
 
 
-Sinabi nila kay Jesus, "Naririnig mo ba ang sinasabi nila?" Sumagot si Jesus, "Oo. Hindi ba ninyo nabasa <i class="trans-change">ang sinabi sa Kasulatan_ na kahit ang maliliit na bata ay tinuruan ng Dios na magpuri sa kanya?"[^g] 
+Sinabi nila kay Jesus, "Naririnig mo ba ang sinasabi nila?" Sumagot si Jesus, "Oo. Hindi ba ninyo nabasa <i class="trans-change">ang sinabi sa Kasulatan_ na kahit ang maliliit na bata ay tinuruan ng Dios na magpuri sa kanya?" 
 
 
 
@@ -832,7 +832,7 @@ Sumagot si Jesus, "Tatanungin ko rin kayo. At kapag sinagot ninyo, sasabihin ko 
 
 
 
-Kanino galing ang awtoridad ni Juan para magbautismo, sa Dios[^h] o sa tao?" Nag-usap-usap sila, "Kung sasabihin nating mula sa Dios, sasabihin niya, 'Bakit hindi kayo naniwala kay Juan?' 
+Kanino galing ang awtoridad ni Juan para magbautismo, sa Dios o sa tao?" Nag-usap-usap sila, "Kung sasabihin nating mula sa Dios, sasabihin niya, 'Bakit hindi kayo naniwala kay Juan?' 
 
 
 
@@ -1393,7 +1393,7 @@ Sumagot ang mga tao, "Tiyak na papatayin niya ang masasamang taong iyon, at pauu
 
 
 
-Sinabi sa kanila ni Jesus, "Hindi ba ninyo nabasa <i class="trans-change">ang talatang ito_ sa Kasulatan? 'Ang batong tinanggihan ng mga tagapagtayo ng bahay ang siyang naging batong pundasyon.[^i] Gawa ito ng Panginoon at kahanga-hanga ito sa atin!'[^j] 
+Sinabi sa kanila ni Jesus, "Hindi ba ninyo nabasa <i class="trans-change">ang talatang ito_ sa Kasulatan? 'Ang batong tinanggihan ng mga tagapagtayo ng bahay ang siyang naging batong pundasyon. Gawa ito ng Panginoon at kahanga-hanga ito sa atin!' 
 
 
 

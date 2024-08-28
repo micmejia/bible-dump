@@ -532,7 +532,7 @@ When Noah awoke from his wine, and knew the thing which his youngest son had don
 
 
 
-He exclaimed, Cursed be Canaan! He shall be the [^a]servant of servants to his brethren! 
+He exclaimed, Cursed be Canaan! He shall be the servant of servants to his brethren! 
 
 
 

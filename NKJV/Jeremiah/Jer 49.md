@@ -10,16 +10,16 @@ next: ['Jer 50']
 
 
 ###### 1 
-Against the Ammonites. Thus says the Lord: "Has Israel no sons? Has he no heir? Why _then_ does [^a]Milcom inherit Gad, And his people dwell in its cities? 
+Against the Ammonites. Thus says the Lord: "Has Israel no sons? Has he no heir? Why _then_ does Milcom inherit Gad, And his people dwell in its cities? 
 
 ###### 2 
-Therefore behold, the days are coming," says the Lord, "That I will cause to be heard an alarm of war In Rabbah of the Ammonites; It shall be a desolate mound, And her [^b]villages shall be burned with fire. Then Israel shall take possession of his inheritance," says the Lord. 
+Therefore behold, the days are coming," says the Lord, "That I will cause to be heard an alarm of war In Rabbah of the Ammonites; It shall be a desolate mound, And her villages shall be burned with fire. Then Israel shall take possession of his inheritance," says the Lord. 
 
 ###### 3 
-"Wail, O Heshbon, for Ai is plundered! Cry, you daughters of Rabbah, Gird yourselves with sackcloth! Lament and run to and fro by the walls; For [^c]Milcom shall go into captivity With his priests and his princes together. 
+"Wail, O Heshbon, for Ai is plundered! Cry, you daughters of Rabbah, Gird yourselves with sackcloth! Lament and run to and fro by the walls; For Milcom shall go into captivity With his priests and his princes together. 
 
 ###### 4 
-Why do you boast in the valleys, [^d]Your flowing valley, O backsliding daughter? Who trusted in her treasures, _saying,_ 'Who will come against me?' 
+Why do you boast in the valleys, Your flowing valley, O backsliding daughter? Who trusted in her treasures, _saying,_ 'Who will come against me?' 
 
 ###### 5 
 Behold, I will bring fear upon you," Says the Lord God of hosts, "From all those who are around you; You shall be driven out, everyone headlong, And no one will gather those who wander off. 
@@ -46,7 +46,7 @@ Leave your fatherless children, I will preserve _them_ alive; And let your widow
 For thus says the Lord: "Behold, those whose judgment _was_ not to drink of the cup have assuredly drunk. And _are_ you the one who will altogether go unpunished? You shall not go unpunished, but you shall surely drink _of it._ 
 
 ###### 13 
-For I have sworn by Myself," says the Lord, "that Bozrah shall become a desolation, a reproach, a [^e]waste, and a curse. And all its cities shall be perpetual [^f]wastes." 
+For I have sworn by Myself," says the Lord, "that Bozrah shall become a desolation, a reproach, a waste, and a curse. And all its cities shall be perpetual wastes." 
 
 ###### 14 
 I have heard a message from the Lord, And an ambassador has been sent to the nations: "Gather together, come against her, And rise up to battle! 
@@ -64,10 +64,10 @@ Your fierceness has deceived you, The pride of your heart, O you who dwell in th
 As in the overthrow of Sodom and Gomorrah And their neighbors," says the Lord, "No one shall remain there, Nor shall a son of man dwell in it. 
 
 ###### 19 
-"Behold, he shall come up like a lion from the [^g]floodplain of the Jordan Against the dwelling place of the strong; But I will suddenly make him run away from her. And who _is_ a chosen _man that_ I may appoint over her? For who _is_ like Me? Who will arraign Me? And who _is_ that shepherd Who will withstand Me?" 
+"Behold, he shall come up like a lion from the floodplain of the Jordan Against the dwelling place of the strong; But I will suddenly make him run away from her. And who _is_ a chosen _man that_ I may appoint over her? For who _is_ like Me? Who will arraign Me? And who _is_ that shepherd Who will withstand Me?" 
 
 ###### 20 
-Therefore hear the counsel of the Lord that He has taken against Edom, And His purposes that He has proposed against the inhabitants of Teman: Surely the least of the flock shall [^h]draw them out; Surely He shall make their dwelling places desolate with them. 
+Therefore hear the counsel of the Lord that He has taken against Edom, And His purposes that He has proposed against the inhabitants of Teman: Surely the least of the flock shall draw them out; Surely He shall make their dwelling places desolate with them. 
 
 ###### 21 
 The earth shakes at the noise of their fall; At the cry its noise is heard at the Red Sea. 
@@ -76,10 +76,10 @@ The earth shakes at the noise of their fall; At the cry its noise is heard at th
 Behold, He shall come up and fly like the eagle, And spread His wings over Bozrah; The heart of the mighty men of Edom in that day shall be Like the heart of a woman in birth pangs. ## Judgment on Damascus 
 
 ###### 23 
-Against Damascus. "Hamath and Arpad are shamed, For they have heard bad news. They are fainthearted; _There is_ [^i]trouble on the sea; It cannot be quiet. 
+Against Damascus. "Hamath and Arpad are shamed, For they have heard bad news. They are fainthearted; _There is_ trouble on the sea; It cannot be quiet. 
 
 ###### 24 
-Damascus has grown feeble; She turns to flee, And fear has seized _her._ Anguish and sorrows have taken her like a woman in [^j]labor. 
+Damascus has grown feeble; She turns to flee, And fear has seized _her._ Anguish and sorrows have taken her like a woman in labor. 
 
 ###### 25 
 Why is the city of praise not deserted, the city of My joy? 
@@ -103,7 +103,7 @@ Their tents and their flocks they shall take away. They shall take for themselve
 "Arise, go up to the wealthy nation that dwells securely," says the Lord, "Which has neither gates nor bars, Dwelling alone. 
 
 ###### 32 
-Their camels shall be for booty, And the multitude of their cattle for plunder. I will scatter to all winds those [^k]in the farthest corners, And I will bring their calamity from all its sides," says the Lord. 
+Their camels shall be for booty, And the multitude of their cattle for plunder. I will scatter to all winds those in the farthest corners, And I will bring their calamity from all its sides," says the Lord. 
 
 ###### 33 
 "Hazor shall be a dwelling for jackals, a desolation forever; No one shall reside there, Nor son of man dwell in it." ## Judgment on Elam 
@@ -112,7 +112,7 @@ Their camels shall be for booty, And the multitude of their cattle for plunder. 
 The word of the Lord that came to Jeremiah the prophet against Elam, in the beginning of the reign of Zedekiah king of Judah, saying, 
 
 ###### 35 
-"Thus says the Lord of hosts: 'Behold, I will break the [^l]bow of Elam, The foremost of their might. 
+"Thus says the Lord of hosts: 'Behold, I will break the bow of Elam, The foremost of their might. 
 
 ###### 36 
 Against Elam I will bring the four winds From the four quarters of heaven, And scatter them toward all those winds; There shall be no nations where the outcasts of Elam will not go. 

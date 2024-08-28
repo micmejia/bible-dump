@@ -25,10 +25,10 @@ Let us choose justice for ourselves; Let us know among ourselves what _is_ good.
 "For Job has said, 'I am righteous, But God has taken away my justice; 
 
 ###### 6 
-Should I lie concerning my right? My [^a]wound _is_ incurable, _though I am_ without transgression.' 
+Should I lie concerning my right? My wound _is_ incurable, _though I am_ without transgression.' 
 
 ###### 7 
-What man _is_ like Job, _Who_ drinks [^b]scorn like water, 
+What man _is_ like Job, _Who_ drinks scorn like water, 
 
 ###### 8 
 Who goes in company with the workers of iniquity, And walks with wicked men? 
@@ -37,7 +37,7 @@ Who goes in company with the workers of iniquity, And walks with wicked men?
 For he has said, 'It profits a man nothing That he should delight in God.' 
 
 ###### 10 
-"Therefore listen to me, you [^c]men of understanding: Far be it from God _to do_ wickedness, And _from_ the Almighty to _commit_ iniquity. 
+"Therefore listen to me, you men of understanding: Far be it from God _to do_ wickedness, And _from_ the Almighty to _commit_ iniquity. 
 
 ###### 11 
 For He repays man _according to_ his work, And makes man to find a reward according to _his_ way. 

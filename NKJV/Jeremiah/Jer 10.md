@@ -16,7 +16,7 @@ Hear the word which the Lord speaks to you, O house of Israel.
 Thus says the Lord: "Do not learn the way of the Gentiles; Do not be dismayed at the signs of heaven, For the Gentiles are dismayed at them. 
 
 ###### 3 
-For the customs of the peoples _are_ [^a]futile; For _one_ cuts a tree from the forest, The work of the hands of the workman, with the ax. 
+For the customs of the peoples _are_ futile; For _one_ cuts a tree from the forest, The work of the hands of the workman, with the ax. 
 
 ###### 4 
 They decorate it with silver and gold; They fasten it with nails and hammers So that it will not topple. 
@@ -31,7 +31,7 @@ Inasmuch as _there is_ none like You, O Lord (You _are_ great, and Your name _is
 Who would not fear You, O King of the nations? For this is Your rightful due. For among all the wise _men_ of the nations, And in all their kingdoms, _There is_ none like You. 
 
 ###### 8 
-But they are altogether dull-hearted and foolish; A wooden idol _is_ a [^b]worthless doctrine. 
+But they are altogether dull-hearted and foolish; A wooden idol _is_ a worthless doctrine. 
 
 ###### 9 
 Silver is beaten into plates; It is brought from Tarshish, And gold from Uphaz, The work of the craftsman And of the hands of the metalsmith; Blue and purple _are_ their clothing; They _are_ all the work of skillful _men._ 
@@ -46,7 +46,7 @@ Thus you shall say to them: "The gods that have not made the heavens and the ear
 He has made the earth by His power, He has established the world by His wisdom, And has stretched out the heavens at His discretion. 
 
 ###### 13 
-When He utters His voice, _There is_ a [^c]multitude of waters in the heavens: "And He causes the vapors to ascend from the ends of the earth. He makes lightning for the rain, He brings the wind out of His treasuries." 
+When He utters His voice, _There is_ a multitude of waters in the heavens: "And He causes the vapors to ascend from the ends of the earth. He makes lightning for the rain, He brings the wind out of His treasuries." 
 
 ###### 14 
 Everyone is dull-hearted, without knowledge; Every metalsmith is put to shame by an image; For his molded image _is_ falsehood, And _there is_ no breath in them. 
@@ -58,7 +58,7 @@ They _are_ futile, a work of errors; In the time of their punishment they shall 
 The Portion of Jacob _is_ not like them, For He _is_ the Maker of all _things,_ And Israel _is_ the tribe of His inheritance; The Lord of hosts _is_ His name. ## The Coming Captivity of Judah 
 
 ###### 17 
-Gather up your wares from the land, O [^d]inhabitant of the fortress! 
+Gather up your wares from the land, O inhabitant of the fortress! 
 
 ###### 18 
 For thus says the Lord: "Behold, I will throw out at this time The inhabitants of the land, And will distress them, That they may find _it so._" 

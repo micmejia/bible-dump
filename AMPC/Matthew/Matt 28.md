@@ -384,7 +384,7 @@ And when they saw Him, they fell down and worshiped Him; but some doubted.
 
 
 
-Jesus approached and, [^a]breaking the silence, said to them, All authority (all power of rule) in heaven and on earth has been given to Me. 
+Jesus approached and, breaking the silence, said to them, All authority (all power of rule) in heaven and on earth has been given to Me. 
 
 
 
@@ -405,7 +405,7 @@ Jesus approached and, [^a]breaking the silence, said to them, All authority (all
 
 
 
-Go then and make disciples of all the nations, baptizing them [^b]into the name of the Father and of the Son and of the Holy Spirit, 
+Go then and make disciples of all the nations, baptizing them into the name of the Father and of the Son and of the Holy Spirit, 
 
 
 
@@ -426,4 +426,4 @@ Go then and make disciples of all the nations, baptizing them [^b]into the name 
 
 
 
-Teaching them to observe everything that I have commanded you, and behold, I am with you [^c]all the days ([^d]perpetually, uniformly, and on every occasion), to the [very] close _and_ consummation of the age. [^e]_Amen (so let it be)._
+Teaching them to observe everything that I have commanded you, and behold, I am with you all the days (perpetually, uniformly, and on every occasion), to the [very] close _and_ consummation of the age. _Amen (so let it be)._

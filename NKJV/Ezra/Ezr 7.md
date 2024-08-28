@@ -37,25 +37,25 @@ And Ezra came to Jerusalem in the fifth month, which _was_ in the seventh year o
 On the first _day_ of the first month he began _his_ journey from Babylon, and on the first _day_ of the fifth month he came to Jerusalem, according to the good hand of his God upon him. 
 
 ###### 10 
-For Ezra had prepared his heart to seek[^a] the Law of the Lord, and to do _it,_ and to teach statutes and ordinances in Israel. ## The Letter of Artaxerxes to Ezra 
+For Ezra had prepared his heart to seek the Law of the Lord, and to do _it,_ and to teach statutes and ordinances in Israel. ## The Letter of Artaxerxes to Ezra 
 
 ###### 11 
 This _is_ a copy of the letter that King Artaxerxes gave Ezra the priest, the scribe, expert in the words of the commandments of the Lord, and of His statutes to Israel: 
 
 ###### 12 
-[^b]Artaxerxes, king of kings, To Ezra the priest, a scribe of the Law of the God of heaven: Perfect _peace,_ and[^c] so forth. 
+Artaxerxes, king of kings, To Ezra the priest, a scribe of the Law of the God of heaven: Perfect _peace,_ and so forth. 
 
 ###### 13 
 I issue a decree that all those of the people of Israel and the priests and Levites in my realm, who volunteer to go up to Jerusalem, may go with you. 
 
 ###### 14 
-And whereas you are being sent [^d]by the king and his seven counselors to inquire concerning Judah and Jerusalem, with regard to the Law of your God which _is_ in your hand; 
+And whereas you are being sent by the king and his seven counselors to inquire concerning Judah and Jerusalem, with regard to the Law of your God which _is_ in your hand; 
 
 ###### 15 
 and _whereas you are_ to carry the silver and gold which the king and his counselors have freely offered to the God of Israel, whose dwelling _is_ in Jerusalem; 
 
 ###### 16 
-and _whereas_ all the silver and gold that you may find in all the province of Babylon, along with the freewill offering of the people and the priests, _are to be_ freely offered for the [^e]house of their God in Jerusalem-- 
+and _whereas_ all the silver and gold that you may find in all the province of Babylon, along with the freewill offering of the people and the priests, _are to be_ freely offered for the house of their God in Jerusalem-- 
 
 ###### 17 
 now therefore, be careful to buy with this money bulls, rams, and lambs, with their grain offerings and their drink offerings, and offer them on the altar of the house of your God in Jerusalem. 
@@ -76,7 +76,7 @@ And I, _even_ I, Artaxerxes the king, issue a decree to all the treasurers who _
 up to one hundred talents of silver, one hundred kors of wheat, one hundred baths of wine, one hundred baths of oil, and salt without prescribed limit. 
 
 ###### 23 
-Whatever [^f]is commanded by the God of heaven, let it diligently be done for the [^g]house of the God of heaven. For why should there be wrath against the realm of the king and his sons? 
+Whatever is commanded by the God of heaven, let it diligently be done for the house of the God of heaven. For why should there be wrath against the realm of the king and his sons? 
 
 ###### 24 
 Also we inform you that it shall not be lawful to impose tax, tribute, or custom on any of the priests, Levites, singers, gatekeepers, Nethinim, or servants of this house of God. 
@@ -85,10 +85,10 @@ Also we inform you that it shall not be lawful to impose tax, tribute, or custom
 And you, Ezra, according to your God-given wisdom, set magistrates and judges who may judge all the people who _are in the region_ beyond the River, all such as know the laws of your God; and teach those who do not know _them._ 
 
 ###### 26 
-Whoever will not observe the law of your God and the law of the king, let judgment be executed speedily on him, whether _it be_ death, or [^h]banishment, or confiscation of goods, or imprisonment. 
+Whoever will not observe the law of your God and the law of the king, let judgment be executed speedily on him, whether _it be_ death, or banishment, or confiscation of goods, or imprisonment. 
 
 ###### 27 
-Blessed[^i] _be_ the Lord God of our fathers, who has put _such a thing_ as this in the king's heart, to beautify the house of the Lord which _is_ in Jerusalem, 
+Blessed _be_ the Lord God of our fathers, who has put _such a thing_ as this in the king's heart, to beautify the house of the Lord which _is_ in Jerusalem, 
 
 ###### 28 
 and has extended mercy to me before the king and his counselors, and before all the king's mighty princes. So I was encouraged, as the hand of the Lord my God _was_ upon me; and I gathered leading men of Israel to go up with me.

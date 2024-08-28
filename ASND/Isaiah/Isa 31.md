@@ -304,4 +304,4 @@ Mamamatay ang mga taga-Asiria, pero hindi sa pamamagitan ng espada ng tao. Tatak
 
 
 
-Tatakas ang kanilang mga kawal[^a] dahil sa takot, pati ang kanilang mga pinuno ay hindi na malaman ang gagawin kapag nakita nila ang bandila ng kanilang mga kaaway. Iyan ang sinabi ng Panginoon, na ang kanyang apoy ay nagniningas sa Zion, ang <i class="trans-change">lungsod ng_ Jerusalem.[^b]
+Tatakas ang kanilang mga kawal dahil sa takot, pati ang kanilang mga pinuno ay hindi na malaman ang gagawin kapag nakita nila ang bandila ng kanilang mga kaaway. Iyan ang sinabi ng Panginoon, na ang kanyang apoy ay nagniningas sa Zion, ang <i class="trans-change">lungsod ng_ Jerusalem.

@@ -10,13 +10,13 @@ next: ['Deut 19']
 
 
 ###### 1 
-"The priests, the Levites--all the tribe of Levi--shall have [^a]no part nor inheritance with Israel; they shall eat the offerings of the Lord made by fire, and His portion. 
+"The priests, the Levites--all the tribe of Levi--shall have no part nor inheritance with Israel; they shall eat the offerings of the Lord made by fire, and His portion. 
 
 ###### 2 
 Therefore they shall have no inheritance among their brethren; the Lord is their inheritance, as He said to them. 
 
 ###### 3 
-"And this shall be the priest's due[^b] from the people, from those who offer a sacrifice, whether _it is_ bull or sheep: they shall give to the priest the shoulder, the cheeks, and the stomach. 
+"And this shall be the priest's due from the people, from those who offer a sacrifice, whether _it is_ bull or sheep: they shall give to the priest the shoulder, the cheeks, and the stomach. 
 
 ###### 4 
 The firstfruits of your grain and your new wine and your oil, and the first of the fleece of your sheep, you shall give him. 
@@ -25,7 +25,7 @@ The firstfruits of your grain and your new wine and your oil, and the first of t
 For the Lord your God has chosen him out of all your tribes to stand to minister in the name of the Lord, him and his sons forever. 
 
 ###### 6 
-"So if a Levite comes from any of your [^c]gates, from where he dwells among all Israel, and comes with all the desire of his mind to the place which the Lord chooses, 
+"So if a Levite comes from any of your gates, from where he dwells among all Israel, and comes with all the desire of his mind to the place which the Lord chooses, 
 
 ###### 7 
 then he may serve in the name of the Lord his God as all his brethren the Levites _do,_ who stand there before the Lord. 
@@ -34,22 +34,22 @@ then he may serve in the name of the Lord his God as all his brethren the Levite
 They shall have equal portions to eat, besides what comes from the sale of his inheritance. ## Avoid Wicked Customs 
 
 ###### 9 
-"When you come into the land which the Lord your God is giving you, you shall not learn to follow the [^d]abominations of those nations. 
+"When you come into the land which the Lord your God is giving you, you shall not learn to follow the abominations of those nations. 
 
 ###### 10 
-There shall not be found among you _anyone_ who makes his son or his daughter pass[^e] through the fire, _or one_ who practices witchcraft, _or_ a soothsayer, or one who interprets omens, or a sorcerer, 
+There shall not be found among you _anyone_ who makes his son or his daughter pass through the fire, _or one_ who practices witchcraft, _or_ a soothsayer, or one who interprets omens, or a sorcerer, 
 
 ###### 11 
 or one who conjures spells, or a medium, or a spiritist, or one who calls up the dead. 
 
 ###### 12 
-For all who do these things _are_ [^f]an abomination to the Lord, and because of these abominations the Lord your God drives them out from before you. 
+For all who do these things _are_ an abomination to the Lord, and because of these abominations the Lord your God drives them out from before you. 
 
 ###### 13 
-You shall be [^g]blameless before the Lord your God. 
+You shall be blameless before the Lord your God. 
 
 ###### 14 
-For these nations which you will dispossess listened to soothsayers and diviners; but as for you, the Lord your God has not [^h]appointed such for you. ## A New Prophet Like Moses 
+For these nations which you will dispossess listened to soothsayers and diviners; but as for you, the Lord your God has not appointed such for you. ## A New Prophet Like Moses 
 
 ###### 15 
 "The Lord your God will raise up for you a Prophet like me from your midst, from your brethren. Him you shall hear, 

@@ -73,7 +73,7 @@ Ito ang sinasabi ng Panginoon <i class="trans-change">tungkol sa Moab_: "Dahil s
 
 
 
-Kaya susunugin ko ang Moab pati na ang matitibay na bahagi ng Keriot.[^a] Mamamatay ang mga taga-Moab habang nagsisigawan at nagpapatunog ng mga trumpeta <i class="trans-change">ang kanilang mga kaaway na sumasalakay sa kanila_. 
+Kaya susunugin ko ang Moab pati na ang matitibay na bahagi ng Keriot. Mamamatay ang mga taga-Moab habang nagsisigawan at nagpapatunog ng mga trumpeta <i class="trans-change">ang kanilang mga kaaway na sumasalakay sa kanila_. 
 
 
 
@@ -205,7 +205,7 @@ Kaya susunugin ko ang Juda pati na ang matitibay na bahagi ng Jerusalem." ## Ang
 
 
 
-Ito ang sinasabi ng Panginoon <i class="trans-change">tungkol sa Israel_: "Dahil sa patuloy na pagkakasala ng mga taga-Israel,[^b] parurusahan ko sila. Sapagkat ipinagbibili nila <i class="trans-change">bilang alipin_ ang mga taong walang kasalanan dahil lamang sa kanilang utang. Ginagawa rin nila ito sa mga mahihirap kahit na isang pares lang na sandalyas ang utang. 
+Ito ang sinasabi ng Panginoon <i class="trans-change">tungkol sa Israel_: "Dahil sa patuloy na pagkakasala ng mga taga-Israel, parurusahan ko sila. Sapagkat ipinagbibili nila <i class="trans-change">bilang alipin_ ang mga taong walang kasalanan dahil lamang sa kanilang utang. Ginagawa rin nila ito sa mga mahihirap kahit na isang pares lang na sandalyas ang utang. 
 
 
 
@@ -271,7 +271,7 @@ Ginigipit nila ang mga mahihirap at hindi binibigyan ng katarungan. Mayroon sa k
 
 
 
-Natutulog sila sa kanilang sambahan[^c] na suot ang damit na isinangla sa kanila <i class="trans-change">ng mga mahihirap_.[^d] At nag-iinuman sila sa aking templo ng alak na binili galing sa ibinayad <i class="trans-change">ng mga mahihirap_ na may utang sa kanila. 
+Natutulog sila sa kanilang sambahan na suot ang damit na isinangla sa kanila <i class="trans-change">ng mga mahihirap_. At nag-iinuman sila sa aking templo ng alak na binili galing sa ibinayad <i class="trans-change">ng mga mahihirap_ na may utang sa kanila. 
 
 
 
@@ -403,7 +403,7 @@ Pinili ko ang ilan sa mga anak nila na maging propeta at Nazareo. Mga taga-Israe
 
 
 
-Pero ano ang ginawa ninyo? Pinainom ninyo ng alak ang mga Nazareo[^e] at pinagbawalan ninyo ang mga propeta na sabihin ang ipinapasabi ko. 
+Pero ano ang ginawa ninyo? Pinainom ninyo ng alak ang mga Nazareo at pinagbawalan ninyo ang mga propeta na sabihin ang ipinapasabi ko. 
 
 
 

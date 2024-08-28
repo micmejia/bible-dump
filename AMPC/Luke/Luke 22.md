@@ -448,7 +448,7 @@ And in like manner, He took the cup after supper, saying, This cup is the new te
 
 
 
-But, behold, the hand of him who [^a]is now engaged in betraying Me is with Me on the table. 
+But, behold, the hand of him who is now engaged in betraying Me is with Me on the table. 
 
 
 
@@ -511,7 +511,7 @@ And they began to inquire among themselves which of them it was who was about to
 
 
 
-Now [^b]an eager contention arose among them [as to] which of them was considered _and_ reputed to be the greatest. 
+Now an eager contention arose among them [as to] which of them was considered _and_ reputed to be the greatest. 
 
 
 
@@ -532,7 +532,7 @@ Now [^b]an eager contention arose among them [as to] which of them was considere
 
 
 
-But Jesus said to them, The kings of the Gentiles [^c]are deified by them _and_ exercise lordship [[^d]ruling as emperor-gods] over them; and those in authority over them are called benefactors _and_ well-doers. 
+But Jesus said to them, The kings of the Gentiles are deified by them _and_ exercise lordship [ruling as emperor-gods] over them; and those in authority over them are called benefactors _and_ well-doers. 
 
 
 
@@ -658,7 +658,7 @@ That you may eat and drink at My table in My kingdom and sit on thrones, judging
 
 
 
-Simon, Simon (Peter), listen! Satan [^e]has asked excessively that [all of] you be given up to him [out of the power and keeping of God], that he might sift [all of] you like grain, 
+Simon, Simon (Peter), listen! Satan has asked excessively that [all of] you be given up to him [out of the power and keeping of God], that he might sift [all of] you like grain, 
 
 
 
@@ -889,7 +889,7 @@ And He withdrew from them about a stone's throw and knelt down and prayed,
 
 
 
-Saying, Father, if You are willing, remove this cup from Me; yet not My will, but [[^f]always] Yours be done. 
+Saying, Father, if You are willing, remove this cup from Me; yet not My will, but [always] Yours be done. 
 
 
 
@@ -931,7 +931,7 @@ And there appeared to Him an angel from heaven, strengthening Him in spirit.
 
 
 
-And being in an agony [of mind], He prayed [all the] more earnestly _and_ intently, and His sweat became like great [^g]clots of blood dropping down upon the ground. 
+And being in an agony [of mind], He prayed [all the] more earnestly _and_ intently, and His sweat became like great clots of blood dropping down upon the ground. 
 
 
 
@@ -1078,7 +1078,7 @@ And one of them struck the bond servant of the high priest and cut off his ear, 
 
 
 
-But Jesus said, Permit [^h]them to go so far [as to seize Me]. And He touched the [^i]little (insignificant) ear and healed him. 
+But Jesus said, Permit them to go so far [as to seize Me]. And He touched the little (insignificant) ear and healed him. 
 
 
 
@@ -1120,7 +1120,7 @@ Then Jesus said to those who had come out against Him--the chief priests and cap
 
 
 
-When I was with you day after day in the temple [[^j]enclosure], you did not stretch forth [your] hands against Me. But this is your hour--and the power [which] darkness [gives you has its way]. 
+When I was with you day after day in the temple [enclosure], you did not stretch forth [your] hands against Me. But this is your hour--and the power [which] darkness [gives you has its way]. 
 
 
 
@@ -1183,7 +1183,7 @@ And when they had kindled a fire in the middle of the courtyard and were seated 
 
 
 
-Then a servant girl, seeing him as he sat in the firelight and gazing [intently] at him, said, This man too was with [^k]Him. 
+Then a servant girl, seeing him as he sat in the firelight and gazing [intently] at him, said, This man too was with Him. 
 
 
 
@@ -1351,7 +1351,7 @@ Now the men who had Jesus in custody treated Him with contempt _and_ scoffed at 
 
 
 
-They blindfolded Him also and asked Him, Prophesy! Who is it that struck [^l]You? 
+They blindfolded Him also and asked Him, Prophesy! Who is it that struck You? 
 
 
 
@@ -1477,7 +1477,7 @@ But hereafter (from this time on), the Son of Man shall be seated at the right h
 
 
 
-And they all said, You are the Son of God, then? And He said to them, [^m]It is just as you say; I Am. 
+And they all said, You are the Son of God, then? And He said to them, It is just as you say; I Am. 
 
 
 

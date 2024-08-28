@@ -40,7 +40,7 @@ next: ['2 Kgs 6']
 
 
 
-Iginagalang ng hari ng Aram si Naaman na pinuno ng kanyang hukbo, dahil pinagtagumpay ng Panginoon ang Aram sa pamamagitan niya. Matapang siyang sundalo, pero may malubhang sakit sa balat.[^a] 
+Iginagalang ng hari ng Aram si Naaman na pinuno ng kanyang hukbo, dahil pinagtagumpay ng Panginoon ang Aram sa pamamagitan niya. Matapang siyang sundalo, pero may malubhang sakit sa balat. 
 
 
 
@@ -568,7 +568,7 @@ Sumagot si Eliseo, "Sumusumpa ako sa buhay na Panginoon na aking pinaglilingkura
 
 
 
-Sinabi ni Naaman, "Kung hindi mo tatanggapin ang regalo ko, bigyan mo na lang po ako ng lupa na kayang dalhin ng aking dalawang mola[^b] at dadalhin ko sa amin.[^c] Mula ngayon, hindi na ako mag-aalay ng mga handog na sinusunog at iba pang mga handog sa ibang dios maliban sa Panginoon. 
+Sinabi ni Naaman, "Kung hindi mo tatanggapin ang regalo ko, bigyan mo na lang po ako ng lupa na kayang dalhin ng aking dalawang mola at dadalhin ko sa amin. Mula ngayon, hindi na ako mag-aalay ng mga handog na sinusunog at iba pang mga handog sa ibang dios maliban sa Panginoon. 
 
 
 

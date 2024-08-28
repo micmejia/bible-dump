@@ -170,7 +170,7 @@ Sapagkat kahit gawin ninyong kasintaas ng lipad ng agila ang inyong tirahan at p
 
 
 
-"Hindi baʼt kapag pinasok ng mga magnanakaw ang iyong bahay, ang kinukuha lamang nila ay ang kanilang magustuhan? At hindi baʼt ang mga namimitas ng ubas ay nagtitira ng ilang bunga?[^a] Pero kayong lahat ay lilipulin <i class="trans-change">ng inyong mga kaaway_. 
+"Hindi baʼt kapag pinasok ng mga magnanakaw ang iyong bahay, ang kinukuha lamang nila ay ang kanilang magustuhan? At hindi baʼt ang mga namimitas ng ubas ay nagtitira ng ilang bunga? Pero kayong lahat ay lilipulin <i class="trans-change">ng inyong mga kaaway_. 
 
 
 
@@ -533,7 +533,7 @@ Hindi sana kayo nag-abang sa mga sangang-daan upang patayin ang mga tumatakas mu
 
 
 
-Kung paanong pinarusahan ang aking mga mamamayan[^b] sa aking banal na bundok,[^c] parurusahan din ang lahat ng bansa. Matinding parusa ang ibibigay ko sa kanila hanggang malipol silang lahat. ## Magtatagumpay ang Israel 
+Kung paanong pinarusahan ang aking mga mamamayan sa aking banal na bundok, parurusahan din ang lahat ng bansa. Matinding parusa ang ibibigay ko sa kanila hanggang malipol silang lahat. ## Magtatagumpay ang Israel 
 
 
 
@@ -599,7 +599,7 @@ Kung paanong pinarusahan ang aking mga mamamayan[^b] sa aking banal na bundok,[^
 
 
 
-Ang mga lahi nina Jacob at Jose[^d] ay magiging tulad ng apoy na lilipol sa lahi ni Esau, tulad ng pagsunog sa dayami. At walang matitira sa lahi ni Esau." <i class="trans-change">Mangyayari nga ito,_ dahil ako, ang Panginoon, ang nagsasabi nito. 
+Ang mga lahi nina Jacob at Jose ay magiging tulad ng apoy na lilipol sa lahi ni Esau, tulad ng pagsunog sa dayami. At walang matitira sa lahi ni Esau." <i class="trans-change">Mangyayari nga ito,_ dahil ako, ang Panginoon, ang nagsasabi nito. 
 
 
 
@@ -632,7 +632,7 @@ Ang mga lahi nina Jacob at Jose[^d] ay magiging tulad ng apoy na lilipol sa lahi
 
 
 
-"Sasakupin ng mga <i class="trans-change">Israelitang_ taga-Negev[^e] ang bundok ni Esau, at sasakupin ng mga <i class="trans-change">Israelitang_ nakatira sa kaburulan sa kanluran[^f] ay sasakupin naman ang <i class="trans-change">lupain ng_ mga Filisteo. Sasakupin din ng mga Israelita ang lupain ng Efraim at Samaria, at sasakupin naman ng <i class="trans-change">mga lahi ni_ Benjamin ang Gilead. 
+"Sasakupin ng mga <i class="trans-change">Israelitang_ taga-Negev ang bundok ni Esau, at sasakupin ng mga <i class="trans-change">Israelitang_ nakatira sa kaburulan sa kanluran ay sasakupin naman ang <i class="trans-change">lupain ng_ mga Filisteo. Sasakupin din ng mga Israelita ang lupain ng Efraim at Samaria, at sasakupin naman ng <i class="trans-change">mga lahi ni_ Benjamin ang Gilead. 
 
 
 

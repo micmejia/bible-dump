@@ -28,7 +28,7 @@ next: ['Ezek 42']
 
 
 
-And _the man_ [an angel] brought me to [the Holy Place of] the temple and measured the wall pillars, six cubits broad on one side [of the ten-cubit door] and six cubits broad on the other side, [^a]which was the breadth of the tabernacle _or_ tent [later called the temple]. 
+And _the man_ [an angel] brought me to [the Holy Place of] the temple and measured the wall pillars, six cubits broad on one side [of the ten-cubit door] and six cubits broad on the other side, which was the breadth of the tabernacle _or_ tent [later called the temple]. 
 
 
 

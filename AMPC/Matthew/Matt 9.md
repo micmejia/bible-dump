@@ -49,7 +49,7 @@ And Jesus, getting into a boat, crossed to the other side and came to His own to
 
 
 
-And behold, they brought to Him a man paralyzed _and_ prostrated by illness, lying on a sleeping pad; and when Jesus saw their faith, He said to the paralyzed man, Take courage, son; your sins are forgiven _and_ the [^a]penalty remitted. 
+And behold, they brought to Him a man paralyzed _and_ prostrated by illness, lying on a sleeping pad; and when Jesus saw their faith, He said to the paralyzed man, Take courage, son; your sins are forgiven _and_ the penalty remitted. 
 
 
 
@@ -91,7 +91,7 @@ And behold, some of the scribes said to themselves, This man blasphemes [He clai
 
 
 
-But Jesus, knowing ([^b]seeing) their thoughts, said, Why do you think evil _and_ harbor [^c]malice in your hearts? 
+But Jesus, knowing (seeing) their thoughts, said, Why do you think evil _and_ harbor malice in your hearts? 
 
 
 
@@ -112,7 +112,7 @@ But Jesus, knowing ([^b]seeing) their thoughts, said, Why do you think evil _and
 
 
 
-For which is easier: to say, Your sins are forgiven _and_ the [^d]penalty remitted, or to say, Get up and walk? 
+For which is easier: to say, Your sins are forgiven _and_ the penalty remitted, or to say, Get up and walk? 
 
 
 
@@ -133,7 +133,7 @@ For which is easier: to say, Your sins are forgiven _and_ the [^d]penalty remitt
 
 
 
-But in order that you may know that the Son of Man has authority on earth to forgive sins _and_ [^e]remit the penalty, He then said to the paralyzed man, Get up! Pick up your sleeping pad and go to your own house. 
+But in order that you may know that the Son of Man has authority on earth to forgive sins _and_ remit the penalty, He then said to the paralyzed man, Get up! Pick up your sleeping pad and go to your own house. 
 
 
 
@@ -175,7 +175,7 @@ And he got up and went away to his own house.
 
 
 
-When the crowds saw it, they were struck with fear _and_ awe; and they [^f]recognized God _and_ praised _and_ thanked Him, Who had given such power _and_ authority to men. 
+When the crowds saw it, they were struck with fear _and_ awe; and they recognized God _and_ praised _and_ thanked Him, Who had given such power _and_ authority to men. 
 
 
 
@@ -196,7 +196,7 @@ When the crowds saw it, they were struck with fear _and_ awe; and they [^f]recog
 
 
 
-As Jesus passed on from there, He saw a man named Matthew sitting at the tax collector's office; and He said to him, [^g]Be My disciple [side with My party and follow Me]. And he rose and followed Him. 
+As Jesus passed on from there, He saw a man named Matthew sitting at the tax collector's office; and He said to him, Be My disciple [side with My party and follow Me]. And he rose and followed Him. 
 
 
 
@@ -217,7 +217,7 @@ As Jesus passed on from there, He saw a man named Matthew sitting at the tax col
 
 
 
-And as Jesus reclined at table in the house, behold, many tax collectors and [^h][especially wicked] sinners came and sat (reclined) with Him and His disciples. 
+And as Jesus reclined at table in the house, behold, many tax collectors and [especially wicked] sinners came and sat (reclined) with Him and His disciples. 
 
 
 
@@ -280,7 +280,7 @@ But when Jesus heard it, He replied, Those who are strong _and_ well (healthy) h
 
 
 
-Go and learn what this means: I desire mercy [that is, [^i]readiness to help those in trouble] and not sacrifice _and_ sacrificial victims. For I came not to call _and_ invite [to repentance] the righteous (those who are upright and in right standing with God), but sinners (the erring ones and all those not free from sin). 
+Go and learn what this means: I desire mercy [that is, readiness to help those in trouble] and not sacrifice _and_ sacrificial victims. For I came not to call _and_ invite [to repentance] the righteous (those who are upright and in right standing with God), but sinners (the erring ones and all those not free from sin). 
 
 
 
@@ -301,7 +301,7 @@ Go and learn what this means: I desire mercy [that is, [^i]readiness to help tho
 
 
 
-Then the disciples of John came to Jesus, inquiring, Why is it that we and the Pharisees fast [^j]_often_, [that is, abstain from food and drink as a religious exercise], but Your disciples do not fast? 
+Then the disciples of John came to Jesus, inquiring, Why is it that we and the Pharisees fast _often_, [that is, abstain from food and drink as a religious exercise], but Your disciples do not fast? 
 
 
 
@@ -364,7 +364,7 @@ And no one puts a piece of cloth that has not been shrunk on an old garment, for
 
 
 
-Neither is new wine put in old wineskins; for if it is, the skins burst and are [^k]torn in pieces, and the wine is spilled and the skins are ruined. But new wine is put into fresh wineskins, and so both are preserved. 
+Neither is new wine put in old wineskins; for if it is, the skins burst and are torn in pieces, and the wine is spilled and the skins are ruined. But new wine is put into fresh wineskins, and so both are preserved. 
 
 
 
@@ -385,7 +385,7 @@ Neither is new wine put in old wineskins; for if it is, the skins burst and are 
 
 
 
-While He was talking this way to them, behold, a ruler entered and, kneeling down, worshiped Him, saying, My daughter has just [^l]now died; but come and lay Your hand on her, and she will come to life. 
+While He was talking this way to them, behold, a ruler entered and, kneeling down, worshiped Him, saying, My daughter has just now died; but come and lay Your hand on her, and she will come to life. 
 
 
 
@@ -805,4 +805,4 @@ Then He said to His disciples, The harvest is indeed plentiful, but the laborers
 
 
 
-So pray to the Lord of the harvest to [^m]force out _and_ thrust laborers into His harvest.
+So pray to the Lord of the harvest to force out _and_ thrust laborers into His harvest.

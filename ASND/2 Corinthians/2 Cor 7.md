@@ -238,7 +238,7 @@ Ngunit pinalakas ng Dios ang aming loob nang dumating si Tito. Tunay na pinalala
 
 
 
-At hindi lang ang pagdating ni Tito ang nagpalakas ng aming loob, kundi maging ang balita na pinalakas din ninyo ang loob niya. Ibinalita niya ang pananabik ninyo <i class="trans-change">sa amin_, ang inyong panaghoy <i class="trans-change">sa mga pangyayari_, at ang katapatan[^a] ninyo sa akin. Dahil dito, lalo akong natuwa! 
+At hindi lang ang pagdating ni Tito ang nagpalakas ng aming loob, kundi maging ang balita na pinalakas din ninyo ang loob niya. Ibinalita niya ang pananabik ninyo <i class="trans-change">sa amin_, ang inyong panaghoy <i class="trans-change">sa mga pangyayari_, at ang katapatan ninyo sa akin. Dahil dito, lalo akong natuwa! 
 
 
 

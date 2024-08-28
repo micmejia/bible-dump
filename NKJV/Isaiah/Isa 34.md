@@ -25,10 +25,10 @@ All the host of heaven shall be dissolved, And the heavens shall be rolled up li
 "For My sword shall be bathed in heaven; Indeed it shall come down on Edom, And on the people of My curse, for judgment. 
 
 ###### 6 
-The sword of the Lord is filled with blood, It is made [^a]overflowing with fatness, With the blood of lambs and goats, With the fat of the kidneys of rams. For the Lord has a sacrifice in Bozrah, And a great slaughter in the land of Edom. 
+The sword of the Lord is filled with blood, It is made overflowing with fatness, With the blood of lambs and goats, With the fat of the kidneys of rams. For the Lord has a sacrifice in Bozrah, And a great slaughter in the land of Edom. 
 
 ###### 7 
-The wild oxen shall come down with them, And the young bulls with the mighty bulls; Their land shall be soaked with blood, And their dust [^b]saturated with fatness." 
+The wild oxen shall come down with them, And the young bulls with the mighty bulls; Their land shall be soaked with blood, And their dust saturated with fatness." 
 
 ###### 8 
 For _it is_ the day of the Lord's vengeance, The year of recompense for the cause of Zion. 
@@ -40,7 +40,7 @@ Its streams shall be turned into pitch, And its dust into brimstone; Its land sh
 It shall not be quenched night or day; Its smoke shall ascend forever. From generation to generation it shall lie waste; No one shall pass through it forever and ever. 
 
 ###### 11 
-But the [^c]pelican and the [^d]porcupine shall possess it, Also the owl and the raven shall dwell in it. And He shall stretch out over it The line of confusion and the stones of emptiness. 
+But the pelican and the porcupine shall possess it, Also the owl and the raven shall dwell in it. And He shall stretch out over it The line of confusion and the stones of emptiness. 
 
 ###### 12 
 They shall call its nobles to the kingdom, But none _shall be_ there, and all its princes shall be nothing. 
@@ -49,7 +49,7 @@ They shall call its nobles to the kingdom, But none _shall be_ there, and all it
 And thorns shall come up in its palaces, Nettles and brambles in its fortresses; It shall be a habitation of jackals, A courtyard for ostriches. 
 
 ###### 14 
-The wild beasts of the desert shall also meet with the [^e]jackals, And the wild goat shall bleat to its companion; Also [^f]the night creature shall rest there, And find for herself a place of rest. 
+The wild beasts of the desert shall also meet with the jackals, And the wild goat shall bleat to its companion; Also the night creature shall rest there, And find for herself a place of rest. 
 
 ###### 15 
 There the arrow snake shall make her nest and lay _eggs_ And hatch, and gather _them_ under her shadow; There also shall the hawks be gathered, Every one with her mate. 

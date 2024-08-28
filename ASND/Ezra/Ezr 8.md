@@ -799,7 +799,7 @@ Kaya nag-ayuno at nanalangin kami sa aming Dios na ingatan niya kami, at tinugon
 
 
 
-Pumili ako ng 12 tao mula sa mga namumunong pari, hindi kabilang sina[^a] Sherebia, Hashabia, at ang sampu sa kamag-anak nila. 
+Pumili ako ng 12 tao mula sa mga namumunong pari, hindi kabilang sina Sherebia, Hashabia, at ang sampu sa kamag-anak nila. 
 
 
 
@@ -832,7 +832,7 @@ Pumili ako ng 12 tao mula sa mga namumunong pari, hindi kabilang sina[^a] Shereb
 
 
 
-Pagkatapos, ipinagkatiwala ko sa kanila ng walang kulang[^b] ang mga pilak, ginto, at mga kagamitang ibinigay ng hari, at ng mga tagapayo niya at mga opisyal, at ng maraming Israelita, bilang tulong sa templo ng aming Dios. <sup class="versenum">26-27</sup>Ito ang aking ipinagkatiwala sa kanila: 22 toneladang pilak 3 toneladang kasangkapang pilak 3 toneladang ginto 20 gintong mangkok na mga waloʼt kalahating kilo, 2 tansong mangkok[^c] na pinakintab na kasinghalaga ng <i class="trans-change">mga mangkok na_ ginto. 
+Pagkatapos, ipinagkatiwala ko sa kanila ng walang kulang ang mga pilak, ginto, at mga kagamitang ibinigay ng hari, at ng mga tagapayo niya at mga opisyal, at ng maraming Israelita, bilang tulong sa templo ng aming Dios. <sup class="versenum">26-27</sup>Ito ang aking ipinagkatiwala sa kanila: 22 toneladang pilak 3 toneladang kasangkapang pilak 3 toneladang ginto 20 gintong mangkok na mga waloʼt kalahating kilo, 2 tansong mangkok na pinakintab na kasinghalaga ng <i class="trans-change">mga mangkok na_ ginto. 
 
 
 
@@ -898,7 +898,7 @@ Sinabi ko sa mga pari, "Kayo at ang mga kagamitang ito ay ibinukod para sa Pangi
 
 
 
-Ingatan nʼyo itong mabuti hanggang sa madala nʼyo ito sa mga bodega templo ng Panginoon sa Jerusalem na walang kulang,[^d] sa harap ng mga namumunong pari, mga Levita, at ng mga pinuno ng mga pamilya ng mga Israelita." 
+Ingatan nʼyo itong mabuti hanggang sa madala nʼyo ito sa mga bodega templo ng Panginoon sa Jerusalem na walang kulang, sa harap ng mga namumunong pari, mga Levita, at ng mga pinuno ng mga pamilya ng mga Israelita." 
 
 
 

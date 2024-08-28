@@ -28,10 +28,10 @@ A false witness will not go unpunished, And _he who_ speaks lies will not escape
 Many entreat the favor of the nobility, And every man _is_ a friend to one who gives gifts. 
 
 ###### 7 
-All the brothers of the poor hate him; How much more do his friends go far from him! He may pursue _them with_ words, _yet_ they [^a]abandon _him._ 
+All the brothers of the poor hate him; How much more do his friends go far from him! He may pursue _them with_ words, _yet_ they abandon _him._ 
 
 ###### 8 
-He who gets [^b]wisdom loves his own soul; He who keeps understanding will find good. 
+He who gets wisdom loves his own soul; He who keeps understanding will find good. 
 
 ###### 9 
 A false witness will not go unpunished, And _he who_ speaks lies shall perish. 
@@ -46,7 +46,7 @@ The discretion of a man makes him slow to anger, And his glory _is_ to overlook 
 The king's wrath _is_ like the roaring of a lion, But his favor _is_ like dew on the grass. 
 
 ###### 13 
-A foolish son _is_ the ruin of his father, And the contentions of a wife _are_ a continual [^c]dripping. 
+A foolish son _is_ the ruin of his father, And the contentions of a wife _are_ a continual dripping. 
 
 ###### 14 
 Houses and riches _are_ an inheritance from fathers, But a prudent wife _is_ from the Lord. 
@@ -55,13 +55,13 @@ Houses and riches _are_ an inheritance from fathers, But a prudent wife _is_ fro
 Laziness casts _one_ into a deep sleep, And an idle person will suffer hunger. 
 
 ###### 16 
-He who keeps the commandment keeps his soul, _But_ he who [^d]is careless of his ways will die. 
+He who keeps the commandment keeps his soul, _But_ he who is careless of his ways will die. 
 
 ###### 17 
 He who has pity on the poor lends to the Lord, And He will pay back what he has given. 
 
 ###### 18 
-Chasten your son while there is hope, And do not set your heart [^e]on his destruction. 
+Chasten your son while there is hope, And do not set your heart on his destruction. 
 
 ###### 19 
 _A man of_ great wrath will suffer punishment; For if you rescue _him,_ you will have to do it again. 
@@ -73,13 +73,13 @@ Listen to counsel and receive instruction, That you may be wise in your latter d
 There are many plans in a man's heart, Nevertheless the Lord's counsel--that will stand. 
 
 ###### 22 
-What is desired in a man is [^f]kindness, And a poor man is better than a liar. 
+What is desired in a man is kindness, And a poor man is better than a liar. 
 
 ###### 23 
 The fear of the Lord _leads_ to life, And _he who has it_ will abide in satisfaction; He will not be visited with evil. 
 
 ###### 24 
-A lazy _man_ buries his hand in the [^g]bowl, And will not so much as bring it to his mouth again. 
+A lazy _man_ buries his hand in the bowl, And will not so much as bring it to his mouth again. 
 
 ###### 25 
 Strike a scoffer, and the simple will become wary; Rebuke one who has understanding, _and_ he will discern knowledge. 
@@ -91,7 +91,7 @@ He who mistreats _his_ father _and_ chases away _his_ mother _Is_ a son who caus
 Cease listening to instruction, my son, And you will stray from the words of knowledge. 
 
 ###### 28 
-A [^h]disreputable witness scorns justice, And the mouth of the wicked devours iniquity. 
+A disreputable witness scorns justice, And the mouth of the wicked devours iniquity. 
 
 ###### 29 
 Judgments are prepared for scoffers, And beatings for the backs of fools.

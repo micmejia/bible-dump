@@ -322,7 +322,7 @@ For the gaining of it is better than the gaining of silver, and the profit of it
 
 
 
-Skillful _and_ godly [^a]Wisdom is more precious than rubies; and nothing you can wish for is to be compared to her. 
+Skillful _and_ godly Wisdom is more precious than rubies; and nothing you can wish for is to be compared to her. 
 
 
 

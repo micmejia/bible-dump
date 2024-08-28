@@ -25,7 +25,7 @@ My lips will not speak wickedness, Nor my tongue utter deceit.
 Far be it from me That I should say you are right; Till I die I will not put away my integrity from me. 
 
 ###### 6 
-My righteousness I hold fast, and will not let it go; My heart shall not [^a]reproach _me_ as long as I live. 
+My righteousness I hold fast, and will not let it go; My heart shall not reproach _me_ as long as I live. 
 
 ###### 7 
 "May my enemy be like the wicked, And he who rises up against me like the unrighteous. 
@@ -40,7 +40,7 @@ Will God hear his cry When trouble comes upon him?
 Will he delight himself in the Almighty? Will he always call on God? 
 
 ###### 11 
-"I will teach you [^b]about the hand of God; What _is_ with the Almighty I will not conceal. 
+"I will teach you about the hand of God; What _is_ with the Almighty I will not conceal. 
 
 ###### 12 
 Surely all of you have seen _it;_ Why then do you behave with complete nonsense? 
@@ -52,7 +52,7 @@ Surely all of you have seen _it;_ Why then do you behave with complete nonsense?
 If his children are multiplied, _it is_ for the sword; And his offspring shall not be satisfied with bread. 
 
 ###### 15 
-Those who survive him shall be buried in death, And their[^c] widows shall not weep, 
+Those who survive him shall be buried in death, And their widows shall not weep, 
 
 ###### 16 
 Though he heaps up silver like dust, And piles up clothing like clay-- 
@@ -61,10 +61,10 @@ Though he heaps up silver like dust, And piles up clothing like clay--
 He may pile _it_ up, but the just will wear _it,_ And the innocent will divide the silver. 
 
 ###### 18 
-He builds his house like a [^d]moth, Like a [^e]booth _which_ a watchman makes. 
+He builds his house like a moth, Like a booth _which_ a watchman makes. 
 
 ###### 19 
-The rich man will lie down, [^f]But not be gathered _up;_ He opens his eyes, And he _is_ no more. 
+The rich man will lie down, But not be gathered _up;_ He opens his eyes, And he _is_ no more. 
 
 ###### 20 
 Terrors overtake him like a flood; A tempest steals him away in the night. 
@@ -73,7 +73,7 @@ Terrors overtake him like a flood; A tempest steals him away in the night.
 The east wind carries him away, and he is gone; It sweeps him out of his place. 
 
 ###### 22 
-It hurls against him and does not spare; He flees desperately from its [^g]power. 
+It hurls against him and does not spare; He flees desperately from its power. 
 
 ###### 23 
 _Men_ shall clap their hands at him, And shall hiss him out of his place.

@@ -40,7 +40,7 @@ The armed men went before the priests who blew the trumpets, and the rear guard 
 Now Joshua had commanded the people, saying, "You shall not shout or make any noise with your voice, nor shall a word proceed out of your mouth, until the day I say to you, 'Shout!' Then you shall shout." 
 
 ###### 11 
-So he had the ark of the Lord circle the city, going around _it_ once. Then they came into the camp and [^a]lodged in the camp. 
+So he had the ark of the Lord circle the city, going around _it_ once. Then they came into the camp and lodged in the camp. 
 
 ###### 12 
 And Joshua rose early in the morning, and the priests took up the ark of the Lord. 
@@ -64,7 +64,7 @@ Now the city shall be doomed by the Lord to destruction, it and all who _are_ in
 And you, by all means abstain from the accursed things, lest you become accursed when you take of the accursed things, and make the camp of Israel a curse, and trouble it. 
 
 ###### 19 
-But all the silver and gold, and vessels of bronze and iron, _are_ [^b]consecrated to the Lord; they [^c]shall come into the treasury of the Lord." 
+But all the silver and gold, and vessels of bronze and iron, _are_ consecrated to the Lord; they shall come into the treasury of the Lord." 
 
 ###### 20 
 So the people shouted when _the priests_ blew the trumpets. And it happened when the people heard the sound of the trumpet, and the people shouted with a great shout, that the wall fell down flat. Then the people went up into the city, every man straight before him, and they took the city. 
@@ -85,7 +85,7 @@ But they burned the city and all that _was_ in it with fire. Only the silver and
 And Joshua spared Rahab the harlot, her father's household, and all that she had. So she dwells in Israel to this day, because she hid the messengers whom Joshua sent to spy out Jericho. 
 
 ###### 26 
-Then Joshua [^d]charged _them_ at that time, saying, "Cursed _be_ the man before the Lord who rises up and builds this city Jericho; he shall lay its foundation with his firstborn, and with his youngest he shall set up its gates." 
+Then Joshua charged _them_ at that time, saying, "Cursed _be_ the man before the Lord who rises up and builds this city Jericho; he shall lay its foundation with his firstborn, and with his youngest he shall set up its gates." 
 
 ###### 27 
 So the Lord was with Joshua, and his fame spread throughout all the country.

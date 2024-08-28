@@ -49,7 +49,7 @@ In like manner, you married women, be submissive to your own husbands [subordina
 
 
 
-When they observe the pure _and_ modest way in which you conduct yourselves, together with your [^a]reverence [for your husband; you are to feel for him all that reverence includes: to respect, defer to, revere him--to honor, esteem, appreciate, prize, and, in the human sense, to adore him, that is, to admire, praise, be devoted to, deeply love, and enjoy your husband]. 
+When they observe the pure _and_ modest way in which you conduct yourselves, together with your reverence [for your husband; you are to feel for him all that reverence includes: to respect, defer to, revere him--to honor, esteem, appreciate, prize, and, in the human sense, to adore him, that is, to admire, praise, be devoted to, deeply love, and enjoy your husband]. 
 
 
 
@@ -70,7 +70,7 @@ When they observe the pure _and_ modest way in which you conduct yourselves, tog
 
 
 
-Let not yours be the [merely] external adorning with [elaborate] [^b]interweaving _and_ knotting of the hair, the wearing of jewelry, or changes of clothes; 
+Let not yours be the [merely] external adorning with [elaborate] interweaving _and_ knotting of the hair, the wearing of jewelry, or changes of clothes; 
 
 
 
@@ -154,7 +154,7 @@ It was thus that Sarah obeyed Abraham [following his guidance and acknowledging 
 
 
 
-In the same way you married men should live considerately with [your wives], with an [^c]intelligent recognition [of the marriage relation], honoring the woman as [physically] the weaker, but [realizing that you] are joint heirs of the grace (God's unmerited favor) of life, in order that your prayers may not be hindered _and_ cut off. [Otherwise you cannot pray effectively.] 
+In the same way you married men should live considerately with [your wives], with an intelligent recognition [of the marriage relation], honoring the woman as [physically] the weaker, but [realizing that you] are joint heirs of the grace (God's unmerited favor) of life, in order that your prayers may not be hindered _and_ cut off. [Otherwise you cannot pray effectively.] 
 
 
 
@@ -280,7 +280,7 @@ For the eyes of the Lord are upon the righteous (those who are upright and in ri
 
 
 
-Now who is there to hurt you if you are [^d]zealous followers of that which is good? 
+Now who is there to hurt you if you are zealous followers of that which is good? 
 
 
 
@@ -343,7 +343,7 @@ But in your hearts set Christ apart as holy [and acknowledge Him] as Lord. Alway
 
 
 
-[And see to it that] your conscience is entirely clear ([^e]unimpaired), so that, when you are falsely accused as evildoers, those who threaten you abusively _and_ revile your right behavior in Christ may come to be ashamed [of slandering your good lives]. 
+[And see to it that] your conscience is entirely clear (unimpaired), so that, when you are falsely accused as evildoers, those who threaten you abusively _and_ revile your right behavior in Christ may come to be ashamed [of slandering your good lives]. 
 
 
 
@@ -385,7 +385,7 @@ For [it is] better to suffer [unjustly] for doing right, if that should be God's
 
 
 
-For Christ [the Messiah Himself] died for sins once [^f]for all, the Righteous for the unrighteous (the Just for the unjust, the Innocent for the guilty), that He might bring us to God. In His human body He was put to death, but He was made alive in the spirit, 
+For Christ [the Messiah Himself] died for sins once for all, the Righteous for the unrighteous (the Just for the unjust, the Innocent for the guilty), that He might bring us to God. In His human body He was put to death, but He was made alive in the spirit, 
 
 
 

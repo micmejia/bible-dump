@@ -238,7 +238,7 @@ For the fortified city is solitary, a habitation deserted and forsaken like the 
 
 
 
-When its boughs are withered _and_ dry, they are broken off; the women come _and_ set them afire. For they are a people of no understanding _or_ discernment--[^a]_witless folk_; therefore He Who made them will not have compassion on them, and He Who formed them will show them no favor. 
+When its boughs are withered _and_ dry, they are broken off; the women come _and_ set them afire. For they are a people of no understanding _or_ discernment--_witless folk_; therefore He Who made them will not have compassion on them, and He Who formed them will show them no favor. 
 
 
 

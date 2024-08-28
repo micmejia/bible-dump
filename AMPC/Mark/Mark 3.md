@@ -28,7 +28,7 @@ next: ['Mark 4']
 
 
 
-Again Jesus went into a synagogue, and a man was there who had one withered hand [[^a]as the result of accident or disease]. 
+Again Jesus went into a synagogue, and a man was there who had one withered hand [as the result of accident or disease]. 
 
 
 
@@ -49,7 +49,7 @@ Again Jesus went into a synagogue, and a man was there who had one withered hand
 
 
 
-And [the Pharisees] kept watching Jesus [closely] to see whether He would cure him on the Sabbath, so that they might get a charge to bring against Him [[^b]formally]. 
+And [the Pharisees] kept watching Jesus [closely] to see whether He would cure him on the Sabbath, so that they might get a charge to bring against Him [formally]. 
 
 
 
@@ -238,7 +238,7 @@ For He had healed so many that all who had distressing bodily diseases kept fall
 
 
 
-And the spirits, the unclean ones, [^c]as often as they might see Him, fell down before Him and kept screaming out, You are the Son of God! 
+And the spirits, the unclean ones, as often as they might see Him, fell down before Him and kept screaming out, You are the Son of God! 
 
 
 
@@ -280,7 +280,7 @@ And He charged them strictly _and_ severely under penalty again _and_ again that
 
 
 
-And He went up on the hillside and called to Him [[^d]for Himself] those whom He wanted _and_ chose, and they came to Him. 
+And He went up on the hillside and called to Him [for Himself] those whom He wanted _and_ chose, and they came to Him. 
 
 
 
@@ -301,7 +301,7 @@ And He went up on the hillside and called to Him [[^d]for Himself] those whom He
 
 
 
-And He appointed twelve to [^e]continue to be with Him, and that He might send them out to preach [as apostles or special messengers] 
+And He appointed twelve to continue to be with Him, and that He might send them out to preach [as apostles or special messengers] 
 
 
 
@@ -448,7 +448,7 @@ Then He went to a house [probably Peter's], but a throng came together again, so
 
 
 
-And when those [^f]who belonged to Him ([^g]His kinsmen) heard it, they went out to take Him by force, for they kept saying, He is out of [^h]His mind (beside Himself, deranged)! 
+And when those who belonged to Him (His kinsmen) heard it, they went out to take Him by force, for they kept saying, He is out of His mind (beside Himself, deranged)! 
 
 
 
@@ -616,7 +616,7 @@ Truly _and_ solemnly I say to you, all sins will be forgiven the sons of men, an
 
 
 
-But whoever speaks abusively against _or_ maliciously misrepresents the Holy Spirit can never get forgiveness, but is guilty of _and_ is in the grasp of [^i]an everlasting trespass. 
+But whoever speaks abusively against _or_ maliciously misrepresents the Holy Spirit can never get forgiveness, but is guilty of _and_ is in the grasp of an everlasting trespass. 
 
 
 
@@ -637,7 +637,7 @@ But whoever speaks abusively against _or_ maliciously misrepresents the Holy Spi
 
 
 
-For they [^j]persisted in saying, [^k]He has an unclean spirit. 
+For they persisted in saying, He has an unclean spirit. 
 
 
 

@@ -16,7 +16,7 @@ Then Bildad the Shuhite answered and said:
 "Dominion and fear _belong_ to Him; He makes peace in His high places. 
 
 ###### 3 
-[^a]Is there any number to His armies? Upon whom does His light not rise? 
+Is there any number to His armies? Upon whom does His light not rise? 
 
 ###### 4 
 How then can man be righteous before God? Or how can he be pure _who is_ born of a woman? 

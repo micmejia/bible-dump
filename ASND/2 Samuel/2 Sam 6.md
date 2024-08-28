@@ -73,7 +73,7 @@ Muling tinipon ni David ang pinakamagagaling na sundalo ng Israel at umabot ito 
 
 
 
-Lumakad sila papuntang Baala na sakop ng Juda para kunin doon ang Kahon ng Dios,[^a] kung saan naroon ang presensya[^b] ng Panginoong Makapangyarihan. Nakaluklok ang Panginoon sa gitna ng dalawang kerubin na nasa ibabaw ng Kahon. ###### 3-4 Kinuha nina David ang Kahon ng Kasunduan ng Dios na nandoon sa bahay ni Abinadab sa burol at isinakay ito sa bagong kariton. Sina Uza at Ahio na anak ni Abinadab ang umaalalay sa kariton; si Ahio ang nasa unahan. 
+Lumakad sila papuntang Baala na sakop ng Juda para kunin doon ang Kahon ng Dios, kung saan naroon ang presensya ng Panginoong Makapangyarihan. Nakaluklok ang Panginoon sa gitna ng dalawang kerubin na nasa ibabaw ng Kahon. ###### 3-4 Kinuha nina David ang Kahon ng Kasunduan ng Dios na nandoon sa bahay ni Abinadab sa burol at isinakay ito sa bagong kariton. Sina Uza at Ahio na anak ni Abinadab ang umaalalay sa kariton; si Ahio ang nasa unahan. 
 
 
 
@@ -106,7 +106,7 @@ Lumakad sila papuntang Baala na sakop ng Juda para kunin doon ang Kahon ng Dios,
 
 
 
-Buong kagalakang nagdiwang si David at ang buong Israel sa presensya ng Panginoon nang buong kalakasan. Umaawit sila[^c] at tumutugtog ng mga alpa, lira, tamburin, kastaneta at pompyang. 
+Buong kagalakang nagdiwang si David at ang buong Israel sa presensya ng Panginoon nang buong kalakasan. Umaawit sila at tumutugtog ng mga alpa, lira, tamburin, kastaneta at pompyang. 
 
 
 
@@ -205,7 +205,7 @@ Nagalit nang matindi ang Panginoon kay Uza dahil sa ginawa niya. Kaya pinatay si
 
 
 
-Nagalit si David dahil biglang pinarusahan ng Panginoon si Uza. Ito ang dahilan kaya hanggang ngayon ang lugar na iyon ay tinatawag na Perez Uza.[^d] 
+Nagalit si David dahil biglang pinarusahan ng Panginoon si Uza. Ito ang dahilan kaya hanggang ngayon ang lugar na iyon ay tinatawag na Perez Uza. 
 
 
 
@@ -271,7 +271,7 @@ Nang araw na iyon, natakot si David sa Panginoon at sinabi niya, "Paano madadala
 
 
 
-Kaya nagdesisyon siyang huwag na lang dalhin sa lungsod niya[^e] ang Kahon ng Panginoon. Iniwan na lang niya ito sa bahay ni Obed Edom na taga-Gat. 
+Kaya nagdesisyon siyang huwag na lang dalhin sa lungsod niya ang Kahon ng Panginoon. Iniwan na lang niya ito sa bahay ni Obed Edom na taga-Gat. 
 
 
 
@@ -403,7 +403,7 @@ Nang makaanim na hakbang na ang mga nagbubuhat ng Kahon ng Panginoon, <i class="
 
 
 
-At sumayaw si David nang buong sigla sa presensya ng Panginoon na nakasuot ng espesyal na damit[^f] na <i class="trans-change">gawa sa telang_ linen. 
+At sumayaw si David nang buong sigla sa presensya ng Panginoon na nakasuot ng espesyal na damit na <i class="trans-change">gawa sa telang_ linen. 
 
 
 
@@ -502,7 +502,7 @@ Nang papasok na ng lungsod ang Kahon ng Panginoon, dumungaw sa bintana si Mical 
 
 
 
-Inilagay nila ang Kahon ng Panginoon sa loob ng toldang ipinatayo ni David para rito. Pagkatapos, nag-alay siya sa Panginoon ng mga handog na sinusunog at mga handog para sa mabuting relasyon.[^g] 
+Inilagay nila ang Kahon ng Panginoon sa loob ng toldang ipinatayo ni David para rito. Pagkatapos, nag-alay siya sa Panginoon ng mga handog na sinusunog at mga handog para sa mabuting relasyon. 
 
 
 
@@ -568,7 +568,7 @@ Pagkatapos niyang maghandog, binasbasan niya ang mga tao sa pangalan ng Panginoo
 
 
 
-Binigyan niya ng tinapay, karne[^h] at pasas ang bawat isang Israelita, lalaki man o babae. Pagkatapos, umuwi sila sa kani-kanilang mga bahay. 
+Binigyan niya ng tinapay, karne at pasas ang bawat isang Israelita, lalaki man o babae. Pagkatapos, umuwi sila sa kani-kanilang mga bahay. 
 
 
 
@@ -667,7 +667,7 @@ Sinabi ni David kay Mical, "Ginawa ko iyon sa presensya ng Panginoon na pumili s
 
 
 
-At kahit na nakakahiya pa ang gagawin ko <i class="trans-change">para sa pagdiriwang ng Panginoon,_ gagawin ko pa rin ito. Kahiya-hiya ako sa paningin mo[^i] pero marangal ako sa paningin ng mga babaeng alipin na sinasabi mo." 
+At kahit na nakakahiya pa ang gagawin ko <i class="trans-change">para sa pagdiriwang ng Panginoon,_ gagawin ko pa rin ito. Kahiya-hiya ako sa paningin mo pero marangal ako sa paningin ng mga babaeng alipin na sinasabi mo." 
 
 
 

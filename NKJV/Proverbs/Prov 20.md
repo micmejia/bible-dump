@@ -13,7 +13,7 @@ next: ['Prov 21']
 Wine _is_ a mocker, Strong drink _is_ a brawler, And whoever is led astray by it is not wise. 
 
 ###### 2 
-The [^a]wrath of a king _is_ like the roaring of a lion; _Whoever_ provokes him to anger sins _against_ his own life. 
+The wrath of a king _is_ like the roaring of a lion; _Whoever_ provokes him to anger sins _against_ his own life. 
 
 ###### 3 
 _It is_ honorable for a man to stop striving, Since any fool can start a quarrel. 
@@ -25,7 +25,7 @@ The lazy _man_ will not plow because of winter; He will beg during harvest and _
 Counsel in the heart of man _is like_ deep water, But a man of understanding will draw it out. 
 
 ###### 6 
-Most men will proclaim each his own [^b]goodness, But who can find a faithful man? 
+Most men will proclaim each his own goodness, But who can find a faithful man? 
 
 ###### 7 
 The righteous _man_ walks in his integrity; His children _are_ blessed after him. 
@@ -49,7 +49,7 @@ The hearing ear and the seeing eye, The Lord has made them both.
 Do not love sleep, lest you come to poverty; Open your eyes, _and_ you will be satisfied with bread. 
 
 ###### 14 
-"_It is_ [^c]good for nothing," cries the buyer; But when he has gone his way, then he boasts. 
+"_It is_ good for nothing," cries the buyer; But when he has gone his way, then he boasts. 
 
 ###### 15 
 There is gold and a multitude of rubies, But the lips of knowledge _are_ a precious jewel. 
@@ -73,7 +73,7 @@ Whoever curses his father or his mother, His lamp will be put out in deep darkne
 An inheritance gained hastily at the beginning Will not be blessed at the end. 
 
 ###### 22 
-Do not say, "I will [^d]recompense evil"; Wait for the Lord, and He will save you. 
+Do not say, "I will recompense evil"; Wait for the Lord, and He will save you. 
 
 ###### 23 
 Diverse weights _are_ an abomination to the Lord, And dishonest scales _are_ not good. 
@@ -88,13 +88,13 @@ _It is_ a snare for a man to devote rashly _something as_ holy, And afterward to
 A wise king sifts out the wicked, And brings the threshing wheel over them. 
 
 ###### 27 
-The spirit of a man _is_ the lamp of the Lord, Searching all the [^e]inner depths of his heart. 
+The spirit of a man _is_ the lamp of the Lord, Searching all the inner depths of his heart. 
 
 ###### 28 
-Mercy and truth preserve the king, And by [^f]lovingkindness he upholds his throne. 
+Mercy and truth preserve the king, And by lovingkindness he upholds his throne. 
 
 ###### 29 
 The glory of young men _is_ their strength, And the splendor of old men _is_ their gray head. 
 
 ###### 30 
-Blows that hurt cleanse away evil, As _do_ stripes the [^g]inner depths of the heart.
+Blows that hurt cleanse away evil, As _do_ stripes the inner depths of the heart.

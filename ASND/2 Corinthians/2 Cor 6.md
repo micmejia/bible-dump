@@ -568,7 +568,7 @@ Hindi maaaring magsama ang mga dios-diosan at ang Dios sa iisang templo. At tayo
 
 
 
-Kaya lumayo kayo at humiwalay sa kanila.[^a] Layuan ninyo ang itinuring na marumi[^b] at tatanggapin ko kayo. 
+Kaya lumayo kayo at humiwalay sa kanila. Layuan ninyo ang itinuring na marumi at tatanggapin ko kayo. 
 
 
 

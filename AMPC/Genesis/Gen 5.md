@@ -658,7 +658,7 @@ Lamech lived after the birth of Noah 595 years and had other sons and daughters.
 
 
 
-So all the days of [^a]Lamech were 777 years, and he died. 
+So all the days of Lamech were 777 years, and he died. 
 
 
 

@@ -28,7 +28,7 @@ On the fourteenth _day_ of the first month at twilight _is_ the Lord's Passover.
 And on the fifteenth day of the same month _is_ the Feast of Unleavened Bread to the Lord; seven days you must eat unleavened bread. 
 
 ###### 7 
-On the first day you shall have a holy convocation; you shall do no [^a]customary work on it. 
+On the first day you shall have a holy convocation; you shall do no customary work on it. 
 
 ###### 8 
 But you shall offer an offering made by fire to the Lord for seven days. The seventh day _shall be_ a holy convocation; you shall do no customary work _on it_.' " ## The Feast of Firstfruits 
@@ -46,7 +46,7 @@ He shall wave the sheaf before the Lord, to be accepted on your behalf; on the d
 And you shall offer on that day, when you wave the sheaf, a male lamb of the first year, without blemish, as a burnt offering to the Lord. 
 
 ###### 13 
-Its grain offering _shall be_ two-tenths _of an ephah_ of fine flour mixed with oil, an offering made by fire to the Lord, for a [^b]sweet aroma; and its drink offering _shall be_ of wine, one-fourth of a hin. 
+Its grain offering _shall be_ two-tenths _of an ephah_ of fine flour mixed with oil, an offering made by fire to the Lord, for a sweet aroma; and its drink offering _shall be_ of wine, one-fourth of a hin. 
 
 ###### 14 
 You shall eat neither bread nor parched grain nor fresh grain until the same day that you have brought an offering to your God; _it shall be_ a statute forever throughout your generations in all your dwellings. ## The Feast of Weeks 
@@ -103,7 +103,7 @@ And any person who does any work on that same day, that person I will destroy fr
 You shall do no manner of work; _it shall be_ a statute forever throughout your generations in all your dwellings. 
 
 ###### 32 
-It _shall be_ to you a sabbath of _solemn_ rest, and you shall [^c]afflict your souls; on the ninth _day_ of the month at evening, from evening to evening, you shall [^d]celebrate your sabbath." ## The Feast of Tabernacles 
+It _shall be_ to you a sabbath of _solemn_ rest, and you shall afflict your souls; on the ninth _day_ of the month at evening, from evening to evening, you shall celebrate your sabbath." ## The Feast of Tabernacles 
 
 ###### 33 
 Then the Lord spoke to Moses, saying, 
@@ -115,7 +115,7 @@ Then the Lord spoke to Moses, saying,
 On the first day _there shall be_ a holy convocation. You shall do no customary work _on it_. 
 
 ###### 36 
-_For_ seven days you shall offer an offering made by fire to the Lord. On the eighth day you shall have a holy convocation, and you shall offer an offering made by fire to the Lord. It _is_ a sacred[^e] assembly, _and_ you shall do no customary work _on it_. 
+_For_ seven days you shall offer an offering made by fire to the Lord. On the eighth day you shall have a holy convocation, and you shall offer an offering made by fire to the Lord. It _is_ a sacred assembly, _and_ you shall do no customary work _on it_. 
 
 ###### 37 
 'These _are_ the feasts of the Lord which you shall proclaim _to be_ holy convocations, to offer an offering made by fire to the Lord, a burnt offering and a grain offering, a sacrifice and drink offerings, everything on its day-- 
@@ -127,13 +127,13 @@ besides the Sabbaths of the Lord, besides your gifts, besides all your vows, and
 'Also on the fifteenth day of the seventh month, when you have gathered in the fruit of the land, you shall keep the feast of the Lord _for_ seven days; on the first day _there shall be_ a sabbath-_rest_, and on the eighth day a sabbath-_rest_. 
 
 ###### 40 
-And you shall take for yourselves on the first day the [^f]fruit of beautiful trees, branches of palm trees, the boughs of leafy trees, and willows of the brook; and you shall rejoice before the Lord your God for seven days. 
+And you shall take for yourselves on the first day the fruit of beautiful trees, branches of palm trees, the boughs of leafy trees, and willows of the brook; and you shall rejoice before the Lord your God for seven days. 
 
 ###### 41 
 You shall keep it as a feast to the Lord for seven days in the year. _It shall be_ a statute forever in your generations. You shall celebrate it in the seventh month. 
 
 ###### 42 
-You shall dwell in [^g]booths for seven days. All who are native Israelites shall dwell in booths, 
+You shall dwell in booths for seven days. All who are native Israelites shall dwell in booths, 
 
 ###### 43 
 that your generations may know that I made the children of Israel dwell in booths when I brought them out of the land of Egypt: I _am_ the Lord your God.' " 

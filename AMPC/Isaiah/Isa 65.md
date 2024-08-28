@@ -364,7 +364,7 @@ So [it shall be] that he who invokes a blessing on himself in the land shall do 
 
 
 
-For behold, I create [^a]new heavens and a new earth. And the former things shall not be remembered or come into mind. 
+For behold, I create new heavens and a new earth. And the former things shall not be remembered or come into mind. 
 
 
 

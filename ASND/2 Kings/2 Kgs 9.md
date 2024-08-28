@@ -898,7 +898,7 @@ Sinabi ni Jehu kay Bidkar na kanyang opisyal, "Kunin mo ang bangkay ni Joram at 
 
 
 
-Nang makita ni Haring Ahazia ng Juda ang nangyari, tumakas siya papunta sa Bet Haggan. Hinabol siya ni Jehu na sumisigaw, "Panain din siya!" <i class="trans-change">Kaya pinana nila siya_[^a] sa kanyang karwahe sa daan papunta sa Gur, malapit sa Ibleam. Nakatakas siya <i class="trans-change">na sugatan_ hanggang sa Megido, pero namatay siya roon. 
+Nang makita ni Haring Ahazia ng Juda ang nangyari, tumakas siya papunta sa Bet Haggan. Hinabol siya ni Jehu na sumisigaw, "Panain din siya!" <i class="trans-change">Kaya pinana nila siya_ sa kanyang karwahe sa daan papunta sa Gur, malapit sa Ibleam. Nakatakas siya <i class="trans-change">na sugatan_ hanggang sa Megido, pero namatay siya roon. 
 
 
 

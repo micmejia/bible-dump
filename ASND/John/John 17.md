@@ -502,7 +502,7 @@ Itinuro ko na sa kanila ang salita mo. Napopoot sa kanila ang mga taong makamund
 
 
 
-Hindi ko idinadalangin na kunin mo na sila sa mundo, kundi ingatan mo sila laban kay Satanas.[^a] 
+Hindi ko idinadalangin na kunin mo na sila sa mundo, kundi ingatan mo sila laban kay Satanas. 
 
 
 
@@ -832,7 +832,7 @@ Nasa kanila ako at ikaw ay nasa akin, para silaʼy lubos na maging isa. Sa ganoo
 
 
 
-Amang Makatarungan,[^b] kahit hindi ka nakikilala ng <i class="trans-change">mga taong_ makamundo, nakikilala naman kita, at alam ng mga mananampalataya na ikaw ang nagsugo sa akin. 
+Amang Makatarungan, kahit hindi ka nakikilala ng <i class="trans-change">mga taong_ makamundo, nakikilala naman kita, at alam ng mga mananampalataya na ikaw ang nagsugo sa akin. 
 
 
 

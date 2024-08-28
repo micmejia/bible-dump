@@ -70,7 +70,7 @@ If you will not hear and if you will not lay it to heart to give glory to My nam
 
 
 
-Behold, I will rebuke your seed [grain--which will prevent due harvest], and I will spread the [^a]dung from the festival offerings upon your faces, and you shall be taken away with it. 
+Behold, I will rebuke your seed [grain--which will prevent due harvest], and I will spread the dung from the festival offerings upon your faces, and you shall be taken away with it. 
 
 
 

@@ -22,7 +22,7 @@ And to the children of Israel you shall speak, saying, 'Take a kid of the goats 
 also a bull and a ram as peace offerings, to sacrifice before the Lord, and a grain offering mixed with oil; for today the Lord will appear to you.' " 
 
 ###### 5 
-So they brought what Moses commanded before the tabernacle of meeting. And all the congregation drew near and stood [^a]before the Lord. 
+So they brought what Moses commanded before the tabernacle of meeting. And all the congregation drew near and stood before the Lord. 
 
 ###### 6 
 Then Moses said, "This _is_ the thing which the Lord commanded you to do, and the glory of the Lord will appear to you." 
@@ -55,7 +55,7 @@ And he washed the entrails and the legs, and burned _them_ with the burnt offeri
 Then he brought the people's offering, and took the goat, which _was_ the sin offering for the people, and killed it and offered it for sin, like the first one. 
 
 ###### 16 
-And he brought the burnt offering and offered it according to the [^b]prescribed manner. 
+And he brought the burnt offering and offered it according to the prescribed manner. 
 
 ###### 17 
 Then he brought the grain offering, took a handful of it, and burned _it_ on the altar, besides the burnt sacrifice of the morning. 

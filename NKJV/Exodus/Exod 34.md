@@ -34,10 +34,10 @@ keeping mercy for thousands, forgiving iniquity and transgression and sin, by no
 So Moses made haste and bowed his head toward the earth, and worshiped. 
 
 ###### 9 
-Then he said, "If now I have found grace in Your sight, O Lord, let my Lord, I pray, go among us, even though we _are_ a stiff-necked[^a] people; and pardon our iniquity and our sin, and take us as Your inheritance." ## The Covenant Renewed 
+Then he said, "If now I have found grace in Your sight, O Lord, let my Lord, I pray, go among us, even though we _are_ a stiff-necked people; and pardon our iniquity and our sin, and take us as Your inheritance." ## The Covenant Renewed 
 
 ###### 10 
-And He said: "Behold, I make a covenant. Before all your people I will do [^b]marvels such as have not been done in all the earth, nor in any nation; and all the people among whom you _are_ shall see the work of the Lord. For it _is_ an awesome thing that I will do with you. 
+And He said: "Behold, I make a covenant. Before all your people I will do marvels such as have not been done in all the earth, nor in any nation; and all the people among whom you _are_ shall see the work of the Lord. For it _is_ an awesome thing that I will do with you. 
 
 ###### 11 
 Observe what I command you this day. Behold, I am driving out from before you the Amorite and the Canaanite and the Hittite and the Perizzite and the Hivite and the Jebusite. 
@@ -64,7 +64,7 @@ and you take of his daughters for your sons, and his daughters play the harlot w
 "The Feast of Unleavened Bread you shall keep. Seven days you shall eat unleavened bread, as I commanded you, in the appointed time of the month of Abib; for in the month of Abib you came out from Egypt. 
 
 ###### 19 
-"All [^c]that open the womb _are_ Mine, and every male firstborn among your livestock, _whether_ ox or sheep. 
+"All that open the womb _are_ Mine, and every male firstborn among your livestock, _whether_ ox or sheep. 
 
 ###### 20 
 But the firstborn of a donkey you shall redeem with a lamb. And if you will not redeem _him,_ then you shall break his neck. All the firstborn of your sons you shall redeem. "And none shall appear before Me empty-handed. 
@@ -91,7 +91,7 @@ For I will cast out the nations before you and enlarge your borders; neither wil
 Then the Lord said to Moses, "Write these words, for according to the tenor of these words I have made a covenant with you and with Israel." 
 
 ###### 28 
-So he was there with the Lord forty days and forty nights; he neither ate bread nor drank water. And He wrote on the tablets the words of the covenant, the [^d]Ten Commandments. ## The Shining Face of Moses 
+So he was there with the Lord forty days and forty nights; he neither ate bread nor drank water. And He wrote on the tablets the words of the covenant, the Ten Commandments. ## The Shining Face of Moses 
 
 ###### 29 
 Now it was so, when Moses came down from Mount Sinai (and the two tablets of the Testimony _were_ in Moses' hand when he came down from the mountain), that Moses did not know that the skin of his face shone while he talked with Him. 

@@ -301,7 +301,7 @@ And if any woman has an unbelieving husband and he consents to live with her, sh
 
 
 
-For the unbelieving husband is set apart (separated, withdrawn from heathen contamination, and affiliated with the Christian people) by union with his consecrated (set-apart) wife, and the unbelieving wife is set apart _and_ separated through union with her consecrated husband. Otherwise your children would be unclean (unblessed heathen, [^a]outside the Christian covenant), but as it is they are [^b]prepared for God [pure and clean]. 
+For the unbelieving husband is set apart (separated, withdrawn from heathen contamination, and affiliated with the Christian people) by union with his consecrated (set-apart) wife, and the unbelieving wife is set apart _and_ separated through union with her consecrated husband. Otherwise your children would be unclean (unblessed heathen, outside the Christian covenant), but as it is they are prepared for God [pure and clean]. 
 
 
 
@@ -532,7 +532,7 @@ So, brethren, in whatever station _or_ state _or_ condition of life each one was
 
 
 
-Now concerning the virgins (the marriageable [^c]maidens) I have no command of the Lord, but I give my opinion _and_ advice as one who by the Lord's mercy is rendered trustworthy _and_ faithful. 
+Now concerning the virgins (the marriageable maidens) I have no command of the Lord, but I give my opinion _and_ advice as one who by the Lord's mercy is rendered trustworthy _and_ faithful. 
 
 
 
@@ -616,7 +616,7 @@ But if you do marry, you do not sin [in doing so], and if a virgin marries, she 
 
 
 
-I mean, brethren, the appointed time has been [^d]winding down _and_ it has grown very short. From now on, let even those who have wives be as if they had none, 
+I mean, brethren, the appointed time has been winding down _and_ it has grown very short. From now on, let even those who have wives be as if they had none, 
 
 
 
@@ -658,7 +658,7 @@ And those who weep _and_ mourn as though they were not weeping _and_ mourning, a
 
 
 
-And those who deal with this world [[^e]overusing the enjoyments of this life] as though they were not absorbed by it _and_ as if they had no dealings with it. For the outward form of this world (the present world order) is passing away. 
+And those who deal with this world [overusing the enjoyments of this life] as though they were not absorbed by it _and_ as if they had no dealings with it. For the outward form of this world (the present world order) is passing away. 
 
 
 
@@ -847,4 +847,4 @@ A wife is bound to her husband by law as long as he lives. If the husband dies, 
 
 
 
-But in my opinion [a widow] is happier (more blessed and [^f]to be envied) if she does not remarry. And also I think I have the Spirit of God.
+But in my opinion [a widow] is happier (more blessed and to be envied) if she does not remarry. And also I think I have the Spirit of God.

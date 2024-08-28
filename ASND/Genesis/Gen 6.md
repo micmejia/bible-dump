@@ -73,7 +73,7 @@ Hindi nagtagal, dumami ang mga tao sa mundo, at marami ang kabataan nilang babae
 
 
 
-Nakita ng mga anak ng Dios[^a] na ang mga babae ay magaganda. Kaya pumili sila ng magiging asawa nila sa sinumang maibigan nila. 
+Nakita ng mga anak ng Dios na ang mga babae ay magaganda. Kaya pumili sila ng magiging asawa nila sa sinumang maibigan nila. 
 
 
 
@@ -469,7 +469,7 @@ Kaya sinabi niya kay Noe, "Lilipulin ko ang lahat ng tao. Dahil sa kanila, lumag
 
 
 
-Kaya ikaw Noe, gumawa ka ng barko mula sa matibay na kahoy, at gawan mo ito ng mga kwarto. Pagkatapos, pahiran mo ng alkitran ang loob at labas ng barko.[^b] 
+Kaya ikaw Noe, gumawa ka ng barko mula sa matibay na kahoy, at gawan mo ito ng mga kwarto. Pagkatapos, pahiran mo ng alkitran ang loob at labas ng barko. 
 
 
 

@@ -601,7 +601,7 @@ Paliko agad ito pahilaga papuntang En Shemesh, hanggang sa Gelilot na nakaharap 
 
 
 
-at dumaraan sa hilagang libis na nakaharap sa Lambak ng Jordan[^a] pababa sa Lambak mismo. 
+at dumaraan sa hilagang libis na nakaharap sa Lambak ng Jordan pababa sa Lambak mismo. 
 
 
 
@@ -931,4 +931,4 @@ Rekem, Irpeel, Tarala,
 
 
 
-Zela, Haelef, Jebus (na siyang Jerusalem), Gibea at Kiriat Jearim[^b] – 14 na bayan, kasama ang mga baryo nito. Ito ang natanggap ng lahi ni Benjamin na hinati-hati ayon sa bawat sambahayan.
+Zela, Haelef, Jebus (na siyang Jerusalem), Gibea at Kiriat Jearim – 14 na bayan, kasama ang mga baryo nito. Ito ang natanggap ng lahi ni Benjamin na hinati-hati ayon sa bawat sambahayan.

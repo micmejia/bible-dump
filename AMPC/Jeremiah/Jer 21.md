@@ -49,7 +49,7 @@ The word which came to Jeremiah from the Lord when King Zedekiah sent to him Pas
 
 
 
-Inquire, I pray you, of the Lord for us, for [^a] Nebuchadrezzar king of Babylon is making war against us. Perhaps the Lord will deal with us according to all His wonderful works, forcing him to withdraw from us. 
+Inquire, I pray you, of the Lord for us, for  Nebuchadrezzar king of Babylon is making war against us. Perhaps the Lord will deal with us according to all His wonderful works, forcing him to withdraw from us. 
 
 
 

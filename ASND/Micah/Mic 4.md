@@ -205,7 +205,7 @@ Kahit na sumunod ang mga tao sa mga dios-diosan nila, kami ay patuloy pa ring su
 
 
 
-Ang Zion, na katulad ng mataas na bantayang tore ng mga hayop,[^a] ay magiging makapangyarihang muli. Ang <i class="trans-change">bayan na ito, na tinatawag ding_ Jerusalem ay mangungunang muli sa lahat ng bayan ng Israel katulad noon. <sup class="versenum">9-10</sup>"Mga mamamayan ng Zion, bakit kayo dumaraing na parang babaeng manganganak na? Nandiyan pa naman ang inyong mga hari, at buhay pa ang kanyang mga tagapayo. Sige, mamilipit kayo sa sakit na parang babaeng manganganak na, dahil hindi magtatagal ay lilisanin nʼyo ang inyong lungsod at maninirahan kayo sa kaparangan, at pagkatapos ay dadalhin kayo sa Babilonia. Pero ililigtas ko kayo doon mula sa inyong mga kalaban. 
+Ang Zion, na katulad ng mataas na bantayang tore ng mga hayop, ay magiging makapangyarihang muli. Ang <i class="trans-change">bayan na ito, na tinatawag ding_ Jerusalem ay mangungunang muli sa lahat ng bayan ng Israel katulad noon. <sup class="versenum">9-10</sup>"Mga mamamayan ng Zion, bakit kayo dumaraing na parang babaeng manganganak na? Nandiyan pa naman ang inyong mga hari, at buhay pa ang kanyang mga tagapayo. Sige, mamilipit kayo sa sakit na parang babaeng manganganak na, dahil hindi magtatagal ay lilisanin nʼyo ang inyong lungsod at maninirahan kayo sa kaparangan, at pagkatapos ay dadalhin kayo sa Babilonia. Pero ililigtas ko kayo doon mula sa inyong mga kalaban. 
 
 
 
@@ -238,7 +238,7 @@ Ang Zion, na katulad ng mataas na bantayang tore ng mga hayop,[^a] ay magiging m
 
 
 
-Maraming bansa ang nagkaisa upang makipaglaban sa inyo. Sinasabi nila, 'Hiyain[^b] natin ang Zion! At pagkatapos, panoorin natin ang nakakahiyang kalagayan nito.' 
+Maraming bansa ang nagkaisa upang makipaglaban sa inyo. Sinasabi nila, 'Hiyain natin ang Zion! At pagkatapos, panoorin natin ang nakakahiyang kalagayan nito.' 
 
 
 

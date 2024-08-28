@@ -16,7 +16,7 @@ So then Pilate took Jesus and scourged _Him._
 And the soldiers twisted a crown of thorns and put _it_ on His head, and they put on Him a purple robe. 
 
 ###### 3 
-[^a]Then they said, "Hail, King of the Jews!" And they struck Him with their hands. 
+Then they said, "Hail, King of the Jews!" And they struck Him with their hands. 
 
 ###### 4 
 Pilate then went out again, and said to them, "Behold, I am bringing Him out to you, that you may know that I find no fault in Him." ## Pilate's Decision 
@@ -28,7 +28,7 @@ Then Jesus came out, wearing the crown of thorns and the purple robe. And _Pilat
 Therefore, when the chief priests and officers saw Him, they cried out, saying, "Crucify _Him,_ crucify _Him!_" Pilate said to them, "You take Him and crucify _Him,_ for I find no fault in Him." 
 
 ###### 7 
-The Jews answered him, "We have a law, and according to [^b]our law He ought to die, because He made Himself the Son of God." 
+The Jews answered him, "We have a law, and according to our law He ought to die, because He made Himself the Son of God." 
 
 ###### 8 
 Therefore, when Pilate heard that saying, he was the more afraid, 
@@ -37,7 +37,7 @@ Therefore, when Pilate heard that saying, he was the more afraid,
 and went again into the Praetorium, and said to Jesus, "Where are You from?" But Jesus gave him no answer. 
 
 ###### 10 
-Then Pilate said to Him, "Are You not speaking to me? Do You not know that I have [^c]power to crucify You, and power to release You?" 
+Then Pilate said to Him, "Are You not speaking to me? Do You not know that I have power to crucify You, and power to release You?" 
 
 ###### 11 
 Jesus answered, "You could have no power at all against Me unless it had been given you from above. Therefore the one who delivered Me to you has the greater sin." 
@@ -55,7 +55,7 @@ Now it was the Preparation Day of the Passover, and about the sixth hour. And he
 But they cried out, "Away with _Him,_ away with _Him!_ Crucify Him!" Pilate said to them, "Shall I crucify your King?" The chief priests answered, "We have no king but Caesar!" 
 
 ###### 16 
-Then he delivered Him to them to be crucified. Then they took Jesus [^d]and led _Him_ away. ## The King on a Cross 
+Then he delivered Him to them to be crucified. Then they took Jesus and led _Him_ away. ## The King on a Cross 
 
 ###### 17 
 And He, bearing His cross, went out to a place called _the Place_ of a Skull, which is called in Hebrew, Golgotha, 
@@ -91,7 +91,7 @@ When Jesus therefore saw His mother, and the disciple whom He loved standing by,
 Then He said to the disciple, "Behold your mother!" And from that hour that disciple took her to his own _home._ ## It Is Finished 
 
 ###### 28 
-After this, Jesus, [^e]knowing that all things were now accomplished, that the Scripture might be fulfilled, said, "I thirst!" 
+After this, Jesus, knowing that all things were now accomplished, that the Scripture might be fulfilled, said, "I thirst!" 
 
 ###### 29 
 Now a vessel full of sour wine was sitting there; and they filled a sponge with sour wine, put _it_ on hyssop, and put _it_ to His mouth. 

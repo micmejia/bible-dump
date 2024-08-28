@@ -52,10 +52,10 @@ The word of the Lord came again to me, saying:
 Even _if_ these three men, Noah, Daniel, and Job, were in it, they would deliver _only_ themselves by their righteousness," says the Lord God. 
 
 ###### 15 
-"If I cause wild beasts to pass through the land, and they [^a]empty it, and make it so desolate that no man may pass through because of the beasts, 
+"If I cause wild beasts to pass through the land, and they empty it, and make it so desolate that no man may pass through because of the beasts, 
 
 ###### 16 
-_even_ _though_ these three men _were_ [^b]in it, _as_ I live," says the Lord God, "they would deliver neither sons nor daughters; only they would be delivered, and the land would be desolate. 
+_even_ _though_ these three men _were_ in it, _as_ I live," says the Lord God, "they would deliver neither sons nor daughters; only they would be delivered, and the land would be desolate. 
 
 ###### 17 
 "Or _if_ I bring a sword on that land, and say, 'Sword, go through the land,' and I cut off man and beast from it, 
@@ -70,7 +70,7 @@ even _though_ these three men _were_ in it, _as_ I live," says the Lord God, "th
 even _though_ Noah, Daniel, and Job _were_ in it, _as_ I live," says the Lord God, "they would deliver neither son nor daughter; they would deliver _only_ themselves by their righteousness." 
 
 ###### 21 
-For thus says the Lord God: "How much more it shall be when I send My four [^c]severe judgments on Jerusalem--the sword and famine and wild beasts and pestilence--to cut off man and beast from it? 
+For thus says the Lord God: "How much more it shall be when I send My four severe judgments on Jerusalem--the sword and famine and wild beasts and pestilence--to cut off man and beast from it? 
 
 ###### 22 
 Yet behold, there shall be left in it a remnant who will be brought out, _both_ sons and daughters; surely they will come out to you, and you will see their ways and their doings. Then you will be comforted concerning the disaster that I have brought upon Jerusalem, all that I have brought upon it. 

@@ -634,7 +634,7 @@ Napapatigil ng palabunutan ang mga alitan, at pinagkakasundo ang mahigpit na mag
 
 
 
-Mas madali pang sakupin ang isang napapaderang bayan kaysa sa makipagbati sa kapatid[^a] na nasaktan. Kung paanong mahirap wasakin ang mga kandado ng tarangkahan ng palasyo, mahirap din pigilin ang alitan ng dalawang tao. 
+Mas madali pang sakupin ang isang napapaderang bayan kaysa sa makipagbati sa kapatid na nasaktan. Kung paanong mahirap wasakin ang mga kandado ng tarangkahan ng palasyo, mahirap din pigilin ang alitan ng dalawang tao. 
 
 
 

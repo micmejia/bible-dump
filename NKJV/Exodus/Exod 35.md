@@ -64,19 +64,19 @@ the hangings of the court, its pillars, their sockets, and the screen for the ga
 the pegs of the tabernacle, the pegs of the court, and their cords; 
 
 ###### 19 
-the [^a]garments of ministry, for ministering in the holy _place_--the holy garments for Aaron the priest and the garments of his sons, to minister as priests.' " ## The Tabernacle Offerings Presented 
+the garments of ministry, for ministering in the holy _place_--the holy garments for Aaron the priest and the garments of his sons, to minister as priests.' " ## The Tabernacle Offerings Presented 
 
 ###### 20 
 And all the congregation of the children of Israel departed from the presence of Moses. 
 
 ###### 21 
-Then everyone came whose heart [^b]was stirred, and everyone whose spirit was willing, _and_ they brought the Lord's offering for the work of the tabernacle of meeting, for all its service, and for the holy garments. 
+Then everyone came whose heart was stirred, and everyone whose spirit was willing, _and_ they brought the Lord's offering for the work of the tabernacle of meeting, for all its service, and for the holy garments. 
 
 ###### 22 
 They came, both men and women, as many as had a willing heart, _and_ brought earrings and nose rings, rings and necklaces, all jewelry of gold, that is, every man who _made_ an offering of gold to the Lord. 
 
 ###### 23 
-And every man, with whom was found blue, purple, and scarlet _thread,_ fine linen, and goats' _hair,_ red skins of rams, and [^c]badger skins, brought _them._ 
+And every man, with whom was found blue, purple, and scarlet _thread,_ fine linen, and goats' _hair,_ red skins of rams, and badger skins, brought _them._ 
 
 ###### 24 
 Everyone who offered an offering of silver or bronze brought the Lord's offering. And everyone with whom was found acacia wood for any work of the service, brought _it._ 
@@ -85,7 +85,7 @@ Everyone who offered an offering of silver or bronze brought the Lord's offering
 All the women _who were_ gifted artisans spun yarn with their hands, and brought what they had spun, of blue, purple, _and_ scarlet, and fine linen. 
 
 ###### 26 
-And all the women whose hearts [^d]stirred with wisdom spun yarn of goats' _hair._ 
+And all the women whose hearts stirred with wisdom spun yarn of goats' _hair._ 
 
 ###### 27 
 The rulers brought onyx stones, and the stones to be set in the ephod and in the breastplate, 

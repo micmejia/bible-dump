@@ -9,7 +9,7 @@ up: ['2 Timothy']
 
 
 ###### 1 
-I charge _you_ [^a]therefore before God and the Lord Jesus Christ, who will judge the living and the dead [^b]at His appearing and His kingdom: 
+I charge _you_ therefore before God and the Lord Jesus Christ, who will judge the living and the dead at His appearing and His kingdom: 
 
 ###### 2 
 Preach the word! Be ready in season _and_ out of season. Convince, rebuke, exhort, with all longsuffering and teaching. 
@@ -72,4 +72,4 @@ Erastus stayed in Corinth, but Trophimus I have left in Miletus sick.
 Do your utmost to come before winter. Eubulus greets you, as well as Pudens, Linus, Claudia, and all the brethren. ## Farewell 
 
 ###### 22 
-The Lord [^c]Jesus Christ be with your spirit. Grace be with you. Amen.
+The Lord Jesus Christ be with your spirit. Grace be with you. Amen.

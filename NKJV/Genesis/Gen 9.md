@@ -34,7 +34,7 @@ And as for you, be fruitful and multiply; Bring forth abundantly in the earth An
 Then God spoke to Noah and to his sons with him, saying: 
 
 ###### 9 
-"And as for Me, behold, I establish My covenant with you and with your [^a]descendants after you, 
+"And as for Me, behold, I establish My covenant with you and with your descendants after you, 
 
 ###### 10 
 and with every living creature that _is_ with you: the birds, the cattle, and every beast of the earth with you, of all that go out of the ark, every beast of the earth. 
@@ -76,7 +76,7 @@ Then he drank of the wine and was drunk, and became uncovered in his tent.
 And Ham, the father of Canaan, saw the nakedness of his father, and told his two brothers outside. 
 
 ###### 23 
-But Shem and Japheth took a garment, laid _it_ on both their shoulders, and went backward and covered the nakedness of their father. Their faces _were_ [^b]turned away, and they did not see their father's nakedness. 
+But Shem and Japheth took a garment, laid _it_ on both their shoulders, and went backward and covered the nakedness of their father. Their faces _were_ turned away, and they did not see their father's nakedness. 
 
 ###### 24 
 So Noah awoke from his wine, and knew what his younger son had done to him. 

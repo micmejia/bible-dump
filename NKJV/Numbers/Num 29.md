@@ -112,7 +112,7 @@ and their grain offering and their drink offerings for the bulls, for the rams, 
 also one goat _as_ a sin offering, besides the regular burnt offering, its grain offering, and its drink offering. 
 
 ###### 35 
-'On the eighth day you shall have a sacred[^a] assembly. You shall do no customary work. 
+'On the eighth day you shall have a sacred assembly. You shall do no customary work. 
 
 ###### 36 
 You shall present a burnt offering, an offering made by fire as a sweet aroma to the Lord: one bull, one ram, seven lambs in their first year without blemish, 

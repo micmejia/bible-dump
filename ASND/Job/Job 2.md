@@ -40,7 +40,7 @@ next: ['Job 3']
 
 
 
-Isang araw, muling nagtipon ang mga anghel[^a] sa presensya ng Panginoon, at muli ring sumali sa kanila si Satanas. 
+Isang araw, muling nagtipon ang mga anghel sa presensya ng Panginoon, at muli ring sumali sa kanila si Satanas. 
 
 
 

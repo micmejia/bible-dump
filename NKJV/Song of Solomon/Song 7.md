@@ -13,7 +13,7 @@ next: ['Song 8']
 How beautiful are your feet in sandals, O prince's daughter! The curves of your thighs _are_ like jewels, The work of the hands of a skillful workman. 
 
 ###### 2 
-Your navel _is_ a rounded goblet; It lacks no [^a]blended beverage. Your waist _is_ a heap of wheat Set about with lilies. 
+Your navel _is_ a rounded goblet; It lacks no blended beverage. Your waist _is_ a heap of wheat Set about with lilies. 
 
 ###### 3 
 Your two breasts _are_ like two fawns, Twins of a gazelle. 
@@ -31,10 +31,10 @@ How fair and how pleasant you are, O love, with your delights!
 This stature of yours is like a palm tree, And your breasts _like_ its clusters. 
 
 ###### 8 
-I said, "I will go up to the palm tree, I will take hold of its branches." Let now your breasts be like clusters of the vine, The fragrance of your [^b]breath like apples, 
+I said, "I will go up to the palm tree, I will take hold of its branches." Let now your breasts be like clusters of the vine, The fragrance of your breath like apples, 
 
 ###### 9 
-And the roof of your mouth like the best wine. _The wine_ goes _down_ smoothly for my beloved, [^c]Moving gently the [^d]lips of sleepers. 
+And the roof of your mouth like the best wine. _The wine_ goes _down_ smoothly for my beloved, Moving gently the lips of sleepers. 
 
 ###### 10 
 I _am_ my beloved's, And his desire _is_ toward me. 

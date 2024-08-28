@@ -322,7 +322,7 @@ At the end of seven years you shall let every man his brother who is a Hebrew go
 
 
 
-And you recently turned around _and_ repented, doing what was right in My sight by proclaiming liberty each one to his neighbor [who was his bond servant]; and you made a covenant _or_ pledge before Me in the house which is called by My [^a]Name. 
+And you recently turned around _and_ repented, doing what was right in My sight by proclaiming liberty each one to his neighbor [who was his bond servant]; and you made a covenant _or_ pledge before Me in the house which is called by My Name. 
 
 
 

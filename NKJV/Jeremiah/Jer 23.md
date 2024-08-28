@@ -22,10 +22,10 @@ Therefore thus says the Lord God of Israel against the shepherds who feed My peo
 I will set up shepherds over them who will feed them; and they shall fear no more, nor be dismayed, nor shall they be lacking," says the Lord. 
 
 ###### 5 
-"Behold, _the_ days are coming," says the Lord, "That I will raise to David a Branch of righteousness; A King shall reign and [^a]prosper, And execute [^b]judgment and righteousness in the [^c]earth. 
+"Behold, _the_ days are coming," says the Lord, "That I will raise to David a Branch of righteousness; A King shall reign and prosper, And execute judgment and righteousness in the earth. 
 
 ###### 6 
-In His days Judah will be saved, And Israel will dwell safely; Now this _is_ His name by which He will be called: [^d]THE LORD OUR RIGHTEOUSNESS. 
+In His days Judah will be saved, And Israel will dwell safely; Now this _is_ His name by which He will be called: THE LORD OUR RIGHTEOUSNESS. 
 
 ###### 7 
 "Therefore, behold, _the_ days are coming," says the Lord, "that they shall no longer say, 'As the Lord lives who brought up the children of Israel from the land of Egypt,' 
@@ -46,19 +46,19 @@ For the land is full of adulterers; For because of a curse the land mourns. The 
 "Therefore their way shall be to them Like slippery _ways;_ In the darkness they shall be driven on And fall in them; For I will bring disaster on them, The year of their punishment," says the Lord. 
 
 ###### 13 
-"And I have seen [^e]folly in the prophets of Samaria: They prophesied by Baal And caused My people Israel to err. 
+"And I have seen folly in the prophets of Samaria: They prophesied by Baal And caused My people Israel to err. 
 
 ###### 14 
 Also I have seen a horrible thing in the prophets of Jerusalem: They commit adultery and walk in lies; They also strengthen the hands of evildoers, So that no one turns back from his wickedness. All of them are like Sodom to Me, And her inhabitants like Gomorrah. 
 
 ###### 15 
-"Therefore thus says the Lord of hosts concerning the prophets: 'Behold, I will feed them with wormwood, And make them drink the water of gall; For from the prophets of Jerusalem [^f]Profaneness has gone out into all the land.' " 
+"Therefore thus says the Lord of hosts concerning the prophets: 'Behold, I will feed them with wormwood, And make them drink the water of gall; For from the prophets of Jerusalem Profaneness has gone out into all the land.' " 
 
 ###### 16 
 Thus says the Lord of hosts: "Do not listen to the words of the prophets who prophesy to you. They make you worthless; They speak a vision of their own heart, Not from the mouth of the Lord. 
 
 ###### 17 
-They continually say to those who despise Me, 'The Lord has said, "You shall have peace" '; And _to_ everyone who walks according to the [^g]dictates of his own heart, they say, 'No evil shall come upon you.' " 
+They continually say to those who despise Me, 'The Lord has said, "You shall have peace" '; And _to_ everyone who walks according to the dictates of his own heart, they say, 'No evil shall come upon you.' " 
 
 ###### 18 
 For who has stood in the counsel of the Lord, And has perceived and heard His word? Who has marked His word and heard _it?_ 
@@ -106,22 +106,22 @@ Behold, I _am_ against the prophets," says the Lord, "who use their tongues and 
 Behold, I _am_ against those who prophesy false dreams," says the Lord, "and tell them, and cause My people to err by their lies and by their recklessness. Yet I did not send them or command them; therefore they shall not profit this people at all," says the Lord. 
 
 ###### 33 
-"So when these people or the prophet or the priest ask you, saying, 'What is the [^h]oracle of the Lord?' you shall then say to them, [^i]'What oracle?' I will even forsake you," says the Lord. 
+"So when these people or the prophet or the priest ask you, saying, 'What is the oracle of the Lord?' you shall then say to them, 'What oracle?' I will even forsake you," says the Lord. 
 
 ###### 34 
-"And _as for_ the prophet and the priest and the people who say, 'The [^j]oracle of the Lord!' I will even punish that man and his house. 
+"And _as for_ the prophet and the priest and the people who say, 'The oracle of the Lord!' I will even punish that man and his house. 
 
 ###### 35 
 Thus every one of you shall say to his neighbor, and every one to his brother, 'What has the Lord answered?' and, 'What has the Lord spoken?' 
 
 ###### 36 
-And the [^k]oracle of the Lord you shall mention no more. For every man's word will be his oracle, for you have perverted the words of the living God, the Lord of hosts, our God. 
+And the oracle of the Lord you shall mention no more. For every man's word will be his oracle, for you have perverted the words of the living God, the Lord of hosts, our God. 
 
 ###### 37 
 Thus you shall say to the prophet, 'What has the Lord answered you?' and, 'What has the Lord spoken?' 
 
 ###### 38 
-But since you say, 'The [^l]oracle of the Lord!' therefore thus says the Lord: 'Because you say this word, "The oracle of the Lord!" and I have sent to you, saying, "Do not say, 'The oracle of the Lord!' " 
+But since you say, 'The oracle of the Lord!' therefore thus says the Lord: 'Because you say this word, "The oracle of the Lord!" and I have sent to you, saying, "Do not say, 'The oracle of the Lord!' " 
 
 ###### 39 
 therefore behold, I, even I, will utterly forget you and forsake you, and the city that I gave you and your fathers, and _will cast you_ out of My presence. 

@@ -217,7 +217,7 @@ In that day shall [swift] messengers go forth from Me in ships to terrify the ca
 
 
 
-Thus says the Lord God: I will also make the tumult _and_ the wealth _and_ the large population of Egypt to cease by the hand of [^a]Nebuchadrezzar king of Babylon. 
+Thus says the Lord God: I will also make the tumult _and_ the wealth _and_ the large population of Egypt to cease by the hand of Nebuchadrezzar king of Babylon. 
 
 
 

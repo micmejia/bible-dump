@@ -469,7 +469,7 @@ Ako ang naglagay ng pundasyon ng mundo at ako rin ang nagladlad ng langit. Kapag
 
 
 
-"Magtipon kayong lahat at makinig: Sino sa mga dios-diosan ang humulang lulusubin ng aking kaibigan[^a] ang Babilonia para sundin ang ipinapagawa ko laban sa bansang iyon? Wala! 
+"Magtipon kayong lahat at makinig: Sino sa mga dios-diosan ang humulang lulusubin ng aking kaibigan ang Babilonia para sundin ang ipinapagawa ko laban sa bansang iyon? Wala! 
 
 
 
@@ -601,7 +601,7 @@ Lumapit kayo sa akin at pakinggan ito: Mula pa ng pasimula hindi ako nagsalita n
 
 
 
-Kung kayo lamang ay sumunod sa aking mga utos, dumaloy sana na parang ilog ang mga pagpapala sa inyo, at ang inyong tagumpay[^b] ay sunud-sunod sana na parang alon na dumarating sa dalampasigan. 
+Kung kayo lamang ay sumunod sa aking mga utos, dumaloy sana na parang ilog ang mga pagpapala sa inyo, at ang inyong tagumpay ay sunud-sunod sana na parang alon na dumarating sa dalampasigan. 
 
 
 
@@ -667,7 +667,7 @@ Ang inyo sanang mga lahi ay naging kasindami ng buhangin na hindi mabilang, at t
 
 
 
-Umalis kayo sa Babilonia! Buong galak ninyong ihayag sa buong mundo[^c] na iniligtas ng Panginoon ang kanyang lingkod, ang mga mamamayan ng Israel.[^d] 
+Umalis kayo sa Babilonia! Buong galak ninyong ihayag sa buong mundo na iniligtas ng Panginoon ang kanyang lingkod, ang mga mamamayan ng Israel. 
 
 
 

@@ -40,7 +40,7 @@ next: ['Esth 4']
 
 
 
-Pagkatapos ng mga pangyayaring ito, itinaas ni Haring Ahasuerus sa tungkulin si Haman na anak ni Hamedata na Agageo.[^a] Ginawa siyang pinakamataas na pinuno sa kaharian niya. 
+Pagkatapos ng mga pangyayaring ito, itinaas ni Haring Ahasuerus sa tungkulin si Haman na anak ni Hamedata na Agageo. Ginawa siyang pinakamataas na pinuno sa kaharian niya. 
 
 
 
@@ -139,7 +139,7 @@ Tinanong siya ng ibang pinuno kung bakit hindi niya sinusunod ang utos ng hari.
 
 
 
-At sinabi niyang isa siyang Judio.[^b] Araw-araw, hinihikayat siya ng mga kapwa niya pinuno na yumukod kay Haman pero ayaw pa rin niyang sumunod. Dahil dito, isinumbong nila kay Haman si Mordecai para malaman nila kung pababayaan na lang siya sa ginagawa niya, dahil sinabi niyang isa siyang Judio. 
+At sinabi niyang isa siyang Judio. Araw-araw, hinihikayat siya ng mga kapwa niya pinuno na yumukod kay Haman pero ayaw pa rin niyang sumunod. Dahil dito, isinumbong nila kay Haman si Mordecai para malaman nila kung pababayaan na lang siya sa ginagawa niya, dahil sinabi niyang isa siyang Judio. 
 
 
 
@@ -238,7 +238,7 @@ At nang malaman pa niyang si Mordecai ay isang Judio, naisip niyang hindi lang s
 
 
 
-Nang buwan ng Nisan, ang unang buwan <i class="trans-change">ng taon_, noong ika-12 taon ng paghahari ni Ahasuerus, nag-utos si Haman na magpalabunutan para malaman kung ano ang tamang araw at buwan para ipatupad ang plano niya. (Ang ginagamit nila sa palabunutan ay tinatawag nilang "pur".) At ang nabunot ay ang <i class="trans-change">ika-13 araw ng_[^c] ika-12 buwan, ang buwan ng Adar. 
+Nang buwan ng Nisan, ang unang buwan <i class="trans-change">ng taon_, noong ika-12 taon ng paghahari ni Ahasuerus, nag-utos si Haman na magpalabunutan para malaman kung ano ang tamang araw at buwan para ipatupad ang plano niya. (Ang ginagamit nila sa palabunutan ay tinatawag nilang "pur".) At ang nabunot ay ang <i class="trans-change">ika-13 araw ng_ ika-12 buwan, ang buwan ng Adar. 
 
 
 
@@ -337,7 +337,7 @@ Kung gusto ninyo, Mahal na Hari, mag-utos kayo na patayin silang lahat. At magbi
 
 
 
-Pagkatapos, kinuha ng hari ang kanyang singsing na pantatak,[^d] at ibinigay kay Haman na anak ni Hamedata na Agageo, ang kalaban ng mga Judio. 
+Pagkatapos, kinuha ng hari ang kanyang singsing na pantatak, at ibinigay kay Haman na anak ni Hamedata na Agageo, ang kalaban ng mga Judio. 
 
 
 

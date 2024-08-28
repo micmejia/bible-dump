@@ -70,7 +70,7 @@ Then He opened His mouth and taught them, saying:
 
 
 
-Blessed (happy, [^a]to be envied, and [^b]spiritually prosperous--[^c]with life-joy and satisfaction in God's favor and salvation, regardless of their outward conditions) are the poor in spirit (the humble, who rate themselves insignificant), for theirs is the kingdom of heaven! 
+Blessed (happy, to be envied, and spiritually prosperous--with life-joy and satisfaction in God's favor and salvation, regardless of their outward conditions) are the poor in spirit (the humble, who rate themselves insignificant), for theirs is the kingdom of heaven! 
 
 
 
@@ -91,7 +91,7 @@ Blessed (happy, [^a]to be envied, and [^b]spiritually prosperous--[^c]with life-
 
 
 
-Blessed _and_ enviably happy [with a [^d]happiness produced by the experience of God's favor and especially conditioned by the revelation of His matchless grace] are those who mourn, for they shall be comforted! 
+Blessed _and_ enviably happy [with a happiness produced by the experience of God's favor and especially conditioned by the revelation of His matchless grace] are those who mourn, for they shall be comforted! 
 
 
 
@@ -112,7 +112,7 @@ Blessed _and_ enviably happy [with a [^d]happiness produced by the experience of
 
 
 
-Blessed (happy, blithesome, joyous, [^e]spiritually prosperous--[^f]with life-joy and satisfaction in God's favor and salvation, regardless of their outward conditions) are the meek (the mild, patient, long-suffering), for they shall inherit the earth! 
+Blessed (happy, blithesome, joyous, spiritually prosperous--with life-joy and satisfaction in God's favor and salvation, regardless of their outward conditions) are the meek (the mild, patient, long-suffering), for they shall inherit the earth! 
 
 
 
@@ -133,7 +133,7 @@ Blessed (happy, blithesome, joyous, [^e]spiritually prosperous--[^f]with life-jo
 
 
 
-Blessed _and_ fortunate _and_ happy _and_ [^g]spiritually prosperous (in that state in which the born-again child of God [^h]enjoys His favor and salvation) are those who hunger and thirst for righteousness (uprightness and right standing with God), for they shall be [^i]completely satisfied! 
+Blessed _and_ fortunate _and_ happy _and_ spiritually prosperous (in that state in which the born-again child of God enjoys His favor and salvation) are those who hunger and thirst for righteousness (uprightness and right standing with God), for they shall be completely satisfied! 
 
 
 
@@ -154,7 +154,7 @@ Blessed _and_ fortunate _and_ happy _and_ [^g]spiritually prosperous (in that st
 
 
 
-Blessed (happy, [^j]to be envied, and [^k]spiritually prosperous--[^l]with life-joy and satisfaction in God's favor and salvation, regardless of their outward conditions) are the merciful, for they shall obtain mercy! 
+Blessed (happy, to be envied, and spiritually prosperous--with life-joy and satisfaction in God's favor and salvation, regardless of their outward conditions) are the merciful, for they shall obtain mercy! 
 
 
 
@@ -175,7 +175,7 @@ Blessed (happy, [^j]to be envied, and [^k]spiritually prosperous--[^l]with life-
 
 
 
-Blessed (happy, [^m]enviably fortunate, and [^n]spiritually prosperous--possessing the [^o]happiness produced by the experience of God's favor and especially conditioned by the revelation of His grace, regardless of their outward conditions) are the pure in heart, for they shall see God! 
+Blessed (happy, enviably fortunate, and spiritually prosperous--possessing the happiness produced by the experience of God's favor and especially conditioned by the revelation of His grace, regardless of their outward conditions) are the pure in heart, for they shall see God! 
 
 
 
@@ -196,7 +196,7 @@ Blessed (happy, [^m]enviably fortunate, and [^n]spiritually prosperous--possessi
 
 
 
-Blessed (enjoying [^p]enviable happiness, [^q]spiritually prosperous--[^r]with life-joy and satisfaction in God's favor and salvation, regardless of their outward conditions) are the makers _and_ [^s] maintainers of peace, for they shall be called the sons of God! 
+Blessed (enjoying enviable happiness, spiritually prosperous--with life-joy and satisfaction in God's favor and salvation, regardless of their outward conditions) are the makers _and_  maintainers of peace, for they shall be called the sons of God! 
 
 
 
@@ -217,7 +217,7 @@ Blessed (enjoying [^p]enviable happiness, [^q]spiritually prosperous--[^r]with l
 
 
 
-Blessed _and_ happy _and_ [^t]enviably fortunate _and_ [^u]spiritually prosperous [^v](in the state in which the born-again child of God enjoys and finds satisfaction in God's favor and salvation, regardless of his outward conditions) are those who are persecuted for righteousness' sake (for being and doing right), for theirs is the kingdom of heaven! 
+Blessed _and_ happy _and_ enviably fortunate _and_ spiritually prosperous (in the state in which the born-again child of God enjoys and finds satisfaction in God's favor and salvation, regardless of his outward conditions) are those who are persecuted for righteousness' sake (for being and doing right), for theirs is the kingdom of heaven! 
 
 
 
@@ -238,7 +238,7 @@ Blessed _and_ happy _and_ [^t]enviably fortunate _and_ [^u]spiritually prosperou
 
 
 
-Blessed (happy, [^w]to be envied, and [^x]spiritually prosperous--[^y]with life-joy and satisfaction in God's favor and salvation, regardless of your outward conditions) are you when people revile you and persecute you and say all kinds of evil things against you falsely on My account. 
+Blessed (happy, to be envied, and spiritually prosperous--with life-joy and satisfaction in God's favor and salvation, regardless of your outward conditions) are you when people revile you and persecute you and say all kinds of evil things against you falsely on My account. 
 
 
 
@@ -343,7 +343,7 @@ Nor do men light a lamp and put it under a peck measure, but on a lampstand, and
 
 
 
-Let your light so shine before men that they may see your [^z]moral excellence _and_ your praiseworthy, noble, _and_ good deeds and [^aa]recognize _and_ honor _and_ praise _and_ glorify your Father Who is in heaven. 
+Let your light so shine before men that they may see your moral excellence _and_ your praiseworthy, noble, _and_ good deeds and [^aa]recognize _and_ honor _and_ praise _and_ glorify your Father Who is in heaven. 
 
 
 

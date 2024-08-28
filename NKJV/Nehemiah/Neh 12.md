@@ -13,22 +13,22 @@ next: ['Neh 13']
 Now these _are_ the priests and the Levites who came up with Zerubbabel the son of Shealtiel, and Jeshua: Seraiah, Jeremiah, Ezra, 
 
 ###### 2 
-Amariah, [^a]Malluch, Hattush, 
+Amariah, Malluch, Hattush, 
 
 ###### 3 
-[^b]Shechaniah, [^c]Rehum, [^d]Meremoth, 
+Shechaniah, Rehum, Meremoth, 
 
 ###### 4 
-Iddo, [^e]Ginnethoi, Abijah, 
+Iddo, Ginnethoi, Abijah, 
 
 ###### 5 
-[^f]Mijamin, [^g]Maadiah, Bilgah, 
+Mijamin, Maadiah, Bilgah, 
 
 ###### 6 
 Shemaiah, Joiarib, Jedaiah, 
 
 ###### 7 
-[^h]Sallu, Amok, Hilkiah, _and_ Jedaiah. These _were_ the heads of the priests and their brethren in the days of Jeshua. 
+Sallu, Amok, Hilkiah, _and_ Jedaiah. These _were_ the heads of the priests and their brethren in the days of Jeshua. 
 
 ###### 8 
 Moreover the Levites _were_ Jeshua, Binnui, Kadmiel, Sherebiah, Judah, _and_ Mattaniah _who led_ the thanksgiving _psalms,_ he and his brethren. 
@@ -49,16 +49,16 @@ Now in the days of Joiakim, the priests, the heads of the fathers' _houses were:
 of Ezra, Meshullam; of Amariah, Jehohanan; 
 
 ###### 14 
-of [^i]Melichu, Jonathan; of [^j]Shebaniah, Joseph; 
+of Melichu, Jonathan; of Shebaniah, Joseph; 
 
 ###### 15 
-of [^k]Harim, Adna; of [^l]Meraioth, Helkai; 
+of Harim, Adna; of Meraioth, Helkai; 
 
 ###### 16 
 of Iddo, Zechariah; of Ginnethon, Meshullam; 
 
 ###### 17 
-of Abijah, Zichri; _the son_ of [^m]Minjamin; of [^n]Moadiah, Piltai; 
+of Abijah, Zichri; _the son_ of Minjamin; of Moadiah, Piltai; 
 
 ###### 18 
 of Bilgah, Shammua; of Shemaiah, Jehonathan; 
@@ -67,7 +67,7 @@ of Bilgah, Shammua; of Shemaiah, Jehonathan;
 of Joiarib, Mattenai; of Jedaiah, Uzzi; 
 
 ###### 20 
-of [^o]Sallai, Kallai; of Amok, Eber; 
+of Sallai, Kallai; of Amok, Eber; 
 
 ###### 21 
 of Hilkiah, Hashabiah; _and_ of Jedaiah, Nethanel. 
@@ -79,13 +79,13 @@ During the reign of Darius the Persian, a record _was also kept_ of the Levites 
 The sons of Levi, the heads of the fathers' _houses_ until the days of Johanan the son of Eliashib, _were_ written in the book of the chronicles. 
 
 ###### 24 
-And the heads of the Levites _were_ Hashabiah, Sherebiah, and Jeshua the son of Kadmiel, with their brothers across from them, to praise _and_ give thanks, group[^p] alternating with group, according to the command of David the man of God. 
+And the heads of the Levites _were_ Hashabiah, Sherebiah, and Jeshua the son of Kadmiel, with their brothers across from them, to praise _and_ give thanks, group alternating with group, according to the command of David the man of God. 
 
 ###### 25 
 Mattaniah, Bakbukiah, Obadiah, Meshullam, Talmon, and Akkub _were_ gatekeepers keeping the watch at the storerooms of the gates. 
 
 ###### 26 
-These _lived_ in the days of Joiakim the son of Jeshua, the son of [^q]Jozadak, and in the days of Nehemiah the governor, and of Ezra the priest, the scribe. ## Nehemiah Dedicates the Wall 
+These _lived_ in the days of Joiakim the son of Jeshua, the son of Jozadak, and in the days of Nehemiah the governor, and of Ezra the priest, the scribe. ## Nehemiah Dedicates the Wall 
 
 ###### 27 
 Now at the dedication of the wall of Jerusalem they sought out the Levites in all their places, to bring them to Jerusalem to celebrate the dedication with gladness, both with thanksgivings and singing, _with_ cymbals and stringed instruments and harps. 
@@ -124,22 +124,22 @@ By the Fountain Gate, in front of them, they went up the stairs of the City of D
 The other thanksgiving choir went the opposite _way,_ and I _was_ behind them with half of the people on the wall, going past the Tower of the Ovens as far as the Broad Wall, 
 
 ###### 39 
-and above the Gate of Ephraim, above the Old Gate, above the Fish Gate, the Tower of Hananel, the Tower of [^r]the Hundred, as far as the Sheep Gate; and they stopped by the Gate of the Prison. 
+and above the Gate of Ephraim, above the Old Gate, above the Fish Gate, the Tower of Hananel, the Tower of the Hundred, as far as the Sheep Gate; and they stopped by the Gate of the Prison. 
 
 ###### 40 
 So the two thanksgiving choirs stood in the house of God, likewise I and the half of the rulers with me; 
 
 ###### 41 
-and the priests, Eliakim, Maaseiah, [^s]Minjamin, Michaiah, Elioenai, Zechariah, _and_ Hananiah, with trumpets; 
+and the priests, Eliakim, Maaseiah, Minjamin, Michaiah, Elioenai, Zechariah, _and_ Hananiah, with trumpets; 
 
 ###### 42 
-also Maaseiah, Shemaiah, Eleazar, Uzzi, Jehohanan, Malchijah, Elam, and Ezer. The singers [^t]sang loudly with Jezrahiah the director. 
+also Maaseiah, Shemaiah, Eleazar, Uzzi, Jehohanan, Malchijah, Elam, and Ezer. The singers sang loudly with Jezrahiah the director. 
 
 ###### 43 
 Also that day they offered great sacrifices, and rejoiced, for God had made them rejoice with great joy; the women and the children also rejoiced, so that the joy of Jerusalem was heard afar off. ## Temple Responsibilities 
 
 ###### 44 
-And at the same time some were appointed over the rooms of the storehouse for the offerings, the firstfruits, and the tithes, to gather into them from the fields of the cities the portions specified by the Law for the priests and Levites; for Judah rejoiced over the priests and Levites who [^u]ministered. 
+And at the same time some were appointed over the rooms of the storehouse for the offerings, the firstfruits, and the tithes, to gather into them from the fields of the cities the portions specified by the Law for the priests and Levites; for Judah rejoiced over the priests and Levites who ministered. 
 
 ###### 45 
 Both the singers and the gatekeepers kept the charge of their God and the charge of the purification, according to the command of David _and_ Solomon his son. 
@@ -148,4 +148,4 @@ Both the singers and the gatekeepers kept the charge of their God and the charge
 For in the days of David and Asaph of old _there were_ chiefs of the singers, and songs of praise and thanksgiving to God. 
 
 ###### 47 
-In the days of Zerubbabel and in the days of Nehemiah all Israel gave the portions for the singers and the gatekeepers, a portion for each day. They also [^v]consecrated _holy things_ for the Levites, and the Levites consecrated _them_ for the children of Aaron.
+In the days of Zerubbabel and in the days of Nehemiah all Israel gave the portions for the singers and the gatekeepers, a portion for each day. They also consecrated _holy things_ for the Levites, and the Levites consecrated _them_ for the children of Aaron.

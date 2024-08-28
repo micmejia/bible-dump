@@ -106,7 +106,7 @@ Nang umuwi siya, nagkwento siya sa mga magulang niya. Sinabi niya, "May nakita a
 
 
 
-Pero sumagot ang mga magulang niya, "Bakit gusto mong makapag-asawa ng mula sa mga Filisteong hindi nakakakilala sa Dios?[^a] Wala ka bang mapili sa mga kamag-anak o kababayan natin?" Sumagot si Samson sa kanyang ama, "Ah basta, siya po ang gusto kong mapangasawa." 
+Pero sumagot ang mga magulang niya, "Bakit gusto mong makapag-asawa ng mula sa mga Filisteong hindi nakakakilala sa Dios? Wala ka bang mapili sa mga kamag-anak o kababayan natin?" Sumagot si Samson sa kanyang ama, "Ah basta, siya po ang gusto kong mapangasawa." 
 
 
 
@@ -172,7 +172,7 @@ Hindi pala alam ng mga magulang ni Samson na kalooban ng Panginoon ang pasya niy
 
 
 
-Pumunta si Samson sa Timnah kasama ang mga magulang niya. Nang papunta na si Samson[^b] sa mga ubasan sa Timnah, bigla siyang sinalubong ng isang batang leon na umuungal. 
+Pumunta si Samson sa Timnah kasama ang mga magulang niya. Nang papunta na si Samson sa mga ubasan sa Timnah, bigla siyang sinalubong ng isang batang leon na umuungal. 
 
 
 
@@ -535,7 +535,7 @@ Mula noon, patuloy na umiyak ang babae hanggang sa ikapitong araw. Kaya sinabi n
 
 
 
-Kaya bago matapos ang ikapitong araw, sinagot nila ang bugtong. Sinabi nila kay Samson, "Wala nang mas tatamis pa sa pulot, at wala nang mas lalakas pa sa leon." Sumagot si Samson, "Kung hindi nʼyo pinilit ang asawa[^c] ko, hindi nʼyo sana nalaman ang sagot." 
+Kaya bago matapos ang ikapitong araw, sinagot nila ang bugtong. Sinabi nila kay Samson, "Wala nang mas tatamis pa sa pulot, at wala nang mas lalakas pa sa leon." Sumagot si Samson, "Kung hindi nʼyo pinilit ang asawa ko, hindi nʼyo sana nalaman ang sagot." 
 
 
 

@@ -172,7 +172,7 @@ Ito ang mga hayop na pwede ninyong kainin: baka, tupa, kambing,
 
 
 
-usa, mailap na kambing, mailap na tupa at iba pang klase ng usa.[^a] 
+usa, mailap na kambing, mailap na tupa at iba pang klase ng usa. 
 
 
 
@@ -370,7 +370,7 @@ Pero huwag ninyong kainin ang walang palikpik at kaliskis. Ituring ninyo itong m
 
 
 
-Pwede ninyong kainin ang anumang klase ng ibon na itinuturing na malinis. <sup class="versenum">12-18</sup>Pero huwag ninyong kakainin ang mga ibon katulad ng agila, uwak, ibon na kumakain ng bangkay ng tao o hayop, lawin, kuwago, ibong naninila, ibong dumadagit ng isda, tagak, at paniki.[^b] 
+Pwede ninyong kainin ang anumang klase ng ibon na itinuturing na malinis. <sup class="versenum">12-18</sup>Pero huwag ninyong kakainin ang mga ibon katulad ng agila, uwak, ibon na kumakain ng bangkay ng tao o hayop, lawin, kuwago, ibong naninila, ibong dumadagit ng isda, tagak, at paniki. 
 
 
 

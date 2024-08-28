@@ -25,7 +25,7 @@ For every house is built by someone, but He who built all things _is_ God.
 And Moses indeed _was_ faithful in all His house as a servant, for a testimony of those things which would be spoken _afterward,_ 
 
 ###### 6 
-but Christ as a Son over His own house, whose house we are if we hold fast the confidence and the rejoicing of the hope [^a]firm to the end. ## Be Faithful 
+but Christ as a Son over His own house, whose house we are if we hold fast the confidence and the rejoicing of the hope firm to the end. ## Be Faithful 
 
 ###### 7 
 Therefore, as the Holy Spirit says: "Today, if you will hear His voice, 
@@ -46,7 +46,7 @@ So I swore in My wrath, 'They shall not enter My rest.' "
 Beware, brethren, lest there be in any of you an evil heart of unbelief in departing from the living God; 
 
 ###### 13 
-but [^b]exhort one another daily, while it is called "Today," lest any of you be hardened through the deceitfulness of sin. 
+but exhort one another daily, while it is called "Today," lest any of you be hardened through the deceitfulness of sin. 
 
 ###### 14 
 For we have become partakers of Christ if we hold the beginning of our confidence steadfast to the end, 

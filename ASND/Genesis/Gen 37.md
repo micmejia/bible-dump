@@ -106,7 +106,7 @@ Ito ang salaysay tungkol sa pamilya ni Jacob: Nang 17 taong gulang si Jose, nagb
 
 
 
-Mas mahal ni Jacob[^a] si Jose kaysa sa iba niyang mga anak, dahil matanda na siya nang isilang si Jose. Kaya itinahi niya si Jose ng maganda at mahabang damit. 
+Mas mahal ni Jacob si Jose kaysa sa iba niyang mga anak, dahil matanda na siya nang isilang si Jose. Kaya itinahi niya si Jose ng maganda at mahabang damit. 
 
 
 
@@ -403,7 +403,7 @@ Nainggit ang mga kapatid ni Jose sa kanya, pero si Jacob ay sinarili na lamang a
 
 
 
-<i class="trans-change">Isang araw,_ pumunta ang mga kapatid ni Jose sa Shekem para magbantay ng mga hayop ng kanilang ama. <sup class="versenum">13-14</sup>Sinabi ni Jacob[^b] kay Jose, "Ang mga kapatid mo ay naroon sa Shekem na nagpapastol ng mga hayop. Pumunta ka roon at tingnan mo kung maayos ang kalagayan ng mga kapatid mo at ng mga hayop. Bumalik ka agad at sabihin sa akin." Sumagot si Jose, "Opo ama." Kaya mula sa Lambak ng Hebron, pumunta si Jose sa Shekem. 
+<i class="trans-change">Isang araw,_ pumunta ang mga kapatid ni Jose sa Shekem para magbantay ng mga hayop ng kanilang ama. <sup class="versenum">13-14</sup>Sinabi ni Jacob kay Jose, "Ang mga kapatid mo ay naroon sa Shekem na nagpapastol ng mga hayop. Pumunta ka roon at tingnan mo kung maayos ang kalagayan ng mga kapatid mo at ng mga hayop. Bumalik ka agad at sabihin sa akin." Sumagot si Jose, "Opo ama." Kaya mula sa Lambak ng Hebron, pumunta si Jose sa Shekem. 
 
 
 
@@ -865,7 +865,7 @@ Ang mabuti pa siguro ipagbili natin siya sa mga Ishmaelitang iyan. Huwag natin s
 
 
 
-Kaya pagdaan ng mga mangangalakal na Ishmaelita,[^c] iniahon nila si Jose mula sa balon at ipinagbili nila sa halagang 20 pilak. At dinala si Jose ng mga Ishmaelita sa Egipto. 
+Kaya pagdaan ng mga mangangalakal na Ishmaelita, iniahon nila si Jose mula sa balon at ipinagbili nila sa halagang 20 pilak. At dinala si Jose ng mga Ishmaelita sa Egipto. 
 
 
 
@@ -1129,4 +1129,4 @@ Inaliw siya ng lahat ng anak niya pero patuloy pa rin ang pagdadalamhati niya. S
 
 
 
-Samantala, doon sa Egipto, ipinagbili ng mga Midianita[^d] si Jose kay Potifar na isa sa mga opisyal ng Faraon.[^e] Kapitan siya ng mga guwardya sa palasyo.
+Samantala, doon sa Egipto, ipinagbili ng mga Midianita si Jose kay Potifar na isa sa mga opisyal ng Faraon. Kapitan siya ng mga guwardya sa palasyo.

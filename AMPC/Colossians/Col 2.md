@@ -28,7 +28,7 @@ next: ['Col 3']
 
 
 
-For I want you to know how great is my solicitude for you [how severe an inward struggle I am engaged in for you] and for those [believers] at Laodicea, and for all who [[^a]like yourselves] have never seen my face _and_ known me personally. 
+For I want you to know how great is my solicitude for you [how severe an inward struggle I am engaged in for you] and for those [believers] at Laodicea, and for all who [like yourselves] have never seen my face _and_ known me personally. 
 
 
 
@@ -49,7 +49,7 @@ For I want you to know how great is my solicitude for you [how severe an inward 
 
 
 
-[For my concern is] that their hearts may be [^b]braced (comforted, cheered, and encouraged) as they are knit together in love, that they may come to have all the abounding wealth _and_ blessings of assured conviction of understanding, and that they may become progressively [^c]more intimately acquainted with _and_ may know more definitely _and_ accurately _and_ thoroughly that mystic secret of God, [which is] Christ (the Anointed One). 
+[For my concern is] that their hearts may be braced (comforted, cheered, and encouraged) as they are knit together in love, that they may come to have all the abounding wealth _and_ blessings of assured conviction of understanding, and that they may become progressively more intimately acquainted with _and_ may know more definitely _and_ accurately _and_ thoroughly that mystic secret of God, [which is] Christ (the Anointed One). 
 
 
 
@@ -70,7 +70,7 @@ For I want you to know how great is my solicitude for you [how severe an inward 
 
 
 
-In Him all the treasures of [divine] wisdom ([^d]comprehensive insight into the ways and purposes of God) and [all the riches of spiritual] knowledge _and_ enlightenment are stored up _and_ lie hidden. 
+In Him all the treasures of [divine] wisdom (comprehensive insight into the ways and purposes of God) and [all the riches of spiritual] knowledge _and_ enlightenment are stored up _and_ lie hidden. 
 
 
 
@@ -112,7 +112,7 @@ I say this in order that no one may mislead _and_ delude you by plausible _and_ 
 
 
 
-For though I am away from you in body, yet I am with you in spirit, delighted at the sight of your [standing shoulder to shoulder in such] orderly array and the firmness _and_ the solid front _and_ steadfastness of your faith in Christ [that [^e]leaning of the entire human personality on Him in absolute trust and confidence in His power, wisdom, and goodness]. 
+For though I am away from you in body, yet I am with you in spirit, delighted at the sight of your [standing shoulder to shoulder in such] orderly array and the firmness _and_ the solid front _and_ steadfastness of your faith in Christ [that leaning of the entire human personality on Him in absolute trust and confidence in His power, wisdom, and goodness]. 
 
 
 
@@ -217,7 +217,7 @@ For in Him the whole fullness of Deity (the Godhead) continues to dwell in bodil
 
 
 
-And you [^f]are in Him, made full _and_ having come to fullness of life [in Christ you too are filled with the Godhead--Father, Son and Holy Spirit--and reach full spiritual stature]. And He is the Head of all rule and authority [of every angelic principality and power]. 
+And you are in Him, made full _and_ having come to fullness of life [in Christ you too are filled with the Godhead--Father, Son and Holy Spirit--and reach full spiritual stature]. And He is the Head of all rule and authority [of every angelic principality and power]. 
 
 
 
@@ -259,7 +259,7 @@ In Him also you were circumcised with a circumcision not made with hands, but in
 
 
 
-[Thus [^g]you were circumcised when] you were buried with Him in [your] baptism, in which you were also raised with Him [[^h]to a new life] through [your] faith in the working of God [[^i]as displayed] when He raised Him up from the dead. 
+[Thus you were circumcised when] you were buried with Him in [your] baptism, in which you were also raised with Him [to a new life] through [your] faith in the working of God [as displayed] when He raised Him up from the dead. 
 
 
 
@@ -301,7 +301,7 @@ And you who were dead in trespasses and in the uncircumcision of your flesh (you
 
 
 
-Having cancelled _and_ blotted out _and_ wiped away the handwriting of the note (bond) with its legal decrees _and_ demands which was in force _and_ stood against us (hostile to us). This [note with its regulations, decrees, and demands] He set aside _and_ cleared [^j]completely out of our way by nailing it to [His] cross. 
+Having cancelled _and_ blotted out _and_ wiped away the handwriting of the note (bond) with its legal decrees _and_ demands which was in force _and_ stood against us (hostile to us). This [note with its regulations, decrees, and demands] He set aside _and_ cleared completely out of our way by nailing it to [His] cross. 
 
 
 

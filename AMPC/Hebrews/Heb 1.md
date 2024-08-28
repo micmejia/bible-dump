@@ -27,7 +27,7 @@ next: ['Heb 2']
 
 
 
-In many separate revelations [[^a]each of which set forth a portion of the Truth] and in different ways God spoke of old to [our] forefathers in _and_ by the prophets, 
+In many separate revelations [each of which set forth a portion of the Truth] and in different ways God spoke of old to [our] forefathers in _and_ by the prophets, 
 
 
 
@@ -48,7 +48,7 @@ In many separate revelations [[^a]each of which set forth a portion of the Truth
 
 
 
-[But] in [^b]the last of these days He has spoken to us in [the person of a] Son, Whom He appointed Heir _and_ lawful Owner of all things, also by _and_ through Whom He created the worlds _and_ the reaches of space _and_ the ages of time [He made, produced, built, operated, and arranged them in order]. 
+[But] in the last of these days He has spoken to us in [the person of a] Son, Whom He appointed Heir _and_ lawful Owner of all things, also by _and_ through Whom He created the worlds _and_ the reaches of space _and_ the ages of time [He made, produced, built, operated, and arranged them in order]. 
 
 
 
@@ -69,7 +69,7 @@ In many separate revelations [[^a]each of which set forth a portion of the Truth
 
 
 
-He is the sole expression of the glory of God [the Light-being, the [^c]out-raying or radiance of the divine], and He is the perfect imprint _and_ very image of [God's] nature, upholding _and_ maintaining _and_ guiding _and_ propelling the universe by His mighty word of power. When He had _by offering Himself_ accomplished _our_ cleansing of sins _and_ riddance of guilt, He sat down at the right hand of the divine Majesty on high, 
+He is the sole expression of the glory of God [the Light-being, the out-raying or radiance of the divine], and He is the perfect imprint _and_ very image of [God's] nature, upholding _and_ maintaining _and_ guiding _and_ propelling the universe by His mighty word of power. When He had _by offering Himself_ accomplished _our_ cleansing of sins _and_ riddance of guilt, He sat down at the right hand of the divine Majesty on high, 
 
 
 
@@ -132,7 +132,7 @@ For to which of the angels did [God] ever say, You are My Son, today I have bego
 
 
 
-Moreover, when He brings the firstborn Son [^d]again into the habitable world, He says, Let all the angels of God worship Him. 
+Moreover, when He brings the firstborn Son again into the habitable world, He says, Let all the angels of God worship Him. 
 
 
 
@@ -195,7 +195,7 @@ But as to the Son, He says to Him, Your throne, O God, is forever and ever (to t
 
 
 
-You have loved righteousness [You have delighted in integrity, virtue, and uprightness in purpose, thought, and action] and You have hated lawlessness (injustice and iniquity). Therefore God, [even] Your God ([^e]Godhead), has anointed You with the oil of exultant joy _and_ gladness above _and_ beyond Your companions. 
+You have loved righteousness [You have delighted in integrity, virtue, and uprightness in purpose, thought, and action] and You have hated lawlessness (injustice and iniquity). Therefore God, [even] Your God (Godhead), has anointed You with the oil of exultant joy _and_ gladness above _and_ beyond Your companions. 
 
 
 

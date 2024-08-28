@@ -19,10 +19,10 @@ And the Philistines called for the priests and the diviners, saying, "What shall
 So they said, "If you send away the ark of the God of Israel, do not send it empty; but by all means return _it_ to Him _with_ a trespass offering. Then you will be healed, and it will be known to you why His hand is not removed from you." 
 
 ###### 4 
-Then they said, "What _is_ the trespass offering which we shall return to Him?" They answered, "Five golden tumors and five golden rats, _according to_ the number of the lords of the Philistines. For the same plague _was_ on all of [^a]you and on your lords. 
+Then they said, "What _is_ the trespass offering which we shall return to Him?" They answered, "Five golden tumors and five golden rats, _according to_ the number of the lords of the Philistines. For the same plague _was_ on all of you and on your lords. 
 
 ###### 5 
-Therefore you shall make images of your tumors and images of your rats that ravage the land, and you shall give glory to the God of Israel; perhaps He will lighten[^b] His hand from you, from your gods, and from your land. 
+Therefore you shall make images of your tumors and images of your rats that ravage the land, and you shall give glory to the God of Israel; perhaps He will lighten His hand from you, from your gods, and from your land. 
 
 ###### 6 
 Why then do you harden your hearts as the Egyptians and Pharaoh hardened their hearts? When He did mighty things among them, did they not let the people go, that they might depart? 
@@ -34,7 +34,7 @@ Now therefore, make a new cart, take two milk cows which have never been yoked, 
 Then take the ark of the Lord and set it on the cart; and put the articles of gold which you are returning to Him _as_ a trespass offering in a chest by its side. Then send it away, and let it go. 
 
 ###### 9 
-And watch: if it goes up the road to its own territory, to Beth Shemesh, _then_ He has done [^c]us this great evil. But if not, then we shall know that _it is_ not His hand _that_ struck us--it happened to us by chance." 
+And watch: if it goes up the road to its own territory, to Beth Shemesh, _then_ He has done us this great evil. But if not, then we shall know that _it is_ not His hand _that_ struck us--it happened to us by chance." 
 
 ###### 10 
 Then the men did so; they took two milk cows and hitched them to the cart, and shut up their calves at home. 
@@ -64,7 +64,7 @@ These _are_ the golden tumors which the Philistines returned _as_ a trespass off
 and the golden rats, _according to_ the number of all the cities of the Philistines _belonging_ to the five lords, _both_ fortified cities and country villages, even as far as the large _stone of_ Abel on which they set the ark of the Lord, _which stone remains_ to this day in the field of Joshua of Beth Shemesh. 
 
 ###### 19 
-Then He struck the men of Beth Shemesh, because they had looked into the ark of the Lord. [^d]He struck fifty thousand and seventy men of the people, and the people lamented because the Lord had struck the people with a great slaughter. ## The Ark at Kirjath Jearim 
+Then He struck the men of Beth Shemesh, because they had looked into the ark of the Lord. He struck fifty thousand and seventy men of the people, and the people lamented because the Lord had struck the people with a great slaughter. ## The Ark at Kirjath Jearim 
 
 ###### 20 
 And the men of Beth Shemesh said, "Who is able to stand before this holy Lord God? And to whom shall it go up from us?" 

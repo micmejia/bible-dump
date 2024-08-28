@@ -469,7 +469,7 @@ Ang karpintero naman ay sumusukat ng kaputol na kahoy. Ginuguhitan niya ito ng a
 
 
 
-At para may magamit siyang kahoy, pumuputol siya ng sedro, ensina, o sipres[^a] na kanyang itinanim sa kagubatan. Nagtanim din siya ng puno ng abeto, at sa kadidilig ng ulan ay tumubo ito. 
+At para may magamit siyang kahoy, pumuputol siya ng sedro, ensina, o sipres na kanyang itinanim sa kagubatan. Nagtanim din siya ng puno ng abeto, at sa kadidilig ng ulan ay tumubo ito. 
 
 
 

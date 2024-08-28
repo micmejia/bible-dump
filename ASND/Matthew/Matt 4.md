@@ -139,7 +139,7 @@ Dumating ang Manunukso at sinabi sa kanya, "Kung ikaw nga ang Anak ng Dios, gawi
 
 
 
-Pero sumagot si Jesus, "Sinasabi sa Kasulatan, 'Hindi lang sa pagkain nabubuhay ang tao kundi sa bawat salita ng Dios.' "[^a] 
+Pero sumagot si Jesus, "Sinasabi sa Kasulatan, 'Hindi lang sa pagkain nabubuhay ang tao kundi sa bawat salita ng Dios.' " 
 
 
 
@@ -205,7 +205,7 @@ Dinala naman siya ng diyablo sa <i class="trans-change">Jerusalem, ang_ banal na
 
 
 
-At sinabi niya kay Jesus, "Kung ikaw nga ang Anak ng Dios, tumalon ka. Sapagkat sinasabi sa Kasulatan, 'Uutusan ng Dios ang kanyang mga anghel na ingatan ka. At aalalayan ka nila upang hindi tumama ang iyong mga paa sa bato.' "[^b] 
+At sinabi niya kay Jesus, "Kung ikaw nga ang Anak ng Dios, tumalon ka. Sapagkat sinasabi sa Kasulatan, 'Uutusan ng Dios ang kanyang mga anghel na ingatan ka. At aalalayan ka nila upang hindi tumama ang iyong mga paa sa bato.' " 
 
 
 
@@ -238,7 +238,7 @@ At sinabi niya kay Jesus, "Kung ikaw nga ang Anak ng Dios, tumalon ka. Sapagkat 
 
 
 
-<i class="trans-change">Pero_ sinagot siya ni Jesus, "Sinasabi sa Kasulatan, 'Huwag mong subukin ang Panginoon mong Dios.' "[^c] 
+<i class="trans-change">Pero_ sinagot siya ni Jesus, "Sinasabi sa Kasulatan, 'Huwag mong subukin ang Panginoon mong Dios.' " 
 
 
 
@@ -337,7 +337,7 @@ At sinabi ng diyablo kay Jesus, "Ang lahat ng iyan ay ibibigay ko sa iyo, kung l
 
 
 
-Pero sinagot siya ni Jesus, "Lumayas ka, Satanas! Sapagkat sinasabi sa Kasulatan, 'Sambahin mo ang Panginoon mong Dios at siya lamang ang iyong paglingkuran.' "[^d] 
+Pero sinagot siya ni Jesus, "Lumayas ka, Satanas! Sapagkat sinasabi sa Kasulatan, 'Sambahin mo ang Panginoon mong Dios at siya lamang ang iyong paglingkuran.' " 
 
 
 
@@ -502,7 +502,7 @@ Sa ganitong paraan ay natupad ang sinabi ni Propeta Isaias:
 
 
 
-"Ang lupain ng Zabulon at Naftali ay daanan patungo sa lawa[^e] at nasa kabila ng <i class="trans-change">Ilog ng_ Jordan. Ang <i class="trans-change">mga lugar na itoʼy sakop ng_ Galilea <i class="trans-change">at tinitirhan_ ng mga hindi Judio. 
+"Ang lupain ng Zabulon at Naftali ay daanan patungo sa lawa at nasa kabila ng <i class="trans-change">Ilog ng_ Jordan. Ang <i class="trans-change">mga lugar na itoʼy sakop ng_ Galilea <i class="trans-change">at tinitirhan_ ng mga hindi Judio. 
 
 
 
@@ -535,7 +535,7 @@ Sa ganitong paraan ay natupad ang sinabi ni Propeta Isaias:
 
 
 
-Nabubuhay sa kadiliman ang mga tao roon, ngunit makakakita sila ng matinding liwanag. Kahit nasa kadiliman sila at natatakot mamatay, maliliwanagan sila."[^f] 
+Nabubuhay sa kadiliman ang mga tao roon, ngunit makakakita sila ng matinding liwanag. Kahit nasa kadiliman sila at natatakot mamatay, maliliwanagan sila." 
 
 
 
@@ -568,7 +568,7 @@ Nabubuhay sa kadiliman ang mga tao roon, ngunit makakakita sila ng matinding liw
 
 
 
-Simula noon, nangaral na si Jesus. <i class="trans-change">At ito ang kanyang mensahe:_ "Pagsisihan na ninyo ang inyong mga kasalanan, dahil malapit na[^g] ang paghahari ng Dios." ## Tinawag ni Jesus ang Apat na Mangingisda 
+Simula noon, nangaral na si Jesus. <i class="trans-change">At ito ang kanyang mensahe:_ "Pagsisihan na ninyo ang inyong mga kasalanan, dahil malapit na ang paghahari ng Dios." ## Tinawag ni Jesus ang Apat na Mangingisda 
 
 
 
@@ -634,7 +634,7 @@ Habang naglalakad si Jesus sa tabi ng Lawa ng Galilea, nakita niya ang magkapati
 
 
 
-Sinabi ni Jesus sa kanila, "Sumunod kayo sa akin at gagawin ko kayong mangingisda ng mga tao."[^h] 
+Sinabi ni Jesus sa kanila, "Sumunod kayo sa akin at gagawin ko kayong mangingisda ng mga tao." 
 
 
 

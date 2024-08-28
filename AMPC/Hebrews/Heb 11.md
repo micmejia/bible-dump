@@ -28,7 +28,7 @@ next: ['Heb 12']
 
 
 
-Now faith is the assurance (the confirmation, [^a]the title deed) of the things [we] hope for, being the proof of things [we] do not see _and_ the conviction of their reality [faith perceiving as real fact what is not revealed to the senses]. 
+Now faith is the assurance (the confirmation, the title deed) of the things [we] hope for, being the proof of things [we] do not see _and_ the conviction of their reality [faith perceiving as real fact what is not revealed to the senses]. 
 
 
 
@@ -49,7 +49,7 @@ Now faith is the assurance (the confirmation, [^a]the title deed) of the things 
 
 
 
-For by [faith--[^b]trust and holy fervor born of faith] the men of old had divine testimony borne to them _and_ obtained a good report. 
+For by [faith--trust and holy fervor born of faith] the men of old had divine testimony borne to them _and_ obtained a good report. 
 
 
 
@@ -154,7 +154,7 @@ But without faith it is impossible to please _and_ be satisfactory to Him. For w
 
 
 
-[Prompted] by faith Noah, being forewarned by God concerning events of which as yet there was no visible sign, took heed _and_ diligently _and_ reverently constructed _and_ prepared an ark for the deliverance of his own family. By this [his faith which relied on God] he passed judgment _and_ sentence on the world's unbelief and became an heir _and_ possessor of righteousness ([^c]that relation of being right into which God puts the person who has faith). 
+[Prompted] by faith Noah, being forewarned by God concerning events of which as yet there was no visible sign, took heed _and_ diligently _and_ reverently constructed _and_ prepared an ark for the deliverance of his own family. By this [his faith which relied on God] he passed judgment _and_ sentence on the world's unbelief and became an heir _and_ possessor of righteousness (that relation of being right into which God puts the person who has faith). 
 
 
 
@@ -364,7 +364,7 @@ But the truth is that they were yearning for _and_ aspiring to a better _and_ mo
 
 
 
-By faith Abraham, when he was put to the test [while the testing of his faith was [^d]still in progress], [^e]had already brought Isaac for an offering; he who had gladly received _and_ welcomed [God's] promises was ready to sacrifice his only son, 
+By faith Abraham, when he was put to the test [while the testing of his faith was still in progress], had already brought Isaac for an offering; he who had gladly received _and_ welcomed [God's] promises was ready to sacrifice his only son, 
 
 
 
@@ -511,7 +511,7 @@ For he reasoned that God was able to raise [him] up even from among the dead. In
 
 
 
-[Aroused] by faith Moses, when he had grown to maturity _and_ [^f]become great, refused to be called the son of Pharaoh's daughter, 
+[Aroused] by faith Moses, when he had grown to maturity _and_ become great, refused to be called the son of Pharaoh's daughter, 
 
 
 
@@ -742,7 +742,7 @@ Extinguished the power of raging fire, escaped the devourings of the sword, out 
 
 
 
-[Some] women received again their dead by a resurrection. Others were tortured [^g]to death with clubs, refusing to accept release [offered on the terms of denying their faith], so that they might be resurrected to a better life. 
+[Some] women received again their dead by a resurrection. Others were tortured to death with clubs, refusing to accept release [offered on the terms of denying their faith], so that they might be resurrected to a better life. 
 
 
 

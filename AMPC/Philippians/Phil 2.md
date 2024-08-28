@@ -28,7 +28,7 @@ next: ['Phil 3']
 
 
 
-So by whatever [appeal to you there is in our mutual dwelling in Christ, by whatever] strengthening _and_ consoling _and_ encouraging [our relationship] in Him [affords], by whatever persuasive [^a]incentive there is in love, by whatever participation in the [Holy] Spirit [we share], and by whatever depth of affection and compassionate sympathy, 
+So by whatever [appeal to you there is in our mutual dwelling in Christ, by whatever] strengthening _and_ consoling _and_ encouraging [our relationship] in Him [affords], by whatever persuasive incentive there is in love, by whatever participation in the [Holy] Spirit [we share], and by whatever depth of affection and compassionate sympathy, 
 
 
 
@@ -133,7 +133,7 @@ Let this same attitude _and_ purpose _and_ [humble] mind be in you which was in 
 
 
 
-Who, although being essentially one with God _and_ in the form of God [[^b]possessing the fullness of the attributes which make God God], did not [^c]think this equality with God was a thing to be eagerly grasped [^d]_or_ retained, 
+Who, although being essentially one with God _and_ in the form of God [possessing the fullness of the attributes which make God God], did not think this equality with God was a thing to be eagerly grasped _or_ retained, 
 
 
 
@@ -154,7 +154,7 @@ Who, although being essentially one with God _and_ in the form of God [[^b]posse
 
 
 
-But stripped Himself [of all privileges and [^e]rightful dignity], so as to assume the guise of a servant (slave), in that He became like men _and_ was born a human being. 
+But stripped Himself [of all privileges and rightful dignity], so as to assume the guise of a servant (slave), in that He became like men _and_ was born a human being. 
 
 
 
@@ -196,7 +196,7 @@ And after He had appeared in human form, He abased _and_ humbled Himself [still 
 
 
 
-Therefore [because He stooped so low] God has highly exalted Him and has [^f]freely bestowed on Him the name that is above every name, 
+Therefore [because He stooped so low] God has highly exalted Him and has freely bestowed on Him the name that is above every name, 
 
 
 
@@ -217,7 +217,7 @@ Therefore [because He stooped so low] God has highly exalted Him and has [^f]fre
 
 
 
-That in (at) the name of Jesus every knee [^g]should (must) bow, in heaven and on earth and under the earth, 
+That in (at) the name of Jesus every knee should (must) bow, in heaven and on earth and under the earth, 
 
 
 
@@ -238,7 +238,7 @@ That in (at) the name of Jesus every knee [^g]should (must) bow, in heaven and o
 
 
 
-And every tongue [[^h]frankly and openly] confess _and_ acknowledge that Jesus Christ is Lord, to the glory of God the Father. 
+And every tongue [frankly and openly] confess _and_ acknowledge that Jesus Christ is Lord, to the glory of God the Father. 
 
 
 
@@ -259,7 +259,7 @@ And every tongue [[^h]frankly and openly] confess _and_ acknowledge that Jesus C
 
 
 
-Therefore, my dear ones, as you have always obeyed [my suggestions], so now, not only [with the enthusiasm you would show] in my presence but much more because I am absent, work out (cultivate, carry out to the goal, and fully complete) your own salvation with reverence _and_ awe and trembling (self-distrust, [^i]with serious caution, tenderness of conscience, watchfulness against temptation, timidly shrinking from whatever might offend God and discredit the name of Christ). 
+Therefore, my dear ones, as you have always obeyed [my suggestions], so now, not only [with the enthusiasm you would show] in my presence but much more because I am absent, work out (cultivate, carry out to the goal, and fully complete) your own salvation with reverence _and_ awe and trembling (self-distrust, with serious caution, tenderness of conscience, watchfulness against temptation, timidly shrinking from whatever might offend God and discredit the name of Christ). 
 
 
 
@@ -280,7 +280,7 @@ Therefore, my dear ones, as you have always obeyed [my suggestions], so now, not
 
 
 
-[Not in your own strength] for it is God Who is all the while [^j]effectually at work in you [energizing and creating in you the power and desire], both to will and to work for His good pleasure _and_ satisfaction _and_ [^k]delight. 
+[Not in your own strength] for it is God Who is all the while effectually at work in you [energizing and creating in you the power and desire], both to will and to work for His good pleasure _and_ satisfaction _and_ delight. 
 
 
 
@@ -301,7 +301,7 @@ Therefore, my dear ones, as you have always obeyed [my suggestions], so now, not
 
 
 
-Do all things without grumbling _and_ faultfinding _and_ complaining [[^l]against God] and [^m]questioning _and_ doubting [among yourselves], 
+Do all things without grumbling _and_ faultfinding _and_ complaining [against God] and questioning _and_ doubting [among yourselves], 
 
 
 
@@ -364,7 +364,7 @@ Holding out [to it] _and_ offering [to all men] the Word of Life, so that in the
 
 
 
-Even if [my lifeblood] must be poured out as a libation on the sacrificial offering of your faith [to God], still I am glad [to do it] and [^n]congratulate you all on [your share in] it. 
+Even if [my lifeblood] must be poured out as a libation on the sacrificial offering of your faith [to God], still I am glad [to do it] and congratulate you all on [your share in] it. 
 
 
 
@@ -385,7 +385,7 @@ Even if [my lifeblood] must be poured out as a libation on the sacrificial offer
 
 
 
-And you also in like manner be glad and [^o]congratulate me on [my share in] it. 
+And you also in like manner be glad and congratulate me on [my share in] it. 
 
 
 
@@ -574,7 +574,7 @@ For he has been [homesick] longing for you all and has been distressed because y
 
 
 
-He certainly was ill [too], near to death. But God had compassion on him, and not only on him but also on me, lest I should have sorrow [over him] [^p]coming upon sorrow. 
+He certainly was ill [too], near to death. But God had compassion on him, and not only on him but also on me, lest I should have sorrow [over him] coming upon sorrow. 
 
 
 

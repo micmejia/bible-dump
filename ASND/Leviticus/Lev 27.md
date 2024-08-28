@@ -237,7 +237,7 @@ Kung ang kanyang panatang hayop ay itinuturing na marumi at hindi maaaring ihand
 
 
 
-Titingnan iyon ng pari kung mabuti ba ito o hindi, at bibigyan niya ito ng halaga[^a] at hindi na maaaring baguhin pa. 
+Titingnan iyon ng pari kung mabuti ba ito o hindi, at bibigyan niya ito ng halaga at hindi na maaaring baguhin pa. 
 
 
 
@@ -765,7 +765,7 @@ Pero kung ang hayop ay itinuturing na marumi, iyon ay maaaring tubusin ng may-ar
 
 
 
-Ang anumang bagay na lubusang itinalaga[^b] sa Panginoon ay hindi na maaaring ipagbili o tubusin maging itoʼy tao o hayop o lupaing minana dahil iyon ay sa Panginoon na. 
+Ang anumang bagay na lubusang itinalaga sa Panginoon ay hindi na maaaring ipagbili o tubusin maging itoʼy tao o hayop o lupaing minana dahil iyon ay sa Panginoon na. 
 
 
 

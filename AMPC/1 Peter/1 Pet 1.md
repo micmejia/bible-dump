@@ -48,7 +48,7 @@ Peter, an apostle (a special messenger) of Jesus Christ, [writing] to the elect 
 
 
 
-Who were chosen _and_ foreknown by God the Father and consecrated (sanctified, made holy) by the Spirit to be obedient to Jesus Christ (the Messiah) and to be sprinkled with [His] blood: May grace (spiritual blessing) and peace be given you in increasing abundance [that spiritual peace to be [^a]realized in and through Christ, [^b]freedom from fears, agitating passions, and moral conflicts]. 
+Who were chosen _and_ foreknown by God the Father and consecrated (sanctified, made holy) by the Spirit to be obedient to Jesus Christ (the Messiah) and to be sprinkled with [His] blood: May grace (spiritual blessing) and peace be given you in increasing abundance [that spiritual peace to be realized in and through Christ, freedom from fears, agitating passions, and moral conflicts]. 
 
 
 
@@ -111,7 +111,7 @@ Praised (honored, blessed) be the God and Father of our Lord Jesus Christ (the M
 
 
 
-Who are being guarded (garrisoned) by God's power through [your] faith [till you fully inherit that [^c]final] salvation that is ready to be revealed [for you] in the last time. 
+Who are being guarded (garrisoned) by God's power through [your] faith [till you fully inherit that final] salvation that is ready to be revealed [for you] in the last time. 
 
 
 
@@ -489,7 +489,7 @@ Since by your obedience to the Truth _through the_ [_Holy_] _Spirit_ you have pu
 
 
 
-You have been regenerated (born again), not from a mortal [^d]origin ([^e]seed, sperm), but from one that is immortal by the _ever_ living and lasting Word of God. 
+You have been regenerated (born again), not from a mortal origin (seed, sperm), but from one that is immortal by the _ever_ living and lasting Word of God. 
 
 
 
@@ -531,4 +531,4 @@ For all flesh (mankind) is like grass, and all its glory (honor) like [the] flow
 
 
 
-But the Word of the Lord ([^f]divine instruction, the Gospel) endures forever. And this Word is the good news which was preached to you.
+But the Word of the Lord (divine instruction, the Gospel) endures forever. And this Word is the good news which was preached to you.

@@ -10,13 +10,13 @@ next: ['Heb 12']
 
 
 ###### 1 
-Now faith is the [^a]substance of things hoped for, the [^b]evidence of things not seen. 
+Now faith is the substance of things hoped for, the evidence of things not seen. 
 
 ###### 2 
 For by it the elders obtained a _good_ testimony. 
 
 ###### 3 
-By faith we understand that the [^c]worlds were framed by the word of God, so that the things which are seen were not made of things which are visible. ## Faith at the Dawn of History 
+By faith we understand that the worlds were framed by the word of God, so that the things which are seen were not made of things which are visible. ## Faith at the Dawn of History 
 
 ###### 4 
 By faith Abel offered to God a more excellent sacrifice than Cain, through which he obtained witness that he was righteous, God testifying of his gifts; and through it he being dead still speaks. 
@@ -40,13 +40,13 @@ By faith he dwelt in the land of promise as _in_ a foreign country, dwelling in 
 for he waited for the city which has foundations, whose builder and maker _is_ God. 
 
 ###### 11 
-By faith Sarah herself also received strength to conceive seed, and she[^d] bore a child when she was past the age, because she judged Him faithful who had promised. 
+By faith Sarah herself also received strength to conceive seed, and she bore a child when she was past the age, because she judged Him faithful who had promised. 
 
 ###### 12 
 Therefore from one man, and him as good as dead, were born _as many_ as the stars of the sky in multitude--innumerable as the sand which is by the seashore. ## The Heavenly Hope 
 
 ###### 13 
-These all died in faith, not having received the promises, but having seen them afar off [^e]were assured of them, embraced _them_ and confessed that they were strangers and pilgrims on the earth. 
+These all died in faith, not having received the promises, but having seen them afar off were assured of them, embraced _them_ and confessed that they were strangers and pilgrims on the earth. 
 
 ###### 14 
 For those who say such things declare plainly that they seek a homeland. 
@@ -61,7 +61,7 @@ But now they desire a better, that is, a heavenly _country._ Therefore God is no
 By faith Abraham, when he was tested, offered up Isaac, and he who had received the promises offered up his only begotten _son,_ 
 
 ###### 18 
-[^f]of whom it was said, "In Isaac your seed shall be called," 
+of whom it was said, "In Isaac your seed shall be called," 
 
 ###### 19 
 concluding that God _was_ able to raise _him_ up, even from the dead, from which he also received him in a figurative sense. 
@@ -82,10 +82,10 @@ By faith Moses, when he was born, was hidden three months by his parents, becaus
 By faith Moses, when he became of age, refused to be called the son of Pharaoh's daughter, 
 
 ###### 25 
-choosing rather to suffer affliction with the people of God than to enjoy the [^g]passing pleasures of sin, 
+choosing rather to suffer affliction with the people of God than to enjoy the passing pleasures of sin, 
 
 ###### 26 
-esteeming the [^h]reproach of Christ greater riches than the treasures [^i]in Egypt; for he looked to the reward. 
+esteeming the reproach of Christ greater riches than the treasures in Egypt; for he looked to the reward. 
 
 ###### 27 
 By faith he forsook Egypt, not fearing the wrath of the king; for he endured as seeing Him who is invisible. 
@@ -100,7 +100,7 @@ By faith they passed through the Red Sea as by dry _land, whereas_ the Egyptians
 By faith the walls of Jericho fell down after they were encircled for seven days. 
 
 ###### 31 
-By faith the harlot Rahab did not perish with those who [^j]did not believe, when she had received the spies with peace. 
+By faith the harlot Rahab did not perish with those who did not believe, when she had received the spies with peace. 
 
 ###### 32 
 And what more shall I say? For the time would fail me to tell of Gideon and Barak and Samson and Jephthah, also _of_ David and Samuel and the prophets: 
@@ -118,7 +118,7 @@ Women received their dead raised to life again. Others were tortured, not accept
 Still others had trial of mockings and scourgings, yes, and of chains and imprisonment. 
 
 ###### 37 
-They were stoned, they were sawn in two, [^k]were tempted, were slain with the sword. They wandered about in sheepskins and goatskins, being destitute, afflicted, tormented-- 
+They were stoned, they were sawn in two, were tempted, were slain with the sword. They wandered about in sheepskins and goatskins, being destitute, afflicted, tormented-- 
 
 ###### 38 
 of whom the world was not worthy. They wandered in deserts and mountains, _in_ dens and caves of the earth. 

@@ -13,13 +13,13 @@ next: ['Song 5']
 Behold, you _are_ fair, my love! Behold, you _are_ fair! You _have_ dove's eyes behind your veil. Your hair _is_ like a flock of goats, Going down from Mount Gilead. 
 
 ###### 2 
-Your teeth _are_ like a flock of shorn _sheep_ Which have come up from the washing, Every one of which bears twins, And none _is_ [^a]barren among them. 
+Your teeth _are_ like a flock of shorn _sheep_ Which have come up from the washing, Every one of which bears twins, And none _is_ barren among them. 
 
 ###### 3 
 Your lips _are_ like a strand of scarlet, And your mouth is lovely. Your temples behind your veil _Are_ like a piece of pomegranate. 
 
 ###### 4 
-Your neck _is_ like the tower of David, Built for an armory, On which hang a thousand [^b]bucklers, All shields of mighty men. 
+Your neck _is_ like the tower of David, Built for an armory, On which hang a thousand bucklers, All shields of mighty men. 
 
 ###### 5 
 Your two breasts _are_ like two fawns, Twins of a gazelle, Which feed among the lilies. 
@@ -37,13 +37,13 @@ Come with me from Lebanon, _my_ spouse, With me from Lebanon. Look from the top 
 You have ravished my heart, My sister, _my_ spouse; You have ravished my heart With one _look_ of your eyes, With one link of your necklace. 
 
 ###### 10 
-How fair is your love, My sister, _my_ spouse! How much better than wine is your love, And the [^c]scent of your perfumes Than all spices! 
+How fair is your love, My sister, _my_ spouse! How much better than wine is your love, And the scent of your perfumes Than all spices! 
 
 ###### 11 
 Your lips, O _my_ spouse, Drip as the honeycomb; Honey and milk _are_ under your tongue; And the fragrance of your garments _Is_ like the fragrance of Lebanon. 
 
 ###### 12 
-A garden [^d]enclosed _Is_ my sister, _my_ spouse, A spring shut up, A fountain sealed. 
+A garden enclosed _Is_ my sister, _my_ spouse, A spring shut up, A fountain sealed. 
 
 ###### 13 
 Your plants _are_ an orchard of pomegranates With pleasant fruits, Fragrant henna with spikenard, 

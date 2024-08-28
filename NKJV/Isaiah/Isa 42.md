@@ -10,13 +10,13 @@ next: ['Isa 43']
 
 
 ###### 1 
-"Behold! My Servant whom I uphold, My [^a]Elect One _in whom_ My soul delights! I have put My Spirit upon Him; He will bring forth justice to the Gentiles. 
+"Behold! My Servant whom I uphold, My Elect One _in whom_ My soul delights! I have put My Spirit upon Him; He will bring forth justice to the Gentiles. 
 
 ###### 2 
 He will not cry out, nor raise _His voice,_ Nor cause His voice to be heard in the street. 
 
 ###### 3 
-A bruised reed He will not break, And [^b]smoking flax He will not [^c]quench; He will bring forth justice for truth. 
+A bruised reed He will not break, And smoking flax He will not quench; He will bring forth justice for truth. 
 
 ###### 4 
 He will not fail nor be discouraged, Till He has established justice in the earth; And the coastlands shall wait for His law." 
@@ -37,7 +37,7 @@ I _am_ the Lord, that _is_ My name; And My glory I will not give to another, Nor
 Behold, the former things have come to pass, And new things I declare; Before they spring forth I tell you of them." ## Praise to the Lord 
 
 ###### 10 
-Sing to the Lord a new song, _And_ His praise from the ends of the earth, You who go down to the sea, and [^d]all that is in it, You coastlands and you inhabitants of them! 
+Sing to the Lord a new song, _And_ His praise from the ends of the earth, You who go down to the sea, and all that is in it, You coastlands and you inhabitants of them! 
 
 ###### 11 
 Let the wilderness and its cities lift up _their voice,_ The villages _that_ Kedar inhabits. Let the inhabitants of Sela sing, Let them shout from the top of the mountains. 
@@ -49,7 +49,7 @@ Let them give glory to the Lord, And declare His praise in the coastlands.
 The Lord shall go forth like a mighty man; He shall stir up _His_ zeal like a man of war. He shall cry out, yes, shout aloud; He shall prevail against His enemies. ## Promise of the Lord's Help 
 
 ###### 14 
-"I have held My peace a long time, I have been still and restrained Myself. _Now_ I will cry like a woman in [^e]labor, I will pant and gasp at once. 
+"I have held My peace a long time, I have been still and restrained Myself. _Now_ I will cry like a woman in labor, I will pant and gasp at once. 
 
 ###### 15 
 I will lay waste the mountains and hills, And dry up all their vegetation; I will make the rivers coastlands, And I will dry up the pools. 
@@ -73,7 +73,7 @@ Seeing many things, but you do not observe; Opening the ears, but he does not he
 The Lord is well pleased for His righteousness' sake; He will exalt the law and make _it_ honorable. 
 
 ###### 22 
-But this _is_ a people robbed and plundered; All of them are [^f]snared in holes, And they are hidden in prison houses; They are for prey, and no one delivers; For plunder, and no one says, "Restore!" 
+But this _is_ a people robbed and plundered; All of them are snared in holes, And they are hidden in prison houses; They are for prey, and no one delivers; For plunder, and no one says, "Restore!" 
 
 ###### 23 
 Who among you will give ear to this? _Who_ will listen and hear for the time to come? 

@@ -13,13 +13,13 @@ next: ['Jas 3']
 My brethren, do not hold the faith of our Lord Jesus Christ, _the Lord_ of glory, with partiality. 
 
 ###### 2 
-For if there should come into your assembly a man with gold rings, in [^a]fine apparel, and there should also come in a poor man in [^b]filthy clothes, 
+For if there should come into your assembly a man with gold rings, in fine apparel, and there should also come in a poor man in filthy clothes, 
 
 ###### 3 
-and you [^c]pay attention to the one wearing the fine clothes and say to him, "You sit here in a good place," and say to the poor man, "You stand there," or, "Sit here at my footstool," 
+and you pay attention to the one wearing the fine clothes and say to him, "You sit here in a good place," and say to the poor man, "You stand there," or, "Sit here at my footstool," 
 
 ###### 4 
-have you not [^d]shown partiality among yourselves, and become judges with evil thoughts? 
+have you not shown partiality among yourselves, and become judges with evil thoughts? 
 
 ###### 5 
 Listen, my beloved brethren: Has God not chosen the poor of this world _to be_ rich in faith and heirs of the kingdom which He promised to those who love Him? 
@@ -34,7 +34,7 @@ Do they not blaspheme that noble name by which you are called?
 If you really fulfill _the_ royal law according to the Scripture, "You shall love your neighbor as yourself," you do well; 
 
 ###### 9 
-but if you [^e]show partiality, you commit sin, and are convicted by the law as transgressors. 
+but if you show partiality, you commit sin, and are convicted by the law as transgressors. 
 
 ###### 10 
 For whoever shall keep the whole law, and yet stumble in one _point,_ he is guilty of all. 
@@ -61,22 +61,22 @@ and one of you says to them, "Depart in peace, be warmed and filled," but you do
 Thus also faith by itself, if it does not have works, is dead. 
 
 ###### 18 
-But someone will say, "You have faith, and I have works." Show me your faith without [^f]your works, and I will show you my faith by [^g]my works. 
+But someone will say, "You have faith, and I have works." Show me your faith without your works, and I will show you my faith by my works. 
 
 ###### 19 
 You believe that there is one God. You do well. Even the demons believe--and tremble! 
 
 ###### 20 
-But do you want to know, O foolish man, that faith without works is [^h]dead? 
+But do you want to know, O foolish man, that faith without works is dead? 
 
 ###### 21 
 Was not Abraham our father justified by works when he offered Isaac his son on the altar? 
 
 ###### 22 
-Do you see that faith was working together with his works, and by works faith was made [^i]perfect? 
+Do you see that faith was working together with his works, and by works faith was made perfect? 
 
 ###### 23 
-And the Scripture was fulfilled which says, "Abraham believed God, and it was [^j]accounted to him for righteousness." And he was called the friend of God. 
+And the Scripture was fulfilled which says, "Abraham believed God, and it was accounted to him for righteousness." And he was called the friend of God. 
 
 ###### 24 
 You see then that a man is justified by works, and not by faith only. 

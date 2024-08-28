@@ -19,10 +19,10 @@ He shall bring it to Aaron's sons, the priests, one of whom shall take from it h
 The rest of the grain offering _shall be_ Aaron's and his sons'. _It is_ most holy of the offerings to the Lord made by fire. 
 
 ###### 4 
-'And if you bring as an offering a grain offering baked in the oven, _it shall be_ unleavened cakes of fine flour mixed with oil, or unleavened wafers anointed[^a] with oil. 
+'And if you bring as an offering a grain offering baked in the oven, _it shall be_ unleavened cakes of fine flour mixed with oil, or unleavened wafers anointed with oil. 
 
 ###### 5 
-But if your offering _is_ a grain offering _baked_ in a [^b]pan, _it shall be of_ fine flour, unleavened, mixed with oil. 
+But if your offering _is_ a grain offering _baked_ in a pan, _it shall be of_ fine flour, unleavened, mixed with oil. 
 
 ###### 6 
 You shall break it in pieces and pour oil on it; it _is_ a grain offering. 

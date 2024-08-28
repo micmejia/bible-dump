@@ -133,7 +133,7 @@ Answer a [self-confident] fool according to his folly, lest he be wise in his ow
 
 
 
-He who sends a message by the hand of a [^a]fool cuts off the feet [of satisfactory delivery] and drinks the damage. 
+He who sends a message by the hand of a fool cuts off the feet [of satisfactory delivery] and drinks the damage. 
 
 
 

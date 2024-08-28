@@ -13,13 +13,13 @@ next: ['Jer 40']
 In the ninth year of Zedekiah king of Judah, in the tenth month, Nebuchadnezzar king of Babylon and all his army came against Jerusalem, and besieged it. 
 
 ###### 2 
-In the eleventh year of Zedekiah, in the fourth month, on the ninth _day_ of the month, the [^a]city was penetrated. 
+In the eleventh year of Zedekiah, in the fourth month, on the ninth _day_ of the month, the city was penetrated. 
 
 ###### 3 
-Then all the princes of the king of Babylon came in and sat in the Middle Gate: Nergal-Sharezer, Samgar-Nebo, Sarsechim, [^b]Rabsaris, Nergal-Sarezer, [^c]Rabmag, with the rest of the princes of the king of Babylon. 
+Then all the princes of the king of Babylon came in and sat in the Middle Gate: Nergal-Sharezer, Samgar-Nebo, Sarsechim, Rabsaris, Nergal-Sarezer, Rabmag, with the rest of the princes of the king of Babylon. 
 
 ###### 4 
-So it was, when Zedekiah the king of Judah and all the men of war saw them, that they fled and went out of the city by night, by way of the king's garden, by the gate between the two walls. And he went out by way of the [^d]plain. 
+So it was, when Zedekiah the king of Judah and all the men of war saw them, that they fled and went out of the city by night, by way of the king's garden, by the gate between the two walls. And he went out by way of the plain. 
 
 ###### 5 
 But the Chaldean army pursued them and overtook Zedekiah in the plains of Jericho. And when they had captured him, they brought him up to Nebuchadnezzar king of Babylon, to Riblah in the land of Hamath, where he pronounced judgment on him. 
@@ -28,7 +28,7 @@ But the Chaldean army pursued them and overtook Zedekiah in the plains of Jerich
 Then the king of Babylon killed the sons of Zedekiah before his eyes in Riblah; the king of Babylon also killed all the nobles of Judah. 
 
 ###### 7 
-Moreover he put out Zedekiah's eyes, and bound him with bronze [^e]fetters to carry him off to Babylon. 
+Moreover he put out Zedekiah's eyes, and bound him with bronze fetters to carry him off to Babylon. 
 
 ###### 8 
 And the Chaldeans burned the king's house and the houses of the people with fire, and broke down the walls of Jerusalem. 
@@ -37,7 +37,7 @@ And the Chaldeans burned the king's house and the houses of the people with fire
 Then Nebuzaradan the captain of the guard carried away captive to Babylon the remnant of the people who remained in the city and those who defected to him, with the rest of the people who remained. 
 
 ###### 10 
-But Nebuzaradan the captain of the guard left in the land of Judah the poor people, who had nothing, and gave them vineyards and fields [^f]at the same time. ## Jeremiah Goes Free 
+But Nebuzaradan the captain of the guard left in the land of Judah the poor people, who had nothing, and gave them vineyards and fields at the same time. ## Jeremiah Goes Free 
 
 ###### 11 
 Now Nebuchadnezzar king of Babylon gave charge concerning Jeremiah to Nebuzaradan the captain of the guard, saying, 

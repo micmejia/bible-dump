@@ -406,7 +406,7 @@ The Arvadites, the Zemarites and the Hamathites. Afterward the families of the C
 
 
 
-And the territory of the Canaanites extended from Sidon as one goes to Gerar as far as Gaza, and as one goes to [^a]Sodom, Gomorrah, Admah, and Zeboiim, as far as Lasha. 
+And the territory of the Canaanites extended from Sidon as one goes to Gerar as far as Gaza, and as one goes to Sodom, Gomorrah, Admah, and Zeboiim, as far as Lasha. 
 
 
 

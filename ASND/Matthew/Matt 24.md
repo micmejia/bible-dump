@@ -502,7 +502,7 @@ Ipangangaral sa buong mundo ang Magandang Balita tungkol sa paghahari ng Dios up
 
 
 
-"Nagsalita si Propeta Daniel tungkol sa kasuklam-suklam <i class="trans-change">na darating na magiging dahilan_ ng pag-iwan sa templo. (Kayong mga bumabasa, unawain ninyo itong mabuti!) Kapag nakita na ninyong nasa loob na ito ng templo,[^a] 
+"Nagsalita si Propeta Daniel tungkol sa kasuklam-suklam <i class="trans-change">na darating na magiging dahilan_ ng pag-iwan sa templo. (Kayong mga bumabasa, unawain ninyo itong mabuti!) Kapag nakita na ninyong nasa loob na ito ng templo, 
 
 
 
@@ -568,7 +568,7 @@ ang mga nasa Judea ay dapat nang tumakas papunta sa kabundukan.
 
 
 
-Ang nasa labas ng bahay[^b] ay huwag nang pumasok para kumuha ng anumang gamit. 
+Ang nasa labas ng bahay ay huwag nang pumasok para kumuha ng anumang gamit. 
 
 
 
@@ -733,7 +733,7 @@ Sapagkat sa mga panahong iyon, makakaranas ang mga tao ng napakatinding kapighat
 
 
 
-Kung hindi paiikliin[^c] <i class="trans-change">ng Dios_ ang panahong iyon, walang matitirang buhay. Ngunit alang-alang sa kanyang mga pinili, paiikliin niya ang panahong iyon. 
+Kung hindi paiikliin <i class="trans-change">ng Dios_ ang panahong iyon, walang matitirang buhay. Ngunit alang-alang sa kanyang mga pinili, paiikliin niya ang panahong iyon. 
 
 
 
@@ -865,7 +865,7 @@ Tandaan ninyo ang mga ito! Binibigyan ko na kayo ng babala habang hindi pa nangy
 
 
 
-"Kaya kung may magsabi sa inyo, 'Naroon ang Cristo sa ilang!' huwag kayong pupunta roon. At kung may magsabing, 'Nariyan siya sa silid!'[^d] huwag kayong maniniwala. 
+"Kaya kung may magsabi sa inyo, 'Naroon ang Cristo sa ilang!' huwag kayong pupunta roon. At kung may magsabing, 'Nariyan siya sa silid!' huwag kayong maniniwala. 
 
 
 
@@ -931,7 +931,7 @@ Sapagkat <i class="trans-change">ako na_ Anak ng Tao ay babalik na tulad ng kidl
 
 
 
-May kasabihan na, 'Kung saan may bangkay, doon nag-uumpukan ang mga buwitre.' "[^e] ## Ang Pagbabalik ni Jesus sa Mundo 
+May kasabihan na, 'Kung saan may bangkay, doon nag-uumpukan ang mga buwitre.' " ## Ang Pagbabalik ni Jesus sa Mundo 
 
 
 
@@ -964,7 +964,7 @@ May kasabihan na, 'Kung saan may bangkay, doon nag-uumpukan ang mga buwitre.' 
 
 
 
-"Pagkatapos ng mga araw na iyon ng matinding kahirapan, magdidilim ang araw, hindi na magliliwanag ang buwan, at mahuhulog ang mga bituin mula sa langit. Ang mga bagay[^f] sa kalawakan ay mayayanig at mawawala sa kani-kanilang landas. 
+"Pagkatapos ng mga araw na iyon ng matinding kahirapan, magdidilim ang araw, hindi na magliliwanag ang buwan, at mahuhulog ang mga bituin mula sa langit. Ang mga bagay sa kalawakan ay mayayanig at mawawala sa kani-kanilang landas. 
 
 
 
@@ -997,7 +997,7 @@ May kasabihan na, 'Kung saan may bangkay, doon nag-uumpukan ang mga buwitre.' 
 
 
 
-Pagkatapos, makikita sa langit ang tanda ng aking pagbabalik, at maghihinagpis ang lahat ng tao sa mundo dahil dito. At makikita nila <i class="trans-change">ako na_ Anak ng Tao na dumarating na mula sa ulap na taglay ang kapangyarihan at kaluwalhatian.[^g] 
+Pagkatapos, makikita sa langit ang tanda ng aking pagbabalik, at maghihinagpis ang lahat ng tao sa mundo dahil dito. At makikita nila <i class="trans-change">ako na_ Anak ng Tao na dumarating na mula sa ulap na taglay ang kapangyarihan at kaluwalhatian. 
 
 
 
@@ -1162,7 +1162,7 @@ Sinasabi ko sa inyo ang totoo, matutupad ang lahat ng ito bago mawala ang henera
 
 
 
-Ang langit at ang lupa ay maglalaho, ngunit ang mga salita ko ay mananatili magpakailanman."[^h] ## Walang Taong Nakakaalam Kung Kailan Babalik si Jesus 
+Ang langit at ang lupa ay maglalaho, ngunit ang mga salita ko ay mananatili magpakailanman." ## Walang Taong Nakakaalam Kung Kailan Babalik si Jesus 
 
 
 
@@ -1690,4 +1690,4 @@ Darating ang kanyang amo sa araw o oras na hindi niya inaasahan,
 
 
 
-at parurusahan siya nang matindi. Isasama siya sa mga mapagkunwari, at doon ay iiyak siya at magngangalit ang kanyang ngipin."[^i]
+at parurusahan siya nang matindi. Isasama siya sa mga mapagkunwari, at doon ay iiyak siya at magngangalit ang kanyang ngipin."

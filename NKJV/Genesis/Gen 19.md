@@ -34,7 +34,7 @@ and said, "Please, my brethren, do not do so wickedly!
 See now, I have two daughters who have not known a man; please, let me bring them out to you, and you may do to them as you wish; only do nothing to these men, since this is the reason they have come under the shadow of my roof." 
 
 ###### 9 
-And they said, "Stand back!" Then they said, "This one came in to [^a]stay _here,_ and he keeps acting as a judge; now we will deal worse with you than with them." So they pressed hard against the man Lot, and came near to break down the door. 
+And they said, "Stand back!" Then they said, "This one came in to stay _here,_ and he keeps acting as a judge; now we will deal worse with you than with them." So they pressed hard against the man Lot, and came near to break down the door. 
 
 ###### 10 
 But the men reached out their hands and pulled Lot into the house with them, and shut the door. 
@@ -58,7 +58,7 @@ When the morning dawned, the angels urged Lot to hurry, saying, "Arise, take you
 And while he lingered, the men took hold of his hand, his wife's hand, and the hands of his two daughters, the Lord being merciful to him, and they brought him out and set him outside the city. 
 
 ###### 17 
-So it came to pass, when they had brought them outside, that [^b]he said, "Escape for your life! Do not look behind you nor stay anywhere in the plain. Escape to the mountains, lest you be [^c]destroyed." 
+So it came to pass, when they had brought them outside, that he said, "Escape for your life! Do not look behind you nor stay anywhere in the plain. Escape to the mountains, lest you be destroyed." 
 
 ###### 18 
 Then Lot said to them, "Please, no, my lords! 
@@ -73,7 +73,7 @@ See now, this city _is_ near _enough_ to flee to, and it _is_ a little one; plea
 And he said to him, "See, I have favored you concerning this thing also, in that I will not overthrow this city for which you have spoken. 
 
 ###### 22 
-Hurry, escape there. For I cannot do anything until you arrive there." Therefore the name of the city was called [^d]Zoar. 
+Hurry, escape there. For I cannot do anything until you arrive there." Therefore the name of the city was called Zoar. 
 
 ###### 23 
 The sun had risen upon the earth when Lot entered Zoar. 
@@ -82,7 +82,7 @@ The sun had risen upon the earth when Lot entered Zoar.
 Then the Lord rained brimstone and fire on Sodom and Gomorrah, from the Lord out of the heavens. 
 
 ###### 25 
-So He [^e]overthrew those cities, all the plain, all the inhabitants of the cities, and what grew on the ground. 
+So He overthrew those cities, all the plain, all the inhabitants of the cities, and what grew on the ground. 
 
 ###### 26 
 But his wife looked back behind him, and she became a pillar of salt. 
@@ -103,13 +103,13 @@ Then Lot went up out of Zoar and dwelt in the mountains, and his two daughters w
 Now the firstborn said to the younger, "Our father _is_ old, and _there is_ no man on the earth to come in to us as is the custom of all the earth. 
 
 ###### 32 
-Come, let us make our father drink wine, and we will lie with him, that we may preserve the [^f]lineage of our father." 
+Come, let us make our father drink wine, and we will lie with him, that we may preserve the lineage of our father." 
 
 ###### 33 
 So they made their father drink wine that night. And the firstborn went in and lay with her father, and he did not know when she lay down or when she arose. 
 
 ###### 34 
-It happened on the next day that the firstborn said to the younger, "Indeed I lay with my father last night; let us make him drink wine tonight also, and you go in _and_ lie with him, that we may preserve the [^g]lineage of our father." 
+It happened on the next day that the firstborn said to the younger, "Indeed I lay with my father last night; let us make him drink wine tonight also, and you go in _and_ lie with him, that we may preserve the lineage of our father." 
 
 ###### 35 
 Then they made their father drink wine that night also. And the younger arose and lay with him, and he did not know when she lay down or when she arose. 

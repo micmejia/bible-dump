@@ -19,7 +19,7 @@ He judged Israel twenty-three years; and he died and was buried in Shamir. ## Ja
 After him arose Jair, a Gileadite; and he judged Israel twenty-two years. 
 
 ###### 4 
-Now he had thirty sons who rode on thirty donkeys; they also had thirty towns, which are called [^a]"Havoth Jair" to this day, which _are_ in the land of Gilead. 
+Now he had thirty sons who rode on thirty donkeys; they also had thirty towns, which are called "Havoth Jair" to this day, which _are_ in the land of Gilead. 
 
 ###### 5 
 And Jair died and was buried in Camon. ## Israel Oppressed Again 
@@ -31,7 +31,7 @@ Then the children of Israel again did evil in the sight of the Lord, and served 
 So the anger of the Lord was hot against Israel; and He sold them into the hands of the Philistines and into the hands of the people of Ammon. 
 
 ###### 8 
-From that year they [^b]harassed and oppressed the children of Israel for eighteen years--all the children of Israel who _were_ on the other side of the Jordan in the land of the Amorites, in Gilead. 
+From that year they harassed and oppressed the children of Israel for eighteen years--all the children of Israel who _were_ on the other side of the Jordan in the land of the Amorites, in Gilead. 
 
 ###### 9 
 Moreover the people of Ammon crossed over the Jordan to fight against Judah also, against Benjamin, and against the house of Ephraim, so that Israel was severely distressed. 
@@ -43,7 +43,7 @@ And the children of Israel cried out to the Lord, saying, "We have sinned agains
 So the Lord said to the children of Israel, "_Did I_ not _deliver you_ from the Egyptians and from the Amorites and from the people of Ammon and from the Philistines? 
 
 ###### 12 
-Also the Sidonians and Amalekites and [^c]Maonites oppressed you; and you cried out to Me, and I delivered you from their hand. 
+Also the Sidonians and Amalekites and Maonites oppressed you; and you cried out to Me, and I delivered you from their hand. 
 
 ###### 13 
 Yet you have forsaken Me and served other gods. Therefore I will deliver you no more. 

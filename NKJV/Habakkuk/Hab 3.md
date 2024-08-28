@@ -9,7 +9,7 @@ up: ['Habakkuk']
 
 
 ###### 1 
-A prayer of Habakkuk the prophet, on [^a]Shigionoth. 
+A prayer of Habakkuk the prophet, on Shigionoth. 
 
 ###### 2 
 O Lord, I have heard Your speech _and_ was afraid; O Lord, revive Your work in the midst of the years! In the midst of the years make _it_ known; In wrath remember mercy. 
@@ -33,7 +33,7 @@ I saw the tents of Cushan in affliction; The curtains of the land of Midian trem
 O Lord, were _You_ displeased with the rivers, _Was_ Your anger against the rivers, _Was_ Your wrath against the sea, That You rode on Your horses, Your chariots of salvation? 
 
 ###### 9 
-Your bow was made quite ready; Oaths were sworn over _Your_ [^b]arrows. <i class="selah">Selah_ You divided the earth with rivers. 
+Your bow was made quite ready; Oaths were sworn over _Your_ arrows. <i class="selah">Selah_ You divided the earth with rivers. 
 
 ###### 10 
 The mountains saw You _and_ trembled; The overflowing of the water passed by. The deep uttered its voice, _And_ lifted its hands on high. 
@@ -42,7 +42,7 @@ The mountains saw You _and_ trembled; The overflowing of the water passed by. Th
 The sun and moon stood still in their habitation; At the light of Your arrows they went, At the shining of Your glittering spear. 
 
 ###### 12 
-You marched through the land in indignation; You [^c]trampled the nations in anger. 
+You marched through the land in indignation; You trampled the nations in anger. 
 
 ###### 13 
 You went forth for the salvation of Your people, For salvation with Your Anointed. You struck the head from the house of the wicked, By laying bare from foundation to neck. <i class="selah">Selah_ 
@@ -63,4 +63,4 @@ Though the fig tree may not blossom, Nor fruit be on the vines; Though the labor
 Yet I will rejoice in the Lord, I will joy in the God of my salvation. 
 
 ###### 19 
-[^d]The Lord God is my strength; He will make my feet like deer's _feet,_ And He will make me walk on my high hills. To the Chief Musician. With my stringed instruments.
+The Lord God is my strength; He will make my feet like deer's _feet,_ And He will make me walk on my high hills. To the Chief Musician. With my stringed instruments.

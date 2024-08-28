@@ -271,7 +271,7 @@ Sinasabi mong ang iyong pagiging reyna ay walang katapusan. Pero hindi mo inisip
 
 
 
-Kaya pakinggan mo ito, ikaw na mahilig sa kalayawan at nag-aakalang ligtas. Sinasabi mo pa sa iyong sarili na ikaw ang Dios at wala nang iba pa. Inaakala mo ring hindi ka mababalo o mawawalan ng mga anak.[^a] 
+Kaya pakinggan mo ito, ikaw na mahilig sa kalayawan at nag-aakalang ligtas. Sinasabi mo pa sa iyong sarili na ikaw ang Dios at wala nang iba pa. Inaakala mo ring hindi ka mababalo o mawawalan ng mga anak. 
 
 
 

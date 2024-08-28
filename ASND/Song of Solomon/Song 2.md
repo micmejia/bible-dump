@@ -40,7 +40,7 @@ next: ['Song 3']
 
 
 
-Akoʼy isang bulaklak lamang ng Sharon, isang liryo[^a] sa lambak. 
+Akoʼy isang bulaklak lamang ng Sharon, isang liryo sa lambak. 
 
 
 
@@ -436,7 +436,7 @@ Namumukadkad na ang mga bulaklak sa parang, panahon na ng pag-aawitan at maririn
 
 
 
-Ang mga bunga ng igos ay hinog na[^b] at humahalimuyak ang bulaklak ng mga ubas. Halika na irog kong maganda, sa akin ay sumama ka na." 
+Ang mga bunga ng igos ay hinog na at humahalimuyak ang bulaklak ng mga ubas. Halika na irog kong maganda, sa akin ay sumama ka na." 
 
 
 
@@ -502,7 +502,7 @@ Katulad moʼy kalapating nagtatago sa bitak ng malaking bato. Ipakita mo sa akin
 
 
 
-Bilis! Hulihin ang mga asong-gubat[^c] na sumisira ng aming mga ubasang namumulaklak. 
+Bilis! Hulihin ang mga asong-gubat na sumisira ng aming mga ubasang namumulaklak. 
 
 
 

@@ -73,7 +73,7 @@ Tumahi rin sina Bezalel ng banal na mga damit para sa mga pari ayon sa iniutos n
 
 
 
-Nagtahi rin sila ng espesyal na damit[^a] ng mga pari. Ang telang ginamit nila ay pinong linen na binurdahan gamit ang lanang kulay asul, ube at pula. 
+Nagtahi rin sila ng espesyal na damit ng mga pari. Ang telang ginamit nila ay pinong linen na binurdahan gamit ang lanang kulay asul, ube at pula. 
 
 
 
@@ -205,7 +205,7 @@ Ang sinturon nito ay gawa sa pinong <i class="trans-change">telang_ linen na bin
 
 
 
-Ikinabit nila ang mga batong onix sa balangkas na ginto. Inukitan nila ito ng pangalan ng mga anak ni Jacob[^b] gaya ng pagkakaukit sa pantatak. 
+Ikinabit nila ang mga batong onix sa balangkas na ginto. Inukitan nila ito ng pangalan ng mga anak ni Jacob gaya ng pagkakaukit sa pantatak. 
 
 
 

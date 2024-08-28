@@ -10,7 +10,7 @@ next: ['Isa 40']
 
 
 ###### 1 
-At that time [^a]Merodach-Baladan the son of Baladan, king of Babylon, sent letters and a present to Hezekiah, for he heard that he had been sick and had recovered. 
+At that time Merodach-Baladan the son of Baladan, king of Babylon, sent letters and a present to Hezekiah, for he heard that he had been sick and had recovered. 
 
 ###### 2 
 And Hezekiah was pleased with them, and showed them the house of his treasures--the silver and gold, the spices and precious ointment, and all his armory--all that was found among his treasures. There was nothing in his house or in all his dominion that Hezekiah did not show them. 

@@ -10,10 +10,10 @@ next: ['1 Sam 5']
 
 
 ###### 1 
-And the word of Samuel came to all [^a]Israel. ## The Ark of God Captured Now Israel went out to battle against the Philistines, and encamped beside Ebenezer; and the Philistines encamped in Aphek. 
+And the word of Samuel came to all Israel. ## The Ark of God Captured Now Israel went out to battle against the Philistines, and encamped beside Ebenezer; and the Philistines encamped in Aphek. 
 
 ###### 2 
-Then the Philistines put themselves in battle array against Israel. And when they joined battle, Israel was [^b]defeated by the Philistines, who killed about four thousand men of the army in the field. 
+Then the Philistines put themselves in battle array against Israel. And when they joined battle, Israel was defeated by the Philistines, who killed about four thousand men of the army in the field. 
 
 ###### 3 
 And when the people had come into the camp, the elders of Israel said, "Why has the Lord defeated us today before the Philistines? Let us bring the ark of the covenant of the Lord from Shiloh to us, that when it comes among us it may save us from the hand of our enemies." 
@@ -34,10 +34,10 @@ So the Philistines were afraid, for they said, "God has come into the camp!" And
 Woe to us! Who will deliver us from the hand of these mighty gods? These _are_ the gods who struck the Egyptians with all the plagues in the wilderness. 
 
 ###### 9 
-Be strong and conduct yourselves like men, you Philistines, that you do not become servants of the Hebrews, as they have been to you. [^c]Conduct yourselves like men, and fight!" 
+Be strong and conduct yourselves like men, you Philistines, that you do not become servants of the Hebrews, as they have been to you. Conduct yourselves like men, and fight!" 
 
 ###### 10 
-So the Philistines fought, and Israel was [^d]defeated, and every man fled to his tent. There was a very great slaughter, and there fell of Israel thirty thousand foot soldiers. 
+So the Philistines fought, and Israel was defeated, and every man fled to his tent. There was a very great slaughter, and there fell of Israel thirty thousand foot soldiers. 
 
 ###### 11 
 Also the ark of God was captured; and the two sons of Eli, Hophni and Phinehas, died. ## Death of Eli 
@@ -46,13 +46,13 @@ Also the ark of God was captured; and the two sons of Eli, Hophni and Phinehas, 
 Then a man of Benjamin ran from the battle line the same day, and came to Shiloh with his clothes torn and dirt on his head. 
 
 ###### 13 
-Now when he came, there was Eli, sitting on a seat [^e]by the wayside watching, for his heart [^f]trembled for the ark of God. And when the man came into the city and told _it,_ all the city cried out. 
+Now when he came, there was Eli, sitting on a seat by the wayside watching, for his heart trembled for the ark of God. And when the man came into the city and told _it,_ all the city cried out. 
 
 ###### 14 
 When Eli heard the noise of the outcry, he said, "What _does_ the sound of this tumult _mean?_" And the man came quickly and told Eli. 
 
 ###### 15 
-Eli was ninety-eight years old, and his eyes were so [^g]dim that he could not see. 
+Eli was ninety-eight years old, and his eyes were so dim that he could not see. 
 
 ###### 16 
 Then the man said to Eli, "I _am_ he who came from the battle. And I fled today from the battle line." And he said, "What happened, my son?" 
@@ -67,10 +67,10 @@ Then it happened, when he made mention of the ark of God, that Eli fell off the 
 Now his daughter-in-law, Phinehas' wife, was with child, _due_ to be delivered; and when she heard the news that the ark of God was captured, and that her father-in-law and her husband were dead, she bowed herself and gave birth, for her labor pains came upon her. 
 
 ###### 20 
-And about the time of her death the women who stood by her said to her, "Do not fear, for you have borne a son." But she did not answer, nor did she [^h]regard _it._ 
+And about the time of her death the women who stood by her said to her, "Do not fear, for you have borne a son." But she did not answer, nor did she regard _it._ 
 
 ###### 21 
-Then she named the child Ichabod,[^i] saying, "The glory has departed from Israel!" because the ark of God had been captured and because of her father-in-law and her husband. 
+Then she named the child Ichabod, saying, "The glory has departed from Israel!" because the ark of God had been captured and because of her father-in-law and her husband. 
 
 ###### 22 
 And she said, "The glory has departed from Israel, for the ark of God has been captured."

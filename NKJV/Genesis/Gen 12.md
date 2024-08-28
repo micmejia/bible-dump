@@ -22,19 +22,19 @@ I will bless those who bless you, And I will curse him who curses you; And in yo
 So Abram departed as the Lord had spoken to him, and Lot went with him. And Abram _was_ seventy-five years old when he departed from Haran. 
 
 ###### 5 
-Then Abram took Sarai his wife and Lot his brother's son, and all their possessions that they had gathered, and the [^a]people whom they had acquired in Haran, and they departed to go to the land of Canaan. So they came to the land of Canaan. 
+Then Abram took Sarai his wife and Lot his brother's son, and all their possessions that they had gathered, and the people whom they had acquired in Haran, and they departed to go to the land of Canaan. So they came to the land of Canaan. 
 
 ###### 6 
-Abram passed through the land to the place of Shechem, as far as [^b]the terebinth tree of Moreh. And the Canaanites _were_ then in the land. 
+Abram passed through the land to the place of Shechem, as far as the terebinth tree of Moreh. And the Canaanites _were_ then in the land. 
 
 ###### 7 
-Then the Lord appeared to Abram and said, "To your [^c]descendants I will give this land." And there he built an altar to the Lord, who had appeared to him. 
+Then the Lord appeared to Abram and said, "To your descendants I will give this land." And there he built an altar to the Lord, who had appeared to him. 
 
 ###### 8 
 And he moved from there to the mountain east of Bethel, and he pitched his tent _with_ Bethel on the west and Ai on the east; there he built an altar to the Lord and called on the name of the Lord. 
 
 ###### 9 
-So Abram journeyed, going on still toward the [^d]South. ## Abram in Egypt 
+So Abram journeyed, going on still toward the South. ## Abram in Egypt 
 
 ###### 10 
 Now there was a famine in the land, and Abram went down to Egypt to dwell there, for the famine _was_ severe in the land. 
@@ -46,7 +46,7 @@ And it came to pass, when he was close to entering Egypt, that he said to Sarai 
 Therefore it will happen, when the Egyptians see you, that they will say, 'This _is_ his wife'; and they will kill me, but they will let you live. 
 
 ###### 13 
-Please say you _are_ my sister, that it may be well with me for your sake, and that [^e]I may live because of you." 
+Please say you _are_ my sister, that it may be well with me for your sake, and that I may live because of you." 
 
 ###### 14 
 So it was, when Abram came into Egypt, that the Egyptians saw the woman, that she _was_ very beautiful. 

@@ -217,7 +217,7 @@ And it shall be in that day, says the Lord, that the understanding _and_ courage
 
 
 
-Then I [Jeremiah] said, [^a]Alas, Lord God! Surely You have greatly deceived _and_ misled this people and Jerusalem, [for the prophets represented You as] saying [to Your people], You shall have peace, whereas the sword has reached to [their very] life. 
+Then I [Jeremiah] said, Alas, Lord God! Surely You have greatly deceived _and_ misled this people and Jerusalem, [for the prophets represented You as] saying [to Your people], You shall have peace, whereas the sword has reached to [their very] life. 
 
 
 

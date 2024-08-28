@@ -28,7 +28,7 @@ next: ['Jer 33']
 
 
 
-The word that came to Jeremiah from the Lord in the tenth year of Zedekiah king of Judah, which was the eighteenth year of [^a]Nebuchadrezzar. 
+The word that came to Jeremiah from the Lord in the tenth year of Zedekiah king of Judah, which was the eighteenth year of Nebuchadrezzar. 
 
 
 
@@ -721,7 +721,7 @@ And they have turned their backs to Me and not their faces; though I taught them
 
 
 
-But they set their abominations [of idol worship] in the house which is called by My [^b]Name to defile it. 
+But they set their abominations [of idol worship] in the house which is called by My Name to defile it. 
 
 
 

@@ -154,7 +154,7 @@ When a man shall take hold of his brother in the house of his father, saying, Yo
 
 
 
-In that day he will answer, saying, I will not be a healer _and_ one who binds up; [^a]_I am not a physician_. For in my house is neither bread nor clothing; you shall not make me judge _and_ ruler of the people. 
+In that day he will answer, saying, I will not be a healer _and_ one who binds up; _I am not a physician_. For in my house is neither bread nor clothing; you shall not make me judge _and_ ruler of the people. 
 
 
 

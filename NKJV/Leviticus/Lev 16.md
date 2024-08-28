@@ -16,7 +16,7 @@ Now the Lord spoke to Moses after the death of the two sons of Aaron, when they 
 and the Lord said to Moses: "Tell Aaron your brother not to come at _just_ any time into the Holy _Place_ inside the veil, before the mercy seat which _is_ on the ark, lest he die; for I will appear in the cloud above the mercy seat. 
 
 ###### 3 
-[^a]"Thus Aaron shall come into the Holy _Place:_ with _the blood of_ a young bull as a sin offering, and _of_ a ram as a burnt offering. 
+"Thus Aaron shall come into the Holy _Place:_ with _the blood of_ a young bull as a sin offering, and _of_ a ram as a burnt offering. 
 
 ###### 4 
 He shall put the holy linen tunic and the linen trousers on his body; he shall be girded with a linen sash, and with the linen turban he shall be attired. These _are_ holy garments. Therefore he shall wash his body in water, and put them on. 
@@ -64,7 +64,7 @@ There shall be no man in the tabernacle of meeting when he goes in to make atone
 And he shall go out to the altar that _is_ before the Lord, and make atonement for it, and shall take some of the blood of the bull and some of the blood of the goat, and put it on the horns of the altar all around. 
 
 ###### 19 
-Then he shall sprinkle some of the blood on it with his finger seven times, cleanse it, and consecrate[^b] it from the [^c]uncleanness of the children of Israel. 
+Then he shall sprinkle some of the blood on it with his finger seven times, cleanse it, and consecrate it from the uncleanness of the children of Israel. 
 
 ###### 20 
 "And when he has made an end of atoning for the Holy _Place_, the tabernacle of meeting, and the altar, he shall bring the live goat. 
@@ -73,13 +73,13 @@ Then he shall sprinkle some of the blood on it with his finger seven times, clea
 Aaron shall lay both his hands on the head of the live goat, confess over it all the iniquities of the children of Israel, and all their transgressions, concerning all their sins, putting them on the head of the goat, and shall send _it_ away into the wilderness by the hand of a suitable man. 
 
 ###### 22 
-The goat [^d]shall bear on itself all their iniquities to an [^e]uninhabited land; and he shall release the goat in the wilderness. 
+The goat shall bear on itself all their iniquities to an uninhabited land; and he shall release the goat in the wilderness. 
 
 ###### 23 
 "Then Aaron shall come into the tabernacle of meeting, shall take off the linen garments which he put on when he went into the Holy _Place_, and shall leave them there. 
 
 ###### 24 
-And he shall wash his body with water in a holy place, put on his garments, come out and offer his burnt offering and the burnt offering of the people, and make [^f]atonement for himself and for the people. 
+And he shall wash his body with water in a holy place, put on his garments, come out and offer his burnt offering and the burnt offering of the people, and make atonement for himself and for the people. 
 
 ###### 25 
 The fat of the sin offering he shall burn on the altar. 
@@ -94,10 +94,10 @@ The bull _for_ the sin offering and the goat _for_ the sin offering, whose blood
 Then he who burns them shall wash his clothes and bathe his body in water, and afterward he may come into the camp. 
 
 ###### 29 
-"_This_ shall be a statute forever for you: In the seventh month, on the tenth _day_ of the month, you shall [^g]afflict your souls, and do no work at all, _whether_ a native of your own country or a stranger who [^h]dwells among you. 
+"_This_ shall be a statute forever for you: In the seventh month, on the tenth _day_ of the month, you shall afflict your souls, and do no work at all, _whether_ a native of your own country or a stranger who dwells among you. 
 
 ###### 30 
-For on that day _the priest_ shall make [^i]atonement for you, to cleanse you, _that_ you may be clean from all your sins before the Lord. 
+For on that day _the priest_ shall make atonement for you, to cleanse you, _that_ you may be clean from all your sins before the Lord. 
 
 ###### 31 
 It _is_ a sabbath of solemn rest for you, and you shall afflict your souls. _It is_ a statute forever. 
@@ -106,7 +106,7 @@ It _is_ a sabbath of solemn rest for you, and you shall afflict your souls. _It 
 And the priest, who is anointed and consecrated to minister as priest in his father's place, shall make atonement, and put on the linen clothes, the holy garments; 
 
 ###### 33 
-then he shall make [^j]atonement for [^k]the Holy Sanctuary, and he shall make atonement for the tabernacle of meeting and for the altar, and he shall make atonement for the priests and for all the people of the assembly. 
+then he shall make atonement for the Holy Sanctuary, and he shall make atonement for the tabernacle of meeting and for the altar, and he shall make atonement for the priests and for all the people of the assembly. 
 
 ###### 34 
 This shall be an everlasting statute for you, to make atonement for the children of Israel, for all their sins, once a year." And he did as the Lord commanded Moses.

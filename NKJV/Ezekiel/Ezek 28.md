@@ -13,7 +13,7 @@ next: ['Ezek 29']
 The word of the Lord came to me again, saying, 
 
 ###### 2 
-"Son of man, say to the prince of Tyre, 'Thus says the Lord God: "Because your heart _is_ lifted[^a] up, And you say, 'I _am_ a god, I sit _in_ the seat of gods, In the midst of the seas,' Yet you _are_ a man, and not a god, Though you set your heart as the heart of a god 
+"Son of man, say to the prince of Tyre, 'Thus says the Lord God: "Because your heart _is_ lifted up, And you say, 'I _am_ a god, I sit _in_ the seat of gods, In the midst of the seas,' Yet you _are_ a man, and not a god, Though you set your heart as the heart of a god 
 
 ###### 3 
 (Behold, you _are_ wiser than Daniel! There is no secret that can be hidden from you! 
@@ -58,7 +58,7 @@ You _were_ perfect in your ways from the day you were created, Till iniquity was
 "By the abundance of your trading You became filled with violence within, And you sinned; Therefore I cast you as a profane thing Out of the mountain of God; And I destroyed you, O covering cherub, From the midst of the fiery stones. 
 
 ###### 17 
-"Your heart was [^b]lifted up because of your beauty; You corrupted your wisdom for the sake of your splendor; I cast you to the ground, I laid you before kings, That they might gaze at you. 
+"Your heart was lifted up because of your beauty; You corrupted your wisdom for the sake of your splendor; I cast you to the ground, I laid you before kings, That they might gaze at you. 
 
 ###### 18 
 "You defiled your sanctuaries By the multitude of your iniquities, By the iniquity of your trading; Therefore I brought fire from your midst; It devoured you, And I turned you to ashes upon the earth In the sight of all who saw you. 
@@ -85,4 +85,4 @@ For I will send pestilence upon her, And blood in her streets; The wounded shall
 'Thus says the Lord God: "When I have gathered the house of Israel from the peoples among whom they are scattered, and am hallowed in them in the sight of the Gentiles, then they will dwell in their own land which I gave to My servant Jacob. 
 
 ###### 26 
-And they will dwell [^c]safely there, build houses, and plant vineyards; yes, they will dwell securely, when I execute judgments on all those around them who despise them. Then they shall know that I _am_ the Lord their God." ' "
+And they will dwell safely there, build houses, and plant vineyards; yes, they will dwell securely, when I execute judgments on all those around them who despise them. Then they shall know that I _am_ the Lord their God." ' "

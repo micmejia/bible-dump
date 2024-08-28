@@ -10,10 +10,10 @@ next: ['Hos 3']
 
 
 ###### 1 
-Say to your brethren, [^a]'My people,' And to your sisters, [^b]'Mercy _is shown._' ## God's Unfaithful People 
+Say to your brethren, 'My people,' And to your sisters, 'Mercy _is shown._' ## God's Unfaithful People 
 
 ###### 2 
-"Bring[^c] charges against your mother, [^d]bring charges; For she _is_ not My wife, nor _am_ I her Husband! Let her put away her harlotries from her sight, And her adulteries from between her breasts; 
+"Bring charges against your mother, bring charges; For she _is_ not My wife, nor _am_ I her Husband! Let her put away her harlotries from her sight, And her adulteries from between her breasts; 
 
 ###### 3 
 Lest I strip her naked And expose her, as in the day she was born, And make her like a wilderness, And set her like a dry land, And slay her with thirst. 
@@ -25,10 +25,10 @@ Lest I strip her naked And expose her, as in the day she was born, And make her 
 For their mother has played the harlot; She who conceived them has behaved shamefully. For she said, 'I will go after my lovers, Who give _me_ my bread and my water, My wool and my linen, My oil and my drink.' 
 
 ###### 6 
-"Therefore, behold, I will hedge up your way with thorns, And [^e]wall her in, So that she cannot find her paths. 
+"Therefore, behold, I will hedge up your way with thorns, And wall her in, So that she cannot find her paths. 
 
 ###### 7 
-She will [^f]chase her lovers, But not overtake them; Yes, she will seek them, but not find _them._ Then she will say, 'I will go and return to my first husband, For then _it was_ better for me than now.' 
+She will chase her lovers, But not overtake them; Yes, she will seek them, but not find _them._ Then she will say, 'I will go and return to my first husband, For then _it was_ better for me than now.' 
 
 ###### 8 
 For she did not know That I gave her grain, new wine, and oil, And multiplied her silver and gold-- _Which_ they prepared for Baal. 
@@ -49,13 +49,13 @@ I will also cause all her mirth to cease, Her feast days, Her New Moons, Her Sab
 I will punish her For the days of the Baals to which she burned incense. She decked herself with her earrings and jewelry, And went after her lovers; But Me she forgot," says the Lord. ## God's Mercy on His People 
 
 ###### 14 
-"Therefore, behold, I will allure her, Will bring her into the wilderness, And speak [^g]comfort to her. 
+"Therefore, behold, I will allure her, Will bring her into the wilderness, And speak comfort to her. 
 
 ###### 15 
 I will give her her vineyards from there, And the Valley of Achor as a door of hope; She shall sing there, As in the days of her youth, As in the day when she came up from the land of Egypt. 
 
 ###### 16 
-"And it shall be, in that day," Says the Lord, "_That_ you will call Me [^h]'My Husband,' And no longer call Me [^i]'My Master,' 
+"And it shall be, in that day," Says the Lord, "_That_ you will call Me 'My Husband,' And no longer call Me 'My Master,' 
 
 ###### 17 
 For I will take from her mouth the names of the Baals, And they shall be remembered by their name no more. 
@@ -73,7 +73,7 @@ I will betroth you to Me in faithfulness, And you shall know the Lord.
 "It shall come to pass in that day _That_ I will answer," says the Lord; "I will answer the heavens, And they shall answer the earth. 
 
 ###### 22 
-The earth shall answer With grain, With new wine, And with oil; They shall answer [^j]Jezreel. 
+The earth shall answer With grain, With new wine, And with oil; They shall answer Jezreel. 
 
 ###### 23 
-Then I will sow her for Myself in the earth, And I will have mercy on _her who had_ [^k]not obtained mercy; Then I will say to _those who were_ [^l]not My people, 'You _are_ [^m]My people!' And they shall say, '_You are_ my God!' "
+Then I will sow her for Myself in the earth, And I will have mercy on _her who had_ not obtained mercy; Then I will say to _those who were_ not My people, 'You _are_ My people!' And they shall say, '_You are_ my God!' "

@@ -280,7 +280,7 @@ Everything is permissible (allowable and lawful) for me; but not all things are 
 
 
 
-Food [is intended] for the stomach and the stomach for food, but God will finally end [the functions of] both _and_ bring them to nothing. The body is not intended for sexual immorality, but [is intended] for the Lord, and the Lord [is intended] for the body [[^a]to save, sanctify, and raise it again]. 
+Food [is intended] for the stomach and the stomach for food, but God will finally end [the functions of] both _and_ bring them to nothing. The body is not intended for sexual immorality, but [is intended] for the Lord, and the Lord [is intended] for the body [to save, sanctify, and raise it again]. 
 
 
 
@@ -427,4 +427,4 @@ Do you not know that your body is the temple (the very sanctuary) of the Holy Sp
 
 
 
-You were bought with a price [purchased with a [^b]preciousness and paid for, [^c]made His own]. So then, honor God _and_ bring glory to Him in your body.
+You were bought with a price [purchased with a preciousness and paid for, made His own]. So then, honor God _and_ bring glory to Him in your body.

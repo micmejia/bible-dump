@@ -40,7 +40,7 @@ next: ['Isa 53']
 
 
 
-Bumangon ka, O Zion, at magpakatatag. Ipakita mo ang iyong kapangyarihan, O banal na lungsod ng Jerusalem, dahil ang mga kaaway mong hindi mga Israelita,[^a] na itinuturing mong marumi ay hindi na muling makakapasok sa iyo. 
+Bumangon ka, O Zion, at magpakatatag. Ipakita mo ang iyong kapangyarihan, O banal na lungsod ng Jerusalem, dahil ang mga kaaway mong hindi mga Israelita, na itinuturing mong marumi ay hindi na muling makakapasok sa iyo. 
 
 
 
@@ -271,7 +271,7 @@ Sisigaw sa tuwa ang gibang Jerusalem dahil aaliwin at palalakasin na ng Panginoo
 
 
 
-Ipapakita ng Panginoon ang natatangi[^b] niyang kapangyarihan sa lahat ng bansa, at makikita ng buong mundo[^c] ang pagliligtas ng ating Dios. 
+Ipapakita ng Panginoon ang natatangi niyang kapangyarihan sa lahat ng bansa, at makikita ng buong mundo ang pagliligtas ng ating Dios. 
 
 
 

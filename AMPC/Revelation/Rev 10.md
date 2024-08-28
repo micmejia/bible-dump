@@ -112,7 +112,7 @@ And when the seven thunders had spoken (sounded), I was going to write [it down]
 
 
 
-Then the [mighty] angel whom I had seen stationed on sea and land raised his right hand to heaven (the [^a]sky), 
+Then the [mighty] angel whom I had seen stationed on sea and land raised his right hand to heaven (the sky), 
 
 
 
@@ -133,7 +133,7 @@ Then the [mighty] angel whom I had seen stationed on sea and land raised his rig
 
 
 
-And swore in the name of (by) Him Who lives forever and ever, Who created the heavens ([^b]sky) and all they contain, and the earth and all that it contains, and the sea and all that it contains. [He swore] that no more time should intervene _and_ there should be no more waiting _or_ delay, 
+And swore in the name of (by) Him Who lives forever and ever, Who created the heavens (sky) and all they contain, and the earth and all that it contains, and the sea and all that it contains. [He swore] that no more time should intervene _and_ there should be no more waiting _or_ delay, 
 
 
 

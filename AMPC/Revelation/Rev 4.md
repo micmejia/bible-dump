@@ -28,7 +28,7 @@ next: ['Rev 5']
 
 
 
-After this I looked, and behold, a door standing open in heaven! And the first voice which I had heard addressing me like [the calling of] a [^a]war trumpet said, Come up here, and I will show you what must take place in the future. 
+After this I looked, and behold, a door standing open in heaven! And the first voice which I had heard addressing me like [the calling of] a war trumpet said, Come up here, and I will show you what must take place in the future. 
 
 
 
@@ -91,7 +91,7 @@ And He Who sat there appeared like [the crystalline brightness of] jasper and [t
 
 
 
-Twenty-four other thrones surrounded the throne, and seated on these thrones were twenty-four elders ([^b]the members of the heavenly Sanhedrin), arrayed in white clothing, with crowns of gold upon their heads. 
+Twenty-four other thrones surrounded the throne, and seated on these thrones were twenty-four elders (the members of the heavenly Sanhedrin), arrayed in white clothing, with crowns of gold upon their heads. 
 
 
 
@@ -112,7 +112,7 @@ Twenty-four other thrones surrounded the throne, and seated on these thrones wer
 
 
 
-Out from the throne came flashes of lightning and rumblings and peals of thunder, and in front of the throne seven blazing torches burned, which are the seven Spirits of God [[^c]the sevenfold Holy Spirit]; 
+Out from the throne came flashes of lightning and rumblings and peals of thunder, and in front of the throne seven blazing torches burned, which are the seven Spirits of God [the sevenfold Holy Spirit]; 
 
 
 
@@ -217,7 +217,7 @@ And whenever the living creatures offer glory and honor and thanksgiving to Him 
 
 
 
-The twenty-four elders ([^d]the members of the heavenly Sanhedrin) fall prostrate before Him Who is sitting on the throne, and they worship Him Who lives forever and ever; and they throw down their crowns before the throne, crying out, 
+The twenty-four elders (the members of the heavenly Sanhedrin) fall prostrate before Him Who is sitting on the throne, and they worship Him Who lives forever and ever; and they throw down their crowns before the throne, crying out, 
 
 
 

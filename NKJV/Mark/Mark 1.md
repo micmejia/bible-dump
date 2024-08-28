@@ -12,13 +12,13 @@ next: ['Mark 2']
 The beginning of the gospel of Jesus Christ, the Son of God. 
 
 ###### 2 
-As it is written in [^a]the Prophets: "Behold, I send My messenger before Your face, Who will prepare Your way before You." 
+As it is written in the Prophets: "Behold, I send My messenger before Your face, Who will prepare Your way before You." 
 
 ###### 3 
 "The voice of one crying in the wilderness: 'Prepare the way of the Lord; Make His paths straight.' " 
 
 ###### 4 
-John came baptizing in the wilderness and preaching a baptism of repentance [^b]for the remission of sins. 
+John came baptizing in the wilderness and preaching a baptism of repentance for the remission of sins. 
 
 ###### 5 
 Then all the land of Judea, and those from Jerusalem, went out to him and were all baptized by him in the Jordan River, confessing their sins. 
@@ -36,22 +36,22 @@ I indeed baptized you with water, but He will baptize you with the Holy Spirit."
 It came to pass in those days _that_ Jesus came from Nazareth of Galilee, and was baptized by John in the Jordan. 
 
 ###### 10 
-And immediately, coming up [^c]from the water, He saw the heavens [^d]parting and the Spirit descending upon Him like a dove. 
+And immediately, coming up from the water, He saw the heavens parting and the Spirit descending upon Him like a dove. 
 
 ###### 11 
 Then a voice came from heaven, "You are My beloved Son, in whom I am well pleased." ## Satan Tempts Jesus 
 
 ###### 12 
-Immediately the Spirit [^e]drove Him into the wilderness. 
+Immediately the Spirit drove Him into the wilderness. 
 
 ###### 13 
 And He was there in the wilderness forty days, tempted by Satan, and was with the wild beasts; and the angels ministered to Him. ## Jesus Begins His Galilean Ministry 
 
 ###### 14 
-Now after John was put in prison, Jesus came to Galilee, preaching the gospel [^f]of the kingdom of God, 
+Now after John was put in prison, Jesus came to Galilee, preaching the gospel of the kingdom of God, 
 
 ###### 15 
-and saying, "The time is fulfilled, and the kingdom of God [^g]is at hand. Repent, and believe in the gospel." ## Four Fishermen Called as Disciples 
+and saying, "The time is fulfilled, and the kingdom of God is at hand. Repent, and believe in the gospel." ## Four Fishermen Called as Disciples 
 
 ###### 16 
 And as He walked by the Sea of Galilee, He saw Simon and Andrew his brother casting a net into the sea; for they were fishermen. 
@@ -81,13 +81,13 @@ Now there was a man in their synagogue with an unclean spirit. And he cried out,
 saying, "Let _us_ alone! What have we to do with You, Jesus of Nazareth? Did You come to destroy us? I know who You are--the Holy One of God!" 
 
 ###### 25 
-But Jesus rebuked him, saying, [^h]"Be quiet, and come out of him!" 
+But Jesus rebuked him, saying, "Be quiet, and come out of him!" 
 
 ###### 26 
 And when the unclean spirit had convulsed him and cried out with a loud voice, he came out of him. 
 
 ###### 27 
-Then they were all amazed, so that they questioned among themselves, saying, [^i]"What is this? What new [^j]doctrine _is_ this? For with authority He commands even the unclean spirits, and they obey Him." 
+Then they were all amazed, so that they questioned among themselves, saying, "What is this? What new doctrine _is_ this? For with authority He commands even the unclean spirits, and they obey Him." 
 
 ###### 28 
 And immediately His fame spread throughout all the region around Galilee. ## Peter's Mother-in-Law Healed 
@@ -111,7 +111,7 @@ And the whole city was gathered together at the door.
 Then He healed many who were sick with various diseases, and cast out many demons; and He did not allow the demons to speak, because they knew Him. ## Preaching in Galilee 
 
 ###### 35 
-Now in the morning, having risen a long while before daylight, He went out and departed to a [^k]solitary place; and there He prayed. 
+Now in the morning, having risen a long while before daylight, He went out and departed to a solitary place; and there He prayed. 
 
 ###### 36 
 And Simon and those _who were_ with Him searched for Him. 

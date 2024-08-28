@@ -40,7 +40,7 @@ But Esau said, "I have enough, my brother; keep what you have for yourself."
 And Jacob said, "No, please, if I have now found favor in your sight, then receive my present from my hand, inasmuch as I have seen your face as though I had seen the face of God, and you were pleased with me. 
 
 ###### 11 
-Please, take my blessing that is brought to you, because God has dealt graciously with me, and because I have [^a]enough." So he urged him, and he took _it._ 
+Please, take my blessing that is brought to you, because God has dealt graciously with me, and because I have enough." So he urged him, and he took _it._ 
 
 ###### 12 
 Then Esau said, "Let us take our journey; let us go, and I will go before you." 
@@ -49,7 +49,7 @@ Then Esau said, "Let us take our journey; let us go, and I will go before you."
 But Jacob said to him, "My lord knows that the children _are_ weak, and the flocks and herds which are nursing _are_ with me. And if the men should drive them hard one day, all the flock will die. 
 
 ###### 14 
-Please let my lord go on ahead before his servant. I will lead on slowly at a pace which the livestock that go before me, and the children, [^b]are able to endure, until I come to my lord in Seir." 
+Please let my lord go on ahead before his servant. I will lead on slowly at a pace which the livestock that go before me, and the children, are able to endure, until I come to my lord in Seir." 
 
 ###### 15 
 And Esau said, "Now let me leave with you _some_ of the people who _are_ with me." But he said, "What need is there? Let me find favor in the sight of my lord." 
@@ -58,13 +58,13 @@ And Esau said, "Now let me leave with you _some_ of the people who _are_ with me
 So Esau returned that day on his way to Seir. 
 
 ###### 17 
-And Jacob journeyed to Succoth, built himself a house, and made [^c]booths for his livestock. Therefore the name of the place is called [^d]Succoth. ## Jacob Comes to Canaan 
+And Jacob journeyed to Succoth, built himself a house, and made booths for his livestock. Therefore the name of the place is called Succoth. ## Jacob Comes to Canaan 
 
 ###### 18 
-Then Jacob came [^e]safely to the city of Shechem, which _is_ in the land of Canaan, when he came from Padan Aram; and he pitched his tent before the city. 
+Then Jacob came safely to the city of Shechem, which _is_ in the land of Canaan, when he came from Padan Aram; and he pitched his tent before the city. 
 
 ###### 19 
-And he bought the parcel of [^f]land, where he had pitched his tent, from the children of Hamor, Shechem's father, for one hundred pieces of money. 
+And he bought the parcel of land, where he had pitched his tent, from the children of Hamor, Shechem's father, for one hundred pieces of money. 
 
 ###### 20 
-Then he erected an altar there and called it El[^g] Elohe Israel.
+Then he erected an altar there and called it El Elohe Israel.

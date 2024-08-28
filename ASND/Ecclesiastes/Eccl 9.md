@@ -73,7 +73,7 @@ Inisip kong mabuti ang lahat ng bagay at nalaman kong nasa patnubay ng Dios ang 
 
 
 
-Iisa lang ang kasasapitan ng lahat ng klase ng tao – ang matuwid at ang masama, ang tama at ang mali,[^a] ang malinis at ang marumi,[^b] ang naghahandog at ang hindi naghahandog. Pareho lang ang matuwid at ang makasalanan at pareho lang din ang sumusumpa at hindi sumusumpa. 
+Iisa lang ang kasasapitan ng lahat ng klase ng tao – ang matuwid at ang masama, ang tama at ang mali, ang malinis at ang marumi, ang naghahandog at ang hindi naghahandog. Pareho lang ang matuwid at ang makasalanan at pareho lang din ang sumusumpa at hindi sumusumpa. 
 
 
 
@@ -271,7 +271,7 @@ Sige, magpakasaya ka sa pagkain at pag-inom dahil iyan ang gusto ng Dios na gawi
 
 
 
-Palagi ka sanang maging maligaya.[^c] 
+Palagi ka sanang maging maligaya. 
 
 
 

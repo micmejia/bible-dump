@@ -40,7 +40,7 @@ And I will cause them to eat the flesh of their sons and the flesh of their daug
 "Then you shall break the flask in the sight of the men who go with you, 
 
 ###### 11 
-and say to them, 'Thus says the Lord of hosts: "Even so I will break this people and this city, as _one_ breaks a potter's vessel, which cannot be [^a]made whole again; and they shall bury _them_ in Tophet till _there is_ no place to bury. 
+and say to them, 'Thus says the Lord of hosts: "Even so I will break this people and this city, as _one_ breaks a potter's vessel, which cannot be made whole again; and they shall bury _them_ in Tophet till _there is_ no place to bury. 
 
 ###### 12 
 Thus I will do to this place," says the Lord, "and to its inhabitants, and make this city like Tophet. 

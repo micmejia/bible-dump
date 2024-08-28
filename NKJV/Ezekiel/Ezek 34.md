@@ -19,7 +19,7 @@ And the word of the Lord came to me, saying,
 You eat the fat and clothe yourselves with the wool; you slaughter the fatlings, _but_ you do not feed the flock. 
 
 ###### 4 
-The weak you have not strengthened, nor have you healed those who were sick, nor bound up the broken, nor brought back what was driven away, nor sought what was lost; but with force and [^a]cruelty you have ruled them. 
+The weak you have not strengthened, nor have you healed those who were sick, nor bound up the broken, nor brought back what was driven away, nor sought what was lost; but with force and cruelty you have ruled them. 
 
 ###### 5 
 So they were scattered because _there was_ no shepherd; and they became food for all the beasts of the field when they were scattered. 
@@ -46,7 +46,7 @@ Thus says the Lord God: "Behold, I _am_ against the shepherds, and I will requir
 As a shepherd seeks out his flock on the day he is among his scattered sheep, so will I seek out My sheep and deliver them from all the places where they were scattered on a cloudy and dark day. 
 
 ###### 13 
-And I will bring them out from the peoples and gather them from the countries, and will bring them to their own land; I will feed them on the mountains of Israel, [^b]in the valleys and in all the inhabited places of the country. 
+And I will bring them out from the peoples and gather them from the countries, and will bring them to their own land; I will feed them on the mountains of Israel, in the valleys and in all the inhabited places of the country. 
 
 ###### 14 
 I will feed them in good pasture, and their fold shall be on the high mountains of Israel. There they shall lie down in a good fold and feed in rich pasture on the mountains of Israel. 
@@ -61,7 +61,7 @@ I will feed My flock, and I will make them lie down," says the Lord God.
 'And _as for_ you, O My flock, thus says the Lord God: "Behold, I shall judge between sheep and sheep, between rams and goats. 
 
 ###### 18 
-_Is it_ too little for you to have eaten up the good pasture, that you must tread down with your feet the [^c]residue of your pasture--and to have drunk of the clear waters, that you must foul the residue with your feet? 
+_Is it_ too little for you to have eaten up the good pasture, that you must tread down with your feet the residue of your pasture--and to have drunk of the clear waters, that you must foul the residue with your feet? 
 
 ###### 19 
 And _as for_ My flock, they eat what you have trampled with your feet, and they drink what you have fouled with your feet." 
@@ -94,7 +94,7 @@ Then the trees of the field shall yield their fruit, and the earth shall yield h
 And they shall no longer be a prey for the nations, nor shall beasts of the land devour them; but they shall dwell safely, and no one shall make _them_ afraid. 
 
 ###### 29 
-I will raise up for them a garden[^d] of renown, and they shall no longer be consumed with hunger in the land, nor bear the shame of the Gentiles anymore. 
+I will raise up for them a garden of renown, and they shall no longer be consumed with hunger in the land, nor bear the shame of the Gentiles anymore. 
 
 ###### 30 
 Thus they shall know that I, the Lord their God, _am_ with them, and they, the house of Israel, _are_ My people," says the Lord God.' 

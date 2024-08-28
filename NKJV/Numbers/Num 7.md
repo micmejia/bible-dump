@@ -13,7 +13,7 @@ next: ['Num 8']
 Now it came to pass, when Moses had finished setting up the tabernacle, that he anointed it and consecrated it and all its furnishings, and the altar and all its utensils; so he anointed them and consecrated them. 
 
 ###### 2 
-Then the leaders of Israel, the heads of their fathers' houses, who _were_ the leaders of the tribes [^a]and over those who were numbered, made an offering. 
+Then the leaders of Israel, the heads of their fathers' houses, who _were_ the leaders of the tribes and over those who were numbered, made an offering. 
 
 ###### 3 
 And they brought their offering before the Lord, six covered carts and twelve oxen, a cart for _every_ two of the leaders, and for each one an ox; and they presented them before the tabernacle. 
@@ -31,7 +31,7 @@ So Moses took the carts and the oxen, and gave them to the Levites.
 Two carts and four oxen he gave to the sons of Gershon, according to their service; 
 
 ###### 8 
-and four carts and eight oxen he gave to the sons of Merari, according to their service, under the [^b]authority of Ithamar the son of Aaron the priest. 
+and four carts and eight oxen he gave to the sons of Merari, according to their service, under the authority of Ithamar the son of Aaron the priest. 
 
 ###### 9 
 But to the sons of Kohath he gave none, because theirs _was_ the service of the holy things, _which_ they carried on their shoulders. 
@@ -133,7 +133,7 @@ one kid of the goats as a sin offering;
 and as the sacrifice of peace offerings: two oxen, five rams, five male goats, and five male lambs in their first year. This _was_ the offering of Shelumiel the son of Zurishaddai. 
 
 ###### 42 
-On the sixth day Eliasaph the son of [^c]Deuel, leader of the children of Gad, _presented an offering._ 
+On the sixth day Eliasaph the son of Deuel, leader of the children of Gad, _presented an offering._ 
 
 ###### 43 
 His offering _was_ one silver platter, the weight of which _was_ one hundred and thirty _shekels,_ and one silver bowl of seventy shekels, according to the shekel of the sanctuary, both of them full of fine flour mixed with oil as a grain offering; 

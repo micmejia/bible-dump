@@ -19,7 +19,7 @@ For they had departed from Rephidim, had come _to_ the Wilderness of Sinai, and 
 And Moses went up to God, and the Lord called to him from the mountain, saying, "Thus you shall say to the house of Jacob, and tell the children of Israel: 
 
 ###### 4 
-'You have seen what I did to the Egyptians, and _how_ I [^a]bore you on eagles' wings and brought you to Myself. 
+'You have seen what I did to the Egyptians, and _how_ I bore you on eagles' wings and brought you to Myself. 
 
 ###### 5 
 Now therefore, if you will indeed obey My voice and keep My covenant, then you shall be a special treasure to Me above all people; for all the earth _is_ Mine. 
@@ -28,7 +28,7 @@ Now therefore, if you will indeed obey My voice and keep My covenant, then you s
 And you shall be to Me a kingdom of priests and a holy nation.' These _are_ the words which you shall speak to the children of Israel." 
 
 ###### 7 
-So Moses came and called for the elders of the people, and [^b]laid before them all these words which the Lord commanded him. 
+So Moses came and called for the elders of the people, and laid before them all these words which the Lord commanded him. 
 
 ###### 8 
 Then all the people answered together and said, "All that the Lord has spoken we will do." So Moses brought back the words of the people to the Lord. 
@@ -61,7 +61,7 @@ Then it came to pass on the third day, in the morning, that there were thunderin
 And Moses brought the people out of the camp to meet with God, and they stood at the foot of the mountain. 
 
 ###### 18 
-Now Mount Sinai _was_ completely in smoke, because the Lord descended upon it in fire. Its smoke ascended like the smoke of a furnace, and [^c]the whole mountain quaked greatly. 
+Now Mount Sinai _was_ completely in smoke, because the Lord descended upon it in fire. Its smoke ascended like the smoke of a furnace, and the whole mountain quaked greatly. 
 
 ###### 19 
 And when the blast of the trumpet sounded long and became louder and louder, Moses spoke, and God answered him by voice. 

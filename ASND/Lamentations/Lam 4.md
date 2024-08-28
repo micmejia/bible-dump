@@ -106,7 +106,7 @@ Kung katulad sila ng tunay na ginto noon, ngayon namaʼy itinuturing na parang m
 
 
 
-Kahit na ang mga asong-gubat ay pinasususo ang kanilang mga tuta, pero ang mga mamamayan koʼy naging malupit sa kanilang mga anak, gaya ng malalaking ibon[^a] sa disyerto. 
+Kahit na ang mga asong-gubat ay pinasususo ang kanilang mga tuta, pero ang mga mamamayan koʼy naging malupit sa kanilang mga anak, gaya ng malalaking ibon sa disyerto. 
 
 
 

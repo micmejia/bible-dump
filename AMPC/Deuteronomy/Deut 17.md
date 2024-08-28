@@ -238,7 +238,7 @@ And you shall do according to the decision which they declare to you from that p
 
 
 
-According to the decision of the law which they shall teach you and the judgment which they shall announce to you, you shall do; you shall not turn aside from the verdict they give you, [^a]either to the right hand or the left. 
+According to the decision of the law which they shall teach you and the judgment which they shall announce to you, you shall do; you shall not turn aside from the verdict they give you, either to the right hand or the left. 
 
 
 

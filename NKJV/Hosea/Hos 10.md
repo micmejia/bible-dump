@@ -13,7 +13,7 @@ next: ['Hos 11']
 Israel empties _his_ vine; He brings forth fruit for himself. According to the multitude of his fruit He has increased the altars; According to the bounty of his land They have embellished _his sacred_ pillars. 
 
 ###### 2 
-Their heart is divided;[^a] Now they are held guilty. He will break down their altars; He will ruin their _sacred_ pillars. 
+Their heart is divided; Now they are held guilty. He will break down their altars; He will ruin their _sacred_ pillars. 
 
 ###### 3 
 For now they say, "We have no king, Because we did not fear the Lord. And as for a king, what would he do for us?" 
@@ -22,7 +22,7 @@ For now they say, "We have no king, Because we did not fear the Lord. And as for
 They have spoken words, Swearing falsely in making a covenant. Thus judgment springs up like hemlock in the furrows of the field. 
 
 ###### 5 
-The inhabitants of Samaria fear Because of the calf[^b] of Beth Aven. For its people mourn for it, And [^c]its priests shriek for it-- Because its glory has departed from it. 
+The inhabitants of Samaria fear Because of the calf of Beth Aven. For its people mourn for it, And its priests shriek for it-- Because its glory has departed from it. 
 
 ###### 6 
 _The idol_ also shall be carried to Assyria _As_ a present for King Jareb. Ephraim shall receive shame, And Israel shall be ashamed of his own counsel. 
@@ -31,16 +31,16 @@ _The idol_ also shall be carried to Assyria _As_ a present for King Jareb. Ephra
 _As for_ Samaria, her king is cut off Like a twig on the water. 
 
 ###### 8 
-Also the high places of [^d]Aven, the sin of Israel, Shall be destroyed. The thorn and thistle shall grow on their altars; They shall say to the mountains, "Cover us!" And to the hills, "Fall on us!" 
+Also the high places of Aven, the sin of Israel, Shall be destroyed. The thorn and thistle shall grow on their altars; They shall say to the mountains, "Cover us!" And to the hills, "Fall on us!" 
 
 ###### 9 
-"O Israel, you have sinned from the days of Gibeah; There they stood. The battle in Gibeah against the children of [^e]iniquity Did not [^f]overtake them. 
+"O Israel, you have sinned from the days of Gibeah; There they stood. The battle in Gibeah against the children of iniquity Did not overtake them. 
 
 ###### 10 
-When _it is_ My desire, I will chasten them. Peoples shall be gathered against them When I bind them [^g]for their two transgressions. 
+When _it is_ My desire, I will chasten them. Peoples shall be gathered against them When I bind them for their two transgressions. 
 
 ###### 11 
-Ephraim _is_ a trained heifer That loves to thresh _grain;_ But I harnessed her fair neck, I will make Ephraim [^h]pull _a plow._ Judah shall plow; Jacob shall break his clods." 
+Ephraim _is_ a trained heifer That loves to thresh _grain;_ But I harnessed her fair neck, I will make Ephraim pull _a plow._ Judah shall plow; Jacob shall break his clods." 
 
 ###### 12 
 Sow for yourselves righteousness; Reap in mercy; Break up your fallow ground, For _it is_ time to seek the Lord, Till He comes and rains righteousness on you. 

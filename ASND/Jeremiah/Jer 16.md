@@ -634,7 +634,7 @@ Kaya pagbabayarin ko sila nang doble sa kasamaan at kasalanan nila dahil dinungi
 
 
 
-<i class="trans-change">Sinabi ko,_ "O Panginoon, kayo po ang kalakasan at tagapagkalinga ko sa panahon ng pagdadalamhati. Lalapit po sa inyo ang mga bansa mula sa buong mundo[^a] at sasabihin nila, 'Walang kwenta ang mga dios-diosan ng aming mga ninuno. Wala silang nagawa na anumang kabutihan. 
+<i class="trans-change">Sinabi ko,_ "O Panginoon, kayo po ang kalakasan at tagapagkalinga ko sa panahon ng pagdadalamhati. Lalapit po sa inyo ang mga bansa mula sa buong mundo at sasabihin nila, 'Walang kwenta ang mga dios-diosan ng aming mga ninuno. Wala silang nagawa na anumang kabutihan. 
 
 
 

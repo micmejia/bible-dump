@@ -448,7 +448,7 @@ And David came to Baal-perazim, and he smote them there, and said, The Lord has 
 
 
 
-There the Philistines left their [^a]images, and David and his men took them away. 
+There the Philistines left their images, and David and his men took them away. 
 
 
 

@@ -28,13 +28,13 @@ And the sons of Israel went to buy _grain_ among those who journeyed, for the fa
 Now Joseph _was_ governor over the land; and it was he who sold to all the people of the land. And Joseph's brothers came and bowed down before him with _their_ faces to the earth. 
 
 ###### 7 
-Joseph saw his brothers and recognized them, but he acted as a stranger to them and spoke [^a]roughly to them. Then he said to them, "Where do you come from?" And they said, "From the land of Canaan to buy food." 
+Joseph saw his brothers and recognized them, but he acted as a stranger to them and spoke roughly to them. Then he said to them, "Where do you come from?" And they said, "From the land of Canaan to buy food." 
 
 ###### 8 
 So Joseph recognized his brothers, but they did not recognize him. 
 
 ###### 9 
-Then Joseph remembered the dreams which he had dreamed about them, and said to them, "You _are_ spies! You have come to see the [^b]nakedness of the land!" 
+Then Joseph remembered the dreams which he had dreamed about them, and said to them, "You _are_ spies! You have come to see the nakedness of the land!" 
 
 ###### 10 
 And they said to him, "No, my lord, but your servants have come to buy food. 
@@ -55,10 +55,10 @@ But Joseph said to them, "It _is_ as I spoke to you, saying, 'You _are_ spies!'
 In this _manner_ you shall be tested: By the life of Pharaoh, you shall not leave this place unless your youngest brother comes here. 
 
 ###### 16 
-Send one of you, and let him bring your brother; and you shall be [^c]kept in prison, that your words may be tested to see whether _there is_ any truth in you; or else, by the life of Pharaoh, surely you _are_ spies!" 
+Send one of you, and let him bring your brother; and you shall be kept in prison, that your words may be tested to see whether _there is_ any truth in you; or else, by the life of Pharaoh, surely you _are_ spies!" 
 
 ###### 17 
-So he [^d]put them all together in prison three days. 
+So he put them all together in prison three days. 
 
 ###### 18 
 Then Joseph said to them the third day, "Do this and live, _for_ I fear God: 
@@ -91,13 +91,13 @@ So they loaded their donkeys with the grain and departed from there.
 But as one _of them_ opened his sack to give his donkey feed at the encampment, he saw his money; and there it was, in the mouth of his sack. 
 
 ###### 28 
-So he said to his brothers, "My money has been restored, and there it is, in my sack!" Then their hearts [^e]failed _them_ and they were afraid, saying to one another, "What _is_ this _that_ God has done to us?" 
+So he said to his brothers, "My money has been restored, and there it is, in my sack!" Then their hearts failed _them_ and they were afraid, saying to one another, "What _is_ this _that_ God has done to us?" 
 
 ###### 29 
 Then they went to Jacob their father in the land of Canaan and told him all that had happened to them, saying: 
 
 ###### 30 
-"The man _who is_ lord of the land spoke [^f]roughly to us, and took us for spies of the country. 
+"The man _who is_ lord of the land spoke roughly to us, and took us for spies of the country. 
 
 ###### 31 
 But we said to him, 'We _are_ honest _men;_ we are not spies. 

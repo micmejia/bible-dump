@@ -304,7 +304,7 @@ Ibinabalot niya ang ulan sa makakapal na ulap, pero hindi ito napupunit gaano ma
 
 
 
-Tinatakpan niya ng makapal na ulap ang bilog na buwan.[^a] 
+Tinatakpan niya ng makapal na ulap ang bilog na buwan. 
 
 
 

@@ -832,4 +832,4 @@ Dumating ang panahon na nanganak ang asawa ni Manoa. Lalaki ang anak niya at pin
 
 
 
-Ang Espiritu ng Panginoon ay nagsimulang kumilos sa kanya habang naroon siya sa kampo ng Dan,[^a] sa kalagitnaan ng Zora at Estaol.
+Ang Espiritu ng Panginoon ay nagsimulang kumilos sa kanya habang naroon siya sa kampo ng Dan, sa kalagitnaan ng Zora at Estaol.

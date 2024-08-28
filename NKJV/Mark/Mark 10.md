@@ -22,7 +22,7 @@ And He answered and said to them, "What did Moses command you?"
 They said, "Moses permitted _a man_ to write a certificate of divorce, and to dismiss _her._" 
 
 ###### 5 
-And Jesus answered and said to them, "Because of the hardness of your heart he wrote you this [^a]precept. 
+And Jesus answered and said to them, "Because of the hardness of your heart he wrote you this precept. 
 
 ###### 6 
 But from the beginning of the creation, God 'made them male and female.' 
@@ -79,7 +79,7 @@ But he was sad at this word, and went away sorrowful, for he had great possessio
 Then Jesus looked around and said to His disciples, "How hard it is for those who have riches to enter the kingdom of God!" 
 
 ###### 24 
-And the disciples were astonished at His words. But Jesus answered again and said to them, "Children, how hard it is [^b]for those who trust in riches to enter the kingdom of God! 
+And the disciples were astonished at His words. But Jesus answered again and said to them, "Children, how hard it is for those who trust in riches to enter the kingdom of God! 
 
 ###### 25 
 It is easier for a camel to go through the eye of a needle than for a rich man to enter the kingdom of God." 
@@ -94,7 +94,7 @@ But Jesus looked at them and said, "With men _it is_ impossible, but not with Go
 Then Peter began to say to Him, "See, we have left all and followed You." 
 
 ###### 29 
-So Jesus answered and said, "Assuredly, I say to you, there is no one who has left house or brothers or sisters or father or mother [^c]or wife or children or [^d]lands, for My sake and the gospel's, 
+So Jesus answered and said, "Assuredly, I say to you, there is no one who has left house or brothers or sisters or father or mother or wife or children or lands, for My sake and the gospel's, 
 
 ###### 30 
 who shall not receive a hundredfold now in this time--houses and brothers and sisters and mothers and children and lands, with persecutions--and in the age to come, eternal life. 
@@ -109,7 +109,7 @@ Now they were on the road, going up to Jerusalem, and Jesus was going before the
 "Behold, we are going up to Jerusalem, and the Son of Man will be betrayed to the chief priests and to the scribes; and they will condemn Him to death and deliver Him to the Gentiles; 
 
 ###### 34 
-and they will mock Him, and [^e]scourge Him, and spit on Him, and kill Him. And the third day He will rise again." ## Greatness Is Serving 
+and they will mock Him, and scourge Him, and spit on Him, and kill Him. And the third day He will rise again." ## Greatness Is Serving 
 
 ###### 35 
 Then James and John, the sons of Zebedee, came to Him, saying, "Teacher, we want You to do for us whatever we ask." 
@@ -160,7 +160,7 @@ So Jesus stood still and commanded him to be called. Then they called the blind 
 And throwing aside his garment, he rose and came to Jesus. 
 
 ###### 51 
-So Jesus answered and said to him, "What do you want Me to do for you?" The blind man said to Him, [^f]"Rabboni, that I may receive my sight." 
+So Jesus answered and said to him, "What do you want Me to do for you?" The blind man said to Him, "Rabboni, that I may receive my sight." 
 
 ###### 52 
-Then Jesus said to him, "Go your way; your faith has [^g]made you well." And immediately he received his sight and followed Jesus on the road.
+Then Jesus said to him, "Go your way; your faith has made you well." And immediately he received his sight and followed Jesus on the road.

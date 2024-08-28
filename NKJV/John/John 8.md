@@ -13,40 +13,40 @@ next: ['John 9']
 But Jesus went to the Mount of Olives. 
 
 ###### 2 
-Now [^a]early in the morning He came again into the temple, and all the people came to Him; and He sat down and taught them. 
+Now early in the morning He came again into the temple, and all the people came to Him; and He sat down and taught them. 
 
 ###### 3 
 Then the scribes and Pharisees brought to Him a woman caught in adultery. And when they had set her in the midst, 
 
 ###### 4 
-they said to Him, "Teacher, [^b]this woman was caught in adultery, in the very act. 
+they said to Him, "Teacher, this woman was caught in adultery, in the very act. 
 
 ###### 5 
-Now [^c]Moses, in the law, commanded us [^d]that such should be stoned. But what do You [^e]say?" 
+Now Moses, in the law, commanded us that such should be stoned. But what do You say?" 
 
 ###### 6 
-This they said, testing Him, that they might have _something_ of which to accuse Him. But Jesus stooped down and wrote on the ground with _His_ finger, [^f]as though He did not hear. 
+This they said, testing Him, that they might have _something_ of which to accuse Him. But Jesus stooped down and wrote on the ground with _His_ finger, as though He did not hear. 
 
 ###### 7 
-So when they continued asking Him, He [^g]raised Himself up and said to them, "He who is without sin among you, let him throw a stone at her first." 
+So when they continued asking Him, He raised Himself up and said to them, "He who is without sin among you, let him throw a stone at her first." 
 
 ###### 8 
 And again He stooped down and wrote on the ground. 
 
 ###### 9 
-Then those who heard _it,_ being[^h] convicted by _their_ conscience, went out one by one, beginning with the oldest _even_ to the last. And Jesus was left alone, and the woman standing in the midst. 
+Then those who heard _it,_ being convicted by _their_ conscience, went out one by one, beginning with the oldest _even_ to the last. And Jesus was left alone, and the woman standing in the midst. 
 
 ###### 10 
-When Jesus had raised Himself up [^i]and saw no one but the woman, He said to her, "Woman, where are those accusers [^j]of yours? Has no one condemned you?" 
+When Jesus had raised Himself up and saw no one but the woman, He said to her, "Woman, where are those accusers of yours? Has no one condemned you?" 
 
 ###### 11 
-She said, "No one, Lord." And Jesus said to her, "Neither do I condemn you; go [^k]and sin no more." 
+She said, "No one, Lord." And Jesus said to her, "Neither do I condemn you; go and sin no more." 
 
 ###### 12 
 Then Jesus spoke to them again, saying, "I am the light of the world. He who follows Me shall not walk in darkness, but have the light of life." ## Jesus Defends His Self-Witness 
 
 ###### 13 
-The Pharisees therefore said to Him, "You bear witness of Yourself; Your witness is not [^l]true." 
+The Pharisees therefore said to Him, "You bear witness of Yourself; Your witness is not true." 
 
 ###### 14 
 Jesus answered and said to them, "Even if I bear witness of Myself, My witness is true, for I know where I came from and where I am going; but you do not know where I come from and where I am going. 
@@ -91,7 +91,7 @@ I have many things to say and to judge concerning you, but He who sent Me is tru
 They did not understand that He spoke to them of the Father. 
 
 ###### 28 
-Then Jesus said to them, "When you lift[^m] up the Son of Man, then you will know that I am _He,_ and _that_ I do nothing of Myself; but as My Father taught Me, I speak these things. 
+Then Jesus said to them, "When you lift up the Son of Man, then you will know that I am _He,_ and _that_ I do nothing of Myself; but as My Father taught Me, I speak these things. 
 
 ###### 29 
 And He who sent Me is with Me. The Father has not left Me alone, for I always do those things that please Him." 
@@ -121,7 +121,7 @@ Therefore if the Son makes you free, you shall be free indeed. ## Abraham's Seed
 "I know that you are Abraham's descendants, but you seek to kill Me, because My word has no place in you. 
 
 ###### 38 
-I speak what I have seen with My Father, and you do what you have [^n]seen with your father." 
+I speak what I have seen with My Father, and you do what you have seen with your father." 
 
 ###### 39 
 They answered and said to Him, "Abraham is our father." Jesus said to them, "If you were Abraham's children, you would do the works of Abraham. 
@@ -169,7 +169,7 @@ Then the Jews said to Him, "Now we know that You have a demon! Abraham is dead, 
 Are You greater than our father Abraham, who is dead? And the prophets are dead. Who do You make Yourself out to be?" 
 
 ###### 54 
-Jesus answered, "If I honor Myself, My honor is nothing. It is My Father who honors Me, of whom you say that He is [^o]your God. 
+Jesus answered, "If I honor Myself, My honor is nothing. It is My Father who honors Me, of whom you say that He is your God. 
 
 ###### 55 
 Yet you have not known Him, but I know Him. And if I say, 'I do not know Him,' I shall be a liar like you; but I do know Him and keep His word. 
@@ -184,4 +184,4 @@ Then the Jews said to Him, "You are not yet fifty years old, and have You seen A
 Jesus said to them, "Most assuredly, I say to you, before Abraham was, I AM." 
 
 ###### 59 
-Then they took up stones to throw at Him; but Jesus hid Himself and went out of the temple, going[^p] through the midst of them, and so passed by.
+Then they took up stones to throw at Him; but Jesus hid Himself and went out of the temple, going through the midst of them, and so passed by.

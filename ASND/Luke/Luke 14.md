@@ -898,7 +898,7 @@ Maraming tao ang sumunod kay Jesus sa paglalakbay niya <i class="trans-change">p
 
 
 
-Ang sinumang ayaw sumunod sa akin dahil natatakot siyang mamatay para sa akin[^a] ay hindi maaaring maging tagasunod ko. 
+Ang sinumang ayaw sumunod sa akin dahil natatakot siyang mamatay para sa akin ay hindi maaaring maging tagasunod ko. 
 
 
 
@@ -1129,7 +1129,7 @@ Ganyan din ang gawin ninyo. Isipin muna ninyong mabuti ang pagsunod sa akin, dah
 
 
 
-"Mabuti ang asin, pero kung mag-iba ang lasa,[^b] wala nang magagawa para maibalik ang lasa nito. 
+"Mabuti ang asin, pero kung mag-iba ang lasa, wala nang magagawa para maibalik ang lasa nito. 
 
 
 

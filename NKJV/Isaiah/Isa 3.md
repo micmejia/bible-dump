@@ -10,22 +10,22 @@ next: ['Isa 4']
 
 
 ###### 1 
-For behold, the Lord, the Lord of hosts, Takes away from Jerusalem and from Judah The[^a] stock and the store, The whole supply of bread and the whole supply of water; 
+For behold, the Lord, the Lord of hosts, Takes away from Jerusalem and from Judah The stock and the store, The whole supply of bread and the whole supply of water; 
 
 ###### 2 
 The mighty man and the man of war, The judge and the prophet, And the diviner and the elder; 
 
 ###### 3 
-The captain of fifty and the [^b]honorable man, The counselor and the skillful artisan, And the expert enchanter. 
+The captain of fifty and the honorable man, The counselor and the skillful artisan, And the expert enchanter. 
 
 ###### 4 
-"I will give children[^c] _to be_ their princes, And [^d]babes shall rule over them. 
+"I will give children _to be_ their princes, And babes shall rule over them. 
 
 ###### 5 
-The people will be oppressed, Every one by another and every one by his neighbor; The child will be insolent toward the [^e]elder, And the [^f]base toward the honorable." 
+The people will be oppressed, Every one by another and every one by his neighbor; The child will be insolent toward the elder, And the base toward the honorable." 
 
 ###### 6 
-When a man takes hold of his brother In the house of his father, _saying,_ "You have clothing; You be our ruler, And _let_ these ruins _be_ under your [^g]power," 
+When a man takes hold of his brother In the house of his father, _saying,_ "You have clothing; You be our ruler, And _let_ these ruins _be_ under your power," 
 
 ###### 7 
 In that day he will protest, saying, "I cannot cure _your_ ills, For in my house _is_ neither food nor clothing; Do not make me a ruler of the people." 
@@ -40,28 +40,28 @@ The look on their countenance witnesses against them, And they declare their sin
 "Say to the righteous that _it shall be_ well _with them,_ For they shall eat the fruit of their doings. 
 
 ###### 11 
-Woe to the wicked! _It shall be_ ill _with him,_ For the reward of his hands shall be [^h]given him. 
+Woe to the wicked! _It shall be_ ill _with him,_ For the reward of his hands shall be given him. 
 
 ###### 12 
-_As for_ My people, children _are_ their oppressors, And women rule over them. O My people! Those who lead you [^i]cause _you_ to err, And destroy the way of your paths." ## Oppression and Luxury Condemned 
+_As for_ My people, children _are_ their oppressors, And women rule over them. O My people! Those who lead you cause _you_ to err, And destroy the way of your paths." ## Oppression and Luxury Condemned 
 
 ###### 13 
-The Lord stands up to [^j]plead, And stands to judge the people. 
+The Lord stands up to plead, And stands to judge the people. 
 
 ###### 14 
-The Lord will enter into judgment With the elders of His people And His princes: "For you have [^k]eaten up the vineyard; The plunder of the poor _is_ in your houses. 
+The Lord will enter into judgment With the elders of His people And His princes: "For you have eaten up the vineyard; The plunder of the poor _is_ in your houses. 
 
 ###### 15 
 What do you mean by crushing My people And grinding the faces of the poor?" Says the Lord God of hosts. 
 
 ###### 16 
-Moreover the Lord says: "Because the daughters of Zion are haughty, And walk with [^l]outstretched necks And [^m]wanton eyes, Walking and [^n]mincing _as_ they go, Making a jingling with their feet, 
+Moreover the Lord says: "Because the daughters of Zion are haughty, And walk with outstretched necks And wanton eyes, Walking and mincing _as_ they go, Making a jingling with their feet, 
 
 ###### 17 
 Therefore the Lord will strike with a scab The crown of the head of the daughters of Zion, And the Lord will uncover their secret parts." 
 
 ###### 18 
-In that day the Lord will take away the finery: The jingling anklets, the [^o]scarves, and the crescents; 
+In that day the Lord will take away the finery: The jingling anklets, the scarves, and the crescents; 
 
 ###### 19 
 The pendants, the bracelets, and the veils; 
@@ -79,10 +79,10 @@ the festal apparel, and the mantles; The outer garments, the purses,
 and the mirrors; The fine linen, the turbans, and the robes. 
 
 ###### 24 
-And so it shall be: Instead of a sweet smell there will be a stench; Instead of a sash, a rope; Instead of well-set hair, baldness; Instead of a rich robe, a girding of sackcloth; And [^p]branding instead of beauty. 
+And so it shall be: Instead of a sweet smell there will be a stench; Instead of a sash, a rope; Instead of well-set hair, baldness; Instead of a rich robe, a girding of sackcloth; And branding instead of beauty. 
 
 ###### 25 
-Your men shall fall by the sword, And your [^q]mighty in the war. 
+Your men shall fall by the sword, And your mighty in the war. 
 
 ###### 26 
 Her gates shall lament and mourn, And she _being_ desolate shall sit on the ground.

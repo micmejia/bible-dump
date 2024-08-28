@@ -19,7 +19,7 @@ Then he said, "Behold now, I am old. I do not know the day of my death.
 Now therefore, please take your weapons, your quiver and your bow, and go out to the field and hunt game for me. 
 
 ###### 4 
-And make me [^a]savory food, such as I love, and bring _it_ to me that I may eat, that my soul may bless you before I die." 
+And make me savory food, such as I love, and bring _it_ to me that I may eat, that my soul may bless you before I die." 
 
 ###### 5 
 Now Rebekah was listening when Isaac spoke to Esau his son. And Esau went to the field to hunt game and to bring _it._ 
@@ -28,7 +28,7 @@ Now Rebekah was listening when Isaac spoke to Esau his son. And Esau went to the
 So Rebekah spoke to Jacob her son, saying, "Indeed I heard your father speak to Esau your brother, saying, 
 
 ###### 7 
-'Bring me game and make [^b]savory food for me, that I may eat it and bless you in the presence of the Lord before my death.' 
+'Bring me game and make savory food for me, that I may eat it and bless you in the presence of the Lord before my death.' 
 
 ###### 8 
 Now therefore, my son, obey my voice according to what I command you. 
@@ -49,7 +49,7 @@ Perhaps my father will feel me, and I shall seem to be a deceiver to him; and I 
 But his mother said to him, "_Let_ your curse _be_ on me, my son; only obey my voice, and go, get _them_ for me." 
 
 ###### 14 
-And he went and got _them_ and brought _them_ to his mother, and his mother made [^c]savory food, such as his father loved. 
+And he went and got _them_ and brought _them_ to his mother, and his mother made savory food, such as his father loved. 
 
 ###### 15 
 Then Rebekah took the choice clothes of her elder son Esau, which _were_ with her in the house, and put them on Jacob her younger son. 
@@ -100,7 +100,7 @@ Let peoples serve you, And nations bow down to you. Be master over your brethren
 Now it happened, as soon as Isaac had finished blessing Jacob, and Jacob had scarcely gone out from the presence of Isaac his father, that Esau his brother came in from his hunting. 
 
 ###### 31 
-He also had made [^d]savory food, and brought it to his father, and said to his father, "Let my father arise and eat of his son's game, that your soul may bless me." 
+He also had made savory food, and brought it to his father, and said to his father, "Let my father arise and eat of his son's game, that your soul may bless me." 
 
 ###### 32 
 And his father Isaac said to him, "Who _are_ you?" So he said, "I _am_ your son, your firstborn, Esau." 
@@ -115,22 +115,22 @@ When Esau heard the words of his father, he cried with an exceedingly great and 
 But he said, "Your brother came with deceit and has taken away your blessing." 
 
 ###### 36 
-And _Esau_ said, "Is he not rightly named [^e]Jacob? For he has supplanted me these two times. He took away my birthright, and now look, he has taken away my blessing!" And he said, "Have you not reserved a blessing for me?" 
+And _Esau_ said, "Is he not rightly named Jacob? For he has supplanted me these two times. He took away my birthright, and now look, he has taken away my blessing!" And he said, "Have you not reserved a blessing for me?" 
 
 ###### 37 
-Then Isaac answered and said to Esau, "Indeed I have made him your master, and all his brethren I have given to him as servants; with grain and wine I have [^f]sustained him. What shall I do now for you, my son?" 
+Then Isaac answered and said to Esau, "Indeed I have made him your master, and all his brethren I have given to him as servants; with grain and wine I have sustained him. What shall I do now for you, my son?" 
 
 ###### 38 
 And Esau said to his father, "Have you only one blessing, my father? Bless me--me also, O my father!" And Esau lifted up his voice and wept. 
 
 ###### 39 
-Then Isaac his father answered and said to him: "Behold, your dwelling shall be of the [^g]fatness of the earth, And of the dew of heaven from above. 
+Then Isaac his father answered and said to him: "Behold, your dwelling shall be of the fatness of the earth, And of the dew of heaven from above. 
 
 ###### 40 
 By your sword you shall live, And you shall serve your brother; And it shall come to pass, when you become restless, That you shall break his yoke from your neck." ## Jacob Escapes from Esau 
 
 ###### 41 
-So Esau hated Jacob because of the blessing with which his father blessed him, and Esau said in his heart, "The days of mourning for my father [^h]are at hand; then I will kill my brother Jacob." 
+So Esau hated Jacob because of the blessing with which his father blessed him, and Esau said in his heart, "The days of mourning for my father are at hand; then I will kill my brother Jacob." 
 
 ###### 42 
 And the words of Esau her older son were told to Rebekah. So she sent and called Jacob her younger son, and said to him, "Surely your brother Esau comforts himself concerning you _by intending_ to kill you. 

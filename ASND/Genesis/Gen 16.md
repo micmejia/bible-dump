@@ -370,7 +370,7 @@ Pagkatapos, sinabi pa ng anghel, "Pararamihin ko ang lahi mo na ang dami nilaʼy
 
 
 
-At sinabi pa ng anghel ng Panginoon sa kanya, "Buntis ka na at hindi magtatagal ay magkakaanak ka ng lalaki. Pangangalanan mo siyang Ishmael,[^a] dahil pinakinggan ng Panginoon ang pagtawag mo sa kanya dahil sa iyong pagtitiis. 
+At sinabi pa ng anghel ng Panginoon sa kanya, "Buntis ka na at hindi magtatagal ay magkakaanak ka ng lalaki. Pangangalanan mo siyang Ishmael, dahil pinakinggan ng Panginoon ang pagtawag mo sa kanya dahil sa iyong pagtitiis. 
 
 
 
@@ -469,7 +469,7 @@ Tinawag ni Hagar na "Dios na Nakakakita" ang pangalan ng Panginoon na nakipag-us
 
 
 
-Iyon ang bukal na naroon sa gitna ng Kadesh at Bered na tinatawag na Beer Lahai Roi.[^b] 
+Iyon ang bukal na naroon sa gitna ng Kadesh at Bered na tinatawag na Beer Lahai Roi. 
 
 
 

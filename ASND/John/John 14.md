@@ -535,7 +535,7 @@ Oo, gagawin ko ang anumang hilingin ninyo sa aking pangalan. ## Ipinangako ni Je
 
 
 
-At hihilingin ko sa Ama na bigyan niya kayo ng isang Tagatulong[^a] na sasainyo magpakailanman. 
+At hihilingin ko sa Ama na bigyan niya kayo ng isang Tagatulong na sasainyo magpakailanman. 
 
 
 
@@ -601,7 +601,7 @@ Siya ang <i class="trans-change">Banal na_ Espiritu <i class="trans-change">na t
 
 
 
-"Hindi ko kayo iiwan ng walang kasama;[^b] babalik ako sa inyo. 
+"Hindi ko kayo iiwan ng walang kasama; babalik ako sa inyo. 
 
 
 
@@ -964,7 +964,7 @@ Narinig n ºyo ang sinabi ko na aalis ako pero babalik din sa inyo. Kung mahal n 
 
 
 
-Sinasabi ko ito ngayon sa inyo bago pa man mangyari upang sumampalataya kayo <i class="trans-change">sa akin_[^c] kapag nangyari na ito. 
+Sinasabi ko ito ngayon sa inyo bago pa man mangyari upang sumampalataya kayo <i class="trans-change">sa akin_ kapag nangyari na ito. 
 
 
 

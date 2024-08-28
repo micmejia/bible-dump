@@ -13,10 +13,10 @@ next: ['Eccl 7']
 There is an evil which I have seen under the sun, and it _is_ common among men: 
 
 ###### 2 
-A man to whom God has given riches and wealth and honor, so that he lacks nothing for himself of all he desires; yet God does not give him power to eat of it, but a foreigner consumes it. This _is_ vanity, and it _is_ an evil [^a]affliction. 
+A man to whom God has given riches and wealth and honor, so that he lacks nothing for himself of all he desires; yet God does not give him power to eat of it, but a foreigner consumes it. This _is_ vanity, and it _is_ an evil affliction. 
 
 ###### 3 
-If a man begets a hundred _children_ and lives many years, so that the days of his years are many, but his soul is not satisfied with goodness, or indeed he has no burial, I say _that_ a [^b]stillborn child _is_ better than he-- 
+If a man begets a hundred _children_ and lives many years, so that the days of his years are many, but his soul is not satisfied with goodness, or indeed he has no burial, I say _that_ a stillborn child _is_ better than he-- 
 
 ###### 4 
 for it comes in vanity and departs in darkness, and its name is covered with darkness. 
@@ -34,7 +34,7 @@ All the labor of man _is_ for his mouth, And yet the soul is not satisfied.
 For what more has the wise _man_ than the fool? What does the poor man have, Who knows _how_ to walk before the living? 
 
 ###### 9 
-Better _is_ [^c]the sight of the eyes than the wandering of [^d]desire. This also _is_ vanity and grasping for the wind. 
+Better _is_ the sight of the eyes than the wandering of desire. This also _is_ vanity and grasping for the wind. 
 
 ###### 10 
 Whatever one is, he has been named already, For it is known that he _is_ man; And he cannot contend with Him who is mightier than he. 
@@ -43,4 +43,4 @@ Whatever one is, he has been named already, For it is known that he _is_ man; An
 Since there are many things that increase vanity, How _is_ man the better? 
 
 ###### 12 
-For who knows what _is_ good for man in life, [^e]all the days of his [^f]vain life which he passes like a shadow? Who can tell a man what will happen after him under the sun?
+For who knows what _is_ good for man in life, all the days of his vain life which he passes like a shadow? Who can tell a man what will happen after him under the sun?

@@ -403,7 +403,7 @@ Dapat lumayo siya sa masama at gawin ang mabuti. Pagsikapan niyang kamtin ang ka
 
 
 
-Sapagkat iniingatan ng Panginoon ang matuwid, at sinasagot niya ang mga panalangin nila, ngunit galit siya sa mga gumagawa ng masama."[^a] 
+Sapagkat iniingatan ng Panginoon ang matuwid, at sinasagot niya ang mga panalangin nila, ngunit galit siya sa mga gumagawa ng masama." 
 
 
 
@@ -667,4 +667,4 @@ Ang tubig na itoʼy larawan ng bautismong nagliligtas sa atin sa pamamagitan ng 
 
 
 
-Si Jesu-Cristo ay nasa langit na ngayon, sa kanan ng Dios,[^b] at ipinasakop sa kanya ang lahat ng anghel at ang lahat ng <i class="trans-change">espiritung_ namumuno at may kapangyarihan.
+Si Jesu-Cristo ay nasa langit na ngayon, sa kanan ng Dios, at ipinasakop sa kanya ang lahat ng anghel at ang lahat ng <i class="trans-change">espiritung_ namumuno at may kapangyarihan.

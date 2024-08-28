@@ -337,7 +337,7 @@ Dahil dito, sabay-sabay na darating sa kanya sa loob lang ng isang araw ang mga 
 
 
 
-Tatayo lang sila sa malayo at magmamasid dahil takot silang madamay sa parusa sa lungsod na iyon. Sasabihin nila, 'Sayang! Sayang ang sikat at makapangyarihang lungsod ng Babilonia. Sa loob lang ng maikling panahon[^a] ay naparusahan siya!' 
+Tatayo lang sila sa malayo at magmamasid dahil takot silang madamay sa parusa sa lungsod na iyon. Sasabihin nila, 'Sayang! Sayang ang sikat at makapangyarihang lungsod ng Babilonia. Sa loob lang ng maikling panahon ay naparusahan siya!' 
 
 
 

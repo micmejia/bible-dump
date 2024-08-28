@@ -133,7 +133,7 @@ And the Lord said to Moses,
 
 
 
-Take the [^a]Levites from among the Israelites and cleanse them. 
+Take the Levites from among the Israelites and cleanse them. 
 
 
 

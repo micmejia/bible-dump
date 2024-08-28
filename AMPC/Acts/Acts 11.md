@@ -301,7 +301,7 @@ And he related to us how he had seen the angel in his house which stood and said
 
 
 
-He will give _and_ explain to you a message by means of which you and all your household [as well] will be saved [[^a]from eternal death]. 
+He will give _and_ explain to you a message by means of which you and all your household [as well] will be saved [from eternal death]. 
 
 
 
@@ -343,7 +343,7 @@ When I began to speak, the Holy Spirit fell on them just as He did on us at the 
 
 
 
-Then I recalled the declaration of the Lord, how He said, John indeed baptized with water, but you shall be baptized with ([^b]be placed in, introduced into) the Holy Spirit. 
+Then I recalled the declaration of the Lord, how He said, John indeed baptized with water, but you shall be baptized with (be placed in, introduced into) the Holy Spirit. 
 
 
 
@@ -385,7 +385,7 @@ If then God gave to them the same Gift [equally] as He gave to us when we believ
 
 
 
-When they heard this, they were quieted _and_ made no further objection. And they glorified God, saying, Then God has also granted to the Gentiles repentance [^c]unto [real] life [after resurrection]. 
+When they heard this, they were quieted _and_ made no further objection. And they glorified God, saying, Then God has also granted to the Gentiles repentance unto [real] life [after resurrection]. 
 
 
 
@@ -406,7 +406,7 @@ When they heard this, they were quieted _and_ made no further objection. And the
 
 
 
-Meanwhile those who were scattered because of the persecution that arose in connection with Stephen had traveled as far away as Phoenicia and Cyprus and Antioch, without delivering the message [concerning [^d] the attainment through Christ of salvation in the kingdom of God] to anyone except Jews. 
+Meanwhile those who were scattered because of the persecution that arose in connection with Stephen had traveled as far away as Phoenicia and Cyprus and Antioch, without delivering the message [concerning  the attainment through Christ of salvation in the kingdom of God] to anyone except Jews. 
 
 
 
@@ -511,7 +511,7 @@ When he arrived and saw what grace (favor) God was bestowing upon them, he was f
 
 
 
-For he was a good man [[^e]good in himself and also at once for the good and the advantage of other people], full of _and_ controlled by the Holy Spirit and full of faith (of his [^f]belief that Jesus is the Messiah, through Whom we obtain eternal salvation). And a large company was added to the Lord. 
+For he was a good man [good in himself and also at once for the good and the advantage of other people], full of _and_ controlled by the Holy Spirit and full of faith (of his belief that Jesus is the Messiah, through Whom we obtain eternal salvation). And a large company was added to the Lord. 
 
 
 
@@ -553,7 +553,7 @@ For he was a good man [[^e]good in himself and also at once for the good and the
 
 
 
-And when he had found him, he brought him back to Antioch. For a whole year they assembled together with _and_ [^g]were guests of the church and instructed a large number of people; and in Antioch the disciples were first called Christians. 
+And when he had found him, he brought him back to Antioch. For a whole year they assembled together with _and_ were guests of the church and instructed a large number of people; and in Antioch the disciples were first called Christians. 
 
 
 

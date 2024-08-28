@@ -68,7 +68,7 @@ May mercy, [soul] peace, and love be multiplied to you.
 
 
 
-Beloved, my whole concern was to write to you in regard to our common salvation. [But] I found it necessary _and_ was impelled to write you and urgently appeal to _and_ exhort [you] to contend for the faith which was once for all [^a]handed down to the saints [the faith which is that sum of Christian belief which was delivered [^b]verbally to the holy people of God]. 
+Beloved, my whole concern was to write to you in regard to our common salvation. [But] I found it necessary _and_ was impelled to write you and urgently appeal to _and_ exhort [you] to contend for the faith which was once for all handed down to the saints [the faith which is that sum of Christian belief which was delivered verbally to the holy people of God]. 
 
 
 
@@ -89,7 +89,7 @@ Beloved, my whole concern was to write to you in regard to our common salvation.
 
 
 
-For certain men have crept in stealthily [[^c]gaining entrance secretly by a side door]. Their doom was predicted long ago, ungodly (impious, profane) persons who pervert the grace (the spiritual blessing and favor) of our God into lawlessness _and_ wantonness _and_ immorality, and disown _and_ deny our sole Master and Lord, Jesus Christ (the Messiah, the Anointed One). 
+For certain men have crept in stealthily [gaining entrance secretly by a side door]. Their doom was predicted long ago, ungodly (impious, profane) persons who pervert the grace (the spiritual blessing and favor) of our God into lawlessness _and_ wantonness _and_ immorality, and disown _and_ deny our sole Master and Lord, Jesus Christ (the Messiah, the Anointed One). 
 
 
 
@@ -425,7 +425,7 @@ It is these who are [agitators] setting up distinctions _and_ causing divisions-
 
 
 
-But you, beloved, build yourselves up [founded] on your most holy faith [[^d]make progress, rise like an edifice higher and higher], praying in the Holy Spirit; 
+But you, beloved, build yourselves up [founded] on your most holy faith [make progress, rise like an edifice higher and higher], praying in the Holy Spirit; 
 
 
 

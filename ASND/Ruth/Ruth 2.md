@@ -7,7 +7,7 @@ next: ['Ruth 3']
 # Ruth 2
 
 ***
-###### 1-3 Isang araw, sinabi ni Ruth kay Naomi, "Gusto ko po sanang pumunta sa bukid at mamulot[^a] ng mga nalaglag na uhay mula sa mga tagapag-ani sa bukid ng taong magpapahintulot sa akin." Sumagot si Naomi, "O sige anak." Kaya umalis si Ruth at namulot ng mga nalaglag mula sa mga tagapag-ani. Nagkataon na doon siya namulot sa bukid ni Boaz na kamag-anak ni Elimelec. Si Boaz ay mayaman at makapangyarihan. 
+###### 1-3 Isang araw, sinabi ni Ruth kay Naomi, "Gusto ko po sanang pumunta sa bukid at mamulot ng mga nalaglag na uhay mula sa mga tagapag-ani sa bukid ng taong magpapahintulot sa akin." Sumagot si Naomi, "O sige anak." Kaya umalis si Ruth at namulot ng mga nalaglag mula sa mga tagapag-ani. Nagkataon na doon siya namulot sa bukid ni Boaz na kamag-anak ni Elimelec. Si Boaz ay mayaman at makapangyarihan. 
 
 
 
@@ -139,7 +139,7 @@ Sumagot ang katiwala, "Isa po siyang Moabita na sumama kay Naomi na bumalik mula
 
 
 
-Nakiusap siya sa akin na payagan ko siyang mamulot ng mga uhay na nalaglag mula sa mga tagapag-ani. Mula kaninang umaga tuloy-tuloy ang pagtatrabaho niya hanggang ngayon. Nagpahinga lang siya ng sandali sa kubol."[^b] 
+Nakiusap siya sa akin na payagan ko siyang mamulot ng mga uhay na nalaglag mula sa mga tagapag-ani. Mula kaninang umaga tuloy-tuloy ang pagtatrabaho niya hanggang ngayon. Nagpahinga lang siya ng sandali sa kubol." 
 
 
 
@@ -403,7 +403,7 @@ Nang oras na para kumain, sinabi ni Boaz kay Ruth, "Halika, kumuha ka ng pagkain
 
 
 
-Nang tumayo na si Ruth para mamulot <i class="trans-change">ulit_ ng mga nalaglag na uhay, nag-utos si Boaz sa mga tauhan niya, "Huwag ninyong hihiyain si Ruth kahit mamulot pa siya malapit sa mga binigkis na uhay.[^c] 
+Nang tumayo na si Ruth para mamulot <i class="trans-change">ulit_ ng mga nalaglag na uhay, nag-utos si Boaz sa mga tauhan niya, "Huwag ninyong hihiyain si Ruth kahit mamulot pa siya malapit sa mga binigkis na uhay. 
 
 
 
@@ -469,7 +469,7 @@ Kumuha kayo ng mga uhay sa mga binigkis at iwan para sa kanya, at huwag nʼyo si
 
 
 
-Kaya namulot si Ruth ng mga nalaglag na uhay hanggang sa lumubog ang araw. At nang magiik na niya ang naipon niyang sebada[^d] ay umabot ito ng mga kalahating sako. 
+Kaya namulot si Ruth ng mga nalaglag na uhay hanggang sa lumubog ang araw. At nang magiik na niya ang naipon niyang sebada ay umabot ito ng mga kalahating sako. 
 
 
 
@@ -502,7 +502,7 @@ Kaya namulot si Ruth ng mga nalaglag na uhay hanggang sa lumubog ang araw. At na
 
 
 
-Dinala niya ito pauwi sa bayan at ipinakita sa kanyang biyenan[^e] <i class="trans-change">na si Naomi_. Pagkatapos kinuha niya ang natira niyang pagkain at ibinigay kay Naomi. 
+Dinala niya ito pauwi sa bayan at ipinakita sa kanyang biyenan <i class="trans-change">na si Naomi_. Pagkatapos kinuha niya ang natira niyang pagkain at ibinigay kay Naomi. 
 
 
 

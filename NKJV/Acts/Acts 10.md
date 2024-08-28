@@ -10,13 +10,13 @@ next: ['Acts 11']
 
 
 ###### 1 
-There was a certain man in Caesarea called Cornelius, a centurion of what was called the Italian [^a]Regiment, 
+There was a certain man in Caesarea called Cornelius, a centurion of what was called the Italian Regiment, 
 
 ###### 2 
-a devout _man_ and one who feared God with all his household, who gave [^b]alms generously to the people, and prayed to God always. 
+a devout _man_ and one who feared God with all his household, who gave alms generously to the people, and prayed to God always. 
 
 ###### 3 
-About [^c]the ninth hour of the day he saw clearly in a vision an angel of God coming in and saying to him, "Cornelius!" 
+About the ninth hour of the day he saw clearly in a vision an angel of God coming in and saying to him, "Cornelius!" 
 
 ###### 4 
 And when he observed him, he was afraid, and said, "What is it, lord?" So he said to him, "Your prayers and your alms have come up for a memorial before God. 
@@ -25,7 +25,7 @@ And when he observed him, he was afraid, and said, "What is it, lord?" So he sai
 Now send men to Joppa, and send for Simon whose surname is Peter. 
 
 ###### 6 
-He is lodging with Simon, a tanner, whose house is by the sea. He[^d] will tell you what you must do." 
+He is lodging with Simon, a tanner, whose house is by the sea. He will tell you what you must do." 
 
 ###### 7 
 And when the angel who spoke to him had departed, Cornelius called two of his household servants and a devout soldier from among those who waited on him continually. 
@@ -34,7 +34,7 @@ And when the angel who spoke to him had departed, Cornelius called two of his ho
 So when he had explained all _these_ things to them, he sent them to Joppa. ## Peter's Vision 
 
 ###### 9 
-The next day, as they went on their journey and drew near the city, Peter went up on the housetop to pray, about [^e]the sixth hour. 
+The next day, as they went on their journey and drew near the city, Peter went up on the housetop to pray, about the sixth hour. 
 
 ###### 10 
 Then he became very hungry and wanted to eat; but while they made ready, he fell into a trance 
@@ -52,13 +52,13 @@ And a voice came to him, "Rise, Peter; kill and eat."
 But Peter said, "Not so, Lord! For I have never eaten anything common or unclean." 
 
 ###### 15 
-And a voice _spoke_ to him again the second time, "What God has [^f]cleansed you must not call common." 
+And a voice _spoke_ to him again the second time, "What God has cleansed you must not call common." 
 
 ###### 16 
 This was done three times. And the object was taken up into heaven again. ## Summoned to Caesarea 
 
 ###### 17 
-Now while Peter [^g]wondered within himself what this vision which he had seen meant, behold, the men who had been sent from Cornelius had made inquiry for Simon's house, and stood before the gate. 
+Now while Peter wondered within himself what this vision which he had seen meant, behold, the men who had been sent from Cornelius had made inquiry for Simon's house, and stood before the gate. 
 
 ###### 18 
 And they called and asked whether Simon, whose surname was Peter, was lodging there. 
@@ -70,7 +70,7 @@ While Peter thought about the vision, the Spirit said to him, "Behold, three men
 Arise therefore, go down and go with them, doubting nothing; for I have sent them." 
 
 ###### 21 
-Then Peter went down to the men [^h]who had been sent to him from Cornelius, and said, "Yes, I am he whom you seek. For what reason have you come?" 
+Then Peter went down to the men who had been sent to him from Cornelius, and said, "Yes, I am he whom you seek. For what reason have you come?" 
 
 ###### 22 
 And they said, "Cornelius _the_ centurion, a just man, one who fears God and has a good reputation among all the nation of the Jews, was divinely instructed by a holy angel to summon you to his house, and to hear words from you." 
@@ -97,13 +97,13 @@ Then he said to them, "You know how unlawful it is for a Jewish man to keep comp
 Therefore I came without objection as soon as I was sent for. I ask, then, for what reason have you sent for me?" 
 
 ###### 30 
-So Cornelius said, [^i]"Four days ago I was fasting until this hour; and at the ninth hour I prayed in my house, and behold, a man stood before me in bright clothing, 
+So Cornelius said, "Four days ago I was fasting until this hour; and at the ninth hour I prayed in my house, and behold, a man stood before me in bright clothing, 
 
 ###### 31 
-and said, 'Cornelius, your prayer has been heard, and your [^j]alms are remembered in the sight of God. 
+and said, 'Cornelius, your prayer has been heard, and your alms are remembered in the sight of God. 
 
 ###### 32 
-Send therefore to Joppa and call Simon here, whose surname is Peter. He is lodging in the house of Simon, a tanner, by the sea. [^k]When he comes, he will speak to you.' 
+Send therefore to Joppa and call Simon here, whose surname is Peter. He is lodging in the house of Simon, a tanner, by the sea. When he comes, he will speak to you.' 
 
 ###### 33 
 So I sent to you immediately, and you have done well to come. Now therefore, we are all present before God, to hear all the things commanded you by God." ## Preaching to Cornelius' Household 
@@ -115,7 +115,7 @@ Then Peter opened _his_ mouth and said: "In truth I perceive that God shows no p
 But in every nation whoever fears Him and works righteousness is accepted by Him. 
 
 ###### 36 
-The word which _God_ sent to the [^l]children of Israel, preaching peace through Jesus Christ--He is Lord of all-- 
+The word which _God_ sent to the children of Israel, preaching peace through Jesus Christ--He is Lord of all-- 
 
 ###### 37 
 that word you know, which was proclaimed throughout all Judea, and began from Galilee after the baptism which John preached: 
@@ -124,7 +124,7 @@ that word you know, which was proclaimed throughout all Judea, and began from Ga
 how God anointed Jesus of Nazareth with the Holy Spirit and with power, who went about doing good and healing all who were oppressed by the devil, for God was with Him. 
 
 ###### 39 
-And we are witnesses of all things which He did both in the land of the Jews and in Jerusalem, whom [^m]they killed by hanging on a tree. 
+And we are witnesses of all things which He did both in the land of the Jews and in Jerusalem, whom they killed by hanging on a tree. 
 
 ###### 40 
 Him God raised up on the third day, and showed Him openly, 
@@ -136,13 +136,13 @@ not to all the people, but to witnesses chosen before by God, _even_ to us who a
 And He commanded us to preach to the people, and to testify that it is He who was ordained by God _to be_ Judge of the living and the dead. 
 
 ###### 43 
-To Him all the prophets witness that, through His name, whoever believes in Him will receive remission[^n] of sins." ## The Holy Spirit Falls on the Gentiles 
+To Him all the prophets witness that, through His name, whoever believes in Him will receive remission of sins." ## The Holy Spirit Falls on the Gentiles 
 
 ###### 44 
 While Peter was still speaking these words, the Holy Spirit fell upon all those who heard the word. 
 
 ###### 45 
-And [^o]those of the circumcision who believed were astonished, as many as came with Peter, because the gift of the Holy Spirit had been poured out on the Gentiles also. 
+And those of the circumcision who believed were astonished, as many as came with Peter, because the gift of the Holy Spirit had been poured out on the Gentiles also. 
 
 ###### 46 
 For they heard them speak with tongues and magnify God. Then Peter answered, 

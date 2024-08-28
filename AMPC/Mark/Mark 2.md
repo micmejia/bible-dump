@@ -91,7 +91,7 @@ Then they came, bringing a paralytic to Him, who had been picked up _and_ was be
 
 
 
-And when they could not get him to a place in front of Jesus because of the throng, they dug through the roof above Him; and when they had [^a]scooped out an opening, they let down the [[^b]thickly padded] quilt _or_ mat upon which the paralyzed man lay. 
+And when they could not get him to a place in front of Jesus because of the throng, they dug through the roof above Him; and when they had scooped out an opening, they let down the [thickly padded] quilt _or_ mat upon which the paralyzed man lay. 
 
 
 
@@ -112,7 +112,7 @@ And when they could not get him to a place in front of Jesus because of the thro
 
 
 
-And when Jesus saw their faith [their confidence in God through Him], He said to the paralyzed man, Son, your sins are forgiven [you] _and_ put away [that is, the [^c]penalty is remitted, the sense of guilt removed, and you are made upright and in right standing with God]. 
+And when Jesus saw their faith [their confidence in God through Him], He said to the paralyzed man, Son, your sins are forgiven [you] _and_ put away [that is, the penalty is remitted, the sense of guilt removed, and you are made upright and in right standing with God]. 
 
 
 
@@ -154,7 +154,7 @@ Now some of the scribes were sitting there, holding a dialogue with themselves a
 
 
 
-Why does this [^d]Man talk like this? He is blaspheming! Who can forgive sins [[^e]remove guilt, remit the penalty, and bestow righteousness instead] except God alone? 
+Why does this Man talk like this? He is blaspheming! Who can forgive sins [remove guilt, remit the penalty, and bestow righteousness instead] except God alone? 
 
 
 
@@ -196,7 +196,7 @@ And at once Jesus, becoming fully aware in His spirit that they thus debated wit
 
 
 
-Which is easier: to say to the paralyzed man, Your sins are forgiven _and_ [^f]put away, or to say, Rise, take up your sleeping pad _or_ mat, and start walking about [and [^g]keep on walking]? 
+Which is easier: to say to the paralyzed man, Your sins are forgiven _and_ put away, or to say, Rise, take up your sleeping pad _or_ mat, and start walking about [and keep on walking]? 
 
 
 
@@ -259,7 +259,7 @@ I say to you, arise, pick up _and_ carry your sleeping pad _or_ mat, and be goin
 
 
 
-And he arose at once and picked up the sleeping pad _or_ mat and went out before them all, so that they were all amazed and [^h] recognized _and_ praised _and_ thanked God, saying, We have never seen anything like this before! 
+And he arose at once and picked up the sleeping pad _or_ mat and went out before them all, so that they were all amazed and  recognized _and_ praised _and_ thanked God, saying, We have never seen anything like this before! 
 
 
 
@@ -301,7 +301,7 @@ And he arose at once and picked up the sleeping pad _or_ mat and went out before
 
 
 
-And as He was passing by, He saw Levi (Matthew) son of Alphaeus sitting at the tax office, and He said to him, Follow Me! [Be [^i]joined to Me as a disciple, side with My party!] And he arose and joined Him as His disciple _and_ sided with His party _and_ accompanied Him. 
+And as He was passing by, He saw Levi (Matthew) son of Alphaeus sitting at the tax office, and He said to him, Follow Me! [Be joined to Me as a disciple, side with My party!] And he arose and joined Him as His disciple _and_ sided with His party _and_ accompanied Him. 
 
 
 
@@ -322,7 +322,7 @@ And as He was passing by, He saw Levi (Matthew) son of Alphaeus sitting at the t
 
 
 
-And as Jesus, together with His disciples, sat at table in his [Levi's] house, many tax collectors and persons [[^j]definitely stained] with sin were dining with Him, for there were many who walked the same road (followed) with Him. 
+And as Jesus, together with His disciples, sat at table in his [Levi's] house, many tax collectors and persons [definitely stained] with sin were dining with Him, for there were many who walked the same road (followed) with Him. 
 
 
 
@@ -343,7 +343,7 @@ And as Jesus, together with His disciples, sat at table in his [Levi's] house, m
 
 
 
-And the scribes [belonging to the party] of the Pharisees, when they saw that He was eating with [those [^k]definitely known to be especially wicked] sinners and tax collectors, said to His disciples, Why does He eat _and drink_ with tax collectors and [notorious] sinners? 
+And the scribes [belonging to the party] of the Pharisees, when they saw that He was eating with [those definitely known to be especially wicked] sinners and tax collectors, said to His disciples, Why does He eat _and drink_ with tax collectors and [notorious] sinners? 
 
 
 
@@ -364,7 +364,7 @@ And the scribes [belonging to the party] of the Pharisees, when they saw that He
 
 
 
-And when Jesus heard it, He said to them, Those who are strong _and_ well have no need of a physician, but those who are weak _and_ sick; I came not to call the righteous ones _to repentance_, but sinners (the [^l]erring ones and [^m]all those not free from sin). 
+And when Jesus heard it, He said to them, Those who are strong _and_ well have no need of a physician, but those who are weak _and_ sick; I came not to call the righteous ones _to repentance_, but sinners (the erring ones and all those not free from sin). 
 
 
 
@@ -490,7 +490,7 @@ And no one puts new wine into old wineskins; if he does, the wine will burst the
 
 
 
-One Sabbath He was going along beside the fields of standing grain, and as they made their way, His disciples began to [^n]pick off the grains. 
+One Sabbath He was going along beside the fields of standing grain, and as they made their way, His disciples began to pick off the grains. 
 
 
 

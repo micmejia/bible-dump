@@ -40,7 +40,7 @@ next: ['Rev 4']
 
 
 
-"Isulat mo ito para sa anghel na nagbabantay sa iglesya sa Sardis: "Ito ang mensahe ng may pitong Espiritu ng Dios[^a] at may hawak na pitong bituin: Alam ko ang mga ginagawa ninyo. Marami ang nagsasabi na buhay na buhay ang pananampalataya nʼyo sa akin, ngunit ang totoo, para kayong patay. 
+"Isulat mo ito para sa anghel na nagbabantay sa iglesya sa Sardis: "Ito ang mensahe ng may pitong Espiritu ng Dios at may hawak na pitong bituin: Alam ko ang mga ginagawa ninyo. Marami ang nagsasabi na buhay na buhay ang pananampalataya nʼyo sa akin, ngunit ang totoo, para kayong patay. 
 
 
 
@@ -535,7 +535,7 @@ Sinasabi ninyo na mayaman kayo, sagana sa lahat ng bagay at wala nang pangangail
 
 
 
-Kaya pinapayuhan ko kayong bumili sa akin ng ginto na dinalisay sa apoy[^b] upang maging totoong mayaman kayo. Bumili rin kayo sa akin ng puting damit upang matakpan ang nakakahiya ninyong kahubaran, at pati na rin ng gamot sa mata upang makita ninyo <i class="trans-change">ang katotohanan_. 
+Kaya pinapayuhan ko kayong bumili sa akin ng ginto na dinalisay sa apoy upang maging totoong mayaman kayo. Bumili rin kayo sa akin ng puting damit upang matakpan ang nakakahiya ninyong kahubaran, at pati na rin ng gamot sa mata upang makita ninyo <i class="trans-change">ang katotohanan_. 
 
 
 
@@ -634,7 +634,7 @@ Narito ako sa labas ng pintuan ninyo at kumakatok. Kung may makarinig sa akin at
 
 
 
-Ang magtatagumpay ay pauupuin ko sa tabi ng aking trono,[^c] tulad ko na nagtagumpay at naupo sa tabi ng trono ng aking Ama. 
+Ang magtatagumpay ay pauupuin ko sa tabi ng aking trono, tulad ko na nagtagumpay at naupo sa tabi ng trono ng aking Ama. 
 
 
 

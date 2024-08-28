@@ -10,7 +10,7 @@ next: ['1 Cor 9']
 
 
 ###### 1 
-Now concerning things offered to idols: We know that we all have knowledge. Knowledge [^a]puffs up, but love [^b]edifies. 
+Now concerning things offered to idols: We know that we all have knowledge. Knowledge puffs up, but love edifies. 
 
 ###### 2 
 And if anyone thinks that he knows anything, he knows nothing yet as he ought to know. 
@@ -34,7 +34,7 @@ However, _there is_ not in everyone that knowledge; for some, with consciousness
 But food does not commend us to God; for neither if we eat are we the better, nor if we do not eat are we the worse. 
 
 ###### 9 
-But beware lest somehow this liberty of yours become a [^c]stumbling block to those who are weak. 
+But beware lest somehow this liberty of yours become a stumbling block to those who are weak. 
 
 ###### 10 
 For if anyone sees you who have knowledge eating in an idol's temple, will not the conscience of him who is weak be emboldened to eat those things offered to idols? 

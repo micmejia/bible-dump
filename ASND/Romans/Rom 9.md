@@ -238,7 +238,7 @@ Hindi ito nangangahulugan na hindi natupad ang mga pangako ng Dios <i class="tra
 
 
 
-At hindi rin naman lahat ng nagmula kay Abraham ay maituturing na mga anak ni Abraham. Sapagkat sinabi ng Dios kay Abraham, "Ang mga anak lang na magmumula kay Isaac ang mga lahi <i class="trans-change">na aking ipinangako_."[^a] 
+At hindi rin naman lahat ng nagmula kay Abraham ay maituturing na mga anak ni Abraham. Sapagkat sinabi ng Dios kay Abraham, "Ang mga anak lang na magmumula kay Isaac ang mga lahi <i class="trans-change">na aking ipinangako_." 
 
 
 
@@ -304,7 +304,7 @@ Ang ibig sabihin, hindi lahat ng anak ni Abraham ay itinuturing na anak ng Dios,
 
 
 
-Sapagkat ganito ang ipinangako ng Dios sa kanya, "Babalik ako rito sa ganito ring panahon sa susunod na taon at magkakaroon ng anak na lalaki si Sara."[^b] 
+Sapagkat ganito ang ipinangako ng Dios sa kanya, "Babalik ako rito sa ganito ring panahon sa susunod na taon at magkakaroon ng anak na lalaki si Sara." 
 
 
 
@@ -337,7 +337,7 @@ Sapagkat ganito ang ipinangako ng Dios sa kanya, "Babalik ako rito sa ganito rin
 
 
 
-Hindi lang iyon, kundi nangyari rin ang ganoon sa dalawang anak ni Rebeka sa ating ninunong si Isaac, <i class="trans-change">ipinakita rin ng Dios na hindi lahat ng nagmula kay Abraham ay itinuturing na mga anak niya._ <sup class="versenum">11-12</sup>Bago pa man ipanganak ang kambal, sinabi na ng Dios kay Rebeka, "Maglilingkod ang nakatatanda sa nakababatang kapatid."[^c] Sinabi ito ng Dios noong wala pa silang nagagawang mabuti o masama, para patunayan na ang pagpili niya ay batay sa sarili niyang pasya at hindi sa <i class="trans-change">mabubuting_ gawa ng tao. 
+Hindi lang iyon, kundi nangyari rin ang ganoon sa dalawang anak ni Rebeka sa ating ninunong si Isaac, <i class="trans-change">ipinakita rin ng Dios na hindi lahat ng nagmula kay Abraham ay itinuturing na mga anak niya._ <sup class="versenum">11-12</sup>Bago pa man ipanganak ang kambal, sinabi na ng Dios kay Rebeka, "Maglilingkod ang nakatatanda sa nakababatang kapatid." Sinabi ito ng Dios noong wala pa silang nagagawang mabuti o masama, para patunayan na ang pagpili niya ay batay sa sarili niyang pasya at hindi sa <i class="trans-change">mabubuting_ gawa ng tao. 
 
 
 
@@ -370,7 +370,7 @@ Hindi lang iyon, kundi nangyari rin ang ganoon sa dalawang anak ni Rebeka sa ati
 
 
 
-Gaya nga ng sinabi ng Dios sa Kasulatan, "Minamahal ko si Jacob, pero si Esau ay hindi."[^d] 
+Gaya nga ng sinabi ng Dios sa Kasulatan, "Minamahal ko si Jacob, pero si Esau ay hindi." 
 
 
 
@@ -436,7 +436,7 @@ Baka naman sabihin ng iba na hindi makatarungan ang Dios. Aba, hindi!
 
 
 
-Sapagkat sinabi niya kay Moises, "Mahahabag ako sa gusto kong kahabagan; maaawa ako sa gusto kong kaawaan."[^e] 
+Sapagkat sinabi niya kay Moises, "Mahahabag ako sa gusto kong kahabagan; maaawa ako sa gusto kong kaawaan." 
 
 
 
@@ -502,7 +502,7 @@ Kung ganoon, ang pagpili ng Dios ay hindi batay sa kagustuhan ng tao o sa paggaw
 
 
 
-Sapagkat ayon sa Kasulatan, sinabi ng Dios sa Faraon, "Pinayagan kitang mabuhay dahil dito: para maipakita ko ang kapangyarihan ko sa pamamagitan mo at makilala ang pangalan ko sa buong mundo."[^f] 
+Sapagkat ayon sa Kasulatan, sinabi ng Dios sa Faraon, "Pinayagan kitang mabuhay dahil dito: para maipakita ko ang kapangyarihan ko sa pamamagitan mo at makilala ang pangalan ko sa buong mundo." 
 
 
 
@@ -766,7 +766,7 @@ Itoʼy walang iba kundi tayo na mga tinawag niya, hindi lang mula sa mga Judio k
 
 
 
-Ito ang sinabi ng Dios sa aklat ni Hoseas: "Ang dating hindi ko mga tao ay tatawagin kong, 'Mga tao ko.' At ang dating hindi ko mahal ay mamahalin ko.[^g] 
+Ito ang sinabi ng Dios sa aklat ni Hoseas: "Ang dating hindi ko mga tao ay tatawagin kong, 'Mga tao ko.' At ang dating hindi ko mahal ay mamahalin ko. 
 
 
 
@@ -799,7 +799,7 @@ Ito ang sinabi ng Dios sa aklat ni Hoseas: "Ang dating hindi ko mga tao ay tataw
 
 
 
-At sa mga sinabihang, 'Kayoʼy hindi ko mga mamamayan,' silaʼy tatawaging, 'Mga anak ng Dios na buhay.' "[^h] 
+At sa mga sinabihang, 'Kayoʼy hindi ko mga mamamayan,' silaʼy tatawaging, 'Mga anak ng Dios na buhay.' " 
 
 
 
@@ -865,7 +865,7 @@ Tungkol naman sa mga Israelita, sinabi ni <i class="trans-change">Propeta_ Isaia
 
 
 
-dahil mabilis at matindi ang gagawing paghatol ng Panginoon sa <i class="trans-change">mga tao sa_ mundo."[^i] 
+dahil mabilis at matindi ang gagawing paghatol ng Panginoon sa <i class="trans-change">mga tao sa_ mundo." 
 
 
 
@@ -898,7 +898,7 @@ dahil mabilis at matindi ang gagawing paghatol ng Panginoon sa <i class="trans-c
 
 
 
-Sinabi rin ni Isaias, "Kung ang Panginoong Makapangyarihan ay walang itinira sa ating lahi, natulad na sana tayo sa Sodom at Gomora."[^j] ## Ang Israel at ang Magandang Balita 
+Sinabi rin ni Isaias, "Kung ang Panginoong Makapangyarihan ay walang itinira sa ating lahi, natulad na sana tayo sa Sodom at Gomora." ## Ang Israel at ang Magandang Balita 
 
 
 
@@ -1030,4 +1030,4 @@ Bakit sila nabigo? Sapagkat nagtiwala sila sa kanilang mga gawa at hindi sila su
 
 
 
-Gaya nga ng sinabi <i class="trans-change">ng Dios_ sa Kasulatan, "Maglalagay ako sa Zion ng batong naging katitisuran sa mga tao, at nakakapagpadapa sa kanila. Pero hindi mapapahiya ang mga sumasampalataya sa kanya."[^k]
+Gaya nga ng sinabi <i class="trans-change">ng Dios_ sa Kasulatan, "Maglalagay ako sa Zion ng batong naging katitisuran sa mga tao, at nakakapagpadapa sa kanila. Pero hindi mapapahiya ang mga sumasampalataya sa kanya."

@@ -70,7 +70,7 @@ For Sarah became pregnant and bore Abraham a son in his old age, at the set time
 
 
 
-Abraham [^a]named his son whom Sarah bore to him Isaac [laughter]. 
+Abraham named his son whom Sarah bore to him Isaac [laughter]. 
 
 
 
@@ -175,7 +175,7 @@ And she said, Who would have said to Abraham that Sarah would nurse children at 
 
 
 
-And the child grew and was [^b]weaned, and Abraham made a great feast the same day that Isaac was weaned. 
+And the child grew and was weaned, and Abraham made a great feast the same day that Isaac was weaned. 
 
 
 
@@ -301,7 +301,7 @@ And I will make a nation of the son of the bondwoman also, because he is your of
 
 
 
-So Abraham rose early in the morning and took bread and a bottle of water and gave them to Hagar, putting them on her shoulders, and he sent her and the [^c]youth away. And she wandered on [aimlessly] and lost her way in the wilderness of Beersheba. 
+So Abraham rose early in the morning and took bread and a bottle of water and gave them to Hagar, putting them on her shoulders, and he sent her and the youth away. And she wandered on [aimlessly] and lost her way in the wilderness of Beersheba. 
 
 
 
@@ -343,7 +343,7 @@ When the water in the bottle was all gone, Hagar caused the youth to lie down un
 
 
 
-Then she went and sat down opposite him a good way off, about a bowshot, for she said, Let me not see the death of the lad. And as she sat down opposite him, [^d]_he_ lifted up his voice and wept _and_ she raised her voice and wept. 
+Then she went and sat down opposite him a good way off, about a bowshot, for she said, Let me not see the death of the lad. And as she sat down opposite him, _he_ lifted up his voice and wept _and_ she raised her voice and wept. 
 
 
 

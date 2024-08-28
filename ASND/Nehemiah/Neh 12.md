@@ -172,7 +172,7 @@ Si Joyada ay ama ni Jonatan. At si Jonatan ay ama ni Jadua. ## Ang Pinuno ng mga
 
 
 
-Si Jonatan ang pinuno ng pamilya ni Maluc. Si Jose ang pinuno ng pamilya ni Shebania.[^a] 
+Si Jonatan ang pinuno ng pamilya ni Maluc. Si Jose ang pinuno ng pamilya ni Shebania. 
 
 
 
@@ -502,7 +502,7 @@ Ang mga pinuno ng mga pamilya ng mga Levita hanggang sa panahon ni Johanan na ap
 
 
 
-Ito ang mga pinuno ng mga pamilya ng mga Levita: si Hashabia, Sherebia, Jeshua, Binui, Kadmiel,[^b] at ang iba pa nilang mga kasama na nakatayo sa kabilang bahagi nila sa oras ng pag-awit sa templo ng mga papuri at pasasalamat sa Dios. Sila ang sumasagot sa awit ng kabilang grupo, ayon sa utos ni David na lingkod ng Dios. 
+Ito ang mga pinuno ng mga pamilya ng mga Levita: si Hashabia, Sherebia, Jeshua, Binui, Kadmiel, at ang iba pa nilang mga kasama na nakatayo sa kabilang bahagi nila sa oras ng pag-awit sa templo ng mga papuri at pasasalamat sa Dios. Sila ang sumasagot sa awit ng kabilang grupo, ayon sa utos ni David na lingkod ng Dios. 
 
 
 
@@ -964,7 +964,7 @@ Pagdating nila sa Pintuan ng Bukal, umakyat sila sa daang parang hagdan na papun
 
 
 
-Ang ikalawang grupo ay nagmartsa pakaliwa sa itaas ng pader. Sumunod ako sa grupong ito kasama ang kalahati ng mamamayan.[^c] Dumaan kami sa gilid ng Tore na May Hurno papunta sa Malapad na Pader. 
+Ang ikalawang grupo ay nagmartsa pakaliwa sa itaas ng pader. Sumunod ako sa grupong ito kasama ang kalahati ng mamamayan. Dumaan kami sa gilid ng Tore na May Hurno papunta sa Malapad na Pader. 
 
 
 
@@ -997,7 +997,7 @@ Ang ikalawang grupo ay nagmartsa pakaliwa sa itaas ng pader. Sumunod ako sa grup
 
 
 
-Mula roon dumaan kami sa Pintuan ni Efraim, sa Lumang Pintuan,[^d] sa pintuan na tinatawag na Isda, sa Tore ni Hananel, at sa Tore ng Isang Daan.[^e] Pagkatapos, dumaan kami sa pintuan na tinatawag na Tupa at huminto sa may Pintuan ng Guwardya. 
+Mula roon dumaan kami sa Pintuan ni Efraim, sa Lumang Pintuan, sa pintuan na tinatawag na Isda, sa Tore ni Hananel, at sa Tore ng Isang Daan. Pagkatapos, dumaan kami sa pintuan na tinatawag na Tupa at huminto sa may Pintuan ng Guwardya. 
 
 
 

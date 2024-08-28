@@ -133,7 +133,7 @@ So when the Samaritans had come to Him, they urged Him to stay with them; and He
 And many more believed because of His own word. 
 
 ###### 42 
-Then they said to the woman, "Now we believe, not because of what you said, for we ourselves have heard _Him_ and we know that this is indeed [^a]the Christ, the Savior of the world." ## Welcome at Galilee 
+Then they said to the woman, "Now we believe, not because of what you said, for we ourselves have heard _Him_ and we know that this is indeed the Christ, the Savior of the world." ## Welcome at Galilee 
 
 ###### 43 
 Now after the two days He departed from there and went to Galilee. 
@@ -145,7 +145,7 @@ For Jesus Himself testified that a prophet has no honor in his own country.
 So when He came to Galilee, the Galileans received Him, having seen all the things He did in Jerusalem at the feast; for they also had gone to the feast. ## A Nobleman's Son Healed 
 
 ###### 46 
-So Jesus came again to Cana of Galilee where He had made the water wine. And there was a certain [^b]nobleman whose son was sick at Capernaum. 
+So Jesus came again to Cana of Galilee where He had made the water wine. And there was a certain nobleman whose son was sick at Capernaum. 
 
 ###### 47 
 When he heard that Jesus had come out of Judea into Galilee, he went to Him and implored Him to come down and heal his son, for he was at the point of death. 

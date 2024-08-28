@@ -49,7 +49,7 @@ Call now--is there any who will answer you? And to which of the holy [angels] wi
 
 
 
-For [^a]vexation _and_ rage kill the foolish man; jealousy _and_ indignation slay the simple. 
+For vexation _and_ rage kill the foolish man; jealousy _and_ indignation slay the simple. 
 
 
 

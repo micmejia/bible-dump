@@ -19,13 +19,13 @@ Then Bildad the Shuhite answered and said:
 Does God subvert judgment? Or does the Almighty pervert justice? 
 
 ###### 4 
-If your sons have sinned against Him, He has cast them away [^a]for their transgression. 
+If your sons have sinned against Him, He has cast them away for their transgression. 
 
 ###### 5 
 If you would earnestly seek God And make your supplication to the Almighty, 
 
 ###### 6 
-If you _were_ pure and upright, Surely now He would [^b]awake for you, And prosper your rightful dwelling place. 
+If you _were_ pure and upright, Surely now He would awake for you, And prosper your rightful dwelling place. 
 
 ###### 7 
 Though your beginning was small, Yet your latter end would increase abundantly. 
@@ -34,7 +34,7 @@ Though your beginning was small, Yet your latter end would increase abundantly.
 "For inquire, please, of the former age, And consider the things discovered by their fathers; 
 
 ###### 9 
-For we _were born_ yesterday, and know [^c]nothing, Because our days on earth _are_ a shadow. 
+For we _were born_ yesterday, and know nothing, Because our days on earth _are_ a shadow. 
 
 ###### 10 
 Will they not teach you and tell you, And utter words from their heart? 
@@ -49,7 +49,7 @@ While it _is_ yet green _and_ not cut down, It withers before any _other_ plant.
 So _are_ the paths of all who forget God; And the hope of the hypocrite shall perish, 
 
 ###### 14 
-Whose confidence shall be cut off, And whose trust _is_ [^d]a spider's web. 
+Whose confidence shall be cut off, And whose trust _is_ a spider's web. 
 
 ###### 15 
 He leans on his house, but it does not stand. He holds it fast, but it does not endure. 
@@ -67,10 +67,10 @@ If he is destroyed from his place, Then _it_ will deny him, _saying,_ 'I have no
 "Behold, this is the joy of His way, And out of the earth others will grow. 
 
 ###### 20 
-Behold, God will not [^e]cast away the blameless, Nor will He uphold the evildoers. 
+Behold, God will not cast away the blameless, Nor will He uphold the evildoers. 
 
 ###### 21 
-He will yet fill your mouth with laughing, And your lips with [^f]rejoicing. 
+He will yet fill your mouth with laughing, And your lips with rejoicing. 
 
 ###### 22 
-Those who hate you will be clothed with shame, And the dwelling place of the wicked [^g]will come to nothing."
+Those who hate you will be clothed with shame, And the dwelling place of the wicked will come to nothing."

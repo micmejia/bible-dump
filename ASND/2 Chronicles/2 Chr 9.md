@@ -502,7 +502,7 @@ bukod pa rito ang mga buwis na dala ng mga negosyante. Nagbibigay din sa kanya n
 
 
 
-Nagpagawa si Haring Solomon ng 200 malalaking pananggalang na ang bawat isa ay nababalutan ng mga pitong[^a] kilong ginto. 
+Nagpagawa si Haring Solomon ng 200 malalaking pananggalang na ang bawat isa ay nababalutan ng mga pitong kilong ginto. 
 
 
 
@@ -700,7 +700,7 @@ Ang lahat ng kopa ni Haring Solomon ay purong ginto, at ang lahat ng gamit sa ba
 
 
 
-May mga barko rin si Solomon na pang-negosyo,[^b] na ang tripulante ay ang mga tauhan ni Hiram. Ang mga barkong itoʼy umuuwi isang beses sa bawat tatlong taon, na may dalang mga ginto, pilak, pangil ng elepante, at malalakiʼt maliliit na uri ng mga unggoy at pabo real. 
+May mga barko rin si Solomon na pang-negosyo, na ang tripulante ay ang mga tauhan ni Hiram. Ang mga barkong itoʼy umuuwi isang beses sa bawat tatlong taon, na may dalang mga ginto, pilak, pangil ng elepante, at malalakiʼt maliliit na uri ng mga unggoy at pabo real. 
 
 
 
@@ -799,7 +799,7 @@ Ang lahat ng hari sa mundo ay naghahangad na makita si Solomon para makapakinig 
 
 
 
-Taun-taon, ang bawat dumadalaw sa kanya ay may dalang mga regalo – mga bagay na gawa sa pilak at ginto, mga damit, mga sandata, mga sangkap, mga kabayo at mga mola.[^c] 
+Taun-taon, ang bawat dumadalaw sa kanya ay may dalang mga regalo – mga bagay na gawa sa pilak at ginto, mga damit, mga sandata, mga sangkap, mga kabayo at mga mola. 
 
 
 
@@ -832,7 +832,7 @@ Taun-taon, ang bawat dumadalaw sa kanya ay may dalang mga regalo – mga bagay n
 
 
 
-May 4,000 kwadra si Solomon para sa kanyang mga kabayo at mga karwahe. Siyaʼy may 12,000 kabayo[^d] na inilagay niya sa lungsod na lagayan ng kanyang mga karwahe, at ang ibaʼy doon sa Jerusalem. 
+May 4,000 kwadra si Solomon para sa kanyang mga kabayo at mga karwahe. Siyaʼy may 12,000 kabayo na inilagay niya sa lungsod na lagayan ng kanyang mga karwahe, at ang ibaʼy doon sa Jerusalem. 
 
 
 
@@ -898,7 +898,7 @@ Sinakop niya ang lahat ng hari mula sa Ilog <i class="trans-change">ng Eufrates_
 
 
 
-Noong panahon na siya ang hari, ang pilak sa Jerusalem ay gaya lang ng ordinaryong mga bato, at ang kahoy na sedro ay <i class="trans-change">kasindami_ ng mga ordinaryong kahoy na sikomoro sa mga kaburulan sa kanluran.[^e] 
+Noong panahon na siya ang hari, ang pilak sa Jerusalem ay gaya lang ng ordinaryong mga bato, at ang kahoy na sedro ay <i class="trans-change">kasindami_ ng mga ordinaryong kahoy na sikomoro sa mga kaburulan sa kanluran. 
 
 
 

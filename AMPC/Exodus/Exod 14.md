@@ -49,7 +49,7 @@ And the Lord said to Moses,
 
 
 
-Tell the Israelites to turn back and encamp before Pi-hahiroth, between Migdol and the [Red] Sea, before [^a]Baal-zephon. You shall encamp opposite it by the sea. 
+Tell the Israelites to turn back and encamp before Pi-hahiroth, between Migdol and the [Red] Sea, before Baal-zephon. You shall encamp opposite it by the sea. 
 
 
 
@@ -406,7 +406,7 @@ The Egyptians shall know _and_ realize that I am the Lord when I have gained hon
 
 
 
-And the [^b]Angel of God Who went before the host of Israel moved and went behind them; and the pillar of the cloud went from before them and stood behind them, 
+And the Angel of God Who went before the host of Israel moved and went behind them; and the pillar of the cloud went from before them and stood behind them, 
 
 
 

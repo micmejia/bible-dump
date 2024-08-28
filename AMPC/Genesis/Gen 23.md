@@ -49,7 +49,7 @@ Sarah lived 127 years; this was the length of the life of Sarah.
 
 
 
-And Sarah died in Kiriath-arba, [^a]that is, Hebron, in the land of Canaan. And Abraham went to mourn for Sarah and to weep for her. 
+And Sarah died in Kiriath-arba, that is, Hebron, in the land of Canaan. And Abraham went to mourn for Sarah and to weep for her. 
 
 
 
@@ -406,7 +406,7 @@ As a possession to Abraham in the presence of the Hittites, before all who went 
 
 
 
-After this, Abraham buried Sarah his wife in the cave of the field of [^b]Machpelah to the east of Mamre, that is, Hebron, in the land of Canaan. 
+After this, Abraham buried Sarah his wife in the cave of the field of Machpelah to the east of Mamre, that is, Hebron, in the land of Canaan. 
 
 
 

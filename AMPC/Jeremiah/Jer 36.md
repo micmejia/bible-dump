@@ -637,7 +637,7 @@ And concerning Jehoiakim king of Judah you shall say, Thus says the Lord: You ha
 
 
 
-Therefore thus says the Lord concerning Jehoiakim king of Judah: [^a]He shall have no [heir] to sit upon the throne of David, and his dead body shall be cast out to the heat by day and to the frost by night. 
+Therefore thus says the Lord concerning Jehoiakim king of Judah: He shall have no [heir] to sit upon the throne of David, and his dead body shall be cast out to the heat by day and to the frost by night. 
 
 
 

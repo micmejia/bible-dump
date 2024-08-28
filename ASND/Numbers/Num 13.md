@@ -172,7 +172,7 @@ Sila ang mga tao na ipinadala ni Moises para mag-espiya sa Canaan. (Pinalitan ni
 
 
 
-Bago sila pinaalis ni Moises para mag-espiya sa Canaan, sinabi ni Moises sa kanila, "Maglakad kayo pahilaga at pumunta sa timog ng Canaan,[^a] at dumiretso sa kabundukan. 
+Bago sila pinaalis ni Moises para mag-espiya sa Canaan, sinabi ni Moises sa kanila, "Maglakad kayo pahilaga at pumunta sa timog ng Canaan, at dumiretso sa kabundukan. 
 
 
 
@@ -403,7 +403,7 @@ Pagdating nila sa Lambak ng Eshcol, pumutol sila ng isang kumpol ng ubas. <i cla
 
 
 
-Tinatawag ang lugar na iyon na Lambak ng Eshcol[^b] dahil sa kumpol ng ubas na pinutol ng mga Israelita. 
+Tinatawag ang lugar na iyon na Lambak ng Eshcol dahil sa kumpol ng ubas na pinutol ng mga Israelita. 
 
 
 
@@ -502,7 +502,7 @@ kina Moises, Aaron at sa buong mamamayan ng Israel sa Kadesh, doon sa disyerto n
 
 
 
-Sinabi nila kay Moises, "Pumunta kami sa lugar na pinapuntahan mo sa amin, maganda at masaganang lupain[^c] iyon. Sa katunayan, heto ang mga prutas. 
+Sinabi nila kay Moises, "Pumunta kami sa lugar na pinapuntahan mo sa amin, maganda at masaganang lupain iyon. Sa katunayan, heto ang mga prutas. 
 
 
 
@@ -700,4 +700,4 @@ At ipinalaganap nila sa mga Israelita ang masamang balita tungkol sa lupain na k
 
 
 
-May nakita pa kaming mga higante,[^d] na mga angkan ni Anak. Parang mga tipaklong lang ang tingin namin sa aming mga sarili kung ikukumpara sa kanila, at ganyan din ang kanilang tingin sa amin."
+May nakita pa kaming mga higante, na mga angkan ni Anak. Parang mga tipaklong lang ang tingin namin sa aming mga sarili kung ikukumpara sa kanila, at ganyan din ang kanilang tingin sa amin."

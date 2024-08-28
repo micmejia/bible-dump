@@ -238,7 +238,7 @@ Pero ang mga tulisan at ang mga taong ginagalit ang Dios ay namumuhay ng payapa 
 
 
 
-Sapagkat alam nila na ang Panginoon ang may gawa nito.[^a] 
+Sapagkat alam nila na ang Panginoon ang may gawa nito. 
 
 
 

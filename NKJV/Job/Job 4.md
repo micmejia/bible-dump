@@ -19,7 +19,7 @@ Then Eliphaz the Temanite answered and said:
 Surely you have instructed many, And you have strengthened weak hands. 
 
 ###### 4 
-Your words have upheld him who was stumbling, And you have strengthened the [^a]feeble knees; 
+Your words have upheld him who was stumbling, And you have strengthened the feeble knees; 
 
 ###### 5 
 But now it comes upon you, and you are weary; It touches you, and you are troubled. 

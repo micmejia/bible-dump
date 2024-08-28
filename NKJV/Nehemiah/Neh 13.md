@@ -27,7 +27,7 @@ And he had prepared for him a large room, where previously they had stored the g
 But during all this I was not in Jerusalem, for in the thirty-second year of Artaxerxes king of Babylon I had returned to the king. Then after certain days I obtained leave from the king, 
 
 ###### 7 
-and I came to Jerusalem and discovered the evil that Eliashib had done for Tobiah, in preparing a room for him in the courts of the [^a]house of God. 
+and I came to Jerusalem and discovered the evil that Eliashib had done for Tobiah, in preparing a room for him in the courts of the house of God. 
 
 ###### 8 
 And it grieved me bitterly; therefore I threw all the household goods of Tobiah out of the room. 
@@ -66,10 +66,10 @@ Did not your fathers do thus, and did not our God bring all this disaster on us 
 So it was, at the gates of Jerusalem, as it began to be dark before the Sabbath, that I commanded the gates to be shut, and charged that they must not be opened till after the Sabbath. Then I posted _some_ of my servants at the gates, _so that_ no burdens would be brought in on the Sabbath day. 
 
 ###### 20 
-Now the merchants and sellers of all kinds of [^b]wares [^c]lodged outside Jerusalem once or twice. 
+Now the merchants and sellers of all kinds of wares lodged outside Jerusalem once or twice. 
 
 ###### 21 
-Then I warned them, and said to them, "Why do you spend the night [^d]around the wall? If you do _so_ again, I will lay hands on you!" From that time on they came no _more_ on the Sabbath. 
+Then I warned them, and said to them, "Why do you spend the night around the wall? If you do _so_ again, I will lay hands on you!" From that time on they came no _more_ on the Sabbath. 
 
 ###### 22 
 And I commanded the Levites that they should cleanse themselves, and that they should go and guard the gates, to sanctify the Sabbath day. Remember me, O my God, _concerning_ this also, and spare me according to the greatness of Your mercy! 
@@ -81,7 +81,7 @@ In those days I also saw Jews _who_ had married women of Ashdod, Ammon, _and_ Mo
 And half of their children spoke the language of Ashdod, and could not speak the language of Judah, but spoke according to the language of one or the other people. 
 
 ###### 25 
-So I contended with them and [^e]cursed them, struck some of them and pulled out their hair, and made them swear by God, _saying,_ "You shall not give your daughters as wives to their sons, nor take their daughters for your sons or yourselves. 
+So I contended with them and cursed them, struck some of them and pulled out their hair, and made them swear by God, _saying,_ "You shall not give your daughters as wives to their sons, nor take their daughters for your sons or yourselves. 
 
 ###### 26 
 Did not Solomon king of Israel sin by these things? Yet among many nations there was no king like him, who was beloved of his God; and God made him king over all Israel. Nevertheless pagan women caused even him to sin. 

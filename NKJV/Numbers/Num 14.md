@@ -16,13 +16,13 @@ So all the congregation lifted up their voices and cried, and the people wept th
 And all the children of Israel complained against Moses and Aaron, and the whole congregation said to them, "If only we had died in the land of Egypt! Or if only we had died in this wilderness! 
 
 ###### 3 
-Why has the Lord brought us to this land to [^a]fall by the sword, that our wives and children should become victims? Would it not be better for us to return to Egypt?" 
+Why has the Lord brought us to this land to fall by the sword, that our wives and children should become victims? Would it not be better for us to return to Egypt?" 
 
 ###### 4 
 So they said to one another, "Let us select a leader and return to Egypt." 
 
 ###### 5 
-Then Moses and Aaron [^b]fell on their faces before all the assembly of the congregation of the children of Israel. 
+Then Moses and Aaron fell on their faces before all the assembly of the congregation of the children of Israel. 
 
 ###### 6 
 But Joshua the son of Nun and Caleb the son of Jephunneh, _who were_ among those who had spied out the land, tore their clothes; 
@@ -34,13 +34,13 @@ and they spoke to all the congregation of the children of Israel, saying: "The l
 If the Lord delights in us, then He will bring us into this land and give it to us, 'a land which flows with milk and honey.' 
 
 ###### 9 
-Only do not rebel against the Lord, nor fear the people of the land, for they[^c] _are_ our bread; their protection has departed from them, and the Lord _is_ with us. Do not fear them." 
+Only do not rebel against the Lord, nor fear the people of the land, for they _are_ our bread; their protection has departed from them, and the Lord _is_ with us. Do not fear them." 
 
 ###### 10 
 And all the congregation said to stone them with stones. Now the glory of the Lord appeared in the tabernacle of meeting before all the children of Israel. ## Moses Intercedes for the People 
 
 ###### 11 
-Then the Lord said to Moses: "How long will these people reject[^d] Me? And how long will they not believe Me, with all the [^e]signs which I have performed among them? 
+Then the Lord said to Moses: "How long will these people reject Me? And how long will they not believe Me, with all the signs which I have performed among them? 
 
 ###### 12 
 I will strike them with the pestilence and disinherit them, and I will make of you a nation greater and mightier than they." 
@@ -76,7 +76,7 @@ but truly, as I live, all the earth shall be filled with the glory of the Lord--
 because all these men who have seen My glory and the signs which I did in Egypt and in the wilderness, and have put Me to the test now these ten times, and have not heeded My voice, 
 
 ###### 23 
-they certainly shall not see the land of which I [^f]swore to their fathers, nor shall any of those who rejected Me see it. 
+they certainly shall not see the land of which I swore to their fathers, nor shall any of those who rejected Me see it. 
 
 ###### 24 
 But My servant Caleb, because he has a different spirit in him and has followed Me fully, I will bring into the land where he went, and his descendants shall inherit it. 
@@ -97,19 +97,19 @@ Say to them, 'As I live,' says the Lord, 'just as you have spoken in My hearing,
 The carcasses of you who have complained against Me shall fall in this wilderness, all of you who were numbered, according to your entire number, from twenty years old and above. 
 
 ###### 30 
-Except for Caleb the son of Jephunneh and Joshua the son of Nun, you shall by no means enter the land which I [^g]swore I would make you dwell in. 
+Except for Caleb the son of Jephunneh and Joshua the son of Nun, you shall by no means enter the land which I swore I would make you dwell in. 
 
 ###### 31 
-But your little ones, whom you said would be victims, I will bring in, and they shall [^h]know the land which you have despised. 
+But your little ones, whom you said would be victims, I will bring in, and they shall know the land which you have despised. 
 
 ###### 32 
-But _as for_ you, your[^i] carcasses shall fall in this wilderness. 
+But _as for_ you, your carcasses shall fall in this wilderness. 
 
 ###### 33 
-And your sons shall be [^j]shepherds in the wilderness forty years, and bear the brunt of your infidelity, until your carcasses are consumed in the wilderness. 
+And your sons shall be shepherds in the wilderness forty years, and bear the brunt of your infidelity, until your carcasses are consumed in the wilderness. 
 
 ###### 34 
-According to the number of the days in which you spied out the land, forty days, for each day you shall bear your [^k]guilt one year, _namely_ forty years, and you shall know My [^l]rejection. 
+According to the number of the days in which you spied out the land, forty days, for each day you shall bear your guilt one year, _namely_ forty years, and you shall know My rejection. 
 
 ###### 35 
 I the Lord have spoken this. I will surely do so to all this evil congregation who are gathered together against Me. In this wilderness they shall be consumed, and there they shall die.' " 
@@ -130,7 +130,7 @@ Then Moses told these words to all the children of Israel, and the people mourne
 And they rose early in the morning and went up to the top of the mountain, saying, "Here we are, and we will go up to the place which the Lord has promised, for we have sinned!" 
 
 ###### 41 
-And Moses said, "Now why do you [^m]transgress the command of the Lord? For this will not succeed. 
+And Moses said, "Now why do you transgress the command of the Lord? For this will not succeed. 
 
 ###### 42 
 Do not go up, lest you be defeated by your enemies, for the Lord _is_ not among you. 

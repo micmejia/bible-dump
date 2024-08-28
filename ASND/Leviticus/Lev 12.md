@@ -73,7 +73,7 @@ Inutusan ng Panginoon si Moises na
 
 
 
-sabihin ito sa mga taga-Israel: Kung ang isang babae ay nanganak ng lalaki, siyaʼy ituturing na marumi[^a] sa loob ng pitong araw, tulad nang panahong siya ay may buwanang dalaw. 
+sabihin ito sa mga taga-Israel: Kung ang isang babae ay nanganak ng lalaki, siyaʼy ituturing na marumi sa loob ng pitong araw, tulad nang panahong siya ay may buwanang dalaw. 
 
 
 
@@ -139,7 +139,7 @@ Sa ikawalong araw, tutuliin ang kanyang anak.
 
 
 
-Dahil sa siyaʼy dinudugo pa, maghihintay pa siya hanggang sa makalipas ang 33 araw bago siya ituring na malinis[^b] dahil sa dugo ng panganganak. Hindi siya maaaring humipo ng kahit anumang bagay at hindi siya maaaring pumunta sa Toldang Tipanan hanggang sa matapos ang kanyang paglilinis. 
+Dahil sa siyaʼy dinudugo pa, maghihintay pa siya hanggang sa makalipas ang 33 araw bago siya ituring na malinis dahil sa dugo ng panganganak. Hindi siya maaaring humipo ng kahit anumang bagay at hindi siya maaaring pumunta sa Toldang Tipanan hanggang sa matapos ang kanyang paglilinis. 
 
 
 

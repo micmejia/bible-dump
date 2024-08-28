@@ -13,7 +13,7 @@ next: ['Exod 26']
 Then the Lord spoke to Moses, saying: 
 
 ###### 2 
-"Speak to the children of Israel, that they bring Me an [^a]offering. From everyone who gives it willingly with his heart you shall take My offering. 
+"Speak to the children of Israel, that they bring Me an offering. From everyone who gives it willingly with his heart you shall take My offering. 
 
 ###### 3 
 And this _is_ the offering which you shall take from them: gold, silver, and bronze; 
@@ -22,7 +22,7 @@ And this _is_ the offering which you shall take from them: gold, silver, and bro
 blue, purple, and scarlet _thread,_ fine linen, and goats' _hair;_ 
 
 ###### 5 
-ram skins dyed red, [^b]badger skins, and acacia wood; 
+ram skins dyed red, badger skins, and acacia wood; 
 
 ###### 6 
 oil for the light, and spices for the anointing oil and for the sweet incense; 
@@ -31,7 +31,7 @@ oil for the light, and spices for the anointing oil and for the sweet incense;
 onyx stones, and stones to be set in the ephod and in the breastplate. 
 
 ###### 8 
-And let them make Me a sanctuary,[^c] that I may dwell among them. 
+And let them make Me a sanctuary, that I may dwell among them. 
 
 ###### 9 
 According to all that I show you, _that is,_ the pattern of the tabernacle and the pattern of all its furnishings, just so you shall make _it._ ## The Ark of the Testimony 

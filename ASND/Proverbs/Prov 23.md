@@ -865,7 +865,7 @@ Kung anu-ano ang makikita mo at hindi ka makakapag-isip ng mabuti.
 
 
 
-Pakiramdam moʼy nasa gitna ka ng dagat at nakahiga sa ibabaw ng palo[^a] ng barko. 
+Pakiramdam moʼy nasa gitna ka ng dagat at nakahiga sa ibabaw ng palo ng barko. 
 
 
 

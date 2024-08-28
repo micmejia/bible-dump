@@ -406,7 +406,7 @@ But someone will say [to you then], You [say you] have faith, and I have [good] 
 
 
 
-You believe that God is one; you do well. So do the demons believe and shudder [in terror and horror such as [^a]make a man's hair stand on end and contract the surface of his skin]! 
+You believe that God is one; you do well. So do the demons believe and shudder [in terror and horror such as make a man's hair stand on end and contract the surface of his skin]! 
 
 
 

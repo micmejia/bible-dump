@@ -112,7 +112,7 @@ And by knowledge shall its chambers [of every area] be filled with all precious 
 
 
 
-A wise man is strong _and_ [^a]_is better than a strong man_, and a man of knowledge increases _and_ strengthens his power; 
+A wise man is strong _and_ _is better than a strong man_, and a man of knowledge increases _and_ strengthens his power; 
 
 
 
@@ -154,7 +154,7 @@ For by wise counsel you can wage your war, and in an abundance of counselors the
 
 
 
-Wisdom is too high for a [^b]fool; he opens not his mouth in the gate [where the city's rulers sit in judgment]. 
+Wisdom is too high for a fool; he opens not his mouth in the gate [where the city's rulers sit in judgment]. 
 
 
 

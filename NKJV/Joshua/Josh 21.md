@@ -34,13 +34,13 @@ The children of Merari according to their families had twelve cities from the tr
 And the children of Israel gave these cities with their common-lands by lot to the Levites, as the Lord had commanded by the hand of Moses. 
 
 ###### 9 
-So they gave from the tribe of the children of Judah and from the tribe of the children of Simeon these cities which are [^a]designated by name, 
+So they gave from the tribe of the children of Judah and from the tribe of the children of Simeon these cities which are designated by name, 
 
 ###### 10 
 which were for the children of Aaron, one of the families of the Kohathites, _who were_ of the children of Levi; for the lot was theirs first. 
 
 ###### 11 
-And they gave them [^b]Kirjath Arba (_Arba was_ the father of Anak), which _is_ Hebron, in the mountains of Judah, with the common-land surrounding it. 
+And they gave them Kirjath Arba (_Arba was_ the father of Anak), which _is_ Hebron, in the mountains of Judah, with the common-land surrounding it. 
 
 ###### 12 
 But the fields of the city and its villages they gave to Caleb the son of Jephunneh as his possession. 
@@ -67,7 +67,7 @@ Anathoth with its common-land, and Almon with its common-land: four cities.
 All the cities of the children of Aaron, the priests, _were_ thirteen cities with their common-lands. 
 
 ###### 20 
-And the families of the children of Kohath, the Levites, the rest of the children of Kohath, even they had the cities of their [^c]lot from the tribe of Ephraim. 
+And the families of the children of Kohath, the Levites, the rest of the children of Kohath, even they had the cities of their lot from the tribe of Ephraim. 
 
 ###### 21 
 For they gave them Shechem with its common-land in the mountains of Ephraim (a city of refuge for the slayer), Gezer with its common-land, 
@@ -115,7 +115,7 @@ And to the families of the children of Merari, the rest of the Levites, from the
 Dimnah with its common-land, _and_ Nahalal with its common-land: four cities; 
 
 ###### 36 
-[^d]and from the tribe of Reuben, Bezer with its common-land, Jahaz with its common-land, 
+and from the tribe of Reuben, Bezer with its common-land, Jahaz with its common-land, 
 
 ###### 37 
 Kedemoth with its common-land, and Mephaath with its common-land: four cities; 

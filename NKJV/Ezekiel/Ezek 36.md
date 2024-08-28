@@ -13,16 +13,16 @@ next: ['Ezek 37']
 "And you, son of man, prophesy to the mountains of Israel, and say, 'O mountains of Israel, hear the word of the Lord! 
 
 ###### 2 
-Thus says the Lord God: "Because the enemy has said of you, 'Aha! The [^a]ancient heights have become our possession,' " ' 
+Thus says the Lord God: "Because the enemy has said of you, 'Aha! The ancient heights have become our possession,' " ' 
 
 ###### 3 
 therefore prophesy, and say, 'Thus says the Lord God: "Because they made _you_ desolate and swallowed you up on every side, so that you became the possession of the rest of the nations, and you are taken up by the lips of talkers and slandered by the people"-- 
 
 ###### 4 
-therefore, O mountains of Israel, hear the word of the Lord God! Thus says the Lord God to the mountains, the hills, the [^b]rivers, the valleys, the desolate wastes, and the cities that have been forsaken, which became plunder and mockery to the rest of the nations all around-- 
+therefore, O mountains of Israel, hear the word of the Lord God! Thus says the Lord God to the mountains, the hills, the rivers, the valleys, the desolate wastes, and the cities that have been forsaken, which became plunder and mockery to the rest of the nations all around-- 
 
 ###### 5 
-therefore thus says the Lord God: "Surely I have spoken in My burning jealousy against the rest of the nations and against all Edom, who gave My land to themselves as a possession, with wholehearted joy _and_ [^c]spiteful minds, in order to plunder its open country." ' 
+therefore thus says the Lord God: "Surely I have spoken in My burning jealousy against the rest of the nations and against all Edom, who gave My land to themselves as a possession, with wholehearted joy _and_ spiteful minds, in order to plunder its open country." ' 
 
 ###### 6 
 "Therefore prophesy concerning the land of Israel, and say to the mountains, the hills, the rivers, and the valleys, 'Thus says the Lord God: "Behold, I have spoken in My jealousy and My fury, because you have borne the shame of the nations." 
@@ -40,7 +40,7 @@ For indeed I _am_ for you, and I will turn to you, and you shall be tilled and s
 I will multiply men upon you, all the house of Israel, all of it; and the cities shall be inhabited and the ruins rebuilt. 
 
 ###### 11 
-I will multiply upon you man and beast; and they shall increase and [^d]bear young; I will make you inhabited as in former times, and do better _for you_ than at your beginnings. Then you shall know that I _am_ the Lord. 
+I will multiply upon you man and beast; and they shall increase and bear young; I will make you inhabited as in former times, and do better _for you_ than at your beginnings. Then you shall know that I _am_ the Lord. 
 
 ###### 12 
 Yes, I will cause men to walk on you, My people Israel; they shall take possession of you, and you shall be their inheritance; no more shall you bereave them _of children._" 
@@ -100,7 +100,7 @@ I will deliver you from all your uncleannesses. I will call for the grain and mu
 And I will multiply the fruit of your trees and the increase of your fields, so that you need never again bear the reproach of famine among the nations. 
 
 ###### 31 
-Then you will remember your evil ways and your deeds that _were_ not good; and you will [^e]loathe yourselves in your own sight, for your iniquities and your abominations. 
+Then you will remember your evil ways and your deeds that _were_ not good; and you will loathe yourselves in your own sight, for your iniquities and your abominations. 
 
 ###### 32 
 Not for your sake do I do _this,_" says the Lord God, "let it be known to you. Be ashamed and confounded for your own ways, O house of Israel!" 
@@ -121,4 +121,4 @@ Then the nations which are left all around you shall know that I, the Lord, have
 'Thus says the Lord God: "I will also let the house of Israel inquire of Me to do this for them: I will increase their men like a flock. 
 
 ###### 38 
-Like a [^f]flock _offered as_ holy _sacrifices,_ like the flock at Jerusalem on its [^g]feast days, so shall the ruined cities be filled with flocks of men. Then they shall know that I _am_ the Lord." ' "
+Like a flock _offered as_ holy _sacrifices,_ like the flock at Jerusalem on its feast days, so shall the ruined cities be filled with flocks of men. Then they shall know that I _am_ the Lord." ' "

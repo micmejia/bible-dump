@@ -427,7 +427,7 @@ The great trials which your eyes saw, the signs, the wonders, the mighty hand an
 
 
 
-Moreover, the Lord your God will send the [^a]hornet among them until those who are left and hide themselves from you are destroyed. 
+Moreover, the Lord your God will send the hornet among them until those who are left and hide themselves from you are destroyed. 
 
 
 

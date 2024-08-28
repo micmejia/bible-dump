@@ -40,7 +40,7 @@ next: ['Hos 8']
 
 
 
-"Gusto ko sanang pagalingin ang mga taga-Israel. Pero ang nakikita ko sa kanila[^a] ay ang kanilang mga kasamaan. Nandaraya sila, pinapasok <i class="trans-change">ang mga bahay_ para nakawan, at nanghoholdap sa mga daan. 
+"Gusto ko sanang pagalingin ang mga taga-Israel. Pero ang nakikita ko sa kanila ay ang kanilang mga kasamaan. Nandaraya sila, pinapasok <i class="trans-change">ang mga bahay_ para nakawan, at nanghoholdap sa mga daan. 
 
 
 
@@ -139,7 +139,7 @@ Napapasaya nila ang <i class="trans-change">kanilang_ hari at mga pinuno sa kani
 
 
 
-Lahat silaʼy mga taksil.[^b] Para silang mainit na pugon na ang apoy ay hindi na kailangang paningasin ng panadero mula sa oras ng pagmamasa ng harina hanggang sa itoʼy umalsa. 
+Lahat silaʼy mga taksil. Para silang mainit na pugon na ang apoy ay hindi na kailangang paningasin ng panadero mula sa oras ng pagmamasa ng harina hanggang sa itoʼy umalsa. 
 
 
 
@@ -172,7 +172,7 @@ Lahat silaʼy mga taksil.[^b] Para silang mainit na pugon na ang apoy ay hindi n
 
 
 
-Nang dumating ang kaarawan[^c] ng kanilang[^d] hari, nilasing nila ang mga opisyal nito. At pati ang hari ay nakipag-inuman na rin sa <i class="trans-change">kanyang_ mga mapanghusga <i class="trans-change">na mga opisyal_. 
+Nang dumating ang kaarawan ng kanilang hari, nilasing nila ang mga opisyal nito. At pati ang hari ay nakipag-inuman na rin sa <i class="trans-change">kanyang_ mga mapanghusga <i class="trans-change">na mga opisyal_. 
 
 
 
@@ -271,7 +271,7 @@ Galit na galit silang lahat na para ngang nagniningas na pugon. Kaya pinatay nil
 
 
 
-"Nakikisalamuha ang Israel[^e] sa ibang bansa. <i class="trans-change">Silaʼy walang pakinabang_ tulad ng <i class="trans-change">nilutong_ manipis na tinapay na nakalimutang baligtarin.[^f] 
+"Nakikisalamuha ang Israel sa ibang bansa. <i class="trans-change">Silaʼy walang pakinabang_ tulad ng <i class="trans-change">nilutong_ manipis na tinapay na nakalimutang baligtarin. 
 
 
 
@@ -403,7 +403,7 @@ Para silang kalapati na kaydaling lokohin at walang pang-unawa. Humingi sila ng 
 
 
 
-Pero habang pumaparoon sila, pipigilan[^g] ko sila na parang ibon na nahuli sa lambat at hinila pababa. Parurusahan ko sila ayon sa aking sinabi sa kanilang pagtitipon. 
+Pero habang pumaparoon sila, pipigilan ko sila na parang ibon na nahuli sa lambat at hinila pababa. Parurusahan ko sila ayon sa aking sinabi sa kanilang pagtitipon. 
 
 
 
@@ -469,7 +469,7 @@ Nakakaawa sila dahil lumayo sila sa akin. Lilipulin ko sila dahil naghimagsik si
 
 
 
-Hindi tapat ang kanilang pagtawag sa akin. Umiiyak sila sa kanilang mga higaan at sinasaktan ang sarili[^h] habang humihingi ng pagkain at inumin sa mga dios-diosan. 
+Hindi tapat ang kanilang pagtawag sa akin. Umiiyak sila sa kanilang mga higaan at sinasaktan ang sarili habang humihingi ng pagkain at inumin sa mga dios-diosan. 
 
 
 
@@ -535,4 +535,4 @@ Dinisiplina ko sila upang maging matatag, pero nagbalak pa rin sila ng masama la
 
 
 
-Lumapit sila sa <i class="trans-change">mga_ bagay na walang kabuluhan.[^i] Para silang panang baluktot <i class="trans-change">na walang silbi_. Mamamatay sa digmaan ang kanilang mga pinuno dahil wala silang galang kapag nagsasalita. At dahil dito, kukutyain sila ng mga taga-Egipto.
+Lumapit sila sa <i class="trans-change">mga_ bagay na walang kabuluhan. Para silang panang baluktot <i class="trans-change">na walang silbi_. Mamamatay sa digmaan ang kanilang mga pinuno dahil wala silang galang kapag nagsasalita. At dahil dito, kukutyain sila ng mga taga-Egipto.

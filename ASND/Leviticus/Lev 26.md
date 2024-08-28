@@ -535,7 +535,7 @@ Pababayaan ko kayong matalo ng inyong mga kalaban, at kayoʼy sasakupin nitong m
 
 
 
-At kung hindi pa rin kayo makikinig sa akin, parurusahan ko kayo ng pitong beses.[^a] 
+At kung hindi pa rin kayo makikinig sa akin, parurusahan ko kayo ng pitong beses. 
 
 
 
@@ -568,7 +568,7 @@ At kung hindi pa rin kayo makikinig sa akin, parurusahan ko kayo ng pitong beses
 
 
 
-Aalisin ko ang katigasan ng inyong ulo sa pamamagitan ng hindi pagpapadala ng ulan sa inyo, kaya matitigang ang inyong mga lupain.[^b] 
+Aalisin ko ang katigasan ng inyong ulo sa pamamagitan ng hindi pagpapadala ng ulan sa inyo, kaya matitigang ang inyong mga lupain. 
 
 
 
@@ -865,7 +865,7 @@ At kung hindi pa rin kayo makikinig at patuloy pang susuway sa akin,
 
 
 
-magagalit na ako sa inyo at kakalabanin ko kayo, at parurusahan ko kayo ng pitong beses.[^c] 
+magagalit na ako sa inyo at kakalabanin ko kayo, at parurusahan ko kayo ng pitong beses. 
 
 
 
@@ -931,7 +931,7 @@ magagalit na ako sa inyo at kakalabanin ko kayo, at parurusahan ko kayo ng piton
 
 
 
-Wawasakin ko ang inyong mga sambahan sa matataas na lugar,[^d] pati na ang mga altar na pagsusunugan ng insenso. Itatapon ko ang inyong mga bangkay sa ibabaw ng mga patay nʼyong dios-diosan. At itatakwil ko kayo. 
+Wawasakin ko ang inyong mga sambahan sa matataas na lugar, pati na ang mga altar na pagsusunugan ng insenso. Itatapon ko ang inyong mga bangkay sa ibabaw ng mga patay nʼyong dios-diosan. At itatakwil ko kayo. 
 
 
 

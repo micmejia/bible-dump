@@ -238,7 +238,7 @@ Magkakaisa ang mga taga-Juda at magiging katulad sila ng mga sundalong malalakas
 
 
 
-Ang mga mamamayan ng Israel[^a] ay magiging katulad ng mga malalakas na kawal. Magiging masaya sila na parang nakainom ng alak. Ang tagumpay na ito ay maaalala ng kanilang mga kaapu-apuhan at matutuwa sila dahil sa ginawa ko. 
+Ang mga mamamayan ng Israel ay magiging katulad ng mga malalakas na kawal. Magiging masaya sila na parang nakainom ng alak. Ang tagumpay na ito ay maaalala ng kanilang mga kaapu-apuhan at matutuwa sila dahil sa ginawa ko. 
 
 
 

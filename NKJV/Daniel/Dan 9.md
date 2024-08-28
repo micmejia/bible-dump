@@ -58,7 +58,7 @@ And now, O Lord our God, who brought Your people out of the land of Egypt with a
 "O Lord, according to all Your righteousness, I pray, let Your anger and Your fury be turned away from Your city Jerusalem, Your holy mountain; because for our sins, and for the iniquities of our fathers, Jerusalem and Your people _are_ a reproach to all _those_ around us. 
 
 ###### 17 
-Now therefore, our God, hear the prayer of Your servant, and his supplications, and for the Lord's sake [^a]cause Your face to shine on [^b]Your sanctuary, which is desolate. 
+Now therefore, our God, hear the prayer of Your servant, and his supplications, and for the Lord's sake cause Your face to shine on Your sanctuary, which is desolate. 
 
 ###### 18 
 O my God, incline Your ear and hear; open Your eyes and see our desolations, and the city which is called by Your name; for we do not present our supplications before You because of our righteous deeds, but because of Your great mercies. 
@@ -70,22 +70,22 @@ O Lord, hear! O Lord, forgive! O Lord, listen and act! Do not delay for Your own
 Now while I _was_ speaking, praying, and confessing my sin and the sin of my people Israel, and presenting my supplication before the Lord my God for the holy mountain of my God, 
 
 ###### 21 
-yes, while I _was_ speaking in prayer, the man Gabriel, whom I had seen in the vision at the beginning, [^c]being caused to fly swiftly, reached me about the time of the evening offering. 
+yes, while I _was_ speaking in prayer, the man Gabriel, whom I had seen in the vision at the beginning, being caused to fly swiftly, reached me about the time of the evening offering. 
 
 ###### 22 
 And he informed _me,_ and talked with me, and said, "O Daniel, I have now come forth to give you skill to understand. 
 
 ###### 23 
-At the beginning of your supplications the [^d]command went out, and I have come to tell _you,_ for you _are_ greatly beloved; therefore consider the matter, and understand the vision: 
+At the beginning of your supplications the command went out, and I have come to tell _you,_ for you _are_ greatly beloved; therefore consider the matter, and understand the vision: 
 
 ###### 24 
-"Seventy [^e]weeks are determined For your people and for your holy city, To finish the transgression, [^f]To make an end of sins, To make reconciliation for iniquity, To bring in everlasting righteousness, To seal up vision and prophecy, And to anoint [^g]the Most Holy. 
+"Seventy weeks are determined For your people and for your holy city, To finish the transgression, To make an end of sins, To make reconciliation for iniquity, To bring in everlasting righteousness, To seal up vision and prophecy, And to anoint the Most Holy. 
 
 ###### 25 
-"Know therefore and understand, _That_ from the going forth of the command To restore and build Jerusalem Until Messiah the Prince, _There shall be_ seven weeks and sixty-two weeks; The [^h]street shall be built again, and the [^i]wall, Even in troublesome times. 
+"Know therefore and understand, _That_ from the going forth of the command To restore and build Jerusalem Until Messiah the Prince, _There shall be_ seven weeks and sixty-two weeks; The street shall be built again, and the wall, Even in troublesome times. 
 
 ###### 26 
-"And after the sixty-two weeks Messiah shall [^j]be cut off, but not for Himself; And the people of the prince who is to come Shall destroy the city and the sanctuary. The end of it _shall be_ with a flood, And till the end of the war desolations are determined. 
+"And after the sixty-two weeks Messiah shall be cut off, but not for Himself; And the people of the prince who is to come Shall destroy the city and the sanctuary. The end of it _shall be_ with a flood, And till the end of the war desolations are determined. 
 
 ###### 27 
-Then he shall confirm a [^k]covenant with many for one week; But in the middle of the week He shall bring an end to sacrifice and offering. And on the wing of abominations shall be one who makes desolate, Even until the consummation, which is determined, Is poured out on the [^l]desolate."
+Then he shall confirm a covenant with many for one week; But in the middle of the week He shall bring an end to sacrifice and offering. And on the wing of abominations shall be one who makes desolate, Even until the consummation, which is determined, Is poured out on the desolate."

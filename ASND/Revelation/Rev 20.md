@@ -436,4 +436,4 @@ At nakita ko ang mga namatay, tanyag at hindi, na nakatayo sa harap ng trono. Bi
 
 
 
-Kahit sa dagat sila namatay o sa lupa, naglabasan sila mula sa lugar ng mga patay. At hinatulan ang lahat ayon sa mga ginawa nila. <sup class="versenum">14-15</sup>At ang sinumang hindi nakasulat ang pangalan sa aklat <i class="trans-change">na listahan ng mga taong binigyan_ ng buhay <i class="trans-change">na walang hanggan_ ay itinapon sa lawang apoy. Pagkatapos, itinapon din doon ang kamatayan at ang Hades.[^a] Ang parusang ito sa lawang apoy ay ang ikalawang kamatayan.
+Kahit sa dagat sila namatay o sa lupa, naglabasan sila mula sa lugar ng mga patay. At hinatulan ang lahat ayon sa mga ginawa nila. <sup class="versenum">14-15</sup>At ang sinumang hindi nakasulat ang pangalan sa aklat <i class="trans-change">na listahan ng mga taong binigyan_ ng buhay <i class="trans-change">na walang hanggan_ ay itinapon sa lawang apoy. Pagkatapos, itinapon din doon ang kamatayan at ang Hades. Ang parusang ito sa lawang apoy ay ang ikalawang kamatayan.

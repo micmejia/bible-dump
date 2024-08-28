@@ -37,7 +37,7 @@ The Lord God has sworn by Himself, The Lord God of hosts says: "I abhor the prid
 Then it shall come to pass, that if ten men remain in one house, they shall die. 
 
 ###### 10 
-And when [^a]a relative _of the dead,_ with one who will burn _the bodies,_ picks up the [^b]bodies to take them out of the house, he will say to one inside the house, "_Are there_ any more with you?" Then someone will say, "None." And he will say, "Hold your tongue! For we dare not mention the name of the Lord." 
+And when a relative _of the dead,_ with one who will burn _the bodies,_ picks up the bodies to take them out of the house, he will say to one inside the house, "_Are there_ any more with you?" Then someone will say, "None." And he will say, "Hold your tongue! For we dare not mention the name of the Lord." 
 
 ###### 11 
 For behold, the Lord gives a command: He will break the great house into bits, And the little house into pieces. 
@@ -46,7 +46,7 @@ For behold, the Lord gives a command: He will break the great house into bits, A
 Do horses run on rocks? Does _one_ plow _there_ with oxen? Yet you have turned justice into gall, And the fruit of righteousness into wormwood, 
 
 ###### 13 
-You who rejoice over [^c]Lo Debar, Who say, "Have we not taken [^d]Karnaim for ourselves By our own strength?" 
+You who rejoice over Lo Debar, Who say, "Have we not taken Karnaim for ourselves By our own strength?" 
 
 ###### 14 
 "But, behold, I will raise up a nation against you, O house of Israel," Says the Lord God of hosts; "And they will afflict you from the entrance of Hamath To the Valley of the Arabah."

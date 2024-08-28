@@ -13,16 +13,16 @@ next: ['Ps 9']
 O Lord, our Lord, How excellent _is_ Your name in all the earth, Who have set Your glory above the heavens! 
 
 ###### 2 
-Out of the mouth of babes and nursing infants You have [^b]ordained strength, Because of Your enemies, That You may silence the enemy and the avenger. 
+Out of the mouth of babes and nursing infants You have ordained strength, Because of Your enemies, That You may silence the enemy and the avenger. 
 
 ###### 3 
 When I consider Your heavens, the work of Your fingers, The moon and the stars, which You have ordained, 
 
 ###### 4 
-What is man that You are mindful of him, And the son of man that You visit[^c] him? 
+What is man that You are mindful of him, And the son of man that You visit him? 
 
 ###### 5 
-For You have made him a little lower than [^d]the angels, And You have crowned him with glory and honor. 
+For You have made him a little lower than the angels, And You have crowned him with glory and honor. 
 
 ###### 6 
 You have made him to have dominion over the works of Your hands; You have put all _things_ under his feet, 

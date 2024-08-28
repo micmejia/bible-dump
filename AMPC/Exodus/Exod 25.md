@@ -784,7 +784,7 @@ Their knobs and their branches shall be of one piece with it; the whole of it on
 
 
 
-And you shall make the lamps of the [lampstand] to include a [^a]seventh one [at the top of the shaft]. [The priests] shall set up the [seven] lamps of it so they may give light in front of it. 
+And you shall make the lamps of the [lampstand] to include a seventh one [at the top of the shaft]. [The priests] shall set up the [seven] lamps of it so they may give light in front of it. 
 
 
 

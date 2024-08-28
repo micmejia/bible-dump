@@ -25,7 +25,7 @@ Then I will harden Pharaoh's heart, so that he will pursue them; and I will gain
 Now it was told the king of Egypt that the people had fled, and the heart of Pharaoh and his servants was turned against the people; and they said, "Why have we done this, that we have let Israel go from serving us?" 
 
 ###### 6 
-So he [^a]made ready his chariot and took his people with him. 
+So he made ready his chariot and took his people with him. 
 
 ###### 7 
 Also, he took six hundred choice chariots, and all the chariots of Egypt with captains over every one of them. 
@@ -46,10 +46,10 @@ Then they said to Moses, "Because _there were_ no graves in Egypt, have you take
 _Is_ this not the word that we told you in Egypt, saying, 'Let us alone that we may serve the Egyptians'? For _it would have been_ better for us to serve the Egyptians than that we should die in the wilderness." 
 
 ###### 13 
-And Moses said to the people, "Do not be afraid. Stand still, and see the salvation[^b] of the Lord, which He will accomplish for you today. For the Egyptians whom you see today, you shall see again no more forever. 
+And Moses said to the people, "Do not be afraid. Stand still, and see the salvation of the Lord, which He will accomplish for you today. For the Egyptians whom you see today, you shall see again no more forever. 
 
 ###### 14 
-The Lord will fight for you, and you shall hold[^c] your peace." 
+The Lord will fight for you, and you shall hold your peace." 
 
 ###### 15 
 And the Lord said to Moses, "Why do you cry to Me? Tell the children of Israel to go forward. 
@@ -79,16 +79,16 @@ So the children of Israel went into the midst of the sea on the dry _ground,_ an
 And the Egyptians pursued and went after them into the midst of the sea, all Pharaoh's horses, his chariots, and his horsemen. 
 
 ###### 24 
-Now it came to pass, in the morning watch, that the Lord looked down upon the army of the Egyptians through the pillar of fire and cloud, and He [^d]troubled the army of the Egyptians. 
+Now it came to pass, in the morning watch, that the Lord looked down upon the army of the Egyptians through the pillar of fire and cloud, and He troubled the army of the Egyptians. 
 
 ###### 25 
-And He [^e]took off their chariot wheels, so that they drove them with difficulty; and the Egyptians said, "Let us flee from the face of Israel, for the Lord fights for them against the Egyptians." 
+And He took off their chariot wheels, so that they drove them with difficulty; and the Egyptians said, "Let us flee from the face of Israel, for the Lord fights for them against the Egyptians." 
 
 ###### 26 
 Then the Lord said to Moses, "Stretch out your hand over the sea, that the waters may come back upon the Egyptians, on their chariots, and on their horsemen." 
 
 ###### 27 
-And Moses stretched out his hand over the sea; and when the morning appeared, the sea returned to its full depth, while the Egyptians were fleeing into it. So the Lord overthrew[^f] the Egyptians in the midst of the sea. 
+And Moses stretched out his hand over the sea; and when the morning appeared, the sea returned to its full depth, while the Egyptians were fleeing into it. So the Lord overthrew the Egyptians in the midst of the sea. 
 
 ###### 28 
 Then the waters returned and covered the chariots, the horsemen, _and_ all the army of Pharaoh that came into the sea after them. Not so much as one of them remained. 
@@ -97,7 +97,7 @@ Then the waters returned and covered the chariots, the horsemen, _and_ all the a
 But the children of Israel had walked on dry _land_ in the midst of the sea, and the waters _were_ a wall to them on their right hand and on their left. 
 
 ###### 30 
-So the Lord saved[^g] Israel that day out of the hand of the Egyptians, and Israel saw the Egyptians dead on the seashore. 
+So the Lord saved Israel that day out of the hand of the Egyptians, and Israel saw the Egyptians dead on the seashore. 
 
 ###### 31 
-Thus Israel saw the great [^h]work which the Lord had done in Egypt; so the people feared the Lord, and believed the Lord and His servant Moses.
+Thus Israel saw the great work which the Lord had done in Egypt; so the people feared the Lord, and believed the Lord and His servant Moses.

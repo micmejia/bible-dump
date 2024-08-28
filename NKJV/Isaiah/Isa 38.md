@@ -16,7 +16,7 @@ In those days Hezekiah was sick and near death. And Isaiah the prophet, the son 
 Then Hezekiah turned his face toward the wall, and prayed to the Lord, 
 
 ###### 3 
-and said, "Remember now, O Lord, I pray, how I have walked before You in truth and with a [^a]loyal heart, and have done _what is_ good in Your sight." And Hezekiah wept bitterly. 
+and said, "Remember now, O Lord, I pray, how I have walked before You in truth and with a loyal heart, and have done _what is_ good in Your sight." And Hezekiah wept bitterly. 
 
 ###### 4 
 And the word of the Lord came to Isaiah, saying, 
@@ -40,7 +40,7 @@ This is the writing of Hezekiah king of Judah, when he had been sick and had rec
 I said, "In the prime of my life I shall go to the gates of Sheol; I am deprived of the remainder of my years." 
 
 ###### 11 
-I said, "I shall not see [^b]Yah, The Lord in the land of the living; I shall observe man no more [^c]among the inhabitants of [^d]the world. 
+I said, "I shall not see Yah, The Lord in the land of the living; I shall observe man no more among the inhabitants of the world. 
 
 ###### 12 
 My life span is gone, Taken from me like a shepherd's tent; I have cut off my life like a weaver. He cuts me off from the loom; From day until night You make an end of me. 
@@ -49,10 +49,10 @@ My life span is gone, Taken from me like a shepherd's tent; I have cut off my li
 I have considered until morning-- Like a lion, So He breaks all my bones; From day until night You make an end of me. 
 
 ###### 14 
-Like a crane _or_ a swallow, so I chattered; I mourned like a dove; My eyes fail _from looking_ upward. O [^e]Lord, I am oppressed; [^f]Undertake for me! 
+Like a crane _or_ a swallow, so I chattered; I mourned like a dove; My eyes fail _from looking_ upward. O Lord, I am oppressed; Undertake for me! 
 
 ###### 15 
-"What shall I say? [^g]He has both spoken to me, And He Himself has done _it._ I shall walk carefully all my years In the bitterness of my soul. 
+"What shall I say? He has both spoken to me, And He Himself has done _it._ I shall walk carefully all my years In the bitterness of my soul. 
 
 ###### 16 
 O Lord, by these _things men_ live; And in all these _things is_ the life of my spirit; So You will restore me and make me live. 

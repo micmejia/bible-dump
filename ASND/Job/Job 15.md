@@ -766,7 +766,7 @@ Takot din siyang pumunta sa dilim dahil baka may pumatay sa kanya.
 
 
 
-Kung saan-saan siya naghahanap ng pagkain. Alam niyang malapit nang dumating ang kapahamakan.[^a] 
+Kung saan-saan siya naghahanap ng pagkain. Alam niyang malapit nang dumating ang kapahamakan. 
 
 
 
@@ -997,7 +997,7 @@ Hindi na dadami ang kanyang kayamanan, at ang mga natitira niyang yaman at ari-a
 
 
 
-Hindi siya makakatakas sa kapahamakan.[^b] Magiging tulad siya ng puno na ang mga sangaʼy masusunog. Lahat ng ari-arian niya ay mawawala sa isang ihip lamang ng Dios. 
+Hindi siya makakatakas sa kapahamakan. Magiging tulad siya ng puno na ang mga sangaʼy masusunog. Lahat ng ari-arian niya ay mawawala sa isang ihip lamang ng Dios. 
 
 
 
@@ -1063,7 +1063,7 @@ Huwag sana niyang dayain ang sarili niya sa pamamagitan ng pagtitiwala sa mga ba
 
 
 
-Maagang darating sa kanya ang kanyang parusa at hindi na siya uunlad pa.[^c] 
+Maagang darating sa kanya ang kanyang parusa at hindi na siya uunlad pa. 
 
 
 

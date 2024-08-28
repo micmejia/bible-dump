@@ -139,7 +139,7 @@ at nanatili siya roon ng tatlong buwan. Nang bibiyahe na sana siya papuntang Syr
 
 
 
-Sumama sa kanya si Sopater na taga-Berea na anak ni Pyrhus, sina Aristarcus at Secundus na mga taga-Tesalonica, si Gaius na taga-Derbe, si Timoteo, at sina Tykicus at Trofimus na mga taga-Asia.[^a] 
+Sumama sa kanya si Sopater na taga-Berea na anak ni Pyrhus, sina Aristarcus at Secundus na mga taga-Tesalonica, si Gaius na taga-Derbe, si Timoteo, at sina Tykicus at Trofimus na mga taga-Asia. 
 
 
 
@@ -238,7 +238,7 @@ Pinalampas muna namin ang Pista ng Tinapay na Walang Pampaalsa bago kami bumiyah
 
 
 
-Nang Sabado ng gabi,[^b] nagtipon kami sa paghahati-hati ng tinapay. At dahil bibiyahe si Pablo kinabukasan, nangaral siya hanggang hatinggabi. 
+Nang Sabado ng gabi, nagtipon kami sa paghahati-hati ng tinapay. At dahil bibiyahe si Pablo kinabukasan, nangaral siya hanggang hatinggabi. 
 
 
 
@@ -634,7 +634,7 @@ Pagdating nila, sinabi ni Pablo sa kanila, "Alam ninyo kung paano akong namuhay 
 
 
 
-Naglingkod ako sa Panginoon nang may kapakumbabaan at pagluha.[^c] Maraming kahirapan ang tiniis ko dahil sa masasamang balak ng mga Judio laban sa akin. 
+Naglingkod ako sa Panginoon nang may kapakumbabaan at pagluha. Maraming kahirapan ang tiniis ko dahil sa masasamang balak ng mga Judio laban sa akin. 
 
 
 
@@ -931,7 +931,7 @@ Sapagkat wala akong inilihim sa inyo sa aking pagtuturo tungkol sa buong layunin
 
 
 
-Ingatan ninyo ang inyong sarili at ang lahat ng mga mananampalatayang[^d] pinababantayan sa inyo ng Banal na Espiritu. Pangalagaan ninyo ang iglesya ng Dios na kanyang tinubos sa pamamagitan ng sariling dugo. 
+Ingatan ninyo ang inyong sarili at ang lahat ng mga mananampalatayang pinababantayan sa inyo ng Banal na Espiritu. Pangalagaan ninyo ang iglesya ng Dios na kanyang tinubos sa pamamagitan ng sariling dugo. 
 
 
 

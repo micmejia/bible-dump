@@ -40,7 +40,7 @@ next: ['Isa 19']
 
 
 
-Nakakaawa ang mga lugar malapit sa mga ilog ng Etiopia,[^a] na may mga pagaspas ng pakpak ng mga kulisap na naririnig.[^b] 
+Nakakaawa ang mga lugar malapit sa mga ilog ng Etiopia, na may mga pagaspas ng pakpak ng mga kulisap na naririnig. 
 
 
 
@@ -73,7 +73,7 @@ Nakakaawa ang mga lugar malapit sa mga ilog ng Etiopia,[^a] na may mga pagaspas 
 
 
 
-Mula sa lugar na ito ay may mga sugong nakasakay sa sasakyang yari sa tambo[^c] at dumadaan sa Ilog <i class="trans-change">ng Nilo_. Kayong mabibilis na sugo, bumalik na kayo sa inyong lupain na hinahati ng mga ilog. Bumalik na kayo sa inyong mga mamamayan na matatangkad at makikinis ang balat, mga taong makapangyarihan at kinakatakutan kahit saan. 
+Mula sa lugar na ito ay may mga sugong nakasakay sa sasakyang yari sa tambo at dumadaan sa Ilog <i class="trans-change">ng Nilo_. Kayong mabibilis na sugo, bumalik na kayo sa inyong lupain na hinahati ng mga ilog. Bumalik na kayo sa inyong mga mamamayan na matatangkad at makikinis ang balat, mga taong makapangyarihan at kinakatakutan kahit saan. 
 
 
 

@@ -105,7 +105,7 @@ at pinapatotohanan ko ang lahat ng nakita ko tungkol sa inihayag ng Dios at sa k
 
 
 
-Mapalad ang bumabasa at ang mga nakikinig sa sulat na ito kung tinutupad nila ang nakasulat dito. Sapagkat ang mga sinasabi rito ay malapit nang mangyari. ## Pagbati sa Pitong Iglesya ###### 4-5 Mula kay Juan, para sa pitong iglesya sa <i class="trans-change">probinsya ng_ Asia. Sumainyo nawa ang pagpapala at kapayapaang galing sa Dios, sa Espiritu, at kay Jesu-Cristo. Kung tungkol sa Dios, siyaʼy hindi nagbabago ngayon, noon, at sa hinaharap. Kung tungkol sa pitong Espiritu,[^a] siyaʼy nasa harapan ng trono ng Dios. At kung tungkol kay Jesu-Cristo, siya ang mapagkakatiwalaang saksi. Siya ang unang nabuhay mula sa mga patay.[^b] At siya rin ang namumuno sa <i class="trans-change">lahat ng_ hari sa lupa. Iniibig niya tayo, at sa pamamagitan ng kanyang dugo[^c] iniligtas niya tayo sa ating mga kasalanan. 
+Mapalad ang bumabasa at ang mga nakikinig sa sulat na ito kung tinutupad nila ang nakasulat dito. Sapagkat ang mga sinasabi rito ay malapit nang mangyari. ## Pagbati sa Pitong Iglesya ###### 4-5 Mula kay Juan, para sa pitong iglesya sa <i class="trans-change">probinsya ng_ Asia. Sumainyo nawa ang pagpapala at kapayapaang galing sa Dios, sa Espiritu, at kay Jesu-Cristo. Kung tungkol sa Dios, siyaʼy hindi nagbabago ngayon, noon, at sa hinaharap. Kung tungkol sa pitong Espiritu, siyaʼy nasa harapan ng trono ng Dios. At kung tungkol kay Jesu-Cristo, siya ang mapagkakatiwalaang saksi. Siya ang unang nabuhay mula sa mga patay. At siya rin ang namumuno sa <i class="trans-change">lahat ng_ hari sa lupa. Iniibig niya tayo, at sa pamamagitan ng kanyang dugo iniligtas niya tayo sa ating mga kasalanan. 
 
 
 
@@ -138,7 +138,7 @@ Mapalad ang bumabasa at ang mga nakikinig sa sulat na ito kung tinutupad nila an
 
 
 
-Ginawa niya tayong mga hari[^d] at mga pari upang maglingkod sa Dios na kanyang Ama. Sa kanya ang kaluwalhatian at ang kapangyarihan magpakailanman. Amen. 
+Ginawa niya tayong mga hari at mga pari upang maglingkod sa Dios na kanyang Ama. Sa kanya ang kaluwalhatian at ang kapangyarihan magpakailanman. Amen. 
 
 
 
@@ -204,7 +204,7 @@ Magsipaghanda kayo! Darating si Jesus na nasa mga ulap. Makikita siya ng lahat n
 
 
 
-Ang Panginoong Dios ang makapangyarihan sa lahat. Kung ano siya noon, ganoon din siya ngayon at maging sa hinaharap. Kaya sinabi niya, "Ako ang Alpha at ang Omega."[^e] ## Nagpakita si Cristo kay Juan 
+Ang Panginoong Dios ang makapangyarihan sa lahat. Kung ano siya noon, ganoon din siya ngayon at maging sa hinaharap. Kaya sinabi niya, "Ako ang Alpha at ang Omega." ## Nagpakita si Cristo kay Juan 
 
 
 
@@ -534,7 +534,7 @@ Nang makita ko siya, napahandusay ako na parang patay sa kanyang paanan. Ipinato
 
 
 
-Akoʼy buhay magpakailanman. Namatay ako, pero masdan mo, buhay ako, at hindi na muling mamamatay. Nasa ilalim ng aking kapangyarihan ang kamatayan at ang lugar ng mga patay.[^f] 
+Akoʼy buhay magpakailanman. Namatay ako, pero masdan mo, buhay ako, at hindi na muling mamamatay. Nasa ilalim ng aking kapangyarihan ang kamatayan at ang lugar ng mga patay. 
 
 
 

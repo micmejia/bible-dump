@@ -237,7 +237,7 @@ Nilusob ng mga lahi ni Juda ang Jerusalem at sinakop nila ito. Pinatay nila ang 
 
 
 
-Pagkatapos, kinalaban nila ang mga Cananeo na nakatira sa mga kabundukan, sa Negev at sa mga kaburulan sa kanluran.[^a] 
+Pagkatapos, kinalaban nila ang mga Cananeo na nakatira sa mga kabundukan, sa Negev at sa mga kaburulan sa kanluran. 
 
 
 
@@ -468,7 +468,7 @@ Sumagot si Acsa, "Hihingi po sana ako ng pabor sa inyo, gusto ko po sanang bigya
 
 
 
-Pag-alis ng lahi ni Juda sa lungsod ng Jerico,[^b] sumama sa kanila ang mga Keneo, na mula sa angkan ng biyenan ni Moises, papunta sa ilang ng Juda. Tumira sila kasama ng mga tao roon, malapit sa <i class="trans-change">bayan ng_ Arad sa Negev. 
+Pag-alis ng lahi ni Juda sa lungsod ng Jerico, sumama sa kanila ang mga Keneo, na mula sa angkan ng biyenan ni Moises, papunta sa ilang ng Juda. Tumira sila kasama ng mga tao roon, malapit sa <i class="trans-change">bayan ng_ Arad sa Negev. 
 
 
 
@@ -501,7 +501,7 @@ Pag-alis ng lahi ni Juda sa lungsod ng Jerico,[^b] sumama sa kanila ang mga Kene
 
 
 
-Pagkatapos, ang lahi naman ni Simeon ang tinulungan ng lahi ni Juda na sakupin ang lungsod ng Zefat na tinitirhan din ng mga Cananeo. Winasak nila nang husto[^c] ang lungsod, kaya tinawag itong Horma.[^d] 
+Pagkatapos, ang lahi naman ni Simeon ang tinulungan ng lahi ni Juda na sakupin ang lungsod ng Zefat na tinitirhan din ng mga Cananeo. Winasak nila nang husto ang lungsod, kaya tinawag itong Horma. 
 
 
 
@@ -765,7 +765,7 @@ Ang taong itoʼy pumunta sa lupain ng mga Heteo, at doon nagtayo ng isang lungso
 
 
 
-Hindi itinaboy[^e] <i class="trans-change">ng lahi_ ni Manase ang mga nakatira sa Bet Shan, Taanac, Dor, Ibleam, Megido, at ang mga bayan <i class="trans-change">sa paligid_ ng mga ito dahil determinado ang mga Cananeo na huwag umalis sa lupaing iyon. 
+Hindi itinaboy <i class="trans-change">ng lahi_ ni Manase ang mga nakatira sa Bet Shan, Taanac, Dor, Ibleam, Megido, at ang mga bayan <i class="trans-change">sa paligid_ ng mga ito dahil determinado ang mga Cananeo na huwag umalis sa lupaing iyon. 
 
 
 

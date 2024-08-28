@@ -13,13 +13,13 @@ next: ['Lev 21']
 Then the Lord spoke to Moses, saying, 
 
 ###### 2 
-"Again, you shall say to the children of Israel: 'Whoever of the children of Israel, or of the strangers who [^a]dwell in Israel, who gives _any_ of his descendants to Molech, he shall surely be put to death. The people of the land shall stone him with stones. 
+"Again, you shall say to the children of Israel: 'Whoever of the children of Israel, or of the strangers who dwell in Israel, who gives _any_ of his descendants to Molech, he shall surely be put to death. The people of the land shall stone him with stones. 
 
 ###### 3 
-I will set My face against that man, and will [^b]cut him off from his people, because he has given _some_ of his descendants to Molech, to defile My sanctuary and profane My holy name. 
+I will set My face against that man, and will cut him off from his people, because he has given _some_ of his descendants to Molech, to defile My sanctuary and profane My holy name. 
 
 ###### 4 
-And if the people of the land should in any way [^c]hide their eyes from the man, when he gives _some_ of his descendants to Molech, and they do not kill him, 
+And if the people of the land should in any way hide their eyes from the man, when he gives _some_ of his descendants to Molech, and they do not kill him, 
 
 ###### 5 
 then I will set My face against that man and against his family; and I will cut him off from his people, and all who prostitute themselves with him to commit harlotry with Molech. 
@@ -28,10 +28,10 @@ then I will set My face against that man and against his family; and I will cut 
 'And the person who turns to mediums and familiar spirits, to prostitute himself with them, I will set My face against that person and cut him off from his people. 
 
 ###### 7 
-Consecrate[^d] yourselves therefore, and be holy, for I _am_ the Lord your God. 
+Consecrate yourselves therefore, and be holy, for I _am_ the Lord your God. 
 
 ###### 8 
-And you shall keep My statutes, and perform them: I _am_ the Lord who [^e]sanctifies you. 
+And you shall keep My statutes, and perform them: I _am_ the Lord who sanctifies you. 
 
 ###### 9 
 'For everyone who curses his father or his mother shall surely be put to death. He has cursed his father or his mother. His blood _shall be_ upon him. 
@@ -58,10 +58,10 @@ If a man mates with an animal, he shall surely be put to death, and you shall ki
 If a woman approaches any animal and mates with it, you shall kill the woman and the animal. They shall surely be put to death. Their blood _is_ upon them. 
 
 ###### 17 
-'If a man takes his sister, his father's daughter or his mother's daughter, and sees her nakedness and she sees his nakedness, it _is_ a wicked thing. And they shall be [^f]cut off in the sight of their people. He has uncovered his sister's nakedness. He shall bear his [^g]guilt. 
+'If a man takes his sister, his father's daughter or his mother's daughter, and sees her nakedness and she sees his nakedness, it _is_ a wicked thing. And they shall be cut off in the sight of their people. He has uncovered his sister's nakedness. He shall bear his guilt. 
 
 ###### 18 
-If a man lies with a woman during her [^h]sickness and uncovers her nakedness, he has [^i]exposed her flow, and she has uncovered the flow of her blood. Both of them shall be [^j]cut off from their people. 
+If a man lies with a woman during her sickness and uncovers her nakedness, he has exposed her flow, and she has uncovered the flow of her blood. Both of them shall be cut off from their people. 
 
 ###### 19 
 'You shall not uncover the nakedness of your mother's sister nor of your father's sister, for that would uncover his near of kin. They shall bear their guilt. 
@@ -70,7 +70,7 @@ If a man lies with a woman during her [^h]sickness and uncovers her nakedness, h
 If a man lies with his uncle's wife, he has uncovered his uncle's nakedness. They shall bear their sin; they shall die childless. 
 
 ###### 21 
-If a man takes his brother's wife, it _is_ an [^k]unclean thing. He has uncovered his brother's nakedness. They shall be childless. 
+If a man takes his brother's wife, it _is_ an unclean thing. He has uncovered his brother's nakedness. They shall be childless. 
 
 ###### 22 
 'You shall therefore keep all My statutes and all My judgments, and perform them, that the land where I am bringing you to dwell may not vomit you out. 
@@ -82,7 +82,7 @@ And you shall not walk in the statutes of the nation which I am casting out befo
 But I have said to you, "You shall inherit their land, and I will give it to you to possess, a land flowing with milk and honey." I _am_ the Lord your God, who has separated you from the peoples. 
 
 ###### 25 
-You shall therefore distinguish between clean animals and unclean, between unclean birds and clean, and you shall not make yourselves [^l]abominable by beast or by bird, or by any kind of living thing that creeps on the ground, which I have separated from you as [^m]unclean. 
+You shall therefore distinguish between clean animals and unclean, between unclean birds and clean, and you shall not make yourselves abominable by beast or by bird, or by any kind of living thing that creeps on the ground, which I have separated from you as unclean. 
 
 ###### 26 
 And you shall be holy to Me, for I the Lord _am_ holy, and have separated you from the peoples, that you should be Mine. 

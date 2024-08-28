@@ -28,7 +28,7 @@ next: ['Jer 9']
 
 
 
-At that time, says the Lord, [the Babylonian army will break open the sepulchers, and] they shall bring out the [^a]bones of the kings of Judah, the bones of its princes, the bones of the priests, the bones of the prophets, and the bones of the inhabitants of Jerusalem from their graves. 
+At that time, says the Lord, [the Babylonian army will break open the sepulchers, and] they shall bring out the bones of the kings of Judah, the bones of its princes, the bones of the priests, the bones of the prophets, and the bones of the inhabitants of Jerusalem from their graves. 
 
 
 
@@ -49,7 +49,7 @@ At that time, says the Lord, [the Babylonian army will break open the sepulchers
 
 
 
-And they will [carelessly] scatter [the corpses] before the sun and the moon and all the host of heaven, which [the dead] have loved and which they have served and after which they have walked and which they have sought, inquired of, _and_ required and which they have worshiped. They shall not be gathered, or be buried; they shall be like [^b]dung upon the face of the earth. 
+And they will [carelessly] scatter [the corpses] before the sun and the moon and all the host of heaven, which [the dead] have loved and which they have served and after which they have walked and which they have sought, inquired of, _and_ required and which they have worshiped. They shall not be gathered, or be buried; they shall be like dung upon the face of the earth. 
 
 
 
@@ -112,7 +112,7 @@ Moreover, you [Jeremiah] shall say to them, Thus says the Lord: Shall men fall a
 
 
 
-Why then is this people of Jerusalem turned away with a perpetual turning away [from Me]? They hold fast to [^c]deceit (idolatry); they refuse to repent _and_ return [to God]. 
+Why then is this people of Jerusalem turned away with a perpetual turning away [from Me]? They hold fast to deceit (idolatry); they refuse to repent _and_ return [to God]. 
 
 
 

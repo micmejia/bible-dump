@@ -15,10 +15,10 @@ Then the Lord spoke to Moses, saying:
 "On the first day of the first month you shall set up the tabernacle of the tent of meeting. 
 
 ###### 3 
-You shall put in it the ark of the Testimony, and [^a]partition off the ark with the veil. 
+You shall put in it the ark of the Testimony, and partition off the ark with the veil. 
 
 ###### 4 
-You shall bring in the table and arrange the things that are to be set in order on it; and you shall bring in the lampstand and [^b]light its lamps. 
+You shall bring in the table and arrange the things that are to be set in order on it; and you shall bring in the lampstand and light its lamps. 
 
 ###### 5 
 You shall also set the altar of gold for the incense before the ark of the Testimony, and put up the screen for the door of the tabernacle. 
@@ -57,7 +57,7 @@ You shall anoint them, as you anointed their father, that they may minister to M
 Thus Moses did; according to all that the Lord had commanded him, so he did. 
 
 ###### 17 
-And it came to pass in the first month of the second year, on the first _day_ of the month, _that_ the tabernacle was [^c]raised up. 
+And it came to pass in the first month of the second year, on the first _day_ of the month, _that_ the tabernacle was raised up. 
 
 ###### 18 
 So Moses raised up the tabernacle, fastened its sockets, set up its boards, put in its bars, and raised up its pillars. 
@@ -114,7 +114,7 @@ Then the cloud covered the tabernacle of meeting, and the glory of the Lord fill
 And Moses was not able to enter the tabernacle of meeting, because the cloud rested above it, and the glory of the Lord filled the tabernacle. 
 
 ###### 36 
-Whenever the cloud was taken up from above the tabernacle, the children of Israel would [^d]go onward in all their journeys. 
+Whenever the cloud was taken up from above the tabernacle, the children of Israel would go onward in all their journeys. 
 
 ###### 37 
 But if the cloud was not taken up, then they did not journey till the day that it was taken up. 

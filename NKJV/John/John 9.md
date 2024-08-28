@@ -19,7 +19,7 @@ And His disciples asked Him, saying, "Rabbi, who sinned, this man or his parents
 Jesus answered, "Neither this man nor his parents sinned, but that the works of God should be revealed in him. 
 
 ###### 4 
-I[^a] must work the works of Him who sent Me while it is day; _the_ night is coming when no one can work. 
+I must work the works of Him who sent Me while it is day; _the_ night is coming when no one can work. 
 
 ###### 5 
 As long as I am in the world, I am the light of the world." 
@@ -31,16 +31,16 @@ When He had said these things, He spat on the ground and made clay with the sali
 And He said to him, "Go, wash in the pool of Siloam" (which is translated, Sent). So he went and washed, and came back seeing. 
 
 ###### 8 
-Therefore the neighbors and those who previously had seen that he was [^b]blind said, "Is not this he who sat and begged?" 
+Therefore the neighbors and those who previously had seen that he was blind said, "Is not this he who sat and begged?" 
 
 ###### 9 
-Some said, "This is he." Others _said,_ [^c]"He is like him." He said, "I am _he._" 
+Some said, "This is he." Others _said,_ "He is like him." He said, "I am _he._" 
 
 ###### 10 
 Therefore they said to him, "How were your eyes opened?" 
 
 ###### 11 
-He answered and said, "A Man called Jesus made clay and anointed my eyes and said to me, 'Go to [^d]the pool of Siloam and wash.' So I went and washed, and I received sight." 
+He answered and said, "A Man called Jesus made clay and anointed my eyes and said to me, 'Go to the pool of Siloam and wash.' So I went and washed, and I received sight." 
 
 ###### 12 
 Then they said to him, "Where is He?" He said, "I do not know." ## The Pharisees Excommunicate the Healed Man 
@@ -55,7 +55,7 @@ Now it was a Sabbath when Jesus made the clay and opened his eyes.
 Then the Pharisees also asked him again how he had received his sight. He said to them, "He put clay on my eyes, and I washed, and I see." 
 
 ###### 16 
-Therefore some of the Pharisees said, "This Man is not from God, because He does not [^e]keep the Sabbath." Others said, "How can a man who is a sinner do such signs?" And there was a division among them. 
+Therefore some of the Pharisees said, "This Man is not from God, because He does not keep the Sabbath." Others said, "How can a man who is a sinner do such signs?" And there was a division among them. 
 
 ###### 17 
 They said to the blind man again, "What do you say about Him because He opened your eyes?" He said, "He is a prophet." 
@@ -109,10 +109,10 @@ Since the world began it has been unheard of that anyone opened the eyes of one 
 If this Man were not from God, He could do nothing." 
 
 ###### 34 
-They answered and said to him, "You were completely born in sins, and are you teaching us?" And they [^f]cast him out. ## True Vision and True Blindness 
+They answered and said to him, "You were completely born in sins, and are you teaching us?" And they cast him out. ## True Vision and True Blindness 
 
 ###### 35 
-Jesus heard that they had cast him out; and when He had found him, He said to him, "Do you believe in the Son of [^g]God?" 
+Jesus heard that they had cast him out; and when He had found him, He said to him, "Do you believe in the Son of God?" 
 
 ###### 36 
 He answered and said, "Who is He, Lord, that I may believe in Him?" 

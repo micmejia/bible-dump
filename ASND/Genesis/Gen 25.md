@@ -601,7 +601,7 @@ Ito ang salaysay tungkol sa pamilya ni Isaac na anak ni Abraham.
 
 
 
-Si Isaac ay 40 taong gulang nang napangasawa niya si Rebeka na anak ni Betuel na Arameo na taga-Padan Aram.[^a] Si Rebeka ay kapatid ni Laban na Arameo rin. 
+Si Isaac ay 40 taong gulang nang napangasawa niya si Rebeka na anak ni Betuel na Arameo na taga-Padan Aram. Si Rebeka ay kapatid ni Laban na Arameo rin. 
 
 
 
@@ -766,7 +766,7 @@ Nang nanganak na si Rebeka, kambal ang anak niya.
 
 
 
-Ang unang lumabas ay mapula-pula at balbon, kaya pinangalanan nila siyang Esau.[^b] 
+Ang unang lumabas ay mapula-pula at balbon, kaya pinangalanan nila siyang Esau. 
 
 
 
@@ -799,7 +799,7 @@ Ang unang lumabas ay mapula-pula at balbon, kaya pinangalanan nila siyang Esau.[
 
 
 
-Nang lumabas ang ikalawa, ang kamay niya ay nakahawak sa sakong ng kanyang kapatid, kaya pinangalanan nila siyang Jacob.[^c] Si Isaac ay 60 taong gulang nang manganak si Rebeka ng kambal. ## Ibinenta ni Esau ang Kanyang Karapatan bilang Panganay 
+Nang lumabas ang ikalawa, ang kamay niya ay nakahawak sa sakong ng kanyang kapatid, kaya pinangalanan nila siyang Jacob. Si Isaac ay 60 taong gulang nang manganak si Rebeka ng kambal. ## Ibinenta ni Esau ang Kanyang Karapatan bilang Panganay 
 
 
 
@@ -931,7 +931,7 @@ Isang araw, habang nagluluto si Jacob ng sabaw, dumating si Esau galing sa panga
 
 
 
-Sinabi niya kay Jacob, "Pakiusap, bigyan mo nga ako ng niluluto mong mapula-pulang sabaw dahil gutom na gutom na ako." (Kaya tinatawag din si Esau na Edom.)[^d] 
+Sinabi niya kay Jacob, "Pakiusap, bigyan mo nga ako ng niluluto mong mapula-pulang sabaw dahil gutom na gutom na ako." (Kaya tinatawag din si Esau na Edom.) 
 
 
 

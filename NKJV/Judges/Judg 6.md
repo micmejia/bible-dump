@@ -22,7 +22,7 @@ So it was, whenever Israel had sown, Midianites would come up; also Amalekites a
 Then they would encamp against them and destroy the produce of the earth as far as Gaza, and leave no sustenance for Israel, neither sheep nor ox nor donkey. 
 
 ###### 5 
-For they would come up with their livestock and their tents, coming in as numerous as locusts; both they and their camels were [^a]without number; and they would enter the land to destroy it. 
+For they would come up with their livestock and their tents, coming in as numerous as locusts; both they and their camels were without number; and they would enter the land to destroy it. 
 
 ###### 6 
 So Israel was greatly impoverished because of the Midianites, and the children of Israel cried out to the Lord. 
@@ -31,7 +31,7 @@ So Israel was greatly impoverished because of the Midianites, and the children o
 And it came to pass, when the children of Israel cried out to the Lord because of the Midianites, 
 
 ###### 8 
-that the Lord sent a prophet to the children of Israel, who said to them, "Thus says the Lord God of Israel: 'I brought you up from Egypt and brought you out of the house of [^b]bondage; 
+that the Lord sent a prophet to the children of Israel, who said to them, "Thus says the Lord God of Israel: 'I brought you up from Egypt and brought you out of the house of bondage; 
 
 ###### 9 
 and I delivered you out of the hand of the Egyptians and out of the hand of all who oppressed you, and drove them out before you and gave you their land. 
@@ -46,16 +46,16 @@ Now the Angel of the Lord came and sat under the terebinth tree which _was_ in O
 And the Angel of the Lord appeared to him, and said to him, "The Lord _is_ with you, you mighty man of valor!" 
 
 ###### 13 
-Gideon said to Him, "O [^c]my lord, if the Lord is with us, why then has all this happened to us? And where _are_ all His miracles which our fathers told us about, saying, 'Did not the Lord bring us up from Egypt?' But now the Lord has forsaken us and delivered us into the hands of the Midianites." 
+Gideon said to Him, "O my lord, if the Lord is with us, why then has all this happened to us? And where _are_ all His miracles which our fathers told us about, saying, 'Did not the Lord bring us up from Egypt?' But now the Lord has forsaken us and delivered us into the hands of the Midianites." 
 
 ###### 14 
 Then the Lord turned to him and said, "Go in this might of yours, and you shall save Israel from the hand of the Midianites. Have I not sent you?" 
 
 ###### 15 
-So he said to Him, "O [^d]my Lord, how can I save Israel? Indeed my clan _is_ the weakest in Manasseh, and I _am_ the least in my father's house." 
+So he said to Him, "O my Lord, how can I save Israel? Indeed my clan _is_ the weakest in Manasseh, and I _am_ the least in my father's house." 
 
 ###### 16 
-And the Lord said to him, "Surely I will be with you, and you shall [^e]defeat the Midianites as one man." 
+And the Lord said to him, "Surely I will be with you, and you shall defeat the Midianites as one man." 
 
 ###### 17 
 Then he said to Him, "If now I have found favor in Your sight, then show me a sign that it is You who talk with me. 
@@ -79,13 +79,13 @@ Now Gideon perceived that He _was_ the Angel of the Lord. So Gideon said, "Alas,
 Then the Lord said to him, "Peace _be_ with you; do not fear, you shall not die." 
 
 ###### 24 
-So Gideon built an altar there to the Lord, and called it [^f]The-Lord-_Is_-Peace. To this day it _is_ still in Ophrah of the Abiezrites. 
+So Gideon built an altar there to the Lord, and called it The-Lord-_Is_-Peace. To this day it _is_ still in Ophrah of the Abiezrites. 
 
 ###### 25 
-Now it came to pass the same night that the Lord said to him, "Take your father's young bull, the second bull of seven years old, and tear down the altar of Baal that your father has, and cut down the [^g]wooden image that _is_ beside it; 
+Now it came to pass the same night that the Lord said to him, "Take your father's young bull, the second bull of seven years old, and tear down the altar of Baal that your father has, and cut down the wooden image that _is_ beside it; 
 
 ###### 26 
-and build an altar to the Lord your God on top of this [^h]rock in the proper arrangement, and take the second bull and offer a burnt sacrifice with the wood of the image which you shall cut down." 
+and build an altar to the Lord your God on top of this rock in the proper arrangement, and take the second bull and offer a burnt sacrifice with the wood of the image which you shall cut down." 
 
 ###### 27 
 So Gideon took ten men from among his servants and did as the Lord had said to him. But because he feared his father's household and the men of the city too much to do _it_ by day, he did _it_ by night. ## Gideon Destroys the Altar of Baal 
@@ -100,10 +100,10 @@ So they said to one another, "Who has done this thing?" And when they had inquir
 Then the men of the city said to Joash, "Bring out your son, that he may die, because he has torn down the altar of Baal, and because he has cut down the wooden image that _was_ beside it." 
 
 ###### 31 
-But Joash said to all who stood against him, "Would you [^i]plead for Baal? Would you save him? Let the one who would plead for him be put to death by morning! If he _is_ a god, let him plead for himself, because his altar has been torn down!" 
+But Joash said to all who stood against him, "Would you plead for Baal? Would you save him? Let the one who would plead for him be put to death by morning! If he _is_ a god, let him plead for himself, because his altar has been torn down!" 
 
 ###### 32 
-Therefore on that day he called him Jerubbaal,[^j] saying, "Let Baal plead against him, because he has torn down his altar." 
+Therefore on that day he called him Jerubbaal, saying, "Let Baal plead against him, because he has torn down his altar." 
 
 ###### 33 
 Then all the Midianites and Amalekites, the people of the East, gathered together; and they crossed over and encamped in the Valley of Jezreel. 

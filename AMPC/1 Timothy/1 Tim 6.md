@@ -69,7 +69,7 @@ Let those who have believing masters not be disrespectful _or_ scornful [to them
 
 
 
-But if anyone teaches otherwise and does not [^a]assent to the sound _and_ wholesome messages of our Lord Jesus Christ (the Messiah) and the teaching which is in agreement with godliness (piety toward God), 
+But if anyone teaches otherwise and does not assent to the sound _and_ wholesome messages of our Lord Jesus Christ (the Messiah) and the teaching which is in agreement with godliness (piety toward God), 
 
 
 
@@ -90,7 +90,7 @@ But if anyone teaches otherwise and does not [^a]assent to the sound _and_ whole
 
 
 
-He is puffed up with pride _and_ stupefied with conceit, [although he is] woefully ignorant. He has a [^b]morbid fondness for controversy and disputes _and_ strife about words, which result in (produce) envy _and_ jealousy, quarrels _and_ dissension, abuse _and_ insults _and_ slander, and base suspicions, 
+He is puffed up with pride _and_ stupefied with conceit, [although he is] woefully ignorant. He has a morbid fondness for controversy and disputes _and_ strife about words, which result in (produce) envy _and_ jealousy, quarrels _and_ dissension, abuse _and_ insults _and_ slander, and base suspicions, 
 
 
 
@@ -111,7 +111,7 @@ He is puffed up with pride _and_ stupefied with conceit, [although he is] woeful
 
 
 
-And protracted wrangling _and_ wearing discussion _and_ perpetual friction among men who are corrupted in mind and bereft of the truth, who imagine that godliness _or_ righteousness is a [^c]source of profit [a moneymaking business, a means of livelihood]. _From such withdraw_. 
+And protracted wrangling _and_ wearing discussion _and_ perpetual friction among men who are corrupted in mind and bereft of the truth, who imagine that godliness _or_ righteousness is a source of profit [a moneymaking business, a means of livelihood]. _From such withdraw_. 
 
 
 
@@ -132,7 +132,7 @@ And protracted wrangling _and_ wearing discussion _and_ perpetual friction among
 
 
 
-[And it is, indeed, a source of immense profit, for] godliness accompanied with contentment (that contentment which is a sense of [^d]inward sufficiency) is great _and_ abundant gain. 
+[And it is, indeed, a source of immense profit, for] godliness accompanied with contentment (that contentment which is a sense of inward sufficiency) is great _and_ abundant gain. 
 
 
 
@@ -216,7 +216,7 @@ But those who crave to be rich fall into temptation and a snare and into many fo
 
 
 
-For the love of money is a root of all evils; it is through this craving that some have been led astray _and_ have wandered from the faith and pierced themselves through with many [^e]acute [mental] pangs. 
+For the love of money is a root of all evils; it is through this craving that some have been led astray _and_ have wandered from the faith and pierced themselves through with many acute [mental] pangs. 
 
 
 

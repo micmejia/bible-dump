@@ -28,7 +28,7 @@ next: ['Rev 8']
 
 
 
-After this I saw four angels stationed at the four corners of the earth, [^a]firmly holding back the four winds of the earth so that no wind should blow on the earth or sea or upon any tree. 
+After this I saw four angels stationed at the four corners of the earth, firmly holding back the four winds of the earth so that no wind should blow on the earth or sea or upon any tree. 
 
 
 
@@ -238,7 +238,7 @@ In loud voice they cried, saying, [Our] salvation is due to our God, Who is seat
 
 
 
-And all the angels were standing round the throne and round the elders [[^b]of the heavenly Sanhedrin] and the four living creatures, and they fell prostrate before the throne and worshiped God. 
+And all the angels were standing round the throne and round the elders [of the heavenly Sanhedrin] and the four living creatures, and they fell prostrate before the throne and worshiped God. 
 
 
 
@@ -280,7 +280,7 @@ Amen! (So be it!) they cried. Blessing and glory _and_ majesty _and_ splendor an
 
 
 
-Then, addressing me, one of the elders [[^c]of the heavenly Sanhedrin] said, Who are these [people] clothed in the long white robes? And from where have they come? 
+Then, addressing me, one of the elders [of the heavenly Sanhedrin] said, Who are these [people] clothed in the long white robes? And from where have they come? 
 
 
 
@@ -343,7 +343,7 @@ For this reason they are [now] before the [very] throne of God and serve Him day
 
 
 
-They shall hunger no more, neither thirst any more; neither shall the sun smite them, nor any [^d]scorching heat. 
+They shall hunger no more, neither thirst any more; neither shall the sun smite them, nor any scorching heat. 
 
 
 

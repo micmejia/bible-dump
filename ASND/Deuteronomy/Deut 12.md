@@ -436,7 +436,7 @@ kundi, ihandog ninyo ito sa lugar ng lahi na pipiliin ng Panginoon, at doon niny
 
 
 
-"<i class="trans-change">Pero kung hindi panghandog_, maaari ninyong katayin at kainin ang hayop saanman kayo nakatira. Magpakasawa kayong kumain ng karne nito, kagaya ng pagkain ninyo ng usa at ng gasela[^a] ayon sa pagpapalang ibinibigay sa inyo ng Panginoon na inyong Dios. Ang bawat tao ay makakakain nito, itinuturing man siyang malinis o marumi. 
+"<i class="trans-change">Pero kung hindi panghandog_, maaari ninyong katayin at kainin ang hayop saanman kayo nakatira. Magpakasawa kayong kumain ng karne nito, kagaya ng pagkain ninyo ng usa at ng gasela ayon sa pagpapalang ibinibigay sa inyo ng Panginoon na inyong Dios. Ang bawat tao ay makakakain nito, itinuturing man siyang malinis o marumi. 
 
 
 

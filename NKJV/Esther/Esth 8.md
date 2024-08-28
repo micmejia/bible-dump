@@ -31,28 +31,28 @@ For how can I endure to see the evil that will come to my people? Or how can I e
 Then King Ahasuerus said to Queen Esther and Mordecai the Jew, "Indeed, I have given Esther the house of Haman, and they have hanged him on the gallows because he _tried to_ lay his hand on the Jews. 
 
 ###### 8 
-You yourselves write _a decree_ concerning the Jews, [^a]as you please, in the king's name, and seal _it_ with the king's signet ring; for whatever is written in the king's name and sealed with the king's signet ring no one can revoke." 
+You yourselves write _a decree_ concerning the Jews, as you please, in the king's name, and seal _it_ with the king's signet ring; for whatever is written in the king's name and sealed with the king's signet ring no one can revoke." 
 
 ###### 9 
 So the king's scribes were called at that time, in the third month, which _is_ the month of Sivan, on the twenty-third _day;_ and it was written, according to all that Mordecai commanded, to the Jews, the satraps, the governors, and the princes of the provinces from India to Ethiopia, one hundred and twenty-seven provinces _in all,_ to every province in its own script, to every people in their own language, and to the Jews in their own script and language. 
 
 ###### 10 
-And he wrote in the name of King Ahasuerus, sealed _it_ with the king's signet ring, and sent letters by couriers on horseback, riding on royal horses [^b]bred from swift steeds. 
+And he wrote in the name of King Ahasuerus, sealed _it_ with the king's signet ring, and sent letters by couriers on horseback, riding on royal horses bred from swift steeds. 
 
 ###### 11 
 By these letters the king permitted the Jews who _were_ in every city to gather together and protect their lives--to destroy, kill, and annihilate all the forces of any people or province that would assault them, _both_ little children and women, and to plunder their possessions, 
 
 ###### 12 
-on one day in all the provinces of King Ahasuerus, on the thirteenth _day_ of the twelfth month, which _is_ the month of [^c]Adar. 
+on one day in all the provinces of King Ahasuerus, on the thirteenth _day_ of the twelfth month, which _is_ the month of Adar. 
 
 ###### 13 
 A copy of the document was to be issued as a decree in every province and published for all people, so that the Jews would be ready on that day to avenge themselves on their enemies. 
 
 ###### 14 
-The couriers who rode on royal horses went out, hastened and pressed on by the king's command. And the decree was issued in [^d]Shushan the [^e]citadel. 
+The couriers who rode on royal horses went out, hastened and pressed on by the king's command. And the decree was issued in Shushan the citadel. 
 
 ###### 15 
-So Mordecai went out from the presence of the king in royal apparel of [^f]blue and white, with a great crown of gold and a garment of fine linen and purple; and the city of [^g]Shushan rejoiced and was glad. 
+So Mordecai went out from the presence of the king in royal apparel of blue and white, with a great crown of gold and a garment of fine linen and purple; and the city of Shushan rejoiced and was glad. 
 
 ###### 16 
 The Jews had light and gladness, joy and honor. 

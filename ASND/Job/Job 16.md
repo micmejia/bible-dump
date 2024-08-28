@@ -634,7 +634,7 @@ Wala akong nagawang kasalanan at tapat ang aking panalangin.
 
 
 
-Kahit ngayon ang saksi[^a] koʼy nasa langit. Siya ang magpapatunay na wala akong kasalanan. 
+Kahit ngayon ang saksi koʼy nasa langit. Siya ang magpapatunay na wala akong kasalanan. 
 
 
 

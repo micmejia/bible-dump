@@ -13,7 +13,7 @@ next: ['Rev 22']
 Now I saw a new heaven and a new earth, for the first heaven and the first earth had passed away. Also there was no more sea. 
 
 ###### 2 
-Then I, [^a]John, saw the holy city, New Jerusalem, coming down out of heaven from God, prepared as a bride adorned for her husband. 
+Then I, John, saw the holy city, New Jerusalem, coming down out of heaven from God, prepared as a bride adorned for her husband. 
 
 ###### 3 
 And I heard a loud voice from heaven saying, "Behold, the tabernacle of God _is_ with men, and He will dwell with them, and they shall be His people. God Himself will be with them _and be_ their God. 
@@ -22,22 +22,22 @@ And I heard a loud voice from heaven saying, "Behold, the tabernacle of God _is_
 And God will wipe away every tear from their eyes; there shall be no more death, nor sorrow, nor crying. There shall be no more pain, for the former things have passed away." 
 
 ###### 5 
-Then He who sat on the throne said, "Behold, I make all things new." And He said [^b]to me, "Write, for these words are true and faithful." 
+Then He who sat on the throne said, "Behold, I make all things new." And He said to me, "Write, for these words are true and faithful." 
 
 ###### 6 
-And He said to me, "It[^c] is done! I am the Alpha and the Omega, the Beginning and the End. I will give of the fountain of the water of life freely to him who thirsts. 
+And He said to me, "It is done! I am the Alpha and the Omega, the Beginning and the End. I will give of the fountain of the water of life freely to him who thirsts. 
 
 ###### 7 
-He who overcomes [^d]shall inherit all things, and I will be his God and he shall be My son. 
+He who overcomes shall inherit all things, and I will be his God and he shall be My son. 
 
 ###### 8 
-But the cowardly, [^e]unbelieving, abominable, murderers, sexually immoral, sorcerers, idolaters, and all liars shall have their part in the lake which burns with fire and brimstone, which is the second death." ## The New Jerusalem 
+But the cowardly, unbelieving, abominable, murderers, sexually immoral, sorcerers, idolaters, and all liars shall have their part in the lake which burns with fire and brimstone, which is the second death." ## The New Jerusalem 
 
 ###### 9 
-Then one of the seven angels who had the seven bowls filled with the seven last plagues came [^f]to me and talked with me, saying, "Come, I will show you the [^g]bride, the Lamb's wife." 
+Then one of the seven angels who had the seven bowls filled with the seven last plagues came to me and talked with me, saying, "Come, I will show you the bride, the Lamb's wife." 
 
 ###### 10 
-And he carried me away in the Spirit to a great and high mountain, and showed me the [^h]great city, the [^i]holy Jerusalem, descending out of heaven from God, 
+And he carried me away in the Spirit to a great and high mountain, and showed me the great city, the holy Jerusalem, descending out of heaven from God, 
 
 ###### 11 
 having the glory of God. Her light _was_ like a most precious stone, like a jasper stone, clear as crystal. 
@@ -49,13 +49,13 @@ Also she had a great and high wall with twelve gates, and twelve angels at the g
 three gates on the east, three gates on the north, three gates on the south, and three gates on the west. 
 
 ###### 14 
-Now the wall of the city had twelve foundations, and on them were the [^j]names of the twelve apostles of the Lamb. 
+Now the wall of the city had twelve foundations, and on them were the names of the twelve apostles of the Lamb. 
 
 ###### 15 
 And he who talked with me had a gold reed to measure the city, its gates, and its wall. 
 
 ###### 16 
-The city is laid out as a square; its length is as great as its breadth. And he measured the city with the reed: twelve thousand [^k]furlongs. Its length, breadth, and height are equal. 
+The city is laid out as a square; its length is as great as its breadth. And he measured the city with the reed: twelve thousand furlongs. Its length, breadth, and height are equal. 
 
 ###### 17 
 Then he measured its wall: one hundred _and_ forty-four cubits, _according_ to the measure of a man, that is, of an angel. 
@@ -76,16 +76,16 @@ The twelve gates _were_ twelve pearls: each individual gate was of one pearl. An
 But I saw no temple in it, for the Lord God Almighty and the Lamb are its temple. 
 
 ###### 23 
-The city had no need of the sun or of the moon to shine [^l]in it, for the [^m]glory of God illuminated it. The Lamb _is_ its light. 
+The city had no need of the sun or of the moon to shine in it, for the glory of God illuminated it. The Lamb _is_ its light. 
 
 ###### 24 
-And the nations [^n]of those who are saved shall walk in its light, and the kings of the earth bring their glory and honor [^o]into it. 
+And the nations of those who are saved shall walk in its light, and the kings of the earth bring their glory and honor into it. 
 
 ###### 25 
 Its gates shall not be shut at all by day (there shall be no night there). 
 
 ###### 26 
-And they shall bring the glory and the honor of the nations into [^p]it. 
+And they shall bring the glory and the honor of the nations into it. 
 
 ###### 27 
-But there shall by no means enter it anything [^q]that defiles, or causes an abomination or a lie, but only those who are written in the Lamb's Book of Life.
+But there shall by no means enter it anything that defiles, or causes an abomination or a lie, but only those who are written in the Lamb's Book of Life.

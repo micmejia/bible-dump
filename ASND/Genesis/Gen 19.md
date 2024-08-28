@@ -469,7 +469,7 @@ dahil lilipulin namin ang lungsod na ito. Narinig ng Panginoon ang mga daing lab
 
 
 
-Kaya pinuntahan ni Lot ang mga magiging manugang[^a] niyang lalaki at sinabi, "Magmadali kayong umalis dito dahil lilipulin na ng Panginoon ang lungsod na ito." Pero hindi sila naniwala dahil akala nilaʼy nagbibiro lang si Lot. 
+Kaya pinuntahan ni Lot ang mga magiging manugang niyang lalaki at sinabi, "Magmadali kayong umalis dito dahil lilipulin na ng Panginoon ang lungsod na ito." Pero hindi sila naniwala dahil akala nilaʼy nagbibiro lang si Lot. 
 
 
 
@@ -733,7 +733,7 @@ Sumagot ang Panginoon, "Oo, payag ako sa kahilingan mo; hindi ko lilipulin ang b
 
 
 
-Sige, tumakbo na kayo roon, dahil wala pa akong gagawin hanggaʼt hindi pa kayo nakakarating doon." Ang bayang iyon ay tinatawag na Zoar[^b] dahil maliit ang bayang iyon. ## Ang Paglipol sa Sodom at Gomora 
+Sige, tumakbo na kayo roon, dahil wala pa akong gagawin hanggaʼt hindi pa kayo nakakarating doon." Ang bayang iyon ay tinatawag na Zoar dahil maliit ang bayang iyon. ## Ang Paglipol sa Sodom at Gomora 
 
 
 
@@ -1228,7 +1228,7 @@ Sa ganoong paraan, nabuntis ang dalawang anak ni Lot sa pamamagitan niya.
 
 
 
-Dumating ang panahon, nanganak ang panganay ng isang lalaki at pinangalanan niyang Moab.[^c] Siya ang pinagmulan ng lahi ng Moabita. 
+Dumating ang panahon, nanganak ang panganay ng isang lalaki at pinangalanan niyang Moab. Siya ang pinagmulan ng lahi ng Moabita. 
 
 
 
@@ -1261,4 +1261,4 @@ Dumating ang panahon, nanganak ang panganay ng isang lalaki at pinangalanan niya
 
 
 
-Nanganak din ang nakababatang kapatid ng isang lalaki at pinangalanan niyang Ben Ami.[^d] Siya ang pinagmulan ng lahi ng Ammonita.
+Nanganak din ang nakababatang kapatid ng isang lalaki at pinangalanan niyang Ben Ami. Siya ang pinagmulan ng lahi ng Ammonita.

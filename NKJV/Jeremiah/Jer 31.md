@@ -16,13 +16,13 @@ next: ['Jer 32']
 Thus says the Lord: "The people who survived the sword Found grace in the wilderness-- Israel, when I went to give him rest." 
 
 ###### 3 
-The Lord has appeared [^a]of old to me, _saying:_ "Yes, I have loved you with an everlasting love; Therefore with lovingkindness I have drawn you. 
+The Lord has appeared of old to me, _saying:_ "Yes, I have loved you with an everlasting love; Therefore with lovingkindness I have drawn you. 
 
 ###### 4 
 Again I will build you, and you shall be rebuilt, O virgin of Israel! You shall again be adorned with your tambourines, And shall go forth in the dances of those who rejoice. 
 
 ###### 5 
-You shall yet plant vines on the mountains of Samaria; The planters shall plant and [^b]eat _them_ as ordinary food. 
+You shall yet plant vines on the mountains of Samaria; The planters shall plant and eat _them_ as ordinary food. 
 
 ###### 6 
 For there shall be a day _When_ the watchmen will cry on Mount Ephraim, 'Arise, and let us go up _to_ Zion, To the Lord our God.' " 
@@ -37,7 +37,7 @@ Behold, I will bring them from the north country, And gather them from the ends 
 They shall come with weeping, And with supplications I will lead them. I will cause them to walk by the rivers of waters, In a straight way in which they shall not stumble; For I am a Father to Israel, And Ephraim _is_ My firstborn. 
 
 ###### 10 
-"Hear the word of the Lord, O nations, And declare _it_ in the [^c]isles afar off, and say, 'He who scattered Israel will gather him, And keep him as a shepherd _does_ his flock.' 
+"Hear the word of the Lord, O nations, And declare _it_ in the isles afar off, and say, 'He who scattered Israel will gather him, And keep him as a shepherd _does_ his flock.' 
 
 ###### 11 
 For the Lord has redeemed Jacob, And ransomed him from the hand of one stronger than he. 
@@ -49,7 +49,7 @@ Therefore they shall come and sing in the height of Zion, Streaming to the goodn
 "Then shall the virgin rejoice in the dance, And the young men and the old, together; For I will turn their mourning to joy, Will comfort them, And make them rejoice rather than sorrow. 
 
 ###### 14 
-I will [^d]satiate the soul of the priests with abundance, And My people shall be satisfied with My goodness, says the Lord." ## Mercy on Ephraim 
+I will satiate the soul of the priests with abundance, And My people shall be satisfied with My goodness, says the Lord." ## Mercy on Ephraim 
 
 ###### 15 
 Thus says the Lord: "A voice was heard in Ramah, Lamentation _and_ bitter weeping, Rachel weeping for her children, Refusing to be comforted for her children, Because they _are_ no more." 
@@ -67,10 +67,10 @@ There is hope in your future, says the Lord, That _your_ children shall come bac
 Surely, after my turning, I repented; And after I was instructed, I struck myself on the thigh; I was ashamed, yes, even humiliated, Because I bore the reproach of my youth.' 
 
 ###### 20 
-_Is_ Ephraim My dear son? _Is he_ a pleasant child? For though I spoke against him, I earnestly remember him still; Therefore My [^e]heart yearns for him; I will surely have mercy on him, says the Lord. 
+_Is_ Ephraim My dear son? _Is he_ a pleasant child? For though I spoke against him, I earnestly remember him still; Therefore My heart yearns for him; I will surely have mercy on him, says the Lord. 
 
 ###### 21 
-"Set up signposts, Make landmarks; Set your heart toward the highway, The way in _which_ you went. [^f]Turn back, O virgin of Israel, Turn back to these your cities. 
+"Set up signposts, Make landmarks; Set your heart toward the highway, The way in _which_ you went. Turn back, O virgin of Israel, Turn back to these your cities. 
 
 ###### 22 
 How long will you gad about, O you backsliding daughter? For the Lord has created a new thing in the earth-- A woman shall encompass a man." ## Future Prosperity of Judah 
@@ -82,7 +82,7 @@ Thus says the Lord of hosts, the God of Israel: "They shall again use this speec
 And there shall dwell in Judah itself, and in all its cities together, farmers and those going out with flocks. 
 
 ###### 25 
-For I have [^g]satiated the weary soul, and I have replenished every sorrowful soul." 
+For I have satiated the weary soul, and I have replenished every sorrowful soul." 
 
 ###### 26 
 After this I awoke and looked around, and my sleep was sweet to me. 
@@ -103,10 +103,10 @@ But every one shall die for his own iniquity; every man who eats the sour grapes
 "Behold, the days are coming, says the Lord, when I will make a new covenant with the house of Israel and with the house of Judah-- 
 
 ###### 32 
-not according to the covenant that I made with their fathers in the day _that_ I took them by the hand to lead them out of the land of Egypt, My covenant which they broke, [^h]though I was a husband to them, says the Lord. 
+not according to the covenant that I made with their fathers in the day _that_ I took them by the hand to lead them out of the land of Egypt, My covenant which they broke, though I was a husband to them, says the Lord. 
 
 ###### 33 
-But this _is_ the covenant that I will make with the house of Israel after those days, says the Lord: I will put My law in their minds, and write it on their [^i]hearts; and I will be their God, and they shall be My people. 
+But this _is_ the covenant that I will make with the house of Israel after those days, says the Lord: I will put My law in their minds, and write it on their hearts; and I will be their God, and they shall be My people. 
 
 ###### 34 
 No more shall every man teach his neighbor, and every man his brother, saying, 'Know the Lord,' for they all shall know Me, from the least of them to the greatest of them, says the Lord. For I will forgive their iniquity, and their sin I will remember no more." 

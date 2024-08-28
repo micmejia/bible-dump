@@ -28,13 +28,13 @@ And the Lord your God will expel them from before you and drive them out of your
 Therefore be very courageous to keep and to do all that is written in the Book of the Law of Moses, lest you turn aside from it to the right hand or to the left, 
 
 ###### 7 
-_and_ lest you go[^a] among these nations, these who remain among you. You shall not make mention of the name of their gods, nor cause _anyone_ to swear _by them;_ you shall not serve them nor bow down to them, 
+_and_ lest you go among these nations, these who remain among you. You shall not make mention of the name of their gods, nor cause _anyone_ to swear _by them;_ you shall not serve them nor bow down to them, 
 
 ###### 8 
 but you shall hold fast to the Lord your God, as you have done to this day. 
 
 ###### 9 
-For the Lord has [^b]driven out from before you great and strong nations; but _as for_ you, no one has been able to stand against you to this day. 
+For the Lord has driven out from before you great and strong nations; but _as for_ you, no one has been able to stand against you to this day. 
 
 ###### 10 
 One man of you shall chase a thousand, for the Lord your God _is_ He who fights for you, as He promised you. 
@@ -49,10 +49,10 @@ Or else, if indeed you do go back, and cling to the remnant of these nations--th
 know for certain that the Lord your God will no longer drive out these nations from before you. But they shall be snares and traps to you, and scourges on your sides and thorns in your eyes, until you perish from this good land which the Lord your God has given you. 
 
 ###### 14 
-"Behold, this day I[^c] _am_ going the way of all the earth. And you know in all your hearts and in all your souls that not one thing has failed of all the good things which the Lord your God spoke concerning you. All have come to pass for you; not one word of them has failed. 
+"Behold, this day I _am_ going the way of all the earth. And you know in all your hearts and in all your souls that not one thing has failed of all the good things which the Lord your God spoke concerning you. All have come to pass for you; not one word of them has failed. 
 
 ###### 15 
 Therefore it shall come to pass, that as all the good things have come upon you which the Lord your God promised you, so the Lord will bring upon you all harmful things, until He has destroyed you from this good land which the Lord your God has given you. 
 
 ###### 16 
-[^d]When you have transgressed the covenant of the Lord your God, which He commanded you, and have gone and served other gods, and bowed down to them, then the anger of the Lord will burn against you, and you shall perish quickly from the good land which He has given you."
+When you have transgressed the covenant of the Lord your God, which He commanded you, and have gone and served other gods, and bowed down to them, then the anger of the Lord will burn against you, and you shall perish quickly from the good land which He has given you."

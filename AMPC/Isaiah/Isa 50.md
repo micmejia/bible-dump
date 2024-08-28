@@ -91,7 +91,7 @@ I clothe the heavens with [the] blackness [of murky storm clouds], and I make sa
 
 
 
-[The [^a]Servant of God says] The Lord God has given Me the tongue of a disciple _and_ of one who is taught, that I should know how to speak a word in season to him who is weary. He wakens Me morning by morning, He wakens My ear to hear as a disciple [as one who is taught]. 
+[The Servant of God says] The Lord God has given Me the tongue of a disciple _and_ of one who is taught, that I should know how to speak a word in season to him who is weary. He wakens Me morning by morning, He wakens My ear to hear as a disciple [as one who is taught]. 
 
 
 

@@ -40,7 +40,7 @@ next: ['Gen 40']
 
 
 
-Nang dinala na si Jose ng mga Ishmaelita sa Egipto, binili siya ni Potifar na isa sa mga opisyal ng Faraon.[^a] (Si Potifar ay kapitan ng mga guwardya sa palasyo.) 
+Nang dinala na si Jose ng mga Ishmaelita sa Egipto, binili siya ni Potifar na isa sa mga opisyal ng Faraon. (Si Potifar ay kapitan ng mga guwardya sa palasyo.) 
 
 
 

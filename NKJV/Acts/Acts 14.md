@@ -13,7 +13,7 @@ next: ['Acts 15']
 Now it happened in Iconium that they went together to the synagogue of the Jews, and so spoke that a great multitude both of the Jews and of the Greeks believed. 
 
 ###### 2 
-But the unbelieving Jews stirred up the Gentiles and [^a]poisoned their [^b]minds against the brethren. 
+But the unbelieving Jews stirred up the Gentiles and poisoned their minds against the brethren. 
 
 ###### 3 
 Therefore they stayed there a long time, speaking boldly in the Lord, who was bearing witness to the word of His grace, granting signs and wonders to be done by their hands. 
@@ -34,7 +34,7 @@ And they were preaching the gospel there. ## Idolatry at Lystra
 And in Lystra a certain man without strength in his feet was sitting, a cripple from his mother's womb, who had never walked. 
 
 ###### 9 
-_This_ man heard Paul speaking. [^c]Paul, observing him intently and seeing that he had faith to be healed, 
+_This_ man heard Paul speaking. Paul, observing him intently and seeing that he had faith to be healed, 
 
 ###### 10 
 said with a loud voice, "Stand up straight on your feet!" And he leaped and walked. 
@@ -43,7 +43,7 @@ said with a loud voice, "Stand up straight on your feet!" And he leaped and walk
 Now when the people saw what Paul had done, they raised their voices, saying in the Lycaonian _language,_ "The gods have come down to us in the likeness of men!" 
 
 ###### 12 
-And Barnabas they called [^d]Zeus, and Paul, [^e]Hermes, because he was the chief speaker. 
+And Barnabas they called Zeus, and Paul, Hermes, because he was the chief speaker. 
 
 ###### 13 
 Then the priest of Zeus, whose temple was in front of their city, brought oxen and garlands to the gates, intending to sacrifice with the multitudes. 

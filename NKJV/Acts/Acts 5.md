@@ -58,7 +58,7 @@ so that they brought the sick out into the streets and laid _them_ on beds and c
 Also a multitude gathered from the surrounding cities to Jerusalem, bringing sick people and those who were tormented by unclean spirits, and they were all healed. ## Imprisoned Apostles Freed 
 
 ###### 17 
-Then the high priest rose up, and all those who _were_ with him (which is the sect of the Sadducees), and they were filled with [^a]indignation, 
+Then the high priest rose up, and all those who _were_ with him (which is the sect of the Sadducees), and they were filled with indignation, 
 
 ###### 18 
 and laid their hands on the apostles and put them in the common prison. 
@@ -70,19 +70,19 @@ But at night an angel of the Lord opened the prison doors and brought them out, 
 "Go, stand in the temple and speak to the people all the words of this life." 
 
 ###### 21 
-And when they heard _that,_ they entered the temple early in the morning and taught. But the high priest and those with him came and called the [^b]council together, with all the [^c]elders of the children of Israel, and sent to the prison to have them brought. ## Apostles on Trial Again 
+And when they heard _that,_ they entered the temple early in the morning and taught. But the high priest and those with him came and called the council together, with all the elders of the children of Israel, and sent to the prison to have them brought. ## Apostles on Trial Again 
 
 ###### 22 
 But when the officers came and did not find them in the prison, they returned and reported, 
 
 ###### 23 
-saying, "Indeed we found the prison shut securely, and the guards standing [^d]outside before the doors; but when we opened them, we found no one inside!" 
+saying, "Indeed we found the prison shut securely, and the guards standing outside before the doors; but when we opened them, we found no one inside!" 
 
 ###### 24 
-Now when [^e]the high priest, the captain of the temple, and the chief priests heard these things, they wondered what the outcome would be. 
+Now when the high priest, the captain of the temple, and the chief priests heard these things, they wondered what the outcome would be. 
 
 ###### 25 
-So one came and told them, [^f]saying, "Look, the men whom you put in prison are standing in the temple and teaching the people!" 
+So one came and told them, saying, "Look, the men whom you put in prison are standing in the temple and teaching the people!" 
 
 ###### 26 
 Then the captain went with the officers and brought them without violence, for they feared the people, lest they should be stoned. 
@@ -106,16 +106,16 @@ Him God has exalted to His right hand _to be_ Prince and Savior, to give repenta
 And we are His witnesses to these things, and _so_ also _is_ the Holy Spirit whom God has given to those who obey Him." ## Gamaliel's Advice 
 
 ###### 33 
-When they heard _this,_ they were furious[^g] and plotted to kill them. 
+When they heard _this,_ they were furious and plotted to kill them. 
 
 ###### 34 
 Then one in the council stood up, a Pharisee named Gamaliel, a teacher of the law held in respect by all the people, and commanded them to put the apostles outside for a little while. 
 
 ###### 35 
-And he said to them: "Men of Israel, [^h]take heed to yourselves what you intend to do regarding these men. 
+And he said to them: "Men of Israel, take heed to yourselves what you intend to do regarding these men. 
 
 ###### 36 
-For some time ago Theudas rose up, claiming to be somebody. A number of men, about four hundred, [^i]joined him. He was slain, and all who obeyed him were scattered and came to nothing. 
+For some time ago Theudas rose up, claiming to be somebody. A number of men, about four hundred, joined him. He was slain, and all who obeyed him were scattered and came to nothing. 
 
 ###### 37 
 After this man, Judas of Galilee rose up in the days of the census, and drew away many people after him. He also perished, and all who obeyed him were dispersed. 
@@ -130,7 +130,7 @@ but if it is of God, you cannot overthrow it--lest you even be found to fight ag
 And they agreed with him, and when they had called for the apostles and beaten _them,_ they commanded that they should not speak in the name of Jesus, and let them go. 
 
 ###### 41 
-So they departed from the presence of the council, rejoicing that they were counted worthy to suffer shame for [^j]His name. 
+So they departed from the presence of the council, rejoicing that they were counted worthy to suffer shame for His name. 
 
 ###### 42 
 And daily in the temple, and in every house, they did not cease teaching and preaching Jesus _as_ the Christ.

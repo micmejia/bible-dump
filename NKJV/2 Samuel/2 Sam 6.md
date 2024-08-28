@@ -13,10 +13,10 @@ next: ['2 Sam 7']
 Again David gathered all _the_ choice _men_ of Israel, thirty thousand. 
 
 ###### 2 
-And David arose and went with all the people who _were_ with him from [^a]Baale Judah to bring up from there the ark of God, whose name is called [^b]by the Name, the Lord of Hosts, who dwells _between_ the cherubim. 
+And David arose and went with all the people who _were_ with him from Baale Judah to bring up from there the ark of God, whose name is called by the Name, the Lord of Hosts, who dwells _between_ the cherubim. 
 
 ###### 3 
-So they set the ark of God on a new cart, and brought it out of the house of Abinadab, which _was_ on the hill; and Uzzah and Ahio, the sons of Abinadab, drove the new [^c]cart. 
+So they set the ark of God on a new cart, and brought it out of the house of Abinadab, which _was_ on the hill; and Uzzah and Ahio, the sons of Abinadab, drove the new cart. 
 
 ###### 4 
 And they brought it out of the house of Abinadab, which _was_ on the hill, accompanying the ark of God; and Ahio went before the ark. 
@@ -25,13 +25,13 @@ And they brought it out of the house of Abinadab, which _was_ on the hill, accom
 Then David and all the house of Israel played _music_ before the Lord on all kinds of _instruments of_ fir wood, on harps, on stringed instruments, on tambourines, on sistrums, and on cymbals. 
 
 ###### 6 
-And when they came to Nachon's threshing floor, Uzzah put out _his_ _hand_ to the ark of God and [^d]took hold of it, for the oxen stumbled. 
+And when they came to Nachon's threshing floor, Uzzah put out _his_ _hand_ to the ark of God and took hold of it, for the oxen stumbled. 
 
 ###### 7 
-Then the anger of the Lord was aroused against Uzzah, and God struck him there for _his_ [^e]error; and he died there by the ark of God. 
+Then the anger of the Lord was aroused against Uzzah, and God struck him there for _his_ error; and he died there by the ark of God. 
 
 ###### 8 
-And David became angry because of the Lord's outbreak against Uzzah; and he called the name of the place [^f]Perez Uzzah to this day. 
+And David became angry because of the Lord's outbreak against Uzzah; and he called the name of the place Perez Uzzah to this day. 
 
 ###### 9 
 David was afraid of the Lord that day; and he said, "How can the ark of the Lord come to me?" 
@@ -49,7 +49,7 @@ Now it was told King David, saying, "The Lord has blessed the house of Obed-Edom
 And so it was, when those bearing the ark of the Lord had gone six paces, that he sacrificed oxen and fatted sheep. 
 
 ###### 14 
-Then David danced[^g] before the Lord with all _his_ might; and David _was_ wearing a linen ephod. 
+Then David danced before the Lord with all _his_ might; and David _was_ wearing a linen ephod. 
 
 ###### 15 
 So David and all the house of Israel brought up the ark of the Lord with shouting and with the sound of the trumpet. 
@@ -67,7 +67,7 @@ And when David had finished offering burnt offerings and peace offerings, he ble
 Then he distributed among all the people, among the whole multitude of Israel, both the women and the men, to everyone a loaf of bread, a piece _of meat,_ and a cake of raisins. So all the people departed, everyone to his house. 
 
 ###### 20 
-Then David returned to bless his household. And Michal the daughter of Saul came out to meet David, and said, "How glorious was the king of Israel today, uncovering himself today in the eyes of the maids of his servants, as one of the base fellows [^h]shamelessly uncovers himself!" 
+Then David returned to bless his household. And Michal the daughter of Saul came out to meet David, and said, "How glorious was the king of Israel today, uncovering himself today in the eyes of the maids of his servants, as one of the base fellows shamelessly uncovers himself!" 
 
 ###### 21 
 So David said to Michal, "_It was_ before the Lord, who chose me instead of your father and all his house, to appoint me ruler over the people of the Lord, over Israel. Therefore I will play _music_ before the Lord. 

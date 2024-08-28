@@ -700,7 +700,7 @@ At habang nagkakampo sila roon sa kapatagan ng Moab, sa tabi ng Jordan malapit s
 
 
 
-palayasin nila ang lahat ng naninirahan doon at gibain ang lahat ng dios-diosan nila na gawa sa mga bato at metal, at ang lahat ng kanilang sambahan sa matataas na lugar.[^a] 
+palayasin nila ang lahat ng naninirahan doon at gibain ang lahat ng dios-diosan nila na gawa sa mga bato at metal, at ang lahat ng kanilang sambahan sa matataas na lugar. 
 
 
 

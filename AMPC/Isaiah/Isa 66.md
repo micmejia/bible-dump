@@ -174,7 +174,7 @@ Before [Zion] travailed, she gave birth; before her pain came upon her, she was 
 
 
 
-Who has heard of such a thing? Who has seen such things? Shall a land [^a]be born in one day? Or shall a nation be brought forth in a moment? For as soon as Zion was in labor, she brought forth her children. 
+Who has heard of such a thing? Who has seen such things? Shall a land be born in one day? Or shall a nation be brought forth in a moment? For as soon as Zion was in labor, she brought forth her children. 
 
 
 
@@ -363,7 +363,7 @@ For by fire and by His sword will the Lord execute judgment upon all flesh, and 
 
 
 
-Those who [attempt to] sanctify themselves and cleanse themselves to enter [and sacrifice to idols] in the gardens, following after [^b]one in the midst, eating hog's flesh and the abomination [creeping things] and the [mouse--their works and their thoughts] shall come to an end together, says the Lord. 
+Those who [attempt to] sanctify themselves and cleanse themselves to enter [and sacrifice to idols] in the gardens, following after one in the midst, eating hog's flesh and the abomination [creeping things] and the [mouse--their works and their thoughts] shall come to an end together, says the Lord. 
 
 
 
@@ -468,7 +468,7 @@ And I will also take some of them for priests and for Levites, says the Lord.
 
 
 
-For as the new [^c]heavens and the new earth which I make shall remain before Me, says the Lord, so shall your offspring and your name remain. 
+For as the new heavens and the new earth which I make shall remain before Me, says the Lord, so shall your offspring and your name remain. 
 
 
 

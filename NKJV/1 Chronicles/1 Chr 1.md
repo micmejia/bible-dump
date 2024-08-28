@@ -18,22 +18,22 @@ Cainan, Mahalalel, Jared,
 Enoch, Methuselah, Lamech, 
 
 ###### 4 
-Noah,[^a] Shem, Ham, and Japheth. 
+Noah, Shem, Ham, and Japheth. 
 
 ###### 5 
 The sons of Japheth _were_ Gomer, Magog, Madai, Javan, Tubal, Meshech, and Tiras. 
 
 ###### 6 
-The sons of Gomer _were_ Ashkenaz, [^b]Diphath, and Togarmah. 
+The sons of Gomer _were_ Ashkenaz, Diphath, and Togarmah. 
 
 ###### 7 
-The sons of Javan _were_ Elishah, [^c]Tarshishah, Kittim, and [^d]Rodanim. 
+The sons of Javan _were_ Elishah, Tarshishah, Kittim, and Rodanim. 
 
 ###### 8 
 The sons of Ham _were_ Cush, Mizraim, Put, and Canaan. 
 
 ###### 9 
-The sons of Cush _were_ Seba, Havilah, [^e]Sabta, [^f]Raama, and Sabtecha. The sons of Raama _were_ Sheba and Dedan. 
+The sons of Cush _were_ Seba, Havilah, Sabta, Raama, and Sabtecha. The sons of Raama _were_ Sheba and Dedan. 
 
 ###### 10 
 Cush begot Nimrod; he began to be a mighty one on the earth. 
@@ -57,13 +57,13 @@ the Hivite, the Arkite, and the Sinite;
 the Arvadite, the Zemarite, and the Hamathite. 
 
 ###### 17 
-The sons of Shem _were_ Elam, Asshur, Arphaxad, Lud, Aram, Uz, Hul, Gether, and [^g]Meshech. 
+The sons of Shem _were_ Elam, Asshur, Arphaxad, Lud, Aram, Uz, Hul, Gether, and Meshech. 
 
 ###### 18 
 Arphaxad begot Shelah, and Shelah begot Eber. 
 
 ###### 19 
-To Eber were born two sons: the name of one _was_ [^h]Peleg, for in his days the [^i]earth was divided; and his brother's name _was_ Joktan. 
+To Eber were born two sons: the name of one _was_ Peleg, for in his days the earth was divided; and his brother's name _was_ Joktan. 
 
 ###### 20 
 Joktan begot Almodad, Sheleph, Hazarmaveth, Jerah, 
@@ -72,7 +72,7 @@ Joktan begot Almodad, Sheleph, Hazarmaveth, Jerah,
 Hadoram, Uzal, Diklah, 
 
 ###### 22 
-[^j]Ebal, Abimael, Sheba, 
+Ebal, Abimael, Sheba, 
 
 ###### 23 
 Ophir, Havilah, and Jobab. All these _were_ the sons of Joktan. 
@@ -96,7 +96,7 @@ The sons of Abraham _were_ Isaac and Ishmael. ## The Family of Ishmael
 These _are_ their genealogies: The firstborn of Ishmael _was_ Nebajoth; then Kedar, Adbeel, Mibsam, 
 
 ###### 30 
-Mishma, Dumah, Massa, [^k]Hadad, Tema, 
+Mishma, Dumah, Massa, Hadad, Tema, 
 
 ###### 31 
 Jetur, Naphish, and Kedemah. These _were_ the sons of Ishmael. ## The Family of Keturah 
@@ -114,7 +114,7 @@ And Abraham begot Isaac. The sons of Isaac _were_ Esau and Israel.
 The sons of Esau _were_ Eliphaz, Reuel, Jeush, Jaalam, and Korah. 
 
 ###### 36 
-And the sons of Eliphaz _were_ Teman, Omar, [^l]Zephi, Gatam, _and_ Kenaz; and _by_ Timna, Amalek. 
+And the sons of Eliphaz _were_ Teman, Omar, Zephi, Gatam, _and_ Kenaz; and _by_ Timna, Amalek. 
 
 ###### 37 
 The sons of Reuel _were_ Nahath, Zerah, Shammah, and Mizzah. ## The Family of Seir 
@@ -123,16 +123,16 @@ The sons of Reuel _were_ Nahath, Zerah, Shammah, and Mizzah. ## The Family of Se
 The sons of Seir _were_ Lotan, Shobal, Zibeon, Anah, Dishon, Ezer, and Dishan. 
 
 ###### 39 
-And the sons of Lotan _were_ Hori and [^m]Homam; Lotan's sister _was_ Timna. 
+And the sons of Lotan _were_ Hori and Homam; Lotan's sister _was_ Timna. 
 
 ###### 40 
-The sons of Shobal _were_ [^n]Alian, Manahath, Ebal, [^o]Shephi, and Onam. The sons of Zibeon _were_ Ajah and Anah. 
+The sons of Shobal _were_ Alian, Manahath, Ebal, Shephi, and Onam. The sons of Zibeon _were_ Ajah and Anah. 
 
 ###### 41 
-The son of Anah _was_ Dishon. The sons of Dishon _were_ [^p]Hamran, Eshban, Ithran, and Cheran. 
+The son of Anah _was_ Dishon. The sons of Dishon _were_ Hamran, Eshban, Ithran, and Cheran. 
 
 ###### 42 
-The sons of Ezer _were_ Bilhan, Zaavan, _and_ [^q]Jaakan. The sons of Dishan _were_ Uz and Aran. ## The Kings of Edom 
+The sons of Ezer _were_ Bilhan, Zaavan, _and_ Jaakan. The sons of Dishan _were_ Uz and Aran. ## The Kings of Edom 
 
 ###### 43 
 Now these _were_ the kings who reigned in the land of Edom before a king reigned over the children of Israel: Bela the son of Beor, and the name of his city was Dinhabah. 
@@ -144,7 +144,7 @@ And when Bela died, Jobab the son of Zerah of Bozrah reigned in his place.
 When Jobab died, Husham of the land of the Temanites reigned in his place. 
 
 ###### 46 
-And when Husham died, Hadad the son of Bedad, who [^r]attacked Midian in the field of Moab, reigned in his place. The name of his city _was_ Avith. 
+And when Husham died, Hadad the son of Bedad, who attacked Midian in the field of Moab, reigned in his place. The name of his city _was_ Avith. 
 
 ###### 47 
 When Hadad died, Samlah of Masrekah reigned in his place. 
@@ -156,10 +156,10 @@ And when Samlah died, Saul of Rehoboth-by-the-River reigned in his place.
 When Saul died, Baal-Hanan the son of Achbor reigned in his place. 
 
 ###### 50 
-And when Baal-Hanan died, [^s]Hadad reigned in his place; and the name of his city was [^t]Pai. His wife's name was Mehetabel the daughter of Matred, the daughter of Mezahab. 
+And when Baal-Hanan died, Hadad reigned in his place; and the name of his city was Pai. His wife's name was Mehetabel the daughter of Matred, the daughter of Mezahab. 
 
 ###### 51 
-Hadad died also. And the chiefs of Edom were Chief Timnah, Chief [^u]Aliah, Chief Jetheth, 
+Hadad died also. And the chiefs of Edom were Chief Timnah, Chief Aliah, Chief Jetheth, 
 
 ###### 52 
 Chief Aholibamah, Chief Elah, Chief Pinon, 

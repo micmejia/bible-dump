@@ -73,7 +73,7 @@ lalabas ang pari sa kampo at susuriin niya ang katawan ng taong iyon. Kung gumal
 
 
 
-magpapakuha ang pari ng dalawang malinis[^a] na ibong buhay, <i class="trans-change">isang putol na_ kahoy na sedro, panaling pula, at isang <i class="trans-change">kumpol ng halaman na_ isopo. 
+magpapakuha ang pari ng dalawang malinis na ibong buhay, <i class="trans-change">isang putol na_ kahoy na sedro, panaling pula, at isang <i class="trans-change">kumpol ng halaman na_ isopo. 
 
 
 
@@ -865,7 +865,7 @@ Ito ang sinabi ng Panginoon kina Moises at Aaron
 
 
 
-tungkol sa dapat gawin kung patutubuin ng Panginoon ang mga amag[^b] sa kanilang mga bahay kapag silaʼy nasa Canaan na, ang lugar na ibibigay ng Panginoon sa kanila bilang pag-aari: 
+tungkol sa dapat gawin kung patutubuin ng Panginoon ang mga amag sa kanilang mga bahay kapag silaʼy nasa Canaan na, ang lugar na ibibigay ng Panginoon sa kanila bilang pag-aari: 
 
 
 
@@ -964,7 +964,7 @@ At bago pumasok ang pari sa bahay na iyon, ipag-uutos niyang ilabas lahat ang ka
 
 
 
-at titingnan niya ang amag. Kapag nakita niyang ang dingding ay parang kulay berde o namumula, at parang makapal ang tagos sa dingding,[^c] 
+at titingnan niya ang amag. Kapag nakita niyang ang dingding ay parang kulay berde o namumula, at parang makapal ang tagos sa dingding, 
 
 
 
@@ -1294,7 +1294,7 @@ Ang sinumang pumasok sa bahay na iyon na ipinasara ay ituturing na marumi hangga
 
 
 
-At ang sinumang kumain o matulog sa bahay na iyon ay kinakailangang maglaba ng kanyang damit.[^d] 
+At ang sinumang kumain o matulog sa bahay na iyon ay kinakailangang maglaba ng kanyang damit. 
 
 
 

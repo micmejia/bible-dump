@@ -171,7 +171,7 @@ Talagang maganda si Abishag at naging tagapag-alaga siya ng hari. Pero hindi sum
 
 
 
-Ngayon, si Adonia na anak ni <i class="trans-change">David kay_ Hagit ay nagmamayabang na siya ang susunod na magiging hari. Kaya naghanda siya ng mga karwahe at mga kabayo[^a] at 50 tao na magsisilbing tagabantay na mauuna sa kanya. 
+Ngayon, si Adonia na anak ni <i class="trans-change">David kay_ Hagit ay nagmamayabang na siya ang susunod na magiging hari. Kaya naghanda siya ng mga karwahe at mga kabayo at 50 tao na magsisilbing tagabantay na mauuna sa kanya. 
 
 
 
@@ -435,7 +435,7 @@ Kung gusto mong maligtas ang buhay mo at ang buhay ng anak mong si Solomon, sund
 
 
 
-Puntahan mo si Haring David at sabihin mo sa kanya, 'Mahal na Hari, hindi po baʼt nangako kayo sa akin na ang anak nating[^b] anak na si Solomon ang papalit sa inyo bilang hari? Bakit si Adonia po ang naging hari?' 
+Puntahan mo si Haring David at sabihin mo sa kanya, 'Mahal na Hari, hindi po baʼt nangako kayo sa akin na ang anak nating anak na si Solomon ang papalit sa inyo bilang hari? Bakit si Adonia po ang naging hari?' 
 
 
 
@@ -1029,7 +1029,7 @@ na tutuparin ko ngayon ang pangako ko sa iyo sa pangalan ng Panginoon, ang Dios 
 
 
 
-Yumukod agad si Batsheba <i class="trans-change">bilang paggalang_, at sinabi, "Mabuhay kayo magpakailanman,[^c] Mahal na Haring David!" 
+Yumukod agad si Batsheba <i class="trans-change">bilang paggalang_, at sinabi, "Mabuhay kayo magpakailanman, Mahal na Haring David!" 
 
 
 
@@ -1095,7 +1095,7 @@ Sinabi ni Haring David, "Papuntahin dito ang paring si Zadok, ang propetang si N
 
 
 
-At sinabi ng hari sa kanila, "Pasakayin mo ang anak kong si Solomon sa aking mola[^d] at dalhin ninyo siya sa Gihon kasama ang aking mga pinuno. 
+At sinabi ng hari sa kanila, "Pasakayin mo ang anak kong si Solomon sa aking mola at dalhin ninyo siya sa Gihon kasama ang aking mga pinuno. 
 
 
 
@@ -1656,7 +1656,7 @@ Nang marinig ito ng mga bisita ni Adonia, tumayo silang takot na takot, at isa-i
 
 
 
-Natakot din si Adonia kay Solomon, kaya pumunta siya <i class="trans-change">sa tolda na sinasambahan_ at humawak sa <i class="trans-change">parang_ mga sungay na bahagi ng altar.[^e] 
+Natakot din si Adonia kay Solomon, kaya pumunta siya <i class="trans-change">sa tolda na sinasambahan_ at humawak sa <i class="trans-change">parang_ mga sungay na bahagi ng altar. 
 
 
 
@@ -1722,7 +1722,7 @@ May nagsabi kay Solomon, "Natakot sa inyo si Adonia, at ngayoʼy nakahawak siya 
 
 
 
-Sinabi ni Solomon, "Kung mananatili siyang tapat sa akin, hindi siya mapapahamak.[^f] Pero kung magtatraydor siya, mamamatay siya." 
+Sinabi ni Solomon, "Kung mananatili siyang tapat sa akin, hindi siya mapapahamak. Pero kung magtatraydor siya, mamamatay siya." 
 
 
 

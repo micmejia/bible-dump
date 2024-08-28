@@ -22,7 +22,7 @@ I will fetch my knowledge from afar; I will ascribe righteousness to my Maker.
 For truly my words _are_ not false; One who is perfect in knowledge _is_ with you. 
 
 ###### 5 
-"Behold, God _is_ mighty, but despises _no one;_ _He is_ mighty in strength [^a]of understanding. 
+"Behold, God _is_ mighty, but despises _no one;_ _He is_ mighty in strength of understanding. 
 
 ###### 6 
 He does not preserve the life of the wicked, But gives justice to the oppressed. 
@@ -31,25 +31,25 @@ He does not preserve the life of the wicked, But gives justice to the oppressed.
 He does not withdraw His eyes from the righteous; But _they are_ on the throne with kings, For He has seated them forever, And they are exalted. 
 
 ###### 8 
-And if _they are_ bound in [^b]fetters, Held in the cords of affliction, 
+And if _they are_ bound in fetters, Held in the cords of affliction, 
 
 ###### 9 
-Then He tells them their work and their transgressions-- That they have acted [^c]defiantly. 
+Then He tells them their work and their transgressions-- That they have acted defiantly. 
 
 ###### 10 
-He also opens their ear to [^d]instruction, And commands that they turn from iniquity. 
+He also opens their ear to instruction, And commands that they turn from iniquity. 
 
 ###### 11 
 If they obey and serve _Him,_ They shall spend their days in prosperity, And their years in pleasures. 
 
 ###### 12 
-But if they do not obey, They shall perish by the sword, And they shall die [^e]without knowledge. 
+But if they do not obey, They shall perish by the sword, And they shall die without knowledge. 
 
 ###### 13 
 "But the hypocrites in heart store up wrath; They do not cry for help when He binds them. 
 
 ###### 14 
-They[^f] die in youth, And their life _ends_ among the [^g]perverted persons. 
+They die in youth, And their life _ends_ among the perverted persons. 
 
 ###### 15 
 He delivers the poor in their affliction, And opens their ears in oppression. 
@@ -103,7 +103,7 @@ Look, He scatters His light upon it, And covers the depths of the sea.
 For by these He judges the peoples; He gives food in abundance. 
 
 ###### 32 
-He covers _His_ hands with lightning, And commands it to [^h]strike. 
+He covers _His_ hands with lightning, And commands it to strike. 
 
 ###### 33 
-His thunder declares it, The cattle also, concerning [^i]the rising _storm._
+His thunder declares it, The cattle also, concerning the rising _storm._

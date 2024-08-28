@@ -16,7 +16,7 @@ Then Job answered and said:
 "Truly I know _it is_ so, But how can a man be righteous before God? 
 
 ###### 3 
-If one wished to [^a]contend with Him, He could not answer Him one time out of a thousand. 
+If one wished to contend with Him, He could not answer Him one time out of a thousand. 
 
 ###### 4 
 _God is_ wise in heart and mighty in strength. Who has hardened _himself_ against Him and prospered? 
@@ -31,10 +31,10 @@ He shakes the earth out of its place, And its pillars tremble;
 He commands the sun, and it does not rise; He seals off the stars; 
 
 ###### 8 
-He alone spreads out the heavens, And [^b]treads on the [^c]waves of the sea; 
+He alone spreads out the heavens, And treads on the waves of the sea; 
 
 ###### 9 
-He made [^d]the Bear, Orion, and the Pleiades, And the chambers of the south; 
+He made the Bear, Orion, and the Pleiades, And the chambers of the south; 
 
 ###### 10 
 He does great things past finding out, Yes, wonders without number. 
@@ -43,10 +43,10 @@ He does great things past finding out, Yes, wonders without number.
 If He goes by me, I do not see _Him;_ If He moves past, I do not perceive Him; 
 
 ###### 12 
-If He takes away, [^e]who can hinder Him? Who can say to Him, 'What are You doing?' 
+If He takes away, who can hinder Him? Who can say to Him, 'What are You doing?' 
 
 ###### 13 
-God will not withdraw His anger, The allies of [^f]the proud lie prostrate beneath Him. 
+God will not withdraw His anger, The allies of the proud lie prostrate beneath Him. 
 
 ###### 14 
 "How then can I answer Him, _And_ choose my words _to reason_ with Him? 
@@ -85,7 +85,7 @@ The earth is given into the hand of the wicked. He covers the faces of its judge
 "Now my days are swifter than a runner; They flee away, they see no good. 
 
 ###### 26 
-They pass by like [^g]swift ships, Like an eagle swooping on its prey. 
+They pass by like swift ships, Like an eagle swooping on its prey. 
 
 ###### 27 
 If I say, 'I will forget my complaint, I will put off my sad face and wear a smile,' 
@@ -97,10 +97,10 @@ I am afraid of all my sufferings; I know that You will not hold me innocent.
 _If_ I am condemned, Why then do I labor in vain? 
 
 ###### 30 
-If I wash myself with snow water, And cleanse my hands with [^h]soap, 
+If I wash myself with snow water, And cleanse my hands with soap, 
 
 ###### 31 
-Yet You will plunge me into the pit, And my own clothes will [^i]abhor me. 
+Yet You will plunge me into the pit, And my own clothes will abhor me. 
 
 ###### 32 
 "For _He is_ not a man, as I _am,_ _That_ I may answer Him, _And that_ we should go to court together. 

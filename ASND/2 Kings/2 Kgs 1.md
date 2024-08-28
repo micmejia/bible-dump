@@ -303,7 +303,7 @@ Sumagot sila, "Nakasuot po siya ng damit na yari sa balahibo ng hayop at nakasin
 
 
 
-Pagkatapos, pinapunta ng hari ang isang opisyal,[^a] kasama ang 50 tauhan, <i class="trans-change">para hulihin si Elias_. Umakyat ang opisyal sa ibabaw ng burol kung saan nakaupo si Elias, at sinabi niya, "Lingkod ng Dios, sinabi ng hari na pumunta ka sa kanya." 
+Pagkatapos, pinapunta ng hari ang isang opisyal, kasama ang 50 tauhan, <i class="trans-change">para hulihin si Elias_. Umakyat ang opisyal sa ibabaw ng burol kung saan nakaupo si Elias, at sinabi niya, "Lingkod ng Dios, sinabi ng hari na pumunta ka sa kanya." 
 
 
 

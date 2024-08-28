@@ -28,7 +28,7 @@ next: ['Isa 5']
 
 
 
-And in that day [^a]seven women shall take hold of one man, saying, We will eat our own bread and provide our own apparel; only let us be called by your name to take away our reproach [of being unmarried]. 
+And in that day seven women shall take hold of one man, saying, We will eat our own bread and provide our own apparel; only let us be called by your name to take away our reproach [of being unmarried]. 
 
 
 
@@ -70,7 +70,7 @@ In that day the Branch of the Lord shall be beautiful and glorious, and the frui
 
 
 
-And he who is left in Zion and remains in Jerusalem will be called holy, everyone who is recorded for life in Jerusalem _and for_ [^b]_eternal life_, 
+And he who is left in Zion and remains in Jerusalem will be called holy, everyone who is recorded for life in Jerusalem _and for_ _eternal life_, 
 
 
 

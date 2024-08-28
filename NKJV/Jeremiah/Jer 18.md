@@ -16,10 +16,10 @@ The word which came to Jeremiah from the Lord, saying:
 "Arise and go down to the potter's house, and there I will cause you to hear My words." 
 
 ###### 3 
-Then I went down to the potter's house, and there he was, making something at the [^a]wheel. 
+Then I went down to the potter's house, and there he was, making something at the wheel. 
 
 ###### 4 
-And the vessel that he [^b]made of clay was [^c]marred in the hand of the potter; so he made it again into another vessel, as it seemed good to the potter to make. 
+And the vessel that he made of clay was marred in the hand of the potter; so he made it again into another vessel, as it seemed good to the potter to make. 
 
 ###### 5 
 Then the word of the Lord came to me, saying: 
@@ -43,13 +43,13 @@ if it does evil in My sight so that it does not obey My voice, then I will relen
 "Now therefore, speak to the men of Judah and to the inhabitants of Jerusalem, saying, 'Thus says the Lord: "Behold, I am fashioning a disaster and devising a plan against you. Return now every one from his evil way, and make your ways and your doings good." ' " ## God's Warning Rejected 
 
 ###### 12 
-And they said, "That is hopeless! So we will walk according to our own plans, and we will every one [^d]obey the dictates[^e] of his evil heart." 
+And they said, "That is hopeless! So we will walk according to our own plans, and we will every one obey the dictates of his evil heart." 
 
 ###### 13 
 Therefore thus says the Lord: "Ask now among the Gentiles, Who has heard such things? The virgin of Israel has done a very horrible thing. 
 
 ###### 14 
-Will _a man_ [^f]leave the snow water of Lebanon, _Which comes_ from the rock of the field? Will the cold flowing waters be forsaken for strange waters? 
+Will _a man_ leave the snow water of Lebanon, _Which comes_ from the rock of the field? Will the cold flowing waters be forsaken for strange waters? 
 
 ###### 15 
 "Because My people have forgotten Me, They have burned incense to worthless idols. And they have caused themselves to stumble in their ways, _From_ the ancient paths, To walk in pathways and not on a highway, 
@@ -58,7 +58,7 @@ Will _a man_ [^f]leave the snow water of Lebanon, _Which comes_ from the rock of
 To make their land desolate _and_ a perpetual hissing; Everyone who passes by it will be astonished And shake his head. 
 
 ###### 17 
-I will scatter them as with an east wind before the enemy; I will [^g]show them the back and not the face In the day of their calamity." ## Jeremiah Persecuted 
+I will scatter them as with an east wind before the enemy; I will show them the back and not the face In the day of their calamity." ## Jeremiah Persecuted 
 
 ###### 18 
 Then they said, "Come and let us devise plans against Jeremiah; for the law shall not perish from the priest, nor counsel from the wise, nor the word from the prophet. Come and let us attack him with the tongue, and let us not give heed to any of his words." 
@@ -67,7 +67,7 @@ Then they said, "Come and let us devise plans against Jeremiah; for the law shal
 Give heed to me, O Lord, And listen to the voice of those who contend with me! 
 
 ###### 20 
-Shall evil be repaid for good? For they have dug a pit for my life. Remember that I stood before You To speak good [^h]for them, To turn away Your wrath from them. 
+Shall evil be repaid for good? For they have dug a pit for my life. Remember that I stood before You To speak good for them, To turn away Your wrath from them. 
 
 ###### 21 
 Therefore deliver up their children to the famine, And pour out their _blood_ By the force of the sword; Let their wives _become_ widows And bereaved of their children. Let their men be put to death, Their young men _be_ slain By the sword in battle. 

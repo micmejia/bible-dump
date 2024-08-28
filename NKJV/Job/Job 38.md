@@ -16,13 +16,13 @@ Then the Lord answered Job out of the whirlwind, and said:
 "Who _is_ this who darkens counsel By words without knowledge? 
 
 ###### 3 
-Now [^a]prepare yourself like a man; I will question you, and you shall answer Me. 
+Now prepare yourself like a man; I will question you, and you shall answer Me. 
 
 ###### 4 
 "Where were you when I laid the foundations of the earth? Tell _Me,_ if you have understanding. 
 
 ###### 5 
-Who determined its measurements? Surely you know! Or who stretched the [^b]line upon it? 
+Who determined its measurements? Surely you know! Or who stretched the line upon it? 
 
 ###### 6 
 To what were its foundations fastened? Or who laid its cornerstone, 
@@ -52,13 +52,13 @@ That it might take hold of the ends of the earth, And the wicked be shaken out o
 It takes on form like clay _under_ a seal, And stands out like a garment. 
 
 ###### 15 
-From the wicked their light is withheld, And the [^c]upraised arm is broken. 
+From the wicked their light is withheld, And the upraised arm is broken. 
 
 ###### 16 
 "Have you entered the springs of the sea? Or have you walked in search of the depths? 
 
 ###### 17 
-Have the gates of death been [^d]revealed to you? Or have you seen the doors of the shadow of death? 
+Have the gates of death been revealed to you? Or have you seen the doors of the shadow of death? 
 
 ###### 18 
 Have you comprehended the breadth of the earth? Tell _Me,_ if you know all this. 
@@ -79,7 +79,7 @@ Do you know _it,_ because you were born then, Or _because_ the number of your da
 Which I have reserved for the time of trouble, For the day of battle and war? 
 
 ###### 24 
-By what way is light [^e]diffused, _Or_ the east wind scattered over the earth? 
+By what way is light diffused, _Or_ the east wind scattered over the earth? 
 
 ###### 25 
 "Who has divided a channel for the overflowing _water,_ Or a path for the thunderbolt, 
@@ -97,13 +97,13 @@ Has the rain a father? Or who has begotten the drops of dew?
 From whose womb comes the ice? And the frost of heaven, who gives it birth? 
 
 ###### 30 
-The waters harden like stone, And the surface of the deep is frozen.[^f] 
+The waters harden like stone, And the surface of the deep is frozen. 
 
 ###### 31 
-"Can you bind the cluster of the Pleiades,[^g] Or loose the belt of Orion? 
+"Can you bind the cluster of the Pleiades, Or loose the belt of Orion? 
 
 ###### 32 
-Can you bring out [^h]Mazzaroth in its season? Or can you guide [^i]the Great Bear with its cubs? 
+Can you bring out Mazzaroth in its season? Or can you guide the Great Bear with its cubs? 
 
 ###### 33 
 Do you know the ordinances of the heavens? Can you set their dominion over the earth? 
@@ -115,7 +115,7 @@ Do you know the ordinances of the heavens? Can you set their dominion over the e
 Can you send out lightnings, that they may go, And say to you, 'Here we _are!_'? 
 
 ###### 36 
-Who has put wisdom in [^j]the mind? Or who has given understanding to the heart? 
+Who has put wisdom in the mind? Or who has given understanding to the heart? 
 
 ###### 37 
 Who can number the clouds by wisdom? Or who can pour out the bottles of heaven, 

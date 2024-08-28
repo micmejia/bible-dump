@@ -40,7 +40,7 @@ So Hazael went to meet him and took a present with him, of every good thing of D
 And Elisha said to him, "Go, say to him, 'You shall certainly recover.' However the Lord has shown me that he will really die." 
 
 ###### 11 
-Then he [^a]set his countenance in a stare until he was ashamed; and the man of God wept. 
+Then he set his countenance in a stare until he was ashamed; and the man of God wept. 
 
 ###### 12 
 And Hazael said, "Why is my lord weeping?" He answered, "Because I know the evil that you will do to the children of Israel: Their strongholds you will set on fire, and their young men you will kill with the sword; and you will dash their children, and rip open their women with child." 
@@ -55,7 +55,7 @@ Then he departed from Elisha, and came to his master, who said to him, "What did
 But it happened on the next day that he took a thick cloth and dipped _it_ in water, and spread _it_ over his face so that he died; and Hazael reigned in his place. ## Jehoram Reigns in Judah 
 
 ###### 16 
-Now in the fifth year of Joram the son of Ahab, king of Israel, Jehoshaphat _having been_ king of Judah, Jehoram the son of Jehoshaphat began to reign as [^b]king of Judah. 
+Now in the fifth year of Joram the son of Ahab, king of Israel, Jehoshaphat _having been_ king of Judah, Jehoram the son of Jehoshaphat began to reign as king of Judah. 
 
 ###### 17 
 He was thirty-two years old when he became king, and he reigned eight years in Jerusalem. 
@@ -70,7 +70,7 @@ Yet the Lord would not destroy Judah, for the sake of His servant David, as He p
 In his days Edom revolted against Judah's authority, and made a king over themselves. 
 
 ###### 21 
-So [^c]Joram went to Zair, and all his chariots with him. Then he rose by night and attacked the Edomites who had surrounded him and the captains of the chariots; and the troops fled to their tents. 
+So Joram went to Zair, and all his chariots with him. Then he rose by night and attacked the Edomites who had surrounded him and the captains of the chariots; and the troops fled to their tents. 
 
 ###### 22 
 Thus Edom has been in revolt against Judah's authority to this day. And Libnah revolted at that time. 
@@ -79,7 +79,7 @@ Thus Edom has been in revolt against Judah's authority to this day. And Libnah r
 Now the rest of the acts of Joram, and all that he did, _are_ they not written in the book of the chronicles of the kings of Judah? 
 
 ###### 24 
-So Joram [^d]rested with his fathers, and was buried with his fathers in the City of David. Then Ahaziah[^e] his son reigned in his place. ## Ahaziah Reigns in Judah 
+So Joram rested with his fathers, and was buried with his fathers in the City of David. Then Ahaziah his son reigned in his place. ## Ahaziah Reigns in Judah 
 
 ###### 25 
 In the twelfth year of Joram the son of Ahab, king of Israel, Ahaziah the son of Jehoram, king of Judah, began to reign. 
@@ -94,4 +94,4 @@ And he walked in the way of the house of Ahab, and did evil in the sight of the 
 Now he went with Joram the son of Ahab to war against Hazael king of Syria at Ramoth Gilead; and the Syrians wounded Joram. 
 
 ###### 29 
-Then King Joram went back to Jezreel to recover from the wounds which the Syrians had inflicted on him at [^f]Ramah, when he fought against Hazael king of Syria. And Ahaziah the son of Jehoram, king of Judah, went down to see Joram the son of Ahab in Jezreel, because he was sick.
+Then King Joram went back to Jezreel to recover from the wounds which the Syrians had inflicted on him at Ramah, when he fought against Hazael king of Syria. And Ahaziah the son of Jehoram, king of Judah, went down to see Joram the son of Ahab in Jezreel, because he was sick.

@@ -34,13 +34,13 @@ You who turn justice to wormwood, And lay righteousness to rest in the earth!"
 He made the Pleiades and Orion; He turns the shadow of death into morning And makes the day dark as night; He calls for the waters of the sea And pours them out on the face of the earth; The Lord _is_ His name. 
 
 ###### 9 
-He [^a]rains ruin upon the strong, So that fury comes upon the fortress. 
+He rains ruin upon the strong, So that fury comes upon the fortress. 
 
 ###### 10 
 They hate the one who rebukes in the gate, And they abhor the one who speaks uprightly. 
 
 ###### 11 
-Therefore, because you [^b]tread down the poor And take grain [^c]taxes from him, Though you have built houses of hewn stone, Yet you shall not dwell in them; You have planted [^d]pleasant vineyards, But you shall not drink wine from them. 
+Therefore, because you tread down the poor And take grain taxes from him, Though you have built houses of hewn stone, Yet you shall not dwell in them; You have planted pleasant vineyards, But you shall not drink wine from them. 
 
 ###### 12 
 For I know your manifold transgressions And your mighty sins: Afflicting the just _and_ taking bribes; Diverting the poor _from justice_ at the gate. 
@@ -85,7 +85,7 @@ But let justice run down like water, And righteousness like a mighty stream.
 "Did you offer Me sacrifices and offerings In the wilderness forty years, O house of Israel? 
 
 ###### 26 
-You also carried [^e]Sikkuth[^f] your king And Chiun, your idols, The star of your gods, Which you made for yourselves. 
+You also carried Sikkuth your king And Chiun, your idols, The star of your gods, Which you made for yourselves. 
 
 ###### 27 
 Therefore I will send you into captivity beyond Damascus," Says the Lord, whose name _is_ the God of hosts.

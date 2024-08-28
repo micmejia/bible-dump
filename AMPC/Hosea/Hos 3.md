@@ -49,7 +49,7 @@ Then said the Lord to me, Go again, love [the same] woman [Gomer] who is beloved
 
 
 
-So I bought her for [^a]fifteen pieces of silver and a homer and a half of barley [the price of a slave]. 
+So I bought her for fifteen pieces of silver and a homer and a half of barley [the price of a slave]. 
 
 
 

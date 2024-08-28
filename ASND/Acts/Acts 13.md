@@ -40,7 +40,7 @@ next: ['Acts 14']
 
 
 
-Doon sa Antioc ay may mga propeta at mga tagapagturo na miyembro ng iglesya. Silaʼy sina Bernabe, Simeon na tinatawag na Negro, Lucius na taga-Cyrene, Manaen na kababata[^a] ni Gobernador Herodes, at si Saulo. 
+Doon sa Antioc ay may mga propeta at mga tagapagturo na miyembro ng iglesya. Silaʼy sina Bernabe, Simeon na tinatawag na Negro, Lucius na taga-Cyrene, Manaen na kababata ni Gobernador Herodes, at si Saulo. 
 
 
 
@@ -832,7 +832,7 @@ Bago pa magsimula si Jesus sa kanyang gawain, nangaral si Juan sa lahat ng Israe
 
 
 
-At nang malapit nang matapos ni Juan ang kanyang gawain, sinabi niya sa mga tao, 'Marahil, iniisip ninyong ako na nga ang inyong hinihintay. Hindi ako iyon! Pinauna lang ako. Susunod siya sa akin, at sa katunayan hindi ako karapat-dapat man lang na maging alipin niya.'[^b] 
+At nang malapit nang matapos ni Juan ang kanyang gawain, sinabi niya sa mga tao, 'Marahil, iniisip ninyong ako na nga ang inyong hinihintay. Hindi ako iyon! Pinauna lang ako. Susunod siya sa akin, at sa katunayan hindi ako karapat-dapat man lang na maging alipin niya.' 
 
 
 
@@ -1096,7 +1096,7 @@ At narito kami ngayon upang ipahayag sa inyo ang Magandang Balita na ipinangako 
 
 
 
-na tinupad niya ngayon sa atin nang muli niyang buhayin si Jesus. Ito ang nasusulat sa ikalawang Salmo, 'Ikaw ang aking anak, at ipapakita ko ngayon na ako ang iyong Ama.'[^c] 
+na tinupad niya ngayon sa atin nang muli niyang buhayin si Jesus. Ito ang nasusulat sa ikalawang Salmo, 'Ikaw ang aking anak, at ipapakita ko ngayon na ako ang iyong Ama.' 
 
 
 
@@ -1129,7 +1129,7 @@ na tinupad niya ngayon sa atin nang muli niyang buhayin si Jesus. Ito ang nasusu
 
 
 
-Ipinangako na noon pa ng Dios na bubuhayin niya si Jesus, at ang kanyang katawan ay hindi mabubulok, dahil sinabi niya, 'Ang mga ipinangako ko kay David ay tutuparin ko sa iyo.'[^d] 
+Ipinangako na noon pa ng Dios na bubuhayin niya si Jesus, at ang kanyang katawan ay hindi mabubulok, dahil sinabi niya, 'Ang mga ipinangako ko kay David ay tutuparin ko sa iyo.' 
 
 
 
@@ -1162,7 +1162,7 @@ Ipinangako na noon pa ng Dios na bubuhayin niya si Jesus, at ang kanyang katawan
 
 
 
-At sinabi pa sa isa pang Salmo, 'Hindi ka papayag na mabulok ang katawan ng iyong tapat na lingkod.'[^e] 
+At sinabi pa sa isa pang Salmo, 'Hindi ka papayag na mabulok ang katawan ng iyong tapat na lingkod.' 
 
 
 
@@ -1294,7 +1294,7 @@ Kaya mag-ingat kayo para hindi mangyari sa inyo ang sinabi ng mga propeta,
 
 
 
-'Kayong mga nangungutya, mamamangha kayo <i class="trans-change">sa aking gagawin_. Mamamatay kayo dahil mayroon akong gagawin sa inyong kapanahunan, na hindi ninyo paniniwalaan kahit na may magsabi pa sa inyo.' "[^f] 
+'Kayong mga nangungutya, mamamangha kayo <i class="trans-change">sa aking gagawin_. Mamamatay kayo dahil mayroon akong gagawin sa inyong kapanahunan, na hindi ninyo paniniwalaan kahit na may magsabi pa sa inyo.' " 
 
 
 

@@ -633,7 +633,7 @@ Narinig namin mismo ang tinig na nanggaling sa langit noong kasama namin si Jesu
 
 
 
-Dahil nga rito, lalong tumibay ang paniniwala namin sa mga ipinahayag ng mga propeta noon. Kaya nararapat lang na bigyan nʼyo ng pansin ang mga sinabi nila, dahil para itong ilaw na tumatanglaw sa madilim na lugar hanggang sa araw ng pagdating ng Panginoon. Tulad siya ng tala sa umaga na nagbibigay-liwanag sa isipan ninyo.[^a] 
+Dahil nga rito, lalong tumibay ang paniniwala namin sa mga ipinahayag ng mga propeta noon. Kaya nararapat lang na bigyan nʼyo ng pansin ang mga sinabi nila, dahil para itong ilaw na tumatanglaw sa madilim na lugar hanggang sa araw ng pagdating ng Panginoon. Tulad siya ng tala sa umaga na nagbibigay-liwanag sa isipan ninyo. 
 
 
 

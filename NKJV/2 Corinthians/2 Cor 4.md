@@ -13,7 +13,7 @@ next: ['2 Cor 5']
 Therefore, since we have this ministry, as we have received mercy, we do not lose heart. 
 
 ###### 2 
-But we have renounced the hidden things of shame, not walking in craftiness nor [^a]handling the word of God deceitfully, but by manifestation of the truth commending ourselves to every man's conscience in the sight of God. 
+But we have renounced the hidden things of shame, not walking in craftiness nor handling the word of God deceitfully, but by manifestation of the truth commending ourselves to every man's conscience in the sight of God. 
 
 ###### 3 
 But even if our gospel is veiled, it is veiled to those who are perishing, 

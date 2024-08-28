@@ -49,7 +49,7 @@ next: ['Rom 5']
 
 
 
-For if Abraham was justified ([^a]established as just by acquittal from guilt) by good works [that he did, then] he has grounds for boasting. But not before God! 
+For if Abraham was justified (established as just by acquittal from guilt) by good works [that he did, then] he has grounds for boasting. But not before God! 
 
 
 
@@ -133,7 +133,7 @@ But to one who, not working [by the Law], trusts (believes fully) in Him Who jus
 
 
 
-Thus David [^b]congratulates the man _and_ pronounces a blessing on him to whom God credits righteousness apart from the works he does: 
+Thus David congratulates the man _and_ pronounces a blessing on him to whom God credits righteousness apart from the works he does: 
 
 
 
@@ -154,7 +154,7 @@ Thus David [^b]congratulates the man _and_ pronounces a blessing on him to whom 
 
 
 
-Blessed _and_ happy _and_ [^c]to be envied are those whose iniquities are forgiven and whose sins are covered up _and_ completely buried. 
+Blessed _and_ happy _and_ to be envied are those whose iniquities are forgiven and whose sins are covered up _and_ completely buried. 
 
 
 
@@ -175,7 +175,7 @@ Blessed _and_ happy _and_ [^c]to be envied are those whose iniquities are forgiv
 
 
 
-Blessed _and_ happy _and_ [^d]to be envied is the person of whose sin the Lord will take no account _nor_ reckon it against him. 
+Blessed _and_ happy _and_ to be envied is the person of whose sin the Lord will take no account _nor_ reckon it against him. 
 
 
 
@@ -532,4 +532,4 @@ But [they were written] for our sakes too. [Righteousness, standing acceptable t
 
 
 
-Who was betrayed _and_ put to death because of our misdeeds and was raised to secure our justification (our [^e]acquittal), [making our account balance and absolving us from all guilt before God].
+Who was betrayed _and_ put to death because of our misdeeds and was raised to secure our justification (our acquittal), [making our account balance and absolving us from all guilt before God].

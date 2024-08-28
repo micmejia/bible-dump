@@ -10,7 +10,7 @@ next: ['1 Sam 3']
 
 
 ###### 1 
-And Hannah prayed and said: "My heart rejoices in the Lord; My [^a]horn is exalted in the Lord. [^b]I smile at my enemies, Because I rejoice in Your salvation. 
+And Hannah prayed and said: "My heart rejoices in the Lord; My horn is exalted in the Lord. I smile at my enemies, Because I rejoice in Your salvation. 
 
 ###### 2 
 "No one is holy like the Lord, For _there is_ none besides You, Nor _is there_ any rock like our God. 
@@ -37,13 +37,13 @@ He raises the poor from the dust _And_ lifts the beggar from the ash heap, To se
 He will guard the feet of His saints, But the wicked shall be silent in darkness. "For by strength no man shall prevail. 
 
 ###### 10 
-The adversaries of the Lord shall be broken in pieces; From heaven He will thunder against them. The Lord will judge the ends of the earth. "He will give strength to His king, And exalt the [^c]horn of His anointed." 
+The adversaries of the Lord shall be broken in pieces; From heaven He will thunder against them. The Lord will judge the ends of the earth. "He will give strength to His king, And exalt the horn of His anointed." 
 
 ###### 11 
-Then Elkanah went to his house at Ramah. But the child [^d]ministered to the Lord before Eli the priest. ## The Wicked Sons of Eli 
+Then Elkanah went to his house at Ramah. But the child ministered to the Lord before Eli the priest. ## The Wicked Sons of Eli 
 
 ###### 12 
-Now the sons of Eli _were_ corrupt;[^e] they did not know the Lord. 
+Now the sons of Eli _were_ corrupt; they did not know the Lord. 
 
 ###### 13 
 And the priests' custom with the people _was that_ when any man offered a sacrifice, the priest's servant would come with a three-pronged fleshhook in his hand while the meat was boiling. 
@@ -58,7 +58,7 @@ Also, before they burned the fat, the priest's servant would come and say to the
 And _if_ the man said to him, "They should really burn the fat first; _then_ you may take _as much_ as your heart desires," he would then answer him, "_No,_ but you must give _it_ now; and if not, I will take _it_ by force." 
 
 ###### 17 
-Therefore the sin of the young men was very great before the Lord, for men abhorred[^f] the offering of the Lord. ## Samuel's Childhood Ministry 
+Therefore the sin of the young men was very great before the Lord, for men abhorred the offering of the Lord. ## Samuel's Childhood Ministry 
 
 ###### 18 
 But Samuel ministered before the Lord, _even as_ a child, wearing a linen ephod. 
@@ -67,13 +67,13 @@ But Samuel ministered before the Lord, _even as_ a child, wearing a linen ephod.
 Moreover his mother used to make him a little robe, and bring _it_ to him year by year when she came up with her husband to offer the yearly sacrifice. 
 
 ###### 20 
-And Eli would bless Elkanah and his wife, and say, "The Lord give you descendants from this woman for the [^g]loan that was given to the Lord." Then they would go to their own home. 
+And Eli would bless Elkanah and his wife, and say, "The Lord give you descendants from this woman for the loan that was given to the Lord." Then they would go to their own home. 
 
 ###### 21 
-And the Lord visited[^h] Hannah, so that she conceived and bore three sons and two daughters. Meanwhile the child Samuel grew before the Lord. ## Prophecy Against Eli's Household 
+And the Lord visited Hannah, so that she conceived and bore three sons and two daughters. Meanwhile the child Samuel grew before the Lord. ## Prophecy Against Eli's Household 
 
 ###### 22 
-Now Eli was very old; and he heard everything his sons did to all Israel, [^i]and how they lay with the women who assembled at the door of the tabernacle of meeting. 
+Now Eli was very old; and he heard everything his sons did to all Israel, and how they lay with the women who assembled at the door of the tabernacle of meeting. 
 
 ###### 23 
 So he said to them, "Why do you do such things? For I hear of your evil dealings from all the people. 
@@ -82,7 +82,7 @@ So he said to them, "Why do you do such things? For I hear of your evil dealings
 No, my sons! For _it is_ not a good report that I hear. You make the Lord's people transgress. 
 
 ###### 25 
-If one man sins against another, God[^j] will judge him. But if a man sins against the Lord, who will intercede for him?" Nevertheless they did not heed the voice of their father, because the Lord desired to kill them. 
+If one man sins against another, God will judge him. But if a man sins against the Lord, who will intercede for him?" Nevertheless they did not heed the voice of their father, because the Lord desired to kill them. 
 
 ###### 26 
 And the child Samuel grew in stature, and in favor both with the Lord and men. 
@@ -100,7 +100,7 @@ Why do you kick at My sacrifice and My offering which I have commanded _in My_ d
 Therefore the Lord God of Israel says: 'I said indeed _that_ your house and the house of your father would walk before Me forever.' But now the Lord says: 'Far be it from Me; for those who honor Me I will honor, and those who despise Me shall be lightly esteemed. 
 
 ###### 31 
-Behold, the days are coming that I will cut off your [^k]arm and the arm of your father's house, so that there will not be an old man in your house. 
+Behold, the days are coming that I will cut off your arm and the arm of your father's house, so that there will not be an old man in your house. 
 
 ###### 32 
 And you will see an enemy _in My_ dwelling place, _despite_ all the good which God does for Israel. And there shall not be an old man in your house forever. 
@@ -115,4 +115,4 @@ Now this _shall be_ a sign to you that will come upon your two sons, on Hophni a
 Then I will raise up for Myself a faithful priest _who_ shall do according to what _is_ in My heart and in My mind. I will build him a sure house, and he shall walk before My anointed forever. 
 
 ###### 36 
-And it shall come to pass that everyone who is left in your house will come _and_ bow down to him for a piece of silver and a morsel of bread, and say, "Please, [^l]put me in one of the priestly positions, that I may eat a piece of bread." ' "
+And it shall come to pass that everyone who is left in your house will come _and_ bow down to him for a piece of silver and a morsel of bread, and say, "Please, put me in one of the priestly positions, that I may eat a piece of bread." ' "

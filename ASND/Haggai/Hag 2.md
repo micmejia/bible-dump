@@ -6,7 +6,7 @@ up: ['Haggai']
 # Haggai 2
 
 ***
-###### 1-2 Noong ika-21 ng sumunod na buwan,[^a] sinugo ng Panginoon si Propeta Hageo para sabihin kina Zerubabel, Josue, at sa iba pang mga Israelitang nakabalik sa Israel: 
+###### 1-2 Noong ika-21 ng sumunod na buwan, sinugo ng Panginoon si Propeta Hageo para sabihin kina Zerubabel, Josue, at sa iba pang mga Israelitang nakabalik sa Israel: 
 
 
 
@@ -105,7 +105,7 @@ Pero magpakatatag kayo! Ipagpatuloy ninyo ang paggawa ng templo dahil kasama nin
 
 
 
-Ganito rin ang ipinangako ko sa inyong <i class="trans-change">mga ninuno_ nang inilabas ko sila[^b] sa Egipto. At ngayon, ang aking Espiritu ay mananatiling kasama ninyo, kaya huwag kayong matakot. 
+Ganito rin ang ipinangako ko sa inyong <i class="trans-change">mga ninuno_ nang inilabas ko sila sa Egipto. At ngayon, ang aking Espiritu ay mananatiling kasama ninyo, kaya huwag kayong matakot. 
 
 
 
@@ -237,7 +237,7 @@ Sapagkat ang mga ginto at mga pilak ay akin.
 
 
 
-Magiging mas maganda ang bagong templo kaysa sa dati. At bibigyan ko ang lugar na ito[^c] ng kapayapaan at mabuting kalagayan sa buhay. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito." ## Ang Pangako ng Dios na Pagpapala 
+Magiging mas maganda ang bagong templo kaysa sa dati. At bibigyan ko ang lugar na ito ng kapayapaan at mabuting kalagayan sa buhay. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito." ## Ang Pangako ng Dios na Pagpapala 
 
 
 
@@ -336,7 +336,7 @@ Nang ika-24 ng ikasiyam na buwan, noong ikalawang taon ng paghahari ni Darius, s
 
 
 
-Halimbawa, may isang tao na may dalang sagradong karne[^d] sa kanyang damit, at nasagi ito sa tinapay, sabaw, inumin, langis, o anumang pagkain, maaapektuhan ba ang mga ito ng pagkasagrado ng karne?" Sumagot ang mga pari, "Hindi." 
+Halimbawa, may isang tao na may dalang sagradong karne sa kanyang damit, at nasagi ito sa tinapay, sabaw, inumin, langis, o anumang pagkain, maaapektuhan ba ang mga ito ng pagkasagrado ng karne?" Sumagot ang mga pari, "Hindi." 
 
 
 
@@ -600,7 +600,7 @@ Kahit wala nang natirang trigo, at wala nang bunga ang mga ubas at ang mga kahoy
 
 
 
-Nang araw ding iyon,[^e] muling nagsalita ang Panginoon kay Hageo. 
+Nang araw ding iyon, muling nagsalita ang Panginoon kay Hageo. 
 
 
 

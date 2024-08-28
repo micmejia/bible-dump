@@ -55,7 +55,7 @@ In righteousness you shall be established; You shall be far from oppression, for
 Indeed they shall surely assemble, _but_ not because of Me. Whoever assembles against you shall fall for your sake. 
 
 ###### 16 
-"Behold, I have created the blacksmith Who blows the coals in the fire, Who brings forth an [^a]instrument for his work; And I have created the [^b]spoiler to destroy. 
+"Behold, I have created the blacksmith Who blows the coals in the fire, Who brings forth an instrument for his work; And I have created the spoiler to destroy. 
 
 ###### 17 
 No weapon formed against you shall prosper, And every tongue _which_ rises against you in judgment You shall condemn. This _is_ the heritage of the servants of the Lord, And their righteousness _is_ from Me," Says the Lord.

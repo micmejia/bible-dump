@@ -898,7 +898,7 @@ Ang taong may takot sa Panginoon ay may kasiguraduhan at siya ang kanlungan ng k
 
 
 
-Ang pagkatakot sa Panginoon ay magpapabuti at magpapahaba ng iyong buhay[^a] at maglalayo sa iyo sa kamatayan. 
+Ang pagkatakot sa Panginoon ay magpapabuti at magpapahaba ng iyong buhay at maglalayo sa iyo sa kamatayan. 
 
 
 
@@ -1063,7 +1063,7 @@ Ang nang-aapi ng mahihirap ay hinahamak ang Dios na lumikha sa kanila, ngunit an
 
 
 
-Mapapahamak ang masama dahil sa kanyang masamang gawain, ngunit ang mga matuwid ay iingatan dahil sa kanilang pagkamakadios.[^b] 
+Mapapahamak ang masama dahil sa kanyang masamang gawain, ngunit ang mga matuwid ay iingatan dahil sa kanilang pagkamakadios. 
 
 
 
@@ -1096,7 +1096,7 @@ Mapapahamak ang masama dahil sa kanyang masamang gawain, ngunit ang mga matuwid 
 
 
 
-Ang karunungan ay nasa isip ng taong may pang-unawa, ngunit ang mangmang ay walang[^c] nalalamang kahit ano tungkol sa karunungan. 
+Ang karunungan ay nasa isip ng taong may pang-unawa, ngunit ang mangmang ay walang nalalamang kahit ano tungkol sa karunungan. 
 
 
 

@@ -73,7 +73,7 @@ Panahon ng tag-ani noon, dumalaw si Samson sa kanyang asawa na may dalang batang
 
 
 
-Sinabi ng kanyang biyenan, "Akala ko kinasusuklaman mo na siya, kaya ibinigay ko siya sa kaibigan[^a] mo. Kung gusto mo, nandiyan ang kapatid niyang mas maganda pa sa kanya. Siya na lang ang pakasalan mo." 
+Sinabi ng kanyang biyenan, "Akala ko kinasusuklaman mo na siya, kaya ibinigay ko siya sa kaibigan mo. Kung gusto mo, nandiyan ang kapatid niyang mas maganda pa sa kanya. Siya na lang ang pakasalan mo." 
 
 
 
@@ -205,7 +205,7 @@ Sinindihan niya ang mga sulo at pinakawalan ang mga asong-gubat sa mga trigo ng 
 
 
 
-Nagtanong ang mga Filisteo kung sino ang gumawa noon, at nalaman nilang si Samson. Nalaman din nilang ginawa iyon ni Samson dahil ipinakasal ng biyenan niyang taga-Timnah ang asawa niya sa isa niyang kaibigan.[^b] Kaya hinanap ng mga Filisteo ang babae at ang kanyang ama at sinunog nila. 
+Nagtanong ang mga Filisteo kung sino ang gumawa noon, at nalaman nilang si Samson. Nalaman din nilang ginawa iyon ni Samson dahil ipinakasal ng biyenan niyang taga-Timnah ang asawa niya sa isa niyang kaibigan. Kaya hinanap ng mga Filisteo ang babae at ang kanyang ama at sinunog nila. 
 
 
 
@@ -568,7 +568,7 @@ Sinabi ni Samson, "Sa pamamagitan ng panga ng asno, pinatay ko ang 1,000 tao. Sa
 
 
 
-Pagkatapos niyang magsalita, itinapon niya ang panga ng asno. Ang lugar na iyon ay tinawag na Ramat Lehi.[^c] 
+Pagkatapos niyang magsalita, itinapon niya ang panga ng asno. Ang lugar na iyon ay tinawag na Ramat Lehi. 
 
 
 
@@ -601,7 +601,7 @@ Pagkatapos niyang magsalita, itinapon niya ang panga ng asno. Ang lugar na iyon 
 
 
 
-Labis ang pagkauhaw ni Samson. Kaya tumawag siya sa Panginoon. Sinabi niya, "Pinagtagumpay nʼyo po ako, pero ngayon parang mamamatay na ako sa uhaw at mabibihag ng mga <i class="trans-change">Filisteo na_ hindi nakakakilala sa inyo."[^d] 
+Labis ang pagkauhaw ni Samson. Kaya tumawag siya sa Panginoon. Sinabi niya, "Pinagtagumpay nʼyo po ako, pero ngayon parang mamamatay na ako sa uhaw at mabibihag ng mga <i class="trans-change">Filisteo na_ hindi nakakakilala sa inyo." 
 
 
 
@@ -634,7 +634,7 @@ Labis ang pagkauhaw ni Samson. Kaya tumawag siya sa Panginoon. Sinabi niya, "Pin
 
 
 
-Kaya pinalabas ng Dios ang tubig sa may butas ng lupa sa Lehi. Uminom si Samson at bumalik ang kanyang lakas. Ang bukal na itoʼy tinatawag na En Hakore.[^e] Naroon pa ito sa Lehi hanggang ngayon. 
+Kaya pinalabas ng Dios ang tubig sa may butas ng lupa sa Lehi. Uminom si Samson at bumalik ang kanyang lakas. Ang bukal na itoʼy tinatawag na En Hakore. Naroon pa ito sa Lehi hanggang ngayon. 
 
 
 

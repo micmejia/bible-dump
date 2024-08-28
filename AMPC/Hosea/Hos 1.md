@@ -153,7 +153,7 @@ And [Gomer] conceived again and bore a daughter. And the Lord said to Hosea, Cal
 
 
 
-But I will have love, pity, _and_ mercy on the house of Judah and will deliver them by the Lord their God and will [^a]not save them by bow, nor by sword, nor by equipment of war, nor by horses, nor by horsemen. 
+But I will have love, pity, _and_ mercy on the house of Judah and will deliver them by the Lord their God and will not save them by bow, nor by sword, nor by equipment of war, nor by horses, nor by horsemen. 
 
 
 

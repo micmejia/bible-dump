@@ -31,7 +31,7 @@ Also what man _is there_ who has planted a vineyard and has not eaten of it? Let
 And what man _is there_ who is betrothed to a woman and has not married her? Let him go and return to his house, lest he die in the battle and another man marry her.' 
 
 ###### 8 
-"The officers shall speak further to the people, and say, 'What man _is there who is_ fearful and fainthearted? Let him go and return to his house, [^a]lest the heart of his brethren faint like his heart.' 
+"The officers shall speak further to the people, and say, 'What man _is there who is_ fearful and fainthearted? Let him go and return to his house, lest the heart of his brethren faint like his heart.' 
 
 ###### 9 
 And so it shall be, when the officers have finished speaking to the people, that they shall make captains of the armies to lead the people. 
@@ -61,7 +61,7 @@ Thus you shall do to all the cities _which are_ very far from you, which _are_ n
 but you shall utterly destroy them: the Hittite and the Amorite and the Canaanite and the Perizzite and the Hivite and the Jebusite, just as the Lord your God has commanded you, 
 
 ###### 18 
-lest they teach you to do according to all their [^b]abominations which they have done for their gods, and you sin against the Lord your God. 
+lest they teach you to do according to all their abominations which they have done for their gods, and you sin against the Lord your God. 
 
 ###### 19 
 "When you besiege a city for a long time, while making war against it to take it, you shall not destroy its trees by wielding an ax against them; if you can eat of them, do not cut them down to use in the siege, for the tree of the field _is_ man's _food._ 

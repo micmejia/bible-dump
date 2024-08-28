@@ -133,7 +133,7 @@ When Moses commanded us a law, as a possession for the assembly of Jacob.
 
 
 
-Let [the tribe of] Reuben live and not die out, but [^a]let his men be few. 
+Let [the tribe of] Reuben live and not die out, but let his men be few. 
 
 
 
@@ -196,7 +196,7 @@ And of Levi he said: Your Thummim and Your Urim [by which the priest sought God'
 
 
 
-[Aaron] who [^b]said of his father and mother, I do not regard them; nor did he acknowledge his brothers or openly recognize his own children. For the priests observed Your word and kept Your covenant [as to their limitations]. 
+[Aaron] who said of his father and mother, I do not regard them; nor did he acknowledge his brothers or openly recognize his own children. For the priests observed Your word and kept Your covenant [as to their limitations]. 
 
 
 
@@ -259,7 +259,7 @@ Bless, O Lord, [Levi's] substance, and accept the work of his hands; crush the l
 
 
 
-Of Benjamin he said: The beloved of the Lord shall [^c]dwell in safety by Him; He covers him all the day long, and makes His dwelling between his shoulders. 
+Of Benjamin he said: The beloved of the Lord shall dwell in safety by Him; He covers him all the day long, and makes His dwelling between his shoulders. 
 
 
 
@@ -385,7 +385,7 @@ Like a firstling young bull his majesty is, and his horns like the horns of the 
 
 
 
-And of Zebulun he said: [^d]Rejoice, Zebulun, in your interests abroad, and you, Issachar, in your tents [at home]. 
+And of Zebulun he said: Rejoice, Zebulun, in your interests abroad, and you, Issachar, in your tents [at home]. 
 
 
 
@@ -406,7 +406,7 @@ And of Zebulun he said: [^d]Rejoice, Zebulun, in your interests abroad, and you,
 
 
 
-They shall call the people unto Mount [Carmel]; there they shall offer sacrifices of righteousness, for [^e]they shall suck the abundance of the seas and the treasures hid in the sand. 
+They shall call the people unto Mount [Carmel]; there they shall offer sacrifices of righteousness, for they shall suck the abundance of the seas and the treasures hid in the sand. 
 
 
 
@@ -490,7 +490,7 @@ Of Dan he said: Dan is a lion's whelp that leaps forth from Bashan.
 
 
 
-Of Naphtali he said: O Naphtali, [^f]satisfied with favor and full of the blessing of the Lord, possess the Sea [of Galilee] and [its warm, sunny climate like] the south. 
+Of Naphtali he said: O Naphtali, satisfied with favor and full of the blessing of the Lord, possess the Sea [of Galilee] and [its warm, sunny climate like] the south. 
 
 
 
@@ -511,7 +511,7 @@ Of Naphtali he said: O Naphtali, [^f]satisfied with favor and full of the blessi
 
 
 
-Of Asher he said: Blessed above sons is Asher; let him be acceptable to his brothers, and [^g]let him dip his foot in oil. 
+Of Asher he said: Blessed above sons is Asher; let him be acceptable to his brothers, and let him dip his foot in oil. 
 
 
 

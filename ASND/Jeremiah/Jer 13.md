@@ -139,7 +139,7 @@ Pagkatapos, sinabing muli sa akin ng Panginoon,
 
 
 
-"Tanggalin mo ang sinturon na binili mo at pumunta ka malapit sa <i class="trans-change">Ilog ng_ Eufrates[^a] at itago mo roon ang sinturon sa biyak ng bato." 
+"Tanggalin mo ang sinturon na binili mo at pumunta ka malapit sa <i class="trans-change">Ilog ng_ Eufrates at itago mo roon ang sinturon sa biyak ng bato." 
 
 
 
@@ -700,7 +700,7 @@ Kung tatanungin mo ang sarili mo kung bakit ka napahamak na parang babaeng pinun
 
 
 
-Mapapalitan ba ng taong maitim[^b] ang kulay ng balat niya? Maaalis ba ng leopardo ang mga batik sa katawan niya? <i class="trans-change">Hindi!_ Ganyan din kayong mga taga-Jerusalem, hindi kayo makakagawa ng mabuti dahil ugali na ninyo ang gumawa ng masama. <sup class="versenum">24-25</sup>Sinabi ng Panginoon, "Pangangalatin ko kayo katulad ng ipa na ipinapadpad ng hanging mula sa disyerto. Iyan ang kahihinatnan ninyo. Gagawin ko ito sa inyo dahil kinalimutan ninyo ako at nagtiwala kayo sa mga dios-diosan. 
+Mapapalitan ba ng taong maitim ang kulay ng balat niya? Maaalis ba ng leopardo ang mga batik sa katawan niya? <i class="trans-change">Hindi!_ Ganyan din kayong mga taga-Jerusalem, hindi kayo makakagawa ng mabuti dahil ugali na ninyo ang gumawa ng masama. <sup class="versenum">24-25</sup>Sinabi ng Panginoon, "Pangangalatin ko kayo katulad ng ipa na ipinapadpad ng hanging mula sa disyerto. Iyan ang kahihinatnan ninyo. Gagawin ko ito sa inyo dahil kinalimutan ninyo ako at nagtiwala kayo sa mga dios-diosan. 
 
 
 

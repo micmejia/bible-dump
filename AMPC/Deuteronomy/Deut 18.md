@@ -322,7 +322,7 @@ For these nations whom you shall dispossess listen to soothsayers and diviners. 
 
 
 
-The Lord your God will raise up for you [^a]a prophet (Prophet) from the midst of your brethren like me [Moses]; to him you shall listen. 
+The Lord your God will raise up for you a prophet (Prophet) from the midst of your brethren like me [Moses]; to him you shall listen. 
 
 
 

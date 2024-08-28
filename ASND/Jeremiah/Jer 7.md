@@ -502,7 +502,7 @@ Kaya ang ginawa ko sa Shilo ay gagawin ko rin ngayon sa templong ito, kung saan 
 
 
 
-Palalayasin ko kayo mula sa aking harapan katulad ng ginawa ko sa mga kamag-anak ninyo, ang mga mamamayan ng Israel.'[^a] 
+Palalayasin ko kayo mula sa aking harapan katulad ng ginawa ko sa mga kamag-anak ninyo, ang mga mamamayan ng Israel.' 
 
 
 
@@ -601,7 +601,7 @@ Hindi mo ba nakikita ang ginagawa nila sa bayan ng Juda at sa mga lansangan ng J
 
 
 
-Ang mga kabataan ay nangangahoy, ang mga ama ay nagpapaningas ng apoy, ang mga babae ay nagmamasa ng harina para gawing tinapay para sa Reyna ng Langit.[^b] Naghahandog din sila ng mga inumin sa ibang mga dios para galitin ako. 
+Ang mga kabataan ay nangangahoy, ang mga ama ay nagpapaningas ng apoy, ang mga babae ay nagmamasa ng harina para gawing tinapay para sa Reyna ng Langit. Naghahandog din sila ng mga inumin sa ibang mga dios para galitin ako. 
 
 
 
@@ -1030,7 +1030,7 @@ Sinabi ng Panginoon, "Gumawa ng masama ang mga tao ng Juda. Inilagay nila ang mg
 
 
 
-Nagtayo rin sila ng sambahan sa matataas na lugar[^c] sa Tofet, sa Lambak ng Ben Hinom, para roon nila sunugin ang mga anak nila bilang handog. Hindi ko ito iniutos sa kanila ni pumasok man lang sa isip ko. 
+Nagtayo rin sila ng sambahan sa matataas na lugar sa Tofet, sa Lambak ng Ben Hinom, para roon nila sunugin ang mga anak nila bilang handog. Hindi ko ito iniutos sa kanila ni pumasok man lang sa isip ko. 
 
 
 

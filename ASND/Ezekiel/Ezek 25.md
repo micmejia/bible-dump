@@ -535,7 +535,7 @@ Sinabi ng Panginoong Dios, "Nagplano ang mga Filisteo na paghigantihan ang Juda 
 
 
 
-Kaya ako, ang Panginoong Dios, ay nagsasabing, parurusahan ko ang mga Filisteo. Papatayin ko ang mga Kereteo[^a] pati ang mga nakatira sa tabing-dagat. 
+Kaya ako, ang Panginoong Dios, ay nagsasabing, parurusahan ko ang mga Filisteo. Papatayin ko ang mga Kereteo pati ang mga nakatira sa tabing-dagat. 
 
 
 

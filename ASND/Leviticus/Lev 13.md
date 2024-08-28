@@ -73,7 +73,7 @@ Ang mga tuntuning ito ay ibinigay ng Panginoon kina Moises at Aaron:
 
 
 
-Kung ang balat ng isang tao ay namamaga, may mga butlig at namumuti, iyon ay tanda ng malubhang sakit sa balat.[^a] Siyaʼy dapat dalhin sa paring si Aaron o sa isa sa mga paring mula sa angkan niya. 
+Kung ang balat ng isang tao ay namamaga, may mga butlig at namumuti, iyon ay tanda ng malubhang sakit sa balat. Siyaʼy dapat dalhin sa paring si Aaron o sa isa sa mga paring mula sa angkan niya. 
 
 
 
@@ -106,7 +106,7 @@ Kung ang balat ng isang tao ay namamaga, may mga butlig at namumuti, iyon ay tan
 
 
 
-Susuriin ng pari ang balat niya, at kung makita niyang ang balahibo ay namumuti at parang tagos sa laman, may nakakahawang sakit sa balat ang taong iyon. Ipapahayag ng pari na ang taong iyon ay itinuturing na marumi.[^b] 
+Susuriin ng pari ang balat niya, at kung makita niyang ang balahibo ay namumuti at parang tagos sa laman, may nakakahawang sakit sa balat ang taong iyon. Ipapahayag ng pari na ang taong iyon ay itinuturing na marumi. 
 
 
 
@@ -205,7 +205,7 @@ Sa ikapitong araw, susuriin siyang muli ng pari, at kung makita niyang ganoon pa
 
 
 
-At sa ikapitong araw, muli siyang susuriin ng pari. At kung gumaling na ang kanyang sakit sa balat at hindi ito kumalat, ipapahayag ng pari na siyaʼy malinis[^c] na, dahil itoʼy butlig lang. Pagkatapos nito, lalabhan ng tao ang kanyang damit,[^d] at siyaʼy ituturing na malinis na. 
+At sa ikapitong araw, muli siyang susuriin ng pari. At kung gumaling na ang kanyang sakit sa balat at hindi ito kumalat, ipapahayag ng pari na siyaʼy malinis na, dahil itoʼy butlig lang. Pagkatapos nito, lalabhan ng tao ang kanyang damit, at siyaʼy ituturing na malinis na. 
 
 
 
@@ -436,7 +436,7 @@ Kung sa pagsusuri ng pari ay kumalat na ang sakit sa buong katawan ng tao,
 
 
 
-kailangan pa rin niya itong suriing mabuti. At kung talagang kumalat na nga sa buong katawan ang sakit, at namumuti na ang lahat ng kanyang balat, ipapahayag ng pari na siyaʼy malinis.[^e] <sup class="versenum">14-15</sup>Pero kung sa pagsusuri ng pari ay nagkakasugat na ang kanyang sakit sa balat, ipapahayag niya na ang taong itoʼy marumi at may sakit sa balat na nakakahawa. At ang lumalabas sa sugat ay ituturing na marumi. 
+kailangan pa rin niya itong suriing mabuti. At kung talagang kumalat na nga sa buong katawan ang sakit, at namumuti na ang lahat ng kanyang balat, ipapahayag ng pari na siyaʼy malinis. <sup class="versenum">14-15</sup>Pero kung sa pagsusuri ng pari ay nagkakasugat na ang kanyang sakit sa balat, ipapahayag niya na ang taong itoʼy marumi at may sakit sa balat na nakakahawa. At ang lumalabas sa sugat ay ituturing na marumi. 
 
 
 
@@ -898,7 +898,7 @@ Pero kung hindi naman kumakalat at medyo gumagaling na, pamamaga lang iyon ng na
 
 
 
-Kung ang isang tao[^f] ay may tanda <i class="trans-change">ng nakakahawang sakit sa balat_ sa ulo o sa baba, 
+Kung ang isang tao ay may tanda <i class="trans-change">ng nakakahawang sakit sa balat_ sa ulo o sa baba, 
 
 
 
@@ -1294,7 +1294,7 @@ Ang taong may sakit sa balat na nakakahawa ay dapat magsuot ng punit na damit, g
 
 
 
-Siyaʼy ituturing na marumi habang siyaʼy hindi gumagaling sa sakit niyang iyon. At dapat siyang tumirang nag-iisa sa labas ng kampo. ## Mga Tuntunin Tungkol sa Amag sa Damit <sup class="versenum">47-50</sup>Kung ang may sakit sa balat na nakakahawa ay magkakaroon ng amag[^g] sa damit na lana o linen o anumang gamit na yari sa balat, itoʼy dapat ipasuri sa pari. Pagkatapos suriin ng pari ang damit o balat, ibubukod niya iyon sa loob ng pitong araw. <sup class="versenum">51-52</sup>Sa ikapitong araw, muli itong titingnan ng pari. At kung kumalat pa ang amag, ituturing na marumi ang damit o balat na iyon, at dapat sunugin dahil ang amag na ito ay kumakalat 
+Siyaʼy ituturing na marumi habang siyaʼy hindi gumagaling sa sakit niyang iyon. At dapat siyang tumirang nag-iisa sa labas ng kampo. ## Mga Tuntunin Tungkol sa Amag sa Damit <sup class="versenum">47-50</sup>Kung ang may sakit sa balat na nakakahawa ay magkakaroon ng amag sa damit na lana o linen o anumang gamit na yari sa balat, itoʼy dapat ipasuri sa pari. Pagkatapos suriin ng pari ang damit o balat, ibubukod niya iyon sa loob ng pitong araw. <sup class="versenum">51-52</sup>Sa ikapitong araw, muli itong titingnan ng pari. At kung kumalat pa ang amag, ituturing na marumi ang damit o balat na iyon, at dapat sunugin dahil ang amag na ito ay kumakalat 
 
 
 

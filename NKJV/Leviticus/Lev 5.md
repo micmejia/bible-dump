@@ -10,7 +10,7 @@ next: ['Lev 6']
 
 
 ###### 1 
-'If a person sins in hearing the utterance of an oath, and _is_ a witness, whether he has seen or known _of the matter_--if he does not tell _it_, he bears [^a]guilt. 
+'If a person sins in hearing the utterance of an oath, and _is_ a witness, whether he has seen or known _of the matter_--if he does not tell _it_, he bears guilt. 
 
 ###### 2 
 'Or if a person touches any unclean thing, whether _it is_ the carcass of an unclean beast, or the carcass of unclean livestock, or the carcass of unclean creeping things, and he is unaware of it, he also shall be unclean and guilty. 
@@ -19,7 +19,7 @@ next: ['Lev 6']
 Or if he touches human uncleanness--whatever uncleanness with which a man may be defiled, and he is unaware of it--when he realizes _it_, then he shall be guilty. 
 
 ###### 4 
-'Or if a person [^b]swears, speaking thoughtlessly with _his_ lips to do evil or to do good, whatever _it is_ that a man may pronounce by an oath, and he is unaware of it--when he realizes _it_, then he shall be guilty in any of these _matters_. 
+'Or if a person swears, speaking thoughtlessly with _his_ lips to do evil or to do good, whatever _it is_ that a man may pronounce by an oath, and he is unaware of it--when he realizes _it_, then he shall be guilty in any of these _matters_. 
 
 ###### 5 
 'And it shall be, when he is guilty in any of these _matters_, that he shall confess that he has sinned in that _thing;_ 
@@ -31,7 +31,7 @@ and he shall bring his trespass offering to the Lord for his sin which he has co
 'If he is not able to bring a lamb, then he shall bring to the Lord, for his trespass which he has committed, two turtledoves or two young pigeons: one as a sin offering and the other as a burnt offering. 
 
 ###### 8 
-And he shall bring them to the priest, who shall offer _that_ which _is_ for the sin offering first, and wring off its head from its neck, but shall not divide _it_ [^c]completely. 
+And he shall bring them to the priest, who shall offer _that_ which _is_ for the sin offering first, and wring off its head from its neck, but shall not divide _it_ completely. 
 
 ###### 9 
 Then he shall sprinkle _some_ of the blood of the sin offering on the side of the altar, and the rest of the blood shall be drained out at the base of the altar. It _is_ a sin offering. 
@@ -46,7 +46,7 @@ And he shall offer the second _as_ a burnt offering according to the prescribed 
 Then he shall bring it to the priest, and the priest shall take his handful of it as a memorial portion, and burn _it_ on the altar according to the offerings made by fire to the Lord. It _is_ a sin offering. 
 
 ###### 13 
-The priest shall make atonement for him, [^d]for his sin that he has committed in any of these matters; and it shall be forgiven him. _The rest_ shall be the priest's as a grain offering.' " ## Offerings with Restitution 
+The priest shall make atonement for him, for his sin that he has committed in any of these matters; and it shall be forgiven him. _The rest_ shall be the priest's as a grain offering.' " ## Offerings with Restitution 
 
 ###### 14 
 Then the Lord spoke to Moses, saying: 
@@ -58,7 +58,7 @@ Then the Lord spoke to Moses, saying:
 And he shall make restitution for the harm that he has done in regard to the holy thing, and shall add one-fifth to it and give it to the priest. So the priest shall make atonement for him with the ram of the trespass offering, and it shall be forgiven him. 
 
 ###### 17 
-"If a person sins, and commits any of these things which are forbidden to be done by the commandments of the Lord, though he does not know _it_, yet he is guilty and shall bear his [^e]iniquity. 
+"If a person sins, and commits any of these things which are forbidden to be done by the commandments of the Lord, though he does not know _it_, yet he is guilty and shall bear his iniquity. 
 
 ###### 18 
 And he shall bring to the priest a ram without blemish from the flock, with your valuation, as a trespass offering. So the priest shall make atonement for him regarding his ignorance in which he erred and did not know _it_, and it shall be forgiven him. 

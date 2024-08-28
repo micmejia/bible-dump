@@ -19,7 +19,7 @@ Therefore the people contended with Moses, and said, "Give us water, that we may
 And the people thirsted there for water, and the people complained against Moses, and said, "Why _is_ it you have brought us up out of Egypt, to kill us and our children and our livestock with thirst?" 
 
 ###### 4 
-So Moses cried out to the Lord, saying, "What shall I do with this people? They are almost ready to stone[^a] me!" 
+So Moses cried out to the Lord, saying, "What shall I do with this people? They are almost ready to stone me!" 
 
 ###### 5 
 And the Lord said to Moses, "Go on before the people, and take with you some of the elders of Israel. Also take in your hand your rod with which you struck the river, and go. 
@@ -28,7 +28,7 @@ And the Lord said to Moses, "Go on before the people, and take with you some of 
 Behold, I will stand before you there on the rock in Horeb; and you shall strike the rock, and water will come out of it, that the people may drink." And Moses did so in the sight of the elders of Israel. 
 
 ###### 7 
-So he called the name of the place Massah[^b] and [^c]Meribah, because of the contention of the children of Israel, and because they [^d]tempted the Lord, saying, "Is the Lord among us or not?" ## Victory over the Amalekites 
+So he called the name of the place Massah and Meribah, because of the contention of the children of Israel, and because they tempted the Lord, saying, "Is the Lord among us or not?" ## Victory over the Amalekites 
 
 ###### 8 
 Now Amalek came and fought with Israel in Rephidim. 
@@ -43,7 +43,7 @@ So Joshua did as Moses said to him, and fought with Amalek. And Moses, Aaron, an
 And so it was, when Moses held up his hand, that Israel prevailed; and when he let down his hand, Amalek prevailed. 
 
 ###### 12 
-But Moses' hands _became_ [^e]heavy; so they took a stone and put _it_ under him, and he sat on it. And Aaron and Hur supported his hands, one on one side, and the other on the other side; and his hands were steady until the going down of the sun. 
+But Moses' hands _became_ heavy; so they took a stone and put _it_ under him, and he sat on it. And Aaron and Hur supported his hands, one on one side, and the other on the other side; and his hands were steady until the going down of the sun. 
 
 ###### 13 
 So Joshua defeated Amalek and his people with the edge of the sword. 
@@ -52,7 +52,7 @@ So Joshua defeated Amalek and his people with the edge of the sword.
 Then the Lord said to Moses, "Write this _for_ a memorial in the book and recount _it_ in the hearing of Joshua, that I will utterly blot out the remembrance of Amalek from under heaven." 
 
 ###### 15 
-And Moses built an altar and called its name, [^f]The-Lord-Is-My-Banner; 
+And Moses built an altar and called its name, The-Lord-Is-My-Banner; 
 
 ###### 16 
-for he said, "Because [^g]the Lord has sworn: the Lord _will have_ war with Amalek from generation to generation."
+for he said, "Because the Lord has sworn: the Lord _will have_ war with Amalek from generation to generation."

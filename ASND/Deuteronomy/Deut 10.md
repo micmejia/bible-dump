@@ -205,7 +205,7 @@ bumaba ako sa bundok at inilagay ito sa kahong ginawa ko, ayon sa iniutos ng Pan
 
 
 
-(Naglakbay ang mga Israelita mula sa balon ng mga taga-Jaakan[^a] papunta sa Mosera. Doon namatay si Aaron at doon din inilibing. At si Eleazar na anak niya ang pumalit sa kanya bilang <i class="trans-change">punong_ pari. 
+(Naglakbay ang mga Israelita mula sa balon ng mga taga-Jaakan papunta sa Mosera. Doon namatay si Aaron at doon din inilibing. At si Eleazar na anak niya ang pumalit sa kanya bilang <i class="trans-change">punong_ pari. 
 
 
 
@@ -535,7 +535,7 @@ Ngunit pinili ng Panginoon ang inyong mga ninuno para mahalin, at sa lahat ng ba
 
 
 
-Kaya baguhin[^b] ninyo ang mga puso ninyo at huwag nang patigasin ang mga ulo ninyo. 
+Kaya baguhin ninyo ang mga puso ninyo at huwag nang patigasin ang mga ulo ninyo. 
 
 
 
@@ -601,7 +601,7 @@ Sapagkat ang Panginoon na inyong Dios ay Dios ng mga dios at Panginoon ng mga pa
 
 
 
-Ipinagtatanggol niya ang karapatan ng mga ulila at mga biyuda. Minamahal niya ang mga dayuhan[^c] at binibigyan sila ng pagkain at mga damit. 
+Ipinagtatanggol niya ang karapatan ng mga ulila at mga biyuda. Minamahal niya ang mga dayuhan at binibigyan sila ng pagkain at mga damit. 
 
 
 

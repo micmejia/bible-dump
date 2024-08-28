@@ -13,19 +13,19 @@ next: ['Josh 10']
 And it came to pass when all the kings who _were_ on this side of the Jordan, in the hills and in the lowland and in all the coasts of the Great Sea toward Lebanon--the Hittite, the Amorite, the Canaanite, the Perizzite, the Hivite, and the Jebusite--heard _about it,_ 
 
 ###### 2 
-that they gathered together to fight with Joshua and Israel with one [^a]accord. 
+that they gathered together to fight with Joshua and Israel with one accord. 
 
 ###### 3 
 But when the inhabitants of Gibeon heard what Joshua had done to Jericho and Ai, 
 
 ###### 4 
-they worked craftily, and went and [^b]pretended to be ambassadors. And they took old sacks on their donkeys, old wineskins torn and [^c]mended, 
+they worked craftily, and went and pretended to be ambassadors. And they took old sacks on their donkeys, old wineskins torn and mended, 
 
 ###### 5 
 old and patched sandals on their feet, and old garments on themselves; and all the bread of their provision was dry _and_ moldy. 
 
 ###### 6 
-And they went to Joshua, to the camp at Gilgal, and said to him and to the men of Israel, "We have come from a far country; now therefore, make a [^d]covenant with us." 
+And they went to Joshua, to the camp at Gilgal, and said to him and to the men of Israel, "We have come from a far country; now therefore, make a covenant with us." 
 
 ###### 7 
 Then the men of Israel said to the Hivites, "Perhaps you dwell among us; so how can we make a covenant with you?" 
@@ -49,7 +49,7 @@ This bread of ours we took hot _for_ our provision from our houses on the day we
 And these wineskins which we filled _were_ new, and see, they are torn; and these our garments and our sandals have become old because of the very long journey." 
 
 ###### 14 
-Then the men of Israel took some of their provisions; but they [^e]did not ask counsel of the Lord. 
+Then the men of Israel took some of their provisions; but they did not ask counsel of the Lord. 
 
 ###### 15 
 So Joshua made peace with them, and made a covenant with them to let them live; and the rulers of the congregation swore to them. 
@@ -61,7 +61,7 @@ And it happened at the end of three days, after they had made a covenant with th
 Then the children of Israel journeyed and came to their cities on the third day. Now their cities _were_ Gibeon, Chephirah, Beeroth, and Kirjath Jearim. 
 
 ###### 18 
-But the children of Israel did not [^f]attack them, because the rulers of the congregation had sworn to them by the Lord God of Israel. And all the congregation complained against the rulers. 
+But the children of Israel did not attack them, because the rulers of the congregation had sworn to them by the Lord God of Israel. And all the congregation complained against the rulers. 
 
 ###### 19 
 Then all the rulers said to all the congregation, "We have sworn to them by the Lord God of Israel; now therefore, we may not touch them. 

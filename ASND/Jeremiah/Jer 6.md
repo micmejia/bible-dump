@@ -73,7 +73,7 @@ next: ['Jer 7']
 
 
 
-Wawasakin ko ang magandang lungsod ng Jerusalem.[^a] 
+Wawasakin ko ang magandang lungsod ng Jerusalem. 
 
 
 
@@ -106,7 +106,7 @@ Wawasakin ko ang magandang lungsod ng Jerusalem.[^a]
 
 
 
-Papalibutan ito ng mga pinuno at ng kanilang mga sundalo.[^b] Magtatayo sila ng kanilang mga tolda sa paligid nito at doon sila magkakampo. 
+Papalibutan ito ng mga pinuno at ng kanilang mga sundalo. Magtatayo sila ng kanilang mga tolda sa paligid nito at doon sila magkakampo. 
 
 
 
@@ -733,7 +733,7 @@ Kaya <i class="trans-change">ako,_ ang Panginoon, ay maglalagay ng katitisuran s
 
 
 
-Ito pa ang sinasabi ng Panginoon, "Tingnan ninyo, may mga sundalong dumarating galing sa lupain sa hilaga, isang makapangyarihang bansa na galing sa malayong lupain[^c] na handang sumalakay. 
+Ito pa ang sinasabi ng Panginoon, "Tingnan ninyo, may mga sundalong dumarating galing sa lupain sa hilaga, isang makapangyarihang bansa na galing sa malayong lupain na handang sumalakay. 
 
 
 
@@ -865,7 +865,7 @@ Huwag na kayong lalabas para pumunta sa <i class="trans-change">mga_ bukid o lum
 
 
 
-Mga kababayan, magsuot kayo ng damit na panluksa[^d] at gumulong kayo sa abo <i class="trans-change">para ipakita ang kalungkutan ninyo_. Umiyak kayo na parang namatay ang kaisa-isa ninyong anak na lalaki. Sapagkat bigla tayong sasalakayin ng kaaway. 
+Mga kababayan, magsuot kayo ng damit na panluksa at gumulong kayo sa abo <i class="trans-change">para ipakita ang kalungkutan ninyo_. Umiyak kayo na parang namatay ang kaisa-isa ninyong anak na lalaki. Sapagkat bigla tayong sasalakayin ng kaaway. 
 
 
 

@@ -13,10 +13,10 @@ next: ['Exod 14']
 Then the Lord spoke to Moses, saying, 
 
 ###### 2 
-"Consecrate[^a] to Me all the firstborn, whatever opens the womb among the children of Israel, _both_ of man and beast; it is Mine." ## The Feast of Unleavened Bread 
+"Consecrate to Me all the firstborn, whatever opens the womb among the children of Israel, _both_ of man and beast; it is Mine." ## The Feast of Unleavened Bread 
 
 ###### 3 
-And Moses said to the people: "Remember this day in which you went out of Egypt, out of the house of [^b]bondage; for by strength of hand the Lord brought you out of this _place._ No leavened bread shall be eaten. 
+And Moses said to the people: "Remember this day in which you went out of Egypt, out of the house of bondage; for by strength of hand the Lord brought you out of this _place._ No leavened bread shall be eaten. 
 
 ###### 4 
 On this day you are going out, in the month Abib. 
@@ -37,13 +37,13 @@ And you shall tell your son in that day, saying, '_This is done_ because of what
 It shall be as a sign to you on your hand and as a memorial between your eyes, that the Lord's law may be in your mouth; for with a strong hand the Lord has brought you out of Egypt. 
 
 ###### 10 
-You shall therefore keep this [^c]ordinance in its season from year to year. ## The Law of the Firstborn 
+You shall therefore keep this ordinance in its season from year to year. ## The Law of the Firstborn 
 
 ###### 11 
 "And it shall be, when the Lord brings you into the land of the Canaanites, as He swore to you and your fathers, and gives it to you, 
 
 ###### 12 
-that you shall [^d]set apart to the Lord all that open the womb, that is, every firstborn that comes from an animal which you have; the males _shall be_ the Lord's. 
+that you shall set apart to the Lord all that open the womb, that is, every firstborn that comes from an animal which you have; the males _shall be_ the Lord's. 
 
 ###### 13 
 But every firstborn of a donkey you shall redeem with a lamb; and if you will not redeem _it,_ then you shall break its neck. And all the firstborn of man among your sons you shall redeem. 
@@ -64,7 +64,7 @@ Then it came to pass, when Pharaoh had let the people go, that God did not lead 
 So God led the people around _by_ way of the wilderness of the Red Sea. And the children of Israel went up in orderly ranks out of the land of Egypt. 
 
 ###### 19 
-And Moses took the bones of Joseph with him, for he had placed the children of Israel under solemn oath, saying, "God will surely [^e]visit you, and you shall carry up my bones from here with you." 
+And Moses took the bones of Joseph with him, for he had placed the children of Israel under solemn oath, saying, "God will surely visit you, and you shall carry up my bones from here with you." 
 
 ###### 20 
 So they took their journey from Succoth and camped in Etham at the edge of the wilderness. 

@@ -19,7 +19,7 @@ The word which came to Jeremiah from the Lord in the days of Jehoiakim the son o
 Then I took Jaazaniah the son of Jeremiah, the son of Habazziniah, his brothers and all his sons, and the whole house of the Rechabites, 
 
 ###### 4 
-and I brought them into the house of the Lord, into the chamber of the sons of Hanan the son of Igdaliah, a man of God, which _was_ by the chamber of the princes, above the chamber of Maaseiah the son of Shallum, the keeper of the [^a]door. 
+and I brought them into the house of the Lord, into the chamber of the sons of Hanan the son of Igdaliah, a man of God, which _was_ by the chamber of the princes, above the chamber of Maaseiah the son of Shallum, the keeper of the door. 
 
 ###### 5 
 Then I set before the sons of the house of the Rechabites bowls full of wine, and cups; and I said to them, "Drink wine." 
@@ -46,10 +46,10 @@ But it came to pass, when Nebuchadnezzar king of Babylon came up into the land, 
 Then came the word of the Lord to Jeremiah, saying, 
 
 ###### 13 
-"Thus says the Lord of hosts, the God of Israel: 'Go and tell the men of Judah and the inhabitants of Jerusalem, "Will you not receive instruction to [^b]obey My words?" says the Lord. 
+"Thus says the Lord of hosts, the God of Israel: 'Go and tell the men of Judah and the inhabitants of Jerusalem, "Will you not receive instruction to obey My words?" says the Lord. 
 
 ###### 14 
-"The words of Jonadab the son of Rechab, which he commanded his sons, not to drink wine, are performed; for to this day they drink none, and obey their father's commandment. But although I have spoken to you, rising early and speaking, you did not [^c]obey Me. 
+"The words of Jonadab the son of Rechab, which he commanded his sons, not to drink wine, are performed; for to this day they drink none, and obey their father's commandment. But although I have spoken to you, rising early and speaking, you did not obey Me. 
 
 ###### 15 
 I have also sent to you all My servants the prophets, rising up early and sending _them,_ saying, 'Turn now everyone from his evil way, amend your doings, and do not go after other gods to serve them; then you will dwell in the land which I have given you and your fathers.' But you have not inclined your ear, nor obeyed Me. 

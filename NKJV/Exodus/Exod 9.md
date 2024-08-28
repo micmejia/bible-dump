@@ -91,7 +91,7 @@ Only in the land of Goshen, where the children of Israel _were,_ there was no ha
 And Pharaoh sent and called for Moses and Aaron, and said to them, "I have sinned this time. The Lord _is_ righteous, and my people and I _are_ wicked. 
 
 ###### 28 
-Entreat[^a] the Lord, that there may be no _more_ [^b]mighty thundering and hail, for _it is_ enough. I will let you go, and you shall stay no longer." 
+Entreat the Lord, that there may be no _more_ mighty thundering and hail, for _it is_ enough. I will let you go, and you shall stay no longer." 
 
 ###### 29 
 So Moses said to him, "As soon as I have gone out of the city, I will spread out my hands to the Lord; the thunder will cease, and there will be no more hail, that you may know that the earth _is_ the Lord's. 
@@ -103,7 +103,7 @@ But as for you and your servants, I know that you will not yet fear the Lord God
 Now the flax and the barley were struck, for the barley _was_ in the head and the flax _was_ in bud. 
 
 ###### 32 
-But the wheat and the spelt were not struck, for they _are_ [^c]late crops. 
+But the wheat and the spelt were not struck, for they _are_ late crops. 
 
 ###### 33 
 So Moses went out of the city from Pharaoh and spread out his hands to the Lord; then the thunder and the hail ceased, and the rain was not poured on the earth. 

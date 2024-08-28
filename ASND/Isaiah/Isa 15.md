@@ -106,7 +106,7 @@ Umahon ang mga taga-Dibon sa kanilang templo at sa kanilang mga sambahan sa mata
 
 
 
-Nakadamit sila ng sako[^a] habang lumalakad sa lansangan. Humahagulgol sila sa bubong ng kanilang mga bahay at sa mga plasa. 
+Nakadamit sila ng sako habang lumalakad sa lansangan. Humahagulgol sila sa bubong ng kanilang mga bahay at sa mga plasa. 
 
 
 
@@ -304,4 +304,4 @@ Ang iyakan nila ay maririnig sa hangganan ng Moab, mula sa Eglaim hanggang sa Be
 
 
 
-Naging pula sa dugo ang tubig ng Dibon,[^b] pero higit pa riyan ang gagawin ko: Magpapadala ako ng mga leon na lalapa sa mga nagsisitakas sa Moab at sa mga naiwan doon.
+Naging pula sa dugo ang tubig ng Dibon, pero higit pa riyan ang gagawin ko: Magpapadala ako ng mga leon na lalapa sa mga nagsisitakas sa Moab at sa mga naiwan doon.

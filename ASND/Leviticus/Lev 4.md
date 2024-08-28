@@ -271,7 +271,7 @@ ang mga bato at ang taba nito, pati na ang maliit na bahagi ng atay.
 
 
 
-(Ganito rin ang gagawin sa hayop na handog para sa mabuting relasyon.) Pagkatapos, ang mga itoʼy susunugin ng pari sa altar na pinagsusunugan ng handog na sinusunog. <sup class="versenum">11-12</sup>Pero ang natitirang bahagi ng hayop, katulad ng balat, laman, ulo, mga paa at nasa loob ng tiyan, pati na ang lamang-loob,[^a] ay dadalhin sa labas ng kampo at susunugin sa lumalagablab na siga ng mga kahoy, doon sa itinuturing na malinis na lugar na pinagtatapunan ng abo. 
+(Ganito rin ang gagawin sa hayop na handog para sa mabuting relasyon.) Pagkatapos, ang mga itoʼy susunugin ng pari sa altar na pinagsusunugan ng handog na sinusunog. <sup class="versenum">11-12</sup>Pero ang natitirang bahagi ng hayop, katulad ng balat, laman, ulo, mga paa at nasa loob ng tiyan, pati na ang lamang-loob, ay dadalhin sa labas ng kampo at susunugin sa lumalagablab na siga ng mga kahoy, doon sa itinuturing na malinis na lugar na pinagtatapunan ng abo. 
 
 
 

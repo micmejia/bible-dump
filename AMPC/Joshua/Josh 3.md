@@ -343,7 +343,7 @@ And when those who bore the ark had come to the Jordan and the feet of the pries
 
 
 
-Then the [^a]waters which came down from above stood and rose up in a heap far off, at Adam, the city that is beside Zarethan; and those flowing down toward the Sea of the Arabah, the Salt [Dead] Sea, were wholly cut off. And the people passed over opposite Jericho. 
+Then the waters which came down from above stood and rose up in a heap far off, at Adam, the city that is beside Zarethan; and those flowing down toward the Sea of the Arabah, the Salt [Dead] Sea, were wholly cut off. And the people passed over opposite Jericho. 
 
 
 

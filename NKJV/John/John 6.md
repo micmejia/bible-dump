@@ -13,7 +13,7 @@ next: ['John 7']
 After these things Jesus went over the Sea of Galilee, which is _the Sea_ of Tiberias. 
 
 ###### 2 
-Then a great multitude followed Him, because they saw His signs which He performed on those who were diseased.[^a] 
+Then a great multitude followed Him, because they saw His signs which He performed on those who were diseased. 
 
 ###### 3 
 And Jesus went up on the mountain, and there He sat with His disciples. 
@@ -40,7 +40,7 @@ One of His disciples, Andrew, Simon Peter's brother, said to Him,
 Then Jesus said, "Make the people sit down." Now there was much grass in the place. So the men sat down, in number about five thousand. 
 
 ###### 11 
-And Jesus took the loaves, and when He had given thanks He distributed _them_ [^b]to the disciples, and the disciples to those sitting down; and likewise of the fish, as much as they wanted. 
+And Jesus took the loaves, and when He had given thanks He distributed _them_ to the disciples, and the disciples to those sitting down; and likewise of the fish, as much as they wanted. 
 
 ###### 12 
 So when they were filled, He said to His disciples, "Gather up the fragments that remain, so that nothing is lost." 
@@ -64,7 +64,7 @@ got into the boat, and went over the sea toward Capernaum. And it was already da
 Then the sea arose because a great wind was blowing. 
 
 ###### 19 
-So when they had rowed about [^c]three or four miles, they saw Jesus walking on the sea and drawing near the boat; and they were afraid. 
+So when they had rowed about three or four miles, they saw Jesus walking on the sea and drawing near the boat; and they were afraid. 
 
 ###### 20 
 But He said to them, "It is I; do not be afraid." 
@@ -73,7 +73,7 @@ But He said to them, "It is I; do not be afraid."
 Then they willingly received Him into the boat, and immediately the boat was at the land where they were going. ## The Bread from Heaven 
 
 ###### 22 
-On the following day, when the people who were standing on the other side of the sea saw that there was no other boat there, except [^d]that one [^e]which His disciples had entered, and that Jesus had not entered the boat with His disciples, but His disciples had gone away alone-- 
+On the following day, when the people who were standing on the other side of the sea saw that there was no other boat there, except that one which His disciples had entered, and that Jesus had not entered the boat with His disciples, but His disciples had gone away alone-- 
 
 ###### 23 
 however, other boats came from Tiberias, near the place where they ate bread after the Lord had given thanks-- 
@@ -118,7 +118,7 @@ And Jesus said to them, "I am the bread of life. He who comes to Me shall never 
 But I said to you that you have seen Me and yet do not believe. 
 
 ###### 37 
-All that the Father gives Me will come to Me, and the one who comes to Me I will [^f]by no means cast out. 
+All that the Father gives Me will come to Me, and the one who comes to Me I will by no means cast out. 
 
 ###### 38 
 For I have come down from heaven, not to do My own will, but the will of Him who sent Me. 
@@ -130,25 +130,25 @@ This is the will of the Father who sent Me, that of all He has given Me I should
 And this is the will of Him who sent Me, that everyone who sees the Son and believes in Him may have everlasting life; and I will raise him up at the last day." ## Rejected by His Own 
 
 ###### 41 
-The Jews then [^g]complained about Him, because He said, "I am the bread which came down from heaven." 
+The Jews then complained about Him, because He said, "I am the bread which came down from heaven." 
 
 ###### 42 
 And they said, "Is not this Jesus, the son of Joseph, whose father and mother we know? How is it then that He says, 'I have come down from heaven'?" 
 
 ###### 43 
-Jesus therefore answered and said to them, [^h]"Do not murmur among yourselves. 
+Jesus therefore answered and said to them, "Do not murmur among yourselves. 
 
 ###### 44 
 No one can come to Me unless the Father who sent Me draws him; and I will raise him up at the last day. 
 
 ###### 45 
-It is written in the prophets, 'And they shall all be taught by God.' Therefore everyone who [^i]has heard and learned from the Father comes to Me. 
+It is written in the prophets, 'And they shall all be taught by God.' Therefore everyone who has heard and learned from the Father comes to Me. 
 
 ###### 46 
 Not that anyone has seen the Father, except He who is from God; He has seen the Father. 
 
 ###### 47 
-Most assuredly, I say to you, he who believes [^j]in Me has everlasting life. 
+Most assuredly, I say to you, he who believes in Me has everlasting life. 
 
 ###### 48 
 I am the bread of life. 
@@ -172,7 +172,7 @@ Then Jesus said to them, "Most assuredly, I say to you, unless you eat the flesh
 Whoever eats My flesh and drinks My blood has eternal life, and I will raise him up at the last day. 
 
 ###### 55 
-For My flesh is [^k]food indeed, and My blood is [^l]drink indeed. 
+For My flesh is food indeed, and My blood is drink indeed. 
 
 ###### 56 
 He who eats My flesh and drinks My blood abides in Me, and I in him. 
@@ -187,10 +187,10 @@ This is the bread which came down from heaven--not as your fathers ate the manna
 These things He said in the synagogue as He taught in Capernaum. ## Many Disciples Turn Away 
 
 ###### 60 
-Therefore many of His disciples, when they heard _this,_ said, "This is a [^m]hard saying; who can understand it?" 
+Therefore many of His disciples, when they heard _this,_ said, "This is a hard saying; who can understand it?" 
 
 ###### 61 
-When Jesus knew in Himself that His disciples [^n]complained about this, He said to them, "Does this [^o]offend you? 
+When Jesus knew in Himself that His disciples complained about this, He said to them, "Does this offend you? 
 
 ###### 62 
 _What_ then if you should see the Son of Man ascend where He was before? 
@@ -205,7 +205,7 @@ But there are some of you who do not believe." For Jesus knew from the beginning
 And He said, "Therefore I have said to you that no one can come to Me unless it has been granted to him by My Father." 
 
 ###### 66 
-From that _time_ many of His disciples went [^p]back and walked with Him no more. 
+From that _time_ many of His disciples went back and walked with Him no more. 
 
 ###### 67 
 Then Jesus said to the twelve, "Do you also want to go away?" 
@@ -214,7 +214,7 @@ Then Jesus said to the twelve, "Do you also want to go away?"
 But Simon Peter answered Him, "Lord, to whom shall we go? You have the words of eternal life. 
 
 ###### 69 
-Also we have come to believe and know that You are the [^q]Christ, the Son of the living God." 
+Also we have come to believe and know that You are the Christ, the Son of the living God." 
 
 ###### 70 
 Jesus answered them, "Did I not choose you, the twelve, and one of you is a devil?" 

@@ -172,7 +172,7 @@ Makikipagkasundo kaya siya sa iyo na magpapaalipin habang buhay?
 
 
 
-Magagawa mo kaya siyang parang alagang ibon o maibibigay mo ba siya sa iyong mga anak[^a] na babae <i class="trans-change">para kanilang laruin_? 
+Magagawa mo kaya siyang parang alagang ibon o maibibigay mo ba siya sa iyong mga anak na babae <i class="trans-change">para kanilang laruin_? 
 
 
 

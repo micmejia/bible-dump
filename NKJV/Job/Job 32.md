@@ -19,7 +19,7 @@ Then the wrath of Elihu, the son of Barachel the Buzite, of the family of Ram, w
 Also against his three friends his wrath was aroused, because they had found no answer, and _yet_ had condemned Job. 
 
 ###### 4 
-Now because they _were_ years older than he, Elihu had waited [^a]to speak to Job. 
+Now because they _were_ years older than he, Elihu had waited to speak to Job. 
 
 ###### 5 
 When Elihu saw that _there was_ no answer in the mouth of these three men, his wrath was aroused. 
@@ -28,13 +28,13 @@ When Elihu saw that _there was_ no answer in the mouth of these three men, his w
 So Elihu, the son of Barachel the Buzite, answered and said: "I _am_ young in years, and you _are_ very old; Therefore I was afraid, And dared not declare my opinion to you. 
 
 ###### 7 
-I said, [^b]'Age should speak, And multitude of years should teach wisdom.' 
+I said, 'Age should speak, And multitude of years should teach wisdom.' 
 
 ###### 8 
 But _there is_ a spirit in man, And the breath of the Almighty gives him understanding. 
 
 ###### 9 
-Great[^c] men are not _always_ wise, Nor do the aged _always_ understand justice. 
+Great men are not _always_ wise, Nor do the aged _always_ understand justice. 
 
 ###### 10 
 "Therefore I say, 'Listen to me, I also will declare my opinion.' 
@@ -49,7 +49,7 @@ I paid close attention to you; And surely not one of you convinced Job, _Or_ ans
 Lest you say, 'We have found wisdom'; God will vanquish him, not man. 
 
 ###### 14 
-Now he has not [^d]directed _his_ words against me; So I will not answer him with your words. 
+Now he has not directed _his_ words against me; So I will not answer him with your words. 
 
 ###### 15 
 "They are dismayed and answer no more; Words escape them. 
@@ -64,7 +64,7 @@ I also will answer my part, I too will declare my opinion.
 For I am full of words; The spirit within me compels me. 
 
 ###### 19 
-Indeed my [^e]belly _is_ like wine _that_ has no [^f]vent; It is ready to burst like new wineskins. 
+Indeed my belly _is_ like wine _that_ has no vent; It is ready to burst like new wineskins. 
 
 ###### 20 
 I will speak, that I may find relief; I must open my lips and answer. 

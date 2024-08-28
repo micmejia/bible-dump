@@ -38,7 +38,7 @@ up: ['2 John']
 
 
 
-<i class="trans-change">Mula sa_ namumuno sa iglesya. <i class="trans-change">Mahal kong_ Ginang na pinili <i class="trans-change">ng Dios_, kasama ng iyong mga anak. Minamahal ko kayong tunay,[^a] at hindi lang ako kundi ang lahat ng nakakakilala sa katotohanan. 
+<i class="trans-change">Mula sa_ namumuno sa iglesya. <i class="trans-change">Mahal kong_ Ginang na pinili <i class="trans-change">ng Dios_, kasama ng iyong mga anak. Minamahal ko kayong tunay, at hindi lang ako kundi ang lahat ng nakakakilala sa katotohanan. 
 
 
 

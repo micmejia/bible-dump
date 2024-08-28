@@ -568,7 +568,7 @@ Itanim ninyong mabuti sa mga puso nʼyo ang mga aral ni Cristo. Paalalahanan at 
 
 
 
-At anuman ang ginagawa nʼyo, sa salita man o sa gawa, gawin nʼyo ang lahat bilang mananampalataya sa Panginoong Jesus,[^a] at magpasalamat kayo sa Dios Ama sa pamamagitan niya. ## Ang Mabuting Relasyon sa Kapwa 
+At anuman ang ginagawa nʼyo, sa salita man o sa gawa, gawin nʼyo ang lahat bilang mananampalataya sa Panginoong Jesus, at magpasalamat kayo sa Dios Ama sa pamamagitan niya. ## Ang Mabuting Relasyon sa Kapwa 
 
 
 
@@ -700,7 +700,7 @@ Mga anak, sundin ninyo ang mga magulang nʼyo sa lahat ng bagay, dahil kalugod-l
 
 
 
-Mga magulang,[^b] huwag kayong gumawa ng anumang bagay na ikasasama ng loob ng mga anak nʼyo para hindi sila panghinaan ng loob. 
+Mga magulang, huwag kayong gumawa ng anumang bagay na ikasasama ng loob ng mga anak nʼyo para hindi sila panghinaan ng loob. 
 
 
 

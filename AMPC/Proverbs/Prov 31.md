@@ -48,7 +48,7 @@ The words of Lemuel king of Massa, which his mother taught him:
 
 
 
-What, my [^a]son? What, son of my womb? What [shall I advise you], son of my vows _and_ dedication to God? 
+What, my son? What, son of my womb? What [shall I advise you], son of my vows _and_ dedication to God? 
 
 
 
@@ -216,7 +216,7 @@ Open your mouth, judge righteously, and administer justice for the poor and need
 
 
 
-A capable, intelligent, _and_ [^b]virtuous woman--who is he who can find her? She is far more precious than jewels _and_ her value is far above rubies _or_ pearls. 
+A capable, intelligent, _and_ virtuous woman--who is he who can find her? She is far more precious than jewels _and_ her value is far above rubies _or_ pearls. 
 
 
 
@@ -615,7 +615,7 @@ Her children rise up and call her blessed (happy, fortunate, and to be envied); 
 
 
 
-[^c]Many daughters have done virtuously, nobly, _and_ well [with the strength of character that is steadfast in goodness], but you excel them all. 
+Many daughters have done virtuously, nobly, _and_ well [with the strength of character that is steadfast in goodness], but you excel them all. 
 
 
 

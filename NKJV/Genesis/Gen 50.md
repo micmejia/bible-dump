@@ -15,7 +15,7 @@ Then Joseph fell on his father's face and wept over him, and kissed him.
 And Joseph commanded his servants the physicians to embalm his father. So the physicians embalmed Israel. 
 
 ###### 3 
-Forty days were required for him, for such are the days required for those who are embalmed; and the Egyptians mourned[^a] for him seventy days. 
+Forty days were required for him, for such are the days required for those who are embalmed; and the Egyptians mourned for him seventy days. 
 
 ###### 4 
 Now when the days of his mourning were past, Joseph spoke to the household of Pharaoh, saying, "If now I have found favor in your eyes, please speak in the hearing of Pharaoh, saying, 
@@ -39,7 +39,7 @@ And there went up with him both chariots and horsemen, and it was a very great g
 Then they came to the threshing floor of Atad, which _is_ beyond the Jordan, and they mourned there with a great and very solemn lamentation. He observed seven days of mourning for his father. 
 
 ###### 11 
-And when the inhabitants of the land, the Canaanites, saw the mourning at the threshing floor of Atad, they said, "This _is_ a deep mourning of the Egyptians." Therefore its name was called [^b]Abel Mizraim, which _is_ beyond the Jordan. 
+And when the inhabitants of the land, the Canaanites, saw the mourning at the threshing floor of Atad, they said, "This _is_ a deep mourning of the Egyptians." Therefore its name was called Abel Mizraim, which _is_ beyond the Jordan. 
 
 ###### 12 
 So his sons did for him just as he had commanded them. 
@@ -51,7 +51,7 @@ For his sons carried him to the land of Canaan, and buried him in the cave of th
 And after he had buried his father, Joseph returned to Egypt, he and his brothers and all who went up with him to bury his father. ## Joseph Reassures His Brothers 
 
 ###### 15 
-When Joseph's brothers saw that their father was dead, they said, "Perhaps Joseph will hate us, and may [^c]actually repay us for all the evil which we did to him." 
+When Joseph's brothers saw that their father was dead, they said, "Perhaps Joseph will hate us, and may actually repay us for all the evil which we did to him." 
 
 ###### 16 
 So they sent _messengers_ to Joseph, saying, "Before your father died he commanded, saying, 
@@ -69,7 +69,7 @@ Joseph said to them, "Do not be afraid, for _am_ I in the place of God?
 But as for you, you meant evil against me; _but_ God meant it for good, in order to bring it about as _it is_ this day, to save many people alive. 
 
 ###### 21 
-Now therefore, do not be afraid; I will provide for you and your little ones." And he comforted them and spoke [^d]kindly to them. ## Death of Joseph 
+Now therefore, do not be afraid; I will provide for you and your little ones." And he comforted them and spoke kindly to them. ## Death of Joseph 
 
 ###### 22 
 So Joseph dwelt in Egypt, he and his father's household. And Joseph lived one hundred and ten years. 
@@ -81,7 +81,7 @@ Joseph saw Ephraim's children to the third _generation._ The children of Machir,
 And Joseph said to his brethren, "I am dying; but God will surely visit you, and bring you out of this land to the land of which He swore to Abraham, to Isaac, and to Jacob." 
 
 ###### 25 
-Then Joseph took an oath from the children of Israel, saying, "God will surely [^e]visit you, and you shall carry up my bones from here." 
+Then Joseph took an oath from the children of Israel, saying, "God will surely visit you, and you shall carry up my bones from here." 
 
 ###### 26 
 So Joseph died, _being_ one hundred and ten years old; and they embalmed him, and he was put in a coffin in Egypt.

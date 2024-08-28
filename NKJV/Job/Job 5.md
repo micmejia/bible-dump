@@ -22,13 +22,13 @@ I have seen the foolish taking root, But suddenly I cursed his dwelling place.
 His sons are far from safety, They are crushed in the gate, And _there is_ no deliverer. 
 
 ###### 5 
-Because the hungry eat up his harvest, [^a]Taking it even from the thorns, [^b]And a snare snatches their [^c]substance. 
+Because the hungry eat up his harvest, Taking it even from the thorns, And a snare snatches their substance. 
 
 ###### 6 
 For affliction does not come from the dust, Nor does trouble spring from the ground; 
 
 ###### 7 
-Yet man is born to [^d]trouble, As the sparks fly upward. 
+Yet man is born to trouble, As the sparks fly upward. 
 
 ###### 8 
 "But as for me, I would seek God, And to God I would commit my cause-- 
@@ -67,7 +67,7 @@ For He bruises, but He binds up; He wounds, but His hands make whole.
 He shall deliver you in six troubles, Yes, in seven no evil shall touch you. 
 
 ###### 20 
-In famine He shall redeem you from death, And in war from the [^e]power of the sword. 
+In famine He shall redeem you from death, And in war from the power of the sword. 
 
 ###### 21 
 You shall be hidden from the scourge of the tongue, And you shall not be afraid of destruction when it comes. 

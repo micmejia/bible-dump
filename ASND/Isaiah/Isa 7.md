@@ -40,7 +40,7 @@ next: ['Isa 8']
 
 
 
-Noong si Ahaz na anak ni Jotam at apo ni Uzia ang hari ng Juda, sinalakay ang Jerusalem. Sinalakay ito ni Haring Rezin ng Aram[^a] at ni Haring Peka ng Israel, na anak ni Remalia. Pero hindi nila naagaw ang Jerusalem. 
+Noong si Ahaz na anak ni Jotam at apo ni Uzia ang hari ng Juda, sinalakay ang Jerusalem. Sinalakay ito ni Haring Rezin ng Aram at ni Haring Peka ng Israel, na anak ni Remalia. Pero hindi nila naagaw ang Jerusalem. 
 
 
 
@@ -73,7 +73,7 @@ Noong si Ahaz na anak ni Jotam at apo ni Uzia ang hari ng Juda, sinalakay ang Je
 
 
 
-Nang mabalitaan ng hari ng Juda[^b] na nagkampihan ang Aram at Israel,[^c] siya at ang mga mamamayan niya ay nanginig sa takot. Nanginig sila na parang punong niyayanig ng hangin. 
+Nang mabalitaan ng hari ng Juda na nagkampihan ang Aram at Israel, siya at ang mga mamamayan niya ay nanginig sa takot. Nanginig sila na parang punong niyayanig ng hangin. 
 
 
 
@@ -106,7 +106,7 @@ Nang mabalitaan ng hari ng Juda[^b] na nagkampihan ang Aram at Israel,[^c] siya 
 
 
 
-Sinabi ng Panginoon kay Isaias, "Isama mo ang anak mong si Shear Jashub[^d] at salubungin ninyo si Ahaz sa dulo ng daluyan ng tubig na nasa itaas ng lugar na pinag-iimbakan ng tubig, malapit sa daan papunta sa pinaglalabahan. 
+Sinabi ng Panginoon kay Isaias, "Isama mo ang anak mong si Shear Jashub at salubungin ninyo si Ahaz sa dulo ng daluyan ng tubig na nasa itaas ng lugar na pinag-iimbakan ng tubig, malapit sa daan papunta sa pinaglalabahan. 
 
 
 
@@ -403,7 +403,7 @@ Sinabi ni Isaias, "Makinig kayong mga angkan ni David. Hindi pa ba kayo nasisiya
 
 
 
-Dahil dito, ang Panginoon na mismo ang magbibigay sa inyo ng palatandaan: Magbubuntis ang isang birhen,[^e] at manganganak siya ng isang sanggol na lalaki. At tatawagin niya ang bata na Emmanuel.[^f] <sup class="versenum">15-16</sup>Bago siya magkaisip at makakain ng keso[^g] at pulot, ang lupain ng dalawang hari na kinatatakutan mo, <i class="trans-change">Ahaz,_ ay mawawasak at pababayaan na lang. 
+Dahil dito, ang Panginoon na mismo ang magbibigay sa inyo ng palatandaan: Magbubuntis ang isang birhen, at manganganak siya ng isang sanggol na lalaki. At tatawagin niya ang bata na Emmanuel. <sup class="versenum">15-16</sup>Bago siya magkaisip at makakain ng keso at pulot, ang lupain ng dalawang hari na kinatatakutan mo, <i class="trans-change">Ahaz,_ ay mawawasak at pababayaan na lang. 
 
 
 
@@ -601,7 +601,7 @@ Sa panahong iyon, ang maaalagaan lamang ng bawat tao ay tig-iisang dumalagang ba
 
 
 
-na siyang pagkukunan nila ng gatas. Keso[^h] at pulot ang magiging pagkain ng lahat ng naiwan sa Juda. 
+na siyang pagkukunan nila ng gatas. Keso at pulot ang magiging pagkain ng lahat ng naiwan sa Juda. 
 
 
 

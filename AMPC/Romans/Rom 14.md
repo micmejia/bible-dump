@@ -469,7 +469,7 @@ The right thing is to eat no meat or drink no wine [at all], or [do anything els
 
 
 
-Your personal convictions [on such matters]--exercise [them] as in God's presence, keeping them to yourself [striving only to know the truth and obey His will]. Blessed (happy, [^a]to be envied) is he who has no reason to judge himself for what he approves [who does not convict himself by what he chooses to do]. 
+Your personal convictions [on such matters]--exercise [them] as in God's presence, keeping them to yourself [striving only to know the truth and obey His will]. Blessed (happy, to be envied) is he who has no reason to judge himself for what he approves [who does not convict himself by what he chooses to do]. 
 
 
 

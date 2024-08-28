@@ -205,7 +205,7 @@ Ang katawan koʼy puno ng uod at langib. Nagnanana at pumuputok ang mga pigsa ko
 
 
 
-"Lumilipas po ang aking mga araw na walang pag-asa. Mabilis itong lumilipas, higit pa sa bilis ng isang habian[^a] ng manghahabi.[^b] 
+"Lumilipas po ang aking mga araw na walang pag-asa. Mabilis itong lumilipas, higit pa sa bilis ng isang habian ng manghahabi. 
 
 
 

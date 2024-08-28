@@ -322,7 +322,7 @@ And the Lord God said to the serpent, Because you have done this, you are cursed
 
 
 
-And I will put enmity between you and the woman, and between your offspring and her [^a]Offspring; He will bruise _and_ tread your head underfoot, and you will lie in wait _and_ bruise His heel. 
+And I will put enmity between you and the woman, and between your offspring and her Offspring; He will bruise _and_ tread your head underfoot, and you will lie in wait _and_ bruise His heel. 
 
 
 
@@ -469,7 +469,7 @@ For Adam also and for his wife the Lord God made long coats (tunics) of skins an
 
 
 
-And the Lord God said, Behold, the man has become like one of Us [the Father, Son, and Holy Spirit], to know [how to distinguish between] good and evil _and_ blessing and calamity; and now, lest he put forth his hand and take also from the tree of life and eat, and live [^b]forever-- 
+And the Lord God said, Behold, the man has become like one of Us [the Father, Son, and Holy Spirit], to know [how to distinguish between] good and evil _and_ blessing and calamity; and now, lest he put forth his hand and take also from the tree of life and eat, and live forever-- 
 
 
 
@@ -511,4 +511,4 @@ Therefore the Lord God sent him forth from the Garden of Eden to till the ground
 
 
 
-So [God] drove out the man; and He placed at the east of the Garden of Eden the [^c]cherubim and a flaming sword which turned every way, to keep _and_ guard the way to the tree of life.
+So [God] drove out the man; and He placed at the east of the Garden of Eden the cherubim and a flaming sword which turned every way, to keep _and_ guard the way to the tree of life.

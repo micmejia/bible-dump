@@ -28,7 +28,7 @@ next: ['Matt 7']
 
 
 
-Take care not to do your good deeds publicly _or_ before men, in order to be seen by them; otherwise you will have no reward [[^a]reserved for and awaiting you] with _and_ from your Father Who is in heaven. 
+Take care not to do your good deeds publicly _or_ before men, in order to be seen by them; otherwise you will have no reward [reserved for and awaiting you] with _and_ from your Father Who is in heaven. 
 
 
 
@@ -49,7 +49,7 @@ Take care not to do your good deeds publicly _or_ before men, in order to be see
 
 
 
-Thus, whenever you give to the poor, do not blow a trumpet before you, as the hypocrites in the synagogues and in the streets like to do, that they may be [^b]recognized _and_ honored _and_ praised by men. Truly I tell you, they have their reward [^c]in full already. 
+Thus, whenever you give to the poor, do not blow a trumpet before you, as the hypocrites in the synagogues and in the streets like to do, that they may be recognized _and_ honored _and_ praised by men. Truly I tell you, they have their reward in full already. 
 
 
 
@@ -112,7 +112,7 @@ So that your deeds of charity may be in secret; and your Father Who sees in secr
 
 
 
-Also when you pray, you must not be like the hypocrites, for they love to pray standing in the synagogues and on the corners of the streets, that they may be seen by people. Truly I tell you, they have their reward [^d]in full already. 
+Also when you pray, you must not be like the hypocrites, for they love to pray standing in the synagogues and on the corners of the streets, that they may be seen by people. Truly I tell you, they have their reward in full already. 
 
 
 
@@ -259,7 +259,7 @@ Give us this day our daily bread.
 
 
 
-And forgive us our debts, as we also have forgiven ([^e]left, remitted, and let go of the debts, and have [^f]given up resentment against) our debtors. 
+And forgive us our debts, as we also have forgiven (left, remitted, and let go of the debts, and have given up resentment against) our debtors. 
 
 
 
@@ -301,7 +301,7 @@ And lead (bring) us not into temptation, but deliver us from the evil one. _For 
 
 
 
-For if you forgive people their trespasses [their [^g]reckless and willful sins, [^h]leaving them, letting them go, and [^i]giving up resentment], your heavenly Father will also forgive you. 
+For if you forgive people their trespasses [their reckless and willful sins, leaving them, letting them go, and giving up resentment], your heavenly Father will also forgive you. 
 
 
 
@@ -322,7 +322,7 @@ For if you forgive people their trespasses [their [^g]reckless and willful sins,
 
 
 
-But if you do not forgive others their trespasses [their [^j]reckless and willful sins, [^k]leaving them, letting them go, and [^l]giving up resentment], neither will your Father forgive you your trespasses. 
+But if you do not forgive others their trespasses [their reckless and willful sins, leaving them, letting them go, and giving up resentment], neither will your Father forgive you your trespasses. 
 
 
 
@@ -343,7 +343,7 @@ But if you do not forgive others their trespasses [their [^j]reckless and willfu
 
 
 
-And whenever you are fasting, do not look gloomy _and_ [^m]sour _and_ [^n]dreary like the hypocrites, for they put on a dismal countenance, that their fasting may be apparent to _and_ seen by men. Truly I say to you, they have their reward [^o]in full already. 
+And whenever you are fasting, do not look gloomy _and_ sour _and_ dreary like the hypocrites, for they put on a dismal countenance, that their fasting may be apparent to _and_ seen by men. Truly I say to you, they have their reward in full already. 
 
 
 
@@ -406,7 +406,7 @@ So that your fasting may not be noticed by men but by your Father, Who sees in s
 
 
 
-Do not [^p]gather _and_ heap up _and_ store up for yourselves treasures on earth, where moth and rust _and_ worm consume _and_ destroy, and where thieves break through and steal. 
+Do not gather _and_ heap up _and_ store up for yourselves treasures on earth, where moth and rust _and_ worm consume _and_ destroy, and where thieves break through and steal. 
 
 
 
@@ -427,7 +427,7 @@ Do not [^p]gather _and_ heap up _and_ store up for yourselves treasures on earth
 
 
 
-But [^q]gather _and_ heap up _and_ store for yourselves treasures in heaven, where neither moth nor rust _nor_ worm consume _and_ destroy, and where thieves do not break through and steal; 
+But gather _and_ heap up _and_ store for yourselves treasures in heaven, where neither moth nor rust _nor_ worm consume _and_ destroy, and where thieves do not break through and steal; 
 
 
 
@@ -490,7 +490,7 @@ The eye is the lamp of the body. So if your eye is sound, your entire body will 
 
 
 
-But if your eye is unsound, your whole body will be full of darkness. If then the very light in you [your [^r]conscience] is darkened, how dense is that darkness! 
+But if your eye is unsound, your whole body will be full of darkness. If then the very light in you [your conscience] is darkened, how dense is that darkness! 
 
 
 
@@ -511,7 +511,7 @@ But if your eye is unsound, your whole body will be full of darkness. If then th
 
 
 
-No one can serve two masters; for either he will hate the one and love the other, or he will stand by _and_ be devoted to the one and despise and be [^s]against the other. You cannot serve God and mammon ([^t]deceitful riches, money, possessions, or [^u]whatever is trusted in). 
+No one can serve two masters; for either he will hate the one and love the other, or he will stand by _and_ be devoted to the one and despise and be against the other. You cannot serve God and mammon (deceitful riches, money, possessions, or whatever is trusted in). 
 
 
 
@@ -532,7 +532,7 @@ No one can serve two masters; for either he will hate the one and love the other
 
 
 
-Therefore I tell you, stop being [^v]perpetually uneasy (anxious and worried) about your life, what you shall eat _or what you shall drink_; or about your body, what you shall put on. Is not life greater [in quality] than food, and the body [far above and more excellent] than clothing? 
+Therefore I tell you, stop being perpetually uneasy (anxious and worried) about your life, what you shall eat _or what you shall drink_; or about your body, what you shall put on. Is not life greater [in quality] than food, and the body [far above and more excellent] than clothing? 
 
 
 
@@ -574,7 +574,7 @@ Look at the birds of the air; they neither sow nor reap nor gather into barns, a
 
 
 
-And who of you by worrying _and_ being anxious can add one unit of measure (cubit) to his stature _or_ to the [^w]span of his life? 
+And who of you by worrying _and_ being anxious can add one unit of measure (cubit) to his stature _or_ to the span of his life? 
 
 
 
@@ -595,7 +595,7 @@ And who of you by worrying _and_ being anxious can add one unit of measure (cubi
 
 
 
-And why should you be anxious about clothes? Consider the lilies of the field _and_ [^x]learn thoroughly how they grow; they neither toil nor spin. 
+And why should you be anxious about clothes? Consider the lilies of the field _and_ learn thoroughly how they grow; they neither toil nor spin. 
 
 
 
@@ -616,7 +616,7 @@ And why should you be anxious about clothes? Consider the lilies of the field _a
 
 
 
-Yet I tell you, even Solomon in all his [^y]magnificence (excellence, dignity, and grace) was not arrayed like one of these. 
+Yet I tell you, even Solomon in all his magnificence (excellence, dignity, and grace) was not arrayed like one of these. 
 
 
 
@@ -700,7 +700,7 @@ For the Gentiles (heathen) wish for _and_ crave _and_ diligently seek all these 
 
 
 
-But seek ([^z]aim at and strive after) first of all His kingdom and His righteousness ([^aa]His way of doing and being right), and then all these things [^ab]taken together will be given you besides. 
+But seek (aim at and strive after) first of all His kingdom and His righteousness ([^aa]His way of doing and being right), and then all these things [^ab]taken together will be given you besides. 
 
 
 

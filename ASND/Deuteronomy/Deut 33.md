@@ -73,7 +73,7 @@ Ito ang basbas na sinabi ni Moises na lingkod ng Dios sa mga Israelita bago siya
 
 
 
-Sinabi niya, "Dumating ang Panginoon galing sa Sinai; nagpakita siya galing sa Bundok ng Seir katulad ng pagsikat ng araw. Sumikat siya sa mga tao galing sa Bundok ng Paran. Dumating siya kasama ang libu-libong mga anghel, at ang kanyang kanang kamay ay may dala-dalang naglalagablab na apoy.[^a] 
+Sinabi niya, "Dumating ang Panginoon galing sa Sinai; nagpakita siya galing sa Bundok ng Seir katulad ng pagsikat ng araw. Sumikat siya sa mga tao galing sa Bundok ng Paran. Dumating siya kasama ang libu-libong mga anghel, at ang kanyang kanang kamay ay may dala-dalang naglalagablab na apoy. 
 
 
 
@@ -271,7 +271,7 @@ Sinabi ni Moises tungkol sa lahi ni Juda "O Panginoon, pakinggan po ninyo ang pa
 
 
 
-Sinabi ni Moises tungkol sa lahi ni Levi, "O Panginoon, ibinigay po ninyo ang 'Urim' at 'Thummim'[^b] sa tapat ninyong mga lingkod <i class="trans-change">na lahi ni Levi_. Sinubukan ninyo sila sa Masa at sinaway sa tabi ng tubig ng Meriba. 
+Sinabi ni Moises tungkol sa lahi ni Levi, "O Panginoon, ibinigay po ninyo ang 'Urim' at 'Thummim' sa tapat ninyong mga lingkod <i class="trans-change">na lahi ni Levi_. Sinubukan ninyo sila sa Masa at sinaway sa tabi ng tubig ng Meriba. 
 
 
 
@@ -766,7 +766,7 @@ Sinabi ni Moises tungkol sa lahi ni Dan, "Ang lahi ni Dan ay katulad sa mga bata
 
 
 
-Sinabi ni Moises tungkol sa lahi ni Naftali, "Ang lahi ni Naftali ay sagana sa pagpapala ng Panginoon. Maangkin sana nila ang lupain sa kanluran[^c] at sa timog." 
+Sinabi ni Moises tungkol sa lahi ni Naftali, "Ang lahi ni Naftali ay sagana sa pagpapala ng Panginoon. Maangkin sana nila ang lupain sa kanluran at sa timog." 
 
 
 
@@ -865,7 +865,7 @@ At sanaʼy maprotektahan ng mga tarangkahang bakal at tanso ang mga pintuan ng k
 
 
 
-Walang katulad ang Dios ng Israel.[^d] Sa kanyang kadakilaan, sumasakay siya sa ulap para matulungan kayo. Sa kanyang kadakilaan dumarating siya mula sa kalangitan. 
+Walang katulad ang Dios ng Israel. Sa kanyang kadakilaan, sumasakay siya sa ulap para matulungan kayo. Sa kanyang kadakilaan dumarating siya mula sa kalangitan. 
 
 
 
@@ -964,4 +964,4 @@ Kaya mamumuhay ang Israel na malayo sa kapahamakan, sa lupaing sagana sa trigo a
 
 
 
-Pinagpala kayo, <i class="trans-change">mga mamamayan ng_ Israel! Wala kayong katulad – isang bansa na iniligtas ng Panginoon. Ang Panginoon ang mag-iingat at tutulong sa inyo, at siya ang makikipaglaban para sa inyo. Gagapang ang inyong mga kaaway papunta sa inyo, at tatapakan ninyo sila sa likod."[^e]
+Pinagpala kayo, <i class="trans-change">mga mamamayan ng_ Israel! Wala kayong katulad – isang bansa na iniligtas ng Panginoon. Ang Panginoon ang mag-iingat at tutulong sa inyo, at siya ang makikipaglaban para sa inyo. Gagapang ang inyong mga kaaway papunta sa inyo, at tatapakan ninyo sila sa likod."

@@ -10,7 +10,7 @@ next: ['Num 25']
 
 
 ###### 1 
-Now when Balaam saw that it pleased the Lord to bless Israel, he did not go as at other times, to seek to use [^a]sorcery, but he set his face toward the wilderness. 
+Now when Balaam saw that it pleased the Lord to bless Israel, he did not go as at other times, to seek to use sorcery, but he set his face toward the wilderness. 
 
 ###### 2 
 And Balaam raised his eyes, and saw Israel encamped according to their tribes; and the Spirit of God came upon him. 
@@ -58,13 +58,13 @@ So he took up his oracle and said: "The utterance of Balaam the son of Beor, And
 The utterance of him who hears the words of God, And has the knowledge of the Most High, _Who_ sees the vision of the Almighty, _Who_ falls down, with eyes wide open: 
 
 ###### 17 
-"I see Him, but not now; I behold Him, but not near; A Star shall come out of Jacob; A Scepter shall rise out of Israel, And [^b]batter the brow of Moab, And destroy all the sons of [^c]tumult. 
+"I see Him, but not now; I behold Him, but not near; A Star shall come out of Jacob; A Scepter shall rise out of Israel, And batter the brow of Moab, And destroy all the sons of tumult. 
 
 ###### 18 
-"And Edom shall be a possession; Seir also, his enemies, shall be a possession, While Israel does [^d]valiantly. 
+"And Edom shall be a possession; Seir also, his enemies, shall be a possession, While Israel does valiantly. 
 
 ###### 19 
-Out of Jacob One [^e]shall have dominion, And destroy the remains of the city." 
+Out of Jacob One shall have dominion, And destroy the remains of the city." 
 
 ###### 20 
 Then he looked on Amalek, and he took up his oracle and said: "Amalek _was_ first among the nations, But _shall be_ last until he perishes." 
@@ -79,7 +79,7 @@ Nevertheless Kain shall be burned. How long until Asshur carries you away captiv
 Then he took up his oracle and said: "Alas! Who shall live when God does this? 
 
 ###### 24 
-But ships _shall come_ from the coasts of Cyprus,[^f] And they shall afflict Asshur and afflict Eber, And so shall [^g]_Amalek_, until he perishes." 
+But ships _shall come_ from the coasts of Cyprus, And they shall afflict Asshur and afflict Eber, And so shall _Amalek_, until he perishes." 
 
 ###### 25 
 So Balaam rose and departed and returned to his place; Balak also went his way.

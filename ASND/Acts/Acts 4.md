@@ -238,7 +238,7 @@ Naroon din si Anas na punong pari, si Caifas, si Juan, si Alexander, at ang iba 
 
 
 
-Iniharap sa kanila sina Pedro at Juan at tinanong, "Sa anong kapangyarihan at kaninong awtoridad[^a] ang inyong ginamit sa pagpapagaling sa taong lumpo?" 
+Iniharap sa kanila sina Pedro at Juan at tinanong, "Sa anong kapangyarihan at kaninong awtoridad ang inyong ginamit sa pagpapagaling sa taong lumpo?" 
 
 
 
@@ -337,7 +337,7 @@ kung ang itinatanong ninyo sa amin ay tungkol sa paggaling ng taong lumpo,
 
 
 
-dapat malaman ninyong lahat at ng lahat ng taga-Israel, na ang taong ito na nakatayo rito ngayon ay pinagaling ng kapangyarihan[^b] ni Jesu-Cristo na taga-Nazaret. Siya ang inyong ipinako sa krus at pinatay, ngunit binuhay siyang muli ng Dios. 
+dapat malaman ninyong lahat at ng lahat ng taga-Israel, na ang taong ito na nakatayo rito ngayon ay pinagaling ng kapangyarihan ni Jesu-Cristo na taga-Nazaret. Siya ang inyong ipinako sa krus at pinatay, ngunit binuhay siyang muli ng Dios. 
 
 
 
@@ -865,7 +865,7 @@ Nagsalita kayo sa pamamagitan ng aming ninunong si David na inyong lingkod. Sina
 
 
 
-Ang mga hari at mga pinuno sa mundo ay nagsama-sama, at nagsipaghanda sa pakikipaglaban sa Panginoon, at sa kanyang Cristo.'[^c] 
+Ang mga hari at mga pinuno sa mundo ay nagsama-sama, at nagsipaghanda sa pakikipaglaban sa Panginoon, at sa kanyang Cristo.' 
 
 
 
@@ -997,7 +997,7 @@ At ngayon, Panginoon, pinagbabantaan nila kami. Tulungan nʼyo kami na inyong mg
 
 
 
-Ipakita nʼyo ang inyong kapangyarihan. Loobin nʼyo na sa pamamagitan ng kapangyarihan[^d] ni Jesus na inyong banal na lingkod ay mapagaling namin ang mga may sakit at makagawa kami ng mga himala at mga kamangha-manghang bagay." 
+Ipakita nʼyo ang inyong kapangyarihan. Loobin nʼyo na sa pamamagitan ng kapangyarihan ni Jesus na inyong banal na lingkod ay mapagaling namin ang mga may sakit at makagawa kami ng mga himala at mga kamangha-manghang bagay." 
 
 
 

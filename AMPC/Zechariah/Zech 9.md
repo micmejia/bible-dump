@@ -91,7 +91,7 @@ And Tyre has built herself a stronghold [on an island a half mile from the shore
 
 
 
-Behold, the Lord will [^a]cast her out _and_ dispossess her; He will smite her power in the sea _and_ into it and [Tyre] shall be devoured by fire. 
+Behold, the Lord will cast her out _and_ dispossess her; He will smite her power in the sea _and_ into it and [Tyre] shall be devoured by fire. 
 
 
 
@@ -112,7 +112,7 @@ Behold, the Lord will [^a]cast her out _and_ dispossess her; He will smite her p
 
 
 
-[The strong cities of Philistia] shall see it and fear; [^b]Ashkelon, Gaza also, and be sorely pained, and Ekron, for her confidence _and_ expectation shall be put to shame, and a king [monarchial government] shall perish from Gaza, and Ashkelon shall not be inhabited. 
+[The strong cities of Philistia] shall see it and fear; Ashkelon, Gaza also, and be sorely pained, and Ekron, for her confidence _and_ expectation shall be put to shame, and a king [monarchial government] shall perish from Gaza, and Ashkelon shall not be inhabited. 
 
 
 

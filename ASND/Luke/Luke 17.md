@@ -73,7 +73,7 @@ Sinabi ni Jesus sa mga tagasunod niya, "Hindi maiiwasan ang pagdating ng mga bag
 
 
 
-Mas mabuti pang talian siya sa leeg ng gilingang bato at itapon sa dagat, kaysa siya ang maging dahilan ng pagkakasala ng isa sa maliliit[^a] na ito. 
+Mas mabuti pang talian siya sa leeg ng gilingang bato at itapon sa dagat, kaysa siya ang maging dahilan ng pagkakasala ng isa sa maliliit na ito. 
 
 
 
@@ -634,7 +634,7 @@ Bakit hindi bumalik ang iba upang magpuri sa Dios maliban sa taong ito na hindi 
 
 
 
-Sinabi niya sa lalaki, "Tumayo ka at umuwi na. Iniligtas[^b] ka ng pananampalataya mo." ## Ang tungkol sa Paghahari ng Dios. 
+Sinabi niya sa lalaki, "Tumayo ka at umuwi na. Iniligtas ka ng pananampalataya mo." ## Ang tungkol sa Paghahari ng Dios. 
 
 
 
@@ -700,7 +700,7 @@ Minsan, tinanong ng mga Pariseo si Jesus kung kailan magsisimula ang paghahari n
 
 
 
-Kaya walang makapagsasabing, 'Dito maghahari ang Dios!' o, 'Doon siya maghahari!' Dahil naghahari na ang Dios sa puso ninyo."[^c] 
+Kaya walang makapagsasabing, 'Dito maghahari ang Dios!' o, 'Doon siya maghahari!' Dahil naghahari na ang Dios sa puso ninyo." 
 
 
 
@@ -1228,4 +1228,4 @@ Sa dalawang babaeng magkasamang naggigiling, kukunin ang isa at iiwan ang isa.
 
 
 
-Tinanong siya ng mga tagasunod niya, "Saan <i class="trans-change">po ito mangyayari_, Panginoon?" Sumagot siya <i class="trans-change">sa pamamagitan ng kasabihan_, "Kung saan may bangkay, doon nag-uumpukan ang mga buwitre."[^d]
+Tinanong siya ng mga tagasunod niya, "Saan <i class="trans-change">po ito mangyayari_, Panginoon?" Sumagot siya <i class="trans-change">sa pamamagitan ng kasabihan_, "Kung saan may bangkay, doon nag-uumpukan ang mga buwitre."

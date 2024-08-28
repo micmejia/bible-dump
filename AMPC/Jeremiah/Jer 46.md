@@ -49,7 +49,7 @@ The word of the Lord that came to Jeremiah the prophet concerning _and_ against 
 
 
 
-Concerning _and_ against Egypt: against the army of Pharaoh Necho king of Egypt, which was by the river Euphrates at Carchemish, which [^a]Nebuchadrezzar king of Babylon smote _and_ defeated in the fourth year of Jehoiakim son of Josiah king of Judah: 
+Concerning _and_ against Egypt: against the army of Pharaoh Necho king of Egypt, which was by the river Euphrates at Carchemish, which Nebuchadrezzar king of Babylon smote _and_ defeated in the fourth year of Jehoiakim son of Josiah king of Judah: 
 
 
 
@@ -280,7 +280,7 @@ The nations have heard of your disgrace _and_ shame, and your cry has filled the
 
 
 
-The word that the Lord spoke to Jeremiah the prophet concerning the coming of [^b]Nebuchadrezzar king of Babylon and his smiting of the land of Egypt: 
+The word that the Lord spoke to Jeremiah the prophet concerning the coming of Nebuchadrezzar king of Babylon and his smiting of the land of Egypt: 
 
 
 
@@ -553,7 +553,7 @@ The Lord of hosts, the God of Israel, says: Behold, I will visit punishment upon
 
 
 
-And I will deliver them into the hands of those who seek their lives, and into the hand of Nebuchadrezzar king of Babylon, and into the hands of his servants. Afterward [Egypt] will be [^c]inhabited as in the days of old, says the Lord. 
+And I will deliver them into the hands of those who seek their lives, and into the hand of Nebuchadrezzar king of Babylon, and into the hands of his servants. Afterward [Egypt] will be inhabited as in the days of old, says the Lord. 
 
 
 

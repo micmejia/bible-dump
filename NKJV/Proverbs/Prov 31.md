@@ -21,7 +21,7 @@ Do not give your strength to women, Nor your ways to that which destroys kings.
 _It is_ not for kings, O Lemuel, _It is_ not for kings to drink wine, Nor for princes intoxicating drink; 
 
 ###### 5 
-Lest they drink and forget the law, And pervert the justice of all [^a]the afflicted. 
+Lest they drink and forget the law, And pervert the justice of all the afflicted. 
 
 ###### 6 
 Give strong drink to him who is perishing, And wine to those who are bitter of heart. 
@@ -30,13 +30,13 @@ Give strong drink to him who is perishing, And wine to those who are bitter of h
 Let him drink and forget his poverty, And remember his misery no more. 
 
 ###### 8 
-Open your mouth for the speechless, In the cause of all _who are_ [^b]appointed to die. 
+Open your mouth for the speechless, In the cause of all _who are_ appointed to die. 
 
 ###### 9 
 Open your mouth, judge righteously, And plead the cause of the poor and needy. ## The Virtuous Wife 
 
 ###### 10 
-Who[^c] can find a [^d]virtuous wife? For her worth _is_ far above rubies. 
+Who can find a virtuous wife? For her worth _is_ far above rubies. 
 
 ###### 11 
 The heart of her husband safely trusts her; So he will have no lack of gain. 
@@ -54,7 +54,7 @@ She is like the merchant ships, She brings her food from afar.
 She also rises while it is yet night, And provides food for her household, And a portion for her maidservants. 
 
 ###### 16 
-She considers a field and buys it; From [^e]her profits she plants a vineyard. 
+She considers a field and buys it; From her profits she plants a vineyard. 
 
 ###### 17 
 She girds herself with strength, And strengthens her arms. 

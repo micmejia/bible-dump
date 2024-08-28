@@ -48,7 +48,7 @@ Paul, an apostle (special messenger) of Christ Jesus (the Messiah), by the will 
 
 
 
-To the saints (the consecrated people of God) and [^a]believing _and_ faithful brethren in Christ who are at Colossae: Grace (spiritual favor and blessing) to you and [heart] peace from God our Father. 
+To the saints (the consecrated people of God) and believing _and_ faithful brethren in Christ who are at Colossae: Grace (spiritual favor and blessing) to you and [heart] peace from God our Father. 
 
 
 
@@ -69,7 +69,7 @@ To the saints (the consecrated people of God) and [^a]believing _and_ faithful b
 
 
 
-We [^b]continually give thanks to God the Father of our Lord Jesus Christ (the Messiah), as we are praying for you, 
+We continually give thanks to God the Father of our Lord Jesus Christ (the Messiah), as we are praying for you, 
 
 
 
@@ -90,7 +90,7 @@ We [^b]continually give thanks to God the Father of our Lord Jesus Christ (the M
 
 
 
-For we have heard of your faith in Christ Jesus [[^c]the leaning of your entire human personality on Him in absolute trust and confidence in His power, wisdom, and goodness] and of the love which you [have and show] for all the saints (God's consecrated ones), 
+For we have heard of your faith in Christ Jesus [the leaning of your entire human personality on Him in absolute trust and confidence in His power, wisdom, and goodness] and of the love which you [have and show] for all the saints (God's consecrated ones), 
 
 
 
@@ -111,7 +111,7 @@ For we have heard of your faith in Christ Jesus [[^c]the leaning of your entire 
 
 
 
-Because of the hope [of experiencing what is] laid up ([^d]reserved and waiting) for you in heaven. Of this [hope] you heard in the past in the message of the truth of the Gospel, 
+Because of the hope [of experiencing what is] laid up (reserved and waiting) for you in heaven. Of this [hope] you heard in the past in the message of the truth of the Gospel, 
 
 
 
@@ -132,7 +132,7 @@ Because of the hope [of experiencing what is] laid up ([^d]reserved and waiting)
 
 
 
-Which has come to you. Indeed, in the whole world [that Gospel] is bearing fruit _and_ still is growing [^e][by its own inherent power], even as it has done among yourselves ever since the day you first heard and came to know _and_ understand the grace of God in truth. [You came to know the grace or undeserved favor of God in reality, deeply and clearly and thoroughly, becoming accurately and intimately acquainted with it.] 
+Which has come to you. Indeed, in the whole world [that Gospel] is bearing fruit _and_ still is growing [by its own inherent power], even as it has done among yourselves ever since the day you first heard and came to know _and_ understand the grace of God in truth. [You came to know the grace or undeserved favor of God in reality, deeply and clearly and thoroughly, becoming accurately and intimately acquainted with it.] 
 
 
 
@@ -153,7 +153,7 @@ Which has come to you. Indeed, in the whole world [that Gospel] is bearing fruit
 
 
 
-You so learned it from Epaphras, our beloved fellow servant. He is a faithful minister of Christ in our stead _and_ as our representative _and_ [^f]_yours_. 
+You so learned it from Epaphras, our beloved fellow servant. He is a faithful minister of Christ in our stead _and_ as our representative _and_ _yours_. 
 
 
 
@@ -195,7 +195,7 @@ Also he has informed us of your love in the [Holy] Spirit.
 
 
 
-For this reason we also, from the day we heard of it, have not ceased to pray _and_ make [[^g]special] request for you, [asking] that you may be filled with the [^h]full (deep and clear) knowledge of His will in all spiritual wisdom [[^i]in comprehensive insight into the ways and purposes of God] and in understanding _and_ discernment of spiritual things-- 
+For this reason we also, from the day we heard of it, have not ceased to pray _and_ make [special] request for you, [asking] that you may be filled with the full (deep and clear) knowledge of His will in all spiritual wisdom [in comprehensive insight into the ways and purposes of God] and in understanding _and_ discernment of spiritual things-- 
 
 
 
@@ -216,7 +216,7 @@ For this reason we also, from the day we heard of it, have not ceased to pray _a
 
 
 
-That you may walk (live and conduct yourselves) in a manner worthy of the Lord, fully pleasing to Him _and_ [^j]desiring to please Him in all things, bearing fruit in every good work and steadily growing _and_ increasing in _and_ by the knowledge of God [with fuller, deeper, and clearer insight, [^k]acquaintance, and recognition]. 
+That you may walk (live and conduct yourselves) in a manner worthy of the Lord, fully pleasing to Him _and_ desiring to please Him in all things, bearing fruit in every good work and steadily growing _and_ increasing in _and_ by the knowledge of God [with fuller, deeper, and clearer insight, acquaintance, and recognition]. 
 
 
 
@@ -258,7 +258,7 @@ That you may walk (live and conduct yourselves) in a manner worthy of the Lord, 
 
 
 
-Giving thanks to the Father, Who has qualified _and_ made us fit to share the [^l]portion which is the inheritance of the saints (God's holy people) in the Light. 
+Giving thanks to the Father, Who has qualified _and_ made us fit to share the portion which is the inheritance of the saints (God's holy people) in the Light. 
 
 
 
@@ -279,7 +279,7 @@ Giving thanks to the Father, Who has qualified _and_ made us fit to share the [^
 
 
 
-[The Father] has delivered _and_ [^m]drawn us to Himself out of the control _and_ the dominion of darkness and has transferred us into the kingdom of the Son [^n]of His love, 
+[The Father] has delivered _and_ drawn us to Himself out of the control _and_ the dominion of darkness and has transferred us into the kingdom of the Son of His love, 
 
 
 
@@ -321,7 +321,7 @@ In Whom we have our redemption _through His blood_, [which means] the forgivenes
 
 
 
-[Now] He is the [^o]exact likeness of the unseen God [the visible representation of the invisible]; He is the Firstborn of all creation. 
+[Now] He is the exact likeness of the unseen God [the visible representation of the invisible]; He is the Firstborn of all creation. 
 
 
 
@@ -405,7 +405,7 @@ He also is the Head of [His] body, the church; seeing He is the Beginning, the F
 
 
 
-For it has pleased [the Father] that all the divine fullness (the sum total of the divine perfection, powers, and attributes) should dwell in Him [^p]permanently. 
+For it has pleased [the Father] that all the divine fullness (the sum total of the divine perfection, powers, and attributes) should dwell in Him permanently. 
 
 
 
@@ -426,7 +426,7 @@ For it has pleased [the Father] that all the divine fullness (the sum total of t
 
 
 
-And God purposed that through ([^q]by the service, the intervention of) Him [the Son] all things should be completely reconciled [^r]back to Himself, whether on earth or in heaven, as through Him, [the Father] made peace by means of the blood of His cross. 
+And God purposed that through (by the service, the intervention of) Him [the Son] all things should be completely reconciled back to Himself, whether on earth or in heaven, as through Him, [the Father] made peace by means of the blood of His cross. 
 
 
 
@@ -489,7 +489,7 @@ Yet now has [Christ, the Messiah] reconciled [you to God] in the body of His fle
 
 
 
-[And this He will do] provided that you continue to [^s]stay with _and_ in the faith [in Christ], well-grounded and settled _and_ steadfast, not shifting _or_ moving away from the hope [which rests on and is inspired by] the glad tidings (the Gospel), which you heard and which has been preached [^t][as being designed for and offered without restrictions] to every person under heaven, and of which [Gospel] I, Paul, became a minister. 
+[And this He will do] provided that you continue to stay with _and_ in the faith [in Christ], well-grounded and settled _and_ steadfast, not shifting _or_ moving away from the hope [which rests on and is inspired by] the glad tidings (the Gospel), which you heard and which has been preached [as being designed for and offered without restrictions] to every person under heaven, and of which [Gospel] I, Paul, became a minister. 
 
 
 
@@ -510,7 +510,7 @@ Yet now has [Christ, the Messiah] reconciled [you to God] in the body of His fle
 
 
 
-[Even] now I rejoice in [^u]the midst of my sufferings on your behalf. And in my own person I am making up whatever is still lacking _and_ remains to be completed [[^v]on our part] of Christ's afflictions, for the sake of His body, which is the church. 
+[Even] now I rejoice in the midst of my sufferings on your behalf. And in my own person I am making up whatever is still lacking _and_ remains to be completed [on our part] of Christ's afflictions, for the sake of His body, which is the church. 
 
 
 
@@ -531,7 +531,7 @@ Yet now has [Christ, the Messiah] reconciled [you to God] in the body of His fle
 
 
 
-In it I became a minister in accordance with the divine [^w]stewardship which was entrusted to me for you [as its object and for your benefit], to make the Word of God fully known [among you]-- 
+In it I became a minister in accordance with the divine stewardship which was entrusted to me for you [as its object and for your benefit], to make the Word of God fully known [among you]-- 
 
 
 
@@ -552,7 +552,7 @@ In it I became a minister in accordance with the divine [^w]stewardship which wa
 
 
 
-The mystery of which was hidden for ages and generations [[^x]from angels and men], but is now revealed to His holy people (the saints), 
+The mystery of which was hidden for ages and generations [from angels and men], but is now revealed to His holy people (the saints), 
 
 
 
@@ -594,7 +594,7 @@ To whom God was pleased to make known how great for the Gentiles are the riches 
 
 
 
-Him we preach _and_ proclaim, warning _and_ admonishing everyone and instructing everyone in all wisdom ([^y]comprehensive insight into the ways and purposes of God), that we may present every person mature (full-grown, fully initiated, complete, and perfect) in Christ (the Anointed One). 
+Him we preach _and_ proclaim, warning _and_ admonishing everyone and instructing everyone in all wisdom (comprehensive insight into the ways and purposes of God), that we may present every person mature (full-grown, fully initiated, complete, and perfect) in Christ (the Anointed One). 
 
 
 
@@ -615,4 +615,4 @@ Him we preach _and_ proclaim, warning _and_ admonishing everyone and instructing
 
 
 
-For this I labor [[^z]unto weariness], striving with all the [^aa]superhuman energy which He so mightily enkindles _and_ works within me.
+For this I labor [unto weariness], striving with all the [^aa]superhuman energy which He so mightily enkindles _and_ works within me.

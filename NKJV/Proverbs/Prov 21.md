@@ -10,7 +10,7 @@ next: ['Prov 22']
 
 
 ###### 1 
-The king's heart _is_ in the hand of the Lord, _Like_ the [^a]rivers of water; He turns it wherever He wishes. 
+The king's heart _is_ in the hand of the Lord, _Like_ the rivers of water; He turns it wherever He wishes. 
 
 ###### 2 
 Every way of a man _is_ right in his own eyes, But the Lord weighs the hearts. 
@@ -19,19 +19,19 @@ Every way of a man _is_ right in his own eyes, But the Lord weighs the hearts.
 To do righteousness and justice _Is_ more acceptable to the Lord than sacrifice. 
 
 ###### 4 
-A haughty look, a proud heart, _And_ the [^b]plowing of the wicked _are_ sin. 
+A haughty look, a proud heart, _And_ the plowing of the wicked _are_ sin. 
 
 ###### 5 
 The plans of the diligent _lead_ surely to plenty, But _those of_ everyone _who is_ hasty, surely to poverty. 
 
 ###### 6 
-Getting treasures by a lying tongue [^c]_Is_ the fleeting fantasy of those who seek death. 
+Getting treasures by a lying tongue _Is_ the fleeting fantasy of those who seek death. 
 
 ###### 7 
-The violence of the wicked will [^d]destroy them, Because they refuse to do justice. 
+The violence of the wicked will destroy them, Because they refuse to do justice. 
 
 ###### 8 
-The way of [^e]a guilty man _is_ perverse; But _as for_ the pure, his work _is_ right. 
+The way of a guilty man _is_ perverse; But _as for_ the pure, his work _is_ right. 
 
 ###### 9 
 Better to dwell in a corner of a housetop, Than in a house shared with a contentious woman. 
@@ -49,7 +49,7 @@ The righteous _God_ wisely considers the house of the wicked, Overthrowing the w
 Whoever shuts his ears to the cry of the poor Will also cry himself and not be heard. 
 
 ###### 14 
-A gift in secret pacifies anger, And a bribe [^f]behind the back, strong wrath. 
+A gift in secret pacifies anger, And a bribe behind the back, strong wrath. 
 
 ###### 15 
 _It is_ a joy for the just to do justice, But destruction _will come_ to the workers of iniquity. 
@@ -64,7 +64,7 @@ He who loves pleasure _will be_ a poor man; He who loves wine and oil will not b
 The wicked _shall be_ a ransom for the righteous, And the unfaithful for the upright. 
 
 ###### 19 
-Better to dwell [^g]in the wilderness, Than with a contentious and angry woman. 
+Better to dwell in the wilderness, Than with a contentious and angry woman. 
 
 ###### 20 
 _There is_ desirable treasure, And oil in the dwelling of the wise, But a foolish man squanders it. 
@@ -73,7 +73,7 @@ _There is_ desirable treasure, And oil in the dwelling of the wise, But a foolis
 He who follows righteousness and mercy Finds life, righteousness, and honor. 
 
 ###### 22 
-A wise _man_ [^h]scales the city of the mighty, And brings down the trusted stronghold. 
+A wise _man_ scales the city of the mighty, And brings down the trusted stronghold. 
 
 ###### 23 
 Whoever guards his mouth and tongue Keeps his soul from troubles. 
@@ -94,7 +94,7 @@ The sacrifice of the wicked _is_ an abomination; How much more _when_ he brings 
 A false witness shall perish, But the man who hears _him_ will speak endlessly. 
 
 ###### 29 
-A wicked man hardens his face, But _as for_ the upright, he [^i]establishes his way. 
+A wicked man hardens his face, But _as for_ the upright, he establishes his way. 
 
 ###### 30 
 _There is_ no wisdom or understanding Or counsel against the Lord. 

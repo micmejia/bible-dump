@@ -139,7 +139,7 @@ Tambakan ninyo ang mga mababang lugar, at patagin ang mga bundok at burol. Tuwir
 
 
 
-At makikita ng lahat ng tao ang pagliligtas ng Dios.' "[^a] 
+At makikita ng lahat ng tao ang pagliligtas ng Dios.' " 
 
 
 
@@ -469,7 +469,7 @@ Nang marinig ng mga tao ang pangangaral ni Juan, inisip nila na baka si Juan na 
 
 
 
-Pero sinabi ni Juan sa kanila, "Binabautismuhan ko kayo sa tubig, ngunit may isang darating na mas makapangyarihan kaysa sa akin. Ni hindi ako karapat-dapat na maging alipin niya.[^b] Babautismuhan niya kayo sa Banal na Espiritu at sa apoy. 
+Pero sinabi ni Juan sa kanila, "Binabautismuhan ko kayo sa tubig, ngunit may isang darating na mas makapangyarihan kaysa sa akin. Ni hindi ako karapat-dapat na maging alipin niya. Babautismuhan niya kayo sa Banal na Espiritu at sa apoy. 
 
 
 

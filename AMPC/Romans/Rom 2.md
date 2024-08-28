@@ -91,7 +91,7 @@ And do you think _or_ imagine, O man, when you judge _and_ condemn those who pra
 
 
 
-Or are you [so blind as to] trifle with _and_ presume upon _and_ despise _and_ underestimate the wealth of His kindness and forbearance and long-suffering patience? Are you unmindful _or_ actually ignorant [of the fact] that God's kindness is intended to lead you to repent ([^a]to change your mind and inner man to accept God's will)? 
+Or are you [so blind as to] trifle with _and_ presume upon _and_ despise _and_ underestimate the wealth of His kindness and forbearance and long-suffering patience? Are you unmindful _or_ actually ignorant [of the fact] that God's kindness is intended to lead you to repent (to change your mind and inner man to accept God's will)? 
 
 
 
@@ -154,7 +154,7 @@ For He will render to every man according to his works [justly, as his deeds des
 
 
 
-To those who by patient persistence in well-doing [[^b]springing from piety] seek [unseen but sure] glory and honor and [[^c]the eternal blessedness of] immortality, He will give eternal life. 
+To those who by patient persistence in well-doing [springing from piety] seek [unseen but sure] glory and honor and [the eternal blessedness of] immortality, He will give eternal life. 
 
 
 
@@ -238,7 +238,7 @@ But glory and honor and [heart] peace shall be awarded to everyone who [habitual
 
 
 
-For God shows no partiality [[^d]undue favor or unfairness; with Him one man is not different from another]. 
+For God shows no partiality [undue favor or unfairness; with Him one man is not different from another]. 
 
 
 
@@ -322,7 +322,7 @@ When Gentiles who have not the [divine] Law do instinctively what the Law requir
 
 
 
-They show that the essential requirements of the Law are written in their hearts _and_ are operating there, with which their consciences (sense of right and wrong) also bear witness; and their [moral] [^e]decisions (their arguments of reason, their condemning or approving [^f]thoughts) will accuse or perhaps defend _and_ excuse [them] 
+They show that the essential requirements of the Law are written in their hearts _and_ are operating there, with which their consciences (sense of right and wrong) also bear witness; and their [moral] decisions (their arguments of reason, their condemning or approving thoughts) will accuse or perhaps defend _and_ excuse [them] 
 
 
 
@@ -343,7 +343,7 @@ They show that the essential requirements of the Law are written in their hearts
 
 
 
-On that day when, as my Gospel proclaims, God by Jesus Christ will judge men in regard to [^g]the things which they conceal (their hidden thoughts). 
+On that day when, as my Gospel proclaims, God by Jesus Christ will judge men in regard to the things which they conceal (their hidden thoughts). 
 
 
 
@@ -469,7 +469,7 @@ Well then, you who teach others, do you not teach yourself? While you teach agai
 
 
 
-You who say not to commit adultery, do you commit adultery [are you unchaste in action or in thought]? You who abhor _and_ loathe idols, do you rob temples [do you appropriate to your own use what is consecrated to God, thus robbing the sanctuary and [^h]doing sacrilege]? 
+You who say not to commit adultery, do you commit adultery [are you unchaste in action or in thought]? You who abhor _and_ loathe idols, do you rob temples [do you appropriate to your own use what is consecrated to God, thus robbing the sanctuary and doing sacrilege]? 
 
 
 

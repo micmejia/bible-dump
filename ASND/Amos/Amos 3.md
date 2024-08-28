@@ -304,7 +304,7 @@ Sino ang hindi matatakot kung umaatungal na ang leon? Sino kaya ang hindi magpap
 
 
 
-Sabihin ninyo sa <i class="trans-change">mga pinunong nakatira sa_ matitibay na bahagi ng Ashdod[^a] at Egipto na magtipon sila sa mga burol <i class="trans-change">sa paligid_ ng Samaria[^b] at tingnan nila ang kaguluhang nangyayari sa lungsod na ito at ang panggigipit sa mga mamamayan nito. <sup class="versenum">10-11</sup>Sapagkat ito ang sinasabi ng Panginoong Dios <i class="trans-change">laban sa Samaria_: "Hindi sila marunong gumawa ng matuwid. Ang matitibay na bahagi ng kanilang lungsod ay puno ng mga bagay na ninakaw at sinamsam. Kaya lulusubin sila ng mga kaaway at gigibain ang kanilang mga kampo. Sasamsamin ng mga kaaway ang mga ari-arian sa matitibay na bahagi ng kanilang lungsod." 
+Sabihin ninyo sa <i class="trans-change">mga pinunong nakatira sa_ matitibay na bahagi ng Ashdod at Egipto na magtipon sila sa mga burol <i class="trans-change">sa paligid_ ng Samaria at tingnan nila ang kaguluhang nangyayari sa lungsod na ito at ang panggigipit sa mga mamamayan nito. <sup class="versenum">10-11</sup>Sapagkat ito ang sinasabi ng Panginoong Dios <i class="trans-change">laban sa Samaria_: "Hindi sila marunong gumawa ng matuwid. Ang matitibay na bahagi ng kanilang lungsod ay puno ng mga bagay na ninakaw at sinamsam. Kaya lulusubin sila ng mga kaaway at gigibain ang kanilang mga kampo. Sasamsamin ng mga kaaway ang mga ari-arian sa matitibay na bahagi ng kanilang lungsod." 
 
 
 
@@ -403,7 +403,7 @@ Sinabi ng Panginoong Dios, ang Dios na Makapangyarihan, "Pakinggan ninyo ang sas
 
 
 
-Sa araw na parusahan ko ang mga taga-Israel dahil sa kanilang mga kasalanan, wawasakin ko ang mga altar sa Betel.[^c] Puputulin ko ang sungay ng mga sulok ng altar[^d] at mahuhulog ang mga ito sa lupa. 
+Sa araw na parusahan ko ang mga taga-Israel dahil sa kanilang mga kasalanan, wawasakin ko ang mga altar sa Betel. Puputulin ko ang sungay ng mga sulok ng altar at mahuhulog ang mga ito sa lupa. 
 
 
 
@@ -436,4 +436,4 @@ Sa araw na parusahan ko ang mga taga-Israel dahil sa kanilang mga kasalanan, waw
 
 
 
-Wawasakin ko ang kanilang mga bahay na pangtaglamig at ang mga bahay na pangtag-init. Wawasakin ko rin ang kanilang mamahalin[^e] at malalaking bahay. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito."
+Wawasakin ko ang kanilang mga bahay na pangtaglamig at ang mga bahay na pangtag-init. Wawasakin ko rin ang kanilang mamahalin at malalaking bahay. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito."

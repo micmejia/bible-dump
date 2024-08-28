@@ -90,7 +90,7 @@ Every place upon which the sole of your foot shall tread, that have I given to y
 
 
 
-From the wilderness and this Lebanon to the great river Euphrates--all the land of the [^a]Hittites [Canaan]--and to the Great [Mediterranean] Sea on the west shall be your territory. 
+From the wilderness and this Lebanon to the great river Euphrates--all the land of the Hittites [Canaan]--and to the Great [Mediterranean] Sea on the west shall be your territory. 
 
 
 
@@ -174,7 +174,7 @@ Only you be strong and very courageous, that you may do according to all the law
 
 
 
-This Book of the Law shall not depart out of your mouth, but you shall meditate on it day and night, that you may observe _and_ do according to all that is written in it. For then you shall make your way prosperous, and then you shall deal wisely _and_ have good [^b]success. 
+This Book of the Law shall not depart out of your mouth, but you shall meditate on it day and night, that you may observe _and_ do according to all that is written in it. For then you shall make your way prosperous, and then you shall deal wisely _and_ have good success. 
 
 
 

@@ -55,13 +55,13 @@ Do not enter the path of the wicked, And do not walk in the way of evil.
 Avoid it, do not travel on it; Turn away from it and pass on. 
 
 ###### 16 
-For they do not sleep unless they have done evil; And their sleep is [^a]taken away unless they make _someone_ fall. 
+For they do not sleep unless they have done evil; And their sleep is taken away unless they make _someone_ fall. 
 
 ###### 17 
 For they eat the bread of wickedness, And drink the wine of violence. 
 
 ###### 18 
-But the path of the just _is_ like the shining [^b]sun, That shines ever brighter unto the perfect day. 
+But the path of the just _is_ like the shining sun, That shines ever brighter unto the perfect day. 
 
 ###### 19 
 The way of the wicked _is_ like darkness; They do not know what makes them stumble. 
@@ -79,7 +79,7 @@ For they _are_ life to those who find them, And health to all their flesh.
 Keep your heart with all diligence, For out of it _spring_ the issues of life. 
 
 ###### 24 
-Put away from you a [^c]deceitful mouth, And put perverse lips far from you. 
+Put away from you a deceitful mouth, And put perverse lips far from you. 
 
 ###### 25 
 Let your eyes look straight ahead, And your eyelids look right before you. 

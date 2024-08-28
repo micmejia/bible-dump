@@ -40,7 +40,7 @@ next: ['Mic 7']
 
 
 
-<i class="trans-change">Sinabi ni Micas:_ Pakinggan ninyo ang sasabihin ng Panginoon <i class="trans-change">sa inyo_: "Sige na, ilahad ninyo ang inyong kaso; iparinig ninyo sa mga bundok at mga burol[^a] ang inyong sasabihin. 
+<i class="trans-change">Sinabi ni Micas:_ Pakinggan ninyo ang sasabihin ng Panginoon <i class="trans-change">sa inyo_: "Sige na, ilahad ninyo ang inyong kaso; iparinig ninyo sa mga bundok at mga burol ang inyong sasabihin. 
 
 
 
@@ -172,7 +172,7 @@ Inilabas ko pa nga kayo sa Egipto kung saan inalipin kayo. At pinili ko sina Moi
 
 
 
-Mga mamamayan ko, alalahanin din ninyong sinugo ni Haring Balak ng Moab si Balaam na anak ni Beor para sumpain kayo. Pero pinagsalita ko si Balaam ng mga pagpapala sa inyo. <i class="trans-change">Alalahanin din ninyo kung paano ko kayo tinulungan nang maglakbay kayo_ mula sa Shitim hanggang sa Gilgal. <i class="trans-change">Alalahanin ninyo ang mga pangyayaring ito_ para malaman ninyo na iniligtas[^b] ko kayo." 
+Mga mamamayan ko, alalahanin din ninyong sinugo ni Haring Balak ng Moab si Balaam na anak ni Beor para sumpain kayo. Pero pinagsalita ko si Balaam ng mga pagpapala sa inyo. <i class="trans-change">Alalahanin din ninyo kung paano ko kayo tinulungan nang maglakbay kayo_ mula sa Shitim hanggang sa Gilgal. <i class="trans-change">Alalahanin ninyo ang mga pangyayaring ito_ para malaman ninyo na iniligtas ko kayo." 
 
 
 
@@ -205,7 +205,7 @@ Mga mamamayan ko, alalahanin din ninyong sinugo ni Haring Balak ng Moab si Balaa
 
 
 
-<i class="trans-change">Sumagot ang isang Israelita,_ "Ano ang ihahandog ko sa Panginoon, ang Dios sa langit, kapag sasamba ako sa kanya? Mag-aalay ba ako ng guya[^c] bilang handog na sinusunog? 
+<i class="trans-change">Sumagot ang isang Israelita,_ "Ano ang ihahandog ko sa Panginoon, ang Dios sa langit, kapag sasamba ako sa kanya? Mag-aalay ba ako ng guya bilang handog na sinusunog? 
 
 
 

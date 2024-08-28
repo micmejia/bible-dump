@@ -73,7 +73,7 @@ Sinabi ng Panginoon, "Umawit ka <i class="trans-change">Jerusalem, ikaw na paran
 
 
 
-Gumawa ka ng mas malaki at matibay na tirahan.[^a] Huwag mong liliitan. 
+Gumawa ka ng mas malaki at matibay na tirahan. Huwag mong liliitan. 
 
 
 
@@ -304,7 +304,7 @@ Dahil sa bugso ng galit ko sa iyo, iniwan kita sandali, pero dahil sa aking wala
 
 
 
-"Para sa akin, katulad ito noong panahon[^b] ni Noe nang nangako akong hindi ko na gugunawin ang mundo. Ngayon naman, nangangako akong hindi na ako magagalit o magpaparusa sa inyo. 
+"Para sa akin, katulad ito noong panahon ni Noe nang nangako akong hindi ko na gugunawin ang mundo. Ngayon naman, nangangako akong hindi na ako magagalit o magpaparusa sa inyo. 
 
 
 
@@ -436,7 +436,7 @@ Gagamitin ko rin ang mga <i class="trans-change">batong_ rubi sa iyong mga tore,
 
 
 
-Ako ang magtuturo sa iyong mga mamamayan,[^c] at magiging mabuti ang kanilang kalagayan. 
+Ako ang magtuturo sa iyong mga mamamayan, at magiging mabuti ang kanilang kalagayan. 
 
 
 

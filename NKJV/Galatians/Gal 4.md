@@ -19,16 +19,16 @@ but is under guardians and stewards until the time appointed by the father.
 Even so we, when we were children, were in bondage under the elements of the world. 
 
 ###### 4 
-But when the fullness of the time had come, God sent forth His Son, born[^a] of a woman, born under the law, 
+But when the fullness of the time had come, God sent forth His Son, born of a woman, born under the law, 
 
 ###### 5 
 to redeem those who were under the law, that we might receive the adoption as sons. 
 
 ###### 6 
-And because you are sons, God has sent forth the Spirit of His Son into your hearts, crying out, [^b]"Abba, Father!" 
+And because you are sons, God has sent forth the Spirit of His Son into your hearts, crying out, "Abba, Father!" 
 
 ###### 7 
-Therefore you are no longer a slave but a son, and if a son, then an heir [^c]of God [^d]through Christ. ## Fears for the Church 
+Therefore you are no longer a slave but a son, and if a son, then an heir of God through Christ. ## Fears for the Church 
 
 ###### 8 
 But then, indeed, when you did not know God, you served those which by nature are not gods. 
@@ -49,10 +49,10 @@ Brethren, I urge you to become like me, for I _became_ like you. You have not in
 You know that because of physical infirmity I preached the gospel to you at the first. 
 
 ###### 14 
-And my trial which was in my flesh you did not despise or reject, but you received me as an [^e]angel of God, _even_ as Christ Jesus. 
+And my trial which was in my flesh you did not despise or reject, but you received me as an angel of God, _even_ as Christ Jesus. 
 
 ###### 15 
-[^f]What then was the blessing you _enjoyed?_ For I bear you witness that, if possible, you would have plucked out your own eyes and given them to me. 
+What then was the blessing you _enjoyed?_ For I bear you witness that, if possible, you would have plucked out your own eyes and given them to me. 
 
 ###### 16 
 Have I therefore become your enemy because I tell you the truth? 
@@ -79,7 +79,7 @@ For it is written that Abraham had two sons: the one by a bondwoman, the other b
 But he _who was_ of the bondwoman was born according to the flesh, and he of the freewoman through promise, 
 
 ###### 24 
-which things are symbolic. For these are [^g]the two covenants: the one from Mount Sinai which gives birth to bondage, which is Hagar-- 
+which things are symbolic. For these are the two covenants: the one from Mount Sinai which gives birth to bondage, which is Hagar-- 
 
 ###### 25 
 for this Hagar is Mount Sinai in Arabia, and corresponds to Jerusalem which now is, and is in bondage with her children-- 

@@ -501,7 +501,7 @@ Kinukumusta rin kayo ni Lucas, ang minamahal nating doktor, at ni Demas.
 
 
 
-Ikumusta nʼyo ako sa mga kapatid sa Laodicea, ganoon din kay Nymfa at sa mga mananampalataya[^a] na nagtitipon sa bahay niya. 
+Ikumusta nʼyo ako sa mga kapatid sa Laodicea, ganoon din kay Nymfa at sa mga mananampalataya na nagtitipon sa bahay niya. 
 
 
 

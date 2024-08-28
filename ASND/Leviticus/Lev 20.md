@@ -667,7 +667,7 @@ Ang mga taong paaalisin ko sa lupaing iyon ay gumagawa ng mga kasamaang ito, at 
 
 
 
-At ayon na rin sa aking sinabi sa inyo, magiging inyo ang kanilang lupain. Ibibigay ko sa inyo ang lupaing iyon na maganda at sagana[^a] sa ani para maging pag-aari ninyo. Ako ang Panginoon na inyong Dios na humirang sa inyo mula sa mga tao. 
+At ayon na rin sa aking sinabi sa inyo, magiging inyo ang kanilang lupain. Ibibigay ko sa inyo ang lupaing iyon na maganda at sagana sa ani para maging pag-aari ninyo. Ako ang Panginoon na inyong Dios na humirang sa inyo mula sa mga tao. 
 
 
 

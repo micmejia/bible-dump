@@ -171,7 +171,7 @@ Nakaugalian na ng mga anak niyang lalaki na halinhinang maghanda sa kani-kanilan
 
 
 
-Tuwing matatapos ang handaan, naghahandog si Job para sa kanyang mga anak. Maaga siyang gumigising at nag-aalay ng handog na sinusunog[^a] para sa bawat anak niya, dahil naisip niyang baka nagkasala ang mga ito at sinadyang magsalita ng masama laban sa Dios. Ito ang palaging ginagawa ni Job. ## Ang Unang Pagsubok kay Job 
+Tuwing matatapos ang handaan, naghahandog si Job para sa kanyang mga anak. Maaga siyang gumigising at nag-aalay ng handog na sinusunog para sa bawat anak niya, dahil naisip niyang baka nagkasala ang mga ito at sinadyang magsalita ng masama laban sa Dios. Ito ang palaging ginagawa ni Job. ## Ang Unang Pagsubok kay Job 
 
 
 
@@ -204,7 +204,7 @@ Tuwing matatapos ang handaan, naghahandog si Job para sa kanyang mga anak. Maaga
 
 
 
-Isang araw, nagtipon ang mga anghel[^b] sa presensya ng Panginoon, at sumali sa kanila si Satanas. 
+Isang araw, nagtipon ang mga anghel sa presensya ng Panginoon, at sumali sa kanila si Satanas. 
 
 
 

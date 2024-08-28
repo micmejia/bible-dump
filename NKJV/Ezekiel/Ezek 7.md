@@ -34,13 +34,13 @@ Doom has come to you, you who dwell in the land; The time has come, A day of tro
 Now upon you I will soon pour out My fury, And spend My anger upon you; I will judge you according to your ways, And I will repay you for all your abominations. 
 
 ###### 9 
-'My eye will not spare, Nor will I have pity; I will [^a]repay you according to your ways, And your abominations will be in your midst. Then you shall know that I _am_ the Lord who strikes. 
+'My eye will not spare, Nor will I have pity; I will repay you according to your ways, And your abominations will be in your midst. Then you shall know that I _am_ the Lord who strikes. 
 
 ###### 10 
 'Behold, the day! Behold, it has come! Doom has gone out; The rod has blossomed, Pride has budded. 
 
 ###### 11 
-Violence has risen up into a rod of wickedness; None of them _shall remain,_ None of their multitude, None of [^b]them; Nor _shall there be_ wailing for them. 
+Violence has risen up into a rod of wickedness; None of them _shall remain,_ None of their multitude, None of them; Nor _shall there be_ wailing for them. 
 
 ###### 12 
 The time has come, The day draws near. 'Let not the buyer rejoice, Nor the seller mourn, For wrath _is_ on their whole multitude. 
@@ -82,7 +82,7 @@ I will turn My face from them, And they will defile My secret place; For robbers
 Therefore I will bring the worst of the Gentiles, And they will possess their houses; I will cause the pomp of the strong to cease, And their holy places shall be defiled. 
 
 ###### 25 
-[^c]Destruction comes; They will seek peace, but _there shall be_ none. 
+Destruction comes; They will seek peace, but _there shall be_ none. 
 
 ###### 26 
 Disaster will come upon disaster, And rumor will be upon rumor. Then they will seek a vision from a prophet; But the law will perish from the priest, And counsel from the elders. 

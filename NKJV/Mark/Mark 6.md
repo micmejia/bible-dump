@@ -40,7 +40,7 @@ but to wear sandals, and not to put on two tunics.
 Also He said to them, "In whatever place you enter a house, stay there till you depart from that place. 
 
 ###### 11 
-And [^a]whoever will not receive you nor hear you, when you depart from there, shake off the dust under your feet as a testimony against them. [^b]Assuredly, I say to you, it will be more tolerable for Sodom and Gomorrah in the day of judgment than for that city!" 
+And whoever will not receive you nor hear you, when you depart from there, shake off the dust under your feet as a testimony against them. Assuredly, I say to you, it will be more tolerable for Sodom and Gomorrah in the day of judgment than for that city!" 
 
 ###### 12 
 So they went out and preached that _people_ should repent. 
@@ -52,7 +52,7 @@ And they cast out many demons, and anointed with oil many who were sick, and hea
 Now King Herod heard _of Him,_ for His name had become well known. And he said, "John the Baptist is risen from the dead, and therefore these powers are at work in him." 
 
 ###### 15 
-Others said, "It is Elijah." And others said, "It is [^c]the Prophet, or like one of the prophets." 
+Others said, "It is Elijah." And others said, "It is the Prophet, or like one of the prophets." 
 
 ###### 16 
 But when Herod heard, he said, "This is John, whom I beheaded; he has been raised from the dead!" 
@@ -64,10 +64,10 @@ For Herod himself had sent and laid hold of John, and bound him in prison for th
 Because John had said to Herod, "It is not lawful for you to have your brother's wife." 
 
 ###### 19 
-Therefore Herodias [^d]held it against him and wanted to kill him, but she could not; 
+Therefore Herodias held it against him and wanted to kill him, but she could not; 
 
 ###### 20 
-for Herod feared John, knowing that he _was_ a just and holy man, and he protected him. And when he heard him, he [^e]did many things, and heard him gladly. 
+for Herod feared John, knowing that he _was_ a just and holy man, and he protected him. And when he heard him, he did many things, and heard him gladly. 
 
 ###### 21 
 Then an opportune day came when Herod on his birthday gave a feast for his nobles, the high officers, and the chief _men_ of Galilee. 
@@ -106,7 +106,7 @@ And He said to them, "Come aside by yourselves to a deserted place and rest a wh
 So they departed to a deserted place in the boat by themselves. 
 
 ###### 33 
-But [^f]the multitudes saw them departing, and many knew Him and ran there on foot from all the cities. They arrived before them and came together to Him. 
+But the multitudes saw them departing, and many knew Him and ran there on foot from all the cities. They arrived before them and came together to Him. 
 
 ###### 34 
 And Jesus, when He came out, saw a great multitude and was moved with compassion for them, because they were like sheep not having a shepherd. So He began to teach them many things. 
@@ -115,7 +115,7 @@ And Jesus, when He came out, saw a great multitude and was moved with compassion
 When the day was now far spent, His disciples came to Him and said, "This is a deserted place, and already the hour _is_ late. 
 
 ###### 36 
-Send them away, that they may go into the surrounding country and villages and buy themselves [^g]bread; for they have nothing to eat." 
+Send them away, that they may go into the surrounding country and villages and buy themselves bread; for they have nothing to eat." 
 
 ###### 37 
 But He answered and said to them, "You give them something to eat." And they said to Him, "Shall we go and buy two hundred denarii worth of bread and give them _something_ to eat?" 
@@ -139,10 +139,10 @@ So they all ate and were filled.
 And they took up twelve baskets full of fragments and of the fish. 
 
 ###### 44 
-Now those who had eaten the loaves were [^h]about five thousand men. ## Jesus Walks on the Sea 
+Now those who had eaten the loaves were about five thousand men. ## Jesus Walks on the Sea 
 
 ###### 45 
-Immediately He [^i]made His disciples get into the boat and go before Him to the other side, to Bethsaida, while He sent the multitude away. 
+Immediately He made His disciples get into the boat and go before Him to the other side, to Bethsaida, while He sent the multitude away. 
 
 ###### 46 
 And when He had sent them away, He departed to the mountain to pray. 
@@ -157,7 +157,7 @@ Then He saw them straining at rowing, for the wind was against them. Now about t
 And when they saw Him walking on the sea, they supposed it was a ghost, and cried out; 
 
 ###### 50 
-for they all saw Him and were troubled. But immediately He talked with them and said to them, "Be[^j] of good cheer! It is I; do not be afraid." 
+for they all saw Him and were troubled. But immediately He talked with them and said to them, "Be of good cheer! It is I; do not be afraid." 
 
 ###### 51 
 Then He went up into the boat to them, and the wind ceased. And they were greatly amazed in themselves beyond measure, and marveled. 
@@ -169,7 +169,7 @@ For they had not understood about the loaves, because their heart was hardened. 
 When they had crossed over, they came to the land of Gennesaret and anchored there. 
 
 ###### 54 
-And when they came out of the boat, immediately [^k]the people recognized Him, 
+And when they came out of the boat, immediately the people recognized Him, 
 
 ###### 55 
 ran through that whole surrounding region, and began to carry about on beds those who were sick to wherever they heard He was. 

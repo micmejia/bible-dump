@@ -280,7 +280,7 @@ For you will not go out with haste, nor will you go in flight [as was necessary 
 
 
 
-Behold, My [^a]Servant shall deal wisely _and_ shall prosper; He shall be exalted and extolled and shall stand very high. 
+Behold, My Servant shall deal wisely _and_ shall prosper; He shall be exalted and extolled and shall stand very high. 
 
 
 

@@ -40,7 +40,7 @@ next: ['Acts 3']
 
 
 
-Pagdating ng araw ng pista na <i class="trans-change">tinatawag na_ Pentecostes,[^a] nagtipon ang lahat ng mananampalataya sa isang bahay. 
+Pagdating ng araw ng pista na <i class="trans-change">tinatawag na_ Pentecostes, nagtipon ang lahat ng mananampalataya sa isang bahay. 
 
 
 
@@ -700,7 +700,7 @@ Magdidilim ang araw, at ang buwan ay pupula katulad ng dugo. Mangyayari ito bago
 
 
 
-Ngunit ang sinumang tatawag sa Panginoon ay maliligtas <i class="trans-change">sa parusang darating_." ' "[^b] 
+Ngunit ang sinumang tatawag sa Panginoon ay maliligtas <i class="trans-change">sa parusang darating_." ' " 
 
 
 
@@ -898,7 +898,7 @@ Kaya masaya ako, at hindi mapigil ang aking pagpupuri sa Dios. At kahit mamatay 
 
 
 
-Sapagkat alam kong hindi mo ako pababayaan doon sa libingan.[^c] Hindi mo rin hahayaang mabulok ang iyong tapat na lingkod. 
+Sapagkat alam kong hindi mo ako pababayaan doon sa libingan. Hindi mo rin hahayaang mabulok ang iyong tapat na lingkod. 
 
 
 
@@ -931,7 +931,7 @@ Sapagkat alam kong hindi mo ako pababayaan doon sa libingan.[^c] Hindi mo rin ha
 
 
 
-Itinuro mo sa akin ang daan patungo sa buhay, at dahil sa palagi kitang kasama, masayang-masaya ako.'[^d] 
+Itinuro mo sa akin ang daan patungo sa buhay, at dahil sa palagi kitang kasama, masayang-masaya ako.' 
 
 
 
@@ -1096,7 +1096,7 @@ Ang kanyang tinutukoy ay walang iba kundi si Jesus na muling binuhay ng Dios, at
 
 
 
-Itinaas siya sa kanan ng Dios.[^e] At ibinigay sa kanya ng Ama ang Banal na Espiritung ipinangako sa kanya. Ang Banal na Espiritung ito ay ipinadala naman ni Jesus sa amin, <i class="trans-change">at ang kanyang kapangyarihan_ ang siyang nakikita ninyo at naririnig ngayon. <sup class="versenum">34-35</sup>Hindi si David ang itinaas sa langit, pero sinabi niya, 'Nagsalita ang Panginoon sa aking Panginoon[^f]: Umupo ka rito sa kanan ko hanggang sa mapasuko ko sa iyo ang iyong mga kaaway.' 
+Itinaas siya sa kanan ng Dios. At ibinigay sa kanya ng Ama ang Banal na Espiritung ipinangako sa kanya. Ang Banal na Espiritung ito ay ipinadala naman ni Jesus sa amin, <i class="trans-change">at ang kanyang kapangyarihan_ ang siyang nakikita ninyo at naririnig ngayon. <sup class="versenum">34-35</sup>Hindi si David ang itinaas sa langit, pero sinabi niya, 'Nagsalita ang Panginoon sa aking Panginoon: Umupo ka rito sa kanan ko hanggang sa mapasuko ko sa iyo ang iyong mga kaaway.' 
 
 
 
@@ -1195,7 +1195,7 @@ Nang marinig iyon ng mga tao, tumagos ito sa kanilang puso. Kaya nagtanong sila 
 
 
 
-Sumagot si Pedro sa kanila, "Magsisi ang bawat isa sa inyong mga kasalanan at magpabautismo sa pangalan ni Jesu-Cristo,[^g] at mapapatawad ang inyong mga kasalanan at matatanggap ninyo ang regalo ng Dios na walang iba kundi ang Banal na Espiritu. 
+Sumagot si Pedro sa kanila, "Magsisi ang bawat isa sa inyong mga kasalanan at magpabautismo sa pangalan ni Jesu-Cristo, at mapapatawad ang inyong mga kasalanan at matatanggap ninyo ang regalo ng Dios na walang iba kundi ang Banal na Espiritu. 
 
 
 

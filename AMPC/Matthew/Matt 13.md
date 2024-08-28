@@ -196,7 +196,7 @@ Other seeds fell on good soil, and yielded grain--some a hundred times as much a
 
 
 
-He who has ears [to hear], let him be listening _and_ let him [^a]consider _and_ [^b]perceive _and_ comprehend by hearing. 
+He who has ears [to hear], let him be listening _and_ let him consider _and_ perceive _and_ comprehend by hearing. 
 
 
 
@@ -259,7 +259,7 @@ And He replied to them, To you it has been given to know the secrets _and_ myste
 
 
 
-For whoever has [spiritual knowledge], to him will more be given _and_ he will [^c]be furnished richly so that he will have abundance; but from him who has not, even what he has will be taken away. 
+For whoever has [spiritual knowledge], to him will more be given _and_ he will be furnished richly so that he will have abundance; but from him who has not, even what he has will be taken away. 
 
 
 
@@ -280,7 +280,7 @@ For whoever has [spiritual knowledge], to him will more be given _and_ he will [
 
 
 
-This is the reason that I speak to them in parables: because [^d]having the power of seeing, they do not see; and [^e]having the power of hearing, they do not hear, nor do they grasp _and_ understand. 
+This is the reason that I speak to them in parables: because having the power of seeing, they do not see; and having the power of hearing, they do not hear, nor do they grasp _and_ understand. 
 
 
 
@@ -301,7 +301,7 @@ This is the reason that I speak to them in parables: because [^d]having the powe
 
 
 
-In them indeed is [^f]the process of fulfillment of the prophecy of Isaiah, which says: You shall indeed hear _and_ hear but never grasp _and_ understand; and you shall indeed look _and_ look but never see _and_ perceive. 
+In them indeed is the process of fulfillment of the prophecy of Isaiah, which says: You shall indeed hear _and_ hear but never grasp _and_ understand; and you shall indeed look _and_ look but never see _and_ perceive. 
 
 
 
@@ -343,7 +343,7 @@ For this nation's heart has grown gross (fat and dull), and their ears heavy _an
 
 
 
-But blessed (happy, fortunate, and [^g]to be envied) are your eyes because they do see, and your ears because they do hear. 
+But blessed (happy, fortunate, and to be envied) are your eyes because they do see, and your ears because they do hear. 
 
 
 
@@ -406,7 +406,7 @@ Listen then to the [meaning of the] parable of the sower:
 
 
 
-[^h]While anyone is hearing the Word of the kingdom and does not grasp _and_ comprehend it, the evil one comes and snatches away what was sown in his heart. This is what was sown along the roadside. 
+While anyone is hearing the Word of the kingdom and does not grasp _and_ comprehend it, the evil one comes and snatches away what was sown in his heart. This is what was sown along the roadside. 
 
 
 
@@ -448,7 +448,7 @@ As for what was sown on thin (rocky) soil, this is he who hears the Word and at 
 
 
 
-Yet it has no real root in him, but is temporary (inconstant, [^i]lasts but a little while); and when affliction _or_ trouble _or_ persecution comes on account of the Word, at once he is caused to stumble [he is repelled and [^j]begins to distrust and desert Him Whom he ought to trust and obey] _and_ he falls away. 
+Yet it has no real root in him, but is temporary (inconstant, lasts but a little while); and when affliction _or_ trouble _or_ persecution comes on account of the Word, at once he is caused to stumble [he is repelled and begins to distrust and desert Him Whom he ought to trust and obey] _and_ he falls away. 
 
 
 
@@ -700,7 +700,7 @@ Of all the seeds it is the smallest, but when it has grown it is the largest of 
 
 
 
-He told them another parable: The kingdom of heaven is like leaven ([^k]sour dough) which a woman took and covered over in three measures of meal _or_ flour till all of it was leavened. 
+He told them another parable: The kingdom of heaven is like leaven (sour dough) which a woman took and covered over in three measures of meal _or_ flour till all of it was leavened. 
 
 
 
@@ -721,7 +721,7 @@ He told them another parable: The kingdom of heaven is like leaven ([^k]sour dou
 
 
 
-These things [^l]all taken together Jesus said to the crowds in parables; indeed, without a parable He said nothing to them. 
+These things all taken together Jesus said to the crowds in parables; indeed, without a parable He said nothing to them. 
 
 
 
@@ -868,7 +868,7 @@ Just as the darnel (weeds resembling wheat) is gathered and burned with fire, so
 
 
 
-The Son of Man will send forth His angels, and they will gather out of His kingdom all causes of offense [[^m]persons by whom others are drawn into error or sin] and all who do iniquity _and_ act wickedly, 
+The Son of Man will send forth His angels, and they will gather out of His kingdom all causes of offense [persons by whom others are drawn into error or sin] and all who do iniquity _and_ act wickedly, 
 
 
 
@@ -910,7 +910,7 @@ And will cast them into the furnace of fire; there will be weeping _and_ wailing
 
 
 
-Then will the righteous (those who are upright and in right standing with God) shine forth like the sun in the kingdom of their Father. Let him who has ears [to hear] be listening, _and_ let him [^n]consider _and_ perceive _and_ understand by hearing. 
+Then will the righteous (those who are upright and in right standing with God) shine forth like the sun in the kingdom of their Father. Let him who has ears [to hear] be listening, _and_ let him consider _and_ perceive _and_ understand by hearing. 
 
 
 
@@ -931,7 +931,7 @@ Then will the righteous (those who are upright and in right standing with God) s
 
 
 
-The kingdom of heaven is like [^o]something precious buried in a field, which a man found and hid again; then in his joy he goes and sells all he has and buys that field. 
+The kingdom of heaven is like something precious buried in a field, which a man found and hid again; then in his joy he goes and sells all he has and buys that field. 
 
 
 
@@ -952,7 +952,7 @@ The kingdom of heaven is like [^o]something precious buried in a field, which a 
 
 
 
-Again the kingdom of heaven is like a man who is a dealer in search of fine _and_ [^p]precious pearls, 
+Again the kingdom of heaven is like a man who is a dealer in search of fine _and_ precious pearls, 
 
 
 
@@ -994,7 +994,7 @@ Who, on finding a single pearl of great price, went and sold all he had and boug
 
 
 
-Again, the kingdom of heaven is like a [^q]dragnet which was cast into the sea and gathered in fish of every sort. 
+Again, the kingdom of heaven is like a dragnet which was cast into the sea and gathered in fish of every sort. 
 
 
 
@@ -1078,7 +1078,7 @@ And cast them [the wicked] into the furnace of fire; there will be weeping _and_
 
 
 
-Have you understood [^r]all these things [parables] taken together? They said to Him, Yes, _Lord_. 
+Have you understood all these things [parables] taken together? They said to Him, Yes, _Lord_. 
 
 
 
@@ -1099,7 +1099,7 @@ Have you understood [^r]all these things [parables] taken together? They said to
 
 
 
-He said to them, Therefore every [^s]teacher _and_ interpreter of the Sacred Writings who has been instructed about _and_ trained for the kingdom of heaven and has [^t]become a disciple is like a householder who brings forth out of his storehouse treasure that is new and [treasure that is] old [the fresh as well as the familiar]. 
+He said to them, Therefore every teacher _and_ interpreter of the Sacred Writings who has been instructed about _and_ trained for the kingdom of heaven and has become a disciple is like a householder who brings forth out of his storehouse treasure that is new and [treasure that is] old [the fresh as well as the familiar]. 
 
 
 
@@ -1141,7 +1141,7 @@ When Jesus had finished these parables (these comparisons), He left there.
 
 
 
-And coming to His own country [Nazareth], He taught in their synagogue so that they were amazed with bewildered wonder, and said, Where did this [^u]Man get this wisdom and these miraculous powers? 
+And coming to His own country [Nazareth], He taught in their synagogue so that they were amazed with bewildered wonder, and said, Where did this Man get this wisdom and these miraculous powers? 
 
 
 
@@ -1225,4 +1225,4 @@ And they took offense at Him [they were repelled and hindered from acknowledging
 
 
 
-And He did not do many works of power there, because of their unbelief (their lack of faith [^v]in the divine mission of Jesus).
+And He did not do many works of power there, because of their unbelief (their lack of faith in the divine mission of Jesus).

@@ -238,7 +238,7 @@ Pumunta ang ama ni Shekem na si Hamor kay Jacob para makipag-usap.
 
 
 
-Nang mabalitaan ng mga anak ni Jacob ang nangyari, umuwi sila agad mula sa bukid. Sumama ang loob nila at labis na nagalit kay Shekem dahil sa ginawa niyang hindi nararapat, na nagdala ng kahihiyan sa pamilya ni Jacob.[^a] 
+Nang mabalitaan ng mga anak ni Jacob ang nangyari, umuwi sila agad mula sa bukid. Sumama ang loob nila at labis na nagalit kay Shekem dahil sa ginawa niyang hindi nararapat, na nagdala ng kahihiyan sa pamilya ni Jacob. 
 
 
 

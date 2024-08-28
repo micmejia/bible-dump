@@ -73,7 +73,7 @@ Noong taon ng pagkamatay ni Haring Uzia, nakita ko ang Panginoon na nakaupo sa n
 
 
 
-May mga makalangit na nilalang[^a] sa gawing ulo niya. Ang bawat isa sa kanila ay may anim na pakpak: Ang dalawang pakpak ay nakatakip sa kanilang mukha, ang dalawa ay nakatakip sa kanilang paa, at ang dalawa ay ginagamit nila sa paglipad. 
+May mga makalangit na nilalang sa gawing ulo niya. Ang bawat isa sa kanila ay may anim na pakpak: Ang dalawang pakpak ay nakatakip sa kanilang mukha, ang dalawa ay nakatakip sa kanilang paa, at ang dalawa ay ginagamit nila sa paglipad. 
 
 
 

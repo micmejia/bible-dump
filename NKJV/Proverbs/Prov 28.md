@@ -16,7 +16,7 @@ The wicked flee when no one pursues, But the righteous are bold as a lion.
 Because of the transgression of a land, many _are_ its princes; But by a man of understanding _and_ knowledge Right will be prolonged. 
 
 ###### 3 
-A poor man who oppresses the poor _Is like_ a driving rain [^a]which leaves no food. 
+A poor man who oppresses the poor _Is like_ a driving rain which leaves no food. 
 
 ###### 4 
 Those who forsake the law praise the wicked, But such as keep the law contend with them. 
@@ -43,7 +43,7 @@ Whoever causes the upright to go astray in an evil way, He himself will fall int
 The rich man _is_ wise in his own eyes, But the poor who has understanding searches him out. 
 
 ###### 12 
-When the righteous rejoice, _there is_ great glory; But when the wicked arise, men [^b]hide themselves. 
+When the righteous rejoice, _there is_ great glory; But when the wicked arise, men hide themselves. 
 
 ###### 13 
 He who covers his sins will not prosper, But whoever confesses and forsakes _them_ will have mercy. 
@@ -61,7 +61,7 @@ A ruler who lacks understanding _is_ a great oppressor, _But_ he who hates covet
 A man burdened with bloodshed will flee into a pit; Let no one help him. 
 
 ###### 18 
-Whoever walks blamelessly will be [^c]saved, But _he who is_ perverse _in his_ ways will suddenly fall. 
+Whoever walks blamelessly will be saved, But _he who is_ perverse _in his_ ways will suddenly fall. 
 
 ###### 19 
 He who tills his land will have plenty of bread, But he who follows frivolity will have poverty enough! 
@@ -70,7 +70,7 @@ He who tills his land will have plenty of bread, But he who follows frivolity wi
 A faithful man will abound with blessings, But he who hastens to be rich will not go unpunished. 
 
 ###### 21 
-To [^d]show partiality _is_ not good, Because for a piece of bread a man will transgress. 
+To show partiality _is_ not good, Because for a piece of bread a man will transgress. 
 
 ###### 22 
 A man with an evil eye hastens after riches, And does not consider that poverty will come upon him. 

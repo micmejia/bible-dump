@@ -40,7 +40,7 @@ next: ['Zech 10']
 
 
 
-Ito ang mensahe ng Panginoon: Sinabi ng Panginoon na parurusahan niya ang mga lungsod ng Hadrac at Damascus, dahil ang lahat ay dapat sa kanya, lalo na ang mga lahi ng Israel.[^a] 
+Ito ang mensahe ng Panginoon: Sinabi ng Panginoon na parurusahan niya ang mga lungsod ng Hadrac at Damascus, dahil ang lahat ay dapat sa kanya, lalo na ang mga lahi ng Israel. 
 
 
 
@@ -238,7 +238,7 @@ Ang Ashdod ay titirhan ng ibaʼt ibang lahi. Lilipulin ng Panginoon ang ipinagma
 
 
 
-Hindi na sila kakain ng karneng may dugo[^b] o ng mga pagkaing ipinagbabawal na kainin. Ang matitira sa kanila ay ibibilang ng ating Dios na kanyang mga mamamayan na parang isang angkan mula sa Juda. Ang mga taga-Ekron ay magiging kabilang sa mga mamamayan ng Panginoon katulad ng mga Jebuseo.[^c] 
+Hindi na sila kakain ng karneng may dugo o ng mga pagkaing ipinagbabawal na kainin. Ang matitira sa kanila ay ibibilang ng ating Dios na kanyang mga mamamayan na parang isang angkan mula sa Juda. Ang mga taga-Ekron ay magiging kabilang sa mga mamamayan ng Panginoon katulad ng mga Jebuseo. 
 
 
 
@@ -271,7 +271,7 @@ Hindi na sila kakain ng karneng may dugo[^b] o ng mga pagkaing ipinagbabawal na 
 
 
 
-Iingatan ng Panginoon ang kanyang templo[^d] laban sa mga sumasalakay. Wala nang mang-aapi sa mga mamamayan niya dahil binabantayan na niya sila. ## Ang Darating na Hari ng Jerusalem 
+Iingatan ng Panginoon ang kanyang templo laban sa mga sumasalakay. Wala nang mang-aapi sa mga mamamayan niya dahil binabantayan na niya sila. ## Ang Darating na Hari ng Jerusalem 
 
 
 
@@ -337,7 +337,7 @@ Iingatan ng Panginoon ang kanyang templo[^d] laban sa mga sumasalakay. Wala nang
 
 
 
-Ipaaalis niya ang mga karwahe at mga kabayong pandigma sa Israel at sa Juda.[^e] Babaliin ang mga panang ginagamit sa pandigma. Ang haring darating ay magdadala ng kapayapaan sa mga bansa. Maghahari siya mula sa isang dagat hanggang sa isa pang dagat,[^f] at mula sa Ilog <i class="trans-change">ng Eufrates_ hanggang sa dulo ng mundo."[^g] ## Palalayain ng Dios ang Nabihag na mga Taga-Israel 
+Ipaaalis niya ang mga karwahe at mga kabayong pandigma sa Israel at sa Juda. Babaliin ang mga panang ginagamit sa pandigma. Ang haring darating ay magdadala ng kapayapaan sa mga bansa. Maghahari siya mula sa isang dagat hanggang sa isa pang dagat, at mula sa Ilog <i class="trans-change">ng Eufrates_ hanggang sa dulo ng mundo." ## Palalayain ng Dios ang Nabihag na mga Taga-Israel 
 
 
 

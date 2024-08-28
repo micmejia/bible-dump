@@ -19,7 +19,7 @@ except for his relatives who are nearest to him: his mother, his father, his son
 also his virgin sister who is near to him, who has had no husband, for her he may defile himself. 
 
 ###### 4 
-_Otherwise_ he shall not defile himself, _being_ a [^a]chief man among his people, to profane himself. 
+_Otherwise_ he shall not defile himself, _being_ a chief man among his people, to profane himself. 
 
 ###### 5 
 'They shall not make any bald _place_ on their heads, nor shall they shave the edges of their beards nor make any cuttings in their flesh. 
@@ -28,16 +28,16 @@ _Otherwise_ he shall not defile himself, _being_ a [^a]chief man among his peopl
 They shall be holy to their God and not profane the name of their God, for they offer the offerings of the Lord made by fire, _and_ the bread of their God; therefore they shall be holy. 
 
 ###### 7 
-They shall not take a wife _who is_ a harlot or a defiled woman, nor shall they take a woman divorced from her husband; for [^b]_the priest_ is holy to his God. 
+They shall not take a wife _who is_ a harlot or a defiled woman, nor shall they take a woman divorced from her husband; for _the priest_ is holy to his God. 
 
 ###### 8 
-Therefore you shall [^c]consecrate him, for he offers the bread of your God. He shall be holy to you, for I the Lord, who sanctify you, _am_ holy. 
+Therefore you shall consecrate him, for he offers the bread of your God. He shall be holy to you, for I the Lord, who sanctify you, _am_ holy. 
 
 ###### 9 
 The daughter of any priest, if she profanes herself by playing the harlot, she profanes her father. She shall be burned with fire. 
 
 ###### 10 
-'_He who is_ the high priest among his brethren, on whose head the anointing oil was poured and who is consecrated to wear the garments, shall not uncover[^d] his head nor tear his clothes; 
+'_He who is_ the high priest among his brethren, on whose head the anointing oil was poured and who is consecrated to wear the garments, shall not uncover his head nor tear his clothes; 
 
 ###### 11 
 nor shall he go near any dead body, nor defile himself for his father or his mother; 

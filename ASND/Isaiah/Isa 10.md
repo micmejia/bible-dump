@@ -700,7 +700,7 @@ Parurusahan ko sila katulad ng ginawa ko sa mga taga-Midian sa Bato ng Oreb at s
 
 
 
-Sa araw na iyon, palalayain ko kayo mula sa kapangyarihan ng Asiria. Para kayong natanggalan ng mabigat na pasanin sa mga balikat nʼyo at ng pamatok na nagpapabigat sa leeg ninyo. Lalaya kayo mula sa kapangyarihan nila dahil magiging makapangyarihan kayo."[^a] ## Sumalakay ang Asiria 
+Sa araw na iyon, palalayain ko kayo mula sa kapangyarihan ng Asiria. Para kayong natanggalan ng mabigat na pasanin sa mga balikat nʼyo at ng pamatok na nagpapabigat sa leeg ninyo. Lalaya kayo mula sa kapangyarihan nila dahil magiging makapangyarihan kayo." ## Sumalakay ang Asiria 
 
 
 

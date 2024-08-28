@@ -105,7 +105,7 @@ Alalahanin mo ang lumikha sa iyo habang bata ka pa at bago dumating ang panahon 
 
 
 
-Darating ang araw na manginginig ang iyong mga bisig[^a] at manghihina ang iyong mga tuhod.[^b] Hindi ka na makakanguyang mabuti dahil iilan na lang ang iyong ngipin.[^c] At lalabo na ang iyong paningin.[^d] 
+Darating ang araw na manginginig ang iyong mga bisig at manghihina ang iyong mga tuhod. Hindi ka na makakanguyang mabuti dahil iilan na lang ang iyong ngipin. At lalabo na ang iyong paningin. 
 
 
 
@@ -138,7 +138,7 @@ Darating ang araw na manginginig ang iyong mga bisig[^a] at manghihina ang iyong
 
 
 
-Ang tainga[^e] moʼy hindi na halos makarinig, kahit ang ingay ng gilingan o huni ng mga ibon o mga awitin <i class="trans-change">ay hindi na marinig_. 
+Ang tainga moʼy hindi na halos makarinig, kahit ang ingay ng gilingan o huni ng mga ibon o mga awitin <i class="trans-change">ay hindi na marinig_. 
 
 
 
@@ -237,7 +237,7 @@ Matatakot ka ng umakyat sa matataas na lugar o lumakad sa lansangan ng nag-iisa.
 
 
 
-Kung magkagayon, babalik ka sa lupa kung saan ka nagmula at ang espiritu[^f] moʼy babalik sa Dios na siyang nagbigay nito. 
+Kung magkagayon, babalik ka sa lupa kung saan ka nagmula at ang espiritu moʼy babalik sa Dios na siyang nagbigay nito. 
 
 
 
@@ -270,7 +270,7 @@ Kung magkagayon, babalik ka sa lupa kung saan ka nagmula at ang espiritu[^f] mo�
 
 
 
-Sabi ng mangangaral,[^g] "Walang kabuluhan! Tunay na walang kabuluhan ang lahat!" ## Paggalang at Pagsunod sa Dios 
+Sabi ng mangangaral, "Walang kabuluhan! Tunay na walang kabuluhan ang lahat!" ## Paggalang at Pagsunod sa Dios 
 
 
 
@@ -435,7 +435,7 @@ Anak, mag-ingat ka sa isa pang bagay na ito: Ang pagsusulat ng aklat ay walang k
 
 
 
-Ngayong nabasa[^h] mo na ang lahat ng ito, ito ang aking huling payo: Matakot ka sa Dios at sundin mo ang kanyang mga utos, dahil ito ang <i class="trans-change">tungkulin_ ng bawat tao. 
+Ngayong nabasa mo na ang lahat ng ito, ito ang aking huling payo: Matakot ka sa Dios at sundin mo ang kanyang mga utos, dahil ito ang <i class="trans-change">tungkulin_ ng bawat tao. 
 
 
 

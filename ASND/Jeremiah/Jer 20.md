@@ -106,7 +106,7 @@ pinabugbog niya ito at ipinabilanggo sa may pintuan ng templo ng Panginoon na ti
 
 
 
-Kinaumagahan, pinalabas ni Pashur si Jeremias. Sinabi ni Jeremias sa kanya, "Pashur, pinalitan na ng Panginoon ang pangalan mo. Tatawagin ka na ngayong Magor Misabib.[^a] 
+Kinaumagahan, pinalabas ni Pashur si Jeremias. Sinabi ni Jeremias sa kanya, "Pashur, pinalitan na ng Panginoon ang pangalan mo. Tatawagin ka na ngayong Magor Misabib. 
 
 
 

@@ -46,10 +46,10 @@ Then it came to pass, when all the people had completely crossed over, that the 
 And the men of Reuben, the men of Gad, and half the tribe of Manasseh crossed over armed before the children of Israel, as Moses had spoken to them. 
 
 ###### 13 
-About forty thousand [^a]prepared for war crossed over before the Lord for battle, to the plains of Jericho. 
+About forty thousand prepared for war crossed over before the Lord for battle, to the plains of Jericho. 
 
 ###### 14 
-On that day the Lord exalted[^b] Joshua in the sight of all Israel; and they feared him, as they had feared Moses, all the days of his life. 
+On that day the Lord exalted Joshua in the sight of all Israel; and they feared him, as they had feared Moses, all the days of his life. 
 
 ###### 15 
 Then the Lord spoke to Joshua, saying, 
@@ -79,4 +79,4 @@ then you shall let your children know, saying, 'Israel crossed over this Jordan 
 for the Lord your God dried up the waters of the Jordan before you until you had crossed over, as the Lord your God did to the Red Sea, which He dried up before us until we had crossed over, 
 
 ###### 24 
-that all the peoples of the earth may know the hand of the Lord, that it _is_ mighty, that you may fear the Lord your God [^c]forever."
+that all the peoples of the earth may know the hand of the Lord, that it _is_ mighty, that you may fear the Lord your God forever."

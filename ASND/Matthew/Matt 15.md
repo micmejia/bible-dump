@@ -139,7 +139,7 @@ Sumagot si Jesus sa kanila, "At kayo, bakit ninyo nilalabag ang utos ng Dios dah
 
 
 
-Halimbawa, sinabi ng Dios, 'Igalang ninyo ang inyong mga magulang,'[^a] at 'Ang lumapastangan sa kanyang mga magulang ay dapat patayin.'[^b] 
+Halimbawa, sinabi ng Dios, 'Igalang ninyo ang inyong mga magulang,' at 'Ang lumapastangan sa kanyang mga magulang ay dapat patayin.' 
 
 
 
@@ -304,7 +304,7 @@ Mga pakitang-tao! Tamang-tama ang sinabi <i class="trans-change">ng Dios_ tungko
 
 
 
-Walang kabuluhan ang pagsamba nila sa akin, sapagkat ang mga itinuturo nila ay mga utos lang ng tao.' "[^c] ## Ang Nagpaparumi sa Tao 
+Walang kabuluhan ang pagsamba nila sa akin, sapagkat ang mga itinuturo nila ay mga utos lang ng tao.' " ## Ang Nagpaparumi sa Tao 
 
 
 
@@ -733,7 +733,7 @@ Umalis si Jesus mula roon at pumunta sa mga lugar na malapit sa Tyre at Sidon.
 
 
 
-May isang Cananea na naninirahan doon. Lumapit siya kay Jesus at nagmakaawa. Sinabi niya, "Panginoon, Anak ni David,[^d] maawa kayo sa akin. Ang anak kong babae ay sinasaniban at lubhang pinahihirapan ng masamang espiritu." 
+May isang Cananea na naninirahan doon. Lumapit siya kay Jesus at nagmakaawa. Sinabi niya, "Panginoon, Anak ni David, maawa kayo sa akin. Ang anak kong babae ay sinasaniban at lubhang pinahihirapan ng masamang espiritu." 
 
 
 

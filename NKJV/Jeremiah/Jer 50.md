@@ -13,10 +13,10 @@ next: ['Jer 51']
 The word that the Lord spoke against Babylon _and_ against the land of the Chaldeans by Jeremiah the prophet. 
 
 ###### 2 
-"Declare among the nations, Proclaim, and [^a]set up a standard; Proclaim--do not conceal _it_-- Say, 'Babylon is taken, Bel is shamed. [^b]Merodach is broken in pieces; Her idols are humiliated, Her images are broken in pieces.' 
+"Declare among the nations, Proclaim, and set up a standard; Proclaim--do not conceal _it_-- Say, 'Babylon is taken, Bel is shamed. Merodach is broken in pieces; Her idols are humiliated, Her images are broken in pieces.' 
 
 ###### 3 
-For out of the north a nation comes up against her, Which shall make her land desolate, And no one shall dwell therein. They shall [^c]move, they shall depart, Both man and beast. 
+For out of the north a nation comes up against her, Which shall make her land desolate, And no one shall dwell therein. They shall move, they shall depart, Both man and beast. 
 
 ###### 4 
 "In those days and in that time," says the Lord, "The children of Israel shall come, They and the children of Judah together; With continual weeping they shall come, And seek the Lord their God. 
@@ -31,16 +31,16 @@ They shall ask the way to Zion, With their faces toward it, _saying,_ 'Come and 
 All who found them have devoured them; And their adversaries said, 'We have not offended, Because they have sinned against the Lord, the habitation of justice, The Lord, the hope of their fathers.' 
 
 ###### 8 
-"Move from the midst of Babylon, Go out of the land of the Chaldeans; And be like the [^d]rams before the flocks. 
+"Move from the midst of Babylon, Go out of the land of the Chaldeans; And be like the rams before the flocks. 
 
 ###### 9 
-For behold, I will raise and cause to come up against Babylon An assembly of great nations from the north country, And they shall array themselves against her; From there she shall be captured. Their arrows _shall be_ like _those_ of [^e]an expert warrior; None shall return in vain. 
+For behold, I will raise and cause to come up against Babylon An assembly of great nations from the north country, And they shall array themselves against her; From there she shall be captured. Their arrows _shall be_ like _those_ of an expert warrior; None shall return in vain. 
 
 ###### 10 
 And Chaldea shall become plunder; All who plunder her shall be satisfied," says the Lord. 
 
 ###### 11 
-"Because you were glad, because you rejoiced, You destroyers of My heritage, Because you have grown fat like a heifer threshing grain, And you [^f]bellow like bulls, 
+"Because you were glad, because you rejoiced, You destroyers of My heritage, Because you have grown fat like a heifer threshing grain, And you bellow like bulls, 
 
 ###### 12 
 Your mother shall be deeply ashamed; She who bore you shall be ashamed. Behold, the least of the nations _shall be_ a wilderness, A dry land and a desert. 
@@ -70,7 +70,7 @@ But I will bring back Israel to his home, And he shall feed on Carmel and Bashan
 In those days and in that time," says the Lord, "The iniquity of Israel shall be sought, but _there shall be_ none; And the sins of Judah, but they shall not be found; For I will pardon those whom I preserve. 
 
 ###### 21 
-"Go up against the land of Merathaim, against it, And against the inhabitants of Pekod. [^g]Waste and utterly destroy them," says the Lord, "And do according to all that I have commanded you. 
+"Go up against the land of Merathaim, against it, And against the inhabitants of Pekod. Waste and utterly destroy them," says the Lord, "And do according to all that I have commanded you. 
 
 ###### 22 
 A sound of battle _is_ in the land, And of great destruction. 
@@ -94,13 +94,13 @@ Slay all her bulls, Let them go down to the slaughter. Woe to them! For their da
 The voice of those who flee and escape from the land of Babylon Declares in Zion the vengeance of the Lord our God, The vengeance of His temple. 
 
 ###### 29 
-"Call together the archers against Babylon. All you who bend the bow, encamp against it all around; Let none of them [^h]escape. Repay her according to her work; According to all she has done, do to her; For she has been proud against the Lord, Against the Holy One of Israel. 
+"Call together the archers against Babylon. All you who bend the bow, encamp against it all around; Let none of them escape. Repay her according to her work; According to all she has done, do to her; For she has been proud against the Lord, Against the Holy One of Israel. 
 
 ###### 30 
 Therefore her young men shall fall in the streets, And all her men of war shall be cut off in that day," says the Lord. 
 
 ###### 31 
-"Behold, I _am_ against you, O most haughty one!" says the Lord God of hosts; "For your day has come, [^i]The time _that_ I will punish you. 
+"Behold, I _am_ against you, O most haughty one!" says the Lord God of hosts; "For your day has come, The time _that_ I will punish you. 
 
 ###### 32 
 The most proud shall stumble and fall, And no one will raise him up; I will kindle a fire in his cities, And it will devour all around him." 
@@ -121,7 +121,7 @@ A sword _is_ against the soothsayers, and they will be fools. A sword _is_ again
 A sword _is_ against their horses, Against their chariots, And against all the mixed peoples who _are_ in her midst; And they will become like women. A sword _is_ against her treasures, and they will be robbed. 
 
 ###### 38 
-A [^j]drought _is_ against her waters, and they will be dried up. For it _is_ the land of carved images, And they are insane with _their_ idols. 
+A drought _is_ against her waters, and they will be dried up. For it _is_ the land of carved images, And they are insane with _their_ idols. 
 
 ###### 39 
 "Therefore the wild desert beasts shall dwell _there_ with the jackals, And the ostriches shall dwell in it. It shall be inhabited no more forever, Nor shall it be dwelt in from generation to generation. 
@@ -139,7 +139,7 @@ They shall hold the bow and the lance; They _are_ cruel and shall not show mercy
 "The king of Babylon has heard the report about them, And his hands grow feeble; Anguish has taken hold of him, Pangs as of a woman in childbirth. 
 
 ###### 44 
-"Behold, he shall come up like a lion from the [^k]floodplain of the Jordan Against the dwelling place of the strong; But I will make them suddenly run away from her. And who _is_ a chosen _man that_ I may appoint over her? For who _is_ like Me? Who will arraign Me? And who _is_ that shepherd Who will withstand Me?" 
+"Behold, he shall come up like a lion from the floodplain of the Jordan Against the dwelling place of the strong; But I will make them suddenly run away from her. And who _is_ a chosen _man that_ I may appoint over her? For who _is_ like Me? Who will arraign Me? And who _is_ that shepherd Who will withstand Me?" 
 
 ###### 45 
 Therefore hear the counsel of the Lord that He has taken against Babylon, And His purposes that He has proposed against the land of the Chaldeans: Surely the least of the flock shall draw them out; Surely He will make their dwelling place desolate with them. 

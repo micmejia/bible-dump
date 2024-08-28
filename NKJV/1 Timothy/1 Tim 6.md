@@ -15,19 +15,19 @@ Let as many bondservants as are under the yoke count their own masters worthy of
 And those who have believing masters, let them not despise _them_ because they are brethren, but rather serve _them_ because those who are benefited are believers and beloved. Teach and exhort these things. ## Error and Greed 
 
 ###### 3 
-If anyone teaches otherwise and does not consent to wholesome words, _even_ the words of our Lord Jesus Christ, and to the [^a]doctrine which accords with godliness, 
+If anyone teaches otherwise and does not consent to wholesome words, _even_ the words of our Lord Jesus Christ, and to the doctrine which accords with godliness, 
 
 ###### 4 
 he is proud, knowing nothing, but is obsessed with disputes and arguments over words, from which come envy, strife, reviling, evil suspicions, 
 
 ###### 5 
-[^b]useless wranglings of men of corrupt minds and destitute of the truth, who suppose that godliness is a _means of_ gain. [^c]From such withdraw yourself. 
+useless wranglings of men of corrupt minds and destitute of the truth, who suppose that godliness is a _means of_ gain. From such withdraw yourself. 
 
 ###### 6 
 Now godliness with contentment is great gain. 
 
 ###### 7 
-For we brought nothing into _this_ world, [^d]_and it is_ certain we can carry nothing out. 
+For we brought nothing into _this_ world, _and it is_ certain we can carry nothing out. 
 
 ###### 8 
 And having food and clothing, with these we shall be content. 
@@ -51,7 +51,7 @@ I urge you in the sight of God who gives life to all things, and _before_ Christ
 that you keep _this_ commandment without spot, blameless until our Lord Jesus Christ's appearing, 
 
 ###### 15 
-which He will manifest in His own time, _He who is_ the blessed and only [^e]Potentate, the King of kings and Lord of lords, 
+which He will manifest in His own time, _He who is_ the blessed and only Potentate, the King of kings and Lord of lords, 
 
 ###### 16 
 who alone has immortality, dwelling in unapproachable light, whom no man has seen or can see, to whom _be_ honor and everlasting power. Amen. ## Instructions to the Rich 
@@ -66,7 +66,7 @@ _Let them_ do good, that they be rich in good works, ready to give, willing to s
 storing up for themselves a good foundation for the time to come, that they may lay hold on eternal life. ## Guard the Faith 
 
 ###### 20 
-O Timothy! Guard what was committed to your trust, avoiding the profane _and_ [^f]idle babblings and contradictions of what is falsely called knowledge-- 
+O Timothy! Guard what was committed to your trust, avoiding the profane _and_ idle babblings and contradictions of what is falsely called knowledge-- 
 
 ###### 21 
 by professing it some have strayed concerning the faith. Grace _be_ with you. Amen.

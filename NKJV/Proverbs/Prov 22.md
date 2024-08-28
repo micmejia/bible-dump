@@ -25,16 +25,16 @@ By humility _and_ the fear of the Lord _Are_ riches and honor and life.
 Thorns _and_ snares _are_ in the way of the perverse; He who guards his soul will be far from them. 
 
 ###### 6 
-Train up a child in the way he should go, [^a]And when he is old he will not depart from it. 
+Train up a child in the way he should go, And when he is old he will not depart from it. 
 
 ###### 7 
 The rich rules over the poor, And the borrower _is_ servant to the lender. 
 
 ###### 8 
-He who sows iniquity will reap sorrow,[^b] And the rod of his anger will fail. 
+He who sows iniquity will reap sorrow, And the rod of his anger will fail. 
 
 ###### 9 
-He who has a [^c]generous eye will be blessed, For he gives of his bread to the poor. 
+He who has a generous eye will be blessed, For he gives of his bread to the poor. 
 
 ###### 10 
 Cast out the scoffer, and contention will leave; Yes, strife and reproach will cease. 
@@ -70,7 +70,7 @@ So that your trust may be in the Lord; I have instructed you today, even you.
 Have I not written to you excellent things Of counsels and knowledge, 
 
 ###### 21 
-That I may make you know the certainty of the words of truth, That you may answer words of truth To those who [^d]send to you? 
+That I may make you know the certainty of the words of truth, That you may answer words of truth To those who send to you? 
 
 ###### 22 
 Do not rob the poor because he _is_ poor, Nor oppress the afflicted at the gate; 
@@ -85,13 +85,13 @@ Make no friendship with an angry man, And with a furious man do not go,
 Lest you learn his ways And set a snare for your soul. 
 
 ###### 26 
-Do not be one of those who [^e]shakes hands in a pledge, One of those who is [^f]surety for debts; 
+Do not be one of those who shakes hands in a pledge, One of those who is surety for debts; 
 
 ###### 27 
 If you have nothing _with which_ to pay, Why should he take away your bed from under you? 
 
 ###### 28 
-Do not remove the ancient [^g]landmark Which your fathers have set. 
+Do not remove the ancient landmark Which your fathers have set. 
 
 ###### 29 
-Do you see a man _who_ [^h]excels in his work? He will stand before kings; He will not stand before [^i]unknown _men._
+Do you see a man _who_ excels in his work? He will stand before kings; He will not stand before unknown _men._

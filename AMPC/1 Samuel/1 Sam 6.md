@@ -406,7 +406,7 @@ Also the mice of gold was according to the number of all the cities of the Phili
 
 
 
-And the Lord slew some of the men of Beth-shemesh because they had looked into the ark of the Lord; He slew [^a]seventy men of them, and the people mourned because the Lord had made a great slaughter among them. 
+And the Lord slew some of the men of Beth-shemesh because they had looked into the ark of the Lord; He slew seventy men of them, and the people mourned because the Lord had made a great slaughter among them. 
 
 
 

@@ -39,7 +39,7 @@ next: ['Nah 2']
 
 
 
-Ang mensahe ng aklat na ito ay tungkol sa Nineve.[^a] Itoʼy ipinahayag <i class="trans-change">ng Panginoon_ kay Nahum na taga-Elkosh. ## Ang Galit ng Panginoon sa Nineve 
+Ang mensahe ng aklat na ito ay tungkol sa Nineve. Itoʼy ipinahayag <i class="trans-change">ng Panginoon_ kay Nahum na taga-Elkosh. ## Ang Galit ng Panginoon sa Nineve 
 
 
 
@@ -72,7 +72,7 @@ Ang mensahe ng aklat na ito ay tungkol sa Nineve.[^a] Itoʼy ipinahayag <i class
 
 
 
-Ayaw ng Panginoong Dios na sumamba ang mga tao sa ibang mga dios.[^b] Galit siya sa kanyang mga kaaway at pinaghihigantihan niya sila. 
+Ayaw ng Panginoong Dios na sumamba ang mga tao sa ibang mga dios. Galit siya sa kanyang mga kaaway at pinaghihigantihan niya sila. 
 
 
 
@@ -270,7 +270,7 @@ Ang Panginoon ay mabuti; matibay siyang kanlungan sa oras ng kagipitan, at inaal
 
 
 
-Para siyang rumaragasang baha na lubusang pupuksain ang kanyang mga kaaway. Tutugisin niya sila hanggang sa mamatay.[^c] 
+Para siyang rumaragasang baha na lubusang pupuksain ang kanyang mga kaaway. Tutugisin niya sila hanggang sa mamatay. 
 
 
 

@@ -139,7 +139,7 @@ Makapagpapatotoo ako sa inyo na kusang-loob silang nagbigay at higit pa nga sa k
 
 
 
-Sapagkat sila na mismo ang paulit-ulit na nakiusap sa amin na bigyan sila ng pagkakataong makatulong sa <i class="trans-change">mahihirap na_ mga mananampalataya.[^a] 
+Sapagkat sila na mismo ang paulit-ulit na nakiusap sa amin na bigyan sila ng pagkakataong makatulong sa <i class="trans-change">mahihirap na_ mga mananampalataya. 
 
 
 

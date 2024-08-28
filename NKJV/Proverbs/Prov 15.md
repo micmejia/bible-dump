@@ -19,16 +19,16 @@ The tongue of the wise uses knowledge rightly, But the mouth of fools pours fort
 The eyes of the Lord _are_ in every place, Keeping watch on the evil and the good. 
 
 ###### 4 
-A [^a]wholesome tongue _is_ a tree of life, But perverseness in it breaks the spirit. 
+A wholesome tongue _is_ a tree of life, But perverseness in it breaks the spirit. 
 
 ###### 5 
-A fool despises his father's instruction, But he who [^b]receives correction is prudent. 
+A fool despises his father's instruction, But he who receives correction is prudent. 
 
 ###### 6 
 _In_ the house of the righteous _there is_ much treasure, But in the revenue of the wicked is trouble. 
 
 ###### 7 
-The lips of the wise [^c]disperse knowledge, But the heart of the fool _does_ not _do_ so. 
+The lips of the wise disperse knowledge, But the heart of the fool _does_ not _do_ so. 
 
 ###### 8 
 The sacrifice of the wicked _is_ an abomination to the Lord, But the prayer of the upright _is_ His delight. 
@@ -40,13 +40,13 @@ The way of the wicked _is_ an abomination to the Lord, But He loves him who foll
 Harsh discipline _is_ for him who forsakes the way, _And_ he who hates correction will die. 
 
 ###### 11 
-Hell[^d] and [^e]Destruction _are_ before the Lord; So how much more the hearts of the sons of men. 
+Hell and Destruction _are_ before the Lord; So how much more the hearts of the sons of men. 
 
 ###### 12 
 A scoffer does not love one who corrects him, Nor will he go to the wise. 
 
 ###### 13 
-A merry heart makes a cheerful [^f]countenance, But by sorrow of the heart the spirit is broken. 
+A merry heart makes a cheerful countenance, But by sorrow of the heart the spirit is broken. 
 
 ###### 14 
 The heart of him who has understanding seeks knowledge, But the mouth of fools feeds on foolishness. 
@@ -58,7 +58,7 @@ All the days of the afflicted _are_ evil, But he who is of a merry heart _has_ a
 Better _is_ a little with the fear of the Lord, Than great treasure with trouble. 
 
 ###### 17 
-Better _is_ a dinner of [^g]herbs where love is, Than a fatted calf with hatred. 
+Better _is_ a dinner of herbs where love is, Than a fatted calf with hatred. 
 
 ###### 18 
 A wrathful man stirs up strife, But _he who is_ slow to anger allays contention. 
@@ -70,16 +70,16 @@ The way of the lazy _man is_ like a hedge of thorns, But the way of the upright 
 A wise son makes a father glad, But a foolish man despises his mother. 
 
 ###### 21 
-Folly _is_ joy _to him who is_ destitute of [^h]discernment, But a man of understanding walks uprightly. 
+Folly _is_ joy _to him who is_ destitute of discernment, But a man of understanding walks uprightly. 
 
 ###### 22 
 Without counsel, plans go awry, But in the multitude of counselors they are established. 
 
 ###### 23 
-A man has joy by the answer of his mouth, And a word _spoken_ [^i]in due season, how good _it is!_ 
+A man has joy by the answer of his mouth, And a word _spoken_ in due season, how good _it is!_ 
 
 ###### 24 
-The way of life _winds_ upward for the wise, That he may turn away from [^j]hell below. 
+The way of life _winds_ upward for the wise, That he may turn away from hell below. 
 
 ###### 25 
 The Lord will destroy the house of the proud, But He will establish the boundary of the widow. 
@@ -97,7 +97,7 @@ The heart of the righteous studies how to answer, But the mouth of the wicked po
 The Lord _is_ far from the wicked, But He hears the prayer of the righteous. 
 
 ###### 30 
-The light of the eyes rejoices the heart, _And_ a good report makes the bones [^k]healthy. 
+The light of the eyes rejoices the heart, _And_ a good report makes the bones healthy. 
 
 ###### 31 
 The ear that hears the rebukes of life Will abide among the wise. 

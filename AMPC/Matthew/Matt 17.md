@@ -49,7 +49,7 @@ And six days after this, Jesus took with Him Peter and James and John his brothe
 
 
 
-And His appearance underwent a change in their presence; and His face shone [^a]clear and bright like the sun, and His clothing became as white as light. 
+And His appearance underwent a change in their presence; and His face shone clear and bright like the sun, and His clothing became as white as light. 
 
 
 
@@ -112,7 +112,7 @@ Then Peter began to speak and said to Jesus, Lord, it is good _and_ delightful t
 
 
 
-While he was still speaking, behold, a shining cloud [[^b]composed of light] overshadowed them, and a voice from the cloud said, This is My Son, My Beloved, with Whom I am [and [^c]have always been] delighted. Listen to Him! 
+While he was still speaking, behold, a shining cloud [composed of light] overshadowed them, and a voice from the cloud said, This is My Son, My Beloved, with Whom I am [and have always been] delighted. Listen to Him! 
 
 
 
@@ -133,7 +133,7 @@ While he was still speaking, behold, a shining cloud [[^b]composed of light] ove
 
 
 
-When the disciples heard it, they fell on their faces and were [^d]seized with alarm _and_ struck with fear. 
+When the disciples heard it, they fell on their faces and were seized with alarm _and_ struck with fear. 
 
 
 
@@ -322,7 +322,7 @@ And when they approached the multitude, a man came up to Him, kneeling before Hi
 
 
 
-Lord, do pity _and_ have mercy on my son, for he has epilepsy (is [^e]moonstruck) and he suffers terribly; for frequently he falls into the fire and many times into the water. 
+Lord, do pity _and_ have mercy on my son, for he has epilepsy (is moonstruck) and he suffers terribly; for frequently he falls into the fire and many times into the water. 
 
 
 
@@ -364,7 +364,7 @@ And I brought him to Your disciples, and they were not able to cure him.
 
 
 
-And Jesus answered, O you unbelieving ([^f]warped, wayward, rebellious) and [^g]thoroughly perverse generation! How long am I to remain with you? How long am I to bear with you? Bring him here to Me. 
+And Jesus answered, O you unbelieving (warped, wayward, rebellious) and thoroughly perverse generation! How long am I to remain with you? How long am I to bear with you? Bring him here to Me. 
 
 
 
@@ -427,7 +427,7 @@ Then the disciples came to Jesus and asked privately, Why could we not drive it 
 
 
 
-He said to them, Because of the littleness of your faith [that is, your lack of [^h]firmly relying trust]. For truly I say to you, if you have faith [[^i]that is living] like a grain of mustard seed, you can say to this mountain, Move from here to yonder place, and it will move; and nothing will be impossible to you. 
+He said to them, Because of the littleness of your faith [that is, your lack of firmly relying trust]. For truly I say to you, if you have faith [that is living] like a grain of mustard seed, you can say to this mountain, Move from here to yonder place, and it will move; and nothing will be impossible to you. 
 
 
 
@@ -448,7 +448,7 @@ He said to them, Because of the littleness of your faith [that is, your lack of 
 
 
 
-[^j]_But this kind does not go out except by prayer and fasting_. 
+_But this kind does not go out except by prayer and fasting_. 
 
 
 
@@ -532,7 +532,7 @@ When they arrived in Capernaum, the collectors of the half shekel [the temple ta
 
 
 
-He answered, Yes. And when he came home, Jesus spoke to him [about it] first, saying, What do you think, Simon? From whom do earthly rulers collect duties _or_ tribute--from their own sons or from others [^k]not of their own family? 
+He answered, Yes. And when he came home, Jesus spoke to him [about it] first, saying, What do you think, Simon? From whom do earthly rulers collect duties _or_ tribute--from their own sons or from others not of their own family? 
 
 
 
@@ -553,7 +553,7 @@ He answered, Yes. And when he came home, Jesus spoke to him [about it] first, sa
 
 
 
-And when Peter said, From other people [^l]not of their own family, Jesus said to him, Then the sons are exempt. 
+And when Peter said, From other people not of their own family, Jesus said to him, Then the sons are exempt. 
 
 
 
@@ -574,4 +574,4 @@ And when Peter said, From other people [^l]not of their own family, Jesus said t
 
 
 
-However, in order not to give offense _and_ cause them to stumble [that is, to cause them [^m]to judge unfavorably and unjustly] go down to the sea and throw in a hook. Take the first fish that comes up, and when you open its mouth you will find there a shekel. Take it and give it to them to pay the temple tax for Me and for yourself.
+However, in order not to give offense _and_ cause them to stumble [that is, to cause them to judge unfavorably and unjustly] go down to the sea and throw in a hook. Take the first fish that comes up, and when you open its mouth you will find there a shekel. Take it and give it to them to pay the temple tax for Me and for yourself.

@@ -364,7 +364,7 @@ And the people gathered also from the towns _and_ hamlets around Jerusalem, brin
 
 
 
-But the high priest rose up and all who were his supporters, that is, the party of the Sadducees, and being filled with [^a]jealousy _and_ indignation _and_ rage, 
+But the high priest rose up and all who were his supporters, that is, the party of the Sadducees, and being filled with jealousy _and_ indignation _and_ rage, 
 
 
 
@@ -595,7 +595,7 @@ So they brought them and set them before the council (Sanhedrin). And the high p
 
 
 
-Saying, We definitely commanded _and_ strictly charged you not to teach in _or_ about this Name; yet here you have flooded Jerusalem with your doctrine and you intend to bring this [^b]Man's blood upon us. 
+Saying, We definitely commanded _and_ strictly charged you not to teach in _or_ about this Name; yet here you have flooded Jerusalem with your doctrine and you intend to bring this Man's blood upon us. 
 
 
 

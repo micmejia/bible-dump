@@ -91,7 +91,7 @@ My anger is kindled against the shepherds [who are not true shepherds] and I wil
 
 
 
-Out of him [Judah] shall come forth the [^a]Cornerstone, out of him the tent peg, out of him the battle bow; every ruler shall proceed from him. 
+Out of him [Judah] shall come forth the Cornerstone, out of him the tent peg, out of him the battle bow; every ruler shall proceed from him. 
 
 
 

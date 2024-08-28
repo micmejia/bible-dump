@@ -601,4 +601,4 @@ Lumakad ka at ikutin ang buong lupain dahil ibibigay ko itong lahat sa iyo."
 
 
 
-Kaya inilipat ni Abram ang tolda niya, at doon siya nanirahan malapit sa malalaking puno[^a] ni Mamre roon sa Hebron, at gumawa siya roon ng altar para sa Panginoon.
+Kaya inilipat ni Abram ang tolda niya, at doon siya nanirahan malapit sa malalaking puno ni Mamre roon sa Hebron, at gumawa siya roon ng altar para sa Panginoon.

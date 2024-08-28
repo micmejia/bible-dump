@@ -175,7 +175,7 @@ For who separates you from the others [as a faction leader]? [Who makes you supe
 
 
 
-[[^a]You behave as if] you are already filled _and_ think you have enough [you are full and content, feeling no need of anything more]! Already you have become rich [in spiritual gifts and graces]! [Without any counsel or instruction from us, in your conceit], you have ascended your thrones _and_ come into your kingdom without including us! And would that it were true _and_ that you did reign, so that we might be sharing the kingdom with you! 
+[You behave as if] you are already filled _and_ think you have enough [you are full and content, feeling no need of anything more]! Already you have become rich [in spiritual gifts and graces]! [Without any counsel or instruction from us, in your conceit], you have ascended your thrones _and_ come into your kingdom without including us! And would that it were true _and_ that you did reign, so that we might be sharing the kingdom with you! 
 
 
 
@@ -238,7 +238,7 @@ We are [looked upon as] fools on account of Christ _and_ for His sake, but you a
 
 
 
-To this hour we have gone both hungry and thirsty; we [[^b]habitually] wear but one undergarment [and shiver in the cold]; we are roughly knocked about and wander around homeless. 
+To this hour we have gone both hungry and thirsty; we [habitually] wear but one undergarment [and shiver in the cold]; we are roughly knocked about and wander around homeless. 
 
 
 
@@ -259,7 +259,7 @@ To this hour we have gone both hungry and thirsty; we [[^b]habitually] wear but 
 
 
 
-And we still toil unto weariness [for our living], working hard with our own hands. When men revile us [[^c]wound us with an accursed sting], we bless them. When we are persecuted, we take it patiently _and_ endure it. 
+And we still toil unto weariness [for our living], working hard with our own hands. When men revile us [wound us with an accursed sting], we bless them. When we are persecuted, we take it patiently _and_ endure it. 
 
 
 
@@ -406,7 +406,7 @@ Some of you have become conceited _and_ arrogant _and_ pretentious, counting on 
 
 
 
-But I will come to you [and] shortly, if the Lord is willing, and then I will perceive _and_ understand not what the talk of these puffed up _and_ arrogant spirits amount to, but their force ([^d]the moral power and excellence of soul they really possess). 
+But I will come to you [and] shortly, if the Lord is willing, and then I will perceive _and_ understand not what the talk of these puffed up _and_ arrogant spirits amount to, but their force (the moral power and excellence of soul they really possess). 
 
 
 
@@ -427,7 +427,7 @@ But I will come to you [and] shortly, if the Lord is willing, and then I will pe
 
 
 
-For the kingdom of God consists of _and_ is based on not talk but power ([^e]moral power and excellence of soul). 
+For the kingdom of God consists of _and_ is based on not talk but power (moral power and excellence of soul). 
 
 
 

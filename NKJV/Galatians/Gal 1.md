@@ -27,10 +27,10 @@ to whom _be_ glory forever and ever. Amen. ## Only One Gospel
 I marvel that you are turning away so soon from Him who called you in the grace of Christ, to a different gospel, 
 
 ###### 7 
-which is not another; but there are some who trouble you and want to pervert[^a] the gospel of Christ. 
+which is not another; but there are some who trouble you and want to pervert the gospel of Christ. 
 
 ###### 8 
-But even if we, or an angel from heaven, preach any other gospel to you than what we have preached to you, let him be [^b]accursed. 
+But even if we, or an angel from heaven, preach any other gospel to you than what we have preached to you, let him be accursed. 
 
 ###### 9 
 As we have said before, so now I say again, if anyone preaches any other gospel to you than what you have received, let him be accursed. 
@@ -60,7 +60,7 @@ to reveal His Son in me, that I might preach Him among the Gentiles, I did not i
 nor did I go up to Jerusalem to those _who were_ apostles before me; but I went to Arabia, and returned again to Damascus. ## Contacts at Jerusalem 
 
 ###### 18 
-Then after three years I went up to Jerusalem to see [^c]Peter, and remained with him fifteen days. 
+Then after three years I went up to Jerusalem to see Peter, and remained with him fifteen days. 
 
 ###### 19 
 But I saw none of the other apostles except James, the Lord's brother. 

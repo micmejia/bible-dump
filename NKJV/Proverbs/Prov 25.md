@@ -31,13 +31,13 @@ Do not exalt yourself in the presence of the king, And do not stand in the place
 For _it is_ better that he say to you, "Come up here," Than that you should be put lower in the presence of the prince, Whom your eyes have seen. 
 
 ###### 8 
-Do not go hastily to [^a]court; For what will you do in the end, When your neighbor has put you to shame? 
+Do not go hastily to court; For what will you do in the end, When your neighbor has put you to shame? 
 
 ###### 9 
 Debate your case with your neighbor, And do not disclose the secret to another; 
 
 ###### 10 
-Lest he who hears _it_ expose your shame, And [^b]your reputation be ruined. 
+Lest he who hears _it_ expose your shame, And your reputation be ruined. 
 
 ###### 11 
 A word fitly spoken _is like_ apples of gold In settings of silver. 
@@ -85,7 +85,7 @@ _It is_ better to dwell in a corner of a housetop, Than in a house shared with a
 _As_ cold water to a weary soul, So _is_ good news from a far country. 
 
 ###### 26 
-A righteous _man_ who falters before the wicked _Is like_ a murky spring and a [^c]polluted well. 
+A righteous _man_ who falters before the wicked _Is like_ a murky spring and a polluted well. 
 
 ###### 27 
 _It is_ not good to eat much honey; So to seek one's own glory _is not_ glory. 

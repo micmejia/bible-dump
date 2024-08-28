@@ -49,7 +49,7 @@ If a man's offering is a sacrifice of peace offering, if he offers an animal fro
 
 
 
-He shall lay [both] his [^a]hands upon the head of his offering and kill it at the door of the Tent of Meeting; and Aaron's sons the priests shall throw the blood against the altar round about. 
+He shall lay [both] his hands upon the head of his offering and kill it at the door of the Tent of Meeting; and Aaron's sons the priests shall throw the blood against the altar round about. 
 
 
 

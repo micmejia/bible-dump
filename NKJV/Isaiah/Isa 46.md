@@ -16,7 +16,7 @@ Bel bows down, Nebo stoops; Their idols were on the beasts and on the cattle. Yo
 They stoop, they bow down together; They could not deliver the burden, But have themselves gone into captivity. 
 
 ###### 3 
-"Listen to Me, O house of Jacob, And all the remnant of the house of Israel, Who have been upheld _by Me_ from [^a]birth, Who have been carried from the womb: 
+"Listen to Me, O house of Jacob, And all the remnant of the house of Israel, Who have been upheld _by Me_ from birth, Who have been carried from the womb: 
 
 ###### 4 
 Even to _your_ old age, I _am_ He, And _even_ to gray hairs I will carry _you!_ I have made, and I will bear; Even I will carry, and will deliver _you._ 
@@ -31,7 +31,7 @@ They lavish gold out of the bag, And weigh silver on the scales; They hire a gol
 They bear it on the shoulder, they carry it And set it in its place, and it stands; From its place it shall not move. Though _one_ cries out to it, yet it cannot answer Nor save him out of his trouble. 
 
 ###### 8 
-"Remember this, and [^b]show yourselves men; Recall to mind, O you transgressors. 
+"Remember this, and show yourselves men; Recall to mind, O you transgressors. 
 
 ###### 9 
 Remember the former things of old, For I _am_ God, and _there is_ no other; _I am_ God, and _there is_ none like Me, 
@@ -46,4 +46,4 @@ Calling a bird of prey from the east, The man who executes My counsel, from a fa
 "Listen to Me, you stubborn-hearted, Who _are_ far from righteousness: 
 
 ###### 13 
-I bring My righteousness near, it shall not be far off; My salvation shall not [^c]linger. And I will place salvation in Zion, For Israel My glory.
+I bring My righteousness near, it shall not be far off; My salvation shall not linger. And I will place salvation in Zion, For Israel My glory.

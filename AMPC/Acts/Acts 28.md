@@ -90,7 +90,7 @@ Now Paul had gathered a bundle of sticks, and he was laying them on the fire whe
 
 
 
-When the natives saw the little animal hanging from his hand, they said to one another, Doubtless this man is a murderer, for though he has been saved from the sea, Justice [[^a]the goddess of avenging] has not permitted that he should live. 
+When the natives saw the little animal hanging from his hand, they said to one another, Doubtless this man is a murderer, for though he has been saved from the sea, Justice [the goddess of avenging] has not permitted that he should live. 
 
 
 
@@ -615,7 +615,7 @@ So let it be understood by you then that [this message of] the salvation of God 
 
 
 
-[^b]_And when he had said these things, the Jews went away, arguing and disputing among themselves._ 
+_And when he had said these things, the Jews went away, arguing and disputing among themselves._ 
 
 
 

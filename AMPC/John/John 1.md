@@ -27,7 +27,7 @@ next: ['John 2']
 
 
 
-In the beginning [before all time] was the Word ([^a]Christ), and the Word was with God, and the Word was God [^b]Himself. 
+In the beginning [before all time] was the Word (Christ), and the Word was with God, and the Word was God Himself. 
 
 
 
@@ -279,7 +279,7 @@ But to as many as did receive _and_ welcome Him, He gave the authority (power, p
 
 
 
-Who owe their birth neither to [^c]bloods nor to the will of the flesh [that of physical impulse] nor to the will of man [that of a natural father], but to God. [They are born of God!] 
+Who owe their birth neither to bloods nor to the will of the flesh [that of physical impulse] nor to the will of man [that of a natural father], but to God. [They are born of God!] 
 
 
 
@@ -363,7 +363,7 @@ For out of His fullness (abundance) we have all received [all had a share and we
 
 
 
-For while the Law was given through Moses, grace ([^d]unearned, undeserved favor and spiritual blessing) and truth came through Jesus Christ. 
+For while the Law was given through Moses, grace (unearned, undeserved favor and spiritual blessing) and truth came through Jesus Christ. 
 
 
 
@@ -384,7 +384,7 @@ For while the Law was given through Moses, grace ([^d]unearned, undeserved favor
 
 
 
-No man has ever seen God at any time; _the only_ [^e]_unique Son_, _or_ [^f]the only begotten God, Who is in the bosom [in the intimate presence] of the Father, He has declared Him [He has revealed Him and brought Him out where He can be seen; He has interpreted Him and He has made Him known]. 
+No man has ever seen God at any time; _the only_ _unique Son_, _or_ the only begotten God, Who is in the bosom [in the intimate presence] of the Father, He has declared Him [He has revealed Him and brought Him out where He can be seen; He has interpreted Him and He has made Him known]. 
 
 
 
@@ -552,7 +552,7 @@ And they asked him, Why then are you baptizing if you are not the Christ, nor El
 
 
 
-John answered them, I [only] baptize [^g]in (with) water. Among you there stands One Whom you do not recognize _and_ with Whom you are not acquainted _and_ of Whom you know nothing. 
+John answered them, I [only] baptize in (with) water. Among you there stands One Whom you do not recognize _and_ with Whom you are not acquainted _and_ of Whom you know nothing. 
 
 
 
@@ -594,7 +594,7 @@ It is He Who, coming after me, is preferred before me, the string of Whose sanda
 
 
 
-These things occurred in Bethany (Bethabara) across the Jordan [[^h]at the Jordan crossing], where John was then baptizing. 
+These things occurred in Bethany (Bethabara) across the Jordan [at the Jordan crossing], where John was then baptizing. 
 
 
 
@@ -657,7 +657,7 @@ This is He of Whom I said, After me comes a Man Who has priority over me [Who ta
 
 
 
-And I did not know Him _and_ did not recognize Him [myself]; but it is in order that He should be made manifest _and_ be revealed to Israel [be brought out where we can see Him] that I came baptizing [^i]in (with) water. 
+And I did not know Him _and_ did not recognize Him [myself]; but it is in order that He should be made manifest _and_ be revealed to Israel [be brought out where we can see Him] that I came baptizing in (with) water. 
 
 
 
@@ -699,7 +699,7 @@ John gave further evidence, saying, I have seen the Spirit descending as a dove 
 
 
 
-And I did not know Him _nor_ recognize Him, but He Who sent me to baptize [^j]in (with) water said to me, Upon Him Whom you shall see the Spirit descend and remain, that One is He Who baptizes with the Holy Spirit. 
+And I did not know Him _nor_ recognize Him, but He Who sent me to baptize in (with) water said to me, Upon Him Whom you shall see the Spirit descend and remain, that One is He Who baptizes with the Holy Spirit. 
 
 
 
@@ -825,7 +825,7 @@ But Jesus turned, and as He saw them following Him, He said to them, What are yo
 
 
 
-He said to them, Come and see. So they went and saw where He was staying, and they remained with Him [^k] that day. It was then about the tenth hour (about four o'clock in the afternoon). 
+He said to them, Come and see. So they went and saw where He was staying, and they remained with Him  that day. It was then about the tenth hour (about four o'clock in the afternoon). 
 
 
 

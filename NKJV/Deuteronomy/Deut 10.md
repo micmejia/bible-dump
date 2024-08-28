@@ -10,7 +10,7 @@ next: ['Deut 11']
 
 
 ###### 1 
-"At that time the Lord said to me, [^a]'Hew for yourself two tablets of stone like the first, and come up to Me on the mountain and make yourself an ark of wood. 
+"At that time the Lord said to me, 'Hew for yourself two tablets of stone like the first, and come up to Me on the mountain and make yourself an ark of wood. 
 
 ###### 2 
 And I will write on the tablets the words that were on the first tablets, which you broke; and you shall put them in the ark.' 
@@ -19,19 +19,19 @@ And I will write on the tablets the words that were on the first tablets, which 
 "So I made an ark of acacia wood, hewed two tablets of stone like the first, and went up the mountain, having the two tablets in my hand. 
 
 ###### 4 
-And He wrote on the tablets according to the first writing, the Ten [^b]Commandments, which the Lord had spoken to you in the mountain from the midst of the fire in the day of the assembly; and the Lord gave them to me. 
+And He wrote on the tablets according to the first writing, the Ten Commandments, which the Lord had spoken to you in the mountain from the midst of the fire in the day of the assembly; and the Lord gave them to me. 
 
 ###### 5 
 Then I turned and came down from the mountain, and put the tablets in the ark which I had made; and there they are, just as the Lord commanded me." 
 
 ###### 6 
-(Now the children of Israel journeyed from the wells of Bene Jaakan to Moserah, where Aaron died, and where he was buried; and Eleazar his son ministered as priest in his [^c]stead. 
+(Now the children of Israel journeyed from the wells of Bene Jaakan to Moserah, where Aaron died, and where he was buried; and Eleazar his son ministered as priest in his stead. 
 
 ###### 7 
-From there they journeyed to Gudgodah, and from Gudgodah to Jotbathah, a land of [^d]rivers of water. 
+From there they journeyed to Gudgodah, and from Gudgodah to Jotbathah, a land of rivers of water. 
 
 ###### 8 
-At that time the Lord [^e]separated the tribe of Levi to bear the ark of the covenant of the Lord, to stand before the Lord to minister to Him and to bless in His name, to this day. 
+At that time the Lord separated the tribe of Levi to bear the ark of the covenant of the Lord, to stand before the Lord to minister to Him and to bless in His name, to this day. 
 
 ###### 9 
 Therefore Levi has no portion nor inheritance with his brethren; the Lord _is_ his inheritance, just as the Lord your God promised him.) 
@@ -46,16 +46,16 @@ Then the Lord said to me, 'Arise, begin _your_ journey before the people, that t
 "And now, Israel, what does the Lord your God require of you, but to fear the Lord your God, to walk in all His ways and to love Him, to serve the Lord your God with all your heart and with all your soul, 
 
 ###### 13 
-_and_ to keep the commandments of the Lord and His statutes which I command you today for your [^f]good? 
+_and_ to keep the commandments of the Lord and His statutes which I command you today for your good? 
 
 ###### 14 
 Indeed heaven and the highest heavens belong to the Lord your God, _also_ the earth with all that _is_ in it. 
 
 ###### 15 
-The Lord delighted only in your fathers, to love them; and He chose their [^g]descendants after them, you above all peoples, as _it is_ this day. 
+The Lord delighted only in your fathers, to love them; and He chose their descendants after them, you above all peoples, as _it is_ this day. 
 
 ###### 16 
-Therefore circumcise the foreskin of your heart, and be stiff-necked[^h] no longer. 
+Therefore circumcise the foreskin of your heart, and be stiff-necked no longer. 
 
 ###### 17 
 For the Lord your God _is_ God of gods and Lord of lords, the great God, mighty and awesome, who shows no partiality nor takes a bribe. 

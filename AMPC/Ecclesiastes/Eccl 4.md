@@ -280,7 +280,7 @@ And though a man might prevail against him who is alone, two will withstand him.
 
 
 
-Better is a poor and wise youth than an old and foolish king who [^a]no longer knows how to receive counsel (friendly reproof and warning)-- 
+Better is a poor and wise youth than an old and foolish king who no longer knows how to receive counsel (friendly reproof and warning)-- 
 
 
 

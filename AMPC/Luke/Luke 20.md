@@ -28,7 +28,7 @@ next: ['Luke 21']
 
 
 
-One day as Jesus was instructing the people in the temple [[^a]porches] and preaching the good news (the Gospel), the chief priests and the scribes came up with the elders (members of the Sanhedrin) 
+One day as Jesus was instructing the people in the temple [porches] and preaching the good news (the Gospel), the chief priests and the scribes came up with the elders (members of the Sanhedrin) 
 
 
 
@@ -112,7 +112,7 @@ Was the baptism of John from heaven, or from men?
 
 
 
-And they argued _and_ discussed [it] _and_ reasoned together [^b]with themselves, saying, If we reply, From heaven, He will say, Why then did you not believe him? 
+And they argued _and_ discussed [it] _and_ reasoned together with themselves, saying, If we reply, From heaven, He will say, Why then did you not believe him? 
 
 
 
@@ -133,7 +133,7 @@ And they argued _and_ discussed [it] _and_ reasoned together [^b]with themselves
 
 
 
-But if we answer, From men, all the people will stone us [^c]to death, for they are [^d]long since firmly convinced that John was a prophet. 
+But if we answer, From men, all the people will stone us to death, for they are long since firmly convinced that John was a prophet. 
 
 
 
@@ -196,7 +196,7 @@ Then Jesus said to them, Neither will I tell you by what authority I do these th
 
 
 
-Then He began to relate to the people this parable ([^e]this story to figuratively portray what He had to say): A man planted a vineyard and leased it to some vinedressers and went into another country for a long stay. 
+Then He began to relate to the people this parable (this story to figuratively portray what He had to say): A man planted a vineyard and leased it to some vinedressers and went into another country for a long stay. 
 
 
 
@@ -217,7 +217,7 @@ Then He began to relate to the people this parable ([^e]this story to figurative
 
 
 
-When the [right] season came, he sent a bond servant to the tenants, that they might give him [his part] of the fruit of the vineyard; but the tenants beat ([^f]thrashed) him and sent him away empty-handed. 
+When the [right] season came, he sent a bond servant to the tenants, that they might give him [his part] of the fruit of the vineyard; but the tenants beat (thrashed) him and sent him away empty-handed. 
 
 
 
@@ -238,7 +238,7 @@ When the [right] season came, he sent a bond servant to the tenants, that they m
 
 
 
-And he sent still another servant; him they also beat ([^g]thrashed) and dishonored _and_ insulted him [^h]disgracefully and sent him away empty-handed. 
+And he sent still another servant; him they also beat (thrashed) and dishonored _and_ insulted him disgracefully and sent him away empty-handed. 
 
 
 
@@ -280,7 +280,7 @@ And he sent yet a third; this one they wounded and threw out [of the vineyard].
 
 
 
-Then the owner of the vineyard said, What shall I do? I will send my beloved son; it is [^i]probable that they will respect him. 
+Then the owner of the vineyard said, What shall I do? I will send my beloved son; it is probable that they will respect him. 
 
 
 
@@ -343,7 +343,7 @@ So they drove him out of the vineyard and killed him. What then will the owner o
 
 
 
-He will come and [[^j]utterly] put an end to those tenants and will give the vineyard to others. When they [the chief priests and the scribes and the elders] heard this, they said, May it never be! 
+He will come and [utterly] put an end to those tenants and will give the vineyard to others. When they [the chief priests and the scribes and the elders] heard this, they said, May it never be! 
 
 
 
@@ -385,7 +385,7 @@ But [Jesus] looked at them and said, What then is [the meaning of] this that is 
 
 
 
-Everyone who falls on that Stone will be broken [in pieces]; but upon whomever It falls, It will crush him [winnow him and [^k]scatter him as dust]. 
+Everyone who falls on that Stone will be broken [in pieces]; but upon whomever It falls, It will crush him [winnow him and scatter him as dust]. 
 
 
 
@@ -490,7 +490,7 @@ Is it lawful for us to give tribute to Caesar or not?
 
 
 
-But He recognized _and_ understood their cunning _and_ [^l]unscrupulousness and said to them, 
+But He recognized _and_ understood their cunning _and_ unscrupulousness and said to them, 
 
 
 
@@ -532,7 +532,7 @@ Show Me a denarius (a coin)! Whose image and inscription does it have? They answ
 
 
 
-He said to them, Then render to Caesar the things that are Caesar's, [^m]and to God the things that are God's. 
+He said to them, Then render to Caesar the things that are Caesar's, and to God the things that are God's. 
 
 
 
@@ -763,7 +763,7 @@ But those who are considered worthy to gain that other world _and_ that future a
 
 
 
-For they cannot die again, but they are [^n]angel-like _and_ [^o]equal to angels. And being sons of _and_ [^p]sharers in the resurrection, they are sons of God. 
+For they cannot die again, but they are angel-like _and_ equal to angels. And being sons of _and_ sharers in the resurrection, they are sons of God. 
 
 
 
@@ -784,7 +784,7 @@ For they cannot die again, but they are [^n]angel-like _and_ [^o]equal to angels
 
 
 
-But that the dead are raised [[^q]from death]--even Moses made known _and_ showed in the passage concerning the [burning] bush, where he calls the Lord, The God of Abraham, the God of Isaac, and the God of Jacob. 
+But that the dead are raised [from death]--even Moses made known _and_ showed in the passage concerning the [burning] bush, where he calls the Lord, The God of Abraham, the God of Isaac, and the God of Jacob. 
 
 
 
@@ -826,7 +826,7 @@ Now He is not the God of the dead, but of the living, for to Him all men are ali
 
 
 
-And some of the scribes replied, Teacher, you have spoken well _and_ expertly [[^r]so that there is no room for blame]. 
+And some of the scribes replied, Teacher, you have spoken well _and_ expertly [so that there is no room for blame]. 
 
 
 

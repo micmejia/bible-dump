@@ -19,7 +19,7 @@ Then the whole congregation of the children of Israel complained against Moses a
 And the children of Israel said to them, "Oh, that we had died by the hand of the Lord in the land of Egypt, when we sat by the pots of meat _and_ when we ate bread to the full! For you have brought us out into this wilderness to kill this whole assembly with hunger." 
 
 ###### 4 
-Then the Lord said to Moses, "Behold, I will rain bread from heaven for you. And the people shall go out and gather [^a]a certain quota every day, that I may test them, whether they will walk in My law or not. 
+Then the Lord said to Moses, "Behold, I will rain bread from heaven for you. And the people shall go out and gather a certain quota every day, that I may test them, whether they will walk in My law or not. 
 
 ###### 5 
 And it shall be on the sixth day that they shall prepare what they bring in, and it shall be twice as much as they gather daily." 
@@ -67,7 +67,7 @@ So when they measured _it_ by omers, he who gathered much had nothing left over,
 And Moses said, "Let no one leave any of it till morning." 
 
 ###### 20 
-Notwithstanding they did not [^b]heed Moses. But some of them left part of it until morning, and it bred worms and stank. And Moses was angry with them. 
+Notwithstanding they did not heed Moses. But some of them left part of it until morning, and it bred worms and stank. And Moses was angry with them. 
 
 ###### 21 
 So they gathered it every morning, every man according to his need. And when the sun became hot, it melted. 
@@ -100,7 +100,7 @@ See! For the Lord has given you the Sabbath; therefore He gives you on the sixth
 So the people rested on the seventh day. 
 
 ###### 31 
-And the house of Israel called its name [^c]Manna. And it _was_ like white coriander seed, and the taste of it _was_ like wafers _made_ with honey. 
+And the house of Israel called its name Manna. And it _was_ like white coriander seed, and the taste of it _was_ like wafers _made_ with honey. 
 
 ###### 32 
 Then Moses said, "This _is_ the thing which the Lord has commanded: 'Fill an omer with it, to be kept for your generations, that they may see the bread with which I fed you in the wilderness, when I brought you out of the land of Egypt.' " 

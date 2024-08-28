@@ -139,7 +139,7 @@ Tingnan ninyo kung ano ang nangyari sa <i class="trans-change">lungsod ng_ Calne
 
 
 
-<i class="trans-change">Kawawa kayong_ mga pahiga-higa lang sa inyong mga mamahaling kama[^a] at nagpapakabusog sa masasarap na pagkaing karne ng batang tupa at ng pinatabang guya. 
+<i class="trans-change">Kawawa kayong_ mga pahiga-higa lang sa inyong mga mamahaling kama at nagpapakabusog sa masasarap na pagkaing karne ng batang tupa at ng pinatabang guya. 
 
 
 
@@ -205,7 +205,7 @@ Tingnan ninyo kung ano ang nangyari sa <i class="trans-change">lungsod ng_ Calne
 
 
 
-<i class="trans-change">Kawawa kayong_ malalakas uminom ng alak at gumagamit ng mamahaling pabango, pero hindi nagdadalamhati sa sasapiting pagbagsak ng inyong bansa.[^b] 
+<i class="trans-change">Kawawa kayong_ malalakas uminom ng alak at gumagamit ng mamahaling pabango, pero hindi nagdadalamhati sa sasapiting pagbagsak ng inyong bansa. 
 
 
 
@@ -337,7 +337,7 @@ Kung may sampung tao na matitira sa isang bahay, <i class="trans-change">lahat_ 
 
 
 
-Ang bangkay ng namatay ay kukunin ng kanyang kamag-anak upang sunugin. Tatanungin niya ang nagtatago[^c] sa kaloob-looban ng bahay, "May kasama ka pa riyan?"[^d] Kapag sumagot siya ng wala, sasabihin ng nagtanong, "Tumahimik ka na! Baka mabanggit mo pa ang pangalan ng Panginoon <i class="trans-change">at maparusahan tayo_." 
+Ang bangkay ng namatay ay kukunin ng kanyang kamag-anak upang sunugin. Tatanungin niya ang nagtatago sa kaloob-looban ng bahay, "May kasama ka pa riyan?" Kapag sumagot siya ng wala, sasabihin ng nagtanong, "Tumahimik ka na! Baka mabanggit mo pa ang pangalan ng Panginoon <i class="trans-change">at maparusahan tayo_." 
 
 
 

@@ -280,7 +280,7 @@ But these [people]! Like unreasoning beasts, mere creatures of instinct, born [o
 
 
 
-Being destined to receive [punishment as] the reward of [their] unrighteousness [suffering wrong as the hire for their wrongdoing]. They count it a delight to revel in the daytime [living luxuriously and delicately]. They are blots and blemishes, reveling in their [^a]deceptions _and_ carousing together [even] as they feast with you. 
+Being destined to receive [punishment as] the reward of [their] unrighteousness [suffering wrong as the hire for their wrongdoing]. They count it a delight to revel in the daytime [living luxuriously and delicately]. They are blots and blemishes, reveling in their deceptions _and_ carousing together [even] as they feast with you. 
 
 
 
@@ -301,7 +301,7 @@ Being destined to receive [punishment as] the reward of [their] unrighteousness 
 
 
 
-They have eyes full of harlotry, insatiable for sin. They beguile _and_ bait _and_ lure away unstable souls. Their hearts are trained in covetousness (lust, greed), [they are] children of a curse [[^b]exposed to cursing]! 
+They have eyes full of harlotry, insatiable for sin. They beguile _and_ bait _and_ lure away unstable souls. Their hearts are trained in covetousness (lust, greed), [they are] children of a curse [exposed to cursing]! 
 
 
 

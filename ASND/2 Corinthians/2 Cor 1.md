@@ -39,7 +39,7 @@ next: ['2 Cor 2']
 
 
 
-<i class="trans-change">Mula kay_ Pablo na apostol ni Cristo Jesus ayon sa kalooban ng Dios, <i class="trans-change">kasama si_ Timoteo na <i class="trans-change">ating_ kapatid. <i class="trans-change">Mahal kong mga kapatid_ sa iglesya[^a] ng Dios diyan sa Corinto, kasama ang lahat ng mga pinabanal[^b] <i class="trans-change">ng Dios_ sa Acaya: 
+<i class="trans-change">Mula kay_ Pablo na apostol ni Cristo Jesus ayon sa kalooban ng Dios, <i class="trans-change">kasama si_ Timoteo na <i class="trans-change">ating_ kapatid. <i class="trans-change">Mahal kong mga kapatid_ sa iglesya ng Dios diyan sa Corinto, kasama ang lahat ng mga pinabanal <i class="trans-change">ng Dios_ sa Acaya: 
 
 
 
@@ -435,7 +435,7 @@ Isang bagay ang maipagmamalaki namin: Namumuhay kaming matuwid at tapat sa harap
 
 
 
-Dahil sa tiwalang ito, binalak kong bisitahin kayo noong una, para makatanggap kayo ng dobleng pagpapala[^c] <i class="trans-change">sa pagbisita ko sa inyo ng dalawang beses_. 
+Dahil sa tiwalang ito, binalak kong bisitahin kayo noong una, para makatanggap kayo ng dobleng pagpapala <i class="trans-change">sa pagbisita ko sa inyo ng dalawang beses_. 
 
 
 
@@ -600,7 +600,7 @@ Kami nina Silas at Timoteo ay nangaral sa inyo tungkol kay Jesu-Cristo na Anak n
 
 
 
-Sapagkat kahit gaano man karami ang pangako ng Dios, tutuparin niyang lahat ito sa pamamagitan ni Cristo. Kaya nga masasabi natin na tapat ang Dios,[^d] at itoʼy nakapagbibigay ng kapurihan sa kanya. 
+Sapagkat kahit gaano man karami ang pangako ng Dios, tutuparin niyang lahat ito sa pamamagitan ni Cristo. Kaya nga masasabi natin na tapat ang Dios, at itoʼy nakapagbibigay ng kapurihan sa kanya. 
 
 
 

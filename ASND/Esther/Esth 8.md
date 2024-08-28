@@ -238,7 +238,7 @@ Kaya gumawa kayo ng kautusan sa aking pangalan ng anumang nais ninyong isulat pa
 
 
 
-Kaya noong ika-23 ng ikatlong buwan, ang buwan ng Sivan, ipinatawag ang mga kalihim ng hari. Isinulat nila ang lahat ng idinikta ni Mordecai. Ang sulat ay para sa mga Judio, mga gobernador, mga punong-bayan, at iba pang lingkod ng hari sa 127 lalawigan, mula sa India hanggang sa Etiopia.[^a] Isinulat ito sa bawat wika ng mga tao sa buong kaharian, pati na sa wika ng mga Judio. 
+Kaya noong ika-23 ng ikatlong buwan, ang buwan ng Sivan, ipinatawag ang mga kalihim ng hari. Isinulat nila ang lahat ng idinikta ni Mordecai. Ang sulat ay para sa mga Judio, mga gobernador, mga punong-bayan, at iba pang lingkod ng hari sa 127 lalawigan, mula sa India hanggang sa Etiopia. Isinulat ito sa bawat wika ng mga tao sa buong kaharian, pati na sa wika ng mga Judio. 
 
 
 

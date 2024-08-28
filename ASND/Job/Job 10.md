@@ -304,7 +304,7 @@ Alam nʼyong wala akong kasalanan, pero sino ang makapagtatanggol sa akin mula s
 
 
 
-Alalahanin ninyong akoʼy hinubog nʼyo mula sa lupa[^a] at ngayon baʼy ibabalik nʼyo na ako sa lupa? 
+Alalahanin ninyong akoʼy hinubog nʼyo mula sa lupa at ngayon baʼy ibabalik nʼyo na ako sa lupa? 
 
 
 

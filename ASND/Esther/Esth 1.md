@@ -6,7 +6,7 @@ next: ['Esth 2']
 # Esther 1
 
 ***
-###### 1-2 May isang hari sa Persia na ang pangalan ay Ahasuerus.[^a] Nakatira siya sa palasyo niya sa lungsod ng Susa. Ang nasasakupan niya ay 127 probinsya mula sa India hanggang sa Etiopia.[^b] 
+###### 1-2 May isang hari sa Persia na ang pangalan ay Ahasuerus. Nakatira siya sa palasyo niya sa lungsod ng Susa. Ang nasasakupan niya ay 127 probinsya mula sa India hanggang sa Etiopia. 
 
 
 
@@ -138,7 +138,7 @@ Pagkatapos noon, naghanda rin ang hari para sa lahat ng mga taga-Susa, mayaman m
 
 
 
-Naglagay sila ng kurtinang puti at asul na tinalian ng panaling <i class="trans-change">gawa sa telang_ linen na kulay ube. At ikinabit sa mga argolya na pilak sa mga haliging marmol. Ang mga upuan ay yari sa ginto at pilak. Ang sahig naman nito ay may disenyong yari sa kristal, marmol, nakar,[^c] at iba pang mamahaling bato. ###### 7-8 Pati ang mga kopa na iniinuman ng mga panauhin ay yari sa ginto na ibaʼt iba ang hugis at disenyo. Nag-utos ang hari sa mga alipin niya na bigyan ng mamahaling alak ang mga panauhin niya hanggaʼt gusto nila. 
+Naglagay sila ng kurtinang puti at asul na tinalian ng panaling <i class="trans-change">gawa sa telang_ linen na kulay ube. At ikinabit sa mga argolya na pilak sa mga haliging marmol. Ang mga upuan ay yari sa ginto at pilak. Ang sahig naman nito ay may disenyong yari sa kristal, marmol, nakar, at iba pang mamahaling bato. ###### 7-8 Pati ang mga kopa na iniinuman ng mga panauhin ay yari sa ginto na ibaʼt iba ang hugis at disenyo. Nag-utos ang hari sa mga alipin niya na bigyan ng mamahaling alak ang mga panauhin niya hanggaʼt gusto nila. 
 
 
 

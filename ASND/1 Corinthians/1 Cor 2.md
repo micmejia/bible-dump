@@ -304,7 +304,7 @@ Ang karunungang ito ay hindi naunawaan ng mga namumuno sa mundong ito. Sapagkat 
 
 
 
-Ganito nga ang sinasabi ng Kasulatan, "Wala pang taong nakakita, nakarinig, o nakaisip sa mga bagay na inihanda ng Dios para sa mga nagmamahal sa kanya."[^a] 
+Ganito nga ang sinasabi ng Kasulatan, "Wala pang taong nakakita, nakarinig, o nakaisip sa mga bagay na inihanda ng Dios para sa mga nagmamahal sa kanya." 
 
 
 

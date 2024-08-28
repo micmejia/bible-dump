@@ -13,19 +13,19 @@ next: ['Isa 41']
 "Comfort, yes, comfort My people!" Says your God. 
 
 ###### 2 
-"Speak [^a]comfort to Jerusalem, and cry out to her, That her warfare is ended, That her iniquity is pardoned; For she has received from the Lord's hand Double for all her sins." 
+"Speak comfort to Jerusalem, and cry out to her, That her warfare is ended, That her iniquity is pardoned; For she has received from the Lord's hand Double for all her sins." 
 
 ###### 3 
-The voice of one crying in the wilderness: "Prepare the way of the Lord; Make straight [^b]in the desert A highway for our God. 
+The voice of one crying in the wilderness: "Prepare the way of the Lord; Make straight in the desert A highway for our God. 
 
 ###### 4 
-Every valley shall be exalted And every mountain and hill brought low; The crooked places shall be made [^c]straight And the rough places smooth; 
+Every valley shall be exalted And every mountain and hill brought low; The crooked places shall be made straight And the rough places smooth; 
 
 ###### 5 
 The glory of the Lord shall be revealed, And all flesh shall see _it_ together; For the mouth of the Lord has spoken." 
 
 ###### 6 
-The voice said, "Cry out!" And [^d]he said, "What shall I cry?" "All flesh _is_ grass, And all its loveliness _is_ like the flower of the field. 
+The voice said, "Cry out!" And he said, "What shall I cry?" "All flesh _is_ grass, And all its loveliness _is_ like the flower of the field. 
 
 ###### 7 
 The grass withers, the flower fades, Because the breath of the Lord blows upon it; Surely the people _are_ grass. 
@@ -37,13 +37,13 @@ The grass withers, the flower fades, But the word of our God stands forever."
 O Zion, You who bring good tidings, Get up into the high mountain; O Jerusalem, You who bring good tidings, Lift up your voice with strength, Lift _it_ up, be not afraid; Say to the cities of Judah, "Behold your God!" 
 
 ###### 10 
-Behold, the Lord God shall come [^e]with a strong _hand,_ And His arm shall rule for Him; Behold, His reward _is_ with Him, And His [^f]work before Him. 
+Behold, the Lord God shall come with a strong _hand,_ And His arm shall rule for Him; Behold, His reward _is_ with Him, And His work before Him. 
 
 ###### 11 
 He will feed His flock like a shepherd; He will gather the lambs with His arm, And carry _them_ in His bosom, _And_ gently lead those who are with young. 
 
 ###### 12 
-Who has measured the [^g]waters in the hollow of His hand, Measured heaven with a [^h]span And calculated the dust of the earth in a measure? Weighed the mountains in scales And the hills in a balance? 
+Who has measured the waters in the hollow of His hand, Measured heaven with a span And calculated the dust of the earth in a measure? Weighed the mountains in scales And the hills in a balance? 
 
 ###### 13 
 Who has directed the Spirit of the Lord, Or _as_ His counselor has taught Him? 
@@ -67,7 +67,7 @@ To whom then will you liken God? Or what likeness will you compare to Him?
 The workman molds an image, The goldsmith overspreads it with gold, And the silversmith casts silver chains. 
 
 ###### 20 
-Whoever _is_ too impoverished for _such_ [^i]a contribution Chooses a tree _that_ will not rot; He seeks for himself a skillful workman To prepare a carved image _that_ will not totter. 
+Whoever _is_ too impoverished for _such_ a contribution Chooses a tree _that_ will not rot; He seeks for himself a skillful workman To prepare a carved image _that_ will not totter. 
 
 ###### 21 
 Have you not known? Have you not heard? Has it not been told you from the beginning? Have you not understood from the foundations of the earth? 
@@ -76,7 +76,7 @@ Have you not known? Have you not heard? Has it not been told you from the beginn
 _It is_ He who sits above the circle of the earth, And its inhabitants _are_ like grasshoppers, Who stretches out the heavens like a curtain, And spreads them out like a tent to dwell in. 
 
 ###### 23 
-He [^j]brings the princes to nothing; He makes the judges of the earth useless. 
+He brings the princes to nothing; He makes the judges of the earth useless. 
 
 ###### 24 
 Scarcely shall they be planted, Scarcely shall they be sown, Scarcely shall their stock take root in the earth, When He will also blow on them, And they will wither, And the whirlwind will take them away like stubble. 

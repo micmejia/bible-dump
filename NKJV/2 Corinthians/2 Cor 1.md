@@ -18,10 +18,10 @@ Grace to you and peace from God our Father and the Lord Jesus Christ. ## Comfort
 Blessed _be_ the God and Father of our Lord Jesus Christ, the Father of mercies and God of all comfort, 
 
 ###### 4 
-who comforts us in all our tribulation, that we may be able to comfort those who are in any [^a]trouble, with the comfort with which we ourselves are comforted by God. 
+who comforts us in all our tribulation, that we may be able to comfort those who are in any trouble, with the comfort with which we ourselves are comforted by God. 
 
 ###### 5 
-For as the sufferings of Christ abound in us, so our [^b]consolation also abounds through Christ. 
+For as the sufferings of Christ abound in us, so our consolation also abounds through Christ. 
 
 ###### 6 
 Now if we are afflicted, _it is_ for your consolation and salvation, which is effective for enduring the same sufferings which we also suffer. Or if we are comforted, _it is_ for your consolation and salvation. 
@@ -30,19 +30,19 @@ Now if we are afflicted, _it is_ for your consolation and salvation, which is ef
 And our hope for you _is_ steadfast, because we know that as you are partakers of the sufferings, so also _you will partake_ of the consolation. ## Delivered from Suffering 
 
 ###### 8 
-For we do not want you to be ignorant, brethren, of our [^c]trouble which came to us in Asia: that we were burdened beyond measure, above strength, so that we despaired even of life. 
+For we do not want you to be ignorant, brethren, of our trouble which came to us in Asia: that we were burdened beyond measure, above strength, so that we despaired even of life. 
 
 ###### 9 
 Yes, we had the sentence of death in ourselves, that we should not trust in ourselves but in God who raises the dead, 
 
 ###### 10 
-who delivered us from so great a death, and [^d]does deliver us; in whom we trust that He will still deliver _us,_ 
+who delivered us from so great a death, and does deliver us; in whom we trust that He will still deliver _us,_ 
 
 ###### 11 
-you also helping together in prayer for us, that thanks may be given by many persons on [^e]our behalf for the gift _granted_ to us through many. ## Paul's Sincerity 
+you also helping together in prayer for us, that thanks may be given by many persons on our behalf for the gift _granted_ to us through many. ## Paul's Sincerity 
 
 ###### 12 
-For our boasting is this: the testimony of our conscience that we conducted ourselves in the world in [^f]simplicity and godly sincerity, not with fleshly wisdom but by the grace of God, and more abundantly toward you. 
+For our boasting is this: the testimony of our conscience that we conducted ourselves in the world in simplicity and godly sincerity, not with fleshly wisdom but by the grace of God, and more abundantly toward you. 
 
 ###### 13 
 For we are not writing any other things to you than what you read or understand. Now I trust you will understand, even to the end 
@@ -60,7 +60,7 @@ to pass by way of you to Macedonia, to come again from Macedonia to you, and be 
 Therefore, when I was planning this, did I do it lightly? Or the things I plan, do I plan according to the flesh, that with me there should be Yes, Yes, and No, No? 
 
 ###### 18 
-But _as_ God _is_ faithful, our [^g]word to you was not Yes and No. 
+But _as_ God _is_ faithful, our word to you was not Yes and No. 
 
 ###### 19 
 For the Son of God, Jesus Christ, who was preached among you by us--by me, Silvanus, and Timothy--was not Yes and No, but in Him was Yes. 
@@ -78,4 +78,4 @@ who also has sealed us and given us the Spirit in our hearts as a guarantee.
 Moreover I call God as witness against my soul, that to spare you I came no more to Corinth. 
 
 ###### 24 
-Not that we [^h]have dominion over your faith, but are fellow workers for your joy; for by faith you stand.
+Not that we have dominion over your faith, but are fellow workers for your joy; for by faith you stand.

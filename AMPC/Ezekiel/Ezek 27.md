@@ -763,4 +763,4 @@ All the inhabitants of the isles _and_ coastlands are astonished _and_ appalled 
 
 
 
-The merchants among the people hiss over you [with malicious joy]; you have become a horror _and_ a source of terrors. You shall be [^a]no more [forever].
+The merchants among the people hiss over you [with malicious joy]; you have become a horror _and_ a source of terrors. You shall be no more [forever].

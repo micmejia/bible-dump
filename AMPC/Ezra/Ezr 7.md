@@ -28,7 +28,7 @@ next: ['Ezr 8']
 
 
 
-Now [^a]after this, in the reign of Artaxerxes [son of Xerxes, or Ahasuerus] king of Persia, Ezra son of Seraiah, the son of Azariah, the son of Hilkiah, 
+Now after this, in the reign of Artaxerxes [son of Xerxes, or Ahasuerus] king of Persia, Ezra son of Seraiah, the son of Azariah, the son of Hilkiah, 
 
 
 
@@ -217,7 +217,7 @@ On the first of the first month he started out from Babylon, and on the first of
 
 
 
-For Ezra had [^b]prepared _and_ set his heart to seek the Law of the Lord [to inquire for it and of it, to require and yearn for it], and to do and teach in Israel its statutes and its ordinances. 
+For Ezra had prepared _and_ set his heart to seek the Law of the Lord [to inquire for it and of it, to require and yearn for it], and to do and teach in Israel its statutes and its ordinances. 
 
 
 

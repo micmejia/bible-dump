@@ -154,4 +154,4 @@ They [the dead bodies of the slain warriors] shall be left together to the raven
 
 
 
-At that time shall a present be brought to the Lord of hosts from a people tall and polished, from a people terrible from their beginning _and_ feared _and_ dreaded near and far, a nation strong and victorious, whose land the rivers _or_ great channels divide--to the place [of worship] of the [^a]Name of the Lord of hosts, to Mount Zion [in Jerusalem].
+At that time shall a present be brought to the Lord of hosts from a people tall and polished, from a people terrible from their beginning _and_ feared _and_ dreaded near and far, a nation strong and victorious, whose land the rivers _or_ great channels divide--to the place [of worship] of the Name of the Lord of hosts, to Mount Zion [in Jerusalem].

@@ -10,13 +10,13 @@ next: ['Num 4']
 
 
 ###### 1 
-Now these _are_ the records[^a] of Aaron and Moses when the Lord spoke with Moses on Mount Sinai. 
+Now these _are_ the records of Aaron and Moses when the Lord spoke with Moses on Mount Sinai. 
 
 ###### 2 
 And these _are_ the names of the sons of Aaron: Nadab, the firstborn, and Abihu, Eleazar, and Ithamar. 
 
 ###### 3 
-These _are_ the names of the sons of Aaron, the anointed priests, [^b]whom he consecrated to minister as priests. 
+These _are_ the names of the sons of Aaron, the anointed priests, whom he consecrated to minister as priests. 
 
 ###### 4 
 Nadab and Abihu had died before the Lord when they offered profane fire before the Lord in the Wilderness of Sinai; and they had no children. So Eleazar and Ithamar ministered as priests in the presence of Aaron their father. ## The Levites Serve in the Tabernacle 
@@ -34,7 +34,7 @@ And they shall attend to his needs and the needs of the whole congregation befor
 Also they shall attend to all the furnishings of the tabernacle of meeting, and to the needs of the children of Israel, to do the work of the tabernacle. 
 
 ###### 9 
-And you shall give the Levites to Aaron and his sons; they _are_ given entirely to [^c]him from among the children of Israel. 
+And you shall give the Levites to Aaron and his sons; they _are_ given entirely to him from among the children of Israel. 
 
 ###### 10 
 So you shall appoint Aaron and his sons, and they shall attend to their priesthood; but the outsider who comes near shall be put to death." 
@@ -55,7 +55,7 @@ Then the Lord spoke to Moses in the Wilderness of Sinai, saying:
 "Number the children of Levi by their fathers' houses, by their families; you shall number every male from a month old and above." 
 
 ###### 16 
-So Moses numbered them according to the [^d]word of the Lord, as he was commanded. 
+So Moses numbered them according to the word of the Lord, as he was commanded. 
 
 ###### 17 
 These were the sons of Levi by their names: Gershon, Kohath, and Merari. 
@@ -91,7 +91,7 @@ the screen for the door of the court, the hangings of the court which _are_ arou
 From Kohath _came_ the family of the Amramites, the family of the Izharites, the family of the Hebronites, and the family of the Uzzielites; these _were_ the families of the Kohathites. 
 
 ###### 28 
-According to the number of all the males, from a month old and above, _there were_ eight thousand [^e]six hundred [^f]keeping charge of the sanctuary. 
+According to the number of all the males, from a month old and above, _there were_ eight thousand six hundred keeping charge of the sanctuary. 
 
 ###### 29 
 The families of the children of Kohath were to camp on the south side of the tabernacle. 
@@ -127,7 +127,7 @@ Moreover those who were to camp before the tabernacle on the east, before the ta
 All who were numbered of the Levites, whom Moses and Aaron numbered at the commandment of the Lord, by their families, all the males from a month old and above, _were_ twenty-two thousand. ## Levites Dedicated Instead of the Firstborn 
 
 ###### 40 
-Then the Lord said to Moses: "Number[^g] all the firstborn males of the children of Israel from a month old and above, and take the number of their names. 
+Then the Lord said to Moses: "Number all the firstborn males of the children of Israel from a month old and above, and take the number of their names. 
 
 ###### 41 
 And you shall take the Levites for Me--I _am_ the Lord--instead of all the firstborn among the children of Israel, and the livestock of the Levites instead of all the firstborn among the livestock of the children of Israel." 

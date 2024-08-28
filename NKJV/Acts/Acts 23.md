@@ -34,13 +34,13 @@ And when he had said this, a dissension arose between the Pharisees and the Sadd
 For Sadducees say that there is no resurrection--and no angel or spirit; but the Pharisees confess both. 
 
 ###### 9 
-Then there arose a loud outcry. And the scribes of the Pharisees' party arose and protested, saying, "We find no evil in this man; [^a]but if a spirit or an angel has spoken to him, let us not fight against God." 
+Then there arose a loud outcry. And the scribes of the Pharisees' party arose and protested, saying, "We find no evil in this man; but if a spirit or an angel has spoken to him, let us not fight against God." 
 
 ###### 10 
 Now when there arose a great dissension, the commander, fearing lest Paul might be pulled to pieces by them, commanded the soldiers to go down and take him by force from among them, and bring _him_ into the barracks. ## The Plot Against Paul 
 
 ###### 11 
-But the following night the Lord stood by him and said, [^b]"Be of good cheer, Paul; for as you have testified for Me in Jerusalem, so you must also bear witness at Rome." 
+But the following night the Lord stood by him and said, "Be of good cheer, Paul; for as you have testified for Me in Jerusalem, so you must also bear witness at Rome." 
 
 ###### 12 
 And when it was day, some of the Jews banded together and bound themselves under an oath, saying that they would neither eat nor drink till they had killed Paul. 
@@ -52,7 +52,7 @@ Now there were more than forty who had formed this conspiracy.
 They came to the chief priests and elders, and said, "We have bound ourselves under a great oath that we will eat nothing until we have killed Paul. 
 
 ###### 15 
-Now you, therefore, together with the council, suggest to the commander that he be brought down to you [^c]tomorrow, as though you were going to make further inquiries concerning him; but we are ready to kill him before he comes near." 
+Now you, therefore, together with the council, suggest to the commander that he be brought down to you tomorrow, as though you were going to make further inquiries concerning him; but we are ready to kill him before he comes near." 
 
 ###### 16 
 So when Paul's sister's son heard of their ambush, he went and entered the barracks and told Paul. 
@@ -97,7 +97,7 @@ And when I wanted to know the reason they accused him, I brought him before thei
 I found out that he was accused concerning questions of their law, but had nothing charged against him deserving of death or chains. 
 
 ###### 30 
-And when it was told me that [^d]the Jews lay in wait for the man, I sent him immediately to you, and also commanded his accusers to state before you the charges against him. Farewell. 
+And when it was told me that the Jews lay in wait for the man, I sent him immediately to you, and also commanded his accusers to state before you the charges against him. Farewell. 
 
 ###### 31 
 Then the soldiers, as they were commanded, took Paul and brought _him_ by night to Antipatris. 
@@ -112,4 +112,4 @@ When they came to Caesarea and had delivered the letter to the governor, they al
 And when the governor had read _it,_ he asked what province he was from. And when he understood that _he was_ from Cilicia, 
 
 ###### 35 
-he said, "I will hear you when your accusers also have come." And he commanded him to be kept in Herod's [^e]Praetorium.
+he said, "I will hear you when your accusers also have come." And he commanded him to be kept in Herod's Praetorium.

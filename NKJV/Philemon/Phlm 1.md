@@ -11,7 +11,7 @@ up: ['Philemon']
 Paul, a prisoner of Christ Jesus, and Timothy _our_ brother, To Philemon our beloved _friend_ and fellow laborer, 
 
 ###### 2 
-to [^a]the beloved Apphia, Archippus our fellow soldier, and to the church in your house: 
+to the beloved Apphia, Archippus our fellow soldier, and to the church in your house: 
 
 ###### 3 
 Grace to you and peace from God our Father and the Lord Jesus Christ. ## Philemon's Love and Faith 
@@ -23,10 +23,10 @@ I thank my God, making mention of you always in my prayers,
 hearing of your love and faith which you have toward the Lord Jesus and toward all the saints, 
 
 ###### 6 
-that the sharing of your faith may become effective by the acknowledgment of every good thing which is in [^b]you in Christ Jesus. 
+that the sharing of your faith may become effective by the acknowledgment of every good thing which is in you in Christ Jesus. 
 
 ###### 7 
-For we [^c]have great [^d]joy and [^e]consolation in your love, because the [^f]hearts of the saints have been refreshed by you, brother. ## The Plea for Onesimus 
+For we have great joy and consolation in your love, because the hearts of the saints have been refreshed by you, brother. ## The Plea for Onesimus 
 
 ###### 8 
 Therefore, though I might be very bold in Christ to command you what is fitting, 
@@ -41,7 +41,7 @@ I appeal to you for my son Onesimus, whom I have begotten _while_ in my chains,
 who once was unprofitable to you, but now is profitable to you and to me. 
 
 ###### 12 
-I am sending him [^g]back. You therefore receive him, that is, my own [^h]heart, 
+I am sending him back. You therefore receive him, that is, my own heart, 
 
 ###### 13 
 whom I wished to keep with me, that on your behalf he might minister to me in my chains for the gospel. 

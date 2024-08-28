@@ -73,7 +73,7 @@ Sinabi sa akin ng Panginoon,
 
 
 
-"Anak ng tao, magsalita ka laban sa mga bantay ng Israel.[^a] Sabihin mo sa kanila na <i class="trans-change">ako,_ ang Panginoong Dios, ay nagsasabi: Nakakaawa ang mga bantay ng Israel. Ang sarili lang ninyo ang inyong inaalagaan! Hindi ba ang mga bantay ang dapat nag-aalaga sa mga tupa? 
+"Anak ng tao, magsalita ka laban sa mga bantay ng Israel. Sabihin mo sa kanila na <i class="trans-change">ako,_ ang Panginoong Dios, ay nagsasabi: Nakakaawa ang mga bantay ng Israel. Ang sarili lang ninyo ang inyong inaalagaan! Hindi ba ang mga bantay ang dapat nag-aalaga sa mga tupa? 
 
 
 
@@ -403,7 +403,7 @@ Kaya kayong mga bantay, pakinggan ninyo ang mga sinasabi ko.
 
 
 
-Akoʼy magiging tulad ng pastol na naghahanap sa mga tupa niyang nangalat. Ililigtas ko sila saang lugar man sila nangalat noong panahon ng kaguluhang iyon.[^b] 
+Akoʼy magiging tulad ng pastol na naghahanap sa mga tupa niyang nangalat. Ililigtas ko sila saang lugar man sila nangalat noong panahon ng kaguluhang iyon. 
 
 
 

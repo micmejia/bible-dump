@@ -13,7 +13,7 @@ next: ['Heb 9']
 Now _this is_ the main point of the things we are saying: We have such a High Priest, who is seated at the right hand of the throne of the Majesty in the heavens, 
 
 ###### 2 
-a Minister of the [^a]sanctuary and of the true tabernacle which the Lord erected, and not man. 
+a Minister of the sanctuary and of the true tabernacle which the Lord erected, and not man. 
 
 ###### 3 
 For every high priest is appointed to offer both gifts and sacrifices. Therefore _it is_ necessary that this One also have something to offer. 
@@ -43,7 +43,7 @@ For this _is_ the covenant that I will make with the house of Israel after those
 None of them shall teach his neighbor, and none his brother, saying, 'Know the Lord,' for all shall know Me, from the least of them to the greatest of them. 
 
 ###### 12 
-For I will be merciful to their unrighteousness, and their sins [^b]and their lawless deeds I will remember no more." 
+For I will be merciful to their unrighteousness, and their sins and their lawless deeds I will remember no more." 
 
 ###### 13 
 In that He says, "A new _covenant_," He has made the first obsolete. Now what is becoming obsolete and growing old is ready to vanish away.

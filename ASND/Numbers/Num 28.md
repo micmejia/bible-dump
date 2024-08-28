@@ -73,7 +73,7 @@ Sinabi ng Panginoon kay Moises,
 
 
 
-"Sabihin mo sa mga Israelita na kailangan silang maghandog sa akin ng mga handog sa pamamagitan ng apoy[^a] sa nakatakdang panahon. Ang mga handog na ito ay ang pagkain ko, at ang mabangong samyo nito ay makalulugod sa akin. Kaya sabihin mo ito sa mga Israelita: 
+"Sabihin mo sa mga Israelita na kailangan silang maghandog sa akin ng mga handog sa pamamagitan ng apoy sa nakatakdang panahon. Ang mga handog na ito ay ang pagkain ko, at ang mabangong samyo nito ay makalulugod sa akin. Kaya sabihin mo ito sa mga Israelita: 
 
 
 

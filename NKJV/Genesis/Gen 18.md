@@ -10,7 +10,7 @@ next: ['Gen 19']
 
 
 ###### 1 
-Then the Lord appeared to him by [^a]the terebinth trees of Mamre, as he was sitting in the tent door in the heat of the day. 
+Then the Lord appeared to him by the terebinth trees of Mamre, as he was sitting in the tent door in the heat of the day. 
 
 ###### 2 
 So he lifted his eyes and looked, and behold, three men were standing by him; and when he saw _them,_ he ran from the tent door to meet them, and bowed himself to the ground, 
@@ -40,7 +40,7 @@ Then they said to him, "Where _is_ Sarah your wife?" So he said, "Here, in the t
 And He said, "I will certainly return to you according to the time of life, and behold, Sarah your wife shall have a son." (Sarah was listening in the tent door which _was_ behind him.) 
 
 ###### 11 
-Now Abraham and Sarah were old, well advanced in age; _and_ [^b]Sarah had passed the age of childbearing. 
+Now Abraham and Sarah were old, well advanced in age; _and_ Sarah had passed the age of childbearing. 
 
 ###### 12 
 Therefore Sarah laughed within herself, saying, "After I have grown old, shall I have pleasure, my lord being old also?" 

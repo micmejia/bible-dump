@@ -73,7 +73,7 @@ Nang mabalitaan ni Haring Jabin ng Hazor ang mga tagumpay ng Israel, nagpadala s
 
 
 
-sa mga haring nasa kabundukan sa hilaga, sa <i class="trans-change">mga hari sa_ Lambak ng Jordan[^a] na nasa timog ng <i class="trans-change">Lawa ng_ Galilea,[^b] sa <i class="trans-change">mga hari sa_ kaburulan sa kanluran,[^c] sa <i class="trans-change">mga hari sa_ baybayin ng Dor sa kanluran, 
+sa mga haring nasa kabundukan sa hilaga, sa <i class="trans-change">mga hari sa_ Lambak ng Jordan na nasa timog ng <i class="trans-change">Lawa ng_ Galilea, sa <i class="trans-change">mga hari sa_ kaburulan sa kanluran, sa <i class="trans-change">mga hari sa_ baybayin ng Dor sa kanluran, 
 
 
 

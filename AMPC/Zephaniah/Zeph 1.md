@@ -384,4 +384,4 @@ And I will bring distress upon men, so that they shall walk like blind men, beca
 
 
 
-Neither their silver nor their gold shall be able to deliver them in the day of the Lord's indignation _and_ wrath. But the whole earth shall be consumed in the fire of His jealous [^a]wrath, for a full, yes, a sudden, end will He make of all the inhabitants of the earth.
+Neither their silver nor their gold shall be able to deliver them in the day of the Lord's indignation _and_ wrath. But the whole earth shall be consumed in the fire of His jealous wrath, for a full, yes, a sudden, end will He make of all the inhabitants of the earth.

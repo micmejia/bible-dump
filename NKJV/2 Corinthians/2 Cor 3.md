@@ -25,7 +25,7 @@ And we have such trust through Christ toward God.
 Not that we are sufficient of ourselves to think of anything as _being_ from ourselves, but our sufficiency _is_ from God, 
 
 ###### 6 
-who also made us sufficient as ministers of the new covenant, not of the letter but of the [^a]Spirit; for the letter kills, but the Spirit gives life. ## Glory of the New Covenant 
+who also made us sufficient as ministers of the new covenant, not of the letter but of the Spirit; for the letter kills, but the Spirit gives life. ## Glory of the New Covenant 
 
 ###### 7 
 But if the ministry of death, written _and_ engraved on stones, was glorious, so that the children of Israel could not look steadily at the face of Moses because of the glory of his countenance, which _glory_ was passing away, 
@@ -61,4 +61,4 @@ Nevertheless when one turns to the Lord, the veil is taken away.
 Now the Lord is the Spirit; and where the Spirit of the Lord _is_, there _is_ liberty. 
 
 ###### 18 
-But we all, with unveiled face, beholding as in a mirror the glory of the Lord, are being transformed into the same image from glory to glory, just as [^b]by the Spirit of the Lord.
+But we all, with unveiled face, beholding as in a mirror the glory of the Lord, are being transformed into the same image from glory to glory, just as by the Spirit of the Lord.

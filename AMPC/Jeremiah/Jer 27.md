@@ -343,7 +343,7 @@ For I have not sent them, says the Lord; but they are prophesying falsely in My 
 
 
 
-Also I said to the priests and to all these people, Thus says the Lord: Do not listen to the words of your [false] prophets who are prophesying to you, saying, Behold, the vessels of the Lord's house shall now shortly be brought [^a]back from Babylon; for they are prophesying a lie to you. 
+Also I said to the priests and to all these people, Thus says the Lord: Do not listen to the words of your [false] prophets who are prophesying to you, saying, Behold, the vessels of the Lord's house shall now shortly be brought back from Babylon; for they are prophesying a lie to you. 
 
 
 
@@ -469,4 +469,4 @@ Yes, thus says the Lord of hosts, the God of Israel, concerning the vessels whic
 
 
 
-They will be [^b]carried to Babylon and there will they be until the day that I visit them [with My favor], says the Lord. Then I will bring them back and restore them to this place.
+They will be carried to Babylon and there will they be until the day that I visit them [with My favor], says the Lord. Then I will bring them back and restore them to this place.

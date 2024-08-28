@@ -171,7 +171,7 @@ Dapat ninyong pahalagahan ang pag-aasawa, at dapat ninyong iwasan ang pangangalu
 
 
 
-Iwasan nʼyo ang pagiging sakim sa salapi. Maging kontento kayo sa anumang nasa inyo, sapagkat sinabi ng Dios, "Hinding-hindi ko kayo iiwan o pababayaan man."[^a] 
+Iwasan nʼyo ang pagiging sakim sa salapi. Maging kontento kayo sa anumang nasa inyo, sapagkat sinabi ng Dios, "Hinding-hindi ko kayo iiwan o pababayaan man." 
 
 
 
@@ -204,7 +204,7 @@ Iwasan nʼyo ang pagiging sakim sa salapi. Maging kontento kayo sa anumang nasa 
 
 
 
-Kaya buong pagtitiwalang masasabi natin, "Ang Panginoon ang tumutulong sa akin, kaya hindi ako matatakot. Ano ang magagawa ng tao laban sa akin?"[^b] 
+Kaya buong pagtitiwalang masasabi natin, "Ang Panginoon ang tumutulong sa akin, kaya hindi ako matatakot. Ano ang magagawa ng tao laban sa akin?" 
 
 
 
@@ -798,7 +798,7 @@ Gusto ko ring malaman nʼyo na pinalaya na sa bilangguan ang kapatid nating si T
 
 
 
-Ikumusta nʼyo kami sa mga namumuno sa inyo at sa lahat ng mga pinabanal[^c] <i class="trans-change">ng Dios_. Kinukumusta kayo ng mga kapatid nating taga-Italia. 
+Ikumusta nʼyo kami sa mga namumuno sa inyo at sa lahat ng mga pinabanal <i class="trans-change">ng Dios_. Kinukumusta kayo ng mga kapatid nating taga-Italia. 
 
 
 

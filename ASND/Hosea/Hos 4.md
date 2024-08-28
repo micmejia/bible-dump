@@ -172,7 +172,7 @@ Dahil dito, natutuyo ang inyong lupain at ang mga naninirahan doon ay namamatay,
 
 
 
-Kayo at ang mga propeta ay mapapahamak sa araw man o sa gabi pati ang inyong mga ina.[^a] 
+Kayo at ang mga propeta ay mapapahamak sa araw man o sa gabi pati ang inyong mga ina. 
 
 
 
@@ -238,7 +238,7 @@ Kayo at ang mga propeta ay mapapahamak sa araw man o sa gabi pati ang inyong mga
 
 
 
-Habang dumarami kayong mga pari, dumarami rin ang mga kasalanan ninyo sa akin. Kaya ang inyong ipinagmamalaki ay gagawin kong kahihiyan.[^b] 
+Habang dumarami kayong mga pari, dumarami rin ang mga kasalanan ninyo sa akin. Kaya ang inyong ipinagmamalaki ay gagawin kong kahihiyan. 
 
 
 
@@ -271,7 +271,7 @@ Habang dumarami kayong mga pari, dumarami rin ang mga kasalanan ninyo sa akin. K
 
 
 
-Gusto ninyong magkasala ang aking mga mamamayan para makakain kayo mula sa kanilang mga handog sa paglilinis.[^c] 
+Gusto ninyong magkasala ang aking mga mamamayan para makakain kayo mula sa kanilang mga handog sa paglilinis. 
 
 
 
@@ -304,7 +304,7 @@ Gusto ninyong magkasala ang aking mga mamamayan para makakain kayo mula sa kanil
 
 
 
-Kaya kung paano ko parurusahan ang mga mamamayan, parurusahan ko rin kayong mga pari.[^d] Parurusahan ko kayo dahil sa inyong mga gawa. 
+Kaya kung paano ko parurusahan ang mga mamamayan, parurusahan ko rin kayong mga pari. Parurusahan ko kayo dahil sa inyong mga gawa. 
 
 
 
@@ -337,7 +337,7 @@ Kaya kung paano ko parurusahan ang mga mamamayan, parurusahan ko rin kayong mga 
 
 
 
-Kumakain nga kayo pero hindi kayo nabubusog. Sumasamba kayo sa mga dios-diosan[^e] para magkaanak kayo. Pero hindi kayo magkakaanak dahil itinakwil ninyo ako 
+Kumakain nga kayo pero hindi kayo nabubusog. Sumasamba kayo sa mga dios-diosan para magkaanak kayo. Pero hindi kayo magkakaanak dahil itinakwil ninyo ako 
 
 
 
@@ -502,7 +502,7 @@ Pero hindi ko sila parurusahan sa kanilang ginagawang masama, dahil kayong mga l
 
 
 
-"Mga taga-Israel, kahit na akoʼy tinalikuran ninyo tulad ng babaeng nangalunya, huwag na ninyong idamay ang mga taga-Juda. "At kayong mga taga-Juda, huwag kayong pumunta sa Gilgal at sa Bet Aven[^f] para sumamba sa akin o gumawa ng mga pangako sa aking pangalan. 
+"Mga taga-Israel, kahit na akoʼy tinalikuran ninyo tulad ng babaeng nangalunya, huwag na ninyong idamay ang mga taga-Juda. "At kayong mga taga-Juda, huwag kayong pumunta sa Gilgal at sa Bet Aven para sumamba sa akin o gumawa ng mga pangako sa aking pangalan. 
 
 
 
@@ -568,7 +568,7 @@ Sapagkat matigas ang ulo ng mga taga-Israel katulad ng dumalagang baka na ayaw s
 
 
 
-Sumamba sila[^g] sa mga dios-diosan kaya pabayaan <i class="trans-change">na lang_ sila. 
+Sumamba sila sa mga dios-diosan kaya pabayaan <i class="trans-change">na lang_ sila. 
 
 
 

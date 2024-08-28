@@ -733,7 +733,7 @@ Sinabing muli sa akin ng Panginoon,
 
 
 
-"Anak ng tao, sabihin mo sa mga Israelita na dahil ayaw nilang linisin ko sila, hindi ko sila kaaawaan[^a] sa araw na ibuhos ko sa kanila ang aking galit. 
+"Anak ng tao, sabihin mo sa mga Israelita na dahil ayaw nilang linisin ko sila, hindi ko sila kaaawaan sa araw na ibuhos ko sa kanila ang aking galit. 
 
 
 

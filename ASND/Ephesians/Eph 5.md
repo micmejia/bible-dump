@@ -667,7 +667,7 @@ Huwag kayong maglalasing dahil nakakasira ito ng maayos na pamumuhay. Sa halip, 
 
 
 
-Lagi kayong magpasalamat sa Dios Ama sa lahat ng bagay bilang mananampalataya ng ating Panginoong Jesu-Cristo.[^a] ## Aral sa mga Mag-asawa 
+Lagi kayong magpasalamat sa Dios Ama sa lahat ng bagay bilang mananampalataya ng ating Panginoong Jesu-Cristo. ## Aral sa mga Mag-asawa 
 
 
 
@@ -964,7 +964,7 @@ Kaya dapat mahalin ng lalaki ang asawa niya tulad ng pagmamahal niya sa kanyang 
 
 
 
-<i class="trans-change">Sinasabi sa Kasulatan,_ "Iiwan ng lalaki ang kanyang amaʼt ina at makikipag-isa sa kanyang asawa, at silang dalawa ay magiging isa."[^b] 
+<i class="trans-change">Sinasabi sa Kasulatan,_ "Iiwan ng lalaki ang kanyang amaʼt ina at makikipag-isa sa kanyang asawa, at silang dalawa ay magiging isa." 
 
 
 

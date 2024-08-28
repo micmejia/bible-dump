@@ -436,7 +436,7 @@ Nang marinig ito ni Jesus, sinabi niya sa kanila, "Hindi ang mga walang sakit an
 
 
 
-Umalis na kayo at pag-isipan nʼyo kung ano ang <i class="trans-change">kahulugan ng sinasabing ito ng Kasulatan_: 'Hindi ang handog <i class="trans-change">ninyo_ ang hinahangad ko kundi ang maging maawain <i class="trans-change">kayo_.'[^a] Sapagkat naparito ako hindi upang tawagin ang mga taong matuwid <i class="trans-change">sa kanilang sariling paningin_, kundi ang mga makasalanan." ## Ang Tanong tungkol sa Pag-aayuno 
+Umalis na kayo at pag-isipan nʼyo kung ano ang <i class="trans-change">kahulugan ng sinasabing ito ng Kasulatan_: 'Hindi ang handog <i class="trans-change">ninyo_ ang hinahangad ko kundi ang maging maawain <i class="trans-change">kayo_.' Sapagkat naparito ako hindi upang tawagin ang mga taong matuwid <i class="trans-change">sa kanilang sariling paningin_, kundi ang mga makasalanan." ## Ang Tanong tungkol sa Pag-aayuno 
 
 
 
@@ -535,7 +535,7 @@ Sumagot si Jesus, "Maaari bang magdalamhati ang mga panauhin sa kasalan habang k
 
 
 
-<i class="trans-change">Sinabi pa ni Jesus,_ "Walang nagtatagpi ng bagong tela sa lumang damit, dahil <i class="trans-change">kapag nilabhan_ uurong[^b] ang bagong tela at lalo pang lalaki ang punit. 
+<i class="trans-change">Sinabi pa ni Jesus,_ "Walang nagtatagpi ng bagong tela sa lumang damit, dahil <i class="trans-change">kapag nilabhan_ uurong ang bagong tela at lalo pang lalaki ang punit. 
 
 
 
@@ -667,7 +667,7 @@ Kaya tumayo si Jesus at sumama sa kanya, pati na rin ang mga tagasunod niya.
 
 
 
-Habang naglalakad sila, lumapit sa likuran ni Jesus ang isang babae na 12 taon nang dinudugo, at hinipo niya ang laylayan[^c] ng damit ni Jesus. 
+Habang naglalakad sila, lumapit sa likuran ni Jesus ang isang babae na 12 taon nang dinudugo, at hinipo niya ang laylayan ng damit ni Jesus. 
 
 
 
@@ -733,7 +733,7 @@ Sapagkat sinabi ng babae sa kanyang sarili, "Mahipo ko lang ang damit niya ay ga
 
 
 
-Lumingon si Jesus at pagkakita sa babae ay sinabi, "Anak, lakasan mo ang loob mo. Pinagaling[^d] ka ng iyong pananampalataya." At gumaling nga ang babae nang sandaling iyon. 
+Lumingon si Jesus at pagkakita sa babae ay sinabi, "Anak, lakasan mo ang loob mo. Pinagaling ka ng iyong pananampalataya." At gumaling nga ang babae nang sandaling iyon. 
 
 
 
@@ -898,7 +898,7 @@ Kumalat ang balitang ito sa buong lugar na iyon. ## Pinagaling ni Jesus ang Dala
 
 
 
-Pagkaalis ni Jesus sa lugar na iyon, sumunod sa kanya ang dalawang bulag na sumisigaw, "Anak ni David,[^e] maawa po kayo sa amin!" 
+Pagkaalis ni Jesus sa lugar na iyon, sumunod sa kanya ang dalawang bulag na sumisigaw, "Anak ni David, maawa po kayo sa amin!" 
 
 
 

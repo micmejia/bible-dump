@@ -70,7 +70,7 @@ And He went without food for forty days and forty nights, and later He was hungr
 
 
 
-And the tempter came and said to Him, If You are God's Son, command these stones to be made [[^a]loaves of] bread. 
+And the tempter came and said to Him, If You are God's Son, command these stones to be made [loaves of] bread. 
 
 
 
@@ -112,7 +112,7 @@ But He replied, It has been written, Man shall not live _and_ be upheld _and_ su
 
 
 
-Then the devil took Him into the holy city and placed Him on [^b]a turret (pinnacle, [^c]gable) of the temple [^d]sanctuary. 
+Then the devil took Him into the holy city and placed Him on a turret (pinnacle, gable) of the temple sanctuary. 
 
 
 
@@ -154,7 +154,7 @@ And he said to Him, If You are the Son of God, throw Yourself down; for it is wr
 
 
 
-Jesus said to him, [^e]On the other hand, it is written also, You shall not tempt, [^f]test thoroughly, _or_ [^g]try exceedingly the Lord your God. 
+Jesus said to him, On the other hand, it is written also, You shall not tempt, test thoroughly, _or_ try exceedingly the Lord your God. 
 
 
 
@@ -322,7 +322,7 @@ That what was spoken by the prophet Isaiah might be brought to pass:
 
 
 
-The land of Zebulun and the land of Naphtali, in the [^h]way to the sea, beyond the Jordan, Galilee of the Gentiles [of the [^i]peoples who are not of Israel]-- 
+The land of Zebulun and the land of Naphtali, in the way to the sea, beyond the Jordan, Galilee of the Gentiles [of the peoples who are not of Israel]-- 
 
 
 
@@ -343,7 +343,7 @@ The land of Zebulun and the land of Naphtali, in the [^h]way to the sea, beyond 
 
 
 
-The people who sat [^j](dwelt enveloped) in darkness have seen a great Light, and for those who sat in the land and shadow of death Light has dawned. 
+The people who sat (dwelt enveloped) in darkness have seen a great Light, and for those who sat in the land and shadow of death Light has dawned. 
 
 
 
@@ -364,7 +364,7 @@ The people who sat [^j](dwelt enveloped) in darkness have seen a great Light, an
 
 
 
-From that time Jesus began to preach, [^k]crying out, Repent ([^l]change your mind for the better, heartily amend your ways, with abhorrence of your past sins), for the kingdom of heaven is at hand. 
+From that time Jesus began to preach, crying out, Repent (change your mind for the better, heartily amend your ways, with abhorrence of your past sins), for the kingdom of heaven is at hand. 
 
 
 
@@ -406,7 +406,7 @@ As He was walking by the Sea of Galilee, He noticed two brothers, Simon who is c
 
 
 
-And He said to them, Come [^m]after Me [as disciples--letting Me be your Guide], follow Me, and I will make you fishers of men! 
+And He said to them, Come after Me [as disciples--letting Me be your Guide], follow Me, and I will make you fishers of men! 
 
 
 
@@ -427,7 +427,7 @@ And He said to them, Come [^m]after Me [as disciples--letting Me be your Guide],
 
 
 
-At once they left their nets and [^n]became His disciples [sided with His party and followed Him]. 
+At once they left their nets and became His disciples [sided with His party and followed Him]. 
 
 
 
@@ -469,7 +469,7 @@ And going on further from there He noticed two other brothers, James son of Zebe
 
 
 
-At once they left the boat and their father and [^o]joined Jesus as disciples [sided with His party and followed Him]. 
+At once they left the boat and their father and joined Jesus as disciples [sided with His party and followed Him]. 
 
 
 

@@ -10,7 +10,7 @@ next: ['Esth 6']
 
 
 ###### 1 
-Now it happened on the third day that Esther put on _her_ royal _robes_ and stood in the inner court of the king's palace, across from the king's house, while the king sat on his royal throne in the royal house, facing the entrance of the [^a]house. 
+Now it happened on the third day that Esther put on _her_ royal _robes_ and stood in the inner court of the king's palace, across from the king's house, while the king sat on his royal throne in the royal house, facing the entrance of the house. 
 
 ###### 2 
 So it was, when the king saw Queen Esther standing in the court, _that_ she found favor in his sight, and the king held out to Esther the golden scepter that _was_ in his hand. Then Esther went near and touched the top of the scepter. 
@@ -31,7 +31,7 @@ At the banquet of wine the king said to Esther, "What _is_ your petition? It sha
 Then Esther answered and said, "My petition and request _is this:_ 
 
 ###### 8 
-If I have found favor in the sight of the king, and if it pleases the king to grant my petition and [^b]fulfill my request, then let the king and Haman come to the banquet which I will prepare for them, and tomorrow I will do as the king has said." ## Haman's Plot Against Mordecai 
+If I have found favor in the sight of the king, and if it pleases the king to grant my petition and fulfill my request, then let the king and Haman come to the banquet which I will prepare for them, and tomorrow I will do as the king has said." ## Haman's Plot Against Mordecai 
 
 ###### 9 
 So Haman went out that day joyful and with a glad heart; but when Haman saw Mordecai in the king's gate, and that he did not stand or tremble before him, he was filled with indignation against Mordecai. 
@@ -49,4 +49,4 @@ Moreover Haman said, "Besides, Queen Esther invited no one but me to come in wit
 Yet all this avails me nothing, so long as I see Mordecai the Jew sitting at the king's gate." 
 
 ###### 14 
-Then his wife Zeresh and all his friends said to him, "Let a gallows[^c] be made, [^d]fifty cubits high, and in the morning suggest to the king that Mordecai be hanged on it; then go merrily with the king to the banquet." And the thing pleased Haman; so he had the gallows made.
+Then his wife Zeresh and all his friends said to him, "Let a gallows be made, fifty cubits high, and in the morning suggest to the king that Mordecai be hanged on it; then go merrily with the king to the banquet." And the thing pleased Haman; so he had the gallows made.

@@ -532,7 +532,7 @@ And Jacob was left alone, and a Man wrestled with him until daybreak.
 
 
 
-And when [the [^a]Man] saw that He did not prevail against [Jacob], He touched the hollow of his thigh; and Jacob's thigh was put out of joint as he wrestled with Him. 
+And when [the Man] saw that He did not prevail against [Jacob], He touched the hollow of his thigh; and Jacob's thigh was put out of joint as he wrestled with Him. 
 
 
 
@@ -616,7 +616,7 @@ And He said, Your name shall be called no more Jacob [supplanter], but Israel [c
 
 
 
-Then Jacob asked Him, Tell me, I pray You, what [in contrast] is Your name? But He said, Why is it that you ask My name? And [^b][the Angel of God declared] a blessing on [Jacob] there. 
+Then Jacob asked Him, Tell me, I pray You, what [in contrast] is Your name? But He said, Why is it that you ask My name? And [the Angel of God declared] a blessing on [Jacob] there. 
 
 
 

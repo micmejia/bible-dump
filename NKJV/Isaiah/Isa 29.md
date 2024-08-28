@@ -10,7 +10,7 @@ next: ['Isa 30']
 
 
 ###### 1 
-"Woe to [^a]Ariel, to Ariel, the city _where_ David dwelt! Add year to year; Let feasts come around. 
+"Woe to Ariel, to Ariel, the city _where_ David dwelt! Add year to year; Let feasts come around. 
 
 ###### 2 
 Yet I will distress Ariel; There shall be heaviness and sorrow, And it shall be to Me as Ariel. 
@@ -28,7 +28,7 @@ You shall be brought down, You shall speak out of the ground; Your speech shall 
 You will be punished by the Lord of hosts With thunder and earthquake and great noise, _With_ storm and tempest And the flame of devouring fire. 
 
 ###### 7 
-The multitude of all the nations who fight against [^b]Ariel, Even all who fight against her and her fortress, And distress her, Shall be as a dream of a night vision. 
+The multitude of all the nations who fight against Ariel, Even all who fight against her and her fortress, And distress her, Shall be as a dream of a night vision. 
 
 ###### 8 
 It shall even be as when a hungry man dreams, And look--he eats; But he awakes, and his soul is still empty; Or as when a thirsty man dreams, And look--he drinks; But he awakes, and indeed _he is_ faint, And his soul still craves: So the multitude of all the nations shall be, Who fight against Mount Zion." ## The Blindness of Disobedience 
@@ -40,10 +40,10 @@ Pause and wonder! Blind yourselves and be blind! They are drunk, but not with wi
 For the Lord has poured out on you The spirit of deep sleep, And has closed your eyes, namely, the prophets; And He has covered your heads, _namely,_ the seers. 
 
 ###### 11 
-The whole vision has become to you like the words of a [^c]book that is sealed, which _men_ deliver to one who is literate, saying, "Read this, please." And he says, "I cannot, for it _is_ sealed." 
+The whole vision has become to you like the words of a book that is sealed, which _men_ deliver to one who is literate, saying, "Read this, please." And he says, "I cannot, for it _is_ sealed." 
 
 ###### 12 
-Then the book is delivered to one who [^d]is illiterate, saying, "Read this, please." And he says, "I am not literate." 
+Then the book is delivered to one who is illiterate, saying, "Read this, please." And he says, "I am not literate." 
 
 ###### 13 
 Therefore the Lord said: "Inasmuch as these people draw near with their mouths And honor Me with their lips, But have removed their hearts far from Me, And their fear toward Me is taught by the commandment of men, 
@@ -67,7 +67,7 @@ In that day the deaf shall hear the words of the book, And the eyes of the blind
 The humble also shall increase _their_ joy in the Lord, And the poor among men shall rejoice In the Holy One of Israel. 
 
 ###### 20 
-For the [^e]terrible one is brought to nothing, The scornful one is consumed, And all who watch for iniquity are cut off-- 
+For the terrible one is brought to nothing, The scornful one is consumed, And all who watch for iniquity are cut off-- 
 
 ###### 21 
 Who make a man an offender by a word, And lay a snare for him who reproves in the gate, And turn aside the just by empty words. 

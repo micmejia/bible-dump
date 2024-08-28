@@ -304,7 +304,7 @@ Kaya kinuha nʼyo kami sa Egipto, Panginoon na aming Dios, sa pamamagitan ng dak
 
 
 
-Dinala nʼyo kami sa lugar na ito, at ibinigay sa amin ang maganda at masaganang lupain[^a] na ito. 
+Dinala nʼyo kami sa lugar na ito, at ibinigay sa amin ang maganda at masaganang lupain na ito. 
 
 
 

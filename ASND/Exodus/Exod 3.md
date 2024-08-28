@@ -40,7 +40,7 @@ next: ['Exod 4']
 
 
 
-Isang araw, binabantayan ni Moises ang mga hayop ng biyenan niyang si Jetro[^a] na pari ng Midian. Dinala ni Moises ang mga hayop malapit sa ilang at nakarating siya sa Horeb,[^b] ang bundok ng Dios. 
+Isang araw, binabantayan ni Moises ang mga hayop ng biyenan niyang si Jetro na pari ng Midian. Dinala ni Moises ang mga hayop malapit sa ilang at nakarating siya sa Horeb, ang bundok ng Dios. 
 
 
 
@@ -271,7 +271,7 @@ Pagkatapos, sinabi ng Panginoon, "Nakita ko ang paghihirap ng aking mga mamamaya
 
 
 
-Kaya bumaba ako para iligtas sila sa kamay ng mga Egipcio, at para dalhin sila sa mayaman, malawak at masaganang lupain[^c] na tinitirhan ngayon ng mga Cananeo, Heteo, Amoreo, Perezeo, Hiveo at mga Jebuseo. 
+Kaya bumaba ako para iligtas sila sa kamay ng mga Egipcio, at para dalhin sila sa mayaman, malawak at masaganang lupain na tinitirhan ngayon ng mga Cananeo, Heteo, Amoreo, Perezeo, Hiveo at mga Jebuseo. 
 
 
 
@@ -469,7 +469,7 @@ Sinabi ni Moises sa Dios, "Kung sakali pong pumunta ako ngayon sa mga Israelita 
 
 
 
-Sumagot ang Dios kay Moises, "Ako nga ang <i class="trans-change">Dios na_ ganoon pa rin.[^d] Ito ang isagot mo sa kanila: 'Ang Dios na ganoon pa rin ang nagpadala sa akin.' " 
+Sumagot ang Dios kay Moises, "Ako nga ang <i class="trans-change">Dios na_ ganoon pa rin. Ito ang isagot mo sa kanila: 'Ang Dios na ganoon pa rin ang nagpadala sa akin.' " 
 
 
 
@@ -502,7 +502,7 @@ Sumagot ang Dios kay Moises, "Ako nga ang <i class="trans-change">Dios na_ ganoo
 
 
 
-Sinabi pa ng Dios kay Moises, "Sabihin mo ito sa mga Israelita: 'Ang Panginoon,[^e] ang Dios ng inyong mga ninuno na sina Abraham, Isaac, at Jacob, ang nagpadala sa akin sa inyo.' Kikilalanin ako sa pangalang Panginoon magpakailanman." 
+Sinabi pa ng Dios kay Moises, "Sabihin mo ito sa mga Israelita: 'Ang Panginoon, ang Dios ng inyong mga ninuno na sina Abraham, Isaac, at Jacob, ang nagpadala sa akin sa inyo.' Kikilalanin ako sa pangalang Panginoon magpakailanman." 
 
 
 

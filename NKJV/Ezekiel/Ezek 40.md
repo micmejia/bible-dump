@@ -10,7 +10,7 @@ next: ['Ezek 41']
 
 
 ###### 1 
-In the twenty-fifth year of our captivity, at the beginning of the year, on the tenth _day_ of the month, in the fourteenth year after the city was [^a]captured, on the very same day the hand of the Lord was upon me; and He took me there. 
+In the twenty-fifth year of our captivity, at the beginning of the year, on the tenth _day_ of the month, in the fourteenth year after the city was captured, on the very same day the hand of the Lord was upon me; and He took me there. 
 
 ###### 2 
 In the visions of God He took me into the land of Israel and set me on a very high mountain; on it toward the south _was_ something like the structure of a city. 
@@ -19,10 +19,10 @@ In the visions of God He took me into the land of Israel and set me on a very hi
 He took me there, and behold, _there was_ a man whose appearance _was_ like the appearance of bronze. He had a line of flax and a measuring rod in his hand, and he stood in the gateway. 
 
 ###### 4 
-And the man said to me, "Son of man, look with your eyes and hear with your ears, and [^b]fix your mind on everything I show you; for you _were_ brought here so that I might show _them_ to you. Declare to the house of Israel everything you see." 
+And the man said to me, "Son of man, look with your eyes and hear with your ears, and fix your mind on everything I show you; for you _were_ brought here so that I might show _them_ to you. Declare to the house of Israel everything you see." 
 
 ###### 5 
-Now there was a wall all around the outside of the [^c]temple. In the man's hand was a measuring rod six [^d]cubits _long, each being a_ cubit and a handbreadth; and he measured the width of the wall structure, one rod; and the height, one rod. ## The Eastern Gateway of the Temple 
+Now there was a wall all around the outside of the temple. In the man's hand was a measuring rod six cubits _long, each being a_ cubit and a handbreadth; and he measured the width of the wall structure, one rod; and the height, one rod. ## The Eastern Gateway of the Temple 
 
 ###### 6 
 Then he went to the gateway which faced east; and he went up its stairs and measured the threshold of the gateway, _which was_ one rod wide, and the other threshold _was_ one rod wide. 
@@ -43,7 +43,7 @@ In the eastern gateway _were_ three gate chambers on one side and three on the o
 He measured the width of the entrance to the gateway, ten cubits; _and_ the length of the gate, thirteen cubits. 
 
 ###### 12 
-_There was_ a [^e]space in front of the gate chambers, one cubit _on this side_ and one cubit on that side; the gate chambers _were_ six cubits on this side and six cubits on that side. 
+_There was_ a space in front of the gate chambers, one cubit _on this side_ and one cubit on that side; the gate chambers _were_ six cubits on this side and six cubits on that side. 
 
 ###### 13 
 Then he measured the gateway from the roof of _one_ gate chamber to the roof of the other; the width _was_ twenty-five cubits, as door faces door. 
@@ -139,7 +139,7 @@ _There were_ also four tables of hewn stone for the burnt offering, one cubit an
 Inside _were_ hooks, a handbreadth wide, fastened all around; and the flesh of the sacrifices _was_ on the tables. ## Chambers for Singers and Priests 
 
 ###### 44 
-Outside the inner gate _were_ the chambers for the singers in the inner court, one facing south at the side of the northern gateway, and the other facing north at the side of the [^f]southern gateway. 
+Outside the inner gate _were_ the chambers for the singers in the inner court, one facing south at the side of the northern gateway, and the other facing north at the side of the southern gateway. 
 
 ###### 45 
 Then he said to me, "This chamber which faces south _is_ for the priests who have charge of the temple. 

@@ -28,7 +28,7 @@ next: ['Eph 4']
 
 
 
-For this reason [[^a]because I preached that you are thus built up together], I, Paul, [am] the prisoner of Jesus the Christ [^b]for the sake _and_ on behalf of you Gentiles-- 
+For this reason [because I preached that you are thus built up together], I, Paul, [am] the prisoner of Jesus the Christ for the sake _and_ on behalf of you Gentiles-- 
 
 
 
@@ -217,7 +217,7 @@ Also to enlighten all men _and_ make plain to them what is the plan [regarding t
 
 
 
-[The purpose is] that through the church the [^c]complicated, many-sided wisdom of God in all its infinite variety _and_ innumerable aspects might now be made known to the angelic rulers and authorities (principalities and powers) in the heavenly sphere. 
+[The purpose is] that through the church the complicated, many-sided wisdom of God in all its infinite variety _and_ innumerable aspects might now be made known to the angelic rulers and authorities (principalities and powers) in the heavenly sphere. 
 
 
 
@@ -301,7 +301,7 @@ So I ask you not to lose heart [not to faint or become despondent through fear] 
 
 
 
-For this reason [[^d]seeing the greatness of this plan by which you are built together in Christ], I bow my knees before the Father _of our Lord Jesus Christ_, 
+For this reason [seeing the greatness of this plan by which you are built together in Christ], I bow my knees before the Father _of our Lord Jesus Christ_, 
 
 
 
@@ -406,7 +406,7 @@ That you may have the power _and_ be strong to apprehend _and_ grasp with all th
 
 
 
-[That you may really come] to know [practically, [^e]through experience for yourselves] the love of Christ, which far surpasses [^f]mere knowledge [without experience]; that you may be filled [through all your being] [^g]unto all the fullness of God [may have the richest measure of the divine Presence, and [^h]become a body wholly filled and flooded with God Himself]! 
+[That you may really come] to know [practically, through experience for yourselves] the love of Christ, which far surpasses mere knowledge [without experience]; that you may be filled [through all your being] unto all the fullness of God [may have the richest measure of the divine Presence, and become a body wholly filled and flooded with God Himself]! 
 
 
 

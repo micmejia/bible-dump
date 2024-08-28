@@ -39,7 +39,7 @@ next: ['Titus 2']
 
 
 
-<i class="trans-change">Mula kay_ Pablo, na lingkod[^a] ng Dios at apostol ni Jesu-Cristo. Sinugo ako ng Dios upang patibayin ang pananampalataya ng kanyang mga pinili, at ipaunawa sa kanila ang katotohanan tungkol sa uri ng buhay na katanggap-tanggap sa kanya. 
+<i class="trans-change">Mula kay_ Pablo, na lingkod ng Dios at apostol ni Jesu-Cristo. Sinugo ako ng Dios upang patibayin ang pananampalataya ng kanyang mga pinili, at ipaunawa sa kanila ang katotohanan tungkol sa uri ng buhay na katanggap-tanggap sa kanya. 
 
 
 
@@ -204,7 +204,7 @@ Iniwan kita sa Crete upang tapusin ang mga gawaing hindi ko natapos, gaya ng bil
 
 
 
-<i class="trans-change">Piliin mo_ ang may magandang reputasyon,[^b] isa lang ang asawa, ang mga anak ay mananampalataya at hindi napaparatangang magulo o matigas ang ulo. 
+<i class="trans-change">Piliin mo_ ang may magandang reputasyon, isa lang ang asawa, ang mga anak ay mananampalataya at hindi napaparatangang magulo o matigas ang ulo. 
 
 
 
@@ -270,7 +270,7 @@ Sapagkat kailangang maganda ang reputasyon ng isang namumuno bilang tagapangasiw
 
 
 
-Sa halip ay dapat bukas ang kanyang tahanan sa kapwa, maibigin sa kabutihan, marunong magpasya kung ano ang nararapat,[^c] matuwid, banal at marunong magpigil sa sarili. 
+Sa halip ay dapat bukas ang kanyang tahanan sa kapwa, maibigin sa kabutihan, marunong magpasya kung ano ang nararapat, matuwid, banal at marunong magpigil sa sarili. 
 
 
 

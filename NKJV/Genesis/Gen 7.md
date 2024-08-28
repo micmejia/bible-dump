@@ -16,10 +16,10 @@ Then the Lord said to Noah, "Come into the ark, you and all your household, beca
 You shall take with you seven each of every clean animal, a male and his female; two each of animals that _are_ unclean, a male and his female; 
 
 ###### 3 
-also seven each of birds of the air, male and female, to keep [^a]the species alive on the face of all the earth. 
+also seven each of birds of the air, male and female, to keep the species alive on the face of all the earth. 
 
 ###### 4 
-For after seven more days I will cause it to rain on the earth forty days and forty nights, and I will [^b]destroy from the face of the earth all living things that I have made." 
+For after seven more days I will cause it to rain on the earth forty days and forty nights, and I will destroy from the face of the earth all living things that I have made." 
 
 ###### 5 
 And Noah did according to all that the Lord commanded him. 
@@ -70,10 +70,10 @@ And the waters prevailed exceedingly on the earth, and all the high hills under 
 The waters prevailed fifteen cubits upward, and the mountains were covered. 
 
 ###### 21 
-And all flesh died that moved on [^c]the earth: birds and cattle and beasts and every creeping thing that creeps on the earth, and every man. 
+And all flesh died that moved on the earth: birds and cattle and beasts and every creeping thing that creeps on the earth, and every man. 
 
 ###### 22 
-All in whose nostrils _was_ the breath [^d]of the spirit of life, all that _was_ on the dry _land,_ died. 
+All in whose nostrils _was_ the breath of the spirit of life, all that _was_ on the dry _land,_ died. 
 
 ###### 23 
 So He destroyed all living things which were on the face of the ground: both man and cattle, creeping thing and bird of the air. They were destroyed from the earth. Only Noah and those who _were_ with him in the ark remained _alive._ 

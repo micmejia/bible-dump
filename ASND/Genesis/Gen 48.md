@@ -271,7 +271,7 @@ Naalala ko ang pagkamatay ng iyong ina. Galing kami noon sa Padan Aram at naglal
 
 
 
-Nang makita ni Israel[^a] ang mga anak ni Jose, nagtanong siya, "Sino sila?" 
+Nang makita ni Israel ang mga anak ni Jose, nagtanong siya, "Sino sila?" 
 
 
 

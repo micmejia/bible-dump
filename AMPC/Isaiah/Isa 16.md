@@ -28,7 +28,7 @@ next: ['Isa 17']
 
 
 
-You [Moabites, now fugitives in Edom, which is ruled by the king of Judah] send [^a]lambs to the ruler of the land, from Sela _or_ Petra through the desert _and_ wilderness to the mountain of the Daughter of Zion [Jerusalem]. 
+You [Moabites, now fugitives in Edom, which is ruled by the king of Judah] send lambs to the ruler of the land, from Sela _or_ Petra through the desert _and_ wilderness to the mountain of the Daughter of Zion [Jerusalem]. 
 
 
 
@@ -112,7 +112,7 @@ Let our outcasts of Moab dwell among you; be a sheltered hiding place to them fr
 
 
 
-Then in mercy _and_ loving-kindness shall a throne be established, and [^b] One shall sit upon it in truth _and_ faithfulness in the tent of David, judging and seeking justice and being swift to do righteousness. 
+Then in mercy _and_ loving-kindness shall a throne be established, and  One shall sit upon it in truth _and_ faithfulness in the tent of David, judging and seeking justice and being swift to do righteousness. 
 
 
 
@@ -301,4 +301,4 @@ This is the word that the Lord has spoken concerning Moab since that time [when 
 
 
 
-But now the Lord has spoken, saying, Within [^c]three years, as the years of a hireling [who will not serve longer than the allotted time], the glory of Moab shall be brought into contempt, in spite of all his mighty multitudes of people; and the remnant that survives will be very small, feeble, _and_ of no account.
+But now the Lord has spoken, saying, Within three years, as the years of a hireling [who will not serve longer than the allotted time], the glory of Moab shall be brought into contempt, in spite of all his mighty multitudes of people; and the remnant that survives will be very small, feeble, _and_ of no account.

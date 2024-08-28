@@ -16,7 +16,7 @@ Open your doors, O Lebanon, That fire may devour your cedars.
 Wail, O cypress, for the cedar has fallen, Because the mighty _trees_ are ruined. Wail, O oaks of Bashan, For the thick forest has come down. 
 
 ###### 3 
-_There is_ the sound of wailing shepherds! For their glory is in ruins. _There is_ the sound of roaring lions! For the [^a]pride of the Jordan is in ruins. ## Prophecy of the Shepherds 
+_There is_ the sound of wailing shepherds! For their glory is in ruins. _There is_ the sound of roaring lions! For the pride of the Jordan is in ruins. ## Prophecy of the Shepherds 
 
 ###### 4 
 Thus says the Lord my God, "Feed the flock for slaughter, 
@@ -25,31 +25,31 @@ Thus says the Lord my God, "Feed the flock for slaughter,
 whose owners slaughter them and feel no guilt; those who sell them say, 'Blessed be the Lord, for I am rich'; and their shepherds do not pity them. 
 
 ###### 6 
-For I will no longer pity the inhabitants of the land," says the Lord. "But indeed I will give everyone into his neighbor's hand and into the hand of his king. They shall [^b]attack the land, and I will not deliver _them_ from their hand." 
+For I will no longer pity the inhabitants of the land," says the Lord. "But indeed I will give everyone into his neighbor's hand and into the hand of his king. They shall attack the land, and I will not deliver _them_ from their hand." 
 
 ###### 7 
-So I fed the flock for slaughter, [^c]in particular the poor of the flock. I took for myself two staffs: the one I called [^d]Beauty, and the other I called [^e]Bonds; and I fed the flock. 
+So I fed the flock for slaughter, in particular the poor of the flock. I took for myself two staffs: the one I called Beauty, and the other I called Bonds; and I fed the flock. 
 
 ###### 8 
-I [^f]dismissed the three shepherds in one month. My soul loathed them, and their soul also abhorred me. 
+I dismissed the three shepherds in one month. My soul loathed them, and their soul also abhorred me. 
 
 ###### 9 
 Then I said, "I will not feed you. Let what is dying die, and what is perishing perish. Let those that are left eat each other's flesh." 
 
 ###### 10 
-And I took my staff, [^g]Beauty, and cut it in two, that I might break the covenant which I had made with all the peoples. 
+And I took my staff, Beauty, and cut it in two, that I might break the covenant which I had made with all the peoples. 
 
 ###### 11 
-So it was broken on that day. Thus the[^h] poor of the flock, who were watching me, knew that it _was_ the word of the Lord. 
+So it was broken on that day. Thus the poor of the flock, who were watching me, knew that it _was_ the word of the Lord. 
 
 ###### 12 
-Then I said to them, "If it is [^i]agreeable to you, give _me_ my wages; and if not, refrain." So they weighed out for my wages thirty _pieces_ of silver. 
+Then I said to them, "If it is agreeable to you, give _me_ my wages; and if not, refrain." So they weighed out for my wages thirty _pieces_ of silver. 
 
 ###### 13 
 And the Lord said to me, "Throw it to the potter"--that princely price they set on me. So I took the thirty _pieces_ of silver and threw them into the house of the Lord for the potter. 
 
 ###### 14 
-Then I cut in two my other staff, [^j]Bonds, that I might break the brotherhood between Judah and Israel. 
+Then I cut in two my other staff, Bonds, that I might break the brotherhood between Judah and Israel. 
 
 ###### 15 
 And the Lord said to me, "Next, take for yourself the implements of a foolish shepherd. 

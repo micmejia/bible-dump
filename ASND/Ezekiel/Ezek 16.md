@@ -535,7 +535,7 @@ Naging tanyag ka sa mga bansa dahil sa labis mong kagandahan, at sa karangyaang 
 
 
 
-Ginamit mo ang iba mong damit para pagandahin ang mga sambahan sa matataas na lugar[^a] at dooʼy ipinagamit mo ang iyong sarili sa mga lalaki. Hindi ito dapat nangyari. 
+Ginamit mo ang iba mong damit para pagandahin ang mga sambahan sa matataas na lugar at dooʼy ipinagamit mo ang iyong sarili sa mga lalaki. Hindi ito dapat nangyari. 
 
 
 
@@ -1525,7 +1525,7 @@ Talagang pareho kayo ng iyong ina na nagtakwil ng kanyang asawaʼt mga anak. Ang
 
 
 
-Ang nakatatanda mong kapatid na babae ay ang Samaria sa hilaga kasama ang mga anak niyang babae[^b] at ang nakababata mong kapatid na babae ay ang Sodom sa timog pati na ang mga anak niyang babae. 
+Ang nakatatanda mong kapatid na babae ay ang Samaria sa hilaga kasama ang mga anak niyang babae at ang nakababata mong kapatid na babae ay ang Sodom sa timog pati na ang mga anak niyang babae. 
 
 
 

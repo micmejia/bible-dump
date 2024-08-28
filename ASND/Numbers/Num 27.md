@@ -700,7 +700,7 @@ Ibigay mo sa kanya ang iba mong kapangyarihan upang sundin siya ng buong mamamay
 
 
 
-Kay Eleazar niya malalaman ang aking pasya sa pamamagitan ng paggamit ni Eleazar ng 'Urim'[^a] sa aking presensya. Sa pamamagitan nito, masusubaybayan ni Eleazar si Josue at ang lahat ng mga Israelita sa kanilang gagawin." 
+Kay Eleazar niya malalaman ang aking pasya sa pamamagitan ng paggamit ni Eleazar ng 'Urim' sa aking presensya. Sa pamamagitan nito, masusubaybayan ni Eleazar si Josue at ang lahat ng mga Israelita sa kanilang gagawin." 
 
 
 

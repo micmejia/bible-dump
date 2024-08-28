@@ -40,7 +40,7 @@ next: ['Eccl 6']
 
 
 
-Mag-ingat ka sa ikikilos mo kung pupunta ka sa templo ng Dios. Mas mabuting pumunta ka roon na handang sumunod[^a] sa Dios, kaysa sa maghandog na gaya ng paghahandog ng isang mangmang na hindi alam kung ano ang mabuti at masama. 
+Mag-ingat ka sa ikikilos mo kung pupunta ka sa templo ng Dios. Mas mabuting pumunta ka roon na handang sumunod sa Dios, kaysa sa maghandog na gaya ng paghahandog ng isang mangmang na hindi alam kung ano ang mabuti at masama. 
 
 
 
@@ -205,7 +205,7 @@ Mas mabuti pang huwag ka na lang mangako kaysa mangako ka at hindi mo naman tutu
 
 
 
-Huwag kang magkasala sa iyong pagsasalita. At huwag mong sabihin sa pari[^b] na nasa templo na hindi mo sinasadya ang iyong pangako sa Dios. Dahil magagalit ang Dios kung gagawin mo ito at sisirain niya ang lahat ng pinaghirapan mo. 
+Huwag kang magkasala sa iyong pagsasalita. At huwag mong sabihin sa pari na nasa templo na hindi mo sinasadya ang iyong pangako sa Dios. Dahil magagalit ang Dios kung gagawin mo ito at sisirain niya ang lahat ng pinaghirapan mo. 
 
 
 

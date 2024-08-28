@@ -112,7 +112,7 @@ And the fading flower of its glorious beauty, which is on the head of the rich v
 
 
 
-[But] in that [future [^a]Messianic] day the Lord of hosts shall become a crown of glory and a diadem of beauty to the [converted] remnant of His people, 
+[But] in that [future Messianic] day the Lord of hosts shall become a crown of glory and a diadem of beauty to the [converted] remnant of His people, 
 
 
 
@@ -343,7 +343,7 @@ Because you have said, We have made a covenant with death, and with Sheol (the p
 
 
 
-Therefore thus says the Lord God, Behold, I am laying in Zion for a foundation a Stone, a tested Stone, a precious Cornerstone of sure foundation; he who believes (trusts in, relies on, and adheres to that Stone) will not [^b]_be ashamed or_ give way _or_ hasten away [in sudden panic]. 
+Therefore thus says the Lord God, Behold, I am laying in Zion for a foundation a Stone, a tested Stone, a precious Cornerstone of sure foundation; he who believes (trusts in, relies on, and adheres to that Stone) will not _be ashamed or_ give way _or_ hasten away [in sudden panic]. 
 
 
 

@@ -436,7 +436,7 @@ Tumawid din at nauna sa mga tao ang mga lalaking armado mula sa lahi nina Reuben
 
 
 
-Ang 40,000 armadong lalaki ay dumaan sa presensya ng Panginoon[^a] at pumunta sa Kapatagan ng Jerico para makipaglaban. 
+Ang 40,000 armadong lalaki ay dumaan sa presensya ng Panginoon at pumunta sa Kapatagan ng Jerico para makipaglaban. 
 
 
 

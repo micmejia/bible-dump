@@ -9,31 +9,31 @@ up: ['Nahum']
 
 
 ###### 1 
-Woe to the bloody city! It _is_ all full of lies _and_ robbery. _Its_ [^a]victim never departs. 
+Woe to the bloody city! It _is_ all full of lies _and_ robbery. _Its_ victim never departs. 
 
 ###### 2 
-The noise of a whip And the noise of rattling wheels, Of galloping horses, Of [^b]clattering chariots! 
+The noise of a whip And the noise of rattling wheels, Of galloping horses, Of clattering chariots! 
 
 ###### 3 
 Horsemen charge with bright sword and glittering spear. _There is_ a multitude of slain, A great number of bodies, Countless corpses-- They stumble over the corpses-- 
 
 ###### 4 
-Because of the multitude of [^c]harlotries of the [^d]seductive harlot, The mistress of sorceries, Who sells nations through her harlotries, And families through her sorceries. 
+Because of the multitude of harlotries of the seductive harlot, The mistress of sorceries, Who sells nations through her harlotries, And families through her sorceries. 
 
 ###### 5 
 "Behold, I _am_ against you," says the Lord of hosts; "I will lift your skirts over your face, I will show the nations your nakedness, And the kingdoms your shame. 
 
 ###### 6 
-I will cast abominable filth upon you, Make you vile,[^e] And make you a spectacle. 
+I will cast abominable filth upon you, Make you vile, And make you a spectacle. 
 
 ###### 7 
 It shall come to pass _that_ all who look upon you Will flee from you, and say, 'Nineveh is laid waste! Who will bemoan her?' Where shall I seek comforters for you?" 
 
 ###### 8 
-Are you better than No[^f] Amon _That was_ situated by the [^g]River, That had the waters around her, Whose rampart _was_ the sea, Whose wall _was_ the sea? 
+Are you better than No Amon _That was_ situated by the River, That had the waters around her, Whose rampart _was_ the sea, Whose wall _was_ the sea? 
 
 ###### 9 
-Ethiopia and Egypt _were_ her strength, And _it was_ boundless; Put and Lubim were [^h]your helpers. 
+Ethiopia and Egypt _were_ her strength, And _it was_ boundless; Put and Lubim were your helpers. 
 
 ###### 10 
 Yet she _was_ carried away, She went into captivity; Her young children also were dashed to pieces At the head of every street; They cast lots for her honorable men, And all her great men were bound in chains. 

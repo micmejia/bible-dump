@@ -369,7 +369,7 @@ Pagdating nila sa giikan sa Atad, malapit sa Ilog ng Jordan, nagluksa sila roon 
 
 
 
-Nang makita ng mga Cananeo ang pagdadalamhati nila sa may giikan sa Atad, sinabi nila "Labis ang pagdadalamhati ng mga Egipcio." Kaya ang lugar na iyon na malapit sa Ilog ng Jordan ay tinawag na Abel Mizraim.[^a] 
+Nang makita ng mga Cananeo ang pagdadalamhati nila sa may giikan sa Atad, sinabi nila "Labis ang pagdadalamhati ng mga Egipcio." Kaya ang lugar na iyon na malapit sa Ilog ng Jordan ay tinawag na Abel Mizraim. 
 
 
 

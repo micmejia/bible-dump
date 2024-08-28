@@ -502,7 +502,7 @@ Kung sabagay, hindi naman kayo nakasisiguro kung ang inyong pagsasama ay magigin
 
 
 
-Ang bawat isa sa inyo ay dapat mamuhay ayon sa kalagayan na ibinigay ng Panginoon sa kanya. Dapat manatili siya sa kanyang kalagayan nang tinawag siya ng Dios.[^a] Ito ang iniuutos ko sa lahat ng iglesya. 
+Ang bawat isa sa inyo ay dapat mamuhay ayon sa kalagayan na ibinigay ng Panginoon sa kanya. Dapat manatili siya sa kanyang kalagayan nang tinawag siya ng Dios. Ito ang iniuutos ko sa lahat ng iglesya. 
 
 
 

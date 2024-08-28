@@ -364,7 +364,7 @@ Therefore will the Lord, the Lord of hosts, send leanness among [the Assyrian's]
 
 
 
-And the Light of Israel shall become a fire and His Holy One a flame, and it will [^a]burn and devour [the Assyrian's] thorns and briers in one day. 
+And the Light of Israel shall become a fire and His Holy One a flame, and it will burn and devour [the Assyrian's] thorns and briers in one day. 
 
 
 

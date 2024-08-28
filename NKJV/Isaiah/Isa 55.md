@@ -13,7 +13,7 @@ next: ['Isa 56']
 "Ho! Everyone who thirsts, Come to the waters; And you who have no money, Come, buy and eat. Yes, come, buy wine and milk Without money and without price. 
 
 ###### 2 
-Why do you [^a]spend money for _what is_ not bread, And your wages for _what_ does not satisfy? Listen carefully to Me, and eat _what is_ good, And let your soul delight itself in abundance. 
+Why do you spend money for _what is_ not bread, And your wages for _what_ does not satisfy? Listen carefully to Me, and eat _what is_ good, And let your soul delight itself in abundance. 
 
 ###### 3 
 Incline your ear, and come to Me. Hear, and your soul shall live; And I will make an everlasting covenant with you-- The sure mercies of David. 
@@ -28,7 +28,7 @@ Surely you shall call a nation you do not know, And nations _who_ do not know yo
 Seek the Lord while He may be found, Call upon Him while He is near. 
 
 ###### 7 
-Let the [^b]wicked forsake his way, And the unrighteous man his thoughts; Let him return to the Lord, And He will have mercy on him; And to our God, For He will abundantly pardon. 
+Let the wicked forsake his way, And the unrighteous man his thoughts; Let him return to the Lord, And He will have mercy on him; And to our God, For He will abundantly pardon. 
 
 ###### 8 
 "For My thoughts _are_ not your thoughts, Nor _are_ your ways My ways," says the Lord. 
@@ -40,7 +40,7 @@ Let the [^b]wicked forsake his way, And the unrighteous man his thoughts; Let hi
 "For as the rain comes down, and the snow from heaven, And do not return there, But water the earth, And make it bring forth and bud, That it may give seed to the sower And bread to the eater, 
 
 ###### 11 
-So shall My word be that goes forth from My mouth; It shall not return to Me [^c]void, But it shall accomplish what I please, And it shall prosper _in the thing_ for which I sent it. 
+So shall My word be that goes forth from My mouth; It shall not return to Me void, But it shall accomplish what I please, And it shall prosper _in the thing_ for which I sent it. 
 
 ###### 12 
 "For you shall go out with joy, And be led out with peace; The mountains and the hills Shall break forth into singing before you, And all the trees of the field shall clap _their_ hands. 

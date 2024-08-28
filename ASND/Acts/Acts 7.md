@@ -106,7 +106,7 @@ Sumagot si Esteban, "Mga kapatid at mga magulang, pakinggan ninyo ako. Noong una
 
 
 
-Sinabi ng Dios sa kanya, 'Lisanin mo ang iyong bansa, ang mga kamag-anak mo at pumunta ka sa lugar na ipapakita ko sa iyo.'[^a] 
+Sinabi ng Dios sa kanya, 'Lisanin mo ang iyong bansa, ang mga kamag-anak mo at pumunta ka sa lugar na ipapakita ko sa iyo.' 
 
 
 
@@ -1360,7 +1360,7 @@ Sinabi nila kay Aaron, 'Igawa mo kami ng mga dios na mangunguna sa amin, dahil h
 
 
 
-Pagkatapos, gumawa sila ng dios-diosang kaanyo ng guya.[^b] Naghandog sila rito, at ipinagdiwang nila ang gawa ng sarili nilang mga kamay. 
+Pagkatapos, gumawa sila ng dios-diosang kaanyo ng guya. Naghandog sila rito, at ipinagdiwang nila ang gawa ng sarili nilang mga kamay. 
 
 
 
@@ -1690,7 +1690,7 @@ Sa halip, si Solomon ang nagtayo ng templo ng Dios.
 
 
 
-Walang propeta sa kanilang kapanahunan na hindi nila inusig. Ang mga nagpahayag tungkol sa pagdating ng Matuwid <i class="trans-change">na Lingkod_[^c] ay pinatay nila. At pagdating dito ni Jesus, kayo ang siyang nagkanulo at pumatay sa kanya. 
+Walang propeta sa kanilang kapanahunan na hindi nila inusig. Ang mga nagpahayag tungkol sa pagdating ng Matuwid <i class="trans-change">na Lingkod_ ay pinatay nila. At pagdating dito ni Jesus, kayo ang siyang nagkanulo at pumatay sa kanya. 
 
 
 

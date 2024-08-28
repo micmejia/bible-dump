@@ -91,7 +91,7 @@ And Jesus asked the lawyers and the Pharisees, Is it lawful _and_ right to cure 
 
 
 
-But they kept silent. Then He took hold [of the man] and cured him and [^a]sent him away. 
+But they kept silent. Then He took hold [of the man] and cured him and sent him away. 
 
 
 
@@ -112,7 +112,7 @@ But they kept silent. Then He took hold [of the man] and cured him and [^a]sent 
 
 
 
-And He said to them, Which of you, having a son [^b]_or a donkey_ or an ox that has fallen into a well, will not at once pull him out on the Sabbath day? 
+And He said to them, Which of you, having a son _or a donkey_ or an ox that has fallen into a well, will not at once pull him out on the Sabbath day? 
 
 
 
@@ -301,7 +301,7 @@ But when you give a banquet _or_ a reception, invite the poor, the disabled, the
 
 
 
-Then you will be blessed (happy, fortunate, and [^c]to be envied), because they have no way of repaying you, and you will be recompensed at the resurrection of the just (upright). 
+Then you will be blessed (happy, fortunate, and to be envied), because they have no way of repaying you, and you will be recompensed at the resurrection of the just (upright). 
 
 
 
@@ -322,7 +322,7 @@ Then you will be blessed (happy, fortunate, and [^c]to be envied), because they 
 
 
 
-When one of those who reclined [at the table] with Him heard this, he said to Him, Blessed (happy, fortunate, and [^d]to be envied) is he who shall eat bread in the kingdom of God! 
+When one of those who reclined [at the table] with Him heard this, he said to Him, Blessed (happy, fortunate, and to be envied) is he who shall eat bread in the kingdom of God! 
 
 
 
@@ -406,7 +406,7 @@ But they all alike began to make excuses _and_ to beg off. The first said to him
 
 
 
-And another said, I have bought five yoke of oxen, and I am going to examine _and_ [^e]put my approval on them; I beg you, have me excused. 
+And another said, I have bought five yoke of oxen, and I am going to examine _and_ put my approval on them; I beg you, have me excused. 
 
 
 
@@ -448,7 +448,7 @@ And another said, I have married a wife, and because of this I am unable to come
 
 
 
-So the servant came and reported these [answers] to his master. Then the master of the house said in wrath to his servant, Go quickly into the [^f]great streets and the small streets of the city and bring in here the poor and the disabled and the blind and the lame. 
+So the servant came and reported these [answers] to his master. Then the master of the house said in wrath to his servant, Go quickly into the great streets and the small streets of the city and bring in here the poor and the disabled and the blind and the lame. 
 
 
 
@@ -553,7 +553,7 @@ Now huge crowds were going along with [Jesus], and He turned and said to them,
 
 
 
-If anyone comes to Me and does not hate his [own] father and mother [[^g]in the sense of indifference to or relative disregard for them in comparison with his attitude toward God] and [likewise] his wife and children and brothers and sisters--[yes] and even his own life also--he cannot be My disciple. 
+If anyone comes to Me and does not hate his [own] father and mother [in the sense of indifference to or relative disregard for them in comparison with his attitude toward God] and [likewise] his wife and children and brothers and sisters--[yes] and even his own life also--he cannot be My disciple. 
 
 
 
@@ -595,7 +595,7 @@ Whoever does not persevere _and_ carry his own cross and come after (follow) Me 
 
 
 
-For which of you, wishing to build a [^h]farm building, does not first sit down and calculate the cost [to see] whether he has sufficient means to finish it? 
+For which of you, wishing to build a farm building, does not first sit down and calculate the cost [to see] whether he has sufficient means to finish it? 
 
 
 
@@ -637,7 +637,7 @@ Otherwise, when he has laid the foundation and is unable to complete [the buildi
 
 
 
-Saying, This man began to build and was not able ([^i]worth enough) to finish. 
+Saying, This man began to build and was not able (worth enough) to finish. 
 
 
 
@@ -700,7 +700,7 @@ And if he cannot [do so], when the other king is still a great way off, he sends
 
 
 
-So then, any of you who does not forsake (renounce, surrender claim to, give up, [^j]say good-bye to) all that he has cannot be My disciple. 
+So then, any of you who does not forsake (renounce, surrender claim to, give up, say good-bye to) all that he has cannot be My disciple. 
 
 
 

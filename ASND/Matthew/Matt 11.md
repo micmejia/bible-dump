@@ -205,7 +205,7 @@ Nakakakita ang mga bulag, nakakalakad ang mga lumpo, gumagaling ang mga may malu
 
 
 
-Mapalad ang taong hindi nagdududa[^a] sa akin." 
+Mapalad ang taong hindi nagdududa sa akin." 
 
 
 
@@ -337,7 +337,7 @@ Pumunta kayo roon para makita ang isang propeta, hindi ba? Totoo, isa nga siyang
 
 
 
-Siya ang binabanggit <i class="trans-change">ng Dios_ sa Kasulatan, 'Ipapadala ko ang aking mensahero. Mauuna siya sa iyo upang ihanda ang dadaanan mo.'[^b] 
+Siya ang binabanggit <i class="trans-change">ng Dios_ sa Kasulatan, 'Ipapadala ko ang aking mensahero. Mauuna siya sa iyo upang ihanda ang dadaanan mo.' 
 
 
 
@@ -403,7 +403,7 @@ Sinasabi ko sa inyo ang totoo, walang taong isinilang na mas dakila pa kay Juan.
 
 
 
-Mula nang mangaral si Juan hanggang ngayon, nagpupumilit ang mga tao na mapabilang sa kaharian ng Dios.[^c] 
+Mula nang mangaral si Juan hanggang ngayon, nagpupumilit ang mga tao na mapabilang sa kaharian ng Dios. 
 
 
 
@@ -502,7 +502,7 @@ At kung naniniwala kayo sa mga pahayag nila, si Juan na nga ang Elias na inaasah
 
 
 
-Kayong mga nakikinig, dapat ninyo itong pag-isipan!"[^d] 
+Kayong mga nakikinig, dapat ninyo itong pag-isipan!" 
 
 
 
@@ -568,7 +568,7 @@ Kayong mga nakikinig, dapat ninyo itong pag-isipan!"[^d]
 
 
 
-'Tinugtugan namin kayo <i class="trans-change">ng tugtuging pangkasal_,[^e] pero hindi kayo sumayaw! Umawit kami ng awit para sa patay, pero hindi kayo umiyak!' 
+'Tinugtugan namin kayo <i class="trans-change">ng tugtuging pangkasal_, pero hindi kayo sumayaw! Umawit kami ng awit para sa patay, pero hindi kayo umiyak!' 
 
 
 
@@ -634,7 +634,7 @@ Kayong mga nakikinig, dapat ninyo itong pag-isipan!"[^d]
 
 
 
-At nang dumating naman <i class="trans-change">ako, na_ Anak ng Tao, nakita nilang kumakain ako at umiinom, at sinabi naman nila, 'Ang taong iyan ay matakaw at lasenggo, at kaibigan ng mga maniningil ng buwis at ng iba pang makasalanan.' Ganoon pa man, ang mga taong sumusunod sa kalooban ng Dios ay sumasang-ayon na tama ang ipinapagawa ng Dios sa amin."[^f] ## Babala sa mga Bayang Hindi Nagsisisi 
+At nang dumating naman <i class="trans-change">ako, na_ Anak ng Tao, nakita nilang kumakain ako at umiinom, at sinabi naman nila, 'Ang taong iyan ay matakaw at lasenggo, at kaibigan ng mga maniningil ng buwis at ng iba pang makasalanan.' Ganoon pa man, ang mga taong sumusunod sa kalooban ng Dios ay sumasang-ayon na tama ang ipinapagawa ng Dios sa amin." ## Babala sa mga Bayang Hindi Nagsisisi 
 
 
 
@@ -700,7 +700,7 @@ Pagkatapos, tinuligsa ni Jesus ang mga bayang nakasaksi ng maraming himala na ka
 
 
 
-Sinabi niya, "Nakakaawa kayong mga taga-Corazin! Nakakaawa rin kayong mga taga-Betsaida! Sapagkat kung sa Tyre at Sidon naganap ang mga himalang ginawa ko sa inyo, matagal na sana silang nagsuot ng sako at naglagay ng abo sa kanilang ulo[^g] upang ipakita ang kanilang pagsisisi. 
+Sinabi niya, "Nakakaawa kayong mga taga-Corazin! Nakakaawa rin kayong mga taga-Betsaida! Sapagkat kung sa Tyre at Sidon naganap ang mga himalang ginawa ko sa inyo, matagal na sana silang nagsuot ng sako at naglagay ng abo sa kanilang ulo upang ipakita ang kanilang pagsisisi. 
 
 
 
@@ -766,7 +766,7 @@ Kaya tandaan ninyo na sa Araw ng Paghuhukom, mas mabigat na parusa ang tatanggap
 
 
 
-At kayo namang mga taga-Capernaum, baka akala ninyoʼy papupurihan kayo kahit doon sa langit. Hindi! Ibabagsak kayo sa impyerno![^h] Sapagkat kung sa Sodom nangyari ang mga himalang ginawa sa inyo, nananatili pa sana ang lugar na iyon hanggang ngayon. 
+At kayo namang mga taga-Capernaum, baka akala ninyoʼy papupurihan kayo kahit doon sa langit. Hindi! Ibabagsak kayo sa impyerno! Sapagkat kung sa Sodom nangyari ang mga himalang ginawa sa inyo, nananatili pa sana ang lugar na iyon hanggang ngayon. 
 
 
 

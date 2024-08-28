@@ -72,7 +72,7 @@ Nang pasimula, nilikha ng Dios ang langit at ang lupa.
 
 
 
-Ang mundo noon ay wala pang anyo at wala pang laman. Ang tubig na bumabalot sa mundo ay balot ng kadiliman. At ang Espiritu ng Dios[^a] ay kumikilos sa ibabaw ng mga tubig. 
+Ang mundo noon ay wala pang anyo at wala pang laman. Ang tubig na bumabalot sa mundo ay balot ng kadiliman. At ang Espiritu ng Dios ay kumikilos sa ibabaw ng mga tubig. 
 
 
 
@@ -468,7 +468,7 @@ Lumipas ang gabi at dumating ang umaga. Iyon ang ikatlong araw.
 
 
 
-Pagkatapos, sinabi ng Dios, "Magkaroon ng mga ilaw sa kalangitan para ihiwalay ang araw sa gabi, at magsilbing palatandaan ng pagsisimula ng mga panahon,[^b] araw at taon. 
+Pagkatapos, sinabi ng Dios, "Magkaroon ng mga ilaw sa kalangitan para ihiwalay ang araw sa gabi, at magsilbing palatandaan ng pagsisimula ng mga panahon, araw at taon. 
 
 
 
@@ -600,7 +600,7 @@ Lumipas ang gabi at dumating ang umaga. Iyon ang ikaapat na araw.
 
 
 
-Pagkatapos, sinabi ng Dios, "Magkaroon ng ibaʼt ibang hayop sa tubig at magsilipad ang ibaʼt ibang hayop[^c] sa himpapawid." 
+Pagkatapos, sinabi ng Dios, "Magkaroon ng ibaʼt ibang hayop sa tubig at magsilipad ang ibaʼt ibang hayop sa himpapawid." 
 
 
 

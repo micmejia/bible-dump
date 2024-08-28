@@ -72,7 +72,7 @@ Ito ang salaysay tungkol sa mga ginawa ni Nehemias na anak ni Hacalia. ## Ang Pa
 
 
 
-Doon ay pumunta sa akin ang isa sa mga kapatid ko na si Hanani. Galing siya sa Juda kasama ang ilang kalalakihan. Tinanong ko sila tungkol sa Jerusalem at sa mga Judio na nagsibalik mula sa pagkakabihag[^a] <i class="trans-change">sa Babilonia_. 
+Doon ay pumunta sa akin ang isa sa mga kapatid ko na si Hanani. Galing siya sa Juda kasama ang ilang kalalakihan. Tinanong ko sila tungkol sa Jerusalem at sa mga Judio na nagsibalik mula sa pagkakabihag <i class="trans-change">sa Babilonia_. 
 
 
 

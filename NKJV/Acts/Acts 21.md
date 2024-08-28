@@ -19,7 +19,7 @@ And finding a ship sailing over to Phoenicia, we went aboard and set sail.
 When we had sighted Cyprus, we passed it on the left, sailed to Syria, and landed at Tyre; for there the ship was to unload her cargo. 
 
 ###### 4 
-And finding [^a]disciples, we stayed there seven days. They told Paul through the Spirit not to go up to Jerusalem. 
+And finding disciples, we stayed there seven days. They told Paul through the Spirit not to go up to Jerusalem. 
 
 ###### 5 
 When we had come to the end of those days, we departed and went on our way; and they all accompanied us, with wives and children, till _we were_ out of the city. And we knelt down on the shore and prayed. 
@@ -31,7 +31,7 @@ When we had taken our leave of one another, we boarded the ship, and they return
 And when we had finished _our_ voyage from Tyre, we came to Ptolemais, greeted the brethren, and stayed with them one day. 
 
 ###### 8 
-On the next _day_ we [^b]who were Paul's companions departed and came to Caesarea, and entered the house of Philip the evangelist, who was _one_ of the seven, and stayed with him. 
+On the next _day_ we who were Paul's companions departed and came to Caesarea, and entered the house of Philip the evangelist, who was _one_ of the seven, and stayed with him. 
 
 ###### 9 
 Now this man had four virgin daughters who prophesied. 
@@ -52,7 +52,7 @@ Then Paul answered, "What do you mean by weeping and breaking my heart? For I am
 So when he would not be persuaded, we ceased, saying, "The will of the Lord be done." ## Paul Urged to Make Peace 
 
 ###### 15 
-And after those days we [^c]packed and went up to Jerusalem. 
+And after those days we packed and went up to Jerusalem. 
 
 ###### 16 
 Also some of the disciples from Caesarea went with us and brought with them a certain Mnason of Cyprus, an early disciple, with whom we were to lodge. 
@@ -73,7 +73,7 @@ And when they heard _it,_ they glorified the Lord. And they said to him, "You se
 but they have been informed about you that you teach all the Jews who are among the Gentiles to forsake Moses, saying that they ought not to circumcise _their_ children nor to walk according to the customs. 
 
 ###### 22 
-[^d]What then? The assembly must certainly meet, for they will hear that you have come. 
+What then? The assembly must certainly meet, for they will hear that you have come. 
 
 ###### 23 
 Therefore do what we tell you: We have four men who have taken a vow. 
@@ -82,10 +82,10 @@ Therefore do what we tell you: We have four men who have taken a vow.
 Take them and be purified with them, and pay their expenses so that they may shave _their_ heads, and that all may know that those things of which they were informed concerning you are nothing, but _that_ you yourself also walk orderly and keep the law. 
 
 ###### 25 
-But concerning the Gentiles who believe, we have written _and_ decided [^e]that they should observe no such thing, except that they should keep themselves from _things_ offered to idols, from blood, from things strangled, and from [^f]sexual immorality." ## Arrested in the Temple 
+But concerning the Gentiles who believe, we have written _and_ decided that they should observe no such thing, except that they should keep themselves from _things_ offered to idols, from blood, from things strangled, and from sexual immorality." ## Arrested in the Temple 
 
 ###### 26 
-Then Paul took the men, and the next day, having been purified with them, entered the temple to announce the [^g]expiration of the days of purification, at which time an offering should be made for each one of them. 
+Then Paul took the men, and the next day, having been purified with them, entered the temple to announce the expiration of the days of purification, at which time an offering should be made for each one of them. 
 
 ###### 27 
 Now when the seven days were almost ended, the Jews from Asia, seeing him in the temple, stirred up the whole crowd and laid hands on him, 
@@ -94,13 +94,13 @@ Now when the seven days were almost ended, the Jews from Asia, seeing him in the
 crying out, "Men of Israel, help! This is the man who teaches all _men_ everywhere against the people, the law, and this place; and furthermore he also brought Greeks into the temple and has defiled this holy place." 
 
 ###### 29 
-(For they had [^h]previously seen Trophimus the Ephesian with him in the city, whom they supposed that Paul had brought into the temple.) 
+(For they had previously seen Trophimus the Ephesian with him in the city, whom they supposed that Paul had brought into the temple.) 
 
 ###### 30 
 And all the city was disturbed; and the people ran together, seized Paul, and dragged him out of the temple; and immediately the doors were shut. 
 
 ###### 31 
-Now as they were seeking to kill him, news came to the commander of the [^i]garrison that all Jerusalem was in an uproar. 
+Now as they were seeking to kill him, news came to the commander of the garrison that all Jerusalem was in an uproar. 
 
 ###### 32 
 He immediately took soldiers and centurions, and ran down to them. And when they saw the commander and the soldiers, they stopped beating Paul. 
@@ -124,7 +124,7 @@ Then as Paul was about to be led into the barracks, he said to the commander, "M
 Are you not the Egyptian who some time ago stirred up a rebellion and led the four thousand assassins out into the wilderness?" 
 
 ###### 39 
-But Paul said, "I am a Jew from Tarsus, in Cilicia, a citizen of no [^j]mean city; and I implore you, permit me to speak to the people." 
+But Paul said, "I am a Jew from Tarsus, in Cilicia, a citizen of no mean city; and I implore you, permit me to speak to the people." 
 
 ###### 40 
 So when he had given him permission, Paul stood on the stairs and motioned with his hand to the people. And when there was a great silence, he spoke to _them_ in the Hebrew language, saying,

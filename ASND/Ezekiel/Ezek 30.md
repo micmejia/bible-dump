@@ -139,7 +139,7 @@ Sapagkat malapit nang dumating ang araw na iyon, ang araw ng paghatol ng Pangino
 
 
 
-Sasalakayin ang Egipto at maghihirap ang Etiopia.[^a] Maraming mamamatay na taga-Egipto, sasamsamin ang mga kayamanan nila at wawasakin ito. 
+Sasalakayin ang Egipto at maghihirap ang Etiopia. Maraming mamamatay na taga-Egipto, sasamsamin ang mga kayamanan nila at wawasakin ito. 
 
 
 
@@ -205,7 +205,7 @@ Sa digmaang iyon, mapapatay ang maraming taga-Etiopia, Put, Lydia, Arabia, Libya
 
 
 
-<i class="trans-change">Ako,_ ang Panginoong Dios ay nagsasabing, mapapahamak ang mga kakampi ng Egipto at mababalewala ang ipinagmamalaki niyang kapangyarihan. Mamamatay ang mga mamamayan niya mula sa Migdol hanggang sa Aswan.[^b] 
+<i class="trans-change">Ako,_ ang Panginoong Dios ay nagsasabing, mapapahamak ang mga kakampi ng Egipto at mababalewala ang ipinagmamalaki niyang kapangyarihan. Mamamatay ang mga mamamayan niya mula sa Migdol hanggang sa Aswan. 
 
 
 
@@ -436,7 +436,7 @@ Patutuyuin ko ang <i class="trans-change">Ilog ng_ Nilo at ipapasakop ko ang Egi
 
 
 
-Sinabi pa ng Panginoong Dios, "Wawasakin ko ang mga dios-diosan sa Memfis.[^c] Wala nang mamumuno sa Egipto at tatakutin ko ang mga mamamayan nito. 
+Sinabi pa ng Panginoong Dios, "Wawasakin ko ang mga dios-diosan sa Memfis. Wala nang mamumuno sa Egipto at tatakutin ko ang mga mamamayan nito. 
 
 
 
@@ -469,7 +469,7 @@ Sinabi pa ng Panginoong Dios, "Wawasakin ko ang mga dios-diosan sa Memfis.[^c] W
 
 
 
-Gagawin kong mapanglaw ang Patros, susunugin ko ang Zoan at parurusahan ko ang Tebes.[^d] 
+Gagawin kong mapanglaw ang Patros, susunugin ko ang Zoan at parurusahan ko ang Tebes. 
 
 
 
@@ -502,7 +502,7 @@ Gagawin kong mapanglaw ang Patros, susunugin ko ang Zoan at parurusahan ko ang T
 
 
 
-Ibubuhos ko ang galit ko sa Pelosium,[^e] ang matibay na tanggulan ng Egipto, at papatayin ko ang maraming taga-Tebes. 
+Ibubuhos ko ang galit ko sa Pelosium, ang matibay na tanggulan ng Egipto, at papatayin ko ang maraming taga-Tebes. 
 
 
 
@@ -568,7 +568,7 @@ Susunugin ko ang Egipto! Magtitiis ng hirap ang Pelosium. Mawawasak ang Tebes, a
 
 
 
-Mamamatay sa digmaan ang mga kabataang lalaki ng Heliopolis[^f] at Bubastis,[^g] at ang mga matitirang tao sa mga lungsod na itoʼy bibihagin. 
+Mamamatay sa digmaan ang mga kabataang lalaki ng Heliopolis at Bubastis, at ang mga matitirang tao sa mga lungsod na itoʼy bibihagin. 
 
 
 

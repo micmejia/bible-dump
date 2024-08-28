@@ -10,7 +10,7 @@ next: ['Dan 4']
 
 
 ###### 1 
-Nebuchadnezzar the king made an image of gold, whose height _was_ [^a]sixty cubits _and_ its width six cubits. He set it up in the plain of Dura, in the province of Babylon. 
+Nebuchadnezzar the king made an image of gold, whose height _was_ sixty cubits _and_ its width six cubits. He set it up in the plain of Dura, in the province of Babylon. 
 
 ###### 2 
 And King Nebuchadnezzar sent _word_ to gather together the satraps, the administrators, the governors, the counselors, the treasurers, the judges, the magistrates, and all the officials of the provinces, to come to the dedication of the image which King Nebuchadnezzar had set up. 
@@ -19,7 +19,7 @@ And King Nebuchadnezzar sent _word_ to gather together the satraps, the administ
 So the satraps, the administrators, the governors, the counselors, the treasurers, the judges, the magistrates, and all the officials of the provinces gathered together for the dedication of the image that King Nebuchadnezzar had set up; and they stood before the image that Nebuchadnezzar had set up. 
 
 ###### 4 
-Then a herald cried [^b]aloud: "To you it is commanded, O peoples, nations, and languages, 
+Then a herald cried aloud: "To you it is commanded, O peoples, nations, and languages, 
 
 ###### 5 
 _that_ at the time you hear the sound of the horn, flute, harp, lyre, _and_ psaltery, in symphony with all kinds of music, you shall fall down and worship the gold image that King Nebuchadnezzar has set up; 
@@ -73,28 +73,28 @@ And he commanded certain mighty men of valor who _were_ in his army to bind Shad
 Then these men were bound in their coats, their trousers, their turbans, and their _other_ garments, and were cast into the midst of the burning fiery furnace. 
 
 ###### 22 
-Therefore, because the king's command was [^c]urgent, and the furnace exceedingly hot, the flame of the fire killed those men who took up Shadrach, Meshach, and Abed-Nego. 
+Therefore, because the king's command was urgent, and the furnace exceedingly hot, the flame of the fire killed those men who took up Shadrach, Meshach, and Abed-Nego. 
 
 ###### 23 
 And these three men, Shadrach, Meshach, and Abed-Nego, fell down bound into the midst of the burning fiery furnace. 
 
 ###### 24 
-Then King Nebuchadnezzar was astonished; and he rose in haste _and_ spoke, saying to his [^d]counselors, "Did we not cast three men bound into the midst of the fire?" They answered and said to the king, "True, O king." 
+Then King Nebuchadnezzar was astonished; and he rose in haste _and_ spoke, saying to his counselors, "Did we not cast three men bound into the midst of the fire?" They answered and said to the king, "True, O king." 
 
 ###### 25 
-"Look!" he answered, "I see four men loose, walking in the midst of the fire; and they are not hurt, and the form of the fourth is like the[^e] Son of God." ## Nebuchadnezzar Praises God 
+"Look!" he answered, "I see four men loose, walking in the midst of the fire; and they are not hurt, and the form of the fourth is like the Son of God." ## Nebuchadnezzar Praises God 
 
 ###### 26 
-Then Nebuchadnezzar went near the [^f]mouth of the burning fiery furnace _and_ spoke, saying, "Shadrach, Meshach, and Abed-Nego, servants of the Most High God, come out, and come _here._" Then Shadrach, Meshach, and Abed-Nego came from the midst of the fire. 
+Then Nebuchadnezzar went near the mouth of the burning fiery furnace _and_ spoke, saying, "Shadrach, Meshach, and Abed-Nego, servants of the Most High God, come out, and come _here._" Then Shadrach, Meshach, and Abed-Nego came from the midst of the fire. 
 
 ###### 27 
 And the satraps, administrators, governors, and the king's counselors gathered together, and they saw these men on whose bodies the fire had no power; the hair of their head was not singed nor were their garments affected, and the smell of fire was not on them. 
 
 ###### 28 
-Nebuchadnezzar spoke, saying, "Blessed be the God of Shadrach, Meshach, and Abed-Nego, who sent His Angel[^g] and delivered His servants who trusted in Him, and they have frustrated the king's word, and yielded their bodies, that they should not serve nor worship any god except their own God! 
+Nebuchadnezzar spoke, saying, "Blessed be the God of Shadrach, Meshach, and Abed-Nego, who sent His Angel and delivered His servants who trusted in Him, and they have frustrated the king's word, and yielded their bodies, that they should not serve nor worship any god except their own God! 
 
 ###### 29 
 Therefore I make a decree that any people, nation, or language which speaks anything amiss against the God of Shadrach, Meshach, and Abed-Nego shall be cut in pieces, and their houses shall be made an ash heap; because there is no other God who can deliver like this." 
 
 ###### 30 
-Then the king [^h]promoted Shadrach, Meshach, and Abed-Nego in the province of Babylon.
+Then the king promoted Shadrach, Meshach, and Abed-Nego in the province of Babylon.

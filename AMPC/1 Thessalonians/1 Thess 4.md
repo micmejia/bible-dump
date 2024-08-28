@@ -28,7 +28,7 @@ next: ['1 Thess 5']
 
 
 
-Furthermore, [^a]brethren, we beg and admonish you in [virtue of our union with] the Lord Jesus, that [you follow the instructions which] you learned from us about how you ought to walk so as to please _and_ gratify God, as indeed you are doing, [and] that you do so even more and more abundantly [attaining yet greater perfection in living this life]. 
+Furthermore, brethren, we beg and admonish you in [virtue of our union with] the Lord Jesus, that [you follow the instructions which] you learned from us about how you ought to walk so as to please _and_ gratify God, as indeed you are doing, [and] that you do so even more and more abundantly [attaining yet greater perfection in living this life]. 
 
 
 
@@ -49,7 +49,7 @@ Furthermore, [^a]brethren, we beg and admonish you in [virtue of our union with]
 
 
 
-For you know what charges _and_ precepts we gave you [[^b]on the authority and by the inspiration of] the Lord Jesus. 
+For you know what charges _and_ precepts we gave you [on the authority and by the inspiration of] the Lord Jesus. 
 
 
 
@@ -91,7 +91,7 @@ For this is the will of God, that you should be consecrated (separated and set a
 
 
 
-That each one of you should know how to [^c]possess (control, manage) his own [^d]body in consecration (purity, separated from things profane) and honor, 
+That each one of you should know how to possess (control, manage) his own body in consecration (purity, separated from things profane) and honor, 
 
 
 
@@ -133,7 +133,7 @@ Not [to be used] in the passion of lust like the heathen, who are ignorant of th
 
 
 
-That no man transgress and overreach his brother _and_ defraud him in this matter _or_ defraud his brother in business. For the Lord is an avenger in all these things, as we have already warned you solemnly _and_ [^e]told you plainly. 
+That no man transgress and overreach his brother _and_ defraud him in this matter _or_ defraud his brother in business. For the Lord is an avenger in all these things, as we have already warned you solemnly _and_ told you plainly. 
 
 
 
@@ -217,7 +217,7 @@ But concerning brotherly love [for all other Christians], you have no need to ha
 
 
 
-And indeed you already are [extending and displaying your love] to all the brethren throughout Macedonia. But we beseech _and_ earnestly exhort you, brethren, that you [^f]excel [in this matter] more and more, 
+And indeed you already are [extending and displaying your love] to all the brethren throughout Macedonia. But we beseech _and_ earnestly exhort you, brethren, that you excel [in this matter] more and more, 
 
 
 
@@ -280,7 +280,7 @@ So that you may bear yourselves becomingly _and_ be correct _and_ honorable _and
 
 
 
-Now also we would not have you ignorant, brethren, about those who fall asleep [[^g]in death], that you may not grieve [for them] as the rest do who have no hope [beyond the grave]. 
+Now also we would not have you ignorant, brethren, about those who fall asleep [in death], that you may not grieve [for them] as the rest do who have no hope [beyond the grave]. 
 
 
 
@@ -301,7 +301,7 @@ Now also we would not have you ignorant, brethren, about those who fall asleep [
 
 
 
-For since we believe that Jesus died and rose again, even so God will also bring with Him through Jesus those who have fallen asleep [[^h]in death]. 
+For since we believe that Jesus died and rose again, even so God will also bring with Him through Jesus those who have fallen asleep [in death]. 
 
 
 
@@ -322,7 +322,7 @@ For since we believe that Jesus died and rose again, even so God will also bring
 
 
 
-For this we declare to you by the Lord's [own] word, that we who are alive and remain until the coming of the Lord shall in no way precede [into His presence] _or_ have any advantage at all over those who have previously fallen asleep [in Him [^i]in death]. 
+For this we declare to you by the Lord's [own] word, that we who are alive and remain until the coming of the Lord shall in no way precede [into His presence] _or_ have any advantage at all over those who have previously fallen asleep [in Him in death]. 
 
 
 

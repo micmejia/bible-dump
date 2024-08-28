@@ -667,7 +667,7 @@ Lumabas din ang lahat ng hayop: mga lumalakad, lumilipad at gumagapang. Magkakas
 
 
 
-Gumawa si Noe ng altar para sa Panginoon. Pagkatapos, kumuha siya ng isa sa bawat uri ng hayop na malinis[^a] pati rin sa bawat uri ng mga ibon na malinis, at sinunog niya ito sa altar bilang handog sa Panginoon. 
+Gumawa si Noe ng altar para sa Panginoon. Pagkatapos, kumuha siya ng isa sa bawat uri ng hayop na malinis pati rin sa bawat uri ng mga ibon na malinis, at sinunog niya ito sa altar bilang handog sa Panginoon. 
 
 
 

@@ -40,7 +40,7 @@ next: ['Luke 11']
 
 
 
-Pagkatapos nito, pumili pa ang Panginoon ng 72[^a] <i class="trans-change">tagasunod_, at sinugo ang mga ito nang dala-dalawa sa mga bayan at sa iba pang mga lugar na pupuntahan niya. 
+Pagkatapos nito, pumili pa ang Panginoon ng 72 <i class="trans-change">tagasunod_, at sinugo ang mga ito nang dala-dalawa sa mga bayan at sa iba pang mga lugar na pupuntahan niya. 
 
 
 
@@ -304,7 +304,7 @@ Kapag dumating kayo sa isang bayan at tinanggap kayo ng mga tao, kainin ninyo an
 
 
 
-Pagalingin ninyo ang mga may sakit doon, at sabihin ninyo sa kanila na malapit na[^b] ang paghahari ng Dios sa kanila. 
+Pagalingin ninyo ang mga may sakit doon, at sabihin ninyo sa kanila na malapit na ang paghahari ng Dios sa kanila. 
 
 
 
@@ -436,7 +436,7 @@ Ngunit kung ayaw kayong tanggapin sa isang bayan, umalis kayo, at habang naglala
 
 
 
-<i class="trans-change">Sinabi pa ni Jesus,_ "Nakakaawa kayong mga taga-Corazin! Nakakaawa rin kayong mga taga-Betsaida! Sapagkat kung sa Tyre at Sidon naganap ang mga himalang ginawa ko sa inyo, matagal na sana silang nagsuot ng sako at naglagay ng abo sa kanilang ulo[^c] para ipakita ang pagsisisi nila. 
+<i class="trans-change">Sinabi pa ni Jesus,_ "Nakakaawa kayong mga taga-Corazin! Nakakaawa rin kayong mga taga-Betsaida! Sapagkat kung sa Tyre at Sidon naganap ang mga himalang ginawa ko sa inyo, matagal na sana silang nagsuot ng sako at naglagay ng abo sa kanilang ulo para ipakita ang pagsisisi nila. 
 
 
 
@@ -634,7 +634,7 @@ Sinabi ni Jesus sa kanila, "Nakita kong nahulog si Satanas mula sa langit na par
 
 
 
-Binigyan ko kayo ng kapangyarihang daigin ang masasamang espiritu at ang lahat ng kapangyarihan ng kaaway nating si Satanas.[^d] At walang anumang makapipinsala sa inyo. 
+Binigyan ko kayo ng kapangyarihang daigin ang masasamang espiritu at ang lahat ng kapangyarihan ng kaaway nating si Satanas. At walang anumang makapipinsala sa inyo. 
 
 
 
@@ -898,7 +898,7 @@ Sumagot si Jesus, "Ano ang nakasulat sa Kautusan? Ano ang nababasa mo roon?"
 
 
 
-Sumagot ang lalaki, "Mahalin mo ang Panginoon mong Dios nang buong puso, nang buong kaluluwa, nang buong lakas, at nang buong pag-iisip.[^e] At mahalin mo ang iyong kapwa tulad ng pagmamahal mo sa iyong sarili."[^f] 
+Sumagot ang lalaki, "Mahalin mo ang Panginoon mong Dios nang buong puso, nang buong kaluluwa, nang buong lakas, at nang buong pag-iisip. At mahalin mo ang iyong kapwa tulad ng pagmamahal mo sa iyong sarili." 
 
 
 
@@ -1063,7 +1063,7 @@ Nagkataong dumaan doon ang isang pari. Nang makita niya ang taong nakahandusay, 
 
 
 
-Napadaan din ang isang Levita[^g] at nakita niya ang tao, pero lumihis din siya sa kabilang daan at nagpatuloy sa kanyang paglalakad. 
+Napadaan din ang isang Levita at nakita niya ang tao, pero lumihis din siya sa kabilang daan at nagpatuloy sa kanyang paglalakad. 
 
 
 
@@ -1162,7 +1162,7 @@ Nilapitan niya ang lalaki, hinugasan ng alak ang sugat, binuhusan ng langis at s
 
 
 
-Kinabukasan, binigyan ng Samaritano ng pera[^h] ang may-ari ng bahay-panuluyan at sinabi, 'Alagaan mo siya, at kung kulang pa iyan sa magagastos mo ay babayaran kita pagbalik ko.' " 
+Kinabukasan, binigyan ng Samaritano ng pera ang may-ari ng bahay-panuluyan at sinabi, 'Alagaan mo siya, at kung kulang pa iyan sa magagastos mo ay babayaran kita pagbalik ko.' " 
 
 
 

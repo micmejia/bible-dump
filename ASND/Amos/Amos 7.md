@@ -40,7 +40,7 @@ next: ['Amos 8']
 
 
 
-Ito ang ipinakita sa akin ng Panginoong Dios: Nakita kong nagtipon siya ng napakaraming balang. Nangyari ito matapos maibigay sa hari ang kanyang parte <i class="trans-change">mula sa unang ani sa bukid_. At nang magsisimula na ang pangalawang ani,[^a] 
+Ito ang ipinakita sa akin ng Panginoong Dios: Nakita kong nagtipon siya ng napakaraming balang. Nangyari ito matapos maibigay sa hari ang kanyang parte <i class="trans-change">mula sa unang ani sa bukid_. At nang magsisimula na ang pangalawang ani, 
 
 
 
@@ -238,7 +238,7 @@ Kaya nagbago ang isip ng Panginoon at sinabi niya, "Hindi na mangyayari ang naki
 
 
 
-Ito pa ang ipinakita sa akin ng Panginoong Dios: Nakita ko ang Panginoon na nakatayo malapit sa pader at may hawak na hulog[^b] na ginagamit para malaman kung tuwid ang pagkagawa ng pader. 
+Ito pa ang ipinakita sa akin ng Panginoong Dios: Nakita ko ang Panginoon na nakatayo malapit sa pader at may hawak na hulog na ginagamit para malaman kung tuwid ang pagkagawa ng pader. 
 
 
 
@@ -304,7 +304,7 @@ Tinanong ako ng Panginoon, "Amos, ano ang nakikita mo?" Sumagot ako, "Hulog po."
 
 
 
-Gigibain ko ang mga sambahan sa matataas na lugar[^c] na sinasambahan ng mga Israelita na lahi ni Isaac. At ipapasalakay ko sa mga kaaway <i class="trans-change">ng Israel_ ang kaharian ni <i class="trans-change">Haring_ Jeroboam." ## Si Amos at si Amazia 
+Gigibain ko ang mga sambahan sa matataas na lugar na sinasambahan ng mga Israelita na lahi ni Isaac. At ipapasalakay ko sa mga kaaway <i class="trans-change">ng Israel_ ang kaharian ni <i class="trans-change">Haring_ Jeroboam." ## Si Amos at si Amazia 
 
 
 
@@ -469,7 +469,7 @@ Huwag ka nang magpahayag ng mensahe ng Dios dito sa Betel, sapagkat nandito ang 
 
 
 
-Sumagot si Amos kay Amazia, "Hindi ako propeta <i class="trans-change">noon_ at hindi rin ako tagasunod[^d] ng isang propeta. Pastol ako ng tupa at nag-aalaga rin ng mga punongkahoy ng sikomoro. 
+Sumagot si Amos kay Amazia, "Hindi ako propeta <i class="trans-change">noon_ at hindi rin ako tagasunod ng isang propeta. Pastol ako ng tupa at nag-aalaga rin ng mga punongkahoy ng sikomoro. 
 
 
 

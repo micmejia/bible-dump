@@ -238,7 +238,7 @@ Nakarating sila Jacob at ang mga kasama niya sa Luz (na tinatawag ding Betel) do
 
 
 
-Gumawa siya roon ng altar. Tinawag niya ang lugar na iyon na El Betel[^a] dahil nagpakita sa kanya roon ang Dios nang tumakas siya sa kanyang kapatid <i class="trans-change">na si Esau_. 
+Gumawa siya roon ng altar. Tinawag niya ang lugar na iyon na El Betel dahil nagpakita sa kanya roon ang Dios nang tumakas siya sa kanyang kapatid <i class="trans-change">na si Esau_. 
 
 
 
@@ -271,7 +271,7 @@ Gumawa siya roon ng altar. Tinawag niya ang lugar na iyon na El Betel[^a] dahil 
 
 
 
-Namatay si Debora na tagapag-alaga ni Rebeka. Kaya inilibing siya sa ilalim ng <i class="trans-change">punongkahoy na_ terebinto na nasa paanan ng Betel. Tinawag iyon na punongkahoy na Allon Bacut.[^b] 
+Namatay si Debora na tagapag-alaga ni Rebeka. Kaya inilibing siya sa ilalim ng <i class="trans-change">punongkahoy na_ terebinto na nasa paanan ng Betel. Tinawag iyon na punongkahoy na Allon Bacut. 
 
 
 
@@ -304,7 +304,7 @@ Namatay si Debora na tagapag-alaga ni Rebeka. Kaya inilibing siya sa ilalim ng <
 
 
 
-Nang umuwi si Jacob mula sa Padan Aram,[^c] muling nagpakita ang Dios sa kanya at binasbasan siya. 
+Nang umuwi si Jacob mula sa Padan Aram, muling nagpakita ang Dios sa kanya at binasbasan siya. 
 
 
 
@@ -436,7 +436,7 @@ Ang lupain na ibinigay ko kay Abraham at kay Isaac ay ibibigay ko rin sa iyo at 
 
 
 
-Pinangalanan niya ang lugar na iyon na Betel.[^d] ## Ang Pagkamatay ni Raquel 
+Pinangalanan niya ang lugar na iyon na Betel. ## Ang Pagkamatay ni Raquel 
 
 
 
@@ -535,7 +535,7 @@ Nang matindi na ang sakit, sinabi ng manghihilot sa kanya, "Huwag kang matakot R
 
 
 
-Isinilang ang sanggol pero nasa bingit ng kamatayan si Raquel. Bago siya malagutan ng hininga, pinangalanan niya ang sanggol na Ben Oni.[^e] Pero pinangalanan ni Jacob ang sanggol na Benjamin.[^f] 
+Isinilang ang sanggol pero nasa bingit ng kamatayan si Raquel. Bago siya malagutan ng hininga, pinangalanan niya ang sanggol na Ben Oni. Pero pinangalanan ni Jacob ang sanggol na Benjamin. 
 
 
 
@@ -634,7 +634,7 @@ Nilagyan ni Jacob ng bato ang libingan ni Raquel bilang palatandaan, at hanggang
 
 
 
-Nagpatuloy sina Jacob[^g] sa kanilang paglalakbay. Pagdating nila sa kabilang <i class="trans-change">panig_ ng Migdal Eder,[^h] nagtayo sila roon ng mga tolda nila. 
+Nagpatuloy sina Jacob sa kanilang paglalakbay. Pagdating nila sa kabilang <i class="trans-change">panig_ ng Migdal Eder, nagtayo sila roon ng mga tolda nila. 
 
 
 
@@ -667,7 +667,7 @@ Nagpatuloy sina Jacob[^g] sa kanilang paglalakbay. Pagdating nila sa kabilang <i
 
 
 
-Habang nakatira roon sila Jacob,[^i] sumiping si Reuben kay Bilha na isa sa mga asawa ng kanyang ama. Nang malaman iyon ni Jacob, galit na galit siya.[^j] ## Ang mga Anak na Lalaki ni Jacob May 12 Anak na lalaki si Jacob. 
+Habang nakatira roon sila Jacob, sumiping si Reuben kay Bilha na isa sa mga asawa ng kanyang ama. Nang malaman iyon ni Jacob, galit na galit siya. ## Ang mga Anak na Lalaki ni Jacob May 12 Anak na lalaki si Jacob. 
 
 
 

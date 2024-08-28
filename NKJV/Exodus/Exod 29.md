@@ -97,7 +97,7 @@ It shall be from the children of Israel _for_ Aaron and his sons by a statute fo
 "And the holy garments of Aaron shall be his sons' after him, to be anointed in them and to be consecrated in them. 
 
 ###### 30 
-That son who becomes priest in his place shall put them on for seven days, when he enters the tabernacle of meeting to minister in the [^a]holy _place._ 
+That son who becomes priest in his place shall put them on for seven days, when he enters the tabernacle of meeting to minister in the holy _place._ 
 
 ###### 31 
 "And you shall take the ram of the consecration and boil its flesh in the holy place. 
@@ -124,13 +124,13 @@ Seven days you shall make atonement for the altar and sanctify it. And the altar
 "Now this _is_ what you shall offer on the altar: two lambs of the first year, day by day continually. 
 
 ###### 39 
-One lamb you shall offer in the morning, and the other lamb you shall offer [^b]at twilight. 
+One lamb you shall offer in the morning, and the other lamb you shall offer at twilight. 
 
 ###### 40 
 With the one lamb shall be one-tenth _of an ephah_ of flour mixed with one-fourth of a hin of pressed oil, and one-fourth of a hin of wine _as_ a drink offering. 
 
 ###### 41 
-And the other lamb you shall offer [^c]at twilight; and you shall offer with it the grain offering and the drink offering, as in the morning, for a sweet aroma, an offering made by fire to the Lord. 
+And the other lamb you shall offer at twilight; and you shall offer with it the grain offering and the drink offering, as in the morning, for a sweet aroma, an offering made by fire to the Lord. 
 
 ###### 42 
 _This shall be_ a continual burnt offering throughout your generations _at_ the door of the tabernacle of meeting before the Lord, where I will meet you to speak with you. 

@@ -337,7 +337,7 @@ Sa pangyayaring iyon, natupad ang ipinahayag ni Propeta Jeremias nang sabihin ni
 
 
 
-at ginamit nila ang pera bilang pambili ng bukid ng magpapalayok, ayon sa iniutos sa akin ng Panginoon."[^a] ## Inimbestigahan ni Pilato si Jesus 
+at ginamit nila ang pera bilang pambili ng bukid ng magpapalayok, ayon sa iniutos sa akin ng Panginoon." ## Inimbestigahan ni Pilato si Jesus 
 
 
 
@@ -964,7 +964,7 @@ Hinubaran nila siya at sinuotan ng pulang kapa.
 
 
 
-Gumawa sila ng koronang tinik at ipinutong sa kanya, at ipinahawak ang tungkod sa kanyang kanang kamay <i class="trans-change">bilang setro_[^b] <i class="trans-change">niya._ Lumuhod sila sa harap niya at pakutyang sinabi, "Mabuhay ang Hari ng mga Judio!" 
+Gumawa sila ng koronang tinik at ipinutong sa kanya, at ipinahawak ang tungkod sa kanyang kanang kamay <i class="trans-change">bilang setro_ <i class="trans-change">niya._ Lumuhod sila sa harap niya at pakutyang sinabi, "Mabuhay ang Hari ng mga Judio!" 
 
 
 
@@ -1525,7 +1525,7 @@ Nang mag-alas dose na ng tanghali, dumilim ang buong lupain sa loob ng tatlong o
 
 
 
-Nang mag-alas tres na ng hapon, sumigaw si Jesus nang malakas, "Eloi, Eloi, lema sabachtani?" na ang ibig sabihin ay "Dios ko, Dios ko, bakit mo ako pinabayaan?"[^c] 
+Nang mag-alas tres na ng hapon, sumigaw si Jesus nang malakas, "Eloi, Eloi, lema sabachtani?" na ang ibig sabihin ay "Dios ko, Dios ko, bakit mo ako pinabayaan?" 
 
 
 
@@ -1723,7 +1723,7 @@ Nang sandali ring iyon, nahati mula sa itaas hanggang sa ibaba ang kurtina sa lo
 
 
 
-Nabuksan ang mga libingan at maraming banal[^d] ang muling nabuhay. 
+Nabuksan ang mga libingan at maraming banal ang muling nabuhay. 
 
 
 
@@ -1756,7 +1756,7 @@ Nabuksan ang mga libingan at maraming banal[^d] ang muling nabuhay.
 
 
 
-Lumabas sila ng libingan, at nang muling mabuhay si Jesus, pumunta sila sa Jerusalem[^e] at marami ang nakakita sa kanila. 
+Lumabas sila ng libingan, at nang muling mabuhay si Jesus, pumunta sila sa Jerusalem at marami ang nakakita sa kanila. 
 
 
 
@@ -1855,7 +1855,7 @@ Sa di-kalayuan ay maraming babae na nanonood sa mga pangyayari. Noong umalis si 
 
 
 
-Kabilang sa kanila si Maria na taga-Magdala,[^f] si Maria na ina nina Santiago at Jose, at ang asawa ni Zebedee. ## Ang Paglilibing kay Jesus 
+Kabilang sa kanila si Maria na taga-Magdala, si Maria na ina nina Santiago at Jose, at ang asawa ni Zebedee. ## Ang Paglilibing kay Jesus 
 
 
 

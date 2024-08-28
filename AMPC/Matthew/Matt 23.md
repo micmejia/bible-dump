@@ -112,7 +112,7 @@ They tie up heavy loads, _hard to bear_, and place them on men's shoulders, but 
 
 
 
-They do all their works to be seen of men; for they make wide their phylacteries ([^a]small cases enclosing certain Scripture passages, worn during prayer on the left arm and forehead) and make long their fringes [worn by all male Israelites, according to the command]. 
+They do all their works to be seen of men; for they make wide their phylacteries (small cases enclosing certain Scripture passages, worn during prayer on the left arm and forehead) and make long their fringes [worn by all male Israelites, according to the command]. 
 
 
 
@@ -133,7 +133,7 @@ They do all their works to be seen of men; for they make wide their phylacteries
 
 
 
-And they [^b]take pleasure in _and_ [thus] love the place of honor at feasts and the best seats in the synagogues, 
+And they take pleasure in _and_ [thus] love the place of honor at feasts and the best seats in the synagogues, 
 
 
 
@@ -259,7 +259,7 @@ He who is greatest among you shall be your servant.
 
 
 
-Whoever exalts himself [[^c]with haughtiness and empty pride] shall be humbled (brought low), and whoever humbles himself [whoever has a modest opinion of himself and behaves accordingly] shall be [^d]raised to honor. 
+Whoever exalts himself [with haughtiness and empty pride] shall be humbled (brought low), and whoever humbles himself [whoever has a modest opinion of himself and behaves accordingly] shall be raised to honor. 
 
 
 
@@ -301,7 +301,7 @@ But woe to you, scribes and Pharisees, pretenders (hypocrites)! For you shut the
 
 
 
-[^e]_Woe to you, scribes and Pharisees, pretenders (hypocrites)! For you swallow up widows' houses and for a pretense to cover it up make long prayers; therefore you will receive the greater condemnation and the heavier sentence._ 
+_Woe to you, scribes and Pharisees, pretenders (hypocrites)! For you swallow up widows' houses and for a pretense to cover it up make long prayers; therefore you will receive the greater condemnation and the heavier sentence._ 
 
 
 
@@ -343,7 +343,7 @@ Woe to you, scribes and Pharisees, pretenders (hypocrites)! For you travel over 
 
 
 
-Woe to you, blind guides, who say, If anyone swears by the [^f]sanctuary of the temple, it is nothing; but if anyone swears by the gold of the [^g]sanctuary, he is a debtor [bound by his oath]. 
+Woe to you, blind guides, who say, If anyone swears by the sanctuary of the temple, it is nothing; but if anyone swears by the gold of the sanctuary, he is a debtor [bound by his oath]. 
 
 
 
@@ -364,7 +364,7 @@ Woe to you, blind guides, who say, If anyone swears by the [^f]sanctuary of the 
 
 
 
-You blind fools! For which is greater: the gold, or the [^h]sanctuary of the temple that has made the gold sacred? 
+You blind fools! For which is greater: the gold, or the sanctuary of the temple that has made the gold sacred? 
 
 
 
@@ -448,7 +448,7 @@ So whoever swears by the altar swears by it and by everything on it.
 
 
 
-And he who swears by the [^i]sanctuary of the temple swears by it and by Him Who dwells in it. 
+And he who swears by the sanctuary of the temple swears by it and by Him Who dwells in it. 
 
 
 
@@ -511,7 +511,7 @@ Woe to you, scribes and Pharisees, pretenders (hypocrites)! For you give a tenth
 
 
 
-You blind guides, filtering out a gnat and gulping down a [^j]camel! 
+You blind guides, filtering out a gnat and gulping down a camel! 
 
 
 
@@ -679,7 +679,7 @@ Thus you are testifying against yourselves that you are the descendants of those
 
 
 
-Fill up, then, the measure of your fathers' sins to the brim [so [^k]that nothing may be wanting to a full measure]. 
+Fill up, then, the measure of your fathers' sins to the brim [so that nothing may be wanting to a full measure]. 
 
 
 
@@ -700,7 +700,7 @@ Fill up, then, the measure of your fathers' sins to the brim [so [^k]that nothin
 
 
 
-You serpents! You spawn of vipers! How can you escape the [^l]penalty to be suffered in hell (Gehenna)? 
+You serpents! You spawn of vipers! How can you escape the penalty to be suffered in hell (Gehenna)? 
 
 
 
@@ -742,7 +742,7 @@ Because of this, take notice: I am sending you prophets and wise men (interprete
 
 
 
-So that upon your heads may come all the blood of the righteous ([^m]those who correspond to the divine standard of right) shed on earth, from the blood of the righteous Abel to the blood of Zechariah son of Barachiah, whom you murdered between the sanctuary and the altar [of burnt offering]. 
+So that upon your heads may come all the blood of the righteous (those who correspond to the divine standard of right) shed on earth, from the blood of the righteous Abel to the blood of Zechariah son of Barachiah, whom you murdered between the sanctuary and the altar [of burnt offering]. 
 
 
 
@@ -763,7 +763,7 @@ So that upon your heads may come all the blood of the righteous ([^m]those who c
 
 
 
-Truly I declare to you, all these [[^n]evil, calamitous times] will come upon this generation. 
+Truly I declare to you, all these [evil, calamitous times] will come upon this generation. 
 
 
 

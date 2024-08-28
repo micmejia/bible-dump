@@ -70,7 +70,7 @@ Now there is in Jerusalem a pool near the Sheep Gate. This pool in the Hebrew is
 
 
 
-In these lay a great number of sick folk--some blind, some crippled, and some paralyzed (shriveled up)--[^a]_waiting for the bubbling up of the water_. 
+In these lay a great number of sick folk--some blind, some crippled, and some paralyzed (shriveled up)--_waiting for the bubbling up of the water_. 
 
 
 
@@ -238,7 +238,7 @@ So the Jews kept saying to the man who had been healed, It is the Sabbath, and y
 
 
 
-He answered them, The [^b]Man Who healed me _and_ gave me back my strength, He Himself said to me, Pick up your bed and walk! 
+He answered them, The Man Who healed me _and_ gave me back my strength, He Himself said to me, Pick up your bed and walk! 
 
 
 
@@ -343,7 +343,7 @@ The man went away and told the Jews that it was Jesus Who had made him well.
 
 
 
-For this reason the Jews began to persecute (annoy, torment) Jesus [^c]_and sought to kill Him_, because He was doing these things on the Sabbath. 
+For this reason the Jews began to persecute (annoy, torment) Jesus _and sought to kill Him_, because He was doing these things on the Sabbath. 
 
 
 
@@ -574,7 +574,7 @@ For even as the Father has life in Himself _and_ is self-existent, so He has giv
 
 
 
-And He has given Him authority _and_ granted Him power to execute (exercise, practice) judgment because He is [^d]a Son of man [very man]. 
+And He has given Him authority _and_ granted Him power to execute (exercise, practice) judgment because He is a Son of man [very man]. 
 
 
 

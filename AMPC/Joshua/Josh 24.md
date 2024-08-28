@@ -258,7 +258,7 @@ You went over the Jordan and came to Jericho; and the men of Jericho fought agai
 
 
 
-I sent the [^a]hornet [that is, the terror of you] before you, which drove the two kings of the Amorites out before you; but it was not by your sword or by your bow. 
+I sent the hornet [that is, the terror of you] before you, which drove the two kings of the Amorites out before you; but it was not by your sword or by your bow. 
 
 
 
@@ -426,7 +426,7 @@ And Joshua said to the people, You cannot serve the Lord, for He is a holy God; 
 
 
 
-If you forsake the Lord and [^b]serve strange gods, then He will turn and do you harm and consume you, after having done you good. 
+If you forsake the Lord and serve strange gods, then He will turn and do you harm and consume you, after having done you good. 
 
 
 

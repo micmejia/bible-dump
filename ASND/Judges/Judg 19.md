@@ -40,7 +40,7 @@ next: ['Judg 20']
 
 
 
-Nang panahong iyon na wala pang hari ang Israel, may isang Levita[^a] na nakatira sa malayong bahagi ng kabundukan ng Efraim. Ang Levitang ito ay nakapag-asawa ng isang alipin na taga-Betlehem sa Juda. 
+Nang panahong iyon na wala pang hari ang Israel, may isang Levita na nakatira sa malayong bahagi ng kabundukan ng Efraim. Ang Levitang ito ay nakapag-asawa ng isang alipin na taga-Betlehem sa Juda. 
 
 
 
@@ -535,7 +535,7 @@ Nang makita ng matanda ang manlalakbay sa plasa, nilapitan niya ang mga ito at t
 
 
 
-Sumagot ang Levita, "Galing kami sa Betlehem na sakop ng Juda at pauwi na kami sa bahay namin[^b] sa kabundukan ng Efraim. Walang nag-alok sa amin na tumuloy sa bahay niya. 
+Sumagot ang Levita, "Galing kami sa Betlehem na sakop ng Juda at pauwi na kami sa bahay namin sa kabundukan ng Efraim. Walang nag-alok sa amin na tumuloy sa bahay niya. 
 
 
 

@@ -10,7 +10,7 @@ next: ['1 Chr 8']
 
 
 ###### 1 
-The sons of Issachar _were_ Tola, [^a]Puah, [^b]Jashub, and Shimron--four _in all._ 
+The sons of Issachar _were_ Tola, Puah, Jashub, and Shimron--four _in all._ 
 
 ###### 2 
 The sons of Tola _were_ Uzzi, Rephaiah, Jeriel, Jahmai, Jibsam, and Shemuel, heads of their father's house. _The sons_ of Tola _were_ mighty men of valor in their generations; their number in the days of David _was_ twenty-two thousand six hundred. 
@@ -43,16 +43,16 @@ The son of Jediael _was_ Bilhan, and the sons of Bilhan _were_ Jeush, Benjamin, 
 All these sons of Jediael _were_ heads of their fathers' houses; _there were_ seventeen thousand two hundred mighty men of valor fit to go out for war _and_ battle. 
 
 ###### 12 
-[^c]Shuppim and [^d]Huppim _were_ the sons of [^e]Ir, _and_ Hushim _was_ the son of [^f]Aher. ## The Family of Naphtali 
+Shuppim and Huppim _were_ the sons of Ir, _and_ Hushim _was_ the son of Aher. ## The Family of Naphtali 
 
 ###### 13 
-The sons of Naphtali _were_ [^g]Jahziel, Guni, Jezer, and [^h]Shallum, the sons of Bilhah. ## The Family of Manasseh (West) 
+The sons of Naphtali _were_ Jahziel, Guni, Jezer, and Shallum, the sons of Bilhah. ## The Family of Manasseh (West) 
 
 ###### 14 
 The descendants of Manasseh: his Syrian concubine bore him Machir the father of Gilead, the father of Asriel. 
 
 ###### 15 
-Machir took as his wife _the sister_ of [^i]Huppim and [^j]Shuppim, whose name _was_ Maachah. The name of _Gilead's_ [^k]grandson _was_ Zelophehad, but Zelophehad begot only daughters. 
+Machir took as his wife _the sister_ of Huppim and Shuppim, whose name _was_ Maachah. The name of _Gilead's_ grandson _was_ Zelophehad, but Zelophehad begot only daughters. 
 
 ###### 16 
 (Maachah the wife of Machir bore a son, and she called his name Peresh. The name of his brother _was_ Sheresh, and his sons _were_ Ulam and Rakem. 
@@ -61,7 +61,7 @@ Machir took as his wife _the sister_ of [^i]Huppim and [^j]Shuppim, whose name _
 The son of Ulam _was_ Bedan.) These _were_ the descendants of Gilead the son of Machir, the son of Manasseh. 
 
 ###### 18 
-His sister Hammoleketh bore Ishhod, [^l]Abiezer, and Mahlah. 
+His sister Hammoleketh bore Ishhod, Abiezer, and Mahlah. 
 
 ###### 19 
 And the sons of Shemida were Ahian, Shechem, Likhi, and Aniam. ## The Family of Ephraim 
@@ -76,7 +76,7 @@ Zabad his son, Shuthelah his son, and Ezer and Elead. The men of Gath who were b
 Then Ephraim their father mourned many days, and his brethren came to comfort him. 
 
 ###### 23 
-And when he went in to his wife, she conceived and bore a son; and he called his name [^m]Beriah, because tragedy had come upon his house. 
+And when he went in to his wife, she conceived and bore a son; and he called his name Beriah, because tragedy had come upon his house. 
 
 ###### 24 
 Now his daughter _was_ Sheerah, who built Lower and Upper Beth Horon and Uzzen Sheerah; 
@@ -88,10 +88,10 @@ and Rephah _was_ his son, _as well_ as Resheph, and Telah his son, Tahan his son
 Laadan his son, Ammihud his son, Elishama his son, 
 
 ###### 27 
-[^n]Nun his son, and Joshua his son. 
+Nun his son, and Joshua his son. 
 
 ###### 28 
-Now their possessions and dwelling places _were_ Bethel and its towns: to the east [^o]Naaran, to the west Gezer and its towns, and Shechem and its towns, as far as [^p]Ayyah and its towns; 
+Now their possessions and dwelling places _were_ Bethel and its towns: to the east Naaran, to the west Gezer and its towns, and Shechem and its towns, as far as Ayyah and its towns; 
 
 ###### 29 
 and by the borders of the children of Manasseh _were_ Beth Shean and its towns, Taanach and its towns, Megiddo and its towns, Dor and its towns. In these dwelt the children of Joseph, the son of Israel. ## The Family of Asher 
@@ -100,10 +100,10 @@ and by the borders of the children of Manasseh _were_ Beth Shean and its towns, 
 The sons of Asher _were_ Imnah, Ishvah, Ishvi, Beriah, and their sister Serah. 
 
 ###### 31 
-The sons of Beriah _were_ Heber and Malchiel, who was the father of [^q]Birzaith. 
+The sons of Beriah _were_ Heber and Malchiel, who was the father of Birzaith. 
 
 ###### 32 
-And Heber begot Japhlet, [^r]Shomer, [^s]Hotham, and their sister Shua. 
+And Heber begot Japhlet, Shomer, Hotham, and their sister Shua. 
 
 ###### 33 
 The sons of Japhlet _were_ Pasach, Bimhal, and Ashvath. These _were_ the children of Japhlet. 
@@ -118,7 +118,7 @@ And the sons of his brother Helem _were_ Zophah, Imna, Shelesh, and Amal.
 The sons of Zophah _were_ Suah, Harnepher, Shual, Beri, Imrah, 
 
 ###### 37 
-Bezer, Hod, Shamma, Shilshah, [^t]Jithran, and Beera. 
+Bezer, Hod, Shamma, Shilshah, Jithran, and Beera. 
 
 ###### 38 
 The sons of Jether _were_ Jephunneh, Pispah, and Ara. 

@@ -40,7 +40,7 @@ next: ['Luke 7']
 
 
 
-Isang Araw ng Pamamahinga, napadaan sina Jesus sa triguhan. Namitas ng trigo ang mga tagasunod niya at niligis[^a] ito sa mga kamay nila, at pagkatapos ay kinain ang mga butil. 
+Isang Araw ng Pamamahinga, napadaan sina Jesus sa triguhan. Namitas ng trigo ang mga tagasunod niya at niligis ito sa mga kamay nila, at pagkatapos ay kinain ang mga butil. 
 
 
 
@@ -502,7 +502,7 @@ Ito ay sina Simon (na tinawag niyang Pedro), Andres na kapatid nito, Santiago, J
 
 
 
-Mateo, Tomas, Santiago na anak ni Alfeus, Simon na makabayan,[^b] 
+Mateo, Tomas, Santiago na anak ni Alfeus, Simon na makabayan, 
 
 
 
@@ -1261,7 +1261,7 @@ Maging maawain kayo tulad ng inyong Ama." ## Huwag Husgahan ang Kapwa
 
 
 
-Magbigay kayo, upang bigyan din kayo <i class="trans-change">ng Dios_. Ibabalik sa inyo nang sobra-sobra at umaapaw ang ibinigay ninyo. Sapagkat kung paano kayo magbigay sa iba, ganoon din ang pagbibigay <i class="trans-change">ng Dios_ sa inyo."[^c] 
+Magbigay kayo, upang bigyan din kayo <i class="trans-change">ng Dios_. Ibabalik sa inyo nang sobra-sobra at umaapaw ang ibinigay ninyo. Sapagkat kung paano kayo magbigay sa iba, ganoon din ang pagbibigay <i class="trans-change">ng Dios_ sa inyo." 
 
 
 

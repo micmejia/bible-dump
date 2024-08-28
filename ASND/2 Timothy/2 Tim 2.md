@@ -634,7 +634,7 @@ Lumihis sila sa katotohanan dahil itinuturo nilang naganap na ang muling pagkabu
 
 
 
-Ganoon pa man, nananatiling matibay ang saligang itinatag ng Dios, at may nakasulat na "Alam ng Panginoon kung sino ang sa kanya,"[^a] at "Dapat lumayo sa kasamaan ang bawat taong nagsasabi na siyaʼy sa Panginoon." 
+Ganoon pa man, nananatiling matibay ang saligang itinatag ng Dios, at may nakasulat na "Alam ng Panginoon kung sino ang sa kanya," at "Dapat lumayo sa kasamaan ang bawat taong nagsasabi na siyaʼy sa Panginoon." 
 
 
 
@@ -667,7 +667,7 @@ Ganoon pa man, nananatiling matibay ang saligang itinatag ng Dios, at may nakasu
 
 
 
-Sa isang malaking bahay, may mga kasangkapang yari sa ginto at pilak, at mayroon ding yari sa kahoy at putik.[^b] Ginagamit sa mahahalagang okasyon ang mga kasangkapang yari sa ginto at pilak, at ang mga kasangkapang yari naman sa kahoy at putik ay sa pang-araw-araw <i class="trans-change">na gamit_. 
+Sa isang malaking bahay, may mga kasangkapang yari sa ginto at pilak, at mayroon ding yari sa kahoy at putik. Ginagamit sa mahahalagang okasyon ang mga kasangkapang yari sa ginto at pilak, at ang mga kasangkapang yari naman sa kahoy at putik ay sa pang-araw-araw <i class="trans-change">na gamit_. 
 
 
 

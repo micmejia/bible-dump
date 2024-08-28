@@ -22,7 +22,7 @@ Thus says the Lord of hosts, the God of Israel: "Amend your ways and your doings
 Do not trust in these lying words, saying, 'The temple of the Lord, the temple of the Lord, the temple of the Lord _are_ these.' 
 
 ###### 5 
-"For if you thoroughly amend your ways and your doings, if you thoroughly execute [^a]judgment between a man and his neighbor, 
+"For if you thoroughly amend your ways and your doings, if you thoroughly execute judgment between a man and his neighbor, 
 
 ###### 6 
 _if_ you do not oppress the stranger, the fatherless, and the widow, and do not shed innocent blood in this place, or walk after other gods to your hurt, 
@@ -79,7 +79,7 @@ For I did not speak to your fathers, or command them in the day that I brought t
 But this is what I commanded them, saying, 'Obey My voice, and I will be your God, and you shall be My people. And walk in all the ways that I have commanded you, that it may be well with you.' 
 
 ###### 24 
-Yet they did not obey or incline their ear, but followed[^b] the counsels _and_ the [^c]dictates of their evil hearts, and went[^d] backward and not forward. 
+Yet they did not obey or incline their ear, but followed the counsels _and_ the dictates of their evil hearts, and went backward and not forward. 
 
 ###### 25 
 Since the day that your fathers came out of the land of Egypt until this day, I have even sent to you all My servants the prophets, daily rising up early and sending _them._ 
@@ -97,7 +97,7 @@ Yet they did not obey Me or incline their ear, but stiffened their neck. They di
 Cut off your hair and cast _it_ away, and take up a lamentation on the desolate heights; for the Lord has rejected and forsaken the generation of His wrath.' 
 
 ###### 30 
-For the children of Judah have done evil in My sight," says the Lord. "They have set their abominations in the house which is called by My name, to [^e]pollute it. 
+For the children of Judah have done evil in My sight," says the Lord. "They have set their abominations in the house which is called by My name, to pollute it. 
 
 ###### 31 
 And they have built the high places of Tophet, which _is_ in the Valley of the Son of Hinnom, to burn their sons and their daughters in the fire, which I did not command, nor did it come into My heart. 

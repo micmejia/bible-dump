@@ -898,4 +898,4 @@ Nang makita ng hari ng Moab na natatalo na sila sa labanan, dinala niya ang 700 
 
 
 
-Kaya kinuha niya ang panganay niyang anak na papalit sana sa kanya bilang hari, at inialay niya ito sa may pader bilang handog na sinusunog. Dahil sa sobrang galit[^a] laban sa Israel, pinabayaan na lang nila ang hari ng Moab at umuwi sila sa lupain nila.
+Kaya kinuha niya ang panganay niyang anak na papalit sana sa kanya bilang hari, at inialay niya ito sa may pader bilang handog na sinusunog. Dahil sa sobrang galit laban sa Israel, pinabayaan na lang nila ang hari ng Moab at umuwi sila sa lupain nila.

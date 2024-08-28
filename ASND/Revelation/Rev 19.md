@@ -271,7 +271,7 @@ Magalak tayo at magsaya, at purihin natin siya. Sapagkat dumating na ang oras ng
 
 
 
-Pinagsuot siya ng damit na malinis, makinang, at puting-puti." Ang ibig sabihin ng puting damit ay ang mabubuting gawa ng mga pinabanal[^a] <i class="trans-change">ng Dios_. 
+Pinagsuot siya ng damit na malinis, makinang, at puting-puti." Ang ibig sabihin ng puting damit ay ang mabubuting gawa ng mga pinabanal <i class="trans-change">ng Dios_. 
 
 
 
@@ -337,7 +337,7 @@ At sinabi sa akin ng anghel, "Isulat mo ito: Mapalad ang mga inimbitahan sa hand
 
 
 
-Lumuhod ako sa paanan niya upang sumamba sa kanya. Pero sinabi niya sa akin, "Huwag! Huwag mo akong sambahin. Sapagkat alipin din ako <i class="trans-change">ng Dios,_ tulad mo at ng mga kapatid mong nagpapahayag ng katotohanang itinuro ni Jesus.[^b] Ang Dios ang sambahin mo!" (Sapagkat ang mga katotohanang itinuro ni Jesus ay siyang buod ng mga sinabi at isinulat ng mga propeta.) ## Ang Nakasakay sa Puting Kabayo 
+Lumuhod ako sa paanan niya upang sumamba sa kanya. Pero sinabi niya sa akin, "Huwag! Huwag mo akong sambahin. Sapagkat alipin din ako <i class="trans-change">ng Dios,_ tulad mo at ng mga kapatid mong nagpapahayag ng katotohanang itinuro ni Jesus. Ang Dios ang sambahin mo!" (Sapagkat ang mga katotohanang itinuro ni Jesus ay siyang buod ng mga sinabi at isinulat ng mga propeta.) ## Ang Nakasakay sa Puting Kabayo 
 
 
 

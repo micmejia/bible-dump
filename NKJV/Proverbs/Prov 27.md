@@ -28,13 +28,13 @@ Open rebuke _is_ better Than love carefully concealed.
 Faithful _are_ the wounds of a friend, But the kisses of an enemy _are_ deceitful. 
 
 ###### 7 
-A satisfied soul [^a]loathes the honeycomb, But to a hungry soul every bitter thing _is_ sweet. 
+A satisfied soul loathes the honeycomb, But to a hungry soul every bitter thing _is_ sweet. 
 
 ###### 8 
 Like a bird that wanders from its nest _Is_ a man who wanders from his place. 
 
 ###### 9 
-Ointment and perfume delight the heart, And the sweetness of a man's friend _gives delight_ by [^b]hearty counsel. 
+Ointment and perfume delight the heart, And the sweetness of a man's friend _gives delight_ by hearty counsel. 
 
 ###### 10 
 Do not forsake your own friend or your father's friend, Nor go to your brother's house in the day of your calamity; Better _is_ a neighbor nearby than a brother far away. 
@@ -55,19 +55,19 @@ He who blesses his friend with a loud voice, rising early in the morning, It wil
 A continual dripping on a very rainy day And a contentious woman are alike; 
 
 ###### 16 
-Whoever [^c]restrains her restrains the wind, And grasps oil with his right hand. 
+Whoever restrains her restrains the wind, And grasps oil with his right hand. 
 
 ###### 17 
 _As_ iron sharpens iron, So a man sharpens the countenance of his friend. 
 
 ###### 18 
-Whoever [^d]keeps the fig tree will eat its fruit; So he who waits on his master will be honored. 
+Whoever keeps the fig tree will eat its fruit; So he who waits on his master will be honored. 
 
 ###### 19 
 As in water face _reflects_ face, So a man's heart _reveals_ the man. 
 
 ###### 20 
-Hell[^e] and [^f]Destruction are never full; So the eyes of man are never satisfied. 
+Hell and Destruction are never full; So the eyes of man are never satisfied. 
 
 ###### 21 
 The refining pot _is_ for silver and the furnace for gold, And a man _is valued_ by what others say of him. 

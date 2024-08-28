@@ -667,7 +667,7 @@ Pagkatapos, may ipinakita ang Dios sa kanya na isang balon. Pumunta siya roon at
 
 
 
-Nang panahong iyon,[^a] pumunta si Abimelec kay Abraham kasama ang kumander ng mga sundalo niya na si Picol. Sinabi ni Abimelec kay Abraham, "Tinutulungan ka talaga ng Dios sa lahat ng ginagawa mo. 
+Nang panahong iyon, pumunta si Abimelec kay Abraham kasama ang kumander ng mga sundalo niya na si Picol. Sinabi ni Abimelec kay Abraham, "Tinutulungan ka talaga ng Dios sa lahat ng ginagawa mo. 
 
 
 
@@ -964,7 +964,7 @@ Sumagot si Abraham, "Tanggapin mo ang pitong babaeng tupa na ito bilang katibaya
 
 
 
-Dahil sa sumpaan nila, ang lugar na iyon ay tinawag na Beersheba.[^b] 
+Dahil sa sumpaan nila, ang lugar na iyon ay tinawag na Beersheba. 
 
 
 

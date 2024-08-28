@@ -139,7 +139,7 @@ At kahit na magpatuloy ang pagtulo o hindi, ituturing pa rin siyang marumi.
 
 
 
-At ituturing na marumi ang anumang mahigaan o maupuan niya. ###### 5-7 At ang sinumang makahipo sa kanya o sa kanyang hinigaan o inupuan ay kinakailangang maglaba ng kanyang damit at maligo,[^a] pero ituturing pa rin siyang marumi hanggang sa paglubog ng araw. 
+At ituturing na marumi ang anumang mahigaan o maupuan niya. ###### 5-7 At ang sinumang makahipo sa kanya o sa kanyang hinigaan o inupuan ay kinakailangang maglaba ng kanyang damit at maligo, pero ituturing pa rin siyang marumi hanggang sa paglubog ng araw. 
 
 
 
@@ -634,4 +634,4 @@ Ihahandog ng pari ang isa bilang handog sa paglilinis at ang isaʼy bilang hando
 
 
 
-Sinabihan ng Panginoon sina Moises at Aaron na bigyang babala ang mga taga-Israel tungkol sa mga bagay na nakapagpaparumi sa kanila, para hindi sila mamatay kapag lumapit sila sa Tolda ng Panginoon sa gitna ng kampo. <sup class="versenum">32-33</sup>Ito ang mga tuntunin tungkol sa lalaking nilalabasan ng kanyang binhi o may lumalabas sa ari niya dahil sa kanyang sakit, at tungkol sa babaeng dinudugo sa panahon ng buwanang dalaw o dinudugo bago ang kanyang buwanang dalaw, at tungkol sa lalaking sumisiping sa babaeng itinuturing na marumi.[^b]
+Sinabihan ng Panginoon sina Moises at Aaron na bigyang babala ang mga taga-Israel tungkol sa mga bagay na nakapagpaparumi sa kanila, para hindi sila mamatay kapag lumapit sila sa Tolda ng Panginoon sa gitna ng kampo. <sup class="versenum">32-33</sup>Ito ang mga tuntunin tungkol sa lalaking nilalabasan ng kanyang binhi o may lumalabas sa ari niya dahil sa kanyang sakit, at tungkol sa babaeng dinudugo sa panahon ng buwanang dalaw o dinudugo bago ang kanyang buwanang dalaw, at tungkol sa lalaking sumisiping sa babaeng itinuturing na marumi.

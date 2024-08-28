@@ -10,13 +10,13 @@ next: ['Isa 22']
 
 
 ###### 1 
-The [^a]burden against the Wilderness of the Sea. As whirlwinds in the South pass through, _So_ it comes from the desert, from a terrible land. 
+The burden against the Wilderness of the Sea. As whirlwinds in the South pass through, _So_ it comes from the desert, from a terrible land. 
 
 ###### 2 
 A distressing vision is declared to me; The treacherous dealer deals treacherously, And the plunderer plunders. Go up, O Elam! Besiege, O Media! All its sighing I have made to cease. 
 
 ###### 3 
-Therefore my loins are filled with pain; Pangs have taken hold of me, like the pangs of a woman in labor. I was [^b]distressed when _I_ heard _it;_ I was dismayed when _I_ saw _it._ 
+Therefore my loins are filled with pain; Pangs have taken hold of me, like the pangs of a woman in labor. I was distressed when _I_ heard _it;_ I was dismayed when _I_ saw _it._ 
 
 ###### 4 
 My heart wavered, fearfulness frightened me; The night for which I longed He turned into fear for me. 
@@ -31,7 +31,7 @@ For thus has the Lord said to me: "Go, set a watchman, Let him declare what he s
 And he saw a chariot _with_ a pair of horsemen, A chariot of donkeys, _and_ a chariot of camels, And he listened earnestly with great care. 
 
 ###### 8 
-[^c]Then he cried, "A lion, my Lord! I stand continually on the watchtower in the daytime; I have sat at my post every night. 
+Then he cried, "A lion, my Lord! I stand continually on the watchtower in the daytime; I have sat at my post every night. 
 
 ###### 9 
 And look, here comes a chariot of men _with_ a pair of horsemen!" Then he answered and said, "Babylon is fallen, is fallen! And all the carved images of her gods He has broken to the ground." 
@@ -40,13 +40,13 @@ And look, here comes a chariot of men _with_ a pair of horsemen!" Then he answer
 Oh, my threshing and the grain of my floor! That which I have heard from the Lord of hosts, The God of Israel, I have declared to you. ## Proclamation Against Edom 
 
 ###### 11 
-The [^d]burden against Dumah. He calls to me out of Seir, "Watchman, what of the night? Watchman, what of the night?" 
+The burden against Dumah. He calls to me out of Seir, "Watchman, what of the night? Watchman, what of the night?" 
 
 ###### 12 
 The watchman said, "The morning comes, and also the night. If you will inquire, inquire; Return! Come back!" ## Proclamation Against Arabia 
 
 ###### 13 
-The [^e]burden against Arabia. In the forest in Arabia you will lodge, O you traveling companies of Dedanites. 
+The burden against Arabia. In the forest in Arabia you will lodge, O you traveling companies of Dedanites. 
 
 ###### 14 
 O inhabitants of the land of Tema, Bring water to him who is thirsty; With their bread they met him who fled. 

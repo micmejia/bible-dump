@@ -22,13 +22,13 @@ So, because he was of the same trade, he stayed with them and worked; for by occ
 And he reasoned in the synagogue every Sabbath, and persuaded both Jews and Greeks. 
 
 ###### 5 
-When Silas and Timothy had come from Macedonia, Paul was compelled [^a]by the Spirit, and testified to the Jews _that_ Jesus _is_ the Christ. 
+When Silas and Timothy had come from Macedonia, Paul was compelled by the Spirit, and testified to the Jews _that_ Jesus _is_ the Christ. 
 
 ###### 6 
 But when they opposed him and blasphemed, he shook _his_ garments and said to them, "Your blood _be_ upon your _own_ heads; I _am_ clean. From now on I will go to the Gentiles." 
 
 ###### 7 
-And he departed from there and entered the house of a certain _man_ named [^b]Justus, _one_ who worshiped God, whose house was next door to the synagogue. 
+And he departed from there and entered the house of a certain _man_ named Justus, _one_ who worshiped God, whose house was next door to the synagogue. 
 
 ###### 8 
 Then Crispus, the ruler of the synagogue, believed on the Lord with all his household. And many of the Corinthians, hearing, believed and were baptized. 
@@ -43,7 +43,7 @@ for I am with you, and no one will attack you to hurt you; for I have many peopl
 And he continued _there_ a year and six months, teaching the word of God among them. 
 
 ###### 12 
-When Gallio was proconsul of Achaia, the Jews with one accord rose up against Paul and brought him to the [^c]judgment seat, 
+When Gallio was proconsul of Achaia, the Jews with one accord rose up against Paul and brought him to the judgment seat, 
 
 ###### 13 
 saying, "This _fellow_ persuades men to worship God contrary to the law." 
@@ -58,10 +58,10 @@ But if it is a question of words and names and your own law, look _to it_ yourse
 And he drove them from the judgment seat. 
 
 ###### 17 
-Then [^d]all the Greeks took Sosthenes, the ruler of the synagogue, and beat _him_ before the judgment seat. But Gallio took no notice of these things. ## Paul Returns to Antioch 
+Then all the Greeks took Sosthenes, the ruler of the synagogue, and beat _him_ before the judgment seat. But Gallio took no notice of these things. ## Paul Returns to Antioch 
 
 ###### 18 
-So Paul still remained [^e]a good while. Then he took leave of the brethren and sailed for Syria, and Priscilla and Aquila _were_ with him. He had _his_ hair cut off at Cenchrea, for he had taken a vow. 
+So Paul still remained a good while. Then he took leave of the brethren and sailed for Syria, and Priscilla and Aquila _were_ with him. He had _his_ hair cut off at Cenchrea, for he had taken a vow. 
 
 ###### 19 
 And he came to Ephesus, and left them there; but he himself entered the synagogue and reasoned with the Jews. 
@@ -70,13 +70,13 @@ And he came to Ephesus, and left them there; but he himself entered the synagogu
 When they asked _him_ to stay a longer time with them, he did not consent, 
 
 ###### 21 
-but took leave of them, saying, "I[^f] must by all means keep this coming feast in Jerusalem; but I will return again to you, God willing." And he sailed from Ephesus. 
+but took leave of them, saying, "I must by all means keep this coming feast in Jerusalem; but I will return again to you, God willing." And he sailed from Ephesus. 
 
 ###### 22 
-And when he had landed at Caesarea, and [^g]gone up and greeted the church, he went down to Antioch. 
+And when he had landed at Caesarea, and gone up and greeted the church, he went down to Antioch. 
 
 ###### 23 
-After he had spent some time _there,_ he departed and went over the region of Galatia and Phrygia [^h]in order, strengthening all the disciples. ## Ministry of Apollos 
+After he had spent some time _there,_ he departed and went over the region of Galatia and Phrygia in order, strengthening all the disciples. ## Ministry of Apollos 
 
 ###### 24 
 Now a certain Jew named Apollos, born at Alexandria, an eloquent man _and_ mighty in the Scriptures, came to Ephesus. 

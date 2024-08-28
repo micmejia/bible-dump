@@ -336,7 +336,7 @@ Ipinahayag na sa kanila ng Espiritu ni Cristo na nasa kanila, na maghihirap siya
 
 
 
-Ipinahayag din sa kanila na ang mga bagay na ipinaalam nila ay hindi para sa ikabubuti nila kundi para sa atin.[^a] At ngayon, napakinggan nʼyo na sa mga nangangaral ng Magandang Balita ang mga ipinahayag nila. Nagsalita sila sa inyo sa pamamagitan ng <i class="trans-change">kapangyarihan ng_ Banal na Espiritung sinugo sa kanila mula sa langit. Kahit ang mga anghel noon ay nagnais na maunawaan ang Magandang Balitang ito na ipinangaral sa inyo. ## Sundin Ninyo ang Dios 
+Ipinahayag din sa kanila na ang mga bagay na ipinaalam nila ay hindi para sa ikabubuti nila kundi para sa atin. At ngayon, napakinggan nʼyo na sa mga nangangaral ng Magandang Balita ang mga ipinahayag nila. Nagsalita sila sa inyo sa pamamagitan ng <i class="trans-change">kapangyarihan ng_ Banal na Espiritung sinugo sa kanila mula sa langit. Kahit ang mga anghel noon ay nagnais na maunawaan ang Magandang Balitang ito na ipinangaral sa inyo. ## Sundin Ninyo ang Dios 
 
 
 
@@ -468,7 +468,7 @@ Banal ang Dios na tumawag sa inyo, kaya dapat magpakabanal din kayo sa lahat ng 
 
 
 
-Sapagkat sinasabi <i class="trans-change">ng Dios_ sa Kasulatan, "Magpakabanal kayo dahil banal ako."[^b] 
+Sapagkat sinasabi <i class="trans-change">ng Dios_ sa Kasulatan, "Magpakabanal kayo dahil banal ako." 
 
 
 
@@ -765,4 +765,4 @@ dahil ipinanganak na kayong muli. At ang kapanganakang itoʼy hindi sa pamamagit
 
 
 
-ngunit ang salita ng Panginoon ay nananatili magpakailanman."[^c] At ang salitang ito ay ang Magandang Balitang ipinangaral sa inyo.
+ngunit ang salita ng Panginoon ay nananatili magpakailanman." At ang salitang ito ay ang Magandang Balitang ipinangaral sa inyo.

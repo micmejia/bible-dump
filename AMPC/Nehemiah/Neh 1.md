@@ -195,7 +195,7 @@ Remember [earnestly] what You commanded Your servant Moses: If you transgress _a
 
 
 
-But if you return to Me and keep My commandments and do them, though your outcasts were in the farthest part of the heavens [the expanse of outer space], yet will I gather them from there and will bring them to the place in which I have chosen to set My [^a]Name. 
+But if you return to Me and keep My commandments and do them, though your outcasts were in the farthest part of the heavens [the expanse of outer space], yet will I gather them from there and will bring them to the place in which I have chosen to set My Name. 
 
 
 

@@ -10,7 +10,7 @@ next: ['Gal 4']
 
 
 ###### 1 
-O foolish Galatians! Who has bewitched you [^a]that you should not obey the truth, before whose eyes Jesus Christ was clearly portrayed [^b]among you as crucified? 
+O foolish Galatians! Who has bewitched you that you should not obey the truth, before whose eyes Jesus Christ was clearly portrayed among you as crucified? 
 
 ###### 2 
 This only I want to learn from you: Did you receive the Spirit by the works of the law, or by the hearing of faith? 
@@ -19,7 +19,7 @@ This only I want to learn from you: Did you receive the Spirit by the works of t
 Are you so foolish? Having begun in the Spirit, are you now being made perfect by the flesh? 
 
 ###### 4 
-Have you suffered so [^c]many things in vain--if indeed _it was_ in vain? 
+Have you suffered so many things in vain--if indeed _it was_ in vain? 
 
 ###### 5 
 Therefore He who supplies the Spirit to you and works miracles among you, _does He do it_ by the works of the law, or by the hearing of faith?-- 
@@ -40,7 +40,7 @@ So then those who _are_ of faith are blessed with believing Abraham. ## The Law 
 For as many as are of the works of the law are under the curse; for it is written, "Cursed _is_ everyone who does not continue in all things which are written in the book of the law, to do them." 
 
 ###### 11 
-But that no one is [^d]justified by the law in the sight of God _is_ evident, for "the just shall live by faith." 
+But that no one is justified by the law in the sight of God _is_ evident, for "the just shall live by faith." 
 
 ###### 12 
 Yet the law is not of faith, but "the man who does them shall live by them." 
@@ -58,7 +58,7 @@ Brethren, I speak in the manner of men: Though _it is_ only a man's covenant, ye
 Now to Abraham and his Seed were the promises made. He does not say, "And to seeds," as of many, but as of one, "And to your Seed," who is Christ. 
 
 ###### 17 
-And this I say, _that_ the law, which was four hundred and thirty years later, cannot annul the covenant that was confirmed before by God [^e]in Christ, that it should make the promise of no effect. 
+And this I say, _that_ the law, which was four hundred and thirty years later, cannot annul the covenant that was confirmed before by God in Christ, that it should make the promise of no effect. 
 
 ###### 18 
 For if the inheritance _is_ of the law, _it is_ no longer of promise; but God gave _it_ to Abraham by promise. ## Purpose of the Law 
@@ -76,10 +76,10 @@ _Is_ the law then against the promises of God? Certainly not! For if there had b
 But the Scripture has confined all under sin, that the promise by faith in Jesus Christ might be given to those who believe. 
 
 ###### 23 
-But before faith came, we were kept under guard by the law, [^f]kept for the faith which would afterward be revealed. 
+But before faith came, we were kept under guard by the law, kept for the faith which would afterward be revealed. 
 
 ###### 24 
-Therefore the law was our [^g]tutor _to bring us_ to Christ, that we might be justified by faith. 
+Therefore the law was our tutor _to bring us_ to Christ, that we might be justified by faith. 
 
 ###### 25 
 But after faith has come, we are no longer under a tutor. ## Sons and Heirs 

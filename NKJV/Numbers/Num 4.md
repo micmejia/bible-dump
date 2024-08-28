@@ -28,7 +28,7 @@ When the camp prepares to journey, Aaron and his sons shall come, and they shall
 Then they shall put on it a covering of badger skins, and spread over _that_ a cloth entirely of blue; and they shall insert its poles. 
 
 ###### 7 
-"On the table of showbread they shall spread a blue cloth, and put on it the dishes, the pans, the bowls, and the [^a]pitchers for pouring; and the showbread[^b] shall be on it. 
+"On the table of showbread they shall spread a blue cloth, and put on it the dishes, the pans, the bowls, and the pitchers for pouring; and the showbread shall be on it. 
 
 ###### 8 
 They shall spread over them a scarlet cloth, and cover the same with a covering of badger skins; and they shall insert its poles. 
@@ -49,7 +49,7 @@ Then they shall take all the utensils of service with which they minister in the
 Also they shall take away the ashes from the altar, and spread a purple cloth over it. 
 
 ###### 14 
-They shall put on it all its implements with which they minister there--the firepans, the forks, the shovels, the [^c]basins, and all the utensils of the altar--and they shall spread on it a covering of badger skins, and insert its poles. 
+They shall put on it all its implements with which they minister there--the firepans, the forks, the shovels, the basins, and all the utensils of the altar--and they shall spread on it a covering of badger skins, and insert its poles. 
 
 ###### 15 
 And when Aaron and his sons have finished covering the sanctuary and all the furnishings of the sanctuary, when the camp is set to go, then the sons of Kohath shall come to carry _them;_ but they shall not touch any holy thing, lest they die. "These _are_ the things in the tabernacle of meeting which the sons of Kohath are to carry. 
@@ -64,7 +64,7 @@ Then the Lord spoke to Moses and Aaron, saying:
 "Do not cut off the tribe of the families of the Kohathites from among the Levites; 
 
 ###### 19 
-but do this in regard to them, that they may live and not die when they approach the most holy things: Aaron and his sons shall go in and [^d]appoint each of them to his service and his task. 
+but do this in regard to them, that they may live and not die when they approach the most holy things: Aaron and his sons shall go in and appoint each of them to his service and his task. 
 
 ###### 20 
 But they shall not go in to watch while the holy things are being covered, lest they die." ## Duties of the Sons of Gershon 
@@ -88,10 +88,10 @@ They shall carry the curtains of the tabernacle and the tabernacle of meeting _w
 the screen for the door of the gate of the court, the hangings of the court which _are_ around the tabernacle and altar, and their cords, all the furnishings for their service and all that is made for these things: so shall they serve. 
 
 ###### 27 
-"Aaron and his sons shall [^e]assign all the service of the sons of the Gershonites, all their tasks and all their service. And you shall [^f]appoint to them all their tasks as their duty. 
+"Aaron and his sons shall assign all the service of the sons of the Gershonites, all their tasks and all their service. And you shall appoint to them all their tasks as their duty. 
 
 ###### 28 
-This _is_ the service of the families of the sons of Gershon in the tabernacle of meeting. And their duties _shall be_ under the [^g]authority of Ithamar the son of Aaron the priest. ## Duties of the Sons of Merari 
+This _is_ the service of the families of the sons of Gershon in the tabernacle of meeting. And their duties _shall be_ under the authority of Ithamar the son of Aaron the priest. ## Duties of the Sons of Merari 
 
 ###### 29 
 "_As for_ the sons of Merari, you shall number them by their families and by their fathers' house. 
@@ -106,7 +106,7 @@ And this _is_ what they must carry as all their service for the tabernacle of me
 and the pillars around the court with their sockets, pegs, and cords, with all their furnishings and all their service; and you shall assign _to each man_ by name the items he must carry. 
 
 ###### 33 
-This _is_ the service of the families of the sons of Merari, as all their service for the tabernacle of meeting, under the [^h]authority of Ithamar the son of Aaron the priest." ## Census of the Levites 
+This _is_ the service of the families of the sons of Merari, as all their service for the tabernacle of meeting, under the authority of Ithamar the son of Aaron the priest." ## Census of the Levites 
 
 ###### 34 
 And Moses, Aaron, and the leaders of the congregation numbered the sons of the Kohathites by their families and by their fathers' house, 
@@ -133,7 +133,7 @@ those who were numbered by their families, by their fathers' house, were two tho
 These _are_ the ones who were numbered of the families of the sons of Gershon, of all who might serve in the tabernacle of meeting, whom Moses and Aaron numbered according to the commandment of the Lord. 
 
 ###### 42 
-Those of the families of the sons of Merari who were numbered, by their families, by their fathers' [^i]house, 
+Those of the families of the sons of Merari who were numbered, by their families, by their fathers' house, 
 
 ###### 43 
 from thirty years old and above, even to fifty years old, everyone who entered the service for work in the tabernacle of meeting-- 

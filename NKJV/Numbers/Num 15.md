@@ -16,7 +16,7 @@ And the Lord spoke to Moses, saying,
 "Speak to the children of Israel, and say to them: 'When you have come into the land you are to inhabit, which I am giving to you, 
 
 ###### 3 
-and you make an offering by fire to the Lord, a burnt offering or a sacrifice, to fulfill a vow or as a freewill offering or in your appointed feasts, to make a sweet[^a] aroma to the Lord, from the herd or the flock, 
+and you make an offering by fire to the Lord, a burnt offering or a sacrifice, to fulfill a vow or as a freewill offering or in your appointed feasts, to make a sweet aroma to the Lord, from the herd or the flock, 
 
 ###### 4 
 then he who presents his offering to the Lord shall bring a grain offering of one-tenth _of an ephah_ of fine flour mixed with one-fourth of a hin of oil; 
@@ -49,10 +49,10 @@ According to the number that you prepare, so you shall do with everyone accordin
 All who are native-born shall do these things in this manner, in presenting an offering made by fire, a sweet aroma to the Lord. 
 
 ###### 14 
-And if a stranger [^b]dwells with you, or whoever _is_ among you throughout your generations, and would present an offering made by fire, a sweet aroma to the Lord, just as you do, so shall he do. 
+And if a stranger dwells with you, or whoever _is_ among you throughout your generations, and would present an offering made by fire, a sweet aroma to the Lord, just as you do, so shall he do. 
 
 ###### 15 
-One [^c]ordinance _shall be_ for you of the assembly and for the stranger who dwells _with you,_ an ordinance forever throughout your generations; as you are, so shall the stranger be before the Lord. 
+One ordinance _shall be_ for you of the assembly and for the stranger who dwells _with you,_ an ordinance forever throughout your generations; as you are, so shall the stranger be before the Lord. 
 
 ###### 16 
 One law and one custom shall be for you and for the stranger who dwells with you.' " 
@@ -79,7 +79,7 @@ Of the first of your ground meal you shall give to the Lord a heave offering thr
 all that the Lord has commanded you by the hand of Moses, from the day the Lord gave commandment and onward throughout your generations-- 
 
 ###### 24 
-then it will be, if it is unintentionally committed, [^d]without the knowledge of the congregation, that the whole congregation shall offer one young bull as a burnt offering, as a sweet aroma to the Lord, with its grain offering and its drink offering, according to the ordinance, and one kid of the goats as a sin offering. 
+then it will be, if it is unintentionally committed, without the knowledge of the congregation, that the whole congregation shall offer one young bull as a burnt offering, as a sweet aroma to the Lord, with its grain offering and its drink offering, according to the ordinance, and one kid of the goats as a sin offering. 
 
 ###### 25 
 So the priest shall make atonement for the whole congregation of the children of Israel, and it shall be forgiven them, for it was unintentional; they shall bring their offering, an offering made by fire to the Lord, and their sin offering before the Lord, for their unintended sin. 
@@ -97,10 +97,10 @@ So the priest shall make atonement for the person who sins unintentionally, when
 You shall have one law for him who sins unintentionally, _for_ him who is native-born among the children of Israel and for the stranger who dwells among them. ## Law Concerning Presumptuous Sin 
 
 ###### 30 
-'But the person who does _anything_ [^e]presumptuously, _whether he is_ native-born or a stranger, that one [^f]brings reproach on the Lord, and he shall be [^g]cut off from among his people. 
+'But the person who does _anything_ presumptuously, _whether he is_ native-born or a stranger, that one brings reproach on the Lord, and he shall be cut off from among his people. 
 
 ###### 31 
-Because he has despised the word of the Lord, and has broken His commandment, that person shall be completely cut off; his [^h]guilt _shall be_ upon him.' " ## Penalty for Violating the Sabbath 
+Because he has despised the word of the Lord, and has broken His commandment, that person shall be completely cut off; his guilt _shall be_ upon him.' " ## Penalty for Violating the Sabbath 
 
 ###### 32 
 Now while the children of Israel were in the wilderness, they found a man gathering sticks on the Sabbath day. 

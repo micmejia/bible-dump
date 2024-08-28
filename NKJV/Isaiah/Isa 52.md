@@ -19,10 +19,10 @@ Shake yourself from the dust, arise; Sit down, O Jerusalem! Loose yourself from 
 For thus says the Lord: "You have sold yourselves for nothing, And you shall be redeemed without money." 
 
 ###### 4 
-For thus says the Lord God: "My people went down at first Into Egypt to [^a]dwell there; Then the Assyrian oppressed them without cause. 
+For thus says the Lord God: "My people went down at first Into Egypt to dwell there; Then the Assyrian oppressed them without cause. 
 
 ###### 5 
-Now therefore, what have I here," says the Lord, "That My people are taken away for nothing? Those who rule over them [^b]Make them wail," says the Lord, "And My name _is_ blasphemed continually every day. 
+Now therefore, what have I here," says the Lord, "That My people are taken away for nothing? Those who rule over them Make them wail," says the Lord, "And My name _is_ blasphemed continually every day. 
 
 ###### 6 
 Therefore My people shall know My name; Therefore _they shall know_ in that day That I _am_ He who speaks: 'Behold, _it is_ I.' " 
@@ -37,7 +37,7 @@ Your watchmen shall lift up _their_ voices, With their voices they shall sing to
 Break forth into joy, sing together, You waste places of Jerusalem! For the Lord has comforted His people, He has redeemed Jerusalem. 
 
 ###### 10 
-The Lord has [^c]made bare His holy arm In the eyes of all the nations; And all the ends of the earth shall see The salvation of our God. 
+The Lord has made bare His holy arm In the eyes of all the nations; And all the ends of the earth shall see The salvation of our God. 
 
 ###### 11 
 Depart! Depart! Go out from there, Touch no unclean _thing;_ Go out from the midst of her, Be clean, You who bear the vessels of the Lord. 
@@ -46,10 +46,10 @@ Depart! Depart! Go out from there, Touch no unclean _thing;_ Go out from the mid
 For you shall not go out with haste, Nor go by flight; For the Lord will go before you, And the God of Israel _will be_ your rear guard. ## The Sin-Bearing Servant 
 
 ###### 13 
-Behold, My Servant shall [^d]deal prudently; He shall be exalted and [^e]extolled and be very high. 
+Behold, My Servant shall deal prudently; He shall be exalted and extolled and be very high. 
 
 ###### 14 
-Just as many were astonished at you, So His visage[^f] was marred more than any man, And His form more than the sons of men; 
+Just as many were astonished at you, So His visage was marred more than any man, And His form more than the sons of men; 
 
 ###### 15 
-So shall He [^g]sprinkle many nations. Kings shall shut their mouths at Him; For what had not been told them they shall see, And what they had not heard they shall consider.
+So shall He sprinkle many nations. Kings shall shut their mouths at Him; For what had not been told them they shall see, And what they had not heard they shall consider.

@@ -10,7 +10,7 @@ next: ['1 John 4']
 
 
 ###### 1 
-Behold what manner of love the Father has bestowed on us, that we should be called children of [^a]God! Therefore the world does not know [^b]us, because it did not know Him. 
+Behold what manner of love the Father has bestowed on us, that we should be called children of God! Therefore the world does not know us, because it did not know Him. 
 
 ###### 2 
 Beloved, now we are children of God; and it has not yet been revealed what we shall be, but we know that when He is revealed, we shall be like Him, for we shall see Him as He is. 
@@ -49,7 +49,7 @@ not as Cain _who_ was of the wicked one and murdered his brother. And why did he
 Do not marvel, my brethren, if the world hates you. 
 
 ###### 14 
-We know that we have passed from death to life, because we love the brethren. He who does not love [^c]_his_ brother abides in death. 
+We know that we have passed from death to life, because we love the brethren. He who does not love _his_ brother abides in death. 
 
 ###### 15 
 Whoever hates his brother is a murderer, and you know that no murderer has eternal life abiding in him. ## The Outworking of Love 
@@ -64,7 +64,7 @@ But whoever has this world's goods, and sees his brother in need, and shuts up h
 My little children, let us not love in word or in tongue, but in deed and in truth. 
 
 ###### 19 
-And by this we [^d]know that we are of the truth, and shall [^e]assure our hearts before Him. 
+And by this we know that we are of the truth, and shall assure our hearts before Him. 
 
 ###### 20 
 For if our heart condemns us, God is greater than our heart, and knows all things. 
@@ -76,7 +76,7 @@ Beloved, if our heart does not condemn us, we have confidence toward God.
 And whatever we ask we receive from Him, because we keep His commandments and do those things that are pleasing in His sight. 
 
 ###### 23 
-And this is His commandment: that we should believe on the name of His Son Jesus Christ and love one another, as He gave [^f]us commandment. ## The Spirit of Truth and the Spirit of Error 
+And this is His commandment: that we should believe on the name of His Son Jesus Christ and love one another, as He gave us commandment. ## The Spirit of Truth and the Spirit of Error 
 
 ###### 24 
 Now he who keeps His commandments abides in Him, and He in him. And by this we know that He abides in us, by the Spirit whom He has given us.

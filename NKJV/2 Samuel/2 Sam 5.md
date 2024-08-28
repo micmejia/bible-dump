@@ -34,7 +34,7 @@ Nevertheless David took the stronghold of Zion (that _is,_ the City of David).
 Now David said on that day, "Whoever climbs up by way of the water shaft and defeats the Jebusites (the lame and the blind, _who are_ hated by David's soul), _he shall be chief and captain._" Therefore they say, "The blind and the lame shall not come into the house." 
 
 ###### 9 
-Then David dwelt in the stronghold, and called it the City of David. And David built all around from [^a]the Millo and inward. 
+Then David dwelt in the stronghold, and called it the City of David. And David built all around from the Millo and inward. 
 
 ###### 10 
 So David went on and became great, and the Lord God of hosts _was_ with him. 
@@ -49,10 +49,10 @@ So David knew that the Lord had established him as king over Israel, and that He
 And David took more concubines and wives from Jerusalem, after he had come from Hebron. Also more sons and daughters were born to David. 
 
 ###### 14 
-Now these _are_ the names of those who were born to him in Jerusalem: [^b]Shammua, Shobab, Nathan, Solomon, 
+Now these _are_ the names of those who were born to him in Jerusalem: Shammua, Shobab, Nathan, Solomon, 
 
 ###### 15 
-Ibhar, [^c]Elishua, Nepheg, Japhia, 
+Ibhar, Elishua, Nepheg, Japhia, 
 
 ###### 16 
 Elishama, Eliada, and Eliphelet. ## The Philistines Defeated 
@@ -67,10 +67,10 @@ The Philistines also went and deployed themselves in the Valley of Rephaim.
 So David inquired of the Lord, saying, "Shall I go up against the Philistines? Will You deliver them into my hand?" And the Lord said to David, "Go up, for I will doubtless deliver the Philistines into your hand." 
 
 ###### 20 
-So David went to Baal Perazim, and David defeated them there; and he said, "The Lord has broken through my enemies before me, like a breakthrough of water." Therefore he called the name of that place [^d]Baal Perazim. 
+So David went to Baal Perazim, and David defeated them there; and he said, "The Lord has broken through my enemies before me, like a breakthrough of water." Therefore he called the name of that place Baal Perazim. 
 
 ###### 21 
-And they left their [^e]images there, and David and his men carried them away. 
+And they left their images there, and David and his men carried them away. 
 
 ###### 22 
 Then the Philistines went up once again and deployed themselves in the Valley of Rephaim. 
@@ -82,4 +82,4 @@ Therefore David inquired of the Lord, and He said, "You shall not go up; circle 
 And it shall be, when you hear the sound of marching in the tops of the mulberry trees, then you shall advance quickly. For then the Lord will go out before you to strike the camp of the Philistines." 
 
 ###### 25 
-And David did so, as the Lord commanded him; and he drove back the Philistines from Geba[^f] as far as Gezer.
+And David did so, as the Lord commanded him; and he drove back the Philistines from Geba as far as Gezer.

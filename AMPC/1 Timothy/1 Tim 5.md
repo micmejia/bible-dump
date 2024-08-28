@@ -364,7 +364,7 @@ If any believing woman _or believing man_ has [relatives or persons in the house
 
 
 
-Let the elders who perform the duties of their office well be considered doubly worthy of honor [and of adequate [^a]financial support], especially those who labor faithfully in preaching and teaching. 
+Let the elders who perform the duties of their office well be considered doubly worthy of honor [and of adequate financial support], especially those who labor faithfully in preaching and teaching. 
 
 
 

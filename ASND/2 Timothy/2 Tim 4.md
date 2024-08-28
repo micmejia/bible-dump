@@ -270,7 +270,7 @@ Puspusan akong nakipaglaban sa paligsahan. Natapos ko ang dapat kong takbuhin. N
 
 
 
-At ngayon, may inilaan <i class="trans-change">ang Dios_ sa akin na korona ng katuwiran.[^a] Ibibigay ito sa akin ng makatarungang Panginoon sa araw ng paghuhukom niya. At hindi lang ako ang bibigyan, kundi maging ang lahat ng nananabik sa pagbabalik niya. ## Mga Personal na Bilin 
+At ngayon, may inilaan <i class="trans-change">ang Dios_ sa akin na korona ng katuwiran. Ibibigay ito sa akin ng makatarungang Panginoon sa araw ng paghuhukom niya. At hindi lang ako ang bibigyan, kundi maging ang lahat ng nananabik sa pagbabalik niya. ## Mga Personal na Bilin 
 
 
 
@@ -567,7 +567,7 @@ Walang sumama sa akin sa unang paglilitis sa akin; iniwan ako ng lahat. Patawari
 
 
 
-Ngunit hindi ako pinabayaan ng Panginoon; binigyan niya ako ng lakas para maipahayag nang husto ang Magandang Balita sa mga hindi Judio. Iniligtas niya ako sa tiyak na kamatayan.[^b] 
+Ngunit hindi ako pinabayaan ng Panginoon; binigyan niya ako ng lakas para maipahayag nang husto ang Magandang Balita sa mga hindi Judio. Iniligtas niya ako sa tiyak na kamatayan. 
 
 
 

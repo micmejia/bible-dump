@@ -301,7 +301,7 @@ But Jacob replied, You know, my lord, that the children are tender _and_ delicat
 
 
 
-Let my lord, I pray you, pass over before his servant; and I will lead on slowly, governed by [consideration for] the livestock that set the pace before me and the endurance of the children, [^a]until I come to my lord in Seir. 
+Let my lord, I pray you, pass over before his servant; and I will lead on slowly, governed by [consideration for] the livestock that set the pace before me and the endurance of the children, until I come to my lord in Seir. 
 
 
 

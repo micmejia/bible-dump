@@ -342,7 +342,7 @@ And the king made silver and gold in Jerusalem as common as stones, and he made 
 
 
 
-Solomon's horses were brought out of Egypt; the king's merchants received them in droves, [^a]each drove at a price. 
+Solomon's horses were brought out of Egypt; the king's merchants received them in droves, each drove at a price. 
 
 
 

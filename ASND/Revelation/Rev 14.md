@@ -403,7 +403,7 @@ Ang usok ng apoy na magpapahirap sa kanila ay papailanlang magpakailanman. Araw-
 
 
 
-Kaya kayong mga pinabanal[^a] <i class="trans-change">ng Dios_ na sumusunod sa kanyang mga utos at patuloy na sumasampalataya kay Jesus, kinakailangang maging matiisin kayo. 
+Kaya kayong mga pinabanal <i class="trans-change">ng Dios_ na sumusunod sa kanyang mga utos at patuloy na sumasampalataya kay Jesus, kinakailangang maging matiisin kayo. 
 
 
 
@@ -469,7 +469,7 @@ Pagkatapos, may narinig akong tinig mula sa langit na nagsasabi, "Isulat mo ito:
 
 
 
-Pagkatapos, nakakita ako ng maputing ulap na may nakaupong parang tao.[^b] May gintong korona siya at may hawak na isang matalim na karit. 
+Pagkatapos, nakakita ako ng maputing ulap na may nakaupong parang tao. May gintong korona siya at may hawak na isang matalim na karit. 
 
 
 

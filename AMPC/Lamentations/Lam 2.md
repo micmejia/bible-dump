@@ -364,7 +364,7 @@ All your enemies have opened wide their mouths against you; they scornfully hiss
 
 
 
-The Lord has done what He planned; He has carried out _and_ finished His word which He threatened _and_ decreed [^a]in the days of old. He has demolished without pity; He has made the enemy rejoice over you and has exalted the might of your foes. 
+The Lord has done what He planned; He has carried out _and_ finished His word which He threatened _and_ decreed in the days of old. He has demolished without pity; He has made the enemy rejoice over you and has exalted the might of your foes. 
 
 
 

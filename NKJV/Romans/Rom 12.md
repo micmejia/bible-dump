@@ -10,7 +10,7 @@ next: ['Rom 13']
 
 
 ###### 1 
-I beseech[^a] you therefore, brethren, by the mercies of God, that you present your bodies a living sacrifice, holy, acceptable to God, _which is_ your [^b]reasonable service. 
+I beseech you therefore, brethren, by the mercies of God, that you present your bodies a living sacrifice, holy, acceptable to God, _which is_ your reasonable service. 
 
 ###### 2 
 And do not be conformed to this world, but be transformed by the renewing of your mind, that you may prove what _is_ that good and acceptable and perfect will of God. ## Serve God with Spiritual Gifts 
@@ -43,10 +43,10 @@ _Be_ kindly affectionate to one another with brotherly love, in honor giving pre
 not lagging in diligence, fervent in spirit, serving the Lord; 
 
 ###### 12 
-rejoicing in hope, patient[^c] in tribulation, continuing steadfastly in prayer; 
+rejoicing in hope, patient in tribulation, continuing steadfastly in prayer; 
 
 ###### 13 
-distributing to the needs of the saints, given[^d] to hospitality. 
+distributing to the needs of the saints, given to hospitality. 
 
 ###### 14 
 Bless those who persecute you; bless and do not curse. 
@@ -58,7 +58,7 @@ Rejoice with those who rejoice, and weep with those who weep.
 Be of the same mind toward one another. Do not set your mind on high things, but associate with the humble. Do not be wise in your own opinion. 
 
 ###### 17 
-Repay no one evil for evil. Have[^e] regard for good things in the sight of all men. 
+Repay no one evil for evil. Have regard for good things in the sight of all men. 
 
 ###### 18 
 If it is possible, as much as depends on you, live peaceably with all men. 

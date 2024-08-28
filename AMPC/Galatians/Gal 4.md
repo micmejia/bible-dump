@@ -112,7 +112,7 @@ But when the proper time had fully come, God sent His Son, born of a woman, born
 
 
 
-To purchase the freedom of (to ransom, to redeem, to [^a]atone for) those who were subject to the Law, that we might be adopted _and_ have sonship conferred upon us [and be recognized as God's sons]. 
+To purchase the freedom of (to ransom, to redeem, to atone for) those who were subject to the Law, that we might be adopted _and_ have sonship conferred upon us [and be recognized as God's sons]. 
 
 
 
@@ -133,7 +133,7 @@ To purchase the freedom of (to ransom, to redeem, to [^a]atone for) those who we
 
 
 
-And because you [really] are [His] sons, God has sent the [[^b]Holy] Spirit of His Son into our hearts, crying, Abba (Father)! Father! 
+And because you [really] are [His] sons, God has sent the [Holy] Spirit of His Son into our hearts, crying, Abba (Father)! Father! 
 
 
 
@@ -154,7 +154,7 @@ And because you [really] are [His] sons, God has sent the [[^b]Holy] Spirit of H
 
 
 
-Therefore, you are no longer a slave (bond servant) but a son; and if a son, then [it follows that you are] an heir [^c]by the aid of God, _through Christ_. 
+Therefore, you are no longer a slave (bond servant) but a son; and if a son, then [it follows that you are] an heir by the aid of God, _through Christ_. 
 
 
 
@@ -196,7 +196,7 @@ But at that previous time, when you had not come to be acquainted with _and_ und
 
 
 
-Now, however, that you have come to be acquainted with _and_ understand _and_ know [the true] God, or rather to be understood _and_ known by God, how can you turn back again to the weak and beggarly _and_ worthless elementary things [[^d]of all religions before Christ came], whose slaves you once more want to become? 
+Now, however, that you have come to be acquainted with _and_ understand _and_ know [the true] God, or rather to be understood _and_ known by God, how can you turn back again to the weak and beggarly _and_ worthless elementary things [of all religions before Christ came], whose slaves you once more want to become? 
 
 
 
@@ -259,7 +259,7 @@ I am alarmed [about you], lest I have labored among _and_ over you to no purpose
 
 
 
-Brethren, I beg of you, become as I am [free from the bondage of Jewish ritualism and ordinances], for I also have become as you are [[^e]a Gentile]. You did me no wrong [[^f]in the days when I first came to you; do not do it now]. 
+Brethren, I beg of you, become as I am [free from the bondage of Jewish ritualism and ordinances], for I also have become as you are [a Gentile]. You did me no wrong [in the days when I first came to you; do not do it now]. 
 
 
 
@@ -385,7 +385,7 @@ These men [the Judaizing teachers] are zealously trying to dazzle you [paying co
 
 
 
-It is always a fine thing [of course] to be zealously sought after [as you are, provided that it is] for a good purpose _and_ done [^g]by reason of purity of heart and life, and not just when I am present with you! 
+It is always a fine thing [of course] to be zealously sought after [as you are, provided that it is] for a good purpose _and_ done by reason of purity of heart and life, and not just when I am present with you! 
 
 
 
@@ -553,7 +553,7 @@ Now Hagar is (stands for) Mount Sinai in Arabia and she corresponds to _and_ bel
 
 
 
-But the Jerusalem above ([^h]the Messianic kingdom of Christ) is free, and she is our mother. 
+But the Jerusalem above (the Messianic kingdom of Christ) is free, and she is our mother. 
 
 
 
@@ -595,7 +595,7 @@ For it is written in the Scriptures, Rejoice, O barren woman, who has not given 
 
 
 
-But we, brethren, are children [[^i]not by physical descent, as was Ishmael, but] like Isaac, born [^j]in virtue of promise. 
+But we, brethren, are children [not by physical descent, as was Ishmael, but] like Isaac, born in virtue of promise. 
 
 
 
@@ -658,4 +658,4 @@ But what does the Scripture say? Cast out _and_ send away the slave woman and he
 
 
 
-So, brethren, we [who are born again] are not children of a slave woman [[^k]the natural], but of the free [[^l]the supernatural].
+So, brethren, we [who are born again] are not children of a slave woman [the natural], but of the free [the supernatural].

@@ -31,7 +31,7 @@ But that you may know that the Son of Man has power on earth to forgive sins"--t
 And he arose and departed to his house. 
 
 ###### 8 
-Now when the multitudes saw _it,_ they marveled[^a] and glorified God, who had given such power to men. ## Matthew the Tax Collector 
+Now when the multitudes saw _it,_ they marveled and glorified God, who had given such power to men. ## Matthew the Tax Collector 
 
 ###### 9 
 As Jesus passed on from there, He saw a man named Matthew sitting at the tax office. And He said to him, "Follow Me." So he arose and followed Him. 
@@ -46,19 +46,19 @@ And when the Pharisees saw _it,_ they said to His disciples, "Why does your Teac
 When Jesus heard _that,_ He said to them, "Those who are well have no need of a physician, but those who are sick. 
 
 ###### 13 
-But go and learn what _this_ means: 'I desire mercy and not sacrifice.' For I did not come to call the righteous, but sinners, [^b]to repentance." ## Jesus Is Questioned About Fasting 
+But go and learn what _this_ means: 'I desire mercy and not sacrifice.' For I did not come to call the righteous, but sinners, to repentance." ## Jesus Is Questioned About Fasting 
 
 ###### 14 
-Then the disciples of John came to Him, saying, "Why do we and the Pharisees fast [^c]often, but Your disciples do not fast?" 
+Then the disciples of John came to Him, saying, "Why do we and the Pharisees fast often, but Your disciples do not fast?" 
 
 ###### 15 
-And Jesus said to them, "Can the [^d]friends of the bridegroom mourn as long as the bridegroom is with them? But the days will come when the bridegroom will be taken away from them, and then they will fast. 
+And Jesus said to them, "Can the friends of the bridegroom mourn as long as the bridegroom is with them? But the days will come when the bridegroom will be taken away from them, and then they will fast. 
 
 ###### 16 
-No one puts a piece of unshrunk cloth on an old garment; for [^e]the patch pulls away from the garment, and the tear is made worse. 
+No one puts a piece of unshrunk cloth on an old garment; for the patch pulls away from the garment, and the tear is made worse. 
 
 ###### 17 
-Nor do they put new wine into old wineskins, or else the wineskins [^f]break, the wine is spilled, and the wineskins are ruined. But they put new wine into new wineskins, and both are preserved." ## A Girl Restored to Life and a Woman Healed 
+Nor do they put new wine into old wineskins, or else the wineskins break, the wine is spilled, and the wineskins are ruined. But they put new wine into new wineskins, and both are preserved." ## A Girl Restored to Life and a Woman Healed 
 
 ###### 18 
 While He spoke these things to them, behold, a ruler came and worshiped Him, saying, "My daughter has just died, but come and lay Your hand on her and she will live." 
@@ -100,7 +100,7 @@ Then He touched their eyes, saying, "According to your faith let it be to you."
 And their eyes were opened. And Jesus sternly warned them, saying, "See _that_ no one knows _it_." 
 
 ###### 31 
-But when they had departed, they [^g]spread the news about Him in all that [^h]country. ## A Mute Man Speaks 
+But when they had departed, they spread the news about Him in all that country. ## A Mute Man Speaks 
 
 ###### 32 
 As they went out, behold, they brought to Him a man, mute and demon-possessed. 
@@ -112,10 +112,10 @@ And when the demon was cast out, the mute spoke. And the multitudes marveled, sa
 But the Pharisees said, "He casts out demons by the ruler of the demons." ## The Compassion of Jesus 
 
 ###### 35 
-Then Jesus went about all the cities and villages, teaching in their synagogues, preaching the gospel of the kingdom, and healing every sickness and every disease [^i]among the people. 
+Then Jesus went about all the cities and villages, teaching in their synagogues, preaching the gospel of the kingdom, and healing every sickness and every disease among the people. 
 
 ###### 36 
-But when He saw the multitudes, He was moved with compassion for them, because they were [^j]weary and scattered, like sheep having no shepherd. 
+But when He saw the multitudes, He was moved with compassion for them, because they were weary and scattered, like sheep having no shepherd. 
 
 ###### 37 
 Then He said to His disciples, "The harvest truly _is_ plentiful, but the laborers _are_ few. 

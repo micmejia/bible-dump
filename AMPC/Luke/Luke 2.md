@@ -28,7 +28,7 @@ next: ['Luke 3']
 
 
 
-In those days it occurred that a decree went out from Caesar Augustus that the whole [^a]Roman empire should be registered. 
+In those days it occurred that a decree went out from Caesar Augustus that the whole Roman empire should be registered. 
 
 
 
@@ -112,7 +112,7 @@ And Joseph also went up from Galilee from the town of Nazareth to Judea, to the 
 
 
 
-To be enrolled with Mary, his espoused ([^b]married) wife, who was about to become a mother. 
+To be enrolled with Mary, his espoused (married) wife, who was about to become a mother. 
 
 
 
@@ -259,7 +259,7 @@ For to you is born this day in the town of David a Savior, Who is Christ (the Me
 
 
 
-And this will be a sign for you [by which you will recognize Him]: you will find [[^c]after searching] a Baby wrapped in swaddling clothes and lying in a manger. 
+And this will be a sign for you [by which you will recognize Him]: you will find [after searching] a Baby wrapped in swaddling clothes and lying in a manger. 
 
 
 
@@ -280,7 +280,7 @@ And this will be a sign for you [by which you will recognize Him]: you will find
 
 
 
-Then suddenly there appeared with the angel an army of the troops of heaven ([^d]a heavenly knighthood), praising God and saying, 
+Then suddenly there appeared with the angel an army of the troops of heaven (a heavenly knighthood), praising God and saying, 
 
 
 
@@ -301,7 +301,7 @@ Then suddenly there appeared with the angel an army of the troops of heaven ([^d
 
 
 
-Glory to God in the highest [heaven], and on earth peace among men with whom He is well pleased [[^e]men of goodwill, of His favor]. 
+Glory to God in the highest [heaven], and on earth peace among men with whom He is well pleased [men of goodwill, of His favor]. 
 
 
 
@@ -322,7 +322,7 @@ Glory to God in the highest [heaven], and on earth peace among men with whom He 
 
 
 
-When the angels went away from them into heaven, the shepherds said one to another, Let us go over to Bethlehem and see this thing ([^f]saying) that has come to pass, which the Lord has made known to us. 
+When the angels went away from them into heaven, the shepherds said one to another, Let us go over to Bethlehem and see this thing (saying) that has come to pass, which the Lord has made known to us. 
 
 
 
@@ -343,7 +343,7 @@ When the angels went away from them into heaven, the shepherds said one to anoth
 
 
 
-So they went with haste and [[^g]by searching] found Mary and Joseph, and the Baby lying in a manger. 
+So they went with haste and [by searching] found Mary and Joseph, and the Baby lying in a manger. 
 
 
 
@@ -406,7 +406,7 @@ And all who heard it were astounded _and_ marveled at what the shepherds told th
 
 
 
-But Mary was keeping [^h]within herself all these things ([^i]sayings), weighing _and_ pondering them in her heart. 
+But Mary was keeping within herself all these things (sayings), weighing _and_ pondering them in her heart. 
 
 
 
@@ -574,7 +574,7 @@ And it had been divinely revealed (communicated) to him by the Holy Spirit that 
 
 
 
-And prompted by the [Holy] Spirit, he came into the temple [[^j]enclosure]; and when the parents brought in the little child Jesus to do for Him what was customary according to the Law, 
+And prompted by the [Holy] Spirit, he came into the temple [enclosure]; and when the parents brought in the little child Jesus to do for Him what was customary according to the Law, 
 
 
 
@@ -679,7 +679,7 @@ Which You have ordained _and_ prepared before (in the presence of) all peoples,
 
 
 
-A Light for [^k]revelation to the Gentiles [to disclose what was before unknown] and [to bring] praise _and_ honor _and_ glory to Your people Israel. 
+A Light for revelation to the Gentiles [to disclose what was before unknown] and [to bring] praise _and_ honor _and_ glory to Your people Israel. 
 
 
 
@@ -784,7 +784,7 @@ And there was also a prophetess, Anna, the daughter of Phanuel, of the tribe of 
 
 
 
-And as a widow even for eighty-four years. She did not go out from the temple [^l]enclosure, but was worshiping night and day with fasting and prayer. 
+And as a widow even for eighty-four years. She did not go out from the temple enclosure, but was worshiping night and day with fasting and prayer. 
 
 
 
@@ -973,7 +973,7 @@ And when they failed to find Him, they went back to Jerusalem, looking for Him [
 
 
 
-After three days they found Him [came upon Him] in the [^m][court of the] temple, sitting among the teachers, listening to them and asking them questions. 
+After three days they found Him [came upon Him] in the [court of the] temple, sitting among the teachers, listening to them and asking them questions. 
 
 
 
@@ -1036,7 +1036,7 @@ And when they [Joseph and Mary] saw Him, they were amazed; and His mother said t
 
 
 
-And He said to them, How is it that you had to look for Me? Did you not see _and_ know that it is necessary [as a duty] for Me [^n]to be in My Father's house _and_ [occupied] about My Father's business? 
+And He said to them, How is it that you had to look for Me? Did you not see _and_ know that it is necessary [as a duty] for Me to be in My Father's house _and_ [occupied] about My Father's business? 
 
 
 

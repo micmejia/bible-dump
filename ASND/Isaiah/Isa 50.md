@@ -40,7 +40,7 @@ next: ['Isa 51']
 
 
 
-Sinabi ng Panginoon <i class="trans-change">sa kanyang mga mamamayan_, "Ang Jerusalem[^a] baʼy itinakwil ko gaya ng lalaking humiwalay sa kanyang asawa? Patunayan ninyo![^b] Ipinabihag ko na ba kayo tulad ng isang taong ipinagbili bilang alipin ang kanyang mga anak sa pinagkakautangan niya, para ipambayad sa utang? Hindi! Kayo ay ipinagbili dahil sa inyong mga kasalanan. Itinakwil ang Jerusalem dahil sa inyong mga pagsuway. 
+Sinabi ng Panginoon <i class="trans-change">sa kanyang mga mamamayan_, "Ang Jerusalem baʼy itinakwil ko gaya ng lalaking humiwalay sa kanyang asawa? Patunayan ninyo! Ipinabihag ko na ba kayo tulad ng isang taong ipinagbili bilang alipin ang kanyang mga anak sa pinagkakautangan niya, para ipambayad sa utang? Hindi! Kayo ay ipinagbili dahil sa inyong mga kasalanan. Itinakwil ang Jerusalem dahil sa inyong mga pagsuway. 
 
 
 
@@ -106,7 +106,7 @@ Bakit hindi ninyo ako pinansin noong dumating ako? Bakit hindi kayo sumagot noon
 
 
 
-At kaya ko ring padilimin na kasing-itim ng damit na panluksa[^c] ang langit." ## Ang Masunuring Lingkod ng Dios 
+At kaya ko ring padilimin na kasing-itim ng damit na panluksa ang langit." ## Ang Masunuring Lingkod ng Dios 
 
 
 

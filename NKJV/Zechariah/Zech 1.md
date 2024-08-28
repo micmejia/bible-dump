@@ -39,7 +39,7 @@ Then I said, "My lord, what _are_ these?" So the angel who talked with me said t
 And the man who stood among the myrtle trees answered and said, "These _are the ones_ whom the Lord has sent to walk to and fro throughout the earth." 
 
 ###### 11 
-So they answered the Angel of the Lord, who stood among the myrtle trees, and said, "We have walked to and fro throughout the earth, and behold, all the earth is [^a]resting quietly." ## The Lord Will Comfort Zion 
+So they answered the Angel of the Lord, who stood among the myrtle trees, and said, "We have walked to and fro throughout the earth, and behold, all the earth is resting quietly." ## The Lord Will Comfort Zion 
 
 ###### 12 
 Then the Angel of the Lord answered and said, "O Lord of hosts, how long will You not have mercy on Jerusalem and on the cities of Judah, against which You were angry these seventy years?" 
@@ -48,7 +48,7 @@ Then the Angel of the Lord answered and said, "O Lord of hosts, how long will Yo
 And the Lord answered the angel who talked to me, _with_ good _and_ comforting words. 
 
 ###### 14 
-So the angel who spoke with me said to me, [^b]"Proclaim, saying, 'Thus says the Lord of hosts: "I am zealous[^c] for Jerusalem And for Zion with great [^d]zeal. 
+So the angel who spoke with me said to me, "Proclaim, saying, 'Thus says the Lord of hosts: "I am zealous for Jerusalem And for Zion with great zeal. 
 
 ###### 15 
 I am exceedingly angry with the nations at ease; For I was a little angry, And they helped--_but_ with evil _intent._" 
@@ -57,16 +57,16 @@ I am exceedingly angry with the nations at ease; For I was a little angry, And t
 'Therefore thus says the Lord: "I am returning to Jerusalem with mercy; My house shall be built in it," says the Lord of hosts, "And a _surveyor's_ line shall be stretched out over Jerusalem." ' 
 
 ###### 17 
-"Again proclaim, saying, 'Thus says the Lord of hosts: "My cities shall again [^e]spread out through prosperity; The Lord will again comfort Zion, And will again choose Jerusalem." ' " ## Vision of the Horns 
+"Again proclaim, saying, 'Thus says the Lord of hosts: "My cities shall again spread out through prosperity; The Lord will again comfort Zion, And will again choose Jerusalem." ' " ## Vision of the Horns 
 
 ###### 18 
 Then I raised my eyes and looked, and there _were_ four horns. 
 
 ###### 19 
-And I said to the angel who talked with me, "What _are_ these?" So he answered me, "These _are_ the [^f]horns that have scattered Judah, Israel, and Jerusalem." 
+And I said to the angel who talked with me, "What _are_ these?" So he answered me, "These _are_ the horns that have scattered Judah, Israel, and Jerusalem." 
 
 ###### 20 
 Then the Lord showed me four craftsmen. 
 
 ###### 21 
-And I said, "What are these coming to do?" So he said, "These _are_ the horns that scattered Judah, so that no one could lift up his head; but [^g]the craftsmen are coming to terrify them, to cast out the horns of the nations that lifted up _their_ horn against the land of Judah to scatter it."
+And I said, "What are these coming to do?" So he said, "These _are_ the horns that scattered Judah, so that no one could lift up his head; but the craftsmen are coming to terrify them, to cast out the horns of the nations that lifted up _their_ horn against the land of Judah to scatter it."

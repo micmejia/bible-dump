@@ -304,7 +304,7 @@ Gaya nga ng sinasabi sa Kasulatan, "Ginawa silang manhid ng Dios at hanggang nga
 
 
 
-Sinabi rin ni David <i class="trans-change">tungkol sa kanila_: "Ang kanilang mga handog[^a] sana ang magdala sa kanila ng kapahamakan, kasiraan, at kaparusahan. 
+Sinabi rin ni David <i class="trans-change">tungkol sa kanila_: "Ang kanilang mga handog sana ang magdala sa kanila ng kapahamakan, kasiraan, at kaparusahan. 
 
 
 
@@ -865,7 +865,7 @@ Mga kapatid, nais kong malaman ninyo ang isang katotohanan na ngayon ko lang iha
 
 
 
-Pagkatapos niyan, maliligtas ang buong Israel,[^b] gaya ng sinasabi sa Kasulatan, "Magmumula sa Zion ang Tagapagligtas; aalisin niya ang kasamaan sa lahi ni Jacob. 
+Pagkatapos niyan, maliligtas ang buong Israel, gaya ng sinasabi sa Kasulatan, "Magmumula sa Zion ang Tagapagligtas; aalisin niya ang kasamaan sa lahi ni Jacob. 
 
 
 
@@ -1129,7 +1129,7 @@ Napakadakila ng kabutihan ng Dios! Napakalalim ng kanyang karunungan at kaalaman
 
 
 
-<i class="trans-change">Gaya nga ng sinasabi sa Kasulatan:_ "Sino kaya ang makakaunawa sa kaisipan ng Panginoon? Sino kaya ang makakapagpayo sa kanya?[^c] 
+<i class="trans-change">Gaya nga ng sinasabi sa Kasulatan:_ "Sino kaya ang makakaunawa sa kaisipan ng Panginoon? Sino kaya ang makakapagpayo sa kanya? 
 
 
 
@@ -1162,7 +1162,7 @@ Napakadakila ng kabutihan ng Dios! Napakalalim ng kanyang karunungan at kaalaman
 
 
 
-Sino kaya ang makakapagbigay ng anuman sa kanya para tumanaw siya ng utang na loob?"[^d] 
+Sino kaya ang makakapagbigay ng anuman sa kanya para tumanaw siya ng utang na loob?" 
 
 
 

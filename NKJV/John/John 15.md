@@ -13,7 +13,7 @@ next: ['John 16']
 "I am the true vine, and My Father is the vinedresser. 
 
 ###### 2 
-Every branch in Me that does not bear fruit He [^a]takes away; and every _branch_ that bears fruit He prunes, that it may bear more fruit. 
+Every branch in Me that does not bear fruit He takes away; and every _branch_ that bears fruit He prunes, that it may bear more fruit. 
 
 ###### 3 
 You are already clean because of the word which I have spoken to you. 
@@ -28,7 +28,7 @@ Abide in Me, and I in you. As the branch cannot bear fruit of itself, unless it 
 If anyone does not abide in Me, he is cast out as a branch and is withered; and they gather them and throw _them_ into the fire, and they are burned. 
 
 ###### 7 
-If you abide in Me, and My words abide in you, you[^b] will ask what you desire, and it shall be done for you. 
+If you abide in Me, and My words abide in you, you will ask what you desire, and it shall be done for you. 
 
 ###### 8 
 By this My Father is glorified, that you bear much fruit; so you will be My disciples. ## Love and Joy Perfected 
@@ -85,7 +85,7 @@ If I had not done among them the works which no one else did, they would have no
 But _this happened_ that the word might be fulfilled which is written in their law, 'They hated Me without a cause.' ## The Coming Rejection 
 
 ###### 26 
-"But when the [^c]Helper comes, whom I shall send to you from the Father, the Spirit of truth who proceeds from the Father, He will testify of Me. 
+"But when the Helper comes, whom I shall send to you from the Father, the Spirit of truth who proceeds from the Father, He will testify of Me. 
 
 ###### 27 
 And you also will bear witness, because you have been with Me from the beginning.

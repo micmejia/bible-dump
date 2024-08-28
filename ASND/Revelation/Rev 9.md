@@ -40,7 +40,7 @@ next: ['Rev 10']
 
 
 
-Nang patunugin ng ikalimang anghel ang kanyang trumpeta, nakita ko ang isang bituin mula sa langit na nahulog sa lupa. At ibinigay sa kanya ang susi sa pintuan ng kailaliman.[^a] 
+Nang patunugin ng ikalimang anghel ang kanyang trumpeta, nakita ko ang isang bituin mula sa langit na nahulog sa lupa. At ibinigay sa kanya ang susi sa pintuan ng kailaliman. 
 
 
 
@@ -370,7 +370,7 @@ Ang buntot nilang tulad ng sa alakdan ay may kapangyarihang manakit sa mga tao s
 
 
 
-May haring namumuno sa kanila – ang anghel <i class="trans-change">na nagbukas ng pintuan_ sa kailaliman. Ang pangalan niya sa <i class="trans-change">wikang_ Hebreo ay Abadon, at Apolyon[^b] naman sa <i class="trans-change">wikang_ Griego. 
+May haring namumuno sa kanila – ang anghel <i class="trans-change">na nagbukas ng pintuan_ sa kailaliman. Ang pangalan niya sa <i class="trans-change">wikang_ Hebreo ay Abadon, at Apolyon naman sa <i class="trans-change">wikang_ Griego. 
 
 
 

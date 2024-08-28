@@ -10,7 +10,7 @@ next: ['Deut 31']
 
 
 ###### 1 
-"Now it shall come to pass, when all these things come upon you, the blessing and the curse which I have set before you, and you [^a]call _them_ to mind among all the nations where the Lord your God drives you, 
+"Now it shall come to pass, when all these things come upon you, the blessing and the curse which I have set before you, and you call _them_ to mind among all the nations where the Lord your God drives you, 
 
 ###### 2 
 and you return to the Lord your God and obey His voice, according to all that I command you today, you and your children, with all your heart and with all your soul, 
@@ -34,13 +34,13 @@ And the Lord your God will circumcise your heart and the heart of your descendan
 And you will again obey the voice of the Lord and do all His commandments which I command you today. 
 
 ###### 9 
-The Lord your God will make you abound in all the work of your hand, in the [^b]fruit of your body, in the increase of your livestock, and in the produce of your land for good. For the Lord will again rejoice over you for good as He rejoiced over your fathers, 
+The Lord your God will make you abound in all the work of your hand, in the fruit of your body, in the increase of your livestock, and in the produce of your land for good. For the Lord will again rejoice over you for good as He rejoiced over your fathers, 
 
 ###### 10 
 if you obey the voice of the Lord your God, to keep His commandments and His statutes which are written in this Book of the Law, _and_ if you turn to the Lord your God with all your heart and with all your soul. ## The Choice of Life or Death 
 
 ###### 11 
-"For this commandment which I command you today _is_ [^c]not _too_ mysterious for you, nor _is_ it far off. 
+"For this commandment which I command you today _is_ not _too_ mysterious for you, nor _is_ it far off. 
 
 ###### 12 
 It _is_ not in heaven, that you should say, 'Who will ascend into heaven for us and bring it to us, that we may hear it and do it?' 

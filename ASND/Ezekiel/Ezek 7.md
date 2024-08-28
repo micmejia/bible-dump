@@ -799,7 +799,7 @@ Pababayaan kong lapastanganin nila at nakawan ang aking templo. Papasukin at lal
 
 
 
-Ipakakamkam ko sa mga masasamang bansa ang mga bahay nila. Tatapusin ko ang pagmamataas ng kanilang mga makapangyarihang tao,[^a] at ipalalapastangan ko ang mga sambahan nila. 
+Ipakakamkam ko sa mga masasamang bansa ang mga bahay nila. Tatapusin ko ang pagmamataas ng kanilang mga makapangyarihang tao, at ipalalapastangan ko ang mga sambahan nila. 
 
 
 

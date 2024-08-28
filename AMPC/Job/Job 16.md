@@ -196,7 +196,7 @@ You have laid firm hold on me _and_ have shriveled me up, which is a witness aga
 
 
 
-[[^a]My adversary Satan] has torn [me] in his wrath and hated _and_ persecuted me; he has gnashed upon me with his teeth; my adversary sharpens his eyes against me. 
+[My adversary Satan] has torn [me] in his wrath and hated _and_ persecuted me; he has gnashed upon me with his teeth; my adversary sharpens his eyes against me. 
 
 
 

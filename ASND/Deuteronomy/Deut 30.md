@@ -634,7 +634,7 @@ ngayon pa lang, binabalaan ko na kayo na siguradong mamamatay kayo. Hindi kayo m
 
 
 
-"Sa araw na ito, tinawag ko ang langit at lupa na maging saksi kung alin dito ang pipiliin ninyo: buhay o kamatayan, pagpapala o sumpa. Piliin sana ninyo ang buhay para mabuhay kayo nang matagal pati na ang inyong mga anak.[^a] 
+"Sa araw na ito, tinawag ko ang langit at lupa na maging saksi kung alin dito ang pipiliin ninyo: buhay o kamatayan, pagpapala o sumpa. Piliin sana ninyo ang buhay para mabuhay kayo nang matagal pati na ang inyong mga anak. 
 
 
 

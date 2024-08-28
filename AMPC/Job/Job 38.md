@@ -406,7 +406,7 @@ Have you comprehended the breadth of the earth? Tell Me, if you know it all.
 
 
 
-Where is the [^a]way where light dwells? And as for darkness, where is its abode, 
+Where is the way where light dwells? And as for darkness, where is its abode, 
 
 
 

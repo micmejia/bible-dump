@@ -16,7 +16,7 @@ next: ['Isa 42']
 "Who raised up one from the east? Who in righteousness called him to His feet? Who gave the nations before him, And made _him_ rule over kings? Who gave _them_ as the dust _to_ his sword, As driven stubble to his bow? 
 
 ###### 3 
-Who pursued them, _and_ passed [^a]safely By the way _that_ he had not gone with his feet? 
+Who pursued them, _and_ passed safely By the way _that_ he had not gone with his feet? 
 
 ###### 4 
 Who has performed and done _it,_ Calling the generations from the beginning? 'I, the Lord, am the first; And with the last I _am_ He.' " 
@@ -25,10 +25,10 @@ Who has performed and done _it,_ Calling the generations from the beginning? 'I,
 The coastlands saw _it_ and feared, The ends of the earth were afraid; They drew near and came. 
 
 ###### 6 
-Everyone helped his neighbor, And said to his brother, [^b]"Be of good courage!" 
+Everyone helped his neighbor, And said to his brother, "Be of good courage!" 
 
 ###### 7 
-So the craftsman encouraged the goldsmith;[^c] He who smooths _with_ the hammer _inspired_ him who strikes the anvil, Saying, [^d]"It _is_ ready for the soldering"; Then he fastened it with pegs, _That_ it might not totter. 
+So the craftsman encouraged the goldsmith; He who smooths _with_ the hammer _inspired_ him who strikes the anvil, Saying, "It _is_ ready for the soldering"; Then he fastened it with pegs, _That_ it might not totter. 
 
 ###### 8 
 "But you, Israel, _are_ My servant, Jacob whom I have chosen, The descendants of Abraham My friend. 
@@ -43,7 +43,7 @@ Fear not, for I _am_ with you; Be not dismayed, for I _am_ your God. I will stre
 "Behold, all those who were incensed against you Shall be ashamed and disgraced; They shall be as nothing, And those who strive with you shall perish. 
 
 ###### 12 
-You shall seek them and not find them-- [^e]Those who contended with you. Those who war against you Shall be as nothing, As a nonexistent thing. 
+You shall seek them and not find them-- Those who contended with you. Those who war against you Shall be as nothing, As a nonexistent thing. 
 
 ###### 13 
 For I, the Lord your God, will hold your right hand, Saying to you, 'Fear not, I will help you.' 
@@ -73,7 +73,7 @@ That they may see and know, And consider and understand together, That the hand 
 "Present your case," says the Lord. "Bring forth your strong _reasons,_" says the King of Jacob. 
 
 ###### 22 
-"Let them bring forth and show us what will happen; Let them show the former things, what they _were,_ That we may [^f]consider them, And know the latter end of them; Or declare to us things to come. 
+"Let them bring forth and show us what will happen; Let them show the former things, what they _were,_ That we may consider them, And know the latter end of them; Or declare to us things to come. 
 
 ###### 23 
 Show the things that are to come hereafter, That we may know that you _are_ gods; Yes, do good or do evil, That we may be dismayed and see _it_ together. 
@@ -82,7 +82,7 @@ Show the things that are to come hereafter, That we may know that you _are_ gods
 Indeed you _are_ nothing, And your work _is_ nothing; _He who_ chooses you _is_ an abomination. 
 
 ###### 25 
-"I have raised up one from the north, And he shall come; From the [^g]rising of the sun he shall call on My name; And he shall come against princes as _though_ mortar, As the potter treads clay. 
+"I have raised up one from the north, And he shall come; From the rising of the sun he shall call on My name; And he shall come against princes as _though_ mortar, As the potter treads clay. 
 
 ###### 26 
 Who has declared from the beginning, that we may know? And former times, that we may say, '_He is_ righteous'? Surely _there is_ no one who shows, Surely _there is_ no one who declares, Surely _there is_ no one who hears your words. 
@@ -94,4 +94,4 @@ The first time _I said_ to Zion, 'Look, there they are!' And I will give to Jeru
 For I looked, and _there was_ no man; I looked among them, but _there was_ no counselor, Who, when I asked of them, could answer a word. 
 
 ###### 29 
-Indeed they _are_ all [^h]worthless; Their works _are_ nothing; Their molded images _are_ wind and confusion.
+Indeed they _are_ all worthless; Their works _are_ nothing; Their molded images _are_ wind and confusion.

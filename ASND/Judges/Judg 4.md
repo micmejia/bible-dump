@@ -370,7 +370,7 @@ Sumagot si Debora, "Sige, sasama ako sa iyo, pero hindi mapupunta sa iyo ang kar
 
 
 
-Nang panahong iyon, si Heber na Keneo ay nagtayo ng tolda niya malapit sa puno ng terebinto sa Zaananim malapit sa Kedesh. Humiwalay siya sa ibang mga Keneo na mula sa angkan ni Hobab na bayaw[^a] ni Moises. 
+Nang panahong iyon, si Heber na Keneo ay nagtayo ng tolda niya malapit sa puno ng terebinto sa Zaananim malapit sa Kedesh. Humiwalay siya sa ibang mga Keneo na mula sa angkan ni Hobab na bayaw ni Moises. 
 
 
 
@@ -601,7 +601,7 @@ Si Sisera naman ay tumakas papunta sa tolda ni Jael na asawa ni Heber, dahil mag
 
 
 
-Sinalubong ni Jael si Sisera at sinabi, "Tuloy po kayo sa aking tolda at huwag kayong matakot." Kaya pumasok si Sisera sa tolda, at tinakluban siya ni Jael ng kumot[^b] <i class="trans-change">para itago_. 
+Sinalubong ni Jael si Sisera at sinabi, "Tuloy po kayo sa aking tolda at huwag kayong matakot." Kaya pumasok si Sisera sa tolda, at tinakluban siya ni Jael ng kumot <i class="trans-change">para itago_. 
 
 
 

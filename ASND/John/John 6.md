@@ -964,7 +964,7 @@ Nagtanong ang mga tao, "Anong himala po ang maipapakita nʼyo para manampalataya
 
 
 
-Ang ating mga ninuno ay kumain ng 'manna' noong nasa ilang sila. Sapagkat ayon sa Kasulatan, binigyan sila ni Moises ng tinapay na mula sa langit."[^a] 
+Ang ating mga ninuno ay kumain ng 'manna' noong nasa ilang sila. Sapagkat ayon sa Kasulatan, binigyan sila ni Moises ng tinapay na mula sa langit." 
 
 
 
@@ -1426,7 +1426,7 @@ Walang makakalapit sa akin maliban kung papalapitin siya ng Amang nagsugo sa aki
 
 
 
-Ayon sa isinulat ng mga propeta, 'Tuturuan silang lahat ng Dios.'[^b] Kaya ang lahat ng nakikinig at natututo sa Ama ay lalapit sa akin. 
+Ayon sa isinulat ng mga propeta, 'Tuturuan silang lahat ng Dios.' Kaya ang lahat ng nakikinig at natututo sa Ama ay lalapit sa akin. 
 
 
 
@@ -2284,4 +2284,4 @@ Sinabi ni Jesus sa kanila, "Hindi baʼt pinili ko kayong 12? Pero ang isa sa iny
 
 
 
-Ang tinutukoy ni Jesus ay si Judas na anak ni Simon Iscariote,[^c] dahil kahit kabilang si Judas sa 12 <i class="trans-change">apostol_, tatraydurin niya si Jesus sa bandang huli.
+Ang tinutukoy ni Jesus ay si Judas na anak ni Simon Iscariote, dahil kahit kabilang si Judas sa 12 <i class="trans-change">apostol_, tatraydurin niya si Jesus sa bandang huli.

@@ -10,16 +10,16 @@ next: ['Jer 14']
 
 
 ###### 1 
-Thus the Lord said to me: "Go and get yourself a linen sash, and put it [^a]around your waist, but do not put it in water." 
+Thus the Lord said to me: "Go and get yourself a linen sash, and put it around your waist, but do not put it in water." 
 
 ###### 2 
-So I got a [^b]sash according to the word of the Lord, and put _it_ around my waist. 
+So I got a sash according to the word of the Lord, and put _it_ around my waist. 
 
 ###### 3 
 And the word of the Lord came to me the second time, saying, 
 
 ###### 4 
-"Take the [^c]sash that you acquired, which _is_ [^d]around your waist, and arise, go to the [^e]Euphrates, and hide it there in a hole in the rock." 
+"Take the sash that you acquired, which _is_ around your waist, and arise, go to the Euphrates, and hide it there in a hole in the rock." 
 
 ###### 5 
 So I went and hid it by the Euphrates, as the Lord commanded me. 
@@ -28,7 +28,7 @@ So I went and hid it by the Euphrates, as the Lord commanded me.
 Now it came to pass after many days that the Lord said to me, "Arise, go to the Euphrates, and take from there the sash which I commanded you to hide there." 
 
 ###### 7 
-Then I went to the Euphrates and dug, and I took the [^f]sash from the place where I had hidden it; and there was the sash, ruined. It was profitable for nothing. 
+Then I went to the Euphrates and dug, and I took the sash from the place where I had hidden it; and there was the sash, ruined. It was profitable for nothing. 
 
 ###### 8 
 Then the word of the Lord came to me, saying, 
@@ -37,7 +37,7 @@ Then the word of the Lord came to me, saying,
 "Thus says the Lord: 'In this manner I will ruin the pride of Judah and the great pride of Jerusalem. 
 
 ###### 10 
-This evil people, who refuse to hear My words, who follow[^g] the dictates of their hearts, and walk after other gods to serve them and worship them, shall be just like this sash which is profitable for nothing. 
+This evil people, who refuse to hear My words, who follow the dictates of their hearts, and walk after other gods to serve them and worship them, shall be just like this sash which is profitable for nothing. 
 
 ###### 11 
 For as the sash clings to the waist of a man, so I have caused the whole house of Israel and the whole house of Judah to cling to Me,' says the Lord, 'that they may become My people, for renown, for praise, and for glory; but they would not hear.' ## Symbol of the Wine Bottles 
@@ -49,7 +49,7 @@ For as the sash clings to the waist of a man, so I have caused the whole house o
 "Then you shall say to them, 'Thus says the Lord: "Behold, I will fill all the inhabitants of this land--even the kings who sit on David's throne, the priests, the prophets, and all the inhabitants of Jerusalem--with drunkenness! 
 
 ###### 14 
-And I will dash them [^h]one against another, even the fathers and the sons together," says the Lord. "I will not pity nor spare nor have mercy, but will destroy them." ' " ## Pride Precedes Captivity 
+And I will dash them one against another, even the fathers and the sons together," says the Lord. "I will not pity nor spare nor have mercy, but will destroy them." ' " ## Pride Precedes Captivity 
 
 ###### 15 
 Hear and give ear: Do not be proud, For the Lord has spoken. 
@@ -70,10 +70,10 @@ The cities of the South shall be shut up, And no one shall open _them;_ Judah sh
 Lift up your eyes and see Those who come from the north. Where _is_ the flock _that_ was given to you, Your beautiful sheep? 
 
 ###### 21 
-What will you say when He punishes you? For you have taught them _To be_ chieftains, to be head over you. Will not pangs seize you, Like a woman in [^i]labor? 
+What will you say when He punishes you? For you have taught them _To be_ chieftains, to be head over you. Will not pangs seize you, Like a woman in labor? 
 
 ###### 22 
-And if you say in your heart, "Why have these things come upon me?" For the greatness of your iniquity Your skirts have been uncovered, Your heels [^j]made bare. 
+And if you say in your heart, "Why have these things come upon me?" For the greatness of your iniquity Your skirts have been uncovered, Your heels made bare. 
 
 ###### 23 
 Can the Ethiopian change his skin or the leopard its spots? _Then_ may you also do good who are accustomed to do evil. 

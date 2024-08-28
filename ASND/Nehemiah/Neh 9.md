@@ -40,7 +40,7 @@ next: ['Neh 10']
 
 
 
-Nang ika-24 na araw ng buwan ding iyon, nagtipon ang mga Israelita para mag-ayuno. Nagdamit sila ng sako at naglagay ng alikabok sa kanilang ulo.[^a] 
+Nang ika-24 na araw ng buwan ding iyon, nagtipon ang mga Israelita para mag-ayuno. Nagdamit sila ng sako at naglagay ng alikabok sa kanilang ulo. 
 
 
 
@@ -172,7 +172,7 @@ Ang ibang mga Levita ay nakatayo sa hagdanan, at malakas na nananalangin sa Pang
 
 
 
-At ang mga Levita <i class="trans-change">na tumawag sa mga tao para sumamba_ ay sina: Jeshua, Kadmiel, Bani, Hashabneya, Sherebia, Hodia, Shebania, at Petahia. Sabi nila, "Tumayo kayo at purihin ang Panginoon na inyong Dios na walang hanggan!"[^b] <i class="trans-change">Pagkatapos, sinabi nila,_ "<i class="trans-change">O Panginoon,_ kapuri-puri po ang inyong pagiging makapangyarihan! Hindi ito mapapantayan ng aming pagpupuri. 
+At ang mga Levita <i class="trans-change">na tumawag sa mga tao para sumamba_ ay sina: Jeshua, Kadmiel, Bani, Hashabneya, Sherebia, Hodia, Shebania, at Petahia. Sabi nila, "Tumayo kayo at purihin ang Panginoon na inyong Dios na walang hanggan!" <i class="trans-change">Pagkatapos, sinabi nila,_ "<i class="trans-change">O Panginoon,_ kapuri-puri po ang inyong pagiging makapangyarihan! Hindi ito mapapantayan ng aming pagpupuri. 
 
 
 

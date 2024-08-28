@@ -535,7 +535,7 @@ Delikado ang mangakong managot sa utang ng iba, kaya iwasan itong gawin upang hi
 
 
 
-Ang babaeng maganda ang ugali ay nag-aani ng karangalan, ngunit ang taong marahas ay magaling lang sa pag-angkin ng kayamanan. Ang taong tamad ay maghihirap,[^a] ngunit ang taong masipag ay yayaman. 
+Ang babaeng maganda ang ugali ay nag-aani ng karangalan, ngunit ang taong marahas ay magaling lang sa pag-angkin ng kayamanan. Ang taong tamad ay maghihirap, ngunit ang taong masipag ay yayaman. 
 
 
 
@@ -997,7 +997,7 @@ Ang mga hangal na nagdadala ng gulo sa sariling tahanan ay walang mamanahin sa h
 
 
 
-Ang ginagawa ng mga taong matuwid ay makakatulong sa iba upang mapabuti at mapahaba ang kanilang buhay.[^b] At madadala niya ang mga tao sa pamamagitan ng kanyang karunungan. 
+Ang ginagawa ng mga taong matuwid ay makakatulong sa iba upang mapabuti at mapahaba ang kanilang buhay. At madadala niya ang mga tao sa pamamagitan ng kanyang karunungan. 
 
 
 

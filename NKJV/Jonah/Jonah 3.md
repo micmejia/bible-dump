@@ -16,7 +16,7 @@ Now the word of the Lord came to Jonah the second time, saying,
 "Arise, go to Nineveh, that great city, and preach to it the message that I tell you." 
 
 ###### 3 
-So Jonah arose and went to Nineveh, according to the word of the Lord. Now Nineveh was an exceedingly great city, [^a]a three-day journey _in extent._ 
+So Jonah arose and went to Nineveh, according to the word of the Lord. Now Nineveh was an exceedingly great city, a three-day journey _in extent._ 
 
 ###### 4 
 And Jonah began to enter the city on the first day's walk. Then he cried out and said, "Yet forty days, and Nineveh shall be overthrown!" ## The People of Nineveh Believe 
@@ -28,7 +28,7 @@ So the people of Nineveh believed God, proclaimed a fast, and put on sackcloth, 
 Then word came to the king of Nineveh; and he arose from his throne and laid aside his robe, covered _himself_ with sackcloth and sat in ashes. 
 
 ###### 7 
-And he caused _it_ to be proclaimed and published throughout Nineveh by the decree of the king and his [^b]nobles, saying, Let neither man nor beast, herd nor flock, taste anything; do not let them eat, or drink water. 
+And he caused _it_ to be proclaimed and published throughout Nineveh by the decree of the king and his nobles, saying, Let neither man nor beast, herd nor flock, taste anything; do not let them eat, or drink water. 
 
 ###### 8 
 But let man and beast be covered with sackcloth, and cry mightily to God; yes, let every one turn from his evil way and from the violence that is in his hands. 

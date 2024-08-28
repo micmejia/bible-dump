@@ -40,7 +40,7 @@ next: ['Isa 61']
 
 
 
-"Bumangon ka, Jerusalem, at magliwanag katulad ng araw, dahil dumating na ang kaligtasan[^a] mo. Liliwanagan ka ng kaluwalhatian ng Panginoon. 
+"Bumangon ka, Jerusalem, at magliwanag katulad ng araw, dahil dumating na ang kaligtasan mo. Liliwanagan ka ng kaluwalhatian ng Panginoon. 
 
 
 
@@ -139,7 +139,7 @@ Lalapit sa iyong liwanag ang mga bansa at ang kanilang mga hari.
 
 
 
-Tingnan mo ang iyong paligid, nagtitipon na ang iyong mga mamamayan sa malayo para umuwi. Para silang mga batang kinakarga.[^b] 
+Tingnan mo ang iyong paligid, nagtitipon na ang iyong mga mamamayan sa malayo para umuwi. Para silang mga batang kinakarga. 
 
 
 
@@ -238,7 +238,7 @@ Mapupuno ang iyong lupain ng mga kamelyo ng mga taga-Midian at ng mga taga-Efa. 
 
 
 
-Dadalhin ng mga taga-Kedar at mga taga-Nebayot ang kanilang mga tupa sa iyo, at ihahandog ito sa altar ng Panginoon para siyaʼy malugod. At lalo pang pararangalan ng Panginoon ang kanyang templo. ###### 8-9 Maglalayag ang mga barko na parang mga ulap na lumilipad at parang mga kalapating papunta sa kanilang mga pugad. Ang mga barkong itoʼy pag-aari ng mga nakatira sa malalayong lugar,[^c] na umaasa sa Panginoon.[^d] Pangungunahan sila ng mga barko ng Tarshish para ihatid ang iyong mga mamamayan pauwi mula sa malalayong lugar. Magdadala sila ng mga ginto at pilak para sa Panginoon na iyong Dios, ang Banal na Dios ng Israel, dahil ikaw ay kanyang pinararangalan." 
+Dadalhin ng mga taga-Kedar at mga taga-Nebayot ang kanilang mga tupa sa iyo, at ihahandog ito sa altar ng Panginoon para siyaʼy malugod. At lalo pang pararangalan ng Panginoon ang kanyang templo. ###### 8-9 Maglalayag ang mga barko na parang mga ulap na lumilipad at parang mga kalapating papunta sa kanilang mga pugad. Ang mga barkong itoʼy pag-aari ng mga nakatira sa malalayong lugar, na umaasa sa Panginoon. Pangungunahan sila ng mga barko ng Tarshish para ihatid ang iyong mga mamamayan pauwi mula sa malalayong lugar. Magdadala sila ng mga ginto at pilak para sa Panginoon na iyong Dios, ang Banal na Dios ng Israel, dahil ikaw ay kanyang pinararangalan." 
 
 
 
@@ -370,7 +370,7 @@ Sapagkat lubusang mawawasak ang mga bansa at kahariang hindi maglilingkod sa iyo
 
 
 
-Ang kayamanan ng Lebanon ay magiging iyo – ang kanilang mga puno ng pino, enebro at sipres,[^e] para mapaganda ang templo na aking tinitirhan. 
+Ang kayamanan ng Lebanon ay magiging iyo – ang kanilang mga puno ng pino, enebro at sipres, para mapaganda ang templo na aking tinitirhan. 
 
 
 
@@ -568,7 +568,7 @@ Wala nang mababalitaang pagmamalupit sa iyong lupain. Wala na ring kapahamakan n
 
 
 
-"Hindi na ang araw ang magiging liwanag mo sa umaga at hindi na ang buwan ang tatanglaw sa iyo sa gabi, dahil <i class="trans-change">ako,_ ang Panginoon, ang iyong magiging liwanag magpakailanman. <i class="trans-change">Ako, na_ iyong Dios, ang iyong tanglaw.[^f] 
+"Hindi na ang araw ang magiging liwanag mo sa umaga at hindi na ang buwan ang tatanglaw sa iyo sa gabi, dahil <i class="trans-change">ako,_ ang Panginoon, ang iyong magiging liwanag magpakailanman. <i class="trans-change">Ako, na_ iyong Dios, ang iyong tanglaw. 
 
 
 

@@ -658,7 +658,7 @@ And Hobab said to him, I will not go; I will depart to my own land and to my fam
 
 
 
-And Moses said, [^a]Do not leave us, I pray you; for you know how we are to encamp in the wilderness, and you will serve as eyes for us. 
+And Moses said, Do not leave us, I pray you; for you know how we are to encamp in the wilderness, and you will serve as eyes for us. 
 
 
 

@@ -196,7 +196,7 @@ The cedars in the garden of God could not hide _or_ rival it; the cypress trees 
 
 
 
-I made it beautiful with the multitude of its branches, so that all the trees of [^a]Eden that were in the garden of God envied it [Assyria]. 
+I made it beautiful with the multitude of its branches, so that all the trees of Eden that were in the garden of God envied it [Assyria]. 
 
 
 
@@ -238,7 +238,7 @@ Therefore thus said the Lord God: Because it is exalted in stature and has set i
 
 
 
-I will even [^b]deliver it into the hand of a mighty one of the nations; he shall surely deal with it. I have driven it out for its wickedness _and_ lawlessness. 
+I will even deliver it into the hand of a mighty one of the nations; he shall surely deal with it. I have driven it out for its wickedness _and_ lawlessness. 
 
 
 
@@ -385,4 +385,4 @@ They also shall go down into Sheol with it to those who were slain by the sword-
 
 
 
-To whom [O Egypt] among the trees of Eden are you thus like in glory and in greatness? Yet you [also] shall be brought down with the trees of Eden to the netherworld. You shall lie among the [^c]uncircumcised heathen with those who are slain by the sword. This is [^d]how it shall be with Pharaoh and all the multitude of his strength, his tumult, _and_ his store [of wealth and glory], says the Lord God.
+To whom [O Egypt] among the trees of Eden are you thus like in glory and in greatness? Yet you [also] shall be brought down with the trees of Eden to the netherworld. You shall lie among the uncircumcised heathen with those who are slain by the sword. This is how it shall be with Pharaoh and all the multitude of his strength, his tumult, _and_ his store [of wealth and glory], says the Lord God.

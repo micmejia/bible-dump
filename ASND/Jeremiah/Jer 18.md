@@ -403,7 +403,7 @@ at ang bansa o kahariang iyon ay gumawa ng masama at hindi sumunod sa akin, hind
 
 
 
-Pero sasagot[^a] ang mga tao, 'Hindi maaari! Ipagpapatuloy pa rin namin ang aming gusto; susundin namin ang nais ng matitigas at masasama naming puso.' " 
+Pero sasagot ang mga tao, 'Hindi maaari! Ipagpapatuloy pa rin namin ang aming gusto; susundin namin ang nais ng matitigas at masasama naming puso.' " 
 
 
 

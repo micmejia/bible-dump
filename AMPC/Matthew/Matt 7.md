@@ -70,7 +70,7 @@ For just as you judge _and_ criticize _and_ condemn others, you will be judged _
 
 
 
-Why do you [^a]stare from without at the [^b]very small particle that is in your brother's eye but do not become aware of _and_ consider the beam [^c]of timber that is in your own eye? 
+Why do you stare from without at the very small particle that is in your brother's eye but do not become aware of _and_ consider the beam of timber that is in your own eye? 
 
 
 
@@ -91,7 +91,7 @@ Why do you [^a]stare from without at the [^b]very small particle that is in your
 
 
 
-Or how can you say to your brother, Let me get the tiny particle out of your eye, when there is the beam [^d]of timber in your own eye? 
+Or how can you say to your brother, Let me get the tiny particle out of your eye, when there is the beam of timber in your own eye? 
 
 
 
@@ -154,7 +154,7 @@ Do not give that which is holy (the sacred thing) to the dogs, and do not throw 
 
 
 
-[^e]Keep on asking and it will be given you; [^f] keep on seeking and you will find; [^g]keep on knocking [reverently] and [the door] will be opened to you. 
+Keep on asking and it will be given you;  keep on seeking and you will find; keep on knocking [reverently] and [the door] will be opened to you. 
 
 
 
@@ -238,7 +238,7 @@ Or if he asks for a fish, will hand him a serpent?
 
 
 
-If you then, evil as you are, know how to give good _and_ [^h]advantageous gifts to your children, how much more will your Father Who is in heaven [perfect as He is] give good _and_ [^i]advantageous things to those who [^j]keep on asking Him! 
+If you then, evil as you are, know how to give good _and_ advantageous gifts to your children, how much more will your Father Who is in heaven [perfect as He is] give good _and_ advantageous things to those who keep on asking Him! 
 
 
 
@@ -301,7 +301,7 @@ Enter through the narrow gate; for wide is the gate and spacious _and_ broad is 
 
 
 
-But the gate is narrow (contracted [^k]by pressure) and the way is straitened _and_ compressed that leads away to life, and few are those who find it. 
+But the gate is narrow (contracted by pressure) and the way is straitened _and_ compressed that leads away to life, and few are those who find it. 
 
 
 
@@ -343,7 +343,7 @@ Beware of false prophets, who come to you dressed as sheep, but inside they are 
 
 
 
-You will [^l]fully recognize them by their fruits. Do people pick grapes from thorns, or figs from thistles? 
+You will fully recognize them by their fruits. Do people pick grapes from thorns, or figs from thistles? 
 
 
 
@@ -364,7 +364,7 @@ You will [^l]fully recognize them by their fruits. Do people pick grapes from th
 
 
 
-Even so, every healthy (sound) tree bears good fruit [[^m]worthy of admiration], but the sickly (decaying, worthless) tree bears bad (worthless) fruit. 
+Even so, every healthy (sound) tree bears good fruit [worthy of admiration], but the sickly (decaying, worthless) tree bears bad (worthless) fruit. 
 
 
 
@@ -385,7 +385,7 @@ Even so, every healthy (sound) tree bears good fruit [[^m]worthy of admiration],
 
 
 
-A good (healthy) tree cannot bear bad (worthless) fruit, nor can a bad (diseased) tree bear [^n]excellent fruit [worthy of admiration]. 
+A good (healthy) tree cannot bear bad (worthless) fruit, nor can a bad (diseased) tree bear excellent fruit [worthy of admiration]. 
 
 
 
@@ -427,7 +427,7 @@ Every tree that does not bear good fruit is cut down and cast into the fire.
 
 
 
-Therefore, you will [^o]fully know them by their fruits. 
+Therefore, you will fully know them by their fruits. 
 
 
 
@@ -511,7 +511,7 @@ And then I will say to them openly (publicly), I never knew you; depart from Me,
 
 
 
-So everyone who hears these words of Mine and acts upon them [obeying them] will be like a [^p]sensible (prudent, practical, wise) man who built his house upon the rock. 
+So everyone who hears these words of Mine and acts upon them [obeying them] will be like a sensible (prudent, practical, wise) man who built his house upon the rock. 
 
 
 

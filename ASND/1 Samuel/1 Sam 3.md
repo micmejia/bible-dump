@@ -667,7 +667,7 @@ Patuloy na pinapatnubayan ng Panginoon si Samuel habang siyaʼy lumalaki. Niloob
 
 
 
-Kaya kinilala si Samuel na propeta ng Panginoon mula Dan hanggang sa Beersheba.[^a] 
+Kaya kinilala si Samuel na propeta ng Panginoon mula Dan hanggang sa Beersheba. 
 
 
 

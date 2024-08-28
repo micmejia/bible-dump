@@ -40,7 +40,7 @@ next: ['1 Chr 6']
 
 
 
-Si Reuben ang panganay na anak ni Israel,[^a] pero dahil nakipagtalik siya sa isa sa mga asawa ng kanyang ama, ang karapatan niya bilang panganay ay ibinigay sa mga anak ni Jose na kanyang kapatid. Kaya hindi siya inilista sa talaan ng lahi nila bilang panganay na anak. 
+Si Reuben ang panganay na anak ni Israel, pero dahil nakipagtalik siya sa isa sa mga asawa ng kanyang ama, ang karapatan niya bilang panganay ay ibinigay sa mga anak ni Jose na kanyang kapatid. Kaya hindi siya inilista sa talaan ng lahi nila bilang panganay na anak. 
 
 
 
@@ -205,7 +205,7 @@ Micas, Reaya, Baal,
 
 
 
-at Beera. Si Beera ang pinuno ng lahi ni Reuben nang binihag sila ni Haring Tiglat Pileser[^b] ng Asiria. 
+at Beera. Si Beera ang pinuno ng lahi ni Reuben nang binihag sila ni Haring Tiglat Pileser ng Asiria. 
 
 
 

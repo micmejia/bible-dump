@@ -106,7 +106,7 @@ kundi ang kapakanan din ng iba, para mapalakas ang kanilang pananampalataya.
 
 
 
-Maging si Cristo ay hindi hinangad ang sariling kapakanan, kundi ayon sa Kasulatan, "Nasaktan din ako sa mga pang-iinsultong ginawa sa inyo."[^a] 
+Maging si Cristo ay hindi hinangad ang sariling kapakanan, kundi ayon sa Kasulatan, "Nasaktan din ako sa mga pang-iinsultong ginawa sa inyo." 
 
 
 
@@ -304,7 +304,7 @@ Sapagkat sinasabi ko sa inyo na isinugo ng Dios si Cristo para maglingkod sa mga
 
 
 
-<i class="trans-change">Sinugo rin si Cristo_ para ipakita ang awa ng Dios sa mga hindi Judio, nang sa ganoon ay papurihan din nila ang Dios. Ayon nga sa Kasulatan, "Pasasalamatan kita sa piling ng mga hindi Judio, at aawit ako ng mga papuri sa iyo."[^b] 
+<i class="trans-change">Sinugo rin si Cristo_ para ipakita ang awa ng Dios sa mga hindi Judio, nang sa ganoon ay papurihan din nila ang Dios. Ayon nga sa Kasulatan, "Pasasalamatan kita sa piling ng mga hindi Judio, at aawit ako ng mga papuri sa iyo." 
 
 
 
@@ -337,7 +337,7 @@ Sapagkat sinasabi ko sa inyo na isinugo ng Dios si Cristo para maglingkod sa mga
 
 
 
-At sinabi pa sa Kasulatan, "Kayong mga hindi Judio, makigalak kayo sa mga taong sakop ng Dios."[^c] 
+At sinabi pa sa Kasulatan, "Kayong mga hindi Judio, makigalak kayo sa mga taong sakop ng Dios." 
 
 
 
@@ -370,7 +370,7 @@ At sinabi pa sa Kasulatan, "Kayong mga hindi Judio, makigalak kayo sa mga taong 
 
 
 
-At sinabi pa, "Kayong lahat na mga hindi Judio, purihin ninyo ang Panginoon. Kayong lahat, purihin siya."[^d] 
+At sinabi pa, "Kayong lahat na mga hindi Judio, purihin ninyo ang Panginoon. Kayong lahat, purihin siya." 
 
 
 
@@ -403,7 +403,7 @@ At sinabi pa, "Kayong lahat na mga hindi Judio, purihin ninyo ang Panginoon. Kay
 
 
 
-Sinabi naman ni Isaias, "Magmumula sa lahi ni Jesse ang isang mamumuno sa mga hindi Judio, at aasa sila sa kanya."[^e] 
+Sinabi naman ni Isaias, "Magmumula sa lahi ni Jesse ang isang mamumuno sa mga hindi Judio, at aasa sila sa kanya." 
 
 
 
@@ -700,7 +700,7 @@ Ang tanging nais koʼy maipangaral ang Magandang Balita sa mga lugar na hindi pa
 
 
 
-Sinasabi sa Kasulatan, "Makikilala siya ng mga hindi pa nasasabihan ng tungkol sa kanya. Makakaunawa ang mga hindi pa nakakarinig."[^f] ## Ang Plano ni Pablo na Pagpunta sa Roma 
+Sinasabi sa Kasulatan, "Makikilala siya ng mga hindi pa nasasabihan ng tungkol sa kanya. Makakaunawa ang mga hindi pa nakakarinig." ## Ang Plano ni Pablo na Pagpunta sa Roma 
 
 
 
@@ -832,7 +832,7 @@ inaasahan kong magkikita-kita na tayo ngayon. Dadaan ako riyan sa pagpunta ko sa
 
 
 
-Pero sa ngayon, kailangan ko munang pumunta sa Jerusalem para ihatid ang tulong sa mga pinabanal[^g] <i class="trans-change">ng Dios_. 
+Pero sa ngayon, kailangan ko munang pumunta sa Jerusalem para ihatid ang tulong sa mga pinabanal <i class="trans-change">ng Dios_. 
 
 
 

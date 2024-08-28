@@ -271,7 +271,7 @@ Tuwang-tuwa si Hiram nang matanggap niya ang mensahe ni Solomon. Sinabi niya, "P
 
 
 
-Kaya nagpadala si Hiram ng mensahe kay Solomon na nagsasabi: "Natanggap ko ang ipinadala mong mensahe, at ibibigay ko sa iyo ang mga kailangan mong kahoy na sedro at sipres.[^a] 
+Kaya nagpadala si Hiram ng mensahe kay Solomon na nagsasabi: "Natanggap ko ang ipinadala mong mensahe, at ibibigay ko sa iyo ang mga kailangan mong kahoy na sedro at sipres. 
 
 
 
@@ -601,4 +601,4 @@ At sa utos niya, nagtabas sila ng malalakiʼt magagandang uri ng bato para sa pu
 
 
 
-Kaya inihanda ng mga tauhan nina Solomon at Hiram, kasama ng mga taga-Gebal,[^b] ang mga bato at mga kahoy para sa pagpapatayo ng templo.
+Kaya inihanda ng mga tauhan nina Solomon at Hiram, kasama ng mga taga-Gebal, ang mga bato at mga kahoy para sa pagpapatayo ng templo.

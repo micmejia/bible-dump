@@ -10,7 +10,7 @@ next: ['Rev 10']
 
 
 ###### 1 
-Then the fifth angel sounded: And I saw a star fallen from heaven to the earth. To him was given the key to the [^a]bottomless pit. 
+Then the fifth angel sounded: And I saw a star fallen from heaven to the earth. To him was given the key to the bottomless pit. 
 
 ###### 2 
 And he opened the bottomless pit, and smoke arose out of the pit like the smoke of a great furnace. So the sun and the air were darkened because of the smoke of the pit. 
@@ -22,7 +22,7 @@ Then out of the smoke locusts came upon the earth. And to them was given power, 
 They were commanded not to harm the grass of the earth, or any green thing, or any tree, but only those men who do not have the seal of God on their foreheads. 
 
 ###### 5 
-And [^b]they were not given _authority_ to kill them, but to torment them _for_ five months. Their torment _was_ like the torment of a scorpion when it strikes a man. 
+And they were not given _authority_ to kill them, but to torment them _for_ five months. Their torment _was_ like the torment of a scorpion when it strikes a man. 
 
 ###### 6 
 In those days men will seek death and will not find it; they will desire to die, and death will flee from them. 
@@ -40,7 +40,7 @@ And they had breastplates like breastplates of iron, and the sound of their wing
 They had tails like scorpions, and there were stings in their tails. Their power _was_ to hurt men five months. 
 
 ###### 11 
-And they had as king over them the angel of the bottomless pit, whose name in Hebrew _is_ [^c]Abaddon, but in Greek he has the name [^d]Apollyon. 
+And they had as king over them the angel of the bottomless pit, whose name in Hebrew _is_ Abaddon, but in Greek he has the name Apollyon. 
 
 ###### 12 
 One woe is past. Behold, still two more woes are coming after these things. ## Sixth Trumpet: The Angels from the Euphrates 
@@ -64,10 +64,10 @@ And thus I saw the horses in the vision: those who sat on them had breastplates 
 By these three _plagues_ a third of mankind was killed--by the fire and the smoke and the brimstone which came out of their mouths. 
 
 ###### 19 
-For [^e]their power is in their mouth and in their tails; for their tails _are_ like serpents, having heads; and with them they do harm. 
+For their power is in their mouth and in their tails; for their tails _are_ like serpents, having heads; and with them they do harm. 
 
 ###### 20 
 But the rest of mankind, who were not killed by these plagues, did not repent of the works of their hands, that they should not worship demons, and idols of gold, silver, brass, stone, and wood, which can neither see nor hear nor walk. 
 
 ###### 21 
-And they did not repent of their murders or their [^f]sorceries or their sexual immorality or their thefts.
+And they did not repent of their murders or their sorceries or their sexual immorality or their thefts.

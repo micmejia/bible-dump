@@ -406,7 +406,7 @@ I said in my heart regarding the subject of the sons of men, God is trying (sepa
 
 
 
-For that which befalls the sons of men befalls beasts; even [in the end] one thing befalls them both. As the one dies, so dies the other. Yes, they all have one breath _and_ spirit, so that a [^a]man has no preeminence over a beast; for all is vanity (emptiness, falsity, and futility)! 
+For that which befalls the sons of men befalls beasts; even [in the end] one thing befalls them both. As the one dies, so dies the other. Yes, they all have one breath _and_ spirit, so that a man has no preeminence over a beast; for all is vanity (emptiness, falsity, and futility)! 
 
 
 

@@ -172,7 +172,7 @@ Ang mga utos kong ito ay ipinatupad ko sa inyong mga ninuno noong inilabas ko si
 
 
 
-Nang sa ganoon, tutuparin ko ang aking ipinangako sa inyong mga ninuno na bibigyan ko sila ng maganda at masaganang lupain[^a] – ang lupaing tinitirhan ninyo ngayon.' " At sinabi ko, "Siya nawa, Panginoon." 
+Nang sa ganoon, tutuparin ko ang aking ipinangako sa inyong mga ninuno na bibigyan ko sila ng maganda at masaganang lupain – ang lupaing tinitirhan ninyo ngayon.' " At sinabi ko, "Siya nawa, Panginoon." 
 
 
 

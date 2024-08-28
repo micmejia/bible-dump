@@ -34,13 +34,13 @@ Keep yourself far from a false matter; do not kill the innocent and righteous. F
 And you shall take no bribe, for a bribe blinds the discerning and perverts the words of the righteous. 
 
 ###### 9 
-"Also you shall not oppress a [^a]stranger, for you know the heart of a stranger, because you were strangers in the land of Egypt. ## The Law of Sabbaths 
+"Also you shall not oppress a stranger, for you know the heart of a stranger, because you were strangers in the land of Egypt. ## The Law of Sabbaths 
 
 ###### 10 
 "Six years you shall sow your land and gather in its produce, 
 
 ###### 11 
-but the seventh _year_ you shall let it rest and lie fallow, that the poor of your people may eat; and what they leave, the beasts of the field may eat. In like manner you shall do with your vineyard _and_ your [^b]olive grove. 
+but the seventh _year_ you shall let it rest and lie fallow, that the poor of your people may eat; and what they leave, the beasts of the field may eat. In like manner you shall do with your vineyard _and_ your olive grove. 
 
 ###### 12 
 Six days you shall do your work, and on the seventh day you shall rest, that your ox and your donkey may rest, and the son of your female servant and the stranger may be refreshed. 
@@ -58,10 +58,10 @@ You shall keep the Feast of Unleavened Bread (you shall eat unleavened bread sev
 and the Feast of Harvest, the firstfruits of your labors which you have sown in the field; and the Feast of Ingathering at the end of the year, when you have gathered in _the fruit of_ your labors from the field. 
 
 ###### 17 
-"Three times in the year all your males shall appear before the Lord [^c]God. 
+"Three times in the year all your males shall appear before the Lord God. 
 
 ###### 18 
-"You shall not offer the blood of My sacrifice with leavened bread; nor shall the fat of My [^d]sacrifice remain until morning. 
+"You shall not offer the blood of My sacrifice with leavened bread; nor shall the fat of My sacrifice remain until morning. 
 
 ###### 19 
 The first of the firstfruits of your land you shall bring into the house of the Lord your God. You shall not boil a young goat in its mother's milk. ## The Angel and the Promises 
@@ -76,7 +76,7 @@ Beware of Him and obey His voice; do not provoke Him, for He will not pardon you
 But if you indeed obey His voice and do all that I speak, then I will be an enemy to your enemies and an adversary to your adversaries. 
 
 ###### 23 
-For My Angel will go before you and bring you in to the Amorites and the Hittites and the Perizzites and the Canaanites and the Hivites and the Jebusites; and I will [^e]cut them off. 
+For My Angel will go before you and bring you in to the Amorites and the Hittites and the Perizzites and the Canaanites and the Hivites and the Jebusites; and I will cut them off. 
 
 ###### 24 
 You shall not bow down to their gods, nor serve them, nor do according to their works; but you shall utterly overthrow them and completely break down their _sacred_ pillars. 
@@ -100,10 +100,10 @@ I will not drive them out from before you in one year, lest the land become deso
 Little by little I will drive them out from before you, until you have increased, and you inherit the land. 
 
 ###### 31 
-And I will set your [^f]bounds from the Red Sea to the sea, Philistia, and from the desert to the [^g]River. For I will deliver the inhabitants of the land into your hand, and you shall drive them out before you. 
+And I will set your bounds from the Red Sea to the sea, Philistia, and from the desert to the River. For I will deliver the inhabitants of the land into your hand, and you shall drive them out before you. 
 
 ###### 32 
-You shall make no [^h]covenant with them, nor with their gods. 
+You shall make no covenant with them, nor with their gods. 
 
 ###### 33 
 They shall not dwell in your land, lest they make you sin against Me. For _if_ you serve their gods, it will surely be a snare to you."

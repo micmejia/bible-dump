@@ -16,13 +16,13 @@ Then the Lord said to Moses, "Depart _and_ go up from here, you and the people w
 And I will send _My_ Angel before you, and I will drive out the Canaanite and the Amorite and the Hittite and the Perizzite and the Hivite and the Jebusite. 
 
 ###### 3 
-_Go up_ to a land flowing with milk and honey; for I will not go up in your midst, lest I [^a]consume you on the way, for you _are_ a stiff-necked[^b] people." 
+_Go up_ to a land flowing with milk and honey; for I will not go up in your midst, lest I consume you on the way, for you _are_ a stiff-necked people." 
 
 ###### 4 
 And when the people heard this bad news, they mourned, and no one put on his ornaments. 
 
 ###### 5 
-For the Lord had said to Moses, "Say to the children of Israel, 'You _are_ a stiff-necked people. I could come up into your midst in one moment and consume you. Now therefore, take off your [^c]ornaments, that I may know what to do to you.' " 
+For the Lord had said to Moses, "Say to the children of Israel, 'You _are_ a stiff-necked people. I could come up into your midst in one moment and consume you. Now therefore, take off your ornaments, that I may know what to do to you.' " 
 
 ###### 6 
 So the children of Israel stripped themselves of their ornaments by Mount Horeb. ## Moses Meets with the Lord 

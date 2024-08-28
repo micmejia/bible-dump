@@ -91,7 +91,7 @@ For our appeal [in preaching] does not [originate] from delusion _or_ error or i
 
 
 
-But just as we have been approved by God to be entrusted with the glad tidings (the Gospel), so we speak not to please men but to please God, Who tests our hearts [[^a]expecting them to be approved]. 
+But just as we have been approved by God to be entrusted with the glad tidings (the Gospel), so we speak not to please men but to please God, Who tests our hearts [expecting them to be approved]. 
 
 
 
@@ -259,7 +259,7 @@ For you know how, as a father [dealing with] his children, we used to exhort eac
 
 
 
-To live lives worthy of God, Who calls you into His own kingdom and the glorious blessedness [[^b]into which true believers will enter after Christ's return]. 
+To live lives worthy of God, Who calls you into His own kingdom and the glorious blessedness [into which true believers will enter after Christ's return]. 
 
 
 
@@ -280,7 +280,7 @@ To live lives worthy of God, Who calls you into His own kingdom and the glorious
 
 
 
-And we also [especially] thank God continually for this, that when you received the message of God [which you heard] from us, you welcomed it not as the word of [mere] men, but as it truly is, the Word of God, which is effectually at work in you who believe [[^c]exercising its superhuman power in those who adhere to and trust in and rely on it]. 
+And we also [especially] thank God continually for this, that when you received the message of God [which you heard] from us, you welcomed it not as the word of [mere] men, but as it truly is, the Word of God, which is effectually at work in you who believe [exercising its superhuman power in those who adhere to and trust in and rely on it]. 
 
 
 

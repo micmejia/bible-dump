@@ -40,7 +40,7 @@ So the king of Israel went with the king of Judah and the king of Edom, and they
 And the king of Israel said, "Alas! For the Lord has called these three kings together to deliver them into the hand of Moab." 
 
 ###### 11 
-But Jehoshaphat said, "_Is there_ no prophet of the Lord here, that we may inquire of the Lord by him?" So one of the servants of the king of Israel answered and said, "Elisha the son of Shaphat _is_ here, who poured[^a] water on the hands of Elijah." 
+But Jehoshaphat said, "_Is there_ no prophet of the Lord here, that we may inquire of the Lord by him?" So one of the servants of the king of Israel answered and said, "Elisha the son of Shaphat _is_ here, who poured water on the hands of Elijah." 
 
 ###### 12 
 And Jehoshaphat said, "The word of the Lord is with him." So the king of Israel and Jehoshaphat and the king of Edom went down to him. 
@@ -55,7 +55,7 @@ And Elisha said, "_As_ the Lord of hosts lives, before whom I stand, surely were
 But now bring me a musician." Then it happened, when the musician played, that the hand of the Lord came upon him. 
 
 ###### 16 
-And he said, "Thus says the Lord: 'Make this valley full of [^b]ditches.' 
+And he said, "Thus says the Lord: 'Make this valley full of ditches.' 
 
 ###### 17 
 For thus says the Lord: 'You shall not see wind, nor shall you see rain; yet that valley shall be filled with water, so that you, your cattle, and your animals may drink.' 
@@ -70,7 +70,7 @@ Also you shall attack every fortified city and every choice city, and shall cut 
 Now it happened in the morning, when the grain offering was offered, that suddenly water came by way of Edom, and the land was filled with water. 
 
 ###### 21 
-And when all the Moabites heard that the kings had come up to fight against them, all who were able to bear arms and older were [^c]gathered; and they stood at the border. 
+And when all the Moabites heard that the kings had come up to fight against them, all who were able to bear arms and older were gathered; and they stood at the border. 
 
 ###### 22 
 Then they rose up early in the morning, and the sun was shining on the water; and the Moabites saw the water on the other side _as_ red as blood. 
@@ -88,4 +88,4 @@ Then they destroyed the cities, and each man threw a stone on every good piece o
 And when the king of Moab saw that the battle was too fierce for him, he took with him seven hundred men who drew swords, to break through to the king of Edom, but they could not. 
 
 ###### 27 
-Then he took his eldest son who would have reigned in his place, and offered him _as_ a burnt offering upon the wall; and there was great [^d]indignation against Israel. So they departed from him and returned to _their own_ land.
+Then he took his eldest son who would have reigned in his place, and offered him _as_ a burnt offering upon the wall; and there was great indignation against Israel. So they departed from him and returned to _their own_ land.

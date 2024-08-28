@@ -469,7 +469,7 @@ With much justifying _and_ enticing argument she persuades him, with the allurem
 
 
 
-Suddenly he [yields and] follows her reluctantly like an ox moving to the slaughter, like one in fetters going to the correction [to be given] to a fool _or_ [^a]_like a dog enticed by food to the muzzle_ 
+Suddenly he [yields and] follows her reluctantly like an ox moving to the slaughter, like one in fetters going to the correction [to be given] to a fool _or_ _like a dog enticed by food to the muzzle_ 
 
 
 

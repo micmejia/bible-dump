@@ -205,7 +205,7 @@ Dumating ang panahon, nabuntis si Bilha at nanganak ng lalaki.
 
 
 
-Sinabi ni Raquel, "Kinuha na ng Dios ang aking kahihiyan. Tinugon niya ang panalangin ko dahil binigyan niya ako ng isang anak na lalaki." Kaya pinangalanan niya ang sanggol na Dan.[^a] 
+Sinabi ni Raquel, "Kinuha na ng Dios ang aking kahihiyan. Tinugon niya ang panalangin ko dahil binigyan niya ako ng isang anak na lalaki." Kaya pinangalanan niya ang sanggol na Dan. 
 
 
 
@@ -271,7 +271,7 @@ Muling nagbuntis si Bilha na alipin ni Raquel at nanganak ng lalaki na pangalawa
 
 
 
-Sinabi ni Raquel, "Napakahigpit ng labanan namin bilang magkapatid, at nagtagumpay ako." Kaya pinangalanan niya ang sanggol na Naftali.[^b] 
+Sinabi ni Raquel, "Napakahigpit ng labanan namin bilang magkapatid, at nagtagumpay ako." Kaya pinangalanan niya ang sanggol na Naftali. 
 
 
 
@@ -370,7 +370,7 @@ Nabuntis si Zilpa at nanganak ng lalaki.
 
 
 
-Sinabi ni Lea, "Parang pinalad ako." Kaya pinangalanan niya ang sanggol na Gad.[^c] 
+Sinabi ni Lea, "Parang pinalad ako." Kaya pinangalanan niya ang sanggol na Gad. 
 
 
 
@@ -436,7 +436,7 @@ Muling nanganak si Zilpa ng lalaki na pangalawang anak nila ni Jacob.
 
 
 
-Sinabi ni Lea, "Lubha akong nasisiyahan! Ngayon tatawagin ako ng mga babae na masiyahin." Kaya pinangalanan niya ang sanggol na Asher.[^d] 
+Sinabi ni Lea, "Lubha akong nasisiyahan! Ngayon tatawagin ako ng mga babae na masiyahin." Kaya pinangalanan niya ang sanggol na Asher. 
 
 
 
@@ -601,7 +601,7 @@ Sinagot ng Dios ang panalangin ni Lea at siyaʼy nabuntis. Nanganak siya ng lala
 
 
 
-Sinabi ni Lea, "Ginantimpalaan ako ng Dios dahil ibinigay ko ang alipin ko sa aking asawa." Kaya pinangalanan niya ang kanyang anak na Isacar.[^e] 
+Sinabi ni Lea, "Ginantimpalaan ako ng Dios dahil ibinigay ko ang alipin ko sa aking asawa." Kaya pinangalanan niya ang kanyang anak na Isacar. 
 
 
 
@@ -667,7 +667,7 @@ Muling nabuntis si Lea at nanganak ng lalaki na ikaanim nilang anak ni Jacob.
 
 
 
-Sinabi niya, "Binigyan ako ng Dios ng mabuting regalo. Pararangalan na ako nito ngayon ng asawa ko dahil nabigyan ko na siya ng anim na anak na puro lalaki." Kaya pinangalanan niya ang sanggol na Zebulun.[^f] 
+Sinabi niya, "Binigyan ako ng Dios ng mabuting regalo. Pararangalan na ako nito ngayon ng asawa ko dahil nabigyan ko na siya ng anim na anak na puro lalaki." Kaya pinangalanan niya ang sanggol na Zebulun. 
 
 
 
@@ -766,7 +766,7 @@ Hindi rin kinalimutan ng Dios si Raquel. Sinagot niya ang kanyang panalangin na 
 
 
 
-Nagbuntis siya at nanganak ng lalaki. Sinabi niya, "Inalis ng Dios ang aking kahihiyan." Kaya pinangalanan niya ang sanggol na Jose[^g] dahil sinabi niya, 
+Nagbuntis siya at nanganak ng lalaki. Sinabi niya, "Inalis ng Dios ang aking kahihiyan." Kaya pinangalanan niya ang sanggol na Jose dahil sinabi niya, 
 
 
 
@@ -1228,7 +1228,7 @@ Ibinukod niya ito kay Jacob sa layo na tatlong araw kung lalakarin. Ang naiwang 
 
 
 
-Kumuha si Jacob ng mga sanga ng almendro, abilyano, at kastanyo, at binalat-balatan niya ito. Pero hindi niya lubos na binalatan, kaya may batik-batik na puti kapag tiningnan ang mga sanga. <sup class="versenum">38-39</sup>Inilagay niya ang mga sangang iyon sa harapan ng painuman ng mga hayop para makita ng mga ito kapag iinom sila. Doon sa harapan ng mga sanga nagkakastahan[^h] ang mga kambing kapag umiinom sila. Batik-batik ang mga anak nila kapag nanganganak sila. 
+Kumuha si Jacob ng mga sanga ng almendro, abilyano, at kastanyo, at binalat-balatan niya ito. Pero hindi niya lubos na binalatan, kaya may batik-batik na puti kapag tiningnan ang mga sanga. <sup class="versenum">38-39</sup>Inilagay niya ang mga sangang iyon sa harapan ng painuman ng mga hayop para makita ng mga ito kapag iinom sila. Doon sa harapan ng mga sanga nagkakastahan ang mga kambing kapag umiinom sila. Batik-batik ang mga anak nila kapag nanganganak sila. 
 
 
 

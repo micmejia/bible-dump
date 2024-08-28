@@ -112,7 +112,7 @@ But God--so rich is He in His mercy! Because of _and_ in order to satisfy the gr
 
 
 
-Even when we were dead (slain) by [our own] shortcomings _and_ trespasses, He made us alive together in fellowship _and_ in union with Christ; [He gave us the very life of Christ Himself, the same new life with which He quickened Him, for] it is by grace (His favor and mercy which you did not deserve) that you are saved ([^a]delivered from judgment and made partakers of Christ's salvation). 
+Even when we were dead (slain) by [our own] shortcomings _and_ trespasses, He made us alive together in fellowship _and_ in union with Christ; [He gave us the very life of Christ Himself, the same new life with which He quickened Him, for] it is by grace (His favor and mercy which you did not deserve) that you are saved (delivered from judgment and made partakers of Christ's salvation). 
 
 
 
@@ -133,7 +133,7 @@ Even when we were dead (slain) by [our own] shortcomings _and_ trespasses, He ma
 
 
 
-And He raised us up together with Him and made us sit down together [giving us [^b]joint seating with Him] in the heavenly sphere [by virtue of our being] in Christ Jesus (the Messiah, the Anointed One). 
+And He raised us up together with Him and made us sit down together [giving us joint seating with Him] in the heavenly sphere [by virtue of our being] in Christ Jesus (the Messiah, the Anointed One). 
 
 
 
@@ -175,7 +175,7 @@ He did this that He might clearly demonstrate through the ages to come the immea
 
 
 
-For it is by free grace (God's unmerited favor) that you are saved ([^c]delivered from judgment _and_ made partakers of Christ's salvation) through [your] faith. And this [salvation] is not of yourselves [of your own doing, it came not through your own striving], but it is the gift of God; 
+For it is by free grace (God's unmerited favor) that you are saved (delivered from judgment _and_ made partakers of Christ's salvation) through [your] faith. And this [salvation] is not of yourselves [of your own doing, it came not through your own striving], but it is the gift of God; 
 
 
 
@@ -217,7 +217,7 @@ Not because of works [not the fulfillment of the Law's demands], lest any man sh
 
 
 
-For we are God's [own] handiwork (His workmanship), [^d]recreated in Christ Jesus, [born anew] that we may do those good works which God predestined (planned beforehand) for us [taking paths which He prepared ahead of time], that we should walk in them [living the good life which He prearranged and made ready for us to live]. 
+For we are God's [own] handiwork (His workmanship), recreated in Christ Jesus, [born anew] that we may do those good works which God predestined (planned beforehand) for us [taking paths which He prepared ahead of time], that we should walk in them [living the good life which He prearranged and made ready for us to live]. 
 
 
 
@@ -238,7 +238,7 @@ For we are God's [own] handiwork (His workmanship), [^d]recreated in Christ Jesu
 
 
 
-Therefore, remember that at one time you were Gentiles (heathens) in the flesh, called Uncircumcision by those who called themselves Circumcision, [itself a [^e]mere mark] in the flesh made by human hands. 
+Therefore, remember that at one time you were Gentiles (heathens) in the flesh, called Uncircumcision by those who called themselves Circumcision, [itself a mere mark] in the flesh made by human hands. 
 
 
 

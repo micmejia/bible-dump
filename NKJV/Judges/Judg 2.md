@@ -13,16 +13,16 @@ next: ['Judg 3']
 Then the Angel of the Lord came up from Gilgal to Bochim, and said: "I led you up from Egypt and brought you to the land of which I swore to your fathers; and I said, 'I will never break My covenant with you. 
 
 ###### 2 
-And you shall make no [^a]covenant with the inhabitants of this land; you shall tear down their altars.' But you have not obeyed My voice. Why have you done this? 
+And you shall make no covenant with the inhabitants of this land; you shall tear down their altars.' But you have not obeyed My voice. Why have you done this? 
 
 ###### 3 
-Therefore I also said, 'I will not drive them out before you; but they shall be _thorns_[^b] in your side, and their gods shall [^c]be a snare to you.' " 
+Therefore I also said, 'I will not drive them out before you; but they shall be _thorns_ in your side, and their gods shall be a snare to you.' " 
 
 ###### 4 
 So it was, when the Angel of the Lord spoke these words to all the children of Israel, that the people lifted up their voices and wept. 
 
 ###### 5 
-Then they called the name of that place [^d]Bochim; and they sacrificed there to the Lord. 
+Then they called the name of that place Bochim; and they sacrificed there to the Lord. 
 
 ###### 6 
 And when Joshua had dismissed the people, the children of Israel went each to his own inheritance to possess the land. ## Death of Joshua 
@@ -37,7 +37,7 @@ Now Joshua the son of Nun, the servant of the Lord, died _when he was_ one hundr
 And they buried him within the border of his inheritance at Timnath Heres, in the mountains of Ephraim, on the north side of Mount Gaash. 
 
 ###### 10 
-When all that generation had [^e]been gathered to their fathers, another generation arose after them who did not know the Lord nor the work which He had done for Israel. ## Israel's Unfaithfulness 
+When all that generation had been gathered to their fathers, another generation arose after them who did not know the Lord nor the work which He had done for Israel. ## Israel's Unfaithfulness 
 
 ###### 11 
 Then the children of Israel did evil in the sight of the Lord, and served the Baals; 
@@ -46,7 +46,7 @@ Then the children of Israel did evil in the sight of the Lord, and served the Ba
 and they forsook the Lord God of their fathers, who had brought them out of the land of Egypt; and they followed other gods from _among_ the gods of the people who _were_ all around them, and they bowed down to them; and they provoked the Lord to anger. 
 
 ###### 13 
-They forsook the Lord and served [^f]Baal and the [^g]Ashtoreths. 
+They forsook the Lord and served Baal and the Ashtoreths. 
 
 ###### 14 
 And the anger of the Lord was hot against Israel. So He delivered them into the hands of plunderers who despoiled them; and He sold them into the hands of their enemies all around, so that they could no longer stand before their enemies. 

@@ -9,7 +9,7 @@ next: ['1 Pet 2']
 
 
 ###### 1 
-Peter, an apostle of Jesus Christ, To the [^a]pilgrims of the Dispersion in Pontus, Galatia, Cappadocia, Asia, and Bithynia, 
+Peter, an apostle of Jesus Christ, To the pilgrims of the Dispersion in Pontus, Galatia, Cappadocia, Asia, and Bithynia, 
 
 ###### 2 
 elect according to the foreknowledge of God the Father, in sanctification of the Spirit, for obedience and sprinkling of the blood of Jesus Christ: Grace to you and peace be multiplied. ## A Heavenly Inheritance 
@@ -18,19 +18,19 @@ elect according to the foreknowledge of God the Father, in sanctification of the
 Blessed _be_ the God and Father of our Lord Jesus Christ, who according to His abundant mercy has begotten us again to a living hope through the resurrection of Jesus Christ from the dead, 
 
 ###### 4 
-to an inheritance [^b]incorruptible and undefiled and that does not fade away, reserved in heaven for you, 
+to an inheritance incorruptible and undefiled and that does not fade away, reserved in heaven for you, 
 
 ###### 5 
 who are kept by the power of God through faith for salvation ready to be revealed in the last time. 
 
 ###### 6 
-In this you greatly rejoice, though now for a little while, if need be, you have been [^c]grieved by various trials, 
+In this you greatly rejoice, though now for a little while, if need be, you have been grieved by various trials, 
 
 ###### 7 
 that the genuineness of your faith, _being_ much more precious than gold that perishes, though it is tested by fire, may be found to praise, honor, and glory at the revelation of Jesus Christ, 
 
 ###### 8 
-whom having not [^d]seen you love. Though now you do not see _Him,_ yet believing, you rejoice with joy inexpressible and full of glory, 
+whom having not seen you love. Though now you do not see _Him,_ yet believing, you rejoice with joy inexpressible and full of glory, 
 
 ###### 9 
 receiving the end of your faith--the salvation of _your_ souls. 
@@ -42,7 +42,7 @@ Of this salvation the prophets have inquired and searched carefully, who prophes
 searching what, or what manner of time, the Spirit of Christ who was in them was indicating when He testified beforehand the sufferings of Christ and the glories that would follow. 
 
 ###### 12 
-To them it was revealed that, not to themselves, but to [^e]us they were ministering the things which now have been reported to you through those who have preached the gospel to you by the Holy Spirit sent from heaven--things which angels desire to look into. ## Living Before God Our Father 
+To them it was revealed that, not to themselves, but to us they were ministering the things which now have been reported to you through those who have preached the gospel to you by the Holy Spirit sent from heaven--things which angels desire to look into. ## Living Before God Our Father 
 
 ###### 13 
 Therefore gird up the loins of your mind, be sober, and rest _your_ hope fully upon the grace that is to be brought to you at the revelation of Jesus Christ; 
@@ -57,28 +57,28 @@ but as He who called you _is_ holy, you also be holy in all _your_ conduct,
 because it is written, "Be holy, for I am holy." 
 
 ###### 17 
-And if you call on the Father, who without partiality judges according to each one's work, conduct yourselves throughout the time of your [^f]stay _here_ in fear; 
+And if you call on the Father, who without partiality judges according to each one's work, conduct yourselves throughout the time of your stay _here_ in fear; 
 
 ###### 18 
-knowing that you were not redeemed with [^g]corruptible things, _like_ silver or gold, from your aimless conduct _received_ by tradition from your fathers, 
+knowing that you were not redeemed with corruptible things, _like_ silver or gold, from your aimless conduct _received_ by tradition from your fathers, 
 
 ###### 19 
 but with the precious blood of Christ, as of a lamb without blemish and without spot. 
 
 ###### 20 
-He indeed was foreordained before the foundation of the world, but was [^h]manifest in these last times for you 
+He indeed was foreordained before the foundation of the world, but was manifest in these last times for you 
 
 ###### 21 
 who through Him believe in God, who raised Him from the dead and gave Him glory, so that your faith and hope are in God. ## The Enduring Word 
 
 ###### 22 
-Since you have purified your souls in obeying the truth [^i]through the Spirit in [^j]sincere love of the brethren, love one another fervently with a pure heart, 
+Since you have purified your souls in obeying the truth through the Spirit in sincere love of the brethren, love one another fervently with a pure heart, 
 
 ###### 23 
-having been born again, not of [^k]corruptible seed but [^l]incorruptible, through the word of God which lives and abides [^m]forever, 
+having been born again, not of corruptible seed but incorruptible, through the word of God which lives and abides forever, 
 
 ###### 24 
-because "All flesh _is_ as grass, And all [^n]the glory of man as the flower of the grass. The grass withers, And its flower falls away, 
+because "All flesh _is_ as grass, And all the glory of man as the flower of the grass. The grass withers, And its flower falls away, 
 
 ###### 25 
-But the [^o]word of the Lord endures forever." Now this is the word which by the gospel was preached to you.
+But the word of the Lord endures forever." Now this is the word which by the gospel was preached to you.

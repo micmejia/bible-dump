@@ -40,7 +40,7 @@ next: ['Isa 24']
 
 
 
-Ang mensaheng itoʼy tungkol sa Tyre: Umiyak kayong mga pasahero ng mga barko ng Tarshish. Sapagkat nawasak na ang inyong daungan sa Tyre. Sinabi na iyon sa inyo ng mga nanggaling sa Cyprus.[^a] 
+Ang mensaheng itoʼy tungkol sa Tyre: Umiyak kayong mga pasahero ng mga barko ng Tarshish. Sapagkat nawasak na ang inyong daungan sa Tyre. Sinabi na iyon sa inyo ng mga nanggaling sa Cyprus. 
 
 
 
@@ -370,7 +370,7 @@ Kayong mga taga-Tarshish ay malayang dumaan sa Tyre, katulad ng Ilog ng Nilo na 
 
 
 
-Iniunat ng Panginoon ang kanyang kamay sa dagat, at niyanig niya ang mga kaharian. Iniutos niyang wasakin ang mga kampo ng Fenicia[^b] 
+Iniunat ng Panginoon ang kanyang kamay sa dagat, at niyanig niya ang mga kaharian. Iniutos niyang wasakin ang mga kampo ng Fenicia 
 
 
 
@@ -403,7 +403,7 @@ Iniunat ng Panginoon ang kanyang kamay sa dagat, at niyanig niya ang mga kaharia
 
 
 
-Sinabi ng Panginoon, "Mga mamamayan[^c] ng Sidon, tapos na ang maliligayang araw ninyo. Wasak na kayo! Kahit na tumakas kayo papuntang Cyprus, hindi pa rin kayo magkakaroon ng kapahingahan doon." 
+Sinabi ng Panginoon, "Mga mamamayan ng Sidon, tapos na ang maliligayang araw ninyo. Wasak na kayo! Kahit na tumakas kayo papuntang Cyprus, hindi pa rin kayo magkakaroon ng kapahingahan doon." 
 
 
 
@@ -436,7 +436,7 @@ Sinabi ng Panginoon, "Mga mamamayan[^c] ng Sidon, tapos na ang maliligayang araw
 
 
 
-Tingnan ninyo ang lupain ng mga taga-Babilonia.[^d] Nasaan na ang mga mamamayan nito? Sinalakay ito ng Asiria at winasak ang matitibay na bahagi nito. Pinabayaan itong giba at naging tirahan ng maiilap na hayop. 
+Tingnan ninyo ang lupain ng mga taga-Babilonia. Nasaan na ang mga mamamayan nito? Sinalakay ito ng Asiria at winasak ang matitibay na bahagi nito. Pinabayaan itong giba at naging tirahan ng maiilap na hayop. 
 
 
 

@@ -216,7 +216,7 @@ And with [him is] Onesimus, [our] faithful and beloved brother, who is [one] of 
 
 
 
-Aristarchus my fellow prisoner wishes to be remembered to you, as does Mark the relative of Barnabas. You received instructions concerning him; if he comes to you give him a [[^a]hearty] welcome. 
+Aristarchus my fellow prisoner wishes to be remembered to you, as does Mark the relative of Barnabas. You received instructions concerning him; if he comes to you give him a [hearty] welcome. 
 
 
 
@@ -258,7 +258,7 @@ And [greetings also from] Jesus, who is called Justus. These [Hebrew Christians]
 
 
 
-Epaphras, who is one of yourselves, a servant of Christ Jesus, sends you greetings. [He is] always striving for you earnestly in his prayers, [pleading] that you may [as persons of ripe character and clear conviction] stand firm _and_ mature [in spiritual growth], convinced _and_ fully assured in [^b]everything willed by God. 
+Epaphras, who is one of yourselves, a servant of Christ Jesus, sends you greetings. [He is] always striving for you earnestly in his prayers, [pleading] that you may [as persons of ripe character and clear conviction] stand firm _and_ mature [in spiritual growth], convinced _and_ fully assured in everything willed by God. 
 
 
 

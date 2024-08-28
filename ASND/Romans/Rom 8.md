@@ -73,7 +73,7 @@ Kaya ngayon, hindi na hahatulan ng kaparusahan ang mga nakay Cristo Jesus.
 
 
 
-Sapagkat sa pakikipag-isa natin kay Cristo Jesus, pinalaya na tayo sa kapangyarihan[^a] ng kasalanan at kamatayan sa pamamagitan ng kapangyarihan ng <i class="trans-change">Banal na_ Espiritu na nagbibigay-buhay. 
+Sapagkat sa pakikipag-isa natin kay Cristo Jesus, pinalaya na tayo sa kapangyarihan ng kasalanan at kamatayan sa pamamagitan ng kapangyarihan ng <i class="trans-change">Banal na_ Espiritu na nagbibigay-buhay. 
 
 
 
@@ -898,7 +898,7 @@ Tinutulungan tayo ng <i class="trans-change">Banal na_ Espiritu sa kahinaan nati
 
 
 
-At ang anumang nais sabihin ng <i class="trans-change">Banal na_ Espiritu ay alam ng Dios na siyang sumisiyasat sa puso ng mga tao. Sapagkat namamagitan ang <i class="trans-change">Banal na_ Espiritu para sa mga mananampalataya,[^b] kung ano ang ayon sa kalooban ng Dios. 
+At ang anumang nais sabihin ng <i class="trans-change">Banal na_ Espiritu ay alam ng Dios na siyang sumisiyasat sa puso ng mga tao. Sapagkat namamagitan ang <i class="trans-change">Banal na_ Espiritu para sa mga mananampalataya, kung ano ang ayon sa kalooban ng Dios. 
 
 
 
@@ -1162,7 +1162,7 @@ Wala ring makakahatol sa atin ng kaparusahan, dahil si Cristo Jesus na mismo ang
 
 
 
-Walang makapaghihiwalay sa atin sa pag-ibig ni Cristo, kahit dumanas pa tayo ng mga pagsubok, paghihirap, pag-uusig, gutom, kawalan,[^c] panganib, o maging kamatayan. 
+Walang makapaghihiwalay sa atin sa pag-ibig ni Cristo, kahit dumanas pa tayo ng mga pagsubok, paghihirap, pag-uusig, gutom, kawalan, panganib, o maging kamatayan. 
 
 
 
@@ -1195,7 +1195,7 @@ Walang makapaghihiwalay sa atin sa pag-ibig ni Cristo, kahit dumanas pa tayo ng 
 
 
 
-Gaya nga ng sinasabi sa Kasulatan, "Alang-alang sa iyo, palaging nasa panganib ang aming buhay. Para kaming mga tupang kakatayin."[^d] 
+Gaya nga ng sinasabi sa Kasulatan, "Alang-alang sa iyo, palaging nasa panganib ang aming buhay. Para kaming mga tupang kakatayin." 
 
 
 

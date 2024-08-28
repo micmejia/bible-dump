@@ -139,7 +139,7 @@ Sinabi sa kanya ng diyablo, "Kung ikaw nga ang Anak ng Dios, gawin mong tinapay 
 
 
 
-Pero sinagot siya ni Jesus, "Sinasabi sa Kasulatan, 'Hindi lang sa pagkain nabubuhay ang tao.' "[^a] 
+Pero sinagot siya ni Jesus, "Sinasabi sa Kasulatan, 'Hindi lang sa pagkain nabubuhay ang tao.' " 
 
 
 
@@ -271,7 +271,7 @@ Kaya kung sasambahin mo ako, mapapasaiyo ang lahat ng iyan."
 
 
 
-Pero sumagot si Jesus, "Sinasabi sa Kasulatan, 'Sambahin mo ang Panginoon mong Dios at siya lang ang dapat mong paglingkuran.' "[^b] 
+Pero sumagot si Jesus, "Sinasabi sa Kasulatan, 'Sambahin mo ang Panginoon mong Dios at siya lang ang dapat mong paglingkuran.' " 
 
 
 
@@ -370,7 +370,7 @@ Sapagkat sinasabi sa Kasulatan, 'Uutusan ng Dios ang kanyang mga anghel na ingat
 
 
 
-Aalalayan ka nila upang hindi tumama ang mga paa mo sa bato.' "[^c] 
+Aalalayan ka nila upang hindi tumama ang mga paa mo sa bato.' " 
 
 
 
@@ -403,7 +403,7 @@ Aalalayan ka nila upang hindi tumama ang mga paa mo sa bato.' "[^c]
 
 
 
-Pero sumagot si Jesus, "Sinasabi sa Kasulatan, 'Huwag mong subukin ang Panginoon mong Dios.' "[^d] 
+Pero sumagot si Jesus, "Sinasabi sa Kasulatan, 'Huwag mong subukin ang Panginoon mong Dios.' " 
 
 
 
@@ -634,7 +634,7 @@ Ibinigay sa kanya ang aklat ni Propeta Isaias. Binuksan niya ito at pagkakita sa
 
 
 
-at ipahayag na dumating na ang panahon ng pagliligtas ng Panginoon."[^e] 
+at ipahayag na dumating na ang panahon ng pagliligtas ng Panginoon." 
 
 
 
@@ -898,7 +898,7 @@ pero hindi pinapunta <i class="trans-change">ng Dios_ si Elias sa kaninuman sa k
 
 
 
-Ganyan din ang nangyari noong panahon ni propeta Eliseo. Maraming tao sa Israel ang may malubhang sakit sa balat,[^f] ngunit walang pinagaling ni isa man sa kanila <i class="trans-change">si Eliseo_. Sa halip, si Naaman pa na taga-Syria ang pinagaling <i class="trans-change">niya_." 
+Ganyan din ang nangyari noong panahon ni propeta Eliseo. Maraming tao sa Israel ang may malubhang sakit sa balat, ngunit walang pinagaling ni isa man sa kanila <i class="trans-change">si Eliseo_. Sa halip, si Naaman pa na taga-Syria ang pinagaling <i class="trans-change">niya_." 
 
 
 

@@ -172,7 +172,7 @@ Kaya noong binautismuhan tayo, namatay tayo at inilibing na kasama niya. Kung pa
 
 
 
-At kung nakasama tayo sa kanyang kamatayan, tiyak na mabubuhay tayong muli[^a] tulad ng muli niyang pagkabuhay. 
+At kung nakasama tayo sa kanyang kamatayan, tiyak na mabubuhay tayong muli tulad ng muli niyang pagkabuhay. 
 
 
 

@@ -237,7 +237,7 @@ And Ezra the priest stood up and said to them, You have acted wickedly _and_ bro
 
 
 
-So now make confession _and_ give thanks to the Lord, the God of your fathers [for not consuming you], and do His will. [^a]Separate yourselves from the peoples of the land and from [your] foreign (heathen) wives. 
+So now make confession _and_ give thanks to the Lord, the God of your fathers [for not consuming you], and do His will. Separate yourselves from the peoples of the land and from [your] foreign (heathen) wives. 
 
 
 

@@ -12,22 +12,22 @@ next: ['Zeph 2']
 The word of the Lord which came to Zephaniah the son of Cushi, the son of Gedaliah, the son of Amariah, the son of Hezekiah, in the days of Josiah the son of Amon, king of Judah. ## The Great Day of the Lord 
 
 ###### 2 
-"I will [^a]utterly consume everything From the face of the land," Says the Lord; 
+"I will utterly consume everything From the face of the land," Says the Lord; 
 
 ###### 3 
-"I will consume man and beast; I will consume the birds of the heavens, The fish of the sea, And the [^b]stumbling blocks along with the wicked. I will cut off man from the face of the [^c]land," Says the Lord. 
+"I will consume man and beast; I will consume the birds of the heavens, The fish of the sea, And the stumbling blocks along with the wicked. I will cut off man from the face of the land," Says the Lord. 
 
 ###### 4 
-"I will stretch out My hand against Judah, And against all the inhabitants of Jerusalem. [^d]I will cut off every trace of Baal from this place, The names of the idolatrous[^e] priests with the _pagan_ priests-- 
+"I will stretch out My hand against Judah, And against all the inhabitants of Jerusalem. I will cut off every trace of Baal from this place, The names of the idolatrous priests with the _pagan_ priests-- 
 
 ###### 5 
-Those who worship the host of heaven on the housetops; Those who worship and swear _oaths_ by the Lord, But who _also_ swear by [^f]Milcom; 
+Those who worship the host of heaven on the housetops; Those who worship and swear _oaths_ by the Lord, But who _also_ swear by Milcom; 
 
 ###### 6 
 Those who have turned back from _following_ the Lord, And have not sought the Lord, nor inquired of Him." 
 
 ###### 7 
-Be silent in the presence of the Lord God; For the day of the Lord _is_ at hand, For the Lord has prepared a sacrifice; He has [^g]invited His guests. 
+Be silent in the presence of the Lord God; For the day of the Lord _is_ at hand, For the Lord has prepared a sacrifice; He has invited His guests. 
 
 ###### 8 
 "And it shall be, In the day of the Lord's sacrifice, That I will punish the princes and the king's children, And all such as are clothed with foreign apparel. 
@@ -39,10 +39,10 @@ In the same day I will punish All those who leap over the threshold, Who fill th
 "And there shall be on that day," says the Lord, "The sound of a mournful cry from the Fish Gate, A wailing from the Second Quarter, And a loud crashing from the hills. 
 
 ###### 11 
-Wail, you inhabitants of [^h]Maktesh! For all the merchant people are cut down; All those who handle money are cut off. 
+Wail, you inhabitants of Maktesh! For all the merchant people are cut down; All those who handle money are cut off. 
 
 ###### 12 
-"And it shall come to pass at that time _That_ I will search Jerusalem with lamps, And punish the men Who are settled[^i] in complacency, Who say in their heart, 'The Lord will not do good, Nor will He do evil.' 
+"And it shall come to pass at that time _That_ I will search Jerusalem with lamps, And punish the men Who are settled in complacency, Who say in their heart, 'The Lord will not do good, Nor will He do evil.' 
 
 ###### 13 
 Therefore their goods shall become booty, And their houses a desolation; They shall build houses, but not inhabit _them;_ They shall plant vineyards, but not drink their wine." 

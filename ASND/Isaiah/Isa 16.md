@@ -40,7 +40,7 @@ next: ['Isa 17']
 
 
 
-Ang mga taga-Moab na nagsitakas sa Sela, na isang bayan sa ilang ay nagpadala ng mga batang tupa bilang regalo sa hari ng Jerusalem.[^a] 
+Ang mga taga-Moab na nagsitakas sa Sela, na isang bayan sa ilang ay nagpadala ng mga batang tupa bilang regalo sa hari ng Jerusalem. 
 
 
 
@@ -337,7 +337,7 @@ Kaya umiiyak ako tulad ng mga taga-Jazer, dahil sa ubasan ng Sibma. Iniiyakan ko
 
 
 
-Naglaho ang kagalakan nila at kasayahan sa kanilang mga ubasan. Wala nang umaawit o humihiyaw sa mga ubasan. Wala na ring pumipisa ng ubas para gawing alak. Pinatigil na ng Panginoon[^b] ang kanilang hiyawan. 
+Naglaho ang kagalakan nila at kasayahan sa kanilang mga ubasan. Wala nang umaawit o humihiyaw sa mga ubasan. Wala na ring pumipisa ng ubas para gawing alak. Pinatigil na ng Panginoon ang kanilang hiyawan. 
 
 
 
@@ -403,7 +403,7 @@ Kaya nalulungkot ako sa sinapit ng Moab na katulad ng <i class="trans-change">ma
 
 
 
-Mapapagod lang ang mga taga-Moab sa kababalik sa kanilang mga sambahan sa matataas na lugar.[^c] At wala ring kabuluhan ang kanilang pagpunta nila sa templo para manalangin. 
+Mapapagod lang ang mga taga-Moab sa kababalik sa kanilang mga sambahan sa matataas na lugar. At wala ring kabuluhan ang kanilang pagpunta nila sa templo para manalangin. 
 
 
 

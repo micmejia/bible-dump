@@ -40,7 +40,7 @@ next: ['Isa 25']
 
 
 
-Makinig kayo! Wawasakin ng Panginoon ang mundo[^a] hanggang sa hindi na ito mapakinabangan at pangangalatin niya ang mga mamamayan nito. 
+Makinig kayo! Wawasakin ng Panginoon ang mundo hanggang sa hindi na ito mapakinabangan at pangangalatin niya ang mga mamamayan nito. 
 
 
 
@@ -502,7 +502,7 @@ Ang mga matitirang tao ay sisigaw sa kaligayahan. Ang mga nasa kanluran ay magpa
 
 
 
-Kaya nararapat ding purihin ng mga tao sa silangan at ng mga lugar na malapit sa dagat[^b] ang Panginoon, ang Dios ng Israel. 
+Kaya nararapat ding purihin ng mga tao sa silangan at ng mga lugar na malapit sa dagat ang Panginoon, ang Dios ng Israel. 
 
 
 
@@ -700,7 +700,7 @@ At magpapasuray-suray ito na parang lasing at parang kubong gumagalaw-galaw sa i
 
 
 
-Sa araw na iyon, parurusahan ng Panginoon ang mga makapangyarihang nilalang sa langit,[^c] pati ang mga hari rito sa mundo. 
+Sa araw na iyon, parurusahan ng Panginoon ang mga makapangyarihang nilalang sa langit, pati ang mga hari rito sa mundo. 
 
 
 

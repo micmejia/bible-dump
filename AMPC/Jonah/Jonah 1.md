@@ -27,7 +27,7 @@ next: ['Jonah 2']
 
 
 
-Now the word of the Lord came to [^a]Jonah son of Amittai, saying, 
+Now the word of the Lord came to Jonah son of Amittai, saying, 
 
 
 
@@ -48,7 +48,7 @@ Now the word of the Lord came to [^a]Jonah son of Amittai, saying,
 
 
 
-Arise, go to [^b]Nineveh, that great city, and proclaim against it, for their wickedness has come up before Me. 
+Arise, go to Nineveh, that great city, and proclaim against it, for their wickedness has come up before Me. 
 
 
 

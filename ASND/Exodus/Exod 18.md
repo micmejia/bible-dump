@@ -40,7 +40,7 @@ next: ['Exod 19']
 
 
 
-Nabalitaan ni Jetro, na pari ng Midian at biyenan ni Moises, ang lahat ng ginawa ng Dios kay Moises at sa mga mamamayan niyang Israelita. Nabalitaan niya kung paanong inilabas ng Panginoon ang mga Israelita sa Egipto. ###### 2-3 Pinauwi noon ni Moises kay Jetro na kanyang biyenan ang asawa niyang si Zipora at ang dalawang anak nilang lalaki. Ang pangalan ng panganay ay Gershom,[^a] dahil nang ipinanganak siya, sinabi ni Moises, "Dayuhan ako sa ibang lupain." 
+Nabalitaan ni Jetro, na pari ng Midian at biyenan ni Moises, ang lahat ng ginawa ng Dios kay Moises at sa mga mamamayan niyang Israelita. Nabalitaan niya kung paanong inilabas ng Panginoon ang mga Israelita sa Egipto. ###### 2-3 Pinauwi noon ni Moises kay Jetro na kanyang biyenan ang asawa niyang si Zipora at ang dalawang anak nilang lalaki. Ang pangalan ng panganay ay Gershom, dahil nang ipinanganak siya, sinabi ni Moises, "Dayuhan ako sa ibang lupain." 
 
 
 
@@ -73,7 +73,7 @@ Nabalitaan ni Jetro, na pari ng Midian at biyenan ni Moises, ang lahat ng ginawa
 
 
 
-Ang pangalan ng pangalawa ay Eliezer,[^b] dahil nang ipinanganak siya, sinabi ni Moises, "Ang Dios ng aking ama[^c] ang tumutulong sa akin. Iniligtas niya ako sa espada ng Faraon." 
+Ang pangalan ng pangalawa ay Eliezer, dahil nang ipinanganak siya, sinabi ni Moises, "Ang Dios ng aking ama ang tumutulong sa akin. Iniligtas niya ako sa espada ng Faraon." 
 
 
 

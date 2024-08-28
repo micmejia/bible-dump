@@ -172,7 +172,7 @@ Dinala niya sa gitna si Aaron at ang mga anak niyang lalaki at silaʼy pinaligua
 
 
 
-Ipinasuot niya kay Aaron ang damit <i class="trans-change">bilang punong pari_: ang damit-panloob, ang sinturon, ang damit-panlabas, at ang espesyal na damit[^a] at binigkisang mabuti ng hinabing sinturon na maganda ang pagkakagawa. 
+Ipinasuot niya kay Aaron ang damit <i class="trans-change">bilang punong pari_: ang damit-panloob, ang sinturon, ang damit-panlabas, at ang espesyal na damit at binigkisang mabuti ng hinabing sinturon na maganda ang pagkakagawa. 
 
 
 
@@ -205,7 +205,7 @@ Ipinasuot niya kay Aaron ang damit <i class="trans-change">bilang punong pari_: 
 
 
 
-Ipinalagay din ni Moises ang isang lalagyan sa dibdib at doon inilagay ang "Urim" at "Thummim".[^b] 
+Ipinalagay din ni Moises ang isang lalagyan sa dibdib at doon inilagay ang "Urim" at "Thummim". 
 
 
 
@@ -799,7 +799,7 @@ Kinuha rin ni Moises ang pitso ng tupa at itinaas sa Panginoon bilang handog na 
 
 
 
-Pagkatapos, kumuha si Moises ng banal na langis[^c] at ng dugo roon sa altar at winisikan niya si Aaron at ang mga anak niya pati na ang kanilang mga damit. Sa ganitong paraan niya sila inihandog pati ang kanilang mga damit sa Panginoon. 
+Pagkatapos, kumuha si Moises ng banal na langis at ng dugo roon sa altar at winisikan niya si Aaron at ang mga anak niya pati na ang kanilang mga damit. Sa ganitong paraan niya sila inihandog pati ang kanilang mga damit sa Panginoon. 
 
 
 

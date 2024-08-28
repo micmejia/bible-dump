@@ -532,7 +532,7 @@ Behold, you [idols] are nothing, and your work is nothing! The worshiper who cho
 
 
 
-I have raised up _and_ impelled to action one from the north [^a][Cyrus], and he comes; from the rising of the sun he calls upon My name [recognizing that his victories have been granted to him by Me]. And he shall tread upon rulers _and_ deputies as upon mortar and as the potter treads clay. [He comes with the suddenness of a comet, but none of the idol oracles of the nations has anticipated it.] 
+I have raised up _and_ impelled to action one from the north [Cyrus], and he comes; from the rising of the sun he calls upon My name [recognizing that his victories have been granted to him by Me]. And he shall tread upon rulers _and_ deputies as upon mortar and as the potter treads clay. [He comes with the suddenness of a comet, but none of the idol oracles of the nations has anticipated it.] 
 
 
 

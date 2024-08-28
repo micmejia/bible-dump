@@ -15,10 +15,10 @@ James, a bondservant of God and of the Lord Jesus Christ, To the twelve tribes w
 My brethren, count it all joy when you fall into various trials, 
 
 ###### 3 
-knowing that the testing of your faith produces [^a]patience. 
+knowing that the testing of your faith produces patience. 
 
 ###### 4 
-But let patience have _its_ perfect work, that you may be [^b]perfect and complete, lacking nothing. 
+But let patience have _its_ perfect work, that you may be perfect and complete, lacking nothing. 
 
 ###### 5 
 If any of you lacks wisdom, let him ask of God, who gives to all liberally and without reproach, and it will be given to him. 
@@ -63,13 +63,13 @@ Every good gift and every perfect gift is from above, and comes down from the Fa
 Of His own will He brought us forth by the word of truth, that we might be a kind of firstfruits of His creatures. ## Qualities Needed in Trials 
 
 ###### 19 
-[^c]So then, my beloved brethren, let every man be swift to hear, slow to speak, slow to wrath; 
+So then, my beloved brethren, let every man be swift to hear, slow to speak, slow to wrath; 
 
 ###### 20 
 for the wrath of man does not produce the righteousness of God. ## Doers--Not Hearers Only 
 
 ###### 21 
-Therefore lay aside all filthiness and [^d]overflow of wickedness, and receive with meekness the implanted word, which is able to save your souls. 
+Therefore lay aside all filthiness and overflow of wickedness, and receive with meekness the implanted word, which is able to save your souls. 
 
 ###### 22 
 But be doers of the word, and not hearers only, deceiving yourselves. 
@@ -84,7 +84,7 @@ for he observes himself, goes away, and immediately forgets what kind of man he 
 But he who looks into the perfect law of liberty and continues _in it,_ and is not a forgetful hearer but a doer of the work, this one will be blessed in what he does. 
 
 ###### 26 
-If anyone [^e]among you thinks he is religious, and does not bridle his tongue but deceives his own heart, this one's religion _is_ useless. 
+If anyone among you thinks he is religious, and does not bridle his tongue but deceives his own heart, this one's religion _is_ useless. 
 
 ###### 27 
 Pure and undefiled religion before God and the Father is this: to visit orphans and widows in their trouble, _and_ to keep oneself unspotted from the world.

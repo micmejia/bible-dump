@@ -105,7 +105,7 @@ Nagsalita ang Panginoon kay Jonas na anak ni Amitai. Sinabi niya,
 
 
 
-Pero tumakas agad sa Panginoon[^a] si Jonas at nagpasyang pumunta sa Tarshish. Pumunta siya sa Jopa at nakakita siya roon ng barkong paalis papuntang Tarshish. Kaya nagbayad siya ng pamasahe at sumakay sa barko kasama ng mga tripulante at ng iba pang mga pasahero upang tumakas sa Panginoon. 
+Pero tumakas agad sa Panginoon si Jonas at nagpasyang pumunta sa Tarshish. Pumunta siya sa Jopa at nakakita siya roon ng barkong paalis papuntang Tarshish. Kaya nagbayad siya ng pamasahe at sumakay sa barko kasama ng mga tripulante at ng iba pang mga pasahero upang tumakas sa Panginoon. 
 
 
 
@@ -303,7 +303,7 @@ Kaya kinausap nila siya, "Gusto naming malaman kung sino ang dahilan ng pagdatin
 
 
 
-Sumagot si Jonas, "Ako ay Hebreo at sumasamba sa Panginoon, ang Dios sa langit[^b] na lumikha ng dagat at ng lupa." 
+Sumagot si Jonas, "Ako ay Hebreo at sumasamba sa Panginoon, ang Dios sa langit na lumikha ng dagat at ng lupa." 
 
 
 

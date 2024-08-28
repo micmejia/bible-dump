@@ -73,7 +73,7 @@ Totoo ang kasabihan na ang nagnanais na mamuno sa iglesya ay nagnanais ng mabuti
 
 
 
-Kailangan na ang namumuno ay walang kapintasan,[^a] iisa ang asawa, marunong magpigil sa sarili, marunong magpasya kung ano ang nararapat, kagalang-galang, bukas ang tahanan sa mga tao, at magaling magturo. 
+Kailangan na ang namumuno ay walang kapintasan, iisa ang asawa, marunong magpigil sa sarili, marunong magpasya kung ano ang nararapat, kagalang-galang, bukas ang tahanan sa mga tao, at magaling magturo. 
 
 
 
@@ -271,7 +271,7 @@ Bukod pa rito, kailangang iginagalang siya ng mga hindi miyembro ng iglesya para
 
 
 
-Ganoon din naman sa mga tagapaglingkod sa iglesya:[^b] kailangang kagalang-galang sila, tapat sa kanilang salita, hindi lasenggo, at hindi sakim. 
+Ganoon din naman sa mga tagapaglingkod sa iglesya: kailangang kagalang-galang sila, tapat sa kanilang salita, hindi lasenggo, at hindi sakim. 
 
 
 

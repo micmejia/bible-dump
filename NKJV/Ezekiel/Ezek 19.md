@@ -28,19 +28,19 @@ The nations also heard of him; He was trapped in their pit, And they brought him
 He roved among the lions, And became a young lion; He learned to catch prey; He devoured men. 
 
 ###### 7 
-[^a]He knew their desolate places, And laid waste their cities; The land with its fullness was desolated By the noise of his roaring. 
+He knew their desolate places, And laid waste their cities; The land with its fullness was desolated By the noise of his roaring. 
 
 ###### 8 
 Then the nations set against him from the provinces on every side, And spread their net over him; He was trapped in their pit. 
 
 ###### 9 
-They put him in a cage with [^b]chains, And brought him to the king of Babylon; They brought him in nets, That his voice should no longer be heard on the mountains of Israel. 
+They put him in a cage with chains, And brought him to the king of Babylon; They brought him in nets, That his voice should no longer be heard on the mountains of Israel. 
 
 ###### 10 
-'Your mother _was_ like a vine in your [^c]bloodline, Planted by the waters, Fruitful and full of branches Because of many waters. 
+'Your mother _was_ like a vine in your bloodline, Planted by the waters, Fruitful and full of branches Because of many waters. 
 
 ###### 11 
-She had strong branches for scepters of rulers. She towered in stature above the thick branches, And was seen in her height amid the [^d]dense foliage. 
+She had strong branches for scepters of rulers. She towered in stature above the thick branches, And was seen in her height amid the dense foliage. 
 
 ###### 12 
 But she was plucked up in fury, She was cast down to the ground, And the east wind dried her fruit. Her strong branches were broken and withered; The fire consumed them. 

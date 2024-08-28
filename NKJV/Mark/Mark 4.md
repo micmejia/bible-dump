@@ -19,7 +19,7 @@ Then He taught them many things by parables, and said to them in His teaching:
 "Listen! Behold, a sower went out to sow. 
 
 ###### 4 
-And it happened, as he sowed, _that_ some _seed_ fell by the wayside; and the birds [^a]of the air came and devoured it. 
+And it happened, as he sowed, _that_ some _seed_ fell by the wayside; and the birds of the air came and devoured it. 
 
 ###### 5 
 Some fell on stony ground, where it did not have much earth; and immediately it sprang up because it had no depth of earth. 
@@ -28,19 +28,19 @@ Some fell on stony ground, where it did not have much earth; and immediately it 
 But when the sun was up it was scorched, and because it had no root it withered away. 
 
 ###### 7 
-And some _seed_ fell among thorns; and the thorns grew up and choked it, and it yielded no [^b]crop. 
+And some _seed_ fell among thorns; and the thorns grew up and choked it, and it yielded no crop. 
 
 ###### 8 
 But other _seed_ fell on good ground and yielded a crop that sprang up, increased and produced: some thirtyfold, some sixty, and some a hundred." 
 
 ###### 9 
-And He said [^c]to them, "He who has ears to hear, let him hear!" ## The Purpose of Parables 
+And He said to them, "He who has ears to hear, let him hear!" ## The Purpose of Parables 
 
 ###### 10 
 But when He was alone, those around Him with the twelve asked Him about the parable. 
 
 ###### 11 
-And He said to them, "To you it has been given to know the [^d]mystery of the kingdom of God; but to those who are outside, all things come in parables, 
+And He said to them, "To you it has been given to know the mystery of the kingdom of God; but to those who are outside, all things come in parables, 
 
 ###### 12 
 so that 'Seeing they may see and not perceive, And hearing they may hear and not understand; Lest they should turn, And _their_ sins be forgiven them.' " ## The Parable of the Sower Explained 
@@ -67,7 +67,7 @@ Now these are the ones sown among thorns; _they are_ the ones who hear the word,
 and the cares of this world, the deceitfulness of riches, and the desires for other things entering in choke the word, and it becomes unfruitful. 
 
 ###### 20 
-But these are the ones sown on good ground, those who hear the word, [^e]accept _it,_ and bear fruit: some thirtyfold, some sixty, and some a hundred." ## Light Under a Basket 
+But these are the ones sown on good ground, those who hear the word, accept _it,_ and bear fruit: some thirtyfold, some sixty, and some a hundred." ## Light Under a Basket 
 
 ###### 21 
 Also He said to them, "Is a lamp brought to be put under a basket or under a bed? Is it not to be set on a lampstand? 
@@ -85,7 +85,7 @@ Then He said to them, "Take heed what you hear. With the same measure you use, i
 For whoever has, to him more will be given; but whoever does not have, even what he has will be taken away from him." ## The Parable of the Growing Seed 
 
 ###### 26 
-And He said, "The kingdom of God is as if a man should [^f]scatter seed on the ground, 
+And He said, "The kingdom of God is as if a man should scatter seed on the ground, 
 
 ###### 27 
 and should sleep by night and rise by day, and the seed should sprout and grow, he himself does not know how. 
@@ -124,10 +124,10 @@ And a great windstorm arose, and the waves beat into the boat, so that it was al
 But He was in the stern, asleep on a pillow. And they awoke Him and said to Him, "Teacher, do You not care that we are perishing?" 
 
 ###### 39 
-Then He arose and rebuked the wind, and said to the sea, "Peace,[^g] be still!" And the wind ceased and there was a great calm. 
+Then He arose and rebuked the wind, and said to the sea, "Peace, be still!" And the wind ceased and there was a great calm. 
 
 ###### 40 
-But He said to them, "Why are you so fearful? How[^h] _is it_ that you have no faith?" 
+But He said to them, "Why are you so fearful? How _is it_ that you have no faith?" 
 
 ###### 41 
 And they feared exceedingly, and said to one another, "Who can this be, that even the wind and the sea obey Him!"

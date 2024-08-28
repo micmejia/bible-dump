@@ -49,7 +49,7 @@ For the Lord will have mercy on Jacob [the captive Jews in Babylon] and will aga
 
 
 
-And the peoples [of Babylonia] shall [^a]take them and bring them to their own country [of Judea] _and_ help restore them. And the house of Israel will possess [the foreigners who prefer to stay with] them in the land of the Lord as male and female servants; and they will take captive [not by physical but by moral might] those whose captives they have been, and they will rule over their [former] oppressors. 
+And the peoples [of Babylonia] shall take them and bring them to their own country [of Judea] _and_ help restore them. And the house of Israel will possess [the foreigners who prefer to stay with] them in the land of the Lord as male and female servants; and they will take captive [not by physical but by moral might] those whose captives they have been, and they will rule over their [former] oppressors. 
 
 
 
@@ -259,7 +259,7 @@ Your pomp _and_ magnificence are brought down to Sheol (the underworld), along w
 
 
 
-How have you fallen from heaven, O [^b]light-bringer _and_ daystar, son of the morning! How you have been cut down to the ground, you who weakened _and_ laid low the nations [O blasphemous, satanic king of Babylon!] 
+How have you fallen from heaven, O light-bringer _and_ daystar, son of the morning! How you have been cut down to the ground, you who weakened _and_ laid low the nations [O blasphemous, satanic king of Babylon!] 
 
 
 
@@ -490,7 +490,7 @@ And I will rise up against them, says the Lord of hosts, and cut off from Babylo
 
 
 
-I will also make it a possession of the hedgehog _and_ porcupine, and of [^c]marshes _and_ pools of water, and I will sweep it with the broom of destruction, says the Lord of hosts. 
+I will also make it a possession of the hedgehog _and_ porcupine, and of marshes _and_ pools of water, and I will sweep it with the broom of destruction, says the Lord of hosts. 
 
 
 
@@ -532,7 +532,7 @@ The Lord of hosts has sworn, saying, Surely, as I have thought _and_ planned, so
 
 
 
-That I will break the Assyrian in My land, and upon My mountains I will tread him underfoot. Then shall the [Assyrian's] [^d]yoke depart from [the people of Judah], and his burden depart from their shoulders. 
+That I will break the Assyrian in My land, and upon My mountains I will tread him underfoot. Then shall the [Assyrian's] yoke depart from [the people of Judah], and his burden depart from their shoulders. 
 
 
 

@@ -217,7 +217,7 @@ Take no gold nor silver nor [even] copper money in your purses (belts);
 
 
 
-And do not take a provision bag _or_ a [^a]wallet for a collection bag for your journey, nor two undergarments, nor sandals, nor a staff; for the workman deserves his support (his living, his food). 
+And do not take a provision bag _or_ a wallet for a collection bag for your journey, nor two undergarments, nor sandals, nor a staff; for the workman deserves his support (his living, his food). 
 
 
 
@@ -280,7 +280,7 @@ As you go into the house, give your greetings _and_ wish it well.
 
 
 
-Then if indeed that house is deserving, let come upon it your peace [that is, [^b]freedom from all the distresses that are experienced as the result of sin]. But if it is not deserving, let your peace return to you. 
+Then if indeed that house is deserving, let come upon it your peace [that is, freedom from all the distresses that are experienced as the result of sin]. But if it is not deserving, let your peace return to you. 
 
 
 
@@ -343,7 +343,7 @@ Truly I tell you, it shall be more tolerable on the day of judgment for the land
 
 
 
-Behold, I am sending you out like sheep in the midst of wolves; be [^c]wary _and_ wise as serpents, and be innocent (harmless, guileless, and [^d]without falsity) as doves. 
+Behold, I am sending you out like sheep in the midst of wolves; be wary _and_ wise as serpents, and be innocent (harmless, guileless, and without falsity) as doves. 
 
 
 
@@ -364,7 +364,7 @@ Behold, I am sending you out like sheep in the midst of wolves; be [^c]wary _and
 
 
 
-Be on guard against men [whose [^e]way or nature is to act in opposition to God]; for they will deliver you up to councils and flog you in their synagogues, 
+Be on guard against men [whose way or nature is to act in opposition to God]; for they will deliver you up to councils and flog you in their synagogues, 
 
 
 
@@ -406,7 +406,7 @@ And you will be brought before governors and kings for My sake, as a witness to 
 
 
 
-But when they deliver you up, do not be anxious about how _or_ what you are to speak; for what you are to say will be given you in that very hour _and_ [^f]moment, 
+But when they deliver you up, do not be anxious about how _or_ what you are to speak; for what you are to say will be given you in that very hour _and_ moment, 
 
 
 
@@ -469,7 +469,7 @@ Brother will deliver up brother to death, and the father his child; and children
 
 
 
-And you will be hated by all for My name's sake, but he who perseveres _and_ endures to the end will be saved [[^g]from spiritual disease and death in the world to come]. 
+And you will be hated by all for My name's sake, but he who perseveres _and_ endures to the end will be saved [from spiritual disease and death in the world to come]. 
 
 
 
@@ -490,7 +490,7 @@ And you will be hated by all for My name's sake, but he who perseveres _and_ end
 
 
 
-When they persecute you in one town [that is, pursue you in a manner that would injure you and cause you to suffer because of your belief], flee to another town; for truly I tell you, you will not have gone through all the towns of Israel before [^h] the Son of Man comes. 
+When they persecute you in one town [that is, pursue you in a manner that would injure you and cause you to suffer because of your belief], flee to another town; for truly I tell you, you will not have gone through all the towns of Israel before  the Son of Man comes. 
 
 
 
@@ -532,7 +532,7 @@ A disciple is not above his teacher, nor is a servant _or_ slave above his maste
 
 
 
-It is sufficient for the disciple to be like his teacher, and the servant _or_ slave like his master. If they have called the Master of the house Beelzebub [[^i]master of the dwelling], how much more will they speak evil of those of His household. 
+It is sufficient for the disciple to be like his teacher, and the servant _or_ slave like his master. If they have called the Master of the house Beelzebub [master of the dwelling], how much more will they speak evil of those of His household. 
 
 
 
@@ -616,7 +616,7 @@ And do not be afraid of those who kill the body but cannot kill the soul; but ra
 
 
 
-Are not two [^j]little sparrows sold for a penny? And yet not one of them will fall to the ground without your Father's leave (consent) _and_ notice. 
+Are not two little sparrows sold for a penny? And yet not one of them will fall to the ground without your Father's leave (consent) _and_ notice. 
 
 
 
@@ -679,7 +679,7 @@ Fear not, then; you are of more value than many sparrows.
 
 
 
-Therefore, everyone who acknowledges Me before men _and_ confesses Me [[^k]out of a state of oneness with Me], I will also acknowledge him before My Father Who is in heaven _and_ [^l]confess [that I am abiding in] him. 
+Therefore, everyone who acknowledges Me before men _and_ confesses Me [out of a state of oneness with Me], I will also acknowledge him before My Father Who is in heaven _and_ confess [that I am abiding in] him. 
 
 
 
@@ -742,7 +742,7 @@ Do not think that I have come to bring peace upon the earth; I have not come to 
 
 
 
-For I have come to part asunder a man from his father, and a daughter from her mother, and a [^m]newly married wife from her mother-in-law-- 
+For I have come to part asunder a man from his father, and a daughter from her mother, and a newly married wife from her mother-in-law-- 
 
 
 
@@ -784,7 +784,7 @@ And a man's foes will be they of his own household.
 
 
 
-He who loves [and [^n]takes more pleasure in] father or mother more than [in] Me is not worthy of Me; and he who loves [and takes more pleasure in] son or daughter more than [in] Me is not worthy of Me; 
+He who loves [and takes more pleasure in] father or mother more than [in] Me is not worthy of Me; and he who loves [and takes more pleasure in] son or daughter more than [in] Me is not worthy of Me; 
 
 
 
@@ -805,7 +805,7 @@ He who loves [and [^n]takes more pleasure in] father or mother more than [in] Me
 
 
 
-And he who does not take up his cross and follow Me [[^o]cleave steadfastly to Me, conforming wholly to My example in living and, if need be, in dying also] is not worthy of Me. 
+And he who does not take up his cross and follow Me [cleave steadfastly to Me, conforming wholly to My example in living and, if need be, in dying also] is not worthy of Me. 
 
 
 
@@ -826,7 +826,7 @@ And he who does not take up his cross and follow Me [[^o]cleave steadfastly to M
 
 
 
-Whoever finds his [[^p]lower] life will lose it [the higher life], and whoever loses his [lower] life on My account will find it [the higher life]. 
+Whoever finds his [lower] life will lose it [the higher life], and whoever loses his [lower] life on My account will find it [the higher life]. 
 
 
 

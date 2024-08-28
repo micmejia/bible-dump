@@ -31,7 +31,7 @@ But we sailed away from Philippi after the Days of Unleavened Bread, and in five
 Now on the first _day_ of the week, when the disciples came together to break bread, Paul, ready to depart the next day, spoke to them and continued his message until midnight. 
 
 ###### 8 
-There were many lamps in the upper room where [^a]they were gathered together. 
+There were many lamps in the upper room where they were gathered together. 
 
 ###### 9 
 And in a window sat a certain young man named Eutychus, who was sinking into a deep sleep. He was overcome by sleep; and as Paul continued speaking, he fell down from the third story and was taken up dead. 
@@ -46,7 +46,7 @@ Now when he had come up, had broken bread and eaten, and talked a long while, ev
 And they brought the young man in alive, and they were not a little comforted. ## From Troas to Miletus 
 
 ###### 13 
-Then we went ahead to the ship and sailed to Assos, there intending to take Paul on board; for so he had [^b]given orders, intending himself to go on foot. 
+Then we went ahead to the ship and sailed to Assos, there intending to take Paul on board; for so he had given orders, intending himself to go on foot. 
 
 ###### 14 
 And when he met us at Assos, we took him on board and came to Mitylene. 
@@ -79,25 +79,25 @@ And see, now I go bound in the spirit to Jerusalem, not knowing the things that 
 except that the Holy Spirit testifies in every city, saying that chains and tribulations await me. 
 
 ###### 24 
-[^c]But none of these things move me; nor do I count my life dear to myself, so that I may finish my [^d]race with joy, and the ministry which I received from the Lord Jesus, to testify to the gospel of the grace of God. 
+But none of these things move me; nor do I count my life dear to myself, so that I may finish my race with joy, and the ministry which I received from the Lord Jesus, to testify to the gospel of the grace of God. 
 
 ###### 25 
 "And indeed, now I know that you all, among whom I have gone preaching the kingdom of God, will see my face no more. 
 
 ###### 26 
-Therefore I testify to you this day that I _am_ innocent[^e] of the blood of all _men._ 
+Therefore I testify to you this day that I _am_ innocent of the blood of all _men._ 
 
 ###### 27 
-For I have not [^f]shunned to declare to you the whole counsel of God. 
+For I have not shunned to declare to you the whole counsel of God. 
 
 ###### 28 
-Therefore take heed to yourselves and to all the flock, among which the Holy Spirit has made you overseers, to shepherd the church [^g]of God which He purchased with His own blood. 
+Therefore take heed to yourselves and to all the flock, among which the Holy Spirit has made you overseers, to shepherd the church of God which He purchased with His own blood. 
 
 ###### 29 
 For I know this, that after my departure savage wolves will come in among you, not sparing the flock. 
 
 ###### 30 
-Also from among yourselves men will rise up, speaking [^h]perverse things, to draw away the disciples after themselves. 
+Also from among yourselves men will rise up, speaking perverse things, to draw away the disciples after themselves. 
 
 ###### 31 
 Therefore watch, and remember that for three years I did not cease to warn everyone night and day with tears. 
@@ -109,7 +109,7 @@ Therefore watch, and remember that for three years I did not cease to warn every
 I have coveted no one's silver or gold or apparel. 
 
 ###### 34 
-[^i]Yes, you yourselves know that these hands have provided for my necessities, and for those who were with me. 
+Yes, you yourselves know that these hands have provided for my necessities, and for those who were with me. 
 
 ###### 35 
 I have shown you in every way, by laboring like this, that you must support the weak. And remember the words of the Lord Jesus, that He said, 'It is more blessed to give than to receive.' " 
@@ -118,7 +118,7 @@ I have shown you in every way, by laboring like this, that you must support the 
 And when he had said these things, he knelt down and prayed with them all. 
 
 ###### 37 
-Then they all wept [^j]freely, and fell on Paul's neck and kissed him, 
+Then they all wept freely, and fell on Paul's neck and kissed him, 
 
 ###### 38 
 sorrowing most of all for the words which he spoke, that they would see his face no more. And they accompanied him to the ship.

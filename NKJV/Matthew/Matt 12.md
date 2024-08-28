@@ -22,7 +22,7 @@ But He said to them, "Have you not read what David did when he was hungry, he an
 how he entered the house of God and ate the showbread which was not lawful for him to eat, nor for those who were with him, but only for the priests? 
 
 ###### 5 
-Or have you not read in the law that on the Sabbath the priests in the temple [^a]profane the Sabbath, and are blameless? 
+Or have you not read in the law that on the Sabbath the priests in the temple profane the Sabbath, and are blameless? 
 
 ###### 6 
 Yet I say to you that in this place there is _One_ greater than the temple. 
@@ -31,7 +31,7 @@ Yet I say to you that in this place there is _One_ greater than the temple.
 But if you had known what _this_ means, 'I desire mercy and not sacrifice,' you would not have condemned the guiltless. 
 
 ###### 8 
-For the Son of Man is Lord [^b]even of the Sabbath." ## Healing on the Sabbath 
+For the Son of Man is Lord even of the Sabbath." ## Healing on the Sabbath 
 
 ###### 9 
 Now when He had departed from there, He went into their synagogue. 
@@ -52,7 +52,7 @@ Then He said to the man, "Stretch out your hand." And he stretched _it_ out, and
 Then the Pharisees went out and plotted against Him, how they might destroy Him. ## Behold, My Servant 
 
 ###### 15 
-But when Jesus knew _it,_ He withdrew from there. And great [^c]multitudes followed Him, and He healed them all. 
+But when Jesus knew _it,_ He withdrew from there. And great multitudes followed Him, and He healed them all. 
 
 ###### 16 
 Yet He warned them not to make Him known, 
@@ -73,13 +73,13 @@ A bruised reed He will not break, And smoking flax He will not quench, Till He s
 And in His name Gentiles will trust." ## A House Divided Cannot Stand 
 
 ###### 22 
-Then one was brought to Him who was demon-possessed, blind and mute; and He healed him, so that the [^d]blind and mute man both spoke and saw. 
+Then one was brought to Him who was demon-possessed, blind and mute; and He healed him, so that the blind and mute man both spoke and saw. 
 
 ###### 23 
 And all the multitudes were amazed and said, "Could this be the Son of David?" 
 
 ###### 24 
-Now when the Pharisees heard _it_ they said, "This _fellow_ does not cast out demons except by [^e]Beelzebub, the ruler of the demons." 
+Now when the Pharisees heard _it_ they said, "This _fellow_ does not cast out demons except by Beelzebub, the ruler of the demons." 
 
 ###### 25 
 But Jesus knew their thoughts, and said to them: "Every kingdom divided against itself is brought to desolation, and every city or house divided against itself will not stand. 
@@ -109,10 +109,10 @@ Anyone who speaks a word against the Son of Man, it will be forgiven him; but wh
 "Either make the tree good and its fruit good, or else make the tree bad and its fruit bad; for a tree is known by _its_ fruit. 
 
 ###### 34 
-Brood[^f] of vipers! How can you, being evil, speak good things? For out of the abundance of the heart the mouth speaks. 
+Brood of vipers! How can you, being evil, speak good things? For out of the abundance of the heart the mouth speaks. 
 
 ###### 35 
-A good man out of the good treasure [^g]of his heart brings forth good things, and an evil man out of the evil treasure brings forth evil things. 
+A good man out of the good treasure of his heart brings forth good things, and an evil man out of the evil treasure brings forth evil things. 
 
 ###### 36 
 But I say to you that for every idle word men may speak, they will give account of it in the day of judgment. 

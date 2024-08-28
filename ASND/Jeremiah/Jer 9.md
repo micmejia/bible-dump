@@ -370,7 +370,7 @@ Hindi baʼt nararapat ko silang parusahan? Hindi ba dapat na paghigantihan ko an
 
 
 
-<i class="trans-change">Dahil sinabi ng Panginoon,_ "Wawasakin ko ang Jerusalem, at magiging tirahan ito ng mga asong-gubat.[^a] Gagawin kong parang ilang ang mga bayan ng Juda at wala nang titira rito." 
+<i class="trans-change">Dahil sinabi ng Panginoon,_ "Wawasakin ko ang Jerusalem, at magiging tirahan ito ng mga asong-gubat. Gagawin kong parang ilang ang mga bayan ng Juda at wala nang titira rito." 
 
 
 
@@ -601,7 +601,7 @@ Sinabi pa ng Panginoong Makapangyarihan, "Isipin nʼyo kung ano ang mga nangyaya
 
 
 
-Pagmadaliin silang pumunta para iyakan ang mga mamamayan ko hanggang sa dumaloy ang kanilang luha.[^b] 
+Pagmadaliin silang pumunta para iyakan ang mga mamamayan ko hanggang sa dumaloy ang kanilang luha. 
 
 
 
@@ -634,7 +634,7 @@ Pagmadaliin silang pumunta para iyakan ang mga mamamayan ko hanggang sa dumaloy 
 
 
 
-Pakinggan ang mga pag-iyak sa Jerusalem.[^c] <i class="trans-change">Sinasabi ng mga tao,_ 'Nawasak tayo! Nakakahiya ang nangyaring ito sa atin! Kailangang iwan na natin ang ating lupain dahil nawasak na ang ating mga tahanan!' " 
+Pakinggan ang mga pag-iyak sa Jerusalem. <i class="trans-change">Sinasabi ng mga tao,_ 'Nawasak tayo! Nakakahiya ang nangyaring ito sa atin! Kailangang iwan na natin ang ating lupain dahil nawasak na ang ating mga tahanan!' " 
 
 
 
@@ -865,4 +865,4 @@ Kung gusto ng sinuman na magmalaki, dapat lang niyang ipagmalaki na kilala niya 
 
 
 
-ang mga taga-Egipto, Juda, Edom, Ammon, Moab, at ang lahat ng nakatira sa malalayong ilang.[^d] Ang totoo, lahat ng bansang ito pati na ang mga mamamayan ng Israel ay parang hindi rin mga tinuli."
+ang mga taga-Egipto, Juda, Edom, Ammon, Moab, at ang lahat ng nakatira sa malalayong ilang. Ang totoo, lahat ng bansang ito pati na ang mga mamamayan ng Israel ay parang hindi rin mga tinuli."

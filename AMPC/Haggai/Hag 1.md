@@ -48,7 +48,7 @@ In the second year of Darius king [of Persia], in the sixth month, on the first 
 
 
 
-Thus says the Lord of hosts: These people say, The time is not yet come that the [^a]Lord's house should be rebuilt [although Cyrus had ordered it done eighteen years before]. 
+Thus says the Lord of hosts: These people say, The time is not yet come that the Lord's house should be rebuilt [although Cyrus had ordered it done eighteen years before]. 
 
 
 

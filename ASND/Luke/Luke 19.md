@@ -700,7 +700,7 @@ Lumapit ang isa pang alipin at nagsabi, 'Ito po ang pera ninyo. Binalot ko po sa
 
 
 
-dahil natatakot ako sa inyo. Alam ko kasing mabagsik kayo; kinukuha ninyo ang hindi ninyo pinaghirapan, at inaani ninyo ang hindi ninyo itinanim.'[^a] 
+dahil natatakot ako sa inyo. Alam ko kasing mabagsik kayo; kinukuha ninyo ang hindi ninyo pinaghirapan, at inaani ninyo ang hindi ninyo itinanim.' 
 
 
 
@@ -1261,7 +1261,7 @@ Nang pababa na siya sa Bundok ng mga Olibo at malapit na sa Jerusalem, nagsigawa
 
 
 
-Sinabi nila, "Pinagpala ng Panginoon ang haring kanyang ipinadala.[^b] Mayroon na tayong magandang relasyon[^c] sa Dios. Purihin <i class="trans-change">ang Dios_ sa langit!" 
+Sinabi nila, "Pinagpala ng Panginoon ang haring kanyang ipinadala. Mayroon na tayong magandang relasyon sa Dios. Purihin <i class="trans-change">ang Dios_ sa langit!" 
 
 
 
@@ -1525,7 +1525,7 @@ Lilipulin nila kayo at ang inyong mga anak, at wawasakin nila ang lungsod ninyo.
 
 
 
-Sinabi niya sa kanila, "Sinasabi <i class="trans-change">ng Dios_ sa Kasulatan, 'Ang aking bahay ay bahay-panalanginan.'[^d] Ngunit ginawa ninyong pugad ng mga tulisan!"[^e] 
+Sinabi niya sa kanila, "Sinasabi <i class="trans-change">ng Dios_ sa Kasulatan, 'Ang aking bahay ay bahay-panalanginan.' Ngunit ginawa ninyong pugad ng mga tulisan!" 
 
 
 

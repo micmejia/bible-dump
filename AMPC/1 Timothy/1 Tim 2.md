@@ -322,4 +322,4 @@ And it was not Adam who was deceived, but [the] woman who was deceived _and_ del
 
 
 
-Nevertheless [the sentence put upon women of pain in motherhood does not hinder their souls' salvation, and] they will be saved [eternally] if they continue in faith and love and holiness with self-control, [saved indeed] [^a]through the Childbearing _or_ by the birth of the divine Child.
+Nevertheless [the sentence put upon women of pain in motherhood does not hinder their souls' salvation, and] they will be saved [eternally] if they continue in faith and love and holiness with self-control, [saved indeed] through the Childbearing _or_ by the birth of the divine Child.

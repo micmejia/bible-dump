@@ -535,7 +535,7 @@ Ang anghel na nakikipag-usap sa akin ay may dalang panukat na ginto upang sukati
 
 
 
-Kwadrado ang sukat ng lungsod. Pareho ang haba at ang luwang – 2,400 kilometro.[^a] Ganoon din ang taas nito. 
+Kwadrado ang sukat ng lungsod. Pareho ang haba at ang luwang – 2,400 kilometro. Ganoon din ang taas nito. 
 
 
 
@@ -568,7 +568,7 @@ Kwadrado ang sukat ng lungsod. Pareho ang haba at ang luwang – 2,400 kilomet
 
 
 
-Sinukat din niya ang pader, 64 metro[^b] ang taas nito. (Ang panukat na ginamit ng anghel ay katulad din ng panukat na ginagamit ng tao.) 
+Sinukat din niya ang pader, 64 metro ang taas nito. (Ang panukat na ginamit ng anghel ay katulad din ng panukat na ginagamit ng tao.) 
 
 
 

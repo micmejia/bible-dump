@@ -16,10 +16,10 @@ Now it came to pass, when Jesus had finished all these sayings, _that_ He said t
 "You know that after two days is the Passover, and the Son of Man will be delivered up to be crucified." 
 
 ###### 3 
-Then the chief priests, [^a]the scribes, and the elders of the people assembled at the palace of the high priest, who was called Caiaphas, 
+Then the chief priests, the scribes, and the elders of the people assembled at the palace of the high priest, who was called Caiaphas, 
 
 ###### 4 
-and plotted to take Jesus by [^b]trickery and kill _Him._ 
+and plotted to take Jesus by trickery and kill _Him._ 
 
 ###### 5 
 But they said, "Not during the feast, lest there be an uproar among the people." ## The Anointing at Bethany 
@@ -85,13 +85,13 @@ The Son of Man indeed goes just as it is written of Him, but woe to that man by 
 Then Judas, who was betraying Him, answered and said, "Rabbi, is it I?" He said to him, "You have said it." ## Jesus Institutes the Lord's Supper 
 
 ###### 26 
-And as they were eating, Jesus took bread, [^c]blessed and broke _it,_ and gave _it_ to the disciples and said, "Take, eat; this is My body." 
+And as they were eating, Jesus took bread, blessed and broke _it,_ and gave _it_ to the disciples and said, "Take, eat; this is My body." 
 
 ###### 27 
 Then He took the cup, and gave thanks, and gave _it_ to them, saying, "Drink from it, all of you. 
 
 ###### 28 
-For this is My blood of the [^d]new covenant, which is shed for many for the [^e]remission of sins. 
+For this is My blood of the new covenant, which is shed for many for the remission of sins. 
 
 ###### 29 
 But I say to you, I will not drink of this fruit of the vine from now on until that day when I drink it new with you in My Father's kingdom." 
@@ -100,13 +100,13 @@ But I say to you, I will not drink of this fruit of the vine from now on until t
 And when they had sung a hymn, they went out to the Mount of Olives. ## Jesus Predicts Peter's Denial 
 
 ###### 31 
-Then Jesus said to them, "All of you will be [^f]made to stumble because of Me this night, for it is written: 'I will strike the Shepherd, And the sheep of the flock will be scattered.' 
+Then Jesus said to them, "All of you will be made to stumble because of Me this night, for it is written: 'I will strike the Shepherd, And the sheep of the flock will be scattered.' 
 
 ###### 32 
 But after I have been raised, I will go before you to Galilee." 
 
 ###### 33 
-Peter answered and said to Him, "Even if all are [^g]made to stumble because of You, I will never be made to stumble." 
+Peter answered and said to Him, "Even if all are made to stumble because of You, I will never be made to stumble." 
 
 ###### 34 
 Jesus said to him, "Assuredly, I say to you that this night, before the rooster crows, you will deny Me three times." 
@@ -133,7 +133,7 @@ Then He came to the disciples and found them sleeping, and said to Peter, "What!
 Watch and pray, lest you enter into temptation. The spirit indeed _is_ willing, but the flesh _is_ weak." 
 
 ###### 42 
-Again, a second time, He went away and prayed, saying, "O My Father, [^h]if this cup cannot pass away from Me unless I drink it, Your will be done." 
+Again, a second time, He went away and prayed, saying, "O My Father, if this cup cannot pass away from Me unless I drink it, Your will be done." 
 
 ###### 43 
 And He came and found them asleep again, for their eyes were heavy. 
@@ -142,7 +142,7 @@ And He came and found them asleep again, for their eyes were heavy.
 So He left them, went away again, and prayed the third time, saying the same words. 
 
 ###### 45 
-Then He came to His disciples and said to them, "Are _you_ still sleeping and resting? Behold, the hour [^i]is at hand, and the Son of Man is being betrayed into the hands of sinners. 
+Then He came to His disciples and said to them, "Are _you_ still sleeping and resting? Behold, the hour is at hand, and the Son of Man is being betrayed into the hands of sinners. 
 
 ###### 46 
 Rise, let us be going. See, My betrayer is at hand." ## Betrayal and Arrest in Gethsemane 
@@ -163,7 +163,7 @@ But Jesus said to him, "Friend, why have you come?" Then they came and laid hand
 And suddenly, one of those _who were_ with Jesus stretched out _his_ hand and drew his sword, struck the servant of the high priest, and cut off his ear. 
 
 ###### 52 
-But Jesus said to him, "Put your sword in its place, for all who take the sword will [^j]perish by the sword. 
+But Jesus said to him, "Put your sword in its place, for all who take the sword will perish by the sword. 
 
 ###### 53 
 Or do you think that I cannot now pray to My Father, and He will provide Me with more than twelve legions of angels? 
@@ -184,10 +184,10 @@ And those who had laid hold of Jesus led _Him_ away to Caiaphas the high priest,
 But Peter followed Him at a distance to the high priest's courtyard. And he went in and sat with the servants to see the end. 
 
 ###### 59 
-Now the chief priests, [^k]the elders, and all the council sought false testimony against Jesus to put Him to death, 
+Now the chief priests, the elders, and all the council sought false testimony against Jesus to put Him to death, 
 
 ###### 60 
-[^l]but found none. Even though many false witnesses came forward, they found none. But at last two [^m]false witnesses came forward 
+but found none. Even though many false witnesses came forward, they found none. But at last two false witnesses came forward 
 
 ###### 61 
 and said, "This _fellow_ said, 'I am able to destroy the temple of God and to build it in three days.' " 
@@ -208,7 +208,7 @@ Then the high priest tore his clothes, saying, "He has spoken blasphemy! What fu
 What do you think?" They answered and said, "He is deserving of death." 
 
 ###### 67 
-Then they spat in His face and beat Him; and others struck _Him_ with [^n]the palms of their hands, 
+Then they spat in His face and beat Him; and others struck _Him_ with the palms of their hands, 
 
 ###### 68 
 saying, "Prophesy to us, Christ! Who is the one who struck You?" ## Peter Denies Jesus, and Weeps Bitterly 
@@ -229,7 +229,7 @@ But again he denied with an oath, "I do not know the Man!"
 And a little later those who stood by came up and said to Peter, "Surely you also are _one_ of them, for your speech betrays you." 
 
 ###### 74 
-Then he began to [^o]curse and [^p]swear, _saying,_ "I do not know the Man!" Immediately a rooster crowed. 
+Then he began to curse and swear, _saying,_ "I do not know the Man!" Immediately a rooster crowed. 
 
 ###### 75 
 And Peter remembered the word of Jesus who had said to him, "Before the rooster crows, you will deny Me three times." So he went out and wept bitterly.

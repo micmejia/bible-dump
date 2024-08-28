@@ -28,16 +28,16 @@ _to be_ discreet, chaste, homemakers, good, obedient to their own husbands, that
 Likewise, exhort the young men to be sober-minded, 
 
 ###### 7 
-in all things showing yourself _to be_ a pattern of good works; in doctrine _showing_ integrity, reverence, incorruptibility,[^a] 
+in all things showing yourself _to be_ a pattern of good works; in doctrine _showing_ integrity, reverence, incorruptibility, 
 
 ###### 8 
-sound speech that cannot be condemned, that one who is an opponent may be ashamed, having nothing evil to say of [^b]you. 
+sound speech that cannot be condemned, that one who is an opponent may be ashamed, having nothing evil to say of you. 
 
 ###### 9 
 _Exhort_ bondservants to be obedient to their own masters, to be well pleasing in all _things,_ not answering back, 
 
 ###### 10 
-not [^c]pilfering, but showing all good [^d]fidelity, that they may adorn the doctrine of God our Savior in all things. ## Trained by Saving Grace 
+not pilfering, but showing all good fidelity, that they may adorn the doctrine of God our Savior in all things. ## Trained by Saving Grace 
 
 ###### 11 
 For the grace of God that brings salvation has appeared to all men, 

@@ -28,7 +28,7 @@ next: ['Isa 25']
 
 
 
-Behold, the Lord will make the land _and_ the [^a]earth empty and make it waste and turn it upside down (twist the face of it) and scatter abroad its inhabitants. 
+Behold, the Lord will make the land _and_ the earth empty and make it waste and turn it upside down (twist the face of it) and scatter abroad its inhabitants. 
 
 
 
@@ -469,7 +469,7 @@ And in that day the Lord will visit _and_ punish the host of the high ones on hi
 
 
 
-And they will be gathered together as prisoners are gathered in a pit _or_ dungeon; they will be shut up in prison, and after many days they will be visited, inspected, _and_ punished _or_ [^b]pardoned. 
+And they will be gathered together as prisoners are gathered in a pit _or_ dungeon; they will be shut up in prison, and after many days they will be visited, inspected, _and_ punished _or_ pardoned. 
 
 
 

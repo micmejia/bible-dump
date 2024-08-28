@@ -34,7 +34,7 @@ When we had sailed slowly many days, and arrived with difficulty off Cnidus, the
 Passing it with difficulty, we came to a place called Fair Havens, near the city _of_ Lasea. ## Paul's Warning Ignored 
 
 ###### 9 
-Now when much time had been spent, and sailing was now dangerous because [^a]the Fast was already over, Paul advised them, 
+Now when much time had been spent, and sailing was now dangerous because the Fast was already over, Paul advised them, 
 
 ###### 10 
 saying, "Men, I perceive that this voyage will end with disaster and much loss, not only of the cargo and ship, but also our lives." 
@@ -49,16 +49,16 @@ And because the harbor was not suitable to winter in, the majority advised to se
 When the south wind blew softly, supposing that they had obtained _their_ desire, putting out to sea, they sailed close by Crete. 
 
 ###### 14 
-But not long after, a tempestuous head wind arose, called [^b]Euroclydon. 
+But not long after, a tempestuous head wind arose, called Euroclydon. 
 
 ###### 15 
-So when the ship was caught, and could not head into the wind, we let _her_ [^c]drive. 
+So when the ship was caught, and could not head into the wind, we let _her_ drive. 
 
 ###### 16 
-And running under _the shelter of_ an island called [^d]Clauda, we secured the skiff with difficulty. 
+And running under _the shelter of_ an island called Clauda, we secured the skiff with difficulty. 
 
 ###### 17 
-When they had taken it on board, they used cables to undergird the ship; and fearing lest they should run aground on the [^e]Syrtis _Sands,_ they struck sail and so were driven. 
+When they had taken it on board, they used cables to undergird the ship; and fearing lest they should run aground on the Syrtis _Sands,_ they struck sail and so were driven. 
 
 ###### 18 
 And because we were exceedingly tempest-tossed, the next _day_ they lightened the ship. 
@@ -73,7 +73,7 @@ Now when neither sun nor stars appeared for many days, and no small tempest beat
 But after long abstinence from food, then Paul stood in the midst of them and said, "Men, you should have listened to me, and not have sailed from Crete and incurred this disaster and loss. 
 
 ###### 22 
-And now I urge you to take [^f]heart, for there will be no loss of life among you, but only of the ship. 
+And now I urge you to take heart, for there will be no loss of life among you, but only of the ship. 
 
 ###### 23 
 For there stood by me this night an angel of the God to whom I belong and whom I serve, 
@@ -94,7 +94,7 @@ Now when the fourteenth night had come, as we were driven up and down in the Adr
 And they took soundings and found _it_ to be twenty fathoms; and when they had gone a little farther, they took soundings again and found _it_ to be fifteen fathoms. 
 
 ###### 29 
-Then, fearing lest we should run aground on the rocks, they dropped four anchors from the stern, and [^g]prayed for day to come. 
+Then, fearing lest we should run aground on the rocks, they dropped four anchors from the stern, and prayed for day to come. 
 
 ###### 30 
 And as the sailors were seeking to escape from the ship, when they had let down the skiff into the sea, under pretense of putting out anchors from the prow, 
@@ -127,10 +127,10 @@ So when they had eaten enough, they lightened the ship and threw out the wheat i
 When it was day, they did not recognize the land; but they observed a bay with a beach, onto which they planned to run the ship if possible. 
 
 ###### 40 
-And they [^h]let go the anchors and left _them_ in the sea, meanwhile loosing the rudder ropes; and they hoisted the mainsail to the wind and made for shore. 
+And they let go the anchors and left _them_ in the sea, meanwhile loosing the rudder ropes; and they hoisted the mainsail to the wind and made for shore. 
 
 ###### 41 
-But striking [^i]a place where two seas met, they ran the ship aground; and the prow stuck fast and remained immovable, but the stern was being broken up by the violence of the waves. 
+But striking a place where two seas met, they ran the ship aground; and the prow stuck fast and remained immovable, but the stern was being broken up by the violence of the waves. 
 
 ###### 42 
 And the soldiers' plan was to kill the prisoners, lest any of them should swim away and escape. 

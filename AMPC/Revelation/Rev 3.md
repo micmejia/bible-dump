@@ -28,7 +28,7 @@ next: ['Rev 4']
 
 
 
-And to the angel (messenger) of the assembly (church) in Sardis write: These are the words of Him Who has the seven Spirits of God [[^a]the sevenfold Holy Spirit] and the seven stars: I know your record _and_ what you are doing; you are supposed to be alive, but [in reality] you are dead. 
+And to the angel (messenger) of the assembly (church) in Sardis write: These are the words of Him Who has the seven Spirits of God [the sevenfold Holy Spirit] and the seven stars: I know your record _and_ what you are doing; you are supposed to be alive, but [in reality] you are dead. 
 
 
 
@@ -217,7 +217,7 @@ Take note! I will make those of the synagogue of Satan who say they are Jews and
 
 
 
-Because you have guarded _and_ kept My word of patient endurance [have held fast the [^b]lesson of My patience with the [^c]expectant endurance that I give you], I also will keep you [safe] from the hour of trial (testing) which is coming on the whole world to try those who dwell upon the earth. 
+Because you have guarded _and_ kept My word of patient endurance [have held fast the lesson of My patience with the expectant endurance that I give you], I also will keep you [safe] from the hour of trial (testing) which is coming on the whole world to try those who dwell upon the earth. 
 
 
 

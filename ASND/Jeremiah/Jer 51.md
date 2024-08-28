@@ -40,7 +40,7 @@ next: ['Jer 52']
 
 
 
-Ito pa ang sinabi ng Panginoon tungkol sa Babilonia: "Hahamunin ko ang manlilipol para salakayin ang Babilonia at ang mga mamamayan nito.[^a] 
+Ito pa ang sinabi ng Panginoon tungkol sa Babilonia: "Hahamunin ko ang manlilipol para salakayin ang Babilonia at ang mga mamamayan nito. 
 
 
 
@@ -337,7 +337,7 @@ Biglang mawawasak ang Babilonia! Ipagluksa nʼyo siya! Gamutin nʼyo ang mga sug
 
 
 
-Ipinaghiganti tayo ng Panginoon. Halikayo, pumunta tayo sa Jerusalem[^b] at sabihin natin doon ang ginawa ng Panginoon na ating Dios." 
+Ipinaghiganti tayo ng Panginoon. Halikayo, pumunta tayo sa Jerusalem at sabihin natin doon ang ginawa ng Panginoon na ating Dios." 
 
 
 
@@ -634,7 +634,7 @@ wala silang kabuluhan at dapat kamuhian. Darating ang araw na wawasakin ang laha
 
 
 
-Pero ang Dios ni Jacob[^c] ay hindi katulad ng mga iyon. Siya ang lumikha ng lahat ng bagay pati na ang Israel, ang mga taong hinirang niya – Panginoong Makapangyarihan ang pangalan niya. ## Ang Martilyo ng Panginoon 
+Pero ang Dios ni Jacob ay hindi katulad ng mga iyon. Siya ang lumikha ng lahat ng bagay pati na ang Israel, ang mga taong hinirang niya – Panginoong Makapangyarihan ang pangalan niya. ## Ang Martilyo ng Panginoon 
 
 
 
@@ -667,7 +667,7 @@ Pero ang Dios ni Jacob[^c] ay hindi katulad ng mga iyon. Siya ang lumikha ng lah
 
 
 
-<i class="trans-change">Sinabi ng Panginoon_, "Ikaw[^d] ang panghampas ko, ang panghampas ko sa digmaan. Sa pamamagitan mo, wawasakin ko ang mga bansa at kaharian, 
+<i class="trans-change">Sinabi ng Panginoon_, "Ikaw ang panghampas ko, ang panghampas ko sa digmaan. Sa pamamagitan mo, wawasakin ko ang mga bansa at kaharian, 
 
 
 
@@ -1162,7 +1162,7 @@ Kaya sinabi ng Panginoon, "Mga taga-Jerusalem, ipagtatanggol ko kayo at maghihig
 
 
 
-Wawasakin ko ang bansang ito! Magiging katawa-tawa at kasumpa-sumpa ang bansang ito, at wala nang maninirahan dito maliban sa mga asong-gubat.[^e] 
+Wawasakin ko ang bansang ito! Magiging katawa-tawa at kasumpa-sumpa ang bansang ito, at wala nang maninirahan dito maliban sa mga asong-gubat. 
 
 
 
@@ -1294,7 +1294,7 @@ Dadalhin ko sila para katayin na parang mga tupa at mga kambing.
 
 
 
-Papaanong bumagsak ang Babilonia?[^f] Ang bansang hinahangaan ng buong mundo! Nakakatakot tingnan ang nangyari sa kanya! 
+Papaanong bumagsak ang Babilonia? Ang bansang hinahangaan ng buong mundo! Nakakatakot tingnan ang nangyari sa kanya! 
 
 
 
@@ -1393,7 +1393,7 @@ Magiging malungkot ang mga bayan niya na parang disyerto na walang nakatira o du
 
 
 
-Parurusahan ko si Bel na dios-diosan ng Babilonia. Ipapasuka ko sa kanya ang mga nilamon niya.[^g] Hindi na siya dadagsain ng mga bansa para sambahin. Bumagsak na ang mga pader ng Babilonia. 
+Parurusahan ko si Bel na dios-diosan ng Babilonia. Ipapasuka ko sa kanya ang mga nilamon niya. Hindi na siya dadagsain ng mga bansa para sambahin. Bumagsak na ang mga pader ng Babilonia. 
 
 
 

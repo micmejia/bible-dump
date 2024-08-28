@@ -337,7 +337,7 @@ Pinapalayas ninyo ang kanilang mga kababaihan sa mga tahanang minamahal nila. At
 
 
 
-Kaya ngayon, umalis na kayo rito <i class="trans-change">sa Israel_ dahil ang lugar na ito ay hindi na makapagbibigay sa inyo ng kapahingahan, sapagkat dinungisan ninyo ito <i class="trans-change">ng inyong mga kasalanan_. Masisira ang lugar na ito at hindi na mapapakinabangan.[^a] 
+Kaya ngayon, umalis na kayo rito <i class="trans-change">sa Israel_ dahil ang lugar na ito ay hindi na makapagbibigay sa inyo ng kapahingahan, sapagkat dinungisan ninyo ito <i class="trans-change">ng inyong mga kasalanan_. Masisira ang lugar na ito at hindi na mapapakinabangan. 
 
 
 
@@ -403,7 +403,7 @@ Ang gusto ninyong mangangaral ay iyong nangangaral nang walang kabuluhan, manlil
 
 
 
-<i class="trans-change">Sinabi ng Panginoon,_ "Kayong natitirang mga mamamayan ng Israel at Juda,[^b] titipunin ko kayo gaya ng mga tupa sa kulungan o kawan ng mga hayop sa pastulan. Mapupuno ng mga tao ang inyong lupain. 
+<i class="trans-change">Sinabi ng Panginoon,_ "Kayong natitirang mga mamamayan ng Israel at Juda, titipunin ko kayo gaya ng mga tupa sa kulungan o kawan ng mga hayop sa pastulan. Mapupuno ng mga tao ang inyong lupain. 
 
 
 

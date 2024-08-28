@@ -13,7 +13,7 @@ next: ['Matt 28']
 When morning came, all the chief priests and elders of the people plotted against Jesus to put Him to death. 
 
 ###### 2 
-And when they had bound Him, they led Him away and delivered Him to [^a]Pontius Pilate the governor. ## Judas Hangs Himself 
+And when they had bound Him, they led Him away and delivered Him to Pontius Pilate the governor. ## Judas Hangs Himself 
 
 ###### 3 
 Then Judas, His betrayer, seeing that He had been condemned, was remorseful and brought back the thirty pieces of silver to the chief priests and elders, 
@@ -55,7 +55,7 @@ But He answered him not one word, so that the governor marveled greatly. ## Taki
 Now at the feast the governor was accustomed to releasing to the multitude one prisoner whom they wished. 
 
 ###### 16 
-And at that time they had a notorious prisoner called [^b]Barabbas. 
+And at that time they had a notorious prisoner called Barabbas. 
 
 ###### 17 
 Therefore, when they had gathered together, Pilate said to them, "Whom do you want me to release to you? Barabbas, or Jesus who is called Christ?" 
@@ -79,22 +79,22 @@ Pilate said to them, "What then shall I do with Jesus who is called Christ?" _Th
 Then the governor said, "Why, what evil has He done?" But they cried out all the more, saying, "Let Him be crucified!" 
 
 ###### 24 
-When Pilate saw that he could not prevail at all, but rather _that_ a [^c]tumult was rising, he took water and washed _his_ hands before the multitude, saying, "I am innocent of the blood of this [^d]just Person. You see _to it._" 
+When Pilate saw that he could not prevail at all, but rather _that_ a tumult was rising, he took water and washed _his_ hands before the multitude, saying, "I am innocent of the blood of this just Person. You see _to it._" 
 
 ###### 25 
 And all the people answered and said, "His blood _be_ on us and on our children." 
 
 ###### 26 
-Then he released Barabbas to them; and when he had [^e]scourged Jesus, he delivered _Him_ to be crucified. ## The Soldiers Mock Jesus 
+Then he released Barabbas to them; and when he had scourged Jesus, he delivered _Him_ to be crucified. ## The Soldiers Mock Jesus 
 
 ###### 27 
-Then the soldiers of the governor took Jesus into the [^f]Praetorium and gathered the whole [^g]garrison around Him. 
+Then the soldiers of the governor took Jesus into the Praetorium and gathered the whole garrison around Him. 
 
 ###### 28 
 And they stripped Him and put a scarlet robe on Him. 
 
 ###### 29 
-When they had [^h]twisted a crown of thorns, they put _it_ on His head, and a reed in His right hand. And they bowed the knee before Him and mocked Him, saying, "Hail, King of the Jews!" 
+When they had twisted a crown of thorns, they put _it_ on His head, and a reed in His right hand. And they bowed the knee before Him and mocked Him, saying, "Hail, King of the Jews!" 
 
 ###### 30 
 Then they spat on Him, and took the reed and struck Him on the head. 
@@ -109,10 +109,10 @@ Now as they came out, they found a man of Cyrene, Simon by name. Him they compel
 And when they had come to a place called Golgotha, that is to say, Place of a Skull, 
 
 ###### 34 
-they gave Him [^i]sour wine mingled with gall to drink. But when He had tasted _it,_ He would not drink. 
+they gave Him sour wine mingled with gall to drink. But when He had tasted _it,_ He would not drink. 
 
 ###### 35 
-Then they crucified Him, and divided His garments, casting lots, [^j]that it might be fulfilled which was spoken by the prophet: "They divided My garments among them, And for My clothing they cast lots." 
+Then they crucified Him, and divided His garments, casting lots, that it might be fulfilled which was spoken by the prophet: "They divided My garments among them, And for My clothing they cast lots." 
 
 ###### 36 
 Sitting down, they kept watch over Him there. 
@@ -130,10 +130,10 @@ And those who passed by blasphemed Him, wagging their heads
 and saying, "You who destroy the temple and build _it_ in three days, save Yourself! If You are the Son of God, come down from the cross." 
 
 ###### 41 
-Likewise the chief priests also, mocking with the [^k]scribes and elders, said, 
+Likewise the chief priests also, mocking with the scribes and elders, said, 
 
 ###### 42 
-"He saved others; Himself He cannot save. [^l]If He is the King of Israel, let Him now come down from the cross, and we will believe [^m]Him. 
+"He saved others; Himself He cannot save. If He is the King of Israel, let Him now come down from the cross, and we will believe Him. 
 
 ###### 43 
 He trusted in God; let Him deliver Him now if He will have Him; for He said, 'I am the Son of God.' " 
@@ -175,7 +175,7 @@ So when the centurion and those with him, who were guarding Jesus, saw the earth
 And many women who followed Jesus from Galilee, ministering to Him, were there looking on from afar, 
 
 ###### 56 
-among whom were Mary Magdalene, Mary the mother of James and [^n]Joses, and the mother of Zebedee's sons. ## Jesus Buried in Joseph's Tomb 
+among whom were Mary Magdalene, Mary the mother of James and Joses, and the mother of Zebedee's sons. ## Jesus Buried in Joseph's Tomb 
 
 ###### 57 
 Now when evening had come, there came a rich man from Arimathea, named Joseph, who himself had also become a disciple of Jesus. 
@@ -190,7 +190,7 @@ When Joseph had taken the body, he wrapped it in a clean linen cloth,
 and laid it in his new tomb which he had hewn out of the rock; and he rolled a large stone against the door of the tomb, and departed. 
 
 ###### 61 
-And Mary Magdalene was there, and the other Mary, sitting [^o]opposite the tomb. ## Pilate Sets a Guard 
+And Mary Magdalene was there, and the other Mary, sitting opposite the tomb. ## Pilate Sets a Guard 
 
 ###### 62 
 On the next day, which followed the Day of Preparation, the chief priests and Pharisees gathered together to Pilate, 
@@ -199,7 +199,7 @@ On the next day, which followed the Day of Preparation, the chief priests and Ph
 saying, "Sir, we remember, while He was still alive, how that deceiver said, 'After three days I will rise.' 
 
 ###### 64 
-Therefore command that the tomb be made secure until the third day, lest His disciples come [^p]by night and steal Him _away,_ and say to the people, 'He has risen from the dead.' So the last deception will be worse than the first." 
+Therefore command that the tomb be made secure until the third day, lest His disciples come by night and steal Him _away,_ and say to the people, 'He has risen from the dead.' So the last deception will be worse than the first." 
 
 ###### 65 
 Pilate said to them, "You have a guard; go your way, make _it_ as secure as you know how." 

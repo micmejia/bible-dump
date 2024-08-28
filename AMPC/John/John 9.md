@@ -511,7 +511,7 @@ On that account his parents said, He is of age; ask him.
 
 
 
-So the second time they summoned the man who had been born blind, and said to him, Now give God the glory (praise). This [^a]Fellow we know is only a sinner (a wicked person). 
+So the second time they summoned the man who had been born blind, and said to him, Now give God the glory (praise). This Fellow we know is only a sinner (a wicked person). 
 
 
 
@@ -742,7 +742,7 @@ They retorted, You were wholly born in sin [from head to foot]; and do you [pres
 
 
 
-Jesus heard that they had put him out, and meeting him He said, Do you believe in _and_ adhere to the Son of Man [^b]_or the Son of God_? 
+Jesus heard that they had put him out, and meeting him He said, Do you believe in _and_ adhere to the Son of Man _or the Son of God_? 
 
 
 
@@ -826,7 +826,7 @@ He called out, Lord, I believe! [I rely on, I trust, I cleave to You!] And he wo
 
 
 
-Then Jesus said, I came into this world for judgment [as a Separator, in order that there may be [^c] separation between those who believe on Me and those who reject Me], to make the sightless see and to make those who see become blind. 
+Then Jesus said, I came into this world for judgment [as a Separator, in order that there may be  separation between those who believe on Me and those who reject Me], to make the sightless see and to make those who see become blind. 
 
 
 

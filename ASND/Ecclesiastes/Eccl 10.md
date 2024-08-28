@@ -205,7 +205,7 @@ May isa pa akong nakitang hindi maganda rito sa mundo at itoʼy ginagawa ng mga 
 
 
 
-Ang mga mangmang ay binibigyan ng mataas na tungkulin, pero ang mga mayayaman[^a] ay binibigyan ng mababang tungkulin. 
+Ang mga mangmang ay binibigyan ng mataas na tungkulin, pero ang mga mayayaman ay binibigyan ng mababang tungkulin. 
 
 
 
@@ -502,7 +502,7 @@ At wala siyang tigil sa kasasalita. Walang nakakaalam tungkol sa mga mangyayari 
 
 
 
-Napapagod ang mangmang sa kanyang trabaho, kaya naiisip niyang huwag nang pumunta sa bayan <i class="trans-change">para magtrabaho_.[^b] 
+Napapagod ang mangmang sa kanyang trabaho, kaya naiisip niyang huwag nang pumunta sa bayan <i class="trans-change">para magtrabaho_. 
 
 
 
@@ -667,4 +667,4 @@ Makapagpapasaya sa tao ang handaan at inuman; at ang pera ay makapagbibigay ng l
 
 
 
-Huwag mong susumpain ang hari kahit sa isip mo lang o ang mayayaman kahit na palihim lang, dahil baka may magsabi sa kanila.[^c]
+Huwag mong susumpain ang hari kahit sa isip mo lang o ang mayayaman kahit na palihim lang, dahil baka may magsabi sa kanila.

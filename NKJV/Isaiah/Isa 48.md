@@ -19,7 +19,7 @@ For they call themselves after the holy city, And lean on the God of Israel; The
 "I have declared the former things from the beginning; They went forth from My mouth, and I caused them to hear it. Suddenly I did _them,_ and they came to pass. 
 
 ###### 4 
-Because I knew that you _were_ [^a]obstinate, And your neck _was_ an iron sinew, And your brow bronze, 
+Because I knew that you _were_ obstinate, And your neck _was_ an iron sinew, And your brow bronze, 
 
 ###### 5 
 Even from the beginning I have declared _it_ to you; Before it came to pass I proclaimed _it_ to you, Lest you should say, 'My idol has done them, And my carved image and my molded image Have commanded them.' 
@@ -34,7 +34,7 @@ They are created now and not from the beginning; And before this day you have no
 Surely you did not hear, Surely you did not know; Surely from long ago your ear was not opened. For I knew that you would deal very treacherously, And were called a transgressor from the womb. 
 
 ###### 9 
-"For My name's sake I will [^b]defer My anger, And _for_ My praise I will restrain it from you, So that I do not cut you off. 
+"For My name's sake I will defer My anger, And _for_ My praise I will restrain it from you, So that I do not cut you off. 
 
 ###### 10 
 Behold, I have refined you, but not as silver; I have tested you in the furnace of affliction. 
@@ -55,7 +55,7 @@ Indeed My hand has laid the foundation of the earth, And My right hand has stret
 I, _even_ I, have spoken; Yes, I have called him, I have brought him, and his way will prosper. 
 
 ###### 16 
-"Come near to Me, hear this: I have not spoken in secret from the beginning; From the time that it was, I _was_ there. And now the Lord God and His Spirit [^c]Have sent Me." 
+"Come near to Me, hear this: I have not spoken in secret from the beginning; From the time that it was, I _was_ there. And now the Lord God and His Spirit Have sent Me." 
 
 ###### 17 
 Thus says the Lord, your Redeemer, The Holy One of Israel: "I _am_ the Lord your God, Who teaches you to profit, Who leads you by the way you should go. 

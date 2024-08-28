@@ -19,7 +19,7 @@ The word of the Lord came to me, saying,
 Say to the Ammonites, 'Hear the word of the Lord God! Thus says the Lord God: "Because you said, 'Aha!' against My sanctuary when it was profaned, and against the land of Israel when it was desolate, and against the house of Judah when they went into captivity, 
 
 ###### 4 
-indeed, therefore, I will deliver you as a possession to the [^a]men of the East, and they shall set their encampments among you and make their dwellings among you; they shall eat your fruit, and they shall drink your milk. 
+indeed, therefore, I will deliver you as a possession to the men of the East, and they shall set their encampments among you and make their dwellings among you; they shall eat your fruit, and they shall drink your milk. 
 
 ###### 5 
 And I will make Rabbah a stable for camels and Ammon a resting place for flocks. Then you shall know that I _am_ the Lord." 
@@ -46,13 +46,13 @@ And I will execute judgments upon Moab, and they shall know that I _am_ the Lord
 'Thus says the Lord God: "Because of what Edom did against the house of Judah by taking vengeance, and has greatly offended by avenging itself on them," 
 
 ###### 13 
-therefore thus says the Lord God: "I will also stretch out My hand against Edom, cut off man and beast from it, and make it desolate from Teman; [^b]Dedan shall fall by the sword. 
+therefore thus says the Lord God: "I will also stretch out My hand against Edom, cut off man and beast from it, and make it desolate from Teman; Dedan shall fall by the sword. 
 
 ###### 14 
 I will lay My vengeance on Edom by the hand of My people Israel, that they may do in Edom according to My anger and according to My fury; and they shall know My vengeance," says the Lord God. ## Proclamation Against Philistia 
 
 ###### 15 
-'Thus says the Lord God: "Because the Philistines dealt vengefully and took vengeance with [^c]a spiteful heart, to destroy because of the [^d]old hatred," 
+'Thus says the Lord God: "Because the Philistines dealt vengefully and took vengeance with a spiteful heart, to destroy because of the old hatred," 
 
 ###### 16 
 therefore thus says the Lord God: "I will stretch out My hand against the Philistines, and I will cut off the Cherethites and destroy the remnant of the seacoast. 

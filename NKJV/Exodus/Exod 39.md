@@ -10,7 +10,7 @@ next: ['Exod 40']
 
 
 ###### 1 
-Of the blue, purple, and scarlet _thread_ they made garments[^a] of ministry, for ministering in the [^b]holy _place,_ and made the holy garments for Aaron, as the Lord had commanded Moses. ## Making the Ephod 
+Of the blue, purple, and scarlet _thread_ they made garments of ministry, for ministering in the holy _place,_ and made the holy garments for Aaron, as the Lord had commanded Moses. ## Making the Ephod 
 
 ###### 2 
 He made the ephod of gold, blue, purple, and scarlet _thread,_ and of fine woven linen. 
@@ -25,7 +25,7 @@ They made shoulder straps for it to couple _it_ together; it was coupled togethe
 And the intricately woven band of his ephod that _was_ on it _was_ of the same workmanship, _woven of_ gold, blue, purple, and scarlet _thread,_ and _of_ fine woven linen, as the Lord had commanded Moses. 
 
 ###### 6 
-And they set onyx stones, enclosed in [^c]settings of gold; they were engraved, as signets are engraved, with the names of the sons of Israel. 
+And they set onyx stones, enclosed in settings of gold; they were engraved, as signets are engraved, with the names of the sons of Israel. 
 
 ###### 7 
 He put them on the shoulders of the ephod _as_ memorial stones for the sons of Israel, as the Lord had commanded Moses. ## Making the Breastplate 
@@ -85,7 +85,7 @@ They made on the hem of the robe pomegranates of blue, purple, and scarlet, and 
 And they made bells of pure gold, and put the bells between the pomegranates on the hem of the robe all around between the pomegranates: 
 
 ###### 26 
-a bell and a pomegranate, a bell and a pomegranate, all around the hem of the robe to [^d]minister in, as the Lord had commanded Moses. 
+a bell and a pomegranate, a bell and a pomegranate, all around the hem of the robe to minister in, as the Lord had commanded Moses. 
 
 ###### 27 
 They made tunics, artistically woven of fine linen, for Aaron and his sons, 
@@ -130,7 +130,7 @@ the bronze altar, its grate of bronze, its poles, and all its utensils; the lave
 the hangings of the court, its pillars and its sockets, the screen for the court gate, its cords, and its pegs; all the utensils for the service of the tabernacle, for the tent of meeting; 
 
 ###### 41 
-and the [^e]garments of ministry, to [^f]minister in the holy _place:_ the holy garments for Aaron the priest, and his sons' garments, to minister as priests. 
+and the garments of ministry, to minister in the holy _place:_ the holy garments for Aaron the priest, and his sons' garments, to minister as priests. 
 
 ###### 42 
 According to all that the Lord had commanded Moses, so the children of Israel did all the work. 

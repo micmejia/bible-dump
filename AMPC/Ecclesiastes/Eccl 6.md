@@ -217,7 +217,7 @@ Better is the sight of the eyes [the enjoyment of what is available to one] than
 
 
 
-Whatever [man] is, he has been named that long ago, and it is known that it is man [^a][Adam]; nor can he contend with Him who is mightier than he [whether God or death]. 
+Whatever [man] is, he has been named that long ago, and it is known that it is man [Adam]; nor can he contend with Him who is mightier than he [whether God or death]. 
 
 
 
@@ -259,4 +259,4 @@ Seeing that there are [all these and] many other things _and_ words that increas
 
 
 
-For who [[^b]limited to human wisdom] knows what is good for man in his life, all the days of his vain life which he spends as a shadow [going through the motions but accomplishing nothing]? For who can tell a man what will happen [to his work, his treasure, his plans] under the sun after he is gone?
+For who [limited to human wisdom] knows what is good for man in his life, all the days of his vain life which he spends as a shadow [going through the motions but accomplishing nothing]? For who can tell a man what will happen [to his work, his treasure, his plans] under the sun after he is gone?

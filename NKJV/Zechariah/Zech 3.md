@@ -10,7 +10,7 @@ next: ['Zech 4']
 
 
 ###### 1 
-Then he showed me Joshua the high priest standing before the Angel of the Lord, and Satan[^a] standing at his right hand to oppose him. 
+Then he showed me Joshua the high priest standing before the Angel of the Lord, and Satan standing at his right hand to oppose him. 
 
 ###### 2 
 And the Lord said to Satan, "The Lord rebuke you, Satan! The Lord who has chosen Jerusalem rebuke you! _Is_ this not a brand plucked from the fire?" 
@@ -31,7 +31,7 @@ Then the Angel of the Lord admonished Joshua, saying,
 "Thus says the Lord of hosts: 'If you will walk in My ways, And if you will keep My command, Then you shall also judge My house, And likewise have charge of My courts; I will give you places to walk Among these who stand here. 
 
 ###### 8 
-'Hear, O Joshua, the high priest, You and your companions who sit before you, For they are a[^b] wondrous sign; For behold, I am bringing forth My Servant the BRANCH. 
+'Hear, O Joshua, the high priest, You and your companions who sit before you, For they are a wondrous sign; For behold, I am bringing forth My Servant the BRANCH. 
 
 ###### 9 
 For behold, the stone That I have laid before Joshua: Upon the stone _are_ seven eyes. Behold, I will engrave its inscription,' Says the Lord of hosts, 'And I will remove the iniquity of that land in one day. 

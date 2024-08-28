@@ -73,7 +73,7 @@ Ipinatawag ni Haring Solomon sa Jerusalem ang mga tagapamahala ng Israel at ang 
 
 
 
-Pumunta silang lahat kay Haring Solomon noong panahon ng Pista <i class="trans-change">ng Pagtatayo ng mga Kubol_, noong buwan ng Etanim, na siyang ikapitong buwan. ###### 3-4 Nang magkatipon na ang lahat ng tagapamahala ng Israel, kinuha ng mga pari at ng mga Levita[^a] ang Kahon ng Panginoon, pati ang Toldang Tipanan at ang mga banal na gamit nito at dinala nila ang lahat ng ito sa templo. 
+Pumunta silang lahat kay Haring Solomon noong panahon ng Pista <i class="trans-change">ng Pagtatayo ng mga Kubol_, noong buwan ng Etanim, na siyang ikapitong buwan. ###### 3-4 Nang magkatipon na ang lahat ng tagapamahala ng Israel, kinuha ng mga pari at ng mga Levita ang Kahon ng Panginoon, pati ang Toldang Tipanan at ang mga banal na gamit nito at dinala nila ang lahat ng ito sa templo. 
 
 
 
@@ -1360,7 +1360,7 @@ dinggin nʼyo po sila riyan sa inyong luklukan sa langit. At gawin ang kahit ano
 
 
 
-dinggin nʼyo po ang kanilang mga dalangin at mga kahilingan diyan sa langit, at bigyan sila ng tagumpay.[^b] 
+dinggin nʼyo po ang kanilang mga dalangin at mga kahilingan diyan sa langit, at bigyan sila ng tagumpay. 
 
 
 
@@ -2020,7 +2020,7 @@ Sa araw ding iyon, itinalaga ng hari ang bakuran na nasa harap ng templo ng Pang
 
 
 
-Ipinagdiwang ni Solomon at ng buong Israel ang Pista <i class="trans-change">ng Pagtatayo ng mga Kubol_. Napakaraming pumunta mula sa Lebo Hamat <i class="trans-change">sa bandang hilaga_ hanggang sa lambak ng Egipto <i class="trans-change">sa bandang timog_. Nagdiwang sila sa presensya ng Panginoon na kanilang[^c] Dios sa loob ng 14 na araw – pitong araw <i class="trans-change">para sa pagtatalaga ng templo_ at pitong araw <i class="trans-change">para sa Pista ng Pagtatayo ng mga Kubol_. 
+Ipinagdiwang ni Solomon at ng buong Israel ang Pista <i class="trans-change">ng Pagtatayo ng mga Kubol_. Napakaraming pumunta mula sa Lebo Hamat <i class="trans-change">sa bandang hilaga_ hanggang sa lambak ng Egipto <i class="trans-change">sa bandang timog_. Nagdiwang sila sa presensya ng Panginoon na kanilang Dios sa loob ng 14 na araw – pitong araw <i class="trans-change">para sa pagtatalaga ng templo_ at pitong araw <i class="trans-change">para sa Pista ng Pagtatayo ng mga Kubol_. 
 
 
 
@@ -2053,4 +2053,4 @@ Ipinagdiwang ni Solomon at ng buong Israel ang Pista <i class="trans-change">ng 
 
 
 
-Pagkatapos ng Pista,[^d] pinauwi ni Solomon ang mga tao. Binasbasan ng mga tao si Haring <i class="trans-change">Solomon_, at umuwi sila na may galak dahil sa lahat ng kabutihang ginawa ng Panginoon sa kanyang lingkod na si David at sa mga mamamayan niyang Israelita.
+Pagkatapos ng Pista, pinauwi ni Solomon ang mga tao. Binasbasan ng mga tao si Haring <i class="trans-change">Solomon_, at umuwi sila na may galak dahil sa lahat ng kabutihang ginawa ng Panginoon sa kanyang lingkod na si David at sa mga mamamayan niyang Israelita.

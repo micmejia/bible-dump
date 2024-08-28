@@ -10,7 +10,7 @@ next: ['Isa 20']
 
 
 ###### 1 
-The burden[^a] against Egypt. Behold, the Lord rides on a swift cloud, And will come into Egypt; The idols of Egypt will [^b]totter at His presence, And the heart of Egypt will melt in its midst. 
+The burden against Egypt. Behold, the Lord rides on a swift cloud, And will come into Egypt; The idols of Egypt will totter at His presence, And the heart of Egypt will melt in its midst. 
 
 ###### 2 
 "I will set Egyptians against Egyptians; Everyone will fight against his brother, And everyone against his neighbor, City against city, kingdom against kingdom. 
@@ -28,7 +28,7 @@ The waters will fail from the sea, And the river will be wasted and dried up.
 The rivers will turn foul; The brooks of defense will be emptied and dried up; The reeds and rushes will wither. 
 
 ###### 7 
-The papyrus reeds by [^c]the River, by the mouth of the River, And everything sown by the River, Will wither, be driven away, and be no more. 
+The papyrus reeds by the River, by the mouth of the River, And everything sown by the River, Will wither, be driven away, and be no more. 
 
 ###### 8 
 The fishermen also will mourn; All those will lament who cast hooks into the River, And they will languish who spread nets on the waters. 
@@ -46,7 +46,7 @@ Surely the princes of Zoan _are_ fools; Pharaoh's wise counselors give foolish c
 Where _are_ they? Where are your wise men? Let them tell you now, And let them know what the Lord of hosts has purposed against Egypt. 
 
 ###### 13 
-The princes of Zoan have become fools; The princes of [^d]Noph are deceived; They have also [^e]deluded Egypt, _Those who are_ the [^f]mainstay of its tribes. 
+The princes of Zoan have become fools; The princes of Noph are deceived; They have also deluded Egypt, _Those who are_ the mainstay of its tribes. 
 
 ###### 14 
 The Lord has mingled a perverse spirit in her midst; And they have caused Egypt to err in all her work, As a drunken man staggers in his vomit. 
@@ -61,7 +61,7 @@ In that day Egypt will be like women, and will be afraid and fear because of the
 And the land of Judah will be a terror to Egypt; everyone who makes mention of it will be afraid in himself, because of the counsel of the Lord of hosts which He has determined against it. ## Egypt, Assyria, and Israel Blessed 
 
 ###### 18 
-In that day five cities in the land of Egypt will speak the language of Canaan and swear by the Lord of hosts; one will be called the City of [^g]Destruction. 
+In that day five cities in the land of Egypt will speak the language of Canaan and swear by the Lord of hosts; one will be called the City of Destruction. 
 
 ###### 19 
 In that day there will be an altar to the Lord in the midst of the land of Egypt, and a pillar to the Lord at its border. 

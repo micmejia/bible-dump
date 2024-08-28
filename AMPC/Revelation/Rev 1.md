@@ -27,7 +27,7 @@ next: ['Rev 2']
 
 
 
-[This is] the revelation of Jesus Christ [His unveiling of the divine mysteries]. God gave it to Him to disclose _and_ make known to His bond servants certain things which must shortly _and_ speedily come to pass [^a]in their entirety. And He sent and communicated it through His angel (messenger) to His bond servant John, 
+[This is] the revelation of Jesus Christ [His unveiling of the divine mysteries]. God gave it to Him to disclose _and_ make known to His bond servants certain things which must shortly _and_ speedily come to pass in their entirety. And He sent and communicated it through His angel (messenger) to His bond servant John, 
 
 
 
@@ -48,7 +48,7 @@ next: ['Rev 2']
 
 
 
-Who has testified to _and_ vouched for all that he saw [[^b]in his visions], the word of God and the testimony of Jesus Christ. 
+Who has testified to _and_ vouched for all that he saw [in his visions], the word of God and the testimony of Jesus Christ. 
 
 
 
@@ -69,7 +69,7 @@ Who has testified to _and_ vouched for all that he saw [[^b]in his visions], the
 
 
 
-Blessed (happy, [^c]to be envied) is the man who reads aloud [in the assemblies] the word of this prophecy; and blessed (happy, [^d]to be envied) are those who hear [it read] and who keep themselves true to the things which are written in it [heeding them and laying them to heart], for the time [for them to be fulfilled] is near. 
+Blessed (happy, to be envied) is the man who reads aloud [in the assemblies] the word of this prophecy; and blessed (happy, to be envied) are those who hear [it read] and who keep themselves true to the things which are written in it [heeding them and laying them to heart], for the time [for them to be fulfilled] is near. 
 
 
 
@@ -90,7 +90,7 @@ Blessed (happy, [^c]to be envied) is the man who reads aloud [in the assemblies]
 
 
 
-John to the seven assemblies (churches) that are in Asia: May grace (God's unmerited favor) be granted to you and spiritual peace ([^e]the peace of Christ's kingdom) from Him Who is and Who was and Who is to come, and from the seven Spirits [[^f]the sevenfold Holy Spirit] before His throne, 
+John to the seven assemblies (churches) that are in Asia: May grace (God's unmerited favor) be granted to you and spiritual peace (the peace of Christ's kingdom) from Him Who is and Who was and Who is to come, and from the seven Spirits [the sevenfold Holy Spirit] before His throne, 
 
 
 
@@ -111,7 +111,7 @@ John to the seven assemblies (churches) that are in Asia: May grace (God's unmer
 
 
 
-And from Jesus Christ the faithful _and_ trustworthy Witness, the Firstborn of the dead [first to be brought back to life] and the Prince (Ruler) of the kings of the earth. To Him Who [^g]ever loves us and has [^h]once [for all] loosed _and_ freed us from our sins by His own blood, 
+And from Jesus Christ the faithful _and_ trustworthy Witness, the Firstborn of the dead [first to be brought back to life] and the Prince (Ruler) of the kings of the earth. To Him Who ever loves us and has once [for all] loosed _and_ freed us from our sins by His own blood, 
 
 
 
@@ -216,7 +216,7 @@ I, John, your brother and companion (sharer and participator) with you in the tr
 
 
 
-I was in the Spirit [rapt in His power] on the Lord's Day, and I heard behind me a great voice like the calling of a [^i]war trumpet, 
+I was in the Spirit [rapt in His power] on the Lord's Day, and I heard behind me a great voice like the calling of a war trumpet, 
 
 
 

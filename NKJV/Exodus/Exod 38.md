@@ -70,13 +70,13 @@ And _there were_ four pillars _with_ their four sockets of bronze; their hooks _
 All the pegs of the tabernacle, and of the court all around, _were_ bronze. ## Materials of the Tabernacle 
 
 ###### 21 
-[^a]This is the inventory of the tabernacle, the tabernacle of the Testimony, which was counted according to the commandment of Moses, for the service of the Levites, by the hand of Ithamar, son of Aaron the priest. 
+This is the inventory of the tabernacle, the tabernacle of the Testimony, which was counted according to the commandment of Moses, for the service of the Levites, by the hand of Ithamar, son of Aaron the priest. 
 
 ###### 22 
 Bezalel the son of Uri, the son of Hur, of the tribe of Judah, made all that the Lord had commanded Moses. 
 
 ###### 23 
-And with him _was_ Aholiab the son of Ahisamach, of the tribe of Dan, an engraver and [^b]designer, a weaver of blue, purple, and scarlet _thread,_ and of fine linen. 
+And with him _was_ Aholiab the son of Ahisamach, of the tribe of Dan, an engraver and designer, a weaver of blue, purple, and scarlet _thread,_ and of fine linen. 
 
 ###### 24 
 All the gold that was used in all the work of the holy _place,_ that is, the gold of the offering, was twenty-nine talents and seven hundred and thirty shekels, according to the shekel of the sanctuary. 
@@ -85,7 +85,7 @@ All the gold that was used in all the work of the holy _place,_ that is, the gol
 And the silver from those who were numbered of the congregation _was_ one hundred talents and one thousand seven hundred and seventy-five shekels, according to the shekel of the sanctuary: 
 
 ###### 26 
-a bekah for [^c]each man (_that is,_ half a shekel, according to the shekel of the sanctuary), for everyone included in the numbering from twenty years old and above, for six hundred and three thousand, five hundred and fifty _men._ 
+a bekah for each man (_that is,_ half a shekel, according to the shekel of the sanctuary), for everyone included in the numbering from twenty years old and above, for six hundred and three thousand, five hundred and fifty _men._ 
 
 ###### 27 
 And from the hundred talents of silver were cast the sockets of the sanctuary and the bases of the veil: one hundred sockets from the hundred talents, one talent for each socket. 

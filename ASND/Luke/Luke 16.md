@@ -205,7 +205,7 @@ Isa-isa niyang ipinatawag ang mga may utang sa amo niya. Tinanong niya ang una, 
 
 
 
-Sumagot ito, '100 banga[^a] ng langis ng olibo.' 'Heto ang kasulatan ng pagkakautang mo. Maupo ka at isulat mong 50 na lang ang utang mo,' sabi ng katiwala. 
+Sumagot ito, '100 banga ng langis ng olibo.' 'Heto ang kasulatan ng pagkakautang mo. Maupo ka at isulat mong 50 na lang ang utang mo,' sabi ng katiwala. 
 
 
 
@@ -766,7 +766,7 @@ Namatay ang pulubi at dinala ng mga anghel sa piling ni Abraham. Namatay din ang
 
 
 
-At habang nagdurusa siya sa lugar ng mga patay,[^b] nakita niya sa malayo si Lazarus na kasama ni Abraham. 
+At habang nagdurusa siya sa lugar ng mga patay, nakita niya sa malayo si Lazarus na kasama ni Abraham. 
 
 
 

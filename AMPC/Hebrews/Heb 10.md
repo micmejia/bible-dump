@@ -49,7 +49,7 @@ For since the Law has merely a rude outline (foreshadowing) of the good things t
 
 
 
-For if it were otherwise, would [these sacrifices] not have stopped being offered? Since the worshipers had [^a]once for all been cleansed, they would no longer have any guilt _or_ consciousness of sin. 
+For if it were otherwise, would [these sacrifices] not have stopped being offered? Since the worshipers had once for all been cleansed, they would no longer have any guilt _or_ consciousness of sin. 
 
 
 
@@ -469,7 +469,7 @@ And since we have [such] a great _and_ wonderful _and_ noble Priest [Who rules] 
 
 
 
-Let us all come forward _and_ draw near with true (honest and sincere) hearts in unqualified assurance _and_ absolute conviction engendered by faith (by [^b]that leaning of the entire human personality on God in absolute trust and confidence in His power, wisdom, and goodness), having our hearts sprinkled _and_ purified from a guilty (evil) conscience and our bodies cleansed with pure water. 
+Let us all come forward _and_ draw near with true (honest and sincere) hearts in unqualified assurance _and_ absolute conviction engendered by faith (by that leaning of the entire human personality on God in absolute trust and confidence in His power, wisdom, and goodness), having our hearts sprinkled _and_ purified from a guilty (evil) conscience and our bodies cleansed with pure water. 
 
 
 
@@ -490,7 +490,7 @@ Let us all come forward _and_ draw near with true (honest and sincere) hearts in
 
 
 
-So let us seize _and_ hold fast _and_ retain without wavering the [^c]hope we cherish _and_ confess _and_ our acknowledgement of it, for He Who promised is reliable (sure) _and_ faithful to His word. 
+So let us seize _and_ hold fast _and_ retain without wavering the hope we cherish _and_ confess _and_ our acknowledgement of it, for He Who promised is reliable (sure) _and_ faithful to His word. 
 
 
 
@@ -511,7 +511,7 @@ So let us seize _and_ hold fast _and_ retain without wavering the [^c]hope we ch
 
 
 
-And let us consider _and_ give [^d]attentive, continuous care to watching over one another, studying how we may stir up (stimulate and incite) to love _and_ helpful deeds _and_ noble activities, 
+And let us consider _and_ give attentive, continuous care to watching over one another, studying how we may stir up (stimulate and incite) to love _and_ helpful deeds _and_ noble activities, 
 
 
 
@@ -763,7 +763,7 @@ Do not, therefore, fling away your fearless confidence, for it carries a great _
 
 
 
-For you have need of steadfast patience _and_ endurance, so that you may perform _and_ fully accomplish the will of God, and thus receive _and_ [^e]carry away [and enjoy to the full] what is promised. 
+For you have need of steadfast patience _and_ endurance, so that you may perform _and_ fully accomplish the will of God, and thus receive _and_ carry away [and enjoy to the full] what is promised. 
 
 
 
@@ -805,7 +805,7 @@ For still a little while (a very little while), and the Coming One will come and
 
 
 
-But the just shall live by faith [My righteous servant shall live [^f]by his conviction respecting man's relationship to God and divine things, and holy fervor born of faith and conjoined with it]; and if he draws back _and_ shrinks in fear, My soul has no delight _or_ pleasure in him. 
+But the just shall live by faith [My righteous servant shall live by his conviction respecting man's relationship to God and divine things, and holy fervor born of faith and conjoined with it]; and if he draws back _and_ shrinks in fear, My soul has no delight _or_ pleasure in him. 
 
 
 

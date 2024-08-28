@@ -16,7 +16,7 @@ These _are_ the kings of the land whom the children of Israel defeated, and whos
 _One king was_ Sihon king of the Amorites, who dwelt in Heshbon _and_ ruled half of Gilead, from Aroer, which is on the bank of the River Arnon, from the middle of that river, even as far as the River Jabbok, _which is_ the border of the Ammonites, 
 
 ###### 3 
-and the eastern Jordan plain from the [^a]Sea of Chinneroth as far as the [^b]Sea of the Arabah (the Salt Sea), the road to Beth Jeshimoth, and [^c]southward below the[^d] slopes of Pisgah. 
+and the eastern Jordan plain from the Sea of Chinneroth as far as the Sea of the Arabah (the Salt Sea), the road to Beth Jeshimoth, and southward below the slopes of Pisgah. 
 
 ###### 4 
 _The other king was_ Og king of Bashan and his territory, _who was_ of the remnant of the giants, who dwelt at Ashtaroth and at Edrei, 
@@ -28,7 +28,7 @@ and reigned over Mount Hermon, over Salcah, over all Bashan, as far as the borde
 These Moses the servant of the Lord and the children of Israel had conquered; and Moses the servant of the Lord had given it _as_ a possession to the Reubenites, the Gadites, and half the tribe of Manasseh. ## The Kings Conquered by Joshua 
 
 ###### 7 
-And these _are_ the kings of the country which Joshua and the children of Israel conquered on this side of the Jordan, on the west, from Baal Gad in the Valley of Lebanon as far as [^e]Mount Halak and the ascent to Seir, which Joshua gave to the tribes of Israel _as_ a possession according to their divisions, 
+And these _are_ the kings of the country which Joshua and the children of Israel conquered on this side of the Jordan, on the west, from Baal Gad in the Valley of Lebanon as far as Mount Halak and the ascent to Seir, which Joshua gave to the tribes of Israel _as_ a possession according to their divisions, 
 
 ###### 8 
 in the mountain country, in the lowlands, in the _Jordan_ plain, in the slopes, in the wilderness, and in the South--the Hittites, the Amorites, the Canaanites, the Perizzites, the Hivites, and the Jebusites: 
@@ -61,7 +61,7 @@ the king of Makkedah, one; the king of Bethel, one;
 the king of Tappuah, one; the king of Hepher, one; 
 
 ###### 18 
-the king of Aphek, one; the king of [^f]Lasharon, one; 
+the king of Aphek, one; the king of Lasharon, one; 
 
 ###### 19 
 the king of Madon, one; the king of Hazor, one; 

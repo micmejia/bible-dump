@@ -70,7 +70,7 @@ And he said to them, What have I done now in comparison with you? Is not the gle
 
 
 
-[^a]God has given into your hands the princes of Midian, Oreb and Zeeb, and what was I able to do in comparison with you? Then their anger toward him was abated when he had said that. 
+God has given into your hands the princes of Midian, Oreb and Zeeb, and what was I able to do in comparison with you? Then their anger toward him was abated when he had said that. 
 
 
 
@@ -574,7 +574,7 @@ And the weight of the golden earrings that he requested was 1,700 shekels of gol
 
 
 
-And Gideon made an ephod [a sacred, high priest's garment] of it, and put it in his city of Ophrah, and all Israel paid homage to it there, and [^b]it became a snare to Gideon and to his family. 
+And Gideon made an ephod [a sacred, high priest's garment] of it, and put it in his city of Ophrah, and all Israel paid homage to it there, and it became a snare to Gideon and to his family. 
 
 
 

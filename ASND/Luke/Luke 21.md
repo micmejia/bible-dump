@@ -601,7 +601,7 @@ Kapopootan kayo ng lahat dahil sa pagsunod ninyo sa akin.
 
 
 
-Ngunit hindi kayo mapapahamak.[^a] 
+Ngunit hindi kayo mapapahamak. 
 
 
 
@@ -865,7 +865,7 @@ Ang iba sa kanilaʼy papatayin sa espada, at ang iba namaʼy dadalhing bihag sa 
 
 
 
-Hihimatayin sa takot ang mga tao dahil sa mga mangyayari sa mundo, dahil mayayanig at mawawala sa kani-kanilang landas ang mga bagay[^b] sa kalawakan. 
+Hihimatayin sa takot ang mga tao dahil sa mga mangyayari sa mundo, dahil mayayanig at mawawala sa kani-kanilang landas ang mga bagay sa kalawakan. 
 
 
 
@@ -898,7 +898,7 @@ Hihimatayin sa takot ang mga tao dahil sa mga mangyayari sa mundo, dahil mayayan
 
 
 
-At makikita nila <i class="trans-change">ako na_ Anak ng Tao na dumarating mula sa ulap na taglay ang kapangyarihan at kaluwalhatian.[^c] 
+At makikita nila <i class="trans-change">ako na_ Anak ng Tao na dumarating mula sa ulap na taglay ang kapangyarihan at kaluwalhatian. 
 
 
 
@@ -931,7 +931,7 @@ At makikita nila <i class="trans-change">ako na_ Anak ng Tao na dumarating mula 
 
 
 
-Kapag nagsimula nang mangyari ang mga bagay na ito, umasa kayo at maghintay[^d] dahil malapit na ang pagliligtas sa inyo." ## Ang Aral Mula sa Puno ng Igos 
+Kapag nagsimula nang mangyari ang mga bagay na ito, umasa kayo at maghintay dahil malapit na ang pagliligtas sa inyo." ## Ang Aral Mula sa Puno ng Igos 
 
 
 
@@ -1096,7 +1096,7 @@ Sinasabi ko sa inyo ang totoo, matutupad ang lahat ng ito bago mawala ang henera
 
 
 
-Ang langit at ang lupa ay maglalaho, ngunit ang mga salita ko ay mananatili magpakailanman."[^e] ## Maging Handa Kayo 
+Ang langit at ang lupa ay maglalaho, ngunit ang mga salita ko ay mananatili magpakailanman." ## Maging Handa Kayo 
 
 
 
@@ -1162,7 +1162,7 @@ Ang langit at ang lupa ay maglalaho, ngunit ang mga salita ko ay mananatili magp
 
 
 
-nang hindi ninyo inaasahan.[^f] Sapagkat darating ang araw na iyon sa lahat ng tao sa buong mundo. 
+nang hindi ninyo inaasahan. Sapagkat darating ang araw na iyon sa lahat ng tao sa buong mundo. 
 
 
 

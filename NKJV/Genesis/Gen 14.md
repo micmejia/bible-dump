@@ -10,7 +10,7 @@ next: ['Gen 15']
 
 
 ###### 1 
-And it came to pass in the days of Amraphel king of Shinar, Arioch king of Ellasar, Chedorlaomer king of Elam, and Tidal king of [^a]nations, 
+And it came to pass in the days of Amraphel king of Shinar, Arioch king of Ellasar, Chedorlaomer king of Elam, and Tidal king of nations, 
 
 ###### 2 
 _that_ they made war with Bera king of Sodom, Birsha king of Gomorrah, Shinab king of Admah, Shemeber king of Zeboiim, and the king of Bela (that is, Zoar). 
@@ -34,7 +34,7 @@ Then they turned back and came to En Mishpat (that _is,_ Kadesh), and attacked a
 And the king of Sodom, the king of Gomorrah, the king of Admah, the king of Zeboiim, and the king of Bela (that _is,_ Zoar) went out and joined together in battle in the Valley of Siddim 
 
 ###### 9 
-against Chedorlaomer king of Elam, Tidal king of [^b]nations, Amraphel king of Shinar, and Arioch king of Ellasar--four kings against five. 
+against Chedorlaomer king of Elam, Tidal king of nations, Amraphel king of Shinar, and Arioch king of Ellasar--four kings against five. 
 
 ###### 10 
 Now the Valley of Siddim _was full of_ asphalt pits; and the kings of Sodom and Gomorrah fled; _some_ fell there, and the remainder fled to the mountains. 
@@ -46,19 +46,19 @@ Then they took all the goods of Sodom and Gomorrah, and all their provisions, an
 They also took Lot, Abram's brother's son who dwelt in Sodom, and his goods, and departed. 
 
 ###### 13 
-Then one who had escaped came and told Abram the Hebrew, for he dwelt by [^c]the terebinth trees of Mamre the Amorite, brother of Eshcol and brother of Aner; and they _were_ allies with Abram. 
+Then one who had escaped came and told Abram the Hebrew, for he dwelt by the terebinth trees of Mamre the Amorite, brother of Eshcol and brother of Aner; and they _were_ allies with Abram. 
 
 ###### 14 
 Now when Abram heard that his brother was taken captive, he armed his three hundred and eighteen trained _servants_ who were born in his own house, and went in pursuit as far as Dan. 
 
 ###### 15 
-He divided his forces against them by night, and he and his servants attacked them and pursued them as far as Hobah, which _is_ [^d]north of Damascus. 
+He divided his forces against them by night, and he and his servants attacked them and pursued them as far as Hobah, which _is_ north of Damascus. 
 
 ###### 16 
 So he brought back all the goods, and also brought back his brother Lot and his goods, as well as the women and the people. 
 
 ###### 17 
-And the king of Sodom went out to meet him at the Valley of Shaveh (that _is,_ the King's Valley), after his return from the [^e]defeat of Chedorlaomer and the kings who _were_ with him. ## Abram and Melchizedek 
+And the king of Sodom went out to meet him at the Valley of Shaveh (that _is,_ the King's Valley), after his return from the defeat of Chedorlaomer and the kings who _were_ with him. ## Abram and Melchizedek 
 
 ###### 18 
 Then Melchizedek king of Salem brought out bread and wine; he _was_ the priest of God Most High. 
@@ -67,10 +67,10 @@ Then Melchizedek king of Salem brought out bread and wine; he _was_ the priest o
 And he blessed him and said: "Blessed be Abram of God Most High, Possessor of heaven and earth; 
 
 ###### 20 
-And blessed be God Most High, Who has delivered your enemies into your hand." And he gave him [^f]a tithe of all. 
+And blessed be God Most High, Who has delivered your enemies into your hand." And he gave him a tithe of all. 
 
 ###### 21 
-Now the king of Sodom said to Abram, "Give me the [^g]persons, and take the goods for yourself." 
+Now the king of Sodom said to Abram, "Give me the persons, and take the goods for yourself." 
 
 ###### 22 
 But Abram said to the king of Sodom, "I have raised my hand to the Lord, God Most High, the Possessor of heaven and earth, 

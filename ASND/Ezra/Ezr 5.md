@@ -106,7 +106,7 @@ Nakinig sa kanila sina Zerubabel na anak ni Shealtiel at Jeshua na anak ni Jozad
 
 
 
-Ngunit hindi nagtagal, dumating sa Jerusalem si Tatenai na gobernador ng <i class="trans-change">lalawigan sa_ kanluran ng Eufrates, si Shetar Bozenai, at ang mga kasama nila. Nagtanong sila[^a] sa mga Judio, "Sino ang nag-utos sa inyo na ipagpatuloy ang pagpapatayo ng templong ito?" 
+Ngunit hindi nagtagal, dumating sa Jerusalem si Tatenai na gobernador ng <i class="trans-change">lalawigan sa_ kanluran ng Eufrates, si Shetar Bozenai, at ang mga kasama nila. Nagtanong sila sa mga Judio, "Sino ang nag-utos sa inyo na ipagpatuloy ang pagpapatayo ng templong ito?" 
 
 
 

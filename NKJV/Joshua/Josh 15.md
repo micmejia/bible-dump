@@ -10,7 +10,7 @@ next: ['Josh 16']
 
 
 ###### 1 
-So _this_ was the [^a]lot of the tribe of the children of Judah according to their families: The border of Edom at the Wilderness of Zin southward _was_ the extreme southern boundary. 
+So _this_ was the lot of the tribe of the children of Judah according to their families: The border of Edom at the Wilderness of Zin southward _was_ the extreme southern boundary. 
 
 ###### 2 
 And their southern border began at the shore of the Salt Sea, from the bay that faces southward. 
@@ -31,13 +31,13 @@ The border went up to Beth Hoglah and passed north of Beth Arabah; and the borde
 Then the border went up toward Debir from the Valley of Achor, and it turned northward toward Gilgal, which _is_ before the Ascent of Adummim, which _is_ on the south side of the valley. The border continued toward the waters of En Shemesh and ended at En Rogel. 
 
 ###### 8 
-And the border went up by the Valley of the Son of Hinnom to the southern slope of the Jebusite _city_ (which _is_ Jerusalem). The border went up to the top of the mountain that _lies_ before the Valley of Hinnom westward, which _is_ at the end of the Valley of [^b]Rephaim northward. 
+And the border went up by the Valley of the Son of Hinnom to the southern slope of the Jebusite _city_ (which _is_ Jerusalem). The border went up to the top of the mountain that _lies_ before the Valley of Hinnom westward, which _is_ at the end of the Valley of Rephaim northward. 
 
 ###### 9 
 Then the border went around from the top of the hill to the fountain of the water of Nephtoah, and extended to the cities of Mount Ephron. And the border went around to Baalah (which _is_ Kirjath Jearim). 
 
 ###### 10 
-Then the border [^c]turned westward from Baalah to Mount Seir, passed along to the side of Mount Jearim on the north (which _is_ Chesalon), went down to Beth Shemesh, and passed on to Timnah. 
+Then the border turned westward from Baalah to Mount Seir, passed along to the side of Mount Jearim on the north (which _is_ Chesalon), went down to Beth Shemesh, and passed on to Timnah. 
 
 ###### 11 
 And the border went out to the side of Ekron northward. Then the border went around to Shicron, passed along to Mount Baalah, and extended to Jabneel; and the border ended at the sea. 
@@ -55,7 +55,7 @@ Caleb drove out the three sons of Anak from there: Sheshai, Ahiman, and Talmai, 
 Then he went up from there to the inhabitants of Debir (formerly the name of Debir _was_ Kirjath Sepher). 
 
 ###### 16 
-And Caleb said, "He who [^d]attacks Kirjath Sepher and takes it, to him I will give Achsah my daughter as wife." 
+And Caleb said, "He who attacks Kirjath Sepher and takes it, to him I will give Achsah my daughter as wife." 
 
 ###### 17 
 So Othniel the son of Kenaz, the brother of Caleb, took it; and he gave him Achsah his daughter as wife. 
@@ -127,7 +127,7 @@ Dilean, Mizpah, Joktheel,
 Lachish, Bozkath, Eglon, 
 
 ###### 40 
-Cabbon, [^e]Lahmas, Kithlish, 
+Cabbon, Lahmas, Kithlish, 
 
 ###### 41 
 Gederoth, Beth Dagon, Naamah, and Makkedah: sixteen cities with their villages; 

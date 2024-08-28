@@ -9,13 +9,13 @@ next: ['Luke 2']
 
 
 ###### 1 
-Inasmuch as many have taken in hand to set in order a narrative of those things which [^a]have been fulfilled among us, 
+Inasmuch as many have taken in hand to set in order a narrative of those things which have been fulfilled among us, 
 
 ###### 2 
 just as those who from the beginning were eyewitnesses and ministers of the word delivered them to us, 
 
 ###### 3 
-it seemed good to me also, having [^b]had perfect understanding of all things from the very first, to write to you an orderly account, most excellent Theophilus, 
+it seemed good to me also, having had perfect understanding of all things from the very first, to write to you an orderly account, most excellent Theophilus, 
 
 ###### 4 
 that you may know the certainty of those things in which you were instructed. ## John's Birth Announced to Zacharias 
@@ -33,7 +33,7 @@ But they had no child, because Elizabeth was barren, and they were both well adv
 So it was, that while he was serving as priest before God in the order of his division, 
 
 ###### 9 
-according to the custom of the priesthood, [^c]his lot fell to burn incense when he went into the temple of the Lord. 
+according to the custom of the priesthood, his lot fell to burn incense when he went into the temple of the Lord. 
 
 ###### 10 
 And the whole multitude of the people was praying outside at the hour of incense. 
@@ -63,7 +63,7 @@ He will also go before Him in the spirit and power of Elijah, 'to turn the heart
 And Zacharias said to the angel, "How shall I know this? For I am an old man, and my wife is well advanced in years." 
 
 ###### 19 
-And the angel answered and said to him, "I am Gabriel, who stands in the presence of God, and was sent to speak to you and bring you [^d]these glad tidings. 
+And the angel answered and said to him, "I am Gabriel, who stands in the presence of God, and was sent to speak to you and bring you these glad tidings. 
 
 ###### 20 
 But behold, you will be mute and not able to speak until the day these things take place, because you did not believe my words which will be fulfilled in their own time." 
@@ -90,10 +90,10 @@ Now in the sixth month the angel Gabriel was sent by God to a city of Galilee na
 to a virgin betrothed to a man whose name was Joseph, of the house of David. The virgin's name _was_ Mary. 
 
 ###### 28 
-And having come in, the angel said to her, "Rejoice, highly favored _one,_ the Lord _is_ with you; [^e]blessed _are_ you among women!" 
+And having come in, the angel said to her, "Rejoice, highly favored _one,_ the Lord _is_ with you; blessed _are_ you among women!" 
 
 ###### 29 
-But [^f]when she saw _him,_ she was troubled at his saying, and considered what manner of greeting this was. 
+But when she saw _him,_ she was troubled at his saying, and considered what manner of greeting this was. 
 
 ###### 30 
 Then the angel said to her, "Do not be afraid, Mary, for you have found favor with God. 
@@ -108,7 +108,7 @@ He will be great, and will be called the Son of the Highest; and the Lord God wi
 And He will reign over the house of Jacob forever, and of His kingdom there will be no end." 
 
 ###### 34 
-Then Mary said to the angel, "How can this be, since I [^g]do not know a man?" 
+Then Mary said to the angel, "How can this be, since I do not know a man?" 
 
 ###### 35 
 And the angel answered and said to her, "_The_ Holy Spirit will come upon you, and the power of the Highest will overshadow you; therefore, also, that Holy One who is to be born will be called the Son of God. 
@@ -141,10 +141,10 @@ But why _is_ this _granted_ to me, that the mother of my Lord should come to me?
 For indeed, as soon as the voice of your greeting sounded in my ears, the babe leaped in my womb for joy. 
 
 ###### 45 
-Blessed _is_ she who [^h]believed, for there will be a fulfillment of those things which were told her from the Lord." ## The Song of Mary 
+Blessed _is_ she who believed, for there will be a fulfillment of those things which were told her from the Lord." ## The Song of Mary 
 
 ###### 46 
-And Mary said: "My soul [^i]magnifies the Lord, 
+And Mary said: "My soul magnifies the Lord, 
 
 ###### 47 
 And my spirit has rejoiced in God my Savior. 
@@ -240,7 +240,7 @@ In holiness and righteousness before Him all the days of our life.
 To give knowledge of salvation to His people By the remission of their sins, 
 
 ###### 78 
-Through the tender mercy of our God, With which the [^j]Dayspring from on high [^k]has visited us; 
+Through the tender mercy of our God, With which the Dayspring from on high has visited us; 
 
 ###### 79 
 To give light to those who sit in darkness and the shadow of death, To guide our feet into the way of peace." 

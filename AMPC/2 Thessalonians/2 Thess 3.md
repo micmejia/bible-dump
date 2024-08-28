@@ -111,7 +111,7 @@ And we have confidence in the Lord concerning you, that you are doing and will c
 
 
 
-May the Lord direct your hearts into [realizing and showing] the love of God and into the steadfastness _and_ patience of Christ _and_ [^a]in waiting for His return. 
+May the Lord direct your hearts into [realizing and showing] the love of God and into the steadfastness _and_ patience of Christ _and_ in waiting for His return. 
 
 
 
@@ -258,7 +258,7 @@ Indeed, we hear that some among you are disorderly [that they are passing their 
 
 
 
-Now we charge and exhort such persons [as [^b]ministers in Him exhorting those] in the Lord Jesus Christ (the Messiah) that they work in quietness and earn their own food _and_ other necessities. 
+Now we charge and exhort such persons [as ministers in Him exhorting those] in the Lord Jesus Christ (the Messiah) that they work in quietness and earn their own food _and_ other necessities. 
 
 
 

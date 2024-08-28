@@ -10,13 +10,13 @@ next: ['Ezr 5']
 
 
 ###### 1 
-Now when the [^a]adversaries of Judah and Benjamin heard that the descendants of the captivity were building the temple of the Lord God of Israel, 
+Now when the adversaries of Judah and Benjamin heard that the descendants of the captivity were building the temple of the Lord God of Israel, 
 
 ###### 2 
 they came to Zerubbabel and the heads of the fathers' _houses,_ and said to them, "Let us build with you, for we seek your God as you _do;_ and we have sacrificed to Him since the days of Esarhaddon king of Assyria, who brought us here." 
 
 ###### 3 
-But Zerubbabel and Jeshua and the rest of the heads of the fathers' _houses_ of Israel said to them, "You may do nothing with us to build a [^b]house for our God; but we alone will build to the Lord God of Israel, as King Cyrus the king of Persia has commanded us." 
+But Zerubbabel and Jeshua and the rest of the heads of the fathers' _houses_ of Israel said to them, "You may do nothing with us to build a house for our God; but we alone will build to the Lord God of Israel, as King Cyrus the king of Persia has commanded us." 
 
 ###### 4 
 Then the people of the land tried to discourage the people of Judah. They troubled them in building, 
@@ -28,19 +28,19 @@ and hired counselors against them to frustrate their purpose all the days of Cyr
 In the reign of Ahasuerus, in the beginning of his reign, they wrote an accusation against the inhabitants of Judah and Jerusalem. 
 
 ###### 7 
-In the days of Artaxerxes also, [^c]Bishlam, Mithredath, Tabel, and the rest of their companions wrote to Artaxerxes king of Persia; and the letter _was_ written in Aramaic script, and translated into the Aramaic language. 
+In the days of Artaxerxes also, Bishlam, Mithredath, Tabel, and the rest of their companions wrote to Artaxerxes king of Persia; and the letter _was_ written in Aramaic script, and translated into the Aramaic language. 
 
 ###### 8 
-[^d]Rehum the commander and Shimshai the scribe wrote a letter against Jerusalem to King Artaxerxes in this fashion: 
+Rehum the commander and Shimshai the scribe wrote a letter against Jerusalem to King Artaxerxes in this fashion: 
 
 ###### 9 
-[^e]From Rehum the commander, Shimshai the scribe, and the rest of their companions--_representatives_ of the Dinaites, the Apharsathchites, the Tarpelites, the people of Persia and Erech and Babylon and [^f]Shushan, the Dehavites, the Elamites, 
+From Rehum the commander, Shimshai the scribe, and the rest of their companions--_representatives_ of the Dinaites, the Apharsathchites, the Tarpelites, the people of Persia and Erech and Babylon and Shushan, the Dehavites, the Elamites, 
 
 ###### 10 
-and the rest of the nations whom the great and noble Osnapper took captive and settled in the cities of Samaria and the remainder beyond [^g]the River--and[^h] so forth. 
+and the rest of the nations whom the great and noble Osnapper took captive and settled in the cities of Samaria and the remainder beyond the River--and so forth. 
 
 ###### 11 
-(This _is_ a copy of the letter that they sent him.) To King Artaxerxes from your servants, the men _of the region_ beyond the River, [^i]and so forth: 
+(This _is_ a copy of the letter that they sent him.) To King Artaxerxes from your servants, the men _of the region_ beyond the River, and so forth: 
 
 ###### 12 
 Let it be known to the king that the Jews who came up from you have come to us at Jerusalem, and are building the rebellious and evil city, and are finishing _its_ walls and repairing the foundations. 
@@ -58,19 +58,19 @@ that search may be made in the book of the records of your fathers. And you will
 We inform the king that if this city is rebuilt and its walls are completed, the result will be that you will have no dominion beyond the River. 
 
 ###### 17 
-The king sent an answer: To Rehum the commander, _to_ Shimshai the scribe, _to_ the rest of their companions who dwell in Samaria, and _to_ the remainder beyond the River: Peace, [^j]and so forth. 
+The king sent an answer: To Rehum the commander, _to_ Shimshai the scribe, _to_ the rest of their companions who dwell in Samaria, and _to_ the remainder beyond the River: Peace, and so forth. 
 
 ###### 18 
 The letter which you sent to us has been clearly read before me. 
 
 ###### 19 
-And [^k]I gave the command, and a search has been made, and it was found that this city in former times has revolted against kings, and rebellion and sedition have been fostered in it. 
+And I gave the command, and a search has been made, and it was found that this city in former times has revolted against kings, and rebellion and sedition have been fostered in it. 
 
 ###### 20 
 There have also been mighty kings over Jerusalem, who have ruled over all _the region_ beyond the River; and tax, tribute, and custom were paid to them. 
 
 ###### 21 
-Now [^l]give the command to make these men cease, that this city may not be built until the command is given by me. 
+Now give the command to make these men cease, that this city may not be built until the command is given by me. 
 
 ###### 22 
 Take heed now that you do not fail to do this. Why should damage increase to the hurt of the kings? 

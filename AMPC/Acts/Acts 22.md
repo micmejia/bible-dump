@@ -196,7 +196,7 @@ And I replied, Who are You, Lord? And He said to me, I am Jesus the Nazarene, Wh
 
 
 
-Now the men who were with me saw the light, but they did not hear [[^a]the sound of the uttered words of] the voice of the One Who was speaking to me [so that they could [^b]understand it]. 
+Now the men who were with me saw the light, but they did not hear [the sound of the uttered words of] the voice of the One Who was speaking to me [so that they could understand it]. 
 
 
 
@@ -280,7 +280,7 @@ And one Ananias, a devout man according to the Law, well spoken of by all the Je
 
 
 
-Came to see me, and standing by my side said to me, Brother Saul, [^c]look up _and_ receive back your sight. And in that very [^d]instant I [recovered my sight and] looking up saw him. 
+Came to see me, and standing by my side said to me, Brother Saul, look up _and_ receive back your sight. And in that very instant I [recovered my sight and] looking up saw him. 
 
 
 
@@ -343,7 +343,7 @@ For you will be His witness unto all men of everything that you have seen and he
 
 
 
-And now, why do you delay? Rise and be baptized, and [^e]by calling upon His name, wash away your sins. 
+And now, why do you delay? Rise and be baptized, and by calling upon His name, wash away your sins. 
 
 
 
@@ -364,7 +364,7 @@ And now, why do you delay? Rise and be baptized, and [^e]by calling upon His nam
 
 
 
-Then when I had come back to Jerusalem and was praying in the temple [[^f]enclosure], I fell into a trance (an ecstasy); 
+Then when I had come back to Jerusalem and was praying in the temple [enclosure], I fell into a trance (an ecstasy); 
 
 
 

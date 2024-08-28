@@ -172,7 +172,7 @@ Pagkatapos, ilagay mo ang mga tinapay sa basket at ihandog sa akin kasama ang ba
 
 
 
-Pagkatapos, ipasuot mo kay Aaron ang damit-panloob, ang damit-panlabas, ang espesyal na damit,[^a] at ang bulsa na nasa dibdib. Itali mo nang mabuti ang espesyal na damit gamit ang hinabing sinturon na maganda ang pagkakagawa. 
+Pagkatapos, ipasuot mo kay Aaron ang damit-panloob, ang damit-panlabas, ang espesyal na damit, at ang bulsa na nasa dibdib. Itali mo nang mabuti ang espesyal na damit gamit ang hinabing sinturon na maganda ang pagkakagawa. 
 
 
 
@@ -700,7 +700,7 @@ Katayin ninyo ito at kumuha ka ng dugo, at ipahid sa ibabang bahagi ng kanang ta
 
 
 
-Kumuha ka ng kaunting dugo sa altar at ihalo ito sa langis na pamahid,[^b] iwisik ito kay Aaron at sa mga anak niyang lalaki, at sa kanilang mga damit. Sa pamamagitan nito, maitatalaga si Aaron at ang mga anak niya, pati na ang mga damit nila. 
+Kumuha ka ng kaunting dugo sa altar at ihalo ito sa langis na pamahid, iwisik ito kay Aaron at sa mga anak niyang lalaki, at sa kanilang mga damit. Sa pamamagitan nito, maitatalaga si Aaron at ang mga anak niya, pati na ang mga damit nila. 
 
 
 

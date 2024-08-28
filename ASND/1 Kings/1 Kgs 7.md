@@ -40,7 +40,7 @@ next: ['1 Kgs 8']
 
 
 
-Nagpatayo rin si Solomon ng palasyo niya at inabot ng 13 taon ang pagpapatayo nito. ###### 2-3 Ang isa sa mga gusali nito ay tinawag na Kagubatan ng Lebanon. Ang haba nito ay 150 talampakan, ang luwang ay 75 talampakan at ang taas ay 45 talampakan. Ito ay may apat[^a] na hanay ng mga haliging sedro – 15 bawat hanay, at nakatukod ito sa 45 na pambalagbag sa ibabaw ng haligi kung saan nakakabit ang kisameng sedro. 
+Nagpatayo rin si Solomon ng palasyo niya at inabot ng 13 taon ang pagpapatayo nito. ###### 2-3 Ang isa sa mga gusali nito ay tinawag na Kagubatan ng Lebanon. Ang haba nito ay 150 talampakan, ang luwang ay 75 talampakan at ang taas ay 45 talampakan. Ito ay may apat na hanay ng mga haliging sedro – 15 bawat hanay, at nakatukod ito sa 45 na pambalagbag sa ibabaw ng haligi kung saan nakakabit ang kisameng sedro. 
 
 
 
@@ -172,7 +172,7 @@ Ang isa pang gusali ay ang lugar na pinagtitipunan, na may maraming haligi. Ang 
 
 
 
-Nagpatayo rin siya ng gusali kung saan inilagay niya ang kanyang trono. Ito rin ang lugar kung saan siya humahatol. Pinatakpan niya ito ng mga tablang sedro mula sa sahig hanggang sa kisame.[^b] 
+Nagpatayo rin siya ng gusali kung saan inilagay niya ang kanyang trono. Ito rin ang lugar kung saan siya humahatol. Pinatakpan niya ito ng mga tablang sedro mula sa sahig hanggang sa kisame. 
 
 
 
@@ -205,7 +205,7 @@ Nagpatayo rin siya ng gusali kung saan inilagay niya ang kanyang trono. Ito rin 
 
 
 
-Ang bahagi ng palasyo, kung saan nakatira si Solomon ay nasa likod lang ng gusali kung saan siya humahatol, at magkatulad ang pagkakagawa nito. Katulad din nito ang yari ng bahay na kanyang ipinagawa para sa kanyang asawa, na anak ng Faraon.[^c] 
+Ang bahagi ng palasyo, kung saan nakatira si Solomon ay nasa likod lang ng gusali kung saan siya humahatol, at magkatulad ang pagkakagawa nito. Katulad din nito ang yari ng bahay na kanyang ipinagawa para sa kanyang asawa, na anak ng Faraon. 
 
 
 
@@ -370,7 +370,7 @@ Ang maluwang na bakuran ay napapaligiran ng pader, na ang bawat tatlong patong n
 
 
 
-Ipinasundo ni Haring Solomon si Huram[^d] sa Tyre 
+Ipinasundo ni Haring Solomon si Huram sa Tyre 
 
 
 

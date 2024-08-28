@@ -25,7 +25,7 @@ Now therefore, please be careful not to drink wine or _similar_ drink, and not t
 For behold, you shall conceive and bear a son. And no razor shall come upon his head, for the child shall be a Nazirite to God from the womb; and he shall begin to deliver Israel out of the hand of the Philistines." 
 
 ###### 6 
-So the woman came and told her husband, saying, "A Man of God came to me, and His countenance[^a] _was_ like the countenance of the Angel of God, very awesome; but I did not ask Him where He _was_ from, and He did not tell me His name. 
+So the woman came and told her husband, saying, "A Man of God came to me, and His countenance _was_ like the countenance of the Angel of God, very awesome; but I did not ask Him where He _was_ from, and He did not tell me His name. 
 
 ###### 7 
 And He said to me, 'Behold, you shall conceive and bear a son. Now drink no wine or _similar_ drink, nor eat anything unclean, for the child shall be a Nazirite to God from the womb to the day of his death.' " 
@@ -82,4 +82,4 @@ But his wife said to him, "If the Lord had desired to kill us, He would not have
 So the woman bore a son and called his name Samson; and the child grew, and the Lord blessed him. 
 
 ###### 25 
-And the Spirit of the Lord began to move upon him at [^b]Mahaneh Dan between Zorah and Eshtaol.
+And the Spirit of the Lord began to move upon him at Mahaneh Dan between Zorah and Eshtaol.

@@ -153,7 +153,7 @@ I am so black; but [you are] lovely _and_ pleasant [the ladies assured her]. O y
 
 
 
-[Addressing her shepherd, she said] Tell me, O [^a]you whom my soul loves, where you pasture your flock, where you make it lie down at noon. For why should I [as I think of you] be as a veiled one straying beside the flocks of your companions? 
+[Addressing her shepherd, she said] Tell me, O you whom my soul loves, where you pasture your flock, where you make it lie down at noon. For why should I [as I think of you] be as a veiled one straying beside the flocks of your companions? 
 
 
 

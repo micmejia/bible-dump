@@ -91,7 +91,7 @@ And there appeared to them tongues resembling fire, which were separated _and_ d
 
 
 
-And they were all filled (diffused throughout their souls) with the Holy Spirit and began to speak in other (different, foreign) languages (tongues), as the Spirit [^a]kept giving them clear _and_ loud expression [in each tongue in appropriate words]. 
+And they were all filled (diffused throughout their souls) with the Holy Spirit and began to speak in other (different, foreign) languages (tongues), as the Spirit kept giving them clear _and_ loud expression [in each tongue in appropriate words]. 
 
 
 
@@ -364,7 +364,7 @@ But [instead] this is [the beginning of] what was spoken through the prophet Joe
 
 
 
-And it shall come to pass in the last days, God declares, that I will pour out of My Spirit upon all mankind, and your sons and your daughters shall prophesy [[^b]telling forth the divine counsels] and your young men shall see visions ([^c]divinely granted appearances), and your old men shall dream [[^d]divinely suggested] dreams. 
+And it shall come to pass in the last days, God declares, that I will pour out of My Spirit upon all mankind, and your sons and your daughters shall prophesy [telling forth the divine counsels] and your young men shall see visions (divinely granted appearances), and your old men shall dream [divinely suggested] dreams. 
 
 
 
@@ -385,7 +385,7 @@ And it shall come to pass in the last days, God declares, that I will pour out o
 
 
 
-Yes, and on My menservants also and on My maidservants in those days I will pour out of My Spirit, and they shall prophesy [[^e]telling forth the divine counsels and [^f]predicting future events pertaining especially to God's kingdom]. 
+Yes, and on My menservants also and on My maidservants in those days I will pour out of My Spirit, and they shall prophesy [telling forth the divine counsels and predicting future events pertaining especially to God's kingdom]. 
 
 
 
@@ -448,7 +448,7 @@ The sun shall be turned into darkness and the moon into blood before the obvious
 
 
 
-And it shall be that whoever shall call upon the name of the Lord [[^g]invoking, adoring, and worshiping the Lord--Christ] shall be saved. 
+And it shall be that whoever shall call upon the name of the Lord [invoking, adoring, and worshiping the Lord--Christ] shall be saved. 
 
 
 
@@ -700,7 +700,7 @@ This Jesus God raised up, and of that all we [His disciples] are witnesses.
 
 
 
-Being therefore lifted high by _and_ to the right hand of God, and having received from the Father [^h]the promised [blessing which is the] Holy Spirit, He has made this outpouring which you yourselves both see and hear. 
+Being therefore lifted high by _and_ to the right hand of God, and having received from the Father the promised [blessing which is the] Holy Spirit, He has made this outpouring which you yourselves both see and hear. 
 
 
 
@@ -847,7 +847,7 @@ For the promise [of the Holy Spirit] is to _and_ for you and your children, and 
 
 
 
-And [Peter] [^i]solemnly _and_ earnestly witnessed (testified) and admonished (exhorted) with much more continuous speaking _and_ warned (reproved, advised, encouraged) them, saying, Be saved from this crooked (perverse, wicked, unjust) generation. 
+And [Peter] solemnly _and_ earnestly witnessed (testified) and admonished (exhorted) with much more continuous speaking _and_ warned (reproved, advised, encouraged) them, saying, Be saved from this crooked (perverse, wicked, unjust) generation. 
 
 
 

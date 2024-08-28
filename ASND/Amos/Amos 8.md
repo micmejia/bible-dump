@@ -73,7 +73,7 @@ Ito ang ipinakita sa akin ng Panginoong Dios: Nakita ko ang isang basket na may 
 
 
 
-Tinanong niya ako, "Amos, ano ang nakikita mo?" Sumagot ako, "Isang basket po ng mga hinog na prutas." Sinabi sa akin ng Panginoon, "Dumating na ang katapusan[^a] ng mga mamamayan kong Israelita. Hindi ko na sila kaaawaan. 
+Tinanong niya ako, "Amos, ano ang nakikita mo?" Sumagot ako, "Isang basket po ng mga hinog na prutas." Sinabi sa akin ng Panginoon, "Dumating na ang katapusan ng mga mamamayan kong Israelita. Hindi ko na sila kaaawaan. 
 
 
 
@@ -106,7 +106,7 @@ Tinanong niya ako, "Amos, ano ang nakikita mo?" Sumagot ako, "Isang basket po ng
 
 
 
-Sa araw na iyon, ang <i class="trans-change">masasayang_ awitan sa templo[^b] ay magiging iyakan dahil kakalat ang patay kahit saan. At wala nang maririnig na ingay.[^c] <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito." ## Ang Kasalanan ng mga Mayayamang Israelita 
+Sa araw na iyon, ang <i class="trans-change">masasayang_ awitan sa templo ay magiging iyakan dahil kakalat ang patay kahit saan. At wala nang maririnig na ingay. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito." ## Ang Kasalanan ng mga Mayayamang Israelita 
 
 
 
@@ -172,7 +172,7 @@ Makinig kayo, kayong mga nanggigipit sa mga mahihirap at nagtatangkang lipulin s
 
 
 
-Inip na inip kayong matapos ang Pista ng Pagsisimula ng Buwan[^d] o Araw ng Pamamahinga para makapagbenta na kayo ng mga inaning butil at makapandaya sa mga mamimili sa pamamagitan ng inyong madayang timbangan at pantakal ng trigo. 
+Inip na inip kayong matapos ang Pista ng Pagsisimula ng Buwan o Araw ng Pamamahinga para makapagbenta na kayo ng mga inaning butil at makapandaya sa mga mamimili sa pamamagitan ng inyong madayang timbangan at pantakal ng trigo. 
 
 
 

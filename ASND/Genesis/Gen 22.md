@@ -73,7 +73,7 @@ Dumating ang panahon na sinubukan ng Dios si Abraham. Tinawag niya si Abraham, a
 
 
 
-Pagkatapos, sinabi niya, "Dalhin mo ang kaisa-isa[^a] at pinakamamahal mong anak na si Isaac, at pumunta kayo sa lupain ng Moria. Umakyat kayo sa bundok na ituturo ko sa iyo at ialay mo siya sa akin bilang handog na sinusunog." 
+Pagkatapos, sinabi niya, "Dalhin mo ang kaisa-isa at pinakamamahal mong anak na si Isaac, at pumunta kayo sa lupain ng Moria. Umakyat kayo sa bundok na ituturo ko sa iyo at ialay mo siya sa akin bilang handog na sinusunog." 
 
 
 
@@ -535,7 +535,7 @@ Muling tinawag ng anghel ng Panginoon si Abraham mula sa langit. <sup class="ver
 
 
 
-At sa pamamagitan ng iyong mga lahi,[^b] pagpapalain ko ang lahat ng bansa sa mundo, dahil sumunod ka sa akin." 
+At sa pamamagitan ng iyong mga lahi, pagpapalain ko ang lahat ng bansa sa mundo, dahil sumunod ka sa akin." 
 
 
 

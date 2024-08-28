@@ -106,7 +106,7 @@ Sa harap ng mga kasama niya at ng mga sundalo ng Samaria, sinabi niya, "Ano ba a
 
 
 
-Sinabi pa ng Ammonitang si Tobia na nasa tabi ni Sanbalat, "Kahit asong-gubat[^a] lang ang sumampa sa pader na iyan, mawawasak na iyan!" 
+Sinabi pa ng Ammonitang si Tobia na nasa tabi ni Sanbalat, "Kahit asong-gubat lang ang sumampa sa pader na iyan, mawawasak na iyan!" 
 
 
 
@@ -172,7 +172,7 @@ Sinabi pa ng Ammonitang si Tobia na nasa tabi ni Sanbalat, "Kahit asong-gubat[^a
 
 
 
-Huwag nʼyo po silang patawarin dahil sa panghahamak[^b] nila sa inyo sa harap naming mga gumagawa <i class="trans-change">ng pader_." 
+Huwag nʼyo po silang patawarin dahil sa panghahamak nila sa inyo sa harap naming mga gumagawa <i class="trans-change">ng pader_." 
 
 
 

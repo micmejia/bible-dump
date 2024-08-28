@@ -10,7 +10,7 @@ next: ['Phil 3']
 
 
 ###### 1 
-Therefore if _there is_ any [^a]consolation in Christ, if any comfort of love, if any fellowship of the Spirit, if any affection and mercy, 
+Therefore if _there is_ any consolation in Christ, if any comfort of love, if any fellowship of the Spirit, if any affection and mercy, 
 
 ###### 2 
 fulfill my joy by being like-minded, having the same love, _being_ of one accord, of one mind. 
@@ -25,10 +25,10 @@ Let each of you look out not only for his own interests, but also for the intere
 Let this mind be in you which was also in Christ Jesus, 
 
 ###### 6 
-who, being in the form of God, did not consider it [^b]robbery to be equal with God, 
+who, being in the form of God, did not consider it robbery to be equal with God, 
 
 ###### 7 
-but [^c]made Himself of no reputation, taking the form of a bondservant, _and_ coming in the likeness of men. 
+but made Himself of no reputation, taking the form of a bondservant, _and_ coming in the likeness of men. 
 
 ###### 8 
 And being found in appearance as a man, He humbled Himself and became obedient to _the point of_ death, even the death of the cross. 
@@ -49,10 +49,10 @@ Therefore, my beloved, as you have always obeyed, not as in my presence only, bu
 for it is God who works in you both to will and to do for _His_ good pleasure. 
 
 ###### 14 
-Do all things without [^d]complaining and disputing,[^e] 
+Do all things without complaining and disputing, 
 
 ###### 15 
-that you may become blameless and [^f]harmless, children of God without fault in the midst of a crooked and perverse generation, among whom you shine as lights in the world, 
+that you may become blameless and harmless, children of God without fault in the midst of a crooked and perverse generation, among whom you shine as lights in the world, 
 
 ###### 16 
 holding fast the word of life, so that I may rejoice in the day of Christ that I have not run in vain or labored in vain. 
@@ -64,7 +64,7 @@ Yes, and if I am being poured out _as a drink offering_ on the sacrifice and ser
 For the same reason you also be glad and rejoice with me. ## Timothy Commended 
 
 ###### 19 
-But I trust in the Lord Jesus to send Timothy to you shortly, that I also may be encouraged when I know your [^g]state. 
+But I trust in the Lord Jesus to send Timothy to you shortly, that I also may be encouraged when I know your state. 
 
 ###### 20 
 For I have no one like-minded, who will sincerely care for your state. 
@@ -97,4 +97,4 @@ Therefore I sent him the more eagerly, that when you see him again you may rejoi
 Receive him therefore in the Lord with all gladness, and hold such men in esteem; 
 
 ###### 30 
-because for the work of Christ he came close to death, [^h]not regarding his life, to supply what was lacking in your service toward me.
+because for the work of Christ he came close to death, not regarding his life, to supply what was lacking in your service toward me.

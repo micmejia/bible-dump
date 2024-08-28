@@ -40,7 +40,7 @@ next: ['1 Kgs 4']
 
 
 
-Nakipag-alyansa si Solomon sa Faraon na hari ng Egipto at naging asawa niya ang anak nito. Dinala niya ang kanyang asawa sa Lungsod ni David[^a] hanggang sa matapos niya ang pagpapatayo ng kanyang palasyo, ng templo ng Panginoon, at ng mga pader sa paligid ng Jerusalem. 
+Nakipag-alyansa si Solomon sa Faraon na hari ng Egipto at naging asawa niya ang anak nito. Dinala niya ang kanyang asawa sa Lungsod ni David hanggang sa matapos niya ang pagpapatayo ng kanyang palasyo, ng templo ng Panginoon, at ng mga pader sa paligid ng Jerusalem. 
 
 
 
@@ -73,7 +73,7 @@ Nakipag-alyansa si Solomon sa Faraon na hari ng Egipto at naging asawa niya ang 
 
 
 
-Wala pang templo noon para sa Panginoon, kaya ang mga tao ay naghahandog sa mga sambahan sa matataas na lugar.[^b] 
+Wala pang templo noon para sa Panginoon, kaya ang mga tao ay naghahandog sa mga sambahan sa matataas na lugar. 
 
 
 
@@ -502,7 +502,7 @@ At kung susunod ka sa aking mga pamamaraan at tutupad sa aking mga tuntunin at m
 
 
 
-Nagising si Solomon, at naunawaan niya na nakipag-usap ang Panginoon sa kanya sa pamamagitan ng panaginip. Pagbalik ni Solomon sa Jerusalem, tumayo siya sa harap ng Kahon ng Kasunduan ng Panginoon at nag-alay ng mga handog na sinusunog at mga handog para sa mabuting relasyon.[^c] Nagpahanda agad siya <i class="trans-change">ng mga pagkain_ para sa lahat ng pinuno niya. ## Ang Mahusay na Paghatol ni Solomon 
+Nagising si Solomon, at naunawaan niya na nakipag-usap ang Panginoon sa kanya sa pamamagitan ng panaginip. Pagbalik ni Solomon sa Jerusalem, tumayo siya sa harap ng Kahon ng Kasunduan ng Panginoon at nag-alay ng mga handog na sinusunog at mga handog para sa mabuting relasyon. Nagpahanda agad siya <i class="trans-change">ng mga pagkain_ para sa lahat ng pinuno niya. ## Ang Mahusay na Paghatol ni Solomon 
 
 
 

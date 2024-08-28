@@ -18,16 +18,16 @@ Hear this, you elders, And give ear, all you inhabitants of the land! Has _anyth
 Tell your children about it, _Let_ your children _tell_ their children, And their children another generation. 
 
 ###### 4 
-What the chewing [^a]locust left, the swarming locust has eaten; What the swarming locust left, the crawling locust has eaten; And what the crawling locust left, the consuming locust has eaten. 
+What the chewing locust left, the swarming locust has eaten; What the swarming locust left, the crawling locust has eaten; And what the crawling locust left, the consuming locust has eaten. 
 
 ###### 5 
 Awake, you drunkards, and weep; And wail, all you drinkers of wine, Because of the new wine, For it has been cut off from your mouth. 
 
 ###### 6 
-For a nation has come up against My land, Strong, and without number; His teeth _are_ the teeth of a lion, And he has the fangs of a [^b]fierce lion. 
+For a nation has come up against My land, Strong, and without number; His teeth _are_ the teeth of a lion, And he has the fangs of a fierce lion. 
 
 ###### 7 
-He has laid waste My vine, And [^c]ruined My fig tree; He has stripped it bare and thrown _it_ away; Its branches are made white. 
+He has laid waste My vine, And ruined My fig tree; He has stripped it bare and thrown _it_ away; Its branches are made white. 
 
 ###### 8 
 Lament like a virgin girded with sackcloth For the husband of her youth. 
@@ -60,10 +60,10 @@ Is not the food cut off before our eyes, Joy and gladness from the house of our 
 The seed shrivels under the clods, Storehouses are in shambles; Barns are broken down, For the grain has withered. 
 
 ###### 18 
-How the animals groan! The herds of cattle are restless, Because they have no pasture; Even the flocks of sheep [^d]suffer punishment. 
+How the animals groan! The herds of cattle are restless, Because they have no pasture; Even the flocks of sheep suffer punishment. 
 
 ###### 19 
-O Lord, to You I cry out; For fire has devoured the [^e]open pastures, And a flame has burned all the trees of the field. 
+O Lord, to You I cry out; For fire has devoured the open pastures, And a flame has burned all the trees of the field. 
 
 ###### 20 
-The beasts of the field also cry out to You, For the water brooks are dried up, And fire has devoured the [^f]open pastures.
+The beasts of the field also cry out to You, For the water brooks are dried up, And fire has devoured the open pastures.

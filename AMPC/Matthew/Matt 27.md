@@ -70,7 +70,7 @@ And they bound Him and led Him away and handed Him over to Pilate the governor.
 
 
 
-When Judas, His betrayer, saw that [Jesus] was condemned, [Judas was [^a]afflicted in mind and troubled for his former folly; and] with remorse [with little more than a selfish dread of the consequences] he brought back the thirty pieces of silver to the chief priests and the elders, 
+When Judas, His betrayer, saw that [Jesus] was condemned, [Judas was afflicted in mind and troubled for his former folly; and] with remorse [with little more than a selfish dread of the consequences] he brought back the thirty pieces of silver to the chief priests and the elders, 
 
 
 
@@ -112,7 +112,7 @@ Saying, I have sinned in betraying innocent blood. They replied, What is that to
 
 
 
-And casting the pieces of silver [forward] into the [Holy Place of the [^b]sanctuary of the] temple, he departed; and he went off and hanged himself. 
+And casting the pieces of silver [forward] into the [Holy Place of the sanctuary of the] temple, he departed; and he went off and hanged himself. 
 
 
 
@@ -511,7 +511,7 @@ They all replied, Let Him be crucified! And he said, Why? What has He done that 
 
 
 
-So when Pilate saw that he was getting nowhere, but rather that a riot was about to break out, he took water and washed his hands in the presence of the crowd, saying, I am not guilty of _nor_ responsible for this [^c]_righteous_ Man's blood; see to it yourselves. 
+So when Pilate saw that he was getting nowhere, but rather that a riot was about to break out, he took water and washed his hands in the presence of the crowd, saying, I am not guilty of _nor_ responsible for this _righteous_ Man's blood; see to it yourselves. 
 
 
 
@@ -595,7 +595,7 @@ Then the governor's soldiers took Jesus into the palace, and they gathered the w
 
 
 
-And they stripped off His clothes and put a scarlet robe ([^d]garment of dignity and office worn by Roman officers of rank) upon Him, 
+And they stripped off His clothes and put a scarlet robe (garment of dignity and office worn by Roman officers of rank) upon Him, 
 
 
 
@@ -742,7 +742,7 @@ They offered Him wine mingled with gall to drink; but when He tasted it, He refu
 
 
 
-And when they had crucified Him, they divided _and_ distributed His garments [among them] by casting lots [^e]_so that the prophet's saying was fulfilled, They parted My garments among them and over My apparel they cast lots_. 
+And when they had crucified Him, they divided _and_ distributed His garments [among them] by casting lots _so that the prophet's saying was fulfilled, They parted My garments among them and over My apparel they cast lots_. 
 
 
 
@@ -784,7 +784,7 @@ Then they sat down there and kept watch over Him.
 
 
 
-And over His head they put the accusation against Him ([^f]the cause of His death), which read, This is Jesus, the King of the Jews. 
+And over His head they put the accusation against Him (the cause of His death), which read, This is Jesus, the King of the Jews. 
 
 
 
@@ -847,7 +847,7 @@ And those who passed by spoke reproachfully _and_ abusively _and_ jeered at Him,
 
 
 
-And they said, You Who would tear down the [^g]sanctuary of the temple and rebuild it in three days, rescue Yourself [^h]from death. If You are the Son of God, come down from the cross. 
+And they said, You Who would tear down the sanctuary of the temple and rebuild it in three days, rescue Yourself from death. If You are the Son of God, come down from the cross. 
 
 
 
@@ -889,7 +889,7 @@ In the same way the chief priests, with the scribes and elders, made sport of Hi
 
 
 
-He rescued others [^i]from death; Himself He cannot rescue [^j]from death. He is the King of Israel? Let Him come down from the cross now, and we will believe in _and_ [^k]acknowledge _and_ cleave to Him. 
+He rescued others from death; Himself He cannot rescue from death. He is the King of Israel? Let Him come down from the cross now, and we will believe in _and_ acknowledge _and_ cleave to Him. 
 
 
 
@@ -973,7 +973,7 @@ Now from the sixth hour (noon) there was darkness over all the land until the ni
 
 
 
-And about the ninth hour (three o'clock) Jesus cried with a loud voice, Eli, Eli, lama sabachthani?--that is, My God, My God, why have You abandoned Me [leaving Me [^l]helpless, forsaking and failing Me in My need]? 
+And about the ninth hour (three o'clock) Jesus cried with a loud voice, Eli, Eli, lama sabachthani?--that is, My God, My God, why have You abandoned Me [leaving Me helpless, forsaking and failing Me in My need]? 
 
 
 
@@ -1015,7 +1015,7 @@ And some of the bystanders, when they heard it, said, This Man is calling for El
 
 
 
-And one of them immediately ran and took a sponge, soaked it with vinegar (a sour wine), and put it on a reed (staff), and was [^m]about to give it to Him to drink. 
+And one of them immediately ran and took a sponge, soaked it with vinegar (a sour wine), and put it on a reed (staff), and was about to give it to Him to drink. 
 
 
 
@@ -1036,7 +1036,7 @@ And one of them immediately ran and took a sponge, soaked it with vinegar (a sou
 
 
 
-But the others said, Wait! Let us see whether Elijah will come to save Him [^n]from death. 
+But the others said, Wait! Let us see whether Elijah will come to save Him from death. 
 
 
 
@@ -1078,7 +1078,7 @@ And Jesus cried again with a loud voice and gave up His spirit.
 
 
 
-And at once the curtain of the [^o]sanctuary of the temple was torn in two from top to bottom; the earth shook and the rocks were split. 
+And at once the curtain of the sanctuary of the temple was torn in two from top to bottom; the earth shook and the rocks were split. 
 
 
 
@@ -1099,7 +1099,7 @@ And at once the curtain of the [^o]sanctuary of the temple was torn in two from 
 
 
 
-The tombs were opened and many bodies of the saints who had fallen asleep [^p]in death were raised [to life]; 
+The tombs were opened and many bodies of the saints who had fallen asleep in death were raised [to life]; 
 
 
 
@@ -1246,7 +1246,7 @@ He went to Pilate and asked for the body of Jesus, and Pilate ordered that it be
 
 
 
-And Joseph took the body and [^q]rolled it up in a clean linen cloth [^r]used for swathing dead bodies 
+And Joseph took the body and rolled it up in a clean linen cloth used for swathing dead bodies 
 
 
 
@@ -1267,7 +1267,7 @@ And Joseph took the body and [^q]rolled it up in a clean linen cloth [^r]used fo
 
 
 
-And laid it in his own fresh ([^s]undefiled) tomb, which he had hewn in the rock; and he rolled a big boulder over the door of the tomb and went away. 
+And laid it in his own fresh (undefiled) tomb, which he had hewn in the rock; and he rolled a big boulder over the door of the tomb and went away. 
 
 
 
@@ -1330,7 +1330,7 @@ The next day, that is, the day after the day of Preparation [for the Sabbath], t
 
 
 
-And said, Sir, we have just remembered how that [^t]vagabond Imposter said while He was still alive, After three days I will rise again. 
+And said, Sir, we have just remembered how that vagabond Imposter said while He was still alive, After three days I will rise again. 
 
 
 

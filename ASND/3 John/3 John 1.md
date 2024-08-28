@@ -5,7 +5,7 @@ up: ['3 John']
 # 3 John 1
 
 ***
-###### 1-2 <i class="trans-change">Mula sa_ namumuno sa iglesya. Mahal na kaibigang Gaius, na lubos kong minamahal[^a]: Idinadalangin ko na maging malusog ka at sanaʼy nasa mabuting kalagayan, tulad ng buhay mong espiritwal na alam kong nasa mabuti ring kalagayan. 
+###### 1-2 <i class="trans-change">Mula sa_ namumuno sa iglesya. Mahal na kaibigang Gaius, na lubos kong minamahal: Idinadalangin ko na maging malusog ka at sanaʼy nasa mabuting kalagayan, tulad ng buhay mong espiritwal na alam kong nasa mabuti ring kalagayan. 
 
 
 

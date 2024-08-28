@@ -10,13 +10,13 @@ next: ['Mark 6']
 
 
 ###### 1 
-Then they came to the other side of the sea, to the country of the [^a]Gadarenes. 
+Then they came to the other side of the sea, to the country of the Gadarenes. 
 
 ###### 2 
 And when He had come out of the boat, immediately there met Him out of the tombs a man with an unclean spirit, 
 
 ###### 3 
-who had _his_ dwelling among the tombs; and no one could bind [^b]him, not even with chains, 
+who had _his_ dwelling among the tombs; and no one could bind him, not even with chains, 
 
 ###### 4 
 because he had often been bound with shackles and chains. And the chains had been pulled apart by him, and the shackles broken in pieces; neither could anyone tame him. 
@@ -28,7 +28,7 @@ And always, night and day, he was in the mountains and in the tombs, crying out 
 When he saw Jesus from afar, he ran and worshiped Him. 
 
 ###### 7 
-And he cried out with a loud voice and said, "What have I to do with You, Jesus, Son of the Most High God? I implore[^c] You by God that You do not torment me." 
+And he cried out with a loud voice and said, "What have I to do with You, Jesus, Son of the Most High God? I implore You by God that You do not torment me." 
 
 ###### 8 
 For He said to him, "Come out of the man, unclean spirit!" 
@@ -46,7 +46,7 @@ Now a large herd of swine was feeding there near the mountains.
 So all the demons begged Him, saying, "Send us to the swine, that we may enter them." 
 
 ###### 13 
-And [^d]at once Jesus gave them permission. Then the unclean spirits went out and entered the swine (there were about two thousand); and the herd ran violently down the steep place into the sea, and drowned in the sea. 
+And at once Jesus gave them permission. Then the unclean spirits went out and entered the swine (there were about two thousand); and the herd ran violently down the steep place into the sea, and drowned in the sea. 
 
 ###### 14 
 So those who fed the swine fled, and they told _it_ in the city and in the country. And they went out to see what it was that had happened. 
@@ -67,7 +67,7 @@ And when He got into the boat, he who had been demon-possessed begged Him that h
 However, Jesus did not permit him, but said to him, "Go home to your friends, and tell them what great things the Lord has done for you, and how He has had compassion on you." 
 
 ###### 20 
-And he departed and began to proclaim in [^e]Decapolis all that Jesus had done for him; and all marveled. ## A Girl Restored to Life and a Woman Healed 
+And he departed and began to proclaim in Decapolis all that Jesus had done for him; and all marveled. ## A Girl Restored to Life and a Woman Healed 
 
 ###### 21 
 Now when Jesus had crossed over again by boat to the other side, a great multitude gathered to Him; and He was by the sea. 
@@ -94,7 +94,7 @@ When she heard about Jesus, she came behind _Him_ in the crowd and touched His g
 For she said, "If only I may touch His clothes, I shall be made well." 
 
 ###### 29 
-Immediately the fountain of her blood was dried up, and she felt in _her_ body that she was healed of the [^f]affliction. 
+Immediately the fountain of her blood was dried up, and she felt in _her_ body that she was healed of the affliction. 
 
 ###### 30 
 And Jesus, immediately knowing in Himself that power had gone out of Him, turned around in the crowd and said, "Who touched My clothes?" 
@@ -121,7 +121,7 @@ As soon as Jesus heard the word that was spoken, He said to the ruler of the syn
 And He permitted no one to follow Him except Peter, James, and John the brother of James. 
 
 ###### 38 
-Then He came to the house of the ruler of the synagogue, and saw [^g]a tumult and those who wept and wailed loudly. 
+Then He came to the house of the ruler of the synagogue, and saw a tumult and those who wept and wailed loudly. 
 
 ###### 39 
 When He came in, He said to them, "Why make this commotion and weep? The child is not dead, but sleeping." 

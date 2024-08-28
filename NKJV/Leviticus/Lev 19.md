@@ -19,7 +19,7 @@ And the Lord spoke to Moses, saying,
 'Every one of you shall revere his mother and his father, and keep My Sabbaths: I _am_ the Lord your God. 
 
 ###### 4 
-'Do not turn to idols, nor make for yourselves [^a]molded gods: I _am_ the Lord your God. 
+'Do not turn to idols, nor make for yourselves molded gods: I _am_ the Lord your God. 
 
 ###### 5 
 'And if you offer a sacrifice of a peace offering to the Lord, you shall offer it of your own free will. 
@@ -58,7 +58,7 @@ You shall not curse the deaf, nor put a stumbling block before the blind, but sh
 You shall not go about _as_ a talebearer among your people; nor shall you take a stand against the life of your neighbor: I _am_ the Lord. 
 
 ###### 17 
-'You shall not hate your brother in your heart. You shall surely [^b]rebuke your neighbor, and not bear sin because of him. 
+'You shall not hate your brother in your heart. You shall surely rebuke your neighbor, and not bear sin because of him. 
 
 ###### 18 
 You shall not take vengeance, nor bear any grudge against the children of your people, but you shall love your neighbor as yourself: I _am_ the Lord. 
@@ -67,16 +67,16 @@ You shall not take vengeance, nor bear any grudge against the children of your p
 'You shall keep My statutes. You shall not let your livestock breed with another kind. You shall not sow your field with mixed seed. Nor shall a garment of mixed linen and wool come upon you. 
 
 ###### 20 
-'Whoever lies carnally with a woman who _is_ betrothed to a man as a concubine, and who has not at all been redeemed nor given her freedom, for this there shall be [^c]scourging; _but_ they shall not be put to death, because she was not free. 
+'Whoever lies carnally with a woman who _is_ betrothed to a man as a concubine, and who has not at all been redeemed nor given her freedom, for this there shall be scourging; _but_ they shall not be put to death, because she was not free. 
 
 ###### 21 
 And he shall bring his trespass offering to the Lord, to the door of the tabernacle of meeting, a ram as a trespass offering. 
 
 ###### 22 
-The priest shall make [^d]atonement for him with the ram of the trespass offering before the Lord for his sin which he has committed. And the sin which he has committed shall be forgiven him. 
+The priest shall make atonement for him with the ram of the trespass offering before the Lord for his sin which he has committed. And the sin which he has committed shall be forgiven him. 
 
 ###### 23 
-'When you come into the land, and have planted all kinds of trees for food, then you shall count their fruit as [^e]uncircumcised. Three years it shall be as uncircumcised to you. _It_ shall not be eaten. 
+'When you come into the land, and have planted all kinds of trees for food, then you shall count their fruit as uncircumcised. Three years it shall be as uncircumcised to you. _It_ shall not be eaten. 
 
 ###### 24 
 But in the fourth year all its fruit shall be holy, a praise to the Lord. 
@@ -97,19 +97,19 @@ You shall not make any cuttings in your flesh for the dead, nor tattoo any marks
 'Do not prostitute your daughter, to cause her to be a harlot, lest the land fall into harlotry, and the land become full of wickedness. 
 
 ###### 30 
-'You shall [^f]keep My Sabbaths and reverence My sanctuary: I _am_ the Lord. 
+'You shall keep My Sabbaths and reverence My sanctuary: I _am_ the Lord. 
 
 ###### 31 
 'Give no regard to mediums and familiar spirits; do not seek after them, to be defiled by them: I _am_ the Lord your God. 
 
 ###### 32 
-'You shall [^g]rise before the gray headed and honor the presence of an old man, and fear your God: I _am_ the Lord. 
+'You shall rise before the gray headed and honor the presence of an old man, and fear your God: I _am_ the Lord. 
 
 ###### 33 
 'And if a stranger dwells with you in your land, you shall not mistreat him. 
 
 ###### 34 
-The stranger who dwells among you shall be to you as [^h]one born among you, and you shall love him as yourself; for you were strangers in the land of Egypt: I _am_ the Lord your God. 
+The stranger who dwells among you shall be to you as one born among you, and you shall love him as yourself; for you were strangers in the land of Egypt: I _am_ the Lord your God. 
 
 ###### 35 
 'You shall do no injustice in judgment, in measurement of length, weight, or volume. 

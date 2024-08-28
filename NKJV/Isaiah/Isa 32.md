@@ -13,16 +13,16 @@ next: ['Isa 33']
 Behold, a king will reign in righteousness, And princes will rule with justice. 
 
 ###### 2 
-A man will be as a hiding place from the wind, And a [^a]cover from the tempest, As rivers of water in a dry place, As the shadow of a great rock in a weary land. 
+A man will be as a hiding place from the wind, And a cover from the tempest, As rivers of water in a dry place, As the shadow of a great rock in a weary land. 
 
 ###### 3 
 The eyes of those who see will not be dim, And the ears of those who hear will listen. 
 
 ###### 4 
-Also the heart of the [^b]rash will understand knowledge, And the tongue of the stammerers will be ready to speak plainly. 
+Also the heart of the rash will understand knowledge, And the tongue of the stammerers will be ready to speak plainly. 
 
 ###### 5 
-The foolish person will no longer be called [^c]generous, Nor the miser said _to be_ bountiful; 
+The foolish person will no longer be called generous, Nor the miser said _to be_ bountiful; 
 
 ###### 6 
 For the foolish person will speak foolishness, And his heart will work iniquity: To practice ungodliness, To utter error against the Lord, To keep the hungry unsatisfied, And he will cause the drink of the thirsty to fail. 
@@ -31,7 +31,7 @@ For the foolish person will speak foolishness, And his heart will work iniquity:
 Also the schemes of the schemer _are_ evil; He devises wicked plans To destroy the poor with lying words, Even when the needy speaks justice. 
 
 ###### 8 
-But a [^d]generous man devises generous things, And by generosity he shall stand. ## Consequences of Complacency 
+But a generous man devises generous things, And by generosity he shall stand. ## Consequences of Complacency 
 
 ###### 9 
 Rise up, you women who are at ease, Hear my voice; You complacent daughters, Give ear to my speech. 

@@ -172,7 +172,7 @@ Dahil sa pananampalataya, nag-alay si Abel ng mas mabuting handog kaysa kay Cain
 
 
 
-Dahil sa pananampalataya, hindi namatay si Enoc kundi dinala siya sa langit,[^a] "Hindi na siya nakita pa dahil dinala siya ng Dios."[^b] Ayon sa Kasulatan dinala siya dahil nalugod ang Dios sa buhay niya. 
+Dahil sa pananampalataya, hindi namatay si Enoc kundi dinala siya sa langit, "Hindi na siya nakita pa dahil dinala siya ng Dios." Ayon sa Kasulatan dinala siya dahil nalugod ang Dios sa buhay niya. 
 
 
 
@@ -403,7 +403,7 @@ Dahil sa pananampalataya, nagkaanak si Abraham kahit na matanda na siya at baog 
 
 
 
-Kaya mula kay Abraham, na wala nang pag-asang magkaanak pa,[^c] nagmula ang isang lahi na kasindami ng mga bituin sa langit at buhangin sa dalampasigan. 
+Kaya mula kay Abraham, na wala nang pag-asang magkaanak pa, nagmula ang isang lahi na kasindami ng mga bituin sa langit at buhangin sa dalampasigan. 
 
 
 
@@ -535,7 +535,7 @@ Kung ang bayang iniwan nila ang iniisip nila, may pagkakataon pa silang makabali
 
 
 
-Ngunit hinahangad nila ang mas mabuting lugar, at itoʼy walang iba kundi ang <i class="trans-change">lungsod na nasa_ langit. Kaya hindi ikinakahiya ng Dios na siyaʼy tawagin nilang Dios, dahil ipinaghanda niya sila ng isang lungsod. <sup class="versenum">17-18</sup>Dahil sa pananampalataya, handang ihandog ni Abraham ang kaisa-isa niyang anak na si Isaac nang subukin siya ng Dios. Kahit na alam niyang si Isaac ang ipinangako ng Dios na pagmumulan ng kanyang lahi, handa pa rin niya itong ialay.[^d] 
+Ngunit hinahangad nila ang mas mabuting lugar, at itoʼy walang iba kundi ang <i class="trans-change">lungsod na nasa_ langit. Kaya hindi ikinakahiya ng Dios na siyaʼy tawagin nilang Dios, dahil ipinaghanda niya sila ng isang lungsod. <sup class="versenum">17-18</sup>Dahil sa pananampalataya, handang ihandog ni Abraham ang kaisa-isa niyang anak na si Isaac nang subukin siya ng Dios. Kahit na alam niyang si Isaac ang ipinangako ng Dios na pagmumulan ng kanyang lahi, handa pa rin niya itong ialay. 
 
 
 

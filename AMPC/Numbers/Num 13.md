@@ -595,7 +595,7 @@ They told Moses, We came to the land to which you sent us; surely it flows with 
 
 
 
-But the people who dwell there are strong, and the cities are [^a]fortified _and_ very large; moreover, there we saw the sons of Anak [of great stature and courage]. 
+But the people who dwell there are strong, and the cities are fortified _and_ very large; moreover, there we saw the sons of Anak [of great stature and courage]. 
 
 
 

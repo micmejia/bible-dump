@@ -40,7 +40,7 @@ next: ['1 Chr 7']
 
 
 
-Ito ang mga anak na lalaki ni Levi: sina Gershon,[^a] Kohat at Merari. 
+Ito ang mga anak na lalaki ni Levi: sina Gershon, Kohat at Merari. 
 
 
 
@@ -766,7 +766,7 @@ Sa mga angkan ni Kohat: sina Aminadab, Kora, Asir,
 
 
 
-Elkana, Ebiasaf,[^b] Asir, 
+Elkana, Ebiasaf, Asir, 
 
 
 
@@ -898,7 +898,7 @@ Elkana, Zofai, Nahat,
 
 
 
-Eliab, Jeroham, Elkana at Samuel.[^c] 
+Eliab, Jeroham, Elkana at Samuel. 
 
 
 
@@ -931,7 +931,7 @@ Eliab, Jeroham, Elkana at Samuel.[^c]
 
 
 
-Ang mga anak na lalaki ni Samuel ay si Joel,[^d] ang panganay, at ang ikalawa ay si Abijah. 
+Ang mga anak na lalaki ni Samuel ay si Joel, ang panganay, at ang ikalawa ay si Abijah. 
 
 
 
@@ -1921,7 +1921,7 @@ Kaya ibinigay sa angkan ni Aaron ang mga sumusunod na lupain kabilang ang mga pa
 
 
 
-Hilen,[^e] Debir, 
+Hilen, Debir, 
 
 
 
@@ -1954,7 +1954,7 @@ Hilen,[^e] Debir,
 
 
 
-Ashan,[^f] Juta,[^g] at Bet Shemesh. 
+Ashan, Juta, at Bet Shemesh. 
 
 
 
@@ -1987,7 +1987,7 @@ Ashan,[^f] Juta,[^g] at Bet Shemesh.
 
 
 
-At mula sa lupain ng lahi ni Benjamin ay ibinigay sa kanila ang Gibeon,[^h] Geba, Alemet at Anatot, pati na ang mga pastulan nito. Ang bayan na ibinigay sa angkang ito ni Kohat ay 13 lahat. 
+At mula sa lupain ng lahi ni Benjamin ay ibinigay sa kanila ang Gibeon, Geba, Alemet at Anatot, pati na ang mga pastulan nito. Ang bayan na ibinigay sa angkang ito ni Kohat ay 13 lahat. 
 
 
 
@@ -2548,7 +2548,7 @@ Mula sa lahi ni Naftali: Kedesh sa Galilea, Hammon at Kiriataim, pati ang mga pa
 
 
 
-Ang mga natirang angkan ni Merari ay binigyan ng mga sumusunod na lupain: Mula sa lahi ni Zebulun: Jokneam, Karta,[^i] Rimono at Tabor, pati ang mga pastulan nito. 
+Ang mga natirang angkan ni Merari ay binigyan ng mga sumusunod na lupain: Mula sa lahi ni Zebulun: Jokneam, Karta, Rimono at Tabor, pati ang mga pastulan nito. 
 
 
 
@@ -2581,7 +2581,7 @@ Ang mga natirang angkan ni Merari ay binigyan ng mga sumusunod na lupain: Mula s
 
 
 
-Mula sa lahi ni Reuben na nasa kabilang Ilog ng Jordan sa silangan ng Jerico: Bezer sa may disyerto, Jaza,[^j] 
+Mula sa lahi ni Reuben na nasa kabilang Ilog ng Jordan sa silangan ng Jerico: Bezer sa may disyerto, Jaza, 
 
 
 

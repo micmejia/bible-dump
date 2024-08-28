@@ -10,7 +10,7 @@ next: ['Rom 9']
 
 
 ###### 1 
-_There is_ therefore now no condemnation to those who are in Christ Jesus, who[^a] do not walk according to the flesh, but according to the Spirit. 
+_There is_ therefore now no condemnation to those who are in Christ Jesus, who do not walk according to the flesh, but according to the Spirit. 
 
 ###### 2 
 For the law of the Spirit of life in Christ Jesus has made me free from the law of sin and death. 
@@ -25,10 +25,10 @@ that the righteous requirement of the law might be fulfilled in us who do not wa
 For those who live according to the flesh set their minds on the things of the flesh, but those _who live_ according to the Spirit, the things of the Spirit. 
 
 ###### 6 
-For to be [^b]carnally minded _is_ death, but to be spiritually minded _is_ life and peace. 
+For to be carnally minded _is_ death, but to be spiritually minded _is_ life and peace. 
 
 ###### 7 
-Because the [^c]carnal mind _is_ enmity against God; for it is not subject to the law of God, nor indeed can be. 
+Because the carnal mind _is_ enmity against God; for it is not subject to the law of God, nor indeed can be. 
 
 ###### 8 
 So then, those who are in the flesh cannot please God. 
@@ -40,7 +40,7 @@ But you are not in the flesh but in the Spirit, if indeed the Spirit of God dwel
 And if Christ _is_ in you, the body _is_ dead because of sin, but the Spirit _is_ life because of righteousness. 
 
 ###### 11 
-But if the Spirit of Him who raised Jesus from the dead dwells in you, He who raised Christ from the dead will also give life to your mortal bodies [^d]through His Spirit who dwells in you. ## Sonship Through the Spirit 
+But if the Spirit of Him who raised Jesus from the dead dwells in you, He who raised Christ from the dead will also give life to your mortal bodies through His Spirit who dwells in you. ## Sonship Through the Spirit 
 
 ###### 12 
 Therefore, brethren, we are debtors--not to the flesh, to live according to the flesh. 
@@ -52,7 +52,7 @@ For if you live according to the flesh you will die; but if by the Spirit you pu
 For as many as are led by the Spirit of God, these are sons of God. 
 
 ###### 15 
-For you did not receive the spirit of bondage again to fear, but you received the Spirit of adoption by whom we cry out, "Abba,[^e] Father." 
+For you did not receive the spirit of bondage again to fear, but you received the Spirit of adoption by whom we cry out, "Abba, Father." 
 
 ###### 16 
 The Spirit Himself bears witness with our spirit that we are children of God, 
@@ -70,7 +70,7 @@ For the earnest expectation of the creation eagerly waits for the revealing of t
 For the creation was subjected to futility, not willingly, but because of Him who subjected _it_ in hope; 
 
 ###### 21 
-because the creation itself also will be delivered from the bondage of [^f]corruption into the glorious liberty of the children of God. 
+because the creation itself also will be delivered from the bondage of corruption into the glorious liberty of the children of God. 
 
 ###### 22 
 For we know that the whole creation groans and labors with birth pangs together until now. 
@@ -85,7 +85,7 @@ For we were saved in this hope, but hope that is seen is not hope; for why does 
 But if we hope for what we do not see, we eagerly wait for _it_ with perseverance. 
 
 ###### 26 
-Likewise the Spirit also helps in our weaknesses. For we do not know what we should pray for as we ought, but the Spirit Himself makes intercession [^g]for us with groanings which cannot be uttered. 
+Likewise the Spirit also helps in our weaknesses. For we do not know what we should pray for as we ought, but the Spirit Himself makes intercession for us with groanings which cannot be uttered. 
 
 ###### 27 
 Now He who searches the hearts knows what the mind of the Spirit _is,_ because He makes intercession for the saints according to _the will of_ God. 

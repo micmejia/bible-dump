@@ -502,7 +502,7 @@ Isa sa mga nakikinig sa amin ay si Lydia na taga-Tyatira. Siyaʼy isang negosyan
 
 
 
-Nagpabautismo siya at ang kanyang pamilya.[^a] Pagkatapos, sinabi niya, "Kung naniniwala kayo na ako ay isa nang tunay na mananampalataya sa Panginoon, doon na kayo tumuloy sa aking bahay." At nakumbinsi niya kaming <i class="trans-change">tumuloy sa bahay nila_. ## Sina Pablo at Silas sa Bilangguan 
+Nagpabautismo siya at ang kanyang pamilya. Pagkatapos, sinabi niya, "Kung naniniwala kayo na ako ay isa nang tunay na mananampalataya sa Panginoon, doon na kayo tumuloy sa aking bahay." At nakumbinsi niya kaming <i class="trans-change">tumuloy sa bahay nila_. ## Sina Pablo at Silas sa Bilangguan 
 
 
 
@@ -733,7 +733,7 @@ Nagtuturo sila ng mga kaugaliang labag sa kautusan nating mga Romano. Hindi nati
 
 
 
-Nakiisa ang mga tao sa pag-uusig[^b] kina Pablo. Pinahubaran sila ng mga opisyal at ipinahagupit. 
+Nakiisa ang mga tao sa pag-uusig kina Pablo. Pinahubaran sila ng mga opisyal at ipinahagupit. 
 
 
 

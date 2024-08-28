@@ -9,7 +9,7 @@ next: ['1 Thess 2']
 
 
 ###### 1 
-Paul, Silvanus, and Timothy, To the church of the Thessalonians in God the Father and the Lord Jesus Christ: Grace to you and peace [^a]from God our Father and the Lord Jesus Christ. ## Their Good Example 
+Paul, Silvanus, and Timothy, To the church of the Thessalonians in God the Father and the Lord Jesus Christ: Grace to you and peace from God our Father and the Lord Jesus Christ. ## Their Good Example 
 
 ###### 2 
 We give thanks to God always for you all, making mention of you in our prayers, 

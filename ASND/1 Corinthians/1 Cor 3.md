@@ -634,7 +634,7 @@ Huwag ninyong dayain ang inyong sarili. Kung mayroon man sa inyong nag-aakala na
 
 
 
-Sapagkat ang karunungan ng mundo ay kamangmangan lamang sa paningin ng Dios. Ayon nga sa Kasulatan, "Hinuhuli ng Dios ang marurunong sa kanilang katusuhan,"[^a] 
+Sapagkat ang karunungan ng mundo ay kamangmangan lamang sa paningin ng Dios. Ayon nga sa Kasulatan, "Hinuhuli ng Dios ang marurunong sa kanilang katusuhan," 
 
 
 
@@ -733,7 +733,7 @@ Kaya huwag ninyong ipagmalaki ang sinuman. Sapagkat lahat ay <i class="trans-cha
 
 
 
-Ako, si Apolos, at si Pedro[^b], kaming lahat ay inyo. Maging ang mundo, ang buhay at kamatayan, ang kasalukuyan at hinaharap, lahat ng itoʼy sa inyo. 
+Ako, si Apolos, at si Pedro, kaming lahat ay inyo. Maging ang mundo, ang buhay at kamatayan, ang kasalukuyan at hinaharap, lahat ng itoʼy sa inyo. 
 
 
 

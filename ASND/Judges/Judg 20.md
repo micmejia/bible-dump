@@ -964,7 +964,7 @@ Dahil tumakas ang mga Israelita, akala ng mga taga-Benjamin ay magtatagumpay sil
 
 
 
-Nang nakarating ang mga Israelita sa Baal Tamar, pumwesto sila roon habang ang mga nag-aabang sa paligid[^a] ng Gibea ay nagsisilabasan. 
+Nang nakarating ang mga Israelita sa Baal Tamar, pumwesto sila roon habang ang mga nag-aabang sa paligid ng Gibea ay nagsisilabasan. 
 
 
 

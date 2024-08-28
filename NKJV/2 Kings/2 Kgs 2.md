@@ -16,7 +16,7 @@ And it came to pass, when the Lord was about to take up Elijah into heaven by a 
 Then Elijah said to Elisha, "Stay here, please, for the Lord has sent me on to Bethel." But Elisha said, "_As_ the Lord lives, and _as_ your soul lives, I will not leave you!" So they went down to Bethel. 
 
 ###### 3 
-Now the sons of the prophets who _were_ at Bethel came out to Elisha, and said to him, "Do you know that the Lord will take away your master [^a]from over you today?" And he said, "Yes, I know; keep silent!" 
+Now the sons of the prophets who _were_ at Bethel came out to Elisha, and said to him, "Do you know that the Lord will take away your master from over you today?" And he said, "Yes, I know; keep silent!" 
 
 ###### 4 
 Then Elijah said to him, "Elisha, stay here, please, for the Lord has sent me on to Jericho." But he said, "_As_ the Lord lives, and _as_ your soul lives, I will not leave you!" So they came to Jericho. 
@@ -52,7 +52,7 @@ He also took up the mantle of Elijah that had fallen from him, and went back and
 Then he took the mantle of Elijah that had fallen from him, and struck the water, and said, "Where _is_ the Lord God of Elijah?" And when he also had struck the water, it was divided this way and that; and Elisha crossed over. 
 
 ###### 15 
-Now when the sons of the prophets who _were_ from[^b] Jericho saw him, they said, "The spirit of Elijah rests on Elisha." And they came to meet him, and bowed to the ground before him. 
+Now when the sons of the prophets who _were_ from Jericho saw him, they said, "The spirit of Elijah rests on Elisha." And they came to meet him, and bowed to the ground before him. 
 
 ###### 16 
 Then they said to him, "Look now, there are fifty strong men with your servants. Please let them go and search for your master, lest perhaps the Spirit of the Lord has taken him up and cast him upon some mountain or into some valley." And he said, "You shall not send anyone." 
@@ -70,7 +70,7 @@ Then the men of the city said to Elisha, "Please notice, the situation of this c
 And he said, "Bring me a new bowl, and put salt in it." So they brought _it_ to him. 
 
 ###### 21 
-Then he went out to the source of the water, and cast in the salt there, and said, "Thus says the Lord: 'I have [^c]healed this water; from it there shall be no more death or barrenness.' " 
+Then he went out to the source of the water, and cast in the salt there, and said, "Thus says the Lord: 'I have healed this water; from it there shall be no more death or barrenness.' " 
 
 ###### 22 
 So the water remains healed to this day, according to the word of Elisha which he spoke. 

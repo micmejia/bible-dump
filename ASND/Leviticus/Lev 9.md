@@ -139,7 +139,7 @@ Sabihin mo sa mga taga-Israel na magdala sila ng lalaking kambing bilang handog 
 
 
 
-Kumuha rin sila ng isang baka at lalaking tupa bilang handog para sa mabuting relasyon.[^a] Ihahandog nila ito kasama ng handog na butil na may halong langis, dahil magpapakita ang Panginoon sa inyo sa araw na ito." 
+Kumuha rin sila ng isang baka at lalaking tupa bilang handog para sa mabuting relasyon. Ihahandog nila ito kasama ng handog na butil na may halong langis, dahil magpapakita ang Panginoon sa inyo sa araw na ito." 
 
 
 
@@ -238,7 +238,7 @@ Sinabi ni Moises <i class="trans-change">sa kanila_, "Inuutusan kayo ng Panginoo
 
 
 
-Pagkatapos, sinabi niya kay Aaron, "Lumapit ka sa altar at ialay mo ang iyong handog sa paglilinis at handog na sinusunog para matubos ka at ang sambahayan mo[^b] sa inyong mga kasalanan. At ialay mo rin ang handog ng mga tao para sila rin ay matubos sa kanilang mga kasalanan ayon sa iniutos ng Panginoon." 
+Pagkatapos, sinabi niya kay Aaron, "Lumapit ka sa altar at ialay mo ang iyong handog sa paglilinis at handog na sinusunog para matubos ka at ang sambahayan mo sa inyong mga kasalanan. At ialay mo rin ang handog ng mga tao para sila rin ay matubos sa kanilang mga kasalanan ayon sa iniutos ng Panginoon." 
 
 
 

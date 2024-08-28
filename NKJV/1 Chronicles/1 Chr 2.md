@@ -10,7 +10,7 @@ next: ['1 Chr 3']
 
 
 ###### 1 
-These _were_ the sons of [^a]Israel: Reuben, Simeon, Levi, Judah, Issachar, Zebulun, 
+These _were_ the sons of Israel: Reuben, Simeon, Levi, Judah, Issachar, Zebulun, 
 
 ###### 2 
 Dan, Joseph, Benjamin, Naphtali, Gad, and Asher. ## From Judah to David 
@@ -25,28 +25,28 @@ And Tamar, his daughter-in-law, bore him Perez and Zerah. All the sons of Judah 
 The sons of Perez _were_ Hezron and Hamul. 
 
 ###### 6 
-The sons of Zerah _were_ [^b]Zimri, Ethan, Heman, Calcol, and [^c]Dara--five of them in all. 
+The sons of Zerah _were_ Zimri, Ethan, Heman, Calcol, and Dara--five of them in all. 
 
 ###### 7 
-The son of Carmi _was_ [^d]Achar, the troubler of Israel, who transgressed in the accursed[^e] thing. 
+The son of Carmi _was_ Achar, the troubler of Israel, who transgressed in the accursed thing. 
 
 ###### 8 
 The son of Ethan _was_ Azariah. 
 
 ###### 9 
-Also the sons of Hezron who were born to him _were_ Jerahmeel, [^f]Ram, and [^g]Chelubai. 
+Also the sons of Hezron who were born to him _were_ Jerahmeel, Ram, and Chelubai. 
 
 ###### 10 
 Ram begot Amminadab, and Amminadab begot Nahshon, leader of the children of Judah; 
 
 ###### 11 
-Nahshon begot [^h]Salma, and Salma begot Boaz; 
+Nahshon begot Salma, and Salma begot Boaz; 
 
 ###### 12 
 Boaz begot Obed, and Obed begot Jesse; 
 
 ###### 13 
-Jesse begot Eliab his firstborn, Abinadab the second, [^i]Shimea the third, 
+Jesse begot Eliab his firstborn, Abinadab the second, Shimea the third, 
 
 ###### 14 
 Nethanel the fourth, Raddai the fifth, 
@@ -58,13 +58,13 @@ Ozem the sixth, _and_ David the seventh.
 Now their sisters _were_ Zeruiah and Abigail. And the sons of Zeruiah _were_ Abishai, Joab, and Asahel--three. 
 
 ###### 17 
-Abigail bore Amasa; and the father of Amasa _was_ [^j]Jether the Ishmaelite. ## The Family of Hezron 
+Abigail bore Amasa; and the father of Amasa _was_ Jether the Ishmaelite. ## The Family of Hezron 
 
 ###### 18 
 Caleb the son of Hezron had children by Azubah, _his_ wife, and by Jerioth. Now these were her sons: Jesher, Shobab, and Ardon. 
 
 ###### 19 
-When Azubah died, Caleb [^k]took Ephrath[^l] as his wife, who bore him Hur. 
+When Azubah died, Caleb took Ephrath as his wife, who bore him Hur. 
 
 ###### 20 
 And Hur begot Uri, and Uri begot Bezalel. 
@@ -73,7 +73,7 @@ And Hur begot Uri, and Uri begot Bezalel.
 Now afterward Hezron went in to the daughter of Machir the father of Gilead, whom he married when he _was_ sixty years old; and she bore him Segub. 
 
 ###### 22 
-Segub begot Jair,[^m] who had twenty-three cities in the land of Gilead. 
+Segub begot Jair, who had twenty-three cities in the land of Gilead. 
 
 ###### 23 
 (Geshur and Syria took from them the towns of Jair, with Kenath and its towns--sixty towns.) All these _belonged to_ the sons of Machir the father of Gilead. 
@@ -154,22 +154,22 @@ And the sons of Jahdai _were_ Regem, Jotham, Geshan, Pelet, Ephah, and Shaaph.
 Maachah, Caleb's concubine, bore Sheber and Tirhanah. 
 
 ###### 49 
-She also bore Shaaph the father of Madmannah, Sheva the father of Machbenah and the father of Gibea. And the daughter of Caleb _was_ Achsah.[^n] 
+She also bore Shaaph the father of Madmannah, Sheva the father of Machbenah and the father of Gibea. And the daughter of Caleb _was_ Achsah. 
 
 ###### 50 
-These were the descendants of Caleb: The sons of Hur, the firstborn of [^o]Ephrathah, _were_ Shobal the father of Kirjath Jearim, 
+These were the descendants of Caleb: The sons of Hur, the firstborn of Ephrathah, _were_ Shobal the father of Kirjath Jearim, 
 
 ###### 51 
 Salma the father of Bethlehem, _and_ Hareph the father of Beth Gader. 
 
 ###### 52 
-And Shobal the father of Kirjath Jearim had descendants: [^p]Haroeh, _and_ half of the [^q]_families of_ Manuhoth. 
+And Shobal the father of Kirjath Jearim had descendants: Haroeh, _and_ half of the _families of_ Manuhoth. 
 
 ###### 53 
 The families of Kirjath Jearim _were_ the Ithrites, the Puthites, the Shumathites, and the Mishraites. From these came the Zorathites and the Eshtaolites. 
 
 ###### 54 
-The sons of Salma _were_ Bethlehem, the Netophathites, [^r]Atroth Beth Joab, half of the Manahethites, and the Zorites. 
+The sons of Salma _were_ Bethlehem, the Netophathites, Atroth Beth Joab, half of the Manahethites, and the Zorites. 
 
 ###### 55 
 And the families of the scribes who dwelt at Jabez _were_ the Tirathites, the Shimeathites, _and_ the Suchathites. These _were_ the Kenites who came from Hammath, the father of the house of Rechab.

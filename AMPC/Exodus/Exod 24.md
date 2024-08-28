@@ -91,7 +91,7 @@ Moses came and told the people all that the Lord had said and all the ordinances
 
 
 
-Moses [^a]wrote all the words of the Lord. He rose up early in the morning and built an altar at the foot of the mountain and set up twelve pillars representing Israel's twelve tribes. 
+Moses wrote all the words of the Lord. He rose up early in the morning and built an altar at the foot of the mountain and set up twelve pillars representing Israel's twelve tribes. 
 
 
 
@@ -259,7 +259,7 @@ And upon the nobles of the Israelites He laid not His hand [to conceal Himself f
 
 
 
-And the Lord said to Moses, Come up to Me into the mountain and be there, and I will give you tables of stone, with the law and the commandments which [^b]I have written that you may teach them. 
+And the Lord said to Moses, Come up to Me into the mountain and be there, and I will give you tables of stone, with the law and the commandments which I have written that you may teach them. 
 
 
 

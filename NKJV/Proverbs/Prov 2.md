@@ -61,10 +61,10 @@ To deliver you from the immoral woman, From the seductress _who_ flatters with h
 Who forsakes the companion of her youth, And forgets the covenant of her God. 
 
 ###### 18 
-For her house [^a]leads down to death, And her paths to the dead; 
+For her house leads down to death, And her paths to the dead; 
 
 ###### 19 
-None who go to her return, Nor do they [^b]regain the paths of life-- 
+None who go to her return, Nor do they regain the paths of life-- 
 
 ###### 20 
 So you may walk in the way of goodness, And keep _to_ the paths of righteousness. 
@@ -73,4 +73,4 @@ So you may walk in the way of goodness, And keep _to_ the paths of righteousness
 For the upright will dwell in the land, And the blameless will remain in it; 
 
 ###### 22 
-But the wicked will be [^c]cut off from the [^d]earth, And the unfaithful will be uprooted from it.
+But the wicked will be cut off from the earth, And the unfaithful will be uprooted from it.

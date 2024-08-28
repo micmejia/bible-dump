@@ -270,7 +270,7 @@ Sinabi pa ng Panginoon, "Matutulad ang Jerusalem sa isang babaeng manganganak na
 
 
 
-Sino ang nakarinig at nakakita ng katulad nito? May bansa ba o lupain na biglang isinilang sa maikling panahon? Pero kapag nakaramdam na ng paghihirap ang Jerusalem, isisilang na ang kanyang mamamayan.[^a] 
+Sino ang nakarinig at nakakita ng katulad nito? May bansa ba o lupain na biglang isinilang sa maikling panahon? Pero kapag nakaramdam na ng paghihirap ang Jerusalem, isisilang na ang kanyang mamamayan. 
 
 
 
@@ -633,7 +633,7 @@ Alam ko ang kanilang ginagawa at iniisip. Kaya darating ako at titipunin ko ang 
 
 
 
-Magpapakita ako ng himala sa kanila. At ang mga natitira sa kanila ay susuguin ko sa mga bansang Tarshish, Pul, Lud (ang mga mamamayan nito ay tanyag sa paggamit ng pana), Tubal, Grecia,[^b] at sa iba pang malalayong lugar na hindi nakabalita tungkol sa aking kadakilaan at hindi nakakita ng aking kapangyarihan. Ipapahayag nila ang aking kapangyarihan sa mga bansa. 
+Magpapakita ako ng himala sa kanila. At ang mga natitira sa kanila ay susuguin ko sa mga bansang Tarshish, Pul, Lud (ang mga mamamayan nito ay tanyag sa paggamit ng pana), Tubal, Grecia, at sa iba pang malalayong lugar na hindi nakabalita tungkol sa aking kadakilaan at hindi nakakita ng aking kapangyarihan. Ipapahayag nila ang aking kapangyarihan sa mga bansa. 
 
 
 
@@ -666,7 +666,7 @@ Magpapakita ako ng himala sa kanila. At ang mga natitira sa kanila ay susuguin k
 
 
 
-At dadalhin nilang pauwi mula sa mga bansa ang lahat ng mga kababayan ninyo na nakasakay sa mga kabayo, sa mga mola,[^c] sa mga kamelyo, sa mga karwahe, at sa mga kariton. Dadalhin nila sila sa banal kong bundok sa Jerusalem bilang handog sa akin katulad ng ginagawa ng mga Israelita na naghahandog sa akin sa templo ng mga handog na pagkain, na nakalagay sa mga malinis na lalagyan. 
+At dadalhin nilang pauwi mula sa mga bansa ang lahat ng mga kababayan ninyo na nakasakay sa mga kabayo, sa mga mola, sa mga kamelyo, sa mga karwahe, at sa mga kariton. Dadalhin nila sila sa banal kong bundok sa Jerusalem bilang handog sa akin katulad ng ginagawa ng mga Israelita na naghahandog sa akin sa templo ng mga handog na pagkain, na nakalagay sa mga malinis na lalagyan. 
 
 
 

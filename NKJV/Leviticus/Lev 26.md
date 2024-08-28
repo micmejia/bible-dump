@@ -13,7 +13,7 @@ next: ['Lev 27']
 'You shall not make idols for yourselves; neither a carved image nor a _sacred_ pillar shall you rear up for yourselves; nor shall you set up an engraved stone in your land, to bow down to it; for I _am_ the Lord your God. 
 
 ###### 2 
-You shall [^a]keep My Sabbaths and reverence My sanctuary: I _am_ the Lord. 
+You shall keep My Sabbaths and reverence My sanctuary: I _am_ the Lord. 
 
 ###### 3 
 'If you walk in My statutes and keep My commandments, and perform them, 
@@ -25,7 +25,7 @@ then I will give you rain in its season, the land shall yield its produce, and t
 Your threshing shall last till the time of vintage, and the vintage shall last till the time of sowing; you shall eat your bread to the full, and dwell in your land safely. 
 
 ###### 6 
-I will give peace in the land, and you shall lie down, and none will make _you_ afraid; I will rid the land of evil[^b] beasts, and the sword will not go through your land. 
+I will give peace in the land, and you shall lie down, and none will make _you_ afraid; I will rid the land of evil beasts, and the sword will not go through your land. 
 
 ###### 7 
 You will chase your enemies, and they shall fall by the sword before you. 
@@ -40,13 +40,13 @@ Five of you shall chase a hundred, and a hundred of you shall put ten thousand t
 You shall eat the old harvest, and clear out the old because of the new. 
 
 ###### 11 
-I will set My [^c]tabernacle among you, and My soul shall not abhor you. 
+I will set My tabernacle among you, and My soul shall not abhor you. 
 
 ###### 12 
 I will walk among you and be your God, and you shall be My people. 
 
 ###### 13 
-I _am_ the Lord your God, who brought you out of the land of Egypt, that _you_ should not be their slaves; I have broken the bands of your yoke and made you walk [^d]upright. 
+I _am_ the Lord your God, who brought you out of the land of Egypt, that _you_ should not be their slaves; I have broken the bands of your yoke and made you walk upright. 
 
 ###### 14 
 'But if you do not obey Me, and do not observe all these commandments, 
@@ -55,10 +55,10 @@ I _am_ the Lord your God, who brought you out of the land of Egypt, that _you_ s
 and if you despise My statutes, or if your soul abhors My judgments, so that you do not perform all My commandments, _but_ break My covenant, 
 
 ###### 16 
-I also will do this to you: I will even appoint terror over you, wasting disease and fever which shall consume the eyes and cause sorrow of heart. And you shall sow your seed [^e]in vain, for your enemies shall eat it. 
+I also will do this to you: I will even appoint terror over you, wasting disease and fever which shall consume the eyes and cause sorrow of heart. And you shall sow your seed in vain, for your enemies shall eat it. 
 
 ###### 17 
-I will [^f]set My face against you, and you shall be defeated by your enemies. Those who hate you shall reign over you, and you shall flee when no one pursues you. 
+I will set My face against you, and you shall be defeated by your enemies. Those who hate you shall reign over you, and you shall flee when no one pursues you. 
 
 ###### 18 
 'And after all this, if you do not obey Me, then I will punish you seven times more for your sins. 
@@ -94,13 +94,13 @@ When I have cut off your supply of bread, ten women shall bake your bread in one
 then I also will walk contrary to you in fury; and I, even I, will chastise you seven times for your sins. 
 
 ###### 29 
-You[^g] shall eat the flesh of your sons, and you shall eat the flesh of your daughters. 
+You shall eat the flesh of your sons, and you shall eat the flesh of your daughters. 
 
 ###### 30 
 I will destroy your high places, cut down your incense altars, and cast your carcasses on the lifeless forms of your idols; and My soul shall abhor you. 
 
 ###### 31 
-I will lay your cities waste and bring your sanctuaries to desolation, and I will not smell the fragrance of your [^h]sweet aromas. 
+I will lay your cities waste and bring your sanctuaries to desolation, and I will not smell the fragrance of your sweet aromas. 
 
 ###### 32 
 I will bring the land to desolation, and your enemies who dwell in it shall be astonished at it. 
@@ -115,7 +115,7 @@ Then the land shall enjoy its sabbaths as long as it lies desolate and you _are_
 As long as _it_ lies desolate it shall rest-- for the time it did not rest on your sabbaths when you dwelt in it. 
 
 ###### 36 
-'And as for those of you who are left, I will send faintness[^i] into their hearts in the lands of their enemies; the sound of a shaken leaf shall cause them to flee; they shall flee as though fleeing from a sword, and they shall fall when no one pursues. 
+'And as for those of you who are left, I will send faintness into their hearts in the lands of their enemies; the sound of a shaken leaf shall cause them to flee; they shall flee as though fleeing from a sword, and they shall fall when no one pursues. 
 
 ###### 37 
 They shall stumble over one another, as it were before a sword, when no one pursues; and you shall have no _power_ to stand before your enemies. 
@@ -124,7 +124,7 @@ They shall stumble over one another, as it were before a sword, when no one purs
 You shall perish among the nations, and the land of your enemies shall eat you up. 
 
 ###### 39 
-And those of you who are left shall [^j]waste away in their iniquity in your enemies' lands; also in their fathers' iniquities, which are with them, they shall waste away. 
+And those of you who are left shall waste away in their iniquity in your enemies' lands; also in their fathers' iniquities, which are with them, they shall waste away. 
 
 ###### 40 
 '_But_ if they confess their iniquity and the iniquity of their fathers, with their unfaithfulness in which they were unfaithful to Me, and that they also have walked contrary to Me, 

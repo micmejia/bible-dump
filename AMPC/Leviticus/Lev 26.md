@@ -364,7 +364,7 @@ I will do this: I will appoint over you [sudden] terror (trembling, trouble), ev
 
 
 
-I [the Lord] will set My face against you and [^a]you shall be defeated _and_ slain before your enemies; they who hate you shall rule over you; you shall flee when no one pursues you. 
+I [the Lord] will set My face against you and you shall be defeated _and_ slain before your enemies; they who hate you shall rule over you; you shall flee when no one pursues you. 
 
 
 
@@ -931,7 +931,7 @@ But the land shall be left behind them and shall enjoy its sabbaths while it lie
 
 
 
-And [^b]yet for all that, when they are in the land of their enemies, I will not spurn _and_ cast them away, neither will I despise _and_ abhor them to destroy them utterly and to break My covenant with them, for I am the Lord their God. 
+And yet for all that, when they are in the land of their enemies, I will not spurn _and_ cast them away, neither will I despise _and_ abhor them to destroy them utterly and to break My covenant with them, for I am the Lord their God. 
 
 
 

@@ -568,7 +568,7 @@ Mula roon <i class="trans-change">sa Arnon_, nagpatuloy ang mga Israelita sa Bee
 
 
 
-At doon umawit ang mga Israelita ng awit na ito: Patuloy na magbibigay ng tubig ang balong ito! Aawit tayo tungkol sa balong ito <sup class="versenum mid-line">18</sup>na ipinahukay ng mga pinuno at mararangal na tao sa pamamagitan ng kanilang kapangyarihan.[^a] Mula sa disyerto nagpunta sila sa Matana; 
+At doon umawit ang mga Israelita ng awit na ito: Patuloy na magbibigay ng tubig ang balong ito! Aawit tayo tungkol sa balong ito <sup class="versenum mid-line">18</sup>na ipinahukay ng mga pinuno at mararangal na tao sa pamamagitan ng kanilang kapangyarihan. Mula sa disyerto nagpunta sila sa Matana; 
 
 
 
@@ -766,7 +766,7 @@ Pero hindi pumayag si Sihon na dumaan ang mga Israelita sa kanyang teritoryo. Sa
 
 
 
-Pero pinagpapatay sila ng mga Israelita, at inagaw nila ang kanilang lupain mula sa Arnon papunta sa <i class="trans-change">Ilog ng_ Jabok. Pero hanggang sa hangganan lang sila ng lupain ng mga Ammonita dahil ang kanilang hangganan ay napapaderan.[^b] 
+Pero pinagpapatay sila ng mga Israelita, at inagaw nila ang kanilang lupain mula sa Arnon papunta sa <i class="trans-change">Ilog ng_ Jabok. Pero hanggang sa hangganan lang sila ng lupain ng mga Ammonita dahil ang kanilang hangganan ay napapaderan. 
 
 
 

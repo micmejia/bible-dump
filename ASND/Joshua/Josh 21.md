@@ -304,7 +304,7 @@ Kaya sa paraan ng palabunutan, binigyan ng mga Israelita ang mga Levita ng mga b
 
 
 
-Ibinigay sa kanila ang Kiriat Arba (na siyang Hebron), sa kabundukan ng Juda, kasama na ang mga pastulan sa paligid nito. (Si Arba ang ama[^a] ni Anak). 
+Ibinigay sa kanila ang Kiriat Arba (na siyang Hebron), sa kabundukan ng Juda, kasama na ang mga pastulan sa paligid nito. (Si Arba ang ama ni Anak). 
 
 
 

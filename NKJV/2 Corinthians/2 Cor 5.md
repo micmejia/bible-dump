@@ -10,10 +10,10 @@ next: ['2 Cor 6']
 
 
 ###### 1 
-For we know that if our earthly [^a]house, _this_ tent, is destroyed, we have a building from God, a house not made with hands, eternal in the heavens. 
+For we know that if our earthly house, _this_ tent, is destroyed, we have a building from God, a house not made with hands, eternal in the heavens. 
 
 ###### 2 
-For in this we groan, earnestly desiring to be clothed with our [^b]habitation which is from heaven, 
+For in this we groan, earnestly desiring to be clothed with our habitation which is from heaven, 
 
 ###### 3 
 if indeed, having been clothed, we shall not be found naked. 
@@ -22,7 +22,7 @@ if indeed, having been clothed, we shall not be found naked.
 For we who are in _this_ tent groan, being burdened, not because we want to be unclothed, but further clothed, that mortality may be swallowed up by life. 
 
 ###### 5 
-Now He who has prepared us for this very thing _is_ God, who also has given us the Spirit as [^c]a guarantee. 
+Now He who has prepared us for this very thing _is_ God, who also has given us the Spirit as a guarantee. 
 
 ###### 6 
 So _we are_ always confident, knowing that while we are at home in the body we are absent from the Lord. 
@@ -64,7 +64,7 @@ Therefore, if anyone _is_ in Christ, _he is_ a new creation; old things have pas
 Now all things _are_ of God, who has reconciled us to Himself through Jesus Christ, and has given us the ministry of reconciliation, 
 
 ###### 19 
-that is, that God was in Christ reconciling the world to Himself, not [^d]imputing their trespasses to them, and has committed to us the word of reconciliation. 
+that is, that God was in Christ reconciling the world to Himself, not imputing their trespasses to them, and has committed to us the word of reconciliation. 
 
 ###### 20 
 Now then, we are ambassadors for Christ, as though God were pleading through us: we implore _you_ on Christ's behalf, be reconciled to God. 

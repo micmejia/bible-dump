@@ -28,10 +28,10 @@ And so it was, when the people of Ammon made war against Israel, that the elders
 Then they said to Jephthah, "Come and be our commander, that we may fight against the people of Ammon." 
 
 ###### 7 
-So Jephthah said to the elders of Gilead, "Did you not hate me, and expel me from my father's house? Why have you come to me now when you are in [^a]distress?" 
+So Jephthah said to the elders of Gilead, "Did you not hate me, and expel me from my father's house? Why have you come to me now when you are in distress?" 
 
 ###### 8 
-And the elders of Gilead said to Jephthah, "That is why we have turned[^b] again to you now, that you may go with us and fight against the people of Ammon, and be our head over all the inhabitants of Gilead." 
+And the elders of Gilead said to Jephthah, "That is why we have turned again to you now, that you may go with us and fight against the people of Ammon, and be our head over all the inhabitants of Gilead." 
 
 ###### 9 
 So Jephthah said to the elders of Gilead, "If you take me back home to fight against the people of Ammon, and the Lord delivers them to me, shall I be your head?" 
@@ -70,13 +70,13 @@ Then Israel sent messengers to Sihon king of the Amorites, king of Heshbon; and 
 But Sihon did not trust Israel to pass through his territory. So Sihon gathered all his people together, encamped in Jahaz, and fought against Israel. 
 
 ###### 21 
-And the Lord God of Israel delivered Sihon and all his people into the hand of Israel, and they defeated[^c] them. Thus Israel gained possession of all the land of the Amorites, who inhabited that country. 
+And the Lord God of Israel delivered Sihon and all his people into the hand of Israel, and they defeated them. Thus Israel gained possession of all the land of the Amorites, who inhabited that country. 
 
 ###### 22 
 They took possession of all the territory of the Amorites, from the Arnon to the Jabbok and from the wilderness to the Jordan. 
 
 ###### 23 
-'And now the Lord God of Israel has [^d]dispossessed the Amorites from before His people Israel; should you then possess it? 
+'And now the Lord God of Israel has dispossessed the Amorites from before His people Israel; should you then possess it? 
 
 ###### 24 
 Will you not possess whatever Chemosh your god gives you to possess? So whatever the Lord our God takes possession of before us, we will possess. 
@@ -106,25 +106,25 @@ then it will be that whatever comes out of the doors of my house to meet me, whe
 So Jephthah advanced toward the people of Ammon to fight against them, and the Lord delivered them into his hands. 
 
 ###### 33 
-And he [^e]defeated them from Aroer as far as Minnith--twenty cities--and to [^f]Abel Keramim, with a very great slaughter. Thus the people of Ammon were subdued before the children of Israel. ## Jephthah's Daughter 
+And he defeated them from Aroer as far as Minnith--twenty cities--and to Abel Keramim, with a very great slaughter. Thus the people of Ammon were subdued before the children of Israel. ## Jephthah's Daughter 
 
 ###### 34 
 When Jephthah came to his house at Mizpah, there was his daughter, coming out to meet him with timbrels and dancing; and she _was his_ only child. Besides her he had neither son nor daughter. 
 
 ###### 35 
-And it came to pass, when he saw her, that he tore his clothes, and said, "Alas, my daughter! You have brought me very low! You are among those who trouble me! For I have [^g]given my word to the Lord, and I cannot [^h]go back on it." 
+And it came to pass, when he saw her, that he tore his clothes, and said, "Alas, my daughter! You have brought me very low! You are among those who trouble me! For I have given my word to the Lord, and I cannot go back on it." 
 
 ###### 36 
 So she said to him, "My father, _if_ you have given your word to the Lord, do to me according to what has gone out of your mouth, because the Lord has avenged you of your enemies, the people of Ammon." 
 
 ###### 37 
-Then she said to her father, "Let this thing be done for me: let me alone for two months, that I may go and wander on the mountains and [^i]bewail my virginity, my [^j]friends and I." 
+Then she said to her father, "Let this thing be done for me: let me alone for two months, that I may go and wander on the mountains and bewail my virginity, my friends and I." 
 
 ###### 38 
 So he said, "Go." And he sent her away _for_ two months; and she went with her friends, and bewailed her virginity on the mountains. 
 
 ###### 39 
-And it was so at the end of two months that she returned to her father, and he carried out his vow with her which he had vowed. She [^k]knew no man. And it became a custom in Israel 
+And it was so at the end of two months that she returned to her father, and he carried out his vow with her which he had vowed. She knew no man. And it became a custom in Israel 
 
 ###### 40 
-_that_ the daughters of Israel went four days each year to [^l]lament the daughter of Jephthah the Gileadite.
+_that_ the daughters of Israel went four days each year to lament the daughter of Jephthah the Gileadite.

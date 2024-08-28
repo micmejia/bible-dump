@@ -25,7 +25,7 @@ If I have repaid evil to him who was at peace with me, Or have plundered my enem
 Let the enemy pursue me and overtake _me;_ Yes, let him trample my life to the earth, And lay my honor in the dust. <i class="selah">Selah_ 
 
 ###### 6 
-Arise, O Lord, in Your anger; Lift Yourself up because of the rage of my enemies; Rise up [^b]for me _to_ the judgment You have commanded! 
+Arise, O Lord, in Your anger; Lift Yourself up because of the rage of my enemies; Rise up for me _to_ the judgment You have commanded! 
 
 ###### 7 
 So the congregation of the peoples shall surround You; For their sakes, therefore, return on high. 
@@ -34,10 +34,10 @@ So the congregation of the peoples shall surround You; For their sakes, therefor
 The Lord shall judge the peoples; Judge me, O Lord, according to my righteousness, And according to my integrity within me. 
 
 ###### 9 
-Oh, let the wickedness of the wicked come to an end, But establish the just; For the righteous God tests the hearts and [^c]minds. 
+Oh, let the wickedness of the wicked come to an end, But establish the just; For the righteous God tests the hearts and minds. 
 
 ###### 10 
-[^d]My defense _is_ of God, Who saves the upright in heart. 
+My defense _is_ of God, Who saves the upright in heart. 
 
 ###### 11 
 God _is_ a just judge, And God is angry _with the wicked_ every day. 
@@ -55,7 +55,7 @@ Behold, _the wicked_ brings forth iniquity; Yes, he conceives trouble and brings
 He made a pit and dug it out, And has fallen into the ditch _which_ he made. 
 
 ###### 16 
-His trouble shall return upon his own head, And his violent dealing shall come down on [^e]his own crown. 
+His trouble shall return upon his own head, And his violent dealing shall come down on his own crown. 
 
 ###### 17 
 I will praise the Lord according to His righteousness, And will sing praise to the name of the Lord Most High.

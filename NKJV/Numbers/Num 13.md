@@ -31,7 +31,7 @@ from the tribe of Judah, Caleb the son of Jephunneh;
 from the tribe of Issachar, Igal the son of Joseph; 
 
 ###### 8 
-from the tribe of Ephraim, [^a]Hoshea the son of Nun; 
+from the tribe of Ephraim, Hoshea the son of Nun; 
 
 ###### 9 
 from the tribe of Benjamin, Palti the son of Raphu; 
@@ -55,7 +55,7 @@ from the tribe of Naphtali, Nahbi the son of Vophsi;
 from the tribe of Gad, Geuel the son of Machi. 
 
 ###### 16 
-These _are_ the names of the men whom Moses sent to [^b]spy out the land. And Moses called Hoshea[^c] the son of Nun, Joshua. 
+These _are_ the names of the men whom Moses sent to spy out the land. And Moses called Hoshea the son of Nun, Joshua. 
 
 ###### 17 
 Then Moses sent them to spy out the land of Canaan, and said to them, "Go up this _way_ into the South, and go up to the mountains, 
@@ -67,7 +67,7 @@ and see what the land is like: whether the people who dwell in it _are_ strong o
 whether the land they dwell in _is_ good or bad; whether the cities they inhabit _are_ like camps or strongholds; 
 
 ###### 20 
-whether the land _is_ [^d]rich or poor; and whether there are forests there or not. Be of good courage. And bring some of the fruit of the land." Now the time _was_ the season of the first ripe grapes. 
+whether the land _is_ rich or poor; and whether there are forests there or not. Be of good courage. And bring some of the fruit of the land." Now the time _was_ the season of the first ripe grapes. 
 
 ###### 21 
 So they went up and spied out the land from the Wilderness of Zin as far as Rehob, near the entrance of Hamath. 
@@ -76,10 +76,10 @@ So they went up and spied out the land from the Wilderness of Zin as far as Reho
 And they went up through the South and came to Hebron; Ahiman, Sheshai, and Talmai, the descendants of Anak, _were_ there. (Now Hebron was built seven years before Zoan in Egypt.) 
 
 ###### 23 
-Then they came to the [^e]Valley of Eshcol, and there cut down a branch with one cluster of grapes; they carried it between two of them on a pole. _They_ also _brought_ some of the pomegranates and figs. 
+Then they came to the Valley of Eshcol, and there cut down a branch with one cluster of grapes; they carried it between two of them on a pole. _They_ also _brought_ some of the pomegranates and figs. 
 
 ###### 24 
-The place was called the Valley of [^f]Eshcol, because of the cluster which the men of Israel cut down there. 
+The place was called the Valley of Eshcol, because of the cluster which the men of Israel cut down there. 
 
 ###### 25 
 And they returned from spying out the land after forty days. 
@@ -88,7 +88,7 @@ And they returned from spying out the land after forty days.
 Now they departed and came back to Moses and Aaron and all the congregation of the children of Israel in the Wilderness of Paran, at Kadesh; they brought back word to them and to all the congregation, and showed them the fruit of the land. 
 
 ###### 27 
-Then they told him, and said: "We went to the land where you sent us. It truly [^g]flows with milk and honey, and this _is_ its fruit. 
+Then they told him, and said: "We went to the land where you sent us. It truly flows with milk and honey, and this _is_ its fruit. 
 
 ###### 28 
 Nevertheless the people who dwell in the land _are_ strong; the cities _are_ fortified _and_ very large; moreover we saw the descendants of Anak there. 
@@ -106,4 +106,4 @@ But the men who had gone up with him said, "We are not able to go up against the
 And they gave the children of Israel a bad report of the land which they had spied out, saying, "The land through which we have gone as spies _is_ a land that devours its inhabitants, and all the people whom we saw in it _are_ men of _great_ stature. 
 
 ###### 33 
-There we saw the [^h]giants (the descendants of Anak came from the giants); and we were like[^i] grasshoppers in our own sight, and so we were in their sight."
+There we saw the giants (the descendants of Anak came from the giants); and we were like grasshoppers in our own sight, and so we were in their sight."

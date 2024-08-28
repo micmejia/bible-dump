@@ -31,7 +31,7 @@ Now the apostles and elders came together to consider this matter.
 And when there had been much dispute, Peter rose up _and_ said to them: "Men _and_ brethren, you know that a good while ago God chose among us, that by my mouth the Gentiles should hear the word of the gospel and believe. 
 
 ###### 8 
-So God, who knows the heart, [^a]acknowledged them by giving them the Holy Spirit, just as _He did_ to us, 
+So God, who knows the heart, acknowledged them by giving them the Holy Spirit, just as _He did_ to us, 
 
 ###### 9 
 and made no distinction between us and them, purifying their hearts by faith. 
@@ -40,13 +40,13 @@ and made no distinction between us and them, purifying their hearts by faith.
 Now therefore, why do you test God by putting a yoke on the neck of the disciples which neither our fathers nor we were able to bear? 
 
 ###### 11 
-But we believe that through the grace of the Lord Jesus [^b]Christ we shall be saved in the same manner as they." 
+But we believe that through the grace of the Lord Jesus Christ we shall be saved in the same manner as they." 
 
 ###### 12 
 Then all the multitude kept silent and listened to Barnabas and Paul declaring how many miracles and wonders God had worked through them among the Gentiles. 
 
 ###### 13 
-And after they had [^c]become silent, James answered, saying, "Men _and_ brethren, listen to me: 
+And after they had become silent, James answered, saying, "Men _and_ brethren, listen to me: 
 
 ###### 14 
 Simon has declared how God at the first visited the Gentiles to take out of them a people for His name. 
@@ -58,31 +58,31 @@ And with this the words of the prophets agree, just as it is written:
 'After this I will return And will rebuild the tabernacle of David, which has fallen down; I will rebuild its ruins, And I will set it up; 
 
 ###### 17 
-So that the rest of mankind may seek the Lord, Even all the Gentiles who are called by My name, Says the [^d]Lord who does all these things.' 
+So that the rest of mankind may seek the Lord, Even all the Gentiles who are called by My name, Says the Lord who does all these things.' 
 
 ###### 18 
-[^e]"Known to God from eternity are all His works. 
+"Known to God from eternity are all His works. 
 
 ###### 19 
 Therefore I judge that we should not trouble those from among the Gentiles who are turning to God, 
 
 ###### 20 
-but that we write to them to abstain from things polluted by idols, _from_ [^f]sexual immorality, _from_ things strangled, and _from_ blood. 
+but that we write to them to abstain from things polluted by idols, _from_ sexual immorality, _from_ things strangled, and _from_ blood. 
 
 ###### 21 
 For Moses has had throughout many generations those who preach him in every city, being read in the synagogues every Sabbath." ## The Jerusalem Decree 
 
 ###### 22 
-Then it pleased the apostles and elders, with the whole church, to send chosen men of their own company to Antioch with Paul and Barnabas, _namely,_ Judas who was also named Barsabas,[^g] and Silas, leading men among the brethren. 
+Then it pleased the apostles and elders, with the whole church, to send chosen men of their own company to Antioch with Paul and Barnabas, _namely,_ Judas who was also named Barsabas, and Silas, leading men among the brethren. 
 
 ###### 23 
 They wrote this _letter_ by them: The apostles, the elders, and the brethren, To the brethren who are of the Gentiles in Antioch, Syria, and Cilicia: Greetings. 
 
 ###### 24 
-Since we have heard that some who went out from us have troubled you with words, unsettling your souls, [^h]saying, "_You must_ be circumcised and keep the law"--to whom we gave no _such_ commandment-- 
+Since we have heard that some who went out from us have troubled you with words, unsettling your souls, saying, "_You must_ be circumcised and keep the law"--to whom we gave no _such_ commandment-- 
 
 ###### 25 
-it seemed good to us, being assembled with one [^i]accord, to send chosen men to you with our beloved Barnabas and Paul, 
+it seemed good to us, being assembled with one accord, to send chosen men to you with our beloved Barnabas and Paul, 
 
 ###### 26 
 men who have risked their lives for the name of our Lord Jesus Christ. 
@@ -94,7 +94,7 @@ We have therefore sent Judas and Silas, who will also report the same things by 
 For it seemed good to the Holy Spirit, and to us, to lay upon you no greater burden than these necessary things: 
 
 ###### 29 
-that you abstain from things offered to idols, from blood, from things strangled, and from sexual[^j] immorality. If you keep yourselves from these, you will do well. Farewell. ## Continuing Ministry in Syria 
+that you abstain from things offered to idols, from blood, from things strangled, and from sexual immorality. If you keep yourselves from these, you will do well. Farewell. ## Continuing Ministry in Syria 
 
 ###### 30 
 So when they were sent off, they came to Antioch; and when they had gathered the multitude together, they delivered the letter. 
@@ -106,10 +106,10 @@ When they had read it, they rejoiced over its encouragement.
 Now Judas and Silas, themselves being prophets also, exhorted and strengthened the brethren with many words. 
 
 ###### 33 
-And after they had stayed _there_ for a time, they were sent back with greetings from the brethren to [^k]the apostles. 
+And after they had stayed _there_ for a time, they were sent back with greetings from the brethren to the apostles. 
 
 ###### 34 
-[^l]However, it seemed good to Silas to remain there. 
+However, it seemed good to Silas to remain there. 
 
 ###### 35 
 Paul and Barnabas also remained in Antioch, teaching and preaching the word of the Lord, with many others also. ## Division over John Mark 
@@ -118,7 +118,7 @@ Paul and Barnabas also remained in Antioch, teaching and preaching the word of t
 Then after some days Paul said to Barnabas, "Let us now go back and visit our brethren in every city where we have preached the word of the Lord, _and see_ how they are doing." 
 
 ###### 37 
-Now Barnabas [^m]was determined to take with them John called Mark. 
+Now Barnabas was determined to take with them John called Mark. 
 
 ###### 38 
 But Paul insisted that they should not take with them the one who had departed from them in Pamphylia, and had not gone with them to the work. 
@@ -127,7 +127,7 @@ But Paul insisted that they should not take with them the one who had departed f
 Then the contention became so sharp that they parted from one another. And so Barnabas took Mark and sailed to Cyprus; 
 
 ###### 40 
-but Paul chose Silas and departed, being [^n]commended by the brethren to the grace of God. 
+but Paul chose Silas and departed, being commended by the brethren to the grace of God. 
 
 ###### 41 
 And he went through Syria and Cilicia, strengthening the churches.

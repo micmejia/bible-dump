@@ -49,7 +49,7 @@ Then the whole assembly of them got up and conducted [Jesus] before Pilate.
 
 
 
-And they began to accuse Him, asserting, We found this [^a]Man perverting (misleading, corrupting, and turning away) our nation and forbidding to pay tribute to Caesar, saying that He Himself is Christ (the Messiah, the Anointed One), a King! 
+And they began to accuse Him, asserting, We found this Man perverting (misleading, corrupting, and turning away) our nation and forbidding to pay tribute to Caesar, saying that He Himself is Christ (the Messiah, the Anointed One), a King! 
 
 
 
@@ -70,7 +70,7 @@ And they began to accuse Him, asserting, We found this [^a]Man perverting (misle
 
 
 
-So Pilate asked Him, Are You the King of the Jews? And He answered him, [[^b]It is just as] you say. [I Am.] 
+So Pilate asked Him, Are You the King of the Jews? And He answered him, [It is just as] you say. [I Am.] 
 
 
 
@@ -301,7 +301,7 @@ Pilate then called together the chief priests and the rulers and the people,
 
 
 
-And said to them, You brought this Man before me as One Who was perverting _and_ misleading _and_ [^c]turning away _and_ corrupting the people; and behold, after examining Him before you, I have not found any offense (crime or guilt) in this Man in regard to your accusations against Him; 
+And said to them, You brought this Man before me as One Who was perverting _and_ misleading _and_ turning away _and_ corrupting the people; and behold, after examining Him before you, I have not found any offense (crime or guilt) in this Man in regard to your accusations against Him; 
 
 
 
@@ -343,7 +343,7 @@ No, nor indeed did Herod, for he sent Him back to us; behold, He has done nothin
 
 
 
-I will therefore chastise Him _and_ [^d]deliver Him amended (reformed, taught His lesson) and release Him. 
+I will therefore chastise Him _and_ deliver Him amended (reformed, taught His lesson) and release Him. 
 
 
 
@@ -364,7 +364,7 @@ I will therefore chastise Him _and_ [^d]deliver Him amended (reformed, taught Hi
 
 
 
-[^e]_For it was necessary for him to release to them one prisoner at the Feast_. 
+_For it was necessary for him to release to them one prisoner at the Feast_. 
 
 
 
@@ -469,7 +469,7 @@ But they kept shouting out, Crucify, crucify Him!
 
 
 
-A third time he said to them, Why? What wrong has He done? I have found [no offense or crime or guilt] in Him nothing deserving of death; I will therefore chastise Him [[^f]in order to teach Him better] and release Him. 
+A third time he said to them, Why? What wrong has He done? I have found [no offense or crime or guilt] in Him nothing deserving of death; I will therefore chastise Him [in order to teach Him better] and release Him. 
 
 
 
@@ -616,7 +616,7 @@ But Jesus, turning toward them, said, Daughters of Jerusalem, do not weep for Me
 
 
 
-For behold, the days are coming during which they will say, Blessed (happy, fortunate, and [^g]to be envied) are the barren, and the wombs that have not borne, and the breasts that have never nursed [babies]! 
+For behold, the days are coming during which they will say, Blessed (happy, fortunate, and to be envied) are the barren, and the wombs that have not borne, and the breasts that have never nursed [babies]! 
 
 
 
@@ -742,7 +742,7 @@ And Jesus prayed, Father, forgive them, for they know not what they do. And they
 
 
 
-Now the people stood by [[^h]calmly and leisurely] watching; but the rulers scoffed _and_ sneered ([^i]turned up their noses) at Him, saying, He rescued others [[^j]from death]; let Him now rescue Himself, if He is the Christ (the Messiah) of God, His Chosen One! 
+Now the people stood by [calmly and leisurely] watching; but the rulers scoffed _and_ sneered (turned up their noses) at Him, saying, He rescued others [from death]; let Him now rescue Himself, if He is the Christ (the Messiah) of God, His Chosen One! 
 
 
 
@@ -784,7 +784,7 @@ The soldiers also ridiculed _and_ made sport of Him, coming up and offering Him 
 
 
 
-And saying, If you are the King of the Jews, save (rescue) Yourself [[^k]from death]. 
+And saying, If you are the King of the Jews, save (rescue) Yourself [from death]. 
 
 
 
@@ -805,7 +805,7 @@ And saying, If you are the King of the Jews, save (rescue) Yourself [[^k]from de
 
 
 
-For there was also an inscription above Him [^l]_in letters of Greek and Latin and Hebrew_: This is the King of the Jews. 
+For there was also an inscription above Him _in letters of Greek and Latin and Hebrew_: This is the King of the Jews. 
 
 
 
@@ -826,7 +826,7 @@ For there was also an inscription above Him [^l]_in letters of Greek and Latin a
 
 
 
-One of the criminals who was suspended kept up a railing at Him, saying, Are You not the Christ (the Messiah)? Rescue Yourself and us [[^m]from death]! 
+One of the criminals who was suspended kept up a railing at Him, saying, Are You not the Christ (the Messiah)? Rescue Yourself and us [from death]! 
 
 
 
@@ -868,7 +868,7 @@ But the other one reproved him, saying, Do you not even fear God, seeing you you
 
 
 
-And we indeed suffer it justly, receiving the due reward of our actions; but this Man has done nothing out of the way [nothing [^n]strange or eccentric or perverse or unreasonable]. 
+And we indeed suffer it justly, receiving the due reward of our actions; but this Man has done nothing out of the way [nothing strange or eccentric or perverse or unreasonable]. 
 
 
 
@@ -889,7 +889,7 @@ And we indeed suffer it justly, receiving the due reward of our actions; but thi
 
 
 
-Then he said to Jesus, _Lord_, remember me when You come [^o]in Your kingly glory! 
+Then he said to Jesus, _Lord_, remember me when You come in Your kingly glory! 
 
 
 
@@ -952,7 +952,7 @@ It was now about the sixth hour (midday), and darkness enveloped the whole land 
 
 
 
-While the sun's light faded _or_ [^p]_was darkened_; and the curtain [of the Holy of Holies] of the temple was torn in two. 
+While the sun's light faded _or_ _was darkened_; and the curtain [of the Holy of Holies] of the temple was torn in two. 
 
 
 
@@ -994,7 +994,7 @@ And Jesus, crying out with a loud voice, said, Father, into Your hands I commit 
 
 
 
-Now the centurion, having seen what had taken place, [^q]recognized God _and_ thanked _and_ praised Him, and said, Indeed, without question, this Man was upright (just and innocent)! 
+Now the centurion, having seen what had taken place, recognized God _and_ thanked _and_ praised Him, and said, Indeed, without question, this Man was upright (just and innocent)! 
 
 
 
@@ -1057,7 +1057,7 @@ And all the acquaintances of [Jesus] and the women who had followed Him from Gal
 
 
 
-Now notice, there was a man named Joseph from the Jewish town of Arimathea. He was a member of the council (the Sanhedrin), and a good (upright, [^r]advantageous) man, and righteous (in right standing with God and man), 
+Now notice, there was a man named Joseph from the Jewish town of Arimathea. He was a member of the council (the Sanhedrin), and a good (upright, advantageous) man, and righteous (in right standing with God and man), 
 
 
 
@@ -1120,7 +1120,7 @@ This man went to Pilate and asked for the body of Jesus.
 
 
 
-Then he took it down and [^s]rolled it up in a linen cloth [^t]for swathing dead bodies and laid Him in a rock-hewn tomb, where no one had ever yet been laid. 
+Then he took it down and rolled it up in a linen cloth for swathing dead bodies and laid Him in a rock-hewn tomb, where no one had ever yet been laid. 
 
 
 

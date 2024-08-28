@@ -73,7 +73,7 @@ Habang naglalakbay sina Jacob, sinalubong siya ng mga anghel ng Dios.
 
 
 
-Pagkakita ni Jacob sa kanila, sinabi niya, "Mga sundalo ito ng Dios." Kaya pinangalanan niya ang lugar na iyon na Mahanaim.[^a] 
+Pagkakita ni Jacob sa kanila, sinabi niya, "Mga sundalo ito ng Dios." Kaya pinangalanan niya ang lugar na iyon na Mahanaim. 
 
 
 
@@ -931,7 +931,7 @@ Nagtanong ang tao sa kanya, "Anong pangalan mo?" Sumagot siya, "Jacob."
 
 
 
-Sinabi ng tao, "Simula ngayon hindi na Jacob ang pangalan mo kundi Israel[^b] na dahil nakipagbuno ka sa Dios at sa mga tao, at ikaw ay nagtagumpay." 
+Sinabi ng tao, "Simula ngayon hindi na Jacob ang pangalan mo kundi Israel na dahil nakipagbuno ka sa Dios at sa mga tao, at ikaw ay nagtagumpay." 
 
 
 
@@ -997,7 +997,7 @@ Nagtanong din si Jacob sa kanya, "Sabihin mo rin sa akin ang pangalan mo." Pero 
 
 
 
-Pinangalanan ni Jacob ang lugar na iyon na Peniel,[^c] dahil sinabi niya, "Nakita ko ang mukha ng Dios pero buhay pa rin ako." 
+Pinangalanan ni Jacob ang lugar na iyon na Peniel, dahil sinabi niya, "Nakita ko ang mukha ng Dios pero buhay pa rin ako." 
 
 
 

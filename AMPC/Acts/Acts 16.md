@@ -28,7 +28,7 @@ next: ['Acts 17']
 
 
 
-And [Paul] went down to Derbe and also to Lystra. A disciple named Timothy was there, the son of a Jewish woman who was a believer [she had become [^a]convinced that Jesus is the Messiah and the Author of eternal salvation, and yielded obedience to Him]; but [Timothy's] father was a Greek. 
+And [Paul] went down to Derbe and also to Lystra. A disciple named Timothy was there, the son of a Jewish woman who was a believer [she had become convinced that Jesus is the Messiah and the Author of eternal salvation, and yielded obedience to Him]; but [Timothy's] father was a Greek. 
 
 
 
@@ -70,7 +70,7 @@ He [Timothy] had a good reputation among the brethren at Lystra and Iconium.
 
 
 
-Paul desired Timothy to go with him [[^b]as a missionary]; and he took him and circumcised him because of the Jews that were in those places, all of whom knew that his father was a Greek. 
+Paul desired Timothy to go with him [as a missionary]; and he took him and circumcised him because of the Jews that were in those places, all of whom knew that his father was a Greek. 
 
 
 
@@ -385,7 +385,7 @@ She kept following Paul and [the rest of] us, shouting loudly, These men are the
 
 
 
-And she did this for many days. Then Paul, being sorely annoyed _and_ worn out, turned and said to the spirit within her, I charge you in the name of Jesus Christ to come out of her! And it came out that very [^c]moment. 
+And she did this for many days. Then Paul, being sorely annoyed _and_ worn out, turned and said to the spirit within her, I charge you in the name of Jesus Christ to come out of her! And it came out that very moment. 
 
 
 
@@ -658,7 +658,7 @@ And he brought them out [of the dungeon] and said, Men, what is it necessary for
 
 
 
-And they answered, Believe in the Lord Jesus _Christ_ [[^d]give yourself up to Him, [^e] take yourself out of your own keeping and entrust yourself into His keeping] and you will be saved, [and this applies both to] you and your household as well. 
+And they answered, Believe in the Lord Jesus _Christ_ [give yourself up to Him,  take yourself out of your own keeping and entrust yourself into His keeping] and you will be saved, [and this applies both to] you and your household as well. 
 
 
 
@@ -679,7 +679,7 @@ And they answered, Believe in the Lord Jesus _Christ_ [[^d]give yourself up to H
 
 
 
-And they declared the Word of the Lord [the doctrine concerning the [^f]attainment through Christ of eternal salvation in the kingdom of God] to him and to all who were in his house. 
+And they declared the Word of the Lord [the doctrine concerning the attainment through Christ of eternal salvation in the kingdom of God] to him and to all who were in his house. 
 
 
 
@@ -700,7 +700,7 @@ And they declared the Word of the Lord [the doctrine concerning the [^f]attainme
 
 
 
-And he took them the same hour of the night and [^g]bathed [them because of their bloody] wounds, and he was baptized immediately and all [the members of] his [household]. 
+And he took them the same hour of the night and bathed [them because of their bloody] wounds, and he was baptized immediately and all [the members of] his [household]. 
 
 
 
@@ -721,7 +721,7 @@ And he took them the same hour of the night and [^g]bathed [them because of thei
 
 
 
-Then he took them up into his house and set food before them; and he [^h]leaped much for joy _and_ exulted with all his family that he believed in God [accepting and joyously welcoming what He had made known through Christ]. 
+Then he took them up into his house and set food before them; and he leaped much for joy _and_ exulted with all his family that he believed in God [accepting and joyously welcoming what He had made known through Christ]. 
 
 
 

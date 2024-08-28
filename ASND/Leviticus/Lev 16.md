@@ -7,7 +7,7 @@ next: ['Lev 17']
 # Leviticus 16
 
 ***
-###### 1-2 Pagkamatay ng dalawang anak na lalaki ni Aaron nang silaʼy naghandog sa Panginoon, sinabi ng Panginoon kay Moises, "Sabihin mo sa kapatid mong si Aaron na huwag siyang papasok sa Pinakabanal na Lugar sa kabila ng tabing, sa anumang oras na naisin niya. Kapag ginawa niya iyon, mamamatay siya. Sapagkat doon ako nagpapakita sa anyong ulap sa itaas ng takip ng Kahon ng Kasunduan."[^a] 
+###### 1-2 Pagkamatay ng dalawang anak na lalaki ni Aaron nang silaʼy naghandog sa Panginoon, sinabi ng Panginoon kay Moises, "Sabihin mo sa kapatid mong si Aaron na huwag siyang papasok sa Pinakabanal na Lugar sa kabila ng tabing, sa anumang oras na naisin niya. Kapag ginawa niya iyon, mamamatay siya. Sapagkat doon ako nagpapakita sa anyong ulap sa itaas ng takip ng Kahon ng Kasunduan." 
 
 
 
@@ -73,7 +73,7 @@ Ito ang <i class="trans-change">utos ng Panginoon na_ gagawin ni Aaron sa araw n
 
 
 
-Kinakailangang maligo muna siya at pagkatapos, isuot niya ang kanyang damit pampari na purong linen: pang-ilalim na damit na tatakip sa kanyang kahubaran, ang kanyang sinturon, ang turban na linen, at ang kanyang panlabas na damit.[^b] 
+Kinakailangang maligo muna siya at pagkatapos, isuot niya ang kanyang damit pampari na purong linen: pang-ilalim na damit na tatakip sa kanyang kahubaran, ang kanyang sinturon, ang turban na linen, at ang kanyang panlabas na damit. 
 
 
 
@@ -205,7 +205,7 @@ Pagkatapos, kukunin niya ang dalawang kambing at dadalhin din niya sa presensya 
 
 
 
-At sa pamamagitan ng palabunutan, pipiliin niya kung alin sa dalawang kambing ang para sa Panginoon at ang para kay Azazel.[^c] 
+At sa pamamagitan ng palabunutan, pipiliin niya kung alin sa dalawang kambing ang para sa Panginoon at ang para kay Azazel. 
 
 
 
@@ -469,7 +469,7 @@ Papatayin din niya ang kambing bilang handog sa paglilinis para sa mga tao. Dada
 
 
 
-Ganito ang paraan na gagawin ni Aaron para luminis ang Pinakabanal na Lugar dahil sa karumihan ng mga taga-Israel at sa kanilang mga kasalanan at pagsuway. Itoʼy gagawin din ni Aaron sa lahat ng bahagi ng Tolda[^d] na nasa gitna ng maruming mga taga-Israel. 
+Ganito ang paraan na gagawin ni Aaron para luminis ang Pinakabanal na Lugar dahil sa karumihan ng mga taga-Israel at sa kanilang mga kasalanan at pagsuway. Itoʼy gagawin din ni Aaron sa lahat ng bahagi ng Tolda na nasa gitna ng maruming mga taga-Israel. 
 
 
 

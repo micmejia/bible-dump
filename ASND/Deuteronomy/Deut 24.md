@@ -139,7 +139,7 @@ at hiwalayan na naman siya ng ikalawa niyang asawa o mamatay ito,
 
 
 
-hindi na siya maaaring mapangasawang muli ng nauna niyang asawa dahil narumihan na siya.[^a] <i class="trans-change">Kung muli siyang mapapangasawa ng nauna niyang asawa_, kasuklam-suklam ito sa paningin ng Panginoon. Hindi ninyo dapat gawin ang mga kasalanang ito sa lupaing ibinibigay sa inyo ng Panginoon na inyong Dios bilang inyong mana. 
+hindi na siya maaaring mapangasawang muli ng nauna niyang asawa dahil narumihan na siya. <i class="trans-change">Kung muli siyang mapapangasawa ng nauna niyang asawa_, kasuklam-suklam ito sa paningin ng Panginoon. Hindi ninyo dapat gawin ang mga kasalanang ito sa lupaing ibinibigay sa inyo ng Panginoon na inyong Dios bilang inyong mana. 
 
 
 

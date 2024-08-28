@@ -667,7 +667,7 @@ Kaya nagtanong si David sa Panginoon, "Sasalakayin po ba namin ang mga Filisteo?
 
 
 
-Kaya nagpunta sina David sa Baal Perazim, at doon natalo nila ang mga Filisteo. Sinabi ni David, "Nilipol ng Panginoon ang mga kalaban ko na parang dinaanan ng rumaragasang baha sa harapan ko." Kaya tinawag na Baal Perazim[^a] ang lugar na iyon. 
+Kaya nagpunta sina David sa Baal Perazim, at doon natalo nila ang mga Filisteo. Sinabi ni David, "Nilipol ng Panginoon ang mga kalaban ko na parang dinaanan ng rumaragasang baha sa harapan ko." Kaya tinawag na Baal Perazim ang lugar na iyon. 
 
 
 
@@ -832,4 +832,4 @@ Kapag narinig nʼyo na parang may nagmamartsang mga sundalo sa taas na bahagi ng
 
 
 
-Ginawa nga ni David ang iniutos ng Panginoon sa kanya, at pinagpapatay nila ang mga Filisteo mula sa Geba[^b] hanggang sa Gezer.
+Ginawa nga ni David ang iniutos ng Panginoon sa kanya, at pinagpapatay nila ang mga Filisteo mula sa Geba hanggang sa Gezer.

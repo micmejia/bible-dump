@@ -172,7 +172,7 @@ Tinangay ng buntot niya ang ikatlong bahagi ng mga bituin sa langit at itinapon 
 
 
 
-At nanganak nga ang babae ng isang sanggol na lalaki na siyang maghahari[^a] sa lahat ng bansa sa pamamagitan ng kamay na bakal. <i class="trans-change">Hindi nakain ng dragon ang sanggol dahil_ inagaw agad ang sanggol at dinala sa Dios doon sa kanyang trono. 
+At nanganak nga ang babae ng isang sanggol na lalaki na siyang maghahari sa lahat ng bansa sa pamamagitan ng kamay na bakal. <i class="trans-change">Hindi nakain ng dragon ang sanggol dahil_ inagaw agad ang sanggol at dinala sa Dios doon sa kanyang trono. 
 
 
 

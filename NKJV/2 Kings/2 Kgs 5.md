@@ -13,7 +13,7 @@ next: ['2 Kgs 6']
 Now Naaman, commander of the army of the king of Syria, was a great and honorable man in the eyes of his master, because by him the Lord had given victory to Syria. He was also a mighty man of valor, _but_ a leper. 
 
 ###### 2 
-And the Syrians had gone out on[^a] raids, and had brought back captive a young girl from the land of Israel. She [^b]waited on Naaman's wife. 
+And the Syrians had gone out on raids, and had brought back captive a young girl from the land of Israel. She waited on Naaman's wife. 
 
 ###### 3 
 Then she said to her mistress, "If only my master _were_ with the prophet who _is_ in Samaria! For he would heal him of his leprosy." 
@@ -43,7 +43,7 @@ And Elisha sent a messenger to him, saying, "Go and wash in the Jordan seven tim
 But Naaman became furious, and went away and said, "Indeed, I said to myself, 'He will surely come out _to me,_ and stand and call on the name of the Lord his God, and wave his hand over the place, and heal the leprosy.' 
 
 ###### 12 
-_Are_ not the [^c]Abanah and the Pharpar, the rivers of Damascus, better than all the waters of Israel? Could I not wash in them and be clean?" So he turned and went away in a rage. 
+_Are_ not the Abanah and the Pharpar, the rivers of Damascus, better than all the waters of Israel? Could I not wash in them and be clean?" So he turned and went away in a rage. 
 
 ###### 13 
 And his servants came near and spoke to him, and said, "My father, _if_ the prophet had told you _to do_ something great, would you not have done _it?_ How much more then, when he says to you, 'Wash, and be clean'?" 
@@ -79,7 +79,7 @@ And he said, "All _is_ well. My master has sent me, saying, 'Indeed, just now tw
 So Naaman said, "Please, take two talents." And he urged him, and bound two talents of silver in two bags, with two changes of garments, and handed _them_ to two of his servants; and they carried _them_ on ahead of him. 
 
 ###### 24 
-When he came to [^d]the citadel, he took _them_ from their hand, and stored _them_ away in the house; then he let the men go, and they departed. 
+When he came to the citadel, he took _them_ from their hand, and stored _them_ away in the house; then he let the men go, and they departed. 
 
 ###### 25 
 Now he went in and stood before his master. Elisha said to him, "Where _did you go,_ Gehazi?" And he said, "Your servant did not go anywhere." 

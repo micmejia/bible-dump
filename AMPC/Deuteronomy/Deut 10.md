@@ -70,7 +70,7 @@ And I will write on the tables the words that were on the first tables which you
 
 
 
-So I [Moses] made an ark of acacia wood and hewed two tables of stone like the first, and went up the mountain [^a]with the two tables of stone in my [one] hand. 
+So I [Moses] made an ark of acacia wood and hewed two tables of stone like the first, and went up the mountain with the two tables of stone in my [one] hand. 
 
 
 

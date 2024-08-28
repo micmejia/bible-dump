@@ -238,7 +238,7 @@ For God is not unrighteous to forget _or_ overlook your labor and the love which
 
 
 
-But we do [[^a]strongly and earnestly] desire for each of you to show the same diligence _and_ sincerity [all the way through] in realizing _and_ enjoying the full assurance _and_ development of [your] hope until the end, 
+But we do [strongly and earnestly] desire for each of you to show the same diligence _and_ sincerity [all the way through] in realizing _and_ enjoying the full assurance _and_ development of [your] hope until the end, 
 
 
 
@@ -259,7 +259,7 @@ But we do [[^a]strongly and earnestly] desire for each of you to show the same d
 
 
 
-In order that you may not grow disinterested _and_ become [spiritual] sluggards, but imitators, behaving as do those who through faith ([^b]by their leaning of the entire personality on God in Christ in absolute trust and confidence in His power, wisdom, and goodness) and by practice of patient endurance _and_ waiting are [now] inheriting the promises. 
+In order that you may not grow disinterested _and_ become [spiritual] sluggards, but imitators, behaving as do those who through faith (by their leaning of the entire personality on God in Christ in absolute trust and confidence in His power, wisdom, and goodness) and by practice of patient endurance _and_ waiting are [now] inheriting the promises. 
 
 
 
@@ -406,7 +406,7 @@ This was so that, by two unchangeable things [His promise and His oath] in which
 
 
 
-[Now] we have this [hope] as a sure and steadfast anchor of the soul [it cannot slip and it cannot [^c]break down under whoever steps out upon it--a hope] that reaches [^d]farther _and_ enters into [the very certainty of the Presence] within the veil, 
+[Now] we have this [hope] as a sure and steadfast anchor of the soul [it cannot slip and it cannot break down under whoever steps out upon it--a hope] that reaches farther _and_ enters into [the very certainty of the Presence] within the veil, 
 
 
 
@@ -427,4 +427,4 @@ This was so that, by two unchangeable things [His promise and His oath] in which
 
 
 
-Where Jesus has entered in for us [in advance], a Forerunner having become a High Priest forever after the order (with [^e]the rank) of Melchizedek.
+Where Jesus has entered in for us [in advance], a Forerunner having become a High Priest forever after the order (with the rank) of Melchizedek.

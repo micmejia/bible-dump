@@ -19,7 +19,7 @@ And the Lord spoke to Moses and Aaron, saying,
 And this shall be his uncleanness in regard to his discharge--whether his body runs with his discharge, or his body is stopped up by his discharge, it _is_ his uncleanness. 
 
 ###### 4 
-Every bed is [^a]unclean on which he who has the discharge lies, and everything on which he sits shall be unclean. 
+Every bed is unclean on which he who has the discharge lies, and everything on which he sits shall be unclean. 
 
 ###### 5 
 And whoever touches his bed shall wash his clothes and bathe in water, and be unclean until evening. 
@@ -52,7 +52,7 @@ The vessel of earth that he who has the discharge touches shall be broken, and e
 On the eighth day he shall take for himself two turtledoves or two young pigeons, and come before the Lord, to the door of the tabernacle of meeting, and give them to the priest. 
 
 ###### 15 
-Then the priest shall offer them, the one _as_ a sin offering and the other _as_ a burnt offering. So the priest shall make [^b]atonement for him before the Lord because of his discharge. 
+Then the priest shall offer them, the one _as_ a sin offering and the other _as_ a burnt offering. So the priest shall make atonement for him before the Lord because of his discharge. 
 
 ###### 16 
 'If any man has an emission of semen, then he shall wash all his body in water, and be unclean until evening. 
@@ -64,7 +64,7 @@ And any garment and any leather on which there is semen, it shall be washed with
 Also, when a woman lies with a man, and _there is_ an emission of semen, they shall bathe in water, and be unclean until evening. 
 
 ###### 19 
-'If a woman has a discharge, _and_ the discharge from her body is blood, she shall be [^c]set apart seven days; and whoever touches her shall be unclean until evening. 
+'If a woman has a discharge, _and_ the discharge from her body is blood, she shall be set apart seven days; and whoever touches her shall be unclean until evening. 
 
 ###### 20 
 Everything that she lies on during her impurity shall be unclean; also everything that she sits on shall be unclean. 
@@ -79,7 +79,7 @@ And whoever touches anything that she sat on shall wash his clothes and bathe in
 If _anything_ is on _her_ bed or on anything on which she sits, when he touches it, he shall be unclean until evening. 
 
 ###### 24 
-And if any man lies with her at all, so that her impurity is on him, he shall be [^d]unclean seven days; and every bed on which he lies shall be unclean. 
+And if any man lies with her at all, so that her impurity is on him, he shall be unclean seven days; and every bed on which he lies shall be unclean. 
 
 ###### 25 
 'If a woman has a discharge of blood for many days, other than at the time of her _customary_ impurity, or if it runs beyond her _usual time of_ impurity, all the days of her unclean discharge shall be as the days of her _customary_ impurity. She _shall be_ unclean. 

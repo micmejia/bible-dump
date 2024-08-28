@@ -91,7 +91,7 @@ And you shall swear by the Lord, the God of heaven and earth, that you will not 
 
 
 
-But you shall go to my country and to my relatives and take [^a]a wife for my son Isaac. 
+But you shall go to my country and to my relatives and take a wife for my son Isaac. 
 
 
 
@@ -154,7 +154,7 @@ Abraham said to him, See to it that you do not take my son back there.
 
 
 
-The Lord, the God of heaven, Who took me from my father's house, from the land of my family _and_ my birth, Who spoke to me and swore to me, saying, To your offspring I will give this land--He will send His [^b]Angel before you, and you will take a wife from there for my son. 
+The Lord, the God of heaven, Who took me from my father's house, from the land of my family _and_ my birth, Who spoke to me and swore to me, saying, To your offspring I will give this land--He will send His Angel before you, and you will take a wife from there for my son. 
 
 
 
@@ -175,7 +175,7 @@ The Lord, the God of heaven, Who took me from my father's house, from the land o
 
 
 
-And if the woman should [^c]not be willing to go along after you, then you will be clear from this oath; only you must not take my son back there. 
+And if the woman should not be willing to go along after you, then you will be clear from this oath; only you must not take my son back there. 
 
 
 
@@ -700,7 +700,7 @@ So the man came into the house; and [Laban] ungirded his camels and gave straw a
 
 
 
-A meal was set before him, but he said, [^d]I will not eat until I have told of my errand. And [Laban] said, Speak on. 
+A meal was set before him, but he said, I will not eat until I have told of my errand. And [Laban] said, Speak on. 
 
 
 
@@ -847,7 +847,7 @@ And I said to my master, But suppose the woman will not follow me.
 
 
 
-And he said to me, The Lord, in Whose presence I walk [habitually], will send His [^e]Angel with you and prosper your way, and you will take a wife for my son from my kindred and from my father's house. 
+And he said to me, The Lord, in Whose presence I walk [habitually], will send His Angel with you and prosper your way, and you will take a wife for my son from my kindred and from my father's house. 
 
 
 

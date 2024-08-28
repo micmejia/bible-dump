@@ -28,10 +28,10 @@ Once I have spoken, but I will not answer; Yes, twice, but I will proceed no fur
 Then the Lord answered Job out of the whirlwind, and said: 
 
 ###### 7 
-"Now [^a]prepare yourself like a man; I will question you, and you shall answer Me: 
+"Now prepare yourself like a man; I will question you, and you shall answer Me: 
 
 ###### 8 
-"Would you indeed [^b]annul My judgment? Would you condemn Me that you may be justified? 
+"Would you indeed annul My judgment? Would you condemn Me that you may be justified? 
 
 ###### 9 
 Have you an arm like God? Or can you thunder with a voice like His? 
@@ -52,7 +52,7 @@ Hide them in the dust together, Bind their faces in hidden _darkness._
 Then I will also confess to you That your own right hand can save you. 
 
 ###### 15 
-"Look now at the [^c]behemoth, which I made _along_ with you; He eats grass like an ox. 
+"Look now at the behemoth, which I made _along_ with you; He eats grass like an ox. 
 
 ###### 16 
 See now, his strength _is_ in his hips, And his power _is_ in his stomach muscles. 

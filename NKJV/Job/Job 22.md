@@ -31,10 +31,10 @@ For you have taken pledges from your brother for no reason, And stripped the nak
 You have not given the weary water to drink, And you have withheld bread from the hungry. 
 
 ###### 8 
-But the [^a]mighty man possessed the land, And the honorable man dwelt in it. 
+But the mighty man possessed the land, And the honorable man dwelt in it. 
 
 ###### 9 
-You have sent widows away empty, And the [^b]strength of the fatherless was crushed. 
+You have sent widows away empty, And the strength of the fatherless was crushed. 
 
 ###### 10 
 Therefore snares _are_ all around you, And sudden fear troubles you, 
@@ -58,7 +58,7 @@ Will you keep to the old way Which wicked men have trod,
 Who were cut down before their time, Whose foundations were swept away by a flood? 
 
 ###### 17 
-They said to God, 'Depart from us! What can the Almighty do to [^c]them?' 
+They said to God, 'Depart from us! What can the Almighty do to them?' 
 
 ###### 18 
 Yet He filled their houses with good _things;_ But the counsel of the wicked is far from me. 
@@ -67,7 +67,7 @@ Yet He filled their houses with good _things;_ But the counsel of the wicked is 
 "The righteous see _it_ and are glad, And the innocent laugh at them: 
 
 ###### 20 
-'Surely our [^d]adversaries are cut down, And the fire consumes their remnant.' 
+'Surely our adversaries are cut down, And the fire consumes their remnant.' 
 
 ###### 21 
 "Now acquaint yourself with Him, and be at peace; Thereby good will come to you. 
@@ -82,7 +82,7 @@ If you return to the Almighty, you will be built up; You will remove iniquity fa
 Then you will lay your gold in the dust, And the _gold_ of Ophir among the stones of the brooks. 
 
 ###### 25 
-Yes, the Almighty will be your [^e]gold And your precious silver; 
+Yes, the Almighty will be your gold And your precious silver; 
 
 ###### 26 
 For then you will have your delight in the Almighty, And lift up your face to God. 

@@ -964,7 +964,7 @@ Mula sa parte ng mga Israelita, magbukod ka ng isa sa bawat 50 bihag, tao man o 
 
 
 
-Kaya ginawa ni Moises at ng paring si Eleazar ang iniutos ng Panginoon kay Moises. <sup class="versenum">32-35</sup>Ito ang nasamsam ng mga sundalo sa digmaan: 675,000 tupa, 72,000 baka, 61,000 asno at 32,000 babaeng hindi pa nasipingan. <sup class="versenum">36-40</sup>Ito ang kalahati ng parte ng mga sundalong nakipaglaban. 337,500 tupa na ang 675 nito ay ibinigay para sa Panginoon; 36,000 baka na ang 72 nito ay ibinigay para sa Panginoon; 30,500 asno na ang 61 nito ay ibinigay para sa Panginoon; at 16,000 dalaga[^a] na ang 32 nito ay ibinigay para sa Panginoon. 
+Kaya ginawa ni Moises at ng paring si Eleazar ang iniutos ng Panginoon kay Moises. <sup class="versenum">32-35</sup>Ito ang nasamsam ng mga sundalo sa digmaan: 675,000 tupa, 72,000 baka, 61,000 asno at 32,000 babaeng hindi pa nasipingan. <sup class="versenum">36-40</sup>Ito ang kalahati ng parte ng mga sundalong nakipaglaban. 337,500 tupa na ang 675 nito ay ibinigay para sa Panginoon; 36,000 baka na ang 72 nito ay ibinigay para sa Panginoon; 30,500 asno na ang 61 nito ay ibinigay para sa Panginoon; at 16,000 dalaga na ang 32 nito ay ibinigay para sa Panginoon. 
 
 
 
@@ -997,7 +997,7 @@ Kaya ginawa ni Moises at ng paring si Eleazar ang iniutos ng Panginoon kay Moise
 
 
 
-Ibinigay ni Moises sa kay Eleazar na pari ang bahagi para sa Panginoon ayon sa iniutos sa kanya ng Panginoon. <sup class="versenum">42-46</sup>Ito ang parte ng mga Israelita na kalahati ng ibinigay ni Moises sa mga sundalong nakipaglaban: 337,500 tupa, 36,000 baka, 30,500 asno at 16,000 dalaga.[^b] 
+Ibinigay ni Moises sa kay Eleazar na pari ang bahagi para sa Panginoon ayon sa iniutos sa kanya ng Panginoon. <sup class="versenum">42-46</sup>Ito ang parte ng mga Israelita na kalahati ng ibinigay ni Moises sa mga sundalong nakipaglaban: 337,500 tupa, 36,000 baka, 30,500 asno at 16,000 dalaga. 
 
 
 

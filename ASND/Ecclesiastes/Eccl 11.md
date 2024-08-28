@@ -40,7 +40,7 @@ next: ['Eccl 12']
 
 
 
-Ipuhunan mo ang pera mo sa negosyo at sa kalaunan ay kikita ka.[^a] 
+Ipuhunan mo ang pera mo sa negosyo at sa kalaunan ay kikita ka. 
 
 
 
@@ -73,7 +73,7 @@ Ipuhunan mo ang pera mo sa negosyo at sa kalaunan ay kikita ka.[^a]
 
 
 
-Ilagay mo ang pera mo sa ibaʼt ibang[^b] negosyo,[^c] dahil hindi mo alam kung anong kalamidad ang darating dito sa mundo. 
+Ilagay mo ang pera mo sa ibaʼt ibang negosyo, dahil hindi mo alam kung anong kalamidad ang darating dito sa mundo. 
 
 
 
@@ -106,7 +106,7 @@ Ilagay mo ang pera mo sa ibaʼt ibang[^b] negosyo,[^c] dahil hindi mo alam kung 
 
 
 
-Kapag makapal na ang ulap, magbubuhos ito ng ulan sa mundo. At kung saan natumba ang puno, doon iyon mananatili.[^d] 
+Kapag makapal na ang ulap, magbubuhos ito ng ulan sa mundo. At kung saan natumba ang puno, doon iyon mananatili. 
 
 
 

@@ -73,7 +73,7 @@ Kung ang isang taoʼy ipinatawag sa hukuman para sumaksi sa pangyayaring kanyang
 
 
 
-Kung may nakahipo ng anumang bagay na itinuturing na marumi, katulad ng mga patay na hayop na marumi,[^a] siyaʼy nagkasala at naging marumi[^b] kahit hindi niya alam na nakahipo siya. 
+Kung may nakahipo ng anumang bagay na itinuturing na marumi, katulad ng mga patay na hayop na marumi, siyaʼy nagkasala at naging marumi kahit hindi niya alam na nakahipo siya. 
 
 
 
@@ -106,7 +106,7 @@ Kung may nakahipo ng anumang bagay na itinuturing na marumi, katulad ng mga pata
 
 
 
-Kung siyaʼy nakahipo ng mga maruming bagay ng tao,[^c] kahit hindi niya alam na siyaʼy naging marumi, ituturing pa ring nagkasala siya kapag nalaman niya. 
+Kung siyaʼy nakahipo ng mga maruming bagay ng tao, kahit hindi niya alam na siyaʼy naging marumi, ituturing pa ring nagkasala siya kapag nalaman niya. 
 
 
 
@@ -502,7 +502,7 @@ Ibinigay din ng Panginoon ang utos na ito kay Moises:
 
 
 
-Kapag ang taoʼy lumabag <i class="trans-change">sa utos ng Panginoon_ dahil sa hindi niya ibinigay <i class="trans-change">ang anumang nauukol_ para sa Panginoon, kahit hindi niya sinasadya, kailangang maghandog siya ng lalaking tupa na walang kapintasan bilang kabayaran sa kanyang kasalanan. Maaari rin niyang bayaran ng pilak na katumbas ng halaga ng lalaking tupa ayon sa bigat ng pilak sa timbangang ginagamit ng mga pari. Itoʼy handog na pambayad ng kasalanan.[^d] 
+Kapag ang taoʼy lumabag <i class="trans-change">sa utos ng Panginoon_ dahil sa hindi niya ibinigay <i class="trans-change">ang anumang nauukol_ para sa Panginoon, kahit hindi niya sinasadya, kailangang maghandog siya ng lalaking tupa na walang kapintasan bilang kabayaran sa kanyang kasalanan. Maaari rin niyang bayaran ng pilak na katumbas ng halaga ng lalaking tupa ayon sa bigat ng pilak sa timbangang ginagamit ng mga pari. Itoʼy handog na pambayad ng kasalanan. 
 
 
 

@@ -16,7 +16,7 @@ Now the word of the Lord came to me, saying:
 "Son of man, set your face toward the mountains of Israel, and prophesy against them, 
 
 ###### 3 
-and say, 'O mountains of Israel, hear the word of the Lord God! Thus says the Lord God to the mountains, to the hills, to the ravines, and to the valleys: "Indeed I, _even_ I, will bring a sword against you, and I will destroy your [^a]high places. 
+and say, 'O mountains of Israel, hear the word of the Lord God! Thus says the Lord God to the mountains, to the hills, to the ravines, and to the valleys: "Indeed I, _even_ I, will bring a sword against you, and I will destroy your high places. 
 
 ###### 4 
 Then your altars shall be desolate, your incense altars shall be broken, and I will cast down your slain _men_ before your idols. 
@@ -25,7 +25,7 @@ Then your altars shall be desolate, your incense altars shall be broken, and I w
 And I will lay the corpses of the children of Israel before their idols, and I will scatter your bones all around your altars. 
 
 ###### 6 
-In all your dwelling places the cities shall be laid waste, and the [^b]high places shall be desolate, so that your altars may be laid waste and made desolate, your idols may be broken and made to cease, your incense altars may be cut down, and your works may be abolished. 
+In all your dwelling places the cities shall be laid waste, and the high places shall be desolate, so that your altars may be laid waste and made desolate, your idols may be broken and made to cease, your incense altars may be cut down, and your works may be abolished. 
 
 ###### 7 
 The slain shall fall in your midst, and you shall know that I _am_ the Lord. 
@@ -40,7 +40,7 @@ Then those of you who escape will remember Me among the nations where they are c
 And they shall know that I _am_ the Lord; I have not said in vain that I would bring this calamity upon them." 
 
 ###### 11 
-'Thus says the Lord God: "Pound[^c] your fists and stamp your feet, and say, 'Alas, for all the evil abominations of the house of Israel! For they shall fall by the sword, by famine, and by pestilence. 
+'Thus says the Lord God: "Pound your fists and stamp your feet, and say, 'Alas, for all the evil abominations of the house of Israel! For they shall fall by the sword, by famine, and by pestilence. 
 
 ###### 12 
 He who is far off shall die by the pestilence, he who is near shall fall by the sword, and he who remains and is besieged shall die by the famine. Thus will I spend My fury upon them. 

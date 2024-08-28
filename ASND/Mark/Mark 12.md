@@ -337,7 +337,7 @@ Kaya sinunggaban nila ang anak, pinatay at itinapon sa labas ng ubasan."
 
 
 
-Hindi nʼyo ba nabasa ang talatang ito sa Kasulatan? 'Ang batong tinanggihan ng mga tagapagtayo ng bahay ang siyang naging batong pundasyon.[^a] 
+Hindi nʼyo ba nabasa ang talatang ito sa Kasulatan? 'Ang batong tinanggihan ng mga tagapagtayo ng bahay ang siyang naging batong pundasyon. 
 
 
 
@@ -370,7 +370,7 @@ Hindi nʼyo ba nabasa ang talatang ito sa Kasulatan? 'Ang batong tinanggihan ng 
 
 
 
-Gawa ito ng Panginoon at kahanga-hanga ito sa atin!' "[^b] 
+Gawa ito ng Panginoon at kahanga-hanga ito sa atin!' " 
 
 
 
@@ -469,7 +469,7 @@ Pinapunta ng mga pinuno ng mga Judio kay Jesus ang ilang Pariseo at ilang tauhan
 
 
 
-Kaya lumapit sila kay Jesus at nagtanong, "Guro, alam po naming totoo ang mga sinasabi nʼyo, at wala kayong pinapaboran. Sapagkat hindi kayo tumitingin sa katayuan ng tao, kundi kung ano ang katotohanan tungkol sa kalooban ng Dios ang siyang itinuturo ninyo. Ngayon, tama po ba na <i class="trans-change">tayong mga Judio ay_ magbayad ng buwis sa Emperador ng Roma?[^c] Dapat po ba tayong magbayad o hindi?" 
+Kaya lumapit sila kay Jesus at nagtanong, "Guro, alam po naming totoo ang mga sinasabi nʼyo, at wala kayong pinapaboran. Sapagkat hindi kayo tumitingin sa katayuan ng tao, kundi kung ano ang katotohanan tungkol sa kalooban ng Dios ang siyang itinuturo ninyo. Ngayon, tama po ba na <i class="trans-change">tayong mga Judio ay_ magbayad ng buwis sa Emperador ng Roma? Dapat po ba tayong magbayad o hindi?" 
 
 
 
@@ -502,7 +502,7 @@ Kaya lumapit sila kay Jesus at nagtanong, "Guro, alam po naming totoo ang mga si
 
 
 
-Pero alam ni Jesus na nagkukunwari sila, kaya sinabi niya, "Bakit ninyo ako sinusubukang hulihin sa tanong na iyan? Magdala nga kayo rito ng pera[^d] at titingnan ko." 
+Pero alam ni Jesus na nagkukunwari sila, kaya sinabi niya, "Bakit ninyo ako sinusubukang hulihin sa tanong na iyan? Magdala nga kayo rito ng pera at titingnan ko." 
 
 
 
@@ -634,7 +634,7 @@ May mga Saduceo na lumapit kay Jesus at nagtanong. (Ang mga taong ito ay hindi n
 
 
 
-Sinabi nila, "Guro, ayon po sa <i class="trans-change">batas na_ isinulat ni Moises, kapag ang isang lalaki ay namatay na walang anak sa kanyang asawa, dapat ay pakasalan ng kapatid niyang lalaki ang naiwan niyang asawa, para magkaanak sila para sa kanya.[^e] 
+Sinabi nila, "Guro, ayon po sa <i class="trans-change">batas na_ isinulat ni Moises, kapag ang isang lalaki ay namatay na walang anak sa kanyang asawa, dapat ay pakasalan ng kapatid niyang lalaki ang naiwan niyang asawa, para magkaanak sila para sa kanya. 
 
 
 
@@ -997,7 +997,7 @@ Sumagot si Jesus, "Ito ang pinakamahalagang utos: 'Pakinggan ninyo mga taga-Isra
 
 
 
-Kaya mahalin mo ang Panginoon mong Dios nang buong puso, nang buong kaluluwa, nang buong pag-iisip, at nang buong lakas!'[^f] 
+Kaya mahalin mo ang Panginoon mong Dios nang buong puso, nang buong kaluluwa, nang buong pag-iisip, at nang buong lakas!' 
 
 
 
@@ -1030,7 +1030,7 @@ Kaya mahalin mo ang Panginoon mong Dios nang buong puso, nang buong kaluluwa, na
 
 
 
-At ang pangalawa ay ito: 'Mahalin mo ang iyong kapwa tulad ng pagmamahal mo sa iyong sarili.'[^g] Wala nang ibang utos na higit pang mahalaga kaysa sa dalawang ito." 
+At ang pangalawa ay ito: 'Mahalin mo ang iyong kapwa tulad ng pagmamahal mo sa iyong sarili.' Wala nang ibang utos na higit pang mahalaga kaysa sa dalawang ito." 
 
 
 
@@ -1195,7 +1195,7 @@ Nang minsang nangangaral si Jesus sa templo, tinanong niya <i class="trans-chang
 
 
 
-Samantalang si David na mismo na pinatnubayan ng Banal na Espiritu ang nagsabing, 'Sinabi ng Panginoon sa aking Panginoon, Maupo ka sa kanan ko hanggang sa mapasuko ko sa iyo ang iyong mga kaaway!'[^h] 
+Samantalang si David na mismo na pinatnubayan ng Banal na Espiritu ang nagsabing, 'Sinabi ng Panginoon sa aking Panginoon, Maupo ka sa kanan ko hanggang sa mapasuko ko sa iyo ang iyong mga kaaway!' 
 
 
 
@@ -1261,7 +1261,7 @@ Ngayon, kung tinawag siya ni David na Panginoon, paano siyang naging lahi <i cla
 
 
 
-Sinabi pa ni Jesus sa kanyang pagtuturo, "Mag-ingat kayo sa mga tagapagturo ng Kautusan. Mahilig silang mamasyal na nakasuot ng espesyal na damit.[^i] At gustong-gusto nilang batiin silaʼt igalang sa mga mataong lugar.[^j] 
+Sinabi pa ni Jesus sa kanyang pagtuturo, "Mag-ingat kayo sa mga tagapagturo ng Kautusan. Mahilig silang mamasyal na nakasuot ng espesyal na damit. At gustong-gusto nilang batiin silaʼt igalang sa mga mataong lugar. 
 
 
 

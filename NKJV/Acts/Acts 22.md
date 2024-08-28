@@ -34,7 +34,7 @@ And I fell to the ground and heard a voice saying to me, 'Saul, Saul, why are yo
 So I answered, 'Who are You, Lord?' And He said to me, 'I am Jesus of Nazareth, whom you are persecuting.' 
 
 ###### 9 
-"And those who were with me indeed saw the light [^a]and were afraid, but they did not hear the voice of Him who spoke to me. 
+"And those who were with me indeed saw the light and were afraid, but they did not hear the voice of Him who spoke to me. 
 
 ###### 10 
 So I said, 'What shall I do, Lord?' And the Lord said to me, 'Arise and go into Damascus, and there you will be told all things which are appointed for you to do.' 
@@ -67,7 +67,7 @@ and saw Him saying to me, 'Make haste and get out of Jerusalem quickly, for they
 So I said, 'Lord, they know that in every synagogue I imprisoned and beat those who believe on You. 
 
 ###### 20 
-And when the blood of Your martyr Stephen was shed, I also was standing by consenting [^b]to his death, and guarding the clothes of those who were killing him.' 
+And when the blood of Your martyr Stephen was shed, I also was standing by consenting to his death, and guarding the clothes of those who were killing him.' 
 
 ###### 21 
 Then He said to me, 'Depart, for I will send you far from here to the Gentiles.' " ## Paul's Roman Citizenship 
@@ -76,7 +76,7 @@ Then He said to me, 'Depart, for I will send you far from here to the Gentiles.'
 And they listened to him until this word, and _then_ they raised their voices and said, "Away with such a _fellow_ from the earth, for he is not fit to live!" 
 
 ###### 23 
-Then, as they cried out and [^c]tore off _their_ clothes and threw dust into the air, 
+Then, as they cried out and tore off _their_ clothes and threw dust into the air, 
 
 ###### 24 
 the commander ordered him to be brought into the barracks, and said that he should be examined under scourging, so that he might know why they shouted so against him. 

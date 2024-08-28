@@ -34,7 +34,7 @@ After he begot Enosh, Seth lived eight hundred and seven years, and had sons and
 So all the days of Seth were nine hundred and twelve years; and he died. 
 
 ###### 9 
-Enosh lived ninety years, and begot [^a]Cainan. 
+Enosh lived ninety years, and begot Cainan. 
 
 ###### 10 
 After he begot Cainan, Enosh lived eight hundred and fifteen years, and had sons and daughters. 
@@ -94,7 +94,7 @@ So all the days of Methuselah were nine hundred and sixty-nine years; and he die
 Lamech lived one hundred and eighty-two years, and had a son. 
 
 ###### 29 
-And he called his name Noah,[^b] saying, "This _one_ will comfort us concerning our work and the toil of our hands, because of the ground which the Lord has cursed." 
+And he called his name Noah, saying, "This _one_ will comfort us concerning our work and the toil of our hands, because of the ground which the Lord has cursed." 
 
 ###### 30 
 After he begot Noah, Lamech lived five hundred and ninety-five years, and had sons and daughters. 

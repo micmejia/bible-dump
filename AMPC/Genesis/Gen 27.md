@@ -868,7 +868,7 @@ By your sword you shall live and serve your brother. But [the time shall come] w
 
 
 
-And Esau hated Jacob because of the blessing with which his father blessed him; and Esau said in his heart, The days of mourning for my father are very near. When [he is gone] I will [^a]kill my brother Jacob. 
+And Esau hated Jacob because of the blessing with which his father blessed him; and Esau said in his heart, The days of mourning for my father are very near. When [he is gone] I will kill my brother Jacob. 
 
 
 
@@ -952,7 +952,7 @@ Linger and dwell with him for a while until your brother's fury is spent.
 
 
 
-When your brother's anger is diverted from you, he will forget [the wrong] that you have done him. Then [^b]I will send and bring you back from there. Why should I be deprived of both of you in one day? 
+When your brother's anger is diverted from you, he will forget [the wrong] that you have done him. Then I will send and bring you back from there. Why should I be deprived of both of you in one day? 
 
 
 

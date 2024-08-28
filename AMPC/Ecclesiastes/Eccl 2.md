@@ -175,7 +175,7 @@ I bought menservants and maidservants and had servants born in my house. Also I 
 
 
 
-I also gathered for myself silver and gold and the treasure of kings and of the provinces. I got for myself men singers and women singers, and the delights of the sons of men--[^a]concubines very many. 
+I also gathered for myself silver and gold and the treasure of kings and of the provinces. I got for myself men singers and women singers, and the delights of the sons of men--concubines very many. 
 
 
 
@@ -532,7 +532,7 @@ There is nothing better for a man than that he should eat and drink and make him
 
 
 
-For who can eat or who can have enjoyment any more than I can--[^b]_apart from Him_? 
+For who can eat or who can have enjoyment any more than I can--_apart from Him_? 
 
 
 

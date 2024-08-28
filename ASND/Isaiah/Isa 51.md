@@ -7,7 +7,7 @@ next: ['Isa 52']
 # Isaiah 51
 
 ***
-###### 1-2 <i class="trans-change">Sinabi ng Panginoon,_ "Makinig kayo sa akin, kayong mga gustong maligtas[^a] at humihingi ng tulong sa akin. Alalahanin ninyo sina Abraham at Sara na inyong mga ninuno. Katulad sila ng batong pinagtibagan sa inyo o pinaghukayan sa inyo. Noong tinawag ko si Abraham, nag-iisa siya, pero pinagpala ko siya at binigyan ng maraming lahi. 
+###### 1-2 <i class="trans-change">Sinabi ng Panginoon,_ "Makinig kayo sa akin, kayong mga gustong maligtas at humihingi ng tulong sa akin. Alalahanin ninyo sina Abraham at Sara na inyong mga ninuno. Katulad sila ng batong pinagtibagan sa inyo o pinaghukayan sa inyo. Noong tinawag ko si Abraham, nag-iisa siya, pero pinagpala ko siya at binigyan ng maraming lahi. 
 
 
 
@@ -40,7 +40,7 @@ next: ['Isa 52']
 
 
 
-"Kaaawaan ko ang Jerusalem[^b] na nawasak. Ang mga disyerto nito ay gagawin kong parang halamanan ng Eden. Maghahari sa Jerusalem ang kagalakan, pasasalamat at pag-aawitan. 
+"Kaaawaan ko ang Jerusalem na nawasak. Ang mga disyerto nito ay gagawin kong parang halamanan ng Eden. Maghahari sa Jerusalem ang kagalakan, pasasalamat at pag-aawitan. 
 
 
 
@@ -106,7 +106,7 @@ next: ['Isa 52']
 
 
 
-Malapit ko na kayong bigyan ng tagumpay. Hindi magtatagal at ililigtas ko na kayo. Ako ang mamamahala sa mga bansa. Ang mga nasa malalayong lugar[^c] ay maghihintay sa akin at maghahangad ng aking kapangyarihan. 
+Malapit ko na kayong bigyan ng tagumpay. Hindi magtatagal at ililigtas ko na kayo. Ako ang mamamahala sa mga bansa. Ang mga nasa malalayong lugar ay maghihintay sa akin at maghahangad ng aking kapangyarihan. 
 
 
 
@@ -238,7 +238,7 @@ Sapagkat matutulad sila sa damit na nginatngat ng mga kulisap. Pero ang tagumpay
 
 
 
-Sige na, Panginoon, tulungan nʼyo na po kami. Gamitin nʼyo na ang inyong kapangyarihan sa pagliligtas sa amin. Tulungan nʼyo kami katulad ng ginawa nʼyo noon. Hindi baʼt kayo ang tumadtad sa dragon na si Rahab?[^d] 
+Sige na, Panginoon, tulungan nʼyo na po kami. Gamitin nʼyo na ang inyong kapangyarihan sa pagliligtas sa amin. Tulungan nʼyo kami katulad ng ginawa nʼyo noon. Hindi baʼt kayo ang tumadtad sa dragon na si Rahab? 
 
 
 

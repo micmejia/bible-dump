@@ -28,7 +28,7 @@ Then take some of them again and throw them into the midst of the fire, and burn
 She has rebelled against My judgments by doing wickedness more than the nations, and against My statutes more than the countries that _are_ all around her; for they have refused My judgments, and they have not walked in My statutes.' 
 
 ###### 7 
-Therefore thus says the Lord God: 'Because you have [^a]multiplied _disobedience_ more than the nations that _are_ all around you, have not walked in My statutes nor kept My judgments, [^b]nor even done according to the judgments of the nations that _are_ all around you'-- 
+Therefore thus says the Lord God: 'Because you have multiplied _disobedience_ more than the nations that _are_ all around you, have not walked in My statutes nor kept My judgments, nor even done according to the judgments of the nations that _are_ all around you'-- 
 
 ###### 8 
 therefore thus says the Lord God: 'Indeed I, even I, _am_ against you and will execute judgments in your midst in the sight of the nations. 
@@ -52,7 +52,7 @@ One-third of you shall die of the pestilence, and be consumed with famine in you
 Moreover I will make you a waste and a reproach among the nations that _are_ all around you, in the sight of all who pass by. 
 
 ###### 15 
-'So [^c]it shall be a reproach, a taunt, a lesson, and an astonishment to the nations that _are_ all around you, when I execute judgments among you in anger and in fury and in furious rebukes. I, the Lord, have spoken. 
+'So it shall be a reproach, a taunt, a lesson, and an astonishment to the nations that _are_ all around you, when I execute judgments among you in anger and in fury and in furious rebukes. I, the Lord, have spoken. 
 
 ###### 16 
 When I send against them the terrible arrows of famine which shall be for destruction, which I will send to destroy you, I will increase the famine upon you and cut off your supply of bread. 

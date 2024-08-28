@@ -91,7 +91,7 @@ For the vision is yet for an appointed time and it hastens to the end [fulfillme
 
 
 
-Look at the proud; his soul is not straight _or_ right within him, but the [rigidly] just _and_ the [uncompromisingly] righteous man shall [^a]live by his faith _and_ in his faithfulness. 
+Look at the proud; his soul is not straight _or_ right within him, but the [rigidly] just _and_ the [uncompromisingly] righteous man shall live by his faith _and_ in his faithfulness. 
 
 
 
@@ -112,7 +112,7 @@ Look at the proud; his soul is not straight _or_ right within him, but the [rigi
 
 
 
-Moreover, wine _and_ [^b]_wealth_ are treacherous; the proud man [the Chaldean invader] is restless _and_ cannot stay at home. His appetite is large like that of Sheol and [his greed] is like death and cannot be satisfied; he gathers to himself all nations and collects all people as if he owned them. 
+Moreover, wine _and_ _wealth_ are treacherous; the proud man [the Chaldean invader] is restless _and_ cannot stay at home. His appetite is large like that of Sheol and [his greed] is like death and cannot be satisfied; he gathers to himself all nations and collects all people as if he owned them. 
 
 
 

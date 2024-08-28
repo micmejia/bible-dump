@@ -139,7 +139,7 @@ Kukuha ang pari ng bahagi na susunugin niya para sa Panginoon. Kukunin niya ang 
 
 
 
-ang mga bato[^a] at ang taba nito, pati na ang maliit na bahagi ng atay. 
+ang mga bato at ang taba nito, pati na ang maliit na bahagi ng atay. 
 
 
 
@@ -172,7 +172,7 @@ ang mga bato[^a] at ang taba nito, pati na ang maliit na bahagi ng atay.
 
 
 
-Ang mga itoʼy susunugin ng mga pari sa altar kasama ng handog na sinusunog. Ang mabangong samyo ng handog na ito sa pamamagitan ng apoy[^b] ay makalulugod sa Panginoon. 
+Ang mga itoʼy susunugin ng mga pari sa altar kasama ng handog na sinusunog. Ang mabangong samyo ng handog na ito sa pamamagitan ng apoy ay makalulugod sa Panginoon. 
 
 
 
@@ -370,7 +370,7 @@ ang mga bato at ang taba nito, pati na ang maliit na bahagi ng atay.
 
 
 
-Ang lahat ng itoʼy susunugin ng pari sa altar bilang handog na pagkain.[^c] Itoʼy handog sa pamamagitan ng apoy para sa Panginoon. 
+Ang lahat ng itoʼy susunugin ng pari sa altar bilang handog na pagkain. Itoʼy handog sa pamamagitan ng apoy para sa Panginoon. 
 
 
 

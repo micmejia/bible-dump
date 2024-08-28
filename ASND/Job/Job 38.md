@@ -238,7 +238,7 @@ Sino ang may hawak ng pundasyon ng mundo? At sino ang naglagay ng pundasyon na i
 
 
 
-habang sama-samang umaawit ang mga bituin sa umaga at nagsisigawan sa tuwa ang lahat ng anghel?[^a] 
+habang sama-samang umaawit ang mga bituin sa umaga at nagsisigawan sa tuwa ang lahat ng anghel? 
 
 
 
@@ -799,7 +799,7 @@ Ang mga yelong itoʼy inihahanda ko para sa panahon ng kaguluhan at digmaan.
 
 
 
-Alam mo ba ang daan patungo sa lugar na pinanggagalingan ng kidlat,[^b] o sa lugar na pinanggagalingan ng hanging silangan? 
+Alam mo ba ang daan patungo sa lugar na pinanggagalingan ng kidlat, o sa lugar na pinanggagalingan ng hanging silangan? 
 
 
 
@@ -1096,7 +1096,7 @@ Mapapatnubayan mo ba ang mga bituin na lumabas sa tamang oras? Maituturo mo ba s
 
 
 
-Alam mo ba ang mga tuntuning umiiral sa kalangitan?[^c] Ito kayaʼy mapapairal mo rito sa mundo? 
+Alam mo ba ang mga tuntuning umiiral sa kalangitan? Ito kayaʼy mapapairal mo rito sa mundo? 
 
 
 

@@ -502,7 +502,7 @@ Natakot ako at nanginig ang buo kong katawan.
 
 
 
-May espiritu na dumaan sa aking harap[^a] at tumayo ang mga balahibo ko at kinilabutan ako. 
+May espiritu na dumaan sa aking harap at tumayo ang mga balahibo ko at kinilabutan ako. 
 
 
 

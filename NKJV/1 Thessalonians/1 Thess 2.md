@@ -13,7 +13,7 @@ next: ['1 Thess 3']
 For you yourselves know, brethren, that our coming to you was not in vain. 
 
 ###### 2 
-But [^a]even after we had suffered before and were spitefully treated at Philippi, as you know, we were bold in our God to speak to you the gospel of God in much conflict. 
+But even after we had suffered before and were spitefully treated at Philippi, as you know, we were bold in our God to speak to you the gospel of God in much conflict. 
 
 ###### 3 
 For our exhortation _did_ not _come_ from error or uncleanness, nor _was it_ in deceit. 
@@ -22,7 +22,7 @@ For our exhortation _did_ not _come_ from error or uncleanness, nor _was it_ in 
 But as we have been approved by God to be entrusted with the gospel, even so we speak, not as pleasing men, but God who tests our hearts. 
 
 ###### 5 
-For neither at any time did we use flattering words, as you know, nor a [^b]cloak for covetousness--God _is_ witness. 
+For neither at any time did we use flattering words, as you know, nor a cloak for covetousness--God _is_ witness. 
 
 ###### 6 
 Nor did we seek glory from men, either from you or from others, when we might have made demands as apostles of Christ. 
@@ -40,7 +40,7 @@ For you remember, brethren, our labor and toil; for laboring night and day, that
 You _are_ witnesses, and God _also,_ how devoutly and justly and blamelessly we behaved ourselves among you who believe; 
 
 ###### 11 
-as you know how we exhorted, and comforted, and [^c]charged every one of you, as a father _does_ his own children, 
+as you know how we exhorted, and comforted, and charged every one of you, as a father _does_ his own children, 
 
 ###### 12 
 that you would walk worthy of God who calls you into His own kingdom and glory. ## Their Conversion 
@@ -52,7 +52,7 @@ For this reason we also thank God without ceasing, because when you received the
 For you, brethren, became imitators of the churches of God which are in Judea in Christ Jesus. For you also suffered the same things from your own countrymen, just as they _did_ from the Judeans, 
 
 ###### 15 
-who killed both the Lord Jesus and their own prophets, and have persecuted us; and they do not please God and are [^d]contrary to all men, 
+who killed both the Lord Jesus and their own prophets, and have persecuted us; and they do not please God and are contrary to all men, 
 
 ###### 16 
 forbidding us to speak to the Gentiles that they may be saved, so as always to fill up _the measure of_ their sins; but wrath has come upon them to the uttermost. ## Longing to See Them 

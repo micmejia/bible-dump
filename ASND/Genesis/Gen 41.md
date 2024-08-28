@@ -40,7 +40,7 @@ next: ['Gen 42']
 
 
 
-Pagkalipas ng dalawang taon, nanaginip ang Faraon[^a] na nakatayo siya sa pampang ng Ilog ng Nilo. 
+Pagkalipas ng dalawang taon, nanaginip ang Faraon na nakatayo siya sa pampang ng Ilog ng Nilo. 
 
 
 
@@ -205,7 +205,7 @@ Muling nakatulog ang Faraon at nanaginip na naman. Sa kanyang panaginip, nakakit
 
 
 
-At sa sanga ring iyon, sumulpot ang pitong uhay na payat ang butil na natuyo dahil sa <i class="trans-change">mainit na_ hangin na galing sa silangan.[^b] 
+At sa sanga ring iyon, sumulpot ang pitong uhay na payat ang butil na natuyo dahil sa <i class="trans-change">mainit na_ hangin na galing sa silangan. 
 
 
 
@@ -1129,7 +1129,7 @@ Dalawang beses po kayong nanaginip, Mahal na Faraon, para malaman nʼyo na itina
 
 
 
-Maglagay din po kayo ng mga opisyal sa buong Egipto para ihanda[^c] ang lugar na ito sa loob ng pitong taon na kasaganaan. 
+Maglagay din po kayo ng mga opisyal sa buong Egipto para ihanda ang lugar na ito sa loob ng pitong taon na kasaganaan. 
 
 
 
@@ -1360,7 +1360,7 @@ Tinanggal agad ng Faraon ang kanyang singsing na pangtatak at isinuot sa daliri 
 
 
 
-Ipinagamit din niya kay Jose ang kanyang pangalawang karwahe,[^d] at may mga tagapamalita na mauuna sa kanya na sumisigaw, "Lumuhod kayo sa gobernador!" Kaya simula noon, naging gobernador si Jose sa buong lupain ng Egipto. 
+Ipinagamit din niya kay Jose ang kanyang pangalawang karwahe, at may mga tagapamalita na mauuna sa kanya na sumisigaw, "Lumuhod kayo sa gobernador!" Kaya simula noon, naging gobernador si Jose sa buong lupain ng Egipto. 
 
 
 
@@ -1525,7 +1525,7 @@ Tunay ngang naging masagana ang ani sa loob ng pitong taong kasaganaan.
 
 
 
-At sa panahong iyon, ipinaipon ni Jose ang lahat ng <i class="trans-change">nakolekta galing sa_ mga ani.[^e] Ipinatago niya sa bawat lungsod ang mga ani na galing sa bukid sa palibot nito. 
+At sa panahong iyon, ipinaipon ni Jose ang lahat ng <i class="trans-change">nakolekta galing sa_ mga ani. Ipinatago niya sa bawat lungsod ang mga ani na galing sa bukid sa palibot nito. 
 
 
 
@@ -1624,7 +1624,7 @@ Bago dumating ang taggutom, ipinanganak ang dalawang anak ni Jose kay Asenat na 
 
 
 
-Pinangalanan ni Jose ang panganay na Manase[^f] dahil ayon sa kanya, "Dahil sa tulong ng Dios, nakalimutan ko ang mga paghihirap ko at ang <i class="trans-change">aking pananabik sa_ sambahayan ng aking ama." 
+Pinangalanan ni Jose ang panganay na Manase dahil ayon sa kanya, "Dahil sa tulong ng Dios, nakalimutan ko ang mga paghihirap ko at ang <i class="trans-change">aking pananabik sa_ sambahayan ng aking ama." 
 
 
 
@@ -1657,7 +1657,7 @@ Pinangalanan ni Jose ang panganay na Manase[^f] dahil ayon sa kanya, "Dahil sa t
 
 
 
-Pinangalanan niya ang pangalawa niyang anak na Efraim.[^g] Sapagkat ayon sa kanya, "Dahil sa tulong ng Dios, naging masagana ako sa lugar kung saan nakaranas ako ng mga paghihirap." 
+Pinangalanan niya ang pangalawa niyang anak na Efraim. Sapagkat ayon sa kanya, "Dahil sa tulong ng Dios, naging masagana ako sa lugar kung saan nakaranas ako ng mga paghihirap." 
 
 
 

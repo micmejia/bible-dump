@@ -10,7 +10,7 @@ next: ['Prov 19']
 
 
 ###### 1 
-A man who isolates himself seeks his own desire; He rages against all [^a]wise judgment. 
+A man who isolates himself seeks his own desire; He rages against all wise judgment. 
 
 ###### 2 
 A fool has no delight in understanding, But in expressing his own heart. 
@@ -31,13 +31,13 @@ A fool's lips enter into contention, And his mouth calls for blows.
 A fool's mouth _is_ his destruction, And his lips _are_ the snare of his soul. 
 
 ###### 8 
-The words of a [^b]talebearer _are_ like [^c]tasty trifles, And they go down into the [^d]inmost body. 
+The words of a talebearer _are_ like tasty trifles, And they go down into the inmost body. 
 
 ###### 9 
 He who is slothful in his work Is a brother to him who is a great destroyer. 
 
 ###### 10 
-The name of the Lord _is_ a strong tower; The righteous run to it and are [^e]safe. 
+The name of the Lord _is_ a strong tower; The righteous run to it and are safe. 
 
 ###### 11 
 The rich man's wealth _is_ his strong city, And like a high wall in his own esteem. 
@@ -79,4 +79,4 @@ _He who_ finds a wife finds a good _thing,_ And obtains favor from the Lord.
 The poor _man_ uses entreaties, But the rich answers roughly. 
 
 ###### 24 
-A man _who has_ friends [^f]must himself be friendly, But there is a friend _who_ sticks closer than a brother.
+A man _who has_ friends must himself be friendly, But there is a friend _who_ sticks closer than a brother.

@@ -667,7 +667,7 @@ Susumpain niya ang lahat ng gagawin ninyo.
 
 
 
-Maguguluhan at malilito kayo sa lahat ng gagawin ninyo hanggang sa malipol kayo at tuluyang mawala, dahil sa masama ninyong ginagawa sa pamamagitan ng pagsuway sa kanya.[^a] 
+Maguguluhan at malilito kayo sa lahat ng gagawin ninyo hanggang sa malipol kayo at tuluyang mawala, dahil sa masama ninyong ginagawa sa pamamagitan ng pagsuway sa kanya. 
 
 
 
@@ -733,7 +733,7 @@ Padadalhan kayo ng Panginoon ng mga salot hanggang sa mamatay kayo roon sa lupai
 
 
 
-Pahihirapan kayo ng Panginoon sa sakit na hindi gumagaling, lagnat, pamamaga, mainit na hangin, mahabang tagtuyot,[^b] at peste sa mga halaman hanggang sa mamatay kayo. 
+Pahihirapan kayo ng Panginoon sa sakit na hindi gumagaling, lagnat, pamamaga, mainit na hangin, mahabang tagtuyot, at peste sa mga halaman hanggang sa mamatay kayo. 
 
 
 
@@ -997,7 +997,7 @@ Mangangapa kayo kahit na araw tulad ng isang bulag. Hindi kayo uunlad sa lahat n
 
 
 
-"Aagawin[^c] ng ibang lalaki ang babaeng magiging asawa ninyo. Magpapatayo kayo ng mga bahay pero hindi kayo ang titira rito. Magtatanim kayo ng ubas pero hindi kayo ang makikinabang sa mga bunga nito. 
+"Aagawin ng ibang lalaki ang babaeng magiging asawa ninyo. Magpapatayo kayo ng mga bahay pero hindi kayo ang titira rito. Magtatanim kayo ng ubas pero hindi kayo ang makikinabang sa mga bunga nito. 
 
 
 

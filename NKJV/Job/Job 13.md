@@ -28,7 +28,7 @@ Oh, that you would be silent, And it would be your wisdom!
 Now hear my reasoning, And heed the pleadings of my lips. 
 
 ###### 7 
-Will you speak [^a]wickedly for God, And talk deceitfully for Him? 
+Will you speak wickedly for God, And talk deceitfully for Him? 
 
 ###### 8 
 Will you show partiality for Him? Will you contend for God? 
@@ -40,13 +40,13 @@ Will it be well when He searches you out? Or can you mock Him as one mocks a man
 He will surely rebuke you If you secretly show partiality. 
 
 ###### 11 
-Will not His [^b]excellence make you afraid, And the dread of Him fall upon you? 
+Will not His excellence make you afraid, And the dread of Him fall upon you? 
 
 ###### 12 
 Your platitudes _are_ proverbs of ashes, Your defenses are defenses of clay. 
 
 ###### 13 
-"Hold[^c] your peace with me, and let me speak, Then let come on me what _may!_ 
+"Hold your peace with me, and let me speak, Then let come on me what _may!_ 
 
 ###### 14 
 Why do I take my flesh in my teeth, And put my life in my hands? 
@@ -88,7 +88,7 @@ Will You frighten a leaf driven to and fro? And will You pursue dry stubble?
 For You write bitter things against me, And make me inherit the iniquities of my youth. 
 
 ###### 27 
-You put my feet in the stocks, And watch closely all my paths. You [^d]set a limit for the [^e]soles of my feet. 
+You put my feet in the stocks, And watch closely all my paths. You set a limit for the soles of my feet. 
 
 ###### 28 
-"_Man_[^f] decays like a rotten thing, Like a garment that is moth-eaten.
+"_Man_ decays like a rotten thing, Like a garment that is moth-eaten.

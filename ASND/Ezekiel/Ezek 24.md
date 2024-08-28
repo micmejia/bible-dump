@@ -337,7 +337,7 @@ Nakita ko iyon at hinayaan kong makita iyon ng lahat. Ang mga dugong iyon ay par
 
 
 
-Sige, dagdagan pa ninyo ang panggatong at sindihan. Pakuluan ninyo ang karne hanggang sa matuyo[^a] ang sabaw at masunog pati ang mga buto. 
+Sige, dagdagan pa ninyo ang panggatong at sindihan. Pakuluan ninyo ang karne hanggang sa matuyo ang sabaw at masunog pati ang mga buto. 
 
 
 

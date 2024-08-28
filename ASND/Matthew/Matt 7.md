@@ -73,7 +73,7 @@ next: ['Matt 8']
 
 
 
-Sapagkat kung paano ninyo hinusgahan ang inyong kapwa ay ganoon din kayo huhusgahan ng Dios.[^a] 
+Sapagkat kung paano ninyo hinusgahan ang inyong kapwa ay ganoon din kayo huhusgahan ng Dios. 
 
 
 
@@ -205,7 +205,7 @@ Mapagkunwari! Alisin mo muna ang mala-trosong puwing sa iyong mata, nang sa gano
 
 
 
-"Huwag ninyong ibigay sa mga aso ang mga bagay na banal,[^b] dahil baka balingan nila kayo at lapain. At huwag din ninyong ihagis sa mga baboy ang inyong mga perlas, dahil tatapak-tapakan lang nila ang mga ito." ## Humingi, Humanap, Kumatok 
+"Huwag ninyong ibigay sa mga aso ang mga bagay na banal, dahil baka balingan nila kayo at lapain. At huwag din ninyong ihagis sa mga baboy ang inyong mga perlas, dahil tatapak-tapakan lang nila ang mga ito." ## Humingi, Humanap, Kumatok 
 
 
 
@@ -403,7 +403,7 @@ Kung kayong masasama ay marunong magbigay ng mabubuting bagay sa inyong mga anak
 
 
 
-"Gawin ninyo sa inyong kapwa ang gusto ninyong gawin nila sa inyo. Ganyan ang tamang pagsunod sa Kautusan <i class="trans-change">ni Moises_ at sa mga <i class="trans-change">isinulat ng mga_ propeta."[^c] ## Ang Makipot na Pintuan 
+"Gawin ninyo sa inyong kapwa ang gusto ninyong gawin nila sa inyo. Ganyan ang tamang pagsunod sa Kautusan <i class="trans-change">ni Moises_ at sa mga <i class="trans-change">isinulat ng mga_ propeta." ## Ang Makipot na Pintuan 
 
 
 

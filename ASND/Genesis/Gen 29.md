@@ -568,7 +568,7 @@ May dalawang anak na dalaga si Laban. Si Lea ang panganay at si Raquel ang nakab
 
 
 
-Mapupungay[^a] ang mata ni Lea, pero mas maganda ang hubog ng katawan ni Raquel. 
+Mapupungay ang mata ni Lea, pero mas maganda ang hubog ng katawan ni Raquel. 
 
 
 
@@ -1063,7 +1063,7 @@ Nakita ng Panginoon na hindi mahal ni Jacob si Lea, kaya niloob niyang magkaanak
 
 
 
-Nagbuntis si Lea at nanganak ng lalaki at pinangalanan niyang Reuben,[^b] dahil sinabi niya, "Nakita ng Panginoon ang paghihirap ko, at ngayoʼy tiyak na mamahalin na ako ng aking asawa." 
+Nagbuntis si Lea at nanganak ng lalaki at pinangalanan niyang Reuben, dahil sinabi niya, "Nakita ng Panginoon ang paghihirap ko, at ngayoʼy tiyak na mamahalin na ako ng aking asawa." 
 
 
 
@@ -1096,7 +1096,7 @@ Nagbuntis si Lea at nanganak ng lalaki at pinangalanan niyang Reuben,[^b] dahil 
 
 
 
-Muli siyang nagbuntis at nanganak ng isa na namang lalaki. Sinabi niya, "Muli akong binigyan ng Panginoon ng isang anak na lalaki dahil narinig niya na hindi ako minamahal ng aking asawa." Kaya pinangalanan niya ang sanggol na Simeon.[^c] 
+Muli siyang nagbuntis at nanganak ng isa na namang lalaki. Sinabi niya, "Muli akong binigyan ng Panginoon ng isang anak na lalaki dahil narinig niya na hindi ako minamahal ng aking asawa." Kaya pinangalanan niya ang sanggol na Simeon. 
 
 
 
@@ -1129,7 +1129,7 @@ Muli siyang nagbuntis at nanganak ng isa na namang lalaki. Sinabi niya, "Muli ak
 
 
 
-Muling nagbuntis si Lea at nanganak ng isa pang lalaki. Sinabi niya, "Ngayon, magiging malapit na sa akin ang aking asawa dahil tatlo na ang anak naming lalaki." Kaya pinangalanan niya ang sanggol na Levi.[^d] 
+Muling nagbuntis si Lea at nanganak ng isa pang lalaki. Sinabi niya, "Ngayon, magiging malapit na sa akin ang aking asawa dahil tatlo na ang anak naming lalaki." Kaya pinangalanan niya ang sanggol na Levi. 
 
 
 
@@ -1162,4 +1162,4 @@ Muling nagbuntis si Lea at nanganak ng isa pang lalaki. Sinabi niya, "Ngayon, ma
 
 
 
-Muling nagbuntis si Lea at nanganak ng isa na namang lalaki. Sinabi niya, "Ngayon, pupurihin ko ang Panginoon." Kaya pinangalanan niya ang sanggol na Juda.[^e] Mula noon, hindi na siya nagkaanak.
+Muling nagbuntis si Lea at nanganak ng isa na namang lalaki. Sinabi niya, "Ngayon, pupurihin ko ang Panginoon." Kaya pinangalanan niya ang sanggol na Juda. Mula noon, hindi na siya nagkaanak.

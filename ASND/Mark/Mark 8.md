@@ -370,7 +370,7 @@ at agad siyang sumakay sa bangka kasama ang mga tagasunod niya, at pumunta sila 
 
 
 
-Pagdating nila roon, may dumating na mga Pariseo at nakipagtalo kay Jesus. Gusto nilang subukin siya kaya hiniling nilang magpakita siya ng himala mula sa Dios[^a] bilang patunay <i class="trans-change">na sugo nga siya ng Dios_. 
+Pagdating nila roon, may dumating na mga Pariseo at nakipagtalo kay Jesus. Gusto nilang subukin siya kaya hiniling nilang magpakita siya ng himala mula sa Dios bilang patunay <i class="trans-change">na sugo nga siya ng Dios_. 
 
 
 
@@ -502,7 +502,7 @@ Nakalimutan ng mga tagasunod ni Jesus na magdala ng tinapay. Iisa lang ang baon 
 
 
 
-Sinabi ni Jesus sa kanila, "Mag-ingat kayo sa pampaalsa[^b] ng mga Pariseo at ni <i class="trans-change">Haring_ Herodes." 
+Sinabi ni Jesus sa kanila, "Mag-ingat kayo sa pampaalsa ng mga Pariseo at ni <i class="trans-change">Haring_ Herodes." 
 
 
 
@@ -898,7 +898,7 @@ Sumagot sila, "<i class="trans-change">May mga nagsasabing kayo_ po si Juan na t
 
 
 
-Tinanong sila ni Jesus, "Pero para sa inyo, sino ako?" Sumagot si Pedro, "Kayo po ang Cristo!"[^c] 
+Tinanong sila ni Jesus, "Pero para sa inyo, sino ako?" Sumagot si Pedro, "Kayo po ang Cristo!" 
 
 
 
@@ -1063,7 +1063,7 @@ Pero humarap si Jesus sa mga tagasunod niya at saka sinabi kay Pedro, "Lumayo ka
 
 
 
-Pagkatapos, tinawag niya ang mga tao pati na ang mga tagasunod niya at pinalapit sa kanya. Sinabi niya sa kanila, "Ang sinumang gustong sumunod sa akin ay hindi dapat unahin ang sarili. Dapat ay handa niyang harapin kahit ang kamatayan[^d] alang-alang sa pagsunod niya sa akin. 
+Pagkatapos, tinawag niya ang mga tao pati na ang mga tagasunod niya at pinalapit sa kanya. Sinabi niya sa kanila, "Ang sinumang gustong sumunod sa akin ay hindi dapat unahin ang sarili. Dapat ay handa niyang harapin kahit ang kamatayan alang-alang sa pagsunod niya sa akin. 
 
 
 

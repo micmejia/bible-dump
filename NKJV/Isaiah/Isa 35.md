@@ -10,13 +10,13 @@ next: ['Isa 36']
 
 
 ###### 1 
-The wilderness and the [^a]wasteland shall be glad for them, And the desert[^b] shall rejoice and blossom as the rose; 
+The wilderness and the wasteland shall be glad for them, And the desert shall rejoice and blossom as the rose; 
 
 ###### 2 
 It shall blossom abundantly and rejoice, Even with joy and singing. The glory of Lebanon shall be given to it, The excellence of Carmel and Sharon. They shall see the glory of the Lord, The excellency of our God. 
 
 ###### 3 
-Strengthen the [^c]weak hands, And make firm the [^d]feeble knees. 
+Strengthen the weak hands, And make firm the feeble knees. 
 
 ###### 4 
 Say to those _who are_ fearful-hearted, "Be strong, do not fear! Behold, your God will come _with_ vengeance, _With_ the recompense of God; He will come and save you." 

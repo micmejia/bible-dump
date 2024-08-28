@@ -72,7 +72,7 @@ Mula sa kapatagan ng Moab, umakyat si Moises sa Bundok ng Nebo sa tuktok ng Pisg
 
 
 
-ang buong lupain ng Naftali, ang lupain ng Efraim at ng Manase, ang buong lupain ng Juda hanggang sa Dagat ng Mediteraneo,[^a] 
+ang buong lupain ng Naftali, ang lupain ng Efraim at ng Manase, ang buong lupain ng Juda hanggang sa Dagat ng Mediteraneo, 
 
 
 

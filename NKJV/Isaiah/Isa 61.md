@@ -10,13 +10,13 @@ next: ['Isa 62']
 
 
 ###### 1 
-"The Spirit of the Lord God _is_ upon Me, Because the Lord has anointed Me To preach good tidings to the poor; He has sent Me to [^a]heal the brokenhearted, To proclaim liberty to the captives, And the opening of the prison to _those who are_ bound; 
+"The Spirit of the Lord God _is_ upon Me, Because the Lord has anointed Me To preach good tidings to the poor; He has sent Me to heal the brokenhearted, To proclaim liberty to the captives, And the opening of the prison to _those who are_ bound; 
 
 ###### 2 
 To proclaim the acceptable year of the Lord, And the day of vengeance of our God; To comfort all who mourn, 
 
 ###### 3 
-To [^b]console those who mourn in Zion, To give them beauty for ashes, The oil of joy for mourning, The garment of praise for the spirit of heaviness; That they may be called trees of righteousness, The planting of the Lord, that He may be glorified." 
+To console those who mourn in Zion, To give them beauty for ashes, The oil of joy for mourning, The garment of praise for the spirit of heaviness; That they may be called trees of righteousness, The planting of the Lord, that He may be glorified." 
 
 ###### 4 
 And they shall rebuild the old ruins, They shall raise up the former desolations, And they shall repair the ruined cities, The desolations of many generations. 
@@ -31,7 +31,7 @@ But you shall be named the priests of the Lord, They shall call you the servants
 Instead of your shame _you shall have_ double _honor,_ And _instead of_ confusion they shall rejoice in their portion. Therefore in their land they shall possess double; Everlasting joy shall be theirs. 
 
 ###### 8 
-"For I, the Lord, love justice; I hate robbery [^c]for burnt offering; I will direct their work in truth, And will make with them an everlasting covenant. 
+"For I, the Lord, love justice; I hate robbery for burnt offering; I will direct their work in truth, And will make with them an everlasting covenant. 
 
 ###### 9 
 Their descendants shall be known among the Gentiles, And their offspring among the people. All who see them shall acknowledge them, That they _are_ the posterity _whom_ the Lord has blessed." 

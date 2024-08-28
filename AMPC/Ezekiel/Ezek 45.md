@@ -28,7 +28,7 @@ next: ['Ezek 46']
 
 
 
-Moreover, when you shall divide the land by apportioned _and_ assigned lots for inheritance, you shall set apart as an offering to the Lord a portion of the land to be used for holy purposes. The length shall be 25,000 [^a]_cubits_, and the breadth 20,000. It shall be holy (set apart and consecrated to sacred use) in its every area. 
+Moreover, when you shall divide the land by apportioned _and_ assigned lots for inheritance, you shall set apart as an offering to the Lord a portion of the land to be used for holy purposes. The length shall be 25,000 _cubits_, and the breadth 20,000. It shall be holy (set apart and consecrated to sacred use) in its every area. 
 
 
 
@@ -70,7 +70,7 @@ Of this there shall belong to the sanctuary a square plot 500 by 500, and 50 _cu
 
 
 
-And in this sacred section you shall measure off a portion 25,000 [^b]_cubits_ in length and 10,000 _cubits_ in breadth. And in it shall be the sanctuary which is most holy. 
+And in this sacred section you shall measure off a portion 25,000 _cubits_ in length and 10,000 _cubits_ in breadth. And in it shall be the sanctuary which is most holy. 
 
 
 

@@ -502,7 +502,7 @@ Kaya <i class="trans-change">simula ngayon_ wala nang punong tataas pa sa ibang 
 
 
 
-Sinabi pa ng Panginoong Dios, "Kapag dumating na ang araw na ang punong itoʼy pupunta na sa lugar ng mga patay,[^a] patitigilin ko ang pag-agos ng mga bukal sa ilalim. Tanda ito ng pagluluksa. Kaya hindi na aagos ang mga ilog, at mawawala ang maraming tubig. Dahil dito, magdidilim sa Lebanon at malalanta ang mga punongkahoy. 
+Sinabi pa ng Panginoong Dios, "Kapag dumating na ang araw na ang punong itoʼy pupunta na sa lugar ng mga patay, patitigilin ko ang pag-agos ng mga bukal sa ilalim. Tanda ito ng pagluluksa. Kaya hindi na aagos ang mga ilog, at mawawala ang maraming tubig. Dahil dito, magdidilim sa Lebanon at malalanta ang mga punongkahoy. 
 
 
 
@@ -601,4 +601,4 @@ Ang mga bansang sumisilong at kumakampi sa kanya ay sasama rin sa kanya roon sa 
 
 
 
-"Sa anong puno sa Eden maihahambing ang kagandahan mo at kapangyarihan, <i class="trans-change">Faraon_? Pero ihuhulog ka rin sa ilalim ng lupa kasama ng mga puno ng Eden. Doon ay magkakasama kayo ng mga taong hindi naniniwala sa Dios[^b] na namatay sa digmaan. "Iyan ang mangyayari sa Faraon at sa mga tauhan niya. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito."
+"Sa anong puno sa Eden maihahambing ang kagandahan mo at kapangyarihan, <i class="trans-change">Faraon_? Pero ihuhulog ka rin sa ilalim ng lupa kasama ng mga puno ng Eden. Doon ay magkakasama kayo ng mga taong hindi naniniwala sa Dios na namatay sa digmaan. "Iyan ang mangyayari sa Faraon at sa mga tauhan niya. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito."

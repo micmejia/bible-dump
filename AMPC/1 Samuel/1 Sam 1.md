@@ -510,7 +510,7 @@ Elkanah her husband said to her, Do what seems best to you. Wait until you have 
 
 
 
-When she had [^a]weaned him, she took him with her, with a three-year-old bull, an ephah of flour, and a skin bottle of wine [to pour over the burnt offering for a sweet odor], and brought Samuel to the Lord's house in Shiloh. The child was growing. 
+When she had weaned him, she took him with her, with a three-year-old bull, an ephah of flour, and a skin bottle of wine [to pour over the burnt offering for a sweet odor], and brought Samuel to the Lord's house in Shiloh. The child was growing. 
 
 
 

@@ -171,7 +171,7 @@ Kaya naging mas dakila ang Anak ng Dios kaysa sa mga anghel at higit na dakila a
 
 
 
-Sapagkat kailanman, wala ni isa man sa mga anghel ang sinabihan ng Dios ng ganito: "Ikaw ang Anak ko, at ngayon, ipapahayag ko na ako ang iyong Ama."[^a] At wala ring sinabihan <i class="trans-change">ang Dios nang ganito sa sinumang anghel_: "Akoʼy magiging Ama niya, at siyaʼy magiging Anak ko."[^b] 
+Sapagkat kailanman, wala ni isa man sa mga anghel ang sinabihan ng Dios ng ganito: "Ikaw ang Anak ko, at ngayon, ipapahayag ko na ako ang iyong Ama." At wala ring sinabihan <i class="trans-change">ang Dios nang ganito sa sinumang anghel_: "Akoʼy magiging Ama niya, at siyaʼy magiging Anak ko." 
 
 
 
@@ -204,7 +204,7 @@ Sapagkat kailanman, wala ni isa man sa mga anghel ang sinabihan ng Dios ng ganit
 
 
 
-At nang isusugo na ng Dios ang kanyang bugtong na Anak sa mundo, sinabi niya, "Dapat siyang sambahin ng lahat ng anghel ng Dios."[^c] 
+At nang isusugo na ng Dios ang kanyang bugtong na Anak sa mundo, sinabi niya, "Dapat siyang sambahin ng lahat ng anghel ng Dios." 
 
 
 
@@ -237,7 +237,7 @@ At nang isusugo na ng Dios ang kanyang bugtong na Anak sa mundo, sinabi niya, "D
 
 
 
-Ito ang sinabi ng Dios tungkol sa mga anghel: "Ang mga anghel ay magagawa kong hangin. Sila na mga lingkod ko ay <i class="trans-change">magagawa ko ring_ nagliliyab na apoy."[^d] 
+Ito ang sinabi ng Dios tungkol sa mga anghel: "Ang mga anghel ay magagawa kong hangin. Sila na mga lingkod ko ay <i class="trans-change">magagawa ko ring_ nagliliyab na apoy." 
 
 
 
@@ -303,7 +303,7 @@ Ngunit ito naman ang sinabi ng Dios tungkol sa kanyang Anak: "O Dios, ang kahari
 
 
 
-Kinalugdan mo ang gumagawa ng matuwid at kinamuhian mo ang gumagawa ng masama. Kaya pinili ka ng Dios, na iyong Dios, at binigyan ng kagalakang higit sa ibinigay niya sa mga kasama mo."[^e] 
+Kinalugdan mo ang gumagawa ng matuwid at kinamuhian mo ang gumagawa ng masama. Kaya pinili ka ng Dios, na iyong Dios, at binigyan ng kagalakang higit sa ibinigay niya sa mga kasama mo." 
 
 
 
@@ -402,7 +402,7 @@ Maglalaho ang mga ito, ngunit mananatili ka magpakailanman. Maluluma itong lahat
 
 
 
-Titiklupin mo ang mga ito tulad ng isang balabal, at papalitan tulad ng damit. Ngunit hindi ka magbabago, at mananatili kang buhay magpakailanman."[^f] 
+Titiklupin mo ang mga ito tulad ng isang balabal, at papalitan tulad ng damit. Ngunit hindi ka magbabago, at mananatili kang buhay magpakailanman." 
 
 
 
@@ -435,7 +435,7 @@ Titiklupin mo ang mga ito tulad ng isang balabal, at papalitan tulad ng damit. N
 
 
 
-Kailanmaʼy hindi sinabi ng Dios sa sinumang anghel: "Maupo ka sa kanan ko hanggang mapasuko ko sa iyo[^g] ang mga kaaway mo."[^h] 
+Kailanmaʼy hindi sinabi ng Dios sa sinumang anghel: "Maupo ka sa kanan ko hanggang mapasuko ko sa iyo ang mga kaaway mo." 
 
 
 

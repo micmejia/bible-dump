@@ -28,7 +28,7 @@ next: ['2 Chr 3']
 
 
 
-Solomon determined to build a temple for the [^a]Name of the Lord and a royal capitol. 
+Solomon determined to build a temple for the Name of the Lord and a royal capitol. 
 
 
 
@@ -301,7 +301,7 @@ Now I have sent a skilled man, endued with understanding, even Huram-abi, my tru
 
 
 
-The son of a woman of the daughters of [^b]Dan; his father was a man of Tyre. He is a trained worker in gold, silver, bronze, iron, stone, and wood; in purple, blue, and crimson colors, and in fine linen; and also to engrave any type of engraving and to carry out any design given him, with your skilled men and those of my lord, David your father. 
+The son of a woman of the daughters of Dan; his father was a man of Tyre. He is a trained worker in gold, silver, bronze, iron, stone, and wood; in purple, blue, and crimson colors, and in fine linen; and also to engrave any type of engraving and to carry out any design given him, with your skilled men and those of my lord, David your father. 
 
 
 

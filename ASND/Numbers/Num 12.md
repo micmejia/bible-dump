@@ -40,7 +40,7 @@ next: ['Num 13']
 
 
 
-Ngayon, siniraan nila Miriam at Aaron si Moises dahil nakapag-asawa siya ng isang taga-Cush.[^a] 
+Ngayon, siniraan nila Miriam at Aaron si Moises dahil nakapag-asawa siya ng isang taga-Cush. 
 
 
 
@@ -337,7 +337,7 @@ Nagalit ang Panginoon sa kanila, at umalis siya.
 
 
 
-Nang umalis na ang ulap sa ibabaw ng Tolda, tinubuan si Miriam ng malubhang sakit sa balat,[^b] at namuti ang kanyang balat. Pagkakita ni Aaron sa kanya, 
+Nang umalis na ang ulap sa ibabaw ng Tolda, tinubuan si Miriam ng malubhang sakit sa balat, at namuti ang kanyang balat. Pagkakita ni Aaron sa kanya, 
 
 
 
@@ -370,7 +370,7 @@ Nang umalis na ang ulap sa ibabaw ng Tolda, tinubuan si Miriam ng malubhang saki
 
 
 
-sinabi ni Aaron kay Moises, "Pakiusap kapatid[^c] ko, huwag po ninyo kaming pahirapan dahil sa aming kasalanang nagawa namin nang may kahangalan. 
+sinabi ni Aaron kay Moises, "Pakiusap kapatid ko, huwag po ninyo kaming pahirapan dahil sa aming kasalanang nagawa namin nang may kahangalan. 
 
 
 

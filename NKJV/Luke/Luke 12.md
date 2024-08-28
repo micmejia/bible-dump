@@ -10,7 +10,7 @@ next: ['Luke 13']
 
 
 ###### 1 
-In the meantime, when an innumerable multitude of people had gathered together, so that they trampled one another, He began to say to His disciples first _of all,_ "Beware of the [^a]leaven of the Pharisees, which is hypocrisy. 
+In the meantime, when an innumerable multitude of people had gathered together, so that they trampled one another, He began to say to His disciples first _of all,_ "Beware of the leaven of the Pharisees, which is hypocrisy. 
 
 ###### 2 
 For there is nothing covered that will not be revealed, nor hidden that will not be known. 
@@ -25,7 +25,7 @@ Therefore whatever you have spoken in the dark will be heard in the light, and w
 But I will show you whom you should fear: Fear Him who, after He has killed, has power to cast into hell; yes, I say to you, fear Him! 
 
 ###### 6 
-"Are not five sparrows sold for two [^b]copper coins? And not one of them is forgotten before God. 
+"Are not five sparrows sold for two copper coins? And not one of them is forgotten before God. 
 
 ###### 7 
 But the very hairs of your head are all numbered. Do not fear therefore; you are of more value than many sparrows. ## Confess Christ Before Men 
@@ -52,7 +52,7 @@ Then one from the crowd said to Him, "Teacher, tell my brother to divide the inh
 But He said to him, "Man, who made Me a judge or an arbitrator over you?" 
 
 ###### 15 
-And He said to them, "Take heed and beware of [^c]covetousness, for one's life does not consist in the abundance of the things he possesses." 
+And He said to them, "Take heed and beware of covetousness, for one's life does not consist in the abundance of the things he possesses." 
 
 ###### 16 
 Then He spoke a parable to them, saying: "The ground of a certain rich man yielded plentifully. 
@@ -85,10 +85,10 @@ Consider the ravens, for they neither sow nor reap, which have neither storehous
 And which of you by worrying can add one cubit to his stature? 
 
 ###### 26 
-If you then are not able to do _the_ least, why [^d]are you anxious for the rest? 
+If you then are not able to do _the_ least, why are you anxious for the rest? 
 
 ###### 27 
-Consider the lilies, how they grow: they neither toil nor spin; and yet I say to you, even Solomon in all his glory was not [^e]arrayed like one of these. 
+Consider the lilies, how they grow: they neither toil nor spin; and yet I say to you, even Solomon in all his glory was not arrayed like one of these. 
 
 ###### 28 
 If then God so clothes the grass, which today is in the field and tomorrow is thrown into the oven, how much more _will He clothe_ you, O _you_ of little faith? 
@@ -100,7 +100,7 @@ If then God so clothes the grass, which today is in the field and tomorrow is th
 For all these things the nations of the world seek after, and your Father knows that you need these things. 
 
 ###### 31 
-But seek [^f]the kingdom of God, and all these things shall be added to you. 
+But seek the kingdom of God, and all these things shall be added to you. 
 
 ###### 32 
 "Do not fear, little flock, for it is your Father's good pleasure to give you the kingdom. 
@@ -124,7 +124,7 @@ Blessed _are_ those servants whom the master, when he comes, will find watching.
 And if he should come in the second watch, or come in the third watch, and find _them_ so, blessed are those servants. 
 
 ###### 39 
-But know this, that if the master of the house had known what hour the thief would come, he would [^g]have watched and not allowed his house to be broken into. 
+But know this, that if the master of the house had known what hour the thief would come, he would have watched and not allowed his house to be broken into. 
 
 ###### 40 
 Therefore you also be ready, for the Son of Man is coming at an hour you do not expect." 
@@ -133,7 +133,7 @@ Therefore you also be ready, for the Son of Man is coming at an hour you do not 
 Then Peter said to Him, "Lord, do You speak this parable _only_ to us, or to all _people?_" 
 
 ###### 42 
-And the Lord said, "Who then is that faithful and wise steward, whom _his_ master will make ruler over his household, to give _them their_ portion of food [^h]in due season? 
+And the Lord said, "Who then is that faithful and wise steward, whom _his_ master will make ruler over his household, to give _them their_ portion of food in due season? 
 
 ###### 43 
 Blessed _is_ that servant whom his master will find so doing when he comes. 

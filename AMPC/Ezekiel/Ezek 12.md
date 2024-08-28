@@ -259,7 +259,7 @@ Say, I am your sign; as I have done, so shall it be done to them; into banishmen
 
 
 
-And the prince who is in their midst shall lift up his luggage to his shoulder in the dark; then shall he go forth. They shall dig through the wall to carry out through the hole in it. He shall cover his face so that he will [^a]not see with his eyes the land. 
+And the prince who is in their midst shall lift up his luggage to his shoulder in the dark; then shall he go forth. They shall dig through the wall to carry out through the hole in it. He shall cover his face so that he will not see with his eyes the land. 
 
 
 
@@ -280,7 +280,7 @@ And the prince who is in their midst shall lift up his luggage to his shoulder i
 
 
 
-My net also will I spread over him, and he shall be taken in My snare, and I will bring him to Babylonia, to the land of the Chaldeans; yet shall he [^b]not see it, though he shall die there. 
+My net also will I spread over him, and he shall be taken in My snare, and I will bring him to Babylonia, to the land of the Chaldeans; yet shall he not see it, though he shall die there. 
 
 
 

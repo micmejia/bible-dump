@@ -205,7 +205,7 @@ Sumagot ang Panginoon kay Moises, "Kunin mo ang iyong baston na inihampas mo sa 
 
 
 
-Hihintayin kita roon sa may bato sa Horeb.[^a] <i class="trans-change">Kapag naroon ka na,_ paluin mo ang bato, at lalabas ang tubig na iinumin ng mga tao." Kaya ginawa ito ni Moises sa harap ng mga tagapamahala ng Israel. 
+Hihintayin kita roon sa may bato sa Horeb. <i class="trans-change">Kapag naroon ka na,_ paluin mo ang bato, at lalabas ang tubig na iinumin ng mga tao." Kaya ginawa ito ni Moises sa harap ng mga tagapamahala ng Israel. 
 
 
 
@@ -238,7 +238,7 @@ Hihintayin kita roon sa may bato sa Horeb.[^a] <i class="trans-change">Kapag nar
 
 
 
-Tinawag ni Moises ang lugar na Masa[^b] at Meriba,[^c] dahil nakipagtalo sa kanya ang mga Israelita at sinubukan nila ang Panginoon sa pamamagitan ng pagsasabi, "Sinasamahan ba tayo ng Panginoon o hindi?" ## Natalo ang mga Amalekita 
+Tinawag ni Moises ang lugar na Masa at Meriba, dahil nakipagtalo sa kanya ang mga Israelita at sinubukan nila ang Panginoon sa pamamagitan ng pagsasabi, "Sinasamahan ba tayo ng Panginoon o hindi?" ## Natalo ang mga Amalekita 
 
 
 

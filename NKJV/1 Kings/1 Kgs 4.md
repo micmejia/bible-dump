@@ -16,7 +16,7 @@ So King Solomon was king over all Israel.
 And these _were_ his officials: Azariah the son of Zadok, the priest; 
 
 ###### 3 
-Elihoreph and Ahijah, the sons of Shisha, [^a]scribes; Jehoshaphat the son of Ahilud, the recorder; 
+Elihoreph and Ahijah, the sons of Shisha, scribes; Jehoshaphat the son of Ahilud, the recorder; 
 
 ###### 4 
 Benaiah the son of Jehoiada, over the army; Zadok and Abiathar, the priests; 
@@ -31,22 +31,22 @@ Ahishar, over the household; and Adoniram the son of Abda, over the labor force.
 And Solomon had twelve governors over all Israel, who provided food for the king and his household; each one made provision for one month of the year. 
 
 ###### 8 
-These _are_ their names: [^b]Ben-Hur, in the mountains of Ephraim; 
+These _are_ their names: Ben-Hur, in the mountains of Ephraim; 
 
 ###### 9 
-[^c]Ben-Deker, in Makaz, Shaalbim, Beth Shemesh, and Elon Beth Hanan; 
+Ben-Deker, in Makaz, Shaalbim, Beth Shemesh, and Elon Beth Hanan; 
 
 ###### 10 
-[^d]Ben-Hesed, in Arubboth; to him _belonged_ Sochoh and all the land of Hepher; 
+Ben-Hesed, in Arubboth; to him _belonged_ Sochoh and all the land of Hepher; 
 
 ###### 11 
-[^e]Ben-Abinadab, _in_ all the regions of Dor; he had Taphath the daughter of Solomon as wife; 
+Ben-Abinadab, _in_ all the regions of Dor; he had Taphath the daughter of Solomon as wife; 
 
 ###### 12 
 Baana the son of Ahilud, _in_ Taanach, Megiddo, and all Beth Shean, which _is_ beside Zaretan below Jezreel, from Beth Shean to Abel Meholah, as far as the other side of Jokneam; 
 
 ###### 13 
-[^f]Ben-Geber, in Ramoth Gilead; to him _belonged_ the towns of Jair the son of Manasseh, in Gilead; to him _also belonged_ the region of Argob in Bashan--sixty large cities with walls and bronze gate-bars; 
+Ben-Geber, in Ramoth Gilead; to him _belonged_ the towns of Jair the son of Manasseh, in Gilead; to him _also belonged_ the region of Argob in Bashan--sixty large cities with walls and bronze gate-bars; 
 
 ###### 14 
 Ahinadab the son of Iddo, _in_ Mahanaim; 
@@ -70,22 +70,22 @@ Geber the son of Uri, in the land of Gilead, _in_ the country of Sihon king of t
 Judah and Israel _were_ as numerous as the sand by the sea in multitude, eating and drinking and rejoicing. 
 
 ###### 21 
-So Solomon reigned over all kingdoms from the[^g] River _to_ the land of the Philistines, as far as the border of Egypt. _They_ brought tribute and served Solomon all the days of his life. 
+So Solomon reigned over all kingdoms from the River _to_ the land of the Philistines, as far as the border of Egypt. _They_ brought tribute and served Solomon all the days of his life. 
 
 ###### 22 
-Now Solomon's [^h]provision for one day was thirty [^i]kors of fine flour, sixty kors of meal, 
+Now Solomon's provision for one day was thirty kors of fine flour, sixty kors of meal, 
 
 ###### 23 
 ten fatted oxen, twenty oxen from the pastures, and one hundred sheep, besides deer, gazelles, roebucks, and fatted fowl. 
 
 ###### 24 
-For he had dominion over all _the region_ on this side of [^j]the River from Tiphsah even to Gaza, namely over all the kings on this side of the River; and he had peace on every side all around him. 
+For he had dominion over all _the region_ on this side of the River from Tiphsah even to Gaza, namely over all the kings on this side of the River; and he had peace on every side all around him. 
 
 ###### 25 
-And Judah and Israel dwelt[^k] safely, each man under his vine and his fig tree, from Dan as far as Beersheba, all the days of Solomon. 
+And Judah and Israel dwelt safely, each man under his vine and his fig tree, from Dan as far as Beersheba, all the days of Solomon. 
 
 ###### 26 
-Solomon had [^l]forty thousand stalls of horses for his chariots, and twelve thousand horsemen. 
+Solomon had forty thousand stalls of horses for his chariots, and twelve thousand horsemen. 
 
 ###### 27 
 And these governors, each man in his month, provided food for King Solomon and for all who came to King Solomon's table. There was no lack in their supply. 

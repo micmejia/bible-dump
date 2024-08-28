@@ -196,7 +196,7 @@ Paul declared in [his own] defense, Neither against the Law of the Jews, nor aga
 
 
 
-But Festus, wishing to ingratiate himself with the Jews, answered Paul, Are you willing to go up to Jerusalem and there be put on trial [[^a]before the Jewish Sanhedrin] in my presence concerning these charges? 
+But Festus, wishing to ingratiate himself with the Jews, answered Paul, Are you willing to go up to Jerusalem and there be put on trial [before the Jewish Sanhedrin] in my presence concerning these charges? 
 
 
 
@@ -217,7 +217,7 @@ But Festus, wishing to ingratiate himself with the Jews, answered Paul, Are you 
 
 
 
-But Paul replied, I am standing before Caesar's judgment seat, where I ought to be tried. To the Jews I have done no wrong, as you know [^b]better [than your question implies]. 
+But Paul replied, I am standing before Caesar's judgment seat, where I ought to be tried. To the Jews I have done no wrong, as you know better [than your question implies]. 
 
 
 
@@ -238,7 +238,7 @@ But Paul replied, I am standing before Caesar's judgment seat, where I ought to 
 
 
 
-If then I am a wrongdoer _and_ a criminal and have committed anything for which I deserve to die, I do not beg off _and_ seek to escape death; but if there is no ground for their accusations against me, no one can give me up _and_ make a present of me [[^c]give me up freely] to them. I appeal to Caesar. 
+If then I am a wrongdoer _and_ a criminal and have committed anything for which I deserve to die, I do not beg off _and_ seek to escape death; but if there is no ground for their accusations against me, no one can give me up _and_ make a present of me [give me up freely] to them. I appeal to Caesar. 
 
 
 
@@ -259,7 +259,7 @@ If then I am a wrongdoer _and_ a criminal and have committed anything for which 
 
 
 
-Then Festus, when he had consulted with the [[^d]men who formed his] council, answered, You have appealed to Caesar; to Caesar you shall go. 
+Then Festus, when he had consulted with the [men who formed his] council, answered, You have appealed to Caesar; to Caesar you shall go. 
 
 
 
@@ -343,7 +343,7 @@ And when I was at Jerusalem, the chief priests and the elders of the Jews inform
 
 
 
-But I replied to them that it was not the custom of the Romans to [^e]give up freely any man for punishment before the accused had met the accusers face to face and had opportunity to defend himself concerning the charge brought against him. 
+But I replied to them that it was not the custom of the Romans to give up freely any man for punishment before the accused had met the accusers face to face and had opportunity to defend himself concerning the charge brought against him. 
 
 
 

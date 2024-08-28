@@ -106,7 +106,7 @@ Pagkatapos, ilagay ninyo ito sa mesang ginto sa presensya ng Panginoon. Ihanay n
 
 
 
-Lagyan ninyo ng purong insenso ang gilid[^a] ng bawat hanay. Ang insenso ang siyang magsisilbing handog para alalahanin ang Panginoon. Susunugin ito bilang handog sa pamamagitan ng apoy sa halip na ang tinapay. 
+Lagyan ninyo ng purong insenso ang gilid ng bawat hanay. Ang insenso ang siyang magsisilbing handog para alalahanin ang Panginoon. Susunugin ito bilang handog sa pamamagitan ng apoy sa halip na ang tinapay. 
 
 
 

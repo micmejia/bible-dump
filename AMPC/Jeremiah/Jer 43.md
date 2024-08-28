@@ -217,7 +217,7 @@ Take large stones in your hands and hide them in the mortar in the pavement of b
 
 
 
-And say to them, Thus says the Lord of hosts, the God of Israel: Behold, I will send and take [^a]Nebuchadrezzar king of Babylon, My servant [because he works for Me], and I [through him] will set his throne upon these stones that I have hidden; and his [glittering, royal] canopy will be stretched over them. 
+And say to them, Thus says the Lord of hosts, the God of Israel: Behold, I will send and take Nebuchadrezzar king of Babylon, My servant [because he works for Me], and I [through him] will set his throne upon these stones that I have hidden; and his [glittering, royal] canopy will be stretched over them. 
 
 
 

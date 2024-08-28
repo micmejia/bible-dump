@@ -13,10 +13,10 @@ next: ['Lev 14']
 And the Lord spoke to Moses and Aaron, saying: 
 
 ###### 2 
-"When a man has on the skin of his body a swelling, a scab, or a bright spot, and it becomes on the skin of his body _like_ a [^a]leprous sore, then he shall be brought to Aaron the priest or to one of his sons the priests. 
+"When a man has on the skin of his body a swelling, a scab, or a bright spot, and it becomes on the skin of his body _like_ a leprous sore, then he shall be brought to Aaron the priest or to one of his sons the priests. 
 
 ###### 3 
-The priest shall examine the sore on the skin of the body; and if the hair on the sore has turned white, and the sore appears _to be_ deeper than the skin of his body, it _is_ a leprous sore. Then the priest shall examine him, and pronounce him [^b]unclean. 
+The priest shall examine the sore on the skin of the body; and if the hair on the sore has turned white, and the sore appears _to be_ deeper than the skin of his body, it _is_ a leprous sore. Then the priest shall examine him, and pronounce him unclean. 
 
 ###### 4 
 But if the bright spot _is_ white on the skin of his body, and does not appear _to be_ deeper than the skin, and its hair has not turned white, then the priest shall isolate _the one who has_ the sore seven days. 
@@ -31,7 +31,7 @@ Then the priest shall examine him again on the seventh day; and indeed _if_ the 
 But if the scab should at all spread over the skin, after he has been seen by the priest for his cleansing, he shall be seen by the priest again. 
 
 ###### 8 
-And _if_ the priest sees that the scab has indeed spread on the skin, then the priest shall pronounce him [^c]unclean. It _is_ leprosy. 
+And _if_ the priest sees that the scab has indeed spread on the skin, then the priest shall pronounce him unclean. It _is_ leprosy. 
 
 ###### 9 
 "When the leprous sore is on a person, then he shall be brought to the priest. 
@@ -40,7 +40,7 @@ And _if_ the priest sees that the scab has indeed spread on the skin, then the p
 And the priest shall examine _him;_ and indeed _if_ the swelling on the skin _is_ white, and it has turned the hair white, and _there is_ a spot of raw flesh in the swelling, 
 
 ###### 11 
-it _is_ an old leprosy on the skin of his body. The priest shall pronounce him [^d]unclean, and shall not isolate him, for he _is_ unclean. 
+it _is_ an old leprosy on the skin of his body. The priest shall pronounce him unclean, and shall not isolate him, for he _is_ unclean. 
 
 ###### 12 
 "And if leprosy breaks out all over the skin, and the leprosy covers all the skin of _the one who has_ the sore, from his head to his foot, wherever the priest looks, 
@@ -73,7 +73,7 @@ and _if,_ when the priest sees it, it indeed appears deeper than the skin, and i
 But if the priest examines it, and indeed _there are_ no white hairs in it, and it _is_ not deeper than the skin, but has faded, then the priest shall isolate him seven days; 
 
 ###### 22 
-and if it should at all spread over the skin, then the priest shall pronounce him unclean. It _is_ a [^e]leprous sore. 
+and if it should at all spread over the skin, then the priest shall pronounce him unclean. It _is_ a leprous sore. 
 
 ###### 23 
 But if the bright spot stays in one place, _and_ has not spread, it _is_ the scar of the boil; and the priest shall pronounce him clean. 
@@ -139,22 +139,22 @@ And if there is on the bald head or bald forehead a reddish-white sore, it _is_ 
 Then the priest shall examine it; and indeed _if_ the swelling of the sore _is_ reddish-white on his bald head or on his bald forehead, as the appearance of leprosy on the skin of the body, 
 
 ###### 44 
-he is a leprous man. He _is_ unclean. The priest shall surely pronounce him [^f]unclean; his sore _is_ on his head. 
+he is a leprous man. He _is_ unclean. The priest shall surely pronounce him unclean; his sore _is_ on his head. 
 
 ###### 45 
 "Now the leper on whom the sore _is_, his clothes shall be torn and his head bare; and he shall cover his mustache, and cry, 'Unclean! Unclean!' 
 
 ###### 46 
-He shall be unclean. All the days he has the sore he shall be unclean. He _is_ unclean, and he shall [^g]dwell alone; his dwelling _shall be_ outside the camp. ## The Law Concerning Leprous Garments 
+He shall be unclean. All the days he has the sore he shall be unclean. He _is_ unclean, and he shall dwell alone; his dwelling _shall be_ outside the camp. ## The Law Concerning Leprous Garments 
 
 ###### 47 
-"Also, if a garment has a [^h]leprous plague in it, _whether it is_ a woolen garment or a linen garment, 
+"Also, if a garment has a leprous plague in it, _whether it is_ a woolen garment or a linen garment, 
 
 ###### 48 
 whether _it is_ in the warp or woof of linen or wool, whether in leather or in anything made of leather, 
 
 ###### 49 
-and if the plague is greenish or reddish in the garment or in the leather, whether in the warp or in the woof, or in anything made of leather, it _is_ a leprous [^i]plague and shall be shown to the priest. 
+and if the plague is greenish or reddish in the garment or in the leather, whether in the warp or in the woof, or in anything made of leather, it _is_ a leprous plague and shall be shown to the priest. 
 
 ###### 50 
 The priest shall examine the plague and isolate _that which has_ the plague seven days. 

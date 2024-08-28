@@ -337,7 +337,7 @@ Kung ganyan din lang, mabuti pang tulungan ko na lang si David na matupad ang ip
 
 
 
-Ipinangako ng Panginoon na hindi na niya paghahariin ang sinumang kalahi ni Saul kundi si David ang paghahariin niya sa Israel at Juda, mula Dan hanggang sa Beersheba."[^a] 
+Ipinangako ng Panginoon na hindi na niya paghahariin ang sinumang kalahi ni Saul kundi si David ang paghahariin niya sa Israel at Juda, mula Dan hanggang sa Beersheba." 
 
 
 
@@ -964,7 +964,7 @@ Nang mabalitaan ito ni David, sinabi niya, "Alam ng Panginoon na inosente ako at
 
 
 
-Si Joab at ang pamilya niya ang may pananagutan dito. Sumpain nawa ang pamilya niya at huwag mawalan ng may sakit na tulo, malubhang sakit sa balat,[^b] pilay, mamamatay sa labanan, at namamalimos." 
+Si Joab at ang pamilya niya ang may pananagutan dito. Sumpain nawa ang pamilya niya at huwag mawalan ng may sakit na tulo, malubhang sakit sa balat, pilay, mamamatay sa labanan, at namamalimos." 
 
 
 

@@ -469,7 +469,7 @@ Pero kung hindi sila susunod, mamamatay sila sa digmaan na kapos sa kaalaman.
 
 
 
-Mamamatay silang kahiya-hiya[^a] habang bata pa. 
+Mamamatay silang kahiya-hiya habang bata pa. 
 
 
 
@@ -667,7 +667,7 @@ Makakatulong kaya sa iyong paghihirap ang mga kayamanan moʼt kakayahan?
 
 
 
-Huwag mong hahanapin ang gabi,[^b] ang panahon ng kapahamakan ng mga bansa. 
+Huwag mong hahanapin ang gabi, ang panahon ng kapahamakan ng mga bansa. 
 
 
 
@@ -832,7 +832,7 @@ Huwag mong kalimutang purihin ang kanyang mga ginawa gaya ng ginagawa ng iba sa 
 
 
 
-Nakita ng lahat ang kanyang mga gawa, kahit tinitingnan ito mula sa malayo.[^c] 
+Nakita ng lahat ang kanyang mga gawa, kahit tinitingnan ito mula sa malayo. 
 
 
 

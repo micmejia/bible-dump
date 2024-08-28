@@ -64,7 +64,7 @@ And if he strikes him with a stone in the hand, by which one could die, and he d
 Or _if_ he strikes him with a wooden hand weapon, by which one could die, and he does die, he _is_ a murderer; the murderer shall surely be put to death. 
 
 ###### 19 
-The[^a] avenger of blood himself shall put the murderer to death; when he meets him, he shall put him to death. 
+The avenger of blood himself shall put the murderer to death; when he meets him, he shall put him to death. 
 
 ###### 20 
 If he pushes him out of hatred or, while lying in wait, hurls something at him so that he dies, 
@@ -88,7 +88,7 @@ So the congregation shall deliver the manslayer from the hand of the avenger of 
 But if the manslayer at any time goes outside the limits of the city of refuge where he fled, 
 
 ###### 27 
-and the avenger of blood finds him outside the limits of his city of refuge, and the avenger of blood kills the manslayer, he shall not be guilty of [^b]blood, 
+and the avenger of blood finds him outside the limits of his city of refuge, and the avenger of blood kills the manslayer, he shall not be guilty of blood, 
 
 ###### 28 
 because he should have remained in his city of refuge until the death of the high priest. But after the death of the high priest the manslayer may return to the land of his possession. 
@@ -106,7 +106,7 @@ Moreover you shall take no ransom for the life of a murderer who _is_ guilty of 
 And you shall take no ransom for him who has fled to his city of refuge, that he may return to dwell in the land before the death of the priest. 
 
 ###### 33 
-So you shall not pollute the land where you _are;_ for blood defiles the land, and no [^c]atonement can be made for the land, for the blood that is shed on it, except by the blood of him who shed it. 
+So you shall not pollute the land where you _are;_ for blood defiles the land, and no atonement can be made for the land, for the blood that is shed on it, except by the blood of him who shed it. 
 
 ###### 34 
 Therefore do not defile the land which you inhabit, in the midst of which I dwell; for I the Lord dwell among the children of Israel.' "

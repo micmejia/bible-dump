@@ -40,7 +40,7 @@ next: ['Isa 30']
 
 
 
-<i class="trans-change">Sinabi ng Panginoon,_ "Nakakaawa ang Jerusalem,[^a] ang lungsod na tinitirhan ni David! Sige, ipagdiwang ng lungsod na ito ang kanyang mga pista bawat taon. 
+<i class="trans-change">Sinabi ng Panginoon,_ "Nakakaawa ang Jerusalem, ang lungsod na tinitirhan ni David! Sige, ipagdiwang ng lungsod na ito ang kanyang mga pista bawat taon. 
 
 
 
@@ -73,7 +73,7 @@ next: ['Isa 30']
 
 
 
-Pero lulusubin ko ito, at mag-iiyakan at mananaghoy ang kanyang mga mamamayan. Para sa akin, ang buong lungsod ay magiging parang altar na puno ng dugo.[^b] 
+Pero lulusubin ko ito, at mag-iiyakan at mananaghoy ang kanyang mga mamamayan. Para sa akin, ang buong lungsod ay magiging parang altar na puno ng dugo. 
 
 
 
@@ -205,7 +205,7 @@ Pero darating ang araw na ang marami niyang kaaway ay magiging parang alikabok o
 
 
 
-Ang Jerusalem ay aalalahanin ko, <i class="trans-change">at ako,_ ang Panginoong Makapangyarihan, <i class="trans-change">ay darating_ na may kulog, lindol, ingay, buhawi, bagyo, at nagliliyab na apoy. ###### 7-8 Mawawalang parang panaginip ang maraming bansang sumasalakay sa Jerusalem[^c] at gumigiba ng mga pader nito. Ang katulad nilaʼy taong nananaginip na kumakain, pero nang magising ay gutom pa rin; o katulad ng taong nananaginip na umiinom, pero nang magising uhaw pa rin." 
+Ang Jerusalem ay aalalahanin ko, <i class="trans-change">at ako,_ ang Panginoong Makapangyarihan, <i class="trans-change">ay darating_ na may kulog, lindol, ingay, buhawi, bagyo, at nagliliyab na apoy. ###### 7-8 Mawawalang parang panaginip ang maraming bansang sumasalakay sa Jerusalem at gumigiba ng mga pader nito. Ang katulad nilaʼy taong nananaginip na kumakain, pero nang magising ay gutom pa rin; o katulad ng taong nananaginip na umiinom, pero nang magising uhaw pa rin." 
 
 
 
@@ -469,7 +469,7 @@ Nakakaawa kayong mga nagtatago ng inyong mga plano sa Panginoon. Ginagawa ninyo 
 
 
 
-Baluktot ang pag-iisip ninyo. Itinuturing ninyong parang palayok ang gumagawa ng palayok.[^d] Masasabi ba ng palayok sa gumawa sa kanya, "Hindi naman ikaw ang gumawa sa akin"? Masasabi ba ng palayok sa humugis sa kanya, "Wala kang nalalaman"? 
+Baluktot ang pag-iisip ninyo. Itinuturing ninyong parang palayok ang gumagawa ng palayok. Masasabi ba ng palayok sa gumawa sa kanya, "Hindi naman ikaw ang gumawa sa akin"? Masasabi ba ng palayok sa humugis sa kanya, "Wala kang nalalaman"? 
 
 
 

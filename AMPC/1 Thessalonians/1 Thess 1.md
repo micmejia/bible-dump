@@ -174,7 +174,7 @@ So that you [thus] became a pattern to all the believers (those who adhere to, t
 
 
 
-For not only has the Word concerning _and_ from the Lord resounded forth from you unmistakably in Macedonia and Achaia, but everywhere the report has gone forth of your faith in God [of your [^a]leaning of your whole personality on Him in complete trust and confidence in His power, wisdom, and goodness]. So we [find that we] never need to tell people anything [further about it]. 
+For not only has the Word concerning _and_ from the Lord resounded forth from you unmistakably in Macedonia and Achaia, but everywhere the report has gone forth of your faith in God [of your leaning of your whole personality on Him in complete trust and confidence in His power, wisdom, and goodness]. So we [find that we] never need to tell people anything [further about it]. 
 
 
 
@@ -216,4 +216,4 @@ For they themselves volunteer testimony concerning us, telling what an entrance 
 
 
 
-And [how you] look forward to _and_ await the coming of His Son from heaven, Whom He raised from the dead--Jesus, Who personally rescues _and_ delivers us out of _and_ from the wrath [bringing punishment] which is coming [upon the impenitent] _and_ [^b]draws us to Himself [[^c]investing us with all the privileges and rewards of the new life in Christ, the Messiah].
+And [how you] look forward to _and_ await the coming of His Son from heaven, Whom He raised from the dead--Jesus, Who personally rescues _and_ delivers us out of _and_ from the wrath [bringing punishment] which is coming [upon the impenitent] _and_ draws us to Himself [investing us with all the privileges and rewards of the new life in Christ, the Messiah].

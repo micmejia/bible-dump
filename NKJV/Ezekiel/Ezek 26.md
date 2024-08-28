@@ -28,10 +28,10 @@ It shall be _a place for_ spreading nets in the midst of the sea, for I have spo
 Also her daughter _villages_ which _are_ in the fields shall be slain by the sword. Then they shall know that I am the Lord.' 
 
 ###### 7 
-"For thus says the Lord God: 'Behold, I will bring against Tyre from the north Nebuchadnezzar[^a] king of Babylon, king of kings, with horses, with chariots, and with horsemen, and an army with many people. 
+"For thus says the Lord God: 'Behold, I will bring against Tyre from the north Nebuchadnezzar king of Babylon, king of kings, with horses, with chariots, and with horsemen, and an army with many people. 
 
 ###### 8 
-He will slay with the sword your daughter _villages_ in the fields; he will heap up a siege mound against you, build a wall against you, and raise a [^b]defense against you. 
+He will slay with the sword your daughter _villages_ in the fields; he will heap up a siege mound against you, build a wall against you, and raise a defense against you. 
 
 ###### 9 
 He will direct his battering rams against your walls, and with his axes he will break down your towers. 

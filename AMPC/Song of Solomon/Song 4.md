@@ -175,7 +175,7 @@ Until the day breaks and the shadows flee away, [in my thoughts] I will get to t
 
 
 
-Come [^a]away with me from Lebanon, my [promised] bride, come with me from Lebanon. Depart from the top of Amana, from the peak of Senir and Hermon, from the lions' dens, from the mountains of the leopards. 
+Come away with me from Lebanon, my [promised] bride, come with me from Lebanon. Depart from the top of Amana, from the peak of Senir and Hermon, from the lions' dens, from the mountains of the leopards. 
 
 
 
@@ -343,4 +343,4 @@ You are a fountain [springing up] in a garden, a well of living waters, and flow
 
 
 
-[You have called me a garden, she said] Oh, I pray that the [cold] [^b]north wind and the [soft] south wind may blow upon my garden, that its spices may flow out [in abundance for you in whom my soul delights]. Let my beloved come into his garden and eat its choicest fruits.
+[You have called me a garden, she said] Oh, I pray that the [cold] north wind and the [soft] south wind may blow upon my garden, that its spices may flow out [in abundance for you in whom my soul delights]. Let my beloved come into his garden and eat its choicest fruits.

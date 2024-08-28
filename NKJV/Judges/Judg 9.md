@@ -55,7 +55,7 @@ But the vine said to them, 'Should I cease my new wine, Which cheers _both_ God 
 And the bramble said to the trees, 'If in truth you anoint me as king over you, _Then_ come _and_ take shelter in my shade; But if not, let fire come out of the bramble And devour the cedars of Lebanon!' 
 
 ###### 16 
-"Now therefore, if you have acted in truth and sincerity in making Abimelech king, and if you have dealt well with Jerubbaal and his house, and have done to him as[^a] he deserves-- 
+"Now therefore, if you have acted in truth and sincerity in making Abimelech king, and if you have dealt well with Jerubbaal and his house, and have done to him as he deserves-- 
 
 ###### 17 
 for my father fought for you, risked his life, and delivered you out of the hand of Midian; 
@@ -82,19 +82,19 @@ God sent a spirit of ill will between Abimelech and the men of Shechem; and the 
 that the crime _done_ to the seventy sons of Jerubbaal might be settled and their blood be laid on Abimelech their brother, who killed them, and on the men of Shechem, who aided him in the killing of his brothers. 
 
 ###### 25 
-And the men of Shechem set [^b]men in ambush against him on the tops of the mountains, and they robbed all who passed by them along that way; and it was told Abimelech. 
+And the men of Shechem set men in ambush against him on the tops of the mountains, and they robbed all who passed by them along that way; and it was told Abimelech. 
 
 ###### 26 
 Now Gaal the son of Ebed came with his brothers and went over to Shechem; and the men of Shechem put their confidence in him. 
 
 ###### 27 
-So they went out into the fields, and gathered _grapes_ from their vineyards and trod _them,_ and [^c]made merry. And they went into the house of their god, and ate and drank, and cursed Abimelech. 
+So they went out into the fields, and gathered _grapes_ from their vineyards and trod _them,_ and made merry. And they went into the house of their god, and ate and drank, and cursed Abimelech. 
 
 ###### 28 
 Then Gaal the son of Ebed said, "Who _is_ Abimelech, and who _is_ Shechem, that we should serve him? _Is he_ not the son of Jerubbaal, and _is not_ Zebul his officer? Serve the men of Hamor the father of Shechem; but why should we serve him? 
 
 ###### 29 
-If only this people were under my [^d]authority! Then I would remove Abimelech." So [^e]he said to Abimelech, "Increase your army and come out!" 
+If only this people were under my authority! Then I would remove Abimelech." So he said to Abimelech, "Increase your army and come out!" 
 
 ###### 30 
 When Zebul, the ruler of the city, heard the words of Gaal the son of Ebed, his anger was aroused. 
@@ -103,13 +103,13 @@ When Zebul, the ruler of the city, heard the words of Gaal the son of Ebed, his 
 And he sent messengers to Abimelech secretly, saying, "Take note! Gaal the son of Ebed and his brothers have come to Shechem; and here they are, fortifying the city against you. 
 
 ###### 32 
-Now therefore, get up by night, you and the people who _are_ with you, and [^f]lie in wait in the field. 
+Now therefore, get up by night, you and the people who _are_ with you, and lie in wait in the field. 
 
 ###### 33 
-And it shall be, as soon as the sun is up in the morning, _that_ you shall rise early and rush upon the city; and _when_ he and the people who are with him come out against you, you may then do to them [^g]as you find opportunity." 
+And it shall be, as soon as the sun is up in the morning, _that_ you shall rise early and rush upon the city; and _when_ he and the people who are with him come out against you, you may then do to them as you find opportunity." 
 
 ###### 34 
-So Abimelech and all the people who _were_ with him rose by night, and [^h]lay in wait against Shechem in four companies. 
+So Abimelech and all the people who _were_ with him rose by night, and lay in wait against Shechem in four companies. 
 
 ###### 35 
 When Gaal the son of Ebed went out and stood in the entrance to the city gate, Abimelech and the people who _were_ with him rose from lying in wait. 
@@ -118,7 +118,7 @@ When Gaal the son of Ebed went out and stood in the entrance to the city gate, A
 And when Gaal saw the people, he said to Zebul, "Look, people are coming down from the tops of the mountains!" But Zebul said to him, "You see the shadows of the mountains as _if they were_ men." 
 
 ###### 37 
-So Gaal spoke again and said, "See, people are coming down from the center of the land, and another company is coming from the [^i]Diviners' Terebinth Tree." 
+So Gaal spoke again and said, "See, people are coming down from the center of the land, and another company is coming from the Diviners' Terebinth Tree." 
 
 ###### 38 
 Then Zebul said to him, "Where indeed _is_ your mouth now, with which you said, 'Who is Abimelech, that we should serve him?' _Are_ not these the people whom you despised? Go out, if you will, and fight with them now." 
@@ -130,13 +130,13 @@ So Gaal went out, leading the men of Shechem, and fought with Abimelech.
 And Abimelech chased him, and he fled from him; and many fell wounded, to the _very_ entrance of the gate. 
 
 ###### 41 
-Then Abimelech dwelt at Arumah, and Zebul [^j]drove out Gaal and his brothers, so that they would not dwell in Shechem. 
+Then Abimelech dwelt at Arumah, and Zebul drove out Gaal and his brothers, so that they would not dwell in Shechem. 
 
 ###### 42 
 And it came about on the next day that the people went out into the field, and they told Abimelech. 
 
 ###### 43 
-So he took his people, divided them into three companies, and lay in wait in the field. And he looked, and there were the people, coming out of the city; and he rose against them and [^k]attacked them. 
+So he took his people, divided them into three companies, and lay in wait in the field. And he looked, and there were the people, coming out of the city; and he rose against them and attacked them. 
 
 ###### 44 
 Then Abimelech and the company that _was_ with him rushed forward and stood at the entrance of the gate of the city; and the _other_ two companies rushed upon all who _were_ in the fields and killed them. 
@@ -145,7 +145,7 @@ Then Abimelech and the company that _was_ with him rushed forward and stood at t
 So Abimelech fought against the city all that day; he took the city and killed the people who _were_ in it; and he demolished the city and sowed it with salt. 
 
 ###### 46 
-Now when all the men of the tower of Shechem had heard _that,_ they entered the [^l]stronghold of the temple of the god Berith. 
+Now when all the men of the tower of Shechem had heard _that,_ they entered the stronghold of the temple of the god Berith. 
 
 ###### 47 
 And it was told Abimelech that all the men of the tower of Shechem were gathered together. 
@@ -154,10 +154,10 @@ And it was told Abimelech that all the men of the tower of Shechem were gathered
 Then Abimelech went up to Mount Zalmon, he and all the people who _were_ with him. And Abimelech took an ax in his hand and cut down a bough from the trees, and took it and laid _it_ on his shoulder; then he said to the people who were with him, "What you have seen me do, make haste _and_ do as I _have done._" 
 
 ###### 49 
-So each of the people likewise cut down his own bough and followed Abimelech, put _them_ against the [^m]stronghold, and set the stronghold on fire above them, so that all the people of the tower of Shechem died, about a thousand men and women. 
+So each of the people likewise cut down his own bough and followed Abimelech, put _them_ against the stronghold, and set the stronghold on fire above them, so that all the people of the tower of Shechem died, about a thousand men and women. 
 
 ###### 50 
-Then Abimelech went to Thebez, and he [^n]encamped against Thebez and took it. 
+Then Abimelech went to Thebez, and he encamped against Thebez and took it. 
 
 ###### 51 
 But there was a strong tower in the city, and all the men and women--all the people of the city--fled there and shut themselves in; then they went up to the top of the tower. 
@@ -172,7 +172,7 @@ But a certain woman dropped an upper millstone on Abimelech's head and crushed h
 Then he called quickly to the young man, his armorbearer, and said to him, "Draw your sword and kill me, lest men say of me, 'A woman killed him.' " So his young man thrust him through, and he died. 
 
 ###### 55 
-And when the men of Israel saw that Abimelech was dead, they departed, every man to his [^o]place. 
+And when the men of Israel saw that Abimelech was dead, they departed, every man to his place. 
 
 ###### 56 
 Thus God repaid the wickedness of Abimelech, which he had done to his father by killing his seventy brothers. 

@@ -24,7 +24,7 @@ And when the Jubilee of the children of Israel comes, then their inheritance wil
 Then Moses commanded the children of Israel according to the word of the Lord, saying: "What the tribe of the sons of Joseph speaks is right. 
 
 ###### 6 
-This _is_ what the Lord commands concerning the daughters of Zelophehad, saying, 'Let them [^a]marry whom they think best, but they may marry only within the family of their father's tribe.' 
+This _is_ what the Lord commands concerning the daughters of Zelophehad, saying, 'Let them marry whom they think best, but they may marry only within the family of their father's tribe.' 
 
 ###### 7 
 So the inheritance of the children of Israel shall not change hands from tribe to tribe, for every one of the children of Israel shall keep the inheritance of the tribe of his fathers. 

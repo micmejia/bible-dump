@@ -238,7 +238,7 @@ Kaya iniutos ko na dalhin sa akin ang lahat ng marurunong sa Babilonia para ipal
 
 
 
-Nang dumating ang mga salamangkero, manghuhula at mga astrologo,[^a] sinabi ko sa kanila ang panaginip ko, pero hindi nila maipaliwanag ang kahulugan nito. 
+Nang dumating ang mga salamangkero, manghuhula at mga astrologo, sinabi ko sa kanila ang panaginip ko, pero hindi nila maipaliwanag ang kahulugan nito. 
 
 
 
@@ -271,7 +271,7 @@ Nang dumating ang mga salamangkero, manghuhula at mga astrologo,[^a] sinabi ko s
 
 
 
-"Nang bandang huli, lumapit sa akin si Daniel. (Pinangalanan siyang Belteshazar na pangalan din ng aking dios. Nasa kanya ang espiritu ng banal na mga dios.)[^b] Isinalaysay ko sa kanya ang aking panaginip. 
+"Nang bandang huli, lumapit sa akin si Daniel. (Pinangalanan siyang Belteshazar na pangalan din ng aking dios. Nasa kanya ang espiritu ng banal na mga dios.) Isinalaysay ko sa kanya ang aking panaginip. 
 
 
 
@@ -436,7 +436,7 @@ Mayabong ang kanyang mga dahon at marami ang kanyang bunga na maaaring kainin ng
 
 
 
-"Nakita ko rin sa panaginip ang isang anghel[^c] na bumaba mula sa langit. 
+"Nakita ko rin sa panaginip ang isang anghel na bumaba mula sa langit. 
 
 
 
@@ -601,7 +601,7 @@ Ito ang hatol na sinabi ng anghel para malaman ng lahat na ang Kataas-taasang <i
 
 
 
-"Ito ang panaginip ko, Belteshazar. Sabihin mo sa akin ang kahulugan nito dahil wala ni isa man sa mga marunong sa aking kaharian ang makapagpaliwanag sa akin ng kahulugan nito. Pero maipapaliwanag mo ito sapagkat nasa iyo ang espiritu ng mga dios."[^d] ## Ipinaliwanag ni Daniel ang Kahulugan ng Panaginip 
+"Ito ang panaginip ko, Belteshazar. Sabihin mo sa akin ang kahulugan nito dahil wala ni isa man sa mga marunong sa aking kaharian ang makapagpaliwanag sa akin ng kahulugan nito. Pero maipapaliwanag mo ito sapagkat nasa iyo ang espiritu ng mga dios." ## Ipinaliwanag ni Daniel ang Kahulugan ng Panaginip 
 
 
 
@@ -733,7 +733,7 @@ na may mayayabong na dahon at maraming bunga na maaaring kainin ng lahat, sinisi
 
 
 
-ay walang iba kundi kayo, Mahal na Hari. Sapagkat kayo po ay naging makapangyarihan; ang kapangyarihan nʼyo ay abot hanggang langit,[^e] at ang inyong nasasakupan ay umabot sa ibaʼt ibang dako ng mundo." 
+ay walang iba kundi kayo, Mahal na Hari. Sapagkat kayo po ay naging makapangyarihan; ang kapangyarihan nʼyo ay abot hanggang langit, at ang inyong nasasakupan ay umabot sa ibaʼt ibang dako ng mundo." 
 
 
 
@@ -1129,7 +1129,7 @@ Nangyari nga agad kay Nebucadnezar ang sinabi ng tinig. Itinaboy siya mula sa mg
 
 
 
-"Pagkatapos ng pitong taon, ako, si Nebucadnezar ay lumapit sa Dios[^f] at nanumbalik ang matino kong pag-iisip. Kaya pinuri ko at pinarangalan ang Kataas-taasang <i class="trans-change">Dios_ na buhay magpakailanman. <i class="trans-change">Sinabi ko,_ 'Ang paghahari niya ay walang katapusan. 
+"Pagkatapos ng pitong taon, ako, si Nebucadnezar ay lumapit sa Dios at nanumbalik ang matino kong pag-iisip. Kaya pinuri ko at pinarangalan ang Kataas-taasang <i class="trans-change">Dios_ na buhay magpakailanman. <i class="trans-change">Sinabi ko,_ 'Ang paghahari niya ay walang katapusan. 
 
 
 

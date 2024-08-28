@@ -238,7 +238,7 @@ Binuksan ko ang pinto para sa aking mahal, pero wala na siya. Hinanap ko siya, p
 
 
 
-Nakita ako ng mga guwardya na naglilibot sa lungsod. Pinalo nila ako, at akoʼy nasugatan. Kinuha[^a] pa nila ang aking damit. 
+Nakita ako ng mga guwardya na naglilibot sa lungsod. Pinalo nila ako, at akoʼy nasugatan. Kinuha pa nila ang aking damit. 
 
 
 

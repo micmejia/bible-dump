@@ -10,16 +10,16 @@ next: ['Rom 16']
 
 
 ###### 1 
-We then who are strong ought to bear with the [^a]scruples of the weak, and not to please ourselves. 
+We then who are strong ought to bear with the scruples of the weak, and not to please ourselves. 
 
 ###### 2 
-Let each of us please _his_ neighbor for _his_ good, leading to [^b]edification. 
+Let each of us please _his_ neighbor for _his_ good, leading to edification. 
 
 ###### 3 
 For even Christ did not please Himself; but as it is written, "The reproaches of those who reproached You fell on Me." 
 
 ###### 4 
-For whatever things were written before were written for our learning, that we through the [^c]patience and comfort of the Scriptures might have hope. 
+For whatever things were written before were written for our learning, that we through the patience and comfort of the Scriptures might have hope. 
 
 ###### 5 
 Now may the God of patience and comfort grant you to be like-minded toward one another, according to Christ Jesus, 
@@ -28,10 +28,10 @@ Now may the God of patience and comfort grant you to be like-minded toward one a
 that you may with one mind _and_ one mouth glorify the God and Father of our Lord Jesus Christ. ## Glorify God Together 
 
 ###### 7 
-Therefore receive one another, just as Christ also received [^d]us, to the glory of God. 
+Therefore receive one another, just as Christ also received us, to the glory of God. 
 
 ###### 8 
-Now I say that Jesus Christ has become a [^e]servant to the circumcision for the truth of God, to confirm the promises _made_ to the fathers, 
+Now I say that Jesus Christ has become a servant to the circumcision for the truth of God, to confirm the promises _made_ to the fathers, 
 
 ###### 9 
 and that the Gentiles might glorify God for _His_ mercy, as it is written: "For this reason I will confess to You among the Gentiles, And sing to Your name." 
@@ -49,13 +49,13 @@ And again, Isaiah says: "There shall be a root of Jesse; And He who shall rise t
 Now may the God of hope fill you with all joy and peace in believing, that you may abound in hope by the power of the Holy Spirit. ## From Jerusalem to Illyricum 
 
 ###### 14 
-Now I myself am confident concerning you, my brethren, that you also are full of goodness, filled with all knowledge, able also to admonish [^f]one another. 
+Now I myself am confident concerning you, my brethren, that you also are full of goodness, filled with all knowledge, able also to admonish one another. 
 
 ###### 15 
 Nevertheless, brethren, I have written more boldly to you on _some_ points, as reminding you, because of the grace given to me by God, 
 
 ###### 16 
-that I might be a minister of Jesus Christ to the Gentiles, ministering the gospel of God, that the offering [^g]of the Gentiles might be acceptable, sanctified by the Holy Spirit. 
+that I might be a minister of Jesus Christ to the Gentiles, ministering the gospel of God, that the offering of the Gentiles might be acceptable, sanctified by the Holy Spirit. 
 
 ###### 17 
 Therefore I have reason to glory in Christ Jesus in the things _which pertain_ to God. 
@@ -79,10 +79,10 @@ For this reason I also have been much hindered from coming to you.
 But now no longer having a place in these parts, and having a great desire these many years to come to you, 
 
 ###### 24 
-whenever I journey to Spain, [^h]I shall come to you. For I hope to see you on my journey, and to be helped on my way there by you, if first I may enjoy your _company_ for a while. 
+whenever I journey to Spain, I shall come to you. For I hope to see you on my journey, and to be helped on my way there by you, if first I may enjoy your _company_ for a while. 
 
 ###### 25 
-But now I am going to Jerusalem to [^i]minister to the saints. 
+But now I am going to Jerusalem to minister to the saints. 
 
 ###### 26 
 For it pleased those from Macedonia and Achaia to make a certain contribution for the poor among the saints who are in Jerusalem. 
@@ -94,13 +94,13 @@ It pleased them indeed, and they are their debtors. For if the Gentiles have bee
 Therefore, when I have performed this and have sealed to them this fruit, I shall go by way of you to Spain. 
 
 ###### 29 
-But I know that when I come to you, I shall come in the fullness of the blessing [^j]of the gospel of Christ. 
+But I know that when I come to you, I shall come in the fullness of the blessing of the gospel of Christ. 
 
 ###### 30 
 Now I beg you, brethren, through the Lord Jesus Christ, and through the love of the Spirit, that you strive together with me in prayers to God for me, 
 
 ###### 31 
-that I may be delivered from those in Judea who [^k]do not believe, and that my service for Jerusalem may be acceptable to the saints, 
+that I may be delivered from those in Judea who do not believe, and that my service for Jerusalem may be acceptable to the saints, 
 
 ###### 32 
 that I may come to you with joy by the will of God, and may be refreshed together with you. 

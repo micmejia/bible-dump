@@ -40,7 +40,7 @@ and do not think to say to yourselves, 'We have Abraham as _our_ father.' For I 
 And even now the ax is laid to the root of the trees. Therefore every tree which does not bear good fruit is cut down and thrown into the fire. 
 
 ###### 11 
-I indeed baptize you with water unto repentance, but He who is coming after me is mightier than I, whose sandals I am not worthy to carry. He will baptize you with the Holy Spirit [^a]and fire. 
+I indeed baptize you with water unto repentance, but He who is coming after me is mightier than I, whose sandals I am not worthy to carry. He will baptize you with the Holy Spirit and fire. 
 
 ###### 12 
 His winnowing fan _is_ in His hand, and He will thoroughly clean out His threshing floor, and gather His wheat into the barn; but He will burn up the chaff with unquenchable fire." ## John Baptizes Jesus 
@@ -55,7 +55,7 @@ And John _tried to_ prevent Him, saying, "I need to be baptized by You, and are 
 But Jesus answered and said to him, "Permit _it to be so_ now, for thus it is fitting for us to fulfill all righteousness." Then he allowed Him. 
 
 ###### 16 
-When He had been baptized, Jesus came up immediately from the water; and behold, the heavens were opened to Him, and [^b]He saw the Spirit of God descending like a dove and alighting upon Him. 
+When He had been baptized, Jesus came up immediately from the water; and behold, the heavens were opened to Him, and He saw the Spirit of God descending like a dove and alighting upon Him. 
 
 ###### 17 
 And suddenly a voice _came_ from heaven, saying, "This is My beloved Son, in whom I am well pleased."

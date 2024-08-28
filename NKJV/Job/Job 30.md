@@ -10,7 +10,7 @@ next: ['Job 31']
 
 
 ###### 1 
-"But now they mock at me, _men_ [^a]younger than I, Whose fathers I disdained to put with the dogs of my flock. 
+"But now they mock at me, _men_ younger than I, Whose fathers I disdained to put with the dogs of my flock. 
 
 ###### 2 
 Indeed, what _profit_ is the strength of their hands to me? Their vigor has perished. 
@@ -19,13 +19,13 @@ Indeed, what _profit_ is the strength of their hands to me? Their vigor has peri
 _They are_ gaunt from want and famine, Fleeing late to the wilderness, desolate and waste, 
 
 ###### 4 
-Who pluck [^b]mallow by the bushes, And broom tree roots _for_ their food. 
+Who pluck mallow by the bushes, And broom tree roots _for_ their food. 
 
 ###### 5 
 They were driven out from among _men,_ They shouted at them as _at_ a thief. 
 
 ###### 6 
-_They had_ to live in the clefts of the [^c]valleys, _In_ [^d]caves of the earth and the rocks. 
+_They had_ to live in the clefts of the valleys, _In_ caves of the earth and the rocks. 
 
 ###### 7 
 Among the bushes they brayed, Under the nettles they nestled. 
@@ -40,7 +40,7 @@ _They were_ sons of fools, Yes, sons of vile men; They were scourged from the la
 They abhor me, they keep far from me; They do not hesitate to spit in my face. 
 
 ###### 11 
-Because He has loosed [^e]my bowstring and afflicted me, They have cast off restraint before me. 
+Because He has loosed my bowstring and afflicted me, They have cast off restraint before me. 
 
 ###### 12 
 At _my_ right _hand_ the rabble arises; They push away my feet, And they raise against me their ways of destruction. 
@@ -88,7 +88,7 @@ Have I not wept for him who was in trouble? Has _not_ my soul grieved for the po
 But when I looked for good, evil came _to me;_ And when I waited for light, then came darkness. 
 
 ###### 27 
-[^f]My heart is in turmoil and cannot rest; Days of affliction confront me. 
+My heart is in turmoil and cannot rest; Days of affliction confront me. 
 
 ###### 28 
 I go about mourning, but not in the sun; I stand up in the assembly _and_ cry out for help. 

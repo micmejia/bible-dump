@@ -469,7 +469,7 @@ Narinig kong nag-uusap ang dalawang anghel. Ang isang anghel ay nagtatanong sa i
 
 
 
-Sumagot ang isa, "Itoʼy mangyayari sa loob ng 2,300 umaga at hapon,[^a] at pagkatapos ay lilinisin ang templo." ## Ipinaliwanag ni Gabriel ang Kahulugan ng Pangitain 
+Sumagot ang isa, "Itoʼy mangyayari sa loob ng 2,300 umaga at hapon, at pagkatapos ay lilinisin ang templo." ## Ipinaliwanag ni Gabriel ang Kahulugan ng Pangitain 
 
 
 
@@ -799,7 +799,7 @@ Ang apat na sungay na tumubo pagkatapos maputol ang unang sungay ay ang apat na 
 
 
 
-Siyaʼy magiging makapangyarihan, pero hindi tulad ng haring nauna sa kanya.[^b] Magtataka ang mga tao sa gagawin niyang panlilipol, at magtatagumpay siya sa anumang gagawin niya. Lilipulin niya ang mga makapangyarihang tao at ang mga hinirang na mga mamamayan ng Dios. 
+Siyaʼy magiging makapangyarihan, pero hindi tulad ng haring nauna sa kanya. Magtataka ang mga tao sa gagawin niyang panlilipol, at magtatagumpay siya sa anumang gagawin niya. Lilipulin niya ang mga makapangyarihang tao at ang mga hinirang na mga mamamayan ng Dios. 
 
 
 
@@ -865,7 +865,7 @@ Dahil sa kanyang kakayahan, magtatagumpay siya sa kanyang pandaraya. Ipagmamalak
 
 
 
-"Ang pangitaing nakita mo tungkol sa <i class="trans-change">pagpapatigil ng_ pang-umaga at panghapon[^c] <i class="trans-change">na paghahandog_ ay totoo. Pero huwag mo munang ihayag ito dahil matatagalan pa bago ito maganap." 
+"Ang pangitaing nakita mo tungkol sa <i class="trans-change">pagpapatigil ng_ pang-umaga at panghapon <i class="trans-change">na paghahandog_ ay totoo. Pero huwag mo munang ihayag ito dahil matatagalan pa bago ito maganap." 
 
 
 

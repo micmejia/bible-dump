@@ -40,7 +40,7 @@ He who has ears to hear, let him hear!" ## The Purpose of Parables
 And the disciples came and said to Him, "Why do You speak to them in parables?" 
 
 ###### 11 
-He answered and said to them, "Because it has been given to you to know the [^a]mysteries of the kingdom of heaven, but to them it has not been given. 
+He answered and said to them, "Because it has been given to you to know the mysteries of the kingdom of heaven, but to them it has not been given. 
 
 ###### 12 
 For whoever has, to him more will be given, and he will have abundance; but whoever does not have, even what he has will be taken away from him. 
@@ -52,7 +52,7 @@ Therefore I speak to them in parables, because seeing they do not see, and heari
 And in them the prophecy of Isaiah is fulfilled, which says: 'Hearing you will hear and shall not understand, And seeing you will see and not perceive; 
 
 ###### 15 
-For the hearts of this people have grown dull. _Their_ ears are hard of hearing, And their eyes they have closed, Lest they should see with _their_ eyes and hear with _their_ ears, Lest they should understand with _their_ hearts and turn, So that I [^b]should heal them.' 
+For the hearts of this people have grown dull. _Their_ ears are hard of hearing, And their eyes they have closed, Lest they should see with _their_ eyes and hear with _their_ ears, Lest they should understand with _their_ hearts and turn, So that I should heal them.' 
 
 ###### 16 
 But blessed _are_ your eyes for they see, and your ears for they hear; 
@@ -106,7 +106,7 @@ Another parable He put forth to them, saying: "The kingdom of heaven is like a m
 which indeed is the least of all the seeds; but when it is grown it is greater than the herbs and becomes a tree, so that the birds of the air come and nest in its branches." ## The Parable of the Leaven 
 
 ###### 33 
-Another parable He spoke to them: "The kingdom of heaven is like leaven, which a woman took and hid in three [^c]measures of meal till it was all leavened." ## Prophecy and the Parables 
+Another parable He spoke to them: "The kingdom of heaven is like leaven, which a woman took and hid in three measures of meal till it was all leavened." ## Prophecy and the Parables 
 
 ###### 34 
 All these things Jesus spoke to the multitude in parables; and without a parable He did not speak to them, 
@@ -160,10 +160,10 @@ So it will be at the end of the age. The angels will come forth, separate the wi
 and cast them into the furnace of fire. There will be wailing and gnashing of teeth." 
 
 ###### 51 
-[^d]Jesus said to them, "Have you understood all these things?" They said to Him, "Yes, [^e]Lord." 
+Jesus said to them, "Have you understood all these things?" They said to Him, "Yes, Lord." 
 
 ###### 52 
-Then He said to them, "Therefore every [^f]scribe instructed [^g]concerning the kingdom of heaven is like a householder who brings out of his treasure _things_ new and old." ## Jesus Rejected at Nazareth 
+Then He said to them, "Therefore every scribe instructed concerning the kingdom of heaven is like a householder who brings out of his treasure _things_ new and old." ## Jesus Rejected at Nazareth 
 
 ###### 53 
 Now it came to pass, when Jesus had finished these parables, that He departed from there. 
@@ -172,7 +172,7 @@ Now it came to pass, when Jesus had finished these parables, that He departed fr
 When He had come to His own country, He taught them in their synagogue, so that they were astonished and said, "Where did this _Man_ get this wisdom and _these_ mighty works? 
 
 ###### 55 
-Is this not the carpenter's son? Is not His mother called Mary? And His brothers James, [^h]Joses, Simon, and Judas? 
+Is this not the carpenter's son? Is not His mother called Mary? And His brothers James, Joses, Simon, and Judas? 
 
 ###### 56 
 And His sisters, are they not all with us? Where then did this _Man_ get all these things?" 

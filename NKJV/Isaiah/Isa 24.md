@@ -19,13 +19,13 @@ And it shall be: As with the people, so with the priest; As with the servant, so
 The land shall be entirely emptied and utterly plundered, For the Lord has spoken this word. 
 
 ###### 4 
-The earth mourns _and_ fades away, The world languishes _and_ fades away; The haughty[^a] people of the earth languish. 
+The earth mourns _and_ fades away, The world languishes _and_ fades away; The haughty people of the earth languish. 
 
 ###### 5 
 The earth is also defiled under its inhabitants, Because they have transgressed the laws, Changed the ordinance, Broken the everlasting covenant. 
 
 ###### 6 
-Therefore the curse has devoured the earth, And those who dwell in it are [^b]desolate. Therefore the inhabitants of the earth are burned, And few men _are_ left. 
+Therefore the curse has devoured the earth, And those who dwell in it are desolate. Therefore the inhabitants of the earth are burned, And few men _are_ left. 
 
 ###### 7 
 The new wine fails, the vine languishes, All the merry-hearted sigh. 
@@ -55,25 +55,25 @@ They shall lift up their voice, they shall sing; For the majesty of the Lord The
 Therefore glorify the Lord in the dawning light, The name of the Lord God of Israel in the coastlands of the sea. 
 
 ###### 16 
-From the ends of the earth we have heard songs: "Glory to the righteous!" But I said, [^c]"I am ruined, ruined! Woe to me! The treacherous dealers have dealt treacherously, Indeed, the treacherous dealers have dealt very treacherously." 
+From the ends of the earth we have heard songs: "Glory to the righteous!" But I said, "I am ruined, ruined! Woe to me! The treacherous dealers have dealt treacherously, Indeed, the treacherous dealers have dealt very treacherously." 
 
 ###### 17 
 Fear and the pit and the snare _Are_ upon you, O inhabitant of the earth. 
 
 ###### 18 
-And it shall be _That_ he who flees from the noise of the fear Shall fall into the pit, And he who comes up from the midst of the pit Shall be [^d]caught in the snare; For the windows from on high are open, And the foundations of the earth are shaken. 
+And it shall be _That_ he who flees from the noise of the fear Shall fall into the pit, And he who comes up from the midst of the pit Shall be caught in the snare; For the windows from on high are open, And the foundations of the earth are shaken. 
 
 ###### 19 
 The earth is violently broken, The earth is split open, The earth is shaken exceedingly. 
 
 ###### 20 
-The earth shall reel[^e] to and fro like a drunkard, And shall totter like a hut; Its transgression shall be heavy upon it, And it will fall, and not rise again. 
+The earth shall reel to and fro like a drunkard, And shall totter like a hut; Its transgression shall be heavy upon it, And it will fall, and not rise again. 
 
 ###### 21 
 It shall come to pass in that day _That_ the Lord will punish on high the host of exalted ones, And on the earth the kings of the earth. 
 
 ###### 22 
-They will be gathered together, _As_ prisoners are gathered in the [^f]pit, And will be shut up in the prison; After many days they will be punished. 
+They will be gathered together, _As_ prisoners are gathered in the pit, And will be shut up in the prison; After many days they will be punished. 
 
 ###### 23 
 Then the moon will be disgraced And the sun ashamed; For the Lord of hosts will reign On Mount Zion and in Jerusalem And before His elders, gloriously.

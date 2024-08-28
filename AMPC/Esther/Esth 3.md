@@ -28,7 +28,7 @@ next: ['Esth 4']
 
 
 
-After these things, King [^a]Ahasuerus promoted Haman the son of Hammedatha the Agagite and advanced him and set his seat above all the princes who were with him. 
+After these things, King Ahasuerus promoted Haman the son of Hammedatha the Agagite and advanced him and set his seat above all the princes who were with him. 
 
 
 

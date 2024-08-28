@@ -205,7 +205,7 @@ Kung aalis na kayo sa inyong pinagkakampuhan, si Aaron at ang mga anak niya ay p
 
 
 
-At tatakluban pa nila ito ng magandang klase ng balat[^a] at ng telang asul, at pagkatapos ay isusuot nila sa mga argolya ang mga pambuhat nito. 
+At tatakluban pa nila ito ng magandang klase ng balat at ng telang asul, at pagkatapos ay isusuot nila sa mga argolya ang mga pambuhat nito. 
 
 
 

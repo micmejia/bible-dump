@@ -322,7 +322,7 @@ Now Reuben went at the time of wheat harvest and found some mandrakes (love appl
 
 
 
-But [Leah] answered, Is it not enough that you have taken my husband without your taking away my son's [^a]mandrakes also? And Rachel said, Jacob shall sleep with you tonight [in exchange] for your son's mandrakes. 
+But [Leah] answered, Is it not enough that you have taken my husband without your taking away my son's mandrakes also? And Rachel said, Jacob shall sleep with you tonight [in exchange] for your son's mandrakes. 
 
 
 

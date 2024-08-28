@@ -16,13 +16,13 @@ Now in the second year of Nebuchadnezzar's reign, Nebuchadnezzar had dreams; and
 Then the king gave the command to call the magicians, the astrologers, the sorcerers, and the Chaldeans to tell the king his dreams. So they came and stood before the king. 
 
 ###### 3 
-And the king said to them, "I have had a dream, and my spirit is anxious to [^a]know the dream." 
+And the king said to them, "I have had a dream, and my spirit is anxious to know the dream." 
 
 ###### 4 
-Then the Chaldeans spoke to the king in Aramaic, "O[^b] king, live forever! Tell your servants the dream, and we will give the interpretation." 
+Then the Chaldeans spoke to the king in Aramaic, "O king, live forever! Tell your servants the dream, and we will give the interpretation." 
 
 ###### 5 
-The king answered and said to the Chaldeans, "My [^c]decision is firm: if you do not make known the dream to me, and its interpretation, you shall be cut in pieces, and your houses shall be made an ash heap. 
+The king answered and said to the Chaldeans, "My decision is firm: if you do not make known the dream to me, and its interpretation, you shall be cut in pieces, and your houses shall be made an ash heap. 
 
 ###### 6 
 However, if you tell the dream and its interpretation, you shall receive from me gifts, rewards, and great honor. Therefore tell me the dream and its interpretation." 
@@ -34,13 +34,13 @@ They answered again and said, "Let the king tell his servants the dream, and we 
 The king answered and said, "I know for certain that you would gain time, because you see that my decision is firm: 
 
 ###### 9 
-if you do not make known the dream to me, _there is only_ one decree for you! For you have agreed to speak lying and corrupt words before me till the [^d]time has changed. Therefore tell me the dream, and I shall know that you can [^e]give me its interpretation." 
+if you do not make known the dream to me, _there is only_ one decree for you! For you have agreed to speak lying and corrupt words before me till the time has changed. Therefore tell me the dream, and I shall know that you can give me its interpretation." 
 
 ###### 10 
 The Chaldeans answered the king, and said, "There is not a man on earth who can tell the king's matter; therefore no king, lord, or ruler has _ever_ asked such things of any magician, astrologer, or Chaldean. 
 
 ###### 11 
-_It is_ a [^f]difficult thing that the king requests, and there is no other who can tell it to the king except the gods, whose dwelling is not with flesh." 
+_It is_ a difficult thing that the king requests, and there is no other who can tell it to the king except the gods, whose dwelling is not with flesh." 
 
 ###### 12 
 For this reason the king was angry and very furious, and gave the command to destroy all the wise _men_ of Babylon. 
@@ -52,7 +52,7 @@ So the decree went out, and they began killing the wise _men;_ and they sought D
 Then with counsel and wisdom Daniel answered Arioch, the captain of the king's guard, who had gone out to kill the wise _men_ of Babylon; 
 
 ###### 15 
-he answered and said to Arioch the king's captain, "Why is the decree from the king so [^g]urgent?" Then Arioch made the decision known to Daniel. 
+he answered and said to Arioch the king's captain, "Why is the decree from the king so urgent?" Then Arioch made the decision known to Daniel. 
 
 ###### 16 
 So Daniel went in and asked the king to give him time, that he might tell the king the interpretation. 
@@ -76,13 +76,13 @@ And He changes the times and the seasons; He removes kings and raises up kings; 
 He reveals deep and secret things; He knows what _is_ in the darkness, And light dwells with Him. 
 
 ###### 23 
-"I thank You and praise You, O God of my fathers; You have given me wisdom and might, And have now made known to me what we asked of You, For You have made known to us the king's [^h]demand." ## Daniel Explains the Dream 
+"I thank You and praise You, O God of my fathers; You have given me wisdom and might, And have now made known to me what we asked of You, For You have made known to us the king's demand." ## Daniel Explains the Dream 
 
 ###### 24 
 Therefore Daniel went to Arioch, whom the king had appointed to destroy the wise _men_ of Babylon. He went and said thus to him: "Do not destroy the wise _men_ of Babylon; take me before the king, and I will tell the king the interpretation." 
 
 ###### 25 
-Then Arioch quickly brought Daniel before the king, and said thus to him, "I have found a man of the [^i]captives of Judah, who will make known to the king the interpretation." 
+Then Arioch quickly brought Daniel before the king, and said thus to him, "I have found a man of the captives of Judah, who will make known to the king the interpretation." 
 
 ###### 26 
 The king answered and said to Daniel, whose name _was_ Belteshazzar, "Are you able to make known to me the dream which I have seen, and its interpretation?" 
@@ -97,16 +97,16 @@ But there is a God in heaven who reveals secrets, and He has made known to King 
 As for you, O king, thoughts came _to_ your _mind while_ on your bed, _about_ what would come to pass after this; and He who reveals secrets has made known to you what will be. 
 
 ###### 30 
-But as for me, this secret has not been revealed to me because I have more wisdom than anyone living, but for _our_ sakes who make known the interpretation to the king, and that you may [^j]know the thoughts of your heart. 
+But as for me, this secret has not been revealed to me because I have more wisdom than anyone living, but for _our_ sakes who make known the interpretation to the king, and that you may know the thoughts of your heart. 
 
 ###### 31 
 "You, O king, were watching; and behold, a great image! This great image, whose splendor _was_ excellent, stood before you; and its form _was_ awesome. 
 
 ###### 32 
-This image's head _was_ of fine gold, its chest and arms of silver, its belly and [^k]thighs of bronze, 
+This image's head _was_ of fine gold, its chest and arms of silver, its belly and thighs of bronze, 
 
 ###### 33 
-its legs of iron, its feet partly of iron and partly of [^l]clay. 
+its legs of iron, its feet partly of iron and partly of clay. 
 
 ###### 34 
 You watched while a stone was cut out without hands, which struck the image on its feet of iron and clay, and broke them in pieces. 
@@ -133,13 +133,13 @@ And the fourth kingdom shall be as strong as iron, inasmuch as iron breaks in pi
 Whereas you saw the feet and toes, partly of potter's clay and partly of iron, the kingdom shall be divided; yet the strength of the iron shall be in it, just as you saw the iron mixed with ceramic clay. 
 
 ###### 42 
-And _as_ the toes of the feet _were_ partly of iron and partly of clay, _so_ the kingdom shall be partly strong and partly [^m]fragile. 
+And _as_ the toes of the feet _were_ partly of iron and partly of clay, _so_ the kingdom shall be partly strong and partly fragile. 
 
 ###### 43 
 As you saw iron mixed with ceramic clay, they will mingle with the seed of men; but they will not adhere to one another, just as iron does not mix with clay. 
 
 ###### 44 
-And in the days of these kings the God of heaven will set up a kingdom which shall never be destroyed; and the kingdom shall not be left to other people; it shall [^n]break in pieces and [^o]consume all these kingdoms, and it shall stand forever. 
+And in the days of these kings the God of heaven will set up a kingdom which shall never be destroyed; and the kingdom shall not be left to other people; it shall break in pieces and consume all these kingdoms, and it shall stand forever. 
 
 ###### 45 
 Inasmuch as you saw that the stone was cut out of the mountain without hands, and that it broke in pieces the iron, the bronze, the clay, the silver, and the gold--the great God has made known to the king what will come to pass after this. The dream is certain, and its interpretation is sure." ## Daniel and His Friends Promoted 
@@ -154,4 +154,4 @@ The king answered Daniel, and said, "Truly your God _is_ the God of gods, the Lo
 Then the king promoted Daniel and gave him many great gifts; and he made him ruler over the whole province of Babylon, and chief administrator over all the wise _men_ of Babylon. 
 
 ###### 49 
-Also Daniel petitioned the king, and he set Shadrach, Meshach, and Abed-Nego over the affairs of the province of Babylon; but Daniel _sat_ in [^p]the gate of the king.
+Also Daniel petitioned the king, and he set Shadrach, Meshach, and Abed-Nego over the affairs of the province of Babylon; but Daniel _sat_ in the gate of the king.

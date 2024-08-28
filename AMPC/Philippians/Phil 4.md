@@ -111,7 +111,7 @@ Rejoice in the Lord always [delight, gladden yourselves in Him]; again I say, Re
 
 
 
-Let all men know _and_ perceive _and_ recognize your unselfishness (your considerateness, your forbearing spirit). The Lord is near [He is [^a]coming soon]. 
+Let all men know _and_ perceive _and_ recognize your unselfishness (your considerateness, your forbearing spirit). The Lord is near [He is coming soon]. 
 
 
 
@@ -132,7 +132,7 @@ Let all men know _and_ perceive _and_ recognize your unselfishness (your conside
 
 
 
-Do not fret _or_ have any anxiety about anything, but in every circumstance _and_ in everything, by prayer and petition ([^b]definite requests), with thanksgiving, continue to make your wants known to God. 
+Do not fret _or_ have any anxiety about anything, but in every circumstance _and_ in everything, by prayer and petition (definite requests), with thanksgiving, continue to make your wants known to God. 
 
 
 
@@ -153,7 +153,7 @@ Do not fret _or_ have any anxiety about anything, but in every circumstance _and
 
 
 
-And God's peace [shall be yours, that [^c]tranquil state of a soul assured of its salvation through Christ, and so fearing nothing from God and being content with its earthly lot of whatever sort that is, that peace] which transcends all understanding shall [^d]garrison _and_ mount guard over your hearts and minds in Christ Jesus. 
+And God's peace [shall be yours, that tranquil state of a soul assured of its salvation through Christ, and so fearing nothing from God and being content with its earthly lot of whatever sort that is, that peace] which transcends all understanding shall garrison _and_ mount guard over your hearts and minds in Christ Jesus. 
 
 
 
@@ -195,7 +195,7 @@ For the rest, brethren, whatever is true, whatever is worthy of reverence _and_ 
 
 
 
-Practice what you have learned and received and heard and seen in me, _and_ model your way of living on it, and the God of peace (of [^e]untroubled, undisturbed well-being) will be with you. 
+Practice what you have learned and received and heard and seen in me, _and_ model your way of living on it, and the God of peace (of untroubled, undisturbed well-being) will be with you. 
 
 
 
@@ -237,7 +237,7 @@ I was made very happy in the Lord that now you have revived your interest in my 
 
 
 
-Not that I am implying that I was in any personal want, for I have learned how to be [^f] content (satisfied to the point where I am not disturbed or disquieted) in whatever state I am. 
+Not that I am implying that I was in any personal want, for I have learned how to be  content (satisfied to the point where I am not disturbed or disquieted) in whatever state I am. 
 
 
 
@@ -279,7 +279,7 @@ I know how to be abased _and_ live humbly in straitened circumstances, and I kno
 
 
 
-I have strength for all things in Christ Who empowers me [I am ready for anything and equal to anything through Him Who [^g]infuses inner strength into me; I am [^h]self-sufficient in Christ's sufficiency]. 
+I have strength for all things in Christ Who empowers me [I am ready for anything and equal to anything through Him Who infuses inner strength into me; I am self-sufficient in Christ's sufficiency]. 
 
 
 
@@ -405,7 +405,7 @@ But I have [your full payment] and more; I have everything I need _and_ am amply
 
 
 
-And my God will liberally supply ([^i]fill to the full) your every need according to His riches in glory in Christ Jesus. 
+And my God will liberally supply (fill to the full) your every need according to His riches in glory in Christ Jesus. 
 
 
 
@@ -447,7 +447,7 @@ To our God and Father be glory forever and ever (through the endless eternities 
 
 
 
-Remember me to every saint (every born-again believer) in Christ Jesus. The brethren (my [^j]associates) who are with me greet you. 
+Remember me to every saint (every born-again believer) in Christ Jesus. The brethren (my associates) who are with me greet you. 
 
 
 

@@ -196,7 +196,7 @@ For His disciples had gone off into the town to buy food--
 
 
 
-The Samaritan woman said to Him, How is it that [^a]You, being a Jew, ask me, a Samaritan [and a] woman, for a drink?--For the Jews have nothing to do with the Samaritans-- 
+The Samaritan woman said to Him, How is it that You, being a Jew, ask me, a Samaritan [and a] woman, for a drink?--For the Jews have nothing to do with the Samaritans-- 
 
 
 

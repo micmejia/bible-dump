@@ -40,7 +40,7 @@ next: ['Joel 3']
 
 
 
-Hipan ninyo ang trumpeta upang bigyang babala <i class="trans-change">ang mga tao_ sa Zion,[^a] ang banal[^b] na bundok ng Panginoon. Lahat kayong nakatira sa Juda, manginig kayo sa takot, dahil malapit na ang araw <i class="trans-change">ng paghatol_ ng Panginoon. 
+Hipan ninyo ang trumpeta upang bigyang babala <i class="trans-change">ang mga tao_ sa Zion, ang banal na bundok ng Panginoon. Lahat kayong nakatira sa Juda, manginig kayo sa takot, dahil malapit na ang araw <i class="trans-change">ng paghatol_ ng Panginoon. 
 
 
 
@@ -73,7 +73,7 @@ Hipan ninyo ang trumpeta upang bigyang babala <i class="trans-change">ang mga ta
 
 
 
-Magiging maulap at madilim ang araw na iyon. Kakalat ang napakaraming balang[^c] sa mga kabundukan na parang sinag ng araw kapag nagbubukang-liwayway. Wala pang nangyaring kagaya nito noon, at hindi na mangyayari ang katulad nito kahit kailan. 
+Magiging maulap at madilim ang araw na iyon. Kakalat ang napakaraming balang sa mga kabundukan na parang sinag ng araw kapag nagbubukang-liwayway. Wala pang nangyaring kagaya nito noon, at hindi na mangyayari ang katulad nito kahit kailan. 
 
 
 
@@ -106,7 +106,7 @@ Magiging maulap at madilim ang araw na iyon. Kakalat ang napakaraming balang[^c]
 
 
 
-Sunud-sunod na sumalakay ang mga balang na parang apoy.[^d] Bago sila dumating ang lupain ay parang halamanan ng Eden. Pero nang masalakay na nila, para na itong disyerto. Wala silang halaman na itinira. 
+Sunud-sunod na sumalakay ang mga balang na parang apoy. Bago sila dumating ang lupain ay parang halamanan ng Eden. Pero nang masalakay na nila, para na itong disyerto. Wala silang halaman na itinira. 
 
 
 
@@ -601,7 +601,7 @@ At bilang sagot sa kanilang dalangin sasabihin niya sa kanila, "Bibigyan ko kayo
 
 
 
-Palalayasin ko ang mga sasalakay sa inyo mula sa hilaga at itataboy ko sila sa disyerto. Itataboy ko ang unang pulutong nila sa Dagat na Patay[^e] at ang huling pulutong ay itataboy ko sa Dagat ng Mediteraneo.[^f] At babaho ang kanilang mga bangkay." Tunay na kamangha-mangha ang ginawa ng Panginoon. 
+Palalayasin ko ang mga sasalakay sa inyo mula sa hilaga at itataboy ko sila sa disyerto. Itataboy ko ang unang pulutong nila sa Dagat na Patay at ang huling pulutong ay itataboy ko sa Dagat ng Mediteraneo. At babaho ang kanilang mga bangkay." Tunay na kamangha-mangha ang ginawa ng Panginoon. 
 
 
 

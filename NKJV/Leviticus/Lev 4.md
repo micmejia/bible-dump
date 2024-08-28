@@ -13,7 +13,7 @@ next: ['Lev 5']
 Now the Lord spoke to Moses, saying, 
 
 ###### 2 
-"Speak to the children of Israel, saying: 'If a person sins [^a]unintentionally against any of the commandments of the Lord _in anything_ which ought not to be done, and does any of them, 
+"Speak to the children of Israel, saying: 'If a person sins unintentionally against any of the commandments of the Lord _in anything_ which ought not to be done, and does any of them, 
 
 ###### 3 
 if the anointed priest sins, bringing guilt on the people, then let him offer to the Lord for his sin which he has sinned a young bull without blemish as a sin offering. 
@@ -67,16 +67,16 @@ And he shall put _some_ of the blood on the horns of the altar which _is_ before
 He shall take all the fat from it and burn _it_ on the altar. 
 
 ###### 20 
-And he shall do with the bull as he did with the bull as a sin offering; thus he shall do with it. So the priest shall make [^b]atonement for them, and it shall be forgiven them. 
+And he shall do with the bull as he did with the bull as a sin offering; thus he shall do with it. So the priest shall make atonement for them, and it shall be forgiven them. 
 
 ###### 21 
 Then he shall carry the bull outside the camp, and burn it as he burned the first bull. It _is_ a sin offering for the assembly. 
 
 ###### 22 
-'When a [^c]ruler has sinned, and done _something_ unintentionally _against_ any of the commandments of the Lord his God _in anything_ which should not be done, and is guilty, 
+'When a ruler has sinned, and done _something_ unintentionally _against_ any of the commandments of the Lord his God _in anything_ which should not be done, and is guilty, 
 
 ###### 23 
-or if his sin which he has committed [^d]comes to his knowledge, he shall bring as his offering a kid of the goats, a male without blemish. 
+or if his sin which he has committed comes to his knowledge, he shall bring as his offering a kid of the goats, a male without blemish. 
 
 ###### 24 
 And he shall lay his hand on the head of the goat, and kill it at the place where they kill the burnt offering before the Lord. It _is_ a sin offering. 
@@ -85,10 +85,10 @@ And he shall lay his hand on the head of the goat, and kill it at the place wher
 The priest shall take some of the blood of the sin offering with his finger, put _it_ on the horns of the altar of burnt offering, and pour its blood at the base of the altar of burnt offering. 
 
 ###### 26 
-And he shall burn all its fat on the altar, like the fat of the sacrifice of the peace offering. So the priest shall make [^e]atonement for him concerning his sin, and it shall be forgiven him. 
+And he shall burn all its fat on the altar, like the fat of the sacrifice of the peace offering. So the priest shall make atonement for him concerning his sin, and it shall be forgiven him. 
 
 ###### 27 
-'If [^f]anyone of the [^g]common people sins unintentionally by doing _something against_ any of the commandments of the Lord _in anything_ which ought not to be done, and is guilty, 
+'If anyone of the common people sins unintentionally by doing _something against_ any of the commandments of the Lord _in anything_ which ought not to be done, and is guilty, 
 
 ###### 28 
 or if his sin which he has committed comes to his knowledge, then he shall bring as his offering a kid of the goats, a female without blemish, for his sin which he has committed. 

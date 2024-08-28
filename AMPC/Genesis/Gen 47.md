@@ -196,7 +196,7 @@ And Pharaoh asked Jacob, How old are you?
 
 
 
-Jacob said to Pharaoh, The days of the years of my pilgrimage are 130 years; few and evil have the days of the years of my life been, and they have [^a]not attained to those of the life of my fathers in their pilgrimage. 
+Jacob said to Pharaoh, The days of the years of my pilgrimage are 130 years; few and evil have the days of the years of my life been, and they have not attained to those of the life of my fathers in their pilgrimage. 
 
 
 
@@ -616,7 +616,7 @@ And Jacob lived in the land of Egypt seventeen years; so Jacob reached the age o
 
 
 
-When the time drew near that Israel must die, he called his son Joseph and said to him, If now I have found favor in your sight, [^b]put your hand under my thigh and [promise to] deal loyally and faithfully with me. Do not bury me, I beg of you, in Egypt, 
+When the time drew near that Israel must die, he called his son Joseph and said to him, If now I have found favor in your sight, put your hand under my thigh and [promise to] deal loyally and faithfully with me. Do not bury me, I beg of you, in Egypt, 
 
 
 

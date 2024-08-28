@@ -37,10 +37,10 @@ Blessed be the Lord your God, who delighted in you, setting you on His throne _t
 And she gave the king one hundred and twenty talents of gold, spices in great abundance, and precious stones; there never were any spices such as those the queen of Sheba gave to King Solomon. 
 
 ###### 10 
-Also, the servants of Hiram and the servants of Solomon, who brought gold from Ophir, brought [^a]algum wood and precious stones. 
+Also, the servants of Hiram and the servants of Solomon, who brought gold from Ophir, brought algum wood and precious stones. 
 
 ###### 11 
-And the king made walkways _of_ the [^b]algum wood for the house of the Lord and for the king's house, also harps and stringed instruments for singers; and there were none such _as these_ seen before in the land of Judah. 
+And the king made walkways _of_ the algum wood for the house of the Lord and for the king's house, also harps and stringed instruments for singers; and there were none such _as these_ seen before in the land of Judah. 
 
 ###### 12 
 Now King Solomon gave to the queen of Sheba all she desired, whatever she asked, _much more_ than she had brought to the king. So she turned and went to her own country, she and her servants. ## Solomon's Great Wealth 
@@ -55,13 +55,13 @@ besides _what_ the traveling merchants and traders brought. And all the kings of
 And King Solomon made two hundred large shields of hammered gold; six hundred _shekels_ of hammered gold went into each shield. 
 
 ###### 16 
-_He_ also _made_ three hundred shields of hammered gold; [^c]three hundred _shekels_ of gold went into each shield. The king put them in the House of the Forest of Lebanon. 
+_He_ also _made_ three hundred shields of hammered gold; three hundred _shekels_ of gold went into each shield. The king put them in the House of the Forest of Lebanon. 
 
 ###### 17 
 Moreover the king made a great throne of ivory, and overlaid it with pure gold. 
 
 ###### 18 
-The throne _had_ six steps, with a footstool of gold, _which were_ fastened to the throne; there were [^d]armrests on either side of the place of the seat, and two lions stood beside the armrests. 
+The throne _had_ six steps, with a footstool of gold, _which were_ fastened to the throne; there were armrests on either side of the place of the seat, and two lions stood beside the armrests. 
 
 ###### 19 
 Twelve lions stood there, one on each side of the six steps; nothing like _this_ had been made for any _other_ kingdom. 
@@ -70,7 +70,7 @@ Twelve lions stood there, one on each side of the six steps; nothing like _this_
 All King Solomon's drinking vessels _were_ gold, and all the vessels of the House of the Forest of Lebanon _were_ pure gold. Not _one was_ silver, for this was accounted as nothing in the days of Solomon. 
 
 ###### 21 
-For the king's ships went to Tarshish with the servants of [^e]Hiram. Once every three years the [^f]merchant ships came, bringing gold, silver, ivory, apes, and [^g]monkeys. 
+For the king's ships went to Tarshish with the servants of Hiram. Once every three years the merchant ships came, bringing gold, silver, ivory, apes, and monkeys. 
 
 ###### 22 
 So King Solomon surpassed all the kings of the earth in riches and wisdom. 
@@ -85,7 +85,7 @@ Each man brought his present: articles of silver and gold, garments, armor, spic
 Solomon had four thousand stalls for horses and chariots, and twelve thousand horsemen whom he stationed in the chariot cities and with the king at Jerusalem. 
 
 ###### 26 
-So he reigned over all the kings from [^h]the River to the land of the Philistines, as far as the border of Egypt. 
+So he reigned over all the kings from the River to the land of the Philistines, as far as the border of Egypt. 
 
 ###### 27 
 The king made silver _as common_ in Jerusalem as stones, and he made cedar trees as abundant as the sycamores which _are_ in the lowland. 
@@ -100,4 +100,4 @@ Now the rest of the acts of Solomon, first and last, _are_ they not written in t
 Solomon reigned in Jerusalem over all Israel forty years. 
 
 ###### 31 
-Then Solomon [^i]rested with his fathers, and was buried in the City of David his father. And Rehoboam his son reigned in his place.
+Then Solomon rested with his fathers, and was buried in the City of David his father. And Rehoboam his son reigned in his place.

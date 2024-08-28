@@ -304,7 +304,7 @@ Namaybay kami, pero talagang nahirapan kami bago makarating sa lugar na tinatawa
 
 
 
-Nagtagal kami roon hanggang inabot kami ng panahong mapanganib ang pagbibiyahe, dahil nakalipas na ang <i class="trans-change">Araw ng_ Pag-aayuno.[^a] Kaya sinabi ni Pablo sa aming mga kasama, 
+Nagtagal kami roon hanggang inabot kami ng panahong mapanganib ang pagbibiyahe, dahil nakalipas na ang <i class="trans-change">Araw ng_ Pag-aayuno. Kaya sinabi ni Pablo sa aming mga kasama, 
 
 
 
@@ -502,7 +502,7 @@ Hindi nagtagal, bumugso ang malakas na hilagang-silangang hangin mula sa isla <i
 
 
 
-Pagtama ng malakas na hangin sa amin, hindi na kami makaabante,[^b] kaya nagpatangay na lang kami kung saan kami dalhin ng hangin. 
+Pagtama ng malakas na hangin sa amin, hindi na kami makaabante, kaya nagpatangay na lang kami kung saan kami dalhin ng hangin. 
 
 
 
@@ -568,7 +568,7 @@ Nang nasa bandang timog na kami ng maliit na isla ng Cauda, nakapagkubli kami na
 
 
 
-Nang mahatak na ang bangka, itinali ito nang mahigpit sa barko. Sapagkat natatakot sila na baka sumayad ang barko malapit sa Libya,[^c] ibinaba nila ang layag at nagpatangay sa hangin. 
+Nang mahatak na ang bangka, itinali ito nang mahigpit sa barko. Sapagkat natatakot sila na baka sumayad ang barko malapit sa Libya, ibinaba nila ang layag at nagpatangay sa hangin. 
 
 
 

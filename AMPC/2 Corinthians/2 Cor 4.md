@@ -217,7 +217,7 @@ We are pursued (persecuted and hard driven), but not deserted [to stand alone]; 
 
 
 
-Always carrying about in the body the liability _and_ exposure to the same putting to death that _the Lord_ Jesus suffered, so that the [[^a]resurrection] life of Jesus also may be shown forth by _and_ in our bodies. 
+Always carrying about in the body the liability _and_ exposure to the same putting to death that _the Lord_ Jesus suffered, so that the [resurrection] life of Jesus also may be shown forth by _and_ in our bodies. 
 
 
 
@@ -238,7 +238,7 @@ Always carrying about in the body the liability _and_ exposure to the same putti
 
 
 
-For we who live are constantly [experiencing] being handed over to death for Jesus' sake, that the [[^b]resurrection] life of Jesus also may be evidenced through our flesh which is liable to death. 
+For we who live are constantly [experiencing] being handed over to death for Jesus' sake, that the [resurrection] life of Jesus also may be evidenced through our flesh which is liable to death. 
 
 
 
@@ -259,7 +259,7 @@ For we who live are constantly [experiencing] being handed over to death for Jes
 
 
 
-Thus death is actively at work in us, but [it is in order that [^c]our] life [may be actively at work] in you. 
+Thus death is actively at work in us, but [it is in order that our] life [may be actively at work] in you. 
 
 
 

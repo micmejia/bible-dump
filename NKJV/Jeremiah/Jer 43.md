@@ -16,7 +16,7 @@ Now it happened, when Jeremiah had stopped speaking to all the people all the wo
 that Azariah the son of Hoshaiah, Johanan the son of Kareah, and all the proud men spoke, saying to Jeremiah, "You speak falsely! The Lord our God has not sent you to say, 'Do not go to Egypt to dwell there.' 
 
 ###### 3 
-But Baruch the son of Neriah has [^a]set you against us, to deliver us into the hand of the Chaldeans, that they may put us to death or carry us away captive to Babylon." 
+But Baruch the son of Neriah has set you against us, to deliver us into the hand of the Chaldeans, that they may put us to death or carry us away captive to Babylon." 
 
 ###### 4 
 So Johanan the son of Kareah, all the captains of the forces, and all the people would not obey the voice of the Lord, to remain in the land of Judah. 
@@ -34,7 +34,7 @@ So they went to the land of Egypt, for they did not obey the voice of the Lord. 
 Then the word of the Lord came to Jeremiah in Tahpanhes, saying, 
 
 ###### 9 
-"Take large stones in your hand, and hide them in the sight of the men of Judah, in the [^b]clay in the brick courtyard which _is_ at the entrance to Pharaoh's house in Tahpanhes; 
+"Take large stones in your hand, and hide them in the sight of the men of Judah, in the clay in the brick courtyard which _is_ at the entrance to Pharaoh's house in Tahpanhes; 
 
 ###### 10 
 and say to them, 'Thus says the Lord of hosts, the God of Israel: "Behold, I will send and bring Nebuchadnezzar the king of Babylon, My servant, and will set his throne above these stones that I have hidden. And he will spread his royal pavilion over them. 
@@ -43,7 +43,7 @@ and say to them, 'Thus says the Lord of hosts, the God of Israel: "Behold, I wil
 When he comes, he shall strike the land of Egypt _and deliver_ to death _those appointed_ for death, and to captivity _those appointed_ for captivity, and to the sword _those appointed_ for the sword. 
 
 ###### 12 
-[^c]I will kindle a fire in the houses of the gods of Egypt, and he shall burn them and carry them away captive. And he shall array himself with the land of Egypt, as a shepherd puts on his garment, and he shall go out from there in peace. 
+I will kindle a fire in the houses of the gods of Egypt, and he shall burn them and carry them away captive. And he shall array himself with the land of Egypt, as a shepherd puts on his garment, and he shall go out from there in peace. 
 
 ###### 13 
-He shall also break the _sacred_ pillars of [^d]Beth Shemesh that _are_ in the land of Egypt; and the houses of the gods of the Egyptians he shall burn with fire." ' "
+He shall also break the _sacred_ pillars of Beth Shemesh that _are_ in the land of Egypt; and the houses of the gods of the Egyptians he shall burn with fire." ' "

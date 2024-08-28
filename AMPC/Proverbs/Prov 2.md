@@ -49,7 +49,7 @@ My son, if you will receive my words and treasure up my commandments within you,
 
 
 
-Making your ear attentive to skillful _and_ godly [^a]Wisdom _and_ inclining and directing your heart _and_ mind to understanding [applying all your powers to the quest for it]; 
+Making your ear attentive to skillful _and_ godly Wisdom _and_ inclining and directing your heart _and_ mind to understanding [applying all your powers to the quest for it]; 
 
 
 

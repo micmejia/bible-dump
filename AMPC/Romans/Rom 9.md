@@ -280,7 +280,7 @@ It was said to her that the elder [son] should serve the younger [son].
 
 
 
-As it is written, Jacob have I loved, but Esau have I hated (held in [^a]relative disregard in comparison with My feeling for Jacob). 
+As it is written, Jacob have I loved, but Esau have I hated (held in relative disregard in comparison with My feeling for Jacob). 
 
 
 
@@ -574,7 +574,7 @@ And it shall be that in the very place where it was said to them, You are not My
 
 
 
-And Isaiah calls out (solemnly cries aloud) over Israel: Though the number of the sons of Israel be like the sand of the sea, only the remnant (a small part of them) will be saved [[^b]from perdition, condemnation, judgment]! 
+And Isaiah calls out (solemnly cries aloud) over Israel: Though the number of the sons of Israel be like the sand of the sea, only the remnant (a small part of them) will be saved [from perdition, condemnation, judgment]! 
 
 
 

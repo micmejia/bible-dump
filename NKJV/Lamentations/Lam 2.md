@@ -16,7 +16,7 @@ How the Lord has covered the daughter of Zion With a cloud in His anger! He cast
 The Lord has swallowed up and has not pitied All the dwelling places of Jacob. He has thrown down in His wrath The strongholds of the daughter of Judah; He has brought _them_ down to the ground; He has profaned the kingdom and its princes. 
 
 ###### 3 
-He has cut off in fierce anger Every [^a]horn of Israel; He has drawn back His right hand From before the enemy. He has blazed against Jacob like a flaming fire Devouring all around. 
+He has cut off in fierce anger Every horn of Israel; He has drawn back His right hand From before the enemy. He has blazed against Jacob like a flaming fire Devouring all around. 
 
 ###### 4 
 Standing like an enemy, He has bent His bow; With His right hand, like an adversary, He has slain all _who were_ pleasing to His eye; On the tent of the daughter of Zion, He has poured out His fury like fire. 
@@ -25,49 +25,49 @@ Standing like an enemy, He has bent His bow; With His right hand, like an advers
 The Lord was like an enemy. He has swallowed up Israel, He has swallowed up all her palaces; He has destroyed her strongholds, And has increased mourning and lamentation In the daughter of Judah. 
 
 ###### 6 
-He has done violence to His [^b]tabernacle, _As if it were_ a garden; He has destroyed His place of assembly; The Lord has caused The appointed feasts and Sabbaths to be forgotten in Zion. In His burning indignation He has spurned the king and the priest. 
+He has done violence to His tabernacle, _As if it were_ a garden; He has destroyed His place of assembly; The Lord has caused The appointed feasts and Sabbaths to be forgotten in Zion. In His burning indignation He has spurned the king and the priest. 
 
 ###### 7 
-The Lord has spurned His altar, He has abandoned His sanctuary; He has [^c]given up the walls of her palaces Into the hand of the enemy. They have made a noise in the house of the Lord As on the day of a set feast. 
+The Lord has spurned His altar, He has abandoned His sanctuary; He has given up the walls of her palaces Into the hand of the enemy. They have made a noise in the house of the Lord As on the day of a set feast. 
 
 ###### 8 
-The Lord has [^d]purposed to destroy The wall of the daughter of Zion. He has stretched out a line; He has not withdrawn His hand from destroying; Therefore He has caused the rampart and wall to lament; They languished together. 
+The Lord has purposed to destroy The wall of the daughter of Zion. He has stretched out a line; He has not withdrawn His hand from destroying; Therefore He has caused the rampart and wall to lament; They languished together. 
 
 ###### 9 
-Her gates have sunk into the ground; He has destroyed and broken her bars. Her king and her princes _are_ among the [^e]nations; The Law _is_ no _more,_ And her prophets find no [^f]vision from the Lord. 
+Her gates have sunk into the ground; He has destroyed and broken her bars. Her king and her princes _are_ among the nations; The Law _is_ no _more,_ And her prophets find no vision from the Lord. 
 
 ###### 10 
-The elders of the daughter of Zion Sit on the ground _and_ keep silence; [^g]They throw dust on their heads And gird themselves with sackcloth. The virgins of Jerusalem Bow their heads to the ground. 
+The elders of the daughter of Zion Sit on the ground _and_ keep silence; They throw dust on their heads And gird themselves with sackcloth. The virgins of Jerusalem Bow their heads to the ground. 
 
 ###### 11 
-My eyes fail with tears, My [^h]heart is troubled; My [^i]bile is poured on the ground Because of the destruction of the daughter of my people, Because the children and the infants Faint in the streets of the city. 
+My eyes fail with tears, My heart is troubled; My bile is poured on the ground Because of the destruction of the daughter of my people, Because the children and the infants Faint in the streets of the city. 
 
 ###### 12 
 They say to their mothers, "Where _is_ grain and wine?" As they swoon like the wounded In the streets of the city, As their life is poured out In their mothers' bosom. 
 
 ###### 13 
-How shall I console[^j] you? To what shall I liken you, O daughter of Jerusalem? What shall I compare with you, that I may comfort you, O virgin daughter of Zion? For your ruin _is_ spread wide as the sea; Who can heal you? 
+How shall I console you? To what shall I liken you, O daughter of Jerusalem? What shall I compare with you, that I may comfort you, O virgin daughter of Zion? For your ruin _is_ spread wide as the sea; Who can heal you? 
 
 ###### 14 
 Your prophets have seen for you False and deceptive visions; They have not uncovered your iniquity, To bring back your captives, But have envisioned for you false prophecies and delusions. 
 
 ###### 15 
-All who [^k]pass by clap _their_ hands at you; They hiss and shake their heads At the daughter of Jerusalem: "_Is_ this the city that is called 'The perfection of beauty, The joy of the whole earth'?" 
+All who pass by clap _their_ hands at you; They hiss and shake their heads At the daughter of Jerusalem: "_Is_ this the city that is called 'The perfection of beauty, The joy of the whole earth'?" 
 
 ###### 16 
 All your enemies have opened their mouth against you; They hiss and gnash _their_ teeth. They say, "We have swallowed _her_ up! Surely this _is_ the day we have waited for; We have found _it,_ we have seen _it!_" 
 
 ###### 17 
-The Lord has done what He purposed; He has fulfilled His word Which He commanded in days of old. He has thrown down and has not pitied, And He has caused an enemy to rejoice over you; He has exalted the [^l]horn of your adversaries. 
+The Lord has done what He purposed; He has fulfilled His word Which He commanded in days of old. He has thrown down and has not pitied, And He has caused an enemy to rejoice over you; He has exalted the horn of your adversaries. 
 
 ###### 18 
-Their heart cried out to the Lord, "O wall of the daughter of Zion, Let tears run down like a river day and night; Give yourself no relief; Give [^m]your eyes no rest. 
+Their heart cried out to the Lord, "O wall of the daughter of Zion, Let tears run down like a river day and night; Give yourself no relief; Give your eyes no rest. 
 
 ###### 19 
 "Arise, cry out in the night, At the beginning of the watches; Pour out your heart like water before the face of the Lord. Lift your hands toward Him For the life of your young children, Who faint from hunger at the head of every street." 
 
 ###### 20 
-"See, O Lord, and consider! To whom have You done this? Should the women eat their offspring, The children [^n]they have cuddled? Should the priest and prophet be slain In the sanctuary of the Lord? 
+"See, O Lord, and consider! To whom have You done this? Should the women eat their offspring, The children they have cuddled? Should the priest and prophet be slain In the sanctuary of the Lord? 
 
 ###### 21 
 "Young and old lie On the ground in the streets; My virgins and my young men Have fallen by the sword; You have slain _them_ in the day of Your anger, You have slaughtered _and_ not pitied. 

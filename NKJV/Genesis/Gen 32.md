@@ -13,10 +13,10 @@ next: ['Gen 33']
 So Jacob went on his way, and the angels of God met him. 
 
 ###### 2 
-When Jacob saw them, he said, "This _is_ God's camp." And he called the name of that place [^a]Mahanaim. 
+When Jacob saw them, he said, "This _is_ God's camp." And he called the name of that place Mahanaim. 
 
 ###### 3 
-Then Jacob sent messengers before him to Esau his brother in the land of Seir, the [^b]country of Edom. 
+Then Jacob sent messengers before him to Esau his brother in the land of Seir, the country of Edom. 
 
 ###### 4 
 And he commanded them, saying, "Speak thus to my lord Esau, 'Thus your servant Jacob says: "I have dwelt with Laban and stayed there until now. 
@@ -31,7 +31,7 @@ Then the messengers returned to Jacob, saying, "We came to your brother Esau, an
 So Jacob was greatly afraid and distressed; and he divided the people that _were_ with him, and the flocks and herds and camels, into two companies. 
 
 ###### 8 
-And he said, "If Esau comes to the one company and [^c]attacks it, then the other company which is left will escape." 
+And he said, "If Esau comes to the one company and attacks it, then the other company which is left will escape." 
 
 ###### 9 
 Then Jacob said, "O God of my father Abraham and God of my father Isaac, the Lord who said to me, 'Return to your country and to your family, and I will deal well with you': 
@@ -40,13 +40,13 @@ Then Jacob said, "O God of my father Abraham and God of my father Isaac, the Lor
 I am not worthy of the least of all the mercies and of all the truth which You have shown Your servant; for I crossed over this Jordan with my staff, and now I have become two companies. 
 
 ###### 11 
-Deliver me, I pray, from the hand of my brother, from the hand of Esau; for I fear him, lest he come and [^d]attack me _and_ the mother with the children. 
+Deliver me, I pray, from the hand of my brother, from the hand of Esau; for I fear him, lest he come and attack me _and_ the mother with the children. 
 
 ###### 12 
 For You said, 'I will surely treat you well, and make your descendants as the sand of the sea, which cannot be numbered for multitude.' " 
 
 ###### 13 
-So he lodged there that same night, and took what [^e]came to his hand as a present for Esau his brother: 
+So he lodged there that same night, and took what came to his hand as a present for Esau his brother: 
 
 ###### 14 
 two hundred female goats and twenty male goats, two hundred ewes and twenty rams, 
@@ -76,13 +76,13 @@ So the present went on over before him, but he himself lodged that night in the 
 And he arose that night and took his two wives, his two female servants, and his eleven sons, and crossed over the ford of Jabbok. 
 
 ###### 23 
-He took them, sent them [^f]over the brook, and sent over what he had. 
+He took them, sent them over the brook, and sent over what he had. 
 
 ###### 24 
-Then Jacob was left alone; and a Man wrestled with him until the [^g]breaking of day. 
+Then Jacob was left alone; and a Man wrestled with him until the breaking of day. 
 
 ###### 25 
-Now when He saw that He did not prevail against him, He [^h]touched the socket of his hip; and the socket of Jacob's hip was out of joint as He wrestled with him. 
+Now when He saw that He did not prevail against him, He touched the socket of his hip; and the socket of Jacob's hip was out of joint as He wrestled with him. 
 
 ###### 26 
 And He said, "Let Me go, for the day breaks." But he said, "I will not let You go unless You bless me!" 
@@ -91,16 +91,16 @@ And He said, "Let Me go, for the day breaks." But he said, "I will not let You g
 So He said to him, "What _is_ your name?" He said, "Jacob." 
 
 ###### 28 
-And He said, "Your name shall no longer be called Jacob, but [^i]Israel; for you have struggled with God and with men, and have prevailed." 
+And He said, "Your name shall no longer be called Jacob, but Israel; for you have struggled with God and with men, and have prevailed." 
 
 ###### 29 
 Then Jacob asked, saying, "Tell _me_ Your name, I pray." And He said, "Why _is_ it _that_ you ask about My name?" And He blessed him there. 
 
 ###### 30 
-So Jacob called the name of the place [^j]Peniel: "For I have seen God face to face, and my life is preserved." 
+So Jacob called the name of the place Peniel: "For I have seen God face to face, and my life is preserved." 
 
 ###### 31 
-Just as he crossed over [^k]Penuel the sun rose on him, and he limped on his hip. 
+Just as he crossed over Penuel the sun rose on him, and he limped on his hip. 
 
 ###### 32 
-Therefore to this day the children of Israel do not eat the muscle that shrank, which _is_ on the hip socket, because He [^l]touched the socket of Jacob's hip in the muscle that shrank.
+Therefore to this day the children of Israel do not eat the muscle that shrank, which _is_ on the hip socket, because He touched the socket of Jacob's hip in the muscle that shrank.

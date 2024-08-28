@@ -28,7 +28,7 @@ next: ['Rev 14']
 
 
 
-[As] [^a]I stood on the sandy beach, I saw a beast coming up out of the sea with ten horns and seven heads. On his horns he had ten royal crowns (diadems) and blasphemous titles (names) on his heads. 
+[As] I stood on the sandy beach, I saw a beast coming up out of the sea with ten horns and seven heads. On his horns he had ten royal crowns (diadems) and blasphemous titles (names) on his heads. 
 
 
 
@@ -175,7 +175,7 @@ He was further permitted to wage war on God's holy people (the saints) and to ov
 
 
 
-And all the inhabitants of the earth will fall down in adoration _and_ pay him homage, everyone whose name has not been recorded in the Book of Life of the Lamb that was slain [in sacrifice] [^b]from the foundation of the world. 
+And all the inhabitants of the earth will fall down in adoration _and_ pay him homage, everyone whose name has not been recorded in the Book of Life of the Lamb that was slain [in sacrifice] from the foundation of the world. 
 
 
 
@@ -343,7 +343,7 @@ And he is permitted [also] to impart the breath of life into the beast's image, 
 
 
 
-Also he compels all [alike], both small and great, both the rich and the poor, both free and slave, to be marked with an inscription [[^c]stamped] on their right hands or on their foreheads, 
+Also he compels all [alike], both small and great, both the rich and the poor, both free and slave, to be marked with an inscription [stamped] on their right hands or on their foreheads, 
 
 
 
@@ -385,4 +385,4 @@ So that no one will have power to buy or sell unless he bears the stamp (mark, i
 
 
 
-Here is [room for] discernment [a call for the wisdom [^d]of interpretation]. Let anyone who has intelligence (penetration and insight enough) calculate the number of the beast, for it is a human number [the number of a certain man]; his number is 666.
+Here is [room for] discernment [a call for the wisdom of interpretation]. Let anyone who has intelligence (penetration and insight enough) calculate the number of the beast, for it is a human number [the number of a certain man]; his number is 666.

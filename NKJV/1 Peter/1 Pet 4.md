@@ -10,13 +10,13 @@ next: ['1 Pet 5']
 
 
 ###### 1 
-Therefore, since Christ suffered [^a]for us in the flesh, arm yourselves also with the same mind, for he who has suffered in the flesh has ceased from sin, 
+Therefore, since Christ suffered for us in the flesh, arm yourselves also with the same mind, for he who has suffered in the flesh has ceased from sin, 
 
 ###### 2 
 that he no longer should live the rest of _his_ time in the flesh for the lusts of men, but for the will of God. 
 
 ###### 3 
-For we _have spent_ enough of our past [^b]lifetime in doing the will of the Gentiles--when we walked in lewdness, lusts, drunkenness, revelries, drinking parties, and abominable idolatries. 
+For we _have spent_ enough of our past lifetime in doing the will of the Gentiles--when we walked in lewdness, lusts, drunkenness, revelries, drinking parties, and abominable idolatries. 
 
 ###### 4 
 In regard to these, they think it strange that you do not run with _them_ in the same flood of dissipation, speaking evil of _you._ 
@@ -40,7 +40,7 @@ _Be_ hospitable to one another without grumbling.
 As each one has received a gift, minister it to one another, as good stewards of the manifold grace of God. 
 
 ###### 11 
-If anyone speaks, _let him speak_ as the [^c]oracles of God. If anyone ministers, _let him do it_ as with the ability which God supplies, that in all things God may be glorified through Jesus Christ, to whom belong the glory and the [^d]dominion forever and ever. Amen. ## Suffering for God's Glory 
+If anyone speaks, _let him speak_ as the oracles of God. If anyone ministers, _let him do it_ as with the ability which God supplies, that in all things God may be glorified through Jesus Christ, to whom belong the glory and the dominion forever and ever. Amen. ## Suffering for God's Glory 
 
 ###### 12 
 Beloved, do not think it strange concerning the fiery trial which is to try you, as though some strange thing happened to you; 
@@ -49,13 +49,13 @@ Beloved, do not think it strange concerning the fiery trial which is to try you,
 but rejoice to the extent that you partake of Christ's sufferings, that when His glory is revealed, you may also be glad with exceeding joy. 
 
 ###### 14 
-If you are [^e]reproached for the name of Christ, blessed _are you,_ for the Spirit of glory and of God rests upon you. [^f]On their part He is blasphemed, but on your part He is glorified. 
+If you are reproached for the name of Christ, blessed _are you,_ for the Spirit of glory and of God rests upon you. On their part He is blasphemed, but on your part He is glorified. 
 
 ###### 15 
-But let none of you suffer as a murderer, a thief, an evildoer, or as a [^g]busybody in other people's matters. 
+But let none of you suffer as a murderer, a thief, an evildoer, or as a busybody in other people's matters. 
 
 ###### 16 
-Yet if _anyone suffers_ as a Christian, let him not be ashamed, but let him glorify God in this [^h]matter. 
+Yet if _anyone suffers_ as a Christian, let him not be ashamed, but let him glorify God in this matter. 
 
 ###### 17 
 For the time _has come_ for judgment to begin at the house of God; and if _it begins_ with us first, what will _be_ the end of those who do not obey the gospel of God? 

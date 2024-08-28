@@ -22,7 +22,7 @@ to the Canaanites in the east and in the west, the Amorite, the Hittite, the Per
 So they went out, they and all their armies with them, _as_ many people _as_ the sand that _is_ on the seashore in multitude, with very many horses and chariots. 
 
 ###### 5 
-And when all these kings had [^a]met together, they came and camped together at the waters of Merom to fight against Israel. 
+And when all these kings had met together, they came and camped together at the waters of Merom to fight against Israel. 
 
 ###### 6 
 But the Lord said to Joshua, "Do not be afraid because of them, for tomorrow about this time I will deliver all of them slain before Israel. You shall hamstring their horses and burn their chariots with fire." 
@@ -31,7 +31,7 @@ But the Lord said to Joshua, "Do not be afraid because of them, for tomorrow abo
 So Joshua and all the people of war with him came against them suddenly by the waters of Merom, and they attacked them. 
 
 ###### 8 
-And the Lord delivered them into the hand of Israel, who defeated them and chased them to [^b]Greater Sidon, to the [^c]Brook Misrephoth, and to the Valley of Mizpah eastward; they attacked them until they left none of them remaining. 
+And the Lord delivered them into the hand of Israel, who defeated them and chased them to Greater Sidon, to the Brook Misrephoth, and to the Valley of Mizpah eastward; they attacked them until they left none of them remaining. 
 
 ###### 9 
 So Joshua did to them as the Lord had told him: he hamstrung their horses and burned their chariots with fire. 
@@ -46,19 +46,19 @@ And they struck all the people who _were_ in it with the edge of the sword, utte
 So all the cities of those kings, and all their kings, Joshua took and struck with the edge of the sword. He utterly destroyed them, as Moses the servant of the Lord had commanded. 
 
 ###### 13 
-But _as for_ the cities that stood on their [^d]mounds, Israel burned none of them, except Hazor only, _which_ Joshua burned. 
+But _as for_ the cities that stood on their mounds, Israel burned none of them, except Hazor only, _which_ Joshua burned. 
 
 ###### 14 
 And all the spoil of these cities and the livestock, the children of Israel took as booty for themselves; but they struck every man with the edge of the sword until they had destroyed them, and they left none breathing. 
 
 ###### 15 
-As the Lord had commanded Moses His servant, so Moses commanded Joshua, and so Joshua did. [^e]He left nothing undone of all that the Lord had commanded Moses. ## Summary of Joshua's Conquests 
+As the Lord had commanded Moses His servant, so Moses commanded Joshua, and so Joshua did. He left nothing undone of all that the Lord had commanded Moses. ## Summary of Joshua's Conquests 
 
 ###### 16 
-Thus Joshua took all this land: the mountain country, all the South, all the land of Goshen, the lowland, and the Jordan [^f]plain--the mountains of Israel and its lowlands, 
+Thus Joshua took all this land: the mountain country, all the South, all the land of Goshen, the lowland, and the Jordan plain--the mountains of Israel and its lowlands, 
 
 ###### 17 
-from [^g]Mount Halak and the ascent to Seir, even as far as Baal Gad in the Valley of Lebanon below Mount Hermon. He captured all their kings, and struck them down and killed them. 
+from Mount Halak and the ascent to Seir, even as far as Baal Gad in the Valley of Lebanon below Mount Hermon. He captured all their kings, and struck them down and killed them. 
 
 ###### 18 
 Joshua made war a long time with all those kings. 
@@ -67,7 +67,7 @@ Joshua made war a long time with all those kings.
 There was not a city that made peace with the children of Israel, except the Hivites, the inhabitants of Gibeon. All _the others_ they took in battle. 
 
 ###### 20 
-For it was of the Lord [^h]to harden their hearts, that they should come against Israel in battle, that He might utterly destroy them, _and_ that they might receive no mercy, but that He might destroy them, as the Lord had commanded Moses. 
+For it was of the Lord to harden their hearts, that they should come against Israel in battle, that He might utterly destroy them, _and_ that they might receive no mercy, but that He might destroy them, as the Lord had commanded Moses. 
 
 ###### 21 
 And at that time Joshua came and cut off the Anakim from the mountains: from Hebron, from Debir, from Anab, from all the mountains of Judah, and from all the mountains of Israel; Joshua utterly destroyed them with their cities. 

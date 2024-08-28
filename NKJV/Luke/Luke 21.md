@@ -13,16 +13,16 @@ next: ['Luke 22']
 And He looked up and saw the rich putting their gifts into the treasury, 
 
 ###### 2 
-and He saw also a certain poor widow putting in two mites.[^a] 
+and He saw also a certain poor widow putting in two mites. 
 
 ###### 3 
 So He said, "Truly I say to you that this poor widow has put in more than all; 
 
 ###### 4 
-for all these out of their abundance have put in offerings [^b]for God, but she out of her poverty put in all the livelihood that she had." ## Jesus Predicts the Destruction of the Temple 
+for all these out of their abundance have put in offerings for God, but she out of her poverty put in all the livelihood that she had." ## Jesus Predicts the Destruction of the Temple 
 
 ###### 5 
-Then, as some spoke of the temple, how it was [^c]adorned with beautiful stones and donations, He said, 
+Then, as some spoke of the temple, how it was adorned with beautiful stones and donations, He said, 
 
 ###### 6 
 "These things which you see--the days will come in which not _one_ stone shall be left upon another that shall not be thrown down." ## The Signs of the Times and the End of the Age 
@@ -31,7 +31,7 @@ Then, as some spoke of the temple, how it was [^c]adorned with beautiful stones 
 So they asked Him, saying, "Teacher, but when will these things be? And what sign _will there be_ when these things are about to take place?" 
 
 ###### 8 
-And He said: "Take heed that you not be deceived. For many will come in My name, saying, 'I am _He,_' and, 'The time has drawn near.' [^d]Therefore do not [^e]go after them. 
+And He said: "Take heed that you not be deceived. For many will come in My name, saying, 'I am _He,_' and, 'The time has drawn near.' Therefore do not go after them. 
 
 ###### 9 
 But when you hear of wars and commotions, do not be terrified; for these things must come to pass first, but the end _will_ not _come_ immediately." 
@@ -49,10 +49,10 @@ But before all these things, they will lay their hands on you and persecute _you
 But it will turn out for you as an occasion for testimony. 
 
 ###### 14 
-Therefore settle _it_ in your hearts not to meditate beforehand on what you will [^f]answer; 
+Therefore settle _it_ in your hearts not to meditate beforehand on what you will answer; 
 
 ###### 15 
-for I will give you a mouth and wisdom which all your adversaries will not be able to contradict or [^g]resist. 
+for I will give you a mouth and wisdom which all your adversaries will not be able to contradict or resist. 
 
 ###### 16 
 You will be betrayed even by parents and brothers, relatives and friends; and they will put _some_ of you to death. 
@@ -109,13 +109,13 @@ Assuredly, I say to you, this generation will by no means pass away till all thi
 Heaven and earth will pass away, but My words will by no means pass away. ## The Importance of Watching 
 
 ###### 34 
-"But take heed to yourselves, lest your hearts be weighed down with [^h]carousing, drunkenness, and cares of this life, and that Day come on you unexpectedly. 
+"But take heed to yourselves, lest your hearts be weighed down with carousing, drunkenness, and cares of this life, and that Day come on you unexpectedly. 
 
 ###### 35 
 For it will come as a snare on all those who dwell on the face of the whole earth. 
 
 ###### 36 
-Watch therefore, and pray always that you may [^i]be counted worthy to escape all these things that will come to pass, and to stand before the Son of Man." 
+Watch therefore, and pray always that you may be counted worthy to escape all these things that will come to pass, and to stand before the Son of Man." 
 
 ###### 37 
 And in the daytime He was teaching in the temple, but at night He went out and stayed on the mountain called Olivet. 

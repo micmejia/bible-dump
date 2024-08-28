@@ -31,25 +31,25 @@ For many will come in My name, saying, 'I am _He,_' and will deceive many.
 But when you hear of wars and rumors of wars, do not be troubled; for _such things_ must happen, but the end _is_ not yet. 
 
 ###### 8 
-For nation will rise against nation, and kingdom against kingdom. And there will be earthquakes in various places, and there will be famines [^a]and troubles. These _are_ the beginnings of [^b]sorrows. 
+For nation will rise against nation, and kingdom against kingdom. And there will be earthquakes in various places, and there will be famines and troubles. These _are_ the beginnings of sorrows. 
 
 ###### 9 
-"But watch out for yourselves, for they will deliver you up to councils, and you will be beaten in the synagogues. You will [^c]be brought before rulers and kings for My sake, for a testimony to them. 
+"But watch out for yourselves, for they will deliver you up to councils, and you will be beaten in the synagogues. You will be brought before rulers and kings for My sake, for a testimony to them. 
 
 ###### 10 
 And the gospel must first be preached to all the nations. 
 
 ###### 11 
-But when they arrest _you_ and deliver you up, do not worry beforehand, [^d]or premeditate what you will speak. But whatever is given you in that hour, speak that; for it is not you who speak, but the Holy Spirit. 
+But when they arrest _you_ and deliver you up, do not worry beforehand, or premeditate what you will speak. But whatever is given you in that hour, speak that; for it is not you who speak, but the Holy Spirit. 
 
 ###### 12 
 Now brother will betray brother to death, and a father _his_ child; and children will rise up against parents and cause them to be put to death. 
 
 ###### 13 
-And you will be hated by all for My name's sake. But he who [^e]endures to the end shall be saved. ## The Great Tribulation 
+And you will be hated by all for My name's sake. But he who endures to the end shall be saved. ## The Great Tribulation 
 
 ###### 14 
-"So when you see the 'abomination of desolation,' [^f]spoken of by Daniel the prophet, standing where it ought not" (let the reader understand), "then let those who are in Judea flee to the mountains. 
+"So when you see the 'abomination of desolation,' spoken of by Daniel the prophet, standing where it ought not" (let the reader understand), "then let those who are in Judea flee to the mountains. 
 
 ###### 15 
 Let him who is on the housetop not go down into the house, nor enter to take anything out of his house. 
@@ -73,7 +73,7 @@ And unless the Lord had shortened those days, no flesh would be saved; but for t
 "Then if anyone says to you, 'Look, here _is_ the Christ!' or, 'Look, _He is_ there!' do not believe it. 
 
 ###### 22 
-For false christs and false prophets will rise and show signs and wonders to deceive, if possible, even the [^g]elect. 
+For false christs and false prophets will rise and show signs and wonders to deceive, if possible, even the elect. 
 
 ###### 23 
 But take heed; see, I have told you all things beforehand. ## The Coming of the Son of Man 
@@ -88,13 +88,13 @@ the stars of heaven will fall, and the powers in the heavens will be shaken.
 Then they will see the Son of Man coming in the clouds with great power and glory. 
 
 ###### 27 
-And then He will send His angels, and gather together His [^h]elect from the four winds, from the farthest part of earth to the farthest part of heaven. ## The Parable of the Fig Tree 
+And then He will send His angels, and gather together His elect from the four winds, from the farthest part of earth to the farthest part of heaven. ## The Parable of the Fig Tree 
 
 ###### 28 
 "Now learn this parable from the fig tree: When its branch has already become tender, and puts forth leaves, you know that summer is near. 
 
 ###### 29 
-So you also, when you see these things happening, know that [^i]it is near--at the doors! 
+So you also, when you see these things happening, know that it is near--at the doors! 
 
 ###### 30 
 Assuredly, I say to you, this generation will by no means pass away till all these things take place. 

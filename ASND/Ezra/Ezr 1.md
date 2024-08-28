@@ -39,7 +39,7 @@ next: ['Ezr 2']
 
 
 
-Noong unang taon ng paghahari ni Cyrus sa Persia, tinupad ng Panginoon ang kanyang sinabi sa pamamagitan ni Jeremias.[^a] Hinipo niya ang puso ni Cyrus para gumawa ng isang pahayag. Isinulat ito at ipinadala sa buo niyang kaharian. 
+Noong unang taon ng paghahari ni Cyrus sa Persia, tinupad ng Panginoon ang kanyang sinabi sa pamamagitan ni Jeremias. Hinipo niya ang puso ni Cyrus para gumawa ng isang pahayag. Isinulat ito at ipinadala sa buo niyang kaharian. 
 
 
 

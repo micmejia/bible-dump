@@ -16,7 +16,7 @@ Now the boy Samuel ministered to the Lord before Eli. And the word of the Lord w
 And it came to pass at that time, while Eli _was_ lying down in his place, and when his eyes had begun to grow so dim that he could not see, 
 
 ###### 3 
-and before the lamp of God went out in the [^a]tabernacle of the Lord where the ark of God _was,_ and while Samuel was lying down, 
+and before the lamp of God went out in the tabernacle of the Lord where the ark of God _was,_ and while Samuel was lying down, 
 
 ###### 4 
 that the Lord called Samuel. And he answered, "Here I am!" 
@@ -46,13 +46,13 @@ Then the Lord said to Samuel: "Behold, I will do something in Israel at which bo
 In that day I will perform against Eli all that I have spoken concerning his house, from beginning to end. 
 
 ###### 13 
-For I have told him that I will judge his house forever for the iniquity which he knows, because his sons made themselves vile, and he did not [^b]restrain them. 
+For I have told him that I will judge his house forever for the iniquity which he knows, because his sons made themselves vile, and he did not restrain them. 
 
 ###### 14 
 And therefore I have sworn to the house of Eli that the iniquity of Eli's house shall not be atoned for by sacrifice or offering forever." 
 
 ###### 15 
-So Samuel lay down until [^c]morning, and opened the doors of the house of the Lord. And Samuel was afraid to tell Eli the vision. 
+So Samuel lay down until morning, and opened the doors of the house of the Lord. And Samuel was afraid to tell Eli the vision. 
 
 ###### 16 
 Then Eli called Samuel and said, "Samuel, my son!" He answered, "Here I am." 
@@ -64,10 +64,10 @@ And he said, "What _is_ the word that _the Lord_ spoke to you? Please do not hid
 Then Samuel told him everything, and hid nothing from him. And he said, "It _is_ the Lord. Let Him do what seems good to Him." 
 
 ###### 19 
-So Samuel grew, and the Lord was with him and let none of his words [^d]fall to the ground. 
+So Samuel grew, and the Lord was with him and let none of his words fall to the ground. 
 
 ###### 20 
-And all Israel from Dan to Beersheba knew that Samuel _had been_ [^e]established as a prophet of the Lord. 
+And all Israel from Dan to Beersheba knew that Samuel _had been_ established as a prophet of the Lord. 
 
 ###### 21 
 Then the Lord appeared again in Shiloh. For the Lord revealed Himself to Samuel in Shiloh by the word of the Lord.

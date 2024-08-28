@@ -370,7 +370,7 @@ At ang lahat ng handog na pagpaparangal, may halo man itong langis o wala ay par
 
 
 
-Ito ang mga tuntunin tungkol sa handog para sa mabuting relasyon[^a] na iniaalay sa Panginoon. 
+Ito ang mga tuntunin tungkol sa handog para sa mabuting relasyon na iniaalay sa Panginoon. 
 
 
 
@@ -667,7 +667,7 @@ Kapag ang karne ay hindi sinasadyang nadikit sa anumang bagay na itinuturing na 
 
 
 
-Pero ang sinumang itinuturing na marumi[^b] at kakain ng karneng handog para sa mabuting relasyon ay huwag ninyong ituring na kababayan. 
+Pero ang sinumang itinuturing na marumi at kakain ng karneng handog para sa mabuting relasyon ay huwag ninyong ituring na kababayan. 
 
 
 
@@ -832,7 +832,7 @@ Ang taba ng hayop na namatay o pinatay ng ibang hayop ay maaari ninyong gamitin 
 
 
 
-Ang sinumang kakain ng taba ng hayop na maaaring ihandog[^c] sa Panginoon ay huwag na ninyong ituring na kababayan. 
+Ang sinumang kakain ng taba ng hayop na maaaring ihandog sa Panginoon ay huwag na ninyong ituring na kababayan. 
 
 
 

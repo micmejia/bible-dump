@@ -28,7 +28,7 @@ Then the angel took the censer, filled it with fire from the altar, and threw _i
 So the seven angels who had the seven trumpets prepared themselves to sound. ## First Trumpet: Vegetation Struck 
 
 ###### 7 
-The first angel sounded: And hail and fire followed, mingled with blood, and they were thrown to the [^a]earth. And a third of the trees were burned up, and all green grass was burned up. ## Second Trumpet: The Seas Struck 
+The first angel sounded: And hail and fire followed, mingled with blood, and they were thrown to the earth. And a third of the trees were burned up, and all green grass was burned up. ## Second Trumpet: The Seas Struck 
 
 ###### 8 
 Then the second angel sounded: And _something_ like a great mountain burning with fire was thrown into the sea, and a third of the sea became blood. 
@@ -43,7 +43,7 @@ Then the third angel sounded: And a great star fell from heaven, burning like a 
 The name of the star is Wormwood. A third of the waters became wormwood, and many men died from the water, because it was made bitter. ## Fourth Trumpet: The Heavens Struck 
 
 ###### 12 
-Then the fourth angel sounded: And a third of the sun was struck, a third of the moon, and a third of the stars, so that a third of them were darkened. A third of the day [^b]did not shine, and likewise the night. 
+Then the fourth angel sounded: And a third of the sun was struck, a third of the moon, and a third of the stars, so that a third of them were darkened. A third of the day did not shine, and likewise the night. 
 
 ###### 13 
-And I looked, and I heard an [^c]angel flying through the midst of heaven, saying with a loud voice, "Woe, woe, woe to the inhabitants of the earth, because of the remaining blasts of the trumpet of the three angels who are about to sound!"
+And I looked, and I heard an angel flying through the midst of heaven, saying with a loud voice, "Woe, woe, woe to the inhabitants of the earth, because of the remaining blasts of the trumpet of the three angels who are about to sound!"

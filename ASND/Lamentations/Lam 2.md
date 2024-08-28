@@ -40,7 +40,7 @@ next: ['Lam 3']
 
 
 
-Sa galit ng Panginoon, tinakpan niya ng makapal na ulap ang Jerusalem.[^a] Ibinagsak niya ang karangalan ng Israel, <i class="trans-change">na parang itinapon_ mula sa langit papunta sa lupa. At dahil sa kanyang galit, pinabayaan niya ang kanyang templo sa Jerusalem. 
+Sa galit ng Panginoon, tinakpan niya ng makapal na ulap ang Jerusalem. Ibinagsak niya ang karangalan ng Israel, <i class="trans-change">na parang itinapon_ mula sa langit papunta sa lupa. At dahil sa kanyang galit, pinabayaan niya ang kanyang templo sa Jerusalem. 
 
 
 
@@ -436,7 +436,7 @@ Umiiyak silaʼt humihingi ng pagkain at maiinom sa kanilang mga ina. Nawalan sil
 
 
 
-O Jerusalem,[^b] ano pa bang masasabi ko sa iyo? Saan pa ba kita maihahambing? Kasinlalim ng dagat ang sugat mo. Paano kita maaaliw? Sino ang makapagpapagaling sa iyo? 
+O Jerusalem, ano pa bang masasabi ko sa iyo? Saan pa ba kita maihahambing? Kasinlalim ng dagat ang sugat mo. Paano kita maaaliw? Sino ang makapagpapagaling sa iyo? 
 
 
 

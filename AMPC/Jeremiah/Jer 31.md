@@ -322,7 +322,7 @@ I will satisfy fully the life of the priests with abundance [of offerings shared
 
 
 
-Thus says the Lord: A [^a]voice is heard in Ramah, lamentation and bitter weeping. Rachel is weeping for her children; she refuses to be comforted for her children, because they are no more. 
+Thus says the Lord: A voice is heard in Ramah, lamentation and bitter weeping. Rachel is weeping for her children; she refuses to be comforted for her children, because they are no more. 
 
 
 
@@ -469,7 +469,7 @@ Set up for yourselves highway markers [back to Canaan], make for yourselves guid
 
 
 
-How long will you waver _and_ hesitate [to return], O you backsliding daughter? For the Lord has created a [^b]new thing in the land [of Israel]: a female shall compass (woo, win, and protect) a man. 
+How long will you waver _and_ hesitate [to return], O you backsliding daughter? For the Lord has created a new thing in the land [of Israel]: a female shall compass (woo, win, and protect) a man. 
 
 
 
@@ -805,7 +805,7 @@ Thus says the Lord: If the heavens above can be measured and the foundations of 
 
 
 
-Behold, the days are coming, says the Lord, when the city [of Jerusalem] shall be built [again] for the Lord from the [^c]Tower of Hananel to the Corner Gate. 
+Behold, the days are coming, says the Lord, when the city [of Jerusalem] shall be built [again] for the Lord from the Tower of Hananel to the Corner Gate. 
 
 
 

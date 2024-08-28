@@ -25,7 +25,7 @@ Return, O Lord, deliver me! Oh, save me for Your mercies' sake!
 For in death _there is_ no remembrance of You; In the grave who will give You thanks? 
 
 ###### 6 
-I am weary with my groaning; [^b]All night I make my bed swim; I drench my couch with my tears. 
+I am weary with my groaning; All night I make my bed swim; I drench my couch with my tears. 
 
 ###### 7 
 My eye wastes away because of grief; It grows old because of all my enemies. 

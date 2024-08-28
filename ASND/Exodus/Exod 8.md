@@ -535,7 +535,7 @@ Pero nang makita ng Faraon na wala na ang mga palaka, nagmatigas na naman siya, 
 
 
 
-Sinabi ng Panginoon kay Moises, "Sabihin mo kay Aaron na ihampas niya ang kanyang baston sa lupa, at magiging lamok[^a] ang mga alikabok sa buong lupain ng Egipto." 
+Sinabi ng Panginoon kay Moises, "Sabihin mo kay Aaron na ihampas niya ang kanyang baston sa lupa, at magiging lamok ang mga alikabok sa buong lupain ng Egipto." 
 
 
 

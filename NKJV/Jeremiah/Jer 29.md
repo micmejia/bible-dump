@@ -13,7 +13,7 @@ next: ['Jer 30']
 Now these _are_ the words of the letter that Jeremiah the prophet sent from Jerusalem to the remainder of the elders who were carried away captive--to the priests, the prophets, and all the people whom Nebuchadnezzar had carried away captive from Jerusalem to Babylon. 
 
 ###### 2 
-(This happened after Jeconiah[^a] the king, the queen mother, the [^b]eunuchs, the princes of Judah and Jerusalem, the craftsmen, and the smiths had departed from Jerusalem.) 
+(This happened after Jeconiah the king, the queen mother, the eunuchs, the princes of Judah and Jerusalem, the craftsmen, and the smiths had departed from Jerusalem.) 
 
 ###### 3 
 _The letter was sent_ by the hand of Elasah the son of Shaphan, and Gemariah the son of Hilkiah, whom Zedekiah king of Judah sent to Babylon, to Nebuchadnezzar king of Babylon, saying, 
@@ -103,4 +103,4 @@ Then the word of the Lord came to Jeremiah, saying:
 Send to all those in captivity, saying, Thus says the Lord concerning Shemaiah the Nehelamite: Because Shemaiah has prophesied to you, and I have not sent him, and he has caused you to trust in a lie-- 
 
 ###### 32 
-therefore thus says the Lord: Behold, I will punish Shemaiah the Nehelamite and his [^c]family: he shall not have anyone to dwell among this people, nor shall he see the good that I will do for My people, says the Lord, because he has taught rebellion against the Lord.
+therefore thus says the Lord: Behold, I will punish Shemaiah the Nehelamite and his family: he shall not have anyone to dwell among this people, nor shall he see the good that I will do for My people, says the Lord, because he has taught rebellion against the Lord.

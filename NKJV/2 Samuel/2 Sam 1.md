@@ -12,7 +12,7 @@ next: ['2 Sam 2']
 Now it came to pass after the death of Saul, when David had returned from the slaughter of the Amalekites, and David had stayed two days in Ziklag, 
 
 ###### 2 
-on the third day, behold, it happened that a man came from Saul's camp with his clothes [^a]torn and dust on his head. So it was, when he came to David, that he fell to the ground and prostrated himself. 
+on the third day, behold, it happened that a man came from Saul's camp with his clothes torn and dust on his head. So it was, when he came to David, that he fell to the ground and prostrated himself. 
 
 ###### 3 
 And David said to him, "Where have you come from?" So he said to him, "I have escaped from the camp of Israel." 
@@ -33,7 +33,7 @@ Now when he looked behind him, he saw me and called to me. And I answered, 'Here
 And he said to me, 'Who _are_ you?' So I answered him, 'I _am_ an Amalekite.' 
 
 ###### 9 
-He said to me again, 'Please stand over me and kill me, for [^b]anguish has come upon me, but my life still _remains_ in me.' 
+He said to me again, 'Please stand over me and kill me, for anguish has come upon me, but my life still _remains_ in me.' 
 
 ###### 10 
 So I stood over him and killed him, because I was sure that he could not live after he had fallen. And I took the crown that _was_ on his head and the bracelet that _was_ on his arm, and have brought them here to my lord." 
@@ -60,7 +60,7 @@ So David said to him, "Your blood _is_ on your own head, for your own mouth has 
 Then David lamented with this lamentation over Saul and over Jonathan his son, 
 
 ###### 18 
-and he told _them_ to teach the children of Judah _the Song of_ the Bow; indeed _it is_ written in the Book [^c]of Jasher: 
+and he told _them_ to teach the children of Judah _the Song of_ the Bow; indeed _it is_ written in the Book of Jasher: 
 
 ###### 19 
 "The beauty of Israel is slain on your high places! How the mighty have fallen! 
@@ -69,7 +69,7 @@ and he told _them_ to teach the children of Judah _the Song of_ the Bow; indeed 
 Tell _it_ not in Gath, Proclaim _it_ not in the streets of Ashkelon-- Lest the daughters of the Philistines rejoice, Lest the daughters of the uncircumcised triumph. 
 
 ###### 21 
-"O mountains of Gilboa, _Let there be_ no dew nor rain upon you, Nor fields of offerings. For the shield of the mighty is [^d]cast away there! The shield of Saul, not anointed with oil. 
+"O mountains of Gilboa, _Let there be_ no dew nor rain upon you, Nor fields of offerings. For the shield of the mighty is cast away there! The shield of Saul, not anointed with oil. 
 
 ###### 22 
 From the blood of the slain, From the fat of the mighty, The bow of Jonathan did not turn back, And the sword of Saul did not return empty. 

@@ -19,7 +19,7 @@ when they observe your chaste conduct _accompanied_ by fear.
 Do not let your adornment be _merely_ outward--arranging the hair, wearing gold, or putting on _fine_ apparel-- 
 
 ###### 4 
-rather _let it be_ the hidden person of the heart, with the [^a]incorruptible _beauty_ of a gentle and quiet spirit, which is very precious in the sight of God. 
+rather _let it be_ the hidden person of the heart, with the incorruptible _beauty_ of a gentle and quiet spirit, which is very precious in the sight of God. 
 
 ###### 5 
 For in this manner, in former times, the holy women who trusted in God also adorned themselves, being submissive to their own husbands, 
@@ -31,13 +31,13 @@ as Sarah obeyed Abraham, calling him lord, whose daughters you are if you do goo
 Husbands, likewise, dwell with _them_ with understanding, giving honor to the wife, as to the weaker vessel, and as _being_ heirs together of the grace of life, that your prayers may not be hindered. ## Called to Blessing 
 
 ###### 8 
-Finally, all _of you be_ of one mind, having compassion for one another; love as brothers, _be_ tenderhearted, _be_ [^b]courteous; 
+Finally, all _of you be_ of one mind, having compassion for one another; love as brothers, _be_ tenderhearted, _be_ courteous; 
 
 ###### 9 
 not returning evil for evil or reviling for reviling, but on the contrary blessing, knowing that you were called to this, that you may inherit a blessing. 
 
 ###### 10 
-For "He who would love life And see good days, Let him [^c]refrain his tongue from evil, And his lips from speaking deceit. 
+For "He who would love life And see good days, Let him refrain his tongue from evil, And his lips from speaking deceit. 
 
 ###### 11 
 Let him turn away from evil and do good; Let him seek peace and pursue it. 
@@ -52,7 +52,7 @@ And who _is_ he who will harm you if you become followers of what is good?
 But even if you should suffer for righteousness' sake, _you are_ blessed. "And do not be afraid of their threats, nor be troubled." 
 
 ###### 15 
-But [^d]sanctify [^e]the Lord God in your hearts, and always _be_ ready to _give_ a defense to everyone who asks you a reason for the hope that is in you, with meekness and fear; 
+But sanctify the Lord God in your hearts, and always _be_ ready to _give_ a defense to everyone who asks you a reason for the hope that is in you, with meekness and fear; 
 
 ###### 16 
 having a good conscience, that when they defame you as evildoers, those who revile your good conduct in Christ may be ashamed. 
@@ -61,13 +61,13 @@ having a good conscience, that when they defame you as evildoers, those who revi
 For _it is_ better, if it is the will of God, to suffer for doing good than for doing evil. ## Christ's Suffering and Ours 
 
 ###### 18 
-For Christ also suffered once for sins, the just for the unjust, that He might bring [^f]us to God, being put to death in the flesh but made alive by the Spirit, 
+For Christ also suffered once for sins, the just for the unjust, that He might bring us to God, being put to death in the flesh but made alive by the Spirit, 
 
 ###### 19 
 by whom also He went and preached to the spirits in prison, 
 
 ###### 20 
-who formerly were disobedient, [^g]when once the Divine longsuffering waited in the days of Noah, while _the_ ark was being prepared, in which a few, that is, eight souls, were saved through water. 
+who formerly were disobedient, when once the Divine longsuffering waited in the days of Noah, while _the_ ark was being prepared, in which a few, that is, eight souls, were saved through water. 
 
 ###### 21 
 There is also an antitype which now saves us--baptism (not the removal of the filth of the flesh, but the answer of a good conscience toward God), through the resurrection of Jesus Christ, 

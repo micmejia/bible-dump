@@ -436,7 +436,7 @@ Pero sinabi ng Panginoon kina Moises at Aaron, "Dahil sa hindi kayo naniwala sa 
 
 
 
-Ang lugar na ito ay tinatawag na Meriba[^a] dahil nakipagtalo ang mga Israelita sa Panginoon sa lugar na ito, at dito rin ipinakita ng Panginoon ang kanyang kabanalan. ## Hindi Pinayagan ng mga taga-Edom na Dumaan ang mga Israelita 
+Ang lugar na ito ay tinatawag na Meriba dahil nakipagtalo ang mga Israelita sa Panginoon sa lugar na ito, at dito rin ipinakita ng Panginoon ang kanyang kabanalan. ## Hindi Pinayagan ng mga taga-Edom na Dumaan ang mga Israelita 
 
 
 
@@ -568,7 +568,7 @@ pero humingi kami ng tulong sa Panginoon at pinakinggan niya kami at pinadalhan 
 
 
 
-Kung maaari, payagan mo kaming dumaan sa inyong lupain. Hindi kami dadaan sa inyong mga bukid o ubasan o iinom sa inyong mga balon. Dadaan lang kami sa inyong pangunahing daan[^b] at hindi kami dadaan sa ibang mga daan hanggang sa makalabas kami sa inyong teritoryo." 
+Kung maaari, payagan mo kaming dumaan sa inyong lupain. Hindi kami dadaan sa inyong mga bukid o ubasan o iinom sa inyong mga balon. Dadaan lang kami sa inyong pangunahing daan at hindi kami dadaan sa ibang mga daan hanggang sa makalabas kami sa inyong teritoryo." 
 
 
 

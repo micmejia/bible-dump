@@ -28,7 +28,7 @@ next: ['Mark 16']
 
 
 
-And immediately when it was morning, the chief priests, with the elders and scribes and the whole council, held a consultation; and when they had bound Jesus, they took Him away [[^a]violently] and handed Him over to Pilate. 
+And immediately when it was morning, the chief priests, with the elders and scribes and the whole council, held a consultation; and when they had bound Jesus, they took Him away [violently] and handed Him over to Pilate. 
 
 
 
@@ -91,7 +91,7 @@ And the chief priests kept accusing Him of many things.
 
 
 
-And Pilate again asked Him, Have [^b]You no answer to make? See how many charges they are bringing against You! 
+And Pilate again asked Him, Have You no answer to make? See how many charges they are bringing against You! 
 
 
 
@@ -217,7 +217,7 @@ And he replied to them, Do you wish me to set free for you the King of the Jews?
 
 
 
-For he was aware that it was [[^c]because they were prompted] by envy that the chief priests had delivered Him up. 
+For he was aware that it was [because they were prompted] by envy that the chief priests had delivered Him up. 
 
 
 
@@ -301,7 +301,7 @@ And they shouted back again, Crucify Him!
 
 
 
-But Pilate said to them, Why? What has He done that is evil? But they shouted with all their might all the more, Crucify Him [[^d]at once]! 
+But Pilate said to them, Why? What has He done that is evil? But they shouted with all their might all the more, Crucify Him [at once]! 
 
 
 
@@ -595,7 +595,7 @@ And with Him they crucified two robbers, one on [His] right hand and one on His 
 
 
 
-[^e]_And the Scripture was fulfilled which says, He was counted among the transgressors_. 
+_And the Scripture was fulfilled which says, He was counted among the transgressors_. 
 
 
 
@@ -637,7 +637,7 @@ And those who passed by kept reviling Him _and_ reproaching Him abusively in har
 
 
 
-Now rescue [^f]Yourself [[^g]from death], coming down from the cross! 
+Now rescue Yourself [from death], coming down from the cross! 
 
 
 
@@ -658,7 +658,7 @@ Now rescue [^f]Yourself [[^g]from death], coming down from the cross!
 
 
 
-So also the chief priests, with the scribes, made sport of Him to one another, saying, He rescued others [[^h]from death]; Himself He is unable to rescue. 
+So also the chief priests, with the scribes, made sport of Him to one another, saying, He rescued others [from death]; Himself He is unable to rescue. 
 
 
 
@@ -721,7 +721,7 @@ And when the sixth hour (about midday) had come, there was darkness over the who
 
 
 
-And at the ninth hour Jesus cried with a loud voice, Eloi, Eloi, lama sabachthani?--which means, My God, My God, why have You forsaken Me [[^i]deserting Me and leaving Me helpless and abandoned]? 
+And at the ninth hour Jesus cried with a loud voice, Eloi, Eloi, lama sabachthani?--which means, My God, My God, why have You forsaken Me [deserting Me and leaving Me helpless and abandoned]? 
 
 
 
@@ -763,7 +763,7 @@ And some of those standing by, [and] hearing it, said, See! He is calling Elijah
 
 
 
-And one man ran, and, filling a sponge with vinegar (a [^j]mixture of sour wine and water), put it on a staff made of a [bamboo-like] reed and gave it to Him to drink, saying, Hold off! Let us see whether Elijah [does] come to take Him down. 
+And one man ran, and, filling a sponge with vinegar (a mixture of sour wine and water), put it on a staff made of a [bamboo-like] reed and gave it to Him to drink, saying, Hold off! Let us see whether Elijah [does] come to take Him down. 
 
 
 
@@ -826,7 +826,7 @@ And the curtain [of the Holy of Holies] of the temple was torn in two from top t
 
 
 
-And when the centurion who stood facing Him saw Him expire this way, he said, [^k]Really, this Man was God's Son! 
+And when the centurion who stood facing Him saw Him expire this way, he said, Really, this Man was God's Son! 
 
 
 
@@ -973,7 +973,7 @@ And when he learned from the centurion [that He was indeed dead], he gave the bo
 
 
 
-And Joseph bought a [fine] linen cloth [[^l]for swathing dead bodies], and, taking Him down from the cross, he [^m]rolled Him up in the [fine] linen cloth and placed Him in a tomb which had been hewn out of a rock. Then he rolled a [very large] stone against the door of the tomb. 
+And Joseph bought a [fine] linen cloth [for swathing dead bodies], and, taking Him down from the cross, he rolled Him up in the [fine] linen cloth and placed Him in a tomb which had been hewn out of a rock. Then he rolled a [very large] stone against the door of the tomb. 
 
 
 
@@ -994,4 +994,4 @@ And Joseph bought a [fine] linen cloth [[^l]for swathing dead bodies], and, taki
 
 
 
-And Mary Magdalene and Mary [the mother] of Joses were [[^n]attentively] observing where He was laid.
+And Mary Magdalene and Mary [the mother] of Joses were [attentively] observing where He was laid.

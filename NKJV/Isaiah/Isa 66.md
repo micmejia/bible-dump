@@ -57,13 +57,13 @@ For behold, the Lord will come with fire And with His chariots, like a whirlwind
 For by fire and by His sword The Lord will judge all flesh; And the slain of the Lord shall be many. 
 
 ###### 17 
-"Those who sanctify themselves and purify themselves, _To go_ to the gardens [^a]After an _idol_ in the midst, Eating swine's flesh and the abomination and the mouse, Shall [^b]be consumed together," says the Lord. 
+"Those who sanctify themselves and purify themselves, _To go_ to the gardens After an _idol_ in the midst, Eating swine's flesh and the abomination and the mouse, Shall be consumed together," says the Lord. 
 
 ###### 18 
 "For I _know_ their works and their thoughts. It shall be that I will gather all nations and tongues; and they shall come and see My glory. 
 
 ###### 19 
-I will set a sign among them; and those among them who escape I will send to the nations: _to_ Tarshish and [^c]Pul and Lud, who draw the bow, and Tubal and Javan, _to_ the coastlands afar off who have not heard My fame nor seen My glory. And they shall declare My glory among the Gentiles. 
+I will set a sign among them; and those among them who escape I will send to the nations: _to_ Tarshish and Pul and Lud, who draw the bow, and Tubal and Javan, _to_ the coastlands afar off who have not heard My fame nor seen My glory. And they shall declare My glory among the Gentiles. 
 
 ###### 20 
 Then they shall bring all your brethren for an offering to the Lord out of all nations, on horses and in chariots and in litters, on mules and on camels, to My holy mountain Jerusalem," says the Lord, "as the children of Israel bring an offering in a clean vessel into the house of the Lord. 

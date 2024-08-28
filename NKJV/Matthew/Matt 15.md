@@ -25,13 +25,13 @@ For God commanded, saying, 'Honor your father and your mother'; and, 'He who cur
 But you say, 'Whoever says to his father or mother, "Whatever profit you might have received from me _is_ a gift _to God_"-- 
 
 ###### 6 
-then he need not honor his father [^a]or mother.' Thus you have made the [^b]commandment of God of no effect by your tradition. 
+then he need not honor his father or mother.' Thus you have made the commandment of God of no effect by your tradition. 
 
 ###### 7 
 Hypocrites! Well did Isaiah prophesy about you, saying: 
 
 ###### 8 
-'These people [^c]draw near to Me with their mouth, And honor Me with _their_ lips, But their heart is far from Me. 
+'These people draw near to Me with their mouth, And honor Me with _their_ lips, But their heart is far from Me. 
 
 ###### 9 
 And in vain they worship Me, Teaching _as_ doctrines the commandments of men.' " 
@@ -97,10 +97,10 @@ Then Jesus answered and said to her, "O woman, great _is_ your faith! Let it be 
 Jesus departed from there, skirted the Sea of Galilee, and went up on the mountain and sat down there. 
 
 ###### 30 
-Then great multitudes came to Him, having with them _the_ lame, blind, mute, [^d]maimed, and many others; and they laid them down at Jesus' feet, and He healed them. 
+Then great multitudes came to Him, having with them _the_ lame, blind, mute, maimed, and many others; and they laid them down at Jesus' feet, and He healed them. 
 
 ###### 31 
-So the multitude marveled when they saw _the_ mute speaking, _the_ [^e]maimed made whole, _the_ lame walking, and _the_ blind seeing; and they glorified the God of Israel. ## Feeding the Four Thousand 
+So the multitude marveled when they saw _the_ mute speaking, _the_ maimed made whole, _the_ lame walking, and _the_ blind seeing; and they glorified the God of Israel. ## Feeding the Four Thousand 
 
 ###### 32 
 Now Jesus called His disciples to _Himself_ and said, "I have compassion on the multitude, because they have now continued with Me three days and have nothing to eat. And I do not want to send them away hungry, lest they faint on the way." 
@@ -124,4 +124,4 @@ So they all ate and were filled, and they took up seven large baskets full of th
 Now those who ate were four thousand men, besides women and children. 
 
 ###### 39 
-And He sent away the multitude, got into the boat, and came to the region of [^f]Magdala.
+And He sent away the multitude, got into the boat, and came to the region of Magdala.

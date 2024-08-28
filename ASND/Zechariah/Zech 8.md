@@ -40,7 +40,7 @@ next: ['Zech 9']
 
 
 
-Babalik ako sa Zion, ang <i class="trans-change">lungsod ng_ Jerusalem, at maninirahan doon. Ang Jerusalem ay tatawaging Tapat na Lungsod at ang aking bundok[^a] ay tatawaging Banal na Bundok. 
+Babalik ako sa Zion, ang <i class="trans-change">lungsod ng_ Jerusalem, at maninirahan doon. Ang Jerusalem ay tatawaging Tapat na Lungsod at ang aking bundok ay tatawaging Banal na Bundok. 
 
 
 
@@ -337,7 +337,7 @@ Ngunit ngayon, <i class="trans-change">ako,_ ang Panginoong Makapangyarihan, ay 
 
 
 
-Mapayapa kayong magtatanim.[^b] Magbubunga ang inyong mga tanim na ubas, aani ang inyong mga bukirin, at magkakaroon na ng hamog. Ibibigay ko ang lahat ng ito sa inyo na mga natira. 
+Mapayapa kayong magtatanim. Magbubunga ang inyong mga tanim na ubas, aani ang inyong mga bukirin, at magkakaroon na ng hamog. Ibibigay ko ang lahat ng ito sa inyo na mga natira. 
 
 
 
@@ -502,7 +502,7 @@ Ito ang dapat ninyong gawin: Magsabi kayo ng totoo sa isaʼt isa. Humatol kayo n
 
 
 
-Huwag kayong magbalak ng masama laban sa inyong kapwa, at huwag kayong susumpa ng kasinungalingan dahil ang lahat ng iyan ay aking kinapopootan." <sup class="versenum">18-19</sup><i class="trans-change">Muling_ sinabi ng Panginoong Makapangyarihan kay Zacarias, "Ang pag-aayuno sa ikaapat, ikalima, ikapito at ikasampung buwan ay magiging masayang araw ng pagdiriwang para sa mga taga-Juda. Kaya pahalagahan ninyo ang katotohanan at kapayapaan.[^c] 
+Huwag kayong magbalak ng masama laban sa inyong kapwa, at huwag kayong susumpa ng kasinungalingan dahil ang lahat ng iyan ay aking kinapopootan." <sup class="versenum">18-19</sup><i class="trans-change">Muling_ sinabi ng Panginoong Makapangyarihan kay Zacarias, "Ang pag-aayuno sa ikaapat, ikalima, ikapito at ikasampung buwan ay magiging masayang araw ng pagdiriwang para sa mga taga-Juda. Kaya pahalagahan ninyo ang katotohanan at kapayapaan. 
 
 
 

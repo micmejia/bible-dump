@@ -10,7 +10,7 @@ next: ['John 8']
 
 
 ###### 1 
-After these things Jesus walked in Galilee; for He did not want to walk in Judea, because the [^a]Jews sought to kill Him. 
+After these things Jesus walked in Galilee; for He did not want to walk in Judea, because the Jews sought to kill Him. 
 
 ###### 2 
 Now the Jews' Feast of Tabernacles was at hand. 
@@ -31,7 +31,7 @@ Then Jesus said to them, "My time has not yet come, but your time is always read
 The world cannot hate you, but it hates Me because I testify of it that its works are evil. 
 
 ###### 8 
-You go up to this feast. I am not [^b]yet going up to this feast, for My time has not yet fully come." 
+You go up to this feast. I am not yet going up to this feast, for My time has not yet fully come." 
 
 ###### 9 
 When He had said these things to them, He remained in Galilee. ## The Heavenly Scholar 
@@ -55,7 +55,7 @@ Now about the middle of the feast Jesus went up into the temple and taught.
 And the Jews marveled, saying, "How does this Man know letters, having never studied?" 
 
 ###### 16 
-[^c]Jesus answered them and said, "My doctrine is not Mine, but His who sent Me. 
+Jesus answered them and said, "My doctrine is not Mine, but His who sent Me. 
 
 ###### 17 
 If anyone wills to do His will, he shall know concerning the doctrine, whether it is from God or _whether_ I speak on My own _authority._ 
@@ -85,7 +85,7 @@ Do not judge according to appearance, but judge with righteous judgment." ## Cou
 Now some of them from Jerusalem said, "Is this not He whom they seek to kill? 
 
 ###### 26 
-But look! He speaks boldly, and they say nothing to Him. Do the rulers know indeed that this is [^d]truly the Christ? 
+But look! He speaks boldly, and they say nothing to Him. Do the rulers know indeed that this is truly the Christ? 
 
 ###### 27 
 However, we know where this Man is from; but when the Christ comes, no one knows where He is from." 
@@ -94,7 +94,7 @@ However, we know where this Man is from; but when the Christ comes, no one knows
 Then Jesus cried out, as He taught in the temple, saying, "You both know Me, and you know where I am from; and I have not come of Myself, but He who sent Me is true, whom you do not know. 
 
 ###### 29 
-[^e]But I know Him, for I am from Him, and He sent Me." 
+But I know Him, for I am from Him, and He sent Me." 
 
 ###### 30 
 Therefore they sought to take Him; but no one laid a hand on Him, because His hour had not yet come. 
@@ -106,7 +106,7 @@ And many of the people believed in Him, and said, "When the Christ comes, will H
 The Pharisees heard the crowd murmuring these things concerning Him, and the Pharisees and the chief priests sent officers to take Him. 
 
 ###### 33 
-Then Jesus said [^f]to them, "I shall be with you a little while longer, and _then_ I go to Him who sent Me. 
+Then Jesus said to them, "I shall be with you a little while longer, and _then_ I go to Him who sent Me. 
 
 ###### 34 
 You will seek Me and not find _Me,_ and where I am you cannot come." 
@@ -124,10 +124,10 @@ On the last day, that great _day_ of the feast, Jesus stood and cried out, sayin
 He who believes in Me, as the Scripture has said, out of his heart will flow rivers of living water." 
 
 ###### 39 
-But this He spoke concerning the Spirit, whom those [^g]believing in Him would receive; for the [^h]Holy Spirit was not yet _given,_ because Jesus was not yet glorified. ## Who Is He? 
+But this He spoke concerning the Spirit, whom those believing in Him would receive; for the Holy Spirit was not yet _given,_ because Jesus was not yet glorified. ## Who Is He? 
 
 ###### 40 
-Therefore [^i]many from the crowd, when they heard this saying, said, "Truly this is the Prophet." 
+Therefore many from the crowd, when they heard this saying, said, "Truly this is the Prophet." 
 
 ###### 41 
 Others said, "This is the Christ." But some said, "Will the Christ come out of Galilee? 
@@ -157,13 +157,13 @@ Have any of the rulers or the Pharisees believed in Him?
 But this crowd that does not know the law is accursed." 
 
 ###### 50 
-Nicodemus (he who came to [^j]Jesus [^k]by night, being one of them) said to them, 
+Nicodemus (he who came to Jesus by night, being one of them) said to them, 
 
 ###### 51 
 "Does our law judge a man before it hears him and knows what he is doing?" 
 
 ###### 52 
-They answered and said to him, "Are you also from Galilee? Search and look, for no prophet [^l]has arisen out of Galilee." ## An Adulteress Faces the Light of the World 
+They answered and said to him, "Are you also from Galilee? Search and look, for no prophet has arisen out of Galilee." ## An Adulteress Faces the Light of the World 
 
 ###### 53 
-[^m]And everyone went to his _own_ house.
+And everyone went to his _own_ house.

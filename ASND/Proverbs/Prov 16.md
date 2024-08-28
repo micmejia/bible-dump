@@ -1030,7 +1030,7 @@ Mag-ingat sa taong ngingiti-ngiti at kikindat-kindat dahil maaaring masama ang k
 
 
 
-Ang katandaan ay tanda ng karangalan[^a] na matatanggap ng taong namumuhay sa katuwiran. 
+Ang katandaan ay tanda ng karangalan na matatanggap ng taong namumuhay sa katuwiran. 
 
 
 

@@ -238,7 +238,7 @@ nakabukas ang Egipto para sa pamilya ninyo. Patirahin sila sa Goshen, na isa sa 
 
 
 
-Dinala ni Jose ang kanyang ama sa Faraon at ipinakilala. Pagkatapos, binasbasan[^a] ni Jacob ang Faraon. 
+Dinala ni Jose ang kanyang ama sa Faraon at ipinakilala. Pagkatapos, binasbasan ni Jacob ang Faraon. 
 
 
 
@@ -337,7 +337,7 @@ Sumagot siya, "130 taon. Maikli at mahirap po ang naging buhay ko rito sa lupa. 
 
 
 
-Pagkatapos, muli niyang binasbasan ang Faraon,[^b] at umalis siya sa harapan ng Faraon. 
+Pagkatapos, muli niyang binasbasan ang Faraon, at umalis siya sa harapan ng Faraon. 
 
 
 
@@ -370,7 +370,7 @@ Pagkatapos, muli niyang binasbasan ang Faraon,[^b] at umalis siya sa harapan ng 
 
 
 
-Ayon sa utos ng Faraon, inilagay ni Jose sa ayos ang kanyang ama at mga kapatid sa Egipto; ibinigay niya sa kanila ang lugar ng Rameses,[^c] na isa sa pinakamagandang lupain sa Egipto. 
+Ayon sa utos ng Faraon, inilagay ni Jose sa ayos ang kanyang ama at mga kapatid sa Egipto; ibinigay niya sa kanila ang lugar ng Rameses, na isa sa pinakamagandang lupain sa Egipto. 
 
 
 
@@ -964,7 +964,7 @@ Tumira si Jacob sa Egipto sa loob ng 17 taon, nabuhay siya hanggang 147 taon.
 
 
 
-Nang naramdaman niyang malapit na siyang mamatay, tinawag niya si Jose at sinabi, "Kung maaari, ilagay mo ang kamay mo sa pagitan ng dalawang hita[^d] ko at manumpa ka na ipagpapatuloy mo ang pagpapakita ng iyong kagandahang-loob sa akin. Huwag mo akong ilibing dito sa Egipto. 
+Nang naramdaman niyang malapit na siyang mamatay, tinawag niya si Jose at sinabi, "Kung maaari, ilagay mo ang kamay mo sa pagitan ng dalawang hita ko at manumpa ka na ipagpapatuloy mo ang pagpapakita ng iyong kagandahang-loob sa akin. Huwag mo akong ilibing dito sa Egipto. 
 
 
 

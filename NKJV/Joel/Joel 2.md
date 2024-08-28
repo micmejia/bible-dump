@@ -10,7 +10,7 @@ next: ['Joel 3']
 
 
 ###### 1 
-Blow the [^a]trumpet in Zion, And sound an alarm in My holy mountain! Let all the inhabitants of the land tremble; For the day of the Lord is coming, For it is at hand: 
+Blow the trumpet in Zion, And sound an alarm in My holy mountain! Let all the inhabitants of the land tremble; For the day of the Lord is coming, For it is at hand: 
 
 ###### 2 
 A day of darkness and gloominess, A day of clouds and thick darkness, Like the morning _clouds_ spread over the mountains. A people _come,_ great and strong, The like of whom has never been; Nor will there ever be any _such_ after them, Even for many successive generations. 
@@ -19,19 +19,19 @@ A day of darkness and gloominess, A day of clouds and thick darkness, Like the m
 A fire devours before them, And behind them a flame burns; The land _is_ like the Garden of Eden before them, And behind them a desolate wilderness; Surely nothing shall escape them. 
 
 ###### 4 
-Their appearance is like the appearance of horses; And like [^b]swift steeds, so they run. 
+Their appearance is like the appearance of horses; And like swift steeds, so they run. 
 
 ###### 5 
 With a noise like chariots Over mountaintops they leap, Like the noise of a flaming fire that devours the stubble, Like a strong people set in battle array. 
 
 ###### 6 
-Before them the people writhe in pain; All faces [^c]are drained of color. 
+Before them the people writhe in pain; All faces are drained of color. 
 
 ###### 7 
 They run like mighty men, They climb the wall like men of war; Every one marches in formation, And they do not break ranks. 
 
 ###### 8 
-They do not push one another; Every one marches in his own [^d]column. Though they lunge between the weapons, They are not [^e]cut down. 
+They do not push one another; Every one marches in his own column. Though they lunge between the weapons, They are not cut down. 
 
 ###### 9 
 They run to and fro in the city, They run on the wall; They climb into the houses, They enter at the windows like a thief. 
@@ -52,13 +52,13 @@ So rend your heart, and not your garments; Return to the Lord your God, For He _
 Who knows _if_ He will turn and relent, And leave a blessing behind Him-- A grain offering and a drink offering For the Lord your God? 
 
 ###### 15 
-Blow the [^f]trumpet in Zion, Consecrate a fast, Call a sacred assembly; 
+Blow the trumpet in Zion, Consecrate a fast, Call a sacred assembly; 
 
 ###### 16 
 Gather the people, Sanctify the congregation, Assemble the elders, Gather the children and nursing babes; Let the bridegroom go out from his chamber, And the bride from her dressing room. 
 
 ###### 17 
-Let the priests, who minister to the Lord, Weep between the porch and the altar; Let them say, "Spare Your people, O Lord, And do not give Your heritage to reproach, That the nations should [^g]rule over them. Why should they say among the peoples, 'Where _is_ their God?' " ## The Land Refreshed 
+Let the priests, who minister to the Lord, Weep between the porch and the altar; Let them say, "Spare Your people, O Lord, And do not give Your heritage to reproach, That the nations should rule over them. Why should they say among the peoples, 'Where _is_ their God?' " ## The Land Refreshed 
 
 ###### 18 
 Then the Lord will be zealous for His land, And pity His people. 
@@ -67,22 +67,22 @@ Then the Lord will be zealous for His land, And pity His people.
 The Lord will answer and say to His people, "Behold, I will send you grain and new wine and oil, And you will be satisfied by them; I will no longer make you a reproach among the nations. 
 
 ###### 20 
-"But I will remove far from you the northern _army,_ And will drive him away into a barren and desolate land, With his face toward the eastern sea And his back toward the western sea; His stench will come up, And his foul odor will rise, Because he has done [^h]monstrous things." 
+"But I will remove far from you the northern _army,_ And will drive him away into a barren and desolate land, With his face toward the eastern sea And his back toward the western sea; His stench will come up, And his foul odor will rise, Because he has done monstrous things." 
 
 ###### 21 
-Fear not, O land; Be glad and rejoice, For the Lord has done [^i]marvelous things! 
+Fear not, O land; Be glad and rejoice, For the Lord has done marvelous things! 
 
 ###### 22 
 Do not be afraid, you beasts of the field; For the open pastures are springing up, And the tree bears its fruit; The fig tree and the vine yield their strength. 
 
 ###### 23 
-Be glad then, you children of Zion, And rejoice in the Lord your God; For He has given you the [^j]former rain faithfully, And He will cause the rain to come down for you-- The former rain, And the latter rain in the first _month._ 
+Be glad then, you children of Zion, And rejoice in the Lord your God; For He has given you the former rain faithfully, And He will cause the rain to come down for you-- The former rain, And the latter rain in the first _month._ 
 
 ###### 24 
 The threshing floors shall be full of wheat, And the vats shall overflow with new wine and oil. 
 
 ###### 25 
-"So I will restore to you the years that the swarming [^k]locust has eaten, The crawling locust, The consuming locust, And the chewing locust, My great army which I sent among you. 
+"So I will restore to you the years that the swarming locust has eaten, The crawling locust, The consuming locust, And the chewing locust, My great army which I sent among you. 
 
 ###### 26 
 You shall eat in plenty and be satisfied, And praise the name of the Lord your God, Who has dealt wondrously with you; And My people shall never be put to shame. 
@@ -103,4 +103,4 @@ And also on _My_ menservants and on _My_ maidservants I will pour out My Spirit 
 The sun shall be turned into darkness, And the moon into blood, Before the coming of the great and awesome day of the Lord. 
 
 ###### 32 
-And it shall come to pass _That_ whoever calls on the name of the Lord Shall be [^l]saved. For in Mount Zion and in Jerusalem there shall be [^m]deliverance, As the Lord has said, Among the remnant whom the Lord calls.
+And it shall come to pass _That_ whoever calls on the name of the Lord Shall be saved. For in Mount Zion and in Jerusalem there shall be deliverance, As the Lord has said, Among the remnant whom the Lord calls.

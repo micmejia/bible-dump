@@ -10,10 +10,10 @@ next: ['1 Tim 3']
 
 
 ###### 1 
-Therefore I [^a]exhort first of all that supplications, prayers, intercessions, _and_ giving of thanks be made for all men, 
+Therefore I exhort first of all that supplications, prayers, intercessions, _and_ giving of thanks be made for all men, 
 
 ###### 2 
-for kings and all who are in [^b]authority, that we may lead a quiet and peaceable life in all godliness and [^c]reverence. 
+for kings and all who are in authority, that we may lead a quiet and peaceable life in all godliness and reverence. 
 
 ###### 3 
 For this _is_ good and acceptable in the sight of God our Savior, 
@@ -28,13 +28,13 @@ For _there is_ one God and one Mediator between God and men, _the_ Man Christ Je
 who gave Himself a ransom for all, to be testified in due time, 
 
 ###### 7 
-for which I was appointed a preacher and an apostle--I am speaking the truth [^d]in Christ _and_ not lying--a teacher of the Gentiles in faith and truth. ## Men and Women in the Church 
+for which I was appointed a preacher and an apostle--I am speaking the truth in Christ _and_ not lying--a teacher of the Gentiles in faith and truth. ## Men and Women in the Church 
 
 ###### 8 
 I desire therefore that the men pray everywhere, lifting up holy hands, without wrath and doubting; 
 
 ###### 9 
-in like manner also, that the women adorn themselves in modest apparel, with propriety and [^e]moderation, not with braided hair or gold or pearls or costly clothing, 
+in like manner also, that the women adorn themselves in modest apparel, with propriety and moderation, not with braided hair or gold or pearls or costly clothing, 
 
 ###### 10 
 but, which is proper for women professing godliness, with good works. 

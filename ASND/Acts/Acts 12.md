@@ -40,7 +40,7 @@ next: ['Acts 13']
 
 
 
-Nang panahong iyon, nagsimula si Haring Herodes[^a] sa pag-uusig sa ilang miyembro ng iglesya. 
+Nang panahong iyon, nagsimula si Haring Herodes sa pag-uusig sa ilang miyembro ng iglesya. 
 
 
 
@@ -403,7 +403,7 @@ Saka lang niya nalaman na hindi pala ito panaginip lang. Sinabi niya, "Totoo pal
 
 
 
-Nang maunawaan niya ang nangyari,[^b] pumunta siya sa bahay ni Maria na ina ni Juan Marcos. Maraming tao ang nagkakatipon doon at nananalangin. 
+Nang maunawaan niya ang nangyari, pumunta siya sa bahay ni Maria na ina ni Juan Marcos. Maraming tao ang nagkakatipon doon at nananalangin. 
 
 
 
@@ -832,4 +832,4 @@ Kaya patuloy na kumalat ang salita ng Dios at lalo pang dumami ang mga mananampa
 
 
 
-Samantala, bumalik sina Bernabe at Saulo sa Antioc galing sa Jerusalem[^c] matapos nilang maihatid ang tulong sa mga kapatid. Isinama rin nila si Juan Marcos.
+Samantala, bumalik sina Bernabe at Saulo sa Antioc galing sa Jerusalem matapos nilang maihatid ang tulong sa mga kapatid. Isinama rin nila si Juan Marcos.

@@ -73,7 +73,7 @@ Nanalangin si Jonas sa Panginoon na kanyang Dios sa loob ng tiyan ng isda.
 
 
 
-Sinabi niya, "Panginoon, sa paghihirap ng aking kalooban at kalagayan humingi po ako ng tulong sa inyo, at sinagot nʼyo ako. Sa bingit ng kamatayan,[^a] humingi ako ng tulong sa inyo, at pinakinggan nʼyo ako. 
+Sinabi niya, "Panginoon, sa paghihirap ng aking kalooban at kalagayan humingi po ako ng tulong sa inyo, at sinagot nʼyo ako. Sa bingit ng kamatayan, humingi ako ng tulong sa inyo, at pinakinggan nʼyo ako. 
 
 
 
@@ -238,7 +238,7 @@ Lumubog ako hanggang sa pinakailalim ng dagat, at parang ikinulong sa kailaliman
 
 
 
-Nang parang mamamatay na ako,[^b] tumawag ako sa inyo, Panginoon, at pinakinggan nʼyo ang dalangin ko roon sa inyong banal na templo. 
+Nang parang mamamatay na ako, tumawag ako sa inyo, Panginoon, at pinakinggan nʼyo ang dalangin ko roon sa inyong banal na templo. 
 
 
 

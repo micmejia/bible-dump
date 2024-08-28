@@ -370,4 +370,4 @@ Nababalot sa pilak ang haligi nito at palamuting ginto ang tumatakip dito. Ang k
 
 
 
-Lumabas kayo, kayong mga dalaga ng Jerusalem,[^a] at tingnan ninyo si Haring Solomon na may korona. Ipinutong ito sa kanya ng kanyang ina sa araw ng kanyang kasal – ang araw na buong puso niyang ikinagalak.
+Lumabas kayo, kayong mga dalaga ng Jerusalem, at tingnan ninyo si Haring Solomon na may korona. Ipinutong ito sa kanya ng kanyang ina sa araw ng kanyang kasal – ang araw na buong puso niyang ikinagalak.

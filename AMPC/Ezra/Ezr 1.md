@@ -27,7 +27,7 @@ next: ['Ezr 2']
 
 
 
-Now in the first year of [^a]Cyrus king of Persia [almost seventy years after the first Jewish captives were taken to Babylon], that the word of the Lord by the mouth of Jeremiah might begin to be accomplished, the Lord stirred up the spirit of Cyrus king of Persia so that he made a proclamation throughout all his kingdom and put it also in writing: 
+Now in the first year of Cyrus king of Persia [almost seventy years after the first Jewish captives were taken to Babylon], that the word of the Lord by the mouth of Jeremiah might begin to be accomplished, the Lord stirred up the spirit of Cyrus king of Persia so that he made a proclamation throughout all his kingdom and put it also in writing: 
 
 
 

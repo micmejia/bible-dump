@@ -25,7 +25,7 @@ If you send our brother with us, we will go down and buy you food.
 But if you will not send _him,_ we will not go down; for the man said to us, 'You shall not see my face unless your brother _is_ with you.' " 
 
 ###### 6 
-And Israel said, "Why did you deal _so_ [^a]wrongfully with me _as_ to tell the man whether you had still _another_ brother?" 
+And Israel said, "Why did you deal _so_ wrongfully with me _as_ to tell the man whether you had still _another_ brother?" 
 
 ###### 7 
 But they said, "The man asked us pointedly about ourselves and our family, saying, '_Is_ your father still alive? Have you _another_ brother?' And we told him according to these words. Could we possibly have known that he would say, 'Bring your brother down'?" 
@@ -55,13 +55,13 @@ And may God Almighty give you mercy before the man, that he may release your oth
 So the men took that present and Benjamin, and they took double money in their hand, and arose and went down to Egypt; and they stood before Joseph. 
 
 ###### 16 
-When Joseph saw Benjamin with them, he said to the steward of his house, "Take _these_ men to my home, and slaughter [^b]an animal and make ready; for _these_ men will dine with me at noon." 
+When Joseph saw Benjamin with them, he said to the steward of his house, "Take _these_ men to my home, and slaughter an animal and make ready; for _these_ men will dine with me at noon." 
 
 ###### 17 
 Then the man did as Joseph ordered, and the man brought the men into Joseph's house. 
 
 ###### 18 
-Now the men were afraid because they were brought into Joseph's house; and they said, "_It is_ because of the money, which was returned in our sacks the first time, that we are brought in, so that he may [^c]make a case against us and seize us, to take us as slaves with our donkeys." 
+Now the men were afraid because they were brought into Joseph's house; and they said, "_It is_ because of the money, which was returned in our sacks the first time, that we are brought in, so that he may make a case against us and seize us, to take us as slaves with our donkeys." 
 
 ###### 19 
 When they drew near to the steward of Joseph's house, they talked with him at the door of the house, 

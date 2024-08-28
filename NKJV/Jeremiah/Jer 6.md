@@ -28,7 +28,7 @@ Arise, and let us go by night, And let us destroy her palaces."
 For thus has the Lord of hosts said: "Cut down trees, And build a mound against Jerusalem. This _is_ the city to be punished. She _is_ full of oppression in her midst. 
 
 ###### 7 
-As a fountain [^a]wells up with water, So she wells up with her wickedness. Violence and plundering are heard in her. Before Me continually _are_ [^b]grief and wounds. 
+As a fountain wells up with water, So she wells up with her wickedness. Violence and plundering are heard in her. Before Me continually _are_ grief and wounds. 
 
 ###### 8 
 Be instructed, O Jerusalem, Lest My soul depart from you; Lest I make you desolate, A land not inhabited." 
@@ -49,7 +49,7 @@ And their houses shall be turned over to others, Fields and wives together; For 
 "Because from the least of them even to the greatest of them, Everyone _is_ given to covetousness; And from the prophet even to the priest, Everyone deals falsely. 
 
 ###### 14 
-They have also healed the [^c]hurt of My people [^d]slightly, Saying, 'Peace, peace!' When _there is_ no peace. 
+They have also healed the hurt of My people slightly, Saying, 'Peace, peace!' When _there is_ no peace. 
 
 ###### 15 
 Were they ashamed when they had committed abomination? No! They were not at all ashamed; Nor did they know how to blush. Therefore they shall fall among those who fall; At the time I punish them, They shall be cast down," says the Lord. 
@@ -79,7 +79,7 @@ Thus says the Lord: "Behold, a people comes from the north country, And a great 
 They will lay hold on bow and spear; They _are_ cruel and have no mercy; Their voice roars like the sea; And they ride on horses, As men of war set in array against you, O daughter of Zion." 
 
 ###### 24 
-We have heard the report of it; Our hands grow feeble. Anguish has taken hold of us, Pain as of a woman in [^e]labor. 
+We have heard the report of it; Our hands grow feeble. Anguish has taken hold of us, Pain as of a woman in labor. 
 
 ###### 25 
 Do not go out into the field, Nor walk by the way. Because of the sword of the enemy, Fear _is_ on every side. 

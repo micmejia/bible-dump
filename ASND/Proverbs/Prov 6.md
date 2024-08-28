@@ -535,7 +535,7 @@ Kaya biglang darating sa kanya ang kapahamakan at hindi na siya matutulungan.
 
 
 
-May mga bagay[^a] na kinamumuhian ang Panginoon: 
+May mga bagay na kinamumuhian ang Panginoon: 
 
 
 

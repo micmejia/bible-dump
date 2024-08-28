@@ -1309,7 +1309,7 @@ Also every sickness and every affliction which is not written in this Book of th
 
 
 
-And you shall be [^a]left few in number, whereas you had been as the stars of the heavens for multitude, because you would not obey the voice of the Lord your God. 
+And you shall be left few in number, whereas you had been as the stars of the heavens for multitude, because you would not obey the voice of the Lord your God. 
 
 
 
@@ -1330,7 +1330,7 @@ And you shall be [^a]left few in number, whereas you had been as the stars of th
 
 
 
-And as the Lord rejoiced over you to do you good and to multiply you, so the Lord will rejoice to bring ruin upon you and to destroy you; and you shall be [^b]plucked from the land into which you go to possess. 
+And as the Lord rejoiced over you to do you good and to multiply you, so the Lord will rejoice to bring ruin upon you and to destroy you; and you shall be plucked from the land into which you go to possess. 
 
 
 
@@ -1435,4 +1435,4 @@ In the morning you shall say, Would that it were evening! and at evening you sha
 
 
 
-And the Lord shall [^c]bring you into Egypt again with ships by the way about which I said to you, You shall never see it again. And there you shall be sold to your enemies as bondmen and bondwomen, but no man shall buy you.
+And the Lord shall bring you into Egypt again with ships by the way about which I said to you, You shall never see it again. And there you shall be sold to your enemies as bondmen and bondwomen, but no man shall buy you.

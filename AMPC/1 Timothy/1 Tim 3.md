@@ -238,7 +238,7 @@ And let them also be tried _and_ investigated _and_ proved first; then, if they 
 
 
 
-[^a][The] women likewise must be worthy of respect _and_ serious, not gossipers, but temperate _and_ self-controlled, [thoroughly] trustworthy in all things. 
+[The] women likewise must be worthy of respect _and_ serious, not gossipers, but temperate _and_ self-controlled, [thoroughly] trustworthy in all things. 
 
 
 
@@ -343,4 +343,4 @@ If I am detained, you may know how people ought to conduct themselves in the hou
 
 
 
-And great _and_ important _and_ weighty, we confess, is the hidden truth (the mystic secret) of godliness. He [[^b]God] was made visible in human flesh, justified _and_ vindicated in the [Holy] Spirit, was seen by angels, preached among the nations, believed on in the world, [and] taken up in glory.
+And great _and_ important _and_ weighty, we confess, is the hidden truth (the mystic secret) of godliness. He [God] was made visible in human flesh, justified _and_ vindicated in the [Holy] Spirit, was seen by angels, preached among the nations, believed on in the world, [and] taken up in glory.

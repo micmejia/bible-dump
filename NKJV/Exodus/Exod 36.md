@@ -10,10 +10,10 @@ next: ['Exod 37']
 
 
 ###### 1 
-"And Bezalel and Aholiab, and every gifted artisan in whom the Lord has put wisdom and understanding, to know how to do all manner of work for the service of the sanctuary,[^a] shall do according to all that the Lord has commanded." ## The People Give More than Enough 
+"And Bezalel and Aholiab, and every gifted artisan in whom the Lord has put wisdom and understanding, to know how to do all manner of work for the service of the sanctuary, shall do according to all that the Lord has commanded." ## The People Give More than Enough 
 
 ###### 2 
-Then Moses called Bezalel and Aholiab, and every gifted artisan in whose heart the Lord had put wisdom, everyone whose heart [^b]was stirred, to come and do the work. 
+Then Moses called Bezalel and Aholiab, and every gifted artisan in whose heart the Lord had put wisdom, everyone whose heart was stirred, to come and do the work. 
 
 ###### 3 
 And they received from Moses all the offering which the children of Israel had brought for the work of the service of making the sanctuary. So they continued bringing to him freewill offerings every morning. 
@@ -64,7 +64,7 @@ And he made fifty loops on the edge of the curtain that is outermost in one set,
 He also made fifty bronze clasps to couple the tent together, that it might be one. 
 
 ###### 19 
-Then he made a covering for the tent of ram skins dyed red, and a covering of [^c]badger skins above _that._ 
+Then he made a covering for the tent of ram skins dyed red, and a covering of badger skins above _that._ 
 
 ###### 20 
 For the tabernacle he made boards of acacia wood, standing upright. 
@@ -73,7 +73,7 @@ For the tabernacle he made boards of acacia wood, standing upright.
 The length of each board _was_ ten cubits, and the width of each board a cubit and a half. 
 
 ###### 22 
-Each board had two [^d]tenons for binding one to another. Thus he made for all the boards of the tabernacle. 
+Each board had two tenons for binding one to another. Thus he made for all the boards of the tabernacle. 
 
 ###### 23 
 And he made boards for the tabernacle, twenty boards for the south side. 
@@ -94,7 +94,7 @@ For the west side of the tabernacle he made six boards.
 He also made two boards for the two back corners of the tabernacle. 
 
 ###### 29 
-And they were coupled at the bottom and [^e]coupled together at the top by one ring. Thus he made both of them for the two corners. 
+And they were coupled at the bottom and coupled together at the top by one ring. Thus he made both of them for the two corners. 
 
 ###### 30 
 So there were eight boards and their sockets--sixteen sockets of silver--two sockets under each of the boards. 
@@ -118,7 +118,7 @@ And he made a veil of blue, purple, and scarlet _thread,_ and fine woven linen; 
 He made for it four pillars of acacia _wood,_ and overlaid them with gold, with their hooks of gold; and he cast four sockets of silver for them. 
 
 ###### 37 
-He also made a screen for the tabernacle door, of blue, purple, and scarlet _thread,_ and fine woven linen, made by a [^f]weaver, 
+He also made a screen for the tabernacle door, of blue, purple, and scarlet _thread,_ and fine woven linen, made by a weaver, 
 
 ###### 38 
 and its five pillars with their hooks. And he overlaid their capitals and their rings with gold, but their five sockets _were_ bronze.

@@ -16,7 +16,7 @@ Now Samson went down to Timnah, and saw a woman in Timnah of the daughters of th
 So he went up and told his father and mother, saying, "I have seen a woman in Timnah of the daughters of the Philistines; now therefore, get her for me as a wife." 
 
 ###### 3 
-Then his father and mother said to him, "_Is there_ no woman among the daughters of your brethren, or among all my people, that you must go and get a wife from the uncircumcised Philistines?" And Samson said to his father, "Get her for me, for [^a]she pleases me well." 
+Then his father and mother said to him, "_Is there_ no woman among the daughters of your brethren, or among all my people, that you must go and get a wife from the uncircumcised Philistines?" And Samson said to his father, "Get her for me, for she pleases me well." 
 
 ###### 4 
 But his father and mother did not know that it was of the Lord--that He was seeking an occasion to move against the Philistines. For at that time the Philistines had dominion over Israel. 
@@ -52,7 +52,7 @@ But if you cannot explain _it_ to me, then you shall give me thirty linen garmen
 So he said to them: "Out of the eater came something to eat, And out of the strong came something sweet." Now for three days they could not explain the riddle. 
 
 ###### 15 
-But it came to pass on the [^b]seventh day that they said to Samson's wife, "Entice your husband, that he may explain the riddle to us, or else we will burn you and your father's house with fire. Have you invited us in order to take what is ours? _Is that_ not _so?_" 
+But it came to pass on the seventh day that they said to Samson's wife, "Entice your husband, that he may explain the riddle to us, or else we will burn you and your father's house with fire. Have you invited us in order to take what is ours? _Is that_ not _so?_" 
 
 ###### 16 
 Then Samson's wife wept on him, and said, "You only hate me! You do not love me! You have posed a riddle to the sons of my people, but you have not explained _it_ to me." And he said to her, "Look, I have not explained _it_ to my father or my mother; so should I explain _it_ to you?" 

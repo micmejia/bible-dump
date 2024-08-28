@@ -436,7 +436,7 @@ Nakipag-usap agad si Festus sa mga miyembro ng kanyang korte, at pagkatapos ay s
 
 
 
-Makaraan ang ilang araw, dumating sa Cesarea si Haring Agripa[^a] at <i class="trans-change">ang kanyang kapatid na_ si Bernice dahil nais nilang dalawin si <i class="trans-change">Gobernador_ Festus. 
+Makaraan ang ilang araw, dumating sa Cesarea si Haring Agripa at <i class="trans-change">ang kanyang kapatid na_ si Bernice dahil nais nilang dalawin si <i class="trans-change">Gobernador_ Festus. 
 
 
 

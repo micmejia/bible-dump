@@ -733,7 +733,7 @@ Marami tayong mga pinaplano, ngunit ang kalooban pa rin ng Panginoon ang masusun
 
 
 
-Ang gusto natin sa isang tao ay matapat.[^a] Mas mabuti pang maging mahirap kaysa maging sinungaling. 
+Ang gusto natin sa isang tao ay matapat. Mas mabuti pang maging mahirap kaysa maging sinungaling. 
 
 
 

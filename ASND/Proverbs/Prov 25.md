@@ -799,7 +799,7 @@ Kung paanong ang hanging habagat ay nagdadala ng ulan, nagdadala naman ng galit 
 
 
 
-Mas mabuting tumira ng mag-isa sa bubungan ng bahay[^a] kaysa sa loob ng bahay na kasama ang asawang palaaway. 
+Mas mabuting tumira ng mag-isa sa bubungan ng bahay kaysa sa loob ng bahay na kasama ang asawang palaaway. 
 
 
 

@@ -28,7 +28,7 @@ next: ['John 14']
 
 
 
-[Now] before the Passover Feast began, Jesus knew (was fully aware) that the time had come for Him to leave this world _and_ return to the Father. And as He had loved those who were His own in the world, He loved them to the last _and_ [^a]to the highest degree. 
+[Now] before the Passover Feast began, Jesus knew (was fully aware) that the time had come for Him to leave this world _and_ return to the Father. And as He had loved those who were His own in the world, He loved them to the last _and_ to the highest degree. 
 
 
 
@@ -175,7 +175,7 @@ Jesus said to him, You do not understand now what I am doing, but you will under
 
 
 
-Peter said to Him, You shall never wash my feet! Jesus answered him, Unless I wash you, you have no part with ([^b]in) Me [you have no share in companionship with Me]. 
+Peter said to Him, You shall never wash my feet! Jesus answered him, Unless I wash you, you have no part with (in) Me [you have no share in companionship with Me]. 
 
 
 
@@ -364,7 +364,7 @@ I assure you, most solemnly I tell you, A servant is not greater than his master
 
 
 
-If you know these things, blessed _and_ happy _and_ [^c]to be envied are you if you practice them [if you act accordingly and really do them]. 
+If you know these things, blessed _and_ happy _and_ to be envied are you if you practice them [if you act accordingly and really do them]. 
 
 
 
@@ -385,7 +385,7 @@ If you know these things, blessed _and_ happy _and_ [^c]to be envied are you if 
 
 
 
-I am not speaking of _and_ I do not mean all of you. I know whom I have chosen; but it is that the Scripture may be fulfilled, He who eats [^d]My bread _with Me_ has raised up his heel against Me. 
+I am not speaking of _and_ I do not mean all of you. I know whom I have chosen; but it is that the Scripture may be fulfilled, He who eats My bread _with Me_ has raised up his heel against Me. 
 
 
 
@@ -574,7 +574,7 @@ Jesus answered, It is the one to whom I am going to give this morsel (bit) of fo
 
 
 
-Then after [he had taken] the bit of food, Satan entered into _and_ took possession of [Judas]. Jesus said to him, What you are going to do, do [^e]more swiftly than you seem to intend _and_ [^f]make quick work of it. 
+Then after [he had taken] the bit of food, Satan entered into _and_ took possession of [Judas]. Jesus said to him, What you are going to do, do more swiftly than you seem to intend _and_ make quick work of it. 
 
 
 

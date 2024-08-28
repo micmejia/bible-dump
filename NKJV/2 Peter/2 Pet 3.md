@@ -12,7 +12,7 @@ up: ['2 Peter']
 Beloved, I now write to you this second epistle (in _both of_ which I stir up your pure minds by way of reminder), 
 
 ###### 2 
-that you may be mindful of the words which were spoken before by the holy prophets, and of the commandment of [^a]us, the apostles of the Lord and Savior, 
+that you may be mindful of the words which were spoken before by the holy prophets, and of the commandment of us, the apostles of the Lord and Savior, 
 
 ###### 3 
 knowing this first: that scoffers will come in the last days, walking according to their own lusts, 
@@ -27,16 +27,16 @@ For this they willfully forget: that by the word of God the heavens were of old,
 by which the world _that_ then existed perished, being flooded with water. 
 
 ###### 7 
-But the heavens and the earth _which_ are now preserved by the same word, are reserved for fire until the day of judgment and [^b]perdition of ungodly men. 
+But the heavens and the earth _which_ are now preserved by the same word, are reserved for fire until the day of judgment and perdition of ungodly men. 
 
 ###### 8 
 But, beloved, do not forget this one thing, that with the Lord one day _is_ as a thousand years, and a thousand years as one day. 
 
 ###### 9 
-The Lord is not slack concerning _His_ promise, as some count slackness, but is longsuffering toward [^c]us, not willing that any should perish but that all should come to repentance. ## The Day of the Lord 
+The Lord is not slack concerning _His_ promise, as some count slackness, but is longsuffering toward us, not willing that any should perish but that all should come to repentance. ## The Day of the Lord 
 
 ###### 10 
-But the day of the Lord will come as a thief in the night, in which the heavens will pass away with a great noise, and the elements will melt with fervent heat; both the earth and the works that are in it will be [^d]burned up. 
+But the day of the Lord will come as a thief in the night, in which the heavens will pass away with a great noise, and the elements will melt with fervent heat; both the earth and the works that are in it will be burned up. 
 
 ###### 11 
 Therefore, since all these things will be dissolved, what manner _of persons_ ought you to be in holy conduct and godliness, 

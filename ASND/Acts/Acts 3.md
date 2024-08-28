@@ -205,7 +205,7 @@ Tumingin ang lalaki sa kanila na naghihintay na malimusan.
 
 
 
-Pero sinabi ni Pedro sa kanya, "Wala akong pera.[^a] Ngunit may ibibigay ako sa iyo: Sa pangalan[^b] ni Jesu-Cristo na taga-Nazaret, lumakad ka!" 
+Pero sinabi ni Pedro sa kanya, "Wala akong pera. Ngunit may ibibigay ako sa iyo: Sa pangalan ni Jesu-Cristo na taga-Nazaret, lumakad ka!" 
 
 
 
@@ -535,7 +535,7 @@ Pinatay nʼyo ang nagbibigay ng buhay, ngunit binuhay siyang muli ng Dios. At ma
 
 
 
-Ang pananampalataya kay Jesus[^c] ang siyang nagpalakas sa taong ito na inyong namukhaan at nakikita ngayon. Kayo man ay mga saksi na gumaling siya. Nangyari ito dahil sa pananampalataya kay Jesus. 
+Ang pananampalataya kay Jesus ang siyang nagpalakas sa taong ito na inyong namukhaan at nakikita ngayon. Kayo man ay mga saksi na gumaling siya. Nangyari ito dahil sa pananampalataya kay Jesus. 
 
 
 
@@ -766,7 +766,7 @@ Katulad ng sinabi ni Moises, 'Ang Panginoon na ating Dios ay magbibigay sa inyo 
 
 
 
-Ang hindi susunod sa sinasabi ng propetang ito ay ihihiwalay sa bayan ng Dios at lilipulin.'[^d] 
+Ang hindi susunod sa sinasabi ng propetang ito ay ihihiwalay sa bayan ng Dios at lilipulin.' 
 
 
 

@@ -33,7 +33,7 @@ The sons of Aaron the priest shall put fire on the altar, and lay the wood in or
 Then the priests, Aaron's sons, shall lay the parts, the head, and the fat in order on the wood that _is_ on the fire upon the altar; 
 
 ###### 9 
-but he shall wash its entrails and its legs with water. And the priest shall burn all on the altar as a burnt sacrifice, an offering made by fire, a sweet[^a] aroma to the Lord. 
+but he shall wash its entrails and its legs with water. And the priest shall burn all on the altar as a burnt sacrifice, an offering made by fire, a sweet aroma to the Lord. 
 
 ###### 10 
 'If his offering _is_ of the flocks--of the sheep or of the goats--as a burnt sacrifice, he shall bring a male without blemish. 
@@ -51,10 +51,10 @@ but he shall wash the entrails and the legs with water. Then the priest shall br
 'And if the burnt sacrifice of his offering to the Lord _is_ of birds, then he shall bring his offering of turtledoves or young pigeons. 
 
 ###### 15 
-The priest shall bring it to the altar, [^b]wring off its head, and burn _it_ on the altar; its blood shall be drained out at the side of the altar. 
+The priest shall bring it to the altar, wring off its head, and burn _it_ on the altar; its blood shall be drained out at the side of the altar. 
 
 ###### 16 
 And he shall remove its crop with its feathers and cast it beside the altar on the east side, into the place for ashes. 
 
 ###### 17 
-Then he shall split it at its wings, _but_ shall not divide _it_ completely; and the priest shall burn it on the altar, on the wood that _is_ on the fire. It _is_ a burnt sacrifice, an offering made by fire, a [^c]sweet aroma to the Lord.
+Then he shall split it at its wings, _but_ shall not divide _it_ completely; and the priest shall burn it on the altar, on the wood that _is_ on the fire. It _is_ a burnt sacrifice, an offering made by fire, a sweet aroma to the Lord.

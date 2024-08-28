@@ -172,7 +172,7 @@ Kapag siyaʼy naging makapangyarihan na, mawawasak ang kanyang kaharian at mahah
 
 
 
-"Ang hari ng timog[^a] ay magiging makapangyarihan. Pero isa sa kanyang mga heneral ay magiging mas makapangyarihan kaysa sa kanya. At sa bandang huli, ang heneral na ito ay maghahari rin at magiging makapangyarihan ang kaharian niya. 
+"Ang hari ng timog ay magiging makapangyarihan. Pero isa sa kanyang mga heneral ay magiging mas makapangyarihan kaysa sa kanya. At sa bandang huli, ang heneral na ito ay maghahari rin at magiging makapangyarihan ang kaharian niya. 
 
 
 
@@ -205,7 +205,7 @@ Kapag siyaʼy naging makapangyarihan na, mawawasak ang kanyang kaharian at mahah
 
 
 
-Pagkalipas ng ilang taon, magsasanib ang dalawang kahariang ito, dahil ipapaasawa ng hari ng timog ang anak niyang babae sa hari ng hilaga.[^b] Pero hindi magtatagal ang kapangyarihan ng babae pati ang kapangyarihan ng hari ng hilaga. Sapagkat sa panahong iyon, papatayin ang babae at ang kanyang asawaʼt anak,[^c] pati ang mga naglilingkod sa kanya.[^d] 
+Pagkalipas ng ilang taon, magsasanib ang dalawang kahariang ito, dahil ipapaasawa ng hari ng timog ang anak niyang babae sa hari ng hilaga. Pero hindi magtatagal ang kapangyarihan ng babae pati ang kapangyarihan ng hari ng hilaga. Sapagkat sa panahong iyon, papatayin ang babae at ang kanyang asawaʼt anak, pati ang mga naglilingkod sa kanya. 
 
 
 
@@ -238,7 +238,7 @@ Pagkalipas ng ilang taon, magsasanib ang dalawang kahariang ito, dahil ipapaasaw
 
 
 
-"Sa bandang huli, maghahari <i class="trans-change">sa timog_ ang kapatid ng babae. Siya ang papalit sa kanyang ama. Lulusubin niya ang mga sundalo ng hari ng hilaga at papasukin ang napapaderang lungsod[^e] nito, at magtatagumpay siya sa labanan. 
+"Sa bandang huli, maghahari <i class="trans-change">sa timog_ ang kapatid ng babae. Siya ang papalit sa kanyang ama. Lulusubin niya ang mga sundalo ng hari ng hilaga at papasukin ang napapaderang lungsod nito, at magtatagumpay siya sa labanan. 
 
 
 
@@ -535,7 +535,7 @@ Sasalakayin ng hari ng hilaga ang isa sa mga napapaderang lungsod <i class="tran
 
 
 
-Kaya gagawin ng hari ng hilaga ang anumang gusto niyang gawin at walang makapipigil sa kanya. Sasakupin niya ang magandang lupain <i class="trans-change">ng Israel_, at lubusan itong mapapasailalim sa kanyang kapangyarihan.[^f] 
+Kaya gagawin ng hari ng hilaga ang anumang gusto niyang gawin at walang makapipigil sa kanya. Sasakupin niya ang magandang lupain <i class="trans-change">ng Israel_, at lubusan itong mapapasailalim sa kanyang kapangyarihan. 
 
 
 
@@ -733,7 +733,7 @@ Kaya uuwi siya sa napapaderan niyang mga bayan. Pero matatalo siya, at iyon ang 
 
 
 
-Maraming kalabang sundalo ang kanyang papatayin, pati na ang punong pari.[^g] 
+Maraming kalabang sundalo ang kanyang papatayin, pati na ang punong pari. 
 
 
 
@@ -931,7 +931,7 @@ Papatayin siya ng sarili niyang mga tauhan. Kaya matatalo ang kanyang mga sundal
 
 
 
-Ang hari ng hilaga ay uuwi sa kanyang bayan dala ang maraming nasamsam na kayamanan mula sa digmaan. Pero bago siya umuwi, uusigin niya ang mga mamamayan ng Dios at ang kanilang relihiyon.[^h] At pagkatapos ay saka siya uuwi sa sarili niyang bayan. 
+Ang hari ng hilaga ay uuwi sa kanyang bayan dala ang maraming nasamsam na kayamanan mula sa digmaan. Pero bago siya umuwi, uusigin niya ang mga mamamayan ng Dios at ang kanilang relihiyon. At pagkatapos ay saka siya uuwi sa sarili niyang bayan. 
 
 
 
@@ -997,7 +997,7 @@ Ang hari ng hilaga ay uuwi sa kanyang bayan dala ang maraming nasamsam na kayama
 
 
 
-Sapagkat lulusubin siya ng hukbong pandagat mula sa kanluran. At dahil dito, uurong siya at babalik sa kanyang bayan. Ibubunton niya ang kanyang galit sa mga mamamayan ng Dios at sa kanilang relihiyon, pero magiging mabuti siya sa mga tumalikod sa kanilang relihiyon.[^i] 
+Sapagkat lulusubin siya ng hukbong pandagat mula sa kanluran. At dahil dito, uurong siya at babalik sa kanyang bayan. Ibubunton niya ang kanyang galit sa mga mamamayan ng Dios at sa kanilang relihiyon, pero magiging mabuti siya sa mga tumalikod sa kanilang relihiyon. 
 
 
 
@@ -1360,7 +1360,7 @@ Maraming bansa ang kanyang lulusubin, kabilang dito ang Egipto.
 
 
 
-Mapapasakanya ang mga ginto, pilak, at ang lahat ng kayamanan ng Egipto. Sasakupin din niya ang Libya at Etiopia.[^j] 
+Mapapasakanya ang mga ginto, pilak, at ang lahat ng kayamanan ng Egipto. Sasakupin din niya ang Libya at Etiopia. 
 
 
 

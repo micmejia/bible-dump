@@ -13,16 +13,16 @@ next: ['Luke 19']
 Then He spoke a parable to them, that men always ought to pray and not lose heart, 
 
 ###### 2 
-saying: "There was in a certain city a judge who did not fear God nor [^a]regard man. 
+saying: "There was in a certain city a judge who did not fear God nor regard man. 
 
 ###### 3 
-Now there was a widow in that city; and she came to him, saying, [^b]'Get justice for me from my adversary.' 
+Now there was a widow in that city; and she came to him, saying, 'Get justice for me from my adversary.' 
 
 ###### 4 
 And he would not for a while; but afterward he said within himself, 'Though I do not fear God nor regard man, 
 
 ###### 5 
-yet because this widow troubles me I will [^c]avenge her, lest by her continual coming she weary me.' " 
+yet because this widow troubles me I will avenge her, lest by her continual coming she weary me.' " 
 
 ###### 6 
 Then the Lord said, "Hear what the unjust judge said. 
@@ -49,7 +49,7 @@ I fast twice a week; I give tithes of all that I possess.'
 And the tax collector, standing afar off, would not so much as raise _his_ eyes to heaven, but beat his breast, saying, 'God, be merciful to me a sinner!' 
 
 ###### 14 
-I tell you, this man went down to his house justified _rather_ than the other; for everyone who exalts himself will be [^d]humbled, and he who humbles himself will be exalted." ## Jesus Blesses Little Children 
+I tell you, this man went down to his house justified _rather_ than the other; for everyone who exalts himself will be humbled, and he who humbles himself will be exalted." ## Jesus Blesses Little Children 
 
 ###### 15 
 Then they also brought infants to Him that He might touch them; but when the disciples saw _it,_ they rebuked them. 
@@ -91,7 +91,7 @@ And those who heard it said, "Who then can be saved?"
 But He said, "The things which are impossible with men are possible with God." 
 
 ###### 28 
-Then Peter said, "See, we have left [^e]all and followed You." 
+Then Peter said, "See, we have left all and followed You." 
 
 ###### 29 
 So He said to them, "Assuredly, I say to you, there is no one who has left house or parents or brothers or wife or children, for the sake of the kingdom of God, 
@@ -100,7 +100,7 @@ So He said to them, "Assuredly, I say to you, there is no one who has left house
 who shall not receive many times more in this present time, and in the age to come eternal life." ## Jesus a Third Time Predicts His Death and Resurrection 
 
 ###### 31 
-Then He took the twelve aside and said to them, "Behold, we are going up to Jerusalem, and all things that are written by the prophets concerning the Son of Man will be [^f]accomplished. 
+Then He took the twelve aside and said to them, "Behold, we are going up to Jerusalem, and all things that are written by the prophets concerning the Son of Man will be accomplished. 
 
 ###### 32 
 For He will be delivered to the Gentiles and will be mocked and insulted and spit upon. 

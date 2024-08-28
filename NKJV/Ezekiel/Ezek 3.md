@@ -28,7 +28,7 @@ For you _are_ not sent to a people of unfamiliar speech and of hard language, _b
 not to many people of unfamiliar speech and of hard language, whose words you cannot understand. Surely, had I sent you to them, they would have listened to you. 
 
 ###### 7 
-But the house of Israel will not listen to you, because they will not listen to Me; for all the house of Israel _are_ [^a]impudent and hard-hearted. 
+But the house of Israel will not listen to you, because they will not listen to Me; for all the house of Israel _are_ impudent and hard-hearted. 
 
 ###### 8 
 Behold, I have made your face strong against their faces, and your forehead strong against their foreheads. 
@@ -49,7 +49,7 @@ Then the Spirit lifted me up, and I heard behind me a great thunderous voice: "B
 _I_ also _heard_ the noise of the wings of the living creatures that touched one another, and the noise of the wheels beside them, and a great thunderous noise. 
 
 ###### 14 
-So the Spirit lifted me up and took me away, and I went in bitterness, in the [^b]heat of my spirit; but the hand of the Lord was strong upon me. 
+So the Spirit lifted me up and took me away, and I went in bitterness, in the heat of my spirit; but the hand of the Lord was strong upon me. 
 
 ###### 15 
 Then I came to the captives at Tel Abib, who dwelt by the River Chebar; and I sat where they sat, and remained there astonished among them seven days. ## Ezekiel Is a Watchman 
@@ -85,7 +85,7 @@ Then the Spirit entered me and set me on my feet, and spoke with me and said to 
 And you, O son of man, surely they will put ropes on you and bind you with them, so that you cannot go out among them. 
 
 ###### 26 
-I will make your tongue cling to the roof of your mouth, so that you shall be mute and not be [^c]one to rebuke them, for they _are_ a rebellious house. 
+I will make your tongue cling to the roof of your mouth, so that you shall be mute and not be one to rebuke them, for they _are_ a rebellious house. 
 
 ###### 27 
 But when I speak with you, I will open your mouth, and you shall say to them, 'Thus says the Lord God.' He who hears, let him hear; and he who refuses, let him refuse; for they _are_ a rebellious house.

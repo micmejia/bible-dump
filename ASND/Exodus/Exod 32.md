@@ -40,7 +40,7 @@ next: ['Exod 33']
 
 
 
-Nang mainip ang mga tao sa tagal ni Moises na bumaba ng bundok, nagtipon sila kay Aaron at sinabi, "Igawa mo kami ng dios[^a] na mangunguna sa amin, dahil hindi natin alam kung ano na ang nangyari kay Moises na naglabas sa atin sa Egipto." 
+Nang mainip ang mga tao sa tagal ni Moises na bumaba ng bundok, nagtipon sila kay Aaron at sinabi, "Igawa mo kami ng dios na mangunguna sa amin, dahil hindi natin alam kung ano na ang nangyari kay Moises na naglabas sa atin sa Egipto." 
 
 
 
@@ -436,7 +436,7 @@ Ano na lang po ang sasabihin ng mga Egipcio? Na kinuha po ninyo ang inyong mga m
 
 
 
-Alalahanin po ninyo ang ipinangako nʼyo sa inyong lingkod na sina Abraham, Isaac, at Jacob[^b] na pararamihin ninyo ang lahi nila na kasindami ng bituin sa langit, at ibibigay ninyo sa lahi nila ang lahat ng lupaing ipinangako ninyo sa kanila, at magiging kanila ito magpakailanman." 
+Alalahanin po ninyo ang ipinangako nʼyo sa inyong lingkod na sina Abraham, Isaac, at Jacob na pararamihin ninyo ang lahi nila na kasindami ng bituin sa langit, at ibibigay ninyo sa lahi nila ang lahat ng lupaing ipinangako ninyo sa kanila, at magiging kanila ito magpakailanman." 
 
 
 

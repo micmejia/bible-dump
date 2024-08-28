@@ -271,7 +271,7 @@ Makinig kayo! Ang matatapang nʼyong mamamayan ay humihingi ng saklolo sa mga la
 
 
 
-Wala nang dumadaan o lumalakad sa mga lansangan. Nilalabag na ang kasunduan at hindi na pinahahalagahan ang mga saksi nito.[^a] Wala nang taong iginagalang. 
+Wala nang dumadaan o lumalakad sa mga lansangan. Nilalabag na ang kasunduan at hindi na pinahahalagahan ang mga saksi nito. Wala nang taong iginagalang. 
 
 
 
@@ -370,7 +370,7 @@ Sinabi ng Panginoon, "Kikilos na ako ngayon, at dadakilain ako ng mga tao.
 
 
 
-Kayong mga taga-Asiria, walang kabuluhan ang inyong mga plano at mga ginagawa. Ang nag-aapoy ninyong galit[^b] ang tutupok sa inyo. 
+Kayong mga taga-Asiria, walang kabuluhan ang inyong mga plano at mga ginagawa. Ang nag-aapoy ninyong galit ang tutupok sa inyo. 
 
 
 
@@ -568,7 +568,7 @@ Ganyang klaseng mga tao ang <i class="trans-change">maliligtas sa kapahamakan, p
 
 
 
-<i class="trans-change">Mga Israelita,_ makikita ninyo[^c] ang isang makapangyarihang hari na namamahala sa napakalawak na kaharian. 
+<i class="trans-change">Mga Israelita,_ makikita ninyo ang isang makapangyarihang hari na namamahala sa napakalawak na kaharian. 
 
 
 
@@ -733,7 +733,7 @@ Ipapakita rito sa atin ng Panginoon na siyaʼy makapangyarihan. Ang Jerusalem ay
 
 
 
-Gagawin ito ng Panginoon dahil siya ang ating hukom, mambabatas,[^d] at hari. Siya ang magliligtas sa atin. 
+Gagawin ito ng Panginoon dahil siya ang ating hukom, mambabatas, at hari. Siya ang magliligtas sa atin. 
 
 
 

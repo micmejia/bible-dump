@@ -172,7 +172,7 @@ Nang tumayo na ang mga tao, ipinaliwanag sa kanila ang Kautusan. Ang nagpaliwana
 
 
 
-Bumasa sila mula sa Aklat ng Kautusan ng Dios at ipinaliwanag ang kahulugan nito,[^a] para maunawaan ng mga tao. 
+Bumasa sila mula sa Aklat ng Kautusan ng Dios at ipinaliwanag ang kahulugan nito, para maunawaan ng mga tao. 
 
 
 

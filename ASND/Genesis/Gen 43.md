@@ -205,7 +205,7 @@ Pero kung hindi po kayo <i class="trans-change">papayag_, hindi po kami magpapak
 
 
 
-Sinabi ni Jacob,[^a] "Bakit binigyan nʼyo ako ng malaking problema? Bakit ipinagtapat nʼyo pa sa gobernador na may isa pa kayong kapatid?" 
+Sinabi ni Jacob, "Bakit binigyan nʼyo ako ng malaking problema? Bakit ipinagtapat nʼyo pa sa gobernador na may isa pa kayong kapatid?" 
 
 
 

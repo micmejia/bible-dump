@@ -1195,4 +1195,4 @@ Nakilala ng mga taga-roon si Jesus at ipinamalita nila sa mga karatig lugar na n
 
 
 
-Nakiusap sila kay Jesus na kung maaari ay pahipuin niya ang mga may sakit kahit man lang sa laylayan[^a] ng kanyang damit. At ang lahat ng nakahipo ay gumaling.
+Nakiusap sila kay Jesus na kung maaari ay pahipuin niya ang mga may sakit kahit man lang sa laylayan ng kanyang damit. At ang lahat ng nakahipo ay gumaling.

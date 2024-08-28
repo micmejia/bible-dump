@@ -139,7 +139,7 @@ Ang mga Judio, lalo na ang mga Pariseo ay hindi kumakain nang hindi muna naghuhu
 
 
 
-Hindi rin sila kumakain ng anumang nabili sa palengke nang hindi muna nila ginagawa ang ritwal ng paglilinis.[^a] Marami pa silang mga tradisyong tulad nito, gaya ng paghuhugas ng mga kopa, pitsel at lutuang tanso. 
+Hindi rin sila kumakain ng anumang nabili sa palengke nang hindi muna nila ginagawa ang ritwal ng paglilinis. Marami pa silang mga tradisyong tulad nito, gaya ng paghuhugas ng mga kopa, pitsel at lutuang tanso. 
 
 
 
@@ -238,7 +238,7 @@ Sinagot sila ni Jesus, "Tamang-tama ang sinabi ni Isaias tungkol sa inyo na mga 
 
 
 
-Walang kabuluhan ang kanilang pagsamba sa akin dahil ang mga itinuturo nila ay mga utos lang ng tao.'[^b] 
+Walang kabuluhan ang kanilang pagsamba sa akin dahil ang mga itinuturo nila ay mga utos lang ng tao.' 
 
 
 
@@ -337,7 +337,7 @@ Sinabi pa ni Jesus, "Mahusay kayo sa pagpapawalang-bisa sa mga utos ng Dios para
 
 
 
-Halimbawa na lang, sinabi ni Moises, 'Igalang ninyo ang inyong mga magulang,'[^c] at 'Ang lumapastangan sa kanyang mga magulang ay dapat patayin.'[^d] 
+Halimbawa na lang, sinabi ni Moises, 'Igalang ninyo ang inyong mga magulang,' at 'Ang lumapastangan sa kanyang mga magulang ay dapat patayin.' 
 
 
 
@@ -1162,4 +1162,4 @@ Pinagbilinan niya ang mga tao na huwag ipamalita ang nangyari. Pero kahit pinagb
 
 
 
-Manghang-mangha ang mga tao, at sinabi nila, "Napakagaling[^e] ng ginawa niya! Kahit mga pipiʼt bingi ay nagagawa niyang pagalingin!"
+Manghang-mangha ang mga tao, at sinabi nila, "Napakagaling ng ginawa niya! Kahit mga pipiʼt bingi ay nagagawa niyang pagalingin!"

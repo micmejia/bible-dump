@@ -28,7 +28,7 @@ next: ['Num 13']
 
 
 
-Now Miriam and Aaron talked against Moses [their brother] because of his [^a]Cushite wife, for he had married a Cushite woman. 
+Now Miriam and Aaron talked against Moses [their brother] because of his Cushite wife, for he had married a Cushite woman. 
 
 
 

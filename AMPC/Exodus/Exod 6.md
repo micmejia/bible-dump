@@ -70,7 +70,7 @@ And God said to Moses, I am the Lord.
 
 
 
-I appeared to Abraham, to Isaac, and to Jacob as God Almighty [El-Shaddai], but by My [^a]name the Lord [Yahweh--the redemptive name of God] I did not make Myself known to them [in acts and great miracles]. 
+I appeared to Abraham, to Isaac, and to Jacob as God Almighty [El-Shaddai], but by My name the Lord [Yahweh--the redemptive name of God] I did not make Myself known to them [in acts and great miracles]. 
 
 
 

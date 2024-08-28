@@ -49,7 +49,7 @@ My little children, I write you these things so that you may not violate God's l
 
 
 
-And He [[^a]that same Jesus Himself] is the propitiation (the atoning sacrifice) for our sins, and not for ours alone but also for [the sins of] the whole world. 
+And He [that same Jesus Himself] is the propitiation (the atoning sacrifice) for our sins, and not for ours alone but also for [the sins of] the whole world. 
 
 
 
@@ -70,7 +70,7 @@ And He [[^a]that same Jesus Himself] is the propitiation (the atoning sacrifice)
 
 
 
-And this is how we may discern [[^b]daily, by experience] that we are coming to know Him [to perceive, recognize, understand, and become better acquainted with Him]: if we keep (bear in mind, observe, practice) His teachings (precepts, commandments). 
+And this is how we may discern [daily, by experience] that we are coming to know Him [to perceive, recognize, understand, and become better acquainted with Him]: if we keep (bear in mind, observe, practice) His teachings (precepts, commandments). 
 
 
 
@@ -91,7 +91,7 @@ And this is how we may discern [[^b]daily, by experience] that we are coming to 
 
 
 
-Whoever says, I know Him [I perceive, recognize, understand, and am acquainted with Him] but fails to keep _and_ obey His commandments (teachings) is a liar, and the Truth [[^c]of the Gospel] is not in him. 
+Whoever says, I know Him [I perceive, recognize, understand, and am acquainted with Him] but fails to keep _and_ obey His commandments (teachings) is a liar, and the Truth [of the Gospel] is not in him. 
 
 
 
@@ -133,7 +133,7 @@ But he who keeps (treasures) His Word [who bears in mind His precepts, who obser
 
 
 
-Whoever says he abides in Him ought [as [^d]a personal debt] to walk _and_ conduct himself in the same way in which He walked _and_ conducted Himself. 
+Whoever says he abides in Him ought [as a personal debt] to walk _and_ conduct himself in the same way in which He walked _and_ conducted Himself. 
 
 
 
@@ -154,7 +154,7 @@ Whoever says he abides in Him ought [as [^d]a personal debt] to walk _and_ condu
 
 
 
-Beloved, I am writing you no new commandment, but an old commandment which you have had from the beginning; the old commandment is the message which you have heard [the [^e]doctrine of salvation through Christ]. 
+Beloved, I am writing you no new commandment, but an old commandment which you have had from the beginning; the old commandment is the message which you have heard [the doctrine of salvation through Christ]. 
 
 
 
@@ -175,7 +175,7 @@ Beloved, I am writing you no new commandment, but an old commandment which you h
 
 
 
-Yet I am writing you a new commandment, which is true (is realized) in Him and in you, because the darkness ([^f]moral blindness) is clearing away and the true Light ([^g]the revelation of God in Christ) is already shining. 
+Yet I am writing you a new commandment, which is true (is realized) in Him and in you, because the darkness (moral blindness) is clearing away and the true Light (the revelation of God in Christ) is already shining. 
 
 
 
@@ -196,7 +196,7 @@ Yet I am writing you a new commandment, which is true (is realized) in Him and i
 
 
 
-Whoever says he is in the Light and [yet] hates his brother [Christian, [^h]born-again child of God his Father] is in darkness even until now. 
+Whoever says he is in the Light and [yet] hates his brother [Christian, born-again child of God his Father] is in darkness even until now. 
 
 
 
@@ -238,7 +238,7 @@ Whoever loves his brother [believer] abides (lives) in the Light, and in It _or_
 
 
 
-But he who hates (detests, despises) his brother [[^i]in Christ] is in darkness and walking (living) in the dark; he is straying _and_ does not perceive _or_ know where he is going, because the darkness has blinded his eyes. 
+But he who hates (detests, despises) his brother [in Christ] is in darkness and walking (living) in the dark; he is straying _and_ does not perceive _or_ know where he is going, because the darkness has blinded his eyes. 
 
 
 
@@ -280,7 +280,7 @@ I am writing to you, little children, because for His name's sake your sins are 
 
 
 
-I am writing to you, fathers, because you have come to know (recognize, be aware of, and understand) Him Who [has existed] from the beginning. I am writing to you, young men, because you have been victorious over the wicked [one]. I write to you, [^j]boys (lads), because you have come to know (recognize and be aware) of the Father. 
+I am writing to you, fathers, because you have come to know (recognize, be aware of, and understand) Him Who [has existed] from the beginning. I am writing to you, young men, because you have been victorious over the wicked [one]. I write to you, boys (lads), because you have come to know (recognize and be aware) of the Father. 
 
 
 
@@ -385,7 +385,7 @@ And the world passes away _and_ disappears, and with it the forbidden cravings (
 
 
 
-[^k]Boys (lads), it is the last time (hour, the end of this age). And as you have heard that the antichrist [he who will oppose Christ in the guise of Christ] is coming, even now many antichrists have arisen, which confirms our belief that it is the final (the end) time. 
+Boys (lads), it is the last time (hour, the end of this age). And as you have heard that the antichrist [he who will oppose Christ in the guise of Christ] is coming, even now many antichrists have arisen, which confirms our belief that it is the final (the end) time. 
 
 
 
@@ -469,7 +469,7 @@ I write to you not because you are ignorant _and_ do not perceive _and_ know the
 
 
 
-Who is [such a] liar as he who denies that Jesus is the Christ (the Messiah)? He is the antichrist (the antagonist of Christ), who [[^l]habitually] denies _and_ refuses to acknowledge the Father and the Son. 
+Who is [such a] liar as he who denies that Jesus is the Christ (the Messiah)? He is the antichrist (the antagonist of Christ), who [habitually] denies _and_ refuses to acknowledge the Father and the Son. 
 
 
 
@@ -490,7 +490,7 @@ Who is [such a] liar as he who denies that Jesus is the Christ (the Messiah)? He
 
 
 
-No one who [[^m]habitually] denies (disowns) the Son [^n]even has the Father. _Whoever confesses (acknowledges and has) the Son has the Father also._ 
+No one who [habitually] denies (disowns) the Son even has the Father. _Whoever confesses (acknowledges and has) the Son has the Father also._ 
 
 
 
@@ -574,7 +574,7 @@ I write this to you with reference to those who would deceive you [seduce and le
 
 
 
-But as for you, the anointing (the sacred appointment, the unction) which you received from Him abides [[^o]permanently] in you; [so] then you have no need that anyone should instruct you. But just as His anointing teaches you concerning everything and is true and is no falsehood, so you must abide in (live in, never depart from) Him [being [^p]rooted in Him, knit to Him], just as [His anointing] has taught you [to do]. 
+But as for you, the anointing (the sacred appointment, the unction) which you received from Him abides [permanently] in you; [so] then you have no need that anyone should instruct you. But just as His anointing teaches you concerning everything and is true and is no falsehood, so you must abide in (live in, never depart from) Him [being rooted in Him, knit to Him], just as [His anointing] has taught you [to do]. 
 
 
 
@@ -595,7 +595,7 @@ But as for you, the anointing (the sacred appointment, the unction) which you re
 
 
 
-And now, little children, abide (live, remain [^q]permanently) in Him, so that when He is made visible, we may have _and_ enjoy perfect confidence (boldness, assurance) and not be ashamed _and_ shrink from Him at His coming. 
+And now, little children, abide (live, remain permanently) in Him, so that when He is made visible, we may have _and_ enjoy perfect confidence (boldness, assurance) and not be ashamed _and_ shrink from Him at His coming. 
 
 
 
@@ -616,4 +616,4 @@ And now, little children, abide (live, remain [^q]permanently) in Him, so that w
 
 
 
-If you know (perceive and are sure) that He [Christ] is [absolutely] righteous [conforming to the Father's will in purpose, thought, and action], you may also know (be sure) that everyone who does righteously [and is therefore in like manner conformed to the divine will] is born (begotten) of Him [[^r]God].
+If you know (perceive and are sure) that He [Christ] is [absolutely] righteous [conforming to the Father's will in purpose, thought, and action], you may also know (be sure) that everyone who does righteously [and is therefore in like manner conformed to the divine will] is born (begotten) of Him [God].

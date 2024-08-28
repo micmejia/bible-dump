@@ -154,7 +154,7 @@ So he hurried and came down, and he received _and_ welcomed Him joyfully.
 
 
 
-And when the people saw it, they all [^a]muttered among themselves _and_ indignantly complained, He has gone in to be the guest of _and_ lodge with a man who is devoted to sin _and_ preeminently a sinner. 
+And when the people saw it, they all muttered among themselves _and_ indignantly complained, He has gone in to be the guest of _and_ lodge with a man who is devoted to sin _and_ preeminently a sinner. 
 
 
 
@@ -196,7 +196,7 @@ So then Zacchaeus stood up and solemnly declared to the Lord, See, Lord, the hal
 
 
 
-And Jesus said to him, Today is [[^b]Messianic and spiritual] salvation come to [all the members of] this household, since Zacchaeus too is a [real spiritual] son of Abraham; 
+And Jesus said to him, Today is [Messianic and spiritual] salvation come to [all the members of] this household, since Zacchaeus too is a [real spiritual] son of Abraham; 
 
 
 
@@ -280,7 +280,7 @@ He therefore said, A certain nobleman went into a distant country to obtain for 
 
 
 
-Calling ten of his [own] bond servants, he gave them ten minas [each equal to about one hundred days' wages or nearly twenty dollars] and said to them, [^c]Buy _and_ sell with these [^d]while I go _and_ then return. 
+Calling ten of his [own] bond servants, he gave them ten minas [each equal to about one hundred days' wages or nearly twenty dollars] and said to them, Buy _and_ sell with these while I go _and_ then return. 
 
 
 
@@ -322,7 +322,7 @@ But his citizens detested him and sent an embassy after him to say, We do not wa
 
 
 
-When he returned after having received the kingdom, he ordered these bond servants to whom he had given the money to be called to him, that he might know how much each one had made by [^e]buying _and_ selling. 
+When he returned after having received the kingdom, he ordered these bond servants to whom he had given the money to be called to him, that he might know how much each one had made by buying _and_ selling. 
 
 
 
@@ -427,7 +427,7 @@ And he said also to him, And you will take charge over five cities.
 
 
 
-Then another came and said, Lord, here is your mina, which I have kept laid up in a [^f]handkerchief. 
+Then another came and said, Lord, here is your mina, which I have kept laid up in a handkerchief. 
 
 
 
@@ -574,7 +574,7 @@ And [said Jesus,] I tell you that to everyone who gets _and_ has will more be gi
 
 
 
-[The indignant king ended by saying] But as for these enemies of mine who did not want me to reign over them--bring them here and [^g]slaughter them in my presence! 
+[The indignant king ended by saying] But as for these enemies of mine who did not want me to reign over them--bring them here and slaughter them in my presence! 
 
 
 
@@ -805,7 +805,7 @@ As He was approaching [the city], at the descent of the Mount of Olives, the who
 
 
 
-Crying, Blessed (celebrated with praises) is the King Who comes in the name of the Lord! Peace in heaven [[^h]freedom there from all the distresses that are experienced as the result of sin] and glory (majesty and splendor) in the highest [heaven]! 
+Crying, Blessed (celebrated with praises) is the King Who comes in the name of the Lord! Peace in heaven [freedom there from all the distresses that are experienced as the result of sin] and glory (majesty and splendor) in the highest [heaven]! 
 
 
 
@@ -868,7 +868,7 @@ He replied, I tell you that if these keep silent, the very stones will cry out.
 
 
 
-And as He approached, He saw the city, and He wept [[^i]audibly] over it, 
+And as He approached, He saw the city, and He wept [audibly] over it, 
 
 
 
@@ -889,7 +889,7 @@ And as He approached, He saw the city, and He wept [[^i]audibly] over it,
 
 
 
-Exclaiming, Would that you had known personally, even at least in this your day, the things that make for peace (for [^j]freedom from all the distresses that are experienced as the result of sin and upon which your peace--your [^k]security, safety, prosperity, and happiness--depends)! But now they are hidden from your eyes. 
+Exclaiming, Would that you had known personally, even at least in this your day, the things that make for peace (for freedom from all the distresses that are experienced as the result of sin and upon which your peace--your security, safety, prosperity, and happiness--depends)! But now they are hidden from your eyes. 
 
 
 
@@ -910,7 +910,7 @@ Exclaiming, Would that you had known personally, even at least in this your day,
 
 
 
-For a time is coming upon you when your enemies will throw up a [^l]bank [with pointed stakes] about you and surround you and shut you in on every side. 
+For a time is coming upon you when your enemies will throw up a bank [with pointed stakes] about you and surround you and shut you in on every side. 
 
 
 
@@ -931,7 +931,7 @@ For a time is coming upon you when your enemies will throw up a [^l]bank [with p
 
 
 
-And they will dash you down to the ground, you [Jerusalem] and your children within you; and they will not leave in you one stone upon another, [all] because you did not come progressively to recognize _and_ know _and_ understand [from observation and experience] the time of your visitation [that is, when God was visiting you, the time [^m]in which God showed Himself gracious toward you and offered you salvation through Christ]. 
+And they will dash you down to the ground, you [Jerusalem] and your children within you; and they will not leave in you one stone upon another, [all] because you did not come progressively to recognize _and_ know _and_ understand [from observation and experience] the time of your visitation [that is, when God was visiting you, the time in which God showed Himself gracious toward you and offered you salvation through Christ]. 
 
 
 
@@ -952,7 +952,7 @@ And they will dash you down to the ground, you [Jerusalem] and your children wit
 
 
 
-Then He went into the temple [[^n]enclosure] and began to drive out those who were selling, 
+Then He went into the temple [enclosure] and began to drive out those who were selling, 
 
 
 
@@ -973,7 +973,7 @@ Then He went into the temple [[^n]enclosure] and began to drive out those who we
 
 
 
-Telling them, It is written, My house shall be a house of prayer; but you have made it a [^o]cave of robbers. 
+Telling them, It is written, My house shall be a house of prayer; but you have made it a cave of robbers. 
 
 
 
@@ -994,7 +994,7 @@ Telling them, It is written, My house shall be a house of prayer; but you have m
 
 
 
-And He continued to teach day after day in the temple [[^p]porches and courts]. The chief priests and scribes and the leading men of the people were seeking to put Him to death, 
+And He continued to teach day after day in the temple [porches and courts]. The chief priests and scribes and the leading men of the people were seeking to put Him to death, 
 
 
 
@@ -1015,4 +1015,4 @@ And He continued to teach day after day in the temple [[^p]porches and courts]. 
 
 
 
-But they did not discover anything they could do, for all the people hung upon His words _and_ [^q]stuck by Him.
+But they did not discover anything they could do, for all the people hung upon His words _and_ stuck by Him.

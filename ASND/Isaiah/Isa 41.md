@@ -469,7 +469,7 @@ Sapagkat ako ang Panginoon na iyong Dios. Ako ang nagpapalakas sa iyo at nagsasa
 
 
 
-Kahit na maliit ka at mahina,[^a] huwag kang matatakot dahil ako mismo ang tutulong sa iyo. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito. Ako ang iyong Tagapagligtas, ang Banal na Dios ng Israel. 
+Kahit na maliit ka at mahina, huwag kang matatakot dahil ako mismo ang tutulong sa iyo. <i class="trans-change">Ako,_ ang Panginoon, ang nagsasabi nito. Ako ang iyong Tagapagligtas, ang Banal na Dios ng Israel. 
 
 
 
@@ -634,7 +634,7 @@ Paaagusin ko ang tubig sa batis, dadaloy ito sa mga tuyong burol at magkakaroon 
 
 
 
-Patutubuin ko sa ilang ang mga puno ng sedro, akasya, mirto, olibo, pino, enebro, at sipres,[^b] 
+Patutubuin ko sa ilang ang mga puno ng sedro, akasya, mirto, olibo, pino, enebro, at sipres, 
 
 
 
@@ -700,7 +700,7 @@ para makita, malaman, at maunawaan ng mga tao na ang lumikha nito ay ako, ang Pa
 
 
 
-Sinabi ng Panginoon, ang Hari ng Israel,[^c] <i class="trans-change">sa mga dios-diosan,_ "Sige, magreklamo kayo at mangatuwiran! <sup class="versenum">22-23</sup>Lumapit kayo at sabihin sa amin kung ano ang mga mangyayari sa hinaharap. Sabihin ninyo sa amin ang mga sinabi nʼyo noon na mangyayari para malaman namin kung nangyari nga ito. Sabihin ninyo sa amin kung ano ang mangyayari sa hinaharap para malaman namin na kayo ngaʼy mga dios. Gumawa kayo ng mabuti o ng masama para kami ay magtaka at matakot sa inyo. 
+Sinabi ng Panginoon, ang Hari ng Israel, <i class="trans-change">sa mga dios-diosan,_ "Sige, magreklamo kayo at mangatuwiran! <sup class="versenum">22-23</sup>Lumapit kayo at sabihin sa amin kung ano ang mga mangyayari sa hinaharap. Sabihin ninyo sa amin ang mga sinabi nʼyo noon na mangyayari para malaman namin kung nangyari nga ito. Sabihin ninyo sa amin kung ano ang mangyayari sa hinaharap para malaman namin na kayo ngaʼy mga dios. Gumawa kayo ng mabuti o ng masama para kami ay magtaka at matakot sa inyo. 
 
 
 
@@ -766,7 +766,7 @@ Pero ang totoo, wala kayong silbi at wala kayong magagawa. Kasuklam-suklam ang m
 
 
 
-Pinili ko ang taong mula sa hilaga para mamahala. Dumudulog siya sa akin, at ngayon ay darating siya mula sa silangan. Wawasakin niya ang mga namamahala katulad ng pagyapak ng magpapalayok sa putik[^d] na gagawin niyang palayok. 
+Pinili ko ang taong mula sa hilaga para mamahala. Dumudulog siya sa akin, at ngayon ay darating siya mula sa silangan. Wawasakin niya ang mga namamahala katulad ng pagyapak ng magpapalayok sa putik na gagawin niyang palayok. 
 
 
 

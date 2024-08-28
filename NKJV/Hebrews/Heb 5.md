@@ -13,7 +13,7 @@ next: ['Heb 6']
 For every high priest taken from among men is appointed for men in things _pertaining_ to God, that he may offer both gifts and sacrifices for sins. 
 
 ###### 2 
-He can [^a]have compassion on those who are ignorant and going astray, since he himself is also subject to weakness. 
+He can have compassion on those who are ignorant and going astray, since he himself is also subject to weakness. 
 
 ###### 3 
 Because of this he is required as for the people, so also for himself, to offer _sacrifices_ for sins. 
@@ -43,10 +43,10 @@ called by God as High Priest "according to the order of Melchizedek,"
 of whom we have much to say, and hard to explain, since you have become dull of hearing. ## Spiritual Immaturity 
 
 ###### 12 
-For though by this time you ought to be teachers, you need _someone_ to teach you again the first principles of the [^b]oracles of God; and you have come to need milk and not solid food. 
+For though by this time you ought to be teachers, you need _someone_ to teach you again the first principles of the oracles of God; and you have come to need milk and not solid food. 
 
 ###### 13 
 For everyone who partakes _only_ of milk _is_ unskilled in the word of righteousness, for he is a babe. 
 
 ###### 14 
-But solid food belongs to those who are [^c]of full age, _that is,_ those who by reason of [^d]use have their senses exercised to discern both good and evil.
+But solid food belongs to those who are of full age, _that is,_ those who by reason of use have their senses exercised to discern both good and evil.

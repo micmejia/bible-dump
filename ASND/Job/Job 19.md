@@ -436,7 +436,7 @@ Labis ang galit niya sa akin at itinuring niya akong kaaway.
 
 
 
-"Inilayo niya sa akin ang aking mga kamag-anak;[^a] at nilayuan na ako ng aking mga kakilala. 
+"Inilayo niya sa akin ang aking mga kamag-anak; at nilayuan na ako ng aking mga kakilala. 
 
 
 
@@ -601,7 +601,7 @@ Ang asawa koʼy nababahuan sa hininga ko at ang mga kapatid kong lalaki ay nandi
 
 
 
-Hinahamak ako kahit ng mga batang paslit. Kapag nakikita nila ako,[^b] pinagtatawanan nila ako. 
+Hinahamak ako kahit ng mga batang paslit. Kapag nakikita nila ako, pinagtatawanan nila ako. 
 
 
 
@@ -865,7 +865,7 @@ o di kayaʼy iniukit ito sa bato para hindi mabura magpakailanman.
 
 
 
-Pagkaalis ko sa katawang ito at mabulok ang mga laman ko, makikita ko <i class="trans-change">na_ ang Dios.[^c] 
+Pagkaalis ko sa katawang ito at mabulok ang mga laman ko, makikita ko <i class="trans-change">na_ ang Dios. 
 
 
 

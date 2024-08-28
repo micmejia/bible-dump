@@ -304,7 +304,7 @@ Ang sinasabi kong ito ay hindi lamang opinyon ng tao, kundi itinuturo mismo ng K
 
 
 
-Sapagkat nasusulat sa Kautusan ni Moises, "Huwag mong bubusalan ang baka habang gumigiik."[^a] Ang mga baka lamang ba ang tinutukoy dito ng Dios? 
+Sapagkat nasusulat sa Kautusan ni Moises, "Huwag mong bubusalan ang baka habang gumigiik." Ang mga baka lamang ba ang tinutukoy dito ng Dios? 
 
 
 
@@ -502,7 +502,7 @@ Sa ganito rin namang paraan, iniutos ng Panginoon na ang mga tumanggap ng Magand
 
 
 
-Ngunit hindi ko ginamit ang karapatan kong iyan. At hindi ako sumusulat sa inyo upang magbigay kayo sa akin ng tulong. Mas gugustuhin ko pang mamatay kaysa sa maalis ang karapatan kong ipagmalaki ito.[^b] 
+Ngunit hindi ko ginamit ang karapatan kong iyan. At hindi ako sumusulat sa inyo upang magbigay kayo sa akin ng tulong. Mas gugustuhin ko pang mamatay kaysa sa maalis ang karapatan kong ipagmalaki ito. 
 
 
 

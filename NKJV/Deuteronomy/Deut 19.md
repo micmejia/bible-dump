@@ -19,7 +19,7 @@ you shall separate three cities for yourself in the midst of your land which the
 You shall prepare roads for yourself, and divide into three parts the territory of your land which the Lord your God is giving you to inherit, that any manslayer may flee there. 
 
 ###### 4 
-"And this _is_ the case of the manslayer who flees there, that he may live: Whoever kills his neighbor [^a]unintentionally, not having hated him in time past-- 
+"And this _is_ the case of the manslayer who flees there, that he may live: Whoever kills his neighbor unintentionally, not having hated him in time past-- 
 
 ###### 5 
 as when _a man_ goes to the woods with his neighbor to cut timber, and his hand swings a stroke with the ax to cut down the tree, and the head slips from the handle and strikes his neighbor so that he dies--he shall flee to one of these cities and live; 
@@ -46,7 +46,7 @@ lest innocent blood be shed in the midst of your land which the Lord your God is
 then the elders of his city shall send and bring him from there, and deliver him over to the hand of the avenger of blood, that he may die. 
 
 ###### 13 
-Your eye shall not pity him, but you shall [^b]put away _the guilt of_ innocent blood from Israel, that it may go well with you. ## Property Boundaries 
+Your eye shall not pity him, but you shall put away _the guilt of_ innocent blood from Israel, that it may go well with you. ## Property Boundaries 
 
 ###### 14 
 "You shall not remove your neighbor's landmark, which the men of old have set, in your inheritance which you will inherit in the land that the Lord your God is giving you to possess. ## The Law Concerning Witnesses 

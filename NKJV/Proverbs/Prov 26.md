@@ -37,7 +37,7 @@ Like one who binds a stone in a sling _Is_ he who gives honor to a fool.
 _Like_ a thorn _that_ goes into the hand of a drunkard _Is_ a proverb in the mouth of fools. 
 
 ###### 10 
-[^a]The great _God_ who formed everything Gives the fool _his_ hire and the transgressor _his_ wages. 
+The great _God_ who formed everything Gives the fool _his_ hire and the transgressor _his_ wages. 
 
 ###### 11 
 As a dog returns to his own vomit, _So_ a fool repeats his folly. 
@@ -46,13 +46,13 @@ As a dog returns to his own vomit, _So_ a fool repeats his folly.
 Do you see a man wise in his own eyes? _There is_ more hope for a fool than for him. 
 
 ###### 13 
-The lazy _man_ says, "_There is_ a lion in the road! A fierce lion _is_ in the [^b]streets!" 
+The lazy _man_ says, "_There is_ a lion in the road! A fierce lion _is_ in the streets!" 
 
 ###### 14 
 _As_ a door turns on its hinges, So _does_ the lazy _man_ on his bed. 
 
 ###### 15 
-The lazy _man_ buries his hand in the [^c]bowl; It wearies him to bring it back to his mouth. 
+The lazy _man_ buries his hand in the bowl; It wearies him to bring it back to his mouth. 
 
 ###### 16 
 The lazy _man is_ wiser in his own eyes Than seven men who can answer sensibly. 
@@ -67,13 +67,13 @@ Like a madman who throws firebrands, arrows, and death,
 _Is_ the man _who_ deceives his neighbor, And says, "I was only joking!" 
 
 ###### 20 
-Where _there is_ no wood, the fire goes out; And where _there is_ no [^d]talebearer, strife ceases. 
+Where _there is_ no wood, the fire goes out; And where _there is_ no talebearer, strife ceases. 
 
 ###### 21 
 _As_ charcoal _is_ to burning coals, and wood to fire, So _is_ a contentious man to kindle strife. 
 
 ###### 22 
-The words of a [^e]talebearer _are_ like [^f]tasty trifles, And they go down into the [^g]inmost body. 
+The words of a talebearer _are_ like tasty trifles, And they go down into the inmost body. 
 
 ###### 23 
 Fervent lips with a wicked heart _Are like_ earthenware covered with silver dross. 
@@ -82,7 +82,7 @@ Fervent lips with a wicked heart _Are like_ earthenware covered with silver dros
 He who hates, disguises _it_ with his lips, And lays up deceit within himself; 
 
 ###### 25 
-When [^h]he speaks kindly, do not believe him, For _there are_ seven abominations in his heart; 
+When he speaks kindly, do not believe him, For _there are_ seven abominations in his heart; 
 
 ###### 26 
 _Though his_ hatred is covered by deceit, His wickedness will be revealed before the assembly. 

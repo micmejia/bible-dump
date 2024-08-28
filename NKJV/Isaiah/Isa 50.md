@@ -31,7 +31,7 @@ I gave My back to those who struck _Me,_ And My cheeks to those who plucked out 
 "For the Lord God will help Me; Therefore I will not be disgraced; Therefore I have set My face like a flint, And I know that I will not be ashamed. 
 
 ###### 8 
-_He is_ near who justifies Me; Who will contend with Me? Let us stand together. Who _is_ [^a]My adversary? Let him come near Me. 
+_He is_ near who justifies Me; Who will contend with Me? Let us stand together. Who _is_ My adversary? Let him come near Me. 
 
 ###### 9 
 Surely the Lord God will help Me; Who _is_ he _who_ will condemn Me? Indeed they will all grow old like a garment; The moth will eat them up. 

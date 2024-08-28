@@ -40,7 +40,7 @@ Then He gave him the covenant of circumcision; and so _Abraham_ begot Isaac and 
 and delivered him out of all his troubles, and gave him favor and wisdom in the presence of Pharaoh, king of Egypt; and he made him governor over Egypt and all his house. 
 
 ###### 11 
-Now a famine and great [^a]trouble came over all the land of Egypt and Canaan, and our fathers found no sustenance. 
+Now a famine and great trouble came over all the land of Egypt and Canaan, and our fathers found no sustenance. 
 
 ###### 12 
 But when Jacob heard that there was grain in Egypt, he sent out our fathers first. 
@@ -49,7 +49,7 @@ But when Jacob heard that there was grain in Egypt, he sent out our fathers firs
 And the second _time_ Joseph was made known to his brothers, and Joseph's family became known to the Pharaoh. 
 
 ###### 14 
-Then Joseph sent and called his father Jacob and all his relatives to _him,_ [^b]seventy-five people. 
+Then Joseph sent and called his father Jacob and all his relatives to _him,_ seventy-five people. 
 
 ###### 15 
 So Jacob went down to Egypt; and he died, he and our fathers. 
@@ -97,7 +97,7 @@ Do you want to kill me as you did the Egyptian yesterday?'
 Then, at this saying, Moses fled and became a dweller in the land of Midian, where he had two sons. 
 
 ###### 30 
-"And when forty years had passed, an Angel [^c]of the Lord appeared to him in a flame of fire in a bush, in the wilderness of Mount Sinai. 
+"And when forty years had passed, an Angel of the Lord appeared to him in a flame of fire in a bush, in the wilderness of Mount Sinai. 
 
 ###### 31 
 When Moses saw _it,_ he marveled at the sight; and as he drew near to observe, the voice of the Lord came to him, 
@@ -118,10 +118,10 @@ I have surely seen the oppression of My people who are in Egypt; I have heard th
 He brought them out, after he had shown wonders and signs in the land of Egypt, and in the Red Sea, and in the wilderness forty years. ## Israel Rebels Against God 
 
 ###### 37 
-"This is that Moses who said to the children of Israel, 'The Lord your God will raise up for you a Prophet like me from your brethren. Him[^d] you shall hear.' 
+"This is that Moses who said to the children of Israel, 'The Lord your God will raise up for you a Prophet like me from your brethren. Him you shall hear.' 
 
 ###### 38 
-"This is he who was in the [^e]congregation in the wilderness with the Angel who spoke to him on Mount Sinai, and _with_ our fathers, the one who received the living oracles[^f] to give to us, 
+"This is he who was in the congregation in the wilderness with the Angel who spoke to him on Mount Sinai, and _with_ our fathers, the one who received the living oracles to give to us, 
 
 ###### 39 
 whom our fathers would not obey, but rejected. And in their hearts they turned back to Egypt, 
@@ -160,7 +160,7 @@ But Solomon built Him a house.
 Has My hand not made all these things?' ## Israel Resists the Holy Spirit 
 
 ###### 51 
-"_You_ stiff-necked[^g] and uncircumcised in heart and ears! You always resist the Holy Spirit; as your fathers _did,_ so _do_ you. 
+"_You_ stiff-necked and uncircumcised in heart and ears! You always resist the Holy Spirit; as your fathers _did,_ so _do_ you. 
 
 ###### 52 
 Which of the prophets did your fathers not persecute? And they killed those who foretold the coming of the Just One, of whom you now have become the betrayers and murderers, 
@@ -169,7 +169,7 @@ Which of the prophets did your fathers not persecute? And they killed those who 
 who have received the law by the direction of angels and have not kept _it._" ## Stephen the Martyr 
 
 ###### 54 
-When they heard these things they were [^h]cut to the heart, and they gnashed at him with _their_ teeth. 
+When they heard these things they were cut to the heart, and they gnashed at him with _their_ teeth. 
 
 ###### 55 
 But he, being full of the Holy Spirit, gazed into heaven and saw the glory of God, and Jesus standing at the right hand of God, 

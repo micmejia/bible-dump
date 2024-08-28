@@ -259,7 +259,7 @@ Then Peter came to himself and said, Now I really know _and_ am sure that the Lo
 
 
 
-When he, at a glance, became aware of this [[^a]comprehending all the elements of the case], he went to the house of Mary the mother of John, whose surname was Mark, where a large number were assembled together and were praying. 
+When he, at a glance, became aware of this [comprehending all the elements of the case], he went to the house of Mary the mother of John, whose surname was Mark, where a large number were assembled together and were praying. 
 
 
 

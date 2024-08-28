@@ -73,7 +73,7 @@ Ngunit ikaw, <i class="trans-change">Tito,_ ituro mo ang naaayon sa wastong aral
 
 
 
-Ang mga nakatatandang lalaki ay turuan mong maging mahinahon, marangal, marunong magpasya kung ano ang nararapat,[^a] at matatag sa pananampalataya, sa pag-ibig at sa pagtitiis. 
+Ang mga nakatatandang lalaki ay turuan mong maging mahinahon, marangal, marunong magpasya kung ano ang nararapat, at matatag sa pananampalataya, sa pag-ibig at sa pagtitiis. 
 
 
 

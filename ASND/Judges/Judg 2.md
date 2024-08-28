@@ -172,7 +172,7 @@ Nang marinig ito ng mga Israelita, humagulgol sila.
 
 
 
-Kaya tinawag nilang Bokim[^a] ang lugar na iyon. At doon sila naghandog sa Panginoon. 
+Kaya tinawag nilang Bokim ang lugar na iyon. At doon sila naghandog sa Panginoon. 
 
 
 
@@ -535,7 +535,7 @@ Kapag nakikipaglaban sila, pinapatalo sila ng Panginoon, tulad ng sinabi niya. K
 
 
 
-Ngayon, binigyan ng Panginoon ang Israel ng mga pinuno[^b] na magliligtas sa kanila mula sa mga tulisan. 
+Ngayon, binigyan ng Panginoon ang Israel ng mga pinuno na magliligtas sa kanila mula sa mga tulisan. 
 
 
 

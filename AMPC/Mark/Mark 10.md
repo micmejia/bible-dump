@@ -49,7 +49,7 @@ And [Jesus] left there [Capernaum] and went to the region of Judea and beyond [e
 
 
 
-And some Pharisees came up, and, in order to test Him _and_ try to find a weakness in Him, asked, Is it lawful for a man to [^a]dismiss _and_ repudiate _and_ divorce his wife? 
+And some Pharisees came up, and, in order to test Him _and_ try to find a weakness in Him, asked, Is it lawful for a man to dismiss _and_ repudiate _and_ divorce his wife? 
 
 
 
@@ -112,7 +112,7 @@ They replied, Moses allowed a man to write a bill of divorce and to put her away
 
 
 
-But Jesus said to them, Because of your hardness of heart [[^b]your condition of insensibility to the call of God] he wrote you this [^c]precept in your Law. 
+But Jesus said to them, Because of your hardness of heart [your condition of insensibility to the call of God] he wrote you this precept in your Law. 
 
 
 
@@ -154,7 +154,7 @@ But from the beginning of creation God made them male and female.
 
 
 
-For this reason a man shall leave [behind] his father and his mother [^d]_and be_ [^e]_joined to his wife and cleave closely to her permanently_, 
+For this reason a man shall leave [behind] his father and his mother _and be_ _joined to his wife and cleave closely to her permanently_, 
 
 
 
@@ -238,7 +238,7 @@ And indoors the disciples questioned Him again about this subject.
 
 
 
-And He said to them, Whoever [^f]dismisses (repudiates and divorces) his wife and marries another commits adultery against her; 
+And He said to them, Whoever dismisses (repudiates and divorces) his wife and marries another commits adultery against her; 
 
 
 
@@ -301,7 +301,7 @@ And they kept bringing young children to Him that He might touch them, and the d
 
 
 
-But when Jesus saw [it], He was indignant _and_ [^g]pained and said to them, Allow the children to come to Me--do not forbid _or_ prevent _or_ hinder them--for to such belongs the kingdom of God. 
+But when Jesus saw [it], He was indignant _and_ pained and said to them, Allow the children to come to Me--do not forbid _or_ prevent _or_ hinder them--for to such belongs the kingdom of God. 
 
 
 
@@ -343,7 +343,7 @@ Truly I tell you, whoever does not receive _and_ accept _and_ welcome the kingdo
 
 
 
-And He took them [the children up [^h]one by one] in His arms and [[^i]fervently invoked a] blessing, placing His hands upon them. 
+And He took them [the children up one by one] in His arms and [fervently invoked a] blessing, placing His hands upon them. 
 
 
 
@@ -364,7 +364,7 @@ And He took them [the children up [^h]one by one] in His arms and [[^i]fervently
 
 
 
-And as He was setting out on His journey, a man ran up and knelt before Him and asked Him, Teacher, [You are [^j]essentially and perfectly [^k]morally] good, what must I do to inherit eternal life [that is, [^l]to partake of eternal salvation in the Messiah's kingdom]? 
+And as He was setting out on His journey, a man ran up and knelt before Him and asked Him, Teacher, [You are essentially and perfectly morally] good, what must I do to inherit eternal life [that is, to partake of eternal salvation in the Messiah's kingdom]? 
 
 
 
@@ -385,7 +385,7 @@ And as He was setting out on His journey, a man ran up and knelt before Him and 
 
 
 
-And Jesus said to him, Why do you call Me [[^m]essentially and perfectly [^n]morally] good? There is no one [[^o]essentially and perfectly [^p]morally] good--except God alone. 
+And Jesus said to him, Why do you call Me [essentially and perfectly morally] good? There is no one [essentially and perfectly morally] good--except God alone. 
 
 
 
@@ -448,7 +448,7 @@ And he replied to Him, Teacher, I have carefully guarded _and_ observed all thes
 
 
 
-And Jesus, looking upon him, loved him, and He said to him, You lack one thing; go and sell all you have and give [the money] to the poor, and you will have treasure in heaven; and come [and] accompany Me [[^q]walking the same road that I walk]. 
+And Jesus, looking upon him, loved him, and He said to him, You lack one thing; go and sell all you have and give [the money] to the poor, and you will have treasure in heaven; and come [and] accompany Me [walking the same road that I walk]. 
 
 
 
@@ -490,7 +490,7 @@ At that saying the man's countenance fell _and_ was gloomy, and he went away gri
 
 
 
-And Jesus looked around and said to His disciples, With what difficulty will those who possess wealth _and_ [^r]keep on holding it enter the kingdom of God! 
+And Jesus looked around and said to His disciples, With what difficulty will those who possess wealth _and_ keep on holding it enter the kingdom of God! 
 
 
 
@@ -511,7 +511,7 @@ And Jesus looked around and said to His disciples, With what difficulty will tho
 
 
 
-And the disciples were amazed _and_ bewildered _and_ perplexed at His words. But Jesus said to them again, Children, how hard it is [^s]_for those who trust (place their confidence, their sense of safety) in riches_ to enter the kingdom of God! 
+And the disciples were amazed _and_ bewildered _and_ perplexed at His words. But Jesus said to them again, Children, how hard it is _for those who trust (place their confidence, their sense of safety) in riches_ to enter the kingdom of God! 
 
 
 
@@ -553,7 +553,7 @@ It is easier for a camel to go through the eye of a needle than for a rich man t
 
 
 
-And they were shocked _and_ exceedingly astonished, and said to Him _and_ [^t]_to one another_, Then who can be saved? 
+And they were shocked _and_ exceedingly astonished, and said to Him _and_ _to one another_, Then who can be saved? 
 
 
 
@@ -595,7 +595,7 @@ Jesus glanced around at them and said, With men [it is] impossible, but not with
 
 
 
-Peter started to say to Him, Behold, we have [^u]yielded up _and_ abandoned everything [once and for all and [^v]joined You as Your disciples, siding with Your party] and accompanied You [[^w]walking the same road that You walk]. 
+Peter started to say to Him, Behold, we have yielded up _and_ abandoned everything [once and for all and joined You as Your disciples, siding with Your party] and accompanied You [walking the same road that You walk]. 
 
 
 
@@ -721,7 +721,7 @@ They were on the way going up to Jerusalem, and Jesus was walking on in front of
 
 
 
-And they will mock Him and spit on Him, and whip Him and put Him to death; but after three days He will rise again [[^x]from death]. 
+And they will mock Him and spit on Him, and whip Him and put Him to death; but after three days He will rise again [from death]. 
 
 
 
@@ -952,7 +952,7 @@ And whoever wishes to be most important _and_ first in rank among you must be sl
 
 
 
-For even the Son of Man came not to have service rendered to Him, but to serve, and to give His life as a ransom for ([^y]instead of) many. 
+For even the Son of Man came not to have service rendered to Him, but to serve, and to give His life as a ransom for (instead of) many. 
 
 
 
@@ -994,7 +994,7 @@ Then they came to Jericho. And as He was leaving Jericho with His disciples and 
 
 
 
-And when he heard that it was Jesus of Nazareth, he began to shout, saying, Jesus, Son of David, have pity _and_ mercy on me [[^z]now]! 
+And when he heard that it was Jesus of Nazareth, he began to shout, saying, Jesus, Son of David, have pity _and_ mercy on me [now]! 
 
 
 

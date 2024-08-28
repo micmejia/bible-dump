@@ -61,7 +61,7 @@ Then they came near to him and said: "We will build sheepfolds here for our live
 but we ourselves will be armed, ready _to go_ before the children of Israel until we have brought them to their place; and our little ones will dwell in the fortified cities because of the inhabitants of the land. 
 
 ###### 18 
-We will not return to our homes until every one of the children of Israel has [^a]received his inheritance. 
+We will not return to our homes until every one of the children of Israel has received his inheritance. 
 
 ###### 19 
 For we will not inherit with them on the other side of the Jordan and beyond, because our inheritance has fallen to us on this eastern side of the Jordan." 
@@ -79,7 +79,7 @@ and the land is subdued before the Lord, then afterward you may return and be bl
 But if you do not do so, then take note, you have sinned against the Lord; and be sure your sin will find you out. 
 
 ###### 24 
-Build cities for your little ones and folds for your sheep, and do [^b]what has proceeded out of your mouth." 
+Build cities for your little ones and folds for your sheep, and do what has proceeded out of your mouth." 
 
 ###### 25 
 And the children of Gad and the children of Reuben spoke to Moses, saying: "Your servants will do as my lord commands. 
@@ -124,13 +124,13 @@ And the children of Reuben built Heshbon and Elealeh and Kirjathaim,
 Nebo and Baal Meon (_their_ names being changed) and Shibmah; and they gave _other_ names to the cities which they built. 
 
 ###### 39 
-And the children of Machir the son of Manasseh went to Gilead and took it, and [^c]dispossessed the Amorites who _were_ in it. 
+And the children of Machir the son of Manasseh went to Gilead and took it, and dispossessed the Amorites who _were_ in it. 
 
 ###### 40 
 So Moses gave Gilead to Machir the son of Manasseh, and he dwelt in it. 
 
 ###### 41 
-Also Jair the son of Manasseh went and took its small towns, and called them Havoth Jair.[^d] 
+Also Jair the son of Manasseh went and took its small towns, and called them Havoth Jair. 
 
 ###### 42 
 Then Nobah went and took Kenath and its villages, and he called it Nobah, after his own name.

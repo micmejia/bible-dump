@@ -733,7 +733,7 @@ Kaya pangangalatin ko ang mga pinuno nʼyo na parang ipa na tinatangay ng hangin
 
 
 
-"Ako, ang buhay na Panginoon, ay sumusumpa na itatakwil kita, Haring Jehoyakin ng Juda na anak ni Jehoyakim. Kahit para kang singsing sa aking kanang kamay[^a] na tanda ng kapangyarihan ko, tatanggalin kita sa daliri ko. 
+"Ako, ang buhay na Panginoon, ay sumusumpa na itatakwil kita, Haring Jehoyakin ng Juda na anak ni Jehoyakim. Kahit para kang singsing sa aking kanang kamay na tanda ng kapangyarihan ko, tatanggalin kita sa daliri ko. 
 
 
 
@@ -766,7 +766,7 @@ Kaya pangangalatin ko ang mga pinuno nʼyo na parang ipa na tinatangay ng hangin
 
 
 
-Ibibigay kita sa mga nais pumatay sa iyo na kinatatakutan mo. Ibibigay kita kay Haring Nebucadnezar ng Babilonia at sa mga kawal[^b] niya. 
+Ibibigay kita sa mga nais pumatay sa iyo na kinatatakutan mo. Ibibigay kita kay Haring Nebucadnezar ng Babilonia at sa mga kawal niya. 
 
 
 

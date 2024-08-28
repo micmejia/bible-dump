@@ -70,7 +70,7 @@ A person begotten out of wedlock shall not enter into the assembly of the Lord; 
 
 
 
-An Ammonite or [^a]Moabite shall not enter into the congregation of the Lord; even to their tenth generation their descendants shall not enter into the assembly of the Lord forever, 
+An Ammonite or Moabite shall not enter into the congregation of the Lord; even to their tenth generation their descendants shall not enter into the assembly of the Lord forever, 
 
 
 

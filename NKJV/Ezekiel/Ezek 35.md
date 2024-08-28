@@ -16,25 +16,25 @@ Moreover the word of the Lord came to me, saying,
 "Son of man, set your face against Mount Seir and prophesy against it, 
 
 ###### 3 
-and say to it, 'Thus says the Lord God: "Behold, O Mount Seir, I _am_ against you; I will stretch out My hand against you, And make you [^a]most desolate; 
+and say to it, 'Thus says the Lord God: "Behold, O Mount Seir, I _am_ against you; I will stretch out My hand against you, And make you most desolate; 
 
 ###### 4 
 I shall lay your cities waste, And you shall be desolate. Then you shall know that I _am_ the Lord. 
 
 ###### 5 
-"Because you have had an [^b]ancient hatred, and have shed _the blood of_ the children of Israel by the power of the sword at the time of their calamity, when their iniquity _came to an_ end, 
+"Because you have had an ancient hatred, and have shed _the blood of_ the children of Israel by the power of the sword at the time of their calamity, when their iniquity _came to an_ end, 
 
 ###### 6 
-therefore, _as_ I live," says the Lord God, "I will prepare you for blood, and blood shall pursue you; since you have not hated [^c]blood, therefore blood shall pursue you. 
+therefore, _as_ I live," says the Lord God, "I will prepare you for blood, and blood shall pursue you; since you have not hated blood, therefore blood shall pursue you. 
 
 ###### 7 
-Thus I will make Mount Seir [^d]most desolate, and cut off from it the one who leaves and the one who returns. 
+Thus I will make Mount Seir most desolate, and cut off from it the one who leaves and the one who returns. 
 
 ###### 8 
 And I will fill its mountains with the slain; on your hills and in your valleys and in all your ravines those who are slain by the sword shall fall. 
 
 ###### 9 
-I will make you [^e]perpetually desolate, and your cities shall be uninhabited; then you shall know that I _am_ the Lord. 
+I will make you perpetually desolate, and your cities shall be uninhabited; then you shall know that I _am_ the Lord. 
 
 ###### 10 
 "Because you have said, 'These two nations and these two countries shall be mine, and we will possess them,' although the Lord was there, 
@@ -46,7 +46,7 @@ therefore, _as_ I live," says the Lord God, "I will do according to your anger a
 Then you shall know that I _am_ the Lord. I have heard all your blasphemies which you have spoken against the mountains of Israel, saying, 'They are desolate; they are given to us to consume.' 
 
 ###### 13 
-Thus with your mouth you have [^f]boasted against Me and multiplied your words against Me; I have heard _them._" 
+Thus with your mouth you have boasted against Me and multiplied your words against Me; I have heard _them._" 
 
 ###### 14 
 'Thus says the Lord God: "The whole earth will rejoice when I make you desolate. 

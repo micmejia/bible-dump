@@ -10,7 +10,7 @@ next: ['Matt 3']
 
 
 ###### 1 
-Now after Jesus was born in Bethlehem of Judea in the days of Herod the king, behold, [^a]wise men from the East came to Jerusalem, 
+Now after Jesus was born in Bethlehem of Judea in the days of Herod the king, behold, wise men from the East came to Jerusalem, 
 
 ###### 2 
 saying, "Where is He who has been born King of the Jews? For we have seen His star in the East and have come to worship Him." 
@@ -28,7 +28,7 @@ So they said to him, "In Bethlehem of Judea, for thus it is written by the proph
 'But you, Bethlehem, _in_ the land of Judah, Are not the least among the rulers of Judah; For out of you shall come a Ruler Who will shepherd My people Israel.' " 
 
 ###### 7 
-Then Herod, when he had secretly called the [^b]wise men, determined from them what time the star appeared. 
+Then Herod, when he had secretly called the wise men, determined from them what time the star appeared. 
 
 ###### 8 
 And he sent them to Bethlehem and said, "Go and search carefully for the young Child, and when you have found _Him,_ bring back word to me, that I may come and worship Him also." 

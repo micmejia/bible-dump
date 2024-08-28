@@ -13,7 +13,7 @@ next: ['Num 6']
 And the Lord spoke to Moses, saying: 
 
 ###### 2 
-"Command the children of Israel that they put out of the camp every leper, everyone who has a discharge, and whoever becomes defiled [^a]by a corpse. 
+"Command the children of Israel that they put out of the camp every leper, everyone who has a discharge, and whoever becomes defiled by a corpse. 
 
 ###### 3 
 You shall put out both male and female; you shall put them outside the camp, that they may not defile their camps in the midst of which I dwell." 
@@ -31,13 +31,13 @@ Then the Lord spoke to Moses, saying,
 then he shall confess the sin which he has committed. He shall make restitution for his trespass in full, plus one-fifth of it, and give _it_ to the one he has wronged. 
 
 ###### 8 
-But if the man has no [^b]relative to whom restitution may be made for the wrong, the restitution for the wrong _must go_ to the Lord for the priest, in addition to the ram of the atonement with which atonement is made for him. 
+But if the man has no relative to whom restitution may be made for the wrong, the restitution for the wrong _must go_ to the Lord for the priest, in addition to the ram of the atonement with which atonement is made for him. 
 
 ###### 9 
-Every offering[^c] of all the holy things of the children of Israel, which they bring to the priest, shall be his. 
+Every offering of all the holy things of the children of Israel, which they bring to the priest, shall be his. 
 
 ###### 10 
-And every man's [^d]holy things shall be his; whatever any man gives the priest shall be his.' " ## Concerning Unfaithful Wives 
+And every man's holy things shall be his; whatever any man gives the priest shall be his.' " ## Concerning Unfaithful Wives 
 
 ###### 11 
 And the Lord spoke to Moses, saying, 
@@ -70,7 +70,7 @@ And the priest shall put her under oath, and say to the woman, "If no man has la
 But if you have gone astray _while_ under your husband's _authority,_ and if you have defiled yourself and some man other than your husband has lain with you"-- 
 
 ###### 21 
-then the priest shall put the woman under the oath of the curse, and he shall say to the woman--"the Lord make you a curse and an oath among your people, when the Lord makes your thigh [^e]rot and your belly swell; 
+then the priest shall put the woman under the oath of the curse, and he shall say to the woman--"the Lord make you a curse and an oath among your people, when the Lord makes your thigh rot and your belly swell; 
 
 ###### 22 
 and may this water that causes the curse go into your stomach, and make _your_ belly swell and _your_ thigh rot." 'Then the woman shall say, "Amen, so be it." 
@@ -100,4 +100,4 @@ But if the woman has not defiled herself, and is clean, then she shall be free a
 or when the spirit of jealousy comes upon a man, and he becomes jealous of his wife; then he shall stand the woman before the Lord, and the priest shall execute all this law upon her. 
 
 ###### 31 
-Then the man shall be free from [^f]iniquity, but that woman shall bear her [^g]guilt.' "
+Then the man shall be free from iniquity, but that woman shall bear her guilt.' "

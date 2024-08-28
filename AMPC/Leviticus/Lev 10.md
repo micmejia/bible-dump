@@ -70,7 +70,7 @@ And there came forth fire from before the Lord and killed them, and they died be
 
 
 
-Then Moses said to Aaron, This is what the Lord meant when He said, I [^a][and My will, not their own] will be acknowledged as hallowed by those who come near Me, and before all the people I will be honored. And Aaron said nothing. 
+Then Moses said to Aaron, This is what the Lord meant when He said, I [and My will, not their own] will be acknowledged as hallowed by those who come near Me, and before all the people I will be honored. And Aaron said nothing. 
 
 
 

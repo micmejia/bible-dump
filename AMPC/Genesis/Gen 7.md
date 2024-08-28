@@ -175,7 +175,7 @@ And Noah and his sons and his wife and his sons' wives with him went into the ar
 
 
 
-Of [^a]clean animals and of animals that are not clean, and of birds _and_ fowls, and of everything that creeps on the ground, 
+Of clean animals and of animals that are not clean, and of birds _and_ fowls, and of everything that creeps on the ground, 
 
 
 

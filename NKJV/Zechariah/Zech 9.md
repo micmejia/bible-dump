@@ -10,7 +10,7 @@ next: ['Zech 10']
 
 
 ###### 1 
-The [^a]burden of the word of the Lord Against the land of Hadrach, And Damascus its resting place (For the eyes of men And all the tribes of Israel Are on the Lord); 
+The burden of the word of the Lord Against the land of Hadrach, And Damascus its resting place (For the eyes of men And all the tribes of Israel Are on the Lord); 
 
 ###### 2 
 Also _against_ Hamath, _which_ borders on it, And _against_ Tyre and Sidon, though they are very wise. 
@@ -25,7 +25,7 @@ Behold, the Lord will cast her out; He will destroy her power in the sea, And sh
 Ashkelon shall see _it_ and fear; Gaza also shall be very sorrowful; And Ekron, for He dried up her expectation. The king shall perish from Gaza, And Ashkelon shall not be inhabited. 
 
 ###### 6 
-"A[^b] mixed race shall settle in Ashdod, And I will cut off the pride of the Philistines. 
+"A mixed race shall settle in Ashdod, And I will cut off the pride of the Philistines. 
 
 ###### 7 
 I will take away the blood from his mouth, And the abominations from between his teeth. But he who remains, even he _shall be_ for our God, And shall be like a leader in Judah, And Ekron like a Jebusite. 
@@ -52,10 +52,10 @@ For I have bent Judah, My _bow,_ Fitted the bow with Ephraim, And raised up your
 Then the Lord will be seen over them, And His arrow will go forth like lightning. The Lord God will blow the trumpet, And go with whirlwinds from the south. 
 
 ###### 15 
-The Lord of hosts will defend them; They shall devour and subdue with slingstones. They shall drink _and_ roar as if with wine; They shall be filled _with blood_ like [^c]basins, Like the corners of the altar. 
+The Lord of hosts will defend them; They shall devour and subdue with slingstones. They shall drink _and_ roar as if with wine; They shall be filled _with blood_ like basins, Like the corners of the altar. 
 
 ###### 16 
-The Lord their God will save them in that day, As the flock of His people. For they _shall be like_ the [^d]jewels of a crown, Lifted like a banner over His land-- 
+The Lord their God will save them in that day, As the flock of His people. For they _shall be like_ the jewels of a crown, Lifted like a banner over His land-- 
 
 ###### 17 
-For how great is [^e]its goodness And how great its beauty! Grain shall make the young men thrive, And new wine the young women.
+For how great is its goodness And how great its beauty! Grain shall make the young men thrive, And new wine the young women.

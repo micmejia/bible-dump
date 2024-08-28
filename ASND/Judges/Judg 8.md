@@ -271,7 +271,7 @@ Sinabi ni Gideon, "Kung ganoon, kapag ibinigay na sa amin ng Panginoon sina Zeba
 
 
 
-Mula roon, umahon sina Gideon sa Penuel[^a] at ganoon din ang hiniling niya sa mga taga-roon, pero ang sagot nila ay katulad din ng sagot ng mga taga-Sucot. 
+Mula roon, umahon sina Gideon sa Penuel at ganoon din ang hiniling niya sa mga taga-roon, pero ang sagot nila ay katulad din ng sagot ng mga taga-Sucot. 
 
 
 
@@ -898,7 +898,7 @@ Ang bigat ng mga gintong hikaw na natipon ay 20 kilo, hindi pa kasama ang mga de
 
 
 
-Mula sa natipon na ginto, nagpagawa si Gideon ng isang espesyal na damit[^b] at inilagay ito sa bayan niya sa Ofra. Muling tumalikod ang mga Israelita sa Dios at sumamba sa ipinagawa ni Gideon. Naging malaking bitag ito kay Gideon at sa kanyang pamilya. 
+Mula sa natipon na ginto, nagpagawa si Gideon ng isang espesyal na damit at inilagay ito sa bayan niya sa Ofra. Muling tumalikod ang mga Israelita sa Dios at sumamba sa ipinagawa ni Gideon. Naging malaking bitag ito kay Gideon at sa kanyang pamilya. 
 
 
 
@@ -964,7 +964,7 @@ Lubusang natalo ng mga Israelita ang mga Midianita at hindi na nakabawi pa ang m
 
 
 
-Umuwi si Gideon[^c] sa sarili niyang bahay at doon tumira. 
+Umuwi si Gideon sa sarili niyang bahay at doon tumira. 
 
 
 

@@ -22,13 +22,13 @@ Now by this we know that we know Him, if we keep His commandments.
 He who says, "I know Him," and does not keep His commandments, is a liar, and the truth is not in him. 
 
 ###### 5 
-But whoever keeps His word, truly the love of God [^a]is perfected in him. By this we know that we are in Him. 
+But whoever keeps His word, truly the love of God is perfected in him. By this we know that we are in Him. 
 
 ###### 6 
 He who says he abides in Him ought himself also to walk just as He walked. 
 
 ###### 7 
-[^b]Brethren, I write no new commandment to you, but an old commandment which you have had from the beginning. The old commandment is the word which you heard [^c]from the beginning. 
+Brethren, I write no new commandment to you, but an old commandment which you have had from the beginning. The old commandment is the word which you heard from the beginning. 
 
 ###### 8 
 Again, a new commandment I write to you, which thing is true in Him and in you, because the darkness is passing away, and the true light is already shining. 
@@ -61,13 +61,13 @@ For all that _is_ in the world--the lust of the flesh, the lust of the eyes, and
 And the world is passing away, and the lust of it; but he who does the will of God abides forever. ## Deceptions of the Last Hour 
 
 ###### 18 
-Little children, it is the last hour; and as you have heard that the[^d] Antichrist is coming, even now many antichrists have come, by which we know that it is the last hour. 
+Little children, it is the last hour; and as you have heard that the Antichrist is coming, even now many antichrists have come, by which we know that it is the last hour. 
 
 ###### 19 
 They went out from us, but they were not of us; for if they had been of us, they would have continued with us; but _they went out_ that they might be made manifest, that none of them were of us. 
 
 ###### 20 
-But you have an anointing from the Holy One, and you[^e] know all things. 
+But you have an anointing from the Holy One, and you know all things. 
 
 ###### 21 
 I have not written to you because you do not know the truth, but because you know it, and that no lie is of the truth. 
@@ -85,13 +85,13 @@ Therefore let that abide in you which you heard from the beginning. If what you 
 And this is the promise that He has promised us--eternal life. 
 
 ###### 26 
-These things I have written to you concerning those who _try to_ [^f]deceive you. 
+These things I have written to you concerning those who _try to_ deceive you. 
 
 ###### 27 
-But the anointing which you have received from Him abides in you, and you do not need that anyone teach you; but as the same anointing teaches you concerning all things, and is true, and is not a lie, and just as it has taught you, you [^g]will abide in Him. ## The Children of God 
+But the anointing which you have received from Him abides in you, and you do not need that anyone teach you; but as the same anointing teaches you concerning all things, and is true, and is not a lie, and just as it has taught you, you will abide in Him. ## The Children of God 
 
 ###### 28 
-And now, little children, abide in Him, that [^h]when He appears, we may have confidence and not be ashamed before Him at His coming. 
+And now, little children, abide in Him, that when He appears, we may have confidence and not be ashamed before Him at His coming. 
 
 ###### 29 
 If you know that He is righteous, you know that everyone who practices righteousness is born of Him.

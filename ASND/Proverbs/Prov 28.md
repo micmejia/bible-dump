@@ -238,7 +238,7 @@ Mas mabuti pa ang mahirap na namumuhay nang matuwid kaysa sa mayaman na namumuha
 
 
 
-Ang matalinong anak ay sumusunod sa mga Kautusan, ngunit ang anak na bumabarkada sa mga pasaway,[^a] mga magulang ang pinapahiya. 
+Ang matalinong anak ay sumusunod sa mga Kautusan, ngunit ang anak na bumabarkada sa mga pasaway, mga magulang ang pinapahiya. 
 
 
 

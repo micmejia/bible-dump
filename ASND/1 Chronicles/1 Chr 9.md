@@ -73,7 +73,7 @@ Nailista ang lahat ng Israelita sa talaan ng mga lahi sa Aklat ng Kasaysayan ng 
 
 
 
-Ang unang nakabalik sa kanilang mga bayan sa sariling lupain ay ang mga ordinaryong Israelita, mga pari, mga Levita, at mga utusan sa templo.[^a] 
+Ang unang nakabalik sa kanilang mga bayan sa sariling lupain ay ang mga ordinaryong Israelita, mga pari, mga Levita, at mga utusan sa templo. 
 
 
 
@@ -634,7 +634,7 @@ Hanggang ngayon, sila pa rin ang guwardya ng Pintuan ng Hari sa bandang silangan
 
 
 
-Si Shalum ay anak ni Kore at apo ni Ebiasaf,[^b] na mula sa pamilya ni Kora. Si Shalum at ang kanyang mga kamag-anak na mula sa angkan ni Kora ang pinagkatiwalaan sa pagbabantay ng pintuan <i class="trans-change">ng Tolda_ katulad ng kanilang mga ninuno na pinagkatiwalaan sa pagbabantay ng pintuan ng bahay[^c] ng Panginoon. 
+Si Shalum ay anak ni Kore at apo ni Ebiasaf, na mula sa pamilya ni Kora. Si Shalum at ang kanyang mga kamag-anak na mula sa angkan ni Kora ang pinagkatiwalaan sa pagbabantay ng pintuan <i class="trans-change">ng Tolda_ katulad ng kanilang mga ninuno na pinagkatiwalaan sa pagbabantay ng pintuan ng bahay ng Panginoon. 
 
 
 
@@ -1327,7 +1327,7 @@ Si Ner ang ama ni Kish, si Kish ang ama ni Saul, at si Saul ang ama nina Jonatan
 
 
 
-Ang anak ni Jonatan ay si Merib Baal[^d] na ama ni Micas. 
+Ang anak ni Jonatan ay si Merib Baal na ama ni Micas. 
 
 
 
@@ -1360,7 +1360,7 @@ Ang anak ni Jonatan ay si Merib Baal[^d] na ama ni Micas.
 
 
 
-Ang mga anak na lalaki ni Micas ay sina Piton, Melec, Tarea at Ahaz.[^e] 
+Ang mga anak na lalaki ni Micas ay sina Piton, Melec, Tarea at Ahaz. 
 
 
 
@@ -1393,7 +1393,7 @@ Ang mga anak na lalaki ni Micas ay sina Piton, Melec, Tarea at Ahaz.[^e]
 
 
 
-Si Ahaz ang ama ni Jada,[^f] at si Jada ang ama nina Alemet, Azmavet at Zimri. Si Zimri ang ama ni Moza, 
+Si Ahaz ang ama ni Jada, at si Jada ang ama nina Alemet, Azmavet at Zimri. Si Zimri ang ama ni Moza, 
 
 
 

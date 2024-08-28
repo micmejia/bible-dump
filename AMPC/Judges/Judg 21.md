@@ -531,4 +531,4 @@ And the Israelites left there then, every man to his tribe and family, and they 
 
 
 
-In those days [^a]there was no king in Israel; every man did what was right in his own eyes.
+In those days there was no king in Israel; every man did what was right in his own eyes.

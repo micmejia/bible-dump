@@ -12,10 +12,10 @@ next: ['Acts 2']
 The former account I made, O Theophilus, of all that Jesus began both to do and teach, 
 
 ###### 2 
-until the day in which [^a]He was taken up, after He through the Holy Spirit had given commandments to the apostles whom He had chosen, 
+until the day in which He was taken up, after He through the Holy Spirit had given commandments to the apostles whom He had chosen, 
 
 ###### 3 
-to whom He also presented Himself alive after His suffering by many [^b]infallible proofs, being seen by them during forty days and speaking of the things pertaining to the kingdom of God. ## The Holy Spirit Promised 
+to whom He also presented Himself alive after His suffering by many infallible proofs, being seen by them during forty days and speaking of the things pertaining to the kingdom of God. ## The Holy Spirit Promised 
 
 ###### 4 
 And being assembled together with _them,_ He commanded them not to depart from Jerusalem, but to wait for the Promise of the Father, "which," _He said,_ "you have heard from Me; 
@@ -30,7 +30,7 @@ Therefore, when they had come together, they asked Him, saying, "Lord, will You 
 And He said to them, "It is not for you to know times or seasons which the Father has put in His own authority. 
 
 ###### 8 
-But you shall receive power when the Holy Spirit has come upon you; and you shall be [^c]witnesses to Me in Jerusalem, and in all Judea and Samaria, and to the end of the earth." ## Jesus Ascends to Heaven 
+But you shall receive power when the Holy Spirit has come upon you; and you shall be witnesses to Me in Jerusalem, and in all Judea and Samaria, and to the end of the earth." ## Jesus Ascends to Heaven 
 
 ###### 9 
 Now when He had spoken these things, while they watched, He was taken up, and a cloud received Him out of their sight. 
@@ -48,10 +48,10 @@ Then they returned to Jerusalem from the mount called Olivet, which is near Jeru
 And when they had entered, they went up into the upper room where they were staying: Peter, James, John, and Andrew; Philip and Thomas; Bartholomew and Matthew; James _the son_ of Alphaeus and Simon the Zealot; and Judas _the son_ of James. 
 
 ###### 14 
-These all continued with one [^d]accord in prayer [^e]and supplication, with the women and Mary the mother of Jesus, and with His brothers. ## Matthias Chosen 
+These all continued with one accord in prayer and supplication, with the women and Mary the mother of Jesus, and with His brothers. ## Matthias Chosen 
 
 ###### 15 
-And in those days Peter stood up in the midst of the [^f]disciples (altogether the number of names was about a hundred and twenty), and said, 
+And in those days Peter stood up in the midst of the disciples (altogether the number of names was about a hundred and twenty), and said, 
 
 ###### 16 
 "Men _and_ brethren, this Scripture had to be fulfilled, which the Holy Spirit spoke before by the mouth of David concerning Judas, who became a guide to those who arrested Jesus; 
@@ -60,13 +60,13 @@ And in those days Peter stood up in the midst of the [^f]disciples (altogether t
 for he was numbered with us and obtained a part in this ministry." 
 
 ###### 18 
-(Now this man purchased a field with the [^g]wages of iniquity; and falling headlong, he burst open in the middle and all his [^h]entrails gushed out. 
+(Now this man purchased a field with the wages of iniquity; and falling headlong, he burst open in the middle and all his entrails gushed out. 
 
 ###### 19 
 And it became known to all those dwelling in Jerusalem; so that field is called in their own language, Akel Dama, that is, Field of Blood.) 
 
 ###### 20 
-"For it is written in the Book of Psalms: 'Let his dwelling place be [^i]desolate, And let no one live in it'; and, 'Let another take his [^j]office.' 
+"For it is written in the Book of Psalms: 'Let his dwelling place be desolate, And let no one live in it'; and, 'Let another take his office.' 
 
 ###### 21 
 "Therefore, of these men who have accompanied us all the time that the Lord Jesus went in and out among us, 

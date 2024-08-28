@@ -31,7 +31,7 @@ The depths have covered them; They sank to the bottom like a stone.
 And in the greatness of Your excellence You have overthrown those who rose against You; You sent forth Your wrath; It consumed them like stubble. 
 
 ###### 8 
-And with the blast of Your nostrils The waters were gathered together; The floods stood upright like a heap; The depths [^a]congealed in the heart of the sea. 
+And with the blast of Your nostrils The waters were gathered together; The floods stood upright like a heap; The depths congealed in the heart of the sea. 
 
 ###### 9 
 The enemy said, 'I will pursue, I will overtake, I will divide the spoil; My desire shall be satisfied on them. I will draw my sword, My hand shall destroy them.' 
@@ -40,7 +40,7 @@ The enemy said, 'I will pursue, I will overtake, I will divide the spoil; My des
 You blew with Your wind, The sea covered them; They sank like lead in the mighty waters. 
 
 ###### 11 
-"Who _is_ like You, O Lord, among the [^b]gods? Who _is_ like You, glorious in holiness, Fearful in praises, doing wonders? 
+"Who _is_ like You, O Lord, among the gods? Who _is_ like You, glorious in holiness, Fearful in praises, doing wonders? 
 
 ###### 12 
 You stretched out Your right hand; The earth swallowed them. 
@@ -49,7 +49,7 @@ You stretched out Your right hand; The earth swallowed them.
 You in Your mercy have led forth The people whom You have redeemed; You have guided _them_ in Your strength To Your holy habitation. 
 
 ###### 14 
-"The people will hear _and_ be afraid; Sorrow[^c] will take hold of the inhabitants of Philistia. 
+"The people will hear _and_ be afraid; Sorrow will take hold of the inhabitants of Philistia. 
 
 ###### 15 
 Then the chiefs of Edom will be dismayed; The mighty men of Moab, Trembling will take hold of them; All the inhabitants of Canaan will melt away. 
@@ -76,13 +76,13 @@ And Miriam answered them: "Sing to the Lord, For He has triumphed gloriously! Th
 So Moses brought Israel from the Red Sea; then they went out into the Wilderness of Shur. And they went three days in the wilderness and found no water. 
 
 ###### 23 
-Now when they came to Marah, they could not drink the waters of Marah, for they _were_ bitter. Therefore the name of it was called [^d]Marah. 
+Now when they came to Marah, they could not drink the waters of Marah, for they _were_ bitter. Therefore the name of it was called Marah. 
 
 ###### 24 
 And the people complained against Moses, saying, "What shall we drink?" 
 
 ###### 25 
-So he cried out to the Lord, and the Lord showed him a tree. When he cast _it_ into the waters, the waters were made sweet. There He made a statute and an [^e]ordinance for them, and there He tested them, 
+So he cried out to the Lord, and the Lord showed him a tree. When he cast _it_ into the waters, the waters were made sweet. There He made a statute and an ordinance for them, and there He tested them, 
 
 ###### 26 
 and said, "If you diligently heed the voice of the Lord your God and do what is right in His sight, give ear to His commandments and keep all His statutes, I will put none of the diseases on you which I have brought on the Egyptians. For I _am_ the Lord who heals you." 

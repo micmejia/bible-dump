@@ -171,7 +171,7 @@ ang mga tao, hayop, ibon at isda. Mawawala ang lahat ng nag-uudyok sa tao para m
 
 
 
-<i class="trans-change">Lilipulin ko rin_ ang mga taong umaakyat sa bubong ng kanilang bahay para sumamba sa araw, sa buwan at mga bituin. <i class="trans-change">Lilipulin ko_ ang mga sumasamba at sumusumpang maglilingkod sa akin, pero sumusumpa ring maglilingkod sa <i class="trans-change">dios-diosang si_ Molec.[^a] 
+<i class="trans-change">Lilipulin ko rin_ ang mga taong umaakyat sa bubong ng kanilang bahay para sumamba sa araw, sa buwan at mga bituin. <i class="trans-change">Lilipulin ko_ ang mga sumasamba at sumusumpang maglilingkod sa akin, pero sumusumpa ring maglilingkod sa <i class="trans-change">dios-diosang si_ Molec. 
 
 
 
@@ -270,7 +270,7 @@ ang mga tao, hayop, ibon at isda. Mawawala ang lahat ng nag-uudyok sa tao para m
 
 
 
-Sa araw na iyon, papatayin ko ang <i class="trans-change">mga taga-Juda na parang_ hayop na ihahandog. Parurusahan ko ang <i class="trans-change">kanilang_ mga opisyal at ang mga anak ng <i class="trans-change">kanilang_ hari, at ang lahat <i class="trans-change">sa kanila_ na sumusunod sa <i class="trans-change">masasamang_ ugali ng ibang bansa.[^b] 
+Sa araw na iyon, papatayin ko ang <i class="trans-change">mga taga-Juda na parang_ hayop na ihahandog. Parurusahan ko ang <i class="trans-change">kanilang_ mga opisyal at ang mga anak ng <i class="trans-change">kanilang_ hari, at ang lahat <i class="trans-change">sa kanila_ na sumusunod sa <i class="trans-change">masasamang_ ugali ng ibang bansa. 
 
 
 
@@ -303,7 +303,7 @@ Sa araw na iyon, papatayin ko ang <i class="trans-change">mga taga-Juda na paran
 
 
 
-Parurusahan ko rin sa araw na iyon ang lahat ng sumasali sa mga seremonya ng mga hindi nakakakilala sa akin, at ang mga nagmamalupit at nandaraya para punuin <i class="trans-change">ng mga bagay_ ang bahay ng kanilang panginoon.[^c] 
+Parurusahan ko rin sa araw na iyon ang lahat ng sumasali sa mga seremonya ng mga hindi nakakakilala sa akin, at ang mga nagmamalupit at nandaraya para punuin <i class="trans-change">ng mga bagay_ ang bahay ng kanilang panginoon. 
 
 
 
@@ -336,7 +336,7 @@ Parurusahan ko rin sa araw na iyon ang lahat ng sumasali sa mga seremonya ng mga
 
 
 
-"<i class="trans-change">Ako,_ ang Panginoon ay nagsasabing sa araw na iyon maririnig ang iyakan sa pintuan na tinatawag na Isda[^d] <i class="trans-change">ng lungsod ng Jerusalem_ at sa bagong bahagi ng lungsod. Maririnig din ang malakas na ingay <i class="trans-change">ng mga nagigibang bahay_ sa mga burol. 
+"<i class="trans-change">Ako,_ ang Panginoon ay nagsasabing sa araw na iyon maririnig ang iyakan sa pintuan na tinatawag na Isda <i class="trans-change">ng lungsod ng Jerusalem_ at sa bagong bahagi ng lungsod. Maririnig din ang malakas na ingay <i class="trans-change">ng mga nagigibang bahay_ sa mga burol. 
 
 
 
@@ -369,7 +369,7 @@ Parurusahan ko rin sa araw na iyon ang lahat ng sumasali sa mga seremonya ng mga
 
 
 
-Mag-iyakan kayo, kayong mga naninirahan sa mababang bahagi[^e] <i class="trans-change">ng lungsod ng Jerusalem_ dahil mamamatay ang lahat ng inyong mga mangangalakal. 
+Mag-iyakan kayo, kayong mga naninirahan sa mababang bahagi <i class="trans-change">ng lungsod ng Jerusalem_ dahil mamamatay ang lahat ng inyong mga mangangalakal. 
 
 
 
@@ -402,7 +402,7 @@ Mag-iyakan kayo, kayong mga naninirahan sa mababang bahagi[^e] <i class="trans-c
 
 
 
-"Sa araw ding iyon, susuyurin kong mabuti[^f] ang Jerusalem at parurusahan ko ang mga taong nagpapasarap lang sa buhay at nagsasabi sa kanilang sarili, 'Walang gagawin ang Panginoon sa amin mabuti man o masama.' 
+"Sa araw ding iyon, susuyurin kong mabuti ang Jerusalem at parurusahan ko ang mga taong nagpapasarap lang sa buhay at nagsasabi sa kanilang sarili, 'Walang gagawin ang Panginoon sa amin mabuti man o masama.' 
 
 
 
@@ -567,7 +567,7 @@ at maririnig ang tunog ng trumpeta at sigawan ng mga sundalong sumasalakay sa mg
 
 
 
-<i class="trans-change">Sinabi ng Panginoon,_ "Ipaparanas ko ang paghihirap sa mga tao, at lalakad sila na parang bulag dahil nagkasala sila sa akin. Dadaloy na parang tubig[^g] ang kanilang dugo, at mabubulok na parang dumi[^h] ang kanilang bangkay. 
+<i class="trans-change">Sinabi ng Panginoon,_ "Ipaparanas ko ang paghihirap sa mga tao, at lalakad sila na parang bulag dahil nagkasala sila sa akin. Dadaloy na parang tubig ang kanilang dugo, at mabubulok na parang dumi ang kanilang bangkay. 
 
 
 

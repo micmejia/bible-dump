@@ -106,7 +106,7 @@ ang mga bayani, kawal, hukom, propeta, manghuhula, tagapamahala,
 
 
 
-kapitan ng mga kawal, mararangal na tao, mga tagapayo, at ang mga dalubhasang salamangkero[^a] nila at mga manggagayuma. 
+kapitan ng mga kawal, mararangal na tao, mga tagapayo, at ang mga dalubhasang salamangkero nila at mga manggagayuma. 
 
 
 
@@ -370,7 +370,7 @@ Pero nakakaawa ang masasama, dahil darating sa kanila ang kapahamakan. Gagantiha
 
 
 
-Nakahanda na ang Panginoon para hatulan ang kanyang mga mamamayan.[^b] 
+Nakahanda na ang Panginoon para hatulan ang kanyang mga mamamayan. 
 
 
 

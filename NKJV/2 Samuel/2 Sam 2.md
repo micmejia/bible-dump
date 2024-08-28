@@ -31,7 +31,7 @@ And now may the Lord show kindness and truth to you. I also will repay you this 
 Now therefore, let your hands be strengthened, and be valiant; for your master Saul is dead, and also the house of Judah has anointed me king over them." ## Ishbosheth Made King of Israel 
 
 ###### 8 
-But Abner the son of Ner, commander of Saul's army, took [^a]Ishbosheth the son of Saul and brought him over to Mahanaim; 
+But Abner the son of Ner, commander of Saul's army, took Ishbosheth the son of Saul and brought him over to Mahanaim; 
 
 ###### 9 
 and he made him king over Gilead, over the Ashurites, over Jezreel, over Ephraim, over Benjamin, and over all Israel. 
@@ -40,7 +40,7 @@ and he made him king over Gilead, over the Ashurites, over Jezreel, over Ephraim
 Ishbosheth, Saul's son, _was_ forty years old when he began to reign over Israel, and he reigned two years. Only the house of Judah followed David. 
 
 ###### 11 
-And the [^b]time that David was king in Hebron over the house of Judah was seven years and six months. ## Israel and Judah at War 
+And the time that David was king in Hebron over the house of Judah was seven years and six months. ## Israel and Judah at War 
 
 ###### 12 
 Now Abner the son of Ner, and the servants of Ishbosheth the son of Saul, went out from Mahanaim to Gibeon. 
@@ -55,7 +55,7 @@ Then Abner said to Joab, "Let the young men now arise and compete before us." An
 So they arose and went over by number, twelve from Benjamin, _followers_ of Ishbosheth the son of Saul, and twelve from the servants of David. 
 
 ###### 16 
-And each one grasped his opponent by the head and _thrust_ his sword in his opponent's side; so they fell down together. Therefore that place was called [^c]the Field of Sharp Swords, which _is_ in Gibeon. 
+And each one grasped his opponent by the head and _thrust_ his sword in his opponent's side; so they fell down together. Therefore that place was called the Field of Sharp Swords, which _is_ in Gibeon. 
 
 ###### 17 
 So there was a very fierce battle that day, and Abner and the men of Israel were beaten before the servants of David. 
@@ -82,13 +82,13 @@ However, he refused to turn aside. Therefore Abner struck him in the stomach wit
 Joab and Abishai also pursued Abner. And the sun was going down when they came to the hill of Ammah, which _is_ before Giah by the road to the Wilderness of Gibeon. 
 
 ###### 25 
-Now the children of Benjamin gathered together behind Abner and became [^d]a unit, and took their stand on top of a hill. 
+Now the children of Benjamin gathered together behind Abner and became a unit, and took their stand on top of a hill. 
 
 ###### 26 
 Then Abner called to Joab and said, "Shall the sword devour forever? Do you not know that it will be bitter in the latter end? How long will it be then until you tell the people to return from pursuing their brethren?" 
 
 ###### 27 
-And Joab said, "_As_ God lives, [^e]unless you had spoken, surely then by morning all the people would have given up pursuing their brethren." 
+And Joab said, "_As_ God lives, unless you had spoken, surely then by morning all the people would have given up pursuing their brethren." 
 
 ###### 28 
 So Joab blew a trumpet; and all the people stood still and did not pursue Israel anymore, nor did they fight anymore. 

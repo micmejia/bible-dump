@@ -7,7 +7,7 @@ next: ['Gen 41']
 # Genesis 40
 
 ***
-###### 1-2 Pagkatapos ng mga nangyaring ito, nagkasala sa Faraon[^a] ang pinuno ng mga tagasilbi niya ng alak at pinuno ng mga panadero. Lubhang nagalit ang hari sa dalawa niyang opisyal na ito. 
+###### 1-2 Pagkatapos ng mga nangyaring ito, nagkasala sa Faraon ang pinuno ng mga tagasilbi niya ng alak at pinuno ng mga panadero. Lubhang nagalit ang hari sa dalawa niyang opisyal na ito. 
 
 
 

@@ -73,7 +73,7 @@ Ang lupain na ibinigay sa mga lahi ni Jose ay nagsimula sa <i class="trans-chang
 
 
 
-Mula sa Betel (na siyang Luz),[^a] dumaraan ito sa Atarot na kung saan nakatira ang mga Arkeo 
+Mula sa Betel (na siyang Luz), dumaraan ito sa Atarot na kung saan nakatira ang mga Arkeo 
 
 
 

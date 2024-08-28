@@ -10,13 +10,13 @@ next: ['Luke 9']
 
 
 ###### 1 
-Now it came to pass, afterward, that He went through every city and village, preaching and [^a]bringing the glad tidings of the kingdom of God. And the twelve _were_ with Him, 
+Now it came to pass, afterward, that He went through every city and village, preaching and bringing the glad tidings of the kingdom of God. And the twelve _were_ with Him, 
 
 ###### 2 
-and certain women who had been healed of evil spirits and [^b]infirmities--Mary called Magdalene, out of whom had come seven demons, 
+and certain women who had been healed of evil spirits and infirmities--Mary called Magdalene, out of whom had come seven demons, 
 
 ###### 3 
-and Joanna the wife of Chuza, Herod's steward, and Susanna, and many others who provided for [^c]Him from their [^d]substance. ## The Parable of the Sower 
+and Joanna the wife of Chuza, Herod's steward, and Susanna, and many others who provided for Him from their substance. ## The Parable of the Sower 
 
 ###### 4 
 And when a great multitude had gathered, and they had come to Him from every city, He spoke by a parable: 
@@ -31,13 +31,13 @@ Some fell on rock; and as soon as it sprang up, it withered away because it lack
 And some fell among thorns, and the thorns sprang up with it and choked it. 
 
 ###### 8 
-But others fell on good ground, sprang up, and yielded [^e]a crop a hundredfold." When He had said these things He cried, "He who has ears to hear, let him hear!" ## The Purpose of Parables 
+But others fell on good ground, sprang up, and yielded a crop a hundredfold." When He had said these things He cried, "He who has ears to hear, let him hear!" ## The Purpose of Parables 
 
 ###### 9 
 Then His disciples asked Him, saying, "What does this parable mean?" 
 
 ###### 10 
-And He said, "To you it has been given to know the [^f]mysteries of the kingdom of God, but to the rest _it is given_ in parables, that 'Seeing they may not see, And hearing they may not understand.' ## The Parable of the Sower Explained 
+And He said, "To you it has been given to know the mysteries of the kingdom of God, but to the rest _it is given_ in parables, that 'Seeing they may not see, And hearing they may not understand.' ## The Parable of the Sower Explained 
 
 ###### 11 
 "Now the parable is this: The seed is the word of God. 
@@ -46,13 +46,13 @@ And He said, "To you it has been given to know the [^f]mysteries of the kingdom 
 Those by the wayside are the ones who hear; then the devil comes and takes away the word out of their hearts, lest they should believe and be saved. 
 
 ###### 13 
-But the ones on the rock _are those_ who, when they hear, receive the word with joy; and these have no root, who believe for a while and in time of [^g]temptation fall away. 
+But the ones on the rock _are those_ who, when they hear, receive the word with joy; and these have no root, who believe for a while and in time of temptation fall away. 
 
 ###### 14 
 Now the ones _that_ fell among thorns are those who, when they have heard, go out and are choked with cares, riches, and pleasures of life, and bring no fruit to maturity. 
 
 ###### 15 
-But the ones _that_ fell on the good ground are those who, having heard the word with a noble and good heart, keep _it_ and bear fruit with patience.[^h] ## The Parable of the Revealed Light 
+But the ones _that_ fell on the good ground are those who, having heard the word with a noble and good heart, keep _it_ and bear fruit with patience. ## The Parable of the Revealed Light 
 
 ###### 16 
 "No one, when he has lit a lamp, covers it with a vessel or puts _it_ under a bed, but sets _it_ on a lampstand, that those who enter may see the light. 
@@ -61,7 +61,7 @@ But the ones _that_ fell on the good ground are those who, having heard the word
 For nothing is secret that will not be revealed, nor _anything_ hidden that will not be known and come to light. 
 
 ###### 18 
-Therefore take heed how you hear. For whoever has, to him _more_ will be given; and whoever does not have, even what he [^i]seems to have will be taken from him." ## Jesus' Mother and Brothers Come to Him 
+Therefore take heed how you hear. For whoever has, to him _more_ will be given; and whoever does not have, even what he seems to have will be taken from him." ## Jesus' Mother and Brothers Come to Him 
 
 ###### 19 
 Then His mother and brothers came to Him, and could not approach Him because of the crowd. 
@@ -76,7 +76,7 @@ But He answered and said to them, "My mother and My brothers are these who hear 
 Now it happened, on a certain day, that He got into a boat with His disciples. And He said to them, "Let us cross over to the other side of the lake." And they launched out. 
 
 ###### 23 
-But as they sailed He fell asleep. And a windstorm came down on the lake, and they were filling _with water,_ and were in [^j]jeopardy. 
+But as they sailed He fell asleep. And a windstorm came down on the lake, and they were filling _with water,_ and were in jeopardy. 
 
 ###### 24 
 And they came to Him and awoke Him, saying, "Master, Master, we are perishing!" Then He arose and rebuked the wind and the raging of the water. And they ceased, and there was a calm. 
@@ -85,10 +85,10 @@ And they came to Him and awoke Him, saying, "Master, Master, we are perishing!" 
 But He said to them, "Where is your faith?" And they were afraid, and marveled, saying to one another, "Who can this be? For He commands even the winds and water, and they obey Him!" ## A Demon-Possessed Man Healed 
 
 ###### 26 
-Then they sailed to the country of the [^k]Gadarenes, which is opposite Galilee. 
+Then they sailed to the country of the Gadarenes, which is opposite Galilee. 
 
 ###### 27 
-And when He stepped out on the land, there met Him a certain man from the city who had demons [^l]for a long time. And he wore no clothes, nor did he live in a house but in the tombs. 
+And when He stepped out on the land, there met Him a certain man from the city who had demons for a long time. And he wore no clothes, nor did he live in a house but in the tombs. 
 
 ###### 28 
 When he saw Jesus, he cried out, fell down before Him, and with a loud voice said, "What have I to do with You, Jesus, Son of the Most High God? I beg You, do not torment me!" 
@@ -115,10 +115,10 @@ When those who fed _them_ saw what had happened, they fled and told _it_ in the 
 Then they went out to see what had happened, and came to Jesus, and found the man from whom the demons had departed, sitting at the feet of Jesus, clothed and in his right mind. And they were afraid. 
 
 ###### 36 
-They also who had seen _it_ told them by what means he who had been demon-possessed was [^m]healed. 
+They also who had seen _it_ told them by what means he who had been demon-possessed was healed. 
 
 ###### 37 
-Then the whole multitude of the surrounding region of the [^n]Gadarenes asked Him to depart from them, for they were seized with great fear. And He got into the boat and returned. 
+Then the whole multitude of the surrounding region of the Gadarenes asked Him to depart from them, for they were seized with great fear. And He got into the boat and returned. 
 
 ###### 38 
 Now the man from whom the demons had departed begged Him that he might be with Him. But Jesus sent him away, saying, 
@@ -142,7 +142,7 @@ Now a woman, having a flow of blood for twelve years, who had spent all her live
 came from behind and touched the border of His garment. And immediately her flow of blood stopped. 
 
 ###### 45 
-And Jesus said, "Who touched Me?" When all denied it, Peter [^o]and those with him said, "Master, the multitudes throng and press You, [^p]and You say, 'Who touched Me?' " 
+And Jesus said, "Who touched Me?" When all denied it, Peter and those with him said, "Master, the multitudes throng and press You, and You say, 'Who touched Me?' " 
 
 ###### 46 
 But Jesus said, "Somebody touched Me, for I perceived power going out from Me." 
@@ -151,16 +151,16 @@ But Jesus said, "Somebody touched Me, for I perceived power going out from Me."
 Now when the woman saw that she was not hidden, she came trembling; and falling down before Him, she declared to Him in the presence of all the people the reason she had touched Him and how she was healed immediately. 
 
 ###### 48 
-And He said to her, "Daughter, [^q]be of good cheer; your faith has made you well. Go in peace." 
+And He said to her, "Daughter, be of good cheer; your faith has made you well. Go in peace." 
 
 ###### 49 
-While He was still speaking, someone came from the ruler of the synagogue's _house,_ saying to him, "Your daughter is dead. Do not trouble the [^r]Teacher." 
+While He was still speaking, someone came from the ruler of the synagogue's _house,_ saying to him, "Your daughter is dead. Do not trouble the Teacher." 
 
 ###### 50 
 But when Jesus heard _it,_ He answered him, saying, "Do not be afraid; only believe, and she will be made well." 
 
 ###### 51 
-When He came into the house, He permitted no one to go [^s]in except [^t]Peter, James, and John, and the father and mother of the girl. 
+When He came into the house, He permitted no one to go in except Peter, James, and John, and the father and mother of the girl. 
 
 ###### 52 
 Now all wept and mourned for her; but He said, "Do not weep; she is not dead, but sleeping." 
@@ -169,7 +169,7 @@ Now all wept and mourned for her; but He said, "Do not weep; she is not dead, bu
 And they ridiculed Him, knowing that she was dead. 
 
 ###### 54 
-But He [^u]put them all outside, took her by the hand and called, saying, "Little girl, arise." 
+But He put them all outside, took her by the hand and called, saying, "Little girl, arise." 
 
 ###### 55 
 Then her spirit returned, and she arose immediately. And He commanded that she be given _something_ to eat. 

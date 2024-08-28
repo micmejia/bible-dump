@@ -91,7 +91,7 @@ Yet he clung to the sins of Jeroboam son of Nebat, which made Israel to sin; he 
 
 
 
-[^a]Mesha king of Moab was a sheepmaster, and paid in tribute to the king of Israel [annually] 100,000 lambs and 100,000 rams, with the wool. 
+Mesha king of Moab was a sheepmaster, and paid in tribute to the king of Israel [annually] 100,000 lambs and 100,000 rams, with the wool. 
 
 
 

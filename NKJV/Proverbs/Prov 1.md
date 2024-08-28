@@ -12,7 +12,7 @@ next: ['Prov 2']
 The proverbs of Solomon the son of David, king of Israel: 
 
 ###### 2 
-To know wisdom and instruction, To [^a]perceive the words of understanding, 
+To know wisdom and instruction, To perceive the words of understanding, 
 
 ###### 3 
 To receive the instruction of wisdom, Justice, judgment, and equity; 
@@ -21,7 +21,7 @@ To receive the instruction of wisdom, Justice, judgment, and equity;
 To give prudence to the simple, To the young man knowledge and discretion-- 
 
 ###### 5 
-A wise _man_ will hear and increase learning, And a man of understanding will [^b]attain wise counsel, 
+A wise _man_ will hear and increase learning, And a man of understanding will attain wise counsel, 
 
 ###### 6 
 To understand a proverb and an enigma, The words of the wise and their riddles. 
@@ -42,10 +42,10 @@ My son, if sinners entice you, Do not consent.
 If they say, "Come with us, Let us lie in wait to _shed_ blood; Let us lurk secretly for the innocent without cause; 
 
 ###### 12 
-Let us swallow them alive like [^c]Sheol, And whole, like those who go down to the Pit; 
+Let us swallow them alive like Sheol, And whole, like those who go down to the Pit; 
 
 ###### 13 
-We shall find all _kinds_ of precious [^d]possessions, We shall fill our houses with [^e]spoil; 
+We shall find all _kinds_ of precious possessions, We shall fill our houses with spoil; 
 
 ###### 14 
 Cast in your lot among us, Let us all have one purse"-- 
@@ -57,7 +57,7 @@ My son, do not walk in the way with them, Keep your foot from their path;
 For their feet run to evil, And they make haste to shed blood. 
 
 ###### 17 
-Surely, in [^f]vain the net is spread In the sight of any [^g]bird; 
+Surely, in vain the net is spread In the sight of any bird; 
 
 ###### 18 
 But they lie in wait for their _own_ blood, They lurk secretly for their _own_ lives. 
@@ -66,13 +66,13 @@ But they lie in wait for their _own_ blood, They lurk secretly for their _own_ l
 So _are_ the ways of everyone who is greedy for gain; It takes away the life of its owners. ## The Call of Wisdom 
 
 ###### 20 
-Wisdom calls aloud [^h]outside; She raises her voice in the open squares. 
+Wisdom calls aloud outside; She raises her voice in the open squares. 
 
 ###### 21 
-She cries out in the [^i]chief concourses, At the openings of the gates in the city She speaks her words: 
+She cries out in the chief concourses, At the openings of the gates in the city She speaks her words: 
 
 ###### 22 
-"How long, you [^j]simple ones, will you love [^k]simplicity? For scorners delight in their scorning, And fools hate knowledge. 
+"How long, you simple ones, will you love simplicity? For scorners delight in their scorning, And fools hate knowledge. 
 
 ###### 23 
 Turn at my rebuke; Surely I will pour out my spirit on you; I will make my words known to you. 
@@ -102,7 +102,7 @@ They would have none of my counsel _And_ despised my every rebuke.
 Therefore they shall eat the fruit of their own way, And be filled to the full with their own fancies. 
 
 ###### 32 
-For the [^l]turning away of the simple will slay them, And the complacency of fools will destroy them; 
+For the turning away of the simple will slay them, And the complacency of fools will destroy them; 
 
 ###### 33 
-But whoever listens to me will dwell safely, And will be [^m]secure, without fear of evil."
+But whoever listens to me will dwell safely, And will be secure, without fear of evil."

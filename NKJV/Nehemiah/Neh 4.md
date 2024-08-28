@@ -28,7 +28,7 @@ Do not cover their iniquity, and do not let their sin be blotted out from before
 So we built the wall, and the entire wall was joined together up to half its _height,_ for the people had a mind to work. 
 
 ###### 7 
-Now it happened, when Sanballat, Tobiah, the Arabs, the Ammonites, and the Ashdodites heard that the walls of Jerusalem were being restored and the [^a]gaps were beginning to be closed, that they became very angry, 
+Now it happened, when Sanballat, Tobiah, the Arabs, the Ammonites, and the Ashdodites heard that the walls of Jerusalem were being restored and the gaps were beginning to be closed, that they became very angry, 
 
 ###### 8 
 and all of them conspired together to come _and_ attack Jerusalem and create confusion. 
@@ -55,7 +55,7 @@ And I looked, and arose and said to the nobles, to the leaders, and to the rest 
 And it happened, when our enemies heard that it was known to us, and _that_ God had brought their plot to nothing, that all of us returned to the wall, everyone to his work. 
 
 ###### 16 
-So it was, from that time on, _that_ half of my servants worked at construction, while the other half held the spears, the shields, the bows, and _wore_ armor; and the leaders [^b]_were_ behind all the house of Judah. 
+So it was, from that time on, _that_ half of my servants worked at construction, while the other half held the spears, the shields, the bows, and _wore_ armor; and the leaders _were_ behind all the house of Judah. 
 
 ###### 17 
 Those who built on the wall, and those who carried burdens, loaded themselves so that with one hand they worked at construction, and with the other held a weapon. 
@@ -70,7 +70,7 @@ Then I said to the nobles, the rulers, and the rest of the people, "The work _is
 Wherever you hear the sound of the trumpet, rally to us there. Our God will fight for us." 
 
 ###### 21 
-So we labored in the work, and half of [^c]_the men_ held the spears from daybreak until the stars appeared. 
+So we labored in the work, and half of _the men_ held the spears from daybreak until the stars appeared. 
 
 ###### 22 
 At the same time I also said to the people, "Let each man and his servant stay at night in Jerusalem, that they may be our guard by night and a working party by day." 

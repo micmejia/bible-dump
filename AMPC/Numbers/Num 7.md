@@ -364,7 +364,7 @@ One male goat for a sin offering;
 
 
 
-And [^a]for the sacrifice of peace offerings, two oxen, five rams, five male goats, five male lambs a year old. This was the offering of Nahshon son of Amminadab. 
+And for the sacrifice of peace offerings, two oxen, five rams, five male goats, five male lambs a year old. This was the offering of Nahshon son of Amminadab. 
 
 
 

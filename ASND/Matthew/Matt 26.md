@@ -73,7 +73,7 @@ Pagkatapos ipangaral ni Jesus ang lahat ng ito, sinabi niya sa mga tagasunod niy
 
 
 
-"Alam nʼyo na dalawang araw na lang at sasapit na ang Pista ng Paglampas ng Anghel,[^a] at <i class="trans-change">ako na_ Anak ng Tao ay ibibigay <i class="trans-change">sa mga taong kumokontra sa akin_ upang ipako sa krus." 
+"Alam nʼyo na dalawang araw na lang at sasapit na ang Pista ng Paglampas ng Anghel, at <i class="trans-change">ako na_ Anak ng Tao ay ibibigay <i class="trans-change">sa mga taong kumokontra sa akin_ upang ipako sa krus." 
 
 
 
@@ -898,7 +898,7 @@ Habang kumakain sila, kumuha si Jesus ng tinapay. Nagpasalamat siya <i class="tr
 
 
 
-Pagkatapos, kumuha siya ng inumin,[^b] nagpasalamat <i class="trans-change">sa Dios_, at ibinigay sa kanila. Sinabi niya, "Uminom kayong lahat nito, 
+Pagkatapos, kumuha siya ng inumin, nagpasalamat <i class="trans-change">sa Dios_, at ibinigay sa kanila. Sinabi niya, "Uminom kayong lahat nito, 
 
 
 
@@ -931,7 +931,7 @@ Pagkatapos, kumuha siya ng inumin,[^b] nagpasalamat <i class="trans-change">sa D
 
 
 
-dahil ito ang aking dugo na ibubuhos para sa kapatawaran ng kasalanan ng maraming tao. Katibayan ito ng bagong[^c] kasunduan ng Dios sa mga tao. 
+dahil ito ang aking dugo na ibubuhos para sa kapatawaran ng kasalanan ng maraming tao. Katibayan ito ng bagong kasunduan ng Dios sa mga tao. 
 
 
 
@@ -1030,7 +1030,7 @@ Umawit sila ng papuri <i class="trans-change">sa Dios_, at pagkatapos ay pumunta
 
 
 
-Sinabi ni Jesus sa mga tagasunod niya, "Iiwan ninyo akong lahat ngayong gabi, dahil sinabi <i class="trans-change">ng Dios_ sa Kasulatan, 'Papatayin ko ang pastol at magsisipangalat ang mga tupa.'[^d] 
+Sinabi ni Jesus sa mga tagasunod niya, "Iiwan ninyo akong lahat ngayong gabi, dahil sinabi <i class="trans-change">ng Dios_ sa Kasulatan, 'Papatayin ko ang pastol at magsisipangalat ang mga tupa.' 
 
 
 
@@ -1294,7 +1294,7 @@ at sinabi niya sa kanila, "Para akong mamamatay sa labis na kalungkutan. Dito la
 
 
 
-Lumayo siya nang kaunti, lumuhod at nanalangin, "Ama ko, kung maaari po ay ilayo nʼyo sana sa akin ang mga paghihirap na darating.[^e] Ngunit hindi ang kalooban ko ang masunod kundi ang kalooban ninyo." 
+Lumayo siya nang kaunti, lumuhod at nanalangin, "Ama ko, kung maaari po ay ilayo nʼyo sana sa akin ang mga paghihirap na darating. Ngunit hindi ang kalooban ko ang masunod kundi ang kalooban ninyo." 
 
 
 
@@ -1360,7 +1360,7 @@ Binalikan ni Jesus ang <i class="trans-change">tatlo niyang_ tagasunod at dinatn
 
 
 
-Magpuyat kayo at manalangin upang hindi kayo madaig ng tukso. Ang espirituʼy handang sumunod, ngunit mahina ang laman."[^f] 
+Magpuyat kayo at manalangin upang hindi kayo madaig ng tukso. Ang espirituʼy handang sumunod, ngunit mahina ang laman." 
 
 
 

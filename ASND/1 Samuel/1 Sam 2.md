@@ -172,7 +172,7 @@ Nililipol niya ang mga makapangyarihan, ngunit pinalalakas niya ang mahihina.
 
 
 
-Ang mayayaman noon, ngayon ay nagtatrabaho para lang may makain. Ngunit ang mahihirap noon ay sagana na ngayon. Ang dating baog ay marami nang anak.[^a] Ngunit ang may maraming anak ay nawalan ng mga ito. 
+Ang mayayaman noon, ngayon ay nagtatrabaho para lang may makain. Ngunit ang mahihirap noon ay sagana na ngayon. Ang dating baog ay marami nang anak. Ngunit ang may maraming anak ay nawalan ng mga ito. 
 
 
 
@@ -337,7 +337,7 @@ Iniingatan niya ang tapat niyang mamamayan. Ngunit lilipulin niya ang masasama. 
 
 
 
-Dudurugin niya ang kanyang mga kaaway. Padadagundungin niya ang langit laban sa kanila. Ang Panginoon ang hahatol sa buong mundo.[^b] Dahil sa kanya, magiging makapangyarihan at laging magtatagumpay ang haring kanyang hinirang." 
+Dudurugin niya ang kanyang mga kaaway. Padadagundungin niya ang langit laban sa kanila. Ang Panginoon ang hahatol sa buong mundo. Dahil sa kanya, magiging makapangyarihan at laging magtatagumpay ang haring kanyang hinirang." 
 
 
 
@@ -601,7 +601,7 @@ Malaking kasalanan sa paningin ng Panginoon ang ginagawa ng mga anak ni Eli dahi
 
 
 
-Samantala, patuloy na naglilingkod sa Panginoon ang batang si Samuel. Suot-suot niya ang espesyal na damit[^c] na gawa sa <i class="trans-change">telang_ linen. 
+Samantala, patuloy na naglilingkod sa Panginoon ang batang si Samuel. Suot-suot niya ang espesyal na damit na gawa sa <i class="trans-change">telang_ linen. 
 
 
 
@@ -832,7 +832,7 @@ Mga anak, tigilan na ninyo ito, dahil hindi maganda ang nababalitaan ko tungkol 
 
 
 
-Sinabi pa ni Eli, "Kung magkasala ang isang tao sa kanyang kapwa, maaaring mamamagitan ang Dios[^d] sa kanila; pero sino ang mamamagitan kung magkasala ang tao sa Panginoon?" Pero hindi nakinig ang mga anak niya dahil nakapagpasya na ang Panginoon na patayin sila. 
+Sinabi pa ni Eli, "Kung magkasala ang isang tao sa kanyang kapwa, maaaring mamamagitan ang Dios sa kanila; pero sino ang mamamagitan kung magkasala ang tao sa Panginoon?" Pero hindi nakinig ang mga anak niya dahil nakapagpasya na ang Panginoon na patayin sila. 
 
 
 
@@ -964,7 +964,7 @@ Sa lahat ng lahi ng Israel, ang pamilya niya ang pinili ko na maging aking pari 
 
 
 
-Bakit pinag-iinteresan[^e] pa ninyo ang mga handog na para sa akin? Bakit mas iginagalang mo pa, <i class="trans-change">Eli,_ ang mga anak mo kaysa sa akin? Hinahayaan mong patabain nila ang kanilang mga sarili ng mga pinakamagandang bahagi ng handog ng mga mamamayan kong Israelita. 
+Bakit pinag-iinteresan pa ninyo ang mga handog na para sa akin? Bakit mas iginagalang mo pa, <i class="trans-change">Eli,_ ang mga anak mo kaysa sa akin? Hinahayaan mong patabain nila ang kanilang mga sarili ng mga pinakamagandang bahagi ng handog ng mga mamamayan kong Israelita. 
 
 
 

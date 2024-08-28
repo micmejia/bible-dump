@@ -28,7 +28,7 @@ When Haman saw that Mordecai did not bow or pay him homage, Haman was filled wit
 But he disdained to lay hands on Mordecai alone, for they had told him of the people of Mordecai. Instead, Haman sought to destroy all the Jews who _were_ throughout the whole kingdom of Ahasuerus--the people of Mordecai. 
 
 ###### 7 
-In the first month, which is the month of Nisan, in the twelfth year of King Ahasuerus, they cast Pur (that _is,_ the lot), before Haman [^a]to determine the day and the [^b]month, [^c]until _it fell on the_ twelfth _month,_ which _is_ the month of Adar. 
+In the first month, which is the month of Nisan, in the twelfth year of King Ahasuerus, they cast Pur (that _is,_ the lot), before Haman to determine the day and the month, until _it fell on the_ twelfth _month,_ which _is_ the month of Adar. 
 
 ###### 8 
 Then Haman said to King Ahasuerus, "There is a certain people scattered and dispersed among the people in all the provinces of your kingdom; their laws _are_ different from all _other_ people's, and they do not keep the king's laws. Therefore it _is_ not fitting for the king to let them remain. 
@@ -46,10 +46,10 @@ And the king said to Haman, "The money and the people _are_ given to you, to do 
 Then the king's scribes were called on the thirteenth day of the first month, and _a decree_ was written according to all that Haman commanded--to the king's satraps, to the governors who _were_ over each province, to the officials of all people, to every province according to its script, and to every people in their language. In the name of King Ahasuerus it was written, and sealed with the king's signet ring. 
 
 ###### 13 
-And the letters were sent by couriers into all the king's provinces, to destroy, to kill, and to annihilate all the Jews, both young and old, little children and women, in one day, on the thirteenth _day_ of the twelfth month, which _is_ the month of Adar, and to plunder their [^d]possessions. 
+And the letters were sent by couriers into all the king's provinces, to destroy, to kill, and to annihilate all the Jews, both young and old, little children and women, in one day, on the thirteenth _day_ of the twelfth month, which _is_ the month of Adar, and to plunder their possessions. 
 
 ###### 14 
 A copy of the document was to be issued as law in every province, being published for all people, that they should be ready for that day. 
 
 ###### 15 
-The couriers went out, hastened by the king's command; and the decree was proclaimed in [^e]Shushan the [^f]citadel. So the king and Haman sat down to drink, but the city of Shushan was [^g]perplexed.
+The couriers went out, hastened by the king's command; and the decree was proclaimed in Shushan the citadel. So the king and Haman sat down to drink, but the city of Shushan was perplexed.

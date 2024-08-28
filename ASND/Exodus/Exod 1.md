@@ -39,7 +39,7 @@ next: ['Exod 2']
 
 
 
-Ito ang mga anak na lalaki ni Jacob[^a] na sumama sa kanya sa Egipto, kasama ang kanilang mga pamilya: 
+Ito ang mga anak na lalaki ni Jacob na sumama sa kanya sa Egipto, kasama ang kanilang mga pamilya: 
 
 
 
@@ -369,7 +369,7 @@ Dahil baka magkaroon ng digmaan at kumampi sila sa mga kaaway natin, at lumaban 
 
 
 
-Kaya naglagay sila ng mahihigpit na tao na mamamahala sa mga Israelita para pahirapan sila at pagtrabahuhin nang mabigat. Ipinagawa sa mga Israelita ang mga lungsod ng Pitom at Rameses para magkaroon dito ng mga bodega ang Faraon.[^b] 
+Kaya naglagay sila ng mahihigpit na tao na mamamahala sa mga Israelita para pahirapan sila at pagtrabahuhin nang mabigat. Ipinagawa sa mga Israelita ang mga lungsod ng Pitom at Rameses para magkaroon dito ng mga bodega ang Faraon. 
 
 
 

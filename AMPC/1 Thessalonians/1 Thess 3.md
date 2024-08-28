@@ -154,7 +154,7 @@ But now that Timothy has just come back to us from [his visit to] you and has br
 
 
 
-Brethren, for this reason, in [spite of all] our stress and crushing difficulties we have been filled with comfort _and_ cheer about you [because of] your faith ([^a]the leaning of your whole personality on God in complete trust and confidence). 
+Brethren, for this reason, in [spite of all] our stress and crushing difficulties we have been filled with comfort _and_ cheer about you [because of] your faith (the leaning of your whole personality on God in complete trust and confidence). 
 
 
 
@@ -280,4 +280,4 @@ And may the Lord make you to increase and excel _and_ overflow in love for one a
 
 
 
-So that He may strengthen _and_ confirm _and_ establish your hearts faultlessly pure _and_ unblamable in holiness in the sight of our God and Father, at the coming of our Lord Jesus _Christ (the Messiah)_ with all His saints (the [^b]holy and glorified people of God)! _Amen, (so be it)!_
+So that He may strengthen _and_ confirm _and_ establish your hearts faultlessly pure _and_ unblamable in holiness in the sight of our God and Father, at the coming of our Lord Jesus _Christ (the Messiah)_ with all His saints (the holy and glorified people of God)! _Amen, (so be it)!_

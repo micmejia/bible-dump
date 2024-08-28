@@ -34,7 +34,7 @@ Then the king arose in his wrath from the banquet of wine _and went_ into the pa
 When the king returned from the palace garden to the place of the banquet of wine, Haman had fallen across the couch where Esther _was._ Then the king said, "Will he also assault the queen while I _am_ in the house?" As the word left the king's mouth, they covered Haman's face. 
 
 ###### 9 
-Now Harbonah, one of the eunuchs, said to the king, "Look! The [^a]gallows, fifty cubits high, which Haman made for Mordecai, who spoke good on the king's behalf, is standing at the house of Haman." Then the king said, "Hang him on it!" 
+Now Harbonah, one of the eunuchs, said to the king, "Look! The gallows, fifty cubits high, which Haman made for Mordecai, who spoke good on the king's behalf, is standing at the house of Haman." Then the king said, "Hang him on it!" 
 
 ###### 10 
 So they hanged Haman on the gallows that he had prepared for Mordecai. Then the king's wrath subsided.

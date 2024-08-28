@@ -370,7 +370,7 @@ Sa pagkakataong iyon, bumunot ng espada si Simon Pedro at tinaga ang alipin ng p
 
 
 
-Pero sinaway ni Jesus si Pedro, "Ibalik mo ang espada mo sa lalagyan nito. Sa palagay mo baʼy hindi ko titiisin ang paghihirap na ibinigay sa akin[^a] ng Ama?" ## Dinala si Jesus kay Anas 
+Pero sinaway ni Jesus si Pedro, "Ibalik mo ang espada mo sa lalagyan nito. Sa palagay mo baʼy hindi ko titiisin ang paghihirap na ibinigay sa akin ng Ama?" ## Dinala si Jesus kay Anas 
 
 
 

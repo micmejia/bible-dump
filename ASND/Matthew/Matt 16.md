@@ -40,7 +40,7 @@ next: ['Matt 17']
 
 
 
-May mga Pariseo at Saduceo na lumapit kay Jesus para subukin siya. Hiniling nilang magpakita siya ng himala mula sa Dios[^a] bilang patunay <i class="trans-change">na sugo siya ng Dios_. 
+May mga Pariseo at Saduceo na lumapit kay Jesus para subukin siya. Hiniling nilang magpakita siya ng himala mula sa Dios bilang patunay <i class="trans-change">na sugo siya ng Dios_. 
 
 
 
@@ -205,7 +205,7 @@ Tumawid ng lawa <i class="trans-change">si Jesus at_ ang mga tagasunod <i class=
 
 
 
-Sinabi ni Jesus sa kanila, "Mag-ingat kayo sa pampaalsa[^b] ng mga Pariseo at mga Saduceo." 
+Sinabi ni Jesus sa kanila, "Mag-ingat kayo sa pampaalsa ng mga Pariseo at mga Saduceo." 
 
 
 
@@ -601,7 +601,7 @@ Sinabi ni Jesus sa kanya, "Pinagpala ka <i class="trans-change">ng Dios_, Simon 
 
 
 
-At ngayon sinasabi ko sa iyo na ikaw si Pedro,[^c] at sa batong ito, itatayo ko ang aking iglesya,[^d] at hindi ito malulupig kahit ng kapangyarihan ng kamatayan.[^e] 
+At ngayon sinasabi ko sa iyo na ikaw si Pedro, at sa batong ito, itatayo ko ang aking iglesya, at hindi ito malulupig kahit ng kapangyarihan ng kamatayan. 
 
 
 
@@ -634,7 +634,7 @@ At ngayon sinasabi ko sa iyo na ikaw si Pedro,[^c] at sa batong ito, itatayo ko 
 
 
 
-Ibibigay ko sa iyo ang kapangyarihan[^f] sa kaharian ng Dios.[^g] Anuman ang ipagbawal mo sa lupa ay ipagbabawal din sa langit, at anuman ang ipahintulot mo sa lupa ay ipapahintulot din sa langit." 
+Ibibigay ko sa iyo ang kapangyarihan sa kaharian ng Dios. Anuman ang ipagbawal mo sa lupa ay ipagbabawal din sa langit, at anuman ang ipahintulot mo sa lupa ay ipapahintulot din sa langit." 
 
 
 
@@ -799,7 +799,7 @@ Hinarap ni Jesus si Pedro at sinabi, "Lumayo ka sa akin, Satanas! Pinipigilan mo
 
 
 
-Pagkatapos, sinabi ni Jesus sa mga tagasunod niya, "Ang sinumang gustong sumunod sa akin ay hindi dapat inuuna ang sarili. At dapat handa siyang humarap kahit sa kamatayan[^h] alang-alang sa pagsunod niya sa akin. 
+Pagkatapos, sinabi ni Jesus sa mga tagasunod niya, "Ang sinumang gustong sumunod sa akin ay hindi dapat inuuna ang sarili. At dapat handa siyang humarap kahit sa kamatayan alang-alang sa pagsunod niya sa akin. 
 
 
 

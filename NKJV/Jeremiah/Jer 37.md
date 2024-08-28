@@ -49,7 +49,7 @@ that Jeremiah went out of Jerusalem to go into the land of Benjamin to claim his
 And when he was in the Gate of Benjamin, a captain of the guard _was_ there whose name _was_ Irijah the son of Shelemiah, the son of Hananiah; and he seized Jeremiah the prophet, saying, "You are defecting to the Chaldeans!" 
 
 ###### 14 
-Then Jeremiah said, [^a]"False! I am not defecting to the Chaldeans." But he did not listen to him. So Irijah seized Jeremiah and brought him to the princes. 
+Then Jeremiah said, "False! I am not defecting to the Chaldeans." But he did not listen to him. So Irijah seized Jeremiah and brought him to the princes. 
 
 ###### 15 
 Therefore the princes were angry with Jeremiah, and they struck him and put him in prison in the house of Jonathan the scribe. For they had made that the prison. 

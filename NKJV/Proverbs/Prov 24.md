@@ -31,7 +31,7 @@ For by wise counsel you will wage your own war, And in a multitude of counselors
 Wisdom _is_ too lofty for a fool; He does not open his mouth in the gate. 
 
 ###### 8 
-He who plots to do evil Will be called a [^a]schemer. 
+He who plots to do evil Will be called a schemer. 
 
 ###### 9 
 The devising of foolishness _is_ sin, And the scoffer _is_ an abomination to men. 
@@ -49,7 +49,7 @@ If you say, "Surely we did not know this," Does not He who weighs the hearts con
 My son, eat honey because _it is_ good, And the honeycomb _which is_ sweet to your taste; 
 
 ###### 14 
-So _shall_ the knowledge of wisdom _be_ to your soul; If you have found _it,_ there is a [^b]prospect, And your hope will not be cut off. 
+So _shall_ the knowledge of wisdom _be_ to your soul; If you have found _it,_ there is a prospect, And your hope will not be cut off. 
 
 ###### 15 
 Do not lie in wait, O wicked _man,_ against the dwelling of the righteous; Do not plunder his resting place; 
@@ -61,7 +61,7 @@ For a righteous _man_ may fall seven times And rise again, But the wicked shall 
 Do not rejoice when your enemy falls, And do not let your heart be glad when he stumbles; 
 
 ###### 18 
-Lest the Lord see _it,_ and [^c]it displease Him, And He turn away His wrath from him. 
+Lest the Lord see _it,_ and it displease Him, And He turn away His wrath from him. 
 
 ###### 19 
 Do not fret because of evildoers, Nor be envious of the wicked; 
@@ -76,7 +76,7 @@ My son, fear the Lord and the king; Do not associate with those given to change;
 For their calamity will rise suddenly, And who knows the ruin those two can bring? ## Further Sayings of the Wise 
 
 ###### 23 
-These _things_ also _belong_ to the wise: _It is_ not good to [^d]show partiality in judgment. 
+These _things_ also _belong_ to the wise: _It is_ not good to show partiality in judgment. 
 
 ###### 24 
 He who says to the wicked, "You _are_ righteous," Him the people will curse; Nations will abhor him. 
@@ -91,7 +91,7 @@ He who gives a right answer kisses the lips.
 Prepare your outside work, Make it fit for yourself in the field; And afterward build your house. 
 
 ###### 28 
-Do not be a witness against your neighbor without cause, [^e]For would you deceive with your lips? 
+Do not be a witness against your neighbor without cause, For would you deceive with your lips? 
 
 ###### 29 
 Do not say, "I will do to him just as he has done to me; I will render to the man according to his work." 
@@ -109,4 +109,4 @@ When I saw _it,_ I considered _it_ well; I looked on _it and_ received instructi
 A little sleep, a little slumber, A little folding of the hands to rest; 
 
 ###### 34 
-So shall your poverty come _like_ [^f]a prowler, And your need like [^g]an armed man.
+So shall your poverty come _like_ a prowler, And your need like an armed man.

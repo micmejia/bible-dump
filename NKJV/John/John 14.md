@@ -13,7 +13,7 @@ next: ['John 15']
 "Let not your heart be troubled; you believe in God, believe also in Me. 
 
 ###### 2 
-In My Father's house are many [^a]mansions; if _it were_ not _so,_ [^b]I would have told you. I go to prepare a place for you. 
+In My Father's house are many mansions; if _it were_ not _so,_ I would have told you. I go to prepare a place for you. 
 
 ###### 3 
 And if I go and prepare a place for you, I will come again and receive you to Myself; that where I am, _there_ you may be also. 
@@ -49,13 +49,13 @@ Believe Me that I _am_ in the Father and the Father in Me, or else believe Me fo
 And whatever you ask in My name, that I will do, that the Father may be glorified in the Son. 
 
 ###### 14 
-If you [^c]ask anything in My name, I will do _it._ ## Jesus Promises Another Helper 
+If you ask anything in My name, I will do _it._ ## Jesus Promises Another Helper 
 
 ###### 15 
-"If you love Me, [^d]keep My commandments. 
+"If you love Me, keep My commandments. 
 
 ###### 16 
-And I will pray the Father, and He will give you another [^e]Helper, that He may abide with you forever-- 
+And I will pray the Father, and He will give you another Helper, that He may abide with you forever-- 
 
 ###### 17 
 the Spirit of truth, whom the world cannot receive, because it neither sees Him nor knows Him; but you know Him, for He dwells with you and will be in you. 
@@ -70,7 +70,7 @@ I will not leave you orphans; I will come to you. ## Indwelling of the Father an
 At that day you will know that I _am_ in My Father, and you in Me, and I in you. 
 
 ###### 21 
-He who has My commandments and keeps them, it is he who loves Me. And he who loves Me will be loved by My Father, and I will love him and [^f]manifest Myself to him." 
+He who has My commandments and keeps them, it is he who loves Me. And he who loves Me will be loved by My Father, and I will love him and manifest Myself to him." 
 
 ###### 22 
 Judas (not Iscariot) said to Him, "Lord, how is it that You will manifest Yourself to us, and not to the world?" 
@@ -85,13 +85,13 @@ He who does not love Me does not keep My words; and the word which you hear is n
 "These things I have spoken to you while being present with you. 
 
 ###### 26 
-But the [^g]Helper, the Holy Spirit, whom the Father will send in My name, He will teach you all things, and bring to your remembrance all things that I said to you. 
+But the Helper, the Holy Spirit, whom the Father will send in My name, He will teach you all things, and bring to your remembrance all things that I said to you. 
 
 ###### 27 
 Peace I leave with you, My peace I give to you; not as the world gives do I give to you. Let not your heart be troubled, neither let it be afraid. 
 
 ###### 28 
-You have heard Me say to you, 'I am going away and coming _back_ to you.' If you loved Me, you would rejoice because [^h]I said, 'I am going to the Father,' for My Father is greater than I. 
+You have heard Me say to you, 'I am going away and coming _back_ to you.' If you loved Me, you would rejoice because I said, 'I am going to the Father,' for My Father is greater than I. 
 
 ###### 29 
 "And now I have told you before it comes, that when it does come to pass, you may believe. 

@@ -700,7 +700,7 @@ Ipagdiwang ninyo ang Pista ng Tinapay na Walang Pampaalsa. Kagaya ng iniutos ko 
 
 
 
-Makinig kayo sa kanya at sundin ang sinasabi niya. Huwag kayong magrerebelde sa kanya dahil ang lahat ng ginagawa niyaʼy ginagawa niya sa aking pangalan, at hindi niya pababayaang magpatuloy kayo sa mga kasalanan ninyo.[^a] 
+Makinig kayo sa kanya at sundin ang sinasabi niya. Huwag kayong magrerebelde sa kanya dahil ang lahat ng ginagawa niyaʼy ginagawa niya sa aking pangalan, at hindi niya pababayaang magpatuloy kayo sa mga kasalanan ninyo. 
 
 
 
@@ -1030,7 +1030,7 @@ Unti-unti ko silang itataboy hanggang sa dumami na kayo at kaya na ninyong angki
 
 
 
-"Sisiguraduhin ko na ang hangganan ng lupain ninyo ay magsisimula sa Dagat na Pula hanggang sa Dagat ng Mediteraneo,[^b] at mula sa disyerto <i class="trans-change">sa timog_ hanggang sa Ilog <i class="trans-change">ng Eufrates_. Ibibigay ko sa inyo ang mga nakatira sa lupaing iyon, at itataboy nʼyo sila. 
+"Sisiguraduhin ko na ang hangganan ng lupain ninyo ay magsisimula sa Dagat na Pula hanggang sa Dagat ng Mediteraneo, at mula sa disyerto <i class="trans-change">sa timog_ hanggang sa Ilog <i class="trans-change">ng Eufrates_. Ibibigay ko sa inyo ang mga nakatira sa lupaing iyon, at itataboy nʼyo sila. 
 
 
 

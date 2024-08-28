@@ -112,7 +112,7 @@ Men break open shafts away from where people sojourn, in places forgotten by [hu
 
 
 
-As for the earth, out of it comes bread, but underneath [its surface, down deep in the mine] there is [^a]blasting, turning it up as by fire. 
+As for the earth, out of it comes bread, but underneath [its surface, down deep in the mine] there is blasting, turning it up as by fire. 
 
 
 
@@ -259,7 +259,7 @@ He cuts out channels _and_ passages among the rocks; and his eye sees every prec
 
 
 
-But where shall [^b]Wisdom be found? And where is the place of understanding? 
+But where shall Wisdom be found? And where is the place of understanding? 
 
 
 

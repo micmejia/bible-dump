@@ -111,7 +111,7 @@ And while being in their company _and_ eating with them, He commanded them not t
 
 
 
-For John baptized with water, but not many days from now you shall be baptized with ([^a]placed in, introduced into) the Holy Spirit. 
+For John baptized with water, but not many days from now you shall be baptized with (placed in, introduced into) the Holy Spirit. 
 
 
 
@@ -153,7 +153,7 @@ So when they were assembled, they asked Him, Lord, is this the time when You wil
 
 
 
-He said to them, It is not for you to become acquainted with _and_ know [^b]what time brings [the things and events of time and their definite periods] or fixed [^c]years and seasons (their critical niche in time), which the Father has appointed (fixed and reserved) by His own choice _and_ authority _and_ personal power. 
+He said to them, It is not for you to become acquainted with _and_ know what time brings [the things and events of time and their definite periods] or fixed years and seasons (their critical niche in time), which the Father has appointed (fixed and reserved) by His own choice _and_ authority _and_ personal power. 
 
 
 
@@ -279,7 +279,7 @@ Then [the disciples] went back to Jerusalem from the hill called Olivet, which i
 
 
 
-And when they had entered [the city], they mounted [the stairs] to the upper room where they were [[^d]indefinitely] staying--Peter and John and James and Andrew; Philip and Thomas, Bartholomew and Matthew; James son of Alphaeus and Simon the Zealot, and Judas [son] of James. 
+And when they had entered [the city], they mounted [the stairs] to the upper room where they were [indefinitely] staying--Peter and John and James and Andrew; Philip and Thomas, Bartholomew and Matthew; James son of Alphaeus and Simon the Zealot, and Judas [son] of James. 
 
 
 
@@ -510,7 +510,7 @@ And they accordingly proposed (nominated) two men, Joseph called Barsabbas, who 
 
 
 
-And they prayed and said, You, Lord, Who know all hearts ([^e]their thoughts, passions, desires, appetites, purposes, and endeavors), indicate to us which one of these two You have chosen 
+And they prayed and said, You, Lord, Who know all hearts (their thoughts, passions, desires, appetites, purposes, and endeavors), indicate to us which one of these two You have chosen 
 
 
 

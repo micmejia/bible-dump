@@ -172,7 +172,7 @@ At patitigasin ko ang kanyang puso at hahabulin niya kayo. Pero papatayin ko siy
 
 
 
-Nang mabalitaan ng hari ng Egipto na tumakas ang mga Israelita, nagbago ang isip niya at ang lahat ng opisyal tungkol sa pag-alis ng_ mga Israelita. Sinabi nila, "Ano ba ang ginawa natin? Bakit natin pinaalis ang mga Israelita? Ngayon, wala na tayong mga alipin." 
+Nang mabalitaan ng hari ng Egipto na tumakas ang mga Israelita, nagbago ang isip niya at ang lahat ng opisyal tungkol sa pag-alis ng mga Israelita. Sinabi nila, "Ano ba ang ginawa natin? Bakit natin pinaalis ang mga Israelita? Ngayon, wala na tayong mga alipin." 
 
 
 
@@ -304,7 +304,7 @@ Pinatigas ng Panginoon ang puso ng Faraon na hari ng Egipto, kaya hinabol niya a
 
 
 
-Ang mga Egipcio na sumama sa paghabol ay ang mga sundalo ng hari, kasama ang mga mangangabayo niya sakay ng kanilang mga kabayo at karwahe. Naabutan nila ang mga Israelita sa pinagkakampuhan nila sa tabi ng Dagat na Pula_ malapit sa Pi Hahirot, sa harap ng Baal Zefon. 
+Ang mga Egipcio na sumama sa paghabol ay ang mga sundalo ng hari, kasama ang mga mangangabayo niya sakay ng kanilang mga kabayo at karwahe. Naabutan nila ang mga Israelita sa pinagkakampuhan nila sa tabi ng Dagat na Pula malapit sa Pi Hahirot, sa harap ng Baal Zefon. 
 
 
 
@@ -865,7 +865,7 @@ Tinanggal niya ang mga gulong ng mga karwahe nila para mahirapan silang patakbuh
 
 
 
-Nang nakatawid na ang mga Israelita,_ sinabi ng Panginoon kay Moises, "Itaas mo ang iyong kamay sa dagat para bumalik ang tubig at matabunan ang mga Egipcio at ang karwahe nila at mga mangangabayo." 
+Nang nakatawid na ang mga Israelita, sinabi ng Panginoon kay Moises, "Itaas mo ang iyong kamay sa dagat para bumalik ang tubig at matabunan ang mga Egipcio at ang karwahe nila at mga mangangabayo." 
 
 
 

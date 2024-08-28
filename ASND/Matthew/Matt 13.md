@@ -271,7 +271,7 @@ May mga binhi namang nahulog sa lupang may matitinik na damo. Lumago ang mga dam
 
 
 
-Ang iba namaʼy nahulog sa mabuting lupa, lumago_ at namunga. Ang ibaʼy napakarami ng bunga, ang ibaʼy marami-rami, at ang iba namaʼy katamtaman lang. 
+Ang iba namaʼy nahulog sa mabuting lupa, lumago at namunga. Ang ibaʼy napakarami ng bunga, ang ibaʼy marami-rami, at ang iba namaʼy katamtaman lang. 
 
 
 
@@ -634,7 +634,7 @@ Sinasabi ko sa inyo ang totoo, maraming propeta at matutuwid na tao noon ang nag
 
 
 
-Ang tabi ng daan, kung saan nahulog ang ilang binhi ay ang mga taong nakinig ng mensahe tungkol sa paghahari ng Dios_ pero hindi nakaunawa. Dumating si Satanas at inagaw ang salita sa kanilang puso. 
+Ang tabi ng daan, kung saan nahulog ang ilang binhi ay ang mga taong nakinig ng mensahe tungkol sa paghahari ng Dios pero hindi nakaunawa. Dumating si Satanas at inagaw ang salita sa kanilang puso. 
 
 
 
@@ -667,7 +667,7 @@ Ang tabi ng daan, kung saan nahulog ang ilang binhi ay ang mga taong nakinig ng 
 
 
 
-Ang mabatong lugar, kung saan nahulog ang ibang binhi ay ang mga taong nakinig ng salita ng Dios_ at masaya itong tinanggap agad. 
+Ang mabatong lugar, kung saan nahulog ang ibang binhi ay ang mga taong nakinig ng salita ng Dios at masaya itong tinanggap agad. 
 
 
 
@@ -700,7 +700,7 @@ Ang mabatong lugar, kung saan nahulog ang ibang binhi ay ang mga taong nakinig n
 
 
 
-Ngunit hindi taimtim sa puso ang kanilang pagtanggap, kaya hindi tumagal ang kanilang pananampalataya. Pagdating ng kahirapan o pag-uusig dahil sa salita ng Dios na kanilang tinanggap_, agad silang tumatalikod sa kanilang pananampalataya. 
+Ngunit hindi taimtim sa puso ang kanilang pagtanggap, kaya hindi tumagal ang kanilang pananampalataya. Pagdating ng kahirapan o pag-uusig dahil sa salita ng Dios na kanilang tinanggap, agad silang tumatalikod sa kanilang pananampalataya. 
 
 
 
@@ -733,7 +733,7 @@ Ngunit hindi taimtim sa puso ang kanilang pagtanggap, kaya hindi tumagal ang kan
 
 
 
-Ang lupang may matitinik na damo, kung saan nahulog ang iba pang binhi ay ang mga taong nakinig ng salita ng Dios_. Ngunit dahil sa mga alalahanin dito sa mundo at sa paghahangad na yumaman, nakalimutan nila ang salita ng Dios_, kaya hindi namunga ang salita sa buhay nila_. 
+Ang lupang may matitinik na damo, kung saan nahulog ang iba pang binhi ay ang mga taong nakinig ng salita ng Dios. Ngunit dahil sa mga alalahanin dito sa mundo at sa paghahangad na yumaman, nakalimutan nila ang salita ng Dios, kaya hindi namunga ang salita sa buhay nila. 
 
 
 
@@ -766,7 +766,7 @@ Ang lupang may matitinik na damo, kung saan nahulog ang iba pang binhi ay ang mg
 
 
 
-Ngunit ang mabuting lupang hinasikan ng binhi ay ang mga taong nakikinig sa salita ng Dios_ at nakakaunawa nito. Kaya namumunga ito sa kanilang buhay_. Ang ibaʼy napakarami ang bunga, ang ibaʼy marami, at ang iba namaʼy katamtaman lang." ## Ang Talinghaga tungkol sa mga Damo sa Triguhan 
+Ngunit ang mabuting lupang hinasikan ng binhi ay ang mga taong nakikinig sa salita ng Dios at nakakaunawa nito. Kaya namumunga ito sa kanilang buhay. Ang ibaʼy napakarami ang bunga, ang ibaʼy marami, at ang iba namaʼy katamtaman lang." ## Ang Talinghaga tungkol sa mga Damo sa Triguhan 
 
 
 
@@ -799,7 +799,7 @@ Ngunit ang mabuting lupang hinasikan ng binhi ay ang mga taong nakikinig sa sali
 
 
 
-Muling nagbigay ng talinghaga si Jesus sa kanila, "Ang paghahari ng Dios ay maitutulad sa kwentong ito: May_ isang taong naghasik ng mabuting binhi sa kanyang bukid. 
+Muling nagbigay ng talinghaga si Jesus sa kanila, "Ang paghahari ng Dios ay maitutulad sa kwentong ito: May isang taong naghasik ng mabuting binhi sa kanyang bukid. 
 
 
 
@@ -1129,7 +1129,7 @@ Isa pang paghahalintulad ang ikinuwento ni Jesus: "Ang kaharian ng Dios ay katul
 
 
 
-Gumamit si Jesus ng mga paghahalintulad o mga talinghaga sa lahat ng kanyang pangangaral tungkol sa paghahari ng Dios_. Hindi siya nangaral sa mga tao nang hindi sa pamamagitan nito. 
+Gumamit si Jesus ng mga paghahalintulad o mga talinghaga sa lahat ng kanyang pangangaral tungkol sa paghahari ng Dios. Hindi siya nangaral sa mga tao nang hindi sa pamamagitan nito. 
 
 
 
@@ -1228,7 +1228,7 @@ Pagkatapos, iniwan ni Jesus ang mga tao at pumasok siya sa isang bahay. Nilapita
 
 
 
-Sumagot si Jesus, "Ang naghasik ng mabuting binhi ay walang iba kundi ako na_ Anak ng Tao. 
+Sumagot si Jesus, "Ang naghasik ng mabuting binhi ay walang iba kundi ako na Anak ng Tao. 
 
 
 
@@ -1360,7 +1360,7 @@ Kung paanong binubunot at sinusunog ang masasamang damo, ganoon din ang mangyaya
 
 
 
-Ako na_ Anak ng Tao ay magpapadala ng mga anghel, at aalisin nila sa aking kaharian ang lahat ng gumagawa ng kasalanan at nagiging dahilan ng pagkakasala ng iba_. 
+Ako na Anak ng Tao ay magpapadala ng mga anghel, at aalisin nila sa aking kaharian ang lahat ng gumagawa ng kasalanan at nagiging dahilan ng pagkakasala ng iba. 
 
 
 
@@ -1459,7 +1459,7 @@ Pero ang matutuwid ay magniningning na parang araw sa kaharian ng kanilang Ama. 
 
 
 
-Sinabi pa ni Jesus,_ "Ang kaharian ng Dios ay katulad ng kayamanang nakabaon sa isang bukid. Nang mahukay ito ng isang tao, itinago niya itong muli. At sa tuwa niyaʼy umuwi siya at ipinagbili ang lahat ng kanyang ari-arian, at binili niya ang bukid na iyon." ## Ang Paghahalintulad sa Perlas 
+Sinabi pa ni Jesus, "Ang kaharian ng Dios ay katulad ng kayamanang nakabaon sa isang bukid. Nang mahukay ito ng isang tao, itinago niya itong muli. At sa tuwa niyaʼy umuwi siya at ipinagbili ang lahat ng kanyang ari-arian, at binili niya ang bukid na iyon." ## Ang Paghahalintulad sa Perlas 
 
 
 
@@ -1558,7 +1558,7 @@ Nang makatagpo siya ng isang mamahaling perlas, ipinagbili niya ang lahat ng kan
 
 
 
-"Ang kaharian ng Dios ay katulad din ng isang lambat na inihagis ng mga mangingisda_ sa lawa at nakahuli ng sari-saring isda. 
+"Ang kaharian ng Dios ay katulad din ng isang lambat na inihagis ng mga mangingisda sa lawa at nakahuli ng sari-saring isda. 
 
 
 
@@ -1723,7 +1723,7 @@ Pagkatapos, tinanong sila ni Jesus, "Naunawaan ba ninyong lahat ang sinabi ko?" 
 
 
 
-At sinabi ni Jesus sa kanila, "Kaya nga, ang bawat tagapagturo ng Kautusan na naturuan tungkol sa kaharian ng Dios ay maitutulad sa isang may-ari ng bahay na maraming ari-arian sa bodega niya_. Hindi lang ang mga lumang bagay ang kanyang inilalabas sa bodega kundi pati ang mga bago." ## Hindi Tinanggap si Jesus sa Nazaret 
+At sinabi ni Jesus sa kanila, "Kaya nga, ang bawat tagapagturo ng Kautusan na naturuan tungkol sa kaharian ng Dios ay maitutulad sa isang may-ari ng bahay na maraming ari-arian sa bodega niya. Hindi lang ang mga lumang bagay ang kanyang inilalabas sa bodega kundi pati ang mga bago." ## Hindi Tinanggap si Jesus sa Nazaret 
 
 
 

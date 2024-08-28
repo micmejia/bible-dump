@@ -10,16 +10,16 @@ next: ['Luke 20']
 
 
 ###### 1 
-Then _Jesus_ entered and passed through Jericho. 
+Then Jesus entered and passed through Jericho. 
 
 ###### 2 
-Now behold, _there was_ a man named Zacchaeus who was a chief tax collector, and he was rich. 
+Now behold, there was a man named Zacchaeus who was a chief tax collector, and he was rich. 
 
 ###### 3 
 And he sought to see who Jesus was, but could not because of the crowd, for he was of short stature. 
 
 ###### 4 
-So he ran ahead and climbed up into a sycamore tree to see Him, for He was going to pass that _way._ 
+So he ran ahead and climbed up into a sycamore tree to see Him, for He was going to pass that way. 
 
 ###### 5 
 And when Jesus came to the place, He looked up and saw him, and said to him, "Zacchaeus, make haste and come down, for today I must stay at your house." 
@@ -28,7 +28,7 @@ And when Jesus came to the place, He looked up and saw him, and said to him, "Za
 So he made haste and came down, and received Him joyfully. 
 
 ###### 7 
-But when they saw _it,_ they all complained, saying, "He has gone to be a guest with a man who is a sinner." 
+But when they saw it, they all complained, saying, "He has gone to be a guest with a man who is a sinner." 
 
 ###### 8 
 Then Zacchaeus stood and said to the Lord, "Look, Lord, I give half of my goods to the poor; and if I have taken anything from anyone by false accusation, I restore fourfold." 
@@ -49,7 +49,7 @@ Therefore He said: "A certain nobleman went into a far country to receive for hi
 So he called ten of his servants, delivered to them ten minas, and said to them, 'Do business till I come.' 
 
 ###### 14 
-But his citizens hated him, and sent a delegation after him, saying, 'We will not have this _man_ to reign over us.' 
+But his citizens hated him, and sent a delegation after him, saying, 'We will not have this man to reign over us.' 
 
 ###### 15 
 "And so it was that when he returned, having received the kingdom, he then commanded these servants, to whom he had given the money, to be called to him, that he might know how much every man had gained by trading. 
@@ -58,7 +58,7 @@ But his citizens hated him, and sent a delegation after him, saying, 'We will no
 Then came the first, saying, 'Master, your mina has earned ten minas.' 
 
 ###### 17 
-And he said to him, 'Well _done,_ good servant; because you were faithful in a very little, have authority over ten cities.' 
+And he said to him, 'Well done, good servant; because you were faithful in a very little, have authority over ten cities.' 
 
 ###### 18 
 And the second came, saying, 'Master, your mina has earned five minas.' 
@@ -73,13 +73,13 @@ Likewise he said to him, 'You also be over five cities.'
 For I feared you, because you are an austere man. You collect what you did not deposit, and reap what you did not sow.' 
 
 ###### 22 
-And he said to him, 'Out of your own mouth I will judge you, _you_ wicked servant. You knew that I was an austere man, collecting what I did not deposit and reaping what I did not sow. 
+And he said to him, 'Out of your own mouth I will judge you, you wicked servant. You knew that I was an austere man, collecting what I did not deposit and reaping what I did not sow. 
 
 ###### 23 
 Why then did you not put my money in the bank, that at my coming I might have collected it with interest?' 
 
 ###### 24 
-"And he said to those who stood by, 'Take the mina from him, and give _it_ to him who has ten minas.' 
+"And he said to those who stood by, 'Take the mina from him, and give it to him who has ten minas.' 
 
 ###### 25 
 (But they said to him, 'Master, he has ten minas.') 
@@ -88,22 +88,22 @@ Why then did you not put my money in the bank, that at my coming I might have co
 'For I say to you, that to everyone who has will be given; and from him who does not have, even what he has will be taken away from him. 
 
 ###### 27 
-But bring here those enemies of mine, who did not want me to reign over them, and slay _them_ before me.' " ## The Triumphal Entry 
+But bring here those enemies of mine, who did not want me to reign over them, and slay them before me.' " ## The Triumphal Entry 
 
 ###### 28 
 When He had said this, He went on ahead, going up to Jerusalem. 
 
 ###### 29 
-And it came to pass, when He drew near to Bethphage and Bethany, at the mountain called Olivet, _that_ He sent two of His disciples, 
+And it came to pass, when He drew near to Bethphage and Bethany, at the mountain called Olivet, that He sent two of His disciples, 
 
 ###### 30 
-saying, "Go into the village opposite _you,_ where as you enter you will find a colt tied, on which no one has ever sat. Loose it and bring _it here._ 
+saying, "Go into the village opposite you, where as you enter you will find a colt tied, on which no one has ever sat. Loose it and bring it here. 
 
 ###### 31 
-And if anyone asks you, 'Why are you loosing _it?_' thus you shall say to him, 'Because the Lord has need of it.' " 
+And if anyone asks you, 'Why are you loosing it?' thus you shall say to him, 'Because the Lord has need of it.' " 
 
 ###### 32 
-So those who were sent went their way and found _it_ just as He had said to them. 
+So those who were sent went their way and found it just as He had said to them. 
 
 ###### 33 
 But as they were loosing the colt, the owners of it said to them, "Why are you loosing the colt?" 
@@ -115,13 +115,13 @@ And they said, "The Lord has need of him."
 Then they brought him to Jesus. And they threw their own clothes on the colt, and they set Jesus on him. 
 
 ###### 36 
-And as He went, _many_ spread their clothes on the road. 
+And as He went, many spread their clothes on the road. 
 
 ###### 37 
 Then, as He was now drawing near the descent of the Mount of Olives, the whole multitude of the disciples began to rejoice and praise God with a loud voice for all the mighty works they had seen, 
 
 ###### 38 
-saying: " 'Blessed _is_ the King who comes in the name of the Lord!' Peace in heaven and glory in the highest!" 
+saying: " 'Blessed is the King who comes in the name of the Lord!' Peace in heaven and glory in the highest!" 
 
 ###### 39 
 And some of the Pharisees called to Him from the crowd, "Teacher, rebuke Your disciples." 
@@ -133,7 +133,7 @@ But He answered and said to them, "I tell you that if these should keep silent, 
 Now as He drew near, He saw the city and wept over it, 
 
 ###### 42 
-saying, "If you had known, even you, especially in this your day, the things _that_ _make_ for your peace! But now they are hidden from your eyes. 
+saying, "If you had known, even you, especially in this your day, the things that make for your peace! But now they are hidden from your eyes. 
 
 ###### 43 
 For days will come upon you when your enemies will build an embankment around you, surround you and close you in on every side, 

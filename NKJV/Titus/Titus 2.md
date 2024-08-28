@@ -22,19 +22,19 @@ the older women likewise, that they be reverent in behavior, not slanderers, not
 that they admonish the young women to love their husbands, to love their children, 
 
 ###### 5 
-_to be_ discreet, chaste, homemakers, good, obedient to their own husbands, that the word of God may not be blasphemed. 
+to be discreet, chaste, homemakers, good, obedient to their own husbands, that the word of God may not be blasphemed. 
 
 ###### 6 
 Likewise, exhort the young men to be sober-minded, 
 
 ###### 7 
-in all things showing yourself _to be_ a pattern of good works; in doctrine _showing_ integrity, reverence, incorruptibility, 
+in all things showing yourself to be a pattern of good works; in doctrine showing integrity, reverence, incorruptibility, 
 
 ###### 8 
 sound speech that cannot be condemned, that one who is an opponent may be ashamed, having nothing evil to say of you. 
 
 ###### 9 
-_Exhort_ bondservants to be obedient to their own masters, to be well pleasing in all _things,_ not answering back, 
+Exhort bondservants to be obedient to their own masters, to be well pleasing in all things, not answering back, 
 
 ###### 10 
 not pilfering, but showing all good fidelity, that they may adorn the doctrine of God our Savior in all things.
@@ -51,7 +51,7 @@ teaching us that, denying ungodliness and worldly lusts, we should live soberly,
 looking for the blessed hope and glorious appearing of our great God and Savior Jesus Christ, 
 
 ###### 14 
-who gave Himself for us, that He might redeem us from every lawless deed and purify for Himself _His_ own special people, zealous for good works. 
+who gave Himself for us, that He might redeem us from every lawless deed and purify for Himself His own special people, zealous for good works. 
 
 ###### 15 
 Speak these things, exhort, and rebuke with all authority. Let no one despise you.

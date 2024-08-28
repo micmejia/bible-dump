@@ -10,7 +10,7 @@ next: ['Hos 6']
 
 
 ###### 1 
-"Hear this, O priests! Take heed, O house of Israel! Give ear, O house of the king! For yours _is_ the judgment, Because you have been a snare to Mizpah And a net spread on Tabor. 
+"Hear this, O priests! Take heed, O house of Israel! Give ear, O house of the king! For yours is the judgment, Because you have been a snare to Mizpah And a net spread on Tabor. 
 
 ###### 2 
 The revolters are deeply involved in slaughter, Though I rebuke them all. 
@@ -25,13 +25,13 @@ I know Ephraim, And Israel is not hidden from Me; For now, O Ephraim, you commit
 The pride of Israel testifies to his face; Therefore Israel and Ephraim stumble in their iniquity; Judah also stumbles with them. 
 
 ###### 6 
-"With their flocks and herds They shall go to seek the Lord, But they will not find _Him;_ He has withdrawn Himself from them. 
+"With their flocks and herds They shall go to seek the Lord, But they will not find Him; He has withdrawn Himself from them. 
 
 ###### 7 
 They have dealt treacherously with the Lord, For they have begotten pagan children. Now a New Moon shall devour them and their heritage. 
 
 ###### 8 
-"Blow the ram's horn in Gibeah, The trumpet in Ramah! Cry aloud _at_ Beth Aven, '_Look_ behind you, O Benjamin!' 
+"Blow the ram's horn in Gibeah, The trumpet in Ramah! Cry aloud at Beth Aven, 'Look behind you, O Benjamin!' 
 
 ###### 9 
 Ephraim shall be desolate in the day of rebuke; Among the tribes of Israel I make known what is sure. 
@@ -40,16 +40,16 @@ Ephraim shall be desolate in the day of rebuke; Among the tribes of Israel I mak
 "The princes of Judah are like those who remove a landmark; I will pour out My wrath on them like water. 
 
 ###### 11 
-Ephraim is oppressed _and_ broken in judgment, Because he willingly walked by _human_ precept. 
+Ephraim is oppressed and broken in judgment, Because he willingly walked by human precept. 
 
 ###### 12 
-Therefore I _will be_ to Ephraim like a moth, And to the house of Judah like rottenness. 
+Therefore I will be to Ephraim like a moth, And to the house of Judah like rottenness. 
 
 ###### 13 
-"When Ephraim saw his sickness, And Judah _saw_ his wound, Then Ephraim went to Assyria And sent to King Jareb; Yet he cannot cure you, Nor heal you of your wound. 
+"When Ephraim saw his sickness, And Judah saw his wound, Then Ephraim went to Assyria And sent to King Jareb; Yet he cannot cure you, Nor heal you of your wound. 
 
 ###### 14 
-For I _will be_ like a lion to Ephraim, And like a young lion to the house of Judah. I, _even_ I, will tear _them_ and go away; I will take _them_ away, and no one shall rescue. 
+For I will be like a lion to Ephraim, And like a young lion to the house of Judah. I, even I, will tear them and go away; I will take them away, and no one shall rescue. 
 
 ###### 15 
 I will return again to My place Till they acknowledge their offense. Then they will seek My face; In their affliction they will earnestly seek Me."

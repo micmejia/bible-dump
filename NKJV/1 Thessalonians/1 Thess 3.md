@@ -27,7 +27,7 @@ For this reason, when I could no longer endure it, I sent to know your faith, le
 ## Encouraged by Timothy 
 
 ###### 6 
-But now that Timothy has come to us from you, and brought us good news of your faith and love, and that you always have good remembrance of us, greatly desiring to see us, as we also _to see_ you-- 
+But now that Timothy has come to us from you, and brought us good news of your faith and love, and that you always have good remembrance of us, greatly desiring to see us, as we also to see you-- 
 
 ###### 7 
 therefore, brethren, in all our affliction and distress we were comforted concerning you by your faith. 
@@ -45,7 +45,7 @@ night and day praying exceedingly that we may see your face and perfect what is 
 Now may our God and Father Himself, and our Lord Jesus Christ, direct our way to you. 
 
 ###### 12 
-And may the Lord make you increase and abound in love to one another and to all, just as we _do_ to you, 
+And may the Lord make you increase and abound in love to one another and to all, just as we do to you, 
 
 ###### 13 
 so that He may establish your hearts blameless in holiness before our God and Father at the coming of our Lord Jesus Christ with all His saints.

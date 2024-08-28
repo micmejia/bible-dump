@@ -73,7 +73,7 @@ Mga kapatid, bilang mga mananampalataya ng dakila nating Panginoong Jesu-Cristo,
 
 
 
-Halimbawa, dumating sa inyong pagtitipon ang isang mayaman na_ may gintong singsing at nakasuot ng mamahaling damit, at dumating din ang isang mahirap na punit-punit naman ang damit. 
+Halimbawa, dumating sa inyong pagtitipon ang isang mayaman na may gintong singsing at nakasuot ng mamahaling damit, at dumating din ang isang mahirap na punit-punit naman ang damit. 
 
 
 
@@ -238,7 +238,7 @@ Ngunit minamaliit nʼyo naman ang mga mahihirap. Hindi baʼt ang mga mayayaman a
 
 
 
-Hindi baʼt sila ang nanlalait sa marangal na pangalan ni Jesu-Cristo_, at sa pangalang ito kayo nakilala? 
+Hindi baʼt sila ang nanlalait sa marangal na pangalan ni Jesu-Cristo, at sa pangalang ito kayo nakilala? 
 
 
 
@@ -471,7 +471,7 @@ Walang awang hahatulan ng Dios ang hindi marunong maawa; pero ang maawain sa kap
 
 
 
-Mga kapatid, ano bang mapapala ng isang tao kung sabihin niyang mayroon siyang pananampalataya, pero wala naman siyang mabuting_ gawa? Maliligtas ba siya ng ganyang pananampalataya? 
+Mga kapatid, ano bang mapapala ng isang tao kung sabihin niyang mayroon siyang pananampalataya, pero wala naman siyang mabuting gawa? Maliligtas ba siya ng ganyang pananampalataya? 
 
 
 
@@ -570,7 +570,7 @@ at sasabihan mo, "Pagpalain ka ng Dios at hindi ka sana ginawin at magutom," per
 
 
 
-Ganito rin naman ang pananampalataya; kung hindi ito kinakikitaan ng mabuting_ gawa, wala itong kabuluhan. 
+Ganito rin naman ang pananampalataya; kung hindi ito kinakikitaan ng mabuting gawa, wala itong kabuluhan. 
 
 
 
@@ -603,7 +603,7 @@ Ganito rin naman ang pananampalataya; kung hindi ito kinakikitaan ng mabuting_ g
 
 
 
-Kung talagang may magsasabi, "May pananampalataya ako, at ikaw naman ay may mabuting_ gawa." Ito naman ang isasagot ko,_ paano ko makikita ang pananampalataya mo kung wala ka namang mabuting_ gawa? Ipapakita ko sa iyo na may pananampalataya ako sa pamamagitan ng mabuti_ kong gawa. 
+Kung talagang may magsasabi, "May pananampalataya ako, at ikaw naman ay may mabuting gawa." Ito naman ang isasagot ko, paano ko makikita ang pananampalataya mo kung wala ka namang mabuting gawa? Ipapakita ko sa iyo na may pananampalataya ako sa pamamagitan ng mabuti kong gawa. 
 
 
 
@@ -636,7 +636,7 @@ Kung talagang may magsasabi, "May pananampalataya ako, at ikaw naman ay may mabu
 
 
 
-Naniniwala ka na may iisang Dios? Mabuti iyan! Pero kahit ang masasamang espiritu man ay naniniwala rin, at nanginginig pa nga sa takot_. 
+Naniniwala ka na may iisang Dios? Mabuti iyan! Pero kahit ang masasamang espiritu man ay naniniwala rin, at nanginginig pa nga sa takot. 
 
 
 
@@ -669,7 +669,7 @@ Naniniwala ka na may iisang Dios? Mabuti iyan! Pero kahit ang masasamang espirit
 
 
 
-Ikaw na walang pang-unawa, gusto mo bang patunayan ko na walang kabuluhan ang pananampalataya kung walang mabuting_ gawa? 
+Ikaw na walang pang-unawa, gusto mo bang patunayan ko na walang kabuluhan ang pananampalataya kung walang mabuting gawa? 
 
 
 
@@ -702,7 +702,7 @@ Ikaw na walang pang-unawa, gusto mo bang patunayan ko na walang kabuluhan ang pa
 
 
 
-Hindi baʼt itinuring na matuwid ng Dios_ ang ninuno nating si Abraham dahil sa mabuti niyang_ gawa nang ihandog niya sa altar ang anak niyang si Isaac? 
+Hindi baʼt itinuring na matuwid ng Dios ang ninuno nating si Abraham dahil sa mabuti niyang gawa nang ihandog niya sa altar ang anak niyang si Isaac? 
 
 
 
@@ -735,7 +735,7 @@ Hindi baʼt itinuring na matuwid ng Dios_ ang ninuno nating si Abraham dahil sa 
 
 
 
-Makikita mo na ang pananampalataya niyaʼy may kasamang mabuting_ gawa. Naipakita na tunay ang pananampalataya niya sa pamamagitan ng mabuting_ gawa. 
+Makikita mo na ang pananampalataya niyaʼy may kasamang mabuting gawa. Naipakita na tunay ang pananampalataya niya sa pamamagitan ng mabuting gawa. 
 
 
 
@@ -801,7 +801,7 @@ Natupad ang sinasabi ng Kasulatan, "Sumampalataya si Abraham sa Dios, at dahil d
 
 
 
-Dito nʼyo makikita na itinuturing na matuwid ng Dios_ ang tao dahil sa mabuti nitong_ gawa at hindi dahil sa pananampalataya lamang. 
+Dito nʼyo makikita na itinuturing na matuwid ng Dios ang tao dahil sa mabuti nitong gawa at hindi dahil sa pananampalataya lamang. 
 
 
 
@@ -834,7 +834,7 @@ Dito nʼyo makikita na itinuturing na matuwid ng Dios_ ang tao dahil sa mabuti n
 
 
 
-Ganoon din si Rahab, ang babaeng bayaran. Itinuring siyang matuwid dahil itinago niya ang mga espiya ng mga Israelita_ at itinuro ang ibang daan para makatakas sila. 
+Ganoon din si Rahab, ang babaeng bayaran. Itinuring siyang matuwid dahil itinago niya ang mga espiya ng mga Israelita at itinuro ang ibang daan para makatakas sila. 
 
 
 
@@ -867,4 +867,4 @@ Ganoon din si Rahab, ang babaeng bayaran. Itinuring siyang matuwid dahil itinago
 
 
 
-Kung paanong patay ang katawang walang espiritu, patay din ang pananampalataya kung walang mabuting_ gawa.
+Kung paanong patay ang katawang walang espiritu, patay din ang pananampalataya kung walang mabuting gawa.

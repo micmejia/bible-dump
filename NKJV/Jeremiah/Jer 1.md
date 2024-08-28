@@ -9,7 +9,7 @@ next: ['Jer 2']
 
 
 ###### 1 
-The words of Jeremiah the son of Hilkiah, of the priests who _were_ in Anathoth in the land of Benjamin, 
+The words of Jeremiah the son of Hilkiah, of the priests who were in Anathoth in the land of Benjamin, 
 
 ###### 2 
 to whom the word of the Lord came in the days of Josiah the son of Amon, king of Judah, in the thirteenth year of his reign. 
@@ -26,13 +26,13 @@ Then the word of the Lord came to me, saying:
 "Before I formed you in the womb I knew you; Before you were born I sanctified you; I ordained you a prophet to the nations." 
 
 ###### 6 
-Then said I: "Ah, Lord God! Behold, I cannot speak, for I _am_ a youth." 
+Then said I: "Ah, Lord God! Behold, I cannot speak, for I am a youth." 
 
 ###### 7 
-But the Lord said to me: "Do not say, 'I _am_ a youth,' For you shall go to all to whom I send you, And whatever I command you, you shall speak. 
+But the Lord said to me: "Do not say, 'I am a youth,' For you shall go to all to whom I send you, And whatever I command you, you shall speak. 
 
 ###### 8 
-Do not be afraid of their faces, For I _am_ with you to deliver you," says the Lord. 
+Do not be afraid of their faces, For I am with you to deliver you," says the Lord. 
 
 ###### 9 
 Then the Lord put forth His hand and touched my mouth, and the Lord said to me: "Behold, I have put My words in your mouth. 
@@ -65,4 +65,4 @@ I will utter My judgments Against them concerning all their wickedness, Because 
 For behold, I have made you this day A fortified city and an iron pillar, And bronze walls against the whole land-- Against the kings of Judah, Against its princes, Against its priests, And against the people of the land. 
 
 ###### 19 
-They will fight against you, But they shall not prevail against you. For I _am_ with you," says the Lord, "to deliver you."
+They will fight against you, But they shall not prevail against you. For I am with you," says the Lord, "to deliver you."

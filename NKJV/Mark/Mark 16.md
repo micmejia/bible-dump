@@ -9,10 +9,10 @@ up: ['Mark']
 
 
 ###### 1 
-Now when the Sabbath was past, Mary Magdalene, Mary _the mother_ of James, and Salome bought spices, that they might come and anoint Him. 
+Now when the Sabbath was past, Mary Magdalene, Mary the mother of James, and Salome bought spices, that they might come and anoint Him. 
 
 ###### 2 
-Very early in the morning, on the first _day_ of the week, they came to the tomb when the sun had risen. 
+Very early in the morning, on the first day of the week, they came to the tomb when the sun had risen. 
 
 ###### 3 
 And they said among themselves, "Who will roll away the stone from the door of the tomb for us?" 
@@ -35,7 +35,7 @@ So they went out quickly and fled from the tomb, for they trembled and were amaz
 ## Mary Magdalene Sees the Risen Lord 
 
 ###### 9 
-Now when _He_ rose early on the first _day_ of the week, He appeared first to Mary Magdalene, out of whom He had cast seven demons. 
+Now when He rose early on the first day of the week, He appeared first to Mary Magdalene, out of whom He had cast seven demons. 
 
 ###### 10 
 She went and told those who had been with Him, as they mourned and wept. 
@@ -49,7 +49,7 @@ And when they heard that He was alive and had been seen by her, they did not bel
 After that, He appeared in another form to two of them as they walked and went into the country. 
 
 ###### 13 
-And they went and told _it_ to the rest, _but_ they did not believe them either.
+And they went and told it to the rest, but they did not believe them either.
 
 ## The Great Commission 
 
@@ -72,4 +72,4 @@ they will take up serpents; and if they drink anything deadly, it will by no mea
 So then, after the Lord had spoken to them, He was received up into heaven, and sat down at the right hand of God. 
 
 ###### 20 
-And they went out and preached everywhere, the Lord working with _them_ and confirming the word through the accompanying signs. Amen.
+And they went out and preached everywhere, the Lord working with them and confirming the word through the accompanying signs. Amen.

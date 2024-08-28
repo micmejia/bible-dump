@@ -106,7 +106,7 @@ Inararo niya ito, inalisan ng mga bato, at tinamnan ng mga piling ubas. Nagtayo 
 
 
 
-Kaya ito ang sinabi ng may-ari ng ubasan:_ "Kayong mga mamamayan ng Jerusalem at Juda, hatulan nʼyo ako at ang aking ubasan. 
+Kaya ito ang sinabi ng may-ari ng ubasan: "Kayong mga mamamayan ng Jerusalem at Juda, hatulan nʼyo ako at ang aking ubasan. 
 
 
 
@@ -966,7 +966,7 @@ Matutulis ang kanilang mga palaso, at handang-handa na ang kanilang mga pana. An
 
 
 
-Sa pagsalakay nila ay_ sisigaw sila na parang mga leon na umuungal. Ang mabibiktima nila ay dadalhin nila sa malayong lugar at walang makakaligtas sa mga ito. 
+Sa pagsalakay nila ay sisigaw sila na parang mga leon na umuungal. Ang mabibiktima nila ay dadalhin nila sa malayong lugar at walang makakaligtas sa mga ito. 
 
 
 

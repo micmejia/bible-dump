@@ -19,7 +19,7 @@ Set your mind on things above, not on things on the earth.
 For you died, and your life is hidden with Christ in God. 
 
 ###### 4 
-When Christ _who is_ our life appears, then you also will appear with Him in glory. 
+When Christ who is our life appears, then you also will appear with Him in glory. 
 
 ###### 5 
 Therefore put to death your members which are on the earth: fornication, uncleanness, passion, evil desire, and covetousness, which is idolatry. 
@@ -37,18 +37,18 @@ But now you yourselves are to put off all these: anger, wrath, malice, blasphemy
 Do not lie to one another, since you have put off the old man with his deeds, 
 
 ###### 10 
-and have put on the new _man_ who is renewed in knowledge according to the image of Him who created him, 
+and have put on the new man who is renewed in knowledge according to the image of Him who created him, 
 
 ###### 11 
-where there is neither Greek nor Jew, circumcised nor uncircumcised, barbarian, Scythian, slave _nor_ free, but Christ _is_ all and in all.
+where there is neither Greek nor Jew, circumcised nor uncircumcised, barbarian, Scythian, slave nor free, but Christ is all and in all.
 
 ## Character of the New Man 
 
 ###### 12 
-Therefore, as _the_ elect of God, holy and beloved, put on tender mercies, kindness, humility, meekness, longsuffering; 
+Therefore, as the elect of God, holy and beloved, put on tender mercies, kindness, humility, meekness, longsuffering; 
 
 ###### 13 
-bearing with one another, and forgiving one another, if anyone has a complaint against another; even as Christ forgave you, so you also _must do._ 
+bearing with one another, and forgiving one another, if anyone has a complaint against another; even as Christ forgave you, so you also must do. 
 
 ###### 14 
 But above all these things put on love, which is the bond of perfection. 
@@ -60,7 +60,7 @@ And let the peace of God rule in your hearts, to which also you were called in o
 Let the word of Christ dwell in you richly in all wisdom, teaching and admonishing one another in psalms and hymns and spiritual songs, singing with grace in your hearts to the Lord. 
 
 ###### 17 
-And whatever you do in word or deed, _do_ all in the name of the Lord Jesus, giving thanks to God the Father through Him.
+And whatever you do in word or deed, do all in the name of the Lord Jesus, giving thanks to God the Father through Him.
 
 ## The Christian Home 
 

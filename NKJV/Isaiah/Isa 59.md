@@ -13,39 +13,39 @@ next: ['Isa 60']
 Behold, the Lord's hand is not shortened, That it cannot save; Nor His ear heavy, That it cannot hear. 
 
 ###### 2 
-But your iniquities have separated you from your God; And your sins have hidden _His_ face from you, So that He will not hear. 
+But your iniquities have separated you from your God; And your sins have hidden His face from you, So that He will not hear. 
 
 ###### 3 
 For your hands are defiled with blood, And your fingers with iniquity; Your lips have spoken lies, Your tongue has muttered perversity. 
 
 ###### 4 
-No one calls for justice, Nor does _any_ plead for truth. They trust in empty words and speak lies; They conceive evil and bring forth iniquity. 
+No one calls for justice, Nor does any plead for truth. They trust in empty words and speak lies; They conceive evil and bring forth iniquity. 
 
 ###### 5 
-They hatch vipers' eggs and weave the spider's web; He who eats of their eggs dies, And _from_ that which is crushed a viper breaks out. 
+They hatch vipers' eggs and weave the spider's web; He who eats of their eggs dies, And from that which is crushed a viper breaks out. 
 
 ###### 6 
-Their webs will not become garments, Nor will they cover themselves with their works; Their works _are_ works of iniquity, And the act of violence _is_ in their hands. 
+Their webs will not become garments, Nor will they cover themselves with their works; Their works are works of iniquity, And the act of violence is in their hands. 
 
 ###### 7 
-Their feet run to evil, And they make haste to shed innocent blood; Their thoughts _are_ thoughts of iniquity; Wasting and destruction _are_ in their paths. 
+Their feet run to evil, And they make haste to shed innocent blood; Their thoughts are thoughts of iniquity; Wasting and destruction are in their paths. 
 
 ###### 8 
-The way of peace they have not known, And _there is_ no justice in their ways; They have made themselves crooked paths; Whoever takes that way shall not know peace.
+The way of peace they have not known, And there is no justice in their ways; They have made themselves crooked paths; Whoever takes that way shall not know peace.
 
 ## Sin Confessed 
 
 ###### 9 
-Therefore justice is far from us, Nor does righteousness overtake us; We look for light, but there is darkness! For brightness, _but_ we walk in blackness! 
+Therefore justice is far from us, Nor does righteousness overtake us; We look for light, but there is darkness! For brightness, but we walk in blackness! 
 
 ###### 10 
-We grope for the wall like the blind, And we grope as if _we had_ no eyes; We stumble at noonday as at twilight; _We are_ as dead _men_ in desolate places. 
+We grope for the wall like the blind, And we grope as if we had no eyes; We stumble at noonday as at twilight; We are as dead men in desolate places. 
 
 ###### 11 
-We all growl like bears, And moan sadly like doves; We look for justice, but _there is_ none; For salvation, _but_ it is far from us. 
+We all growl like bears, And moan sadly like doves; We look for justice, but there is none; For salvation, but it is far from us. 
 
 ###### 12 
-For our transgressions are multiplied before You, And our sins testify against us; For our transgressions _are_ with us, And _as for_ our iniquities, we know them: 
+For our transgressions are multiplied before You, And our sins testify against us; For our transgressions are with us, And as for our iniquities, we know them: 
 
 ###### 13 
 In transgressing and lying against the Lord, And departing from our God, Speaking oppression and revolt, Conceiving and uttering from the heart words of falsehood. 
@@ -54,18 +54,18 @@ In transgressing and lying against the Lord, And departing from our God, Speakin
 Justice is turned back, And righteousness stands afar off; For truth is fallen in the street, And equity cannot enter. 
 
 ###### 15 
-So truth fails, And he _who_ departs from evil makes himself a prey.
+So truth fails, And he who departs from evil makes himself a prey.
 
-## The Redeemer of Zion Then the Lord saw _it,_ and it displeased Him That _there was_ no justice. 
+## The Redeemer of Zion Then the Lord saw it, and it displeased Him That there was no justice. 
 
 ###### 16 
-He saw that _there was_ no man, And wondered that _there was_ no intercessor; Therefore His own arm brought salvation for Him; And His own righteousness, it sustained Him. 
+He saw that there was no man, And wondered that there was no intercessor; Therefore His own arm brought salvation for Him; And His own righteousness, it sustained Him. 
 
 ###### 17 
 For He put on righteousness as a breastplate, And a helmet of salvation on His head; He put on the garments of vengeance for clothing, And was clad with zeal as a cloak. 
 
 ###### 18 
-According to _their_ deeds, accordingly He will repay, Fury to His adversaries, Recompense to His enemies; The coastlands He will fully repay. 
+According to their deeds, accordingly He will repay, Fury to His adversaries, Recompense to His enemies; The coastlands He will fully repay. 
 
 ###### 19 
 So shall they fear The name of the Lord from the west, And His glory from the rising of the sun; When the enemy comes in like a flood, The Spirit of the Lord will lift up a standard against him. 
@@ -74,4 +74,4 @@ So shall they fear The name of the Lord from the west, And His glory from the ri
 "The Redeemer will come to Zion, And to those who turn from transgression in Jacob," Says the Lord. 
 
 ###### 21 
-"As for Me," says the Lord, "this _is_ My covenant with them: My Spirit who _is_ upon you, and My words which I have put in your mouth, shall not depart from your mouth, nor from the mouth of your descendants, nor from the mouth of your descendants' descendants," says the Lord, "from this time and forevermore."
+"As for Me," says the Lord, "this is My covenant with them: My Spirit who is upon you, and My words which I have put in your mouth, shall not depart from your mouth, nor from the mouth of your descendants, nor from the mouth of your descendants' descendants," says the Lord, "from this time and forevermore."

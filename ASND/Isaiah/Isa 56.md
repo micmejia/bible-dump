@@ -106,7 +106,7 @@ Mapalad ang mga taong gumagawa nito at ang mga sumusunod sa aking mga ipinapagaw
 
 
 
-Huwag isipin ng mga dayuhang nag-alay ng kanilang sarili sa Panginoon na hindi sila isasama ng Panginoon sa kanyang mga mamamayan. Huwag ding isipin ng mga taong nagpakapon na dahil hindi na sila magkakaanak, ay hindi sila maaaring isama sa mga mamamayan ng Dios_. 
+Huwag isipin ng mga dayuhang nag-alay ng kanilang sarili sa Panginoon na hindi sila isasama ng Panginoon sa kanyang mga mamamayan. Huwag ding isipin ng mga taong nagpakapon na dahil hindi na sila magkakaanak, ay hindi sila maaaring isama sa mga mamamayan ng Dios. 
 
 
 
@@ -139,7 +139,7 @@ Huwag isipin ng mga dayuhang nag-alay ng kanilang sarili sa Panginoon na hindi s
 
 
 
-Sapagkat ito ang sinasabi ng Panginoon, "Pagpapalain ko_ ang mga taong nagpakapon na sumusunod sa mga ipinapagawa ko sa Araw ng Pamamahinga at gumagawa ng mga bagay na nakakalugod sa akin, at tumutupad sa aking kasunduan. 
+Sapagkat ito ang sinasabi ng Panginoon, "Pagpapalain ko ang mga taong nagpakapon na sumusunod sa mga ipinapagawa ko sa Araw ng Pamamahinga at gumagawa ng mga bagay na nakakalugod sa akin, at tumutupad sa aking kasunduan. 
 
 
 
@@ -205,7 +205,7 @@ Papayagan ko silang makapasok sa aking templo at pararangalan ko sila ng higit p
 
 
 
-"Pagpapalain ko rin ang mga dayuhang nag-alay ng sarili nila sa akin para paglingkuran ako, mahalin, sambahin, at sundin ang aking ipinapagawa sa_ Araw ng Pamamahinga at tumutupad sa aking kasunduan. 
+"Pagpapalain ko rin ang mga dayuhang nag-alay ng sarili nila sa akin para paglingkuran ako, mahalin, sambahin, at sundin ang aking ipinapagawa sa Araw ng Pamamahinga at tumutupad sa aking kasunduan. 
 
 
 

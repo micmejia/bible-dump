@@ -172,7 +172,7 @@ Gumawa ako ng kasunduan sa kanila, na ibibigay ko sa kanila ang lupain ng Canaan
 
 
 
-Narinig ko ang hinaing ng mga Israelita na inaalipin ng mga Egipcio at inalala ko ang kasunduan ko sa kanila_. 
+Narinig ko ang hinaing ng mga Israelita na inaalipin ng mga Egipcio at inalala ko ang kasunduan ko sa kanila. 
 
 
 

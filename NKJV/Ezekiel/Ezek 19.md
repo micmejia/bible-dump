@@ -13,7 +13,7 @@ next: ['Ezek 20']
 "Moreover take up a lamentation for the princes of Israel, 
 
 ###### 2 
-and say: 'What _is_ your mother? A lioness: She lay down among the lions; Among the young lions she nourished her cubs. 
+and say: 'What is your mother? A lioness: She lay down among the lions; Among the young lions she nourished her cubs. 
 
 ###### 3 
 She brought up one of her cubs, And he became a young lion; He learned to catch prey, And he devoured men. 
@@ -22,7 +22,7 @@ She brought up one of her cubs, And he became a young lion; He learned to catch 
 The nations also heard of him; He was trapped in their pit, And they brought him with chains to the land of Egypt. 
 
 ###### 5 
-'When she saw that she waited, _that_ her hope was lost, She took another of her cubs _and_ made him a young lion. 
+'When she saw that she waited, that her hope was lost, She took another of her cubs and made him a young lion. 
 
 ###### 6 
 He roved among the lions, And became a young lion; He learned to catch prey; He devoured men. 
@@ -37,7 +37,7 @@ Then the nations set against him from the provinces on every side, And spread th
 They put him in a cage with chains, And brought him to the king of Babylon; They brought him in nets, That his voice should no longer be heard on the mountains of Israel. 
 
 ###### 10 
-'Your mother _was_ like a vine in your bloodline, Planted by the waters, Fruitful and full of branches Because of many waters. 
+'Your mother was like a vine in your bloodline, Planted by the waters, Fruitful and full of branches Because of many waters. 
 
 ###### 11 
 She had strong branches for scepters of rulers. She towered in stature above the thick branches, And was seen in her height amid the dense foliage. 
@@ -46,7 +46,7 @@ She had strong branches for scepters of rulers. She towered in stature above the
 But she was plucked up in fury, She was cast down to the ground, And the east wind dried her fruit. Her strong branches were broken and withered; The fire consumed them. 
 
 ###### 13 
-And now she _is_ planted in the wilderness, In a dry and thirsty land. 
+And now she is planted in the wilderness, In a dry and thirsty land. 
 
 ###### 14 
-Fire has come out from a rod of her branches _And_ devoured her fruit, So that she has no strong branch--a scepter for ruling.' " This _is_ a lamentation, and has become a lamentation.
+Fire has come out from a rod of her branches And devoured her fruit, So that she has no strong branch--a scepter for ruling.' " This is a lamentation, and has become a lamentation.

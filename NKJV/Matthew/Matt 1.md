@@ -24,7 +24,7 @@ Ram begot Amminadab, Amminadab begot Nahshon, and Nahshon begot Salmon.
 Salmon begot Boaz by Rahab, Boaz begot Obed by Ruth, Obed begot Jesse, 
 
 ###### 6 
-and Jesse begot David the king. David the king begot Solomon by her _who had been the wife_ of Uriah. 
+and Jesse begot David the king. David the king begot Solomon by her who had been the wife of Uriah. 
 
 ###### 7 
 Solomon begot Rehoboam, Rehoboam begot Abijah, and Abijah begot Asa. 
@@ -57,7 +57,7 @@ Eliud begot Eleazar, Eleazar begot Matthan, and Matthan begot Jacob.
 And Jacob begot Joseph the husband of Mary, of whom was born Jesus who is called Christ. 
 
 ###### 17 
-So all the generations from Abraham to David _are_ fourteen generations, from David until the captivity in Babylon _are_ fourteen generations, and from the captivity in Babylon until the Christ _are_ fourteen generations.
+So all the generations from Abraham to David are fourteen generations, from David until the captivity in Babylon are fourteen generations, and from the captivity in Babylon until the Christ are fourteen generations.
 
 ## Christ Born of Mary 
 
@@ -65,7 +65,7 @@ So all the generations from Abraham to David _are_ fourteen generations, from Da
 Now the birth of Jesus Christ was as follows: After His mother Mary was betrothed to Joseph, before they came together, she was found with child of the Holy Spirit. 
 
 ###### 19 
-Then Joseph her husband, being a just _man,_ and not wanting to make her a public example, was minded to put her away secretly. 
+Then Joseph her husband, being a just man, and not wanting to make her a public example, was minded to put her away secretly. 
 
 ###### 20 
 But while he thought about these things, behold, an angel of the Lord appeared to him in a dream, saying, "Joseph, son of David, do not be afraid to take to you Mary your wife, for that which is conceived in her is of the Holy Spirit. 

@@ -436,7 +436,7 @@ Sinabi ng anghel, "Huwag mong patayin ang anak mo! Ngayon, napatunayan ko na may
 
 
 
-Paglingon ni Abraham, may nakita siyang isang lalaking tupa na ang sungay ay nasabit sa mga sanga ng_ kahoy, at hindi na ito makaalis. Kaya kinuha ito ni Abraham at inihandog bilang handog na sinusunog kapalit ng kanyang anak. 
+Paglingon ni Abraham, may nakita siyang isang lalaking tupa na ang sungay ay nasabit sa mga sanga ng kahoy, at hindi na ito makaalis. Kaya kinuha ito ni Abraham at inihandog bilang handog na sinusunog kapalit ng kanyang anak. 
 
 
 
@@ -568,7 +568,7 @@ At sa pamamagitan ng iyong mga lahi, pagpapalain ko ang lahat ng bansa sa mundo,
 
 
 
-Pagkatapos nito, binalikan nila Abraham at Isaac_ ang kanilang mga alipin. At bumalik sila sa Beersheba at doon na nanirahan.
+Pagkatapos nito, binalikan nila Abraham at Isaac ang kanilang mga alipin. At bumalik sila sa Beersheba at doon na nanirahan.
 
 ## Ang mga Lahi ni Nahor 
 

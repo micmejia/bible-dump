@@ -669,7 +669,7 @@ Ang tubig sana na ito na nagdadala ng sumpa ay pumasok sa iyong katawan para hin
 
 
 
-(Kapag napainom na sa babae ang mapait na tubig na nagdadala ng sumpa. At kung may kasalanan siya_, magiging dahilan ito ng matinding paghihirap niya, kung talagang nagkasala siya_.) 
+(Kapag napainom na sa babae ang mapait na tubig na nagdadala ng sumpa. At kung may kasalanan siya, magiging dahilan ito ng matinding paghihirap niya, kung talagang nagkasala siya.) 
 
 
 
@@ -867,7 +867,7 @@ Pero kung hindi niya dinungisan ang kanyang sarili, hindi siya masasaktan, at ma
 
 
 
-o naghihinala ang lalaki sa kanyang asawa na nanlalalaki ito_, kailangang patayuin ng pari ang asawa niya sa aking presensya at ipagawa ang kautusang ito sa kanya. 
+o naghihinala ang lalaki sa kanyang asawa na nanlalalaki ito, kailangang patayuin ng pari ang asawa niya sa aking presensya at ipagawa ang kautusang ito sa kanya. 
 
 
 

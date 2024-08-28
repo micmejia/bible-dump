@@ -403,7 +403,7 @@ Labis ang galit niya sa akin at itinuring niya akong kaaway.
 
 
 
-Parang_ pinadalhan niya ako ng mga sundalo upang salakayin at palibutan ang aking tolda. 
+Parang pinadalhan niya ako ng mga sundalo upang salakayin at palibutan ang aking tolda. 
 
 
 
@@ -832,7 +832,7 @@ o di kayaʼy iniukit ito sa bato para hindi mabura magpakailanman.
 
 
 
-"Pero alam kong buhay ang aking Tagapagligtas at sa bandang huli ay darating siya rito sa lupa para ipagtanggol ako_. 
+"Pero alam kong buhay ang aking Tagapagligtas at sa bandang huli ay darating siya rito sa lupa para ipagtanggol ako. 
 
 
 
@@ -865,7 +865,7 @@ o di kayaʼy iniukit ito sa bato para hindi mabura magpakailanman.
 
 
 
-Pagkaalis ko sa katawang ito at mabulok ang mga laman ko, makikita ko na_ ang Dios. 
+Pagkaalis ko sa katawang ito at mabulok ang mga laman ko, makikita ko na ang Dios. 
 
 
 
@@ -964,4 +964,4 @@ Makikita ko siya nang harapan at hindi na siya iba sa akin. Labis na akong nanan
 
 
 
-tiyak na darating sa inyo ang nakakatakot na parusa ng Dios_. Parurusahan niya kayo dahil sa galit niya. Saka ninyo malalaman na hinatulan kayo ng Dios_."
+tiyak na darating sa inyo ang nakakatakot na parusa ng Dios. Parurusahan niya kayo dahil sa galit niya. Saka ninyo malalaman na hinatulan kayo ng Dios."

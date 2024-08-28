@@ -139,7 +139,7 @@ Siguradong sasabihin nila sa bandang huli, 'Wala kaming hari dahil wala kaming t
 
 
 
-Puro salita lang sila pero hindi naman nila tinutupad_. Nanunumpa sila ng kasinungalingan at gumagawa ng kasunduan na hindi naman nila tinutupad_. Kaya ang katarungan ay parang nakakalasong damo na tumutubo sa binungkal na lupain. 
+Puro salita lang sila pero hindi naman nila tinutupad. Nanunumpa sila ng kasinungalingan at gumagawa ng kasunduan na hindi naman nila tinutupad. Kaya ang katarungan ay parang nakakalasong damo na tumutubo sa binungkal na lupain. 
 
 
 
@@ -304,7 +304,7 @@ Gigibain ang mga sambahan sa mga matataas na lugar ng Aven, na naging dahilan ng
 
 
 
-Sinabi ng Panginoon,_ "Kayong mga mamamayan ng Israel ay patuloy sa pagkakasala mula pa noong magkasala ang inyong mga ninuno roon_ sa Gibea. Hindi kayo nagbago. Kaya kayong mga lahi ng masasama ay lulusubin sa Gibea. 
+Sinabi ng Panginoon, "Kayong mga mamamayan ng Israel ay patuloy sa pagkakasala mula pa noong magkasala ang inyong mga ninuno roon sa Gibea. Hindi kayo nagbago. Kaya kayong mga lahi ng masasama ay lulusubin sa Gibea. 
 
 
 
@@ -370,7 +370,7 @@ Gusto ko na kayong parusahan. Kaya magsasanib ang mga bansa upang lusubin kayo d
 
 
 
-Noon,_ para kayong dumalagang baka na sinanay na gumiik at gustong-gusto ang gawaing ito. Pero ngayon, pahihirapan ko kayong mga taga-Israel at pati ang mga taga-Juda. Magiging tulad kayo ng dumalagang baka na sisingkawan ang makinis niyang leeg at pahihirapan sa paghila ng pang-araro. 
+Noon, para kayong dumalagang baka na sinanay na gumiik at gustong-gusto ang gawaing ito. Pero ngayon, pahihirapan ko kayong mga taga-Israel at pati ang mga taga-Juda. Magiging tulad kayo ng dumalagang baka na sisingkawan ang makinis niyang leeg at pahihirapan sa paghila ng pang-araro. 
 
 
 
@@ -403,7 +403,7 @@ Noon,_ para kayong dumalagang baka na sinanay na gumiik at gustong-gusto ang gaw
 
 
 
-Sinabi ko sa inyo,_ 'Palambutin ninyo ang inyong mga puso tulad ng binungkal na lupa. Magtanim kayo ng katuwiran at mag-aani kayo ng pagmamahal. Sapagkat panahon na para magbalik-loob kayo sa akin hanggang sa aking pagdating, at pauulanan ko kayo ng tagumpay.' 
+Sinabi ko sa inyo, 'Palambutin ninyo ang inyong mga puso tulad ng binungkal na lupa. Magtanim kayo ng katuwiran at mag-aani kayo ng pagmamahal. Sapagkat panahon na para magbalik-loob kayo sa akin hanggang sa aking pagdating, at pauulanan ko kayo ng tagumpay.' 
 
 
 
@@ -469,7 +469,7 @@ Sinabi ko sa inyo,_ 'Palambutin ninyo ang inyong mga puso tulad ng binungkal na 
 
 
 
-darating ang digmaan sa inyong mga mamamayan at magigiba ang inyong mga napapaderang lungsod. Gagawin ng mga kalaban ninyo ang ginawa ni Shalman sa lungsod ng_ Bet Arbel nang pagluray-lurayin niya ang mga ina at ang kanilang mga anak. 
+darating ang digmaan sa inyong mga mamamayan at magigiba ang inyong mga napapaderang lungsod. Gagawin ng mga kalaban ninyo ang ginawa ni Shalman sa lungsod ng Bet Arbel nang pagluray-lurayin niya ang mga ina at ang kanilang mga anak. 
 
 
 

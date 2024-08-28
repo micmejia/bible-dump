@@ -73,7 +73,7 @@ Bago sumapit ang Pista ng Paglampas ng Anghel, alam ni Jesus na dumating na ang 
 
 
 
-Nang gabing iyon,_ naghapunan si Jesus kasama ang mga tagasunod niya. Inudyukan na ni Satanas si Judas Iscariote na anak ni Simon na traydurin si Jesus. 
+Nang gabing iyon, naghapunan si Jesus kasama ang mga tagasunod niya. Inudyukan na ni Satanas si Judas Iscariote na anak ni Simon na traydurin si Jesus. 
 
 
 
@@ -106,7 +106,7 @@ Nang gabing iyon,_ naghapunan si Jesus kasama ang mga tagasunod niya. Inudyukan 
 
 
 
-Alam ni Jesus na ang lahat ng kapangyarihan_ ay ibinigay sa kanya ng Ama. At alam din niyang galing siya sa Dios at babalik din sa Dios. 
+Alam ni Jesus na ang lahat ng kapangyarihan ay ibinigay sa kanya ng Ama. At alam din niyang galing siya sa Dios at babalik din sa Dios. 
 
 
 
@@ -271,7 +271,7 @@ Sumagot si Jesus, "Hindi mo naiintindihan ang ginagawa ko ngayon, pero maiintind
 
 
 
-Sinabi ni Pedro sa kanya, "Hindi pwedeng kayo ang maghugas ng mga paa ko." Sumagot si Jesus, "Kung ayaw mong hugasan ko ang paa mo_, wala kang kaugnayan sa akin." 
+Sinabi ni Pedro sa kanya, "Hindi pwedeng kayo ang maghugas ng mga paa ko." Sumagot si Jesus, "Kung ayaw mong hugasan ko ang paa mo, wala kang kaugnayan sa akin." 
 
 
 
@@ -304,7 +304,7 @@ Sinabi ni Pedro sa kanya, "Hindi pwedeng kayo ang maghugas ng mga paa ko." Sumag
 
 
 
-Kaya sinabi ni Simon Pedro, "Kung ganoon_ Panginoon, hindi lang po ang mga paa ko ang hugasan nʼyo kundi pati na rin ang mga kamay at ulo ko!" 
+Kaya sinabi ni Simon Pedro, "Kung ganoon Panginoon, hindi lang po ang mga paa ko ang hugasan nʼyo kundi pati na rin ang mga kamay at ulo ko!" 
 
 
 
@@ -1032,7 +1032,7 @@ Pagkakain ni Judas ng tinapay, agad siyang umalis. Gabi na noon.
 
 
 
-Nang makaalis na si Judas, sinabi ni Jesus, "Ako na_ Anak ng Tao ay pararangalan na, at sa pamamagitan koʼy pararangalan din ang Dios. 
+Nang makaalis na si Judas, sinabi ni Jesus, "Ako na Anak ng Tao ay pararangalan na, at sa pamamagitan koʼy pararangalan din ang Dios. 
 
 
 
@@ -1098,7 +1098,7 @@ At kung sa pamamagitan koʼy pararangalan ang Dios, ihahayag din ng Dios ang aki
 
 
 
-Mga anak, sandali na lang ninyo akong makakasama. Hahanapin ninyo ako, pero gaya ng sinabi ko sa mga pinuno ng mga_ Judio, hindi kayo makakapunta sa pupuntahan ko. 
+Mga anak, sandali na lang ninyo akong makakasama. Hahanapin ninyo ako, pero gaya ng sinabi ko sa mga pinuno ng mga Judio, hindi kayo makakapunta sa pupuntahan ko. 
 
 
 

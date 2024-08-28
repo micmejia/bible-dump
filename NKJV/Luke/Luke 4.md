@@ -25,7 +25,7 @@ But Jesus answered him, saying, "It is written, 'Man shall not live by bread alo
 Then the devil, taking Him up on a high mountain, showed Him all the kingdoms of the world in a moment of time. 
 
 ###### 6 
-And the devil said to Him, "All this authority I will give You, and their glory; for _this_ has been delivered to me, and I give it to whomever I wish. 
+And the devil said to Him, "All this authority I will give You, and their glory; for this has been delivered to me, and I give it to whomever I wish. 
 
 ###### 7 
 Therefore, if You will worship before me, all will be Yours." 
@@ -40,7 +40,7 @@ Then he brought Him to Jerusalem, set Him on the pinnacle of the temple, and sai
 For it is written: 'He shall give His angels charge over you, To keep you,' 
 
 ###### 11 
-and, 'In _their_ hands they shall bear you up, Lest you dash your foot against a stone.' " 
+and, 'In their hands they shall bear you up, Lest you dash your foot against a stone.' " 
 
 ###### 12 
 And Jesus answered and said to him, "It has been said, 'You shall not tempt the Lord your God.' " 
@@ -65,13 +65,13 @@ So He came to Nazareth, where He had been brought up. And as His custom was, He 
 And He was handed the book of the prophet Isaiah. And when He had opened the book, He found the place where it was written: 
 
 ###### 18 
-"The Spirit of the Lord _is_ upon Me, Because He has anointed Me To preach the gospel to _the_ poor; He has sent Me to heal the brokenhearted, To proclaim liberty to _the_ captives And recovery of sight to _the_ blind, _To_ set at liberty those who are oppressed; 
+"The Spirit of the Lord is upon Me, Because He has anointed Me To preach the gospel to the poor; He has sent Me to heal the brokenhearted, To proclaim liberty to the captives And recovery of sight to the blind, To set at liberty those who are oppressed; 
 
 ###### 19 
 To proclaim the acceptable year of the Lord." 
 
 ###### 20 
-Then He closed the book, and gave _it_ back to the attendant and sat down. And the eyes of all who were in the synagogue were fixed on Him. 
+Then He closed the book, and gave it back to the attendant and sat down. And the eyes of all who were in the synagogue were fixed on Him. 
 
 ###### 21 
 And He began to say to them, "Today this Scripture is fulfilled in your hearing." 
@@ -89,7 +89,7 @@ Then He said, "Assuredly, I say to you, no prophet is accepted in his own countr
 But I tell you truly, many widows were in Israel in the days of Elijah, when the heaven was shut up three years and six months, and there was a great famine throughout all the land; 
 
 ###### 26 
-but to none of them was Elijah sent except to Zarephath, _in the region_ of Sidon, to a woman _who was_ a widow. 
+but to none of them was Elijah sent except to Zarephath, in the region of Sidon, to a woman who was a widow. 
 
 ###### 27 
 And many lepers were in Israel in the time of Elisha the prophet, and none of them was cleansed except Naaman the Syrian." 
@@ -115,13 +115,13 @@ And they were astonished at His teaching, for His word was with authority.
 Now in the synagogue there was a man who had a spirit of an unclean demon. And he cried out with a loud voice, 
 
 ###### 34 
-saying, "Let _us_ alone! What have we to do with You, Jesus of Nazareth? Did You come to destroy us? I know who You are--the Holy One of God!" 
+saying, "Let us alone! What have we to do with You, Jesus of Nazareth? Did You come to destroy us? I know who You are--the Holy One of God!" 
 
 ###### 35 
-But Jesus rebuked him, saying, "Be quiet, and come out of him!" And when the demon had thrown him in _their_ midst, it came out of him and did not hurt him. 
+But Jesus rebuked him, saying, "Be quiet, and come out of him!" And when the demon had thrown him in their midst, it came out of him and did not hurt him. 
 
 ###### 36 
-Then they were all amazed and spoke among themselves, saying, "What a word this _is!_ For with authority and power He commands the unclean spirits, and they come out." 
+Then they were all amazed and spoke among themselves, saying, "What a word this is! For with authority and power He commands the unclean spirits, and they come out." 
 
 ###### 37 
 And the report about Him went out into every place in the surrounding region.
@@ -140,7 +140,7 @@ So He stood over her and rebuked the fever, and it left her. And immediately she
 When the sun was setting, all those who had any that were sick with various diseases brought them to Him; and He laid His hands on every one of them and healed them. 
 
 ###### 41 
-And demons also came out of many, crying out and saying, "You are the Christ, the Son of God!" And He, rebuking _them,_ did not allow them to speak, for they knew that He was the Christ.
+And demons also came out of many, crying out and saying, "You are the Christ, the Son of God!" And He, rebuking them, did not allow them to speak, for they knew that He was the Christ.
 
 ## Jesus Preaches in Galilee 
 

@@ -138,7 +138,7 @@ Huwag kayong maghahari-harian sa mga mananampalatayang ipinagkatiwala sa inyo up
 
 
 
-At pagdating ni Cristo na siyang_ Pangulong Tagapag-alaga, tatanggap kayo ng gantimpalang napakaganda at hindi kukupas kailanman. 
+At pagdating ni Cristo na siyang Pangulong Tagapag-alaga, tatanggap kayo ng gantimpalang napakaganda at hindi kukupas kailanman. 
 
 
 
@@ -171,7 +171,7 @@ At pagdating ni Cristo na siyang_ Pangulong Tagapag-alaga, tatanggap kayo ng gan
 
 
 
-At kayo namang mga kabataan, magpasakop kayo sa matatanda. At kayong lahat na mga mananampalataya_, magpakumbaba kayo at maglingkod sa isaʼt isa, dahil sinasabi sa Kasulatan, "Kinamumuhian ng Dios ang mga mapagmataas, ngunit kinakaawaan niya ang mga mapagpakumbaba." 
+At kayo namang mga kabataan, magpasakop kayo sa matatanda. At kayong lahat na mga mananampalataya, magpakumbaba kayo at maglingkod sa isaʼt isa, dahil sinasabi sa Kasulatan, "Kinamumuhian ng Dios ang mga mapagmataas, ngunit kinakaawaan niya ang mga mapagpakumbaba." 
 
 
 
@@ -303,7 +303,7 @@ Humanda kayo at mag-ingat, dahil ang kaaway ninyong si Satanas ay umaali-aligid 
 
 
 
-Patatagin ninyo ang inyong pananampalataya sa Dios at labanan ninyo si Satanas. Alalahanin ninyong hindi lang kayo ang naghihirap kundi pati ang mga kapatid nʼyo kay Cristo_ sa buong_ mundo. Nararanasan din nila ang mga paghihirap na ito. 
+Patatagin ninyo ang inyong pananampalataya sa Dios at labanan ninyo si Satanas. Alalahanin ninyong hindi lang kayo ang naghihirap kundi pati ang mga kapatid nʼyo kay Cristo sa buong mundo. Nararanasan din nila ang mga paghihirap na ito. 
 
 
 
@@ -437,7 +437,7 @@ Isinulat ko sa inyo ang maikling sulat na ito sa tulong ni Silvanus. Kapatid nat
 
 
 
-Kinukumusta kayo ng mga mananampalataya sa Babilonia. Katulad nʼyo, mga pinili rin sila ng Dios na maging mga anak niya_. Kinukumusta rin kayo ni Marcos na itinuturing kong anak. 
+Kinukumusta kayo ng mga mananampalataya sa Babilonia. Katulad nʼyo, mga pinili rin sila ng Dios na maging mga anak niya. Kinukumusta rin kayo ni Marcos na itinuturing kong anak. 
 
 
 

@@ -139,7 +139,7 @@ Inihagis nʼyo ako sa pusod ng dagat. Napalibutan ako ng tubig at natabunan ng m
 
 
 
-Pinalayas nʼyo_ ako sa inyong presensya, pero umaasa pa rin akong makakalapit muli ako sa inyo roon_ sa inyong banal na templo. 
+Pinalayas nʼyo ako sa inyong presensya, pero umaasa pa rin akong makakalapit muli ako sa inyo roon sa inyong banal na templo. 
 
 
 
@@ -304,7 +304,7 @@ Ang mga taong sumasamba sa mga walang kwentang dios-diosan ay hindi na tapat sa 
 
 
 
-Pero maghahandog ako sa inyo nang may awit ng pasasalamat. Tutuparin ko ang pangako ko na maghahandog sa inyo_. Kayo po,_ Panginoon, ang nagliligtas." 
+Pero maghahandog ako sa inyo nang may awit ng pasasalamat. Tutuparin ko ang pangako ko na maghahandog sa inyo. Kayo po, Panginoon, ang nagliligtas." 
 
 
 

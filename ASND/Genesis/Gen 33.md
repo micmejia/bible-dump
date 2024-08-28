@@ -205,7 +205,7 @@ Nang makita ni Esau ang mga babae at ang mga bata, tinanong niya si Jacob, "Sino
 
 
 
-Lumapit agad kay Esau ang dalawang alipin na babae at ang mga anak nila, at yumukod sila bilang paggalang sa kanya_. 
+Lumapit agad kay Esau ang dalawang alipin na babae at ang mga anak nila, at yumukod sila bilang paggalang sa kanya. 
 
 
 

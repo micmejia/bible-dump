@@ -9,7 +9,7 @@ next: ['Rom 2']
 
 
 ###### 1 
-Paul, a bondservant of Jesus Christ, called _to be_ an apostle, separated to the gospel of God 
+Paul, a bondservant of Jesus Christ, called to be an apostle, separated to the gospel of God 
 
 ###### 2 
 which He promised before through His prophets in the Holy Scriptures, 
@@ -18,7 +18,7 @@ which He promised before through His prophets in the Holy Scriptures,
 concerning His Son Jesus Christ our Lord, who was born of the seed of David according to the flesh, 
 
 ###### 4 
-_and_ declared _to be_ the Son of God with power according to the Spirit of holiness, by the resurrection from the dead. 
+and declared to be the Son of God with power according to the Spirit of holiness, by the resurrection from the dead. 
 
 ###### 5 
 Through Him we have received grace and apostleship for obedience to the faith among all nations for His name, 
@@ -27,7 +27,7 @@ Through Him we have received grace and apostleship for obedience to the faith am
 among whom you also are the called of Jesus Christ; 
 
 ###### 7 
-To all who are in Rome, beloved of God, called _to be_ saints: Grace to you and peace from God our Father and the Lord Jesus Christ.
+To all who are in Rome, beloved of God, called to be saints: Grace to you and peace from God our Father and the Lord Jesus Christ.
 
 ## Desire to Visit Rome 
 
@@ -53,7 +53,7 @@ Now I do not want you to be unaware, brethren, that I often planned to come to y
 I am a debtor both to Greeks and to barbarians, both to wise and to unwise. 
 
 ###### 15 
-So, as much as is in me, _I am_ ready to preach the gospel to you who are in Rome also.
+So, as much as is in me, I am ready to preach the gospel to you who are in Rome also.
 
 ## The Just Live by Faith 
 
@@ -67,13 +67,13 @@ For in it the righteousness of God is revealed from faith to faith; as it is wri
 For the wrath of God is revealed from heaven against all ungodliness and unrighteousness of men, who suppress the truth in unrighteousness, 
 
 ###### 19 
-because what may be known of God is manifest in them, for God has shown _it_ to them. 
+because what may be known of God is manifest in them, for God has shown it to them. 
 
 ###### 20 
-For since the creation of the world His invisible _attributes_ are clearly seen, being understood by the things that are made, _even_ His eternal power and Godhead, so that they are without excuse, 
+For since the creation of the world His invisible attributes are clearly seen, being understood by the things that are made, even His eternal power and Godhead, so that they are without excuse, 
 
 ###### 21 
-because, although they knew God, they did not glorify _Him_ as God, nor were thankful, but became futile in their thoughts, and their foolish hearts were darkened. 
+because, although they knew God, they did not glorify Him as God, nor were thankful, but became futile in their thoughts, and their foolish hearts were darkened. 
 
 ###### 22 
 Professing to be wise, they became fools, 
@@ -94,10 +94,10 @@ For this reason God gave them up to vile passions. For even their women exchange
 Likewise also the men, leaving the natural use of the woman, burned in their lust for one another, men with men committing what is shameful, and receiving in themselves the penalty of their error which was due. 
 
 ###### 28 
-And even as they did not like to retain God in _their_ knowledge, God gave them over to a debased mind, to do those things which are not fitting; 
+And even as they did not like to retain God in their knowledge, God gave them over to a debased mind, to do those things which are not fitting; 
 
 ###### 29 
-being filled with all unrighteousness, sexual immorality, wickedness, covetousness, maliciousness; full of envy, murder, strife, deceit, evil-mindedness; _they are_ whisperers, 
+being filled with all unrighteousness, sexual immorality, wickedness, covetousness, maliciousness; full of envy, murder, strife, deceit, evil-mindedness; they are whisperers, 
 
 ###### 30 
 backbiters, haters of God, violent, proud, boasters, inventors of evil things, disobedient to parents, 

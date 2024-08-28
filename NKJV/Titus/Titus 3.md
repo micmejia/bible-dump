@@ -52,9 +52,9 @@ When I send Artemas to you, or Tychicus, be diligent to come to me at Nicopolis,
 Send Zenas the lawyer and Apollos on their journey with haste, that they may lack nothing. 
 
 ###### 14 
-And let our _people_ also learn to maintain good works, to _meet_ urgent needs, that they may not be unfruitful.
+And let our people also learn to maintain good works, to meet urgent needs, that they may not be unfruitful.
 
 ## Farewell 
 
 ###### 15 
-All who _are_ with me greet you. Greet those who love us in the faith. Grace _be_ with you all. Amen.
+All who are with me greet you. Greet those who love us in the faith. Grace be with you all. Amen.

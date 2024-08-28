@@ -13,16 +13,16 @@ next: ['Heb 4']
 Therefore, holy brethren, partakers of the heavenly calling, consider the Apostle and High Priest of our confession, Christ Jesus, 
 
 ###### 2 
-who was faithful to Him who appointed Him, as Moses also _was faithful_ in all His house. 
+who was faithful to Him who appointed Him, as Moses also was faithful in all His house. 
 
 ###### 3 
 For this One has been counted worthy of more glory than Moses, inasmuch as He who built the house has more honor than the house. 
 
 ###### 4 
-For every house is built by someone, but He who built all things _is_ God. 
+For every house is built by someone, but He who built all things is God. 
 
 ###### 5 
-And Moses indeed _was_ faithful in all His house as a servant, for a testimony of those things which would be spoken _afterward,_ 
+And Moses indeed was faithful in all His house as a servant, for a testimony of those things which would be spoken afterward, 
 
 ###### 6 
 but Christ as a Son over His own house, whose house we are if we hold fast the confidence and the rejoicing of the hope firm to the end.
@@ -39,7 +39,7 @@ Do not harden your hearts as in the rebellion, In the day of trial in the wilder
 Where your fathers tested Me, tried Me, And saw My works forty years. 
 
 ###### 10 
-Therefore I was angry with that generation, And said, 'They always go astray in _their_ heart, And they have not known My ways.' 
+Therefore I was angry with that generation, And said, 'They always go astray in their heart, And they have not known My ways.' 
 
 ###### 11 
 So I swore in My wrath, 'They shall not enter My rest.' " 
@@ -57,10 +57,10 @@ For we have become partakers of Christ if we hold the beginning of our confidenc
 while it is said: "Today, if you will hear His voice, Do not harden your hearts as in the rebellion." ## Failure of the Wilderness Wanderers 
 
 ###### 16 
-For who, having heard, rebelled? Indeed, _was it_ not all who came out of Egypt, _led_ by Moses? 
+For who, having heard, rebelled? Indeed, was it not all who came out of Egypt, led by Moses? 
 
 ###### 17 
-Now with whom was He angry forty years? _Was it_ not with those who sinned, whose corpses fell in the wilderness? 
+Now with whom was He angry forty years? Was it not with those who sinned, whose corpses fell in the wilderness? 
 
 ###### 18 
 And to whom did He swear that they would not enter His rest, but to those who did not obey? 

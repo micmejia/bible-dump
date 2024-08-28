@@ -205,7 +205,7 @@ Marami na akong nasabi, kaya hindi na po ako magsasalita."
 
 
 
-Muling_ sinabi ng Panginoon kay Job mula sa ipu-ipo, 
+Muling sinabi ng Panginoon kay Job mula sa ipu-ipo, 
 
 
 
@@ -535,7 +535,7 @@ Ang buntot niyaʼy tuwid na tuwid na parang kahoy ng sedro, at ang mga hitaʼy m
 
 
 
-Ang mga buto nitoʼy kasintibay ng_ tubong tanso o bakal. 
+Ang mga buto nitoʼy kasintibay ng tubong tanso o bakal. 
 
 
 
@@ -700,7 +700,7 @@ Ang mga halamang matinik at ang iba pang mga punongkahoy sa tabi ng batis ay nag
 
 
 
-Hindi siya natatakot kahit na rumaragasa ang tubig sa ilog. Tahimik pa rin siya kahit halos natatabunan na siya ng tubig sa Ilog ng_ Jordan. 
+Hindi siya natatakot kahit na rumaragasa ang tubig sa ilog. Tahimik pa rin siya kahit halos natatabunan na siya ng tubig sa Ilog ng Jordan. 
 
 
 

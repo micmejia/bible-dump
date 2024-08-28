@@ -10,13 +10,13 @@ next: ['Mark 15']
 
 
 ###### 1 
-After two days it was the Passover and _the Feast_ of Unleavened Bread. And the chief priests and the scribes sought how they might take Him by trickery and put _Him_ to death. 
+After two days it was the Passover and the Feast of Unleavened Bread. And the chief priests and the scribes sought how they might take Him by trickery and put Him to death. 
 
 ###### 2 
 But they said, "Not during the feast, lest there be an uproar of the people." ## The Anointing at Bethany 
 
 ###### 3 
-And being in Bethany at the house of Simon the leper, as He sat at the table, a woman came having an alabaster flask of very costly oil of spikenard. Then she broke the flask and poured _it_ on His head. 
+And being in Bethany at the house of Simon the leper, as He sat at the table, a woman came having an alabaster flask of very costly oil of spikenard. Then she broke the flask and poured it on His head. 
 
 ###### 4 
 But there were some who were indignant among themselves, and said, "Why was this fragrant oil wasted? 
@@ -40,12 +40,12 @@ Assuredly, I say to you, wherever this gospel is preached in the whole world, wh
 Then Judas Iscariot, one of the twelve, went to the chief priests to betray Him to them. 
 
 ###### 11 
-And when they heard _it,_ they were glad, and promised to give him money. So he sought how he might conveniently betray Him.
+And when they heard it, they were glad, and promised to give him money. So he sought how he might conveniently betray Him.
 
 ## Jesus Celebrates the Passover with His Disciples 
 
 ###### 12 
-Now on the first day of Unleavened Bread, when they killed the Passover _lamb,_ His disciples said to Him, "Where do You want us to go and prepare, that You may eat the Passover?" 
+Now on the first day of Unleavened Bread, when they killed the Passover lamb, His disciples said to Him, "Where do You want us to go and prepare, that You may eat the Passover?" 
 
 ###### 13 
 And He sent out two of His disciples and said to them, "Go into the city, and a man will meet you carrying a pitcher of water; follow him. 
@@ -54,7 +54,7 @@ And He sent out two of His disciples and said to them, "Go into the city, and a 
 Wherever he goes in, say to the master of the house, 'The Teacher says, "Where is the guest room in which I may eat the Passover with My disciples?" ' 
 
 ###### 15 
-Then he will show you a large upper room, furnished _and_ prepared; there make ready for us." 
+Then he will show you a large upper room, furnished and prepared; there make ready for us." 
 
 ###### 16 
 So His disciples went out, and came into the city, and found it just as He had said to them; and they prepared the Passover. 
@@ -66,19 +66,19 @@ In the evening He came with the twelve.
 Now as they sat and ate, Jesus said, "Assuredly, I say to you, one of you who eats with Me will betray Me." 
 
 ###### 19 
-And they began to be sorrowful, and to say to Him one by one, "_Is_ it I?" And another _said,_ "_Is_ it I?" 
+And they began to be sorrowful, and to say to Him one by one, "Is it I?" And another said, "Is it I?" 
 
 ###### 20 
-He answered and said to them, "_It is_ one of the twelve, who dips with Me in the dish. 
+He answered and said to them, "It is one of the twelve, who dips with Me in the dish. 
 
 ###### 21 
 The Son of Man indeed goes just as it is written of Him, but woe to that man by whom the Son of Man is betrayed! It would have been good for that man if he had never been born." ## Jesus Institutes the Lord's Supper 
 
 ###### 22 
-And as they were eating, Jesus took bread, blessed and broke _it,_ and gave _it_ to them and said, "Take, eat; this is My body." 
+And as they were eating, Jesus took bread, blessed and broke it, and gave it to them and said, "Take, eat; this is My body." 
 
 ###### 23 
-Then He took the cup, and when He had given thanks He gave _it_ to them, and they all drank from it. 
+Then He took the cup, and when He had given thanks He gave it to them, and they all drank from it. 
 
 ###### 24 
 And He said to them, "This is My blood of the new covenant, which is shed for many. 
@@ -98,10 +98,10 @@ Then Jesus said to them, "All of you will be made to stumble because of Me this 
 "But after I have been raised, I will go before you to Galilee." 
 
 ###### 29 
-Peter said to Him, "Even if all are made to stumble, yet I _will_ not _be._" 
+Peter said to Him, "Even if all are made to stumble, yet I will not be." 
 
 ###### 30 
-Jesus said to him, "Assuredly, I say to you that today, _even_ this night, before the rooster crows twice, you will deny Me three times." 
+Jesus said to him, "Assuredly, I say to you that today, even this night, before the rooster crows twice, you will deny Me three times." 
 
 ###### 31 
 But he spoke more vehemently, "If I have to die with You, I will not deny You!" And they all said likewise.
@@ -115,19 +115,19 @@ Then they came to a place which was named Gethsemane; and He said to His discipl
 And He took Peter, James, and John with Him, and He began to be troubled and deeply distressed. 
 
 ###### 34 
-Then He said to them, "My soul is exceedingly sorrowful, _even_ to death. Stay here and watch." 
+Then He said to them, "My soul is exceedingly sorrowful, even to death. Stay here and watch." 
 
 ###### 35 
 He went a little farther, and fell on the ground, and prayed that if it were possible, the hour might pass from Him. 
 
 ###### 36 
-And He said, "Abba, Father, all things _are_ possible for You. Take this cup away from Me; nevertheless, not what I will, but what You _will._" 
+And He said, "Abba, Father, all things are possible for You. Take this cup away from Me; nevertheless, not what I will, but what You will." 
 
 ###### 37 
 Then He came and found them sleeping, and said to Peter, "Simon, are you sleeping? Could you not watch one hour? 
 
 ###### 38 
-Watch and pray, lest you enter into temptation. The spirit indeed _is_ willing, but the flesh _is_ weak." 
+Watch and pray, lest you enter into temptation. The spirit indeed is willing, but the flesh is weak." 
 
 ###### 39 
 Again He went away and prayed, and spoke the same words. 
@@ -145,7 +145,7 @@ Rise, let us be going. See, My betrayer is at hand." ## Betrayal and Arrest in G
 And immediately, while He was still speaking, Judas, one of the twelve, with a great multitude with swords and clubs, came from the chief priests and the scribes and the elders. 
 
 ###### 44 
-Now His betrayer had given them a signal, saying, "Whomever I kiss, He is the One; seize Him and lead _Him_ away safely." 
+Now His betrayer had given them a signal, saying, "Whomever I kiss, He is the One; seize Him and lead Him away safely." 
 
 ###### 45 
 As soon as he had come, immediately he went up to Him and said to Him, "Rabbi, Rabbi!" and kissed Him. 
@@ -168,7 +168,7 @@ Then they all forsook Him and fled.
 ## A Young Man Flees Naked 
 
 ###### 51 
-Now a certain young man followed Him, having a linen cloth thrown around _his_ naked _body._ And the young men laid hold of him, 
+Now a certain young man followed Him, having a linen cloth thrown around his naked body. And the young men laid hold of him, 
 
 ###### 52 
 and he left the linen cloth and fled from them naked.
@@ -197,7 +197,7 @@ Then some rose up and bore false witness against Him, saying,
 But not even then did their testimony agree. 
 
 ###### 60 
-And the high priest stood up in the midst and asked Jesus, saying, "Do You answer nothing? What _is it_ these men testify against You?" 
+And the high priest stood up in the midst and asked Jesus, saying, "Do You answer nothing? What is it these men testify against You?" 
 
 ###### 61 
 But He kept silent and answered nothing. Again the high priest asked Him, saying to Him, "Are You the Christ, the Son of the Blessed?" 
@@ -226,13 +226,13 @@ And when she saw Peter warming himself, she looked at him and said, "You also we
 But he denied it, saying, "I neither know nor understand what you are saying." And he went out on the porch, and a rooster crowed. 
 
 ###### 69 
-And the servant girl saw him again, and began to say to those who stood by, "This is _one_ of them." 
+And the servant girl saw him again, and began to say to those who stood by, "This is one of them." 
 
 ###### 70 
-But he denied it again. And a little later those who stood by said to Peter again, "Surely you are _one_ of them; for you are a Galilean, and your speech shows _it._" 
+But he denied it again. And a little later those who stood by said to Peter again, "Surely you are one of them; for you are a Galilean, and your speech shows it." 
 
 ###### 71 
 Then he began to curse and swear, "I do not know this Man of whom you speak!" 
 
 ###### 72 
-A second time _the_ rooster crowed. Then Peter called to mind the word that Jesus had said to him, "Before the rooster crows twice, you will deny Me three times." And when he thought about it, he wept.
+A second time the rooster crowed. Then Peter called to mind the word that Jesus had said to him, "Before the rooster crows twice, you will deny Me three times." And when he thought about it, he wept.

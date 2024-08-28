@@ -25,7 +25,7 @@ whose minds the god of this age has blinded, who do not believe, lest the light 
 For we do not preach ourselves, but Christ Jesus the Lord, and ourselves your bondservants for Jesus' sake. 
 
 ###### 6 
-For it is the God who commanded light to shine out of darkness, who has shone in our hearts to _give_ the light of the knowledge of the glory of God in the face of Jesus Christ.
+For it is the God who commanded light to shine out of darkness, who has shone in our hearts to give the light of the knowledge of the glory of God in the face of Jesus Christ.
 
 ## Cast Down but Unconquered 
 
@@ -33,7 +33,7 @@ For it is the God who commanded light to shine out of darkness, who has shone in
 But we have this treasure in earthen vessels, that the excellence of the power may be of God and not of us. 
 
 ###### 8 
-_We are_ hard-pressed on every side, yet not crushed; _we are_ perplexed, but not in despair; 
+We are hard-pressed on every side, yet not crushed; we are perplexed, but not in despair; 
 
 ###### 9 
 persecuted, but not forsaken; struck down, but not destroyed-- 
@@ -51,18 +51,18 @@ So then death is working in us, but life in you.
 And since we have the same spirit of faith, according to what is written, "I believed and therefore I spoke," we also believe and therefore speak, 
 
 ###### 14 
-knowing that He who raised up the Lord Jesus will also raise us up with Jesus, and will present _us_ with you. 
+knowing that He who raised up the Lord Jesus will also raise us up with Jesus, and will present us with you. 
 
 ###### 15 
-For all things _are_ for your sakes, that grace, having spread through the many, may cause thanksgiving to abound to the glory of God.
+For all things are for your sakes, that grace, having spread through the many, may cause thanksgiving to abound to the glory of God.
 
 ## Seeing the Invisible 
 
 ###### 16 
-Therefore we do not lose heart. Even though our outward man is perishing, yet the inward _man_ is being renewed day by day. 
+Therefore we do not lose heart. Even though our outward man is perishing, yet the inward man is being renewed day by day. 
 
 ###### 17 
-For our light affliction, which is but for a moment, is working for us a far more exceeding _and_ eternal weight of glory, 
+For our light affliction, which is but for a moment, is working for us a far more exceeding and eternal weight of glory, 
 
 ###### 18 
-while we do not look at the things which are seen, but at the things which are not seen. For the things which are seen _are_ temporary, but the things which are not seen _are_ eternal.
+while we do not look at the things which are seen, but at the things which are not seen. For the things which are seen are temporary, but the things which are not seen are eternal.

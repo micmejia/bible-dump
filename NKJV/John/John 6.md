@@ -10,7 +10,7 @@ next: ['John 7']
 
 
 ###### 1 
-After these things Jesus went over the Sea of Galilee, which is _the Sea_ of Tiberias. 
+After these things Jesus went over the Sea of Galilee, which is the Sea of Tiberias. 
 
 ###### 2 
 Then a great multitude followed Him, because they saw His signs which He performed on those who were diseased. 
@@ -22,7 +22,7 @@ And Jesus went up on the mountain, and there He sat with His disciples.
 Now the Passover, a feast of the Jews, was near. 
 
 ###### 5 
-Then Jesus lifted up _His_ eyes, and seeing a great multitude coming toward Him, He said to Philip, "Where shall we buy bread, that these may eat?" 
+Then Jesus lifted up His eyes, and seeing a great multitude coming toward Him, He said to Philip, "Where shall we buy bread, that these may eat?" 
 
 ###### 6 
 But this He said to test him, for He Himself knew what He would do. 
@@ -40,13 +40,13 @@ One of His disciples, Andrew, Simon Peter's brother, said to Him,
 Then Jesus said, "Make the people sit down." Now there was much grass in the place. So the men sat down, in number about five thousand. 
 
 ###### 11 
-And Jesus took the loaves, and when He had given thanks He distributed _them_ to the disciples, and the disciples to those sitting down; and likewise of the fish, as much as they wanted. 
+And Jesus took the loaves, and when He had given thanks He distributed them to the disciples, and the disciples to those sitting down; and likewise of the fish, as much as they wanted. 
 
 ###### 12 
 So when they were filled, He said to His disciples, "Gather up the fragments that remain, so that nothing is lost." 
 
 ###### 13 
-Therefore they gathered _them_ up, and filled twelve baskets with the fragments of the five barley loaves which were left over by those who had eaten. 
+Therefore they gathered them up, and filled twelve baskets with the fragments of the five barley loaves which were left over by those who had eaten. 
 
 ###### 14 
 Then those men, when they had seen the sign that Jesus did, said, "This is truly the Prophet who is to come into the world." ## Jesus Walks on the Sea 
@@ -165,7 +165,7 @@ This is the bread which comes down from heaven, that one may eat of it and not d
 I am the living bread which came down from heaven. If anyone eats of this bread, he will live forever; and the bread that I shall give is My flesh, which I shall give for the life of the world." 
 
 ###### 52 
-The Jews therefore quarreled among themselves, saying, "How can this Man give us _His_ flesh to eat?" 
+The Jews therefore quarreled among themselves, saying, "How can this Man give us His flesh to eat?" 
 
 ###### 53 
 Then Jesus said to them, "Most assuredly, I say to you, unless you eat the flesh of the Son of Man and drink His blood, you have no life in you. 
@@ -191,16 +191,16 @@ These things He said in the synagogue as He taught in Capernaum.
 ## Many Disciples Turn Away 
 
 ###### 60 
-Therefore many of His disciples, when they heard _this,_ said, "This is a hard saying; who can understand it?" 
+Therefore many of His disciples, when they heard this, said, "This is a hard saying; who can understand it?" 
 
 ###### 61 
 When Jesus knew in Himself that His disciples complained about this, He said to them, "Does this offend you? 
 
 ###### 62 
-_What_ then if you should see the Son of Man ascend where He was before? 
+What then if you should see the Son of Man ascend where He was before? 
 
 ###### 63 
-It is the Spirit who gives life; the flesh profits nothing. The words that I speak to you are spirit, and _they_ are life. 
+It is the Spirit who gives life; the flesh profits nothing. The words that I speak to you are spirit, and they are life. 
 
 ###### 64 
 But there are some of you who do not believe." For Jesus knew from the beginning who they were who did not believe, and who would betray Him. 
@@ -209,7 +209,7 @@ But there are some of you who do not believe." For Jesus knew from the beginning
 And He said, "Therefore I have said to you that no one can come to Me unless it has been granted to him by My Father." 
 
 ###### 66 
-From that _time_ many of His disciples went back and walked with Him no more. 
+From that time many of His disciples went back and walked with Him no more. 
 
 ###### 67 
 Then Jesus said to the twelve, "Do you also want to go away?" 
@@ -224,4 +224,4 @@ Also we have come to believe and know that You are the Christ, the Son of the li
 Jesus answered them, "Did I not choose you, the twelve, and one of you is a devil?" 
 
 ###### 71 
-He spoke of Judas Iscariot, _the son_ of Simon, for it was he who would betray Him, being one of the twelve.
+He spoke of Judas Iscariot, the son of Simon, for it was he who would betray Him, being one of the twelve.

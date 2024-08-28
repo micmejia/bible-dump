@@ -72,7 +72,7 @@ Bumalik sina David sa Ziklag pagkatapos nilang matalo ang mga Amalekita. Patay n
 
 
 
-Nang ikatlong araw, may dumating na tao sa Ziklag mula sa kampo ni Saul; punit ang damit niya at may alikabok ang ulo bilang pagluluksa_. Lumapit siya kay David at yumukod bilang paggalang_ sa kanya. 
+Nang ikatlong araw, may dumating na tao sa Ziklag mula sa kampo ni Saul; punit ang damit niya at may alikabok ang ulo bilang pagluluksa. Lumapit siya kay David at yumukod bilang paggalang sa kanya. 
 
 
 
@@ -369,7 +369,7 @@ Kaya nilapitan ko siya at pinatay dahil alam kong hindi na rin siya mabubuhay sa
 
 
 
-Nang marinig ito ni_ David at ng mga tauhan niya, pinunit nila ang kanilang mga damit bilang pagluluksa_. 
+Nang marinig ito ni David at ng mga tauhan niya, pinunit nila ang kanilang mga damit bilang pagluluksa. 
 
 
 
@@ -600,7 +600,7 @@ Gumawa si David ng isang awit para kay Saul at sa anak nitong si Jonatan,
 
 
 
-at iniutos niyang ituro ito sa mga mamamayan ng Juda. Tinawag itong Awit Tungkol sa Pana at nakasulat ito sa Aklat ni Jashar. Ito ang panaghoy niya_: 
+at iniutos niyang ituro ito sa mga mamamayan ng Juda. Tinawag itong Awit Tungkol sa Pana at nakasulat ito sa Aklat ni Jashar. Ito ang panaghoy niya: 
 
 
 
@@ -699,7 +699,7 @@ Huwag itong ipaalam sa Gat, o sa mga lansangan ng Ashkelon, baka ikagalak ito ng
 
 
 
-O Bundok ng Gilboa, wala sanang ulan o hamog na dumating sa iyo. Wala sanang tumubong pananim sa iyong bukirin upang ihandog sa Dios_. Sapagkat diyan nadungisan ng mga kaaway_ ang pananggalang ng magiting na si Haring Saul. At wala nang magpapahid dito ng langis upang itoʼy linisin at pakintabin_. 
+O Bundok ng Gilboa, wala sanang ulan o hamog na dumating sa iyo. Wala sanang tumubong pananim sa iyong bukirin upang ihandog sa Dios. Sapagkat diyan nadungisan ng mga kaaway ang pananggalang ng magiting na si Haring Saul. At wala nang magpapahid dito ng langis upang itoʼy linisin at pakintabin. 
 
 
 
@@ -765,7 +765,7 @@ Sa pamamagitan ng espada ni Saul at pana ni Jonatan, maraming magigiting na kala
 
 
 
-Minahal at kinagiliwan ng mga Israelita sina Saul at Jonatan. Magkasama sila sa buhay at kamatayan. Sa digmaan,_ mas mabilis pa sila sa agila at mas malakas pa sa leon. 
+Minahal at kinagiliwan ng mga Israelita sina Saul at Jonatan. Magkasama sila sa buhay at kamatayan. Sa digmaan, mas mabilis pa sila sa agila at mas malakas pa sa leon. 
 
 
 
@@ -831,7 +831,7 @@ Mga babae ng Israel, magdalamhati kayo para kay Saul. Dahil sa kanyaʼy nakapags
 
 
 
-Ang magigiting na sundalo ng Israel_ ay napatay sa labanan. Pinatay din si Jonatan sa inyong kabundukan. 
+Ang magigiting na sundalo ng Israel ay napatay sa labanan. Pinatay din si Jonatan sa inyong kabundukan. 
 
 
 
@@ -897,4 +897,4 @@ Nagdadalamhati ako sa iyo, Jonatan kapatid ko! Mahal na mahal kita; ang pagmamah
 
 
 
-Nangabuwal ang magigiting na sundalo ng Israel_. Ang kanilang mga sandataʼy nangawala."
+Nangabuwal ang magigiting na sundalo ng Israel. Ang kanilang mga sandataʼy nangawala."

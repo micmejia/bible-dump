@@ -139,7 +139,7 @@ Sa loob ng dalawang taon, ibabalik ko na rito ang lahat ng kagamitan ng templo k
 
 
 
-Pababalikin ko rin dito si Haring Jehoyakin ng Juda na anak ni Jehoyakim at ang lahat ng taga-Juda na binihag sa Babilonia, dahil wawakasan ko na ang kapangyarihan ng hari ng Babilonia. Ako,_ ang Panginoon, ang nagsasabi nito.' " 
+Pababalikin ko rin dito si Haring Jehoyakin ng Juda na anak ni Jehoyakim at ang lahat ng taga-Juda na binihag sa Babilonia, dahil wawakasan ko na ang kapangyarihan ng hari ng Babilonia. Ako, ang Panginoon, ang nagsasabi nito.' " 
 
 
 
@@ -469,7 +469,7 @@ Hindi nagtagal, pagkatapos baliin ni Propeta Hanania ang pamatok sa leeg ni Jere
 
 
 
-Ako,_ ang Panginoong Makapangyarihan, ang Dios ng Israel ay nagsasabing: Ipapapasan ko ang pamatok na bakal sa lahat ng bansa, para maglingkod sila kay Haring Nebucadnezar ng Babilonia. Pati ang mababangis na hayop ay ipapasakop ko sa pamamahala niya." 
+Ako, ang Panginoong Makapangyarihan, ang Dios ng Israel ay nagsasabing: Ipapapasan ko ang pamatok na bakal sa lahat ng bansa, para maglingkod sila kay Haring Nebucadnezar ng Babilonia. Pati ang mababangis na hayop ay ipapasakop ko sa pamamahala niya." 
 
 
 

@@ -271,7 +271,7 @@ Ngunit dinala natin ang lahat ng hayop at mga ari-arian na nasamsam natin sa kan
 
 
 
-"Kaya naagaw natin mula sa dalawang hari ng mga Amoreo, ang lupain sa silangan ng Ilog ng_ Jordan mula sa Lambak ng Arnon hanggang sa Bundok ng Hermon. 
+"Kaya naagaw natin mula sa dalawang hari ng mga Amoreo, ang lupain sa silangan ng Ilog ng Jordan mula sa Lambak ng Arnon hanggang sa Bundok ng Hermon. 
 
 
 
@@ -502,7 +502,7 @@ Si Jair na mula sa lahi ni Manase, ang nagmamay-ari ng buong Argob na sakop ng B
 
 
 
-Ibinigay ko ang Gilead sa pamilya ni_ Makir. 
+Ibinigay ko ang Gilead sa pamilya ni Makir. 
 
 
 
@@ -535,7 +535,7 @@ Ibinigay ko ang Gilead sa pamilya ni_ Makir.
 
 
 
-Ibinigay ko sa mga lahi nina Reuben at Gad ang mga lupain mula sa Gilead hanggang sa Lambak ng Arnon. Ang gitna ng Arnon ang kanilang hangganan sa timog_, at ang kanilang hangganan sa hilaga ay_ ang Lambak ng Jabok, na hangganan din ng lupain ng_ mga Ammonita. 
+Ibinigay ko sa mga lahi nina Reuben at Gad ang mga lupain mula sa Gilead hanggang sa Lambak ng Arnon. Ang gitna ng Arnon ang kanilang hangganan sa timog, at ang kanilang hangganan sa hilaga ay ang Lambak ng Jabok, na hangganan din ng lupain ng mga Ammonita. 
 
 
 
@@ -568,7 +568,7 @@ Ibinigay ko sa mga lahi nina Reuben at Gad ang mga lupain mula sa Gilead hanggan
 
 
 
-Ang hangganan sa kanluran ay ang Kapatagan ng Jordan pati na ang Ilog ng_ Jordan, mula sa Lawa ng_ Galilea hanggang sa Dagat na Patay sa ibabang bahagi ng libis ng Pisga sa silangan. 
+Ang hangganan sa kanluran ay ang Kapatagan ng Jordan pati na ang Ilog ng Jordan, mula sa Lawa ng Galilea hanggang sa Dagat na Patay sa ibabang bahagi ng libis ng Pisga sa silangan. 
 
 
 
@@ -601,7 +601,7 @@ Ang hangganan sa kanluran ay ang Kapatagan ng Jordan pati na ang Ilog ng_ Jordan
 
 
 
-"Nang panahong iyon, inutusan ko ang mga angkan ninyo na naninirahan sa silangan ng Jordan, 'Kahit na ibinigay ng Panginoon na inyong Dios ang lupang ito para angkinin ninyo, kailangang tumawid ang lahat ng sundalo ninyo sa Ilog ng Jordan_ na armado at handang manguna sa inyong mga kapatid na Israelita sa pakikipaglaban. 
+"Nang panahong iyon, inutusan ko ang mga angkan ninyo na naninirahan sa silangan ng Jordan, 'Kahit na ibinigay ng Panginoon na inyong Dios ang lupang ito para angkinin ninyo, kailangang tumawid ang lahat ng sundalo ninyo sa Ilog ng Jordan na armado at handang manguna sa inyong mga kapatid na Israelita sa pakikipaglaban. 
 
 
 
@@ -766,7 +766,7 @@ Huwag kayong matakot sa kanila; ang Panginoon na inyong Dios mismo ang makikipag
 
 
 
-"Nang panahong iyon, nagmakaawa ako sa Panginoon. Sinabi ko_, 
+"Nang panahong iyon, nagmakaawa ako sa Panginoon. Sinabi ko, 
 
 
 
@@ -832,7 +832,7 @@ Huwag kayong matakot sa kanila; ang Panginoon na inyong Dios mismo ang makikipag
 
 
 
-Kaya payagan po ninyo akong makatawid para makita ko ang magandang lupain sa kabila ng Jordan, ang magagandang kaburulan at ang mga kabundukan ng_ Lebanon.' 
+Kaya payagan po ninyo akong makatawid para makita ko ang magandang lupain sa kabila ng Jordan, ang magagandang kaburulan at ang mga kabundukan ng Lebanon.' 
 
 
 
@@ -931,7 +931,7 @@ Umakyat ka sa tuktok ng Bundok ng Pisga at tumanaw sa lupain sa kahit saang dire
 
 
 
-Ngunit turuan mo si Josue sa kanyang gagawin. Palakasin mo ang loob niya dahil siya ang mamumuno sa mga taong ito sa pagtawid sa Jordan_. Ibibigay niya sa kanila ang lupaing nakikita mo ngayon!' 
+Ngunit turuan mo si Josue sa kanyang gagawin. Palakasin mo ang loob niya dahil siya ang mamumuno sa mga taong ito sa pagtawid sa Jordan. Ibibigay niya sa kanila ang lupaing nakikita mo ngayon!' 
 
 
 

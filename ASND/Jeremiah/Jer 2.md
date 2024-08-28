@@ -106,7 +106,7 @@ Sinabi sa akin ng Panginoon,
 
 
 
-Kayong mga Israelita ay ibinukod para sa akin. Para kayong pinakaunang bunga na ibinigay sa akin. Pinarusahan ko ang mga nanakit sa inyo, at napahamak sila. Ako,_ ang Panginoon, ang nagsasabi nito.' " 
+Kayong mga Israelita ay ibinukod para sa akin. Para kayong pinakaunang bunga na ibinigay sa akin. Pinarusahan ko ang mga nanakit sa inyo, at napahamak sila. Ako, ang Panginoon, ang nagsasabi nito.' " 
 
 
 
@@ -304,7 +304,7 @@ Kahit ang mga pari ay hindi ako hinanap. Ang mga nagtuturo ng kautusan ay hindi 
 
 
 
-Kaya susumbatan ko silang muli, pati ang magiging angkan ninyo. Ako,_ ang Panginoon, ang nagsasabi nito. 
+Kaya susumbatan ko silang muli, pati ang magiging angkan ninyo. Ako, ang Panginoon, ang nagsasabi nito. 
 
 
 
@@ -337,7 +337,7 @@ Kaya susumbatan ko silang muli, pati ang magiging angkan ninyo. Ako,_ ang Pangin
 
 
 
-"Tumawid kayo sa kanluran,_ sa mga isla ng Kitim, at magsugo kayo ng magmamasid ng mabuti sa silangan,_ sa lupain ng_ Kedar, at tingnan kung may nangyaring tulad nito: 
+"Tumawid kayo sa kanluran, sa mga isla ng Kitim, at magsugo kayo ng magmamasid ng mabuti sa silangan, sa lupain ng Kedar, at tingnan kung may nangyaring tulad nito: 
 
 
 
@@ -403,7 +403,7 @@ May bansa bang nagpalit ng kanilang dios, kahit na hindi ito mga tunay na dios? 
 
 
 
-Nangilabot ang buong kalangitan sa ginawa nila; at nayanig ito sa laki ng pagkagulat. Ako,_ ang Panginoon, ang nagsasabi nito. 
+Nangilabot ang buong kalangitan sa ginawa nila; at nayanig ito sa laki ng pagkagulat. Ako, ang Panginoon, ang nagsasabi nito. 
 
 
 
@@ -436,7 +436,7 @@ Nangilabot ang buong kalangitan sa ginawa nila; at nayanig ito sa laki ng pagkag
 
 
 
-"Gumawa ang mga mamamayan ko ng dalawang kasalanan: Itinakwil nila ako, ang bukal na nagbibigay-buhay, at sumamba sila sa ibang mga dios, na para bang_ naghukay sila ng lalagyan ng tubig na natutuyo. 
+"Gumawa ang mga mamamayan ko ng dalawang kasalanan: Itinakwil nila ako, ang bukal na nagbibigay-buhay, at sumamba sila sa ibang mga dios, na para bang naghukay sila ng lalagyan ng tubig na natutuyo. 
 
 
 
@@ -568,7 +568,7 @@ Ang mga taga-Memfis at mga taga-Tapanhes ang nagwasak sa kanya.
 
 
 
-"Kayong mga Israelita na rin ang nagdala ng kapahamakang ito sa sarili ninyo. Sapagkat itinakwil nʼyo ako,_ ang Panginoon na inyong Dios, akong pumatnubay sa paglalakbay ninyo. 
+"Kayong mga Israelita na rin ang nagdala ng kapahamakang ito sa sarili ninyo. Sapagkat itinakwil nʼyo ako, ang Panginoon na inyong Dios, akong pumatnubay sa paglalakbay ninyo. 
 
 
 
@@ -667,7 +667,7 @@ Parurusahan ko kayo dahil sa kasamaan at pagtakwil nʼyo sa akin. Isipin nʼyo k
 
 
 
-"Noong inalipin kayo, para kayong bakang_ nakapamatok, o mga bilanggong_ nakakadena. Pero nang mapalaya ko na kayo, ayaw naman ninyong maglingkod sa akin. Sa halip, sumamba kayo sa mga dios-diosan_ sa bawat matataas na burol at sa ilalim ng bawat malalagong punongkahoy. Katulad kayo ng babaeng bayaran. 
+"Noong inalipin kayo, para kayong bakang nakapamatok, o mga bilanggong nakakadena. Pero nang mapalaya ko na kayo, ayaw naman ninyong maglingkod sa akin. Sa halip, sumamba kayo sa mga dios-diosan sa bawat matataas na burol at sa ilalim ng bawat malalagong punongkahoy. Katulad kayo ng babaeng bayaran. 
 
 
 
@@ -733,7 +733,7 @@ Para kayong isang pinakamabuting klase ng ubas na aking itinanim. Pero bakit lum
 
 
 
-Maligo man kayo at magsabon nang magsabon, makikita ko pa rin ang dumi ng mga kasalanan ninyo. Ako,_ ang Panginoong Dios, ang nagsasabi nito. 
+Maligo man kayo at magsabon nang magsabon, makikita ko pa rin ang dumi ng mga kasalanan ninyo. Ako, ang Panginoong Dios, ang nagsasabi nito. 
 
 
 
@@ -766,7 +766,7 @@ Maligo man kayo at magsabon nang magsabon, makikita ko pa rin ang dumi ng mga ka
 
 
 
-"Paano nʼyo nasasabing hindi kayo nadumihan at hindi kayo sumamba sa dios-diosang si_ Baal? Tingnan nʼyo kung anong kasalanan ang ginawa nʼyo sa lambak ng Hinom_. Isipin nʼyo ang ginawa nʼyong kasalanan. Para kayong babaeng kamelyo na hindi mapalagay dahil naghahanap ng lalaki. 
+"Paano nʼyo nasasabing hindi kayo nadumihan at hindi kayo sumamba sa dios-diosang si Baal? Tingnan nʼyo kung anong kasalanan ang ginawa nʼyo sa lambak ng Hinom. Isipin nʼyo ang ginawa nʼyong kasalanan. Para kayong babaeng kamelyo na hindi mapalagay dahil naghahanap ng lalaki. 
 
 
 
@@ -832,7 +832,7 @@ Para rin kayong babaeng asnong-gubat na masidhi ang pagnanasa na magpakasta, sa 
 
 
 
-"Mga taga-Israel,_ napudpod na ang mga sandalyas nʼyo at natuyo na mga lalamunan nʼyo sa pagsunod sa ibang mga dios_. Pero sinasabi nʼyo, 'Hindi namin maaaring itakwil ang ibang mga dios. Mahal namin sila at susunod kami sa kanila.' 
+"Mga taga-Israel, napudpod na ang mga sandalyas nʼyo at natuyo na mga lalamunan nʼyo sa pagsunod sa ibang mga dios. Pero sinasabi nʼyo, 'Hindi namin maaaring itakwil ang ibang mga dios. Mahal namin sila at susunod kami sa kanila.' 
 
 
 
@@ -997,7 +997,7 @@ Bakit kayo nagrereklamo sa akin? Hindi baʼt kayo ang naghimagsik sa akin?
 
 
 
-Pinarusahan ko ang mga anak nʼyo, pero hindi sila nagbago. Ayaw nilang magpaturo. Kayo na rin ang pumatay sa mga propeta nʼyo gaya ng pagpatay ng_ mabangis at gutom na leon sa kanyang biktima_. 
+Pinarusahan ko ang mga anak nʼyo, pero hindi sila nagbago. Ayaw nilang magpaturo. Kayo na rin ang pumatay sa mga propeta nʼyo gaya ng pagpatay ng mabangis at gutom na leon sa kanyang biktima. 
 
 
 
@@ -1096,7 +1096,7 @@ Pinarusahan ko ang mga anak nʼyo, pero hindi sila nagbago. Ayaw nilang magpatur
 
 
 
-Magaling kayong humabol sa minamahal ninyo na mga dios-diosan_. Kahit ang mga babaeng bayaran ay matututo pa sa inyo. 
+Magaling kayong humabol sa minamahal ninyo na mga dios-diosan. Kahit ang mga babaeng bayaran ay matututo pa sa inyo. 
 
 
 
@@ -1195,7 +1195,7 @@ sinabi nʼyo pa rin, 'Wala akong kasalanan. Hindi galit sa akin ang Panginoon!' 
 
 
 
-"Pangkaraniwan lang sa inyo ang magpapalit-palit ng mga kakamping bansa. Pero hihiyain kayo ng Egipto na kakampi nʼyo_, gaya ng ginawa sa inyo ng Asiria. 
+"Pangkaraniwan lang sa inyo ang magpapalit-palit ng mga kakamping bansa. Pero hihiyain kayo ng Egipto na kakampi nʼyo, gaya ng ginawa sa inyo ng Asiria. 
 
 
 
@@ -1228,4 +1228,4 @@ sinabi nʼyo pa rin, 'Wala akong kasalanan. Hindi galit sa akin ang Panginoon!' 
 
 
 
-Aalis kayo sa Egipto na nakatakip ang inyong kamay sa mukha dahil sa kahihiyan at pagdadalamhati_. Sapagkat itinakwil ko na ang mga bansang pinagkatiwalaan ninyo. Hindi na kayo matutulungan ng mga bansang iyon.
+Aalis kayo sa Egipto na nakatakip ang inyong kamay sa mukha dahil sa kahihiyan at pagdadalamhati. Sapagkat itinakwil ko na ang mga bansang pinagkatiwalaan ninyo. Hindi na kayo matutulungan ng mga bansang iyon.

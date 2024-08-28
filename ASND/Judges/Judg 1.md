@@ -105,9 +105,9 @@ Sumagot ang Panginoon, "Ang lahi ni Juda, dahil ipinagkatiwala ko sa kanila ang 
 
 
 
-Kaya sinabi ng lahi ni Juda sa lahi ni Simeon na kanilang kadugo, "Tulungan nʼyo kaming sakupin ang lugar ng mga Cananeo na para sa amin at tutulungan din namin kayo na sakupin ang lugar na para sa inyo." Kaya tinulungan sila ng lahi ni Simeon sa labanan_.
+Kaya sinabi ng lahi ni Juda sa lahi ni Simeon na kanilang kadugo, "Tulungan nʼyo kaming sakupin ang lugar ng mga Cananeo na para sa amin at tutulungan din namin kayo na sakupin ang lugar na para sa inyo." Kaya tinulungan sila ng lahi ni Simeon sa labanan.
 
-###### 4-5 Nang lumusob ang angkan ni_ Juda, pinagtagumpay sila ng Panginoon laban sa mga Cananeo at Perezeo. May 10,000 tao ang napatay nila sa Bezek. Habang nakikipaglaban sila sa Bezek, nakalaban nila roon si Adoni Bezek na hari sa lugar na iyon_. 
+###### 4-5 Nang lumusob ang angkan ni Juda, pinagtagumpay sila ng Panginoon laban sa mga Cananeo at Perezeo. May 10,000 tao ang napatay nila sa Bezek. Habang nakikipaglaban sila sa Bezek, nakalaban nila roon si Adoni Bezek na hari sa lugar na iyon. 
 
 
 
@@ -140,7 +140,7 @@ Kaya sinabi ng lahi ni Juda sa lahi ni Simeon na kanilang kadugo, "Tulungan nʼy
 
 
 
-Tumakas si Adoni Bezek, pero hinabol siya ng mga Israelita_ at nahuli. Pinutol nila ang mga hinlalaki nito sa kamay at paa. 
+Tumakas si Adoni Bezek, pero hinabol siya ng mga Israelita at nahuli. Pinutol nila ang mga hinlalaki nito sa kamay at paa. 
 
 
 
@@ -406,7 +406,7 @@ Si Otniel na anak ni Kenaz na nakababatang kapatid ni Caleb ang nakaagaw ng lung
 
 
 
-Nang ikinasal na sila, hinikayat ni Acsa ang asawa niya na humingi sila ng dagdag na_ lupain sa ama nito. Pagkatapos, pumunta si Acsa kay Caleb,_ at nang makababa na siya sa kanyang asno, tinanong siya ni Caleb kung ano ang kailangan niya. 
+Nang ikinasal na sila, hinikayat ni Acsa ang asawa niya na humingi sila ng dagdag na lupain sa ama nito. Pagkatapos, pumunta si Acsa kay Caleb, at nang makababa na siya sa kanyang asno, tinanong siya ni Caleb kung ano ang kailangan niya. 
 
 
 
@@ -439,7 +439,7 @@ Nang ikinasal na sila, hinikayat ni Acsa ang asawa niya na humingi sila ng dagda
 
 
 
-Sumagot si Acsa, "Hihingi po sana ako ng pabor sa inyo, gusto ko po sanang bigyan nʼyo ako ng lupaing may_ mga bukal, dahil ang lupaing ibinigay nʼyo sa akin sa Negev ay walang bukal_." Kaya ibinigay sa kanya ni Caleb ang lugar na may_ mga bukal sa itaas at sa ibaba ng Negev_.
+Sumagot si Acsa, "Hihingi po sana ako ng pabor sa inyo, gusto ko po sanang bigyan nʼyo ako ng lupaing may mga bukal, dahil ang lupaing ibinigay nʼyo sa akin sa Negev ay walang bukal." Kaya ibinigay sa kanya ni Caleb ang lugar na may mga bukal sa itaas at sa ibaba ng Negev.
 
 ## Ang mga Pananakop ng lahi ni Juda at ng lahi ni Benjamin 
 
@@ -474,7 +474,7 @@ Sumagot si Acsa, "Hihingi po sana ako ng pabor sa inyo, gusto ko po sanang bigya
 
 
 
-Pag-alis ng lahi ni Juda sa lungsod ng Jerico, sumama sa kanila ang mga Keneo, na mula sa angkan ng biyenan ni Moises, papunta sa ilang ng Juda. Tumira sila kasama ng mga tao roon, malapit sa bayan ng_ Arad sa Negev. 
+Pag-alis ng lahi ni Juda sa lungsod ng Jerico, sumama sa kanila ang mga Keneo, na mula sa angkan ng biyenan ni Moises, papunta sa ilang ng Juda. Tumira sila kasama ng mga tao roon, malapit sa bayan ng Arad sa Negev. 
 
 
 
@@ -540,7 +540,7 @@ Pagkatapos, ang lahi naman ni Simeon ang tinulungan ng lahi ni Juda na sakupin a
 
 
 
-Sinakop din nila ang mga lungsod ng Gaza, Ashkelon at Ekron, pati ang mga teritoryo nito sa paligid_. 
+Sinakop din nila ang mga lungsod ng Gaza, Ashkelon at Ekron, pati ang mga teritoryo nito sa paligid. 
 
 
 
@@ -707,7 +707,7 @@ may nakita ang mga espiya na isang tao na papalabas mula sa lungsod na iyon. Sin
 
 
 
-Tinuruan niya sila, at pinatay nila ang lahat ng nakatira sa lungsod na iyon. Pero hindi nila pinatay ang tao na nagturo sa kanila_ pati ang buong sambahayan nito. 
+Tinuruan niya sila, at pinatay nila ang lahat ng nakatira sa lungsod na iyon. Pero hindi nila pinatay ang tao na nagturo sa kanila pati ang buong sambahayan nito. 
 
 
 
@@ -775,7 +775,7 @@ Ang taong itoʼy pumunta sa lupain ng mga Heteo, at doon nagtayo ng isang lungso
 
 
 
-Hindi itinaboy ng lahi_ ni Manase ang mga nakatira sa Bet Shan, Taanac, Dor, Ibleam, Megido, at ang mga bayan sa paligid_ ng mga ito dahil determinado ang mga Cananeo na huwag umalis sa lupaing iyon. 
+Hindi itinaboy ng lahi ni Manase ang mga nakatira sa Bet Shan, Taanac, Dor, Ibleam, Megido, at ang mga bayan sa paligid ng mga ito dahil determinado ang mga Cananeo na huwag umalis sa lupaing iyon. 
 
 
 
@@ -808,7 +808,7 @@ Hindi itinaboy ng lahi_ ni Manase ang mga nakatira sa Bet Shan, Taanac, Dor, Ibl
 
 
 
-Nang naging makapangyarihan na ang mga Israelita, pinilit nila ang mga Cananeo na magtrabaho para sa kanila_, pero hindi nila itinaboy ang mga ito. 
+Nang naging makapangyarihan na ang mga Israelita, pinilit nila ang mga Cananeo na magtrabaho para sa kanila, pero hindi nila itinaboy ang mga ito. 
 
 
 
@@ -841,7 +841,7 @@ Nang naging makapangyarihan na ang mga Israelita, pinilit nila ang mga Cananeo n
 
 
 
-Hindi rin itinaboy ng lahi_ ni Efraim ang mga nakatira sa Gezer. Kaya patuloy na nanirahan ang mga Cananeo kasama nila. 
+Hindi rin itinaboy ng lahi ni Efraim ang mga nakatira sa Gezer. Kaya patuloy na nanirahan ang mga Cananeo kasama nila. 
 
 
 
@@ -874,7 +874,7 @@ Hindi rin itinaboy ng lahi_ ni Efraim ang mga nakatira sa Gezer. Kaya patuloy na
 
 
 
-Hindi rin itinaboy ng lahi_ ni Zebulun ang mga Cananeo na naninirahan sa mga lungsod ng Kitron at Nahalol. Kaya patuloy na nanirahan ang mga Cananeo kasama nila. Pero pinilit silang magtrabaho para sa kanila_. 
+Hindi rin itinaboy ng lahi ni Zebulun ang mga Cananeo na naninirahan sa mga lungsod ng Kitron at Nahalol. Kaya patuloy na nanirahan ang mga Cananeo kasama nila. Pero pinilit silang magtrabaho para sa kanila. 
 
 
 
@@ -907,7 +907,7 @@ Hindi rin itinaboy ng lahi_ ni Zebulun ang mga Cananeo na naninirahan sa mga lun
 
 
 
-Hindi rin itinaboy ng lahi_ ni Asher ang mga nakatira sa Aco, Sidon, Aczib, Helba, Afek at Rehob. 
+Hindi rin itinaboy ng lahi ni Asher ang mga nakatira sa Aco, Sidon, Aczib, Helba, Afek at Rehob. 
 
 
 
@@ -973,7 +973,7 @@ Kaya patuloy na nanirahan ang mga Cananeo roon kasama ng lahi ni Asher.
 
 
 
-Hindi rin itinaboy ng lahi_ ni Naftali ang mga nakatira sa Bet Shemesh at Bet Anat. Kaya patuloy na nanirahan ang mga Cananeo kasama ng lahi ni Naftali. Pero pinilit silang magtrabaho para sa kanila. 
+Hindi rin itinaboy ng lahi ni Naftali ang mga nakatira sa Bet Shemesh at Bet Anat. Kaya patuloy na nanirahan ang mga Cananeo kasama ng lahi ni Naftali. Pero pinilit silang magtrabaho para sa kanila. 
 
 
 
@@ -1039,7 +1039,7 @@ Hindi naman pinahintulutan ng mga Amoreo na tumira sa kapatagan ang mga lahi ni 
 
 
 
-Determinado ang mga Amoreo na huwag umalis sa Bundok ng Heres, Ayalon at Saalbim. Pero nang lumakas ang kapangyarihan ng mga angkan ni Jose, pinilit nila ang mga Amoreo na magtrabaho para sa kanila_. 
+Determinado ang mga Amoreo na huwag umalis sa Bundok ng Heres, Ayalon at Saalbim. Pero nang lumakas ang kapangyarihan ng mga angkan ni Jose, pinilit nila ang mga Amoreo na magtrabaho para sa kanila. 
 
 
 

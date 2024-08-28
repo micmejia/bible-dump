@@ -73,7 +73,7 @@ Nanatili ang Kahon ng Panginoon sa mga Filisteo sa loob ng pitong buwan. Noong n
 
 
 
-ipinatawag ng mga Filisteo ang kanilang_ mga pari at manghuhula at nagtanong, "Ano ang gagawin namin sa Kahon ng Panginoon. Sabihin ninyo sa amin kung paano namin ito ibabalik sa kanyang lugar?" 
+ipinatawag ng mga Filisteo ang kanilang mga pari at manghuhula at nagtanong, "Ano ang gagawin namin sa Kahon ng Panginoon. Sabihin ninyo sa amin kung paano namin ito ibabalik sa kanyang lugar?" 
 
 
 
@@ -535,7 +535,7 @@ Ngunit may pinatay ang Dios na 70 tao na taga-Bet Shemesh dahil tiningnan nila a
 
 
 
-Nagtanong sila, "Sino ba ang makakaharap sa presensya ng Panginoon, ang banal na Dios? Saan ba natin ipapadala ang Kahon ng Panginoon para mailayo ito_ sa atin?" 
+Nagtanong sila, "Sino ba ang makakaharap sa presensya ng Panginoon, ang banal na Dios? Saan ba natin ipapadala ang Kahon ng Panginoon para mailayo ito sa atin?" 
 
 
 

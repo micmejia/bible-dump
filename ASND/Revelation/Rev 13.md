@@ -172,7 +172,7 @@ Sinamba nila ang dragon dahil siya ang nagbigay ng kapangyarihan sa halimaw. Sin
 
 
 
-Hinayaan ng Dios_ na magsalita ang halimaw ng kalapastanganan laban sa kanya_ at maghari sa loob ng 42 buwan. 
+Hinayaan ng Dios na magsalita ang halimaw ng kalapastanganan laban sa kanya at maghari sa loob ng 42 buwan. 
 
 
 
@@ -238,7 +238,7 @@ Nagsalita siya ng kalapastanganan laban sa Dios, laban sa pangalan ng Dios, sa k
 
 
 
-Hinayaan din ang halimaw na makipaglaban at talunin ang mga pinabanal ng Dios_. At binigyan din siya ng kapangyarihang maghari sa lahat ng tao sa mundo, anumang_ angkan, lahi, wika at bansa. 
+Hinayaan din ang halimaw na makipaglaban at talunin ang mga pinabanal ng Dios. At binigyan din siya ng kapangyarihang maghari sa lahat ng tao sa mundo, anumang angkan, lahi, wika at bansa. 
 
 
 
@@ -271,7 +271,7 @@ Hinayaan din ang halimaw na makipaglaban at talunin ang mga pinabanal ng Dios_. 
 
 
 
-Sasambahin siya ng lahat ng tao sa mundo na ang mga pangalan ay hindi nakasulat sa aklat na listahan ng mga taong binigyan_ ng buhay na walang hanggan_. Bago pa man likhain ang mundo, ang mga pangalan nila ay hindi na nakasulat sa aklat na ito na hawak ng Tupang pinatay. 
+Sasambahin siya ng lahat ng tao sa mundo na ang mga pangalan ay hindi nakasulat sa aklat na listahan ng mga taong binigyan ng buhay na walang hanggan. Bago pa man likhain ang mundo, ang mga pangalan nila ay hindi na nakasulat sa aklat na ito na hawak ng Tupang pinatay. 
 
 
 
@@ -337,7 +337,7 @@ Kayong nakikinig, pag-isipan ninyong mabuti ang mga bagay na ito.
 
 
 
-Ang sinumang itinakdang dakpin ay dadakpin. At ang sinumang itinakdang mamatay sa espada ay mamamatay sa espada. Kaya ang mga pinabanal ng Dios_ ay kailangang maging matiisin at matatag sa kanilang pananampalataya. 
+Ang sinumang itinakdang dakpin ay dadakpin. At ang sinumang itinakdang mamatay sa espada ay mamamatay sa espada. Kaya ang mga pinabanal ng Dios ay kailangang maging matiisin at matatag sa kanilang pananampalataya. 
 
 
 
@@ -469,7 +469,7 @@ Gumawa ng kagila-gilalas na mga himala ang pangalawang halimaw tulad ng pagpapau
 
 
 
-At dahil sa mga himalang ito na ipinagawa sa kanya ng unang_ halimaw, nalinlang niya ang mga tao. Inutusan niya ang mga tao na gumawa ng imahen ng unang_ halimaw na malubhang nasugatan ng espada ngunit nabuhay pa. 
+At dahil sa mga himalang ito na ipinagawa sa kanya ng unang halimaw, nalinlang niya ang mga tao. Inutusan niya ang mga tao na gumawa ng imahen ng unang halimaw na malubhang nasugatan ng espada ngunit nabuhay pa. 
 
 
 
@@ -502,7 +502,7 @@ At dahil sa mga himalang ito na ipinagawa sa kanya ng unang_ halimaw, nalinlang 
 
 
 
-Hinayaan ng Dios_ ang pangalawang halimaw na magbigay ng buhay sa imahen ng unang_ halimaw. Kaya nakapagsalita ang imahen at nakapag-utos na patayin ang lahat ng ayaw sumamba sa kanya. 
+Hinayaan ng Dios ang pangalawang halimaw na magbigay ng buhay sa imahen ng unang halimaw. Kaya nakapagsalita ang imahen at nakapag-utos na patayin ang lahat ng ayaw sumamba sa kanya. 
 
 
 
@@ -568,7 +568,7 @@ Pinilit ng pangalawang halimaw ang lahat ng tao – dakila o hindi, mayaman o ma
 
 
 
-At ang sinumang ayaw magpatatak ng pangalan o numero ng unang_ halimaw ay hindi maaaring bumili o magbenta. 
+At ang sinumang ayaw magpatatak ng pangalan o numero ng unang halimaw ay hindi maaaring bumili o magbenta. 
 
 
 
@@ -601,4 +601,4 @@ At ang sinumang ayaw magpatatak ng pangalan o numero ng unang_ halimaw ay hindi 
 
 
 
-Kailangan dito ang talino upang maunawaan ang kahulugan ng numero ng unang_ halimaw, dahil simbolo ito ng pangalan ng tao. At ang numero ay 666.
+Kailangan dito ang talino upang maunawaan ang kahulugan ng numero ng unang halimaw, dahil simbolo ito ng pangalan ng tao. At ang numero ay 666.

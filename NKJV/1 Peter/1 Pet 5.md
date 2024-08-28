@@ -23,7 +23,7 @@ and when the Chief Shepherd appears, you will receive the crown of glory that do
 ## Submit to God, Resist the Devil 
 
 ###### 5 
-Likewise you younger people, submit yourselves to _your_ elders. Yes, all of _you_ be submissive to one another, and be clothed with humility, for "God resists the proud, But gives grace to the humble." 
+Likewise you younger people, submit yourselves to your elders. Yes, all of you be submissive to one another, and be clothed with humility, for "God resists the proud, But gives grace to the humble." 
 
 ###### 6 
 Therefore humble yourselves under the mighty hand of God, that He may exalt you in due time, 
@@ -38,10 +38,10 @@ Be sober, be vigilant; because your adversary the devil walks about like a roari
 Resist him, steadfast in the faith, knowing that the same sufferings are experienced by your brotherhood in the world. 
 
 ###### 10 
-But may the God of all grace, who called us to His eternal glory by Christ Jesus, after you have suffered a while, perfect, establish, strengthen, and settle _you._ 
+But may the God of all grace, who called us to His eternal glory by Christ Jesus, after you have suffered a while, perfect, establish, strengthen, and settle you. 
 
 ###### 11 
-To Him _be_ the glory and the dominion forever and ever. Amen.
+To Him be the glory and the dominion forever and ever. Amen.
 
 ## Farewell and Peace 
 
@@ -49,7 +49,7 @@ To Him _be_ the glory and the dominion forever and ever. Amen.
 By Silvanus, our faithful brother as I consider him, I have written to you briefly, exhorting and testifying that this is the true grace of God in which you stand. 
 
 ###### 13 
-She who is in Babylon, elect together with _you,_ greets you; and _so does_ Mark my son. 
+She who is in Babylon, elect together with you, greets you; and so does Mark my son. 
 
 ###### 14 
 Greet one another with a kiss of love. Peace to you all who are in Christ Jesus. Amen.

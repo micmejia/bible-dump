@@ -39,7 +39,7 @@ next: ['Dan 2']
 
 
 
-Nang ikatlong taon ng paghahari ni Jehoyakim sa Juda, sinalakay ni Haring Nebucadnezar ng Babilonia at ng kanyang mga kawal_ ang Jerusalem. 
+Nang ikatlong taon ng paghahari ni Jehoyakim sa Juda, sinalakay ni Haring Nebucadnezar ng Babilonia at ng kanyang mga kawal ang Jerusalem. 
 
 
 
@@ -600,7 +600,7 @@ Binigyan ng Dios ang apat na kabataang ito ng karunungan at pang-unawa, pati na 
 
 
 
-Pagkalipas ng tatlong taon na pagtuturo sa kanila_ ayon sa utos ni Haring Nebucadnezar, dinala sila ni Ashpenaz sa kanya. 
+Pagkalipas ng tatlong taon na pagtuturo sa kanila ayon sa utos ni Haring Nebucadnezar, dinala sila ni Ashpenaz sa kanya. 
 
 
 
@@ -699,4 +699,4 @@ Sa lahat ng itinanong ng hari sa kanila, nakita niya na ang kanilang kaalaman ay
 
 
 
-Patuloy na naglingkod si Daniel kay Nebucadnezar_ hanggang sa unang taon ng paghahari ni Cyrus.
+Patuloy na naglingkod si Daniel kay Nebucadnezar hanggang sa unang taon ng paghahari ni Cyrus.

@@ -240,7 +240,7 @@ Pagkalipas ng ilang taon, magsasanib ang dalawang kahariang ito, dahil ipapaasaw
 
 
 
-"Sa bandang huli, maghahari sa timog_ ang kapatid ng babae. Siya ang papalit sa kanyang ama. Lulusubin niya ang mga sundalo ng hari ng hilaga at papasukin ang napapaderang lungsod nito, at magtatagumpay siya sa labanan. 
+"Sa bandang huli, maghahari sa timog ang kapatid ng babae. Siya ang papalit sa kanyang ama. Lulusubin niya ang mga sundalo ng hari ng hilaga at papasukin ang napapaderang lungsod nito, at magtatagumpay siya sa labanan. 
 
 
 
@@ -504,7 +504,7 @@ Sapagkat ang hari ng hilaga ay muling magtitipon ng mas marami pang sundalo kays
 
 
 
-Sasalakayin ng hari ng hilaga ang isa sa mga napapaderang lungsod sa timog_. Kukubkubin nila ito at papasukin. Walang magagawa ang mga sundalo sa timog pati na ang kanilang pinakamagaling na mga kawal, dahil hindi nila kayang talunin ang kalaban. 
+Sasalakayin ng hari ng hilaga ang isa sa mga napapaderang lungsod sa timog. Kukubkubin nila ito at papasukin. Walang magagawa ang mga sundalo sa timog pati na ang kanilang pinakamagaling na mga kawal, dahil hindi nila kayang talunin ang kalaban. 
 
 
 
@@ -537,7 +537,7 @@ Sasalakayin ng hari ng hilaga ang isa sa mga napapaderang lungsod sa timog_. Kuk
 
 
 
-Kaya gagawin ng hari ng hilaga ang anumang gusto niyang gawin at walang makapipigil sa kanya. Sasakupin niya ang magandang lupain ng Israel_, at lubusan itong mapapasailalim sa kanyang kapangyarihan. 
+Kaya gagawin ng hari ng hilaga ang anumang gusto niyang gawin at walang makapipigil sa kanya. Sasakupin niya ang magandang lupain ng Israel, at lubusan itong mapapasailalim sa kanyang kapangyarihan. 
 
 
 
@@ -570,7 +570,7 @@ Kaya gagawin ng hari ng hilaga ang anumang gusto niyang gawin at walang makapipi
 
 
 
-Talagang determinado ang hari ng hilaga na salakayin ang kaharian sa timog_ nang buong lakas ng kaharian niya. Makikipagkasundo muna siya sa hari ng timog sa pamamagitan ng pag-aalok ng kanyang anak na maging asawa ng nito, upang sa pamamagitan nito ay maibagsak niya ang kaharian sa timog_. Pero hindi magtatagumpay ang kanyang layunin. 
+Talagang determinado ang hari ng hilaga na salakayin ang kaharian sa timog nang buong lakas ng kaharian niya. Makikipagkasundo muna siya sa hari ng timog sa pamamagitan ng pag-aalok ng kanyang anak na maging asawa ng nito, upang sa pamamagitan nito ay maibagsak niya ang kaharian sa timog. Pero hindi magtatagumpay ang kanyang layunin. 
 
 
 
@@ -1032,7 +1032,7 @@ Sapagkat lulusubin siya ng hukbong pandagat mula sa kanluran. At dahil dito, uur
 
 
 
-"Uutusan ng hari ng hilaga ang kanyang mga sundalo na lapastanganin ang templong napapalibutan ng pader. Ipapatigil niya ang araw-araw na paghahandog at ilalagay ang kasuklam-suklam na bagay na magiging dahilan ng pag-iwan sa templo_. 
+"Uutusan ng hari ng hilaga ang kanyang mga sundalo na lapastanganin ang templong napapalibutan ng pader. Ipapatigil niya ang araw-araw na paghahandog at ilalagay ang kasuklam-suklam na bagay na magiging dahilan ng pag-iwan sa templo. 
 
 
 
@@ -1197,7 +1197,7 @@ Uusigin ang ilang nakakaunawa ng katotohanan upang maging dalisay at malinis ang
 
 
 
-"Gagawin ng hari ng hilaga_ ang anumang gusto niyang gawin. Ituturing niyang higit ang kanyang sarili kaysa sinumang dios, at hahamakin niya ang Dios na higit kaysa sa lahat ng dios. Magtatagumpay siya hanggang sa panahon na ipakita ng Dios ang kanyang galit, dahil kailangang mangyari ang mga bagay na itinakda ng Dios na dapat mangyari. 37-38Hindi niya kikilalanin ang dios ng kanyang mga ninuno o ang dios na mahal ng mga babae. Ituturing niyang higit ang kanyang sarili kaysa sa mga iyon. Wala siyang pahahalagahang dios maliban sa dios na nananalakay_ ng mga napapaderang bayan. Pararangalan niya ang dios na ito na hindi kilala ng kanyang mga ninuno. Hahandugan niya ito ng mga ginto, pilak, mamahaling bato, at ng iba pang mamahaling mga regalo. 
+"Gagawin ng hari ng hilaga ang anumang gusto niyang gawin. Ituturing niyang higit ang kanyang sarili kaysa sinumang dios, at hahamakin niya ang Dios na higit kaysa sa lahat ng dios. Magtatagumpay siya hanggang sa panahon na ipakita ng Dios ang kanyang galit, dahil kailangang mangyari ang mga bagay na itinakda ng Dios na dapat mangyari. 37-38Hindi niya kikilalanin ang dios ng kanyang mga ninuno o ang dios na mahal ng mga babae. Ituturing niyang higit ang kanyang sarili kaysa sa mga iyon. Wala siyang pahahalagahang dios maliban sa dios na nananalakay ng mga napapaderang bayan. Pararangalan niya ang dios na ito na hindi kilala ng kanyang mga ninuno. Hahandugan niya ito ng mga ginto, pilak, mamahaling bato, at ng iba pang mamahaling mga regalo. 
 
 
 
@@ -1296,7 +1296,7 @@ Lulusubin niya ang pinakamatibay na mga lungsod sa tulong ng dios na iyon na hin
 
 
 
-Lulusubin niya pati ang magandang lupain ng Israel_, at maraming tao ang mamamatay. Pero makakatakas ang Edom, ang Moab at ang mga pinuno ng Ammon. 
+Lulusubin niya pati ang magandang lupain ng Israel, at maraming tao ang mamamatay. Pero makakatakas ang Edom, ang Moab at ang mga pinuno ng Ammon. 
 
 
 

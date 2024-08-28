@@ -10,16 +10,16 @@ next: ['Heb 10']
 
 
 ###### 1 
-Then indeed, even the first _covenant_ had ordinances of divine service and the earthly sanctuary. 
+Then indeed, even the first covenant had ordinances of divine service and the earthly sanctuary. 
 
 ###### 2 
-For a tabernacle was prepared: the first _part,_ in which _was_ the lampstand, the table, and the showbread, which is called the sanctuary; 
+For a tabernacle was prepared: the first part, in which was the lampstand, the table, and the showbread, which is called the sanctuary; 
 
 ###### 3 
 and behind the second veil, the part of the tabernacle which is called the Holiest of All, 
 
 ###### 4 
-which had the golden censer and the ark of the covenant overlaid on all sides with gold, in which _were_ the golden pot that had the manna, Aaron's rod that budded, and the tablets of the covenant; 
+which had the golden censer and the ark of the covenant overlaid on all sides with gold, in which were the golden pot that had the manna, Aaron's rod that budded, and the tablets of the covenant; 
 
 ###### 5 
 and above it were the cherubim of glory overshadowing the mercy seat. Of these things we cannot now speak in detail.
@@ -30,21 +30,21 @@ and above it were the cherubim of glory overshadowing the mercy seat. Of these t
 Now when these things had been thus prepared, the priests always went into the first part of the tabernacle, performing the services. 
 
 ###### 7 
-But into the second part the high priest _went_ alone once a year, not without blood, which he offered for himself and _for_ the people's sins _committed_ in ignorance; 
+But into the second part the high priest went alone once a year, not without blood, which he offered for himself and for the people's sins committed in ignorance; 
 
 ###### 8 
 the Holy Spirit indicating this, that the way into the Holiest of All was not yet made manifest while the first tabernacle was still standing. 
 
 ###### 9 
-It _was_ symbolic for the present time in which both gifts and sacrifices are offered which cannot make him who performed the service perfect in regard to the conscience-- 
+It was symbolic for the present time in which both gifts and sacrifices are offered which cannot make him who performed the service perfect in regard to the conscience-- 
 
 ###### 10 
-_concerned_ only with foods and drinks, various washings, and fleshly ordinances imposed until the time of reformation.
+concerned only with foods and drinks, various washings, and fleshly ordinances imposed until the time of reformation.
 
 ## The Heavenly Sanctuary 
 
 ###### 11 
-But Christ came _as_ High Priest of the good things to come, with the greater and more perfect tabernacle not made with hands, that is, not of this creation. 
+But Christ came as High Priest of the good things to come, with the greater and more perfect tabernacle not made with hands, that is, not of this creation. 
 
 ###### 12 
 Not with the blood of goats and calves, but with His own blood He entered the Most Holy Place once for all, having obtained eternal redemption. 
@@ -61,19 +61,19 @@ And for this reason He is the Mediator of the new covenant, by means of death, f
 ## The Mediator's Death Necessary 
 
 ###### 16 
-For where there _is_ a testament, there must also of necessity be the death of the testator. 
+For where there is a testament, there must also of necessity be the death of the testator. 
 
 ###### 17 
-For a testament _is_ in force after men are dead, since it has no power at all while the testator lives. 
+For a testament is in force after men are dead, since it has no power at all while the testator lives. 
 
 ###### 18 
-Therefore not even the first _covenant_ was dedicated without blood. 
+Therefore not even the first covenant was dedicated without blood. 
 
 ###### 19 
 For when Moses had spoken every precept to all the people according to the law, he took the blood of calves and goats, with water, scarlet wool, and hyssop, and sprinkled both the book itself and all the people, 
 
 ###### 20 
-saying, "This _is_ the blood of the covenant which God has commanded you." 
+saying, "This is the blood of the covenant which God has commanded you." 
 
 ###### 21 
 Then likewise he sprinkled with blood both the tabernacle and all the vessels of the ministry. 
@@ -84,10 +84,10 @@ And according to the law almost all things are purified with blood, and without 
 ## Greatness of Christ's Sacrifice 
 
 ###### 23 
-Therefore _it was_ necessary that the copies of the things in the heavens should be purified with these, but the heavenly things themselves with better sacrifices than these. 
+Therefore it was necessary that the copies of the things in the heavens should be purified with these, but the heavenly things themselves with better sacrifices than these. 
 
 ###### 24 
-For Christ has not entered the holy places made with hands, _which are_ copies of the true, but into heaven itself, now to appear in the presence of God for us; 
+For Christ has not entered the holy places made with hands, which are copies of the true, but into heaven itself, now to appear in the presence of God for us; 
 
 ###### 25 
 not that He should offer Himself often, as the high priest enters the Most Holy Place every year with blood of another-- 

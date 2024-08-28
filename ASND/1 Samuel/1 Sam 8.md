@@ -601,7 +601,7 @@ Kukunin din niya ang ikasampung bahagi ng mga hayop ninyo, at pati kayo ay gagaw
 
 
 
-Pagdating ng araw na iyon, dadaing kayo sa Panginoon dahil sa kalupitan ng_ hari na pinili ninyo, pero hindi niya kayo sasagutin." 
+Pagdating ng araw na iyon, dadaing kayo sa Panginoon dahil sa kalupitan ng hari na pinili ninyo, pero hindi niya kayo sasagutin." 
 
 
 
@@ -733,4 +733,4 @@ Nang marinig ni Samuel ang lahat ng sinabi ng mga tao, sinabi niya ito sa Pangin
 
 
 
-Sumagot ang Panginoon sa kanya. "Gawin mo ang sinabi nila, bigyan mo sila ng hari." Pagkatapos, sinabi ni Samuel sa mga Israelita, "Sige, pumapayag na ako,_ magsiuwi na kayo sa mga bayan ninyo."
+Sumagot ang Panginoon sa kanya. "Gawin mo ang sinabi nila, bigyan mo sila ng hari." Pagkatapos, sinabi ni Samuel sa mga Israelita, "Sige, pumapayag na ako, magsiuwi na kayo sa mga bayan ninyo."

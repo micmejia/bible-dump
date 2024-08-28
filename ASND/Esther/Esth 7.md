@@ -271,7 +271,7 @@ Galit na galit na tumayo ang hari. Iniwan niya ang kanyang iniinom at pumunta sa
 
 
 
-Pagbalik ng hari mula sa hardin, nakita niyang nakadapa si Haman na nagmamakaawa_ sa harap ng hinihigaan ni Ester. Kaya sinabi ng hari, "At gusto mo pang pagsamantalahan ang reyna rito sa loob ng palasyo ko!" Nang masabi iyon ng hari, dinakip ng mga naroon si Haman at tinalukbungan ang ulo nito. 
+Pagbalik ng hari mula sa hardin, nakita niyang nakadapa si Haman na nagmamakaawa sa harap ng hinihigaan ni Ester. Kaya sinabi ng hari, "At gusto mo pang pagsamantalahan ang reyna rito sa loob ng palasyo ko!" Nang masabi iyon ng hari, dinakip ng mga naroon si Haman at tinalukbungan ang ulo nito. 
 
 
 

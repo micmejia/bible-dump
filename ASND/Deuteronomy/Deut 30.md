@@ -205,7 +205,7 @@ at pababalikin sa lupain ng inyong mga ninuno, at aangkinin ninyo ito. Pauunlari
 
 
 
-Babaguhin ng Panginoon na inyong Dios ang mga puso ninyo at ang mga puso ng inyong lahi para mahalin ninyo siya nang buong pusoʼt kaluluwa, at mabubuhay kayo nang matagal_. 
+Babaguhin ng Panginoon na inyong Dios ang mga puso ninyo at ang mga puso ng inyong lahi para mahalin ninyo siya nang buong pusoʼt kaluluwa, at mabubuhay kayo nang matagal. 
 
 
 
@@ -535,7 +535,7 @@ Nasa inyo ito, sa bibig at puso ninyo, kaya sundin ninyo ito.
 
 
 
-Inuutusan ko kayo ngayon na mahalin ang Panginoon na inyong Dios, na mamuhay ayon sa kanyang pamamaraan, at sundin ang kanyang mga utos at tuntunin. Kung gagawin ninyo ito_, mabubuhay kayo nang matagal at dadami, at pagpapalain kayo ng Panginoon doon sa lupaing titirhan at aangkinin ninyo. 
+Inuutusan ko kayo ngayon na mahalin ang Panginoon na inyong Dios, na mamuhay ayon sa kanyang pamamaraan, at sundin ang kanyang mga utos at tuntunin. Kung gagawin ninyo ito, mabubuhay kayo nang matagal at dadami, at pagpapalain kayo ng Panginoon doon sa lupaing titirhan at aangkinin ninyo. 
 
 
 

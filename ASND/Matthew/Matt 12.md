@@ -106,7 +106,7 @@ Nang makita ito ng mga Pariseo, sinabi nila kay Jesus, "Tingnan mo ang mga tagas
 
 
 
-Sinagot sila ni Jesus, "Hindi ba ninyo nabasa sa Kasulatan_ ang ginawa ni David nang magutom siya at ang mga kasamahan niya? 
+Sinagot sila ni Jesus, "Hindi ba ninyo nabasa sa Kasulatan ang ginawa ni David nang magutom siya at ang mga kasamahan niya? 
 
 
 
@@ -139,7 +139,7 @@ Sinagot sila ni Jesus, "Hindi ba ninyo nabasa sa Kasulatan_ ang ginawa ni David 
 
 
 
-Pumasok siya sa bahay ng Dios at kinain nila ng mga kasama niya ang tinapay na inihandog sa Dios, kahit na ayon sa Kautusan_, ang mga pari lang ang may karapatang kumain nito. 
+Pumasok siya sa bahay ng Dios at kinain nila ng mga kasama niya ang tinapay na inihandog sa Dios, kahit na ayon sa Kautusan, ang mga pari lang ang may karapatang kumain nito. 
 
 
 
@@ -172,7 +172,7 @@ Pumasok siya sa bahay ng Dios at kinain nila ng mga kasama niya ang tinapay na i
 
 
 
-At hindi rin ba ninyo nabasa sa Kautusan na ang mga pari ay nagtatrabaho_ sa templo kahit sa Araw ng Pamamahinga? Isa itong paglabag sa tuntunin ng Araw ng Pamamahinga, pero hindi sila nagkasala. 
+At hindi rin ba ninyo nabasa sa Kautusan na ang mga pari ay nagtatrabaho sa templo kahit sa Araw ng Pamamahinga? Isa itong paglabag sa tuntunin ng Araw ng Pamamahinga, pero hindi sila nagkasala. 
 
 
 
@@ -207,7 +207,7 @@ At hindi rin ba ninyo nabasa sa Kautusan na ang mga pari ay nagtatrabaho_ sa tem
 
 Tandaan ninyo: may naririto ngayon na mas dakila pa kaysa sa templo.
 
-###### 7-8 Sapagkat ako na_ Anak ng Tao ang siyang makapagsasabi kung ano ang dapat gawin sa Araw ng Pamamahinga. Kung alam lang sana ninyo ang ibig sabihin ng sinabi ng Dios sa Kasulatan_: 'Hindi ang handog ninyo ang hinahangad ko kundi ang maging maawain kayo,' hindi sana ninyo hinatulan ang mga taong walang kasalanan." ## Ang Lalaking Paralisado ang Isang Kamay 
+###### 7-8 Sapagkat ako na Anak ng Tao ang siyang makapagsasabi kung ano ang dapat gawin sa Araw ng Pamamahinga. Kung alam lang sana ninyo ang ibig sabihin ng sinabi ng Dios sa Kasulatan: 'Hindi ang handog ninyo ang hinahangad ko kundi ang maging maawain kayo,' hindi sana ninyo hinatulan ang mga taong walang kasalanan." ## Ang Lalaking Paralisado ang Isang Kamay 
 
 
 
@@ -273,7 +273,7 @@ Mula sa lugar na iyon, pumunta si Jesus sa sambahan ng mga Judio.
 
 
 
-May lalaki roon na paralisado ang isang kamay. Naroroon din ang mga Pariseo na naghahanap ng maipaparatang kay Jesus, kaya tinanong nila si Jesus, "Ipinapahintulot ba ng Kautusan_ ang magpagaling sa Araw ng Pamamahinga?" 
+May lalaki roon na paralisado ang isang kamay. Naroroon din ang mga Pariseo na naghahanap ng maipaparatang kay Jesus, kaya tinanong nila si Jesus, "Ipinapahintulot ba ng Kautusan ang magpagaling sa Araw ng Pamamahinga?" 
 
 
 
@@ -372,7 +372,7 @@ Ngunit mas mahalaga ang tao kaysa sa tupa! Kaya ipinapahintulot ng Kautusan ang 
 
 
 
-Pagkatapos, sinabi ni Jesus sa lalaking paralisado ang kamay_, "Iunat mo ang iyong kamay!" Iniunat nga ng lalaki ang kanyang kamay at gumaling ito. 
+Pagkatapos, sinabi ni Jesus sa lalaking paralisado ang kamay, "Iunat mo ang iyong kamay!" Iniunat nga ng lalaki ang kanyang kamay at gumaling ito. 
 
 
 
@@ -440,7 +440,7 @@ Lumabas naman ang mga Pariseo at nagplano kung paano nila ipapapatay si Jesus.
 
 
 
-Nang malaman ni Jesus ang plano ng mga Pariseo_, umalis siya roon. Marami ang sumunod sa kanya, at pinagaling niya ang lahat ng may sakit. 
+Nang malaman ni Jesus ang plano ng mga Pariseo, umalis siya roon. Marami ang sumunod sa kanya, at pinagaling niya ang lahat ng may sakit. 
 
 
 
@@ -506,7 +506,7 @@ Pero pinagbilinan niya silang huwag ipaalam sa iba kung sino siya.
 
 
 
-Katuparan ito ng sinabi ng Dios_ sa pamamagitan ni Propeta Isaias: 
+Katuparan ito ng sinabi ng Dios sa pamamagitan ni Propeta Isaias: 
 
 
 
@@ -605,7 +605,7 @@ Hindi siya makikipagtalo o mambubulyaw, at hindi maririnig ang kanyang tinig sa 
 
 
 
-Hindi niya ipapahamak ang mahihina ang pananampalataya o pababayaan ang mga nawawalan ng pag-asa. Hindi siya titigil_ hanggaʼt hindi niya napapairal ang katarungan. 
+Hindi niya ipapahamak ang mahihina ang pananampalataya o pababayaan ang mga nawawalan ng pag-asa. Hindi siya titigil hanggaʼt hindi niya napapairal ang katarungan. 
 
 
 
@@ -770,7 +770,7 @@ Pero nang marinig ito ng mga Pariseo, sinabi nila, "Si Satanas na pinuno ng masa
 
 
 
-Alam ni Jesus ang iniisip nila, kaya sinabi niya sa kanila, "Kung ang mga mamamayan ng_ isang kaharian ay nagkakahati-hati at nag-aaway-away, mawawasak ang kahariang iyon. Ganito rin ang mangyayari sa isang lungsod o tahanan na ang mga nakatira ay_ nag-aaway-away. 
+Alam ni Jesus ang iniisip nila, kaya sinabi niya sa kanila, "Kung ang mga mamamayan ng isang kaharian ay nagkakahati-hati at nag-aaway-away, mawawasak ang kahariang iyon. Ganito rin ang mangyayari sa isang lungsod o tahanan na ang mga nakatira ay nag-aaway-away. 
 
 
 
@@ -803,7 +803,7 @@ Alam ni Jesus ang iniisip nila, kaya sinabi niya sa kanila, "Kung ang mga mamama
 
 
 
-Kaya kung si Satanas mismo ang nagpapalayas sa kanyang mga kampon, nagpapakita lang ito na_ nagkakahati-hati sila at nag-aaway-away. Kung ganoon, paano mananatili ang kanyang kaharian? 
+Kaya kung si Satanas mismo ang nagpapalayas sa kanyang mga kampon, nagpapakita lang ito na nagkakahati-hati sila at nag-aaway-away. Kung ganoon, paano mananatili ang kanyang kaharian? 
 
 
 
@@ -968,7 +968,7 @@ Ngayon, kung nagpapalayas ako ng masasamang espiritu sa pamamagitan ng Espiritu 
 
 
 
-Sinasabi ko sa inyo na ang lahat ng kasalanan, pati na ang paglapastangan sa Dios_ ay mapapatawad, ngunit ang paglapastangan sa Banal na_ Espiritu ay hindi mapapatawad. 
+Sinasabi ko sa inyo na ang lahat ng kasalanan, pati na ang paglapastangan sa Dios ay mapapatawad, ngunit ang paglapastangan sa Banal na Espiritu ay hindi mapapatawad. 
 
 
 
@@ -1001,7 +1001,7 @@ Sinasabi ko sa inyo na ang lahat ng kasalanan, pati na ang paglapastangan sa Dio
 
 
 
-Ang sinumang magsalita ng masama laban sa akin na_ Anak ng Tao ay mapapatawad, ngunit ang sinumang magsalita ng masama laban sa Banal na Espiritu ay hindi mapapatawad kailanman." ## Nakikilala ang Puno sa Bunga Nito 
+Ang sinumang magsalita ng masama laban sa akin na Anak ng Tao ay mapapatawad, ngunit ang sinumang magsalita ng masama laban sa Banal na Espiritu ay hindi mapapatawad kailanman." ## Nakikilala ang Puno sa Bunga Nito 
 
 
 
@@ -1199,7 +1199,7 @@ Sapagkat ibabatay sa mga salita mo kung paparusahan ka o hindi." ## Humingi ng H
 
 
 
-May ilang mga tagapagturo ng Kautusan at mga Pariseo na nagsabi kay Jesus, "Guro, pakitaan nʼyo kami ng isang himalang magpapatunay na sugo nga kayo ng Dios_." 
+May ilang mga tagapagturo ng Kautusan at mga Pariseo na nagsabi kay Jesus, "Guro, pakitaan nʼyo kami ng isang himalang magpapatunay na sugo nga kayo ng Dios." 
 
 
 
@@ -1265,7 +1265,7 @@ Sumagot si Jesus, "Kayong henerasyon ng masasama at hindi tapat sa Dios! Humihin
 
 
 
-Kung paanong nasa tiyan ng dambuhalang isda si Jonas sa loob ng tatlong araw at tatlong gabi, ganoon din naman ang mangyayari sa akin na_ Anak ng Tao. Tatlong araw at tatlong gabi rin ako sa ilalim ng lupa. 
+Kung paanong nasa tiyan ng dambuhalang isda si Jonas sa loob ng tatlong araw at tatlong gabi, ganoon din naman ang mangyayari sa akin na Anak ng Tao. Tatlong araw at tatlong gabi rin ako sa ilalim ng lupa. 
 
 
 
@@ -1298,7 +1298,7 @@ Kung paanong nasa tiyan ng dambuhalang isda si Jonas sa loob ng tatlong araw at 
 
 
 
-Sa Araw ng Paghuhukom, tatayo ang mga taga-Nineve at kokondenahin ang henerasyong ito, dahil nagsisi sila nang mangaral sa kanila si Jonas. At ngayon, narito ang higit pa kay Jonas, na nangangaral sa inyo, pero ayaw nʼyong magsisi._ 
+Sa Araw ng Paghuhukom, tatayo ang mga taga-Nineve at kokondenahin ang henerasyong ito, dahil nagsisi sila nang mangaral sa kanila si Jonas. At ngayon, narito ang higit pa kay Jonas, na nangangaral sa inyo, pero ayaw nʼyong magsisi. 
 
 
 
@@ -1331,7 +1331,7 @@ Sa Araw ng Paghuhukom, tatayo ang mga taga-Nineve at kokondenahin ang henerasyon
 
 
 
-Maging ang Reyna ng Timog ay tatayo rin at kokondenahin ang henerasyong ito. Sapagkat nanggaling pa siya sa napakalayong lugar para makinig sa karunungan ni Solomon. At ngayon, narito ang higit pa kay Solomon, pero ayaw ninyong makinig sa kanya_." ## Ang Pagbabalik ng Masamang Espiritu 
+Maging ang Reyna ng Timog ay tatayo rin at kokondenahin ang henerasyong ito. Sapagkat nanggaling pa siya sa napakalayong lugar para makinig sa karunungan ni Solomon. At ngayon, narito ang higit pa kay Solomon, pero ayaw ninyong makinig sa kanya." ## Ang Pagbabalik ng Masamang Espiritu 
 
 
 

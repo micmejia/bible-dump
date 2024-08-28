@@ -73,7 +73,7 @@ Dahil dito, lumapit ako sa Panginoong Dios at nanalangin. Nag-ayuno ako, nagdami
 
 
 
-Nanalangin ako sa Panginoon na aking Dios at humingi ng tawad para sa aming mga kasalanan:_ "Panginoon, kayo ay makapangyarihan at kahanga-hangang Dios. Tapat po kayo sa pagtupad ng inyong pangako na mamahalin nʼyo ang mga nagmamahal sa inyo at sumusunod sa inyong mga utos. 
+Nanalangin ako sa Panginoon na aking Dios at humingi ng tawad para sa aming mga kasalanan: "Panginoon, kayo ay makapangyarihan at kahanga-hangang Dios. Tapat po kayo sa pagtupad ng inyong pangako na mamahalin nʼyo ang mga nagmamahal sa inyo at sumusunod sa inyong mga utos. 
 
 
 
@@ -502,7 +502,7 @@ Kaya, Panginoon, ayon sa inyong ginagawang matuwid, nakikiusap ako na alisin nʼ
 
 
 
-"Kaya ngayon, O Dios, pakinggan nʼyo ang aking panalangin at pagsamo. Alang-alang sa inyong pangalan, muli nʼyong itayo ang inyong templong nagiba at_ napabayaan. 
+"Kaya ngayon, O Dios, pakinggan nʼyo ang aking panalangin at pagsamo. Alang-alang sa inyong pangalan, muli nʼyong itayo ang inyong templong nagiba at napabayaan. 
 
 
 
@@ -667,7 +667,7 @@ At habang nananalangin ako, mabilis na lumipad papunta sa akin si Gabriel na nak
 
 
 
-Pinaunawa niya sa akin at sinabi, "Daniel, naparito ako para ipaliwanag sa iyo ang tungkol sa pangitain_. 
+Pinaunawa niya sa akin at sinabi, "Daniel, naparito ako para ipaliwanag sa iyo ang tungkol sa pangitain. 
 
 
 
@@ -733,7 +733,7 @@ Sa simula pa lamang ng iyong panalangin ay may ipinahayag na ang Dios, kung kaya
 
 
 
-"490 taon ang itinakda ng Dios_ sa banal na lungsod at sa mga kababayan mo para tigilan nila ang pagrerebelde sa Dios_, para mapatawad ang kanilang kasalanan, para mapairal ng Dios_ ang walang hanggang katuwiran, para matupad ang pangitain at propesiya, at para maihandog na muli ang templo sa Dios_. 
+"490 taon ang itinakda ng Dios sa banal na lungsod at sa mga kababayan mo para tigilan nila ang pagrerebelde sa Dios, para mapatawad ang kanilang kasalanan, para mapairal ng Dios ang walang hanggang katuwiran, para matupad ang pangitain at propesiya, at para maihandog na muli ang templo sa Dios. 
 
 
 
@@ -766,7 +766,7 @@ Sa simula pa lamang ng iyong panalangin ay may ipinahayag na ang Dios, kung kaya
 
 
 
-"Dapat mong malaman at maintindihan na mula sa panahong iniutos na muling itayo ang Jerusalem hanggang sa pagdating ng pinunong hinirang ng Dios ay lilipas muna ang 49 na taon_. At sa loob ng 434 na taon_ ay muling itatayo ang Jerusalem na may mga plasa at tanggulan. Magiging magulo sa panahong iyon. 
+"Dapat mong malaman at maintindihan na mula sa panahong iniutos na muling itayo ang Jerusalem hanggang sa pagdating ng pinunong hinirang ng Dios ay lilipas muna ang 49 na taon. At sa loob ng 434 na taon ay muling itatayo ang Jerusalem na may mga plasa at tanggulan. Magiging magulo sa panahong iyon. 
 
 
 
@@ -799,7 +799,7 @@ Sa simula pa lamang ng iyong panalangin ay may ipinahayag na ang Dios, kung kaya
 
 
 
-Pagkatapos ng 434 na taon_, papatayin ang pinunong_ hinirang ng Dios_ at walang tutulong sa kanya. Darating ang isang hari at sisirain ng mga tauhan niya ang bayan at ang templo. At ayon sa itinakda ng Dios_, ang pagwasak at digmaan ay magpapatuloy hanggang sa katapusan. Ang katapusan ay darating na parang baha. 
+Pagkatapos ng 434 na taon, papatayin ang pinunong hinirang ng Dios at walang tutulong sa kanya. Darating ang isang hari at sisirain ng mga tauhan niya ang bayan at ang templo. At ayon sa itinakda ng Dios, ang pagwasak at digmaan ay magpapatuloy hanggang sa katapusan. Ang katapusan ay darating na parang baha. 
 
 
 
@@ -832,4 +832,4 @@ Pagkatapos ng 434 na taon_, papatayin ang pinunong_ hinirang ng Dios_ at walang 
 
 
 
-Ang haring iyon ay gagawa ng matibay na kasunduan sa napakaraming tao sa loob ng pitong taon. Pero pagkatapos ng tatlong taon at kalahati, patitigilin niya ang mga paghahandog at ilalagay niya ang kasuklam-suklam na bagay na magiging dahilan ng pagpapabaya sa templo_. Mananatili ito roon hanggang sa dumating ang katapusan ng hari na itinakda ng Dios."
+Ang haring iyon ay gagawa ng matibay na kasunduan sa napakaraming tao sa loob ng pitong taon. Pero pagkatapos ng tatlong taon at kalahati, patitigilin niya ang mga paghahandog at ilalagay niya ang kasuklam-suklam na bagay na magiging dahilan ng pagpapabaya sa templo. Mananatili ito roon hanggang sa dumating ang katapusan ng hari na itinakda ng Dios."

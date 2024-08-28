@@ -40,7 +40,7 @@ next: ['Josh 18']
 
 
 
-May ibinigay din na mga lupain para sa kalahating_ lahi ni Manase, na panganay na anak ni Jose. Ang Gilead at ang Bashan sa silangan ng Ilog ng Jordan_ ay ibinigay kay Makir dahil mabuti siyang sundalo. (Si Makir ang panganay ni Manase at ang ama ni Gilead.) 
+May ibinigay din na mga lupain para sa kalahating lahi ni Manase, na panganay na anak ni Jose. Ang Gilead at ang Bashan sa silangan ng Ilog ng Jordan ay ibinigay kay Makir dahil mabuti siyang sundalo. (Si Makir ang panganay ni Manase at ang ama ni Gilead.) 
 
 
 
@@ -73,7 +73,7 @@ May ibinigay din na mga lupain para sa kalahating_ lahi ni Manase, na panganay n
 
 
 
-Ang lupain sa kanluran ng Jordan_ ay ibinigay sa ibang mga lahi ni Manase: ang mga sambahayan nina Abiezer, Helek, Asriel, Shekem, Hefer at Shemida. Sila ang mga lalaking anak ni Manase, at mga pinuno ng kani-kanilang angkan. 
+Ang lupain sa kanluran ng Jordan ay ibinigay sa ibang mga lahi ni Manase: ang mga sambahayan nina Abiezer, Helek, Asriel, Shekem, Hefer at Shemida. Sila ang mga lalaking anak ni Manase, at mga pinuno ng kani-kanilang angkan. 
 
 
 
@@ -238,7 +238,7 @@ dahil binigyan din ng bahagi ang mga kalahing babae kagaya ng mga kalahi niyang 
 
 
 
-Ang hangganan ng lupain ng lahi_ ni Manase ay nagmula sa Asher hanggang sa Micmetat, sa silangan ng Shekem papuntang timog sa lupain ng_ mga nakatira malapit sa bukal ng Tapua. 
+Ang hangganan ng lupain ng lahi ni Manase ay nagmula sa Asher hanggang sa Micmetat, sa silangan ng Shekem papuntang timog sa lupain ng mga nakatira malapit sa bukal ng Tapua. 
 
 
 
@@ -271,7 +271,7 @@ Ang hangganan ng lupain ng lahi_ ni Manase ay nagmula sa Asher hanggang sa Micme
 
 
 
-(Ang mga lupain sa paligid ng Tapua ay pagmamay-ari ng lahi_ ni Manase, pero ang Tapua, na nasa hangganan ng lupain ni Manase ay pagmamay-ari ng lahi_ ni Efraim.) 
+(Ang mga lupain sa paligid ng Tapua ay pagmamay-ari ng lahi ni Manase, pero ang Tapua, na nasa hangganan ng lupain ni Manase ay pagmamay-ari ng lahi ni Efraim.) 
 
 
 
@@ -304,7 +304,7 @@ Ang hangganan ng lupain ng lahi_ ni Manase ay nagmula sa Asher hanggang sa Micme
 
 
 
-Tumuloy ito sa hangganan na papunta sa Lambak ng Kana. Sa timog ng lambak na ito ay may mga bayan na pagmamay-ari ng lahi_ ni Efraim, kahit na kasama ito sa mga bayan ng lahi_ ni Manase. Ang hangganan ng lahi_ ni Manase ay patuloy sa hilaga ng lambak hanggang sa Dagat ng Mediteraneo_. 
+Tumuloy ito sa hangganan na papunta sa Lambak ng Kana. Sa timog ng lambak na ito ay may mga bayan na pagmamay-ari ng lahi ni Efraim, kahit na kasama ito sa mga bayan ng lahi ni Manase. Ang hangganan ng lahi ni Manase ay patuloy sa hilaga ng lambak hanggang sa Dagat ng Mediteraneo. 
 
 
 
@@ -337,7 +337,7 @@ Tumuloy ito sa hangganan na papunta sa Lambak ng Kana. Sa timog ng lambak na ito
 
 
 
-Ang lupain sa timog ng ilog ay pagmamay-ari ng lahi_ ni Efraim at ang lupain sa hilaga ng ilog ay pagmamay-ari ng lahi_ ni Manase. Ang hangganan ng lupain ng lahi_ ni Manase sa kanluran ay ang Dagat ng Mediteraneo_. Ang nasa hilaga ng lahi_ ni Manase ay ng lahi_ ni Asher, at ang nasa silangan ay ng lahi_ ni Isacar. 
+Ang lupain sa timog ng ilog ay pagmamay-ari ng lahi ni Efraim at ang lupain sa hilaga ng ilog ay pagmamay-ari ng lahi ni Manase. Ang hangganan ng lupain ng lahi ni Manase sa kanluran ay ang Dagat ng Mediteraneo. Ang nasa hilaga ng lahi ni Manase ay ng lahi ni Asher, at ang nasa silangan ay ng lahi ni Isacar. 
 
 
 
@@ -370,7 +370,7 @@ Ang lupain sa timog ng ilog ay pagmamay-ari ng lahi_ ni Efraim at ang lupain sa 
 
 
 
-Ito ang mga bayan sa lupain ng lahi_ nina Isacar at Asher na ibinigay sa lahi ni_ Manase: ang Bet Shan, Ibleam, Dor (na tinatawag ding Nafat Dor_), Endor, Taanac, Megido at ang mga bayan sa paligid nito. 
+Ito ang mga bayan sa lupain ng lahi nina Isacar at Asher na ibinigay sa lahi ni Manase: ang Bet Shan, Ibleam, Dor (na tinatawag ding Nafat Dor), Endor, Taanac, Megido at ang mga bayan sa paligid nito. 
 
 
 

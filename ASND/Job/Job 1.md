@@ -105,7 +105,7 @@ Mayroon siyang pitong anak na lalaki at tatlong anak na babae.
 
 
 
-Ang mga pag-aari naman niya ay 7,000 tupa, 3,000 kamelyo, 500 pares ng baka at 500 ang kanyang asnong babae. Marami ang kanyang alipin. Siya ang pinakamayaman sa buong silangan ng Israel_. 
+Ang mga pag-aari naman niya ay 7,000 tupa, 3,000 kamelyo, 500 pares ng baka at 500 ang kanyang asnong babae. Marami ang kanyang alipin. Siya ang pinakamayaman sa buong silangan ng Israel. 
 
 
 
@@ -338,7 +338,7 @@ Sumagot si Satanas, "May takot si Job sa iyo dahil pinagpapala mo siya.
 
 
 
-Iniingatan mo siya at ang sambahayan niya, pati na ang lahat ng ari-arian niya. Pinagpapala mo ang lahat ng ginagawa niya. Kaya lalong dumarami ang kanyang mga hayop sa buong_ lupain. 
+Iniingatan mo siya at ang sambahayan niya, pati na ang lahat ng ari-arian niya. Pinagpapala mo ang lahat ng ginagawa niya. Kaya lalong dumarami ang kanyang mga hayop sa buong lupain. 
 
 
 
@@ -668,7 +668,7 @@ bigla pong dumating ang malakas na hangin mula sa ilang at nawasak po ang bahay.
 
 
 
-Nang marinig iyon ni Job,_ tumayo siya at pinunit ang kanyang damit dahil sa pagdadalamhati_. Pagkatapos, inahitan niya ang kanyang buhok sa ulo at nagpatirapa sa lupa para sumamba sa Panginoon_. 
+Nang marinig iyon ni Job, tumayo siya at pinunit ang kanyang damit dahil sa pagdadalamhati. Pagkatapos, inahitan niya ang kanyang buhok sa ulo at nagpatirapa sa lupa para sumamba sa Panginoon. 
 
 
 
@@ -701,7 +701,7 @@ Nang marinig iyon ni Job,_ tumayo siya at pinunit ang kanyang damit dahil sa pag
 
 
 
-Sinabi niya, "Ipinanganak akong walang dala at mamamatay din akong walang dala. Ang Panginoon ang nagbigay ng lahat ng mayroon ako_ at ang Panginoon din ang kumuha nito. Purihin ang pangalan ng Panginoon!" 
+Sinabi niya, "Ipinanganak akong walang dala at mamamatay din akong walang dala. Ang Panginoon ang nagbigay ng lahat ng mayroon ako at ang Panginoon din ang kumuha nito. Purihin ang pangalan ng Panginoon!" 
 
 
 

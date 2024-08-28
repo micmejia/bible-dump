@@ -471,7 +471,7 @@ Kaya huwag kayong magtaka, mga kapatid, kung galit sa inyo ang mga makamundo.
 
 
 
-Alam nating inilipat na tayo sa buhay na walang hanggan_ mula sa kamatayan dahil minamahal natin ang ating_ mga kapatid. Ang sinumang hindi nagmamahal sa kanyang kapwa ay nananatili sa kamatayan. 
+Alam nating inilipat na tayo sa buhay na walang hanggan mula sa kamatayan dahil minamahal natin ang ating mga kapatid. Ang sinumang hindi nagmamahal sa kanyang kapwa ay nananatili sa kamatayan. 
 
 
 
@@ -801,4 +801,4 @@ At ito ang kanyang utos: Dapat tayong sumampalataya sa kanyang Anak na si Jesu-C
 
 
 
-Ang mga sumusunod sa utos niya ay nananatili sa kanya, at siyaʼy nananatili rin sa kanila. At malalaman natin na nananatili ang Dios sa atin sa pamamagitan ng Banal na_ Espiritu na ibinigay niya sa atin.
+Ang mga sumusunod sa utos niya ay nananatili sa kanya, at siyaʼy nananatili rin sa kanila. At malalaman natin na nananatili ang Dios sa atin sa pamamagitan ng Banal na Espiritu na ibinigay niya sa atin.

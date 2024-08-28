@@ -40,7 +40,7 @@ next: ['Jer 14']
 
 
 
-Sinabi sa akin ng Panginoon, "Lumakad ka at bumili ng sinturon na telang_ linen. Itali mo ito sa baywang mo, pero huwag mong lalabhan." 
+Sinabi sa akin ng Panginoon, "Lumakad ka at bumili ng sinturon na telang linen. Itali mo ito sa baywang mo, pero huwag mong lalabhan." 
 
 
 
@@ -139,7 +139,7 @@ Pagkatapos, sinabing muli sa akin ng Panginoon,
 
 
 
-"Tanggalin mo ang sinturon na binili mo at pumunta ka malapit sa Ilog ng_ Eufrates at itago mo roon ang sinturon sa biyak ng bato." 
+"Tanggalin mo ang sinturon na binili mo at pumunta ka malapit sa Ilog ng Eufrates at itago mo roon ang sinturon sa biyak ng bato." 
 
 
 
@@ -172,7 +172,7 @@ Pagkatapos, sinabing muli sa akin ng Panginoon,
 
 
 
-Kaya pumunta ako sa may Ilog ng_ Eufrates at itinago ko roon ang sinturon ayon sa sinabi ng Panginoon. 
+Kaya pumunta ako sa may Ilog ng Eufrates at itinago ko roon ang sinturon ayon sa sinabi ng Panginoon. 
 
 
 
@@ -205,7 +205,7 @@ Kaya pumunta ako sa may Ilog ng_ Eufrates at itinago ko roon ang sinturon ayon s
 
 
 
-Pagkaraan ng mahabang panahon, muling sinabi sa akin ng Panginoon, "Pumunta ka sa Ilog ng_ Eufrates at kunin mo ang sinturon na ipinatago ko sa iyo roon." 
+Pagkaraan ng mahabang panahon, muling sinabi sa akin ng Panginoon, "Pumunta ka sa Ilog ng Eufrates at kunin mo ang sinturon na ipinatago ko sa iyo roon." 
 
 
 
@@ -238,7 +238,7 @@ Pagkaraan ng mahabang panahon, muling sinabi sa akin ng Panginoon, "Pumunta ka s
 
 
 
-Kaya pumunta ako sa Ilog ng_ Eufrates at kinuha ko ang sinturon sa pinagtaguan ko, pero sira na iyon at hindi na mapapakinabangan.
+Kaya pumunta ako sa Ilog ng Eufrates at kinuha ko ang sinturon sa pinagtaguan ko, pero sira na iyon at hindi na mapapakinabangan.
 
 ###### 8-9 Pagkatapos, sinabi sa akin ng Panginoon, "Ganyan din ang mangyayari sa Juda na mapagmataas at sa higit na pagmamataas ng Jerusalem. 
 
@@ -306,7 +306,7 @@ Ayaw sumunod ng masasamang taong ito sa mga sinasabi ko. Sinusunod nila ang nais
 
 
 
-Kung papaano sanang ang sinturon ay nakakapit nang mahigpit sa baywang ng tao, nais ko rin sanang ang lahat ng mamamayan ng Israel at Juda ay kumapit nang mahigpit sa akin. Hinirang ko sila para papurihan nila ako at parangalan, pero ayaw nilang makinig sa akin. Ako,_ ang Panginoon, ang nagsasabi nito." ## Ang Talinghaga tungkol sa Sisidlang-balat ng Alak 
+Kung papaano sanang ang sinturon ay nakakapit nang mahigpit sa baywang ng tao, nais ko rin sanang ang lahat ng mamamayan ng Israel at Juda ay kumapit nang mahigpit sa akin. Hinirang ko sila para papurihan nila ako at parangalan, pero ayaw nilang makinig sa akin. Ako, ang Panginoon, ang nagsasabi nito." ## Ang Talinghaga tungkol sa Sisidlang-balat ng Alak 
 
 
 
@@ -339,7 +339,7 @@ Kung papaano sanang ang sinturon ay nakakapit nang mahigpit sa baywang ng tao, n
 
 
 
-"Jeremias, sabihin mo sa mga mamamayan ng Israel na ako,_ ang Panginoon, ang Dios ng Israel ay nagsasabing, 'Ang lahat ng sisidlang-balat nʼyo ay mapupuno ng alak.' At kung sasabihin nila sa iyo, 'Alam na naming mapupuno ng alak ang lahat ng lalagyan namin.' 
+"Jeremias, sabihin mo sa mga mamamayan ng Israel na ako, ang Panginoon, ang Dios ng Israel ay nagsasabing, 'Ang lahat ng sisidlang-balat nʼyo ay mapupuno ng alak.' At kung sasabihin nila sa iyo, 'Alam na naming mapupuno ng alak ang lahat ng lalagyan namin.' 
 
 
 
@@ -405,7 +405,7 @@ Sabihin mo sa kanila na ito ang ibig kong sabihin: 'Parurusahan ko ang lahat ng 
 
 
 
-Pag-uumpugin ko ang mga magulang at ang mga anak nila. Hindi ako mahahabag sa pagpatay sa kanila. Ako,_ ang Panginoon, ang nagsasabi nito.' " ## Babala tungkol sa Kapalaluan 
+Pag-uumpugin ko ang mga magulang at ang mga anak nila. Hindi ako mahahabag sa pagpatay sa kanila. Ako, ang Panginoon, ang nagsasabi nito.' " ## Babala tungkol sa Kapalaluan 
 
 
 
@@ -537,7 +537,7 @@ Kung ayaw pa rin ninyong makinig, iiyak ako ng lihim dahil sa pagmamataas ninyo.
 
 
 
-Inutusan ako ng Panginoon na_ sabihin sa hari at sa kanyang ina na bumaba sila sa trono nila dahil malapit nang kunin sa ulo nila ang magaganda nilang korona. 
+Inutusan ako ng Panginoon na sabihin sa hari at sa kanyang ina na bumaba sila sa trono nila dahil malapit nang kunin sa ulo nila ang magaganda nilang korona. 
 
 
 
@@ -603,7 +603,7 @@ Isasara ang mga pintuan ng mga bayan sa Negev. Wala nang makakapasok o makakalab
 
 
 
-Tingnan nʼyo ang mga kaaway na dumarating mula sa hilaga. O Jerusalem,_ nasaan na ang iyong mga mamamayan na ipinagmamalaki mo, na ipinagkatiwala ko sa iyo para alagaan mo? 
+Tingnan nʼyo ang mga kaaway na dumarating mula sa hilaga. O Jerusalem, nasaan na ang iyong mga mamamayan na ipinagmamalaki mo, na ipinagkatiwala ko sa iyo para alagaan mo? 
 
 
 
@@ -702,7 +702,7 @@ Kung tatanungin mo ang sarili mo kung bakit ka napahamak na parang babaeng pinun
 
 
 
-Mapapalitan ba ng taong maitim ang kulay ng balat niya? Maaalis ba ng leopardo ang mga batik sa katawan niya? Hindi!_ Ganyan din kayong mga taga-Jerusalem, hindi kayo makakagawa ng mabuti dahil ugali na ninyo ang gumawa ng masama. 24-25Sinabi ng Panginoon, "Pangangalatin ko kayo katulad ng ipa na ipinapadpad ng hanging mula sa disyerto. Iyan ang kahihinatnan ninyo. Gagawin ko ito sa inyo dahil kinalimutan ninyo ako at nagtiwala kayo sa mga dios-diosan. 
+Mapapalitan ba ng taong maitim ang kulay ng balat niya? Maaalis ba ng leopardo ang mga batik sa katawan niya? Hindi! Ganyan din kayong mga taga-Jerusalem, hindi kayo makakagawa ng mabuti dahil ugali na ninyo ang gumawa ng masama. 24-25Sinabi ng Panginoon, "Pangangalatin ko kayo katulad ng ipa na ipinapadpad ng hanging mula sa disyerto. Iyan ang kahihinatnan ninyo. Gagawin ko ito sa inyo dahil kinalimutan ninyo ako at nagtiwala kayo sa mga dios-diosan. 
 
 
 
@@ -768,4 +768,4 @@ Ibibilad ko kayo sa kahihiyan gaya ng babaeng hinubaran.
 
 
 
-Nakita ko ang mga ginawa ninyong kasuklam-suklam na pagsamba sa mga dios-diosan_ sa mga bundok at kapatagan. Tulad kayo ng babaeng bayaran na nag-aapoy ang pagnanasa, o ng mga nangangalunya at nakikiapid. Nakakaawa kayo, mga taga-Jerusalem! Hanggang kailan kayo mananatili sa karumihan?"
+Nakita ko ang mga ginawa ninyong kasuklam-suklam na pagsamba sa mga dios-diosan sa mga bundok at kapatagan. Tulad kayo ng babaeng bayaran na nag-aapoy ang pagnanasa, o ng mga nangangalunya at nakikiapid. Nakakaawa kayo, mga taga-Jerusalem! Hanggang kailan kayo mananatili sa karumihan?"

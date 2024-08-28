@@ -106,7 +106,7 @@ Sinasabi pa ninyong kayoʼy mga mamamayan ng banal na lungsod, at nagtitiwala ka
 
 
 
-Sinabi niya sa inyo,_ "Sinabi ko na noon pa kung ano ang mga mangyayari sa hinaharap. At itoʼy aking isinakatuparan. 
+Sinabi niya sa inyo, "Sinabi ko na noon pa kung ano ang mga mangyayari sa hinaharap. At itoʼy aking isinakatuparan. 
 
 
 
@@ -535,7 +535,7 @@ Ako ang nagsabi sa kanya at ako rin ang tumawag sa kanya. Sinugo ko siya at pina
 
 
 
-Lumapit kayo sa akin at pakinggan ito: Mula pa ng pasimula hindi ako nagsalita nang lihim. Sa panahon na nangyari ang sinabi ko, naroon ako." At ngayon sinugo ako ng Panginoong Dios at ng kanyang Espiritu na sabihin ito_: 
+Lumapit kayo sa akin at pakinggan ito: Mula pa ng pasimula hindi ako nagsalita nang lihim. Sa panahon na nangyari ang sinabi ko, naroon ako." At ngayon sinugo ako ng Panginoong Dios at ng kanyang Espiritu na sabihin ito: 
 
 
 

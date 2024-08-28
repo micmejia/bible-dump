@@ -205,7 +205,7 @@ Saan ba nanggaling ang mga sinasabi mong iyan? Sinong espiritu ang nagturo sa iy
 
 
 
-Lantad sa paningin ng Dios ang lugar ng mga patay. Hindi maitatago ang lugar na iyon_ ng kapahamakan. 
+Lantad sa paningin ng Dios ang lugar ng mga patay. Hindi maitatago ang lugar na iyon ng kapahamakan. 
 
 
 
@@ -238,7 +238,7 @@ Lantad sa paningin ng Dios ang lugar ng mga patay. Hindi maitatago ang lugar na 
 
 
 
-Inilatag ng Dios ang hilagang kalangitan sa_ kalawakan at isinabit ang mundo sa kawalan. 
+Inilatag ng Dios ang hilagang kalangitan sa kalawakan at isinabit ang mundo sa kawalan. 
 
 
 
@@ -403,7 +403,7 @@ Sa pagsaway niya ay nayayanig ang mga haligi ng langit.
 
 
 
-Sa kanyang kapangyarihan ay pinaaalon niya ang dagat; sa kanyang karunungan ay tinalo niya ang dragon na si_ Rahab. 
+Sa kanyang kapangyarihan ay pinaaalon niya ang dagat; sa kanyang karunungan ay tinalo niya ang dragon na si Rahab. 
 
 
 

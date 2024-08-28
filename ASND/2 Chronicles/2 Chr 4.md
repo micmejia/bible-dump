@@ -73,7 +73,7 @@ Nagpagawa rin si Solomon ng tansong altar na 30 talampakan ang haba, 30 talampak
 
 
 
-Nagpagawa rin siya ng malaking lalagyan ng tubig na parang kawa, na tinatawag na_ Dagat. Ang lalim nito ay pitoʼt kalahating talampakan, ang luwang ay 15 talampakan, at ang sukat sa paligid ay 45 talampakan. 
+Nagpagawa rin siya ng malaking lalagyan ng tubig na parang kawa, na tinatawag na Dagat. Ang lalim nito ay pitoʼt kalahating talampakan, ang luwang ay 15 talampakan, at ang sukat sa paligid ay 45 talampakan. 
 
 
 
@@ -139,7 +139,7 @@ Napapalibutan ito ng dalawang hanay ng palamuting hugis toro sa ilalim ng bibig 
 
 
 
-Nakapatong ang sisidlan sa likod ng 12 tansong_ toro na magkakatalikod. Ang tatlong toro ay nakaharap sa gawing hilaga, ang tatlo ay sa kanluran, ang tatlo ay sa timog, at ang tatlo ay sa gawing silangan. 
+Nakapatong ang sisidlan sa likod ng 12 tansong toro na magkakatalikod. Ang tatlong toro ay nakaharap sa gawing hilaga, ang tatlo ay sa kanluran, ang tatlo ay sa timog, at ang tatlo ay sa gawing silangan. 
 
 
 
@@ -172,7 +172,7 @@ Nakapatong ang sisidlan sa likod ng 12 tansong_ toro na magkakatalikod. Ang tatl
 
 
 
-Ang kapal ng sisidlan ay mga tatlong pulgada, at ang ilalim nito ay parang bibig ng tasa na nakakurba palabas_ katulad ng namumukadkad na bulaklak ng liryo. At maaari itong malagyan ng 17,500 galong tubig. 
+Ang kapal ng sisidlan ay mga tatlong pulgada, at ang ilalim nito ay parang bibig ng tasa na nakakurba palabas katulad ng namumukadkad na bulaklak ng liryo. At maaari itong malagyan ng 17,500 galong tubig. 
 
 
 
@@ -205,7 +205,7 @@ Ang kapal ng sisidlan ay mga tatlong pulgada, at ang ilalim nito ay parang bibig
 
 
 
-Nagpagawa rin siya ng sampung planggana para paghugasan ng mga kagamitan sa mga handog na sinusunog. Inilagay ang lima sa gawing timog at ang lima ay sa gawing hilaga. Pero ang tubig sa lalagyan na tinatawag na_ Dagat ay ginagamit ng mga pari na panghugas. 
+Nagpagawa rin siya ng sampung planggana para paghugasan ng mga kagamitan sa mga handog na sinusunog. Inilagay ang lima sa gawing timog at ang lima ay sa gawing hilaga. Pero ang tubig sa lalagyan na tinatawag na Dagat ay ginagamit ng mga pari na panghugas. 
 
 
 
@@ -337,7 +337,7 @@ Nagpagawa rin siya ng bakuran ng mga pari at maluwang na bakuran sa labas. Pinag
 
 
 
-Inilagay niya ang sisidlan ng tubig na tinatawag na_ Dagat sa gawing timog-silangan ng templo. 
+Inilagay niya ang sisidlan ng tubig na tinatawag na Dagat sa gawing timog-silangan ng templo. 
 
 
 
@@ -370,7 +370,7 @@ Inilagay niya ang sisidlan ng tubig na tinatawag na_ Dagat sa gawing timog-silan
 
 
 
-Nagpagawa rin siya ng mga palayok, mga pala, at mga mangkok na ginagamit sa pangwisik. Natapos ni Huram ang lahat ng ipinagawa sa kanya ni Solomon para sa templo ng Dios. Ito ang kanyang mga ginawa_: 
+Nagpagawa rin siya ng mga palayok, mga pala, at mga mangkok na ginagamit sa pangwisik. Natapos ni Huram ang lahat ng ipinagawa sa kanya ni Solomon para sa templo ng Dios. Ito ang kanyang mga ginawa: 
 
 
 
@@ -436,7 +436,7 @@ ang dalawang haligi; ang dalawang parang mangkok na ulo ng mga haligi; ang dalaw
 
 
 
-ang 400 palamuti na ang hugis ay parang prutas na_ pomegranata (nakakabit ang dalawang hilera nito sa bawat magkadugtong na mga kadenang nakapaikot sa ulo ng mga haligi); 
+ang 400 palamuti na ang hugis ay parang prutas na pomegranata (nakakabit ang dalawang hilera nito sa bawat magkadugtong na mga kadenang nakapaikot sa ulo ng mga haligi); 
 
 
 
@@ -502,7 +502,7 @@ ang mga kariton at mga planggana;
 
 
 
-ang lalagyan ng tubig na tinatawag na_ Dagat at ang 12 tansong_ toro sa ilalim nito; 
+ang lalagyan ng tubig na tinatawag na Dagat at ang 12 tansong toro sa ilalim nito; 
 
 
 

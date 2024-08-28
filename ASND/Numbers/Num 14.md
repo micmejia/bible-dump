@@ -205,7 +205,7 @@ Pagkatapos, nagpatirapa sina Moises at Aaron sa harapan ng lahat ng mamamayan ng
 
 
 
-Pinunit ni Josue na anak ni Nun at ni Caleb na anak ni Jefune ang kanilang mga damit sa kalungkutan_. Ang dalawang ito ay kasama sa pag-espiya sa lupain. 
+Pinunit ni Josue na anak ni Nun at ni Caleb na anak ni Jefune ang kanilang mga damit sa kalungkutan. Ang dalawang ito ay kasama sa pag-espiya sa lupain. 
 
 
 
@@ -469,7 +469,7 @@ Sinabi ni Moises sa Panginoon, "Ano na lang po ang sasabihin ng mga Egipcio kung
 
 
 
-Kapag pinatay po ninyo ang inyong mamamayan_, sasabihin nila ito sa mga naninirahan sa Canaan. Narinig ng mga Cananeo na kayo, Panginoon ay sumasama sa mga Israelita, at nagpapakita sa kanila sa pamamagitan ng ulap na gumagabay sa kanila. Pinangungunahan nʼyo sila kapag gabi sa pamamagitan ng apoy na parang haligi, at kapag araw sa pamamagitan ng ulap na parang haligi rin. 
+Kapag pinatay po ninyo ang inyong mamamayan, sasabihin nila ito sa mga naninirahan sa Canaan. Narinig ng mga Cananeo na kayo, Panginoon ay sumasama sa mga Israelita, at nagpapakita sa kanila sa pamamagitan ng ulap na gumagabay sa kanila. Pinangungunahan nʼyo sila kapag gabi sa pamamagitan ng apoy na parang haligi, at kapag araw sa pamamagitan ng ulap na parang haligi rin. 
 
 
 
@@ -1197,7 +1197,7 @@ Nang sinabi ito ni Moises sa lahat ng mga Israelita, nagluksa sila.
 
 
 
-At kinabukasan, maaga silang bumangon para umakyat sa kabundukan ng Canaan_. Sinabi nila, "Napag-isip-isip namin na nagkasala kami, at ngayoʼy handa na kami sa pagpunta sa lugar na ipinangako ng Panginoon." 
+At kinabukasan, maaga silang bumangon para umakyat sa kabundukan ng Canaan. Sinabi nila, "Napag-isip-isip namin na nagkasala kami, at ngayoʼy handa na kami sa pagpunta sa lugar na ipinangako ng Panginoon." 
 
 
 
@@ -1230,7 +1230,7 @@ At kinabukasan, maaga silang bumangon para umakyat sa kabundukan ng Canaan_. Sin
 
 
 
-Pero sinabi ni Moises, "Bakit sinuway ninyo ang utos ng Panginoon na magbalik kayo sa disyerto_? Hindi kayo magtatagumpay! 
+Pero sinabi ni Moises, "Bakit sinuway ninyo ang utos ng Panginoon na magbalik kayo sa disyerto? Hindi kayo magtatagumpay! 
 
 
 
@@ -1329,7 +1329,7 @@ Sa oras na makipaglaban sa inyo ang mga Cananeo at mga Amalekita, mamamatay kayo
 
 
 
-Pero naglakbay sila sa kabundukan ng Canaan_ kahit hindi sumama sa kanila si Moises at ang Kahon ng Kasunduan. 
+Pero naglakbay sila sa kabundukan ng Canaan kahit hindi sumama sa kanila si Moises at ang Kahon ng Kasunduan. 
 
 
 

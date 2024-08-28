@@ -39,7 +39,7 @@ next: ['Eph 2']
 
 
 
-Mula kay_ Pablo na apostol ni Cristo Jesus ayon sa kalooban ng Dios. Mahal kong mga pinabanal sa Efeso, mga matatapat na nakay Cristo Jesus: 
+Mula kay Pablo na apostol ni Cristo Jesus ayon sa kalooban ng Dios. Mahal kong mga pinabanal sa Efeso, mga matatapat na nakay Cristo Jesus: 
 
 
 
@@ -140,7 +140,7 @@ noong una paʼy itinalaga na niya tayo para maging mga anak niya sa pamamagitan 
 
 
 
-Purihin natin ang Dios dahil sa kamangha-mangha niyang biyaya na ibinigay sa atin sa pamamagitan ng kanyang minamahal na Anak_.
+Purihin natin ang Dios dahil sa kamangha-mangha niyang biyaya na ibinigay sa atin sa pamamagitan ng kanyang minamahal na Anak.
 
 ###### 7-8 Sa pamamagitan ng dugo ni Cristo, tinubos tayo, na ang ibig sabihin ay pinatawad ang mga kasalanan natin. Napakalaki ng biyayang ipinagkaloob sa atin ng Dios. Binigyan niya tayo ng karunungan at pang-unawa 
 
@@ -373,7 +373,7 @@ Ang Banal na Espiritu ang katibayan na matatanggap natin mula sa Dios ang ipinan
 
 
 
-Kaya nga, mula nang mabalitaan ko ang pananampalataya nʼyo sa ating_ Panginoong Jesus at ang pag-ibig nʼyo sa lahat ng mga pinabanal, 
+Kaya nga, mula nang mabalitaan ko ang pananampalataya nʼyo sa ating Panginoong Jesus at ang pag-ibig nʼyo sa lahat ng mga pinabanal, 
 
 
 
@@ -439,7 +439,7 @@ walang tigil ang pasasalamat ko sa Dios dahil sa inyo. At lagi ko kayong ipinapa
 
 
 
-Hinihiling ko sa Dios, ang dakilang Ama ng ating Panginoong Jesu-Cristo, na bigyan niya kayo ng karunungan at pang-unawa mula sa Banal na_ Espiritu, para lalo nʼyo pa siyang makilala. 
+Hinihiling ko sa Dios, ang dakilang Ama ng ating Panginoong Jesu-Cristo, na bigyan niya kayo ng karunungan at pang-unawa mula sa Banal na Espiritu, para lalo nʼyo pa siyang makilala. 
 
 
 
@@ -505,7 +505,7 @@ Ipinapanalangin ko rin na maliwanagan ang inyong pusoʼt isipan para maunawaan n
 
 
 
-Kaya nasa ilalim ng kapangyarihan ni Cristo ang lahat ng espiritung_ naghahari at namamahala, mga espiritung_ namumuno at may kapangyarihan. Ang titulo niya ay hindi mapapantayan ninuman, hindi lang sa panahong ito kundi sa darating pang panahon. 
+Kaya nasa ilalim ng kapangyarihan ni Cristo ang lahat ng espiritung naghahari at namamahala, mga espiritung namumuno at may kapangyarihan. Ang titulo niya ay hindi mapapantayan ninuman, hindi lang sa panahong ito kundi sa darating pang panahon. 
 
 
 

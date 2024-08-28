@@ -7,7 +7,7 @@ next: ['Jer 24']
 # Jeremiah 23
 
 ***
-###### 1-2 Sinabi ng Panginoon, ang Dios ng Israel, "Nakakaawa kayong mga pinuno ng mga mamamayan ko! Kayo sana ang mag-aalaga sa aking mga mamamayan tulad ng pastol ng mga tupa, ngunit pinabayaan lang ninyo silang mamatay at mangalat. Kaya dahil sa pinangalat ninyo ang mga mamamayan ko at hindi nʼyo inalagaan, parurusahan ko kayo. Oo, parurusahan ko kayo_ dahil sa kasamaang ginawa ninyo. 
+###### 1-2 Sinabi ng Panginoon, ang Dios ng Israel, "Nakakaawa kayong mga pinuno ng mga mamamayan ko! Kayo sana ang mag-aalaga sa aking mga mamamayan tulad ng pastol ng mga tupa, ngunit pinabayaan lang ninyo silang mamatay at mangalat. Kaya dahil sa pinangalat ninyo ang mga mamamayan ko at hindi nʼyo inalagaan, parurusahan ko kayo. Oo, parurusahan ko kayo dahil sa kasamaang ginawa ninyo. 
 
 
 
@@ -73,7 +73,7 @@ Ako mismo ang magtitipon sa mga natitira kong mamamayan mula sa ibaʼt ibang lug
 
 
 
-Bibigyan ko sila ng pinunong magmamalasakit at mangangalaga sa kanila, at hindi na sila matatakot o mangangamba, at wala nang maliligaw sa kanila. Ako,_ ang Panginoon, ang nagsasabi nito." 
+Bibigyan ko sila ng pinunong magmamalasakit at mangangalaga sa kanila, at hindi na sila matatakot o mangangamba, at wala nang maliligaw sa kanila. Ako, ang Panginoon, ang nagsasabi nito." 
 
 
 
@@ -238,7 +238,7 @@ Sa halip, sasabihin nilang, 'Sumusumpa ako sa pangalan ng buhay na Panginoon na 
 
 
 
-Nadudurog ang puso ko dahil sa mga bulaang_ propeta. Nanginginig pati ang mga buto ko at para akong lasing dahil sa banal na mensahe ng Panginoon laban sa kanila_. 
+Nadudurog ang puso ko dahil sa mga bulaang propeta. Nanginginig pati ang mga buto ko at para akong lasing dahil sa banal na mensahe ng Panginoon laban sa kanila. 
 
 
 
@@ -337,7 +337,7 @@ Sapagkat ito ang sinasabi ng Panginoon, "Ang mga pari ay kagaya rin ng mga prope
 
 
 
-Kaya magiging madilim at madulas ang daan nila. Matitisod at madadapa sila dahil pasasapitin ko sa kanila ang kapahamakan sa panahon na parurusahan ko sila. Ako,_ ang Panginoon, ang nagsasabi nito. 
+Kaya magiging madilim at madulas ang daan nila. Matitisod at madadapa sila dahil pasasapitin ko sa kanila ang kapahamakan sa panahon na parurusahan ko sila. Ako, ang Panginoon, ang nagsasabi nito. 
 
 
 
@@ -436,7 +436,7 @@ Pero nakita ko ring mas masama pa ang ginagawa ng mga propeta ng Jerusalem dahil
 
 
 
-"Kaya ako_, ang Panginoong Makapangyarihan, ay nagsasabi tungkol sa mga propetang ito: Pakakainin ko sila ng mapait na pagkain at paiinumin ko sila ng inuming may lason sapagkat dahil sa kanilaʼy lumaganap ang kasamaan sa buong lupain." 
+"Kaya ako, ang Panginoong Makapangyarihan, ay nagsasabi tungkol sa mga propetang ito: Pakakainin ko sila ng mapait na pagkain at paiinumin ko sila ng inuming may lason sapagkat dahil sa kanilaʼy lumaganap ang kasamaan sa buong lupain." 
 
 
 
@@ -469,7 +469,7 @@ Pero nakita ko ring mas masama pa ang ginagawa ng mga propeta ng Jerusalem dahil
 
 
 
-Sinabi ng Panginoong Makapangyarihan sa mga taga-Jerusalem_, "Huwag kayong maniniwala sa sinasabi ng mga bulaang_ propetang ito. Pinapaasa lang nila kayo sa mga kasinungalingan. Hindi galing sa akin ang mga sinasabi nilang pangitain kundi sa sarili nilang isipan. 
+Sinabi ng Panginoong Makapangyarihan sa mga taga-Jerusalem, "Huwag kayong maniniwala sa sinasabi ng mga bulaang propetang ito. Pinapaasa lang nila kayo sa mga kasinungalingan. Hindi galing sa akin ang mga sinasabi nilang pangitain kundi sa sarili nilang isipan. 
 
 
 
@@ -733,7 +733,7 @@ Ako ay Dios na nasa lahat ng lugar, at hindi nasa iisang lugar lamang.
 
 
 
-Walang sinumang makapagtatago sa akin kahit saan mang lihim na lugar na hindi ko nakikita. Hindi nʼyo ba alam na akoʼy nasa langit, nasa lupa at kahit saan? Ako,_ ang Panginoon, ang nagsasabi nito. 
+Walang sinumang makapagtatago sa akin kahit saan mang lihim na lugar na hindi ko nakikita. Hindi nʼyo ba alam na akoʼy nasa langit, nasa lupa at kahit saan? Ako, ang Panginoon, ang nagsasabi nito. 
 
 
 
@@ -865,7 +865,7 @@ Sa pamamagitan ng mga panaginip nilang iyon na sinasabi nila sa mga tao, itinutu
 
 
 
-Hayaan nʼyong magsalita ang mga propetang ito ng tungkol sa mga panaginip nila, pero ang mga propetang nakarinig ng aking mga salita ay dapat magpahayag nito nang buong katapatan. Sapagkat magkaiba ang mga panaginip nila kaysa sa mga salita ko, gaya ng_ pagkakaiba ng dayami sa trigo. 
+Hayaan nʼyong magsalita ang mga propetang ito ng tungkol sa mga panaginip nila, pero ang mga propetang nakarinig ng aking mga salita ay dapat magpahayag nito nang buong katapatan. Sapagkat magkaiba ang mga panaginip nila kaysa sa mga salita ko, gaya ng pagkakaiba ng dayami sa trigo. 
 
 
 
@@ -898,7 +898,7 @@ Hayaan nʼyong magsalita ang mga propetang ito ng tungkol sa mga panaginip nila,
 
 
 
-Hindi baʼt makapangyarihan ang mga salita ko? Gaya ito ng apoy na nakasusunog_ o ng martilyo na nakadudurog ng bato. 
+Hindi baʼt makapangyarihan ang mga salita ko? Gaya ito ng apoy na nakasusunog o ng martilyo na nakadudurog ng bato. 
 
 
 
@@ -997,7 +997,7 @@ Laban din ako sa mga propetang gumagawa ng sariling mensahe at saka sasabihing a
 
 
 
-Nagpapahayag sila ng mga panaginip na hindi totoo, kaya inililigaw nila ang mga mamamayan ko sa mga kasinungalingan nila. Hindi ko sila isinugo o sinabihang magsalita, kaya wala silang kabutihang maibibigay sa mga tao. Ako,_ ang Panginoon, ang nagsasabi nito. 
+Nagpapahayag sila ng mga panaginip na hindi totoo, kaya inililigaw nila ang mga mamamayan ko sa mga kasinungalingan nila. Hindi ko sila isinugo o sinabihang magsalita, kaya wala silang kabutihang maibibigay sa mga tao. Ako, ang Panginoon, ang nagsasabi nito. 
 
 
 
@@ -1030,7 +1030,7 @@ Nagpapahayag sila ng mga panaginip na hindi totoo, kaya inililigaw nila ang mga 
 
 
 
-"Jeremias,_ kung may magtatanong sa iyo na isang mamamayan, o propeta, o pari sa iyo kung ano ang ipinapasabi ko, sabihin mong ipinapasabi kong itatakwil ko sila. 
+"Jeremias, kung may magtatanong sa iyo na isang mamamayan, o propeta, o pari sa iyo kung ano ang ipinapasabi ko, sabihin mong ipinapasabi kong itatakwil ko sila. 
 
 
 

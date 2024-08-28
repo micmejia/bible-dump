@@ -10,7 +10,7 @@ next: ['Phil 4']
 
 
 ###### 1 
-Finally, my brethren, rejoice in the Lord. For me to write the same things to you _is_ not tedious, but for you _it is_ safe. 
+Finally, my brethren, rejoice in the Lord. For me to write the same things to you is not tedious, but for you it is safe. 
 
 ###### 2 
 Beware of dogs, beware of evil workers, beware of the mutilation! 
@@ -22,7 +22,7 @@ For we are the circumcision, who worship God in the Spirit, rejoice in Christ Je
 though I also might have confidence in the flesh. If anyone else thinks he may have confidence in the flesh, I more so: 
 
 ###### 5 
-circumcised the eighth day, of the stock of Israel, _of_ the tribe of Benjamin, a Hebrew of the Hebrews; concerning the law, a Pharisee; 
+circumcised the eighth day, of the stock of Israel, of the tribe of Benjamin, a Hebrew of the Hebrews; concerning the law, a Pharisee; 
 
 ###### 6 
 concerning zeal, persecuting the church; concerning the righteousness which is in the law, blameless. 
@@ -34,7 +34,7 @@ But what things were gain to me, these I have counted loss for Christ.
 Yet indeed I also count all things loss for the excellence of the knowledge of Christ Jesus my Lord, for whom I have suffered the loss of all things, and count them as rubbish, that I may gain Christ 
 
 ###### 9 
-and be found in Him, not having my own righteousness, which _is_ from the law, but that which _is_ through faith in Christ, the righteousness which is from God by faith; 
+and be found in Him, not having my own righteousness, which is from the law, but that which is through faith in Christ, the righteousness which is from God by faith; 
 
 ###### 10 
 that I may know Him and the power of His resurrection, and the fellowship of His sufferings, being conformed to His death, 
@@ -48,7 +48,7 @@ if, by any means, I may attain to the resurrection from the dead.
 Not that I have already attained, or am already perfected; but I press on, that I may lay hold of that for which Christ Jesus has also laid hold of me. 
 
 ###### 13 
-Brethren, I do not count myself to have apprehended; but one thing _I do,_ forgetting those things which are behind and reaching forward to those things which are ahead, 
+Brethren, I do not count myself to have apprehended; but one thing I do, forgetting those things which are behind and reaching forward to those things which are ahead, 
 
 ###### 14 
 I press toward the goal for the prize of the upward call of God in Christ Jesus. 
@@ -57,7 +57,7 @@ I press toward the goal for the prize of the upward call of God in Christ Jesus.
 Therefore let us, as many as are mature, have this mind; and if in anything you think otherwise, God will reveal even this to you. 
 
 ###### 16 
-Nevertheless, to _the degree_ that we have already attained, let us walk by the same rule, let us be of the same mind.
+Nevertheless, to the degree that we have already attained, let us walk by the same rule, let us be of the same mind.
 
 ## Our Citizenship in Heaven 
 
@@ -65,10 +65,10 @@ Nevertheless, to _the degree_ that we have already attained, let us walk by the 
 Brethren, join in following my example, and note those who so walk, as you have us for a pattern. 
 
 ###### 18 
-For many walk, of whom I have told you often, and now tell you even weeping, _that they are_ the enemies of the cross of Christ: 
+For many walk, of whom I have told you often, and now tell you even weeping, that they are the enemies of the cross of Christ: 
 
 ###### 19 
-whose end _is_ destruction, whose god _is their_ belly, and _whose_ glory _is_ in their shame--who set their mind on earthly things. 
+whose end is destruction, whose god is their belly, and whose glory is in their shame--who set their mind on earthly things. 
 
 ###### 20 
 For our citizenship is in heaven, from which we also eagerly wait for the Savior, the Lord Jesus Christ, 

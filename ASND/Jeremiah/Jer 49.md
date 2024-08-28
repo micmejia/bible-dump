@@ -172,7 +172,7 @@ Kayong mga taksil, bakit ninyo ipinagyayabang ang inyong masaganang mga kapataga
 
 
 
-Ako_, ang Panginoong Dios na Makapangyarihan, ay magpapadala sa inyo ng mga kaaway mula sa mga bansa sa palibot ninyo para takutin kayo. Palalayasin nila kayo sa inyong lupain at walang sinumang tutulong sa inyo. 
+Ako, ang Panginoong Dios na Makapangyarihan, ay magpapadala sa inyo ng mga kaaway mula sa mga bansa sa palibot ninyo para takutin kayo. Palalayasin nila kayo sa inyong lupain at walang sinumang tutulong sa inyo. 
 
 
 
@@ -205,7 +205,7 @@ Ako_, ang Panginoong Dios na Makapangyarihan, ay magpapadala sa inyo ng mga kaaw
 
 
 
-Pero darating ang araw na ibabalik ko sa mabuting kalagayan ang mga taga-Ammon. Ako,_ ang Panginoon, ang nagsasabi nito." ## Ang Mensahe tungkol sa Edom 
+Pero darating ang araw na ibabalik ko sa mabuting kalagayan ang mga taga-Ammon. Ako, ang Panginoon, ang nagsasabi nito." ## Ang Mensahe tungkol sa Edom 
 
 
 
@@ -436,7 +436,7 @@ Sinabi pa ng Panginoon, "Kung ang mga walang kasalanan ay nagdurusa, kayo pa kay
 
 
 
-Isinusumpa ko sa sarili ko na ang Bozra ay mawawasak. Magiging nakakatakot ang kalagayan nito, at kukutyain at susumpain ito. Ang lahat ng bayan nito ay magiging wasak magpakailanman. Ako,_ ang Panginoon, ang nagsasabi nito." 
+Isinusumpa ko sa sarili ko na ang Bozra ay mawawasak. Magiging nakakatakot ang kalagayan nito, at kukutyain at susumpain ito. Ang lahat ng bayan nito ay magiging wasak magpakailanman. Ako, ang Panginoon, ang nagsasabi nito." 
 
 
 
@@ -502,7 +502,7 @@ Narinig ko ang balita mula sa Panginoon na nagpadala siya ng mga sugo sa mga ban
 
 
 
-Sapagkat sinabi ng Panginoon sa mga taga-Edom_, "Gagawin ko kayong mas mababa kaysa sa ibang mga bansa, at hahamakin nila kayo. 
+Sapagkat sinabi ng Panginoon sa mga taga-Edom, "Gagawin ko kayong mas mababa kaysa sa ibang mga bansa, at hahamakin nila kayo. 
 
 
 
@@ -535,7 +535,7 @@ Sapagkat sinabi ng Panginoon sa mga taga-Edom_, "Gagawin ko kayong mas mababa ka
 
 
 
-Ipinagmamalaki ninyo na nakatira kayo sa batuhan at matataas na lugar. Pero sa pagmamataas at pananakot nʼyong iyan sa iba, dinadaya nʼyo ang sarili ninyo. Sapagkat kahit na naninirahan kayo sa pinakamataas na lugar katulad ng pinagpupugaran ng agila, ibabagsak ko pa rin kayo. Ako,_ ang Panginoon, ang nagsasabi nito." 
+Ipinagmamalaki ninyo na nakatira kayo sa batuhan at matataas na lugar. Pero sa pagmamataas at pananakot nʼyong iyan sa iba, dinadaya nʼyo ang sarili ninyo. Sapagkat kahit na naninirahan kayo sa pinakamataas na lugar katulad ng pinagpupugaran ng agila, ibabagsak ko pa rin kayo. Ako, ang Panginoon, ang nagsasabi nito." 
 
 
 
@@ -634,7 +634,7 @@ Kung paanong nawasak ang Sodom at Gomora at ang mga bayan sa palibot nito, ganoo
 
 
 
-Bigla kong sasalakayin ang Babilonia katulad ng leon na galing sa kagubatan malapit_ sa Ilog ng Jordan, sasalakay_ patungo sa pastulan ng maraming tupa. Magsisitakas sila, at pipili ako ng taong mamamahala sa Edom. Sino ang maitutulad sa akin? Sino ang mangangahas na kalabanin ako? Sino ang pinunong makakalaban sa akin? 
+Bigla kong sasalakayin ang Babilonia katulad ng leon na galing sa kagubatan malapit sa Ilog ng Jordan, sasalakay patungo sa pastulan ng maraming tupa. Magsisitakas sila, at pipili ako ng taong mamamahala sa Edom. Sino ang maitutulad sa akin? Sino ang mangangahas na kalabanin ako? Sino ang pinunong makakalaban sa akin? 
 
 
 
@@ -898,7 +898,7 @@ Ang mga kabataan niyang lalaki ay mamamatay sa mga lansangan pati ang lahat ng k
 
 
 
-Susunugin ko ang mga pader ng Damascus, pati ang matitibay na palasyo ni Haring_ Ben Hadad." ## Ang Mensahe tungkol sa Kedar at Hazor 
+Susunugin ko ang mga pader ng Damascus, pati ang matitibay na palasyo ni Haring Ben Hadad." ## Ang Mensahe tungkol sa Kedar at Hazor 
 
 
 
@@ -997,7 +997,7 @@ Ang mga tolda, kawan, mga ari-arian, at mga kamelyo nila ay sasamsamin. Sisigaw 
 
 
 
-"Mga taga-Hazor, magmadali kayo at tumakas! Ako_, ang Panginoon, ay nagsasabing magtago na kayo sa mga kweba. Nagplano ng masama laban sa inyo si Haring Nebucadnezar ng Babilonia. 
+"Mga taga-Hazor, magmadali kayo at tumakas! Ako, ang Panginoon, ay nagsasabing magtago na kayo sa mga kweba. Nagplano ng masama laban sa inyo si Haring Nebucadnezar ng Babilonia. 
 
 
 
@@ -1030,7 +1030,7 @@ Ang mga tolda, kawan, mga ari-arian, at mga kamelyo nila ay sasamsamin. Sisigaw 
 
 
 
-Ako_, ang Panginoon, ang nag-utos sa kanila, 'Lusubin nʼyo ang mga taong namumuhay nang tiwasay at walang anumang ikinababalisa. Walang trangka ang pintuan ng lungsod nila, at nabubuhay sila na sila-sila lang. 
+Ako, ang Panginoon, ang nag-utos sa kanila, 'Lusubin nʼyo ang mga taong namumuhay nang tiwasay at walang anumang ikinababalisa. Walang trangka ang pintuan ng lungsod nila, at nabubuhay sila na sila-sila lang. 
 
 
 
@@ -1063,7 +1063,7 @@ Ako_, ang Panginoon, ang nag-utos sa kanila, 'Lusubin nʼyo ang mga taong namumu
 
 
 
-Ang mga kamelyo nila at ang lahat ng kawan nila ay magiging inyo. Pangangalatin ko ang mga taong ito na nakatira sa malayong lugar at pasasapitin ko sa kanila ang kapahamakan mula sa kung saan-saan. Ako,_ ang Panginoon, ang nagsasabi nito. 
+Ang mga kamelyo nila at ang lahat ng kawan nila ay magiging inyo. Pangangalatin ko ang mga taong ito na nakatira sa malayong lugar at pasasapitin ko sa kanila ang kapahamakan mula sa kung saan-saan. Ako, ang Panginoon, ang nagsasabi nito. 
 
 
 
@@ -1228,7 +1228,7 @@ Sasalakayin ang Elam ng mga kaaway mula sa lahat ng panig, at pangangalatin ko a
 
 
 
-Lilipulin ko sila sa pamamagitan ng mga kaaway nila na nais pumatay sa kanila. Talagang pasasapitin ko sa kanila ang kapahamakan dahil sa matindi kong galit sa kanila. Ako_, ang Panginoon, ay nagsasabing ipapasalakay ko sila sa mga kaaway nila hanggang sa mawala silang lahat. 
+Lilipulin ko sila sa pamamagitan ng mga kaaway nila na nais pumatay sa kanila. Talagang pasasapitin ko sa kanila ang kapahamakan dahil sa matindi kong galit sa kanila. Ako, ang Panginoon, ay nagsasabing ipapasalakay ko sila sa mga kaaway nila hanggang sa mawala silang lahat. 
 
 
 
@@ -1294,4 +1294,4 @@ Papatayin ko ang hari at ang mga pinuno ng Elam, at itatayo ko roon ang trono ko
 
 
 
-Pero darating ang araw na ibabalik ko ang Elam sa mabuting kalagayan. Ako,_ ang Panginoon, ang nagsasabi nito."
+Pero darating ang araw na ibabalik ko ang Elam sa mabuting kalagayan. Ako, ang Panginoon, ang nagsasabi nito."

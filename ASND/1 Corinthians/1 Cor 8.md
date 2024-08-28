@@ -40,7 +40,7 @@ next: ['1 Cor 9']
 
 
 
-Ngayon, tungkol naman sa mga pagkaing inialay sa mga dios-diosan, kung maaari ba natin itong kainin o hindi:_ Kahit marami na ang ating nalalaman, dapat nating tandaan na kung minsan ang kaalaman ay nagpapayabang sa tao. Mas mahalaga ang pagmamahalan, dahil itoʼy nakapagpapatatag sa atin_. 
+Ngayon, tungkol naman sa mga pagkaing inialay sa mga dios-diosan, kung maaari ba natin itong kainin o hindi: Kahit marami na ang ating nalalaman, dapat nating tandaan na kung minsan ang kaalaman ay nagpapayabang sa tao. Mas mahalaga ang pagmamahalan, dahil itoʼy nakapagpapatatag sa atin. 
 
 
 
@@ -271,7 +271,7 @@ Ngunit may mga mananampalataya na hindi pa alam ang katotohanang ito. Ang iba sa
 
 
 
-Kung sabagay, ang pagkain ay walang kinalaman sa ating kaugnayan sa Dios. Walang mawawala sa ating kaugnayan sa Dios_ kung hindi tayo kakain, at wala rin naman tayong mapapala kung kumain man tayo. 
+Kung sabagay, ang pagkain ay walang kinalaman sa ating kaugnayan sa Dios. Walang mawawala sa ating kaugnayan sa Dios kung hindi tayo kakain, at wala rin naman tayong mapapala kung kumain man tayo. 
 
 
 
@@ -304,7 +304,7 @@ Kung sabagay, ang pagkain ay walang kinalaman sa ating kaugnayan sa Dios. Walang
 
 
 
-Ngunit kahit na malaya kayong kumain ng kahit ano, mag-ingat kayo dahil baka iyan ang maging dahilan ng pagkakasala ng mga taong mahihina pa sa kanilang pananampalataya_. 
+Ngunit kahit na malaya kayong kumain ng kahit ano, mag-ingat kayo dahil baka iyan ang maging dahilan ng pagkakasala ng mga taong mahihina pa sa kanilang pananampalataya. 
 
 
 
@@ -370,7 +370,7 @@ Halimbawa, may kapatid kang hindi pa nakakaunawa sa katotohanang ito, at ikaw na
 
 
 
-Dahil sa iyong "kaalaman," napapahamak ang iyong kapatid na mahina pa sa pananampalataya_, na kung tutuusin ay namatay din si Cristo para sa kanya. 
+Dahil sa iyong "kaalaman," napapahamak ang iyong kapatid na mahina pa sa pananampalataya, na kung tutuusin ay namatay din si Cristo para sa kanya. 
 
 
 
@@ -403,7 +403,7 @@ Dahil sa iyong "kaalaman," napapahamak ang iyong kapatid na mahina pa sa pananam
 
 
 
-At sa ganitong paraan ay nagkasala ka na rin kay Cristo, dahil nagkasala ka sa iyong kapatid na mahina pa ang pananampalataya_ sa pag-udyok mo sa kanya na gumawa ng bagay na labag sa kanyang kalooban. 
+At sa ganitong paraan ay nagkasala ka na rin kay Cristo, dahil nagkasala ka sa iyong kapatid na mahina pa ang pananampalataya sa pag-udyok mo sa kanya na gumawa ng bagay na labag sa kanyang kalooban. 
 
 
 

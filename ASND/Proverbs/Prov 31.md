@@ -373,7 +373,7 @@ Kabutihan at hindi kasamaan ang ginagawa niya sa kanyang asawa habang siya ay na
 
 
 
-Masigasig siyang humahabi ng mga telang_ linen at lana. 
+Masigasig siyang humahabi ng mga telang linen at lana. 
 
 
 

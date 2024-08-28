@@ -436,7 +436,7 @@ kina Moises at Eleazar na pari at sa mga mamamayan ng Israel doon sa kanilang ka
 
 
 
-Sinalubong sila nina Moises, Eleazar na pari at ng mga pinuno ng mga mamamayan ng Israel_ sa labas ng kampo. 
+Sinalubong sila nina Moises, Eleazar na pari at ng mga pinuno ng mga mamamayan ng Israel sa labas ng kampo. 
 
 
 

@@ -38,7 +38,7 @@ up: ['Jude']
 
 
 
-Mula kay_ Judas na alipin ni Jesu-Cristo at kapatid ni Santiago. Mahal kong_ mga pinili ng Dios Ama na maging kanya, na minamahal niya at iniingatan ni Jesu-Cristo: 
+Mula kay Judas na alipin ni Jesu-Cristo at kapatid ni Santiago. Mahal kong mga pinili ng Dios Ama na maging kanya, na minamahal niya at iniingatan ni Jesu-Cristo: 
 
 
 
@@ -71,7 +71,7 @@ Mula kay_ Judas na alipin ni Jesu-Cristo at kapatid ni Santiago. Mahal kong_ mga
 
 
 
-Sumainyo nawa ang higit pang awa, kapayapaan, at pag-ibig mula sa Dios_.
+Sumainyo nawa ang higit pang awa, kapayapaan, at pag-ibig mula sa Dios.
 
 ## Mga Huwad at Sinungaling na Guro 
 
@@ -106,7 +106,7 @@ Sumainyo nawa ang higit pang awa, kapayapaan, at pag-ibig mula sa Dios_.
 
 
 
-Mga minamahal, gustong-gusto ko sanang sumulat sa inyo tungkol sa kaligtasang natanggap natin, pero naisip ko na mas kailangan ko ngayong sumulat tungkol sa mga bagay na magpapalakas ng inyong loob upang manindigan sa mga aral ng ating pananampalataya. Ang mga aral na ito ay ipinagkatiwala ng Dios sa mga pinabanal niya_, at hindi dapat baguhin. 
+Mga minamahal, gustong-gusto ko sanang sumulat sa inyo tungkol sa kaligtasang natanggap natin, pero naisip ko na mas kailangan ko ngayong sumulat tungkol sa mga bagay na magpapalakas ng inyong loob upang manindigan sa mga aral ng ating pananampalataya. Ang mga aral na ito ay ipinagkatiwala ng Dios sa mga pinabanal niya, at hindi dapat baguhin. 
 
 
 
@@ -205,7 +205,7 @@ Kahit alam nʼyo na, gusto ko pa ring ipaalala sa inyo na kahit iniligtas ng Pan
 
 
 
-Alalahanin nʼyo rin_ ang mga anghel na hindi nanatili sa dati nilang kalagayan kundi iniwan ang kanilang lugar. Ginapos ng Dios_ ang mga iyon ng mga kadenang hindi mapuputol, at ikinulong sa napakadilim na lugar hanggang sa araw na hahatulan sila. 
+Alalahanin nʼyo rin ang mga anghel na hindi nanatili sa dati nilang kalagayan kundi iniwan ang kanilang lugar. Ginapos ng Dios ang mga iyon ng mga kadenang hindi mapuputol, at ikinulong sa napakadilim na lugar hanggang sa araw na hahatulan sila. 
 
 
 
@@ -238,7 +238,7 @@ Alalahanin nʼyo rin_ ang mga anghel na hindi nanatili sa dati nilang kalagayan 
 
 
 
-At alalahanin nʼyo rin_ ang nangyari sa Sodom at Gomora at sa mga kalapit na bayan nila. Katulad ng mga anghel na iyon, gumawa sila ng lahat ng uri ng kalaswaan, pati na ng kahalayan sa hindi nila kauri. Pinarusahan sila sa walang hanggang apoy bilang babala sa lahat. 
+At alalahanin nʼyo rin ang nangyari sa Sodom at Gomora at sa mga kalapit na bayan nila. Katulad ng mga anghel na iyon, gumawa sila ng lahat ng uri ng kalaswaan, pati na ng kahalayan sa hindi nila kauri. Pinarusahan sila sa walang hanggang apoy bilang babala sa lahat. 
 
 
 
@@ -271,7 +271,7 @@ At alalahanin nʼyo rin_ ang nangyari sa Sodom at Gomora at sa mga kalapit na ba
 
 
 
-Ganyan din ang mga taong nakapasok sa inyo nang hindi ninyo namalayan_. May mga pangitain sila na nag-uudyok sa kanila na gumawa ng kahalayan sa sarili nilang katawan. At dahil din sa mga pangitaing iyon,_ ayaw nilang magpasakop sa kapangyarihan ng Panginoon_, at nilalait nila ang mga makapangyarihang nilalang. 
+Ganyan din ang mga taong nakapasok sa inyo nang hindi ninyo namalayan. May mga pangitain sila na nag-uudyok sa kanila na gumawa ng kahalayan sa sarili nilang katawan. At dahil din sa mga pangitaing iyon, ayaw nilang magpasakop sa kapangyarihan ng Panginoon, at nilalait nila ang mga makapangyarihang nilalang. 
 
 
 
@@ -535,7 +535,7 @@ para hatulan ang lahat at parusahan ang mga hindi kumikilala sa Dios dahil sa ma
 
 
 
-Ang mga taong ito na sumasalungat sa katotohanan_ ay mareklamo, mapagpuna, at ang tanging sinusunod ay ang masasamang hangarin nila. Mayabang sila sa kanilang pananalita, at nililinlang nila ang mga tao para makuha ang gusto nila.
+Ang mga taong ito na sumasalungat sa katotohanan ay mareklamo, mapagpuna, at ang tanging sinusunod ay ang masasamang hangarin nila. Mayabang sila sa kanilang pananalita, at nililinlang nila ang mga tao para makuha ang gusto nila.
 
 ## Mga Payo at Babala 
 
@@ -636,7 +636,7 @@ Sinabi nila, "Sa mga huling araw, darating ang mga taong mapanlait na ang tangin
 
 
 
-Sila ang mga taong gumagawa ng paraan upang masira ang pagkakaisa ninyo. Makamundo sila, at wala sa kanila ang Banal na_ Espiritu. 
+Sila ang mga taong gumagawa ng paraan upang masira ang pagkakaisa ninyo. Makamundo sila, at wala sa kanila ang Banal na Espiritu. 
 
 
 
@@ -669,7 +669,7 @@ Sila ang mga taong gumagawa ng paraan upang masira ang pagkakaisa ninyo. Makamun
 
 
 
-Ngunit mga minamahal, magpakatatag kayo sa inyong banal na pananampalataya. Lagi kayong manalangin sa tulong ng_ Banal na Espiritu. 
+Ngunit mga minamahal, magpakatatag kayo sa inyong banal na pananampalataya. Lagi kayong manalangin sa tulong ng Banal na Espiritu. 
 
 
 
@@ -768,7 +768,7 @@ Maawa kayo sa mga nag-aalinlangan.
 
 
 
-Tulungan ninyo ang iba na maligtas sa kaparusahan, na para bang nagliligtas kayo ng isang bagay na masusunog na. Maawa kayo kahit sa mga taong napakasama, pero mag-ingat kayo sa masasama nilang gawa_. Kasuklaman ninyo kahit na ang damit nilang nadumihan ng kasamaan nila.
+Tulungan ninyo ang iba na maligtas sa kaparusahan, na para bang nagliligtas kayo ng isang bagay na masusunog na. Maawa kayo kahit sa mga taong napakasama, pero mag-ingat kayo sa masasama nilang gawa. Kasuklaman ninyo kahit na ang damit nilang nadumihan ng kasamaan nila.
 
 ## Papuri at Pasasalamat sa Dios 
 
@@ -803,7 +803,7 @@ Tulungan ninyo ang iba na maligtas sa kaparusahan, na para bang nagliligtas kayo
 
 
 
-At ngayon, purihin natin ang Dios_ – siya na makakapag-ingat sa inyo upang hindi kayo magkasala, at makakapagdala sa inyo sa kanyang harapan nang walang kapintasan at may lubos na kagalakan. 
+At ngayon, purihin natin ang Dios – siya na makakapag-ingat sa inyo upang hindi kayo magkasala, at makakapagdala sa inyo sa kanyang harapan nang walang kapintasan at may lubos na kagalakan. 
 
 
 

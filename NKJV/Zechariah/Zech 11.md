@@ -13,10 +13,10 @@ next: ['Zech 12']
 Open your doors, O Lebanon, That fire may devour your cedars. 
 
 ###### 2 
-Wail, O cypress, for the cedar has fallen, Because the mighty _trees_ are ruined. Wail, O oaks of Bashan, For the thick forest has come down. 
+Wail, O cypress, for the cedar has fallen, Because the mighty trees are ruined. Wail, O oaks of Bashan, For the thick forest has come down. 
 
 ###### 3 
-_There is_ the sound of wailing shepherds! For their glory is in ruins. _There is_ the sound of roaring lions! For the pride of the Jordan is in ruins.
+There is the sound of wailing shepherds! For their glory is in ruins. There is the sound of roaring lions! For the pride of the Jordan is in ruins.
 
 ## Prophecy of the Shepherds 
 
@@ -27,7 +27,7 @@ Thus says the Lord my God, "Feed the flock for slaughter,
 whose owners slaughter them and feel no guilt; those who sell them say, 'Blessed be the Lord, for I am rich'; and their shepherds do not pity them. 
 
 ###### 6 
-For I will no longer pity the inhabitants of the land," says the Lord. "But indeed I will give everyone into his neighbor's hand and into the hand of his king. They shall attack the land, and I will not deliver _them_ from their hand." 
+For I will no longer pity the inhabitants of the land," says the Lord. "But indeed I will give everyone into his neighbor's hand and into the hand of his king. They shall attack the land, and I will not deliver them from their hand." 
 
 ###### 7 
 So I fed the flock for slaughter, in particular the poor of the flock. I took for myself two staffs: the one I called Beauty, and the other I called Bonds; and I fed the flock. 
@@ -42,13 +42,13 @@ Then I said, "I will not feed you. Let what is dying die, and what is perishing 
 And I took my staff, Beauty, and cut it in two, that I might break the covenant which I had made with all the peoples. 
 
 ###### 11 
-So it was broken on that day. Thus the poor of the flock, who were watching me, knew that it _was_ the word of the Lord. 
+So it was broken on that day. Thus the poor of the flock, who were watching me, knew that it was the word of the Lord. 
 
 ###### 12 
-Then I said to them, "If it is agreeable to you, give _me_ my wages; and if not, refrain." So they weighed out for my wages thirty _pieces_ of silver. 
+Then I said to them, "If it is agreeable to you, give me my wages; and if not, refrain." So they weighed out for my wages thirty pieces of silver. 
 
 ###### 13 
-And the Lord said to me, "Throw it to the potter"--that princely price they set on me. So I took the thirty _pieces_ of silver and threw them into the house of the Lord for the potter. 
+And the Lord said to me, "Throw it to the potter"--that princely price they set on me. So I took the thirty pieces of silver and threw them into the house of the Lord for the potter. 
 
 ###### 14 
 Then I cut in two my other staff, Bonds, that I might break the brotherhood between Judah and Israel. 
@@ -57,7 +57,7 @@ Then I cut in two my other staff, Bonds, that I might break the brotherhood betw
 And the Lord said to me, "Next, take for yourself the implements of a foolish shepherd. 
 
 ###### 16 
-For indeed I will raise up a shepherd in the land _who_ will not care for those who are cut off, nor seek the young, nor heal those that are broken, nor feed those that still stand. But he will eat the flesh of the fat and tear their hooves in pieces. 
+For indeed I will raise up a shepherd in the land who will not care for those who are cut off, nor seek the young, nor heal those that are broken, nor feed those that still stand. But he will eat the flesh of the fat and tear their hooves in pieces. 
 
 ###### 17 
-"Woe to the worthless shepherd, Who leaves the flock! A sword _shall be_ against his arm And against his right eye; His arm shall completely wither, And his right eye shall be totally blinded."
+"Woe to the worthless shepherd, Who leaves the flock! A sword shall be against his arm And against his right eye; His arm shall completely wither, And his right eye shall be totally blinded."

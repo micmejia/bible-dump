@@ -40,7 +40,7 @@ next: ['Josh 4']
 
 
 
-Maaga paʼy bumangon na si Josue at ang lahat ng mga Israelita. Umalis sila sa Shitim at pumunta sa Ilog ng_ Jordan. Nagkampo muna sila roon bago sila tumawid. 
+Maaga paʼy bumangon na si Josue at ang lahat ng mga Israelita. Umalis sila sa Shitim at pumunta sa Ilog ng Jordan. Nagkampo muna sila roon bago sila tumawid. 
 
 
 
@@ -271,7 +271,7 @@ At sinabi ng Panginoon kay Josue, "Sa araw na ito, pararangalan kita sa harap ng
 
 
 
-Sabihin mo sa mga paring tagabuhat ng Kahon ng Kasunduan na pagtapak nila sa Ilog ng_ Jordan ay huminto muna sila." 
+Sabihin mo sa mga paring tagabuhat ng Kahon ng Kasunduan na pagtapak nila sa Ilog ng Jordan ay huminto muna sila." 
 
 
 
@@ -370,7 +370,7 @@ Ngayon, malalaman nʼyo na sumasainyo ang buhay na Dios, dahil siguradong itatab
 
 
 
-Tiyakin nʼyo na ang Kahon ng Kasunduan ng Panginoon na makapangyarihan sa buong mundo ay mauuna sa inyo sa pagtawid sa Ilog ng_ Jordan. 
+Tiyakin nʼyo na ang Kahon ng Kasunduan ng Panginoon na makapangyarihan sa buong mundo ay mauuna sa inyo sa pagtawid sa Ilog ng Jordan. 
 
 
 
@@ -436,7 +436,7 @@ Kaya ngayon, pumili kayo ng 12 lalaki, isa sa bawat lahi ng Israel.
 
 
 
-Kapag lumusong na ang mga pari na tagabuhat ng Kahon ng Kasunduan ng_ Panginoon, ang Panginoon na makapangyarihan sa buong mundo, hihinto ang pagdaloy ng tubig sa Ilog ng Jordan. Ang tubig nito mula sa itaas ay maiipon sa isang lugar." 14-15Anihan noon at umaapaw ang tubig sa pampang ng ilog_ ng Jordan. Umalis ang mga tao sa mga kampo nila para tumawid sa ilog. Nauuna sa kanila ang mga paring buhat ang Kahon ng Kasunduan. Paglusong ng mga pari sa ilog, 
+Kapag lumusong na ang mga pari na tagabuhat ng Kahon ng Kasunduan ng Panginoon, ang Panginoon na makapangyarihan sa buong mundo, hihinto ang pagdaloy ng tubig sa Ilog ng Jordan. Ang tubig nito mula sa itaas ay maiipon sa isang lugar." 14-15Anihan noon at umaapaw ang tubig sa pampang ng ilog ng Jordan. Umalis ang mga tao sa mga kampo nila para tumawid sa ilog. Nauuna sa kanila ang mga paring buhat ang Kahon ng Kasunduan. Paglusong ng mga pari sa ilog, 
 
 
 

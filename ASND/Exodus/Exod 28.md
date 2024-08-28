@@ -172,7 +172,7 @@ Ito ang mga damit na tatahiin nila: ang bulsa na nasa dibdib, ang espesyal na da
 
 
 
-Kailangan na pinong telang_ linen na may lanang kulay_ ginto, asul, ube at pula ang gagamitin nilang tela.
+Kailangan na pinong telang linen na may lanang kulay ginto, asul, ube at pula ang gagamitin nilang tela.
 
 ## Ang Espesyal na Damit ng mga Pari 
 
@@ -207,7 +207,7 @@ Kailangan na pinong telang_ linen na may lanang kulay_ ginto, asul, ube at pula 
 
 
 
-"Ang espesyal na damit ng mga pari_ ay kailangan na pinong telang_ linen na may lanang kulay_ ginto, asul, kulay ube at pula. Kailangang napakaganda ng pagkakaburda nito. 
+"Ang espesyal na damit ng mga pari ay kailangan na pinong telang linen na may lanang kulay ginto, asul, kulay ube at pula. Kailangang napakaganda ng pagkakaburda nito. 
 
 
 
@@ -273,7 +273,7 @@ May dalawang parte ito, likod at harapan, at pinagdudugtong ng dalawang tirante 
 
 
 
-Ang sinturon nito ay gawa sa pinong telang_ linen na binurdahan ng gintong sinulid at lanang kulay_ asul, ube at pula. 
+Ang sinturon nito ay gawa sa pinong telang linen na binurdahan ng gintong sinulid at lanang kulay asul, ube at pula. 
 
 
 
@@ -506,7 +506,7 @@ palagyan mo ng dalawang mala-kwintas na tali na purong ginto para maikabit sa ma
 
 
 
-"Magpagawa ka ng bulsa sa dibdib na ginagamit sa pag-alam ng kalooban ng Panginoon. Kailangang maganda ang pagkakagawa nito, at ang tela nitoʼy kapareho ng tela ng espesyal na damit ng mga pari_: pinong telang_ linen na may lanang kulay_ ginto, asul, kulay ube at pula. 
+"Magpagawa ka ng bulsa sa dibdib na ginagamit sa pag-alam ng kalooban ng Panginoon. Kailangang maganda ang pagkakagawa nito, at ang tela nitoʼy kapareho ng tela ng espesyal na damit ng mga pari: pinong telang linen na may lanang kulay ginto, asul, kulay ube at pula. 
 
 
 
@@ -1135,7 +1135,7 @@ Kailangang isuot ito ni Aaron kapag papasok siya sa Banal na Lugar para maglingk
 
 
 
-"Magpagawa ka ng medalyang ginto at paukitan mo ito ng ganitong mga salita_: 'Ibinukod para sa Panginoon.' 
+"Magpagawa ka ng medalyang ginto at paukitan mo ito ng ganitong mga salita: 'Ibinukod para sa Panginoon.' 
 
 
 
@@ -1333,7 +1333,7 @@ Magpatahi ka rin ng mga damit-panloob, mga sinturon, at mga turban para sa mga a
 
 
 
-"Ipatahi mo rin sila ng mga pang-ilalim na damit na tatakip sa kanyang kahubaran. Ang haba nitoʼy mula sa baywang hanggang sa hita para hindi sila masilipan_. 
+"Ipatahi mo rin sila ng mga pang-ilalim na damit na tatakip sa kanyang kahubaran. Ang haba nitoʼy mula sa baywang hanggang sa hita para hindi sila masilipan. 
 
 
 

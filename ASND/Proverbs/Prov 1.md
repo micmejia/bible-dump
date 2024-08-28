@@ -237,7 +237,7 @@ upang maunawaan nila ang kahulugan ng mga kawikaan, mga talinghaga, at mga bugto
 
 
 
-Ang pagkatakot sa Panginoon na may paggalang_ ang simula ng karunungan. Ngunit sa hangal, walang halaga ang karunungan at ayaw niyang maturuan upang maituwid ang kanyang pag-uugali.
+Ang pagkatakot sa Panginoon na may paggalang ang simula ng karunungan. Ngunit sa hangal, walang halaga ang karunungan at ayaw niyang maturuan upang maituwid ang kanyang pag-uugali.
 
 ## Payo sa Pag-iwas sa Masamang Tao 
 
@@ -602,7 +602,7 @@ Walang kabuluhan ang paglalagay ng bitag kung ang ibong iyong huhulihin ay nakat
 
 
 
-Alam ng ibon na mahuhuli siya,_ pero ang taong masasama, hindi nila alam na sila rin ang magiging biktima ng ginagawa nila. 
+Alam ng ibon na mahuhuli siya, pero ang taong masasama, hindi nila alam na sila rin ang magiging biktima ng ginagawa nila. 
 
 
 
@@ -637,7 +637,7 @@ Alam ng ibon na mahuhuli siya,_ pero ang taong masasama, hindi nila alam na sila
 
 Ganyan ang mangyayari sa mga taong ang ari-arian ay nakuha sa masamang paraan. Mamamatay sila sa ganoon ding paraan.
 
-## Kapag Itinakwil ang Karunungan 20-21Ang karunungan ay katulad ng isang_ mangangaral na nagsasalita sa mga lansangan, plasa, pamilihan, at mga pintuang bayan. Sinasabi niya, 
+## Kapag Itinakwil ang Karunungan 20-21Ang karunungan ay katulad ng isang mangangaral na nagsasalita sa mga lansangan, plasa, pamilihan, at mga pintuang bayan. Sinasabi niya, 
 
 
 
@@ -703,7 +703,7 @@ Ganyan ang mangyayari sa mga taong ang ari-arian ay nakuha sa masamang paraan. M
 
 
 
-Pakinggan ninyo ang pagsaway ko sa inyo. Sasabihin ko sa inyo kung ano ang iniisip ko. Ipapaalam ko sa inyo ang aking sasabihin laban_ sa inyo, 
+Pakinggan ninyo ang pagsaway ko sa inyo. Sasabihin ko sa inyo kung ano ang iniisip ko. Ipapaalam ko sa inyo ang aking sasabihin laban sa inyo, 
 
 
 

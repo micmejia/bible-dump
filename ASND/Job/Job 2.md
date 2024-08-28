@@ -106,7 +106,7 @@ Sinabi ng Panginoon kay Satanas, "Saan ka nanggaling?" Sumagot si Satanas, "Paro
 
 
 
-Sinabi sa kanya ng Panginoon, "Napansin mo ba ang aking lingkod na si Job? Wala siyang katulad sa buong mundo. Matuwid siya, malinis ang pamumuhay, may takot sa akin at umiiwas sa kasamaan. Tapat pa rin siya sa akin, kahit na pinilit mo akong payagan ka na_ sirain siya ng walang dahilan." 
+Sinabi sa kanya ng Panginoon, "Napansin mo ba ang aking lingkod na si Job? Wala siyang katulad sa buong mundo. Matuwid siya, malinis ang pamumuhay, may takot sa akin at umiiwas sa kasamaan. Tapat pa rin siya sa akin, kahit na pinilit mo akong payagan ka na sirain siya ng walang dahilan." 
 
 
 
@@ -405,7 +405,7 @@ Tatlo sa kaibigan ni Job ang nakabalita tungkol sa masamang nangyari sa kanya. I
 
 
 
-Malayu-layo pa sila, nakita na nila si Job, pero halos hindi na nila ito makilala. Kaya napaiyak sila nang malakas. Pinunit nila ang kanilang mga damit at naglagay ng alikabok sa kanilang ulo bilang pagpapakita ng pagdadalamhati_. 
+Malayu-layo pa sila, nakita na nila si Job, pero halos hindi na nila ito makilala. Kaya napaiyak sila nang malakas. Pinunit nila ang kanilang mga damit at naglagay ng alikabok sa kanilang ulo bilang pagpapakita ng pagdadalamhati. 
 
 
 

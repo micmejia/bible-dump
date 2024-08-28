@@ -25,7 +25,7 @@ Will a lion roar in the forest, when he has no prey? Will a young lion cry out o
 Will a bird fall into a snare on the earth, where there is no trap for it? Will a snare spring up from the earth, if it has caught nothing at all? 
 
 ###### 6 
-If a trumpet is blown in a city, will not the people be afraid? If there is calamity in a city, will not the Lord have done _it?_ 
+If a trumpet is blown in a city, will not the people be afraid? If there is calamity in a city, will not the Lord have done it? 
 
 ###### 7 
 Surely the Lord God does nothing, Unless He reveals His secret to His servants the prophets. 
@@ -40,7 +40,7 @@ A lion has roared! Who will not fear? The Lord God has spoken! Who can but proph
 For they do not know to do right,' Says the Lord, 'Who store up violence and robbery in their palaces.' " 
 
 ###### 11 
-Therefore thus says the Lord God: "An adversary _shall be_ all around the land; He shall sap your strength from you, And your palaces shall be plundered." 
+Therefore thus says the Lord God: "An adversary shall be all around the land; He shall sap your strength from you, And your palaces shall be plundered." 
 
 ###### 12 
 Thus says the Lord: "As a shepherd takes from the mouth of a lion Two legs or a piece of an ear, So shall the children of Israel be taken out Who dwell in Samaria-- In the corner of a bed and on the edge of a couch! 
@@ -49,7 +49,7 @@ Thus says the Lord: "As a shepherd takes from the mouth of a lion Two legs or a 
 Hear and testify against the house of Jacob," Says the Lord God, the God of hosts, 
 
 ###### 14 
-"That in the day I punish Israel for their transgressions, I will also visit _destruction_ on the altars of Bethel; And the horns of the altar shall be cut off And fall to the ground. 
+"That in the day I punish Israel for their transgressions, I will also visit destruction on the altars of Bethel; And the horns of the altar shall be cut off And fall to the ground. 
 
 ###### 15 
 I will destroy the winter house along with the summer house; The houses of ivory shall perish, And the great houses shall have an end," Says the Lord.

@@ -13,7 +13,7 @@ next: ['Matt 13']
 At that time Jesus went through the grainfields on the Sabbath. And His disciples were hungry, and began to pluck heads of grain and to eat. 
 
 ###### 2 
-And when the Pharisees saw _it,_ they said to Him, "Look, Your disciples are doing what is not lawful to do on the Sabbath!" 
+And when the Pharisees saw it, they said to Him, "Look, Your disciples are doing what is not lawful to do on the Sabbath!" 
 
 ###### 3 
 But He said to them, "Have you not read what David did when he was hungry, he and those who were with him: 
@@ -25,10 +25,10 @@ how he entered the house of God and ate the showbread which was not lawful for h
 Or have you not read in the law that on the Sabbath the priests in the temple profane the Sabbath, and are blameless? 
 
 ###### 6 
-Yet I say to you that in this place there is _One_ greater than the temple. 
+Yet I say to you that in this place there is One greater than the temple. 
 
 ###### 7 
-But if you had known what _this_ means, 'I desire mercy and not sacrifice,' you would not have condemned the guiltless. 
+But if you had known what this means, 'I desire mercy and not sacrifice,' you would not have condemned the guiltless. 
 
 ###### 8 
 For the Son of Man is Lord even of the Sabbath." ## Healing on the Sabbath 
@@ -40,13 +40,13 @@ Now when He had departed from there, He went into their synagogue.
 And behold, there was a man who had a withered hand. And they asked Him, saying, "Is it lawful to heal on the Sabbath?"--that they might accuse Him. 
 
 ###### 11 
-Then He said to them, "What man is there among you who has one sheep, and if it falls into a pit on the Sabbath, will not lay hold of it and lift _it_ out? 
+Then He said to them, "What man is there among you who has one sheep, and if it falls into a pit on the Sabbath, will not lay hold of it and lift it out? 
 
 ###### 12 
 Of how much more value then is a man than a sheep? Therefore it is lawful to do good on the Sabbath." 
 
 ###### 13 
-Then He said to the man, "Stretch out your hand." And he stretched _it_ out, and it was restored as whole as the other. 
+Then He said to the man, "Stretch out your hand." And he stretched it out, and it was restored as whole as the other. 
 
 ###### 14 
 Then the Pharisees went out and plotted against Him, how they might destroy Him.
@@ -54,7 +54,7 @@ Then the Pharisees went out and plotted against Him, how they might destroy Him.
 ## Behold, My Servant 
 
 ###### 15 
-But when Jesus knew _it,_ He withdrew from there. And great multitudes followed Him, and He healed them all. 
+But when Jesus knew it, He withdrew from there. And great multitudes followed Him, and He healed them all. 
 
 ###### 16 
 Yet He warned them not to make Him known, 
@@ -81,7 +81,7 @@ Then one was brought to Him who was demon-possessed, blind and mute; and He heal
 And all the multitudes were amazed and said, "Could this be the Son of David?" 
 
 ###### 24 
-Now when the Pharisees heard _it_ they said, "This _fellow_ does not cast out demons except by Beelzebub, the ruler of the demons." 
+Now when the Pharisees heard it they said, "This fellow does not cast out demons except by Beelzebub, the ruler of the demons." 
 
 ###### 25 
 But Jesus knew their thoughts, and said to them: "Every kingdom divided against itself is brought to desolation, and every city or house divided against itself will not stand. 
@@ -90,7 +90,7 @@ But Jesus knew their thoughts, and said to them: "Every kingdom divided against 
 If Satan casts out Satan, he is divided against himself. How then will his kingdom stand? 
 
 ###### 27 
-And if I cast out demons by Beelzebub, by whom do your sons cast _them_ out? Therefore they shall be your judges. 
+And if I cast out demons by Beelzebub, by whom do your sons cast them out? Therefore they shall be your judges. 
 
 ###### 28 
 But if I cast out demons by the Spirit of God, surely the kingdom of God has come upon you. 
@@ -104,15 +104,15 @@ He who is not with Me is against Me, and he who does not gather with Me scatters
 ## The Unpardonable Sin 
 
 ###### 31 
-"Therefore I say to you, every sin and blasphemy will be forgiven men, but the blasphemy _against_ the Spirit will not be forgiven men. 
+"Therefore I say to you, every sin and blasphemy will be forgiven men, but the blasphemy against the Spirit will not be forgiven men. 
 
 ###### 32 
-Anyone who speaks a word against the Son of Man, it will be forgiven him; but whoever speaks against the Holy Spirit, it will not be forgiven him, either in this age or in the _age_ to come.
+Anyone who speaks a word against the Son of Man, it will be forgiven him; but whoever speaks against the Holy Spirit, it will not be forgiven him, either in this age or in the age to come.
 
 ## A Tree Known by Its Fruit 
 
 ###### 33 
-"Either make the tree good and its fruit good, or else make the tree bad and its fruit bad; for a tree is known by _its_ fruit. 
+"Either make the tree good and its fruit good, or else make the tree bad and its fruit bad; for a tree is known by its fruit. 
 
 ###### 34 
 Brood of vipers! How can you, being evil, speak good things? For out of the abundance of the heart the mouth speaks. 
@@ -136,10 +136,10 @@ But He answered and said to them, "An evil and adulterous generation seeks after
 For as Jonah was three days and three nights in the belly of the great fish, so will the Son of Man be three days and three nights in the heart of the earth. 
 
 ###### 41 
-The men of Nineveh will rise up in the judgment with this generation and condemn it, because they repented at the preaching of Jonah; and indeed a greater than Jonah _is_ here. 
+The men of Nineveh will rise up in the judgment with this generation and condemn it, because they repented at the preaching of Jonah; and indeed a greater than Jonah is here. 
 
 ###### 42 
-The queen of the South will rise up in the judgment with this generation and condemn it, for she came from the ends of the earth to hear the wisdom of Solomon; and indeed a greater than Solomon _is_ here.
+The queen of the South will rise up in the judgment with this generation and condemn it, for she came from the ends of the earth to hear the wisdom of Solomon; and indeed a greater than Solomon is here.
 
 ## An Unclean Spirit Returns 
 
@@ -147,10 +147,10 @@ The queen of the South will rise up in the judgment with this generation and con
 "When an unclean spirit goes out of a man, he goes through dry places, seeking rest, and finds none. 
 
 ###### 44 
-Then he says, 'I will return to my house from which I came.' And when he comes, he finds _it_ empty, swept, and put in order. 
+Then he says, 'I will return to my house from which I came.' And when he comes, he finds it empty, swept, and put in order. 
 
 ###### 45 
-Then he goes and takes with him seven other spirits more wicked than himself, and they enter and dwell there; and the last _state_ of that man is worse than the first. So shall it also be with this wicked generation." ## Jesus' Mother and Brothers Send for Him 
+Then he goes and takes with him seven other spirits more wicked than himself, and they enter and dwell there; and the last state of that man is worse than the first. So shall it also be with this wicked generation." ## Jesus' Mother and Brothers Send for Him 
 
 ###### 46 
 While He was still talking to the multitudes, behold, His mother and brothers stood outside, seeking to speak with Him. 

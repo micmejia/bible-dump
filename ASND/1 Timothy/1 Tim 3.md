@@ -306,7 +306,7 @@ Ganoon din naman sa mga tagapaglingkod sa iglesya: kailangang kagalang-galang si
 
 
 
-Kailangang iniingatan nila nang may malinis na konsensya ang ipinahayag na katotohanan tungkol sa pananampalataya kay Cristo_. 
+Kailangang iniingatan nila nang may malinis na konsensya ang ipinahayag na katotohanan tungkol sa pananampalataya kay Cristo. 
 
 
 
@@ -539,4 +539,4 @@ kung sakaling maantala ako, alam mo na kung ano ang dapat ugaliin ng mga mananam
 
 
 
-Tunay na napakahiwaga ng mga katotohanan ng ating relihiyon: Nagpakita siya bilang tao, pinatotohanan ng Banal na_ Espiritu na siyaʼy matuwid, nakita siya ng mga anghel, ipinangaral sa mga bansa, pinaniwalaan ng mundo, at dinala sa langit.
+Tunay na napakahiwaga ng mga katotohanan ng ating relihiyon: Nagpakita siya bilang tao, pinatotohanan ng Banal na Espiritu na siyaʼy matuwid, nakita siya ng mga anghel, ipinangaral sa mga bansa, pinaniwalaan ng mundo, at dinala sa langit.

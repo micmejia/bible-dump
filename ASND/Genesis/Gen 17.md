@@ -106,7 +106,7 @@ Tutuparin ko ang kasunduan ko sa iyo; pararamihin ko ang mga lahi mo."
 
 
 
-Nang marinig ito ni Abram, nagpatirapa siya bilang paggalang sa Dios_. Sinabi ng Dios sa kanya, 
+Nang marinig ito ni Abram, nagpatirapa siya bilang paggalang sa Dios. Sinabi ng Dios sa kanya, 
 
 
 
@@ -502,7 +502,7 @@ Pagpapalain ko siya at bibigyan kita ng anak sa pamamagitan niya. Magiging ina s
 
 
 
-Nang marinig ito ni Abraham, nagpatirapa siya bilang paggalang sa Dios_, pero tumawa siya sa kanyang narinig. Sinabi niya sa kanyang sarili, "Magkakaanak pa ba ako na nasa 100 taong gulang na? At si Sara, mabubuntis pa kaya siya na nasa 90 taong gulang na?" 
+Nang marinig ito ni Abraham, nagpatirapa siya bilang paggalang sa Dios, pero tumawa siya sa kanyang narinig. Sinabi niya sa kanyang sarili, "Magkakaanak pa ba ako na nasa 100 taong gulang na? At si Sara, mabubuntis pa kaya siya na nasa 90 taong gulang na?" 
 
 
 
@@ -634,7 +634,7 @@ Tungkol naman kay Ishmael, narinig ko ang kahilingan mo para sa kanya. Pagpapala
 
 
 
-Kaya lang, ang kasunduan ko sa iyo ay tutuparin ko lang kay Isaac at sa mga lahi niya_. Ipapanganak ni Sara si Isaac sa ganito ring panahon sa susunod na taon." 
+Kaya lang, ang kasunduan ko sa iyo ay tutuparin ko lang kay Isaac at sa mga lahi niya. Ipapanganak ni Sara si Isaac sa ganito ring panahon sa susunod na taon." 
 
 
 

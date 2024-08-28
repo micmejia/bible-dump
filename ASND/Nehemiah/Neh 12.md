@@ -7,7 +7,7 @@ next: ['Neh 13']
 # Nehemiah 12
 
 ***
-###### 1-7 Ito ang talaan ng mga pari at ng mga Levita na bumalik mula sa pagkabihag kasama ni Zerubabel na anak ni Shealtiel at ni Jeshua na punong pari_. Ang mga pari ay sina Seraya, Jeremias, Ezra, Amaria, Maluc, Hatush, Shecania, Rehum, Meremot, Iddo, Gineton, Abijah, Mijamin, Moadia, Bilga, Shemaya, Joyarib, Jedaya, Salu, Amok, Hilkia, at Jedaya. Sila ang mga pinuno ng mga kapwa nila pari at ng kanilang mga kasama noong panahon ni Jeshua. 
+###### 1-7 Ito ang talaan ng mga pari at ng mga Levita na bumalik mula sa pagkabihag kasama ni Zerubabel na anak ni Shealtiel at ni Jeshua na punong pari. Ang mga pari ay sina Seraya, Jeremias, Ezra, Amaria, Maluc, Hatush, Shecania, Rehum, Meremot, Iddo, Gineton, Abijah, Mijamin, Moadia, Bilga, Shemaya, Joyarib, Jedaya, Salu, Amok, Hilkia, at Jedaya. Sila ang mga pinuno ng mga kapwa nila pari at ng kanilang mga kasama noong panahon ni Jeshua. 
 
 
 
@@ -442,7 +442,7 @@ Si Hashabia ang pinuno ng pamilya ni Hilkia. At si Netanel ang pinuno ng pamilya
 
 
 
-Noong panahon ng paghahari ni Darius sa Persia, inilista ang mga pangalan ng mga pinuno sa mga pamilya ng mga pari at mga Levita. Nang panahon ng mga punong pari_ na sina Eliashib, Joyada, Johanan, at Jadua. 
+Noong panahon ng paghahari ni Darius sa Persia, inilista ang mga pangalan ng mga pinuno sa mga pamilya ng mga pari at mga Levita. Nang panahon ng mga punong pari na sina Eliashib, Joyada, Johanan, at Jadua. 
 
 
 
@@ -741,7 +741,7 @@ Gumawa ng seremonya sa paglilinis ang mga pari at mga Levita, para maging malini
 
 
 
-Dinala ko ang mga pinuno ng Juda sa itaas ng pader, at tinipon ko roon ang dalawang malalaking grupo ng mga mang-aawit para magpasalamat sa Dios_. Ang isang grupo naman ay nagmartsa roon sa itaas papunta sa pintuan ng pinagtatapunan ng basura. 
+Dinala ko ang mga pinuno ng Juda sa itaas ng pader, at tinipon ko roon ang dalawang malalaking grupo ng mga mang-aawit para magpasalamat sa Dios. Ang isang grupo naman ay nagmartsa roon sa itaas papunta sa pintuan ng pinagtatapunan ng basura. 
 
 
 
@@ -1104,7 +1104,7 @@ Naroon din ang mga pari na nagpapatunog ng trumpeta na sina Eliakim, Maaseya, Mi
 
 
 
-at ang mga mang-aawit na_ sina Maaseya, Shemaya, Eleazar, Uzi, Jehohanan, Malkia, Elam, at Ezer. Sila ang mga mang-aawit na pinamumunuan ni Jezrahia. 
+at ang mga mang-aawit na sina Maaseya, Shemaya, Eleazar, Uzi, Jehohanan, Malkia, Elam, at Ezer. Sila ang mga mang-aawit na pinamumunuan ni Jezrahia. 
 
 
 
@@ -1203,7 +1203,7 @@ Nang araw ding iyon, naglagay sila ng mga lalaki na mamamahala sa mga bodega na 
 
 
 
-Ginawa nila ang seremonya sa paglilinis at ang iba pang mga gawain na ipinapatupad sa kanila ng Dios. Ginawa rin ng mga mang-aawit at ng mga guwardya ng mga pintuan ng templo_ ang mga gawain nila ayon sa mga utos ni Haring David at ng anak niyang si Solomon. 
+Ginawa nila ang seremonya sa paglilinis at ang iba pang mga gawain na ipinapatupad sa kanila ng Dios. Ginawa rin ng mga mang-aawit at ng mga guwardya ng mga pintuan ng templo ang mga gawain nila ayon sa mga utos ni Haring David at ng anak niyang si Solomon. 
 
 
 
@@ -1269,4 +1269,4 @@ Mula pa ng panahon ni Haring David at ni Asaf, mayroon nang mga namumuno sa mga 
 
 
 
-Kaya noong panahon ni Zerubabel at ni Nehemias, ang lahat ng mga Israelita ay nagbibigay ng mga handog nila para sa mga mang-aawit at mga guwardya ng mga pintuan ng templo_, maging sa mga Levita. At mula sa mga natatanggap nila binahaginan din ng mga Levita ang mga paring mula sa_ angkan ni Aaron.
+Kaya noong panahon ni Zerubabel at ni Nehemias, ang lahat ng mga Israelita ay nagbibigay ng mga handog nila para sa mga mang-aawit at mga guwardya ng mga pintuan ng templo, maging sa mga Levita. At mula sa mga natatanggap nila binahaginan din ng mga Levita ang mga paring mula sa angkan ni Aaron.

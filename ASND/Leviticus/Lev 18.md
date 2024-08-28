@@ -506,7 +506,7 @@ Huwag kang sumiping sa asawa ng iba dahil kapag ginawa mo ito, ituturing kang ma
 
 
 
-Huwag mong ibibigay ang iyong anak para ihandog sa dios na si_ Molec, dahil iyan ay paglapastangan sa aking pangalan na iyong Dios. Ako ang Panginoon. 
+Huwag mong ibibigay ang iyong anak para ihandog sa dios na si Molec, dahil iyan ay paglapastangan sa aking pangalan na iyong Dios. Ako ang Panginoon. 
 
 
 
@@ -605,7 +605,7 @@ Huwag kang sumiping sa hayop dahil ito ay napakasama at ikaw ay ituturing na mar
 
 
 
-Huwag ninyong dumihan ang inyong sarili sa pamamagitan ng paggawa ng ganitong mga gawain dahil ito ang nagparumi sa mga taong pinaalis ko sa lupaing ibinigay ko sa inyo. 25-28At kahit ang lupain ay nadungisan dahil sa ginawa nilang iyon. Pinadalhan ko ng mga salot ang lupaing iyon para silaʼy magsialis doon. Pero kayong mga katutubong Israelita at mga dayuhang naninirahang kasama ninyo, huwag ninyong gawin ang kasuklam-suklam na gawaing iyon, kundi sundin ninyo ang mga tuntunin at mga kautusan ko. Sapagkat kung dudungisan din ninyo ang lupaing iyon, sa pamamagitan ng paggawa ng mga gawaing iyon_, paaalisin ko rin kayo sa lupaing iyon katulad ng mga taong unang tumira roon. 
+Huwag ninyong dumihan ang inyong sarili sa pamamagitan ng paggawa ng ganitong mga gawain dahil ito ang nagparumi sa mga taong pinaalis ko sa lupaing ibinigay ko sa inyo. 25-28At kahit ang lupain ay nadungisan dahil sa ginawa nilang iyon. Pinadalhan ko ng mga salot ang lupaing iyon para silaʼy magsialis doon. Pero kayong mga katutubong Israelita at mga dayuhang naninirahang kasama ninyo, huwag ninyong gawin ang kasuklam-suklam na gawaing iyon, kundi sundin ninyo ang mga tuntunin at mga kautusan ko. Sapagkat kung dudungisan din ninyo ang lupaing iyon, sa pamamagitan ng paggawa ng mga gawaing iyon, paaalisin ko rin kayo sa lupaing iyon katulad ng mga taong unang tumira roon. 
 
 
 

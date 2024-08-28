@@ -304,7 +304,7 @@ Ikinuwento ni Cornelius sa kanila ang lahat ng nangyari, at pagkatapos ay inutus
 
 
 
-Kinabukasan, nang malapit na sila sa bayan ng Jopa, umakyat si Pedro sa bubong ng bahay_ para manalangin. Tanghaling-tapat noon 
+Kinabukasan, nang malapit na sila sa bayan ng Jopa, umakyat si Pedro sa bubong ng bahay para manalangin. Tanghaling-tapat noon 
 
 
 
@@ -568,7 +568,7 @@ Tatlong ulit itong nangyari, at pagkatapos, hinila agad ang bagay na iyon pataas
 
 
 
-Habang naguguluhan si Pedro at iniisip kung ano ang ibig sabihin ng nakita niya, dumating naman sa lugar na iyon ang mga taong inutusan ni Cornelius. Nang malaman nila kung saan ang bahay ni Simon, pumunta sila roon. At pagdating nila_ sa pinto ng bakod, 
+Habang naguguluhan si Pedro at iniisip kung ano ang ibig sabihin ng nakita niya, dumating naman sa lugar na iyon ang mga taong inutusan ni Cornelius. Nang malaman nila kung saan ang bahay ni Simon, pumunta sila roon. At pagdating nila sa pinto ng bakod, 
 
 
 
@@ -634,7 +634,7 @@ tumawag sila at nagtanong kung doon ba nanunuluyan si Simon na tinatawag na Pedr
 
 
 
-Habang pinag-iisipan ni Pedro kung ano ang ibig sabihin ng kanyang nakita, sinabi ng Banal na_ Espiritu sa kanya, "May tatlong taong naghahanap sa iyo. 
+Habang pinag-iisipan ni Pedro kung ano ang ibig sabihin ng kanyang nakita, sinabi ng Banal na Espiritu sa kanya, "May tatlong taong naghahanap sa iyo. 
 
 
 
@@ -1261,7 +1261,7 @@ Kami mismo ay makakapagpatotoo sa lahat ng ginawa niya, dahil nakita namin ito s
 
 
 
-Pero muli siyang binuhay ng Dios sa ikatlong araw at nagpakita sa amin na siyaʼy buhay_. 
+Pero muli siyang binuhay ng Dios sa ikatlong araw at nagpakita sa amin na siyaʼy buhay. 
 
 
 
@@ -1294,7 +1294,7 @@ Pero muli siyang binuhay ng Dios sa ikatlong araw at nagpakita sa amin na siyaʼ
 
 
 
-Hindi siya nagpakita sa lahat kundi sa amin lamang na mga pinili ng Dios na maging saksi para ipamalita sa iba ang tungkol sa kanya_. Nakasama pa nga namin siyang kumain at uminom pagkatapos na siyaʼy muling nabuhay. 
+Hindi siya nagpakita sa lahat kundi sa amin lamang na mga pinili ng Dios na maging saksi para ipamalita sa iba ang tungkol sa kanya. Nakasama pa nga namin siyang kumain at uminom pagkatapos na siyaʼy muling nabuhay. 
 
 
 
@@ -1327,7 +1327,7 @@ Hindi siya nagpakita sa lahat kundi sa amin lamang na mga pinili ng Dios na magi
 
 
 
-Inutusan niya kaming mangaral ng Magandang Balita_ sa mga tao at magpatotoo na siya ang tunay na pinili ng Dios na maging tagahatol ng mga buhay at ng mga patay. 
+Inutusan niya kaming mangaral ng Magandang Balita sa mga tao at magpatotoo na siya ang tunay na pinili ng Dios na maging tagahatol ng mga buhay at ng mga patay. 
 
 
 
@@ -1459,7 +1459,7 @@ Ang mga mananampalatayang Judio na sumama kay Pedro mula sa Jopa ay namangha dah
 
 
 
-Dahil narinig nilang nagsasalita sila ng ibaʼt ibang wika na hindi nila natutunan_ at nagpupuri sila sa Dios. Kaya sinabi ni Pedro, 
+Dahil narinig nilang nagsasalita sila ng ibaʼt ibang wika na hindi nila natutunan at nagpupuri sila sa Dios. Kaya sinabi ni Pedro, 
 
 
 
@@ -1492,7 +1492,7 @@ Dahil narinig nilang nagsasalita sila ng ibaʼt ibang wika na hindi nila natutun
 
 
 
-"Natanggap na nila ang Banal na Espiritu tulad natin kahit hindi sila mga Judio_. Kaya wala nang makakapigil sa kanila para bautismuhan sila sa tubig." 
+"Natanggap na nila ang Banal na Espiritu tulad natin kahit hindi sila mga Judio. Kaya wala nang makakapigil sa kanila para bautismuhan sila sa tubig." 
 
 
 

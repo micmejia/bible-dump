@@ -19,30 +19,30 @@ that I have great sorrow and continual grief in my heart.
 For I could wish that I myself were accursed from Christ for my brethren, my countrymen according to the flesh, 
 
 ###### 4 
-who are Israelites, to whom _pertain_ the adoption, the glory, the covenants, the giving of the law, the service _of God,_ and the promises; 
+who are Israelites, to whom pertain the adoption, the glory, the covenants, the giving of the law, the service of God, and the promises; 
 
 ###### 5 
-of whom _are_ the fathers and from whom, according to the flesh, Christ _came,_ who is over all, _the_ eternally blessed God. Amen.
+of whom are the fathers and from whom, according to the flesh, Christ came, who is over all, the eternally blessed God. Amen.
 
 ## Israel's Rejection and God's Purpose 
 
 ###### 6 
-But it is not that the word of God has taken no effect. For they _are_ not all Israel who _are_ of Israel, 
+But it is not that the word of God has taken no effect. For they are not all Israel who are of Israel, 
 
 ###### 7 
-nor _are they_ all children because they are the seed of Abraham; but, "In Isaac your seed shall be called." 
+nor are they all children because they are the seed of Abraham; but, "In Isaac your seed shall be called." 
 
 ###### 8 
-That is, those who _are_ the children of the flesh, these _are_ not the children of God; but the children of the promise are counted as the seed. 
+That is, those who are the children of the flesh, these are not the children of God; but the children of the promise are counted as the seed. 
 
 ###### 9 
-For this _is_ the word of promise: "At this time I will come and Sarah shall have a son." 
+For this is the word of promise: "At this time I will come and Sarah shall have a son." 
 
 ###### 10 
-And not only _this,_ but when Rebecca also had conceived by one man, _even_ by our father Isaac 
+And not only this, but when Rebecca also had conceived by one man, even by our father Isaac 
 
 ###### 11 
-(for _the children_ not yet being born, nor having done any good or evil, that the purpose of God according to election might stand, not of works but of Him who calls), 
+(for the children not yet being born, nor having done any good or evil, that the purpose of God according to election might stand, not of works but of Him who calls), 
 
 ###### 12 
 it was said to her, "The older shall serve the younger." 
@@ -51,13 +51,13 @@ it was said to her, "The older shall serve the younger."
 As it is written, "Jacob I have loved, but Esau I have hated." ## Israel's Rejection and God's Justice 
 
 ###### 14 
-What shall we say then? _Is there_ unrighteousness with God? Certainly not! 
+What shall we say then? Is there unrighteousness with God? Certainly not! 
 
 ###### 15 
 For He says to Moses, "I will have mercy on whomever I will have mercy, and I will have compassion on whomever I will have compassion." 
 
 ###### 16 
-So then _it is_ not of him who wills, nor of him who runs, but of God who shows mercy. 
+So then it is not of him who wills, nor of him who runs, but of God who shows mercy. 
 
 ###### 17 
 For the Scripture says to the Pharaoh, "For this very purpose I have raised you up, that I may show My power in you, and that My name may be declared in all the earth." 
@@ -69,13 +69,13 @@ Therefore He has mercy on whom He wills, and whom He wills He hardens.
 You will say to me then, "Why does He still find fault? For who has resisted His will?" 
 
 ###### 20 
-But indeed, O man, who are you to reply against God? Will the thing formed say to him who formed _it_, "Why have you made me like this?" 
+But indeed, O man, who are you to reply against God? Will the thing formed say to him who formed it, "Why have you made me like this?" 
 
 ###### 21 
 Does not the potter have power over the clay, from the same lump to make one vessel for honor and another for dishonor? 
 
 ###### 22 
-_What_ if God, wanting to show _His_ wrath and to make His power known, endured with much longsuffering the vessels of wrath prepared for destruction, 
+What if God, wanting to show His wrath and to make His power known, endured with much longsuffering the vessels of wrath prepared for destruction, 
 
 ###### 23 
 and that He might make known the riches of His glory on the vessels of mercy, which He had prepared beforehand for glory, 
@@ -87,13 +87,13 @@ even us whom He called, not of the Jews only, but also of the Gentiles?
 As He says also in Hosea: "I will call them My people, who were not My people, And her beloved, who was not beloved." 
 
 ###### 26 
-"And it shall come to pass in the place where it was said to them, 'You _are_ not My people,' There they shall be called sons of the living God." 
+"And it shall come to pass in the place where it was said to them, 'You are not My people,' There they shall be called sons of the living God." 
 
 ###### 27 
 Isaiah also cries out concerning Israel: "Though the number of the children of Israel be as the sand of the sea, The remnant will be saved. 
 
 ###### 28 
-For He will finish the work and cut _it_ short in righteousness, Because the Lord will make a short work upon the earth." 
+For He will finish the work and cut it short in righteousness, Because the Lord will make a short work upon the earth." 
 
 ###### 29 
 And as Isaiah said before: "Unless the Lord of Sabaoth had left us a seed, We would have become like Sodom, And we would have been made like Gomorrah." ## Present Condition of Israel 
@@ -105,7 +105,7 @@ What shall we say then? That Gentiles, who did not pursue righteousness, have at
 but Israel, pursuing the law of righteousness, has not attained to the law of righteousness. 
 
 ###### 32 
-Why? Because _they did_ not _seek it_ by faith, but as it were, by the works of the law. For they stumbled at that stumbling stone. 
+Why? Because they did not seek it by faith, but as it were, by the works of the law. For they stumbled at that stumbling stone. 
 
 ###### 33 
 As it is written: "Behold, I lay in Zion a stumbling stone and rock of offense, And whoever believes on Him will not be put to shame."

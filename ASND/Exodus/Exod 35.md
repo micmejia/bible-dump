@@ -106,7 +106,7 @@ Sa loob ng anim na araw, gawin ninyo ang mga gawain ninyo, pero sa ikapitong ara
 
 
 
-Kaya huwag na huwag kayong magtatrabaho,_ kahit na magsindi ng apoy sa bahay ninyo para magluto_ sa araw na iyon." ## Ang mga Handog para sa Toldang Sambahan 
+Kaya huwag na huwag kayong magtatrabaho, kahit na magsindi ng apoy sa bahay ninyo para magluto sa araw na iyon." ## Ang mga Handog para sa Toldang Sambahan 
 
 
 
@@ -205,7 +205,7 @@ Maghandog kayo sa Panginoon mula sa mga ari-arian ninyo. Maghandog nang maluwag 
 
 
 
-lanang kulay asul, ube at pula, pinong telang_ linen, telang gawa sa balahibo ng kambing, 
+lanang kulay asul, ube at pula, pinong telang linen, telang gawa sa balahibo ng kambing, 
 
 
 
@@ -304,7 +304,7 @@ langis ng olibo para sa ilaw, mga sangkap sa langis na pamahid at pabango sa ins
 
 
 
-batong onix at iba pang mamahaling bato na ilalagay sa espesyal na damit ng punong pari_ at sa bulsa sa dibdib nito.
+batong onix at iba pang mamahaling bato na ilalagay sa espesyal na damit ng punong pari at sa bulsa sa dibdib nito.
 
 ## Mga Kagamitan para sa Toldang Sambahan 
 
@@ -405,7 +405,7 @@ ang Toldang Sambahan at ang mga talukbong nito, mga kawit, mga tablang balangkas
 
 
 
-ang Kahon ng Kasunduan_ at ang mga tukod na pambuhat, takip at kurtina; 
+ang Kahon ng Kasunduan at ang mga tukod na pambuhat, takip at kurtina; 
 
 
 
@@ -570,7 +570,7 @@ ang altar na pinagsusunugan ng mga handog na sinusunog at ang parilyang tanso, m
 
 
 
-ang mga kurtina sa palibot_ ng bakuran ng Tolda at ang mga haligi at pundasyon nito, ang kurtina sa pintuan ng bakuran; 
+ang mga kurtina sa palibot ng bakuran ng Tolda at ang mga haligi at pundasyon nito, ang kurtina sa pintuan ng bakuran; 
 
 
 
@@ -702,7 +702,7 @@ Pagkatapos, umalis ang buong mamamayan ng Israel sa harapan ni Moises.
 
 
 
-Ang lahat ng gustong maghandog sa Panginoon ay nagdala ng mga materyales na gagamitin sa paggawa ng Toldang Tipanan at ang lahat ng kagamitan nito, at mga materyales para_ sa mga damit ng mga pari. 
+Ang lahat ng gustong maghandog sa Panginoon ay nagdala ng mga materyales na gagamitin sa paggawa ng Toldang Tipanan at ang lahat ng kagamitan nito, at mga materyales para sa mga damit ng mga pari. 
 
 
 
@@ -768,7 +768,7 @@ Ang lahat ng gustong maghandog, lalaki man o babae ay nagdala ng mamahaling mga 
 
 
 
-May mga naghandog din ng lanang kulay asul, ube at pula, pinong telang_ linen, tela na gawa sa balahibo ng kambing, balat ng lalaking tupa na kinulayan ng pula, at magandang klase ng balat. 
+May mga naghandog din ng lanang kulay asul, ube at pula, pinong telang linen, tela na gawa sa balahibo ng kambing, balat ng lalaking tupa na kinulayan ng pula, at magandang klase ng balat. 
 
 
 
@@ -834,7 +834,7 @@ Nagdala ang iba ng pilak o kaya naman ay tanso, at mga kahoy na akasya bilang ha
 
 
 
-Nagdala naman ng mga lanang kulay asul, ube at pula, at pinong telang_ linen ang mga babaeng may kakayahang gumawa ng tela. 
+Nagdala naman ng mga lanang kulay asul, ube at pula, at pinong telang linen ang mga babaeng may kakayahang gumawa ng tela. 
 
 
 
@@ -900,7 +900,7 @@ At ang mga babae namang marunong gumawa ng tela mula sa balahibo ng kambing ay k
 
 
 
-Nagdala ang mga pinuno ng mga batong onix at iba pang mamahaling bato para ilagay sa espesyal na damit ng punong pari_ at sa bulsa sa dibdib nito. 
+Nagdala ang mga pinuno ng mga batong onix at iba pang mamahaling bato para ilagay sa espesyal na damit ng punong pari at sa bulsa sa dibdib nito. 
 
 
 
@@ -1166,4 +1166,4 @@ Binigyan din siya ng Dios, at si Oholiab na anak ni Ahisamac na mula sa lahi ni 
 
 
 
-Binigyan sila ng Panginoon ng kakayahang gumawa ng lahat ng klase ng gawain: ang pagdidisenyo, ang paggawa ng tela, ang pagbuburda ng pinong telang_ linen at ng lanang kulay asul, ube at pula. Kaya nilang gawin ang kahit anong klase ng gawain, at napakahuhusay nilang gumawa.
+Binigyan sila ng Panginoon ng kakayahang gumawa ng lahat ng klase ng gawain: ang pagdidisenyo, ang paggawa ng tela, ang pagbuburda ng pinong telang linen at ng lanang kulay asul, ube at pula. Kaya nilang gawin ang kahit anong klase ng gawain, at napakahuhusay nilang gumawa.

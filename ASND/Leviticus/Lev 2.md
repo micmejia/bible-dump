@@ -436,7 +436,7 @@ Maaari ninyong ihandog ang pampaalsa o pulot bilang handog mula sa una ninyong a
 
 
 
-Lagyan ninyo ng asin ang lahat ng inyong handog ng pagpaparangal, dahil ang asin ay tanda ng inyong walang hanggang_ kasunduan sa Panginoon. Kaya lagyan ninyo ng asin ang lahat ng inyong handog. 
+Lagyan ninyo ng asin ang lahat ng inyong handog ng pagpaparangal, dahil ang asin ay tanda ng inyong walang hanggang kasunduan sa Panginoon. Kaya lagyan ninyo ng asin ang lahat ng inyong handog. 
 
 
 

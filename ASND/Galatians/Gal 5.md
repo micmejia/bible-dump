@@ -40,7 +40,7 @@ next: ['Gal 6']
 
 
 
-Pinalaya tayo ni Cristo sa ilalim ng Kautusan_. Kaya manindigan kayo sa pananampalataya nʼyo_ at huwag na kayong magpaaliping muli. 
+Pinalaya tayo ni Cristo sa ilalim ng Kautusan. Kaya manindigan kayo sa pananampalataya nʼyo at huwag na kayong magpaaliping muli. 
 
 
 
@@ -73,7 +73,7 @@ Pinalaya tayo ni Cristo sa ilalim ng Kautusan_. Kaya manindigan kayo sa pananamp
 
 
 
-Tandaan nʼyo ang sinasabi ko: Ako mismong si Pablo ang nagsasabi sa inyo na kung magpapatuli kayo para maging katanggap-tanggap sa Dios_, mawawalan ng kabuluhan ang ginawa ni Cristo para sa inyo. 
+Tandaan nʼyo ang sinasabi ko: Ako mismong si Pablo ang nagsasabi sa inyo na kung magpapatuli kayo para maging katanggap-tanggap sa Dios, mawawalan ng kabuluhan ang ginawa ni Cristo para sa inyo. 
 
 
 
@@ -106,7 +106,7 @@ Tandaan nʼyo ang sinasabi ko: Ako mismong si Pablo ang nagsasabi sa inyo na kun
 
 
 
-Inuulit ko na ang sinumang magpapatuli para maging katanggap-tanggap sa Dios_ ay obligadong sumunod sa buong Kautusan. 
+Inuulit ko na ang sinumang magpapatuli para maging katanggap-tanggap sa Dios ay obligadong sumunod sa buong Kautusan. 
 
 
 
@@ -139,7 +139,7 @@ Inuulit ko na ang sinumang magpapatuli para maging katanggap-tanggap sa Dios_ ay
 
 
 
-Kayong mga nagsisikap na ituring na matuwid ng Dios sa pamamagitan ng Kautusan ay nahiwalay na kay Cristo. Nahiwalay na kayo sa biyaya ng Dios_. 
+Kayong mga nagsisikap na ituring na matuwid ng Dios sa pamamagitan ng Kautusan ay nahiwalay na kay Cristo. Nahiwalay na kayo sa biyaya ng Dios. 
 
 
 
@@ -172,7 +172,7 @@ Kayong mga nagsisikap na ituring na matuwid ng Dios sa pamamagitan ng Kautusan a
 
 
 
-Ngunit umaasa kami at nananalig na sa pamamagitan ng Banal na_ Espiritu at ng pananampalataya namin, ituturing kaming matuwid ng Dios. 
+Ngunit umaasa kami at nananalig na sa pamamagitan ng Banal na Espiritu at ng pananampalataya namin, ituturing kaming matuwid ng Dios. 
 
 
 
@@ -271,7 +271,7 @@ Mabuti noon ang mga ginagawa ninyo. Sino ang pumigil sa inyo sa pagsunod sa kato
 
 
 
-Hindi maaaring ang Dios ang pumigil sa inyo dahil siya ang tumawag sa inyo sa pananampalataya_. 
+Hindi maaaring ang Dios ang pumigil sa inyo dahil siya ang tumawag sa inyo sa pananampalataya. 
 
 
 
@@ -304,7 +304,7 @@ Hindi maaaring ang Dios ang pumigil sa inyo dahil siya ang tumawag sa inyo sa pa
 
 
 
-Isipin nʼyo sana na ang maling aral ay parang_ pampaalsa na kahit kaunti ay nakakapagpaalsa sa buong masa ng harina. 
+Isipin nʼyo sana na ang maling aral ay parang pampaalsa na kahit kaunti ay nakakapagpaalsa sa buong masa ng harina. 
 
 
 
@@ -370,7 +370,7 @@ Umaasa ako sa Panginoon na hindi kayo magpapadala sa ibang pananaw. Parurusahan 
 
 
 
-May mga nagsasabing itinuturo ko raw na kailangan ang pagtutuli para maging katanggap-tanggap sa Dios_. Kung totoo iyan, mga kapatid, bakit inuusig pa rin ako hanggang ngayon? At kung iyan nga ang itinuturo ko, walang kabuluhan ang mensahe tungkol sa kamatayan ni Cristo sa_ krus, ang mensaheng hindi matanggap ng iba. 
+May mga nagsasabing itinuturo ko raw na kailangan ang pagtutuli para maging katanggap-tanggap sa Dios. Kung totoo iyan, mga kapatid, bakit inuusig pa rin ako hanggang ngayon? At kung iyan nga ang itinuturo ko, walang kabuluhan ang mensahe tungkol sa kamatayan ni Cristo sa krus, ang mensaheng hindi matanggap ng iba. 
 
 
 
@@ -537,7 +537,7 @@ Ngunit kung patuloy kayong mag-aaway-away na parang mga hayop, baka tuluyan na n
 
 
 
-Kaya mamuhay kayo nang ayon sa nais ng Banal na_ Espiritu para hindi ninyo mapagbigyan ang pagnanasa ng laman. 
+Kaya mamuhay kayo nang ayon sa nais ng Banal na Espiritu para hindi ninyo mapagbigyan ang pagnanasa ng laman. 
 
 
 
@@ -603,7 +603,7 @@ Sapagkat ang ninanasa ng laman ay laban sa nais ng Espiritu, at ang nais ng Espi
 
 
 
-Ngunit kung nagpasakop na kayo sa Banal na_ Espiritu, hindi na kayo sakop ng Kautusan. 
+Ngunit kung nagpasakop na kayo sa Banal na Espiritu, hindi na kayo sakop ng Kautusan. 
 
 
 
@@ -735,7 +735,7 @@ pagkainggit, paglalasing, pagkahilig sa kalayawan, at iba pang kasamaan. Binabal
 
 
 
-Ngunit ito ang bungang makikita sa taong namumuhay sa kapangyarihan ng Banal na_ Espiritu: pag-ibig, kagalakan, kapayapaan, pagtitiis, kabutihan, kagandahang-loob, katapatan, 
+Ngunit ito ang bungang makikita sa taong namumuhay sa kapangyarihan ng Banal na Espiritu: pag-ibig, kagalakan, kapayapaan, pagtitiis, kabutihan, kagandahang-loob, katapatan, 
 
 
 
@@ -834,7 +834,7 @@ Ipinako na ng mga nakay Cristo ang pagnanasa at masasamang hangarin ng kanilang 
 
 
 
-At dahil nga namumuhay na tayo sa kapangyarihan ng Banal na_ Espiritu, magpatuloy tayo sa patnubay nito. 
+At dahil nga namumuhay na tayo sa kapangyarihan ng Banal na Espiritu, magpatuloy tayo sa patnubay nito. 
 
 
 

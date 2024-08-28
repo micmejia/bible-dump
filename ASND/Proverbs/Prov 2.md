@@ -240,7 +240,7 @@ Sapagkat ang Panginoon ang nagbibigay ng karunungan, kaalaman, at ng pang-unawa.
 
 
 
-Kung makikinig ka sa akin,_ malalaman mo ang dapat mong gawin, ang tama, matuwid at nararapat. 
+Kung makikinig ka sa akin, malalaman mo ang dapat mong gawin, ang tama, matuwid at nararapat. 
 
 
 
@@ -669,4 +669,4 @@ Sapagkat ang taong namumuhay nang matuwid at walang kapintasan ay mabubuhay nang
 
 
 
-Ngunit ang masasama at mga mandaraya ay palalayasin. Bubunutin sila na parang mga damo_.
+Ngunit ang masasama at mga mandaraya ay palalayasin. Bubunutin sila na parang mga damo.

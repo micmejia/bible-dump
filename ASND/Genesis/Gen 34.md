@@ -898,7 +898,7 @@ Pinatay din nila si Hamor at ang anak niyang si Shekem. Kinuha rin nila si Dina 
 
 
 
-Pagkatapos, pinasok din ng iba pang anak ni Jacob ang lungsod at kinuha ang mga ari-arian dito. Ginawa nila ito dahil dinungisan ang pagkababae ng kapatid nilang si Dina_. 
+Pagkatapos, pinasok din ng iba pang anak ni Jacob ang lungsod at kinuha ang mga ari-arian dito. Ginawa nila ito dahil dinungisan ang pagkababae ng kapatid nilang si Dina. 
 
 
 

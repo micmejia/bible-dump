@@ -39,7 +39,7 @@ next: ['Titus 2']
 
 
 
-Mula kay_ Pablo, na lingkod ng Dios at apostol ni Jesu-Cristo. Sinugo ako ng Dios upang patibayin ang pananampalataya ng kanyang mga pinili, at ipaunawa sa kanila ang katotohanan tungkol sa uri ng buhay na katanggap-tanggap sa kanya. 
+Mula kay Pablo, na lingkod ng Dios at apostol ni Jesu-Cristo. Sinugo ako ng Dios upang patibayin ang pananampalataya ng kanyang mga pinili, at ipaunawa sa kanila ang katotohanan tungkol sa uri ng buhay na katanggap-tanggap sa kanya. 
 
 
 
@@ -72,7 +72,7 @@ Mula kay_ Pablo, na lingkod ng Dios at apostol ni Jesu-Cristo. Sinugo ako ng Dio
 
 
 
-Ang pananampalataya at pang-unawang ito_ ang siyang nagbibigay sa atin ng pag-asa na makakamtan natin ang buhay na walang hanggan. Ang buhay na itoʼy ipinangako na ng Dios bago pa man niya likhain ang mundo, at hindi siya nagsisinungaling. 
+Ang pananampalataya at pang-unawang ito ang siyang nagbibigay sa atin ng pag-asa na makakamtan natin ang buhay na walang hanggan. Ang buhay na itoʼy ipinangako na ng Dios bago pa man niya likhain ang mundo, at hindi siya nagsisinungaling. 
 
 
 
@@ -138,7 +138,7 @@ At ngayon na ang panahon na itinakda niya upang maihayag ang kanyang salita tung
 
 
 
-Mahal kong_ Tito, aking_ tunay na anak sa iisang pananampalataya: Sumaiyo nawa ang biyaya at kapayapaang galing sa Dios Ama at sa ating Tagapagligtas na si Cristo Jesus.
+Mahal kong Tito, aking tunay na anak sa iisang pananampalataya: Sumaiyo nawa ang biyaya at kapayapaang galing sa Dios Ama at sa ating Tagapagligtas na si Cristo Jesus.
 
 ## Ang mga Gawain ni Tito sa Crete 
 
@@ -206,7 +206,7 @@ Iniwan kita sa Crete upang tapusin ang mga gawaing hindi ko natapos, gaya ng bil
 
 
 
-Piliin mo_ ang may magandang reputasyon, isa lang ang asawa, ang mga anak ay mananampalataya at hindi napaparatangang magulo o matigas ang ulo. 
+Piliin mo ang may magandang reputasyon, isa lang ang asawa, ang mga anak ay mananampalataya at hindi napaparatangang magulo o matigas ang ulo. 
 
 
 
@@ -503,7 +503,7 @@ at huwag nang pansinin ang mga kathang-isip ng mga Judio o mga kautusang gawa-ga
 
 
 
-Sa mga malilinis ang isip_, lahat ng bagay ay malinis. Ngunit sa mga marurumi ang isip_ at hindi sumasampalataya ay walang anumang malinis. Ang totoo, narumihan ang kanilang isipan at budhi. 
+Sa mga malilinis ang isip, lahat ng bagay ay malinis. Ngunit sa mga marurumi ang isip at hindi sumasampalataya ay walang anumang malinis. Ang totoo, narumihan ang kanilang isipan at budhi. 
 
 
 

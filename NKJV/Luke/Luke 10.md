@@ -13,7 +13,7 @@ next: ['Luke 11']
 After these things the Lord appointed seventy others also, and sent them two by two before His face into every city and place where He Himself was about to go. 
 
 ###### 2 
-Then He said to them, "The harvest truly _is_ great, but the laborers _are_ few; therefore pray the Lord of the harvest to send out laborers into His harvest. 
+Then He said to them, "The harvest truly is great, but the laborers are few; therefore pray the Lord of the harvest to send out laborers into His harvest. 
 
 ###### 3 
 Go your way; behold, I send you out as lambs among wolves. 
@@ -72,22 +72,22 @@ Behold, I give you the authority to trample on serpents and scorpions, and over 
 Nevertheless do not rejoice in this, that the spirits are subject to you, but rather rejoice because your names are written in heaven." ## Jesus Rejoices in the Spirit 
 
 ###### 21 
-In that hour Jesus rejoiced in the Spirit and said, "I thank You, Father, Lord of heaven and earth, that You have hidden these things from _the_ wise and prudent and revealed them to babes. Even so, Father, for so it seemed good in Your sight. 
+In that hour Jesus rejoiced in the Spirit and said, "I thank You, Father, Lord of heaven and earth, that You have hidden these things from the wise and prudent and revealed them to babes. Even so, Father, for so it seemed good in Your sight. 
 
 ###### 22 
-All things have been delivered to Me by My Father, and no one knows who the Son is except the Father, and who the Father is except the Son, and _the one_ to whom the Son wills to reveal _Him._" 
+All things have been delivered to Me by My Father, and no one knows who the Son is except the Father, and who the Father is except the Son, and the one to whom the Son wills to reveal Him." 
 
 ###### 23 
-Then He turned to _His_ disciples and said privately, "Blessed _are_ the eyes which see the things you see; 
+Then He turned to His disciples and said privately, "Blessed are the eyes which see the things you see; 
 
 ###### 24 
-for I tell you that many prophets and kings have desired to see what you see, and have not seen _it,_ and to hear what you hear, and have not heard _it._" ## The Parable of the Good Samaritan 
+for I tell you that many prophets and kings have desired to see what you see, and have not seen it, and to hear what you hear, and have not heard it." ## The Parable of the Good Samaritan 
 
 ###### 25 
 And behold, a certain lawyer stood up and tested Him, saying, "Teacher, what shall I do to inherit eternal life?" 
 
 ###### 26 
-He said to him, "What is written in the law? What is your reading _of it?_" 
+He said to him, "What is written in the law? What is your reading of it?" 
 
 ###### 27 
 So he answered and said, " 'You shall love the Lord your God with all your heart, with all your soul, with all your strength, and with all your mind,' and 'your neighbor as yourself.' " 
@@ -99,7 +99,7 @@ And He said to him, "You have answered rightly; do this and you will live."
 But he, wanting to justify himself, said to Jesus, "And who is my neighbor?" 
 
 ###### 30 
-Then Jesus answered and said: "A certain _man_ went down from Jerusalem to Jericho, and fell among thieves, who stripped him of his clothing, wounded _him,_ and departed, leaving _him_ half dead. 
+Then Jesus answered and said: "A certain man went down from Jerusalem to Jericho, and fell among thieves, who stripped him of his clothing, wounded him, and departed, leaving him half dead. 
 
 ###### 31 
 Now by chance a certain priest came down that road. And when he saw him, he passed by on the other side. 
@@ -111,10 +111,10 @@ Likewise a Levite, when he arrived at the place, came and looked, and passed by 
 But a certain Samaritan, as he journeyed, came where he was. And when he saw him, he had compassion. 
 
 ###### 34 
-So he went to _him_ and bandaged his wounds, pouring on oil and wine; and he set him on his own animal, brought him to an inn, and took care of him. 
+So he went to him and bandaged his wounds, pouring on oil and wine; and he set him on his own animal, brought him to an inn, and took care of him. 
 
 ###### 35 
-On the next day, when he departed, he took out two denarii, gave _them_ to the innkeeper, and said to him, 'Take care of him; and whatever more you spend, when I come again, I will repay you.' 
+On the next day, when he departed, he took out two denarii, gave them to the innkeeper, and said to him, 'Take care of him; and whatever more you spend, when I come again, I will repay you.' 
 
 ###### 36 
 So which of these three do you think was neighbor to him who fell among the thieves?" 

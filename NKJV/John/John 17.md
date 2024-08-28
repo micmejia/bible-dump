@@ -33,7 +33,7 @@ And now, O Father, glorify Me together with Yourself, with the glory which I had
 Now they have known that all things which You have given Me are from You. 
 
 ###### 8 
-For I have given to them the words which You have given Me; and they have received _them,_ and have known surely that I came forth from You; and they have believed that You sent Me. 
+For I have given to them the words which You have given Me; and they have received them, and have known surely that I came forth from You; and they have believed that You sent Me. 
 
 ###### 9 
 "I pray for them. I do not pray for the world but for those whom You have given Me, for they are Yours. 
@@ -42,7 +42,7 @@ For I have given to them the words which You have given Me; and they have receiv
 And all Mine are Yours, and Yours are Mine, and I am glorified in them. 
 
 ###### 11 
-Now I am no longer in the world, but these are in the world, and I come to You. Holy Father, keep through Your name those whom You have given Me, that they may be one as We _are._ 
+Now I am no longer in the world, but these are in the world, and I come to You. Holy Father, keep through Your name those whom You have given Me, that they may be one as We are. 
 
 ###### 12 
 While I was with them in the world, I kept them in Your name. Those whom You gave Me I have kept; and none of them is lost except the son of perdition, that the Scripture might be fulfilled. 
@@ -74,7 +74,7 @@ And for their sakes I sanctify Myself, that they also may be sanctified by the t
 "I do not pray for these alone, but also for those who will believe in Me through their word; 
 
 ###### 21 
-that they all may be one, as You, Father, _are_ in Me, and I in You; that they also may be one in Us, that the world may believe that You sent Me. 
+that they all may be one, as You, Father, are in Me, and I in You; that they also may be one in Us, that the world may believe that You sent Me. 
 
 ###### 22 
 And the glory which You gave Me I have given them, that they may be one just as We are one: 
@@ -89,4 +89,4 @@ I in them, and You in Me; that they may be made perfect in one, and that the wor
 O righteous Father! The world has not known You, but I have known You; and these have known that You sent Me. 
 
 ###### 26 
-And I have declared to them Your name, and will declare _it,_ that the love with which You loved Me may be in them, and I in them."
+And I have declared to them Your name, and will declare it, that the love with which You loved Me may be in them, and I in them."

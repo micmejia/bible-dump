@@ -10,7 +10,7 @@ next: ['Acts 4']
 
 
 ###### 1 
-Now Peter and John went up together to the temple at the hour of prayer, the ninth _hour._ 
+Now Peter and John went up together to the temple at the hour of prayer, the ninth hour. 
 
 ###### 2 
 And a certain man lame from his mother's womb was carried, whom they laid daily at the gate of the temple which is called Beautiful, to ask alms from those who entered the temple; 
@@ -28,7 +28,7 @@ So he gave them his attention, expecting to receive something from them.
 Then Peter said, "Silver and gold I do not have, but what I do have I give you: In the name of Jesus Christ of Nazareth, rise up and walk." 
 
 ###### 7 
-And he took him by the right hand and lifted _him_ up, and immediately his feet and ankle bones received strength. 
+And he took him by the right hand and lifted him up, and immediately his feet and ankle bones received strength. 
 
 ###### 8 
 So he, leaping up, stood and walked and entered the temple with them--walking, leaping, and praising God. 
@@ -45,10 +45,10 @@ Then they knew that it was he who sat begging alms at the Beautiful Gate of the 
 Now as the lame man who was healed held on to Peter and John, all the people ran together to them in the porch which is called Solomon's, greatly amazed. 
 
 ###### 12 
-So when Peter saw _it,_ he responded to the people: "Men of Israel, why do you marvel at this? Or why look so intently at us, as though by our own power or godliness we had made this man walk? 
+So when Peter saw it, he responded to the people: "Men of Israel, why do you marvel at this? Or why look so intently at us, as though by our own power or godliness we had made this man walk? 
 
 ###### 13 
-The God of Abraham, Isaac, and Jacob, the God of our fathers, glorified His Servant Jesus, whom you delivered up and denied in the presence of Pilate, when he was determined to let _Him_ go. 
+The God of Abraham, Isaac, and Jacob, the God of our fathers, glorified His Servant Jesus, whom you delivered up and denied in the presence of Pilate, when he was determined to let Him go. 
 
 ###### 14 
 But you denied the Holy One and the Just, and asked for a murderer to be granted to you, 
@@ -57,10 +57,10 @@ But you denied the Holy One and the Just, and asked for a murderer to be granted
 and killed the Prince of life, whom God raised from the dead, of which we are witnesses. 
 
 ###### 16 
-And His name, through faith in His name, has made this man strong, whom you see and know. Yes, the faith which _comes_ through Him has given him this perfect soundness in the presence of you all. 
+And His name, through faith in His name, has made this man strong, whom you see and know. Yes, the faith which comes through Him has given him this perfect soundness in the presence of you all. 
 
 ###### 17 
-"Yet now, brethren, I know that you did _it_ in ignorance, as _did_ also your rulers. 
+"Yet now, brethren, I know that you did it in ignorance, as did also your rulers. 
 
 ###### 18 
 But those things which God foretold by the mouth of all His prophets, that the Christ would suffer, He has thus fulfilled. 
@@ -78,7 +78,7 @@ whom heaven must receive until the times of restoration of all things, which God
 For Moses truly said to the fathers, 'The Lord your God will raise up for you a Prophet like me from your brethren. Him you shall hear in all things, whatever He says to you. 
 
 ###### 23 
-And it shall be _that_ every soul who will not hear that Prophet shall be utterly destroyed from among the people.' 
+And it shall be that every soul who will not hear that Prophet shall be utterly destroyed from among the people.' 
 
 ###### 24 
 Yes, and all the prophets, from Samuel and those who follow, as many as have spoken, have also foretold these days. 
@@ -87,4 +87,4 @@ Yes, and all the prophets, from Samuel and those who follow, as many as have spo
 You are sons of the prophets, and of the covenant which God made with our fathers, saying to Abraham, 'And in your seed all the families of the earth shall be blessed.' 
 
 ###### 26 
-To you first, God, having raised up His Servant Jesus, sent Him to bless you, in turning away every one _of you_ from your iniquities."
+To you first, God, having raised up His Servant Jesus, sent Him to bless you, in turning away every one of you from your iniquities."

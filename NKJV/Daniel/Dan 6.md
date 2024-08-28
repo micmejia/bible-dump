@@ -13,16 +13,16 @@ next: ['Dan 7']
 It pleased Darius to set over the kingdom one hundred and twenty satraps, to be over the whole kingdom; 
 
 ###### 2 
-and over these, three governors, of whom Daniel _was_ one, that the satraps might give account to them, so that the king would suffer no loss. 
+and over these, three governors, of whom Daniel was one, that the satraps might give account to them, so that the king would suffer no loss. 
 
 ###### 3 
-Then this Daniel distinguished himself above the governors and satraps, because an excellent spirit _was_ in him; and the king gave thought to setting him over the whole realm. 
+Then this Daniel distinguished himself above the governors and satraps, because an excellent spirit was in him; and the king gave thought to setting him over the whole realm. 
 
 ###### 4 
-So the governors and satraps sought to find _some_ charge against Daniel concerning the kingdom; but they could find no charge or fault, because he _was_ faithful; nor was there any error or fault found in him. 
+So the governors and satraps sought to find some charge against Daniel concerning the kingdom; but they could find no charge or fault, because he was faithful; nor was there any error or fault found in him. 
 
 ###### 5 
-Then these men said, "We shall not find any charge against this Daniel unless we find _it_ against him concerning the law of his God." 
+Then these men said, "We shall not find any charge against this Daniel unless we find it against him concerning the law of his God." 
 
 ###### 6 
 So these governors and satraps thronged before the king, and said thus to him: "King Darius, live forever! 
@@ -45,19 +45,19 @@ Now when Daniel knew that the writing was signed, he went home. And in his upper
 Then these men assembled and found Daniel praying and making supplication before his God. 
 
 ###### 12 
-And they went before the king, and spoke concerning the king's decree: "Have you not signed a decree that every man who petitions any god or man within thirty days, except you, O king, shall be cast into the den of lions?" The king answered and said, "The thing _is_ true, according to the law of the Medes and Persians, which does not alter." 
+And they went before the king, and spoke concerning the king's decree: "Have you not signed a decree that every man who petitions any god or man within thirty days, except you, O king, shall be cast into the den of lions?" The king answered and said, "The thing is true, according to the law of the Medes and Persians, which does not alter." 
 
 ###### 13 
 So they answered and said before the king, "That Daniel, who is one of the captives from Judah, does not show due regard for you, O king, or for the decree that you have signed, but makes his petition three times a day." 
 
 ###### 14 
-And the king, when he heard _these_ words, was greatly displeased with himself, and set _his_ heart on Daniel to deliver him; and he labored till the going down of the sun to deliver him. 
+And the king, when he heard these words, was greatly displeased with himself, and set his heart on Daniel to deliver him; and he labored till the going down of the sun to deliver him. 
 
 ###### 15 
-Then these men approached the king, and said to the king, "Know, O king, that _it is_ the law of the Medes and Persians that no decree or statute which the king establishes may be changed." 
+Then these men approached the king, and said to the king, "Know, O king, that it is the law of the Medes and Persians that no decree or statute which the king establishes may be changed." 
 
 ###### 16 
-So the king gave the command, and they brought Daniel and cast _him_ into the den of lions. _But_ the king spoke, saying to Daniel, "Your God, whom you serve continually, He will deliver you." 
+So the king gave the command, and they brought Daniel and cast him into the den of lions. But the king spoke, saying to Daniel, "Your God, whom you serve continually, He will deliver you." 
 
 ###### 17 
 Then a stone was brought and laid on the mouth of the den, and the king sealed it with his own signet ring and with the signets of his lords, that the purpose concerning Daniel might not be changed.
@@ -85,13 +85,13 @@ Now the king was exceedingly glad for him, and commanded that they should take D
 ## Darius Honors God 
 
 ###### 24 
-And the king gave the command, and they brought those men who had accused Daniel, and they cast _them_ into the den of lions--them, their children, and their wives; and the lions overpowered them, and broke all their bones in pieces before they ever came to the bottom of the den. 
+And the king gave the command, and they brought those men who had accused Daniel, and they cast them into the den of lions--them, their children, and their wives; and the lions overpowered them, and broke all their bones in pieces before they ever came to the bottom of the den. 
 
 ###### 25 
 Then King Darius wrote: To all peoples, nations, and languages that dwell in all the earth: Peace be multiplied to you. 
 
 ###### 26 
-I make a decree that in every dominion of my kingdom _men must_ tremble and fear before the God of Daniel. For He _is_ the living God, And steadfast forever; His kingdom _is the one_ which shall not be destroyed, And His dominion _shall endure_ to the end. 
+I make a decree that in every dominion of my kingdom men must tremble and fear before the God of Daniel. For He is the living God, And steadfast forever; His kingdom is the one which shall not be destroyed, And His dominion shall endure to the end. 
 
 ###### 27 
 He delivers and rescues, And He works signs and wonders In heaven and on earth, Who has delivered Daniel from the power of the lions. 

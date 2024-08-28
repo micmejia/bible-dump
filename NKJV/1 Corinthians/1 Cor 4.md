@@ -30,7 +30,7 @@ Therefore judge nothing before the time, until the Lord comes, who will both bri
 Now these things, brethren, I have figuratively transferred to myself and Apollos for your sakes, that you may learn in us not to think beyond what is written, that none of you may be puffed up on behalf of one against the other. 
 
 ###### 7 
-For who makes you differ _from another?_ And what do you have that you did not receive? Now if you did indeed receive _it,_ why do you boast as if you had not received _it?_ 
+For who makes you differ from another? And what do you have that you did not receive? Now if you did indeed receive it, why do you boast as if you had not received it? 
 
 ###### 8 
 You are already full! You are already rich! You have reigned as kings without us--and indeed I could wish you did reign, that we also might reign with you! 
@@ -39,7 +39,7 @@ You are already full! You are already rich! You have reigned as kings without us
 For I think that God has displayed us, the apostles, last, as men condemned to death; for we have been made a spectacle to the world, both to angels and to men. 
 
 ###### 10 
-We _are_ fools for Christ's sake, but you _are_ wise in Christ! We _are_ weak, but you _are_ strong! You _are_ distinguished, but we _are_ dishonored! 
+We are fools for Christ's sake, but you are wise in Christ! We are weak, but you are strong! You are distinguished, but we are dishonored! 
 
 ###### 11 
 To the present hour we both hunger and thirst, and we are poorly clothed, and beaten, and homeless. 
@@ -53,10 +53,10 @@ being defamed, we entreat. We have been made as the filth of the world, the offs
 ## Paul's Paternal Care 
 
 ###### 14 
-I do not write these things to shame you, but as my beloved children I warn _you._ 
+I do not write these things to shame you, but as my beloved children I warn you. 
 
 ###### 15 
-For though you might have ten thousand instructors in Christ, yet _you do_ not _have_ many fathers; for in Christ Jesus I have begotten you through the gospel. 
+For though you might have ten thousand instructors in Christ, yet you do not have many fathers; for in Christ Jesus I have begotten you through the gospel. 
 
 ###### 16 
 Therefore I urge you, imitate me. 
@@ -71,7 +71,7 @@ Now some are puffed up, as though I were not coming to you.
 But I will come to you shortly, if the Lord wills, and I will know, not the word of those who are puffed up, but the power. 
 
 ###### 20 
-For the kingdom of God _is_ not in word but in power. 
+For the kingdom of God is not in word but in power. 
 
 ###### 21 
 What do you want? Shall I come to you with a rod, or in love and a spirit of gentleness?

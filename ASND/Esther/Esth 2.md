@@ -205,7 +205,7 @@ Nang panahong iyon, may isang Judio na nakatira sa lungsod ng Susa. Ang pangalan
 
 
 
-Isa siya sa mga bihag ni Haring Nebucadnezar na dinala sa Babilonia_ mula sa Jerusalem, kasama ni Haring Jehoyakin ng Juda. 
+Isa siya sa mga bihag ni Haring Nebucadnezar na dinala sa Babilonia mula sa Jerusalem, kasama ni Haring Jehoyakin ng Juda. 
 
 
 
@@ -502,7 +502,7 @@ Pupunta siya sa hari pagsapit ng gabi at kinabukasan, dadalhin siya sa tirahan n
 
 
 
-Nagustuhan ng hari si Ester ng higit kaysa sa ibang mga dalaga na dinala sa kanya_. Tuwang-tuwa siya kay Ester, at mabuti ang trato niya sa kanya. Kinoronahan niya ito at ginawang reyna bilang kapalit ni Vasti. 
+Nagustuhan ng hari si Ester ng higit kaysa sa ibang mga dalaga na dinala sa kanya. Tuwang-tuwa siya kay Ester, at mabuti ang trato niya sa kanya. Kinoronahan niya ito at ginawang reyna bilang kapalit ni Vasti. 
 
 
 
@@ -570,7 +570,7 @@ Nagdaos ang hari ng malaking handaan para parangalan si Ester. Inanyayahan niya 
 
 
 
-Sa pangalawang pagtitipon ng mga dalaga, si Mordecai ay isa nang opisyal na_ nakapwesto sa pintuan ng palasyo. 
+Sa pangalawang pagtitipon ng mga dalaga, si Mordecai ay isa nang opisyal na nakapwesto sa pintuan ng palasyo. 
 
 
 
@@ -636,7 +636,7 @@ Hindi pa rin sinasabi ni Ester na isa siyang Judio, tulad ng bilin ni Mordecai. 
 
 
 
-Nang panahong si Mordecai ay isa nang opisyal na_ nakapwesto sa pintuan ng palasyo, may dalawang pinuno ng hari na ang mga pangalan ay Bigtana at Teres. Sila ang mga guwardya ng pintuan ng kwarto ng hari. Galit sila kay Haring Ahasuerus, at nagplano silang patayin ito. 
+Nang panahong si Mordecai ay isa nang opisyal na nakapwesto sa pintuan ng palasyo, may dalawang pinuno ng hari na ang mga pangalan ay Bigtana at Teres. Sila ang mga guwardya ng pintuan ng kwarto ng hari. Galit sila kay Haring Ahasuerus, at nagplano silang patayin ito. 
 
 
 

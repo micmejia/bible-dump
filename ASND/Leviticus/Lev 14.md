@@ -73,7 +73,7 @@ lalabas ang pari sa kampo at susuriin niya ang katawan ng taong iyon. Kung gumal
 
 
 
-magpapakuha ang pari ng dalawang malinis na ibong buhay, isang putol na_ kahoy na sedro, panaling pula, at isang kumpol ng halaman na_ isopo. 
+magpapakuha ang pari ng dalawang malinis na ibong buhay, isang putol na kahoy na sedro, panaling pula, at isang kumpol ng halaman na isopo. 
 
 
 
@@ -172,7 +172,7 @@ Pagkatapos, muli siyang kukuha ng buhay na ibon, kahoy na sedro, taling pula, at
 
 
 
-At ang tubig na may_ dugo ay kanyang iwiwisik ng pitong beses sa taong gumaling sa kanyang sakit sa balat, at kanyang ipapahayag na magaling na ang taong iyon. At pagkatapos, pakakawalan ng pari ang buhay na ibon sa bukid. 
+At ang tubig na may dugo ay kanyang iwiwisik ng pitong beses sa taong gumaling sa kanyang sakit sa balat, at kanyang ipapahayag na magaling na ang taong iyon. At pagkatapos, pakakawalan ng pari ang buhay na ibon sa bukid. 
 
 
 

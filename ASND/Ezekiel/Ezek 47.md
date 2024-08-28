@@ -271,7 +271,7 @@ Nang naroon na ako, marami akong nakitang kahoy sa magkabilang pampang.
 
 
 
-At sinabi niya sa akin, "Ang tubig na itoʼy dumadaloy sa lupain sa silangan papunta sa Araba papunta sa Dagat na Patay_. Ang dagat na ito ay magiging sariwang tubig na at hindi maalat_. 
+At sinabi niya sa akin, "Ang tubig na itoʼy dumadaloy sa lupain sa silangan papunta sa Araba papunta sa Dagat na Patay. Ang dagat na ito ay magiging sariwang tubig na at hindi maalat. 
 
 
 
@@ -370,7 +370,7 @@ Marami nang mangingisda sa Dagat na Patay mula sa En Gedi patungo sa En Eglaim. 
 
 
 
-Ngunit ang mga latian sa palibot ng Dagat na Patay_ ay mananatiling maalat para may makuhanan ng asin ang mga tao_. 
+Ngunit ang mga latian sa palibot ng Dagat na Patay ay mananatiling maalat para may makuhanan ng asin ang mga tao. 
 
 
 
@@ -601,7 +601,7 @@ Kaya ang hangganan sa hilaga ay magsisimula sa Dagat ng Mediteraneo hanggang sa 
 
 
 
-"Ang hangganan sa silangan ay mula sa hangganan ng Hauran at Damascus papuntang Ilog_ ng Jordan (sa pagitan ng Gilead at ng Israel) patungo sa Dagat na Patay hanggang sa Tamar. Ito ang hangganan sa silangan. 
+"Ang hangganan sa silangan ay mula sa hangganan ng Hauran at Damascus papuntang Ilog ng Jordan (sa pagitan ng Gilead at ng Israel) patungo sa Dagat na Patay hanggang sa Tamar. Ito ang hangganan sa silangan. 
 
 
 
@@ -733,7 +733,7 @@ Kaya ang hangganan sa hilaga ay magsisimula sa Dagat ng Mediteraneo hanggang sa 
 
 
 
-Ito ang pinakamana ninyo at ng mga dayuhang nakatira kasama ninyo na ang mga anak ay ipinanganak sa Israel. Ituring ninyo silang parang tunay na katutubong Israelita, at bigyan din ninyo sila ng lupang_ mamanahin ng mga lahi ng Israel. 
+Ito ang pinakamana ninyo at ng mga dayuhang nakatira kasama ninyo na ang mga anak ay ipinanganak sa Israel. Ituring ninyo silang parang tunay na katutubong Israelita, at bigyan din ninyo sila ng lupang mamanahin ng mga lahi ng Israel. 
 
 
 
@@ -766,4 +766,4 @@ Ito ang pinakamana ninyo at ng mga dayuhang nakatira kasama ninyo na ang mga ana
 
 
 
-Kung saang angkan sila naninirahan, doon din sa angkan na iyon magmumula ang bahagi nilang lupain. Ako,_ ang Panginoong Dios, ang nagsasabi nito."
+Kung saang angkan sila naninirahan, doon din sa angkan na iyon magmumula ang bahagi nilang lupain. Ako, ang Panginoong Dios, ang nagsasabi nito."

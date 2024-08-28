@@ -73,7 +73,7 @@ Inutusan ng Panginoon si Moises,
 
 
 
-na sabihin ito sa mga taga-Israel: Ang sinuman sa inyo at sa mga dayuhang naninirahang kasama ninyo na maghahandog ng kanyang anak sa dios-diosang si_ Molec ay dapat batuhin ng taong bayan hanggang sa mamatay.
+na sabihin ito sa mga taga-Israel: Ang sinuman sa inyo at sa mga dayuhang naninirahang kasama ninyo na maghahandog ng kanyang anak sa dios-diosang si Molec ay dapat batuhin ng taong bayan hanggang sa mamatay.
 
 ###### 3-4 Kasusuklaman ko ang taong iyon at huwag na ninyong ituring na kababayan. Sapagkat dahil sa paghahandog niya ng kanyang anak kay Molec, dinungisan niya ang lugar na pinagsasambahan sa akin at nilapastangan niya ang aking pangalan. Kapag ang taong iyon ay hinahayaan ninyo sa kanyang ginagawang iyon, 
 
@@ -372,7 +372,7 @@ Kung ang isang amaʼy sumiping sa kanyang manugang na babae, siya at ang babae a
 
 
 
-Kung ang isang lalaki ay sumiping sa kapwa lalaki, pareho silang dapat patayin dahil pareho silang gumawa ng kasuklam-suklam na gawain_. Sila ang responsable sa sinapit nilang kamatayan. 
+Kung ang isang lalaki ay sumiping sa kapwa lalaki, pareho silang dapat patayin dahil pareho silang gumawa ng kasuklam-suklam na gawain. Sila ang responsable sa sinapit nilang kamatayan. 
 
 
 

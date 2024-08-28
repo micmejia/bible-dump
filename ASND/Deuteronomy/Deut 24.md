@@ -139,7 +139,7 @@ at hiwalayan na naman siya ng ikalawa niyang asawa o mamatay ito,
 
 
 
-hindi na siya maaaring mapangasawang muli ng nauna niyang asawa dahil narumihan na siya. Kung muli siyang mapapangasawa ng nauna niyang asawa_, kasuklam-suklam ito sa paningin ng Panginoon. Hindi ninyo dapat gawin ang mga kasalanang ito sa lupaing ibinibigay sa inyo ng Panginoon na inyong Dios bilang inyong mana. 
+hindi na siya maaaring mapangasawang muli ng nauna niyang asawa dahil narumihan na siya. Kung muli siyang mapapangasawa ng nauna niyang asawa, kasuklam-suklam ito sa paningin ng Panginoon. Hindi ninyo dapat gawin ang mga kasalanang ito sa lupaing ibinibigay sa inyo ng Panginoon na inyong Dios bilang inyong mana. 
 
 
 
@@ -172,7 +172,7 @@ hindi na siya maaaring mapangasawang muli ng nauna niyang asawa dahil narumihan 
 
 
 
-"Kung bagong kasal ang isang lalaki, huwag ninyo siyang isasama sa labanan o bibigyan ng anumang responsibilidad sa bayan sa loob ng isang taon, para manatili muna_ siya sa kanyang bahay at mabigyan ng kasiyahan ang kanyang asawa. 
+"Kung bagong kasal ang isang lalaki, huwag ninyo siyang isasama sa labanan o bibigyan ng anumang responsibilidad sa bayan sa loob ng isang taon, para manatili muna siya sa kanyang bahay at mabigyan ng kasiyahan ang kanyang asawa. 
 
 
 

@@ -138,7 +138,7 @@ Samantala, sinabi ng anghel ng Panginoon kay Elias na taga-Tisbe, "Salubungin mo
 
 
 
-Kaya ngayon, sabihin ninyo kay Ahazia na_ ito ang sinasabi sa kanya,_ ng Panginoon, 'Hindi ka na makakabangon sa higaan mo. Tiyak na mamamatay ka!' " Pagkatapos, umalis na si Elias. 
+Kaya ngayon, sabihin ninyo kay Ahazia na ito ang sinasabi sa kanya, ng Panginoon, 'Hindi ka na makakabangon sa higaan mo. Tiyak na mamamatay ka!' " Pagkatapos, umalis na si Elias. 
 
 
 
@@ -171,7 +171,7 @@ Kaya ngayon, sabihin ninyo kay Ahazia na_ ito ang sinasabi sa kanya,_ ng Pangino
 
 
 
-Nang masabihan na ni Elias_ ang mga mensahero, bumalik ang mga ito sa hari. Tinanong sila ng hari, "Bakit kayo bumalik?" 
+Nang masabihan na ni Elias ang mga mensahero, bumalik ang mga ito sa hari. Tinanong sila ng hari, "Bakit kayo bumalik?" 
 
 
 
@@ -303,7 +303,7 @@ Sumagot sila, "Nakasuot po siya ng damit na yari sa balahibo ng hayop at nakasin
 
 
 
-Pagkatapos, pinapunta ng hari ang isang opisyal, kasama ang 50 tauhan, para hulihin si Elias_. Umakyat ang opisyal sa ibabaw ng burol kung saan nakaupo si Elias, at sinabi niya, "Lingkod ng Dios, sinabi ng hari na pumunta ka sa kanya." 
+Pagkatapos, pinapunta ng hari ang isang opisyal, kasama ang 50 tauhan, para hulihin si Elias. Umakyat ang opisyal sa ibabaw ng burol kung saan nakaupo si Elias, at sinabi niya, "Lingkod ng Dios, sinabi ng hari na pumunta ka sa kanya." 
 
 
 
@@ -369,7 +369,7 @@ Sumagot si Elias sa opisyal, "Kung lingkod nga ako ng Dios, umulan sana ng apoy 
 
 
 
-Muling nagpadala ang hari ng isang opisyal kasama ang 50 tauhan para hulihin si Elias_. Sinabi ng opisyal kay Elias, "Lingkod ng Dios, sinabi ng hari na pumunta ka agad sa kanya!" 
+Muling nagpadala ang hari ng isang opisyal kasama ang 50 tauhan para hulihin si Elias. Sinabi ng opisyal kay Elias, "Lingkod ng Dios, sinabi ng hari na pumunta ka agad sa kanya!" 
 
 
 
@@ -435,7 +435,7 @@ Sumagot si Elias, "Kung lingkod nga ako ng Dios, umulan sana ng apoy mula sa lan
 
 
 
-Nagpadala ang hari ng ikatlong opisyal kasama ang 50 tauhan. Pagdating ng opisyal kay Elias, lumuhod siya bilang paggalang,_ at nagmakaawa, "Lingkod ng Dios, mahabag ka sa akin at sa mga tauhan ko. Huwag mo kaming patayin na iyong mga lingkod. 
+Nagpadala ang hari ng ikatlong opisyal kasama ang 50 tauhan. Pagdating ng opisyal kay Elias, lumuhod siya bilang paggalang, at nagmakaawa, "Lingkod ng Dios, mahabag ka sa akin at sa mga tauhan ko. Huwag mo kaming patayin na iyong mga lingkod. 
 
 
 
@@ -567,7 +567,7 @@ Pagdating ni Elias sa hari, sinabi niya, "Ito ang sinasabi ng Panginoon: Bakit n
 
 
 
-Namatay nga ang hari ayon sa sinabi ng Panginoon sa pamamagitan ni Elias. Dahil walang anak na lalaki si Ahazia, si Joram na kapatid niya_ ang pumalit sa kanya bilang hari. Naghari si Joram noong ikalawang taon ng paghahari ni Jehoram na anak ni Haring Jehoshafat ng Juda. 
+Namatay nga ang hari ayon sa sinabi ng Panginoon sa pamamagitan ni Elias. Dahil walang anak na lalaki si Ahazia, si Joram na kapatid niya ang pumalit sa kanya bilang hari. Naghari si Joram noong ikalawang taon ng paghahari ni Jehoram na anak ni Haring Jehoshafat ng Juda. 
 
 
 

@@ -39,7 +39,7 @@ next: ['2 Cor 2']
 
 
 
-Mula kay_ Pablo na apostol ni Cristo Jesus ayon sa kalooban ng Dios, kasama si_ Timoteo na ating_ kapatid. Mahal kong mga kapatid_ sa iglesya ng Dios diyan sa Corinto, kasama ang lahat ng mga pinabanal ng Dios_ sa Acaya: 
+Mula kay Pablo na apostol ni Cristo Jesus ayon sa kalooban ng Dios, kasama si Timoteo na ating kapatid. Mahal kong mga kapatid sa iglesya ng Dios diyan sa Corinto, kasama ang lahat ng mga pinabanal ng Dios sa Acaya: 
 
 
 
@@ -272,7 +272,7 @@ Kaya malaki ang aming pag-asa para sa inyo, dahil alam namin na kung naghihirap 
 
 
 
-Mga kapatid, gusto naming malaman ninyo ang mga paghihirap na dinanas namin sa lalawigan ng_ Asia. Napakabigat ng mga dinanas namin doon, halos hindi na namin nakayanan at nawalan na kami ng pag-asang mabuhay pa. 
+Mga kapatid, gusto naming malaman ninyo ang mga paghihirap na dinanas namin sa lalawigan ng Asia. Napakabigat ng mga dinanas namin doon, halos hindi na namin nakayanan at nawalan na kami ng pag-asang mabuhay pa. 
 
 
 
@@ -439,7 +439,7 @@ Isang bagay ang maipagmamalaki namin: Namumuhay kaming matuwid at tapat sa harap
 
 
 
-Dahil sa tiwalang ito, binalak kong bisitahin kayo noong una, para makatanggap kayo ng dobleng pagpapala sa pagbisita ko sa inyo ng dalawang beses_. 
+Dahil sa tiwalang ito, binalak kong bisitahin kayo noong una, para makatanggap kayo ng dobleng pagpapala sa pagbisita ko sa inyo ng dalawang beses. 
 
 
 
@@ -505,7 +505,7 @@ Binalak kong dumaan muna sa inyo pagpunta ko sa Macedonia, at sa aking pagbalik 
 
 
 
-Iyon sana ang plano ko noon. Ngunit dahil hindi ito natuloy,_ masasabi ba ninyong pabago-bago ang aking isip? Katulad din ba ako ng mga taong makamundo na "Oo" nang "Oo," pero "Hindi" naman pala ang ibig sabihin? 
+Iyon sana ang plano ko noon. Ngunit dahil hindi ito natuloy, masasabi ba ninyong pabago-bago ang aking isip? Katulad din ba ako ng mga taong makamundo na "Oo" nang "Oo," pero "Hindi" naman pala ang ibig sabihin? 
 
 
 
@@ -538,7 +538,7 @@ Iyon sana ang plano ko noon. Ngunit dahil hindi ito natuloy,_ masasabi ba ninyon
 
 
 
-Aba, hindi!_ Kung paanong tapat ang Dios, ganoon din naman kami sa aming mga sinasabi. 
+Aba, hindi! Kung paanong tapat ang Dios, ganoon din naman kami sa aming mga sinasabi. 
 
 
 
@@ -637,7 +637,7 @@ Sapagkat kahit gaano man karami ang pangako ng Dios, tutuparin niyang lahat ito 
 
 
 
-Ang Dios ang nagpapatibay sa atin, at sa ating pakikipag-isa kay Cristo. Pinili niya tayo para maglingkod sa kanya_. 
+Ang Dios ang nagpapatibay sa atin, at sa ating pakikipag-isa kay Cristo. Pinili niya tayo para maglingkod sa kanya. 
 
 
 
@@ -670,7 +670,7 @@ Ang Dios ang nagpapatibay sa atin, at sa ating pakikipag-isa kay Cristo. Pinili 
 
 
 
-Tinatakan niya tayo bilang tanda na tayoʼy nasa kanya na. Ginawa niya ito_ sa pamamagitan ng paglalagay ng kanyang Banal na_ Espiritu sa ating mga puso. Ang Banal na Espiritu_ ang nagsisilbing garantiya na matatanggap natin ang kanyang mga ipinangako. 
+Tinatakan niya tayo bilang tanda na tayoʼy nasa kanya na. Ginawa niya ito sa pamamagitan ng paglalagay ng kanyang Banal na Espiritu sa ating mga puso. Ang Banal na Espiritu ang nagsisilbing garantiya na matatanggap natin ang kanyang mga ipinangako. 
 
 
 

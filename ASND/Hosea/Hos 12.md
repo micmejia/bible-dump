@@ -40,7 +40,7 @@ next: ['Hos 13']
 
 
 
-Ang mga taga-Israel ay umaasa sa mga walang kwentang bagay. Buong araw nilang hinahabol ang mga bagay na nagdadala sa kanila sa kapahamakan. Lalo pa silang naging malupit at sinungaling. Nakikipagkasundo sila sa Asiria at sa Egipto, kung kaya_ nireregaluhan nila ang Egipto ng langis. 
+Ang mga taga-Israel ay umaasa sa mga walang kwentang bagay. Buong araw nilang hinahabol ang mga bagay na nagdadala sa kanila sa kapahamakan. Lalo pa silang naging malupit at sinungaling. Nakikipagkasundo sila sa Asiria at sa Egipto, kung kaya nireregaluhan nila ang Egipto ng langis. 
 
 
 
@@ -106,7 +106,7 @@ May mga paratang din ang Panginoon laban sa mga taga-Juda na lahi ni Jacob. Paru
 
 
 
-Noong si Jacob na kanilang ninuno_ ay nasa tiyan pa lamang ng kanyang ina, nais na niyang lampasan ang kanyang kakambal. At noong lumaki na siya,_ nakipagbuno siya sa Dios 
+Noong si Jacob na kanilang ninuno ay nasa tiyan pa lamang ng kanyang ina, nais na niyang lampasan ang kanyang kakambal. At noong lumaki na siya, nakipagbuno siya sa Dios 
 
 
 
@@ -240,7 +240,7 @@ Kaya kayong mga lahi ni Jacob, magbalik-loob na kayo sa Dios at ipakita ninyo an
 
 
 
-Sinabi ng Panginoon,_ "Mahilig mandaya ang mga negosyante ninyo. Gumagamit sila ng mga timbangang may daya. 
+Sinabi ng Panginoon, "Mahilig mandaya ang mga negosyante ninyo. Gumagamit sila ng mga timbangang may daya. 
 
 
 
@@ -273,7 +273,7 @@ Sinabi ng Panginoon,_ "Mahilig mandaya ang mga negosyante ninyo. Gumagamit sila 
 
 
 
-Nagyayabang pa kayong mga taga-Israel at sinasabing, 'Nakapag-ipon kami ng kayamanan at napakayaman na namin ngayon. Walang makapagsasabing yumaman kami sa masamang paraan, dahil_ kasalanan ang gawin iyon.' 
+Nagyayabang pa kayong mga taga-Israel at sinasabing, 'Nakapag-ipon kami ng kayamanan at napakayaman na namin ngayon. Walang makapagsasabing yumaman kami sa masamang paraan, dahil kasalanan ang gawin iyon.' 
 
 
 
@@ -306,7 +306,7 @@ Nagyayabang pa kayong mga taga-Israel at sinasabing, 'Nakapag-ipon kami ng kayam
 
 
 
-Kaya ako, ang Panginoon ninyong Dios na naglabas sa inyo_ sa Egipto, ay nagsasabi:_ Patitirahin ko kayong muli sa mga kubol gaya ng ginagawa ninyo noon sa panahon ng Pista ng Pagtatayo ng mga Kubol. 
+Kaya ako, ang Panginoon ninyong Dios na naglabas sa inyo sa Egipto, ay nagsasabi: Patitirahin ko kayong muli sa mga kubol gaya ng ginagawa ninyo noon sa panahon ng Pista ng Pagtatayo ng mga Kubol. 
 
 
 
@@ -438,7 +438,7 @@ Pero patuloy pa rin ang mga taga-Gilead sa kanilang kasamaan, at sila ay naging 
 
 
 
-Sa pamamagitan ng propetang si Moises_, inilabas ko kayong mga Israelita sa Egipto at inalagaan. 
+Sa pamamagitan ng propetang si Moises, inilabas ko kayong mga Israelita sa Egipto at inalagaan. 
 
 
 

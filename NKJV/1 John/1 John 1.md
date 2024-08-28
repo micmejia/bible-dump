@@ -15,7 +15,7 @@ That which was from the beginning, which we have heard, which we have seen with 
 the life was manifested, and we have seen, and bear witness, and declare to you that eternal life which was with the Father and was manifested to us-- 
 
 ###### 3 
-that which we have seen and heard we declare to you, that you also may have fellowship with us; and truly our fellowship _is_ with the Father and with His Son Jesus Christ. 
+that which we have seen and heard we declare to you, that you also may have fellowship with us; and truly our fellowship is with the Father and with His Son Jesus Christ. 
 
 ###### 4 
 And these things we write to you that your joy may be full.
@@ -35,7 +35,7 @@ But if we walk in the light as He is in the light, we have fellowship with one a
 If we say that we have no sin, we deceive ourselves, and the truth is not in us. 
 
 ###### 9 
-If we confess our sins, He is faithful and just to forgive us _our_ sins and to cleanse us from all unrighteousness. 
+If we confess our sins, He is faithful and just to forgive us our sins and to cleanse us from all unrighteousness. 
 
 ###### 10 
 If we say that we have not sinned, we make Him a liar, and His word is not in us.

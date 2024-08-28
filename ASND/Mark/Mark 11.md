@@ -40,7 +40,7 @@ next: ['Mark 12']
 
 
 
-Nang malapit na sina Jesus sa Jerusalem, tumigil_ sila sa Bundok ng mga Olibo malapit sa mga nayon ng_ Betfage at Betania. Pinauna ni Jesus ang dalawa niyang tagasunod. 
+Nang malapit na sina Jesus sa Jerusalem, tumigil sila sa Bundok ng mga Olibo malapit sa mga nayon ng Betfage at Betania. Pinauna ni Jesus ang dalawa niyang tagasunod. 
 
 
 
@@ -370,7 +370,7 @@ Pagpalain nawa ng Dios ang dumarating na kaharian ng ninuno nating si David. Pur
 
 
 
-Pagdating ni Jesus sa Jerusalem, pumunta siya sa templo. Pinagmasdan niyang mabuti ang lahat ng bagay doon. At dahil sa gumagabi na, pumunta siya sa Betania kasama ang kanyang_ 12 apostol_.
+Pagdating ni Jesus sa Jerusalem, pumunta siya sa templo. Pinagmasdan niyang mabuti ang lahat ng bagay doon. At dahil sa gumagabi na, pumunta siya sa Betania kasama ang kanyang 12 apostol.
 
 ## Isinumpa ni Jesus ang Puno ng Igos 
 
@@ -405,7 +405,7 @@ Pagdating ni Jesus sa Jerusalem, pumunta siya sa templo. Pinagmasdan niyang mabu
 
 
 
-Kinabukasan, nang umalis sila sa Betania pabalik sa Jerusalem_, nagutom si Jesus. 
+Kinabukasan, nang umalis sila sa Betania pabalik sa Jerusalem, nagutom si Jesus. 
 
 
 
@@ -506,7 +506,7 @@ Sinabi ni Jesus sa puno, "Mula ngayon, wala nang makakakain ng bunga mo." Narini
 
 
 
-Pagdating nila sa Jerusalem, pumasok si Jesus sa templo at itinaboy niya ang mga nagtitinda at namimili roon. Itinaob niya ang mga mesa ng mga nagpapalit ng pera at ang mga upuan ng mga nagtitinda ng mga kalapating inihahandog sa templo_. 
+Pagdating nila sa Jerusalem, pumasok si Jesus sa templo at itinaboy niya ang mga nagtitinda at namimili roon. Itinaob niya ang mga mesa ng mga nagpapalit ng pera at ang mga upuan ng mga nagtitinda ng mga kalapating inihahandog sa templo. 
 
 
 
@@ -572,7 +572,7 @@ Pinagbawalan niya ang mga taong may paninda na dumaan sa templo.
 
 
 
-Pagkatapos, pinangaralan niya ang mga tao roon. Sinabi niya, "Hindi baʼt sinasabi ng Dios_ sa Kasulatan, 'Ang aking bahay ay magiging bahay-panalanginan ng lahat ng bansa'? Ngunit ginawa ninyong pugad ng mga tulisan." 
+Pagkatapos, pinangaralan niya ang mga tao roon. Sinabi niya, "Hindi baʼt sinasabi ng Dios sa Kasulatan, 'Ang aking bahay ay magiging bahay-panalanginan ng lahat ng bansa'? Ngunit ginawa ninyong pugad ng mga tulisan." 
 
 
 
@@ -605,7 +605,7 @@ Pagkatapos, pinangaralan niya ang mga tao roon. Sinabi niya, "Hindi baʼt sinasa
 
 
 
-Nabalitaan ng mga namamahalang pari at ng mga tagapagturo ng Kautusan ang ginawa ni Jesus_. Kaya humanap sila ng paraan upang mapatay siya. Pero natatakot sila sa kanya dahil hangang-hanga ang mga tao sa kanyang mga turo. 
+Nabalitaan ng mga namamahalang pari at ng mga tagapagturo ng Kautusan ang ginawa ni Jesus. Kaya humanap sila ng paraan upang mapatay siya. Pero natatakot sila sa kanya dahil hangang-hanga ang mga tao sa kanyang mga turo. 
 
 
 
@@ -805,7 +805,7 @@ Sinasabi ko sa inyo ang totoo, kung may pananampalataya kayo, maaari ninyong sab
 
 
 
-Kaya tandaan ninyo: anuman ang hilingin ninyo sa Dios_ sa panalangin, manampalataya kayong natanggap na ninyo ito, at matatanggap nga ninyo. 
+Kaya tandaan ninyo: anuman ang hilingin ninyo sa Dios sa panalangin, manampalataya kayong natanggap na ninyo ito, at matatanggap nga ninyo. 
 
 
 
@@ -1069,7 +1069,7 @@ Nag-usap-usap sila, "Kung sasabihin nating mula sa Dios, sasabihin niya, 'Bakit 
 
 
 
-Pero kung sasabihin nating mula sa tao, magagalit sa atin ang mga tao._" (Takot sila sa mga tao dahil naniniwala ang mga tao na si Juan ay propeta ng Dios_.) 
+Pero kung sasabihin nating mula sa tao, magagalit sa atin ang mga tao." (Takot sila sa mga tao dahil naniniwala ang mga tao na si Juan ay propeta ng Dios.) 
 
 
 

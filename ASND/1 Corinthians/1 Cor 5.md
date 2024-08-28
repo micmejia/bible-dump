@@ -73,7 +73,7 @@ May nagbalita sa akin na mayroon diyan sa inyo na gumagawa ng sekswal na imorali
 
 
 
-At sa kabila ng pangyayaring ito,_ nagawa pa ninyong magyabang! Dapat sana ay naghinagpis kayo at pinalayas na ninyo sa inyong grupo ang gumagawa nito.
+At sa kabila ng pangyayaring ito, nagawa pa ninyong magyabang! Dapat sana ay naghinagpis kayo at pinalayas na ninyo sa inyong grupo ang gumagawa nito.
 
 ###### 3-4 Kahit na wala ako riyan ng personal, nariyan naman ako sa espiritu. At sa pangalan ng ating Panginoong Jesu-Cristo, hinatulan ko na ang taong iyon. Kaya sa pagtitipon ninyo, isipin ninyo na parang nariyan na rin ako sa espiritu. At sa kapangyarihang ibinigay sa atin ng ating Panginoong Jesu-Cristo, 
 
@@ -108,7 +108,7 @@ At sa kabila ng pangyayaring ito,_ nagawa pa ninyong magyabang! Dapat sana ay na
 
 
 
-ipaubaya ninyo kay Satanas ang taong iyon upang mapahamak ang kanyang katawan at maligtas ang kanyang espiritu sa araw ng paghuhukom ng_ Panginoon. 
+ipaubaya ninyo kay Satanas ang taong iyon upang mapahamak ang kanyang katawan at maligtas ang kanyang espiritu sa araw ng paghuhukom ng Panginoon. 
 
 
 
@@ -174,7 +174,7 @@ Hindi tama ang pagyayabang ninyo. Hindi nʼyo ba alam ang kasabihang, "Ang kaunt
 
 
 
-Kaya alisin ninyo ang lumang pampaalsa na walang iba kundi ang kasalanan_, upang maging bago at malinis kayo. Sa katunayan, nilinis na kayo dahil inialay si Cristo para sa atin. Tulad siya ng tupang iniaalay tuwing Pista ng Paglampas ng Anghel. 
+Kaya alisin ninyo ang lumang pampaalsa na walang iba kundi ang kasalanan, upang maging bago at malinis kayo. Sa katunayan, nilinis na kayo dahil inialay si Cristo para sa atin. Tulad siya ng tupang iniaalay tuwing Pista ng Paglampas ng Anghel. 
 
 
 
@@ -306,4 +306,4 @@ Hindi ko tinutukoy dito ang mga taong hindi sumasampalataya sa Dios – ang mga 
 
 
 
-Ang tinutukoy ko na huwag ninyong pakikisamahan ay ang mga nagsasabing silaʼy mga kapatid sa Panginoon_ pero mga imoral, sakim, sumasamba sa dios-diosan, mapanlait, lasenggo, at magnanakaw. Ni huwag kayong makisalo sa kanila sa pagkain. 12-13Kung sabagay, ano ba ang karapatan nating husgahan ang mga hindi mananampalataya? Ang Dios na ang huhusga sa kanila. Ngunit tungkulin ninyo na husgahan ang mga kapatid kung tama o mali ang kanilang ginagawa, dahil sinasabi ng Kasulatan,_ "Paalisin ninyo sa inyong grupo ang taong masama."
+Ang tinutukoy ko na huwag ninyong pakikisamahan ay ang mga nagsasabing silaʼy mga kapatid sa Panginoon pero mga imoral, sakim, sumasamba sa dios-diosan, mapanlait, lasenggo, at magnanakaw. Ni huwag kayong makisalo sa kanila sa pagkain. 12-13Kung sabagay, ano ba ang karapatan nating husgahan ang mga hindi mananampalataya? Ang Dios na ang huhusga sa kanila. Ngunit tungkulin ninyo na husgahan ang mga kapatid kung tama o mali ang kanilang ginagawa, dahil sinasabi ng Kasulatan, "Paalisin ninyo sa inyong grupo ang taong masama."

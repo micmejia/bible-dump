@@ -40,7 +40,7 @@ next: ['Deut 5']
 
 
 
-Pagkatapos, sinabi ni Moises sa mga Israelita_, "Pakinggan ninyo ang mga utos at tuntunin na ituturo ko sa inyo. Sundin ninyo ito para mabuhay kayo at makapanirahan sa lupaing ibinibigay sa inyo ng Panginoon, ang Dios ng inyong mga ninuno. 
+Pagkatapos, sinabi ni Moises sa mga Israelita, "Pakinggan ninyo ang mga utos at tuntunin na ituturo ko sa inyo. Sundin ninyo ito para mabuhay kayo at makapanirahan sa lupaing ibinibigay sa inyo ng Panginoon, ang Dios ng inyong mga ninuno. 
 
 
 
@@ -304,7 +304,7 @@ At wala nang iba pang makapangyarihang bansa na may mga utos at tuntunin na katu
 
 
 
-Pero mag-ingat kayo! Huwag ninyong kalilimutan ang mga bagay na inyong nakita na ginawa ng Panginoon_. Kailangang manatili ito sa inyong mga puso habang nabubuhay kayo. Sabihin ninyo ito sa inyong mga anak at mga apo. 
+Pero mag-ingat kayo! Huwag ninyong kalilimutan ang mga bagay na inyong nakita na ginawa ng Panginoon. Kailangang manatili ito sa inyong mga puso habang nabubuhay kayo. Sabihin ninyo ito sa inyong mga anak at mga apo. 
 
 
 
@@ -337,7 +337,7 @@ Pero mag-ingat kayo! Huwag ninyong kalilimutan ang mga bagay na inyong nakita na
 
 
 
-Alalahanin ninyo ang araw na tumayo kayo sa harap ng Panginoon na inyong Dios sa Bundok ng_ Sinai, kung saan sinabi niya sa akin, 'Tipunin mo ang mga mamamayan sa aking presensya para makinig sa aking mga salita upang matuto silang gumalang sa akin habang nabubuhay pa sila, at para maituro nila ito sa kanilang mga anak.' 
+Alalahanin ninyo ang araw na tumayo kayo sa harap ng Panginoon na inyong Dios sa Bundok ng Sinai, kung saan sinabi niya sa akin, 'Tipunin mo ang mga mamamayan sa aking presensya para makinig sa aking mga salita upang matuto silang gumalang sa akin habang nabubuhay pa sila, at para maituro nila ito sa kanilang mga anak.' 
 
 
 
@@ -799,7 +799,7 @@ Ngunit mag-ingat kayo na hindi ninyo makalimutan ang kasunduang ginawa sa inyo n
 
 
 
-at ayaw na ayaw niyang may sinasamba kayong ibang dios. Parang apoy na nakakatupok kapag nagparusa_ ang Panginoon na inyong Dios. 
+at ayaw na ayaw niyang may sinasamba kayong ibang dios. Parang apoy na nakakatupok kapag nagparusa ang Panginoon na inyong Dios. 
 
 
 
@@ -865,7 +865,7 @@ at ayaw na ayaw niyang may sinasamba kayong ibang dios. Parang apoy na nakakatup
 
 
 
-"Sa araw na ito, itinuturing kong saksi ang langit at lupa laban sa inyo. Kung hindi ninyo ako susundin_, hindi kayo magtatagal sa lupain na inyong mamanahin sa kabila ng Jordan. Maninirahan kayo roon sa sandaling panahon lang, at pagkatapos ay malilipol kayo ng lubusan. 
+"Sa araw na ito, itinuturing kong saksi ang langit at lupa laban sa inyo. Kung hindi ninyo ako susundin, hindi kayo magtatagal sa lupain na inyong mamanahin sa kabila ng Jordan. Maninirahan kayo roon sa sandaling panahon lang, at pagkatapos ay malilipol kayo ng lubusan. 
 
 
 
@@ -1626,4 +1626,4 @@ Ang kanilang mga lupain na nasakop ng mga Israelita ay mula sa Aroer na nasa ita
 
 
 
-at ang lahat ng lupain sa Lambak ng Jordan sa silangan ng Ilog ng_ Jordan hanggang sa Dagat na Patay, sa ibabang bahagi ng libis ng Pisga.
+at ang lahat ng lupain sa Lambak ng Jordan sa silangan ng Ilog ng Jordan hanggang sa Dagat na Patay, sa ibabang bahagi ng libis ng Pisga.

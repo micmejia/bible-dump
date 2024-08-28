@@ -13,7 +13,7 @@ next: ['John 14']
 Now before the Feast of the Passover, when Jesus knew that His hour had come that He should depart from this world to the Father, having loved His own who were in the world, He loved them to the end. 
 
 ###### 2 
-And supper being ended, the devil having already put it into the heart of Judas Iscariot, Simon's _son,_ to betray Him, 
+And supper being ended, the devil having already put it into the heart of Judas Iscariot, Simon's son, to betray Him, 
 
 ###### 3 
 Jesus, knowing that the Father had given all things into His hands, and that He had come from God and was going to God, 
@@ -22,10 +22,10 @@ Jesus, knowing that the Father had given all things into His hands, and that He 
 rose from supper and laid aside His garments, took a towel and girded Himself. 
 
 ###### 5 
-After that, He poured water into a basin and began to wash the disciples' feet, and to wipe _them_ with the towel with which He was girded. 
+After that, He poured water into a basin and began to wash the disciples' feet, and to wipe them with the towel with which He was girded. 
 
 ###### 6 
-Then He came to Simon Peter. And _Peter_ said to Him, "Lord, are You washing my feet?" 
+Then He came to Simon Peter. And Peter said to Him, "Lord, are You washing my feet?" 
 
 ###### 7 
 Jesus answered and said to him, "What I am doing you do not understand now, but you will know after this." 
@@ -34,10 +34,10 @@ Jesus answered and said to him, "What I am doing you do not understand now, but 
 Peter said to Him, "You shall never wash my feet!" Jesus answered him, "If I do not wash you, you have no part with Me." 
 
 ###### 9 
-Simon Peter said to Him, "Lord, not my feet only, but also _my_ hands and _my_ head!" 
+Simon Peter said to Him, "Lord, not my feet only, but also my hands and my head!" 
 
 ###### 10 
-Jesus said to him, "He who is bathed needs only to wash _his_ feet, but is completely clean; and you are clean, but not all of you." 
+Jesus said to him, "He who is bathed needs only to wash his feet, but is completely clean; and you are clean, but not all of you." 
 
 ###### 11 
 For He knew who would betray Him; therefore He said, "You are not all clean." 
@@ -46,10 +46,10 @@ For He knew who would betray Him; therefore He said, "You are not all clean."
 So when He had washed their feet, taken His garments, and sat down again, He said to them, "Do you know what I have done to you? 
 
 ###### 13 
-You call Me Teacher and Lord, and you say well, for _so_ I am. 
+You call Me Teacher and Lord, and you say well, for so I am. 
 
 ###### 14 
-If I then, _your_ Lord and Teacher, have washed your feet, you also ought to wash one another's feet. 
+If I then, your Lord and Teacher, have washed your feet, you also ought to wash one another's feet. 
 
 ###### 15 
 For I have given you an example, that you should do as I have done to you. 
@@ -66,7 +66,7 @@ If you know these things, blessed are you if you do them.
 "I do not speak concerning all of you. I know whom I have chosen; but that the Scripture may be fulfilled, 'He who eats bread with Me has lifted up his heel against Me.' 
 
 ###### 19 
-Now I tell you before it comes, that when it does come to pass, you may believe that I am _He._ 
+Now I tell you before it comes, that when it does come to pass, you may believe that I am He. 
 
 ###### 20 
 Most assuredly, I say to you, he who receives whomever I send receives Me; and he who receives Me receives Him who sent Me." 
@@ -87,7 +87,7 @@ Simon Peter therefore motioned to him to ask who it was of whom He spoke.
 Then, leaning back on Jesus' breast, he said to Him, "Lord, who is it?" 
 
 ###### 26 
-Jesus answered, "It is he to whom I shall give a piece of bread when I have dipped _it._" And having dipped the bread, He gave _it_ to Judas Iscariot, _the son_ of Simon. 
+Jesus answered, "It is he to whom I shall give a piece of bread when I have dipped it." And having dipped the bread, He gave it to Judas Iscariot, the son of Simon. 
 
 ###### 27 
 Now after the piece of bread, Satan entered him. Then Jesus said to him, "What you do, do quickly." 
@@ -96,7 +96,7 @@ Now after the piece of bread, Satan entered him. Then Jesus said to him, "What y
 But no one at the table knew for what reason He said this to him. 
 
 ###### 29 
-For some thought, because Judas had the money box, that Jesus had said to him, "Buy _those things_ we need for the feast," or that he should give something to the poor. 
+For some thought, because Judas had the money box, that Jesus had said to him, "Buy those things we need for the feast," or that he should give something to the poor. 
 
 ###### 30 
 Having received the piece of bread, he then went out immediately. And it was night.

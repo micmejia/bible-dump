@@ -139,7 +139,7 @@ Ipinakita ni Solomon ang pagmamahal niya sa Panginoon sa pamamagitan ng pagtupad
 
 
 
-Isang araw,_ pumunta si Haring Solomon sa Gibeon para maghandog dahil naroon ang pinakatanyag na sambahan sa mataas na lugar. Nag-alay siya sa altar ng 1,000 handog na sinusunog. 
+Isang araw, pumunta si Haring Solomon sa Gibeon para maghandog dahil naroon ang pinakatanyag na sambahan sa mataas na lugar. Nag-alay siya sa altar ng 1,000 handog na sinusunog. 
 
 
 
@@ -502,7 +502,7 @@ At kung susunod ka sa aking mga pamamaraan at tutupad sa aking mga tuntunin at m
 
 
 
-Nagising si Solomon, at naunawaan niya na nakipag-usap ang Panginoon sa kanya sa pamamagitan ng panaginip. Pagbalik ni Solomon sa Jerusalem, tumayo siya sa harap ng Kahon ng Kasunduan ng Panginoon at nag-alay ng mga handog na sinusunog at mga handog para sa mabuting relasyon. Nagpahanda agad siya ng mga pagkain_ para sa lahat ng pinuno niya.
+Nagising si Solomon, at naunawaan niya na nakipag-usap ang Panginoon sa kanya sa pamamagitan ng panaginip. Pagbalik ni Solomon sa Jerusalem, tumayo siya sa harap ng Kahon ng Kasunduan ng Panginoon at nag-alay ng mga handog na sinusunog at mga handog para sa mabuting relasyon. Nagpahanda agad siya ng mga pagkain para sa lahat ng pinuno niya.
 
 ## Ang Mahusay na Paghatol ni Solomon 
 
@@ -537,7 +537,7 @@ Nagising si Solomon, at naunawaan niya na nakipag-usap ang Panginoon sa kanya sa
 
 
 
-May dalawang babaeng bayaran na pumunta kay Haring Solomon_. 
+May dalawang babaeng bayaran na pumunta kay Haring Solomon. 
 
 
 

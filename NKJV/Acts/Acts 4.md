@@ -16,7 +16,7 @@ Now as they spoke to the people, the priests, the captain of the temple, and the
 being greatly disturbed that they taught the people and preached in Jesus the resurrection from the dead. 
 
 ###### 3 
-And they laid hands on them, and put _them_ in custody until the next day, for it was already evening. 
+And they laid hands on them, and put them in custody until the next day, for it was already evening. 
 
 ###### 4 
 However, many of those who heard the word believed; and the number of the men came to be about five thousand.
@@ -36,7 +36,7 @@ And when they had set them in the midst, they asked, "By what power or by what n
 Then Peter, filled with the Holy Spirit, said to them, "Rulers of the people and elders of Israel: 
 
 ###### 9 
-If we this day are judged for a good deed _done_ to a helpless man, by what means he has been made well, 
+If we this day are judged for a good deed done to a helpless man, by what means he has been made well, 
 
 ###### 10 
 let it be known to you all, and to all the people of Israel, that by the name of Jesus Christ of Nazareth, whom you crucified, whom God raised from the dead, by Him this man stands here before you whole. 
@@ -57,7 +57,7 @@ And seeing the man who had been healed standing with them, they could say nothin
 But when they had commanded them to go aside out of the council, they conferred among themselves, 
 
 ###### 16 
-saying, "What shall we do to these men? For, indeed, that a notable miracle has been done through them _is_ evident to all who dwell in Jerusalem, and we cannot deny _it._ 
+saying, "What shall we do to these men? For, indeed, that a notable miracle has been done through them is evident to all who dwell in Jerusalem, and we cannot deny it. 
 
 ###### 17 
 But so that it spreads no further among the people, let us severely threaten them, that from now on they speak to no man in this name." 
@@ -80,10 +80,10 @@ For the man was over forty years old on whom this miracle of healing had been pe
 ## Prayer for Boldness 
 
 ###### 23 
-And being let go, they went to their own _companions_ and reported all that the chief priests and elders had said to them. 
+And being let go, they went to their own companions and reported all that the chief priests and elders had said to them. 
 
 ###### 24 
-So when they heard that, they raised their voice to God with one accord and said: "Lord, You _are_ God, who made heaven and earth and the sea, and all that is in them, 
+So when they heard that, they raised their voice to God with one accord and said: "Lord, You are God, who made heaven and earth and the sea, and all that is in them, 
 
 ###### 25 
 who by the mouth of Your servant David have said: 'Why did the nations rage, And the people plot vain things? 
@@ -118,10 +118,10 @@ And with great power the apostles gave witness to the resurrection of the Lord J
 Nor was there anyone among them who lacked; for all who were possessors of lands or houses sold them, and brought the proceeds of the things that were sold, 
 
 ###### 35 
-and laid _them_ at the apostles' feet; and they distributed to each as anyone had need. 
+and laid them at the apostles' feet; and they distributed to each as anyone had need. 
 
 ###### 36 
 And Joses, who was also named Barnabas by the apostles (which is translated Son of Encouragement), a Levite of the country of Cyprus, 
 
 ###### 37 
-having land, sold _it,_ and brought the money and laid _it_ at the apostles' feet.
+having land, sold it, and brought the money and laid it at the apostles' feet.

@@ -16,13 +16,13 @@ Beloved, do not believe every spirit, but test the spirits, whether they are of 
 By this you know the Spirit of God: Every spirit that confesses that Jesus Christ has come in the flesh is of God, 
 
 ###### 3 
-and every spirit that does not confess that Jesus Christ has come in the flesh is not of God. And this is the _spirit_ of the Antichrist, which you have heard was coming, and is now already in the world. 
+and every spirit that does not confess that Jesus Christ has come in the flesh is not of God. And this is the spirit of the Antichrist, which you have heard was coming, and is now already in the world. 
 
 ###### 4 
 You are of God, little children, and have overcome them, because He who is in you is greater than he who is in the world. 
 
 ###### 5 
-They are of the world. Therefore they speak _as_ of the world, and the world hears them. 
+They are of the world. Therefore they speak as of the world, and the world hears them. 
 
 ###### 6 
 We are of God. He who knows God hears us; he who is not of God does not hear us. By this we know the spirit of truth and the spirit of error.
@@ -39,7 +39,7 @@ He who does not love does not know God, for God is love.
 In this the love of God was manifested toward us, that God has sent His only begotten Son into the world, that we might live through Him. 
 
 ###### 10 
-In this is love, not that we loved God, but that He loved us and sent His Son _to be_ the propitiation for our sins. 
+In this is love, not that we loved God, but that He loved us and sent His Son to be the propitiation for our sins. 
 
 ###### 11 
 Beloved, if God so loved us, we also ought to love one another.
@@ -53,7 +53,7 @@ No one has seen God at any time. If we love one another, God abides in us, and H
 By this we know that we abide in Him, and He in us, because He has given us of His Spirit. 
 
 ###### 14 
-And we have seen and testify that the Father has sent the Son _as_ Savior of the world. 
+And we have seen and testify that the Father has sent the Son as Savior of the world. 
 
 ###### 15 
 Whoever confesses that Jesus is the Son of God, God abides in him, and he in God. 
@@ -78,4 +78,4 @@ We love Him because He first loved us.
 If someone says, "I love God," and hates his brother, he is a liar; for he who does not love his brother whom he has seen, how can he love God whom he has not seen? 
 
 ###### 21 
-And this commandment we have from Him: that he who loves God _must_ love his brother also.
+And this commandment we have from Him: that he who loves God must love his brother also.

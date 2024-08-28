@@ -106,7 +106,7 @@ Sinabi ng Panginoon kay Moises,
 
 
 
-Kaya sinunod ni Moises ang iniutos sa kanya ng Panginoon. Ipinadala niya sa Canaan_ ang mga pinuno ng mga Israelita mula roon sa Disyerto ng Paran. 4-15Ito ang mga lahi_ at mga pangalan nila: 
+Kaya sinunod ni Moises ang iniutos sa kanya ng Panginoon. Ipinadala niya sa Canaan ang mga pinuno ng mga Israelita mula roon sa Disyerto ng Paran. 4-15Ito ang mga lahi at mga pangalan nila: 
 
 
 
@@ -370,7 +370,7 @@ Nag-umpisa sila sa Negev hanggang sa nakarating sila sa Hebron, kung saan nakati
 
 
 
-Pagdating nila sa Lambak ng Eshcol, pumutol sila ng isang kumpol ng ubas. Masyadong mabigat ito_ kaya itinali nila ito sa isang tukod at magkatulong na binuhat ng dalawang tao. Nagdala rin sila ng mga prutas na_ pomegranata at igos. 
+Pagdating nila sa Lambak ng Eshcol, pumutol sila ng isang kumpol ng ubas. Masyadong mabigat ito kaya itinali nila ito sa isang tukod at magkatulong na binuhat ng dalawang tao. Nagdala rin sila ng mga prutas na pomegranata at igos. 
 
 
 
@@ -568,7 +568,7 @@ Pero makapangyarihan ang mga taong nakatira roon, at malalaki ang kanilang mga l
 
 
 
-Nakatira ang mga Amalekita sa Negev; ang mga Heteo, Jebuseo at mga Amoreo sa kabundukan; at ang mga Cananeo naman ay nakatira malapit sa dagat at sa tabi ng Ilog ng_ Jordan." 
+Nakatira ang mga Amalekita sa Negev; ang mga Heteo, Jebuseo at mga Amoreo sa kabundukan; at ang mga Cananeo naman ay nakatira malapit sa dagat at sa tabi ng Ilog ng Jordan." 
 
 
 

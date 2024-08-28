@@ -700,7 +700,7 @@ Panginoon, iniligtas nʼyo po ako, kaya sa saliw ng tugtog, aawit kami sa inyong
 
 
 
-Noong hindi pa gumagaling si Hezekia,_ sinabi sa kanya ni Isaias na patapalan niya sa kanyang mga katulong ng dinikdik na bunga ng igos ang bukol niya para gumaling. 
+Noong hindi pa gumagaling si Hezekia, sinabi sa kanya ni Isaias na patapalan niya sa kanyang mga katulong ng dinikdik na bunga ng igos ang bukol niya para gumaling. 
 
 
 
@@ -733,4 +733,4 @@ Noong hindi pa gumagaling si Hezekia,_ sinabi sa kanya ni Isaias na patapalan ni
 
 
 
-Nagtanong si Hezekia, "Ano ang palatandaan na magpapatunay na ako ngaʼy gagaling at_ makakapunta sa templo ng Panginoon?"
+Nagtanong si Hezekia, "Ano ang palatandaan na magpapatunay na ako ngaʼy gagaling at makakapunta sa templo ng Panginoon?"

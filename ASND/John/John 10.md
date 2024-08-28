@@ -40,7 +40,7 @@ next: ['John 11']
 
 
 
-Nagsalita si Jesus sa pamamagitan ng paghahalintulad. Sinabi niya,_ "Sinasabi ko sa inyo ang totoo, ang pumapasok sa kulungan ng mga tupa nang hindi dumadaan sa pintuan, kundi umaakyat sa pader ay magnanakaw at tulisan. 
+Nagsalita si Jesus sa pamamagitan ng paghahalintulad. Sinabi niya, "Sinasabi ko sa inyo ang totoo, ang pumapasok sa kulungan ng mga tupa nang hindi dumadaan sa pintuan, kundi umaakyat sa pader ay magnanakaw at tulisan. 
 
 
 
@@ -240,7 +240,7 @@ Sinabi ni Jesus sa mga tao ang paghahalintulad na ito, pero hindi nila naintindi
 
 
 
-Kaya muling sinabi ni Jesus, "Sinasabi ko sa inyo ang totoo, ako ang pintuan na dinadaanan_ ng mga tupa. 
+Kaya muling sinabi ni Jesus, "Sinasabi ko sa inyo ang totoo, ako ang pintuan na dinadaanan ng mga tupa. 
 
 
 
@@ -273,7 +273,7 @@ Kaya muling sinabi ni Jesus, "Sinasabi ko sa inyo ang totoo, ako ang pintuan na 
 
 
 
-May mga tagapagturo na_ nauna sa akin, na ang katulad ay_ mga magnanakaw at mga tulisan. Ngunit hindi sila pinakinggan ng aking_ mga tupa. 
+May mga tagapagturo na nauna sa akin, na ang katulad ay mga magnanakaw at mga tulisan. Ngunit hindi sila pinakinggan ng aking mga tupa. 
 
 
 
@@ -471,7 +471,7 @@ Tumatakas siya dahil bayaran lang siya at walang malasakit sa mga tupa. 14-15Ako
 
 
 
-May iba pa akong mga tupa na wala sa kawan na ito ng mga Judio_. Kinakailangan ko rin silang tipunin. Pakikinggan din nila ang mga salita ko, at ang lahat ng nakikinig sa akin ay magiging isang kawan na lang na may iisang pastol. 
+May iba pa akong mga tupa na wala sa kawan na ito ng mga Judio. Kinakailangan ko rin silang tipunin. Pakikinggan din nila ang mga salita ko, at ang lahat ng nakikinig sa akin ay magiging isang kawan na lang na may iisang pastol. 
 
 
 
@@ -504,7 +504,7 @@ May iba pa akong mga tupa na wala sa kawan na ito ng mga Judio_. Kinakailangan k
 
 
 
-"Mahal ako ng Ama, dahil iniaalay ko ang aking buhay para sa kanila_, at pagkatapos ay muli akong mabubuhay. 
+"Mahal ako ng Ama, dahil iniaalay ko ang aking buhay para sa kanila, at pagkatapos ay muli akong mabubuhay. 
 
 
 
@@ -966,7 +966,7 @@ Ako at ang Ama ay iisa."
 
 
 
-Nang marinig ito ng_ mga Judio, muli silang dumampot ng mga bato para batuhin siya. 
+Nang marinig ito ng mga Judio, muli silang dumampot ng mga bato para batuhin siya. 
 
 
 
@@ -1065,7 +1065,7 @@ Sumagot sila, "Hindi ka namin babatuhin dahil sa mabubuti mong gawa, kundi dahil
 
 
 
-Sumagot si Jesus, "Hindi baʼt nakasulat sa Kautusan na sinabi ng Dios na_ kayoʼy mga dios? 
+Sumagot si Jesus, "Hindi baʼt nakasulat sa Kautusan na sinabi ng Dios na kayoʼy mga dios? 
 
 
 
@@ -1263,7 +1263,7 @@ Tinangka na naman nilang dakpin si Jesus, pero nakatakas siya.
 
 
 
-Bumalik si Jesus sa kabila ng Ilog ng_ Jordan, sa lugar na pinagbautismuhan noon ni Juan. Nanatili siya roon 
+Bumalik si Jesus sa kabila ng Ilog ng Jordan, sa lugar na pinagbautismuhan noon ni Juan. Nanatili siya roon 
 
 
 

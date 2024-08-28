@@ -40,7 +40,7 @@ next: ['Matt 10']
 
 
 
-Sumakay sina Jesus sa bangka at tumawid sa kabila ng lawa_. Pagdating nila roon, umuwi si Jesus sa sarili niyang bayan. 
+Sumakay sina Jesus sa bangka at tumawid sa kabila ng lawa. Pagdating nila roon, umuwi si Jesus sa sarili niyang bayan. 
 
 
 
@@ -205,7 +205,7 @@ Alin ba ang mas madaling sabihin: 'Pinatawad na ang mga kasalanan mo,' o 'Tumayo
 
 
 
-Ngayon, papatunayan ko sa inyo sa pamamagitan ng pagpapagaling sa taong ito_ na akong_ Anak ng Tao ay may kapangyarihan dito sa lupa na magpatawad ng kasalanan." At sinabi niya sa paralitiko, "Tumayo ka, buhatin mo ang iyong higaan at umuwi ka!" 
+Ngayon, papatunayan ko sa inyo sa pamamagitan ng pagpapagaling sa taong ito na akong Anak ng Tao ay may kapangyarihan dito sa lupa na magpatawad ng kasalanan." At sinabi niya sa paralitiko, "Tumayo ka, buhatin mo ang iyong higaan at umuwi ka!" 
 
 
 
@@ -339,7 +339,7 @@ Nang umalis na roon si Jesus, nakita niya ang isang lalaking nagngangalang Mateo
 
 
 
-Habang kumakain si Jesus at ang mga tagasunod niya sa bahay ni Mateo_, nagdatingan ang maraming maniningil ng buwis at ang iba pang mga itinuturing na_ makasalanan at kumaing kasama nila. 
+Habang kumakain si Jesus at ang mga tagasunod niya sa bahay ni Mateo, nagdatingan ang maraming maniningil ng buwis at ang iba pang mga itinuturing na makasalanan at kumaing kasama nila. 
 
 
 
@@ -438,7 +438,7 @@ Nang marinig ito ni Jesus, sinabi niya sa kanila, "Hindi ang mga walang sakit an
 
 
 
-Umalis na kayo at pag-isipan nʼyo kung ano ang kahulugan ng sinasabing ito ng Kasulatan_: 'Hindi ang handog ninyo_ ang hinahangad ko kundi ang maging maawain kayo_.' Sapagkat naparito ako hindi upang tawagin ang mga taong matuwid sa kanilang sariling paningin_, kundi ang mga makasalanan." ## Ang Tanong tungkol sa Pag-aayuno 
+Umalis na kayo at pag-isipan nʼyo kung ano ang kahulugan ng sinasabing ito ng Kasulatan: 'Hindi ang handog ninyo ang hinahangad ko kundi ang maging maawain kayo.' Sapagkat naparito ako hindi upang tawagin ang mga taong matuwid sa kanilang sariling paningin, kundi ang mga makasalanan." ## Ang Tanong tungkol sa Pag-aayuno 
 
 
 
@@ -471,7 +471,7 @@ Umalis na kayo at pag-isipan nʼyo kung ano ang kahulugan ng sinasabing ito ng K
 
 
 
-May ilang mga tagasunod ni Juan na Tagapagbautismo_ ang pumunta kay Jesus at nagtanong, "Kami at ang mga Pariseo ay madalas mag-ayuno. Bakit hindi nag-aayuno ang mga tagasunod ninyo?" 
+May ilang mga tagasunod ni Juan na Tagapagbautismo ang pumunta kay Jesus at nagtanong, "Kami at ang mga Pariseo ay madalas mag-ayuno. Bakit hindi nag-aayuno ang mga tagasunod ninyo?" 
 
 
 
@@ -504,7 +504,7 @@ May ilang mga tagasunod ni Juan na Tagapagbautismo_ ang pumunta kay Jesus at nag
 
 
 
-Sumagot si Jesus, "Maaari bang magdalamhati ang mga panauhin sa kasalan habang kasama pa nila ang lalaking ikakasal? Siyempre, hindi!_ Ngunit darating ang araw na kukunin sa kanila ang lalaking ikakasal, at saka sila mag-aayuno." 
+Sumagot si Jesus, "Maaari bang magdalamhati ang mga panauhin sa kasalan habang kasama pa nila ang lalaking ikakasal? Siyempre, hindi! Ngunit darating ang araw na kukunin sa kanila ang lalaking ikakasal, at saka sila mag-aayuno." 
 
 
 
@@ -537,7 +537,7 @@ Sumagot si Jesus, "Maaari bang magdalamhati ang mga panauhin sa kasalan habang k
 
 
 
-Sinabi pa ni Jesus,_ "Walang nagtatagpi ng bagong tela sa lumang damit, dahil kapag nilabhan_ uurong ang bagong tela at lalo pang lalaki ang punit. 
+Sinabi pa ni Jesus, "Walang nagtatagpi ng bagong tela sa lumang damit, dahil kapag nilabhan uurong ang bagong tela at lalo pang lalaki ang punit. 
 
 
 
@@ -603,7 +603,7 @@ Wala ring naglalagay ng bagong alak sa lumang sisidlang-balat, dahil puputok ang
 
 
 
-Habang sinasabi niya ang mga ito, dumating ang isang namumuno ng sambahan ng mga Judio_. Lumuhod ito sa kanyang harapan at sinabi, "Kamamatay lang po ng anak kong babae, pero kung pupuntahan nʼyo siya at ipapatong ang inyong kamay sa kanya, mabubuhay siyang muli." 
+Habang sinasabi niya ang mga ito, dumating ang isang namumuno ng sambahan ng mga Judio. Lumuhod ito sa kanyang harapan at sinabi, "Kamamatay lang po ng anak kong babae, pero kung pupuntahan nʼyo siya at ipapatong ang inyong kamay sa kanya, mabubuhay siyang muli." 
 
 
 
@@ -935,7 +935,7 @@ Pagkaalis ni Jesus sa lugar na iyon, sumunod sa kanya ang dalawang bulag na sumi
 
 
 
-Pagdating ni Jesus sa bahay na kanyang tutuluyan_, lumapit sa kanya ang mga bulag na lalaki. Tinanong sila ni Jesus, "Naniniwala ba kayo na kaya ko kayong pagalingin?" Sumagot sila, "Opo, Panginoon." 
+Pagdating ni Jesus sa bahay na kanyang tutuluyan, lumapit sa kanya ang mga bulag na lalaki. Tinanong sila ni Jesus, "Naniniwala ba kayo na kaya ko kayong pagalingin?" Sumagot sila, "Opo, Panginoon." 
 
 
 

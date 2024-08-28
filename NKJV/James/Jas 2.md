@@ -10,7 +10,7 @@ next: ['Jas 3']
 
 
 ###### 1 
-My brethren, do not hold the faith of our Lord Jesus Christ, _the Lord_ of glory, with partiality. 
+My brethren, do not hold the faith of our Lord Jesus Christ, the Lord of glory, with partiality. 
 
 ###### 2 
 For if there should come into your assembly a man with gold rings, in fine apparel, and there should also come in a poor man in filthy clothes, 
@@ -22,7 +22,7 @@ and you pay attention to the one wearing the fine clothes and say to him, "You s
 have you not shown partiality among yourselves, and become judges with evil thoughts? 
 
 ###### 5 
-Listen, my beloved brethren: Has God not chosen the poor of this world _to be_ rich in faith and heirs of the kingdom which He promised to those who love Him? 
+Listen, my beloved brethren: Has God not chosen the poor of this world to be rich in faith and heirs of the kingdom which He promised to those who love Him? 
 
 ###### 6 
 But you have dishonored the poor man. Do not the rich oppress you and drag you into the courts? 
@@ -31,13 +31,13 @@ But you have dishonored the poor man. Do not the rich oppress you and drag you i
 Do they not blaspheme that noble name by which you are called? 
 
 ###### 8 
-If you really fulfill _the_ royal law according to the Scripture, "You shall love your neighbor as yourself," you do well; 
+If you really fulfill the royal law according to the Scripture, "You shall love your neighbor as yourself," you do well; 
 
 ###### 9 
 but if you show partiality, you commit sin, and are convicted by the law as transgressors. 
 
 ###### 10 
-For whoever shall keep the whole law, and yet stumble in one _point,_ he is guilty of all. 
+For whoever shall keep the whole law, and yet stumble in one point, he is guilty of all. 
 
 ###### 11 
 For He who said, "Do not commit adultery," also said, "Do not murder." Now if you do not commit adultery, but you do murder, you have become a transgressor of the law. 
@@ -51,13 +51,13 @@ For judgment is without mercy to the one who has shown no mercy. Mercy triumphs 
 ## Faith Without Works Is Dead 
 
 ###### 14 
-What _does it_ profit, my brethren, if someone says he has faith but does not have works? Can faith save him? 
+What does it profit, my brethren, if someone says he has faith but does not have works? Can faith save him? 
 
 ###### 15 
 If a brother or sister is naked and destitute of daily food, 
 
 ###### 16 
-and one of you says to them, "Depart in peace, be warmed and filled," but you do not give them the things which are needed for the body, what _does it_ profit? 
+and one of you says to them, "Depart in peace, be warmed and filled," but you do not give them the things which are needed for the body, what does it profit? 
 
 ###### 17 
 Thus also faith by itself, if it does not have works, is dead. 
@@ -84,7 +84,7 @@ And the Scripture was fulfilled which says, "Abraham believed God, and it was ac
 You see then that a man is justified by works, and not by faith only. 
 
 ###### 25 
-Likewise, was not Rahab the harlot also justified by works when she received the messengers and sent _them_ out another way? 
+Likewise, was not Rahab the harlot also justified by works when she received the messengers and sent them out another way? 
 
 ###### 26 
 For as the body without the spirit is dead, so faith without works is dead also.

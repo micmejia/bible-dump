@@ -72,7 +72,7 @@ Nang mamatay na si Moises na lingkod ng Panginoon, sinabi ng Panginoon sa kanang
 
 
 
-"Patay na ang lingkod kong si Moises. Kaya ngayon, maghanda kayo, ikaw at ang lahat ng Israelita, sa pagtawid sa Ilog ng_ Jordan papunta sa lupaing ibibigay ko sa inyo. 
+"Patay na ang lingkod kong si Moises. Kaya ngayon, maghanda kayo, ikaw at ang lahat ng Israelita, sa pagtawid sa Ilog ng Jordan papunta sa lupaing ibibigay ko sa inyo. 
 
 
 
@@ -138,7 +138,7 @@ Ayon sa ipinangako ko kay Moises, ibibigay ko sa inyo ang lahat ng lupaing marar
 
 
 
-Ito ang magiging teritoryo nʼyo: mula sa disyerto sa timog_ hanggang sa kabundukan ng_ Lebanon sa hilaga_, at mula sa malaking Ilog ng Eufrates sa silangan_, hanggang sa Dagat ng Mediteraneo sa kanluran_, at ang lupain ng mga Heteo. 
+Ito ang magiging teritoryo nʼyo: mula sa disyerto sa timog hanggang sa kabundukan ng Lebanon sa hilaga, at mula sa malaking Ilog ng Eufrates sa silangan, hanggang sa Dagat ng Mediteraneo sa kanluran, at ang lupain ng mga Heteo. 
 
 
 
@@ -303,7 +303,7 @@ Huwag mong kalimutang basahin ang Aklat ng Kautusan. Pagbulay-bulayan mo ito ara
 
 
 
-Alalahanin mo palagi ang bilin ko sa iyo: Magpakatatag ka at magpakatapang. Huwag kang matakot o kayaʼy manghina, dahil ako,_ ang Panginoon na iyong Dios, ay sasaiyo kahit saan ka pumaroon." 
+Alalahanin mo palagi ang bilin ko sa iyo: Magpakatatag ka at magpakatapang. Huwag kang matakot o kayaʼy manghina, dahil ako, ang Panginoon na iyong Dios, ay sasaiyo kahit saan ka pumaroon." 
 
 
 
@@ -369,7 +369,7 @@ Kaya, inutusan ni Josue ang mga pinuno ng Israel,
 
 
 
-"Libutin ninyo ang kampo at sabihin ninyo sa mga tao na maghanda sila ng mga pagkain nila dahil sa ikatlong araw mula ngayon, tatawid tayo sa Ilog ng_ Jordan para angkinin ang lupaing ibinigay sa atin ng Panginoon na ating Dios." 
+"Libutin ninyo ang kampo at sabihin ninyo sa mga tao na maghanda sila ng mga pagkain nila dahil sa ikatlong araw mula ngayon, tatawid tayo sa Ilog ng Jordan para angkinin ang lupaing ibinigay sa atin ng Panginoon na ating Dios." 
 
 
 
@@ -468,7 +468,7 @@ At sinabi ni Josue sa mga lahi nina Reuben, Gad at sa kalahating lahi ni Manase,
 
 
 
-Ang silangang bahagi ng Ilog ng_ Jordan. Mananatili rito ang mga asawa, mga anak at mga hayop ninyo. Pero dapat mauna ang mga sundalo sa pagtawid sa Jordan_ para tulungan ang mga kapatid ninyo, 
+Ang silangang bahagi ng Ilog ng Jordan. Mananatili rito ang mga asawa, mga anak at mga hayop ninyo. Pero dapat mauna ang mga sundalo sa pagtawid sa Jordan para tulungan ang mga kapatid ninyo, 
 
 
 

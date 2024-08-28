@@ -271,7 +271,7 @@ Ang akala ko ay kayo ang dapat magturo dahil matatanda na kayo at maraming nalal
 
 
 
-Pero ang totoo, ang espiritu ng Dios na_ Makapangyarihan na nasa tao, ang siyang nagbibigay ng pang-unawa. 
+Pero ang totoo, ang espiritu ng Dios na Makapangyarihan na nasa tao, ang siyang nagbibigay ng pang-unawa. 
 
 
 

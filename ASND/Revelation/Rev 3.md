@@ -106,7 +106,7 @@ Gumising kayo at pasiglahin ang natitira ninyong pananampalataya, para hindi tul
 
 
 
-Kaya alalahanin ninyo ang mga aral na tinanggap ninyo. Sundin ninyo ang mga iyon at pagsisihan ang inyong mga kasalanan_. Kung hindi kayo gigising, darating ako sa oras na hindi ninyo inaasahan, tulad ng isang magnanakaw na hindi ninyo alam kung kailan darating. 
+Kaya alalahanin ninyo ang mga aral na tinanggap ninyo. Sundin ninyo ang mga iyon at pagsisihan ang inyong mga kasalanan. Kung hindi kayo gigising, darating ako sa oras na hindi ninyo inaasahan, tulad ng isang magnanakaw na hindi ninyo alam kung kailan darating. 
 
 
 
@@ -172,7 +172,7 @@ Ngunit may ilan sa inyo riyan sa Sardis na hindi nahawa sa masamang gawain ng ib
 
 
 
-Ang magtatagumpay ay bibihisan ng puting damit at hindi ko aalisin ang pangalan niya sa aklat na listahan ng mga taong binigyan_ ng buhay na walang hanggan_. Ipapakilala ko sila sa aking Ama at sa kanyang mga anghel na sila ay mga tagasunod ko_. 
+Ang magtatagumpay ay bibihisan ng puting damit at hindi ko aalisin ang pangalan niya sa aklat na listahan ng mga taong binigyan ng buhay na walang hanggan. Ipapakilala ko sila sa aking Ama at sa kanyang mga anghel na sila ay mga tagasunod ko. 
 
 
 
@@ -205,7 +205,7 @@ Ang magtatagumpay ay bibihisan ng puting damit at hindi ko aalisin ang pangalan 
 
 
 
-"Kayong nakikinig, pag-isipan ninyong mabuti ang sinasabi ng Banal na_ Espiritu sa mga iglesya." ## Ang Sulat para sa Iglesya sa Filadelfia 
+"Kayong nakikinig, pag-isipan ninyong mabuti ang sinasabi ng Banal na Espiritu sa mga iglesya." ## Ang Sulat para sa Iglesya sa Filadelfia 
 
 
 
@@ -238,7 +238,7 @@ Ang magtatagumpay ay bibihisan ng puting damit at hindi ko aalisin ang pangalan 
 
 
 
-"Isulat mo ito para sa anghel na nagbabantay sa iglesya sa Filadelfia: "Ito ang mensahe ng banal at mapagkakatiwalaan na may hawak ng susi ng kaharian_ ni David. Kapag binuksan niya ang pinto ng kaharian_, walang makapagsasara nito. At kapag isinara niya, wala sinumang makapagbubukas nito: 
+"Isulat mo ito para sa anghel na nagbabantay sa iglesya sa Filadelfia: "Ito ang mensahe ng banal at mapagkakatiwalaan na may hawak ng susi ng kaharian ni David. Kapag binuksan niya ang pinto ng kaharian, walang makapagsasara nito. At kapag isinara niya, wala sinumang makapagbubukas nito: 
 
 
 
@@ -436,7 +436,7 @@ Ang magtatagumpay ay gagawin kong parang haligi sa bahay ng aking Dios, at hindi
 
 
 
-"Kayong nakikinig, pag-isipan ninyong mabuti ang sinasabi ng Banal na_ Espiritu sa mga iglesya." ## Ang Sulat para sa Iglesya sa Laodicea 
+"Kayong nakikinig, pag-isipan ninyong mabuti ang sinasabi ng Banal na Espiritu sa mga iglesya." ## Ang Sulat para sa Iglesya sa Laodicea 
 
 
 
@@ -502,7 +502,7 @@ Ang magtatagumpay ay gagawin kong parang haligi sa bahay ng aking Dios, at hindi
 
 
 
-Sinasabi ninyo na mayaman kayo, sagana sa lahat ng bagay at wala nang pangangailangan. Ngunit hindi nʼyo alam na kaawa-awa kayo dahil mahirap kayo sa pananampalataya,_ bulag sa katotohanan_ at hubad sa paningin ng Dios_. 
+Sinasabi ninyo na mayaman kayo, sagana sa lahat ng bagay at wala nang pangangailangan. Ngunit hindi nʼyo alam na kaawa-awa kayo dahil mahirap kayo sa pananampalataya, bulag sa katotohanan at hubad sa paningin ng Dios. 
 
 
 
@@ -535,7 +535,7 @@ Sinasabi ninyo na mayaman kayo, sagana sa lahat ng bagay at wala nang pangangail
 
 
 
-Kaya pinapayuhan ko kayong bumili sa akin ng ginto na dinalisay sa apoy upang maging totoong mayaman kayo. Bumili rin kayo sa akin ng puting damit upang matakpan ang nakakahiya ninyong kahubaran, at pati na rin ng gamot sa mata upang makita ninyo ang katotohanan_. 
+Kaya pinapayuhan ko kayong bumili sa akin ng ginto na dinalisay sa apoy upang maging totoong mayaman kayo. Bumili rin kayo sa akin ng puting damit upang matakpan ang nakakahiya ninyong kahubaran, at pati na rin ng gamot sa mata upang makita ninyo ang katotohanan. 
 
 
 
@@ -667,4 +667,4 @@ Ang magtatagumpay ay pauupuin ko sa tabi ng aking trono, tulad ko na nagtagumpay
 
 
 
-"Kayong nakikinig, pag-isipan ninyong mabuti ang sinasabi ng Banal na_ Espiritu sa mga iglesya."
+"Kayong nakikinig, pag-isipan ninyong mabuti ang sinasabi ng Banal na Espiritu sa mga iglesya."

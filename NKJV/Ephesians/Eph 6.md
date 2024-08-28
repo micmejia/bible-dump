@@ -32,7 +32,7 @@ not with eyeservice, as men-pleasers, but as bondservants of Christ, doing the w
 with goodwill doing service, as to the Lord, and not to men, 
 
 ###### 8 
-knowing that whatever good anyone does, he will receive the same from the Lord, whether _he is_ a slave or free. 
+knowing that whatever good anyone does, he will receive the same from the Lord, whether he is a slave or free. 
 
 ###### 9 
 And you, masters, do the same things to them, giving up threatening, knowing that your own Master also is in heaven, and there is no partiality with Him.
@@ -46,7 +46,7 @@ Finally, my brethren, be strong in the Lord and in the power of His might.
 Put on the whole armor of God, that you may be able to stand against the wiles of the devil. 
 
 ###### 12 
-For we do not wrestle against flesh and blood, but against principalities, against powers, against the rulers of the darkness of this age, against spiritual _hosts_ of wickedness in the heavenly _places._ 
+For we do not wrestle against flesh and blood, but against principalities, against powers, against the rulers of the darkness of this age, against spiritual hosts of wickedness in the heavenly places. 
 
 ###### 13 
 Therefore take up the whole armor of God, that you may be able to withstand in the evil day, and having done all, to stand. 
@@ -75,13 +75,13 @@ for which I am an ambassador in chains; that in it I may speak boldly, as I ough
 ## A Gracious Greeting 
 
 ###### 21 
-But that you also may know my affairs _and_ how I am doing, Tychicus, a beloved brother and faithful minister in the Lord, will make all things known to you; 
+But that you also may know my affairs and how I am doing, Tychicus, a beloved brother and faithful minister in the Lord, will make all things known to you; 
 
 ###### 22 
-whom I have sent to you for this very purpose, that you may know our affairs, and _that_ he may comfort your hearts. 
+whom I have sent to you for this very purpose, that you may know our affairs, and that he may comfort your hearts. 
 
 ###### 23 
 Peace to the brethren, and love with faith, from God the Father and the Lord Jesus Christ. 
 
 ###### 24 
-Grace _be_ with all those who love our Lord Jesus Christ in sincerity. Amen.
+Grace be with all those who love our Lord Jesus Christ in sincerity. Amen.

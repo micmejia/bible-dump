@@ -40,7 +40,7 @@ next: ['Rom 16']
 
 
 
-Tayong malalakas sa pananampalataya_ ay dapat tumulong sa mga kapatid nating mahihina sa pananampalataya_. Hindi lang ang sarili nating kapakanan ang dapat nating isipin, 
+Tayong malalakas sa pananampalataya ay dapat tumulong sa mga kapatid nating mahihina sa pananampalataya. Hindi lang ang sarili nating kapakanan ang dapat nating isipin, 
 
 
 
@@ -306,7 +306,7 @@ Sapagkat sinasabi ko sa inyo na isinugo ng Dios si Cristo para maglingkod sa mga
 
 
 
-Sinugo rin si Cristo_ para ipakita ang awa ng Dios sa mga hindi Judio, nang sa ganoon ay papurihan din nila ang Dios. Ayon nga sa Kasulatan, "Pasasalamatan kita sa piling ng mga hindi Judio, at aawit ako ng mga papuri sa iyo." 
+Sinugo rin si Cristo para ipakita ang awa ng Dios sa mga hindi Judio, nang sa ganoon ay papurihan din nila ang Dios. Ayon nga sa Kasulatan, "Pasasalamatan kita sa piling ng mga hindi Judio, at aawit ako ng mga papuri sa iyo." 
 
 
 
@@ -539,7 +539,7 @@ Ganoon pa man, sumulat pa rin ako ng walang pag-aalinlangan tungkol sa mga bagay
 
 
 
-na maging lingkod ni Cristo Jesus para sa mga hindi Judio. Naglilingkod ako sa kanila na tulad ng isang pari at ipinangangaral ko ang Magandang Balita ng Dios. Ginagawa ko ito_ para maging handog sila na katanggap-tanggap sa Dios, na itinalaga sa kanya sa pamamagitan ng Banal na Espiritu. 
+na maging lingkod ni Cristo Jesus para sa mga hindi Judio. Naglilingkod ako sa kanila na tulad ng isang pari at ipinangangaral ko ang Magandang Balita ng Dios. Ginagawa ko ito para maging handog sila na katanggap-tanggap sa Dios, na itinalaga sa kanya sa pamamagitan ng Banal na Espiritu. 
 
 
 
@@ -638,7 +638,7 @@ At wala akong ibang ipinagmamalaki kundi ang mga ginawa ni Cristo sa pamamagitan
 
 
 
-sa tulong ng mga himala at kamangha-manghang mga bagay na gawa ng kapangyarihan ng Banal na_ Espiritu. Kaya naipangaral ko ang Magandang Balita tungkol kay Cristo mula sa Jerusalem hanggang Iliricum. 
+sa tulong ng mga himala at kamangha-manghang mga bagay na gawa ng kapangyarihan ng Banal na Espiritu. Kaya naipangaral ko ang Magandang Balita tungkol kay Cristo mula sa Jerusalem hanggang Iliricum. 
 
 
 
@@ -737,7 +737,7 @@ Sinasabi sa Kasulatan, "Makikilala siya ng mga hindi pa nasasabihan ng tungkol s
 
 
 
-Ang pangangaral ko sa mga lugar dito_ ang dahilan kung bakit hanggang ngayon ay hindi pa ako nakakarating diyan sa inyo. 
+Ang pangangaral ko sa mga lugar dito ang dahilan kung bakit hanggang ngayon ay hindi pa ako nakakarating diyan sa inyo. 
 
 
 
@@ -836,7 +836,7 @@ inaasahan kong magkikita-kita na tayo ngayon. Dadaan ako riyan sa pagpunta ko sa
 
 
 
-Pero sa ngayon, kailangan ko munang pumunta sa Jerusalem para ihatid ang tulong sa mga pinabanal ng Dios_. 
+Pero sa ngayon, kailangan ko munang pumunta sa Jerusalem para ihatid ang tulong sa mga pinabanal ng Dios. 
 
 
 
@@ -869,7 +869,7 @@ Pero sa ngayon, kailangan ko munang pumunta sa Jerusalem para ihatid ang tulong 
 
 
 
-Sapagkat minabuti ng mga kapatid sa_ Macedonia at Acaya na magbigay ng tulong para sa mga mahihirap na pinabanal ng Dios_ doon sa Jerusalem. 
+Sapagkat minabuti ng mga kapatid sa Macedonia at Acaya na magbigay ng tulong para sa mga mahihirap na pinabanal ng Dios doon sa Jerusalem. 
 
 
 
@@ -1001,7 +1001,7 @@ Naniniwala ako na pagdating ko riyan, dala ko ang maraming pagpapala para sa iny
 
 
 
-Kaya nakikiusap ako sa inyo, mga kapatid, alang-alang sa Panginoong Jesu-Cristo at sa pag-ibig na bigay ng Banal na_ Espiritu, tulungan ninyo ako sa pamamagitan ng inyong taimtim na panalangin sa Dios para sa akin. 
+Kaya nakikiusap ako sa inyo, mga kapatid, alang-alang sa Panginoong Jesu-Cristo at sa pag-ibig na bigay ng Banal na Espiritu, tulungan ninyo ako sa pamamagitan ng inyong taimtim na panalangin sa Dios para sa akin. 
 
 
 
@@ -1034,7 +1034,7 @@ Kaya nakikiusap ako sa inyo, mga kapatid, alang-alang sa Panginoong Jesu-Cristo 
 
 
 
-Ipanalangin ninyo na maligtas ako sa mga di-mananampalataya sa Judea, at malugod na tanggapin ng mga pinabanal ng Dios_ sa Jerusalem ang dala kong tulong para sa kanila. 
+Ipanalangin ninyo na maligtas ako sa mga di-mananampalataya sa Judea, at malugod na tanggapin ng mga pinabanal ng Dios sa Jerusalem ang dala kong tulong para sa kanila. 
 
 
 

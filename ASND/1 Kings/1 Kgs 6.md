@@ -537,7 +537,7 @@ Ang haba naman ng kwarto sa labas ng Pinakabanal na Lugar ay 60 talampakan.
 
 
 
-Ang buong dingding sa loob ng templo ay natatakpan ng tablang_ sedro kaya hindi makita ang mga bato sa dingding. May mga inukit din ditong mga bulaklak at mga gumagapang na halaman. 
+Ang buong dingding sa loob ng templo ay natatakpan ng tablang sedro kaya hindi makita ang mga bato sa dingding. May mga inukit din ditong mga bulaklak at mga gumagapang na halaman. 
 
 
 
@@ -603,7 +603,7 @@ Inihanda ni Solomon ang Pinakabanal na Lugar sa loob ng templo para mailagay ang
 
 
 
-Ang kwartong ito ay kwadrado; ang haba, luwang at taas ay pare-parehong 30 talampakan. Ang mga dingding at kisame nito ay pinatakpan ni Solomon ng purong ginto at ganoon din ang altar na gawa sa kahoy ng_ sedro. 
+Ang kwartong ito ay kwadrado; ang haba, luwang at taas ay pare-parehong 30 talampakan. Ang mga dingding at kisame nito ay pinatakpan ni Solomon ng purong ginto at ganoon din ang altar na gawa sa kahoy ng sedro. 
 
 
 
@@ -1065,7 +1065,7 @@ Ipinagawa rin niya ang loob ng bakuran ng templo. Napapaligiran ito ng pader na 
 
 
 
-Inilagay ang pundasyon ng templo ng Panginoon nang ikalawang buwan, na siyang_ buwan ng Ziv, noong ikaapat na taon ng paghahari ni Solomon_. 
+Inilagay ang pundasyon ng templo ng Panginoon nang ikalawang buwan, na siyang buwan ng Ziv, noong ikaapat na taon ng paghahari ni Solomon. 
 
 
 
@@ -1098,4 +1098,4 @@ Inilagay ang pundasyon ng templo ng Panginoon nang ikalawang buwan, na siyang_ b
 
 
 
-Natapos ang templo nang ikawalong buwan, na siyang buwan ng Bul, noong ika-11 taon ng paghahari ni Solomon_. Pitong taon ang pagpapatayo ng templo, at sinunod ang mga detalye nito ayon sa plano.
+Natapos ang templo nang ikawalong buwan, na siyang buwan ng Bul, noong ika-11 taon ng paghahari ni Solomon. Pitong taon ang pagpapatayo ng templo, at sinunod ang mga detalye nito ayon sa plano.

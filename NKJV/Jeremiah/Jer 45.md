@@ -22,4 +22,4 @@ The word that Jeremiah the prophet spoke to Baruch the son of Neriah, when he ha
 "Thus you shall say to him, 'Thus says the Lord: "Behold, what I have built I will break down, and what I have planted I will pluck up, that is, this whole land. 
 
 ###### 5 
-And do you seek great things for yourself? Do not seek _them;_ for behold, I will bring adversity on all flesh," says the Lord. "But I will give your life to you as a prize in all places, wherever you go." ' "
+And do you seek great things for yourself? Do not seek them; for behold, I will bring adversity on all flesh," says the Lord. "But I will give your life to you as a prize in all places, wherever you go." ' "

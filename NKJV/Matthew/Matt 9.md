@@ -22,7 +22,7 @@ And at once some of the scribes said within themselves, "This Man blasphemes!"
 But Jesus, knowing their thoughts, said, "Why do you think evil in your hearts? 
 
 ###### 5 
-For which is easier, to say, '_Your_ sins are forgiven you,' or to say, 'Arise and walk'? 
+For which is easier, to say, 'Your sins are forgiven you,' or to say, 'Arise and walk'? 
 
 ###### 6 
 But that you may know that the Son of Man has power on earth to forgive sins"--then He said to the paralytic, "Arise, take up your bed, and go to your house." 
@@ -31,7 +31,7 @@ But that you may know that the Son of Man has power on earth to forgive sins"--t
 And he arose and departed to his house. 
 
 ###### 8 
-Now when the multitudes saw _it,_ they marveled and glorified God, who had given such power to men.
+Now when the multitudes saw it, they marveled and glorified God, who had given such power to men.
 
 ## Matthew the Tax Collector 
 
@@ -39,16 +39,16 @@ Now when the multitudes saw _it,_ they marveled and glorified God, who had given
 As Jesus passed on from there, He saw a man named Matthew sitting at the tax office. And He said to him, "Follow Me." So he arose and followed Him. 
 
 ###### 10 
-Now it happened, as Jesus sat at the table in the house, _that_ behold, many tax collectors and sinners came and sat down with Him and His disciples. 
+Now it happened, as Jesus sat at the table in the house, that behold, many tax collectors and sinners came and sat down with Him and His disciples. 
 
 ###### 11 
-And when the Pharisees saw _it,_ they said to His disciples, "Why does your Teacher eat with tax collectors and sinners?" 
+And when the Pharisees saw it, they said to His disciples, "Why does your Teacher eat with tax collectors and sinners?" 
 
 ###### 12 
-When Jesus heard _that,_ He said to them, "Those who are well have no need of a physician, but those who are sick. 
+When Jesus heard that, He said to them, "Those who are well have no need of a physician, but those who are sick. 
 
 ###### 13 
-But go and learn what _this_ means: 'I desire mercy and not sacrifice.' For I did not come to call the righteous, but sinners, to repentance." ## Jesus Is Questioned About Fasting 
+But go and learn what this means: 'I desire mercy and not sacrifice.' For I did not come to call the righteous, but sinners, to repentance." ## Jesus Is Questioned About Fasting 
 
 ###### 14 
 Then the disciples of John came to Him, saying, "Why do we and the Pharisees fast often, but Your disciples do not fast?" 
@@ -66,7 +66,7 @@ Nor do they put new wine into old wineskins, or else the wineskins break, the wi
 While He spoke these things to them, behold, a ruler came and worshiped Him, saying, "My daughter has just died, but come and lay Your hand on her and she will live." 
 
 ###### 19 
-So Jesus arose and followed him, and so _did_ His disciples. 
+So Jesus arose and followed him, and so did His disciples. 
 
 ###### 20 
 And suddenly, a woman who had a flow of blood for twelve years came from behind and touched the hem of His garment. 
@@ -101,7 +101,7 @@ And when He had come into the house, the blind men came to Him. And Jesus said t
 Then He touched their eyes, saying, "According to your faith let it be to you." 
 
 ###### 30 
-And their eyes were opened. And Jesus sternly warned them, saying, "See _that_ no one knows _it_." 
+And their eyes were opened. And Jesus sternly warned them, saying, "See that no one knows it." 
 
 ###### 31 
 But when they had departed, they spread the news about Him in all that country.
@@ -124,7 +124,7 @@ Then Jesus went about all the cities and villages, teaching in their synagogues,
 But when He saw the multitudes, He was moved with compassion for them, because they were weary and scattered, like sheep having no shepherd. 
 
 ###### 37 
-Then He said to His disciples, "The harvest truly _is_ plentiful, but the laborers _are_ few. 
+Then He said to His disciples, "The harvest truly is plentiful, but the laborers are few. 
 
 ###### 38 
 Therefore pray the Lord of the harvest to send out laborers into His harvest."

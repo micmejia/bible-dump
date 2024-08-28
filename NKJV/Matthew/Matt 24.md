@@ -13,10 +13,10 @@ next: ['Matt 25']
 Then Jesus went out and departed from the temple, and His disciples came up to show Him the buildings of the temple. 
 
 ###### 2 
-And Jesus said to them, "Do you not see all these things? Assuredly, I say to you, not _one_ stone shall be left here upon another, that shall not be thrown down." ## The Signs of the Times and the End of the Age 
+And Jesus said to them, "Do you not see all these things? Assuredly, I say to you, not one stone shall be left here upon another, that shall not be thrown down." ## The Signs of the Times and the End of the Age 
 
 ###### 3 
-Now as He sat on the Mount of Olives, the disciples came to Him privately, saying, "Tell us, when will these things be? And what _will be_ the sign of Your coming, and of the end of the age?" 
+Now as He sat on the Mount of Olives, the disciples came to Him privately, saying, "Tell us, when will these things be? And what will be the sign of Your coming, and of the end of the age?" 
 
 ###### 4 
 And Jesus answered and said to them: "Take heed that no one deceives you. 
@@ -25,13 +25,13 @@ And Jesus answered and said to them: "Take heed that no one deceives you.
 For many will come in My name, saying, 'I am the Christ,' and will deceive many. 
 
 ###### 6 
-And you will hear of wars and rumors of wars. See that you are not troubled; for all _these things_ must come to pass, but the end is not yet. 
+And you will hear of wars and rumors of wars. See that you are not troubled; for all these things must come to pass, but the end is not yet. 
 
 ###### 7 
 For nation will rise against nation, and kingdom against kingdom. And there will be famines, pestilences, and earthquakes in various places. 
 
 ###### 8 
-All these _are_ the beginning of sorrows. 
+All these are the beginning of sorrows. 
 
 ###### 9 
 "Then they will deliver you up to tribulation and kill you, and you will be hated by all nations for My name's sake. 
@@ -78,7 +78,7 @@ For then there will be great tribulation, such as has not been since the beginni
 And unless those days were shortened, no flesh would be saved; but for the elect's sake those days will be shortened. 
 
 ###### 23 
-"Then if anyone says to you, 'Look, here _is_ the Christ!' or 'There!' do not believe _it._ 
+"Then if anyone says to you, 'Look, here is the Christ!' or 'There!' do not believe it. 
 
 ###### 24 
 For false christs and false prophets will rise and show great signs and wonders to deceive, if possible, even the elect. 
@@ -87,7 +87,7 @@ For false christs and false prophets will rise and show great signs and wonders 
 See, I have told you beforehand. 
 
 ###### 26 
-"Therefore if they say to you, 'Look, He is in the desert!' do not go out; _or_ 'Look, _He is_ in the inner rooms!' do not believe _it._ 
+"Therefore if they say to you, 'Look, He is in the desert!' do not go out; or 'Look, He is in the inner rooms!' do not believe it. 
 
 ###### 27 
 For as the lightning comes from the east and flashes to the west, so also will the coming of the Son of Man be. 
@@ -109,7 +109,7 @@ And He will send His angels with a great sound of a trumpet, and they will gathe
 ## The Parable of the Fig Tree 
 
 ###### 32 
-"Now learn this parable from the fig tree: When its branch has already become tender and puts forth leaves, you know that summer _is_ near. 
+"Now learn this parable from the fig tree: When its branch has already become tender and puts forth leaves, you know that summer is near. 
 
 ###### 33 
 So you also, when you see all these things, know that it is near--at the doors! 
@@ -126,7 +126,7 @@ Heaven and earth will pass away, but My words will by no means pass away.
 "But of that day and hour no one knows, not even the angels of heaven, but My Father only. 
 
 ###### 37 
-But as the days of Noah _were,_ so also will the coming of the Son of Man be. 
+But as the days of Noah were, so also will the coming of the Son of Man be. 
 
 ###### 38 
 For as in the days before the flood, they were eating and drinking, marrying and giving in marriage, until the day that Noah entered the ark, 
@@ -135,10 +135,10 @@ For as in the days before the flood, they were eating and drinking, marrying and
 and did not know until the flood came and took them all away, so also will the coming of the Son of Man be. 
 
 ###### 40 
-Then two _men_ will be in the field: one will be taken and the other left. 
+Then two men will be in the field: one will be taken and the other left. 
 
 ###### 41 
-Two _women will be_ grinding at the mill: one will be taken and the other left. 
+Two women will be grinding at the mill: one will be taken and the other left. 
 
 ###### 42 
 Watch therefore, for you do not know what hour your Lord is coming. 
@@ -155,7 +155,7 @@ Therefore you also be ready, for the Son of Man is coming at an hour you do not 
 "Who then is a faithful and wise servant, whom his master made ruler over his household, to give them food in due season? 
 
 ###### 46 
-Blessed _is_ that servant whom his master, when he comes, will find so doing. 
+Blessed is that servant whom his master, when he comes, will find so doing. 
 
 ###### 47 
 Assuredly, I say to you that he will make him ruler over all his goods. 
@@ -164,10 +164,10 @@ Assuredly, I say to you that he will make him ruler over all his goods.
 But if that evil servant says in his heart, 'My master is delaying his coming,' 
 
 ###### 49 
-and begins to beat _his_ fellow servants, and to eat and drink with the drunkards, 
+and begins to beat his fellow servants, and to eat and drink with the drunkards, 
 
 ###### 50 
-the master of that servant will come on a day when he is not looking for _him_ and at an hour that he is not aware of, 
+the master of that servant will come on a day when he is not looking for him and at an hour that he is not aware of, 
 
 ###### 51 
-and will cut him in two and appoint _him_ his portion with the hypocrites. There shall be weeping and gnashing of teeth.
+and will cut him in two and appoint him his portion with the hypocrites. There shall be weeping and gnashing of teeth.

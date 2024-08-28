@@ -18,16 +18,16 @@ And the Lord gave Jehoiakim king of Judah into his hand, with some of the articl
 Then the king instructed Ashpenaz, the master of his eunuchs, to bring some of the children of Israel and some of the king's descendants and some of the nobles, 
 
 ###### 4 
-young men in whom _there was_ no blemish, but good-looking, gifted in all wisdom, possessing knowledge and quick to understand, who _had_ ability to serve in the king's palace, and whom they might teach the language and literature of the Chaldeans. 
+young men in whom there was no blemish, but good-looking, gifted in all wisdom, possessing knowledge and quick to understand, who had ability to serve in the king's palace, and whom they might teach the language and literature of the Chaldeans. 
 
 ###### 5 
-And the king appointed for them a daily provision of the king's delicacies and of the wine which he drank, and three years of training for them, so that at the end of _that time_ they might serve before the king. 
+And the king appointed for them a daily provision of the king's delicacies and of the wine which he drank, and three years of training for them, so that at the end of that time they might serve before the king. 
 
 ###### 6 
 Now from among those of the sons of Judah were Daniel, Hananiah, Mishael, and Azariah. 
 
 ###### 7 
-To them the chief of the eunuchs gave names: he gave Daniel _the name_ Belteshazzar; to Hananiah, Shadrach; to Mishael, Meshach; and to Azariah, Abed-Nego. 
+To them the chief of the eunuchs gave names: he gave Daniel the name Belteshazzar; to Hananiah, Shadrach; to Mishael, Meshach; and to Azariah, Abed-Nego. 
 
 ###### 8 
 But Daniel purposed in his heart that he would not defile himself with the portion of the king's delicacies, nor with the wine which he drank; therefore he requested of the chief of the eunuchs that he might not defile himself. 
@@ -36,7 +36,7 @@ But Daniel purposed in his heart that he would not defile himself with the porti
 Now God had brought Daniel into the favor and goodwill of the chief of the eunuchs. 
 
 ###### 10 
-And the chief of the eunuchs said to Daniel, "I fear my lord the king, who has appointed your food and drink. For why should he see your faces looking worse than the young men who _are_ your age? Then you would endanger my head before the king." 
+And the chief of the eunuchs said to Daniel, "I fear my lord the king, who has appointed your food and drink. For why should he see your faces looking worse than the young men who are your age? Then you would endanger my head before the king." 
 
 ###### 11 
 So Daniel said to the steward whom the chief of the eunuchs had set over Daniel, Hananiah, Mishael, and Azariah, 
@@ -45,7 +45,7 @@ So Daniel said to the steward whom the chief of the eunuchs had set over Daniel,
 "Please test your servants for ten days, and let them give us vegetables to eat and water to drink. 
 
 ###### 13 
-Then let our appearance be examined before you, and the appearance of the young men who eat the portion of the king's delicacies; and as you see fit, _so_ deal with your servants." 
+Then let our appearance be examined before you, and the appearance of the young men who eat the portion of the king's delicacies; and as you see fit, so deal with your servants." 
 
 ###### 14 
 So he consented with them in this matter, and tested them ten days. 
@@ -66,7 +66,7 @@ Now at the end of the days, when the king had said that they should be brought i
 Then the king interviewed them, and among them all none was found like Daniel, Hananiah, Mishael, and Azariah; therefore they served before the king. 
 
 ###### 20 
-And in all matters of wisdom _and_ understanding about which the king examined them, he found them ten times better than all the magicians _and_ astrologers who _were_ in all his realm. 
+And in all matters of wisdom and understanding about which the king examined them, he found them ten times better than all the magicians and astrologers who were in all his realm. 
 
 ###### 21 
 Thus Daniel continued until the first year of King Cyrus.

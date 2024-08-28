@@ -337,7 +337,7 @@ Ihahayag ang taong masama na taglay ang kapangyarihan ni Satanas. Gagawa siya ng
 
 
 
-Gagamitin niya ang lahat ng uri ng pandaraya sa mga taong mapapahamak. Mapapahamak sila dahil ayaw nilang pahalagahan ang katotohanang makakapagligtas sana_ sa kanila. 
+Gagamitin niya ang lahat ng uri ng pandaraya sa mga taong mapapahamak. Mapapahamak sila dahil ayaw nilang pahalagahan ang katotohanang makakapagligtas sana sa kanila. 
 
 
 

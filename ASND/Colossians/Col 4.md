@@ -173,7 +173,7 @@ Ipanalangin nʼyo na maipangaral ko ito nang mabuti, gaya nang nararapat.
 
 
 
-Maging matalino kayo sa pakikitungo sa mga hindi mananampalataya, at samantalahin nʼyo ang lahat ng pagkakataon na maibahagi ang pananampalataya nʼyo_. 
+Maging matalino kayo sa pakikitungo sa mga hindi mananampalataya, at samantalahin nʼyo ang lahat ng pagkakataon na maibahagi ang pananampalataya nʼyo. 
 
 
 
@@ -604,4 +604,4 @@ Pakisabi kay Arkipus na ipagpatuloy niya ang gawaing tinanggap niya sa Panginoon
 
 
 
-Ako, si Pablo, ang mismong sumulat ng pagbating ito. Alalahanin nʼyo ako rito sa bilangguan. Pagpalain nawa kayo ng Dios_.
+Ako, si Pablo, ang mismong sumulat ng pagbating ito. Alalahanin nʼyo ako rito sa bilangguan. Pagpalain nawa kayo ng Dios.

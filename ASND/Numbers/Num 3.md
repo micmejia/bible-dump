@@ -238,7 +238,7 @@ Sinabi ng Panginoon kay Moises,
 
 
 
-Maglilingkod sila kay Aaron at sa mga mamamayan ng Israel sa pamamagitan ng pag-aasikaso ng mga gawain sa Toldang Sambahan, na tinatawag din na_ Toldang Tipanan. 
+Maglilingkod sila kay Aaron at sa mga mamamayan ng Israel sa pamamagitan ng pag-aasikaso ng mga gawain sa Toldang Sambahan, na tinatawag din na Toldang Tipanan. 
 
 
 
@@ -436,7 +436,7 @@ Sinabi pa ng Panginoon kay Moises,
 
 
 
-dahil akin ang bawat panganay. Nang pinagpapatay ko ang lahat ng panganay na lalaki_ ng mga Egipcio, ibinukod ko para sa akin ang lahat ng panganay na lalaki_ ng Israel, tao man o hayop. Kaya akin sila. Ako ang Panginoon." 
+dahil akin ang bawat panganay. Nang pinagpapatay ko ang lahat ng panganay na lalaki ng mga Egipcio, ibinukod ko para sa akin ang lahat ng panganay na lalaki ng Israel, tao man o hayop. Kaya akin sila. Ako ang Panginoon." 
 
 
 
@@ -1030,7 +1030,7 @@ At ang pinuno nila ay si Elizafan na anak ni Uziel.
 
 
 
-Sila ang responsable sa pag-aasikaso ng Kahon ng Kasunduan_, ang mesa ang lalagyan ng ilaw, ang altar, ang mga kagamitang ginagamit ng mga pari sa kanilang paglilingkod at ang kurtina. Sila ang responsable sa lahat ng mga gawain na may kinalaman sa mga kagamitang ito. 
+Sila ang responsable sa pag-aasikaso ng Kahon ng Kasunduan, ang mesa ang lalagyan ng ilaw, ang altar, ang mga kagamitang ginagamit ng mga pari sa kanilang paglilingkod at ang kurtina. Sila ang responsable sa lahat ng mga gawain na may kinalaman sa mga kagamitang ito. 
 
 
 
@@ -1228,7 +1228,7 @@ Sila ang binigyan ng responsibilidad sa pag-aasikaso ng mga balangkas ng Tolda, 
 
 
 
-Sila rin ang binigyan ng responsibilidad sa pag-aasikaso_ ng mga haligi na pinagkakabitan ng mga kurtina_ ng bakuran na nakapalibot sa Tolda_ pati ang mga pundasyon, mga tulos at mga tali. 
+Sila rin ang binigyan ng responsibilidad sa pag-aasikaso ng mga haligi na pinagkakabitan ng mga kurtina ng bakuran na nakapalibot sa Tolda pati ang mga pundasyon, mga tulos at mga tali. 
 
 
 
@@ -1426,7 +1426,7 @@ Sinabi pa ng Panginoon kay Moises,
 
 
 
-"Italaga ang mga Levita sa akin kapalit ng mga panganay na lalaki ng mga Israelita. Ihandog din sa akin ang mga hayop ng mga Levita kapalit ng mga panganay na_ hayop ng mga Israelita. Akin ang mga Levita. Ako ang Panginoon. 
+"Italaga ang mga Levita sa akin kapalit ng mga panganay na lalaki ng mga Israelita. Ihandog din sa akin ang mga hayop ng mga Levita kapalit ng mga panganay na hayop ng mga Israelita. Akin ang mga Levita. Ako ang Panginoon. 
 
 
 

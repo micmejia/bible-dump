@@ -403,7 +403,7 @@ May anak ding lalaki si Shaharaim sa asawa niyang si Hushim. Silaʼy sina Abitub
 
 
 
-Ang mga anak na lalaki ni Elpaal ay sina Eber, Misam, Shemed (na nagtatag ng mga bayan ng_ Ono at Lod, at ng mga baryo sa paligid nito), 
+Ang mga anak na lalaki ni Elpaal ay sina Eber, Misam, Shemed (na nagtatag ng mga bayan ng Ono at Lod, at ng mga baryo sa paligid nito), 
 
 
 

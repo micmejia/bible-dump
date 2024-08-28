@@ -73,7 +73,7 @@ Sinabi sa akin ng Panginoon,
 
 
 
-"Anak ng tao, sabihin mo sa pinuno ng Tyre na ako,_ ang Panginoong Dios ay nagsasabi: Sa pagmamataas moʼy sinasabi mo na isa kang dios na nakaupo sa trono sa gitna ng karagatan. Pero ang totoo, kahit na ang tingin mo sa iyong sarili ay marunong katulad ng isang dios, tao ka lang at hindi dios. 
+"Anak ng tao, sabihin mo sa pinuno ng Tyre na ako, ang Panginoong Dios ay nagsasabi: Sa pagmamataas moʼy sinasabi mo na isa kang dios na nakaupo sa trono sa gitna ng karagatan. Pero ang totoo, kahit na ang tingin mo sa iyong sarili ay marunong katulad ng isang dios, tao ka lang at hindi dios. 
 
 
 
@@ -205,7 +205,7 @@ Dahil magaling ka sa pangangalakal, lalo pang nadagdagan ang kayamanan mo at dah
 
 
 
-Kaya ako,_ ang Panginoong Dios ay nagsasabing, dahil ang tingin mo sa sarili ay isa kang dios, 
+Kaya ako, ang Panginoong Dios ay nagsasabing, dahil ang tingin mo sa sarili ay isa kang dios, 
 
 
 
@@ -337,7 +337,7 @@ Masasabi mo pa kayang isa kang dios, sa harap ng mga papatay sa iyo? Para sa kan
 
 
 
-Kaya mamamatay ka ng tulad ng kamatayan ng mga taong hindi naniniwala sa akin, sa kamay ng mga dayuhan. Ako,_ ang Panginoong Dios, ang nagsasabi nito." 
+Kaya mamamatay ka ng tulad ng kamatayan ng mga taong hindi naniniwala sa akin, sa kamay ng mga dayuhan. Ako, ang Panginoong Dios, ang nagsasabi nito." 
 
 
 
@@ -403,7 +403,7 @@ May sinabi pa ang Panginoon sa akin,
 
 
 
-"Anak ng tao, managhoy ka para sa hari ng Tyre. Sabihin mo sa kanya na ako,_ ang Panginoong Dios ay nagsasabi: Noon, larawan ka ng isang walang kapintasan, puspos ng kaalaman at kagandahan. 
+"Anak ng tao, managhoy ka para sa hari ng Tyre. Sabihin mo sa kanya na ako, ang Panginoong Dios ay nagsasabi: Noon, larawan ka ng isang walang kapintasan, puspos ng kaalaman at kagandahan. 
 
 
 

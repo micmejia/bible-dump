@@ -15,16 +15,16 @@ Therefore, having these promises, beloved, let us cleanse ourselves from all fil
 ## The Corinthians' Repentance 
 
 ###### 2 
-Open _your hearts_ to us. We have wronged no one, we have corrupted no one, we have cheated no one. 
+Open your hearts to us. We have wronged no one, we have corrupted no one, we have cheated no one. 
 
 ###### 3 
-I do not say _this_ to condemn; for I have said before that you are in our hearts, to die together and to live together. 
+I do not say this to condemn; for I have said before that you are in our hearts, to die together and to live together. 
 
 ###### 4 
-Great _is_ my boldness of speech toward you, great _is_ my boasting on your behalf. I am filled with comfort. I am exceedingly joyful in all our tribulation. 
+Great is my boldness of speech toward you, great is my boasting on your behalf. I am filled with comfort. I am exceedingly joyful in all our tribulation. 
 
 ###### 5 
-For indeed, when we came to Macedonia, our bodies had no rest, but we were troubled on every side. Outside _were_ conflicts, inside _were_ fears. 
+For indeed, when we came to Macedonia, our bodies had no rest, but we were troubled on every side. Outside were conflicts, inside were fears. 
 
 ###### 6 
 Nevertheless God, who comforts the downcast, comforted us by the coming of Titus, 
@@ -39,13 +39,13 @@ For even if I made you sorry with my letter, I do not regret it; though I did re
 Now I rejoice, not that you were made sorry, but that your sorrow led to repentance. For you were made sorry in a godly manner, that you might suffer loss from us in nothing. 
 
 ###### 10 
-For godly sorrow produces repentance _leading_ to salvation, not to be regretted; but the sorrow of the world produces death. 
+For godly sorrow produces repentance leading to salvation, not to be regretted; but the sorrow of the world produces death. 
 
 ###### 11 
-For observe this very thing, that you sorrowed in a godly manner: What diligence it produced in you, _what_ clearing _of yourselves, what_ indignation, _what_ fear, _what_ vehement desire, _what_ zeal, _what_ vindication! In all _things_ you proved yourselves to be clear in this matter. 
+For observe this very thing, that you sorrowed in a godly manner: What diligence it produced in you, what clearing of yourselves, what indignation, what fear, what vehement desire, what zeal, what vindication! In all things you proved yourselves to be clear in this matter. 
 
 ###### 12 
-Therefore, although I wrote to you, _I did_ not _do it_ for the sake of him who had done the wrong, nor for the sake of him who suffered wrong, but that our care for you in the sight of God might appear to you.
+Therefore, although I wrote to you, I did not do it for the sake of him who had done the wrong, nor for the sake of him who suffered wrong, but that our care for you in the sight of God might appear to you.
 
 ## The Joy of Titus 
 

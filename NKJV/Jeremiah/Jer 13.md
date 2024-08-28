@@ -13,13 +13,13 @@ next: ['Jer 14']
 Thus the Lord said to me: "Go and get yourself a linen sash, and put it around your waist, but do not put it in water." 
 
 ###### 2 
-So I got a sash according to the word of the Lord, and put _it_ around my waist. 
+So I got a sash according to the word of the Lord, and put it around my waist. 
 
 ###### 3 
 And the word of the Lord came to me the second time, saying, 
 
 ###### 4 
-"Take the sash that you acquired, which _is_ around your waist, and arise, go to the Euphrates, and hide it there in a hole in the rock." 
+"Take the sash that you acquired, which is around your waist, and arise, go to the Euphrates, and hide it there in a hole in the rock." 
 
 ###### 5 
 So I went and hid it by the Euphrates, as the Lord commanded me. 
@@ -55,28 +55,28 @@ And I will dash them one against another, even the fathers and the sons together
 Hear and give ear: Do not be proud, For the Lord has spoken. 
 
 ###### 16 
-Give glory to the Lord your God Before He causes darkness, And before your feet stumble On the dark mountains, And while you are looking for light, He turns it into the shadow of death _And_ makes _it_ dense darkness. 
+Give glory to the Lord your God Before He causes darkness, And before your feet stumble On the dark mountains, And while you are looking for light, He turns it into the shadow of death And makes it dense darkness. 
 
 ###### 17 
-But if you will not hear it, My soul will weep in secret for _your_ pride; My eyes will weep bitterly And run down with tears, Because the Lord's flock has been taken captive. 
+But if you will not hear it, My soul will weep in secret for your pride; My eyes will weep bitterly And run down with tears, Because the Lord's flock has been taken captive. 
 
 ###### 18 
 Say to the king and to the queen mother, "Humble yourselves; Sit down, For your rule shall collapse, the crown of your glory." 
 
 ###### 19 
-The cities of the South shall be shut up, And no one shall open _them;_ Judah shall be carried away captive, all of it; It shall be wholly carried away captive. 
+The cities of the South shall be shut up, And no one shall open them; Judah shall be carried away captive, all of it; It shall be wholly carried away captive. 
 
 ###### 20 
-Lift up your eyes and see Those who come from the north. Where _is_ the flock _that_ was given to you, Your beautiful sheep? 
+Lift up your eyes and see Those who come from the north. Where is the flock that was given to you, Your beautiful sheep? 
 
 ###### 21 
-What will you say when He punishes you? For you have taught them _To be_ chieftains, to be head over you. Will not pangs seize you, Like a woman in labor? 
+What will you say when He punishes you? For you have taught them To be chieftains, to be head over you. Will not pangs seize you, Like a woman in labor? 
 
 ###### 22 
 And if you say in your heart, "Why have these things come upon me?" For the greatness of your iniquity Your skirts have been uncovered, Your heels made bare. 
 
 ###### 23 
-Can the Ethiopian change his skin or the leopard its spots? _Then_ may you also do good who are accustomed to do evil. 
+Can the Ethiopian change his skin or the leopard its spots? Then may you also do good who are accustomed to do evil. 
 
 ###### 24 
 "Therefore I will scatter them like stubble That passes away by the wind of the wilderness. 
@@ -88,4 +88,4 @@ This is your lot, The portion of your measures from Me," says the Lord, "Because
 Therefore I will uncover your skirts over your face, That your shame may appear. 
 
 ###### 27 
-I have seen your adulteries And your _lustful_ neighings, The lewdness of your harlotry, Your abominations on the hills in the fields. Woe to you, O Jerusalem! Will you still not be made clean?"
+I have seen your adulteries And your lustful neighings, The lewdness of your harlotry, Your abominations on the hills in the fields. Woe to you, O Jerusalem! Will you still not be made clean?"

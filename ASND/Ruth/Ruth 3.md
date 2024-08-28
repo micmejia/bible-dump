@@ -271,7 +271,7 @@ Nang matapos kumain at uminom si Boaz, gumanda ang pakiramdam niya. Nahiga siya 
 
 
 
-At nang maghahatinggabi na ay nagising si Boaz_, at nang nag-inat siya, nagulat siya na may babaeng nakahiga sa paanan niya. 
+At nang maghahatinggabi na ay nagising si Boaz, at nang nag-inat siya, nagulat siya na may babaeng nakahiga sa paanan niya. 
 
 
 
@@ -304,7 +304,7 @@ At nang maghahatinggabi na ay nagising si Boaz_, at nang nag-inat siya, nagulat 
 
 
 
-Nagtanong si Boaz, "Sino ka?" Sumagot siya, "Ako po si Ruth. Isa po ako sa malapit nʼyong kamag-anak na dapat nʼyong pangalagaan. Takpan nʼyo po ako ng damit ninyo para ipakita na pakakasalan at pangangalagaan nʼyo ako_." 
+Nagtanong si Boaz, "Sino ka?" Sumagot siya, "Ako po si Ruth. Isa po ako sa malapit nʼyong kamag-anak na dapat nʼyong pangalagaan. Takpan nʼyo po ako ng damit ninyo para ipakita na pakakasalan at pangangalagaan nʼyo ako." 
 
 
 
@@ -337,7 +337,7 @@ Nagtanong si Boaz, "Sino ka?" Sumagot siya, "Ako po si Ruth. Isa po ako sa malap
 
 
 
-Sinabi ni Boaz, "Anak, pagpalain ka nawa ng Panginoon. Ang katapatan na ipinakita mo ngayon sa pamilya mo_ ay mas higit pa sa ipinakita mo noon. Sapagkat hindi ka humabol sa mga binata, mayaman man o mahirap. 
+Sinabi ni Boaz, "Anak, pagpalain ka nawa ng Panginoon. Ang katapatan na ipinakita mo ngayon sa pamilya mo ay mas higit pa sa ipinakita mo noon. Sapagkat hindi ka humabol sa mga binata, mayaman man o mahirap. 
 
 
 
@@ -502,7 +502,7 @@ Kaya natulog si Ruth sa paanan ni Boaz hanggang sa mag-umaga, pero madilim-dilim
 
 
 
-Sinabi ni Boaz kay Ruth_, "Dalhin mo rito sa akin ang balabal mo at ilatag mo." Inilatag ito ni Ruth, at nilagyan ni Boaz ng mga anim na kilong sebada at ipinasan kay Ruth. At bumalik si Ruth sa bayan. 
+Sinabi ni Boaz kay Ruth, "Dalhin mo rito sa akin ang balabal mo at ilatag mo." Inilatag ito ni Ruth, at nilagyan ni Boaz ng mga anim na kilong sebada at ipinasan kay Ruth. At bumalik si Ruth sa bayan. 
 
 
 

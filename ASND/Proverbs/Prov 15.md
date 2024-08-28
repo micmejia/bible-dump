@@ -964,7 +964,7 @@ Ang taong matuwid ay pinag-iisipan muna ang sasabihin, ngunit ang taong masama a
 
 
 
-Malayo ang Panginoon sa masasama, ngunit malapit siya_ sa mga matuwid at pinapakinggan niya ang kanilang dalangin. 
+Malayo ang Panginoon sa masasama, ngunit malapit siya sa mga matuwid at pinapakinggan niya ang kanilang dalangin. 
 
 
 

@@ -304,7 +304,7 @@ Alam nʼyo rin na mula sa Canaan ay dinala namin pabalik sa inyo ang perang naki
 
 
 
-Kapag nakita nʼyo ang kopa na_ iyan sa isa sa amin, patayin nʼyo siya at magiging alipin nʼyo kami." 
+Kapag nakita nʼyo ang kopa na iyan sa isa sa amin, patayin nʼyo siya at magiging alipin nʼyo kami." 
 
 
 
@@ -436,7 +436,7 @@ Agad na hinanap ng tagapamahalang alipin ang kopa sa mga sako, magmula sa pangan
 
 
 
-Nang makita ito ng magkakapatid, pinunit nila ang kanilang mga damit sa sobrang kalungkutan_. Muli nilang isinakay sa asno ang mga sako nila at bumalik sa lungsod. 
+Nang makita ito ng magkakapatid, pinunit nila ang kanilang mga damit sa sobrang kalungkutan. Muli nilang isinakay sa asno ang mga sako nila at bumalik sa lungsod. 
 
 
 
@@ -469,7 +469,7 @@ Nang makita ito ng magkakapatid, pinunit nila ang kanilang mga damit sa sobrang 
 
 
 
-Nang dumating si Juda at ang mga kapatid niya sa Egipto_, naroon pa rin si Jose sa bahay niya. Pumasok sila sa bahay at lumuhod sa harapan ni Jose. 
+Nang dumating si Juda at ang mga kapatid niya sa Egipto, naroon pa rin si Jose sa bahay niya. Pumasok sila sa bahay at lumuhod sa harapan ni Jose. 
 
 
 
@@ -502,7 +502,7 @@ Nang dumating si Juda at ang mga kapatid niya sa Egipto_, naroon pa rin si Jose 
 
 
 
-Sinabi ni Jose sa kanila, "Ano ba itong ginawa ninyo? Hindi nʼyo ba alam na marunong akong manghula? Kaya wala kayong maitatago sa akin_." 
+Sinabi ni Jose sa kanila, "Ano ba itong ginawa ninyo? Hindi nʼyo ba alam na marunong akong manghula? Kaya wala kayong maitatago sa akin." 
 
 
 
@@ -667,7 +667,7 @@ Tinanong nʼyo kami noon kung mayroon pa kaming ama at kapatid,
 
 
 
-at sinagot po namin na may ama pa kami na matanda na, at may bunso kaming kapatid na ipinanganak sa kanyang katandaan. Sinabi po namin na_ patay na ang kapatid niya at siya na lang ang naiwan sa kanilang magkakapatid na buo, at mahal na mahal po siya ng aming ama. 
+at sinagot po namin na may ama pa kami na matanda na, at may bunso kaming kapatid na ipinanganak sa kanyang katandaan. Sinabi po namin na patay na ang kapatid niya at siya na lang ang naiwan sa kanilang magkakapatid na buo, at mahal na mahal po siya ng aming ama. 
 
 
 

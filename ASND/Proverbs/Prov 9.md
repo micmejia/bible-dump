@@ -535,7 +535,7 @@ at tinatawag ang mga dumadaan na papunta sa kanilang trabaho.
 
 
 
-Sabi niya,_ "Halikayo rito, kayong mga walang karunungan." At sinabi pa niya sa walang pang-unawa, 
+Sabi niya, "Halikayo rito, kayong mga walang karunungan." At sinabi pa niya sa walang pang-unawa, 
 
 
 

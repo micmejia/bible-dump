@@ -172,7 +172,7 @@ Tinipon ni Aaron ang mga ito tinunaw, at hinugis na baka. Sinabi ng mga Israelit
 
 
 
-Pagkakita ni Aaron na sumaya ang mga tao, nagpagawa siya ng altar sa harap ng baka at ipinaalam sa kanila, "Bukas, magdaraos tayo ng pista para sa karangalan ng_ Panginoon." 
+Pagkakita ni Aaron na sumaya ang mga tao, nagpagawa siya ng altar sa harap ng baka at ipinaalam sa kanila, "Bukas, magdaraos tayo ng pista para sa karangalan ng Panginoon." 
 
 
 
@@ -205,7 +205,7 @@ Pagkakita ni Aaron na sumaya ang mga tao, nagpagawa siya ng altar sa harap ng ba
 
 
 
-Kaya kinaumagahan, maagang bumangon ang mga tao at nag-alay ng mga handog na sinusunog at handog para sa mabuting relasyon. Kumain sila at uminom at nilubos ang pagsasaya sa pagsamba sa dios-diosan_. 
+Kaya kinaumagahan, maagang bumangon ang mga tao at nag-alay ng mga handog na sinusunog at handog para sa mabuting relasyon. Kumain sila at uminom at nilubos ang pagsasaya sa pagsamba sa dios-diosan. 
 
 
 
@@ -337,7 +337,7 @@ At sinabi pa ng Panginoon kay Moises, "Nakita ko kung gaano katigas ang ulo ng m
 
 
 
-Kaya pabayaan mong lipulin ko sila nang matindi kong galit. Ikaw na lang at ang mga angkan mo_ ang gagawin kong dakilang bansa." 
+Kaya pabayaan mong lipulin ko sila nang matindi kong galit. Ikaw na lang at ang mga angkan mo ang gagawin kong dakilang bansa." 
 
 
 
@@ -403,7 +403,7 @@ Pero nagmakaawa si Moises sa Panginoon na kanyang Dios, "O Panginoon, bakit po n
 
 
 
-Ano na lang po ang sasabihin ng mga Egipcio? Na kinuha po ninyo ang inyong mga mamamayan sa Egipto para patayin sa kabundukan at mawala sila sa mundo? O, Panginoon,_ huwag po ninyong ituloy ang matinding galit ninyo sa kanila, huwag ninyo silang papatayin. 
+Ano na lang po ang sasabihin ng mga Egipcio? Na kinuha po ninyo ang inyong mga mamamayan sa Egipto para patayin sa kabundukan at mawala sila sa mundo? O, Panginoon, huwag po ninyong ituloy ang matinding galit ninyo sa kanila, huwag ninyo silang papatayin. 
 
 
 
@@ -634,7 +634,7 @@ Sumagot si Moises, "Hindi ingay ng digmaan ang naririnig ko kundi ingay ng mga a
 
 
 
-Nang malapit na si Moises sa kampo, nakita niya ang dios-diosang_ baka at ang pagsasayaw ng mga tao, kaya nagalit siya nang matindi. Inihagis niya sa paanan ng bundok ang malalapad na bato na dala niya, at nabiyak ang mga ito. 
+Nang malapit na si Moises sa kampo, nakita niya ang dios-diosang baka at ang pagsasayaw ng mga tao, kaya nagalit siya nang matindi. Inihagis niya sa paanan ng bundok ang malalapad na bato na dala niya, at nabiyak ang mga ito. 
 
 
 
@@ -667,7 +667,7 @@ Nang malapit na si Moises sa kampo, nakita niya ang dios-diosang_ baka at ang pa
 
 
 
-Pagkatapos, kinuha niya ang dios-diosang_ baka na ginawa nila, at sinunog ito. Dinurog niya ito nang pinong-pino at inihalo sa tubig, at ipinainom sa mga mamamayan ng Israel. 
+Pagkatapos, kinuha niya ang dios-diosang baka na ginawa nila, at sinunog ito. Dinurog niya ito nang pinong-pino at inihalo sa tubig, at ipinainom sa mga mamamayan ng Israel. 
 
 
 
@@ -799,7 +799,7 @@ Sinabi nila sa akin, 'Igawa mo kami ng dios na mangunguna sa amin, dahil hindi n
 
 
 
-Kaya sinabi ko sa kanila na dalhin nila sa akin ang mga alahas_ nilang ginto. Nang madala nila ito sa akin, inihagis ko ito sa apoy at mula roon, nabuo itong baka." 
+Kaya sinabi ko sa kanila na dalhin nila sa akin ang mga alahas nilang ginto. Nang madala nila ito sa akin, inihagis ko ito sa apoy at mula roon, nabuo itong baka." 
 
 
 
@@ -832,7 +832,7 @@ Kaya sinabi ko sa kanila na dalhin nila sa akin ang mga alahas_ nilang ginto. Na
 
 
 
-Nakita ni Moises na nagwawala ang mga tao at pinababayaan lang sila ni Aaron. Dahil dito, naging katawa-tawa sila sa mga kaaway nila sa palibot_. 
+Nakita ni Moises na nagwawala ang mga tao at pinababayaan lang sila ni Aaron. Dahil dito, naging katawa-tawa sila sa mga kaaway nila sa palibot. 
 
 
 
@@ -898,7 +898,7 @@ Kaya tumayo si Moises sa pintuan ng kampo at sumigaw, "Sinuman sa inyo na pumapa
 
 
 
-Sinabi ni Moises sa kanila, "Sinasabi ng Panginoon, ang Dios ng Israel, na isukbit ng bawat isa sa inyo ang mga espada ninyo, libutin ninyo ang buong kampo, at patayin ninyo ang masasamang taong ito_ kahit na kapatid pa ninyo, kaibigan o kapitbahay." 
+Sinabi ni Moises sa kanila, "Sinasabi ng Panginoon, ang Dios ng Israel, na isukbit ng bawat isa sa inyo ang mga espada ninyo, libutin ninyo ang buong kampo, at patayin ninyo ang masasamang taong ito kahit na kapatid pa ninyo, kaibigan o kapitbahay." 
 
 
 
@@ -1030,7 +1030,7 @@ Nang sumunod na araw, sinabi ni Moises sa mga tao, "Nakagawa kayo ng malaking ka
 
 
 
-Kaya bumalik si Moises sa Panginoon at sinabi, "O Panginoon,_ malaking kasalanan po ang nagawa ng mga taong ito. Gumawa sila ng dios na ginto. 
+Kaya bumalik si Moises sa Panginoon at sinabi, "O Panginoon, malaking kasalanan po ang nagawa ng mga taong ito. Gumawa sila ng dios na ginto. 
 
 
 
@@ -1063,7 +1063,7 @@ Kaya bumalik si Moises sa Panginoon at sinabi, "O Panginoon,_ malaking kasalanan
 
 
 
-Pero ngayon, patawarin nʼyo po sila sa kanilang mga kasalanan. Kung hindi ninyo sila mapapatawad, burahin na lang ninyo ang aking pangalan sa aklat na sinulatan nʼyo ng pangalan ng inyong mga mamamayan_." 
+Pero ngayon, patawarin nʼyo po sila sa kanilang mga kasalanan. Kung hindi ninyo sila mapapatawad, burahin na lang ninyo ang aking pangalan sa aklat na sinulatan nʼyo ng pangalan ng inyong mga mamamayan." 
 
 
 
@@ -1162,4 +1162,4 @@ Lumakad ka na at pangunahan ang mga tao papunta sa lugar na sinabi ko sa iyo, at
 
 
 
-At nagpadala ang Panginoon ng mga karamdaman sa mga Israelita dahil sinamba nila ang dios-diosang_ baka na ginawa ni Aaron.
+At nagpadala ang Panginoon ng mga karamdaman sa mga Israelita dahil sinamba nila ang dios-diosang baka na ginawa ni Aaron.

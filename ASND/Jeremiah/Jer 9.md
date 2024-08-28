@@ -238,7 +238,7 @@ Puro na lang pandaraya ang ginagawa nila, at dahil sa pandaraya ay ayaw na nila 
 
 
 
-Kaya ako_, ang Panginoong Makapangyarihan, ay nagsasabing dadalisayin ko sila na parang metal at susubukin ko sila. Ano pa ang maaari kong gawin sa kanila? 
+Kaya ako, ang Panginoong Makapangyarihan, ay nagsasabing dadalisayin ko sila na parang metal at susubukin ko sila. Ano pa ang maaari kong gawin sa kanila? 
 
 
 
@@ -304,7 +304,7 @@ Ang kanilang mga dila ay parang panang nakakamatay. Puro na lang pandaraya ang k
 
 
 
-Hindi baʼt nararapat ko silang parusahan? Hindi ba dapat na paghigantihan ko ang bansang katulad nito? Ako,_ ang Panginoon, ang nagsasabi nito." 
+Hindi baʼt nararapat ko silang parusahan? Hindi ba dapat na paghigantihan ko ang bansang katulad nito? Ako, ang Panginoon, ang nagsasabi nito." 
 
 
 
@@ -337,7 +337,7 @@ Hindi baʼt nararapat ko silang parusahan? Hindi ba dapat na paghigantihan ko an
 
 
 
-Sinabi ni Jeremias:_ Iiyak ako ng malakas para sa mga kabundukan at mananaghoy ako para sa mga pastulan. Dahil malungkot na ito at wala nang dumadaan. Hindi na marinig ang unga ng mga baka, at nag-alisan na ang mga ibon at mga hayop. 
+Sinabi ni Jeremias: Iiyak ako ng malakas para sa mga kabundukan at mananaghoy ako para sa mga pastulan. Dahil malungkot na ito at wala nang dumadaan. Hindi na marinig ang unga ng mga baka, at nag-alisan na ang mga ibon at mga hayop. 
 
 
 
@@ -370,7 +370,7 @@ Sinabi ni Jeremias:_ Iiyak ako ng malakas para sa mga kabundukan at mananaghoy a
 
 
 
-Dahil sinabi ng Panginoon,_ "Wawasakin ko ang Jerusalem, at magiging tirahan ito ng mga asong-gubat. Gagawin kong parang ilang ang mga bayan ng Juda at wala nang titira rito." 
+Dahil sinabi ng Panginoon, "Wawasakin ko ang Jerusalem, at magiging tirahan ito ng mga asong-gubat. Gagawin kong parang ilang ang mga bayan ng Juda at wala nang titira rito." 
 
 
 
@@ -403,7 +403,7 @@ Dahil sinabi ng Panginoon,_ "Wawasakin ko ang Jerusalem, at magiging tirahan ito
 
 
 
-Nagtanong ako sa Panginoon,_ "Sino pong marunong na tao ang makakaunawa sa mga pangyayaring_ ito? Kanino nʼyo po ipinaliwanag ang tungkol dito para maipaliwanag ito sa mga tao? Bakit po nawasak ang lupaing ito at naging parang ilang na hindi na dinadaanan?" 
+Nagtanong ako sa Panginoon, "Sino pong marunong na tao ang makakaunawa sa mga pangyayaring ito? Kanino nʼyo po ipinaliwanag ang tungkol dito para maipaliwanag ito sa mga tao? Bakit po nawasak ang lupaing ito at naging parang ilang na hindi na dinadaanan?" 
 
 
 
@@ -502,7 +502,7 @@ Sa halip, sinunod nila ang kapasyahan ng matigas nilang mga puso. Sumamba sila k
 
 
 
-Kaya ako_, ang Panginoong Makapangyarihan, ang Dios ng Israel ay nagsabing pakakainin ko ang mga taong ito ng mapait na pagkain at paiinumin ng tubig na may lason. 
+Kaya ako, ang Panginoong Makapangyarihan, ang Dios ng Israel ay nagsabing pakakainin ko ang mga taong ito ng mapait na pagkain at paiinumin ng tubig na may lason. 
 
 
 
@@ -634,7 +634,7 @@ Pagmadaliin silang pumunta para iyakan ang mga mamamayan ko hanggang sa dumaloy 
 
 
 
-Pakinggan ang mga pag-iyak sa Jerusalem. Sinasabi ng mga tao,_ 'Nawasak tayo! Nakakahiya ang nangyaring ito sa atin! Kailangang iwan na natin ang ating lupain dahil nawasak na ang ating mga tahanan!' " 
+Pakinggan ang mga pag-iyak sa Jerusalem. Sinasabi ng mga tao, 'Nawasak tayo! Nakakahiya ang nangyaring ito sa atin! Kailangang iwan na natin ang ating lupain dahil nawasak na ang ating mga tahanan!' " 
 
 
 
@@ -700,7 +700,7 @@ Ngayon, kayong mga babae, pakinggan ninyo ang sinasabi ng Panginoon. Pakinggan n
 
 
 
-Dumating ang kamatayan sa ating mga sambahayan at sa matitibay na bahagi ng ating lungsod. Pinatay ang mga bata na naglalaro_ sa mga lansangan at ang mga kabataang lalaki na nagkakatipon_ sa mga plasa. 
+Dumating ang kamatayan sa ating mga sambahayan at sa matitibay na bahagi ng ating lungsod. Pinatay ang mga bata na naglalaro sa mga lansangan at ang mga kabataang lalaki na nagkakatipon sa mga plasa. 
 
 
 
@@ -799,7 +799,7 @@ Hindi dapat ipagmalaki ng marunong ang karunungan niya, o ng malakas ang kalakas
 
 
 
-Kung gusto ng sinuman na magmalaki, dapat lang niyang ipagmalaki na kilala niya ako at nauunawaan niyang ako ang Panginoong mapagmahal na gumagawa ng tama at matuwid dito sa mundo, dahil iyon ang kinalulugdan ko. Ako,_ ang Panginoon, ang nagsasabi nito. 
+Kung gusto ng sinuman na magmalaki, dapat lang niyang ipagmalaki na kilala niya ako at nauunawaan niyang ako ang Panginoong mapagmahal na gumagawa ng tama at matuwid dito sa mundo, dahil iyon ang kinalulugdan ko. Ako, ang Panginoon, ang nagsasabi nito. 
 
 
 

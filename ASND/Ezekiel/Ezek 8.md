@@ -40,7 +40,7 @@ next: ['Ezek 9']
 
 
 
-Nang ikalimang araw ng ikaanim na buwan, nang ikaanim na taon ng aming pagkabihag,_ pinuspos ako ng kapangyarihan ng Panginoong Dios. Nakaupo ako noon sa bahay ko at nakikipag-usap sa mga tagapamahala ng Juda. 
+Nang ikalimang araw ng ikaanim na buwan, nang ikaanim na taon ng aming pagkabihag, pinuspos ako ng kapangyarihan ng Panginoong Dios. Nakaupo ako noon sa bahay ko at nakikipag-usap sa mga tagapamahala ng Juda. 
 
 
 
@@ -535,7 +535,7 @@ Sinabi sa akin ng Panginoon, "Anak ng tao, nakikita mo ba ito? May makikita ka p
 
 
 
-Pagkatapos, dinala niya ako sa loob ng bakuran ng templo ng Panginoon. At doon sa pintuan ng templo, sa pagitan ng balkonahe at ng altar ay may 25 tao. Nakatalikod sila sa templo at nakaharap sa silangan at nakayuko na sumasamba_ sa araw. 
+Pagkatapos, dinala niya ako sa loob ng bakuran ng templo ng Panginoon. At doon sa pintuan ng templo, sa pagitan ng balkonahe at ng altar ay may 25 tao. Nakatalikod sila sa templo at nakaharap sa silangan at nakayuko na sumasamba sa araw. 
 
 
 
@@ -601,4 +601,4 @@ Pagkatapos, sinabi ng Dios sa akin, "Anak ng tao, nakikita mo ba ito? Pangkarani
 
 
 
-Kaya matitikman nila ang galit ko. Hindi ko sila kahahabagan. Kahit sumigaw pa sila sa paghingi ng tulong_ sa akin, hindi ko sila pakikinggan."
+Kaya matitikman nila ang galit ko. Hindi ko sila kahahabagan. Kahit sumigaw pa sila sa paghingi ng tulong sa akin, hindi ko sila pakikinggan."

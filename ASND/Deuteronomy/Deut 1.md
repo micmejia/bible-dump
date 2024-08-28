@@ -39,7 +39,7 @@ next: ['Deut 2']
 
 
 
-Ang aklat na ito ay tungkol sa_ mga mensahe na sinabi ni Moises sa lahat ng Israelita noong naroon pa sila sa ilang, sa silangan ng Ilog ng_ Jordan. Nagkakampo sila sa Kapatagan ng Jordan malapit sa Suf, sa gitna ng Paran, Tofel, Laban, Hazerot at Dizahab. 
+Ang aklat na ito ay tungkol sa mga mensahe na sinabi ni Moises sa lahat ng Israelita noong naroon pa sila sa ilang, sa silangan ng Ilog ng Jordan. Nagkakampo sila sa Kapatagan ng Jordan malapit sa Suf, sa gitna ng Paran, Tofel, Laban, Hazerot at Dizahab. 
 
 
 
@@ -171,7 +171,7 @@ Nangyari ito matapos matalo ni Moises si Sihon na hari ng mga Amoreo, na nakatir
 
 
 
-Kaya sinabi nga sa kanila ni Moises ang mga kautusan ng Panginoon_ doon sa silangan ng Jordan, sa teritoryo ng Moab. Sinabi niya, 
+Kaya sinabi nga sa kanila ni Moises ang mga kautusan ng Panginoon doon sa silangan ng Jordan, sa teritoryo ng Moab. Sinabi niya, 
 
 
 
@@ -501,7 +501,7 @@ Kaya pumili kayo sa bawat lahi ninyo ng mga taong marunong, maunawain at iginaga
 
 
 
-Kaya pinamahala ko sa inyo, bilang mga hukom_ at mga opisyal, ang mga taong marunong at iginagalang na mula sa inyong lahi. Ang ibaʼy responsable sa 1,000 tao, ang ibaʼy sa 100, ang ibaʼy sa 50, at ang ibaʼy sa 10. 
+Kaya pinamahala ko sa inyo, bilang mga hukom at mga opisyal, ang mga taong marunong at iginagalang na mula sa inyong lahi. Ang ibaʼy responsable sa 1,000 tao, ang ibaʼy sa 100, ang ibaʼy sa 50, at ang ibaʼy sa 10. 
 
 
 
@@ -932,7 +932,7 @@ Nagreklamo kayo sa inyong mga tolda at sinabi, 'Kinasusuklaman tayo ng Panginoon
 
 
 
-Paano tayo makakapunta roon? Tinakot tayo ng mga nagmanman sa lupain. Sinasabi nilang mas malalakas at mas matataas pa sa atin ang mga tao roon, at ang mga lungsod nila ay malalaki at napapalibutan ng mga pader na parang_ umabot na sa langit ang taas. At nakita pa nila roon ang mga angkan ni Anak.' 
+Paano tayo makakapunta roon? Tinakot tayo ng mga nagmanman sa lupain. Sinasabi nilang mas malalakas at mas matataas pa sa atin ang mga tao roon, at ang mga lungsod nila ay malalaki at napapalibutan ng mga pader na parang umabot na sa langit ang taas. At nakita pa nila roon ang mga angkan ni Anak.' 
 
 
 
@@ -1229,7 +1229,7 @@ Pero ang iyong lingkod na si Josue na anak ni Nun ay makakapasok doon. Palakasin
 
 
 
-"Pagkatapos, sinabi ng Panginoon sa ating lahat_, 'Makakapasok sa lupaing iyon ang inyong mga anak na wala pang muwang. Natatakot kayo na baka bihagin sila, pero sa kanila ko ibibigay ang lupaing iyon at magiging pag-aari nila. 
+"Pagkatapos, sinabi ng Panginoon sa ating lahat, 'Makakapasok sa lupaing iyon ang inyong mga anak na wala pang muwang. Natatakot kayo na baka bihagin sila, pero sa kanila ko ibibigay ang lupaing iyon at magiging pag-aari nila. 
 
 
 

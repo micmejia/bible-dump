@@ -73,7 +73,7 @@ next: ['Deut 20']
 
 
 
-pumili kayo ng tatlong lungsod na tanggulan_ sa lupaing ibinibigay sa inyo ng Panginoon na inyong Dios na aangkinin ninyo. 
+pumili kayo ng tatlong lungsod na tanggulan sa lupaing ibinibigay sa inyo ng Panginoon na inyong Dios na aangkinin ninyo. 
 
 
 
@@ -106,7 +106,7 @@ pumili kayo ng tatlong lungsod na tanggulan_ sa lupaing ibinibigay sa inyo ng Pa
 
 
 
-Hatiin ninyo sa tatlong distrito ang lupaing ibinibigay sa inyo ng Panginoon na inyong Dios, na may isang lungsod na tanggulan_ sa bawat distrito. Ayusin ninyo ang mga daan papunta doon, para ang sinumang makapatay ng tao ay makakatakas papunta sa isa sa mga lungsod na iyon. 
+Hatiin ninyo sa tatlong distrito ang lupaing ibinibigay sa inyo ng Panginoon na inyong Dios, na may isang lungsod na tanggulan sa bawat distrito. Ayusin ninyo ang mga daan papunta doon, para ang sinumang makapatay ng tao ay makakatakas papunta sa isa sa mga lungsod na iyon. 
 
 
 
@@ -238,7 +238,7 @@ Kung ang lungsod na tanggulan ay malayo sa taong nakapatay, baka habulin siya ng
 
 
 
-Ito ang dahilan kung bakit ko kayo inuutusang pumili ng tatlong lungsod na tanggulan_. 
+Ito ang dahilan kung bakit ko kayo inuutusang pumili ng tatlong lungsod na tanggulan. 
 
 
 
@@ -304,7 +304,7 @@ Ito ang dahilan kung bakit ko kayo inuutusang pumili ng tatlong lungsod na tangg
 
 
 
-Gagawin ito ng Panginoon na inyong Dios kung susundin ninyong mabuti ang lahat ng utos na iniuutos ko sa inyo ngayon, na mahalin ninyo ang Panginoon na inyong Dios at mamuhay kayong lagi ayon sa kanyang mga pamamaraan. Kapag lumawak na ang inyong lupain,_ magdagdag pa kayo ng tatlo pang bayan na tanggulan_. 
+Gagawin ito ng Panginoon na inyong Dios kung susundin ninyong mabuti ang lahat ng utos na iniuutos ko sa inyo ngayon, na mahalin ninyo ang Panginoon na inyong Dios at mamuhay kayong lagi ayon sa kanyang mga pamamaraan. Kapag lumawak na ang inyong lupain, magdagdag pa kayo ng tatlo pang bayan na tanggulan. 
 
 
 
@@ -370,7 +370,7 @@ Gawin ninyo ito para walang inosenteng tao na mamamatay sa lupain ninyo, na ibin
 
 
 
-"Ngunit kung ang isang tao ay napopoot sa kanyang kapwa at inabangan niya ito at pinatay, at pagkatapos ay tumakas siya papunta sa isa sa mga lungsod na tanggulan_, 
+"Ngunit kung ang isang tao ay napopoot sa kanyang kapwa at inabangan niya ito at pinatay, at pagkatapos ay tumakas siya papunta sa isa sa mga lungsod na tanggulan, 
 
 
 

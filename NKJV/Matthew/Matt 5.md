@@ -16,34 +16,34 @@ And seeing the multitudes, He went up on a mountain, and when He was seated His 
 Then He opened His mouth and taught them, saying: 
 
 ###### 3 
-"Blessed _are_ the poor in spirit, For theirs is the kingdom of heaven. 
+"Blessed are the poor in spirit, For theirs is the kingdom of heaven. 
 
 ###### 4 
-Blessed _are_ those who mourn, For they shall be comforted. 
+Blessed are those who mourn, For they shall be comforted. 
 
 ###### 5 
-Blessed _are_ the meek, For they shall inherit the earth. 
+Blessed are the meek, For they shall inherit the earth. 
 
 ###### 6 
-Blessed _are_ those who hunger and thirst for righteousness, For they shall be filled. 
+Blessed are those who hunger and thirst for righteousness, For they shall be filled. 
 
 ###### 7 
-Blessed _are_ the merciful, For they shall obtain mercy. 
+Blessed are the merciful, For they shall obtain mercy. 
 
 ###### 8 
-Blessed _are_ the pure in heart, For they shall see God. 
+Blessed are the pure in heart, For they shall see God. 
 
 ###### 9 
-Blessed _are_ the peacemakers, For they shall be called sons of God. 
+Blessed are the peacemakers, For they shall be called sons of God. 
 
 ###### 10 
-Blessed _are_ those who are persecuted for righteousness' sake, For theirs is the kingdom of heaven. 
+Blessed are those who are persecuted for righteousness' sake, For theirs is the kingdom of heaven. 
 
 ###### 11 
 Blessed are you when they revile and persecute you, and say all kinds of evil against you falsely for My sake. 
 
 ###### 12 
-Rejoice and be exceedingly glad, for great _is_ your reward in heaven, for so they persecuted the prophets who were before you.
+Rejoice and be exceedingly glad, for great is your reward in heaven, for so they persecuted the prophets who were before you.
 
 ## Believers Are Salt and Light 
 
@@ -54,7 +54,7 @@ Rejoice and be exceedingly glad, for great _is_ your reward in heaven, for so th
 "You are the light of the world. A city that is set on a hill cannot be hidden. 
 
 ###### 15 
-Nor do they light a lamp and put it under a basket, but on a lampstand, and it gives light to all _who are_ in the house. 
+Nor do they light a lamp and put it under a basket, but on a lampstand, and it gives light to all who are in the house. 
 
 ###### 16 
 Let your light so shine before men, that they may see your good works and glorify your Father in heaven.
@@ -68,10 +68,10 @@ Let your light so shine before men, that they may see your good works and glorif
 For assuredly, I say to you, till heaven and earth pass away, one jot or one tittle will by no means pass from the law till all is fulfilled. 
 
 ###### 19 
-Whoever therefore breaks one of the least of these commandments, and teaches men so, shall be called least in the kingdom of heaven; but whoever does and teaches _them,_ he shall be called great in the kingdom of heaven. 
+Whoever therefore breaks one of the least of these commandments, and teaches men so, shall be called least in the kingdom of heaven; but whoever does and teaches them, he shall be called great in the kingdom of heaven. 
 
 ###### 20 
-For I say to you, that unless your righteousness exceeds _the righteousness_ of the scribes and Pharisees, you will by no means enter the kingdom of heaven.
+For I say to you, that unless your righteousness exceeds the righteousness of the scribes and Pharisees, you will by no means enter the kingdom of heaven.
 
 ## Murder Begins in the Heart 
 
@@ -102,10 +102,10 @@ Assuredly, I say to you, you will by no means get out of there till you have pai
 But I say to you that whoever looks at a woman to lust for her has already committed adultery with her in his heart. 
 
 ###### 29 
-If your right eye causes you to sin, pluck it out and cast _it_ from you; for it is more profitable for you that one of your members perish, than for your whole body to be cast into hell. 
+If your right eye causes you to sin, pluck it out and cast it from you; for it is more profitable for you that one of your members perish, than for your whole body to be cast into hell. 
 
 ###### 30 
-And if your right hand causes you to sin, cut it off and cast _it_ from you; for it is more profitable for you that one of your members perish, than for your whole body to be cast into hell.
+And if your right hand causes you to sin, cut it off and cast it from you; for it is more profitable for you that one of your members perish, than for your whole body to be cast into hell.
 
 ## Marriage Is Sacred and Binding 
 
@@ -141,7 +141,7 @@ But let your 'Yes' be 'Yes,' and your 'No,' 'No.' For whatever is more than thes
 But I tell you not to resist an evil person. But whoever slaps you on your right cheek, turn the other to him also. 
 
 ###### 40 
-If anyone wants to sue you and take away your tunic, let him have _your_ cloak also. 
+If anyone wants to sue you and take away your tunic, let him have your cloak also. 
 
 ###### 41 
 And whoever compels you to go one mile, go with him two. 
@@ -164,7 +164,7 @@ that you may be sons of your Father in heaven; for He makes His sun rise on the 
 For if you love those who love you, what reward have you? Do not even the tax collectors do the same? 
 
 ###### 47 
-And if you greet your brethren only, what do you do more _than others?_ Do not even the tax collectors do so? 
+And if you greet your brethren only, what do you do more than others? Do not even the tax collectors do so? 
 
 ###### 48 
 Therefore you shall be perfect, just as your Father in heaven is perfect.

@@ -9,10 +9,10 @@ next: ['1 Cor 2']
 
 
 ###### 1 
-Paul, called _to be_ an apostle of Jesus Christ through the will of God, and Sosthenes _our_ brother, 
+Paul, called to be an apostle of Jesus Christ through the will of God, and Sosthenes our brother, 
 
 ###### 2 
-To the church of God which is at Corinth, to those who are sanctified in Christ Jesus, called _to be_ saints, with all who in every place call on the name of Jesus Christ our Lord, both theirs and ours: 
+To the church of God which is at Corinth, to those who are sanctified in Christ Jesus, called to be saints, with all who in every place call on the name of Jesus Christ our Lord, both theirs and ours: 
 
 ###### 3 
 Grace to you and peace from God our Father and the Lord Jesus Christ.
@@ -32,18 +32,18 @@ even as the testimony of Christ was confirmed in you,
 so that you come short in no gift, eagerly waiting for the revelation of our Lord Jesus Christ, 
 
 ###### 8 
-who will also confirm you to the end, _that you may be_ blameless in the day of our Lord Jesus Christ. 
+who will also confirm you to the end, that you may be blameless in the day of our Lord Jesus Christ. 
 
 ###### 9 
-God _is_ faithful, by whom you were called into the fellowship of His Son, Jesus Christ our Lord.
+God is faithful, by whom you were called into the fellowship of His Son, Jesus Christ our Lord.
 
 ## Sectarianism Is Sin 
 
 ###### 10 
-Now I plead with you, brethren, by the name of our Lord Jesus Christ, that you all speak the same thing, and _that_ there be no divisions among you, but _that_ you be perfectly joined together in the same mind and in the same judgment. 
+Now I plead with you, brethren, by the name of our Lord Jesus Christ, that you all speak the same thing, and that there be no divisions among you, but that you be perfectly joined together in the same mind and in the same judgment. 
 
 ###### 11 
-For it has been declared to me concerning you, my brethren, by those of Chloe's _household,_ that there are contentions among you. 
+For it has been declared to me concerning you, my brethren, by those of Chloe's household, that there are contentions among you. 
 
 ###### 12 
 Now I say this, that each of you says, "I am of Paul," or "I am of Apollos," or "I am of Cephas," or "I am of Christ." 
@@ -72,7 +72,7 @@ For the message of the cross is foolishness to those who are perishing, but to u
 For it is written: "I will destroy the wisdom of the wise, And bring to nothing the understanding of the prudent." 
 
 ###### 20 
-Where _is_ the wise? Where _is_ the scribe? Where _is_ the disputer of this age? Has not God made foolish the wisdom of this world? 
+Where is the wise? Where is the scribe? Where is the disputer of this age? Has not God made foolish the wisdom of this world? 
 
 ###### 21 
 For since, in the wisdom of God, the world through wisdom did not know God, it pleased God through the foolishness of the message preached to save those who believe. 
@@ -92,7 +92,7 @@ Because the foolishness of God is wiser than men, and the weakness of God is str
 ## Glory Only in the Lord 
 
 ###### 26 
-For you see your calling, brethren, that not many wise according to the flesh, not many mighty, not many noble, _are called._ 
+For you see your calling, brethren, that not many wise according to the flesh, not many mighty, not many noble, are called. 
 
 ###### 27 
 But God has chosen the foolish things of the world to put to shame the wise, and God has chosen the weak things of the world to put to shame the things which are mighty; 

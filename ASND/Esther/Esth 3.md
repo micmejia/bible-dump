@@ -238,7 +238,7 @@ At nang malaman pa niyang si Mordecai ay isang Judio, naisip niyang hindi lang s
 
 
 
-Nang buwan ng Nisan, ang unang buwan ng taon_, noong ika-12 taon ng paghahari ni Ahasuerus, nag-utos si Haman na magpalabunutan para malaman kung ano ang tamang araw at buwan para ipatupad ang plano niya. (Ang ginagamit nila sa palabunutan ay tinatawag nilang "pur".) At ang nabunot ay ang ika-13 araw ng_ ika-12 buwan, ang buwan ng Adar. 
+Nang buwan ng Nisan, ang unang buwan ng taon, noong ika-12 taon ng paghahari ni Ahasuerus, nag-utos si Haman na magpalabunutan para malaman kung ano ang tamang araw at buwan para ipatupad ang plano niya. (Ang ginagamit nila sa palabunutan ay tinatawag nilang "pur".) At ang nabunot ay ang ika-13 araw ng ika-12 buwan, ang buwan ng Adar. 
 
 
 

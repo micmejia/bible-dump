@@ -10,19 +10,19 @@ next: ['Amos 5']
 
 
 ###### 1 
-Hear this word, you cows of Bashan, who _are_ on the mountain of Samaria, Who oppress the poor, Who crush the needy, Who say to your husbands, "Bring _wine,_ let us drink!" 
+Hear this word, you cows of Bashan, who are on the mountain of Samaria, Who oppress the poor, Who crush the needy, Who say to your husbands, "Bring wine, let us drink!" 
 
 ###### 2 
 The Lord God has sworn by His holiness: "Behold, the days shall come upon you When He will take you away with fishhooks, And your posterity with fishhooks. 
 
 ###### 3 
-You will go out _through_ broken _walls,_ Each one straight ahead of her, And you will be cast into Harmon," Says the Lord. 
+You will go out through broken walls, Each one straight ahead of her, And you will be cast into Harmon," Says the Lord. 
 
 ###### 4 
 "Come to Bethel and transgress, At Gilgal multiply transgression; Bring your sacrifices every morning, Your tithes every three days. 
 
 ###### 5 
-Offer a sacrifice of thanksgiving with leaven, Proclaim _and_ announce the freewill offerings; For this you love, _You_ children of Israel!" Says the Lord God.
+Offer a sacrifice of thanksgiving with leaven, Proclaim and announce the freewill offerings; For this you love, You children of Israel!" Says the Lord God.
 
 ## Israel Did Not Accept Correction 
 
@@ -30,22 +30,22 @@ Offer a sacrifice of thanksgiving with leaven, Proclaim _and_ announce the freew
 "Also I gave you cleanness of teeth in all your cities, And lack of bread in all your places; Yet you have not returned to Me," Says the Lord. 
 
 ###### 7 
-"I also withheld rain from you, When _there were_ still three months to the harvest. I made it rain on one city, I withheld rain from another city. One part was rained upon, And where it did not rain the part withered. 
+"I also withheld rain from you, When there were still three months to the harvest. I made it rain on one city, I withheld rain from another city. One part was rained upon, And where it did not rain the part withered. 
 
 ###### 8 
-So two _or_ three cities wandered to another city to drink water, But they were not satisfied; Yet you have not returned to Me," Says the Lord. 
+So two or three cities wandered to another city to drink water, But they were not satisfied; Yet you have not returned to Me," Says the Lord. 
 
 ###### 9 
-"I blasted you with blight and mildew. When your gardens increased, Your vineyards, Your fig trees, And your olive trees, The locust devoured _them;_ Yet you have not returned to Me," Says the Lord. 
+"I blasted you with blight and mildew. When your gardens increased, Your vineyards, Your fig trees, And your olive trees, The locust devoured them; Yet you have not returned to Me," Says the Lord. 
 
 ###### 10 
 "I sent among you a plague after the manner of Egypt; Your young men I killed with a sword, Along with your captive horses; I made the stench of your camps come up into your nostrils; Yet you have not returned to Me," Says the Lord. 
 
 ###### 11 
-"I overthrew _some_ of you, As God overthrew Sodom and Gomorrah, And you were like a firebrand plucked from the burning; Yet you have not returned to Me," Says the Lord. 
+"I overthrew some of you, As God overthrew Sodom and Gomorrah, And you were like a firebrand plucked from the burning; Yet you have not returned to Me," Says the Lord. 
 
 ###### 12 
 "Therefore thus will I do to you, O Israel; Because I will do this to you, Prepare to meet your God, O Israel!" 
 
 ###### 13 
-For behold, He who forms mountains, And creates the wind, Who declares to man what his thought _is,_ And makes the morning darkness, Who treads the high places of the earth-- The Lord God of hosts _is_ His name.
+For behold, He who forms mountains, And creates the wind, Who declares to man what his thought is, And makes the morning darkness, Who treads the high places of the earth-- The Lord God of hosts is His name.

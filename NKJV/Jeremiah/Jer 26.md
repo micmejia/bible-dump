@@ -13,7 +13,7 @@ next: ['Jer 27']
 In the beginning of the reign of Jehoiakim the son of Josiah, king of Judah, this word came from the Lord, saying, 
 
 ###### 2 
-"Thus says the Lord: 'Stand in the court of the Lord's house, and speak to all the cities of Judah, which come to worship _in_ the Lord's house, all the words that I command you to speak to them. Do not diminish a word. 
+"Thus says the Lord: 'Stand in the court of the Lord's house, and speak to all the cities of Judah, which come to worship in the Lord's house, all the words that I command you to speak to them. Do not diminish a word. 
 
 ###### 3 
 Perhaps everyone will listen and turn from his evil way, that I may relent concerning the calamity which I purpose to bring on them because of the evil of their doings.' 
@@ -22,7 +22,7 @@ Perhaps everyone will listen and turn from his evil way, that I may relent conce
 And you shall say to them, 'Thus says the Lord: "If you will not listen to Me, to walk in My law which I have set before you, 
 
 ###### 5 
-to heed the words of My servants the prophets whom I sent to you, both rising up early and sending _them_ (but you have not heeded), 
+to heed the words of My servants the prophets whom I sent to you, both rising up early and sending them (but you have not heeded), 
 
 ###### 6 
 then I will make this house like Shiloh, and will make this city a curse to all the nations of the earth." ' " 
@@ -31,13 +31,13 @@ then I will make this house like Shiloh, and will make this city a curse to all 
 So the priests and the prophets and all the people heard Jeremiah speaking these words in the house of the Lord. 
 
 ###### 8 
-Now it happened, when Jeremiah had made an end of speaking all that the Lord had commanded _him_ to speak to all the people, that the priests and the prophets and all the people seized him, saying, "You will surely die! 
+Now it happened, when Jeremiah had made an end of speaking all that the Lord had commanded him to speak to all the people, that the priests and the prophets and all the people seized him, saying, "You will surely die! 
 
 ###### 9 
 Why have you prophesied in the name of the Lord, saying, 'This house shall be like Shiloh, and this city shall be desolate, without an inhabitant'?" And all the people were gathered against Jeremiah in the house of the Lord. 
 
 ###### 10 
-When the princes of Judah heard these things, they came up from the king's house to the house of the Lord and sat down in the entry of the New Gate of the Lord's _house._ 
+When the princes of Judah heard these things, they came up from the king's house to the house of the Lord and sat down in the entry of the New Gate of the Lord's house. 
 
 ###### 11 
 And the priests and the prophets spoke to the princes and all the people, saying, "This man deserves to die! For he has prophesied against this city, as you have heard with your ears." 
@@ -61,7 +61,7 @@ So the princes and all the people said to the priests and the prophets, "This ma
 Then certain of the elders of the land rose up and spoke to all the assembly of the people, saying: 
 
 ###### 18 
-"Micah of Moresheth prophesied in the days of Hezekiah king of Judah, and spoke to all the people of Judah, saying, 'Thus says the Lord of hosts: "Zion shall be plowed _like_ a field, Jerusalem shall become heaps of ruins, And the mountain of the temple Like the bare hills of the forest." ' 
+"Micah of Moresheth prophesied in the days of Hezekiah king of Judah, and spoke to all the people of Judah, saying, 'Thus says the Lord of hosts: "Zion shall be plowed like a field, Jerusalem shall become heaps of ruins, And the mountain of the temple Like the bare hills of the forest." ' 
 
 ###### 19 
 Did Hezekiah king of Judah and all Judah ever put him to death? Did he not fear the Lord and seek the Lord's favor? And the Lord relented concerning the doom which He had pronounced against them. But we are doing great evil against ourselves." 
@@ -70,10 +70,10 @@ Did Hezekiah king of Judah and all Judah ever put him to death? Did he not fear 
 Now there was also a man who prophesied in the name of the Lord, Urijah the son of Shemaiah of Kirjath Jearim, who prophesied against this city and against this land according to all the words of Jeremiah. 
 
 ###### 21 
-And when Jehoiakim the king, with all his mighty men and all the princes, heard his words, the king sought to put him to death; but when Urijah heard _it,_ he was afraid and fled, and went to Egypt. 
+And when Jehoiakim the king, with all his mighty men and all the princes, heard his words, the king sought to put him to death; but when Urijah heard it, he was afraid and fled, and went to Egypt. 
 
 ###### 22 
-Then Jehoiakim the king sent men to Egypt: Elnathan the son of Achbor, and _other_ men _who went_ with him to Egypt. 
+Then Jehoiakim the king sent men to Egypt: Elnathan the son of Achbor, and other men who went with him to Egypt. 
 
 ###### 23 
 And they brought Urijah from Egypt and brought him to Jehoiakim the king, who killed him with the sword and cast his dead body into the graves of the common people. 

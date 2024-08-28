@@ -10,7 +10,7 @@ next: ['John 10']
 
 
 ###### 1 
-Now as _Jesus_ passed by, He saw a man who was blind from birth. 
+Now as Jesus passed by, He saw a man who was blind from birth. 
 
 ###### 2 
 And His disciples asked Him, saying, "Rabbi, who sinned, this man or his parents, that he was born blind?" 
@@ -19,7 +19,7 @@ And His disciples asked Him, saying, "Rabbi, who sinned, this man or his parents
 Jesus answered, "Neither this man nor his parents sinned, but that the works of God should be revealed in him. 
 
 ###### 4 
-I must work the works of Him who sent Me while it is day; _the_ night is coming when no one can work. 
+I must work the works of Him who sent Me while it is day; the night is coming when no one can work. 
 
 ###### 5 
 As long as I am in the world, I am the light of the world." 
@@ -34,7 +34,7 @@ And He said to him, "Go, wash in the pool of Siloam" (which is translated, Sent)
 Therefore the neighbors and those who previously had seen that he was blind said, "Is not this he who sat and begged?" 
 
 ###### 9 
-Some said, "This is he." Others _said,_ "He is like him." He said, "I am _he._" 
+Some said, "This is he." Others said, "He is like him." He said, "I am he." 
 
 ###### 10 
 Therefore they said to him, "How were your eyes opened?" 
@@ -73,7 +73,7 @@ His parents answered them and said, "We know that this is our son, and that he w
 but by what means he now sees we do not know, or who opened his eyes we do not know. He is of age; ask him. He will speak for himself." 
 
 ###### 22 
-His parents said these _things_ because they feared the Jews, for the Jews had agreed already that if anyone confessed _that_ He _was_ Christ, he would be put out of the synagogue. 
+His parents said these things because they feared the Jews, for the Jews had agreed already that if anyone confessed that He was Christ, he would be put out of the synagogue. 
 
 ###### 23 
 Therefore his parents said, "He is of age; ask him." 
@@ -82,19 +82,19 @@ Therefore his parents said, "He is of age; ask him."
 So they again called the man who was blind, and said to him, "Give God the glory! We know that this Man is a sinner." 
 
 ###### 25 
-He answered and said, "Whether He is a sinner _or not_ I do not know. One thing I know: that though I was blind, now I see." 
+He answered and said, "Whether He is a sinner or not I do not know. One thing I know: that though I was blind, now I see." 
 
 ###### 26 
 Then they said to him again, "What did He do to you? How did He open your eyes?" 
 
 ###### 27 
-He answered them, "I told you already, and you did not listen. Why do you want to hear _it_ again? Do you also want to become His disciples?" 
+He answered them, "I told you already, and you did not listen. Why do you want to hear it again? Do you also want to become His disciples?" 
 
 ###### 28 
 Then they reviled him and said, "You are His disciple, but we are Moses' disciples. 
 
 ###### 29 
-We know that God spoke to Moses; _as for_ this _fellow,_ we do not know where He is from." 
+We know that God spoke to Moses; as for this fellow, we do not know where He is from." 
 
 ###### 30 
 The man answered and said to them, "Why, this is a marvelous thing, that you do not know where He is from; yet He has opened my eyes! 
@@ -129,7 +129,7 @@ Then he said, "Lord, I believe!" And he worshiped Him.
 And Jesus said, "For judgment I have come into this world, that those who do not see may see, and that those who see may be made blind." 
 
 ###### 40 
-Then _some_ of the Pharisees who were with Him heard these words, and said to Him, "Are we blind also?" 
+Then some of the Pharisees who were with Him heard these words, and said to Him, "Are we blind also?" 
 
 ###### 41 
 Jesus said to them, "If you were blind, you would have no sin; but now you say, 'We see.' Therefore your sin remains.

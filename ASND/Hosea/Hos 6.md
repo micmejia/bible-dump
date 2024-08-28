@@ -40,7 +40,7 @@ next: ['Hos 7']
 
 
 
-Nag-usap-usap ang mga taga-Israel. Sabi nila,_ "Halikayo! Magbalik-loob tayo sa Panginoon. Sinaktan niya tayo, kaya siya rin ang magpapagaling sa atin. 
+Nag-usap-usap ang mga taga-Israel. Sabi nila, "Halikayo! Magbalik-loob tayo sa Panginoon. Sinaktan niya tayo, kaya siya rin ang magpapagaling sa atin. 
 
 
 
@@ -139,7 +139,7 @@ Pagsikapan nating makilala ang Panginoon. Siyaʼy tiyak na darating, kasintiyak 
 
 
 
-Pero sinabi ng Panginoon,_ "O Israel at Juda, ano ang gagawin ko sa inyo? Ang pag-ibig ninyo sa akin ay parang ambon o hamog sa umaga na madaling mawala. 
+Pero sinabi ng Panginoon, "O Israel at Juda, ano ang gagawin ko sa inyo? Ang pag-ibig ninyo sa akin ay parang ambon o hamog sa umaga na madaling mawala. 
 
 
 
@@ -205,7 +205,7 @@ Kaya nga binalaan ko kayo sa pamamagitan ng mga propeta na kayoʼy mapapahamak a
 
 
 
-Sapagkat hindi ang inyong mga_ handog ang nais ko, kundi ang inyong_ pagmamahal. Mas nanaisin ko pang kilalanin ninyo_ ako kaysa sa mag-alay kayo ng_ mga handog na sinusunog. 
+Sapagkat hindi ang inyong mga handog ang nais ko, kundi ang inyong pagmamahal. Mas nanaisin ko pang kilalanin ninyo ako kaysa sa mag-alay kayo ng mga handog na sinusunog. 
 
 
 
@@ -238,7 +238,7 @@ Sapagkat hindi ang inyong mga_ handog ang nais ko, kundi ang inyong_ pagmamahal.
 
 
 
-Pero tulad ni Adan, sinira ninyo ang kasunduan natin_. Nagtaksil kayo sa akin diyan sa inyong lugar_. 
+Pero tulad ni Adan, sinira ninyo ang kasunduan natin. Nagtaksil kayo sa akin diyan sa inyong lugar. 
 
 
 

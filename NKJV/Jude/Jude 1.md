@@ -47,7 +47,7 @@ Woe to them! For they have gone in the way of Cain, have run greedily in the err
 ## Apostates Depraved and Doomed 
 
 ###### 12 
-These are spots in your love feasts, while they feast with you without fear, serving _only_ themselves. _They are_ clouds without water, carried about by the winds; late autumn trees without fruit, twice dead, pulled up by the roots; 
+These are spots in your love feasts, while they feast with you without fear, serving only themselves. They are clouds without water, carried about by the winds; late autumn trees without fruit, twice dead, pulled up by the roots; 
 
 ###### 13 
 raging waves of the sea, foaming up their own shame; wandering stars for whom is reserved the blackness of darkness forever. 
@@ -59,7 +59,7 @@ Now Enoch, the seventh from Adam, prophesied about these men also, saying, "Beho
 to execute judgment on all, to convict all who are ungodly among them of all their ungodly deeds which they have committed in an ungodly way, and of all the harsh things which ungodly sinners have spoken against Him." ## Apostates Predicted 
 
 ###### 16 
-These are grumblers, complainers, walking according to their own lusts; and they mouth great swelling _words_, flattering people to gain advantage. 
+These are grumblers, complainers, walking according to their own lusts; and they mouth great swelling words, flattering people to gain advantage. 
 
 ###### 17 
 But you, beloved, remember the words which were spoken before by the apostles of our Lord Jesus Christ: 
@@ -82,12 +82,12 @@ keep yourselves in the love of God, looking for the mercy of our Lord Jesus Chri
 And on some have compassion, making a distinction; 
 
 ###### 23 
-but others save with fear, pulling _them_ out of the fire, hating even the garment defiled by the flesh.
+but others save with fear, pulling them out of the fire, hating even the garment defiled by the flesh.
 
 ## Glory to God 
 
 ###### 24 
-Now to Him who is able to keep you from stumbling, And to present _you_ faultless Before the presence of His glory with exceeding joy, 
+Now to Him who is able to keep you from stumbling, And to present you faultless Before the presence of His glory with exceeding joy, 
 
 ###### 25 
-To God our Savior, Who alone is wise, _Be_ glory and majesty, Dominion and power, Both now and forever. Amen.
+To God our Savior, Who alone is wise, Be glory and majesty, Dominion and power, Both now and forever. Amen.

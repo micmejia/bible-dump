@@ -10,13 +10,13 @@ next: ['Rev 11']
 
 
 ###### 1 
-I saw still another mighty angel coming down from heaven, clothed with a cloud. And a rainbow _was_ on his head, his face _was_ like the sun, and his feet like pillars of fire. 
+I saw still another mighty angel coming down from heaven, clothed with a cloud. And a rainbow was on his head, his face was like the sun, and his feet like pillars of fire. 
 
 ###### 2 
-He had a little book open in his hand. And he set his right foot on the sea and _his_ left _foot_ on the land, 
+He had a little book open in his hand. And he set his right foot on the sea and his left foot on the land, 
 
 ###### 3 
-and cried with a loud voice, as _when_ a lion roars. When he cried out, seven thunders uttered their voices. 
+and cried with a loud voice, as when a lion roars. When he cried out, seven thunders uttered their voices. 
 
 ###### 4 
 Now when the seven thunders uttered their voices, I was about to write; but I heard a voice from heaven saying to me, "Seal up the things which the seven thunders uttered, and do not write them." 

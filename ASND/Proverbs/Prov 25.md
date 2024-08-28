@@ -601,7 +601,7 @@ Huwag kang dadalaw ng madalas sa iyong kapitbahay, baka magalit siya at sa iyo a
 
 
 
-Ang taong sumasaksi ng kasinungalingan laban sa kanyang kapwa ay nakakapinsala_ tulad ng espada, pamalo at pana. 
+Ang taong sumasaksi ng kasinungalingan laban sa kanyang kapwa ay nakakapinsala tulad ng espada, pamalo at pana. 
 
 
 
@@ -634,7 +634,7 @@ Ang taong sumasaksi ng kasinungalingan laban sa kanyang kapwa ay nakakapinsala_ 
 
 
 
-Ang pagtitiwala sa taong hindi mapagkakatiwalaan sa oras ng pangangailangan ay walang kwenta_ tulad ng paang pilay o ngiping umuuga. 
+Ang pagtitiwala sa taong hindi mapagkakatiwalaan sa oras ng pangangailangan ay walang kwenta tulad ng paang pilay o ngiping umuuga. 
 
 
 
@@ -667,7 +667,7 @@ Ang pagtitiwala sa taong hindi mapagkakatiwalaan sa oras ng pangangailangan ay w
 
 
 
-Kung aawitan mo ng masayang awitin_ ang taong nasa matinding kapighatian ay para mo na rin siyang hinubaran sa panahon ng taglamig o kayaʼy nilagyan mo ng suka ang kanyang sugat. 
+Kung aawitan mo ng masayang awitin ang taong nasa matinding kapighatian ay para mo na rin siyang hinubaran sa panahon ng taglamig o kayaʼy nilagyan mo ng suka ang kanyang sugat. 
 
 
 
@@ -931,4 +931,4 @@ Kung paanong masama ang pagkain ng labis na pulot, ganoon din ang paghahangad ng
 
 
 
-Ang taong walang pagpipigil sa sarili ay madaling bumagsak_ gaya ng isang bayan na walang pader.
+Ang taong walang pagpipigil sa sarili ay madaling bumagsak gaya ng isang bayan na walang pader.

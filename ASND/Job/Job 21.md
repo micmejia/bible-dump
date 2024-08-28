@@ -139,7 +139,7 @@ Makinig kayo habang nagsasalita ako at kapag akoʼy tapos na, tuyain ninyo ako k
 
 
 
-"Ang hinaing koʼy hindi laban sa tao kundi sa Dios_. Ito ang dahilan kung bakit maikli ang pasensya ko. 
+"Ang hinaing koʼy hindi laban sa tao kundi sa Dios. Ito ang dahilan kung bakit maikli ang pasensya ko. 
 
 
 
@@ -667,7 +667,7 @@ Sinasabi ninyo na kapag hindi sila parurusahan ng Dios ang mga anak nila ang par
 
 
 
-at makita ang kanilang kapahamakan. Matikman sana nila ang galit ng Makapangyarihang Dios_. 
+at makita ang kanilang kapahamakan. Matikman sana nila ang galit ng Makapangyarihang Dios. 
 
 
 
@@ -964,7 +964,7 @@ Sasabihin ninyo sa akin ang tungkol sa mga taong mayaman na nawasak ang tahanan 
 
 
 
-Pero tanungin mo ang mga dumadaan at pakinggan ang sinasabi nila. Sapagkat sasabihin nila sa inyo na_ 
+Pero tanungin mo ang mga dumadaan at pakinggan ang sinasabi nila. Sapagkat sasabihin nila sa inyo na 
 
 
 
@@ -997,7 +997,7 @@ Pero tanungin mo ang mga dumadaan at pakinggan ang sinasabi nila. Sapagkat sasab
 
 
 
-palaging_ naliligtas ang masasamang tao sa araw ng pagpaparusa ng Dios. 
+palaging naliligtas ang masasamang tao sa araw ng pagpaparusa ng Dios. 
 
 
 

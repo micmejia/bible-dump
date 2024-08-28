@@ -10,7 +10,7 @@ next: ['Mark 9']
 
 
 ###### 1 
-In those days, the multitude being very great and having nothing to eat, Jesus called His disciples _to Him_ and said to them, 
+In those days, the multitude being very great and having nothing to eat, Jesus called His disciples to Him and said to them, 
 
 ###### 2 
 "I have compassion on the multitude, because they have now continued with Me three days and have nothing to eat. 
@@ -25,10 +25,10 @@ Then His disciples answered Him, "How can one satisfy these people with bread he
 He asked them, "How many loaves do you have?" And they said, "Seven." 
 
 ###### 6 
-So He commanded the multitude to sit down on the ground. And He took the seven loaves and gave thanks, broke _them_ and gave _them_ to His disciples to set before _them;_ and they set _them_ before the multitude. 
+So He commanded the multitude to sit down on the ground. And He took the seven loaves and gave thanks, broke them and gave them to His disciples to set before them; and they set them before the multitude. 
 
 ###### 7 
-They also had a few small fish; and having blessed them, He said to set them also before _them._ 
+They also had a few small fish; and having blessed them, He said to set them also before them. 
 
 ###### 8 
 So they ate and were filled, and they took up seven large baskets of leftover fragments. 
@@ -57,10 +57,10 @@ Now the disciples had forgotten to take bread, and they did not have more than o
 Then He charged them, saying, "Take heed, beware of the leaven of the Pharisees and the leaven of Herod." 
 
 ###### 16 
-And they reasoned among themselves, saying, "_It is_ because we have no bread." 
+And they reasoned among themselves, saying, "It is because we have no bread." 
 
 ###### 17 
-But Jesus, being aware of _it,_ said to them, "Why do you reason because you have no bread? Do you not yet perceive nor understand? Is your heart still hardened? 
+But Jesus, being aware of it, said to them, "Why do you reason because you have no bread? Do you not yet perceive nor understand? Is your heart still hardened? 
 
 ###### 18 
 Having eyes, do you not see? And having ears, do you not hear? And do you not remember? 
@@ -72,7 +72,7 @@ When I broke the five loaves for the five thousand, how many baskets full of fra
 "Also, when I broke the seven for the four thousand, how many large baskets full of fragments did you take up?" And they said, "Seven." 
 
 ###### 21 
-So He said to them, "How _is it_ you do not understand?" ## A Blind Man Healed at Bethsaida 
+So He said to them, "How is it you do not understand?" ## A Blind Man Healed at Bethsaida 
 
 ###### 22 
 Then He came to Bethsaida; and they brought a blind man to Him, and begged Him to touch him. 
@@ -84,7 +84,7 @@ So He took the blind man by the hand and led him out of the town. And when He ha
 And he looked up and said, "I see men like trees, walking." 
 
 ###### 25 
-Then He put _His_ hands on his eyes again and made him look up. And he was restored and saw everyone clearly. 
+Then He put His hands on his eyes again and made him look up. And he was restored and saw everyone clearly. 
 
 ###### 26 
 Then He sent him away to his house, saying, "Neither go into the town, nor tell anyone in the town." ## Peter Confesses Jesus as the Christ 
@@ -93,7 +93,7 @@ Then He sent him away to his house, saying, "Neither go into the town, nor tell 
 Now Jesus and His disciples went out to the towns of Caesarea Philippi; and on the road He asked His disciples, saying to them, "Who do men say that I am?" 
 
 ###### 28 
-So they answered, "John the Baptist; but some _say,_ Elijah; and others, one of the prophets." 
+So they answered, "John the Baptist; but some say, Elijah; and others, one of the prophets." 
 
 ###### 29 
 He said to them, "But who do you say that I am?" Peter answered and said to Him, "You are the Christ." 
@@ -113,7 +113,7 @@ He spoke this word openly. Then Peter took Him aside and began to rebuke Him.
 But when He had turned around and looked at His disciples, He rebuked Peter, saying, "Get behind Me, Satan! For you are not mindful of the things of God, but the things of men." ## Take Up the Cross and Follow Him 
 
 ###### 34 
-When He had called the people to _Himself,_ with His disciples also, He said to them, "Whoever desires to come after Me, let him deny himself, and take up his cross, and follow Me. 
+When He had called the people to Himself, with His disciples also, He said to them, "Whoever desires to come after Me, let him deny himself, and take up his cross, and follow Me. 
 
 ###### 35 
 For whoever desires to save his life will lose it, but whoever loses his life for My sake and the gospel's will save it. 

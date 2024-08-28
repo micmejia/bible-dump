@@ -13,10 +13,10 @@ next: ['Matt 17']
 Then the Pharisees and Sadducees came, and testing Him asked that He would show them a sign from heaven. 
 
 ###### 2 
-He answered and said to them, "When it is evening you say, '_It will be_ fair weather, for the sky is red'; 
+He answered and said to them, "When it is evening you say, 'It will be fair weather, for the sky is red'; 
 
 ###### 3 
-and in the morning, '_It will be_ foul weather today, for the sky is red and threatening.' Hypocrites! You know how to discern the face of the sky, but you cannot _discern_ the signs of the times. 
+and in the morning, 'It will be foul weather today, for the sky is red and threatening.' Hypocrites! You know how to discern the face of the sky, but you cannot discern the signs of the times. 
 
 ###### 4 
 A wicked and adulterous generation seeks after a sign, and no sign shall be given to it except the sign of the prophet Jonah." And He left them and departed.
@@ -30,10 +30,10 @@ Now when His disciples had come to the other side, they had forgotten to take br
 Then Jesus said to them, "Take heed and beware of the leaven of the Pharisees and the Sadducees." 
 
 ###### 7 
-And they reasoned among themselves, saying, "_It is_ because we have taken no bread." 
+And they reasoned among themselves, saying, "It is because we have taken no bread." 
 
 ###### 8 
-But Jesus, being aware of _it,_ said to them, "O you of little faith, why do you reason among yourselves because you have brought no bread? 
+But Jesus, being aware of it, said to them, "O you of little faith, why do you reason among yourselves because you have brought no bread? 
 
 ###### 9 
 Do you not yet understand, or remember the five loaves of the five thousand and how many baskets you took up? 
@@ -42,10 +42,10 @@ Do you not yet understand, or remember the five loaves of the five thousand and 
 Nor the seven loaves of the four thousand and how many large baskets you took up? 
 
 ###### 11 
-How is it you do not understand that I did not speak to you concerning bread?--_but_ to beware of the leaven of the Pharisees and Sadducees." 
+How is it you do not understand that I did not speak to you concerning bread?--but to beware of the leaven of the Pharisees and Sadducees." 
 
 ###### 12 
-Then they understood that He did not tell _them_ to beware of the leaven of bread, but of the doctrine of the Pharisees and Sadducees.
+Then they understood that He did not tell them to beware of the leaven of bread, but of the doctrine of the Pharisees and Sadducees.
 
 ## Peter Confesses Jesus as the Christ 
 
@@ -53,7 +53,7 @@ Then they understood that He did not tell _them_ to beware of the leaven of brea
 When Jesus came into the region of Caesarea Philippi, He asked His disciples, saying, "Who do men say that I, the Son of Man, am?" 
 
 ###### 14 
-So they said, "Some _say_ John the Baptist, some Elijah, and others Jeremiah or one of the prophets." 
+So they said, "Some say John the Baptist, some Elijah, and others Jeremiah or one of the prophets." 
 
 ###### 15 
 He said to them, "But who do you say that I am?" 
@@ -62,7 +62,7 @@ He said to them, "But who do you say that I am?"
 Simon Peter answered and said, "You are the Christ, the Son of the living God." 
 
 ###### 17 
-Jesus answered and said to him, "Blessed are you, Simon Bar-Jonah, for flesh and blood has not revealed _this_ to you, but My Father who is in heaven. 
+Jesus answered and said to him, "Blessed are you, Simon Bar-Jonah, for flesh and blood has not revealed this to you, but My Father who is in heaven. 
 
 ###### 18 
 And I also say to you that you are Peter, and on this rock I will build My church, and the gates of Hades shall not prevail against it. 

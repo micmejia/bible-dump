@@ -40,7 +40,7 @@ next: ['Deut 9']
 
 
 
-"Sundin ninyong mabuti ang lahat ng utos na ibinibigay ko sa inyo sa araw na ito, para mabuhay kayo nang matagal_ at dumami, at makapanirahan sa lupaing ipinangako ng Panginoon sa inyong mga ninuno. 
+"Sundin ninyong mabuti ang lahat ng utos na ibinibigay ko sa inyo sa araw na ito, para mabuhay kayo nang matagal at dumami, at makapanirahan sa lupaing ipinangako ng Panginoon sa inyong mga ninuno. 
 
 
 
@@ -139,7 +139,7 @@ Ibinaba niya kayo sa pamamagitan ng paggutom sa inyo at pagkatapos, binigyan niy
 
 
 
-Sa loob ng 40 taon, hindi naluma ang mga damit ninyo at hindi namaga ang mga paa ninyo sa paglalakbay_. 
+Sa loob ng 40 taon, hindi naluma ang mga damit ninyo at hindi namaga ang mga paa ninyo sa paglalakbay. 
 
 
 

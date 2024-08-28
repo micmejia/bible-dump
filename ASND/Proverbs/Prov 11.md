@@ -436,7 +436,7 @@ Ang taong walang pang-unawa ay kinukutya ang kapwa, ngunit ang taong may pang-un
 
 
 
-Ang mga taong madaldal ay nagsisiwalat ng sikreto ng iba_, ngunit ang taong mapagkakatiwalaan ay nakakapagtago ng sikreto ng iba_. 
+Ang mga taong madaldal ay nagsisiwalat ng sikreto ng iba, ngunit ang taong mapagkakatiwalaan ay nakakapagtago ng sikreto ng iba. 
 
 
 
@@ -865,7 +865,7 @@ Ang taong mapagbigay ay magtatagumpay sa buhay; ang taong tumutulong ay tiyak na
 
 
 
-Isinusumpa ang taong nagtatago ng paninda para maitinda ito kapag mataas na ang presyo_, ngunit pinupuri ang taong hindi nagtatago ng paninda. 
+Isinusumpa ang taong nagtatago ng paninda para maitinda ito kapag mataas na ang presyo, ngunit pinupuri ang taong hindi nagtatago ng paninda. 
 
 
 

@@ -73,7 +73,7 @@ next: ['Exod 31']
 
 
 
-Kailangang kwadrado ito-18 pulgada ang haba at ang lapad, at tatlong talampakan ang taas. Kailangang mayroon itong parang_ sungay sa mga sulok na kasamang ginawa nang gawin ang altar. 
+Kailangang kwadrado ito-18 pulgada ang haba at ang lapad, at tatlong talampakan ang taas. Kailangang mayroon itong parang sungay sa mga sulok na kasamang ginawa nang gawin ang altar. 
 
 
 
@@ -106,7 +106,7 @@ Kailangang kwadrado ito-18 pulgada ang haba at ang lapad, at tatlong talampakan 
 
 
 
-Balutin mo ng purong ginto ang ibabaw nito, ang apat na gilid, at ang parang_ sungay sa mga sulok nito. At lagyan mo ito ng hinulmang ginto sa palibot. 
+Balutin mo ng purong ginto ang ibabaw nito, ang apat na gilid, at ang parang sungay sa mga sulok nito. At lagyan mo ito ng hinulmang ginto sa palibot. 
 
 
 
@@ -337,7 +337,7 @@ Huwag kayong mag-aalay sa altar na ito ng ibang insenso, o kahit anong handog na
 
 
 
-Isang beses sa bawat taon, kailangang linisin ni Aaron ang altar sa pamamagitan ng pagpapahid ng dugo sa parang_ mga sungay na sulok nito. Ang dugong ipapahid ay galing sa handog sa paglilinis. Dapat itong gawin bawat taon ng susunod pang mga henerasyon, dahil ang altar na ito ay napakabanal para sa akin." 
+Isang beses sa bawat taon, kailangang linisin ni Aaron ang altar sa pamamagitan ng pagpapahid ng dugo sa parang mga sungay na sulok nito. Ang dugong ipapahid ay galing sa handog sa paglilinis. Dapat itong gawin bawat taon ng susunod pang mga henerasyon, dahil ang altar na ito ay napakabanal para sa akin." 
 
 
 
@@ -832,7 +832,7 @@ Italaga mo ang mga bagay na ito para maging napakabanal nito. Ibubukod ang sinum
 
 
 
-"Pahiran mo rin ng langis_ si Aaron at ang mga anak niya bilang pag-oordina sa kanila, para makapaglingkod sila sa akin bilang mga pari. 
+"Pahiran mo rin ng langis si Aaron at ang mga anak niya bilang pag-oordina sa kanila, para makapaglingkod sila sa akin bilang mga pari. 
 
 
 
@@ -1030,7 +1030,7 @@ Sa pamamagitan ng mga ito, gumawa ka ng napakabangong insenso. Pagkatapos, lagya
 
 
 
-Dikdikin nang pino ang iba sa mga ito at iwisik sa harap ng Kahon_ ng Kasunduan na nasa Toldang Tipanan, kung saan ako makikipagkita sa iyo. Dapat mo itong ituring na pinakabanal. 
+Dikdikin nang pino ang iba sa mga ito at iwisik sa harap ng Kahon ng Kasunduan na nasa Toldang Tipanan, kung saan ako makikipagkita sa iyo. Dapat mo itong ituring na pinakabanal. 
 
 
 

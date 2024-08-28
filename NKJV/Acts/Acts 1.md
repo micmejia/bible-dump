@@ -20,7 +20,7 @@ to whom He also presented Himself alive after His suffering by many infallible p
 ## The Holy Spirit Promised 
 
 ###### 4 
-And being assembled together with _them,_ He commanded them not to depart from Jerusalem, but to wait for the Promise of the Father, "which," _He said,_ "you have heard from Me; 
+And being assembled together with them, He commanded them not to depart from Jerusalem, but to wait for the Promise of the Father, "which," He said, "you have heard from Me; 
 
 ###### 5 
 for John truly baptized with water, but you shall be baptized with the Holy Spirit not many days from now." 
@@ -41,13 +41,13 @@ Now when He had spoken these things, while they watched, He was taken up, and a 
 And while they looked steadfastly toward heaven as He went up, behold, two men stood by them in white apparel, 
 
 ###### 11 
-who also said, "Men of Galilee, why do you stand gazing up into heaven? This _same_ Jesus, who was taken up from you into heaven, will so come in like manner as you saw Him go into heaven." ## The Upper Room Prayer Meeting 
+who also said, "Men of Galilee, why do you stand gazing up into heaven? This same Jesus, who was taken up from you into heaven, will so come in like manner as you saw Him go into heaven." ## The Upper Room Prayer Meeting 
 
 ###### 12 
 Then they returned to Jerusalem from the mount called Olivet, which is near Jerusalem, a Sabbath day's journey. 
 
 ###### 13 
-And when they had entered, they went up into the upper room where they were staying: Peter, James, John, and Andrew; Philip and Thomas; Bartholomew and Matthew; James _the son_ of Alphaeus and Simon the Zealot; and Judas _the son_ of James. 
+And when they had entered, they went up into the upper room where they were staying: Peter, James, John, and Andrew; Philip and Thomas; Bartholomew and Matthew; James the son of Alphaeus and Simon the Zealot; and Judas the son of James. 
 
 ###### 14 
 These all continued with one accord in prayer and supplication, with the women and Mary the mother of Jesus, and with His brothers.
@@ -58,7 +58,7 @@ These all continued with one accord in prayer and supplication, with the women a
 And in those days Peter stood up in the midst of the disciples (altogether the number of names was about a hundred and twenty), and said, 
 
 ###### 16 
-"Men _and_ brethren, this Scripture had to be fulfilled, which the Holy Spirit spoke before by the mouth of David concerning Judas, who became a guide to those who arrested Jesus; 
+"Men and brethren, this Scripture had to be fulfilled, which the Holy Spirit spoke before by the mouth of David concerning Judas, who became a guide to those who arrested Jesus; 
 
 ###### 17 
 for he was numbered with us and obtained a part in this ministry." 

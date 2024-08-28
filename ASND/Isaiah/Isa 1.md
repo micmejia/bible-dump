@@ -39,7 +39,7 @@ next: ['Isa 2']
 
 
 
-Ang aklat na itoʼy tungkol sa ipinahayag ng Dios kay Isaias na anak ni Amoz. Tungkol ito sa Juda at Jerusalem noong magkakasunod na_ naghari sa Juda sina Uzia, Jotam, Ahaz, at Hezekia.
+Ang aklat na itoʼy tungkol sa ipinahayag ng Dios kay Isaias na anak ni Amoz. Tungkol ito sa Juda at Jerusalem noong magkakasunod na naghari sa Juda sina Uzia, Jotam, Ahaz, at Hezekia.
 
 ## Ang Makasalanang Bansa 
 
@@ -74,7 +74,7 @@ Ang aklat na itoʼy tungkol sa ipinahayag ng Dios kay Isaias na anak ni Amoz. Tu
 
 
 
-Pakinggan ninyo langit at lupa, dahil sinabi ng Panginoon, "Inalagaan koʼt pinalaki ang mga Israelita na_ aking mga anak, pero nagrebelde sila sa akin. 
+Pakinggan ninyo langit at lupa, dahil sinabi ng Panginoon, "Inalagaan koʼt pinalaki ang mga Israelita na aking mga anak, pero nagrebelde sila sa akin. 
 
 
 
@@ -140,7 +140,7 @@ Kahit ang mga bakaʼy kilala ang kanilang tagapag-alaga, at ang mga asnoʼy alam
 
 
 
-Sila ay bansang makasalanan, mga taong punong-puno ng kasamaan, lahi ng mga gumagawa ng masama at mapaminsala. Itinakwil nila at kinutya ang Panginoon, ang Banal na Dios_ ng Israel, at siyaʼy tinalikuran nila. 
+Sila ay bansang makasalanan, mga taong punong-puno ng kasamaan, lahi ng mga gumagawa ng masama at mapaminsala. Itinakwil nila at kinutya ang Panginoon, ang Banal na Dios ng Israel, at siyaʼy tinalikuran nila. 
 
 
 
@@ -173,7 +173,7 @@ Sila ay bansang makasalanan, mga taong punong-puno ng kasamaan, lahi ng mga guma
 
 
 
-Mga taga-Israel,_ bakit patuloy kayong nagrerebelde? Gusto pa ba ninyong maparusahan? Para kayong tao na puro sugat ang ulo at ang pusoʼy puno ng sakit. 
+Mga taga-Israel, bakit patuloy kayong nagrerebelde? Gusto pa ba ninyong maparusahan? Para kayong tao na puro sugat ang ulo at ang pusoʼy puno ng sakit. 
 
 
 
@@ -272,7 +272,7 @@ Hindi na mapakinabangan ang inyong bansa; sinunog ng mga dayuhan ang mga lungsod
 
 
 
-Walang natira kundi ang Jerusalem. Para itong silungan sa isang ubasan o isang kubol sa taniman ng mga pipino na mag-isang nakatayo_, at para ring lungsod na pinalibutan ng kaaway. 
+Walang natira kundi ang Jerusalem. Para itong silungan sa isang ubasan o isang kubol sa taniman ng mga pipino na mag-isang nakatayo, at para ring lungsod na pinalibutan ng kaaway. 
 
 
 
@@ -668,7 +668,7 @@ Kung susunod lang kayo sa akin ay pagpapalain ko kayo.
 
 
 
-Pero kung patuloy kayong magrerebelde, tiyak na mamamatay kayo." Mangyayari nga ito_ dahil sinabi ng Panginoon.
+Pero kung patuloy kayong magrerebelde, tiyak na mamamatay kayo." Mangyayari nga ito dahil sinabi ng Panginoon.
 
 ## Ang Makasalanang Lungsod 
 
@@ -703,7 +703,7 @@ Pero kung patuloy kayong magrerebelde, tiyak na mamamatay kayo." Mangyayari nga 
 
 
 
-Tingnan ninyo ang lungsod ng Jerusalem_. Matapat ito noon, pero ngayoʼy_ para nang babaeng bayaran. Datiʼy_ mga taong matuwid ang mga nakatira rito, pero ngayon ay mga mamamatay-tao. 
+Tingnan ninyo ang lungsod ng Jerusalem. Matapat ito noon, pero ngayoʼy para nang babaeng bayaran. Datiʼy mga taong matuwid ang mga nakatira rito, pero ngayon ay mga mamamatay-tao. 
 
 
 
@@ -736,7 +736,7 @@ Tingnan ninyo ang lungsod ng Jerusalem_. Matapat ito noon, pero ngayoʼy_ para n
 
 
 
-Jerusalem, datiʼy_ mahalaga ka tulad ng pilak, pero ngayon ay wala ka nang silbi. Noon_ para kang mamahaling_ alak, pero ngayon ay para ka nang alak_ na may halong tubig. 
+Jerusalem, datiʼy mahalaga ka tulad ng pilak, pero ngayon ay wala ka nang silbi. Noon para kang mamahaling alak, pero ngayon ay para ka nang alak na may halong tubig. 
 
 
 
@@ -967,7 +967,7 @@ Pero lilipulin niya ang mga suwail at mga makasalanan, ang mga taong tumalikod s
 
 
 
-Mapapahiya kayo na mga taga-Jerusalem_ dahil sa pagsamba ninyo sa mga puno ng ensina at sa mga sagradong halamanan. 
+Mapapahiya kayo na mga taga-Jerusalem dahil sa pagsamba ninyo sa mga puno ng ensina at sa mga sagradong halamanan. 
 
 
 
@@ -1033,4 +1033,4 @@ Matutulad kayo sa isang nalalantang puno ng ensina, at sa isang halamanang hindi
 
 
 
-Ang mga makapangyarihan sa inyo ay magiging katulad ng tuyong kahoy na madaling masunog, at ang masasama_ nilang gawa ay magiging parang tilamsik ng apoy na susunog sa kanila. Walang makakapatay sa apoy na iyon.
+Ang mga makapangyarihan sa inyo ay magiging katulad ng tuyong kahoy na madaling masunog, at ang masasama nilang gawa ay magiging parang tilamsik ng apoy na susunog sa kanila. Walang makakapatay sa apoy na iyon.

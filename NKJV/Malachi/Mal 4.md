@@ -15,10 +15,10 @@ up: ['Malachi']
 But to you who fear My name The Sun of Righteousness shall arise With healing in His wings; And you shall go out And grow fat like stall-fed calves. 
 
 ###### 3 
-You shall trample the wicked, For they shall be ashes under the soles of your feet On the day that I do _this,_" Says the Lord of hosts. 
+You shall trample the wicked, For they shall be ashes under the soles of your feet On the day that I do this," Says the Lord of hosts. 
 
 ###### 4 
-"Remember the Law of Moses, My servant, Which I commanded him in Horeb for all Israel, _With_ _the_ statutes and judgments. 
+"Remember the Law of Moses, My servant, Which I commanded him in Horeb for all Israel, With the statutes and judgments. 
 
 ###### 5 
 Behold, I will send you Elijah the prophet Before the coming of the great and dreadful day of the Lord. 

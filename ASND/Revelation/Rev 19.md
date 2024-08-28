@@ -73,7 +73,7 @@ Pagkatapos, nakarinig ako ng parang napakaraming tao sa langit na nagsisigawan, 
 
 
 
-Matuwid at tama ang kanyang paghatol. Hinatulan niya ang sikat na babaeng bayaran na nagpasama sa mga tao sa_ mundo dahil sa kanyang imoralidad. Pinarusahan siya ng Dios dahil pinatay niya ang mga lingkod ng Dios." 
+Matuwid at tama ang kanyang paghatol. Hinatulan niya ang sikat na babaeng bayaran na nagpasama sa mga tao sa mundo dahil sa kanyang imoralidad. Pinarusahan siya ng Dios dahil pinatay niya ang mga lingkod ng Dios." 
 
 
 
@@ -271,7 +271,7 @@ Magalak tayo at magsaya, at purihin natin siya. Sapagkat dumating na ang oras ng
 
 
 
-Pinagsuot siya ng damit na malinis, makinang, at puting-puti." Ang ibig sabihin ng puting damit ay ang mabubuting gawa ng mga pinabanal ng Dios_. 
+Pinagsuot siya ng damit na malinis, makinang, at puting-puti." Ang ibig sabihin ng puting damit ay ang mabubuting gawa ng mga pinabanal ng Dios. 
 
 
 
@@ -337,7 +337,7 @@ At sinabi sa akin ng anghel, "Isulat mo ito: Mapalad ang mga inimbitahan sa hand
 
 
 
-Lumuhod ako sa paanan niya upang sumamba sa kanya. Pero sinabi niya sa akin, "Huwag! Huwag mo akong sambahin. Sapagkat alipin din ako ng Dios,_ tulad mo at ng mga kapatid mong nagpapahayag ng katotohanang itinuro ni Jesus. Ang Dios ang sambahin mo!" (Sapagkat ang mga katotohanang itinuro ni Jesus ay siyang buod ng mga sinabi at isinulat ng mga propeta.) ## Ang Nakasakay sa Puting Kabayo 
+Lumuhod ako sa paanan niya upang sumamba sa kanya. Pero sinabi niya sa akin, "Huwag! Huwag mo akong sambahin. Sapagkat alipin din ako ng Dios, tulad mo at ng mga kapatid mong nagpapahayag ng katotohanang itinuro ni Jesus. Ang Dios ang sambahin mo!" (Sapagkat ang mga katotohanang itinuro ni Jesus ay siyang buod ng mga sinabi at isinulat ng mga propeta.) ## Ang Nakasakay sa Puting Kabayo 
 
 
 
@@ -403,7 +403,7 @@ Pagkatapos, nakita kong nabuksan ang langit, at may puting kabayo na nakatayo ro
 
 
 
-Parang nagniningas na apoy ang mga mata niya at marami ang mga korona niya sa ulo. May nakasulat na pangalan sa kanya, na siya lang ang nakakaalam kung ano ang kahulugan_. 
+Parang nagniningas na apoy ang mga mata niya at marami ang mga korona niya sa ulo. May nakasulat na pangalan sa kanya, na siya lang ang nakakaalam kung ano ang kahulugan. 
 
 
 
@@ -601,7 +601,7 @@ Pagkatapos, nakita ko ang isang anghel na nakatayo sa araw. Sumigaw siya sa mga 
 
 
 
-Halikayo!_ Kainin ninyo ang laman ng mga hari, mga heneral, mga kawal, mga nakasakay sa kabayo, pati na ang laman ng kanilang mga kabayo. Kainin ninyo ang laman ng lahat ng tao, alipin man o hindi, hamak man o dakila." 
+Halikayo! Kainin ninyo ang laman ng mga hari, mga heneral, mga kawal, mga nakasakay sa kabayo, pati na ang laman ng kanilang mga kabayo. Kainin ninyo ang laman ng lahat ng tao, alipin man o hindi, hamak man o dakila." 
 
 
 
@@ -634,7 +634,7 @@ Halikayo!_ Kainin ninyo ang laman ng mga hari, mga heneral, mga kawal, mga nakas
 
 
 
-Pagkatapos, nakita ko ang halimaw at ang mga hari sa mundo kasama ang kanilang mga kawal. Nagtipon sila upang labanan ang nakasakay sa puting_ kabayo at ang kanyang mga sundalo mula sa langit_. 
+Pagkatapos, nakita ko ang halimaw at ang mga hari sa mundo kasama ang kanilang mga kawal. Nagtipon sila upang labanan ang nakasakay sa puting kabayo at ang kanyang mga sundalo mula sa langit. 
 
 
 
@@ -700,4 +700,4 @@ Ngunit dinakip ang halimaw. Dinakip din ang huwad at sinungaling na propeta na g
 
 
 
-Pinatay ang mga sundalo nila sa pamamagitan ng espadang lumabas sa bibig ng nakasakay sa puting_ kabayo. At ang mga ibon ay nagsawa sa kakakain ng kanilang bangkay.
+Pinatay ang mga sundalo nila sa pamamagitan ng espadang lumabas sa bibig ng nakasakay sa puting kabayo. At ang mga ibon ay nagsawa sa kakakain ng kanilang bangkay.

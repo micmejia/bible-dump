@@ -72,7 +72,7 @@ Kung naging kapatid lamang sana kita, na pinasuso ng aking ina, hahalikan kita s
 
 
 
-Dadalhin kita sa bahay ng aking ina, at doon ay tuturuan mo ako ng tungkol sa pag-ibig_. Paiinumin kita ng mabangong alak na mula sa katas ng aking mga pomegranata. 
+Dadalhin kita sa bahay ng aking ina, at doon ay tuturuan mo ako ng tungkol sa pag-ibig. Paiinumin kita ng mabangong alak na mula sa katas ng aking mga pomegranata. 
 
 
 
@@ -468,4 +468,4 @@ O irog kong namamasyal sa hardin, mabuti pa ang mga kaibigan mo, naririnig nila 
 
 
 
-Halika, aking mahal. Tumakbo ka nang mabilis_ gaya ng usa sa kabundukan na punong-puno ng mga halamang ginagawang pabango.
+Halika, aking mahal. Tumakbo ka nang mabilis gaya ng usa sa kabundukan na punong-puno ng mga halamang ginagawang pabango.

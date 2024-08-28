@@ -25,16 +25,16 @@ for all these out of their abundance have put in offerings for God, but she out 
 Then, as some spoke of the temple, how it was adorned with beautiful stones and donations, He said, 
 
 ###### 6 
-"These things which you see--the days will come in which not _one_ stone shall be left upon another that shall not be thrown down." ## The Signs of the Times and the End of the Age 
+"These things which you see--the days will come in which not one stone shall be left upon another that shall not be thrown down." ## The Signs of the Times and the End of the Age 
 
 ###### 7 
-So they asked Him, saying, "Teacher, but when will these things be? And what sign _will there be_ when these things are about to take place?" 
+So they asked Him, saying, "Teacher, but when will these things be? And what sign will there be when these things are about to take place?" 
 
 ###### 8 
-And He said: "Take heed that you not be deceived. For many will come in My name, saying, 'I am _He,_' and, 'The time has drawn near.' Therefore do not go after them. 
+And He said: "Take heed that you not be deceived. For many will come in My name, saying, 'I am He,' and, 'The time has drawn near.' Therefore do not go after them. 
 
 ###### 9 
-But when you hear of wars and commotions, do not be terrified; for these things must come to pass first, but the end _will_ not _come_ immediately." 
+But when you hear of wars and commotions, do not be terrified; for these things must come to pass first, but the end will not come immediately." 
 
 ###### 10 
 Then He said to them, "Nation will rise against nation, and kingdom against kingdom. 
@@ -43,19 +43,19 @@ Then He said to them, "Nation will rise against nation, and kingdom against king
 And there will be great earthquakes in various places, and famines and pestilences; and there will be fearful sights and great signs from heaven. 
 
 ###### 12 
-But before all these things, they will lay their hands on you and persecute _you,_ delivering _you_ up to the synagogues and prisons. You will be brought before kings and rulers for My name's sake. 
+But before all these things, they will lay their hands on you and persecute you, delivering you up to the synagogues and prisons. You will be brought before kings and rulers for My name's sake. 
 
 ###### 13 
 But it will turn out for you as an occasion for testimony. 
 
 ###### 14 
-Therefore settle _it_ in your hearts not to meditate beforehand on what you will answer; 
+Therefore settle it in your hearts not to meditate beforehand on what you will answer; 
 
 ###### 15 
 for I will give you a mouth and wisdom which all your adversaries will not be able to contradict or resist. 
 
 ###### 16 
-You will be betrayed even by parents and brothers, relatives and friends; and they will put _some_ of you to death. 
+You will be betrayed even by parents and brothers, relatives and friends; and they will put some of you to death. 
 
 ###### 17 
 And you will be hated by all for My name's sake. 

@@ -139,7 +139,7 @@ Kaya nakipag-usap sina Moises at Eleazar na pari sa mga Israelita roon sa kapata
 
 
 
-Sinabi niya sa kanila_, "Isensus ninyo ang mga taong may edad na 20 taon pataas, ayon sa iniutos ng Panginoon kay Moises." Ito ang mga Israelitang lumabas sa Egipto: 
+Sinabi niya sa kanila, "Isensus ninyo ang mga taong may edad na 20 taon pataas, ayon sa iniutos ng Panginoon kay Moises." Ito ang mga Israelitang lumabas sa Egipto: 
 
 
 

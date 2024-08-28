@@ -8,7 +8,7 @@ up: ['Philemon']
 
 
 ###### 1 
-Paul, a prisoner of Christ Jesus, and Timothy _our_ brother, To Philemon our beloved _friend_ and fellow laborer, 
+Paul, a prisoner of Christ Jesus, and Timothy our brother, To Philemon our beloved friend and fellow laborer, 
 
 ###### 2 
 to the beloved Apphia, Archippus our fellow soldier, and to the church in your house: 
@@ -36,10 +36,10 @@ For we have great joy and consolation in your love, because the hearts of the sa
 Therefore, though I might be very bold in Christ to command you what is fitting, 
 
 ###### 9 
-_yet_ for love's sake I rather appeal _to you_--being such a one as Paul, the aged, and now also a prisoner of Jesus Christ-- 
+yet for love's sake I rather appeal to you--being such a one as Paul, the aged, and now also a prisoner of Jesus Christ-- 
 
 ###### 10 
-I appeal to you for my son Onesimus, whom I have begotten _while_ in my chains, 
+I appeal to you for my son Onesimus, whom I have begotten while in my chains, 
 
 ###### 11 
 who once was unprofitable to you, but now is profitable to you and to me. 
@@ -54,7 +54,7 @@ whom I wished to keep with me, that on your behalf he might minister to me in my
 But without your consent I wanted to do nothing, that your good deed might not be by compulsion, as it were, but voluntary. 
 
 ###### 15 
-For perhaps he departed for a while for this _purpose,_ that you might receive him forever, 
+For perhaps he departed for a while for this purpose, that you might receive him forever, 
 
 ###### 16 
 no longer as a slave but more than a slave--a beloved brother, especially to me but how much more to you, both in the flesh and in the Lord.
@@ -62,7 +62,7 @@ no longer as a slave but more than a slave--a beloved brother, especially to me 
 ## Philemon's Obedience Encouraged 
 
 ###### 17 
-If then you count me as a partner, receive him as _you would_ me. 
+If then you count me as a partner, receive him as you would me. 
 
 ###### 18 
 But if he has wronged you or owes anything, put that on my account. 
@@ -85,7 +85,7 @@ But, meanwhile, also prepare a guest room for me, for I trust that through your 
 Epaphras, my fellow prisoner in Christ Jesus, greets you, 
 
 ###### 24 
-_as do_ Mark, Aristarchus, Demas, Luke, my fellow laborers. 
+as do Mark, Aristarchus, Demas, Luke, my fellow laborers. 
 
 ###### 25 
-The grace of our Lord Jesus Christ _be_ with your spirit. Amen.
+The grace of our Lord Jesus Christ be with your spirit. Amen.

@@ -73,7 +73,7 @@ Ang mensaheng itoʼy tungkol sa Moab: Sa loob lang ng isang gabi ay nawasak ang 
 
 
 
-Umahon ang mga taga-Dibon sa kanilang templo at sa kanilang mga sambahan sa matataas na lugar para umiyak. Iniiyakan ng mga taga-Moab ang Nebo at Medeba. Ang bawat isa sa kanilaʼy nagpakalbo at nagpaahit ng mga balbas upang ipakita ang kanilang kalungkutan_. 
+Umahon ang mga taga-Dibon sa kanilang templo at sa kanilang mga sambahan sa matataas na lugar para umiyak. Iniiyakan ng mga taga-Moab ang Nebo at Medeba. Ang bawat isa sa kanilaʼy nagpakalbo at nagpaahit ng mga balbas upang ipakita ang kanilang kalungkutan. 
 
 
 

@@ -13,7 +13,7 @@ next: ['Heb 12']
 Now faith is the substance of things hoped for, the evidence of things not seen. 
 
 ###### 2 
-For by it the elders obtained a _good_ testimony. 
+For by it the elders obtained a good testimony. 
 
 ###### 3 
 By faith we understand that the worlds were framed by the word of God, so that the things which are seen were not made of things which are visible.
@@ -27,7 +27,7 @@ By faith Abel offered to God a more excellent sacrifice than Cain, through which
 By faith Enoch was taken away so that he did not see death, "and was not found, because God had taken him"; for before he was taken he had this testimony, that he pleased God. 
 
 ###### 6 
-But without faith _it is_ impossible to please _Him,_ for he who comes to God must believe that He is, and _that_ He is a rewarder of those who diligently seek Him. 
+But without faith it is impossible to please Him, for he who comes to God must believe that He is, and that He is a rewarder of those who diligently seek Him. 
 
 ###### 7 
 By faith Noah, being divinely warned of things not yet seen, moved with godly fear, prepared an ark for the saving of his household, by which he condemned the world and became heir of the righteousness which is according to faith.
@@ -38,47 +38,47 @@ By faith Noah, being divinely warned of things not yet seen, moved with godly fe
 By faith Abraham obeyed when he was called to go out to the place which he would receive as an inheritance. And he went out, not knowing where he was going. 
 
 ###### 9 
-By faith he dwelt in the land of promise as _in_ a foreign country, dwelling in tents with Isaac and Jacob, the heirs with him of the same promise; 
+By faith he dwelt in the land of promise as in a foreign country, dwelling in tents with Isaac and Jacob, the heirs with him of the same promise; 
 
 ###### 10 
-for he waited for the city which has foundations, whose builder and maker _is_ God. 
+for he waited for the city which has foundations, whose builder and maker is God. 
 
 ###### 11 
 By faith Sarah herself also received strength to conceive seed, and she bore a child when she was past the age, because she judged Him faithful who had promised. 
 
 ###### 12 
-Therefore from one man, and him as good as dead, were born _as many_ as the stars of the sky in multitude--innumerable as the sand which is by the seashore.
+Therefore from one man, and him as good as dead, were born as many as the stars of the sky in multitude--innumerable as the sand which is by the seashore.
 
 ## The Heavenly Hope 
 
 ###### 13 
-These all died in faith, not having received the promises, but having seen them afar off were assured of them, embraced _them_ and confessed that they were strangers and pilgrims on the earth. 
+These all died in faith, not having received the promises, but having seen them afar off were assured of them, embraced them and confessed that they were strangers and pilgrims on the earth. 
 
 ###### 14 
 For those who say such things declare plainly that they seek a homeland. 
 
 ###### 15 
-And truly if they had called to mind that _country_ from which they had come out, they would have had opportunity to return. 
+And truly if they had called to mind that country from which they had come out, they would have had opportunity to return. 
 
 ###### 16 
-But now they desire a better, that is, a heavenly _country._ Therefore God is not ashamed to be called their God, for He has prepared a city for them.
+But now they desire a better, that is, a heavenly country. Therefore God is not ashamed to be called their God, for He has prepared a city for them.
 
 ## The Faith of the Patriarchs 
 
 ###### 17 
-By faith Abraham, when he was tested, offered up Isaac, and he who had received the promises offered up his only begotten _son,_ 
+By faith Abraham, when he was tested, offered up Isaac, and he who had received the promises offered up his only begotten son, 
 
 ###### 18 
 of whom it was said, "In Isaac your seed shall be called," 
 
 ###### 19 
-concluding that God _was_ able to raise _him_ up, even from the dead, from which he also received him in a figurative sense. 
+concluding that God was able to raise him up, even from the dead, from which he also received him in a figurative sense. 
 
 ###### 20 
 By faith Isaac blessed Jacob and Esau concerning things to come. 
 
 ###### 21 
-By faith Jacob, when he was dying, blessed each of the sons of Joseph, and worshiped, _leaning_ on the top of his staff. 
+By faith Jacob, when he was dying, blessed each of the sons of Joseph, and worshiped, leaning on the top of his staff. 
 
 ###### 22 
 By faith Joseph, when he was dying, made mention of the departure of the children of Israel, and gave instructions concerning his bones.
@@ -86,7 +86,7 @@ By faith Joseph, when he was dying, made mention of the departure of the childre
 ## The Faith of Moses 
 
 ###### 23 
-By faith Moses, when he was born, was hidden three months by his parents, because they saw _he was_ a beautiful child; and they were not afraid of the king's command. 
+By faith Moses, when he was born, was hidden three months by his parents, because they saw he was a beautiful child; and they were not afraid of the king's command. 
 
 ###### 24 
 By faith Moses, when he became of age, refused to be called the son of Pharaoh's daughter, 
@@ -104,7 +104,7 @@ By faith he forsook Egypt, not fearing the wrath of the king; for he endured as 
 By faith he kept the Passover and the sprinkling of blood, lest he who destroyed the firstborn should touch them. 
 
 ###### 29 
-By faith they passed through the Red Sea as by dry _land, whereas_ the Egyptians, attempting to do so, were drowned.
+By faith they passed through the Red Sea as by dry land, whereas the Egyptians, attempting to do so, were drowned.
 
 ## By Faith They Overcame 
 
@@ -115,7 +115,7 @@ By faith the walls of Jericho fell down after they were encircled for seven days
 By faith the harlot Rahab did not perish with those who did not believe, when she had received the spies with peace. 
 
 ###### 32 
-And what more shall I say? For the time would fail me to tell of Gideon and Barak and Samson and Jephthah, also _of_ David and Samuel and the prophets: 
+And what more shall I say? For the time would fail me to tell of Gideon and Barak and Samson and Jephthah, also of David and Samuel and the prophets: 
 
 ###### 33 
 who through faith subdued kingdoms, worked righteousness, obtained promises, stopped the mouths of lions, 
@@ -133,7 +133,7 @@ Still others had trial of mockings and scourgings, yes, and of chains and impris
 They were stoned, they were sawn in two, were tempted, were slain with the sword. They wandered about in sheepskins and goatskins, being destitute, afflicted, tormented-- 
 
 ###### 38 
-of whom the world was not worthy. They wandered in deserts and mountains, _in_ dens and caves of the earth. 
+of whom the world was not worthy. They wandered in deserts and mountains, in dens and caves of the earth. 
 
 ###### 39 
 And all these, having obtained a good testimony through faith, did not receive the promise, 

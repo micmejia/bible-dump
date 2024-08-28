@@ -19,7 +19,7 @@ And when Peter came up to Jerusalem, those of the circumcision contended with hi
 saying, "You went in to uncircumcised men and ate with them!" 
 
 ###### 4 
-But Peter explained _it_ to them in order from the beginning, saying: 
+But Peter explained it to them in order from the beginning, saying: 
 
 ###### 5 
 "I was in the city of Joppa praying; and in a trance I saw a vision, an object descending like a great sheet, let down from heaven by four corners; and it came to me. 
@@ -58,7 +58,7 @@ And as I began to speak, the Holy Spirit fell upon them, as upon us at the begin
 Then I remembered the word of the Lord, how He said, 'John indeed baptized with water, but you shall be baptized with the Holy Spirit.' 
 
 ###### 17 
-If therefore God gave them the same gift as _He gave_ us when we believed on the Lord Jesus Christ, who was I that I could withstand God?" 
+If therefore God gave them the same gift as He gave us when we believed on the Lord Jesus Christ, who was I that I could withstand God?" 
 
 ###### 18 
 When they heard these things they became silent; and they glorified God, saying, "Then God has also granted to the Gentiles repentance to life." ## Barnabas and Saul at Antioch 

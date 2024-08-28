@@ -10,13 +10,13 @@ next: ['Jer 49']
 
 
 ###### 1 
-Against Moab. Thus says the Lord of hosts, the God of Israel: "Woe to Nebo! For it is plundered, Kirjathaim is shamed _and_ taken; The high stronghold is shamed and dismayed-- 
+Against Moab. Thus says the Lord of hosts, the God of Israel: "Woe to Nebo! For it is plundered, Kirjathaim is shamed and taken; The high stronghold is shamed and dismayed-- 
 
 ###### 2 
 No more praise of Moab. In Heshbon they have devised evil against her: 'Come, and let us cut her off as a nation.' You also shall be cut down, O Madmen! The sword shall pursue you; 
 
 ###### 3 
-A voice of crying _shall be_ from Horonaim: 'Plundering and great destruction!' 
+A voice of crying shall be from Horonaim: 'Plundering and great destruction!' 
 
 ###### 4 
 "Moab is destroyed; Her little ones have caused a cry to be heard; 
@@ -37,7 +37,7 @@ And the plunderer shall come against every city; No one shall escape. The valley
 "Give wings to Moab, That she may flee and get away; For her cities shall be desolate, Without any to dwell in them. 
 
 ###### 10 
-Cursed _is_ he who does the work of the Lord deceitfully, And cursed _is_ he who keeps back his sword from blood. 
+Cursed is he who does the work of the Lord deceitfully, And cursed is he who keeps back his sword from blood. 
 
 ###### 11 
 "Moab has been at ease from his youth; He has settled on his dregs, And has not been emptied from vessel to vessel, Nor has he gone into captivity. Therefore his taste remained in him, And his scent has not changed. 
@@ -49,19 +49,19 @@ Cursed _is_ he who does the work of the Lord deceitfully, And cursed _is_ he who
 Moab shall be ashamed of Chemosh, As the house of Israel was ashamed of Bethel, their confidence. 
 
 ###### 14 
-"How can you say, 'We _are_ mighty And strong men for the war'? 
+"How can you say, 'We are mighty And strong men for the war'? 
 
 ###### 15 
-Moab is plundered and gone up _from_ her cities; Her chosen young men have gone down to the slaughter," says the King, Whose name _is_ the Lord of hosts. 
+Moab is plundered and gone up from her cities; Her chosen young men have gone down to the slaughter," says the King, Whose name is the Lord of hosts. 
 
 ###### 16 
-"The calamity of Moab _is_ near at hand, And his affliction comes quickly. 
+"The calamity of Moab is near at hand, And his affliction comes quickly. 
 
 ###### 17 
 Bemoan him, all you who are around him; And all you who know his name, Say, 'How the strong staff is broken, The beautiful rod!' 
 
 ###### 18 
-"O daughter inhabiting Dibon, Come down from _your_ glory, And sit in thirst; For the plunderer of Moab has come against you, He has destroyed your strongholds. 
+"O daughter inhabiting Dibon, Come down from your glory, And sit in thirst; For the plunderer of Moab has come against you, He has destroyed your strongholds. 
 
 ###### 19 
 O inhabitant of Aroer, Stand by the way and watch; Ask him who flees And her who escapes; Say, 'What has happened?' 
@@ -85,19 +85,19 @@ On Kerioth and Bozrah, On all the cities of the land of Moab, Far or near.
 The horn of Moab is cut off, And his arm is broken," says the Lord. 
 
 ###### 26 
-"Make him drunk, Because he exalted _himself_ against the Lord. Moab shall wallow in his vomit, And he shall also be in derision. 
+"Make him drunk, Because he exalted himself against the Lord. Moab shall wallow in his vomit, And he shall also be in derision. 
 
 ###### 27 
-For was not Israel a derision to you? Was he found among thieves? For whenever you speak of him, You shake _your head in_ _scorn_. 
+For was not Israel a derision to you? Was he found among thieves? For whenever you speak of him, You shake your head in scorn. 
 
 ###### 28 
-You who dwell in Moab, Leave the cities and dwell in the rock, And be like the dove _which_ makes her nest In the sides of the cave's mouth. 
+You who dwell in Moab, Leave the cities and dwell in the rock, And be like the dove which makes her nest In the sides of the cave's mouth. 
 
 ###### 29 
-"We have heard the pride of Moab (He _is_ exceedingly proud), Of his loftiness and arrogance and pride, And of the haughtiness of his heart." 
+"We have heard the pride of Moab (He is exceedingly proud), Of his loftiness and arrogance and pride, And of the haughtiness of his heart." 
 
 ###### 30 
-"I know his wrath," says the Lord, "But it _is_ not right; His lies have made nothing right. 
+"I know his wrath," says the Lord, "But it is not right; His lies have made nothing right. 
 
 ###### 31 
 Therefore I will wail for Moab, And I will cry out for all Moab; I will mourn for the men of Kir Heres. 
@@ -109,19 +109,19 @@ O vine of Sibmah! I will weep for you with the weeping of Jazer. Your plants hav
 Joy and gladness are taken From the plentiful field And from the land of Moab; I have caused wine to fail from the winepresses; No one will tread with joyous shouting-- Not joyous shouting! 
 
 ###### 34 
-"From the cry of Heshbon to Elealeh and to Jahaz They have uttered their voice, From Zoar to Horonaim, _Like_ a three-year-old heifer; For the waters of Nimrim also shall be desolate. 
+"From the cry of Heshbon to Elealeh and to Jahaz They have uttered their voice, From Zoar to Horonaim, Like a three-year-old heifer; For the waters of Nimrim also shall be desolate. 
 
 ###### 35 
-"Moreover," says the Lord, "I will cause to cease in Moab The one who offers _sacrifices_ in the high places And burns incense to his gods. 
+"Moreover," says the Lord, "I will cause to cease in Moab The one who offers sacrifices in the high places And burns incense to his gods. 
 
 ###### 36 
 Therefore My heart shall wail like flutes for Moab, And like flutes My heart shall wail For the men of Kir Heres. Therefore the riches they have acquired have perished. 
 
 ###### 37 
-"For every head _shall be_ bald, and every beard clipped; On all the hands _shall be_ cuts, and on the loins sackcloth-- 
+"For every head shall be bald, and every beard clipped; On all the hands shall be cuts, and on the loins sackcloth-- 
 
 ###### 38 
-A general lamentation On all the housetops of Moab, And in its streets; For I have broken Moab like a vessel in which _is_ no pleasure," says the Lord. 
+A general lamentation On all the housetops of Moab, And in its streets; For I have broken Moab like a vessel in which is no pleasure," says the Lord. 
 
 ###### 39 
 "They shall wail: 'How she is broken down! How Moab has turned her back with shame!' So Moab shall be a derision And a dismay to all those about her." 
@@ -133,10 +133,10 @@ For thus says the Lord: "Behold, one shall fly like an eagle, And spread his win
 Kerioth is taken, And the strongholds are surprised; The mighty men's hearts in Moab on that day shall be Like the heart of a woman in birth pangs. 
 
 ###### 42 
-And Moab shall be destroyed as a people, Because he exalted _himself_ against the Lord. 
+And Moab shall be destroyed as a people, Because he exalted himself against the Lord. 
 
 ###### 43 
-Fear and the pit and the snare _shall be_ upon you, O inhabitant of Moab," says the Lord. 
+Fear and the pit and the snare shall be upon you, O inhabitant of Moab," says the Lord. 
 
 ###### 44 
 "He who flees from the fear shall fall into the pit, And he who gets out of the pit shall be caught in the snare. For upon Moab, upon it I will bring The year of their punishment," says the Lord. 
@@ -148,4 +148,4 @@ Fear and the pit and the snare _shall be_ upon you, O inhabitant of Moab," says 
 Woe to you, O Moab! The people of Chemosh perish; For your sons have been taken captive, And your daughters captive. 
 
 ###### 47 
-"Yet I will bring back the captives of Moab In the latter days," says the Lord. Thus far _is_ the judgment of Moab.
+"Yet I will bring back the captives of Moab In the latter days," says the Lord. Thus far is the judgment of Moab.

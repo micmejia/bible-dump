@@ -306,7 +306,7 @@ Iingatan ng Panginoon ang kanyang templo laban sa mga sumasalakay. Wala nang man
 
 
 
-Sinabi ng Panginoon,_ "Sumigaw kayo sa kagalakan, kayong mga mamamayan ng Zion, ang lungsod ng_ Jerusalem, dahil ang inyong hari ay darating na. Matuwid siya at mapagtagumpay. Mapagpakumbaba siya, at darating na_ nakasakay sa bisirong asno. 
+Sinabi ng Panginoon, "Sumigaw kayo sa kagalakan, kayong mga mamamayan ng Zion, ang lungsod ng Jerusalem, dahil ang inyong hari ay darating na. Matuwid siya at mapagtagumpay. Mapagpakumbaba siya, at darating na nakasakay sa bisirong asno. 
 
 
 
@@ -339,7 +339,7 @@ Sinabi ng Panginoon,_ "Sumigaw kayo sa kagalakan, kayong mga mamamayan ng Zion, 
 
 
 
-Ipaaalis niya ang mga karwahe at mga kabayong pandigma sa Israel at sa Juda. Babaliin ang mga panang ginagamit sa pandigma. Ang haring darating ay magdadala ng kapayapaan sa mga bansa. Maghahari siya mula sa isang dagat hanggang sa isa pang dagat, at mula sa Ilog ng Eufrates_ hanggang sa dulo ng mundo." ## Palalayain ng Dios ang Nabihag na mga Taga-Israel 
+Ipaaalis niya ang mga karwahe at mga kabayong pandigma sa Israel at sa Juda. Babaliin ang mga panang ginagamit sa pandigma. Ang haring darating ay magdadala ng kapayapaan sa mga bansa. Maghahari siya mula sa isang dagat hanggang sa isa pang dagat, at mula sa Ilog ng Eufrates hanggang sa dulo ng mundo." ## Palalayain ng Dios ang Nabihag na mga Taga-Israel 
 
 
 
@@ -372,7 +372,7 @@ Ipaaalis niya ang mga karwahe at mga kabayong pandigma sa Israel at sa Juda. Bab
 
 
 
-Sinabi pa ng Panginoon,_ "Tungkol naman sa inyo na mga taga-Israel_, palalayain ko ang mga nabihag sa inyo. Sila ay parang mga taong inihulog sa balon na walang tubig. Palalayain ko sila_ dahil sa kasunduan ko sa inyo na pinagtibay sa pamamagitan ng dugo. 
+Sinabi pa ng Panginoon, "Tungkol naman sa inyo na mga taga-Israel, palalayain ko ang mga nabihag sa inyo. Sila ay parang mga taong inihulog sa balon na walang tubig. Palalayain ko sila dahil sa kasunduan ko sa inyo na pinagtibay sa pamamagitan ng dugo. 
 
 
 
@@ -504,4 +504,4 @@ Magpapakita ang Panginoon sa ibabaw ng kanyang mga mamamayan. Kikislap ang kanya
 
 
 
-Iingatan ng Panginoong Makapangyarihan ang kanyang mga mamamayan. Tatapak-tapakan lang nila ang mga batong ibinabato sa kanila ng mga kaaway nila_. Magkakainan at mag-iinuman sila upang ipagdiwang ang kanilang tagumpay_. Magsisigawan sila na parang mga lasing. Mabubusog sila ng inumin katulad ng mangkok na punong-puno ng dugong iwiniwisik sa mga sulok ng altar. 16-17Sa araw na iyon, ililigtas sila ng Panginoon na kanilang Dios bilang kanyang mga tupa. Napakaganda nilang tingnan sa kanilang lupain. Ang katulad nilaʼy mamahaling batong kumikislap sa korona. Magiging sagana sila sa mga butil at ubas na magpapalakas sa kanilang mga kabataan.
+Iingatan ng Panginoong Makapangyarihan ang kanyang mga mamamayan. Tatapak-tapakan lang nila ang mga batong ibinabato sa kanila ng mga kaaway nila. Magkakainan at mag-iinuman sila upang ipagdiwang ang kanilang tagumpay. Magsisigawan sila na parang mga lasing. Mabubusog sila ng inumin katulad ng mangkok na punong-puno ng dugong iwiniwisik sa mga sulok ng altar. 16-17Sa araw na iyon, ililigtas sila ng Panginoon na kanilang Dios bilang kanyang mga tupa. Napakaganda nilang tingnan sa kanilang lupain. Ang katulad nilaʼy mamahaling batong kumikislap sa korona. Magiging sagana sila sa mga butil at ubas na magpapalakas sa kanilang mga kabataan.

@@ -39,7 +39,7 @@ up: ['Ephesians']
 
 
 
-Mga anak, sundin nʼyo ang mga magulang nʼyo dahil ito ang nararapat gawin bilang mga mananampalataya_ sa Panginoon. 
+Mga anak, sundin nʼyo ang mga magulang nʼyo dahil ito ang nararapat gawin bilang mga mananampalataya sa Panginoon. 
 
 
 
@@ -105,7 +105,7 @@ Mga anak, sundin nʼyo ang mga magulang nʼyo dahil ito ang nararapat gawin bila
 
 
 
-At ito ang pangako,_ "Giginhawa ka at hahaba ang buhay mo rito sa lupa." 
+At ito ang pangako, "Giginhawa ka at hahaba ang buhay mo rito sa lupa." 
 
 
 
@@ -538,7 +538,7 @@ Isuot nʼyo bilang sapatos ang pagiging handa sa pangangaral ng Magandang Balita
 
 
 
-Hindi lang iyan, gamitin din ninyo bilang panangga ang pananampalataya ninyo_ para hindi kayo tablan ng mga panunukso ni Satanas na parang mga palasong nagliliyab. 
+Hindi lang iyan, gamitin din ninyo bilang panangga ang pananampalataya ninyo para hindi kayo tablan ng mga panunukso ni Satanas na parang mga palasong nagliliyab. 
 
 
 
@@ -571,7 +571,7 @@ Hindi lang iyan, gamitin din ninyo bilang panangga ang pananampalataya ninyo_ pa
 
 
 
-Isuot nʼyo bilang helmet ang tinanggap ninyong kaligtasan, at gamitin nʼyo bilang espada ang Salita ng Dios na kaloob ng Banal na_ Espiritu. 
+Isuot nʼyo bilang helmet ang tinanggap ninyong kaligtasan, at gamitin nʼyo bilang espada ang Salita ng Dios na kaloob ng Banal na Espiritu. 
 
 
 
@@ -604,7 +604,7 @@ Isuot nʼyo bilang helmet ang tinanggap ninyong kaligtasan, at gamitin nʼyo bil
 
 
 
-At manalangin kayo sa lahat ng oras sa tulong ng Banal na_ Espiritu. Ipanalangin nʼyo ang lahat ng dapat ipanalangin. Huwag kayong magpabaya; patuloy kayong manalangin lalo na para sa lahat ng mga pinabanal. 
+At manalangin kayo sa lahat ng oras sa tulong ng Banal na Espiritu. Ipanalangin nʼyo ang lahat ng dapat ipanalangin. Huwag kayong magpabaya; patuloy kayong manalangin lalo na para sa lahat ng mga pinabanal. 
 
 
 
@@ -637,7 +637,7 @@ At manalangin kayo sa lahat ng oras sa tulong ng Banal na_ Espiritu. Ipanalangin
 
 
 
-Ipanalangin din ninyo ako sa tuwing mangangaral ako, na bigyan ako ng Dios_ ng wastong pananalita para maipahayag ko nang buong tapang ang Magandang Balita na inilihim noon. 
+Ipanalangin din ninyo ako sa tuwing mangangaral ako, na bigyan ako ng Dios ng wastong pananalita para maipahayag ko nang buong tapang ang Magandang Balita na inilihim noon. 
 
 
 
@@ -670,7 +670,7 @@ Ipanalangin din ninyo ako sa tuwing mangangaral ako, na bigyan ako ng Dios_ ng w
 
 
 
-Sapagkat isinugo ako ng Dios_ para mangaral ng Magandang Balitang ito na siyang dahilan ng pagkakabilanggo ko. Kaya kung maaari, ipanalangin ninyong maipahayag ko ito nang buong tapang gaya ng nararapat.
+Sapagkat isinugo ako ng Dios para mangaral ng Magandang Balitang ito na siyang dahilan ng pagkakabilanggo ko. Kaya kung maaari, ipanalangin ninyong maipahayag ko ito nang buong tapang gaya ng nararapat.
 
 ## Mga Pangwakas na Pagbati 
 
@@ -771,7 +771,7 @@ Ito ang dahilan kung bakit pinapupunta ko siya sa inyo: Para malaman nʼyo ang t
 
 
 
-Mga kapatid, sumainyo nawa ang kapayapaan, pag-ibig at pananampalatayang mula sa Dios na ating_ Ama at sa Panginoong Jesu-Cristo. 
+Mga kapatid, sumainyo nawa ang kapayapaan, pag-ibig at pananampalatayang mula sa Dios na ating Ama at sa Panginoong Jesu-Cristo. 
 
 
 

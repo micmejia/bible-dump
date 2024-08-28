@@ -19,7 +19,7 @@ The word of the Lord also came to me, saying,
 For thus says the Lord concerning the sons and daughters who are born in this place, and concerning their mothers who bore them and their fathers who begot them in this land: 
 
 ###### 4 
-"They shall die gruesome deaths; they shall not be lamented nor shall they be buried, _but_ they shall be like refuse on the face of the earth. They shall be consumed by the sword and by famine, and their corpses shall be meat for the birds of heaven and for the beasts of the earth." 
+"They shall die gruesome deaths; they shall not be lamented nor shall they be buried, but they shall be like refuse on the face of the earth. They shall be consumed by the sword and by famine, and their corpses shall be meat for the birds of heaven and for the beasts of the earth." 
 
 ###### 5 
 For thus says the Lord: "Do not enter the house of mourning, nor go to lament or bemoan them; for I have taken away My peace from this people," says the Lord, "lovingkindness and mercies. 
@@ -28,7 +28,7 @@ For thus says the Lord: "Do not enter the house of mourning, nor go to lament or
 Both the great and the small shall die in this land. They shall not be buried; neither shall men lament for them, cut themselves, nor make themselves bald for them. 
 
 ###### 7 
-Nor shall _men_ break _bread_ in mourning for them, to comfort them for the dead; nor shall _men_ give them the cup of consolation to drink for their father or their mother. 
+Nor shall men break bread in mourning for them, to comfort them for the dead; nor shall men give them the cup of consolation to drink for their father or their mother. 
 
 ###### 8 
 Also you shall not go into the house of feasting to sit with them, to eat and drink." 
@@ -37,7 +37,7 @@ Also you shall not go into the house of feasting to sit with them, to eat and dr
 For thus says the Lord of hosts, the God of Israel: "Behold, I will cause to cease from this place, before your eyes and in your days, the voice of mirth and the voice of gladness, the voice of the bridegroom and the voice of the bride. 
 
 ###### 10 
-"And it shall be, when you show this people all these words, and they say to you, 'Why has the Lord pronounced all this great disaster against us? Or what _is_ our iniquity? Or what _is_ our sin that we have committed against the Lord our God?' 
+"And it shall be, when you show this people all these words, and they say to you, 'Why has the Lord pronounced all this great disaster against us? Or what is our iniquity? Or what is our sin that we have committed against the Lord our God?' 
 
 ###### 11 
 then you shall say to them, 'Because your fathers have forsaken Me,' says the Lord; 'they have walked after other gods and have served them and worshiped them, and have forsaken Me and not kept My law. 
@@ -58,16 +58,16 @@ but, 'The Lord lives who brought up the children of Israel from the land of the 
 "Behold, I will send for many fishermen," says the Lord, "and they shall fish them; and afterward I will send for many hunters, and they shall hunt them from every mountain and every hill, and out of the holes of the rocks. 
 
 ###### 17 
-For My eyes _are_ on all their ways; they are not hidden from My face, nor is their iniquity hidden from My eyes. 
+For My eyes are on all their ways; they are not hidden from My face, nor is their iniquity hidden from My eyes. 
 
 ###### 18 
 And first I will repay double for their iniquity and their sin, because they have defiled My land; they have filled My inheritance with the carcasses of their detestable and abominable idols." 
 
 ###### 19 
-O Lord, my strength and my fortress, My refuge in the day of affliction, The Gentiles shall come to You From the ends of the earth and say, "Surely our fathers have inherited lies, Worthlessness and unprofitable _things._" 
+O Lord, my strength and my fortress, My refuge in the day of affliction, The Gentiles shall come to You From the ends of the earth and say, "Surely our fathers have inherited lies, Worthlessness and unprofitable things." 
 
 ###### 20 
-Will a man make gods for himself, Which _are_ not gods? 
+Will a man make gods for himself, Which are not gods? 
 
 ###### 21 
-"Therefore behold, I will this once cause them to know, I will cause them to know My hand and My might; And they shall know that My name _is_ the Lord.
+"Therefore behold, I will this once cause them to know, I will cause them to know My hand and My might; And they shall know that My name is the Lord.

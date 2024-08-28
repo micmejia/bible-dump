@@ -16,10 +16,10 @@ And the word of the Lord came to me, saying,
 "Son of man, set your face toward Jerusalem, preach against the holy places, and prophesy against the land of Israel; 
 
 ###### 3 
-and say to the land of Israel, 'Thus says the Lord: "Behold, I _am_ against you, and I will draw My sword out of its sheath and cut off both righteous and wicked from you. 
+and say to the land of Israel, 'Thus says the Lord: "Behold, I am against you, and I will draw My sword out of its sheath and cut off both righteous and wicked from you. 
 
 ###### 4 
-Because I will cut off both righteous and wicked from you, therefore My sword shall go out of its sheath against all flesh from south _to_ north, 
+Because I will cut off both righteous and wicked from you, therefore My sword shall go out of its sheath against all flesh from south to north, 
 
 ###### 5 
 that all flesh may know that I, the Lord, have drawn My sword out of its sheath; it shall not return anymore." ' 
@@ -28,7 +28,7 @@ that all flesh may know that I, the Lord, have drawn My sword out of its sheath;
 Sigh therefore, son of man, with a breaking heart, and sigh with bitterness before their eyes. 
 
 ###### 7 
-And it shall be when they say to you, 'Why are you sighing?' that you shall answer, 'Because of the news; when it comes, every heart will melt, all hands will be feeble, every spirit will faint, and all knees will be weak _as_ water. Behold, it is coming and shall be brought to pass,' says the Lord God." 
+And it shall be when they say to you, 'Why are you sighing?' that you shall answer, 'Because of the news; when it comes, every heart will melt, all hands will be feeble, every spirit will faint, and all knees will be weak as water. Behold, it is coming and shall be brought to pass,' says the Lord God." 
 
 ###### 8 
 Again the word of the Lord came to me, saying, 
@@ -37,22 +37,22 @@ Again the word of the Lord came to me, saying,
 "Son of man, prophesy and say, 'Thus says the Lord!' Say: 'A sword, a sword is sharpened And also polished! 
 
 ###### 10 
-Sharpened to make a dreadful slaughter, Polished to flash like lightning! Should we then make mirth? It despises the scepter of My son, _As it does_ all wood. 
+Sharpened to make a dreadful slaughter, Polished to flash like lightning! Should we then make mirth? It despises the scepter of My son, As it does all wood. 
 
 ###### 11 
 And He has given it to be polished, That it may be handled; This sword is sharpened, and it is polished To be given into the hand of the slayer.' 
 
 ###### 12 
-"Cry and wail, son of man; For it will be against My people, Against all the princes of Israel. Terrors including the sword will be against My people; Therefore strike _your_ thigh. 
+"Cry and wail, son of man; For it will be against My people, Against all the princes of Israel. Terrors including the sword will be against My people; Therefore strike your thigh. 
 
 ###### 13 
-"Because _it is_ a testing, And what if _the sword_ despises even the scepter? _The scepter_ shall be no _more,_" says the Lord God. 
+"Because it is a testing, And what if the sword despises even the scepter? The scepter shall be no more," says the Lord God. 
 
 ###### 14 
-"You therefore, son of man, prophesy, And strike _your_ hands together. The third time let the sword do double _damage._ It _is_ the sword _that_ slays, The sword that slays the great _men,_ That enters their private chambers. 
+"You therefore, son of man, prophesy, And strike your hands together. The third time let the sword do double damage. It is the sword that slays, The sword that slays the great men, That enters their private chambers. 
 
 ###### 15 
-I have set the point of the sword against all their gates, That the heart may melt and many may stumble. Ah! _It is_ made bright; _It is_ grasped for slaughter: 
+I have set the point of the sword against all their gates, That the heart may melt and many may stumble. Ah! It is made bright; It is grasped for slaughter: 
 
 ###### 16 
 "Swords at the ready! Thrust right! Set your blade! Thrust left-- Wherever your edge is ordered! 
@@ -64,7 +64,7 @@ I have set the point of the sword against all their gates, That the heart may me
 The word of the Lord came to me again, saying: 
 
 ###### 19 
-"And son of man, appoint for yourself two ways for the sword of the king of Babylon to go; both of them shall go from the same land. Make a sign; put _it_ at the head of the road to the city. 
+"And son of man, appoint for yourself two ways for the sword of the king of Babylon to go; both of them shall go from the same land. Make a sign; put it at the head of the road to the city. 
 
 ###### 20 
 Appoint a road for the sword to go to Rabbah of the Ammonites, and to Judah, into fortified Jerusalem. 
@@ -73,7 +73,7 @@ Appoint a road for the sword to go to Rabbah of the Ammonites, and to Judah, int
 For the king of Babylon stands at the parting of the road, at the fork of the two roads, to use divination: he shakes the arrows, he consults the images, he looks at the liver. 
 
 ###### 22 
-In his right hand is the divination for Jerusalem: to set up battering rams, to call for a slaughter, to lift the voice with shouting, to set battering rams against the gates, to heap up a _siege_ mound, and to build a wall. 
+In his right hand is the divination for Jerusalem: to set up battering rams, to call for a slaughter, to lift the voice with shouting, to set battering rams against the gates, to heap up a siege mound, and to build a wall. 
 
 ###### 23 
 And it will be to them like a false divination in the eyes of those who have sworn oaths with them; but he will bring their iniquity to remembrance, that they may be taken. 
@@ -82,25 +82,25 @@ And it will be to them like a false divination in the eyes of those who have swo
 "Therefore thus says the Lord God: 'Because you have made your iniquity to be remembered, in that your transgressions are uncovered, so that in all your doings your sins appear--because you have come to remembrance, you shall be taken in hand. 
 
 ###### 25 
-'Now to you, O profane, wicked prince of Israel, whose day has come, whose iniquity _shall_ end, 
+'Now to you, O profane, wicked prince of Israel, whose day has come, whose iniquity shall end, 
 
 ###### 26 
-thus says the Lord God: "Remove the turban, and take off the crown; Nothing _shall remain_ the same. Exalt the humble, and humble the exalted. 
+thus says the Lord God: "Remove the turban, and take off the crown; Nothing shall remain the same. Exalt the humble, and humble the exalted. 
 
 ###### 27 
-Overthrown, overthrown, I will make it overthrown! It shall be no _longer,_ Until He comes whose right it is, And I will give it _to_ _Him_." ' ## A Sword Against the Ammonites 
+Overthrown, overthrown, I will make it overthrown! It shall be no longer, Until He comes whose right it is, And I will give it to Him." ' ## A Sword Against the Ammonites 
 
 ###### 28 
-"And you, son of man, prophesy and say, 'Thus says the Lord God concerning the Ammonites and concerning their reproach,' and say: 'A sword, a sword _is_ drawn, Polished for slaughter, For consuming, for flashing-- 
+"And you, son of man, prophesy and say, 'Thus says the Lord God concerning the Ammonites and concerning their reproach,' and say: 'A sword, a sword is drawn, Polished for slaughter, For consuming, for flashing-- 
 
 ###### 29 
-While they see false visions for you, While they divine a lie to you, To bring you on the necks of the wicked, the slain Whose day has come, Whose iniquity _shall_ end. 
+While they see false visions for you, While they divine a lie to you, To bring you on the necks of the wicked, the slain Whose day has come, Whose iniquity shall end. 
 
 ###### 30 
-'Return _it_ to its sheath. I will judge you In the place where you were created, In the land of your nativity. 
+'Return it to its sheath. I will judge you In the place where you were created, In the land of your nativity. 
 
 ###### 31 
-I will pour out My indignation on you; I will blow against you with the fire of My wrath, And deliver you into the hands of brutal men _who are_ skillful to destroy. 
+I will pour out My indignation on you; I will blow against you with the fire of My wrath, And deliver you into the hands of brutal men who are skillful to destroy. 
 
 ###### 32 
 You shall be fuel for the fire; Your blood shall be in the midst of the land. You shall not be remembered, For I the Lord have spoken.' "

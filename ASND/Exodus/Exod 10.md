@@ -337,7 +337,7 @@ Sumagot si Moises, "Aalis kaming lahat, bata at matanda. Dadalhin namin ang amin
 
 
 
-Sinabi ng Faraon nang may pang-iinsulto_, "Sanaʼy samahan kayo ng Panginoon kung palalakarin ko kayo at ang pamilya ninyo! Malinaw na masama ang intensyon ninyo dahil tatakas kayo_. 
+Sinabi ng Faraon nang may pang-iinsulto, "Sanaʼy samahan kayo ng Panginoon kung palalakarin ko kayo at ang pamilya ninyo! Malinaw na masama ang intensyon ninyo dahil tatakas kayo. 
 
 
 
@@ -768,7 +768,7 @@ Kaya itinaas ni Moises ang kamay niya sa langit, at nagdilim sa buong Egipto sa 
 
 
 
-Walang lumabas na mga Egipcio_ sa kani-kanilang bahay dahil hindi nila makita ang isaʼt isa. Pero may liwanag sa lugar na tinitirhan ng lahat ng mga Israelita. 
+Walang lumabas na mga Egipcio sa kani-kanilang bahay dahil hindi nila makita ang isaʼt isa. Pero may liwanag sa lugar na tinitirhan ng lahat ng mga Israelita. 
 
 
 

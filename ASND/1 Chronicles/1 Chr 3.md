@@ -339,7 +339,7 @@ Iyon ang lahat ng mga anak na lalaki ni David, bukod sa iba pa niyang mga anak n
 
 
 
-Ito ang angkan ni Solomon na naging hari_: Rehoboam, Abijah, Asa, Jehoshafat, 
+Ito ang angkan ni Solomon na naging hari: Rehoboam, Abijah, Asa, Jehoshafat, 
 
 
 
@@ -537,7 +537,7 @@ Ito ang mga anak ni Josia: Ang panganay ay si Johanan, ang ikalawa ay si Jehoyak
 
 
 
-Ang pumalit kay Jehoyakim bilang hari ay si Jehoyakin na kanyang anak. At ang pumalit kay Jehoyakin ay si Zedekia na kanyang tiyuhin_.
+Ang pumalit kay Jehoyakim bilang hari ay si Jehoyakin na kanyang anak. At ang pumalit kay Jehoyakin ay si Zedekia na kanyang tiyuhin.
 
 ## Ang Angkan ni Jehoyakin 
 
@@ -572,7 +572,7 @@ Ang pumalit kay Jehoyakim bilang hari ay si Jehoyakin na kanyang anak. At ang pu
 
 
 
-Ito ang angkan ni Jehoyakin, ang hari_ na binihag sa Babilonia_: si Shealtiel, 
+Ito ang angkan ni Jehoyakin, ang hari na binihag sa Babilonia: si Shealtiel, 
 
 
 

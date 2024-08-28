@@ -240,7 +240,7 @@ Nagsipag-asawa ang mga Israelita ng mga anak ng mga taong ito at ibinigay nila a
 
 
 
-Gumawa ng kasamaan ang mga Israelita sa paningin ng Panginoon dahil kinalimutan nila ang Panginoon na kanilang Dios at sumamba sila sa mga imahen ni_ Baal at ni Ashera. 
+Gumawa ng kasamaan ang mga Israelita sa paningin ng Panginoon dahil kinalimutan nila ang Panginoon na kanilang Dios at sumamba sila sa mga imahen ni Baal at ni Ashera. 
 
 
 
@@ -539,7 +539,7 @@ Muling humingi ng tulong ang mga Israelita sa Panginoon at binigyan sila ng isan
 
 
 
-Bago siya umalis,_ gumawa siya ng isang espada na magkabila ang talim na may kalahating metro ang haba. Itinali niya ito sa kanyang kanang hita sa ilalim ng kanyang damit. 
+Bago siya umalis, gumawa siya ng isang espada na magkabila ang talim na may kalahating metro ang haba. Itinali niya ito sa kanyang kanang hita sa ilalim ng kanyang damit. 
 
 
 
@@ -572,7 +572,7 @@ Bago siya umalis,_ gumawa siya ng isang espada na magkabila ang talim na may kal
 
 
 
-Nang naroon na siya,_ ibinigay niya ang buwis kay Haring Eglon na napakatabang tao. 
+Nang naroon na siya, ibinigay niya ang buwis kay Haring Eglon na napakatabang tao. 
 
 
 
@@ -638,7 +638,7 @@ Nang maibigay ni Ehud ang buwis, pinauwi niya ang mga kasamahang nagdala ng buwi
 
 
 
-Sumama siya sa kanila noong una,_ pero nang makarating sila sa mga inukitang bato sa Gilgal, bumalik si Ehud at sinabi sa hari, "Mahal na Hari, may lihim po akong sasabihin sa inyo." Kaya sinabi ng hari sa mga utusan niya, "Iwan nʼyo muna kami." At umalis ang lahat ng utusan niya. 
+Sumama siya sa kanila noong una, pero nang makarating sila sa mga inukitang bato sa Gilgal, bumalik si Ehud at sinabi sa hari, "Mahal na Hari, may lihim po akong sasabihin sa inyo." Kaya sinabi ng hari sa mga utusan niya, "Iwan nʼyo muna kami." At umalis ang lahat ng utusan niya. 
 
 
 
@@ -803,7 +803,7 @@ Pagkatapos, lumabas si Ehud sa kwarto at ikinandado ang mga pinto.
 
 
 
-Nang nakaalis na siya, bumalik ang mga utusan ng hari_ at nakita nila na sarado ang mga pinto. Akala nila nasa palikuran ang hari, 
+Nang nakaalis na siya, bumalik ang mga utusan ng hari at nakita nila na sarado ang mga pinto. Akala nila nasa palikuran ang hari, 
 
 
 
@@ -836,7 +836,7 @@ Nang nakaalis na siya, bumalik ang mga utusan ng hari_ at nakita nila na sarado 
 
 
 
-kaya hindi na lang nila binuksan ang mga pinto_ at naghintay sila sa labas_. Pero nang magtagal, hindi na sila mapalagay dahil hindi pa rin binubuksan ng hari ang mga pinto. Kaya kinuha na lang nila ang susi at binuksan ito_, at nakita nila ang kanilang hari na nakahandusay sa sahig na patay na. 
+kaya hindi na lang nila binuksan ang mga pinto at naghintay sila sa labas. Pero nang magtagal, hindi na sila mapalagay dahil hindi pa rin binubuksan ng hari ang mga pinto. Kaya kinuha na lang nila ang susi at binuksan ito, at nakita nila ang kanilang hari na nakahandusay sa sahig na patay na. 
 
 
 
@@ -869,7 +869,7 @@ kaya hindi na lang nila binuksan ang mga pinto_ at naghintay sila sa labas_. Per
 
 
 
-Habang hinihintay ng mga utusan na buksan ng hari ang mga pinto_, nakatakas na si Ehud. Dumaan siya sa mga imaheng bato at pumunta sa Seira. 
+Habang hinihintay ng mga utusan na buksan ng hari ang mga pinto, nakatakas na si Ehud. Dumaan siya sa mga imaheng bato at pumunta sa Seira. 
 
 
 
@@ -902,7 +902,7 @@ Habang hinihintay ng mga utusan na buksan ng hari ang mga pinto_, nakatakas na s
 
 
 
-Pagdating niya sa kabundukan ng Efraim, hinipan niya ang trumpeta para tawagin ang mga Israelita sa pakikipaglaban_. Pagkatapos, bumaba ang mga Israelita mula sa kabundukan sa pangunguna ni Ehud. 
+Pagdating niya sa kabundukan ng Efraim, hinipan niya ang trumpeta para tawagin ang mga Israelita sa pakikipaglaban. Pagkatapos, bumaba ang mga Israelita mula sa kabundukan sa pangunguna ni Ehud. 
 
 
 
@@ -935,7 +935,7 @@ Pagdating niya sa kabundukan ng Efraim, hinipan niya ang trumpeta para tawagin a
 
 
 
-Sinabi niya sa kanila, "Sumunod kayo sa akin dahil pagtatagumpayin kayo ng Panginoon laban sa Moab na kalaban ninyo." Kaya sumunod sila sa kanya at sinakop nila ang tawiran sa Ilog ng_ Jordan patungong Moab, at wala silang pinatawid doon ni isang tao. 
+Sinabi niya sa kanila, "Sumunod kayo sa akin dahil pagtatagumpayin kayo ng Panginoon laban sa Moab na kalaban ninyo." Kaya sumunod sila sa kanya at sinakop nila ang tawiran sa Ilog ng Jordan patungong Moab, at wala silang pinatawid doon ni isang tao. 
 
 
 
@@ -1036,4 +1036,4 @@ Sinakop ng Israel ang Moab nang araw na iyon, at mula noon, naging mapayapa ang 
 
 
 
-Si Shamgar na anak ni Anat ang sumunod kay Ehud bilang pinuno_. Iniligtas niya ang Israel sa mga Filisteo. Nakapatay siya ng 600 Filisteo gamit ang tungkod niyang pangtaboy sa baka.
+Si Shamgar na anak ni Anat ang sumunod kay Ehud bilang pinuno. Iniligtas niya ang Israel sa mga Filisteo. Nakapatay siya ng 600 Filisteo gamit ang tungkod niyang pangtaboy sa baka.

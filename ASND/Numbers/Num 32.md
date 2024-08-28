@@ -73,7 +73,7 @@ Napakaraming hayop ng mga lahi nina Reuben at Gad. Kaya nang makita nila na masa
 
 
 
-nagpunta sila kina Moises, Eleazar at sa mga pinuno ng mamamayan ng Israel_ at sinabi, 
+nagpunta sila kina Moises, Eleazar at sa mga pinuno ng mamamayan ng Israel at sinabi, 
 
 
 
@@ -172,7 +172,7 @@ ang mga lugar na sinakop ng Panginoon sa pamamagitan ng mga Israelita – ay mab
 
 
 
-Kaya kung nalulugod kayo sa amin, ibigay ninyo ang mga lupaing ito sa amin, bilang bahagi namin at huwag na ninyo kaming dalhin sa kabila ng Ilog_ ng Jordan." 
+Kaya kung nalulugod kayo sa amin, ibigay ninyo ang mga lupaing ito sa amin, bilang bahagi namin at huwag na ninyo kaming dalhin sa kabila ng Ilog ng Jordan." 
 
 
 
@@ -568,7 +568,7 @@ Pero lumapit pa sila kay Moises at sinabi, "Gagawa na lang po kami rito ng mga k
 
 
 
-Pero handa po kaming pangunahan ang aming mga kapwa Israelita sa pakikipaglaban hanggang sa madala namin sila sa kanilang mga lugar. Habang nakikipaglaban kami, dito po maninirahan ang aming mga anak sa napapaderang lungsod na aming ipapatayo_ para maging ligtas sila sa mga naninirahan sa lupaing ito. 
+Pero handa po kaming pangunahan ang aming mga kapwa Israelita sa pakikipaglaban hanggang sa madala namin sila sa kanilang mga lugar. Habang nakikipaglaban kami, dito po maninirahan ang aming mga anak sa napapaderang lungsod na aming ipapatayo para maging ligtas sila sa mga naninirahan sa lupaing ito. 
 
 
 

@@ -13,10 +13,10 @@ next: ['Jer 10']
 Oh, that my head were waters, And my eyes a fountain of tears, That I might weep day and night For the slain of the daughter of my people! 
 
 ###### 2 
-Oh, that I had in the wilderness A lodging place for travelers; That I might leave my people, And go from them! For they _are_ all adulterers, An assembly of treacherous men. 
+Oh, that I had in the wilderness A lodging place for travelers; That I might leave my people, And go from them! For they are all adulterers, An assembly of treacherous men. 
 
 ###### 3 
-"And _like_ their bow they have bent their tongues _for_ lies. They are not valiant for the truth on the earth. For they proceed from evil to evil, And they do not know Me," says the Lord. 
+"And like their bow they have bent their tongues for lies. They are not valiant for the truth on the earth. For they proceed from evil to evil, And they do not know Me," says the Lord. 
 
 ###### 4 
 "Everyone take heed to his neighbor, And do not trust any brother; For every brother will utterly supplant, And every neighbor will walk with slanderers. 
@@ -25,25 +25,25 @@ Oh, that I had in the wilderness A lodging place for travelers; That I might lea
 Everyone will deceive his neighbor, And will not speak the truth; They have taught their tongue to speak lies; They weary themselves to commit iniquity. 
 
 ###### 6 
-Your dwelling place _is_ in the midst of deceit; Through deceit they refuse to know Me," says the Lord. 
+Your dwelling place is in the midst of deceit; Through deceit they refuse to know Me," says the Lord. 
 
 ###### 7 
 Therefore thus says the Lord of hosts: "Behold, I will refine them and try them; For how shall I deal with the daughter of My people? 
 
 ###### 8 
-Their tongue _is_ an arrow shot out; It speaks deceit; _One_ speaks peaceably to his neighbor with his mouth, But in his heart he lies in wait. 
+Their tongue is an arrow shot out; It speaks deceit; One speaks peaceably to his neighbor with his mouth, But in his heart he lies in wait. 
 
 ###### 9 
-Shall I not punish them for these _things?_" says the Lord. "Shall I not avenge Myself on such a nation as this?" 
+Shall I not punish them for these things?" says the Lord. "Shall I not avenge Myself on such a nation as this?" 
 
 ###### 10 
-I will take up a weeping and wailing for the mountains, And for the dwelling places of the wilderness a lamentation, Because they are burned up, So that no one can pass through; Nor can _men_ hear the voice of the cattle. Both the birds of the heavens and the beasts have fled; They are gone. 
+I will take up a weeping and wailing for the mountains, And for the dwelling places of the wilderness a lamentation, Because they are burned up, So that no one can pass through; Nor can men hear the voice of the cattle. Both the birds of the heavens and the beasts have fled; They are gone. 
 
 ###### 11 
 "I will make Jerusalem a heap of ruins, a den of jackals. I will make the cities of Judah desolate, without an inhabitant." 
 
 ###### 12 
-Who _is_ the wise man who may understand this? And _who is he_ to whom the mouth of the Lord has spoken, that he may declare it? Why does the land perish _and_ burn up like a wilderness, so that no one can pass through? 
+Who is the wise man who may understand this? And who is he to whom the mouth of the Lord has spoken, that he may declare it? Why does the land perish and burn up like a wilderness, so that no one can pass through? 
 
 ###### 13 
 And the Lord said, "Because they have forsaken My law which I set before them, and have not obeyed My voice, nor walked according to it, 
@@ -58,7 +58,7 @@ therefore thus says the Lord of hosts, the God of Israel: "Behold, I will feed t
 I will scatter them also among the Gentiles, whom neither they nor their fathers have known. And I will send a sword after them until I have consumed them." ## The People Mourn in Judgment 
 
 ###### 17 
-Thus says the Lord of hosts: "Consider and call for the mourning women, That they may come; And send for skillful _wailing_ women, That they may come. 
+Thus says the Lord of hosts: "Consider and call for the mourning women, That they may come; And send for skillful wailing women, That they may come. 
 
 ###### 18 
 Let them make haste And take up a wailing for us, That our eyes may run with tears, And our eyelids gush with water. 
@@ -70,19 +70,19 @@ For a voice of wailing is heard from Zion: 'How we are plundered! We are greatly
 Yet hear the word of the Lord, O women, And let your ear receive the word of His mouth; Teach your daughters wailing, And everyone her neighbor a lamentation. 
 
 ###### 21 
-For death has come through our windows, Has entered our palaces, To kill off the children--_no longer to be_ outside! _And_ the young men--_no longer_ on the streets! 
+For death has come through our windows, Has entered our palaces, To kill off the children--no longer to be outside! And the young men--no longer on the streets! 
 
 ###### 22 
-Speak, "Thus says the Lord: 'Even the carcasses of men shall fall as refuse on the open field, Like cuttings after the harvester, And no one shall gather _them._' " 
+Speak, "Thus says the Lord: 'Even the carcasses of men shall fall as refuse on the open field, Like cuttings after the harvester, And no one shall gather them.' " 
 
 ###### 23 
-Thus says the Lord: "Let not the wise _man_ glory in his wisdom, Let not the mighty _man_ glory in his might, Nor let the rich _man_ glory in his riches; 
+Thus says the Lord: "Let not the wise man glory in his wisdom, Let not the mighty man glory in his might, Nor let the rich man glory in his riches; 
 
 ###### 24 
-But let him who glories glory in this, That he understands and knows Me, That I _am_ the Lord, exercising lovingkindness, judgment, and righteousness in the earth. For in these I delight," says the Lord. 
+But let him who glories glory in this, That he understands and knows Me, That I am the Lord, exercising lovingkindness, judgment, and righteousness in the earth. For in these I delight," says the Lord. 
 
 ###### 25 
-"Behold, the days are coming," says the Lord, "that I will punish all _who are_ circumcised with the uncircumcised-- 
+"Behold, the days are coming," says the Lord, "that I will punish all who are circumcised with the uncircumcised-- 
 
 ###### 26 
-Egypt, Judah, Edom, the people of Ammon, Moab, and all _who are_ in the farthest corners, who dwell in the wilderness. For all _these_ nations _are_ uncircumcised, and all the house of Israel _are_ uncircumcised in the heart."
+Egypt, Judah, Edom, the people of Ammon, Moab, and all who are in the farthest corners, who dwell in the wilderness. For all these nations are uncircumcised, and all the house of Israel are uncircumcised in the heart."

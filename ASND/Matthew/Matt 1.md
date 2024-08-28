@@ -204,7 +204,7 @@ Si Salmon ang ama ni Boaz, at si Rahab ang kanyang ina. Si Boaz ang ama ni Obed,
 
 
 
-at si Jesse ang ama ni Haring David. Si Haring_ David ang ama ni Solomon (ang ina niya ay ang dating asawa ni Uria). 
+at si Jesse ang ama ni Haring David. Si Haring David ang ama ni Solomon (ang ina niya ay ang dating asawa ni Uria). 
 
 
 
@@ -402,7 +402,7 @@ at si Josia ang ama ni Jeconia at ng kanyang mga kapatid. Sa panahong ito, binih
 
 
 
-Ito naman ang talaan ng mga ninuno ni Jesus_ matapos ang pagkabihag ng mga Israelita sa Babilonia: Si Jeconia ang ama ni Shealtiel, si Shealtiel ang ama ni Zerubabel, 
+Ito naman ang talaan ng mga ninuno ni Jesus matapos ang pagkabihag ng mga Israelita sa Babilonia: Si Jeconia ang ama ni Shealtiel, si Shealtiel ang ama ni Zerubabel, 
 
 
 
@@ -602,7 +602,7 @@ Kaya may 14 na henerasyon mula kay Abraham hanggang kay David, may 14 na heneras
 
 
 
-Ganito ang pangyayari sa_ pagkapanganak kay Jesu-Cristo: Si Maria na kanyang ina ay nakatakdang ikasal kay Jose. Pero bago pa sila ikasal, nalaman ni Maria na buntis siya sa pamamagitan ng Banal na Espiritu. 
+Ganito ang pangyayari sa pagkapanganak kay Jesu-Cristo: Si Maria na kanyang ina ay nakatakdang ikasal kay Jose. Pero bago pa sila ikasal, nalaman ni Maria na buntis siya sa pamamagitan ng Banal na Espiritu. 
 
 
 
@@ -833,4 +833,4 @@ Nang magising si Jose, sinunod niya ang sinabi ng anghel at pinakasalan niya si 
 
 
 
-Pero hindi siya sumiping kay Maria hanggang sa maipanganak nito ang sanggol. Nang manganak na si Maria,_ pinangalanan ni Jose ang sanggol ng Jesus.
+Pero hindi siya sumiping kay Maria hanggang sa maipanganak nito ang sanggol. Nang manganak na si Maria, pinangalanan ni Jose ang sanggol ng Jesus.

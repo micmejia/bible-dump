@@ -50,10 +50,10 @@ But he who hates his brother is in darkness and walks in darkness, and does not 
 I write to you, little children, Because your sins are forgiven you for His name's sake. 
 
 ###### 13 
-I write to you, fathers, Because you have known Him _who is_ from the beginning. I write to you, young men, Because you have overcome the wicked one. I write to you, little children, Because you have known the Father. 
+I write to you, fathers, Because you have known Him who is from the beginning. I write to you, young men, Because you have overcome the wicked one. I write to you, little children, Because you have known the Father. 
 
 ###### 14 
-I have written to you, fathers, Because you have known Him _who is_ from the beginning. I have written to you, young men, Because you are strong, and the word of God abides in you, And you have overcome the wicked one.
+I have written to you, fathers, Because you have known Him who is from the beginning. I have written to you, young men, Because you are strong, and the word of God abides in you, And you have overcome the wicked one.
 
 ## Do Not Love the World 
 
@@ -61,7 +61,7 @@ I have written to you, fathers, Because you have known Him _who is_ from the beg
 Do not love the world or the things in the world. If anyone loves the world, the love of the Father is not in him. 
 
 ###### 16 
-For all that _is_ in the world--the lust of the flesh, the lust of the eyes, and the pride of life--is not of the Father but is of the world. 
+For all that is in the world--the lust of the flesh, the lust of the eyes, and the pride of life--is not of the Father but is of the world. 
 
 ###### 17 
 And the world is passing away, and the lust of it; but he who does the will of God abides forever.
@@ -72,7 +72,7 @@ And the world is passing away, and the lust of it; but he who does the will of G
 Little children, it is the last hour; and as you have heard that the Antichrist is coming, even now many antichrists have come, by which we know that it is the last hour. 
 
 ###### 19 
-They went out from us, but they were not of us; for if they had been of us, they would have continued with us; but _they went out_ that they might be made manifest, that none of them were of us. 
+They went out from us, but they were not of us; for if they had been of us, they would have continued with us; but they went out that they might be made manifest, that none of them were of us. 
 
 ###### 20 
 But you have an anointing from the Holy One, and you know all things. 
@@ -95,7 +95,7 @@ Therefore let that abide in you which you heard from the beginning. If what you 
 And this is the promise that He has promised us--eternal life. 
 
 ###### 26 
-These things I have written to you concerning those who _try to_ deceive you. 
+These things I have written to you concerning those who try to deceive you. 
 
 ###### 27 
 But the anointing which you have received from Him abides in you, and you do not need that anyone teach you; but as the same anointing teaches you concerning all things, and is true, and is not a lie, and just as it has taught you, you will abide in Him.

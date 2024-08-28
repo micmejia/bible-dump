@@ -172,7 +172,7 @@ Tambakan ninyo ang mga mababang lugar, patagin ang mga bundok at burol, at panta
 
 
 
-Mahahayag ang makapangyarihang presensya ng Panginoon, at makikita ito ng lahat. Mangyayari nga ito_ dahil sinabi mismo ng Panginoon." 
+Mahahayag ang makapangyarihang presensya ng Panginoon, at makikita ito ng lahat. Mangyayari nga ito dahil sinabi mismo ng Panginoon." 
 
 
 
@@ -304,7 +304,7 @@ Ang damo ay nalalanta at ang bulaklak nito ay nalalaglag, pero ang salita ng ati
 
 
 
-Kayong mga nagdadala ng magandang balita sa Zion, ang lungsod ng_ Jerusalem, umakyat kayo sa mataas na bundok, at isigaw ninyo ang magandang balita. Huwag kayong matakot, sabihin ninyo sa mga bayan ng Juda na nandiyan na ang kanilang Dios. 
+Kayong mga nagdadala ng magandang balita sa Zion, ang lungsod ng Jerusalem, umakyat kayo sa mataas na bundok, at isigaw ninyo ang magandang balita. Huwag kayong matakot, sabihin ninyo sa mga bayan ng Juda na nandiyan na ang kanilang Dios. 
 
 
 
@@ -337,7 +337,7 @@ Kayong mga nagdadala ng magandang balita sa Zion, ang lungsod ng_ Jerusalem, uma
 
 
 
-Dumarating ang Panginoong Dios na makapangyarihan at maghahari siya na may kapangyarihan. Dumarating siyang dala ang gantimpala para sa kanyang mga mamamayan_. 
+Dumarating ang Panginoong Dios na makapangyarihan at maghahari siya na may kapangyarihan. Dumarating siyang dala ang gantimpala para sa kanyang mga mamamayan. 
 
 
 
@@ -469,7 +469,7 @@ Sino ang makapagsasabi ng nasa isip ng Panginoon, o makapagtuturo sa kanya kung 
 
 
 
-Kanino siya sumasangguni para maliwanagan, at sino ang nagturo sa kanya ng tamang pagpapasya? Sino ang nagturo sa kanya ng kaalaman, o nagpaliwanag sa kanya para kanyang maunawaan? Wala!_ 
+Kanino siya sumasangguni para maliwanagan, at sino ang nagturo sa kanya ng tamang pagpapasya? Sino ang nagturo sa kanya ng kaalaman, o nagpaliwanag sa kanya para kanyang maunawaan? Wala! 
 
 
 

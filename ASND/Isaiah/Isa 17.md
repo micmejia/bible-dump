@@ -106,7 +106,7 @@ Wala nang titira sa lungsod ng Aroer. Magiging pastulan na lamang ito ng mga hay
 
 
 
-Mawawasak ang mga napapaderang mga lungsod ng Israel, at mawawala ang kapangyarihan ng Damascus. Ang sasapitin ng mga matitira sa Aram ay katulad ng sinapit ng mga taga-Israel. Ako,_ ang Panginoong Makapangyarihan, ang nagsasabi nito. 
+Mawawasak ang mga napapaderang mga lungsod ng Israel, at mawawala ang kapangyarihan ng Damascus. Ang sasapitin ng mga matitira sa Aram ay katulad ng sinapit ng mga taga-Israel. Ako, ang Panginoong Makapangyarihan, ang nagsasabi nito. 
 
 
 
@@ -205,7 +205,7 @@ Matutulad siya sa taniman ng mga butil na ginapas na ng mga nag-aani, tulad ng t
 
 
 
-Iilan lang ang matitira sa kanyang mga mamamayan. Matutulad siya sa puno ng olibo pagkatapos pitasin ang mga bunga. Maaaring dalawa o tatlo lamang ang bungang matitira sa pinakamataas na mga sanga, at apat o limang bunga sa ibang mga sanga. Ako,_ ang Panginoong Dios ng Israel, ang nagsasabi nito." 
+Iilan lang ang matitira sa kanyang mga mamamayan. Matutulad siya sa puno ng olibo pagkatapos pitasin ang mga bunga. Maaaring dalawa o tatlo lamang ang bungang matitira sa pinakamataas na mga sanga, at apat o limang bunga sa ibang mga sanga. Ako, ang Panginoong Dios ng Israel, ang nagsasabi nito." 
 
 
 
@@ -271,7 +271,7 @@ Sa araw na iyon, lalapit na ang mga tao sa lumikha sa kanila, sa Banal na Dios n
 
 
 
-Hindi na nila papansinin ang mga altar na sila mismo ang gumawa. Hindi na rin nila papansinin ang mga posteng simbolo ng diosang si_ Ashera, pati ang mga altar na pinagsusunugan nila ng insenso na gawa rin lang ng kanilang mga kamay. 
+Hindi na nila papansinin ang mga altar na sila mismo ang gumawa. Hindi na rin nila papansinin ang mga posteng simbolo ng diosang si Ashera, pati ang mga altar na pinagsusunugan nila ng insenso na gawa rin lang ng kanilang mga kamay. 
 
 
 
@@ -337,7 +337,7 @@ Sa araw na iyon, ang matitibay nilang lungsod ay mawawasak at iiwan na lang nila
 
 
 
-Kinalimutan ninyo ang Dios na inyong Tagapagligtas at Bato na kanlungan_. Kaya kahit na magtanim kayo ng magagandang klaseng tanim, katulad ng ubas na galing sa ibang lugar, 
+Kinalimutan ninyo ang Dios na inyong Tagapagligtas at Bato na kanlungan. Kaya kahit na magtanim kayo ng magagandang klaseng tanim, katulad ng ubas na galing sa ibang lugar, 
 
 
 

@@ -19,31 +19,31 @@ For behold, the darkness shall cover the earth, And deep darkness the people; Bu
 The Gentiles shall come to your light, And kings to the brightness of your rising. 
 
 ###### 4 
-"Lift up your eyes all around, and see: They all gather together, they come to you; Your sons shall come from afar, And your daughters shall be nursed at _your_ side. 
+"Lift up your eyes all around, and see: They all gather together, they come to you; Your sons shall come from afar, And your daughters shall be nursed at your side. 
 
 ###### 5 
 Then you shall see and become radiant, And your heart shall swell with joy; Because the abundance of the sea shall be turned to you, The wealth of the Gentiles shall come to you. 
 
 ###### 6 
-The multitude of camels shall cover your _land,_ The dromedaries of Midian and Ephah; All those from Sheba shall come; They shall bring gold and incense, And they shall proclaim the praises of the Lord. 
+The multitude of camels shall cover your land, The dromedaries of Midian and Ephah; All those from Sheba shall come; They shall bring gold and incense, And they shall proclaim the praises of the Lord. 
 
 ###### 7 
 All the flocks of Kedar shall be gathered together to you, The rams of Nebaioth shall minister to you; They shall ascend with acceptance on My altar, And I will glorify the house of My glory. 
 
 ###### 8 
-"Who _are_ these _who_ fly like a cloud, And like doves to their roosts? 
+"Who are these who fly like a cloud, And like doves to their roosts? 
 
 ###### 9 
-Surely the coastlands shall wait for Me; And the ships of Tarshish _will come_ first, To bring your sons from afar, Their silver and their gold with them, To the name of the Lord your God, And to the Holy One of Israel, Because He has glorified you. 
+Surely the coastlands shall wait for Me; And the ships of Tarshish will come first, To bring your sons from afar, Their silver and their gold with them, To the name of the Lord your God, And to the Holy One of Israel, Because He has glorified you. 
 
 ###### 10 
 "The sons of foreigners shall build up your walls, And their kings shall minister to you; For in My wrath I struck you, But in My favor I have had mercy on you. 
 
 ###### 11 
-Therefore your gates shall be open continually; They shall not be shut day or night, That _men_ may bring to you the wealth of the Gentiles, And their kings in procession. 
+Therefore your gates shall be open continually; They shall not be shut day or night, That men may bring to you the wealth of the Gentiles, And their kings in procession. 
 
 ###### 12 
-For the nation and kingdom which will not serve you shall perish, And _those_ nations shall be utterly ruined. 
+For the nation and kingdom which will not serve you shall perish, And those nations shall be utterly ruined. 
 
 ###### 13 
 "The glory of Lebanon shall come to you, The cypress, the pine, and the box tree together, To beautify the place of My sanctuary; And I will make the place of My feet glorious. 
@@ -52,10 +52,10 @@ For the nation and kingdom which will not serve you shall perish, And _those_ na
 Also the sons of those who afflicted you Shall come bowing to you, And all those who despised you shall fall prostrate at the soles of your feet; And they shall call you The City of the Lord, Zion of the Holy One of Israel. 
 
 ###### 15 
-"Whereas you have been forsaken and hated, So that no one went through _you,_ I will make you an eternal excellence, A joy of many generations. 
+"Whereas you have been forsaken and hated, So that no one went through you, I will make you an eternal excellence, A joy of many generations. 
 
 ###### 16 
-You shall drink the milk of the Gentiles, And milk the breast of kings; You shall know that I, the Lord, _am_ your Savior And your Redeemer, the Mighty One of Jacob. 
+You shall drink the milk of the Gentiles, And milk the breast of kings; You shall know that I, the Lord, am your Savior And your Redeemer, the Mighty One of Jacob. 
 
 ###### 17 
 "Instead of bronze I will bring gold, Instead of iron I will bring silver, Instead of wood, bronze, And instead of stones, iron. I will also make your officers peace, And your magistrates righteousness. 
@@ -72,7 +72,7 @@ Violence shall no longer be heard in your land, Neither wasting nor destruction 
 Your sun shall no longer go down, Nor shall your moon withdraw itself; For the Lord will be your everlasting light, And the days of your mourning shall be ended. 
 
 ###### 21 
-Also your people _shall_ all _be_ righteous; They shall inherit the land forever, The branch of My planting, The work of My hands, That I may be glorified. 
+Also your people shall all be righteous; They shall inherit the land forever, The branch of My planting, The work of My hands, That I may be glorified. 
 
 ###### 22 
 A little one shall become a thousand, And a small one a strong nation. I, the Lord, will hasten it in its time."

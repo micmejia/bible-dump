@@ -17,7 +17,7 @@ Grace to you and peace from God our Father and the Lord Jesus Christ.
 ## Redemption in Christ 
 
 ###### 3 
-Blessed _be_ the God and Father of our Lord Jesus Christ, who has blessed us with every spiritual blessing in the heavenly _places_ in Christ, 
+Blessed be the God and Father of our Lord Jesus Christ, who has blessed us with every spiritual blessing in the heavenly places in Christ, 
 
 ###### 4 
 just as He chose us in Him before the foundation of the world, that we should be holy and without blame before Him in love, 
@@ -47,7 +47,7 @@ In Him also we have obtained an inheritance, being predestined according to the 
 that we who first trusted in Christ should be to the praise of His glory. 
 
 ###### 13 
-In Him you also _trusted,_ after you heard the word of truth, the gospel of your salvation; in whom also, having believed, you were sealed with the Holy Spirit of promise, 
+In Him you also trusted, after you heard the word of truth, the gospel of your salvation; in whom also, having believed, you were sealed with the Holy Spirit of promise, 
 
 ###### 14 
 who is the guarantee of our inheritance until the redemption of the purchased possession, to the praise of His glory.
@@ -67,16 +67,16 @@ that the God of our Lord Jesus Christ, the Father of glory, may give to you the 
 the eyes of your understanding being enlightened; that you may know what is the hope of His calling, what are the riches of the glory of His inheritance in the saints, 
 
 ###### 19 
-and what _is_ the exceeding greatness of His power toward us who believe, according to the working of His mighty power 
+and what is the exceeding greatness of His power toward us who believe, according to the working of His mighty power 
 
 ###### 20 
-which He worked in Christ when He raised Him from the dead and seated _Him_ at His right hand in the heavenly _places,_ 
+which He worked in Christ when He raised Him from the dead and seated Him at His right hand in the heavenly places, 
 
 ###### 21 
 far above all principality and power and might and dominion, and every name that is named, not only in this age but also in that which is to come. 
 
 ###### 22 
-And He put all _things_ under His feet, and gave Him _to be_ head over all _things_ to the church, 
+And He put all things under His feet, and gave Him to be head over all things to the church, 
 
 ###### 23 
 which is His body, the fullness of Him who fills all in all.

@@ -1535,7 +1535,7 @@ si Shamai ang ama ni Maon, at si Maon ang ama ni Bet Zur.
 
 
 
-Ang isa pang asawa ni Caleb na si Efa ang ina nina Haran, Moza at Gazez. May anak si Haran na Gazez din ang pangalan_. 
+Ang isa pang asawa ni Caleb na si Efa ang ina nina Haran, Moza at Gazez. May anak si Haran na Gazez din ang pangalan. 
 
 
 
@@ -1669,7 +1669,7 @@ Shaaf na ama ni Madmana at Sheva na ama naman nina Macbena at Gibea. Ang anak na
 
 Sila ang angkan ni Caleb.
 
-## Ang Angkan ng Anak ni Caleb na si Hur. Si Hur ang panganay na anak ni Caleb at_ ni Efrata. Ang mga anak na lalaki ni Hur ay sina Shobal na ama ni Kiriat Jearim, 
+## Ang Angkan ng Anak ni Caleb na si Hur. Si Hur ang panganay na anak ni Caleb at ni Efrata. Ang mga anak na lalaki ni Hur ay sina Shobal na ama ni Kiriat Jearim, 
 
 
 

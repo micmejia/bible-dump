@@ -40,7 +40,7 @@ next: ['Josh 5']
 
 
 
-Nang makatawid na ang lahat ng mamamayan ng Israel sa Ilog ng_ Jordan, sinabi ng Panginoon kay Josue, 
+Nang makatawid na ang lahat ng mamamayan ng Israel sa Ilog ng Jordan, sinabi ng Panginoon kay Josue, 
 
 
 
@@ -172,7 +172,7 @@ Kaya tinawag ni Josue ang 12 lalaki na pinili niya mula sa bawat lahi ng Israel 
 
 
 
-"Pumunta kayo sa gitna ng ilog, sa harap ng Kahon ng Kasunduan ng_ Panginoon na inyong Dios. Ang bawat isa sa inyoʼy kumuha ng isang malaking bato para sa bawat lahi ng Israel at pasanin ito. 
+"Pumunta kayo sa gitna ng ilog, sa harap ng Kahon ng Kasunduan ng Panginoon na inyong Dios. Ang bawat isa sa inyoʼy kumuha ng isang malaking bato para sa bawat lahi ng Israel at pasanin ito. 
 
 
 
@@ -502,7 +502,7 @@ Nang araw na iyon, pinarangalan ng Panginoon si Josue sa harap ng mga Israelita.
 
 
 
-Pagkatawid noon ng mga Israelita sa Ilog ng Jordan_, sinabi ng Panginoon kay Josue, 
+Pagkatawid noon ng mga Israelita sa Ilog ng Jordan, sinabi ng Panginoon kay Josue, 
 
 
 
@@ -535,7 +535,7 @@ Pagkatawid noon ng mga Israelita sa Ilog ng Jordan_, sinabi ng Panginoon kay Jos
 
 
 
-"Utusan mo ang mga paring may buhat ng Kahon ng Kasunduan, na umahon na sila sa Ilog ng_ Jordan." 
+"Utusan mo ang mga paring may buhat ng Kahon ng Kasunduan, na umahon na sila sa Ilog ng Jordan." 
 
 
 
@@ -634,7 +634,7 @@ Kaya umahon ang mga pari na dala ang Kahon ng Kasunduan ng Panginoon. At pagtapa
 
 
 
-Ang pagtawid ng mga Israelita sa Ilog ng_ Jordan ay nangyari nang ikasampung araw ng unang buwan. Pagkatapos, nagkampo ang mga Israelita sa Gilgal, sa gawing silangan ng Jerico. 
+Ang pagtawid ng mga Israelita sa Ilog ng Jordan ay nangyari nang ikasampung araw ng unang buwan. Pagkatapos, nagkampo ang mga Israelita sa Gilgal, sa gawing silangan ng Jerico. 
 
 
 
@@ -667,7 +667,7 @@ Ang pagtawid ng mga Israelita sa Ilog ng_ Jordan ay nangyari nang ikasampung ara
 
 
 
-Doon ipinalagay ni Josue ang 12 bato na ipinakuha niya sa Ilog ng_ Jordan. 
+Doon ipinalagay ni Josue ang 12 bato na ipinakuha niya sa Ilog ng Jordan. 
 
 
 
@@ -733,7 +733,7 @@ Sinabi ni Josue sa mga Israelita, "Sa darating na panahon, kapag nagtanong sa in
 
 
 
-sabihin nʼyo na lumakad sa tuyong lupa ang mga Israelita nang tumawid sila sa Ilog ng_ Jordan. 
+sabihin nʼyo na lumakad sa tuyong lupa ang mga Israelita nang tumawid sila sa Ilog ng Jordan. 
 
 
 
@@ -766,7 +766,7 @@ sabihin nʼyo na lumakad sa tuyong lupa ang mga Israelita nang tumawid sila sa I
 
 
 
-Sabihin nʼyo sa kanila na pinatuyo ng Panginoon na inyong Dios ang Ilog ng_ Jordan hanggang sa makatawid kayo, gaya ng ginawa niya sa Dagat na Pula hanggang sa makatawid tayo. 
+Sabihin nʼyo sa kanila na pinatuyo ng Panginoon na inyong Dios ang Ilog ng Jordan hanggang sa makatawid kayo, gaya ng ginawa niya sa Dagat na Pula hanggang sa makatawid tayo. 
 
 
 

@@ -19,7 +19,7 @@ next: ['Rev 3']
 and you have persevered and have patience, and have labored for My name's sake and have not become weary. 
 
 ###### 4 
-Nevertheless I have _this_ against you, that you have left your first love. 
+Nevertheless I have this against you, that you have left your first love. 
 
 ###### 5 
 Remember therefore from where you have fallen; repent and do the first works, or else I will come to you quickly and remove your lampstand from its place--unless you repent. 
@@ -34,10 +34,10 @@ But this you have, that you hate the deeds of the Nicolaitans, which I also hate
 "And to the angel of the church in Smyrna write, 'These things says the First and the Last, who was dead, and came to life: 
 
 ###### 9 
-"I know your works, tribulation, and poverty (but you are rich); and _I know_ the blasphemy of those who say they are Jews and are not, but _are_ a synagogue of Satan. 
+"I know your works, tribulation, and poverty (but you are rich); and I know the blasphemy of those who say they are Jews and are not, but are a synagogue of Satan. 
 
 ###### 10 
-Do not fear any of those things which you are about to suffer. Indeed, the devil is about to throw _some_ of you into prison, that you may be tested, and you will have tribulation ten days. Be faithful until death, and I will give you the crown of life. 
+Do not fear any of those things which you are about to suffer. Indeed, the devil is about to throw some of you into prison, that you may be tested, and you will have tribulation ten days. Be faithful until death, and I will give you the crown of life. 
 
 ###### 11 
 "He who has an ear, let him hear what the Spirit says to the churches. He who overcomes shall not be hurt by the second death." ' ## The Compromising Church 
@@ -46,7 +46,7 @@ Do not fear any of those things which you are about to suffer. Indeed, the devil
 "And to the angel of the church in Pergamos write, 'These things says He who has the sharp two-edged sword: 
 
 ###### 13 
-"I know your works, and where you dwell, where Satan's throne _is._ And you hold fast to My name, and did not deny My faith even in the days in which Antipas _was_ My faithful martyr, who was killed among you, where Satan dwells. 
+"I know your works, and where you dwell, where Satan's throne is. And you hold fast to My name, and did not deny My faith even in the days in which Antipas was My faithful martyr, who was killed among you, where Satan dwells. 
 
 ###### 14 
 But I have a few things against you, because you have there those who hold the doctrine of Balaam, who taught Balak to put a stumbling block before the children of Israel, to eat things sacrificed to idols, and to commit sexual immorality. 
@@ -58,13 +58,13 @@ Thus you also have those who hold the doctrine of the Nicolaitans, which thing I
 Repent, or else I will come to you quickly and will fight against them with the sword of My mouth. 
 
 ###### 17 
-"He who has an ear, let him hear what the Spirit says to the churches. To him who overcomes I will give some of the hidden manna to eat. And I will give him a white stone, and on the stone a new name written which no one knows except him who receives _it._" ' ## The Corrupt Church 
+"He who has an ear, let him hear what the Spirit says to the churches. To him who overcomes I will give some of the hidden manna to eat. And I will give him a white stone, and on the stone a new name written which no one knows except him who receives it." ' ## The Corrupt Church 
 
 ###### 18 
 "And to the angel of the church in Thyatira write, 'These things says the Son of God, who has eyes like a flame of fire, and His feet like fine brass: 
 
 ###### 19 
-"I know your works, love, service, faith, and your patience; and _as_ for your works, the last _are_ more than the first. 
+"I know your works, love, service, faith, and your patience; and as for your works, the last are more than the first. 
 
 ###### 20 
 Nevertheless I have a few things against you, because you allow that woman Jezebel, who calls herself a prophetess, to teach and seduce My servants to commit sexual immorality and eat things sacrificed to idols. 

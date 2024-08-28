@@ -601,7 +601,7 @@ Sa kabila nito, nagpatuloy pa rin siya sa pagbebenta ng kanyang dangal tulad ng 
 
 
 
-Nahumaling siya sa mga kalaguyo niya, na ang ari ay kasinlaki_ ng sa asno at ang binhi ay kasindami_ ng sa kabayo. 
+Nahumaling siya sa mga kalaguyo niya, na ang ari ay kasinlaki ng sa asno at ang binhi ay kasindami ng sa kabayo. 
 
 
 
@@ -634,7 +634,7 @@ Nahumaling siya sa mga kalaguyo niya, na ang ari ay kasinlaki_ ng sa asno at ang
 
 
 
-Kaya pinanabikan mo Oholiba_ ang iyong mahalay na gawain na ginawa mo sa Egipto noong kabataan mo, nang ang mga lalaki roon ay nagpasasa sa katawan mo. 
+Kaya pinanabikan mo Oholiba ang iyong mahalay na gawain na ginawa mo sa Egipto noong kabataan mo, nang ang mga lalaki roon ay nagpasasa sa katawan mo. 
 
 
 
@@ -667,7 +667,7 @@ Kaya pinanabikan mo Oholiba_ ang iyong mahalay na gawain na ginawa mo sa Egipto 
 
 
 
-"Kaya, ako,_ ang Panginoong Dios, ang nagsasabi sa iyo nito Oholiba, ipapasalakay kita sa mga kalaguyo mong itinakwil mo at pinagsawaan. 
+"Kaya, ako, ang Panginoong Dios, ang nagsasabi sa iyo nito Oholiba, ipapasalakay kita sa mga kalaguyo mong itinakwil mo at pinagsawaan. 
 
 
 
@@ -997,7 +997,7 @@ Tinularan mo ang ginawa ng kapatid mo, kaya parurusahan kita katulad ng pagpapar
 
 
 
-"Oo, ako,_ ang Panginoong Dios, ay nagsasabing, parurusahan kita tulad ng pagpaparusa ko sa iyong kapatid. Ang parusa koʼy tulad ng inuming nakalagay sa isang malaki at malalim na tasa. At kapag nainom mo na ang laman ng tasang ito, kukutyain ka at pagtatawanan dahil puno ito ng galit ko. 
+"Oo, ako, ang Panginoong Dios, ay nagsasabing, parurusahan kita tulad ng pagpaparusa ko sa iyong kapatid. Ang parusa koʼy tulad ng inuming nakalagay sa isang malaki at malalim na tasa. At kapag nainom mo na ang laman ng tasang ito, kukutyain ka at pagtatawanan dahil puno ito ng galit ko. 
 
 
 
@@ -1030,7 +1030,7 @@ Tinularan mo ang ginawa ng kapatid mo, kaya parurusahan kita katulad ng pagpapar
 
 
 
-Malalasing kaʼt malulungkot dahil ang tasang itoʼy puno ng kapahamakan. Ito ang tasa ng paghihirap na ininom_ ng kapatid mong Samaria. 
+Malalasing kaʼt malulungkot dahil ang tasang itoʼy puno ng kapahamakan. Ito ang tasa ng paghihirap na ininom ng kapatid mong Samaria. 
 
 
 
@@ -1063,7 +1063,7 @@ Malalasing kaʼt malulungkot dahil ang tasang itoʼy puno ng kapahamakan. Ito an
 
 
 
-Iinumin mong lahat ang laman nito at babasagin mo ang tasa. Dadagukan mo ang iyong dibdib sa labis na kalungkutan_. Mangyayari ito,_ dahil ako, ang Panginoong Dios, ang nagsasabi nito. 
+Iinumin mong lahat ang laman nito at babasagin mo ang tasa. Dadagukan mo ang iyong dibdib sa labis na kalungkutan. Mangyayari ito, dahil ako, ang Panginoong Dios, ang nagsasabi nito. 
 
 
 
@@ -1096,7 +1096,7 @@ Iinumin mong lahat ang laman nito at babasagin mo ang tasa. Dadagukan mo ang iyo
 
 
 
-At dahil kinalimutan mo akoʼt itinakwil, ako,_ ang Panginoong Dios ay nagsasabing maghihirap ka dahil sa kahalayan mo at sa pagpapagamit mo ng iyong katawan." 
+At dahil kinalimutan mo akoʼt itinakwil, ako, ang Panginoong Dios ay nagsasabing maghihirap ka dahil sa kahalayan mo at sa pagpapagamit mo ng iyong katawan." 
 
 
 
@@ -1294,7 +1294,7 @@ Maririnig ang ingay ng mga lasing at ng mga taong walang magawa sa buhay, na gal
 
 
 
-Pagkatapos, sinabi ko sa sarili ko_, 'Sige, magpakasawa na sila sa babaeng iyon na tumanda na sa pakikiapid.' 
+Pagkatapos, sinabi ko sa sarili ko, 'Sige, magpakasawa na sila sa babaeng iyon na tumanda na sa pakikiapid.' 
 
 
 
@@ -1393,7 +1393,7 @@ Ngunit parurusahan sila ng mga taong matuwid, parusang nararapat sa kanilang pak
 
 
 
-"Ako,_ ang Panginoong Dios, ay mag-uutos sa mga taong sasalakay sa kanila na takutin sila, sasamsamin ang kanilang mga ari-arian, 
+"Ako, ang Panginoong Dios, ay mag-uutos sa mga taong sasalakay sa kanila na takutin sila, sasamsamin ang kanilang mga ari-arian, 
 
 
 

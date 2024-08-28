@@ -13,10 +13,10 @@ next: ['Acts 9']
 Now Saul was consenting to his death. At that time a great persecution arose against the church which was at Jerusalem; and they were all scattered throughout the regions of Judea and Samaria, except the apostles. 
 
 ###### 2 
-And devout men carried Stephen _to his burial,_ and made great lamentation over him. 
+And devout men carried Stephen to his burial, and made great lamentation over him. 
 
 ###### 3 
-As for Saul, he made havoc of the church, entering every house, and dragging off men and women, committing _them_ to prison.
+As for Saul, he made havoc of the church, entering every house, and dragging off men and women, committing them to prison.
 
 ## Christ Is Preached in Samaria 
 
@@ -111,7 +111,7 @@ So Philip ran to him, and heard him reading the prophet Isaiah, and said, "Do yo
 And he said, "How can I, unless someone guides me?" And he asked Philip to come up and sit with him. 
 
 ###### 32 
-The place in the Scripture which he read was this: "He was led as a sheep to the slaughter; And as a lamb before its shearer _is_ silent, So He opened not His mouth. 
+The place in the Scripture which he read was this: "He was led as a sheep to the slaughter; And as a lamb before its shearer is silent, So He opened not His mouth. 
 
 ###### 33 
 In His humiliation His justice was taken away, And who will declare His generation? For His life is taken from the earth." 
@@ -123,7 +123,7 @@ So the eunuch answered Philip and said, "I ask you, of whom does the prophet say
 Then Philip opened his mouth, and beginning at this Scripture, preached Jesus to him. 
 
 ###### 36 
-Now as they went down the road, they came to some water. And the eunuch said, "See, _here is_ water. What hinders me from being baptized?" 
+Now as they went down the road, they came to some water. And the eunuch said, "See, here is water. What hinders me from being baptized?" 
 
 ###### 37 
 Then Philip said, "If you believe with all your heart, you may." And he answered and said, "I believe that Jesus Christ is the Son of God." 

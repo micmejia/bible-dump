@@ -10,10 +10,10 @@ next: ['Lam 4']
 
 
 ###### 1 
-I _am_ the man _who_ has seen affliction by the rod of His wrath. 
+I am the man who has seen affliction by the rod of His wrath. 
 
 ###### 2 
-He has led me and made _me_ walk _In_ darkness and not _in_ light. 
+He has led me and made me walk In darkness and not in light. 
 
 ###### 3 
 Surely He has turned His hand against me Time and time again throughout the day. 
@@ -22,7 +22,7 @@ Surely He has turned His hand against me Time and time again throughout the day.
 He has aged my flesh and my skin, And broken my bones. 
 
 ###### 5 
-He has besieged me And surrounded _me_ with bitterness and woe. 
+He has besieged me And surrounded me with bitterness and woe. 
 
 ###### 6 
 He has set me in dark places Like the dead of long ago. 
@@ -37,7 +37,7 @@ Even when I cry and shout, He shuts out my prayer.
 He has blocked my ways with hewn stone; He has made my paths crooked. 
 
 ###### 10 
-He _has been_ to me a bear lying in wait, _Like_ a lion in ambush. 
+He has been to me a bear lying in wait, Like a lion in ambush. 
 
 ###### 11 
 He has turned aside my ways and torn me in pieces; He has made me desolate. 
@@ -73,31 +73,31 @@ My soul still remembers And sinks within me.
 This I recall to my mind, Therefore I have hope. 
 
 ###### 22 
-_Through_ the Lord's mercies we are not consumed, Because His compassions fail not. 
+Through the Lord's mercies we are not consumed, Because His compassions fail not. 
 
 ###### 23 
-_They are_ new every morning; Great _is_ Your faithfulness. 
+They are new every morning; Great is Your faithfulness. 
 
 ###### 24 
-"The Lord _is_ my portion," says my soul, "Therefore I hope in Him!" 
+"The Lord is my portion," says my soul, "Therefore I hope in Him!" 
 
 ###### 25 
-The Lord _is_ good to those who wait for Him, To the soul _who_ seeks Him. 
+The Lord is good to those who wait for Him, To the soul who seeks Him. 
 
 ###### 26 
-_It is_ good that _one_ should hope and wait quietly For the salvation of the Lord. 
+It is good that one should hope and wait quietly For the salvation of the Lord. 
 
 ###### 27 
-_It is_ good for a man to bear The yoke in his youth. 
+It is good for a man to bear The yoke in his youth. 
 
 ###### 28 
-Let him sit alone and keep silent, Because _God_ has laid _it_ on him; 
+Let him sit alone and keep silent, Because God has laid it on him; 
 
 ###### 29 
 Let him put his mouth in the dust-- There may yet be hope. 
 
 ###### 30 
-Let him give _his_ cheek to the one who strikes him, _And_ be full of reproach. 
+Let him give his cheek to the one who strikes him, And be full of reproach. 
 
 ###### 31 
 For the Lord will not cast off forever. 
@@ -112,16 +112,16 @@ For He does not afflict willingly, Nor grieve the children of men.
 To crush under one's feet All the prisoners of the earth, 
 
 ###### 35 
-To turn aside the justice _due_ a man Before the face of the Most High, 
+To turn aside the justice due a man Before the face of the Most High, 
 
 ###### 36 
 Or subvert a man in his cause-- The Lord does not approve. 
 
 ###### 37 
-Who _is_ he _who_ speaks and it comes to pass, _When_ the Lord has not commanded _it?_ 
+Who is he who speaks and it comes to pass, When the Lord has not commanded it? 
 
 ###### 38 
-_Is it_ not from the mouth of the Most High That woe and well-being proceed? 
+Is it not from the mouth of the Most High That woe and well-being proceed? 
 
 ###### 39 
 Why should a living man complain, A man for the punishment of his sins? 
@@ -136,7 +136,7 @@ Let us lift our hearts and hands To God in heaven.
 We have transgressed and rebelled; You have not pardoned. 
 
 ###### 43 
-You have covered _Yourself_ with anger And pursued us; You have slain _and_ not pitied. 
+You have covered Yourself with anger And pursued us; You have slain and not pitied. 
 
 ###### 44 
 You have covered Yourself with a cloud, That prayer should not pass through. 
@@ -184,7 +184,7 @@ You drew near on the day I called on You, And said, "Do not fear!"
 O Lord, You have pleaded the case for my soul; You have redeemed my life. 
 
 ###### 59 
-O Lord, You have seen _how_ I am wronged; Judge my case. 
+O Lord, You have seen how I am wronged; Judge my case. 
 
 ###### 60 
 You have seen all their vengeance, All their schemes against me. 
@@ -196,13 +196,13 @@ You have heard their reproach, O Lord, All their schemes against me,
 The lips of my enemies And their whispering against me all the day. 
 
 ###### 63 
-Look at their sitting down and their rising up; I _am_ their taunting song. 
+Look at their sitting down and their rising up; I am their taunting song. 
 
 ###### 64 
 Repay them, O Lord, According to the work of their hands. 
 
 ###### 65 
-Give them a veiled heart; Your curse _be_ upon them! 
+Give them a veiled heart; Your curse be upon them! 
 
 ###### 66 
 In Your anger, Pursue and destroy them From under the heavens of the Lord.

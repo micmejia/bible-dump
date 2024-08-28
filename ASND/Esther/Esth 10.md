@@ -105,4 +105,4 @@ Ang kapangyarihan ni Haring Ahasuerus at ang lahat ng ginawa niya, pati na ang p
 
 
 
-Si Mordecai ay pangalawa kay Haring Ahasuerus. Tanyag siya sa mga kapwa niya Judio, at iginagalang nila dahil ginagawa niya ang lahat para sa ikabubuti ng mga kalahi niyang Judio, at siya ang nakikiusap sa hari_ kapag mayroon silang kahilingan.
+Si Mordecai ay pangalawa kay Haring Ahasuerus. Tanyag siya sa mga kapwa niya Judio, at iginagalang nila dahil ginagawa niya ang lahat para sa ikabubuti ng mga kalahi niyang Judio, at siya ang nakikiusap sa hari kapag mayroon silang kahilingan.

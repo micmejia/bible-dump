@@ -40,7 +40,7 @@ next: ['Dan 5']
 
 
 
-Gumawa_ si Haring Nebucadnezar ng isang mensahe_ para sa lahat ng tao sa ibaʼt ibang bansa, lahi, at wika sa buong mundo. Ito ang nakasulat:_ "Sumainyo nawa ang mabuting kalagayan. 
+Gumawa si Haring Nebucadnezar ng isang mensahe para sa lahat ng tao sa ibaʼt ibang bansa, lahi, at wika sa buong mundo. Ito ang nakasulat: "Sumainyo nawa ang mabuting kalagayan. 
 
 
 
@@ -502,7 +502,7 @@ Sumigaw siya, 'Putulin ninyo ang punongkahoy na iyan at ang mga sanga nito. Alis
 
 
 
-Pero hayaan ninyo ang tuod sa gitna ng kaparangan para maging talian ng bakal at tanso.' "Ang taong sinisimbolo ng punong iyon ay laging_ mababasa ng hamog at kakain ng damo kasama ng mga hayop. 
+Pero hayaan ninyo ang tuod sa gitna ng kaparangan para maging talian ng bakal at tanso.' "Ang taong sinisimbolo ng punong iyon ay laging mababasa ng hamog at kakain ng damo kasama ng mga hayop. 
 
 
 
@@ -568,7 +568,7 @@ Sa loob ng pitong taon ay mawawala siya sa katinuan at magiging isip-hayop.
 
 
 
-Ito ang hatol na sinabi ng anghel para malaman ng lahat na ang Kataas-taasang Dios_ ang siyang may kapangyarihan sa kaharian ng mga tao. At maaari niyang ipasakop ang mga ito kahit kanino niya gustuhin, kahit na sa pinakaabang tao. 
+Ito ang hatol na sinabi ng anghel para malaman ng lahat na ang Kataas-taasang Dios ang siyang may kapangyarihan sa kaharian ng mga tao. At maaari niyang ipasakop ang mga ito kahit kanino niya gustuhin, kahit na sa pinakaabang tao. 
 
 
 
@@ -634,7 +634,7 @@ Ito ang hatol na sinabi ng anghel para malaman ng lahat na ang Kataas-taasang Di
 
 
 
-Nabagabag at natakot si Daniel (na tinatawag ding Belteshazar) nang marinig niya ito_. Kaya sinabi sa kanya ng hari, "Belteshazar, huwag kang mabagabag sa panaginip ko at sa kahulugan nito." Sumagot si Belteshazar, "Mahal na Hari, sana ang iyong panaginip at ang kahulugan nito ay sa inyong mga kaaway mangyari at hindi sa iyo. 
+Nabagabag at natakot si Daniel (na tinatawag ding Belteshazar) nang marinig niya ito. Kaya sinabi sa kanya ng hari, "Belteshazar, huwag kang mabagabag sa panaginip ko at sa kahulugan nito." Sumagot si Belteshazar, "Mahal na Hari, sana ang iyong panaginip at ang kahulugan nito ay sa inyong mga kaaway mangyari at hindi sa iyo. 
 
 
 
@@ -766,7 +766,7 @@ ay walang iba kundi kayo, Mahal na Hari. Sapagkat kayo po ay naging makapangyari
 
 
 
-Sinabi pa ni Daniel,_ "Nakita nʼyo rin, Mahal na Hari, ang isang anghel na bumaba mula sa langit na sumisigaw, 'Putulin ninyo ang punongkahoy pero hayaan ninyo ang tuod nito sa lupa na natatalian ng bakal at tanso. Hayaang mabasa ng hamog at kakain kasama ng mga hayop sa gubat sa loob ng pitong taon.' 
+Sinabi pa ni Daniel, "Nakita nʼyo rin, Mahal na Hari, ang isang anghel na bumaba mula sa langit na sumisigaw, 'Putulin ninyo ang punongkahoy pero hayaan ninyo ang tuod nito sa lupa na natatalian ng bakal at tanso. Hayaang mabasa ng hamog at kakain kasama ng mga hayop sa gubat sa loob ng pitong taon.' 
 
 
 
@@ -799,7 +799,7 @@ Sinabi pa ni Daniel,_ "Nakita nʼyo rin, Mahal na Hari, ang isang anghel na buma
 
 
 
-"Mahal na Hari, ito po ang ibig sabihin ng pangitaing niloob ng Kataas-taasan na Dios_ na mangyari sa inyo: 
+"Mahal na Hari, ito po ang ibig sabihin ng pangitaing niloob ng Kataas-taasan na Dios na mangyari sa inyo: 
 
 
 
@@ -832,7 +832,7 @@ Sinabi pa ni Daniel,_ "Nakita nʼyo rin, Mahal na Hari, ang isang anghel na buma
 
 
 
-Itataboy kayo at ilalayo sa mga tao at maninirahan kayong kasama ng mga hayop sa gubat. Kakain kayo ng damo tulad ng baka at palagi_ kayong mababasa ng hamog. Pagkatapos ng pitong taon, kikilalanin nʼyo ang Kataas-taasang Dios_ na siyang may kapangyarihan sa mga kaharian ng mga tao at maaari niyang ipasakop ang mga ito kahit kanino niya gustuhin. 
+Itataboy kayo at ilalayo sa mga tao at maninirahan kayong kasama ng mga hayop sa gubat. Kakain kayo ng damo tulad ng baka at palagi kayong mababasa ng hamog. Pagkatapos ng pitong taon, kikilalanin nʼyo ang Kataas-taasang Dios na siyang may kapangyarihan sa mga kaharian ng mga tao at maaari niyang ipasakop ang mga ito kahit kanino niya gustuhin. 
 
 
 
@@ -964,7 +964,7 @@ Ang lahat ng itoʼy nangyari sa buhay ni Haring Nebucadnezar.
 
 
 
-Pagkalipas ng isang taon mula nang ipaliwanag ni Daniel ang kahulugan ng kanyang panaginip, ganito ang nangyari_: Habang namamasyal si Haring Nebucadnezar sa bubong ng kanyang palasyo sa Babilonia 
+Pagkalipas ng isang taon mula nang ipaliwanag ni Daniel ang kahulugan ng kanyang panaginip, ganito ang nangyari: Habang namamasyal si Haring Nebucadnezar sa bubong ng kanyang palasyo sa Babilonia 
 
 
 
@@ -1063,7 +1063,7 @@ Hindi pa siya halos natatapos sa pagsasalita, may tinig mula sa langit na nagsab
 
 
 
-Itataboy ka mula sa mga tao at maninirahan kang kasama ng mga hayop sa gubat. Kakain ka ng damo na parang baka. Pagkatapos ng pitong taon ay kikilalanin mo ang Kataas-taasang Dios_ na siyang may kapangyarihan sa mga kaharian ng mga tao at maaari niyang ipasakop ang mga ito kahit kanino niya gustuhin." 
+Itataboy ka mula sa mga tao at maninirahan kang kasama ng mga hayop sa gubat. Kakain ka ng damo na parang baka. Pagkatapos ng pitong taon ay kikilalanin mo ang Kataas-taasang Dios na siyang may kapangyarihan sa mga kaharian ng mga tao at maaari niyang ipasakop ang mga ito kahit kanino niya gustuhin." 
 
 
 
@@ -1096,7 +1096,7 @@ Itataboy ka mula sa mga tao at maninirahan kang kasama ng mga hayop sa gubat. Ka
 
 
 
-Nangyari nga agad kay Nebucadnezar ang sinabi ng tinig. Itinaboy siya mula sa mga tao at kumain ng damo na parang baka. Palaging_ basa ng hamog ang kanyang katawan, at humaba ang kanyang buhok na parang balahibo ng agila at ang kanyang kuko ay parang kuko ng ibon. 
+Nangyari nga agad kay Nebucadnezar ang sinabi ng tinig. Itinaboy siya mula sa mga tao at kumain ng damo na parang baka. Palaging basa ng hamog ang kanyang katawan, at humaba ang kanyang buhok na parang balahibo ng agila at ang kanyang kuko ay parang kuko ng ibon. 
 
 
 
@@ -1129,7 +1129,7 @@ Nangyari nga agad kay Nebucadnezar ang sinabi ng tinig. Itinaboy siya mula sa mg
 
 
 
-"Pagkatapos ng pitong taon, ako, si Nebucadnezar ay lumapit sa Dios at nanumbalik ang matino kong pag-iisip. Kaya pinuri ko at pinarangalan ang Kataas-taasang Dios_ na buhay magpakailanman. Sinabi ko,_ 'Ang paghahari niya ay walang katapusan. 
+"Pagkatapos ng pitong taon, ako, si Nebucadnezar ay lumapit sa Dios at nanumbalik ang matino kong pag-iisip. Kaya pinuri ko at pinarangalan ang Kataas-taasang Dios na buhay magpakailanman. Sinabi ko, 'Ang paghahari niya ay walang katapusan. 
 
 
 

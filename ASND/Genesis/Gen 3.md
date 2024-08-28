@@ -205,7 +205,7 @@ Sinabi iyan ng Dios dahil alam niya na kapag kumain kayo ng bungang iyon, mabubu
 
 
 
-Nang pinagmasdan ng babae ang puno, napakaganda nitong tingnan at ang bunga ay_ parang masarap kainin, at dahil sa pagnanais niyang maging marunong, pumitas siya ng bunga at kumain nito. Binigyan din niya ang kanyang asawa na kasama niya, at kinain din ito. 
+Nang pinagmasdan ng babae ang puno, napakaganda nitong tingnan at ang bunga ay parang masarap kainin, at dahil sa pagnanais niyang maging marunong, pumitas siya ng bunga at kumain nito. Binigyan din niya ang kanyang asawa na kasama niya, at kinain din ito. 
 
 
 
@@ -238,7 +238,7 @@ Nang pinagmasdan ng babae ang puno, napakaganda nitong tingnan at ang bunga ay_ 
 
 
 
-Pagkatapos nilang kumain, nalaman nila kung ano ang mabuti at ang masama, at napansin nila na hubad pala sila. Kaya pinagtagni-tagni nila ang mga dahon ng puno ng_ igos para ipantakip sa kanilang katawan. 
+Pagkatapos nilang kumain, nalaman nila kung ano ang mabuti at ang masama, at napansin nila na hubad pala sila. Kaya pinagtagni-tagni nila ang mga dahon ng puno ng igos para ipantakip sa kanilang katawan. 
 
 
 

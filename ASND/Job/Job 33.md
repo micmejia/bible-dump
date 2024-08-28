@@ -403,7 +403,7 @@ Kinadenahan niya ang mga paa ko at binabantayan ang lahat ng kilos ko.'
 
 
 
-"Pero Job_, mali ka sa mga sinabi mo. Hindi baʼt ang Dios ay higit kaysa sa tao? 
+"Pero Job, mali ka sa mga sinabi mo. Hindi baʼt ang Dios ay higit kaysa sa tao? 
 
 
 
@@ -502,7 +502,7 @@ Ang totoo, palaging nagsasalita ang Dios, kaya lang hindi nakikinig ang mga tao.
 
 
 
-Nagsasalita siya_ sa pamamagitan ng panaginip o ng pangitain habang ang taoʼy natutulog ng mahimbing sa gabi. 
+Nagsasalita siya sa pamamagitan ng panaginip o ng pangitain habang ang taoʼy natutulog ng mahimbing sa gabi. 
 
 
 
@@ -568,7 +568,7 @@ Bumubulong siya sa mga tainga nila para magbigay ng babala, at ito ang nakapagpa
 
 
 
-Ginagawa niya ito_ para pigilan sila sa paggawa ng kasalanan at pagmamataas, 
+Ginagawa niya ito para pigilan sila sa paggawa ng kasalanan at pagmamataas, 
 
 
 
@@ -766,7 +766,7 @@ Malapit na siyang mamatay at mapunta sa lugar ng mga patay.
 
 
 
-"Pero kung may kahit isa man sa isang libong anghel na mamamagitan sa kanya at sa Dios,_ at sasabihing siya ay matuwid, 
+"Pero kung may kahit isa man sa isang libong anghel na mamamagitan sa kanya at sa Dios, at sasabihing siya ay matuwid, 
 
 
 

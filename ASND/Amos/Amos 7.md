@@ -40,7 +40,7 @@ next: ['Amos 8']
 
 
 
-Ito ang ipinakita sa akin ng Panginoong Dios: Nakita kong nagtipon siya ng napakaraming balang. Nangyari ito matapos maibigay sa hari ang kanyang parte mula sa unang ani sa bukid_. At nang magsisimula na ang pangalawang ani, 
+Ito ang ipinakita sa akin ng Panginoong Dios: Nakita kong nagtipon siya ng napakaraming balang. Nangyari ito matapos maibigay sa hari ang kanyang parte mula sa unang ani sa bukid. At nang magsisimula na ang pangalawang ani, 
 
 
 
@@ -73,7 +73,7 @@ Ito ang ipinakita sa akin ng Panginoong Dios: Nakita kong nagtipon siya ng napak
 
 
 
-nakita kong kinain ng mga balang ang lahat ng tanim at walang natira. Kaya sinabi ko, "Panginoong Dios, nakikiusap po ako na patawarin nʼyo na ang mga lahi ni Jacob. Paano sila mabubuhay kung parurusahan nʼyo sila_? Mahina po sila at walang kakayahan." 
+nakita kong kinain ng mga balang ang lahat ng tanim at walang natira. Kaya sinabi ko, "Panginoong Dios, nakikiusap po ako na patawarin nʼyo na ang mga lahi ni Jacob. Paano sila mabubuhay kung parurusahan nʼyo sila? Mahina po sila at walang kakayahan." 
 
 
 
@@ -139,7 +139,7 @@ Kaya nagbago ang isip ng Panginoon at kanyang sinabi, "Hindi na mangyayari ang n
 
 
 
-May ipinakita pa ang Panginoong Dios sa akin: Nakita kong naghahanda siya upang parusahan ang kanyang mga mamamayan_ sa pamamagitan ng apoy. Pinatuyo ng apoy ang pinanggagalingan ng tubig sa ilalim ng lupa, at sinunog ang lahat ng nandoon sa lupain ng Israel. 
+May ipinakita pa ang Panginoong Dios sa akin: Nakita kong naghahanda siya upang parusahan ang kanyang mga mamamayan sa pamamagitan ng apoy. Pinatuyo ng apoy ang pinanggagalingan ng tubig sa ilalim ng lupa, at sinunog ang lahat ng nandoon sa lupain ng Israel. 
 
 
 
@@ -172,7 +172,7 @@ May ipinakita pa ang Panginoong Dios sa akin: Nakita kong naghahanda siya upang 
 
 
 
-Kaya sinabi ko, "Panginoong Dios, nakikiusap po ako sa inyo na huwag nʼyong gawin iyan. Paano mabubuhay ang mga lahi ni Jacob kung gagawin nʼyo po iyan_? Mahina po sila at walang kakayahan." 
+Kaya sinabi ko, "Panginoong Dios, nakikiusap po ako sa inyo na huwag nʼyong gawin iyan. Paano mabubuhay ang mga lahi ni Jacob kung gagawin nʼyo po iyan? Mahina po sila at walang kakayahan." 
 
 
 
@@ -271,7 +271,7 @@ Ito pa ang ipinakita sa akin ng Panginoong Dios: Nakita ko ang Panginoon na naka
 
 
 
-Tinanong ako ng Panginoon, "Amos, ano ang nakikita mo?" Sumagot ako, "Hulog po." Sinabi niya sa akin, "Batay sa aking panukat, hindi matuwid ang buhay ng mga mamamayan kong Israelita. Kaya ngayon_ hindi ko na sila kaaawaan. 
+Tinanong ako ng Panginoon, "Amos, ano ang nakikita mo?" Sumagot ako, "Hulog po." Sinabi niya sa akin, "Batay sa aking panukat, hindi matuwid ang buhay ng mga mamamayan kong Israelita. Kaya ngayon hindi ko na sila kaaawaan. 
 
 
 
@@ -304,7 +304,7 @@ Tinanong ako ng Panginoon, "Amos, ano ang nakikita mo?" Sumagot ako, "Hulog po."
 
 
 
-Gigibain ko ang mga sambahan sa matataas na lugar na sinasambahan ng mga Israelita na lahi ni Isaac. At ipapasalakay ko sa mga kaaway ng Israel_ ang kaharian ni Haring_ Jeroboam." ## Si Amos at si Amazia 
+Gigibain ko ang mga sambahan sa matataas na lugar na sinasambahan ng mga Israelita na lahi ni Isaac. At ipapasalakay ko sa mga kaaway ng Israel ang kaharian ni Haring Jeroboam." ## Si Amos at si Amazia 
 
 
 
@@ -436,7 +436,7 @@ Sinabi ni Amazia kay Amos, "Ikaw na propeta, umalis ka rito at bumalik sa Juda. 
 
 
 
-Huwag ka nang magpahayag ng mensahe ng Dios dito sa Betel, sapagkat nandito ang templong sinasambahan ng hari, ang templo ng kanyang_ kaharian." 
+Huwag ka nang magpahayag ng mensahe ng Dios dito sa Betel, sapagkat nandito ang templong sinasambahan ng hari, ang templo ng kanyang kaharian." 
 
 
 
@@ -469,7 +469,7 @@ Huwag ka nang magpahayag ng mensahe ng Dios dito sa Betel, sapagkat nandito ang 
 
 
 
-Sumagot si Amos kay Amazia, "Hindi ako propeta noon_ at hindi rin ako tagasunod ng isang propeta. Pastol ako ng tupa at nag-aalaga rin ng mga punongkahoy ng sikomoro. 
+Sumagot si Amos kay Amazia, "Hindi ako propeta noon at hindi rin ako tagasunod ng isang propeta. Pastol ako ng tupa at nag-aalaga rin ng mga punongkahoy ng sikomoro. 
 
 
 
@@ -502,4 +502,4 @@ Sumagot si Amos kay Amazia, "Hindi ako propeta noon_ at hindi rin ako tagasunod 
 
 
 
-Pero sinabi sa akin ng Panginoon na iwan ko ang aking trabaho bilang pastol at ipahayag ko ang kanyang mensahe sa inyo na mga taga-Israel na kanyang mamamayan. 16-17Ngayon, ikaw na nagbabawal sa akin na sabihin ang mensahe ng Dios sa mga taga-Israel na lahi ni Isaac, pakinggan mo ang sinasabi ng Panginoon laban sa iyo_: 'Ang iyong asawa ay magiging babaeng bayaran sa lungsod at ang iyong mga anak ay mamamatay sa digmaan. Ang iyong lupain ay paghahati-hatian ng iyong mga kaaway,_ at mamamatay ka sa ibang bansa. At tiyak na bibihagin ang mga taga-Israel at dadalhin sa ibang bansa.' "
+Pero sinabi sa akin ng Panginoon na iwan ko ang aking trabaho bilang pastol at ipahayag ko ang kanyang mensahe sa inyo na mga taga-Israel na kanyang mamamayan. 16-17Ngayon, ikaw na nagbabawal sa akin na sabihin ang mensahe ng Dios sa mga taga-Israel na lahi ni Isaac, pakinggan mo ang sinasabi ng Panginoon laban sa iyo: 'Ang iyong asawa ay magiging babaeng bayaran sa lungsod at ang iyong mga anak ay mamamatay sa digmaan. Ang iyong lupain ay paghahati-hatian ng iyong mga kaaway, at mamamatay ka sa ibang bansa. At tiyak na bibihagin ang mga taga-Israel at dadalhin sa ibang bansa.' "

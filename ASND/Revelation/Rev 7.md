@@ -504,7 +504,7 @@ Sumagot ako, "Hindi ko po alam. Kayo po ang nakakaalam." At sinabi niya sa akin,
 
 
 
-Iyan ang dahilan kung bakit nasa harap sila ng trono ng Dios. Naglilingkod sila sa kanya araw at gabi sa kanyang templo. At ang Dios mismo na_ nakaupo sa kanyang trono ang siyang kumakalinga sa kanila. 
+Iyan ang dahilan kung bakit nasa harap sila ng trono ng Dios. Naglilingkod sila sa kanya araw at gabi sa kanyang templo. At ang Dios mismo na nakaupo sa kanyang trono ang siyang kumakalinga sa kanila. 
 
 
 

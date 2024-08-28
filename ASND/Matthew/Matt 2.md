@@ -40,7 +40,7 @@ next: ['Matt 3']
 
 
 
-Ipinanganak si Jesus sa bayan ng Betlehem sa lalawigan_ ng Judea noong si Herodes ang hari. Isang araw,_ dumating sa Jerusalem ang ilang taong dalubhasa galing sa silangan. 
+Ipinanganak si Jesus sa bayan ng Betlehem sa lalawigan ng Judea noong si Herodes ang hari. Isang araw, dumating sa Jerusalem ang ilang taong dalubhasa galing sa silangan. 
 
 
 
@@ -172,7 +172,7 @@ Kaya ipinatawag ni Herodes ang lahat ng namamahalang pari at mga tagapagturo ng 
 
 
 
-Sumagot sila, "Sa Betlehem na sakop_ ng Juda, dahil ganito ang isinulat ng propeta: 
+Sumagot sila, "Sa Betlehem na sakop ng Juda, dahil ganito ang isinulat ng propeta: 
 
 
 
@@ -238,7 +238,7 @@ Sumagot sila, "Sa Betlehem na sakop_ ng Juda, dahil ganito ang isinulat ng prope
 
 
 
-Nang marinig ito ni Herodes,_ palihim niyang ipinatawag ang mga taong galing sa silangan at inalam kung kailan talaga nila unang nakita ang bituin. 
+Nang marinig ito ni Herodes, palihim niyang ipinatawag ang mga taong galing sa silangan at inalam kung kailan talaga nila unang nakita ang bituin. 
 
 
 
@@ -304,7 +304,7 @@ Pagkatapos, pinapunta niya sila sa Betlehem. Ibinilin niya sa kanila, "Lumakad n
 
 
 
-Pagpasok nila sa bahay, nakita nila ang sanggol at ang ina nitong si Maria. Lumuhod sila at sumamba sa sanggol. Inilabas din nila at inihandog sa sanggol ang mga dala nilang ginto, insenso at pabangong_ mira. 
+Pagpasok nila sa bahay, nakita nila ang sanggol at ang ina nitong si Maria. Lumuhod sila at sumamba sa sanggol. Inilabas din nila at inihandog sa sanggol ang mga dala nilang ginto, insenso at pabangong mira. 
 
 
 
@@ -337,7 +337,7 @@ Pagpasok nila sa bahay, nakita nila ang sanggol at ang ina nitong si Maria. Lumu
 
 
 
-Nang pauwi na sila, binalaan sila ng Dios_ sa pamamagitan ng isang panaginip na huwag nang bumalik kay Herodes. Kaya nag-iba na sila ng daan pauwi.
+Nang pauwi na sila, binalaan sila ng Dios sa pamamagitan ng isang panaginip na huwag nang bumalik kay Herodes. Kaya nag-iba na sila ng daan pauwi.
 
 ## Ang Pagtakas Patungo sa Egipto 
 
@@ -570,7 +570,7 @@ Sa ginawang kalupitan ni Herodes, natupad ang sinabi ni Propeta Jeremias,
 
 
 
-Nang mamatay na si Herodes, ang anghel ng Panginoon ay muling_ nagpakita sa panaginip ni Jose doon sa Egipto 
+Nang mamatay na si Herodes, ang anghel ng Panginoon ay muling nagpakita sa panaginip ni Jose doon sa Egipto 
 
 
 
@@ -669,7 +669,7 @@ Kaya bumangon si Jose, at dinala ang mag-ina pauwi sa Israel.
 
 
 
-Pero nang malaman ni Jose na si Arkelaus ang naghahari sa Judea kapalit ng ama nitong si Herodes, natakot siyang pumunta roon. Binalaan siyang muli ng Dios_ sa pamamagitan ng panaginip, kaya tumuloy siya sa lalawigan ng Galilea, 
+Pero nang malaman ni Jose na si Arkelaus ang naghahari sa Judea kapalit ng ama nitong si Herodes, natakot siyang pumunta roon. Binalaan siyang muli ng Dios sa pamamagitan ng panaginip, kaya tumuloy siya sa lalawigan ng Galilea, 
 
 
 

@@ -403,7 +403,7 @@ Ang mga anak na lalaki ni Elifaz ay sina Teman, Omar, Zefo, Gatam at Kenaz.
 
 
 
-May anak ding lalaki si Elifaz sa isa pa niyang asawa na si Timna. Siya ay_ si Amalek. Sila ang mga apo ni Esau kay Ada. 
+May anak ding lalaki si Elifaz sa isa pa niyang asawa na si Timna. Siya ay si Amalek. Sila ang mga apo ni Esau kay Ada. 
 
 
 
@@ -735,7 +735,7 @@ Dishon, Ezer at Dishan. Naging pinuno rin sila ng mga Horeo na nakatira sa Edom.
 
 
 
-Ang mga anak na lalaki ni Lotan ay sina Hori at Heman. Si Lotan ay mayroong kapatid na babae na si Timna na isa pang asawa ni Elifaz_. 
+Ang mga anak na lalaki ni Lotan ay sina Hori at Heman. Si Lotan ay mayroong kapatid na babae na si Timna na isa pang asawa ni Elifaz. 
 
 
 

@@ -403,7 +403,7 @@ Babalutin pa nila itong lahat ng magandang klase ng balat at itatali sa tukod na
 
 
 
-Ang mga natirang kagamitan ng Tolda na ginagamit sa paglilingkod sa templo ay babalutin din nila ng telang asul at tatakluban ng magandang klase ng balat ng hayop_ at itatali sa tukod na pambuhat. 
+Ang mga natirang kagamitan ng Tolda na ginagamit sa paglilingkod sa templo ay babalutin din nila ng telang asul at tatakluban ng magandang klase ng balat ng hayop at itatali sa tukod na pambuhat. 
 
 
 
@@ -634,7 +634,7 @@ Sinabi ng Panginoon kina Moises at Aaron,
 
 
 
-Ganito ang inyong gagawin para hindi sila mamatay kapag lalapit sila sa pinakabanal na mga bagay: sasamahan sila ni Aaron at ng mga anak nito kapag papasok na sila sa Tolda_ at sasabihin sa kanila kung ano ang dapat nilang gawin at kung ano ang kanilang dadalhin. 
+Ganito ang inyong gagawin para hindi sila mamatay kapag lalapit sila sa pinakabanal na mga bagay: sasamahan sila ni Aaron at ng mga anak nito kapag papasok na sila sa Tolda at sasabihin sa kanila kung ano ang dapat nilang gawin at kung ano ang kanilang dadalhin. 
 
 
 
@@ -832,7 +832,7 @@ Isama sa sensus ang lahat ng lalaking may edad 30 hanggang 50 taong gulang na ma
 
 
 
-ang mga kurtina ng Toldang Sambahan na tinatawag ding_ Toldang Tipanan, ang lahat ng pantaklob nito at ang mga kurtina sa pintuan, 
+ang mga kurtina ng Toldang Sambahan na tinatawag ding Toldang Tipanan, ang lahat ng pantaklob nito at ang mga kurtina sa pintuan, 
 
 
 
@@ -865,7 +865,7 @@ ang mga kurtina ng Toldang Sambahan na tinatawag ding_ Toldang Tipanan, ang laha
 
 
 
-ang mga kurtina sa bakuran na nakapalibot sa Tolda at altar, ang kurtina sa pintuan ng bakuran, ang mga panali at ang lahat ng kagamitan na ginagamit sa paglilingkod sa Tolda_. Sila ang gagawa ng lahat ng mga gawain na may kinalaman sa mga kagamitang ito. 
+ang mga kurtina sa bakuran na nakapalibot sa Tolda at altar, ang kurtina sa pintuan ng bakuran, ang mga panali at ang lahat ng kagamitan na ginagamit sa paglilingkod sa Tolda. Sila ang gagawa ng lahat ng mga gawain na may kinalaman sa mga kagamitang ito. 
 
 
 
@@ -1063,7 +1063,7 @@ Ito ang kanilang mga gawain sa Toldang Tipanan: sila ang magdadala ng mga balang
 
 
 
-Sila rin ang binigyan ng responsibilidad sa pag-aasikaso_ ng mga haligi na pinagkakabitan ng mga kurtina_ ng bakuran na nakapalibot sa Tolda_ pati ang mga pundasyon, mga tulos at mga tali. At sila rin ang gagawa ng mga gawaing kaugnay sa mga kagamitang ito. Kayo ni Aaron ang magsasabi sa bawat isa sa kanila kung ano ang kanilang dadalhin. 
+Sila rin ang binigyan ng responsibilidad sa pag-aasikaso ng mga haligi na pinagkakabitan ng mga kurtina ng bakuran na nakapalibot sa Tolda pati ang mga pundasyon, mga tulos at mga tali. At sila rin ang gagawa ng mga gawaing kaugnay sa mga kagamitang ito. Kayo ni Aaron ang magsasabi sa bawat isa sa kanila kung ano ang kanilang dadalhin. 
 
 
 
@@ -1096,7 +1096,7 @@ Sila rin ang binigyan ng responsibilidad sa pag-aasikaso_ ng mga haligi na pinag
 
 
 
-Iyon ang mga gawain ng mga angkan ni Merari sa Toldang Tipanan. Pangungunahan sila ni Itamar na anak ng paring si Aaron." ## Ang Pagbilang sa mga Levita 34-48Bilang pagsunod sa utos ng Panginoon, inilista nina Moises, Aaron at ng mga pinuno ng mga mamamayan ng Israel_ ang mga angkan nina Kohat, Gershon at Merari ayon sa bawat pamilya nito. Inilista nila ang lahat ng lalaking may edad 30 hanggang 50 taong gulang na may kakayahang maglingkod sa Toldang Tipanan, at ito ang bilang nila: Ang kabuuang bilang nila ay 8,580. 
+Iyon ang mga gawain ng mga angkan ni Merari sa Toldang Tipanan. Pangungunahan sila ni Itamar na anak ng paring si Aaron." ## Ang Pagbilang sa mga Levita 34-48Bilang pagsunod sa utos ng Panginoon, inilista nina Moises, Aaron at ng mga pinuno ng mga mamamayan ng Israel ang mga angkan nina Kohat, Gershon at Merari ayon sa bawat pamilya nito. Inilista nila ang lahat ng lalaking may edad 30 hanggang 50 taong gulang na may kakayahang maglingkod sa Toldang Tipanan, at ito ang bilang nila: Ang kabuuang bilang nila ay 8,580. 
 
 
 

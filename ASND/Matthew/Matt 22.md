@@ -73,7 +73,7 @@ Muling nagsalita sa kanila si Jesus sa pamamagitan ng talinghaga. Sinabi niya,
 
 
 
-"Ang paghahari ng Dios ay maitutulad sa kwentong ito: May_ isang hari na naghanda ng salo-salo para sa kasal ng anak niyang lalaki. 
+"Ang paghahari ng Dios ay maitutulad sa kwentong ito: May isang hari na naghanda ng salo-salo para sa kasal ng anak niyang lalaki. 
 
 
 
@@ -271,7 +271,7 @@ Kaya galit na galit ang hari sa ginawa ng mga ito. Inutusan niya ang kanyang mga
 
 
 
-Pagkatapos, sinabi ng hari sa kanyang mga utusan, 'Handa na ang salo-salo para sa kasal ng aking anak_, pero hindi karapat-dapat ang mga inimbitahan. 
+Pagkatapos, sinabi ng hari sa kanyang mga utusan, 'Handa na ang salo-salo para sa kasal ng aking anak, pero hindi karapat-dapat ang mga inimbitahan. 
 
 
 
@@ -469,7 +469,7 @@ Kaya sinabi ng hari sa kanyang mga utusan, 'Talian ninyo ang mga kamay at paa ni
 
 
 
-Pagkatapos, sinabi ni Jesus,_ "Marami ang tinatawag ng Dios na mapabilang sa kanyang kaharian_, ngunit kakaunti ang pinili." ## Ang Tanong tungkol sa Pagbabayad ng Buwis 
+Pagkatapos, sinabi ni Jesus, "Marami ang tinatawag ng Dios na mapabilang sa kanyang kaharian, ngunit kakaunti ang pinili." ## Ang Tanong tungkol sa Pagbabayad ng Buwis 
 
 
 
@@ -568,7 +568,7 @@ Kaya pinapunta nila kay Jesus ang ilan sa kanilang mga kasamahan at ang ilan sa 
 
 
 
-Ano sa palagay nʼyo? Tama po ba na tayong mga Judio ay_ magbayad ng buwis sa Emperador ng Roma o hindi?" 
+Ano sa palagay nʼyo? Tama po ba na tayong mga Judio ay magbayad ng buwis sa Emperador ng Roma o hindi?" 
 
 
 
@@ -601,7 +601,7 @@ Ano sa palagay nʼyo? Tama po ba na tayong mga Judio ay_ magbayad ng buwis sa Em
 
 
 
-Pero alam ni Jesus ang masama nilang balak, kaya sinabi niya, "Mga pakitang-tao! Bakit ninyo ako sinusubukang hulihin sa tanong na iyan_? 
+Pero alam ni Jesus ang masama nilang balak, kaya sinabi niya, "Mga pakitang-tao! Bakit ninyo ako sinusubukang hulihin sa tanong na iyan? 
 
 
 
@@ -834,7 +834,7 @@ Sinabi nila, "Guro, sinabi ni Moises na kapag ang isang lalaki ay namatay na wal
 
 
 
-Noon ay may pitong magkakapatid na lalaki rito sa amin. Nag-asawa ang panganay, at namatay na walang anak. Kaya ang biyuda ay napangasawa ng ikalawang_ kapatid. 
+Noon ay may pitong magkakapatid na lalaki rito sa amin. Nag-asawa ang panganay, at namatay na walang anak. Kaya ang biyuda ay napangasawa ng ikalawang kapatid. 
 
 
 
@@ -1032,7 +1032,7 @@ Sapagkat sa muling pagkabuhay hindi na sila mag-aasawa. Magiging tulad sila ng m
 
 
 
-Tungkol naman sa muling pagkabuhay, hindi ba ninyo nabasa sa Kasulatan_ ang sinabi ng Dios sa inyo? Sinabi niya, 
+Tungkol naman sa muling pagkabuhay, hindi ba ninyo nabasa sa Kasulatan ang sinabi ng Dios sa inyo? Sinabi niya, 
 
 
 
@@ -1133,7 +1133,7 @@ Nang marinig ito ng mga tao, namangha sila sa kanyang pagtuturo.
 
 
 
-Nang mabalitaan ng mga Pariseo na walang magawa ang mga Saduceo kay Jesus, nagtipon silang muli at lumapit sa kanya_. 
+Nang mabalitaan ng mga Pariseo na walang magawa ang mga Saduceo kay Jesus, nagtipon silang muli at lumapit sa kanya. 
 
 
 
@@ -1397,7 +1397,7 @@ Habang nagkakatipon pa ang mga Pariseo, tinanong sila ni Jesus,
 
 
 
-"Ano ba ang pagkakakilala ninyo sa Cristo? Kaninong angkan siya nagmula_?" Sumagot sila, "Kay David." 
+"Ano ba ang pagkakakilala ninyo sa Cristo? Kaninong angkan siya nagmula?" Sumagot sila, "Kay David." 
 
 
 
@@ -1430,7 +1430,7 @@ Habang nagkakatipon pa ang mga Pariseo, tinanong sila ni Jesus,
 
 
 
-Sinabi ni Jesus sa kanila, "Kung angkan lang_ siya ni David, bakit tinawag siya ni David na 'Panginoon,' sa patnubay ng Banal na_ Espiritu? Ito ang sinabi niya, 
+Sinabi ni Jesus sa kanila, "Kung angkan lang siya ni David, bakit tinawag siya ni David na 'Panginoon,' sa patnubay ng Banal na Espiritu? Ito ang sinabi niya, 
 
 
 
@@ -1496,7 +1496,7 @@ Sinabi ni Jesus sa kanila, "Kung angkan lang_ siya ni David, bakit tinawag siya 
 
 
 
-Kung tinawag siya ni David na Panginoon, paano siya naging angkan lang_ ni David?" 
+Kung tinawag siya ni David na Panginoon, paano siya naging angkan lang ni David?" 
 
 
 

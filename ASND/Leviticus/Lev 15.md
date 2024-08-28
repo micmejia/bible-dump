@@ -73,7 +73,7 @@ Inutusan ng Panginoon sina Moises at Aaron
 
 
 
-na sabihin ito sa mga taga-Israel: Kung may lumalabas sa ari ng lalaki dahil sa kanyang sakit_, ang lumalabas na iyon ay itinuturing na marumi. 
+na sabihin ito sa mga taga-Israel: Kung may lumalabas sa ari ng lalaki dahil sa kanyang sakit, ang lumalabas na iyon ay itinuturing na marumi. 
 
 
 

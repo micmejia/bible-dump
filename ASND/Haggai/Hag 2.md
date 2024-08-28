@@ -105,7 +105,7 @@ Pero magpakatatag kayo! Ipagpatuloy ninyo ang paggawa ng templo dahil kasama nin
 
 
 
-Ganito rin ang ipinangako ko sa inyong mga ninuno_ nang inilabas ko sila sa Egipto. At ngayon, ang aking Espiritu ay mananatiling kasama ninyo, kaya huwag kayong matakot. 
+Ganito rin ang ipinangako ko sa inyong mga ninuno nang inilabas ko sila sa Egipto. At ngayon, ang aking Espiritu ay mananatiling kasama ninyo, kaya huwag kayong matakot. 
 
 
 
@@ -138,7 +138,7 @@ Ganito rin ang ipinangako ko sa inyong mga ninuno_ nang inilabas ko sila sa Egip
 
 
 
-"Ako,_ ang Panginoong Makapangyarihan, ang nagsasabi na hindi magtatagal ay minsan ko pang yayanigin ang langit at ang mundo, ang lupa at ang dagat. 
+"Ako, ang Panginoong Makapangyarihan, ang nagsasabi na hindi magtatagal ay minsan ko pang yayanigin ang langit at ang mundo, ang lupa at ang dagat. 
 
 
 
@@ -237,7 +237,7 @@ Sapagkat ang mga ginto at mga pilak ay akin.
 
 
 
-Magiging mas maganda ang bagong templo kaysa sa dati. At bibigyan ko ang lugar na ito ng kapayapaan at mabuting kalagayan sa buhay. Ako,_ ang Panginoong Dios, ang nagsasabi nito." ## Ang Pangako ng Dios na Pagpapala 
+Magiging mas maganda ang bagong templo kaysa sa dati. At bibigyan ko ang lugar na ito ng kapayapaan at mabuting kalagayan sa buhay. Ako, ang Panginoong Dios, ang nagsasabi nito." ## Ang Pangako ng Dios na Pagpapala 
 
 
 
@@ -501,7 +501,7 @@ Sapagkat noon, kapag pumunta kayo sa mga bunton ng inyong mga trigo na umaasang 
 
 
 
-Sinira ng Panginoon ang inyong mga pananim sa pamamagitan ng mainit na hangin, peste, at pagpapaulan ng_ yelo na parang mga bato, pero hindi pa rin kayo nagbalik-loob sa kanya. 
+Sinira ng Panginoon ang inyong mga pananim sa pamamagitan ng mainit na hangin, peste, at pagpapaulan ng yelo na parang mga bato, pero hindi pa rin kayo nagbalik-loob sa kanya. 
 
 
 
@@ -666,7 +666,7 @@ Sinabi niya, "Sabihin mo kay Zerubabel na yayanigin ko ang langit at ang mundo.
 
 
 
-Ibabagsak ko ang mga kaharian at wawakasan ang kapangyarihan nila. Ibubuwal ko ang kanilang_ mga karwahe at ang mga sakay nito. Mamamatay ang mga kabayo at magpapatayan ang mga mangangabayo. 
+Ibabagsak ko ang mga kaharian at wawakasan ang kapangyarihan nila. Ibubuwal ko ang kanilang mga karwahe at ang mga sakay nito. Mamamatay ang mga kabayo at magpapatayan ang mga mangangabayo. 
 
 
 
@@ -699,4 +699,4 @@ Ibabagsak ko ang mga kaharian at wawakasan ang kapangyarihan nila. Ibubuwal ko a
 
 
 
-At sabihin mo rin kay Zerubabel na aking lingkod na sa araw na iyon ay pamamahalain ko siya sa pamamagitan ng aking kapangyarihan, dahil siya ay hinirang ko. Ako,_ ang Panginoong Makapangyarihan, ang nagsasabi nito."
+At sabihin mo rin kay Zerubabel na aking lingkod na sa araw na iyon ay pamamahalain ko siya sa pamamagitan ng aking kapangyarihan, dahil siya ay hinirang ko. Ako, ang Panginoong Makapangyarihan, ang nagsasabi nito."

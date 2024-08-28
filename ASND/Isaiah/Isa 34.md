@@ -139,7 +139,7 @@ Hindi ililibing ang kanilang mga bangkay kaya aalingasaw ito, at ang mga bundok 
 
 
 
-Matutunaw ang lahat ng bagay sa langit, at ang langit ay mawawala na_ parang kasulatan na nairolyo. Mahuhulog ang mga bituin na parang mga dahon ng ubas o ng igos na nalalanta at nalalagas. 
+Matutunaw ang lahat ng bagay sa langit, at ang langit ay mawawala na parang kasulatan na nairolyo. Mahuhulog ang mga bituin na parang mga dahon ng ubas o ng igos na nalalanta at nalalagas. 
 
 
 
@@ -535,7 +535,7 @@ Ang mga kuwago ay magpupugad doon, mangingitlog, mamimisa, at iingatan nila ang 
 
 
 
-Tingnan ninyo ang aklat ng Panginoon at basahin. Wala ni isa man sa mga sinabi ko ang hindi matutupad_. Walang mawawala ni isa man sa mga hayop na iyon, at wala ni isa man sa mga ito ang walang kapares, sapagkat iyan ang ipinasya ng Panginoon, at siya mismo ang magtitipon sa kanila. 
+Tingnan ninyo ang aklat ng Panginoon at basahin. Wala ni isa man sa mga sinabi ko ang hindi matutupad. Walang mawawala ni isa man sa mga hayop na iyon, at wala ni isa man sa mga ito ang walang kapares, sapagkat iyan ang ipinasya ng Panginoon, at siya mismo ang magtitipon sa kanila. 
 
 
 

@@ -106,7 +106,7 @@ May mga anak si Gilead sa asawa niya. At nang lumaki sila, pinalayas nila si Jef
 
 
 
-Kaya lumayo si Jefta sa kanila at tumira sa Tob, kung saan sumama sa kanya ang isang grupo ng mga taong palaboy-laboy_. 
+Kaya lumayo si Jefta sa kanila at tumira sa Tob, kung saan sumama sa kanya ang isang grupo ng mga taong palaboy-laboy. 
 
 
 
@@ -370,7 +370,7 @@ Sumagot sila, "Oo, ikaw ang gagawin naming pinuno. Ang Panginoon ang saksi namin
 
 
 
-Kaya sumama si Jefta sa kanila at ginawa siyang pinuno at kumander ng mga taga-Gilead. At doon sa Mizpa, sa presensya ng Panginoon, sinabi ni Jefta ang mga pangako niya bilang pinuno_. 
+Kaya sumama si Jefta sa kanila at ginawa siyang pinuno at kumander ng mga taga-Gilead. At doon sa Mizpa, sa presensya ng Panginoon, sinabi ni Jefta ang mga pangako niya bilang pinuno. 
 
 
 
@@ -436,7 +436,7 @@ Nagsugo si Jefta ng mga mensahero para itanong sa hari ng mga Ammonita kung baki
 
 
 
-Ito ang sagot ng hari ng mga Ammonita sa mga mensahero ni Jefta: "Nang dumating ang mga Israelita mula sa Egipto, sinakop nila ang mga lupain namin mula sa Arnon hanggang sa Jabok, papunta sa Ilog ng_ Jordan. Kaya ngayon, ibalik nʼyo ito sa amin nang maayos." 
+Ito ang sagot ng hari ng mga Ammonita sa mga mensahero ni Jefta: "Nang dumating ang mga Israelita mula sa Egipto, sinakop nila ang mga lupain namin mula sa Arnon hanggang sa Jabok, papunta sa Ilog ng Jordan. Kaya ngayon, ibalik nʼyo ito sa amin nang maayos." 
 
 
 
@@ -733,7 +733,7 @@ Pero ipinatalo sila ng Panginoon, ang Dios ng Israel, sa mga Israelita. Kaya sin
 
 
 
-mula sa Arnon hanggang sa Jabok, at mula sa ilang hanggang sa Ilog ng_ Jordan. 
+mula sa Arnon hanggang sa Jabok, at mula sa ilang hanggang sa Ilog ng Jordan. 
 
 
 
@@ -832,7 +832,7 @@ Angkinin nʼyo ang ibinigay sa inyo ni Kemosh na inyong dios. At aangkinin din n
 
 
 
-Ano, mas magaling ka pa ba kay Balak na anak ni Haring Zipor ng Moab? Hindi ba, hindi nga sila nakipag-away sa Israel tungkol sa lupain_ o nakipaglaban sa kanila? 
+Ano, mas magaling ka pa ba kay Balak na anak ni Haring Zipor ng Moab? Hindi ba, hindi nga sila nakipag-away sa Israel tungkol sa lupain o nakipaglaban sa kanila? 
 
 
 
@@ -898,7 +898,7 @@ May 300 taon nang nakatira ang mga Israelita sa Heshbon, Aroer at sa mga bayan s
 
 
 
-Wala kaming masamang ginawa sa inyo, pero masasama ang ginagawa nʼyo sa amin dahil gusto nʼyong makipaglaban sa amin. Ang Panginoon na sana ang humatol sa atin kung sino ang tama_." 
+Wala kaming masamang ginawa sa inyo, pero masasama ang ginagawa nʼyo sa amin dahil gusto nʼyong makipaglaban sa amin. Ang Panginoon na sana ang humatol sa atin kung sino ang tama." 
 
 
 
@@ -964,7 +964,7 @@ Pero hindi pinansin ng hari ng mga Ammonita ang mensahe ni Jefta.
 
 
 
-At pinagharian si Jefta ng Espiritu ng Panginoon. Pumunta siya sa Gilead at sa Manase para tipunin ang mga sundalo_. Pagkatapos, bumalik siya sa Mizpa na sakop ng Gilead. At mula roon, nilusob niya ang mga Ammonita. 
+At pinagharian si Jefta ng Espiritu ng Panginoon. Pumunta siya sa Gilead at sa Manase para tipunin ang mga sundalo. Pagkatapos, bumalik siya sa Mizpa na sakop ng Gilead. At mula roon, nilusob niya ang mga Ammonita. 
 
 
 
@@ -1164,7 +1164,7 @@ Nang umuwi si Jefta sa Mizpa, sinalubong siya ng anak niyang babae na sumasayaw 
 
 
 
-Nang makita siya ni Jefta, pinunit niya ang kanyang damit dahil sa kalungkutan_, at sinabi, "Anak ko, pinalungkot mo ako dahil nangako ako sa Panginoon na ihahandog ko sa kanya ang unang sasalubong sa akin_, at hindi ko na ito mababawi." 
+Nang makita siya ni Jefta, pinunit niya ang kanyang damit dahil sa kalungkutan, at sinabi, "Anak ko, pinalungkot mo ako dahil nangako ako sa Panginoon na ihahandog ko sa kanya ang unang sasalubong sa akin, at hindi ko na ito mababawi." 
 
 
 

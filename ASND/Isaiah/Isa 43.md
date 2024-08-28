@@ -106,7 +106,7 @@ Kapag dumaan ka sa tubig, akoʼy kasama mo. Kapag tatawid ka ng mga ilog, hindi 
 
 
 
-Sapagkat ako ang Panginoon mong Dios, ang Banal na Dios ng Israel, na iyong Tagapagligtas. Ibibigay ko sa ibang bansa_ ang Egipto, ang Etiopia, at ang Seba bilang kapalit mo. 
+Sapagkat ako ang Panginoon mong Dios, ang Banal na Dios ng Israel, na iyong Tagapagligtas. Ibibigay ko sa ibang bansa ang Egipto, ang Etiopia, at ang Seba bilang kapalit mo. 
 
 
 
@@ -271,7 +271,7 @@ Sila ang mga taong aking tinawag. Nilikha ko sila para sa aking karangalan."
 
 
 
-Sinabi pa ng Panginoon,_ "Tawagin mo ang aking mga mamamayan na may mga mata, pero hindi makakita; may mga tainga, pero hindi makarinig. 
+Sinabi pa ng Panginoon, "Tawagin mo ang aking mga mamamayan na may mga mata, pero hindi makakita; may mga tainga, pero hindi makarinig. 
 
 
 
@@ -337,7 +337,7 @@ Tawagin mo ang lahat ng mamamayan ng mga bansa. Sino sa mga dios-diosan nila ang
 
 
 
-Mga mamamayan ng Israel,_ kayo ang aking mga saksi. Pinili ko kayong maging mga lingkod ko, para makilala ninyo ako at magtiwala kayo sa akin, at para maunawaan ninyo na ako lamang ang Dios. Walang ibang Dios na nauna sa akin, at wala ring Dios na susunod pa sa akin. 
+Mga mamamayan ng Israel, kayo ang aking mga saksi. Pinili ko kayong maging mga lingkod ko, para makilala ninyo ako at magtiwala kayo sa akin, at para maunawaan ninyo na ako lamang ang Dios. Walang ibang Dios na nauna sa akin, at wala ring Dios na susunod pa sa akin. 
 
 
 
@@ -568,7 +568,7 @@ Ako ang Panginoon na gumawa ng daan sa gitna ng dagat.
 
 
 
-Tinipon ko ang mga karwahe, mga kabayo, at mga sundalo ng Egipto_, at winasak sa gitna ng dagat at hindi na sila nakabangon pa. Para silang ilaw na namatay. 
+Tinipon ko ang mga karwahe, mga kabayo, at mga sundalo ng Egipto, at winasak sa gitna ng dagat at hindi na sila nakabangon pa. Para silang ilaw na namatay. 
 
 
 

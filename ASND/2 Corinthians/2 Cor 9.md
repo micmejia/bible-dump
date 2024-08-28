@@ -40,7 +40,7 @@ next: ['2 Cor 10']
 
 
 
-Hindi ko na kinakailangang sumulat pa sa inyo tungkol sa pagtulong sa mga pinabanal ng Dios sa Judea_, 
+Hindi ko na kinakailangang sumulat pa sa inyo tungkol sa pagtulong sa mga pinabanal ng Dios sa Judea, 
 
 
 
@@ -73,7 +73,7 @@ Hindi ko na kinakailangang sumulat pa sa inyo tungkol sa pagtulong sa mga pinaba
 
 
 
-dahil alam ko namang gustong-gusto ninyong tumulong. Ipinagmamalaki ko pa nga ito sa mga taga-Macedonia. Sinasabi ko sa kanila na mula pa noong nakaraang taon, kayong mga taga-Acaya ay handa ng magbigay ng tulong, at ito nga ang nagtulak sa karamihan sa kanila_ na magbigay din. 
+dahil alam ko namang gustong-gusto ninyong tumulong. Ipinagmamalaki ko pa nga ito sa mga taga-Macedonia. Sinasabi ko sa kanila na mula pa noong nakaraang taon, kayong mga taga-Acaya ay handa ng magbigay ng tulong, at ito nga ang nagtulak sa karamihan sa kanila na magbigay din. 
 
 
 
@@ -403,7 +403,7 @@ Pasasaganain kayo ng Dios sa lahat ng bagay para lagi kayong makatulong sa iba. 
 
 
 
-Dahil sa inyong pagbibigay, hindi lamang ninyo tinutugunan ang pangangailangan ng mga mananampalataya na nasa Judea_, kundi magiging dahilan din ito para marami ang magpasalamat sa Dios. 
+Dahil sa inyong pagbibigay, hindi lamang ninyo tinutugunan ang pangangailangan ng mga mananampalataya na nasa Judea, kundi magiging dahilan din ito para marami ang magpasalamat sa Dios. 
 
 
 

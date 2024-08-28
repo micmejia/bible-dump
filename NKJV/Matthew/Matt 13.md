@@ -19,7 +19,7 @@ And great multitudes were gathered together to Him, so that He got into a boat a
 Then He spoke many things to them in parables, saying: "Behold, a sower went out to sow. 
 
 ###### 4 
-And as he sowed, some _seed_ fell by the wayside; and the birds came and devoured them. 
+And as he sowed, some seed fell by the wayside; and the birds came and devoured them. 
 
 ###### 5 
 Some fell on stony places, where they did not have much earth; and they immediately sprang up because they had no depth of earth. 
@@ -52,13 +52,13 @@ Therefore I speak to them in parables, because seeing they do not see, and heari
 And in them the prophecy of Isaiah is fulfilled, which says: 'Hearing you will hear and shall not understand, And seeing you will see and not perceive; 
 
 ###### 15 
-For the hearts of this people have grown dull. _Their_ ears are hard of hearing, And their eyes they have closed, Lest they should see with _their_ eyes and hear with _their_ ears, Lest they should understand with _their_ hearts and turn, So that I should heal them.' 
+For the hearts of this people have grown dull. Their ears are hard of hearing, And their eyes they have closed, Lest they should see with their eyes and hear with their ears, Lest they should understand with their hearts and turn, So that I should heal them.' 
 
 ###### 16 
-But blessed _are_ your eyes for they see, and your ears for they hear; 
+But blessed are your eyes for they see, and your ears for they hear; 
 
 ###### 17 
-for assuredly, I say to you that many prophets and righteous _men_ desired to see what you see, and did not see _it,_ and to hear what you hear, and did not hear _it._
+for assuredly, I say to you that many prophets and righteous men desired to see what you see, and did not see it, and to hear what you hear, and did not hear it.
 
 ## The Parable of the Sower Explained 
 
@@ -66,7 +66,7 @@ for assuredly, I say to you that many prophets and righteous _men_ desired to se
 "Therefore hear the parable of the sower: 
 
 ###### 19 
-When anyone hears the word of the kingdom, and does not understand _it,_ then the wicked _one_ comes and snatches away what was sown in his heart. This is he who received seed by the wayside. 
+When anyone hears the word of the kingdom, and does not understand it, then the wicked one comes and snatches away what was sown in his heart. This is he who received seed by the wayside. 
 
 ###### 20 
 But he who received the seed on stony places, this is he who hears the word and immediately receives it with joy; 
@@ -78,7 +78,7 @@ yet he has no root in himself, but endures only for a while. For when tribulatio
 Now he who received seed among the thorns is he who hears the word, and the cares of this world and the deceitfulness of riches choke the word, and he becomes unfruitful. 
 
 ###### 23 
-But he who received seed on the good ground is he who hears the word and understands _it,_ who indeed bears fruit and produces: some a hundredfold, some sixty, some thirty." ## The Parable of the Wheat and the Tares 
+But he who received seed on the good ground is he who hears the word and understands it, who indeed bears fruit and produces: some a hundredfold, some sixty, some thirty." ## The Parable of the Wheat and the Tares 
 
 ###### 24 
 Another parable He put forth to them, saying: "The kingdom of heaven is like a man who sowed good seed in his field; 
@@ -123,7 +123,7 @@ Then Jesus sent the multitude away and went into the house. And His disciples ca
 He answered and said to them: "He who sows the good seed is the Son of Man. 
 
 ###### 38 
-The field is the world, the good seeds are the sons of the kingdom, but the tares are the sons of the wicked _one._ 
+The field is the world, the good seeds are the sons of the kingdom, but the tares are the sons of the wicked one. 
 
 ###### 39 
 The enemy who sowed them is the devil, the harvest is the end of the age, and the reapers are the angels. 
@@ -169,19 +169,19 @@ and cast them into the furnace of fire. There will be wailing and gnashing of te
 Jesus said to them, "Have you understood all these things?" They said to Him, "Yes, Lord." 
 
 ###### 52 
-Then He said to them, "Therefore every scribe instructed concerning the kingdom of heaven is like a householder who brings out of his treasure _things_ new and old." ## Jesus Rejected at Nazareth 
+Then He said to them, "Therefore every scribe instructed concerning the kingdom of heaven is like a householder who brings out of his treasure things new and old." ## Jesus Rejected at Nazareth 
 
 ###### 53 
 Now it came to pass, when Jesus had finished these parables, that He departed from there. 
 
 ###### 54 
-When He had come to His own country, He taught them in their synagogue, so that they were astonished and said, "Where did this _Man_ get this wisdom and _these_ mighty works? 
+When He had come to His own country, He taught them in their synagogue, so that they were astonished and said, "Where did this Man get this wisdom and these mighty works? 
 
 ###### 55 
 Is this not the carpenter's son? Is not His mother called Mary? And His brothers James, Joses, Simon, and Judas? 
 
 ###### 56 
-And His sisters, are they not all with us? Where then did this _Man_ get all these things?" 
+And His sisters, are they not all with us? Where then did this Man get all these things?" 
 
 ###### 57 
 So they were offended at Him. But Jesus said to them, "A prophet is not without honor except in his own country and in his own house." 

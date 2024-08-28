@@ -21,7 +21,7 @@ And when they had bound Him, they led Him away and delivered Him to Pontius Pila
 Then Judas, His betrayer, seeing that He had been condemned, was remorseful and brought back the thirty pieces of silver to the chief priests and elders, 
 
 ###### 4 
-saying, "I have sinned by betraying innocent blood." And they said, "What _is that_ to us? You see _to it!_" 
+saying, "I have sinned by betraying innocent blood." And they said, "What is that to us? You see to it!" 
 
 ###### 5 
 Then he threw down the pieces of silver in the temple and departed, and went and hanged himself. 
@@ -42,7 +42,7 @@ Then was fulfilled what was spoken by Jeremiah the prophet, saying, "And they to
 and gave them for the potter's field, as the Lord directed me." ## Jesus Faces Pilate 
 
 ###### 11 
-Now Jesus stood before the governor. And the governor asked Him, saying, "Are You the King of the Jews?" Jesus said to him, "_It is as_ you say." 
+Now Jesus stood before the governor. And the governor asked Him, saying, "Are You the King of the Jews?" Jesus said to him, "It is as you say." 
 
 ###### 12 
 And while He was being accused by the chief priests and elders, He answered nothing. 
@@ -77,19 +77,19 @@ But the chief priests and elders persuaded the multitudes that they should ask f
 The governor answered and said to them, "Which of the two do you want me to release to you?" They said, "Barabbas!" 
 
 ###### 22 
-Pilate said to them, "What then shall I do with Jesus who is called Christ?" _They_ all said to him, "Let Him be crucified!" 
+Pilate said to them, "What then shall I do with Jesus who is called Christ?" They all said to him, "Let Him be crucified!" 
 
 ###### 23 
 Then the governor said, "Why, what evil has He done?" But they cried out all the more, saying, "Let Him be crucified!" 
 
 ###### 24 
-When Pilate saw that he could not prevail at all, but rather _that_ a tumult was rising, he took water and washed _his_ hands before the multitude, saying, "I am innocent of the blood of this just Person. You see _to it._" 
+When Pilate saw that he could not prevail at all, but rather that a tumult was rising, he took water and washed his hands before the multitude, saying, "I am innocent of the blood of this just Person. You see to it." 
 
 ###### 25 
-And all the people answered and said, "His blood _be_ on us and on our children." 
+And all the people answered and said, "His blood be on us and on our children." 
 
 ###### 26 
-Then he released Barabbas to them; and when he had scourged Jesus, he delivered _Him_ to be crucified.
+Then he released Barabbas to them; and when he had scourged Jesus, he delivered Him to be crucified.
 
 ## The Soldiers Mock Jesus 
 
@@ -100,13 +100,13 @@ Then the soldiers of the governor took Jesus into the Praetorium and gathered th
 And they stripped Him and put a scarlet robe on Him. 
 
 ###### 29 
-When they had twisted a crown of thorns, they put _it_ on His head, and a reed in His right hand. And they bowed the knee before Him and mocked Him, saying, "Hail, King of the Jews!" 
+When they had twisted a crown of thorns, they put it on His head, and a reed in His right hand. And they bowed the knee before Him and mocked Him, saying, "Hail, King of the Jews!" 
 
 ###### 30 
 Then they spat on Him, and took the reed and struck Him on the head. 
 
 ###### 31 
-And when they had mocked Him, they took the robe off Him, put His _own_ clothes on Him, and led Him away to be crucified.
+And when they had mocked Him, they took the robe off Him, put His own clothes on Him, and led Him away to be crucified.
 
 ## The King on a Cross 
 
@@ -117,7 +117,7 @@ Now as they came out, they found a man of Cyrene, Simon by name. Him they compel
 And when they had come to a place called Golgotha, that is to say, Place of a Skull, 
 
 ###### 34 
-they gave Him sour wine mingled with gall to drink. But when He had tasted _it,_ He would not drink. 
+they gave Him sour wine mingled with gall to drink. But when He had tasted it, He would not drink. 
 
 ###### 35 
 Then they crucified Him, and divided His garments, casting lots, that it might be fulfilled which was spoken by the prophet: "They divided My garments among them, And for My clothing they cast lots." 
@@ -135,7 +135,7 @@ Then two robbers were crucified with Him, one on the right and another on the le
 And those who passed by blasphemed Him, wagging their heads 
 
 ###### 40 
-and saying, "You who destroy the temple and build _it_ in three days, save Yourself! If You are the Son of God, come down from the cross." 
+and saying, "You who destroy the temple and build it in three days, save Yourself! If You are the Son of God, come down from the cross." 
 
 ###### 41 
 Likewise the chief priests also, mocking with the scribes and elders, said, 
@@ -158,10 +158,10 @@ Now from the sixth hour until the ninth hour there was darkness over all the lan
 And about the ninth hour Jesus cried out with a loud voice, saying, "Eli, Eli, lama sabachthani?" that is, "My God, My God, why have You forsaken Me?" 
 
 ###### 47 
-Some of those who stood there, when they heard _that,_ said, "This Man is calling for Elijah!" 
+Some of those who stood there, when they heard that, said, "This Man is calling for Elijah!" 
 
 ###### 48 
-Immediately one of them ran and took a sponge, filled _it_ with sour wine and put _it_ on a reed, and offered it to Him to drink. 
+Immediately one of them ran and took a sponge, filled it with sour wine and put it on a reed, and offered it to Him to drink. 
 
 ###### 49 
 The rest said, "Let Him alone; let us see if Elijah will come to save Him." 
@@ -213,10 +213,10 @@ On the next day, which followed the Day of Preparation, the chief priests and Ph
 saying, "Sir, we remember, while He was still alive, how that deceiver said, 'After three days I will rise.' 
 
 ###### 64 
-Therefore command that the tomb be made secure until the third day, lest His disciples come by night and steal Him _away,_ and say to the people, 'He has risen from the dead.' So the last deception will be worse than the first." 
+Therefore command that the tomb be made secure until the third day, lest His disciples come by night and steal Him away, and say to the people, 'He has risen from the dead.' So the last deception will be worse than the first." 
 
 ###### 65 
-Pilate said to them, "You have a guard; go your way, make _it_ as secure as you know how." 
+Pilate said to them, "You have a guard; go your way, make it as secure as you know how." 
 
 ###### 66 
 So they went and made the tomb secure, sealing the stone and setting the guard.

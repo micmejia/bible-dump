@@ -964,7 +964,7 @@ Mapalad ang taong laging sa akin nakatuon ang isip at naghihintay para makinig s
 
 
 
-Sapagkat ang taong makakasumpong sa akin ay magkakaroon ng maganda at mahabang_ buhay, at pagpapalain siya ng Panginoon. 
+Sapagkat ang taong makakasumpong sa akin ay magkakaroon ng maganda at mahabang buhay, at pagpapalain siya ng Panginoon. 
 
 
 

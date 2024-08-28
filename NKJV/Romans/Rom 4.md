@@ -13,7 +13,7 @@ next: ['Rom 5']
 What then shall we say that Abraham our father has found according to the flesh? 
 
 ###### 2 
-For if Abraham was justified by works, he has _something_ to boast about, but not before God. 
+For if Abraham was justified by works, he has something to boast about, but not before God. 
 
 ###### 3 
 For what does the Scripture say? "Abraham believed God, and it was accounted to him for righteousness." 
@@ -30,36 +30,36 @@ But to him who does not work but believes on Him who justifies the ungodly, his 
 just as David also describes the blessedness of the man to whom God imputes righteousness apart from works: 
 
 ###### 7 
-"Blessed _are those_ whose lawless deeds are forgiven, And whose sins are covered; 
+"Blessed are those whose lawless deeds are forgiven, And whose sins are covered; 
 
 ###### 8 
-Blessed _is the_ man to whom the Lord shall not impute sin." ## Abraham Justified Before Circumcision 
+Blessed is the man to whom the Lord shall not impute sin." ## Abraham Justified Before Circumcision 
 
 ###### 9 
-_Does_ this blessedness then _come_ upon the circumcised _only,_ or upon the uncircumcised also? For we say that faith was accounted to Abraham for righteousness. 
+Does this blessedness then come upon the circumcised only, or upon the uncircumcised also? For we say that faith was accounted to Abraham for righteousness. 
 
 ###### 10 
 How then was it accounted? While he was circumcised, or uncircumcised? Not while circumcised, but while uncircumcised. 
 
 ###### 11 
-And he received the sign of circumcision, a seal of the righteousness of the faith which _he had while still_ uncircumcised, that he might be the father of all those who believe, though they are uncircumcised, that righteousness might be imputed to them also, 
+And he received the sign of circumcision, a seal of the righteousness of the faith which he had while still uncircumcised, that he might be the father of all those who believe, though they are uncircumcised, that righteousness might be imputed to them also, 
 
 ###### 12 
-and the father of circumcision to those who not only _are_ of the circumcision, but who also walk in the steps of the faith which our father Abraham _had while still_ uncircumcised.
+and the father of circumcision to those who not only are of the circumcision, but who also walk in the steps of the faith which our father Abraham had while still uncircumcised.
 
 ## The Promise Granted Through Faith 
 
 ###### 13 
-For the promise that he would be the heir of the world _was_ not to Abraham or to his seed through the law, but through the righteousness of faith. 
+For the promise that he would be the heir of the world was not to Abraham or to his seed through the law, but through the righteousness of faith. 
 
 ###### 14 
-For if those who are of the law _are_ heirs, faith is made void and the promise made of no effect, 
+For if those who are of the law are heirs, faith is made void and the promise made of no effect, 
 
 ###### 15 
-because the law brings about wrath; for where there is no law _there is_ no transgression. 
+because the law brings about wrath; for where there is no law there is no transgression. 
 
 ###### 16 
-Therefore _it is_ of faith that _it might be_ according to grace, so that the promise might be sure to all the seed, not only to those who are of the law, but also to those who are of the faith of Abraham, who is the father of us all 
+Therefore it is of faith that it might be according to grace, so that the promise might be sure to all the seed, not only to those who are of the law, but also to those who are of the faith of Abraham, who is the father of us all 
 
 ###### 17 
 (as it is written, "I have made you a father of many nations") in the presence of Him whom he believed--God, who gives life to the dead and calls those things which do not exist as though they did; 

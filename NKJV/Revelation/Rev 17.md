@@ -16,13 +16,13 @@ Then one of the seven angels who had the seven bowls came and talked with me, sa
 with whom the kings of the earth committed fornication, and the inhabitants of the earth were made drunk with the wine of her fornication." 
 
 ###### 3 
-So he carried me away in the Spirit into the wilderness. And I saw a woman sitting on a scarlet beast _which was_ full of names of blasphemy, having seven heads and ten horns. 
+So he carried me away in the Spirit into the wilderness. And I saw a woman sitting on a scarlet beast which was full of names of blasphemy, having seven heads and ten horns. 
 
 ###### 4 
 The woman was arrayed in purple and scarlet, and adorned with gold and precious stones and pearls, having in her hand a golden cup full of abominations and the filthiness of her fornication. 
 
 ###### 5 
-And on her forehead a name _was_ written: MYSTERY, BABYLON THE GREAT, THE MOTHER OF HARLOTS AND OF THE ABOMINATIONS OF THE EARTH. 
+And on her forehead a name was written: MYSTERY, BABYLON THE GREAT, THE MOTHER OF HARLOTS AND OF THE ABOMINATIONS OF THE EARTH. 
 
 ###### 6 
 I saw the woman, drunk with the blood of the saints and with the blood of the martyrs of Jesus. And when I saw her, I marveled with great amazement.
@@ -36,10 +36,10 @@ But the angel said to me, "Why did you marvel? I will tell you the mystery of th
 The beast that you saw was, and is not, and will ascend out of the bottomless pit and go to perdition. And those who dwell on the earth will marvel, whose names are not written in the Book of Life from the foundation of the world, when they see the beast that was, and is not, and yet is. 
 
 ###### 9 
-"Here _is_ the mind which has wisdom: The seven heads are seven mountains on which the woman sits. 
+"Here is the mind which has wisdom: The seven heads are seven mountains on which the woman sits. 
 
 ###### 10 
-There are also seven kings. Five have fallen, one is, _and_ the other has not yet come. And when he comes, he must continue a short time. 
+There are also seven kings. Five have fallen, one is, and the other has not yet come. And when he comes, he must continue a short time. 
 
 ###### 11 
 The beast that was, and is not, is himself also the eighth, and is of the seven, and is going to perdition. 
@@ -51,7 +51,7 @@ The beast that was, and is not, is himself also the eighth, and is of the seven,
 These are of one mind, and they will give their power and authority to the beast. 
 
 ###### 14 
-These will make war with the Lamb, and the Lamb will overcome them, for He is Lord of lords and King of kings; and those _who are_ with Him _are_ called, chosen, and faithful." 
+These will make war with the Lamb, and the Lamb will overcome them, for He is Lord of lords and King of kings; and those who are with Him are called, chosen, and faithful." 
 
 ###### 15 
 Then he said to me, "The waters which you saw, where the harlot sits, are peoples, multitudes, nations, and tongues. 

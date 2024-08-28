@@ -10,7 +10,7 @@ next: ['Rev 6']
 
 
 ###### 1 
-And I saw in the right _hand_ of Him who sat on the throne a scroll written inside and on the back, sealed with seven seals. 
+And I saw in the right hand of Him who sat on the throne a scroll written inside and on the back, sealed with seven seals. 
 
 ###### 2 
 Then I saw a strong angel proclaiming with a loud voice, "Who is worthy to open the scroll and to loose its seals?" 
@@ -48,7 +48,7 @@ Then I looked, and I heard the voice of many angels around the throne, the livin
 saying with a loud voice: "Worthy is the Lamb who was slain To receive power and riches and wisdom, And strength and honor and glory and blessing!" 
 
 ###### 13 
-And every creature which is in heaven and on the earth and under the earth and such as are in the sea, and all that are in them, I heard saying: "Blessing and honor and glory and power _Be_ to Him who sits on the throne, And to the Lamb, forever and ever!" 
+And every creature which is in heaven and on the earth and under the earth and such as are in the sea, and all that are in them, I heard saying: "Blessing and honor and glory and power Be to Him who sits on the throne, And to the Lamb, forever and ever!" 
 
 ###### 14 
 Then the four living creatures said, "Amen!" And the twenty-four elders fell down and worshiped Him who lives forever and ever.

@@ -205,7 +205,7 @@ Sinabi ni Boaz kay Ruth, "Anak, makinig ka. Huwag ka nang pumunta sa ibang bukid
 
 
 
-Tingnan mo kung saan nag-aani ang mga tauhan ko at sumunod ka sa mga utusan kong_ babae. Sinabihan ko na ang mga tauhan ko na huwag kang galawin. At kapag nauhaw ka, uminom ka lang sa mga tapayan na inigiban ng mga tauhan ko." 
+Tingnan mo kung saan nag-aani ang mga tauhan ko at sumunod ka sa mga utusan kong babae. Sinabihan ko na ang mga tauhan ko na huwag kang galawin. At kapag nauhaw ka, uminom ka lang sa mga tapayan na inigiban ng mga tauhan ko." 
 
 
 
@@ -238,7 +238,7 @@ Tingnan mo kung saan nag-aani ang mga tauhan ko at sumunod ka sa mga utusan kong
 
 
 
-Nagpatirapa si Ruth sa harapan ni Boaz bilang paggalang_ at sinabi, "Bakit napakabuti nʼyo po sa akin gayong isang dayuhan lang ako?" 
+Nagpatirapa si Ruth sa harapan ni Boaz bilang paggalang at sinabi, "Bakit napakabuti nʼyo po sa akin gayong isang dayuhan lang ako?" 
 
 
 
@@ -403,7 +403,7 @@ Nang oras na para kumain, sinabi ni Boaz kay Ruth, "Halika, kumuha ka ng pagkain
 
 
 
-Nang tumayo na si Ruth para mamulot ulit_ ng mga nalaglag na uhay, nag-utos si Boaz sa mga tauhan niya, "Huwag ninyong hihiyain si Ruth kahit mamulot pa siya malapit sa mga binigkis na uhay. 
+Nang tumayo na si Ruth para mamulot ulit ng mga nalaglag na uhay, nag-utos si Boaz sa mga tauhan niya, "Huwag ninyong hihiyain si Ruth kahit mamulot pa siya malapit sa mga binigkis na uhay. 
 
 
 
@@ -502,7 +502,7 @@ Kaya namulot si Ruth ng mga nalaglag na uhay hanggang sa lumubog ang araw. At na
 
 
 
-Dinala niya ito pauwi sa bayan at ipinakita sa kanyang biyenan na si Naomi_. Pagkatapos kinuha niya ang natira niyang pagkain at ibinigay kay Naomi. 
+Dinala niya ito pauwi sa bayan at ipinakita sa kanyang biyenan na si Naomi. Pagkatapos kinuha niya ang natira niyang pagkain at ibinigay kay Naomi. 
 
 
 

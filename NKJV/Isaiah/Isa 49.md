@@ -16,13 +16,13 @@ next: ['Isa 50']
 And He has made My mouth like a sharp sword; In the shadow of His hand He has hidden Me, And made Me a polished shaft; In His quiver He has hidden Me." 
 
 ###### 3 
-"And He said to me, 'You _are_ My servant, O Israel, In whom I will be glorified.' 
+"And He said to me, 'You are My servant, O Israel, In whom I will be glorified.' 
 
 ###### 4 
-Then I said, 'I have labored in vain, I have spent my strength for nothing and in vain; Yet surely my just reward _is_ with the Lord, And my work with my God.' " 
+Then I said, 'I have labored in vain, I have spent my strength for nothing and in vain; Yet surely my just reward is with the Lord, And my work with my God.' " 
 
 ###### 5 
-"And now the Lord says, Who formed Me from the womb _to be_ His Servant, To bring Jacob back to Him, So that Israel is gathered to Him (For I shall be glorious in the eyes of the Lord, And My God shall be My strength), 
+"And now the Lord says, Who formed Me from the womb to be His Servant, To bring Jacob back to Him, So that Israel is gathered to Him (For I shall be glorious in the eyes of the Lord, And My God shall be My strength), 
 
 ###### 6 
 Indeed He says, 'It is too small a thing that You should be My Servant To raise up the tribes of Jacob, And to restore the preserved ones of Israel; I will also give You as a light to the Gentiles, That You should be My salvation to the ends of the earth.' " 
@@ -34,7 +34,7 @@ Thus says the Lord, The Redeemer of Israel, their Holy One, To Him whom man desp
 Thus says the Lord: "In an acceptable time I have heard You, And in the day of salvation I have helped You; I will preserve You and give You As a covenant to the people, To restore the earth, To cause them to inherit the desolate heritages; 
 
 ###### 9 
-That You may say to the prisoners, 'Go forth,' To those who _are_ in darkness, 'Show yourselves.' "They shall feed along the roads, And their pastures _shall be_ on all desolate heights. 
+That You may say to the prisoners, 'Go forth,' To those who are in darkness, 'Show yourselves.' "They shall feed along the roads, And their pastures shall be on all desolate heights. 
 
 ###### 10 
 They shall neither hunger nor thirst, Neither heat nor sun shall strike them; For He who has mercy on them will lead them, Even by the springs of water He will guide them. 
@@ -57,28 +57,28 @@ But Zion said, "The Lord has forsaken me, And my Lord has forgotten me."
 "Can a woman forget her nursing child, And not have compassion on the son of her womb? Surely they may forget, Yet I will not forget you. 
 
 ###### 16 
-See, I have inscribed you on the palms _of My hands;_ Your walls _are_ continually before Me. 
+See, I have inscribed you on the palms of My hands; Your walls are continually before Me. 
 
 ###### 17 
 Your sons shall make haste; Your destroyers and those who laid you waste Shall go away from you. 
 
 ###### 18 
-Lift up your eyes, look around and see; All these gather together _and_ come to you. _As_ I live," says the Lord, "You shall surely clothe yourselves with them all as an ornament, And bind them _on you_ as a bride _does._ 
+Lift up your eyes, look around and see; All these gather together and come to you. As I live," says the Lord, "You shall surely clothe yourselves with them all as an ornament, And bind them on you as a bride does. 
 
 ###### 19 
 "For your waste and desolate places, And the land of your destruction, Will even now be too small for the inhabitants; And those who swallowed you up will be far away. 
 
 ###### 20 
-The children you will have, After you have lost the others, Will say again in your ears, 'The place _is_ too small for me; Give me a place where I may dwell.' 
+The children you will have, After you have lost the others, Will say again in your ears, 'The place is too small for me; Give me a place where I may dwell.' 
 
 ###### 21 
-Then you will say in your heart, 'Who has begotten these for me, Since I have lost my children and am desolate, A captive, and wandering to and fro? And who has brought these up? There I was, left alone; But these, where _were_ they?' " 
+Then you will say in your heart, 'Who has begotten these for me, Since I have lost my children and am desolate, A captive, and wandering to and fro? And who has brought these up? There I was, left alone; But these, where were they?' " 
 
 ###### 22 
-Thus says the Lord God: "Behold, I will lift My hand in an oath to the nations, And set up My standard for the peoples; They shall bring your sons in _their_ arms, And your daughters shall be carried on _their_ shoulders; 
+Thus says the Lord God: "Behold, I will lift My hand in an oath to the nations, And set up My standard for the peoples; They shall bring your sons in their arms, And your daughters shall be carried on their shoulders; 
 
 ###### 23 
-Kings shall be your foster fathers, And their queens your nursing mothers; They shall bow down to you with _their_ faces to the earth, And lick up the dust of your feet. Then you will know that I _am_ the Lord, For they shall not be ashamed who wait for Me." 
+Kings shall be your foster fathers, And their queens your nursing mothers; They shall bow down to you with their faces to the earth, And lick up the dust of your feet. Then you will know that I am the Lord, For they shall not be ashamed who wait for Me." 
 
 ###### 24 
 Shall the prey be taken from the mighty, Or the captives of the righteous be delivered? 
@@ -87,4 +87,4 @@ Shall the prey be taken from the mighty, Or the captives of the righteous be del
 But thus says the Lord: "Even the captives of the mighty shall be taken away, And the prey of the terrible be delivered; For I will contend with him who contends with you, And I will save your children. 
 
 ###### 26 
-I will feed those who oppress you with their own flesh, And they shall be drunk with their own blood as with sweet wine. All flesh shall know That I, the Lord, _am_ your Savior, And your Redeemer, the Mighty One of Jacob."
+I will feed those who oppress you with their own flesh, And they shall be drunk with their own blood as with sweet wine. All flesh shall know That I, the Lord, am your Savior, And your Redeemer, the Mighty One of Jacob."

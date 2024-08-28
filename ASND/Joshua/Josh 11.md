@@ -73,7 +73,7 @@ Nang mabalitaan ni Haring Jabin ng Hazor ang mga tagumpay ng Israel, nagpadala s
 
 
 
-sa mga haring nasa kabundukan sa hilaga, sa mga hari sa_ Lambak ng Jordan na nasa timog ng Lawa ng_ Galilea, sa mga hari sa_ kaburulan sa kanluran, sa mga hari sa_ baybayin ng Dor sa kanluran, 
+sa mga haring nasa kabundukan sa hilaga, sa mga hari sa Lambak ng Jordan na nasa timog ng Lawa ng Galilea, sa mga hari sa kaburulan sa kanluran, sa mga hari sa baybayin ng Dor sa kanluran, 
 
 
 
@@ -106,7 +106,7 @@ sa mga haring nasa kabundukan sa hilaga, sa mga hari sa_ Lambak ng Jordan na nas
 
 
 
-sa mga hari ng_ mga Cananeo sa silangan at sa kanluran ng Ilog ng Jordan_, sa mga hari ng_ mga Amoreo, Heteo, Perezeo, Jebuseo na nakatira sa kabundukan, at sa mga hari ng mga_ Hiveo sa ibaba ng Bundok_ ng Hermon sa lupain ng Mizpa. 
+sa mga hari ng mga Cananeo sa silangan at sa kanluran ng Ilog ng Jordan, sa mga hari ng mga Amoreo, Heteo, Perezeo, Jebuseo na nakatira sa kabundukan, at sa mga hari ng mga Hiveo sa ibaba ng Bundok ng Hermon sa lupain ng Mizpa. 
 
 
 
@@ -568,7 +568,7 @@ Sinakop nga ni Josue ang buong lupain: ang kabundukan, ang buong lupain ng Negev
 
 
 
-Ang teritoryo na sinakop niya ay mula_ sa Bundok ng Halak na paahon sa Seir hanggang sa Baal Gad sa Lambak ng Lebanon sa ibaba ng Bundok ng Hermon. Dinakip at pinatay niya ang mga hari ng mga lugar na ito 
+Ang teritoryo na sinakop niya ay mula sa Bundok ng Halak na paahon sa Seir hanggang sa Baal Gad sa Lambak ng Lebanon sa ibaba ng Bundok ng Hermon. Dinakip at pinatay niya ang mga hari ng mga lugar na ito 
 
 
 

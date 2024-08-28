@@ -22,7 +22,7 @@ and said to Him, "Are You the Coming One, or do we look for another?"
 Jesus answered and said to them, "Go and tell John the things which you hear and see: 
 
 ###### 5 
-_The_ blind see and _the_ lame walk; _the_ lepers are cleansed and _the_ deaf hear; _the_ dead are raised up and _the_ poor have the gospel preached to them. 
+The blind see and the lame walk; the lepers are cleansed and the deaf hear; the dead are raised up and the poor have the gospel preached to them. 
 
 ###### 6 
 And blessed is he who is not offended because of Me." 
@@ -31,13 +31,13 @@ And blessed is he who is not offended because of Me."
 As they departed, Jesus began to say to the multitudes concerning John: "What did you go out into the wilderness to see? A reed shaken by the wind? 
 
 ###### 8 
-But what did you go out to see? A man clothed in soft garments? Indeed, those who wear soft _clothing_ are in kings' houses. 
+But what did you go out to see? A man clothed in soft garments? Indeed, those who wear soft clothing are in kings' houses. 
 
 ###### 9 
 But what did you go out to see? A prophet? Yes, I say to you, and more than a prophet. 
 
 ###### 10 
-For this is _he_ of whom it is written: 'Behold, I send My messenger before Your face, Who will prepare Your way before You.' 
+For this is he of whom it is written: 'Behold, I send My messenger before Your face, Who will prepare Your way before You.' 
 
 ###### 11 
 "Assuredly, I say to you, among those born of women there has not risen one greater than John the Baptist; but he who is least in the kingdom of heaven is greater than he. 
@@ -49,7 +49,7 @@ And from the days of John the Baptist until now the kingdom of heaven suffers vi
 For all the prophets and the law prophesied until John. 
 
 ###### 14 
-And if you are willing to receive _it,_ he is Elijah who is to come. 
+And if you are willing to receive it, he is Elijah who is to come. 
 
 ###### 15 
 He who has ears to hear, let him hear! 
@@ -82,19 +82,19 @@ And you, Capernaum, who are exalted to heaven, will be brought down to Hades; fo
 But I say to you that it shall be more tolerable for the land of Sodom in the day of judgment than for you." ## Jesus Gives True Rest 
 
 ###### 25 
-At that time Jesus answered and said, "I thank You, Father, Lord of heaven and earth, that You have hidden these things from _the_ wise and prudent and have revealed them to babes. 
+At that time Jesus answered and said, "I thank You, Father, Lord of heaven and earth, that You have hidden these things from the wise and prudent and have revealed them to babes. 
 
 ###### 26 
 Even so, Father, for so it seemed good in Your sight. 
 
 ###### 27 
-All things have been delivered to Me by My Father, and no one knows the Son except the Father. Nor does anyone know the Father except the Son, and _the one_ to whom the Son wills to reveal _Him._ 
+All things have been delivered to Me by My Father, and no one knows the Son except the Father. Nor does anyone know the Father except the Son, and the one to whom the Son wills to reveal Him. 
 
 ###### 28 
-Come to Me, all _you_ who labor and are heavy laden, and I will give you rest. 
+Come to Me, all you who labor and are heavy laden, and I will give you rest. 
 
 ###### 29 
 Take My yoke upon you and learn from Me, for I am gentle and lowly in heart, and you will find rest for your souls. 
 
 ###### 30 
-For My yoke _is_ easy and My burden is light."
+For My yoke is easy and My burden is light."

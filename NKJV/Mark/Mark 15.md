@@ -10,10 +10,10 @@ next: ['Mark 16']
 
 
 ###### 1 
-Immediately, in the morning, the chief priests held a consultation with the elders and scribes and the whole council; and they bound Jesus, led _Him_ away, and delivered _Him_ to Pilate. 
+Immediately, in the morning, the chief priests held a consultation with the elders and scribes and the whole council; and they bound Jesus, led Him away, and delivered Him to Pilate. 
 
 ###### 2 
-Then Pilate asked Him, "Are You the King of the Jews?" He answered and said to him, "_It is as_ you say." 
+Then Pilate asked Him, "Are You the King of the Jews?" He answered and said to him, "It is as you say." 
 
 ###### 3 
 And the chief priests accused Him of many things, but He answered nothing. 
@@ -30,10 +30,10 @@ But Jesus still answered nothing, so that Pilate marveled.
 Now at the feast he was accustomed to releasing one prisoner to them, whomever they requested. 
 
 ###### 7 
-And there was one named Barabbas, _who was_ chained with his fellow rebels; they had committed murder in the rebellion. 
+And there was one named Barabbas, who was chained with his fellow rebels; they had committed murder in the rebellion. 
 
 ###### 8 
-Then the multitude, crying aloud, began to ask _him to do_ just as he had always done for them. 
+Then the multitude, crying aloud, began to ask him to do just as he had always done for them. 
 
 ###### 9 
 But Pilate answered them, saying, "Do you want me to release to you the King of the Jews?" 
@@ -45,7 +45,7 @@ For he knew that the chief priests had handed Him over because of envy.
 But the chief priests stirred up the crowd, so that he should rather release Barabbas to them. 
 
 ###### 12 
-Pilate answered and said to them again, "What then do you want me to do _with Him_ whom you call the King of the Jews?" 
+Pilate answered and said to them again, "What then do you want me to do with Him whom you call the King of the Jews?" 
 
 ###### 13 
 So they cried out again, "Crucify Him!" 
@@ -54,7 +54,7 @@ So they cried out again, "Crucify Him!"
 Then Pilate said to them, "Why, what evil has He done?" But they cried out all the more, "Crucify Him!" 
 
 ###### 15 
-So Pilate, wanting to gratify the crowd, released Barabbas to them; and he delivered Jesus, after he had scourged _Him,_ to be crucified.
+So Pilate, wanting to gratify the crowd, released Barabbas to them; and he delivered Jesus, after he had scourged Him, to be crucified.
 
 ## The Soldiers Mock Jesus 
 
@@ -62,7 +62,7 @@ So Pilate, wanting to gratify the crowd, released Barabbas to them; and he deliv
 Then the soldiers led Him away into the hall called Praetorium, and they called together the whole garrison. 
 
 ###### 17 
-And they clothed Him with purple; and they twisted a crown of thorns, put it on His _head,_ 
+And they clothed Him with purple; and they twisted a crown of thorns, put it on His head, 
 
 ###### 18 
 and began to salute Him, "Hail, King of the Jews!" 
@@ -82,10 +82,10 @@ Then they compelled a certain man, Simon a Cyrenian, the father of Alexander and
 And they brought Him to the place Golgotha, which is translated, Place of a Skull. 
 
 ###### 23 
-Then they gave Him wine mingled with myrrh to drink, but He did not take _it._ 
+Then they gave Him wine mingled with myrrh to drink, but He did not take it. 
 
 ###### 24 
-And when they crucified Him, they divided His garments, casting lots for them _to determine_ what every man should take. 
+And when they crucified Him, they divided His garments, casting lots for them to determine what every man should take. 
 
 ###### 25 
 Now it was the third hour, and they crucified Him. 
@@ -100,7 +100,7 @@ With Him they also crucified two robbers, one on His right and the other on His 
 So the Scripture was fulfilled which says, "And He was numbered with the transgressors." 
 
 ###### 29 
-And those who passed by blasphemed Him, wagging their heads and saying, "Aha! _You_ who destroy the temple and build _it_ in three days, 
+And those who passed by blasphemed Him, wagging their heads and saying, "Aha! You who destroy the temple and build it in three days, 
 
 ###### 30 
 save Yourself, and come down from the cross!" 
@@ -120,10 +120,10 @@ Now when the sixth hour had come, there was darkness over the whole land until t
 And at the ninth hour Jesus cried out with a loud voice, saying, "Eloi, Eloi, lama sabachthani?" which is translated, "My God, My God, why have You forsaken Me?" 
 
 ###### 35 
-Some of those who stood by, when they heard _that,_ said, "Look, He is calling for Elijah!" 
+Some of those who stood by, when they heard that, said, "Look, He is calling for Elijah!" 
 
 ###### 36 
-Then someone ran and filled a sponge full of sour wine, put _it_ on a reed, and offered _it_ to Him to drink, saying, "Let Him alone; let us see if Elijah will come to take Him down." 
+Then someone ran and filled a sponge full of sour wine, put it on a reed, and offered it to Him to drink, saying, "Let Him alone; let us see if Elijah will come to take Him down." 
 
 ###### 37 
 And Jesus cried out with a loud voice, and breathed His last. 
@@ -158,4 +158,4 @@ So when he found out from the centurion, he granted the body to Joseph.
 Then he bought fine linen, took Him down, and wrapped Him in the linen. And he laid Him in a tomb which had been hewn out of the rock, and rolled a stone against the door of the tomb. 
 
 ###### 47 
-And Mary Magdalene and Mary _the mother_ of Joses observed where He was laid.
+And Mary Magdalene and Mary the mother of Joses observed where He was laid.

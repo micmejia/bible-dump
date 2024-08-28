@@ -106,7 +106,7 @@ Iisa ang sasapitin ng lahat: pari man o mamamayan, amo man o alipin, nagtitinda 
 
 
 
-Lubusang mawawasak ang mundo at walang matitira rito. Mangyayari nga ito_ dahil sinabi ng Panginoon. 
+Lubusang mawawasak ang mundo at walang matitira rito. Mangyayari nga ito dahil sinabi ng Panginoon. 
 
 
 

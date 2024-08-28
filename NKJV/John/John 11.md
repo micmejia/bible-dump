@@ -10,16 +10,16 @@ next: ['John 12']
 
 
 ###### 1 
-Now a certain _man_ was sick, Lazarus of Bethany, the town of Mary and her sister Martha. 
+Now a certain man was sick, Lazarus of Bethany, the town of Mary and her sister Martha. 
 
 ###### 2 
-It was _that_ Mary who anointed the Lord with fragrant oil and wiped His feet with her hair, whose brother Lazarus was sick. 
+It was that Mary who anointed the Lord with fragrant oil and wiped His feet with her hair, whose brother Lazarus was sick. 
 
 ###### 3 
 Therefore the sisters sent to Him, saying, "Lord, behold, he whom You love is sick." 
 
 ###### 4 
-When Jesus heard _that,_ He said, "This sickness is not unto death, but for the glory of God, that the Son of God may be glorified through it." 
+When Jesus heard that, He said, "This sickness is not unto death, but for the glory of God, that the Son of God may be glorified through it." 
 
 ###### 5 
 Now Jesus loved Martha and her sister and Lazarus. 
@@ -28,10 +28,10 @@ Now Jesus loved Martha and her sister and Lazarus.
 So, when He heard that he was sick, He stayed two more days in the place where He was. 
 
 ###### 7 
-Then after this He said to _the_ disciples, "Let us go to Judea again." 
+Then after this He said to the disciples, "Let us go to Judea again." 
 
 ###### 8 
-_The_ disciples said to Him, "Rabbi, lately the Jews sought to stone You, and are You going there again?" 
+The disciples said to Him, "Rabbi, lately the Jews sought to stone You, and are You going there again?" 
 
 ###### 9 
 Jesus answered, "Are there not twelve hours in the day? If anyone walks in the day, he does not stumble, because he sees the light of this world. 
@@ -94,7 +94,7 @@ She said to Him, "Yes, Lord, I believe that You are the Christ, the Son of God, 
 And when she had said these things, she went her way and secretly called Mary her sister, saying, "The Teacher has come and is calling for you." 
 
 ###### 29 
-As soon as she heard _that,_ she arose quickly and came to Him. 
+As soon as she heard that, she arose quickly and came to Him. 
 
 ###### 30 
 Now Jesus had not yet come into the town, but was in the place where Martha met Him. 
@@ -124,16 +124,16 @@ And some of them said, "Could not this Man, who opened the eyes of the blind, al
 Then Jesus, again groaning in Himself, came to the tomb. It was a cave, and a stone lay against it. 
 
 ###### 39 
-Jesus said, "Take away the stone." Martha, the sister of him who was dead, said to Him, "Lord, by this time there is a stench, for he has been _dead_ four days." 
+Jesus said, "Take away the stone." Martha, the sister of him who was dead, said to Him, "Lord, by this time there is a stench, for he has been dead four days." 
 
 ###### 40 
 Jesus said to her, "Did I not say to you that if you would believe you would see the glory of God?" 
 
 ###### 41 
-Then they took away the stone _from the place_ where the dead man was lying. And Jesus lifted up _His_ eyes and said, "Father, I thank You that You have heard Me. 
+Then they took away the stone from the place where the dead man was lying. And Jesus lifted up His eyes and said, "Father, I thank You that You have heard Me. 
 
 ###### 42 
-And I know that You always hear Me, but because of the people who are standing by I said _this,_ that they may believe that You sent Me." 
+And I know that You always hear Me, but because of the people who are standing by I said this, that they may believe that You sent Me." 
 
 ###### 43 
 Now when He had said these things, He cried with a loud voice, "Lazarus, come forth!" 
@@ -160,7 +160,7 @@ And one of them, Caiaphas, being high priest that year, said to them, "You know 
 nor do you consider that it is expedient for us that one man should die for the people, and not that the whole nation should perish." 
 
 ###### 51 
-Now this he did not say on his own _authority;_ but being high priest that year he prophesied that Jesus would die for the nation, 
+Now this he did not say on his own authority; but being high priest that year he prophesied that Jesus would die for the nation, 
 
 ###### 52 
 and not for that nation only, but also that He would gather together in one the children of God who were scattered abroad. 
@@ -178,4 +178,4 @@ And the Passover of the Jews was near, and many went from the country up to Jeru
 Then they sought Jesus, and spoke among themselves as they stood in the temple, "What do you think--that He will not come to the feast?" 
 
 ###### 57 
-Now both the chief priests and the Pharisees had given a command, that if anyone knew where He was, he should report _it,_ that they might seize Him.
+Now both the chief priests and the Pharisees had given a command, that if anyone knew where He was, he should report it, that they might seize Him.

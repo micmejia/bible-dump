@@ -304,7 +304,7 @@ Hindi mo iginagalang ang mga bagay na itinuturing kong banal, pati ang Araw ng P
 
 
 
-May mga tao riyan na nagsisinungaling para ipapatay ang iba. Mayroon ding kumakain ng mga inihandog sa mga dios-diosan sa sambahan_ sa mga bundok at gumagawa ng malalaswang gawain. 
+May mga tao riyan na nagsisinungaling para ipapatay ang iba. Mayroon ding kumakain ng mga inihandog sa mga dios-diosan sa sambahan sa mga bundok at gumagawa ng malalaswang gawain. 
 
 
 
@@ -403,7 +403,7 @@ Mayroon ding sumisiping sa asawa ng iba, o sa manugang niyang babae, o sa kapati
 
 
 
-Ang iba ay nagpapasuhol para pumatay ng tao, ang iba ay nagpapatubo ng labis, at ang iba ay nagiging mayaman dahil mukhang pera. Kinalimutan na nila ako. Ako,_ ang Panginoong Dios, ang nagsasabi nito. 
+Ang iba ay nagpapasuhol para pumatay ng tao, ang iba ay nagpapatubo ng labis, at ang iba ay nagiging mayaman dahil mukhang pera. Kinalimutan na nila ako. Ako, ang Panginoong Dios, ang nagsasabi nito. 
 
 
 
@@ -436,7 +436,7 @@ Ang iba ay nagpapasuhol para pumatay ng tao, ang iba ay nagpapatubo ng labis, at
 
 
 
-Isusuntok ko ang aking kamao sa palad ko sa galit_, dahil sa mga pangingikil at mga pagpatay ninyo. 
+Isusuntok ko ang aking kamao sa palad ko sa galit, dahil sa mga pangingikil at mga pagpatay ninyo. 
 
 
 
@@ -634,7 +634,7 @@ Sinabi rin sa akin ng Panginoon,
 
 
 
-Kaya ako,_ ang Panginoong Dios, ay nagsasabi: Sapagkat wala kayong kabuluhan, titipunin ko kayo sa Jerusalem, 20-21katulad ng taong nagtitipon ng pilak, tanso, bakal, tingga at lata sa nagniningas na hurno para tunawin. Titipunin ko kayo sa Jerusalem para ibuhos sa inyo ang galit ko at doon ko kayo parurusahan na parang mga metal na tinutunaw. 
+Kaya ako, ang Panginoong Dios, ay nagsasabi: Sapagkat wala kayong kabuluhan, titipunin ko kayo sa Jerusalem, 20-21katulad ng taong nagtitipon ng pilak, tanso, bakal, tingga at lata sa nagniningas na hurno para tunawin. Titipunin ko kayo sa Jerusalem para ibuhos sa inyo ang galit ko at doon ko kayo parurusahan na parang mga metal na tinutunaw. 
 
 
 
@@ -898,7 +898,7 @@ Pinagtatakpan ng kanilang mga propeta ang mga kasalanan nila sa pamamagitan ng m
 
 
 
-Nandaraya at nagnanakaw ang mga tao. Inaapi nila ang mahihirap, ang mga nangangailangan at ang mga dayuhang naninirahang kasama nila_. Hindi nila binibigyan ng katarungan ang mga ito. 
+Nandaraya at nagnanakaw ang mga tao. Inaapi nila ang mahihirap, ang mga nangangailangan at ang mga dayuhang naninirahang kasama nila. Hindi nila binibigyan ng katarungan ang mga ito. 
 
 
 
@@ -964,4 +964,4 @@ Nandaraya at nagnanakaw ang mga tao. Inaapi nila ang mahihirap, ang mga nanganga
 
 
 
-Kaya ibubuhos ko ang matinding galit ko sa kanila. Lilipulin ko sila dahil sa ginawa nila. Ako,_ ang Panginoong Dios, ang nagsasabi nito."
+Kaya ibubuhos ko ang matinding galit ko sa kanila. Lilipulin ko sila dahil sa ginawa nila. Ako, ang Panginoong Dios, ang nagsasabi nito."

@@ -40,7 +40,7 @@ next: ['Isa 42']
 
 
 
-Sinabi ng Panginoon,_ "Kayong mga mamamayan sa malalayong lugar, tumahimik kayo at makinig sa akin. Kayong mga bansa, lakasan ninyo ang inyong loob, lumapit kayo sa akin at sabihin ang inyong mga reklamo. Magtipon-tipon tayo at pag-usapan natin ito. 
+Sinabi ng Panginoon, "Kayong mga mamamayan sa malalayong lugar, tumahimik kayo at makinig sa akin. Kayong mga bansa, lakasan ninyo ang inyong loob, lumapit kayo sa akin at sabihin ang inyong mga reklamo. Magtipon-tipon tayo at pag-usapan natin ito. 
 
 
 
@@ -469,7 +469,7 @@ Sapagkat ako ang Panginoon na iyong Dios. Ako ang nagpapalakas sa iyo at nagsasa
 
 
 
-Kahit na maliit ka at mahina, huwag kang matatakot dahil ako mismo ang tutulong sa iyo. Ako,_ ang Panginoon, ang nagsasabi nito. Ako ang iyong Tagapagligtas, ang Banal na Dios ng Israel. 
+Kahit na maliit ka at mahina, huwag kang matatakot dahil ako mismo ang tutulong sa iyo. Ako, ang Panginoon, ang nagsasabi nito. Ako ang iyong Tagapagligtas, ang Banal na Dios ng Israel. 
 
 
 
@@ -700,7 +700,7 @@ para makita, malaman, at maunawaan ng mga tao na ang lumikha nito ay ako, ang Pa
 
 
 
-Sinabi ng Panginoon, ang Hari ng Israel, sa mga dios-diosan,_ "Sige, magreklamo kayo at mangatuwiran! 22-23Lumapit kayo at sabihin sa amin kung ano ang mga mangyayari sa hinaharap. Sabihin ninyo sa amin ang mga sinabi nʼyo noon na mangyayari para malaman namin kung nangyari nga ito. Sabihin ninyo sa amin kung ano ang mangyayari sa hinaharap para malaman namin na kayo ngaʼy mga dios. Gumawa kayo ng mabuti o ng masama para kami ay magtaka at matakot sa inyo. 
+Sinabi ng Panginoon, ang Hari ng Israel, sa mga dios-diosan, "Sige, magreklamo kayo at mangatuwiran! 22-23Lumapit kayo at sabihin sa amin kung ano ang mga mangyayari sa hinaharap. Sabihin ninyo sa amin ang mga sinabi nʼyo noon na mangyayari para malaman namin kung nangyari nga ito. Sabihin ninyo sa amin kung ano ang mangyayari sa hinaharap para malaman namin na kayo ngaʼy mga dios. Gumawa kayo ng mabuti o ng masama para kami ay magtaka at matakot sa inyo. 
 
 
 
@@ -832,7 +832,7 @@ Sino sa inyo ang nakahula noong una pa na mangyayari ito para malaman namin at n
 
 
 
-Akong Panginoon ang_ nagsabi nito noon sa Zion, ang lungsod ng_ Jerusalem. Nagpadala ako ng isang mensahero para ibalita ang magandang balita na nandiyan na ang tutulong sa kanila. 
+Akong Panginoon ang nagsabi nito noon sa Zion, ang lungsod ng Jerusalem. Nagpadala ako ng isang mensahero para ibalita ang magandang balita na nandiyan na ang tutulong sa kanila. 
 
 
 
@@ -898,4 +898,4 @@ Tiningnan ko kung may dios-diosan na makapagpapayo pero wala akong nakita. Ni is
 
 
 
-Lahat ng mga dios-diosan ay walang kabuluhan, at walang magagawang anuman. Para silang lalagyan na puro_ hangin ang laman."
+Lahat ng mga dios-diosan ay walang kabuluhan, at walang magagawang anuman. Para silang lalagyan na puro hangin ang laman."

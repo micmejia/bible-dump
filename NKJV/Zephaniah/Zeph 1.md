@@ -20,16 +20,16 @@ The word of the Lord which came to Zephaniah the son of Cushi, the son of Gedali
 "I will consume man and beast; I will consume the birds of the heavens, The fish of the sea, And the stumbling blocks along with the wicked. I will cut off man from the face of the land," Says the Lord. 
 
 ###### 4 
-"I will stretch out My hand against Judah, And against all the inhabitants of Jerusalem. I will cut off every trace of Baal from this place, The names of the idolatrous priests with the _pagan_ priests-- 
+"I will stretch out My hand against Judah, And against all the inhabitants of Jerusalem. I will cut off every trace of Baal from this place, The names of the idolatrous priests with the pagan priests-- 
 
 ###### 5 
-Those who worship the host of heaven on the housetops; Those who worship and swear _oaths_ by the Lord, But who _also_ swear by Milcom; 
+Those who worship the host of heaven on the housetops; Those who worship and swear oaths by the Lord, But who also swear by Milcom; 
 
 ###### 6 
-Those who have turned back from _following_ the Lord, And have not sought the Lord, nor inquired of Him." 
+Those who have turned back from following the Lord, And have not sought the Lord, nor inquired of Him." 
 
 ###### 7 
-Be silent in the presence of the Lord God; For the day of the Lord _is_ at hand, For the Lord has prepared a sacrifice; He has invited His guests. 
+Be silent in the presence of the Lord God; For the day of the Lord is at hand, For the Lord has prepared a sacrifice; He has invited His guests. 
 
 ###### 8 
 "And it shall be, In the day of the Lord's sacrifice, That I will punish the princes and the king's children, And all such as are clothed with foreign apparel. 
@@ -44,16 +44,16 @@ In the same day I will punish All those who leap over the threshold, Who fill th
 Wail, you inhabitants of Maktesh! For all the merchant people are cut down; All those who handle money are cut off. 
 
 ###### 12 
-"And it shall come to pass at that time _That_ I will search Jerusalem with lamps, And punish the men Who are settled in complacency, Who say in their heart, 'The Lord will not do good, Nor will He do evil.' 
+"And it shall come to pass at that time That I will search Jerusalem with lamps, And punish the men Who are settled in complacency, Who say in their heart, 'The Lord will not do good, Nor will He do evil.' 
 
 ###### 13 
-Therefore their goods shall become booty, And their houses a desolation; They shall build houses, but not inhabit _them;_ They shall plant vineyards, but not drink their wine." 
+Therefore their goods shall become booty, And their houses a desolation; They shall build houses, but not inhabit them; They shall plant vineyards, but not drink their wine." 
 
 ###### 14 
-The great day of the Lord _is_ near; _It is_ near and hastens quickly. The noise of the day of the Lord is bitter; There the mighty men shall cry out. 
+The great day of the Lord is near; It is near and hastens quickly. The noise of the day of the Lord is bitter; There the mighty men shall cry out. 
 
 ###### 15 
-That day _is_ a day of wrath, A day of trouble and distress, A day of devastation and desolation, A day of darkness and gloominess, A day of clouds and thick darkness, 
+That day is a day of wrath, A day of trouble and distress, A day of devastation and desolation, A day of darkness and gloominess, A day of clouds and thick darkness, 
 
 ###### 16 
 A day of trumpet and alarm Against the fortified cities And against the high towers. 

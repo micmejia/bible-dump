@@ -40,7 +40,7 @@ next: ['Matt 5']
 
 
 
-Pagkatapos nito, dinala ng Banal na_ Espiritu si Jesus sa ilang upang tuksuhin ng diyablo. 
+Pagkatapos nito, dinala ng Banal na Espiritu si Jesus sa ilang upang tuksuhin ng diyablo. 
 
 
 
@@ -172,7 +172,7 @@ Pero sumagot si Jesus, "Sinasabi sa Kasulatan, 'Hindi lang sa pagkain nabubuhay 
 
 
 
-Dinala naman siya ng diyablo sa Jerusalem, ang_ banal na lungsod, doon sa pinakamataas na bahagi ng templo. 
+Dinala naman siya ng diyablo sa Jerusalem, ang banal na lungsod, doon sa pinakamataas na bahagi ng templo. 
 
 
 
@@ -238,7 +238,7 @@ At sinabi niya kay Jesus, "Kung ikaw nga ang Anak ng Dios, tumalon ka. Sapagkat 
 
 
 
-Pero_ sinagot siya ni Jesus, "Sinasabi sa Kasulatan, 'Huwag mong subukin ang Panginoon mong Dios.' " 
+Pero sinagot siya ni Jesus, "Sinasabi sa Kasulatan, 'Huwag mong subukin ang Panginoon mong Dios.' " 
 
 
 
@@ -438,7 +438,7 @@ Nang mabalitaan ni Jesus na nakulong si Juan, bumalik siya sa Galilea.
 
 
 
-Pero hindi na siya nanirahan sa Nazaret kundi sa Capernaum, isang bayan_ sa tabi ng lawa ng Galilea at sakop ng Zabulon at Naftali. 
+Pero hindi na siya nanirahan sa Nazaret kundi sa Capernaum, isang bayan sa tabi ng lawa ng Galilea at sakop ng Zabulon at Naftali. 
 
 
 
@@ -504,7 +504,7 @@ Sa ganitong paraan ay natupad ang sinabi ni Propeta Isaias:
 
 
 
-"Ang lupain ng Zabulon at Naftali ay daanan patungo sa lawa at nasa kabila ng Ilog ng_ Jordan. Ang mga lugar na itoʼy sakop ng_ Galilea at tinitirhan_ ng mga hindi Judio. 
+"Ang lupain ng Zabulon at Naftali ay daanan patungo sa lawa at nasa kabila ng Ilog ng Jordan. Ang mga lugar na itoʼy sakop ng Galilea at tinitirhan ng mga hindi Judio. 
 
 
 
@@ -570,7 +570,7 @@ Nabubuhay sa kadiliman ang mga tao roon, ngunit makakakita sila ng matinding liw
 
 
 
-Simula noon, nangaral na si Jesus. At ito ang kanyang mensahe:_ "Pagsisihan na ninyo ang inyong mga kasalanan, dahil malapit na ang paghahari ng Dios." ## Tinawag ni Jesus ang Apat na Mangingisda 
+Simula noon, nangaral na si Jesus. At ito ang kanyang mensahe: "Pagsisihan na ninyo ang inyong mga kasalanan, dahil malapit na ang paghahari ng Dios." ## Tinawag ni Jesus ang Apat na Mangingisda 
 
 
 
@@ -836,4 +836,4 @@ Naging tanyag siya sa buong Syria, at dinala sa kanya ng mga tao ang lahat ng ma
 
 
 
-Sinundan siya ng napakaraming tao na galing sa Galilea, Decapolis, Jerusalem, at iba pang mga bayan sa Judea, at maging sa kabila ng Ilog ng_ Jordan.
+Sinundan siya ng napakaraming tao na galing sa Galilea, Decapolis, Jerusalem, at iba pang mga bayan sa Judea, at maging sa kabila ng Ilog ng Jordan.

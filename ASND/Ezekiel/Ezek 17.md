@@ -106,7 +106,7 @@ Sinabi ng Panginoon sa akin,
 
 
 
-Sabihin mo sa kanila na ako,_ ang Panginoong Dios, ay nagsasabi: May malaking agila na lumipad papuntang Lebanon. Malapad ang pakpak nito at malago ang balahibong sari-sari ang kulay. Dumapo siya sa tuktok ng punong sedro, 
+Sabihin mo sa kanila na ako, ang Panginoong Dios, ay nagsasabi: May malaking agila na lumipad papuntang Lebanon. Malapad ang pakpak nito at malago ang balahibong sari-sari ang kulay. Dumapo siya sa tuktok ng punong sedro, 
 
 
 
@@ -172,7 +172,7 @@ pinutol ang umuusbong na sanga at dinala sa lupain ng mga mangangalakal at doon 
 
 
 
-Pagkatapos, kumuha naman ng binhi ang agila mula sa lupain ng Israel_ at itinanim sa matabang lupa sa tabi ng ilog at mabilis na tumubo. 
+Pagkatapos, kumuha naman ng binhi ang agila mula sa lupain ng Israel at itinanim sa matabang lupa sa tabi ng ilog at mabilis na tumubo. 
 
 
 
@@ -304,7 +304,7 @@ Ginawa ito ng halaman kahit na nakatanim ito sa matabang lupa na sagana sa tubig
 
 
 
-"Ngayon, ako,_ ang Panginoong Dios, ay magtatanong: Patuloy ba itong tutubo? Hindi! Bubunutin ito at kukunin ang mga bunga at pababayaang malanta. Napakadali nitong bunutin,_ hindi na kinakailangan ng lakas o maraming tao para bunutin ito. 
+"Ngayon, ako, ang Panginoong Dios, ay magtatanong: Patuloy ba itong tutubo? Hindi! Bubunutin ito at kukunin ang mga bunga at pababayaang malanta. Napakadali nitong bunutin, hindi na kinakailangan ng lakas o maraming tao para bunutin ito. 
 
 
 
@@ -403,7 +403,7 @@ Pagkatapos, sinabi sa akin ng Panginoon,
 
 
 
-"Tanungin mo ang mga mapagrebeldeng mamamayan ng Israel_ kung alam nila ang kahulugan ng talinghagang ito. Sabihin mo na ito ang kahulugan_: Pumunta ang hari ng Babilonia sa Jerusalem at binihag ang hari nito at ang mga tagapamahala, at dinala sa Babilonia. 
+"Tanungin mo ang mga mapagrebeldeng mamamayan ng Israel kung alam nila ang kahulugan ng talinghagang ito. Sabihin mo na ito ang kahulugan: Pumunta ang hari ng Babilonia sa Jerusalem at binihag ang hari nito at ang mga tagapamahala, at dinala sa Babilonia. 
 
 
 
@@ -436,7 +436,7 @@ Pagkatapos, sinabi sa akin ng Panginoon,
 
 
 
-Kinuha niya ang isa sa mga anak ng hari ng Juda_ at gumawa sila ng kasunduan, pinasumpa niya ang anak ng hari na maglilingkod sa kanya. Binihag din niya ang mga marangal na tao ng Juda_, 
+Kinuha niya ang isa sa mga anak ng hari ng Juda at gumawa sila ng kasunduan, pinasumpa niya ang anak ng hari na maglilingkod sa kanya. Binihag din niya ang mga marangal na tao ng Juda, 
 
 
 
@@ -502,7 +502,7 @@ upang hindi na makabangong muli ang kahariang ito at hindi na makalaban sa kanya
 
 
 
-Pero nagrebelde ang hari ng Juda_ sa hari ng Babilonia. Nagpadala ng mga tao sa Egipto ang hari ng Juda para humingi ng mga kabayo at sundalo. Pero magtatagumpay kaya siya? Makakatakas kaya siyaʼt makakaligtas sa parusa dahil sa pagsira niya sa kasunduan sa Babilonia? 
+Pero nagrebelde ang hari ng Juda sa hari ng Babilonia. Nagpadala ng mga tao sa Egipto ang hari ng Juda para humingi ng mga kabayo at sundalo. Pero magtatagumpay kaya siya? Makakatakas kaya siyaʼt makakaligtas sa parusa dahil sa pagsira niya sa kasunduan sa Babilonia? 
 
 
 
@@ -535,7 +535,7 @@ Pero nagrebelde ang hari ng Juda_ sa hari ng Babilonia. Nagpadala ng mga tao sa 
 
 
 
-Hindi!_ Sapagkat ako, ang Panginoong Dios na buhay, ay sumusumpa na ang hari ng Juda_ ay siguradong mamamatay sa Babilonia dahil sinira niya ang sinumpaang kasunduan sa hari nito na nagluklok sa kanya sa trono. 
+Hindi! Sapagkat ako, ang Panginoong Dios na buhay, ay sumusumpa na ang hari ng Juda ay siguradong mamamatay sa Babilonia dahil sinira niya ang sinumpaang kasunduan sa hari nito na nagluklok sa kanya sa trono. 
 
 
 
@@ -601,7 +601,7 @@ Hindi siya matutulungan ng Faraon sa digmaan, pati na ang napakarami at makapang
 
 
 
-Sinira ng hari ng Juda ang kasunduang sinumpaan niya sa hari ng Babilonia_, kaya hindi siya makakaligtas. 
+Sinira ng hari ng Juda ang kasunduang sinumpaan niya sa hari ng Babilonia, kaya hindi siya makakaligtas. 
 
 
 

@@ -16,28 +16,28 @@ And the word of the Lord came to me, saying,
 "Son of man, prophesy against the shepherds of Israel, prophesy and say to them, 'Thus says the Lord God to the shepherds: "Woe to the shepherds of Israel who feed themselves! Should not the shepherds feed the flocks? 
 
 ###### 3 
-You eat the fat and clothe yourselves with the wool; you slaughter the fatlings, _but_ you do not feed the flock. 
+You eat the fat and clothe yourselves with the wool; you slaughter the fatlings, but you do not feed the flock. 
 
 ###### 4 
 The weak you have not strengthened, nor have you healed those who were sick, nor bound up the broken, nor brought back what was driven away, nor sought what was lost; but with force and cruelty you have ruled them. 
 
 ###### 5 
-So they were scattered because _there was_ no shepherd; and they became food for all the beasts of the field when they were scattered. 
+So they were scattered because there was no shepherd; and they became food for all the beasts of the field when they were scattered. 
 
 ###### 6 
-My sheep wandered through all the mountains, and on every high hill; yes, My flock was scattered over the whole face of the earth, and no one was seeking or searching _for them._" 
+My sheep wandered through all the mountains, and on every high hill; yes, My flock was scattered over the whole face of the earth, and no one was seeking or searching for them." 
 
 ###### 7 
 'Therefore, you shepherds, hear the word of the Lord: 
 
 ###### 8 
-"_As_ I live," says the Lord God, "surely because My flock became a prey, and My flock became food for every beast of the field, because _there was_ no shepherd, nor did My shepherds search for My flock, but the shepherds fed themselves and did not feed My flock"-- 
+"As I live," says the Lord God, "surely because My flock became a prey, and My flock became food for every beast of the field, because there was no shepherd, nor did My shepherds search for My flock, but the shepherds fed themselves and did not feed My flock"-- 
 
 ###### 9 
 therefore, O shepherds, hear the word of the Lord! 
 
 ###### 10 
-Thus says the Lord God: "Behold, I _am_ against the shepherds, and I will require My flock at their hand; I will cause them to cease feeding the sheep, and the shepherds shall feed themselves no more; for I will deliver My flock from their mouths, that they may no longer be food for them." ## God, the True Shepherd 
+Thus says the Lord God: "Behold, I am against the shepherds, and I will require My flock at their hand; I will cause them to cease feeding the sheep, and the shepherds shall feed themselves no more; for I will deliver My flock from their mouths, that they may no longer be food for them." ## God, the True Shepherd 
 
 ###### 11 
 'For thus says the Lord God: "Indeed I Myself will search for My sheep and seek them out. 
@@ -58,13 +58,13 @@ I will feed My flock, and I will make them lie down," says the Lord God.
 "I will seek what was lost and bring back what was driven away, bind up the broken and strengthen what was sick; but I will destroy the fat and the strong, and feed them in judgment." 
 
 ###### 17 
-'And _as for_ you, O My flock, thus says the Lord God: "Behold, I shall judge between sheep and sheep, between rams and goats. 
+'And as for you, O My flock, thus says the Lord God: "Behold, I shall judge between sheep and sheep, between rams and goats. 
 
 ###### 18 
-_Is it_ too little for you to have eaten up the good pasture, that you must tread down with your feet the residue of your pasture--and to have drunk of the clear waters, that you must foul the residue with your feet? 
+Is it too little for you to have eaten up the good pasture, that you must tread down with your feet the residue of your pasture--and to have drunk of the clear waters, that you must foul the residue with your feet? 
 
 ###### 19 
-And _as for_ My flock, they eat what you have trampled with your feet, and they drink what you have fouled with your feet." 
+And as for My flock, they eat what you have trampled with your feet, and they drink what you have fouled with your feet." 
 
 ###### 20 
 'Therefore thus says the Lord God to them: "Behold, I Myself will judge between the fat and the lean sheep. 
@@ -88,16 +88,16 @@ And I, the Lord, will be their God, and My servant David a prince among them; I,
 I will make them and the places all around My hill a blessing; and I will cause showers to come down in their season; there shall be showers of blessing. 
 
 ###### 27 
-Then the trees of the field shall yield their fruit, and the earth shall yield her increase. They shall be safe in their land; and they shall know that I _am_ the Lord, when I have broken the bands of their yoke and delivered them from the hand of those who enslaved them. 
+Then the trees of the field shall yield their fruit, and the earth shall yield her increase. They shall be safe in their land; and they shall know that I am the Lord, when I have broken the bands of their yoke and delivered them from the hand of those who enslaved them. 
 
 ###### 28 
-And they shall no longer be a prey for the nations, nor shall beasts of the land devour them; but they shall dwell safely, and no one shall make _them_ afraid. 
+And they shall no longer be a prey for the nations, nor shall beasts of the land devour them; but they shall dwell safely, and no one shall make them afraid. 
 
 ###### 29 
 I will raise up for them a garden of renown, and they shall no longer be consumed with hunger in the land, nor bear the shame of the Gentiles anymore. 
 
 ###### 30 
-Thus they shall know that I, the Lord their God, _am_ with them, and they, the house of Israel, _are_ My people," says the Lord God.' 
+Thus they shall know that I, the Lord their God, am with them, and they, the house of Israel, are My people," says the Lord God.' 
 
 ###### 31 
-"You are My flock, the flock of My pasture; you _are_ men, _and_ I _am_ your God," says the Lord God.
+"You are My flock, the flock of My pasture; you are men, and I am your God," says the Lord God.

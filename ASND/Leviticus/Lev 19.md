@@ -733,7 +733,7 @@ Kapag dumating na kayo sa lupaing ibibigay ko sa inyo, huwag ninyong kakainin an
 
 
 
-Sa ikaapat na taon, ang lahat ng bunga ay ihandog ninyo sa akin bilang papuri sa akin kaya huwag ninyo itong kakainin_. 
+Sa ikaapat na taon, ang lahat ng bunga ay ihandog ninyo sa akin bilang papuri sa akin kaya huwag ninyo itong kakainin. 
 
 
 
@@ -799,7 +799,7 @@ Sa ikalimang taon, makakain na ninyo ang mga bunga ng inyong mga pananim. At kun
 
 
 
-Huwag kayong kakain ng karneng_ may dugo pa. Huwag ninyong gagawin ang ginagawa ng mga manghuhula at mangkukulam. 
+Huwag kayong kakain ng karneng may dugo pa. Huwag ninyong gagawin ang ginagawa ng mga manghuhula at mangkukulam. 
 
 
 
@@ -832,7 +832,7 @@ Huwag kayong kakain ng karneng_ may dugo pa. Huwag ninyong gagawin ang ginagawa 
 
 
 
-Kung magluluksa kayo sa patay,_ huwag ninyong pagugupitan ang inyong buhok sa palibot ng inyong ulo o magpuputol ng inyong balbas. 
+Kung magluluksa kayo sa patay, huwag ninyong pagugupitan ang inyong buhok sa palibot ng inyong ulo o magpuputol ng inyong balbas. 
 
 
 
@@ -997,7 +997,7 @@ Huwag kayong sasangguni sa mga espiritistang nakikipag-usap sa kaluluwa ng mga p
 
 
 
-Igalang ninyo ang matatanda. Igalang nʼyo ako na_ inyong Dios, ako ang Panginoon. 
+Igalang ninyo ang matatanda. Igalang nʼyo ako na inyong Dios, ako ang Panginoon. 
 
 
 

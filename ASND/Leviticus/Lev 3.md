@@ -436,7 +436,7 @@ Kung maghahandog siya ng kambing sa presensya ng Panginoon,
 
 
 
-ipapatong niya ang kanyang kamay sa ulo ng kambing at papatayin niya sa harap ng Toldang Tipanan. Iwiwisik ng paring mula sa_ angkan ni Aaron ang dugo nito sa palibot ng altar. 
+ipapatong niya ang kanyang kamay sa ulo ng kambing at papatayin niya sa harap ng Toldang Tipanan. Iwiwisik ng paring mula sa angkan ni Aaron ang dugo nito sa palibot ng altar. 
 
 
 
@@ -535,7 +535,7 @@ ang mga bato at ang taba nito, pati na ang maliit na bahagi ng atay.
 
 
 
-Ang lahat ng itoʼy susunugin ng pari sa altar bilang handog na pagkain. Ang mabangong samyo ng handog na ito sa pamamagitan ng apoy ay makalulugod sa Panginoon_. Ang lahat ng taba ay sa Panginoon. 
+Ang lahat ng itoʼy susunugin ng pari sa altar bilang handog na pagkain. Ang mabangong samyo ng handog na ito sa pamamagitan ng apoy ay makalulugod sa Panginoon. Ang lahat ng taba ay sa Panginoon. 
 
 
 

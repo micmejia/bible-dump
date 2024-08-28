@@ -40,7 +40,7 @@ next: ['2 Cor 5']
 
 
 
-Dahil sa awa ng Dios, pinili niya kami para ipahayag ang kanyang bagong pamamaraan sa pagpapawalang-sala sa mga tao_, kaya naman hindi kami pinanghihinaan ng loob. 
+Dahil sa awa ng Dios, pinili niya kami para ipahayag ang kanyang bagong pamamaraan sa pagpapawalang-sala sa mga tao, kaya naman hindi kami pinanghihinaan ng loob. 
 
 
 
@@ -271,7 +271,7 @@ Nasa amin ang kayamanang ito, ngunit tulad lang kami ng palayok na pinaglagyan n
 
 
 
-Sa aming pangangaral,_ ginigipit kami_ sa lahat ng paraan, pero hindi kami_ nalulupig. Kung minsan kami_ ay naguguluhan, pero hindi kami_ nawawalan ng pag-asa. 
+Sa aming pangangaral, ginigipit kami sa lahat ng paraan, pero hindi kami nalulupig. Kung minsan kami ay naguguluhan, pero hindi kami nawawalan ng pag-asa. 
 
 
 
@@ -403,7 +403,7 @@ Lagi kaming nasa bingit ng kamatayan dahil sa paglilingkod namin kay Jesus, para
 
 
 
-Maaaring mamatay kami dahil sa aming pangangaral_, pero ito naman ang nagdudulot sa inyo ng buhay na walang hanggan_. 
+Maaaring mamatay kami dahil sa aming pangangaral, pero ito naman ang nagdudulot sa inyo ng buhay na walang hanggan. 
 
 
 
@@ -469,7 +469,7 @@ Sinasabi ng Kasulatan, "Sumampalataya ako, kaya nagsalita ako." Ganoon din ang a
 
 
 
-Sapagkat alam namin na ang Dios na muling bumuhay sa Panginoong Jesus ang siya ring bubuhay sa amin, tulad ng ginawa niya kay Jesus, at dadalhin niya tayong lahat sa kanyang piling_. 
+Sapagkat alam namin na ang Dios na muling bumuhay sa Panginoong Jesus ang siya ring bubuhay sa amin, tulad ng ginawa niya kay Jesus, at dadalhin niya tayong lahat sa kanyang piling. 
 
 
 
@@ -502,7 +502,7 @@ Sapagkat alam namin na ang Dios na muling bumuhay sa Panginoong Jesus ang siya r
 
 
 
-Ang lahat ng paghihirap namin_ ay para sa inyong ikabubuti, para lalo pang dumami ang tumanggap ng biyaya ng Dios. At habang dumarami ang tumatanggap ng biyaya ng Dios_, dumarami rin ang nagpapasalamat sa kanya. At dahil dito ay mapupuri siya. 
+Ang lahat ng paghihirap namin ay para sa inyong ikabubuti, para lalo pang dumami ang tumanggap ng biyaya ng Dios. At habang dumarami ang tumatanggap ng biyaya ng Dios, dumarami rin ang nagpapasalamat sa kanya. At dahil dito ay mapupuri siya. 
 
 
 
@@ -568,7 +568,7 @@ Iyan ang dahilan kung bakit hindi kami pinanghihinaan ng loob. Kahit na unti-unt
 
 
 
-Sapagkat ang mga paghihirap na dinaranas namin sa mundong ito ay panandalian lamang at hindi naman gaanong mabigat. At dahil sa aming mga paghihirap_, may inihahandang gantimpala ang Dios para sa amin na mananatili magpakailanman at hinding-hindi mapapantayan. 
+Sapagkat ang mga paghihirap na dinaranas namin sa mundong ito ay panandalian lamang at hindi naman gaanong mabigat. At dahil sa aming mga paghihirap, may inihahandang gantimpala ang Dios para sa amin na mananatili magpakailanman at hinding-hindi mapapantayan. 
 
 
 
@@ -601,4 +601,4 @@ Sapagkat ang mga paghihirap na dinaranas namin sa mundong ito ay panandalian lam
 
 
 
-Kaya hindi namin pinapahalagahan ang mga bagay na nakikita sa mundong ito_ kundi ang mga bagay na hindi nakikita. Sapagkat ang mga bagay na nakikita ay panandalian lamang, pero ang mga bagay na hindi nakikita ay walang hanggan.
+Kaya hindi namin pinapahalagahan ang mga bagay na nakikita sa mundong ito kundi ang mga bagay na hindi nakikita. Sapagkat ang mga bagay na nakikita ay panandalian lamang, pero ang mga bagay na hindi nakikita ay walang hanggan.

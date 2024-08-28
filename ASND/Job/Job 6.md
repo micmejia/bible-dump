@@ -139,7 +139,7 @@ mas mabigat pa ito kaysa sa buhangin sa tabing-dagat. Iyan ang dahilan kung baki
 
 
 
-Sapagkat para akong pinana ng Makapangyarihan na Dios_ ng panang nakakalason, at ang lason nitoʼy kumalat sa buo kong katawan. Ang nakakatakot na pana ng Dios ay nakatusok na sa akin. 
+Sapagkat para akong pinana ng Makapangyarihan na Dios ng panang nakakalason, at ang lason nitoʼy kumalat sa buo kong katawan. Ang nakakatakot na pana ng Dios ay nakatusok na sa akin. 
 
 
 
@@ -172,7 +172,7 @@ Sapagkat para akong pinana ng Makapangyarihan na Dios_ ng panang nakakalason, at
 
 
 
-Wala ba akong karapatang dumaing?_ Kahit asnong-gubat at baka ay umaatungal kapag walang damo. 
+Wala ba akong karapatang dumaing? Kahit asnong-gubat at baka ay umaatungal kapag walang damo. 
 
 
 
@@ -337,7 +337,7 @@ na bawiin na lang sana ng Dios ang aking buhay.
 
 
 
-At kapag itoʼy nangyari, masaya pa rin ako, dahil sa kabila ng aking paghihirap hinding-hindi ko itinakwil ang mga salita ng Banal na Dios_. 
+At kapag itoʼy nangyari, masaya pa rin ako, dahil sa kabila ng aking paghihirap hinding-hindi ko itinakwil ang mga salita ng Banal na Dios. 
 
 
 
@@ -403,7 +403,7 @@ At kapag itoʼy nangyari, masaya pa rin ako, dahil sa kabila ng aking paghihirap
 
 
 
-Kasingtibay ba ako ng bato at gawa ba sa tanso ang katawan ko? Hindi!_ 
+Kasingtibay ba ako ng bato at gawa ba sa tanso ang katawan ko? Hindi! 
 
 
 
@@ -469,7 +469,7 @@ Wala na akong lakas para iligtas ang sarili ko. Wala na rin akong pagkakataong m
 
 
 
-"Bilang mga kaibigan nais kong damayan ninyo ako sa paghihirap kong ito, kahit na sa tingin ninyoʼy itinakwil ko na ang Dios na_ Makapangyarihan. 
+"Bilang mga kaibigan nais kong damayan ninyo ako sa paghihirap kong ito, kahit na sa tingin ninyoʼy itinakwil ko na ang Dios na Makapangyarihan. 
 
 
 
@@ -700,7 +700,7 @@ pero nabigo sila. Umaasa silang may tubig doon pero wala pala.
 
 
 
-Ang sapa na iyon ang katulad ninyo._ Wala rin kayong naitutulong sa akin. Natakot kayo nang makita ninyo ang nakakaawa kong kalagayan. 
+Ang sapa na iyon ang katulad ninyo. Wala rin kayong naitutulong sa akin. Natakot kayo nang makita ninyo ang nakakaawa kong kalagayan. 
 
 
 
@@ -799,7 +799,7 @@ o iligtas sa kamay ng aking mga kaaway?
 
 
 
-Hindi!_ Ang pakiusap ko lamang ay sabihin ninyo sa akin ang tamang sagot sa nangyayari sa akin, at tatahimik na ako. Sabihin ninyo sa akin kung ano ang nagawa kong pagkakamali. 
+Hindi! Ang pakiusap ko lamang ay sabihin ninyo sa akin ang tamang sagot sa nangyayari sa akin, at tatahimik na ako. Sabihin ninyo sa akin kung ano ang nagawa kong pagkakamali. 
 
 
 
@@ -898,7 +898,7 @@ Gusto ninyong ituwid ang mga sinasabi ko, dahil para sa inyo, ang aking sinasabi
 
 
 
-Bakit, kayo baʼy matuwid?_ Nagagawa nga ninyong ipaalipin ang isang ulila, o di kayaʼy ipagbili ang isang kaibigan! 
+Bakit, kayo baʼy matuwid? Nagagawa nga ninyong ipaalipin ang isang ulila, o di kayaʼy ipagbili ang isang kaibigan! 
 
 
 

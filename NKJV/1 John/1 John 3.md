@@ -41,19 +41,19 @@ Whoever has been born of God does not sin, for His seed remains in him; and he c
 ## The Imperative of Love 
 
 ###### 10 
-In this the children of God and the children of the devil are manifest: Whoever does not practice righteousness is not of God, nor _is_ he who does not love his brother. 
+In this the children of God and the children of the devil are manifest: Whoever does not practice righteousness is not of God, nor is he who does not love his brother. 
 
 ###### 11 
 For this is the message that you heard from the beginning, that we should love one another, 
 
 ###### 12 
-not as Cain _who_ was of the wicked one and murdered his brother. And why did he murder him? Because his works were evil and his brother's righteous. 
+not as Cain who was of the wicked one and murdered his brother. And why did he murder him? Because his works were evil and his brother's righteous. 
 
 ###### 13 
 Do not marvel, my brethren, if the world hates you. 
 
 ###### 14 
-We know that we have passed from death to life, because we love the brethren. He who does not love _his_ brother abides in death. 
+We know that we have passed from death to life, because we love the brethren. He who does not love his brother abides in death. 
 
 ###### 15 
 Whoever hates his brother is a murderer, and you know that no murderer has eternal life abiding in him.
@@ -61,7 +61,7 @@ Whoever hates his brother is a murderer, and you know that no murderer has etern
 ## The Outworking of Love 
 
 ###### 16 
-By this we know love, because He laid down His life for us. And we also ought to lay down _our_ lives for the brethren. 
+By this we know love, because He laid down His life for us. And we also ought to lay down our lives for the brethren. 
 
 ###### 17 
 But whoever has this world's goods, and sees his brother in need, and shuts up his heart from him, how does the love of God abide in him? 

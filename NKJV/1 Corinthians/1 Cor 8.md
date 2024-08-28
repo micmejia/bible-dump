@@ -19,16 +19,16 @@ And if anyone thinks that he knows anything, he knows nothing yet as he ought to
 But if anyone loves God, this one is known by Him. 
 
 ###### 4 
-Therefore concerning the eating of things offered to idols, we know that an idol _is_ nothing in the world, and that _there is_ no other God but one. 
+Therefore concerning the eating of things offered to idols, we know that an idol is nothing in the world, and that there is no other God but one. 
 
 ###### 5 
 For even if there are so-called gods, whether in heaven or on earth (as there are many gods and many lords), 
 
 ###### 6 
-yet for us _there is_ one God, the Father, of whom _are_ all things, and we for Him; and one Lord Jesus Christ, through whom _are_ all things, and through whom we _live._ 
+yet for us there is one God, the Father, of whom are all things, and we for Him; and one Lord Jesus Christ, through whom are all things, and through whom we live. 
 
 ###### 7 
-However, _there is_ not in everyone that knowledge; for some, with consciousness of the idol, until now eat _it_ as a thing offered to an idol; and their conscience, being weak, is defiled. 
+However, there is not in everyone that knowledge; for some, with consciousness of the idol, until now eat it as a thing offered to an idol; and their conscience, being weak, is defiled. 
 
 ###### 8 
 But food does not commend us to God; for neither if we eat are we the better, nor if we do not eat are we the worse. 

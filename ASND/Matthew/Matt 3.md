@@ -172,7 +172,7 @@ Ang damit ni Juan ay gawa sa balahibo ng kamelyo at ang sinturon niyaʼy gawa sa
 
 
 
-Nagpuntahan sa kanya ang maraming tao galing sa Jerusalem, sa mga bayan ng Judea, at sa mga bayan na malapit sa Ilog ng_ Jordan. 
+Nagpuntahan sa kanya ang maraming tao galing sa Jerusalem, sa mga bayan ng Judea, at sa mga bayan na malapit sa Ilog ng Jordan. 
 
 
 
@@ -205,7 +205,7 @@ Nagpuntahan sa kanya ang maraming tao galing sa Jerusalem, sa mga bayan ng Judea
 
 
 
-Ipinagtapat nila ang kanilang mga kasalanan at binautismuhan sila ni Juan sa Ilog ng_ Jordan. 
+Ipinagtapat nila ang kanilang mga kasalanan at binautismuhan sila ni Juan sa Ilog ng Jordan. 
 
 
 
@@ -238,7 +238,7 @@ Ipinagtapat nila ang kanilang mga kasalanan at binautismuhan sila ni Juan sa Ilo
 
 
 
-Pero nang makita ni Juan na maraming Pariseo at Saduceo ang pumupunta para magpabautismo, sinabi niya sa kanila, "Kayong lahi ng mga ahas! Sino ang nagsabi sa inyo na makakaiwas kayo sa darating na parusa ng Dios_? 
+Pero nang makita ni Juan na maraming Pariseo at Saduceo ang pumupunta para magpabautismo, sinabi niya sa kanila, "Kayong lahi ng mga ahas! Sino ang nagsabi sa inyo na makakaiwas kayo sa darating na parusa ng Dios? 
 
 
 
@@ -403,7 +403,7 @@ Tandaan ninyo, ngayon pa lang ay nakaamba na ang palakol para putulin ang mga pu
 
 
 
-Tulad siya ng isang taong_ nagtatahip upang ihiwalay ang ipa sa butil. Ilalagay niya ang mga butil sa bodega, at ang ipa ay susunugin niya sa apoy na hindi mamamatay kailanman." ## Ang Pagbabautismo kay Jesus 
+Tulad siya ng isang taong nagtatahip upang ihiwalay ang ipa sa butil. Ilalagay niya ang mga butil sa bodega, at ang ipa ay susunugin niya sa apoy na hindi mamamatay kailanman." ## Ang Pagbabautismo kay Jesus 
 
 
 
@@ -436,7 +436,7 @@ Tulad siya ng isang taong_ nagtatahip upang ihiwalay ang ipa sa butil. Ilalagay 
 
 
 
-Dumating si Jesus sa Ilog ng_ Jordan mula sa Galilea at pinuntahan niya si Juan upang magpabautismo. 
+Dumating si Jesus sa Ilog ng Jordan mula sa Galilea at pinuntahan niya si Juan upang magpabautismo. 
 
 
 

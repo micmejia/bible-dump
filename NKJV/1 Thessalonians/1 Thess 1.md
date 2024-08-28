@@ -38,4 +38,4 @@ For from you the word of the Lord has sounded forth, not only in Macedonia and A
 For they themselves declare concerning us what manner of entry we had to you, and how you turned to God from idols to serve the living and true God, 
 
 ###### 10 
-and to wait for His Son from heaven, whom He raised from the dead, _even_ Jesus who delivers us from the wrath to come.
+and to wait for His Son from heaven, whom He raised from the dead, even Jesus who delivers us from the wrath to come.

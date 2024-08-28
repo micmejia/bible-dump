@@ -171,7 +171,7 @@ Sige na, O aking hari, dalhin mo ako sa iyong silid. Sa piling mo, kami ay malig
 
 
 
-O mga babaeng taga-Jerusalem, maitim nga ako gaya ng mga tolda sa Kedar, pero maganda naman tulad ng kurtina sa palasyo_ ni Solomon. 
+O mga babaeng taga-Jerusalem, maitim nga ako gaya ng mga tolda sa Kedar, pero maganda naman tulad ng kurtina sa palasyo ni Solomon. 
 
 
 
@@ -237,7 +237,7 @@ Huwag ninyo akong hamakin dahil sa kulay ng aking balat. Maitim nga pagkat nabib
 
 
 
-Mahal, sabihin mo sa akin kung saan ka nagpapastol ng iyong mga tupa. Saan mo sila pinagpapahinga tuwing tanghali? Sabihin mo sa akin_ para hindi na ako maghanap pa sa iyo doon sa iyong mga kaibigan na nagpapastol din ng tupa. Dahil baka akoʼy mapagkamalan na isang babaeng bayaran. 
+Mahal, sabihin mo sa akin kung saan ka nagpapastol ng iyong mga tupa. Saan mo sila pinagpapahinga tuwing tanghali? Sabihin mo sa akin para hindi na ako maghanap pa sa iyo doon sa iyong mga kaibigan na nagpapastol din ng tupa. Dahil baka akoʼy mapagkamalan na isang babaeng bayaran. 
 
 
 
@@ -270,7 +270,7 @@ Mahal, sabihin mo sa akin kung saan ka nagpapastol ng iyong mga tupa. Saan mo si
 
 
 
-Kung hindi mo alam, O babaeng ubod ng ganda, sundan ang bakas ng aking_ mga tupa. Papunta ito sa tolda ng mga pastol, at mga kambing moʼy doon mo na rin ipastol. 
+Kung hindi mo alam, O babaeng ubod ng ganda, sundan ang bakas ng aking mga tupa. Papunta ito sa tolda ng mga pastol, at mga kambing moʼy doon mo na rin ipastol. 
 
 
 
@@ -303,7 +303,7 @@ Kung hindi mo alam, O babaeng ubod ng ganda, sundan ang bakas ng aking_ mga tupa
 
 
 
-O irog ko, tulad moʼy isang babaeng kabayo na nagustuhan ng lalaking kabayo na humihila_ ng karwahe ng hari ng Egipto. 
+O irog ko, tulad moʼy isang babaeng kabayo na nagustuhan ng lalaking kabayo na humihila ng karwahe ng hari ng Egipto. 
 
 
 
@@ -501,7 +501,7 @@ Ang mahal koʼy tulad ng kumpol ng mga bulaklak na henna, na namumulaklak doon s
 
 
 
-Napakaganda mo, aking giliw. Mga mata moʼy kasing pungay ng mga mata_ ng kalapati. 
+Napakaganda mo, aking giliw. Mga mata moʼy kasing pungay ng mga mata ng kalapati. 
 
 
 
@@ -567,4 +567,4 @@ Kay kisig mo, mahal ko. Napakaganda mong pagmasdan habang tayo ay nakahiga sa mg
 
 
 
-sa lilim ng mga punong_ sipres at sedro.
+sa lilim ng mga punong sipres at sedro.

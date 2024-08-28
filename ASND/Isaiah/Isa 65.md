@@ -40,7 +40,7 @@ next: ['Isa 66']
 
 
 
-Sumagot ang Panginoon,_ "Nagpakilala ako sa mga taong hindi nagtatanong tungkol sa akin. Natagpuan nila ako kahit na hindi nila ako hinahanap. Ipinakilala ko ang aking sarili sa kanila kahit na hindi sila tumatawag sa akin. 
+Sumagot ang Panginoon, "Nagpakilala ako sa mga taong hindi nagtatanong tungkol sa akin. Natagpuan nila ako kahit na hindi nila ako hinahanap. Ipinakilala ko ang aking sarili sa kanila kahit na hindi sila tumatawag sa akin. 
 
 
 
@@ -106,7 +106,7 @@ Sumagot ang Panginoon,_ "Nagpakilala ako sa mga taong hindi nagtatanong tungkol 
 
 
 
-Ginagalit nila ako. Ipinapakita nila sa akin ang patuloy nilang pagsamba sa kanilang mga dios-diosan sa pamamagitan_ ng paghahandog sa mga halamanan at pagsusunog ng mga insenso sa bubong ng kanilang mga bahay. 
+Ginagalit nila ako. Ipinapakita nila sa akin ang patuloy nilang pagsamba sa kanilang mga dios-diosan sa pamamagitan ng paghahandog sa mga halamanan at pagsusunog ng mga insenso sa bubong ng kanilang mga bahay. 
 
 
 
@@ -469,7 +469,7 @@ Ang inyong mga pangalan ay susumpain ng aking mga pinili, at ako, ang Panginoong
 
 
 
-Ang sinumang magsasabi ng pagpapala o manunumpa sa lupain ng Israel_, gagawin niya ito sa pangalan ko – ang Dios na tapat. Sapagkat kakalimutan ko na ang mga nagdaang hirap, at itoʼy papawiin ko na sa aking paningin. 
+Ang sinumang magsasabi ng pagpapala o manunumpa sa lupain ng Israel, gagawin niya ito sa pangalan ko – ang Dios na tapat. Sapagkat kakalimutan ko na ang mga nagdaang hirap, at itoʼy papawiin ko na sa aking paningin. 
 
 
 

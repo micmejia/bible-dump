@@ -9,7 +9,7 @@ up: ['James']
 
 
 ###### 1 
-Come now, _you_ rich, weep and howl for your miseries that are coming upon _you!_ 
+Come now, you rich, weep and howl for your miseries that are coming upon you! 
 
 ###### 2 
 Your riches are corrupted, and your garments are moth-eaten. 
@@ -29,7 +29,7 @@ You have condemned, you have murdered the just; he does not resist you.
 ## Be Patient and Persevering 
 
 ###### 7 
-Therefore be patient, brethren, until the coming of the Lord. See _how_ the farmer waits for the precious fruit of the earth, waiting patiently for it until it receives the early and latter rain. 
+Therefore be patient, brethren, until the coming of the Lord. See how the farmer waits for the precious fruit of the earth, waiting patiently for it until it receives the early and latter rain. 
 
 ###### 8 
 You also be patient. Establish your hearts, for the coming of the Lord is at hand. 
@@ -41,10 +41,10 @@ Do not grumble against one another, brethren, lest you be condemned. Behold, the
 My brethren, take the prophets, who spoke in the name of the Lord, as an example of suffering and patience. 
 
 ###### 11 
-Indeed we count them blessed who endure. You have heard of the perseverance of Job and seen the end _intended by_ the Lord--that the Lord is very compassionate and merciful. 
+Indeed we count them blessed who endure. You have heard of the perseverance of Job and seen the end intended by the Lord--that the Lord is very compassionate and merciful. 
 
 ###### 12 
-But above all, my brethren, do not swear, either by heaven or by earth or with any other oath. But let your "Yes" be "Yes," and _your_ "No," "No," lest you fall into judgment.
+But above all, my brethren, do not swear, either by heaven or by earth or with any other oath. But let your "Yes" be "Yes," and your "No," "No," lest you fall into judgment.
 
 ## Meeting Specific Needs 
 
@@ -58,7 +58,7 @@ Is anyone among you sick? Let him call for the elders of the church, and let the
 And the prayer of faith will save the sick, and the Lord will raise him up. And if he has committed sins, he will be forgiven. 
 
 ###### 16 
-Confess _your_ trespasses to one another, and pray for one another, that you may be healed. The effective, fervent prayer of a righteous man avails much. 
+Confess your trespasses to one another, and pray for one another, that you may be healed. The effective, fervent prayer of a righteous man avails much. 
 
 ###### 17 
 Elijah was a man with a nature like ours, and he prayed earnestly that it would not rain; and it did not rain on the land for three years and six months. 

@@ -73,7 +73,7 @@ Ang tanong ko ngayon, itinakwil na ba ng Dios ang mga taong pinili niya? Aba, hi
 
 
 
-Hindi itinakwil ng Dios ang kanyang mga mamamayan na sa simula paʼy pinili na niya. Hindi nʼyo ba natatandaan ang sinasabi sa Kasulatan nang ireklamo ni Propeta_ Elias sa Dios ang mga Israelita? 
+Hindi itinakwil ng Dios ang kanyang mga mamamayan na sa simula paʼy pinili na niya. Hindi nʼyo ba natatandaan ang sinasabi sa Kasulatan nang ireklamo ni Propeta Elias sa Dios ang mga Israelita? 
 
 
 
@@ -106,7 +106,7 @@ Hindi itinakwil ng Dios ang kanyang mga mamamayan na sa simula paʼy pinili na n
 
 
 
-Ang sabi ni Elias,_ "Panginoon, pinatay po nila ang inyong mga propeta at winasak ang inyong mga altar. Ako na lang po ang natitira at gusto pa nila akong patayin." 
+Ang sabi ni Elias, "Panginoon, pinatay po nila ang inyong mga propeta at winasak ang inyong mga altar. Ako na lang po ang natitira at gusto pa nila akong patayin." 
 
 
 
@@ -139,7 +139,7 @@ Ang sabi ni Elias,_ "Panginoon, pinatay po nila ang inyong mga propeta at winasa
 
 
 
-Pero ano ang isinagot sa kanya ng Dios? "Nagtira ako ng 7,000 Israelitang_ hindi sumasamba sa dios-diosang si_ Baal." 
+Pero ano ang isinagot sa kanya ng Dios? "Nagtira ako ng 7,000 Israelitang hindi sumasamba sa dios-diosang si Baal." 
 
 
 
@@ -172,7 +172,7 @@ Pero ano ang isinagot sa kanya ng Dios? "Nagtira ako ng 7,000 Israelitang_ hindi
 
 
 
-Ganyan din ngayon, may mga natitira pang mga Israelita na tapat sa Dios, na_ pinili niya dahil sa kanyang biyaya. 
+Ganyan din ngayon, may mga natitira pang mga Israelita na tapat sa Dios, na pinili niya dahil sa kanyang biyaya. 
 
 
 
@@ -205,7 +205,7 @@ Ganyan din ngayon, may mga natitira pang mga Israelita na tapat sa Dios, na_ pin
 
 
 
-Ngayon, kung ang pagkapili sa kanila ay dahil sa kanyang biyaya, hindi na ito nakasalalay sa kanilang mabubuting_ gawa. Sapagkat kung nakasalalay sa mabubuting_ gawa, hindi na ito biyaya. 
+Ngayon, kung ang pagkapili sa kanila ay dahil sa kanyang biyaya, hindi na ito nakasalalay sa kanilang mabubuting gawa. Sapagkat kung nakasalalay sa mabubuting gawa, hindi na ito biyaya. 
 
 
 
@@ -238,7 +238,7 @@ Ngayon, kung ang pagkapili sa kanila ay dahil sa kanyang biyaya, hindi na ito na
 
 
 
-Ngayon, masasabi natin na hindi nakamtan ng mga Israelita ang kanilang ninanais na maituring silang matuwid ng Dios_. Ang mga pinili ng Dios ang siyang nagkamit nito, pero ang karamihan ay pinatigas ang ulo. 
+Ngayon, masasabi natin na hindi nakamtan ng mga Israelita ang kanilang ninanais na maituring silang matuwid ng Dios. Ang mga pinili ng Dios ang siyang nagkamit nito, pero ang karamihan ay pinatigas ang ulo. 
 
 
 
@@ -271,7 +271,7 @@ Ngayon, masasabi natin na hindi nakamtan ng mga Israelita ang kanilang ninanais 
 
 
 
-Gaya nga ng sinasabi sa Kasulatan, "Ginawa silang manhid ng Dios at hanggang ngayon ay para silang mga bulag o bingi sa katotohanan_." 
+Gaya nga ng sinasabi sa Kasulatan, "Ginawa silang manhid ng Dios at hanggang ngayon ay para silang mga bulag o bingi sa katotohanan." 
 
 
 
@@ -304,7 +304,7 @@ Gaya nga ng sinasabi sa Kasulatan, "Ginawa silang manhid ng Dios at hanggang nga
 
 
 
-Sinabi rin ni David tungkol sa kanila_: "Ang kanilang mga handog sana ang magdala sa kanila ng kapahamakan, kasiraan, at kaparusahan. 
+Sinabi rin ni David tungkol sa kanila: "Ang kanilang mga handog sana ang magdala sa kanila ng kapahamakan, kasiraan, at kaparusahan. 
 
 
 
@@ -337,7 +337,7 @@ Sinabi rin ni David tungkol sa kanila_: "Ang kanilang mga handog sana ang magdal
 
 
 
-Mabulag sana sila at magkandakuba sa bigat ng kanilang mga papasanin_." 
+Mabulag sana sila at magkandakuba sa bigat ng kanilang mga papasanin." 
 
 
 
@@ -370,7 +370,7 @@ Mabulag sana sila at magkandakuba sa bigat ng kanilang mga papasanin_."
 
 
 
-Natisod ang mga Judio dahil hindi sila sumampalataya kay Cristo_. Ibig bang sabihin, tuluyan na silang mapapahamak? Hindi! Pero dahil sa paglabag nila, nabigyan ng pagkakataon ang mga hindi Judio na maligtas. At dahil dito, maiinggit ang mga Judio. 
+Natisod ang mga Judio dahil hindi sila sumampalataya kay Cristo. Ibig bang sabihin, tuluyan na silang mapapahamak? Hindi! Pero dahil sa paglabag nila, nabigyan ng pagkakataon ang mga hindi Judio na maligtas. At dahil dito, maiinggit ang mga Judio. 
 
 
 
@@ -403,7 +403,7 @@ Natisod ang mga Judio dahil hindi sila sumampalataya kay Cristo_. Ibig bang sabi
 
 
 
-Ngayon, kung ang paglabag at pagkabigong ito ng mga Judio ay nagdulot ng malaking pagpapala sa mga hindi Judio sa buong mundo, gaano pa kaya kalaki ang pagpapalang maidudulot kung makumpleto na ang buong bilang ng mga Judio na sasampalataya kay Cristo_.
+Ngayon, kung ang paglabag at pagkabigong ito ng mga Judio ay nagdulot ng malaking pagpapala sa mga hindi Judio sa buong mundo, gaano pa kaya kalaki ang pagpapalang maidudulot kung makumpleto na ang buong bilang ng mga Judio na sasampalataya kay Cristo.
 
 ## Ang Kaligtasan ng mga Hindi Judio 
 
@@ -471,7 +471,7 @@ Ngayon, ito naman ang sasabihin ko sa inyong mga hindi Judio: Ginawa akong apost
 
 
 
-Baka sakaling sa pamamagitan nito ay magawa kong inggitin ang mga kapwa ko Judio para sumampalataya_ ang ilan sa kanila at maligtas. 
+Baka sakaling sa pamamagitan nito ay magawa kong inggitin ang mga kapwa ko Judio para sumampalataya ang ilan sa kanila at maligtas. 
 
 
 
@@ -504,7 +504,7 @@ Baka sakaling sa pamamagitan nito ay magawa kong inggitin ang mga kapwa ko Judio
 
 
 
-Kung ang pagtakwil ng Dios sa mga Judio ang naging daan para makalapit sa kanya ang ibang mga tao sa_ mundo, hindi baʼt lalo pang malaking kabutihan ang maidudulot kung ang mga Judio ay muling tanggapin ng Dios? Sila ay para na ring muling binuhay. 
+Kung ang pagtakwil ng Dios sa mga Judio ang naging daan para makalapit sa kanya ang ibang mga tao sa mundo, hindi baʼt lalo pang malaking kabutihan ang maidudulot kung ang mga Judio ay muling tanggapin ng Dios? Sila ay para na ring muling binuhay. 
 
 
 
@@ -537,7 +537,7 @@ Kung ang pagtakwil ng Dios sa mga Judio ang naging daan para makalapit sa kanya 
 
 
 
-Maihahambing natin ang mga Judio sa isang tinapay._ Kung inihandog sa Dios ang bahagi ng tinapay, ganoon na rin ang buong tinapay. At kung inihandog sa Dios ang ugat ng isang puno, ganoon na rin ang mga sanga nito. 
+Maihahambing natin ang mga Judio sa isang tinapay. Kung inihandog sa Dios ang bahagi ng tinapay, ganoon na rin ang buong tinapay. At kung inihandog sa Dios ang ugat ng isang puno, ganoon na rin ang mga sanga nito. 
 
 
 
@@ -603,7 +603,7 @@ Ang mga Judio ay tulad sa isang puno ng olibo na pinutol ang ilang mga sanga. At
 
 
 
-Pero huwag kayong magmalaki na mas mabuti kayo sa mga sangang pinutol. Alalahanin ninyong mga sanga lang kayo_; hindi kayo ang bumubuhay sa ugat kundi ang ugat ang bumubuhay sa inyo. 
+Pero huwag kayong magmalaki na mas mabuti kayo sa mga sangang pinutol. Alalahanin ninyong mga sanga lang kayo; hindi kayo ang bumubuhay sa ugat kundi ang ugat ang bumubuhay sa inyo. 
 
 
 
@@ -669,7 +669,7 @@ Maaaring sabihin ninyo, "Pinutol sila para maikabit kami."
 
 
 
-Totoo iyan. Pinutol sila dahil hindi sila sumampalataya kay Cristo_, at kayo naman ay ikinabit dahil sumampalataya kayo. Kaya huwag kayong magmataas, sa halip ay magkaroon kayo ng takot. 
+Totoo iyan. Pinutol sila dahil hindi sila sumampalataya kay Cristo, at kayo naman ay ikinabit dahil sumampalataya kayo. Kaya huwag kayong magmataas, sa halip ay magkaroon kayo ng takot. 
 
 
 
@@ -836,7 +836,7 @@ Sapagkat kung kayong mga sanga ng olibong ligaw ay naidugtong niya sa olibong in
 
 
 
-Mga kapatid, nais kong malaman ninyo ang isang katotohanan na ngayon ko lang ihahayag sa inyo, para hindi maging mataas ang tingin nʼyo sa inyong sarili. Ang pagmamatigas ng mga Judio ay hindi panghabang panahon. Itoʼy hanggang makumpleto lang ang kabuuang bilang ng mga hindi Judio na sasampalataya kay Cristo_. 
+Mga kapatid, nais kong malaman ninyo ang isang katotohanan na ngayon ko lang ihahayag sa inyo, para hindi maging mataas ang tingin nʼyo sa inyong sarili. Ang pagmamatigas ng mga Judio ay hindi panghabang panahon. Itoʼy hanggang makumpleto lang ang kabuuang bilang ng mga hindi Judio na sasampalataya kay Cristo. 
 
 
 
@@ -1135,7 +1135,7 @@ Napakadakila ng kabutihan ng Dios! Napakalalim ng kanyang karunungan at kaalaman
 
 
 
-Gaya nga ng sinasabi sa Kasulatan:_ "Sino kaya ang makakaunawa sa kaisipan ng Panginoon? Sino kaya ang makakapagpayo sa kanya? 
+Gaya nga ng sinasabi sa Kasulatan: "Sino kaya ang makakaunawa sa kaisipan ng Panginoon? Sino kaya ang makakapagpayo sa kanya? 
 
 
 

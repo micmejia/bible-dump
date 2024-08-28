@@ -13,7 +13,7 @@ next: ['Rom 16']
 We then who are strong ought to bear with the scruples of the weak, and not to please ourselves. 
 
 ###### 2 
-Let each of us please _his_ neighbor for _his_ good, leading to edification. 
+Let each of us please his neighbor for his good, leading to edification. 
 
 ###### 3 
 For even Christ did not please Himself; but as it is written, "The reproaches of those who reproached You fell on Me." 
@@ -25,7 +25,7 @@ For whatever things were written before were written for our learning, that we t
 Now may the God of patience and comfort grant you to be like-minded toward one another, according to Christ Jesus, 
 
 ###### 6 
-that you may with one mind _and_ one mouth glorify the God and Father of our Lord Jesus Christ.
+that you may with one mind and one mouth glorify the God and Father of our Lord Jesus Christ.
 
 ## Glorify God Together 
 
@@ -33,10 +33,10 @@ that you may with one mind _and_ one mouth glorify the God and Father of our Lor
 Therefore receive one another, just as Christ also received us, to the glory of God. 
 
 ###### 8 
-Now I say that Jesus Christ has become a servant to the circumcision for the truth of God, to confirm the promises _made_ to the fathers, 
+Now I say that Jesus Christ has become a servant to the circumcision for the truth of God, to confirm the promises made to the fathers, 
 
 ###### 9 
-and that the Gentiles might glorify God for _His_ mercy, as it is written: "For this reason I will confess to You among the Gentiles, And sing to Your name." 
+and that the Gentiles might glorify God for His mercy, as it is written: "For this reason I will confess to You among the Gentiles, And sing to Your name." 
 
 ###### 10 
 And again he says: "Rejoice, O Gentiles, with His people!" 
@@ -56,13 +56,13 @@ Now may the God of hope fill you with all joy and peace in believing, that you m
 Now I myself am confident concerning you, my brethren, that you also are full of goodness, filled with all knowledge, able also to admonish one another. 
 
 ###### 15 
-Nevertheless, brethren, I have written more boldly to you on _some_ points, as reminding you, because of the grace given to me by God, 
+Nevertheless, brethren, I have written more boldly to you on some points, as reminding you, because of the grace given to me by God, 
 
 ###### 16 
 that I might be a minister of Jesus Christ to the Gentiles, ministering the gospel of God, that the offering of the Gentiles might be acceptable, sanctified by the Holy Spirit. 
 
 ###### 17 
-Therefore I have reason to glory in Christ Jesus in the things _which pertain_ to God. 
+Therefore I have reason to glory in Christ Jesus in the things which pertain to God. 
 
 ###### 18 
 For I will not dare to speak of any of those things which Christ has not accomplished through me, in word and deed, to make the Gentiles obedient-- 
@@ -83,7 +83,7 @@ For this reason I also have been much hindered from coming to you.
 But now no longer having a place in these parts, and having a great desire these many years to come to you, 
 
 ###### 24 
-whenever I journey to Spain, I shall come to you. For I hope to see you on my journey, and to be helped on my way there by you, if first I may enjoy your _company_ for a while. 
+whenever I journey to Spain, I shall come to you. For I hope to see you on my journey, and to be helped on my way there by you, if first I may enjoy your company for a while. 
 
 ###### 25 
 But now I am going to Jerusalem to minister to the saints. 
@@ -110,4 +110,4 @@ that I may be delivered from those in Judea who do not believe, and that my serv
 that I may come to you with joy by the will of God, and may be refreshed together with you. 
 
 ###### 33 
-Now the God of peace _be_ with you all. Amen.
+Now the God of peace be with you all. Amen.

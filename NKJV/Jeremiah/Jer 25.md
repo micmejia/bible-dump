@@ -10,16 +10,16 @@ next: ['Jer 26']
 
 
 ###### 1 
-The word that came to Jeremiah concerning all the people of Judah, in the fourth year of Jehoiakim the son of Josiah, king of Judah (which _was_ the first year of Nebuchadnezzar king of Babylon), 
+The word that came to Jeremiah concerning all the people of Judah, in the fourth year of Jehoiakim the son of Josiah, king of Judah (which was the first year of Nebuchadnezzar king of Babylon), 
 
 ###### 2 
 which Jeremiah the prophet spoke to all the people of Judah and to all the inhabitants of Jerusalem, saying: 
 
 ###### 3 
-"From the thirteenth year of Josiah the son of Amon, king of Judah, even to this day, this _is_ the twenty-third year in which the word of the Lord has come to me; and I have spoken to you, rising early and speaking, but you have not listened. 
+"From the thirteenth year of Josiah the son of Amon, king of Judah, even to this day, this is the twenty-third year in which the word of the Lord has come to me; and I have spoken to you, rising early and speaking, but you have not listened. 
 
 ###### 4 
-And the Lord has sent to you all His servants the prophets, rising early and sending _them,_ but you have not listened nor inclined your ear to hear. 
+And the Lord has sent to you all His servants the prophets, rising early and sending them, but you have not listened nor inclined your ear to hear. 
 
 ###### 5 
 They said, 'Repent now everyone of his evil way and his evil doings, and dwell in the land that the Lord has given to you and your fathers forever and ever. 
@@ -40,10 +40,10 @@ behold, I will send and take all the families of the north,' says the Lord, 'and
 Moreover I will take from them the voice of mirth and the voice of gladness, the voice of the bridegroom and the voice of the bride, the sound of the millstones and the light of the lamp. 
 
 ###### 11 
-And this whole land shall be a desolation _and_ an astonishment, and these nations shall serve the king of Babylon seventy years. 
+And this whole land shall be a desolation and an astonishment, and these nations shall serve the king of Babylon seventy years. 
 
 ###### 12 
-'Then it will come to pass, when seventy years are completed, _that_ I will punish the king of Babylon and that nation, the land of the Chaldeans, for their iniquity,' says the Lord; 'and I will make it a perpetual desolation. 
+'Then it will come to pass, when seventy years are completed, that I will punish the king of Babylon and that nation, the land of the Chaldeans, for their iniquity,' says the Lord; 'and I will make it a perpetual desolation. 
 
 ###### 13 
 So I will bring on that land all My words which I have pronounced against it, all that is written in this book, which Jeremiah has prophesied concerning all the nations. 
@@ -61,7 +61,7 @@ And they will drink and stagger and go mad because of the sword that I will send
 Then I took the cup from the Lord's hand, and made all the nations drink, to whom the Lord had sent me: 
 
 ###### 18 
-Jerusalem and the cities of Judah, its kings and its princes, to make them a desolation, an astonishment, a hissing, and a curse, as _it is_ this day; 
+Jerusalem and the cities of Judah, its kings and its princes, to make them a desolation, an astonishment, a hissing, and a curse, as it is this day; 
 
 ###### 19 
 Pharaoh king of Egypt, his servants, his princes, and all his people; 
@@ -73,10 +73,10 @@ all the mixed multitude, all the kings of the land of Uz, all the kings of the l
 Edom, Moab, and the people of Ammon; 
 
 ###### 22 
-all the kings of Tyre, all the kings of Sidon, and the kings of the coastlands which _are_ across the sea; 
+all the kings of Tyre, all the kings of Sidon, and the kings of the coastlands which are across the sea; 
 
 ###### 23 
-Dedan, Tema, Buz, and all _who are_ in the farthest corners; 
+Dedan, Tema, Buz, and all who are in the farthest corners; 
 
 ###### 24 
 all the kings of Arabia and all the kings of the mixed multitude who dwell in the desert; 
@@ -85,7 +85,7 @@ all the kings of Arabia and all the kings of the mixed multitude who dwell in th
 all the kings of Zimri, all the kings of Elam, and all the kings of the Medes; 
 
 ###### 26 
-all the kings of the north, far and near, one with another; and all the kingdoms of the world which _are_ on the face of the earth. Also the king of Sheshach shall drink after them. 
+all the kings of the north, far and near, one with another; and all the kingdoms of the world which are on the face of the earth. Also the king of Sheshach shall drink after them. 
 
 ###### 27 
 "Therefore you shall say to them, 'Thus says the Lord of hosts, the God of Israel: "Drink, be drunk, and vomit! Fall and rise no more, because of the sword which I will send among you." ' 
@@ -97,25 +97,25 @@ And it shall be, if they refuse to take the cup from your hand to drink, then yo
 For behold, I begin to bring calamity on the city which is called by My name, and should you be utterly unpunished? You shall not be unpunished, for I will call for a sword on all the inhabitants of the earth," says the Lord of hosts.' 
 
 ###### 30 
-"Therefore prophesy against them all these words, and say to them: 'The Lord will roar from on high, And utter His voice from His holy habitation; He will roar mightily against His fold. He will give a shout, as those who tread _the grapes,_ Against all the inhabitants of the earth. 
+"Therefore prophesy against them all these words, and say to them: 'The Lord will roar from on high, And utter His voice from His holy habitation; He will roar mightily against His fold. He will give a shout, as those who tread the grapes, Against all the inhabitants of the earth. 
 
 ###### 31 
-A noise will come to the ends of the earth-- For the Lord has a controversy with the nations; He will plead His case with all flesh. He will give those _who are_ wicked to the sword,' says the Lord." 
+A noise will come to the ends of the earth-- For the Lord has a controversy with the nations; He will plead His case with all flesh. He will give those who are wicked to the sword,' says the Lord." 
 
 ###### 32 
 Thus says the Lord of hosts: "Behold, disaster shall go forth From nation to nation, And a great whirlwind shall be raised up From the farthest parts of the earth. 
 
 ###### 33 
-And at that day the slain of the Lord shall be from _one_ end of the earth even to the _other_ end of the earth. They shall not be lamented, or gathered, or buried; they shall become refuse on the ground. 
+And at that day the slain of the Lord shall be from one end of the earth even to the other end of the earth. They shall not be lamented, or gathered, or buried; they shall become refuse on the ground. 
 
 ###### 34 
-"Wail, shepherds, and cry! Roll about _in the ashes,_ You leaders of the flock! For the days of your slaughter and your dispersions are fulfilled; You shall fall like a precious vessel. 
+"Wail, shepherds, and cry! Roll about in the ashes, You leaders of the flock! For the days of your slaughter and your dispersions are fulfilled; You shall fall like a precious vessel. 
 
 ###### 35 
 And the shepherds will have no way to flee, Nor the leaders of the flock to escape. 
 
 ###### 36 
-A voice of the cry of the shepherds, And a wailing of the leaders to the flock _will be heard._ For the Lord has plundered their pasture, 
+A voice of the cry of the shepherds, And a wailing of the leaders to the flock will be heard. For the Lord has plundered their pasture, 
 
 ###### 37 
 And the peaceful dwellings are cut down Because of the fierce anger of the Lord. 

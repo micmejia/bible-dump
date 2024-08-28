@@ -138,7 +138,7 @@ Pagkatapos, umalis si Solomon at ang lahat ng tao papuntang sambahan sa matataas
 
 
 
-Nang panahong iyon, nailipat na ni David ang Kahon ng Kasunduan_ ng Dios mula sa Kiriat Jearim papunta sa toldang inihanda niya para rito, doon sa Jerusalem. 
+Nang panahong iyon, nailipat na ni David ang Kahon ng Kasunduan ng Dios mula sa Kiriat Jearim papunta sa toldang inihanda niya para rito, doon sa Jerusalem. 
 
 
 
@@ -171,7 +171,7 @@ Nang panahong iyon, nailipat na ni David ang Kahon ng Kasunduan_ ng Dios mula sa
 
 
 
-Ngunit ang tansong altar na ginawa ni Bezalel na anak ni Uri at apo ni Hur ay naroon pa sa Gibeon sa_ harap ng Tolda ng Panginoon. Kaya doon nagtipon si Solomon at ang lahat ng tao para magtanong sa Panginoon. 
+Ngunit ang tansong altar na ginawa ni Bezalel na anak ni Uri at apo ni Hur ay naroon pa sa Gibeon sa harap ng Tolda ng Panginoon. Kaya doon nagtipon si Solomon at ang lahat ng tao para magtanong sa Panginoon. 
 
 
 
@@ -503,7 +503,7 @@ Nakapagtipon si Solomon ng 1,400 karwahe at 12,000 kabayo. Inilagay niya ang iba
 
 
 
-Nang panahong siya ang hari, ang pilak at ginto sa Jerusalem ay parang ordinaryong_ mga bato lang, at ang kahoy na sedro ay kasindami ng ordinaryong mga_ kahoy na sikomoro sa mga kaburulan sa kanluran. 
+Nang panahong siya ang hari, ang pilak at ginto sa Jerusalem ay parang ordinaryong mga bato lang, at ang kahoy na sedro ay kasindami ng ordinaryong mga kahoy na sikomoro sa mga kaburulan sa kanluran. 
 
 
 

@@ -7,7 +7,7 @@ next: ['Judg 17']
 # Judges 16
 
 ***
-###### 1-2 Isang araw, pumunta si Samson sa Gaza na isang lungsod ng Filisteo_. May nakilala siya roon na isang babaeng bayaran, at sumiping siya sa babaeng iyon. Nalaman ng mga taga-Gaza na naroon si Samson, kaya pinalibutan nila ang lungsod at binantayan ang pintuan ng lungsod buong gabi. Hindi sila lumusob nang gabing iyon. Nagpasya sila na papatayin nila si Samson nang madaling-araw. 
+###### 1-2 Isang araw, pumunta si Samson sa Gaza na isang lungsod ng Filisteo. May nakilala siya roon na isang babaeng bayaran, at sumiping siya sa babaeng iyon. Nalaman ng mga taga-Gaza na naroon si Samson, kaya pinalibutan nila ang lungsod at binantayan ang pintuan ng lungsod buong gabi. Hindi sila lumusob nang gabing iyon. Nagpasya sila na papatayin nila si Samson nang madaling-araw. 
 
 
 

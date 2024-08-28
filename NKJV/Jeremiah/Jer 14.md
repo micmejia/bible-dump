@@ -16,7 +16,7 @@ The word of the Lord that came to Jeremiah concerning the droughts.
 "Judah mourns, And her gates languish; They mourn for the land, And the cry of Jerusalem has gone up. 
 
 ###### 3 
-Their nobles have sent their lads for water; They went to the cisterns _and_ found no water. They returned with their vessels empty; They were ashamed and confounded And covered their heads. 
+Their nobles have sent their lads for water; They went to the cisterns and found no water. They returned with their vessels empty; They were ashamed and confounded And covered their heads. 
 
 ###### 4 
 Because the ground is parched, For there was no rain in the land, The plowmen were ashamed; They covered their heads. 
@@ -25,22 +25,22 @@ Because the ground is parched, For there was no rain in the land, The plowmen we
 Yes, the deer also gave birth in the field, But left because there was no grass. 
 
 ###### 6 
-And the wild donkeys stood in the desolate heights; They sniffed at the wind like jackals; Their eyes failed because _there was_ no grass." 
+And the wild donkeys stood in the desolate heights; They sniffed at the wind like jackals; Their eyes failed because there was no grass." 
 
 ###### 7 
 O Lord, though our iniquities testify against us, Do it for Your name's sake; For our backslidings are many, We have sinned against You. 
 
 ###### 8 
-O the Hope of Israel, his Savior in time of trouble, Why should You be like a stranger in the land, And like a traveler _who_ turns aside to tarry for a night? 
+O the Hope of Israel, his Savior in time of trouble, Why should You be like a stranger in the land, And like a traveler who turns aside to tarry for a night? 
 
 ###### 9 
-Why should You be like a man astonished, Like a mighty one _who_ cannot save? Yet You, O Lord, _are_ in our midst, And we are called by Your name; Do not leave us! 
+Why should You be like a man astonished, Like a mighty one who cannot save? Yet You, O Lord, are in our midst, And we are called by Your name; Do not leave us! 
 
 ###### 10 
 Thus says the Lord to this people: "Thus they have loved to wander; They have not restrained their feet. Therefore the Lord does not accept them; He will remember their iniquity now, And punish their sins." 
 
 ###### 11 
-Then the Lord said to me, "Do not pray for this people, for _their_ good. 
+Then the Lord said to me, "Do not pray for this people, for their good. 
 
 ###### 12 
 When they fast, I will not hear their cry; and when they offer burnt offering and grain offering, I will not accept them. But I will consume them by the sword, by the famine, and by the pestilence." 
@@ -64,13 +64,13 @@ And the people to whom they prophesy shall be cast out in the streets of Jerusal
 If I go out to the field, Then behold, those slain with the sword! And if I enter the city, Then behold, those sick from famine! Yes, both prophet and priest go about in a land they do not know.' " ## The People Plead for Mercy 
 
 ###### 19 
-Have You utterly rejected Judah? Has Your soul loathed Zion? Why have You stricken us so that _there is_ no healing for us? We looked for peace, but _there was_ no good; And for the time of healing, and there was trouble. 
+Have You utterly rejected Judah? Has Your soul loathed Zion? Why have You stricken us so that there is no healing for us? We looked for peace, but there was no good; And for the time of healing, and there was trouble. 
 
 ###### 20 
-We acknowledge, O Lord, our wickedness _And_ the iniquity of our fathers, For we have sinned against You. 
+We acknowledge, O Lord, our wickedness And the iniquity of our fathers, For we have sinned against You. 
 
 ###### 21 
-Do not abhor _us,_ for Your name's sake; Do not disgrace the throne of Your glory. Remember, do not break Your covenant with us. 
+Do not abhor us, for Your name's sake; Do not disgrace the throne of Your glory. Remember, do not break Your covenant with us. 
 
 ###### 22 
-Are there any among the idols of the nations that can cause rain? Or can the heavens give showers? _Are_ You not He, O Lord our God? Therefore we will wait for You, Since You have made all these.
+Are there any among the idols of the nations that can cause rain? Or can the heavens give showers? Are You not He, O Lord our God? Therefore we will wait for You, Since You have made all these.

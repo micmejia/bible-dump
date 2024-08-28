@@ -304,7 +304,7 @@ Biglang mawawasak ang Babilonia! Ipagluksa nʼyo siya! Gamutin nʼyo ang mga sug
 
 
 
-Sinabi ng mga Israelitang naninirahan doon,_ "Sinikap naming gamutin ang Babilonia pero hindi na siya magamot. Hayaan na lang natin siya at umuwi na tayo sa mga lugar natin. Sapagkat hanggang langit na ang mga kasalanan niya kaya parurusahan na siya ng Panginoon. 
+Sinabi ng mga Israelitang naninirahan doon, "Sinikap naming gamutin ang Babilonia pero hindi na siya magamot. Hayaan na lang natin siya at umuwi na tayo sa mga lugar natin. Sapagkat hanggang langit na ang mga kasalanan niya kaya parurusahan na siya ng Panginoon. 
 
 
 
@@ -370,7 +370,7 @@ Ipinaghiganti tayo ng Panginoon. Halikayo, pumunta tayo sa Jerusalem at sabihin 
 
 
 
-Maghihiganti ang Panginoon sa Babilonia dahil sa paggiba nito sa templo niya. Hinikayat ng Panginoon ang mga hari ng Media para wasakin ang Babilonia dahil ito ang layunin niya. Sinabi niya,_ "Hasain nʼyo ang mga pana ninyo at ihanda ang mga pananggalang ninyo. 
+Maghihiganti ang Panginoon sa Babilonia dahil sa paggiba nito sa templo niya. Hinikayat ng Panginoon ang mga hari ng Media para wasakin ang Babilonia dahil ito ang layunin niya. Sinabi niya, "Hasain nʼyo ang mga pana ninyo at ihanda ang mga pananggalang ninyo. 
 
 
 
@@ -436,7 +436,7 @@ Itaas nʼyo ang watawat na sagisag ng pagsalakay sa Babilonia. Dagdagan nʼyo an
 
 
 
-O Babilonia,_ sagana ka sa tubig at sagana ka rin sa kayamanan. Pero dumating na ang wakas mo, ang araw ng kapahamakan mo. 
+O Babilonia, sagana ka sa tubig at sagana ka rin sa kayamanan. Pero dumating na ang wakas mo, ang araw ng kapahamakan mo. 
 
 
 
@@ -502,7 +502,7 @@ Sumumpa ang Panginoong Makapangyarihan sa sarili niya na sinasabi, "Ipapasalakay
 
 
 
-Nilikha ng Dios_ ang langit at ang lupa sa pamamagitan ng kapangyarihan at karunungan niya. 
+Nilikha ng Dios ang langit at ang lupa sa pamamagitan ng kapangyarihan at karunungan niya. 
 
 
 
@@ -669,7 +669,7 @@ Pero ang Dios ni Jacob ay hindi katulad ng mga iyon. Siya ang lumikha ng lahat n
 
 
 
-Sinabi ng Panginoon_, "Ikaw ang panghampas ko, ang panghampas ko sa digmaan. Sa pamamagitan mo, wawasakin ko ang mga bansa at kaharian, 
+Sinabi ng Panginoon, "Ikaw ang panghampas ko, ang panghampas ko sa digmaan. Sa pamamagitan mo, wawasakin ko ang mga bansa at kaharian, 
 
 
 
@@ -801,7 +801,7 @@ Lilipulin ko rin sa pamamagitan mo ang mga kawan at mga pastol, ang mga magbubuk
 
 
 
-"Mga mamamayan ko,_ ipapakita ko sa inyo ang paghihiganti ko sa Babilonia at sa mga mamamayan nito dahil sa lahat ng kasamaang ginawa nila sa Jerusalem. Ako,_ ang Panginoon, ang nagsasabi nito. 
+"Mga mamamayan ko, ipapakita ko sa inyo ang paghihiganti ko sa Babilonia at sa mga mamamayan nito dahil sa lahat ng kasamaang ginawa nila sa Jerusalem. Ako, ang Panginoon, ang nagsasabi nito. 
 
 
 
@@ -834,7 +834,7 @@ Lilipulin ko rin sa pamamagitan mo ang mga kawan at mga pastol, ang mga magbubuk
 
 
 
-"Kalaban kita, O Babilonia,_ ikaw na tinaguriang Bundok na Mapangwasak! Winasak mo ang buong mundo. Gagamitin ko ang kapangyarihan ko para wasakin at sunugin ka. 
+"Kalaban kita, O Babilonia, ikaw na tinaguriang Bundok na Mapangwasak! Winasak mo ang buong mundo. Gagamitin ko ang kapangyarihan ko para wasakin at sunugin ka. 
 
 
 
@@ -867,7 +867,7 @@ Lilipulin ko rin sa pamamagitan mo ang mga kawan at mga pastol, ang mga magbubuk
 
 
 
-Walang anumang batong makukuha sa iyo para gamitin sa pagtatayo ng bahay. Magiging malungkot ang kalagayan mo magpakailanman. Ako,_ ang Panginoon, ang nagsasabi nito. 
+Walang anumang batong makukuha sa iyo para gamitin sa pagtatayo ng bahay. Magiging malungkot ang kalagayan mo magpakailanman. Ako, ang Panginoon, ang nagsasabi nito. 
 
 
 
@@ -966,7 +966,7 @@ Paghandain mo ang mga hari ng Media, pati ang mga pinuno at mga tagapamahala nil
 
 
 
-"Parang taong_ nanginginig at namimilipit sa sakit ang Babilonia, dahil isasagawa ng Panginoon ang kanyang plano laban dito, na wala nang maninirahan at magiging mapanglaw na ang lugar na ito. 
+"Parang taong nanginginig at namimilipit sa sakit ang Babilonia, dahil isasagawa ng Panginoon ang kanyang plano laban dito, na wala nang maninirahan at magiging mapanglaw na ang lugar na ito. 
 
 
 
@@ -999,7 +999,7 @@ Paghandain mo ang mga hari ng Media, pati ang mga pinuno at mga tagapamahala nil
 
 
 
-Titigil ang mga sundalo ng Babilonia sa pakikipaglaban at mananatili na lang sila sa kanilang kampo. Manghihina sila na parang mahihinang_ babae. Masusunog ang mga bahay sa Babilonia at masisira ang mga pintuan. 
+Titigil ang mga sundalo ng Babilonia sa pakikipaglaban at mananatili na lang sila sa kanilang kampo. Manghihina sila na parang mahihinang babae. Masusunog ang mga bahay sa Babilonia at masisira ang mga pintuan. 
 
 
 
@@ -1527,7 +1527,7 @@ Darating ang panahon na parurusahan ko ang mga dios-diosan ng Babilonia. Mapapah
 
 
 
-At kapag nangyari iyon, sisigaw sa kagalakan ang langit at ang lupa, at ang lahat ng nandito dahil sa pagkawasak ng Babilonia. Sapagkat sasalakayin ito ng mga mangwawasak mula sa hilaga. Ako,_ ang Panginoon, ang nagsasabi nito. 
+At kapag nangyari iyon, sisigaw sa kagalakan ang langit at ang lupa, at ang lahat ng nandito dahil sa pagkawasak ng Babilonia. Sapagkat sasalakayin ito ng mga mangwawasak mula sa hilaga. Ako, ang Panginoon, ang nagsasabi nito. 
 
 
 
@@ -1694,7 +1694,7 @@ Pero darating ang araw na parurusahan ko ang mga dios-diosan ng Babilonia. At an
 
 
 
-Kahit na umabot pa sa langit ang mga pader ng Babilonia at kahit tibayan pa nila ito nang husto, magpapadala pa rin ako ng wawasak dito. Ako,_ ang Panginoon, ang nagsasabi nito. 
+Kahit na umabot pa sa langit ang mga pader ng Babilonia at kahit tibayan pa nila ito nang husto, magpapadala pa rin ako ng wawasak dito. Ako, ang Panginoon, ang nagsasabi nito. 
 
 
 
@@ -1826,7 +1826,7 @@ Darating ang mga wawasak ng Babilonia at bibihagin ang mga kawal niya, at mababa
 
 
 
-Lalasingin ko ang kanyang mga tagapamahala, marurunong, mga pinuno, mga punong sundalo at ang buong hukbo niya. Mahihimbing sila at hindi na magigising habang panahon. Ako_, ang Hari na nagsasabi nito. Panginoong Makapangyarihan ang pangalan ko." 
+Lalasingin ko ang kanyang mga tagapamahala, marurunong, mga pinuno, mga punong sundalo at ang buong hukbo niya. Mahihimbing sila at hindi na magigising habang panahon. Ako, ang Hari na nagsasabi nito. Panginoong Makapangyarihan ang pangalan ko." 
 
 
 
@@ -2024,7 +2024,7 @@ Pagkatapos ay manalangin ka, 'O Panginoon, sinabi nʼyo po na wawasakin nʼyo an
 
 
 
-Pagkabasa mo nito, talian mo ito ng bato at ihagis sa Ilog ng_ Eufrates. 
+Pagkabasa mo nito, talian mo ito ng bato at ihagis sa Ilog ng Eufrates. 
 
 
 

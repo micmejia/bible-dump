@@ -205,7 +205,7 @@ Hinabol sila mula sa pintuan ng lungsod hanggang sa Shebarim, at 36 ang napatay 
 
 
 
-Dahil sa lungkot,_ pinunit ni Josue at ng mga tagapamahala ng Israel ang mga damit nila, at nilagyan ng alikabok ang mga ulo nila, at nagpatirapa sila sa harapan ng Kahon ng Kasunduan ng Panginoon hanggang sa gumabi. 
+Dahil sa lungkot, pinunit ni Josue at ng mga tagapamahala ng Israel ang mga damit nila, at nilagyan ng alikabok ang mga ulo nila, at nagpatirapa sila sa harapan ng Kahon ng Kasunduan ng Panginoon hanggang sa gumabi. 
 
 
 
@@ -238,7 +238,7 @@ Dahil sa lungkot,_ pinunit ni Josue at ng mga tagapamahala ng Israel ang mga dam
 
 
 
-Sinabi ni Josue, "O Panginoong Dios, bakit nʼyo pa po kami pinatawid sa Ilog ng_ Jordan kung ipapatalo nʼyo rin lang naman kami sa mga Amoreo? Mabuti pang nanatili na lang kami sa kabila ng Jordan. 
+Sinabi ni Josue, "O Panginoong Dios, bakit nʼyo pa po kami pinatawid sa Ilog ng Jordan kung ipapatalo nʼyo rin lang naman kami sa mga Amoreo? Mabuti pang nanatili na lang kami sa kabila ng Jordan. 
 
 
 

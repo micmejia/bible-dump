@@ -40,7 +40,7 @@ next: ['Mark 16']
 
 
 
-Kinaumagahan, nagpulong agad ang mga namamahalang pari, mga pinuno ng mga Judio, mga tagapagturo ng Kautusan at ang lahat ng miyembro ng Korte ng mga Judio. Ginapos nila si Jesus at dinala kay Gobernador_ Pilato. 
+Kinaumagahan, nagpulong agad ang mga namamahalang pari, mga pinuno ng mga Judio, mga tagapagturo ng Kautusan at ang lahat ng miyembro ng Korte ng mga Judio. Ginapos nila si Jesus at dinala kay Gobernador Pilato. 
 
 
 
@@ -73,7 +73,7 @@ Kinaumagahan, nagpulong agad ang mga namamahalang pari, mga pinuno ng mga Judio,
 
 
 
-Nang naroon na sila,_ tinanong siya ni Pilato, "Ikaw nga ba ang hari ng mga Judio?" Sumagot si Jesus, "Kayo na ang nagsasabi." 
+Nang naroon na sila, tinanong siya ni Pilato, "Ikaw nga ba ang hari ng mga Judio?" Sumagot si Jesus, "Kayo na ang nagsasabi." 
 
 
 
@@ -207,7 +207,7 @@ Pero hindi pa rin sumagot si Jesus, kaya nagtaka si Pilato.
 
 
 
-Tuwing Pista ng Paglampas ng Anghel_, nakaugalian na ni Pilato na magpalaya ng isang bilanggo na gustong palayain ng mga tao. 
+Tuwing Pista ng Paglampas ng Anghel, nakaugalian na ni Pilato na magpalaya ng isang bilanggo na gustong palayain ng mga tao. 
 
 
 
@@ -504,7 +504,7 @@ Sinabi ni Pilato sa kanila, "Bakit, ano ba ang ginawa niyang kasalanan?" Pero la
 
 
 
-Dahil gustong pagbigyan ni Pilato ang mga tao, pinalaya niya si Barabas. Ipinahagupit naman niya si Jesus at saka ibinigay sa mga sundalo_ upang ipako sa krus.
+Dahil gustong pagbigyan ni Pilato ang mga tao, pinalaya niya si Barabas. Ipinahagupit naman niya si Jesus at saka ibinigay sa mga sundalo upang ipako sa krus.
 
 ## Pinahirapan ng mga Sundalo si Jesus 
 
@@ -605,7 +605,7 @@ Sinuotan nila si Jesus ng kapa na kulay ube at gumawa sila ng koronang tinik at 
 
 
 
-Pagkatapos, pakutya_ silang nagsisigaw, "Mabuhay ang Hari ng mga Judio!" 
+Pagkatapos, pakutya silang nagsisigaw, "Mabuhay ang Hari ng mga Judio!" 
 
 
 
@@ -706,7 +706,7 @@ Matapos nilang kutyain si Jesus, hinubad nila ang kulay ubeng kapa at ipinasuot 
 
 
 
-Habang naglalakad sila,_ nasalubong nila ang isang tao na galing sa bukid. Siyaʼy si Simon na taga-Cyrene, na ama ni Alexander at ni Rufus. Sapilitan nilang ipinapasan sa kanya ang krus ni Jesus. 
+Habang naglalakad sila, nasalubong nila ang isang tao na galing sa bukid. Siyaʼy si Simon na taga-Cyrene, na ama ni Alexander at ni Rufus. Sapilitan nilang ipinapasan sa kanya ang krus ni Jesus. 
 
 
 
@@ -871,7 +871,7 @@ Alas nuwebe noon ng umaga nang ipako siya sa krus.
 
 
 
-May karatula sa itaas ng krus_, at ganito ang nakasulat na paratang laban sa kanya: "Ang Hari ng mga Judio." 
+May karatula sa itaas ng krus, at ganito ang nakasulat na paratang laban sa kanya: "Ang Hari ng mga Judio." 
 
 
 
@@ -1203,7 +1203,7 @@ Nang marinig iyon ng mga nakatayo roon, sinabi nila, "Pakinggan ninyo, tinatawag
 
 
 
-Tumakbo agad ang isang tao at kumuha ng espongha at isinawsaw sa maasim na alak. Ikinabit niya ito sa dulo ng_ isang patpat at idinampi sa bibig ni Jesus para sipsipin niya. Sinabi ng taong iyon, "Tingnan natin kung darating nga si Elias upang ibaba siya sa krus." 
+Tumakbo agad ang isang tao at kumuha ng espongha at isinawsaw sa maasim na alak. Ikinabit niya ito sa dulo ng isang patpat at idinampi sa bibig ni Jesus para sipsipin niya. Sinabi ng taong iyon, "Tingnan natin kung darating nga si Elias upang ibaba siya sa krus." 
 
 
 
@@ -1403,7 +1403,7 @@ Ang mga babaeng ito ay sumasama kay Jesus at tumutulong sa kanya noong nasa Gali
 
 
 
-Namatay si Jesus_ sa araw ng paghahanda para sa pista. Padilim na noon, at ang susunod na araw ay Araw ng Pamamahinga. 
+Namatay si Jesus sa araw ng paghahanda para sa pista. Padilim na noon, at ang susunod na araw ay Araw ng Pamamahinga. 
 
 
 
@@ -1502,7 +1502,7 @@ Nang marinig ni Pilato na patay na si Jesus, nagtaka siya. Kaya ipinatawag niya 
 
 
 
-At nang marinig ni Pilato sa kapitan na patay na nga si Jesus_, pinayagan niya si Jose na kunin ang bangkay ni Jesus. 
+At nang marinig ni Pilato sa kapitan na patay na nga si Jesus, pinayagan niya si Jose na kunin ang bangkay ni Jesus. 
 
 
 

@@ -271,7 +271,7 @@ Maaari ninyong kunin ang mga itlog o mga inakay, pero kailangang pakawalan ninyo
 
 
 
-"Kung magpapatayo kayo ng bahay, lagyan ninyo ng rehas ang palibot ng inyong patag na_ bubong para wala kayong pananagutan kung may mahulog mula sa bubong ninyo at mamatay. 
+"Kung magpapatayo kayo ng bahay, lagyan ninyo ng rehas ang palibot ng inyong patag na bubong para wala kayong pananagutan kung may mahulog mula sa bubong ninyo at mamatay. 
 
 
 
@@ -570,7 +570,7 @@ At sasabihin ng ama ng babae sa mga tagapamahala, 'Ipinakasal ko ang anak ko sa 
 
 
 
-Pinagbibintangan niya ang anak ko na hindi na siya birhen nang mapangasawa niya. Pero heto ang ebidensya na birhen ang aking anak.' At ipapakita ng magulang sa mga tagapamahala ang sapin ng mag-asawa na may dugo_. 
+Pinagbibintangan niya ang anak ko na hindi na siya birhen nang mapangasawa niya. Pero heto ang ebidensya na birhen ang aking anak.' At ipapakita ng magulang sa mga tagapamahala ang sapin ng mag-asawa na may dugo. 
 
 
 

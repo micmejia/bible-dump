@@ -106,7 +106,7 @@ Sinabi sa kanya ng Panginoon, "Ano iyang hawak mo?" Sumagot si Moises, "Baston p
 
 
 
-Sinabi ng Panginoon, "Ihagis mo sa lupa." Kaya inihagis ni Moises ang baston at naging ahas ito. Natakot si Moises,_ kaya napatakbo siya. 
+Sinabi ng Panginoon, "Ihagis mo sa lupa." Kaya inihagis ni Moises ang baston at naging ahas ito. Natakot si Moises, kaya napatakbo siya. 
 
 
 
@@ -139,7 +139,7 @@ Sinabi ng Panginoon, "Ihagis mo sa lupa." Kaya inihagis ni Moises ang baston at 
 
 
 
-Sinabi sa kanya ng Panginoon, "Hulihin mo ito sa buntot." Kaya hinuli ito ni Moises at muling_ naging baston. 
+Sinabi sa kanya ng Panginoon, "Hulihin mo ito sa buntot." Kaya hinuli ito ni Moises at muling naging baston. 
 
 
 
@@ -304,7 +304,7 @@ Pagkatapos, sinabi ng Panginoon, "Kung hindi sila maniwala sa unang himala, sa i
 
 
 
-Pero kung hindi pa rin sila maniwala sa iyo pagkatapos ng dalawang himala, kumuha ka ng tubig sa Ilog ng_ Nilo at ibuhos mo ito sa tuyong lupa, at magiging dugo ito." 
+Pero kung hindi pa rin sila maniwala sa iyo pagkatapos ng dalawang himala, kumuha ka ng tubig sa Ilog ng Nilo at ibuhos mo ito sa tuyong lupa, at magiging dugo ito." 
 
 
 
@@ -667,7 +667,7 @@ Bago umalis si Moises sa Midian, sinabi sa kanya ng Panginoon, "Bumalik ka na sa
 
 
 
-Kaya kinuha ni Moises ang asawa niya at mga anak na lalaki, at pinasakay sa asno at bumalik sa Egipto. Dinala rin niya ang baston na ipinapadala sa kanya_ ng Panginoon. 
+Kaya kinuha ni Moises ang asawa niya at mga anak na lalaki, at pinasakay sa asno at bumalik sa Egipto. Dinala rin niya ang baston na ipinapadala sa kanya ng Panginoon. 
 
 
 
@@ -832,7 +832,7 @@ Nang naglalakbay na sina Moises at ang kanyang pamilya, nagpahinga sila sa isang
 
 
 
-Samantala, sinabi ng Panginoon kay Aaron, "Lumakad ka at salubungin si Moises sa disyerto." Kaya sinalubong niya si Moises sa Bundok ng Dios at hinagkan bilang pagbati_. 
+Samantala, sinabi ng Panginoon kay Aaron, "Lumakad ka at salubungin si Moises sa disyerto." Kaya sinalubong niya si Moises sa Bundok ng Dios at hinagkan bilang pagbati. 
 
 
 

@@ -138,7 +138,7 @@ Mangyayari ito habang inaakala ng mga tao na mapayapa at ligtas ang kalagayan ni
 
 
 
-Ngunit kayo, mga kapatid ay hindi namumuhay sa kadiliman. Kaya hindi kayo mabibigla sa araw ng pagbabalik ng Panginoon_ katulad ng pagkabigla ng isang tao_ sa pagdating ng magnanakaw. 
+Ngunit kayo, mga kapatid ay hindi namumuhay sa kadiliman. Kaya hindi kayo mabibigla sa araw ng pagbabalik ng Panginoon katulad ng pagkabigla ng isang tao sa pagdating ng magnanakaw. 
 
 
 
@@ -204,7 +204,7 @@ Dahil namumuhay na kayong lahat sa liwanag at hindi sa kadiliman.
 
 
 
-Kaya nga, huwag tayong maging pabaya_ katulad ng iba na natutulog, kundi maging handa at mapagpigil sa sarili. 
+Kaya nga, huwag tayong maging pabaya katulad ng iba na natutulog, kundi maging handa at mapagpigil sa sarili. 
 
 
 
@@ -237,7 +237,7 @@ Kaya nga, huwag tayong maging pabaya_ katulad ng iba na natutulog, kundi maging 
 
 
 
-Sapagkat ang taong namumuhay sa kadiliman ay katulad ng taong pabaya na_ natutulog o katulad ng lasing na walang pagpipigil sa sarili_. 
+Sapagkat ang taong namumuhay sa kadiliman ay katulad ng taong pabaya na natutulog o katulad ng lasing na walang pagpipigil sa sarili. 
 
 
 
@@ -270,7 +270,7 @@ Sapagkat ang taong namumuhay sa kadiliman ay katulad ng taong pabaya na_ natutul
 
 
 
-Pero dahil namumuhay na tayo sa liwanag, dapat ay may pagpipigil tayo sa sarili. Gawin natin bilang panangga sa dibdib ang pananampalataya at pag-ibig, at bilang helmet naman ang pag-asa natin sa pagliligtas sa atin ng Dios_. 
+Pero dahil namumuhay na tayo sa liwanag, dapat ay may pagpipigil tayo sa sarili. Gawin natin bilang panangga sa dibdib ang pananampalataya at pag-ibig, at bilang helmet naman ang pag-asa natin sa pagliligtas sa atin ng Dios. 
 
 
 
@@ -336,7 +336,7 @@ Sapagkat hindi tayo itinalaga ng Dios para sa kaparusahan, kundi para sa pagtata
 
 
 
-Namatay siya para sa atin, para kahit buhay pa tayo o patay na sa pagbalik niya_ ay mabuhay tayo sa piling niya. 
+Namatay siya para sa atin, para kahit buhay pa tayo o patay na sa pagbalik niya ay mabuhay tayo sa piling niya. 
 
 
 
@@ -470,7 +470,7 @@ Ibigay nʼyo sa kanila ang lubos na paggalang at pag-ibig dahil sa gawain nila. 
 
 
 
-Nakikiusap kami sa inyo, mga kapatid, na pagsabihan nʼyo ang mga tamad. Palakasin ang mga mahihina sa pananampalataya nila_. Maging mapagpasensya kayo sa lahat. 
+Nakikiusap kami sa inyo, mga kapatid, na pagsabihan nʼyo ang mga tamad. Palakasin ang mga mahihina sa pananampalataya nila. Maging mapagpasensya kayo sa lahat. 
 
 
 
@@ -635,7 +635,7 @@ at magpasalamat kayo kahit ano ang mangyari, dahil ito ang kalooban ng Dios para
 
 
 
-Huwag ninyong hadlangan ang ginagawa ng Banal na_ Espiritu, 
+Huwag ninyong hadlangan ang ginagawa ng Banal na Espiritu, 
 
 
 
@@ -701,7 +701,7 @@ at huwag ninyong hamakin ang mga pahayag ng Dios.
 
 
 
-Sa halip, suriin ninyong mabuti ang lahat para malaman kung galing ito sa Dios o hindi_. Panghawakan nʼyo ang mabuti, 
+Sa halip, suriin ninyong mabuti ang lahat para malaman kung galing ito sa Dios o hindi. Panghawakan nʼyo ang mabuti, 
 
 
 
@@ -800,7 +800,7 @@ Pakabanalin nawa kayong lubos ng Dios na siyang nagbibigay ng kapayapaan. At naw
 
 
 
-Tapat ang Dios na tumawag sa inyo, at gagawin niya itong mga sinasabi namin_. 
+Tapat ang Dios na tumawag sa inyo, at gagawin niya itong mga sinasabi namin. 
 
 
 

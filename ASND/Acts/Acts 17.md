@@ -73,7 +73,7 @@ Dumaan sila sa Amfipolis at sa Apolonia hanggang sa nakarating sila sa Tesalonic
 
 
 
-At ayon sa nakagawian ni Pablo, pumasok siya doon sa sambahan_. At sa loob ng tatlong Araw ng Pamamahinga, nakipagdiskusyon siya sa mga tao roon. Ginamit niya ang Kasulatan 
+At ayon sa nakagawian ni Pablo, pumasok siya doon sa sambahan. At sa loob ng tatlong Araw ng Pamamahinga, nakipagdiskusyon siya sa mga tao roon. Ginamit niya ang Kasulatan 
 
 
 
@@ -172,7 +172,7 @@ Ang iba sa kanilaʼy naniwala at sumama kina Pablo at Silas. Marami ring mga Gri
 
 
 
-Pero nainggit ang mga Judio kina Pablo at Silas_. Kaya tinipon nila ang mga basagulerong tambay sa kanto. At nang marami na silang natipon, nagsimula silang manggulo sa buong lungsod. Nilusob nila ang bahay ni Jason sa paghahanap kina Pablo at Silas para iharap sila sa mga tao. 
+Pero nainggit ang mga Judio kina Pablo at Silas. Kaya tinipon nila ang mga basagulerong tambay sa kanto. At nang marami na silang natipon, nagsimula silang manggulo sa buong lungsod. Nilusob nila ang bahay ni Jason sa paghahanap kina Pablo at Silas para iharap sila sa mga tao. 
 
 
 
@@ -372,7 +372,7 @@ Kinagabihan, pinapunta ng mga mananampalataya sina Pablo at Silas sa Berea. Pagd
 
 
 
-Mas bukas ang kaisipan ng mga taga-Berea kaysa sa mga taga-Tesalonica. Gustong-gusto nilang makinig sa mga itinuturo nina Pablo_. At araw-araw nilang sinasaliksik ang Kasulatan para tingnan kung totoo nga ang mga sinasabi nina Pablo_. 
+Mas bukas ang kaisipan ng mga taga-Berea kaysa sa mga taga-Tesalonica. Gustong-gusto nilang makinig sa mga itinuturo nina Pablo. At araw-araw nilang sinasaliksik ang Kasulatan para tingnan kung totoo nga ang mga sinasabi nina Pablo. 
 
 
 
@@ -504,7 +504,7 @@ Kaya inihatid ng mga mananampalataya si Pablo sa tabing-dagat. Pero sina Silas a
 
 
 
-Ang mga taong naghatid kay Pablo ay sumama sa kanya hanggang sa Athens. Pagkatapos, bumalik sila sa Berea na dala ang bilin ni Pablo_ na pasunurin sa kanya sa Athens sina Silas at Timoteo.
+Ang mga taong naghatid kay Pablo ay sumama sa kanya hanggang sa Athens. Pagkatapos, bumalik sila sa Berea na dala ang bilin ni Pablo na pasunurin sa kanya sa Athens sina Silas at Timoteo.
 
 ## Nangaral si Pablo sa Athens 
 
@@ -605,7 +605,7 @@ Kaya pumasok siya sa sambahan ng mga Judio at nakipagdiskusyon sa kanila at sa m
 
 
 
-Dalawang grupo ng mga tagapagturo_ ang nakipagtalo kay Pablo. Ang isa ay tinatawag na mga Epicureo, at ang isa naman ay mga Estoico. Sinabi ng ilan sa kanila, "Ano kaya ang idinadaldal ng mayabang na iyan?" Ang sabi naman ng iba, "Iba yatang dios ang ipinangangaral niya." Ganoon ang sinabi nila dahil nangangaral si Pablo tungkol kay Jesus at sa kanyang muling pagkabuhay. 
+Dalawang grupo ng mga tagapagturo ang nakipagtalo kay Pablo. Ang isa ay tinatawag na mga Epicureo, at ang isa naman ay mga Estoico. Sinabi ng ilan sa kanila, "Ano kaya ang idinadaldal ng mayabang na iyan?" Ang sabi naman ng iba, "Iba yatang dios ang ipinangangaral niya." Ganoon ang sinabi nila dahil nangangaral si Pablo tungkol kay Jesus at sa kanyang muling pagkabuhay. 
 
 
 
@@ -638,7 +638,7 @@ Dalawang grupo ng mga tagapagturo_ ang nakipagtalo kay Pablo. Ang isa ay tinataw
 
 
 
-Isinama nila si Pablo sa pinagtitipunan ng mga namumuno sa bayan, na tinatawag na_ Areopagus. Sinabi nila sa kanya, "Gusto naming malaman ang bagong aral na itinuturo mo. 
+Isinama nila si Pablo sa pinagtitipunan ng mga namumuno sa bayan, na tinatawag na Areopagus. Sinabi nila sa kanya, "Gusto naming malaman ang bagong aral na itinuturo mo. 
 
 
 
@@ -704,7 +704,7 @@ Bago kasi sa aming pandinig ang mga sinasabi mo, kaya gusto naming malaman kung 
 
 
 
-(Sinabi nila ito dahil_ ang mga taga-Athens at mga dayuhang naninirahan doon ay mahilig magdiskusyon tungkol sa mga bagong aral.) 
+(Sinabi nila ito dahil ang mga taga-Athens at mga dayuhang naninirahan doon ay mahilig magdiskusyon tungkol sa mga bagong aral.) 
 
 
 
@@ -737,7 +737,7 @@ Bago kasi sa aming pandinig ang mga sinasabi mo, kaya gusto naming malaman kung 
 
 
 
-Kaya tumayo si Pablo sa harapan ng mga tao roon sa_ Areopagus at sinabi, "Mga taga-Athens! Nakita kong napakarelihiyoso ninyo. 
+Kaya tumayo si Pablo sa harapan ng mga tao roon sa Areopagus at sinabi, "Mga taga-Athens! Nakita kong napakarelihiyoso ninyo. 
 
 
 
@@ -902,7 +902,7 @@ Mula sa isang tao, nilikha niya ang lahat ng lahi at ipinangalat sa buong mundo.
 
 
 
-Ang lahat ng itoʼy ginawa ng Dios_ upang hanapin natin siya, at baka sakaling matagpuan natin siya. Pero ang totoo, ang Dios ay hindi malayo sa atin, 
+Ang lahat ng itoʼy ginawa ng Dios upang hanapin natin siya, at baka sakaling matagpuan natin siya. Pero ang totoo, ang Dios ay hindi malayo sa atin, 
 
 
 
@@ -1133,4 +1133,4 @@ Pagkatapos, umalis si Pablo sa kanilang pinagtitipunan.
 
 
 
-May ilang lalaking kumampi kay Pablo at sumampalataya kay Jesus_. Ang isa sa kanila ay si Dionisius na miyembro ng Areopagus, at ang babaeng si Damaris, at may iba pa.
+May ilang lalaking kumampi kay Pablo at sumampalataya kay Jesus. Ang isa sa kanila ay si Dionisius na miyembro ng Areopagus, at ang babaeng si Damaris, at may iba pa.

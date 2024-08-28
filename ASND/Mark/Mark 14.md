@@ -106,7 +106,7 @@ Sinabi nila, "Huwag nating gawin sa pista dahil baka magkagulo ang mga tao." ## 
 
 
 
-Nang si Jesus ay nasa Betania, habang kumakain siya sa bahay ni Simon na dating_ may malubhang sakit sa balat, dumating ang isang babae. May dala siyang mamahaling pabango na nasa isang sisidlang yari sa batong_ alabastro. Ang pabangong ito ay puro at mula sa tanim_ na "nardo." Binasag niya ang leeg ng_ sisidlan at saka ibinuhos ang pabango sa ulo ni Jesus. 
+Nang si Jesus ay nasa Betania, habang kumakain siya sa bahay ni Simon na dating may malubhang sakit sa balat, dumating ang isang babae. May dala siyang mamahaling pabango na nasa isang sisidlang yari sa batong alabastro. Ang pabangong ito ay puro at mula sa tanim na "nardo." Binasag niya ang leeg ng sisidlan at saka ibinuhos ang pabango sa ulo ni Jesus. 
 
 
 
@@ -337,7 +337,7 @@ Sinasabi ko sa inyo ang totoo, kahit saan man ipapangaral ang Magandang Balita s
 
 
 
-Si Judas Iscariote na isa sa 12 tagasunod_ ay pumunta sa mga namamahalang pari upang ipagkanulo si Jesus. 
+Si Judas Iscariote na isa sa 12 tagasunod ay pumunta sa mga namamahalang pari upang ipagkanulo si Jesus. 
 
 
 
@@ -405,7 +405,7 @@ Natuwa sila nang malaman nila ang pakay ni Judas, at nangako silang bibigyan siy
 
 
 
-Dumating ang unang araw ng Pista ng Tinapay na Walang Pampaalsa. Ito ang araw na inihahandog ang tupa na kinakain sa Pista ng Paglampas ng Anghel. Kaya tinanong si Jesus ng mga tagasunod niya, "Saan nʼyo po kami gustong maghanda ng hapunan para sa Pista ng Paglampas ng Anghel?" 13-14Inutusan niya ang dalawa sa mga tagasunod niya, "Pumunta kayo sa lungsod ng Jerusalem_, at doon ay may masasalubong kayong isang lalaking may pasan na isang bangang tubig. Sundan ninyo siya sa bahay na papasukan niya, at sabihin ninyo sa may-ari ng bahay, 'Ipinapatanong po ng Guro kung saan ang kwartong kakainan niya ng hapunan na kasama ang mga tagasunod niya upang ipagdiwang ang Pista ng Paglampas ng Anghel.' 
+Dumating ang unang araw ng Pista ng Tinapay na Walang Pampaalsa. Ito ang araw na inihahandog ang tupa na kinakain sa Pista ng Paglampas ng Anghel. Kaya tinanong si Jesus ng mga tagasunod niya, "Saan nʼyo po kami gustong maghanda ng hapunan para sa Pista ng Paglampas ng Anghel?" 13-14Inutusan niya ang dalawa sa mga tagasunod niya, "Pumunta kayo sa lungsod ng Jerusalem, at doon ay may masasalubong kayong isang lalaking may pasan na isang bangang tubig. Sundan ninyo siya sa bahay na papasukan niya, at sabihin ninyo sa may-ari ng bahay, 'Ipinapatanong po ng Guro kung saan ang kwartong kakainan niya ng hapunan na kasama ang mga tagasunod niya upang ipagdiwang ang Pista ng Paglampas ng Anghel.' 
 
 
 
@@ -504,7 +504,7 @@ Umalis ang dalawa niyang tagasunod. At nang dumating sila sa lungsod, nakita nil
 
 
 
-Kinagabihan, dumating si Jesus at ang 12 tagasunod_. 
+Kinagabihan, dumating si Jesus at ang 12 tagasunod. 
 
 
 
@@ -570,7 +570,7 @@ Habang kumakain na sila sa mesa, sinabi ni Jesus, "Sinasabi ko sa inyo ang totoo
 
 
 
-Nalungkot sila nang marinig ito_, at isa-isa silang nagtanong sa kanya, "Hindi ako iyon, di po ba?" 
+Nalungkot sila nang marinig ito, at isa-isa silang nagtanong sa kanya, "Hindi ako iyon, di po ba?" 
 
 
 
@@ -603,7 +603,7 @@ Nalungkot sila nang marinig ito_, at isa-isa silang nagtanong sa kanya, "Hindi a
 
 
 
-Sinabi ni Jesus sa kanila, "Isa siya sa inyong 12 na kasabay kong nagsasawsaw ng tinapay_ sa mangkok. 
+Sinabi ni Jesus sa kanila, "Isa siya sa inyong 12 na kasabay kong nagsasawsaw ng tinapay sa mangkok. 
 
 
 
@@ -636,7 +636,7 @@ Sinabi ni Jesus sa kanila, "Isa siya sa inyong 12 na kasabay kong nagsasawsaw ng
 
 
 
-Ako na_ Anak ng Tao ay papatayin ayon sa sinasabi ng Kasulatan, ngunit nakakaawa ang taong magtatraydor sa akin. Mabuti pang hindi na siya ipinanganak." ## Huling Hapunan ni Jesus 
+Ako na Anak ng Tao ay papatayin ayon sa sinasabi ng Kasulatan, ngunit nakakaawa ang taong magtatraydor sa akin. Mabuti pang hindi na siya ipinanganak." ## Huling Hapunan ni Jesus 
 
 
 
@@ -669,7 +669,7 @@ Ako na_ Anak ng Tao ay papatayin ayon sa sinasabi ng Kasulatan, ngunit nakakaawa
 
 
 
-Habang kumakain sila, kumuha ng tinapay si Jesus. Nagpasalamat siya sa Dios_ at pagkatapos ay hinati-hati niya ito at ibinigay sa mga tagasunod niya at sinabi, "Kunin ninyo at kainin_; ito ang aking katawan." 
+Habang kumakain sila, kumuha ng tinapay si Jesus. Nagpasalamat siya sa Dios at pagkatapos ay hinati-hati niya ito at ibinigay sa mga tagasunod niya at sinabi, "Kunin ninyo at kainin; ito ang aking katawan." 
 
 
 
@@ -836,7 +836,7 @@ Umawit sila ng papuri sa Dios at pagkatapos ay pumunta sila sa Bundok ng mga Oli
 
 
 
-Sinabi ni Jesus sa mga tagasunod niya, "Iiwan ninyo akong lahat, dahil sinabi ng Dios_ sa Kasulatan, 'Papatayin ko ang pastol at magsisipangalat ang mga tupa.' 
+Sinabi ni Jesus sa mga tagasunod niya, "Iiwan ninyo akong lahat, dahil sinabi ng Dios sa Kasulatan, 'Papatayin ko ang pastol at magsisipangalat ang mga tupa.' 
 
 
 
@@ -1003,7 +1003,7 @@ Pero iginiit pa rin ni Pedro, "Hinding-hindi ko kayo ikakaila, kahit na patayin 
 
 
 
-Pagkatapos, pumunta sila sa isang lugar na tinatawag na Getsemane. Pagdating nila roon,_ sinabi ni Jesus sa kanila, "Maupo kayo rito habang nananalangin ako." 
+Pagkatapos, pumunta sila sa isang lugar na tinatawag na Getsemane. Pagdating nila roon, sinabi ni Jesus sa kanila, "Maupo kayo rito habang nananalangin ako." 
 
 
 
@@ -1036,7 +1036,7 @@ Pagkatapos, pumunta sila sa isang lugar na tinatawag na Getsemane. Pagdating nil
 
 
 
-Isinama niya sina Pedro, Santiago, at Juan sa di-kalayuan_. Balisang-balisa at nababahala si Jesus. 
+Isinama niya sina Pedro, Santiago, at Juan sa di-kalayuan. Balisang-balisa at nababahala si Jesus. 
 
 
 
@@ -1168,7 +1168,7 @@ Sinabi niya, "Ama, magagawa nʼyo ang lahat ng bagay. Kung maaari, ilayo nʼyo s
 
 
 
-Binalikan ni Jesus ang tatlo niyang tagasunod_ at dinatnan silang natutulog. Sinabi niya kay Pedro, "Simon, natutulog ka ba? Hindi ka ba makapagpuyat kahit isang oras lang?" 
+Binalikan ni Jesus ang tatlo niyang tagasunod at dinatnan silang natutulog. Sinabi niya kay Pedro, "Simon, natutulog ka ba? Hindi ka ba makapagpuyat kahit isang oras lang?" 
 
 
 
@@ -1201,7 +1201,7 @@ Binalikan ni Jesus ang tatlo niyang tagasunod_ at dinatnan silang natutulog. Sin
 
 
 
-At sinabi niya sa kanila,_ "Magpuyat kayo at manalangin para hindi kayo madaig ng tukso. Ang espiritu ay handang sumunod, ngunit mahina ang laman." 
+At sinabi niya sa kanila, "Magpuyat kayo at manalangin para hindi kayo madaig ng tukso. Ang espiritu ay handang sumunod, ngunit mahina ang laman." 
 
 
 
@@ -1267,7 +1267,7 @@ Muling lumayo si Jesus at nanalangin. Ganoon pa rin ang kanyang dalangin.
 
 
 
-Pagkatapos, muli niyang binalikan ang mga tagasunod niya at nadatnan na naman niya silang natutulog, dahil antok na antok na sila. At nang gisingin sila ni Jesus, nahiya sila_ at hindi nila alam kung ano ang sasabihin nila kay Jesus. 
+Pagkatapos, muli niyang binalikan ang mga tagasunod niya at nadatnan na naman niya silang natutulog, dahil antok na antok na sila. At nang gisingin sila ni Jesus, nahiya sila at hindi nila alam kung ano ang sasabihin nila kay Jesus. 
 
 
 
@@ -1300,7 +1300,7 @@ Pagkatapos, muli niyang binalikan ang mga tagasunod niya at nadatnan na naman ni
 
 
 
-Sa ikatlong pagbalik ni Jesus, sinabi niya sa kanila, "Natutulog pa rin ba kayo at nagpapahinga? Tama na iyan! Dumating na ang oras na ako na_ Anak ng Tao ay ipagkakanulo sa mga makasalanan. 
+Sa ikatlong pagbalik ni Jesus, sinabi niya sa kanila, "Natutulog pa rin ba kayo at nagpapahinga? Tama na iyan! Dumating na ang oras na ako na Anak ng Tao ay ipagkakanulo sa mga makasalanan. 
 
 
 
@@ -1366,7 +1366,7 @@ Tayo na! Narito na ang nagtatraydor sa akin." ## Ang Pagdakip kay Jesus
 
 
 
-Nagsasalita pa si Jesus nang biglang dumating si Judas na isa sa 12 tagasunod_. Marami siyang kasama na armado ng mga espada at pamalo. Isinugo sila ng mga namamahalang pari, mga tagapagturo ng Kautusan at ng mga pinuno ng mga Judio. 
+Nagsasalita pa si Jesus nang biglang dumating si Judas na isa sa 12 tagasunod. Marami siyang kasama na armado ng mga espada at pamalo. Isinugo sila ng mga namamahalang pari, mga tagapagturo ng Kautusan at ng mga pinuno ng mga Judio. 
 
 
 
@@ -1399,7 +1399,7 @@ Nagsasalita pa si Jesus nang biglang dumating si Judas na isa sa 12 tagasunod_. 
 
 
 
-Ganito ang palatandaan na ibinigay ng traydor na si Judas_ sa mga huhuli kay Jesus: "Ang babatiin ko sa pamamagitan ng isang halik ang siyang pakay ninyo. Dakpin ninyo siya at dalhin, at bantayang mabuti." 
+Ganito ang palatandaan na ibinigay ng traydor na si Judas sa mga huhuli kay Jesus: "Ang babatiin ko sa pamamagitan ng isang halik ang siyang pakay ninyo. Dakpin ninyo siya at dalhin, at bantayang mabuti." 
 
 
 
@@ -1564,7 +1564,7 @@ Sinabi ni Jesus sa mga humuli sa kanya, "Isa ba akong tulisan? Bakit kailangan p
 
 
 
-Araw-araw ay nasa templo ako at nagtuturo, at naroon din kayo. Bakit hindi ninyo ako dinakip? Ngunit kailangang mangyari ito upang matupad ang sinasabi ng_ Kasulatan tungkol sa akin_." 
+Araw-araw ay nasa templo ako at nagtuturo, at naroon din kayo. Bakit hindi ninyo ako dinakip? Ngunit kailangang mangyari ito upang matupad ang sinasabi ng Kasulatan tungkol sa akin." 
 
 
 
@@ -1663,7 +1663,7 @@ May isang binata roon na sumunod kay Jesus na nakabalabal lang ng telang linen. 
 
 
 
-pero nakawala siya at tumakas nang hubad, dahil nahawakan nila ang kanyang balabal._
+pero nakawala siya at tumakas nang hubad, dahil nahawakan nila ang kanyang balabal.
 
 ## Dinala si Jesus sa Korte ng mga Judio 
 
@@ -1995,7 +1995,7 @@ Hindi sumagot si Jesus. Kaya tinanong siyang muli ng punong pari, "Ikaw ba ang C
 
 
 
-Sumagot si Jesus, "Ako nga, at ako na_ Anak ng Tao ay makikita ninyong nakaupo sa kanan ng makapangyarihang Dios_. At makikita rin ninyo ako sa mga ulap na paparating dito sa mundo_." 
+Sumagot si Jesus, "Ako nga, at ako na Anak ng Tao ay makikita ninyong nakaupo sa kanan ng makapangyarihang Dios. At makikita rin ninyo ako sa mga ulap na paparating dito sa mundo." 
 
 
 
@@ -2028,7 +2028,7 @@ Sumagot si Jesus, "Ako nga, at ako na_ Anak ng Tao ay makikita ninyong nakaupo s
 
 
 
-Nang marinig ito ng_ punong pari, pinunit niya ang kanyang damit sa galit_ at sinabi, "Hindi na natin kailangan ng mga saksi! 
+Nang marinig ito ng punong pari, pinunit niya ang kanyang damit sa galit at sinabi, "Hindi na natin kailangan ng mga saksi! 
 
 
 
@@ -2061,7 +2061,7 @@ Nang marinig ito ng_ punong pari, pinunit niya ang kanyang damit sa galit_ at si
 
 
 
-Narinig ninyo ang paglapastangan niya_ sa Dios. Ano ngayon ang hatol ninyo?" At hinatulan nila si Jesus ng kamatayan. 
+Narinig ninyo ang paglapastangan niya sa Dios. Ano ngayon ang hatol ninyo?" At hinatulan nila si Jesus ng kamatayan. 
 
 
 
@@ -2162,7 +2162,7 @@ Nang si Pedro ay nasa loob pa ng bakuran, dumaan ang isang babaeng utusan ng pun
 
 
 
-Nang makita niya si Pedro na nagpapainit malapit sa apoy_, tinitigan niya ito at sinabi, "Kasama ka rin ni Jesus na taga-Nazaret, hindi ba?" 
+Nang makita niya si Pedro na nagpapainit malapit sa apoy, tinitigan niya ito at sinabi, "Kasama ka rin ni Jesus na taga-Nazaret, hindi ba?" 
 
 
 

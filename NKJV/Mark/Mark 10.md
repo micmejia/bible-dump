@@ -13,13 +13,13 @@ next: ['Mark 11']
 Then He arose from there and came to the region of Judea by the other side of the Jordan. And multitudes gathered to Him again, and as He was accustomed, He taught them again. 
 
 ###### 2 
-The Pharisees came and asked Him, "Is it lawful for a man to divorce _his_ wife?" testing Him. 
+The Pharisees came and asked Him, "Is it lawful for a man to divorce his wife?" testing Him. 
 
 ###### 3 
 And He answered and said to them, "What did Moses command you?" 
 
 ###### 4 
-They said, "Moses permitted _a man_ to write a certificate of divorce, and to dismiss _her._" 
+They said, "Moses permitted a man to write a certificate of divorce, and to dismiss her." 
 
 ###### 5 
 And Jesus answered and said to them, "Because of the hardness of your heart he wrote you this precept. 
@@ -37,7 +37,7 @@ and the two shall become one flesh'; so then they are no longer two, but one fle
 Therefore what God has joined together, let not man separate." 
 
 ###### 10 
-In the house His disciples also asked Him again about the same _matter._ 
+In the house His disciples also asked Him again about the same matter. 
 
 ###### 11 
 So He said to them, "Whoever divorces his wife and marries another commits adultery against her. 
@@ -46,16 +46,16 @@ So He said to them, "Whoever divorces his wife and marries another commits adult
 And if a woman divorces her husband and marries another, she commits adultery." ## Jesus Blesses Little Children 
 
 ###### 13 
-Then they brought little children to Him, that He might touch them; but the disciples rebuked those who brought _them._ 
+Then they brought little children to Him, that He might touch them; but the disciples rebuked those who brought them. 
 
 ###### 14 
-But when Jesus saw _it,_ He was greatly displeased and said to them, "Let the little children come to Me, and do not forbid them; for of such is the kingdom of God. 
+But when Jesus saw it, He was greatly displeased and said to them, "Let the little children come to Me, and do not forbid them; for of such is the kingdom of God. 
 
 ###### 15 
 Assuredly, I say to you, whoever does not receive the kingdom of God as a little child will by no means enter it." 
 
 ###### 16 
-And He took them up in His arms, laid _His_ hands on them, and blessed them.
+And He took them up in His arms, laid His hands on them, and blessed them.
 
 ## Jesus Counsels the Rich Young Ruler 
 
@@ -63,7 +63,7 @@ And He took them up in His arms, laid _His_ hands on them, and blessed them.
 Now as He was going out on the road, one came running, knelt before Him, and asked Him, "Good Teacher, what shall I do that I may inherit eternal life?" 
 
 ###### 18 
-So Jesus said to him, "Why do you call Me good? No one _is_ good but One, _that is,_ God. 
+So Jesus said to him, "Why do you call Me good? No one is good but One, that is, God. 
 
 ###### 19 
 You know the commandments: 'Do not commit adultery,' 'Do not murder,' 'Do not steal,' 'Do not bear false witness,' 'Do not defraud,' 'Honor your father and your mother.' " 
@@ -92,7 +92,7 @@ It is easier for a camel to go through the eye of a needle than for a rich man t
 And they were greatly astonished, saying among themselves, "Who then can be saved?" 
 
 ###### 27 
-But Jesus looked at them and said, "With men _it is_ impossible, but not with God; for with God all things are possible." 
+But Jesus looked at them and said, "With men it is impossible, but not with God; for with God all things are possible." 
 
 ###### 28 
 Then Peter began to say to Him, "See, we have left all and followed You." 
@@ -104,7 +104,7 @@ So Jesus answered and said, "Assuredly, I say to you, there is no one who has le
 who shall not receive a hundredfold now in this time--houses and brothers and sisters and mothers and children and lands, with persecutions--and in the age to come, eternal life. 
 
 ###### 31 
-But many _who are_ first will be last, and the last first." ## Jesus a Third Time Predicts His Death and Resurrection 
+But many who are first will be last, and the last first." ## Jesus a Third Time Predicts His Death and Resurrection 
 
 ###### 32 
 Now they were on the road, going up to Jerusalem, and Jesus was going before them; and they were amazed. And as they followed they were afraid. Then He took the twelve aside again and began to tell them the things that would happen to Him: 
@@ -131,13 +131,13 @@ But Jesus said to them, "You do not know what you ask. Are you able to drink the
 They said to Him, "We are able." So Jesus said to them, "You will indeed drink the cup that I drink, and with the baptism I am baptized with you will be baptized; 
 
 ###### 40 
-but to sit on My right hand and on My left is not Mine to give, but _it is for those_ for whom it is prepared." 
+but to sit on My right hand and on My left is not Mine to give, but it is for those for whom it is prepared." 
 
 ###### 41 
-And when the ten heard _it,_ they began to be greatly displeased with James and John. 
+And when the ten heard it, they began to be greatly displeased with James and John. 
 
 ###### 42 
-But Jesus called them to _Himself_ and said to them, "You know that those who are considered rulers over the Gentiles lord it over them, and their great ones exercise authority over them. 
+But Jesus called them to Himself and said to them, "You know that those who are considered rulers over the Gentiles lord it over them, and their great ones exercise authority over them. 
 
 ###### 43 
 Yet it shall not be so among you; but whoever desires to become great among you shall be your servant. 

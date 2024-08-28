@@ -16,7 +16,7 @@ Now in the church that was at Antioch there were certain prophets and teachers: 
 As they ministered to the Lord and fasted, the Holy Spirit said, "Now separate to Me Barnabas and Saul for the work to which I have called them." 
 
 ###### 3 
-Then, having fasted and prayed, and laid hands on them, they sent _them_ away.
+Then, having fasted and prayed, and laid hands on them, they sent them away.
 
 ## Preaching in Cyprus 
 
@@ -24,10 +24,10 @@ Then, having fasted and prayed, and laid hands on them, they sent _them_ away.
 So, being sent out by the Holy Spirit, they went down to Seleucia, and from there they sailed to Cyprus. 
 
 ###### 5 
-And when they arrived in Salamis, they preached the word of God in the synagogues of the Jews. They also had John as _their_ assistant. 
+And when they arrived in Salamis, they preached the word of God in the synagogues of the Jews. They also had John as their assistant. 
 
 ###### 6 
-Now when they had gone through the island to Paphos, they found a certain sorcerer, a false prophet, a Jew whose name _was_ Bar-Jesus, 
+Now when they had gone through the island to Paphos, they found a certain sorcerer, a false prophet, a Jew whose name was Bar-Jesus, 
 
 ###### 7 
 who was with the proconsul, Sergius Paulus, an intelligent man. This man called for Barnabas and Saul and sought to hear the word of God. 
@@ -36,13 +36,13 @@ who was with the proconsul, Sergius Paulus, an intelligent man. This man called 
 But Elymas the sorcerer (for so his name is translated) withstood them, seeking to turn the proconsul away from the faith. 
 
 ###### 9 
-Then Saul, who also _is called_ Paul, filled with the Holy Spirit, looked intently at him 
+Then Saul, who also is called Paul, filled with the Holy Spirit, looked intently at him 
 
 ###### 10 
-and said, "O full of all deceit and all fraud, _you_ son of the devil, _you_ enemy of all righteousness, will you not cease perverting the straight ways of the Lord? 
+and said, "O full of all deceit and all fraud, you son of the devil, you enemy of all righteousness, will you not cease perverting the straight ways of the Lord? 
 
 ###### 11 
-And now, indeed, the hand of the Lord _is_ upon you, and you shall be blind, not seeing the sun for a time." And immediately a dark mist fell on him, and he went around seeking someone to lead him by the hand. 
+And now, indeed, the hand of the Lord is upon you, and you shall be blind, not seeing the sun for a time." And immediately a dark mist fell on him, and he went around seeking someone to lead him by the hand. 
 
 ###### 12 
 Then the proconsul believed, when he saw what had been done, being astonished at the teaching of the Lord.
@@ -56,10 +56,10 @@ Now when Paul and his party set sail from Paphos, they came to Perga in Pamphyli
 But when they departed from Perga, they came to Antioch in Pisidia, and went into the synagogue on the Sabbath day and sat down. 
 
 ###### 15 
-And after the reading of the Law and the Prophets, the rulers of the synagogue sent to them, saying, "Men _and_ brethren, if you have any word of exhortation for the people, say on." 
+And after the reading of the Law and the Prophets, the rulers of the synagogue sent to them, saying, "Men and brethren, if you have any word of exhortation for the people, say on." 
 
 ###### 16 
-Then Paul stood up, and motioning with _his_ hand said, "Men of Israel, and you who fear God, listen: 
+Then Paul stood up, and motioning with his hand said, "Men of Israel, and you who fear God, listen: 
 
 ###### 17 
 The God of this people Israel chose our fathers, and exalted the people when they dwelt as strangers in the land of Egypt, and with an uplifted arm He brought them out of it. 
@@ -71,34 +71,34 @@ Now for a time of about forty years He put up with their ways in the wilderness.
 And when He had destroyed seven nations in the land of Canaan, He distributed their land to them by allotment. 
 
 ###### 20 
-"After that He gave _them_ judges for about four hundred and fifty years, until Samuel the prophet. 
+"After that He gave them judges for about four hundred and fifty years, until Samuel the prophet. 
 
 ###### 21 
 And afterward they asked for a king; so God gave them Saul the son of Kish, a man of the tribe of Benjamin, for forty years. 
 
 ###### 22 
-And when He had removed him, He raised up for them David as king, to whom also He gave testimony and said, 'I have found David the _son_ of Jesse, a man after My _own_ heart, who will do all My will.' 
+And when He had removed him, He raised up for them David as king, to whom also He gave testimony and said, 'I have found David the son of Jesse, a man after My own heart, who will do all My will.' 
 
 ###### 23 
-From this man's seed, according to _the_ promise, God raised up for Israel a Savior--Jesus-- 
+From this man's seed, according to the promise, God raised up for Israel a Savior--Jesus-- 
 
 ###### 24 
 after John had first preached, before His coming, the baptism of repentance to all the people of Israel. 
 
 ###### 25 
-And as John was finishing his course, he said, 'Who do you think I am? I am not _He._ But behold, there comes One after me, the sandals of whose feet I am not worthy to loose.' 
+And as John was finishing his course, he said, 'Who do you think I am? I am not He. But behold, there comes One after me, the sandals of whose feet I am not worthy to loose.' 
 
 ###### 26 
-"Men _and_ brethren, sons of the family of Abraham, and those among you who fear God, to you the word of this salvation has been sent. 
+"Men and brethren, sons of the family of Abraham, and those among you who fear God, to you the word of this salvation has been sent. 
 
 ###### 27 
-For those who dwell in Jerusalem, and their rulers, because they did not know Him, nor even the voices of the Prophets which are read every Sabbath, have fulfilled _them_ in condemning _Him._ 
+For those who dwell in Jerusalem, and their rulers, because they did not know Him, nor even the voices of the Prophets which are read every Sabbath, have fulfilled them in condemning Him. 
 
 ###### 28 
-And though they found no cause for death _in Him,_ they asked Pilate that He should be put to death. 
+And though they found no cause for death in Him, they asked Pilate that He should be put to death. 
 
 ###### 29 
-Now when they had fulfilled all that was written concerning Him, they took _Him_ down from the tree and laid _Him_ in a tomb. 
+Now when they had fulfilled all that was written concerning Him, they took Him down from the tree and laid Him in a tomb. 
 
 ###### 30 
 But God raised Him from the dead. 
@@ -116,7 +116,7 @@ God has fulfilled this for us their children, in that He has raised up Jesus. As
 And that He raised Him from the dead, no more to return to corruption, He has spoken thus: 'I will give you the sure mercies of David.' 
 
 ###### 35 
-Therefore He also says in another _Psalm:_ 'You will not allow Your Holy One to see corruption.' 
+Therefore He also says in another Psalm: 'You will not allow Your Holy One to see corruption.' 
 
 ###### 36 
 "For David, after he had served his own generation by the will of God, fell asleep, was buried with his fathers, and saw corruption; 

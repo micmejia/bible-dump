@@ -337,7 +337,7 @@ Iingatan ko kayo at pararamihin para matupad ko ang aking pangako sa inyo.
 
 
 
-At dahil sa kasaganaan ng inyong ani,_ ang inyong kakainin ay mula pa sa dati ninyong inani, na hindi pa nauubos sa lalagyan hanggang sa dumating ang bagong ani na papalit dito. 
+At dahil sa kasaganaan ng inyong ani, ang inyong kakainin ay mula pa sa dati ninyong inani, na hindi pa nauubos sa lalagyan hanggang sa dumating ang bagong ani na papalit dito. 
 
 
 
@@ -504,7 +504,7 @@ Kaya ganito ang gagawin ko sa inyo. Bigla kayong masisindak sa takot dahil padad
 
 
 
-Pababayaan ko kayong matalo ng inyong mga kalaban, at kayoʼy sasakupin nitong mga napopoot sa inyo. At dahil sa takot sa kanila,_ tatakas kayo kahit na walang humahabol sa inyo. 
+Pababayaan ko kayong matalo ng inyong mga kalaban, at kayoʼy sasakupin nitong mga napopoot sa inyo. At dahil sa takot sa kanila, tatakas kayo kahit na walang humahabol sa inyo. 
 
 
 
@@ -900,7 +900,7 @@ magagalit na ako sa inyo at kakalabanin ko kayo, at parurusahan ko kayo ng piton
 
 
 
-Gugutumin ko kayo,_ at mapipilitan kayong kumain ng sarili ninyong anak. 
+Gugutumin ko kayo, at mapipilitan kayong kumain ng sarili ninyong anak. 
 
 
 
@@ -1230,7 +1230,7 @@ Ngunit kahit na pinarurusahan ko kayo, hindi ko kayo itatakwil habang kayoʼy na
 
 
 
-Tutuparin ko ang kasunduan ko sa inyong mga ninuno na inilabas ko sa Egipto para maipakita ko sa mga bansa ang aking kapangyarihan. Ginawa ko ito sa inyong mga ninuno_ para maging Dios nila ako. Ako ang Panginoon. 
+Tutuparin ko ang kasunduan ko sa inyong mga ninuno na inilabas ko sa Egipto para maipakita ko sa mga bansa ang aking kapangyarihan. Ginawa ko ito sa inyong mga ninuno para maging Dios nila ako. Ako ang Panginoon. 
 
 
 

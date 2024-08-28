@@ -173,7 +173,7 @@ Talagang maganda si Abishag at naging tagapag-alaga siya ng hari. Pero hindi sum
 
 
 
-Ngayon, si Adonia na anak ni David kay_ Hagit ay nagmamayabang na siya ang susunod na magiging hari. Kaya naghanda siya ng mga karwahe at mga kabayo at 50 tao na magsisilbing tagabantay na mauuna sa kanya. 
+Ngayon, si Adonia na anak ni David kay Hagit ay nagmamayabang na siya ang susunod na magiging hari. Kaya naghanda siya ng mga karwahe at mga kabayo at 50 tao na magsisilbing tagabantay na mauuna sa kanya. 
 
 
 
@@ -206,7 +206,7 @@ Ngayon, si Adonia na anak ni David kay_ Hagit ay nagmamayabang na siya ang susun
 
 
 
-Hindi siya kailanman pinakialaman ng kanyang ama na si David,_ at hindi sinaway sa kanyang mga ginagawa. Napakaguwapong lalaki ni Adonia at ipinanganak siyang kasunod ni Absalom. 
+Hindi siya kailanman pinakialaman ng kanyang ama na si David, at hindi sinaway sa kanyang mga ginagawa. Napakaguwapong lalaki ni Adonia at ipinanganak siyang kasunod ni Absalom. 
 
 
 
@@ -536,7 +536,7 @@ Kaya nagpunta si Batsheba sa kwarto ng hari. Matanda na talaga ang hari at si Ab
 
 
 
-Yumukod si Batsheba at lumuhod sa hari bilang paggalang_. Tinanong siya ng hari, "Ano ang kailangan mo?" 
+Yumukod si Batsheba at lumuhod sa hari bilang paggalang. Tinanong siya ng hari, "Ano ang kailangan mo?" 
 
 
 
@@ -767,7 +767,7 @@ Habang nakikipag-usap si Batsheba sa hari, dumating ang propetang si Natan.
 
 
 
-Pumunta sa silid ng hari ang kanyang lingkod at sinabi na dumating si Natan at nais siyang makausap, kaya ipinatawag siya ng hari_. Pagpasok ni Natan nagpatirapa siya sa hari bilang paggalang_, 
+Pumunta sa silid ng hari ang kanyang lingkod at sinabi na dumating si Natan at nais siyang makausap, kaya ipinatawag siya ng hari. Pagpasok ni Natan nagpatirapa siya sa hari bilang paggalang, 
 
 
 
@@ -1031,7 +1031,7 @@ na tutuparin ko ngayon ang pangako ko sa iyo sa pangalan ng Panginoon, ang Dios 
 
 
 
-Yumukod agad si Batsheba bilang paggalang_, at sinabi, "Mabuhay kayo magpakailanman, Mahal na Haring David!" 
+Yumukod agad si Batsheba bilang paggalang, at sinabi, "Mabuhay kayo magpakailanman, Mahal na Haring David!" 
 
 
 
@@ -1262,7 +1262,7 @@ Kung paano kayo sinamahan ng Panginoon, samahan din sana niya si Solomon at gawi
 
 
 
-Kaya lumakad na ang paring si Zadok, ang propetang si Natan, si Benaya na anak ni Jehoyada, at ang mga personal na tagapagbantay ni David_ na mga Kereteo at Peleteo. Pinasakay nila si Solomon sa mola ni Haring David at dinala sa Gihon. 
+Kaya lumakad na ang paring si Zadok, ang propetang si Natan, si Benaya na anak ni Jehoyada, at ang mga personal na tagapagbantay ni David na mga Kereteo at Peleteo. Pinasakay nila si Solomon sa mola ni Haring David at dinala sa Gihon. 
 
 
 
@@ -1295,7 +1295,7 @@ Kaya lumakad na ang paring si Zadok, ang propetang si Natan, si Benaya na anak n
 
 
 
-Pagdating nila roon,_ kinuha ni Zadok sa banal na_ tolda ang langis na nasa loob ng sisidlang sungay, at pinahiran niya si Solomon sa ulo. Pinatunog nila ang trumpeta at sumigaw silang lahat, "Mabuhay si Haring Solomon!" 
+Pagdating nila roon, kinuha ni Zadok sa banal na tolda ang langis na nasa loob ng sisidlang sungay, at pinahiran niya si Solomon sa ulo. Pinatunog nila ang trumpeta at sumigaw silang lahat, "Mabuhay si Haring Solomon!" 
 
 
 
@@ -1460,7 +1460,7 @@ Sumagot si Jonatan, "Hindi ito magandang balita, dahil ginawang hari ni Haring D
 
 
 
-Pinapunta niya ito sa Gihon kasama ang paring si Zadok, ang propetang si Natan, si Benaya na anak ni Jehoyada at ang kanyang mga personal na tagapagbantay na_ mga Kereteo at Peleteo. Pinasakay pa nila si Solomon sa mola ng hari. 
+Pinapunta niya ito sa Gihon kasama ang paring si Zadok, ang propetang si Natan, si Benaya na anak ni Jehoyada at ang kanyang mga personal na tagapagbantay na mga Kereteo at Peleteo. Pinasakay pa nila si Solomon sa mola ng hari. 
 
 
 
@@ -1658,7 +1658,7 @@ Nang marinig ito ng mga bisita ni Adonia, tumayo silang takot na takot, at isa-i
 
 
 
-Natakot din si Adonia kay Solomon, kaya pumunta siya sa tolda na sinasambahan_ at humawak sa parang_ mga sungay na bahagi ng altar. 
+Natakot din si Adonia kay Solomon, kaya pumunta siya sa tolda na sinasambahan at humawak sa parang mga sungay na bahagi ng altar. 
 
 
 
@@ -1691,7 +1691,7 @@ Natakot din si Adonia kay Solomon, kaya pumunta siya sa tolda na sinasambahan_ a
 
 
 
-May nagsabi kay Solomon, "Natakot sa inyo si Adonia, at ngayoʼy nakahawak siya sa parang_ mga sungay na bahagi ng altar. Hinihiling niya na sumumpa kayong hindi nʼyo siya papatayin." 
+May nagsabi kay Solomon, "Natakot sa inyo si Adonia, at ngayoʼy nakahawak siya sa parang mga sungay na bahagi ng altar. Hinihiling niya na sumumpa kayong hindi nʼyo siya papatayin." 
 
 
 
@@ -1757,4 +1757,4 @@ Sinabi ni Solomon, "Kung mananatili siyang tapat sa akin, hindi siya mapapahamak
 
 
 
-Pagkatapos, ipinakuha ni Haring Solomon si Adonia roon sa altar, at pagdating ni Adonia, yumukod siya kay Haring Solomon bilang paggalang_. Sinabi ni Solomon sa kanya, "Umuwi ka na."
+Pagkatapos, ipinakuha ni Haring Solomon si Adonia roon sa altar, at pagdating ni Adonia, yumukod siya kay Haring Solomon bilang paggalang. Sinabi ni Solomon sa kanya, "Umuwi ka na."

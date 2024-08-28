@@ -21,7 +21,7 @@ And I looked, and behold, a white horse. He who sat on it had a bow; and a crown
 When He opened the second seal, I heard the second living creature saying, "Come and see." 
 
 ###### 4 
-Another horse, fiery red, went out. And it was granted to the one who sat on it to take peace from the earth, and that _people_ should kill one another; and there was given to him a great sword.
+Another horse, fiery red, went out. And it was granted to the one who sat on it to take peace from the earth, and that people should kill one another; and there was given to him a great sword.
 
 ## Third Seal: Scarcity on Earth 
 
@@ -46,7 +46,7 @@ When He opened the fifth seal, I saw under the altar the souls of those who had 
 And they cried with a loud voice, saying, "How long, O Lord, holy and true, until You judge and avenge our blood on those who dwell on the earth?" 
 
 ###### 11 
-Then a white robe was given to each of them; and it was said to them that they should rest a little while longer, until both _the number of_ their fellow servants and their brethren, who would be killed as they _were,_ was completed.
+Then a white robe was given to each of them; and it was said to them that they should rest a little while longer, until both the number of their fellow servants and their brethren, who would be killed as they were, was completed.
 
 ## Sixth Seal: Cosmic Disturbances 
 

@@ -106,7 +106,7 @@ Sinasabi nilang hindi nʼyo raw ako ililigtas.
 
 
 
-Ngunit kayo ang aking kalasag. Pinalalakas nʼyo ako at pinagtatagumpay sa aking mga kaaway_. 
+Ngunit kayo ang aking kalasag. Pinalalakas nʼyo ako at pinagtatagumpay sa aking mga kaaway. 
 
 
 

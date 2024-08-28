@@ -271,7 +271,7 @@ Ang aming 12 lahi ay umaasa na matutupad ang pangakong ito. Kaya araw at gabi na
 
 
 
-At kayong mga Judio,_ bakit hindi kayo makapaniwala na kaya ng Dios na bumuhay ng mga patay? 
+At kayong mga Judio, bakit hindi kayo makapaniwala na kaya ng Dios na bumuhay ng mga patay? 
 
 
 
@@ -337,7 +337,7 @@ At kayong mga Judio,_ bakit hindi kayo makapaniwala na kaya ng Dios na bumuhay n
 
 
 
-Ganito ang aking ginawa noon sa Jerusalem. Sa pamamagitan ng kapangyarihang ibinigay sa akin ng mga namamahalang pari, maraming pinabanal ng Dios_ ang ipinabilanggo ko. At nang hatulan sila ng kamatayan, sumang-ayon ako. 
+Ganito ang aking ginawa noon sa Jerusalem. Sa pamamagitan ng kapangyarihang ibinigay sa akin ng mga namamahalang pari, maraming pinabanal ng Dios ang ipinabilanggo ko. At nang hatulan sila ng kamatayan, sumang-ayon ako. 
 
 
 

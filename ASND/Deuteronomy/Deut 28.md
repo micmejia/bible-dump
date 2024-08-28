@@ -436,7 +436,7 @@ Padadalhan kayo ng Panginoon ng ulan sa tamang panahon mula sa taguan ng kayaman
 
 
 
-Gagawin kayo ng Panginoon na pinuno ng mga bansa_, at hindi tagasunod lang. Lagi kayong nasa itaas at hindi sa ilalim kung susundin ninyong mabuti ang mga utos ng Panginoon na inyong Dios na ibinibigay ko sa inyo ngayon. 
+Gagawin kayo ng Panginoon na pinuno ng mga bansa, at hindi tagasunod lang. Lagi kayong nasa itaas at hindi sa ilalim kung susundin ninyong mabuti ang mga utos ng Panginoon na inyong Dios na ibinibigay ko sa inyo ngayon. 
 
 
 
@@ -768,7 +768,7 @@ Pahihirapan kayo ng Panginoon sa sakit na hindi gumagaling, lagnat, pamamaga, ma
 
 
 
-Magiging parang_ tanso ang langit na hindi magbibigay ng ulan_ at ang lupa ay matutuyo at magiging kasintigas_ ng bakal. 
+Magiging parang tanso ang langit na hindi magbibigay ng ulan at ang lupa ay matutuyo at magiging kasintigas ng bakal. 
 
 
 
@@ -1758,7 +1758,7 @@ Sasalakayin nila ang lahat ng lungsod na ibinibigay ng Panginoon na inyong Dios 
 
 
 
-"Sa panahong pinapalibutan kayo ng mga kaaway, kakainin ninyo ang inyong mga anak na ibinigay sa inyo ng Panginoon na inyong Dios dahil sa sobrang gutom_. 
+"Sa panahong pinapalibutan kayo ng mga kaaway, kakainin ninyo ang inyong mga anak na ibinigay sa inyo ng Panginoon na inyong Dios dahil sa sobrang gutom. 
 
 
 

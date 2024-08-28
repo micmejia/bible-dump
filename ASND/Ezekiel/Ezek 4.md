@@ -40,7 +40,7 @@ next: ['Ezek 5']
 
 
 
-Sinabi ng Panginoon sa akin_, "Anak ng tao, kumuha ka ng tisa, ilagay mo ito sa harap mo at iguhit doon ang lungsod ng Jerusalem. 
+Sinabi ng Panginoon sa akin, "Anak ng tao, kumuha ka ng tisa, ilagay mo ito sa harap mo at iguhit doon ang lungsod ng Jerusalem. 
 
 
 
@@ -106,7 +106,7 @@ Gawin mo ito na parang sinasalakay ng mga kaaway. Lagyan mo ng mga hagdan sa tab
 
 
 
-Pagkatapos, kumuha ka ng malapad na bakal at ilagay mo na parang pader sa pagitan mo at ng lungsod. Humarap ka sa lungsod na parang sinasalakay mo ito. Ito ang magiging palatandaan sa mga mamamayan ng Israel na sasalakayin sila ng kanilang mga kaaway_. 
+Pagkatapos, kumuha ka ng malapad na bakal at ilagay mo na parang pader sa pagitan mo at ng lungsod. Humarap ka sa lungsod na parang sinasalakay mo ito. Ito ang magiging palatandaan sa mga mamamayan ng Israel na sasalakayin sila ng kanilang mga kaaway. 
 
 
 
@@ -238,7 +238,7 @@ Pagkatapos, bumaling ka sa kanan at pasanin mo rin ang kasalanan ng mga taga-Jud
 
 
 
-Tingnan mong muli_ ang tisa, na may larawan ng_ Jerusalem na kinubkob, at magsalita ka laban sa Jerusalem na nakatupi ang manggas ng iyong damit. 
+Tingnan mong muli ang tisa, na may larawan ng Jerusalem na kinubkob, at magsalita ka laban sa Jerusalem na nakatupi ang manggas ng iyong damit. 
 
 
 

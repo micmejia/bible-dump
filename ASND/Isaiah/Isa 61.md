@@ -108,7 +108,7 @@ Muli nilang itatayo ang kanilang mga lungsod na matagal nang nagiba.
 
 
 
-Mga mamamayan ng Dios, maglilingkod sa inyo_ ang mga dayuhan. Aalagaan nila ang inyong mga hayop, at magtatrabaho sila sa inyong mga bukid at mga ubasan. 
+Mga mamamayan ng Dios, maglilingkod sa inyo ang mga dayuhan. Aalagaan nila ang inyong mga hayop, at magtatrabaho sila sa inyong mga bukid at mga ubasan. 
 
 
 
@@ -306,4 +306,4 @@ Nalulugod ako sa Panginoon kong Dios, dahil para niya akong binihisan ng kaligta
 
 
 
-Sapagkat kung papaanong tiyak_ na sa lupa tumutubo ang mga binhi, ang tagumpay at katuwiran naman ay tiyak_ na manggagaling sa Panginoong Dios, at pupurihin siya ng mga bansa.
+Sapagkat kung papaanong tiyak na sa lupa tumutubo ang mga binhi, ang tagumpay at katuwiran naman ay tiyak na manggagaling sa Panginoong Dios, at pupurihin siya ng mga bansa.

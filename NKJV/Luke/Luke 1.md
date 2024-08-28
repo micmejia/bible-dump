@@ -23,7 +23,7 @@ that you may know the certainty of those things in which you were instructed.
 ## John's Birth Announced to Zacharias 
 
 ###### 5 
-There was in the days of Herod, the king of Judea, a certain priest named Zacharias, of the division of Abijah. His wife _was_ of the daughters of Aaron, and her name _was_ Elizabeth. 
+There was in the days of Herod, the king of Judea, a certain priest named Zacharias, of the division of Abijah. His wife was of the daughters of Aaron, and her name was Elizabeth. 
 
 ###### 6 
 And they were both righteous before God, walking in all the commandments and ordinances of the Lord blameless. 
@@ -44,7 +44,7 @@ And the whole multitude of the people was praying outside at the hour of incense
 Then an angel of the Lord appeared to him, standing on the right side of the altar of incense. 
 
 ###### 12 
-And when Zacharias saw _him,_ he was troubled, and fear fell upon him. 
+And when Zacharias saw him, he was troubled, and fear fell upon him. 
 
 ###### 13 
 But the angel said to him, "Do not be afraid, Zacharias, for your prayer is heard; and your wife Elizabeth will bear you a son, and you shall call his name John. 
@@ -83,19 +83,19 @@ So it was, as soon as the days of his service were completed, that he departed t
 Now after those days his wife Elizabeth conceived; and she hid herself five months, saying, 
 
 ###### 25 
-"Thus the Lord has dealt with me, in the days when He looked on _me,_ to take away my reproach among people." ## Christ's Birth Announced to Mary 
+"Thus the Lord has dealt with me, in the days when He looked on me, to take away my reproach among people." ## Christ's Birth Announced to Mary 
 
 ###### 26 
 Now in the sixth month the angel Gabriel was sent by God to a city of Galilee named Nazareth, 
 
 ###### 27 
-to a virgin betrothed to a man whose name was Joseph, of the house of David. The virgin's name _was_ Mary. 
+to a virgin betrothed to a man whose name was Joseph, of the house of David. The virgin's name was Mary. 
 
 ###### 28 
-And having come in, the angel said to her, "Rejoice, highly favored _one,_ the Lord _is_ with you; blessed _are_ you among women!" 
+And having come in, the angel said to her, "Rejoice, highly favored one, the Lord is with you; blessed are you among women!" 
 
 ###### 29 
-But when she saw _him,_ she was troubled at his saying, and considered what manner of greeting this was. 
+But when she saw him, she was troubled at his saying, and considered what manner of greeting this was. 
 
 ###### 30 
 Then the angel said to her, "Do not be afraid, Mary, for you have found favor with God. 
@@ -113,7 +113,7 @@ And He will reign over the house of Jacob forever, and of His kingdom there will
 Then Mary said to the angel, "How can this be, since I do not know a man?" 
 
 ###### 35 
-And the angel answered and said to her, "_The_ Holy Spirit will come upon you, and the power of the Highest will overshadow you; therefore, also, that Holy One who is to be born will be called the Son of God. 
+And the angel answered and said to her, "The Holy Spirit will come upon you, and the power of the Highest will overshadow you; therefore, also, that Holy One who is to be born will be called the Son of God. 
 
 ###### 36 
 Now indeed, Elizabeth your relative has also conceived a son in her old age; and this is now the sixth month for her who was called barren. 
@@ -136,16 +136,16 @@ and entered the house of Zacharias and greeted Elizabeth.
 And it happened, when Elizabeth heard the greeting of Mary, that the babe leaped in her womb; and Elizabeth was filled with the Holy Spirit. 
 
 ###### 42 
-Then she spoke out with a loud voice and said, "Blessed _are_ you among women, and blessed _is_ the fruit of your womb! 
+Then she spoke out with a loud voice and said, "Blessed are you among women, and blessed is the fruit of your womb! 
 
 ###### 43 
-But why _is_ this _granted_ to me, that the mother of my Lord should come to me? 
+But why is this granted to me, that the mother of my Lord should come to me? 
 
 ###### 44 
 For indeed, as soon as the voice of your greeting sounded in my ears, the babe leaped in my womb for joy. 
 
 ###### 45 
-Blessed _is_ she who believed, for there will be a fulfillment of those things which were told her from the Lord." ## The Song of Mary 
+Blessed is she who believed, for there will be a fulfillment of those things which were told her from the Lord." ## The Song of Mary 
 
 ###### 46 
 And Mary said: "My soul magnifies the Lord, 
@@ -157,22 +157,22 @@ And my spirit has rejoiced in God my Savior.
 For He has regarded the lowly state of His maidservant; For behold, henceforth all generations will call me blessed. 
 
 ###### 49 
-For He who is mighty has done great things for me, And holy _is_ His name. 
+For He who is mighty has done great things for me, And holy is His name. 
 
 ###### 50 
-And His mercy _is_ on those who fear Him From generation to generation. 
+And His mercy is on those who fear Him From generation to generation. 
 
 ###### 51 
-He has shown strength with His arm; He has scattered _the_ proud in the imagination of their hearts. 
+He has shown strength with His arm; He has scattered the proud in the imagination of their hearts. 
 
 ###### 52 
-He has put down the mighty from _their_ thrones, And exalted _the_ lowly. 
+He has put down the mighty from their thrones, And exalted the lowly. 
 
 ###### 53 
-He has filled _the_ hungry with good things, And _the_ rich He has sent away empty. 
+He has filled the hungry with good things, And the rich He has sent away empty. 
 
 ###### 54 
-He has helped His servant Israel, In remembrance of _His_ mercy, 
+He has helped His servant Israel, In remembrance of His mercy, 
 
 ###### 55 
 As He spoke to our fathers, To Abraham and to his seed forever." 
@@ -206,13 +206,13 @@ So they made signs to his father--what he would have him called.
 And he asked for a writing tablet, and wrote, saying, "His name is John." So they all marveled. 
 
 ###### 64 
-Immediately his mouth was opened and his tongue _loosed,_ and he spoke, praising God. 
+Immediately his mouth was opened and his tongue loosed, and he spoke, praising God. 
 
 ###### 65 
 Then fear came on all who dwelt around them; and all these sayings were discussed throughout all the hill country of Judea. 
 
 ###### 66 
-And all those who heard _them_ kept _them_ in their hearts, saying, "What kind of child will this be?" And the hand of the Lord was with him.
+And all those who heard them kept them in their hearts, saying, "What kind of child will this be?" And the hand of the Lord was with him.
 
 ## Zacharias' Prophecy 
 
@@ -220,19 +220,19 @@ And all those who heard _them_ kept _them_ in their hearts, saying, "What kind o
 Now his father Zacharias was filled with the Holy Spirit, and prophesied, saying: 
 
 ###### 68 
-"Blessed _is_ the Lord God of Israel, For He has visited and redeemed His people, 
+"Blessed is the Lord God of Israel, For He has visited and redeemed His people, 
 
 ###### 69 
 And has raised up a horn of salvation for us In the house of His servant David, 
 
 ###### 70 
-As He spoke by the mouth of His holy prophets, Who _have been_ since the world began, 
+As He spoke by the mouth of His holy prophets, Who have been since the world began, 
 
 ###### 71 
 That we should be saved from our enemies And from the hand of all who hate us, 
 
 ###### 72 
-To perform the mercy _promised_ to our fathers And to remember His holy covenant, 
+To perform the mercy promised to our fathers And to remember His holy covenant, 
 
 ###### 73 
 The oath which He swore to our father Abraham: 

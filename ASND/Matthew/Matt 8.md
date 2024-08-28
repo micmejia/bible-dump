@@ -139,7 +139,7 @@ Hinawakan siya ni Jesus at sinabi, "Gusto ko. Luminis ka!" Agad na gumaling ang 
 
 
 
-At sinabi sa kanya ni Jesus, "Huwag mo itong sasabihin kaninuman. Sa halip, pumunta ka sa pari at magpasuri. Pagkatapos, maghandog ka ayon sa iniutos ni Moises bilang patunay na malinis ka na_." ## Pinagaling ni Jesus ang Utusan ng Kapitan 
+At sinabi sa kanya ni Jesus, "Huwag mo itong sasabihin kaninuman. Sa halip, pumunta ka sa pari at magpasuri. Pagkatapos, maghandog ka ayon sa iniutos ni Moises bilang patunay na malinis ka na." ## Pinagaling ni Jesus ang Utusan ng Kapitan 
 
 
 
@@ -172,7 +172,7 @@ At sinabi sa kanya ni Jesus, "Huwag mo itong sasabihin kaninuman. Sa halip, pumu
 
 
 
-Nang dumating si Jesus sa bayan ng_ Capernaum, pumunta sa kanya ang isang kapitan ng hukbong Romano at nakiusap: 
+Nang dumating si Jesus sa bayan ng Capernaum, pumunta sa kanya ang isang kapitan ng hukbong Romano at nakiusap: 
 
 
 
@@ -271,7 +271,7 @@ Sinabi ni Jesus, "Pupuntahan ko siya at pagagalingin."
 
 
 
-Pero sumagot ang kapitan, "Panginoon, hindi po ako karapat-dapat na puntahan nʼyo ang tahanan ko. Sabihin nʼyo na lang na gumaling siya_, at gagaling na ang aking utusan. 
+Pero sumagot ang kapitan, "Panginoon, hindi po ako karapat-dapat na puntahan nʼyo ang tahanan ko. Sabihin nʼyo na lang na gumaling siya, at gagaling na ang aking utusan. 
 
 
 
@@ -471,7 +471,7 @@ At sinabi ni Jesus sa kapitan, "Umuwi ka na. Mangyayari ang hinihiling mo ayon s
 
 
 
-Pumunta si Jesus sa bahay ni Pedro. Pagdating niya roon,_ nakita niya ang biyenang babae ni Pedro na nakahiga at nilalagnat. 
+Pumunta si Jesus sa bahay ni Pedro. Pagdating niya roon, nakita niya ang biyenang babae ni Pedro na nakahiga at nilalagnat. 
 
 
 
@@ -603,7 +603,7 @@ Ginawa niya ang mga ito upang matupad ang sinabi ni Propeta Isaias, "Kinuha niya
 
 
 
-Nang makita ni Jesus ang napakaraming tao sa kanyang paligid, inutusan niya ang mga tagasunod niya_ na tumawid sa kabila ng lawa. 
+Nang makita ni Jesus ang napakaraming tao sa kanyang paligid, inutusan niya ang mga tagasunod niya na tumawid sa kabila ng lawa. 
 
 
 
@@ -669,7 +669,7 @@ May tagapagturo ng Kautusan na lumapit sa kanya at sinabi, "Guro, susunod po ako
 
 
 
-Pero sinagot siya ni Jesus, "May mga lungga ang mga asong-gubat, at may mga pugad ang mga ibon. Ngunit ako na_ Anak ng Tao ay walang sariling tahanan na mapagpahingahan." 
+Pero sinagot siya ni Jesus, "May mga lungga ang mga asong-gubat, at may mga pugad ang mga ibon. Ngunit ako na Anak ng Tao ay walang sariling tahanan na mapagpahingahan." 
 
 
 
@@ -801,7 +801,7 @@ Sumakay sa bangka si Jesus, at sumama ang mga tagasunod niya.
 
 
 
-At habang naglalayag sila_, biglang lumakas ang hangin at halos matabunan na ng malalaking alon ang kanilang bangka. Natutulog noon si Jesus. 
+At habang naglalayag sila, biglang lumakas ang hangin at halos matabunan na ng malalaking alon ang kanilang bangka. Natutulog noon si Jesus. 
 
 
 
@@ -933,7 +933,7 @@ Namangha ang mga tagasunod niya at sinabi, "Anong klaseng tao ito? Kahit ang han
 
 
 
-Nang dumating siya sa kabila ng lawa_, sa lupain ng mga Gadareno, sinalubong siya ng dalawang lalaking galing sa mga kwebang_ libingan. Ang mga lalaking itoʼy sinasaniban ng masasamang espiritu. Napakababangis nila, kaya walang nakakadaan doon. 
+Nang dumating siya sa kabila ng lawa, sa lupain ng mga Gadareno, sinalubong siya ng dalawang lalaking galing sa mga kwebang libingan. Ang mga lalaking itoʼy sinasaniban ng masasamang espiritu. Napakababangis nila, kaya walang nakakadaan doon. 
 
 
 
@@ -1065,7 +1065,7 @@ Nakiusap ang masasamang espiritu sa kanya, "Kung palalayasin mo kami, payagan mo
 
 
 
-Sinabi ni Jesus, "Sige, umalis kayo!" Kaya lumabas ang masasamang espiritu sa dalawang lalaki_ at pumasok sa mga baboy. Nagtakbuhan ang buong kawan ng baboy pababa ng burol, nagtuloy-tuloy sa lawa at nalunod. 
+Sinabi ni Jesus, "Sige, umalis kayo!" Kaya lumabas ang masasamang espiritu sa dalawang lalaki at pumasok sa mga baboy. Nagtakbuhan ang buong kawan ng baboy pababa ng burol, nagtuloy-tuloy sa lawa at nalunod. 
 
 
 

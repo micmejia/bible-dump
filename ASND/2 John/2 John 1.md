@@ -38,7 +38,7 @@ up: ['2 John']
 
 
 
-Mula sa_ namumuno sa iglesya. Mahal kong_ Ginang na pinili ng Dios_, kasama ng iyong mga anak. Minamahal ko kayong tunay, at hindi lang ako kundi ang lahat ng nakakakilala sa katotohanan. 
+Mula sa namumuno sa iglesya. Mahal kong Ginang na pinili ng Dios, kasama ng iyong mga anak. Minamahal ko kayong tunay, at hindi lang ako kundi ang lahat ng nakakakilala sa katotohanan. 
 
 
 
@@ -71,7 +71,7 @@ Mula sa_ namumuno sa iglesya. Mahal kong_ Ginang na pinili ng Dios_, kasama ng i
 
 
 
-Minamahal namin kayo_ dahil sa katotohanang nasa atin at mananatili sa atin magpakailanman. 
+Minamahal namin kayo dahil sa katotohanang nasa atin at mananatili sa atin magpakailanman. 
 
 
 
@@ -139,7 +139,7 @@ Manatili sana sa atin ang biyaya, awa, at kapayapaang galing sa Dios Ama at sa P
 
 
 
-Labis ang kagalakan ko nang malaman ko na ang ilan sa mga anak mo ay sumusunod sa katotohanan, ayon sa iniutos sa atin ng Dios_ Ama. 
+Labis ang kagalakan ko nang malaman ko na ang ilan sa mga anak mo ay sumusunod sa katotohanan, ayon sa iniutos sa atin ng Dios Ama. 
 
 
 
@@ -238,7 +238,7 @@ Makikita ang pag-ibig sa atin kung namumuhay tayo ayon sa mga utos ng Dios. At a
 
 
 
-Mahalaga ito,_ dahil marami nang nagkalat na manlilinlang sa mundo. Ito ang mga taong hindi kumikilala na si Jesu-Cristo ay naging tao. Silaʼy mga manlilinlang at anti-Cristo. 
+Mahalaga ito, dahil marami nang nagkalat na manlilinlang sa mundo. Ito ang mga taong hindi kumikilala na si Jesu-Cristo ay naging tao. Silaʼy mga manlilinlang at anti-Cristo. 
 
 
 

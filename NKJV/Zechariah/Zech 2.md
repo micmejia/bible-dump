@@ -13,13 +13,13 @@ next: ['Zech 3']
 Then I raised my eyes and looked, and behold, a man with a measuring line in his hand. 
 
 ###### 2 
-So I said, "Where are you going?" And he said to me, "To measure Jerusalem, to see what _is_ its width and what _is_ its length." 
+So I said, "Where are you going?" And he said to me, "To measure Jerusalem, to see what is its width and what is its length." 
 
 ###### 3 
-And there _was_ the angel who talked with me, going out; and another angel was coming out to meet him, 
+And there was the angel who talked with me, going out; and another angel was coming out to meet him, 
 
 ###### 4 
-who said to him, "Run, speak to this young man, saying: 'Jerusalem shall be inhabited _as_ towns without walls, because of the multitude of men and livestock in it. 
+who said to him, "Run, speak to this young man, saying: 'Jerusalem shall be inhabited as towns without walls, because of the multitude of men and livestock in it. 
 
 ###### 5 
 For I,' says the Lord, 'will be a wall of fire all around her, and I will be the glory in her midst.' " ## Future Joy of Zion and Many Nations 

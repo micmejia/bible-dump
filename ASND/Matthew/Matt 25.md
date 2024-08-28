@@ -40,7 +40,7 @@ next: ['Matt 26']
 
 
 
-"Ang paghahari ng Dios sa araw na iyon ay maitutulad sa kwentong ito: May_ sampung dalagang lumabas na may dalang ilawan upang salubungin ang lalaking ikakasal. 
+"Ang paghahari ng Dios sa araw na iyon ay maitutulad sa kwentong ito: May sampung dalagang lumabas na may dalang ilawan upang salubungin ang lalaking ikakasal. 
 
 
 
@@ -436,7 +436,7 @@ Pero sumagot ang lalaki, 'Hindi ko kayo kilala.' "
 
 
 
-At sinabi ni Jesus,_ "Kaya magbantay kayo, dahil hindi ninyo alam ang araw o oras ng aking pagbabalik." ## Ang Talinghaga tungkol sa Tatlong Alipin 
+At sinabi ni Jesus, "Kaya magbantay kayo, dahil hindi ninyo alam ang araw o oras ng aking pagbabalik." ## Ang Talinghaga tungkol sa Tatlong Alipin 
 
 
 
@@ -469,7 +469,7 @@ At sinabi ni Jesus,_ "Kaya magbantay kayo, dahil hindi ninyo alam ang araw o ora
 
 
 
-Sinabi pa ni Jesus, "Ang paghahari ng Dios ay_ maitutulad sa kwentong ito: May_ isang taong papunta sa malayong lugar. Kaya tinawag niya ang kanyang mga alipin at ipinagkatiwala sa kanila ang pera niya. 
+Sinabi pa ni Jesus, "Ang paghahari ng Dios ay maitutulad sa kwentong ito: May isang taong papunta sa malayong lugar. Kaya tinawag niya ang kanyang mga alipin at ipinagkatiwala sa kanila ang pera niya. 
 
 
 
@@ -931,7 +931,7 @@ Bakit hindi mo na lang idineposito sa bangko ang pera ko para sa pagbalik ko ay 
 
 
 
-Kaya sinabi niya sa iba pang mga utusan,_ 'Kunin ninyo sa kanya ang 1,000 at ibigay sa mayroong 10,000. 
+Kaya sinabi niya sa iba pang mga utusan, 'Kunin ninyo sa kanya ang 1,000 at ibigay sa mayroong 10,000. 
 
 
 
@@ -1030,7 +1030,7 @@ Itapon ninyo ang walang silbing alipin na iyan sa kadiliman sa labas. Doon ay ii
 
 
 
-"Kapag ako na_ Anak ng Tao ay dumating na bilang Hari, kasama ang lahat ng anghel, uupo ako sa aking dakilang trono. 
+"Kapag ako na Anak ng Tao ay dumating na bilang Hari, kasama ang lahat ng anghel, uupo ako sa aking dakilang trono. 
 
 
 
@@ -1096,7 +1096,7 @@ Titipunin ko sa aking harapan ang lahat ng lahi sa mundo. Pagbubukud-bukurin ko 
 
 
 
-Ang mga tupa, na walang iba kundi ang matutuwid,_ ay ilalagay ko sa aking kanan, at ang mga kambing, na walang iba kundi ang masasama,_ ay ilalagay ko sa aking kaliwa. 
+Ang mga tupa, na walang iba kundi ang matutuwid, ay ilalagay ko sa aking kanan, at ang mga kambing, na walang iba kundi ang masasama, ay ilalagay ko sa aking kaliwa. 
 
 
 
@@ -1327,7 +1327,7 @@ Kailan namin kayo nakitang may sakit o nasa kulungan at aming binisita?'
 
 
 
-At sasagot ako bilang Hari, 'Sinasabi ko sa inyo ang totoo, nang ginawa nʼyo ito sa pinakahamak kong mga kapatid, para na rin_ nʼyo itong ginawa sa akin.' 
+At sasagot ako bilang Hari, 'Sinasabi ko sa inyo ang totoo, nang ginawa nʼyo ito sa pinakahamak kong mga kapatid, para na rin nʼyo itong ginawa sa akin.' 
 
 
 

@@ -306,7 +306,7 @@ Nakikiusap ako na ipakita ninyo sa kanya na mahal nʼyo pa rin siya.
 
 
 
-At ito nga ang dahilan ng pagsulat ko sa inyo, dahil gusto kong malaman kung sinusunod ninyong mabuti ang lahat ng sinasabi ko sa inyo_. 
+At ito nga ang dahilan ng pagsulat ko sa inyo, dahil gusto kong malaman kung sinusunod ninyong mabuti ang lahat ng sinasabi ko sa inyo. 
 
 
 
@@ -372,7 +372,7 @@ Kung pinatawad na ninyo ang taong nagkasala, pinatawad ko na rin siya. At kung n
 
 
 
-Nararapat lamang na magpatawad tayo para_ hindi tayo madaig ni Satanas. Alam naman natin ang mga binabalak niyang masama.
+Nararapat lamang na magpatawad tayo para hindi tayo madaig ni Satanas. Alam naman natin ang mga binabalak niyang masama.
 
 ## Si Pablo sa Troas 
 

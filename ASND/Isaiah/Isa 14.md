@@ -40,7 +40,7 @@ next: ['Isa 15']
 
 
 
-Kaaawaan ng Panginoon ang Israel at muli niyang pipiliin bilang mga mamamayan niya_. Muli niyang patitirahin ang mga ito sa sarili nilang lupain, at may mga dayuhang maninirahang kasama nila. 
+Kaaawaan ng Panginoon ang Israel at muli niyang pipiliin bilang mga mamamayan niya. Muli niyang patitirahin ang mga ito sa sarili nilang lupain, at may mga dayuhang maninirahang kasama nila. 
 
 
 
@@ -108,7 +108,7 @@ Tutulungan ng ibang bansa ang Israel para makabalik sila sa lupaing ibinigay sa 
 
 
 
-Mga Israelita,_ sa araw na pagpapahingahin kayo ng Panginoon sa inyong mga paghihirap, pagtitiis at pagkaalipin, 
+Mga Israelita, sa araw na pagpapahingahin kayo ng Panginoon sa inyong mga paghihirap, pagtitiis at pagkaalipin, 
 
 
 
@@ -768,7 +768,7 @@ Sinabi ng Panginoong Makapangyarihan, "Lulusubin ko at wawasakin ang Babilonia. 
 
 
 
-Gagawin ko itong ilang, na may maraming latian, at gigibain ko na parang winalisan. Ako,_ ang Panginoong Makapangyarihan, ang nagsasabi nito." ## Ang Mensahe tungkol sa Asiria 
+Gagawin ko itong ilang, na may maraming latian, at gigibain ko na parang winalisan. Ako, ang Panginoong Makapangyarihan, ang nagsasabi nito." ## Ang Mensahe tungkol sa Asiria 
 
 
 

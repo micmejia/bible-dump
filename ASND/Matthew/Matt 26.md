@@ -73,7 +73,7 @@ Pagkatapos ipangaral ni Jesus ang lahat ng ito, sinabi niya sa mga tagasunod niy
 
 
 
-"Alam nʼyo na dalawang araw na lang at sasapit na ang Pista ng Paglampas ng Anghel, at ako na_ Anak ng Tao ay ibibigay sa mga taong kumokontra sa akin_ upang ipako sa krus." 
+"Alam nʼyo na dalawang araw na lang at sasapit na ang Pista ng Paglampas ng Anghel, at ako na Anak ng Tao ay ibibigay sa mga taong kumokontra sa akin upang ipako sa krus." 
 
 
 
@@ -205,7 +205,7 @@ Sinabi nila, "Huwag nating gawin sa pista dahil baka magkagulo ang mga tao." ## 
 
 
 
-Nang si Jesus ay nasa Betania, sa bahay ni Simon na dating_ may malubhang sakit sa balat, 
+Nang si Jesus ay nasa Betania, sa bahay ni Simon na dating may malubhang sakit sa balat, 
 
 
 
@@ -238,7 +238,7 @@ Nang si Jesus ay nasa Betania, sa bahay ni Simon na dating_ may malubhang sakit 
 
 
 
-lumapit sa kanya ang isang babae. May dala itong mamahaling pabango sa isang sisidlang yari sa batong_ alabastro. At habang kumakain si Jesus, ibinuhos ng babae ang pabango sa ulo ni Jesus. 
+lumapit sa kanya ang isang babae. May dala itong mamahaling pabango sa isang sisidlang yari sa batong alabastro. At habang kumakain si Jesus, ibinuhos ng babae ang pabango sa ulo ni Jesus. 
 
 
 
@@ -469,7 +469,7 @@ Sinasabi ko sa inyo ang totoo, kahit saan man ipapangaral ang Magandang Balita s
 
 
 
-Si Judas Iscariote na isa sa 12 tagasunod_ ay pumunta sa mga namamahalang pari. 
+Si Judas Iscariote na isa sa 12 tagasunod ay pumunta sa mga namamahalang pari. 
 
 
 
@@ -603,7 +603,7 @@ Nang dumating ang unang araw ng Pista ng Tinapay na Walang Pampaalsa, lumapit an
 
 
 
-Sumagot si Jesus, "Pumunta kayo sa lungsod ng Jerusalem_, doon sa taong binanggit ko sa inyo, at sabihin ninyo sa kanya, 'Ipinapasabi ng Guro na malapit na ang kanyang oras, at gusto niyang ipagdiwang ang Pista ng Paglampas ng Anghel sa iyong bahay, kasama ang mga tagasunod niya.' " 
+Sumagot si Jesus, "Pumunta kayo sa lungsod ng Jerusalem, doon sa taong binanggit ko sa inyo, at sabihin ninyo sa kanya, 'Ipinapasabi ng Guro na malapit na ang kanyang oras, at gusto niyang ipagdiwang ang Pista ng Paglampas ng Anghel sa iyong bahay, kasama ang mga tagasunod niya.' " 
 
 
 
@@ -768,7 +768,7 @@ Nalungkot sila nang marinig iyon, at isa-isa silang nagtanong sa kanya, "Pangino
 
 
 
-Sumagot siya, "Ang kasabay kong sumawsaw ng tinapay_ sa mangkok ang siyang magtatraydor sa akin. 
+Sumagot siya, "Ang kasabay kong sumawsaw ng tinapay sa mangkok ang siyang magtatraydor sa akin. 
 
 
 
@@ -801,7 +801,7 @@ Sumagot siya, "Ang kasabay kong sumawsaw ng tinapay_ sa mangkok ang siyang magta
 
 
 
-Ako na_ Anak ng Tao ay papatayin ayon sa sinasabi ng Kasulatan, ngunit nakakaawa ang taong magtatraydor sa akin! Mabuti pang hindi na siya ipinanganak." 
+Ako na Anak ng Tao ay papatayin ayon sa sinasabi ng Kasulatan, ngunit nakakaawa ang taong magtatraydor sa akin! Mabuti pang hindi na siya ipinanganak." 
 
 
 
@@ -867,7 +867,7 @@ Nagtanong din si Judas na siyang magtatraydor sa kanya, "Guro, ako po ba iyon?" 
 
 
 
-Habang kumakain sila, kumuha si Jesus ng tinapay. Nagpasalamat siya sa Dios_ at pagkatapos ay hinati-hati niya ito at ibinigay sa mga tagasunod niya. Sinabi niya, "Kunin ninyo at kainin; ito ang aking katawan." 
+Habang kumakain sila, kumuha si Jesus ng tinapay. Nagpasalamat siya sa Dios at pagkatapos ay hinati-hati niya ito at ibinigay sa mga tagasunod niya. Sinabi niya, "Kunin ninyo at kainin; ito ang aking katawan." 
 
 
 
@@ -900,7 +900,7 @@ Habang kumakain sila, kumuha si Jesus ng tinapay. Nagpasalamat siya sa Dios_ at 
 
 
 
-Pagkatapos, kumuha siya ng inumin, nagpasalamat sa Dios_, at ibinigay sa kanila. Sinabi niya, "Uminom kayong lahat nito, 
+Pagkatapos, kumuha siya ng inumin, nagpasalamat sa Dios, at ibinigay sa kanila. Sinabi niya, "Uminom kayong lahat nito, 
 
 
 
@@ -966,7 +966,7 @@ dahil ito ang aking dugo na ibubuhos para sa kapatawaran ng kasalanan ng maramin
 
 
 
-Sinasabi ko sa inyo na hindi na ako muling iinom ng inuming mula sa ubas hanggang sa araw ng paghahari ng aking Ama. At sa araw na iyon, iinom ako ng bagong klase ng inumin_ kasama ninyo sa kaharian ng aking Ama." 
+Sinasabi ko sa inyo na hindi na ako muling iinom ng inuming mula sa ubas hanggang sa araw ng paghahari ng aking Ama. At sa araw na iyon, iinom ako ng bagong klase ng inumin kasama ninyo sa kaharian ng aking Ama." 
 
 
 
@@ -999,7 +999,7 @@ Sinasabi ko sa inyo na hindi na ako muling iinom ng inuming mula sa ubas hanggan
 
 
 
-Umawit sila ng papuri sa Dios_, at pagkatapos ay pumunta sila sa Bundok ng mga Olibo.
+Umawit sila ng papuri sa Dios, at pagkatapos ay pumunta sila sa Bundok ng mga Olibo.
 
 ## Sinabi ni Jesus na Ikakaila Siya ni Pedro 
 
@@ -1034,7 +1034,7 @@ Umawit sila ng papuri sa Dios_, at pagkatapos ay pumunta sila sa Bundok ng mga O
 
 
 
-Sinabi ni Jesus sa mga tagasunod niya, "Iiwan ninyo akong lahat ngayong gabi, dahil sinabi ng Dios_ sa Kasulatan, 'Papatayin ko ang pastol at magsisipangalat ang mga tupa.' 
+Sinabi ni Jesus sa mga tagasunod niya, "Iiwan ninyo akong lahat ngayong gabi, dahil sinabi ng Dios sa Kasulatan, 'Papatayin ko ang pastol at magsisipangalat ang mga tupa.' 
 
 
 
@@ -1333,7 +1333,7 @@ Lumayo siya nang kaunti, lumuhod at nanalangin, "Ama ko, kung maaari po ay ilayo
 
 
 
-Binalikan ni Jesus ang tatlo niyang_ tagasunod at dinatnan niya silang natutulog. Sinabi niya kay Pedro, "Hindi ba talaga kayo makapagpuyat na kasama ko kahit isang oras lang? 
+Binalikan ni Jesus ang tatlo niyang tagasunod at dinatnan niya silang natutulog. Sinabi niya kay Pedro, "Hindi ba talaga kayo makapagpuyat na kasama ko kahit isang oras lang? 
 
 
 
@@ -1498,7 +1498,7 @@ Lumayo ulit si Jesus sa ikatlong pagkakataon at nanalangin tulad ng nauna niyang
 
 
 
-Binalikan niya ang mga tagasunod niya at sinabi, "Natutulog pa rin ba kayo at nagpapahinga? Tingnan ninyo! Dumating na ang oras na ako na_ Anak ng Tao ay ibibigay sa mga makasalanan. 
+Binalikan niya ang mga tagasunod niya at sinabi, "Natutulog pa rin ba kayo at nagpapahinga? Tingnan ninyo! Dumating na ang oras na ako na Anak ng Tao ay ibibigay sa mga makasalanan. 
 
 
 
@@ -1564,7 +1564,7 @@ Tayo na! Narito na ang taong nagtatraydor sa akin." ## Ang Pagdakip kay Jesus
 
 
 
-Nagsasalita pa si Jesus nang dumating si Judas na isa sa 12 tagasunod_. Marami siyang kasama na armado ng mga espada at pamalo. Isinugo sila ng mga namamahalang pari at ng mga pinuno ng mga Judio. 
+Nagsasalita pa si Jesus nang dumating si Judas na isa sa 12 tagasunod. Marami siyang kasama na armado ng mga espada at pamalo. Isinugo sila ng mga namamahalang pari at ng mga pinuno ng mga Judio. 
 
 
 
@@ -1597,7 +1597,7 @@ Nagsasalita pa si Jesus nang dumating si Judas na isa sa 12 tagasunod_. Marami s
 
 
 
-Ganito ang palatandaan na ibinigay ng traydor na si Judas_ sa mga huhuli kay Jesus: "Ang babatiin ko sa pamamagitan ng isang halik ang siyang pakay ninyo. Dakpin ninyo siya." 
+Ganito ang palatandaan na ibinigay ng traydor na si Judas sa mga huhuli kay Jesus: "Ang babatiin ko sa pamamagitan ng isang halik ang siyang pakay ninyo. Dakpin ninyo siya." 
 
 
 
@@ -2127,7 +2127,7 @@ Hindi sumagot si Jesus. Kaya tinanong siyang muli ng punong pari, "Sa ngalan ng 
 
 
 
-Sumagot si Jesus, "Ikaw na mismo ang nagsabi. At nais kong sabihin sa inyong lahat na mula ngayon ay makikita ninyo ako na_ Anak ng Tao na nakaupo sa kanan ng makapangyarihan na Dios_. At makikita rin ninyo ako na dumarating mula sa ulap dito sa mundo_." 
+Sumagot si Jesus, "Ikaw na mismo ang nagsabi. At nais kong sabihin sa inyong lahat na mula ngayon ay makikita ninyo ako na Anak ng Tao na nakaupo sa kanan ng makapangyarihan na Dios. At makikita rin ninyo ako na dumarating mula sa ulap dito sa mundo." 
 
 
 
@@ -2160,7 +2160,7 @@ Sumagot si Jesus, "Ikaw na mismo ang nagsabi. At nais kong sabihin sa inyong lah
 
 
 
-Nang marinig iyon ng punong pari, pinunit niya ang kanyang damit sa galit_ at sinabi, "Nilalapastangan niya ang Dios! Kailangan pa ba natin ng mga saksi? Narinig ninyo ang paglapastangan niya sa Dios! 
+Nang marinig iyon ng punong pari, pinunit niya ang kanyang damit sa galit at sinabi, "Nilalapastangan niya ang Dios! Kailangan pa ba natin ng mga saksi? Narinig ninyo ang paglapastangan niya sa Dios! 
 
 
 

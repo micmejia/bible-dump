@@ -10,13 +10,13 @@ next: ['Acts 17']
 
 
 ###### 1 
-Then he came to Derbe and Lystra. And behold, a certain disciple was there, named Timothy, _the_ son of a certain Jewish woman who believed, but his father _was_ Greek. 
+Then he came to Derbe and Lystra. And behold, a certain disciple was there, named Timothy, the son of a certain Jewish woman who believed, but his father was Greek. 
 
 ###### 2 
 He was well spoken of by the brethren who were at Lystra and Iconium. 
 
 ###### 3 
-Paul wanted to have him go on with him. And he took _him_ and circumcised him because of the Jews who were in that region, for they all knew that his father was Greek. 
+Paul wanted to have him go on with him. And he took him and circumcised him because of the Jews who were in that region, for they all knew that his father was Greek. 
 
 ###### 4 
 And as they went through the cities, they delivered to them the decrees to keep, which were determined by the apostles and elders at Jerusalem. 
@@ -44,19 +44,19 @@ Now after he had seen the vision, immediately we sought to go to Macedonia, conc
 ## Lydia Baptized at Philippi 
 
 ###### 11 
-Therefore, sailing from Troas, we ran a straight course to Samothrace, and the next _day_ came to Neapolis, 
+Therefore, sailing from Troas, we ran a straight course to Samothrace, and the next day came to Neapolis, 
 
 ###### 12 
 and from there to Philippi, which is the foremost city of that part of Macedonia, a colony. And we were staying in that city for some days. 
 
 ###### 13 
-And on the Sabbath day we went out of the city to the riverside, where prayer was customarily made; and we sat down and spoke to the women who met _there._ 
+And on the Sabbath day we went out of the city to the riverside, where prayer was customarily made; and we sat down and spoke to the women who met there. 
 
 ###### 14 
-Now a certain woman named Lydia heard _us._ She was a seller of purple from the city of Thyatira, who worshiped God. The Lord opened her heart to heed the things spoken by Paul. 
+Now a certain woman named Lydia heard us. She was a seller of purple from the city of Thyatira, who worshiped God. The Lord opened her heart to heed the things spoken by Paul. 
 
 ###### 15 
-And when she and her household were baptized, she begged _us,_ saying, "If you have judged me to be faithful to the Lord, come to my house and stay." So she persuaded us.
+And when she and her household were baptized, she begged us, saying, "If you have judged me to be faithful to the Lord, come to my house and stay." So she persuaded us.
 
 ## Paul and Silas Imprisoned 
 
@@ -70,7 +70,7 @@ This girl followed Paul and us, and cried out, saying, "These men are the servan
 And this she did for many days. But Paul, greatly annoyed, turned and said to the spirit, "I command you in the name of Jesus Christ to come out of her." And he came out that very hour. 
 
 ###### 19 
-But when her masters saw that their hope of profit was gone, they seized Paul and Silas and dragged _them_ into the marketplace to the authorities. 
+But when her masters saw that their hope of profit was gone, they seized Paul and Silas and dragged them into the marketplace to the authorities. 
 
 ###### 20 
 And they brought them to the magistrates, and said, "These men, being Jews, exceedingly trouble our city; 
@@ -79,10 +79,10 @@ And they brought them to the magistrates, and said, "These men, being Jews, exce
 and they teach customs which are not lawful for us, being Romans, to receive or observe." 
 
 ###### 22 
-Then the multitude rose up together against them; and the magistrates tore off their clothes and commanded _them_ to be beaten with rods. 
+Then the multitude rose up together against them; and the magistrates tore off their clothes and commanded them to be beaten with rods. 
 
 ###### 23 
-And when they had laid many stripes on them, they threw _them_ into prison, commanding the jailer to keep them securely. 
+And when they had laid many stripes on them, they threw them into prison, commanding the jailer to keep them securely. 
 
 ###### 24 
 Having received such a charge, he put them into the inner prison and fastened their feet in the stocks.
@@ -114,7 +114,7 @@ So they said, "Believe on the Lord Jesus Christ, and you will be saved, you and 
 Then they spoke the word of the Lord to him and to all who were in his house. 
 
 ###### 33 
-And he took them the same hour of the night and washed _their_ stripes. And immediately he and all his _family_ were baptized. 
+And he took them the same hour of the night and washed their stripes. And immediately he and all his family were baptized. 
 
 ###### 34 
 Now when he had brought them into his house, he set food before them; and he rejoiced, having believed in God with all his household.
@@ -128,13 +128,13 @@ And when it was day, the magistrates sent the officers, saying, "Let those men g
 So the keeper of the prison reported these words to Paul, saying, "The magistrates have sent to let you go. Now therefore depart, and go in peace." 
 
 ###### 37 
-But Paul said to them, "They have beaten us openly, uncondemned Romans, _and_ have thrown _us_ into prison. And now do they put us out secretly? No indeed! Let them come themselves and get us out." 
+But Paul said to them, "They have beaten us openly, uncondemned Romans, and have thrown us into prison. And now do they put us out secretly? No indeed! Let them come themselves and get us out." 
 
 ###### 38 
 And the officers told these words to the magistrates, and they were afraid when they heard that they were Romans. 
 
 ###### 39 
-Then they came and pleaded with them and brought _them_ out, and asked _them_ to depart from the city. 
+Then they came and pleaded with them and brought them out, and asked them to depart from the city. 
 
 ###### 40 
-So they went out of the prison and entered _the house of_ Lydia; and when they had seen the brethren, they encouraged them and departed.
+So they went out of the prison and entered the house of Lydia; and when they had seen the brethren, they encouraged them and departed.

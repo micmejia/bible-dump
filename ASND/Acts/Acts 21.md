@@ -106,7 +106,7 @@ Doon sa Patara ay may nakita kaming barko na papuntang Fenicia, kaya sumakay aga
 
 
 
-Natanaw namin ang isla ng_ Cyprus, pero hindi kami pumunta roon kundi dumaan kami sa gawing kanan at tumuloy sa Syria. Dumaong kami sa bayan ng_ Tyre, dahil nagbaba roon ng kargamento ang barko. 
+Natanaw namin ang isla ng Cyprus, pero hindi kami pumunta roon kundi dumaan kami sa gawing kanan at tumuloy sa Syria. Dumaong kami sa bayan ng Tyre, dahil nagbaba roon ng kargamento ang barko. 
 
 
 
@@ -139,7 +139,7 @@ Natanaw namin ang isla ng_ Cyprus, pero hindi kami pumunta roon kundi dumaan kam
 
 
 
-Hinanap namin doon ang mga tagasunod ni Jesus_, at nakituloy kami sa kanila sa loob ng isang linggo. Sa pamamagitan ng kapangyarihan ng Banal na_ Espiritu, binalaan nila si Pablo na huwag pumunta sa Jerusalem. 
+Hinanap namin doon ang mga tagasunod ni Jesus, at nakituloy kami sa kanila sa loob ng isang linggo. Sa pamamagitan ng kapangyarihan ng Banal na Espiritu, binalaan nila si Pablo na huwag pumunta sa Jerusalem. 
 
 
 
@@ -271,7 +271,7 @@ Mula sa Tyre, nagpatuloy kami sa aming paglalakbay papuntang Tolemais. Pagdating
 
 
 
-Pagkatapos, pumunta naman kami sa Cesarea. Pagdating namin doon, pumunta kami sa bahay ni Felipe na tagapangaral ng Magandang Balita, at doon kami nakituloy. Si Felipe ay isa sa mga pitong lalaking hinirang noon sa Jerusalem na tumulong sa mga apostol_. 
+Pagkatapos, pumunta naman kami sa Cesarea. Pagdating namin doon, pumunta kami sa bahay ni Felipe na tagapangaral ng Magandang Balita, at doon kami nakituloy. Si Felipe ay isa sa mga pitong lalaking hinirang noon sa Jerusalem na tumulong sa mga apostol. 
 
 
 
@@ -535,7 +535,7 @@ Makaraan ang ilang araw, naghanda kami at umalis papuntang Jerusalem.
 
 
 
-Sinamahan kami ng ilang mga tagasunod ni Jesus_ na taga-Cesarea. Dinala nila kami sa bahay ni Mnason na taga-Cyprus at doon kami nakituloy. Si Mnason ay_ isa sa mga unang tagasunod ni Jesus_.
+Sinamahan kami ng ilang mga tagasunod ni Jesus na taga-Cesarea. Dinala nila kami sa bahay ni Mnason na taga-Cyprus at doon kami nakituloy. Si Mnason ay isa sa mga unang tagasunod ni Jesus.
 
 ## Dinalaw ni Pablo si Santiago 
 
@@ -603,7 +603,7 @@ Pagdating namin sa Jerusalem, malugod kaming tinanggap ng mga kapatid.
 
 
 
-Kinabukasan, sumama kami kay Pablo at dinalaw namin si Santiago. Naroon din ang mga namumuno ng iglesya sa Jerusalem_. 
+Kinabukasan, sumama kami kay Pablo at dinalaw namin si Santiago. Naroon din ang mga namumuno ng iglesya sa Jerusalem. 
 
 
 
@@ -702,7 +702,7 @@ Nang marinig nila ito, nagpuri silang lahat sa Dios. At sinabi nila kay Pablo, "
 
 
 
-Nabalitaan nilang itinuturo mo sa mga Judiong nakatira sa ibang bansa na hindi na nila kailangang sumunod sa Kautusan ni Moises. Sinabi mo raw na huwag na nilang tuliin ang kanilang mga anak o sundin ang iba pang kaugalian nating mga Judio_. 
+Nabalitaan nilang itinuturo mo sa mga Judiong nakatira sa ibang bansa na hindi na nila kailangang sumunod sa Kautusan ni Moises. Sinabi mo raw na huwag na nilang tuliin ang kanilang mga anak o sundin ang iba pang kaugalian nating mga Judio. 
 
 
 
@@ -768,7 +768,7 @@ Ngayon, ano kaya ang dapat mong gawin? Sapagkat siguradong malalaman nila na nan
 
 
 
-Mabuti siguroʼy gawin mo ang sasabihin namin sa iyo. May apat na lalaki rito na may panata sa Dios_. 
+Mabuti siguroʼy gawin mo ang sasabihin namin sa iyo. May apat na lalaki rito na may panata sa Dios. 
 
 
 
@@ -801,7 +801,7 @@ Mabuti siguroʼy gawin mo ang sasabihin namin sa iyo. May apat na lalaki rito na
 
 
 
-Sumama ka sa kanila at gawin ninyo ang seremonya sa paglilinis ayon sa Kautusan_. Bayaran mo na rin ang gastos nila sa seremonya para makapagpaahit din sila ng kanilang ulo. Sa ganitong paraan, malalaman ng lahat na ang balita na narinig nila tungkol sa iyo ay hindi totoo, dahil makikita nila na ikaw din ay sumusunod sa Kautusan ni Moises_. 
+Sumama ka sa kanila at gawin ninyo ang seremonya sa paglilinis ayon sa Kautusan. Bayaran mo na rin ang gastos nila sa seremonya para makapagpaahit din sila ng kanilang ulo. Sa ganitong paraan, malalaman ng lahat na ang balita na narinig nila tungkol sa iyo ay hindi totoo, dahil makikita nila na ikaw din ay sumusunod sa Kautusan ni Moises. 
 
 
 
@@ -902,7 +902,7 @@ Kaya kinabukasan, isinama ni Pablo ang apat na lalaki at isinagawa nila ang sere
 
 
 
-Nang matatapos na ang ikapitong araw ng kanilang paglilinis, may mga Judiong mula sa lalawigan ng_ Asia na nakakita kay Pablo sa templo. Sinulsulan nila ang lahat ng tao roon sa templo na hulihin si Pablo. 
+Nang matatapos na ang ikapitong araw ng kanilang paglilinis, may mga Judiong mula sa lalawigan ng Asia na nakakita kay Pablo sa templo. Sinulsulan nila ang lahat ng tao roon sa templo na hulihin si Pablo. 
 
 
 
@@ -935,7 +935,7 @@ Nang matatapos na ang ikapitong araw ng kanilang paglilinis, may mga Judiong mul
 
 
 
-Sumigaw sila, "Mga kababayan kong_ mga Israelita, tulungan ninyo kami! Ang taong ito ang nagtuturo laban sa Kautusan at sa templong ito kahit saan siya pumunta. Hindi lang iyan, dinala pa niya rito sa templo ang mga hindi Judio, kaya dinudungisan niya ang sagradong lugar na ito!" 
+Sumigaw sila, "Mga kababayan kong mga Israelita, tulungan ninyo kami! Ang taong ito ang nagtuturo laban sa Kautusan at sa templong ito kahit saan siya pumunta. Hindi lang iyan, dinala pa niya rito sa templo ang mga hindi Judio, kaya dinudungisan niya ang sagradong lugar na ito!" 
 
 
 
@@ -1100,7 +1100,7 @@ Kaya nagsama agad ang kumander ng mga kapitan at mga sundalo, at pinuntahan nila
 
 
 
-Pinuntahan ng kumander si Pablo at ipinahuli, at iniutos na gapusin siya ng dalawang kadena. Pagkatapos, tinanong ng kumander ang mga tao_, "Sino ba talaga ang taong ito at ano ang kanyang ginawa?" 
+Pinuntahan ng kumander si Pablo at ipinahuli, at iniutos na gapusin siya ng dalawang kadena. Pagkatapos, tinanong ng kumander ang mga tao, "Sino ba talaga ang taong ito at ano ang kanyang ginawa?" 
 
 
 
@@ -1166,7 +1166,7 @@ Pero iba-iba ang mga sagot na kanyang narinig, at dahil sa sobrang kaguluhan ng 
 
 
 
-Pagdating nila sa hagdanan ng kampo_, binuhat na lang nila si Pablo dahil sa kaguluhan ng mga tao 
+Pagdating nila sa hagdanan ng kampo, binuhat na lang nila si Pablo dahil sa kaguluhan ng mga tao 
 
 
 
@@ -1232,7 +1232,7 @@ na humahabol at sumisigaw ng, "Patayin siya!" ## Ipinagtanggol ni Pablo ang Sari
 
 
 
-Nang dalhin na si Pablo sa loob ng kampo ng mga sundalo_, sinabi niya sa kumander, "May sasabihin sana ako sa iyo." Sumagot ang kumander, "Marunong ka palang magsalita ng Griego? 
+Nang dalhin na si Pablo sa loob ng kampo ng mga sundalo, sinabi niya sa kumander, "May sasabihin sana ako sa iyo." Sumagot ang kumander, "Marunong ka palang magsalita ng Griego? 
 
 
 

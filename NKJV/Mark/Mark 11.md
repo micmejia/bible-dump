@@ -13,7 +13,7 @@ next: ['Mark 12']
 Now when they drew near Jerusalem, to Bethphage and Bethany, at the Mount of Olives, He sent two of His disciples; 
 
 ###### 2 
-and He said to them, "Go into the village opposite you; and as soon as you have entered it you will find a colt tied, on which no one has sat. Loose it and bring _it._ 
+and He said to them, "Go into the village opposite you; and as soon as you have entered it you will find a colt tied, on which no one has sat. Loose it and bring it. 
 
 ###### 3 
 And if anyone says to you, 'Why are you doing this?' say, 'The Lord has need of it,' and immediately he will send it here." 
@@ -31,13 +31,13 @@ And they spoke to them just as Jesus had commanded. So they let them go.
 Then they brought the colt to Jesus and threw their clothes on it, and He sat on it. 
 
 ###### 8 
-And many spread their clothes on the road, and others cut down leafy branches from the trees and spread _them_ on the road. 
+And many spread their clothes on the road, and others cut down leafy branches from the trees and spread them on the road. 
 
 ###### 9 
-Then those who went before and those who followed cried out, saying: "Hosanna! 'Blessed _is_ He who comes in the name of the Lord!' 
+Then those who went before and those who followed cried out, saying: "Hosanna! 'Blessed is He who comes in the name of the Lord!' 
 
 ###### 10 
-Blessed _is_ the kingdom of our father David That comes in the name of the Lord! Hosanna in the highest!" 
+Blessed is the kingdom of our father David That comes in the name of the Lord! Hosanna in the highest!" 
 
 ###### 11 
 And Jesus went into Jerusalem and into the temple. So when He had looked around at all things, as the hour was already late, He went out to Bethany with the twelve.
@@ -51,7 +51,7 @@ Now the next day, when they had come out from Bethany, He was hungry.
 And seeing from afar a fig tree having leaves, He went to see if perhaps He would find something on it. When He came to it, He found nothing but leaves, for it was not the season for figs. 
 
 ###### 14 
-In response Jesus said to it, "Let no one eat fruit from you ever again." And His disciples heard _it._
+In response Jesus said to it, "Let no one eat fruit from you ever again." And His disciples heard it.
 
 ## Jesus Cleanses the Temple 
 
@@ -85,7 +85,7 @@ So Jesus answered and said to them, "Have faith in God.
 For assuredly, I say to you, whoever says to this mountain, 'Be removed and be cast into the sea,' and does not doubt in his heart, but believes that those things he says will be done, he will have whatever he says. 
 
 ###### 24 
-Therefore I say to you, whatever things you ask when you pray, believe that you receive _them,_ and you will have _them._
+Therefore I say to you, whatever things you ask when you pray, believe that you receive them, and you will have them.
 
 ## Forgiveness and Prayer 
 

@@ -108,7 +108,7 @@ Walang matitira sa inyo. Mabibihag o mamamatay kayo, pero ang galit ng Panginoon
 
 
 
-Sinabi ng Panginoon,_ "Nakakaawa ang mga taga-Asiria. Sila ang gagamitin kong pamalo para parusahan ang mga kinamumuhian ko. 
+Sinabi ng Panginoon, "Nakakaawa ang mga taga-Asiria. Sila ang gagamitin kong pamalo para parusahan ang mga kinamumuhian ko. 
 
 
 
@@ -207,7 +207,7 @@ Pero hindi malalaman ng hari ng Asiria na ginagamit lang siya ng Panginoon. Akal
 
 
 
-Buong pagmamalaki niyang sinabi, "Ang mga kumander ng mga sundalo ko ay parang_ mga hari. 
+Buong pagmamalaki niyang sinabi, "Ang mga kumander ng mga sundalo ko ay parang mga hari. 
 
 
 
@@ -240,7 +240,7 @@ Buong pagmamalaki niyang sinabi, "Ang mga kumander ng mga sundalo ko ay parang_ 
 
 
 
-Anong pagkakaiba ng Carkemish at Calno, ng Arpad at Hamat, at ng Damascus at Samaria? Silang lahat ay pare-pareho kong winasak_. 
+Anong pagkakaiba ng Carkemish at Calno, ng Arpad at Hamat, at ng Damascus at Samaria? Silang lahat ay pare-pareho kong winasak. 
 
 
 
@@ -768,7 +768,7 @@ Nilusob ng Asiria ang Ayat. Doon sila dumaan sa Migron at iniwan nila sa Micmash
 
 
 
-Dumaan sila sa tawiran, at doon natulog sa Geba. Natakot ang mga taga-Rama, at tumakas ang mga mamamayan ng Gibea na bayan ni Haring_ Saul. 
+Dumaan sila sa tawiran, at doon natulog sa Geba. Natakot ang mga taga-Rama, at tumakas ang mga mamamayan ng Gibea na bayan ni Haring Saul. 
 
 
 

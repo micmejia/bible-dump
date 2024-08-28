@@ -10,7 +10,7 @@ next: ['Luke 3']
 
 
 ###### 1 
-And it came to pass in those days _that_ a decree went out from Caesar Augustus that all the world should be registered. 
+And it came to pass in those days that a decree went out from Caesar Augustus that all the world should be registered. 
 
 ###### 2 
 This census first took place while Quirinius was governing Syria. 
@@ -45,7 +45,7 @@ Then the angel said to them, "Do not be afraid, for behold, I bring you good tid
 For there is born to you this day in the city of David a Savior, who is Christ the Lord. 
 
 ###### 12 
-And this _will be_ the sign to you: You will find a Babe wrapped in swaddling cloths, lying in a manger." 
+And this will be the sign to you: You will find a Babe wrapped in swaddling cloths, lying in a manger." 
 
 ###### 13 
 And suddenly there was with the angel a multitude of the heavenly host praising God and saying: 
@@ -60,13 +60,13 @@ So it was, when the angels had gone away from them into heaven, that the shepher
 And they came with haste and found Mary and Joseph, and the Babe lying in a manger. 
 
 ###### 17 
-Now when they had seen _Him,_ they made widely known the saying which was told them concerning this Child. 
+Now when they had seen Him, they made widely known the saying which was told them concerning this Child. 
 
 ###### 18 
-And all those who heard _it_ marveled at those things which were told them by the shepherds. 
+And all those who heard it marveled at those things which were told them by the shepherds. 
 
 ###### 19 
-But Mary kept all these things and pondered _them_ in her heart. 
+But Mary kept all these things and pondered them in her heart. 
 
 ###### 20 
 Then the shepherds returned, glorifying and praising God for all the things that they had heard and seen, as it was told them.
@@ -79,7 +79,7 @@ And when eight days were completed for the circumcision of the Child, His name w
 ## Jesus Presented in the Temple 
 
 ###### 22 
-Now when the days of her purification according to the law of Moses were completed, they brought Him to Jerusalem to present _Him_ to the Lord 
+Now when the days of her purification according to the law of Moses were completed, they brought Him to Jerusalem to present Him to the Lord 
 
 ###### 23 
 (as it is written in the law of the Lord, "Every male who opens the womb shall be called holy to the Lord"), 
@@ -88,7 +88,7 @@ Now when the days of her purification according to the law of Moses were complet
 and to offer a sacrifice according to what is said in the law of the Lord, "A pair of turtledoves or two young pigeons." ## Simeon Sees God's Salvation 
 
 ###### 25 
-And behold, there was a man in Jerusalem whose name _was_ Simeon, and this man _was_ just and devout, waiting for the Consolation of Israel, and the Holy Spirit was upon him. 
+And behold, there was a man in Jerusalem whose name was Simeon, and this man was just and devout, waiting for the Consolation of Israel, and the Holy Spirit was upon him. 
 
 ###### 26 
 And it had been revealed to him by the Holy Spirit that he would not see death before he had seen the Lord's Christ. 
@@ -109,13 +109,13 @@ For my eyes have seen Your salvation
 Which You have prepared before the face of all peoples, 
 
 ###### 32 
-A light to _bring_ revelation to the Gentiles, And the glory of Your people Israel." 
+A light to bring revelation to the Gentiles, And the glory of Your people Israel." 
 
 ###### 33 
 And Joseph and His mother marveled at those things which were spoken of Him. 
 
 ###### 34 
-Then Simeon blessed them, and said to Mary His mother, "Behold, this _Child_ is destined for the fall and rising of many in Israel, and for a sign which will be spoken against 
+Then Simeon blessed them, and said to Mary His mother, "Behold, this Child is destined for the fall and rising of many in Israel, and for a sign which will be spoken against 
 
 ###### 35 
 (yes, a sword will pierce through your own soul also), that the thoughts of many hearts may be revealed." ## Anna Bears Witness to the Redeemer 
@@ -124,7 +124,7 @@ Then Simeon blessed them, and said to Mary His mother, "Behold, this _Child_ is 
 Now there was one, Anna, a prophetess, the daughter of Phanuel, of the tribe of Asher. She was of a great age, and had lived with a husband seven years from her virginity; 
 
 ###### 37 
-and this woman _was_ a widow of about eighty-four years, who did not depart from the temple, but served _God_ with fastings and prayers night and day. 
+and this woman was a widow of about eighty-four years, who did not depart from the temple, but served God with fastings and prayers night and day. 
 
 ###### 38 
 And coming in that instant she gave thanks to the Lord, and spoke of Him to all those who looked for redemption in Jerusalem.
@@ -132,7 +132,7 @@ And coming in that instant she gave thanks to the Lord, and spoke of Him to all 
 ## The Family Returns to Nazareth 
 
 ###### 39 
-So when they had performed all things according to the law of the Lord, they returned to Galilee, to their _own_ city, Nazareth. 
+So when they had performed all things according to the law of the Lord, they returned to Galilee, to their own city, Nazareth. 
 
 ###### 40 
 And the Child grew and became strong in spirit, filled with wisdom; and the grace of God was upon Him.
@@ -146,16 +146,16 @@ His parents went to Jerusalem every year at the Feast of the Passover.
 And when He was twelve years old, they went up to Jerusalem according to the custom of the feast. 
 
 ###### 43 
-When they had finished the days, as they returned, the Boy Jesus lingered behind in Jerusalem. And Joseph and His mother did not know _it;_ 
+When they had finished the days, as they returned, the Boy Jesus lingered behind in Jerusalem. And Joseph and His mother did not know it; 
 
 ###### 44 
-but supposing Him to have been in the company, they went a day's journey, and sought Him among _their_ relatives and acquaintances. 
+but supposing Him to have been in the company, they went a day's journey, and sought Him among their relatives and acquaintances. 
 
 ###### 45 
 So when they did not find Him, they returned to Jerusalem, seeking Him. 
 
 ###### 46 
-Now so it was _that_ after three days they found Him in the temple, sitting in the midst of the teachers, both listening to them and asking them questions. 
+Now so it was that after three days they found Him in the temple, sitting in the midst of the teachers, both listening to them and asking them questions. 
 
 ###### 47 
 And all who heard Him were astonished at His understanding and answers. 

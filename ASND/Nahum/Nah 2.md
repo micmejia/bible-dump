@@ -205,7 +205,7 @@ Inuutusan ng hari ang mga opisyal ng mga kawal. Nagkakandarapa sila papunta sa m
 
 
 
-Mabubuksan ang mga pintuan ng inyong lungsod sa bandang_ ilog at magigiba ang palasyo. 
+Mabubuksan ang mga pintuan ng inyong lungsod sa bandang ilog at magigiba ang palasyo. 
 
 
 
@@ -238,7 +238,7 @@ Mabubuksan ang mga pintuan ng inyong lungsod sa bandang_ ilog at magigiba ang pa
 
 
 
-Naipahayag na, na bibihagin kayo at dadalhin sa ibang bayan. Uungol ang inyong mga utusang babae na parang kalapati habang dinadagukan nila ang kanilang dibdib dahil sa kalungkutan_. 
+Naipahayag na, na bibihagin kayo at dadalhin sa ibang bayan. Uungol ang inyong mga utusang babae na parang kalapati habang dinadagukan nila ang kanilang dibdib dahil sa kalungkutan. 
 
 
 
@@ -271,7 +271,7 @@ Naipahayag na, na bibihagin kayo at dadalhin sa ibang bayan. Uungol ang inyong m
 
 
 
-Ang mga taong tumatakas mula sa_ Nineve ay parang tubig na umagos mula sa nawasak na imbakan ng tubig. Ang mga tumatakas ay pinapabalik ng kanilang mga kasama pero wala ni isa mang bumalik. 
+Ang mga taong tumatakas mula sa Nineve ay parang tubig na umagos mula sa nawasak na imbakan ng tubig. Ang mga tumatakas ay pinapabalik ng kanilang mga kasama pero wala ni isa mang bumalik. 
 
 
 
@@ -304,7 +304,7 @@ Ang mga taong tumatakas mula sa_ Nineve ay parang tubig na umagos mula sa nawasa
 
 
 
-Kayong mga sumasalakay sa Nineve,_ kunin ninyo ang mga pilak at ginto ng lungsod na ito dahil puno ito ng kayamanan. 
+Kayong mga sumasalakay sa Nineve, kunin ninyo ang mga pilak at ginto ng lungsod na ito dahil puno ito ng kayamanan. 
 
 
 

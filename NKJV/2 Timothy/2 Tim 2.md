@@ -19,7 +19,7 @@ And the things that you have heard from me among many witnesses, commit these to
 You therefore must endure hardship as a good soldier of Jesus Christ. 
 
 ###### 4 
-No one engaged in warfare entangles himself with the affairs of _this_ life, that he may please him who enlisted him as a soldier. 
+No one engaged in warfare entangles himself with the affairs of this life, that he may please him who enlisted him as a soldier. 
 
 ###### 5 
 And also if anyone competes in athletics, he is not crowned unless he competes according to the rules. 
@@ -34,16 +34,16 @@ Consider what I say, and may the Lord give you understanding in all things.
 Remember that Jesus Christ, of the seed of David, was raised from the dead according to my gospel, 
 
 ###### 9 
-for which I suffer trouble as an evildoer, _even_ to the point of chains; but the word of God is not chained. 
+for which I suffer trouble as an evildoer, even to the point of chains; but the word of God is not chained. 
 
 ###### 10 
 Therefore I endure all things for the sake of the elect, that they also may obtain the salvation which is in Christ Jesus with eternal glory. 
 
 ###### 11 
-_This is_ a faithful saying: For if we died with _Him,_ We shall also live with _Him._ 
+This is a faithful saying: For if we died with Him, We shall also live with Him. 
 
 ###### 12 
-If we endure, We shall also reign with _Him._ If we deny _Him,_ He also will deny us. 
+If we endure, We shall also reign with Him. If we deny Him, He also will deny us. 
 
 ###### 13 
 If we are faithless, He remains faithful; He cannot deny Himself.
@@ -51,13 +51,13 @@ If we are faithless, He remains faithful; He cannot deny Himself.
 ## Approved and Disapproved Workers 
 
 ###### 14 
-Remind _them_ of these things, charging _them_ before the Lord not to strive about words to no profit, to the ruin of the hearers. 
+Remind them of these things, charging them before the Lord not to strive about words to no profit, to the ruin of the hearers. 
 
 ###### 15 
 Be diligent to present yourself approved to God, a worker who does not need to be ashamed, rightly dividing the word of truth. 
 
 ###### 16 
-But shun profane _and_ idle babblings, for they will increase to more ungodliness. 
+But shun profane and idle babblings, for they will increase to more ungodliness. 
 
 ###### 17 
 And their message will spread like cancer. Hymenaeus and Philetus are of this sort, 
@@ -87,4 +87,4 @@ And a servant of the Lord must not quarrel but be gentle to all, able to teach, 
 in humility correcting those who are in opposition, if God perhaps will grant them repentance, so that they may know the truth, 
 
 ###### 26 
-and _that_ they may come to their senses _and_ _escape_ the snare of the devil, having been taken captive by him to _do_ his will.
+and that they may come to their senses and escape the snare of the devil, having been taken captive by him to do his will.

@@ -19,7 +19,7 @@ The word of the Lord came again to me, saying:
 They committed harlotry in Egypt, They committed harlotry in their youth; Their breasts were there embraced, Their virgin bosom was there pressed. 
 
 ###### 4 
-Their names: Oholah the elder and Oholibah her sister; They were Mine, And they bore sons and daughters. _As for_ their names, Samaria _is_ Oholah, and Jerusalem _is_ Oholibah.
+Their names: Oholah the elder and Oholibah her sister; They were Mine, And they bore sons and daughters. As for their names, Samaria is Oholah, and Jerusalem is Oholibah.
 
 ## The Older Sister, Samaria 
 
@@ -27,13 +27,13 @@ Their names: Oholah the elder and Oholibah her sister; They were Mine, And they 
 "Oholah played the harlot even though she was Mine; And she lusted for her lovers, the neighboring Assyrians, 
 
 ###### 6 
-_Who were_ clothed in purple, Captains and rulers, All of them desirable young men, Horsemen riding on horses. 
+Who were clothed in purple, Captains and rulers, All of them desirable young men, Horsemen riding on horses. 
 
 ###### 7 
 Thus she committed her harlotry with them, All of them choice men of Assyria; And with all for whom she lusted, With all their idols, she defiled herself. 
 
 ###### 8 
-She has never given up her harlotry _brought_ from Egypt, For in her youth they had lain with her, Pressed her virgin bosom, And poured out their immorality upon her. 
+She has never given up her harlotry brought from Egypt, For in her youth they had lain with her, Pressed her virgin bosom, And poured out their immorality upon her. 
 
 ###### 9 
 "Therefore I have delivered her Into the hand of her lovers, Into the hand of the Assyrians, For whom she lusted. 
@@ -44,13 +44,13 @@ They uncovered her nakedness, Took away her sons and daughters, And slew her wit
 ## The Younger Sister, Jerusalem 
 
 ###### 11 
-"Now although her sister Oholibah saw _this,_ she became more corrupt in her lust than she, and in her harlotry more corrupt than her sister's harlotry. 
+"Now although her sister Oholibah saw this, she became more corrupt in her lust than she, and in her harlotry more corrupt than her sister's harlotry. 
 
 ###### 12 
 "She lusted for the neighboring Assyrians, Captains and rulers, Clothed most gorgeously, Horsemen riding on horses, All of them desirable young men. 
 
 ###### 13 
-Then I saw that she was defiled; Both _took_ the same way. 
+Then I saw that she was defiled; Both took the same way. 
 
 ###### 14 
 But she increased her harlotry; She looked at men portrayed on the wall, Images of Chaldeans portrayed in vermilion, 
@@ -71,7 +71,7 @@ She revealed her harlotry and uncovered her nakedness. Then I alienated Myself f
 "Yet she multiplied her harlotry In calling to remembrance the days of her youth, When she had played the harlot in the land of Egypt. 
 
 ###### 20 
-For she lusted for her paramours, Whose flesh _is like_ the flesh of donkeys, And whose issue _is like_ the issue of horses. 
+For she lusted for her paramours, Whose flesh is like the flesh of donkeys, And whose issue is like the issue of horses. 
 
 ###### 21 
 Thus you called to remembrance the lewdness of your youth, When the Egyptians pressed your bosom Because of your youthful breasts.
@@ -94,16 +94,16 @@ I will set My jealousy against you, And they shall deal furiously with you; They
 They shall also strip you of your clothes And take away your beautiful jewelry. 
 
 ###### 27 
-'Thus I will make you cease your lewdness and your harlotry _Brought_ from the land of Egypt, So that you will not lift your eyes to them, Nor remember Egypt anymore.' 
+'Thus I will make you cease your lewdness and your harlotry Brought from the land of Egypt, So that you will not lift your eyes to them, Nor remember Egypt anymore.' 
 
 ###### 28 
-"For thus says the Lord God: 'Surely I will deliver you into the hand of those you hate, into the hand _of those_ from whom you alienated yourself. 
+"For thus says the Lord God: 'Surely I will deliver you into the hand of those you hate, into the hand of those from whom you alienated yourself. 
 
 ###### 29 
 They will deal hatefully with you, take away all you have worked for, and leave you naked and bare. The nakedness of your harlotry shall be uncovered, both your lewdness and your harlotry. 
 
 ###### 30 
-I will do these _things_ to you because you have gone as a harlot after the Gentiles, because you have become defiled by their idols. 
+I will do these things to you because you have gone as a harlot after the Gentiles, because you have become defiled by their idols. 
 
 ###### 31 
 You have walked in the way of your sister; therefore I will put her cup in your hand.' 
@@ -118,13 +118,13 @@ You will be filled with drunkenness and sorrow, The cup of horror and desolation
 You shall drink and drain it, You shall break its shards, And tear at your own breasts; For I have spoken,' Says the Lord God. 
 
 ###### 35 
-"Therefore thus says the Lord God: 'Because you have forgotten Me and cast Me behind your back, Therefore you shall bear the _penalty_ _Of_ your lewdness and your harlotry.' " ## Both Sisters Judged 
+"Therefore thus says the Lord God: 'Because you have forgotten Me and cast Me behind your back, Therefore you shall bear the penalty Of your lewdness and your harlotry.' " ## Both Sisters Judged 
 
 ###### 36 
 The Lord also said to me: "Son of man, will you judge Oholah and Oholibah? Then declare to them their abominations. 
 
 ###### 37 
-For they have committed adultery, and blood _is_ on their hands. They have committed adultery with their idols, and even _sacrificed_ their sons whom they bore to Me, passing them through _the fire,_ to devour _them._ 
+For they have committed adultery, and blood is on their hands. They have committed adultery with their idols, and even sacrificed their sons whom they bore to Me, passing them through the fire, to devour them. 
 
 ###### 38 
 Moreover they have done this to Me: They have defiled My sanctuary on the same day and profaned My Sabbaths. 
@@ -133,22 +133,22 @@ Moreover they have done this to Me: They have defiled My sanctuary on the same d
 For after they had slain their children for their idols, on the same day they came into My sanctuary to profane it; and indeed thus they have done in the midst of My house. 
 
 ###### 40 
-"Furthermore you sent for men to come from afar, to whom a messenger _was_ sent; and there they came. And you washed yourself for them, painted your eyes, and adorned yourself with ornaments. 
+"Furthermore you sent for men to come from afar, to whom a messenger was sent; and there they came. And you washed yourself for them, painted your eyes, and adorned yourself with ornaments. 
 
 ###### 41 
 You sat on a stately couch, with a table prepared before it, on which you had set My incense and My oil. 
 
 ###### 42 
-The sound of a carefree multitude _was_ with her, and Sabeans _were_ brought from the wilderness with men of the common sort, who put bracelets on their wrists and beautiful crowns on their heads. 
+The sound of a carefree multitude was with her, and Sabeans were brought from the wilderness with men of the common sort, who put bracelets on their wrists and beautiful crowns on their heads. 
 
 ###### 43 
-Then I said concerning _her who had grown_ old in adulteries, 'Will they commit harlotry with her now, and she _with them?_' 
+Then I said concerning her who had grown old in adulteries, 'Will they commit harlotry with her now, and she with them?' 
 
 ###### 44 
 Yet they went in to her, as men go in to a woman who plays the harlot; thus they went in to Oholah and Oholibah, the lewd women. 
 
 ###### 45 
-But righteous men will judge them after the manner of adulteresses, and after the manner of women who shed blood, because they _are_ adulteresses, and blood _is_ on their hands. 
+But righteous men will judge them after the manner of adulteresses, and after the manner of women who shed blood, because they are adulteresses, and blood is on their hands. 
 
 ###### 46 
 "For thus says the Lord God: 'Bring up an assembly against them, give them up to trouble and plunder. 
@@ -160,4 +160,4 @@ The assembly shall stone them with stones and execute them with their swords; th
 Thus I will cause lewdness to cease from the land, that all women may be taught not to practice your lewdness. 
 
 ###### 49 
-They shall repay you for your lewdness, and you shall pay for your idolatrous sins. Then you shall know that I _am_ the Lord God.' "
+They shall repay you for your lewdness, and you shall pay for your idolatrous sins. Then you shall know that I am the Lord God.' "

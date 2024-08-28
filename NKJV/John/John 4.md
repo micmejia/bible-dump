@@ -25,7 +25,7 @@ But He needed to go through Samaria.
 So He came to a city of Samaria which is called Sychar, near the plot of ground that Jacob gave to his son Joseph. 
 
 ###### 6 
-Now Jacob's well was there. Jesus therefore, being wearied from _His_ journey, sat thus by the well. It was about the sixth hour. 
+Now Jacob's well was there. Jesus therefore, being wearied from His journey, sat thus by the well. It was about the sixth hour. 
 
 ###### 7 
 A woman of Samaria came to draw water. Jesus said to her, "Give Me a drink." 
@@ -67,7 +67,7 @@ for you have had five husbands, and the one whom you now have is not your husban
 The woman said to Him, "Sir, I perceive that You are a prophet. 
 
 ###### 20 
-Our fathers worshiped on this mountain, and you _Jews_ say that in Jerusalem is the place where one ought to worship." 
+Our fathers worshiped on this mountain, and you Jews say that in Jerusalem is the place where one ought to worship." 
 
 ###### 21 
 Jesus said to her, "Woman, believe Me, the hour is coming when you will neither on this mountain, nor in Jerusalem, worship the Father. 
@@ -79,16 +79,16 @@ You worship what you do not know; we know what we worship, for salvation is of t
 But the hour is coming, and now is, when the true worshipers will worship the Father in spirit and truth; for the Father is seeking such to worship Him. 
 
 ###### 24 
-God _is_ Spirit, and those who worship Him must worship in spirit and truth." 
+God is Spirit, and those who worship Him must worship in spirit and truth." 
 
 ###### 25 
 The woman said to Him, "I know that Messiah is coming" (who is called Christ). "When He comes, He will tell us all things." 
 
 ###### 26 
-Jesus said to her, "I who speak to you am _He._" ## The Whitened Harvest 
+Jesus said to her, "I who speak to you am He." ## The Whitened Harvest 
 
 ###### 27 
-And at this _point_ His disciples came, and they marveled that He talked with a woman; yet no one said, "What do You seek?" or, "Why are You talking with her?" 
+And at this point His disciples came, and they marveled that He talked with a woman; yet no one said, "What do You seek?" or, "Why are You talking with her?" 
 
 ###### 28 
 The woman then left her waterpot, went her way into the city, and said to the men, 
@@ -106,13 +106,13 @@ In the meantime His disciples urged Him, saying, "Rabbi, eat."
 But He said to them, "I have food to eat of which you do not know." 
 
 ###### 33 
-Therefore the disciples said to one another, "Has anyone brought Him _anything_ to eat?" 
+Therefore the disciples said to one another, "Has anyone brought Him anything to eat?" 
 
 ###### 34 
 Jesus said to them, "My food is to do the will of Him who sent Me, and to finish His work. 
 
 ###### 35 
-Do you not say, 'There are still four months and _then_ comes the harvest'? Behold, I say to you, lift up your eyes and look at the fields, for they are already white for harvest! 
+Do you not say, 'There are still four months and then comes the harvest'? Behold, I say to you, lift up your eyes and look at the fields, for they are already white for harvest! 
 
 ###### 36 
 And he who reaps receives wages, and gathers fruit for eternal life, that both he who sows and he who reaps may rejoice together. 
@@ -124,7 +124,7 @@ For in this the saying is true: 'One sows and another reaps.'
 I sent you to reap that for which you have not labored; others have labored, and you have entered into their labors." ## The Savior of the World 
 
 ###### 39 
-And many of the Samaritans of that city believed in Him because of the word of the woman who testified, "He told me all that I _ever_ did." 
+And many of the Samaritans of that city believed in Him because of the word of the woman who testified, "He told me all that I ever did." 
 
 ###### 40 
 So when the Samaritans had come to Him, they urged Him to stay with them; and He stayed there two days. 
@@ -133,7 +133,7 @@ So when the Samaritans had come to Him, they urged Him to stay with them; and He
 And many more believed because of His own word. 
 
 ###### 42 
-Then they said to the woman, "Now we believe, not because of what you said, for we ourselves have heard _Him_ and we know that this is indeed the Christ, the Savior of the world." ## Welcome at Galilee 
+Then they said to the woman, "Now we believe, not because of what you said, for we ourselves have heard Him and we know that this is indeed the Christ, the Savior of the world." ## Welcome at Galilee 
 
 ###### 43 
 Now after the two days He departed from there and went to Galilee. 
@@ -153,7 +153,7 @@ So Jesus came again to Cana of Galilee where He had made the water wine. And the
 When he heard that Jesus had come out of Judea into Galilee, he went to Him and implored Him to come down and heal his son, for he was at the point of death. 
 
 ###### 48 
-Then Jesus said to him, "Unless you _people_ see signs and wonders, you will by no means believe." 
+Then Jesus said to him, "Unless you people see signs and wonders, you will by no means believe." 
 
 ###### 49 
 The nobleman said to Him, "Sir, come down before my child dies!" 
@@ -162,13 +162,13 @@ The nobleman said to Him, "Sir, come down before my child dies!"
 Jesus said to him, "Go your way; your son lives." So the man believed the word that Jesus spoke to him, and he went his way. 
 
 ###### 51 
-And as he was now going down, his servants met him and told _him,_ saying, "Your son lives!" 
+And as he was now going down, his servants met him and told him, saying, "Your son lives!" 
 
 ###### 52 
 Then he inquired of them the hour when he got better. And they said to him, "Yesterday at the seventh hour the fever left him." 
 
 ###### 53 
-So the father knew that _it was_ at the same hour in which Jesus said to him, "Your son lives." And he himself believed, and his whole household. 
+So the father knew that it was at the same hour in which Jesus said to him, "Your son lives." And he himself believed, and his whole household. 
 
 ###### 54 
-This again _is_ the second sign Jesus did when He had come out of Judea into Galilee.
+This again is the second sign Jesus did when He had come out of Judea into Galilee.

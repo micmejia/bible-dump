@@ -16,7 +16,7 @@ Therefore we must give the more earnest heed to the things we have heard, lest w
 For if the word spoken through angels proved steadfast, and every transgression and disobedience received a just reward, 
 
 ###### 3 
-how shall we escape if we neglect so great a salvation, which at the first began to be spoken by the Lord, and was confirmed to us by those who heard _Him,_ 
+how shall we escape if we neglect so great a salvation, which at the first began to be spoken by the Lord, and was confirmed to us by those who heard Him, 
 
 ###### 4 
 God also bearing witness both with signs and wonders, with various miracles, and gifts of the Holy Spirit, according to His own will? ## The Son Made Lower than Angels 
@@ -31,7 +31,7 @@ But one testified in a certain place, saying: "What is man that You are mindful 
 You have made him a little lower than the angels; You have crowned him with glory and honor, And set him over the works of Your hands. 
 
 ###### 8 
-You have put all things in subjection under his feet." For in that He put all in subjection under him, He left nothing _that is_ not put under him. But now we do not yet see all things put under him. 
+You have put all things in subjection under his feet." For in that He put all in subjection under him, He left nothing that is not put under him. But now we do not yet see all things put under him. 
 
 ###### 9 
 But we see Jesus, who was made a little lower than the angels, for the suffering of death crowned with glory and honor, that He, by the grace of God, might taste death for everyone.
@@ -39,10 +39,10 @@ But we see Jesus, who was made a little lower than the angels, for the suffering
 ## Bringing Many Sons to Glory 
 
 ###### 10 
-For it was fitting for Him, for whom _are_ all things and by whom _are_ all things, in bringing many sons to glory, to make the captain of their salvation perfect through sufferings. 
+For it was fitting for Him, for whom are all things and by whom are all things, in bringing many sons to glory, to make the captain of their salvation perfect through sufferings. 
 
 ###### 11 
-For both He who sanctifies and those who are being sanctified _are_ all of one, for which reason He is not ashamed to call them brethren, 
+For both He who sanctifies and those who are being sanctified are all of one, for which reason He is not ashamed to call them brethren, 
 
 ###### 12 
 saying: "I will declare Your name to My brethren; In the midst of the assembly I will sing praise to You." 
@@ -60,7 +60,7 @@ and release those who through fear of death were all their lifetime subject to b
 For indeed He does not give aid to angels, but He does give aid to the seed of Abraham. 
 
 ###### 17 
-Therefore, in all things He had to be made like _His_ brethren, that He might be a merciful and faithful High Priest in things _pertaining_ to God, to make propitiation for the sins of the people. 
+Therefore, in all things He had to be made like His brethren, that He might be a merciful and faithful High Priest in things pertaining to God, to make propitiation for the sins of the people. 
 
 ###### 18 
 For in that He Himself has suffered, being tempted, He is able to aid those who are tempted.

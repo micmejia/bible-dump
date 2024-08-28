@@ -238,7 +238,7 @@ Ang mga asnong-gubat ay tumatayo sa mga burol at humihingal na parang asong-guba
 
 
 
-Sinabi ng mga tao,_ "O Panginoon, nagkasala po kami sa inyo. Palagi kaming lumalayo sa inyo kaya dapat lang kaming parusahan. Pero tulungan po ninyo kami ngayon, alang-alang sa karangalan ng pangalan ninyo. 
+Sinabi ng mga tao, "O Panginoon, nagkasala po kami sa inyo. Palagi kaming lumalayo sa inyo kaya dapat lang kaming parusahan. Pero tulungan po ninyo kami ngayon, alang-alang sa karangalan ng pangalan ninyo. 
 
 
 
@@ -337,7 +337,7 @@ Katulad rin po ba kayo ng taong walang magagawa at sundalong walang kakayahang m
 
 
 
-Ito ang sagot ng Panginoon sa mga tao: "Talagang gusto na ninyong lumayo sa akin; ang sarili lang ninyong kagustuhan ang inyong sinusunod. Kaya ayaw ko na kayong tanggapin bilang aking mga mamamayan_. Hindi ko makakalimutan ang kasamaan ninyo at parurusahan ko kayo." 
+Ito ang sagot ng Panginoon sa mga tao: "Talagang gusto na ninyong lumayo sa akin; ang sarili lang ninyong kagustuhan ang inyong sinusunod. Kaya ayaw ko na kayong tanggapin bilang aking mga mamamayan. Hindi ko makakalimutan ang kasamaan ninyo at parurusahan ko kayo." 
 
 
 
@@ -502,7 +502,7 @@ Sumagot ang Panginoon, "Ang mga propetang iyan ay nanghuhula ng kasinungalingan 
 
 
 
-Kaya ako_, ang Panginoon, ay nagsasabing, parurusahan ko ang mga sinungaling na_ propetang iyan. Nagsasalita sila sa pangalan ko kahit na hindi ko sila sinugo. Sinasabi nilang walang darating na digmaan o taggutom sa bansang ito, pero sa digmaan at taggutom sila mapapahamak. 
+Kaya ako, ang Panginoon, ay nagsasabing, parurusahan ko ang mga sinungaling na propetang iyan. Nagsasalita sila sa pangalan ko kahit na hindi ko sila sinugo. Sinasabi nilang walang darating na digmaan o taggutom sa bansang ito, pero sa digmaan at taggutom sila mapapahamak. 
 
 
 
@@ -568,7 +568,7 @@ At tungkol naman sa mga taong naniniwala sa sinabi nila, ang mga bangkay nilaʼy
 
 
 
-"Jeremias_, sabihin mo ito sa mga tao: Araw-gabi, walang tigil ang pag-iyak ko dahil malubha ang sugat ng mga mamamayan ko na aking itinuturing_ na birheng anak, at totoong nasasaktan ako. 
+"Jeremias, sabihin mo ito sa mga tao: Araw-gabi, walang tigil ang pag-iyak ko dahil malubha ang sugat ng mga mamamayan ko na aking itinuturing na birheng anak, at totoong nasasaktan ako. 
 
 
 
@@ -634,7 +634,7 @@ Kung pupunta ako sa mga bukid at lungsod, nakikita ko ang mga bangkay ng mga nam
 
 
 
-O_ Panginoon, talaga bang itinakwil nʼyo na ang Juda? Talaga bang galit po kayo sa Jerusalem? Bakit nʼyo po kami pinarusahan ng ganito at parang wala na kaming pag-asang gumaling? Umasa po kaming bibigyan nʼyo kami ng kapayapaan, pero hindi naman ito dumating. Umasa po kaming mapapabuti ang kalagayan namin, pero takot ang dumating sa amin. 
+O Panginoon, talaga bang itinakwil nʼyo na ang Juda? Talaga bang galit po kayo sa Jerusalem? Bakit nʼyo po kami pinarusahan ng ganito at parang wala na kaming pag-asang gumaling? Umasa po kaming bibigyan nʼyo kami ng kapayapaan, pero hindi naman ito dumating. Umasa po kaming mapapabuti ang kalagayan namin, pero takot ang dumating sa amin. 
 
 
 
@@ -667,7 +667,7 @@ O_ Panginoon, talaga bang itinakwil nʼyo na ang Juda? Talaga bang galit po kayo
 
 
 
-O_ Panginoon, kinikilala namin ang kasamaan namin, pati ang kasalanan ng mga ninuno namin. Nagkasala po kami sa inyo. 
+O Panginoon, kinikilala namin ang kasamaan namin, pati ang kasalanan ng mga ninuno namin. Nagkasala po kami sa inyo. 
 
 
 

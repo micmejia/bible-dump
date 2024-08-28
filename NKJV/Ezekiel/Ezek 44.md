@@ -10,13 +10,13 @@ next: ['Ezek 45']
 
 
 ###### 1 
-Then He brought me back to the outer gate of the sanctuary which faces toward the east, but it _was_ shut. 
+Then He brought me back to the outer gate of the sanctuary which faces toward the east, but it was shut. 
 
 ###### 2 
 And the Lord said to me, "This gate shall be shut; it shall not be opened, and no man shall enter by it, because the Lord God of Israel has entered by it; therefore it shall be shut. 
 
 ###### 3 
-_As for_ the prince, _because_ he _is_ the prince, he may sit in it to eat bread before the Lord; he shall enter by way of the vestibule of the gateway, and go out the same way." ## Those Admitted to the Temple 
+As for the prince, because he is the prince, he may sit in it to eat bread before the Lord; he shall enter by way of the vestibule of the gateway, and go out the same way." ## Those Admitted to the Temple 
 
 ###### 4 
 Also He brought me by way of the north gate to the front of the temple; so I looked, and behold, the glory of the Lord filled the house of the Lord; and I fell on my face. 
@@ -31,10 +31,10 @@ And the Lord said to me, "Son of man, mark well, see with your eyes and hear wit
 When you brought in foreigners, uncircumcised in heart and uncircumcised in flesh, to be in My sanctuary to defile it--My house--and when you offered My food, the fat and the blood, then they broke My covenant because of all your abominations. 
 
 ###### 8 
-And you have not kept charge of My holy things, but you have set _others_ to keep charge of My sanctuary for you." 
+And you have not kept charge of My holy things, but you have set others to keep charge of My sanctuary for you." 
 
 ###### 9 
-Thus says the Lord God: "No foreigner, uncircumcised in heart or uncircumcised in flesh, shall enter My sanctuary, including any foreigner who _is_ among the children of Israel.
+Thus says the Lord God: "No foreigner, uncircumcised in heart or uncircumcised in flesh, shall enter My sanctuary, including any foreigner who is among the children of Israel.
 
 ## Laws Governing Priests 
 
@@ -42,13 +42,13 @@ Thus says the Lord God: "No foreigner, uncircumcised in heart or uncircumcised i
 "And the Levites who went far from Me, when Israel went astray, who strayed away from Me after their idols, they shall bear their iniquity. 
 
 ###### 11 
-Yet they shall be ministers in My sanctuary, _as_ gatekeepers of the house and ministers of the house; they shall slay the burnt offering and the sacrifice for the people, and they shall stand before them to minister to them. 
+Yet they shall be ministers in My sanctuary, as gatekeepers of the house and ministers of the house; they shall slay the burnt offering and the sacrifice for the people, and they shall stand before them to minister to them. 
 
 ###### 12 
 Because they ministered to them before their idols and caused the house of Israel to fall into iniquity, therefore I have raised My hand in an oath against them," says the Lord God, "that they shall bear their iniquity. 
 
 ###### 13 
-And they shall not come near Me to minister to Me as priest, nor come near any of My holy things, nor into the Most Holy _Place;_ but they shall bear their shame and their abominations which they have committed. 
+And they shall not come near Me to minister to Me as priest, nor come near any of My holy things, nor into the Most Holy Place; but they shall bear their shame and their abominations which they have committed. 
 
 ###### 14 
 Nevertheless I will make them keep charge of the temple, for all its work, and for all that has to be done in it. 
@@ -63,7 +63,7 @@ Nevertheless I will make them keep charge of the temple, for all its work, and f
 And it shall be, whenever they enter the gates of the inner court, that they shall put on linen garments; no wool shall come upon them while they minister within the gates of the inner court or within the house. 
 
 ###### 18 
-They shall have linen turbans on their heads and linen trousers on their bodies; they shall not clothe themselves with _anything that causes_ sweat. 
+They shall have linen turbans on their heads and linen trousers on their bodies; they shall not clothe themselves with anything that causes sweat. 
 
 ###### 19 
 When they go out to the outer court, to the outer court to the people, they shall take off their garments in which they have ministered, leave them in the holy chambers, and put on other garments; and in their holy garments they shall not sanctify the people. 
@@ -78,13 +78,13 @@ No priest shall drink wine when he enters the inner court.
 They shall not take as wife a widow or a divorced woman, but take virgins of the descendants of the house of Israel, or widows of priests. 
 
 ###### 23 
-"And they shall teach My people _the difference_ between the holy and the unholy, and cause them to discern between the unclean and the clean. 
+"And they shall teach My people the difference between the holy and the unholy, and cause them to discern between the unclean and the clean. 
 
 ###### 24 
-In controversy they shall stand as judges, _and_ judge it according to My judgments. They shall keep My laws and My statutes in all My appointed meetings, and they shall hallow My Sabbaths. 
+In controversy they shall stand as judges, and judge it according to My judgments. They shall keep My laws and My statutes in all My appointed meetings, and they shall hallow My Sabbaths. 
 
 ###### 25 
-"They shall not defile _themselves_ by coming near a dead person. Only for father or mother, for son or daughter, for brother or unmarried sister may they defile themselves. 
+"They shall not defile themselves by coming near a dead person. Only for father or mother, for son or daughter, for brother or unmarried sister may they defile themselves. 
 
 ###### 26 
 After he is cleansed, they shall count seven days for him. 
@@ -93,7 +93,7 @@ After he is cleansed, they shall count seven days for him.
 And on the day that he goes to the sanctuary to minister in the sanctuary, he must offer his sin offering in the inner court," says the Lord God. 
 
 ###### 28 
-"It shall be, in regard to their inheritance, _that_ I _am_ their inheritance. You shall give them no possession in Israel, for I _am_ their possession. 
+"It shall be, in regard to their inheritance, that I am their inheritance. You shall give them no possession in Israel, for I am their possession. 
 
 ###### 29 
 They shall eat the grain offering, the sin offering, and the trespass offering; every dedicated thing in Israel shall be theirs. 
@@ -102,4 +102,4 @@ They shall eat the grain offering, the sin offering, and the trespass offering; 
 The best of all firstfruits of any kind, and every sacrifice of any kind from all your sacrifices, shall be the priest's; also you shall give to the priest the first of your ground meal, to cause a blessing to rest on your house. 
 
 ###### 31 
-The priests shall not eat anything, bird or beast, that died naturally or was torn _by wild beasts._
+The priests shall not eat anything, bird or beast, that died naturally or was torn by wild beasts.

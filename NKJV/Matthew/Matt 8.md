@@ -16,7 +16,7 @@ When He had come down from the mountain, great multitudes followed Him.
 And behold, a leper came and worshiped Him, saying, "Lord, if You are willing, You can make me clean." 
 
 ###### 3 
-Then Jesus put out _His_ hand and touched him, saying, "I am willing; be cleansed." Immediately his leprosy was cleansed. 
+Then Jesus put out His hand and touched him, saying, "I am willing; be cleansed." Immediately his leprosy was cleansed. 
 
 ###### 4 
 And Jesus said to him, "See that you tell no one; but go your way, show yourself to the priest, and offer the gift that Moses commanded, as a testimony to them." ## Jesus Heals a Centurion's Servant 
@@ -34,10 +34,10 @@ And Jesus said to him, "I will come and heal him."
 The centurion answered and said, "Lord, I am not worthy that You should come under my roof. But only speak a word, and my servant will be healed. 
 
 ###### 9 
-For I also am a man under authority, having soldiers under me. And I say to this _one,_ 'Go,' and he goes; and to another, 'Come,' and he comes; and to my servant, 'Do this,' and he does _it._" 
+For I also am a man under authority, having soldiers under me. And I say to this one, 'Go,' and he goes; and to another, 'Come,' and he comes; and to my servant, 'Do this,' and he does it." 
 
 ###### 10 
-When Jesus heard _it,_ He marveled, and said to those who followed, "Assuredly, I say to you, I have not found such great faith, not even in Israel! 
+When Jesus heard it, He marveled, and said to those who followed, "Assuredly, I say to you, I have not found such great faith, not even in Israel! 
 
 ###### 11 
 And I say to you that many will come from east and west, and sit down with Abraham, Isaac, and Jacob in the kingdom of heaven. 
@@ -46,7 +46,7 @@ And I say to you that many will come from east and west, and sit down with Abrah
 But the sons of the kingdom will be cast out into outer darkness. There will be weeping and gnashing of teeth." 
 
 ###### 13 
-Then Jesus said to the centurion, "Go your way; and as you have believed, _so_ let it be done for you." And his servant was healed that same hour.
+Then Jesus said to the centurion, "Go your way; and as you have believed, so let it be done for you." And his servant was healed that same hour.
 
 ## Peter's Mother-in-Law Healed 
 
@@ -62,7 +62,7 @@ So He touched her hand, and the fever left her. And she arose and served them.
 When evening had come, they brought to Him many who were demon-possessed. And He cast out the spirits with a word, and healed all who were sick, 
 
 ###### 17 
-that it might be fulfilled which was spoken by Isaiah the prophet, saying: "He Himself took our infirmities And bore _our_ sicknesses." ## The Cost of Discipleship 
+that it might be fulfilled which was spoken by Isaiah the prophet, saying: "He Himself took our infirmities And bore our sicknesses." ## The Cost of Discipleship 
 
 ###### 18 
 And when Jesus saw great multitudes about Him, He gave a command to depart to the other side. 
@@ -71,7 +71,7 @@ And when Jesus saw great multitudes about Him, He gave a command to depart to th
 Then a certain scribe came and said to Him, "Teacher, I will follow You wherever You go." 
 
 ###### 20 
-And Jesus said to him, "Foxes have holes and birds of the air _have_ nests, but the Son of Man has nowhere to lay _His_ head." 
+And Jesus said to him, "Foxes have holes and birds of the air have nests, but the Son of Man has nowhere to lay His head." 
 
 ###### 21 
 Then another of His disciples said to Him, "Lord, let me first go and bury my father." 
@@ -86,7 +86,7 @@ Now when He got into a boat, His disciples followed Him.
 And suddenly a great tempest arose on the sea, so that the boat was covered with the waves. But He was asleep. 
 
 ###### 25 
-Then His disciples came to _Him_ and awoke Him, saying, "Lord, save us! We are perishing!" 
+Then His disciples came to Him and awoke Him, saying, "Lord, save us! We are perishing!" 
 
 ###### 26 
 But He said to them, "Why are you fearful, O you of little faith?" Then He arose and rebuked the winds and the sea, and there was a great calm. 
@@ -95,7 +95,7 @@ But He said to them, "Why are you fearful, O you of little faith?" Then He arose
 So the men marveled, saying, "Who can this be, that even the winds and the sea obey Him?" ## Two Demon-Possessed Men Healed 
 
 ###### 28 
-When He had come to the other side, to the country of the Gergesenes, there met Him two demon-possessed _men,_ coming out of the tombs, exceedingly fierce, so that no one could pass that way. 
+When He had come to the other side, to the country of the Gergesenes, there met Him two demon-possessed men, coming out of the tombs, exceedingly fierce, so that no one could pass that way. 
 
 ###### 29 
 And suddenly they cried out, saying, "What have we to do with You, Jesus, You Son of God? Have You come here to torment us before the time?" 
@@ -110,7 +110,7 @@ So the demons begged Him, saying, "If You cast us out, permit us to go away into
 And He said to them, "Go." So when they had come out, they went into the herd of swine. And suddenly the whole herd of swine ran violently down the steep place into the sea, and perished in the water. 
 
 ###### 33 
-Then those who kept _them_ fled; and they went away into the city and told everything, including what _had happened_ to the demon-possessed _men._ 
+Then those who kept them fled; and they went away into the city and told everything, including what had happened to the demon-possessed men. 
 
 ###### 34 
-And behold, the whole city came out to meet Jesus. And when they saw Him, they begged _Him_ to depart from their region.
+And behold, the whole city came out to meet Jesus. And when they saw Him, they begged Him to depart from their region.

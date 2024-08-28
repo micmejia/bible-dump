@@ -173,7 +173,7 @@ Kaya naging mas dakila ang Anak ng Dios kaysa sa mga anghel at higit na dakila a
 
 
 
-Sapagkat kailanman, wala ni isa man sa mga anghel ang sinabihan ng Dios ng ganito: "Ikaw ang Anak ko, at ngayon, ipapahayag ko na ako ang iyong Ama." At wala ring sinabihan ang Dios nang ganito sa sinumang anghel_: "Akoʼy magiging Ama niya, at siyaʼy magiging Anak ko." 
+Sapagkat kailanman, wala ni isa man sa mga anghel ang sinabihan ng Dios ng ganito: "Ikaw ang Anak ko, at ngayon, ipapahayag ko na ako ang iyong Ama." At wala ring sinabihan ang Dios nang ganito sa sinumang anghel: "Akoʼy magiging Ama niya, at siyaʼy magiging Anak ko." 
 
 
 
@@ -239,7 +239,7 @@ At nang isusugo na ng Dios ang kanyang bugtong na Anak sa mundo, sinabi niya, "D
 
 
 
-Ito ang sinabi ng Dios tungkol sa mga anghel: "Ang mga anghel ay magagawa kong hangin. Sila na mga lingkod ko ay magagawa ko ring_ nagliliyab na apoy." 
+Ito ang sinabi ng Dios tungkol sa mga anghel: "Ang mga anghel ay magagawa kong hangin. Sila na mga lingkod ko ay magagawa ko ring nagliliyab na apoy." 
 
 
 
@@ -338,7 +338,7 @@ Kinalugdan mo ang gumagawa ng matuwid at kinamuhian mo ang gumagawa ng masama. K
 
 
 
-At sinabi pa niya sa kanyang Anak,_ "Sa simula, ikaw Panginoon, ang lumikha ng mundo at ng kalangitan. 
+At sinabi pa niya sa kanyang Anak, "Sa simula, ikaw Panginoon, ang lumikha ng mundo at ng kalangitan. 
 
 
 

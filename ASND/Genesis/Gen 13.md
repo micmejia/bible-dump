@@ -139,7 +139,7 @@ Mula sa Negev, nagpalipat-lipat sila hanggang makabalik sila sa lugar na dati ni
 
 
 
-Dito rin sila unang nagtayo ng altar nang dumating sila sa Canaan_. At muling sumamba si Abram sa Panginoon. 
+Dito rin sila unang nagtayo ng altar nang dumating sila sa Canaan. At muling sumamba si Abram sa Panginoon. 
 
 
 

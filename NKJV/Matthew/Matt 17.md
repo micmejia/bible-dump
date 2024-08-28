@@ -25,7 +25,7 @@ Then Peter answered and said to Jesus, "Lord, it is good for us to be here; if Y
 While he was still speaking, behold, a bright cloud overshadowed them; and suddenly a voice came out of the cloud, saying, "This is My beloved Son, in whom I am well pleased. Hear Him!" 
 
 ###### 6 
-And when the disciples heard _it,_ they fell on their faces and were greatly afraid. 
+And when the disciples heard it, they fell on their faces and were greatly afraid. 
 
 ###### 7 
 But Jesus came and touched them and said, "Arise, and do not be afraid." 
@@ -83,7 +83,7 @@ and they will kill Him, and the third day He will be raised up." And they were e
 ## Peter and His Master Pay Their Taxes 
 
 ###### 24 
-When they had come to Capernaum, those who received the _temple_ tax came to Peter and said, "Does your Teacher not pay the _temple_ tax?" 
+When they had come to Capernaum, those who received the temple tax came to Peter and said, "Does your Teacher not pay the temple tax?" 
 
 ###### 25 
 He said, "Yes." And when he had come into the house, Jesus anticipated him, saying, "What do you think, Simon? From whom do the kings of the earth take customs or taxes, from their sons or from strangers?" 

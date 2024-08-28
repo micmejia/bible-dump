@@ -40,7 +40,7 @@ next: ['Gen 48']
 
 
 
-Pagkatapos, umalis si Jose at pumunta sa Faraon kasama ang lima sa kanyang kapatid_. Sinabi ni Jose sa hari, "Dumating na po ang aking ama at mga kapatid galing sa Canaan, at dala po nila ang mga hayop nila at ang lahat ng kanilang ari-arian. Naroon po sila ngayon sa Goshen." 
+Pagkatapos, umalis si Jose at pumunta sa Faraon kasama ang lima sa kanyang kapatid. Sinabi ni Jose sa hari, "Dumating na po ang aking ama at mga kapatid galing sa Canaan, at dala po nila ang mga hayop nila at ang lahat ng kanilang ari-arian. Naroon po sila ngayon sa Goshen." 
 
 
 
@@ -1030,4 +1030,4 @@ Kapag namatay na ako, ilibing mo ako sa libingan ng aking mga ninuno." Sumagot s
 
 
 
-Sinabi ni Jacob, "Sumumpa ka sa akin." Kaya sumumpa si Jose sa kanya. Lumuhod si Jacob sa kanyang higaan para magpasalamat sa Dios_.
+Sinabi ni Jacob, "Sumumpa ka sa akin." Kaya sumumpa si Jose sa kanya. Lumuhod si Jacob sa kanyang higaan para magpasalamat sa Dios.

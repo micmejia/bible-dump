@@ -73,7 +73,7 @@ Sinabi ng Panginoon kay Moises, "Padadalhan ko ng isa pang salot ang Faraon at a
 
 
 
-Sabihin mo sa mga Israelita, lalaki man o babae, na humingi sila ng mga alahas na pilak at ginto sa mga kapitbahay nila na Egipcio_." 
+Sabihin mo sa mga Israelita, lalaki man o babae, na humingi sila ng mga alahas na pilak at ginto sa mga kapitbahay nila na Egipcio." 
 
 
 

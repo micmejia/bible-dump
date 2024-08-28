@@ -205,7 +205,7 @@ Naging hari ang Panginoon ng Israel nang magtipon ang kanilang mga pinuno at ang
 
 
 
-Sinabi ni Moises tungkol sa lahi ni Reuben,_ "Sanaʼy hindi mawala ang mga lahi ni Reuben kahit kakaunti lang sila." 
+Sinabi ni Moises tungkol sa lahi ni Reuben, "Sanaʼy hindi mawala ang mga lahi ni Reuben kahit kakaunti lang sila." 
 
 
 
@@ -238,7 +238,7 @@ Sinabi ni Moises tungkol sa lahi ni Reuben,_ "Sanaʼy hindi mawala ang mga lahi 
 
 
 
-Sinabi ni Moises tungkol sa lahi ni Juda "O Panginoon, pakinggan po ninyo ang paghingi ng tulong ng lahi_ ni Juda. Muli po ninyo silang isama sa ibang mga lahi ng Israel_. Protektahan at tulungan ninyo sila laban sa kanilang mga kaaway." 
+Sinabi ni Moises tungkol sa lahi ni Juda "O Panginoon, pakinggan po ninyo ang paghingi ng tulong ng lahi ni Juda. Muli po ninyo silang isama sa ibang mga lahi ng Israel. Protektahan at tulungan ninyo sila laban sa kanilang mga kaaway." 
 
 
 
@@ -271,7 +271,7 @@ Sinabi ni Moises tungkol sa lahi ni Juda "O Panginoon, pakinggan po ninyo ang pa
 
 
 
-Sinabi ni Moises tungkol sa lahi ni Levi, "O Panginoon, ibinigay po ninyo ang 'Urim' at 'Thummim' sa tapat ninyong mga lingkod na lahi ni Levi_. Sinubukan ninyo sila sa Masa at sinaway sa tabi ng tubig ng Meriba. 
+Sinabi ni Moises tungkol sa lahi ni Levi, "O Panginoon, ibinigay po ninyo ang 'Urim' at 'Thummim' sa tapat ninyong mga lingkod na lahi ni Levi. Sinubukan ninyo sila sa Masa at sinaway sa tabi ng tubig ng Meriba. 
 
 
 
@@ -601,7 +601,7 @@ Ang kanyang lakas ay katulad ng lakas ng batang bakang lalaki. Ang kanyang kapan
 
 
 
-Sinabi ni Moises tungkol sa lahi nila Zebulun at Isacar_, "Matutuwa ang lahi nina_ Zebulun at Isacar dahil uunlad sila_ sa kanilang lugar. 
+Sinabi ni Moises tungkol sa lahi nila Zebulun at Isacar, "Matutuwa ang lahi nina Zebulun at Isacar dahil uunlad sila sa kanilang lugar. 
 
 
 
@@ -964,4 +964,4 @@ Kaya mamumuhay ang Israel na malayo sa kapahamakan, sa lupaing sagana sa trigo a
 
 
 
-Pinagpala kayo, mga mamamayan ng_ Israel! Wala kayong katulad – isang bansa na iniligtas ng Panginoon. Ang Panginoon ang mag-iingat at tutulong sa inyo, at siya ang makikipaglaban para sa inyo. Gagapang ang inyong mga kaaway papunta sa inyo, at tatapakan ninyo sila sa likod."
+Pinagpala kayo, mga mamamayan ng Israel! Wala kayong katulad – isang bansa na iniligtas ng Panginoon. Ang Panginoon ang mag-iingat at tutulong sa inyo, at siya ang makikipaglaban para sa inyo. Gagapang ang inyong mga kaaway papunta sa inyo, at tatapakan ninyo sila sa likod."

@@ -40,7 +40,7 @@ next: ['John 15']
 
 
 
-Sinabi ni Jesus sa kanila,_ "Huwag kayong mabagabag. Magtiwala kayo sa Dios at magtiwala rin kayo sa akin. 
+Sinabi ni Jesus sa kanila, "Huwag kayong mabagabag. Magtiwala kayo sa Dios at magtiwala rin kayo sa akin. 
 
 
 
@@ -436,7 +436,7 @@ Sinasabi ko sa inyo ang totoo, ang sumasampalataya sa akin ay makakagawa rin ng 
 
 
 
-At anuman ang hilingin nʼyo sa aking pangalan ay gagawin ko upang maparangalan ang Ama sa pamamagitan ko na kanyang_ Anak. 
+At anuman ang hilingin nʼyo sa aking pangalan ay gagawin ko upang maparangalan ang Ama sa pamamagitan ko na kanyang Anak. 
 
 
 
@@ -570,7 +570,7 @@ At hihilingin ko sa Ama na bigyan niya kayo ng isang Tagatulong na sasainyo magp
 
 
 
-Siya ang Banal na_ Espiritu na tagapagturo_ ng katotohanan. Hindi siya matanggap ng mga taong_ makamundo dahil hindi siya nakikita o nakikilala ng mga ito. Pero kilala nʼyo siya, dahil kasama nʼyo siya at sasainyo magpakailanman_. 
+Siya ang Banal na Espiritu na tagapagturo ng katotohanan. Hindi siya matanggap ng mga taong makamundo dahil hindi siya nakikita o nakikilala ng mga ito. Pero kilala nʼyo siya, dahil kasama nʼyo siya at sasainyo magpakailanman. 
 
 
 
@@ -636,7 +636,7 @@ Siya ang Banal na_ Espiritu na tagapagturo_ ng katotohanan. Hindi siya matanggap
 
 
 
-Kaunting panahon na lang at hindi na ako makikita ng mga tao sa_ mundo, pero makikita nʼyo ako. At dahil buhay ako, mabubuhay din kayo. 
+Kaunting panahon na lang at hindi na ako makikita ng mga tao sa mundo, pero makikita nʼyo ako. At dahil buhay ako, mabubuhay din kayo. 
 
 
 
@@ -801,7 +801,7 @@ Sumagot si Jesus, "Ang nagmamahal sa akin ay susunod sa aking salita. Mamahalin 
 
 
 
-Ngunit_ ang hindi nagmamahal sa akin ay hindi sumusunod sa aking mga salita. At ang mga salitang narinig nʼyo ay hindi nanggaling sa akin kundi sa Amang nagsugo sa akin. 
+Ngunit ang hindi nagmamahal sa akin ay hindi sumusunod sa aking mga salita. At ang mga salitang narinig nʼyo ay hindi nanggaling sa akin kundi sa Amang nagsugo sa akin. 
 
 
 
@@ -867,7 +867,7 @@ Ngunit_ ang hindi nagmamahal sa akin ay hindi sumusunod sa aking mga salita. At 
 
 
 
-Pero kapag nakaalis na ako_, ang Tagatulong na walang iba kundi ang Banal na Espiritu ang ipapadala ng Ama bilang kapalit ko. Siya ang magtuturo sa inyo ng lahat ng bagay at magpapaalala sa inyo ng lahat ng mga sinabi ko sa inyo. 
+Pero kapag nakaalis na ako, ang Tagatulong na walang iba kundi ang Banal na Espiritu ang ipapadala ng Ama bilang kapalit ko. Siya ang magtuturo sa inyo ng lahat ng bagay at magpapaalala sa inyo ng lahat ng mga sinabi ko sa inyo. 
 
 
 
@@ -966,7 +966,7 @@ Narinig nʼyo ang sinabi ko na aalis ako pero babalik din sa inyo. Kung mahal n�
 
 
 
-Sinasabi ko ito ngayon sa inyo bago pa man mangyari upang sumampalataya kayo sa akin_ kapag nangyari na ito. 
+Sinasabi ko ito ngayon sa inyo bago pa man mangyari upang sumampalataya kayo sa akin kapag nangyari na ito. 
 
 
 
@@ -999,7 +999,7 @@ Sinasabi ko ito ngayon sa inyo bago pa man mangyari upang sumampalataya kayo sa 
 
 
 
-Hindi na ako magsasalita nang matagal dahil dumarating na si Satanas na_ siyang naghahari sa mundong ito. Wala siyang kapangyarihan sa akin. 
+Hindi na ako magsasalita nang matagal dahil dumarating na si Satanas na siyang naghahari sa mundong ito. Wala siyang kapangyarihan sa akin. 
 
 
 

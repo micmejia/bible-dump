@@ -139,7 +139,7 @@ Nang marinig ng mga tao na nagsalita siya sa wikang Hebreo, lalo silang tumahimi
 
 
 
-Inusig ko at sinikap na patayin ang mga sumusunod sa pamamaraan ni Jesus_. Hinuli ko sila at ikinulong, lalaki man o babae. 
+Inusig ko at sinikap na patayin ang mga sumusunod sa pamamaraan ni Jesus. Hinuli ko sila at ikinulong, lalaki man o babae. 
 
 
 
@@ -172,7 +172,7 @@ Inusig ko at sinikap na patayin ang mga sumusunod sa pamamaraan ni Jesus_. Hinul
 
 
 
-Ang punong pari at ang lahat ng miyembro ng Korte ng mga Judio ay makapagpapatunay sa lahat ng sinasabi ko. Sila mismo ang nagbigay sa akin ng sulat para sa mga kapatid nating Judio_ doon sa Damascus. At sa bisa ng sulat na iyon,_ pumunta ako sa Damascus para hulihin ang mga sumasampalataya kay Jesus at dalhin pabalik dito sa Jerusalem para parusahan.
+Ang punong pari at ang lahat ng miyembro ng Korte ng mga Judio ay makapagpapatunay sa lahat ng sinasabi ko. Sila mismo ang nagbigay sa akin ng sulat para sa mga kapatid nating Judio doon sa Damascus. At sa bisa ng sulat na iyon, pumunta ako sa Damascus para hulihin ang mga sumasampalataya kay Jesus at dalhin pabalik dito sa Jerusalem para parusahan.
 
 ## Ikinuwento ni Pablo Kung Paano Niya Nakilala si Jesus 
 
@@ -438,7 +438,7 @@ Nabulag ako sa tindi ng liwanag. Kaya inakay ako ng aking mga kasama papuntang D
 
 
 
-Pumunta siya sa akin at sinabi, 'Kapatid na Saulo, makakakita ka na.' Noon din ay gumaling ako at_ nakita ko si Ananias. 
+Pumunta siya sa akin at sinabi, 'Kapatid na Saulo, makakakita ka na.' Noon din ay gumaling ako at nakita ko si Ananias. 
 
 
 
@@ -471,7 +471,7 @@ Pumunta siya sa akin at sinabi, 'Kapatid na Saulo, makakakita ka na.' Noon din a
 
 
 
-Sinabi niya sa akin, 'Pinili ka ng Dios ng ating mga ninuno para malaman mo ang kalooban niya at para makita mo at marinig ang boses ng Matuwid na si Jesus_. 
+Sinabi niya sa akin, 'Pinili ka ng Dios ng ating mga ninuno para malaman mo ang kalooban niya at para makita mo at marinig ang boses ng Matuwid na si Jesus. 
 
 
 
@@ -636,7 +636,7 @@ Nakita ko si Jesus na nagsasabi sa akin, 'Bilisan mo! Umalis ka agad sa Jerusale
 
 
 
-Sinabi ko sa kanya, 'Ngunit bakit hindi sila maniniwala,_ Panginoon, samantalang_ alam nila na inikot ko noon ang mga sambahan ng mga Judio para hulihin at gulpihin ang mga taong sumasampalataya sa iyo? 
+Sinabi ko sa kanya, 'Ngunit bakit hindi sila maniniwala, Panginoon, samantalang alam nila na inikot ko noon ang mga sambahan ng mga Judio para hulihin at gulpihin ang mga taong sumasampalataya sa iyo? 
 
 
 
@@ -702,7 +702,7 @@ At nang patayin si Esteban na iyong saksi, naroon ako at sumasang-ayon sa pagpat
 
 
 
-Pero sinabi ng Panginoon sa akin, 'Umalis ka sa Jerusalem_, dahil ipapadala kita sa malayong lugar para ipangaral mo ang Magandang Balita_ sa mga hindi Judio!' " 
+Pero sinabi ng Panginoon sa akin, 'Umalis ka sa Jerusalem, dahil ipapadala kita sa malayong lugar para ipangaral mo ang Magandang Balita sa mga hindi Judio!' " 
 
 
 
@@ -801,7 +801,7 @@ Patuloy ang kanilang pagsigaw, habang ibinabalibag nila ang kanilang mga damit a
 
 
 
-Kaya iniutos ng kumander sa kanyang mga sundalo_ na dalhin si Pablo sa loob ng kampo at hagupitin para ipagtapat niya ang kanyang nagawang kasalanan. Gusto niyang malaman kung bakit ganoon na lamang ang sigawan ng mga tao laban sa kanya. 
+Kaya iniutos ng kumander sa kanyang mga sundalo na dalhin si Pablo sa loob ng kampo at hagupitin para ipagtapat niya ang kanyang nagawang kasalanan. Gusto niyang malaman kung bakit ganoon na lamang ang sigawan ng mga tao laban sa kanya. 
 
 
 

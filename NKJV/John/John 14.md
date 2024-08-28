@@ -13,10 +13,10 @@ next: ['John 15']
 "Let not your heart be troubled; you believe in God, believe also in Me. 
 
 ###### 2 
-In My Father's house are many mansions; if _it were_ not _so,_ I would have told you. I go to prepare a place for you. 
+In My Father's house are many mansions; if it were not so, I would have told you. I go to prepare a place for you. 
 
 ###### 3 
-And if I go and prepare a place for you, I will come again and receive you to Myself; that where I am, _there_ you may be also. 
+And if I go and prepare a place for you, I will come again and receive you to Myself; that where I am, there you may be also. 
 
 ###### 4 
 And where I go you know, and the way you know." 
@@ -39,21 +39,21 @@ Philip said to Him, "Lord, show us the Father, and it is sufficient for us."
 Jesus said to him, "Have I been with you so long, and yet you have not known Me, Philip? He who has seen Me has seen the Father; so how can you say, 'Show us the Father'? 
 
 ###### 10 
-Do you not believe that I am in the Father, and the Father in Me? The words that I speak to you I do not speak on My own _authority;_ but the Father who dwells in Me does the works. 
+Do you not believe that I am in the Father, and the Father in Me? The words that I speak to you I do not speak on My own authority; but the Father who dwells in Me does the works. 
 
 ###### 11 
-Believe Me that I _am_ in the Father and the Father in Me, or else believe Me for the sake of the works themselves.
+Believe Me that I am in the Father and the Father in Me, or else believe Me for the sake of the works themselves.
 
 ## The Answered Prayer 
 
 ###### 12 
-"Most assuredly, I say to you, he who believes in Me, the works that I do he will do also; and greater _works_ than these he will do, because I go to My Father. 
+"Most assuredly, I say to you, he who believes in Me, the works that I do he will do also; and greater works than these he will do, because I go to My Father. 
 
 ###### 13 
 And whatever you ask in My name, that I will do, that the Father may be glorified in the Son. 
 
 ###### 14 
-If you ask anything in My name, I will do _it._
+If you ask anything in My name, I will do it.
 
 ## Jesus Promises Another Helper 
 
@@ -75,7 +75,7 @@ I will not leave you orphans; I will come to you.
 "A little while longer and the world will see Me no more, but you will see Me. Because I live, you will live also. 
 
 ###### 20 
-At that day you will know that I _am_ in My Father, and you in Me, and I in you. 
+At that day you will know that I am in My Father, and you in Me, and I in you. 
 
 ###### 21 
 He who has My commandments and keeps them, it is he who loves Me. And he who loves Me will be loved by My Father, and I will love him and manifest Myself to him." 
@@ -101,7 +101,7 @@ But the Helper, the Holy Spirit, whom the Father will send in My name, He will t
 Peace I leave with you, My peace I give to you; not as the world gives do I give to you. Let not your heart be troubled, neither let it be afraid. 
 
 ###### 28 
-You have heard Me say to you, 'I am going away and coming _back_ to you.' If you loved Me, you would rejoice because I said, 'I am going to the Father,' for My Father is greater than I. 
+You have heard Me say to you, 'I am going away and coming back to you.' If you loved Me, you would rejoice because I said, 'I am going to the Father,' for My Father is greater than I. 
 
 ###### 29 
 "And now I have told you before it comes, that when it does come to pass, you may believe. 

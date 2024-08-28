@@ -10,16 +10,16 @@ next: ['Ezek 9']
 
 
 ###### 1 
-And it came to pass in the sixth year, in the sixth _month,_ on the fifth _day_ of the month, as I sat in my house with the elders of Judah sitting before me, that the hand of the Lord God fell upon me there. 
+And it came to pass in the sixth year, in the sixth month, on the fifth day of the month, as I sat in my house with the elders of Judah sitting before me, that the hand of the Lord God fell upon me there. 
 
 ###### 2 
 Then I looked, and there was a likeness, like the appearance of fire--from the appearance of His waist and downward, fire; and from His waist and upward, like the appearance of brightness, like the color of amber. 
 
 ###### 3 
-He stretched out the form of a hand, and took me by a lock of my hair; and the Spirit lifted me up between earth and heaven, and brought me in visions of God to Jerusalem, to the door of the north gate of the inner _court,_ where the seat of the image of jealousy _was,_ which provokes to jealousy. 
+He stretched out the form of a hand, and took me by a lock of my hair; and the Spirit lifted me up between earth and heaven, and brought me in visions of God to Jerusalem, to the door of the north gate of the inner court, where the seat of the image of jealousy was, which provokes to jealousy. 
 
 ###### 4 
-And behold, the glory of the God of Israel _was_ there, like the vision that I saw in the plain. 
+And behold, the glory of the God of Israel was there, like the vision that I saw in the plain. 
 
 ###### 5 
 Then He said to me, "Son of man, lift your eyes now toward the north." So I lifted my eyes toward the north, and there, north of the altar gate, was this image of jealousy in the entrance. 
@@ -46,19 +46,19 @@ And there stood before them seventy men of the elders of the house of Israel, an
 Then He said to me, "Son of man, have you seen what the elders of the house of Israel do in the dark, every man in the room of his idols? For they say, 'The Lord does not see us, the Lord has forsaken the land.' " 
 
 ###### 13 
-And He said to me, "Turn again, _and_ you will see greater abominations that they are doing." 
+And He said to me, "Turn again, and you will see greater abominations that they are doing." 
 
 ###### 14 
 So He brought me to the door of the north gate of the Lord's house; and to my dismay, women were sitting there weeping for Tammuz. 
 
 ###### 15 
-Then He said to me, "Have you seen _this,_ O son of man? Turn again, you will see greater abominations than these." 
+Then He said to me, "Have you seen this, O son of man? Turn again, you will see greater abominations than these." 
 
 ###### 16 
-So He brought me into the inner court of the Lord's house; and there, at the door of the temple of the Lord, between the porch and the altar, _were_ about twenty-five men with their backs toward the temple of the Lord and their faces toward the east, and they were worshiping the sun toward the east. 
+So He brought me into the inner court of the Lord's house; and there, at the door of the temple of the Lord, between the porch and the altar, were about twenty-five men with their backs toward the temple of the Lord and their faces toward the east, and they were worshiping the sun toward the east. 
 
 ###### 17 
-And He said to me, "Have you seen _this,_ O son of man? Is it a trivial thing to the house of Judah to commit the abominations which they commit here? For they have filled the land with violence; then they have returned to provoke Me to anger. Indeed they put the branch to their nose. 
+And He said to me, "Have you seen this, O son of man? Is it a trivial thing to the house of Judah to commit the abominations which they commit here? For they have filled the land with violence; then they have returned to provoke Me to anger. Indeed they put the branch to their nose. 
 
 ###### 18 
 Therefore I also will act in fury. My eye will not spare nor will I have pity; and though they cry in My ears with a loud voice, I will not hear them."

@@ -10,28 +10,28 @@ next: ['Acts 28']
 
 
 ###### 1 
-And when it was decided that we should sail to Italy, they delivered Paul and some other prisoners to _one_ named Julius, a centurion of the Augustan Regiment. 
+And when it was decided that we should sail to Italy, they delivered Paul and some other prisoners to one named Julius, a centurion of the Augustan Regiment. 
 
 ###### 2 
 So, entering a ship of Adramyttium, we put to sea, meaning to sail along the coasts of Asia. Aristarchus, a Macedonian of Thessalonica, was with us. 
 
 ###### 3 
-And the next _day_ we landed at Sidon. And Julius treated Paul kindly and gave _him_ liberty to go to his friends and receive care. 
+And the next day we landed at Sidon. And Julius treated Paul kindly and gave him liberty to go to his friends and receive care. 
 
 ###### 4 
-When we had put to sea from there, we sailed under _the shelter of_ Cyprus, because the winds were contrary. 
+When we had put to sea from there, we sailed under the shelter of Cyprus, because the winds were contrary. 
 
 ###### 5 
-And when we had sailed over the sea which is off Cilicia and Pamphylia, we came to Myra, _a city_ of Lycia. 
+And when we had sailed over the sea which is off Cilicia and Pamphylia, we came to Myra, a city of Lycia. 
 
 ###### 6 
 There the centurion found an Alexandrian ship sailing to Italy, and he put us on board. 
 
 ###### 7 
-When we had sailed slowly many days, and arrived with difficulty off Cnidus, the wind not permitting us to proceed, we sailed under _the shelter of_ Crete off Salmone. 
+When we had sailed slowly many days, and arrived with difficulty off Cnidus, the wind not permitting us to proceed, we sailed under the shelter of Crete off Salmone. 
 
 ###### 8 
-Passing it with difficulty, we came to a place called Fair Havens, near the city _of_ Lasea.
+Passing it with difficulty, we came to a place called Fair Havens, near the city of Lasea.
 
 ## Paul's Warning Ignored 
 
@@ -45,33 +45,33 @@ saying, "Men, I perceive that this voyage will end with disaster and much loss, 
 Nevertheless the centurion was more persuaded by the helmsman and the owner of the ship than by the things spoken by Paul. 
 
 ###### 12 
-And because the harbor was not suitable to winter in, the majority advised to set sail from there also, if by any means they could reach Phoenix, a harbor of Crete opening toward the southwest and northwest, _and_ winter _there._
+And because the harbor was not suitable to winter in, the majority advised to set sail from there also, if by any means they could reach Phoenix, a harbor of Crete opening toward the southwest and northwest, and winter there.
 
 ## In the Tempest 
 
 ###### 13 
-When the south wind blew softly, supposing that they had obtained _their_ desire, putting out to sea, they sailed close by Crete. 
+When the south wind blew softly, supposing that they had obtained their desire, putting out to sea, they sailed close by Crete. 
 
 ###### 14 
 But not long after, a tempestuous head wind arose, called Euroclydon. 
 
 ###### 15 
-So when the ship was caught, and could not head into the wind, we let _her_ drive. 
+So when the ship was caught, and could not head into the wind, we let her drive. 
 
 ###### 16 
-And running under _the shelter of_ an island called Clauda, we secured the skiff with difficulty. 
+And running under the shelter of an island called Clauda, we secured the skiff with difficulty. 
 
 ###### 17 
-When they had taken it on board, they used cables to undergird the ship; and fearing lest they should run aground on the Syrtis _Sands,_ they struck sail and so were driven. 
+When they had taken it on board, they used cables to undergird the ship; and fearing lest they should run aground on the Syrtis Sands, they struck sail and so were driven. 
 
 ###### 18 
-And because we were exceedingly tempest-tossed, the next _day_ they lightened the ship. 
+And because we were exceedingly tempest-tossed, the next day they lightened the ship. 
 
 ###### 19 
-On the third _day_ we threw the ship's tackle overboard with our own hands. 
+On the third day we threw the ship's tackle overboard with our own hands. 
 
 ###### 20 
-Now when neither sun nor stars appeared for many days, and no small tempest beat on _us,_ all hope that we would be saved was finally given up. 
+Now when neither sun nor stars appeared for many days, and no small tempest beat on us, all hope that we would be saved was finally given up. 
 
 ###### 21 
 But after long abstinence from food, then Paul stood in the midst of them and said, "Men, you should have listened to me, and not have sailed from Crete and incurred this disaster and loss. 
@@ -92,10 +92,10 @@ Therefore take heart, men, for I believe God that it will be just as it was told
 However, we must run aground on a certain island." 
 
 ###### 27 
-Now when the fourteenth night had come, as we were driven up and down in the Adriatic _Sea,_ about midnight the sailors sensed that they were drawing near some land. 
+Now when the fourteenth night had come, as we were driven up and down in the Adriatic Sea, about midnight the sailors sensed that they were drawing near some land. 
 
 ###### 28 
-And they took soundings and found _it_ to be twenty fathoms; and when they had gone a little farther, they took soundings again and found _it_ to be fifteen fathoms. 
+And they took soundings and found it to be twenty fathoms; and when they had gone a little farther, they took soundings again and found it to be fifteen fathoms. 
 
 ###### 29 
 Then, fearing lest we should run aground on the rocks, they dropped four anchors from the stern, and prayed for day to come. 
@@ -110,13 +110,13 @@ Paul said to the centurion and the soldiers, "Unless these men stay in the ship,
 Then the soldiers cut away the ropes of the skiff and let it fall off. 
 
 ###### 33 
-And as day was about to dawn, Paul implored _them_ all to take food, saying, "Today is the fourteenth day you have waited and continued without food, and eaten nothing. 
+And as day was about to dawn, Paul implored them all to take food, saying, "Today is the fourteenth day you have waited and continued without food, and eaten nothing. 
 
 ###### 34 
 Therefore I urge you to take nourishment, for this is for your survival, since not a hair will fall from the head of any of you." 
 
 ###### 35 
-And when he had said these things, he took bread and gave thanks to God in the presence of them all; and when he had broken _it_ he began to eat. 
+And when he had said these things, he took bread and gave thanks to God in the presence of them all; and when he had broken it he began to eat. 
 
 ###### 36 
 Then they were all encouraged, and also took food themselves. 
@@ -133,7 +133,7 @@ So when they had eaten enough, they lightened the ship and threw out the wheat i
 When it was day, they did not recognize the land; but they observed a bay with a beach, onto which they planned to run the ship if possible. 
 
 ###### 40 
-And they let go the anchors and left _them_ in the sea, meanwhile loosing the rudder ropes; and they hoisted the mainsail to the wind and made for shore. 
+And they let go the anchors and left them in the sea, meanwhile loosing the rudder ropes; and they hoisted the mainsail to the wind and made for shore. 
 
 ###### 41 
 But striking a place where two seas met, they ran the ship aground; and the prow stuck fast and remained immovable, but the stern was being broken up by the violence of the waves. 
@@ -142,7 +142,7 @@ But striking a place where two seas met, they ran the ship aground; and the prow
 And the soldiers' plan was to kill the prisoners, lest any of them should swim away and escape. 
 
 ###### 43 
-But the centurion, wanting to save Paul, kept them from _their_ purpose, and commanded that those who could swim should jump _overboard_ first and get to land, 
+But the centurion, wanting to save Paul, kept them from their purpose, and commanded that those who could swim should jump overboard first and get to land, 
 
 ###### 44 
-and the rest, some on boards and some on _parts_ of the ship. And so it was that they all escaped safely to land.
+and the rest, some on boards and some on parts of the ship. And so it was that they all escaped safely to land.

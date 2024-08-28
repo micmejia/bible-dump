@@ -667,7 +667,7 @@ Ganoon din ang sinabi niya sa ikalawa, sa ikatlo at sa lahat ng aliping kasabay 
 
 
 
-At pinaalalahanan niya ang mga ito na huwag kalimutang sabihin kay Esau na nakasunod siya sa hulihan_. Sapagkat sinabi ni Jacob sa kanyang sarili, "Aalukin ko si Esau ng mga regalong ito na pinauna ko. At kung magkikita kami, baka sakaling patawarin niya ako." 
+At pinaalalahanan niya ang mga ito na huwag kalimutang sabihin kay Esau na nakasunod siya sa hulihan. Sapagkat sinabi ni Jacob sa kanyang sarili, "Aalukin ko si Esau ng mga regalong ito na pinauna ko. At kung magkikita kami, baka sakaling patawarin niya ako." 
 
 
 
@@ -1065,4 +1065,4 @@ Sumisikat na ang araw nang umalis si Jacob sa Peniel. Pipilay-pilay siya dahil n
 
 
 
-Ito ang dahilan kung bakit hanggang ngayon ang mga Israelita ay hindi kumakain ng litid sa magkatapat na buto sa balakang ng hayop_. Sapagkat sa bahaging iyon pinisil ng Dios si Jacob.
+Ito ang dahilan kung bakit hanggang ngayon ang mga Israelita ay hindi kumakain ng litid sa magkatapat na buto sa balakang ng hayop. Sapagkat sa bahaging iyon pinisil ng Dios si Jacob.

@@ -73,7 +73,7 @@ Ngayon, sinabi ng Dios kay Jacob, "Maghanda ka, pumunta ka sa Betel at doon mani
 
 
 
-Kaya sinabi ni Jacob sa sambahayan niya at sa lahat ng kasama niya, "Itapon ninyo ang mga dios-diosan ninyo. Maging malinis kayo at magbihis ng damit bilang simbolo ng bago at malinis na buhay_. 
+Kaya sinabi ni Jacob sa sambahayan niya at sa lahat ng kasama niya, "Itapon ninyo ang mga dios-diosan ninyo. Maging malinis kayo at magbihis ng damit bilang simbolo ng bago at malinis na buhay. 
 
 
 
@@ -139,7 +139,7 @@ Pagkatapos, pupunta tayo sa Betel, at gagawa ako roon ng altar para sumamba sa D
 
 
 
-Kaya ibinigay nila kay Jacob ang mga dios-diosan nila pati na ang mga hikaw nila na ginagamit bilang anting-anting_. Ibinaon ni Jacob ang lahat ng ito sa ilalim ng punongkahoy na_ terebinto malapit sa Shekem. 
+Kaya ibinigay nila kay Jacob ang mga dios-diosan nila pati na ang mga hikaw nila na ginagamit bilang anting-anting. Ibinaon ni Jacob ang lahat ng ito sa ilalim ng punongkahoy na terebinto malapit sa Shekem. 
 
 
 
@@ -238,7 +238,7 @@ Nakarating sila Jacob at ang mga kasama niya sa Luz (na tinatawag ding Betel) do
 
 
 
-Gumawa siya roon ng altar. Tinawag niya ang lugar na iyon na El Betel dahil nagpakita sa kanya roon ang Dios nang tumakas siya sa kanyang kapatid na si Esau_. 
+Gumawa siya roon ng altar. Tinawag niya ang lugar na iyon na El Betel dahil nagpakita sa kanya roon ang Dios nang tumakas siya sa kanyang kapatid na si Esau. 
 
 
 
@@ -271,7 +271,7 @@ Gumawa siya roon ng altar. Tinawag niya ang lugar na iyon na El Betel dahil nagp
 
 
 
-Namatay si Debora na tagapag-alaga ni Rebeka. Kaya inilibing siya sa ilalim ng punongkahoy na_ terebinto na nasa paanan ng Betel. Tinawag iyon na punongkahoy na Allon Bacut. 
+Namatay si Debora na tagapag-alaga ni Rebeka. Kaya inilibing siya sa ilalim ng punongkahoy na terebinto na nasa paanan ng Betel. Tinawag iyon na punongkahoy na Allon Bacut. 
 
 
 
@@ -403,7 +403,7 @@ Sinabi pa ng Dios sa kanya, "Ako ang Makapangyarihang Dios. Magkakaroon ka ng ma
 
 
 
-Ang lupain na ibinigay ko kay Abraham at kay Isaac ay ibibigay ko rin sa iyo at sa mga lahi mo." 13-14Pagkatapos, umalis ang Dios sa lugar na iyon kung saan nakipag-usap siya kay Jacob, at nagtayo roon si Jacob ng batong alaala. Binuhusan niya agad ng alak at langis ang bato para maging banal_. 
+Ang lupain na ibinigay ko kay Abraham at kay Isaac ay ibibigay ko rin sa iyo at sa mga lahi mo." 13-14Pagkatapos, umalis ang Dios sa lugar na iyon kung saan nakipag-usap siya kay Jacob, at nagtayo roon si Jacob ng batong alaala. Binuhusan niya agad ng alak at langis ang bato para maging banal. 
 
 
 
@@ -636,7 +636,7 @@ Nilagyan ni Jacob ng bato ang libingan ni Raquel bilang palatandaan, at hanggang
 
 
 
-Nagpatuloy sina Jacob sa kanilang paglalakbay. Pagdating nila sa kabilang panig_ ng Migdal Eder, nagtayo sila roon ng mga tolda nila. 
+Nagpatuloy sina Jacob sa kanilang paglalakbay. Pagdating nila sa kabilang panig ng Migdal Eder, nagtayo sila roon ng mga tolda nila. 
 
 
 
@@ -904,4 +904,4 @@ Nabuhay si Isaac ng 180 taon.
 
 
 
-Namatay siya sa katandaan na kontento sa kanyang buhay, at kasama na ng kanyang mga kamag-anak na sumakabilang buhay na_. Inilibing siya ng mga anak niyang sina Esau at Jacob.
+Namatay siya sa katandaan na kontento sa kanyang buhay, at kasama na ng kanyang mga kamag-anak na sumakabilang buhay na. Inilibing siya ng mga anak niyang sina Esau at Jacob.

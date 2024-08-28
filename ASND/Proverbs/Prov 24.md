@@ -306,7 +306,7 @@ Kapag ikaw ay nawalan ng pag-asa sa panahon ng kahirapan, nagpapakita lang ito n
 
 
 
-Huwag kang mag-atubiling iligtas ang walang kasalanan na_ hinatulan ng kamatayan. 
+Huwag kang mag-atubiling iligtas ang walang kasalanan na hinatulan ng kamatayan. 
 
 
 
@@ -339,7 +339,7 @@ Huwag kang mag-atubiling iligtas ang walang kasalanan na_ hinatulan ng kamatayan
 
 
 
-Maaaring sabihin mo na wala kang nalalaman sa nangyari, pero alam ng Dios kung totoo o hindi ang iyong sinasabi_, dahil binabantayan ka niya at alam niya ang nasa puso mo. Gagantimpalaan ka niya ayon sa iyong mga ginawa. 13-14Anak, kung papaanong matamis at mabuti para sa iyo ang pulot, ganoon din naman ang karunungan. Sapagkat kung marunong ka, mapapabuti ang iyong kinabukasan at mapapasaiyo ang iyong mga hinahangad. 
+Maaaring sabihin mo na wala kang nalalaman sa nangyari, pero alam ng Dios kung totoo o hindi ang iyong sinasabi, dahil binabantayan ka niya at alam niya ang nasa puso mo. Gagantimpalaan ka niya ayon sa iyong mga ginawa. 13-14Anak, kung papaanong matamis at mabuti para sa iyo ang pulot, ganoon din naman ang karunungan. Sapagkat kung marunong ka, mapapabuti ang iyong kinabukasan at mapapasaiyo ang iyong mga hinahangad. 
 
 
 
@@ -968,7 +968,7 @@ Nang makita ko ito, napaisip ako ng mabuti, at natutunan ko ang aral na ito:
 
 
 
-Sa kaunting pahinga, kaunting pagtulog, at paghalukipkip mo, taong tamad,_ 
+Sa kaunting pahinga, kaunting pagtulog, at paghalukipkip mo, taong tamad, 
 
 
 

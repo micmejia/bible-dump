@@ -10,7 +10,7 @@ next: ['Dan 3']
 
 
 ###### 1 
-Now in the second year of Nebuchadnezzar's reign, Nebuchadnezzar had dreams; and his spirit was _so_ troubled that his sleep left him. 
+Now in the second year of Nebuchadnezzar's reign, Nebuchadnezzar had dreams; and his spirit was so troubled that his sleep left him. 
 
 ###### 2 
 Then the king gave the command to call the magicians, the astrologers, the sorcerers, and the Chaldeans to tell the king his dreams. So they came and stood before the king. 
@@ -34,24 +34,24 @@ They answered again and said, "Let the king tell his servants the dream, and we 
 The king answered and said, "I know for certain that you would gain time, because you see that my decision is firm: 
 
 ###### 9 
-if you do not make known the dream to me, _there is only_ one decree for you! For you have agreed to speak lying and corrupt words before me till the time has changed. Therefore tell me the dream, and I shall know that you can give me its interpretation." 
+if you do not make known the dream to me, there is only one decree for you! For you have agreed to speak lying and corrupt words before me till the time has changed. Therefore tell me the dream, and I shall know that you can give me its interpretation." 
 
 ###### 10 
-The Chaldeans answered the king, and said, "There is not a man on earth who can tell the king's matter; therefore no king, lord, or ruler has _ever_ asked such things of any magician, astrologer, or Chaldean. 
+The Chaldeans answered the king, and said, "There is not a man on earth who can tell the king's matter; therefore no king, lord, or ruler has ever asked such things of any magician, astrologer, or Chaldean. 
 
 ###### 11 
-_It is_ a difficult thing that the king requests, and there is no other who can tell it to the king except the gods, whose dwelling is not with flesh." 
+It is a difficult thing that the king requests, and there is no other who can tell it to the king except the gods, whose dwelling is not with flesh." 
 
 ###### 12 
-For this reason the king was angry and very furious, and gave the command to destroy all the wise _men_ of Babylon. 
+For this reason the king was angry and very furious, and gave the command to destroy all the wise men of Babylon. 
 
 ###### 13 
-So the decree went out, and they began killing the wise _men;_ and they sought Daniel and his companions, to kill _them._
+So the decree went out, and they began killing the wise men; and they sought Daniel and his companions, to kill them.
 
 ## God Reveals Nebuchadnezzar's Dream 
 
 ###### 14 
-Then with counsel and wisdom Daniel answered Arioch, the captain of the king's guard, who had gone out to kill the wise _men_ of Babylon; 
+Then with counsel and wisdom Daniel answered Arioch, the captain of the king's guard, who had gone out to kill the wise men of Babylon; 
 
 ###### 15 
 he answered and said to Arioch the king's captain, "Why is the decree from the king so urgent?" Then Arioch made the decision known to Daniel. 
@@ -63,7 +63,7 @@ So Daniel went in and asked the king to give him time, that he might tell the ki
 Then Daniel went to his house, and made the decision known to Hananiah, Mishael, and Azariah, his companions, 
 
 ###### 18 
-that they might seek mercies from the God of heaven concerning this secret, so that Daniel and his companions might not perish with the rest of the wise _men_ of Babylon. 
+that they might seek mercies from the God of heaven concerning this secret, so that Daniel and his companions might not perish with the rest of the wise men of Babylon. 
 
 ###### 19 
 Then the secret was revealed to Daniel in a night vision. So Daniel blessed the God of heaven. 
@@ -75,37 +75,37 @@ Daniel answered and said: "Blessed be the name of God forever and ever, For wisd
 And He changes the times and the seasons; He removes kings and raises up kings; He gives wisdom to the wise And knowledge to those who have understanding. 
 
 ###### 22 
-He reveals deep and secret things; He knows what _is_ in the darkness, And light dwells with Him. 
+He reveals deep and secret things; He knows what is in the darkness, And light dwells with Him. 
 
 ###### 23 
 "I thank You and praise You, O God of my fathers; You have given me wisdom and might, And have now made known to me what we asked of You, For You have made known to us the king's demand." ## Daniel Explains the Dream 
 
 ###### 24 
-Therefore Daniel went to Arioch, whom the king had appointed to destroy the wise _men_ of Babylon. He went and said thus to him: "Do not destroy the wise _men_ of Babylon; take me before the king, and I will tell the king the interpretation." 
+Therefore Daniel went to Arioch, whom the king had appointed to destroy the wise men of Babylon. He went and said thus to him: "Do not destroy the wise men of Babylon; take me before the king, and I will tell the king the interpretation." 
 
 ###### 25 
 Then Arioch quickly brought Daniel before the king, and said thus to him, "I have found a man of the captives of Judah, who will make known to the king the interpretation." 
 
 ###### 26 
-The king answered and said to Daniel, whose name _was_ Belteshazzar, "Are you able to make known to me the dream which I have seen, and its interpretation?" 
+The king answered and said to Daniel, whose name was Belteshazzar, "Are you able to make known to me the dream which I have seen, and its interpretation?" 
 
 ###### 27 
-Daniel answered in the presence of the king, and said, "The secret which the king has demanded, the wise _men,_ the astrologers, the magicians, and the soothsayers cannot declare to the king. 
+Daniel answered in the presence of the king, and said, "The secret which the king has demanded, the wise men, the astrologers, the magicians, and the soothsayers cannot declare to the king. 
 
 ###### 28 
 But there is a God in heaven who reveals secrets, and He has made known to King Nebuchadnezzar what will be in the latter days. Your dream, and the visions of your head upon your bed, were these: 
 
 ###### 29 
-As for you, O king, thoughts came _to_ your _mind while_ on your bed, _about_ what would come to pass after this; and He who reveals secrets has made known to you what will be. 
+As for you, O king, thoughts came to your mind while on your bed, about what would come to pass after this; and He who reveals secrets has made known to you what will be. 
 
 ###### 30 
-But as for me, this secret has not been revealed to me because I have more wisdom than anyone living, but for _our_ sakes who make known the interpretation to the king, and that you may know the thoughts of your heart. 
+But as for me, this secret has not been revealed to me because I have more wisdom than anyone living, but for our sakes who make known the interpretation to the king, and that you may know the thoughts of your heart. 
 
 ###### 31 
-"You, O king, were watching; and behold, a great image! This great image, whose splendor _was_ excellent, stood before you; and its form _was_ awesome. 
+"You, O king, were watching; and behold, a great image! This great image, whose splendor was excellent, stood before you; and its form was awesome. 
 
 ###### 32 
-This image's head _was_ of fine gold, its chest and arms of silver, its belly and thighs of bronze, 
+This image's head was of fine gold, its chest and arms of silver, its belly and thighs of bronze, 
 
 ###### 33 
 its legs of iron, its feet partly of iron and partly of clay. 
@@ -117,25 +117,25 @@ You watched while a stone was cut out without hands, which struck the image on i
 Then the iron, the clay, the bronze, the silver, and the gold were crushed together, and became like chaff from the summer threshing floors; the wind carried them away so that no trace of them was found. And the stone that struck the image became a great mountain and filled the whole earth. 
 
 ###### 36 
-"This _is_ the dream. Now we will tell the interpretation of it before the king. 
+"This is the dream. Now we will tell the interpretation of it before the king. 
 
 ###### 37 
-You, O king, _are_ a king of kings. For the God of heaven has given you a kingdom, power, strength, and glory; 
+You, O king, are a king of kings. For the God of heaven has given you a kingdom, power, strength, and glory; 
 
 ###### 38 
-and wherever the children of men dwell, or the beasts of the field and the birds of the heaven, He has given _them_ into your hand, and has made you ruler over them all--you _are_ this head of gold. 
+and wherever the children of men dwell, or the beasts of the field and the birds of the heaven, He has given them into your hand, and has made you ruler over them all--you are this head of gold. 
 
 ###### 39 
 But after you shall arise another kingdom inferior to yours; then another, a third kingdom of bronze, which shall rule over all the earth. 
 
 ###### 40 
-And the fourth kingdom shall be as strong as iron, inasmuch as iron breaks in pieces and shatters everything; and like iron that crushes, _that kingdom_ will break in pieces and crush all the others. 
+And the fourth kingdom shall be as strong as iron, inasmuch as iron breaks in pieces and shatters everything; and like iron that crushes, that kingdom will break in pieces and crush all the others. 
 
 ###### 41 
 Whereas you saw the feet and toes, partly of potter's clay and partly of iron, the kingdom shall be divided; yet the strength of the iron shall be in it, just as you saw the iron mixed with ceramic clay. 
 
 ###### 42 
-And _as_ the toes of the feet _were_ partly of iron and partly of clay, _so_ the kingdom shall be partly strong and partly fragile. 
+And as the toes of the feet were partly of iron and partly of clay, so the kingdom shall be partly strong and partly fragile. 
 
 ###### 43 
 As you saw iron mixed with ceramic clay, they will mingle with the seed of men; but they will not adhere to one another, just as iron does not mix with clay. 
@@ -150,10 +150,10 @@ Inasmuch as you saw that the stone was cut out of the mountain without hands, an
 Then King Nebuchadnezzar fell on his face, prostrate before Daniel, and commanded that they should present an offering and incense to him. 
 
 ###### 47 
-The king answered Daniel, and said, "Truly your God _is_ the God of gods, the Lord of kings, and a revealer of secrets, since you could reveal this secret." 
+The king answered Daniel, and said, "Truly your God is the God of gods, the Lord of kings, and a revealer of secrets, since you could reveal this secret." 
 
 ###### 48 
-Then the king promoted Daniel and gave him many great gifts; and he made him ruler over the whole province of Babylon, and chief administrator over all the wise _men_ of Babylon. 
+Then the king promoted Daniel and gave him many great gifts; and he made him ruler over the whole province of Babylon, and chief administrator over all the wise men of Babylon. 
 
 ###### 49 
-Also Daniel petitioned the king, and he set Shadrach, Meshach, and Abed-Nego over the affairs of the province of Babylon; but Daniel _sat_ in the gate of the king.
+Also Daniel petitioned the king, and he set Shadrach, Meshach, and Abed-Nego over the affairs of the province of Babylon; but Daniel sat in the gate of the king.

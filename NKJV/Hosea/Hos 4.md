@@ -10,16 +10,16 @@ next: ['Hos 5']
 
 
 ###### 1 
-Hear the word of the Lord, You children of Israel, For the Lord _brings_ a charge against the inhabitants of the land: "There is no truth or mercy Or knowledge of God in the land. 
+Hear the word of the Lord, You children of Israel, For the Lord brings a charge against the inhabitants of the land: "There is no truth or mercy Or knowledge of God in the land. 
 
 ###### 2 
-_By_ swearing and lying, Killing and stealing and committing adultery, They break all restraint, With bloodshed upon bloodshed. 
+By swearing and lying, Killing and stealing and committing adultery, They break all restraint, With bloodshed upon bloodshed. 
 
 ###### 3 
 Therefore the land will mourn; And everyone who dwells there will waste away With the beasts of the field And the birds of the air; Even the fish of the sea will be taken away. 
 
 ###### 4 
-"Now let no man contend, or rebuke another; For your people _are_ like those who contend with the priest. 
+"Now let no man contend, or rebuke another; For your people are like those who contend with the priest. 
 
 ###### 5 
 Therefore you shall stumble in the day; The prophet also shall stumble with you in the night; And I will destroy your mother. 
@@ -45,22 +45,22 @@ For they shall eat, but not have enough; They shall commit harlotry, but not inc
 "Harlotry, wine, and new wine enslave the heart. 
 
 ###### 12 
-My people ask counsel from their wooden _idols,_ And their staff informs them. For the spirit of harlotry has caused _them_ to stray, And they have played the harlot against their God. 
+My people ask counsel from their wooden idols, And their staff informs them. For the spirit of harlotry has caused them to stray, And they have played the harlot against their God. 
 
 ###### 13 
-They offer sacrifices on the mountaintops, And burn incense on the hills, Under oaks, poplars, and terebinths, Because their shade _is_ good. Therefore your daughters commit harlotry, And your brides commit adultery. 
+They offer sacrifices on the mountaintops, And burn incense on the hills, Under oaks, poplars, and terebinths, Because their shade is good. Therefore your daughters commit harlotry, And your brides commit adultery. 
 
 ###### 14 
-"I will not punish your daughters when they commit harlotry, Nor your brides when they commit adultery; For _the men_ themselves go apart with harlots, And offer sacrifices with a ritual harlot. Therefore people _who_ do not understand will be trampled. 
+"I will not punish your daughters when they commit harlotry, Nor your brides when they commit adultery; For the men themselves go apart with harlots, And offer sacrifices with a ritual harlot. Therefore people who do not understand will be trampled. 
 
 ###### 15 
-"Though you, Israel, play the harlot, Let not Judah offend. Do not come up to Gilgal, Nor go up to Beth Aven, Nor swear an oath, _saying,_ 'As the Lord lives'-- 
+"Though you, Israel, play the harlot, Let not Judah offend. Do not come up to Gilgal, Nor go up to Beth Aven, Nor swear an oath, saying, 'As the Lord lives'-- 
 
 ###### 16 
 "For Israel is stubborn Like a stubborn calf; Now the Lord will let them forage Like a lamb in open country. 
 
 ###### 17 
-"Ephraim _is_ joined to idols, Let him alone. 
+"Ephraim is joined to idols, Let him alone. 
 
 ###### 18 
 Their drink is rebellion, They commit harlotry continually. Her rulers dearly love dishonor. 

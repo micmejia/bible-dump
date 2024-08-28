@@ -45,16 +45,16 @@ of righteousness, because I go to My Father and you see Me no more;
 of judgment, because the ruler of this world is judged. 
 
 ###### 12 
-"I still have many things to say to you, but you cannot bear _them_ now. 
+"I still have many things to say to you, but you cannot bear them now. 
 
 ###### 13 
-However, when He, the Spirit of truth, has come, He will guide you into all truth; for He will not speak on His own _authority,_ but whatever He hears He will speak; and He will tell you things to come. 
+However, when He, the Spirit of truth, has come, He will guide you into all truth; for He will not speak on His own authority, but whatever He hears He will speak; and He will tell you things to come. 
 
 ###### 14 
-He will glorify Me, for He will take of what is Mine and declare _it_ to you. 
+He will glorify Me, for He will take of what is Mine and declare it to you. 
 
 ###### 15 
-All things that the Father has are Mine. Therefore I said that He will take of Mine and declare _it_ to you.
+All things that the Father has are Mine. Therefore I said that He will take of Mine and declare it to you.
 
 ## Sorrow Will Turn to Joy 
 
@@ -62,7 +62,7 @@ All things that the Father has are Mine. Therefore I said that He will take of M
 "A little while, and you will not see Me; and again a little while, and you will see Me, because I go to the Father." 
 
 ###### 17 
-Then _some_ of His disciples said among themselves, "What is this that He says to us, 'A little while, and you will not see Me; and again a little while, and you will see Me'; and, 'because I go to the Father'?" 
+Then some of His disciples said among themselves, "What is this that He says to us, 'A little while, and you will not see Me; and again a little while, and you will see Me'; and, 'because I go to the Father'?" 
 
 ###### 18 
 They said therefore, "What is this that He says, 'A little while'? We do not know what He is saying." 

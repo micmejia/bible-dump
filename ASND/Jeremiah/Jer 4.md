@@ -106,7 +106,7 @@ at kung susumpa ka sa pangalan ko lamang at mamumuhay nang tapat, matuwid at tam
 
 
 
-Sinabi ng Panginoon sa mga taga-Juda at taga-Jerusalem, "Baguhin nʼyo ang inyong mga sarili na para bang_ nagbubungkal kayo ng inyong lupa na hindi pa nabubungkal. At huwag nʼyong ihasik ang mabuti nʼyong binhi sa mga damong matinik. 
+Sinabi ng Panginoon sa mga taga-Juda at taga-Jerusalem, "Baguhin nʼyo ang inyong mga sarili na para bang nagbubungkal kayo ng inyong lupa na hindi pa nabubungkal. At huwag nʼyong ihasik ang mabuti nʼyong binhi sa mga damong matinik. 
 
 
 
@@ -306,7 +306,7 @@ Kaya isuot nʼyo na ang damit na panluksa at umiyak dahil matindi pa rin ang gal
 
 
 
-Sinabi ng Panginoon, "Sa araw na iyon, maduduwag ang hari at ang mga pinuno niya_, masisindak ang mga pari, at mangingilabot ang mga propeta." 
+Sinabi ng Panginoon, "Sa araw na iyon, maduduwag ang hari at ang mga pinuno niya, masisindak ang mga pari, at mangingilabot ang mga propeta." 
 
 
 
@@ -372,7 +372,7 @@ Pagkatapos, sinabi ko, "Panginoong Dios, nalinlang po ang mga tao sa sinabi nʼy
 
 
 
-Darating ang araw na sasabihin ng Panginoon sa mga taga-Jerusalem, "Iihip ang mainit na hangin mula sa ilang patungo sa mga mamamayan ko, pero hindi ito para mapahanginan ang mga trigo nila_. 
+Darating ang araw na sasabihin ng Panginoon sa mga taga-Jerusalem, "Iihip ang mainit na hangin mula sa ilang patungo sa mga mamamayan ko, pero hindi ito para mapahanginan ang mga trigo nila. 
 
 
 
@@ -570,7 +570,7 @@ Inutusan silang bigyan ng babala ang mga bansa at ang Jerusalem na may mga sunda
 
 
 
-Pinaligiran nila ang Jerusalem na parang mga taong nagbabantay ng bukid, dahil ang Jerusalem ay naghimagsik sa akin. Ako,_ ang Panginoon, ang nagsasabi nito. 
+Pinaligiran nila ang Jerusalem na parang mga taong nagbabantay ng bukid, dahil ang Jerusalem ay naghimagsik sa akin. Ako, ang Panginoon, ang nagsasabi nito. 
 
 
 
@@ -735,7 +735,7 @@ Hanggang kailan ko kaya makikita ang watawat ng digmaan at ang tunog ng trumpeta
 
 
 
-Sinabi ng Panginoon,_ "Hangal ang mga mamamayan ko; hindi nila ako nakikilala. Silaʼy mga mangmang na kabataan at hindi nakakaunawa. Sanay silang gumawa ng masama pero hindi marunong gumawa ng mabuti." ## Ang Pangitain ni Jeremias tungkol sa Darating na Kapahamakan 
+Sinabi ng Panginoon, "Hangal ang mga mamamayan ko; hindi nila ako nakikilala. Silaʼy mga mangmang na kabataan at hindi nakakaunawa. Sanay silang gumawa ng masama pero hindi marunong gumawa ng mabuti." ## Ang Pangitain ni Jeremias tungkol sa Darating na Kapahamakan 
 
 
 
@@ -768,7 +768,7 @@ Sinabi ng Panginoon,_ "Hangal ang mga mamamayan ko; hindi nila ako nakikilala. S
 
 
 
-Tiningnan ko ang lupain at nakita kong itoʼy wala nang anyo at wala nang laman. At nakita ko ring_ ang langit ay wala nang liwanag. 
+Tiningnan ko ang lupain at nakita kong itoʼy wala nang anyo at wala nang laman. At nakita ko ring ang langit ay wala nang liwanag. 
 
 
 
@@ -933,7 +933,7 @@ Ito ang sinasabi ng Panginoon, "Ang buong lupain ay magigiba, pero hindi ko ito 
 
 
 
-Iiyak ang sanlibutan at magdidilim ang langit, dahil sinabi ko na ang kaparusahan_ at hindi ko na ito babaguhin. Nakapagpasya na ako at hindi na magbabago ang isip ko." 
+Iiyak ang sanlibutan at magdidilim ang langit, dahil sinabi ko na ang kaparusahan at hindi ko na ito babaguhin. Nakapagpasya na ako at hindi na magbabago ang isip ko." 
 
 
 
@@ -966,7 +966,7 @@ Iiyak ang sanlibutan at magdidilim ang langit, dahil sinabi ko na ang kaparusaha
 
 
 
-Sa ingay ng mga nangangabayo at mamamana, tumakas na sa takot ang mga mamamayan ng_ bawat bayan. Ang iba ay tumakas sa kagubatan at ang iba ay umakyat sa batuhan. Ang lahat ng bayan ay iniwanan at walang natirang naninirahan sa mga ito. 
+Sa ingay ng mga nangangabayo at mamamana, tumakas na sa takot ang mga mamamayan ng bawat bayan. Ang iba ay tumakas sa kagubatan at ang iba ay umakyat sa batuhan. Ang lahat ng bayan ay iniwanan at walang natirang naninirahan sa mga ito. 
 
 
 
@@ -999,7 +999,7 @@ Sa ingay ng mga nangangabayo at mamamana, tumakas na sa takot ang mga mamamayan 
 
 
 
-Jerusalem malapit ka nang mawasak. Ano ang ginagawa mo? Bakit nakadamit ka pa ng magandang damit at mga alahas? Bakit naglalagay ka pa ng mga kolorete sa mga mata mo? Wala nang kabuluhan ang pagpapaganda mo. Itinakwil ka na ng iyong mga minamahal na kakamping bansa_ at gusto ka na nilang patayin. 
+Jerusalem malapit ka nang mawasak. Ano ang ginagawa mo? Bakit nakadamit ka pa ng magandang damit at mga alahas? Bakit naglalagay ka pa ng mga kolorete sa mga mata mo? Wala nang kabuluhan ang pagpapaganda mo. Itinakwil ka na ng iyong mga minamahal na kakamping bansa at gusto ka na nilang patayin. 
 
 
 
@@ -1032,4 +1032,4 @@ Jerusalem malapit ka nang mawasak. Ano ang ginagawa mo? Bakit nakadamit ka pa ng
 
 
 
-Narinig ko ang pag-iyak at pagdaing, na parang babaeng nanganganak sa kanyang panganay. Iyak ito ng mga mamamayan ng Jerusalem na parang hinahabol ang kanilang hininga. Itinataas nila ang kanilang mga kamay at nagsasabing_, "Kawawa naman kami; at parang hihimatayin na, sapagkat nariyan na ang aming_ mga kaaway na_ papatay sa amin."
+Narinig ko ang pag-iyak at pagdaing, na parang babaeng nanganganak sa kanyang panganay. Iyak ito ng mga mamamayan ng Jerusalem na parang hinahabol ang kanilang hininga. Itinataas nila ang kanilang mga kamay at nagsasabing, "Kawawa naman kami; at parang hihimatayin na, sapagkat nariyan na ang aming mga kaaway na papatay sa amin."

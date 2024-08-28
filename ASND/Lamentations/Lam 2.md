@@ -40,7 +40,7 @@ next: ['Lam 3']
 
 
 
-Sa galit ng Panginoon, tinakpan niya ng makapal na ulap ang Jerusalem. Ibinagsak niya ang karangalan ng Israel, na parang itinapon_ mula sa langit papunta sa lupa. At dahil sa kanyang galit, pinabayaan niya ang kanyang templo sa Jerusalem. 
+Sa galit ng Panginoon, tinakpan niya ng makapal na ulap ang Jerusalem. Ibinagsak niya ang karangalan ng Israel, na parang itinapon mula sa langit papunta sa lupa. At dahil sa kanyang galit, pinabayaan niya ang kanyang templo sa Jerusalem. 
 
 
 
@@ -304,7 +304,7 @@ Nagpasya ang Panginoon na ipagiba ang mga pader na nakapalibot sa lungsod ng Jer
 
 
 
-Bumagsak sa lupa ang mga pintuang bayan ng Jerusalem. Sinira at binali ng Panginoon_ ang mga saraduhan nito. Binihag ang hari at mga pinuno at dinala sa malayong mga bansa. Hindi na rin itinuturo ang kautusan at wala na ring mensahe o pangitain ang Panginoon sa kanyang mga propeta. 
+Bumagsak sa lupa ang mga pintuang bayan ng Jerusalem. Sinira at binali ng Panginoon ang mga saraduhan nito. Binihag ang hari at mga pinuno at dinala sa malayong mga bansa. Hindi na rin itinuturo ang kautusan at wala na ring mensahe o pangitain ang Panginoon sa kanyang mga propeta. 
 
 
 
@@ -502,7 +502,7 @@ Ang pangitaing nakita ng iyong mga propeta ay hindi totoo, walang kabuluhan at m
 
 
 
-Ang lahat ng dumadaaʼy pumapalakpak, sumusutsot at nangungutya. Sinasabi nila, "Ito ba ang lungsod na sinasabing_ 'Pinakamaganda at kagalakan ng buong mundo?' " 
+Ang lahat ng dumadaaʼy pumapalakpak, sumusutsot at nangungutya. Sinasabi nila, "Ito ba ang lungsod na sinasabing 'Pinakamaganda at kagalakan ng buong mundo?' " 
 
 
 
@@ -568,7 +568,7 @@ Kinukutya ka ng lahat ng kaaway mo. Sumusutsot at pinangangalit ang mga ngipin n
 
 
 
-Ginawa ng Panginoon ang kanyang plano. Tinupad niya ang sinabi niya noon. Walang awa ka niyang giniba, O Jerusalem!_ Binigyan niya ng kagalakan ang mga kaaway mo at hinayaan silang ipagyabang ang kanilang kapangyarihan. 
+Ginawa ng Panginoon ang kanyang plano. Tinupad niya ang sinabi niya noon. Walang awa ka niyang giniba, O Jerusalem! Binigyan niya ng kagalakan ang mga kaaway mo at hinayaan silang ipagyabang ang kanilang kapangyarihan. 
 
 
 
@@ -634,7 +634,7 @@ Mga taga-Jerusalem, tumawag kayo sa Panginoon. Umiyak kayo araw at gabi at paagu
 
 
 
-Bumangon kayo sa gabi at humingi ng tulong sa Panginoon. Ibuhos ninyo sa kanya ang laman ng inyong mga puso, na para kayong nagbubuhos ng tubig. Itaas ninyo ang inyong mga kamay sa pananalangin_ para sa inyong mga anak na nawawalan ng malay sa mga lansangan dahil sa gutom. 
+Bumangon kayo sa gabi at humingi ng tulong sa Panginoon. Ibuhos ninyo sa kanya ang laman ng inyong mga puso, na para kayong nagbubuhos ng tubig. Itaas ninyo ang inyong mga kamay sa pananalangin para sa inyong mga anak na nawawalan ng malay sa mga lansangan dahil sa gutom. 
 
 
 

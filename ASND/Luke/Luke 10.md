@@ -40,7 +40,7 @@ next: ['Luke 11']
 
 
 
-Pagkatapos nito, pumili pa ang Panginoon ng 72 tagasunod_, at sinugo ang mga ito nang dala-dalawa sa mga bayan at sa iba pang mga lugar na pupuntahan niya. 
+Pagkatapos nito, pumili pa ang Panginoon ng 72 tagasunod, at sinugo ang mga ito nang dala-dalawa sa mga bayan at sa iba pang mga lugar na pupuntahan niya. 
 
 
 
@@ -403,7 +403,7 @@ Ngunit kung ayaw kayong tanggapin sa isang bayan, umalis kayo, at habang naglala
 
 
 
-Sinabi pa ni Jesus sa mga tagasunod niya,_ "Tinitiyak ko sa inyo na sa Araw ng Paghuhukom, mas mabigat na parusa ang tatanggapin nila kaysa sa mga taga-Sodom." ## Babala sa mga Bayang Hindi Nagsisisi 
+Sinabi pa ni Jesus sa mga tagasunod niya, "Tinitiyak ko sa inyo na sa Araw ng Paghuhukom, mas mabigat na parusa ang tatanggapin nila kaysa sa mga taga-Sodom." ## Babala sa mga Bayang Hindi Nagsisisi 
 
 
 
@@ -436,7 +436,7 @@ Sinabi pa ni Jesus sa mga tagasunod niya,_ "Tinitiyak ko sa inyo na sa Araw ng P
 
 
 
-Sinabi pa ni Jesus,_ "Nakakaawa kayong mga taga-Corazin! Nakakaawa rin kayong mga taga-Betsaida! Sapagkat kung sa Tyre at Sidon naganap ang mga himalang ginawa ko sa inyo, matagal na sana silang nagsuot ng sako at naglagay ng abo sa kanilang ulo para ipakita ang pagsisisi nila. 
+Sinabi pa ni Jesus, "Nakakaawa kayong mga taga-Corazin! Nakakaawa rin kayong mga taga-Betsaida! Sapagkat kung sa Tyre at Sidon naganap ang mga himalang ginawa ko sa inyo, matagal na sana silang nagsuot ng sako at naglagay ng abo sa kanilang ulo para ipakita ang pagsisisi nila. 
 
 
 
@@ -535,7 +535,7 @@ At kayo namang mga taga-Capernaum, inaakala ninyong pupurihin kayo kahit sa lang
 
 
 
-Pagkatapos, sinabi ni Jesus sa mga sinugo niya,_ "Ang nakikinig sa inyoʼy nakikinig sa akin, ang nagtatakwil sa inyoʼy nagtatakwil sa akin, at ang nagtatakwil sa akin ay nagtatakwil sa nagsugo sa akin." ## Bumalik ang 72 Tagasunod ni Jesus 
+Pagkatapos, sinabi ni Jesus sa mga sinugo niya, "Ang nakikinig sa inyoʼy nakikinig sa akin, ang nagtatakwil sa inyoʼy nagtatakwil sa akin, at ang nagtatakwil sa akin ay nagtatakwil sa nagsugo sa akin." ## Bumalik ang 72 Tagasunod ni Jesus 
 
 
 
@@ -568,7 +568,7 @@ Pagkatapos, sinabi ni Jesus sa mga sinugo niya,_ "Ang nakikinig sa inyoʼy nakik
 
 
 
-Masayang bumalik ang 72 tagasunod ni Jesus_. Sinabi nila sa kanya, "Panginoon, kahit po ang masasamang espiritu ay sumusunod sa amin kapag inutusan namin sila_ sa pangalan nʼyo!" 
+Masayang bumalik ang 72 tagasunod ni Jesus. Sinabi nila sa kanya, "Panginoon, kahit po ang masasamang espiritu ay sumusunod sa amin kapag inutusan namin sila sa pangalan nʼyo!" 
 
 
 
@@ -700,7 +700,7 @@ Ganoon pa man, huwag kayong matuwa dahil napapasunod ninyo ang masasamang espiri
 
 
 
-Nang oras ding iyon, napuno si Jesus ng kagalakang mula sa Banal na Espiritu. At sinabi niya, "Pinupuri kita Ama, Panginoon ng langit at ng lupa, dahil inilihim mo ang mga katotohanang_ ito sa mga taong ang akala sa sariliʼy mga_ marurunong at matatalino, at inihayag mo sa mga taong tulad ng bata na kaunti lang ang nalalaman_. Oo, Ama, pinupuri kita_ dahil iyon ang kalooban mo." 
+Nang oras ding iyon, napuno si Jesus ng kagalakang mula sa Banal na Espiritu. At sinabi niya, "Pinupuri kita Ama, Panginoon ng langit at ng lupa, dahil inilihim mo ang mga katotohanang ito sa mga taong ang akala sa sariliʼy mga marurunong at matatalino, at inihayag mo sa mga taong tulad ng bata na kaunti lang ang nalalaman. Oo, Ama, pinupuri kita dahil iyon ang kalooban mo." 
 
 
 
@@ -733,7 +733,7 @@ Nang oras ding iyon, napuno si Jesus ng kagalakang mula sa Banal na Espiritu. At
 
 
 
-Pagkatapos, sinabi niya sa mga tao,_ "Ibinigay sa akin ng aking Ama ang lahat ng bagay. Walang nakakakilala sa Anak kundi ang Ama, at walang nakakakilala sa Ama kundi ang Anak at ang mga taong nais kong makakilala sa Ama." 
+Pagkatapos, sinabi niya sa mga tao, "Ibinigay sa akin ng aking Ama ang lahat ng bagay. Walang nakakakilala sa Anak kundi ang Ama, at walang nakakakilala sa Ama kundi ang Anak at ang mga taong nais kong makakilala sa Ama." 
 
 
 
@@ -931,7 +931,7 @@ Sumagot ang lalaki, "Mahalin mo ang Panginoon mong Dios nang buong puso, nang bu
 
 
 
-"Tama ang sagot mo," sabi ni Jesus. "Gawin mo iyan at magkakaroon ka ng buhay na walang hanggan_." 
+"Tama ang sagot mo," sabi ni Jesus. "Gawin mo iyan at magkakaroon ka ng buhay na walang hanggan." 
 
 
 
@@ -997,7 +997,7 @@ Pero ayaw mapahiya ng tagapagturo, kaya nagtanong ulit siya, "At sino naman po a
 
 
 
-Bilang sagot sa kanya, nagkwento si Jesus: "May isang taong papunta sa Jerico galing sa Jerusalem. Habang naglalakad siya, hinarang siya ng mga tulisan. Kinuha nila ang mga dala niya, pati na ang suot niya. Binugbog nila siya at iniwang halos patay na sa tabi ng daan_. 
+Bilang sagot sa kanya, nagkwento si Jesus: "May isang taong papunta sa Jerico galing sa Jerusalem. Habang naglalakad siya, hinarang siya ng mga tulisan. Kinuha nila ang mga dala niya, pati na ang suot niya. Binugbog nila siya at iniwang halos patay na sa tabi ng daan. 
 
 
 
@@ -1195,7 +1195,7 @@ Kinabukasan, binigyan ng Samaritano ng pera ang may-ari ng bahay-panuluyan at si
 
 
 
-Nagtanong ngayon si Jesus sa tagapagturo ng Kautusan,_ "Sa palagay mo, sino sa tatlong ito ang nagpakita na siya ang tunay na kapwa-tao ng biktima ng mga tulisan?" 
+Nagtanong ngayon si Jesus sa tagapagturo ng Kautusan, "Sa palagay mo, sino sa tatlong ito ang nagpakita na siya ang tunay na kapwa-tao ng biktima ng mga tulisan?" 
 
 
 

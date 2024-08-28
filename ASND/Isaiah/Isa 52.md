@@ -75,7 +75,7 @@ Bumangon ka, O Zion, at magpakatatag. Ipakita mo ang iyong kapangyarihan, O bana
 
 Huwag ka nang malungkot katulad ng taong nagluluksa na nakaupo sa lupa. Bumangon ka na at muling mamahala. At kayong mga mamamayan ng Jerusalem, palayain nʼyo na ang inyong sarili mula sa pagkabihag.
 
-###### 3-4 Sapagkat ito ang sinasabi ng Panginoong Dios, "Binihag kayo na parang mga taong ipinagbili bilang alipin na walang bayad, kaya tutubusin ko kayo ng wala ring bayad. Pumunta kayo noon sa Egipto upang doon manirahan at inapi kayo roon_. At noong huli inapi rin kayo ng Asiria. 
+###### 3-4 Sapagkat ito ang sinasabi ng Panginoong Dios, "Binihag kayo na parang mga taong ipinagbili bilang alipin na walang bayad, kaya tutubusin ko kayo ng wala ring bayad. Pumunta kayo noon sa Egipto upang doon manirahan at inapi kayo roon. At noong huli inapi rin kayo ng Asiria. 
 
 
 
@@ -108,7 +108,7 @@ Huwag ka nang malungkot katulad ng taong nagluluksa na nakaupo sa lupa. Bumangon
 
 
 
-Ngayon, ano na naman ang nangyari sa inyo? Binihag kayo ng Babilonia_ na parang wala ring bayad. Pinamahalaan nila kayo at nilait. Maging ako ay lagi rin nilang nilalapastangan. 
+Ngayon, ano na naman ang nangyari sa inyo? Binihag kayo ng Babilonia na parang wala ring bayad. Pinamahalaan nila kayo at nilait. Maging ako ay lagi rin nilang nilalapastangan. 
 
 
 

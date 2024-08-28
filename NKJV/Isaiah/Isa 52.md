@@ -22,16 +22,16 @@ For thus says the Lord: "You have sold yourselves for nothing, And you shall be 
 For thus says the Lord God: "My people went down at first Into Egypt to dwell there; Then the Assyrian oppressed them without cause. 
 
 ###### 5 
-Now therefore, what have I here," says the Lord, "That My people are taken away for nothing? Those who rule over them Make them wail," says the Lord, "And My name _is_ blasphemed continually every day. 
+Now therefore, what have I here," says the Lord, "That My people are taken away for nothing? Those who rule over them Make them wail," says the Lord, "And My name is blasphemed continually every day. 
 
 ###### 6 
-Therefore My people shall know My name; Therefore _they shall know_ in that day That I _am_ He who speaks: 'Behold, _it is_ I.' " 
+Therefore My people shall know My name; Therefore they shall know in that day That I am He who speaks: 'Behold, it is I.' " 
 
 ###### 7 
-How beautiful upon the mountains Are the feet of him who brings good news, Who proclaims peace, Who brings glad tidings of good _things,_ Who proclaims salvation, Who says to Zion, "Your God reigns!" 
+How beautiful upon the mountains Are the feet of him who brings good news, Who proclaims peace, Who brings glad tidings of good things, Who proclaims salvation, Who says to Zion, "Your God reigns!" 
 
 ###### 8 
-Your watchmen shall lift up _their_ voices, With their voices they shall sing together; For they shall see eye to eye When the Lord brings back Zion. 
+Your watchmen shall lift up their voices, With their voices they shall sing together; For they shall see eye to eye When the Lord brings back Zion. 
 
 ###### 9 
 Break forth into joy, sing together, You waste places of Jerusalem! For the Lord has comforted His people, He has redeemed Jerusalem. 
@@ -40,10 +40,10 @@ Break forth into joy, sing together, You waste places of Jerusalem! For the Lord
 The Lord has made bare His holy arm In the eyes of all the nations; And all the ends of the earth shall see The salvation of our God. 
 
 ###### 11 
-Depart! Depart! Go out from there, Touch no unclean _thing;_ Go out from the midst of her, Be clean, You who bear the vessels of the Lord. 
+Depart! Depart! Go out from there, Touch no unclean thing; Go out from the midst of her, Be clean, You who bear the vessels of the Lord. 
 
 ###### 12 
-For you shall not go out with haste, Nor go by flight; For the Lord will go before you, And the God of Israel _will be_ your rear guard.
+For you shall not go out with haste, Nor go by flight; For the Lord will go before you, And the God of Israel will be your rear guard.
 
 ## The Sin-Bearing Servant 
 

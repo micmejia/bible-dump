@@ -139,7 +139,7 @@ Huwag kayong magpapakasal sa kanila, at huwag din ninyong papayagan ang mga anak
 
 
 
-Sapagkat ilalayo nila sa Panginoon ang inyong mga anak para paglingkuran ang ibang mga dios. At kapag nangyari ito_, ipapalasap ng Panginoon ang galit niya sa inyo at agad kayong malilipol. 
+Sapagkat ilalayo nila sa Panginoon ang inyong mga anak para paglingkuran ang ibang mga dios. At kapag nangyari ito, ipapalasap ng Panginoon ang galit niya sa inyo at agad kayong malilipol. 
 
 
 
@@ -172,7 +172,7 @@ Sapagkat ilalayo nila sa Panginoon ang inyong mga anak para paglingkuran ang iba
 
 
 
-Sa halip, ito ang gawin ninyo: Gibain ninyo ang mga altar nila, durugin ang mga alaalang bato nila, putulin ang kanilang mga posteng simbolo ng diosang si_ Ashera, at sunugin ninyo ang mga dios-diosan nila. 
+Sa halip, ito ang gawin ninyo: Gibain ninyo ang mga altar nila, durugin ang mga alaalang bato nila, putulin ang kanilang mga posteng simbolo ng diosang si Ashera, at sunugin ninyo ang mga dios-diosan nila. 
 
 
 

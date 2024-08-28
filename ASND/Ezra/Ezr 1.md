@@ -204,7 +204,7 @@ May mga Israelitang hinipo ng Panginoon para bumalik sa Jerusalem. Kaya naghanda
 
 
 
-Ang ibang mga tao ay tumulong sa kanila sa pamamagitan ng pagbibigay ng mga gamit na gawa sa pilak at ginto, mga kakailanganing bagay, mga hayop, iba pang mga mamahaling bagay, at pagtulong na kusang-loob para sa templo_. 
+Ang ibang mga tao ay tumulong sa kanila sa pamamagitan ng pagbibigay ng mga gamit na gawa sa pilak at ginto, mga kakailanganing bagay, mga hayop, iba pang mga mamahaling bagay, at pagtulong na kusang-loob para sa templo. 
 
 
 

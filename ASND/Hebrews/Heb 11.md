@@ -271,7 +271,7 @@ Dahil sa pananampalataya, pinakinggan ni Noe ang babala ng Dios tungkol sa mga b
 
 
 
-Dahil sa pananampalataya, sinunod ni Abraham ang utos ng Dios na pumunta sa lugar na ipinangako sa kanya. Umalis siya sa bayan niya_ kahit hindi niya alam kung saan siya pupunta. 
+Dahil sa pananampalataya, sinunod ni Abraham ang utos ng Dios na pumunta sa lugar na ipinangako sa kanya. Umalis siya sa bayan niya kahit hindi niya alam kung saan siya pupunta. 
 
 
 
@@ -304,7 +304,7 @@ Dahil sa pananampalataya, sinunod ni Abraham ang utos ng Dios na pumunta sa luga
 
 
 
-Dahil din sa pananampalataya, nanirahan si Abraham sa lupaing ipinangako sa kanya ng Dios_ kahit na sa tolda lang siya tumira na parang isang dayuhan. Tumira rin sa tolda ang anak niya na_ si Isaac at apong_ si Jacob, na mga tagapagmana rin ng pangako ng Dios. 
+Dahil din sa pananampalataya, nanirahan si Abraham sa lupaing ipinangako sa kanya ng Dios kahit na sa tolda lang siya tumira na parang isang dayuhan. Tumira rin sa tolda ang anak niya na si Isaac at apong si Jacob, na mga tagapagmana rin ng pangako ng Dios. 
 
 
 
@@ -337,7 +337,7 @@ Dahil din sa pananampalataya, nanirahan si Abraham sa lupaing ipinangako sa kany
 
 
 
-Sapagkat ang talagang inaasahan ni Abraham ay isang lungsod na may matibay na_ pundasyon, na ang Dios mismo ang nagplano at nagtayo. 
+Sapagkat ang talagang inaasahan ni Abraham ay isang lungsod na may matibay na pundasyon, na ang Dios mismo ang nagplano at nagtayo. 
 
 
 
@@ -370,7 +370,7 @@ Sapagkat ang talagang inaasahan ni Abraham ay isang lungsod na may matibay na_ p
 
 
 
-Dahil sa pananampalataya, nagkaanak si Abraham kahit na matanda na siya at baog ang asawa niyang si Sara, dahil naniwala si Abraham na tutuparin ng Dios ang pangako niya na magkakaanak si Sara_. 
+Dahil sa pananampalataya, nagkaanak si Abraham kahit na matanda na siya at baog ang asawa niyang si Sara, dahil naniwala si Abraham na tutuparin ng Dios ang pangako niya na magkakaanak si Sara. 
 
 
 
@@ -535,7 +535,7 @@ Kung ang bayang iniwan nila ang iniisip nila, may pagkakataon pa silang makabali
 
 
 
-Ngunit hinahangad nila ang mas mabuting lugar, at itoʼy walang iba kundi ang lungsod na nasa_ langit. Kaya hindi ikinakahiya ng Dios na siyaʼy tawagin nilang Dios, dahil ipinaghanda niya sila ng isang lungsod. 17-18Dahil sa pananampalataya, handang ihandog ni Abraham ang kaisa-isa niyang anak na si Isaac nang subukin siya ng Dios. Kahit na alam niyang si Isaac ang ipinangako ng Dios na pagmumulan ng kanyang lahi, handa pa rin niya itong ialay. 
+Ngunit hinahangad nila ang mas mabuting lugar, at itoʼy walang iba kundi ang lungsod na nasa langit. Kaya hindi ikinakahiya ng Dios na siyaʼy tawagin nilang Dios, dahil ipinaghanda niya sila ng isang lungsod. 17-18Dahil sa pananampalataya, handang ihandog ni Abraham ang kaisa-isa niyang anak na si Isaac nang subukin siya ng Dios. Kahit na alam niyang si Isaac ang ipinangako ng Dios na pagmumulan ng kanyang lahi, handa pa rin niya itong ialay. 
 
 
 
@@ -832,7 +832,7 @@ Itinuring niyang mas mahalaga ang maalipusta para kay Cristo kaysa sa mga kayama
 
 
 
-Dahil sa pananampalataya, iniwan ni Moises ang Egipto at hindi siya natakot kahit na magalit ang hari sa kanya. Nanindigan siya dahil parang nakita niya ang Dios na_ hindi nakikita. 
+Dahil sa pananampalataya, iniwan ni Moises ang Egipto at hindi siya natakot kahit na magalit ang hari sa kanya. Nanindigan siya dahil parang nakita niya ang Dios na hindi nakikita. 
 
 
 
@@ -865,7 +865,7 @@ Dahil sa pananampalataya, iniwan ni Moises ang Egipto at hindi siya natakot kahi
 
 
 
-Dahil sa pananampalataya niya, sinimulan niya ang pagdaraos ng Pista ng Paglampas ng Anghel. Inutusan niya ang mga Israelita_ na pahiran ng dugo ng tupa ang mga pintuan nila_, para maligtas ang mga panganay nila sa anghel na papatay sa mga panganay ng mga Egipcio_. 
+Dahil sa pananampalataya niya, sinimulan niya ang pagdaraos ng Pista ng Paglampas ng Anghel. Inutusan niya ang mga Israelita na pahiran ng dugo ng tupa ang mga pintuan nila, para maligtas ang mga panganay nila sa anghel na papatay sa mga panganay ng mga Egipcio. 
 
 
 
@@ -1030,7 +1030,7 @@ Kailangan ko pa bang magbigay ng maraming halimbawa? Kakapusin ako ng panahon ku
 
 
 
-Dahil sa pananampalataya nila, nilupig nila ang mga kaharian, namahala sila nang may katarungan, at tinanggap nila ang mga ipinangako ng Dios. Dahil sa pananampalataya nila,_ hindi sila ginalaw ng mga leon, 
+Dahil sa pananampalataya nila, nilupig nila ang mga kaharian, namahala sila nang may katarungan, at tinanggap nila ang mga ipinangako ng Dios. Dahil sa pananampalataya nila, hindi sila ginalaw ng mga leon, 
 
 
 
@@ -1063,7 +1063,7 @@ Dahil sa pananampalataya nila, nilupig nila ang mga kaharian, namahala sila nang
 
 
 
-hindi sila napaso sa nagliliyab na apoy, at nakaligtas sila sa kamatayan sa pamamagitan ng espada. Ang iba sa kanilaʼy mahihina, pero pinalakas sila ng Dios_. At naging makapangyarihan sila sa digmaan at nilupig ang mga dayuhang hukbo. 
+hindi sila napaso sa nagliliyab na apoy, at nakaligtas sila sa kamatayan sa pamamagitan ng espada. Ang iba sa kanilaʼy mahihina, pero pinalakas sila ng Dios. At naging makapangyarihan sila sa digmaan at nilupig ang mga dayuhang hukbo. 
 
 
 
@@ -1096,7 +1096,7 @@ hindi sila napaso sa nagliliyab na apoy, at nakaligtas sila sa kamatayan sa pama
 
 
 
-May mga babae naman na dahil sa pananampalataya nila sa Dios ay_ muling nabuhay ang kanilang mga anak na_ namatay. Ang iba namang sumasampalataya sa Dios_ ay pinahirapan hanggang sa mamatay_. Tinanggihan nila ang alok na kalayaan kapalit ng pagtalikod nila sa kanilang pananampalataya_ dahil nalalaman nilang darating ang araw na bubuhayin sila ng Dios at_ matatanggap nila ang mas mabuting gantimpala. 
+May mga babae naman na dahil sa pananampalataya nila sa Dios ay muling nabuhay ang kanilang mga anak na namatay. Ang iba namang sumasampalataya sa Dios ay pinahirapan hanggang sa mamatay. Tinanggihan nila ang alok na kalayaan kapalit ng pagtalikod nila sa kanilang pananampalataya dahil nalalaman nilang darating ang araw na bubuhayin sila ng Dios at matatanggap nila ang mas mabuting gantimpala. 
 
 
 
@@ -1162,7 +1162,7 @@ Ang iba naman ay dumanas ng mga panlalait at panghahagupit dahil sa pananampalat
 
 
 
-Pinagbabato ang iba hanggang sa mamatay, ang iba naman ay nilagari hanggang mahati ang katawan nila_, at mayroon ding pinatay sa espada. Ang ilan sa kanila ay nagdamit na lang ng balat ng tupa at kambing. Naranasan nilang maghikahos, usigin at apihin. 
+Pinagbabato ang iba hanggang sa mamatay, ang iba naman ay nilagari hanggang mahati ang katawan nila, at mayroon ding pinatay sa espada. Ang ilan sa kanila ay nagdamit na lang ng balat ng tupa at kambing. Naranasan nilang maghikahos, usigin at apihin. 
 
 
 
@@ -1228,7 +1228,7 @@ Nagtago sila sa mga ilang, mga kabundukan, mga kweba at mga lungga sa lupa. Hind
 
 
 
-Kinalugdan silang lahat ng Dios_ dahil sa pananampalataya nila. Ngunit hindi nila natanggap sa panahon nila_ ang ipinangako ng Dios sa kanila_. 
+Kinalugdan silang lahat ng Dios dahil sa pananampalataya nila. Ngunit hindi nila natanggap sa panahon nila ang ipinangako ng Dios sa kanila. 
 
 
 

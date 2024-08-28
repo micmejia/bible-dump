@@ -10,7 +10,7 @@ next: ['Jer 29']
 
 
 ###### 1 
-And it happened in the same year, at the beginning of the reign of Zedekiah king of Judah, in the fourth year _and_ in the fifth month, _that_ Hananiah the son of Azur the prophet, who _was_ from Gibeon, spoke to me in the house of the Lord in the presence of the priests and of all the people, saying, 
+And it happened in the same year, at the beginning of the reign of Zedekiah king of Judah, in the fourth year and in the fifth month, that Hananiah the son of Azur the prophet, who was from Gibeon, spoke to me in the house of the Lord in the presence of the priests and of all the people, saying, 
 
 ###### 2 
 "Thus speaks the Lord of hosts, the God of Israel, saying: 'I have broken the yoke of the king of Babylon. 
@@ -34,7 +34,7 @@ Nevertheless hear now this word that I speak in your hearing and in the hearing 
 The prophets who have been before me and before you of old prophesied against many countries and great kingdoms--of war and disaster and pestilence. 
 
 ###### 9 
-As for the prophet who prophesies of peace, when the word of the prophet comes to pass, the prophet will be known _as_ one whom the Lord has truly sent." 
+As for the prophet who prophesies of peace, when the word of the prophet comes to pass, the prophet will be known as one whom the Lord has truly sent." 
 
 ###### 10 
 Then Hananiah the prophet took the yoke off the prophet Jeremiah's neck and broke it. 

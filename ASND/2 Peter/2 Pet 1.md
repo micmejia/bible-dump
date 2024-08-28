@@ -39,7 +39,7 @@ next: ['2 Pet 2']
 
 
 
-Mula kay_ Simon Pedro na lingkod at apostol ni Jesu-Cristo. Mahal kong_ mga kapatid na_ kabahagi sa napakahalagang pananampalataya na tinanggap din namin. Ang pananampalatayang itoʼy ibinigay sa atin ni Jesu-Cristo na ating Dios at Tagapagligtas, dahil matuwid siya. 
+Mula kay Simon Pedro na lingkod at apostol ni Jesu-Cristo. Mahal kong mga kapatid na kabahagi sa napakahalagang pananampalataya na tinanggap din namin. Ang pananampalatayang itoʼy ibinigay sa atin ni Jesu-Cristo na ating Dios at Tagapagligtas, dahil matuwid siya. 
 
 
 
@@ -239,7 +239,7 @@ sa kaalaman, ang pagpipigil sa sarili; sa pagpipigil sa sarili, ang pagtitiis; s
 
 
 
-sa kabanalan, ang pag-ibig sa mga kapatid kay Cristo_; at sa pag-ibig sa mga kapatid kay Cristo_, ang pag-ibig sa lahat. 
+sa kabanalan, ang pag-ibig sa mga kapatid kay Cristo; at sa pag-ibig sa mga kapatid kay Cristo, ang pag-ibig sa lahat. 
 
 
 
@@ -305,7 +305,7 @@ Sapagkat kung ang mga katangiang ito ay nasa inyo at lumalago, nagiging makabulu
 
 
 
-Ngunit ang mga nagkukulang sa mga katangiang ito ay mga bulag sa katotohanan_. Nakalimutan na nilang nilinis na sila ng Dios sa dati nilang mga kasalanan. 
+Ngunit ang mga nagkukulang sa mga katangiang ito ay mga bulag sa katotohanan. Nakalimutan na nilang nilinis na sila ng Dios sa dati nilang mga kasalanan. 
 
 
 
@@ -338,7 +338,7 @@ Ngunit ang mga nagkukulang sa mga katangiang ito ay mga bulag sa katotohanan_. N
 
 
 
-Kaya nga, minamahal kong mga kapatid kay Cristo_, pagsikapan ninyong mapatunayan na mga tinawag nga kayo at pinili ng Dios. Sapagkat kung gagawin nʼyo ang mga bagay na ito, hindi kayo matitisod, 
+Kaya nga, minamahal kong mga kapatid kay Cristo, pagsikapan ninyong mapatunayan na mga tinawag nga kayo at pinili ng Dios. Sapagkat kung gagawin nʼyo ang mga bagay na ito, hindi kayo matitisod, 
 
 
 

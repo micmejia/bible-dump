@@ -18,7 +18,7 @@ in hope of eternal life which God, who cannot lie, promised before time began,
 but has in due time manifested His word through preaching, which was committed to me according to the commandment of God our Savior; 
 
 ###### 4 
-To Titus, a true son in _our_ common faith: Grace, mercy, _and_ peace from God the Father and the Lord Jesus Christ our Savior.
+To Titus, a true son in our common faith: Grace, mercy, and peace from God the Father and the Lord Jesus Christ our Savior.
 
 ## Qualified Elders 
 
@@ -46,7 +46,7 @@ For there are many insubordinate, both idle talkers and deceivers, especially th
 whose mouths must be stopped, who subvert whole households, teaching things which they ought not, for the sake of dishonest gain. 
 
 ###### 12 
-One of them, a prophet of their own, said, "Cretans _are_ always liars, evil beasts, lazy gluttons." 
+One of them, a prophet of their own, said, "Cretans are always liars, evil beasts, lazy gluttons." 
 
 ###### 13 
 This testimony is true. Therefore rebuke them sharply, that they may be sound in the faith, 
@@ -58,4 +58,4 @@ not giving heed to Jewish fables and commandments of men who turn from the truth
 To the pure all things are pure, but to those who are defiled and unbelieving nothing is pure; but even their mind and conscience are defiled. 
 
 ###### 16 
-They profess to know God, but in works they deny _Him,_ being abominable, disobedient, and disqualified for every good work.
+They profess to know God, but in works they deny Him, being abominable, disobedient, and disqualified for every good work.

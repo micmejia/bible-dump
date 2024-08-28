@@ -10,7 +10,7 @@ next: ['Matt 27']
 
 
 ###### 1 
-Now it came to pass, when Jesus had finished all these sayings, _that_ He said to His disciples, 
+Now it came to pass, when Jesus had finished all these sayings, that He said to His disciples, 
 
 ###### 2 
 "You know that after two days is the Passover, and the Son of Man will be delivered up to be crucified." 
@@ -19,7 +19,7 @@ Now it came to pass, when Jesus had finished all these sayings, _that_ He said t
 Then the chief priests, the scribes, and the elders of the people assembled at the palace of the high priest, who was called Caiaphas, 
 
 ###### 4 
-and plotted to take Jesus by trickery and kill _Him._ 
+and plotted to take Jesus by trickery and kill Him. 
 
 ###### 5 
 But they said, "Not during the feast, lest there be an uproar among the people." ## The Anointing at Bethany 
@@ -28,22 +28,22 @@ But they said, "Not during the feast, lest there be an uproar among the people."
 And when Jesus was in Bethany at the house of Simon the leper, 
 
 ###### 7 
-a woman came to Him having an alabaster flask of very costly fragrant oil, and she poured _it_ on His head as He sat _at the table._ 
+a woman came to Him having an alabaster flask of very costly fragrant oil, and she poured it on His head as He sat at the table. 
 
 ###### 8 
-But when His disciples saw _it,_ they were indignant, saying, "Why this waste? 
+But when His disciples saw it, they were indignant, saying, "Why this waste? 
 
 ###### 9 
-For this fragrant oil might have been sold for much and given to _the_ poor." 
+For this fragrant oil might have been sold for much and given to the poor." 
 
 ###### 10 
-But when Jesus was aware of _it,_ He said to them, "Why do you trouble the woman? For she has done a good work for Me. 
+But when Jesus was aware of it, He said to them, "Why do you trouble the woman? For she has done a good work for Me. 
 
 ###### 11 
 For you have the poor with you always, but Me you do not have always. 
 
 ###### 12 
-For in pouring this fragrant oil on My body, she did _it_ for My burial. 
+For in pouring this fragrant oil on My body, she did it for My burial. 
 
 ###### 13 
 Assuredly, I say to you, wherever this gospel is preached in the whole world, what this woman has done will also be told as a memorial to her." ## Judas Agrees to Betray Jesus 
@@ -60,7 +60,7 @@ So from that time he sought opportunity to betray Him.
 ## Jesus Celebrates Passover with His Disciples 
 
 ###### 17 
-Now on the first _day of the Feast_ of the Unleavened Bread the disciples came to Jesus, saying to Him, "Where do You want us to prepare for You to eat the Passover?" 
+Now on the first day of the Feast of the Unleavened Bread the disciples came to Jesus, saying to Him, "Where do You want us to prepare for You to eat the Passover?" 
 
 ###### 18 
 And He said, "Go into the city to a certain man, and say to him, 'The Teacher says, "My time is at hand; I will keep the Passover at your house with My disciples." ' " 
@@ -78,7 +78,7 @@ Now as they were eating, He said, "Assuredly, I say to you, one of you will betr
 And they were exceedingly sorrowful, and each of them began to say to Him, "Lord, is it I?" 
 
 ###### 23 
-He answered and said, "He who dipped _his_ hand with Me in the dish will betray Me. 
+He answered and said, "He who dipped his hand with Me in the dish will betray Me. 
 
 ###### 24 
 The Son of Man indeed goes just as it is written of Him, but woe to that man by whom the Son of Man is betrayed! It would have been good for that man if he had not been born." 
@@ -87,10 +87,10 @@ The Son of Man indeed goes just as it is written of Him, but woe to that man by 
 Then Judas, who was betraying Him, answered and said, "Rabbi, is it I?" He said to him, "You have said it." ## Jesus Institutes the Lord's Supper 
 
 ###### 26 
-And as they were eating, Jesus took bread, blessed and broke _it,_ and gave _it_ to the disciples and said, "Take, eat; this is My body." 
+And as they were eating, Jesus took bread, blessed and broke it, and gave it to the disciples and said, "Take, eat; this is My body." 
 
 ###### 27 
-Then He took the cup, and gave thanks, and gave _it_ to them, saying, "Drink from it, all of you. 
+Then He took the cup, and gave thanks, and gave it to them, saying, "Drink from it, all of you. 
 
 ###### 28 
 For this is My blood of the new covenant, which is shed for many for the remission of sins. 
@@ -130,13 +130,13 @@ And He took with Him Peter and the two sons of Zebedee, and He began to be sorro
 Then He said to them, "My soul is exceedingly sorrowful, even to death. Stay here and watch with Me." 
 
 ###### 39 
-He went a little farther and fell on His face, and prayed, saying, "O My Father, if it is possible, let this cup pass from Me; nevertheless, not as I will, but as You _will._" 
+He went a little farther and fell on His face, and prayed, saying, "O My Father, if it is possible, let this cup pass from Me; nevertheless, not as I will, but as You will." 
 
 ###### 40 
 Then He came to the disciples and found them sleeping, and said to Peter, "What! Could you not watch with Me one hour? 
 
 ###### 41 
-Watch and pray, lest you enter into temptation. The spirit indeed _is_ willing, but the flesh _is_ weak." 
+Watch and pray, lest you enter into temptation. The spirit indeed is willing, but the flesh is weak." 
 
 ###### 42 
 Again, a second time, He went away and prayed, saying, "O My Father, if this cup cannot pass away from Me unless I drink it, Your will be done." 
@@ -148,7 +148,7 @@ And He came and found them asleep again, for their eyes were heavy.
 So He left them, went away again, and prayed the third time, saying the same words. 
 
 ###### 45 
-Then He came to His disciples and said to them, "Are _you_ still sleeping and resting? Behold, the hour is at hand, and the Son of Man is being betrayed into the hands of sinners. 
+Then He came to His disciples and said to them, "Are you still sleeping and resting? Behold, the hour is at hand, and the Son of Man is being betrayed into the hands of sinners. 
 
 ###### 46 
 Rise, let us be going. See, My betrayer is at hand." ## Betrayal and Arrest in Gethsemane 
@@ -166,7 +166,7 @@ Immediately he went up to Jesus and said, "Greetings, Rabbi!" and kissed Him.
 But Jesus said to him, "Friend, why have you come?" Then they came and laid hands on Jesus and took Him. 
 
 ###### 51 
-And suddenly, one of those _who were_ with Jesus stretched out _his_ hand and drew his sword, struck the servant of the high priest, and cut off his ear. 
+And suddenly, one of those who were with Jesus stretched out his hand and drew his sword, struck the servant of the high priest, and cut off his ear. 
 
 ###### 52 
 But Jesus said to him, "Put your sword in its place, for all who take the sword will perish by the sword. 
@@ -186,7 +186,7 @@ But all this was done that the Scriptures of the prophets might be fulfilled." T
 ## Jesus Faces the Sanhedrin 
 
 ###### 57 
-And those who had laid hold of Jesus led _Him_ away to Caiaphas the high priest, where the scribes and the elders were assembled. 
+And those who had laid hold of Jesus led Him away to Caiaphas the high priest, where the scribes and the elders were assembled. 
 
 ###### 58 
 But Peter followed Him at a distance to the high priest's courtyard. And he went in and sat with the servants to see the end. 
@@ -198,16 +198,16 @@ Now the chief priests, the elders, and all the council sought false testimony ag
 but found none. Even though many false witnesses came forward, they found none. But at last two false witnesses came forward 
 
 ###### 61 
-and said, "This _fellow_ said, 'I am able to destroy the temple of God and to build it in three days.' " 
+and said, "This fellow said, 'I am able to destroy the temple of God and to build it in three days.' " 
 
 ###### 62 
-And the high priest arose and said to Him, "Do You answer nothing? What _is it_ these men testify against You?" 
+And the high priest arose and said to Him, "Do You answer nothing? What is it these men testify against You?" 
 
 ###### 63 
 But Jesus kept silent. And the high priest answered and said to Him, "I put You under oath by the living God: Tell us if You are the Christ, the Son of God!" 
 
 ###### 64 
-Jesus said to him, "_It is as_ you said. Nevertheless, I say to you, hereafter you will see the Son of Man sitting at the right hand of the Power, and coming on the clouds of heaven." 
+Jesus said to him, "It is as you said. Nevertheless, I say to you, hereafter you will see the Son of Man sitting at the right hand of the Power, and coming on the clouds of heaven." 
 
 ###### 65 
 Then the high priest tore his clothes, saying, "He has spoken blasphemy! What further need do we have of witnesses? Look, now you have heard His blasphemy! 
@@ -216,7 +216,7 @@ Then the high priest tore his clothes, saying, "He has spoken blasphemy! What fu
 What do you think?" They answered and said, "He is deserving of death." 
 
 ###### 67 
-Then they spat in His face and beat Him; and others struck _Him_ with the palms of their hands, 
+Then they spat in His face and beat Him; and others struck Him with the palms of their hands, 
 
 ###### 68 
 saying, "Prophesy to us, Christ! Who is the one who struck You?" ## Peter Denies Jesus, and Weeps Bitterly 
@@ -225,19 +225,19 @@ saying, "Prophesy to us, Christ! Who is the one who struck You?" ## Peter Denies
 Now Peter sat outside in the courtyard. And a servant girl came to him, saying, "You also were with Jesus of Galilee." 
 
 ###### 70 
-But he denied it before _them_ all, saying, "I do not know what you are saying." 
+But he denied it before them all, saying, "I do not know what you are saying." 
 
 ###### 71 
-And when he had gone out to the gateway, another _girl_ saw him and said to those _who were_ there, "This _fellow_ also was with Jesus of Nazareth." 
+And when he had gone out to the gateway, another girl saw him and said to those who were there, "This fellow also was with Jesus of Nazareth." 
 
 ###### 72 
 But again he denied with an oath, "I do not know the Man!" 
 
 ###### 73 
-And a little later those who stood by came up and said to Peter, "Surely you also are _one_ of them, for your speech betrays you." 
+And a little later those who stood by came up and said to Peter, "Surely you also are one of them, for your speech betrays you." 
 
 ###### 74 
-Then he began to curse and swear, _saying,_ "I do not know the Man!" Immediately a rooster crowed. 
+Then he began to curse and swear, saying, "I do not know the Man!" Immediately a rooster crowed. 
 
 ###### 75 
 And Peter remembered the word of Jesus who had said to him, "Before the rooster crows, you will deny Me three times." So he went out and wept bitterly.

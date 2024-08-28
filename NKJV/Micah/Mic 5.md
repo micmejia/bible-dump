@@ -15,21 +15,21 @@ Now gather yourself in troops, O daughter of troops; He has laid siege against u
 ## The Coming Messiah 
 
 ###### 2 
-"But you, Bethlehem Ephrathah, _Though_ you are little among the thousands of Judah, _Yet_ out of you shall come forth to Me The One to be Ruler in Israel, Whose goings forth _are_ from of old, From everlasting." 
+"But you, Bethlehem Ephrathah, Though you are little among the thousands of Judah, Yet out of you shall come forth to Me The One to be Ruler in Israel, Whose goings forth are from of old, From everlasting." 
 
 ###### 3 
-Therefore He shall give them up, Until the time _that_ she who is in labor has given birth; Then the remnant of His brethren Shall return to the children of Israel. 
+Therefore He shall give them up, Until the time that she who is in labor has given birth; Then the remnant of His brethren Shall return to the children of Israel. 
 
 ###### 4 
-And He shall stand and feed _His flock_ In the strength of the Lord, In the majesty of the name of the Lord His God; And they shall abide, For now He shall be great To the ends of the earth; 
+And He shall stand and feed His flock In the strength of the Lord, In the majesty of the name of the Lord His God; And they shall abide, For now He shall be great To the ends of the earth; 
 
 ###### 5 
-And this _One_ shall be peace.
+And this One shall be peace.
 
 ## Judgment on Israel's Enemies When the Assyrian comes into our land, And when he treads in our palaces, Then we will raise against him Seven shepherds and eight princely men. 
 
 ###### 6 
-They shall waste with the sword the land of Assyria, And the land of Nimrod at its entrances; Thus He shall deliver _us_ from the Assyrian, When he comes into our land And when he treads within our borders. 
+They shall waste with the sword the land of Assyria, And the land of Nimrod at its entrances; Thus He shall deliver us from the Assyrian, When he comes into our land And when he treads within our borders. 
 
 ###### 7 
 Then the remnant of Jacob Shall be in the midst of many peoples, Like dew from the Lord, Like showers on the grass, That tarry for no man Nor wait for the sons of men. 
@@ -50,7 +50,7 @@ I will cut off the cities of your land And throw down all your strongholds.
 I will cut off sorceries from your hand, And you shall have no soothsayers. 
 
 ###### 13 
-Your carved images I will also cut off, And your _sacred_ pillars from your midst; You shall no more worship the work of your hands; 
+Your carved images I will also cut off, And your sacred pillars from your midst; You shall no more worship the work of your hands; 
 
 ###### 14 
 I will pluck your wooden images from your midst; Thus I will destroy your cities. 

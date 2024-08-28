@@ -172,7 +172,7 @@ Sapagkat darating ang araw na wawasakin ang lahat ng Filisteo pati ang mga kakam
 
 
 
-Ang mga taga-Gaza ay magpapakalbo, tanda ng pagluluksa nila, at ang mga taga-Ashkelon ay tatahimik sa kalungkutan_. Kayong mga mamamayan sa kapatagan, hanggang kailan ninyo susugatan ang inyong sarili upang ipakita ang inyong kalungkutan_? 
+Ang mga taga-Gaza ay magpapakalbo, tanda ng pagluluksa nila, at ang mga taga-Ashkelon ay tatahimik sa kalungkutan. Kayong mga mamamayan sa kapatagan, hanggang kailan ninyo susugatan ang inyong sarili upang ipakita ang inyong kalungkutan? 
 
 
 
@@ -238,4 +238,4 @@ Nagtatanong kayo kung kailan ko ititigil ang pagpaparusa sa inyo sa pamamagitan 
 
 
 
-Pero paano ito mapipigil dahil inutusan ko na ito na salakayin ang Ashkelon at ang mga naninirahan sa_ baybayin ng dagat?"
+Pero paano ito mapipigil dahil inutusan ko na ito na salakayin ang Ashkelon at ang mga naninirahan sa baybayin ng dagat?"

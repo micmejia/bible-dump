@@ -72,7 +72,7 @@ Madaling-araw ng Linggo, makalipas ang Araw ng Pamamahinga, pumunta sa libingan 
 
 
 
-Biglang lumindol nang malakas, at isang anghel ng Panginoon ang bumaba mula sa langit at iginulong ang bato na nakatakip sa libingan_ at inupuan ito. 
+Biglang lumindol nang malakas, at isang anghel ng Panginoon ang bumaba mula sa langit at iginulong ang bato na nakatakip sa libingan at inupuan ito. 
 
 
 
@@ -138,7 +138,7 @@ Nakakasilaw na parang kidlat ang kanyang anyo at puting-puti ang kanyang damit.
 
 
 
-Nanginig sa takot ang mga sundalong nagbabantay sa libingan_ at hinimatay. 
+Nanginig sa takot ang mga sundalong nagbabantay sa libingan at hinimatay. 
 
 
 
@@ -204,7 +204,7 @@ Sinabi ng anghel sa mga babae, "Huwag kayong matakot! Alam kong hinahanap ninyo 
 
 
 
-Wala na siya rito, dahil nabuhay siyang muli tulad ng sinabi niya sa inyo_. Halikayo, tingnan ninyo ang pinaglagyan ng kanyang bangkay." 
+Wala na siya rito, dahil nabuhay siyang muli tulad ng sinabi niya sa inyo. Halikayo, tingnan ninyo ang pinaglagyan ng kanyang bangkay." 
 
 
 
@@ -237,7 +237,7 @@ Wala na siya rito, dahil nabuhay siyang muli tulad ng sinabi niya sa inyo_. Hali
 
 
 
-Pagkatapos, sinabi ng anghel sa kanila,_ "Puntahan nʼyo agad ang mga tagasunod niya, at sabihin ninyo sa kanila na nabuhay siyang muli at mauuna siya sa inyo sa Galilea. Doon ninyo siya makikita. Tandaan ninyo ang sinabi ko sa inyo!" 
+Pagkatapos, sinabi ng anghel sa kanila, "Puntahan nʼyo agad ang mga tagasunod niya, at sabihin ninyo sa kanila na nabuhay siyang muli at mauuna siya sa inyo sa Galilea. Doon ninyo siya makikita. Tandaan ninyo ang sinabi ko sa inyo!" 
 
 
 
@@ -270,7 +270,7 @@ Pagkatapos, sinabi ng anghel sa kanila,_ "Puntahan nʼyo agad ang mga tagasunod 
 
 
 
-Kaya dali-dali silang umalis sa libingan. At kahit natatakot sila, masaya pa rin sila sa ibinalita sa kanila ng anghel_. Patakbo nilang pinuntahan ang mga tagasunod ni Jesus upang ibalita ang pangyayari. 
+Kaya dali-dali silang umalis sa libingan. At kahit natatakot sila, masaya pa rin sila sa ibinalita sa kanila ng anghel. Patakbo nilang pinuntahan ang mga tagasunod ni Jesus upang ibalita ang pangyayari. 
 
 
 
@@ -369,7 +369,7 @@ Sinabi sa kanila ni Jesus, "Huwag kayong matakot. Puntahan ninyo ang aking mga k
 
 
 
-Pagkaalis ng mga babae sa libingan_, pumunta naman sa lungsod ang ilan sa mga guwardya upang ibalita sa mga namamahalang pari ang nangyari. 
+Pagkaalis ng mga babae sa libingan, pumunta naman sa lungsod ang ilan sa mga guwardya upang ibalita sa mga namamahalang pari ang nangyari. 
 
 
 
@@ -536,7 +536,7 @@ Tinanggap ng mga guwardya ang pera at ginawa ang sinabi sa kanila. Kaya hanggang
 
 
 
-Pumunta ang 11 tagasunod ni Jesus_ sa Galilea, doon sa isang bundok na sinabi sa kanila ni Jesus. 
+Pumunta ang 11 tagasunod ni Jesus sa Galilea, doon sa isang bundok na sinabi sa kanila ni Jesus. 
 
 
 

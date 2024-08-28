@@ -73,7 +73,7 @@ Gumawa rin sila ng kwadradong altar na pagsusunugan ng handog na sinusunog. Pito
 
 
 
-Nilagyan nila ito ng parang_ mga sungay sa apat na sulok, na kasama nang ginawa nang gawin ang altar. Binalutan nila ng tanso ang altar. 
+Nilagyan nila ito ng parang mga sungay sa apat na sulok, na kasama nang ginawa nang gawin ang altar. Binalutan nila ng tanso ang altar. 
 
 
 
@@ -273,7 +273,7 @@ Isinuksok nila ang mga tukod sa argolya sa bawat gilid ng altar para mabuhat ito
 
 
 
-Pagkatapos, gumawa sila ng tansong planggana. Ang patungan nito ay tanso rin. Ang mga tansong ginamit dito ay galing sa tanso na_ salamin ng mga babaeng naglilingkod sa pintuan ng Toldang Tipanan.
+Pagkatapos, gumawa sila ng tansong planggana. Ang patungan nito ay tanso rin. Ang mga tansong ginamit dito ay galing sa tanso na salamin ng mga babaeng naglilingkod sa pintuan ng Toldang Tipanan.
 
 ## Ang Paggawa sa Bakuran ng Toldang Tipanan 
 
@@ -308,7 +308,7 @@ Pagkatapos, gumawa sila ng tansong planggana. Ang patungan nito ay tanso rin. An
 
 
 
-Nilagyan nila ng bakuran ang Toldang Tipanan_, at pinalibutan nila ito ng mga kurtina na pinong telang_ linen. Ang haba ng kurtina sa bandang timog ay 150 talampakan. 
+Nilagyan nila ng bakuran ang Toldang Tipanan, at pinalibutan nila ito ng mga kurtina na pinong telang linen. Ang haba ng kurtina sa bandang timog ay 150 talampakan. 
 
 
 
@@ -539,7 +539,7 @@ Ang kurtina sa kaliwa ay 22 at kalahating talampakan ang haba, at nakakabit ito 
 
 
 
-Ang lahat ng kurtina sa palibot ng bakuran ay gawa sa pinong telang_ linen. 
+Ang lahat ng kurtina sa palibot ng bakuran ay gawa sa pinong telang linen. 
 
 
 
@@ -605,7 +605,7 @@ Tanso ang pundasyon ng mga haligi, at pilak naman ang mga kawit, at mga baras ni
 
 
 
-Ang kurtina ng pintuan ng bakuran ay gawa sa pinong telang_ linen na binurdahan gamit ang lanang kulay asul, ube, at pula. At napakaganda ng pagkakaburda nito. Ang haba nitoʼy 30 talampakan at pitoʼt kalahating talampakan ang taas, katulad ng taas ng mga kurtina na nakapalibot sa bakuran. 
+Ang kurtina ng pintuan ng bakuran ay gawa sa pinong telang linen na binurdahan gamit ang lanang kulay asul, ube, at pula. At napakaganda ng pagkakaburda nito. Ang haba nitoʼy 30 talampakan at pitoʼt kalahating talampakan ang taas, katulad ng taas ng mga kurtina na nakapalibot sa bakuran. 
 
 
 
@@ -739,7 +739,7 @@ Ito ang mga materyales na ginamit sa pagpapatayo ng Toldang Sambahan, kung saan 
 
 
 
-Ang namamahala sa pagpapatayo ng Tolda ay_ si Bezalel na anak ni Uri at apo ni Hur, na mula sa lahi ni Juda. Ginawa niya ang lahat ng iniutos ng Panginoon kay Moises. 
+Ang namamahala sa pagpapatayo ng Tolda ay si Bezalel na anak ni Uri at apo ni Hur, na mula sa lahi ni Juda. Ginawa niya ang lahat ng iniutos ng Panginoon kay Moises. 
 
 
 
@@ -772,7 +772,7 @@ Ang namamahala sa pagpapatayo ng Tolda ay_ si Bezalel na anak ni Uri at apo ni H
 
 
 
-Katulong niya si Oholiab na anak ni Ahisamac, na mula sa lahi ni Dan. Magaling siyang magtrabaho, magdisenyo, at magburda ng pinong telang_ linen at ng lanang kulay asul, ube at pula. 
+Katulong niya si Oholiab na anak ni Ahisamac, na mula sa lahi ni Dan. Magaling siyang magtrabaho, magdisenyo, at magburda ng pinong telang linen at ng lanang kulay asul, ube at pula. 
 
 
 
@@ -937,7 +937,7 @@ Ang bigat ng tansong inihandog sa Panginoon ay mga 2,500 kilo.
 
 
 
-Ginamit ito sa paggawa ng mga pundasyon ng mga haligi_ sa pintuan ng Toldang Tipanan. Ang iba ritoʼy ginamit sa paggawa ng altar na tanso, ng parilya nito, at ng lahat ng kagamitan ng altar. 
+Ginamit ito sa paggawa ng mga pundasyon ng mga haligi sa pintuan ng Toldang Tipanan. Ang iba ritoʼy ginamit sa paggawa ng altar na tanso, ng parilya nito, at ng lahat ng kagamitan ng altar. 
 
 
 
@@ -970,4 +970,4 @@ Ginamit ito sa paggawa ng mga pundasyon ng mga haligi_ sa pintuan ng Toldang Tip
 
 
 
-Ginamit din ang mga tanso sa paggawa ng mga pundasyon ng mga haligi_ sa palibot ng bakuran at ng pintuan nito, at sa paggawa ng lahat ng tulos ng Tolda at ng mga kurtina sa palibot nito.
+Ginamit din ang mga tanso sa paggawa ng mga pundasyon ng mga haligi sa palibot ng bakuran at ng pintuan nito, at sa paggawa ng lahat ng tulos ng Tolda at ng mga kurtina sa palibot nito.

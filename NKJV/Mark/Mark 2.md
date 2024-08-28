@@ -10,13 +10,13 @@ next: ['Mark 3']
 
 
 ###### 1 
-And again He entered Capernaum after _some_ days, and it was heard that He was in the house. 
+And again He entered Capernaum after some days, and it was heard that He was in the house. 
 
 ###### 2 
-Immediately many gathered together, so that there was no longer room to receive _them,_ not even near the door. And He preached the word to them. 
+Immediately many gathered together, so that there was no longer room to receive them, not even near the door. And He preached the word to them. 
 
 ###### 3 
-Then they came to Him, bringing a paralytic who was carried by four _men._ 
+Then they came to Him, bringing a paralytic who was carried by four men. 
 
 ###### 4 
 And when they could not come near Him because of the crowd, they uncovered the roof where He was. So when they had broken through, they let down the bed on which the paralytic was lying. 
@@ -28,13 +28,13 @@ When Jesus saw their faith, He said to the paralytic, "Son, your sins are forgiv
 And some of the scribes were sitting there and reasoning in their hearts, 
 
 ###### 7 
-"Why does this _Man_ speak blasphemies like this? Who can forgive sins but God alone?" 
+"Why does this Man speak blasphemies like this? Who can forgive sins but God alone?" 
 
 ###### 8 
 But immediately, when Jesus perceived in His spirit that they reasoned thus within themselves, He said to them, "Why do you reason about these things in your hearts? 
 
 ###### 9 
-Which is easier, to say to the paralytic, '_Your_ sins are forgiven you,' or to say, 'Arise, take up your bed and walk'? 
+Which is easier, to say to the paralytic, 'Your sins are forgiven you,' or to say, 'Arise, take up your bed and walk'? 
 
 ###### 10 
 But that you may know that the Son of Man has power on earth to forgive sins"--He said to the paralytic, 
@@ -43,22 +43,22 @@ But that you may know that the Son of Man has power on earth to forgive sins"--H
 "I say to you, arise, take up your bed, and go to your house." 
 
 ###### 12 
-Immediately he arose, took up the bed, and went out in the presence of them all, so that all were amazed and glorified God, saying, "We never saw _anything_ like this!" ## Matthew the Tax Collector 
+Immediately he arose, took up the bed, and went out in the presence of them all, so that all were amazed and glorified God, saying, "We never saw anything like this!" ## Matthew the Tax Collector 
 
 ###### 13 
 Then He went out again by the sea; and all the multitude came to Him, and He taught them. 
 
 ###### 14 
-As He passed by, He saw Levi the _son_ of Alphaeus sitting at the tax office. And He said to him, "Follow Me." So he arose and followed Him. 
+As He passed by, He saw Levi the son of Alphaeus sitting at the tax office. And He said to him, "Follow Me." So he arose and followed Him. 
 
 ###### 15 
-Now it happened, as He was dining in _Levi's_ house, that many tax collectors and sinners also sat together with Jesus and His disciples; for there were many, and they followed Him. 
+Now it happened, as He was dining in Levi's house, that many tax collectors and sinners also sat together with Jesus and His disciples; for there were many, and they followed Him. 
 
 ###### 16 
-And when the scribes and Pharisees saw Him eating with the tax collectors and sinners, they said to His disciples, "How _is it_ that He eats and drinks with tax collectors and sinners?" 
+And when the scribes and Pharisees saw Him eating with the tax collectors and sinners, they said to His disciples, "How is it that He eats and drinks with tax collectors and sinners?" 
 
 ###### 17 
-When Jesus heard _it,_ He said to them, "Those who are well have no need of a physician, but those who are sick. I did not come to call _the_ righteous, but sinners, to repentance." ## Jesus Is Questioned About Fasting 
+When Jesus heard it, He said to them, "Those who are well have no need of a physician, but those who are sick. I did not come to call the righteous, but sinners, to repentance." ## Jesus Is Questioned About Fasting 
 
 ###### 18 
 The disciples of John and of the Pharisees were fasting. Then they came and said to Him, "Why do the disciples of John and of the Pharisees fast, but Your disciples do not fast?" 
@@ -85,7 +85,7 @@ And the Pharisees said to Him, "Look, why do they do what is not lawful on the S
 But He said to them, "Have you never read what David did when he was in need and hungry, he and those with him: 
 
 ###### 26 
-how he went into the house of God _in the days_ of Abiathar the high priest, and ate the showbread, which is not lawful to eat except for the priests, and also gave some to those who were with him?" 
+how he went into the house of God in the days of Abiathar the high priest, and ate the showbread, which is not lawful to eat except for the priests, and also gave some to those who were with him?" 
 
 ###### 27 
 And He said to them, "The Sabbath was made for man, and not man for the Sabbath. 

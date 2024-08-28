@@ -25,7 +25,7 @@ they said to Him, "Teacher, this woman was caught in adultery, in the very act.
 Now Moses, in the law, commanded us that such should be stoned. But what do You say?" 
 
 ###### 6 
-This they said, testing Him, that they might have _something_ of which to accuse Him. But Jesus stooped down and wrote on the ground with _His_ finger, as though He did not hear. 
+This they said, testing Him, that they might have something of which to accuse Him. But Jesus stooped down and wrote on the ground with His finger, as though He did not hear. 
 
 ###### 7 
 So when they continued asking Him, He raised Himself up and said to them, "He who is without sin among you, let him throw a stone at her first." 
@@ -34,7 +34,7 @@ So when they continued asking Him, He raised Himself up and said to them, "He wh
 And again He stooped down and wrote on the ground. 
 
 ###### 9 
-Then those who heard _it,_ being convicted by _their_ conscience, went out one by one, beginning with the oldest _even_ to the last. And Jesus was left alone, and the woman standing in the midst. 
+Then those who heard it, being convicted by their conscience, went out one by one, beginning with the oldest even to the last. And Jesus was left alone, and the woman standing in the midst. 
 
 ###### 10 
 When Jesus had raised Himself up and saw no one but the woman, He said to her, "Woman, where are those accusers of yours? Has no one condemned you?" 
@@ -55,7 +55,7 @@ Jesus answered and said to them, "Even if I bear witness of Myself, My witness i
 You judge according to the flesh; I judge no one. 
 
 ###### 16 
-And yet if I do judge, My judgment is true; for I am not alone, but I _am_ with the Father who sent Me. 
+And yet if I do judge, My judgment is true; for I am not alone, but I am with the Father who sent Me. 
 
 ###### 17 
 It is also written in your law that the testimony of two men is true. 
@@ -81,7 +81,7 @@ So the Jews said, "Will He kill Himself, because He says, 'Where I go you cannot
 And He said to them, "You are from beneath; I am from above. You are of this world; I am not of this world. 
 
 ###### 24 
-Therefore I said to you that you will die in your sins; for if you do not believe that I am _He,_ you will die in your sins." 
+Therefore I said to you that you will die in your sins; for if you do not believe that I am He, you will die in your sins." 
 
 ###### 25 
 Then they said to Him, "Who are You?" And Jesus said to them, "Just what I have been saying to you from the beginning. 
@@ -93,7 +93,7 @@ I have many things to say and to judge concerning you, but He who sent Me is tru
 They did not understand that He spoke to them of the Father. 
 
 ###### 28 
-Then Jesus said to them, "When you lift up the Son of Man, then you will know that I am _He,_ and _that_ I do nothing of Myself; but as My Father taught Me, I speak these things. 
+Then Jesus said to them, "When you lift up the Son of Man, then you will know that I am He, and that I do nothing of Myself; but as My Father taught Me, I speak these things. 
 
 ###### 29 
 And He who sent Me is with Me. The Father has not left Me alone, for I always do those things that please Him." 
@@ -110,13 +110,13 @@ Then Jesus said to those Jews who believed Him, "If you abide in My word, you ar
 And you shall know the truth, and the truth shall make you free." 
 
 ###### 33 
-They answered Him, "We are Abraham's descendants, and have never been in bondage to anyone. How _can_ You say, 'You will be made free'?" 
+They answered Him, "We are Abraham's descendants, and have never been in bondage to anyone. How can You say, 'You will be made free'?" 
 
 ###### 34 
 Jesus answered them, "Most assuredly, I say to you, whoever commits sin is a slave of sin. 
 
 ###### 35 
-And a slave does not abide in the house forever, _but_ a son abides forever. 
+And a slave does not abide in the house forever, but a son abides forever. 
 
 ###### 36 
 Therefore if the Son makes you free, you shall be free indeed.
@@ -145,7 +145,7 @@ Jesus said to them, "If God were your Father, you would love Me, for I proceeded
 Why do you not understand My speech? Because you are not able to listen to My word. 
 
 ###### 44 
-You are of _your_ father the devil, and the desires of your father you want to do. He was a murderer from the beginning, and does not stand in the truth, because there is no truth in him. When he speaks a lie, he speaks from his own _resources,_ for he is a liar and the father of it. 
+You are of your father the devil, and the desires of your father you want to do. He was a murderer from the beginning, and does not stand in the truth, because there is no truth in him. When he speaks a lie, he speaks from his own resources, for he is a liar and the father of it. 
 
 ###### 45 
 But because I tell the truth, you do not believe Me. 
@@ -163,7 +163,7 @@ Then the Jews answered and said to Him, "Do we not say rightly that You are a Sa
 Jesus answered, "I do not have a demon; but I honor My Father, and you dishonor Me. 
 
 ###### 50 
-And I do not seek My _own_ glory; there is One who seeks and judges. 
+And I do not seek My own glory; there is One who seeks and judges. 
 
 ###### 51 
 Most assuredly, I say to you, if anyone keeps My word he shall never see death." 
@@ -181,7 +181,7 @@ Jesus answered, "If I honor Myself, My honor is nothing. It is My Father who hon
 Yet you have not known Him, but I know Him. And if I say, 'I do not know Him,' I shall be a liar like you; but I do know Him and keep His word. 
 
 ###### 56 
-Your father Abraham rejoiced to see My day, and he saw _it_ and was glad." 
+Your father Abraham rejoiced to see My day, and he saw it and was glad." 
 
 ###### 57 
 Then the Jews said to Him, "You are not yet fifty years old, and have You seen Abraham?" 

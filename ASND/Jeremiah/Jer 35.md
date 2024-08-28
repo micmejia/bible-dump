@@ -502,7 +502,7 @@ Sumunod sa utos ni Jonadab ang mga angkan niyang anak ni Recab. Pero kayoʼy hin
 
 
 
-Kaya ako,_ ang Panginoong Dios na Makapangyarihan, ang Dios ng Israel, ay nagsasabi: 'Makinig kayo! Kayong mga taga-Juda at taga-Jerusalem. Pasasapitin ko sa inyo ang kapahamakang sinabi ko laban sa inyo. Nakipag-usap ako sa inyo pero hindi kayo nakinig, tumawag ako sa inyo pero hindi kayo sumagot.' " 
+Kaya ako, ang Panginoong Dios na Makapangyarihan, ang Dios ng Israel, ay nagsasabi: 'Makinig kayo! Kayong mga taga-Juda at taga-Jerusalem. Pasasapitin ko sa inyo ang kapahamakang sinabi ko laban sa inyo. Nakipag-usap ako sa inyo pero hindi kayo nakinig, tumawag ako sa inyo pero hindi kayo sumagot.' " 
 
 
 
@@ -568,4 +568,4 @@ Pagkatapos, sinabi ni Jeremias sa mga Recabita ang sinabi ng Panginoong Makapang
 
 
 
-kaya nangako akong si Jonadab na anak ni Recab ay hindi mawawalan ng angkan na maglilingkod sa akin. Ako,_ ang Panginoong Makapangyarihan, ang Dios ng Israel, ang nagsasabi nito."
+kaya nangako akong si Jonadab na anak ni Recab ay hindi mawawalan ng angkan na maglilingkod sa akin. Ako, ang Panginoong Makapangyarihan, ang Dios ng Israel, ang nagsasabi nito."

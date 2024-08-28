@@ -73,7 +73,7 @@ Nagpakita ang Panginoon kay Abraham nang nakatira pa siya malapit sa malalaking 
 
 
 
-Habang nagmamasid siya, may nakita siyang tatlong lalaki na nakatayo sa di-kalayuan. Tumayo siya agad at dali-daling sumalubong sa kanila. Yumukod siya sa kanila bilang paggalang_. 
+Habang nagmamasid siya, may nakita siyang tatlong lalaki na nakatayo sa di-kalayuan. Tumayo siya agad at dali-daling sumalubong sa kanila. Yumukod siya sa kanila bilang paggalang. 
 
 
 

@@ -437,7 +437,7 @@ Papupuntahin ko riyan si Artemas o si Tykicus. Kapag dumating na ang sinuman sa 
 
 
 
-Gawin mo ang iyong magagawa para matulungan sina Zenas na abogado at Apolos sa kanilang paglalakbay, at tiyakin mo na_ hindi sila kukulangin sa kanilang mga pangangailangan_. 
+Gawin mo ang iyong magagawa para matulungan sina Zenas na abogado at Apolos sa kanilang paglalakbay, at tiyakin mo na hindi sila kukulangin sa kanilang mga pangangailangan. 
 
 
 
@@ -503,4 +503,4 @@ At turuan mo ang ating mga kapatid na maging masigasig sa paggawa ng mabuti, par
 
 
 
-Kinukumusta ka ng mga kasama ko rito. Ikumusta mo rin kami sa mga kapatid diyan na nagmamahal sa amin. Pagpalain nawa kayong lahat ng Dios_.
+Kinukumusta ka ng mga kasama ko rito. Ikumusta mo rin kami sa mga kapatid diyan na nagmamahal sa amin. Pagpalain nawa kayong lahat ng Dios.

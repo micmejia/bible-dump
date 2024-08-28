@@ -72,7 +72,7 @@ Nang araw na iyon binasa ang Kautusan ni Moises sa mga tao, nalaman nilang ipina
 
 
 
-Dahil hindi nila binigyan ng pagkain at inumin ang mga Israelita nang lumabas sila sa Egipto_. Sa halip, inupahan nila si Balaam na isumpa ang mga Israelita. Ngunit sa halip na sumpa, ginawa ito ng Dios na pagpapala. 
+Dahil hindi nila binigyan ng pagkain at inumin ang mga Israelita nang lumabas sila sa Egipto. Sa halip, inupahan nila si Balaam na isumpa ang mga Israelita. Ngunit sa halip na sumpa, ginawa ito ng Dios na pagpapala. 
 
 
 
@@ -171,7 +171,7 @@ Bago ito nangyari, si Eliashib na pari, na namamahala ng mga bodega sa templo ng
 
 
 
-ay nagpahintulot kay Tobia na gamitin ang malaking kwarto sa templo. Ang kwartong ito ay ginagamit noon na bodega para sa mga handog na pagkain, insenso, mga kagamitan sa templo, mga handog sa mga pari, mga ikapu ng mga trigo, bagong katas ng ubas, at langis, na ayon sa Kautusan ay para sa mga Levita, sa mga mang-aawit, at sa mga guwardya ng mga pintuan ng templo_. 
+ay nagpahintulot kay Tobia na gamitin ang malaking kwarto sa templo. Ang kwartong ito ay ginagamit noon na bodega para sa mga handog na pagkain, insenso, mga kagamitan sa templo, mga handog sa mga pari, mga ikapu ng mga trigo, bagong katas ng ubas, at langis, na ayon sa Kautusan ay para sa mga Levita, sa mga mang-aawit, at sa mga guwardya ng mga pintuan ng templo. 
 
 
 
@@ -435,7 +435,7 @@ At muli ang lahat ng mamamayan ng Juda ay nagdala ng ikapu ng kanilang mga trigo
 
 
 
-Ang pinamahala ko sa mga bodega ay si Shelemia na pari, si Zadok na tagapagturo ng kautusan, at ang Levitang si Pedaya. Pinatulong ko rin sa kanila si Hanan na anak ni Zacur at apo ni Matania. Sila ang pinili ko_ dahil maaasahan sila. Ipinagkatiwala ko rin sa kanila ang pamamahagi ng mga pangangailangan_ ng kapwa nila manggagawa sa templo. 
+Ang pinamahala ko sa mga bodega ay si Shelemia na pari, si Zadok na tagapagturo ng kautusan, at ang Levitang si Pedaya. Pinatulong ko rin sa kanila si Hanan na anak ni Zacur at apo ni Matania. Sila ang pinili ko dahil maaasahan sila. Ipinagkatiwala ko rin sa kanila ang pamamahagi ng mga pangangailangan ng kapwa nila manggagawa sa templo. 
 
 
 
@@ -468,7 +468,7 @@ Ang pinamahala ko sa mga bodega ay si Shelemia na pari, si Zadok na tagapagturo 
 
 
 
-Pagkatapos ay nanalangin ako,_ "O aking Dios, alalahanin po ninyo ako at huwag kalimutan ang tapat kong paglilingkod para sa inyong templo at sa mga gawain dito." 
+Pagkatapos ay nanalangin ako, "O aking Dios, alalahanin po ninyo ako at huwag kalimutan ang tapat kong paglilingkod para sa inyong templo at sa mga gawain dito." 
 
 
 
@@ -501,7 +501,7 @@ Pagkatapos ay nanalangin ako,_ "O aking Dios, alalahanin po ninyo ako at huwag k
 
 
 
-Nang oras na iyon, may nakita akong mga taga-Juda na pumipisa ng mga ubas sa Araw ng Pamamahinga. Ang iba sa kanila ay nagkakarga ng mga trigo, alak, ubas, igos, at iba pang mga bagay sa mga asno para dalhin sa Jerusalem at ipagbili_. Kaya pinagsabihan ko sila na huwag ipagbili ang mga produkto nila sa Araw ng Pamamahinga. 
+Nang oras na iyon, may nakita akong mga taga-Juda na pumipisa ng mga ubas sa Araw ng Pamamahinga. Ang iba sa kanila ay nagkakarga ng mga trigo, alak, ubas, igos, at iba pang mga bagay sa mga asno para dalhin sa Jerusalem at ipagbili. Kaya pinagsabihan ko sila na huwag ipagbili ang mga produkto nila sa Araw ng Pamamahinga. 
 
 
 
@@ -534,7 +534,7 @@ Nang oras na iyon, may nakita akong mga taga-Juda na pumipisa ng mga ubas sa Ara
 
 
 
-Mayroon ding mga taga-Tyre na nakatira sa Jerusalem na nagdala ng mga isda at iba pang mga kalakal. Ipinagbili nila ito sa mga taga-Juda na nasa Jerusalem sa araw ding iyon ng_ Araw ng Pamamahinga. 
+Mayroon ding mga taga-Tyre na nakatira sa Jerusalem na nagdala ng mga isda at iba pang mga kalakal. Ipinagbili nila ito sa mga taga-Juda na nasa Jerusalem sa araw ding iyon ng Araw ng Pamamahinga. 
 
 
 
@@ -732,7 +732,7 @@ Pero binalaan ko sila. Sinabi ko, "Bakit dito kayo natutulog sa pader ng lungsod
 
 
 
-Pagkatapos, inutusan ko ang mga Levita na maging malinis at magbantay sa mga pintuan upang ituring na banal ng mga tao ang Araw ng Pamamahinga. At saka ako nanalangin,_ "O aking Dios, alalahanin po ninyo ang mga ginawa kong ito, at kaawaan nʼyo ako ayon sa dakila nʼyong pag-ibig." 
+Pagkatapos, inutusan ko ang mga Levita na maging malinis at magbantay sa mga pintuan upang ituring na banal ng mga tao ang Araw ng Pamamahinga. At saka ako nanalangin, "O aking Dios, alalahanin po ninyo ang mga ginawa kong ito, at kaawaan nʼyo ako ayon sa dakila nʼyong pag-ibig." 
 
 
 
@@ -963,7 +963,7 @@ Si Joyada na anak ng punong pari na si Eliashib ay may anak na nakipag-asawa sa 
 
 
 
-Pagkatapos ay nanalangin ako,_ "O aking Dios, huwag nʼyo pong kalilimutan na binalewala nila ang kanilang pagkapari at ang sinumpaan nila bilang mga pari at mga Levita." 
+Pagkatapos ay nanalangin ako, "O aking Dios, huwag nʼyo pong kalilimutan na binalewala nila ang kanilang pagkapari at ang sinumpaan nila bilang mga pari at mga Levita." 
 
 
 
@@ -1029,4 +1029,4 @@ Kaya tiniyak ko na ang mga mamamayan ng Israel ay malaya na sa kahit anong implu
 
 
 
-Tiniyak ko rin na ang mga panggatong na gagamitin sa paghahandog_ ay madadala sa tamang panahon, pati ang mga unang ani. At nanalangin ako,_ "O aking Dios, alalahanin po ninyo ako at pagpalain."
+Tiniyak ko rin na ang mga panggatong na gagamitin sa paghahandog ay madadala sa tamang panahon, pati ang mga unang ani. At nanalangin ako, "O aking Dios, alalahanin po ninyo ako at pagpalain."

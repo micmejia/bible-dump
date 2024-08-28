@@ -172,7 +172,7 @@ Habang nandito pa tayo sa ating katawan, dumadaing tayo dahil sa mga paghihirap.
 
 
 
-Ang Dios na rin ang siyang naghanda sa atin para tanggapin natin ang bagong katawan, at bilang katiyakan, ibinigay niya sa atin ang kanyang Banal na_ Espiritu. 
+Ang Dios na rin ang siyang naghanda sa atin para tanggapin natin ang bagong katawan, at bilang katiyakan, ibinigay niya sa atin ang kanyang Banal na Espiritu. 
 
 
 
@@ -636,7 +636,7 @@ Ang lahat ng itoʼy gawa ng Dios na nagpanumbalik sa atin sa kanya sa pamamagita
 
 
 
-At ito nga ang aming ibinabalita:_ Pinapanumbalik ng Dios ang mga tao sa kanya sa pamamagitan ni Cristo, at hindi na ibinibilang na laban sa kanila ang kanilang mga kasalanan. At kami ang kanyang pinagkatiwalaan na magpahayag ng mensaheng ito. 
+At ito nga ang aming ibinabalita: Pinapanumbalik ng Dios ang mga tao sa kanya sa pamamagitan ni Cristo, at hindi na ibinibilang na laban sa kanila ang kanilang mga kasalanan. At kami ang kanyang pinagkatiwalaan na magpahayag ng mensaheng ito. 
 
 
 

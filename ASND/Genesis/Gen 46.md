@@ -40,7 +40,7 @@ next: ['Gen 47']
 
 
 
-Umalis si Jacob papuntang Egipto_ kasama ang sambahayan niya na dala ang lahat ng kanyang ari-arian. Pagdating niya sa Beersheba, naghandog siya sa Dios ng ama niyang si Isaac. 
+Umalis si Jacob papuntang Egipto kasama ang sambahayan niya na dala ang lahat ng kanyang ari-arian. Pagdating niya sa Beersheba, naghandog siya sa Dios ng ama niyang si Isaac. 
 
 
 
@@ -139,7 +139,7 @@ Pagkatapos, sinabi niya, "Ako ang Dios, na siyang Dios ng iyong ama. Huwag kang 
 
 
 
-Ako mismo ang kasama mo sa pagpunta sa Egipto at muli kitang ibabalik dito sa Canaan_. At kung mamamatay ka na, nandiyan si Jose sa iyong tabi." 
+Ako mismo ang kasama mo sa pagpunta sa Egipto at muli kitang ibabalik dito sa Canaan. At kung mamamatay ka na, nandiyan si Jose sa iyong tabi." 
 
 
 
@@ -372,7 +372,7 @@ Si Juda at ang mga anak niya: sina Er, Onan, Shela, Perez at Zera. (Pero si Er a
 
 
 
-Ang mga ito ay kasama rin sa Egipto:_ si Isacar at ang mga anak niyang sina Tola, Pua, Iob at Shimron. 
+Ang mga ito ay kasama rin sa Egipto: si Isacar at ang mga anak niyang sina Tola, Pua, Iob at Shimron. 
 
 
 
@@ -471,7 +471,7 @@ Sila ang 33 anak at apo ni Jacob kay Lea na ipinanganak sa Padan Aram, at hindi 
 
 
 
-Ang mga ito ay kasama rin sa Egipto:_ si Gad at ang mga anak niyang sina Zefon, Hagi, Shuni, Ezbon, Eri, Arodi at Areli. 
+Ang mga ito ay kasama rin sa Egipto: si Gad at ang mga anak niyang sina Zefon, Hagi, Shuni, Ezbon, Eri, Arodi at Areli. 
 
 
 
@@ -537,7 +537,7 @@ Si Asher at ang mga anak niyang sina Imna, Ishva, Ishvi at Beria. Ang kapatid ni
 
 
 
-Sila ang 16 na anak at apo ni Jacob kay Zilpa, ang alipin_ na ibinigay ni Laban kay Lea. 
+Sila ang 16 na anak at apo ni Jacob kay Zilpa, ang alipin na ibinigay ni Laban kay Lea. 
 
 
 
@@ -603,7 +603,7 @@ Ang mga anak ni Jacob kay Raquel: sina Jose at Benjamin.
 
 
 
-Ang mga anak ni Jose kay Asenat na ipinanganak sa Egipto na sina Manase at Efraim. (Si Asenat ay anak na babae ni Potifera na pari sa lungsod_ ng On.) 
+Ang mga anak ni Jose kay Asenat na ipinanganak sa Egipto na sina Manase at Efraim. (Si Asenat ay anak na babae ni Potifera na pari sa lungsod ng On.) 
 
 
 
@@ -702,7 +702,7 @@ Sila ang 14 na anak at apo ni Jacob kay Raquel.
 
 
 
-Ang mga ito ay kasama rin sa Egipto:_ si Dan at ang anak niyang si Hushim. 
+Ang mga ito ay kasama rin sa Egipto: si Dan at ang anak niyang si Hushim. 
 
 
 
@@ -768,7 +768,7 @@ Si Naftali at ang mga anak niya: sina Jahziel, Guni, Jezer at Shilem.
 
 
 
-Sila ang pitong anak at apo ni Jacob kay Bilha, ang alipin_ na ibinigay ni Laban kay Raquel. 
+Sila ang pitong anak at apo ni Jacob kay Bilha, ang alipin na ibinigay ni Laban kay Raquel. 
 
 
 
@@ -867,7 +867,7 @@ Kasama ang dalawang anak ni Jose na ipinanganak sa Egipto, 70 ang kabuuan ng sam
 
 
 
-Nang hindi pa sila nakakarating sa Egipto,_ inutusan ni Jacob si Juda na maunang pumunta kay Jose para ituro sa kanila ang lugar ng_ Goshen. Nang dumating na sina Jacob sa Goshen, 
+Nang hindi pa sila nakakarating sa Egipto, inutusan ni Jacob si Juda na maunang pumunta kay Jose para ituro sa kanila ang lugar ng Goshen. Nang dumating na sina Jacob sa Goshen, 
 
 
 

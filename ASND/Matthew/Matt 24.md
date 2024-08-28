@@ -106,7 +106,7 @@ Sinabi ni Jesus, "Tingnan ninyo ang lahat ng iyan. Sinasabi ko sa inyo ang totoo
 
 
 
-Habang nakaupo si Jesus sa isang lugar sa Bundok ng mga Olibo, lumapit sa kanya ang mga tagasunod niya at nakipag-usap_ nang sarilinan. Sinabi nila, "Sabihin nʼyo po sa amin kung kailan mangyayari ang sinabi nʼyo? At ano po ang mga palatandaan ng muli nʼyong pagparito at ng katapusan ng mundo?" 
+Habang nakaupo si Jesus sa isang lugar sa Bundok ng mga Olibo, lumapit sa kanya ang mga tagasunod niya at nakipag-usap nang sarilinan. Sinabi nila, "Sabihin nʼyo po sa amin kung kailan mangyayari ang sinabi nʼyo? At ano po ang mga palatandaan ng muli nʼyong pagparito at ng katapusan ng mundo?" 
 
 
 
@@ -205,7 +205,7 @@ Sapagkat marami ang darating sa aking pangalan at sasabihing sila ang Cristo, at
 
 
 
-Makakarinig kayo ng mga digmaang malapit sa inyo_, at mababalitaan ninyo na may mga digmaan din sa malayo_. Ngunit huwag kayong matakot. Kinakailangang mangyari ang mga ito, ngunit hindi pa ito ang katapusan. 
+Makakarinig kayo ng mga digmaang malapit sa inyo, at mababalitaan ninyo na may mga digmaan din sa malayo. Ngunit huwag kayong matakot. Kinakailangang mangyari ang mga ito, ngunit hindi pa ito ang katapusan. 
 
 
 
@@ -337,7 +337,7 @@ Ang lahat ng itoʼy pasimula pa lang ng mga paghihirap na darating.
 
 
 
-Marami ang tatalikod sa kanilang pananampalataya. Kapopootan at ipapahuli nila ang kapwa nila mananampalataya_. 
+Marami ang tatalikod sa kanilang pananampalataya. Kapopootan at ipapahuli nila ang kapwa nila mananampalataya. 
 
 
 
@@ -403,7 +403,7 @@ Lilitaw ang maraming huwad na propeta at marami ang maililigaw nila.
 
 
 
-Lalaganap ang kasamaan, at dahil dito, manlalamig ang pag-ibig ng maraming mananampalataya_. 
+Lalaganap ang kasamaan, at dahil dito, manlalamig ang pag-ibig ng maraming mananampalataya. 
 
 
 
@@ -502,7 +502,7 @@ Ipangangaral sa buong mundo ang Magandang Balita tungkol sa paghahari ng Dios up
 
 
 
-"Nagsalita si Propeta Daniel tungkol sa kasuklam-suklam na darating na magiging dahilan_ ng pag-iwan sa templo. (Kayong mga bumabasa, unawain ninyo itong mabuti!) Kapag nakita na ninyong nasa loob na ito ng templo, 
+"Nagsalita si Propeta Daniel tungkol sa kasuklam-suklam na darating na magiging dahilan ng pag-iwan sa templo. (Kayong mga bumabasa, unawain ninyo itong mabuti!) Kapag nakita na ninyong nasa loob na ito ng templo, 
 
 
 
@@ -634,7 +634,7 @@ Ang nasa bukid ay huwag nang umuwi para kumuha ng damit.
 
 
 
-Kawawa ang mga buntis at ang mga nagpapasuso sa mga araw na iyon dahil mahihirapan silang tumakas_. 
+Kawawa ang mga buntis at ang mga nagpapasuso sa mga araw na iyon dahil mahihirapan silang tumakas. 
 
 
 
@@ -733,7 +733,7 @@ Sapagkat sa mga panahong iyon, makakaranas ang mga tao ng napakatinding kapighat
 
 
 
-Kung hindi paiikliin ng Dios_ ang panahong iyon, walang matitirang buhay. Ngunit alang-alang sa kanyang mga pinili, paiikliin niya ang panahong iyon. 
+Kung hindi paiikliin ng Dios ang panahong iyon, walang matitirang buhay. Ngunit alang-alang sa kanyang mga pinili, paiikliin niya ang panahong iyon. 
 
 
 
@@ -898,7 +898,7 @@ Tandaan ninyo ang mga ito! Binibigyan ko na kayo ng babala habang hindi pa nangy
 
 
 
-Sapagkat ako na_ Anak ng Tao ay babalik na tulad ng kidlat na nagliliwanag mula sa silangan hanggang sa kanluran na makikita ng lahat_. 
+Sapagkat ako na Anak ng Tao ay babalik na tulad ng kidlat na nagliliwanag mula sa silangan hanggang sa kanluran na makikita ng lahat. 
 
 
 
@@ -997,7 +997,7 @@ May kasabihan na, 'Kung saan may bangkay, doon nag-uumpukan ang mga buwitre.' 
 
 
 
-Pagkatapos, makikita sa langit ang tanda ng aking pagbabalik, at maghihinagpis ang lahat ng tao sa mundo dahil dito. At makikita nila ako na_ Anak ng Tao na dumarating na mula sa ulap na taglay ang kapangyarihan at kaluwalhatian. 
+Pagkatapos, makikita sa langit ang tanda ng aking pagbabalik, at maghihinagpis ang lahat ng tao sa mundo dahil dito. At makikita nila ako na Anak ng Tao na dumarating na mula sa ulap na taglay ang kapangyarihan at kaluwalhatian. 
 
 
 
@@ -1195,7 +1195,7 @@ Ang langit at ang lupa ay maglalaho, ngunit ang mga salita ko ay mananatili magp
 
 
 
-"Tungkol sa araw o oras ng aking pagbabalik, walang nakakaalam nito, kahit ang mga anghel sa langit o ako mismo na_ Anak ng Dios_. Ang Ama lang ang nakakaalam nito. 
+"Tungkol sa araw o oras ng aking pagbabalik, walang nakakaalam nito, kahit ang mga anghel sa langit o ako mismo na Anak ng Dios. Ang Ama lang ang nakakaalam nito. 
 
 
 
@@ -1294,7 +1294,7 @@ Nang mga araw na iyon, bago bumaha, ang mga taoʼy nagsisikain, nag-iinuman, at 
 
 
 
-Wala silang kaalam-alam sa mangyayari hanggang sa dumating ang baha at nalunod silang lahat. Ganyan din ang mangyayari sa pagdating ko_ na Anak ng Tao. 
+Wala silang kaalam-alam sa mangyayari hanggang sa dumating ang baha at nalunod silang lahat. Ganyan din ang mangyayari sa pagdating ko na Anak ng Tao. 
 
 
 
@@ -1459,7 +1459,7 @@ Tandaan ninyo ito: kung alam ng isang tao kung anong oras sa gabi darating ang m
 
 
 
-Kaya maging handa rin kayo, dahil ako na_ Anak ng Tao ay darating sa oras na hindi ninyo inaasahan." ## Ang Tapat at ang Hindi Tapat na Utusan 
+Kaya maging handa rin kayo, dahil ako na Anak ng Tao ay darating sa oras na hindi ninyo inaasahan." ## Ang Tapat at ang Hindi Tapat na Utusan 
 
 
 

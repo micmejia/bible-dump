@@ -172,7 +172,7 @@ Sinabi sa kanya ng Panginoon, "Hindi siya ang magmamana ng mga ari-arian mo kund
 
 
 
-Pagkatapos, dinala siya ng Panginoon sa labas at sinabi, "Masdan mo_ ang mga bituin sa langit, bilangin mo kung makakaya mo. Magiging ganyan din karami ang lahi mo." 
+Pagkatapos, dinala siya ng Panginoon sa labas at sinabi, "Masdan mo ang mga bituin sa langit, bilangin mo kung makakaya mo. Magiging ganyan din karami ang lahi mo." 
 
 
 
@@ -304,7 +304,7 @@ Pero sinabi ni Abram, "O Panginoong Dios, paano ko po malalaman na magiging akin
 
 
 
-Sumagot ang Panginoon, "Dalhan mo_ ako rito ng isang dumalagang baka, isang babaeng kambing, at isang lalaking tupa, na ang bawat isaʼy tatlong taon ang gulang. At magdala ka rin ng isang inakay na batu-bato at isang inakay na kalapati." 
+Sumagot ang Panginoon, "Dalhan mo ako rito ng isang dumalagang baka, isang babaeng kambing, at isang lalaking tupa, na ang bawat isaʼy tatlong taon ang gulang. At magdala ka rin ng isang inakay na batu-bato at isang inakay na kalapati." 
 
 
 

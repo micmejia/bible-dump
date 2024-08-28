@@ -10,16 +10,16 @@ next: ['Heb 11']
 
 
 ###### 1 
-For the law, having a shadow of the good things to come, _and_ not the very image of the things, can never with these same sacrifices, which they offer continually year by year, make those who approach perfect. 
+For the law, having a shadow of the good things to come, and not the very image of the things, can never with these same sacrifices, which they offer continually year by year, make those who approach perfect. 
 
 ###### 2 
 For then would they not have ceased to be offered? For the worshipers, once purified, would have had no more consciousness of sins. 
 
 ###### 3 
-But in those _sacrifices there is_ a reminder of sins every year. 
+But in those sacrifices there is a reminder of sins every year. 
 
 ###### 4 
-For _it is_ not possible that the blood of bulls and goats could take away sins.
+For it is not possible that the blood of bulls and goats could take away sins.
 
 ## Christ's Death Fulfills God's Will 
 
@@ -27,19 +27,19 @@ For _it is_ not possible that the blood of bulls and goats could take away sins.
 Therefore, when He came into the world, He said: "Sacrifice and offering You did not desire, But a body You have prepared for Me. 
 
 ###### 6 
-In burnt offerings and _sacrifices_ for sin You had no pleasure. 
+In burnt offerings and sacrifices for sin You had no pleasure. 
 
 ###### 7 
 Then I said, 'Behold, I have come-- In the volume of the book it is written of Me-- To do Your will, O God.' " 
 
 ###### 8 
-Previously saying, "Sacrifice and offering, burnt offerings, and _offerings_ for sin You did not desire, nor had pleasure _in them_" (which are offered according to the law), 
+Previously saying, "Sacrifice and offering, burnt offerings, and offerings for sin You did not desire, nor had pleasure in them" (which are offered according to the law), 
 
 ###### 9 
 then He said, "Behold, I have come to do Your will, O God." He takes away the first that He may establish the second. 
 
 ###### 10 
-By that will we have been sanctified through the offering of the body of Jesus Christ once _for all._
+By that will we have been sanctified through the offering of the body of Jesus Christ once for all.
 
 ## Christ's Death Perfects the Sanctified 
 
@@ -59,13 +59,13 @@ For by one offering He has perfected forever those who are being sanctified.
 But the Holy Spirit also witnesses to us; for after He had said before, 
 
 ###### 16 
-"This _is_ the covenant that I will make with them after those days, says the Lord: I will put My laws into their hearts, and in their minds I will write them," 
+"This is the covenant that I will make with them after those days, says the Lord: I will put My laws into their hearts, and in their minds I will write them," 
 
 ###### 17 
-_then He adds,_ "Their sins and their lawless deeds I will remember no more." 
+then He adds, "Their sins and their lawless deeds I will remember no more." 
 
 ###### 18 
-Now where there is remission of these, _there is_ no longer an offering for sin.
+Now where there is remission of these, there is no longer an offering for sin.
 
 ## Hold Fast Your Confession 
 
@@ -76,19 +76,19 @@ Therefore, brethren, having boldness to enter the Holiest by the blood of Jesus,
 by a new and living way which He consecrated for us, through the veil, that is, His flesh, 
 
 ###### 21 
-and _having_ a High Priest over the house of God, 
+and having a High Priest over the house of God, 
 
 ###### 22 
 let us draw near with a true heart in full assurance of faith, having our hearts sprinkled from an evil conscience and our bodies washed with pure water. 
 
 ###### 23 
-Let us hold fast the confession of _our_ hope without wavering, for He who promised _is_ faithful. 
+Let us hold fast the confession of our hope without wavering, for He who promised is faithful. 
 
 ###### 24 
 And let us consider one another in order to stir up love and good works, 
 
 ###### 25 
-not forsaking the assembling of ourselves together, as _is_ the manner of some, but exhorting _one another,_ and so much the more as you see the Day approaching.
+not forsaking the assembling of ourselves together, as is the manner of some, but exhorting one another, and so much the more as you see the Day approaching.
 
 ## The Just Live by Faith 
 
@@ -99,7 +99,7 @@ For if we sin willfully after we have received the knowledge of the truth, there
 but a certain fearful expectation of judgment, and fiery indignation which will devour the adversaries. 
 
 ###### 28 
-Anyone who has rejected Moses' law dies without mercy on _the testimony of_ two or three witnesses. 
+Anyone who has rejected Moses' law dies without mercy on the testimony of two or three witnesses. 
 
 ###### 29 
 Of how much worse punishment, do you suppose, will he be thought worthy who has trampled the Son of God underfoot, counted the blood of the covenant by which he was sanctified a common thing, and insulted the Spirit of grace? 
@@ -126,10 +126,10 @@ Therefore do not cast away your confidence, which has great reward.
 For you have need of endurance, so that after you have done the will of God, you may receive the promise: 
 
 ###### 37 
-"For yet a little while, _And_ He who is coming will come and will not tarry. 
+"For yet a little while, And He who is coming will come and will not tarry. 
 
 ###### 38 
-Now the just shall live by faith; But if _anyone_ draws back, My soul has no pleasure in him." 
+Now the just shall live by faith; But if anyone draws back, My soul has no pleasure in him." 
 
 ###### 39 
 But we are not of those who draw back to perdition, but of those who believe to the saving of the soul.

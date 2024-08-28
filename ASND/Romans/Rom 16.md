@@ -72,7 +72,7 @@ Ngayon, nais kong ipakilala sa inyo ang kapatid nating si Febe. Naglilingkod siy
 
 
 
-Tanggapin ninyo siya bilang kapatid_ sa Panginoon gaya ng nararapat gawin ng mga pinabanal ng Dios._ Tulungan ninyo siya sa anumang kakailanganin niya dahil marami siyang natulungan at isa na ako roon. 
+Tanggapin ninyo siya bilang kapatid sa Panginoon gaya ng nararapat gawin ng mga pinabanal ng Dios. Tulungan ninyo siya sa anumang kakailanganin niya dahil marami siyang natulungan at isa na ako roon. 
 
 
 
@@ -171,7 +171,7 @@ Itinaya nila ang kanilang buhay alang-alang sa akin. Malaki ang utang na loob ko
 
 
 
-Ikumusta rin ninyo ako sa mga mananampalatayang nagtitipon sa kanilang tahanan. Ipaabot din ninyo ang pangangamusta ko sa minamahal kong kaibigan na si Epenetus. Siya ang unang sumampalataya kay Cristo Jesus sa probinsya ng_ Asia. 
+Ikumusta rin ninyo ako sa mga mananampalatayang nagtitipon sa kanilang tahanan. Ipaabot din ninyo ang pangangamusta ko sa minamahal kong kaibigan na si Epenetus. Siya ang unang sumampalataya kay Cristo Jesus sa probinsya ng Asia. 
 
 
 
@@ -303,7 +303,7 @@ Ikumusta nʼyo rin ako sa minamahal kong kaibigan sa Panginoon na si Ampliatus.
 
 
 
-Kumusta rin kay Urbanus na kapwa ko manggagawa kay Cristo, at ganoon din sa minamahal kong kaibigan na_ si Stakis. 
+Kumusta rin kay Urbanus na kapwa ko manggagawa kay Cristo, at ganoon din sa minamahal kong kaibigan na si Stakis. 
 
 
 
@@ -402,7 +402,7 @@ sa kapwa ko Judio na si Herodion, at sa mga kapatid sa Panginoon sa pamilya ni N
 
 
 
-Ikumusta nʼyo rin ako kina Trifena at Trifosa, na masisipag na manggagawa ng Panginoon. Kumusta rin sa minamahal kong kaibigan na_ si Persis. Malaki ang naitulong niya sa gawain ng Panginoon. 
+Ikumusta nʼyo rin ako kina Trifena at Trifosa, na masisipag na manggagawa ng Panginoon. Kumusta rin sa minamahal kong kaibigan na si Persis. Malaki ang naitulong niya sa gawain ng Panginoon. 
 
 
 
@@ -501,7 +501,7 @@ Ikumusta rin ninyo ako kina Asyncritus, Flegon, Hermes, Patrobas, Hermas at sa m
 
 
 
-Kumusta rin kina Filologus, Julia, Nereus at sa kapatid niyang babae na si Olimpas, at sa lahat ng_ pinabanal ng Dios_ na kasama nila. 
+Kumusta rin kina Filologus, Julia, Nereus at sa kapatid niyang babae na si Olimpas, at sa lahat ng pinabanal ng Dios na kasama nila. 
 
 
 
@@ -600,7 +600,7 @@ Mga kapatid, mag-ingat kayo sa mga taong lumilikha ng pagkakahati-hati at gumugu
 
 
 
-Ang mga taong ganyan ay hindi naglilingkod sa Panginoong Jesu-Cristo, kundi sa sarili nilang hangarin sila sumusunod_. Dinadaya nila ang mga kulang sa kaalaman sa pamamagitan ng mahuhusay at magaganda nilang pananalita. 
+Ang mga taong ganyan ay hindi naglilingkod sa Panginoong Jesu-Cristo, kundi sa sarili nilang hangarin sila sumusunod. Dinadaya nila ang mga kulang sa kaalaman sa pamamagitan ng mahuhusay at magaganda nilang pananalita. 
 
 
 
@@ -666,7 +666,7 @@ Balitang-balita sa lahat ang inyong katapatan sa pagsunod sa Panginoon, at nagag
 
 
 
-Ang Dios ang nagbibigay ng kapayapaan, at malapit na niyang puksain ang kapangyarihan_ ni Satanas sa pamamagitan ninyo. Pagpalain kayo ng Panginoong Jesus. 
+Ang Dios ang nagbibigay ng kapayapaan, at malapit na niyang puksain ang kapangyarihan ni Satanas sa pamamagitan ninyo. Pagpalain kayo ng Panginoong Jesus. 
 
 
 
@@ -732,7 +732,7 @@ Kinukumusta kayo ni Timoteo na kapwa ko manggagawa sa Panginoon, at nina Lucius,
 
 
 
-(Kinukumusta ko rin kayo. Ako si Tertius na nasa Panginoon din na siyang sumulat ng liham na ito ni Pablo_.) 
+(Kinukumusta ko rin kayo. Ako si Tertius na nasa Panginoon din na siyang sumulat ng liham na ito ni Pablo.) 
 
 
 
@@ -765,7 +765,7 @@ Kinukumusta kayo ni Timoteo na kapwa ko manggagawa sa Panginoon, at nina Lucius,
 
 
 
-Kinukumusta rin kayo ni Gaius. Akong si Pablo ay nakikituloy dito sa bahay niya, at dito rin nagtitipon ang mga mananampalataya sa lugar na ito_. Kinukumusta rin kayo ni Erastus na tresurero ng lungsod at ng ating kapatid na si Quartus. [ 
+Kinukumusta rin kayo ni Gaius. Akong si Pablo ay nakikituloy dito sa bahay niya, at dito rin nagtitipon ang mga mananampalataya sa lugar na ito. Kinukumusta rin kayo ni Erastus na tresurero ng lungsod at ng ating kapatid na si Quartus. [ 
 
 
 
@@ -831,7 +831,7 @@ Pagpalain kayong lahat ng ating Panginoong Jesu-Cristo. Amen.] ## Papuri sa Dios
 
 
 
-Purihin natin ang Dios na siyang makakapagpatibay sa pananampalataya_ ninyo ayon sa Magandang Balita na ipinangaral ko sa inyo. Ang Magandang Balita tungkol kay Jesu-Cristo ay inilihim nang matagal na panahon, 
+Purihin natin ang Dios na siyang makakapagpatibay sa pananampalataya ninyo ayon sa Magandang Balita na ipinangaral ko sa inyo. Ang Magandang Balita tungkol kay Jesu-Cristo ay inilihim nang matagal na panahon, 
 
 
 
@@ -897,4 +897,4 @@ pero ipinahayag na ngayon sa pamamagitan ng mga isinulat ng mga propeta. Itoʼy 
 
 
 
-Purihin natin_ ang Dios na tanging nakakaalam ng lahat. Purihin natin siya magpakailanman sa pamamagitan ni Jesu-Cristo! Amen.
+Purihin natin ang Dios na tanging nakakaalam ng lahat. Purihin natin siya magpakailanman sa pamamagitan ni Jesu-Cristo! Amen.

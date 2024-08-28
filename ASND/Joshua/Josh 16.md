@@ -40,7 +40,7 @@ next: ['Josh 17']
 
 
 
-Ang lupain na ibinigay sa mga lahi ni Jose ay nagsimula sa Ilog ng_ Jordan malapit sa Jerico, sa silangan ng mga bukal ng Jerico, papunta sa ilang at sa kabundukan hanggang sa Betel. 
+Ang lupain na ibinigay sa mga lahi ni Jose ay nagsimula sa Ilog ng Jordan malapit sa Jerico, sa silangan ng mga bukal ng Jerico, papunta sa ilang at sa kabundukan hanggang sa Betel. 
 
 
 
@@ -106,7 +106,7 @@ Mula sa Betel (na siyang Luz), dumaraan ito sa Atarot na kung saan nakatira ang 
 
 
 
-at pababa sa kanluran papunta sa lugar ng mga Jafleteo, hanggang sa hangganan ng mababang Bet Horon. At nagpatuloy ito sa Gezer hanggang sa Dagat ng Mediteraneo_. 
+at pababa sa kanluran papunta sa lugar ng mga Jafleteo, hanggang sa hangganan ng mababang Bet Horon. At nagpatuloy ito sa Gezer hanggang sa Dagat ng Mediteraneo. 
 
 
 
@@ -172,7 +172,7 @@ Ito ang bahaging natanggap ng mga lahi nina Manase at Efraim na mga anak ni Jose
 
 
 
-Ito ang nasasakupan ng lahi_ ni Efraim na hinati-hati ayon sa bawat sambahayan: Ang hangganan nito sa silangan ay nagsisimula sa Atarot Adar papunta sa mataas na Bet Horon 
+Ito ang nasasakupan ng lahi ni Efraim na hinati-hati ayon sa bawat sambahayan: Ang hangganan nito sa silangan ay nagsisimula sa Atarot Adar papunta sa mataas na Bet Horon 
 
 
 
@@ -205,7 +205,7 @@ Ito ang nasasakupan ng lahi_ ni Efraim na hinati-hati ayon sa bawat sambahayan: 
 
 
 
-hanggang sa Dagat ng Mediteraneo_. Ang hangganan nito sa hilaga ay nagsisimula sa Micmetat, at paliko pasilangan sa Taanat Shilo, at dumaraan sa silangan ng Janoa. 
+hanggang sa Dagat ng Mediteraneo. Ang hangganan nito sa hilaga ay nagsisimula sa Micmetat, at paliko pasilangan sa Taanat Shilo, at dumaraan sa silangan ng Janoa. 
 
 
 
@@ -238,7 +238,7 @@ hanggang sa Dagat ng Mediteraneo_. Ang hangganan nito sa hilaga ay nagsisimula s
 
 
 
-At mula sa Janoa ay pababa ito sa Atarot at Naara, at dumaraan sa Jerico papunta sa Ilog ng_ Jordan. 
+At mula sa Janoa ay pababa ito sa Atarot at Naara, at dumaraan sa Jerico papunta sa Ilog ng Jordan. 
 
 
 
@@ -271,7 +271,7 @@ At mula sa Janoa ay pababa ito sa Atarot at Naara, at dumaraan sa Jerico papunta
 
 
 
-Mula sa Tapua, ang hangganan ay papunta sa kanluran at dumaraan sa Lambak ng Kana, hanggang sa Dagat ng Mediteraneo_. Ito ang lupain na ibinigay sa lahi ni Efraim na hinati-hati ayon sa bawat sambahayan. 
+Mula sa Tapua, ang hangganan ay papunta sa kanluran at dumaraan sa Lambak ng Kana, hanggang sa Dagat ng Mediteraneo. Ito ang lupain na ibinigay sa lahi ni Efraim na hinati-hati ayon sa bawat sambahayan. 
 
 
 

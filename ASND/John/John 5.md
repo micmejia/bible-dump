@@ -337,7 +337,7 @@ Agad na gumaling ang lalaki. Binuhat niya ang higaan niya at lumakad. Nangyari i
 
 
 
-Kaya sinabi ng mga pinuno ng mga_ Judio sa taong pinagaling, "Hindi baʼt Araw ng Pamamahinga ngayon? Labag sa Kautusan ang pagbubuhat mo ng higaan!" 
+Kaya sinabi ng mga pinuno ng mga Judio sa taong pinagaling, "Hindi baʼt Araw ng Pamamahinga ngayon? Labag sa Kautusan ang pagbubuhat mo ng higaan!" 
 
 
 
@@ -502,7 +502,7 @@ Hindi nagtagal, nakita ni Jesus sa templo ang taong pinagaling niya, at sinabiha
 
 
 
-Umalis ang lalaki at pumunta sa mga pinuno ng mga_ Judio. Sinabi niya sa kanila na si Jesus ang nagpagaling sa kanya. 
+Umalis ang lalaki at pumunta sa mga pinuno ng mga Judio. Sinabi niya sa kanila na si Jesus ang nagpagaling sa kanya. 
 
 
 
@@ -535,7 +535,7 @@ Umalis ang lalaki at pumunta sa mga pinuno ng mga_ Judio. Sinabi niya sa kanila 
 
 
 
-Kaya mula noon, sinimulang usigin ng mga pinuno ng mga_ Judio si Jesus, dahil nagpagaling siya sa Araw ng Pamamahinga. 
+Kaya mula noon, sinimulang usigin ng mga pinuno ng mga Judio si Jesus, dahil nagpagaling siya sa Araw ng Pamamahinga. 
 
 
 
@@ -601,7 +601,7 @@ Pero sinabihan sila ni Jesus, "Patuloy na gumagawa ang aking Ama, kaya patuloy d
 
 
 
-Dahil sa sinabing ito ni Jesus, lalong sinikap ng mga pinuno ng mga_ Judio na patayin siya. Sapagkat hindi lang niya nilabag ang batas tungkol sa Araw ng Pamamahinga, kundi tinawag pa niyang sariling Ama ang Dios, at sa gayoʼy ipinapantay ang sarili sa Dios.
+Dahil sa sinabing ito ni Jesus, lalong sinikap ng mga pinuno ng mga Judio na patayin siya. Sapagkat hindi lang niya nilabag ang batas tungkol sa Araw ng Pamamahinga, kundi tinawag pa niyang sariling Ama ang Dios, at sa gayoʼy ipinapantay ang sarili sa Dios.
 
 ## Ang Kapangyarihan ng Anak ng Dios 
 
@@ -636,7 +636,7 @@ Dahil sa sinabing ito ni Jesus, lalong sinikap ng mga pinuno ng mga_ Judio na pa
 
 
 
-Kaya sinabi ni Jesus sa kanila, "Sinasabi ko sa inyo ang totoo, ako na_ Anak ng Dios_ ay walang magagawa kung sa sarili ko lang, kundi ginagawa ko lang ang nakikita ko na ginagawa ng aking Ama. Kaya kung ano ang ginagawa ng Ama ay siya ring ginagawa ko bilang Anak. 
+Kaya sinabi ni Jesus sa kanila, "Sinasabi ko sa inyo ang totoo, ako na Anak ng Dios ay walang magagawa kung sa sarili ko lang, kundi ginagawa ko lang ang nakikita ko na ginagawa ng aking Ama. Kaya kung ano ang ginagawa ng Ama ay siya ring ginagawa ko bilang Anak. 
 
 
 
@@ -669,7 +669,7 @@ Kaya sinabi ni Jesus sa kanila, "Sinasabi ko sa inyo ang totoo, ako na_ Anak ng 
 
 
 
-Minamahal ng Ama ang Anak, kaya ipinapakita niya sa Anak ang lahat ng ginagawa niya. At higit pa sa mga bagay na ito ang mga gawaing ipapakita niya sa akin na gagawin ko_ para mamangha kayo. 
+Minamahal ng Ama ang Anak, kaya ipinapakita niya sa Anak ang lahat ng ginagawa niya. At higit pa sa mga bagay na ito ang mga gawaing ipapakita niya sa akin na gagawin ko para mamangha kayo. 
 
 
 
@@ -735,7 +735,7 @@ Kung paanong ibinabangon ng Ama ang mga patay at binibigyang-buhay ang mga ito, 
 
 
 
-Hindi ang Ama ang hahatol sa mga tao kundi ako na kanyang_ Anak, dahil ibinigay niya sa akin ang lahat ng kapangyarihang humatol, 
+Hindi ang Ama ang hahatol sa mga tao kundi ako na kanyang Anak, dahil ibinigay niya sa akin ang lahat ng kapangyarihang humatol, 
 
 
 
@@ -867,7 +867,7 @@ Sinasabi ko sa inyo ang totoo, darating ang panahon, at dumating na nga, na mari
 
 
 
-May kapangyarihan ang Ama na magbigay ng buhay. Ganoon din naman, may kapangyarihan ako na kanyang_ Anak na magbigay ng buhay, dahil binigyan niya ako ng kapangyarihang ito. 
+May kapangyarihan ang Ama na magbigay ng buhay. Ganoon din naman, may kapangyarihan ako na kanyang Anak na magbigay ng buhay, dahil binigyan niya ako ng kapangyarihang ito. 
 
 
 
@@ -966,7 +966,7 @@ Huwag kayong magtaka tungkol dito, dahil darating ang panahon na maririnig ng la
 
 
 
-at babangon sila mula sa kanilang libingan. Ang mga gumawa ng mabuti ay bibigyan ng buhay na walang hanggan_, at ang mga gumawa ng masama ay parurusahan." ## Ang mga Nagpapatotoo kay Jesus 
+at babangon sila mula sa kanilang libingan. Ang mga gumawa ng mabuti ay bibigyan ng buhay na walang hanggan, at ang mga gumawa ng masama ay parurusahan." ## Ang mga Nagpapatotoo kay Jesus 
 
 
 
@@ -999,7 +999,7 @@ at babangon sila mula sa kanilang libingan. Ang mga gumawa ng mabuti ay bibigyan
 
 
 
-Sinabi pa ni Jesus,_ "Wala akong magagawa kung sa sarili ko lang. Humahatol nga ako, ngunit ang aking paghatol ay ayon lamang sa sinasabi ng aking Ama. Kaya makatarungan ang hatol ko dahil hindi ang sarili kong kalooban ang aking sinusunod kundi ang kalooban ng nagsugo sa akin. 
+Sinabi pa ni Jesus, "Wala akong magagawa kung sa sarili ko lang. Humahatol nga ako, ngunit ang aking paghatol ay ayon lamang sa sinasabi ng aking Ama. Kaya makatarungan ang hatol ko dahil hindi ang sarili kong kalooban ang aking sinusunod kundi ang kalooban ng nagsugo sa akin. 
 
 
 
@@ -1098,7 +1098,7 @@ Ngunit may isang nagpapatotoo tungkol sa akin, at alam kong totoo ang kanyang si
 
 
 
-Maging si Juan na tagapagbautismo_ ay nagpatotoo tungkol sa akin, at sinabi niya sa inyo ang katotohanan nang magsugo kayo ng ilang tao upang tanungin siya. 
+Maging si Juan na tagapagbautismo ay nagpatotoo tungkol sa akin, at sinabi niya sa inyo ang katotohanan nang magsugo kayo ng ilang tao upang tanungin siya. 
 
 
 
@@ -1131,7 +1131,7 @@ Maging si Juan na tagapagbautismo_ ay nagpatotoo tungkol sa akin, at sinabi niya
 
 
 
-Binanggit ko ang tungkol kay Juan, hindi dahil sa kailangan ko ang patotoo ng isang tao, kundi upang sumampalataya_ kayo sa akin at_ maligtas. 
+Binanggit ko ang tungkol kay Juan, hindi dahil sa kailangan ko ang patotoo ng isang tao, kundi upang sumampalataya kayo sa akin at maligtas. 
 
 
 
@@ -1329,7 +1329,7 @@ Sinasaliksik nʼyo ang Kasulatan sa pag-aakala na sa pamamagitan nitoʼy magkaka
 
 
 
-pero ayaw ninyong lumapit sa akin upang magkaroon ng buhay na walang hanggan_. 
+pero ayaw ninyong lumapit sa akin upang magkaroon ng buhay na walang hanggan. 
 
 
 

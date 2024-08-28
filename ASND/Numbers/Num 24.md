@@ -139,7 +139,7 @@ at sinabi niya, "Ako si Balaam na anak ni Beor, at may malinaw akong pang-unawa.
 
 
 
-Narinig ko ang salita ng Dios, at nakakita ako ng isang pangitain na mula sa Makapangyarihang Dios_. Nagpatirapa ako at nagpahayag siya sa akin. Ito ang aking mensahe: 
+Narinig ko ang salita ng Dios, at nakakita ako ng isang pangitain na mula sa Makapangyarihang Dios. Nagpatirapa ako at nagpahayag siya sa akin. Ito ang aking mensahe: 
 
 
 
@@ -238,7 +238,7 @@ Katulad ito ng mga nakalinyang palma, o ng mga tanim sa tabi ng ilog. Katulad di
 
 
 
-Umaapaw ang mga tubig sa kanilang mga lalagyan, at nagtatanim sila ng buto sa mga lupang sagana sa tubig. Ang kanilang hari ay magiging mas makapangyarihan kaysa kay Agag na hari ng Amalekita_, at ang kanilang kaharian ay magiging tanyag. 
+Umaapaw ang mga tubig sa kanilang mga lalagyan, at nagtatanim sila ng buto sa mga lupang sagana sa tubig. Ang kanilang hari ay magiging mas makapangyarihan kaysa kay Agag na hari ng Amalekita, at ang kanilang kaharian ay magiging tanyag. 
 
 
 
@@ -535,7 +535,7 @@ Pagkatapos, sinabi ni Balaam ang mensaheng ito: "Ako si Balaam na anak ni Beor, 
 
 
 
-Narinig ko ang salita ng Kataas-taasang Dios, at nakakita ako ng pangitain mula sa Makapangyarihang Dios_. Nagpatirapa ako sa kanya at nagpahayag siya sa akin. Ito ang aking mensahe: 
+Narinig ko ang salita ng Kataas-taasang Dios, at nakakita ako ng pangitain mula sa Makapangyarihang Dios. Nagpatirapa ako sa kanya at nagpahayag siya sa akin. Ito ang aking mensahe: 
 
 
 
@@ -634,7 +634,7 @@ Sasakupin niya ang Edom na kanyang kaaway, na tinatawag din na Seir, habang tuma
 
 
 
-Mamumuno ang isang pinuno sa Israel at ibabagsak niya ang mga natirang buhay sa lungsod ng Moab_." ## Ang Huling Mensahe ni Balaam 
+Mamumuno ang isang pinuno sa Israel at ibabagsak niya ang mga natirang buhay sa lungsod ng Moab." ## Ang Huling Mensahe ni Balaam 
 
 
 
@@ -667,7 +667,7 @@ Mamumuno ang isang pinuno sa Israel at ibabagsak niya ang mga natirang buhay sa 
 
 
 
-Pagkatapos, nakita ni Balaam sa kanyang pangitain_ ang mga Amalekita at sinabi niya, "Ang Amalek noon ang nangunguna sa mga bansa, pero sa huli, babagsak ito." 
+Pagkatapos, nakita ni Balaam sa kanyang pangitain ang mga Amalekita at sinabi niya, "Ang Amalek noon ang nangunguna sa mga bansa, pero sa huli, babagsak ito." 
 
 
 
@@ -700,7 +700,7 @@ Pagkatapos, nakita ni Balaam sa kanyang pangitain_ ang mga Amalekita at sinabi n
 
 
 
-Pagkatapos, nakita na naman ni Balaam sa kanyang pangitain_ ang mga Keneo at sinabi niya, "Matatag ang inyong tinitirhan, dahil nakapatong ito sa mga bato 
+Pagkatapos, nakita na naman ni Balaam sa kanyang pangitain ang mga Keneo at sinabi niya, "Matatag ang inyong tinitirhan, dahil nakapatong ito sa mga bato 
 
 
 

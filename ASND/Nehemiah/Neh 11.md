@@ -40,7 +40,7 @@ next: ['Neh 12']
 
 
 
-Nang panahong iyon, ang mga pinuno ng mga mamamayan ng Israel_ ay nakatira sa Jerusalem, ang banal na lungsod. Nagpalabunutan ang mga tao para sa bawat sampung pamilya ay may isang pamilyang maninirahan sa Jerusalem, habang ang ibaʼy mananatili sa mga bayan nila. 
+Nang panahong iyon, ang mga pinuno ng mga mamamayan ng Israel ay nakatira sa Jerusalem, ang banal na lungsod. Nagpalabunutan ang mga tao para sa bawat sampung pamilya ay may isang pamilyang maninirahan sa Jerusalem, habang ang ibaʼy mananatili sa mga bayan nila. 
 
 
 
@@ -75,7 +75,7 @@ Nang panahong iyon, ang mga pinuno ng mga mamamayan ng Israel_ ay nakatira sa Je
 
 Pinuri ng mga tao ang lahat ng nagpasyang tumira sa Jerusalem.
 
-###### 3-4 Ang ibang Israelita, pati mga pari, mga Levita, mga utusan sa templo, at ang mga angkan ng mga alipin ni Solomon ay patuloy na nakatira sa kanilang sariling mga lupain sa ibaʼt ibang mga bayan ng Juda. Ang ibang mga mamamayan ng Juda at Benjamin ay nakatira sa Jerusalem. Ito ang mga pinuno ng mga probinsya ng Juda at Benjamin_ na nakatira sa Jerusalem. Mula sa lahi ni Juda: Si Ataya na anak ni Uzia. (Si Uzia ay anak ni Zacarias. Si Zacarias ay anak ni Amaria. Si Amaria ay anak ni Shefatia. At si Shefatia ay anak ni Mahalalel na mula sa angkan ni Perez.) 
+###### 3-4 Ang ibang Israelita, pati mga pari, mga Levita, mga utusan sa templo, at ang mga angkan ng mga alipin ni Solomon ay patuloy na nakatira sa kanilang sariling mga lupain sa ibaʼt ibang mga bayan ng Juda. Ang ibang mga mamamayan ng Juda at Benjamin ay nakatira sa Jerusalem. Ito ang mga pinuno ng mga probinsya ng Juda at Benjamin na nakatira sa Jerusalem. Mula sa lahi ni Juda: Si Ataya na anak ni Uzia. (Si Uzia ay anak ni Zacarias. Si Zacarias ay anak ni Amaria. Si Amaria ay anak ni Shefatia. At si Shefatia ay anak ni Mahalalel na mula sa angkan ni Perez.) 
 
 
 
@@ -537,7 +537,7 @@ Si Matania ay anak ni Mica. (Si Mica ay anak ni Zabdi at si Zabdi ay anak ni Asa
 
 
 
-May 248 lahat ang mga Levita na nakatira sa Jerusalem, ang_ banal na lungsod. 
+May 248 lahat ang mga Levita na nakatira sa Jerusalem, ang banal na lungsod. 
 
 
 
@@ -570,7 +570,7 @@ May 248 lahat ang mga Levita na nakatira sa Jerusalem, ang_ banal na lungsod.
 
 
 
-Mula sa mga guwardya ng mga pintuan ng templo_: Si Akub at si Talmon, at ang mga kasama nilang 172 lalaking guwardya ng pintuan ng templo. 
+Mula sa mga guwardya ng mga pintuan ng templo: Si Akub at si Talmon, at ang mga kasama nilang 172 lalaking guwardya ng pintuan ng templo. 
 
 
 
@@ -735,7 +735,7 @@ Ang hari ang nag-uutos sa kanila tungkol sa mga gagawin nila sa bawat araw.
 
 
 
-Si Petahia na anak ni Meshezabel, na isa sa mga angkan ni Zera na anak ni Juda, ang kinatawan ng bayan ng Israel_ sa hari ng Persia_. 
+Si Petahia na anak ni Meshezabel, na isa sa mga angkan ni Zera na anak ni Juda, ang kinatawan ng bayan ng Israel sa hari ng Persia. 
 
 
 
@@ -867,7 +867,7 @@ Hazar Shual, Beersheba, at sa mga baryo sa palibot nito.
 
 
 
-Mayroon ding nakatira sa kanila_ sa Ziklag, sa Mecona, at sa mga baryo sa paligid nito, 
+Mayroon ding nakatira sa kanila sa Ziklag, sa Mecona, at sa mga baryo sa paligid nito, 
 
 
 
@@ -933,7 +933,7 @@ sa En Rimon, Zora, Jarmut,
 
 
 
-Zanoa, Adulam, at sa mga baryo sa paligid ng mga bayang ito. Ang iba pa sa kanila ay nakatira_ sa Lakish at sa malalapit na mga sakahan, at sa Azeka at sa mga baryo sa paligid nito. Kaya nakatira ang tao sa Juda mula sa Beersheba hanggang sa Lambak ng Ben_ Hinom. 
+Zanoa, Adulam, at sa mga baryo sa paligid ng mga bayang ito. Ang iba pa sa kanila ay nakatira sa Lakish at sa malalapit na mga sakahan, at sa Azeka at sa mga baryo sa paligid nito. Kaya nakatira ang tao sa Juda mula sa Beersheba hanggang sa Lambak ng Ben Hinom. 
 
 
 
@@ -999,7 +999,7 @@ Ang ibang mga mamamayan ng Benjamin ay nakatira sa Geba, Micmash, Aya, Betel, at
 
 
 
-Ang iba sa kanila ay nakatira_ sa Anatot, Nob, Anania, 
+Ang iba sa kanila ay nakatira sa Anatot, Nob, Anania, 
 
 
 

@@ -469,7 +469,7 @@ Kaya nagmakaawa si Moises sa Panginoon, "O Dios ko, nakikiusap po ako sa inyo na
 
 
 
-Sumagot ang Panginoon kay Moises, "Hindi baʼt kapag dinuraan siya ng kanyang ama sa mukha para pasamain siya_ ay pagdurusahan niya ang kahihiyan sa loob ng pitong araw? Kaya palabasin siya sa kampo sa loob ng pitong araw, pagkatapos ng pitong araw, maaari na siyang makabalik." 
+Sumagot ang Panginoon kay Moises, "Hindi baʼt kapag dinuraan siya ng kanyang ama sa mukha para pasamain siya ay pagdurusahan niya ang kahihiyan sa loob ng pitong araw? Kaya palabasin siya sa kampo sa loob ng pitong araw, pagkatapos ng pitong araw, maaari na siyang makabalik." 
 
 
 

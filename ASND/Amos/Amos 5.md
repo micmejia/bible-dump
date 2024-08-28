@@ -172,7 +172,7 @@ Kaya kayong mga Israelita, dumulog kayo sa akin at mabubuhay kayo.
 
 
 
-Huwag na kayong pumunta sa Betel, sa Gilgal, o sa Beersheba, upang sumamba roon_. Sapagkat siguradong bibihagin ang mga mamamayan ng Gilgal at mawawala ang Betel. 
+Huwag na kayong pumunta sa Betel, sa Gilgal, o sa Beersheba, upang sumamba roon. Sapagkat siguradong bibihagin ang mga mamamayan ng Gilgal at mawawala ang Betel. 
 
 
 
@@ -238,7 +238,7 @@ Dumulog kayo sa akin, kayong mga lahi ni Jose, at mabubuhay kayo. Dahil kung hin
 
 
 
-Nakakaawa kayo!_ Ang katarungan ay ginagawa ninyong marumi at pinawawalang-halaga ninyo ang katuwiran!" 
+Nakakaawa kayo! Ang katarungan ay ginagawa ninyong marumi at pinawawalang-halaga ninyo ang katuwiran!" 
 
 
 
@@ -271,7 +271,7 @@ Nakakaawa kayo!_ Ang katarungan ay ginagawa ninyong marumi at pinawawalang-halag
 
 
 
-Ang Dios ang lumikha ng grupo ng mga bituing tinatawag na_ Pleyades at Orion. Siya ang nagpapalipas ng liwanag sa dilim, at ng araw sa gabi. Tinitipon niya ang tubig mula sa karagatan para pumunta sa mga ulap_ upang muling ibuhos sa lupa sa pamamagitan ng ulan. Panginoon ang kanyang pangalan. 
+Ang Dios ang lumikha ng grupo ng mga bituing tinatawag na Pleyades at Orion. Siya ang nagpapalipas ng liwanag sa dilim, at ng araw sa gabi. Tinitipon niya ang tubig mula sa karagatan para pumunta sa mga ulap upang muling ibuhos sa lupa sa pamamagitan ng ulan. Panginoon ang kanyang pangalan. 
 
 
 
@@ -535,7 +535,7 @@ Kapootan ninyo ang masama at gawin ang mabuti, at pairalin ninyo ang hustisya sa
 
 
 
-Kaya ito ang sinasabi ng Panginoong Dios na Makapangyarihan: "Darating ang araw na_ maririnig ang mga iyakan at panaghoy sa mga plasa at mga lansangan. Ipapatawag ang mga magsasaka para umiyak sa mga patay_ na kasama ng mga taong inupahan para umiyak. 
+Kaya ito ang sinasabi ng Panginoong Dios na Makapangyarihan: "Darating ang araw na maririnig ang mga iyakan at panaghoy sa mga plasa at mga lansangan. Ipapatawag ang mga magsasaka para umiyak sa mga patay na kasama ng mga taong inupahan para umiyak. 
 
 
 
@@ -568,7 +568,7 @@ Kaya ito ang sinasabi ng Panginoong Dios na Makapangyarihan: "Darating ang araw 
 
 
 
-May mga iyakan din sa inyong mga taniman ng ubas. Mangyayari ito_ dahil parurusahan ko kayo. Ako,_ ang Panginoon, ang nagsasabi nito." ## Ang Araw ng Paghatol ng Dios 
+May mga iyakan din sa inyong mga taniman ng ubas. Mangyayari ito dahil parurusahan ko kayo. Ako, ang Panginoon, ang nagsasabi nito." ## Ang Araw ng Paghatol ng Dios 
 
 
 
@@ -634,7 +634,7 @@ Nakakaawa kayong naghihintay ng araw ng Panginoon. Huwag ninyong isipin na araw 
 
 
 
-Para kayong taong nag-aakalang ligtas na siya dahil nakatakas siya sa leon, pero nasalubong naman niya ang oso. O di kayaʼy nag-aakalang ligtas na siya dahil nasa loob na siya ng kanyang_ bahay, pero nang isinandal niya ang kanyang kamay sa dingding, tinuklaw ito ng ahas. 
+Para kayong taong nag-aakalang ligtas na siya dahil nakatakas siya sa leon, pero nasalubong naman niya ang oso. O di kayaʼy nag-aakalang ligtas na siya dahil nasa loob na siya ng kanyang bahay, pero nang isinandal niya ang kanyang kamay sa dingding, tinuklaw ito ng ahas. 
 
 
 
@@ -702,7 +702,7 @@ Tiyak na darating ang araw ng Panginoon at itoʼy magdudulot ng kaparusahan at h
 
 
 
-Sinabi ng Panginoon sa mga Israelita,_ "Napopoot ako sa inyong mga pista; hindi ako nalulugod sa inyong ginagawang pagtitipon. 
+Sinabi ng Panginoon sa mga Israelita, "Napopoot ako sa inyong mga pista; hindi ako nalulugod sa inyong ginagawang pagtitipon. 
 
 
 
@@ -834,7 +834,7 @@ Sa halip, nais kong makita na pinaiiral ninyo ang katarungan at ang katuwiran na
 
 
 
-"Mga mamamayan ng Israel, noong nasa ilang ang inyong mga ninuno sa loob ng 40 taon, naghandog ba sila sa akin? Hindi!_ 
+"Mga mamamayan ng Israel, noong nasa ilang ang inyong mga ninuno sa loob ng 40 taon, naghandog ba sila sa akin? Hindi! 
 
 
 
@@ -900,4 +900,4 @@ At ngayon ay buhat-buhat ninyo si Sakut, ang dios-diosang itinuturing ninyong ha
 
 
 
-Kaya ipapabihag ko kayo at dadalhin sa kabila pa ng Damascus." Ito nga_ ang sinabi ng Panginoon na tinatawag na Dios na Makapangyarihan.
+Kaya ipapabihag ko kayo at dadalhin sa kabila pa ng Damascus." Ito nga ang sinabi ng Panginoon na tinatawag na Dios na Makapangyarihan.

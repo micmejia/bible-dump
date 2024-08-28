@@ -40,7 +40,7 @@ next: ['Exod 22']
 
 
 
-Sinabi ng Panginoon kay Moises,_ "Ito ang mga tuntuning ipapatupad mo sa mga Israelita: 
+Sinabi ng Panginoon kay Moises, "Ito ang mga tuntuning ipapatupad mo sa mga Israelita: 
 
 
 
@@ -106,7 +106,7 @@ Sinabi ng Panginoon kay Moises,_ "Ito ang mga tuntuning ipapatupad mo sa mga Isr
 
 
 
-Kung binili nʼyo siya na_ wala pang asawa at sa katagalan ay nakapag-asawa, siya lang ang lalaya sa ikapitong taon_. Pero kung may asawa siya nang bilhin ninyo_, lalaya rin ang kanyang asawa kasama niya. 
+Kung binili nʼyo siya na wala pang asawa at sa katagalan ay nakapag-asawa, siya lang ang lalaya sa ikapitong taon. Pero kung may asawa siya nang bilhin ninyo, lalaya rin ang kanyang asawa kasama niya. 
 
 
 
@@ -205,7 +205,7 @@ Kung binigyan siya ng amo niya ng mapapangasawa at nagkaanak sila, lalaya siya s
 
 
 
-dadalhin siya ng amo niya sa presensya ng Dios doon sa may pintuan o hamba ng lugar na pinagsasambahan_. Bubutasan ng amo niya ang isa sa tainga niya at magiging alipin siya ng amo niya magpakailanman. 
+dadalhin siya ng amo niya sa presensya ng Dios doon sa may pintuan o hamba ng lugar na pinagsasambahan. Bubutasan ng amo niya ang isa sa tainga niya at magiging alipin siya ng amo niya magpakailanman. 
 
 
 
@@ -238,7 +238,7 @@ dadalhin siya ng amo niya sa presensya ng Dios doon sa may pintuan o hamba ng lu
 
 
 
-"Kung ipagbibili ng isang tao ang anak niyang babae para gawing alipin, hindi siya lalaya sa ikapitong taon_ kagaya ng lalaking alipin. 
+"Kung ipagbibili ng isang tao ang anak niyang babae para gawing alipin, hindi siya lalaya sa ikapitong taon kagaya ng lalaking alipin. 
 
 
 
@@ -271,7 +271,7 @@ dadalhin siya ng amo niya sa presensya ng Dios doon sa may pintuan o hamba ng lu
 
 
 
-Kung hindi masisiyahan ang amo niyang bumili sa kanya, pwede siyang tubusin ng pamilya niya_ dahil hindi pananagutan ng amo niya ang responsibilidad sa kanya. Pero hindi siya pwedeng ipagbili ng amo niya sa mga dayuhan. 
+Kung hindi masisiyahan ang amo niyang bumili sa kanya, pwede siyang tubusin ng pamilya niya dahil hindi pananagutan ng amo niya ang responsibilidad sa kanya. Pero hindi siya pwedeng ipagbili ng amo niya sa mga dayuhan. 
 
 
 
@@ -337,7 +337,7 @@ Kung ibibigay ng amo niya ang aliping ito sa kanyang anak bilang asawa, kailanga
 
 
 
-Kung gagawin niyang asawa ang alipin, at_ mag-aasawa pa siya ng iba pang babae, kailangang ipagpatuloy niya ang pagbibigay sa kanya ng mga pagkain at damit, at ang pagsiping sa kanya. 
+Kung gagawin niyang asawa ang alipin, at mag-aasawa pa siya ng iba pang babae, kailangang ipagpatuloy niya ang pagbibigay sa kanya ng mga pagkain at damit, at ang pagsiping sa kanya. 
 
 
 
@@ -768,7 +768,7 @@ Pero kung makakabangon ang alipin pagkalipas ng isa o dalawang araw, hindi siya 
 
 
 
-Pero kung malubha ang nangyari sa babae_, parurusahan ang responsable katulad ng nangyari sa babae_. Kung namatay ang babae_, papatayin din siya_. 
+Pero kung malubha ang nangyari sa babae, parurusahan ang responsable katulad ng nangyari sa babae. Kung namatay ang babae, papatayin din siya. 
 
 
 
@@ -801,7 +801,7 @@ Pero kung malubha ang nangyari sa babae_, parurusahan ang responsable katulad ng
 
 
 
-Kung mabulag ang babae_, bubulagin din siya. Kung mabungi ang ngipin nito, bubungiin din siya. Kung nabali ang kamay o paa, babaliin din ang kanyang_ kamay o paa. 
+Kung mabulag ang babae, bubulagin din siya. Kung mabungi ang ngipin nito, bubungiin din siya. Kung nabali ang kamay o paa, babaliin din ang kanyang kamay o paa. 
 
 
 
@@ -966,7 +966,7 @@ Kung nabungi niya ang ngipin ng kanyang aliping lalaki o babae, palalayain din n
 
 
 
-Pero kung nasanay nang manuwag ng tao_ ang toro at binigyan na ng babala ang may-ari tungkol dito, pero hindi niya ito ikinulong at nakapatay ito ng tao, kailangang batuhin ito hanggang sa mamatay at papatayin din ang may-ari. 
+Pero kung nasanay nang manuwag ng tao ang toro at binigyan na ng babala ang may-ari tungkol dito, pero hindi niya ito ikinulong at nakapatay ito ng tao, kailangang batuhin ito hanggang sa mamatay at papatayin din ang may-ari. 
 
 
 

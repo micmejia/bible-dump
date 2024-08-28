@@ -13,7 +13,7 @@ next: ['Jas 4']
 My brethren, let not many of you become teachers, knowing that we shall receive a stricter judgment. 
 
 ###### 2 
-For we all stumble in many things. If anyone does not stumble in word, he _is_ a perfect man, able also to bridle the whole body. 
+For we all stumble in many things. If anyone does not stumble in word, he is a perfect man, able also to bridle the whole body. 
 
 ###### 3 
 Indeed, we put bits in horses' mouths that they may obey us, and we turn their whole body. 
@@ -25,13 +25,13 @@ Look also at ships: although they are so large and are driven by fierce winds, t
 Even so the tongue is a little member and boasts great things. See how great a forest a little fire kindles! 
 
 ###### 6 
-And the tongue _is_ a fire, a world of iniquity. The tongue is so set among our members that it defiles the whole body, and sets on fire the course of nature; and it is set on fire by hell. 
+And the tongue is a fire, a world of iniquity. The tongue is so set among our members that it defiles the whole body, and sets on fire the course of nature; and it is set on fire by hell. 
 
 ###### 7 
 For every kind of beast and bird, of reptile and creature of the sea, is tamed and has been tamed by mankind. 
 
 ###### 8 
-But no man can tame the tongue. _It is_ an unruly evil, full of deadly poison. 
+But no man can tame the tongue. It is an unruly evil, full of deadly poison. 
 
 ###### 9 
 With it we bless our God and Father, and with it we curse men, who have been made in the similitude of God. 
@@ -40,7 +40,7 @@ With it we bless our God and Father, and with it we curse men, who have been mad
 Out of the same mouth proceed blessing and cursing. My brethren, these things ought not to be so. 
 
 ###### 11 
-Does a spring send forth fresh _water_ and bitter from the same opening? 
+Does a spring send forth fresh water and bitter from the same opening? 
 
 ###### 12 
 Can a fig tree, my brethren, bear olives, or a grapevine bear figs? Thus no spring yields both salt water and fresh.
@@ -48,16 +48,16 @@ Can a fig tree, my brethren, bear olives, or a grapevine bear figs? Thus no spri
 ## Heavenly Versus Demonic Wisdom 
 
 ###### 13 
-Who _is_ wise and understanding among you? Let him show by good conduct _that_ his works _are done_ in the meekness of wisdom. 
+Who is wise and understanding among you? Let him show by good conduct that his works are done in the meekness of wisdom. 
 
 ###### 14 
 But if you have bitter envy and self-seeking in your hearts, do not boast and lie against the truth. 
 
 ###### 15 
-This wisdom does not descend from above, but _is_ earthly, sensual, demonic. 
+This wisdom does not descend from above, but is earthly, sensual, demonic. 
 
 ###### 16 
-For where envy and self-seeking _exist,_ confusion and every evil thing _are_ there. 
+For where envy and self-seeking exist, confusion and every evil thing are there. 
 
 ###### 17 
 But the wisdom that is from above is first pure, then peaceable, gentle, willing to yield, full of mercy and good fruits, without partiality and without hypocrisy. 

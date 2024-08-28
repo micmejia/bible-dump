@@ -25,7 +25,7 @@ But He answered and said, "It is written, 'Man shall not live by bread alone, bu
 Then the devil took Him up into the holy city, set Him on the pinnacle of the temple, 
 
 ###### 6 
-and said to Him, "If You are the Son of God, throw Yourself down. For it is written: 'He shall give His angels charge over you,' and, 'In _their_ hands they shall bear you up, Lest you dash your foot against a stone.' " 
+and said to Him, "If You are the Son of God, throw Yourself down. For it is written: 'He shall give His angels charge over you,' and, 'In their hands they shall bear you up, Lest you dash your foot against a stone.' " 
 
 ###### 7 
 Jesus said to him, "It is written again, 'You shall not tempt the Lord your God.' " 
@@ -54,7 +54,7 @@ And leaving Nazareth, He came and dwelt in Capernaum, which is by the sea, in th
 that it might be fulfilled which was spoken by Isaiah the prophet, saying: 
 
 ###### 15 
-"The land of Zebulun and the land of Naphtali, _By_ the way of the sea, beyond the Jordan, Galilee of the Gentiles: 
+"The land of Zebulun and the land of Naphtali, By the way of the sea, beyond the Jordan, Galilee of the Gentiles: 
 
 ###### 16 
 The people who sat in darkness have seen a great light, And upon those who sat in the region and shadow of death Light has dawned." 
@@ -69,10 +69,10 @@ And Jesus, walking by the Sea of Galilee, saw two brothers, Simon called Peter, 
 Then He said to them, "Follow Me, and I will make you fishers of men." 
 
 ###### 20 
-They immediately left _their_ nets and followed Him. 
+They immediately left their nets and followed Him. 
 
 ###### 21 
-Going on from there, He saw two other brothers, James _the son_ of Zebedee, and John his brother, in the boat with Zebedee their father, mending their nets. He called them, 
+Going on from there, He saw two other brothers, James the son of Zebedee, and John his brother, in the boat with Zebedee their father, mending their nets. He called them, 
 
 ###### 22 
 and immediately they left the boat and their father, and followed Him.
@@ -86,4 +86,4 @@ And Jesus went about all Galilee, teaching in their synagogues, preaching the go
 Then His fame went throughout all Syria; and they brought to Him all sick people who were afflicted with various diseases and torments, and those who were demon-possessed, epileptics, and paralytics; and He healed them. 
 
 ###### 25 
-Great multitudes followed Him--from Galilee, and _from_ Decapolis, Jerusalem, Judea, and beyond the Jordan.
+Great multitudes followed Him--from Galilee, and from Decapolis, Jerusalem, Judea, and beyond the Jordan.

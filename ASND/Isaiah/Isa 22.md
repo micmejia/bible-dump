@@ -403,7 +403,7 @@ Gumawa kayo ng imbakan ng tubig sa pagitan ng dalawang pader, at itoʼy pinuno n
 
 
 
-Nanawagan sa inyo ang Panginoong Dios na Makapangyarihan na kayoʼy magdalamhati, umiyak, magpakalbo at magsuot ng damit na panluksa bilang tanda ng inyong pagsisisi_. 
+Nanawagan sa inyo ang Panginoong Dios na Makapangyarihan na kayoʼy magdalamhati, umiyak, magpakalbo at magsuot ng damit na panluksa bilang tanda ng inyong pagsisisi. 
 
 
 
@@ -436,7 +436,7 @@ Nanawagan sa inyo ang Panginoong Dios na Makapangyarihan na kayoʼy magdalamhati
 
 
 
-Sa halip, nagdiwang kayo at nagsaya. Nagkatay kayo ng mga baka at tupa, at nagkainan at nag-inuman. Sabi ninyo, "Magpakasaya tayo,_ kumain tayoʼt uminom, dahil baka bukas, mamamatay na tayo." 
+Sa halip, nagdiwang kayo at nagsaya. Nagkatay kayo ng mga baka at tupa, at nagkainan at nag-inuman. Sabi ninyo, "Magpakasaya tayo, kumain tayoʼt uminom, dahil baka bukas, mamamatay na tayo." 
 
 
 
@@ -636,7 +636,7 @@ Bibilugin ka niya na parang bola at itatapon sa maluwang na lupain. Doon ka mama
 
 
 
-Sinasabi pa ng Panginoon sa iyo,_ 'Paaalisin kita sa iyong katungkulan. 
+Sinasabi pa ng Panginoon sa iyo, 'Paaalisin kita sa iyong katungkulan. 
 
 
 
@@ -834,4 +834,4 @@ At ang buo niyang pamilya at mga kamag-anak ay aasa sa kanya. Para siyang sabita
 
 
 
-Sa araw na iyon kapag marami na ang nakasabit sa kanya_, mahuhulog siya at mawawasak ang lahat ng nakasabit sa kanya. Mangyayari nga ito_ dahil ako_, ang Panginoon, ang nagsasabi nito.' "
+Sa araw na iyon kapag marami na ang nakasabit sa kanya, mahuhulog siya at mawawasak ang lahat ng nakasabit sa kanya. Mangyayari nga ito dahil ako, ang Panginoon, ang nagsasabi nito.' "

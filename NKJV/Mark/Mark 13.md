@@ -10,28 +10,28 @@ next: ['Mark 14']
 
 
 ###### 1 
-Then as He went out of the temple, one of His disciples said to Him, "Teacher, see what manner of stones and what buildings _are here!_" 
+Then as He went out of the temple, one of His disciples said to Him, "Teacher, see what manner of stones and what buildings are here!" 
 
 ###### 2 
-And Jesus answered and said to him, "Do you see these great buildings? Not _one_ stone shall be left upon another, that shall not be thrown down." ## The Signs of the Times and the End of the Age 
+And Jesus answered and said to him, "Do you see these great buildings? Not one stone shall be left upon another, that shall not be thrown down." ## The Signs of the Times and the End of the Age 
 
 ###### 3 
 Now as He sat on the Mount of Olives opposite the temple, Peter, James, John, and Andrew asked Him privately, 
 
 ###### 4 
-"Tell us, when will these things be? And what _will be_ the sign when all these things will be fulfilled?" 
+"Tell us, when will these things be? And what will be the sign when all these things will be fulfilled?" 
 
 ###### 5 
 And Jesus, answering them, began to say: "Take heed that no one deceives you. 
 
 ###### 6 
-For many will come in My name, saying, 'I am _He,_' and will deceive many. 
+For many will come in My name, saying, 'I am He,' and will deceive many. 
 
 ###### 7 
-But when you hear of wars and rumors of wars, do not be troubled; for _such things_ must happen, but the end _is_ not yet. 
+But when you hear of wars and rumors of wars, do not be troubled; for such things must happen, but the end is not yet. 
 
 ###### 8 
-For nation will rise against nation, and kingdom against kingdom. And there will be earthquakes in various places, and there will be famines and troubles. These _are_ the beginnings of sorrows. 
+For nation will rise against nation, and kingdom against kingdom. And there will be earthquakes in various places, and there will be famines and troubles. These are the beginnings of sorrows. 
 
 ###### 9 
 "But watch out for yourselves, for they will deliver you up to councils, and you will be beaten in the synagogues. You will be brought before rulers and kings for My sake, for a testimony to them. 
@@ -40,10 +40,10 @@ For nation will rise against nation, and kingdom against kingdom. And there will
 And the gospel must first be preached to all the nations. 
 
 ###### 11 
-But when they arrest _you_ and deliver you up, do not worry beforehand, or premeditate what you will speak. But whatever is given you in that hour, speak that; for it is not you who speak, but the Holy Spirit. 
+But when they arrest you and deliver you up, do not worry beforehand, or premeditate what you will speak. But whatever is given you in that hour, speak that; for it is not you who speak, but the Holy Spirit. 
 
 ###### 12 
-Now brother will betray brother to death, and a father _his_ child; and children will rise up against parents and cause them to be put to death. 
+Now brother will betray brother to death, and a father his child; and children will rise up against parents and cause them to be put to death. 
 
 ###### 13 
 And you will be hated by all for My name's sake. But he who endures to the end shall be saved.
@@ -66,13 +66,13 @@ But woe to those who are pregnant and to those who are nursing babies in those d
 And pray that your flight may not be in winter. 
 
 ###### 19 
-For _in_ those days there will be tribulation, such as has not been since the beginning of the creation which God created until this time, nor ever shall be. 
+For in those days there will be tribulation, such as has not been since the beginning of the creation which God created until this time, nor ever shall be. 
 
 ###### 20 
 And unless the Lord had shortened those days, no flesh would be saved; but for the elect's sake, whom He chose, He shortened the days. 
 
 ###### 21 
-"Then if anyone says to you, 'Look, here _is_ the Christ!' or, 'Look, _He is_ there!' do not believe it. 
+"Then if anyone says to you, 'Look, here is the Christ!' or, 'Look, He is there!' do not believe it. 
 
 ###### 22 
 For false christs and false prophets will rise and show signs and wonders to deceive, if possible, even the elect. 
@@ -117,7 +117,7 @@ Heaven and earth will pass away, but My words will by no means pass away.
 Take heed, watch and pray; for you do not know when the time is. 
 
 ###### 34 
-_It is_ like a man going to a far country, who left his house and gave authority to his servants, and to each his work, and commanded the doorkeeper to watch. 
+It is like a man going to a far country, who left his house and gave authority to his servants, and to each his work, and commanded the doorkeeper to watch. 
 
 ###### 35 
 Watch therefore, for you do not know when the master of the house is coming--in the evening, at midnight, at the crowing of the rooster, or in the morning-- 

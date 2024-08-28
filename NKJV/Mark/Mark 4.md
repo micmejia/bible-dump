@@ -10,7 +10,7 @@ next: ['Mark 5']
 
 
 ###### 1 
-And again He began to teach by the sea. And a great multitude was gathered to Him, so that He got into a boat and sat _in it_ on the sea; and the whole multitude was on the land facing the sea. 
+And again He began to teach by the sea. And a great multitude was gathered to Him, so that He got into a boat and sat in it on the sea; and the whole multitude was on the land facing the sea. 
 
 ###### 2 
 Then He taught them many things by parables, and said to them in His teaching: 
@@ -19,7 +19,7 @@ Then He taught them many things by parables, and said to them in His teaching:
 "Listen! Behold, a sower went out to sow. 
 
 ###### 4 
-And it happened, as he sowed, _that_ some _seed_ fell by the wayside; and the birds of the air came and devoured it. 
+And it happened, as he sowed, that some seed fell by the wayside; and the birds of the air came and devoured it. 
 
 ###### 5 
 Some fell on stony ground, where it did not have much earth; and immediately it sprang up because it had no depth of earth. 
@@ -28,10 +28,10 @@ Some fell on stony ground, where it did not have much earth; and immediately it 
 But when the sun was up it was scorched, and because it had no root it withered away. 
 
 ###### 7 
-And some _seed_ fell among thorns; and the thorns grew up and choked it, and it yielded no crop. 
+And some seed fell among thorns; and the thorns grew up and choked it, and it yielded no crop. 
 
 ###### 8 
-But other _seed_ fell on good ground and yielded a crop that sprang up, increased and produced: some thirtyfold, some sixty, and some a hundred." 
+But other seed fell on good ground and yielded a crop that sprang up, increased and produced: some thirtyfold, some sixty, and some a hundred." 
 
 ###### 9 
 And He said to them, "He who has ears to hear, let him hear!" ## The Purpose of Parables 
@@ -43,7 +43,7 @@ But when He was alone, those around Him with the twelve asked Him about the para
 And He said to them, "To you it has been given to know the mystery of the kingdom of God; but to those who are outside, all things come in parables, 
 
 ###### 12 
-so that 'Seeing they may see and not perceive, And hearing they may hear and not understand; Lest they should turn, And _their_ sins be forgiven them.' " ## The Parable of the Sower Explained 
+so that 'Seeing they may see and not perceive, And hearing they may hear and not understand; Lest they should turn, And their sins be forgiven them.' " ## The Parable of the Sower Explained 
 
 ###### 13 
 And He said to them, "Do you not understand this parable? How then will you understand all the parables? 
@@ -61,13 +61,13 @@ These likewise are the ones sown on stony ground who, when they hear the word, i
 and they have no root in themselves, and so endure only for a time. Afterward, when tribulation or persecution arises for the word's sake, immediately they stumble. 
 
 ###### 18 
-Now these are the ones sown among thorns; _they are_ the ones who hear the word, 
+Now these are the ones sown among thorns; they are the ones who hear the word, 
 
 ###### 19 
 and the cares of this world, the deceitfulness of riches, and the desires for other things entering in choke the word, and it becomes unfruitful. 
 
 ###### 20 
-But these are the ones sown on good ground, those who hear the word, accept _it,_ and bear fruit: some thirtyfold, some sixty, and some a hundred." ## Light Under a Basket 
+But these are the ones sown on good ground, those who hear the word, accept it, and bear fruit: some thirtyfold, some sixty, and some a hundred." ## Light Under a Basket 
 
 ###### 21 
 Also He said to them, "Is a lamp brought to be put under a basket or under a bed? Is it not to be set on a lampstand? 
@@ -100,13 +100,13 @@ But when the grain ripens, immediately he puts in the sickle, because the harves
 Then He said, "To what shall we liken the kingdom of God? Or with what parable shall we picture it? 
 
 ###### 31 
-_It is_ like a mustard seed which, when it is sown on the ground, is smaller than all the seeds on earth; 
+It is like a mustard seed which, when it is sown on the ground, is smaller than all the seeds on earth; 
 
 ###### 32 
 but when it is sown, it grows up and becomes greater than all herbs, and shoots out large branches, so that the birds of the air may nest under its shade." ## Jesus' Use of Parables 
 
 ###### 33 
-And with many such parables He spoke the word to them as they were able to hear _it._ 
+And with many such parables He spoke the word to them as they were able to hear it. 
 
 ###### 34 
 But without a parable He did not speak to them. And when they were alone, He explained all things to His disciples.
@@ -129,7 +129,7 @@ But He was in the stern, asleep on a pillow. And they awoke Him and said to Him,
 Then He arose and rebuked the wind, and said to the sea, "Peace, be still!" And the wind ceased and there was a great calm. 
 
 ###### 40 
-But He said to them, "Why are you so fearful? How _is it_ that you have no faith?" 
+But He said to them, "Why are you so fearful? How is it that you have no faith?" 
 
 ###### 41 
 And they feared exceedingly, and said to one another, "Who can this be, that even the wind and the sea obey Him!"

@@ -16,16 +16,16 @@ The word of the Lord came again to me, saying,
 "Now, son of man, take up a lamentation for Tyre, 
 
 ###### 3 
-and say to Tyre, 'You who are situated at the entrance of the sea, merchant of the peoples on many coastlands, thus says the Lord God: "O Tyre, you have said, 'I _am_ perfect in beauty.' 
+and say to Tyre, 'You who are situated at the entrance of the sea, merchant of the peoples on many coastlands, thus says the Lord God: "O Tyre, you have said, 'I am perfect in beauty.' 
 
 ###### 4 
-Your borders _are_ in the midst of the seas. Your builders have perfected your beauty. 
+Your borders are in the midst of the seas. Your builders have perfected your beauty. 
 
 ###### 5 
-They made all _your_ planks of fir trees from Senir; They took a cedar from Lebanon to make you a mast. 
+They made all your planks of fir trees from Senir; They took a cedar from Lebanon to make you a mast. 
 
 ###### 6 
-_Of_ oaks from Bashan they made your oars; The company of Ashurites have inlaid your planks _With_ ivory from the coasts of Cyprus. 
+Of oaks from Bashan they made your oars; The company of Ashurites have inlaid your planks With ivory from the coasts of Cyprus. 
 
 ###### 7 
 Fine embroidered linen from Egypt was what you spread for your sail; Blue and purple from the coasts of Elishah was what covered you. 
@@ -40,46 +40,46 @@ Elders of Gebal and its wise men Were in you to caulk your seams; All the ships 
 "Those from Persia, Lydia, and Libya Were in your army as men of war; They hung shield and helmet in you; They gave splendor to you. 
 
 ###### 11 
-Men of Arvad with your army _were_ on your walls _all_ around, And the men of Gammad were in your towers; They hung their shields on your walls _all_ around; They made your beauty perfect. 
+Men of Arvad with your army were on your walls all around, And the men of Gammad were in your towers; They hung their shields on your walls all around; They made your beauty perfect. 
 
 ###### 12 
-"Tarshish _was_ your merchant because of your many luxury goods. They gave you silver, iron, tin, and lead for your goods. 
+"Tarshish was your merchant because of your many luxury goods. They gave you silver, iron, tin, and lead for your goods. 
 
 ###### 13 
-Javan, Tubal, and Meshech _were_ your traders. They bartered human lives and vessels of bronze for your merchandise. 
+Javan, Tubal, and Meshech were your traders. They bartered human lives and vessels of bronze for your merchandise. 
 
 ###### 14 
 Those from the house of Togarmah traded for your wares with horses, steeds, and mules. 
 
 ###### 15 
-The men of Dedan _were_ your traders; many isles _were_ the market of your hand. They brought you ivory tusks and ebony as payment. 
+The men of Dedan were your traders; many isles were the market of your hand. They brought you ivory tusks and ebony as payment. 
 
 ###### 16 
-Syria _was_ your merchant because of the abundance of goods you made. They gave you for your wares emeralds, purple, embroidery, fine linen, corals, and rubies. 
+Syria was your merchant because of the abundance of goods you made. They gave you for your wares emeralds, purple, embroidery, fine linen, corals, and rubies. 
 
 ###### 17 
-Judah and the land of Israel _were_ your traders. They traded for your merchandise wheat of Minnith, millet, honey, oil, and balm. 
+Judah and the land of Israel were your traders. They traded for your merchandise wheat of Minnith, millet, honey, oil, and balm. 
 
 ###### 18 
-Damascus _was_ your merchant because of the abundance of goods you made, because of your many luxury items, with the wine of Helbon and with white wool. 
+Damascus was your merchant because of the abundance of goods you made, because of your many luxury items, with the wine of Helbon and with white wool. 
 
 ###### 19 
 Dan and Javan paid for your wares, traversing back and forth. Wrought iron, cassia, and cane were among your merchandise. 
 
 ###### 20 
-Dedan _was_ your merchant in saddlecloths for riding. 
+Dedan was your merchant in saddlecloths for riding. 
 
 ###### 21 
-Arabia and all the princes of Kedar _were_ your regular merchants. They traded with you in lambs, rams, and goats. 
+Arabia and all the princes of Kedar were your regular merchants. They traded with you in lambs, rams, and goats. 
 
 ###### 22 
-The merchants of Sheba and Raamah _were_ your merchants. They traded for your wares the choicest spices, all kinds of precious stones, and gold. 
+The merchants of Sheba and Raamah were your merchants. They traded for your wares the choicest spices, all kinds of precious stones, and gold. 
 
 ###### 23 
-Haran, Canneh, Eden, the merchants of Sheba, Assyria, _and_ Chilmad _were_ your merchants. 
+Haran, Canneh, Eden, the merchants of Sheba, Assyria, and Chilmad were your merchants. 
 
 ###### 24 
-These _were_ your merchants in choice items--in purple clothes, in embroidered garments, in chests of multicolored apparel, in sturdy woven cords, which were in your marketplace. 
+These were your merchants in choice items--in purple clothes, in embroidered garments, in chests of multicolored apparel, in sturdy woven cords, which were in your marketplace. 
 
 ###### 25 
 "The ships of Tarshish were carriers of your merchandise. You were filled and very glorious in the midst of the seas. 
@@ -88,22 +88,22 @@ These _were_ your merchants in choice items--in purple clothes, in embroidered g
 Your oarsmen brought you into many waters, But the east wind broke you in the midst of the seas. 
 
 ###### 27 
-"Your riches, wares, and merchandise, Your mariners and pilots, Your caulkers and merchandisers, All your men of war who _are_ in you, And the entire company which _is_ in your midst, Will fall into the midst of the seas on the day of your ruin. 
+"Your riches, wares, and merchandise, Your mariners and pilots, Your caulkers and merchandisers, All your men of war who are in you, And the entire company which is in your midst, Will fall into the midst of the seas on the day of your ruin. 
 
 ###### 28 
 The common-land will shake at the sound of the cry of your pilots. 
 
 ###### 29 
-"All who handle the oar, The mariners, All the pilots of the sea Will come down from their ships _and_ stand on the shore. 
+"All who handle the oar, The mariners, All the pilots of the sea Will come down from their ships and stand on the shore. 
 
 ###### 30 
 They will make their voice heard because of you; They will cry bitterly and cast dust on their heads; They will roll about in ashes; 
 
 ###### 31 
-They will shave themselves completely bald because of you, Gird themselves with sackcloth, And weep for you With bitterness of heart _and_ bitter wailing. 
+They will shave themselves completely bald because of you, Gird themselves with sackcloth, And weep for you With bitterness of heart and bitter wailing. 
 
 ###### 32 
-In their wailing for you They will take up a lamentation, And lament for you: 'What _city is_ like Tyre, Destroyed in the midst of the sea? 
+In their wailing for you They will take up a lamentation, And lament for you: 'What city is like Tyre, Destroyed in the midst of the sea? 
 
 ###### 33 
 'When your wares went out by sea, You satisfied many people; You enriched the kings of the earth With your many luxury goods and your merchandise. 
@@ -112,7 +112,7 @@ In their wailing for you They will take up a lamentation, And lament for you: 'W
 But you are broken by the seas in the depths of the waters; Your merchandise and the entire company will fall in your midst. 
 
 ###### 35 
-All the inhabitants of the isles will be astonished at you; Their kings will be greatly afraid, And _their_ countenance will be troubled. 
+All the inhabitants of the isles will be astonished at you; Their kings will be greatly afraid, And their countenance will be troubled. 
 
 ###### 36 
-The merchants among the peoples will hiss at you; You will become a horror, and _be_ no more forever.' " ' "
+The merchants among the peoples will hiss at you; You will become a horror, and be no more forever.' " ' "

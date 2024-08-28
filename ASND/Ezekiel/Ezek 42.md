@@ -40,7 +40,7 @@ next: ['Ezek 43']
 
 
 
-Pagkatapos, dinala ako ng tao sa bakuran sa labas ng templo. Doon kami dumaan sa hilagang daanan ng templo. At doon ay ipinakita niya sa akin ang mga silid na nasa hilaga ng bakuran sa loob at ng gusali sa kanluran_. 
+Pagkatapos, dinala ako ng tao sa bakuran sa labas ng templo. Doon kami dumaan sa hilagang daanan ng templo. At doon ay ipinakita niya sa akin ang mga silid na nasa hilaga ng bakuran sa loob at ng gusali sa kanluran. 
 
 
 
@@ -271,7 +271,7 @@ Ang gusaling ito at ang bakuran sa labas ay may pagitang pader na 85 talampakan 
 
 
 
-Dahil kung wala ang pader na ito,_ ang kalahati ng gusali na 85 talampakan ay makikita sa bakuran sa labas. Ang kabuuan ng gusali na may habang 170 talampakan ay makikita sa templo. 
+Dahil kung wala ang pader na ito, ang kalahati ng gusali na 85 talampakan ay makikita sa bakuran sa labas. Ang kabuuan ng gusali na may habang 170 talampakan ay makikita sa templo. 
 
 
 
@@ -337,7 +337,7 @@ May mga daanan papasok sa ibabang palapag ng gusaling ito kung galing ka sa band
 
 
 
-Mayroon ding mga silid sa bandang timog na pader ng bakuran sa loob. Ang mga silid na ito na nasa gilid ng bakuran sa loob ay malapit din sa gusali sa kanluran_. 
+Mayroon ding mga silid sa bandang timog na pader ng bakuran sa loob. Ang mga silid na ito na nasa gilid ng bakuran sa loob ay malapit din sa gusali sa kanluran. 
 
 
 

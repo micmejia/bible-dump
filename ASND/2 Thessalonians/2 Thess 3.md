@@ -39,7 +39,7 @@ up: ['2 Thessalonians']
 
 
 
-At ngayon, mga kapatid, ipanalangin nʼyo kami para lumaganap nang mabilis ang salita ng Panginoon at malugod na tanggapin sa iba pang mga lugar, katulad ng pagtanggap_ ninyo. 
+At ngayon, mga kapatid, ipanalangin nʼyo kami para lumaganap nang mabilis ang salita ng Panginoon at malugod na tanggapin sa iba pang mga lugar, katulad ng pagtanggap ninyo. 
 
 
 
@@ -72,7 +72,7 @@ At ngayon, mga kapatid, ipanalangin nʼyo kami para lumaganap nang mabilis ang s
 
 
 
-Ipanalangin nʼyo rin na maligtas kami sa mga masasama at makasalanang tao; dahil hindi lahat ng taoʼy naniniwala sa itinuturo namin_. 
+Ipanalangin nʼyo rin na maligtas kami sa mga masasama at makasalanang tao; dahil hindi lahat ng taoʼy naniniwala sa itinuturo namin. 
 
 
 
@@ -305,7 +305,7 @@ Hindi kami tumanggap ng pagkain mula sa inyo nang hindi namin binayaran. Sa hali
 
 
 
-Ginawa namin ito,_ hindi dahil wala kaming karapatang tumanggap ng tulong galing sa inyo_, kundi para bigyan kayo ng halimbawa para sundin ninyo. 
+Ginawa namin ito, hindi dahil wala kaming karapatang tumanggap ng tulong galing sa inyo, kundi para bigyan kayo ng halimbawa para sundin ninyo. 
 
 
 
@@ -404,7 +404,7 @@ Binabanggit namin ito dahil nabalitaan namin na ang ilan sa inyo ay tamad, ayaw 
 
 
 
-Kaya sa pangalan ng_ Panginoong Jesu-Cristo, mahigpit naming inuutusan ang mga taong ito na maghanapbuhay at huwag makialam sa buhay ng iba. 
+Kaya sa pangalan ng Panginoong Jesu-Cristo, mahigpit naming inuutusan ang mga taong ito na maghanapbuhay at huwag makialam sa buhay ng iba. 
 
 
 
@@ -571,7 +571,7 @@ Nawaʼy ang Panginoon na pinagmumulan ng kapayapaan ang siya ring magbigay sa in
 
 
 
-Akong si Pablo ang mismong sumusulat ng pagbating ito: Binabati ko kayong lahat._ Ganito ang ginagamit kong paraan sa lahat ng sulat ko para malaman nʼyo na ako nga ang sumulat. 
+Akong si Pablo ang mismong sumusulat ng pagbating ito: Binabati ko kayong lahat. Ganito ang ginagamit kong paraan sa lahat ng sulat ko para malaman nʼyo na ako nga ang sumulat. 
 
 
 

@@ -40,7 +40,7 @@ next: ['Luke 4']
 
 
 
-At dahil sa sinabi ng Dios kay Juan,_ nilibot niya ang mga lugar sa magkabilang panig ng Ilog ng_ Jordan. Nangaral siya sa mga tao_ na kailangan nilang pagsisihan ang kanilang mga kasalanan at magpabautismo, para patawarin sila ng Dios_. 
+At dahil sa sinabi ng Dios kay Juan, nilibot niya ang mga lugar sa magkabilang panig ng Ilog ng Jordan. Nangaral siya sa mga tao na kailangan nilang pagsisihan ang kanilang mga kasalanan at magpabautismo, para patawarin sila ng Dios. 
 
 
 
@@ -73,7 +73,7 @@ At dahil sa sinabi ng Dios kay Juan,_ nilibot niya ang mga lugar sa magkabilang 
 
 
 
-Sa ginawa niyang ito,_ natupad ang isinulat ni Propeta Isaias, "Maririnig_ ang sigaw ng isang tao sa ilang, na nagsasabi:_ 'Ihanda ninyo ang daan para sa Panginoon, tuwirin ninyo ang mga landas na kanyang dadaanan! 
+Sa ginawa niyang ito, natupad ang isinulat ni Propeta Isaias, "Maririnig ang sigaw ng isang tao sa ilang, na nagsasabi: 'Ihanda ninyo ang daan para sa Panginoon, tuwirin ninyo ang mga landas na kanyang dadaanan! 
 
 
 
@@ -172,7 +172,7 @@ At makikita ng lahat ng tao ang pagliligtas ng Dios.' "
 
 
 
-Maraming tao ang pumunta kay Juan para magpabautismo. Sinabi niya sa kanila, "Kayong_ lahi ng mga ahas! Sino ang nagsabi sa inyo na makakatakas kayo sa darating na parusa ng Dios? 
+Maraming tao ang pumunta kay Juan para magpabautismo. Sinabi niya sa kanila, "Kayong lahi ng mga ahas! Sino ang nagsabi sa inyo na makakatakas kayo sa darating na parusa ng Dios? 
 
 
 
@@ -502,7 +502,7 @@ Pero sinabi ni Juan sa kanila, "Binabautismuhan ko kayo sa tubig, ngunit may isa
 
 
 
-Tulad siya ng isang taong_ dala-dala ang kanyang gamit upang ihiwalay ang ipa sa butil ng trigo. Ilalagay niya ang mga trigo sa bodega, at ang ipa naman ay susunugin niya sa apoy na hindi mamamatay kailanman." 
+Tulad siya ng isang taong dala-dala ang kanyang gamit upang ihiwalay ang ipa sa butil ng trigo. Ilalagay niya ang mga trigo sa bodega, at ang ipa naman ay susunugin niya sa apoy na hindi mamamatay kailanman." 
 
 
 
@@ -702,7 +702,7 @@ at bumaba sa kanya ang Banal na Espiritu sa anyo ng isang kalapati. At may boses
 
 
 
-Mga 30 taong gulang na si Jesus nang magsimula siya sa kanyang gawain_. Ayon sa pagkakaalam ng mga tao, anak siya ni Jose na anak ni Eli. 
+Mga 30 taong gulang na si Jesus nang magsimula siya sa kanyang gawain. Ayon sa pagkakaalam ng mga tao, anak siya ni Jose na anak ni Eli. 
 
 
 

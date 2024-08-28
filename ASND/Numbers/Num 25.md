@@ -73,7 +73,7 @@ Habang nagkakampo ang mga Israelita sa Shitim, nakipagtalik ang mga lalaki sa mg
 
 
 
-Hinikayat sila ng mga babaeng ito sa paghahandog sa mga dios-diosan, at kumain sila ng mga handog na ito at sumamba sa mga dios-diosan ng Peor_. 
+Hinikayat sila ng mga babaeng ito sa paghahandog sa mga dios-diosan, at kumain sila ng mga handog na ito at sumamba sa mga dios-diosan ng Peor. 
 
 
 
@@ -436,7 +436,7 @@ Kaya sabihin mo sa kanya na gagawa ako ng kasunduan sa kanya na pagpapalain ko s
 
 
 
-At sa kasunduang ito, siya at ang kanyang mga angkan ang magiging mga pari magpakailanman dahil ipinakita niya ang aking galit at tinubos niya ang mga Israelita sa kanilang mga kasalanan_." 
+At sa kasunduang ito, siya at ang kanyang mga angkan ang magiging mga pari magpakailanman dahil ipinakita niya ang aking galit at tinubos niya ang mga Israelita sa kanilang mga kasalanan." 
 
 
 

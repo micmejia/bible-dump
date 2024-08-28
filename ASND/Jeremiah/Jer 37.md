@@ -636,4 +636,4 @@ Pero ngayon, Mahal na Hari, kung maaari po ay pakinggan naman ninyo ako. Nakikiu
 
 
 
-Kaya nag-utos si Haring Zedekia na dalhin si Jeremias doon sa himpilan ng mga guwardya ng palasyo_. Nag-utos din siyang bigyan ng tinapay si Jeremias bawat araw habang may natitira pang tinapay sa lungsod. Kaya nanatiling nakakulong si Jeremias sa himpilan ng mga guwardya.
+Kaya nag-utos si Haring Zedekia na dalhin si Jeremias doon sa himpilan ng mga guwardya ng palasyo. Nag-utos din siyang bigyan ng tinapay si Jeremias bawat araw habang may natitira pang tinapay sa lungsod. Kaya nanatiling nakakulong si Jeremias sa himpilan ng mga guwardya.

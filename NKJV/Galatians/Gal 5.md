@@ -19,7 +19,7 @@ Indeed I, Paul, say to you that if you become circumcised, Christ will profit yo
 And I testify again to every man who becomes circumcised that he is a debtor to keep the whole law. 
 
 ###### 4 
-You have become estranged from Christ, you who _attempt to_ be justified by law; you have fallen from grace. 
+You have become estranged from Christ, you who attempt to be justified by law; you have fallen from grace. 
 
 ###### 5 
 For we through the Spirit eagerly wait for the hope of righteousness by faith. 
@@ -33,7 +33,7 @@ For in Christ Jesus neither circumcision nor uncircumcision avails anything, but
 You ran well. Who hindered you from obeying the truth? 
 
 ###### 8 
-This persuasion does not _come_ from Him who calls you. 
+This persuasion does not come from Him who calls you. 
 
 ###### 9 
 A little leaven leavens the whole lump. 
@@ -48,10 +48,10 @@ And I, brethren, if I still preach circumcision, why do I still suffer persecuti
 I could wish that those who trouble you would even cut themselves off! 
 
 ###### 13 
-For you, brethren, have been called to liberty; only do not _use_ liberty as an opportunity for the flesh, but through love serve one another. 
+For you, brethren, have been called to liberty; only do not use liberty as an opportunity for the flesh, but through love serve one another. 
 
 ###### 14 
-For all the law is fulfilled in one word, _even_ in this: "You shall love your neighbor as yourself." 
+For all the law is fulfilled in one word, even in this: "You shall love your neighbor as yourself." 
 
 ###### 15 
 But if you bite and devour one another, beware lest you be consumed by one another! ## Walking in the Spirit 
@@ -72,7 +72,7 @@ Now the works of the flesh are evident, which are: adultery, fornication, unclea
 idolatry, sorcery, hatred, contentions, jealousies, outbursts of wrath, selfish ambitions, dissensions, heresies, 
 
 ###### 21 
-envy, murders, drunkenness, revelries, and the like; of which I tell you beforehand, just as I also told _you_ in time past, that those who practice such things will not inherit the kingdom of God. 
+envy, murders, drunkenness, revelries, and the like; of which I tell you beforehand, just as I also told you in time past, that those who practice such things will not inherit the kingdom of God. 
 
 ###### 22 
 But the fruit of the Spirit is love, joy, peace, longsuffering, kindness, goodness, faithfulness, 
@@ -81,7 +81,7 @@ But the fruit of the Spirit is love, joy, peace, longsuffering, kindness, goodne
 gentleness, self-control. Against such there is no law. 
 
 ###### 24 
-And those _who are_ Christ's have crucified the flesh with its passions and desires. 
+And those who are Christ's have crucified the flesh with its passions and desires. 
 
 ###### 25 
 If we live in the Spirit, let us also walk in the Spirit. 

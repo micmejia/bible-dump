@@ -22,16 +22,16 @@ Say to the Ammonites, 'Hear the word of the Lord God! Thus says the Lord God: "B
 indeed, therefore, I will deliver you as a possession to the men of the East, and they shall set their encampments among you and make their dwellings among you; they shall eat your fruit, and they shall drink your milk. 
 
 ###### 5 
-And I will make Rabbah a stable for camels and Ammon a resting place for flocks. Then you shall know that I _am_ the Lord." 
+And I will make Rabbah a stable for camels and Ammon a resting place for flocks. Then you shall know that I am the Lord." 
 
 ###### 6 
-'For thus says the Lord God: "Because you clapped _your_ hands, stamped your feet, and rejoiced in heart with all your disdain for the land of Israel, 
+'For thus says the Lord God: "Because you clapped your hands, stamped your feet, and rejoiced in heart with all your disdain for the land of Israel, 
 
 ###### 7 
-indeed, therefore, I will stretch out My hand against you, and give you as plunder to the nations; I will cut you off from the peoples, and I will cause you to perish from the countries; I will destroy you, and you shall know that I _am_ the Lord." ## Proclamation Against Moab 
+indeed, therefore, I will stretch out My hand against you, and give you as plunder to the nations; I will cut you off from the peoples, and I will cause you to perish from the countries; I will destroy you, and you shall know that I am the Lord." ## Proclamation Against Moab 
 
 ###### 8 
-'Thus says the Lord God: "Because Moab and Seir say, 'Look! The house of Judah _is_ like all the nations,' 
+'Thus says the Lord God: "Because Moab and Seir say, 'Look! The house of Judah is like all the nations,' 
 
 ###### 9 
 therefore, behold, I will clear the territory of Moab of cities, of the cities on its frontier, the glory of the country, Beth Jeshimoth, Baal Meon, and Kirjathaim. 
@@ -40,7 +40,7 @@ therefore, behold, I will clear the territory of Moab of cities, of the cities o
 To the men of the East I will give it as a possession, together with the Ammonites, that the Ammonites may not be remembered among the nations. 
 
 ###### 11 
-And I will execute judgments upon Moab, and they shall know that I _am_ the Lord." ## Proclamation Against Edom 
+And I will execute judgments upon Moab, and they shall know that I am the Lord." ## Proclamation Against Edom 
 
 ###### 12 
 'Thus says the Lord God: "Because of what Edom did against the house of Judah by taking vengeance, and has greatly offended by avenging itself on them," 
@@ -60,4 +60,4 @@ I will lay My vengeance on Edom by the hand of My people Israel, that they may d
 therefore thus says the Lord God: "I will stretch out My hand against the Philistines, and I will cut off the Cherethites and destroy the remnant of the seacoast. 
 
 ###### 17 
-I will execute great vengeance on them with furious rebukes; and they shall know that I _am_ the Lord, when I lay My vengeance upon them." ' "
+I will execute great vengeance on them with furious rebukes; and they shall know that I am the Lord, when I lay My vengeance upon them." ' "

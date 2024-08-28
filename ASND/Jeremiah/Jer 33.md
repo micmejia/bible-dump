@@ -40,7 +40,7 @@ next: ['Jer 34']
 
 
 
-Habang si Jeremias ay naroon pa sa kulungan sa himpilan ng mga guwardya ng palasyo_, nagsalita ang Panginoon sa kanya sa pangalawang beses. 
+Habang si Jeremias ay naroon pa sa kulungan sa himpilan ng mga guwardya ng palasyo, nagsalita ang Panginoon sa kanya sa pangalawang beses. 
 
 
 
@@ -139,7 +139,7 @@ Ito ang sinasabi ng Panginoong lumikha ng mundo at naghugis nito – Pangino
 
 
 
-Sapagkat ako,_ ang Panginoon, ang Dios ng Israel, ay nagsasabi: Kahit giniba na ang mga bahay sa Jerusalem at ang palasyo ng hari ng Juda para gawing mga pampatibay ng pader upang hindi ito mapasok ng mga kaaway, 
+Sapagkat ako, ang Panginoon, ang Dios ng Israel, ay nagsasabi: Kahit giniba na ang mga bahay sa Jerusalem at ang palasyo ng hari ng Juda para gawing mga pampatibay ng pader upang hindi ito mapasok ng mga kaaway, 
 
 
 
@@ -370,7 +370,7 @@ Sinabi pa ng Panginoon, "Sinasabi ninyong malungkot at walang tao at mga hayop a
 
 
 
-Muling maririnig ang kagalakan ng mga bagong kasal, at ng mga taong nagdadala ng mga handog ng pasasalamat sa templo ng Panginoon. Sasabihin nila, 'Magpasalamat tayo sa Panginoong Makapangyarihan dahil napakabuti niya. Ang pagmamahal niyaʼy walang hanggan.' Talagang magsasaya ang mga tao_ dahil ibabalik ko ang mabuting kalagayan sa lupaing ito katulad noong una. Ako,_ ang Panginoon, ang nagsasabi nito." 
+Muling maririnig ang kagalakan ng mga bagong kasal, at ng mga taong nagdadala ng mga handog ng pasasalamat sa templo ng Panginoon. Sasabihin nila, 'Magpasalamat tayo sa Panginoong Makapangyarihan dahil napakabuti niya. Ang pagmamahal niyaʼy walang hanggan.' Talagang magsasaya ang mga tao dahil ibabalik ko ang mabuting kalagayan sa lupaing ito katulad noong una. Ako, ang Panginoon, ang nagsasabi nito." 
 
 
 
@@ -436,7 +436,7 @@ Sinabi pa ng Panginoong Makapangyarihan, "Kahit na mapanglaw ang lupaing ito nga
 
 
 
-Muling dadami ang kawan nila sa mga bayan sa kabundukan, sa mga kaburulan sa kanluran, sa Negev, sa lupain ng Benjamin, sa mga lugar na nakapalibot sa Jerusalem at sa mga bayan ng Juda. Ako,_ ang Panginoon, ang nagsasabi nito." 
+Muling dadami ang kawan nila sa mga bayan sa kabundukan, sa mga kaburulan sa kanluran, sa Negev, sa lupain ng Benjamin, sa mga lugar na nakapalibot sa Jerusalem at sa mga bayan ng Juda. Ako, ang Panginoon, ang nagsasabi nito." 
 
 
 

@@ -436,7 +436,7 @@ Sasamsamin ko ang mga ari-arian ng mga lungsod na ito na dating mapanglaw, nguni
 
 
 
-"Pero sasabihin sa iyo ng mga taga-Sheba at Dedan, at ng mga mangangalakal sa mga bayan ng Tarshish, 'Tinipon mo ba ang iyong mga sundalo para samsamin ang mga pilak at ginto ng mga taga-Israel_? Sasamsamin mo rin ba ang kanilang mga hayop at ari-arian?' 
+"Pero sasabihin sa iyo ng mga taga-Sheba at Dedan, at ng mga mangangalakal sa mga bayan ng Tarshish, 'Tinipon mo ba ang iyong mga sundalo para samsamin ang mga pilak at ginto ng mga taga-Israel? Sasamsamin mo rin ba ang kanilang mga hayop at ari-arian?' 
 
 
 
@@ -469,7 +469,7 @@ Sasamsamin ko ang mga ari-arian ng mga lungsod na ito na dating mapanglaw, nguni
 
 
 
-"Kaya, anak ng tao, sabihin mo kay Gog na ako,_ ang Panginoong Dios ay nagsasabi: Sa araw na iyon na namumuhay na nang tahimik ang mga mamamayan kong Israelita, malalaman mo iyon. 
+"Kaya, anak ng tao, sabihin mo kay Gog na ako, ang Panginoong Dios ay nagsasabi: Sa araw na iyon na namumuhay na nang tahimik ang mga mamamayan kong Israelita, malalaman mo iyon. 
 
 
 
@@ -601,7 +601,7 @@ Sinabi pa ng Panginoong Dios, "Noong unang panahon, sinabi ko sa pamamagitan ng 
 
 
 
-Ngunit Gog, sa araw na iyon ay ito ang mangyayari sa iyo: Kapag sinalakay mo na ang Israel, labis akong magagalit. Ako,_ ang Panginoong Dios, ang nagsasabi nito. 
+Ngunit Gog, sa araw na iyon ay ito ang mangyayari sa iyo: Kapag sinalakay mo na ang Israel, labis akong magagalit. Ako, ang Panginoong Dios, ang nagsasabi nito. 
 
 
 
@@ -700,7 +700,7 @@ Ang lahat ng tao at lahat ng hayop na lumalakad, lumilipad, gumagapang at nasa t
 
 
 
-At ikaw, Gog ay ipapapatay ko roon sa aking mga bundok, at ang mga sundalo mo ay magpapatayan. Ako,_ ang Panginoong Dios, ang nagsasabi nito. 
+At ikaw, Gog ay ipapapatay ko roon sa aking mga bundok, at ang mga sundalo mo ay magpapatayan. Ako, ang Panginoong Dios, ang nagsasabi nito. 
 
 
 

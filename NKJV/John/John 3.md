@@ -46,7 +46,7 @@ Most assuredly, I say to you, We speak what We know and testify what We have see
 If I have told you earthly things and you do not believe, how will you believe if I tell you heavenly things? 
 
 ###### 13 
-No one has ascended to heaven but He who came down from heaven, _that is,_ the Son of Man who is in heaven. 
+No one has ascended to heaven but He who came down from heaven, that is, the Son of Man who is in heaven. 
 
 ###### 14 
 And as Moses lifted up the serpent in the wilderness, even so must the Son of Man be lifted up, 
@@ -82,7 +82,7 @@ Now John also was baptizing in Aenon near Salim, because there was much water th
 For John had not yet been thrown into prison. 
 
 ###### 25 
-Then there arose a dispute between _some_ of John's disciples and the Jews about purification. 
+Then there arose a dispute between some of John's disciples and the Jews about purification. 
 
 ###### 26 
 And they came to John and said to him, "Rabbi, He who was with you beyond the Jordan, to whom you have testified--behold, He is baptizing, and all are coming to Him!" 
@@ -97,7 +97,7 @@ You yourselves bear me witness, that I said, 'I am not the Christ,' but, 'I have
 He who has the bride is the bridegroom; but the friend of the bridegroom, who stands and hears him, rejoices greatly because of the bridegroom's voice. Therefore this joy of mine is fulfilled. 
 
 ###### 30 
-He must increase, but I _must_ decrease. 
+He must increase, but I must decrease. 
 
 ###### 31 
 He who comes from above is above all; he who is of the earth is earthly and speaks of the earth. He who comes from heaven is above all. 

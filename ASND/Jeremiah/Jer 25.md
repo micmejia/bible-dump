@@ -106,7 +106,7 @@ Sinabi ni Propeta Jeremias sa lahat ng taga-Juda at sa lahat ng naninirahan sa J
 
 
 
-Sa loob ng 23 taon mula nang ika-13 taon ng paghahari ni Josia na anak ni Haring_ Ammon ng Juda hanggang ngayon, ang Panginoon ay nakikipag-usap sa akin. At patuloy ko namang sinasabi sa inyo ang ipinapasabi niya, pero hindi kayo nakinig. 
+Sa loob ng 23 taon mula nang ika-13 taon ng paghahari ni Josia na anak ni Haring Ammon ng Juda hanggang ngayon, ang Panginoon ay nakikipag-usap sa akin. At patuloy ko namang sinasabi sa inyo ang ipinapasabi niya, pero hindi kayo nakinig. 
 
 
 
@@ -172,7 +172,7 @@ At kahit na patuloy pang nagpapadala sa inyo ang Panginoon ng mga lingkod niyang
 
 
 
-Sinabi ng Panginoon sa pamamagitan nila_, "Talikuran na ninyo ang mga masasama ninyong pag-uugali at gawain para patuloy kayong manirahan magpakailanman sa lupaing ito na ibinigay ko sa inyo at sa mga ninuno ninyo. 
+Sinabi ng Panginoon sa pamamagitan nila, "Talikuran na ninyo ang mga masasama ninyong pag-uugali at gawain para patuloy kayong manirahan magpakailanman sa lupaing ito na ibinigay ko sa inyo at sa mga ninuno ninyo. 
 
 
 
@@ -205,7 +205,7 @@ Sinabi ng Panginoon sa pamamagitan nila_, "Talikuran na ninyo ang mga masasama n
 
 
 
-Huwag kayong sasamba at maglilingkod sa mga dios, at huwag ninyo akong gagalitin sa pamamagitan ng mga dios-diosan na_ ginawa lang ninyo, para hindi ko kayo parusahan." 
+Huwag kayong sasamba at maglilingkod sa mga dios, at huwag ninyo akong gagalitin sa pamamagitan ng mga dios-diosan na ginawa lang ninyo, para hindi ko kayo parusahan." 
 
 
 
@@ -337,7 +337,7 @@ ipapasalakay ko kayo sa mga sundalong galing sa hilaga na pinangungunahan ng lin
 
 
 
-Mawawala ang pagkakatuwaan at pagsasaya ninyo. Hindi na rin mapapakinggan ang pagsasaya ng mga bagong kasal. Wala nang gigiling ng trigo_ o magsisindi ng ilaw kung gabi_. 
+Mawawala ang pagkakatuwaan at pagsasaya ninyo. Hindi na rin mapapakinggan ang pagsasaya ng mga bagong kasal. Wala nang gigiling ng trigo o magsisindi ng ilaw kung gabi. 
 
 
 
@@ -634,7 +634,7 @@ Pinainom ko ang Jerusalem at ang mga bayan ng Juda pati ang mga hari at pinuno n
 
 
 
-Pinainom ko rin_ ang Faraon na hari ng Egipto, ang mga tagapamahala at mga pinuno niya, at ang lahat ng mamamayan niya, 
+Pinainom ko rin ang Faraon na hari ng Egipto, ang mga tagapamahala at mga pinuno niya, at ang lahat ng mamamayan niya, 
 
 
 
@@ -667,7 +667,7 @@ Pinainom ko rin_ ang Faraon na hari ng Egipto, ang mga tagapamahala at mga pinun
 
 
 
-pati ang mga hindi Egipcio na naninirahan doon. Pinainom ko rin_ ang mga hari at mga mamamayan ng mga sumusunod na lugar: Ang Uz, ang mga lungsod ng Filistia, (na ang mga hari nito ang namahala sa Ashkelon, Gaza, Ekron, at Ashdod), 
+pati ang mga hindi Egipcio na naninirahan doon. Pinainom ko rin ang mga hari at mga mamamayan ng mga sumusunod na lugar: Ang Uz, ang mga lungsod ng Filistia, (na ang mga hari nito ang namahala sa Ashkelon, Gaza, Ekron, at Ashdod), 
 
 
 
@@ -898,7 +898,7 @@ ang mga bansa sa hilaga, malayo man o malapit, at ang lahat ng kaharian sa buong
 
 
 
-Pagkatapos, sinabi sa akin ng Panginoon,_ "Sabihin mo sa mga bansang ito na ako,_ ang Panginoong Makapangyarihan, ang Dios ng Israel ay nagsasabi: 'Sige, uminom kayo sa tasa ng galit ko hanggang sa malasing, magsuka, at mabuwal kayo, at hindi na makabangon, dahil ipapadala ko sa inyo ang digmaan.' 
+Pagkatapos, sinabi sa akin ng Panginoon, "Sabihin mo sa mga bansang ito na ako, ang Panginoong Makapangyarihan, ang Dios ng Israel ay nagsasabi: 'Sige, uminom kayo sa tasa ng galit ko hanggang sa malasing, magsuka, at mabuwal kayo, at hindi na makabangon, dahil ipapadala ko sa inyo ang digmaan.' 
 
 
 
@@ -931,7 +931,7 @@ Pagkatapos, sinabi sa akin ng Panginoon,_ "Sabihin mo sa mga bansang ito na ako,
 
 
 
-"Pero kung ayaw nilang uminom, sabihin mo sa kanila na ako,_ ang Panginoong Makapangyarihan ay nagsasabi, 'Kinakailangang uminom kayo! 
+"Pero kung ayaw nilang uminom, sabihin mo sa kanila na ako, ang Panginoong Makapangyarihan ay nagsasabi, 'Kinakailangang uminom kayo! 
 
 
 
@@ -964,7 +964,7 @@ Pagkatapos, sinabi sa akin ng Panginoon,_ "Sabihin mo sa mga bansang ito na ako,
 
 
 
-Sinisimulan ko na ang pagpapadala ng kaparusahan sa Jerusalem, ang lungsod na pinili ko para sa kapurihan ko. Akala nʼyo baʼy hindi ko kayo parurusahan? Parurusahan ko kayo! Sapagkat paglalabanin ko ang lahat ng bansa sa buong daigdig. Ako,_ ang Panginoon, ang nagsasabi nito.' 
+Sinisimulan ko na ang pagpapadala ng kaparusahan sa Jerusalem, ang lungsod na pinili ko para sa kapurihan ko. Akala nʼyo baʼy hindi ko kayo parurusahan? Parurusahan ko kayo! Sapagkat paglalabanin ko ang lahat ng bansa sa buong daigdig. Ako, ang Panginoon, ang nagsasabi nito.' 
 
 
 
@@ -1030,7 +1030,7 @@ Sinisimulan ko na ang pagpapadala ng kaparusahan sa Jerusalem, ang lungsod na pi
 
 
 
-Maririnig ang tinig niya sa buong daigdig, dahil ihahabla niya ang mga bansa. Hahatulan niya ang lahat, at ipapapatay niya sa digmaan ang masasama.' Ako,_ ang Panginoon, ang nagsasabi nito." 
+Maririnig ang tinig niya sa buong daigdig, dahil ihahabla niya ang mga bansa. Hahatulan niya ang lahat, at ipapapatay niya sa digmaan ang masasama.' Ako, ang Panginoon, ang nagsasabi nito." 
 
 
 
@@ -1096,7 +1096,7 @@ Sinabi pa ng Panginoong Makapangyarihan, "Mag-ingat kayo! Ang kapahamakan ay dar
 
 
 
-Sa araw na iyon, maraming papatayin ang Panginoon at ang mga bangkay ay kakalat kahit saan sa buong daigdig. Wala ng magluluksa, magtitipon at maglilibing sa kanila. Pababayaan na lang_ sila na parang dumi lang sa ibabaw ng lupa. 
+Sa araw na iyon, maraming papatayin ang Panginoon at ang mga bangkay ay kakalat kahit saan sa buong daigdig. Wala ng magluluksa, magtitipon at maglilibing sa kanila. Pababayaan na lang sila na parang dumi lang sa ibabaw ng lupa. 
 
 
 
@@ -1129,7 +1129,7 @@ Sa araw na iyon, maraming papatayin ang Panginoon at ang mga bangkay ay kakalat 
 
 
 
-Kayong mga pinuno, umiyak kayo nang malakas, at gumulong kayo sa lupa dahil sa kalungkutan_. Sapagkat dumating na ang araw na papatayin kayo katulad ng pagkatay ng tupa. Madudurog kayo na parang mamahaling palayok na nabasag. 
+Kayong mga pinuno, umiyak kayo nang malakas, at gumulong kayo sa lupa dahil sa kalungkutan. Sapagkat dumating na ang araw na papatayin kayo katulad ng pagkatay ng tupa. Madudurog kayo na parang mamahaling palayok na nabasag. 
 
 
 
@@ -1261,4 +1261,4 @@ At dahil sa matinding galit ng Panginoon, magiging disyerto ang saganang pastula
 
 
 
-Ang Panginoon ay parang leon na lumabas sa yungib nito para maghanap ng masisila_. Magiging mapanglaw ang lupain nʼyo dahil sa pagsalakay ng kaaway, at dahil sa matinding galit ng Panginoon.
+Ang Panginoon ay parang leon na lumabas sa yungib nito para maghanap ng masisila. Magiging mapanglaw ang lupain nʼyo dahil sa pagsalakay ng kaaway, at dahil sa matinding galit ng Panginoon.

@@ -205,7 +205,7 @@ Hangal ang taong tamad, kaya halos mamatay sa gutom.
 
 
 
-Mas mabuti pang magkaroon ng isang dakot na pagkain pero_ may kapayapaan, kaysa sa maraming pagkain pero_ hirap na hirap naman sa pagtatrabaho at nauuwi lang sa wala ang lahat_. Para ka lang humahabol sa hangin. 
+Mas mabuti pang magkaroon ng isang dakot na pagkain pero may kapayapaan, kaysa sa maraming pagkain pero hirap na hirap naman sa pagtatrabaho at nauuwi lang sa wala ang lahat. Para ka lang humahabol sa hangin. 
 
 
 
@@ -271,7 +271,7 @@ May nakita pa ako sa mundong ito na walang kabuluhan.
 
 
 
-May isang taong nag-iisa sa buhay. Wala siyang anak at wala ring kapatid. Pero wala siyang tigil sa pagtatrabaho at hindi nakokontento sa kanyang kayamanan. Sinabi niya sa kanyang sarili,_ "Hindi na ako nakakapagsaya dahil sa sobrang pagtatrabaho. Pero wala naman akong mapag-iiwanan ng aking mga pinaghirapan." Wala itong kabuluhan! At napakalungkot ng ganitong klase ng buhay. 
+May isang taong nag-iisa sa buhay. Wala siyang anak at wala ring kapatid. Pero wala siyang tigil sa pagtatrabaho at hindi nakokontento sa kanyang kayamanan. Sinabi niya sa kanyang sarili, "Hindi na ako nakakapagsaya dahil sa sobrang pagtatrabaho. Pero wala naman akong mapag-iiwanan ng aking mga pinaghirapan." Wala itong kabuluhan! At napakalungkot ng ganitong klase ng buhay. 
 
 
 
@@ -370,7 +370,7 @@ Kapag nadapa ang isa sa kanila maitatayo siya ng kanyang kasama. Kaya nakakaawa 
 
 
 
-Kapag malamig,_ pwede kayong matulog nang magkatabi at pareho kayong maiinitan. Pero kung nag-iisa ka, papaano ka maiinitan? 
+Kapag malamig, pwede kayong matulog nang magkatabi at pareho kayong maiinitan. Pero kung nag-iisa ka, papaano ka maiinitan? 
 
 
 

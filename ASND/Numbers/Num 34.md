@@ -172,7 +172,7 @@ At liliko ito patimog papunta sa Daang Paahon ng Akrabim, hanggang sa ilang ng Z
 
 
 
-at liliko papunta sa Lambak ng Egipto at magtatapos sa Dagat ng Mediteraneo_. 
+at liliko papunta sa Lambak ng Egipto at magtatapos sa Dagat ng Mediteraneo. 
 
 
 

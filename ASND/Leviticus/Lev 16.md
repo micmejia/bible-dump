@@ -40,7 +40,7 @@ next: ['Lev 17']
 
 
 
-Ito ang utos ng Panginoon na_ gagawin ni Aaron sa araw na papasok siya sa Pinakabanal na Lugar: Magdadala siya ng batang toro bilang handog sa paglilinis at lalaking tupa bilang handog na sinusunog. 
+Ito ang utos ng Panginoon na gagawin ni Aaron sa araw na papasok siya sa Pinakabanal na Lugar: Magdadala siya ng batang toro bilang handog sa paglilinis at lalaking tupa bilang handog na sinusunog. 
 
 
 
@@ -537,7 +537,7 @@ Walang sinumang mananatili sa loob ng Tolda sa oras na pumasok si Aaron sa loob 
 
 
 
-saka siya lalabas mula sa Pinakabanal na Lugar_ at pupunta siya sa altar, malapit sa may pintuan ng Tolda. Kukuha siya ng dugo ng baka at ng kambing na inihandog_ at ipapahid sa parang_ sungay sa mga sulok ng altar para iyon ay linisin. 
+saka siya lalabas mula sa Pinakabanal na Lugar at pupunta siya sa altar, malapit sa may pintuan ng Tolda. Kukuha siya ng dugo ng baka at ng kambing na inihandog at ipapahid sa parang sungay sa mga sulok ng altar para iyon ay linisin. 
 
 
 
@@ -735,7 +735,7 @@ Pagkatapos, papasok si Aaron sa Tolda at huhubarin niya ang kanyang damit bilang
 
 
 
-Maliligo siya sa banal na lugar doon sa Tolda_ at saka niya isusuot ang pangkaraniwan niyang damit. Pagkatapos, lalabas siya at ihahandog ang dalawang handog na sinusunog para mapatawad ang kanyang mga kasalanan at ang kasalanan ng mga taga-Israel. 
+Maliligo siya sa banal na lugar doon sa Tolda at saka niya isusuot ang pangkaraniwan niyang damit. Pagkatapos, lalabas siya at ihahandog ang dalawang handog na sinusunog para mapatawad ang kanyang mga kasalanan at ang kasalanan ng mga taga-Israel. 
 
 
 
@@ -867,7 +867,7 @@ Ang mga natirang bahagi ng baka at kambing na ang dugo ay dinala sa Pinakabanal 
 
 
 
-At ang taong magsusunog nito ay kinakailangang maglaba rin ng kanyang damit at maligo bago siya bumalik sa kampo. 29-31Ito naman ang mga tuntuning dapat gawin ng mga katutubong Israelita_ at mga dayuhang naninirahang kasama nila, at itoʼy dapat sundin magpakailanman. Sa ikasampung araw ng ikapitong buwan, dapat silang mag-ayuno at huwag magtrabaho, katulad ng Araw ng Pamamahinga. Sapagkat sa araw na iyon gagawin ang seremonya ng pagtubos sa kanilang mga kasalanan para silaʼy maging malinis sa presensya ng Panginoon. 
+At ang taong magsusunog nito ay kinakailangang maglaba rin ng kanyang damit at maligo bago siya bumalik sa kampo. 29-31Ito naman ang mga tuntuning dapat gawin ng mga katutubong Israelita at mga dayuhang naninirahang kasama nila, at itoʼy dapat sundin magpakailanman. Sa ikasampung araw ng ikapitong buwan, dapat silang mag-ayuno at huwag magtrabaho, katulad ng Araw ng Pamamahinga. Sapagkat sa araw na iyon gagawin ang seremonya ng pagtubos sa kanilang mga kasalanan para silaʼy maging malinis sa presensya ng Panginoon. 
 
 
 

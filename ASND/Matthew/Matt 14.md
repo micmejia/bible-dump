@@ -40,7 +40,7 @@ next: ['Matt 15']
 
 
 
-Nang panahong iyon, nabalitaan ni Herodes na pinuno ng Galilea_ ang tungkol kay Jesus. 
+Nang panahong iyon, nabalitaan ni Herodes na pinuno ng Galilea ang tungkol kay Jesus. 
 
 
 
@@ -106,7 +106,7 @@ Sinabi niya sa kanyang mga opisyal, "Siyaʼy si Juan na tagapagbautismo! Muli si
 
 
 
-Ipinahuli niya noon si Juan at ipinabilanggo, dahil tinutuligsa ni Juan ang relasyon niya_ kay Herodias na asawa ng kapatid niyang si Felipe. 
+Ipinahuli niya noon si Juan at ipinabilanggo, dahil tinutuligsa ni Juan ang relasyon niya kay Herodias na asawa ng kapatid niyang si Felipe. 
 
 
 
@@ -304,7 +304,7 @@ Sa udyok ng kanyang ina, sinabi ng dalaga, "Gusto ko pong ibigay nʼyo sa akin a
 
 
 
-Nalungkot ang hari sa kahilingang iyon. Pero dahil sa pangako niyang narinig mismo ng mga bisita, iniutos niya na gawin ang kahilingan ng dalaga_. 
+Nalungkot ang hari sa kahilingang iyon. Pero dahil sa pangako niyang narinig mismo ng mga bisita, iniutos niya na gawin ang kahilingan ng dalaga. 
 
 
 
@@ -438,7 +438,7 @@ Ang bangkay ni Juan ay kinuha ng kanyang mga tagasunod at inilibing, at ibinalit
 
 
 
-Nang mabalitaan iyon ni Jesus, sumakay siya sa isang bangka at pumunta sa isang tahimik na lugar. Nang malaman ng mga tao mula sa ibaʼt ibang bayan na nakaalis na si Jesus_, lumakad sila patungo sa lugar na pupuntahan niya. 
+Nang mabalitaan iyon ni Jesus, sumakay siya sa isang bangka at pumunta sa isang tahimik na lugar. Nang malaman ng mga tao mula sa ibaʼt ibang bayan na nakaalis na si Jesus, lumakad sila patungo sa lugar na pupuntahan niya. 
 
 
 
@@ -471,7 +471,7 @@ Nang mabalitaan iyon ni Jesus, sumakay siya sa isang bangka at pumunta sa isang 
 
 
 
-Kaya nang bumaba si Jesus sa bangka_, nakita niya ang napakaraming tao. Naawa siya sa kanila at pinagaling niya ang mga may sakit sa kanila. 
+Kaya nang bumaba si Jesus sa bangka, nakita niya ang napakaraming tao. Naawa siya sa kanila at pinagaling niya ang mga may sakit sa kanila. 
 
 
 
@@ -636,7 +636,7 @@ Sumagot sila, "Mayroon lang po tayong limang tinapay at dalawang isda."
 
 
 
-Inutusan niya ang mga tao na maupo sa damuhan. Kinuha niya ang limang tinapay at dalawang isda. Tumingala siya sa langit at nagpasalamat sa Dios_. Pagkatapos, hinati-hati niya ang tinapay at ibinigay sa mga tagasunod niya, at ibinigay naman nila ito sa mga tao. 
+Inutusan niya ang mga tao na maupo sa damuhan. Kinuha niya ang limang tinapay at dalawang isda. Tumingala siya sa langit at nagpasalamat sa Dios. Pagkatapos, hinati-hati niya ang tinapay at ibinigay sa mga tagasunod niya, at ibinigay naman nila ito sa mga tao. 
 
 
 
@@ -1067,7 +1067,7 @@ Agad naman siyang inabot ni Jesus at sinabi, "Kay liit ng pananampalataya mo. Ba
 
 
 
-Pagkasakay nilang dalawa sa bangka, biglang tumigil ang malakas na_ hangin. 
+Pagkasakay nilang dalawa sa bangka, biglang tumigil ang malakas na hangin. 
 
 
 

@@ -16,13 +16,13 @@ When He opened the seventh seal, there was silence in heaven for about half an h
 And I saw the seven angels who stand before God, and to them were given seven trumpets. 
 
 ###### 3 
-Then another angel, having a golden censer, came and stood at the altar. He was given much incense, that he should offer _it_ with the prayers of all the saints upon the golden altar which was before the throne. 
+Then another angel, having a golden censer, came and stood at the altar. He was given much incense, that he should offer it with the prayers of all the saints upon the golden altar which was before the throne. 
 
 ###### 4 
 And the smoke of the incense, with the prayers of the saints, ascended before God from the angel's hand. 
 
 ###### 5 
-Then the angel took the censer, filled it with fire from the altar, and threw _it_ to the earth. And there were noises, thunderings, lightnings, and an earthquake. 
+Then the angel took the censer, filled it with fire from the altar, and threw it to the earth. And there were noises, thunderings, lightnings, and an earthquake. 
 
 ###### 6 
 So the seven angels who had the seven trumpets prepared themselves to sound.
@@ -35,7 +35,7 @@ The first angel sounded: And hail and fire followed, mingled with blood, and the
 ## Second Trumpet: The Seas Struck 
 
 ###### 8 
-Then the second angel sounded: And _something_ like a great mountain burning with fire was thrown into the sea, and a third of the sea became blood. 
+Then the second angel sounded: And something like a great mountain burning with fire was thrown into the sea, and a third of the sea became blood. 
 
 ###### 9 
 And a third of the living creatures in the sea died, and a third of the ships were destroyed.

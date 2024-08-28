@@ -205,7 +205,7 @@ Noong namumuhay pa tayo sa dati nating pagkatao, ang masamang pagnanasa ang nagh
 
 
 
-Pero ngayon ay malaya na tayo sa Kautusan, dahil namatay na tayo sa Kautusang ito na_ dating umalipin sa atin. Ang ating paglilingkod ngayon sa Dios ay hindi na ayon sa dating buhay na dulot ng Kautusan kundi sa bagong buhay na dulot ng Banal na_ Espiritu.
+Pero ngayon ay malaya na tayo sa Kautusan, dahil namatay na tayo sa Kautusang ito na dating umalipin sa atin. Ang ating paglilingkod ngayon sa Dios ay hindi na ayon sa dating buhay na dulot ng Kautusan kundi sa bagong buhay na dulot ng Banal na Espiritu.
 
 ## Ang Kautusan at ang Kasalanan 
 
@@ -372,7 +372,7 @@ Kaya ang Kautusan na dapat sanaʼy magbibigay ng buhay ang siya pang nagdulot sa
 
 
 
-Sapagkat ginamit ng kasalanan ang Kautusan para dayain ako, at dahil dito nahatulan ako ng kamatayan dahil hindi ko masunod ang Kautusan_. 
+Sapagkat ginamit ng kasalanan ang Kautusan para dayain ako, at dahil dito nahatulan ako ng kamatayan dahil hindi ko masunod ang Kautusan. 
 
 
 
@@ -473,7 +473,7 @@ Nangangahulugan ba na ang mabuting bagay pa ang siyang nagdulot sa akin ng kamat
 
 
 
-Alam natin na ang Kautusan ay mula sa Banal na_ Espiritu. Pero makamundo ako, at alipin ng kasalanan. 
+Alam natin na ang Kautusan ay mula sa Banal na Espiritu. Pero makamundo ako, at alipin ng kasalanan. 
 
 
 
@@ -506,7 +506,7 @@ Alam natin na ang Kautusan ay mula sa Banal na_ Espiritu. Pero makamundo ako, at
 
 
 
-Hindi ko maintindihan ang aking sarili. Dahil ang mabubuting_ bagay na gusto kong gawin ay hindi ko magawa, pero ang mga bagay na ayaw kong gawin ang siya kong ginagawa. 
+Hindi ko maintindihan ang aking sarili. Dahil ang mabubuting bagay na gusto kong gawin ay hindi ko magawa, pero ang mga bagay na ayaw kong gawin ang siya kong ginagawa. 
 
 
 
@@ -803,7 +803,7 @@ pero may napapansin akong ibang kapangyarihan na kumikilos sa aking pagkatao, na
 
 
 
-Kawawa naman ako! Sino ang magliligtas sa akin sa makasalanan_ kong pagkatao na nagdudulot sa akin ng kamatayan? 
+Kawawa naman ako! Sino ang magliligtas sa akin sa makasalanan kong pagkatao na nagdudulot sa akin ng kamatayan? 
 
 
 
@@ -836,4 +836,4 @@ Kawawa naman ako! Sino ang magliligtas sa akin sa makasalanan_ kong pagkatao na 
 
 
 
-Salamat sa Dios, siya ang magliligtas sa akin_ sa pamamagitan ni Jesu-Cristo na ating Panginoon! Ito ang aking kalagayan: Ang kaisipan ko ay nagpapasakop sa Kautusan ng Dios, pero ang aking makasalanang pagkatao ay nagpapasakop sa kapangyarihan ng kasalanan.
+Salamat sa Dios, siya ang magliligtas sa akin sa pamamagitan ni Jesu-Cristo na ating Panginoon! Ito ang aking kalagayan: Ang kaisipan ko ay nagpapasakop sa Kautusan ng Dios, pero ang aking makasalanang pagkatao ay nagpapasakop sa kapangyarihan ng kasalanan.

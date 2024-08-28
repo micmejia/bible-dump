@@ -73,7 +73,7 @@ Sinubukan kong magpakasaya sa mga layaw ng buhay. Pero nakita kong wala rin iton
 
 
 
-Kamangmangan ang sobrang_ pagtawa at ang pagpapakasaya ay wala ring kabuluhan. 
+Kamangmangan ang sobrang pagtawa at ang pagpapakasaya ay wala ring kabuluhan. 
 
 
 
@@ -836,7 +836,7 @@ Ang pinakamagandang gawin ng tao ay kumain, uminom at pakinabangan ang mga pinag
 
 
 
-dahil paano natin makakain at mapapakinabangan ang mga pinaghirapan natin_ kung hindi ito ibibigay ng Dios? 
+dahil paano natin makakain at mapapakinabangan ang mga pinaghirapan natin kung hindi ito ibibigay ng Dios? 
 
 
 
@@ -869,4 +869,4 @@ dahil paano natin makakain at mapapakinabangan ang mga pinaghirapan natin_ kung 
 
 
 
-Dahil ang taong nagbibigay-lugod sa Dios ay binibigyan niya ng karunungan, kaalaman at kagalakan. At ang makasalanan ay binibigyan ng Dios ng trabaho upang mag-ipon ng kayamanan para ibigay sa taong nagbibigay-lugod sa Dios. Kaya lahat ng pagsisikap ng makasalanan ay walang kabuluhan. Para siyang_ humahabol sa hangin.
+Dahil ang taong nagbibigay-lugod sa Dios ay binibigyan niya ng karunungan, kaalaman at kagalakan. At ang makasalanan ay binibigyan ng Dios ng trabaho upang mag-ipon ng kayamanan para ibigay sa taong nagbibigay-lugod sa Dios. Kaya lahat ng pagsisikap ng makasalanan ay walang kabuluhan. Para siyang humahabol sa hangin.

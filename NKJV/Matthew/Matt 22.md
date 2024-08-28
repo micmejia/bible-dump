@@ -19,16 +19,16 @@ And Jesus answered and spoke to them again by parables and said:
 and sent out his servants to call those who were invited to the wedding; and they were not willing to come. 
 
 ###### 4 
-Again, he sent out other servants, saying, 'Tell those who are invited, "See, I have prepared my dinner; my oxen and fatted cattle _are_ killed, and all things _are_ ready. Come to the wedding." ' 
+Again, he sent out other servants, saying, 'Tell those who are invited, "See, I have prepared my dinner; my oxen and fatted cattle are killed, and all things are ready. Come to the wedding." ' 
 
 ###### 5 
 But they made light of it and went their ways, one to his own farm, another to his business. 
 
 ###### 6 
-And the rest seized his servants, treated _them_ spitefully, and killed _them._ 
+And the rest seized his servants, treated them spitefully, and killed them. 
 
 ###### 7 
-But when the king heard _about it,_ he was furious. And he sent out his armies, destroyed those murderers, and burned up their city. 
+But when the king heard about it, he was furious. And he sent out his armies, destroyed those murderers, and burned up their city. 
 
 ###### 8 
 Then he said to his servants, 'The wedding is ready, but those who were invited were not worthy. 
@@ -37,7 +37,7 @@ Then he said to his servants, 'The wedding is ready, but those who were invited 
 Therefore go into the highways, and as many as you find, invite to the wedding.' 
 
 ###### 10 
-So those servants went out into the highways and gathered together all whom they found, both bad and good. And the wedding _hall_ was filled with guests. 
+So those servants went out into the highways and gathered together all whom they found, both bad and good. And the wedding hall was filled with guests. 
 
 ###### 11 
 "But when the king came in to see the guests, he saw a man there who did not have on a wedding garment. 
@@ -46,13 +46,13 @@ So those servants went out into the highways and gathered together all whom they
 So he said to him, 'Friend, how did you come in here without a wedding garment?' And he was speechless. 
 
 ###### 13 
-Then the king said to the servants, 'Bind him hand and foot, take him away, and cast _him_ into outer darkness; there will be weeping and gnashing of teeth.' 
+Then the king said to the servants, 'Bind him hand and foot, take him away, and cast him into outer darkness; there will be weeping and gnashing of teeth.' 
 
 ###### 14 
-"For many are called, but few _are_ chosen." ## The Pharisees: Is It Lawful to Pay Taxes to Caesar? 
+"For many are called, but few are chosen." ## The Pharisees: Is It Lawful to Pay Taxes to Caesar? 
 
 ###### 15 
-Then the Pharisees went and plotted how they might entangle Him in _His_ talk. 
+Then the Pharisees went and plotted how they might entangle Him in His talk. 
 
 ###### 16 
 And they sent to Him their disciples with the Herodians, saying, "Teacher, we know that You are true, and teach the way of God in truth; nor do You care about anyone, for You do not regard the person of men. 
@@ -61,19 +61,19 @@ And they sent to Him their disciples with the Herodians, saying, "Teacher, we kn
 Tell us, therefore, what do You think? Is it lawful to pay taxes to Caesar, or not?" 
 
 ###### 18 
-But Jesus perceived their wickedness, and said, "Why do you test Me, _you_ hypocrites? 
+But Jesus perceived their wickedness, and said, "Why do you test Me, you hypocrites? 
 
 ###### 19 
 Show Me the tax money." So they brought Him a denarius. 
 
 ###### 20 
-And He said to them, "Whose image and inscription _is_ this?" 
+And He said to them, "Whose image and inscription is this?" 
 
 ###### 21 
 They said to Him, "Caesar's." And He said to them, "Render therefore to Caesar the things that are Caesar's, and to God the things that are God's." 
 
 ###### 22 
-When they had heard _these words,_ they marveled, and left Him and went their way.
+When they had heard these words, they marveled, and left Him and went their way.
 
 ## The Sadducees: What About the Resurrection? 
 
@@ -108,7 +108,7 @@ But concerning the resurrection of the dead, have you not read what was spoken t
 'I am the God of Abraham, the God of Isaac, and the God of Jacob'? God is not the God of the dead, but of the living." 
 
 ###### 33 
-And when the multitudes heard _this,_ they were astonished at His teaching.
+And when the multitudes heard this, they were astonished at His teaching.
 
 ## The Scribes: Which Is the First Commandment of All? 
 
@@ -116,19 +116,19 @@ And when the multitudes heard _this,_ they were astonished at His teaching.
 But when the Pharisees heard that He had silenced the Sadducees, they gathered together. 
 
 ###### 35 
-Then one of them, a lawyer, asked _Him a question,_ testing Him, and saying, 
+Then one of them, a lawyer, asked Him a question, testing Him, and saying, 
 
 ###### 36 
-"Teacher, which _is_ the great commandment in the law?" 
+"Teacher, which is the great commandment in the law?" 
 
 ###### 37 
 Jesus said to him, "'You shall love the Lord your God with all your heart, with all your soul, and with all your mind.' 
 
 ###### 38 
-This is _the_ first and great commandment. 
+This is the first and great commandment. 
 
 ###### 39 
-And _the_ second _is_ like it: 'You shall love your neighbor as yourself.' 
+And the second is like it: 'You shall love your neighbor as yourself.' 
 
 ###### 40 
 On these two commandments hang all the Law and the Prophets." ## Jesus: How Can David Call His Descendant Lord? 
@@ -137,7 +137,7 @@ On these two commandments hang all the Law and the Prophets." ## Jesus: How Can 
 While the Pharisees were gathered together, Jesus asked them, 
 
 ###### 42 
-saying, "What do you think about the Christ? Whose Son is He?" They said to Him, "_The_ _Son_ of David." 
+saying, "What do you think about the Christ? Whose Son is He?" They said to Him, "The Son of David." 
 
 ###### 43 
 He said to them, "How then does David in the Spirit call Him 'Lord,' saying: 

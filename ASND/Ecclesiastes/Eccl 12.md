@@ -72,7 +72,7 @@ Alalahanin mo ang lumikha sa iyo habang bata ka pa at bago dumating ang panahon 
 
 
 
-Alalahanin mo siya_ bago dumilim ang araw, ang buwan at ang mga bituin na parang natatakpan ng makakapal na ulap. 
+Alalahanin mo siya bago dumilim ang araw, ang buwan at ang mga bituin na parang natatakpan ng makakapal na ulap. 
 
 
 
@@ -138,7 +138,7 @@ Darating ang araw na manginginig ang iyong mga bisig at manghihina ang iyong mga
 
 
 
-Ang tainga moʼy hindi na halos makarinig, kahit ang ingay ng gilingan o huni ng mga ibon o mga awitin ay hindi na marinig_. 
+Ang tainga moʼy hindi na halos makarinig, kahit ang ingay ng gilingan o huni ng mga ibon o mga awitin ay hindi na marinig. 
 
 
 
@@ -204,7 +204,7 @@ Matatakot ka ng umakyat sa matataas na lugar o lumakad sa lansangan ng nag-iisa.
 
 
 
-Kaya alalahanin mo ang Dios habang nabubuhay ka,_ habang hindi pa nalalagot ang kadenang pilak at hindi pa nababasag ang gintong lalagyan, o hindi pa nalalagot ang tali ng timba sa balon, at nasisira ang kalo nito. 
+Kaya alalahanin mo ang Dios habang nabubuhay ka, habang hindi pa nalalagot ang kadenang pilak at hindi pa nababasag ang gintong lalagyan, o hindi pa nalalagot ang tali ng timba sa balon, at nasisira ang kalo nito. 
 
 
 
@@ -435,7 +435,7 @@ Anak, mag-ingat ka sa isa pang bagay na ito: Ang pagsusulat ng aklat ay walang k
 
 
 
-Ngayong nabasa mo na ang lahat ng ito, ito ang aking huling payo: Matakot ka sa Dios at sundin mo ang kanyang mga utos, dahil ito ang tungkulin_ ng bawat tao. 
+Ngayong nabasa mo na ang lahat ng ito, ito ang aking huling payo: Matakot ka sa Dios at sundin mo ang kanyang mga utos, dahil ito ang tungkulin ng bawat tao. 
 
 
 

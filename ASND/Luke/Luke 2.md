@@ -139,7 +139,7 @@ Kaya umuwi ang lahat ng tao sa sarili nilang bayan upang magpalista.
 
 
 
-Mula sa Nazaret na sakop ng Galilea, pumunta si Jose sa Betlehem na sakop ng Judea, sa bayang sinilangan ni Haring_ David, dahil nagmula siya sa angkan ni David. 
+Mula sa Nazaret na sakop ng Galilea, pumunta si Jose sa Betlehem na sakop ng Judea, sa bayang sinilangan ni Haring David, dahil nagmula siya sa angkan ni David. 
 
 
 
@@ -372,7 +372,7 @@ pero sinabi sa kanila ng anghel, "Huwag kayong matakot dahil naparito ako upang 
 
 
 
-Sapagkat isinilang ngayon sa Betlehem_, sa bayan ni Haring_ David, ang inyong Tagapagligtas, ang Cristo na siyang_ Panginoon. 
+Sapagkat isinilang ngayon sa Betlehem, sa bayan ni Haring David, ang inyong Tagapagligtas, ang Cristo na siyang Panginoon. 
 
 
 
@@ -405,7 +405,7 @@ Sapagkat isinilang ngayon sa Betlehem_, sa bayan ni Haring_ David, ang inyong Ta
 
 
 
-Ito ang palatandaan upang makilala ninyo siya_: makikita ninyo ang sanggol na nababalot ng lampin at nakahiga sa isang sabsaban." 
+Ito ang palatandaan upang makilala ninyo siya: makikita ninyo ang sanggol na nababalot ng lampin at nakahiga sa isang sabsaban." 
 
 
 
@@ -438,7 +438,7 @@ Ito ang palatandaan upang makilala ninyo siya_: makikita ninyo ang sanggol na na
 
 
 
-Pagkatapos magsalita ng anghel_, biglang nagpakita ang napakaraming anghel at sama-sama silang nagpuri sa Dios. Sinabi nila, 
+Pagkatapos magsalita ng anghel, biglang nagpakita ang napakaraming anghel at sama-sama silang nagpuri sa Dios. Sinabi nila, 
 
 
 
@@ -537,7 +537,7 @@ Nang makaalis na ang mga anghel pabalik sa langit, nag-usap-usap ang mga pastol,
 
 
 
-Kaya nagmamadali silang pumunta sa Betlehem_ at nakita nila sina Maria at Jose, at ang sanggol na nakahiga sa sabsaban. 
+Kaya nagmamadali silang pumunta sa Betlehem at nakita nila sina Maria at Jose, at ang sanggol na nakahiga sa sabsaban. 
 
 
 
@@ -805,7 +805,7 @@ Sapagkat nasusulat sa Kautusan ng Panginoon, "Ang bawat panganay na lalaki ay ka
 
 
 
-At upang maituring na malinis si Maria,_ naghandog sila ayon sa sinasabi ng Kautusan ng Panginoon: "isang pares ng batu-bato o dalawang inakay na kalapati." 
+At upang maituring na malinis si Maria, naghandog sila ayon sa sinasabi ng Kautusan ng Panginoon: "isang pares ng batu-bato o dalawang inakay na kalapati." 
 
 
 
@@ -871,7 +871,7 @@ May isang tao roon sa Jerusalem na ang pangalan ay Simeon. Matuwid siya, may tak
 
 
 
-Ipinahayag sa kanya ng Banal na Espiritu na hindi siya mamamatay hanggaʼt hindi niya nakikita ang haring ipinangako_ ng Panginoon. 
+Ipinahayag sa kanya ng Banal na Espiritu na hindi siya mamamatay hanggaʼt hindi niya nakikita ang haring ipinangako ng Panginoon. 
 
 
 
@@ -904,7 +904,7 @@ Ipinahayag sa kanya ng Banal na Espiritu na hindi siya mamamatay hanggaʼt hindi
 
 
 
-Nang araw na iyon, sa patnubay ng Banal na_ Espiritu ay pumunta siya sa templo. At nang dalhin doon nina Maria at Jose si Jesus upang ihandog sa Panginoon ayon sa Kautusan, nakita ni Simeon ang sanggol._ 
+Nang araw na iyon, sa patnubay ng Banal na Espiritu ay pumunta siya sa templo. At nang dalhin doon nina Maria at Jose si Jesus upang ihandog sa Panginoon ayon sa Kautusan, nakita ni Simeon ang sanggol. 
 
 
 
@@ -1201,7 +1201,7 @@ Kaya ikaw mismo ay masasaktan, na parang sinaksak ng patalim ang puso mo. At dah
 
 
 
-Naroon din sa templo_ ang isang babaeng propeta na ang pangalan ay_ Ana. Anak siya ni Fanuel na mula sa lahi ni Asher. Matandang-matanda na siya. Pitong taon lang silang nagsama ng kanyang asawa 
+Naroon din sa templo ang isang babaeng propeta na ang pangalan ay Ana. Anak siya ni Fanuel na mula sa lahi ni Asher. Matandang-matanda na siya. Pitong taon lang silang nagsama ng kanyang asawa 
 
 
 
@@ -1234,7 +1234,7 @@ Naroon din sa templo_ ang isang babaeng propeta na ang pangalan ay_ Ana. Anak si
 
 
 
-bago siya nabiyuda. At ngayon, 84 na taon na siya. Palagi siyang nasa templo; araw-gabi ay sumasamba siya sa Dios_ sa pamamagitan ng pananalangin at pag-aayuno. 
+bago siya nabiyuda. At ngayon, 84 na taon na siya. Palagi siyang nasa templo; araw-gabi ay sumasamba siya sa Dios sa pamamagitan ng pananalangin at pag-aayuno. 
 
 
 
@@ -1267,7 +1267,7 @@ bago siya nabiyuda. At ngayon, 84 na taon na siya. Palagi siyang nasa templo; ar
 
 
 
-Lumapit siya nang oras ding iyon kina Jose at Maria_ at nagpasalamat sa Dios. At nagsalita rin siya tungkol sa bata sa lahat ng naghihintay sa araw ng pagliligtas ng Dios sa Jerusalem. 
+Lumapit siya nang oras ding iyon kina Jose at Maria at nagpasalamat sa Dios. At nagsalita rin siya tungkol sa bata sa lahat ng naghihintay sa araw ng pagliligtas ng Dios sa Jerusalem. 
 
 
 
@@ -1533,7 +1533,7 @@ Nang malaman nila na wala si Jesus sa kanila, bumalik sila sa Jerusalem para roo
 
 
 
-At nang ikatlong araw, natagpuan nila si Jesus sa templo na nakaupong kasama ng mga tagapagturo ng Kautusan_. Nakikinig siya sa kanila at nagtatanong. 
+At nang ikatlong araw, natagpuan nila si Jesus sa templo na nakaupong kasama ng mga tagapagturo ng Kautusan. Nakikinig siya sa kanila at nagtatanong. 
 
 
 

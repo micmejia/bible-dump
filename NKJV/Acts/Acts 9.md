@@ -22,16 +22,16 @@ As he journeyed he came near Damascus, and suddenly a light shone around him fro
 Then he fell to the ground, and heard a voice saying to him, "Saul, Saul, why are you persecuting Me?" 
 
 ###### 5 
-And he said, "Who are You, Lord?" Then the Lord said, "I am Jesus, whom you are persecuting. It _is_ hard for you to kick against the goads." 
+And he said, "Who are You, Lord?" Then the Lord said, "I am Jesus, whom you are persecuting. It is hard for you to kick against the goads." 
 
 ###### 6 
-So he, trembling and astonished, said, "Lord, what do You want me to do?" Then the Lord _said_ to him, "Arise and go into the city, and you will be told what you must do." 
+So he, trembling and astonished, said, "Lord, what do You want me to do?" Then the Lord said to him, "Arise and go into the city, and you will be told what you must do." 
 
 ###### 7 
 And the men who journeyed with him stood speechless, hearing a voice but seeing no one. 
 
 ###### 8 
-Then Saul arose from the ground, and when his eyes were opened he saw no one. But they led him by the hand and brought _him_ into Damascus. 
+Then Saul arose from the ground, and when his eyes were opened he saw no one. But they led him by the hand and brought him into Damascus. 
 
 ###### 9 
 And he was three days without sight, and neither ate nor drank.
@@ -42,10 +42,10 @@ And he was three days without sight, and neither ate nor drank.
 Now there was a certain disciple at Damascus named Ananias; and to him the Lord said in a vision, "Ananias." And he said, "Here I am, Lord." 
 
 ###### 11 
-So the Lord _said_ to him, "Arise and go to the street called Straight, and inquire at the house of Judas for _one_ called Saul of Tarsus, for behold, he is praying. 
+So the Lord said to him, "Arise and go to the street called Straight, and inquire at the house of Judas for one called Saul of Tarsus, for behold, he is praying. 
 
 ###### 12 
-And in a vision he has seen a man named Ananias coming in and putting _his_ hand on him, so that he might receive his sight." 
+And in a vision he has seen a man named Ananias coming in and putting his hand on him, so that he might receive his sight." 
 
 ###### 13 
 Then Ananias answered, "Lord, I have heard from many about this man, how much harm he has done to Your saints in Jerusalem. 
@@ -63,7 +63,7 @@ For I will show him how many things he must suffer for My name's sake."
 And Ananias went his way and entered the house; and laying his hands on him he said, "Brother Saul, the Lord Jesus, who appeared to you on the road as you came, has sent me that you may receive your sight and be filled with the Holy Spirit." 
 
 ###### 18 
-Immediately there fell from his eyes _something_ like scales, and he received his sight at once; and he arose and was baptized. 
+Immediately there fell from his eyes something like scales, and he received his sight at once; and he arose and was baptized. 
 
 ###### 19 
 So when he had received food, he was strengthened. Then Saul spent some days with the disciples at Damascus.
@@ -77,7 +77,7 @@ Immediately he preached the Christ in the synagogues, that He is the Son of God.
 Then all who heard were amazed, and said, "Is this not he who destroyed those who called on this name in Jerusalem, and has come here for that purpose, so that he might bring them bound to the chief priests?" 
 
 ###### 22 
-But Saul increased all the more in strength, and confounded the Jews who dwelt in Damascus, proving that this _Jesus_ is the Christ.
+But Saul increased all the more in strength, and confounded the Jews who dwelt in Damascus, proving that this Jesus is the Christ.
 
 ## Saul Escapes Death 
 
@@ -88,7 +88,7 @@ Now after many days were past, the Jews plotted to kill him.
 But their plot became known to Saul. And they watched the gates day and night, to kill him. 
 
 ###### 25 
-Then the disciples took him by night and let _him_ down through the wall in a large basket.
+Then the disciples took him by night and let him down through the wall in a large basket.
 
 ## Saul at Jerusalem 
 
@@ -96,7 +96,7 @@ Then the disciples took him by night and let _him_ down through the wall in a la
 And when Saul had come to Jerusalem, he tried to join the disciples; but they were all afraid of him, and did not believe that he was a disciple. 
 
 ###### 27 
-But Barnabas took him and brought _him_ to the apostles. And he declared to them how he had seen the Lord on the road, and that He had spoken to him, and how he had preached boldly at Damascus in the name of Jesus. 
+But Barnabas took him and brought him to the apostles. And he declared to them how he had seen the Lord on the road, and that He had spoken to him, and how he had preached boldly at Damascus in the name of Jesus. 
 
 ###### 28 
 So he was with them at Jerusalem, coming in and going out. 
@@ -115,7 +115,7 @@ Then the churches throughout all Judea, Galilee, and Samaria had peace and were 
 ## Aeneas Healed 
 
 ###### 32 
-Now it came to pass, as Peter went through all _parts of the country,_ that he also came down to the saints who dwelt in Lydda. 
+Now it came to pass, as Peter went through all parts of the country, that he also came down to the saints who dwelt in Lydda. 
 
 ###### 33 
 There he found a certain man named Aeneas, who had been bedridden eight years and was paralyzed. 
@@ -132,19 +132,19 @@ So all who dwelt at Lydda and Sharon saw him and turned to the Lord.
 At Joppa there was a certain disciple named Tabitha, which is translated Dorcas. This woman was full of good works and charitable deeds which she did. 
 
 ###### 37 
-But it happened in those days that she became sick and died. When they had washed her, they laid _her_ in an upper room. 
+But it happened in those days that she became sick and died. When they had washed her, they laid her in an upper room. 
 
 ###### 38 
-And since Lydda was near Joppa, and the disciples had heard that Peter was there, they sent two men to him, imploring _him_ not to delay in coming to them. 
+And since Lydda was near Joppa, and the disciples had heard that Peter was there, they sent two men to him, imploring him not to delay in coming to them. 
 
 ###### 39 
-Then Peter arose and went with them. When he had come, they brought _him_ to the upper room. And all the widows stood by him weeping, showing the tunics and garments which Dorcas had made while she was with them. 
+Then Peter arose and went with them. When he had come, they brought him to the upper room. And all the widows stood by him weeping, showing the tunics and garments which Dorcas had made while she was with them. 
 
 ###### 40 
 But Peter put them all out, and knelt down and prayed. And turning to the body he said, "Tabitha, arise." And she opened her eyes, and when she saw Peter she sat up. 
 
 ###### 41 
-Then he gave her _his_ hand and lifted her up; and when he had called the saints and widows, he presented her alive. 
+Then he gave her his hand and lifted her up; and when he had called the saints and widows, he presented her alive. 
 
 ###### 42 
 And it became known throughout all Joppa, and many believed on the Lord. 

@@ -18,7 +18,7 @@ So the first went and poured out his bowl upon the earth, and a foul and loathso
 ## Second Bowl: The Sea Turns to Blood 
 
 ###### 3 
-Then the second angel poured out his bowl on the sea, and it became blood as of a dead _man;_ and every living creature in the sea died.
+Then the second angel poured out his bowl on the sea, and it became blood as of a dead man; and every living creature in the sea died.
 
 ## Third Bowl: The Waters Turn to Blood 
 
@@ -32,7 +32,7 @@ And I heard the angel of the waters saying: "You are righteous, O Lord, The One 
 For they have shed the blood of saints and prophets, And You have given them blood to drink. For it is their just due." 
 
 ###### 7 
-And I heard another from the altar saying, "Even so, Lord God Almighty, true and righteous _are_ Your judgments." ## Fourth Bowl: Men Are Scorched 
+And I heard another from the altar saying, "Even so, Lord God Almighty, true and righteous are Your judgments." ## Fourth Bowl: Men Are Scorched 
 
 ###### 8 
 Then the fourth angel poured out his bowl on the sun, and power was given to him to scorch men with fire. 
@@ -54,13 +54,13 @@ They blasphemed the God of heaven because of their pains and their sores, and di
 Then the sixth angel poured out his bowl on the great river Euphrates, and its water was dried up, so that the way of the kings from the east might be prepared. 
 
 ###### 13 
-And I saw three unclean spirits like frogs _coming_ out of the mouth of the dragon, out of the mouth of the beast, and out of the mouth of the false prophet. 
+And I saw three unclean spirits like frogs coming out of the mouth of the dragon, out of the mouth of the beast, and out of the mouth of the false prophet. 
 
 ###### 14 
-For they are spirits of demons, performing signs, _which_ go out to the kings of the earth and of the whole world, to gather them to the battle of that great day of God Almighty. 
+For they are spirits of demons, performing signs, which go out to the kings of the earth and of the whole world, to gather them to the battle of that great day of God Almighty. 
 
 ###### 15 
-"Behold, I am coming as a thief. Blessed _is_ he who watches, and keeps his garments, lest he walk naked and they see his shame." 
+"Behold, I am coming as a thief. Blessed is he who watches, and keeps his garments, lest he walk naked and they see his shame." 
 
 ###### 16 
 And they gathered them together to the place called in Hebrew, Armageddon.
@@ -80,4 +80,4 @@ Now the great city was divided into three parts, and the cities of the nations f
 Then every island fled away, and the mountains were not found. 
 
 ###### 21 
-And great hail from heaven fell upon men, _each hailstone_ about the weight of a talent. Men blasphemed God because of the plague of the hail, since that plague was exceedingly great.
+And great hail from heaven fell upon men, each hailstone about the weight of a talent. Men blasphemed God because of the plague of the hail, since that plague was exceedingly great.

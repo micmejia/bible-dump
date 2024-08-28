@@ -72,7 +72,7 @@ Sinabi ng Panginoon kay Moises,
 
 
 
-"Itayo mo ang Toldang Sambahan na tinatawag ding_ Toldang Tipanan sa unang araw ng unang buwan. 
+"Itayo mo ang Toldang Sambahan na tinatawag ding Toldang Tipanan sa unang araw ng unang buwan. 
 
 
 
@@ -204,7 +204,7 @@ Ilagay mo ang mga gintong altar na pagsusunugan ng insenso sa harap ng Kahon ng 
 
 
 
-"Ilagay mo ang altar na pagsusunugan ng mga handog sa harapan ng pintuan ng Toldang Sambahan na tinatawag ding_ Toldang Tipanan. 
+"Ilagay mo ang altar na pagsusunugan ng mga handog sa harapan ng pintuan ng Toldang Sambahan na tinatawag ding Toldang Tipanan. 
 
 
 
@@ -567,7 +567,7 @@ Ginawa ni Moises ang lahat ng iniutos sa kanya ng Panginoon.
 
 
 
-Kaya itinayo ang Toldang Sambahan noong unang araw ng unang buwan. Ikalawang taon iyon nang paglabas nila ng Egipto_. 
+Kaya itinayo ang Toldang Sambahan noong unang araw ng unang buwan. Ikalawang taon iyon nang paglabas nila ng Egipto. 
 
 
 
@@ -633,7 +633,7 @@ Ganito itinayo ni Moises ang Tolda: Inilagay niya ang mga pundasyon, balangkas, 
 
 
 
-Inilatag niya ang Tolda at pinatungan niya ng pantaklob. Ginawa niyang lahat ito_ ayon sa iniutos sa kanya ng Panginoon. 
+Inilatag niya ang Tolda at pinatungan niya ng pantaklob. Ginawa niyang lahat ito ayon sa iniutos sa kanya ng Panginoon. 
 
 
 
@@ -765,7 +765,7 @@ Inilagay niya ang mesa sa loob ng Tolda, sa bandang hilaga, sa labas ng kurtina.
 
 
 
-At inilagay niya sa mesa ang tinapay na inihahandog sa presensya ng Panginoon. Ginawa niyang lahat ito_ ayon sa iniutos ng Panginoon. 
+At inilagay niya sa mesa ang tinapay na inihahandog sa presensya ng Panginoon. Ginawa niyang lahat ito ayon sa iniutos ng Panginoon. 
 
 
 
@@ -831,7 +831,7 @@ Inilagay din niya ang lalagyan ng ilaw sa loob ng Tolda, sa harapan ng mesa, sa 
 
 
 
-At inilagay niya ang mga ilaw nito sa presensya ng Panginoon. Ginawa niyang lahat ito_ ayon sa iniutos sa kanya ng Panginoon. 
+At inilagay niya ang mga ilaw nito sa presensya ng Panginoon. Ginawa niyang lahat ito ayon sa iniutos sa kanya ng Panginoon. 
 
 
 
@@ -897,7 +897,7 @@ Inilagay din niya ang gintong altar sa loob ng Tolda, sa harapan ng kurtina,
 
 
 
-at nagsunog siya ng mabangong insenso sa altar. Ginawa niyang lahat ito_ ayon sa iniutos ng Panginoon. 
+at nagsunog siya ng mabangong insenso sa altar. Ginawa niyang lahat ito ayon sa iniutos ng Panginoon. 
 
 
 
@@ -963,7 +963,7 @@ Ikinabit din niya ang kurtina sa pintuan ng Tolda,
 
 
 
-at inilagay niya malapit sa pintuan ang altar na pinagsusunugan ng mga handog. Pagkatapos, nag-alay siya sa altar na ito ng mga handog na sinusunog at mga handog bilang pagpaparangal sa Panginoon. Ginawa niyang lahat ito_ ayon sa iniutos sa kanya ng Panginoon. 
+at inilagay niya malapit sa pintuan ang altar na pinagsusunugan ng mga handog. Pagkatapos, nag-alay siya sa altar na ito ng mga handog na sinusunog at mga handog bilang pagpaparangal sa Panginoon. Ginawa niyang lahat ito ayon sa iniutos sa kanya ng Panginoon. 
 
 
 
@@ -1062,7 +1062,7 @@ At naghugas sina Moises, Aaron at ang mga anak niyang lalaki ng mga kamay at paa
 
 
 
-Maghuhugas sila kapag pumapasok sa Tolda o kapag lalapit sila sa altar. Ginawa nilang lahat ito_ ayon sa iniutos ng Panginoon kay Moises. 
+Maghuhugas sila kapag pumapasok sa Tolda o kapag lalapit sila sa altar. Ginawa nilang lahat ito ayon sa iniutos ng Panginoon kay Moises. 
 
 
 

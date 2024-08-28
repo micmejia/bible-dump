@@ -40,7 +40,7 @@ next: ['Mic 4']
 
 
 
-Sinabi ni Micas: Makinig kayo, mga pinuno ng Israel at Juda! Hindi baʼt kayo ang dapat magpatupad ng katarungan? ###### 2-3 Pero ayaw ninyo ang mabuti at gusto ninyo ang masama. Ginigipit ninyo_ ang aking mga kababayan, na parang binabalatan ninyo sila at inaalisan ng laman ang kanilang mga buto, pagkatapos ay tinatadtad ang mga buto at hinihiwa ang mga laman at saka niluluto at kinakain. 
+Sinabi ni Micas: Makinig kayo, mga pinuno ng Israel at Juda! Hindi baʼt kayo ang dapat magpatupad ng katarungan? ###### 2-3 Pero ayaw ninyo ang mabuti at gusto ninyo ang masama. Ginigipit ninyo ang aking mga kababayan, na parang binabalatan ninyo sila at inaalisan ng laman ang kanilang mga buto, pagkatapos ay tinatadtad ang mga buto at hinihiwa ang mga laman at saka niluluto at kinakain. 
 
 
 
@@ -139,7 +139,7 @@ Ito naman ang sinasabi ng Panginoon tungkol sa mga propetang nanlinlang sa kanya
 
 
 
-"Dahil iniligaw ninyo ang aking mga mamamayan, hindi na kayo magkakaroon ng mga pangitain at hindi na kayo makapanghuhula. Para kayong nasa dilim na wala kayong makikita_. 
+"Dahil iniligaw ninyo ang aking mga mamamayan, hindi na kayo magkakaroon ng mga pangitain at hindi na kayo makapanghuhula. Para kayong nasa dilim na wala kayong makikita. 
 
 
 
@@ -172,7 +172,7 @@ Ito naman ang sinasabi ng Panginoon tungkol sa mga propetang nanlinlang sa kanya
 
 
 
-Mapapahiya kayong mga propeta at manghuhula. Magtatakip kayo ng mukha sa sobrang hiya_, dahil wala na kayong natatanggap na mensahe mula sa Dios." 
+Mapapahiya kayong mga propeta at manghuhula. Magtatakip kayo ng mukha sa sobrang hiya, dahil wala na kayong natatanggap na mensahe mula sa Dios." 
 
 
 
@@ -337,4 +337,4 @@ Humahatol kayo panig sa mga nagbibigay ng suhol sa inyo. At kayong mga pari ay n
 
 
 
-Kaya dahil sa inyo, gigibain ang Zion, ang lungsod ng_ Jerusalem. Magiging katulad ito ng inararong bukid, at magiging bunton ng mga gumuhong gusali. At magiging gubat ang bundok na kinatatayuan ng templo.
+Kaya dahil sa inyo, gigibain ang Zion, ang lungsod ng Jerusalem. Magiging katulad ito ng inararong bukid, at magiging bunton ng mga gumuhong gusali. At magiging gubat ang bundok na kinatatayuan ng templo.

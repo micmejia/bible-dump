@@ -33,16 +33,16 @@ Therefore do not be partakers with them.
 ## Walk in Light 
 
 ###### 8 
-For you were once darkness, but now _you are_ light in the Lord. Walk as children of light 
+For you were once darkness, but now you are light in the Lord. Walk as children of light 
 
 ###### 9 
-(for the fruit of the Spirit _is_ in all goodness, righteousness, and truth), 
+(for the fruit of the Spirit is in all goodness, righteousness, and truth), 
 
 ###### 10 
 finding out what is acceptable to the Lord. 
 
 ###### 11 
-And have no fellowship with the unfruitful works of darkness, but rather expose _them._ 
+And have no fellowship with the unfruitful works of darkness, but rather expose them. 
 
 ###### 12 
 For it is shameful even to speak of those things which are done by them in secret. 
@@ -60,7 +60,7 @@ See then that you walk circumspectly, not as fools but as wise,
 redeeming the time, because the days are evil. 
 
 ###### 17 
-Therefore do not be unwise, but understand what the will of the Lord _is._ 
+Therefore do not be unwise, but understand what the will of the Lord is. 
 
 ###### 18 
 And do not be drunk with wine, in which is dissipation; but be filled with the Spirit, 
@@ -83,7 +83,7 @@ Wives, submit to your own husbands, as to the Lord.
 For the husband is head of the wife, as also Christ is head of the church; and He is the Savior of the body. 
 
 ###### 24 
-Therefore, just as the church is subject to Christ, so _let_ the wives _be_ to their own husbands in everything. 
+Therefore, just as the church is subject to Christ, so let the wives be to their own husbands in everything. 
 
 ###### 25 
 Husbands, love your wives, just as Christ also loved the church and gave Himself for her, 
@@ -98,7 +98,7 @@ that He might present her to Himself a glorious church, not having spot or wrink
 So husbands ought to love their own wives as their own bodies; he who loves his wife loves himself. 
 
 ###### 29 
-For no one ever hated his own flesh, but nourishes and cherishes it, just as the Lord _does_ the church. 
+For no one ever hated his own flesh, but nourishes and cherishes it, just as the Lord does the church. 
 
 ###### 30 
 For we are members of His body, of His flesh and of His bones. 
@@ -110,4 +110,4 @@ For we are members of His body, of His flesh and of His bones.
 This is a great mystery, but I speak concerning Christ and the church. 
 
 ###### 33 
-Nevertheless let each one of you in particular so love his own wife as himself, and let the wife _see_ that she respects _her_ husband.
+Nevertheless let each one of you in particular so love his own wife as himself, and let the wife see that she respects her husband.

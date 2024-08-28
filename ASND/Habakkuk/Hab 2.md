@@ -40,7 +40,7 @@ next: ['Hab 3']
 
 
 
-Sinabi ni Habakuk,_ "Aakyat ako sa tore, sa aking bantayan at hihintayin ko kung ano ang sasabihin sa akin ng Panginoon at kung ano ang kanyang sagot sa aking hinaing." ## Ang Sagot ng Dios kay Habakuk 
+Sinabi ni Habakuk, "Aakyat ako sa tore, sa aking bantayan at hihintayin ko kung ano ang sasabihin sa akin ng Panginoon at kung ano ang kanyang sagot sa aking hinaing." ## Ang Sagot ng Dios kay Habakuk 
 
 
 
@@ -106,7 +106,7 @@ Ito ang sagot ng Panginoon kay Habakuk: "Isulat nang malinaw sa sulatang bato an
 
 
 
-Isulat mo muna ito_ dahil hindi pa dumarating ang takdang panahon para mangyari ito. Ngunit hindi magtatagal at tiyak na mangyayari ito. Kahit magtagal nang kaunti, hintayin mo lang, dahil tiyak na mangyayari ito sa takdang panahon." 
+Isulat mo muna ito dahil hindi pa dumarating ang takdang panahon para mangyari ito. Ngunit hindi magtatagal at tiyak na mangyayari ito. Kahit magtagal nang kaunti, hintayin mo lang, dahil tiyak na mangyayari ito sa takdang panahon." 
 
 
 
@@ -139,7 +139,7 @@ Isulat mo muna ito_ dahil hindi pa dumarating ang takdang panahon para mangyari 
 
 
 
-Ito ang isulat mo:_ "Tingnan mo ang mga taong mapagmataas. Hindi matuwid ang kanilang pamumuhay. Pero ang taong matuwid ay mabubuhay dahil sa kanyang pananampalataya. 
+Ito ang isulat mo: "Tingnan mo ang mga taong mapagmataas. Hindi matuwid ang kanilang pamumuhay. Pero ang taong matuwid ay mabubuhay dahil sa kanyang pananampalataya. 
 
 
 
@@ -370,7 +370,7 @@ Dahil sa pagpatay ninyo ng maraming tao, kayo rin ay papatayin at wawasakin ang 
 
 
 
-Ang mga bato ng pader at ang mga biga ng bahay ay parang tao na_ hihingi ng tulong dahil mawawasak na ang buong bahay_. 
+Ang mga bato ng pader at ang mga biga ng bahay ay parang tao na hihingi ng tulong dahil mawawasak na ang buong bahay. 
 
 
 
@@ -436,7 +436,7 @@ Ang mga bato ng pader at ang mga biga ng bahay ay parang tao na_ hihingi ng tulo
 
 
 
-Pero ang mga ipinatayo ninyo sa mga tao na binihag ninyo_ ay susunugin lang, kaya mawawalan ng kabuluhan ang inyong pinagpaguran. Itinakda na iyan ng Panginoong Makapangyarihan. 
+Pero ang mga ipinatayo ninyo sa mga tao na binihag ninyo ay susunugin lang, kaya mawawalan ng kabuluhan ang inyong pinagpaguran. Itinakda na iyan ng Panginoong Makapangyarihan. 
 
 
 
@@ -469,7 +469,7 @@ Pero ang mga ipinatayo ninyo sa mga tao na binihag ninyo_ ay susunugin lang, kay
 
 
 
-Sapagkat kung paanong ang karagatan ay puno ng tubig, ang lahat ng tao sa_ mundo ay mapupuno rin ng kaalaman tungkol sa kadakilaan ng Panginoon. 
+Sapagkat kung paanong ang karagatan ay puno ng tubig, ang lahat ng tao sa mundo ay mapupuno rin ng kaalaman tungkol sa kadakilaan ng Panginoon. 
 
 
 

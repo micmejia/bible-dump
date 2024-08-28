@@ -10,7 +10,7 @@ next: ['Acts 16']
 
 
 ###### 1 
-And certain _men_ came down from Judea and taught the brethren, "Unless you are circumcised according to the custom of Moses, you cannot be saved." 
+And certain men came down from Judea and taught the brethren, "Unless you are circumcised according to the custom of Moses, you cannot be saved." 
 
 ###### 2 
 Therefore, when Paul and Barnabas had no small dissension and dispute with them, they determined that Paul and Barnabas and certain others of them should go up to Jerusalem, to the apostles and elders, about this question. 
@@ -22,16 +22,16 @@ So, being sent on their way by the church, they passed through Phoenicia and Sam
 And when they had come to Jerusalem, they were received by the church and the apostles and the elders; and they reported all things that God had done with them. 
 
 ###### 5 
-But some of the sect of the Pharisees who believed rose up, saying, "It is necessary to circumcise them, and to command _them_ to keep the law of Moses." ## The Jerusalem Council 
+But some of the sect of the Pharisees who believed rose up, saying, "It is necessary to circumcise them, and to command them to keep the law of Moses." ## The Jerusalem Council 
 
 ###### 6 
 Now the apostles and elders came together to consider this matter. 
 
 ###### 7 
-And when there had been much dispute, Peter rose up _and_ said to them: "Men _and_ brethren, you know that a good while ago God chose among us, that by my mouth the Gentiles should hear the word of the gospel and believe. 
+And when there had been much dispute, Peter rose up and said to them: "Men and brethren, you know that a good while ago God chose among us, that by my mouth the Gentiles should hear the word of the gospel and believe. 
 
 ###### 8 
-So God, who knows the heart, acknowledged them by giving them the Holy Spirit, just as _He did_ to us, 
+So God, who knows the heart, acknowledged them by giving them the Holy Spirit, just as He did to us, 
 
 ###### 9 
 and made no distinction between us and them, purifying their hearts by faith. 
@@ -46,7 +46,7 @@ But we believe that through the grace of the Lord Jesus Christ we shall be saved
 Then all the multitude kept silent and listened to Barnabas and Paul declaring how many miracles and wonders God had worked through them among the Gentiles. 
 
 ###### 13 
-And after they had become silent, James answered, saying, "Men _and_ brethren, listen to me: 
+And after they had become silent, James answered, saying, "Men and brethren, listen to me: 
 
 ###### 14 
 Simon has declared how God at the first visited the Gentiles to take out of them a people for His name. 
@@ -67,19 +67,19 @@ So that the rest of mankind may seek the Lord, Even all the Gentiles who are cal
 Therefore I judge that we should not trouble those from among the Gentiles who are turning to God, 
 
 ###### 20 
-but that we write to them to abstain from things polluted by idols, _from_ sexual immorality, _from_ things strangled, and _from_ blood. 
+but that we write to them to abstain from things polluted by idols, from sexual immorality, from things strangled, and from blood. 
 
 ###### 21 
 For Moses has had throughout many generations those who preach him in every city, being read in the synagogues every Sabbath." ## The Jerusalem Decree 
 
 ###### 22 
-Then it pleased the apostles and elders, with the whole church, to send chosen men of their own company to Antioch with Paul and Barnabas, _namely,_ Judas who was also named Barsabas, and Silas, leading men among the brethren. 
+Then it pleased the apostles and elders, with the whole church, to send chosen men of their own company to Antioch with Paul and Barnabas, namely, Judas who was also named Barsabas, and Silas, leading men among the brethren. 
 
 ###### 23 
-They wrote this _letter_ by them: The apostles, the elders, and the brethren, To the brethren who are of the Gentiles in Antioch, Syria, and Cilicia: Greetings. 
+They wrote this letter by them: The apostles, the elders, and the brethren, To the brethren who are of the Gentiles in Antioch, Syria, and Cilicia: Greetings. 
 
 ###### 24 
-Since we have heard that some who went out from us have troubled you with words, unsettling your souls, saying, "_You must_ be circumcised and keep the law"--to whom we gave no _such_ commandment-- 
+Since we have heard that some who went out from us have troubled you with words, unsettling your souls, saying, "You must be circumcised and keep the law"--to whom we gave no such commandment-- 
 
 ###### 25 
 it seemed good to us, being assembled with one accord, to send chosen men to you with our beloved Barnabas and Paul, 
@@ -108,7 +108,7 @@ When they had read it, they rejoiced over its encouragement.
 Now Judas and Silas, themselves being prophets also, exhorted and strengthened the brethren with many words. 
 
 ###### 33 
-And after they had stayed _there_ for a time, they were sent back with greetings from the brethren to the apostles. 
+And after they had stayed there for a time, they were sent back with greetings from the brethren to the apostles. 
 
 ###### 34 
 However, it seemed good to Silas to remain there. 
@@ -119,7 +119,7 @@ Paul and Barnabas also remained in Antioch, teaching and preaching the word of t
 ## Division over John Mark 
 
 ###### 36 
-Then after some days Paul said to Barnabas, "Let us now go back and visit our brethren in every city where we have preached the word of the Lord, _and see_ how they are doing." 
+Then after some days Paul said to Barnabas, "Let us now go back and visit our brethren in every city where we have preached the word of the Lord, and see how they are doing." 
 
 ###### 37 
 Now Barnabas was determined to take with them John called Mark. 

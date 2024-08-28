@@ -16,22 +16,22 @@ When Jesus had spoken these words, He went out with His disciples over the Brook
 And Judas, who betrayed Him, also knew the place; for Jesus often met there with His disciples. 
 
 ###### 3 
-Then Judas, having received a detachment _of troops,_ and officers from the chief priests and Pharisees, came there with lanterns, torches, and weapons. 
+Then Judas, having received a detachment of troops, and officers from the chief priests and Pharisees, came there with lanterns, torches, and weapons. 
 
 ###### 4 
 Jesus therefore, knowing all things that would come upon Him, went forward and said to them, "Whom are you seeking?" 
 
 ###### 5 
-They answered Him, "Jesus of Nazareth." Jesus said to them, "I am _He._" And Judas, who betrayed Him, also stood with them. 
+They answered Him, "Jesus of Nazareth." Jesus said to them, "I am He." And Judas, who betrayed Him, also stood with them. 
 
 ###### 6 
-Now when He said to them, "I am _He,_" they drew back and fell to the ground. 
+Now when He said to them, "I am He," they drew back and fell to the ground. 
 
 ###### 7 
 Then He asked them again, "Whom are you seeking?" And they said, "Jesus of Nazareth." 
 
 ###### 8 
-Jesus answered, "I have told you that I am _He._ Therefore, if you seek Me, let these go their way," 
+Jesus answered, "I have told you that I am He. Therefore, if you seek Me, let these go their way," 
 
 ###### 9 
 that the saying might be fulfilled which He spoke, "Of those whom You gave Me I have lost none." 
@@ -43,7 +43,7 @@ Then Simon Peter, having a sword, drew it and struck the high priest's servant, 
 So Jesus said to Peter, "Put your sword into the sheath. Shall I not drink the cup which My Father has given Me?" ## Before the High Priest 
 
 ###### 12 
-Then the detachment _of troops_ and the captain and the officers of the Jews arrested Jesus and bound Him. 
+Then the detachment of troops and the captain and the officers of the Jews arrested Jesus and bound Him. 
 
 ###### 13 
 And they led Him away to Annas first, for he was the father-in-law of Caiaphas who was high priest that year. 
@@ -54,13 +54,13 @@ Now it was Caiaphas who advised the Jews that it was expedient that one man shou
 ## Peter Denies Jesus 
 
 ###### 15 
-And Simon Peter followed Jesus, and so _did_ another disciple. Now that disciple was known to the high priest, and went with Jesus into the courtyard of the high priest. 
+And Simon Peter followed Jesus, and so did another disciple. Now that disciple was known to the high priest, and went with Jesus into the courtyard of the high priest. 
 
 ###### 16 
 But Peter stood at the door outside. Then the other disciple, who was known to the high priest, went out and spoke to her who kept the door, and brought Peter in. 
 
 ###### 17 
-Then the servant girl who kept the door said to Peter, "You are not also _one_ of this Man's disciples, are you?" He said, "I am not." 
+Then the servant girl who kept the door said to Peter, "You are not also one of this Man's disciples, are you?" He said, "I am not." 
 
 ###### 18 
 Now the servants and officers who had made a fire of coals stood there, for it was cold, and they warmed themselves. And Peter stood with them and warmed himself.
@@ -88,10 +88,10 @@ Then Annas sent Him bound to Caiaphas the high priest.
 ## Peter Denies Twice More 
 
 ###### 25 
-Now Simon Peter stood and warmed himself. Therefore they said to him, "You are not also _one_ of His disciples, are you?" He denied _it_ and said, "I am not!" 
+Now Simon Peter stood and warmed himself. Therefore they said to him, "You are not also one of His disciples, are you?" He denied it and said, "I am not!" 
 
 ###### 26 
-One of the servants of the high priest, a relative _of him_ whose ear Peter cut off, said, "Did I not see you in the garden with Him?" 
+One of the servants of the high priest, a relative of him whose ear Peter cut off, said, "Did I not see you in the garden with Him?" 
 
 ###### 27 
 Peter then denied again; and immediately a rooster crowed.
@@ -126,7 +126,7 @@ Pilate answered, "Am I a Jew? Your own nation and the chief priests have deliver
 Jesus answered, "My kingdom is not of this world. If My kingdom were of this world, My servants would fight, so that I should not be delivered to the Jews; but now My kingdom is not from here." 
 
 ###### 37 
-Pilate therefore said to Him, "Are You a king then?" Jesus answered, "You say _rightly_ that I am a king. For this cause I was born, and for this cause I have come into the world, that I should bear witness to the truth. Everyone who is of the truth hears My voice." 
+Pilate therefore said to Him, "Are You a king then?" Jesus answered, "You say rightly that I am a king. For this cause I was born, and for this cause I have come into the world, that I should bear witness to the truth. Everyone who is of the truth hears My voice." 
 
 ###### 38 
 Pilate said to Him, "What is truth?" And when he had said this, he went out again to the Jews, and said to them, "I find no fault in Him at all.

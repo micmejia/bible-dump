@@ -40,7 +40,7 @@ next: ['Lev 5']
 
 
 
-Kung ang punong pari ang nagkasala ng hindi sinasadya_ at dahil dito ay nadamay ang mga tao, maghahandog siya sa Panginoon ng isang batang toro na walang kapintasan bilang handog sa paglilinis. 
+Kung ang punong pari ang nagkasala ng hindi sinasadya at dahil dito ay nadamay ang mga tao, maghahandog siya sa Panginoon ng isang batang toro na walang kapintasan bilang handog sa paglilinis. 
 
 
 
@@ -172,7 +172,7 @@ Ilulubog niya ang kanyang daliri sa dugo at iwiwisik ng pitong beses sa harap ng
 
 
 
-Pagkatapos, papahiran niya ng dugo ang parang_ sungay sa mga sulok ng altar na pagsusunugan ng insenso sa loob ng Tolda sa presensya ng Panginoon. At ang natitirang dugo ng toro ay ibubuhos niya sa ilalim ng altar na pagsusunugan ng handog na sinusunog. Ang altar na itoʼy malapit sa pintuan ng Tolda. 
+Pagkatapos, papahiran niya ng dugo ang parang sungay sa mga sulok ng altar na pagsusunugan ng insenso sa loob ng Tolda sa presensya ng Panginoon. At ang natitirang dugo ng toro ay ibubuhos niya sa ilalim ng altar na pagsusunugan ng handog na sinusunog. Ang altar na itoʼy malapit sa pintuan ng Tolda. 
 
 
 
@@ -436,7 +436,7 @@ Kukuha ng dugo ng toro ang punong pari at dadalhin niya sa loob ng Tolda.
 
 
 
-At ilulubog niya ang kanyang daliri sa dugo at iwiwisik ng pitong beses sa tabing na tumatabing sa Pinakabanal na Lugar,_ sa presensya ng Panginoon. 
+At ilulubog niya ang kanyang daliri sa dugo at iwiwisik ng pitong beses sa tabing na tumatabing sa Pinakabanal na Lugar, sa presensya ng Panginoon. 
 
 
 
@@ -469,7 +469,7 @@ At ilulubog niya ang kanyang daliri sa dugo at iwiwisik ng pitong beses sa tabin
 
 
 
-Pagkatapos, papahiran niya ng dugo ang parang_ sungay sa mga sulok ng altar na nasa loob ng Tolda sa presensya ng Panginoon. At ang natitirang dugo ay ibubuhos niya sa ilalim ng altar na pinagsusunugan ng handog na sinusunog. Ang altar na itoʼy malapit sa pintuan ng Tolda. 19-21At ang gagawin niya sa toro na itoʼy katulad din ng ginawa niya sa torong handog sa paglilinis. Kukunin niya ang lahat ng taba ng toro at susunugin sa altar, at susunugin ang toro sa labas ng kampo. Sa pamamagitan ng gagawing ito ng punong_ pari, ang mga taga-Israel ay matutubos sa kanilang mga kasalanan at patatawarin ng Panginoon_ ang mga kasalanan nila. Ito ang handog sa paglilinis para sa buong sambayanan ng Israel_. 
+Pagkatapos, papahiran niya ng dugo ang parang sungay sa mga sulok ng altar na nasa loob ng Tolda sa presensya ng Panginoon. At ang natitirang dugo ay ibubuhos niya sa ilalim ng altar na pinagsusunugan ng handog na sinusunog. Ang altar na itoʼy malapit sa pintuan ng Tolda. 19-21At ang gagawin niya sa toro na itoʼy katulad din ng ginawa niya sa torong handog sa paglilinis. Kukunin niya ang lahat ng taba ng toro at susunugin sa altar, at susunugin ang toro sa labas ng kampo. Sa pamamagitan ng gagawing ito ng punong pari, ang mga taga-Israel ay matutubos sa kanilang mga kasalanan at patatawarin ng Panginoon ang mga kasalanan nila. Ito ang handog sa paglilinis para sa buong sambayanan ng Israel. 
 
 
 
@@ -601,7 +601,7 @@ Ito ay handog para sa paglilinis ng kanyang kasalanan. Ipapatong niya ang kanyan
 
 
 
-Ilulubog ng pari ang kanyang daliri sa dugo ng kambing at ipapahid sa parang_ sungay sa mga sulok ng altar na pinagsusunugan ng mga handog na sinusunog. At ang natitirang dugo ay ibubuhos niya sa ilalim ng altar. 
+Ilulubog ng pari ang kanyang daliri sa dugo ng kambing at ipapahid sa parang sungay sa mga sulok ng altar na pinagsusunugan ng mga handog na sinusunog. At ang natitirang dugo ay ibubuhos niya sa ilalim ng altar. 
 
 
 
@@ -634,7 +634,7 @@ Ilulubog ng pari ang kanyang daliri sa dugo ng kambing at ipapahid sa parang_ su
 
 
 
-Susunugin niya ang lahat ng taba sa altar katulad ng kanyang ginawa sa mga taba ng hayop na handog para sa mabuting relasyon. Sa pamamagitan ng gagawing ito ng pari, matutubos ang tao sa kanyang mga kasalanan at patatawarin siya ng Panginoon_. 
+Susunugin niya ang lahat ng taba sa altar katulad ng kanyang ginawa sa mga taba ng hayop na handog para sa mabuting relasyon. Sa pamamagitan ng gagawing ito ng pari, matutubos ang tao sa kanyang mga kasalanan at patatawarin siya ng Panginoon. 
 
 
 
@@ -667,7 +667,7 @@ Susunugin niya ang lahat ng taba sa altar katulad ng kanyang ginawa sa mga taba 
 
 
 
-Kung ang isang pangkaraniwang tao ay makalabag sa alin mang_ utos ng Panginoon nang hindi sinasadya, nagkasala pa rin siya. 
+Kung ang isang pangkaraniwang tao ay makalabag sa alin mang utos ng Panginoon nang hindi sinasadya, nagkasala pa rin siya. 
 
 
 
@@ -766,7 +766,7 @@ Ipapatong niya ang kanyang kamay sa ulo ng kambing na handog sa paglilinis, at p
 
 
 
-Ilulubog ng pari ang kanyang daliri sa dugo ng kambing at ipapahid sa parang_ sungay sa mga sulok ng altar na pinagsusunugan ng mga handog na sinusunog. At ang natitirang dugo ay ibubuhos niya sa ilalim ng altar. 
+Ilulubog ng pari ang kanyang daliri sa dugo ng kambing at ipapahid sa parang sungay sa mga sulok ng altar na pinagsusunugan ng mga handog na sinusunog. At ang natitirang dugo ay ibubuhos niya sa ilalim ng altar. 
 
 
 
@@ -799,7 +799,7 @@ Ilulubog ng pari ang kanyang daliri sa dugo ng kambing at ipapahid sa parang_ su
 
 
 
-Pagkatapos, kukunin niya ang lahat ng taba ng kambing katulad ng ginawa niya sa hayop na handog para sa mabuting relasyon. At susunugin niya sa altar ang taba at magiging mabangong samyo na handog at makalulugod sa Panginoon. Sa pamamagitan ng gagawing ito ng pari, ang taoʼy matutubos at patatawarin siya ng Panginoon_. 
+Pagkatapos, kukunin niya ang lahat ng taba ng kambing katulad ng ginawa niya sa hayop na handog para sa mabuting relasyon. At susunugin niya sa altar ang taba at magiging mabangong samyo na handog at makalulugod sa Panginoon. Sa pamamagitan ng gagawing ito ng pari, ang taoʼy matutubos at patatawarin siya ng Panginoon. 
 
 
 
@@ -865,7 +865,7 @@ Kung tupa naman ang ihahandog ng tao para maging malinis siya sa kanyang kasalan
 
 
 
-Ipapatong niya ang kanyang kamay sa ulo ng tupa at papatayin sa Tolda_ sa patayan ng mga hayop na handog na sinusunog. 
+Ipapatong niya ang kanyang kamay sa ulo ng tupa at papatayin sa Tolda sa patayan ng mga hayop na handog na sinusunog. 
 
 
 
@@ -898,7 +898,7 @@ Ipapatong niya ang kanyang kamay sa ulo ng tupa at papatayin sa Tolda_ sa pataya
 
 
 
-Ilulubog ng pari ang kanyang daliri sa dugo ng tupa at ipapahid sa parang_ sungay sa mga sulok ng altar na pinagsusunugan ng handog na sinusunog. Ang natitirang dugo ay ibubuhos niya sa ilalim ng altar. 
+Ilulubog ng pari ang kanyang daliri sa dugo ng tupa at ipapahid sa parang sungay sa mga sulok ng altar na pinagsusunugan ng handog na sinusunog. Ang natitirang dugo ay ibubuhos niya sa ilalim ng altar. 
 
 
 
@@ -931,4 +931,4 @@ Ilulubog ng pari ang kanyang daliri sa dugo ng tupa at ipapahid sa parang_ sunga
 
 
 
-Pagkatapos, kukunin niya ang lahat ng taba ng tupa katulad ng ginawa niya sa tupang handog para sa mabuting relasyon. At susunugin niya ang taba sa altar pati na ang iba pang mga handog sa pamamagitan ng apoy para sa Panginoon. Sa pamamagitan ng gagawing ito ng pari, matutubos ang tao sa kanyang mga kasalanan at patatawarin siya ng Panginoon_.
+Pagkatapos, kukunin niya ang lahat ng taba ng tupa katulad ng ginawa niya sa tupang handog para sa mabuting relasyon. At susunugin niya ang taba sa altar pati na ang iba pang mga handog sa pamamagitan ng apoy para sa Panginoon. Sa pamamagitan ng gagawing ito ng pari, matutubos ang tao sa kanyang mga kasalanan at patatawarin siya ng Panginoon.

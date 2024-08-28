@@ -10,10 +10,10 @@ next: ['Jer 20']
 
 
 ###### 1 
-Thus says the Lord: "Go and get a potter's earthen flask, and _take_ some of the elders of the people and some of the elders of the priests. 
+Thus says the Lord: "Go and get a potter's earthen flask, and take some of the elders of the people and some of the elders of the priests. 
 
 ###### 2 
-And go out to the Valley of the Son of Hinnom, which _is_ by the entry of the Potsherd Gate; and proclaim there the words that I will tell you, 
+And go out to the Valley of the Son of Hinnom, which is by the entry of the Potsherd Gate; and proclaim there the words that I will tell you, 
 
 ###### 3 
 and say, 'Hear the word of the Lord, O kings of Judah and inhabitants of Jerusalem. Thus says the Lord of hosts, the God of Israel: "Behold, I will bring such a catastrophe on this place, that whoever hears of it, his ears will tingle. 
@@ -22,7 +22,7 @@ and say, 'Hear the word of the Lord, O kings of Judah and inhabitants of Jerusal
 "Because they have forsaken Me and made this an alien place, because they have burned incense in it to other gods whom neither they, their fathers, nor the kings of Judah have known, and have filled this place with the blood of the innocents 
 
 ###### 5 
-(they have also built the high places of Baal, to burn their sons with fire _for_ burnt offerings to Baal, which I did not command or speak, nor did it come into My mind), 
+(they have also built the high places of Baal, to burn their sons with fire for burnt offerings to Baal, which I did not command or speak, nor did it come into My mind), 
 
 ###### 6 
 therefore behold, the days are coming," says the Lord, "that this place shall no more be called Tophet or the Valley of the Son of Hinnom, but the Valley of Slaughter. 
@@ -40,7 +40,7 @@ And I will cause them to eat the flesh of their sons and the flesh of their daug
 "Then you shall break the flask in the sight of the men who go with you, 
 
 ###### 11 
-and say to them, 'Thus says the Lord of hosts: "Even so I will break this people and this city, as _one_ breaks a potter's vessel, which cannot be made whole again; and they shall bury _them_ in Tophet till _there is_ no place to bury. 
+and say to them, 'Thus says the Lord of hosts: "Even so I will break this people and this city, as one breaks a potter's vessel, which cannot be made whole again; and they shall bury them in Tophet till there is no place to bury. 
 
 ###### 12 
 Thus I will do to this place," says the Lord, "and to its inhabitants, and make this city like Tophet. 

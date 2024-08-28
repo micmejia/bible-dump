@@ -10,7 +10,7 @@ next: ['Gal 5']
 
 
 ###### 1 
-Now I say _that_ the heir, as long as he is a child, does not differ at all from a slave, though he is master of all, 
+Now I say that the heir, as long as he is a child, does not differ at all from a slave, though he is master of all, 
 
 ###### 2 
 but is under guardians and stewards until the time appointed by the father. 
@@ -36,7 +36,7 @@ Therefore you are no longer a slave but a son, and if a son, then an heir of God
 But then, indeed, when you did not know God, you served those which by nature are not gods. 
 
 ###### 9 
-But now after you have known God, or rather are known by God, how _is it that_ you turn again to the weak and beggarly elements, to which you desire again to be in bondage? 
+But now after you have known God, or rather are known by God, how is it that you turn again to the weak and beggarly elements, to which you desire again to be in bondage? 
 
 ###### 10 
 You observe days and months and seasons and years. 
@@ -45,22 +45,22 @@ You observe days and months and seasons and years.
 I am afraid for you, lest I have labored for you in vain. 
 
 ###### 12 
-Brethren, I urge you to become like me, for I _became_ like you. You have not injured me at all. 
+Brethren, I urge you to become like me, for I became like you. You have not injured me at all. 
 
 ###### 13 
 You know that because of physical infirmity I preached the gospel to you at the first. 
 
 ###### 14 
-And my trial which was in my flesh you did not despise or reject, but you received me as an angel of God, _even_ as Christ Jesus. 
+And my trial which was in my flesh you did not despise or reject, but you received me as an angel of God, even as Christ Jesus. 
 
 ###### 15 
-What then was the blessing you _enjoyed?_ For I bear you witness that, if possible, you would have plucked out your own eyes and given them to me. 
+What then was the blessing you enjoyed? For I bear you witness that, if possible, you would have plucked out your own eyes and given them to me. 
 
 ###### 16 
 Have I therefore become your enemy because I tell you the truth? 
 
 ###### 17 
-They zealously court you, _but_ for no good; yes, they want to exclude you, that you may be zealous for them. 
+They zealously court you, but for no good; yes, they want to exclude you, that you may be zealous for them. 
 
 ###### 18 
 But it is good to be zealous in a good thing always, and not only when I am present with you. 
@@ -80,7 +80,7 @@ Tell me, you who desire to be under the law, do you not hear the law?
 For it is written that Abraham had two sons: the one by a bondwoman, the other by a freewoman. 
 
 ###### 23 
-But he _who was_ of the bondwoman was born according to the flesh, and he of the freewoman through promise, 
+But he who was of the bondwoman was born according to the flesh, and he of the freewoman through promise, 
 
 ###### 24 
 which things are symbolic. For these are the two covenants: the one from Mount Sinai which gives birth to bondage, which is Hagar-- 
@@ -92,13 +92,13 @@ for this Hagar is Mount Sinai in Arabia, and corresponds to Jerusalem which now 
 but the Jerusalem above is free, which is the mother of us all. 
 
 ###### 27 
-For it is written: "Rejoice, O barren, _You_ who do not bear! Break forth and shout, You who are not in labor! For the desolate has many more children Than she who has a husband." 
+For it is written: "Rejoice, O barren, You who do not bear! Break forth and shout, You who are not in labor! For the desolate has many more children Than she who has a husband." 
 
 ###### 28 
-Now we, brethren, as Isaac _was,_ are children of promise. 
+Now we, brethren, as Isaac was, are children of promise. 
 
 ###### 29 
-But, as he who was born according to the flesh then persecuted him _who was born_ according to the Spirit, even so _it is_ now. 
+But, as he who was born according to the flesh then persecuted him who was born according to the Spirit, even so it is now. 
 
 ###### 30 
 Nevertheless what does the Scripture say? "Cast out the bondwoman and her son, for the son of the bondwoman shall not be heir with the son of the freewoman." 

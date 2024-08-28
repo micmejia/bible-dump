@@ -73,7 +73,7 @@ Nang dinala na si Jose ng mga Ishmaelita sa Egipto, binili siya ni Potifar na is
 
 
 
-Ginagabayan ng Panginoon si Jose, kaya naging matagumpay siya. Doon siya nakatira sa bahay ng amo niyang Egipcio na si Potifar_. 
+Ginagabayan ng Panginoon si Jose, kaya naging matagumpay siya. Doon siya nakatira sa bahay ng amo niyang Egipcio na si Potifar. 
 
 
 
@@ -172,7 +172,7 @@ kayaʼt panatag ang kalooban niya kay Jose. Ginawa niya ito na sarili niyang ali
 
 
 
-Mula nang panahong si Jose ang namamahala, binasbasan ng Panginoon ang sambahayan ni Potifar na_ Egipcio at ang lahat ng ari-arian niya sa kanyang bahay at bukirin. Ginawa ito ng Panginoon dahil kay Jose. 
+Mula nang panahong si Jose ang namamahala, binasbasan ng Panginoon ang sambahayan ni Potifar na Egipcio at ang lahat ng ari-arian niya sa kanyang bahay at bukirin. Ginawa ito ng Panginoon dahil kay Jose. 
 
 
 
@@ -568,7 +568,7 @@ Itinago ng babae ang balabal ni Jose hanggang sa dumating ang kanyang asawa.
 
 
 
-Isinalaysay niya agad sa asawa niya ang nangyari. Sinabi niya, "Ang Hebreong alipin na dinala mo rito ay gusto akong hamakin dahil pumasok siya sa silid ko para pagsamantalahan ako_. 
+Isinalaysay niya agad sa asawa niya ang nangyari. Sinabi niya, "Ang Hebreong alipin na dinala mo rito ay gusto akong hamakin dahil pumasok siya sa silid ko para pagsamantalahan ako. 
 
 
 

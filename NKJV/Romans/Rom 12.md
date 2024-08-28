@@ -10,27 +10,27 @@ next: ['Rom 13']
 
 
 ###### 1 
-I beseech you therefore, brethren, by the mercies of God, that you present your bodies a living sacrifice, holy, acceptable to God, _which is_ your reasonable service. 
+I beseech you therefore, brethren, by the mercies of God, that you present your bodies a living sacrifice, holy, acceptable to God, which is your reasonable service. 
 
 ###### 2 
-And do not be conformed to this world, but be transformed by the renewing of your mind, that you may prove what _is_ that good and acceptable and perfect will of God.
+And do not be conformed to this world, but be transformed by the renewing of your mind, that you may prove what is that good and acceptable and perfect will of God.
 
 ## Serve God with Spiritual Gifts 
 
 ###### 3 
-For I say, through the grace given to me, to everyone who is among you, not to think _of himself_ more highly than he ought to think, but to think soberly, as God has dealt to each one a measure of faith. 
+For I say, through the grace given to me, to everyone who is among you, not to think of himself more highly than he ought to think, but to think soberly, as God has dealt to each one a measure of faith. 
 
 ###### 4 
 For as we have many members in one body, but all the members do not have the same function, 
 
 ###### 5 
-so we, _being_ many, are one body in Christ, and individually members of one another. 
+so we, being many, are one body in Christ, and individually members of one another. 
 
 ###### 6 
-Having then gifts differing according to the grace that is given to us, _let us use them:_ if prophecy, _let us_ _prophesy_ in proportion to our faith; 
+Having then gifts differing according to the grace that is given to us, let us use them: if prophecy, let us prophesy in proportion to our faith; 
 
 ###### 7 
-or ministry, _let us use it_ in _our_ ministering; he who teaches, in teaching; 
+or ministry, let us use it in our ministering; he who teaches, in teaching; 
 
 ###### 8 
 he who exhorts, in exhortation; he who gives, with liberality; he who leads, with diligence; he who shows mercy, with cheerfulness.
@@ -38,10 +38,10 @@ he who exhorts, in exhortation; he who gives, with liberality; he who leads, wit
 ## Behave Like a Christian 
 
 ###### 9 
-_Let_ love _be_ without hypocrisy. Abhor what is evil. Cling to what is good. 
+Let love be without hypocrisy. Abhor what is evil. Cling to what is good. 
 
 ###### 10 
-_Be_ kindly affectionate to one another with brotherly love, in honor giving preference to one another; 
+Be kindly affectionate to one another with brotherly love, in honor giving preference to one another; 
 
 ###### 11 
 not lagging in diligence, fervent in spirit, serving the Lord; 
@@ -68,7 +68,7 @@ Repay no one evil for evil. Have regard for good things in the sight of all men.
 If it is possible, as much as depends on you, live peaceably with all men. 
 
 ###### 19 
-Beloved, do not avenge yourselves, but _rather_ give place to wrath; for it is written, "Vengeance _is_ Mine, I will repay," says the Lord. 
+Beloved, do not avenge yourselves, but rather give place to wrath; for it is written, "Vengeance is Mine, I will repay," says the Lord. 
 
 ###### 20 
 Therefore "If your enemy is hungry, feed him; If he is thirsty, give him a drink; For in so doing you will heap coals of fire on his head." 

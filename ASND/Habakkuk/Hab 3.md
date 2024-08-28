@@ -272,7 +272,7 @@ Nakita kong nagiba ang mga tolda sa Cushan at sa Midian.
 
 
 
-Ang mga bundok ay parang mga tao na_ nanginig nang makita nila kayo. Umulan nang malakas; umugong ang tubig sa dagat at lumaki ang mga alon. 
+Ang mga bundok ay parang mga tao na nanginig nang makita nila kayo. Umulan nang malakas; umugong ang tubig sa dagat at lumaki ang mga alon. 
 
 
 
@@ -404,7 +404,7 @@ upang iligtas ang mga taong pinili ninyo. Pinatay nʼyo ang pinuno ng masamang k
 
 
 
-Tinuhog nʼyo ng sarili niyang sibat ang ulo ng pinuno ng kanyang mga kawal. Ginawa nʼyo ito_ nang kami ay kanilang salakayin na parang buhawi upang kami ay pangalatin. Sapagkat kagalakan nila na lipulin kaming_ mga kawawang nagtatago dahil sa takot_. 
+Tinuhog nʼyo ng sarili niyang sibat ang ulo ng pinuno ng kanyang mga kawal. Ginawa nʼyo ito nang kami ay kanilang salakayin na parang buhawi upang kami ay pangalatin. Sapagkat kagalakan nila na lipulin kaming mga kawawang nagtatago dahil sa takot. 
 
 
 
@@ -470,7 +470,7 @@ Para kayong sundalo na nakasakay sa kabayong nagtatatakbo sa karagatan hanggang 
 
 
 
-Sinabi ni Habakuk,_ "Nang marinig ko ang lahat ng ito_, nanginig ang aking buong katawan at nangatal ang aking mga labi dahil sa takot. Nanghina ako at nangatog ang aking mga tuhod. At dahil sa ipinahayag na ito ng Panginoon, matiyaga kong hihintayin ang takdang panahon ng pagpaparusa niya sa mga sumalakay sa amin. 
+Sinabi ni Habakuk, "Nang marinig ko ang lahat ng ito, nanginig ang aking buong katawan at nangatal ang aking mga labi dahil sa takot. Nanghina ako at nangatog ang aking mga tuhod. At dahil sa ipinahayag na ito ng Panginoon, matiyaga kong hihintayin ang takdang panahon ng pagpaparusa niya sa mga sumalakay sa amin. 
 
 
 

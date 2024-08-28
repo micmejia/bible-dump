@@ -25,16 +25,16 @@ And the vessel that he made of clay was marred in the hand of the potter; so he 
 Then the word of the Lord came to me, saying: 
 
 ###### 6 
-"O house of Israel, can I not do with you as this potter?" says the Lord. "Look, as the clay _is_ in the potter's hand, so _are_ you in My hand, O house of Israel! 
+"O house of Israel, can I not do with you as this potter?" says the Lord. "Look, as the clay is in the potter's hand, so are you in My hand, O house of Israel! 
 
 ###### 7 
-The instant I speak concerning a nation and concerning a kingdom, to pluck up, to pull down, and to destroy _it,_ 
+The instant I speak concerning a nation and concerning a kingdom, to pluck up, to pull down, and to destroy it, 
 
 ###### 8 
 if that nation against whom I have spoken turns from its evil, I will relent of the disaster that I thought to bring upon it. 
 
 ###### 9 
-And the instant I speak concerning a nation and concerning a kingdom, to build and to plant _it,_ 
+And the instant I speak concerning a nation and concerning a kingdom, to build and to plant it, 
 
 ###### 10 
 if it does evil in My sight so that it does not obey My voice, then I will relent concerning the good with which I said I would benefit it. 
@@ -49,13 +49,13 @@ And they said, "That is hopeless! So we will walk according to our own plans, an
 Therefore thus says the Lord: "Ask now among the Gentiles, Who has heard such things? The virgin of Israel has done a very horrible thing. 
 
 ###### 14 
-Will _a man_ leave the snow water of Lebanon, _Which comes_ from the rock of the field? Will the cold flowing waters be forsaken for strange waters? 
+Will a man leave the snow water of Lebanon, Which comes from the rock of the field? Will the cold flowing waters be forsaken for strange waters? 
 
 ###### 15 
-"Because My people have forgotten Me, They have burned incense to worthless idols. And they have caused themselves to stumble in their ways, _From_ the ancient paths, To walk in pathways and not on a highway, 
+"Because My people have forgotten Me, They have burned incense to worthless idols. And they have caused themselves to stumble in their ways, From the ancient paths, To walk in pathways and not on a highway, 
 
 ###### 16 
-To make their land desolate _and_ a perpetual hissing; Everyone who passes by it will be astonished And shake his head. 
+To make their land desolate and a perpetual hissing; Everyone who passes by it will be astonished And shake his head. 
 
 ###### 17 
 I will scatter them as with an east wind before the enemy; I will show them the back and not the face In the day of their calamity." ## Jeremiah Persecuted 
@@ -70,10 +70,10 @@ Give heed to me, O Lord, And listen to the voice of those who contend with me!
 Shall evil be repaid for good? For they have dug a pit for my life. Remember that I stood before You To speak good for them, To turn away Your wrath from them. 
 
 ###### 21 
-Therefore deliver up their children to the famine, And pour out their _blood_ By the force of the sword; Let their wives _become_ widows And bereaved of their children. Let their men be put to death, Their young men _be_ slain By the sword in battle. 
+Therefore deliver up their children to the famine, And pour out their blood By the force of the sword; Let their wives become widows And bereaved of their children. Let their men be put to death, Their young men be slain By the sword in battle. 
 
 ###### 22 
 Let a cry be heard from their houses, When You bring a troop suddenly upon them; For they have dug a pit to take me, And hidden snares for my feet. 
 
 ###### 23 
-Yet, Lord, You know all their counsel Which is against me, to slay _me._ Provide no atonement for their iniquity, Nor blot out their sin from Your sight; But let them be overthrown before You. Deal _thus_ with them In the time of Your anger.
+Yet, Lord, You know all their counsel Which is against me, to slay me. Provide no atonement for their iniquity, Nor blot out their sin from Your sight; But let them be overthrown before You. Deal thus with them In the time of Your anger.

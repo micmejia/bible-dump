@@ -10,7 +10,7 @@ next: ['Luke 13']
 
 
 ###### 1 
-In the meantime, when an innumerable multitude of people had gathered together, so that they trampled one another, He began to say to His disciples first _of all,_ "Beware of the leaven of the Pharisees, which is hypocrisy. 
+In the meantime, when an innumerable multitude of people had gathered together, so that they trampled one another, He began to say to His disciples first of all, "Beware of the leaven of the Pharisees, which is hypocrisy. 
 
 ###### 2 
 For there is nothing covered that will not be revealed, nor hidden that will not be known. 
@@ -68,19 +68,19 @@ And he thought within himself, saying, 'What shall I do, since I have no room to
 So he said, 'I will do this: I will pull down my barns and build greater, and there I will store all my crops and my goods. 
 
 ###### 19 
-And I will say to my soul, "Soul, you have many goods laid up for many years; take your ease; eat, drink, _and_ be merry." ' 
+And I will say to my soul, "Soul, you have many goods laid up for many years; take your ease; eat, drink, and be merry." ' 
 
 ###### 20 
 But God said to him, 'Fool! This night your soul will be required of you; then whose will those things be which you have provided?' 
 
 ###### 21 
-"So _is_ he who lays up treasure for himself, and is not rich toward God." ## Do Not Worry 
+"So is he who lays up treasure for himself, and is not rich toward God." ## Do Not Worry 
 
 ###### 22 
 Then He said to His disciples, "Therefore I say to you, do not worry about your life, what you will eat; nor about the body, what you will put on. 
 
 ###### 23 
-Life is more than food, and the body _is more_ than clothing. 
+Life is more than food, and the body is more than clothing. 
 
 ###### 24 
 Consider the ravens, for they neither sow nor reap, which have neither storehouse nor barn; and God feeds them. Of how much more value are you than the birds? 
@@ -89,13 +89,13 @@ Consider the ravens, for they neither sow nor reap, which have neither storehous
 And which of you by worrying can add one cubit to his stature? 
 
 ###### 26 
-If you then are not able to do _the_ least, why are you anxious for the rest? 
+If you then are not able to do the least, why are you anxious for the rest? 
 
 ###### 27 
 Consider the lilies, how they grow: they neither toil nor spin; and yet I say to you, even Solomon in all his glory was not arrayed like one of these. 
 
 ###### 28 
-If then God so clothes the grass, which today is in the field and tomorrow is thrown into the oven, how much more _will He clothe_ you, O _you_ of little faith? 
+If then God so clothes the grass, which today is in the field and tomorrow is thrown into the oven, how much more will He clothe you, O you of little faith? 
 
 ###### 29 
 "And do not seek what you should eat or what you should drink, nor have an anxious mind. 
@@ -118,16 +118,16 @@ For where your treasure is, there your heart will be also.
 ## The Faithful Servant and the Evil Servant 
 
 ###### 35 
-"Let your waist be girded and _your_ lamps burning; 
+"Let your waist be girded and your lamps burning; 
 
 ###### 36 
 and you yourselves be like men who wait for their master, when he will return from the wedding, that when he comes and knocks they may open to him immediately. 
 
 ###### 37 
-Blessed _are_ those servants whom the master, when he comes, will find watching. Assuredly, I say to you that he will gird himself and have them sit down _to eat,_ and will come and serve them. 
+Blessed are those servants whom the master, when he comes, will find watching. Assuredly, I say to you that he will gird himself and have them sit down to eat, and will come and serve them. 
 
 ###### 38 
-And if he should come in the second watch, or come in the third watch, and find _them_ so, blessed are those servants. 
+And if he should come in the second watch, or come in the third watch, and find them so, blessed are those servants. 
 
 ###### 39 
 But know this, that if the master of the house had known what hour the thief would come, he would have watched and not allowed his house to be broken into. 
@@ -136,13 +136,13 @@ But know this, that if the master of the house had known what hour the thief wou
 Therefore you also be ready, for the Son of Man is coming at an hour you do not expect." 
 
 ###### 41 
-Then Peter said to Him, "Lord, do You speak this parable _only_ to us, or to all _people?_" 
+Then Peter said to Him, "Lord, do You speak this parable only to us, or to all people?" 
 
 ###### 42 
-And the Lord said, "Who then is that faithful and wise steward, whom _his_ master will make ruler over his household, to give _them their_ portion of food in due season? 
+And the Lord said, "Who then is that faithful and wise steward, whom his master will make ruler over his household, to give them their portion of food in due season? 
 
 ###### 43 
-Blessed _is_ that servant whom his master will find so doing when he comes. 
+Blessed is that servant whom his master will find so doing when he comes. 
 
 ###### 44 
 Truly, I say to you that he will make him ruler over all that he has. 
@@ -151,10 +151,10 @@ Truly, I say to you that he will make him ruler over all that he has.
 But if that servant says in his heart, 'My master is delaying his coming,' and begins to beat the male and female servants, and to eat and drink and be drunk, 
 
 ###### 46 
-the master of that servant will come on a day when he is not looking for _him,_ and at an hour when he is not aware, and will cut him in two and appoint _him_ his portion with the unbelievers. 
+the master of that servant will come on a day when he is not looking for him, and at an hour when he is not aware, and will cut him in two and appoint him his portion with the unbelievers. 
 
 ###### 47 
-And that servant who knew his master's will, and did not prepare _himself_ or do according to his will, shall be beaten with many _stripes._ 
+And that servant who knew his master's will, and did not prepare himself or do according to his will, shall be beaten with many stripes. 
 
 ###### 48 
 But he who did not know, yet committed things deserving of stripes, shall be beaten with few. For everyone to whom much is given, from him much will be required; and to whom much has been committed, of him they will ask the more.
@@ -168,7 +168,7 @@ But he who did not know, yet committed things deserving of stripes, shall be bea
 But I have a baptism to be baptized with, and how distressed I am till it is accomplished! 
 
 ###### 51 
-Do _you_ suppose that I came to give peace on earth? I tell you, not at all, but rather division. 
+Do you suppose that I came to give peace on earth? I tell you, not at all, but rather division. 
 
 ###### 52 
 For from now on five in one house will be divided: three against two, and two against three. 
@@ -180,10 +180,10 @@ Father will be divided against son and son against father, mother against daught
 Then He also said to the multitudes, "Whenever you see a cloud rising out of the west, immediately you say, 'A shower is coming'; and so it is. 
 
 ###### 55 
-And when _you see_ the south wind blow, you say, 'There will be hot weather'; and there is. 
+And when you see the south wind blow, you say, 'There will be hot weather'; and there is. 
 
 ###### 56 
-Hypocrites! You can discern the face of the sky and of the earth, but how _is it_ you do not discern this time? ## Make Peace with Your Adversary 
+Hypocrites! You can discern the face of the sky and of the earth, but how is it you do not discern this time? ## Make Peace with Your Adversary 
 
 ###### 57 
 "Yes, and why, even of yourselves, do you not judge what is right? 

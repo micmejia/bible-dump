@@ -6,7 +6,7 @@ next: ['Luke 2']
 # Luke 1
 
 ***
-###### 1-3 Kagalang-galang na Teofilus: Marami na ang sumulat tungkol sa mga nangyari rito sa atin. Isinulat nila ang tungkol kay Jesus,_ na isinalaysay din sa amin ng mga taong nangaral ng salita ng Dios_ at nakasaksi mismo sa mga pangyayari mula pa noong una. Pagkatapos kong suriing mabuti ang lahat ng ito mula sa simula, minabuti kong sumulat din ng isang maayos na salaysay para sa iyo, 
+###### 1-3 Kagalang-galang na Teofilus: Marami na ang sumulat tungkol sa mga nangyari rito sa atin. Isinulat nila ang tungkol kay Jesus, na isinalaysay din sa amin ng mga taong nangaral ng salita ng Dios at nakasaksi mismo sa mga pangyayari mula pa noong una. Pagkatapos kong suriing mabuti ang lahat ng ito mula sa simula, minabuti kong sumulat din ng isang maayos na salaysay para sa iyo, 
 
 
 
@@ -470,7 +470,7 @@ Maraming Israelita ang panunumbalikin niya sa Panginoon na kanilang Dios.
 
 
 
-Mauuna siya sa Panginoon upang ihanda ang mga tao sa pagdating ng Panginoon. Gagawin niya ito sa tulong ng Banal na_ Espiritu at sa pamamagitan ng kapangyarihang katulad ng kay Elias noon_. Tuturuan niya ang mga magulang na mahalin ang kanilang mga anak, at ibabalik niya sa matuwid na pag-iisip ang mga taong masuwayin sa Dios_." 
+Mauuna siya sa Panginoon upang ihanda ang mga tao sa pagdating ng Panginoon. Gagawin niya ito sa tulong ng Banal na Espiritu at sa pamamagitan ng kapangyarihang katulad ng kay Elias noon. Tuturuan niya ang mga magulang na mahalin ang kanilang mga anak, at ibabalik niya sa matuwid na pag-iisip ang mga taong masuwayin sa Dios." 
 
 
 
@@ -569,7 +569,7 @@ Sumagot ang anghel, "Ako si Gabriel na naglilingkod sa harapan ng Dios. Siya ang
 
 
 
-Ngunit dahil hindi ka naniwala sa sinabi ko, magiging pipi ka. Hindi ka makakapagsalita hanggaʼt hindi natutupad ang sinabi ko sa iyo. Sapagkat tiyak na mangyayari ang sinabi ko pagdating ng panahong itinakda ng Dios_." 
+Ngunit dahil hindi ka naniwala sa sinabi ko, magiging pipi ka. Hindi ka makakapagsalita hanggaʼt hindi natutupad ang sinabi ko sa iyo. Sapagkat tiyak na mangyayari ang sinabi ko pagdating ng panahong itinakda ng Dios." 
 
 
 
@@ -734,7 +734,7 @@ Hindi nagtagal, nagbuntis si Elizabet, at sa loob ng limang buwan ay hindi siya 
 
 
 
-Sinabi niya, "Napakabuti ng Panginoon. Inalis niya ang kahihiyan ko sa mga tao bilang isang baog_." ## Nagpakita kay Maria ang Anghel 
+Sinabi niya, "Napakabuti ng Panginoon. Inalis niya ang kahihiyan ko sa mga tao bilang isang baog." ## Nagpakita kay Maria ang Anghel 
 
 
 
@@ -767,7 +767,7 @@ Sinabi niya, "Napakabuti ng Panginoon. Inalis niya ang kahihiyan ko sa mga tao b
 
 
 
-Nang ikaanim na buwan ng pagbubuntis ni Elizabet_, inutusan ng Dios ang anghel na si Gabriel na pumunta sa nayon ng Nazaret sa Galilea. 
+Nang ikaanim na buwan ng pagbubuntis ni Elizabet, inutusan ng Dios ang anghel na si Gabriel na pumunta sa nayon ng Nazaret sa Galilea. 
 
 
 
@@ -800,7 +800,7 @@ Nang ikaanim na buwan ng pagbubuntis ni Elizabet_, inutusan ng Dios ang anghel n
 
 
 
-Pinapunta siya sa isang birhen na ang pangalan ay Maria. Nakatakda nang ikasal si Maria kay Jose na mula sa lahi ni Haring_ David. 
+Pinapunta siya sa isang birhen na ang pangalan ay Maria. Nakatakda nang ikasal si Maria kay Jose na mula sa lahi ni Haring David. 
 
 
 
@@ -833,7 +833,7 @@ Pinapunta siya sa isang birhen na ang pangalan ay Maria. Nakatakda nang ikasal s
 
 
 
-Sinabi ni Gabriel kay Maria, "Matuwa ka, Maria,_ ikaw na pinagpala ng Dios_. Sumasaiyo ang Panginoon." 
+Sinabi ni Gabriel kay Maria, "Matuwa ka, Maria, ikaw na pinagpala ng Dios. Sumasaiyo ang Panginoon." 
 
 
 
@@ -1198,7 +1198,7 @@ Sumagot si Maria, "Alipin po ako ng Panginoon. Mangyari nawa sa akin ang mga sin
 
 
 
-Hindi nagtagal, nag-ayos si Maria at dali-daling pumunta sa isang bayan sa kabundukan ng Judea kung saan nakatira sina Zacarias_. 
+Hindi nagtagal, nag-ayos si Maria at dali-daling pumunta sa isang bayan sa kabundukan ng Judea kung saan nakatira sina Zacarias. 
 
 
 
@@ -1264,7 +1264,7 @@ Pagdating niya sa bahay nina Zacarias, binati niya si Elizabet.
 
 
 
-Nang marinig ni Elizabet ang pagbati ni Maria, naramdaman niyang_ gumalaw nang malakas ang sanggol sa kanyang sinapupunan. Napuspos ng Banal na Espiritu si Elizabet 
+Nang marinig ni Elizabet ang pagbati ni Maria, naramdaman niyang gumalaw nang malakas ang sanggol sa kanyang sinapupunan. Napuspos ng Banal na Espiritu si Elizabet 
 
 
 
@@ -1297,7 +1297,7 @@ Nang marinig ni Elizabet ang pagbati ni Maria, naramdaman niyang_ gumalaw nang m
 
 
 
-at malakas niyang sinabi, "Higit kang pinagpala ng Dios_ sa lahat ng babae, at pinagpala rin niya ang magiging anak mo! 
+at malakas niyang sinabi, "Higit kang pinagpala ng Dios sa lahat ng babae, at pinagpala rin niya ang magiging anak mo! 
 
 
 
@@ -2225,7 +2225,7 @@ Ipinangako niya na ililigtas niya tayo sa ating mga kaaway at sa lahat ng napopo
 
 
 
-Kaaawaan niya ang ating mga ninuno, at tutuparin ang banal niyang kasunduan sa kanila_ 
+Kaaawaan niya ang ating mga ninuno, at tutuparin ang banal niyang kasunduan sa kanila 
 
 
 
@@ -2291,7 +2291,7 @@ na ipinangako niya sa ninuno nating si Abraham.
 
 
 
-Ayon nga sa kanyang kasunduan,_ ililigtas niya tayo sa ating mga kaaway upang makapaglingkod tayo sa kanya nang walang takot, 
+Ayon nga sa kanyang kasunduan, ililigtas niya tayo sa ating mga kaaway upang makapaglingkod tayo sa kanya nang walang takot, 
 
 
 
@@ -2357,7 +2357,7 @@ at maging banal at matuwid sa kanyang paningin habang tayo ay nabubuhay."
 
 
 
-Sinabi naman ni Zacarias sa anak niya,_ "Ikaw naman, anak ay tatawaging propeta ng Kataas-taasang Dios, dahil mauuna ka sa Panginoon upang ihanda ang mga tao sa kanyang pagdating. 
+Sinabi naman ni Zacarias sa anak niya, "Ikaw naman, anak ay tatawaging propeta ng Kataas-taasang Dios, dahil mauuna ka sa Panginoon upang ihanda ang mga tao sa kanyang pagdating. 
 
 
 

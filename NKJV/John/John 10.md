@@ -33,31 +33,31 @@ Jesus used this illustration, but they did not understand the things which He sp
 Then Jesus said to them again, "Most assuredly, I say to you, I am the door of the sheep. 
 
 ###### 8 
-All who _ever_ came before Me are thieves and robbers, but the sheep did not hear them. 
+All who ever came before Me are thieves and robbers, but the sheep did not hear them. 
 
 ###### 9 
 I am the door. If anyone enters by Me, he will be saved, and will go in and out and find pasture. 
 
 ###### 10 
-The thief does not come except to steal, and to kill, and to destroy. I have come that they may have life, and that they may have _it_ more abundantly. 
+The thief does not come except to steal, and to kill, and to destroy. I have come that they may have life, and that they may have it more abundantly. 
 
 ###### 11 
 "I am the good shepherd. The good shepherd gives His life for the sheep. 
 
 ###### 12 
-But a hireling, _he who is_ not the shepherd, one who does not own the sheep, sees the wolf coming and leaves the sheep and flees; and the wolf catches the sheep and scatters them. 
+But a hireling, he who is not the shepherd, one who does not own the sheep, sees the wolf coming and leaves the sheep and flees; and the wolf catches the sheep and scatters them. 
 
 ###### 13 
 The hireling flees because he is a hireling and does not care about the sheep. 
 
 ###### 14 
-I am the good shepherd; and I know My _sheep,_ and am known by My own. 
+I am the good shepherd; and I know My sheep, and am known by My own. 
 
 ###### 15 
 As the Father knows Me, even so I know the Father; and I lay down My life for the sheep. 
 
 ###### 16 
-And other sheep I have which are not of this fold; them also I must bring, and they will hear My voice; and there will be one flock _and_ one shepherd. 
+And other sheep I have which are not of this fold; them also I must bring, and they will hear My voice; and there will be one flock and one shepherd. 
 
 ###### 17 
 "Therefore My Father loves Me, because I lay down My life that I may take it again. 
@@ -96,10 +96,10 @@ My sheep hear My voice, and I know them, and they follow Me.
 And I give them eternal life, and they shall never perish; neither shall anyone snatch them out of My hand. 
 
 ###### 29 
-My Father, who has given _them_ to Me, is greater than all; and no one is able to snatch _them_ out of My Father's hand. 
+My Father, who has given them to Me, is greater than all; and no one is able to snatch them out of My Father's hand. 
 
 ###### 30 
-I and _My_ Father are one." ## Renewed Efforts to Stone Jesus 
+I and My Father are one." ## Renewed Efforts to Stone Jesus 
 
 ###### 31 
 Then the Jews took up stones again to stone Him. 
@@ -123,7 +123,7 @@ do you say of Him whom the Father sanctified and sent into the world, 'You are b
 If I do not do the works of My Father, do not believe Me; 
 
 ###### 38 
-but if I do, though you do not believe Me, believe the works, that you may know and believe that the Father _is_ in Me, and I in Him." 
+but if I do, though you do not believe Me, believe the works, that you may know and believe that the Father is in Me, and I in Him." 
 
 ###### 39 
 Therefore they sought again to seize Him, but He escaped out of their hand.

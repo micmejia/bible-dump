@@ -10,34 +10,34 @@ next: ['Gal 3']
 
 
 ###### 1 
-Then after fourteen years I went up again to Jerusalem with Barnabas, and also took Titus with _me._ 
+Then after fourteen years I went up again to Jerusalem with Barnabas, and also took Titus with me. 
 
 ###### 2 
 And I went up by revelation, and communicated to them that gospel which I preach among the Gentiles, but privately to those who were of reputation, lest by any means I might run, or had run, in vain. 
 
 ###### 3 
-Yet not even Titus who _was_ with me, being a Greek, was compelled to be circumcised. 
+Yet not even Titus who was with me, being a Greek, was compelled to be circumcised. 
 
 ###### 4 
-And _this occurred_ because of false brethren secretly brought in (who came in by stealth to spy out our liberty which we have in Christ Jesus, that they might bring us into bondage), 
+And this occurred because of false brethren secretly brought in (who came in by stealth to spy out our liberty which we have in Christ Jesus, that they might bring us into bondage), 
 
 ###### 5 
 to whom we did not yield submission even for an hour, that the truth of the gospel might continue with you. 
 
 ###### 6 
-But from those who seemed to be something--whatever they were, it makes no difference to me; God shows personal favoritism to no man--for those who seemed _to be something_ added nothing to me. 
+But from those who seemed to be something--whatever they were, it makes no difference to me; God shows personal favoritism to no man--for those who seemed to be something added nothing to me. 
 
 ###### 7 
-But on the contrary, when they saw that the gospel for the uncircumcised had been committed to me, as _the gospel_ for the circumcised _was_ to Peter 
+But on the contrary, when they saw that the gospel for the uncircumcised had been committed to me, as the gospel for the circumcised was to Peter 
 
 ###### 8 
 (for He who worked effectively in Peter for the apostleship to the circumcised also worked effectively in me toward the Gentiles), 
 
 ###### 9 
-and when James, Cephas, and John, who seemed to be pillars, perceived the grace that had been given to me, they gave me and Barnabas the right hand of fellowship, that we _should go_ to the Gentiles and they to the circumcised. 
+and when James, Cephas, and John, who seemed to be pillars, perceived the grace that had been given to me, they gave me and Barnabas the right hand of fellowship, that we should go to the Gentiles and they to the circumcised. 
 
 ###### 10 
-_They desired_ only that we should remember the poor, the very thing which I also was eager to do.
+They desired only that we should remember the poor, the very thing which I also was eager to do.
 
 ## No Return to the Law 
 
@@ -51,16 +51,16 @@ for before certain men came from James, he would eat with the Gentiles; but when
 And the rest of the Jews also played the hypocrite with him, so that even Barnabas was carried away with their hypocrisy. 
 
 ###### 14 
-But when I saw that they were not straightforward about the truth of the gospel, I said to Peter before _them_ all, "If you, being a Jew, live in the manner of Gentiles and not as the Jews, why do you compel Gentiles to live as Jews? 
+But when I saw that they were not straightforward about the truth of the gospel, I said to Peter before them all, "If you, being a Jew, live in the manner of Gentiles and not as the Jews, why do you compel Gentiles to live as Jews? 
 
 ###### 15 
-We _who are_ Jews by nature, and not sinners of the Gentiles, 
+We who are Jews by nature, and not sinners of the Gentiles, 
 
 ###### 16 
 knowing that a man is not justified by the works of the law but by faith in Jesus Christ, even we have believed in Christ Jesus, that we might be justified by faith in Christ and not by the works of the law; for by the works of the law no flesh shall be justified. 
 
 ###### 17 
-"But if, while we seek to be justified by Christ, we ourselves also are found sinners, _is_ Christ therefore a minister of sin? Certainly not! 
+"But if, while we seek to be justified by Christ, we ourselves also are found sinners, is Christ therefore a minister of sin? Certainly not! 
 
 ###### 18 
 For if I build again those things which I destroyed, I make myself a transgressor. 
@@ -69,7 +69,7 @@ For if I build again those things which I destroyed, I make myself a transgresso
 For I through the law died to the law that I might live to God. 
 
 ###### 20 
-I have been crucified with Christ; it is no longer I who live, but Christ lives in me; and the _life_ which I now live in the flesh I live by faith in the Son of God, who loved me and gave Himself for me. 
+I have been crucified with Christ; it is no longer I who live, but Christ lives in me; and the life which I now live in the flesh I live by faith in the Son of God, who loved me and gave Himself for me. 
 
 ###### 21 
-I do not set aside the grace of God; for if righteousness _comes_ through the law, then Christ died in vain."
+I do not set aside the grace of God; for if righteousness comes through the law, then Christ died in vain."

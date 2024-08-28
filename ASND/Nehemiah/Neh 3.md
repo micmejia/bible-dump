@@ -40,7 +40,7 @@ next: ['Neh 4']
 
 
 
-Itinayo ni Eliashib na punong pari at ng mga kasamahan niyang pari ang pintuan na tinatawag na Tupa. Matapos nilang ikabit ang pintuan, itinalaga nila ito sa Dios_. Itinayo rin nila at itinalaga ang mga pader hanggang sa Tore ng Isang Daan at sa Tore ni Hananel. 
+Itinayo ni Eliashib na punong pari at ng mga kasamahan niyang pari ang pintuan na tinatawag na Tupa. Matapos nilang ikabit ang pintuan, itinalaga nila ito sa Dios. Itinayo rin nila at itinalaga ang mga pader hanggang sa Tore ng Isang Daan at sa Tore ni Hananel. 
 
 
 
@@ -865,7 +865,7 @@ Ang sumunod naman ay si Palal na anak ni Uzai. Itinayo niya ang bahagi ng pader 
 
 
 
-at ang mga utusan sa templo na nakatira sa may bulubundukin ng_ Ofel. Itinayo nila ang bahagi ng pader pasilangan, hanggang sa Pintuan ng Tubig at sa nakausling tore. 
+at ang mga utusan sa templo na nakatira sa may bulubundukin ng Ofel. Itinayo nila ang bahagi ng pader pasilangan, hanggang sa Pintuan ng Tubig at sa nakausling tore. 
 
 
 
@@ -898,7 +898,7 @@ at ang mga utusan sa templo na nakatira sa may bulubundukin ng_ Ofel. Itinayo ni
 
 
 
-Ang sumunod sa kanila ay ang mga taga-Tekoa. Itinayo nila ang bahagi ng pader mula sa malalaking toreng nakausli hanggang sa pader ng Ofel. Pangalawang bahagi na ito ng pader na kanilang itinayo_. 
+Ang sumunod sa kanila ay ang mga taga-Tekoa. Itinayo nila ang bahagi ng pader mula sa malalaking toreng nakausli hanggang sa pader ng Ofel. Pangalawang bahagi na ito ng pader na kanilang itinayo. 
 
 
 
@@ -997,7 +997,7 @@ Ang sumunod sa kanila ay si Zadok na anak ni Imer. Itinayo niya ang bahagi ng pa
 
 
 
-Ang sumunod sa kanya ay si Hanania na anak ni Shelemia at si Hanun na ikaanim na anak ni Salaf. Pangalawang bahagi na ito ng pader na kanilang itinayo_. Ang sumunod sa kanila ay si Meshulam na anak ni Berekia. Itinayo niya ang bahagi ng pader na nakaharap sa bahay niya. 
+Ang sumunod sa kanya ay si Hanania na anak ni Shelemia at si Hanun na ikaanim na anak ni Salaf. Pangalawang bahagi na ito ng pader na kanilang itinayo. Ang sumunod sa kanila ay si Meshulam na anak ni Berekia. Itinayo niya ang bahagi ng pader na nakaharap sa bahay niya. 
 
 
 

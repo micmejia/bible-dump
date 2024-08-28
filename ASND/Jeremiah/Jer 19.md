@@ -40,7 +40,7 @@ next: ['Jer 20']
 
 
 
-Sinabi sa akin_ ng Panginoon, "Bumili ka ng banga sa magpapalayok. Pagkatapos, magsama ka ng mga tagapamahala ng mga tao at tagapamahala ng mga pari, 
+Sinabi sa akin ng Panginoon, "Bumili ka ng banga sa magpapalayok. Pagkatapos, magsama ka ng mga tagapamahala ng mga tao at tagapamahala ng mga pari, 
 
 
 
@@ -139,7 +139,7 @@ Sabihin mo, 'Mga hari ng Juda at mga taga-Jerusalem, pakinggan nʼyo ang mensahe
 
 
 
-Gagawin ko ito_ dahil itinakwil ako ng mga mamamayan ko at ginawa nilang handugan ng mga handog na sinusunog para sa mga dios-diosan ang kapatagang ito. Hindi naman nila kilala ang mga dios-diosang ito, at hindi rin kilala ng mga ninuno nila o ng mga hari sa Juda. Pumatay pa sila ng mga walang malay na bata_ sa lugar na ito. 
+Gagawin ko ito dahil itinakwil ako ng mga mamamayan ko at ginawa nilang handugan ng mga handog na sinusunog para sa mga dios-diosan ang kapatagang ito. Hindi naman nila kilala ang mga dios-diosang ito, at hindi rin kilala ng mga ninuno nila o ng mga hari sa Juda. Pumatay pa sila ng mga walang malay na bata sa lugar na ito. 
 
 
 
@@ -205,7 +205,7 @@ Nagtayo sila ng mga sambahan para kay Baal, at sinunog nila roon ang mga anak ni
 
 
 
-Kaya mag-ingat kayo, dahil ako,_ ang Panginoon ay nagsasabing darating ang panahon na ang lugar na itoʼy hindi na tatawaging Tofet o Lambak ng Ben Hinom, kundi Lambak ng Patayan. 
+Kaya mag-ingat kayo, dahil ako, ang Panginoon ay nagsasabing darating ang panahon na ang lugar na itoʼy hindi na tatawaging Tofet o Lambak ng Ben Hinom, kundi Lambak ng Patayan. 
 
 
 
@@ -337,7 +337,7 @@ Papalibutan ng mga kaaway ang lungsod na ito hanggang sa ang mga mamamayan dito 
 
 
 
-Pagkatapos ay sinabi sa akin ng Panginoon_, "Basagin mo ang banga sa harap ng mga taong sumama sa iyo. 
+Pagkatapos ay sinabi sa akin ng Panginoon, "Basagin mo ang banga sa harap ng mga taong sumama sa iyo. 
 
 
 
@@ -370,7 +370,7 @@ Pagkatapos ay sinabi sa akin ng Panginoon_, "Basagin mo ang banga sa harap ng mg
 
 
 
-Sabihin mo sa kanila na ako_, ang Panginoong Makapangyarihan ay nagsasabing wawasakin ko ang bansa ng Juda_ at ang lungsod ng Jerusalem_ katulad ng pagbasag ko sa bangang ito na hindi na muling mabubuo. Ililibing nila ang maraming_ bangkay sa Tofet hanggang sa wala nang mapaglibingan. 
+Sabihin mo sa kanila na ako, ang Panginoong Makapangyarihan ay nagsasabing wawasakin ko ang bansa ng Juda at ang lungsod ng Jerusalem katulad ng pagbasag ko sa bangang ito na hindi na muling mabubuo. Ililibing nila ang maraming bangkay sa Tofet hanggang sa wala nang mapaglibingan. 
 
 
 
@@ -403,7 +403,7 @@ Sabihin mo sa kanila na ako_, ang Panginoong Makapangyarihan ay nagsasabing wawa
 
 
 
-Ito ang gagawin ko sa Jerusalem at sa mga mamamayan nito. Ituturing itong marumi_ gaya ng Tofet. 
+Ito ang gagawin ko sa Jerusalem at sa mga mamamayan nito. Ituturing itong marumi gaya ng Tofet. 
 
 
 

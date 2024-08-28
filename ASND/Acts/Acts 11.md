@@ -73,7 +73,7 @@ Nabalitaan ng mga apostol at ng mga kapatid sa Judea na ang mga hindi Judio ay t
 
 
 
-Kaya pagbalik ni Pedro sa Jerusalem, sinalungat siya ng mga kapatid na Judio na naniniwalang ang mga hindi Judio ay kinakailangang magpatuli muna bago maging kaanib nila_. 
+Kaya pagbalik ni Pedro sa Jerusalem, sinalungat siya ng mga kapatid na Judio na naniniwalang ang mga hindi Judio ay kinakailangang magpatuli muna bago maging kaanib nila. 
 
 
 
@@ -106,7 +106,7 @@ Kaya pagbalik ni Pedro sa Jerusalem, sinalungat siya ng mga kapatid na Judio na 
 
 
 
-Sinabi nila kay Pedro, "Ikaw ay isang Judio_, bakit ka nakituloy at nakikain sa bahay ng mga hindi Judio na_ hindi tuli?" 
+Sinabi nila kay Pedro, "Ikaw ay isang Judio, bakit ka nakituloy at nakikain sa bahay ng mga hindi Judio na hindi tuli?" 
 
 
 
@@ -403,7 +403,7 @@ Nang mga oras ding iyon, dumating sa bahay na tinutuluyan ko ang tatlong lalaki 
 
 
 
-Sinabi ng Banal na_ Espiritu sa akin na huwag akong mag-alinlangang sumama sa kanila. At nang umalis na kami papunta sa bahay ni Cornelius sa Cesarea, sumama sa akin itong anim na kapatid natin na taga-Jopa_. 
+Sinabi ng Banal na Espiritu sa akin na huwag akong mag-alinlangang sumama sa kanila. At nang umalis na kami papunta sa bahay ni Cornelius sa Cesarea, sumama sa akin itong anim na kapatid natin na taga-Jopa. 
 
 
 
@@ -535,7 +535,7 @@ At nang magsalita na ako, napuspos sila ng Banal na Espiritu tulad din ng nangya
 
 
 
-At naalala ko ang sinabi ng Panginoong Jesus_: 'Nagbautismo si Juan sa tubig, ngunit babautismuhan kayo sa Banal na Espiritu.' 
+At naalala ko ang sinabi ng Panginoong Jesus: 'Nagbautismo si Juan sa tubig, ngunit babautismuhan kayo sa Banal na Espiritu.' 
 
 
 
@@ -601,7 +601,7 @@ Kaya ang nangyari sa kanila ay nagpapatunay na ang ibinigay ng Dios sa ating mga
 
 
 
-Nang marinig ito ng mga kapatid na Judio, hindi na nila binatikos si Pedro, sa halip ay nagpuri sila sa Dios. Sinabi nila, "Kung ganoon, ibinigay din ng Dios sa mga hindi Judio ang pagkakataon na magsisi para matanggap nila ang buhay na walang hanggan_." ## Ang Iglesya ng Antioc sa Syria 
+Nang marinig ito ng mga kapatid na Judio, hindi na nila binatikos si Pedro, sa halip ay nagpuri sila sa Dios. Sinabi nila, "Kung ganoon, ibinigay din ng Dios sa mga hindi Judio ang pagkakataon na magsisi para matanggap nila ang buhay na walang hanggan." ## Ang Iglesya ng Antioc sa Syria 
 
 
 
@@ -634,7 +634,7 @@ Nang marinig ito ng mga kapatid na Judio, hindi na nila binatikos si Pedro, sa h
 
 
 
-Simula_ nang mamatay si Esteban, nangalat ang mga mananampalataya dahil sa pag-uusig sa kanila. Ang iba ay nakarating sa Fenicia, Cyprus, at Antioc. Ipinapahayag nila ang Magandang Balita kahit saan sila pumunta_, pero sa mga Judio lamang. 
+Simula nang mamatay si Esteban, nangalat ang mga mananampalataya dahil sa pag-uusig sa kanila. Ang iba ay nakarating sa Fenicia, Cyprus, at Antioc. Ipinapahayag nila ang Magandang Balita kahit saan sila pumunta, pero sa mga Judio lamang. 
 
 
 
@@ -799,7 +799,7 @@ Pagdating niya roon, natuwa siya dahil nakita niya ang mga kabutihang ginawa ng 
 
 
 
-Mabuting tao si Bernabe. Pinapatnubayan siya ng Banal na Espiritu, at matibay ang kanyang pananampalataya sa Dios_. Kaya marami sa Antioc ang sumampalataya sa Panginoon. 
+Mabuting tao si Bernabe. Pinapatnubayan siya ng Banal na Espiritu, at matibay ang kanyang pananampalataya sa Dios. Kaya marami sa Antioc ang sumampalataya sa Panginoon. 
 
 
 
@@ -865,7 +865,7 @@ Pagkatapos, pumunta si Bernabe sa Tarsus para hanapin si Saulo.
 
 
 
-Nang makita niya si Saulo, isinama niya ito pabalik sa Antioc. At isang taon silang nakasama ng iglesya roon, at maraming tao ang kanilang tinuruan. Sa Antioc unang tinawag na mga Cristiano ang mga tagasunod ni Jesus_. 
+Nang makita niya si Saulo, isinama niya ito pabalik sa Antioc. At isang taon silang nakasama ng iglesya roon, at maraming tao ang kanilang tinuruan. Sa Antioc unang tinawag na mga Cristiano ang mga tagasunod ni Jesus. 
 
 
 
@@ -931,7 +931,7 @@ Nang panahong iyon, may mga propeta sa Jerusalem na pumunta sa Antioc.
 
 
 
-Ang pangalan ng isa sa kanila ay si Agabus. Tumayo siya at nagpahayag sa pamamagitan ng Banal na_ Espiritu na may darating na matinding taggutom sa buong mundo. (Nangyari ito sa panahon ni Claudius na Emperador ng Roma.) 
+Ang pangalan ng isa sa kanila ay si Agabus. Tumayo siya at nagpahayag sa pamamagitan ng Banal na Espiritu na may darating na matinding taggutom sa buong mundo. (Nangyari ito sa panahon ni Claudius na Emperador ng Roma.) 
 
 
 
@@ -964,7 +964,7 @@ Ang pangalan ng isa sa kanila ay si Agabus. Tumayo siya at nagpahayag sa pamamag
 
 
 
-Kaya nagpasya ang mga tagasunod ni Jesus sa Antioc_ na ang bawat isa sa kanila ay magpapadala ng tulong sa mga kapatid sa Judea ayon sa kanilang makakaya. 
+Kaya nagpasya ang mga tagasunod ni Jesus sa Antioc na ang bawat isa sa kanila ay magpapadala ng tulong sa mga kapatid sa Judea ayon sa kanilang makakaya. 
 
 
 
@@ -997,4 +997,4 @@ Kaya nagpasya ang mga tagasunod ni Jesus sa Antioc_ na ang bawat isa sa kanila a
 
 
 
-Ipinadala nila ito sa pamamagitan nina Bernabe at Saulo para ibigay sa mga namumuno ng iglesya sa Jerusalem_.
+Ipinadala nila ito sa pamamagitan nina Bernabe at Saulo para ibigay sa mga namumuno ng iglesya sa Jerusalem.

@@ -601,7 +601,7 @@ Ang mga Israelita naman, maliban sa angkan ni Benjamin, ay nakapagtipon ng 400,0
 
 
 
-Bago makipaglaban,_ pumunta muna ang mga Israelita sa Betel at nagtanong sa Dios kung aling lahi ang unang lulusob sa mga taga-Benjamin. At ayon sa Panginoon, ang lahi ni Juda. 
+Bago makipaglaban, pumunta muna ang mga Israelita sa Betel at nagtanong sa Dios kung aling lahi ang unang lulusob sa mga taga-Benjamin. At ayon sa Panginoon, ang lahi ni Juda. 
 
 
 
@@ -700,7 +700,7 @@ At pumunta sila sa Gibea. Pagdating doon, pumwesto na ang mga Israelita para mak
 
 
 
-Naglabasan ang mga taga-Benjamin sa Gibea para lusubin sila. At sa araw na iyon, 22,000 Israelita ang napatay ng mga taga-Benjamin. 22-23Umahon muli ang mga Israelita sa Betel at umiyak doon hanggang gabi. Tinanong nila ang Panginoon, "Muli po ba kaming makikipaglaban sa mga kadugo naming taga-Benjamin?" Sumagot ang Panginoon, "Oo, muli kayong makipaglaban." Kaya pinalakas nila ang kanilang loob at muli silang pumwesto sa dating lugar noong unang araw silang lumusob_. 
+Naglabasan ang mga taga-Benjamin sa Gibea para lusubin sila. At sa araw na iyon, 22,000 Israelita ang napatay ng mga taga-Benjamin. 22-23Umahon muli ang mga Israelita sa Betel at umiyak doon hanggang gabi. Tinanong nila ang Panginoon, "Muli po ba kaming makikipaglaban sa mga kadugo naming taga-Benjamin?" Sumagot ang Panginoon, "Oo, muli kayong makipaglaban." Kaya pinalakas nila ang kanilang loob at muli silang pumwesto sa dating lugar noong unang araw silang lumusob. 
 
 
 
@@ -1098,7 +1098,7 @@ At napansin ng mga taga-Benjamin na natatalo na sila.
 
 
 
-Habang humahabol ang mga taga-Benjamin,_ biglang nilusob ng mga taong ito ang Gibea at pinagpapatay ang lahat ng tao roon. 
+Habang humahabol ang mga taga-Benjamin, biglang nilusob ng mga taong ito ang Gibea at pinagpapatay ang lahat ng tao roon. 
 
 
 
@@ -1461,4 +1461,4 @@ Pero may 600 pa na taga-Benjamin ang nakatakas sa Bato ng Rimon, at doon sila na
 
 
 
-Pagkatapos, bumalik ang mga Israelita sa mga bayan ng Benjamin at pinatay nila ang mga natitirang buhay pa, pati ang mga hayop. At sinunog nila ang lahat ng bayan ng mga taga-Benjamin_ na madaanan nila.
+Pagkatapos, bumalik ang mga Israelita sa mga bayan ng Benjamin at pinatay nila ang mga natitirang buhay pa, pati ang mga hayop. At sinunog nila ang lahat ng bayan ng mga taga-Benjamin na madaanan nila.

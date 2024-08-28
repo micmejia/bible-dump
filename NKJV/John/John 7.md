@@ -60,7 +60,7 @@ And the Jews marveled, saying, "How does this Man know letters, having never stu
 Jesus answered them and said, "My doctrine is not Mine, but His who sent Me. 
 
 ###### 17 
-If anyone wills to do His will, he shall know concerning the doctrine, whether it is from God or _whether_ I speak on My own _authority._ 
+If anyone wills to do His will, he shall know concerning the doctrine, whether it is from God or whether I speak on My own authority. 
 
 ###### 18 
 He who speaks from himself seeks his own glory; but He who seeks the glory of the One who sent Him is true, and no unrighteousness is in Him. 
@@ -102,16 +102,16 @@ But I know Him, for I am from Him, and He sent Me."
 Therefore they sought to take Him; but no one laid a hand on Him, because His hour had not yet come. 
 
 ###### 31 
-And many of the people believed in Him, and said, "When the Christ comes, will He do more signs than these which this _Man_ has done?" ## Jesus and the Religious Leaders 
+And many of the people believed in Him, and said, "When the Christ comes, will He do more signs than these which this Man has done?" ## Jesus and the Religious Leaders 
 
 ###### 32 
 The Pharisees heard the crowd murmuring these things concerning Him, and the Pharisees and the chief priests sent officers to take Him. 
 
 ###### 33 
-Then Jesus said to them, "I shall be with you a little while longer, and _then_ I go to Him who sent Me. 
+Then Jesus said to them, "I shall be with you a little while longer, and then I go to Him who sent Me. 
 
 ###### 34 
-You will seek Me and not find _Me,_ and where I am you cannot come." 
+You will seek Me and not find Me, and where I am you cannot come." 
 
 ###### 35 
 Then the Jews said among themselves, "Where does He intend to go that we shall not find Him? Does He intend to go to the Dispersion among the Greeks and teach the Greeks? 
@@ -120,13 +120,13 @@ Then the Jews said among themselves, "Where does He intend to go that we shall n
 What is this thing that He said, 'You will seek Me and not find Me, and where I am you cannot come'?" ## The Promise of the Holy Spirit 
 
 ###### 37 
-On the last day, that great _day_ of the feast, Jesus stood and cried out, saying, "If anyone thirsts, let him come to Me and drink. 
+On the last day, that great day of the feast, Jesus stood and cried out, saying, "If anyone thirsts, let him come to Me and drink. 
 
 ###### 38 
 He who believes in Me, as the Scripture has said, out of his heart will flow rivers of living water." 
 
 ###### 39 
-But this He spoke concerning the Spirit, whom those believing in Him would receive; for the Holy Spirit was not yet _given,_ because Jesus was not yet glorified.
+But this He spoke concerning the Spirit, whom those believing in Him would receive; for the Holy Spirit was not yet given, because Jesus was not yet glorified.
 
 ## Who Is He? 
 
@@ -172,4 +172,4 @@ Nicodemus (he who came to Jesus by night, being one of them) said to them,
 They answered and said to him, "Are you also from Galilee? Search and look, for no prophet has arisen out of Galilee." ## An Adulteress Faces the Light of the World 
 
 ###### 53 
-And everyone went to his _own_ house.
+And everyone went to his own house.

@@ -139,7 +139,7 @@ At ito nga ang isinasagot ko sa mga taong hindi kumikilala sa akin bilang aposto
 
 
 
-Bilang apostol,_ wala ba kaming karapatang tumanggap ng pagkain at inumin mula sa mga napangaralan namin_? 
+Bilang apostol, wala ba kaming karapatang tumanggap ng pagkain at inumin mula sa mga napangaralan namin? 
 
 
 
@@ -172,7 +172,7 @@ Bilang apostol,_ wala ba kaming karapatang tumanggap ng pagkain at inumin mula s
 
 
 
-Wala ba kaming karapatang magsama ng asawang mananampalataya sa aming mga paglalakbay_, tulad ng ginagawa ng mga kapatid sa Panginoon, ni Pedro, at ng iba pang mga apostol? 
+Wala ba kaming karapatang magsama ng asawang mananampalataya sa aming mga paglalakbay, tulad ng ginagawa ng mga kapatid sa Panginoon, ni Pedro, at ng iba pang mga apostol? 
 
 
 
@@ -403,7 +403,7 @@ Nagtanim kami sa inyo ng mga espiritwal na pagpapapala. Malaking bagay ba kung u
 
 
 
-Kung ang ibang mga mangangaral_ ay may karapatang tumanggap mula sa inyo, hindi baʼt lalo na kami? Ngunit kahit may karapatan kami ay hindi kami humingi sa inyo. Tiniis namin ang lahat upang sa ganoon ay walang maging hadlang sa pagpapalaganap ng Magandang Balita tungkol kay Cristo. 
+Kung ang ibang mga mangangaral ay may karapatang tumanggap mula sa inyo, hindi baʼt lalo na kami? Ngunit kahit may karapatan kami ay hindi kami humingi sa inyo. Tiniis namin ang lahat upang sa ganoon ay walang maging hadlang sa pagpapalaganap ng Magandang Balita tungkol kay Cristo. 
 
 
 
@@ -634,7 +634,7 @@ Ano ngayon ang gantimpala ko? Ang itinuturing kong gantimpala ay ang kaligayahan
 
 
 
-Kahit hindi ako isang alipin, nagpaalipin ako sa lahat upang makahikayat ako ng mas marami na sasampalataya kay Cristo_. 
+Kahit hindi ako isang alipin, nagpaalipin ako sa lahat upang makahikayat ako ng mas marami na sasampalataya kay Cristo. 
 
 
 
@@ -667,7 +667,7 @@ Kahit hindi ako isang alipin, nagpaalipin ako sa lahat upang makahikayat ako ng 
 
 
 
-Sa piling ng mga kapwa ko Judio, namumuhay ako bilang Judio upang mahikayat ko silang sumampalataya kay Cristo. Kaya kahit wala man ako sa ilalim ng Kautusan ng mga Judio_, sinusunod ko ito upang madala ko sila sa pananampalataya. 
+Sa piling ng mga kapwa ko Judio, namumuhay ako bilang Judio upang mahikayat ko silang sumampalataya kay Cristo. Kaya kahit wala man ako sa ilalim ng Kautusan ng mga Judio, sinusunod ko ito upang madala ko sila sa pananampalataya. 
 
 
 
@@ -733,7 +733,7 @@ Sa piling naman ng mga hindi Judio, namumuhay ako na parang wala sa ilalim ng Ka
 
 
 
-Sa mahihina pa ang pananampalataya_, nakikibagay ako upang mapatatag ko sila kay Cristo. Nakikibagay ako sa lahat ng tao, upang sa kahit anong paraan ay mailigtas ko ang ilan sa kanila. 
+Sa mahihina pa ang pananampalataya, nakikibagay ako upang mapatatag ko sila kay Cristo. Nakikibagay ako sa lahat ng tao, upang sa kahit anong paraan ay mailigtas ko ang ilan sa kanila. 
 
 
 
@@ -799,7 +799,7 @@ Ginagawa ko ang lahat ng ito sa ikalalaganap ng Magandang Balita, upang makabaha
 
 
 
-Sa ating pagsunod sa Dios ay para tayong mananakbo._ Alam ninyo na sa isang takbuhan, marami ang sumasali ngunit isa lang ang nananalo. Kaya pagbutihin ninyo ang pagtakbo upang makamit ninyo ang gantimpala. 
+Sa ating pagsunod sa Dios ay para tayong mananakbo. Alam ninyo na sa isang takbuhan, marami ang sumasali ngunit isa lang ang nananalo. Kaya pagbutihin ninyo ang pagtakbo upang makamit ninyo ang gantimpala. 
 
 
 
@@ -865,7 +865,7 @@ Ang bawat manlalaro ay nagsasanay nang mabuti at dinidisiplina ang sarili upang 
 
 
 
-Kaya nga, may layunin at direksyon ang aking pagtakbo. Kung baga sa isang boksingero,_ hindi ako sumusuntok sa hangin. 
+Kaya nga, may layunin at direksyon ang aking pagtakbo. Kung baga sa isang boksingero, hindi ako sumusuntok sa hangin. 
 
 
 

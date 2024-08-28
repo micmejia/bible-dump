@@ -139,7 +139,7 @@ Sapagkat sasalakayin ang Babilonia ng isang bansa mula sa hilaga, at magiging ma
 
 
 
-"Ako,_ ang Panginoon, ay nagsasabing sa panahong iyon, ang mga mamamayan ng Israel at Juda ay iiyak na lalapit sa akin, ang Panginoon na kanilang Dios. 
+"Ako, ang Panginoon, ay nagsasabing sa panahong iyon, ang mga mamamayan ng Israel at Juda ay iiyak na lalapit sa akin, ang Panginoon na kanilang Dios. 
 
 
 
@@ -337,7 +337,7 @@ Sapagkat ipapasalakay ko ang Babilonia sa alyansa ng mga makapangyarihang bansa 
 
 
 
-Sasamsamin nila ang mga ari-arian ng Babilonia at talagang magsasawa sila. Ako,_ ang Panginoon, ang nagsasabi nito. 
+Sasamsamin nila ang mga ari-arian ng Babilonia at talagang magsasawa sila. Ako, ang Panginoon, ang nagsasabi nito. 
 
 
 
@@ -370,7 +370,7 @@ Sasamsamin nila ang mga ari-arian ng Babilonia at talagang magsasawa sila. Ako,_
 
 
 
-"Mga taga-Babilonia,_ sinamsam nʼyo ang pag-aari ng mga mamamayan ko. Tuwang-tuwa kayo at masaya na parang dumalagang baka sa pastulan o kabayong humahalinghing. 
+"Mga taga-Babilonia, sinamsam nʼyo ang pag-aari ng mga mamamayan ko. Tuwang-tuwa kayo at masaya na parang dumalagang baka sa pastulan o kabayong humahalinghing. 
 
 
 
@@ -601,7 +601,7 @@ Paalisin ninyo sa Babilonia ang mga nagtatanim at nag-aani. Iligtas ninyo ang mg
 
 
 
-"Kaya ako_, ang Panginoong Makapangyarihan, ang Dios ng Israel ay nagsasabi, 'Parurusahan ko si Haring Nebucadnezar at ang Babilonia katulad ng pagpaparusa ko sa hari ng Asiria. 
+"Kaya ako, ang Panginoong Makapangyarihan, ang Dios ng Israel ay nagsasabi, 'Parurusahan ko si Haring Nebucadnezar at ang Babilonia katulad ng pagpaparusa ko sa hari ng Asiria. 
 
 
 
@@ -667,7 +667,7 @@ Pero pababalikin ko ang mga Israelita sa bansa nila. Magiging parang mga tupa si
 
 
 
-Sa mga araw na iyon, wala nang makikitang mga kasalanan at pagsuway sa mga natitirang mga mamamayan ng Israel at Juda dahil patatawarin ko na sila. Ako,_ ang Panginoon, ang nagsasabi nito.' " ## Ang Parusa ng Panginoon sa Babilonia 
+Sa mga araw na iyon, wala nang makikitang mga kasalanan at pagsuway sa mga natitirang mga mamamayan ng Israel at Juda dahil patatawarin ko na sila. Ako, ang Panginoon, ang nagsasabi nito.' " ## Ang Parusa ng Panginoon sa Babilonia 
 
 
 
@@ -865,7 +865,7 @@ Binuksan ko ang aking taguan ng mga armas at inilabas ko ang mga sandata dahil s
 
 
 
-"Mga kalaban ng Babilonia,_ na nasa malayong lugar, salakayin nʼyo na ang Babilonia! Buksan nʼyo ang mga bodega niya. Ipunin nʼyo ang mga nasamsam nʼyo katulad ng trigo. Lipulin nʼyong lubos ang mga taga-Babilonia at huwag kayong magtitira kahit isa. 
+"Mga kalaban ng Babilonia, na nasa malayong lugar, salakayin nʼyo na ang Babilonia! Buksan nʼyo ang mga bodega niya. Ipunin nʼyo ang mga nasamsam nʼyo katulad ng trigo. Lipulin nʼyong lubos ang mga taga-Babilonia at huwag kayong magtitira kahit isa. 
 
 
 
@@ -898,7 +898,7 @@ Binuksan ko ang aking taguan ng mga armas at inilabas ko ang mga sandata dahil s
 
 
 
-Patayin ninyo ang lahat ng kanilang mga kawal na tulad sa_ batang toro. Patayin ninyo silang lahat. Nakakaawa sila dahil dumating na ang panahon na dapat silang parusahan. 
+Patayin ninyo ang lahat ng kanilang mga kawal na tulad sa batang toro. Patayin ninyo silang lahat. Nakakaawa sila dahil dumating na ang panahon na dapat silang parusahan. 
 
 
 
@@ -1030,7 +1030,7 @@ Sa mga araw na iyon, mamamatay sa mga lansangan ang mga kabataan niyang lalaki p
 
 
 
-"Ako,_ ang Panginoong Dios na Makapangyarihan, ay nagsasabing kalaban kita, Babiloniang_ mapagmataas! Dumating na ang araw na parurusahan kita. 
+"Ako, ang Panginoong Dios na Makapangyarihan, ay nagsasabing kalaban kita, Babiloniang mapagmataas! Dumating na ang araw na parurusahan kita. 
 
 
 
@@ -1162,7 +1162,7 @@ Pero ako ang kanilang Manunubos, Panginoong Makapangyarihan ang pangalan ko. Ipa
 
 
 
-"Ako,_ ang Panginoon, ay nagsasabing ang espada ng kapahamakan ay tatama sa mga taga-Babilonia pati sa mga pinuno at matatalinong tao niya. 
+"Ako, ang Panginoon, ay nagsasabing ang espada ng kapahamakan ay tatama sa mga taga-Babilonia pati sa mga pinuno at matatalinong tao niya. 
 
 
 
@@ -1327,7 +1327,7 @@ Matutuyo ang lahat ng pinagkukunan niya ng tubig! Sapagkat ang Babilonia ay luga
 
 
 
-Kung paanong winasak ng Dios ang Sodom at Gomora, at ang mga bayan sa palibot nito, ganoon din ang mangyayari sa Babilonia. Wala nang maninirahan doon. Ako,_ ang Panginoon, ang nagsasabi nito. 
+Kung paanong winasak ng Dios ang Sodom at Gomora, at ang mga bayan sa palibot nito, ganoon din ang mangyayari sa Babilonia. Wala nang maninirahan doon. Ako, ang Panginoon, ang nagsasabi nito. 
 
 
 
@@ -1459,7 +1459,7 @@ Nabalitaan ito ng hari ng Babilonia at nanlupaypay siya. Nakaramdam siya ng tako
 
 
 
-"Bigla kong sasalakayin ang Babilonia katulad ng leon na galing sa kagubatan malapit_ sa Ilog ng Jordan, sasalakay_ patungo sa pastulan ng maraming tupa. Magsisitakas sila, at pipili ako ng taong mamamahala sa Babilonia. Sino ang maitutulad sa akin? Sino ang mangangahas na kalabanin ako? Sino ang pinunong makakalaban sa akin? 
+"Bigla kong sasalakayin ang Babilonia katulad ng leon na galing sa kagubatan malapit sa Ilog ng Jordan, sasalakay patungo sa pastulan ng maraming tupa. Magsisitakas sila, at pipili ako ng taong mamamahala sa Babilonia. Sino ang maitutulad sa akin? Sino ang mangangahas na kalabanin ako? Sino ang pinunong makakalaban sa akin? 
 
 
 

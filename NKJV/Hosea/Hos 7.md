@@ -13,16 +13,16 @@ next: ['Hos 8']
 "When I would have healed Israel, Then the iniquity of Ephraim was uncovered, And the wickedness of Samaria. For they have committed fraud; A thief comes in; A band of robbers takes spoil outside. 
 
 ###### 2 
-They do not consider in their hearts _That_ I remember all their wickedness; Now their own deeds have surrounded them; They are before My face. 
+They do not consider in their hearts That I remember all their wickedness; Now their own deeds have surrounded them; They are before My face. 
 
 ###### 3 
 They make a king glad with their wickedness, And princes with their lies. 
 
 ###### 4 
-"They _are_ all adulterers. Like an oven heated by a baker-- He ceases stirring _the fire_ after kneading the dough, Until it is leavened. 
+"They are all adulterers. Like an oven heated by a baker-- He ceases stirring the fire after kneading the dough, Until it is leavened. 
 
 ###### 5 
-In the day of our king Princes have made _him_ sick, inflamed with wine; He stretched out his hand with scoffers. 
+In the day of our king Princes have made him sick, inflamed with wine; He stretched out his hand with scoffers. 
 
 ###### 6 
 They prepare their heart like an oven, While they lie in wait; Their baker sleeps all night; In the morning it burns like a flaming fire. 
@@ -34,7 +34,7 @@ They are all hot, like an oven, And have devoured their judges; All their kings 
 "Ephraim has mixed himself among the peoples; Ephraim is a cake unturned. 
 
 ###### 9 
-Aliens have devoured his strength, But he does not know _it;_ Yes, gray hairs are here and there on him, Yet he does not know _it._ 
+Aliens have devoured his strength, But he does not know it; Yes, gray hairs are here and there on him, Yet he does not know it. 
 
 ###### 10 
 And the pride of Israel testifies to his face, But they do not return to the Lord their God, Nor seek Him for all this.
@@ -54,7 +54,7 @@ Wherever they go, I will spread My net on them; I will bring them down like bird
 They did not cry out to Me with their heart When they wailed upon their beds. "They assemble together for grain and new wine, They rebel against Me; 
 
 ###### 15 
-Though I disciplined _and_ strengthened their arms, Yet they devise evil against Me; 
+Though I disciplined and strengthened their arms, Yet they devise evil against Me; 
 
 ###### 16 
-They return, _but_ not to the Most High; They are like a treacherous bow. Their princes shall fall by the sword For the cursings of their tongue. This _shall be_ their derision in the land of Egypt.
+They return, but not to the Most High; They are like a treacherous bow. Their princes shall fall by the sword For the cursings of their tongue. This shall be their derision in the land of Egypt.

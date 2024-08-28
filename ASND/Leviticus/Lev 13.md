@@ -370,7 +370,7 @@ Kung sa tingin ng pari ay namumuti ang namamagang balat o namumuti ang balahibo,
 
 
 
-itoʼy isang sakit na paulit-ulit at nakakahawa. Kaya ipapahayag ng pari na marumi siya. Hindi na kailangang ibukod pa siya para suriin_ dahil tiyak nang marumi siya. 
+itoʼy isang sakit na paulit-ulit at nakakahawa. Kaya ipapahayag ng pari na marumi siya. Hindi na kailangang ibukod pa siya para suriin dahil tiyak nang marumi siya. 
 
 
 
@@ -667,7 +667,7 @@ Pero kung sa pagsusuri ng pari ay nakita niyang hindi naman nagkakasugat ang bal
 
 
 
-Ngunit kung itoʼy kumalat sa ibang bahagi ng balat, ipapahayag ng pari na siyaʼy marumi dahil iyon ay tanda na may sakit siya sa balat na nakakahawa_. 
+Ngunit kung itoʼy kumalat sa ibang bahagi ng balat, ipapahayag ng pari na siyaʼy marumi dahil iyon ay tanda na may sakit siya sa balat na nakakahawa. 
 
 
 
@@ -898,7 +898,7 @@ Pero kung hindi naman kumakalat at medyo gumagaling na, pamamaga lang iyon ng na
 
 
 
-Kung ang isang tao ay may tanda ng nakakahawang sakit sa balat_ sa ulo o sa baba, 
+Kung ang isang tao ay may tanda ng nakakahawang sakit sa balat sa ulo o sa baba, 
 
 
 
@@ -1030,7 +1030,7 @@ At sa ikapitong araw, muling susuriin ng pari ang kanyang sakit sa balat. At kun
 
 
 
-dapat niyang kalbuhin ang kanyang buhok o ahitin ang kanyang balbas, maliban sa bahaging may sakit sa balat. At muli_ siyang ibubukod ng pari ng pitong araw pa. 
+dapat niyang kalbuhin ang kanyang buhok o ahitin ang kanyang balbas, maliban sa bahaging may sakit sa balat. At muli siyang ibubukod ng pari ng pitong araw pa. 
 
 
 

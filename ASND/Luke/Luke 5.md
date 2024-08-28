@@ -139,7 +139,7 @@ Sumakay siya sa isang bangka at nakiusap kay Simon na may-ari ng bangka, na itul
 
 
 
-Pagkatapos niyang mangaral, sinabi niya kay Simon, "Pumalaot kayo at ihulog ang mga lambat ninyo, at makakahuli kayo ng isda_." 
+Pagkatapos niyang mangaral, sinabi niya kay Simon, "Pumalaot kayo at ihulog ang mga lambat ninyo, at makakahuli kayo ng isda." 
 
 
 
@@ -304,7 +304,7 @@ Nang makita iyon ni Simon Pedro, lumuhod siya sa paanan ni Jesus at sinabi, "Lum
 
 
 
-Ganito ang naging reaksiyon niya,_ dahil labis siyang namangha, pati na ang mga kasamahan niya, sa dami ng nahuli nila. 
+Ganito ang naging reaksiyon niya, dahil labis siyang namangha, pati na ang mga kasamahan niya, sa dami ng nahuli nila. 
 
 
 
@@ -337,7 +337,7 @@ Ganito ang naging reaksiyon niya,_ dahil labis siyang namangha, pati na ang mga 
 
 
 
-Namangha rin sina Santiago at Juan na mga anak ni Zebedee, na mga kasosyo ni Simon. Sinabi ni Jesus kay Simon, "Huwag kang matakot. Mula ngayon, hindi na isda_ ang huhulihin mo kundi_ mga tao na upang madala sila sa Dios_." 
+Namangha rin sina Santiago at Juan na mga anak ni Zebedee, na mga kasosyo ni Simon. Sinabi ni Jesus kay Simon, "Huwag kang matakot. Mula ngayon, hindi na isda ang huhulihin mo kundi mga tao na upang madala sila sa Dios." 
 
 
 
@@ -405,7 +405,7 @@ Nang maitabi na nila ang kanilang mga bangka, iniwan nila ang lahat at sumunod k
 
 
 
-Isang araw, nang nasa isang bayan si Jesus, lumapit sa kanya ang isang lalaking may malubhang sakit sa balat, Lumuhod ito sa harap niya at nagmakaawa na pagalingin siya_. Sinabi niya, "Panginoon, kung gusto nʼyo po, mapapagaling nʼyo ako upang maituring akong malinis." 
+Isang araw, nang nasa isang bayan si Jesus, lumapit sa kanya ang isang lalaking may malubhang sakit sa balat, Lumuhod ito sa harap niya at nagmakaawa na pagalingin siya. Sinabi niya, "Panginoon, kung gusto nʼyo po, mapapagaling nʼyo ako upang maituring akong malinis." 
 
 
 
@@ -803,7 +803,7 @@ Alin ba ang mas madaling sabihin: 'Pinatawad na ang iyong mga kasalanan,' o, 'Tu
 
 
 
-Ngayon, papatunayan ko sa inyo sa pamamagitan ng pagpapagaling sa taong ito na ako,_ na Anak ng Tao, ay may kapangyarihan dito sa lupa na magpatawad ng mga kasalanan." At sinabi niya sa paralitiko, "Tumayo ka, buhatin mo ang higaan mo at umuwi!" 
+Ngayon, papatunayan ko sa inyo sa pamamagitan ng pagpapagaling sa taong ito na ako, na Anak ng Tao, ay may kapangyarihan dito sa lupa na magpatawad ng mga kasalanan." At sinabi niya sa paralitiko, "Tumayo ka, buhatin mo ang higaan mo at umuwi!" 
 
 
 
@@ -1001,7 +1001,7 @@ Naghanda si Levi sa kanyang bahay ng malaking handaan bilang parangal kay Jesus.
 
 
 
-Nang makita ito ng_ mga Pariseo at ng mga kasama nilang mga tagapagturo ng Kautusan, nagreklamo sila sa mga tagasunod ni Jesus. Sinabi nila, "Bakit kayo kumakain at umiinom na kasama ang mga maniningil ng buwis at iba pang mga makasalanan?" 
+Nang makita ito ng mga Pariseo at ng mga kasama nilang mga tagapagturo ng Kautusan, nagreklamo sila sa mga tagasunod ni Jesus. Sinabi nila, "Bakit kayo kumakain at umiinom na kasama ang mga maniningil ng buwis at iba pang mga makasalanan?" 
 
 
 
@@ -1067,7 +1067,7 @@ Sinagot sila ni Jesus, "Ang mga taong walang sakit ay hindi nangangailangan ng d
 
 
 
-Hindi ako naparito upang tawagin ang mga taong matuwid sa sarili nilang paningin,_ kundi ang mga makasalanan upang magsisi sila sa kanilang mga kasalanan." ## Ang Tanong tungkol sa Pag-aayuno 
+Hindi ako naparito upang tawagin ang mga taong matuwid sa sarili nilang paningin, kundi ang mga makasalanan upang magsisi sila sa kanilang mga kasalanan." ## Ang Tanong tungkol sa Pag-aayuno 
 
 
 
@@ -1133,7 +1133,7 @@ May mga tao roon na nagtanong kay Jesus, "Ang mga tagasunod ni Juan at ng mga Pa
 
 
 
-Sumagot si Jesus, "Maaari bang hindi kumain ang mga panauhin sa kasalan habang kasama pa nila ang lalaking ikakasal? Siyempre, hindi!_ 
+Sumagot si Jesus, "Maaari bang hindi kumain ang mga panauhin sa kasalan habang kasama pa nila ang lalaking ikakasal? Siyempre, hindi! 
 
 
 

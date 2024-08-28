@@ -19,13 +19,13 @@ with all lowliness and gentleness, with longsuffering, bearing with one another 
 endeavoring to keep the unity of the Spirit in the bond of peace. 
 
 ###### 4 
-_There is_ one body and one Spirit, just as you were called in one hope of your calling; 
+There is one body and one Spirit, just as you were called in one hope of your calling; 
 
 ###### 5 
 one Lord, one faith, one baptism; 
 
 ###### 6 
-one God and Father of all, who _is_ above all, and through all, and in you all.
+one God and Father of all, who is above all, and through all, and in you all.
 
 ## Spiritual Gifts 
 
@@ -42,7 +42,7 @@ Therefore He says: "When He ascended on high, He led captivity captive, And gave
 He who descended is also the One who ascended far above all the heavens, that He might fill all things.) 
 
 ###### 11 
-And He Himself gave some _to be_ apostles, some prophets, some evangelists, and some pastors and teachers, 
+And He Himself gave some to be apostles, some prophets, some evangelists, and some pastors and teachers, 
 
 ###### 12 
 for the equipping of the saints for the work of ministry, for the edifying of the body of Christ, 
@@ -88,7 +88,7 @@ and that you put on the new man which was created according to God, in true righ
 ## Do Not Grieve the Spirit 
 
 ###### 25 
-Therefore, putting away lying, "_Let_ each one _of you_ speak truth with his neighbor," for we are members of one another. 
+Therefore, putting away lying, "Let each one of you speak truth with his neighbor," for we are members of one another. 
 
 ###### 26 
 "Be angry, and do not sin": do not let the sun go down on your wrath, 
@@ -97,7 +97,7 @@ Therefore, putting away lying, "_Let_ each one _of you_ speak truth with his nei
 nor give place to the devil. 
 
 ###### 28 
-Let him who stole steal no longer, but rather let him labor, working with _his_ hands what is good, that he may have something to give him who has need. 
+Let him who stole steal no longer, but rather let him labor, working with his hands what is good, that he may have something to give him who has need. 
 
 ###### 29 
 Let no corrupt word proceed out of your mouth, but what is good for necessary edification, that it may impart grace to the hearers. 

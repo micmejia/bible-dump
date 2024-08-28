@@ -73,7 +73,7 @@ Ano ba naman kayong mga taga-Galacia! Hindi ba kayo makaintindi? Bakit kayo nani
 
 
 
-Ito ngayon ang gusto kong itanong sa inyo: Tinanggap nʼyo ba ang Banal na_ Espiritu dahil sa pagsunod sa Kautusan, o dahil sumampalataya kayo sa Magandang Balita na_ napakinggan nʼyo? 
+Ito ngayon ang gusto kong itanong sa inyo: Tinanggap nʼyo ba ang Banal na Espiritu dahil sa pagsunod sa Kautusan, o dahil sumampalataya kayo sa Magandang Balita na napakinggan nʼyo? 
 
 
 
@@ -106,7 +106,7 @@ Ito ngayon ang gusto kong itanong sa inyo: Tinanggap nʼyo ba ang Banal na_ Espi
 
 
 
-Talagang hindi nga kayo makaintindi! Nagsimula kayo bilang mananampalataya_ sa pamamagitan ng kapangyarihan_ ng Espiritu, bakit ngayon pinipilit ninyong magpakabanal sa pamamagitan ng sarili nʼyong pagsisikap? 
+Talagang hindi nga kayo makaintindi! Nagsimula kayo bilang mananampalataya sa pamamagitan ng kapangyarihan ng Espiritu, bakit ngayon pinipilit ninyong magpakabanal sa pamamagitan ng sarili nʼyong pagsisikap? 
 
 
 
@@ -172,7 +172,7 @@ Wala na bang halaga sa inyo ang naranasan ninyo? Mawawalan na lang ba ito ng kab
 
 
 
-Hindi baʼt ibinigay sa inyo ng Dios ang kanyang Espiritu, at sa pamamagitan niyaʼy gumagawa kayo ng mga himala? Tinanggap nʼyo ba ito dahil sa pagsunod sa Kautusan o dahil sumampalataya kayo sa Magandang Balita na_ napakinggan ninyo? 
+Hindi baʼt ibinigay sa inyo ng Dios ang kanyang Espiritu, at sa pamamagitan niyaʼy gumagawa kayo ng mga himala? Tinanggap nʼyo ba ito dahil sa pagsunod sa Kautusan o dahil sumampalataya kayo sa Magandang Balita na napakinggan ninyo? 
 
 
 
@@ -205,7 +205,7 @@ Hindi baʼt ibinigay sa inyo ng Dios ang kanyang Espiritu, at sa pamamagitan niy
 
 
 
-Tingnan nʼyo ang nangyari kay Abraham. Ayon sa Kasulatan,_ "Sumampalataya siya sa Dios, kaya itinuring siyang matuwid." 
+Tingnan nʼyo ang nangyari kay Abraham. Ayon sa Kasulatan, "Sumampalataya siya sa Dios, kaya itinuring siyang matuwid." 
 
 
 
@@ -271,7 +271,7 @@ Malinaw na ang mga sumasampalataya sa Dios ang siyang mga tunay na anak ni Abrah
 
 
 
-Noon pa man, sinasabi na sa Kasulatan na ituturing na matuwid ng Dios ang mga hindi Judio sa pamamagitan ng pananampalataya nila_. At ang Magandang Balitang itoʼy ipinahayag ng Dios kay Abraham nang sabihin niya_, "Pagpapalain ko_ ang lahat ng bansa sa pamamagitan mo." 
+Noon pa man, sinasabi na sa Kasulatan na ituturing na matuwid ng Dios ang mga hindi Judio sa pamamagitan ng pananampalataya nila. At ang Magandang Balitang itoʼy ipinahayag ng Dios kay Abraham nang sabihin niya, "Pagpapalain ko ang lahat ng bansa sa pamamagitan mo." 
 
 
 
@@ -304,7 +304,7 @@ Noon pa man, sinasabi na sa Kasulatan na ituturing na matuwid ng Dios ang mga hi
 
 
 
-Sumampalataya si Abraham sa Dios at pinagpala siya_. Kaya lahat ng sumasampalataya sa Dios_ ay pinagpapala rin tulad ni Abraham. 
+Sumampalataya si Abraham sa Dios at pinagpala siya. Kaya lahat ng sumasampalataya sa Dios ay pinagpapala rin tulad ni Abraham. 
 
 
 
@@ -337,7 +337,7 @@ Sumampalataya si Abraham sa Dios at pinagpala siya_. Kaya lahat ng sumasampalata
 
 
 
-Ngunit ang lahat ng umaasang maituturing na matuwid sa pamamagitan ng pagsunod sa Kautusan ay isinumpa na ng Dios_. Sapagkat sinasabi sa Kasulatan, "Isinusumpa ang sinumang hindi sumusunod sa lahat ng nasusulat sa aklat ng Kautusan." 
+Ngunit ang lahat ng umaasang maituturing na matuwid sa pamamagitan ng pagsunod sa Kautusan ay isinumpa na ng Dios. Sapagkat sinasabi sa Kasulatan, "Isinusumpa ang sinumang hindi sumusunod sa lahat ng nasusulat sa aklat ng Kautusan." 
 
 
 
@@ -370,7 +370,7 @@ Ngunit ang lahat ng umaasang maituturing na matuwid sa pamamagitan ng pagsunod s
 
 
 
-Malinaw na walang taong ituturing na matuwid sa harap ng Dios sa pamamagitan ng pagsunod sa Kautusan dahil sinasabi sa Kasulatan_, "Ang taong itinuring na matuwid ng Dios dahil sa pananampalataya niya ay mabubuhay." 
+Malinaw na walang taong ituturing na matuwid sa harap ng Dios sa pamamagitan ng pagsunod sa Kautusan dahil sinasabi sa Kasulatan, "Ang taong itinuring na matuwid ng Dios dahil sa pananampalataya niya ay mabubuhay." 
 
 
 
@@ -403,7 +403,7 @@ Malinaw na walang taong ituturing na matuwid sa harap ng Dios sa pamamagitan ng 
 
 
 
-Ang Kautusan ay hindi nakabatay sa pananampalataya. Sapagkat sinasabi sa Kasulatan_, "Ang nagnanais mabuhay sa pamamagitan ng Kautusan ay kailangang sumunod sa lahat ng iniuutos nito." 
+Ang Kautusan ay hindi nakabatay sa pananampalataya. Sapagkat sinasabi sa Kasulatan, "Ang nagnanais mabuhay sa pamamagitan ng Kautusan ay kailangang sumunod sa lahat ng iniuutos nito." 
 
 
 
@@ -436,7 +436,7 @@ Ang Kautusan ay hindi nakabatay sa pananampalataya. Sapagkat sinasabi sa Kasulat
 
 
 
-Ngunit hindi natin masunod ang lahat ng iniuutos ng Kautusan, kaya sinumpa tayo ng Dios_. Pero ngayon, tinubos na tayo ni Cristo sa sumpang ito. Sinumpa siya alang-alang sa atin, dahil sinasabi sa Kasulatan, "Isinumpa ang sinumang binitay sa puno." 
+Ngunit hindi natin masunod ang lahat ng iniuutos ng Kautusan, kaya sinumpa tayo ng Dios. Pero ngayon, tinubos na tayo ni Cristo sa sumpang ito. Sinumpa siya alang-alang sa atin, dahil sinasabi sa Kasulatan, "Isinumpa ang sinumang binitay sa puno." 
 
 
 
@@ -469,7 +469,7 @@ Ngunit hindi natin masunod ang lahat ng iniuutos ng Kautusan, kaya sinumpa tayo 
 
 
 
-Ginawa ito ng Dios_ para ang pagpapalang ibinigay niya kay Abraham ay matanggap din ng mga hindi Judio sa pamamagitan ni Cristo Jesus; at para matanggap natin ang ipinangakong Espiritu sa pamamagitan ng pananampalataya.
+Ginawa ito ng Dios para ang pagpapalang ibinigay niya kay Abraham ay matanggap din ng mga hindi Judio sa pamamagitan ni Cristo Jesus; at para matanggap natin ang ipinangakong Espiritu sa pamamagitan ng pananampalataya.
 
 ## Ang Kautusan at ang Pangako ng Dios 
 
@@ -636,7 +636,7 @@ Sapagkat kung matatanggap natin ang pagpapala sa pamamagitan ng pagsunod sa Kaut
 
 
 
-Kung ganoon, ano ba ang silbi ng Kautusan? Ibinigay ito para malaman ng tao na nagkakasala sila. Ngunit itoʼy hanggang sa dumating lamang ang ipinangakong apo ni Abraham_. Ibinigay ng Dios ang Kautusan sa pamamagitan ng mga anghel, at sila ang nagbigay nito sa mga tao sa tulong ng isang tagapamagitan. 
+Kung ganoon, ano ba ang silbi ng Kautusan? Ibinigay ito para malaman ng tao na nagkakasala sila. Ngunit itoʼy hanggang sa dumating lamang ang ipinangakong apo ni Abraham. Ibinigay ng Dios ang Kautusan sa pamamagitan ng mga anghel, at sila ang nagbigay nito sa mga tao sa tulong ng isang tagapamagitan. 
 
 
 
@@ -669,7 +669,7 @@ Kung ganoon, ano ba ang silbi ng Kautusan? Ibinigay ito para malaman ng tao na n
 
 
 
-Ngunit ang pangako ay hindi tulad nito._ Dahil nang ibigay ito ng Dios kay Abraham_, hindi siya gumamit ng tagapamagitan o mga anghel kundi siya mismo. 
+Ngunit ang pangako ay hindi tulad nito. Dahil nang ibigay ito ng Dios kay Abraham, hindi siya gumamit ng tagapamagitan o mga anghel kundi siya mismo. 
 
 
 
@@ -768,7 +768,7 @@ Ngunit sinasabi ng Kautusan na ang buong mundo ay alipin ng kasalanan. Kaya ang 
 
 
 
-Noong hindi pa dumarating itong tinatawag na pananampalataya kay Cristo_, para tayong mga bilanggo. Binilanggo tayo ng kautusan hanggang sa araw na inihayag ang kaligtasan natin sa pamamagitan ng_ pananampalataya. 
+Noong hindi pa dumarating itong tinatawag na pananampalataya kay Cristo, para tayong mga bilanggo. Binilanggo tayo ng kautusan hanggang sa araw na inihayag ang kaligtasan natin sa pamamagitan ng pananampalataya. 
 
 
 
@@ -801,7 +801,7 @@ Noong hindi pa dumarating itong tinatawag na pananampalataya kay Cristo_, para t
 
 
 
-Ang Kautusan ay naging tagapag-alaga natin hanggang sa dumating si Cristo, para sa pamamagitan ng pananampalataya sa kanya_ ay maituring tayong matuwid. 
+Ang Kautusan ay naging tagapag-alaga natin hanggang sa dumating si Cristo, para sa pamamagitan ng pananampalataya sa kanya ay maituring tayong matuwid. 
 
 
 
@@ -834,7 +834,7 @@ Ang Kautusan ay naging tagapag-alaga natin hanggang sa dumating si Cristo, para 
 
 
 
-At ngayong may pananampalataya na, wala na tayo sa patnubay ng Kautusan na_ tagapag-alaga.
+At ngayong may pananampalataya na, wala na tayo sa patnubay ng Kautusan na tagapag-alaga.
 
 ## Mga Anak ng Dios sa Pananampalataya 
 
@@ -968,4 +968,4 @@ Ngayon, wala nang pagkakaiba ang Judio sa hindi Judio, ang alipin sa malaya, ang
 
 
 
-At dahil kayoʼy kay Cristo na, kabilang na kayo sa lahi ni Abraham at mga tagapagmana ng mga ipinangako ng Dios sa kanya_.
+At dahil kayoʼy kay Cristo na, kabilang na kayo sa lahi ni Abraham at mga tagapagmana ng mga ipinangako ng Dios sa kanya.

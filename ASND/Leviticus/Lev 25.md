@@ -508,7 +508,7 @@ Kaya sa tuwing magtatanim kayo sa ikawalong taon, ang kakainin ninyo ay ang inyo
 
 
 
-Huwag ninyong ipagbibili ang inyong lupain na hindi na ninyo matutubos pa, dahil ang lupaing ito ay akin. Pinatitirhan at pinasasakahan_ ko lang ito sa inyo. 
+Huwag ninyong ipagbibili ang inyong lupain na hindi na ninyo matutubos pa, dahil ang lupaing ito ay akin. Pinatitirhan at pinasasakahan ko lang ito sa inyo. 
 
 
 
@@ -673,7 +673,7 @@ Kapag nangyari ito, babayaran niya ang bumili ng kanyang lupain ng halagang ayon
 
 
 
-Pero kung kulang ang perang pantubos niya, mananatili ang lupain sa bumili hanggang sa dumating ang Taon ng Pagpapalaya at Pagsasauli. At sa taong iyon, ibabalik na sa kanya ang lupain niya nang walang bayad_. 
+Pero kung kulang ang perang pantubos niya, mananatili ang lupain sa bumili hanggang sa dumating ang Taon ng Pagpapalaya at Pagsasauli. At sa taong iyon, ibabalik na sa kanya ang lupain niya nang walang bayad. 
 
 
 
@@ -904,7 +904,7 @@ Pati ang mga pastulang nasa palibot ng kanilang bayan ay hindi dapat ipagbili, d
 
 
 
-Kung maghirap ang kapwa ninyo Israelita at hindi na niya kayang buhayin ang kanyang sarili, tulungan nʼyo siya katulad ng inyong pagtulong sa isang dayuhan o bisita para patuloy siyang makapamuhay kasama ninyo. 36-37Pahiramin ninyo siya ng pera na walang tubo, at pagbilhan ninyo siya ng pagkain na walang tubo para patuloy siyang naninirahang kasama ninyo. Gawin ninyo ito para ipakita na may takot kayo sa akin na_ inyong Dios. 
+Kung maghirap ang kapwa ninyo Israelita at hindi na niya kayang buhayin ang kanyang sarili, tulungan nʼyo siya katulad ng inyong pagtulong sa isang dayuhan o bisita para patuloy siyang makapamuhay kasama ninyo. 36-37Pahiramin ninyo siya ng pera na walang tubo, at pagbilhan ninyo siya ng pagkain na walang tubo para patuloy siyang naninirahang kasama ninyo. Gawin ninyo ito para ipakita na may takot kayo sa akin na inyong Dios. 
 
 
 
@@ -1102,7 +1102,7 @@ Kayoʼy mga alipin ko, kayoʼy mga Israelitang inilabas ko sa Egipto. Kaya huwag
 
 
 
-Huwag ninyong pagmamalupitan ang inyong kapwa Israelita na alipin ninyo. Ipakita ninyong kayoʼy may takot sa akin na_ inyong Dios. 
+Huwag ninyong pagmamalupitan ang inyong kapwa Israelita na alipin ninyo. Ipakita ninyong kayoʼy may takot sa akin na inyong Dios. 
 
 
 
@@ -1234,7 +1234,7 @@ At maaari nʼyo silang ipamana sa inyong mga anak upang maglingkod sa kanila hab
 
 
 
-Kung sa labis na kahirapan ay ipinagbili ng isang Israelita ang kanyang sarili bilang alipin_ sa isang dayuhang naninirahang kasama ninyo, o sa kamag-anak ng dayuhang iyon, 
+Kung sa labis na kahirapan ay ipinagbili ng isang Israelita ang kanyang sarili bilang alipin sa isang dayuhang naninirahang kasama ninyo, o sa kamag-anak ng dayuhang iyon, 
 
 
 
@@ -1399,4 +1399,4 @@ Kung hindi siya makakalaya at ang mga anak niya sa ganoong paraan, maaari pa rin
 
 
 
-Kaya hindi kayo magiging alipin ng inyong mga kababayan magpakailanman,_ dahil alipin ko kayo, ako ang naglabas sa inyo mula sa Egipto. Ako ang Panginoon na inyong Dios.
+Kaya hindi kayo magiging alipin ng inyong mga kababayan magpakailanman, dahil alipin ko kayo, ako ang naglabas sa inyo mula sa Egipto. Ako ang Panginoon na inyong Dios.

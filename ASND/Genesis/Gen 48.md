@@ -40,7 +40,7 @@ next: ['Gen 49']
 
 
 
-Hindi nagtagal, may nagbalita kay Jose na may sakit ang kanyang ama. Kaya dinala niya ang dalawang anak niyang sina Manase at Efraim at pumunta kay Jacob_. 
+Hindi nagtagal, may nagbalita kay Jose na may sakit ang kanyang ama. Kaya dinala niya ang dalawang anak niyang sina Manase at Efraim at pumunta kay Jacob. 
 
 
 
@@ -139,7 +139,7 @@ Sinabi ni Jacob kay Jose, "Noong naroon pa ako sa Luz, sa lupain ng Canaan, nagp
 
 
 
-Sinabi niya, "Bibigyan kita ng maraming lahi para maging ama ka ng maraming tao. At ibibigay ko ang lupaing ito ng Canaan_ sa mga lahi mo at magiging kanila ito magpakailanman." 
+Sinabi niya, "Bibigyan kita ng maraming lahi para maging ama ka ng maraming tao. At ibibigay ko ang lupaing ito ng Canaan sa mga lahi mo at magiging kanila ito magpakailanman." 
 
 
 
@@ -172,7 +172,7 @@ Sinabi niya, "Bibigyan kita ng maraming lahi para maging ama ka ng maraming tao.
 
 
 
-Nagpatuloy si Jacob sa pagsasalita,_ "Ang dalawa mong anak na sina Efraim at Manase, na ipinanganak dito sa Egipto bago ako dumating ay ituturing kong mga anak ko. Kaya kagaya kina Reuben at Simeon, magmumula rin sa kanila ang mga lahi ng mga Israelita_. 
+Nagpatuloy si Jacob sa pagsasalita, "Ang dalawa mong anak na sina Efraim at Manase, na ipinanganak dito sa Egipto bago ako dumating ay ituturing kong mga anak ko. Kaya kagaya kina Reuben at Simeon, magmumula rin sa kanila ang mga lahi ng mga Israelita. 
 
 
 
@@ -304,7 +304,7 @@ Nang makita ni Israel ang mga anak ni Jose, nagtanong siya, "Sino sila?"
 
 
 
-Sumagot si Jose, "Sila po ang mga anak ko na ibinigay sa akin ng Dios dito sa Egipto_." Kaya sinabi ni Israel, "Dalhin sila rito sa akin para mabasbasan ko sila." 
+Sumagot si Jose, "Sila po ang mga anak ko na ibinigay sa akin ng Dios dito sa Egipto." Kaya sinabi ni Israel, "Dalhin sila rito sa akin para mabasbasan ko sila." 
 
 
 
@@ -403,7 +403,7 @@ Sinabi ni Israel kay Jose, "Hindi na talaga ako umaasa na makikita pa kita, pero
 
 
 
-Kinuha agad ni Jose ang mga anak niya sa kandungan ni Israel at yumukod siya bilang paggalang sa kanyang ama_. 
+Kinuha agad ni Jose ang mga anak niya sa kandungan ni Israel at yumukod siya bilang paggalang sa kanyang ama. 
 
 
 
@@ -436,7 +436,7 @@ Kinuha agad ni Jose ang mga anak niya sa kandungan ni Israel at yumukod siya bil
 
 
 
-Pagkatapos, inilapit niyang muli_ ang mga anak niya sa lolo ng mga ito para mabasbasan sila_. Si Efraim ay nasa kanan ni Jose, na nasa kaliwa ni Israel at si Manase ay nasa kaliwa ni Jose na nasa kanan ni Israel. 
+Pagkatapos, inilapit niyang muli ang mga anak niya sa lolo ng mga ito para mabasbasan sila. Si Efraim ay nasa kanan ni Jose, na nasa kaliwa ni Israel at si Manase ay nasa kaliwa ni Jose na nasa kanan ni Israel. 
 
 
 
@@ -700,7 +700,7 @@ Kaya ginawa niya si Efraim na nakakahigit kaysa kay Manase. At sa araw na iyon, 
 
 
 
-Kaya sinabi ni Israel kay Jose, "Malapit na akong mamatay, pero huwag kayong mag-aalala dahil_ sasamahan kayo ng Dios at pababalikin kayo sa lupain ng iyong ninuno. 
+Kaya sinabi ni Israel kay Jose, "Malapit na akong mamatay, pero huwag kayong mag-aalala dahil sasamahan kayo ng Dios at pababalikin kayo sa lupain ng iyong ninuno. 
 
 
 
@@ -733,4 +733,4 @@ Kaya sinabi ni Israel kay Jose, "Malapit na akong mamatay, pero huwag kayong mag
 
 
 
-At ikaw Jose_ ang magmamana ng Shekem, at hindi ang mga kapatid mo. Ang lupain na iyon na napasaakin dahil sa pakikipaglaban ko sa mga Amoreo sa pamamagitan ng espada at pana."
+At ikaw Jose ang magmamana ng Shekem, at hindi ang mga kapatid mo. Ang lupain na iyon na napasaakin dahil sa pakikipaglaban ko sa mga Amoreo sa pamamagitan ng espada at pana."

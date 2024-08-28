@@ -205,7 +205,7 @@ Ang lahat ng bansa ay maglilingkod sa kanya, sa anak, at sa apo niya hanggang sa
 
 
 
-" 'Pero kung may bansa o kahariang ayaw maglingkod o magpasakop kay Haring Nebucadnezar ng Babilonia, ako ang magpaparusa sa bansa o kahariang iyon_ sa pamamagitan ng digmaan, gutom, at sakit hanggang sa maipasakop ko sila kay Nebucadnezar. Ako,_ ang Panginoon, ang nagsasabi nito. 
+" 'Pero kung may bansa o kahariang ayaw maglingkod o magpasakop kay Haring Nebucadnezar ng Babilonia, ako ang magpaparusa sa bansa o kahariang iyon sa pamamagitan ng digmaan, gutom, at sakit hanggang sa maipasakop ko sila kay Nebucadnezar. Ako, ang Panginoon, ang nagsasabi nito. 
 
 
 
@@ -304,7 +304,7 @@ Kasinungalingan ang sinasabi nila sa inyo. At kung maniniwala kayo sa kanila, pa
 
 
 
-Pero ang mga bansang magpapasakop at maglilingkod sa hari ng Babilonia ay mananatili sa sarili nilang bayan. Dito sila maninirahan at bubungkalin nila ang kanilang sariling lupain. Ako,_ ang Panginoon, ang nagsasabi nito.' " 
+Pero ang mga bansang magpapasakop at maglilingkod sa hari ng Babilonia ay mananatili sa sarili nilang bayan. Dito sila maninirahan at bubungkalin nila ang kanilang sariling lupain. Ako, ang Panginoon, ang nagsasabi nito.' " 
 
 
 
@@ -568,7 +568,7 @@ Kung talagang mga propeta sila at galing sa Panginoon ang sinasabi nila, manalan
 
 
 
-Sapagkat sinasabi ng Panginoong Makapangyarihan na ang mga tansong_ haligi ng templo_, ang lalagyan ng tubig na tinatawag na_ Dagat, mga karwahe, at ang iba pang mga kagamitan sa lungsod na ito ay dadalhin sa Babilonia_. 
+Sapagkat sinasabi ng Panginoong Makapangyarihan na ang mga tansong haligi ng templo, ang lalagyan ng tubig na tinatawag na Dagat, mga karwahe, at ang iba pang mga kagamitan sa lungsod na ito ay dadalhin sa Babilonia. 
 
 
 

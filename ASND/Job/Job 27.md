@@ -370,7 +370,7 @@ Matutuwa kaya siya sa Makapangyarihang Dios? Tatawag kaya siya sa kanya sa lahat
 
 
 
-"Tuturuan ko sana_ kayo ng tungkol sa kapangyarihan ng Dios. Sasabihin ko sa inyo ang mga pamamaraan niya. 
+"Tuturuan ko sana kayo ng tungkol sa kapangyarihan ng Dios. Sasabihin ko sa inyo ang mga pamamaraan niya. 
 
 
 
@@ -403,7 +403,7 @@ Matutuwa kaya siya sa Makapangyarihang Dios? Tatawag kaya siya sa kanya sa lahat
 
 
 
-Pero alam na pala ninyo ang lahat ng ito. Kaya_ bakit pa kayo nagsasalita sa akin ng walang kabuluhan? 
+Pero alam na pala ninyo ang lahat ng ito. Kaya bakit pa kayo nagsasalita sa akin ng walang kabuluhan? 
 
 
 
@@ -568,7 +568,7 @@ Ang matitira sa kanila ay mamamatay sa sakit, at walang magluluksa sa pagkamatay
 
 
 
-hindi rin siya ang makikinabang nito_. Ang matutuwid at walang kasalanan ang magsusuot ng kanyang mga damit at ang maghahati-hati sa kanyang mga pilak. 
+hindi rin siya ang makikinabang nito. Ang matutuwid at walang kasalanan ang magsusuot ng kanyang mga damit at ang maghahati-hati sa kanyang mga pilak. 
 
 
 
@@ -601,7 +601,7 @@ hindi rin siya ang makikinabang nito_. Ang matutuwid at walang kasalanan ang mag
 
 
 
-Ang itinatayo niyang bahay ay magiging kasinrupok ng sapot ng_ gagamba o kayaʼy silungan ng tagapagbantay sa bukid. 
+Ang itinatayo niyang bahay ay magiging kasinrupok ng sapot ng gagamba o kayaʼy silungan ng tagapagbantay sa bukid. 
 
 
 

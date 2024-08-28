@@ -106,7 +106,7 @@ Pagkatapos, ikakalat ito sa lupain na nakabilad sa init ng araw, sa liwanag ng b
 
 
 
-Ang natitirang buhay sa masamang bansang ito ay ipapangalat ko sa ibang mga bansa, at doon ay gugustuhin pa nilang mamatay kaysa sa mabuhay. Ako,_ ang Panginoong Makapangyarihan, ang nagsasabi nito." ## Ang Kasalanan at ang Kaparusahan 
+Ang natitirang buhay sa masamang bansang ito ay ipapangalat ko sa ibang mga bansa, at doon ay gugustuhin pa nilang mamatay kaysa sa mabuhay. Ako, ang Panginoong Makapangyarihan, ang nagsasabi nito." ## Ang Kasalanan at ang Kaparusahan 
 
 
 
@@ -172,7 +172,7 @@ Sinabi sa akin ng Panginoon na sabihin ko ito sa mga tao: "Kapag nadapa ang tao,
 
 
 
-Pero kayong mga taga-Jerusalem, bakit patuloy kayong lumalayo sa akin? Bakit ayaw ninyong iwanan ang mga dios-diosan na_ dumadaya sa inyo at magbalik sa akin? 
+Pero kayong mga taga-Jerusalem, bakit patuloy kayong lumalayo sa akin? Bakit ayaw ninyong iwanan ang mga dios-diosan na dumadaya sa inyo at magbalik sa akin? 
 
 
 
@@ -205,7 +205,7 @@ Pero kayong mga taga-Jerusalem, bakit patuloy kayong lumalayo sa akin? Bakit aya
 
 
 
-Pinakinggan kong mabuti ang mga sinabi nʼyo_ pero hindi tama ang mga ito. Walang sinuman sa inyo ang nagsisi sa inyong kasamaan. Wala man lang nagsabing, 'Ano ba itong ginawa ko?' Sa halip, ang bawat isa sa inyo ay naging mabilis sa paggawa ng kasalanan na parang kabayong papunta sa digmaan. 
+Pinakinggan kong mabuti ang mga sinabi nʼyo pero hindi tama ang mga ito. Walang sinuman sa inyo ang nagsisi sa inyong kasamaan. Wala man lang nagsabing, 'Ano ba itong ginawa ko?' Sa halip, ang bawat isa sa inyo ay naging mabilis sa paggawa ng kasalanan na parang kabayong papunta sa digmaan. 
 
 
 
@@ -304,7 +304,7 @@ Paano ninyo nasasabing marunong kayo, dahil ba alam ninyo ang mga kautusan ng Pa
 
 
 
-Mapapahiya ang mga nagsasabing sila ay_ marurunong. Matatakot sila dahil bibihagin sila. Itinakwil nila ang mga salita ko – gagawin ba nila ito kung talagang marunong sila? 
+Mapapahiya ang mga nagsasabing sila ay marurunong. Matatakot sila dahil bibihagin sila. Itinakwil nila ang mga salita ko – gagawin ba nila ito kung talagang marunong sila? 
 
 
 
@@ -403,7 +403,7 @@ Hindi nila siniseryoso ang paggamot sa sugat ng mga mamamayan ko, kahit malubha 
 
 
 
-Ikinakahiya ba nila ang mga ugali nilang kasuklam-suklam? Hindi! Sapagkat wala na silang kahihiyan! Ni hindi nga namumula ang kanilang mukha sa kahihiyan_. Kaya ako,_ ang Panginoon, ay nagsasabing mapapahamak sila katulad ng iba. Ibabagsak sila pagdating ng araw na parurusahan sila. 
+Ikinakahiya ba nila ang mga ugali nilang kasuklam-suklam? Hindi! Sapagkat wala na silang kahihiyan! Ni hindi nga namumula ang kanilang mukha sa kahihiyan. Kaya ako, ang Panginoon, ay nagsasabing mapapahamak sila katulad ng iba. Ibabagsak sila pagdating ng araw na parurusahan sila. 
 
 
 
@@ -469,7 +469,7 @@ Lubos ko silang lilipulin at sisirain ko ang mga bunga ng kanilang mga ubas at i
 
 
 
-"Pagkatapos, sasabihin nila,_ 'Ano pa ang hinihintay natin? Halikayo, tumakas na tayo papunta sa mga napapaderang lungsod at doon na tayo mamatay. Sapagkat hinatulan na tayong mamatay ng Panginoon na ating Dios. Parang_ binigyan niya tayo ng tubig na may lason para inumin, dahil nagkasala tayo sa kanya. 
+"Pagkatapos, sasabihin nila, 'Ano pa ang hinihintay natin? Halikayo, tumakas na tayo papunta sa mga napapaderang lungsod at doon na tayo mamatay. Sapagkat hinatulan na tayong mamatay ng Panginoon na ating Dios. Parang binigyan niya tayo ng tubig na may lason para inumin, dahil nagkasala tayo sa kanya. 
 
 
 
@@ -601,7 +601,7 @@ Sinabi ng Panginoon, "Makinig kayo! Magpapadala ako ng mga kaaway na parang mga 
 
 
 
-Pagkatapos, sinabi ni Jeremias:_ Hindi mapapawi ang kalungkutan ko. Nagdaramdam ang puso ko. 
+Pagkatapos, sinabi ni Jeremias: Hindi mapapawi ang kalungkutan ko. Nagdaramdam ang puso ko. 
 
 
 
@@ -634,7 +634,7 @@ Pagkatapos, sinabi ni Jeremias:_ Hindi mapapawi ang kalungkutan ko. Nagdaramdam 
 
 
 
-Pakinggan nʼyo ang iyakan ng mga kababayan ko na naririnig sa buong lupain. Sinabi nila,_ "Wala na ba ang Panginoon sa Jerusalem? Wala na ba roon ang Dios na Hari ng Jerusalem?" Sumagot ang Panginoon,_ "Bakit nʼyo ako ginalit sa pamamagitan ng pagsamba nʼyo sa mga dios-diosang walang kabuluhan?" 
+Pakinggan nʼyo ang iyakan ng mga kababayan ko na naririnig sa buong lupain. Sinabi nila, "Wala na ba ang Panginoon sa Jerusalem? Wala na ba roon ang Dios na Hari ng Jerusalem?" Sumagot ang Panginoon, "Bakit nʼyo ako ginalit sa pamamagitan ng pagsamba nʼyo sa mga dios-diosang walang kabuluhan?" 
 
 
 
@@ -667,7 +667,7 @@ Pakinggan nʼyo ang iyakan ng mga kababayan ko na naririnig sa buong lupain. Sin
 
 
 
-Sumagot ang mga tao,_ "Tapos na ang anihan, tapos na rin ang tag-araw, pero hindi pa kami naililigtas!" 
+Sumagot ang mga tao, "Tapos na ang anihan, tapos na rin ang tag-araw, pero hindi pa kami naililigtas!" 
 
 
 

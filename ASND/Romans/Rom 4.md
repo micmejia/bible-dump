@@ -73,7 +73,7 @@ Bilang halimbawa kung paano itinuturing ng Dios na matuwid ang tao, isipin ninyo
 
 
 
-Kung itinuring siya ng Dios_ na matuwid dahil sa mga nagawa niya, sanaʼy may maipagmamalaki siya. Pero wala siyang maipagmamalaki sa Dios, 
+Kung itinuring siya ng Dios na matuwid dahil sa mga nagawa niya, sanaʼy may maipagmamalaki siya. Pero wala siyang maipagmamalaki sa Dios, 
 
 
 
@@ -106,7 +106,7 @@ Kung itinuring siya ng Dios_ na matuwid dahil sa mga nagawa niya, sanaʼy may ma
 
 
 
-dahil sinasabi sa Kasulatan, "Sumampalataya si Abraham sa Dios, at dahil ditoʼy itinuring siyang matuwid ng Dios_." 
+dahil sinasabi sa Kasulatan, "Sumampalataya si Abraham sa Dios, at dahil ditoʼy itinuring siyang matuwid ng Dios." 
 
 
 
@@ -205,7 +205,7 @@ Pero itinuring tayong matuwid ng Dios sa kabila ng ating mga kasalanan hindi dah
 
 
 
-Ito ang ibig sabihin ni Haring David nang banggitin niya ang pagiging mapalad ng mga taong itinuring na matuwid ng Dios hindi dahil sa kanilang mabubuting_ gawa. 
+Ito ang ibig sabihin ni Haring David nang banggitin niya ang pagiging mapalad ng mga taong itinuring na matuwid ng Dios hindi dahil sa kanilang mabubuting gawa. 
 
 
 
@@ -238,7 +238,7 @@ Ito ang ibig sabihin ni Haring David nang banggitin niya ang pagiging mapalad ng
 
 
 
-Ang sinabi niya,_ "Mapalad ang taong pinatawad at kinalimutan na ng Dios ang kanyang kasalanan. 
+Ang sinabi niya, "Mapalad ang taong pinatawad at kinalimutan na ng Dios ang kanyang kasalanan. 
 
 
 
@@ -370,7 +370,7 @@ Kailan ba siya itinuring na matuwid? Hindi baʼt noong hindi pa siya tuli?
 
 
 
-Tinuli siya bilang tanda na itinuring na siyang matuwid dahil sa kanyang pananampalataya. Kaya si Abraham ay naging ama ng lahat ng mga mananampalatayang hindi tuli. At dahil nga sa kanilang pananampalataya, itinuring silang matuwid ng Dios_. 
+Tinuli siya bilang tanda na itinuring na siyang matuwid dahil sa kanyang pananampalataya. Kaya si Abraham ay naging ama ng lahat ng mga mananampalatayang hindi tuli. At dahil nga sa kanilang pananampalataya, itinuring silang matuwid ng Dios. 
 
 
 
@@ -403,7 +403,7 @@ Tinuli siya bilang tanda na itinuring na siyang matuwid dahil sa kanyang pananam
 
 
 
-Siya rin ang ama ng mga Judiong tuli, hindi lang dahil silaʼy tuli sa laman_, kundi dahil sumasampalataya rin sila tulad ng ating ninunong si Abraham noong hindi pa siya tuli.
+Siya rin ang ama ng mga Judiong tuli, hindi lang dahil silaʼy tuli sa laman, kundi dahil sumasampalataya rin sila tulad ng ating ninunong si Abraham noong hindi pa siya tuli.
 
 ## Natatanggap ang Pangako ng Dios sa Pamamagitan ng Pananampalataya 
 
@@ -438,7 +438,7 @@ Siya rin ang ama ng mga Judiong tuli, hindi lang dahil silaʼy tuli sa laman_, k
 
 
 
-Ipinangako ng Dios kay Abraham at sa kanyang lahi na mamanahin nila ang mundo. Ang pangakong ito ay ibinigay ng Dios kay Abraham hindi dahil sa pagsunod niya sa Kautusan, kundi dahil itinuring siya ng Dios na matuwid sa pamamagitan ng kanyang_ pananampalataya. 
+Ipinangako ng Dios kay Abraham at sa kanyang lahi na mamanahin nila ang mundo. Ang pangakong ito ay ibinigay ng Dios kay Abraham hindi dahil sa pagsunod niya sa Kautusan, kundi dahil itinuring siya ng Dios na matuwid sa pamamagitan ng kanyang pananampalataya. 
 
 
 
@@ -504,7 +504,7 @@ Kung ang mga nasasakop lamang ng Kautusan ang magiging tagapagmana, walang kabul
 
 
 
-Ang Kautusan ang siyang naging dahilan kung bakit may parusa mula sa Dios_. Kung walang Kautusan, wala ring paglabag. 
+Ang Kautusan ang siyang naging dahilan kung bakit may parusa mula sa Dios. Kung walang Kautusan, wala ring paglabag. 
 
 
 
@@ -537,7 +537,7 @@ Ang Kautusan ang siyang naging dahilan kung bakit may parusa mula sa Dios_. Kung
 
 
 
-Kaya nakabatay ang pangako ng Dios sa pananampalataya, para itoʼy maging biyaya ng Dios at tiyak na matatanggap ng lahat ng lahi ni Abraham – hindi lamang ng mga Judio na_ sakop ng Kautusan, kundi maging ng mga hindi Judio na_ sumasampalataya ring tulad ni Abraham na ama nating lahat. 
+Kaya nakabatay ang pangako ng Dios sa pananampalataya, para itoʼy maging biyaya ng Dios at tiyak na matatanggap ng lahat ng lahi ni Abraham – hindi lamang ng mga Judio na sakop ng Kautusan, kundi maging ng mga hindi Judio na sumasampalataya ring tulad ni Abraham na ama nating lahat. 
 
 
 
@@ -603,7 +603,7 @@ Gaya nga ng sinasabi sa Kasulatan, "Ginawa kitang ama ng maraming bansa." Kaya s
 
 
 
-Kahit na wala nang pag-asang maging ama_ si Abraham, nanalig pa rin siyang magiging ama siya ng maraming bansa; gaya nga ng sinabi ng Dios sa kanya, "Magiging kasindami ng bituin ang bilang ng mga anak mo." 
+Kahit na wala nang pag-asang maging ama si Abraham, nanalig pa rin siyang magiging ama siya ng maraming bansa; gaya nga ng sinabi ng Dios sa kanya, "Magiging kasindami ng bituin ang bilang ng mga anak mo." 
 
 
 
@@ -735,7 +735,7 @@ dahil lubos siyang umasa na tutuparin ng Dios ang kanyang pangako.
 
 
 
-Kaya nga, itinuring ng Dios_ na matuwid si Abraham dahil sa kanyang pananampalataya. 
+Kaya nga, itinuring ng Dios na matuwid si Abraham dahil sa kanyang pananampalataya. 
 
 
 
@@ -801,7 +801,7 @@ Pero ang katagang, "itinuring na matuwid," ay hindi lamang para kay Abraham,
 
 
 
-kundi para rin sa atin. Tayo rin ay itinuturing ng Dios_ na matuwid kung sumasampalataya tayo sa kanya na muling bumuhay sa ating Panginoong Jesus. 
+kundi para rin sa atin. Tayo rin ay itinuturing ng Dios na matuwid kung sumasampalataya tayo sa kanya na muling bumuhay sa ating Panginoong Jesus. 
 
 
 

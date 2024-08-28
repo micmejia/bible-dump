@@ -34,16 +34,16 @@ So they went to the land of Egypt, for they did not obey the voice of the Lord. 
 Then the word of the Lord came to Jeremiah in Tahpanhes, saying, 
 
 ###### 9 
-"Take large stones in your hand, and hide them in the sight of the men of Judah, in the clay in the brick courtyard which _is_ at the entrance to Pharaoh's house in Tahpanhes; 
+"Take large stones in your hand, and hide them in the sight of the men of Judah, in the clay in the brick courtyard which is at the entrance to Pharaoh's house in Tahpanhes; 
 
 ###### 10 
 and say to them, 'Thus says the Lord of hosts, the God of Israel: "Behold, I will send and bring Nebuchadnezzar the king of Babylon, My servant, and will set his throne above these stones that I have hidden. And he will spread his royal pavilion over them. 
 
 ###### 11 
-When he comes, he shall strike the land of Egypt _and deliver_ to death _those appointed_ for death, and to captivity _those appointed_ for captivity, and to the sword _those appointed_ for the sword. 
+When he comes, he shall strike the land of Egypt and deliver to death those appointed for death, and to captivity those appointed for captivity, and to the sword those appointed for the sword. 
 
 ###### 12 
 I will kindle a fire in the houses of the gods of Egypt, and he shall burn them and carry them away captive. And he shall array himself with the land of Egypt, as a shepherd puts on his garment, and he shall go out from there in peace. 
 
 ###### 13 
-He shall also break the _sacred_ pillars of Beth Shemesh that _are_ in the land of Egypt; and the houses of the gods of the Egyptians he shall burn with fire." ' "
+He shall also break the sacred pillars of Beth Shemesh that are in the land of Egypt; and the houses of the gods of the Egyptians he shall burn with fire." ' "

@@ -40,7 +40,7 @@ next: ['Judg 7']
 
 
 
-Muling_ gumawa ng kasamaan ang mga Israelita sa paningin ng Panginoon, kaya ipinasakop sila ng Panginoon sa mga Midianita sa loob ng pitong taon. 
+Muling gumawa ng kasamaan ang mga Israelita sa paningin ng Panginoon, kaya ipinasakop sila ng Panginoon sa mga Midianita sa loob ng pitong taon. 
 
 
 
@@ -172,7 +172,7 @@ Nagkampo sila sa lugar ng mga Israelita at sinira ang mga pananim nito hanggang 
 
 
 
-Sumalakay sila na dala ang kanilang tolda at mga hayop na parang kasindami ng mga balang. Hindi sila mabilang pati ang kanilang mga kamelyo. Winasak nila ang lugar ng mga Israelita_. 
+Sumalakay sila na dala ang kanilang tolda at mga hayop na parang kasindami ng mga balang. Hindi sila mabilang pati ang kanilang mga kamelyo. Winasak nila ang lugar ng mga Israelita. 
 
 
 
@@ -271,7 +271,7 @@ Nang tumawag sila sa Panginoon,
 
 
 
-pinadalhan sila ng Panginoon ng isang_ propeta na nagsabi sa kanila, "Ito ang sinasabi ng Panginoon na inyong Dios: 'Inilabas ko kayo sa Egipto na kung saan inalipin kayo. 
+pinadalhan sila ng Panginoon ng isang propeta na nagsabi sa kanila, "Ito ang sinasabi ng Panginoon na inyong Dios: 'Inilabas ko kayo sa Egipto na kung saan inalipin kayo. 
 
 
 
@@ -832,7 +832,7 @@ Nagpatayo roon si Gideon ng altar para sa Panginoon at tinawag niya itong, "Nagb
 
 
 
-Nang gabi ring iyon, sinabi ng Panginoon kay Gideon, "Kunin mo ang pangalawa sa pinakamagandang toro ng iyong ama, iyong pitong taong gulang na. Pagkatapos, gibain mo ang altar para kay Baal na ipinatayo ng iyong ama at gibain mo rin ang posteng simbolo ng diosang si_ Ashera na nasa tabi ng altar nito. 
+Nang gabi ring iyon, sinabi ng Panginoon kay Gideon, "Kunin mo ang pangalawa sa pinakamagandang toro ng iyong ama, iyong pitong taong gulang na. Pagkatapos, gibain mo ang altar para kay Baal na ipinatayo ng iyong ama at gibain mo rin ang posteng simbolo ng diosang si Ashera na nasa tabi ng altar nito. 
 
 
 
@@ -865,7 +865,7 @@ Nang gabi ring iyon, sinabi ng Panginoon kay Gideon, "Kunin mo ang pangalawa sa 
 
 
 
-Pagkatapos, magpatayo ka ng tamang_ altar para sa akin, ang_ Panginoon na iyong Dios sa ibabaw ng bundok na ito. Pagkatapos, ialay mo sa akin_ ang baka bilang handog na sinusunog. At gamitin mong panggatong ang pinutol mong poste ni_ Ashera." 
+Pagkatapos, magpatayo ka ng tamang altar para sa akin, ang Panginoon na iyong Dios sa ibabaw ng bundok na ito. Pagkatapos, ialay mo sa akin ang baka bilang handog na sinusunog. At gamitin mong panggatong ang pinutol mong poste ni Ashera." 
 
 
 
@@ -931,7 +931,7 @@ Kaya isinama ni Gideon ang sampu niyang utusan at ginawa niya ang iniutos sa kan
 
 
 
-Kinaumagahan, nakita ng mga tao na giba na ang altar para kay Baal, at putol-putol na ang poste ni_ Ashera at ito ang ipinanggatong sa baka na inihandog sa bagong altar. 
+Kinaumagahan, nakita ng mga tao na giba na ang altar para kay Baal, at putol-putol na ang poste ni Ashera at ito ang ipinanggatong sa baka na inihandog sa bagong altar. 
 
 
 
@@ -997,7 +997,7 @@ Tinanong nila ang isaʼt isa kung sino ang gumawa noon. Inusisa nila ito at nala
 
 
 
-Kayaʼt sinabihan nila si Joash, "Palabasin mo rito ang anak mo! Dapat siyang patayin! Dahil giniba niya ang altar para kay Baal at pinagputol-putol ang poste ni_ Ashera sa tabi nito." 
+Kayaʼt sinabihan nila si Joash, "Palabasin mo rito ang anak mo! Dapat siyang patayin! Dahil giniba niya ang altar para kay Baal at pinagputol-putol ang poste ni Ashera sa tabi nito." 
 
 
 
@@ -1096,7 +1096,7 @@ Mula noon, tinawag si Gideon na "Jerubaal" na ang ibig sabihin ay "Hayaang ipagt
 
 
 
-Ngayon, nagkaisa ang mga Midianita, Amalekita at iba pang mga tao sa silangan sa paglaban sa Israel_. Tumawid sila sa Ilog ng Jordan_ at nagkampo sa Lambak ng Jezreel. 
+Ngayon, nagkaisa ang mga Midianita, Amalekita at iba pang mga tao sa silangan sa paglaban sa Israel. Tumawid sila sa Ilog ng Jordan at nagkampo sa Lambak ng Jezreel. 
 
 
 
@@ -1162,7 +1162,7 @@ Ginabayan si Gideon ng Espiritu ng Panginoon at pinatunog niya ang trumpeta para
 
 
 
-Nagsugo rin siya ng mga mensahero sa buong lahi nina_ Manase, Asher, Zebulun at Naftali para tawagin sila na sumama sa pakikipaglaban. At sumama sila kay Gideon. 
+Nagsugo rin siya ng mga mensahero sa buong lahi nina Manase, Asher, Zebulun at Naftali para tawagin sila na sumama sa pakikipaglaban. At sumama sila kay Gideon. 
 
 
 

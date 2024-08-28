@@ -40,7 +40,7 @@ next: ['Isa 14']
 
 
 
-Ito ang mensahe tungkol sa Babilonia na ipinahayag ng Panginoon_ kay Isaias na anak ni Amoz: 
+Ito ang mensahe tungkol sa Babilonia na ipinahayag ng Panginoon kay Isaias na anak ni Amoz: 
 
 
 
@@ -370,7 +370,7 @@ Hindi na magniningning ang mga bituin. Sisikat ang araw pero madilim pa rin, at 
 
 
 
-Sinabi ng Panginoon,_ "Parurusahan ko ang mundo dahil sa kasamaan nito. Parurusahan ko_ ang mga makasalanan dahil sa kanilang kasalanan. Wawakasan ko ang kahambugan ng mayayabang. Patitigilin ko ang pagmamataas ng mga taong malupit. 
+Sinabi ng Panginoon, "Parurusahan ko ang mundo dahil sa kasamaan nito. Parurusahan ko ang mga makasalanan dahil sa kanilang kasalanan. Wawakasan ko ang kahambugan ng mayayabang. Patitigilin ko ang pagmamataas ng mga taong malupit. 
 
 
 
@@ -436,7 +436,7 @@ Kaunti lang ang matitirang tao, kaya mas mahirap silang hanapin kaysa sa dalisay
 
 
 
-Yayanigin ko ang langit at ang lupa. Ako,_ ang Panginoong Makapangyarihan ay gagawin ito sa araw na ipapakita ko ang matindi kong galit." 
+Yayanigin ko ang langit at ang lupa. Ako, ang Panginoong Makapangyarihan ay gagawin ito sa araw na ipapakita ko ang matindi kong galit." 
 
 
 

@@ -172,7 +172,7 @@ Sapagkat ito ang sinasabi ng Panginoon: Katatakutan mo ang kalagayan mo at ang k
 
 
 
-Ipapasamsam ko sa mga kaaway ang lahat ng kayamanan ng lungsod ng Jerusalem_ – lahat ng pinaghirapan nila, lahat ng mamahaling bagay at ang lahat ng kayamanan ng hari ng Juda. Dadalhin nila ang lahat ng iyon sa Babilonia. 
+Ipapasamsam ko sa mga kaaway ang lahat ng kayamanan ng lungsod ng Jerusalem – lahat ng pinaghirapan nila, lahat ng mamahaling bagay at ang lahat ng kayamanan ng hari ng Juda. Dadalhin nila ang lahat ng iyon sa Babilonia. 
 
 
 
@@ -337,7 +337,7 @@ Kung minsan, naiisip kong huwag na lang akong magsalita ng tungkol sa inyo o sab
 
 
 
-Narinig ko ang pangungutya ng mga tao. Inuulit nila ang mga sinasabi kong,_ "Nakakatakot ang nakapalibot sa atin!" Sinasabi pa nila,_ "Ipamalita natin ang kanyang kasinungalingan_!" Pati ang mga kaibigan koʼy naghihintay ng pagbagsak ko. Sinasabi nila, "Baka sakaling madaya natin siya. Kung mangyayari iyon, magtatagumpay tayo at mapaghihigantihan natin siya." 
+Narinig ko ang pangungutya ng mga tao. Inuulit nila ang mga sinasabi kong, "Nakakatakot ang nakapalibot sa atin!" Sinasabi pa nila, "Ipamalita natin ang kanyang kasinungalingan!" Pati ang mga kaibigan koʼy naghihintay ng pagbagsak ko. Sinasabi nila, "Baka sakaling madaya natin siya. Kung mangyayari iyon, magtatagumpay tayo at mapaghihigantihan natin siya." 
 
 
 

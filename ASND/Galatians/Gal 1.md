@@ -6,7 +6,7 @@ next: ['Gal 2']
 # Galatians 1
 
 ***
-###### 1-2 Mula kay_ Pablo na isang apostol, kasama ang lahat ng kapatid dito. Ang pagka-apostol ko ay hindi galing sa tao o sa pamamagitan ng tao, kundi sa pamamagitan ni Jesu-Cristo at ng Dios Ama na muling bumuhay sa kanya mula sa kamatayan. Mahal kong mga kapatid_ sa mga iglesya diyan sa Galacia: 
+###### 1-2 Mula kay Pablo na isang apostol, kasama ang lahat ng kapatid dito. Ang pagka-apostol ko ay hindi galing sa tao o sa pamamagitan ng tao, kundi sa pamamagitan ni Jesu-Cristo at ng Dios Ama na muling bumuhay sa kanya mula sa kamatayan. Mahal kong mga kapatid sa mga iglesya diyan sa Galacia: 
 
 
 
@@ -173,7 +173,7 @@ Nagtaka ako dahil ang dali ninyong tumalikod sa Dios na tumawag sa inyo sa pamam
 
 
 
-Ang totoo,_ walang ibang magandang balita. Nasabi ko ito dahil may mga taong nanggugulo sa inyo, at gusto nilang baluktutin ang Magandang Balita tungkol kay Cristo. 
+Ang totoo, walang ibang magandang balita. Nasabi ko ito dahil may mga taong nanggugulo sa inyo, at gusto nilang baluktutin ang Magandang Balita tungkol kay Cristo. 
 
 
 
@@ -272,7 +272,7 @@ Sinabi na namin sa inyo noon at muli kong sasabihin: Kung may mangangaral sa iny
 
 
 
-Huwag ninyong isipin na ang nais ko ay malugod sa akin ang tao. Hindi!_ Ang nais ko ay malugod sa akin ang Dios. Kung ang ikalulugod ng tao ang hinahanap ko, hindi ako tunay na lingkod ni Cristo.
+Huwag ninyong isipin na ang nais ko ay malugod sa akin ang tao. Hindi! Ang nais ko ay malugod sa akin ang Dios. Kung ang ikalulugod ng tao ang hinahanap ko, hindi ako tunay na lingkod ni Cristo.
 
 ## Paano Naging Apostol si Pablo 
 

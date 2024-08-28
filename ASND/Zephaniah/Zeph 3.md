@@ -39,7 +39,7 @@ up: ['Zephaniah']
 
 
 
-Sinabi ni Zefanias:_ Nakakaawa ang Jerusalem! Ang mga naninirahan dito ay nagrerebelde sa Dios at gumagawa ng karumihan. Ang kanyang mga pinuno ay mapang-api. 
+Sinabi ni Zefanias: Nakakaawa ang Jerusalem! Ang mga naninirahan dito ay nagrerebelde sa Dios at gumagawa ng karumihan. Ang kanyang mga pinuno ay mapang-api. 
 
 
 
@@ -138,7 +138,7 @@ Ang kanilang mga opisyal ay parang leon na umaatungal. Ang kanilang mga pinuno a
 
 
 
-Ang kanilang mga propeta ay padalos-dalos sa kanilang mga ginagawa at hindi mapagkakatiwalaan. Nilalapastangan ng kanilang mga pari ang mga bagay na banal at sinusuway ang Kautusan ng Dios_. 
+Ang kanilang mga propeta ay padalos-dalos sa kanilang mga ginagawa at hindi mapagkakatiwalaan. Nilalapastangan ng kanilang mga pari ang mga bagay na banal at sinusuway ang Kautusan ng Dios. 
 
 
 
@@ -171,7 +171,7 @@ Ang kanilang mga propeta ay padalos-dalos sa kanilang mga ginagawa at hindi mapa
 
 
 
-Pero_ naroon pa rin ang presensya ng Panginoon sa kanilang lungsod. Ginagawa ng Panginoon ang mabuti at hindi ang masama. Araw-araw ipinapakita niya ang kanyang katarungan, at nananatili siyang tapat. Pero ang masasama ay patuloy na gumagawa ng masama at_ hindi sila nahihiya. 
+Pero naroon pa rin ang presensya ng Panginoon sa kanilang lungsod. Ginagawa ng Panginoon ang mabuti at hindi ang masama. Araw-araw ipinapakita niya ang kanyang katarungan, at nananatili siyang tapat. Pero ang masasama ay patuloy na gumagawa ng masama at hindi sila nahihiya. 
 
 
 
@@ -204,7 +204,7 @@ Pero_ naroon pa rin ang presensya ng Panginoon sa kanilang lungsod. Ginagawa ng 
 
 
 
-Sinabi ng Panginoon,_ "Nilipol ko ang mga bansa; giniba ko ang kanilang mga lungsod pati ang kanilang mga pader at mga tore. Wala nang natirang mga mamamayan, kaya wala nang makikitang taong naglalakad sa kanilang mga lansangan. 
+Sinabi ng Panginoon, "Nilipol ko ang mga bansa; giniba ko ang kanilang mga lungsod pati ang kanilang mga pader at mga tore. Wala nang natirang mga mamamayan, kaya wala nang makikitang taong naglalakad sa kanilang mga lansangan. 
 
 
 
@@ -270,7 +270,7 @@ Dahil sa mga ginawa kong ito akala ko igagalang na ako ng aking mga mamamayan at
 
 
 
-"Kaya kayong tapat na mga taga-Jerusalem,_ hintayin ninyo ang araw na uusigin ko ang mga bansa. Sapagkat napagpasyahan kong tipunin ang mga bansa at ang mga kaharian para ibuhos sa kanila ang matindi kong galit na parang apoy na tutupok sa buong mundo. 
+"Kaya kayong tapat na mga taga-Jerusalem, hintayin ninyo ang araw na uusigin ko ang mga bansa. Sapagkat napagpasyahan kong tipunin ang mga bansa at ang mga kaharian para ibuhos sa kanila ang matindi kong galit na parang apoy na tutupok sa buong mundo. 
 
 
 
@@ -369,7 +369,7 @@ Ang aking mga mamamayang nangalat sa kabilang ibayo ng mga ilog ng Etiopia ay ma
 
 
 
-"Sa araw na iyon, kayong mga taga-Jerusalem ay_ hindi na mapapahiya sa lahat ng mga kasalanang ginawa ninyo sa akin, dahil aalisin ko sa inyo ang mga mapagmataas at mayayabang. Kaya wala nang magyayabang doon sa aking banal na bundok. 
+"Sa araw na iyon, kayong mga taga-Jerusalem ay hindi na mapapahiya sa lahat ng mga kasalanang ginawa ninyo sa akin, dahil aalisin ko sa inyo ang mga mapagmataas at mayayabang. Kaya wala nang magyayabang doon sa aking banal na bundok. 
 
 
 
@@ -468,7 +468,7 @@ Ang mga Israelitang ito ay hindi gagawa ng masama; hindi sila magsisinungaling o
 
 
 
-Sinabi ni Zefanias:_ Kayong mga mamamayan ng Israel, sumigaw kayo sa tuwa! Kayong mga mamamayan ng Zion, ang lungsod ng Jerusalem, umawit kayo at magalak nang buong puso! 
+Sinabi ni Zefanias: Kayong mga mamamayan ng Israel, sumigaw kayo sa tuwa! Kayong mga mamamayan ng Zion, ang lungsod ng Jerusalem, umawit kayo at magalak nang buong puso! 
 
 
 
@@ -501,7 +501,7 @@ Sinabi ni Zefanias:_ Kayong mga mamamayan ng Israel, sumigaw kayo sa tuwa! Kayon
 
 
 
-Sapagkat_ hindi na kayo parurusahan ng Panginoon. Palalayasin niya ang inyong mga kaaway. Kasama ninyo ang Panginoon, ang Hari ng Israel, kaya wala nang kasawiang dapat pang katakutan. 
+Sapagkat hindi na kayo parurusahan ng Panginoon. Palalayasin niya ang inyong mga kaaway. Kasama ninyo ang Panginoon, ang Hari ng Israel, kaya wala nang kasawiang dapat pang katakutan. 
 
 
 
@@ -534,7 +534,7 @@ Sapagkat_ hindi na kayo parurusahan ng Panginoon. Palalayasin niya ang inyong mg
 
 
 
-Sa araw na iyon, sasabihin ng mga tao sa mga taga-Jerusalem, "Mga mamamayan ng_ Zion, huwag kayong matakot; magpakatatag kayo. 
+Sa araw na iyon, sasabihin ng mga tao sa mga taga-Jerusalem, "Mga mamamayan ng Zion, huwag kayong matakot; magpakatatag kayo. 
 
 
 
@@ -567,7 +567,7 @@ Sa araw na iyon, sasabihin ng mga tao sa mga taga-Jerusalem, "Mga mamamayan ng_ 
 
 
 
-Sapagkat_ kasama ninyo ang Panginoon na inyong Dios. Katulad siya ng isang makapangyarihang sundalo na magliligtas sa inyo. Magagalak siya sa inyo, at sa pamamagitan ng kanyang pag-ibig ay babaguhin niya ang inyong buhay. Aawit siya nang may kagalakan dahil sa inyo, 
+Sapagkat kasama ninyo ang Panginoon na inyong Dios. Katulad siya ng isang makapangyarihang sundalo na magliligtas sa inyo. Magagalak siya sa inyo, at sa pamamagitan ng kanyang pag-ibig ay babaguhin niya ang inyong buhay. Aawit siya nang may kagalakan dahil sa inyo, 
 
 
 
@@ -600,7 +600,7 @@ Sapagkat_ kasama ninyo ang Panginoon na inyong Dios. Katulad siya ng isang makap
 
 
 
-gaya ng taong nagsasaya_ sa araw ng kapistahan." Sinabi pa ng Panginoon,_ "Ililigtas ko kayo sa kasawian para hindi na kayo malagay sa kahihiyan. 
+gaya ng taong nagsasaya sa araw ng kapistahan." Sinabi pa ng Panginoon, "Ililigtas ko kayo sa kasawian para hindi na kayo malagay sa kahihiyan. 
 
 
 
@@ -666,4 +666,4 @@ Sa araw na iyon, parurusahan ko ang lahat ng umaapi sa inyo. Kayo ay parang mga 
 
 
 
-Oo,_ titipunin ko kayo sa araw na iyon at pababalikin ko kayo sa inyong bansa. Pararangalan ko kayo at gagawing tanyag sa buong mundo. Mangyayari ito_ sa araw na panumbalikin ko ang inyong mabuting kalagayan at makikita ninyo mismo ito. Ako,_ ang Panginoon, ang nagsasabi nito."
+Oo, titipunin ko kayo sa araw na iyon at pababalikin ko kayo sa inyong bansa. Pararangalan ko kayo at gagawing tanyag sa buong mundo. Mangyayari ito sa araw na panumbalikin ko ang inyong mabuting kalagayan at makikita ninyo mismo ito. Ako, ang Panginoon, ang nagsasabi nito."

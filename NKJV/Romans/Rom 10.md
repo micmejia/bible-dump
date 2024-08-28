@@ -19,13 +19,13 @@ For I bear them witness that they have a zeal for God, but not according to know
 For they being ignorant of God's righteousness, and seeking to establish their own righteousness, have not submitted to the righteousness of God. 
 
 ###### 4 
-For Christ _is_ the end of the law for righteousness to everyone who believes. 
+For Christ is the end of the law for righteousness to everyone who believes. 
 
 ###### 5 
 For Moses writes about the righteousness which is of the law, "The man who does those things shall live by them." 
 
 ###### 6 
-But the righteousness of faith speaks in this way, "Do not say in your heart, 'Who will ascend into heaven?' " (that is, to bring Christ down _from above_) 
+But the righteousness of faith speaks in this way, "Do not say in your heart, 'Who will ascend into heaven?' " (that is, to bring Christ down from above) 
 
 ###### 7 
 or, " 'Who will descend into the abyss?' " (that is, to bring Christ up from the dead). 
@@ -58,13 +58,13 @@ And how shall they preach unless they are sent? As it is written: "How beautiful
 But they have not all obeyed the gospel. For Isaiah says, "Lord, who has believed our report?" 
 
 ###### 17 
-So then faith _comes_ by hearing, and hearing by the word of God. 
+So then faith comes by hearing, and hearing by the word of God. 
 
 ###### 18 
 But I say, have they not heard? Yes indeed: "Their sound has gone out to all the earth, And their words to the ends of the world." 
 
 ###### 19 
-But I say, did Israel not know? First Moses says: "I will provoke you to jealousy by _those who are_ not a nation, I will move you to anger by a foolish nation." 
+But I say, did Israel not know? First Moses says: "I will provoke you to jealousy by those who are not a nation, I will move you to anger by a foolish nation." 
 
 ###### 20 
 But Isaiah is very bold and says: "I was found by those who did not seek Me; I was made manifest to those who did not ask for Me." 

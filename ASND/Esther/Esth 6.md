@@ -106,7 +106,7 @@ Nabasa ang bahagi ng kasaysayan tungkol sa pagkakatuklas ni Mordecai sa plano ni
 
 
 
-Sa nabasang iyon, nagtanong ang hari, "Anong gantimpala o parangal ang ginawa o ibinigay kay Mordecai dahil sa mabuting ginawa niya sa akin?" Sinabi ng lingkod ng hari, "Wala po, Mahal na Hari_." 
+Sa nabasang iyon, nagtanong ang hari, "Anong gantimpala o parangal ang ginawa o ibinigay kay Mordecai dahil sa mabuting ginawa niya sa akin?" Sinabi ng lingkod ng hari, "Wala po, Mahal na Hari." 
 
 
 
@@ -436,7 +436,7 @@ Pagkatapos, bumalik si Mordecai sa pintuan ng palasyo. Si Haman naman ay dali-da
 
 
 
-Pagdating niya sa bahay, isinalaysay niya sa asawa niyang si Zeres at sa mga kaibigan niya ang lahat ng nangyari. Sinabi sa kanya ng asawa niya at mga kaibigan na mga tagapayo niya_, "Unti-unti ka nang nadadaig ni Mordecai. Hindi mo siya madadaig dahil isa siyang Judio. Tiyak na ikaw ang matatalo." 
+Pagdating niya sa bahay, isinalaysay niya sa asawa niyang si Zeres at sa mga kaibigan niya ang lahat ng nangyari. Sinabi sa kanya ng asawa niya at mga kaibigan na mga tagapayo niya, "Unti-unti ka nang nadadaig ni Mordecai. Hindi mo siya madadaig dahil isa siyang Judio. Tiyak na ikaw ang matatalo." 
 
 
 

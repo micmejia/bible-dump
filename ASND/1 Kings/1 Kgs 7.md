@@ -306,7 +306,7 @@ Ang mga pundasyon ay gawa sa malalaki at magagandang uri ng bato. Ang haba ng ib
 
 
 
-Sa ibabaw nito ay mga kahoy na_ sedro at mamahaling mga bato na tinabas ayon sa tamang sukat. 
+Sa ibabaw nito ay mga kahoy na sedro at mamahaling mga bato na tinabas ayon sa tamang sukat. 
 
 
 
@@ -539,7 +539,7 @@ Ang bawat ulo ng haligi ay napapalamutian ng pitong kadenang dugtong-dugtong
 
 
 
-na may dalawang hilerang palamuti na ang hugis ay parang prutas na_ pomegranata. 
+na may dalawang hilerang palamuti na ang hugis ay parang prutas na pomegranata. 
 
 
 
@@ -572,7 +572,7 @@ na may dalawang hilerang palamuti na ang hugis ay parang prutas na_ pomegranata.
 
 
 
-Ang hugis ng ulo ng mga haligi sa balkonahe ay parang mga bulaklak na_ liryo, at ang taas nito ay anim na talampakan. 
+Ang hugis ng ulo ng mga haligi sa balkonahe ay parang mga bulaklak na liryo, at ang taas nito ay anim na talampakan. 
 
 
 
@@ -605,7 +605,7 @@ Ang hugis ng ulo ng mga haligi sa balkonahe ay parang mga bulaklak na_ liryo, at
 
 
 
-Ang bawat ulo ng dalawang haligi ay napapaligiran ng dalawang hilera na may 200 na palamuti na ang hugis ay parang prutas na_ pomegranata. Ang palamuting ito ay nasa ibabaw ng bilog na bahagi ng ulo, sa tabi ng mga kadena. 
+Ang bawat ulo ng dalawang haligi ay napapaligiran ng dalawang hilera na may 200 na palamuti na ang hugis ay parang prutas na pomegranata. Ang palamuting ito ay nasa ibabaw ng bilog na bahagi ng ulo, sa tabi ng mga kadena. 
 
 
 
@@ -671,7 +671,7 @@ Itinayo ni Huram ang mga haligi sa balkonahe ng templo. Ang haligi sa gawing tim
 
 
 
-Ang hugis ng mga ulo ng mga haligi ay parang mga bulaklak na_ liryo. At natapos ang pagpapagawa ng mga haligi. 
+Ang hugis ng mga ulo ng mga haligi ay parang mga bulaklak na liryo. At natapos ang pagpapagawa ng mga haligi. 
 
 
 
@@ -704,7 +704,7 @@ Ang hugis ng mga ulo ng mga haligi ay parang mga bulaklak na_ liryo. At natapos 
 
 
 
-Pagkatapos, gumawa si Huram ng malaking lalagyan ng tubig na parang_ kawa, na tinatawag_ na Dagat. Ang lalim nito ay pitoʼt kalahating talampakan, ang luwang ay 15 talampakan at ang sukat sa paligid ay 45 talampakan. 
+Pagkatapos, gumawa si Huram ng malaking lalagyan ng tubig na parang kawa, na tinatawag na Dagat. Ang lalim nito ay pitoʼt kalahating talampakan, ang luwang ay 15 talampakan at ang sukat sa paligid ay 45 talampakan. 
 
 
 
@@ -770,7 +770,7 @@ Napapalibutan ito ng dalawang hilerang palamuti sa ilalim ng bibig nito. Ang bil
 
 
 
-Nakapatong ang sisidlan sa likod ng 12 tansong_ toro na magkakatalikod. Ang tatlong toro ay nakaharap sa gawing hilaga, ang tatlo ay sa kanluran, ang tatlo ay sa timog, at ang tatlo naman ay sa gawing silangan. 
+Nakapatong ang sisidlan sa likod ng 12 tansong toro na magkakatalikod. Ang tatlong toro ay nakaharap sa gawing hilaga, ang tatlo ay sa kanluran, ang tatlo ay sa timog, at ang tatlo naman ay sa gawing silangan. 
 
 
 
@@ -803,7 +803,7 @@ Nakapatong ang sisidlan sa likod ng 12 tansong_ toro na magkakatalikod. Ang tatl
 
 
 
-Ang kapal ng sisidlan ay mga tatlong pulgada at ang ilalim nito ay parang bibig ng tasa na nakakurba palabas_ katulad ng namumukadkad na bulaklak ng_ liryo. At maaari itong malagyan ng mga 11,000 galong tubig. 
+Ang kapal ng sisidlan ay mga tatlong pulgada at ang ilalim nito ay parang bibig ng tasa na nakakurba palabas katulad ng namumukadkad na bulaklak ng liryo. At maaari itong malagyan ng mga 11,000 galong tubig. 
 
 
 
@@ -1166,7 +1166,7 @@ Nagpagawa rin si Huram ng sampung tansong planggana – isa para sa bawat karito
 
 
 
-Inilagay niya ang limang kariton sa bandang timog ng templo at ang lima namaʼy sa bandang hilaga. Inilagay niya ang lalagyan ng tubig na tinatawag na_ Dagat sa pagitan ng gawing silangan at gawing timog ng templo. 
+Inilagay niya ang limang kariton sa bandang timog ng templo at ang lima namaʼy sa bandang hilaga. Inilagay niya ang lalagyan ng tubig na tinatawag na Dagat sa pagitan ng gawing silangan at gawing timog ng templo. 
 
 
 
@@ -1199,7 +1199,7 @@ Inilagay niya ang limang kariton sa bandang timog ng templo at ang lima namaʼy 
 
 
 
-Nagpagawa rin siya ng mga palayok, mga pala at mga mangkok na ginagamit sa pangwisik_. Natapos ni Huram ang lahat ng ipinagawa sa kanya ni Haring Solomon para sa templo ng Panginoon. Ito ang kanyang mga ginawa:_ 
+Nagpagawa rin siya ng mga palayok, mga pala at mga mangkok na ginagamit sa pangwisik. Natapos ni Huram ang lahat ng ipinagawa sa kanya ni Haring Solomon para sa templo ng Panginoon. Ito ang kanyang mga ginawa: 
 
 
 
@@ -1265,7 +1265,7 @@ ang dalawang haligi; ang dalawang parang mangkok na ulo ng mga haligi; ang dalaw
 
 
 
-ang 400 palamuti na ang hugis ay parang prutas_ na pomegranata (nakakabit ang dalawang hilera nito sa bawat magkadugtong na mga kadenang nakapaikot sa ulo ng mga haligi); 
+ang 400 palamuti na ang hugis ay parang prutas na pomegranata (nakakabit ang dalawang hilera nito sa bawat magkadugtong na mga kadenang nakapaikot sa ulo ng mga haligi); 
 
 
 
@@ -1331,7 +1331,7 @@ ang sampung kariton at ang sampung planggana nito;
 
 
 
-ang lalagyan ng tubig na tinatawag na_ Dagat at ang 12 tansong_ toro sa ilalim nito; 
+ang lalagyan ng tubig na tinatawag na Dagat at ang 12 tansong toro sa ilalim nito; 
 
 
 
@@ -1364,7 +1364,7 @@ ang lalagyan ng tubig na tinatawag na_ Dagat at ang 12 tansong_ toro sa ilalim n
 
 
 
-ang mga palayok, mga pala at mga mangkok na ginagamit sa pangwisik_. Ang lahat ng ito na ipinagawa ni Haring Solomon kay Huram na para sa templo ng Panginoon ay gawa lahat sa pinakinang na tanso. 
+ang mga palayok, mga pala at mga mangkok na ginagamit sa pangwisik. Ang lahat ng ito na ipinagawa ni Haring Solomon kay Huram na para sa templo ng Panginoon ay gawa lahat sa pinakinang na tanso. 
 
 
 

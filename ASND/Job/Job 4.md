@@ -106,7 +106,7 @@ Nagsalita si Elifaz na taga-Teman. Sinabi niya,
 
 
 
-Noon, pinapayuhan mo ang maraming tao na magtiwala sa Dios_, at pinalalakas ang mahihina at nanlulupaypay. 
+Noon, pinapayuhan mo ang maraming tao na magtiwala sa Dios, at pinalalakas ang mahihina at nanlulupaypay. 
 
 
 
@@ -337,7 +337,7 @@ Sa isang bugso lamang ng galit ng Dios, mapapahamak sila.
 
 
 
-Kahit na silaʼy tulad ng_ malakas at mabangis na leon, tatanggalin pa rin ang kanilang mga ngipin. 
+Kahit na silaʼy tulad ng malakas at mabangis na leon, tatanggalin pa rin ang kanilang mga ngipin. 
 
 
 

@@ -16,7 +16,7 @@ The word of the Lord came to me again, saying,
 "What do you mean when you use this proverb concerning the land of Israel, saying: 'The fathers have eaten sour grapes, And the children's teeth are set on edge'? 
 
 ###### 3 
-"_As_ I live," says the Lord God, "you shall no longer use this proverb in Israel. 
+"As I live," says the Lord God, "you shall no longer use this proverb in Israel. 
 
 ###### 4 
 "Behold, all souls are Mine; The soul of the father As well as the soul of the son is Mine; The soul who sins shall die. 
@@ -28,40 +28,40 @@ But if a man is just And does what is lawful and right;
 If he has not eaten on the mountains, Nor lifted up his eyes to the idols of the house of Israel, Nor defiled his neighbor's wife, Nor approached a woman during her impurity; 
 
 ###### 7 
-If he has not oppressed anyone, _But_ has restored to the debtor his pledge; Has robbed no one by violence, _But_ has given his bread to the hungry And covered the naked with clothing; 
+If he has not oppressed anyone, But has restored to the debtor his pledge; Has robbed no one by violence, But has given his bread to the hungry And covered the naked with clothing; 
 
 ###### 8 
-If he has not exacted usury Nor taken any increase, _But_ has withdrawn his hand from iniquity _And_ executed true judgment between man and man; 
+If he has not exacted usury Nor taken any increase, But has withdrawn his hand from iniquity And executed true judgment between man and man; 
 
 ###### 9 
-_If_ he has walked in My statutes And kept My judgments faithfully-- He _is_ just; He shall surely live!" Says the Lord God. 
+If he has walked in My statutes And kept My judgments faithfully-- He is just; He shall surely live!" Says the Lord God. 
 
 ###### 10 
-"If he begets a son _who is_ a robber Or a shedder of blood, _Who_ does any of these _things_ 
+"If he begets a son who is a robber Or a shedder of blood, Who does any of these things 
 
 ###### 11 
-And does none of those _duties,_ But has eaten on the mountains Or defiled his neighbor's wife; 
+And does none of those duties, But has eaten on the mountains Or defiled his neighbor's wife; 
 
 ###### 12 
-If he has oppressed the poor and needy, Robbed by violence, Not restored the pledge, Lifted his eyes to the idols, _Or_ committed abomination; 
+If he has oppressed the poor and needy, Robbed by violence, Not restored the pledge, Lifted his eyes to the idols, Or committed abomination; 
 
 ###### 13 
 If he has exacted usury Or taken increase-- Shall he then live? He shall not live! If he has done any of these abominations, He shall surely die; His blood shall be upon him. 
 
 ###### 14 
-"_If,_ however, he begets a son Who sees all the sins which his father has done, And considers but does not do likewise; 
+"If, however, he begets a son Who sees all the sins which his father has done, And considers but does not do likewise; 
 
 ###### 15 
-_Who_ has not eaten on the mountains, Nor lifted his eyes to the idols of the house of Israel, Nor defiled his neighbor's wife; 
+Who has not eaten on the mountains, Nor lifted his eyes to the idols of the house of Israel, Nor defiled his neighbor's wife; 
 
 ###### 16 
-Has not oppressed anyone, Nor withheld a pledge, Nor robbed by violence, _But_ has given his bread to the hungry And covered the naked with clothing; 
+Has not oppressed anyone, Nor withheld a pledge, Nor robbed by violence, But has given his bread to the hungry And covered the naked with clothing; 
 
 ###### 17 
-_Who_ has withdrawn his hand from the poor _And_ not received usury or increase, But has executed My judgments And walked in My statutes-- He shall not die for the iniquity of his father; He shall surely live! 
+Who has withdrawn his hand from the poor And not received usury or increase, But has executed My judgments And walked in My statutes-- He shall not die for the iniquity of his father; He shall surely live! 
 
 ###### 18 
-"_As for_ his father, Because he cruelly oppressed, Robbed his brother by violence, And did what _is_ not good among his people, Behold, he shall die for his iniquity.
+"As for his father, Because he cruelly oppressed, Robbed his brother by violence, And did what is not good among his people, Behold, he shall die for his iniquity.
 
 ## Turn and Live 
 
@@ -78,19 +78,19 @@ The soul who sins shall die. The son shall not bear the guilt of the father, nor
 None of the transgressions which he has committed shall be remembered against him; because of the righteousness which he has done, he shall live. 
 
 ###### 23 
-Do I have any pleasure at all that the wicked should die?" says the Lord God, "_and_ not that he should turn from his ways and live? 
+Do I have any pleasure at all that the wicked should die?" says the Lord God, "and not that he should turn from his ways and live? 
 
 ###### 24 
-"But when a righteous man turns away from his righteousness and commits iniquity, and does according to all the abominations that the wicked _man_ does, shall he live? All the righteousness which he has done shall not be remembered; because of the unfaithfulness of which he is guilty and the sin which he has committed, because of them he shall die. 
+"But when a righteous man turns away from his righteousness and commits iniquity, and does according to all the abominations that the wicked man does, shall he live? All the righteousness which he has done shall not be remembered; because of the unfaithfulness of which he is guilty and the sin which he has committed, because of them he shall die. 
 
 ###### 25 
 "Yet you say, 'The way of the Lord is not fair.' Hear now, O house of Israel, is it not My way which is fair, and your ways which are not fair? 
 
 ###### 26 
-When a righteous _man_ turns away from his righteousness, commits iniquity, and dies in it, it is because of the iniquity which he has done that he dies. 
+When a righteous man turns away from his righteousness, commits iniquity, and dies in it, it is because of the iniquity which he has done that he dies. 
 
 ###### 27 
-Again, when a wicked _man_ turns away from the wickedness which he committed, and does what is lawful and right, he preserves himself alive. 
+Again, when a wicked man turns away from the wickedness which he committed, and does what is lawful and right, he preserves himself alive. 
 
 ###### 28 
 Because he considers and turns away from all the transgressions which he committed, he shall surely live; he shall not die. 

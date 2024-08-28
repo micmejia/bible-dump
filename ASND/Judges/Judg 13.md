@@ -106,7 +106,7 @@ Nang panahong iyon, may isang lalaki na ang pangalan ay Manoa. Kabilang siya sa 
 
 
 
-Isang araw,_ nagpakita ang anghel ng Panginoon sa asawa ni Manoa at nagsabi, "Hanggang ngayon ay wala ka pang anak. Pero hindi magtatagal, magbubuntis ka at manganganak ng isang lalaki. 
+Isang araw, nagpakita ang anghel ng Panginoon sa asawa ni Manoa at nagsabi, "Hanggang ngayon ay wala ka pang anak. Pero hindi magtatagal, magbubuntis ka at manganganak ng isang lalaki. 
 
 
 
@@ -634,7 +634,7 @@ Sumagot ang anghel, "Bakit gusto mong malaman ang pangalan ko? Mahirap itong mai
 
 
 
-Pagkatapos, kumuha si Manoa ng batang kambing at inihandog niya bilang pagpaparangal sa Panginoon, at inilagay niya ito sa ibabaw ng altar na_ bato para sa Panginoon. Habang nakatitig si Manoa at ang asawa niya,_ gumawa ang Panginoon ng kamangha-manghang bagay. 
+Pagkatapos, kumuha si Manoa ng batang kambing at inihandog niya bilang pagpaparangal sa Panginoon, at inilagay niya ito sa ibabaw ng altar na bato para sa Panginoon. Habang nakatitig si Manoa at ang asawa niya, gumawa ang Panginoon ng kamangha-manghang bagay. 
 
 
 

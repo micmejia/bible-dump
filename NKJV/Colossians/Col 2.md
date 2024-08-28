@@ -10,10 +10,10 @@ next: ['Col 3']
 
 
 ###### 1 
-For I want you to know what a great conflict I have for you and those in Laodicea, and _for_ as many as have not seen my face in the flesh, 
+For I want you to know what a great conflict I have for you and those in Laodicea, and for as many as have not seen my face in the flesh, 
 
 ###### 2 
-that their hearts may be encouraged, being knit together in love, and _attaining_ to all riches of the full assurance of understanding, to the knowledge of the mystery of God, both of the Father and of Christ, 
+that their hearts may be encouraged, being knit together in love, and attaining to all riches of the full assurance of understanding, to the knowledge of the mystery of God, both of the Father and of Christ, 
 
 ###### 3 
 in whom are hidden all the treasures of wisdom and knowledge. 
@@ -22,7 +22,7 @@ in whom are hidden all the treasures of wisdom and knowledge.
 Now this I say lest anyone should deceive you with persuasive words. 
 
 ###### 5 
-For though I am absent in the flesh, yet I am with you in spirit, rejoicing to see your _good_ order and the steadfastness of your faith in Christ. 
+For though I am absent in the flesh, yet I am with you in spirit, rejoicing to see your good order and the steadfastness of your faith in Christ. 
 
 ###### 6 
 As you therefore have received Christ Jesus the Lord, so walk in Him, 
@@ -45,7 +45,7 @@ and you are complete in Him, who is the head of all principality and power.
 In Him you were also circumcised with the circumcision made without hands, by putting off the body of the sins of the flesh, by the circumcision of Christ, 
 
 ###### 12 
-buried with Him in baptism, in which you also were raised with _Him_ through faith in the working of God, who raised Him from the dead. 
+buried with Him in baptism, in which you also were raised with Him through faith in the working of God, who raised Him from the dead. 
 
 ###### 13 
 And you, being dead in your trespasses and the uncircumcision of your flesh, He has made alive together with Him, having forgiven you all trespasses, 
@@ -63,13 +63,13 @@ So let no one judge you in food or in drink, or regarding a festival or a new mo
 which are a shadow of things to come, but the substance is of Christ. 
 
 ###### 18 
-Let no one cheat you of your reward, taking delight in _false_ humility and worship of angels, intruding into those things which he has not seen, vainly puffed up by his fleshly mind, 
+Let no one cheat you of your reward, taking delight in false humility and worship of angels, intruding into those things which he has not seen, vainly puffed up by his fleshly mind, 
 
 ###### 19 
-and not holding fast to the Head, from whom all the body, nourished and knit together by joints and ligaments, grows with the increase _that is_ from God. 
+and not holding fast to the Head, from whom all the body, nourished and knit together by joints and ligaments, grows with the increase that is from God. 
 
 ###### 20 
-Therefore, if you died with Christ from the basic principles of the world, why, as _though_ living in the world, do you subject yourselves to regulations-- 
+Therefore, if you died with Christ from the basic principles of the world, why, as though living in the world, do you subject yourselves to regulations-- 
 
 ###### 21 
 "Do not touch, do not taste, do not handle," 
@@ -78,4 +78,4 @@ Therefore, if you died with Christ from the basic principles of the world, why, 
 which all concern things which perish with the using--according to the commandments and doctrines of men? 
 
 ###### 23 
-These things indeed have an appearance of wisdom in self-imposed religion, _false_ humility, and neglect of the body, _but are_ of no value against the indulgence of the flesh.
+These things indeed have an appearance of wisdom in self-imposed religion, false humility, and neglect of the body, but are of no value against the indulgence of the flesh.

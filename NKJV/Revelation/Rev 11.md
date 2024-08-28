@@ -13,10 +13,10 @@ next: ['Rev 12']
 Then I was given a reed like a measuring rod. And the angel stood, saying, "Rise and measure the temple of God, the altar, and those who worship there. 
 
 ###### 2 
-But leave out the court which is outside the temple, and do not measure it, for it has been given to the Gentiles. And they will tread the holy city underfoot _for_ forty-two months. 
+But leave out the court which is outside the temple, and do not measure it, for it has been given to the Gentiles. And they will tread the holy city underfoot for forty-two months. 
 
 ###### 3 
-And I will give _power_ to my two witnesses, and they will prophesy one thousand two hundred and sixty days, clothed in sackcloth." 
+And I will give power to my two witnesses, and they will prophesy one thousand two hundred and sixty days, clothed in sackcloth." 
 
 ###### 4 
 These are the two olive trees and the two lampstands standing before the God of the earth. 
@@ -33,10 +33,10 @@ These have power to shut heaven, so that no rain falls in the days of their prop
 When they finish their testimony, the beast that ascends out of the bottomless pit will make war against them, overcome them, and kill them. 
 
 ###### 8 
-And their dead bodies _will lie_ in the street of the great city which spiritually is called Sodom and Egypt, where also our Lord was crucified. 
+And their dead bodies will lie in the street of the great city which spiritually is called Sodom and Egypt, where also our Lord was crucified. 
 
 ###### 9 
-Then _those_ from the peoples, tribes, tongues, and nations will see their dead bodies three-and-a-half days, and not allow their dead bodies to be put into graves. 
+Then those from the peoples, tribes, tongues, and nations will see their dead bodies three-and-a-half days, and not allow their dead bodies to be put into graves. 
 
 ###### 10 
 And those who dwell on the earth will rejoice over them, make merry, and send gifts to one another, because these two prophets tormented those who dwell on the earth.
@@ -58,7 +58,7 @@ The second woe is past. Behold, the third woe is coming quickly.
 ## Seventh Trumpet: The Kingdom Proclaimed 
 
 ###### 15 
-Then the seventh angel sounded: And there were loud voices in heaven, saying, "The kingdoms of this world have become _the kingdoms_ of our Lord and of His Christ, and He shall reign forever and ever!" 
+Then the seventh angel sounded: And there were loud voices in heaven, saying, "The kingdoms of this world have become the kingdoms of our Lord and of His Christ, and He shall reign forever and ever!" 
 
 ###### 16 
 And the twenty-four elders who sat before God on their thrones fell on their faces and worshiped God, 

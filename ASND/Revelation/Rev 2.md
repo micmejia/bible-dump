@@ -172,7 +172,7 @@ Ngunit ito ang ayaw ko sa inyo: ang inyong pag-ibig sa akin ngayon ay hindi na t
 
 
 
-Alalahanin ninyo kung gaano kayo nanamlay sa pananampalataya_. Magsisi kayo sa mga kasalanan ninyo at gawing muli ang dati ninyong ginagawa. Kung hindi, pupuntahan ko kayo at kukunin ang inyong ilawan. 
+Alalahanin ninyo kung gaano kayo nanamlay sa pananampalataya. Magsisi kayo sa mga kasalanan ninyo at gawing muli ang dati ninyong ginagawa. Kung hindi, pupuntahan ko kayo at kukunin ang inyong ilawan. 
 
 
 
@@ -238,7 +238,7 @@ Ngunit ito ang gusto ko sa inyo: kinasusuklaman ninyo ang mga ginagawa ng mga Ni
 
 
 
-"Kayong nakikinig, pag-isipan ninyong mabuti ang sinasabi ng Banal na_ Espiritu sa mga iglesya. "Ang magtatagumpay ay papayagan kong kumain ng bunga ng punongkahoy na nagbibigay ng buhay. Ang punong ito ay nasa paraiso ng Dios." ## Ang Sulat para sa Iglesya sa Smirna 
+"Kayong nakikinig, pag-isipan ninyong mabuti ang sinasabi ng Banal na Espiritu sa mga iglesya. "Ang magtatagumpay ay papayagan kong kumain ng bunga ng punongkahoy na nagbibigay ng buhay. Ang punong ito ay nasa paraiso ng Dios." ## Ang Sulat para sa Iglesya sa Smirna 
 
 
 
@@ -271,7 +271,7 @@ Ngunit ito ang gusto ko sa inyo: kinasusuklaman ninyo ang mga ginagawa ng mga Ni
 
 
 
-"Isulat mo ito para sa anghel na nagbabantay sa iglesya sa Smirna: "Ito ang mensahe niya_ na siyang simula at katapusan ng lahat_, na namatay ngunit muling nabuhay: 
+"Isulat mo ito para sa anghel na nagbabantay sa iglesya sa Smirna: "Ito ang mensahe niya na siyang simula at katapusan ng lahat, na namatay ngunit muling nabuhay: 
 
 
 
@@ -304,7 +304,7 @@ Ngunit ito ang gusto ko sa inyo: kinasusuklaman ninyo ang mga ginagawa ng mga Ni
 
 
 
-Alam ko ang inyong pagtitiis. Alam ko ring mahirap kayo, ngunit mayaman sa espiritwal na mga bagay_. Alam kong hinahamak kayo ng mga taong nagsasabing mga Judio sila, ngunit ang totooʼy mga kampon sila ni Satanas. 
+Alam ko ang inyong pagtitiis. Alam ko ring mahirap kayo, ngunit mayaman sa espiritwal na mga bagay. Alam kong hinahamak kayo ng mga taong nagsasabing mga Judio sila, ngunit ang totooʼy mga kampon sila ni Satanas. 
 
 
 
@@ -337,7 +337,7 @@ Alam ko ang inyong pagtitiis. Alam ko ring mahirap kayo, ngunit mayaman sa espir
 
 
 
-Huwag kayong matakot sa mga paghihirap na malapit na ninyong danasin. Tandaan ninyo: Ipapabilanggo ni Satanas ang ilan sa inyo upang subukan kayo. Daranas kayo ng pang-uusig sa loob ng sampung araw. Manatili kayong tapat hanggang kamatayan, at gagantimpalaan ko kayo ng buhay na walang hanggan_. 
+Huwag kayong matakot sa mga paghihirap na malapit na ninyong danasin. Tandaan ninyo: Ipapabilanggo ni Satanas ang ilan sa inyo upang subukan kayo. Daranas kayo ng pang-uusig sa loob ng sampung araw. Manatili kayong tapat hanggang kamatayan, at gagantimpalaan ko kayo ng buhay na walang hanggan. 
 
 
 
@@ -370,7 +370,7 @@ Huwag kayong matakot sa mga paghihirap na malapit na ninyong danasin. Tandaan ni
 
 
 
-"Kayong nakikinig, pag-isipan ninyong mabuti ang sinasabi ng Banal na_ Espiritu sa mga iglesya. "Ang magtatagumpay ay hindi makakaranas ng ikalawang kamatayan." ## Ang Sulat para sa Iglesya sa Pergamum 
+"Kayong nakikinig, pag-isipan ninyong mabuti ang sinasabi ng Banal na Espiritu sa mga iglesya. "Ang magtatagumpay ay hindi makakaranas ng ikalawang kamatayan." ## Ang Sulat para sa Iglesya sa Pergamum 
 
 
 
@@ -436,7 +436,7 @@ Huwag kayong matakot sa mga paghihirap na malapit na ninyong danasin. Tandaan ni
 
 
 
-Alam ko na kahit nakatira kayo sa lugar na hawak ni Satanas ay nananatili pa rin kayong tapat sa akin. Sapagkat hindi kayo tumalikod sa pananampalataya ninyo_ sa akin, kahit noong patayin si Antipas na tapat kong saksi riyan sa lugar ninyo na tirahan ni Satanas. 
+Alam ko na kahit nakatira kayo sa lugar na hawak ni Satanas ay nananatili pa rin kayong tapat sa akin. Sapagkat hindi kayo tumalikod sa pananampalataya ninyo sa akin, kahit noong patayin si Antipas na tapat kong saksi riyan sa lugar ninyo na tirahan ni Satanas. 
 
 
 
@@ -535,7 +535,7 @@ At may ilan din sa inyo na sumusunod sa mga aral ng mga Nicolaita.
 
 
 
-Kaya magsisi kayo sa mga kasalanan ninyo! Sapagkat kung hindi, pupunta ako riyan sa lalong madaling panahon at kakalabanin ko ang mga taong iyan na sumusunod sa mga maling aral_ sa pamamagitan ng espada na lumalabas sa aking bibig. 
+Kaya magsisi kayo sa mga kasalanan ninyo! Sapagkat kung hindi, pupunta ako riyan sa lalong madaling panahon at kakalabanin ko ang mga taong iyan na sumusunod sa mga maling aral sa pamamagitan ng espada na lumalabas sa aking bibig. 
 
 
 
@@ -568,7 +568,7 @@ Kaya magsisi kayo sa mga kasalanan ninyo! Sapagkat kung hindi, pupunta ako riyan
 
 
 
-"Kayong nakikinig, pag-isipan ninyong mabuti ang sinasabi ng Banal na_ Espiritu sa mga iglesya. "Ang magtatagumpay ay bibigyan ko ng pagkain na inilaan ko sa langit_. Bibigyan ko rin ang bawat isa sa kanila ng puting bato na may nakasulat na bagong pangalan na walang ibang nakakaalam kundi ang makakatanggap nito." ## Ang Sulat para sa Iglesya sa Tiatira 
+"Kayong nakikinig, pag-isipan ninyong mabuti ang sinasabi ng Banal na Espiritu sa mga iglesya. "Ang magtatagumpay ay bibigyan ko ng pagkain na inilaan ko sa langit. Bibigyan ko rin ang bawat isa sa kanila ng puting bato na may nakasulat na bagong pangalan na walang ibang nakakaalam kundi ang makakatanggap nito." ## Ang Sulat para sa Iglesya sa Tiatira 
 
 
 
@@ -898,4 +898,4 @@ At ibibigay ko rin sa kanila ang tala sa umaga.
 
 
 
-"Kayong nakikinig, pag-isipan ninyong mabuti ang sinasabi ng Banal na_ Espiritu sa mga iglesya."
+"Kayong nakikinig, pag-isipan ninyong mabuti ang sinasabi ng Banal na Espiritu sa mga iglesya."

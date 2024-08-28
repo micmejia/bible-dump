@@ -73,7 +73,7 @@ Sinabi pa ng Panginoon, "Sa araw na iyon, akoʼy magiging Dios ng buong Israel a
 
 
 
-Ako,_ ang Panginoon, ay nagsasabing aalagaan ko ang mga natitirang buhay sa kanila habang naglalakbay sila sa ilang. Magbabalik ako para bigyan ng kapahingahan ang Israel." 
+Ako, ang Panginoon, ay nagsasabing aalagaan ko ang mga natitirang buhay sa kanila habang naglalakbay sila sa ilang. Magbabalik ako para bigyan ng kapahingahan ang Israel." 
 
 
 
@@ -469,7 +469,7 @@ Kung magkagayon, ang kanilang mga dalagaʼt binata pati ang matatanda ay sasayaw
 
 
 
-Bibigyan ko ng maraming handog ang mga pari. Bubusugin ko ng masaganang pagpapala ang mga mamamayan ko. Ako,_ ang Panginoon, ang nagsasabi nito." 
+Bibigyan ko ng maraming handog ang mga pari. Bubusugin ko ng masaganang pagpapala ang mga mamamayan ko. Ako, ang Panginoon, ang nagsasabi nito." 
 
 
 
@@ -634,7 +634,7 @@ Narinig ko ang panaghoy ng mga taga-Efraim. Sinabi nila, "Panginoon, kami po ay 
 
 
 
-Lumayo kami sa inyo noon, pero nagsisisi na po kami ngayon. Nang malaman po namin na nagkasala kami, dinagukan po namin ang aming mga dibdib sa pagsisisi_. Nahihiya po kami sa mga ginawa namin noong aming kabataan." 
+Lumayo kami sa inyo noon, pero nagsisisi na po kami ngayon. Nang malaman po namin na nagkasala kami, dinagukan po namin ang aming mga dibdib sa pagsisisi. Nahihiya po kami sa mga ginawa namin noong aming kabataan." 
 
 
 
@@ -667,7 +667,7 @@ Lumayo kami sa inyo noon, pero nagsisisi na po kami ngayon. Nang malaman po nami
 
 
 
-Sumagot ang Panginoon, "Kayong mga mamamayan ng_ Efraim ay aking minamahal na mga anak. Kahit palagi akong nagsasalita laban sa inyo, nalulugod pa rin ako sa inyo. Nananabik ako at nahahabag sa inyo. 
+Sumagot ang Panginoon, "Kayong mga mamamayan ng Efraim ay aking minamahal na mga anak. Kahit palagi akong nagsasalita laban sa inyo, nalulugod pa rin ako sa inyo. Nananabik ako at nahahabag sa inyo. 
 
 
 
@@ -700,7 +700,7 @@ Sumagot ang Panginoon, "Kayong mga mamamayan ng_ Efraim ay aking minamahal na mg
 
 
 
-"Maglagay kayo ng mga tanda at tulos na magiging gabay sa inyong daan. Tandaan ninyong mabuti ang inyong dinaanan dahil diyan din kayo dadaan pagbalik ninyo_. 
+"Maglagay kayo ng mga tanda at tulos na magiging gabay sa inyong daan. Tandaan ninyong mabuti ang inyong dinaanan dahil diyan din kayo dadaan pagbalik ninyo. 
 
 
 
@@ -766,7 +766,7 @@ Kailan pa kayo babalik sa akin, mga anak kong naliligaw? Gagawa ako ng bagong ba
 
 
 
-Sinabi ng Panginoong Makapangyarihan, ang Dios ng Israel, "Kapag naibalik ko na ang mga mamamayan ng Juda sa lupain nila mula sa pagkabihag, muli nilang sasabihin, 'Pagpalain nawa ng Panginoon ang banal na bundok ng Jerusalem_ na tinitirhan niya.' 
+Sinabi ng Panginoong Makapangyarihan, ang Dios ng Israel, "Kapag naibalik ko na ang mga mamamayan ng Juda sa lupain nila mula sa pagkabihag, muli nilang sasabihin, 'Pagpalain nawa ng Panginoon ang banal na bundok ng Jerusalem na tinitirhan niya.' 
 
 
 
@@ -832,7 +832,7 @@ Maninirahan ang mga tao sa Juda at sa mga bayan nito, pati na ang mga magbubukid
 
 
 
-Sapagkat pagpapahingahin ko ang mga napapagod at bubusugin ko ang mga nanghihina dahil sa gutom. Kaya sasabihin ng mga tao,_ 
+Sapagkat pagpapahingahin ko ang mga napapagod at bubusugin ko ang mga nanghihina dahil sa gutom. Kaya sasabihin ng mga tao, 
 
 
 
@@ -1063,7 +1063,7 @@ Sinabi pa ng Panginoon, "Darating ang panahon na gagawa ako ng bagong kasunduan 
 
 
 
-At hindi ito katulad ng unang_ kasunduan na ginawa ko sa kanilang mga ninuno noong pinatnubayan ko sila sa paglabas sa Egipto. Kahit na akoʼy parang asawa nila, hindi nila tinupad ang una naming kasunduan." 
+At hindi ito katulad ng unang kasunduan na ginawa ko sa kanilang mga ninuno noong pinatnubayan ko sila sa paglabas sa Egipto. Kahit na akoʼy parang asawa nila, hindi nila tinupad ang una naming kasunduan." 
 
 
 
@@ -1096,7 +1096,7 @@ At hindi ito katulad ng unang_ kasunduan na ginawa ko sa kanilang mga ninuno noo
 
 
 
-Sinabi pa ng Panginoon, "Ito ang bagong_ kasunduan na gagawin ko sa mga mamamayan ng Israel pagdating ng araw na iyon: Itatanim ko sa isipan nila ang utos ko, at isusulat ko ito sa mga puso nila. 
+Sinabi pa ng Panginoon, "Ito ang bagong kasunduan na gagawin ko sa mga mamamayan ng Israel pagdating ng araw na iyon: Itatanim ko sa isipan nila ang utos ko, at isusulat ko ito sa mga puso nila. 
 
 
 
@@ -1228,7 +1228,7 @@ Habang nananatili ang langit at ang mundo, mananatili rin ang bansang Israel mag
 
 
 
-Kung paanong hindi masusukat ang langit at hindi malalaman ang pundasyon ng lupa, ganoon din naman, hindi ko maitatakwil ang lahat ng angkan ng Israel kahit na marami silang nagawang kasalanan. Ako,_ ang Panginoon, ang nagsasabi nito." 
+Kung paanong hindi masusukat ang langit at hindi malalaman ang pundasyon ng lupa, ganoon din naman, hindi ko maitatakwil ang lahat ng angkan ng Israel kahit na marami silang nagawang kasalanan. Ako, ang Panginoon, ang nagsasabi nito." 
 
 
 
@@ -1261,7 +1261,7 @@ Kung paanong hindi masusukat ang langit at hindi malalaman ang pundasyon ng lupa
 
 
 
-Patuloy na sinabi ng Panginoon, "Darating ang panahon na ang lungsod ng Jerusalem_ ay muling itatayo mula sa Tore ni Hananel hanggang sa Panulukang Pintuan. 
+Patuloy na sinabi ng Panginoon, "Darating ang panahon na ang lungsod ng Jerusalem ay muling itatayo mula sa Tore ni Hananel hanggang sa Panulukang Pintuan. 
 
 
 

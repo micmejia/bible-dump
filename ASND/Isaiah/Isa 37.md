@@ -931,7 +931,7 @@ Ang mga mamamayan ng mga lungsod na iyong nilipol ay nawalan ng lakas. Natakot s
 
 
 
-"Pero alam ko ang lahat tungkol sa iyo_, kung saan ka nananatili, kung saan ka galing, kung saan ka pupunta, at kung gaano katindi ang galit mo sa akin. 
+"Pero alam ko ang lahat tungkol sa iyo, kung saan ka nananatili, kung saan ka galing, kung saan ka pupunta, at kung gaano katindi ang galit mo sa akin. 
 
 
 
@@ -997,7 +997,7 @@ Dahil narinig ko ang galit mo at ang pagmamayabang sa akin, lalagyan ko ng kawit
 
 
 
-Sinabi pa ni Isaias kay_ Hezekia, "Ito ang tanda na iingatan ng Panginoon ang Jerusalem sa mga taga-Asiria_: Sa taon na ito, ang mga bunga ng mga tanim na kusang tumutubo lang ang kakainin ninyo. At sa susunod na taon, ang mga bunga naman ng mga tanim na tumubo mula sa mga dating tanim lang ang kakainin ninyo. Pero sa ikatlong taon, makakapagtanim na kayo ng trigo at makakaani. Makakapagtanim na rin kayo ng mga ubas at makakakain ng mga bunga nito. 
+Sinabi pa ni Isaias kay Hezekia, "Ito ang tanda na iingatan ng Panginoon ang Jerusalem sa mga taga-Asiria: Sa taon na ito, ang mga bunga ng mga tanim na kusang tumutubo lang ang kakainin ninyo. At sa susunod na taon, ang mga bunga naman ng mga tanim na tumubo mula sa mga dating tanim lang ang kakainin ninyo. Pero sa ikatlong taon, makakapagtanim na kayo ng trigo at makakaani. Makakapagtanim na rin kayo ng mga ubas at makakakain ng mga bunga nito. 
 
 
 

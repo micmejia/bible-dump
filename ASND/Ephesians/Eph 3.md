@@ -106,7 +106,7 @@ Siguradong nabalitaan nʼyo na dahil sa biyaya ng Dios, ipinagkatiwala niya sa a
 
 
 
-Gaya ng nabanggit ko sa sulat na ito, ang Dios mismo ang nagpahayag sa akin tungkol sa kanyang lihim na plano para sa inyo_. 
+Gaya ng nabanggit ko sa sulat na ito, ang Dios mismo ang nagpahayag sa akin tungkol sa kanyang lihim na plano para sa inyo. 
 
 
 
@@ -139,7 +139,7 @@ Gaya ng nabanggit ko sa sulat na ito, ang Dios mismo ang nagpahayag sa akin tung
 
 
 
-Habang binabasa nʼyo ang sulat kong ito, malalaman nʼyo ang pagkakaunawa ko tungkol sa lihim na plano ng Dios para sa inyo sa pamamagitan_ ni Cristo. 
+Habang binabasa nʼyo ang sulat kong ito, malalaman nʼyo ang pagkakaunawa ko tungkol sa lihim na plano ng Dios para sa inyo sa pamamagitan ni Cristo. 
 
 
 
@@ -172,7 +172,7 @@ Habang binabasa nʼyo ang sulat kong ito, malalaman nʼyo ang pagkakaunawa ko tu
 
 
 
-Hindi inihayag ng Dios ang planong ito sa mga tao noon, pero ipinahayag na niya ngayon sa mga banal na apostol at mga propeta sa pamamagitan ng Banal na_ Espiritu. 
+Hindi inihayag ng Dios ang planong ito sa mga tao noon, pero ipinahayag na niya ngayon sa mga banal na apostol at mga propeta sa pamamagitan ng Banal na Espiritu. 
 
 
 
@@ -205,7 +205,7 @@ Hindi inihayag ng Dios ang planong ito sa mga tao noon, pero ipinahayag na niya 
 
 
 
-At ito nga ang plano ng Dios:_ na sa pamamagitan ng Magandang Balita, ang mga hindi Judio ay tatanggap ng mga pangako ng Dios kasama ng mga Judio, at magiging bahagi rin sila ng iisang katawan dahil sa pakikipag-isa nila kay Cristo Jesus. 
+At ito nga ang plano ng Dios: na sa pamamagitan ng Magandang Balita, ang mga hindi Judio ay tatanggap ng mga pangako ng Dios kasama ng mga Judio, at magiging bahagi rin sila ng iisang katawan dahil sa pakikipag-isa nila kay Cristo Jesus. 
 
 
 
@@ -271,7 +271,7 @@ Dahil sa biyaya ng Dios, naging tagapangaral ako ng Magandang Balitang ito sa pa
 
 
 
-Kahit ako ang pinakahamak sa lahat ng mga mananampalataya, ipinagkaloob pa rin sa akin ng Dios_ ang pribilehiyong ipangaral sa mga hindi Judio ang hindi masukat na biyayang galing kay Cristo, 
+Kahit ako ang pinakahamak sa lahat ng mga mananampalataya, ipinagkaloob pa rin sa akin ng Dios ang pribilehiyong ipangaral sa mga hindi Judio ang hindi masukat na biyayang galing kay Cristo, 
 
 
 
@@ -471,7 +471,7 @@ Kaya huwag sana kayong panghinaan ng loob dahil sa mga paghihirap na dinaranas k
 
 
 
-Tuwing naaalala ko ang plano ng Dios, lumuluhod ako sa pagsamba_ sa kanya. 
+Tuwing naaalala ko ang plano ng Dios, lumuluhod ako sa pagsamba sa kanya. 
 
 
 
@@ -570,7 +570,7 @@ Ipinapanalangin ko na sa kadakilaan ng kapangyarihan niya ay palakasin niya ang 
 
 
 
-para manahan si Cristo sa mga puso nʼyo dahil sa inyong pananampalataya. Ipinapanalangin ko rin na maging matibay kayo at matatag sa pag-ibig ng Dios, 18-19para maunawaan nʼyo at ng iba pang mga pinabanal kung gaano kalawak, at kahaba, at kataas, at kalalim ang pag-ibig ni Cristo sa atin_. Maranasan nʼyo sana ito, kahit hindi ito lubusang maunawaan, para maging ganap sa inyo ang katangian ng Dios. 
+para manahan si Cristo sa mga puso nʼyo dahil sa inyong pananampalataya. Ipinapanalangin ko rin na maging matibay kayo at matatag sa pag-ibig ng Dios, 18-19para maunawaan nʼyo at ng iba pang mga pinabanal kung gaano kalawak, at kahaba, at kataas, at kalalim ang pag-ibig ni Cristo sa atin. Maranasan nʼyo sana ito, kahit hindi ito lubusang maunawaan, para maging ganap sa inyo ang katangian ng Dios. 
 
 
 
@@ -603,7 +603,7 @@ para manahan si Cristo sa mga puso nʼyo dahil sa inyong pananampalataya. Ipinap
 
 
 
-Purihin natin_ ang Dios na makakagawa ng higit pa sa hinihingi o inaasahan natin sa pamamagitan ng kapangyarihan niyang kumikilos sa atin. 
+Purihin natin ang Dios na makakagawa ng higit pa sa hinihingi o inaasahan natin sa pamamagitan ng kapangyarihan niyang kumikilos sa atin. 
 
 
 

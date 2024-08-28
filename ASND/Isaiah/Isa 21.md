@@ -172,7 +172,7 @@ Kinakabahan ako at nanginginig sa takot. Sana makapagpahinga ako paglubog ng ara
 
 
 
-Naghahanda ng piging ang mga pinuno. Naglalagay sila ng mga pansapin para upuan. Kumakain sila at umiinom, nang biglang may sumigaw,_ "Magmadali kayo! Humanda kayo sa digmaan." 
+Naghahanda ng piging ang mga pinuno. Naglalagay sila ng mga pansapin para upuan. Kumakain sila at umiinom, nang biglang may sumigaw, "Magmadali kayo! Humanda kayo sa digmaan." 
 
 
 
@@ -568,4 +568,4 @@ Sinabi ng Panginoon sa akin, "Sa loob ng isang taon magwawakas ang kapangyarihan
 
 
 
-Kakaunti ang matitira sa matatapang niyang sundalo na gumagamit ng pana." Mangyayari nga ito_ dahil sinabi ng Panginoon, ang Dios ng Israel.
+Kakaunti ang matitira sa matatapang niyang sundalo na gumagamit ng pana." Mangyayari nga ito dahil sinabi ng Panginoon, ang Dios ng Israel.

@@ -12,7 +12,7 @@ next: ['Col 2']
 Paul, an apostle of Jesus Christ by the will of God, and Timothy our brother, 
 
 ###### 2 
-To the saints and faithful brethren in Christ _who are_ in Colosse: Grace to you and peace from God our Father and the Lord Jesus Christ.
+To the saints and faithful brethren in Christ who are in Colosse: Grace to you and peace from God our Father and the Lord Jesus Christ.
 
 ## Their Faith in Christ 
 
@@ -26,7 +26,7 @@ since we heard of your faith in Christ Jesus and of your love for all the saints
 because of the hope which is laid up for you in heaven, of which you heard before in the word of the truth of the gospel, 
 
 ###### 6 
-which has come to you, as _it has_ also in all the world, and is bringing forth fruit, as _it is_ also among you since the day you heard and knew the grace of God in truth; 
+which has come to you, as it has also in all the world, and is bringing forth fruit, as it is also among you since the day you heard and knew the grace of God in truth; 
 
 ###### 7 
 as you also learned from Epaphras, our dear fellow servant, who is a faithful minister of Christ on your behalf, 
@@ -40,7 +40,7 @@ who also declared to us your love in the Spirit.
 For this reason we also, since the day we heard it, do not cease to pray for you, and to ask that you may be filled with the knowledge of His will in all wisdom and spiritual understanding; 
 
 ###### 10 
-that you may walk worthy of the Lord, fully pleasing _Him,_ being fruitful in every good work and increasing in the knowledge of God; 
+that you may walk worthy of the Lord, fully pleasing Him, being fruitful in every good work and increasing in the knowledge of God; 
 
 ###### 11 
 strengthened with all might, according to His glorious power, for all patience and longsuffering with joy; 
@@ -49,7 +49,7 @@ strengthened with all might, according to His glorious power, for all patience a
 giving thanks to the Father who has qualified us to be partakers of the inheritance of the saints in the light. 
 
 ###### 13 
-He has delivered us from the power of darkness and conveyed _us_ into the kingdom of the Son of His love, 
+He has delivered us from the power of darkness and conveyed us into the kingdom of the Son of His love, 
 
 ###### 14 
 in whom we have redemption through His blood, the forgiveness of sins. 
@@ -69,7 +69,7 @@ And He is the head of the body, the church, who is the beginning, the firstborn 
 ## Reconciled in Christ 
 
 ###### 19 
-For it pleased _the Father that_ in Him all the fullness should dwell, 
+For it pleased the Father that in Him all the fullness should dwell, 
 
 ###### 20 
 and by Him to reconcile all things to Himself, by Him, whether things on earth or things in heaven, having made peace through the blood of His cross. 
@@ -101,4 +101,4 @@ To them God willed to make known what are the riches of the glory of this myster
 Him we preach, warning every man and teaching every man in all wisdom, that we may present every man perfect in Christ Jesus. 
 
 ###### 29 
-To this _end_ I also labor, striving according to His working which works in me mightily.
+To this end I also labor, striving according to His working which works in me mightily.

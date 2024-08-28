@@ -139,7 +139,7 @@ Pumunta agad si Jonas sa Nineve ayon sa sinabi ng Panginoon. Malaking lungsod an
 
 
 
-Pumasok si Jonas sa Nineve. Pagkatapos ng maghapong paglalakad, sinabi niya sa mga taga-roon_, "May 40 araw na lamang ang natitira at wawasakin na ang Nineve." 
+Pumasok si Jonas sa Nineve. Pagkatapos ng maghapong paglalakad, sinabi niya sa mga taga-roon, "May 40 araw na lamang ang natitira at wawasakin na ang Nineve." 
 
 
 
@@ -172,7 +172,7 @@ Pumasok si Jonas sa Nineve. Pagkatapos ng maghapong paglalakad, sinabi niya sa m
 
 
 
-Naniwala ang mga taga-roon sa pahayag na ito mula sa Dios. Kaya lahat sila, mula sa pinakadakila hanggang sa pinakaaba ay nagsuot ng damit na panluksa at nag-ayuno upang ipakita ang kanilang pagsisisi_. 
+Naniwala ang mga taga-roon sa pahayag na ito mula sa Dios. Kaya lahat sila, mula sa pinakadakila hanggang sa pinakaaba ay nagsuot ng damit na panluksa at nag-ayuno upang ipakita ang kanilang pagsisisi. 
 
 
 
@@ -205,7 +205,7 @@ Naniwala ang mga taga-roon sa pahayag na ito mula sa Dios. Kaya lahat sila, mula
 
 
 
-Sapagkat nang mapakinggan ng hari ang mensahe ni Jonas_, tumayo siya mula sa kanyang trono, inalis ang kanyang balabal, nagsuot ng damit na panluksa at naupo sa lupa upang ipakita ang kanyang pagsisisi_. 
+Sapagkat nang mapakinggan ng hari ang mensahe ni Jonas, tumayo siya mula sa kanyang trono, inalis ang kanyang balabal, nagsuot ng damit na panluksa at naupo sa lupa upang ipakita ang kanyang pagsisisi. 
 
 
 
@@ -271,7 +271,7 @@ At nagpalabas siya ng isang proklamasyon sa Nineve na nagsasabi, "Ayon sa utos n
 
 
 
-Magsuot kayong lahat ng damit na panluksa pati na ang inyong_ mga hayop, at taimtim na manalangin sa Dios. Talikdan ninyo ang masamang pamumuhay at pagmamalupit. 
+Magsuot kayong lahat ng damit na panluksa pati na ang inyong mga hayop, at taimtim na manalangin sa Dios. Talikdan ninyo ang masamang pamumuhay at pagmamalupit. 
 
 
 

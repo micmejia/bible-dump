@@ -73,7 +73,7 @@ Nang ika-14 na taon ng paghahari ni Hezekia, nilusob ni Haring Senakerib ng Asir
 
 
 
-Noong nasa Lakish si Senakerib, inutusan niya ang kumander ng kanyang mga sundalo pati ang buong hukbo niya na pumunta sa Jerusalem at makipagkita kay Haring Hezekia. Nang nasa labas na ng Jerusalem ang kumander,_ tumigil muna siya at ang kanyang hukbo_ sa may daluyan ng tubig na nasa itaas ng lugar na pinag-iimbakan ng tubig. Malapit ito sa daan papunta sa pinaglalabahan. 
+Noong nasa Lakish si Senakerib, inutusan niya ang kumander ng kanyang mga sundalo pati ang buong hukbo niya na pumunta sa Jerusalem at makipagkita kay Haring Hezekia. Nang nasa labas na ng Jerusalem ang kumander, tumigil muna siya at ang kanyang hukbo sa may daluyan ng tubig na nasa itaas ng lugar na pinag-iimbakan ng tubig. Malapit ito sa daan papunta sa pinaglalabahan. 
 
 
 
@@ -238,7 +238,7 @@ Ang Egipto ba? Ang bansang ito at ang hari nito ay parang nabaling tungkod na na
 
 
 
-Maaari ninyong sabihin na nagtitiwala kayo sa Panginoon na inyong Dios, pero hindi baʼt ikaw din Hezekia ang nagpagiba ng mga sambahan niya sa matataas na lugar pati ng mga altar nito. At sinabi mo pa sa mga nakatira sa Jerusalem at mga lungsod ng Juda na sumamba sila sa nag-iisang_ altar doon sa Jerusalem?" 
+Maaari ninyong sabihin na nagtitiwala kayo sa Panginoon na inyong Dios, pero hindi baʼt ikaw din Hezekia ang nagpagiba ng mga sambahan niya sa matataas na lugar pati ng mga altar nito. At sinabi mo pa sa mga nakatira sa Jerusalem at mga lungsod ng Juda na sumamba sila sa nag-iisang altar doon sa Jerusalem?" 
 
 
 
@@ -271,7 +271,7 @@ Maaari ninyong sabihin na nagtitiwala kayo sa Panginoon na inyong Dios, pero hin
 
 
 
-Sinabi pa ng kumander,_ "Ngayon, inaalok ka ng aking amo, ang hari ng Asiria. Bibigyan ka namin ng 2,000 kabayo kung may 2,000 ka ring mangangabayo. 
+Sinabi pa ng kumander, "Ngayon, inaalok ka ng aking amo, ang hari ng Asiria. Bibigyan ka namin ng 2,000 kabayo kung may 2,000 ka ring mangangabayo. 
 
 
 
@@ -733,4 +733,4 @@ Hindi sumagot ang mga tao dahil inutusan sila ni Haring Hezekia na huwag sumagot
 
 
 
-Pagkatapos, pinunit nina Eliakim, Shebna, at Joa ang damit nila sa sobrang kalungkutan_. Bumalik sila kay Hezekia at ipinaalam ang lahat ng sinabi ng kumander ng mga sundalo.
+Pagkatapos, pinunit nina Eliakim, Shebna, at Joa ang damit nila sa sobrang kalungkutan. Bumalik sila kay Hezekia at ipinaalam ang lahat ng sinabi ng kumander ng mga sundalo.

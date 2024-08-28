@@ -40,7 +40,7 @@ next: ['Judg 3']
 
 
 
-Pumunta ang anghel ng Panginoon sa Bokim mula sa Gilgal. At sinabi niya sa mga Israelita, ito ang ipinapasabi ng Panginoon_: "Inilabas ko kayo sa Egipto at dinala dito_ sa lupain na ipinangako ko sa inyong mga ninuno. Sinabi ko noon na hindi ko sisirain ang kasunduan ko sa inyo. 
+Pumunta ang anghel ng Panginoon sa Bokim mula sa Gilgal. At sinabi niya sa mga Israelita, ito ang ipinapasabi ng Panginoon: "Inilabas ko kayo sa Egipto at dinala dito sa lupain na ipinangako ko sa inyong mga ninuno. Sinabi ko noon na hindi ko sisirain ang kasunduan ko sa inyo. 
 
 
 
@@ -238,7 +238,7 @@ Nang pinauwi na ni Josue ang mga Israelita, umalis sila upang angkinin ang lupai
 
 
 
-At naglingkod sila sa Panginoon habang nabubuhay si Josue. At kahit namatay na siya, patuloy pa rin silang naglingkod sa Panginoon habang nabubuhay ang mga tagapamahala ng Israel_ na nakakita ng lahat ng kahanga-hangang ginawa ng Panginoon para sa Israel. 
+At naglingkod sila sa Panginoon habang nabubuhay si Josue. At kahit namatay na siya, patuloy pa rin silang naglingkod sa Panginoon habang nabubuhay ang mga tagapamahala ng Israel na nakakita ng lahat ng kahanga-hangang ginawa ng Panginoon para sa Israel. 
 
 
 
@@ -372,7 +372,7 @@ Nang mamatay ang mga tao sa henerasyong iyon, ang sumunod na salinlahi ay hindi 
 
 
 
-Gumawa ng kasamaan ang mga Israelita sa paningin ng Panginoon at naglingkod sa mga imahen ni_ Baal. 
+Gumawa ng kasamaan ang mga Israelita sa paningin ng Panginoon at naglingkod sa mga imahen ni Baal. 
 
 
 

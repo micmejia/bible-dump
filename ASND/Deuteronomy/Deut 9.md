@@ -40,7 +40,7 @@ next: ['Deut 10']
 
 
 
-"Makinig kayo, mga mamamayan ng_ Israel. Tatawid kayo ngayon sa Jordan para sakupin ang mga bansa na mas malaki at mas makapangyarihan kaysa sa inyo. Malalaki ang kanilang lungsod at may matataas na pader na parang_ umabot na sa langit. 
+"Makinig kayo, mga mamamayan ng Israel. Tatawid kayo ngayon sa Jordan para sakupin ang mga bansa na mas malaki at mas makapangyarihan kaysa sa inyo. Malalaki ang kanilang lungsod at may matataas na pader na parang umabot na sa langit. 
 
 
 
@@ -106,7 +106,7 @@ Malalakas at matatangkad ang mga naninirahan dito – mga angkan ni Anak! Alam n
 
 
 
-Ngunit ngayon, makikita ninyo na ang Panginoon na inyong Dios ang mangunguna sa inyo na parang apoy na lumalamon sa inyong mga kaaway_. Tatalunin niya sila para madali ninyo silang maitaboy at malipol ayon sa ipinangako ng Panginoon sa inyo. 
+Ngunit ngayon, makikita ninyo na ang Panginoon na inyong Dios ang mangunguna sa inyo na parang apoy na lumalamon sa inyong mga kaaway. Tatalunin niya sila para madali ninyo silang maitaboy at malipol ayon sa ipinangako ng Panginoon sa inyo. 
 
 
 
@@ -337,7 +337,7 @@ Nang umakyat ako sa bundok para kunin ang malalapad na bato, kung saan nakasulat
 
 
 
-Ibinigay ng Panginoon sa akin ang dalawang malalapad na bato, na siya mismo ang sumulat ng mga utos na sinabi niya sa inyo na mula sa apoy doon sa Bundok ng Sinai_ habang nagtitipon kayo. 
+Ibinigay ng Panginoon sa akin ang dalawang malalapad na bato, na siya mismo ang sumulat ng mga utos na sinabi niya sa inyo na mula sa apoy doon sa Bundok ng Sinai habang nagtitipon kayo. 
 
 
 
@@ -469,7 +469,7 @@ At sinabi ng Panginoon sa akin, 'Bumaba ka agad dahil ang mga mamamayan na pinan
 
 
 
-Pabayaan mo akong puksain sila para hindi na sila maalala pa. Pagkatapos, gagawin kita at ang iyong salinlahi na_ isang bansa na mas makapangyarihan at mas marami pa kaysa sa kanila.' 
+Pabayaan mo akong puksain sila para hindi na sila maalala pa. Pagkatapos, gagawin kita at ang iyong salinlahi na isang bansa na mas makapangyarihan at mas marami pa kaysa sa kanila.' 
 
 
 
@@ -766,7 +766,7 @@ Pagkatapos, kinuha ko ang bakang ginawa ninyo, na nagtulak sa inyo sa kasalanan,
 
 
 
-"Nang pinalakad kayo ng Panginoon mula sa Kadesh Barnea, sinabi niya sa inyo_, 'Lumakad kayo at angkinin na ninyo ang lupain na ibinigay ko sa inyo.' Ngunit nagrebelde kayo, hindi ninyo sinunod ang utos ng Panginoon na inyong Dios. Hindi kayo nagtiwala o sumunod sa kanya. 
+"Nang pinalakad kayo ng Panginoon mula sa Kadesh Barnea, sinabi niya sa inyo, 'Lumakad kayo at angkinin na ninyo ang lupain na ibinigay ko sa inyo.' Ngunit nagrebelde kayo, hindi ninyo sinunod ang utos ng Panginoon na inyong Dios. Hindi kayo nagtiwala o sumunod sa kanya. 
 
 
 
@@ -931,7 +931,7 @@ Huwag na ninyong pansinin ang katigasan ng ulo, ang kasamaan at ang mga kasalana
 
 
 
-Kung lilipulin nʼyo sila, sasabihin ng mga Egipcio, "Nilipol sila dahil hindi sila kayang dalhin ng Panginoon sa lupaing ipinangako niya sa kanila." O sasabihin nila_, "Pinatay sila ng Panginoon dahil galit siya sa kanila; inilabas niya sila sa Egipto at dinala sa disyerto para patayin." 
+Kung lilipulin nʼyo sila, sasabihin ng mga Egipcio, "Nilipol sila dahil hindi sila kayang dalhin ng Panginoon sa lupaing ipinangako niya sa kanila." O sasabihin nila, "Pinatay sila ng Panginoon dahil galit siya sa kanila; inilabas niya sila sa Egipto at dinala sa disyerto para patayin." 
 
 
 

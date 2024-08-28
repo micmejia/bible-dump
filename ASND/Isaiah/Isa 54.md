@@ -40,7 +40,7 @@ next: ['Isa 55']
 
 
 
-Sinabi ng Panginoon, "Umawit ka Jerusalem, ikaw na parang_ babaeng baog. Umawit ka at sumigaw sa tuwa, ikaw na hindi nakaranas ng hirap sa panganganak. Sapagkat kahit na iniwan ka ng iyong asawa, mas marami ang iyong magiging anak kaysa sa babaeng kapiling ang asawa. 
+Sinabi ng Panginoon, "Umawit ka Jerusalem, ikaw na parang babaeng baog. Umawit ka at sumigaw sa tuwa, ikaw na hindi nakaranas ng hirap sa panganganak. Sapagkat kahit na iniwan ka ng iyong asawa, mas marami ang iyong magiging anak kaysa sa babaeng kapiling ang asawa. 
 
 
 
@@ -172,7 +172,7 @@ Huwag kang matakot dahil hindi ka mapapahiya. Malilimutan mo na ang kahihiyan ng
 
 
 
-Sapagkat ako na_ lumikha sa iyo ay para mong asawa. Panginoong Makapangyarihan ang pangalan ko. Ako_ ang Banal na Dios ng Israel, ang iyong Tagapagligtas. Tinatawag akong 'Dios ng buong mundo.' 
+Sapagkat ako na lumikha sa iyo ay para mong asawa. Panginoong Makapangyarihan ang pangalan ko. Ako ang Banal na Dios ng Israel, ang iyong Tagapagligtas. Tinatawag akong 'Dios ng buong mundo.' 
 
 
 
@@ -205,7 +205,7 @@ Sapagkat ako na_ lumikha sa iyo ay para mong asawa. Panginoong Makapangyarihan a
 
 
 
-"Jerusalem,_ katulad ka ng isang kabataang babae na nag-asawa at nalulungkot dahil iniwan siya ng kanyang asawa. Pero ngayon, tinatawag kita para muling makapiling. 
+"Jerusalem, katulad ka ng isang kabataang babae na nag-asawa at nalulungkot dahil iniwan siya ng kanyang asawa. Pero ngayon, tinatawag kita para muling makapiling. 
 
 
 
@@ -271,7 +271,7 @@ Iniwan kita sandali, pero dahil sa laki ng awa ko sa iyo ay muli kitang kukupkup
 
 
 
-Dahil sa bugso ng galit ko sa iyo, iniwan kita sandali, pero dahil sa aking walang hanggang pag-ibig sa iyo, kaaawaan kita. Ako,_ ang Panginoon na inyong Tagapagligtas ang nagsasabi nito. 
+Dahil sa bugso ng galit ko sa iyo, iniwan kita sandali, pero dahil sa aking walang hanggang pag-ibig sa iyo, kaaawaan kita. Ako, ang Panginoon na inyong Tagapagligtas ang nagsasabi nito. 
 
 
 
@@ -337,7 +337,7 @@ Dahil sa bugso ng galit ko sa iyo, iniwan kita sandali, pero dahil sa aking wala
 
 
 
-Gumuho man ang mga burol at bundok, ang pag-ibig ko sa iyoʼy hindi mawawala, maging ang kasunduan ko sa iyo na ilalagay kita sa magandang kalagayan. Ako,_ ang Panginoong naaawa sa iyo, ang nagsasabi nito. 
+Gumuho man ang mga burol at bundok, ang pag-ibig ko sa iyoʼy hindi mawawala, maging ang kasunduan ko sa iyo na ilalagay kita sa magandang kalagayan. Ako, ang Panginoong naaawa sa iyo, ang nagsasabi nito. 
 
 
 
@@ -370,7 +370,7 @@ Gumuho man ang mga burol at bundok, ang pag-ibig ko sa iyoʼy hindi mawawala, ma
 
 
 
-"O Jerusalem, para kang binagyo. Nagdusa kaʼt walang umaliw at nagpalakas sa iyo. Pero muli kitang itatayo sa pundasyong gawa sa batong_ safiro, at gagamitin ko ang mamahaling mga bato para sa mga dingding ng bahay mo. 
+"O Jerusalem, para kang binagyo. Nagdusa kaʼt walang umaliw at nagpalakas sa iyo. Pero muli kitang itatayo sa pundasyong gawa sa batong safiro, at gagamitin ko ang mamahaling mga bato para sa mga dingding ng bahay mo. 
 
 
 
@@ -403,7 +403,7 @@ Gumuho man ang mga burol at bundok, ang pag-ibig ko sa iyoʼy hindi mawawala, ma
 
 
 
-Gagamitin ko rin ang mga batong_ rubi sa iyong mga tore, at gagamitin ko rin ang mga naggagandahang mga bato sa paggawa ng iyong mga pinto at mga pader. 
+Gagamitin ko rin ang mga batong rubi sa iyong mga tore, at gagamitin ko rin ang mga naggagandahang mga bato sa paggawa ng iyong mga pinto at mga pader. 
 
 
 
@@ -568,4 +568,4 @@ Makinig ka! Ako ang lumikha ng mga panday na nagpapaningas ng apoy at gumagawa n
 
 
 
-Walang anumang sandatang ginawa na magtatagumpay laban sa iyo, at masasagot mo ang anumang ibibintang laban sa iyo. Ito ang pamana ko sa aking mga lingkod. Bibigyan ko sila ng tagumpay. Ako,_ ang Panginoon, ang nagsasabi nito."
+Walang anumang sandatang ginawa na magtatagumpay laban sa iyo, at masasagot mo ang anumang ibibintang laban sa iyo. Ito ang pamana ko sa aking mga lingkod. Bibigyan ko sila ng tagumpay. Ako, ang Panginoon, ang nagsasabi nito."

@@ -40,7 +40,7 @@ next: ['Ezek 42']
 
 
 
-Pagkatapos, dinala ako ng tao sa Banal na Lugar ng templo_. Sinukat niya ang magkabilang panig ng pader ng daanan ng Banal na Lugar_, sampung talampakan ang taas, 
+Pagkatapos, dinala ako ng tao sa Banal na Lugar ng templo. Sinukat niya ang magkabilang panig ng pader ng daanan ng Banal na Lugar, sampung talampakan ang taas, 
 
 
 
@@ -106,7 +106,7 @@ walong talampakan ang kapal ng pader at 17 talampakan ang luwang ng daanan. Sinu
 
 
 
-Pagkatapos, pumasok ang tao sa Pinakabanal na Lugar. Sinukat din niya ang magkabilang panig ng pader ng daanan ng Pinakabanal na Lugar_, tatlong talampakan ang kapal ng pader at 12 talampakan ang taas. Sampung talampakan ang luwang ng daanan. 
+Pagkatapos, pumasok ang tao sa Pinakabanal na Lugar. Sinukat din niya ang magkabilang panig ng pader ng daanan ng Pinakabanal na Lugar, tatlong talampakan ang kapal ng pader at 12 talampakan ang taas. Sampung talampakan ang luwang ng daanan. 
 
 
 
@@ -436,7 +436,7 @@ May nakita akong isang gusali na nakaharap sa bakuran ng templo sa kanluran. Ang
 
 
 
-Pagkatapos, sinukat ng tao ang haba ng templo, at itoʼy 170 talampakan. Ang sukat mula sa likurang bahagi ng templo papunta sa kabilang bahagi ng pader ng gusali sa kanluran_ ay 170 talampakan. 
+Pagkatapos, sinukat ng tao ang haba ng templo, at itoʼy 170 talampakan. Ang sukat mula sa likurang bahagi ng templo papunta sa kabilang bahagi ng pader ng gusali sa kanluran ay 170 talampakan. 
 
 
 
@@ -502,7 +502,7 @@ Ang luwang ng bulwagan sa loob sa gawing silangan, sa harap ng templo ay 170 tal
 
 
 
-Pagkatapos, sinukat din ng tao ang haba ng gusali sa kanluran_ na nakaharap sa loob ng bulwagan na likod ng templo, pati ang mga pader sa bawat tabi nito, at ito ay may sukat na 170 talampakan. Ang Banal na Lugar, ang Pinakabanal na Lugar, at ang balkonahe ng templo 
+Pagkatapos, sinukat din ng tao ang haba ng gusali sa kanluran na nakaharap sa loob ng bulwagan na likod ng templo, pati ang mga pader sa bawat tabi nito, at ito ay may sukat na 170 talampakan. Ang Banal na Lugar, ang Pinakabanal na Lugar, at ang balkonahe ng templo 
 
 
 

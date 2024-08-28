@@ -43,7 +43,7 @@ So I said, 'What shall I do, Lord?' And the Lord said to me, 'Arise and go into 
 And since I could not see for the glory of that light, being led by the hand of those who were with me, I came into Damascus. 
 
 ###### 12 
-"Then a certain Ananias, a devout man according to the law, having a good testimony with all the Jews who dwelt _there,_ 
+"Then a certain Ananias, a devout man according to the law, having a good testimony with all the Jews who dwelt there, 
 
 ###### 13 
 came to me; and he stood and said to me, 'Brother Saul, receive your sight.' And at that same hour I looked up at him. 
@@ -73,10 +73,10 @@ And when the blood of Your martyr Stephen was shed, I also was standing by conse
 Then He said to me, 'Depart, for I will send you far from here to the Gentiles.' " ## Paul's Roman Citizenship 
 
 ###### 22 
-And they listened to him until this word, and _then_ they raised their voices and said, "Away with such a _fellow_ from the earth, for he is not fit to live!" 
+And they listened to him until this word, and then they raised their voices and said, "Away with such a fellow from the earth, for he is not fit to live!" 
 
 ###### 23 
-Then, as they cried out and tore off _their_ clothes and threw dust into the air, 
+Then, as they cried out and tore off their clothes and threw dust into the air, 
 
 ###### 24 
 the commander ordered him to be brought into the barracks, and said that he should be examined under scourging, so that he might know why they shouted so against him. 
@@ -85,13 +85,13 @@ the commander ordered him to be brought into the barracks, and said that he shou
 And as they bound him with thongs, Paul said to the centurion who stood by, "Is it lawful for you to scourge a man who is a Roman, and uncondemned?" 
 
 ###### 26 
-When the centurion heard _that,_ he went and told the commander, saying, "Take care what you do, for this man is a Roman." 
+When the centurion heard that, he went and told the commander, saying, "Take care what you do, for this man is a Roman." 
 
 ###### 27 
 Then the commander came and said to him, "Tell me, are you a Roman?" He said, "Yes." 
 
 ###### 28 
-The commander answered, "With a large sum I obtained this citizenship." And Paul said, "But I was born _a citizen._" 
+The commander answered, "With a large sum I obtained this citizenship." And Paul said, "But I was born a citizen." 
 
 ###### 29 
 Then immediately those who were about to examine him withdrew from him; and the commander was also afraid after he found out that he was a Roman, and because he had bound him.
@@ -99,4 +99,4 @@ Then immediately those who were about to examine him withdrew from him; and the 
 ## The Sanhedrin Divided 
 
 ###### 30 
-The next day, because he wanted to know for certain why he was accused by the Jews, he released him from _his_ bonds, and commanded the chief priests and all their council to appear, and brought Paul down and set him before them.
+The next day, because he wanted to know for certain why he was accused by the Jews, he released him from his bonds, and commanded the chief priests and all their council to appear, and brought Paul down and set him before them.

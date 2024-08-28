@@ -40,7 +40,7 @@ next: ['Acts 7']
 
 
 
-Nang mga panahong iyon, dumarami na ang mga tagasunod ni Jesus_. Nagreklamo ang mga Judiong nagsasalita ng Griego laban sa mga Judiong nagsasalita ng Hebreo. Itoʼy sa dahilang hindi nabibigyan ng pang-araw-araw na rasyon ang kanilang mga biyuda. 
+Nang mga panahong iyon, dumarami na ang mga tagasunod ni Jesus. Nagreklamo ang mga Judiong nagsasalita ng Griego laban sa mga Judiong nagsasalita ng Hebreo. Itoʼy sa dahilang hindi nabibigyan ng pang-araw-araw na rasyon ang kanilang mga biyuda. 
 
 
 
@@ -73,7 +73,7 @@ Nang mga panahong iyon, dumarami na ang mga tagasunod ni Jesus_. Nagreklamo ang 
 
 
 
-Kaya ipinatawag ng 12 apostol ang lahat ng tagasunod ni Jesus_, at sinabihan sila, "Hindi mabuting pabayaan namin ang pangangaral ng salita ng Dios para mag-asikaso lang ng materyal na mga tulong. 
+Kaya ipinatawag ng 12 apostol ang lahat ng tagasunod ni Jesus, at sinabihan sila, "Hindi mabuting pabayaan namin ang pangangaral ng salita ng Dios para mag-asikaso lang ng materyal na mga tulong. 
 
 
 
@@ -106,7 +106,7 @@ Kaya ipinatawag ng 12 apostol ang lahat ng tagasunod ni Jesus_, at sinabihan sil
 
 
 
-Kaya mga kapatid, pumili kayo sa mga kasamahan ninyo ng pitong lalaking may malinis na pangalan, marunong, at puspos ng Banal na_ Espiritu. Sila ang pamamahalain natin sa mga materyal na tulong. 
+Kaya mga kapatid, pumili kayo sa mga kasamahan ninyo ng pitong lalaking may malinis na pangalan, marunong, at puspos ng Banal na Espiritu. Sila ang pamamahalain natin sa mga materyal na tulong. 
 
 
 
@@ -205,7 +205,7 @@ Sumang-ayon ang lahat ng mga mananampalataya sa sinabi ng mga apostol. Kaya pini
 
 
 
-Dinala nila ang mga napiling ito sa mga apostol. At ipinanalangin sila ng mga apostol at pinatungan ng kamay bilang pagtatalaga sa tungkulin_. 
+Dinala nila ang mga napiling ito sa mga apostol. At ipinanalangin sila ng mga apostol at pinatungan ng kamay bilang pagtatalaga sa tungkulin. 
 
 
 
@@ -238,7 +238,7 @@ Dinala nila ang mga napiling ito sa mga apostol. At ipinanalangin sila ng mga ap
 
 
 
-Kaya patuloy na kumalat ang salita ng Dios. Marami pang mga taga-Jerusalem ang naging tagasunod ni Jesus_, at marami ring pari ang sumampalataya sa kanya_.
+Kaya patuloy na kumalat ang salita ng Dios. Marami pang mga taga-Jerusalem ang naging tagasunod ni Jesus, at marami ring pari ang sumampalataya sa kanya.
 
 ## Ang Pagdakip kay Esteban 
 
@@ -273,7 +273,7 @@ Kaya patuloy na kumalat ang salita ng Dios. Marami pang mga taga-Jerusalem ang n
 
 
 
-Pinagkalooban ng Dios_ si Esteban ng pambihirang kapangyarihan. Kaya maraming himala at mga kamangha-manghang ginawa niya ang nasaksihan ng mga tao. 
+Pinagkalooban ng Dios si Esteban ng pambihirang kapangyarihan. Kaya maraming himala at mga kamangha-manghang ginawa niya ang nasaksihan ng mga tao. 
 
 
 
@@ -339,7 +339,7 @@ Pero may mga taong kumalaban sa kanya. Ito ay ang mga Judiong mula sa Cyrene, Al
 
 
 
-pero hindi nila kayang talunin si Esteban dahil binigyan siya ng karunungan ng Banal na_ Espiritu. 
+pero hindi nila kayang talunin si Esteban dahil binigyan siya ng karunungan ng Banal na Espiritu. 
 
 
 
@@ -438,7 +438,7 @@ Sa ganitong paraan, naudyukan nilang magalit ang mga tao, ang mga pinuno ng mga 
 
 
 
-Mayroon din silang pinapasok na ilang tao para tumestigo ng kasinungalingan laban kay Esteban. Sinabi nila, "Ang taong ito ay palaging nagsasalita ng laban sa ating sagradong templo at sa Kautusan ni Moises_. 
+Mayroon din silang pinapasok na ilang tao para tumestigo ng kasinungalingan laban kay Esteban. Sinabi nila, "Ang taong ito ay palaging nagsasalita ng laban sa ating sagradong templo at sa Kautusan ni Moises. 
 
 
 

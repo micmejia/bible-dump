@@ -271,7 +271,7 @@ Kaya gawin mo ang naiisip mong mabuting gawin sa kanya, pero huwag mong hayaan n
 
 
 
-"Tandaan mo si Shimei na anak ni Gera, na taga-Bahurim at mula sa lahi ni Benjamin. Isinumpa niya ako ng matindi nang pumunta ako sa Mahanaim. Pero nang magkita kami sa Ilog ng_ Jordan, nakipagkasundo ako sa kanya sa pangalan ng Panginoon na hindi ko siya papatayin. 
+"Tandaan mo si Shimei na anak ni Gera, na taga-Bahurim at mula sa lahi ni Benjamin. Isinumpa niya ako ng matindi nang pumunta ako sa Mahanaim. Pero nang magkita kami sa Ilog ng Jordan, nakipagkasundo ako sa kanya sa pangalan ng Panginoon na hindi ko siya papatayin. 
 
 
 
@@ -636,7 +636,7 @@ Sumagot si Batsheba, "Sige, sasabihin ko sa hari."
 
 
 
-Kaya pumunta si Batsheba kay Haring Solomon para sabihin sa kanya ang tungkol sa kahilingan ni Adonia. Pagkakita ni Solomon sa kanya,_ tumayo si Solomon mula sa kanyang trono para salubungin siya, at agad siyang yumukod sa kanyang ina bilang paggalang_. Pagkatapos, muli siyang naupo sa kanyang trono. Nagpakuha siya ng upuan at ipinalagay sa kanan niya at doon pinaupo ang kanyang ina. 
+Kaya pumunta si Batsheba kay Haring Solomon para sabihin sa kanya ang tungkol sa kahilingan ni Adonia. Pagkakita ni Solomon sa kanya, tumayo si Solomon mula sa kanyang trono para salubungin siya, at agad siyang yumukod sa kanyang ina bilang paggalang. Pagkatapos, muli siyang naupo sa kanyang trono. Nagpakuha siya ng upuan at ipinalagay sa kanan niya at doon pinaupo ang kanyang ina. 
 
 
 
@@ -935,7 +935,7 @@ Kaya tinanggal ni Solomon si Abiatar sa kanyang tungkulin bilang pari ng Pangino
 
 
 
-Hindi tumulong si Joab kay Absalom na maging hari, pero tumulong siya kay Adonia. Kaya nang mabalitaan niya ang pagkamatay ni Adonia, tumakas siya papunta sa tolda ng Panginoon at humawak sa parang_ mga sungay na bahagi ng altar. 
+Hindi tumulong si Joab kay Absalom na maging hari, pero tumulong siya kay Adonia. Kaya nang mabalitaan niya ang pagkamatay ni Adonia, tumakas siya papunta sa tolda ng Panginoon at humawak sa parang mga sungay na bahagi ng altar. 
 
 
 
@@ -1001,7 +1001,7 @@ Nang mabalitaan ni Haring Solomon na tumakas si Joab papunta sa tolda ng Pangino
 
 
 
-Kaya pumunta si Benaya sa tolda ng Panginoon at sinabihan si Joab, "Lumabas ka, sabi ng hari!" Pero sumagot si Joab, "Hindi ako lalabas; dito ako mamamatay!" Bumalik si Benaya sa hari at sinabi ang sagot ni Joab. 31-32Sinabi ni Solomon kay Benaya, "Gawin mo_ ang sinabi niya. Doon siya patayin sa tolda at ilibing, para ako at ang pamilya ng aking ama ay hindi managot sa pagpatay niya kay Abner na anak ni Ner, na kumander ng mga sundalo ng Israel, at kay Amasa na kumander ng mga sundalo ng Juda. Pinatay niya ang mga taong inosente nang hindi nalalaman ng aking ama. Mas matuwid at mabuti ang mga taong ito kaysa sa kanya. Ngayon, gagantihan siya ng Panginoon sa ginawa niya sa kanila. 
+Kaya pumunta si Benaya sa tolda ng Panginoon at sinabihan si Joab, "Lumabas ka, sabi ng hari!" Pero sumagot si Joab, "Hindi ako lalabas; dito ako mamamatay!" Bumalik si Benaya sa hari at sinabi ang sagot ni Joab. 31-32Sinabi ni Solomon kay Benaya, "Gawin mo ang sinabi niya. Doon siya patayin sa tolda at ilibing, para ako at ang pamilya ng aking ama ay hindi managot sa pagpatay niya kay Abner na anak ni Ner, na kumander ng mga sundalo ng Israel, at kay Amasa na kumander ng mga sundalo ng Juda. Pinatay niya ang mga taong inosente nang hindi nalalaman ng aking ama. Mas matuwid at mabuti ang mga taong ito kaysa sa kanya. Ngayon, gagantihan siya ng Panginoon sa ginawa niya sa kanila. 
 
 
 
@@ -1067,7 +1067,7 @@ Siya at ang angkan niya ang mananagot magpakailanman sa pagkamatay ng mga taong 
 
 
 
-Kaya pinuntahan ni Benaya si Joab at pinatay. Inilibing siya malapit_ sa bahay niya sa ilang. 
+Kaya pinuntahan ni Benaya si Joab at pinatay. Inilibing siya malapit sa bahay niya sa ilang. 
 
 
 
@@ -1267,7 +1267,7 @@ Pero pagkalipas ng tatlong taon, lumayas ang dalawa sa mga alipin ni Shimei, at 
 
 
 
-nilagyan niya agad ng upuan ang kanyang asno at sumakay_, pumunta siya kay Akish sa Gat para hanapin ang dalawang alipin niya. Nakita niya sila at isinama pauwi. 
+nilagyan niya agad ng upuan ang kanyang asno at sumakay, pumunta siya kay Akish sa Gat para hanapin ang dalawang alipin niya. Nakita niya sila at isinama pauwi. 
 
 
 
@@ -1465,4 +1465,4 @@ Pero pagpapalain ako ng Panginoon, at ang kaharian ng aking ama na si David ay m
 
 
 
-Pagkatapos, inutusan ng hari si Benaya na patayin si Shimei_. Kaya dinala ni Benaya si Shimei sa labas at pinatay. Mas lalong tumatag ang kaharian sa ilalim ng pamamahala ni Solomon.
+Pagkatapos, inutusan ng hari si Benaya na patayin si Shimei. Kaya dinala ni Benaya si Shimei sa labas at pinatay. Mas lalong tumatag ang kaharian sa ilalim ng pamamahala ni Solomon.

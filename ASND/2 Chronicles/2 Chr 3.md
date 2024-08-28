@@ -370,7 +370,7 @@ Nagpagawa si Solomon sa loob ng Pinakabanal na Lugar ng dalawang kerubin at pina
 
 
 
-Ang kurtina na nakatakip sa Pinakabanal na Lugar_ ay gawa mula sa pinong telang_ linen na asul, kulay ube at pula, na may burdang kerubin.
+Ang kurtina na nakatakip sa Pinakabanal na Lugar ay gawa mula sa pinong telang linen na asul, kulay ube at pula, na may burdang kerubin.
 
 ## Ang Dalawang Haligi 
 
@@ -438,7 +438,7 @@ Gumawa rin si Solomon ng dalawang haligi sa harapan ng templo na ang taas ng baw
 
 
 
-Ang bawat hugis-ulo ng haligi ay nilagyan ng mga kadena na may nakasabit na mga palamuting ang korte ay parang prutas na_ pomegranata. Ang mga palamuting ito ay 100 piraso. 
+Ang bawat hugis-ulo ng haligi ay nilagyan ng mga kadena na may nakasabit na mga palamuting ang korte ay parang prutas na pomegranata. Ang mga palamuting ito ay 100 piraso. 
 
 
 

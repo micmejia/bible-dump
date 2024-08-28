@@ -139,7 +139,7 @@ Nakipaglaban din si David kay Haring Hadadezer ng Zoba, na anak ni Rehob, habang
 
 
 
-Naagaw nila David ang 1,000 niyang karwahe, 7,000 mangangarwahe, at 20,000 sundalo. Pinilayan nila David ang mga kabayo na humihila ng mga karwahe, maliban lang sa 100 kabayo na itinira nila para gamitin_. 
+Naagaw nila David ang 1,000 niyang karwahe, 7,000 mangangarwahe, at 20,000 sundalo. Pinilayan nila David ang mga kabayo na humihila ng mga karwahe, maliban lang sa 100 kabayo na itinira nila para gamitin. 
 
 
 
@@ -205,7 +205,7 @@ Nang dumating ang mga Arameo mula sa Damascus para tulungan si Hadadezer, pinata
 
 
 
-Nagpatayo agad si David ng mga kampo sa Damascus, ang lugar ng mga Arameo. At naging sakop niya ang mga ito, at nagbayad sila ng buwis sa kanya. Pinagtagumpay ng Panginoon si David sa bawat labanang_ pupuntahan niya. 
+Nagpatayo agad si David ng mga kampo sa Damascus, ang lugar ng mga Arameo. At naging sakop niya ang mga ito, at nagbayad sila ng buwis sa kanya. Pinagtagumpay ng Panginoon si David sa bawat labanang pupuntahan niya. 
 
 
 
@@ -570,7 +570,7 @@ Si Joab na anak ni Zeruya ang namumuno sa mga sundalo niya. Si Jehoshafat naman 
 
 
 
-Sina Zadok na anak ni Ahitub at Ahimelec na anak ni Abiatar ang mga punong_ pari. Si Seraya ang kalihim. 
+Sina Zadok na anak ni Ahitub at Ahimelec na anak ni Abiatar ang mga punong pari. Si Seraya ang kalihim. 
 
 
 
@@ -603,4 +603,4 @@ Sina Zadok na anak ni Ahitub at Ahimelec na anak ni Abiatar ang mga punong_ pari
 
 
 
-Si Benaya na anak ni Jehoyada ang namumuno sa mga Kereteo at Peleteo na mga personal niyang tagapagbantay_. At ang mga anak niyang lalaki ang mga tagapayo niya.
+Si Benaya na anak ni Jehoyada ang namumuno sa mga Kereteo at Peleteo na mga personal niyang tagapagbantay. At ang mga anak niyang lalaki ang mga tagapayo niya.

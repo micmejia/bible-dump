@@ -19,10 +19,10 @@ Moreover the word of the Lord came to me, saying,
 Then say, 'Thus says the Lord God: "The city sheds blood in her own midst, that her time may come; and she makes idols within herself to defile herself. 
 
 ###### 4 
-You have become guilty by the blood which you have shed, and have defiled yourself with the idols which you have made. You have caused your days to draw near, and have come to _the end of_ your years; therefore I have made you a reproach to the nations, and a mockery to all countries. 
+You have become guilty by the blood which you have shed, and have defiled yourself with the idols which you have made. You have caused your days to draw near, and have come to the end of your years; therefore I have made you a reproach to the nations, and a mockery to all countries. 
 
 ###### 5 
-_Those_ near and _those_ far from you will mock you as infamous _and_ full of tumult. 
+Those near and those far from you will mock you as infamous and full of tumult. 
 
 ###### 6 
 "Look, the princes of Israel: each one has used his power to shed blood in you. 
@@ -49,25 +49,25 @@ In you they take bribes to shed blood; you take usury and increase; you have mad
 "Behold, therefore, I beat My fists at the dishonest profit which you have made, and at the bloodshed which has been in your midst. 
 
 ###### 14 
-Can your heart endure, or can your hands remain strong, in the days when I shall deal with you? I, the Lord, have spoken, and will do _it._ 
+Can your heart endure, or can your hands remain strong, in the days when I shall deal with you? I, the Lord, have spoken, and will do it. 
 
 ###### 15 
 I will scatter you among the nations, disperse you throughout the countries, and remove your filthiness completely from you. 
 
 ###### 16 
-You shall defile yourself in the sight of the nations; then you shall know that I _am_ the Lord." ' " ## Israel in the Furnace 
+You shall defile yourself in the sight of the nations; then you shall know that I am the Lord." ' " ## Israel in the Furnace 
 
 ###### 17 
 The word of the Lord came to me, saying, 
 
 ###### 18 
-"Son of man, the house of Israel has become dross to Me; they _are_ all bronze, tin, iron, and lead, in the midst of a furnace; they have become dross from silver. 
+"Son of man, the house of Israel has become dross to Me; they are all bronze, tin, iron, and lead, in the midst of a furnace; they have become dross from silver. 
 
 ###### 19 
 Therefore thus says the Lord God: 'Because you have all become dross, therefore behold, I will gather you into the midst of Jerusalem. 
 
 ###### 20 
-_As men_ gather silver, bronze, iron, lead, and tin into the midst of a furnace, to blow fire on it, to melt _it;_ so I will gather _you_ in My anger and in My fury, and I will leave _you there_ and melt you. 
+As men gather silver, bronze, iron, lead, and tin into the midst of a furnace, to blow fire on it, to melt it; so I will gather you in My anger and in My fury, and I will leave you there and melt you. 
 
 ###### 21 
 Yes, I will gather you and blow on you with the fire of My wrath, and you shall be melted in its midst. 
@@ -79,19 +79,19 @@ As silver is melted in the midst of a furnace, so shall you be melted in its mid
 And the word of the Lord came to me, saying, 
 
 ###### 24 
-"Son of man, say to her: 'You _are_ a land that is not cleansed or rained on in the day of indignation.' 
+"Son of man, say to her: 'You are a land that is not cleansed or rained on in the day of indignation.' 
 
 ###### 25 
 The conspiracy of her prophets in her midst is like a roaring lion tearing the prey; they have devoured people; they have taken treasure and precious things; they have made many widows in her midst. 
 
 ###### 26 
-Her priests have violated My law and profaned My holy things; they have not distinguished between the holy and unholy, nor have they made known _the difference_ between the unclean and the clean; and they have hidden their eyes from My Sabbaths, so that I am profaned among them. 
+Her priests have violated My law and profaned My holy things; they have not distinguished between the holy and unholy, nor have they made known the difference between the unclean and the clean; and they have hidden their eyes from My Sabbaths, so that I am profaned among them. 
 
 ###### 27 
-Her princes in her midst _are_ like wolves tearing the prey, to shed blood, to destroy people, and to get dishonest gain. 
+Her princes in her midst are like wolves tearing the prey, to shed blood, to destroy people, and to get dishonest gain. 
 
 ###### 28 
-Her prophets plastered them with untempered _mortar,_ seeing false visions, and divining lies for them, saying, 'Thus says the Lord God,' when the Lord had not spoken. 
+Her prophets plastered them with untempered mortar, seeing false visions, and divining lies for them, saying, 'Thus says the Lord God,' when the Lord had not spoken. 
 
 ###### 29 
 The people of the land have used oppressions, committed robbery, and mistreated the poor and needy; and they wrongfully oppress the stranger. 

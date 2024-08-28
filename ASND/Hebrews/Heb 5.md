@@ -139,7 +139,7 @@ At dahil nagkakasala rin siya, kailangan niyang maghandog, hindi lang para sa ka
 
 
 
-Hindi maaaring makamtan ninuman sa sarili niyang kagustuhan_ ang karangalan ng pagiging punong pari_. Sapagkat ang Dios mismo ang humihirang sa kanya na maging punong pari, tulad ng pagkahirang_ kay Aaron. 
+Hindi maaaring makamtan ninuman sa sarili niyang kagustuhan ang karangalan ng pagiging punong pari. Sapagkat ang Dios mismo ang humihirang sa kanya na maging punong pari, tulad ng pagkahirang kay Aaron. 
 
 
 
@@ -172,7 +172,7 @@ Hindi maaaring makamtan ninuman sa sarili niyang kagustuhan_ ang karangalan ng p
 
 
 
-Ganoon din naman, hindi si Cristo ang nagparangal sa sarili niya na maging punong pari kundi ang Dios_. Sapagkat sinabi sa kanya ng Dios, "Ikaw ang Anak ko, at ngayon ipapahayag ko na ako ang iyong Ama." 
+Ganoon din naman, hindi si Cristo ang nagparangal sa sarili niya na maging punong pari kundi ang Dios. Sapagkat sinabi sa kanya ng Dios, "Ikaw ang Anak ko, at ngayon ipapahayag ko na ako ang iyong Ama." 
 
 
 
@@ -271,7 +271,7 @@ Noong namumuhay pa si Jesus sa mundong ito, umiiyak siyang nananalangin at nagma
 
 
 
-At kahit Anak siya mismo ng Dios_, natutunan niya ang pagiging masunurin sa pamamagitan ng mga pagtitiis na dinanas niya. 
+At kahit Anak siya mismo ng Dios, natutunan niya ang pagiging masunurin sa pamamagitan ng mga pagtitiis na dinanas niya. 
 
 
 
@@ -405,7 +405,7 @@ Marami pa sana kaming sasabihin tungkol sa mga bagay na ito, pero mahirap ipaliw
 
 
 
-Dapat mga tagapagturo na sana kayo dahil matagal na kayo sa pananampalataya, ngunit hanggang ngayon ay kailangan pa kayong turuan ng mga panimulang aralin tungkol sa salita ng Dios. Katulad pa rin_ kayo ng mga sanggol na_ nangangailangan ng gatas dahil hindi nʼyo pa kaya ang matigas na pagkain. 
+Dapat mga tagapagturo na sana kayo dahil matagal na kayo sa pananampalataya, ngunit hanggang ngayon ay kailangan pa kayong turuan ng mga panimulang aralin tungkol sa salita ng Dios. Katulad pa rin kayo ng mga sanggol na nangangailangan ng gatas dahil hindi nʼyo pa kaya ang matigas na pagkain. 
 
 
 

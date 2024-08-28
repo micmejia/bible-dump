@@ -73,7 +73,7 @@ Nang mapagpasyahan nilang papuntahin kami sa Italia, ipinagkatiwala nila si Pabl
 
 
 
-Doon sa Cesarea_ ay may isang barkong galing sa Adramitium at papaalis na papunta sa mga daungan ng lalawigan ng_ Asia. Doon kami sumakay. Sumama sa amin si Aristarcus na taga-Tesalonica na sakop ng Macedonia. 
+Doon sa Cesarea ay may isang barkong galing sa Adramitium at papaalis na papunta sa mga daungan ng lalawigan ng Asia. Doon kami sumakay. Sumama sa amin si Aristarcus na taga-Tesalonica na sakop ng Macedonia. 
 
 
 
@@ -205,7 +205,7 @@ Nilakbay namin ang karagatan ng Cilicia at Pamfilia, at dumaong kami sa Myra na 
 
 
 
-Nakakita roon si Kapitan Julius_ ng isang barko na galing sa Alexandria at papunta sa Italia, kaya pinalipat niya kami roon. 
+Nakakita roon si Kapitan Julius ng isang barko na galing sa Alexandria at papunta sa Italia, kaya pinalipat niya kami roon. 
 
 
 
@@ -238,7 +238,7 @@ Nakakita roon si Kapitan Julius_ ng isang barko na galing sa Alexandria at papun
 
 
 
-Mabagal ang biyahe namin. Tumagal ito ng maraming araw, at talagang nahirapan kami hanggang sa nakarating kami malapit sa Cnidus. At dahil salungat ang hangin, hindi kami makatuloy sa pupuntahan namin. Kaya bumiyahe kami sa kabila ng isla ng_ Crete na kubli sa hangin, at doon kami dumaan malapit sa Salmone. 
+Mabagal ang biyahe namin. Tumagal ito ng maraming araw, at talagang nahirapan kami hanggang sa nakarating kami malapit sa Cnidus. At dahil salungat ang hangin, hindi kami makatuloy sa pupuntahan namin. Kaya bumiyahe kami sa kabila ng isla ng Crete na kubli sa hangin, at doon kami dumaan malapit sa Salmone. 
 
 
 
@@ -304,7 +304,7 @@ Namaybay kami, pero talagang nahirapan kami bago makarating sa lugar na tinatawa
 
 
 
-Nagtagal kami roon hanggang inabot kami ng panahong mapanganib ang pagbibiyahe, dahil nakalipas na ang Araw ng_ Pag-aayuno. Kaya sinabi ni Pablo sa aming mga kasama, 
+Nagtagal kami roon hanggang inabot kami ng panahong mapanganib ang pagbibiyahe, dahil nakalipas na ang Araw ng Pag-aayuno. Kaya sinabi ni Pablo sa aming mga kasama, 
 
 
 
@@ -438,7 +438,7 @@ At dahil sa hindi ligtas sa malakas na hangin ang daungan doon, karamihan sa mga
 
 
 
-Nang umihip ang mahinang hangin galing sa timog, ang akala ng mga kasamahan namin ay pwede na kaming bumiyahe. Kaya itinaas nila ang angkla at nagbiyahe kaming namamaybay sa isla ng_ Crete. 
+Nang umihip ang mahinang hangin galing sa timog, ang akala ng mga kasamahan namin ay pwede na kaming bumiyahe. Kaya itinaas nila ang angkla at nagbiyahe kaming namamaybay sa isla ng Crete. 
 
 
 
@@ -471,7 +471,7 @@ Nang umihip ang mahinang hangin galing sa timog, ang akala ng mga kasamahan nami
 
 
 
-Hindi nagtagal, bumugso ang malakas na hilagang-silangang hangin mula sa isla ng Crete_. 
+Hindi nagtagal, bumugso ang malakas na hilagang-silangang hangin mula sa isla ng Crete. 
 
 
 
@@ -537,7 +537,7 @@ Pagtama ng malakas na hangin sa amin, hindi na kami makaabante, kaya nagpatangay
 
 
 
-Nang nasa bandang timog na kami ng maliit na isla ng Cauda, nakapagkubli kami nang kaunti. Kahit nahirapan kami, naisampa pa namin ang maliit na bangka na dala ng barko para hindi ito mawasak_. 
+Nang nasa bandang timog na kami ng maliit na isla ng Cauda, nakapagkubli kami nang kaunti. Kahit nahirapan kami, naisampa pa namin ang maliit na bangka na dala ng barko para hindi ito mawasak. 
 
 
 
@@ -1463,4 +1463,4 @@ Pero pinigilan sila ng kanilang kapitan dahil gusto niyang maligtas si Pablo. Na
 
 
 
-Pagkatapos, pinasunod niya ang iba na nakakapit sa tabla at sa mga parte ng barko na lumulutang_. Ganoon ang aming ginawa, at lahat kami ay ligtas na nakarating sa dalampasigan.
+Pagkatapos, pinasunod niya ang iba na nakakapit sa tabla at sa mga parte ng barko na lumulutang. Ganoon ang aming ginawa, at lahat kami ay ligtas na nakarating sa dalampasigan.

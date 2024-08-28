@@ -172,7 +172,7 @@ Magigiba at magiging mapanglaw ang mga bayan ninyo. At malalaman ninyo na ako an
 
 
 
-Matagal na kayong galit sa Israel, at pinabayaan lang ninyo silang salakayin sa panahon ng kanilang kagipitan, ang panahon na pinarurusahan sila dahil sa kanilang mga kasalanan_. 
+Matagal na kayong galit sa Israel, at pinabayaan lang ninyo silang salakayin sa panahon ng kanilang kagipitan, ang panahon na pinarurusahan sila dahil sa kanilang mga kasalanan. 
 
 
 
@@ -469,7 +469,7 @@ Nagmalaki kayo sa akin. Kinutya nʼyo ako at narinig ko ito.
 
 
 
-"Kaya ako,_ ang Panginoong Dios, ay nagsasabing magagalak ang buong mundo, kapag ginawa kong mapanglaw ang lugar ninyo, 
+"Kaya ako, ang Panginoong Dios, ay nagsasabing magagalak ang buong mundo, kapag ginawa kong mapanglaw ang lugar ninyo, 
 
 
 

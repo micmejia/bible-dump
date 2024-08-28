@@ -10,13 +10,13 @@ next: ['Acts 25']
 
 
 ###### 1 
-Now after five days Ananias the high priest came down with the elders and a certain orator _named_ Tertullus. These gave evidence to the governor against Paul. 
+Now after five days Ananias the high priest came down with the elders and a certain orator named Tertullus. These gave evidence to the governor against Paul. 
 
 ###### 2 
 And when he was called upon, Tertullus began his accusation, saying: "Seeing that through you we enjoy great peace, and prosperity is being brought to this nation by your foresight, 
 
 ###### 3 
-we accept _it_ always and in all places, most noble Felix, with all thankfulness. 
+we accept it always and in all places, most noble Felix, with all thankfulness. 
 
 ###### 4 
 Nevertheless, not to be tedious to you any further, I beg you to hear, by your courtesy, a few words from us. 
@@ -28,7 +28,7 @@ For we have found this man a plague, a creator of dissension among all the Jews 
 He even tried to profane the temple, and we seized him, and wanted to judge him according to our law. 
 
 ###### 7 
-But the commander Lysias came by and with great violence took _him_ out of our hands, 
+But the commander Lysias came by and with great violence took him out of our hands, 
 
 ###### 8 
 commanding his accusers to come to you. By examining him yourself you may ascertain all these things of which we accuse him." 
@@ -54,10 +54,10 @@ Nor can they prove the things of which they now accuse me.
 But this I confess to you, that according to the Way which they call a sect, so I worship the God of my fathers, believing all things which are written in the Law and in the Prophets. 
 
 ###### 15 
-I have hope in God, which they themselves also accept, that there will be a resurrection of _the_ dead, both of _the_ just and _the_ unjust. 
+I have hope in God, which they themselves also accept, that there will be a resurrection of the dead, both of the just and the unjust. 
 
 ###### 16 
-This _being_ so, I myself always strive to have a conscience without offense toward God and men. 
+This being so, I myself always strive to have a conscience without offense toward God and men. 
 
 ###### 17 
 "Now after many years I came to bring alms and offerings to my nation, 
@@ -69,16 +69,16 @@ in the midst of which some Jews from Asia found me purified in the temple, neith
 They ought to have been here before you to object if they had anything against me. 
 
 ###### 20 
-Or else let those who are _here_ themselves say if they found any wrongdoing in me while I stood before the council, 
+Or else let those who are here themselves say if they found any wrongdoing in me while I stood before the council, 
 
 ###### 21 
-unless _it is_ for this one statement which I cried out, standing among them, 'Concerning the resurrection of the dead I am being judged by you this day.' " ## Felix Procrastinates 
+unless it is for this one statement which I cried out, standing among them, 'Concerning the resurrection of the dead I am being judged by you this day.' " ## Felix Procrastinates 
 
 ###### 22 
-But when Felix heard these things, having more accurate knowledge of _the_ Way, he adjourned the proceedings and said, "When Lysias the commander comes down, I will make a decision on your case." 
+But when Felix heard these things, having more accurate knowledge of the Way, he adjourned the proceedings and said, "When Lysias the commander comes down, I will make a decision on your case." 
 
 ###### 23 
-So he commanded the centurion to keep Paul and to let _him_ have liberty, and told him not to forbid any of his friends to provide for or visit him. 
+So he commanded the centurion to keep Paul and to let him have liberty, and told him not to forbid any of his friends to provide for or visit him. 
 
 ###### 24 
 And after some days, when Felix came with his wife Drusilla, who was Jewish, he sent for Paul and heard him concerning the faith in Christ. 

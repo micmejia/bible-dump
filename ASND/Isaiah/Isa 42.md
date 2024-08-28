@@ -40,7 +40,7 @@ next: ['Isa 43']
 
 
 
-Sinabi ng Panginoon,_ "Narito ang lingkod ko na aking pinalalakas ang loob. Pinili ko siya at nagagalak ako sa kanya. Sumasakanya ang aking Espiritu, at papairalin niya ang katarungan sa mga bansa. 
+Sinabi ng Panginoon, "Narito ang lingkod ko na aking pinalalakas ang loob. Pinili ko siya at nagagalak ako sa kanya. Sumasakanya ang aking Espiritu, at papairalin niya ang katarungan sa mga bansa. 
 
 
 
@@ -205,7 +205,7 @@ Ito ang sinabi ng Dios, ang Panginoon na lumikha ng langit na iniladlad niyang p
 
 
 
-Sinabi niya sa kanyang lingkod,_ "Ako ang Panginoon na tumawag sa iyo para ipakita na akoʼy matuwid. Tutulungan at iingatan kita, at sa pamamagitan mo gagawa ako ng kasunduan sa mga tao. Gagawin kitang ilaw na magbibigay-liwanag sa mga bansa, 
+Sinabi niya sa kanyang lingkod, "Ako ang Panginoon na tumawag sa iyo para ipakita na akoʼy matuwid. Tutulungan at iingatan kita, at sa pamamagitan mo gagawa ako ng kasunduan sa mga tao. Gagawin kitang ilaw na magbibigay-liwanag sa mga bansa, 
 
 
 
@@ -469,7 +469,7 @@ Sasalakay ang Panginoon na parang isang sundalo na handang-handa nang makipaglab
 
 
 
-Sinabi ng Panginoon,_ "Sa mahabang panahon nagsawalang-kibo ako at pinigilan ko ang aking sarili. Pero ngayon, ipadarama ko ang aking galit_. Sisigaw ako na parang babaeng nanganganak. 
+Sinabi ng Panginoon, "Sa mahabang panahon nagsawalang-kibo ako at pinigilan ko ang aking sarili. Pero ngayon, ipadarama ko ang aking galit. Sisigaw ako na parang babaeng nanganganak. 
 
 
 
@@ -535,7 +535,7 @@ Gigibain ko ang mga bundok at mga burol, at malalanta ang mga tanim. Patutuyuin 
 
 
 
-Aakayin ko ang mga mamamayan kong_ bulag sa katotohanan, sa daan na hindi pa nila nadadaanan. Liliwanagan ko ang dinaraanan nilang madilim at papantayin ko ang mga baku-bako sa landas na kanilang dinadaanan. Gagawin ko ito at hindi ko sila pababayaan. 
+Aakayin ko ang mga mamamayan kong bulag sa katotohanan, sa daan na hindi pa nila nadadaanan. Liliwanagan ko ang dinaraanan nilang madilim at papantayin ko ang mga baku-bako sa landas na kanilang dinadaanan. Gagawin ko ito at hindi ko sila pababayaan. 
 
 
 
@@ -601,7 +601,7 @@ Pero ang mga nagtitiwala sa mga dios-diosan, at ang mga itinuturing na dios ang 
 
 
 
-Sinabi ng Panginoon sa kanyang mga mamamayan,_ "Kayong mga bingi at bulag, makinig kayo at tumingin! 
+Sinabi ng Panginoon sa kanyang mga mamamayan, "Kayong mga bingi at bulag, makinig kayo at tumingin! 
 
 
 

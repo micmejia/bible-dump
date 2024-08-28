@@ -105,7 +105,7 @@ Ibinigay ng Panginoon kay Jeremias ang kanyang mensahe noong ika-13 taon ng pagh
 
 
 
-Patuloy na nagbigay ng mensahe ang Panginoon kay Jeremias hanggang sa panahon ng paghahari ni Jehoyakim na anak ni Josia at hanggang sa ika-11 taon ng paghahari ni Zedekia na anak rin_ ni Josia. Nang ikalimang buwan ng taon na iyon, binihag ang mga taga-Jerusalem.
+Patuloy na nagbigay ng mensahe ang Panginoon kay Jeremias hanggang sa panahon ng paghahari ni Jehoyakim na anak ni Josia at hanggang sa ika-11 taon ng paghahari ni Zedekia na anak rin ni Josia. Nang ikalimang buwan ng taon na iyon, binihag ang mga taga-Jerusalem.
 
 ## Ang Pagtawag kay Jeremias 
 
@@ -173,7 +173,7 @@ Sinabi sa akin ng Panginoon,
 
 
 
-"Jeremias,_ bago kita nilalang sa tiyan ng iyong ina, pinili na kita. At bago ka isinilang, hinirang na kita para maging propeta sa mga bansa." 
+"Jeremias, bago kita nilalang sa tiyan ng iyong ina, pinili na kita. At bago ka isinilang, hinirang na kita para maging propeta sa mga bansa." 
 
 
 
@@ -272,7 +272,7 @@ Pero sinabi ng Panginoon sa akin, "Huwag mong sabihing bata ka pa. Kinakailangan
 
 
 
-Huwag kang matakot sa mga tao sapagkat akoʼy kasama mo at tutulungan kita. Ako,_ ang Panginoon, ang nagsasabi nito." 
+Huwag kang matakot sa mga tao sapagkat akoʼy kasama mo at tutulungan kita. Ako, ang Panginoon, ang nagsasabi nito." 
 
 
 
@@ -470,7 +470,7 @@ Muling nagtanong ang Panginoon sa akin, "Ano pa ang nakikita mo?" Sumagot ako, "
 
 
 
-Sinabi ng Panginoon, "Tama, sapagkat_ may panganib mula sa hilaga na darating sa lahat ng mamamayan sa lupaing ito. 
+Sinabi ng Panginoon, "Tama, sapagkat may panganib mula sa hilaga na darating sa lahat ng mamamayan sa lupaing ito. 
 
 
 
@@ -635,4 +635,4 @@ Makinig ka! Patatatagin kita ngayon tulad ng napapaderang lungsod, o ng bakal na
 
 
 
-Kakalabanin ka nila, pero hindi ka nila matatalo, dahil sasamahan at tutulungan kita. Ako,_ ang Panginoon, ang nagsasabi nito."
+Kakalabanin ka nila, pero hindi ka nila matatalo, dahil sasamahan at tutulungan kita. Ako, ang Panginoon, ang nagsasabi nito."

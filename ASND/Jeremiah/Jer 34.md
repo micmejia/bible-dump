@@ -40,7 +40,7 @@ next: ['Jer 35']
 
 
 
-Hindi ka makakatakas sa mga kamay niya. Huhulihin ka at ibibigay sa hari ng Babilonia. Haharap ka sa kanya para hatulan_ at dadalhin kang bihag sa Babilonia. 
+Hindi ka makakatakas sa mga kamay niya. Huhulihin ka at ibibigay sa hari ng Babilonia. Haharap ka sa kanya para hatulan at dadalhin kang bihag sa Babilonia. 
 
 
 
@@ -106,7 +106,7 @@ Pero Haring Zedekia, pakinggan mo ang pangako ko sa iyo: Hindi ka mamamatay sa d
 
 
 
-kundi payapa kang mamamatay. Ang mga mamamayan moʼy magsusunog ng mga insenso para parangalan ka, katulad ng ginawa nila sa paglilibing ng mga ninuno mo na mga naunang hari. Ipagluluksa ka nila at sasabihin nila, 'Patay na ang aming hari!' Dahil ako,_ ang Panginoon, ang nagsasabi nito." 
+kundi payapa kang mamamatay. Ang mga mamamayan moʼy magsusunog ng mga insenso para parangalan ka, katulad ng ginawa nila sa paglilibing ng mga ninuno mo na mga naunang hari. Ipagluluksa ka nila at sasabihin nila, 'Patay na ang aming hari!' Dahil ako, ang Panginoon, ang nagsasabi nito." 
 
 
 
@@ -240,7 +240,7 @@ May sinabi pa ang Panginoon kay Jeremias nang panahong gumawa ng kasunduan si Ha
 
 
 
-Nag-utos si Zedekia na_ ang sinumang may mga aliping Hebreo, maging babae o lalaki ay kinakailangan nilang palayain. Walang kapwa Judio na mananatiling alipin. 
+Nag-utos si Zedekia na ang sinumang may mga aliping Hebreo, maging babae o lalaki ay kinakailangan nilang palayain. Walang kapwa Judio na mananatiling alipin. 
 
 
 
@@ -372,7 +372,7 @@ Pero sa bandang huli, nagbago ang isip nila at inalipin nila ulit ang mga alipin
 
 
 
-Noong nakalipas na mga araw, nagsisi kayo at ginawa nʼyo ang matuwid sa paningin ko. Pumayag kayong lahat na palayain ang mga kababayan nʼyo na inyong inalipin. Gumawa pa kayo ng kasunduan sa akin tungkol dito_ doon mismo sa templo kung saan nʼyo pinararangalan ang pangalan ko. 
+Noong nakalipas na mga araw, nagsisi kayo at ginawa nʼyo ang matuwid sa paningin ko. Pumayag kayong lahat na palayain ang mga kababayan nʼyo na inyong inalipin. Gumawa pa kayo ng kasunduan sa akin tungkol dito doon mismo sa templo kung saan nʼyo pinararangalan ang pangalan ko. 
 
 
 
@@ -438,7 +438,7 @@ Pero nagbago ang inyong mga isip at inilagay ninyo ako sa kahihiyan. Inalipin ul
 
 
 
-"Kaya ako,_ ang Panginoon ay nagsasabing dahil hindi ninyo ako sinunod at hindi ninyo pinalaya ang inyong mga alipin na mga kababayan ninyo, bibigyan ko kayo ng kalayaan – ang kalayaan na mamatay sa digmaan, sa gutom at sa sakit. Kayoʼy gagawin kong kasuklam-suklam sa paningin ng lahat ng kaharian sa daigdig. 18-19Ang mga pinuno ng Juda at Jerusalem, at ang mga namamahala sa palasyo, pati ang mga pari at ang mga mamamayan ay nakipagkasundo sa akin, at pinatunayan ito sa pamamagitan ng paghati ng guya, at ang bawat isaʼy dumaan sa pagitan nito. Pero hindi nila tinupad ang nakasaad doon sa kasunduan kaya gagawin ko sa kanila ang ginawa nila sa guyang pinatay at hinati. 
+"Kaya ako, ang Panginoon ay nagsasabing dahil hindi ninyo ako sinunod at hindi ninyo pinalaya ang inyong mga alipin na mga kababayan ninyo, bibigyan ko kayo ng kalayaan – ang kalayaan na mamatay sa digmaan, sa gutom at sa sakit. Kayoʼy gagawin kong kasuklam-suklam sa paningin ng lahat ng kaharian sa daigdig. 18-19Ang mga pinuno ng Juda at Jerusalem, at ang mga namamahala sa palasyo, pati ang mga pari at ang mga mamamayan ay nakipagkasundo sa akin, at pinatunayan ito sa pamamagitan ng paghati ng guya, at ang bawat isaʼy dumaan sa pagitan nito. Pero hindi nila tinupad ang nakasaad doon sa kasunduan kaya gagawin ko sa kanila ang ginawa nila sa guyang pinatay at hinati. 
 
 
 

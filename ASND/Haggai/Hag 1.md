@@ -39,7 +39,7 @@ next: ['Hag 2']
 
 
 
-Noong unang araw ng ikaanim na buwan, nang ikalawang taon ng paghahari ni Darius sa Persia_, may sinabi ang Panginoon kina Zerubabel at Josue sa pamamagitan ni Propeta Hageo. Si Zerubabel na anak ni Shealtiel ang gobernador ng Juda, at si Josue na anak ni Jehozadak ang punong pari.
+Noong unang araw ng ikaanim na buwan, nang ikalawang taon ng paghahari ni Darius sa Persia, may sinabi ang Panginoon kina Zerubabel at Josue sa pamamagitan ni Propeta Hageo. Si Zerubabel na anak ni Shealtiel ang gobernador ng Juda, at si Josue na anak ni Jehozadak ang punong pari.
 
 ###### 2-3 Ito ang sinabi ng Panginoong Makapangyarihan sa pamamagitan ni Propeta Hageo, "Sinasabi ninyo na hindi pa ito ang panahon upang muling itayo ang aking templo. 
 
@@ -206,7 +206,7 @@ Kaya isipin ninyo ang mga nangyayari sa inyo.
 
 
 
-Ngayon, umakyat kayo sa bundok at kumuha ng mga kahoy, at itayo ninyong muli ang templo. Sa ganitong paraan, masisiyahan ako at mapaparangalan. Ako,_ ang Panginoon, ang nagsasabi nito." 
+Ngayon, umakyat kayo sa bundok at kumuha ng mga kahoy, at itayo ninyong muli ang templo. Sa ganitong paraan, masisiyahan ako at mapaparangalan. Ako, ang Panginoon, ang nagsasabi nito." 
 
 
 
@@ -239,7 +239,7 @@ Ngayon, umakyat kayo sa bundok at kumuha ng mga kahoy, at itayo ninyong muli ang
 
 
 
-Sinabi pa ng Panginoong Makapangyarihan, "Marami ang aning_ inaasahan ninyo, pero kakaunti lang ang naani ninyo. At sinira ko pa ito nang iuwi ninyo sa inyong bahay. Ginawa ko ito dahil wasak ang aking templo habang ang bawat isa sa inyo ay abalang gumagawa ng bahay ninyo. 
+Sinabi pa ng Panginoong Makapangyarihan, "Marami ang aning inaasahan ninyo, pero kakaunti lang ang naani ninyo. At sinira ko pa ito nang iuwi ninyo sa inyong bahay. Ginawa ko ito dahil wasak ang aking templo habang ang bawat isa sa inyo ay abalang gumagawa ng bahay ninyo. 
 
 
 
@@ -305,7 +305,7 @@ Kaya dahil sa inyo, ang langit ay hindi na magbibigay ng hamog, at ang lupa ay h
 
 
 
-Pinatuyo ko ang lupain at ang mga kabundukan, kaya naapektuhan_ ang mga butil, katas ng ubas, langis, at ang iba pang mga ani, maging ang mga tao, at ang kanilang mga hayop at mga pananim." 
+Pinatuyo ko ang lupain at ang mga kabundukan, kaya naapektuhan ang mga butil, katas ng ubas, langis, at ang iba pang mga ani, maging ang mga tao, at ang kanilang mga hayop at mga pananim." 
 
 
 
@@ -437,4 +437,4 @@ Pinalakas ng Panginoon ang loob nina Zerubabel, Josue, at ng lahat ng Israelitan
 
 
 
-Sinimulan nila ang pagtatayo ng templo_ noong ika-24 na araw ng ikaanim na buwan, nang ikalawang taon ng paghahari ni Darius.
+Sinimulan nila ang pagtatayo ng templo noong ika-24 na araw ng ikaanim na buwan, nang ikalawang taon ng paghahari ni Darius.

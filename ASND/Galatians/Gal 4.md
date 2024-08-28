@@ -139,7 +139,7 @@ Ganoon din naman ang kalagayan natin bago dumating si Cristo – inalipin ta
 
 
 
-Ngunit nang dumating na ang takdang panahon, isinugo ng Dios ang kanyang Anak sa mundo_. Ipinanganak siya ng isang babae at namuhay sa ilalim ng Kautusan 
+Ngunit nang dumating na ang takdang panahon, isinugo ng Dios ang kanyang Anak sa mundo. Ipinanganak siya ng isang babae at namuhay sa ilalim ng Kautusan 
 
 
 
@@ -172,7 +172,7 @@ Ngunit nang dumating na ang takdang panahon, isinugo ng Dios ang kanyang Anak sa
 
 
 
-para palayain ang mga nasa ilalim ng Kautusan, nang sa ganoon ay maging anak tayo ng Dios_. 
+para palayain ang mga nasa ilalim ng Kautusan, nang sa ganoon ay maging anak tayo ng Dios. 
 
 
 
@@ -205,7 +205,7 @@ para palayain ang mga nasa ilalim ng Kautusan, nang sa ganoon ay maging anak tay
 
 
 
-At dahil mga anak na tayo ngayon ng Dios_, isinugo ng Dios ang Espiritu ng kanyang Anak sa ating puso, kaya makakatawag na tayo sa kanya ng "Ama." 
+At dahil mga anak na tayo ngayon ng Dios, isinugo ng Dios ang Espiritu ng kanyang Anak sa ating puso, kaya makakatawag na tayo sa kanya ng "Ama." 
 
 
 
@@ -238,7 +238,7 @@ At dahil mga anak na tayo ngayon ng Dios_, isinugo ng Dios ang Espiritu ng kanya
 
 
 
-Ngayon, hindi na tayo mga alipin kundi mga anak. At kung mga anak tayo ng Dios_, tagapagmana rin tayo ng mga pangako niya_.
+Ngayon, hindi na tayo mga alipin kundi mga anak. At kung mga anak tayo ng Dios, tagapagmana rin tayo ng mga pangako niya.
 
 ## Ang Pagmamalasakit ni Pablo sa mga Taga-Galacia 
 
@@ -306,7 +306,7 @@ Noong hindi nʼyo pa kilala ang Dios, naging alipin kayo ng mga dios-diosan.
 
 
 
-Ngunit ngayong kilala nʼyo na ang Dios (o mas mabuting sabihin na kinilala kayo ng Dios bilang mga anak_) bakit bumabalik pa kayo sa walang bisa at mga walang kwentang panuntunan? Bakit gusto ninyong magpaaliping muli sa mga ito? 
+Ngunit ngayong kilala nʼyo na ang Dios (o mas mabuting sabihin na kinilala kayo ng Dios bilang mga anak) bakit bumabalik pa kayo sa walang bisa at mga walang kwentang panuntunan? Bakit gusto ninyong magpaaliping muli sa mga ito? 
 
 
 
@@ -405,7 +405,7 @@ Nag-aalala ako na baka nasayang lang ang lahat ng pagsisikap ko sa inyo.
 
 
 
-Nakikiusap ako sa inyo mga kapatid, na tularan ninyo ako, dahil kahit isa akong Judio, tinalikuran ko ang pagsunod sa Kautusan ng mga Judio at_ naging katulad ninyong hindi Judio. Wala kayong kasalanan sa akin. 
+Nakikiusap ako sa inyo mga kapatid, na tularan ninyo ako, dahil kahit isa akong Judio, tinalikuran ko ang pagsunod sa Kautusan ng mga Judio at naging katulad ninyong hindi Judio. Wala kayong kasalanan sa akin. 
 
 
 
@@ -636,7 +636,7 @@ Hindi masamang magpakita sila ng pagmamalasakit kahit wala ako sa piling nʼyo, 
 
 
 
-Minamahal_ kong mga anak, hanggaʼt hindi nakikita sa inyo ang buhay ni Cristo, maghihirap akong parang isang babaeng_ nanganganak. 
+Minamahal kong mga anak, hanggaʼt hindi nakikita sa inyo ang buhay ni Cristo, maghihirap akong parang isang babaeng nanganganak. 
 
 
 
@@ -735,7 +735,7 @@ Ngayon, sabihin nga ninyo sa akin, kayong mga nais magpailalim sa Kautusan, hind
 
 
 
-Sinasabi roon na may dalawang anak si Abraham. Ang isaʼy anak niya sa kanyang alipin na si Hagar_, at ang isa naman ay anak niya sa asawa niya na si Sara_. 
+Sinasabi roon na may dalawang anak si Abraham. Ang isaʼy anak niya sa kanyang alipin na si Hagar, at ang isa naman ay anak niya sa asawa niya na si Sara. 
 
 
 
@@ -768,7 +768,7 @@ Sinasabi roon na may dalawang anak si Abraham. Ang isaʼy anak niya sa kanyang a
 
 
 
-Ang kanyang anak sa alipin ay ipinanganak ayon sa karaniwang panganganak. Ngunit ang anak niya sa kanyang asawa ay ipinanganak ayon sa pangako ng Dios_. 
+Ang kanyang anak sa alipin ay ipinanganak ayon sa karaniwang panganganak. Ngunit ang anak niya sa kanyang asawa ay ipinanganak ayon sa pangako ng Dios. 
 
 
 
@@ -801,7 +801,7 @@ Ang kanyang anak sa alipin ay ipinanganak ayon sa karaniwang panganganak. Ngunit
 
 
 
-Maaari nating tingnan ang dalawang babaeng ito bilang isang paghahalintulad. Kumakatawan sila sa dalawang kasunduan. Si Hagar ay kumakatawan sa kasunduan na ibinigay ng Dios kay Moises_ sa Bundok ng Sinai. Ipinanganak na mga alipin ang mga anak niya. 
+Maaari nating tingnan ang dalawang babaeng ito bilang isang paghahalintulad. Kumakatawan sila sa dalawang kasunduan. Si Hagar ay kumakatawan sa kasunduan na ibinigay ng Dios kay Moises sa Bundok ng Sinai. Ipinanganak na mga alipin ang mga anak niya. 
 
 
 
@@ -834,7 +834,7 @@ Maaari nating tingnan ang dalawang babaeng ito bilang isang paghahalintulad. Kum
 
 
 
-Si Hagar, na kumakatawan sa Bundok ng Sinai sa Arabia ay kumakatawan din sa kasalukuyang Jerusalem. Sapagkat ang mga tao sa Jerusalem ay naging alipin ng Kautusan_. 
+Si Hagar, na kumakatawan sa Bundok ng Sinai sa Arabia ay kumakatawan din sa kasalukuyang Jerusalem. Sapagkat ang mga tao sa Jerusalem ay naging alipin ng Kautusan. 
 
 
 
@@ -867,7 +867,7 @@ Si Hagar, na kumakatawan sa Bundok ng Sinai sa Arabia ay kumakatawan din sa kasa
 
 
 
-Ngunit ang asawang si Sara ay_ hindi alipin, at siya_ ang kumakatawan sa_ Jerusalem na nasa langit, at siya ang ating ina dahil hindi tayo alipin ng Kautusan_. 
+Ngunit ang asawang si Sara ay hindi alipin, at siya ang kumakatawan sa Jerusalem na nasa langit, at siya ang ating ina dahil hindi tayo alipin ng Kautusan. 
 
 
 
@@ -933,7 +933,7 @@ Sapagkat sinasabi sa Kasulatan: "Matuwa ka, baog na babae, ikaw na hindi pa nagk
 
 
 
-Mga kapatid, mga anak kayo ng Dios ayon sa pangako niya, tulad ni Isaac na ipinanganak ayon sa pangako ng Dios_. 
+Mga kapatid, mga anak kayo ng Dios ayon sa pangako niya, tulad ni Isaac na ipinanganak ayon sa pangako ng Dios. 
 
 
 
@@ -966,7 +966,7 @@ Mga kapatid, mga anak kayo ng Dios ayon sa pangako niya, tulad ni Isaac na ipina
 
 
 
-Noong una, si Isaac na_ ipinanganak ayon sa Espiritu ay inusig ni Ishmael na_ ipinanganak ayon sa karaniwang panganganak. Ganoon din ang nangyayari ngayon; inuusig tayo ng mga taong nais magpaalipin sa Kautusan._ 
+Noong una, si Isaac na ipinanganak ayon sa Espiritu ay inusig ni Ishmael na ipinanganak ayon sa karaniwang panganganak. Ganoon din ang nangyayari ngayon; inuusig tayo ng mga taong nais magpaalipin sa Kautusan. 
 
 
 

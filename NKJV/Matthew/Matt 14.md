@@ -16,7 +16,7 @@ At that time Herod the tetrarch heard the report about Jesus
 and said to his servants, "This is John the Baptist; he is risen from the dead, and therefore these powers are at work in him." 
 
 ###### 3 
-For Herod had laid hold of John and bound him, and put _him_ in prison for the sake of Herodias, his brother Philip's wife. 
+For Herod had laid hold of John and bound him, and put him in prison for the sake of Herodias, his brother Philip's wife. 
 
 ###### 4 
 Because John had said to him, "It is not lawful for you to have her." 
@@ -34,13 +34,13 @@ Therefore he promised with an oath to give her whatever she might ask.
 So she, having been prompted by her mother, said, "Give me John the Baptist's head here on a platter." 
 
 ###### 9 
-And the king was sorry; nevertheless, because of the oaths and because of those who sat with him, he commanded _it_ to be given to _her._ 
+And the king was sorry; nevertheless, because of the oaths and because of those who sat with him, he commanded it to be given to her. 
 
 ###### 10 
 So he sent and had John beheaded in prison. 
 
 ###### 11 
-And his head was brought on a platter and given to the girl, and she brought _it_ to her mother. 
+And his head was brought on a platter and given to the girl, and she brought it to her mother. 
 
 ###### 12 
 Then his disciples came and took away the body and buried it, and went and told Jesus.
@@ -48,7 +48,7 @@ Then his disciples came and took away the body and buried it, and went and told 
 ## Feeding the Five Thousand 
 
 ###### 13 
-When Jesus heard _it,_ He departed from there by boat to a deserted place by Himself. But when the multitudes heard it, they followed Him on foot from the cities. 
+When Jesus heard it, He departed from there by boat to a deserted place by Himself. But when the multitudes heard it, they followed Him on foot from the cities. 
 
 ###### 14 
 And when Jesus went out He saw a great multitude; and He was moved with compassion for them, and healed their sick. 
@@ -101,10 +101,10 @@ And Peter answered Him and said, "Lord, if it is You, command me to come to You 
 So He said, "Come." And when Peter had come down out of the boat, he walked on the water to go to Jesus. 
 
 ###### 30 
-But when he saw that the wind _was_ boisterous, he was afraid; and beginning to sink he cried out, saying, "Lord, save me!" 
+But when he saw that the wind was boisterous, he was afraid; and beginning to sink he cried out, saying, "Lord, save me!" 
 
 ###### 31 
-And immediately Jesus stretched out _His_ hand and caught him, and said to him, "O you of little faith, why did you doubt?" 
+And immediately Jesus stretched out His hand and caught him, and said to him, "O you of little faith, why did you doubt?" 
 
 ###### 32 
 And when they got into the boat, the wind ceased. 
@@ -119,4 +119,4 @@ When they had crossed over, they came to the land of Gennesaret.
 And when the men of that place recognized Him, they sent out into all that surrounding region, brought to Him all who were sick, 
 
 ###### 36 
-and begged Him that they might only touch the hem of His garment. And as many as touched _it_ were made perfectly well.
+and begged Him that they might only touch the hem of His garment. And as many as touched it were made perfectly well.

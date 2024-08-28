@@ -72,7 +72,7 @@ Magpatuloy kayo sa pag-iibigan bilang magkakapatid kay Cristo.
 
 
 
-Huwag ninyong kalimutang patuluyin ang mga dayuhan sa tahanan ninyo. May mga taong gumawa niyan noon_, at hindi nila alam na mga anghel na pala ang mga bisita nila. 
+Huwag ninyong kalimutang patuluyin ang mga dayuhan sa tahanan ninyo. May mga taong gumawa niyan noon, at hindi nila alam na mga anghel na pala ang mga bisita nila. 
 
 
 
@@ -105,7 +105,7 @@ Huwag ninyong kalimutang patuluyin ang mga dayuhan sa tahanan ninyo. May mga tao
 
 
 
-Damayan ninyo ang mga kapatid na_ nasa bilangguan na parang nakabilanggo rin kayong kasama nila, at damayan din ninyo_ ang mga kapatid na_ pinagmamalupitan na para bang dumaranas din kayo ng ganoon. 
+Damayan ninyo ang mga kapatid na nasa bilangguan na parang nakabilanggo rin kayong kasama nila, at damayan din ninyo ang mga kapatid na pinagmamalupitan na para bang dumaranas din kayo ng ganoon. 
 
 
 
@@ -237,7 +237,7 @@ Kaya buong pagtitiwalang masasabi natin, "Ang Panginoon ang tumutulong sa akin, 
 
 
 
-Alalahanin nʼyo ang mga dating_ namuno sa inyo na nagbahagi sa inyo ng salita ng Dios. Isipin nʼyo kung paano silang namuhay at namatay na may pananampalataya. Sila ang tularan ninyo. 
+Alalahanin nʼyo ang mga dating namuno sa inyo na nagbahagi sa inyo ng salita ng Dios. Isipin nʼyo kung paano silang namuhay at namatay na may pananampalataya. Sila ang tularan ninyo. 
 
 
 
@@ -303,7 +303,7 @@ Si Jesu-Cristo ay hindi nagbabago. Kung ano siya noon, ganoon din siya ngayon at
 
 
 
-Huwag kayong padadala sa kung anu-anong mga aral na iba sa natutunan ninyo. Mas mabuting patibayin natin ang ating pananampalataya sa pamamagitan ng biyaya ng Dios_ kaysa sa pamamagitan ng pagsunod sa mga tuntunin tungkol_ sa pagkain, na wala namang naidudulot sa mga sumusunod nito. 
+Huwag kayong padadala sa kung anu-anong mga aral na iba sa natutunan ninyo. Mas mabuting patibayin natin ang ating pananampalataya sa pamamagitan ng biyaya ng Dios kaysa sa pamamagitan ng pagsunod sa mga tuntunin tungkol sa pagkain, na wala namang naidudulot sa mga sumusunod nito. 
 
 
 
@@ -336,7 +336,7 @@ Huwag kayong padadala sa kung anu-anong mga aral na iba sa natutunan ninyo. Mas 
 
 
 
-Tayong mga mananampalataya_ ay may altar, at walang karapatang makisalo rito ang mga pari ng mga Judio na naghahandog sa sambahan nila. 
+Tayong mga mananampalataya ay may altar, at walang karapatang makisalo rito ang mga pari ng mga Judio na naghahandog sa sambahan nila. 
 
 
 
@@ -402,7 +402,7 @@ Sapagkat ang dugo ng mga hayop na handog sa paglilinis ay dinadala ng punong par
 
 
 
-Ganyan din ang nangyari kay Jesus, pinatay siya sa labas ng bayan para malinis niya ang mga tao sa mga kasalanan nila_ sa pamamagitan ng kanyang dugo. 
+Ganyan din ang nangyari kay Jesus, pinatay siya sa labas ng bayan para malinis niya ang mga tao sa mga kasalanan nila sa pamamagitan ng kanyang dugo. 
 
 
 
@@ -468,7 +468,7 @@ Kaya lumapit tayo kay Jesus sa "labas ng bayan" at makibahagi sa mga tiniis niya
 
 
 
-Sapagkat wala tayong tunay na bayan sa mundong ito_, pero hinihintay natin ang bayan na paparating pa lang. 
+Sapagkat wala tayong tunay na bayan sa mundong ito, pero hinihintay natin ang bayan na paparating pa lang. 
 
 
 
@@ -501,7 +501,7 @@ Sapagkat wala tayong tunay na bayan sa mundong ito_, pero hinihintay natin ang b
 
 
 
-Kaya patuloy tayong maghandog ng papuri sa Dios sa pamamagitan ni Jesus. Itoʼy ang mga handog na nagmumula sa mga labi natin at nagpapahayag ng_ pagkilala natin_ sa kanya. 
+Kaya patuloy tayong maghandog ng papuri sa Dios sa pamamagitan ni Jesus. Itoʼy ang mga handog na nagmumula sa mga labi natin at nagpapahayag ng pagkilala natin sa kanya. 
 
 
 
@@ -534,7 +534,7 @@ Kaya patuloy tayong maghandog ng papuri sa Dios sa pamamagitan ni Jesus. Itoʼy 
 
 
 
-At huwag nating kalimutan ang paggawa ng mabuti at pagtulong sa iba, dahil ang ganitong uri ng_ handog ay kalugod-lugod sa Dios. 
+At huwag nating kalimutan ang paggawa ng mabuti at pagtulong sa iba, dahil ang ganitong uri ng handog ay kalugod-lugod sa Dios. 
 
 
 
@@ -567,7 +567,7 @@ At huwag nating kalimutan ang paggawa ng mabuti at pagtulong sa iba, dahil ang g
 
 
 
-Sundin nʼyo ang mga namumuno sa inyo at magpasakop kayo sa kanila, dahil sila ang nangangalaga sa espiritwal ninyong kalagayan. At alam nilang may pananagutan sila sa Dios sa pangangalaga nila sa inyo. Kung susundin nʼyo sila_, magiging masaya sila sa pagtupad ng tungkulin nila. Ngunit kung hindi, malulungkot sila, at hindi ito makakatulong sa inyo. 
+Sundin nʼyo ang mga namumuno sa inyo at magpasakop kayo sa kanila, dahil sila ang nangangalaga sa espiritwal ninyong kalagayan. At alam nilang may pananagutan sila sa Dios sa pangangalaga nila sa inyo. Kung susundin nʼyo sila, magiging masaya sila sa pagtupad ng tungkulin nila. Ngunit kung hindi, malulungkot sila, at hindi ito makakatulong sa inyo. 
 
 
 
@@ -800,7 +800,7 @@ Gusto ko ring malaman nʼyo na pinalaya na sa bilangguan ang kapatid nating si T
 
 
 
-Ikumusta nʼyo kami sa mga namumuno sa inyo at sa lahat ng mga pinabanal ng Dios_. Kinukumusta kayo ng mga kapatid nating taga-Italia. 
+Ikumusta nʼyo kami sa mga namumuno sa inyo at sa lahat ng mga pinabanal ng Dios. Kinukumusta kayo ng mga kapatid nating taga-Italia. 
 
 
 
@@ -833,4 +833,4 @@ Ikumusta nʼyo kami sa mga namumuno sa inyo at sa lahat ng mga pinabanal ng Dios
 
 
 
-Pagpalain nawa kayong lahat ng Dios_.
+Pagpalain nawa kayong lahat ng Dios.

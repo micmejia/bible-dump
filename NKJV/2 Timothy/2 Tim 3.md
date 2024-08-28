@@ -42,7 +42,7 @@ but they will progress no further, for their folly will be manifest to all, as t
 But you have carefully followed my doctrine, manner of life, purpose, faith, longsuffering, love, perseverance, 
 
 ###### 11 
-persecutions, afflictions, which happened to me at Antioch, at Iconium, at Lystra--what persecutions I endured. And out of _them_ all the Lord delivered me. 
+persecutions, afflictions, which happened to me at Antioch, at Iconium, at Lystra--what persecutions I endured. And out of them all the Lord delivered me. 
 
 ###### 12 
 Yes, and all who desire to live godly in Christ Jesus will suffer persecution. 
@@ -51,13 +51,13 @@ Yes, and all who desire to live godly in Christ Jesus will suffer persecution.
 But evil men and impostors will grow worse and worse, deceiving and being deceived. 
 
 ###### 14 
-But you must continue in the things which you have learned and been assured of, knowing from whom you have learned _them,_ 
+But you must continue in the things which you have learned and been assured of, knowing from whom you have learned them, 
 
 ###### 15 
 and that from childhood you have known the Holy Scriptures, which are able to make you wise for salvation through faith which is in Christ Jesus. 
 
 ###### 16 
-All Scripture _is_ given by inspiration of God, and _is_ profitable for doctrine, for reproof, for correction, for instruction in righteousness, 
+All Scripture is given by inspiration of God, and is profitable for doctrine, for reproof, for correction, for instruction in righteousness, 
 
 ###### 17 
 that the man of God may be complete, thoroughly equipped for every good work.

@@ -31,25 +31,25 @@ And about the eleventh hour he went out and found others standing idle, and said
 They said to him, 'Because no one hired us.' He said to them, 'You also go into the vineyard, and whatever is right you will receive.' 
 
 ###### 8 
-"So when evening had come, the owner of the vineyard said to his steward, 'Call the laborers and give them _their_ wages, beginning with the last to the first.' 
+"So when evening had come, the owner of the vineyard said to his steward, 'Call the laborers and give them their wages, beginning with the last to the first.' 
 
 ###### 9 
-And when those came who _were hired_ about the eleventh hour, they each received a denarius. 
+And when those came who were hired about the eleventh hour, they each received a denarius. 
 
 ###### 10 
 But when the first came, they supposed that they would receive more; and they likewise received each a denarius. 
 
 ###### 11 
-And when they had received _it,_ they complained against the landowner, 
+And when they had received it, they complained against the landowner, 
 
 ###### 12 
-saying, 'These last _men_ have worked _only_ one hour, and you made them equal to us who have borne the burden and the heat of the day.' 
+saying, 'These last men have worked only one hour, and you made them equal to us who have borne the burden and the heat of the day.' 
 
 ###### 13 
 But he answered one of them and said, 'Friend, I am doing you no wrong. Did you not agree with me for a denarius? 
 
 ###### 14 
-Take _what is_ yours and go your way. I wish to give to this last man _the same_ as to you. 
+Take what is yours and go your way. I wish to give to this last man the same as to you. 
 
 ###### 15 
 Is it not lawful for me to do what I wish with my own things? Or is your eye evil because I am good?' 
@@ -76,13 +76,13 @@ And He said to her, "What do you wish?" She said to Him, "Grant that these two s
 But Jesus answered and said, "You do not know what you ask. Are you able to drink the cup that I am about to drink, and be baptized with the baptism that I am baptized with?" They said to Him, "We are able." 
 
 ###### 23 
-So He said to them, "You will indeed drink My cup, and be baptized with the baptism that I am baptized with; but to sit on My right hand and on My left is not Mine to give, but _it is for those_ for whom it is prepared by My Father." 
+So He said to them, "You will indeed drink My cup, and be baptized with the baptism that I am baptized with; but to sit on My right hand and on My left is not Mine to give, but it is for those for whom it is prepared by My Father." 
 
 ###### 24 
-And when the ten heard _it,_ they were greatly displeased with the two brothers. 
+And when the ten heard it, they were greatly displeased with the two brothers. 
 
 ###### 25 
-But Jesus called them to _Himself_ and said, "You know that the rulers of the Gentiles lord it over them, and those who are great exercise authority over them. 
+But Jesus called them to Himself and said, "You know that the rulers of the Gentiles lord it over them, and those who are great exercise authority over them. 
 
 ###### 26 
 Yet it shall not be so among you; but whoever desires to become great among you, let him be your servant. 

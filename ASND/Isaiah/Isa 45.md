@@ -469,7 +469,7 @@ Ako ang tumawag kay Cyrus para isagawa ang aking layunin. Gagawin kong tama ang 
 
 
 
-Sinabi ng Panginoon sa Israel_, "Masasakop mo ang mga taga-Egipto, ang mga taga-Etiopia at ang mga taga-Sabea na ang mga lalaki ay matatangkad. Paparito sila sa iyo na dala ang kanilang mga kayamanan at mga ani. Silaʼy magiging mga bihag mo. Luluhod sila sa iyo at magsasabi, 'Ang Dios ay totoong kasama mo, at wala nang ibang Dios!' " 
+Sinabi ng Panginoon sa Israel, "Masasakop mo ang mga taga-Egipto, ang mga taga-Etiopia at ang mga taga-Sabea na ang mga lalaki ay matatangkad. Paparito sila sa iyo na dala ang kanilang mga kayamanan at mga ani. Silaʼy magiging mga bihag mo. Luluhod sila sa iyo at magsasabi, 'Ang Dios ay totoong kasama mo, at wala nang ibang Dios!' " 
 
 
 
@@ -667,7 +667,7 @@ Hindi ako nagsalita nang lihim, nang walang nakakaalam. Hindi ko sinabi sa mga l
 
 
 
-Sinabi pa ng Panginoon,_ "Magtipon kayong lahat at lumapit sa akin, kayong mga tumakas mula sa mga bansa. Walang alam ang mga nagdadala ng mga dios-diosan nilang kahoy. Nananalangin sila sa mga dios-diosang ito, na hindi naman makapagliligtas sa kanila. 
+Sinabi pa ng Panginoon, "Magtipon kayong lahat at lumapit sa akin, kayong mga tumakas mula sa mga bansa. Walang alam ang mga nagdadala ng mga dios-diosan nilang kahoy. Nananalangin sila sa mga dios-diosang ito, na hindi naman makapagliligtas sa kanila. 
 
 
 
@@ -832,4 +832,4 @@ Sasabihin nila, 'Tanging sa tulong lamang ng Panginoon ang taoʼy magkakaroon ng
 
 
 
-Sa tulong ng_ Panginoon ang lahat ng lahi ng Israel ay makakaranas ng tagumpay na may katuwiran at magpupuri sila sa kanya.
+Sa tulong ng Panginoon ang lahat ng lahi ng Israel ay makakaranas ng tagumpay na may katuwiran at magpupuri sila sa kanya.

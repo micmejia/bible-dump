@@ -238,7 +238,7 @@ Magdadala siya sa pari ng isang tupang walang kapintasan, at ihahandog niya ito 
 
 
 
-Sa pamamagitan ng gagawing ito ng pari, matutubos ang tao sa kanyang kasalanan, at siyaʼy patatawarin ng Panginoon_ sa alin mang kasalanang nabanggit na kanyang nagawa.
+Sa pamamagitan ng gagawing ito ng pari, matutubos ang tao sa kanyang kasalanan, at siyaʼy patatawarin ng Panginoon sa alin mang kasalanang nabanggit na kanyang nagawa.
 
 ## Karagdagang mga Tuntunin tungkol sa Handog na Sinusunog
 
@@ -275,7 +275,7 @@ Sa pamamagitan ng gagawing ito ng pari, matutubos ang tao sa kanyang kasalanan, 
 
 
 
-Kinaumagahan, isusuot ng pari ang mga kasuotan niyang gawa sa telang_ linen: ang damit pang-ilalim na tatakip sa kanyang kahubaran at ang damit-panlabas. Kukunin niya ang abo ng handog na iyon at ilalagay sa tabi ng altar. 
+Kinaumagahan, isusuot ng pari ang mga kasuotan niyang gawa sa telang linen: ang damit pang-ilalim na tatakip sa kanyang kahubaran at ang damit-panlabas. Kukunin niya ang abo ng handog na iyon at ilalagay sa tabi ng altar. 
 
 
 
@@ -341,7 +341,7 @@ Pagkatapos, magpapalit siya ng damit at dadalhin niya ang abo sa labas ng kampo 
 
 
 
-Kinakailangang ang apoy sa altar ay patuloy na nagniningas. Huwag itong papatayin. Tuwing umagaʼy gagatungan ito ng pari, at aayusin nang mabuti ang mga handog na sinusunog sa itaas ng mga panggatong pati na ang mga taba ng hayop_ mula sa inialay na handog para sa mabuting relasyon. 
+Kinakailangang ang apoy sa altar ay patuloy na nagniningas. Huwag itong papatayin. Tuwing umagaʼy gagatungan ito ng pari, at aayusin nang mabuti ang mga handog na sinusunog sa itaas ng mga panggatong pati na ang mga taba ng hayop mula sa inialay na handog para sa mabuting relasyon. 
 
 
 
@@ -409,7 +409,7 @@ Patuloy na paniningasin ang apoy sa altar, at huwag itong pabayaang mamatay.
 
 
 
-Ito ang mga tuntunin tungkol sa handog na pagpaparangal: Ang mga paring mula sa_ angkan ni Aaron ang magdadala nito sa Panginoon sa harap ng altar. 
+Ito ang mga tuntunin tungkol sa handog na pagpaparangal: Ang mga paring mula sa angkan ni Aaron ang magdadala nito sa Panginoon sa harap ng altar. 
 
 
 
@@ -442,7 +442,7 @@ Ito ang mga tuntunin tungkol sa handog na pagpaparangal: Ang mga paring mula sa_
 
 
 
-Dadakot ang pari sa handog na harinang may halong langis at dadalhin niya sa altar pati ang mga insensong inilagay sa harina. Susunugin niya ito bilang alaala sa Panginoon. Ang mabangong samyo ng handog na itoʼy makalulugod sa Panginoon. 16-17Ang natitirang harina ay lulutuin at_ kakainin ni Aaron at ng kanyang mga angkan. Pero itoʼy lulutuin nilang walang pampaalsa, at doon nila kakainin sa banal na lugar sa bakuran ng Toldang Tipanan. Inilaan iyon ng Panginoon para sa kanila bilang bahagi ng pagkaing inihandog sa kanya. Ang handog na pagpaparangal sa Panginoon ay napakabanal, katulad ng handog sa paglilinis, at handog na pambayad ng kasalanan. 
+Dadakot ang pari sa handog na harinang may halong langis at dadalhin niya sa altar pati ang mga insensong inilagay sa harina. Susunugin niya ito bilang alaala sa Panginoon. Ang mabangong samyo ng handog na itoʼy makalulugod sa Panginoon. 16-17Ang natitirang harina ay lulutuin at kakainin ni Aaron at ng kanyang mga angkan. Pero itoʼy lulutuin nilang walang pampaalsa, at doon nila kakainin sa banal na lugar sa bakuran ng Toldang Tipanan. Inilaan iyon ng Panginoon para sa kanila bilang bahagi ng pagkaing inihandog sa kanya. Ang handog na pagpaparangal sa Panginoon ay napakabanal, katulad ng handog sa paglilinis, at handog na pambayad ng kasalanan. 
 
 
 
@@ -774,7 +774,7 @@ Ang paring maghahandog nitoʼy dapat kumain nito roon sa bakuran ng Toldang Tipa
 
 
 
-Ang sinumang makahipo nito ay mahahawaan ng pagkabanal nito. Ang damit na matatalsikan ng dugo ng handog na itoʼy dapat labhan doon sa banal na lugar sa Tolda_. 
+Ang sinumang makahipo nito ay mahahawaan ng pagkabanal nito. Ang damit na matatalsikan ng dugo ng handog na itoʼy dapat labhan doon sa banal na lugar sa Tolda. 
 
 
 

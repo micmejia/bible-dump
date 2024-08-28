@@ -370,7 +370,7 @@ Pagkatapos, kumuha ang alipin ng sampung kamelyo at mga mamahaling regalo mula s
 
 
 
-Pagdating ng alipin sa bayan,_ pinaluhod niya ang mga kamelyo malapit sa balon sa labas ng bayan. Dapit-hapon noon at oras na ng pag-igib ng mga kababaihan. 
+Pagdating ng alipin sa bayan, pinaluhod niya ang mga kamelyo malapit sa balon sa labas ng bayan. Dapit-hapon noon at oras na ng pag-igib ng mga kababaihan. 
 
 
 
@@ -469,7 +469,7 @@ Nakatayo po ako sa tabi ng balon habang umiigib ang mga babae sa bayan na ito.
 
 
 
-Kung hihingi po ako ng tubig na nasa banga ng isang dalaga, at pumayag siyang painumin ako pati ang mga kamelyo ko, nawaʼy siya na po ang babaeng pinili ninyong maging asawa ng lingkod ninyong si Isaac. Sa ganito ko po malalaman ang pagpapakita nʼyo ng inyong kabutihan sa amo kong si Abraham_." 
+Kung hihingi po ako ng tubig na nasa banga ng isang dalaga, at pumayag siyang painumin ako pati ang mga kamelyo ko, nawaʼy siya na po ang babaeng pinili ninyong maging asawa ng lingkod ninyong si Isaac. Sa ganito ko po malalaman ang pagpapakita nʼyo ng inyong kabutihan sa amo kong si Abraham." 
 
 
 
@@ -733,7 +733,7 @@ Habang nakamasid ang alipin kay Rebeka, iniisip niya kung iyon na ang sagot ng P
 
 
 
-Pagkatapos uminom ng mga kamelyo, inilabas ng alipin ang dala niyang gintong singsing na ang bigat ay anim na gramo. Inilabas din niya ang dalawang pulseras na ginto na ang bigat ay mga 120 gramo. At ibinigay niya ito kay Rebeka._ 
+Pagkatapos uminom ng mga kamelyo, inilabas ng alipin ang dala niyang gintong singsing na ang bigat ay anim na gramo. Inilabas din niya ang dalawang pulseras na ginto na ang bigat ay mga 120 gramo. At ibinigay niya ito kay Rebeka. 
 
 
 
@@ -1294,7 +1294,7 @@ Sumagot siya, 'Ang Panginoon na sinusunod ko ay magpapadala ng anghel niya para 
 
 
 
-Kung doon ka pupunta sa mga kamag-anak ko, hindi darating sa iyo ang kasamaang sinasabi ko na mangyayari kung hindi mo tutuparin ang ating sumpaan_, kahit hindi nila pasamahin ang babae sa iyo.' 
+Kung doon ka pupunta sa mga kamag-anak ko, hindi darating sa iyo ang kasamaang sinasabi ko na mangyayari kung hindi mo tutuparin ang ating sumpaan, kahit hindi nila pasamahin ang babae sa iyo.' 
 
 
 
@@ -1558,7 +1558,7 @@ Yumukod ako agad at sumamba sa Panginoon. Nagpuri ako sa Panginoon, ang Dios ng 
 
 
 
-"Ngayon, gusto kong malaman kung ibibigay nʼyo na maging asawa ni Isaac si Rebeka_ bilang pagpapakita ng kabutihan nʼyo sa aking amo. Sabihin nʼyo na po agad para malaman ko rin kung ano ang gagawin ko." 
+"Ngayon, gusto kong malaman kung ibibigay nʼyo na maging asawa ni Isaac si Rebeka bilang pagpapakita ng kabutihan nʼyo sa aking amo. Sabihin nʼyo na po agad para malaman ko rin kung ano ang gagawin ko." 
 
 
 
@@ -2086,7 +2086,7 @@ Nang makita ni Rebeka si Isaac, bumaba siya sa kanyang kamelyo
 
 
 
-at nagtanong sa alipin ni Abraham, "Sino ang taong iyon na naglalakad sa bukid papalapit sa atin?" Sumagot ang alipin, "Siya ang aking amo na si Isaac_." Kaya tinakpan ni Rebeka ang kanyang mukha ng belo. 
+at nagtanong sa alipin ni Abraham, "Sino ang taong iyon na naglalakad sa bukid papalapit sa atin?" Sumagot ang alipin, "Siya ang aking amo na si Isaac." Kaya tinakpan ni Rebeka ang kanyang mukha ng belo. 
 
 
 

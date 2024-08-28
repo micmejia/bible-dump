@@ -10,7 +10,7 @@ next: ['Eph 3']
 
 
 ###### 1 
-And you _He made alive,_ who were dead in trespasses and sins, 
+And you He made alive, who were dead in trespasses and sins, 
 
 ###### 2 
 in which you once walked according to the course of this world, according to the prince of the power of the air, the spirit who now works in the sons of disobedience, 
@@ -25,13 +25,13 @@ But God, who is rich in mercy, because of His great love with which He loved us,
 even when we were dead in trespasses, made us alive together with Christ (by grace you have been saved), 
 
 ###### 6 
-and raised _us_ up together, and made _us_ sit together in the heavenly _places_ in Christ Jesus, 
+and raised us up together, and made us sit together in the heavenly places in Christ Jesus, 
 
 ###### 7 
-that in the ages to come He might show the exceeding riches of His grace in _His_ kindness toward us in Christ Jesus. 
+that in the ages to come He might show the exceeding riches of His grace in His kindness toward us in Christ Jesus. 
 
 ###### 8 
-For by grace you have been saved through faith, and that not of yourselves; _it is_ the gift of God, 
+For by grace you have been saved through faith, and that not of yourselves; it is the gift of God, 
 
 ###### 9 
 not of works, lest anyone should boast. 
@@ -56,7 +56,7 @@ But now in Christ Jesus you who once were far off have been brought near by the 
 For He Himself is our peace, who has made both one, and has broken down the middle wall of separation, 
 
 ###### 15 
-having abolished in His flesh the enmity, _that is,_ the law of commandments _contained_ in ordinances, so as to create in Himself one new man _from_ the two, _thus_ making peace, 
+having abolished in His flesh the enmity, that is, the law of commandments contained in ordinances, so as to create in Himself one new man from the two, thus making peace, 
 
 ###### 16 
 and that He might reconcile them both to God in one body through the cross, thereby putting to death the enmity. 
@@ -73,7 +73,7 @@ For through Him we both have access by one Spirit to the Father.
 Now, therefore, you are no longer strangers and foreigners, but fellow citizens with the saints and members of the household of God, 
 
 ###### 20 
-having been built on the foundation of the apostles and prophets, Jesus Christ Himself being the chief corner_stone,_ 
+having been built on the foundation of the apostles and prophets, Jesus Christ Himself being the chief cornerstone, 
 
 ###### 21 
 in whom the whole building, being fitted together, grows into a holy temple in the Lord, 

@@ -106,7 +106,7 @@ Pagkatapos, nakita ko ang pitong anghel na nakatayo sa harapan ng Dios. Ang bawa
 
 
 
-May isa pang anghel na lumapit sa altar, dala ang isang gintong lalagyan ng insenso. Binigyan siya ng maraming insenso para maisama niya sa mga dalangin ng lahat ng mga pinabanal ng Dios_ at maihandog sa gintong altar sa harap ng trono. 
+May isa pang anghel na lumapit sa altar, dala ang isang gintong lalagyan ng insenso. Binigyan siya ng maraming insenso para maisama niya sa mga dalangin ng lahat ng mga pinabanal ng Dios at maihandog sa gintong altar sa harap ng trono. 
 
 
 

@@ -40,7 +40,7 @@ next: ['Ezek 46']
 
 
 
-Sinabi pa ng Panginoon_, "Kapag pinaghati-hati nʼyo na ang lupain para sa bawat lahi ng Israel, bigyan ninyo ako ng parte na 12 kilometro ang haba at sampung kilometro ang luwang. Ang lupaing ito ay ituturing na banal. 
+Sinabi pa ng Panginoon, "Kapag pinaghati-hati nʼyo na ang lupain para sa bawat lahi ng Israel, bigyan ninyo ako ng parte na 12 kilometro ang haba at sampung kilometro ang luwang. Ang lupaing ito ay ituturing na banal. 
 
 
 
@@ -174,7 +174,7 @@ Ang natirang kalahati na 12 kilometro ang haba at 5 kilometro ang luwang ay para
 
 
 
-Bibigyan din ng dalawang bahagi ng lupain ang pinuno ng Israel. Ang isang bahagi ay nasa gawing kanluran ng hangganan ng lupaing para sa akin at ng lupaing gagawing lungsod papunta sa Dagat ng Mediteraneo_, at ang isa ay mula sa hangganan sa silangan papunta sa Ilog ng Jordan. Ang hangganan nito sa silangan at sa kanluran ay pantay sa hangganan ng lupaing ibinahagi sa mga lahi ng Israel. 
+Bibigyan din ng dalawang bahagi ng lupain ang pinuno ng Israel. Ang isang bahagi ay nasa gawing kanluran ng hangganan ng lupaing para sa akin at ng lupaing gagawing lungsod papunta sa Dagat ng Mediteraneo, at ang isa ay mula sa hangganan sa silangan papunta sa Ilog ng Jordan. Ang hangganan nito sa silangan at sa kanluran ay pantay sa hangganan ng lupaing ibinahagi sa mga lahi ng Israel. 
 
 
 
@@ -242,7 +242,7 @@ Ang lupaing ito ang magiging parte ng pinuno ng Israel.
 
 
 
-Sapagkat ako_, ang Panginoong Dios, ay nagsasabi: Kayong mga pinuno ng Israel, tama na ang ginagawa ninyo. Tigilan nʼyo na ang pagmamalupit at pang-aapi, at gawin ninyo kung ano ang matuwid at tama. Tigilan nʼyo na rin ang pangangamkam ng lupain ng aking mga mamamayan. 
+Sapagkat ako, ang Panginoong Dios, ay nagsasabi: Kayong mga pinuno ng Israel, tama na ang ginagawa ninyo. Tigilan nʼyo na ang pagmamalupit at pang-aapi, at gawin ninyo kung ano ang matuwid at tama. Tigilan nʼyo na rin ang pangangamkam ng lupain ng aking mga mamamayan. 
 
 
 
@@ -376,7 +376,7 @@ Ang 'shekel' ang siyang batayan ng pagsukat ng bigat. Ang isang 'shekel' ay 20 '
 
 
 
-"Ito ang mga kaloob na dapat ninyong ibigay sa pinuno ng Israel_: isa sa bawat 60 ng inani ninyong trigo at sebada, 
+"Ito ang mga kaloob na dapat ninyong ibigay sa pinuno ng Israel: isa sa bawat 60 ng inani ninyong trigo at sebada, 
 
 
 
@@ -409,7 +409,7 @@ Ang 'shekel' ang siyang batayan ng pagsukat ng bigat. Ang isang 'shekel' ay 20 '
 
 
 
-isa sa bawat 100 na bat ng langis ng olibo_ (ang takalan na gagamitin nito ay ang 'bat'; ang sampung 'bat' ay isang 'homer' o isang 'cor'), 
+isa sa bawat 100 na bat ng langis ng olibo (ang takalan na gagamitin nito ay ang 'bat'; ang sampung 'bat' ay isang 'homer' o isang 'cor'), 
 
 
 
@@ -442,7 +442,7 @@ isa sa bawat 100 na bat ng langis ng olibo_ (ang takalan na gagamitin nito ay an
 
 
 
-at isang tupa sa bawat 200 ninyong hayop. Ang mga kaloob na itoʼy gagamiting handog para sa pagpaparangal sa akin, handog na sinusunog at handog para sa mabuting relasyon, upang mapatawad ang mga kasalanan ninyo. Ako,_ ang Panginoong Dios, ang nagsasabi nito. 
+at isang tupa sa bawat 200 ninyong hayop. Ang mga kaloob na itoʼy gagamiting handog para sa pagpaparangal sa akin, handog na sinusunog at handog para sa mabuting relasyon, upang mapatawad ang mga kasalanan ninyo. Ako, ang Panginoong Dios, ang nagsasabi nito. 
 
 
 
@@ -508,7 +508,7 @@ Ang lahat ng Israelita ang magdadala ng mga kaloob na ito para magamit ng pinuno
 
 
 
-Tungkulin naman ng pinuno ng Israel_ ang pagbibigay ng mga handog na sinusunog, handog ng pagpaparangal sa akin, handog na inumin, handog sa paglilinis, at handog para sa mabuting relasyon sa panahon ng pista katulad ng Pista ng Pagsisimula ng Buwan, mga Araw ng Pamamahinga, at iba pang mga pista na ipinagdiriwang ng mga Israelita. Iaalay ang mga handog na ito upang mapatawad ang mga kasalanan ng mga mamamayan ng Israel." ## Ang mga Pista 
+Tungkulin naman ng pinuno ng Israel ang pagbibigay ng mga handog na sinusunog, handog ng pagpaparangal sa akin, handog na inumin, handog sa paglilinis, at handog para sa mabuting relasyon sa panahon ng pista katulad ng Pista ng Pagsisimula ng Buwan, mga Araw ng Pamamahinga, at iba pang mga pista na ipinagdiriwang ng mga Israelita. Iaalay ang mga handog na ito upang mapatawad ang mga kasalanan ng mga mamamayan ng Israel." ## Ang mga Pista 
 
 
 
@@ -772,4 +772,4 @@ Sa bawat batang toro at lalaking tupa, kinakailangang may kasamang handog ng pag
 
 
 
-Ganito rin ang ihahandog ng pinuno sa Pista ng Pagtatayo ng mga Kubol_ na magsisimula sa ika-15 araw ng ika-7 buwan. At sa loob ng pitong araw, ang pinuno ay maghahandog ng katulad ng inihandog niya sa Pista ng Paglampas ng Anghel_: mga handog sa paglilinis, handog na sinusunog, handog ng pagpaparangal sa akin at langis."
+Ganito rin ang ihahandog ng pinuno sa Pista ng Pagtatayo ng mga Kubol na magsisimula sa ika-15 araw ng ika-7 buwan. At sa loob ng pitong araw, ang pinuno ay maghahandog ng katulad ng inihandog niya sa Pista ng Paglampas ng Anghel: mga handog sa paglilinis, handog na sinusunog, handog ng pagpaparangal sa akin at langis."

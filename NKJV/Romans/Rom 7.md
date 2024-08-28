@@ -13,10 +13,10 @@ next: ['Rom 8']
 Or do you not know, brethren (for I speak to those who know the law), that the law has dominion over a man as long as he lives? 
 
 ###### 2 
-For the woman who has a husband is bound by the law to _her_ husband as long as he lives. But if the husband dies, she is released from the law of _her_ husband. 
+For the woman who has a husband is bound by the law to her husband as long as he lives. But if the husband dies, she is released from the law of her husband. 
 
 ###### 3 
-So then if, while _her_ husband lives, she marries another man, she will be called an adulteress; but if her husband dies, she is free from that law, so that she is no adulteress, though she has married another man. 
+So then if, while her husband lives, she marries another man, she will be called an adulteress; but if her husband dies, she is free from that law, so that she is no adulteress, though she has married another man. 
 
 ###### 4 
 Therefore, my brethren, you also have become dead to the law through the body of Christ, that you may be married to another--to Him who was raised from the dead, that we should bear fruit to God. 
@@ -25,27 +25,27 @@ Therefore, my brethren, you also have become dead to the law through the body of
 For when we were in the flesh, the sinful passions which were aroused by the law were at work in our members to bear fruit to death. 
 
 ###### 6 
-But now we have been delivered from the law, having died to what we were held by, so that we should serve in the newness of the Spirit and not _in_ the oldness of the letter.
+But now we have been delivered from the law, having died to what we were held by, so that we should serve in the newness of the Spirit and not in the oldness of the letter.
 
 ## Sin's Advantage in the Law 
 
 ###### 7 
-What shall we say then? _Is_ the law sin? Certainly not! On the contrary, I would not have known sin except through the law. For I would not have known covetousness unless the law had said, "You shall not covet." 
+What shall we say then? Is the law sin? Certainly not! On the contrary, I would not have known sin except through the law. For I would not have known covetousness unless the law had said, "You shall not covet." 
 
 ###### 8 
-But sin, taking opportunity by the commandment, produced in me all _manner of evil_ desire. For apart from the law sin _was_ dead. 
+But sin, taking opportunity by the commandment, produced in me all manner of evil desire. For apart from the law sin was dead. 
 
 ###### 9 
 I was alive once without the law, but when the commandment came, sin revived and I died. 
 
 ###### 10 
-And the commandment, which _was_ to _bring_ life, I found to _bring_ death. 
+And the commandment, which was to bring life, I found to bring death. 
 
 ###### 11 
-For sin, taking occasion by the commandment, deceived me, and by it killed _me._ 
+For sin, taking occasion by the commandment, deceived me, and by it killed me. 
 
 ###### 12 
-Therefore the law _is_ holy, and the commandment holy and just and good.
+Therefore the law is holy, and the commandment holy and just and good.
 
 ## Law Cannot Save from Sin 
 
@@ -59,19 +59,19 @@ For we know that the law is spiritual, but I am carnal, sold under sin.
 For what I am doing, I do not understand. For what I will to do, that I do not practice; but what I hate, that I do. 
 
 ###### 16 
-If, then, I do what I will not to do, I agree with the law that _it is_ good. 
+If, then, I do what I will not to do, I agree with the law that it is good. 
 
 ###### 17 
-But now, _it is_ no longer I who do it, but sin that dwells in me. 
+But now, it is no longer I who do it, but sin that dwells in me. 
 
 ###### 18 
-For I know that in me (that is, in my flesh) nothing good dwells; for to will is present with me, but _how_ to perform what is good I do not find. 
+For I know that in me (that is, in my flesh) nothing good dwells; for to will is present with me, but how to perform what is good I do not find. 
 
 ###### 19 
-For the good that I will _to do,_ I do not do; but the evil I will not _to do,_ that I practice. 
+For the good that I will to do, I do not do; but the evil I will not to do, that I practice. 
 
 ###### 20 
-Now if I do what I will not _to do,_ it is no longer I who do it, but sin that dwells in me. 
+Now if I do what I will not to do, it is no longer I who do it, but sin that dwells in me. 
 
 ###### 21 
 I find then a law, that evil is present with me, the one who wills to do good. 

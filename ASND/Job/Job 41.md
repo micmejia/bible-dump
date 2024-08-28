@@ -40,7 +40,7 @@ next: ['Job 42']
 
 
 
-"Job,_ mabibingwit mo kaya ang dragon na_ Leviatan? Matatalian mo kaya ang nguso niya ng lubid? 
+"Job, mabibingwit mo kaya ang dragon na Leviatan? Matatalian mo kaya ang nguso niya ng lubid? 
 
 
 
@@ -106,7 +106,7 @@ Matatalian mo ba ng lubid ang ilong niya o mailalagay mo kaya ang kawil sa kanya
 
 
 
-Kapag nagawa mo iyon,_ makikiusap kaya siyang lagi sa iyo na pakawalan mo siya, o di kayaʼy magmakaawa siya sa iyo? 
+Kapag nagawa mo iyon, makikiusap kaya siyang lagi sa iyo na pakawalan mo siya, o di kayaʼy magmakaawa siya sa iyo? 
 
 
 
@@ -172,7 +172,7 @@ Makikipagkasundo kaya siya sa iyo na magpapaalipin habang buhay?
 
 
 
-Magagawa mo kaya siyang parang alagang ibon o maibibigay mo ba siya sa iyong mga anak na babae para kanilang laruin_? 
+Magagawa mo kaya siyang parang alagang ibon o maibibigay mo ba siya sa iyong mga anak na babae para kanilang laruin? 
 
 
 
@@ -832,7 +832,7 @@ Walang espada, sibat, pana, o palasong makakapanakit sa kanya.
 
 
 
-Para sa kanya ang bakal ay kasinlambot lang ng_ dayami at ang tanso ay para lang bulok na kahoy. 
+Para sa kanya ang bakal ay kasinlambot lang ng dayami at ang tanso ay para lang bulok na kahoy. 
 
 
 

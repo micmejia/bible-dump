@@ -304,7 +304,7 @@ At ipapatawag siya ng mga tagapamahala ng bayan at makikipag-usap sila sa kanya.
 
 
 
-lalapitan siya ng biyuda sa harap ng mga tagapamahala at kukunin niya ang sandalyas ng kanyang hipag at duduraan niya sa mukha at sasabihin, 'Ganyan ang gagawin sa lalaking hindi pumapayag na bigyan ng lahi ang kanyang kapatid na namatay_.' 
+lalapitan siya ng biyuda sa harap ng mga tagapamahala at kukunin niya ang sandalyas ng kanyang hipag at duduraan niya sa mukha at sasabihin, 'Ganyan ang gagawin sa lalaking hindi pumapayag na bigyan ng lahi ang kanyang kapatid na namatay.' 
 
 
 

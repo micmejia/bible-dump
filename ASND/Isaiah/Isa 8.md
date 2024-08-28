@@ -405,7 +405,7 @@ Mariin akong binalaan ng Panginoon na huwag kong gagayahin ang pamamaraan ng mga
 
 
 
-Sinabi rin_ niya, "Huwag kayong makikipag-isa sa ibang mga bansa katulad ng ginagawa ng iba. Huwag kayong matatakot sa kinakatakutan nila, at huwag kayong kabahan. 
+Sinabi rin niya, "Huwag kayong makikipag-isa sa ibang mga bansa katulad ng ginagawa ng iba. Huwag kayong matatakot sa kinakatakutan nila, at huwag kayong kabahan. 
 
 
 
@@ -537,7 +537,7 @@ Marami sa kanila ang matitisod, madadapa at mapapahamak. Masisilo sila at mahuhu
 
 
 
-Kayong mga tagasunod ko, ingatan ninyo ang mga aral ko_. 
+Kayong mga tagasunod ko, ingatan ninyo ang mga aral ko. 
 
 
 

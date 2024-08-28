@@ -37,13 +37,13 @@ Shall the land not tremble for this, And everyone mourn who dwells in it? All of
 "And it shall come to pass in that day," says the Lord God, "That I will make the sun go down at noon, And I will darken the earth in broad daylight; 
 
 ###### 10 
-I will turn your feasts into mourning, And all your songs into lamentation; I will bring sackcloth on every waist, And baldness on every head; I will make it like mourning for an only _son,_ And its end like a bitter day. 
+I will turn your feasts into mourning, And all your songs into lamentation; I will bring sackcloth on every waist, And baldness on every head; I will make it like mourning for an only son, And its end like a bitter day. 
 
 ###### 11 
 "Behold, the days are coming," says the Lord God, "That I will send a famine on the land, Not a famine of bread, Nor a thirst for water, But of hearing the words of the Lord. 
 
 ###### 12 
-They shall wander from sea to sea, And from north to east; They shall run to and fro, seeking the word of the Lord, But shall not find _it._ 
+They shall wander from sea to sea, And from north to east; They shall run to and fro, seeking the word of the Lord, But shall not find it. 
 
 ###### 13 
 "In that day the fair virgins And strong young men Shall faint from thirst. 

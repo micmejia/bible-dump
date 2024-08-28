@@ -304,7 +304,7 @@ Ang karunungan ng taong marunong umunawa kung ano ang tama at mali ang nagbibiga
 
 
 
-Balewala sa mga hangal ang makagawa ng kasalanan, ngunit ang taong matuwid ay gustong maging kalugod-lugod sa Dios_. 
+Balewala sa mga hangal ang makagawa ng kasalanan, ngunit ang taong matuwid ay gustong maging kalugod-lugod sa Dios. 
 
 
 
@@ -799,7 +799,7 @@ Ang masikap sa trabaho ay may pakinabang, ngunit magiging mahirap ang puro salit
 
 
 
-Ang karangalan ng taong marunong ay ang kanyang kayamanan, ngunit ang hangal ay lalo pang madadagdagan ang_ kahangalan. 
+Ang karangalan ng taong marunong ay ang kanyang kayamanan, ngunit ang hangal ay lalo pang madadagdagan ang kahangalan. 
 
 
 

@@ -75,7 +75,7 @@ Nang matapos na ni Solomon ang lahat ng gawain para sa templo ng Panginoon, dina
 
 
 
-Ipinatawag ni Haring_ Solomon sa Jerusalem ang mga tagapamahala ng Israel at ang lahat ng pinuno ng mga lahi at ng mga pamilya sa Israel, para kunin ang Kahon ng Kasunduan ng Panginoon mula sa Zion, ang Lungsod ni David. 
+Ipinatawag ni Haring Solomon sa Jerusalem ang mga tagapamahala ng Israel at ang lahat ng pinuno ng mga lahi at ng mga pamilya sa Israel, para kunin ang Kahon ng Kasunduan ng Panginoon mula sa Zion, ang Lungsod ni David. 
 
 
 
@@ -108,7 +108,7 @@ Ipinatawag ni Haring_ Solomon sa Jerusalem ang mga tagapamahala ng Israel at ang
 
 
 
-Pumunta silang lahat kay Haring Solomon_ noong panahon ng Pista ng Pagtatayo ng mga Kubol_, nang ikapitong buwan.
+Pumunta silang lahat kay Haring Solomon noong panahon ng Pista ng Pagtatayo ng mga Kubol, nang ikapitong buwan.
 
 ###### 4-5 Nang magkatipon na ang lahat ng tagapamahala ng Israel, kinuha ng mga pari at ng mga Levita ang Kahon, ang Toldang Tipanan at ang mga banal na gamit nito. Dinala nilang lahat ito sa templo. 
 
@@ -143,7 +143,7 @@ Pumunta silang lahat kay Haring Solomon_ noong panahon ng Pista ng Pagtatayo ng 
 
 
 
-Naghandog si Haring Solomon at ang buong mamamayan ng Israel sa harapan ng Kahon ng Kasunduan_. Napakaraming tupa at baka ang kanilang inihandog, hindi ito mabilang dahil sa dami. 
+Naghandog si Haring Solomon at ang buong mamamayan ng Israel sa harapan ng Kahon ng Kasunduan. Napakaraming tupa at baka ang kanilang inihandog, hindi ito mabilang dahil sa dami. 
 
 
 
@@ -407,4 +407,4 @@ Ang mga mang-aawit ay nagpuri at nagpasalamat sa Panginoon na tinutugtugan ng mg
 
 
 
-Hindi na makaganap ang mga pari ng kanilang gawain sa templo_ dahil sa ulap, dahil binalot ng makapangyarihang presensya ng Panginoon ang kanyang templo.
+Hindi na makaganap ang mga pari ng kanilang gawain sa templo dahil sa ulap, dahil binalot ng makapangyarihang presensya ng Panginoon ang kanyang templo.

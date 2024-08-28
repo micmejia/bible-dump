@@ -73,7 +73,7 @@ Ipinatawag ni Eliseo ang isa sa miyembro ng grupo ng mga propeta at sinabi, "Mag
 
 
 
-Pagdating mo roon, hanapin mo si Jehu na anak ni Jehoshafat na apo ni Nimsi. Kunin mo siya sa mga kasama niya at dalhin mo sa isang kwarto na dalawa lang kayo_. 
+Pagdating mo roon, hanapin mo si Jehu na anak ni Jehoshafat na apo ni Nimsi. Kunin mo siya sa mga kasama niya at dalhin mo sa isang kwarto na dalawa lang kayo. 
 
 
 
@@ -403,7 +403,7 @@ Pagbalik ni Jehu sa mga kasama niyang opisyal, isa sa kanila ang nagtanong sa ka
 
 
 
-Sumagot sila, "Hindi totoo iyan. Sabihin mo sa amin kung ano talaga ang sinabi niya_." Sinabi ni Jehu, "Ito ang sinabi niya sa akin, 'Sinabi ng Panginoon, ang Dios ng Israel: Pinili kitang maging hari ng Israel.' " 
+Sumagot sila, "Hindi totoo iyan. Sabihin mo sa amin kung ano talaga ang sinabi niya." Sinabi ni Jehu, "Ito ang sinabi niya sa akin, 'Sinabi ng Panginoon, ang Dios ng Israel: Pinili kitang maging hari ng Israel.' " 
 
 
 
@@ -436,7 +436,7 @@ Sumagot sila, "Hindi totoo iyan. Sabihin mo sa amin kung ano talaga ang sinabi n
 
 
 
-Nang marinig ito ng mga opisyal,_ tinanggal nila ang mga balabal nila at inilatag sa hagdanan para kay Jehu. Pinatunog nila ang trumpeta at sumigaw, "Si Jehu na ang hari!" ## Pinatay ni Jehu sina Joram at Ahazia 
+Nang marinig ito ng mga opisyal, tinanggal nila ang mga balabal nila at inilatag sa hagdanan para kay Jehu. Pinatunog nila ang trumpeta at sumigaw, "Si Jehu na ang hari!" ## Pinatay ni Jehu sina Joram at Ahazia 
 
 
 
@@ -502,7 +502,7 @@ Nagplano si Jehu na anak ni Jehoshafat at apo ni Nimsi laban kay Joram. (Nang pa
 
 
 
-Pero nasugatan si Joram sa pakikipaglaban nila sa mga Arameo kaya kinailangan niyang umuwi sa Jezreel para magpagaling.) Sinabi ni Jehu sa mga kasama niyang opisyal_, "Kung gusto ninyo maging hari ako, huwag ninyong hayaang may lumabas sa lungsod para pumunta sa Jezreel at ibalita na ginawa ninyo akong hari_." 
+Pero nasugatan si Joram sa pakikipaglaban nila sa mga Arameo kaya kinailangan niyang umuwi sa Jezreel para magpagaling.) Sinabi ni Jehu sa mga kasama niyang opisyal, "Kung gusto ninyo maging hari ako, huwag ninyong hayaang may lumabas sa lungsod para pumunta sa Jezreel at ibalita na ginawa ninyo akong hari." 
 
 
 
@@ -601,7 +601,7 @@ Ngayon, nakita ng guwardya sa tore ng Jezreel si Jehu na paparating kasama ang m
 
 
 
-Kaya umalis ang mangangabayo para salubungin si Jehu at sinabi, "Gusto pong malaman ng hari kung kapayapaan ang sadya ninyo rito." Sumagot si Jehu, "Wala ka nang pakialam doon! Sumunod ka sa akin!" Sumigaw ang guwardya sa hari_, "Nakarating na po sa kanila ang mangangabayo pero hindi pa siya bumabalik." 
+Kaya umalis ang mangangabayo para salubungin si Jehu at sinabi, "Gusto pong malaman ng hari kung kapayapaan ang sadya ninyo rito." Sumagot si Jehu, "Wala ka nang pakialam doon! Sumunod ka sa akin!" Sumigaw ang guwardya sa hari, "Nakarating na po sa kanila ang mangangabayo pero hindi pa siya bumabalik." 
 
 
 
@@ -667,7 +667,7 @@ Kaya muling nagpadala ang hari ng isang mangangabayo. Pagdating niya kina Jehu s
 
 
 
-Muling sumigaw ang guwardya sa hari_, "Nakarating na po sa kanila ang ikalawang mangangabayo, pero hindi pa siya bumabalik! Sobrang bilis magpatakbo ng karwahe ng kanilang pinuno_; parang si Jehu na apo ni Nimsi!" 
+Muling sumigaw ang guwardya sa hari, "Nakarating na po sa kanila ang ikalawang mangangabayo, pero hindi pa siya bumabalik! Sobrang bilis magpatakbo ng karwahe ng kanilang pinuno; parang si Jehu na apo ni Nimsi!" 
 
 
 
@@ -700,7 +700,7 @@ Muling sumigaw ang guwardya sa hari_, "Nakarating na po sa kanila ang ikalawang 
 
 
 
-Sinabi ni Joram, "Ihanda mo ang karwahe ko." Nang maihanda na,_ umalis sina Haring Joram ng Israel at Haring Ahazia ng Juda, para salubungin si Jehu. Nakasakay sila sa kani-kanilang karwahe. Nagkita sila ni Jehu sa lupain ni Nabot na taga-Jezreel. 
+Sinabi ni Joram, "Ihanda mo ang karwahe ko." Nang maihanda na, umalis sina Haring Joram ng Israel at Haring Ahazia ng Juda, para salubungin si Jehu. Nakasakay sila sa kani-kanilang karwahe. Nagkita sila ni Jehu sa lupain ni Nabot na taga-Jezreel. 
 
 
 
@@ -733,7 +733,7 @@ Sinabi ni Joram, "Ihanda mo ang karwahe ko." Nang maihanda na,_ umalis sina Hari
 
 
 
-Pagkakita ni Joram kay Jehu, tinanong niya ito, "Kapayapaan ba ang sadya mo rito, Jehu?" Sumagot si Jehu, "Kahit kailan hindi magkakaroon ng kapayapaan hanggaʼt may pagsamba sa dios-diosan sa pamamagitan ng prostitusyon_ at pangkukulam na inumpisahan ng iyong ina na si Jezebel." 
+Pagkakita ni Joram kay Jehu, tinanong niya ito, "Kapayapaan ba ang sadya mo rito, Jehu?" Sumagot si Jehu, "Kahit kailan hindi magkakaroon ng kapayapaan hanggaʼt may pagsamba sa dios-diosan sa pamamagitan ng prostitusyon at pangkukulam na inumpisahan ng iyong ina na si Jezebel." 
 
 
 
@@ -766,7 +766,7 @@ Pagkakita ni Joram kay Jehu, tinanong niya ito, "Kapayapaan ba ang sadya mo rito
 
 
 
-Pinabalik ni Joram ang kabayo niya at pinatakbo nang mabilis. Sinigawan niya si Ahazia, "Nagtraydor si Jehu_ sa akin!" 
+Pinabalik ni Joram ang kabayo niya at pinatakbo nang mabilis. Sinigawan niya si Ahazia, "Nagtraydor si Jehu sa akin!" 
 
 
 
@@ -832,7 +832,7 @@ Kinuha ni Jehu ang palaso niya at pinana si Joram sa likod. Tumagos ang pana sa 
 
 
 
-Sinabi ni Jehu kay Bidkar na kanyang opisyal, "Kunin mo ang bangkay ni Joram at itapon sa bukid ni Nabot na taga-Jezreel. Naaalala mo ba noong nakasakay tayo sa karwahe_ sa likuran ni Ahab na kanyang ama? Ito ang sinabi ng Panginoon laban sa kanya: 
+Sinabi ni Jehu kay Bidkar na kanyang opisyal, "Kunin mo ang bangkay ni Joram at itapon sa bukid ni Nabot na taga-Jezreel. Naaalala mo ba noong nakasakay tayo sa karwahe sa likuran ni Ahab na kanyang ama? Ito ang sinabi ng Panginoon laban sa kanya: 
 
 
 
@@ -865,7 +865,7 @@ Sinabi ni Jehu kay Bidkar na kanyang opisyal, "Kunin mo ang bangkay ni Joram at 
 
 
 
-'Nakita ko kahapon ang pagkamatay ni Nabot at ng kanyang mga anak. At nangangako ako na parurusahan kita sa lupain mismo ni Nabot. Ako_ ang Panginoon ang nagsasabi nito.' Kaya kunin mo ang katawan niya at itapon sa bukid ni Nabot ayon sa sinabi ng Panginoon." 
+'Nakita ko kahapon ang pagkamatay ni Nabot at ng kanyang mga anak. At nangangako ako na parurusahan kita sa lupain mismo ni Nabot. Ako ang Panginoon ang nagsasabi nito.' Kaya kunin mo ang katawan niya at itapon sa bukid ni Nabot ayon sa sinabi ng Panginoon." 
 
 
 
@@ -898,7 +898,7 @@ Sinabi ni Jehu kay Bidkar na kanyang opisyal, "Kunin mo ang bangkay ni Joram at 
 
 
 
-Nang makita ni Haring Ahazia ng Juda ang nangyari, tumakas siya papunta sa Bet Haggan. Hinabol siya ni Jehu na sumisigaw, "Panain din siya!" Kaya pinana nila siya_ sa kanyang karwahe sa daan papunta sa Gur, malapit sa Ibleam. Nakatakas siya na sugatan_ hanggang sa Megido, pero namatay siya roon. 
+Nang makita ni Haring Ahazia ng Juda ang nangyari, tumakas siya papunta sa Bet Haggan. Hinabol siya ni Jehu na sumisigaw, "Panain din siya!" Kaya pinana nila siya sa kanyang karwahe sa daan papunta sa Gur, malapit sa Ibleam. Nakatakas siya na sugatan hanggang sa Megido, pero namatay siya roon. 
 
 
 
@@ -999,7 +999,7 @@ Naging hari ng Juda si Ahazia nang ika-11 taon ng paghahari ni Joram na anak ni 
 
 
 
-Pumunta si Jehu sa Jezreel. Nang nalaman ito ni Jezebel, kinulayan ni Jezebel ng pampaganda ang kanyang mga mata, inayos ang buhok niya at dumungaw sa bintana ng palasyo_. 
+Pumunta si Jehu sa Jezreel. Nang nalaman ito ni Jezebel, kinulayan ni Jezebel ng pampaganda ang kanyang mga mata, inayos ang buhok niya at dumungaw sa bintana ng palasyo. 
 
 
 
@@ -1032,7 +1032,7 @@ Pumunta si Jehu sa Jezreel. Nang nalaman ito ni Jezebel, kinulayan ni Jezebel ng
 
 
 
-Pagpasok ni Jehu sa pintuan ng palasyo_ sinabi ni Jezebel sa kanya, "Kapayapaan ba ang sadya mo rito, ikaw na mamamatay-tao? Katulad ka ni Zimri na pinatay ang kanyang amo!" 
+Pagpasok ni Jehu sa pintuan ng palasyo sinabi ni Jezebel sa kanya, "Kapayapaan ba ang sadya mo rito, ikaw na mamamatay-tao? Katulad ka ni Zimri na pinatay ang kanyang amo!" 
 
 
 
@@ -1197,7 +1197,7 @@ Pero nang kukunin na nila ang bangkay niya para ilibing, wala nang natira sa kan
 
 
 
-Kaya bumalik sila at sinabi kay Jehu ang nangyari_. Sinabi ni Jehu, "Natupad ang sinabi ng Panginoon sa pamamagitan ng lingkod niyang si Elias na taga-Tisbe: Sa isang lupain ng Jezreel, kakainin ng mga aso ang laman ni Jezebel. 
+Kaya bumalik sila at sinabi kay Jehu ang nangyari. Sinabi ni Jehu, "Natupad ang sinabi ng Panginoon sa pamamagitan ng lingkod niyang si Elias na taga-Tisbe: Sa isang lupain ng Jezreel, kakainin ng mga aso ang laman ni Jezebel. 
 
 
 

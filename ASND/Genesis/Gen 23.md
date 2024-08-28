@@ -337,7 +337,7 @@ na ibenta niya sa akin ang kweba niya na nasa tabi ng bukirin niya sa Macpela. S
 
 
 
-Naroon pala_ si Efron na nakaupo kasama ng mga kababayan niyang Heteo. Kaya sumagot siya kay Abraham na naririnig ng lahat ng Heteo na nagtitipon doon sa pintuan ng lungsod. 
+Naroon pala si Efron na nakaupo kasama ng mga kababayan niyang Heteo. Kaya sumagot siya kay Abraham na naririnig ng lahat ng Heteo na nagtitipon doon sa pintuan ng lungsod. 
 
 
 
@@ -403,7 +403,7 @@ Sinabi niya, "Sa harap ng mga kababayan ko ay ibinibigay ko sa iyo ang buong buk
 
 
 
-Muling yumukod si Abraham tanda ng pagpapasalamat_ sa harapan ng mga Heteo. 
+Muling yumukod si Abraham tanda ng pagpapasalamat sa harapan ng mga Heteo. 
 
 
 

@@ -16,10 +16,10 @@ Now the Spirit expressly says that in latter times some will depart from the fai
 speaking lies in hypocrisy, having their own conscience seared with a hot iron, 
 
 ###### 3 
-forbidding to marry, _and commanding_ to abstain from foods which God created to be received with thanksgiving by those who believe and know the truth. 
+forbidding to marry, and commanding to abstain from foods which God created to be received with thanksgiving by those who believe and know the truth. 
 
 ###### 4 
-For every creature of God _is_ good, and nothing is to be refused if it is received with thanksgiving; 
+For every creature of God is good, and nothing is to be refused if it is received with thanksgiving; 
 
 ###### 5 
 for it is sanctified by the word of God and prayer.
@@ -36,10 +36,10 @@ But reject profane and old wives' fables, and exercise yourself toward godliness
 For bodily exercise profits a little, but godliness is profitable for all things, having promise of the life that now is and of that which is to come. 
 
 ###### 9 
-This _is_ a faithful saying and worthy of all acceptance. 
+This is a faithful saying and worthy of all acceptance. 
 
 ###### 10 
-For to this _end_ we both labor and suffer reproach, because we trust in the living God, who is _the_ Savior of all men, especially of those who believe. 
+For to this end we both labor and suffer reproach, because we trust in the living God, who is the Savior of all men, especially of those who believe. 
 
 ###### 11 
 These things command and teach.

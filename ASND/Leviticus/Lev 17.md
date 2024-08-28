@@ -306,7 +306,7 @@ Ang sinuman sa inyo na kakain ng dugo ay magiging kalaban ng Panginoon at huwag 
 
 
 
-Sapagkat ang buhay ng bawat nilalang ay nasa kanyang_ dugo at iniutos sa inyo ng Panginoon na ang dugo ay gamitin ninyo bilang pantubos sa inyong mga kasalanan, dahil ang dugo ang nagbibigay ng buhay, ang siyang pantubos ng tao sa kanyang mga kasalanan. 
+Sapagkat ang buhay ng bawat nilalang ay nasa kanyang dugo at iniutos sa inyo ng Panginoon na ang dugo ay gamitin ninyo bilang pantubos sa inyong mga kasalanan, dahil ang dugo ang nagbibigay ng buhay, ang siyang pantubos ng tao sa kanyang mga kasalanan. 
 
 
 
@@ -438,7 +438,7 @@ dahil ang buhay ng bawat nilalang ay nasa kanyang dugo. Kaya nga sinabi sa inyo 
 
 
 
-Ang sinuman sa inyo; katutubong Israelita_ man o dayuhang kumain ng hayop na namatay o pinatay ng kapwa hayop, kailangan niyang maglaba ng kanyang damit at maligo, pero ituturing pa rin siyang marumi hanggang sa paglubog ng araw. 
+Ang sinuman sa inyo; katutubong Israelita man o dayuhang kumain ng hayop na namatay o pinatay ng kapwa hayop, kailangan niyang maglaba ng kanyang damit at maligo, pero ituturing pa rin siyang marumi hanggang sa paglubog ng araw. 
 
 
 

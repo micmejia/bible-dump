@@ -238,7 +238,7 @@ Ngunit ang sinumang magiging dahilan ng pagkakasala ng maliliit na batang ito na
 
 
 
-"Nakakaawa ang mga tao sa_ mundong ito dahil sa mga bagay na naging dahilan ng kanilang pagkakasala. Kung sabagay, dumarating naman talaga ang mga ito, ngunit mas nakakaawa ang taong nagiging dahilan ng pagkakasala ng kanyang kapwa. 
+"Nakakaawa ang mga tao sa mundong ito dahil sa mga bagay na naging dahilan ng kanilang pagkakasala. Kung sabagay, dumarating naman talaga ang mga ito, ngunit mas nakakaawa ang taong nagiging dahilan ng pagkakasala ng kanyang kapwa. 
 
 
 
@@ -370,7 +370,7 @@ At kung ang mata mo ang dahilan ng iyong pagkakasala, dukitin mo ito at itapon! 
 
 
 
-Sapagkat ako, na_ Anak ng Tao, ay naparito sa mundo upang iligtas ang mga nawawala.] 
+Sapagkat ako, na Anak ng Tao, ay naparito sa mundo upang iligtas ang mga nawawala.] 
 
 
 
@@ -535,7 +535,7 @@ Ganito rin naman ang nararamdaman ng inyong Amang nasa langit. Ayaw niyang mawal
 
 
 
-Pero kung ayaw niyang makinig sa iyo, magsama ka ng isa o dalawa pang kapatid sa pananampalataya_ 'para ang lahat ng pag-uusapan ninyo ay mapapatotohanan ng dalawa o tatlong saksi,' ayon sa Kasulatan._ 
+Pero kung ayaw niyang makinig sa iyo, magsama ka ng isa o dalawa pang kapatid sa pananampalataya 'para ang lahat ng pag-uusapan ninyo ay mapapatotohanan ng dalawa o tatlong saksi,' ayon sa Kasulatan. 
 
 
 
@@ -766,7 +766,7 @@ Sumagot si Jesus, "Hindi lang pitong beses kundi 77 beses.
 
 
 
-Sapagkat ang paghahari ng Dios ay maitutulad sa kwentong ito: May_ isang hari na nagpatawag sa mga alipin niya para singilin sa kanilang mga utang. 
+Sapagkat ang paghahari ng Dios ay maitutulad sa kwentong ito: May isang hari na nagpatawag sa mga alipin niya para singilin sa kanilang mga utang. 
 
 
 
@@ -832,7 +832,7 @@ Nang simulan na niya ang paniningil, dinala sa kanya ang isang alipin na nagkaut
 
 
 
-Dahil hindi siya makabayad, iniutos ng hari na ipagbili siya bilang alipin_, pati ang kanyang asawaʼt mga anak, at lahat ng ari-arian niya, para mabayaran ang kanyang utang. 
+Dahil hindi siya makabayad, iniutos ng hari na ipagbili siya bilang alipin, pati ang kanyang asawaʼt mga anak, at lahat ng ari-arian niya, para mabayaran ang kanyang utang. 
 
 
 

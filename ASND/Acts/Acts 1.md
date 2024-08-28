@@ -39,9 +39,9 @@ next: ['Acts 2']
 
 
 
-Minamahal kong_ Teofilus: Sa aking unang aklat, isinulat ko ang lahat ng ginawa at itinuro ni Jesus mula nang nagsimula siya sa kanyang gawain
+Minamahal kong Teofilus: Sa aking unang aklat, isinulat ko ang lahat ng ginawa at itinuro ni Jesus mula nang nagsimula siya sa kanyang gawain
 
-###### 2-3 hanggang sa araw na dinala siya sa langit. Matapos siyang mamatay at mabuhay muli, makailang beses siyang nagpakita sa kanyang mga apostol sa ibaʼt ibang paraan para patunayan sa kanila_ na muli siyang nabuhay. Sa loob ng 40 araw, nagpakita siya sa kanila at nagturo tungkol sa paghahari ng Dios. At sa pamamagitan ng Banal na Espiritu, nag-iwan siya ng mga utos sa kanyang piniling mga apostol. 
+###### 2-3 hanggang sa araw na dinala siya sa langit. Matapos siyang mamatay at mabuhay muli, makailang beses siyang nagpakita sa kanyang mga apostol sa ibaʼt ibang paraan para patunayan sa kanila na muli siyang nabuhay. Sa loob ng 40 araw, nagpakita siya sa kanila at nagturo tungkol sa paghahari ng Dios. At sa pamamagitan ng Banal na Espiritu, nag-iwan siya ng mga utos sa kanyang piniling mga apostol. 
 
 
 
@@ -74,7 +74,7 @@ Minamahal kong_ Teofilus: Sa aking unang aklat, isinulat ko ang lahat ng ginawa 
 
 
 
-Isang araw noon, habang kumakain sila kasama ni Jesus, sinabi niya, "Huwag muna kayong umalis sa Jerusalem. Hintayin ninyo ang Banal na Espiritu na_ ipinangako ng Dios_ Ama. Sinabi ko na ito noon sa inyo. 
+Isang araw noon, habang kumakain sila kasama ni Jesus, sinabi niya, "Huwag muna kayong umalis sa Jerusalem. Hintayin ninyo ang Banal na Espiritu na ipinangako ng Dios Ama. Sinabi ko na ito noon sa inyo. 
 
 
 
@@ -305,7 +305,7 @@ Habang nakatitig sila sa langit, may dalawang lalaking nakaputi na biglang tumay
 
 
 
-at nagsabi, "Kayong mga taga-Galilea, bakit nakatayo pa kayo rito at nakatingala sa langit? Si Jesus na inyong nakita na dinala paitaas ay babalik dito sa mundo_. At kung paano siya pumaitaas, ganyan din ang kanyang pagbalik." ## Pumili ang mga Apostol ng Kapalit ni Judas 
+at nagsabi, "Kayong mga taga-Galilea, bakit nakatayo pa kayo rito at nakatingala sa langit? Si Jesus na inyong nakita na dinala paitaas ay babalik dito sa mundo. At kung paano siya pumaitaas, ganyan din ang kanyang pagbalik." ## Pumili ang mga Apostol ng Kapalit ni Judas 
 
 
 
@@ -503,7 +503,7 @@ Nang mga araw na iyon, nagtipon ang mga 120 mananampalataya. Tumayo si Pedro at 
 
 
 
-Dati, kasama namin siya bilang apostol_, at may bahagi siya sa aming gawain." 
+Dati, kasama namin siya bilang apostol, at may bahagi siya sa aming gawain." 
 
 
 
@@ -602,7 +602,7 @@ Nalaman ito ng lahat ng tao sa Jerusalem, kaya tinawag nila ang lugar na iyon na
 
 
 
-Sinabi pa ni Pedro,_ "Nasusulat sa mga Salmo, 'Pabayaan na lang ang kanyang tirahan, at dapat walang tumira roon.' At nasusulat din_, 'Ibibigay na lang sa iba ang kanyang tungkulin.' 21-22"Kaya kinakailangan nating pumili ng tao na ipapalit kay Judas, na_ kasama nating magpapatotoo sa muling pagkabuhay ni Jesus. Dapat isa siya sa mga kasama natin na naglingkod sa Panginoong Jesus noong nandito pa siya sa mundo, mula noong nagbabautismo si Juan hanggang sa panahon na dinala si Jesus sa langit." 
+Sinabi pa ni Pedro, "Nasusulat sa mga Salmo, 'Pabayaan na lang ang kanyang tirahan, at dapat walang tumira roon.' At nasusulat din, 'Ibibigay na lang sa iba ang kanyang tungkulin.' 21-22"Kaya kinakailangan nating pumili ng tao na ipapalit kay Judas, na kasama nating magpapatotoo sa muling pagkabuhay ni Jesus. Dapat isa siya sa mga kasama natin na naglingkod sa Panginoong Jesus noong nandito pa siya sa mundo, mula noong nagbabautismo si Juan hanggang sa panahon na dinala si Jesus sa langit." 
 
 
 
@@ -668,7 +668,7 @@ Kaya dalawang lalaki ang kanilang pinagpilian: si Matias at si Jose na tinatawag
 
 
 
-At bago sila pumili_, nanalangin sila, "Panginoon, ikaw ang nakakaalam ng puso ng lahat ng tao. Kaya ipaalam nʼyo sa amin kung sino sa dalawang ito ang pipiliin nʼyo 
+At bago sila pumili, nanalangin sila, "Panginoon, ikaw ang nakakaalam ng puso ng lahat ng tao. Kaya ipaalam nʼyo sa amin kung sino sa dalawang ito ang pipiliin nʼyo 
 
 
 

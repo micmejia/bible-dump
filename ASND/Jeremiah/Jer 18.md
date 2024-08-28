@@ -469,7 +469,7 @@ Kaya ito ang sinabi ng Panginoon, "Tanungin ninyo sa ibang mga bansa kung may na
 
 
 
-Natutunaw ba ang yelo sa mababatong bundok ng Lebanon? Natutuyo ba ang malalamig na batis doon? Hindi!_ 
+Natutunaw ba ang yelo sa mababatong bundok ng Lebanon? Natutuyo ba ang malalamig na batis doon? Hindi! 
 
 
 
@@ -502,7 +502,7 @@ Natutunaw ba ang yelo sa mababatong bundok ng Lebanon? Natutuyo ba ang malalamig
 
 
 
-Pero ang aking mga mamamayan ay nakalimot na sa akin. Nagsusunog sila ng insenso sa walang kwentang mga dios-diosan. Iniwan nila ang tama at_ dating daan, at doon sila dumaan sa daang hindi mabuti kung saan silaʼy nadapa. 
+Pero ang aking mga mamamayan ay nakalimot na sa akin. Nagsusunog sila ng insenso sa walang kwentang mga dios-diosan. Iniwan nila ang tama at dating daan, at doon sila dumaan sa daang hindi mabuti kung saan silaʼy nadapa. 
 
 
 
@@ -568,7 +568,7 @@ Kaya magiging malungkot ang lupain nila at hahamakin magpakailanman. Ang lahat n
 
 
 
-Pangangalatin ko sila sa harap ng mga kaaway nila na parang alikabok na tinatangay ng_ hangin mula sa silangan. Tatalikuran ko sila at hindi ko sila tutulungan sa araw na lilipulin na sila." 
+Pangangalatin ko sila sa harap ng mga kaaway nila na parang alikabok na tinatangay ng hangin mula sa silangan. Tatalikuran ko sila at hindi ko sila tutulungan sa araw na lilipulin na sila." 
 
 
 
@@ -634,7 +634,7 @@ Pagkatapos, sinabi ng mga tao, "Halikayo, gumawa tayo ng paraan para mapatigil n
 
 
 
-Kaya nanalangin ako,_ "O Panginoon, tulungan nʼyo po ako! Pakinggan nʼyo po ang balak ng mga kaaway ko sa akin. 
+Kaya nanalangin ako, "O Panginoon, tulungan nʼyo po ako! Pakinggan nʼyo po ang balak ng mga kaaway ko sa akin. 
 
 
 
@@ -766,4 +766,4 @@ Hayaan nʼyo silang mapasigaw sa takot kapag ipinasalakay nʼyo sa mga kaaway an
 
 
 
-Pero alam nʼyo po Panginoon ang lahat ng plano nilang pagpatay sa akin. Kaya huwag nʼyo silang patawarin sa mga kasalanan at kasamaan nila. Hayaan nʼyo silang matalo ng kanilang mga kaaway_ habang nakatingin kayo. Iparanas nʼyo sa kanila ang inyong galit."
+Pero alam nʼyo po Panginoon ang lahat ng plano nilang pagpatay sa akin. Kaya huwag nʼyo silang patawarin sa mga kasalanan at kasamaan nila. Hayaan nʼyo silang matalo ng kanilang mga kaaway habang nakatingin kayo. Iparanas nʼyo sa kanila ang inyong galit."

@@ -39,7 +39,7 @@ next: ['Jas 2']
 
 
 
-Mula kay_ Santiago na lingkod ng Dios at ng Panginoong Jesu-Cristo. Mahal kong_ mga mananampalataya na nagsipangalat saan man sa mundo.
+Mula kay Santiago na lingkod ng Dios at ng Panginoong Jesu-Cristo. Mahal kong mga mananampalataya na nagsipangalat saan man sa mundo.
 
 ## Ang Pananampalataya at Karunungan 
 
@@ -140,7 +140,7 @@ Sapagkat alam ninyong nagdudulot ito ng katatagan sa inyong pananampalataya.
 
 
 
-Kaya tiisin ninyo ang mga pagsubok upang maging ganap at walang anumang pagkukulang ang buhay nʼyo_. 
+Kaya tiisin ninyo ang mga pagsubok upang maging ganap at walang anumang pagkukulang ang buhay nʼyo. 
 
 
 
@@ -307,7 +307,7 @@ dahil nagdadalawang-isip siya at walang katiyakan sa mga ginagawa niya.
 
 
 
-Dapat ikagalak ng mga mahihirap na kapatid kay Cristo_ ang pagpaparangal ng Dios_ sa kanila. 
+Dapat ikagalak ng mga mahihirap na kapatid kay Cristo ang pagpaparangal ng Dios sa kanila. 
 
 
 
@@ -340,7 +340,7 @@ Dapat ikagalak ng mga mahihirap na kapatid kay Cristo_ ang pagpaparangal ng Dios
 
 
 
-Ang mga mayayaman naman na kapatid kay Cristo_ ay dapat ding ikarangal ang pagkakababa sa kanila ng Dios_, dahil lilipas sila katulad ng mga bulaklak sa parang. 
+Ang mga mayayaman naman na kapatid kay Cristo ay dapat ding ikarangal ang pagkakababa sa kanila ng Dios, dahil lilipas sila katulad ng mga bulaklak sa parang. 
 
 
 
@@ -408,7 +408,7 @@ Natutuyo ang mga damo sa matinding sikat ng araw, nalalagas ang mga bulaklak nit
 
 
 
-Mapalad ang taong nananatiling matatag sa kabila ng mga pagsubok dahil pagkatapos niyang mapagtagumpayan ang mga ito, tatanggapin niya bilang gantimpala ang buhay na walang hanggan_, na ipinangako ng Dios sa mga nagmamahal sa kanya. 
+Mapalad ang taong nananatiling matatag sa kabila ng mga pagsubok dahil pagkatapos niyang mapagtagumpayan ang mga ito, tatanggapin niya bilang gantimpala ang buhay na walang hanggan, na ipinangako ng Dios sa mga nagmamahal sa kanya. 
 
 
 
@@ -740,7 +740,7 @@ Kaya talikuran nʼyo na ang lahat ng kasamaan at maruruming gawain, at tanggapin
 
 
 
-Huwag lang kayong maging tagapakinig ng salita ng Dios_ kundi sundin nʼyo ang sinasabi nito. Dahil kung hindi, dinadaya nʼyo lang ang sarili ninyo. 
+Huwag lang kayong maging tagapakinig ng salita ng Dios kundi sundin nʼyo ang sinasabi nito. Dahil kung hindi, dinadaya nʼyo lang ang sarili ninyo. 
 
 
 
@@ -773,7 +773,7 @@ Huwag lang kayong maging tagapakinig ng salita ng Dios_ kundi sundin nʼyo ang s
 
 
 
-Dahil kung nakikinig lang ang isang tao sa salita ng Dios_ pero hindi naman niya tinutupad ang sinasabi nito, katulad siya ng isang taong tumitingin sa salamin 
+Dahil kung nakikinig lang ang isang tao sa salita ng Dios pero hindi naman niya tinutupad ang sinasabi nito, katulad siya ng isang taong tumitingin sa salamin 
 
 
 

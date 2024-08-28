@@ -16,13 +16,13 @@ The word that came to Jeremiah from the Lord, saying,
 "Hear the words of this covenant, and speak to the men of Judah and to the inhabitants of Jerusalem; 
 
 ###### 3 
-and say to them, 'Thus says the Lord God of Israel: "Cursed _is_ the man who does not obey the words of this covenant 
+and say to them, 'Thus says the Lord God of Israel: "Cursed is the man who does not obey the words of this covenant 
 
 ###### 4 
 which I commanded your fathers in the day I brought them out of the land of Egypt, from the iron furnace, saying, 'Obey My voice, and do according to all that I command you; so shall you be My people, and I will be your God,' 
 
 ###### 5 
-that I may establish the oath which I have sworn to your fathers, to give them 'a land flowing with milk and honey,' as _it is_ this day." ' " And I answered and said, "So be it, Lord." 
+that I may establish the oath which I have sworn to your fathers, to give them 'a land flowing with milk and honey,' as it is this day." ' " And I answered and said, "So be it, Lord." 
 
 ###### 6 
 Then the Lord said to me, "Proclaim all these words in the cities of Judah and in the streets of Jerusalem, saying: 'Hear the words of this covenant and do them. 
@@ -31,7 +31,7 @@ Then the Lord said to me, "Proclaim all these words in the cities of Judah and i
 For I earnestly exhorted your fathers in the day I brought them up out of the land of Egypt, until this day, rising early and exhorting, saying, "Obey My voice." 
 
 ###### 8 
-Yet they did not obey or incline their ear, but everyone followed the dictates of his evil heart; therefore I will bring upon them all the words of this covenant, which I commanded _them_ to do, but _which_ they have not done.' " 
+Yet they did not obey or incline their ear, but everyone followed the dictates of his evil heart; therefore I will bring upon them all the words of this covenant, which I commanded them to do, but which they have not done.' " 
 
 ###### 9 
 And the Lord said to me, "A conspiracy has been found among the men of Judah and among the inhabitants of Jerusalem. 
@@ -46,25 +46,25 @@ Therefore thus says the Lord: "Behold, I will surely bring calamity on them whic
 Then the cities of Judah and the inhabitants of Jerusalem will go and cry out to the gods to whom they offer incense, but they will not save them at all in the time of their trouble. 
 
 ###### 13 
-For _according to_ the number of your cities were your gods, O Judah; and _according to_ the number of the streets of Jerusalem you have set up altars to _that_ shameful thing, altars to burn incense to Baal. 
+For according to the number of your cities were your gods, O Judah; and according to the number of the streets of Jerusalem you have set up altars to that shameful thing, altars to burn incense to Baal. 
 
 ###### 14 
-"So do not pray for this people, or lift up a cry or prayer for them; for I will not hear _them_ in the time that they cry out to Me because of their trouble. 
+"So do not pray for this people, or lift up a cry or prayer for them; for I will not hear them in the time that they cry out to Me because of their trouble. 
 
 ###### 15 
 "What has My beloved to do in My house, Having done lewd deeds with many? And the holy flesh has passed from you. When you do evil, then you rejoice. 
 
 ###### 16 
-The Lord called your name, Green Olive Tree, Lovely _and_ of Good Fruit. With the noise of a great tumult He has kindled fire on it, And its branches are broken. 
+The Lord called your name, Green Olive Tree, Lovely and of Good Fruit. With the noise of a great tumult He has kindled fire on it, And its branches are broken. 
 
 ###### 17 
 "For the Lord of hosts, who planted you, has pronounced doom against you for the evil of the house of Israel and of the house of Judah, which they have done against themselves to provoke Me to anger in offering incense to Baal." ## Jeremiah's Life Threatened 
 
 ###### 18 
-Now the Lord gave me knowledge _of it,_ and I know _it;_ for You showed me their doings. 
+Now the Lord gave me knowledge of it, and I know it; for You showed me their doings. 
 
 ###### 19 
-But I _was_ like a docile lamb brought to the slaughter; and I did not know that they had devised schemes against me, _saying,_ "Let us destroy the tree with its fruit, and let us cut him off from the land of the living, that his name may be remembered no more." 
+But I was like a docile lamb brought to the slaughter; and I did not know that they had devised schemes against me, saying, "Let us destroy the tree with its fruit, and let us cut him off from the land of the living, that his name may be remembered no more." 
 
 ###### 20 
 But, O Lord of hosts, You who judge righteously, Testing the mind and the heart, Let me see Your vengeance on them, For to You I have revealed my cause. 
@@ -76,4 +76,4 @@ But, O Lord of hosts, You who judge righteously, Testing the mind and the heart,
 therefore thus says the Lord of hosts: 'Behold, I will punish them. The young men shall die by the sword, their sons and their daughters shall die by famine; 
 
 ###### 23 
-and there shall be no remnant of them, for I will bring catastrophe on the men of Anathoth, _even_ the year of their punishment.' "
+and there shall be no remnant of them, for I will bring catastrophe on the men of Anathoth, even the year of their punishment.' "

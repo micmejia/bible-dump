@@ -18,13 +18,13 @@ In the second year of King Darius, in the sixth month, on the first day of the m
 Then the word of the Lord came by Haggai the prophet, saying, 
 
 ###### 4 
-"_Is it_ time for you yourselves to dwell in your paneled houses, and this temple _to lie_ in ruins?" 
+"Is it time for you yourselves to dwell in your paneled houses, and this temple to lie in ruins?" 
 
 ###### 5 
 Now therefore, thus says the Lord of hosts: "Consider your ways! 
 
 ###### 6 
-"You have sown much, and bring in little; You eat, but do not have enough; You drink, but you are not filled with drink; You clothe yourselves, but no one is warm; And he who earns wages, Earns wages _to put_ into a bag with holes." 
+"You have sown much, and bring in little; You eat, but do not have enough; You drink, but you are not filled with drink; You clothe yourselves, but no one is warm; And he who earns wages, Earns wages to put into a bag with holes." 
 
 ###### 7 
 Thus says the Lord of hosts: "Consider your ways! 
@@ -33,19 +33,19 @@ Thus says the Lord of hosts: "Consider your ways!
 Go up to the mountains and bring wood and build the temple, that I may take pleasure in it and be glorified," says the Lord. 
 
 ###### 9 
-"_You_ looked for much, but indeed _it came to_ little; and when you brought it home, I blew it away. Why?" says the Lord of hosts. "Because of My house that _is in_ ruins, while every one of you runs to his own house. 
+"You looked for much, but indeed it came to little; and when you brought it home, I blew it away. Why?" says the Lord of hosts. "Because of My house that is in ruins, while every one of you runs to his own house. 
 
 ###### 10 
 Therefore the heavens above you withhold the dew, and the earth withholds its fruit. 
 
 ###### 11 
-For I called for a drought on the land and the mountains, on the grain and the new wine and the oil, on whatever the ground brings forth, on men and livestock, and on all the labor of _your_ hands." ## The People's Obedience 
+For I called for a drought on the land and the mountains, on the grain and the new wine and the oil, on whatever the ground brings forth, on men and livestock, and on all the labor of your hands." ## The People's Obedience 
 
 ###### 12 
 Then Zerubbabel the son of Shealtiel, and Joshua the son of Jehozadak, the high priest, with all the remnant of the people, obeyed the voice of the Lord their God, and the words of Haggai the prophet, as the Lord their God had sent him; and the people feared the presence of the Lord. 
 
 ###### 13 
-Then Haggai, the Lord's messenger, spoke the Lord's message to the people, saying, "I _am_ with you, says the Lord." 
+Then Haggai, the Lord's messenger, spoke the Lord's message to the people, saying, "I am with you, says the Lord." 
 
 ###### 14 
 So the Lord stirred up the spirit of Zerubbabel the son of Shealtiel, governor of Judah, and the spirit of Joshua the son of Jehozadak, the high priest, and the spirit of all the remnant of the people; and they came and worked on the house of the Lord of hosts, their God, 

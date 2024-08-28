@@ -205,7 +205,7 @@ Patuloy ang pagbaba ng tubig. At nang unang araw ng ikasampung buwan, nakikita n
 
 
 
-Pagkalipas ng 40 araw mula ng panahon na nakita na ang tuktok ng mga bundok_, binuksan ni Noe ang bintana ng barko 
+Pagkalipas ng 40 araw mula ng panahon na nakita na ang tuktok ng mga bundok, binuksan ni Noe ang bintana ng barko 
 
 
 

@@ -601,7 +601,7 @@ Tinanong nila si Baruc, "Sabihin mo sa amin, paano mo naisulat ang lahat ng ito?
 
 
 
-Sumagot si Baruc, "Oo,_ sinabi sa akin ni Jeremias ang bawat salita sa nakarolyong ito at isinulat ko naman sa pamamagitan ng tinta." 
+Sumagot si Baruc, "Oo, sinabi sa akin ni Jeremias ang bawat salita sa nakarolyong ito at isinulat ko naman sa pamamagitan ng tinta." 
 
 
 
@@ -799,7 +799,7 @@ Sa bawat mababasa ni Jehudi na tatlo o apat na hanay, pinuputol ng hari ang baha
 
 
 
-Hindi natakot ang hari at ang lahat ng pinuno niya sa narinig nila na isinasaad ng kasulatan. Ni hindi nila pinunit ang damit nila tanda ng pagdadalamhati_. 
+Hindi natakot ang hari at ang lahat ng pinuno niya sa narinig nila na isinasaad ng kasulatan. Ni hindi nila pinunit ang damit nila tanda ng pagdadalamhati. 
 
 
 

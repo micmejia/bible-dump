@@ -238,7 +238,7 @@ Sumagot ang Panginoon, "Kung may pananampalataya kayong kasinlaki lang ng buto n
 
 
 
-Sinabi pa ni Jesus,_ "Halimbawa, may alipin kang nag-aararo o nag-aalaga ng mga tupa at kararating lang niya mula sa trabaho niya. Bilang amo sasabihin mo ba sa kanya, 'Halika na, maupo ka at kumain'? 
+Sinabi pa ni Jesus, "Halimbawa, may alipin kang nag-aararo o nag-aalaga ng mga tupa at kararating lang niya mula sa trabaho niya. Bilang amo sasabihin mo ba sa kanya, 'Halika na, maupo ka at kumain'? 
 
 
 
@@ -733,7 +733,7 @@ Kaya walang makapagsasabing, 'Dito maghahari ang Dios!' o, 'Doon siya maghahari!
 
 
 
-Pagkatapos, sinabi niya sa mga tagasunod niya, "Darating ang panahon na gugustuhin ninyong makita ako na_ Anak ng Tao kahit isang araw lang, pero hindi pa iyon mangyayari. 
+Pagkatapos, sinabi niya sa mga tagasunod niya, "Darating ang panahon na gugustuhin ninyong makita ako na Anak ng Tao kahit isang araw lang, pero hindi pa iyon mangyayari. 
 
 
 
@@ -799,7 +799,7 @@ May mga magsasabi sa inyo, 'Naroon siya!' o, 'Nandito siya!' Huwag kayong sasama
 
 
 
-Sapagkat ako na_ Anak ng Tao ay babalik na tulad ng kidlat na nagliliwanag sa buong kalangitan. 
+Sapagkat ako na Anak ng Tao ay babalik na tulad ng kidlat na nagliliwanag sa buong kalangitan. 
 
 
 
@@ -898,7 +898,7 @@ Ngunit kailangan muna akong dumanas ng maraming hirap, at itakwil ng henerasyong
 
 
 
-Sa panahon nga ni Noe, wala silang inaatupag kundi ang magsaya_. Nagkakainan sila, nag-iinuman at nag-aasawa, hanggang sa araw na pumasok si Noe sa barko. Dumating ang baha at nalunod silang lahat. 
+Sa panahon nga ni Noe, wala silang inaatupag kundi ang magsaya. Nagkakainan sila, nag-iinuman at nag-aasawa, hanggang sa araw na pumasok si Noe sa barko. Dumating ang baha at nalunod silang lahat. 
 
 
 
@@ -1063,7 +1063,7 @@ Sa araw na iyon, ang nasa labas ng bahay ay huwag nang pumasok para kumuha ng mg
 
 
 
-Alalahanin ninyo ang nangyari sa_ asawa ni Lot. 
+Alalahanin ninyo ang nangyari sa asawa ni Lot. 
 
 
 
@@ -1228,4 +1228,4 @@ Sa dalawang babaeng magkasamang naggigiling, kukunin ang isa at iiwan ang isa.
 
 
 
-Tinanong siya ng mga tagasunod niya, "Saan po ito mangyayari_, Panginoon?" Sumagot siya sa pamamagitan ng kasabihan_, "Kung saan may bangkay, doon nag-uumpukan ang mga buwitre."
+Tinanong siya ng mga tagasunod niya, "Saan po ito mangyayari, Panginoon?" Sumagot siya sa pamamagitan ng kasabihan, "Kung saan may bangkay, doon nag-uumpukan ang mga buwitre."

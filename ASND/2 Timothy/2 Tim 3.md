@@ -339,7 +339,7 @@ Pero hindi rin magpapatuloy ang ginagawa nila dahil mahahalata ng lahat ang kaha
 
 
 
-Ngunit ikaw, Timoteo,_ alam mo lahat ang itinuturo mo, ang aking pamumuhay, layunin, pananampalataya, pagtitiyaga, pag-ibig at pagtitiis. 
+Ngunit ikaw, Timoteo, alam mo lahat ang itinuturo mo, ang aking pamumuhay, layunin, pananampalataya, pagtitiyaga, pag-ibig at pagtitiis. 
 
 
 
@@ -537,7 +537,7 @@ Mula pa sa pagkabata, alam mo na ang Banal na Kasulatan, na nakapagbibigay sa iy
 
 
 
-Lahat ng Kasulatan ay isinulat sa pamamagitan ng kapangyarihan ng Dios, at mapapakinabangan sa pagtuturo ng katotohanan_, pagsasaway, pagtutuwid, at sa pagsasanay sa matuwid na pamumuhay, 
+Lahat ng Kasulatan ay isinulat sa pamamagitan ng kapangyarihan ng Dios, at mapapakinabangan sa pagtuturo ng katotohanan, pagsasaway, pagtutuwid, at sa pagsasanay sa matuwid na pamumuhay, 
 
 
 

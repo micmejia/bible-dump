@@ -10,7 +10,7 @@ next: ['Jer 37']
 
 
 ###### 1 
-Now it came to pass in the fourth year of Jehoiakim the son of Josiah, king of Judah, _that_ this word came to Jeremiah from the Lord, saying: 
+Now it came to pass in the fourth year of Jehoiakim the son of Josiah, king of Judah, that this word came to Jeremiah from the Lord, saying: 
 
 ###### 2 
 "Take a scroll of a book and write on it all the words that I have spoken to you against Israel, against Judah, and against all the nations, from the day I spoke to you, from the days of Josiah even to this day. 
@@ -22,19 +22,19 @@ It may be that the house of Judah will hear all the adversities which I purpose 
 Then Jeremiah called Baruch the son of Neriah; and Baruch wrote on a scroll of a book, at the instruction of Jeremiah, all the words of the Lord which He had spoken to him. 
 
 ###### 5 
-And Jeremiah commanded Baruch, saying, "I _am_ confined, I cannot go into the house of the Lord. 
+And Jeremiah commanded Baruch, saying, "I am confined, I cannot go into the house of the Lord. 
 
 ###### 6 
 You go, therefore, and read from the scroll which you have written at my instruction, the words of the Lord, in the hearing of the people in the Lord's house on the day of fasting. And you shall also read them in the hearing of all Judah who come from their cities. 
 
 ###### 7 
-It may be that they will present their supplication before the Lord, and everyone will turn from his evil way. For great _is_ the anger and the fury that the Lord has pronounced against this people." 
+It may be that they will present their supplication before the Lord, and everyone will turn from his evil way. For great is the anger and the fury that the Lord has pronounced against this people." 
 
 ###### 8 
 And Baruch the son of Neriah did according to all that Jeremiah the prophet commanded him, reading from the book the words of the Lord in the Lord's house. 
 
 ###### 9 
-Now it came to pass in the fifth year of Jehoiakim the son of Josiah, king of Judah, in the ninth month, _that_ they proclaimed a fast before the Lord to all the people in Jerusalem, and to all the people who came from the cities of Judah to Jerusalem. 
+Now it came to pass in the fifth year of Jehoiakim the son of Josiah, king of Judah, in the ninth month, that they proclaimed a fast before the Lord to all the people in Jerusalem, and to all the people who came from the cities of Judah to Jerusalem. 
 
 ###### 10 
 Then Baruch read from the book the words of Jeremiah in the house of the Lord, in the chamber of Gemariah the son of Shaphan the scribe, in the upper court at the entry of the New Gate of the Lord's house, in the hearing of all the people.
@@ -54,7 +54,7 @@ Then Michaiah declared to them all the words that he had heard when Baruch read 
 Therefore all the princes sent Jehudi the son of Nethaniah, the son of Shelemiah, the son of Cushi, to Baruch, saying, "Take in your hand the scroll from which you have read in the hearing of the people, and come." So Baruch the son of Neriah took the scroll in his hand and came to them. 
 
 ###### 15 
-And they said to him, "Sit down now, and read it in our hearing." So Baruch read _it_ in their hearing. 
+And they said to him, "Sit down now, and read it in our hearing." So Baruch read it in their hearing. 
 
 ###### 16 
 Now it happened, when they had heard all the words, that they looked in fear from one to another, and said to Baruch, "We will surely tell the king of all these words." 
@@ -63,7 +63,7 @@ Now it happened, when they had heard all the words, that they looked in fear fro
 And they asked Baruch, saying, "Tell us now, how did you write all these words--at his instruction?" 
 
 ###### 18 
-So Baruch answered them, "He proclaimed with his mouth all these words to me, and I wrote _them_ with ink in the book." 
+So Baruch answered them, "He proclaimed with his mouth all these words to me, and I wrote them with ink in the book." 
 
 ###### 19 
 Then the princes said to Baruch, "Go and hide, you and Jeremiah; and let no one know where you are." ## The King Destroys Jeremiah's Scroll 
@@ -75,10 +75,10 @@ And they went to the king, into the court; but they stored the scroll in the cha
 So the king sent Jehudi to bring the scroll, and he took it from Elishama the scribe's chamber. And Jehudi read it in the hearing of the king and in the hearing of all the princes who stood beside the king. 
 
 ###### 22 
-Now the king was sitting in the winter house in the ninth month, with _a fire_ burning on the hearth before him. 
+Now the king was sitting in the winter house in the ninth month, with a fire burning on the hearth before him. 
 
 ###### 23 
-And it happened, when Jehudi had read three or four columns, _that the king_ cut it with the scribe's knife and cast _it_ into the fire that _was_ on the hearth, until all the scroll was consumed in the fire that _was_ on the hearth. 
+And it happened, when Jehudi had read three or four columns, that the king cut it with the scribe's knife and cast it into the fire that was on the hearth, until all the scroll was consumed in the fire that was on the hearth. 
 
 ###### 24 
 Yet they were not afraid, nor did they tear their garments, the king nor any of his servants who heard all these words. 

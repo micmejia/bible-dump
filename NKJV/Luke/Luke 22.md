@@ -56,25 +56,25 @@ So they went and found it just as He had said to them, and they prepared the Pas
 When the hour had come, He sat down, and the twelve apostles with Him. 
 
 ###### 15 
-Then He said to them, "With _fervent_ desire I have desired to eat this Passover with you before I suffer; 
+Then He said to them, "With fervent desire I have desired to eat this Passover with you before I suffer; 
 
 ###### 16 
 for I say to you, I will no longer eat of it until it is fulfilled in the kingdom of God." 
 
 ###### 17 
-Then He took the cup, and gave thanks, and said, "Take this and divide _it_ among yourselves; 
+Then He took the cup, and gave thanks, and said, "Take this and divide it among yourselves; 
 
 ###### 18 
 for I say to you, I will not drink of the fruit of the vine until the kingdom of God comes." 
 
 ###### 19 
-And He took bread, gave thanks and broke _it,_ and gave _it_ to them, saying, "This is My body which is given for you; do this in remembrance of Me." 
+And He took bread, gave thanks and broke it, and gave it to them, saying, "This is My body which is given for you; do this in remembrance of Me." 
 
 ###### 20 
-Likewise He also _took_ the cup after supper, saying, "This cup _is_ the new covenant in My blood, which is shed for you. 
+Likewise He also took the cup after supper, saying, "This cup is the new covenant in My blood, which is shed for you. 
 
 ###### 21 
-But behold, the hand of My betrayer _is_ with Me on the table. 
+But behold, the hand of My betrayer is with Me on the table. 
 
 ###### 22 
 And truly the Son of Man goes as it has been determined, but woe to that man by whom He is betrayed!" 
@@ -91,25 +91,25 @@ Now there was also a dispute among them, as to which of them should be considere
 And He said to them, "The kings of the Gentiles exercise lordship over them, and those who exercise authority over them are called 'benefactors.' 
 
 ###### 26 
-But not so _among_ you; on the contrary, he who is greatest among you, let him be as the younger, and he who governs as he who serves. 
+But not so among you; on the contrary, he who is greatest among you, let him be as the younger, and he who governs as he who serves. 
 
 ###### 27 
-For who _is_ greater, he who sits at the table, or he who serves? _Is_ it not he who sits at the table? Yet I am among you as the One who serves. 
+For who is greater, he who sits at the table, or he who serves? Is it not he who sits at the table? Yet I am among you as the One who serves. 
 
 ###### 28 
 "But you are those who have continued with Me in My trials. 
 
 ###### 29 
-And I bestow upon you a kingdom, just as My Father bestowed _one_ upon Me, 
+And I bestow upon you a kingdom, just as My Father bestowed one upon Me, 
 
 ###### 30 
 that you may eat and drink at My table in My kingdom, and sit on thrones judging the twelve tribes of Israel." ## Jesus Predicts Peter's Denial 
 
 ###### 31 
-And the Lord said, "Simon, Simon! Indeed, Satan has asked for you, that he may sift _you_ as wheat. 
+And the Lord said, "Simon, Simon! Indeed, Satan has asked for you, that he may sift you as wheat. 
 
 ###### 32 
-But I have prayed for you, that your faith should not fail; and when you have returned to _Me,_ strengthen your brethren." 
+But I have prayed for you, that your faith should not fail; and when you have returned to Me, strengthen your brethren." 
 
 ###### 33 
 But he said to Him, "Lord, I am ready to go with You, both to prison and to death." 
@@ -121,13 +121,13 @@ Then He said, "I tell you, Peter, the rooster shall not crow this day before you
 And He said to them, "When I sent you without money bag, knapsack, and sandals, did you lack anything?" So they said, "Nothing." 
 
 ###### 36 
-Then He said to them, "But now, he who has a money bag, let him take _it,_ and likewise a knapsack; and he who has no sword, let him sell his garment and buy one. 
+Then He said to them, "But now, he who has a money bag, let him take it, and likewise a knapsack; and he who has no sword, let him sell his garment and buy one. 
 
 ###### 37 
 For I say to you that this which is written must still be accomplished in Me: 'And He was numbered with the transgressors.' For the things concerning Me have an end." 
 
 ###### 38 
-So they said, "Lord, look, here _are_ two swords." And He said to them, "It is enough." ## The Prayer in the Garden 
+So they said, "Lord, look, here are two swords." And He said to them, "It is enough." ## The Prayer in the Garden 
 
 ###### 39 
 Coming out, He went to the Mount of Olives, as He was accustomed, and His disciples also followed Him. 
@@ -175,7 +175,7 @@ Then Jesus said to the chief priests, captains of the temple, and the elders who
 When I was with you daily in the temple, you did not try to seize Me. But this is your hour, and the power of darkness." ## Peter Denies Jesus, and Weeps Bitterly 
 
 ###### 54 
-Having arrested Him, they led _Him_ and brought Him into the high priest's house. But Peter followed at a distance. 
+Having arrested Him, they led Him and brought Him into the high priest's house. But Peter followed at a distance. 
 
 ###### 55 
 Now when they had kindled a fire in the midst of the courtyard and sat down together, Peter sat among them. 
@@ -190,7 +190,7 @@ But he denied Him, saying, "Woman, I do not know Him."
 And after a little while another saw him and said, "You also are of them." But Peter said, "Man, I am not!" 
 
 ###### 59 
-Then after about an hour had passed, another confidently affirmed, saying, "Surely this _fellow_ also was with Him, for he is a Galilean." 
+Then after about an hour had passed, another confidently affirmed, saying, "Surely this fellow also was with Him, for he is a Galilean." 
 
 ###### 60 
 But Peter said, "Man, I do not know what you are saying!" Immediately, while he was still speaking, the rooster crowed. 
@@ -221,13 +221,13 @@ As soon as it was day, the elders of the people, both chief priests and scribes,
 "If You are the Christ, tell us." But He said to them, "If I tell you, you will by no means believe. 
 
 ###### 68 
-And if I also ask _you,_ you will by no means answer Me or let _Me_ go. 
+And if I also ask you, you will by no means answer Me or let Me go. 
 
 ###### 69 
 Hereafter the Son of Man will sit on the right hand of the power of God." 
 
 ###### 70 
-Then they all said, "Are You then the Son of God?" So He said to them, "You _rightly_ say that I am." 
+Then they all said, "Are You then the Son of God?" So He said to them, "You rightly say that I am." 
 
 ###### 71 
 And they said, "What further testimony do we need? For we have heard it ourselves from His own mouth."

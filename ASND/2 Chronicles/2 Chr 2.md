@@ -469,7 +469,7 @@ Purihin ang Panginoon, ang Dios ng Israel na gumawa ng langit at lupa! Binigyan 
 
 
 
-Ang kanyang ina ay mula sa Dan at ang kanyang amaʼy mula sa Tyre. Dalubhasa siya sa paggawa sa ginto, pilak, tanso, bakal, bato at kahoy, at sa paggawa ng telang kulay ube, pula at asul, at pinong telang_ linen. Dalubhasa siya sa kahit anong uri ng pag-ukit, at makakagawa siya ng anumang uri ng disenyo na ipapagawa mo sa kanya. Gagawa siya kasama ng iyong manggagawa at ng mga manggagawa na pinili ng kagalang-galang na si David, na iyong ama. 
+Ang kanyang ina ay mula sa Dan at ang kanyang amaʼy mula sa Tyre. Dalubhasa siya sa paggawa sa ginto, pilak, tanso, bakal, bato at kahoy, at sa paggawa ng telang kulay ube, pula at asul, at pinong telang linen. Dalubhasa siya sa kahit anong uri ng pag-ukit, at makakagawa siya ng anumang uri ng disenyo na ipapagawa mo sa kanya. Gagawa siya kasama ng iyong manggagawa at ng mga manggagawa na pinili ng kagalang-galang na si David, na iyong ama. 
 
 
 
@@ -502,7 +502,7 @@ Ang kanyang ina ay mula sa Dan at ang kanyang amaʼy mula sa Tyre. Dalubhasa siy
 
 
 
-"Ngayon, kagalang-galang na Solomon_, ipadala mo sa amin ang trigo, sebada, alak at langis ng olibo na iyong ipinangako, 
+"Ngayon, kagalang-galang na Solomon, ipadala mo sa amin ang trigo, sebada, alak at langis ng olibo na iyong ipinangako, 
 
 
 

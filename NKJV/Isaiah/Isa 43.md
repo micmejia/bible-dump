@@ -10,19 +10,19 @@ next: ['Isa 44']
 
 
 ###### 1 
-But now, thus says the Lord, who created you, O Jacob, And He who formed you, O Israel: "Fear not, for I have redeemed you; I have called _you_ by your name; You _are_ Mine. 
+But now, thus says the Lord, who created you, O Jacob, And He who formed you, O Israel: "Fear not, for I have redeemed you; I have called you by your name; You are Mine. 
 
 ###### 2 
-When you pass through the waters, I _will be_ with you; And through the rivers, they shall not overflow you. When you walk through the fire, you shall not be burned, Nor shall the flame scorch you. 
+When you pass through the waters, I will be with you; And through the rivers, they shall not overflow you. When you walk through the fire, you shall not be burned, Nor shall the flame scorch you. 
 
 ###### 3 
-For I _am_ the Lord your God, The Holy One of Israel, your Savior; I gave Egypt for your ransom, Ethiopia and Seba in your place. 
+For I am the Lord your God, The Holy One of Israel, your Savior; I gave Egypt for your ransom, Ethiopia and Seba in your place. 
 
 ###### 4 
 Since you were precious in My sight, You have been honored, And I have loved you; Therefore I will give men for you, And people for your life. 
 
 ###### 5 
-Fear not, for I _am_ with you; I will bring your descendants from the east, And gather you from the west; 
+Fear not, for I am with you; I will bring your descendants from the east, And gather you from the west; 
 
 ###### 6 
 I will say to the north, 'Give them up!' And to the south, 'Do not keep them back!' Bring My sons from afar, And My daughters from the ends of the earth-- 
@@ -34,7 +34,7 @@ Everyone who is called by My name, Whom I have created for My glory; I have form
 Bring out the blind people who have eyes, And the deaf who have ears. 
 
 ###### 9 
-Let all the nations be gathered together, And let the people be assembled. Who among them can declare this, And show us former things? Let them bring out their witnesses, that they may be justified; Or let them hear and say, "_It is_ truth." 
+Let all the nations be gathered together, And let the people be assembled. Who among them can declare this, And show us former things? Let them bring out their witnesses, that they may be justified; Or let them hear and say, "It is truth." 
 
 ###### 10 
 "You _are_ My witnesses," says the Lord, "And My servant whom I have chosen, That you may know and believe Me, And understand that I _am_ He. Before Me there was no God formed, Nor shall there be after Me. 

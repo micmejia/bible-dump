@@ -106,7 +106,7 @@ Nakinig sa kanila sina Zerubabel na anak ni Shealtiel at Jeshua na anak ni Jozad
 
 
 
-Ngunit hindi nagtagal, dumating sa Jerusalem si Tatenai na gobernador ng lalawigan sa_ kanluran ng Eufrates, si Shetar Bozenai, at ang mga kasama nila. Nagtanong sila sa mga Judio, "Sino ang nag-utos sa inyo na ipagpatuloy ang pagpapatayo ng templong ito?" 
+Ngunit hindi nagtagal, dumating sa Jerusalem si Tatenai na gobernador ng lalawigan sa kanluran ng Eufrates, si Shetar Bozenai, at ang mga kasama nila. Nagtanong sila sa mga Judio, "Sino ang nag-utos sa inyo na ipagpatuloy ang pagpapatayo ng templong ito?" 
 
 
 
@@ -139,7 +139,7 @@ Ngunit hindi nagtagal, dumating sa Jerusalem si Tatenai na gobernador ng lalawig
 
 
 
-Nagtanong pa sila, "Ano ang pangalan ng mga taong nagtatrabaho rito?" ###### 5-7 Ngunit iningatan ng Dios ang mga tagapamahala ng Judio, kaya nagpasya sina Tatenai, Shetar Bozenai, at ang kanilang kasamang mga opisyal ng lalawigan sa_ kanluran ng Eufrates na hindi muna nila ipapatigil ang pagpapatayo ng templo hanggang sa maipaalam nila ang tungkol dito kay Haring Darius at makatanggap ng kanyang sagot. Ito ang nilalaman ng_ sulat na ipinadala nila kay Haring Darius: "Mahal na Haring Darius, "Nawaʼy nasa mabuti po kayong kalagayan. 
+Nagtanong pa sila, "Ano ang pangalan ng mga taong nagtatrabaho rito?" ###### 5-7 Ngunit iningatan ng Dios ang mga tagapamahala ng Judio, kaya nagpasya sina Tatenai, Shetar Bozenai, at ang kanilang kasamang mga opisyal ng lalawigan sa kanluran ng Eufrates na hindi muna nila ipapatigil ang pagpapatayo ng templo hanggang sa maipaalam nila ang tungkol dito kay Haring Darius at makatanggap ng kanyang sagot. Ito ang nilalaman ng sulat na ipinadala nila kay Haring Darius: "Mahal na Haring Darius, "Nawaʼy nasa mabuti po kayong kalagayan. 
 
 
 
@@ -172,7 +172,7 @@ Nagtanong pa sila, "Ano ang pangalan ng mga taong nagtatrabaho rito?" ###### 5-7
 
 
 
-"Ipinapaalam po namin, Mahal na Hari, na pumunta kami sa lalawigan ng Juda, doon sa pinagtatayuan ng templo ng makapangyarihang Dios. Malalaking bato ang ginagamit sa pagpapatayo ng templo, at ang mga pader nito ay nilagyan ng mga troso upang tumibay_. Ginagawa po nila ito nang may kasipagan, kaya mabilis ang pagpapatayo nito. 
+"Ipinapaalam po namin, Mahal na Hari, na pumunta kami sa lalawigan ng Juda, doon sa pinagtatayuan ng templo ng makapangyarihang Dios. Malalaking bato ang ginagamit sa pagpapatayo ng templo, at ang mga pader nito ay nilagyan ng mga troso upang tumibay. Ginagawa po nila ito nang may kasipagan, kaya mabilis ang pagpapatayo nito. 
 
 
 

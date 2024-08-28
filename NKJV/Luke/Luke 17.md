@@ -10,7 +10,7 @@ next: ['Luke 18']
 
 
 ###### 1 
-Then He said to the disciples, "It is impossible that no offenses should come, but woe _to him_ through whom they do come! 
+Then He said to the disciples, "It is impossible that no offenses should come, but woe to him through whom they do come! 
 
 ###### 2 
 It would be better for him if a millstone were hung around his neck, and he were thrown into the sea, than that he should offend one of these little ones. 
@@ -46,19 +46,19 @@ Now it happened as He went to Jerusalem that He passed through the midst of Sama
 Then as He entered a certain village, there met Him ten men who were lepers, who stood afar off. 
 
 ###### 13 
-And they lifted up _their_ voices and said, "Jesus, Master, have mercy on us!" 
+And they lifted up their voices and said, "Jesus, Master, have mercy on us!" 
 
 ###### 14 
-So when He saw _them,_ He said to them, "Go, show yourselves to the priests." And so it was that as they went, they were cleansed. 
+So when He saw them, He said to them, "Go, show yourselves to the priests." And so it was that as they went, they were cleansed. 
 
 ###### 15 
 And one of them, when he saw that he was healed, returned, and with a loud voice glorified God, 
 
 ###### 16 
-and fell down on _his_ face at His feet, giving Him thanks. And he was a Samaritan. 
+and fell down on his face at His feet, giving Him thanks. And he was a Samaritan. 
 
 ###### 17 
-So Jesus answered and said, "Were there not ten cleansed? But where _are_ the nine? 
+So Jesus answered and said, "Were there not ten cleansed? But where are the nine? 
 
 ###### 18 
 Were there not any found who returned to give glory to God except this foreigner?" 
@@ -73,13 +73,13 @@ Now when He was asked by the Pharisees when the kingdom of God would come, He an
 nor will they say, 'See here!' or 'See there!' For indeed, the kingdom of God is within you." 
 
 ###### 22 
-Then He said to the disciples, "The days will come when you will desire to see one of the days of the Son of Man, and you will not see _it._ 
+Then He said to the disciples, "The days will come when you will desire to see one of the days of the Son of Man, and you will not see it. 
 
 ###### 23 
-And they will say to you, 'Look here!' or 'Look there!' Do not go after _them_ or follow _them._ 
+And they will say to you, 'Look here!' or 'Look there!' Do not go after them or follow them. 
 
 ###### 24 
-For as the lightning that flashes out of one _part_ under heaven shines to the other _part_ under heaven, so also the Son of Man will be in His day. 
+For as the lightning that flashes out of one part under heaven shines to the other part under heaven, so also the Son of Man will be in His day. 
 
 ###### 25 
 But first He must suffer many things and be rejected by this generation. 
@@ -94,13 +94,13 @@ They ate, they drank, they married wives, they were given in marriage, until the
 Likewise as it was also in the days of Lot: They ate, they drank, they bought, they sold, they planted, they built; 
 
 ###### 29 
-but on the day that Lot went out of Sodom it rained fire and brimstone from heaven and destroyed _them_ all. 
+but on the day that Lot went out of Sodom it rained fire and brimstone from heaven and destroyed them all. 
 
 ###### 30 
 Even so will it be in the day when the Son of Man is revealed. 
 
 ###### 31 
-"In that day, he who is on the housetop, and his goods _are_ in the house, let him not come down to take them away. And likewise the one who is in the field, let him not turn back. 
+"In that day, he who is on the housetop, and his goods are in the house, let him not come down to take them away. And likewise the one who is in the field, let him not turn back. 
 
 ###### 32 
 Remember Lot's wife. 
@@ -109,13 +109,13 @@ Remember Lot's wife.
 Whoever seeks to save his life will lose it, and whoever loses his life will preserve it. 
 
 ###### 34 
-I tell you, in that night there will be two _men_ in one bed: the one will be taken and the other will be left. 
+I tell you, in that night there will be two men in one bed: the one will be taken and the other will be left. 
 
 ###### 35 
-Two _women_ will be grinding together: the one will be taken and the other left. 
+Two women will be grinding together: the one will be taken and the other left. 
 
 ###### 36 
-Two _men_ will be in the field: the one will be taken and the other left." 
+Two men will be in the field: the one will be taken and the other left." 
 
 ###### 37 
 And they answered and said to Him, "Where, Lord?" So He said to them, "Wherever the body is, there the eagles will be gathered together."

@@ -106,7 +106,7 @@ Dinakip niya ang dragon – ang ahas noong unang panahon na tinatawag na diyablo
 
 
 
-Inihulog siya ng anghel sa kailaliman, saka isinara at sinusian, at tinatakan pa ang pintuan nito upang walang mangahas na magbukas. Ikinulong siya_ upang hindi makapandaya ng mga tao sa ibaʼt ibang bansa sa loob ng 1,000 taon. Pero pagkatapos ng 1,000 taon, pakakawalan siya sa loob ng maikling panahon. 
+Inihulog siya ng anghel sa kailaliman, saka isinara at sinusian, at tinatakan pa ang pintuan nito upang walang mangahas na magbukas. Ikinulong siya upang hindi makapandaya ng mga tao sa ibaʼt ibang bansa sa loob ng 1,000 taon. Pero pagkatapos ng 1,000 taon, pakakawalan siya sa loob ng maikling panahon. 
 
 
 
@@ -273,7 +273,7 @@ Pagkatapos ng 1,000 taon, pakakawalan si Satanas mula sa kanyang bilangguan.
 
 
 
-Lalabas siya at dadayain ang mga bansa sa buong mundo, na tatawaging Gog at Magog. Titipunin sila ni Satanas at isasama sa pakikipagdigma sa mga mananampalataya_. At ang matitipon niyang mga sundalo ay kasindami ng buhangin sa tabing-dagat na hindi kayang bilangin_. 
+Lalabas siya at dadayain ang mga bansa sa buong mundo, na tatawaging Gog at Magog. Titipunin sila ni Satanas at isasama sa pakikipagdigma sa mga mananampalataya. At ang matitipon niyang mga sundalo ay kasindami ng buhangin sa tabing-dagat na hindi kayang bilangin. 
 
 
 
@@ -407,7 +407,7 @@ Pagkatapos, nakita ko ang malaki at puting trono at ang nakaupo roon. Ang langit
 
 
 
-At nakita ko ang mga namatay, tanyag at hindi, na nakatayo sa harap ng trono. Binuksan ang mga aklat, pati na ang aklat na listahan ng mga taong binigyan_ ng buhay na walang hanggan_. At ang bawat isa sa kanila ay hinatulan ayon sa ginawa nila na nakasulat sa mga aklat na iyon. 
+At nakita ko ang mga namatay, tanyag at hindi, na nakatayo sa harap ng trono. Binuksan ang mga aklat, pati na ang aklat na listahan ng mga taong binigyan ng buhay na walang hanggan. At ang bawat isa sa kanila ay hinatulan ayon sa ginawa nila na nakasulat sa mga aklat na iyon. 
 
 
 
@@ -440,4 +440,4 @@ At nakita ko ang mga namatay, tanyag at hindi, na nakatayo sa harap ng trono. Bi
 
 
 
-Kahit sa dagat sila namatay o sa lupa, naglabasan sila mula sa lugar ng mga patay. At hinatulan ang lahat ayon sa mga ginawa nila. 14-15At ang sinumang hindi nakasulat ang pangalan sa aklat na listahan ng mga taong binigyan_ ng buhay na walang hanggan_ ay itinapon sa lawang apoy. Pagkatapos, itinapon din doon ang kamatayan at ang Hades. Ang parusang ito sa lawang apoy ay ang ikalawang kamatayan.
+Kahit sa dagat sila namatay o sa lupa, naglabasan sila mula sa lugar ng mga patay. At hinatulan ang lahat ayon sa mga ginawa nila. 14-15At ang sinumang hindi nakasulat ang pangalan sa aklat na listahan ng mga taong binigyan ng buhay na walang hanggan ay itinapon sa lawang apoy. Pagkatapos, itinapon din doon ang kamatayan at ang Hades. Ang parusang ito sa lawang apoy ay ang ikalawang kamatayan.

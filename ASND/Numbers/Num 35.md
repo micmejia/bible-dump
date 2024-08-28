@@ -205,7 +205,7 @@ Pagkatapos, sumukat kayo ng 900 metro sa bawat direksyon ng bayan – sa silanga
 
 
 
-"Bigyan din ninyo ang mga Levita ng anim na bayan na magiging lungsod na tanggulan, kung saan makakatakas papunta roon ang taong makakapatay nang hindi sinasadya_. Hindi ito kasama sa 42 bayan na inyong ibibigay sa kanila. 
+"Bigyan din ninyo ang mga Levita ng anim na bayan na magiging lungsod na tanggulan, kung saan makakatakas papunta roon ang taong makakapatay nang hindi sinasadya. Hindi ito kasama sa 42 bayan na inyong ibibigay sa kanila. 
 
 
 
@@ -832,7 +832,7 @@ dadalhin pa rin siya sa kapulungan kasama ng taong gustong maghiganti sa kanya, 
 
 
 
-Kung mapatunayan na hindi niya sinasadya ang pagpatay,_ kailangang proteksyunan ng sambayanan ang taong nakapatay laban sa mga tao na gustong maghiganti sa kanya, at ibabalik siya sa lungsod na tanggulan, kung saan siya tumakas. Kailangang magpaiwan siya roon hanggang hindi pa namamatay ang punong pari na itinalaga sa paglilingkod. 
+Kung mapatunayan na hindi niya sinasadya ang pagpatay, kailangang proteksyunan ng sambayanan ang taong nakapatay laban sa mga tao na gustong maghiganti sa kanya, at ibabalik siya sa lungsod na tanggulan, kung saan siya tumakas. Kailangang magpaiwan siya roon hanggang hindi pa namamatay ang punong pari na itinalaga sa paglilingkod. 
 
 
 

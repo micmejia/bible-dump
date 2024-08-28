@@ -172,7 +172,7 @@ Pero naging katawa-tawa ako sa aking mga kaibigan, kahit na matuwid ako at walan
 
 
 
-Ang mga taong naghihirap na gaya ko na_ tila mabubuwal ay kinukutya ng mga taong walang problema. 
+Ang mga taong naghihirap na gaya ko na tila mabubuwal ay kinukutya ng mga taong walang problema. 
 
 
 
@@ -339,7 +339,7 @@ Kung alam ng dila ng tao kung alin ang masarap o hindi masarap na pagkain, alam 
 
 
 
-Maraming alam sa buhay_ ang matatanda, dahil habang tumatagal ang buhay nila, lalong dumarami ang kanilang nalalaman. 
+Maraming alam sa buhay ang matatanda, dahil habang tumatagal ang buhay nila, lalong dumarami ang kanilang nalalaman. 
 
 
 
@@ -372,7 +372,7 @@ Maraming alam sa buhay_ ang matatanda, dahil habang tumatagal ang buhay nila, la
 
 
 
-"Pero_ ang Dios ay hindi lang nagtataglay ng_ karunungan, nasa kanya rin_ ang kapangyarihan, at siya lang_ ang nakakaunawa kung ano ang dapat gawin_. 
+"Pero ang Dios ay hindi lang nagtataglay ng karunungan, nasa kanya rin ang kapangyarihan, at siya lang ang nakakaunawa kung ano ang dapat gawin. 
 
 
 

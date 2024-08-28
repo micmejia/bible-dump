@@ -369,7 +369,7 @@ Tinawag niyang "lupa" ang tuyong lugar, at "dagat" naman ang nagsamang tubig. Na
 
 
 
-Pagkatapos, sinabi ng Dios, "Magsitubo sa lupa ang lahat ng uri ng_ halaman, ang mga tanim na nagbubunga ng butil, at ang mga punongkahoy na namumunga ayon sa kani-kanilang uri." At iyon nga ang nangyari. 
+Pagkatapos, sinabi ng Dios, "Magsitubo sa lupa ang lahat ng uri ng halaman, ang mga tanim na nagbubunga ng butil, at ang mga punongkahoy na namumunga ayon sa kani-kanilang uri." At iyon nga ang nangyari. 
 
 
 
@@ -402,7 +402,7 @@ Pagkatapos, sinabi ng Dios, "Magsitubo sa lupa ang lahat ng uri ng_ halaman, ang
 
 
 
-Tumubo sa lupa ang lahat ng uri ng_ halaman, ang mga tanim na nagbubunga ng butil, at ang mga punongkahoy na namumunga ayon sa kani-kanilang uri. Nasiyahan ang Dios sa nakita niya. 
+Tumubo sa lupa ang lahat ng uri ng halaman, ang mga tanim na nagbubunga ng butil, at ang mga punongkahoy na namumunga ayon sa kani-kanilang uri. Nasiyahan ang Dios sa nakita niya. 
 
 
 
@@ -798,7 +798,7 @@ Nilikha ng Dios ang lahat ng ito at nasiyahan siya sa nakita niya.
 
 
 
-Pagkatapos, sinabi ng Dios, "Likhain natin ang tao ayon sa ating wangis. Sila ang mamamahala sa lahat ng uri ng hayop_: mga lumalangoy, lumilipad, lumalakad at gumagapang." 
+Pagkatapos, sinabi ng Dios, "Likhain natin ang tao ayon sa ating wangis. Sila ang mamamahala sa lahat ng uri ng hayop: mga lumalangoy, lumilipad, lumalakad at gumagapang." 
 
 
 
@@ -864,7 +864,7 @@ Kaya nilikha ng Dios ang tao, lalaki at babae ayon sa wangis niya.
 
 
 
-Binasbasan niya sila at sinabi, "Magpakarami kayo para mangalat ang mga lahi ninyo at mamahala sa buong_ mundo. At pamahalaan ninyo ang lahat ng hayop." 
+Binasbasan niya sila at sinabi, "Magpakarami kayo para mangalat ang mga lahi ninyo at mamahala sa buong mundo. At pamahalaan ninyo ang lahat ng hayop." 
 
 
 

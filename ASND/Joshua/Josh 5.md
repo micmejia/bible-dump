@@ -40,7 +40,7 @@ next: ['Josh 6']
 
 
 
-Nabalitaan ng lahat ng hari na Amoreo sa kanluran ng Jordan at ng lahat ng haring Cananeo sa baybayin ng Dagat ng Mediteraneo_ kung paanong pinatuyo ng Panginoon ang Ilog ng_ Jordan nang tumawid ang mga Israelita. Kaya natakot sila at naduwag sa pakikipaglaban sa mga Israelita. 
+Nabalitaan ng lahat ng hari na Amoreo sa kanluran ng Jordan at ng lahat ng haring Cananeo sa baybayin ng Dagat ng Mediteraneo kung paanong pinatuyo ng Panginoon ang Ilog ng Jordan nang tumawid ang mga Israelita. Kaya natakot sila at naduwag sa pakikipaglaban sa mga Israelita. 
 
 
 
@@ -106,7 +106,7 @@ Nang panahong iyon, sinabi ng Panginoon kay Josue, "Gumawa ka ng mga patalim na 
 
 
 
-Kaya gumawa si Josue ng mga patalim, at tinuli ang mga lalaking Israelita roon sa lugar na tinawag na_ Bundok ng Pinagtulian.
+Kaya gumawa si Josue ng mga patalim, at tinuli ang mga lalaking Israelita roon sa lugar na tinawag na Bundok ng Pinagtulian.
 
 ###### 4-6 Ito ang dahilan kung bakit tinuli ni Josue ang mga lalaki: Nang umalis ang mga Israelita sa Egipto, ang lahat ng lalaki ay natuli na. Pero ang mga isinilang sa loob ng 40 taon na paglalakbay nila sa ilang ay hindi pa natutuli. Nang panahong iyon, ang mga lalaking nasa tamang edad na para makipaglaban ay nangamatay dahil hindi sila sumunod sa Panginoon. Sinabi sa kanila ng Panginoon na hindi nila makikita ang maganda at masaganang lupain na ipinangako niya sa mga ninuno nila. 
 
@@ -207,7 +207,7 @@ Matapos silang matuli, nanatili sila sa mga kampo nila hanggang sa gumaling ang 
 
 
 
-At sinabi ng Panginoon kay Josue, "Sa araw na ito, inalis ko sa inyo ang kahihiyan ng pagiging alipin nʼyo sa_ Egipto." Kaya ang lugar na iyon ay tinawag na Gilgal hanggang ngayon. 
+At sinabi ng Panginoon kay Josue, "Sa araw na ito, inalis ko sa inyo ang kahihiyan ng pagiging alipin nʼyo sa Egipto." Kaya ang lugar na iyon ay tinawag na Gilgal hanggang ngayon. 
 
 
 
@@ -372,7 +372,7 @@ Nang malapit na si Josue sa Jerico, bigla niyang nakita ang isang lalaking nakat
 
 
 
-"Hindi," sagot ng lalaki. "Naparito ako bilang pinuno ng mga sundalo ng Panginoon." Nagpatirapa si Josue bilang paggalang_ sa kanya at nagtanong, "Ginoo, ano po ang gusto nʼyong ipagawa sa akin na inyong lingkod?" 
+"Hindi," sagot ng lalaki. "Naparito ako bilang pinuno ng mga sundalo ng Panginoon." Nagpatirapa si Josue bilang paggalang sa kanya at nagtanong, "Ginoo, ano po ang gusto nʼyong ipagawa sa akin na inyong lingkod?" 
 
 
 

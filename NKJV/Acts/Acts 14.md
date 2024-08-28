@@ -36,13 +36,13 @@ And they were preaching the gospel there.
 And in Lystra a certain man without strength in his feet was sitting, a cripple from his mother's womb, who had never walked. 
 
 ###### 9 
-_This_ man heard Paul speaking. Paul, observing him intently and seeing that he had faith to be healed, 
+This man heard Paul speaking. Paul, observing him intently and seeing that he had faith to be healed, 
 
 ###### 10 
 said with a loud voice, "Stand up straight on your feet!" And he leaped and walked. 
 
 ###### 11 
-Now when the people saw what Paul had done, they raised their voices, saying in the Lycaonian _language,_ "The gods have come down to us in the likeness of men!" 
+Now when the people saw what Paul had done, they raised their voices, saying in the Lycaonian language, "The gods have come down to us in the likeness of men!" 
 
 ###### 12 
 And Barnabas they called Zeus, and Paul, Hermes, because he was the chief speaker. 
@@ -68,7 +68,7 @@ And with these sayings they could scarcely restrain the multitudes from sacrific
 ## Stoning, Escape to Derbe 
 
 ###### 19 
-Then Jews from Antioch and Iconium came there; and having persuaded the multitudes, they stoned Paul _and_ dragged _him_ out of the city, supposing him to be dead. 
+Then Jews from Antioch and Iconium came there; and having persuaded the multitudes, they stoned Paul and dragged him out of the city, supposing him to be dead. 
 
 ###### 20 
 However, when the disciples gathered around him, he rose up and went into the city. And the next day he departed with Barnabas to Derbe.
@@ -79,7 +79,7 @@ However, when the disciples gathered around him, he rose up and went into the ci
 And when they had preached the gospel to that city and made many disciples, they returned to Lystra, Iconium, and Antioch, 
 
 ###### 22 
-strengthening the souls of the disciples, exhorting _them_ to continue in the faith, and _saying,_ "We must through many tribulations enter the kingdom of God." 
+strengthening the souls of the disciples, exhorting them to continue in the faith, and saying, "We must through many tribulations enter the kingdom of God." 
 
 ###### 23 
 So when they had appointed elders in every church, and prayed with fasting, they commended them to the Lord in whom they had believed. 

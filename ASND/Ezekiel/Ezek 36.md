@@ -40,7 +40,7 @@ next: ['Ezek 37']
 
 
 
-Sinabi ng Panginoon_, "Anak ng tao, magsalita ka laban sa mga bundok ng Israel. Sabihin mo sa kanila, 'O mga bundok ng Israel, makinig kayo sa sinasabi ng Panginoon. 
+Sinabi ng Panginoon, "Anak ng tao, magsalita ka laban sa mga bundok ng Israel. Sabihin mo sa kanila, 'O mga bundok ng Israel, makinig kayo sa sinasabi ng Panginoon. 
 
 
 
@@ -106,9 +106,9 @@ Ito ang sinabi ng Panginoong Dios: Sinabi ng mga kalaban ninyo na sa kanila na a
 
 
 
-"Kaya anak ng tao_, sabihin mo sa mga bundok ng Israel_ na ako,_ ang Panginoong Dios ay nagsasabi: Sinalakay kayo ng mga bansa mula sa ibaʼt ibang dako at sila ngayon ang nagmamay-ari sa inyo. Kinutya nila kayo at inilagay sa kahihiyan.
+"Kaya anak ng tao, sabihin mo sa mga bundok ng Israel na ako, ang Panginoong Dios ay nagsasabi: Sinalakay kayo ng mga bansa mula sa ibaʼt ibang dako at sila ngayon ang nagmamay-ari sa inyo. Kinutya nila kayo at inilagay sa kahihiyan.
 
-###### 4-5 Kaya kayong mga bundok, burol, mga daluyan ng tubig, lambak, mga gibang lugar at mapanglaw na bayan na sinalakay at kinutya ng mga bansa sa palibot ninyo, pakinggan ninyo ang sasabihin ko. Ako_, ang Panginoong Dios ay nagsasabing, lubha akong nagagalit sa mga bansang iyon, lalung-lalo na sa Edom. Sinakop nila ang aking lupain nang may katuwaan at pangungutya, dahil talagang gusto nilang mapunta sa kanila ang mga pastulan nito. 
+###### 4-5 Kaya kayong mga bundok, burol, mga daluyan ng tubig, lambak, mga gibang lugar at mapanglaw na bayan na sinalakay at kinutya ng mga bansa sa palibot ninyo, pakinggan ninyo ang sasabihin ko. Ako, ang Panginoong Dios ay nagsasabing, lubha akong nagagalit sa mga bansang iyon, lalung-lalo na sa Edom. Sinakop nila ang aking lupain nang may katuwaan at pangungutya, dahil talagang gusto nilang mapunta sa kanila ang mga pastulan nito. 
 
 
 
@@ -141,7 +141,7 @@ Ito ang sinabi ng Panginoong Dios: Sinabi ng mga kalaban ninyo na sa kanila na a
 
 
 
-"Kaya anak ng tao, magsalita ka tungkol sa Israel. Sabihin mo sa mga bundok, burol, daluyan ng tubig at lambak, na ako,_ ang Panginoong Dios, ay nagsasabi: Tiniis ninyo ang pangungutya ng mga bansa sa palibot ninyo. Kaya dahil sa matindi kong galit, 
+"Kaya anak ng tao, magsalita ka tungkol sa Israel. Sabihin mo sa mga bundok, burol, daluyan ng tubig at lambak, na ako, ang Panginoong Dios, ay nagsasabi: Tiniis ninyo ang pangungutya ng mga bansa sa palibot ninyo. Kaya dahil sa matindi kong galit, 
 
 
 
@@ -174,7 +174,7 @@ Ito ang sinabi ng Panginoong Dios: Sinabi ng mga kalaban ninyo na sa kanila na a
 
 
 
-ako,_ ang Panginoong Dios ay sumusumpang mapapahiya rin ang mga bansang iyon. 
+ako, ang Panginoong Dios ay sumusumpang mapapahiya rin ang mga bansang iyon. 
 
 
 
@@ -405,7 +405,7 @@ Sinabi pa ng Panginoong Dios, "Sinasabi ng mga tao sa inyo na nilalapa ninyo ang
 
 
 
-Pero mula ngayon, hindi na ninyo lalapain ang inyong mga mamamayan at hindi na ninyo uulilain sa kabataan ang inyong bansa. Ako,_ ang Panginoong Dios, ang nagsasabi nito. 
+Pero mula ngayon, hindi na ninyo lalapain ang inyong mga mamamayan at hindi na ninyo uulilain sa kabataan ang inyong bansa. Ako, ang Panginoong Dios, ang nagsasabi nito. 
 
 
 
@@ -438,7 +438,7 @@ Pero mula ngayon, hindi na ninyo lalapain ang inyong mga mamamayan at hindi na n
 
 
 
-Hindi ko na papayagang kutyain o hiyain kayo ng ibang mga bansa. At hindi ko na rin papayagang mawasak ang bansa ninyo. Ako,_ ang Panginoong Dios, ang nagsasabi nito." 
+Hindi ko na papayagang kutyain o hiyain kayo ng ibang mga bansa. At hindi ko na rin papayagang mawasak ang bansa ninyo. Ako, ang Panginoong Dios, ang nagsasabi nito." 
 
 
 
@@ -504,7 +504,7 @@ Sinabi pa ng Panginoon sa akin,
 
 
 
-"Anak ng tao, noong ang mga Israelita ay nakatira pa sa lupain nila, dinungisan nila ito sa pamamagitan ng masasama_ nilang ugali at pamumuhay. Sa aking paningin, ang kanilang uri ng pamumuhay ay kasindumi ng babaeng may buwanang dalaw. 
+"Anak ng tao, noong ang mga Israelita ay nakatira pa sa lupain nila, dinungisan nila ito sa pamamagitan ng masasama nilang ugali at pamumuhay. Sa aking paningin, ang kanilang uri ng pamumuhay ay kasindumi ng babaeng may buwanang dalaw. 
 
 
 
@@ -537,7 +537,7 @@ Sinabi pa ng Panginoon sa akin,
 
 
 
-Kaya ibinuhos ko sa kanila ang galit ko, dahil sa mga pagpatay nila roon sa lupain ng Israel_, at dahil sa pagsamba nila sa mga dios-diosan na siyang nagparumi sa lupaing ito. 
+Kaya ibinuhos ko sa kanila ang galit ko, dahil sa mga pagpatay nila roon sa lupain ng Israel, at dahil sa pagsamba nila sa mga dios-diosan na siyang nagparumi sa lupaing ito. 
 
 
 
@@ -702,7 +702,7 @@ Kaya sabihin mo sa mga mamamayan ng Israel na ako, ang Panginoong Dios, ako ang 
 
 
 
-Ipapakita ko ang kabanalan ng marangal kong pangalan sa mga bansa kung saan nilapastangan ninyo ito. At malalaman ng mga bansang iyon na ako_ ang Panginoon kapag ipinakita ko sa kanila ang aking kabanalan sa pamamagitan ng gagawin ko sa inyo. Ako, ang Panginoong Dios, ang nagsasabi nito. 
+Ipapakita ko ang kabanalan ng marangal kong pangalan sa mga bansa kung saan nilapastangan ninyo ito. At malalaman ng mga bansang iyon na ako ang Panginoon kapag ipinakita ko sa kanila ang aking kabanalan sa pamamagitan ng gagawin ko sa inyo. Ako, ang Panginoong Dios, ang nagsasabi nito. 
 
 
 
@@ -999,7 +999,7 @@ At maaalala ninyo ang inyong masasamang ugali at pamumuhay. Kasusuklaman ninyo a
 
 
 
-Ngunit mga mamamayan ng Israel, gusto kong malaman ninyo na ang lahat ng itoʼy ginagawa ko hindi dahil sa inyo. Dapat ninyong ikahiya ang masasama ninyong pag-uugali. Ako,_ ang Panginoong Dios, ang nagsasabi nito.' " 
+Ngunit mga mamamayan ng Israel, gusto kong malaman ninyo na ang lahat ng itoʼy ginagawa ko hindi dahil sa inyo. Dapat ninyong ikahiya ang masasama ninyong pag-uugali. Ako, ang Panginoong Dios, ang nagsasabi nito.' " 
 
 
 
@@ -1032,7 +1032,7 @@ Ngunit mga mamamayan ng Israel, gusto kong malaman ninyo na ang lahat ng itoʼy 
 
 
 
-Sinabi pa ng Panginoong Dios, "Kapag nalinis ko na kayo sa lahat ng kasalanan ninyo, patitirahin ko kayong muli sa lungsod ninyo, at muli ninyong_ itatayo ang mga bayan na nawasak. 
+Sinabi pa ng Panginoong Dios, "Kapag nalinis ko na kayo sa lahat ng kasalanan ninyo, patitirahin ko kayong muli sa lungsod ninyo, at muli ninyong itatayo ang mga bayan na nawasak. 
 
 
 

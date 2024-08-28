@@ -19,36 +19,36 @@ This only I want to learn from you: Did you receive the Spirit by the works of t
 Are you so foolish? Having begun in the Spirit, are you now being made perfect by the flesh? 
 
 ###### 4 
-Have you suffered so many things in vain--if indeed _it was_ in vain? 
+Have you suffered so many things in vain--if indeed it was in vain? 
 
 ###### 5 
-Therefore He who supplies the Spirit to you and works miracles among you, _does He do it_ by the works of the law, or by the hearing of faith?-- 
+Therefore He who supplies the Spirit to you and works miracles among you, does He do it by the works of the law, or by the hearing of faith?-- 
 
 ###### 6 
 just as Abraham "believed God, and it was accounted to him for righteousness." 
 
 ###### 7 
-Therefore know that _only_ those who are of faith are sons of Abraham. 
+Therefore know that only those who are of faith are sons of Abraham. 
 
 ###### 8 
-And the Scripture, foreseeing that God would justify the Gentiles by faith, preached the gospel to Abraham beforehand, _saying,_ "In you all the nations shall be blessed." 
+And the Scripture, foreseeing that God would justify the Gentiles by faith, preached the gospel to Abraham beforehand, saying, "In you all the nations shall be blessed." 
 
 ###### 9 
-So then those who _are_ of faith are blessed with believing Abraham.
+So then those who are of faith are blessed with believing Abraham.
 
 ## The Law Brings a Curse 
 
 ###### 10 
-For as many as are of the works of the law are under the curse; for it is written, "Cursed _is_ everyone who does not continue in all things which are written in the book of the law, to do them." 
+For as many as are of the works of the law are under the curse; for it is written, "Cursed is everyone who does not continue in all things which are written in the book of the law, to do them." 
 
 ###### 11 
-But that no one is justified by the law in the sight of God _is_ evident, for "the just shall live by faith." 
+But that no one is justified by the law in the sight of God is evident, for "the just shall live by faith." 
 
 ###### 12 
 Yet the law is not of faith, but "the man who does them shall live by them." 
 
 ###### 13 
-Christ has redeemed us from the curse of the law, having become a curse for us (for it is written, "Cursed _is_ everyone who hangs on a tree"), 
+Christ has redeemed us from the curse of the law, having become a curse for us (for it is written, "Cursed is everyone who hangs on a tree"), 
 
 ###### 14 
 that the blessing of Abraham might come upon the Gentiles in Christ Jesus, that we might receive the promise of the Spirit through faith.
@@ -56,27 +56,27 @@ that the blessing of Abraham might come upon the Gentiles in Christ Jesus, that 
 ## The Changeless Promise 
 
 ###### 15 
-Brethren, I speak in the manner of men: Though _it is_ only a man's covenant, yet _if it is_ confirmed, no one annuls or adds to it. 
+Brethren, I speak in the manner of men: Though it is only a man's covenant, yet if it is confirmed, no one annuls or adds to it. 
 
 ###### 16 
 Now to Abraham and his Seed were the promises made. He does not say, "And to seeds," as of many, but as of one, "And to your Seed," who is Christ. 
 
 ###### 17 
-And this I say, _that_ the law, which was four hundred and thirty years later, cannot annul the covenant that was confirmed before by God in Christ, that it should make the promise of no effect. 
+And this I say, that the law, which was four hundred and thirty years later, cannot annul the covenant that was confirmed before by God in Christ, that it should make the promise of no effect. 
 
 ###### 18 
-For if the inheritance _is_ of the law, _it is_ no longer of promise; but God gave _it_ to Abraham by promise.
+For if the inheritance is of the law, it is no longer of promise; but God gave it to Abraham by promise.
 
 ## Purpose of the Law 
 
 ###### 19 
-What purpose then _does_ the law _serve?_ It was added because of transgressions, till the Seed should come to whom the promise was made; _and it was_ appointed through angels by the hand of a mediator. 
+What purpose then does the law serve? It was added because of transgressions, till the Seed should come to whom the promise was made; and it was appointed through angels by the hand of a mediator. 
 
 ###### 20 
-Now a mediator does not _mediate_ for one _only,_ but God is one. 
+Now a mediator does not mediate for one only, but God is one. 
 
 ###### 21 
-_Is_ the law then against the promises of God? Certainly not! For if there had been a law given which could have given life, truly righteousness would have been by the law. 
+Is the law then against the promises of God? Certainly not! For if there had been a law given which could have given life, truly righteousness would have been by the law. 
 
 ###### 22 
 But the Scripture has confined all under sin, that the promise by faith in Jesus Christ might be given to those who believe. 
@@ -85,7 +85,7 @@ But the Scripture has confined all under sin, that the promise by faith in Jesus
 But before faith came, we were kept under guard by the law, kept for the faith which would afterward be revealed. 
 
 ###### 24 
-Therefore the law was our tutor _to bring us_ to Christ, that we might be justified by faith. 
+Therefore the law was our tutor to bring us to Christ, that we might be justified by faith. 
 
 ###### 25 
 But after faith has come, we are no longer under a tutor.
@@ -102,4 +102,4 @@ For as many of you as were baptized into Christ have put on Christ.
 There is neither Jew nor Greek, there is neither slave nor free, there is neither male nor female; for you are all one in Christ Jesus. 
 
 ###### 29 
-And if you _are_ Christ's, then you are Abraham's seed, and heirs according to the promise.
+And if you are Christ's, then you are Abraham's seed, and heirs according to the promise.

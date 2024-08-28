@@ -19,7 +19,7 @@ And behold, there was a certain man before Him who had dropsy.
 And Jesus, answering, spoke to the lawyers and Pharisees, saying, "Is it lawful to heal on the Sabbath?" 
 
 ###### 4 
-But they kept silent. And He took _him_ and healed him, and let him go. 
+But they kept silent. And He took him and healed him, and let him go. 
 
 ###### 5 
 Then He answered them, saying, "Which of you, having a donkey or an ox that has fallen into a pit, will not immediately pull him out on the Sabbath day?" 
@@ -48,13 +48,13 @@ For whoever exalts himself will be humbled, and he who humbles himself will be e
 Then He also said to him who invited Him, "When you give a dinner or a supper, do not ask your friends, your brothers, your relatives, nor rich neighbors, lest they also invite you back, and you be repaid. 
 
 ###### 13 
-But when you give a feast, invite _the_ poor, _the_ maimed, _the_ lame, _the_ blind. 
+But when you give a feast, invite the poor, the maimed, the lame, the blind. 
 
 ###### 14 
 And you will be blessed, because they cannot repay you; for you shall be repaid at the resurrection of the just." ## The Parable of the Great Supper 
 
 ###### 15 
-Now when one of those who sat at the table with Him heard these things, he said to Him, "Blessed _is_ he who shall eat bread in the kingdom of God!" 
+Now when one of those who sat at the table with Him heard these things, he said to Him, "Blessed is he who shall eat bread in the kingdom of God!" 
 
 ###### 16 
 Then He said to him, "A certain man gave a great supper and invited many, 
@@ -63,7 +63,7 @@ Then He said to him, "A certain man gave a great supper and invited many,
 and sent his servant at supper time to say to those who were invited, 'Come, for all things are now ready.' 
 
 ###### 18 
-But they all with one _accord_ began to make excuses. The first said to him, 'I have bought a piece of ground, and I must go and see it. I ask you to have me excused.' 
+But they all with one accord began to make excuses. The first said to him, 'I have bought a piece of ground, and I must go and see it. I ask you to have me excused.' 
 
 ###### 19 
 And another said, 'I have bought five yoke of oxen, and I am going to test them. I ask you to have me excused.' 
@@ -72,13 +72,13 @@ And another said, 'I have bought five yoke of oxen, and I am going to test them.
 Still another said, 'I have married a wife, and therefore I cannot come.' 
 
 ###### 21 
-So that servant came and reported these things to his master. Then the master of the house, being angry, said to his servant, 'Go out quickly into the streets and lanes of the city, and bring in here _the_ poor and _the_ maimed and _the_ lame and _the_ blind.' 
+So that servant came and reported these things to his master. Then the master of the house, being angry, said to his servant, 'Go out quickly into the streets and lanes of the city, and bring in here the poor and the maimed and the lame and the blind.' 
 
 ###### 22 
 And the servant said, 'Master, it is done as you commanded, and still there is room.' 
 
 ###### 23 
-Then the master said to the servant, 'Go out into the highways and hedges, and compel _them_ to come in, that my house may be filled. 
+Then the master said to the servant, 'Go out into the highways and hedges, and compel them to come in, that my house may be filled. 
 
 ###### 24 
 For I say to you that none of those men who were invited shall taste my supper.' " ## Leaving All to Follow Christ 
@@ -93,10 +93,10 @@ Now great multitudes went with Him. And He turned and said to them,
 And whoever does not bear his cross and come after Me cannot be My disciple. 
 
 ###### 28 
-For which of you, intending to build a tower, does not sit down first and count the cost, whether he has _enough_ to finish _it_-- 
+For which of you, intending to build a tower, does not sit down first and count the cost, whether he has enough to finish it-- 
 
 ###### 29 
-lest, after he has laid the foundation, and is not able to finish, all who see _it_ begin to mock him, 
+lest, after he has laid the foundation, and is not able to finish, all who see it begin to mock him, 
 
 ###### 30 
 saying, 'This man began to build and was not able to finish'? 
@@ -113,7 +113,7 @@ So likewise, whoever of you does not forsake all that he has cannot be My discip
 ## Tasteless Salt Is Worthless 
 
 ###### 34 
-"Salt _is_ good; but if the salt has lost its flavor, how shall it be seasoned? 
+"Salt is good; but if the salt has lost its flavor, how shall it be seasoned? 
 
 ###### 35 
-It is neither fit for the land nor for the dunghill, _but_ men throw it out. He who has ears to hear, let him hear!"
+It is neither fit for the land nor for the dunghill, but men throw it out. He who has ears to hear, let him hear!"

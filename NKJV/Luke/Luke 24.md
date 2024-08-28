@@ -9,7 +9,7 @@ up: ['Luke']
 
 
 ###### 1 
-Now on the first _day_ of the week, very early in the morning, they, and certain _other women_ with them, came to the tomb bringing the spices which they had prepared. 
+Now on the first day of the week, very early in the morning, they, and certain other women with them, came to the tomb bringing the spices which they had prepared. 
 
 ###### 2 
 But they found the stone rolled away from the tomb. 
@@ -21,7 +21,7 @@ Then they went in and did not find the body of the Lord Jesus.
 And it happened, as they were greatly perplexed about this, that behold, two men stood by them in shining garments. 
 
 ###### 5 
-Then, as they were afraid and bowed _their_ faces to the earth, they said to them, "Why do you seek the living among the dead? 
+Then, as they were afraid and bowed their faces to the earth, they said to them, "Why do you seek the living among the dead? 
 
 ###### 6 
 He is not here, but is risen! Remember how He spoke to you when He was still in Galilee, 
@@ -36,7 +36,7 @@ And they remembered His words.
 Then they returned from the tomb and told all these things to the eleven and to all the rest. 
 
 ###### 10 
-It was Mary Magdalene, Joanna, Mary _the mother_ of James, and the other _women_ with them, who told these things to the apostles. 
+It was Mary Magdalene, Joanna, Mary the mother of James, and the other women with them, who told these things to the apostles. 
 
 ###### 11 
 And their words seemed to them like idle tales, and they did not believe them. 
@@ -59,7 +59,7 @@ So it was, while they conversed and reasoned, that Jesus Himself drew near and w
 But their eyes were restrained, so that they did not know Him. 
 
 ###### 17 
-And He said to them, "What kind of conversation _is_ this that you have with one another as you walk and are sad?" 
+And He said to them, "What kind of conversation is this that you have with one another as you walk and are sad?" 
 
 ###### 18 
 Then the one whose name was Cleopas answered and said to Him, "Are You the only stranger in Jerusalem, and have You not known the things which happened there in these days?" 
@@ -80,7 +80,7 @@ Yes, and certain women of our company, who arrived at the tomb early, astonished
 When they did not find His body, they came saying that they had also seen a vision of angels who said He was alive. 
 
 ###### 24 
-And certain of those _who were_ with us went to the tomb and found _it_ just as the women had said; but Him they did not see." 
+And certain of those who were with us went to the tomb and found it just as the women had said; but Him they did not see." 
 
 ###### 25 
 Then He said to them, "O foolish ones, and slow of heart to believe in all that the prophets have spoken! 
@@ -100,7 +100,7 @@ Then they drew near to the village where they were going, and He indicated that 
 But they constrained Him, saying, "Abide with us, for it is toward evening, and the day is far spent." And He went in to stay with them. 
 
 ###### 30 
-Now it came to pass, as He sat at the table with them, that He took bread, blessed and broke _it,_ and gave it to them. 
+Now it came to pass, as He sat at the table with them, that He took bread, blessed and broke it, and gave it to them. 
 
 ###### 31 
 Then their eyes were opened and they knew Him; and He vanished from their sight. 
@@ -109,13 +109,13 @@ Then their eyes were opened and they knew Him; and He vanished from their sight.
 And they said to one another, "Did not our heart burn within us while He talked with us on the road, and while He opened the Scriptures to us?" 
 
 ###### 33 
-So they rose up that very hour and returned to Jerusalem, and found the eleven and those _who were_ with them gathered together, 
+So they rose up that very hour and returned to Jerusalem, and found the eleven and those who were with them gathered together, 
 
 ###### 34 
 saying, "The Lord is risen indeed, and has appeared to Simon!" 
 
 ###### 35 
-And they told about the things _that had happened_ on the road, and how He was known to them in the breaking of bread.
+And they told about the things that had happened on the road, and how He was known to them in the breaking of bread.
 
 ## Jesus Appears to His Disciples 
 
@@ -141,12 +141,12 @@ But while they still did not believe for joy, and marveled, He said to them, "Ha
 So they gave Him a piece of a broiled fish and some honeycomb. 
 
 ###### 43 
-And He took _it_ and ate in their presence.
+And He took it and ate in their presence.
 
 ## The Scriptures Opened 
 
 ###### 44 
-Then He said to them, "These _are_ the words which I spoke to you while I was still with you, that all things must be fulfilled which were written in the Law of Moses and _the_ Prophets and _the_ Psalms concerning Me." 
+Then He said to them, "These are the words which I spoke to you while I was still with you, that all things must be fulfilled which were written in the Law of Moses and the Prophets and the Psalms concerning Me." 
 
 ###### 45 
 And He opened their understanding, that they might comprehend the Scriptures. 

@@ -42,7 +42,7 @@ next: ['Neh 11']
 
 Ang unang pumirma ay si Gobernador Nehemias na anak ni Hakalias, at si Zedekia.
 
-###### 2-8 Ang mga paring pumirma ay sina_ Seraya, Azaria, Jeremias, Pashur, Amaria, Malkia, Hatush, Shebania, Maluc, Harim, Meremot, Obadias, Daniel, Gineton, Baruc, Meshulam, Abijah, Mijamin, Maazia, Bilgai, at Shemaya. 9-13Ang mga Levita na pumirma ay sina Jeshua na anak ni Azania, Binui na mula sa pamilya ni Henadad, Kadmiel, Shebania, Kelita, Pelaya, Hanan, Mica, Rehob, Hashabia, Zacur, Sherebia, Shebania, Hodia, Bani, at Beninu. 14-27Ang mga pinuno na pumirma ay sina Paros, Pahat Moab, Elam, Zatu, Bani, Buni, Azgad, Bebai, Adonia, Bigvai, Adin, Ater, Hezekia, Azur, Hodia, Hashum, Bezai, Harif, Anatot, Nebai, Magpias, Meshulam, Hezir, Meshezabel, Zadok, Jadua, Palatia, Hanan, Anaya, Hoshea, Hanania, Hashub, Halohes, Pilha, Shobek, Rehum, Hashabna, Maaseya, Ahia, Hanan, Anan, Maluc, Harim, at Baana.
+###### 2-8 Ang mga paring pumirma ay sina Seraya, Azaria, Jeremias, Pashur, Amaria, Malkia, Hatush, Shebania, Maluc, Harim, Meremot, Obadias, Daniel, Gineton, Baruc, Meshulam, Abijah, Mijamin, Maazia, Bilgai, at Shemaya. 9-13Ang mga Levita na pumirma ay sina Jeshua na anak ni Azania, Binui na mula sa pamilya ni Henadad, Kadmiel, Shebania, Kelita, Pelaya, Hanan, Mica, Rehob, Hashabia, Zacur, Sherebia, Shebania, Hodia, Bani, at Beninu. 14-27Ang mga pinuno na pumirma ay sina Paros, Pahat Moab, Elam, Zatu, Bani, Buni, Azgad, Bebai, Adonia, Bigvai, Adin, Ater, Hezekia, Azur, Hodia, Hashum, Bezai, Harif, Anatot, Nebai, Magpias, Meshulam, Hezir, Meshezabel, Zadok, Jadua, Palatia, Hanan, Anaya, Hoshea, Hanania, Hashub, Halohes, Pilha, Shobek, Rehum, Hashabna, Maaseya, Ahia, Hanan, Anan, Maluc, Harim, at Baana.
 
 ## Ang Kasunduan 
 
@@ -77,7 +77,7 @@ Ang unang pumirma ay si Gobernador Nehemias na anak ni Hakalias, at si Zedekia.
 
 
 
-Ang iba pang mamamayan ng Israel, pati na ang mga pari, mga Levita, mga guwardya ng mga pintuan ng templo_, mga mang-aawit, mga utusan sa templo, at ang lahat ng nakahiwalay sa mga dayuhang nakatira sa lupain namin para sumunod sa Kautusan ng Dios, maging ang mga asawa nila at ang mga batang nakakaunawa na 
+Ang iba pang mamamayan ng Israel, pati na ang mga pari, mga Levita, mga guwardya ng mga pintuan ng templo, mga mang-aawit, mga utusan sa templo, at ang lahat ng nakahiwalay sa mga dayuhang nakatira sa lupain namin para sumunod sa Kautusan ng Dios, maging ang mga asawa nila at ang mga batang nakakaunawa na 
 
 
 
@@ -176,7 +176,7 @@ Nangako kami na hindi namin papayagang makapag-asawa ang mga anak namin ng mga d
 
 
 
-Nangako rin kami na_ hindi kami bibili kung ipagbibili ng mga dayuhan ang trigo nila o kahit anong ipinagbibili sa Araw ng Pamamahinga o sa ibang banal na araw. At tuwing ikapitong taon, hindi kami magtatanim sa aming lupain, at hindi na namin sisingilin ang mga may utang sa amin. 
+Nangako rin kami na hindi kami bibili kung ipagbibili ng mga dayuhan ang trigo nila o kahit anong ipinagbibili sa Araw ng Pamamahinga o sa ibang banal na araw. At tuwing ikapitong taon, hindi kami magtatanim sa aming lupain, at hindi na namin sisingilin ang mga may utang sa amin. 
 
 
 
@@ -374,7 +374,7 @@ Dadalhin din namin sa mga pari na naglilingkod sa templo ng aming Dios ang aming
 
 
 
-Nangako pa kami na_ dadalhin namin sa mga pari ang pinakamagandang klase ng aming harina at ang iba pang mga handog bilang pagpaparangal sa Panginoon, para ilagay sa bodega ng templo ng Dios. Dadalhin din namin ang pinakamabuti naming mga prutas, at ang bagong katas ng ubas at langis ng olibo. Dadalhin din namin sa mga Levita ang ikapu ng aming mga ani, dahil sila ang nangongolekta ng mga ikapu sa lahat ng baryo na may mga sakahan. Kapag mangongolekta ng ikapu ang mga Levita, 
+Nangako pa kami na dadalhin namin sa mga pari ang pinakamagandang klase ng aming harina at ang iba pang mga handog bilang pagpaparangal sa Panginoon, para ilagay sa bodega ng templo ng Dios. Dadalhin din namin ang pinakamabuti naming mga prutas, at ang bagong katas ng ubas at langis ng olibo. Dadalhin din namin sa mga Levita ang ikapu ng aming mga ani, dahil sila ang nangongolekta ng mga ikapu sa lahat ng baryo na may mga sakahan. Kapag mangongolekta ng ikapu ang mga Levita, 
 
 
 
@@ -440,4 +440,4 @@ sinasamahan sila ng mga pari mula sa angkan ni Aaron. At ang ikapu ng nakolekta 
 
 
 
-Ang mga Israelita, pati na ang mga Levita ay dapat magdala ng mga handog na trigo, bagong katas ng ubas at langis sa bodega kung saan nakalagay ang mga kagamitan ng templo at kung saan nakatira ang mga pari na naglilingkod, ang mga guwardya ng mga pintuan ng templo_, at ang mga mang-aawit. Kaya nangako kami na hindi namin pababayaan ang templo ng aming Dios.
+Ang mga Israelita, pati na ang mga Levita ay dapat magdala ng mga handog na trigo, bagong katas ng ubas at langis sa bodega kung saan nakalagay ang mga kagamitan ng templo at kung saan nakatira ang mga pari na naglilingkod, ang mga guwardya ng mga pintuan ng templo, at ang mga mang-aawit. Kaya nangako kami na hindi namin pababayaan ang templo ng aming Dios.

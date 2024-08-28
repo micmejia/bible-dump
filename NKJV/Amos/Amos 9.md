@@ -24,16 +24,16 @@ Though they go into captivity before their enemies, From there I will command th
 The Lord God of hosts, He who touches the earth and it melts, And all who dwell there mourn; All of it shall swell like the River, And subside like the River of Egypt. 
 
 ###### 6 
-He who builds His layers in the sky, And has founded His strata in the earth; Who calls for the waters of the sea, And pours them out on the face of the earth-- The Lord _is_ His name. 
+He who builds His layers in the sky, And has founded His strata in the earth; Who calls for the waters of the sea, And pours them out on the face of the earth-- The Lord is His name. 
 
 ###### 7 
-"_Are_ you not like the people of Ethiopia to Me, O children of Israel?" says the Lord. "Did I not bring up Israel from the land of Egypt, The Philistines from Caphtor, And the Syrians from Kir? 
+"Are you not like the people of Ethiopia to Me, O children of Israel?" says the Lord. "Did I not bring up Israel from the land of Egypt, The Philistines from Caphtor, And the Syrians from Kir? 
 
 ###### 8 
-"Behold, the eyes of the Lord God _are_ on the sinful kingdom, And I will destroy it from the face of the earth; Yet I will not utterly destroy the house of Jacob," Says the Lord. 
+"Behold, the eyes of the Lord God are on the sinful kingdom, And I will destroy it from the face of the earth; Yet I will not utterly destroy the house of Jacob," Says the Lord. 
 
 ###### 9 
-"For surely I will command, And will sift the house of Israel among all nations, As _grain_ is sifted in a sieve; Yet not the smallest grain shall fall to the ground. 
+"For surely I will command, And will sift the house of Israel among all nations, As grain is sifted in a sieve; Yet not the smallest grain shall fall to the ground. 
 
 ###### 10 
 All the sinners of My people shall die by the sword, Who say, 'The calamity shall not overtake nor confront us.' ## Israel Will Be Restored 
@@ -45,10 +45,10 @@ All the sinners of My people shall die by the sword, Who say, 'The calamity shal
 That they may possess the remnant of Edom, And all the Gentiles who are called by My name," Says the Lord who does this thing. 
 
 ###### 13 
-"Behold, the days are coming," says the Lord, "When the plowman shall overtake the reaper, And the treader of grapes him who sows seed; The mountains shall drip with sweet wine, And all the hills shall flow _with it._ 
+"Behold, the days are coming," says the Lord, "When the plowman shall overtake the reaper, And the treader of grapes him who sows seed; The mountains shall drip with sweet wine, And all the hills shall flow with it. 
 
 ###### 14 
-I will bring back the captives of My people Israel; They shall build the waste cities and inhabit _them;_ They shall plant vineyards and drink wine from them; They shall also make gardens and eat fruit from them. 
+I will bring back the captives of My people Israel; They shall build the waste cities and inhabit them; They shall plant vineyards and drink wine from them; They shall also make gardens and eat fruit from them. 
 
 ###### 15 
 I will plant them in their land, And no longer shall they be pulled up From the land I have given them," Says the Lord your God.

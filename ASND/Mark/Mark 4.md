@@ -40,7 +40,7 @@ next: ['Mark 5']
 
 
 
-Muling nagturo si Jesus sa tabi ng lawa ng Galilea_. At dahil sa dami ng taong nakapalibot sa kanya, sumakay siya sa isang bangka at doon umupo, habang ang mga tao namaʼy nasa dalampasigan. 
+Muling nagturo si Jesus sa tabi ng lawa ng Galilea. At dahil sa dami ng taong nakapalibot sa kanya, sumakay siya sa isang bangka at doon umupo, habang ang mga tao namaʼy nasa dalampasigan. 
 
 
 
@@ -337,7 +337,7 @@ Pagkatapos, sinabi ni Jesus, "Kayong mga nakikinig, dapat nʼyo itong pag-isipan
 
 
 
-Nang nakauwi na ang mga tao, tinanong siya ng 12 apostol_ at ng iba pang mga tagasunod niya kung ano ang kahulugan ng talinghagang iyon. 
+Nang nakauwi na ang mga tao, tinanong siya ng 12 apostol at ng iba pang mga tagasunod niya kung ano ang kahulugan ng talinghagang iyon. 
 
 
 
@@ -370,7 +370,7 @@ Nang nakauwi na ang mga tao, tinanong siya ng 12 apostol_ at ng iba pang mga tag
 
 
 
-Sinabi ni Jesus sa kanila, "Ipinagkaloob sa inyo na malaman_ ang mga lihim tungkol sa paghahari ng Dios, ngunit sa iba ay ipinapahayag ito sa pamamagitan ng talinghaga, 
+Sinabi ni Jesus sa kanila, "Ipinagkaloob sa inyo na malaman ang mga lihim tungkol sa paghahari ng Dios, ngunit sa iba ay ipinapahayag ito sa pamamagitan ng talinghaga, 
 
 
 
@@ -403,7 +403,7 @@ Sinabi ni Jesus sa kanila, "Ipinagkaloob sa inyo na malaman_ ang mga lihim tungk
 
 
 
-upang matupad ang nakasulat sa Kasulatan_, 'Tumingin man sila nang tumingin, hindi sila makakakita. Makinig man sila nang makinig, hindi sila makakaunawa. Dahil kung makakaunawa sila, magsisisi sila sa kanilang kasalanan at patatawarin sila ng Dios.'" ## Ang Kahulugan ng Talinghaga tungkol sa Manghahasik 
+upang matupad ang nakasulat sa Kasulatan, 'Tumingin man sila nang tumingin, hindi sila makakakita. Makinig man sila nang makinig, hindi sila makakaunawa. Dahil kung makakaunawa sila, magsisisi sila sa kanilang kasalanan at patatawarin sila ng Dios.'" ## Ang Kahulugan ng Talinghaga tungkol sa Manghahasik 
 
 
 
@@ -469,7 +469,7 @@ Pagkatapos, sinabi ni Jesus sa kanila, "Kung hindi ninyo nauunawaan ang talingha
 
 
 
-Ang inihahasik ng manghahasik ay ang salita ng Dios_. 
+Ang inihahasik ng manghahasik ay ang salita ng Dios. 
 
 
 
@@ -502,7 +502,7 @@ Ang inihahasik ng manghahasik ay ang salita ng Dios_.
 
 
 
-Ang tabi ng daan, kung saan nahulog ang ilang binhi ay ang mga taong nakinig sa salita ng Dios_. Ngunit dumating agad si Satanas at inagaw ang salita ng Dios_ na narinig nila. 
+Ang tabi ng daan, kung saan nahulog ang ilang binhi ay ang mga taong nakinig sa salita ng Dios. Ngunit dumating agad si Satanas at inagaw ang salita ng Dios na narinig nila. 
 
 
 
@@ -535,7 +535,7 @@ Ang tabi ng daan, kung saan nahulog ang ilang binhi ay ang mga taong nakinig sa 
 
 
 
-Ang mabatong lugar, kung saan nahulog ang ibang binhi, ay ang mga taong nakinig sa salita ng Dios_ at masaya itong tinanggap kaagad. 
+Ang mabatong lugar, kung saan nahulog ang ibang binhi, ay ang mga taong nakinig sa salita ng Dios at masaya itong tinanggap kaagad. 
 
 
 
@@ -568,7 +568,7 @@ Ang mabatong lugar, kung saan nahulog ang ibang binhi, ay ang mga taong nakinig 
 
 
 
-Ngunit hindi taimtim sa puso ang pagtanggap nila, kaya hindi tumatagal ang kanilang pananampalataya. Pagdating ng kahirapan o pag-uusig dahil sa salita ng Dios na tinanggap nila_, tumatalikod sila kaagad sa kanilang pananampalataya. 
+Ngunit hindi taimtim sa puso ang pagtanggap nila, kaya hindi tumatagal ang kanilang pananampalataya. Pagdating ng kahirapan o pag-uusig dahil sa salita ng Dios na tinanggap nila, tumatalikod sila kaagad sa kanilang pananampalataya. 
 
 
 
@@ -601,7 +601,7 @@ Ngunit hindi taimtim sa puso ang pagtanggap nila, kaya hindi tumatagal ang kanil
 
 
 
-Ang lupang may matitinik na damo, kung saan nahulog ang iba pang binhi ay ang mga taong nakinig sa salita ng Dios_. 
+Ang lupang may matitinik na damo, kung saan nahulog ang iba pang binhi ay ang mga taong nakinig sa salita ng Dios. 
 
 
 
@@ -634,7 +634,7 @@ Ang lupang may matitinik na damo, kung saan nahulog ang iba pang binhi ay ang mg
 
 
 
-Ngunit dahil sa mga alalahanin dito sa mundo, paghahangad na yumaman, at paghahabol sa marami pang mga bagay, nakakalimutan nila ang salita ng Dios_, kaya hindi namumunga ang salita sa kanilang buhay. 
+Ngunit dahil sa mga alalahanin dito sa mundo, paghahangad na yumaman, at paghahabol sa marami pang mga bagay, nakakalimutan nila ang salita ng Dios, kaya hindi namumunga ang salita sa kanilang buhay. 
 
 
 
@@ -667,7 +667,7 @@ Ngunit dahil sa mga alalahanin dito sa mundo, paghahangad na yumaman, at paghaha
 
 
 
-Ngunit ang mabuting lupa na hinasikan ng binhi ay ang mga taong nakikinig ng salita ng Dios_ at tumanggap nito. Kaya namumunga ito sa kanilang buhay_. Ang ibaʼy katamtaman lang ang bunga; ang ibaʼy marami, at ang iba namaʼy napakarami." ## Ang Talinghaga tungkol sa Ilaw 
+Ngunit ang mabuting lupa na hinasikan ng binhi ay ang mga taong nakikinig ng salita ng Dios at tumanggap nito. Kaya namumunga ito sa kanilang buhay. Ang ibaʼy katamtaman lang ang bunga; ang ibaʼy marami, at ang iba namaʼy napakarami." ## Ang Talinghaga tungkol sa Ilaw 
 
 
 
@@ -865,7 +865,7 @@ Sapagkat ang taong sumusunod sa narinig niyang katotohanan ay bibigyan pa ng pan
 
 
 
-Sinabi pa ni Jesus, "Ang paghahari ng Dios ay maitutulad sa kwentong ito: May_ isang taong naghasik ng binhi sa kanyang bukid. 
+Sinabi pa ni Jesus, "Ang paghahari ng Dios ay maitutulad sa kwentong ito: May isang taong naghasik ng binhi sa kanyang bukid. 
 
 
 
@@ -931,7 +931,7 @@ Habang nagtatrabaho siya sa araw at natutulog sa gabi, ang mga binhing inihasik 
 
 
 
-Ang lupa ang nagpapatubo at_ nagpapabunga sa tanim. Sisibol muna ang mga dahon, saka ang uhay, at pagkatapos ay ang mga butil. 
+Ang lupa ang nagpapatubo at nagpapabunga sa tanim. Sisibol muna ang mga dahon, saka ang uhay, at pagkatapos ay ang mga butil. 
 
 
 
@@ -1164,7 +1164,7 @@ Hindi siya nangangaral sa mga tao nang hindi gumagamit ng talinghaga, pero ipina
 
 
 
-Kinagabihan, sinabi ni Jesus sa mga tagasunod niya, "Tumawid tayo sa kabila ng lawa_." 
+Kinagabihan, sinabi ni Jesus sa mga tagasunod niya, "Tumawid tayo sa kabila ng lawa." 
 
 
 
@@ -1230,7 +1230,7 @@ Kaya iniwan ng mga tagasunod niya ang mga tao at sumakay na rin sila sa bangkang
 
 
 
-Habang naglalayag sila,_ biglang lumakas ang hangin. Hinampas ng malalaking alon ang bangka nila at halos mapuno na ito ng tubig_. 
+Habang naglalayag sila, biglang lumakas ang hangin. Hinampas ng malalaking alon ang bangka nila at halos mapuno na ito ng tubig. 
 
 
 
@@ -1329,7 +1329,7 @@ Kaya bumangon si Jesus at pinatigil ang hangin at mga alon. Sinabi niya, "Tigil!
 
 
 
-Tinanong niya ang mga tagasunod niya, "Bakit kayo natatakot? Wala pa ba kayong pananampalataya sa akin_?" 
+Tinanong niya ang mga tagasunod niya, "Bakit kayo natatakot? Wala pa ba kayong pananampalataya sa akin?" 
 
 
 

@@ -502,7 +502,7 @@ Kaya ngayon, narito ako sa gitna ng kapahamakan at kahihiyan."
 
 
 
-Dapat sa asawa mo lang ikaw sumiping_. Kung baga sa tubig, doon ka lang sa sarili mong balon kumuha ng iyong iinumin. 
+Dapat sa asawa mo lang ikaw sumiping. Kung baga sa tubig, doon ka lang sa sarili mong balon kumuha ng iyong iinumin. 
 
 
 

@@ -19,7 +19,7 @@ The word which came to Jeremiah from the Lord in the days of Jehoiakim the son o
 Then I took Jaazaniah the son of Jeremiah, the son of Habazziniah, his brothers and all his sons, and the whole house of the Rechabites, 
 
 ###### 4 
-and I brought them into the house of the Lord, into the chamber of the sons of Hanan the son of Igdaliah, a man of God, which _was_ by the chamber of the princes, above the chamber of Maaseiah the son of Shallum, the keeper of the door. 
+and I brought them into the house of the Lord, into the chamber of the sons of Hanan the son of Igdaliah, a man of God, which was by the chamber of the princes, above the chamber of Maaseiah the son of Shallum, the keeper of the door. 
 
 ###### 5 
 Then I set before the sons of the house of the Rechabites bowls full of wine, and cups; and I said to them, "Drink wine." 
@@ -28,7 +28,7 @@ Then I set before the sons of the house of the Rechabites bowls full of wine, an
 But they said, "We will drink no wine, for Jonadab the son of Rechab, our father, commanded us, saying, 'You shall drink no wine, you nor your sons, forever. 
 
 ###### 7 
-You shall not build a house, sow seed, plant a vineyard, nor have _any of these;_ but all your days you shall dwell in tents, that you may live many days in the land where you are sojourners.' 
+You shall not build a house, sow seed, plant a vineyard, nor have any of these; but all your days you shall dwell in tents, that you may live many days in the land where you are sojourners.' 
 
 ###### 8 
 Thus we have obeyed the voice of Jonadab the son of Rechab, our father, in all that he charged us, to drink no wine all our days, we, our wives, our sons, or our daughters, 
@@ -52,7 +52,7 @@ Then came the word of the Lord to Jeremiah, saying,
 "The words of Jonadab the son of Rechab, which he commanded his sons, not to drink wine, are performed; for to this day they drink none, and obey their father's commandment. But although I have spoken to you, rising early and speaking, you did not obey Me. 
 
 ###### 15 
-I have also sent to you all My servants the prophets, rising up early and sending _them,_ saying, 'Turn now everyone from his evil way, amend your doings, and do not go after other gods to serve them; then you will dwell in the land which I have given you and your fathers.' But you have not inclined your ear, nor obeyed Me. 
+I have also sent to you all My servants the prophets, rising up early and sending them, saying, 'Turn now everyone from his evil way, amend your doings, and do not go after other gods to serve them; then you will dwell in the land which I have given you and your fathers.' But you have not inclined your ear, nor obeyed Me. 
 
 ###### 16 
 Surely the sons of Jonadab the son of Rechab have performed the commandment of their father, which he commanded them, but this people has not obeyed Me." ' 

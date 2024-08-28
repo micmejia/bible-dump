@@ -16,28 +16,28 @@ next: ['Jer 32']
 Thus says the Lord: "The people who survived the sword Found grace in the wilderness-- Israel, when I went to give him rest." 
 
 ###### 3 
-The Lord has appeared of old to me, _saying:_ "Yes, I have loved you with an everlasting love; Therefore with lovingkindness I have drawn you. 
+The Lord has appeared of old to me, saying: "Yes, I have loved you with an everlasting love; Therefore with lovingkindness I have drawn you. 
 
 ###### 4 
 Again I will build you, and you shall be rebuilt, O virgin of Israel! You shall again be adorned with your tambourines, And shall go forth in the dances of those who rejoice. 
 
 ###### 5 
-You shall yet plant vines on the mountains of Samaria; The planters shall plant and eat _them_ as ordinary food. 
+You shall yet plant vines on the mountains of Samaria; The planters shall plant and eat them as ordinary food. 
 
 ###### 6 
-For there shall be a day _When_ the watchmen will cry on Mount Ephraim, 'Arise, and let us go up _to_ Zion, To the Lord our God.' " 
+For there shall be a day When the watchmen will cry on Mount Ephraim, 'Arise, and let us go up to Zion, To the Lord our God.' " 
 
 ###### 7 
 For thus says the Lord: "Sing with gladness for Jacob, And shout among the chief of the nations; Proclaim, give praise, and say, 'O Lord, save Your people, The remnant of Israel!' 
 
 ###### 8 
-Behold, I will bring them from the north country, And gather them from the ends of the earth, _Among_ them the blind and the lame, The woman with child And the one who labors with child, together; A great throng shall return there. 
+Behold, I will bring them from the north country, And gather them from the ends of the earth, Among them the blind and the lame, The woman with child And the one who labors with child, together; A great throng shall return there. 
 
 ###### 9 
-They shall come with weeping, And with supplications I will lead them. I will cause them to walk by the rivers of waters, In a straight way in which they shall not stumble; For I am a Father to Israel, And Ephraim _is_ My firstborn. 
+They shall come with weeping, And with supplications I will lead them. I will cause them to walk by the rivers of waters, In a straight way in which they shall not stumble; For I am a Father to Israel, And Ephraim is My firstborn. 
 
 ###### 10 
-"Hear the word of the Lord, O nations, And declare _it_ in the isles afar off, and say, 'He who scattered Israel will gather him, And keep him as a shepherd _does_ his flock.' 
+"Hear the word of the Lord, O nations, And declare it in the isles afar off, and say, 'He who scattered Israel will gather him, And keep him as a shepherd does his flock.' 
 
 ###### 11 
 For the Lord has redeemed Jacob, And ransomed him from the hand of one stronger than he. 
@@ -52,31 +52,31 @@ Therefore they shall come and sing in the height of Zion, Streaming to the goodn
 I will satiate the soul of the priests with abundance, And My people shall be satisfied with My goodness, says the Lord." ## Mercy on Ephraim 
 
 ###### 15 
-Thus says the Lord: "A voice was heard in Ramah, Lamentation _and_ bitter weeping, Rachel weeping for her children, Refusing to be comforted for her children, Because they _are_ no more." 
+Thus says the Lord: "A voice was heard in Ramah, Lamentation and bitter weeping, Rachel weeping for her children, Refusing to be comforted for her children, Because they are no more." 
 
 ###### 16 
 Thus says the Lord: "Refrain your voice from weeping, And your eyes from tears; For your work shall be rewarded, says the Lord, And they shall come back from the land of the enemy. 
 
 ###### 17 
-There is hope in your future, says the Lord, That _your_ children shall come back to their own border. 
+There is hope in your future, says the Lord, That your children shall come back to their own border. 
 
 ###### 18 
-"I have surely heard Ephraim bemoaning himself: 'You have chastised me, and I was chastised, Like an untrained bull; Restore me, and I will return, For You _are_ the Lord my God. 
+"I have surely heard Ephraim bemoaning himself: 'You have chastised me, and I was chastised, Like an untrained bull; Restore me, and I will return, For You are the Lord my God. 
 
 ###### 19 
 Surely, after my turning, I repented; And after I was instructed, I struck myself on the thigh; I was ashamed, yes, even humiliated, Because I bore the reproach of my youth.' 
 
 ###### 20 
-_Is_ Ephraim My dear son? _Is he_ a pleasant child? For though I spoke against him, I earnestly remember him still; Therefore My heart yearns for him; I will surely have mercy on him, says the Lord. 
+Is Ephraim My dear son? Is he a pleasant child? For though I spoke against him, I earnestly remember him still; Therefore My heart yearns for him; I will surely have mercy on him, says the Lord. 
 
 ###### 21 
-"Set up signposts, Make landmarks; Set your heart toward the highway, The way in _which_ you went. Turn back, O virgin of Israel, Turn back to these your cities. 
+"Set up signposts, Make landmarks; Set your heart toward the highway, The way in which you went. Turn back, O virgin of Israel, Turn back to these your cities. 
 
 ###### 22 
 How long will you gad about, O you backsliding daughter? For the Lord has created a new thing in the earth-- A woman shall encompass a man." ## Future Prosperity of Judah 
 
 ###### 23 
-Thus says the Lord of hosts, the God of Israel: "They shall again use this speech in the land of Judah and in its cities, when I bring back their captivity: 'The Lord bless you, O home of justice, _and_ mountain of holiness!' 
+Thus says the Lord of hosts, the God of Israel: "They shall again use this speech in the land of Judah and in its cities, when I bring back their captivity: 'The Lord bless you, O home of justice, and mountain of holiness!' 
 
 ###### 24 
 And there shall dwell in Judah itself, and in all its cities together, farmers and those going out with flocks. 
@@ -91,7 +91,7 @@ After this I awoke and looked around, and my sleep was sweet to me.
 "Behold, the days are coming, says the Lord, that I will sow the house of Israel and the house of Judah with the seed of man and the seed of beast. 
 
 ###### 28 
-And it shall come to pass, _that_ as I have watched over them to pluck up, to break down, to throw down, to destroy, and to afflict, so I will watch over them to build and to plant, says the Lord. 
+And it shall come to pass, that as I have watched over them to pluck up, to break down, to throw down, to destroy, and to afflict, so I will watch over them to build and to plant, says the Lord. 
 
 ###### 29 
 In those days they shall say no more: 'The fathers have eaten sour grapes, And the children's teeth are set on edge.' 
@@ -105,19 +105,19 @@ But every one shall die for his own iniquity; every man who eats the sour grapes
 "Behold, the days are coming, says the Lord, when I will make a new covenant with the house of Israel and with the house of Judah-- 
 
 ###### 32 
-not according to the covenant that I made with their fathers in the day _that_ I took them by the hand to lead them out of the land of Egypt, My covenant which they broke, though I was a husband to them, says the Lord. 
+not according to the covenant that I made with their fathers in the day that I took them by the hand to lead them out of the land of Egypt, My covenant which they broke, though I was a husband to them, says the Lord. 
 
 ###### 33 
-But this _is_ the covenant that I will make with the house of Israel after those days, says the Lord: I will put My law in their minds, and write it on their hearts; and I will be their God, and they shall be My people. 
+But this is the covenant that I will make with the house of Israel after those days, says the Lord: I will put My law in their minds, and write it on their hearts; and I will be their God, and they shall be My people. 
 
 ###### 34 
 No more shall every man teach his neighbor, and every man his brother, saying, 'Know the Lord,' for they all shall know Me, from the least of them to the greatest of them, says the Lord. For I will forgive their iniquity, and their sin I will remember no more." 
 
 ###### 35 
-Thus says the Lord, Who gives the sun for a light by day, The ordinances of the moon and the stars for a light by night, Who disturbs the sea, And its waves roar (The Lord of hosts _is_ His name): 
+Thus says the Lord, Who gives the sun for a light by day, The ordinances of the moon and the stars for a light by night, Who disturbs the sea, And its waves roar (The Lord of hosts is His name): 
 
 ###### 36 
-"If those ordinances depart From before Me, says the Lord, _Then_ the seed of Israel shall also cease From being a nation before Me forever." 
+"If those ordinances depart From before Me, says the Lord, Then the seed of Israel shall also cease From being a nation before Me forever." 
 
 ###### 37 
 Thus says the Lord: "If heaven above can be measured, And the foundations of the earth searched out beneath, I will also cast off all the seed of Israel For all that they have done, says the Lord. 
@@ -129,4 +129,4 @@ Thus says the Lord: "If heaven above can be measured, And the foundations of the
 The surveyor's line shall again extend straight forward over the hill Gareb; then it shall turn toward Goath. 
 
 ###### 40 
-And the whole valley of the dead bodies and of the ashes, and all the fields as far as the Brook Kidron, to the corner of the Horse Gate toward the east, _shall be_ holy to the Lord. It shall not be plucked up or thrown down anymore forever."
+And the whole valley of the dead bodies and of the ashes, and all the fields as far as the Brook Kidron, to the corner of the Horse Gate toward the east, shall be holy to the Lord. It shall not be plucked up or thrown down anymore forever."

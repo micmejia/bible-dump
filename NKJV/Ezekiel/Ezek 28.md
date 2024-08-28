@@ -13,10 +13,10 @@ next: ['Ezek 29']
 The word of the Lord came to me again, saying, 
 
 ###### 2 
-"Son of man, say to the prince of Tyre, 'Thus says the Lord God: "Because your heart _is_ lifted up, And you say, 'I _am_ a god, I sit _in_ the seat of gods, In the midst of the seas,' Yet you _are_ a man, and not a god, Though you set your heart as the heart of a god 
+"Son of man, say to the prince of Tyre, 'Thus says the Lord God: "Because your heart is lifted up, And you say, 'I am a god, I sit in the seat of gods, In the midst of the seas,' Yet you are a man, and not a god, Though you set your heart as the heart of a god 
 
 ###### 3 
-(Behold, you _are_ wiser than Daniel! There is no secret that can be hidden from you! 
+(Behold, you are wiser than Daniel! There is no secret that can be hidden from you! 
 
 ###### 4 
 With your wisdom and your understanding You have gained riches for yourself, And gathered gold and silver into your treasuries; 
@@ -34,7 +34,7 @@ Behold, therefore, I will bring strangers against you, The most terrible of the 
 They shall throw you down into the Pit, And you shall die the death of the slain In the midst of the seas. 
 
 ###### 9 
-"Will you still say before him who slays you, 'I _am_ a god'? But you _shall be_ a man, and not a god, In the hand of him who slays you. 
+"Will you still say before him who slays you, 'I am a god'? But you shall be a man, and not a god, In the hand of him who slays you. 
 
 ###### 10 
 You shall die the death of the uncircumcised By the hand of aliens; For I have spoken," says the Lord God.' " ## Lamentation for the King of Tyre 
@@ -43,16 +43,16 @@ You shall die the death of the uncircumcised By the hand of aliens; For I have s
 Moreover the word of the Lord came to me, saying, 
 
 ###### 12 
-"Son of man, take up a lamentation for the king of Tyre, and say to him, 'Thus says the Lord God: "You _were_ the seal of perfection, Full of wisdom and perfect in beauty. 
+"Son of man, take up a lamentation for the king of Tyre, and say to him, 'Thus says the Lord God: "You were the seal of perfection, Full of wisdom and perfect in beauty. 
 
 ###### 13 
-You were in Eden, the garden of God; Every precious stone _was_ your covering: The sardius, topaz, and diamond, Beryl, onyx, and jasper, Sapphire, turquoise, and emerald with gold. The workmanship of your timbrels and pipes Was prepared for you on the day you were created. 
+You were in Eden, the garden of God; Every precious stone was your covering: The sardius, topaz, and diamond, Beryl, onyx, and jasper, Sapphire, turquoise, and emerald with gold. The workmanship of your timbrels and pipes Was prepared for you on the day you were created. 
 
 ###### 14 
-"You _were_ the anointed cherub who covers; I established you; You were on the holy mountain of God; You walked back and forth in the midst of fiery stones. 
+"You were the anointed cherub who covers; I established you; You were on the holy mountain of God; You walked back and forth in the midst of fiery stones. 
 
 ###### 15 
-You _were_ perfect in your ways from the day you were created, Till iniquity was found in you. 
+You were perfect in your ways from the day you were created, Till iniquity was found in you. 
 
 ###### 16 
 "By the abundance of your trading You became filled with violence within, And you sinned; Therefore I cast you as a profane thing Out of the mountain of God; And I destroyed you, O covering cherub, From the midst of the fiery stones. 
@@ -64,7 +64,7 @@ You _were_ perfect in your ways from the day you were created, Till iniquity was
 "You defiled your sanctuaries By the multitude of your iniquities, By the iniquity of your trading; Therefore I brought fire from your midst; It devoured you, And I turned you to ashes upon the earth In the sight of all who saw you. 
 
 ###### 19 
-All who knew you among the peoples are astonished at you; You have become a horror, And _shall be_ no more forever." ' " ## Proclamation Against Sidon 
+All who knew you among the peoples are astonished at you; You have become a horror, And shall be no more forever." ' " ## Proclamation Against Sidon 
 
 ###### 20 
 Then the word of the Lord came to me, saying, 
@@ -73,16 +73,16 @@ Then the word of the Lord came to me, saying,
 "Son of man, set your face toward Sidon, and prophesy against her, 
 
 ###### 22 
-and say, 'Thus says the Lord God: "Behold, I _am_ against you, O Sidon; I will be glorified in your midst; And they shall know that I _am_ the Lord, When I execute judgments in her and am hallowed in her. 
+and say, 'Thus says the Lord God: "Behold, I am against you, O Sidon; I will be glorified in your midst; And they shall know that I am the Lord, When I execute judgments in her and am hallowed in her. 
 
 ###### 23 
-For I will send pestilence upon her, And blood in her streets; The wounded shall be judged in her midst By the sword against her on every side; Then they shall know that I _am_ the Lord. 
+For I will send pestilence upon her, And blood in her streets; The wounded shall be judged in her midst By the sword against her on every side; Then they shall know that I am the Lord. 
 
 ###### 24 
-"And there shall no longer be a pricking brier or a painful thorn for the house of Israel from among all _who are_ around them, who despise them. Then they shall know that I _am_ the Lord God." ## Israel's Future Blessing 
+"And there shall no longer be a pricking brier or a painful thorn for the house of Israel from among all who are around them, who despise them. Then they shall know that I am the Lord God." ## Israel's Future Blessing 
 
 ###### 25 
 'Thus says the Lord God: "When I have gathered the house of Israel from the peoples among whom they are scattered, and am hallowed in them in the sight of the Gentiles, then they will dwell in their own land which I gave to My servant Jacob. 
 
 ###### 26 
-And they will dwell safely there, build houses, and plant vineyards; yes, they will dwell securely, when I execute judgments on all those around them who despise them. Then they shall know that I _am_ the Lord their God." ' "
+And they will dwell safely there, build houses, and plant vineyards; yes, they will dwell securely, when I execute judgments on all those around them who despise them. Then they shall know that I am the Lord their God." ' "

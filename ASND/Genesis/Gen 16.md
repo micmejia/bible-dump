@@ -172,7 +172,7 @@ At nagbuntis nga si Hagar. Nang malaman ni Hagar na buntis siya, hinamak niya si
 
 
 
-Dahil dito, sinabi ni Sarai kay Abram, "Ngayong buntis na si Hagar hinahamak na niya ako. Ikaw ang dapat sisihin. Ibinigay ko siya sa iyo at ikaw dapat ang sumaway sa kanya_. Ang Panginoon na ang humatol kung sino sa atin ang tama." 
+Dahil dito, sinabi ni Sarai kay Abram, "Ngayong buntis na si Hagar hinahamak na niya ako. Ikaw ang dapat sisihin. Ibinigay ko siya sa iyo at ikaw dapat ang sumaway sa kanya. Ang Panginoon na ang humatol kung sino sa atin ang tama." 
 
 
 
@@ -502,7 +502,7 @@ Iyon ang bukal na naroon sa gitna ng Kadesh at Bered na tinatawag na Beer Lahai 
 
 
 
-Bumalik si Hagar kay Sarai,_ at dumating ang panahon na nanganak siya ng isang lalaki. Pinangalanan ni Abram ang bata na Ishmael. 
+Bumalik si Hagar kay Sarai, at dumating ang panahon na nanganak siya ng isang lalaki. Pinangalanan ni Abram ang bata na Ishmael. 
 
 
 

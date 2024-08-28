@@ -205,7 +205,7 @@ Pero kung hindi nʼyo susundin ang mga utos kong ito, isinusumpa ko sa sarili ko
 
 
 
-Ito ang sinasabi ng Panginoon tungkol sa palasyo ng hari ng Juda: "Para sa akin, kasingganda ka ng Gilead o ng tuktok ng bundok_ ng Lebanon. Pero gagawin kitang parang disyerto, na tulad ng isang bayan na walang naninirahan. 
+Ito ang sinasabi ng Panginoon tungkol sa palasyo ng hari ng Juda: "Para sa akin, kasingganda ka ng Gilead o ng tuktok ng bundok ng Lebanon. Pero gagawin kitang parang disyerto, na tulad ng isang bayan na walang naninirahan. 
 
 
 
@@ -304,7 +304,7 @@ Ang mga taong galing sa ibaʼt ibang bansa na dadaan sa lungsod na ito ay magtat
 
 
 
-At ito ang isasagot sa kanila, 'Dahil itinakwil nila ang kasunduan nila sa Panginoon na kanilang Dios, at sumamba sila at naglingkod sa mga dios-diosan.' " ## Ang Mensahe tungkol kay Jehoahaz 10-11Mga taga-Juda,_ huwag kayong umiyak sa pagpanaw ni Haring Josia. Sa halip, umiyak kayo nang lubos para sa anak niyang si Jehoahaz na pumalit sa kanya bilang hari ng Juda. Sapagkat binihag siya at hindi na siya makakabalik pa. Kaya hindi na niya makikita pang muli ang lupaing ito na sinilangan niya. Sapagkat ang Panginoon ang nagsabi na hindi na siya makakabalik. 
+At ito ang isasagot sa kanila, 'Dahil itinakwil nila ang kasunduan nila sa Panginoon na kanilang Dios, at sumamba sila at naglingkod sa mga dios-diosan.' " ## Ang Mensahe tungkol kay Jehoahaz 10-11Mga taga-Juda, huwag kayong umiyak sa pagpanaw ni Haring Josia. Sa halip, umiyak kayo nang lubos para sa anak niyang si Jehoahaz na pumalit sa kanya bilang hari ng Juda. Sapagkat binihag siya at hindi na siya makakabalik pa. Kaya hindi na niya makikita pang muli ang lupaing ito na sinilangan niya. Sapagkat ang Panginoon ang nagsabi na hindi na siya makakabalik. 
 
 
 
@@ -372,7 +372,7 @@ Mamamatay siya sa lupain kung saan siya dinalang bihag. Hindi na niya makikita p
 
 
 
-Nakakaawa ka Jehoyakim_, nagtayo ka ng iyong palasyo sa pamamagitan ng masamang paraan. Pinagtrabaho mo ang iyong kapwa nang walang sweldo. 
+Nakakaawa ka Jehoyakim, nagtayo ka ng iyong palasyo sa pamamagitan ng masamang paraan. Pinagtrabaho mo ang iyong kapwa nang walang sweldo. 
 
 
 
@@ -537,7 +537,7 @@ Pero ikaw, wala kang ibang hinahangad kundi ang makapandaya, pagpatay ng mga tao
 
 
 
-Kaya ito ang sinasabi ng Panginoon tungkol kay Haring Jehoyakim ng Juda, na anak ni Josia, "Walang magluluksa para sa kanya kapag namatay siya_. Ang sambahayan niya, ang mga pinuno niya at ang ibang mga tao ay hindi magluluksa para sa kanya. 
+Kaya ito ang sinasabi ng Panginoon tungkol kay Haring Jehoyakim ng Juda, na anak ni Josia, "Walang magluluksa para sa kanya kapag namatay siya. Ang sambahayan niya, ang mga pinuno niya at ang ibang mga tao ay hindi magluluksa para sa kanya. 
 
 
 
@@ -570,7 +570,7 @@ Kaya ito ang sinasabi ng Panginoon tungkol kay Haring Jehoyakim ng Juda, na anak
 
 
 
-Ililibing siya katulad ng paglilibing sa patay na_ asno; kakaladkarin ang bangkay niya at itatapon sa labas ng pintuan ng Jerusalem. 
+Ililibing siya katulad ng paglilibing sa patay na asno; kakaladkarin ang bangkay niya at itatapon sa labas ng pintuan ng Jerusalem. 
 
 
 
@@ -603,7 +603,7 @@ Ililibing siya katulad ng paglilibing sa patay na_ asno; kakaladkarin ang bangka
 
 
 
-"Mga taga-Juda,_ umiyak kayo dahil wala na kayong mga kakamping bansa. Hanapin nʼyo sila sa Lebanon. Tawagin nʼyo sila sa Bashan at Abarim. 
+"Mga taga-Juda, umiyak kayo dahil wala na kayong mga kakamping bansa. Hanapin nʼyo sila sa Lebanon. Tawagin nʼyo sila sa Bashan at Abarim. 
 
 
 
@@ -702,7 +702,7 @@ Kaya pangangalatin ko ang mga pinuno nʼyo na parang ipa na tinatangay ng hangin
 
 
 
-"Kayong mga nakatira sa palasyo ng Jerusalem na_ gawa sa kahoy na_ sedro mula sa Lebanon, kahabag-habag kayo kapag dumating na sa inyo ang paghihirap, na parang babaeng naghihirap sa panganganak.
+"Kayong mga nakatira sa palasyo ng Jerusalem na gawa sa kahoy na sedro mula sa Lebanon, kahabag-habag kayo kapag dumating na sa inyo ang paghihirap, na parang babaeng naghihirap sa panganganak.
 
 ## Ang Mensahe tungkol kay Jehoyakin 
 
@@ -902,7 +902,7 @@ Jehoyakin, para kang basag na palayok na hindi na mapapakinabangan. Kaya itatapo
 
 
 
-O lupain ng Juda_, pakinggan mo ang salita ng Panginoon. 
+O lupain ng Juda, pakinggan mo ang salita ng Panginoon. 
 
 
 
@@ -935,4 +935,4 @@ O lupain ng Juda_, pakinggan mo ang salita ng Panginoon.
 
 
 
-Sapagkat ito ang sinasabi niya, "Isulat nʼyo na ang taong ito na si Jehoyakin_ na parang walang anak, sapagkat wala ni isa man sa kanyang mga anak ang luluklok sa trono ni David bilang hari ng Juda. At hindi rin siya magtatagumpay sa pamumuhay niya."
+Sapagkat ito ang sinasabi niya, "Isulat nʼyo na ang taong ito na si Jehoyakin na parang walang anak, sapagkat wala ni isa man sa kanyang mga anak ang luluklok sa trono ni David bilang hari ng Juda. At hindi rin siya magtatagumpay sa pamumuhay niya."

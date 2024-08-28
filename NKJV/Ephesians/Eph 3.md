@@ -36,10 +36,10 @@ of which I became a minister according to the gift of the grace of God given to 
 To me, who am less than the least of all the saints, this grace was given, that I should preach among the Gentiles the unsearchable riches of Christ, 
 
 ###### 9 
-and to make all see what _is_ the fellowship of the mystery, which from the beginning of the ages has been hidden in God who created all things through Jesus Christ; 
+and to make all see what is the fellowship of the mystery, which from the beginning of the ages has been hidden in God who created all things through Jesus Christ; 
 
 ###### 10 
-to the intent that now the manifold wisdom of God might be made known by the church to the principalities and powers in the heavenly _places,_ 
+to the intent that now the manifold wisdom of God might be made known by the church to the principalities and powers in the heavenly places, 
 
 ###### 11 
 according to the eternal purpose which He accomplished in Christ Jesus our Lord, 
@@ -65,7 +65,7 @@ that He would grant you, according to the riches of His glory, to be strengthene
 that Christ may dwell in your hearts through faith; that you, being rooted and grounded in love, 
 
 ###### 18 
-may be able to comprehend with all the saints what _is_ the width and length and depth and height-- 
+may be able to comprehend with all the saints what is the width and length and depth and height-- 
 
 ###### 19 
 to know the love of Christ which passes knowledge; that you may be filled with all the fullness of God. 
@@ -74,4 +74,4 @@ to know the love of Christ which passes knowledge; that you may be filled with a
 Now to Him who is able to do exceedingly abundantly above all that we ask or think, according to the power that works in us, 
 
 ###### 21 
-to Him _be_ glory in the church by Christ Jesus to all generations, forever and ever. Amen.
+to Him be glory in the church by Christ Jesus to all generations, forever and ever. Amen.

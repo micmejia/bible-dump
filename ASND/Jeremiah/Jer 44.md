@@ -172,7 +172,7 @@ Palagi kong isinusugo ang mga lingkod ko na mga propeta para bigyan sila ng baba
 
 
 
-pero hindi sila nakinig o sumunod sa mga propeta_. Hindi sila tumalikod sa kasamaan nila o tumigil sa pagsusunog nila ng mga insenso para sa mga dios-diosan. 
+pero hindi sila nakinig o sumunod sa mga propeta. Hindi sila tumalikod sa kasamaan nila o tumigil sa pagsusunog nila ng mga insenso para sa mga dios-diosan. 
 
 
 
@@ -238,7 +238,7 @@ Kaya ibinuhos ko sa kanila ang tindi ng galit ko. Parang apoy ito na tumupok sa 
 
 
 
-"Kaya ako,_ ang Panginoong Dios na Makapangyarihan, ang Dios ng Israel ay nagtatanong, 'Bakit ninyo sinisira ang inyong sarili? Gusto ba ninyo na malipol ang mga tao sa Juda – ang mga lalaki, babae, bata at mga sanggol? 
+"Kaya ako, ang Panginoong Dios na Makapangyarihan, ang Dios ng Israel ay nagtatanong, 'Bakit ninyo sinisira ang inyong sarili? Gusto ba ninyo na malipol ang mga tao sa Juda – ang mga lalaki, babae, bata at mga sanggol? 
 
 
 
@@ -568,7 +568,7 @@ Napakaraming Judio ang nagtipon at nakinig kay Jeremias. Nakatira sila sa hilaga
 
 
 
-Gagawin namin ang lahat ng nais naming gawin: Magsusunog kami ng mga insenso sa aming diosa na_ 'Reyna ng Langit'! At maghahandog kami sa kanya ng mga handog na inumin gaya ng ginawa namin sa mga bayan ng Juda at lansangan ng Jerusalem. Ito rin ang ginawa ng aming mga ninuno at ng aming mga hari at mga pinuno. Mabuti ang kalagayan namin noon; marami kaming pagkain, at walang masamang nangyayari sa amin. 
+Gagawin namin ang lahat ng nais naming gawin: Magsusunog kami ng mga insenso sa aming diosa na 'Reyna ng Langit'! At maghahandog kami sa kanya ng mga handog na inumin gaya ng ginawa namin sa mga bayan ng Juda at lansangan ng Jerusalem. Ito rin ang ginawa ng aming mga ninuno at ng aming mga hari at mga pinuno. Mabuti ang kalagayan namin noon; marami kaming pagkain, at walang masamang nangyayari sa amin. 
 
 
 
@@ -700,7 +700,7 @@ Kaya sinabi ni Jeremias ang ganito sa mga nangangatwiran sa kanya,
 
 
 
-"Akala ba ninyoʼy hindi alam ng Panginoon na kayo at ang inyong mga ninuno, ang inyong mga hari at mga pinuno, at ang lahat ng mamamayan ay nagsunog ng insenso sa mga dios-diosan_ sa mga bayan ng Juda at sa mga lansangan ng Jerusalem? 
+"Akala ba ninyoʼy hindi alam ng Panginoon na kayo at ang inyong mga ninuno, ang inyong mga hari at mga pinuno, at ang lahat ng mamamayan ay nagsunog ng insenso sa mga dios-diosan sa mga bayan ng Juda at sa mga lansangan ng Jerusalem? 
 
 
 
@@ -766,7 +766,7 @@ At nang hindi na matiis ng Panginoon ang mga kasamaan at kasuklam-suklam ninyong
 
 
 
-Nangyari ang kapahamakang ito sa inyo dahil nagsunog kayo ng mga insenso sa mga dios-diosan_ at nagkasala sa Panginoon. Hindi kayo sumunod sa mga kautusan, mga tuntunin at mga katuruan niya." 
+Nangyari ang kapahamakang ito sa inyo dahil nagsunog kayo ng mga insenso sa mga dios-diosan at nagkasala sa Panginoon. Hindi kayo sumunod sa mga kautusan, mga tuntunin at mga katuruan niya." 
 
 
 
@@ -997,4 +997,4 @@ Ito ang tanda na parurusahan ko kayo sa lugar na ito para malaman ninyo na talag
 
 
 
-Ibibigay ko si Faraon Hofra na hari ng Egipto sa mga kaaway niya na nais pumatay sa kanya katulad ng ginawa ko kay Zedekia ng Juda sa kaaway niyang si Haring Nebucadnezar ng Babilonia na nais ding pumatay sa kanya. Ako,_ ang Panginoon, ang nagsasabi nito.' "
+Ibibigay ko si Faraon Hofra na hari ng Egipto sa mga kaaway niya na nais pumatay sa kanya katulad ng ginawa ko kay Zedekia ng Juda sa kaaway niyang si Haring Nebucadnezar ng Babilonia na nais ding pumatay sa kanya. Ako, ang Panginoon, ang nagsasabi nito.' "

@@ -22,7 +22,7 @@ He answered and said to them, "Why do you also transgress the commandment of God
 For God commanded, saying, 'Honor your father and your mother'; and, 'He who curses father or mother, let him be put to death.' 
 
 ###### 5 
-But you say, 'Whoever says to his father or mother, "Whatever profit you might have received from me _is_ a gift _to God_"-- 
+But you say, 'Whoever says to his father or mother, "Whatever profit you might have received from me is a gift to God"-- 
 
 ###### 6 
 then he need not honor his father or mother.' Thus you have made the commandment of God of no effect by your tradition. 
@@ -31,13 +31,13 @@ then he need not honor his father or mother.' Thus you have made the commandment
 Hypocrites! Well did Isaiah prophesy about you, saying: 
 
 ###### 8 
-'These people draw near to Me with their mouth, And honor Me with _their_ lips, But their heart is far from Me. 
+'These people draw near to Me with their mouth, And honor Me with their lips, But their heart is far from Me. 
 
 ###### 9 
-And in vain they worship Me, Teaching _as_ doctrines the commandments of men.' " 
+And in vain they worship Me, Teaching as doctrines the commandments of men.' " 
 
 ###### 10 
-When He had called the multitude to _Himself,_ He said to them, "Hear and understand: 
+When He had called the multitude to Himself, He said to them, "Hear and understand: 
 
 ###### 11 
 Not what goes into the mouth defiles a man; but what comes out of the mouth, this defiles a man." 
@@ -67,7 +67,7 @@ But those things which proceed out of the mouth come from the heart, and they de
 For out of the heart proceed evil thoughts, murders, adulteries, fornications, thefts, false witness, blasphemies. 
 
 ###### 20 
-These are _the things_ which defile a man, but to eat with unwashed hands does not defile a man." ## A Gentile Shows Her Faith 
+These are the things which defile a man, but to eat with unwashed hands does not defile a man." ## A Gentile Shows Her Faith 
 
 ###### 21 
 Then Jesus went out from there and departed to the region of Tyre and Sidon. 
@@ -85,13 +85,13 @@ But He answered and said, "I was not sent except to the lost sheep of the house 
 Then she came and worshiped Him, saying, "Lord, help me!" 
 
 ###### 26 
-But He answered and said, "It is not good to take the children's bread and throw _it_ to the little dogs." 
+But He answered and said, "It is not good to take the children's bread and throw it to the little dogs." 
 
 ###### 27 
 And she said, "Yes, Lord, yet even the little dogs eat the crumbs which fall from their masters' table." 
 
 ###### 28 
-Then Jesus answered and said to her, "O woman, great _is_ your faith! Let it be to you as you desire." And her daughter was healed from that very hour.
+Then Jesus answered and said to her, "O woman, great is your faith! Let it be to you as you desire." And her daughter was healed from that very hour.
 
 ## Jesus Heals Great Multitudes 
 
@@ -99,15 +99,15 @@ Then Jesus answered and said to her, "O woman, great _is_ your faith! Let it be 
 Jesus departed from there, skirted the Sea of Galilee, and went up on the mountain and sat down there. 
 
 ###### 30 
-Then great multitudes came to Him, having with them _the_ lame, blind, mute, maimed, and many others; and they laid them down at Jesus' feet, and He healed them. 
+Then great multitudes came to Him, having with them the lame, blind, mute, maimed, and many others; and they laid them down at Jesus' feet, and He healed them. 
 
 ###### 31 
-So the multitude marveled when they saw _the_ mute speaking, _the_ maimed made whole, _the_ lame walking, and _the_ blind seeing; and they glorified the God of Israel.
+So the multitude marveled when they saw the mute speaking, the maimed made whole, the lame walking, and the blind seeing; and they glorified the God of Israel.
 
 ## Feeding the Four Thousand 
 
 ###### 32 
-Now Jesus called His disciples to _Himself_ and said, "I have compassion on the multitude, because they have now continued with Me three days and have nothing to eat. And I do not want to send them away hungry, lest they faint on the way." 
+Now Jesus called His disciples to Himself and said, "I have compassion on the multitude, because they have now continued with Me three days and have nothing to eat. And I do not want to send them away hungry, lest they faint on the way." 
 
 ###### 33 
 Then His disciples said to Him, "Where could we get enough bread in the wilderness to fill such a great multitude?" 
@@ -119,7 +119,7 @@ Jesus said to them, "How many loaves do you have?" And they said, "Seven, and a 
 So He commanded the multitude to sit down on the ground. 
 
 ###### 36 
-And He took the seven loaves and the fish and gave thanks, broke _them_ and gave _them_ to His disciples; and the disciples _gave_ to the multitude. 
+And He took the seven loaves and the fish and gave thanks, broke them and gave them to His disciples; and the disciples gave to the multitude. 
 
 ###### 37 
 So they all ate and were filled, and they took up seven large baskets full of the fragments that were left. 

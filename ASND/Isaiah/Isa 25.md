@@ -271,7 +271,7 @@ At sa bundok ding ito, papawiin niya ang kalungkutan ng mga tao sa lahat ng bans
 
 
 
-Aalisin din ng Panginoong Dios ang kamatayan at papahirin niya ang mga luha ng lahat ng tao. Aalisin niya ang kahihiyan ng kanyang mga mamamayan sa buong mundo. Mangyayari nga ito_ dahil sinabi mismo ng Panginoon. 
+Aalisin din ng Panginoong Dios ang kamatayan at papahirin niya ang mga luha ng lahat ng tao. Aalisin niya ang kahihiyan ng kanyang mga mamamayan sa buong mundo. Mangyayari nga ito dahil sinabi mismo ng Panginoon. 
 
 
 
@@ -337,7 +337,7 @@ Kapag itoʼy nangyari na, sasabihin ng mga tao, "Siya ang ating Dios! Nagtiwala 
 
 
 
-Talagang tutulungan ng Panginoon ang Bundok ng Zion_, pero parurusahan niya ang Moab. Tatapakan niya ito na parang dayami sa tapunan ng dumi. 
+Talagang tutulungan ng Panginoon ang Bundok ng Zion, pero parurusahan niya ang Moab. Tatapakan niya ito na parang dayami sa tapunan ng dumi. 
 
 
 
@@ -370,7 +370,7 @@ Talagang tutulungan ng Panginoon ang Bundok ng Zion_, pero parurusahan niya ang 
 
 
 
-Pagsisikapan nilang makaligtas sa kalagayang iyon na parang taong kakampay-kampay sa tubig. Pero kahit na magaling silang lumangoy, ilulubog pa rin sila ng Panginoon_. Ibabagsak sila dahil sa kanilang pagmamataas. 
+Pagsisikapan nilang makaligtas sa kalagayang iyon na parang taong kakampay-kampay sa tubig. Pero kahit na magaling silang lumangoy, ilulubog pa rin sila ng Panginoon. Ibabagsak sila dahil sa kanilang pagmamataas. 
 
 
 

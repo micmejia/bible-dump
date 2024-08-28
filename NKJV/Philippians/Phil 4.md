@@ -17,13 +17,13 @@ Therefore, my beloved and longed-for brethren, my joy and crown, so stand fast i
 I implore Euodia and I implore Syntyche to be of the same mind in the Lord. 
 
 ###### 3 
-And I urge you also, true companion, help these women who labored with me in the gospel, with Clement also, and the rest of my fellow workers, whose names _are_ in the Book of Life. 
+And I urge you also, true companion, help these women who labored with me in the gospel, with Clement also, and the rest of my fellow workers, whose names are in the Book of Life. 
 
 ###### 4 
 Rejoice in the Lord always. Again I will say, rejoice! 
 
 ###### 5 
-Let your gentleness be known to all men. The Lord _is_ at hand. 
+Let your gentleness be known to all men. The Lord is at hand. 
 
 ###### 6 
 Be anxious for nothing, but in everything by prayer and supplication, with thanksgiving, let your requests be made known to God; 
@@ -34,7 +34,7 @@ and the peace of God, which surpasses all understanding, will guard your hearts 
 ## Meditate on These Things 
 
 ###### 8 
-Finally, brethren, whatever things are true, whatever things _are_ noble, whatever things _are_ just, whatever things _are_ pure, whatever things _are_ lovely, whatever things _are_ of good report, if _there is_ any virtue and if _there is_ anything praiseworthy--meditate on these things. 
+Finally, brethren, whatever things are true, whatever things are noble, whatever things are just, whatever things are pure, whatever things are lovely, whatever things are of good report, if there is any virtue and if there is anything praiseworthy--meditate on these things. 
 
 ###### 9 
 The things which you learned and received and heard and saw in me, these do, and the God of peace will be with you.
@@ -60,19 +60,19 @@ Nevertheless you have done well that you shared in my distress.
 Now you Philippians know also that in the beginning of the gospel, when I departed from Macedonia, no church shared with me concerning giving and receiving but you only. 
 
 ###### 16 
-For even in Thessalonica you sent _aid_ once and again for my necessities. 
+For even in Thessalonica you sent aid once and again for my necessities. 
 
 ###### 17 
 Not that I seek the gift, but I seek the fruit that abounds to your account. 
 
 ###### 18 
-Indeed I have all and abound. I am full, having received from Epaphroditus the things _sent_ from you, a sweet-smelling aroma, an acceptable sacrifice, well pleasing to God. 
+Indeed I have all and abound. I am full, having received from Epaphroditus the things sent from you, a sweet-smelling aroma, an acceptable sacrifice, well pleasing to God. 
 
 ###### 19 
 And my God shall supply all your need according to His riches in glory by Christ Jesus. 
 
 ###### 20 
-Now to our God and Father _be_ glory forever and ever. Amen.
+Now to our God and Father be glory forever and ever. Amen.
 
 ## Greeting and Blessing 
 

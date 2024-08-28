@@ -304,7 +304,7 @@ Sa isang ihip nʼyo lang, nahati ang tubig. Ang dumadaluyong na tubig ay nahati 
 
 
 
-Sinabi ng nagyayabang na_ kaaway, 'Hahabulin ko sila at huhulihin; paghahati-hatiin ko ang kanilang mga kayamanan at bubusugin ko nito ang aking sarili. Bubunutin ko ang aking espada at lilipulin sila.' 
+Sinabi ng nagyayabang na kaaway, 'Hahabulin ko sila at huhulihin; paghahati-hatiin ko ang kanilang mga kayamanan at bubusugin ko nito ang aking sarili. Bubunutin ko ang aking espada at lilipulin sila.' 
 
 
 
@@ -535,7 +535,7 @@ Ang mga pinuno ng Edom at Moab ay manginginig sa takot, at ang mga pinuno ng Can
 
 
 
-"Tunay na_ matatakot sila. Sa pamamagitan ng inyong kapangyarihan, silaʼy magiging parang bato na hindi nakakakilos, hanggang sa makadaan ang inyong mga mamamayan na inyong iniligtas, O Panginoon. 
+"Tunay na matatakot sila. Sa pamamagitan ng inyong kapangyarihan, silaʼy magiging parang bato na hindi nakakakilos, hanggang sa makadaan ang inyong mga mamamayan na inyong iniligtas, O Panginoon. 
 
 
 
@@ -568,7 +568,7 @@ Ang mga pinuno ng Edom at Moab ay manginginig sa takot, at ang mga pinuno ng Can
 
 
 
-Dadalhin nʼyo ang mga mamamayan ninyo sa inyong lupain_, at ilalagay nʼyo sila sa bundok na pagmamay-ari ninyo – ang lugar na ginawa nʼyong tahanan, O Panginoon, ang templong kayo mismo ang gumawa. 
+Dadalhin nʼyo ang mga mamamayan ninyo sa inyong lupain, at ilalagay nʼyo sila sa bundok na pagmamay-ari ninyo – ang lugar na ginawa nʼyong tahanan, O Panginoon, ang templong kayo mismo ang gumawa. 
 
 
 
@@ -766,7 +766,7 @@ At dinala ni Moises ang mga Israelita mula sa Dagat na Pula papunta sa ilang ng 
 
 
 
-Nang makarating sila sa Mara, nakakita sila ng tubig_, pero hindi nila ito mainom dahil mapait. (Ito ang dahilan kung bakit Mara ang pangalan ng lugar.) 
+Nang makarating sila sa Mara, nakakita sila ng tubig, pero hindi nila ito mainom dahil mapait. (Ito ang dahilan kung bakit Mara ang pangalan ng lugar.) 
 
 
 
@@ -832,7 +832,7 @@ Dahil dito, nagreklamo ang mga Israelita kay Moises, "Ano ang iinumin natin?"
 
 
 
-Kaya humingi ng tulong si Moises sa Panginoon, at ipinakita ng Panginoon sa kanya ang isang putol ng_ kahoy. Inihagis ito ni Moises sa tubig at nawala ang pait ng tubig. Doon ibinigay ng Panginoon ang tuntunin at kautusang ito para subukin ang katapatan nila sa kanya: 
+Kaya humingi ng tulong si Moises sa Panginoon, at ipinakita ng Panginoon sa kanya ang isang putol ng kahoy. Inihagis ito ni Moises sa tubig at nawala ang pait ng tubig. Doon ibinigay ng Panginoon ang tuntunin at kautusang ito para subukin ang katapatan nila sa kanya: 
 
 
 

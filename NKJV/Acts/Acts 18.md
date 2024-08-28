@@ -22,13 +22,13 @@ So, because he was of the same trade, he stayed with them and worked; for by occ
 And he reasoned in the synagogue every Sabbath, and persuaded both Jews and Greeks. 
 
 ###### 5 
-When Silas and Timothy had come from Macedonia, Paul was compelled by the Spirit, and testified to the Jews _that_ Jesus _is_ the Christ. 
+When Silas and Timothy had come from Macedonia, Paul was compelled by the Spirit, and testified to the Jews that Jesus is the Christ. 
 
 ###### 6 
-But when they opposed him and blasphemed, he shook _his_ garments and said to them, "Your blood _be_ upon your _own_ heads; I _am_ clean. From now on I will go to the Gentiles." 
+But when they opposed him and blasphemed, he shook his garments and said to them, "Your blood be upon your own heads; I am clean. From now on I will go to the Gentiles." 
 
 ###### 7 
-And he departed from there and entered the house of a certain _man_ named Justus, _one_ who worshiped God, whose house was next door to the synagogue. 
+And he departed from there and entered the house of a certain man named Justus, one who worshiped God, whose house was next door to the synagogue. 
 
 ###### 8 
 Then Crispus, the ruler of the synagogue, believed on the Lord with all his household. And many of the Corinthians, hearing, believed and were baptized. 
@@ -40,36 +40,36 @@ Now the Lord spoke to Paul in the night by a vision, "Do not be afraid, but spea
 for I am with you, and no one will attack you to hurt you; for I have many people in this city." 
 
 ###### 11 
-And he continued _there_ a year and six months, teaching the word of God among them. 
+And he continued there a year and six months, teaching the word of God among them. 
 
 ###### 12 
 When Gallio was proconsul of Achaia, the Jews with one accord rose up against Paul and brought him to the judgment seat, 
 
 ###### 13 
-saying, "This _fellow_ persuades men to worship God contrary to the law." 
+saying, "This fellow persuades men to worship God contrary to the law." 
 
 ###### 14 
-And when Paul was about to open _his_ mouth, Gallio said to the Jews, "If it were a matter of wrongdoing or wicked crimes, O Jews, there would be reason why I should bear with you. 
+And when Paul was about to open his mouth, Gallio said to the Jews, "If it were a matter of wrongdoing or wicked crimes, O Jews, there would be reason why I should bear with you. 
 
 ###### 15 
-But if it is a question of words and names and your own law, look _to it_ yourselves; for I do not want to be a judge of such _matters._" 
+But if it is a question of words and names and your own law, look to it yourselves; for I do not want to be a judge of such matters." 
 
 ###### 16 
 And he drove them from the judgment seat. 
 
 ###### 17 
-Then all the Greeks took Sosthenes, the ruler of the synagogue, and beat _him_ before the judgment seat. But Gallio took no notice of these things.
+Then all the Greeks took Sosthenes, the ruler of the synagogue, and beat him before the judgment seat. But Gallio took no notice of these things.
 
 ## Paul Returns to Antioch 
 
 ###### 18 
-So Paul still remained a good while. Then he took leave of the brethren and sailed for Syria, and Priscilla and Aquila _were_ with him. He had _his_ hair cut off at Cenchrea, for he had taken a vow. 
+So Paul still remained a good while. Then he took leave of the brethren and sailed for Syria, and Priscilla and Aquila were with him. He had his hair cut off at Cenchrea, for he had taken a vow. 
 
 ###### 19 
 And he came to Ephesus, and left them there; but he himself entered the synagogue and reasoned with the Jews. 
 
 ###### 20 
-When they asked _him_ to stay a longer time with them, he did not consent, 
+When they asked him to stay a longer time with them, he did not consent, 
 
 ###### 21 
 but took leave of them, saying, "I must by all means keep this coming feast in Jerusalem; but I will return again to you, God willing." And he sailed from Ephesus. 
@@ -78,12 +78,12 @@ but took leave of them, saying, "I must by all means keep this coming feast in J
 And when he had landed at Caesarea, and gone up and greeted the church, he went down to Antioch. 
 
 ###### 23 
-After he had spent some time _there,_ he departed and went over the region of Galatia and Phrygia in order, strengthening all the disciples.
+After he had spent some time there, he departed and went over the region of Galatia and Phrygia in order, strengthening all the disciples.
 
 ## Ministry of Apollos 
 
 ###### 24 
-Now a certain Jew named Apollos, born at Alexandria, an eloquent man _and_ mighty in the Scriptures, came to Ephesus. 
+Now a certain Jew named Apollos, born at Alexandria, an eloquent man and mighty in the Scriptures, came to Ephesus. 
 
 ###### 25 
 This man had been instructed in the way of the Lord; and being fervent in spirit, he spoke and taught accurately the things of the Lord, though he knew only the baptism of John. 

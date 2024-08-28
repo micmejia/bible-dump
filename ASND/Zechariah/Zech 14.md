@@ -39,7 +39,7 @@ up: ['Zechariah']
 
 
 
-Darating ang araw na hahatol ang Panginoon. Paghahatian ng mga kalaban_ ang mga ari-ariang sinamsam nila sa inyo na mga taga-Jerusalem_ habang nakatingin kayo. 
+Darating ang araw na hahatol ang Panginoon. Paghahatian ng mga kalaban ang mga ari-ariang sinamsam nila sa inyo na mga taga-Jerusalem habang nakatingin kayo. 
 
 
 
@@ -171,7 +171,7 @@ Sa araw na iyon, tatayo siya sa Bundok ng mga Olibo, sa silangan ng Jerusalem. M
 
 
 
-Dito kayo dadaan mga taga-Jerusalem_ sa inyong pagtakas, dahil ang lambak na ito ay aabot hanggang sa Azel. Tatakas kayo katulad ng ginawa ng inyong mga ninuno noong lumindol sa panahon ni haring Uzia ng Juda. At darating ang Panginoon kong Dios kasama ang lahat niyang mga anghel. 
+Dito kayo dadaan mga taga-Jerusalem sa inyong pagtakas, dahil ang lambak na ito ay aabot hanggang sa Azel. Tatakas kayo katulad ng ginawa ng inyong mga ninuno noong lumindol sa panahon ni haring Uzia ng Juda. At darating ang Panginoon kong Dios kasama ang lahat niyang mga anghel. 
 
 
 
@@ -303,7 +303,7 @@ Sa araw na iyon, dadaloy ang sariwang tubig mula sa Jerusalem. Ang kalahati nito
 
 
 
-Ang Panginoon ang maghahari sa buong mundo. Siya lamang ang kikilalaning Dios at wala nang iba. 10-11Gagawing kapatagan ang buong lupain mula sa Geba sa hilaga_ hanggang sa Rimon sa timog ng Jerusalem. Kaya mananatiling mataas ang Jerusalem sa kinaroroonan nito. At titirhan ito mula sa Pintuan ni Benjamin hanggang sa lugar na kinaroroonan ng Unang Pintuan, at hanggang sa Sulok na Pintuan; at mula sa Tore ni Hananel hanggang sa pisaan ng ubas ng hari. Ang Jerusalem ay hindi na muling wawasakin, at ang mga mamamayan nito ay mamumuhay nang ligtas sa panganib. 
+Ang Panginoon ang maghahari sa buong mundo. Siya lamang ang kikilalaning Dios at wala nang iba. 10-11Gagawing kapatagan ang buong lupain mula sa Geba sa hilaga hanggang sa Rimon sa timog ng Jerusalem. Kaya mananatiling mataas ang Jerusalem sa kinaroroonan nito. At titirhan ito mula sa Pintuan ni Benjamin hanggang sa lugar na kinaroroonan ng Unang Pintuan, at hanggang sa Sulok na Pintuan; at mula sa Tore ni Hananel hanggang sa pisaan ng ubas ng hari. Ang Jerusalem ay hindi na muling wawasakin, at ang mga mamamayan nito ay mamumuhay nang ligtas sa panganib. 
 
 
 
@@ -435,7 +435,7 @@ Ang mga taong hindi pupunta sa Jerusalem upang sumamba sa Hari, ang Panginoong M
 
 
 
-Ang mga taga-Egipto na hindi pupunta sa Jerusalem_ ay padadalhan ng Panginoon ng salot na katulad ng salot na kanyang ipapadala sa mga bansang hindi pupunta para ipagdiwang ang Pista ng Pagtatayo ng mga Kubol. 
+Ang mga taga-Egipto na hindi pupunta sa Jerusalem ay padadalhan ng Panginoon ng salot na katulad ng salot na kanyang ipapadala sa mga bansang hindi pupunta para ipagdiwang ang Pista ng Pagtatayo ng mga Kubol. 
 
 
 
@@ -468,7 +468,7 @@ Ang mga taga-Egipto na hindi pupunta sa Jerusalem_ ay padadalhan ng Panginoon ng
 
 
 
-Iyan ang parusa sa Egipto at sa lahat ng bansang hindi pupunta sa Jerusalem_ para ipagdiwang ang Pista ng Pagtatayo ng mga Kubol. 
+Iyan ang parusa sa Egipto at sa lahat ng bansang hindi pupunta sa Jerusalem para ipagdiwang ang Pista ng Pagtatayo ng mga Kubol. 
 
 
 

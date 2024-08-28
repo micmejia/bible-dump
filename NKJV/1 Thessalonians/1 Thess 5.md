@@ -24,13 +24,13 @@ But you, brethren, are not in darkness, so that this Day should overtake you as 
 You are all sons of light and sons of the day. We are not of the night nor of darkness. 
 
 ###### 6 
-Therefore let us not sleep, as others _do,_ but let us watch and be sober. 
+Therefore let us not sleep, as others do, but let us watch and be sober. 
 
 ###### 7 
 For those who sleep, sleep at night, and those who get drunk are drunk at night. 
 
 ###### 8 
-But let us who are of the day be sober, putting on the breastplate of faith and love, and _as_ a helmet the hope of salvation. 
+But let us who are of the day be sober, putting on the breastplate of faith and love, and as a helmet the hope of salvation. 
 
 ###### 9 
 For God did not appoint us to wrath, but to obtain salvation through our Lord Jesus Christ, 
@@ -82,7 +82,7 @@ Abstain from every form of evil.
 Now may the God of peace Himself sanctify you completely; and may your whole spirit, soul, and body be preserved blameless at the coming of our Lord Jesus Christ. 
 
 ###### 24 
-He who calls you _is_ faithful, who also will do _it._ 
+He who calls you is faithful, who also will do it. 
 
 ###### 25 
 Brethren, pray for us. 
@@ -94,4 +94,4 @@ Greet all the brethren with a holy kiss.
 I charge you by the Lord that this epistle be read to all the holy brethren. 
 
 ###### 28 
-The grace of our Lord Jesus Christ _be_ with you. Amen.
+The grace of our Lord Jesus Christ be with you. Amen.

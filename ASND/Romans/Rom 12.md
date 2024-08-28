@@ -73,7 +73,7 @@ Kaya nga mga kapatid, nakikiusap ako sa inyo alang-alang sa maraming pagkakataon
 
 
 
-Huwag ninyong tularan ang mga pag-uugali ng mga tao sa mundong ito. Hayaan ninyong baguhin kayo ng Dios_ sa pamamagitan ng pagbabago ng inyong mga isip, para malaman ninyo ang kalooban ng Dios – kung ano ang mabuti, ganap, at kalugod-lugod sa kanyang paningin. 
+Huwag ninyong tularan ang mga pag-uugali ng mga tao sa mundong ito. Hayaan ninyong baguhin kayo ng Dios sa pamamagitan ng pagbabago ng inyong mga isip, para malaman ninyo ang kalooban ng Dios – kung ano ang mabuti, ganap, at kalugod-lugod sa kanyang paningin. 
 
 
 
@@ -238,7 +238,7 @@ Ibaʼt iba ang kakayahang ibinigay sa atin ng Dios ayon sa kanyang biyaya, kaya 
 
 
 
-Kung ang kaloob niya ay paglilingkod sa kapwa_, maglingkod siya. Kung pagtuturo, magturo siya; 
+Kung ang kaloob niya ay paglilingkod sa kapwa, maglingkod siya. Kung pagtuturo, magturo siya; 
 
 
 
@@ -271,7 +271,7 @@ Kung ang kaloob niya ay paglilingkod sa kapwa_, maglingkod siya. Kung pagtuturo,
 
 
 
-kung pagpapayo, magpayo siya nang mabuti_; kung pagbibigay, magbigay siya nang maluwag; kung pamumuno, mamuno siya nang buong sikap; at kung pagtulong sa nangangailangan, tumulong siya nang may kagalakan. 
+kung pagpapayo, magpayo siya nang mabuti; kung pagbibigay, magbigay siya nang maluwag; kung pamumuno, mamuno siya nang buong sikap; at kung pagtulong sa nangangailangan, tumulong siya nang may kagalakan. 
 
 
 
@@ -337,7 +337,7 @@ Magmahalan kayo nang tapat. Iwasan ninyo ang masama at laging gawin ang mabuti.
 
 
 
-Magmahalan kayo bilang magkakapatid kay Cristo_ at maging magalang sa isaʼt isa. 
+Magmahalan kayo bilang magkakapatid kay Cristo at maging magalang sa isaʼt isa. 
 
 
 
@@ -436,7 +436,7 @@ At dahil may pag-asa kayo sa buhay, magalak kayo. Magtiis kayo sa mga paghihirap
 
 
 
-Tulungan ninyo ang mga pinabanal ng Dios_ na nangangailangan, at patuluyin ninyo sa inyong mga tahanan ang walang matutuluyan. 
+Tulungan ninyo ang mga pinabanal ng Dios na nangangailangan, at patuluyin ninyo sa inyong mga tahanan ang walang matutuluyan. 
 
 
 
@@ -634,7 +634,7 @@ Hanggaʼt maaari, mamuhay kayo nang mapayapa sa lahat ng tao.
 
 
 
-Mga minamahal, huwag kayong maghihiganti. Ipaubaya ninyo iyan sa Dios_. Sapagkat sinabi ng Panginoon sa Kasulatan, "Ako ang maghihiganti; ako ang magpaparusa." 
+Mga minamahal, huwag kayong maghihiganti. Ipaubaya ninyo iyan sa Dios. Sapagkat sinabi ng Panginoon sa Kasulatan, "Ako ang maghihiganti; ako ang magpaparusa." 
 
 
 

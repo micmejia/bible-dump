@@ -273,7 +273,7 @@ Dadalhin ng mga taga-Kedar at mga taga-Nebayot ang kanilang mga tupa sa iyo, at 
 
 
 
-Sinasabi ng Panginoon sa Jerusalem:_ "Itatayo ng mga dayuhan ang iyong mga pader, at ang kanilang mga hari ay maglilingkod sa iyo. Kahit na pinarurusahan kita dahil sa galit ko sa iyo, kaaawaan kita dahil akoʼy mabuti. 
+Sinasabi ng Panginoon sa Jerusalem: "Itatayo ng mga dayuhan ang iyong mga pader, at ang kanilang mga hari ay maglilingkod sa iyo. Kahit na pinarurusahan kita dahil sa galit ko sa iyo, kaaawaan kita dahil akoʼy mabuti. 
 
 
 
@@ -405,7 +405,7 @@ Ang kayamanan ng Lebanon ay magiging iyo – ang kanilang mga puno ng pino, eneb
 
 
 
-Ang mga anak ng mga umapi sa iyo ay lalapit sa iyo at magbibigay galang. Luluhod sa paanan mo ang mga humamak sa iyo, at ikaw ay tatawagin nilang, 'Lungsod ng Panginoon' o 'Zion, ang Lungsod_ ng Banal na Dios_ ng Israel.' 
+Ang mga anak ng mga umapi sa iyo ay lalapit sa iyo at magbibigay galang. Luluhod sa paanan mo ang mga humamak sa iyo, at ikaw ay tatawagin nilang, 'Lungsod ng Panginoon' o 'Zion, ang Lungsod ng Banal na Dios ng Israel.' 
 
 
 
@@ -570,7 +570,7 @@ Wala nang mababalitaang pagmamalupit sa iyong lupain. Wala na ring kapahamakan n
 
 
 
-"Hindi na ang araw ang magiging liwanag mo sa umaga at hindi na ang buwan ang tatanglaw sa iyo sa gabi, dahil ako,_ ang Panginoon, ang iyong magiging liwanag magpakailanman. Ako, na_ iyong Dios, ang iyong tanglaw. 
+"Hindi na ang araw ang magiging liwanag mo sa umaga at hindi na ang buwan ang tatanglaw sa iyo sa gabi, dahil ako, ang Panginoon, ang iyong magiging liwanag magpakailanman. Ako, na iyong Dios, ang iyong tanglaw. 
 
 
 
@@ -636,7 +636,7 @@ Ako ang iyong magiging araw at buwan na hindi na lulubog kahit kailan. At mawawa
 
 
 
-Ang lahat mong mamamayan ay magiging matuwid, at sila na ang magmamay-ari ng lupain ng Israel_ magpakailanman. Ginawa ko silang parang halaman na itinanim ko para sa aking karangalan. 
+Ang lahat mong mamamayan ay magiging matuwid, at sila na ang magmamay-ari ng lupain ng Israel magpakailanman. Ginawa ko silang parang halaman na itinanim ko para sa aking karangalan. 
 
 
 

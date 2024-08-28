@@ -174,7 +174,7 @@ Nagpasabi na si Jetro kay Moises na darating siya kasama si Zipora at ang dalawa
 
 
 
-Kaya sinalubong ni Moises ang kanyang biyenan, at yumukod siya at humalik sa kanya bilang paggalang_. Nagkamustahan sila at pagkatapos, pumasok sa tolda. 
+Kaya sinalubong ni Moises ang kanyang biyenan, at yumukod siya at humalik sa kanya bilang paggalang. Nagkamustahan sila at pagkatapos, pumasok sa tolda. 
 
 
 
@@ -306,7 +306,7 @@ Sinabi ni Jetro, "Purihin ang Panginoon na nagligtas sa inyo sa kamay ng mga Egi
 
 
 
-Nalalaman ko ngayon na mas makapangyarihan ang Panginoon sa lahat ng dios, dahil iniligtas niya ang mga Israelita sa mga Egipciong_ nagmamaltrato sa kanila." 
+Nalalaman ko ngayon na mas makapangyarihan ang Panginoon sa lahat ng dios, dahil iniligtas niya ang mga Israelita sa mga Egipciong nagmamaltrato sa kanila." 
 
 
 
@@ -605,7 +605,7 @@ Makinig ka sa akin at papayuhan kita, at sanaʼy samahan ka ng Dios. Ipagpatuloy
 
 
 
-Ipagpatuloy mo rin ang pagtuturo mo sa kanila ng mga tuntunin at utos ng Dios_. Turuan mo sila kung paano mamuhay at kung ano ang gagawin nila. 
+Ipagpatuloy mo rin ang pagtuturo mo sa kanila ng mga tuntunin at utos ng Dios. Turuan mo sila kung paano mamuhay at kung ano ang gagawin nila. 
 
 
 
@@ -638,7 +638,7 @@ Ipagpatuloy mo rin ang pagtuturo mo sa kanila ng mga tuntunin at utos ng Dios_. 
 
 
 
-Pero pumili ka ng mga taong tutulong sa iyo_. Dapat mayroon silang kakayahan sa paghuhukom_, may takot sa Dios, mapagkakatiwalaan, at hindi tumatanggap ng suhol. Gawin mo silang mga hukom ng grupo na binubuo ng 1,000, 100, 50 at 10 tao. 
+Pero pumili ka ng mga taong tutulong sa iyo. Dapat mayroon silang kakayahan sa paghuhukom, may takot sa Dios, mapagkakatiwalaan, at hindi tumatanggap ng suhol. Gawin mo silang mga hukom ng grupo na binubuo ng 1,000, 100, 50 at 10 tao. 
 
 
 
@@ -770,7 +770,7 @@ Sinunod ni Moises ang ipinayo sa kanya ng kanyang biyenan.
 
 
 
-Pumili siya sa mga Israelita ng mga taong may kakayahan sa paghuhukom_, at ginawa niya silang mga hukom ng grupo na binubuo ng 1,000, 100, 50 at 10 tao. 
+Pumili siya sa mga Israelita ng mga taong may kakayahan sa paghuhukom, at ginawa niya silang mga hukom ng grupo na binubuo ng 1,000, 100, 50 at 10 tao. 
 
 
 

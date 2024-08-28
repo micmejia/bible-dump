@@ -471,7 +471,7 @@ Pero pwede ninyong kainin ang mga insektong itinuturing na malinis.
 
 
 
-"Huwag ninyong kakainin ang anumang hayop na patay na. Maaari ninyo itong ipagbili sa mga dayuhan o ibigay sa mga dayuhang naninirahang sa bayan nʼyo, at kakainin nila ito. Pero huwag kayong kakain nito,_ dahil ibinukod kayo bilang mamamayan ng Panginoon na inyong Dios. "Huwag ninyong lulutuin ang batang kambing sa gatas ng kanyang ina.
+"Huwag ninyong kakainin ang anumang hayop na patay na. Maaari ninyo itong ipagbili sa mga dayuhan o ibigay sa mga dayuhang naninirahang sa bayan nʼyo, at kakainin nila ito. Pero huwag kayong kakain nito, dahil ibinukod kayo bilang mamamayan ng Panginoon na inyong Dios. "Huwag ninyong lulutuin ang batang kambing sa gatas ng kanyang ina.
 
 ## Ang Ikapu 
 
@@ -737,4 +737,4 @@ At huwag ninyong kalilimutan ang mga Levita na naninirahan sa bayan ninyo, dahil
 
 
 
-Ibigay ninyo ito sa mga Levita na walang lupang minana, sa mga dayuhan na naninirahang kasama ninyo_, sa mga ulila at sa mga biyuda sa bayan ninyo para makakain din sila at mabusog. Kung gagawin ninyo ito_, pagpapalain kayo ng Panginoon na inyong Dios sa lahat ng ginagawa ninyo.
+Ibigay ninyo ito sa mga Levita na walang lupang minana, sa mga dayuhan na naninirahang kasama ninyo, sa mga ulila at sa mga biyuda sa bayan ninyo para makakain din sila at mabusog. Kung gagawin ninyo ito, pagpapalain kayo ng Panginoon na inyong Dios sa lahat ng ginagawa ninyo.

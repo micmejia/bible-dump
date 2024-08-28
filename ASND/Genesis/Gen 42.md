@@ -205,9 +205,9 @@ Kaya pumunta ang mga anak ni Jacob sa Egipto kasama ng mga taga-ibang lugar para
 
 
 
-Bilang gobernador ng Egipto, tungkulin ni Jose na pagbilhan ng pagkain ang lahat ng tao. Kaya pagdating ng mga kapatid niya, yumukod sila kay Jose bilang paggalang sa kanya_.
+Bilang gobernador ng Egipto, tungkulin ni Jose na pagbilhan ng pagkain ang lahat ng tao. Kaya pagdating ng mga kapatid niya, yumukod sila kay Jose bilang paggalang sa kanya.
 
-###### 7-9 Pagkakita ni Jose sa kanila, nakilala niya agad ang mga ito pero siyaʼy hindi nila nakilala. Hindi lang siya nagpahalata na siya si Jose. Nagtanong siya sa kanila kung taga-saan sila. Sumagot sila, "Taga-Canaan po kami, at pumunta po kami rito para bumili ng pagkain." Naalala agad ni Jose ang panaginip niya tungkol sa kanila na naging dahilan kung bakit sila nagalit sa kanya_. Kaya nagsalita siya ng masasakit na salita sa kanila, "Mga espiya kayo! Pumunta kayo rito para tingnan kung ano ang kahinaan ng bansa namin." 
+###### 7-9 Pagkakita ni Jose sa kanila, nakilala niya agad ang mga ito pero siyaʼy hindi nila nakilala. Hindi lang siya nagpahalata na siya si Jose. Nagtanong siya sa kanila kung taga-saan sila. Sumagot sila, "Taga-Canaan po kami, at pumunta po kami rito para bumili ng pagkain." Naalala agad ni Jose ang panaginip niya tungkol sa kanila na naging dahilan kung bakit sila nagalit sa kanya. Kaya nagsalita siya ng masasakit na salita sa kanila, "Mga espiya kayo! Pumunta kayo rito para tingnan kung ano ang kahinaan ng bansa namin." 
 
 
 
@@ -603,7 +603,7 @@ Pagkatapos, dalhin nʼyo rito ang bunsong kapatid ninyo para mapatunayan ko na h
 
 
 
-Habang hindi pa sila nakakaalis,_ sinabi nila sa isaʼt isa, "Mananagot tayo sa ginawa natin sa kapatid natin. Nakita natin ang paghihirap niya nang nagmamakaawa siya sa atin, pero hindi natin siya kinaawaan. Kaya ito ang dahilan kung bakit dumating ang mga paghihirap na ito sa atin." 
+Habang hindi pa sila nakakaalis, sinabi nila sa isaʼt isa, "Mananagot tayo sa ginawa natin sa kapatid natin. Nakita natin ang paghihirap niya nang nagmamakaawa siya sa atin, pero hindi natin siya kinaawaan. Kaya ito ang dahilan kung bakit dumating ang mga paghihirap na ito sa atin." 
 
 
 
@@ -968,7 +968,7 @@ Pero sinagot po namin siya na hindi kami espiya at nagsasabi kami ng totoo.
 
 
 
-Sinabi rin po namin na_ 12 kaming magkakapatid at isa lang ang aming ama. Sinabi rin namin na_ ang isa naming kapatid ay patay na at ang aming bunsong kapatid ay kasama po ninyo rito sa Canaan. 
+Sinabi rin po namin na 12 kaming magkakapatid at isa lang ang aming ama. Sinabi rin namin na ang isa naming kapatid ay patay na at ang aming bunsong kapatid ay kasama po ninyo rito sa Canaan. 
 
 
 
@@ -1034,7 +1034,7 @@ Sinabi rin po namin na_ 12 kaming magkakapatid at isa lang ang aming ama. Sinabi
 
 
 
-Pero dalhin ninyo rito ang bunsong kapatid ninyo para malaman ko na mga tapat kayong tao at hindi kayo espiya. Pagkatapos, ibabalik ko sa inyo ang kapatid ninyong si Simeon_, at papayagan ko kayo na pumarooʼt parito sa Egipto.' " 
+Pero dalhin ninyo rito ang bunsong kapatid ninyo para malaman ko na mga tapat kayong tao at hindi kayo espiya. Pagkatapos, ibabalik ko sa inyo ang kapatid ninyong si Simeon, at papayagan ko kayo na pumarooʼt parito sa Egipto.' " 
 
 
 

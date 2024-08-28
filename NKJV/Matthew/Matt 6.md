@@ -27,10 +27,10 @@ that your charitable deed may be in secret; and your Father who sees in secret w
 "And when you pray, you shall not be like the hypocrites. For they love to pray standing in the synagogues and on the corners of the streets, that they may be seen by men. Assuredly, I say to you, they have their reward. 
 
 ###### 6 
-But you, when you pray, go into your room, and when you have shut your door, pray to your Father who _is_ in the secret _place;_ and your Father who sees in secret will reward you openly. 
+But you, when you pray, go into your room, and when you have shut your door, pray to your Father who is in the secret place; and your Father who sees in secret will reward you openly. 
 
 ###### 7 
-And when you pray, do not use vain repetitions as the heathen _do._ For they think that they will be heard for their many words. 
+And when you pray, do not use vain repetitions as the heathen do. For they think that they will be heard for their many words. 
 
 ###### 8 
 "Therefore do not be like them. For your Father knows the things you have need of before you ask Him. 
@@ -39,7 +39,7 @@ And when you pray, do not use vain repetitions as the heathen _do._ For they thi
 In this manner, therefore, pray: Our Father in heaven, Hallowed be Your name. 
 
 ###### 10 
-Your kingdom come. Your will be done On earth as _it is_ in heaven. 
+Your kingdom come. Your will be done On earth as it is in heaven. 
 
 ###### 11 
 Give us this day our daily bread. 
@@ -65,7 +65,7 @@ But if you do not forgive men their trespasses, neither will your Father forgive
 But you, when you fast, anoint your head and wash your face, 
 
 ###### 18 
-so that you do not appear to men to be fasting, but to your Father who _is_ in the secret _place;_ and your Father who sees in secret will reward you openly.
+so that you do not appear to men to be fasting, but to your Father who is in the secret place; and your Father who sees in secret will reward you openly.
 
 ## Lay Up Treasures in Heaven 
 
@@ -84,7 +84,7 @@ For where your treasure is, there your heart will be also.
 "The lamp of the body is the eye. If therefore your eye is good, your whole body will be full of light. 
 
 ###### 23 
-But if your eye is bad, your whole body will be full of darkness. If therefore the light that is in you is darkness, how great _is_ that darkness! ## You Cannot Serve God and Riches 
+But if your eye is bad, your whole body will be full of darkness. If therefore the light that is in you is darkness, how great is that darkness! ## You Cannot Serve God and Riches 
 
 ###### 24 
 "No one can serve two masters; for either he will hate the one and love the other, or else he will be loyal to the one and despise the other. You cannot serve God and mammon.
@@ -107,7 +107,7 @@ Which of you by worrying can add one cubit to his stature?
 and yet I say to you that even Solomon in all his glory was not arrayed like one of these. 
 
 ###### 30 
-Now if God so clothes the grass of the field, which today is, and tomorrow is thrown into the oven, _will He_ not much more _clothe_ you, O you of little faith? 
+Now if God so clothes the grass of the field, which today is, and tomorrow is thrown into the oven, will He not much more clothe you, O you of little faith? 
 
 ###### 31 
 "Therefore do not worry, saying, 'What shall we eat?' or 'What shall we drink?' or 'What shall we wear?' 
@@ -119,4 +119,4 @@ For after all these things the Gentiles seek. For your heavenly Father knows tha
 But seek first the kingdom of God and His righteousness, and all these things shall be added to you. 
 
 ###### 34 
-Therefore do not worry about tomorrow, for tomorrow will worry about its own things. Sufficient for the day _is_ its own trouble.
+Therefore do not worry about tomorrow, for tomorrow will worry about its own things. Sufficient for the day is its own trouble.

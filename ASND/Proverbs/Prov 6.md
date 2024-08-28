@@ -271,7 +271,7 @@ Kahit na walang namumuno at nag-uutos sa kanila,
 
 
 
-nag-iipon sila ng pagkain kapag tag-araw at panahon ng anihan, upang may makain sila pagdating ng tag-ulan_. 
+nag-iipon sila ng pagkain kapag tag-araw at panahon ng anihan, upang may makain sila pagdating ng tag-ulan. 
 
 
 
@@ -436,7 +436,7 @@ Ang taong walang kwenta at masama ay puro kasinungalingan ang sinasabi.
 
 
 
-Kumikindat at sumisenyas siya gamit ang kanyang mga kamay at paa para makumbinsi ang mga tao sa mga sinasabi niya_. 
+Kumikindat at sumisenyas siya gamit ang kanyang mga kamay at paa para makumbinsi ang mga tao sa mga sinasabi niya. 
 
 
 
@@ -997,7 +997,7 @@ Kaya kapag sumiping ka sa asawa ng iba, magdurusa ka.
 
 
 
-Minsan_ nauunawaan ng mga tao ang taong nagnakaw dahil sa gutom. 
+Minsan nauunawaan ng mga tao ang taong nagnakaw dahil sa gutom. 
 
 
 
@@ -1030,7 +1030,7 @@ Minsan_ nauunawaan ng mga tao ang taong nagnakaw dahil sa gutom.
 
 
 
-Ngunit pinagbabayad naman_ siya ng pitong beses ng kanyang ninakaw kapag nahuli, kahit_ maubos pa ang lahat ng pag-aari niya. 
+Ngunit pinagbabayad naman siya ng pitong beses ng kanyang ninakaw kapag nahuli, kahit maubos pa ang lahat ng pag-aari niya. 
 
 
 

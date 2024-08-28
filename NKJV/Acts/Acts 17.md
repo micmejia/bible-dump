@@ -16,7 +16,7 @@ Now when they had passed through Amphipolis and Apollonia, they came to Thessalo
 Then Paul, as his custom was, went in to them, and for three Sabbaths reasoned with them from the Scriptures, 
 
 ###### 3 
-explaining and demonstrating that the Christ had to suffer and rise again from the dead, and _saying,_ "This Jesus whom I preach to you is the Christ." 
+explaining and demonstrating that the Christ had to suffer and rise again from the dead, and saying, "This Jesus whom I preach to you is the Christ." 
 
 ###### 4 
 And some of them were persuaded; and a great multitude of the devout Greeks, and not a few of the leading women, joined Paul and Silas.
@@ -44,7 +44,7 @@ So when they had taken security from Jason and the rest, they let them go.
 Then the brethren immediately sent Paul and Silas away by night to Berea. When they arrived, they went into the synagogue of the Jews. 
 
 ###### 11 
-These were more fair-minded than those in Thessalonica, in that they received the word with all readiness, and searched the Scriptures daily _to find out_ whether these things were so. 
+These were more fair-minded than those in Thessalonica, in that they received the word with all readiness, and searched the Scriptures daily to find out whether these things were so. 
 
 ###### 12 
 Therefore many of them believed, and also not a few of the Greeks, prominent women as well as men. 
@@ -64,13 +64,13 @@ So those who conducted Paul brought him to Athens; and receiving a command for S
 Now while Paul waited for them at Athens, his spirit was provoked within him when he saw that the city was given over to idols. 
 
 ###### 17 
-Therefore he reasoned in the synagogue with the Jews and with the _Gentile_ worshipers, and in the marketplace daily with those who happened to be there. 
+Therefore he reasoned in the synagogue with the Jews and with the Gentile worshipers, and in the marketplace daily with those who happened to be there. 
 
 ###### 18 
 Then certain Epicurean and Stoic philosophers encountered him. And some said, "What does this babbler want to say?" Others said, "He seems to be a proclaimer of foreign gods," because he preached to them Jesus and the resurrection. 
 
 ###### 19 
-And they took him and brought him to the Areopagus, saying, "May we know what this new doctrine _is_ of which you speak? 
+And they took him and brought him to the Areopagus, saying, "May we know what this new doctrine is of which you speak? 
 
 ###### 20 
 For you are bringing some strange things to our ears. Therefore we want to know what these things mean." 
@@ -111,7 +111,7 @@ Truly, these times of ignorance God overlooked, but now commands all men everywh
 because He has appointed a day on which He will judge the world in righteousness by the Man whom He has ordained. He has given assurance of this to all by raising Him from the dead." 
 
 ###### 32 
-And when they heard of the resurrection of the dead, some mocked, while others said, "We will hear you again on this _matter._" 
+And when they heard of the resurrection of the dead, some mocked, while others said, "We will hear you again on this matter." 
 
 ###### 33 
 So Paul departed from among them. 

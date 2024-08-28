@@ -40,7 +40,7 @@ next: ['Jer 6']
 
 
 
-Sinabi ng Panginoon,_ "Mga taga-Jerusalem, pumunta kayo sa mga lansangan nʼyo! Tingnan nʼyo ang mga plasa ninyo! Kung may makikita kayong matuwid at tapat, patatawarin ko ang lungsod ninyo. 
+Sinabi ng Panginoon, "Mga taga-Jerusalem, pumunta kayo sa mga lansangan nʼyo! Tingnan nʼyo ang mga plasa ninyo! Kung may makikita kayong matuwid at tapat, patatawarin ko ang lungsod ninyo. 
 
 
 
@@ -106,7 +106,7 @@ Kahit ginagamit nʼyo ang pangalan ko sa pagsumpa nʼyo, nagsisinungaling pa rin
 
 
 
-Pagkatapos, sinabi ko,_ "Panginoon, naghahanap po kayo ng taong tapat. Sinaktan nʼyo po ang inyong mga mamamayan pero balewala ito sa kanila. Pinarusahan nʼyo sila pero ayaw nilang magpaturo. Pinatigas nila ang kanilang mga puso at ayaw nilang magsisi. 
+Pagkatapos, sinabi ko, "Panginoon, naghahanap po kayo ng taong tapat. Sinaktan nʼyo po ang inyong mga mamamayan pero balewala ito sa kanila. Pinarusahan nʼyo sila pero ayaw nilang magpaturo. Pinatigas nila ang kanilang mga puso at ayaw nilang magsisi. 
 
 
 
@@ -205,7 +205,7 @@ Kaya pupuntahan ko po ang mga pinuno nila at kakausapin ko sila. Tiyak na mauuna
 
 
 
-Kaya sasalakayin sila ng mga kaaway nila na parang leon na nanggaling sa kagubatan, o katulad ng isang asong lobo na galing sa ilang, o parang leopardong nagbabantay malapit sa bayan para silain ang sinumang lumabas. Mangyayari ito sa kanila_ dahil naghihimagsik sila sa Dios at maraming beses nang tumalikod sa kanya. 
+Kaya sasalakayin sila ng mga kaaway nila na parang leon na nanggaling sa kagubatan, o katulad ng isang asong lobo na galing sa ilang, o parang leopardong nagbabantay malapit sa bayan para silain ang sinumang lumabas. Mangyayari ito sa kanila dahil naghihimagsik sila sa Dios at maraming beses nang tumalikod sa kanya. 
 
 
 
@@ -238,7 +238,7 @@ Kaya sasalakayin sila ng mga kaaway nila na parang leon na nanggaling sa kagubat
 
 
 
-Sinabi sa kanila ng Panginoon,_ "Bakit ko kayo patatawarin? Pati ang mga anak ninyo ay itinakwil ako at sumumpa sa pangalan ng hindi tunay na dios. Ibinigay ko ang mga pangangailangan nila, pero nagawa pa rin nila akong pagtaksilan at nagsisiksikan pa sila sa bahay ng mga babaeng bayaran. 
+Sinabi sa kanila ng Panginoon, "Bakit ko kayo patatawarin? Pati ang mga anak ninyo ay itinakwil ako at sumumpa sa pangalan ng hindi tunay na dios. Ibinigay ko ang mga pangangailangan nila, pero nagawa pa rin nila akong pagtaksilan at nagsisiksikan pa sila sa bahay ng mga babaeng bayaran. 
 
 
 
@@ -304,7 +304,7 @@ Para silang mga lalaking kabayo na alagang-alaga. Ang bawat isa sa kanila ay may
 
 
 
-Hindi ba nararapat lang na parusahan ko sila dahil dito? Hindi ba nararapat lang na paghigantihan ko ang mga bansang ganito? Ako,_ ang Panginoon, ang nagsasabi nito. 
+Hindi ba nararapat lang na parusahan ko sila dahil dito? Hindi ba nararapat lang na paghigantihan ko ang mga bansang ganito? Ako, ang Panginoon, ang nagsasabi nito. 
 
 
 
@@ -337,7 +337,7 @@ Hindi ba nararapat lang na parusahan ko sila dahil dito? Hindi ba nararapat lang
 
 
 
-"Kayong mga kaaway ng mga taga-Israel,_ sirain nʼyo ang mga ubasan nila, pero huwag ninyong sirain nang lubusan. Tabasin nʼyo ang mga sanga, dahil ang mga taong ito ay hindi na sa Panginoon. 
+"Kayong mga kaaway ng mga taga-Israel, sirain nʼyo ang mga ubasan nila, pero huwag ninyong sirain nang lubusan. Tabasin nʼyo ang mga sanga, dahil ang mga taong ito ay hindi na sa Panginoon. 
 
 
 
@@ -370,7 +370,7 @@ Hindi ba nararapat lang na parusahan ko sila dahil dito? Hindi ba nararapat lang
 
 
 
-Ang mga mamamayan ng Israel at Juda ay hindi na tapat sa akin. Ako,_ ang Panginoon, ang nagsasabi nito. 
+Ang mga mamamayan ng Israel at Juda ay hindi na tapat sa akin. Ako, ang Panginoon, ang nagsasabi nito. 
 
 
 
@@ -436,7 +436,7 @@ Hindi sila nagsasalita ng totoo tungkol sa akin. Sinabi nila, 'Hindi tayo sasakt
 
 
 
-Walang kabuluhan ang mga propeta at hindi galing sa akin ang mga ipinapahayag nila. Mangyari nawa sa kanila ang kapahamakan na_ kanilang inihula." 
+Walang kabuluhan ang mga propeta at hindi galing sa akin ang mga ipinapahayag nila. Mangyari nawa sa kanila ang kapahamakan na kanilang inihula." 
 
 
 
@@ -469,7 +469,7 @@ Walang kabuluhan ang mga propeta at hindi galing sa akin ang mga ipinapahayag ni
 
 
 
-Kaya ito ang sinabi sa akin_ ng Panginoong Dios na Makapangyarihan, "Dahil ganyan ang sinabi ng mga taong iyon, bibigyan kita ng mensahe na katulad ng apoy na susunog sa kanila at magiging parang kahoy sila na masusunog." 
+Kaya ito ang sinabi sa akin ng Panginoong Dios na Makapangyarihan, "Dahil ganyan ang sinabi ng mga taong iyon, bibigyan kita ng mensahe na katulad ng apoy na susunog sa kanila at magiging parang kahoy sila na masusunog." 
 
 
 
@@ -733,7 +733,7 @@ Pakinggan nʼyo ito, kayong mga hangal at matitigas ang ulo. May mga mata kayo, 
 
 
 
-Ako,_ ang Panginoon ay nagsasabi: Wala ba kayong takot sa akin? Bakit hindi kayo nanginginig sa harapan ko? Ako ang gumawa ng buhangin sa tabing-dagat para maging hangganan ng dagat. Itoʼy hangganan na hindi maaapawan. Hahampasin ito ng mga alon pero hindi nila maaapawan. 
+Ako, ang Panginoon ay nagsasabi: Wala ba kayong takot sa akin? Bakit hindi kayo nanginginig sa harapan ko? Ako ang gumawa ng buhangin sa tabing-dagat para maging hangganan ng dagat. Itoʼy hangganan na hindi maaapawan. Hahampasin ito ng mga alon pero hindi nila maaapawan. 
 
 
 
@@ -964,7 +964,7 @@ Tumaba sila at lumakas ang mga katawan nila. Lubusan ang paggawa nila ng kasamaa
 
 
 
-Ako,_ ang Panginoon ay nagsasabi: Hindi baʼt nararapat ko silang parusahan dahil dito? Hindi baʼt nararapat kong paghigantihan ang mga bansang katulad nito? 
+Ako, ang Panginoon ay nagsasabi: Hindi baʼt nararapat ko silang parusahan dahil dito? Hindi baʼt nararapat kong paghigantihan ang mga bansang katulad nito? 
 
 
 

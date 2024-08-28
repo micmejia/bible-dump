@@ -73,7 +73,7 @@ Pagkatapos nito, nakita kong nabuksan ang pinto sa langit. At narinig kong muli 
 
 
 
-Bigla na lang akong napuspos ng Banal na_ Espiritu. At nakita ko roon sa langit ang isang trono na may nakaupo 
+Bigla na lang akong napuspos ng Banal na Espiritu. At nakita ko roon sa langit ang isang trono na may nakaupo 
 
 
 
@@ -106,7 +106,7 @@ Bigla na lang akong napuspos ng Banal na_ Espiritu. At nakita ko roon sa langit 
 
 
 
-na nagniningning_ tulad ng mamahaling mga batong_ jasper at kornalina. At nakapaikot sa trono ang bahagharing kakulay ng batong_ esmeralda. 
+na nagniningning tulad ng mamahaling mga batong jasper at kornalina. At nakapaikot sa trono ang bahagharing kakulay ng batong esmeralda. 
 
 
 

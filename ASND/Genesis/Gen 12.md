@@ -537,7 +537,7 @@ Pero binigyan ng Panginoon ng nakakakilabot na karamdaman ang Faraon at ang mga 
 
 
 
-Nang malaman ng Faraon ang dahilan ng lahat ng ito,_ ipinatawag niya si Abram at tinanong, "Ano ba itong ginawa mo sa akin? Bakit hindi mo sinabi na asawa mo pala siya? 
+Nang malaman ng Faraon ang dahilan ng lahat ng ito, ipinatawag niya si Abram at tinanong, "Ano ba itong ginawa mo sa akin? Bakit hindi mo sinabi na asawa mo pala siya? 
 
 
 

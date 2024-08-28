@@ -16,13 +16,13 @@ Now when Festus had come to the province, after three days he went up from Caesa
 Then the high priest and the chief men of the Jews informed him against Paul; and they petitioned him, 
 
 ###### 3 
-asking a favor against him, that he would summon him to Jerusalem--while _they_ lay in ambush along the road to kill him. 
+asking a favor against him, that he would summon him to Jerusalem--while they lay in ambush along the road to kill him. 
 
 ###### 4 
-But Festus answered that Paul should be kept at Caesarea, and that he himself was going _there_ shortly. 
+But Festus answered that Paul should be kept at Caesarea, and that he himself was going there shortly. 
 
 ###### 5 
-"Therefore," he said, "let those who have authority among you go down with _me_ and accuse this man, to see if there is any fault in him." 
+"Therefore," he said, "let those who have authority among you go down with me and accuse this man, to see if there is any fault in him." 
 
 ###### 6 
 And when he had remained among them more than ten days, he went down to Caesarea. And the next day, sitting on the judgment seat, he commanded Paul to be brought. 
@@ -52,7 +52,7 @@ And after some days King Agrippa and Bernice came to Caesarea to greet Festus.
 When they had been there many days, Festus laid Paul's case before the king, saying: "There is a certain man left a prisoner by Felix, 
 
 ###### 15 
-about whom the chief priests and the elders of the Jews informed _me,_ when I was in Jerusalem, asking for a judgment against him. 
+about whom the chief priests and the elders of the Jews informed me, when I was in Jerusalem, asking for a judgment against him. 
 
 ###### 16 
 To them I answered, 'It is not the custom of the Romans to deliver any man to destruction before the accused meets the accusers face to face, and has opportunity to answer for himself concerning the charge against him.' 

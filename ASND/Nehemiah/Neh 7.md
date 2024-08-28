@@ -73,7 +73,7 @@ Nang matapos na ang pader ng lungsod at naikabit na ang mga pinto nito, itinalag
 
 
 
-Ibinigay ko ang tungkulin ng pamamahala sa Jerusalem sa kapatid kong si Hanani kasama si Hanania na kumander ng mga guwardya sa_ buong palasyo. Pinili ko si Hanania dahil mapagkakatiwalaan siya at may takot sa Dios higit sa karamihan. 
+Ibinigay ko ang tungkulin ng pamamahala sa Jerusalem sa kapatid kong si Hanani kasama si Hanania na kumander ng mga guwardya sa buong palasyo. Pinili ko si Hanania dahil mapagkakatiwalaan siya at may takot sa Dios higit sa karamihan. 
 
 
 
@@ -106,7 +106,7 @@ Ibinigay ko ang tungkulin ng pamamahala sa Jerusalem sa kapatid kong si Hanani k
 
 
 
-Sinabi ko sa kanila, "Huwag nʼyong pabayaang nakabukas ang mga pintuan ng lungsod kapag tanghaling-tapat, kahit may mga guwardya pa na nagbabantay. Dapat nakasara ito at nakakandado. Maglagay din kayo ng mga guwardya mula sa mga mamamayan ng Jerusalem. Ang iba sa kanila ay ilagay sa pader na_ malapit sa mga bahay nila, at ang iba naman ay ilagay sa ibang bahagi ng pader." ## Ang Talaan ng mga Tao na Bumalik mula sa Pagkabihag. 
+Sinabi ko sa kanila, "Huwag nʼyong pabayaang nakabukas ang mga pintuan ng lungsod kapag tanghaling-tapat, kahit may mga guwardya pa na nagbabantay. Dapat nakasara ito at nakakandado. Maglagay din kayo ng mga guwardya mula sa mga mamamayan ng Jerusalem. Ang iba sa kanila ay ilagay sa pader na malapit sa mga bahay nila, at ang iba naman ay ilagay sa ibang bahagi ng pader." ## Ang Talaan ng mga Tao na Bumalik mula sa Pagkabihag. 
 
 
 
@@ -139,7 +139,7 @@ Sinabi ko sa kanila, "Huwag nʼyong pabayaang nakabukas ang mga pintuan ng lungs
 
 
 
-Napakalawak noon ng lungsod ng Jerusalem_ pero kakaunti lang ang mga naninirahan doon at kakaunti rin ang mga bahay. 
+Napakalawak noon ng lungsod ng Jerusalem pero kakaunti lang ang mga naninirahan doon at kakaunti rin ang mga bahay. 
 
 
 
@@ -238,7 +238,7 @@ Ang mga sumusunod ay ang mga Israelita sa probinsya ng Juda na binihag noon ni H
 
 
 
-Ang namuno sa pagbalik nila sa Jerusalem ay sina Zerubabel, Jeshua, Nehemias, Azaria, Raamias, Nahamani, Mordecai, Bilshan, Misperet, Bigvai, Nehum, at Baana. Ito ang talaan ng mga mamamayan ng Israel na bumalik mula sa pagkabihag_: 8-25Mga angkan nina: 26-38Ito ang bilang ng mga tao na bumalik mula sa pagkabihag, na ang mga ninuno ay nakatira sa mga sumusunod na bayan_: 39-42Ito ang mga angkan ng_ mga pari na bumalik mula sa pagkabihag_: Mga angkan nina: 43-45Ito ang mga lahi ng_ mga Levita na bumalik din mula sa pagkabihag_: 46-56Ito ang mga angkan ng_ mga utusan sa templo na bumalik din mula sa pagkabihag_: Ziha, Hasufa, Tabaot, Keros, Sia, Padon, Lebana, Hagaba, Shalmai, Hanan, Gidel, Gahar, Reaya, Rezin, Nekoda, Gazam, Uza, Pasea, Besai, Meunim, Nefusim, Bakbuk, Hakufa, Harhur, Bazlut, Mehida, Harsha, Barkos, Sisera, Tema, Nezia, at Hatifa. 57-59Bumalik din mula sa pagkabihag ang mga angkan ng mga alipin ni Solomon: Ang mga angkan nina Sotai, Soferet, Perida, Jaala, Darkon, Gidel, Shefatia, Hatil, Pokeret Hazebaim, at Ammon. 
+Ang namuno sa pagbalik nila sa Jerusalem ay sina Zerubabel, Jeshua, Nehemias, Azaria, Raamias, Nahamani, Mordecai, Bilshan, Misperet, Bigvai, Nehum, at Baana. Ito ang talaan ng mga mamamayan ng Israel na bumalik mula sa pagkabihag: 8-25Mga angkan nina: 26-38Ito ang bilang ng mga tao na bumalik mula sa pagkabihag, na ang mga ninuno ay nakatira sa mga sumusunod na bayan: 39-42Ito ang mga angkan ng mga pari na bumalik mula sa pagkabihag: Mga angkan nina: 43-45Ito ang mga lahi ng mga Levita na bumalik din mula sa pagkabihag: 46-56Ito ang mga angkan ng mga utusan sa templo na bumalik din mula sa pagkabihag: Ziha, Hasufa, Tabaot, Keros, Sia, Padon, Lebana, Hagaba, Shalmai, Hanan, Gidel, Gahar, Reaya, Rezin, Nekoda, Gazam, Uza, Pasea, Besai, Meunim, Nefusim, Bakbuk, Hakufa, Harhur, Bazlut, Mehida, Harsha, Barkos, Sisera, Tema, Nezia, at Hatifa. 57-59Bumalik din mula sa pagkabihag ang mga angkan ng mga alipin ni Solomon: Ang mga angkan nina Sotai, Soferet, Perida, Jaala, Darkon, Gidel, Shefatia, Hatil, Pokeret Hazebaim, at Ammon. 
 
 
 
@@ -271,7 +271,7 @@ Ang namuno sa pagbalik nila sa Jerusalem ay sina Zerubabel, Jeshua, Nehemias, Az
 
 
 
-Mayroon ding bumalik sa Jerusalem_ mula sa mga bayan ng Tel Mela, Tel Harsha, Kerub, Adon, at Imer. Pero hindi nila mapatunayan na silaʼy talagang mga Israelita: 
+Mayroon ding bumalik sa Jerusalem mula sa mga bayan ng Tel Mela, Tel Harsha, Kerub, Adon, at Imer. Pero hindi nila mapatunayan na silaʼy talagang mga Israelita: 
 
 
 
@@ -370,7 +370,7 @@ Dahil nga hindi nila makita ang talaan ng kanilang mga ninuno, hindi sila tinang
 
 
 
-Sinabihan sila ng gobernador ng Juda_ na hindi sila maaaring kumain ng mga pagkain na inihandog sa Dios hanggaʼt walang pari na sasangguni sa Panginoon tungkol sa kanilang pagkapari sa pamamagitan ng "Urim" at "Thummim". 66-69Ang kabuuang bilang ng mga lalaki mula sa pagkabihag ay 42,360, hindi pa kabilang dito ang mga alipin nilang lalaki at babae na 7, 337 at mga mang-aawit na lalaki at babae na 245. May dala silang 736 na kabayo, 245 mola, 435 kamelyo, at 6,720 asno. 
+Sinabihan sila ng gobernador ng Juda na hindi sila maaaring kumain ng mga pagkain na inihandog sa Dios hanggaʼt walang pari na sasangguni sa Panginoon tungkol sa kanilang pagkapari sa pamamagitan ng "Urim" at "Thummim". 66-69Ang kabuuang bilang ng mga lalaki mula sa pagkabihag ay 42,360, hindi pa kabilang dito ang mga alipin nilang lalaki at babae na 7, 337 at mga mang-aawit na lalaki at babae na 245. May dala silang 736 na kabayo, 245 mola, 435 kamelyo, at 6,720 asno. 
 
 
 
@@ -403,7 +403,7 @@ Sinabihan sila ng gobernador ng Juda_ na hindi sila maaaring kumain ng mga pagka
 
 
 
-Ang ibang mga pinuno ng mga pamilya ay nag-ambag para sa muling pagpapatayo ng templo. Ang gobernador ay nagbigay ng walong kilong ginto, 50 mangkok na gagamitin sa templo_, at 530 pirasong damit para sa mga pari. 
+Ang ibang mga pinuno ng mga pamilya ay nag-ambag para sa muling pagpapatayo ng templo. Ang gobernador ay nagbigay ng walong kilong ginto, 50 mangkok na gagamitin sa templo, at 530 pirasong damit para sa mga pari. 
 
 
 
@@ -502,6 +502,6 @@ Ang kabuuang ibinigay ng iba pang mga tao ay 168 kilong ginto, 1,100 kilong pila
 
 
 
-Ang bawat isa sa kanila ay bumalik sa mga bayan na kung saan nagmula ang kanilang pamilya, pati na ang mga pari, ang mga Levita, ang mga guwardya ng mga pintuan ng templo_, ang mga mang-aawit, at ang mga utusan sa templo.
+Ang bawat isa sa kanila ay bumalik sa mga bayan na kung saan nagmula ang kanilang pamilya, pati na ang mga pari, ang mga Levita, ang mga guwardya ng mga pintuan ng templo, ang mga mang-aawit, at ang mga utusan sa templo.
 
 ## Binasa ni Ezra ang Kautusan Nang dumating ang ikapitong buwan, nang nakatira na ang mga Israelita sa mga bayan nila,

@@ -9,7 +9,7 @@ up: ['Galatians']
 
 
 ###### 1 
-Brethren, if a man is overtaken in any trespass, you who _are_ spiritual restore such a one in a spirit of gentleness, considering yourself lest you also be tempted. 
+Brethren, if a man is overtaken in any trespass, you who are spiritual restore such a one in a spirit of gentleness, considering yourself lest you also be tempted. 
 
 ###### 2 
 Bear one another's burdens, and so fulfill the law of Christ. 
@@ -46,7 +46,7 @@ Therefore, as we have opportunity, let us do good to all, especially to those wh
 See with what large letters I have written to you with my own hand! 
 
 ###### 12 
-As many as desire to make a good showing in the flesh, these _would_ compel you to be circumcised, only that they may not suffer persecution for the cross of Christ. 
+As many as desire to make a good showing in the flesh, these would compel you to be circumcised, only that they may not suffer persecution for the cross of Christ. 
 
 ###### 13 
 For not even those who are circumcised keep the law, but they desire to have you circumcised that they may boast in your flesh. 
@@ -60,10 +60,10 @@ For in Christ Jesus neither circumcision nor uncircumcision avails anything, but
 ## Blessing and a Plea 
 
 ###### 16 
-And as many as walk according to this rule, peace and mercy _be_ upon them, and upon the Israel of God. 
+And as many as walk according to this rule, peace and mercy be upon them, and upon the Israel of God. 
 
 ###### 17 
 From now on let no one trouble me, for I bear in my body the marks of the Lord Jesus. 
 
 ###### 18 
-Brethren, the grace of our Lord Jesus Christ _be_ with your spirit. Amen.
+Brethren, the grace of our Lord Jesus Christ be with your spirit. Amen.

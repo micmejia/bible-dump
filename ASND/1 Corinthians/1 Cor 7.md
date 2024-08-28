@@ -238,7 +238,7 @@ Ang sinasabi koʼy hindi isang utos kundi mungkahi lamang.
 
 
 
-Kung pwede lang, gusto ko sanang kayong lahat ay maging katulad ko na walang asawa_. Ngunit may kanya-kanyang kaloob sa atin ang Dios, at hindi ito pare-pareho. 
+Kung pwede lang, gusto ko sanang kayong lahat ay maging katulad ko na walang asawa. Ngunit may kanya-kanyang kaloob sa atin ang Dios, at hindi ito pare-pareho. 
 
 
 
@@ -403,7 +403,7 @@ At kung ang isang babae naman ay may asawang hindi mananampalataya na gusto nama
 
 
 
-Sapagkat ang lalaking hindi mananampalataya ay tinatanggap ng Dios dahil sa kanyang mananampalatayang_ asawa, at ang babaeng hindi mananampalataya ay tinatanggap din ng Dios dahil sa kanyang mananampalatayang_ asawa. Dahil kung hindi, maging ang mga anak nila ay hindi tatanggapin ng Dios. Ngunit ang totoo, tinatanggap din sila ng Dios. 
+Sapagkat ang lalaking hindi mananampalataya ay tinatanggap ng Dios dahil sa kanyang mananampalatayang asawa, at ang babaeng hindi mananampalataya ay tinatanggap din ng Dios dahil sa kanyang mananampalatayang asawa. Dahil kung hindi, maging ang mga anak nila ay hindi tatanggapin ng Dios. Ngunit ang totoo, tinatanggap din sila ng Dios. 
 
 
 
@@ -537,7 +537,7 @@ Ang bawat isa sa inyo ay dapat mamuhay ayon sa kalagayan na ibinigay ng Panginoo
 
 
 
-Halimbawa, kung ang isang lalaki ay tuli nang siyaʼy tawagin ng Dios_, hindi na niya dapat baguhin ang kanyang kalagayan. At kung hindi pa siya tuli nang siyaʼy tawagin, hindi na niya kailangang magpatuli pa. 
+Halimbawa, kung ang isang lalaki ay tuli nang siyaʼy tawagin ng Dios, hindi na niya dapat baguhin ang kanyang kalagayan. At kung hindi pa siya tuli nang siyaʼy tawagin, hindi na niya kailangang magpatuli pa. 
 
 
 
@@ -636,7 +636,7 @@ Kaya mamuhay ang bawat isa ayon sa kanyang kalagayan nang tinawag siya ng Dios.
 
 
 
-Ikaw baʼy isang alipin nang tawagin ng Dios_? Hindi na bale, ngunit kung may magagawa ka naman para maging malaya, samantalahin mo ito. 
+Ikaw baʼy isang alipin nang tawagin ng Dios? Hindi na bale, ngunit kung may magagawa ka naman para maging malaya, samantalahin mo ito. 
 
 
 
@@ -702,7 +702,7 @@ Sapagkat ang alipin nang tawagin siya ng Panginoon ay malaya na sa harap ng Pang
 
 
 
-Binili kayo ng Dios_ sa malaking halaga, kaya huwag kayong basta magpaalipin sa tao. 
+Binili kayo ng Dios sa malaking halaga, kaya huwag kayong basta magpaalipin sa tao. 
 
 
 
@@ -1001,7 +1001,7 @@ Ang mga gumagamit ng mga bagay dito sa mundo ay hindi dapat mawili sa mga bagay 
 
 
 
-Gusto ko sanang maging malaya kayo sa mga alalahanin sa mundong ito_. Kung ang isang lalaki ay walang asawa, ang pinagkakaabalahan niya ay ang mga gawain ng Panginoon at kung paano siya magiging kalugod-lugod sa kanya. 
+Gusto ko sanang maging malaya kayo sa mga alalahanin sa mundong ito. Kung ang isang lalaki ay walang asawa, ang pinagkakaabalahan niya ay ang mga gawain ng Panginoon at kung paano siya magiging kalugod-lugod sa kanya. 
 
 
 
@@ -1133,7 +1133,7 @@ Sinasabi ko lamang ito para sa inyong kabutihan. Hindi ko kayo pinagbabawalang m
 
 
 
-Ngayon, tungkol naman sa mga magkasintahan:_ Kung sa palagay ng lalaki ay hindi tama ang ikinikilos niya sa kanyang nobya dahil sa pagnanasa, at sa palagay niyaʼy dapat na silang magpakasal, mas mabuti ngang magpakasal na sila. Hindi ito kasalanan. 
+Ngayon, tungkol naman sa mga magkasintahan: Kung sa palagay ng lalaki ay hindi tama ang ikinikilos niya sa kanyang nobya dahil sa pagnanasa, at sa palagay niyaʼy dapat na silang magpakasal, mas mabuti ngang magpakasal na sila. Hindi ito kasalanan. 
 
 
 

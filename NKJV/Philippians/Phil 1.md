@@ -26,7 +26,7 @@ always in every prayer of mine making request for you all with joy,
 for your fellowship in the gospel from the first day until now, 
 
 ###### 6 
-being confident of this very thing, that He who has begun a good work in you will complete _it_ until the day of Jesus Christ; 
+being confident of this very thing, that He who has begun a good work in you will complete it until the day of Jesus Christ; 
 
 ###### 7 
 just as it is right for me to think this of you all, because I have you in my heart, inasmuch as both in my chains and in the defense and confirmation of the gospel, you all are partakers with me of grace. 
@@ -41,12 +41,12 @@ And this I pray, that your love may abound still more and more in knowledge and 
 that you may approve the things that are excellent, that you may be sincere and without offense till the day of Christ, 
 
 ###### 11 
-being filled with the fruits of righteousness which _are_ by Jesus Christ, to the glory and praise of God.
+being filled with the fruits of righteousness which are by Jesus Christ, to the glory and praise of God.
 
 ## Christ Is Preached 
 
 ###### 12 
-But I want you to know, brethren, that the things _which happened_ to me have actually turned out for the furtherance of the gospel, 
+But I want you to know, brethren, that the things which happened to me have actually turned out for the furtherance of the gospel, 
 
 ###### 13 
 so that it has become evident to the whole palace guard, and to all the rest, that my chains are in Christ; 
@@ -64,7 +64,7 @@ The former preach Christ from selfish ambition, not sincerely, supposing to add 
 but the latter out of love, knowing that I am appointed for the defense of the gospel. 
 
 ###### 18 
-What then? Only _that_ in every way, whether in pretense or in truth, Christ is preached; and in this I rejoice, yes, and will rejoice.
+What then? Only that in every way, whether in pretense or in truth, Christ is preached; and in this I rejoice, yes, and will rejoice.
 
 ## To Live Is Christ 
 
@@ -75,16 +75,16 @@ For I know that this will turn out for my deliverance through your prayer and th
 according to my earnest expectation and hope that in nothing I shall be ashamed, but with all boldness, as always, so now also Christ will be magnified in my body, whether by life or by death. 
 
 ###### 21 
-For to me, to live _is_ Christ, and to die _is_ gain. 
+For to me, to live is Christ, and to die is gain. 
 
 ###### 22 
-But if _I_ live on in the flesh, this _will mean_ fruit from _my_ labor; yet what I shall choose I cannot tell. 
+But if I live on in the flesh, this will mean fruit from my labor; yet what I shall choose I cannot tell. 
 
 ###### 23 
-For I am hard-pressed between the two, having a desire to depart and be with Christ, _which is_ far better. 
+For I am hard-pressed between the two, having a desire to depart and be with Christ, which is far better. 
 
 ###### 24 
-Nevertheless to remain in the flesh _is_ more needful for you. 
+Nevertheless to remain in the flesh is more needful for you. 
 
 ###### 25 
 And being confident of this, I know that I shall remain and continue with you all for your progress and joy of faith, 
@@ -104,4 +104,4 @@ and not in any way terrified by your adversaries, which is to them a proof of pe
 For to you it has been granted on behalf of Christ, not only to believe in Him, but also to suffer for His sake, 
 
 ###### 30 
-having the same conflict which you saw in me and now hear _is_ in me.
+having the same conflict which you saw in me and now hear is in me.

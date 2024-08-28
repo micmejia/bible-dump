@@ -16,7 +16,7 @@ Therefore, having been justified by faith, we have peace with God through our Lo
 through whom also we have access by faith into this grace in which we stand, and rejoice in hope of the glory of God. 
 
 ###### 3 
-And not only _that,_ but we also glory in tribulations, knowing that tribulation produces perseverance; 
+And not only that, but we also glory in tribulations, knowing that tribulation produces perseverance; 
 
 ###### 4 
 and perseverance, character; and character, hope. 
@@ -42,7 +42,7 @@ Much more then, having now been justified by His blood, we shall be saved from w
 For if when we were enemies we were reconciled to God through the death of His Son, much more, having been reconciled, we shall be saved by His life. 
 
 ###### 11 
-And not only _that,_ but we also rejoice in God through our Lord Jesus Christ, through whom we have now received the reconciliation.
+And not only that, but we also rejoice in God through our Lord Jesus Christ, through whom we have now received the reconciliation.
 
 ## Death in Adam, Life in Christ 
 
@@ -56,16 +56,16 @@ Therefore, just as through one man sin entered the world, and death through sin,
 Nevertheless death reigned from Adam to Moses, even over those who had not sinned according to the likeness of the transgression of Adam, who is a type of Him who was to come. 
 
 ###### 15 
-But the free gift _is_ not like the offense. For if by the one man's offense many died, much more the grace of God and the gift by the grace of the one Man, Jesus Christ, abounded to many. 
+But the free gift is not like the offense. For if by the one man's offense many died, much more the grace of God and the gift by the grace of the one Man, Jesus Christ, abounded to many. 
 
 ###### 16 
-And the gift _is_ not like _that which came_ through the one who sinned. For the judgment _which came_ from one _offense resulted_ in condemnation, but the free gift _which came_ from many offenses _resulted_ in justification. 
+And the gift is not like that which came through the one who sinned. For the judgment which came from one offense resulted in condemnation, but the free gift which came from many offenses resulted in justification. 
 
 ###### 17 
 For if by the one man's offense death reigned through the one, much more those who receive abundance of grace and of the gift of righteousness will reign in life through the One, Jesus Christ.) 
 
 ###### 18 
-Therefore, as through one man's offense _judgment came_ to all men, resulting in condemnation, even so through one Man's righteous act _the free gift came_ to all men, resulting in justification of life. 
+Therefore, as through one man's offense judgment came to all men, resulting in condemnation, even so through one Man's righteous act the free gift came to all men, resulting in justification of life. 
 
 ###### 19 
 For as by one man's disobedience many were made sinners, so also by one Man's obedience many will be made righteous. 

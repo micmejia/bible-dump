@@ -39,7 +39,7 @@ up: ['Hosea']
 
 
 
-Sinabi ni Hoseas:_ Mga taga-Israel, magbalik-loob na kayo sa Panginoon na inyong Dios. Napahamak kayo dahil sa inyong kasalanan. 
+Sinabi ni Hoseas: Mga taga-Israel, magbalik-loob na kayo sa Panginoon na inyong Dios. Napahamak kayo dahil sa inyong kasalanan. 
 
 
 
@@ -105,7 +105,7 @@ Magbalik-loob na kayo sa Panginoon at sabihin ninyo sa kanya, "Patawarin nʼyo p
 
 
 
-Hindi na kami hihingi ng tulong sa Asiria at hindi na rin kami aasa sa mga kabayong pandigma. Hindi na rin namin tatawagin na aming Dios ang mga dios-diosang_ ginawa namin. Sapagkat kinaawaan nʼyo po kami na parang mga ulila." 
+Hindi na kami hihingi ng tulong sa Asiria at hindi na rin kami aasa sa mga kabayong pandigma. Hindi na rin namin tatawagin na aming Dios ang mga dios-diosang ginawa namin. Sapagkat kinaawaan nʼyo po kami na parang mga ulila." 
 
 
 
@@ -138,7 +138,7 @@ Hindi na kami hihingi ng tulong sa Asiria at hindi na rin kami aasa sa mga kabay
 
 
 
-Sinabi ng Panginoon,_ "Pagagalingin ko ang aking mga mamamayan sa kanilang pagkamasuwayin at taos-puso ko silang mamahalin. Sapagkat nawala na ang galit ko sa kanila. 
+Sinabi ng Panginoon, "Pagagalingin ko ang aking mga mamamayan sa kanilang pagkamasuwayin at taos-puso ko silang mamahalin. Sapagkat nawala na ang galit ko sa kanila. 
 
 
 
@@ -171,7 +171,7 @@ Sinabi ng Panginoon,_ "Pagagalingin ko ang aking mga mamamayan sa kanilang pagka
 
 
 
-Pagpapalain ko ang_ mga taga-Israel; akoʼy magiging parang hamog sa kanila na nagbibigay ng tubig sa mga halaman_. Sila ay uunlad_ gaya ng halamang_ liryong namumulaklak. Sila ay magiging matatag_ tulad ng puno ng sedro sa Lebanon na malalim ang ugat. 
+Pagpapalain ko ang mga taga-Israel; akoʼy magiging parang hamog sa kanila na nagbibigay ng tubig sa mga halaman. Sila ay uunlad gaya ng halamang liryong namumulaklak. Sila ay magiging matatag tulad ng puno ng sedro sa Lebanon na malalim ang ugat. 
 
 
 
@@ -204,7 +204,7 @@ Pagpapalain ko ang_ mga taga-Israel; akoʼy magiging parang hamog sa kanila na n
 
 
 
-Sila ay dadami na_ parang mga sangang nagkakadahon nang marami. Sila ay magiging tanyag na_ parang puno ng olibo na maganda at ng puno ng sedro ng Lebanon na mabango. 
+Sila ay dadami na parang mga sangang nagkakadahon nang marami. Sila ay magiging tanyag na parang puno ng olibo na maganda at ng puno ng sedro ng Lebanon na mabango. 
 
 
 
@@ -237,7 +237,7 @@ Sila ay dadami na_ parang mga sangang nagkakadahon nang marami. Sila ay magiging
 
 
 
-Muli silang maninirahan na kinakalinga ko. Sila ay uunlad na_ parang trigong yumayabong o ubas na namumulaklak. At magiging tanyag sila na gaya ng alak ng Lebanon. 
+Muli silang maninirahan na kinakalinga ko. Sila ay uunlad na parang trigong yumayabong o ubas na namumulaklak. At magiging tanyag sila na gaya ng alak ng Lebanon. 
 
 
 
@@ -270,7 +270,7 @@ Muli silang maninirahan na kinakalinga ko. Sila ay uunlad na_ parang trigong yum
 
 
 
-"Mga taga-Israel, lumayo na kayo sa mga dios-diosan. Ako ang tutugon ng inyong mga dalangin_ at ako ang kakalinga sa inyo. Poprotektahan ko kayo;_ akoʼy magiging parang puno ng sipres na mayabong na magbibigay ng lilim_. Ako ang nagpapaunlad sa inyo." ## Huling Payo 
+"Mga taga-Israel, lumayo na kayo sa mga dios-diosan. Ako ang tutugon ng inyong mga dalangin at ako ang kakalinga sa inyo. Poprotektahan ko kayo; akoʼy magiging parang puno ng sipres na mayabong na magbibigay ng lilim. Ako ang nagpapaunlad sa inyo." ## Huling Payo 
 
 
 

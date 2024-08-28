@@ -16,28 +16,28 @@ next: ['Isa 46']
 'I will go before you And make the crooked places straight; I will break in pieces the gates of bronze And cut the bars of iron. 
 
 ###### 3 
-I will give you the treasures of darkness And hidden riches of secret places, That you may know that I, the Lord, Who call _you_ by your name, _Am_ the God of Israel. 
+I will give you the treasures of darkness And hidden riches of secret places, That you may know that I, the Lord, Who call you by your name, Am the God of Israel. 
 
 ###### 4 
 For Jacob My servant's sake, And Israel My elect, I have even called you by your name; I have named you, though you have not known Me. 
 
 ###### 5 
-I _am_ the Lord, and _there is_ no other; _There is_ no God besides Me. I will gird you, though you have not known Me, 
+I am the Lord, and there is no other; There is no God besides Me. I will gird you, though you have not known Me, 
 
 ###### 6 
-That they may know from the rising of the sun to its setting That _there is_ none besides Me. I _am_ the Lord, and _there is_ no other; 
+That they may know from the rising of the sun to its setting That there is none besides Me. I am the Lord, and there is no other; 
 
 ###### 7 
-I form the light and create darkness, I make peace and create calamity; I, the Lord, do all these _things._' 
+I form the light and create darkness, I make peace and create calamity; I, the Lord, do all these things.' 
 
 ###### 8 
 "Rain down, you heavens, from above, And let the skies pour down righteousness; Let the earth open, let them bring forth salvation, And let righteousness spring up together. I, the Lord, have created it. 
 
 ###### 9 
-"Woe to him who strives with his Maker! _Let_ the potsherd _strive_ with the potsherds of the earth! Shall the clay say to him who forms it, 'What are you making?' Or shall your handiwork _say,_ 'He has no hands'? 
+"Woe to him who strives with his Maker! Let the potsherd strive with the potsherds of the earth! Shall the clay say to him who forms it, 'What are you making?' Or shall your handiwork say, 'He has no hands'? 
 
 ###### 10 
-Woe to him who says to _his_ father, 'What are you begetting?' Or to the woman, 'What have you brought forth?' " 
+Woe to him who says to his father, 'What are you begetting?' Or to the woman, 'What have you brought forth?' " 
 
 ###### 11 
 Thus says the Lord, The Holy One of Israel, and his Maker: "Ask Me of things to come concerning My sons; And concerning the work of My hands, you command Me. 
@@ -51,37 +51,37 @@ I have raised him up in righteousness, And I will direct all his ways; He shall 
 ## The Lord, the Only Savior 
 
 ###### 14 
-Thus says the Lord: "The labor of Egypt and merchandise of Cush And of the Sabeans, men of stature, Shall come over to you, and they shall be yours; They shall walk behind you, They shall come over in chains; And they shall bow down to you. They will make supplication to you, _saying,_ 'Surely God _is_ in you, And _there is_ no other; _There is_ no other God.' " 
+Thus says the Lord: "The labor of Egypt and merchandise of Cush And of the Sabeans, men of stature, Shall come over to you, and they shall be yours; They shall walk behind you, They shall come over in chains; And they shall bow down to you. They will make supplication to you, saying, 'Surely God is in you, And there is no other; There is no other God.' " 
 
 ###### 15 
-Truly You _are_ God, who hide Yourself, O God of Israel, the Savior! 
+Truly You are God, who hide Yourself, O God of Israel, the Savior! 
 
 ###### 16 
-They shall be ashamed And also disgraced, all of them; They shall go in confusion together, _Who are_ makers of idols. 
+They shall be ashamed And also disgraced, all of them; They shall go in confusion together, Who are makers of idols. 
 
 ###### 17 
-_But_ Israel shall be saved by the Lord With an everlasting salvation; You shall not be ashamed or disgraced Forever and ever. 
+But Israel shall be saved by the Lord With an everlasting salvation; You shall not be ashamed or disgraced Forever and ever. 
 
 ###### 18 
-For thus says the Lord, Who created the heavens, Who is God, Who formed the earth and made it, Who has established it, Who did not create it in vain, Who formed it to be inhabited: "I _am_ the Lord, and _there is_ no other. 
+For thus says the Lord, Who created the heavens, Who is God, Who formed the earth and made it, Who has established it, Who did not create it in vain, Who formed it to be inhabited: "I am the Lord, and there is no other. 
 
 ###### 19 
 I have not spoken in secret, In a dark place of the earth; I did not say to the seed of Jacob, 'Seek Me in vain'; I, the Lord, speak righteousness, I declare things that are right. 
 
 ###### 20 
-"Assemble yourselves and come; Draw near together, You _who have_ escaped from the nations. They have no knowledge, Who carry the wood of their carved image, And pray to a god _that_ cannot save. 
+"Assemble yourselves and come; Draw near together, You who have escaped from the nations. They have no knowledge, Who carry the wood of their carved image, And pray to a god that cannot save. 
 
 ###### 21 
-Tell and bring forth _your case;_ Yes, let them take counsel together. Who has declared this from ancient time? _Who_ has told it from that time? _Have_ not I, the Lord? And _there is_ no other God besides Me, A just God and a Savior; _There is_ none besides Me. 
+Tell and bring forth your case; Yes, let them take counsel together. Who has declared this from ancient time? Who has told it from that time? Have not I, the Lord? And there is no other God besides Me, A just God and a Savior; There is none besides Me. 
 
 ###### 22 
-"Look to Me, and be saved, All you ends of the earth! For I _am_ God, and _there is_ no other. 
+"Look to Me, and be saved, All you ends of the earth! For I am God, and there is no other. 
 
 ###### 23 
-I have sworn by Myself; The word has gone out of My mouth _in_ righteousness, And shall not return, That to Me every knee shall bow, Every tongue shall take an oath. 
+I have sworn by Myself; The word has gone out of My mouth in righteousness, And shall not return, That to Me every knee shall bow, Every tongue shall take an oath. 
 
 ###### 24 
-He shall say, 'Surely in the Lord I have righteousness and strength. To Him _men_ shall come, And all shall be ashamed Who are incensed against Him. 
+He shall say, 'Surely in the Lord I have righteousness and strength. To Him men shall come, And all shall be ashamed Who are incensed against Him. 
 
 ###### 25 
 In the Lord all the descendants of Israel Shall be justified, and shall glory.' "

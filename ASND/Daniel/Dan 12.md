@@ -105,7 +105,7 @@ Bubuhayin ang marami sa mga namatay na. Ang iba sa kanila ay tatanggap ng buhay 
 
 
 
-Ang mga taong nakakaunawa ng katotohanan_ at nagtuturo sa mga tao na mamuhay nang matuwid ay magniningning na parang bituin sa langit magpakailanman. 
+Ang mga taong nakakaunawa ng katotohanan at nagtuturo sa mga tao na mamuhay nang matuwid ay magniningning na parang bituin sa langit magpakailanman. 
 
 
 
@@ -138,7 +138,7 @@ Ang mga taong nakakaunawa ng katotohanan_ at nagtuturo sa mga tao na mamuhay nan
 
 
 
-Pero Daniel, isara mo muna ang aklat na ito at huwag mo munang sabihin sa mga tao ang mensahe nito hanggang sa dumating ang katapusan. Habang hindi pa ito ipinapahayag,_ marami ang magsisikap na unawain ang mga nangyayari." 
+Pero Daniel, isara mo muna ang aklat na ito at huwag mo munang sabihin sa mga tao ang mensahe nito hanggang sa dumating ang katapusan. Habang hindi pa ito ipinapahayag, marami ang magsisikap na unawain ang mga nangyayari." 
 
 
 
@@ -204,7 +204,7 @@ Pagkatapos niyang sabihin iyon, may nakita pa akong dalawang taong nakatayo sa m
 
 
 
-Nagtanong ang isa sa kanila sa taong nakadamit ng telang_ linen na nakatayo sa mataas na bahagi ng ilog, "Gaano kaya katagal bago matapos ang mga nakakamanghang pangyayaring iyon?" 
+Nagtanong ang isa sa kanila sa taong nakadamit ng telang linen na nakatayo sa mataas na bahagi ng ilog, "Gaano kaya katagal bago matapos ang mga nakakamanghang pangyayaring iyon?" 
 
 
 
@@ -237,7 +237,7 @@ Nagtanong ang isa sa kanila sa taong nakadamit ng telang_ linen na nakatayo sa m
 
 
 
-Itinaas ng taong nakadamit ng telang_ linen ang kanyang dalawang kamay at narinig kong sumumpa siya sa Dios na buhay magpakailanman. Sinabi niya, "Matatapos ito sa loob ng tatlong taon at kalahati, kapag natapos na ang paghihirap ng mga mamamayan ng Dios." 
+Itinaas ng taong nakadamit ng telang linen ang kanyang dalawang kamay at narinig kong sumumpa siya sa Dios na buhay magpakailanman. Sinabi niya, "Matatapos ito sa loob ng tatlong taon at kalahati, kapag natapos na ang paghihirap ng mga mamamayan ng Dios." 
 
 
 
@@ -303,7 +303,7 @@ Hindi ko naintindihan ang kanyang sagot kaya tinanong ko siya, "Ano po ba ang ka
 
 
 
-Sumagot siya, "Sige na, Daniel, hayaan mo na iyon_, dahil ang sagot sa tanong moʼy mananatiling lihim at hindi maaaring sabihin hanggang sa dumating ang katapusan. 
+Sumagot siya, "Sige na, Daniel, hayaan mo na iyon, dahil ang sagot sa tanong moʼy mananatiling lihim at hindi maaaring sabihin hanggang sa dumating ang katapusan. 
 
 
 
@@ -336,7 +336,7 @@ Sumagot siya, "Sige na, Daniel, hayaan mo na iyon_, dahil ang sagot sa tanong mo
 
 
 
-Marami sa mga nakakaunawa ng katotohanan ang lilinisin ang kanilang buhay, at mauunawaan nila ang mga sinasabi ko_. Pero ang masasama ay patuloy na gagawa ng masama at hindi makakaunawa ng mga sinasabi ko_. 
+Marami sa mga nakakaunawa ng katotohanan ang lilinisin ang kanilang buhay, at mauunawaan nila ang mga sinasabi ko. Pero ang masasama ay patuloy na gagawa ng masama at hindi makakaunawa ng mga sinasabi ko. 
 
 
 
@@ -369,7 +369,7 @@ Marami sa mga nakakaunawa ng katotohanan ang lilinisin ang kanilang buhay, at ma
 
 
 
-"Lilipas ang 1,290 araw mula sa panahon ng pagpapatigil ng araw-araw na paghahandog at paglalagay ng kasuklam-suklam na bagay na magiging dahilan ng pag-iwan sa templo hanggang sa dumating ang katapusan_. 
+"Lilipas ang 1,290 araw mula sa panahon ng pagpapatigil ng araw-araw na paghahandog at paglalagay ng kasuklam-suklam na bagay na magiging dahilan ng pag-iwan sa templo hanggang sa dumating ang katapusan. 
 
 
 

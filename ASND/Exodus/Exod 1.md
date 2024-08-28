@@ -171,7 +171,7 @@ Dan, Naftali, Gad, at Asher.
 
 
 
-Si Jose ay matagal nang nasa Egipto. Ang bilang ng lahat ng lahi ni Jacob na sumama sa kanya sa Egipto_ ay 70. 
+Si Jose ay matagal nang nasa Egipto. Ang bilang ng lahat ng lahi ni Jacob na sumama sa kanya sa Egipto ay 70. 
 
 
 
@@ -402,7 +402,7 @@ Kaya naglagay sila ng mahihigpit na tao na mamamahala sa mga Israelita para pahi
 
 
 
-Pero habang patuloy silang pinahihirapan, lalo naman silang dumarami at nangangalat sa Egipto_. Kaya lalong natakot ang mga taga-Egipto sa kanila. 
+Pero habang patuloy silang pinahihirapan, lalo naman silang dumarami at nangangalat sa Egipto. Kaya lalong natakot ang mga taga-Egipto sa kanila. 
 
 
 
@@ -732,4 +732,4 @@ At dahil sa iginagalang ng mga kumadrona ang Dios, binigyan sila ng Dios ng sari
 
 
 
-Nang bandang huli, nag-utos ang Faraon sa lahat ng mamamayan niya, "Itapon ninyo sa Ilog ng_ Nilo ang lahat ng bagong panganak na sanggol na lalaki ng mga Israelita_, pero pabayaan ninyong mabuhay ang mga batang babae."
+Nang bandang huli, nag-utos ang Faraon sa lahat ng mamamayan niya, "Itapon ninyo sa Ilog ng Nilo ang lahat ng bagong panganak na sanggol na lalaki ng mga Israelita, pero pabayaan ninyong mabuhay ang mga batang babae."

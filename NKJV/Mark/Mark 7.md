@@ -16,31 +16,31 @@ Then the Pharisees and some of the scribes came together to Him, having come fro
 Now when they saw some of His disciples eat bread with defiled, that is, with unwashed hands, they found fault. 
 
 ###### 3 
-For the Pharisees and all the Jews do not eat unless they wash _their_ hands in a special way, holding the tradition of the elders. 
+For the Pharisees and all the Jews do not eat unless they wash their hands in a special way, holding the tradition of the elders. 
 
 ###### 4 
-_When they come_ from the marketplace, they do not eat unless they wash. And there are many other things which they have received and hold, _like_ the washing of cups, pitchers, copper vessels, and couches. 
+When they come from the marketplace, they do not eat unless they wash. And there are many other things which they have received and hold, like the washing of cups, pitchers, copper vessels, and couches. 
 
 ###### 5 
 Then the Pharisees and scribes asked Him, "Why do Your disciples not walk according to the tradition of the elders, but eat bread with unwashed hands?" 
 
 ###### 6 
-He answered and said to them, "Well did Isaiah prophesy of you hypocrites, as it is written: 'This people honors Me with _their_ lips, But their heart is far from Me. 
+He answered and said to them, "Well did Isaiah prophesy of you hypocrites, as it is written: 'This people honors Me with their lips, But their heart is far from Me. 
 
 ###### 7 
-And in vain they worship Me, Teaching _as_ doctrines the commandments of men.' 
+And in vain they worship Me, Teaching as doctrines the commandments of men.' 
 
 ###### 8 
 For laying aside the commandment of God, you hold the tradition of men--the washing of pitchers and cups, and many other such things you do." 
 
 ###### 9 
-He said to them, "_All too_ well you reject the commandment of God, that you may keep your tradition. 
+He said to them, "All too well you reject the commandment of God, that you may keep your tradition. 
 
 ###### 10 
 For Moses said, 'Honor your father and your mother'; and, 'He who curses father or mother, let him be put to death.' 
 
 ###### 11 
-But you say, 'If a man says to his father or mother, "Whatever profit you might have received from me _is_ Corban"--' (that is, a gift _to God_), 
+But you say, 'If a man says to his father or mother, "Whatever profit you might have received from me is Corban"--' (that is, a gift to God), 
 
 ###### 12 
 then you no longer let him do anything for his father or his mother, 
@@ -49,7 +49,7 @@ then you no longer let him do anything for his father or his mother,
 making the word of God of no effect through your tradition which you have handed down. And many such things you do." 
 
 ###### 14 
-When He had called all the multitude to _Himself,_ He said to them, "Hear Me, everyone, and understand: 
+When He had called all the multitude to Himself, He said to them, "Hear Me, everyone, and understand: 
 
 ###### 15 
 There is nothing that enters a man from outside which can defile him; but the things which come out of him, those are the things that defile a man. 
@@ -64,7 +64,7 @@ When He had entered a house away from the crowd, His disciples asked Him concern
 So He said to them, "Are you thus without understanding also? Do you not perceive that whatever enters a man from outside cannot defile him, 
 
 ###### 19 
-because it does not enter his heart but his stomach, and is eliminated, _thus_ purifying all foods?" 
+because it does not enter his heart but his stomach, and is eliminated, thus purifying all foods?" 
 
 ###### 20 
 And He said, "What comes out of a man, that defiles a man. 
@@ -79,7 +79,7 @@ thefts, covetousness, wickedness, deceit, lewdness, an evil eye, blasphemy, prid
 All these evil things come from within and defile a man." ## A Gentile Shows Her Faith 
 
 ###### 24 
-From there He arose and went to the region of Tyre and Sidon. And He entered a house and wanted no one to know _it,_ but He could not be hidden. 
+From there He arose and went to the region of Tyre and Sidon. And He entered a house and wanted no one to know it, but He could not be hidden. 
 
 ###### 25 
 For a woman whose young daughter had an unclean spirit heard about Him, and she came and fell at His feet. 
@@ -88,7 +88,7 @@ For a woman whose young daughter had an unclean spirit heard about Him, and she 
 The woman was a Greek, a Syro-Phoenician by birth, and she kept asking Him to cast the demon out of her daughter. 
 
 ###### 27 
-But Jesus said to her, "Let the children be filled first, for it is not good to take the children's bread and throw _it_ to the little dogs." 
+But Jesus said to her, "Let the children be filled first, for it is not good to take the children's bread and throw it to the little dogs." 
 
 ###### 28 
 And she answered and said to Him, "Yes, Lord, yet even the little dogs under the table eat from the children's crumbs." 
@@ -117,7 +117,7 @@ Then, looking up to heaven, He sighed, and said to him, "Ephphatha," that is, "B
 Immediately his ears were opened, and the impediment of his tongue was loosed, and he spoke plainly. 
 
 ###### 36 
-Then He commanded them that they should tell no one; but the more He commanded them, the more widely they proclaimed _it._ 
+Then He commanded them that they should tell no one; but the more He commanded them, the more widely they proclaimed it. 
 
 ###### 37 
 And they were astonished beyond measure, saying, "He has done all things well. He makes both the deaf to hear and the mute to speak."

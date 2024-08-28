@@ -73,7 +73,7 @@ Ang disyerto ay matutuwa na parang tao. Mamumulaklak ang mga halaman dito.
 
 
 
-Aawit at sisigaw ito sa tuwa, at mamumukadkad ang maraming bulaklak nito. Magiging maganda ito katulad ng Bundok ng Lebanon, at mamumunga ito nang sagana katulad ng kapatagan ng_ Carmel at Sharon. At mahahayag dito ang kapangyarihan at kadakilaan ng Panginoon na ating Dios. 
+Aawit at sisigaw ito sa tuwa, at mamumukadkad ang maraming bulaklak nito. Magiging maganda ito katulad ng Bundok ng Lebanon, at mamumunga ito nang sagana katulad ng kapatagan ng Carmel at Sharon. At mahahayag dito ang kapangyarihan at kadakilaan ng Panginoon na ating Dios. 
 
 
 

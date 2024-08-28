@@ -22,16 +22,16 @@ and said to him, 'Get out of your country and from your relatives, and come to a
 Then he came out of the land of the Chaldeans and dwelt in Haran. And from there, when his father was dead, He moved him to this land in which you now dwell. 
 
 ###### 5 
-And _God_ gave him no inheritance in it, not even _enough_ to set his foot on. But even when _Abraham_ had no child, He promised to give it to him for a possession, and to his descendants after him. 
+And God gave him no inheritance in it, not even enough to set his foot on. But even when Abraham had no child, He promised to give it to him for a possession, and to his descendants after him. 
 
 ###### 6 
-But God spoke in this way: that his descendants would dwell in a foreign land, and that they would bring them into bondage and oppress _them_ four hundred years. 
+But God spoke in this way: that his descendants would dwell in a foreign land, and that they would bring them into bondage and oppress them four hundred years. 
 
 ###### 7 
 'And the nation to whom they will be in bondage I will judge,' said God, 'and after that they shall come out and serve Me in this place.' 
 
 ###### 8 
-Then He gave him the covenant of circumcision; and so _Abraham_ begot Isaac and circumcised him on the eighth day; and Isaac _begot_ Jacob, and Jacob _begot_ the twelve patriarchs.
+Then He gave him the covenant of circumcision; and so Abraham begot Isaac and circumcised him on the eighth day; and Isaac begot Jacob, and Jacob begot the twelve patriarchs.
 
 ## The Patriarchs in Egypt 
 
@@ -48,16 +48,16 @@ Now a famine and great trouble came over all the land of Egypt and Canaan, and o
 But when Jacob heard that there was grain in Egypt, he sent out our fathers first. 
 
 ###### 13 
-And the second _time_ Joseph was made known to his brothers, and Joseph's family became known to the Pharaoh. 
+And the second time Joseph was made known to his brothers, and Joseph's family became known to the Pharaoh. 
 
 ###### 14 
-Then Joseph sent and called his father Jacob and all his relatives to _him,_ seventy-five people. 
+Then Joseph sent and called his father Jacob and all his relatives to him, seventy-five people. 
 
 ###### 15 
 So Jacob went down to Egypt; and he died, he and our fathers. 
 
 ###### 16 
-And they were carried back to Shechem and laid in the tomb that Abraham bought for a sum of money from the sons of Hamor, _the father_ of Shechem.
+And they were carried back to Shechem and laid in the tomb that Abraham bought for a sum of money from the sons of Hamor, the father of Shechem.
 
 ## God Delivers Israel by Moses 
 
@@ -83,13 +83,13 @@ And Moses was learned in all the wisdom of the Egyptians, and was mighty in word
 "Now when he was forty years old, it came into his heart to visit his brethren, the children of Israel. 
 
 ###### 24 
-And seeing one of _them_ suffer wrong, he defended and avenged him who was oppressed, and struck down the Egyptian. 
+And seeing one of them suffer wrong, he defended and avenged him who was oppressed, and struck down the Egyptian. 
 
 ###### 25 
 For he supposed that his brethren would have understood that God would deliver them by his hand, but they did not understand. 
 
 ###### 26 
-And the next day he appeared to _two of_ them as they were fighting, and _tried to_ reconcile them, saying, 'Men, you are brethren; why do you wrong one another?' 
+And the next day he appeared to two of them as they were fighting, and tried to reconcile them, saying, 'Men, you are brethren; why do you wrong one another?' 
 
 ###### 27 
 But he who did his neighbor wrong pushed him away, saying, 'Who made you a ruler and a judge over us? 
@@ -104,10 +104,10 @@ Then, at this saying, Moses fled and became a dweller in the land of Midian, whe
 "And when forty years had passed, an Angel of the Lord appeared to him in a flame of fire in a bush, in the wilderness of Mount Sinai. 
 
 ###### 31 
-When Moses saw _it,_ he marveled at the sight; and as he drew near to observe, the voice of the Lord came to him, 
+When Moses saw it, he marveled at the sight; and as he drew near to observe, the voice of the Lord came to him, 
 
 ###### 32 
-_saying,_ 'I _am_ the God of your fathers--the God of Abraham, the God of Isaac, and the God of Jacob.' And Moses trembled and dared not look. 
+saying, 'I am the God of your fathers--the God of Abraham, the God of Isaac, and the God of Jacob.' And Moses trembled and dared not look. 
 
 ###### 33 
 'Then the Lord said to him, "Take your sandals off your feet, for the place where you stand is holy ground. 
@@ -116,7 +116,7 @@ _saying,_ 'I _am_ the God of your fathers--the God of Abraham, the God of Isaac,
 I have surely seen the oppression of My people who are in Egypt; I have heard their groaning and have come down to deliver them. And now come, I will send you to Egypt." ' 
 
 ###### 35 
-"This Moses whom they rejected, saying, 'Who made you a ruler and a judge?' is the one God sent _to be_ a ruler and a deliverer by the hand of the Angel who appeared to him in the bush. 
+"This Moses whom they rejected, saying, 'Who made you a ruler and a judge?' is the one God sent to be a ruler and a deliverer by the hand of the Angel who appeared to him in the bush. 
 
 ###### 36 
 He brought them out, after he had shown wonders and signs in the land of Egypt, and in the Red Sea, and in the wilderness forty years.
@@ -127,19 +127,19 @@ He brought them out, after he had shown wonders and signs in the land of Egypt, 
 "This is that Moses who said to the children of Israel, 'The Lord your God will raise up for you a Prophet like me from your brethren. Him you shall hear.' 
 
 ###### 38 
-"This is he who was in the congregation in the wilderness with the Angel who spoke to him on Mount Sinai, and _with_ our fathers, the one who received the living oracles to give to us, 
+"This is he who was in the congregation in the wilderness with the Angel who spoke to him on Mount Sinai, and with our fathers, the one who received the living oracles to give to us, 
 
 ###### 39 
 whom our fathers would not obey, but rejected. And in their hearts they turned back to Egypt, 
 
 ###### 40 
-saying to Aaron, 'Make us gods to go before us; _as for_ this Moses who brought us out of the land of Egypt, we do not know what has become of him.' 
+saying to Aaron, 'Make us gods to go before us; as for this Moses who brought us out of the land of Egypt, we do not know what has become of him.' 
 
 ###### 41 
 And they made a calf in those days, offered sacrifices to the idol, and rejoiced in the works of their own hands. 
 
 ###### 42 
-Then God turned and gave them up to worship the host of heaven, as it is written in the book of the Prophets: 'Did you offer Me slaughtered animals and sacrifices _during_ forty years in the wilderness, O house of Israel? 
+Then God turned and gave them up to worship the host of heaven, as it is written in the book of the Prophets: 'Did you offer Me slaughtered animals and sacrifices during forty years in the wilderness, O house of Israel? 
 
 ###### 43 
 You also took up the tabernacle of Moloch, And the star of your god Remphan, Images which you made to worship; And I will carry you away beyond Babylon.' ## God's True Tabernacle 
@@ -160,22 +160,22 @@ But Solomon built Him a house.
 "However, the Most High does not dwell in temples made with hands, as the prophet says: 
 
 ###### 49 
-'Heaven _is_ My throne, And earth _is_ My footstool. What house will you build for Me? says the Lord, Or what _is_ the place of My rest? 
+'Heaven is My throne, And earth is My footstool. What house will you build for Me? says the Lord, Or what is the place of My rest? 
 
 ###### 50 
 Has My hand not made all these things?' ## Israel Resists the Holy Spirit 
 
 ###### 51 
-"_You_ stiff-necked and uncircumcised in heart and ears! You always resist the Holy Spirit; as your fathers _did,_ so _do_ you. 
+"You stiff-necked and uncircumcised in heart and ears! You always resist the Holy Spirit; as your fathers did, so do you. 
 
 ###### 52 
 Which of the prophets did your fathers not persecute? And they killed those who foretold the coming of the Just One, of whom you now have become the betrayers and murderers, 
 
 ###### 53 
-who have received the law by the direction of angels and have not kept _it._" ## Stephen the Martyr 
+who have received the law by the direction of angels and have not kept it." ## Stephen the Martyr 
 
 ###### 54 
-When they heard these things they were cut to the heart, and they gnashed at him with _their_ teeth. 
+When they heard these things they were cut to the heart, and they gnashed at him with their teeth. 
 
 ###### 55 
 But he, being full of the Holy Spirit, gazed into heaven and saw the glory of God, and Jesus standing at the right hand of God, 
@@ -187,10 +187,10 @@ and said, "Look! I see the heavens opened and the Son of Man standing at the rig
 Then they cried out with a loud voice, stopped their ears, and ran at him with one accord; 
 
 ###### 58 
-and they cast _him_ out of the city and stoned _him._ And the witnesses laid down their clothes at the feet of a young man named Saul. 
+and they cast him out of the city and stoned him. And the witnesses laid down their clothes at the feet of a young man named Saul. 
 
 ###### 59 
-And they stoned Stephen as he was calling on _God_ and saying, "Lord Jesus, receive my spirit." 
+And they stoned Stephen as he was calling on God and saying, "Lord Jesus, receive my spirit." 
 
 ###### 60 
 Then he knelt down and cried out with a loud voice, "Lord, do not charge them with this sin." And when he had said this, he fell asleep.

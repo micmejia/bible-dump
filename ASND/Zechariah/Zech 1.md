@@ -39,9 +39,9 @@ next: ['Zech 2']
 
 
 
-May sinabi ang Panginoon kay Propeta Zacarias noong ikawalong buwan ng ikalawang taon ng paghahari ni Darius sa Persia_. Si Zacarias ay anak ni Berekia na anak ni Iddo.
+May sinabi ang Panginoon kay Propeta Zacarias noong ikawalong buwan ng ikalawang taon ng paghahari ni Darius sa Persia. Si Zacarias ay anak ni Berekia na anak ni Iddo.
 
-###### 2-3 Inutusan ng Panginoong Makapangyarihan si Zacarias na sabihin ito sa mga mamamayan ng Israel_: "Matindi ang galit ko sa inyong mga ninuno. Kaya magbalik-loob na kayo sa akin at manunumbalik ako sa inyo. 
+###### 2-3 Inutusan ng Panginoong Makapangyarihan si Zacarias na sabihin ito sa mga mamamayan ng Israel: "Matindi ang galit ko sa inyong mga ninuno. Kaya magbalik-loob na kayo sa akin at manunumbalik ako sa inyo. 
 
 
 
@@ -142,7 +142,7 @@ Ang inyong mga ninuno at ang mga propetang iyon ay namatay na.
 
 Ngunit nangyari sa inyong mga ninuno ang aking mga sinabi at mga babala sa pamamagitan ng aking mga lingkod na propeta. Kaya nagsisi sila at sinabi, 'Pinarusahan tayo ng Panginoong Makapangyarihan ayon sa ating ginawa, gaya ng kanyang napagpasyahang gawin sa atin.' " ## Ang Pangitain tungkol sa mga Kabayo
 
-###### 7-8 May sinabi ang Panginoon kay Zacarias sa pamamagitan ng isang pangitain. Nangyari ito noong gabi ng ika-24, buwan ng Shebat (ika-11 buwan), noong ikalawang taon ng paghahari ni Darius. At ito ang ipinahayag ni Zacarias:_ Nakita ko ang isang tao na nakasakay sa kabayong kulay pula na nakatigil sa isang patag na lugar na may mga puno ng mirto. Sa likuran niya ay may nakasakay sa_ kabayong pula, kayumanggi, at puti. 
+###### 7-8 May sinabi ang Panginoon kay Zacarias sa pamamagitan ng isang pangitain. Nangyari ito noong gabi ng ika-24, buwan ng Shebat (ika-11 buwan), noong ikalawang taon ng paghahari ni Darius. At ito ang ipinahayag ni Zacarias: Nakita ko ang isang tao na nakasakay sa kabayong kulay pula na nakatigil sa isang patag na lugar na may mga puno ng mirto. Sa likuran niya ay may nakasakay sa kabayong pula, kayumanggi, at puti. 
 
 
 
@@ -439,7 +439,7 @@ Kaya babalik akong may awa sa Jerusalem, at itatayo kong muli ang lungsod na ito
 
 
 
-Sinabi ng anghel na sabihin ko pa itong ipinapasabi ng Makapangyarihang Panginoon: "Uunlad muli ang aking mga bayan sa Juda_. At aaliwin kong muli ang Zion, ang lungsod ng Jerusalem, at muli ko itong ituturing na hinirang kong bayan." ## Ang Pangitain tungkol sa Apat na Sungay at Apat na Panday 
+Sinabi ng anghel na sabihin ko pa itong ipinapasabi ng Makapangyarihang Panginoon: "Uunlad muli ang aking mga bayan sa Juda. At aaliwin kong muli ang Zion, ang lungsod ng Jerusalem, at muli ko itong ituturing na hinirang kong bayan." ## Ang Pangitain tungkol sa Apat na Sungay at Apat na Panday 
 
 
 

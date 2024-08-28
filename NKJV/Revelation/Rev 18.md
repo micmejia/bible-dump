@@ -28,10 +28,10 @@ For her sins have reached to heaven, and God has remembered her iniquities.
 Render to her just as she rendered to you, and repay her double according to her works; in the cup which she has mixed, mix double for her. 
 
 ###### 7 
-In the measure that she glorified herself and lived luxuriously, in the same measure give her torment and sorrow; for she says in her heart, 'I sit _as_ queen, and am no widow, and will not see sorrow.' 
+In the measure that she glorified herself and lived luxuriously, in the same measure give her torment and sorrow; for she says in her heart, 'I sit as queen, and am no widow, and will not see sorrow.' 
 
 ###### 8 
-Therefore her plagues will come in one day--death and mourning and famine. And she will be utterly burned with fire, for strong _is_ the Lord God who judges her.
+Therefore her plagues will come in one day--death and mourning and famine. And she will be utterly burned with fire, for strong is the Lord God who judges her.
 
 ## The World Mourns Babylon's Fall 
 
@@ -63,16 +63,16 @@ and saying, 'Alas, alas, that great city that was clothed in fine linen, purple,
 For in one hour such great riches came to nothing.' Every shipmaster, all who travel by ship, sailors, and as many as trade on the sea, stood at a distance 
 
 ###### 18 
-and cried out when they saw the smoke of her burning, saying, 'What _is_ like this great city?' 
+and cried out when they saw the smoke of her burning, saying, 'What is like this great city?' 
 
 ###### 19 
 "They threw dust on their heads and cried out, weeping and wailing, and saying, 'Alas, alas, that great city, in which all who had ships on the sea became rich by her wealth! For in one hour she is made desolate.' 
 
 ###### 20 
-"Rejoice over her, O heaven, and _you_ holy apostles and prophets, for God has avenged you on her!" ## Finality of Babylon's Fall 
+"Rejoice over her, O heaven, and you holy apostles and prophets, for God has avenged you on her!" ## Finality of Babylon's Fall 
 
 ###### 21 
-Then a mighty angel took up a stone like a great millstone and threw _it_ into the sea, saying, "Thus with violence the great city Babylon shall be thrown down, and shall not be found anymore. 
+Then a mighty angel took up a stone like a great millstone and threw it into the sea, saying, "Thus with violence the great city Babylon shall be thrown down, and shall not be found anymore. 
 
 ###### 22 
 The sound of harpists, musicians, flutists, and trumpeters shall not be heard in you anymore. No craftsman of any craft shall be found in you anymore, and the sound of a millstone shall not be heard in you anymore. 

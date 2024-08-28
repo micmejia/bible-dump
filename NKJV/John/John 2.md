@@ -22,7 +22,7 @@ And when they ran out of wine, the mother of Jesus said to Him, "They have no wi
 Jesus said to her, "Woman, what does your concern have to do with Me? My hour has not yet come." 
 
 ###### 5 
-His mother said to the servants, "Whatever He says to you, do _it._" 
+His mother said to the servants, "Whatever He says to you, do it." 
 
 ###### 6 
 Now there were set there six waterpots of stone, according to the manner of purification of the Jews, containing twenty or thirty gallons apiece. 
@@ -31,13 +31,13 @@ Now there were set there six waterpots of stone, according to the manner of puri
 Jesus said to them, "Fill the waterpots with water." And they filled them up to the brim. 
 
 ###### 8 
-And He said to them, "Draw _some_ out now, and take _it_ to the master of the feast." And they took _it._ 
+And He said to them, "Draw some out now, and take it to the master of the feast." And they took it. 
 
 ###### 9 
 When the master of the feast had tasted the water that was made wine, and did not know where it came from (but the servants who had drawn the water knew), the master of the feast called the bridegroom. 
 
 ###### 10 
-And he said to him, "Every man at the beginning sets out the good wine, and when the _guests_ have well drunk, then the inferior. You have kept the good wine until now!" 
+And he said to him, "Every man at the beginning sets out the good wine, and when the guests have well drunk, then the inferior. You have kept the good wine until now!" 
 
 ###### 11 
 This beginning of signs Jesus did in Cana of Galilee, and manifested His glory; and His disciples believed in Him. 
@@ -83,7 +83,7 @@ Therefore, when He had risen from the dead, His disciples remembered that He had
 Now when He was in Jerusalem at the Passover, during the feast, many believed in His name when they saw the signs which He did. 
 
 ###### 24 
-But Jesus did not commit Himself to them, because He knew all _men,_ 
+But Jesus did not commit Himself to them, because He knew all men, 
 
 ###### 25 
 and had no need that anyone should testify of man, for He knew what was in man.

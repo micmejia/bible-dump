@@ -33,7 +33,7 @@ And he preached, saying, "There comes One after me who is mightier than I, whose
 I indeed baptized you with water, but He will baptize you with the Holy Spirit." ## John Baptizes Jesus 
 
 ###### 9 
-It came to pass in those days _that_ Jesus came from Nazareth of Galilee, and was baptized by John in the Jordan. 
+It came to pass in those days that Jesus came from Nazareth of Galilee, and was baptized by John in the Jordan. 
 
 ###### 10 
 And immediately, coming up from the water, He saw the heavens parting and the Spirit descending upon Him like a dove. 
@@ -65,7 +65,7 @@ Then Jesus said to them, "Follow Me, and I will make you become fishers of men."
 They immediately left their nets and followed Him. 
 
 ###### 19 
-When He had gone a little farther from there, He saw James the _son_ of Zebedee, and John his brother, who also _were_ in the boat mending their nets. 
+When He had gone a little farther from there, He saw James the son of Zebedee, and John his brother, who also were in the boat mending their nets. 
 
 ###### 20 
 And immediately He called them, and they left their father Zebedee in the boat with the hired servants, and went after Him.
@@ -82,7 +82,7 @@ And they were astonished at His teaching, for He taught them as one having autho
 Now there was a man in their synagogue with an unclean spirit. And he cried out, 
 
 ###### 24 
-saying, "Let _us_ alone! What have we to do with You, Jesus of Nazareth? Did You come to destroy us? I know who You are--the Holy One of God!" 
+saying, "Let us alone! What have we to do with You, Jesus of Nazareth? Did You come to destroy us? I know who You are--the Holy One of God!" 
 
 ###### 25 
 But Jesus rebuked him, saying, "Be quiet, and come out of him!" 
@@ -91,7 +91,7 @@ But Jesus rebuked him, saying, "Be quiet, and come out of him!"
 And when the unclean spirit had convulsed him and cried out with a loud voice, he came out of him. 
 
 ###### 27 
-Then they were all amazed, so that they questioned among themselves, saying, "What is this? What new doctrine _is_ this? For with authority He commands even the unclean spirits, and they obey Him." 
+Then they were all amazed, so that they questioned among themselves, saying, "What is this? What new doctrine is this? For with authority He commands even the unclean spirits, and they obey Him." 
 
 ###### 28 
 And immediately His fame spread throughout all the region around Galilee.
@@ -124,7 +124,7 @@ Then He healed many who were sick with various diseases, and cast out many demon
 Now in the morning, having risen a long while before daylight, He went out and departed to a solitary place; and there He prayed. 
 
 ###### 36 
-And Simon and those _who were_ with Him searched for Him. 
+And Simon and those who were with Him searched for Him. 
 
 ###### 37 
 When they found Him, they said to Him, "Everyone is looking for You." 
@@ -141,7 +141,7 @@ And He was preaching in their synagogues throughout all Galilee, and casting out
 Now a leper came to Him, imploring Him, kneeling down to Him and saying to Him, "If You are willing, You can make me clean." 
 
 ###### 41 
-Then Jesus, moved with compassion, stretched out _His_ hand and touched him, and said to him, "I am willing; be cleansed." 
+Then Jesus, moved with compassion, stretched out His hand and touched him, and said to him, "I am willing; be cleansed." 
 
 ###### 42 
 As soon as He had spoken, immediately the leprosy left him, and he was cleansed. 
@@ -153,4 +153,4 @@ And He strictly warned him and sent him away at once,
 and said to him, "See that you say nothing to anyone; but go your way, show yourself to the priest, and offer for your cleansing those things which Moses commanded, as a testimony to them." 
 
 ###### 45 
-However, he went out and began to proclaim _it_ freely, and to spread the matter, so that Jesus could no longer openly enter the city, but was outside in deserted places; and they came to Him from every direction.
+However, he went out and began to proclaim it freely, and to spread the matter, so that Jesus could no longer openly enter the city, but was outside in deserted places; and they came to Him from every direction.

@@ -10,7 +10,7 @@ next: ['Jer 50']
 
 
 ###### 1 
-Against the Ammonites. Thus says the Lord: "Has Israel no sons? Has he no heir? Why _then_ does Milcom inherit Gad, And his people dwell in its cities? 
+Against the Ammonites. Thus says the Lord: "Has Israel no sons? Has he no heir? Why then does Milcom inherit Gad, And his people dwell in its cities? 
 
 ###### 2 
 Therefore behold, the days are coming," says the Lord, "That I will cause to be heard an alarm of war In Rabbah of the Ammonites; It shall be a desolate mound, And her villages shall be burned with fire. Then Israel shall take possession of his inheritance," says the Lord. 
@@ -19,7 +19,7 @@ Therefore behold, the days are coming," says the Lord, "That I will cause to be 
 "Wail, O Heshbon, for Ai is plundered! Cry, you daughters of Rabbah, Gird yourselves with sackcloth! Lament and run to and fro by the walls; For Milcom shall go into captivity With his priests and his princes together. 
 
 ###### 4 
-Why do you boast in the valleys, Your flowing valley, O backsliding daughter? Who trusted in her treasures, _saying,_ 'Who will come against me?' 
+Why do you boast in the valleys, Your flowing valley, O backsliding daughter? Who trusted in her treasures, saying, 'Who will come against me?' 
 
 ###### 5 
 Behold, I will bring fear upon you," Says the Lord God of hosts, "From all those who are around you; You shall be driven out, everyone headlong, And no one will gather those who wander off. 
@@ -30,22 +30,22 @@ But afterward I will bring back The captives of the people of Ammon," says the L
 ## Judgment on Edom 
 
 ###### 7 
-Against Edom. Thus says the Lord of hosts: "_Is_ wisdom no more in Teman? Has counsel perished from the prudent? Has their wisdom vanished? 
+Against Edom. Thus says the Lord of hosts: "Is wisdom no more in Teman? Has counsel perished from the prudent? Has their wisdom vanished? 
 
 ###### 8 
-Flee, turn back, dwell in the depths, O inhabitants of Dedan! For I will bring the calamity of Esau upon him, The time _that_ I will punish him. 
+Flee, turn back, dwell in the depths, O inhabitants of Dedan! For I will bring the calamity of Esau upon him, The time that I will punish him. 
 
 ###### 9 
-If grape-gatherers came to you, Would they not leave _some_ gleaning grapes? If thieves by night, Would they not destroy until they have enough? 
+If grape-gatherers came to you, Would they not leave some gleaning grapes? If thieves by night, Would they not destroy until they have enough? 
 
 ###### 10 
-But I have made Esau bare; I have uncovered his secret places, And he shall not be able to hide himself. His descendants are plundered, His brethren and his neighbors, And he _is_ no more. 
+But I have made Esau bare; I have uncovered his secret places, And he shall not be able to hide himself. His descendants are plundered, His brethren and his neighbors, And he is no more. 
 
 ###### 11 
-Leave your fatherless children, I will preserve _them_ alive; And let your widows trust in Me." 
+Leave your fatherless children, I will preserve them alive; And let your widows trust in Me." 
 
 ###### 12 
-For thus says the Lord: "Behold, those whose judgment _was_ not to drink of the cup have assuredly drunk. And _are_ you the one who will altogether go unpunished? You shall not go unpunished, but you shall surely drink _of it._ 
+For thus says the Lord: "Behold, those whose judgment was not to drink of the cup have assuredly drunk. And are you the one who will altogether go unpunished? You shall not go unpunished, but you shall surely drink of it. 
 
 ###### 13 
 For I have sworn by Myself," says the Lord, "that Bozrah shall become a desolation, a reproach, a waste, and a curse. And all its cities shall be perpetual wastes." 
@@ -66,7 +66,7 @@ Your fierceness has deceived you, The pride of your heart, O you who dwell in th
 As in the overthrow of Sodom and Gomorrah And their neighbors," says the Lord, "No one shall remain there, Nor shall a son of man dwell in it. 
 
 ###### 19 
-"Behold, he shall come up like a lion from the floodplain of the Jordan Against the dwelling place of the strong; But I will suddenly make him run away from her. And who _is_ a chosen _man that_ I may appoint over her? For who _is_ like Me? Who will arraign Me? And who _is_ that shepherd Who will withstand Me?" 
+"Behold, he shall come up like a lion from the floodplain of the Jordan Against the dwelling place of the strong; But I will suddenly make him run away from her. And who is a chosen man that I may appoint over her? For who is like Me? Who will arraign Me? And who is that shepherd Who will withstand Me?" 
 
 ###### 20 
 Therefore hear the counsel of the Lord that He has taken against Edom, And His purposes that He has proposed against the inhabitants of Teman: Surely the least of the flock shall draw them out; Surely He shall make their dwelling places desolate with them. 
@@ -80,10 +80,10 @@ Behold, He shall come up and fly like the eagle, And spread His wings over Bozra
 ## Judgment on Damascus 
 
 ###### 23 
-Against Damascus. "Hamath and Arpad are shamed, For they have heard bad news. They are fainthearted; _There is_ trouble on the sea; It cannot be quiet. 
+Against Damascus. "Hamath and Arpad are shamed, For they have heard bad news. They are fainthearted; There is trouble on the sea; It cannot be quiet. 
 
 ###### 24 
-Damascus has grown feeble; She turns to flee, And fear has seized _her._ Anguish and sorrows have taken her like a woman in labor. 
+Damascus has grown feeble; She turns to flee, And fear has seized her. Anguish and sorrows have taken her like a woman in labor. 
 
 ###### 25 
 Why is the city of praise not deserted, the city of My joy? 
@@ -98,7 +98,7 @@ Therefore her young men shall fall in her streets, And all the men of war shall 
 Against Kedar and against the kingdoms of Hazor, which Nebuchadnezzar king of Babylon shall strike. Thus says the Lord: "Arise, go up to Kedar, And devastate the men of the East! 
 
 ###### 29 
-Their tents and their flocks they shall take away. They shall take for themselves their curtains, All their vessels and their camels; And they shall cry out to them, 'Fear _is_ on every side!' 
+Their tents and their flocks they shall take away. They shall take for themselves their curtains, All their vessels and their camels; And they shall cry out to them, 'Fear is on every side!' 
 
 ###### 30 
 "Flee, get far away! Dwell in the depths, O inhabitants of Hazor!" says the Lord. "For Nebuchadnezzar king of Babylon has taken counsel against you, And has conceived a plan against you. 

@@ -73,7 +73,7 @@ umalis siya sa Judea at bumalik sa Galilea.
 
 
 
-Para makabalik sa Galilea,_ kailangan niyang dumaan sa Samaria. 
+Para makabalik sa Galilea, kailangan niyang dumaan sa Samaria. 
 
 
 
@@ -139,9 +139,9 @@ Nang dumadaan na sila sa Samaria, dumating sila sa isang bayan na tinatawag na S
 
 
 
-May balon doon na ginawa ni Jacob. Dahil tanghaling-tapat na noon at pagod na si Jesus sa paglalakbay, umupo siya sa tabi ng balon para magpahinga_.
+May balon doon na ginawa ni Jacob. Dahil tanghaling-tapat na noon at pagod na si Jesus sa paglalakbay, umupo siya sa tabi ng balon para magpahinga.
 
-###### 7-8 Tumuloy naman ang mga tagasunod niya sa bayan upang bumili ng pagkain. Habang nakaupo si Jesus,_ dumating ang isang babaeng taga-Samaria para umigib. Sinabi ni Jesus sa kanya, "Pwede bang makiinom?" 
+###### 7-8 Tumuloy naman ang mga tagasunod niya sa bayan upang bumili ng pagkain. Habang nakaupo si Jesus, dumating ang isang babaeng taga-Samaria para umigib. Sinabi ni Jesus sa kanya, "Pwede bang makiinom?" 
 
 
 
@@ -537,7 +537,7 @@ Sumagot ang babae, "Sa tingin ko, isa po kayong propeta.
 
 
 
-Ang aming mga ninuno ay sumamba sa Dios sa bundok na ito, pero kayong mga Judio_ ay nagsasabi na sa Jerusalem lang dapat sumamba ang mga tao." 
+Ang aming mga ninuno ay sumamba sa Dios sa bundok na ito, pero kayong mga Judio ay nagsasabi na sa Jerusalem lang dapat sumamba ang mga tao." 
 
 
 
@@ -603,7 +603,7 @@ Sinabi ni Jesus sa kanya, "Maniwala ka sa akin; darating ang panahon na hindi na
 
 
 
-Kayo na mga Samaritano_ ay hindi nakakakilala sa sinasamba ninyo. Ngunit kilala naming mga Judio ang aming sinasamba, dahil sa pamamagitan namin ay ililigtas ng Dios ang mga tao. 
+Kayo na mga Samaritano ay hindi nakakakilala sa sinasamba ninyo. Ngunit kilala naming mga Judio ang aming sinasamba, dahil sa pamamagitan namin ay ililigtas ng Dios ang mga tao. 
 
 
 
@@ -1065,7 +1065,7 @@ Hindi ba sinasabi nʼyo na apat na buwan pa bago ang anihan? Ngunit sinasabi ko 
 
 
 
-Kayong_ mga tagapag-ani ay tatanggap ng gantimpala mula sa Dios_. At ang mga taong_ inaani ninyo ay bibigyan niya ng buhay na walang hanggan. Kaya magkasamang matutuwa ang nagtanim ng salita ng Dios_ at ang nag-ani. 
+Kayong mga tagapag-ani ay tatanggap ng gantimpala mula sa Dios. At ang mga taong inaani ninyo ay bibigyan niya ng buhay na walang hanggan. Kaya magkasamang matutuwa ang nagtanim ng salita ng Dios at ang nag-ani. 
 
 
 
@@ -1131,7 +1131,7 @@ Totoo ang kasabihang, 'Iba ang nagtatanim at iba rin ang umaani.'
 
 
 
-Sinugo ko kayo upang anihin ang hindi ninyo itinanim. Iba ang nagtanim ng salita ng Dios_, at kayo ang umaani ng kanilang pinaghirapan." ## Maraming Samaritano ang Sumampalataya 
+Sinugo ko kayo upang anihin ang hindi ninyo itinanim. Iba ang nagtanim ng salita ng Dios, at kayo ang umaani ng kanilang pinaghirapan." ## Maraming Samaritano ang Sumampalataya 
 
 
 
@@ -1263,7 +1263,7 @@ Dahil sa pangangaral niya, marami pa sa kanila ang sumampalataya.
 
 
 
-Sinabi ng mga tao sa babae, "Sumasampalataya kami ngayon hindi lang dahil sa sinabi mo sa amin ang tungkol sa kanya_, kundi dahil sa narinig namin mismo sa kanya. At alam naming siya nga ang Tagapagligtas ng mundo." ## Pinagaling ni Jesus ang Anak ng Isang Opisyal 
+Sinabi ng mga tao sa babae, "Sumasampalataya kami ngayon hindi lang dahil sa sinabi mo sa amin ang tungkol sa kanya, kundi dahil sa narinig namin mismo sa kanya. At alam naming siya nga ang Tagapagligtas ng mundo." ## Pinagaling ni Jesus ang Anak ng Isang Opisyal 
 
 
 
@@ -1362,7 +1362,7 @@ Pagkatapos ng dalawang araw na pamamalagi roon ni Jesus, umalis siya papuntang G
 
 
 
-Nang dumating siya sa Galilea, malugod siyang tinanggap ng mga tao, dahil naroon sila sa Jerusalem noong Pista ng Paglampas ng Anghel_ at nakita nila ang lahat ng ginawa niya roon. 
+Nang dumating siya sa Galilea, malugod siyang tinanggap ng mga tao, dahil naroon sila sa Jerusalem noong Pista ng Paglampas ng Anghel at nakita nila ang lahat ng ginawa niya roon. 
 
 
 
@@ -1428,7 +1428,7 @@ Muling bumalik si Jesus sa bayan ng Cana sa Galilea kung saan ginawa niyang alak
 
 
 
-Nang mabalitaan niyang bumalik si Jesus sa Galilea mula sa Judea, pinuntahan niya ito. Nakiusap siya kay Jesus na pumunta sa Capernaum_ at pagalingin ang anak niyang nag-aagaw-buhay. 
+Nang mabalitaan niyang bumalik si Jesus sa Galilea mula sa Judea, pinuntahan niya ito. Nakiusap siya kay Jesus na pumunta sa Capernaum at pagalingin ang anak niyang nag-aagaw-buhay. 
 
 
 
@@ -1626,7 +1626,7 @@ Kaya tinanong niya kung anong oras ito gumaling. Sumagot sila, "Kahapon po ng mg
 
 
 
-Naalala ng opisyal na nang oras ding iyon ay sinabi sa kanya ni Jesus na magaling na ang anak niya. Kaya siya at ang buong pamilya niya ay sumampalataya kay Jesus_. 
+Naalala ng opisyal na nang oras ding iyon ay sinabi sa kanya ni Jesus na magaling na ang anak niya. Kaya siya at ang buong pamilya niya ay sumampalataya kay Jesus. 
 
 
 

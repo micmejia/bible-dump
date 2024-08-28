@@ -139,7 +139,7 @@ Panginoon, bigyan nʼyo nang lubos na kapayapaan ang taong kayo lagi ang iniisip
 
 
 
-Magtiwala kayong lagi sa Panginoon, dahil siya ang ating Bato na kanlungan_ magpakailanman. 
+Magtiwala kayong lagi sa Panginoon, dahil siya ang ating Bato na kanlungan magpakailanman. 
 
 
 
@@ -370,7 +370,7 @@ Kahit kinaaawaan nʼyo ang masasama, hindi pa rin sila natututong mamuhay nang m
 
 
 
-Panginoon, nakahanda na po kayong magparusa sa kanila, pero hindi nila alam. Ipaalam nʼyo sa kanila, Panginoon._ Ilagay nʼyo po sila sa kahihiyan. Ipakita nʼyo sa kanila kung gaano nʼyo kamahal ang iyong mga mamamayan. Lipulin nʼyo po sa pamamagitan ng inyong apoy ang inyong mga kaaway. 
+Panginoon, nakahanda na po kayong magparusa sa kanila, pero hindi nila alam. Ipaalam nʼyo sa kanila, Panginoon. Ilagay nʼyo po sila sa kahihiyan. Ipakita nʼyo sa kanila kung gaano nʼyo kamahal ang iyong mga mamamayan. Lipulin nʼyo po sa pamamagitan ng inyong apoy ang inyong mga kaaway. 
 
 
 
@@ -601,7 +601,7 @@ Panginoon, kitang-kita nʼyo ang aming paghihirap. Tulad kami ng isang babaeng n
 
 
 
-Dumaing kami dahil sa hirap, pero wala rin kaming iniluwal. Wala kaming nagawa para iligtas ang lupain namin_, at hindi rin namin nalipol ang mga taong kaaway namin dito sa mundo. 
+Dumaing kami dahil sa hirap, pero wala rin kaming iniluwal. Wala kaming nagawa para iligtas ang lupain namin, at hindi rin namin nalipol ang mga taong kaaway namin dito sa mundo. 
 
 
 

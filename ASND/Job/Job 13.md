@@ -40,7 +40,7 @@ next: ['Job 14']
 
 
 
-"Nakita koʼt napakinggan ang lahat ng sinabi ninyo_, at itoʼy aking naunawaan. 
+"Nakita koʼt napakinggan ang lahat ng sinabi ninyo, at itoʼy aking naunawaan. 
 
 
 

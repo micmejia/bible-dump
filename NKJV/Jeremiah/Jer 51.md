@@ -16,19 +16,19 @@ Thus says the Lord: "Behold, I will raise up against Babylon, Against those who 
 And I will send winnowers to Babylon, Who shall winnow her and empty her land. For in the day of doom They shall be against her all around. 
 
 ###### 3 
-Against _her_ let the archer bend his bow, And lift himself up against _her_ in his armor. Do not spare her young men; Utterly destroy all her army. 
+Against her let the archer bend his bow, And lift himself up against her in his armor. Do not spare her young men; Utterly destroy all her army. 
 
 ###### 4 
-Thus the slain shall fall in the land of the Chaldeans, And _those_ thrust through in her streets. 
+Thus the slain shall fall in the land of the Chaldeans, And those thrust through in her streets. 
 
 ###### 5 
 For Israel is not forsaken, nor Judah, By his God, the Lord of hosts, Though their land was filled with sin against the Holy One of Israel." 
 
 ###### 6 
-Flee from the midst of Babylon, And every one save his life! Do not be cut off in her iniquity, For this _is_ the time of the Lord's vengeance; He shall recompense her. 
+Flee from the midst of Babylon, And every one save his life! Do not be cut off in her iniquity, For this is the time of the Lord's vengeance; He shall recompense her. 
 
 ###### 7 
-Babylon _was_ a golden cup in the Lord's hand, That made all the earth drunk. The nations drank her wine; Therefore the nations are deranged. 
+Babylon was a golden cup in the Lord's hand, That made all the earth drunk. The nations drank her wine; Therefore the nations are deranged. 
 
 ###### 8 
 Babylon has suddenly fallen and been destroyed. Wail for her! Take balm for her pain; Perhaps she may be healed. 
@@ -40,7 +40,7 @@ We would have healed Babylon, But she is not healed. Forsake her, and let us go 
 The Lord has revealed our righteousness. Come and let us declare in Zion the work of the Lord our God. 
 
 ###### 11 
-Make the arrows bright! Gather the shields! The Lord has raised up the spirit of the kings of the Medes. For His plan _is_ against Babylon to destroy it, Because it _is_ the vengeance of the Lord, The vengeance for His temple. 
+Make the arrows bright! Gather the shields! The Lord has raised up the spirit of the kings of the Medes. For His plan is against Babylon to destroy it, Because it is the vengeance of the Lord, The vengeance for His temple. 
 
 ###### 12 
 Set up the standard on the walls of Babylon; Make the guard strong, Set up the watchmen, Prepare the ambushes. For the Lord has both devised and done What He spoke against the inhabitants of Babylon. 
@@ -55,19 +55,19 @@ The Lord of hosts has sworn by Himself: "Surely I will fill you with men, as wit
 He has made the earth by His power; He has established the world by His wisdom, And stretched out the heaven by His understanding. 
 
 ###### 16 
-When He utters _His_ voice-- _There is_ a multitude of waters in the heavens: "He causes the vapors to ascend from the ends of the earth; He makes lightnings for the rain; He brings the wind out of His treasuries." 
+When He utters His voice-- There is a multitude of waters in the heavens: "He causes the vapors to ascend from the ends of the earth; He makes lightnings for the rain; He brings the wind out of His treasuries." 
 
 ###### 17 
-Everyone is dull-hearted, without knowledge; Every metalsmith is put to shame by the carved image; For his molded image _is_ falsehood, And _there is_ no breath in them. 
+Everyone is dull-hearted, without knowledge; Every metalsmith is put to shame by the carved image; For his molded image is falsehood, And there is no breath in them. 
 
 ###### 18 
-They _are_ futile, a work of errors; In the time of their punishment they shall perish. 
+They are futile, a work of errors; In the time of their punishment they shall perish. 
 
 ###### 19 
-The Portion of Jacob _is_ not like them, For He _is_ the Maker of all things; And _Israel is_ the tribe of His inheritance. The Lord of hosts _is_ His name. 
+The Portion of Jacob is not like them, For He is the Maker of all things; And Israel is the tribe of His inheritance. The Lord of hosts is His name. 
 
 ###### 20 
-"You _are_ My battle-ax _and_ weapons of war: For with you I will break the nation in pieces; With you I will destroy kingdoms; 
+"You are My battle-ax and weapons of war: For with you I will break the nation in pieces; With you I will destroy kingdoms; 
 
 ###### 21 
 With you I will break in pieces the horse and its rider; With you I will break in pieces the chariot and its rider; 
@@ -82,7 +82,7 @@ With you also I will break in pieces the shepherd and his flock; With you I will
 "And I will repay Babylon And all the inhabitants of Chaldea For all the evil they have done In Zion in your sight," says the Lord. 
 
 ###### 25 
-"Behold, I _am_ against you, O destroying mountain, Who destroys all the earth," says the Lord. "And I will stretch out My hand against you, Roll you down from the rocks, And make you a burnt mountain. 
+"Behold, I am against you, O destroying mountain, Who destroys all the earth," says the Lord. "And I will stretch out My hand against you, Roll you down from the rocks, And make you a burnt mountain. 
 
 ###### 26 
 They shall not take from you a stone for a corner Nor a stone for a foundation, But you shall be desolate forever," says the Lord. 
@@ -97,22 +97,22 @@ Prepare against her the nations, With the kings of the Medes, Its governors and 
 And the land will tremble and sorrow; For every purpose of the Lord shall be performed against Babylon, To make the land of Babylon a desolation without inhabitant. 
 
 ###### 30 
-The mighty men of Babylon have ceased fighting, They have remained in their strongholds; Their might has failed, They became _like_ women; They have burned her dwelling places, The bars of her _gate_ are broken. 
+The mighty men of Babylon have ceased fighting, They have remained in their strongholds; Their might has failed, They became like women; They have burned her dwelling places, The bars of her gate are broken. 
 
 ###### 31 
-One runner will run to meet another, And one messenger to meet another, To show the king of Babylon that his city is taken on _all_ sides; 
+One runner will run to meet another, And one messenger to meet another, To show the king of Babylon that his city is taken on all sides; 
 
 ###### 32 
 The passages are blocked, The reeds they have burned with fire, And the men of war are terrified. 
 
 ###### 33 
-For thus says the Lord of hosts, the God of Israel: "The daughter of Babylon _is_ like a threshing floor _When_ _it is_ time to thresh her; Yet a little while And the time of her harvest will come." 
+For thus says the Lord of hosts, the God of Israel: "The daughter of Babylon is like a threshing floor When it is time to thresh her; Yet a little while And the time of her harvest will come." 
 
 ###### 34 
 "Nebuchadnezzar the king of Babylon Has devoured me, he has crushed me; He has made me an empty vessel, He has swallowed me up like a monster; He has filled his stomach with my delicacies, He has spit me out. 
 
 ###### 35 
-Let the violence _done_ to me and my flesh _be_ upon Babylon," The inhabitant of Zion will say; "And my blood be upon the inhabitants of Chaldea!" Jerusalem will say. 
+Let the violence done to me and my flesh be upon Babylon," The inhabitant of Zion will say; "And my blood be upon the inhabitants of Chaldea!" Jerusalem will say. 
 
 ###### 36 
 Therefore thus says the Lord: "Behold, I will plead your case and take vengeance for you. I will dry up her sea and make her springs dry. 
@@ -145,16 +145,16 @@ I will punish Bel in Babylon, And I will bring out of his mouth what he has swal
 "My people, go out of the midst of her! And let everyone deliver himself from the fierce anger of the Lord. 
 
 ###### 46 
-And lest your heart faint, And you fear for the rumor that _will be_ heard in the land (A rumor will come _one_ year, And after that, in _another_ year A rumor _will come,_ And violence in the land, Ruler against ruler), 
+And lest your heart faint, And you fear for the rumor that will be heard in the land (A rumor will come one year, And after that, in another year A rumor will come, And violence in the land, Ruler against ruler), 
 
 ###### 47 
 Therefore behold, the days are coming That I will bring judgment on the carved images of Babylon; Her whole land shall be ashamed, And all her slain shall fall in her midst. 
 
 ###### 48 
-Then the heavens and the earth and all that _is_ in them Shall sing joyously over Babylon; For the plunderers shall come to her from the north," says the Lord. 
+Then the heavens and the earth and all that is in them Shall sing joyously over Babylon; For the plunderers shall come to her from the north," says the Lord. 
 
 ###### 49 
-As Babylon _has caused_ the slain of Israel to fall, So at Babylon the slain of all the earth shall fall. 
+As Babylon has caused the slain of Israel to fall, So at Babylon the slain of all the earth shall fall. 
 
 ###### 50 
 You who have escaped the sword, Get away! Do not stand still! Remember the Lord afar off, And let Jerusalem come to your mind. 
@@ -166,25 +166,25 @@ We are ashamed because we have heard reproach. Shame has covered our faces, For 
 "Therefore behold, the days are coming," says the Lord, "That I will bring judgment on her carved images, And throughout all her land the wounded shall groan. 
 
 ###### 53 
-Though Babylon were to mount up to heaven, And though she were to fortify the height of her strength, _Yet_ from Me plunderers would come to her," says the Lord. 
+Though Babylon were to mount up to heaven, And though she were to fortify the height of her strength, Yet from Me plunderers would come to her," says the Lord. 
 
 ###### 54 
-The sound of a cry _comes_ from Babylon, And great destruction from the land of the Chaldeans, 
+The sound of a cry comes from Babylon, And great destruction from the land of the Chaldeans, 
 
 ###### 55 
 Because the Lord is plundering Babylon And silencing her loud voice, Though her waves roar like great waters, And the noise of their voice is uttered, 
 
 ###### 56 
-Because the plunderer comes against her, against Babylon, And her mighty men are taken. Every one of their bows is broken; For the Lord _is_ the God of recompense, He will surely repay. 
+Because the plunderer comes against her, against Babylon, And her mighty men are taken. Every one of their bows is broken; For the Lord is the God of recompense, He will surely repay. 
 
 ###### 57 
-"And I will make drunk Her princes and wise men, Her governors, her deputies, and her mighty men. And they shall sleep a perpetual sleep And not awake," says the King, Whose name _is_ the Lord of hosts. 
+"And I will make drunk Her princes and wise men, Her governors, her deputies, and her mighty men. And they shall sleep a perpetual sleep And not awake," says the King, Whose name is the Lord of hosts. 
 
 ###### 58 
 Thus says the Lord of hosts: "The broad walls of Babylon shall be utterly broken, And her high gates shall be burned with fire; The people will labor in vain, And the nations, because of the fire; And they shall be weary." ## Jeremiah's Command to Seraiah 
 
 ###### 59 
-The word which Jeremiah the prophet commanded Seraiah the son of Neriah, the son of Mahseiah, when he went with Zedekiah the king of Judah to Babylon in the fourth year of his reign. And Seraiah _was_ the quartermaster. 
+The word which Jeremiah the prophet commanded Seraiah the son of Neriah, the son of Mahseiah, when he went with Zedekiah the king of Judah to Babylon in the fourth year of his reign. And Seraiah was the quartermaster. 
 
 ###### 60 
 So Jeremiah wrote in a book all the evil that would come upon Babylon, all these words that are written against Babylon. 
@@ -196,7 +196,7 @@ And Jeremiah said to Seraiah, "When you arrive in Babylon and see it, and read a
 then you shall say, 'O Lord, You have spoken against this place to cut it off, so that none shall remain in it, neither man nor beast, but it shall be desolate forever.' 
 
 ###### 63 
-Now it shall be, when you have finished reading this book, _that_ you shall tie a stone to it and throw it out into the Euphrates. 
+Now it shall be, when you have finished reading this book, that you shall tie a stone to it and throw it out into the Euphrates. 
 
 ###### 64 
-Then you shall say, 'Thus Babylon shall sink and not rise from the catastrophe that I will bring upon her. And they shall be weary.' " Thus far _are_ the words of Jeremiah.
+Then you shall say, 'Thus Babylon shall sink and not rise from the catastrophe that I will bring upon her. And they shall be weary.' " Thus far are the words of Jeremiah.

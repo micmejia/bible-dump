@@ -39,7 +39,7 @@ up: ['Ezra']
 
 
 
-Habang nakaluhod si Ezra na nananalangin sa harapan ng templo ng Dios, umiiyak siya at nagpapahayag ng mga kasalanan ng mga mamamayan ng Israel_. Maraming Israelitang lalaki, babae, at mga kabataan ang nakapaligid sa kanya na umiiyak din nang malakas. 
+Habang nakaluhod si Ezra na nananalangin sa harapan ng templo ng Dios, umiiyak siya at nagpapahayag ng mga kasalanan ng mga mamamayan ng Israel. Maraming Israelitang lalaki, babae, at mga kabataan ang nakapaligid sa kanya na umiiyak din nang malakas. 
 
 
 
@@ -72,7 +72,7 @@ Habang nakaluhod si Ezra na nananalangin sa harapan ng templo ng Dios, umiiyak s
 
 
 
-Pagkatapos, sinabi sa kanya ni Shecania na anak ni Jehiel, na angkan ni Elam, "Hindi kami naging tapat sa Dios natin dahil nagsipag-asawa kami ng mga dayuhang babae na galing sa mga sambayanang nasa paligid natin. Pero sa kabila nito, may pag-asa pa rin ang mga mamamayan ng_ Israel. 
+Pagkatapos, sinabi sa kanya ni Shecania na anak ni Jehiel, na angkan ni Elam, "Hindi kami naging tapat sa Dios natin dahil nagsipag-asawa kami ng mga dayuhang babae na galing sa mga sambayanang nasa paligid natin. Pero sa kabila nito, may pag-asa pa rin ang mga mamamayan ng Israel. 
 
 
 
@@ -437,7 +437,7 @@ Ang mga opisyal na lang natin ang magpaiwan dito at mag-asikaso nito para sa buo
 
 
 
-Walang sumuway sa planong ito maliban kina Jonatan na anak ni Asahel at Jazea na anak ni Tikva. Sinuportahan din sila nina Meshulam at Shabetai na Levita. 16-17Tinupad ng mga bumalik sa pagkabihag ang planong iyon. Kaya pumili si Ezra na pari ng mga lalaking pinuno ng mga pamilya, at inilista ang pangalan nila. At nang unang araw ng ikasampung buwan, naupo sila at sinimulan nila ang pagsisiyasat tungkol sa pag-aasawa ng mga Israelita ng mga dayuhang babae. Natapos nila ang pagsisiyasat ng lahat ng kaso nang unang araw ng unang buwan, ng sumunod na taon._
+Walang sumuway sa planong ito maliban kina Jonatan na anak ni Asahel at Jazea na anak ni Tikva. Sinuportahan din sila nina Meshulam at Shabetai na Levita. 16-17Tinupad ng mga bumalik sa pagkabihag ang planong iyon. Kaya pumili si Ezra na pari ng mga lalaking pinuno ng mga pamilya, at inilista ang pangalan nila. At nang unang araw ng ikasampung buwan, naupo sila at sinimulan nila ang pagsisiyasat tungkol sa pag-aasawa ng mga Israelita ng mga dayuhang babae. Natapos nila ang pagsisiyasat ng lahat ng kaso nang unang araw ng unang buwan, ng sumunod na taon.
 
 ## Ang mga Lalaki na Nagsipag-asawa ng mga Dayuhan 18-19Ito ang mga lalaking nagsipag-asawa ng mga dayuhan, at nangakong hihiwalayan nila ang mga asawa nila: (Naghandog sila ng mga lalaking tupa bilang pambayad sa mga kasalanan nila.) Sa mga pari: sina Maaseya, Eliezer, Jarib, at Gedalia, na galing sa pamilya ni Jeshua na anak ni Jozadak at ang mga kapatid niya; 
 

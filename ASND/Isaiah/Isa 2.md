@@ -40,7 +40,7 @@ next: ['Isa 3']
 
 
 
-Ito ang ipinahayag ng Dios_ kay Isaias na anak ni Amoz tungkol sa Juda at Jerusalem: 
+Ito ang ipinahayag ng Dios kay Isaias na anak ni Amoz tungkol sa Juda at Jerusalem: 
 
 
 
@@ -73,7 +73,7 @@ Ito ang ipinahayag ng Dios_ kay Isaias na anak ni Amoz tungkol sa Juda at Jerusa
 
 
 
-Sa mga huling araw, ang bundok na kinatatayuan ng templo ng Panginoon ay magiging pinakamahalaga sa lahat ng bundok. Dadagsa rito ang mga tao mula sa_ ibaʼt ibang bansa. 
+Sa mga huling araw, ang bundok na kinatatayuan ng templo ng Panginoon ay magiging pinakamahalaga sa lahat ng bundok. Dadagsa rito ang mga tao mula sa ibaʼt ibang bansa. 
 
 
 
@@ -139,7 +139,7 @@ Sasabihin nila, "Tayo na sa bundok ng Panginoon, sa templo ng Dios ni Jacob. Tut
 
 
 
-At sa pamamagitan ng mga kautusan niya,_ pagkakasunduin niya ang maraming bansa. Kaya hindi na magdidigmaan ang mga bansa, at hindi na rin sila magsasanay ng mga sundalo para sa digmaan. Gagawin na lang nilang talim ng araro ang kanilang mga espada, at karit na pantabas ang kanilang mga sibat. 
+At sa pamamagitan ng mga kautusan niya, pagkakasunduin niya ang maraming bansa. Kaya hindi na magdidigmaan ang mga bansa, at hindi na rin sila magsasanay ng mga sundalo para sa digmaan. Gagawin na lang nilang talim ng araro ang kanilang mga espada, at karit na pantabas ang kanilang mga sibat. 
 
 
 
@@ -207,7 +207,7 @@ Halikayo, mga lahi ni Jacob, mamuhay tayo sa katotohanan, na ibinigay sa atin ng
 
 
 
-Totoong itinakwil nʼyo, Panginoon,_ ang mga mamamayan ninyo, ang lahi ni Jacob, dahil naniniwala sila sa mga pamahiing_ mula sa silangan at sa mga manghuhula, gaya ng mga Filisteo. Sinusunod nila ang pag-uugali ng mga dayuhan. 
+Totoong itinakwil nʼyo, Panginoon, ang mga mamamayan ninyo, ang lahi ni Jacob, dahil naniniwala sila sa mga pamahiing mula sa silangan at sa mga manghuhula, gaya ng mga Filisteo. Sinusunod nila ang pag-uugali ng mga dayuhan. 
 
 
 
@@ -306,7 +306,7 @@ Marami silang dios-diosan, at sinasamba nila ang mga bagay na ito na sila mismo 
 
 
 
-Kaya Panginoon,_ ibagsak nʼyo ang bawat isa sa kanila, nang mapahiya sila. Huwag nʼyo silang patatawarin. 
+Kaya Panginoon, ibagsak nʼyo ang bawat isa sa kanila, nang mapahiya sila. Huwag nʼyo silang patatawarin. 
 
 
 
@@ -339,7 +339,7 @@ Kaya Panginoon,_ ibagsak nʼyo ang bawat isa sa kanila, nang mapahiya sila. Huwa
 
 
 
-Mga taga-Israel,_ tumakas kayo papunta sa mga kweba at mga hukay para magtago sa galit ng Panginoon at sa kanyang kapangyarihan. 
+Mga taga-Israel, tumakas kayo papunta sa mga kweba at mga hukay para magtago sa galit ng Panginoon at sa kanyang kapangyarihan. 
 
 
 
@@ -438,7 +438,7 @@ Sapagkat nagtakda ang Panginoong Makapangyarihan ng araw kung kailan niya ibabag
 
 
 
-Puputulin niya ang lahat ng matataas na puno ng_ sedro sa Lebanon at ang lahat ng puno ng_ ensina sa Bashan. 
+Puputulin niya ang lahat ng matataas na puno ng sedro sa Lebanon at ang lahat ng puno ng ensina sa Bashan. 
 
 
 

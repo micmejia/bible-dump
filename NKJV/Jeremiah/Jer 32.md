@@ -13,7 +13,7 @@ next: ['Jer 33']
 The word that came to Jeremiah from the Lord in the tenth year of Zedekiah king of Judah, which was the eighteenth year of Nebuchadnezzar. 
 
 ###### 2 
-For then the king of Babylon's army besieged Jerusalem, and Jeremiah the prophet was shut up in the court of the prison, which _was in_ the king of Judah's house. 
+For then the king of Babylon's army besieged Jerusalem, and Jeremiah the prophet was shut up in the court of the prison, which was in the king of Judah's house. 
 
 ###### 3 
 For Zedekiah king of Judah had shut him up, saying, "Why do you prophesy and say, 'Thus says the Lord: "Behold, I will give this city into the hand of the king of Babylon, and he shall take it; 
@@ -28,22 +28,22 @@ then he shall lead Zedekiah to Babylon, and there he shall be until I visit him,
 And Jeremiah said, "The word of the Lord came to me, saying, 
 
 ###### 7 
-'Behold, Hanamel the son of Shallum your uncle will come to you, saying, "Buy my field which _is_ in Anathoth, for the right of redemption _is_ yours to buy _it._" ' 
+'Behold, Hanamel the son of Shallum your uncle will come to you, saying, "Buy my field which is in Anathoth, for the right of redemption is yours to buy it." ' 
 
 ###### 8 
-Then Hanamel my uncle's son came to me in the court of the prison according to the word of the Lord, and said to me, 'Please buy my field that _is_ in Anathoth, which _is_ in the country of Benjamin; for the right of inheritance _is_ yours, and the redemption yours; buy _it_ for yourself.' Then I knew that this was the word of the Lord. 
+Then Hanamel my uncle's son came to me in the court of the prison according to the word of the Lord, and said to me, 'Please buy my field that is in Anathoth, which is in the country of Benjamin; for the right of inheritance is yours, and the redemption yours; buy it for yourself.' Then I knew that this was the word of the Lord. 
 
 ###### 9 
-So I bought the field from Hanamel, the son of my uncle who _was_ in Anathoth, and weighed _out to_ him the money--seventeen shekels of silver. 
+So I bought the field from Hanamel, the son of my uncle who was in Anathoth, and weighed out to him the money--seventeen shekels of silver. 
 
 ###### 10 
-And I signed the deed and sealed _it,_ took witnesses, and weighed the money on the scales. 
+And I signed the deed and sealed it, took witnesses, and weighed the money on the scales. 
 
 ###### 11 
-So I took the purchase deed, _both_ that which was sealed _according_ to the law and custom, and that which was open; 
+So I took the purchase deed, both that which was sealed according to the law and custom, and that which was open; 
 
 ###### 12 
-and I gave the purchase deed to Baruch the son of Neriah, son of Mahseiah, in the presence of Hanamel my uncle's _son,_ and in the presence of the witnesses who signed the purchase deed, before all the Jews who sat in the court of the prison. 
+and I gave the purchase deed to Baruch the son of Neriah, son of Mahseiah, in the presence of Hanamel my uncle's son, and in the presence of the witnesses who signed the purchase deed, before all the Jews who sat in the court of the prison. 
 
 ###### 13 
 "Then I charged Baruch before them, saying, 
@@ -61,13 +61,13 @@ For thus says the Lord of hosts, the God of Israel: "Houses and fields and viney
 'Ah, Lord God! Behold, You have made the heavens and the earth by Your great power and outstretched arm. There is nothing too hard for You. 
 
 ###### 18 
-_You_ show lovingkindness to thousands, and repay the iniquity of the fathers into the bosom of their children after them--the Great, the Mighty God, whose name _is_ the Lord of hosts. 
+You show lovingkindness to thousands, and repay the iniquity of the fathers into the bosom of their children after them--the Great, the Mighty God, whose name is the Lord of hosts. 
 
 ###### 19 
-_You are_ great in counsel and mighty in work, for Your eyes _are_ open to all the ways of the sons of men, to give everyone according to his ways and according to the fruit of his doings. 
+You are great in counsel and mighty in work, for Your eyes are open to all the ways of the sons of men, to give everyone according to his ways and according to the fruit of his doings. 
 
 ###### 20 
-You have set signs and wonders in the land of Egypt, to this day, and in Israel and among _other_ men; and You have made Yourself a name, as it is this day. 
+You have set signs and wonders in the land of Egypt, to this day, and in Israel and among other men; and You have made Yourself a name, as it is this day. 
 
 ###### 21 
 You have brought Your people Israel out of the land of Egypt with signs and wonders, with a strong hand and an outstretched arm, and with great terror; 
@@ -79,7 +79,7 @@ You have given them this land, of which You swore to their fathers to give them-
 And they came in and took possession of it, but they have not obeyed Your voice or walked in Your law. They have done nothing of all that You commanded them to do; therefore You have caused all this calamity to come upon them. 
 
 ###### 24 
-'Look, the siege mounds! They have come to the city to take it; and the city has been given into the hand of the Chaldeans who fight against it, because of the sword and famine and pestilence. What You have spoken has happened; there You see _it!_ 
+'Look, the siege mounds! They have come to the city to take it; and the city has been given into the hand of the Chaldeans who fight against it, because of the sword and famine and pestilence. What You have spoken has happened; there You see it! 
 
 ###### 25 
 And You have said to me, O Lord God, "Buy the field for money, and take witnesses"!--yet the city has been given into the hand of the Chaldeans.' " ## God's Assurance of the People's Return 
@@ -88,7 +88,7 @@ And You have said to me, O Lord God, "Buy the field for money, and take witnesse
 Then the word of the Lord came to Jeremiah, saying, 
 
 ###### 27 
-"Behold, I _am_ the Lord, the God of all flesh. Is there anything too hard for Me? 
+"Behold, I am the Lord, the God of all flesh. Is there anything too hard for Me? 
 
 ###### 28 
 Therefore thus says the Lord: 'Behold, I will give this city into the hand of the Chaldeans, into the hand of Nebuchadnezzar king of Babylon, and he shall take it. 
@@ -100,19 +100,19 @@ And the Chaldeans who fight against this city shall come and set fire to this ci
 because the children of Israel and the children of Judah have done only evil before Me from their youth. For the children of Israel have provoked Me only to anger with the work of their hands,' says the Lord. 
 
 ###### 31 
-'For this city has been to Me _a provocation of_ My anger and My fury from the day that they built it, even to this day; so I will remove it from before My face 
+'For this city has been to Me a provocation of My anger and My fury from the day that they built it, even to this day; so I will remove it from before My face 
 
 ###### 32 
 because of all the evil of the children of Israel and the children of Judah, which they have done to provoke Me to anger--they, their kings, their princes, their priests, their prophets, the men of Judah, and the inhabitants of Jerusalem. 
 
 ###### 33 
-And they have turned to Me the back, and not the face; though I taught them, rising up early and teaching _them,_ yet they have not listened to receive instruction. 
+And they have turned to Me the back, and not the face; though I taught them, rising up early and teaching them, yet they have not listened to receive instruction. 
 
 ###### 34 
 But they set their abominations in the house which is called by My name, to defile it. 
 
 ###### 35 
-And they built the high places of Baal which _are_ in the Valley of the Son of Hinnom, to cause their sons and their daughters to pass through _the fire_ to Molech, which I did not command them, nor did it come into My mind that they should do this abomination, to cause Judah to sin.' 
+And they built the high places of Baal which are in the Valley of the Son of Hinnom, to cause their sons and their daughters to pass through the fire to Molech, which I did not command them, nor did it come into My mind that they should do this abomination, to cause Judah to sin.' 
 
 ###### 36 
 "Now therefore, thus says the Lord, the God of Israel, concerning this city of which you say, 'It shall be delivered into the hand of the king of Babylon by the sword, by the famine, and by the pestilence: 
@@ -136,7 +136,7 @@ Yes, I will rejoice over them to do them good, and I will assuredly plant them i
 "For thus says the Lord: 'Just as I have brought all this great calamity on this people, so I will bring on them all the good that I have promised them. 
 
 ###### 43 
-And fields will be bought in this land of which you say, "_It is_ desolate, without man or beast; it has been given into the hand of the Chaldeans." 
+And fields will be bought in this land of which you say, "It is desolate, without man or beast; it has been given into the hand of the Chaldeans." 
 
 ###### 44 
-Men will buy fields for money, sign deeds and seal _them,_ and take witnesses, in the land of Benjamin, in the places around Jerusalem, in the cities of Judah, in the cities of the mountains, in the cities of the lowland, and in the cities of the South; for I will cause their captives to return,' says the Lord."
+Men will buy fields for money, sign deeds and seal them, and take witnesses, in the land of Benjamin, in the places around Jerusalem, in the cities of Judah, in the cities of the mountains, in the cities of the lowland, and in the cities of the South; for I will cause their captives to return,' says the Lord."

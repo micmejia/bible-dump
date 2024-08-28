@@ -209,7 +209,7 @@ Nabuhay si Abraham ng 175 taon.
 
 
 
-Namatay siya sa katandaan na kontento sa buhay at kasama na ng kanyang mga kamag-anak na sumakabilang buhay na_. 
+Namatay siya sa katandaan na kontento sa buhay at kasama na ng kanyang mga kamag-anak na sumakabilang buhay na. 
 
 
 
@@ -508,7 +508,7 @@ Sila ang mga anak ni Ishmael at naging pinuno ng 12 niyang angkan. Ang mga panga
 
 
 
-Nabuhay si Ishmael ng 137 taon. Namatay siya at kasama na ng kanyang mga kamag-anak na sumakabilang buhay na_. 
+Nabuhay si Ishmael ng 137 taon. Namatay siya at kasama na ng kanyang mga kamag-anak na sumakabilang buhay na. 
 
 
 
@@ -541,7 +541,7 @@ Nabuhay si Ishmael ng 137 taon. Namatay siya at kasama na ng kanyang mga kamag-a
 
 
 
-Tumira ang mga angkan niya sa mga lugar na galing sa Havila hanggang sa Shur, sa silangan ng Egipto na papunta sa Asiria. Kinalaban nila ang lahat ng kamag-anak nila na mga lahi ni Isaac_.
+Tumira ang mga angkan niya sa mga lugar na galing sa Havila hanggang sa Shur, sa silangan ng Egipto na papunta sa Asiria. Kinalaban nila ang lahat ng kamag-anak nila na mga lahi ni Isaac.
 
 ## Ipinanganak sina Esau at Jacob 
 
@@ -675,7 +675,7 @@ Dahil baog si Rebeka, nanalangin si Isaac sa Panginoon na magkaanak ito. Tinugon
 
 
 
-Naramdaman niya na nagtutulakan ang kambal na sanggol sa loob ng kanyang tiyan. Sinabi ni Rebeka, "Kung ganyan lang ang mangyayari sa kanila pagdating ng panahon_ mabuti pang mamatay na lang ako." Kaya nagtanong siya sa Panginoon tungkol dito. Sinabi sa kanya ng Panginoon, 
+Naramdaman niya na nagtutulakan ang kambal na sanggol sa loob ng kanyang tiyan. Sinabi ni Rebeka, "Kung ganyan lang ang mangyayari sa kanila pagdating ng panahon mabuti pang mamatay na lang ako." Kaya nagtanong siya sa Panginoon tungkol dito. Sinabi sa kanya ng Panginoon, 
 
 
 

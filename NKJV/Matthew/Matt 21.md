@@ -13,7 +13,7 @@ next: ['Matt 22']
 Now when they drew near Jerusalem, and came to Bethphage, at the Mount of Olives, then Jesus sent two disciples, 
 
 ###### 2 
-saying to them, "Go into the village opposite you, and immediately you will find a donkey tied, and a colt with her. Loose _them_ and bring _them_ to Me. 
+saying to them, "Go into the village opposite you, and immediately you will find a donkey tied, and a colt with her. Loose them and bring them to Me. 
 
 ###### 3 
 And if anyone says anything to you, you shall say, 'The Lord has need of them,' and immediately he will send them." 
@@ -28,13 +28,13 @@ All this was done that it might be fulfilled which was spoken by the prophet, sa
 So the disciples went and did as Jesus commanded them. 
 
 ###### 7 
-They brought the donkey and the colt, laid their clothes on them, and set _Him_ on them. 
+They brought the donkey and the colt, laid their clothes on them, and set Him on them. 
 
 ###### 8 
-And a very great multitude spread their clothes on the road; others cut down branches from the trees and spread _them_ on the road. 
+And a very great multitude spread their clothes on the road; others cut down branches from the trees and spread them on the road. 
 
 ###### 9 
-Then the multitudes who went before and those who followed cried out, saying: "Hosanna to the Son of David! 'Blessed _is_ He who comes in the name of the Lord!' Hosanna in the highest!" 
+Then the multitudes who went before and those who followed cried out, saying: "Hosanna to the Son of David! 'Blessed is He who comes in the name of the Lord!' Hosanna in the highest!" 
 
 ###### 10 
 And when He had come into Jerusalem, all the city was moved, saying, "Who is this?" 
@@ -49,7 +49,7 @@ Then Jesus went into the temple of God and drove out all those who bought and so
 And He said to them, "It is written, 'My house shall be called a house of prayer,' but you have made it a 'den of thieves.' " 
 
 ###### 14 
-Then _the_ blind and _the_ lame came to Him in the temple, and He healed them. 
+Then the blind and the lame came to Him in the temple, and He healed them. 
 
 ###### 15 
 But when the chief priests and scribes saw the wonderful things that He did, and the children crying out in the temple and saying, "Hosanna to the Son of David!" they were indignant 
@@ -71,7 +71,7 @@ And seeing a fig tree by the road, He came to it and found nothing on it but lea
 ## The Lesson of the Withered Fig Tree 
 
 ###### 20 
-And when the disciples saw _it,_ they marveled, saying, "How did the fig tree wither away so soon?" 
+And when the disciples saw it, they marveled, saying, "How did the fig tree wither away so soon?" 
 
 ###### 21 
 So Jesus answered and said to them, "Assuredly, I say to you, if you have faith and do not doubt, you will not only do what was done to the fig tree, but also if you say to this mountain, 'Be removed and be cast into the sea,' it will be done. 
@@ -103,13 +103,13 @@ So they answered Jesus and said, "We do not know." And He said to them, "Neither
 He answered and said, 'I will not,' but afterward he regretted it and went. 
 
 ###### 30 
-Then he came to the second and said likewise. And he answered and said, 'I _go,_ sir,' but he did not go. 
+Then he came to the second and said likewise. And he answered and said, 'I go, sir,' but he did not go. 
 
 ###### 31 
-Which of the two did the will of _his_ father?" They said to Him, "The first." Jesus said to them, "Assuredly, I say to you that tax collectors and harlots enter the kingdom of God before you. 
+Which of the two did the will of his father?" They said to Him, "The first." Jesus said to them, "Assuredly, I say to you that tax collectors and harlots enter the kingdom of God before you. 
 
 ###### 32 
-For John came to you in the way of righteousness, and you did not believe him; but tax collectors and harlots believed him; and when you saw _it,_ you did not afterward relent and believe him.
+For John came to you in the way of righteousness, and you did not believe him; but tax collectors and harlots believed him; and when you saw it, you did not afterward relent and believe him.
 
 ## The Parable of the Wicked Vinedressers 
 
@@ -132,13 +132,13 @@ Then last of all he sent his son to them, saying, 'They will respect my son.'
 But when the vinedressers saw the son, they said among themselves, 'This is the heir. Come, let us kill him and seize his inheritance.' 
 
 ###### 39 
-So they took him and cast _him_ out of the vineyard and killed _him._ 
+So they took him and cast him out of the vineyard and killed him. 
 
 ###### 40 
 "Therefore, when the owner of the vineyard comes, what will he do to those vinedressers?" 
 
 ###### 41 
-They said to Him, "He will destroy those wicked men miserably, and lease _his_ vineyard to other vinedressers who will render to him the fruits in their seasons." 
+They said to Him, "He will destroy those wicked men miserably, and lease his vineyard to other vinedressers who will render to him the fruits in their seasons." 
 
 ###### 42 
 Jesus said to them, "Have you never read in the Scriptures: 'The stone which the builders rejected Has become the chief cornerstone. This was the Lord's doing, And it is marvelous in our eyes'? 

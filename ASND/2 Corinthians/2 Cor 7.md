@@ -40,7 +40,7 @@ next: ['2 Cor 8']
 
 
 
-Mga minamahal, dahil sa mga ipinangako ng Dios_ sa atin, linisin natin ang ating sarili sa anumang bagay na nagpaparumi sa ating katawan at espiritu, at sikapin nating mamuhay nang banal at may takot sa Dios.
+Mga minamahal, dahil sa mga ipinangako ng Dios sa atin, linisin natin ang ating sarili sa anumang bagay na nagpaparumi sa ating katawan at espiritu, at sikapin nating mamuhay nang banal at may takot sa Dios.
 
 ## Ang Kagalakan ni Pablo 
 
@@ -141,7 +141,7 @@ Hindi ko sinasabi ito para ipahiya kayo. Gaya ng sinabi ko noong una, mahal na m
 
 
 
-Malaki ang tiwala ko sa inyo, at ipinagmamalaki ko kayo! Labis ninyong_ pinalakas ang aming loob at nag-uumapaw sa aming puso ang kagalakan sa kabila ng lahat ng aming mga paghihirap. 
+Malaki ang tiwala ko sa inyo, at ipinagmamalaki ko kayo! Labis ninyong pinalakas ang aming loob at nag-uumapaw sa aming puso ang kagalakan sa kabila ng lahat ng aming mga paghihirap. 
 
 
 
@@ -240,7 +240,7 @@ Ngunit pinalakas ng Dios ang aming loob nang dumating si Tito. Tunay na pinalala
 
 
 
-At hindi lang ang pagdating ni Tito ang nagpalakas ng aming loob, kundi maging ang balita na pinalakas din ninyo ang loob niya. Ibinalita niya ang pananabik ninyo sa amin_, ang inyong panaghoy sa mga pangyayari_, at ang katapatan ninyo sa akin. Dahil dito, lalo akong natuwa! 
+At hindi lang ang pagdating ni Tito ang nagpalakas ng aming loob, kundi maging ang balita na pinalakas din ninyo ang loob niya. Ibinalita niya ang pananabik ninyo sa amin, ang inyong panaghoy sa mga pangyayari, at ang katapatan ninyo sa akin. Dahil dito, lalo akong natuwa! 
 
 
 
@@ -372,7 +372,7 @@ Sapagkat ang kalungkutang ayon sa kalooban ng Dios ay nagdadala sa atin sa pagsi
 
 
 
-Tingnan ninyo ang idinulot ng kalungkutang ayon sa kalooban ng Dios! Naging masigasig kayong patunayan na wala kayong kasalanan tungkol sa mga bagay na sinasabi ko sa inyo_. Nagalit kayo sa gumawa ng kasalanang iyon_, at natakot sa maaaring idulot nito_. Naging masigasig kayong maibalik ang dati nating samahan._ Pinarusahan ninyo_ ang nagkasala, at pinatunayan ninyo sa lahat ng paraan na wala kayong kinalaman sa kasalanang iyon. 
+Tingnan ninyo ang idinulot ng kalungkutang ayon sa kalooban ng Dios! Naging masigasig kayong patunayan na wala kayong kasalanan tungkol sa mga bagay na sinasabi ko sa inyo. Nagalit kayo sa gumawa ng kasalanang iyon, at natakot sa maaaring idulot nito. Naging masigasig kayong maibalik ang dati nating samahan. Pinarusahan ninyo ang nagkasala, at pinatunayan ninyo sa lahat ng paraan na wala kayong kinalaman sa kasalanang iyon. 
 
 
 

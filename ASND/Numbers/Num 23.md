@@ -40,7 +40,7 @@ next: ['Num 24']
 
 
 
-Sinabi ni Balaam kay Balak_, "Pagawan mo ako rito ng pitong altar, at ipaghanda mo ako ng pitong toro at pitong matandang lalaking tupa." 
+Sinabi ni Balaam kay Balak, "Pagawan mo ako rito ng pitong altar, at ipaghanda mo ako ng pitong toro at pitong matandang lalaking tupa." 
 
 
 
@@ -469,7 +469,7 @@ Pagkatapos, sinabi ni Balak sa kanya, "Sumama ka sa akin sa isa pang lugar na ku
 
 
 
-Kaya dinala ni Balak si Balaam sa isang bukid sa Zofim, sa ibabaw ng bundok ng_ Pisga, at doon nagpatayo sila ng pitong altar at naghandog ng pitong baka at pitong lalaking tupa, isa sa bawat altar. 
+Kaya dinala ni Balak si Balaam sa isang bukid sa Zofim, sa ibabaw ng bundok ng Pisga, at doon nagpatayo sila ng pitong altar at naghandog ng pitong baka at pitong lalaking tupa, isa sa bawat altar. 
 
 
 
@@ -931,7 +931,7 @@ Muling sinabi ni Balak kay Balaam, "Halika, dadalhin kita sa ibang lugar. Baka r
 
 
 
-Kaya dinala ni Balak si Balaam sa ibabaw ng Bundok ng_ Peor, kung saan nakikita ang disyerto sa ibaba. 
+Kaya dinala ni Balak si Balaam sa ibabaw ng Bundok ng Peor, kung saan nakikita ang disyerto sa ibaba. 
 
 
 

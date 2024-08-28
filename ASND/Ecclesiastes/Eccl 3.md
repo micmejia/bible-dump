@@ -304,7 +304,7 @@ May oras ng pagmamahal at may oras ng pagkagalit; may oras ng digmaan at may ora
 
 
 
-Kung ang mga oras na ito ay itinakda na ng Dios,_ ano ngayon ang kabuluhan ng pagsisikap ng tao? 
+Kung ang mga oras na ito ay itinakda na ng Dios, ano ngayon ang kabuluhan ng pagsisikap ng tao? 
 
 
 

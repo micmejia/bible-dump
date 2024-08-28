@@ -139,7 +139,7 @@ Pagkatapos, umalis ang anghel na nakikipag-usap sa akin at sinalubong siya ng is
 
 
 
-at sinabi sa kanya, "Magmadali ka, sabihin mo sa lalaking iyon na may dalang panukat_ na ang Jerusalem ay magiging lungsod na walang pader dahil sa sobrang dami ng kanyang mga mamamayan at mga hayop. 
+at sinabi sa kanya, "Magmadali ka, sabihin mo sa lalaking iyon na may dalang panukat na ang Jerusalem ay magiging lungsod na walang pader dahil sa sobrang dami ng kanyang mga mamamayan at mga hayop. 
 
 
 
@@ -174,7 +174,7 @@ at sinabi sa kanya, "Magmadali ka, sabihin mo sa lalaking iyon na may dalang pan
 
 Sinabi ng Panginoon na siya mismo ang magiging pader na apoy sa paligid ng lungsod ng Jerusalem, at siya rin ang magiging dakila sa bayan na ito." ## Pinababalik ng Dios ang Kanyang mga Mamamayan sa Kanilang Lugar
 
-###### 6-7 Sinabi ng Panginoon sa mga Israelita_, "Pinangalat ko kayo sa lahat ng sulok ng mundo. Pero ngayon, tumakas na kayo, pati kayong mga binihag at dinala sa Babilonia, at bumalik na kayo sa Zion." 
+###### 6-7 Sinabi ng Panginoon sa mga Israelita, "Pinangalat ko kayo sa lahat ng sulok ng mundo. Pero ngayon, tumakas na kayo, pati kayong mga binihag at dinala sa Babilonia, at bumalik na kayo sa Zion." 
 
 
 
@@ -207,7 +207,7 @@ Sinabi ng Panginoon na siya mismo ang magiging pader na apoy sa paligid ng lungs
 
 
 
-Pagkatapos kong makita ang pangitaing iyon, sinugo ako ng Panginoon na magsalita laban sa mga bansang sumalakay sa inyo at sumamsam ng inyong mga ari-arian. Sapagkat ang sinumang gumagawa ng masama sa inyo ay para na ring gumagawa ng masama sa mahal ng Panginoon. At ito ang sinabi ng Panginoong Makapangyarihan laban sa mga bansang iyon_: 
+Pagkatapos kong makita ang pangitaing iyon, sinugo ako ng Panginoon na magsalita laban sa mga bansang sumalakay sa inyo at sumamsam ng inyong mga ari-arian. Sapagkat ang sinumang gumagawa ng masama sa inyo ay para na ring gumagawa ng masama sa mahal ng Panginoon. At ito ang sinabi ng Panginoong Makapangyarihan laban sa mga bansang iyon: 
 
 
 
@@ -273,7 +273,7 @@ Pagkatapos kong makita ang pangitaing iyon, sinugo ako ng Panginoon na magsalita
 
 
 
-At muling_ aangkinin ng Panginoon ang Juda bilang kanyang bahagi sa banal na lupain ng Israel_. At ang Jerusalem ay muli niyang ituturing na kanyang piniling lungsod. 
+At muling aangkinin ng Panginoon ang Juda bilang kanyang bahagi sa banal na lupain ng Israel. At ang Jerusalem ay muli niyang ituturing na kanyang piniling lungsod. 
 
 
 

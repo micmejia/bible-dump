@@ -14,10 +14,10 @@ The word of the Lord that came to Joel the son of Pethuel.
 ## The Land Laid Waste 
 
 ###### 2 
-Hear this, you elders, And give ear, all you inhabitants of the land! Has _anything like_ this happened in your days, Or even in the days of your fathers? 
+Hear this, you elders, And give ear, all you inhabitants of the land! Has anything like this happened in your days, Or even in the days of your fathers? 
 
 ###### 3 
-Tell your children about it, _Let_ your children _tell_ their children, And their children another generation. 
+Tell your children about it, Let your children tell their children, And their children another generation. 
 
 ###### 4 
 What the chewing locust left, the swarming locust has eaten; What the swarming locust left, the crawling locust has eaten; And what the crawling locust left, the consuming locust has eaten. 
@@ -26,10 +26,10 @@ What the chewing locust left, the swarming locust has eaten; What the swarming l
 Awake, you drunkards, and weep; And wail, all you drinkers of wine, Because of the new wine, For it has been cut off from your mouth. 
 
 ###### 6 
-For a nation has come up against My land, Strong, and without number; His teeth _are_ the teeth of a lion, And he has the fangs of a fierce lion. 
+For a nation has come up against My land, Strong, and without number; His teeth are the teeth of a lion, And he has the fangs of a fierce lion. 
 
 ###### 7 
-He has laid waste My vine, And ruined My fig tree; He has stripped it bare and thrown _it_ away; Its branches are made white. 
+He has laid waste My vine, And ruined My fig tree; He has stripped it bare and thrown it away; Its branches are made white. 
 
 ###### 8 
 Lament like a virgin girded with sackcloth For the husband of her youth. 
@@ -52,10 +52,10 @@ The vine has dried up, And the fig tree has withered; The pomegranate tree, The 
 Gird yourselves and lament, you priests; Wail, you who minister before the altar; Come, lie all night in sackcloth, You who minister to my God; For the grain offering and the drink offering Are withheld from the house of your God. 
 
 ###### 14 
-Consecrate a fast, Call a sacred assembly; Gather the elders _And_ all the inhabitants of the land _Into_ the house of the Lord your God, And cry out to the Lord. 
+Consecrate a fast, Call a sacred assembly; Gather the elders And all the inhabitants of the land Into the house of the Lord your God, And cry out to the Lord. 
 
 ###### 15 
-Alas for the day! For the day of the Lord _is_ at hand; It shall come as destruction from the Almighty. 
+Alas for the day! For the day of the Lord is at hand; It shall come as destruction from the Almighty. 
 
 ###### 16 
 Is not the food cut off before our eyes, Joy and gladness from the house of our God? 

@@ -13,7 +13,7 @@ next: ['Mark 7']
 Then He went out from there and came to His own country, and His disciples followed Him. 
 
 ###### 2 
-And when the Sabbath had come, He began to teach in the synagogue. And many hearing _Him_ were astonished, saying, "Where _did_ this Man _get_ these things? And what wisdom _is_ this which is given to Him, that such mighty works are performed by His hands! 
+And when the Sabbath had come, He began to teach in the synagogue. And many hearing Him were astonished, saying, "Where did this Man get these things? And what wisdom is this which is given to Him, that such mighty works are performed by His hands! 
 
 ###### 3 
 Is this not the carpenter, the Son of Mary, and brother of James, Joses, Judas, and Simon? And are not His sisters here with us?" So they were offended at Him. 
@@ -22,7 +22,7 @@ Is this not the carpenter, the Son of Mary, and brother of James, Joses, Judas, 
 But Jesus said to them, "A prophet is not without honor except in his own country, among his own relatives, and in his own house." 
 
 ###### 5 
-Now He could do no mighty work there, except that He laid His hands on a few sick people and healed _them._ 
+Now He could do no mighty work there, except that He laid His hands on a few sick people and healed them. 
 
 ###### 6 
 And He marveled because of their unbelief. Then He went about the villages in a circuit, teaching.
@@ -30,10 +30,10 @@ And He marveled because of their unbelief. Then He went about the villages in a 
 ## Sending Out the Twelve 
 
 ###### 7 
-And He called the twelve to _Himself,_ and began to send them out two _by_ two, and gave them power over unclean spirits. 
+And He called the twelve to Himself, and began to send them out two by two, and gave them power over unclean spirits. 
 
 ###### 8 
-He commanded them to take nothing for the journey except a staff--no bag, no bread, no copper in _their_ money belts-- 
+He commanded them to take nothing for the journey except a staff--no bag, no bread, no copper in their money belts-- 
 
 ###### 9 
 but to wear sandals, and not to put on two tunics. 
@@ -45,15 +45,15 @@ Also He said to them, "In whatever place you enter a house, stay there till you 
 And whoever will not receive you nor hear you, when you depart from there, shake off the dust under your feet as a testimony against them. Assuredly, I say to you, it will be more tolerable for Sodom and Gomorrah in the day of judgment than for that city!" 
 
 ###### 12 
-So they went out and preached that _people_ should repent. 
+So they went out and preached that people should repent. 
 
 ###### 13 
-And they cast out many demons, and anointed with oil many who were sick, and healed _them._
+And they cast out many demons, and anointed with oil many who were sick, and healed them.
 
 ## John the Baptist Beheaded 
 
 ###### 14 
-Now King Herod heard _of Him,_ for His name had become well known. And he said, "John the Baptist is risen from the dead, and therefore these powers are at work in him." 
+Now King Herod heard of Him, for His name had become well known. And he said, "John the Baptist is risen from the dead, and therefore these powers are at work in him." 
 
 ###### 15 
 Others said, "It is Elijah." And others said, "It is the Prophet, or like one of the prophets." 
@@ -71,13 +71,13 @@ Because John had said to Herod, "It is not lawful for you to have your brother's
 Therefore Herodias held it against him and wanted to kill him, but she could not; 
 
 ###### 20 
-for Herod feared John, knowing that he _was_ a just and holy man, and he protected him. And when he heard him, he did many things, and heard him gladly. 
+for Herod feared John, knowing that he was a just and holy man, and he protected him. And when he heard him, he did many things, and heard him gladly. 
 
 ###### 21 
-Then an opportune day came when Herod on his birthday gave a feast for his nobles, the high officers, and the chief _men_ of Galilee. 
+Then an opportune day came when Herod on his birthday gave a feast for his nobles, the high officers, and the chief men of Galilee. 
 
 ###### 22 
-And when Herodias' daughter herself came in and danced, and pleased Herod and those who sat with him, the king said to the girl, "Ask me whatever you want, and I will give _it_ to you." 
+And when Herodias' daughter herself came in and danced, and pleased Herod and those who sat with him, the king said to the girl, "Ask me whatever you want, and I will give it to you." 
 
 ###### 23 
 He also swore to her, "Whatever you ask me, I will give you, up to half my kingdom." 
@@ -89,7 +89,7 @@ So she went out and said to her mother, "What shall I ask?" And she said, "The h
 Immediately she came in with haste to the king and asked, saying, "I want you to give me at once the head of John the Baptist on a platter." 
 
 ###### 26 
-And the king was exceedingly sorry; _yet,_ because of the oaths and because of those who sat with him, he did not want to refuse her. 
+And the king was exceedingly sorry; yet, because of the oaths and because of those who sat with him, he did not want to refuse her. 
 
 ###### 27 
 Immediately the king sent an executioner and commanded his head to be brought. And he went and beheaded him in prison, 
@@ -98,7 +98,7 @@ Immediately the king sent an executioner and commanded his head to be brought. A
 brought his head on a platter, and gave it to the girl; and the girl gave it to her mother. 
 
 ###### 29 
-When his disciples heard _of it,_ they came and took away his corpse and laid it in a tomb.
+When his disciples heard of it, they came and took away his corpse and laid it in a tomb.
 
 ## Feeding the Five Thousand 
 
@@ -118,13 +118,13 @@ But the multitudes saw them departing, and many knew Him and ran there on foot f
 And Jesus, when He came out, saw a great multitude and was moved with compassion for them, because they were like sheep not having a shepherd. So He began to teach them many things. 
 
 ###### 35 
-When the day was now far spent, His disciples came to Him and said, "This is a deserted place, and already the hour _is_ late. 
+When the day was now far spent, His disciples came to Him and said, "This is a deserted place, and already the hour is late. 
 
 ###### 36 
 Send them away, that they may go into the surrounding country and villages and buy themselves bread; for they have nothing to eat." 
 
 ###### 37 
-But He answered and said to them, "You give them something to eat." And they said to Him, "Shall we go and buy two hundred denarii worth of bread and give them _something_ to eat?" 
+But He answered and said to them, "You give them something to eat." And they said to Him, "Shall we go and buy two hundred denarii worth of bread and give them something to eat?" 
 
 ###### 38 
 But He said to them, "How many loaves do you have? Go and see." And when they found out they said, "Five, and two fish." 
@@ -136,7 +136,7 @@ Then He commanded them to make them all sit down in groups on the green grass.
 So they sat down in ranks, in hundreds and in fifties. 
 
 ###### 41 
-And when He had taken the five loaves and the two fish, He looked up to heaven, blessed and broke the loaves, and gave _them_ to His disciples to set before them; and the two fish He divided among _them_ all. 
+And when He had taken the five loaves and the two fish, He looked up to heaven, blessed and broke the loaves, and gave them to His disciples to set before them; and the two fish He divided among them all. 
 
 ###### 42 
 So they all ate and were filled. 
@@ -156,7 +156,7 @@ Immediately He made His disciples get into the boat and go before Him to the oth
 And when He had sent them away, He departed to the mountain to pray. 
 
 ###### 47 
-Now when evening came, the boat was in the middle of the sea; and He _was_ alone on the land. 
+Now when evening came, the boat was in the middle of the sea; and He was alone on the land. 
 
 ###### 48 
 Then He saw them straining at rowing, for the wind was against them. Now about the fourth watch of the night He came to them, walking on the sea, and would have passed them by. 

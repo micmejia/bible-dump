@@ -106,7 +106,7 @@ Sinabi sa akin ng Panginoon,
 
 
 
-ang lungsod na_ daungan ng mga barko na sentro ng kalakalan ng mga taong nakatira malapit sa dagat. Sabihin mong ako, ang Panginoong Dios, ang nagsasabi: 'Ipinagmamalaki mo Tyre, ang iyong kagandahan at sinasabi mong wala kang kapintasan. 
+ang lungsod na daungan ng mga barko na sentro ng kalakalan ng mga taong nakatira malapit sa dagat. Sabihin mong ako, ang Panginoong Dios, ang nagsasabi: 'Ipinagmamalaki mo Tyre, ang iyong kagandahan at sinasabi mong wala kang kapintasan. 
 
 
 
@@ -238,7 +238,7 @@ Ang mga sagwan moʼy yari sa kahoy na ensina mula sa Bashan. At ang sahig moʼy 
 
 
 
-Ang layag moʼy gawa sa binurdahan na telang_ linen na mula pa sa Egipto at parang bandila kapag tiningnan. Ang iyong tolda ay kulay asul at ube na mula sa tabing-dagat ng Elisha. 
+Ang layag moʼy gawa sa binurdahan na telang linen na mula pa sa Egipto at parang bandila kapag tiningnan. Ang iyong tolda ay kulay asul at ube na mula sa tabing-dagat ng Elisha. 
 
 
 
@@ -337,7 +337,7 @@ Ang mga bihasang karpintero na mula sa Gebal ang taga-ayos ng iyong mga sira. Pu
 
 
 
-Ang mga sundalo mo ay mga taga-Persia, Lydia at Put. Isinasabit nila ang mga kalasag nila at helmet sa dingding_ mo na nagbibigay ng karangalan sa iyo. 
+Ang mga sundalo mo ay mga taga-Persia, Lydia at Put. Isinasabit nila ang mga kalasag nila at helmet sa dingding mo na nagbibigay ng karangalan sa iyo. 
 
 
 
@@ -535,7 +535,7 @@ Ang ibinayad naman sa iyo ng mga taga-Bet Togarma ay mga kabayong pantrabaho at 
 
 
 
-" 'Nakipagkalakalan din sa iyo ang Syria dahil sa marami kang produkto. At ang ibinayad nila sa iyo ay batong turkois, telang kulay ube, telang_ linen, mga binurdahang tela, mga koral at batong rubi. 
+" 'Nakipagkalakalan din sa iyo ang Syria dahil sa marami kang produkto. At ang ibinayad nila sa iyo ay batong turkois, telang kulay ube, telang linen, mga binurdahang tela, mga koral at batong rubi. 
 
 
 
@@ -634,7 +634,7 @@ Ang ibinayad naman sa iyo ng mga taga-Bet Togarma ay mga kabayong pantrabaho at 
 
 
 
-Nakipagkalakalan din_ ang mga taga-Dan at taga-Javan na mula sa Uzal at ang ibinayad nila sa iyo ay mga bakal at mga sangkap. 
+Nakipagkalakalan din ang mga taga-Dan at taga-Javan na mula sa Uzal at ang ibinayad nila sa iyo ay mga bakal at mga sangkap. 
 
 
 
@@ -865,7 +865,7 @@ At ang ibinayad nila sa iyo ay mga mamahaling damit, mga asul na tela, mga telan
 
 
 
-Pero dadalhin ka ng mga tagasagwan mo sa gitna ng karagatan, at wawasakin ka ng malakas na_ hangin mula sa silangan. 
+Pero dadalhin ka ng mga tagasagwan mo sa gitna ng karagatan, at wawasakin ka ng malakas na hangin mula sa silangan. 
 
 
 
@@ -931,7 +931,7 @@ Ang mga kayamanan moʼt produkto, mga tripulante, tagasagwan at mga karpintero, 
 
 
 
-" 'Manginginig sa takot ang mga nakatira sa tabing-dagat kapag narinig nila ang sigawan ng mga nalulunod_. 
+" 'Manginginig sa takot ang mga nakatira sa tabing-dagat kapag narinig nila ang sigawan ng mga nalulunod. 
 
 
 

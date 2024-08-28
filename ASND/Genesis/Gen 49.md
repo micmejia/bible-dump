@@ -106,7 +106,7 @@ Pagkatapos, tinawag ni Jacob ang mga anak niya, at sinabi, "Magsiparito kayo dah
 
 
 
-"Ikaw Reuben, na panganay ko, ang kauna-unahang lalaki kong anak. Mas tanyag ka at mas makapangyarihan kaysa sa iyong mga kapatid_. 
+"Ikaw Reuben, na panganay ko, ang kauna-unahang lalaki kong anak. Mas tanyag ka at mas makapangyarihan kaysa sa iyong mga kapatid. 
 
 
 
@@ -139,7 +139,7 @@ Pagkatapos, tinawag ni Jacob ang mga anak niya, at sinabi, "Magsiparito kayo dah
 
 
 
-"Pero katulad ka ng kumukulong tubig dahil hindi ka makapagpigil sa iyong pagnanasa_, kaya ka sumiping sa aking asawang alipin. Hindi ka na hihigit sa iba. 
+"Pero katulad ka ng kumukulong tubig dahil hindi ka makapagpigil sa iyong pagnanasa, kaya ka sumiping sa aking asawang alipin. Hindi ka na hihigit sa iba. 
 
 
 
@@ -370,7 +370,7 @@ Patuloy kang mamumuno, Juda. Magmumula sa mga lahi mo ang magiging mga pinuno. K
 
 
 
-Magiging sagana ang iyong lupain;_ kaya kahit itali mo ang asno malapit sa pinakamagandang tanim na ubas, hindi niya ito makakayang ubusin dahil sa dami._ At kahit ipanglaba pa ang katas ng ubas, hindi ito mauubos_. 
+Magiging sagana ang iyong lupain; kaya kahit itali mo ang asno malapit sa pinakamagandang tanim na ubas, hindi niya ito makakayang ubusin dahil sa dami. At kahit ipanglaba pa ang katas ng ubas, hindi ito mauubos. 
 
 
 
@@ -601,7 +601,7 @@ Magiging katulad ka ng makamandag na ahas sa tabi ng daan na tumutuklaw ng paa n
 
 
 
-Pagkatapos, sinabi ni Jacob,_ "O Panginoon, naghihintay po ako sa inyong pagliligtas." 
+Pagkatapos, sinabi ni Jacob, "O Panginoon, naghihintay po ako sa inyong pagliligtas." 
 
 
 
@@ -634,7 +634,7 @@ Pagkatapos, sinabi ni Jacob,_ "O Panginoon, naghihintay po ako sa inyong paglili
 
 
 
-Nagpatuloy pa siya sa pagsasalita,_ "Ikaw Gad, lulusubin ka ng grupo ng mga tulisan, pero gagantihan mo sila habang tumatakas sila. 
+Nagpatuloy pa siya sa pagsasalita, "Ikaw Gad, lulusubin ka ng grupo ng mga tulisan, pero gagantihan mo sila habang tumatakas sila. 
 
 
 
@@ -799,7 +799,7 @@ Kaiinisan ka ng mga mamamana. Sa galit nila ay papanain ka nila,
 
 
 
-pero palagi mo rin silang papanain. At ang braso mo ay patuloy na lalakas, dahil sa tulong ng Makapangyarihang Dios ni Jacob, ang tagapagbantay at ang Bato na kanlungan_ ng Israel. 
+pero palagi mo rin silang papanain. At ang braso mo ay patuloy na lalakas, dahil sa tulong ng Makapangyarihang Dios ni Jacob, ang tagapagbantay at ang Bato na kanlungan ng Israel. 
 
 
 
@@ -898,7 +898,7 @@ Ngayon, marami akong pagpapala; labis pa sa kasaganaan noon ng mga sinaunang kab
 
 
 
-"Ikaw Benjamin, katulad ka ng asong lobo na sumisila sa umaga ng kanyang nahuli para kainin, at sa gabi ay pinaghahati-hatian ang natirang_ nasamsam." 
+"Ikaw Benjamin, katulad ka ng asong lobo na sumisila sa umaga ng kanyang nahuli para kainin, at sa gabi ay pinaghahati-hatian ang natirang nasamsam." 
 
 
 
@@ -999,7 +999,7 @@ Matapos habilinan ni Jacob ang mga anak niya. Sinabi niya, "Ngayon, sandali na l
 
 
 
-Ang bukid na iyon ay nasa Macpela, sa silangan ng Mamre, na sakop ng Canaan. Binili ng lolo kong si_ Abraham ang bukid na iyon kay Efron para gawing libingan. 
+Ang bukid na iyon ay nasa Macpela, sa silangan ng Mamre, na sakop ng Canaan. Binili ng lolo kong si Abraham ang bukid na iyon kay Efron para gawing libingan. 
 
 
 
@@ -1032,7 +1032,7 @@ Ang bukid na iyon ay nasa Macpela, sa silangan ng Mamre, na sakop ng Canaan. Bin
 
 
 
-Doon siya inilibing pati ang lola kong si Sara at ang mga magulang kong_ sina Isaac at Rebeka, at doon ko rin inilibing si Lea. 
+Doon siya inilibing pati ang lola kong si Sara at ang mga magulang kong sina Isaac at Rebeka, at doon ko rin inilibing si Lea. 
 
 
 
@@ -1098,4 +1098,4 @@ Ang bukid at kweba ay binili sa mga Heteo."
 
 
 
-Pagkatapos magsalita ni Jacob sa kanyang mga anak, nahiga siya at nalagutan ng hininga. At isinama siya sa kanyang mga kamag-anak na sumakabilang buhay na_.
+Pagkatapos magsalita ni Jacob sa kanyang mga anak, nahiga siya at nalagutan ng hininga. At isinama siya sa kanyang mga kamag-anak na sumakabilang buhay na.

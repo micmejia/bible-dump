@@ -40,7 +40,7 @@ next: ['Luke 10']
 
 
 
-Isang araw_ tinipon ni Jesus ang 12 apostol_ at binigyan ng kapangyarihang magpalayas ng lahat ng masasamang espiritu at magpagaling ng mga sakit. 
+Isang araw tinipon ni Jesus ang 12 apostol at binigyan ng kapangyarihang magpalayas ng lahat ng masasamang espiritu at magpagaling ng mga sakit. 
 
 
 
@@ -240,7 +240,7 @@ Pagkatapos noon, umalis ang mga apostol at pumunta sa mga nayon. Nangaral sila n
 
 
 
-Nabalitaan ni Herodes na pinuno ng Galilea_ ang mga ginagawa ni Jesus. Naguluhan siya dahil may mga nagsasabing muling nabuhay si Juan na tagapagbautismo_. 
+Nabalitaan ni Herodes na pinuno ng Galilea ang mga ginagawa ni Jesus. Naguluhan siya dahil may mga nagsasabing muling nabuhay si Juan na tagapagbautismo. 
 
 
 
@@ -374,7 +374,7 @@ Pagbalik ng mga apostol, ikinuwento nila kay Jesus ang lahat ng ginawa nila. Pag
 
 
 
-Pero nalaman pa rin ng mga tao kung saan sila pumunta at sinundan sila. Pagdating nila doon,_ tinanggap naman sila ni Jesus at nangaral siya sa kanila tungkol sa paghahari ng Dios, at pinagaling din niya ang mga may sakit. 
+Pero nalaman pa rin ng mga tao kung saan sila pumunta at sinundan sila. Pagdating nila doon, tinanggap naman sila ni Jesus at nangaral siya sa kanila tungkol sa paghahari ng Dios, at pinagaling din niya ang mga may sakit. 
 
 
 
@@ -407,7 +407,7 @@ Pero nalaman pa rin ng mga tao kung saan sila pumunta at sinundan sila. Pagdatin
 
 
 
-Nang dapit-hapon na, lumapit sa kanya ang 12 apostol_ at sinabi, "Paalisin nʼyo na po ang mga tao nang makapunta sila sa kanayunan at kabukiran na malapit para humanap ng matutuluyan at makakain, dahil nasa ilang na lugar po tayo." 
+Nang dapit-hapon na, lumapit sa kanya ang 12 apostol at sinabi, "Paalisin nʼyo na po ang mga tao nang makapunta sila sa kanayunan at kabukiran na malapit para humanap ng matutuluyan at makakain, dahil nasa ilang na lugar po tayo." 
 
 
 
@@ -440,7 +440,7 @@ Nang dapit-hapon na, lumapit sa kanya ang 12 apostol_ at sinabi, "Paalisin nʼyo
 
 
 
-Pero sinabi ni Jesus sa kanila, "Kayo ang magpakain sa kanila." Sumagot sila, "May limang tinapay lang po tayo at dalawang isda. Hindi ito kakasya,_ maliban na lang kung bibili kami ng pagkain para sa kanila." 
+Pero sinabi ni Jesus sa kanila, "Kayo ang magpakain sa kanila." Sumagot sila, "May limang tinapay lang po tayo at dalawang isda. Hindi ito kakasya, maliban na lang kung bibili kami ng pagkain para sa kanila." 
 
 
 
@@ -539,7 +539,7 @@ At pinaupo nga nila ang lahat.
 
 
 
-Kinuha ni Jesus ang limang tinapay at dalawang isda. Tumingala siya sa langit at nagpasalamat sa Dios_. Pagkatapos, hinati-hati niya ang tinapay at ibinigay sa mga tagasunod niya upang ipamigay sa mga tao. 
+Kinuha ni Jesus ang limang tinapay at dalawang isda. Tumingala siya sa langit at nagpasalamat sa Dios. Pagkatapos, hinati-hati niya ang tinapay at ibinigay sa mga tagasunod niya upang ipamigay sa mga tao. 
 
 
 
@@ -739,7 +739,7 @@ Mahigpit na sinabihan ni Jesus ang mga tagasunod niya na huwag nilang ipaalam ka
 
 
 
-Sinabi pa niya, "Ako na_ Anak ng Tao ay kailangang dumanas ng maraming paghihirap. Itatakwil ako ng mga pinuno ng mga Judio, ng mga namamahalang pari, at ng mga tagapagturo ng Kautusan. Ipapapatay nila ako, ngunit sa ikatlong araw ay muli akong mabubuhay." 
+Sinabi pa niya, "Ako na Anak ng Tao ay kailangang dumanas ng maraming paghihirap. Itatakwil ako ng mga pinuno ng mga Judio, ng mga namamahalang pari, at ng mga tagapagturo ng Kautusan. Ipapapatay nila ako, ngunit sa ikatlong araw ay muli akong mabubuhay." 
 
 
 
@@ -838,7 +838,7 @@ Sapagkat ang taong naghahangad magligtas ng kanyang buhay ay mawawalan nito. Ngu
 
 
 
-Ano ba ang mapapala ng isang tao kung mapasakanya man ang lahat ng bagay sa mundo pero mapapahamak naman ang buhay niya? Wala!_ 
+Ano ba ang mapapala ng isang tao kung mapasakanya man ang lahat ng bagay sa mundo pero mapapahamak naman ang buhay niya? Wala! 
 
 
 
@@ -871,7 +871,7 @@ Ano ba ang mapapala ng isang tao kung mapasakanya man ang lahat ng bagay sa mund
 
 
 
-Kung ako at ang mga aral ko ay ikakahiya ninuman, ikakahiya ko rin siya kapag ako na_ Anak ng Tao ay pumarito na taglay ang aking kapangyarihan at ang kapangyarihan_ ng Ama at ng mga banal na anghel. 
+Kung ako at ang mga aral ko ay ikakahiya ninuman, ikakahiya ko rin siya kapag ako na Anak ng Tao ay pumarito na taglay ang aking kapangyarihan at ang kapangyarihan ng Ama at ng mga banal na anghel. 
 
 
 
@@ -1469,7 +1469,7 @@ Namangha ang lahat sa kapangyarihan ng Dios.
 
 
 
-"Pakinggan ninyo at tandaan ang sasabihin kong ito: Ako na_ Anak ng Tao ay ibibigay sa kamay ng mga tao na kumokontra sa akin_." 
+"Pakinggan ninyo at tandaan ang sasabihin kong ito: Ako na Anak ng Tao ay ibibigay sa kamay ng mga tao na kumokontra sa akin." 
 
 
 
@@ -1603,7 +1603,7 @@ Alam ni Jesus ang iniisip nila, kaya kumuha siya ng isang maliit na bata at pina
 
 
 
-Pagkatapos, sinabi niya sa kanila, "Ang sinumang tumatanggap sa batang tulad nito dahil sa akin ay tumatanggap sa akin. At ang tumatanggap sa akin ay tumatanggap sa aking Amang_ nagsugo sa akin. Sapagkat ang pinakamababa sa inyong lahat ang siyang pinakadakila." ## Kakampi Natin ang Hindi Laban sa Atin 
+Pagkatapos, sinabi niya sa kanila, "Ang sinumang tumatanggap sa batang tulad nito dahil sa akin ay tumatanggap sa akin. At ang tumatanggap sa akin ay tumatanggap sa aking Amang nagsugo sa akin. Sapagkat ang pinakamababa sa inyong lahat ang siyang pinakadakila." ## Kakampi Natin ang Hindi Laban sa Atin 
 
 
 
@@ -1935,7 +1935,7 @@ Habang naglalakad sila, may isang lalaking nagsabi kay Jesus, "Susunod po ako sa
 
 
 
-Pero sinagot siya ni Jesus, "May mga lungga ang mga asong-gubat, at may mga pugad ang mga ibon, ngunit ako na_ Anak ng Tao ay walang sariling tahanan na mapagpahingahan." 
+Pero sinagot siya ni Jesus, "May mga lungga ang mga asong-gubat, at may mga pugad ang mga ibon, ngunit ako na Anak ng Tao ay walang sariling tahanan na mapagpahingahan." 
 
 
 
@@ -2067,4 +2067,4 @@ May isa ring nagsabi kay Jesus, "Susunod po ako sa inyo, Panginoon, pero hayaan 
 
 
 
-Sinabi ni Jesus sa kanya, "Ang sinumang nag-aararo na palaging lumilingon ay hindi kapaki-pakinabang ang paglilingkod_ sa ilalim ng paghahari ng Dios."
+Sinabi ni Jesus sa kanya, "Ang sinumang nag-aararo na palaging lumilingon ay hindi kapaki-pakinabang ang paglilingkod sa ilalim ng paghahari ng Dios."

@@ -403,7 +403,7 @@ Sumagot ang mga kasama ni Jesus, "Siya ang propetang si Jesus na taga-Nazaret, n
 
 
 
-Pumunta si Jesus sa templo at itinaboy niya ang mga nagtitinda at namimili roon. Itinaob niya ang mga mesa ng mga nagpapalit ng pera at ang mga upuan ng mga nagtitinda ng mga kalapating inihahandog sa templo_. 
+Pumunta si Jesus sa templo at itinaboy niya ang mga nagtitinda at namimili roon. Itinaob niya ang mga mesa ng mga nagpapalit ng pera at ang mga upuan ng mga nagtitinda ng mga kalapating inihahandog sa templo. 
 
 
 
@@ -436,7 +436,7 @@ Pumunta si Jesus sa templo at itinaboy niya ang mga nagtitinda at namimili roon.
 
 
 
-Sinabi niya sa kanila, "Sinasabi ng Dios_ sa Kasulatan, 'Ang bahay ko ay bahay-panalanginan.' Pero ginawa ninyong pugad ng mga tulisan!" 
+Sinabi niya sa kanila, "Sinasabi ng Dios sa Kasulatan, 'Ang bahay ko ay bahay-panalanginan.' Pero ginawa ninyong pugad ng mga tulisan!" 
 
 
 
@@ -535,7 +535,7 @@ Nagalit ang mga namamahalang pari at mga tagapagturo ng Kautusan nang makita nil
 
 
 
-Sinabi nila kay Jesus, "Naririnig mo ba ang sinasabi nila?" Sumagot si Jesus, "Oo. Hindi ba ninyo nabasa ang sinabi sa Kasulatan_ na kahit ang maliliit na bata ay tinuruan ng Dios na magpuri sa kanya?" 
+Sinabi nila kay Jesus, "Naririnig mo ba ang sinasabi nila?" Sumagot si Jesus, "Oo. Hindi ba ninyo nabasa ang sinabi sa Kasulatan na kahit ang maliliit na bata ay tinuruan ng Dios na magpuri sa kanya?" 
 
 
 
@@ -636,7 +636,7 @@ Kinaumagahan, nang pabalik na sina Jesus sa lungsod ng Jerusalem, nagutom siya.
 
 
 
-May nakita siyang puno ng igos sa tabi ng daan, kaya nilapitan niya ito. Pero wala siyang nakitang bunga_ kundi puro mga dahon. Kaya sinabi niya sa puno, "Hindi ka na mamumunga pang muli!" At agad na natuyo ang puno. 
+May nakita siyang puno ng igos sa tabi ng daan, kaya nilapitan niya ito. Pero wala siyang nakitang bunga kundi puro mga dahon. Kaya sinabi niya sa puno, "Hindi ka na mamumunga pang muli!" At agad na natuyo ang puno. 
 
 
 
@@ -735,7 +735,7 @@ Sumagot si Jesus, "Sinasabi ko sa inyo ang totoo, kung may pananampalataya kayo 
 
 
 
-Anumang hilingin ninyo sa Dios_ sa panalangin ay matatanggap ninyo kung sumasampalataya kayo." ## Ang Tanong tungkol sa Awtoridad ni Jesus 
+Anumang hilingin ninyo sa Dios sa panalangin ay matatanggap ninyo kung sumasampalataya kayo." ## Ang Tanong tungkol sa Awtoridad ni Jesus 
 
 
 
@@ -867,7 +867,7 @@ Kanino galing ang awtoridad ni Juan para magbautismo, sa Dios o sa tao?" Nag-usa
 
 
 
-Pero kung sasabihin nating mula sa tao, magagalit sa atin ang mga tao, dahil naniniwala silang si Juan ay propeta ng Dios_." 
+Pero kung sasabihin nating mula sa tao, magagalit sa atin ang mga tao, dahil naniniwala silang si Juan ay propeta ng Dios." 
 
 
 
@@ -933,7 +933,7 @@ Kaya sumagot sila, "Hindi namin alam." At sinabi ni Jesus sa kanila, "Kung ganoo
 
 
 
-Sinabi pa ni Jesus sa kanila,_ "Ano sa palagay ninyo ang kahulugan ng talinghagang ito? May isang tao na may dalawang anak na lalaki. Lumapit siya sa panganay at sinabi, 'Anak, pumunta ka ngayon sa ating ubasan at magtrabaho.' 
+Sinabi pa ni Jesus sa kanila, "Ano sa palagay ninyo ang kahulugan ng talinghagang ito? May isang tao na may dalawang anak na lalaki. Lumapit siya sa panganay at sinabi, 'Anak, pumunta ka ngayon sa ating ubasan at magtrabaho.' 
 
 
 
@@ -1065,7 +1065,7 @@ Sino ngayon sa dalawa ang sumunod sa kalooban ng kanilang ama?" Sumagot sila, "A
 
 
 
-Sapagkat dumating sa inyo si Juan na tagapagbautismo_, at itinuro sa inyo ang tamang daan sa matuwid na pamumuhay, pero hindi kayo naniwala. Pero ang mga maniningil ng buwis at ang mga babaeng bayaran ay naniwala sa kanya. At kahit na nakita ninyo ito, hindi pa rin kayo nagsisi sa mga kasalanan ninyo at naniwala sa kanya." ## Ang Talinghaga tungkol sa Masasamang Magsasaka 
+Sapagkat dumating sa inyo si Juan na tagapagbautismo, at itinuro sa inyo ang tamang daan sa matuwid na pamumuhay, pero hindi kayo naniwala. Pero ang mga maniningil ng buwis at ang mga babaeng bayaran ay naniwala sa kanya. At kahit na nakita ninyo ito, hindi pa rin kayo nagsisi sa mga kasalanan ninyo at naniwala sa kanya." ## Ang Talinghaga tungkol sa Masasamang Magsasaka 
 
 
 
@@ -1098,7 +1098,7 @@ Sapagkat dumating sa inyo si Juan na tagapagbautismo_, at itinuro sa inyo ang ta
 
 
 
-Muling nagsalita si Jesus sa kanila,_ "Makinig kayo sa isa pang talinghaga: May isang taong may bukid na pinataniman niya ng ubas. Pinabakuran niya ito at nagpagawa ng pisaan ng ubas. Nagtayo rin siya ng isang bantayang tore. At pagkatapos ay pinaupahan niya ang kanyang ubasan sa mga magsasaka at pumunta sa malayong lugar. 
+Muling nagsalita si Jesus sa kanila, "Makinig kayo sa isa pang talinghaga: May isang taong may bukid na pinataniman niya ng ubas. Pinabakuran niya ito at nagpagawa ng pisaan ng ubas. Nagtayo rin siya ng isang bantayang tore. At pagkatapos ay pinaupahan niya ang kanyang ubasan sa mga magsasaka at pumunta sa malayong lugar. 
 
 
 
@@ -1263,7 +1263,7 @@ Nang bandang huli, pinapunta ng may-ari ang kanyang anak. Ang akala niyaʼy igag
 
 
 
-Pero nang makita ng mga magsasaka ang anak ng may-ari_, sinabi nila, 'Narito na ang tagapagmana. Halikayo, patayin natin siya para mapasaatin ang lupang mamanahin niya.' 
+Pero nang makita ng mga magsasaka ang anak ng may-ari, sinabi nila, 'Narito na ang tagapagmana. Halikayo, patayin natin siya para mapasaatin ang lupang mamanahin niya.' 
 
 
 
@@ -1329,7 +1329,7 @@ Kaya sinunggaban nila ang anak, dinala sa labas ng ubasan at pinatay."
 
 
 
-Pagkatapos, nagtanong si Jesus,_ "Ano kaya ang gagawin ng may-ari sa mga magsasakang iyon sa kanyang pagbabalik?" 
+Pagkatapos, nagtanong si Jesus, "Ano kaya ang gagawin ng may-ari sa mga magsasakang iyon sa kanyang pagbabalik?" 
 
 
 
@@ -1395,7 +1395,7 @@ Sumagot ang mga tao, "Tiyak na papatayin niya ang masasamang taong iyon, at pauu
 
 
 
-Sinabi sa kanila ni Jesus, "Hindi ba ninyo nabasa ang talatang ito_ sa Kasulatan? 'Ang batong tinanggihan ng mga tagapagtayo ng bahay ang siyang naging batong pundasyon. Gawa ito ng Panginoon at kahanga-hanga ito sa atin!' 
+Sinabi sa kanila ni Jesus, "Hindi ba ninyo nabasa ang talatang ito sa Kasulatan? 'Ang batong tinanggihan ng mga tagapagtayo ng bahay ang siyang naging batong pundasyon. Gawa ito ng Panginoon at kahanga-hanga ito sa atin!' 
 
 
 

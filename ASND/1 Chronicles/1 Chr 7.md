@@ -106,7 +106,7 @@ Ang mga anak na lalaki ni Tola ay sina Uzi, Refaya, Jeriel, Jamai, Ibsam at Shem
 
 
 
-Ang anak na lalaki ni Uzi ay si Izrahia. Si Izrahia at ang kanyang apat na anak na sina Micael, Obadias, Joel at Ishia, ang mga pinuno ng kanilang mga pamilya_. 
+Ang anak na lalaki ni Uzi ay si Izrahia. Si Izrahia at ang kanyang apat na anak na sina Micael, Obadias, Joel at Ishia, ang mga pinuno ng kanilang mga pamilya. 
 
 
 
@@ -473,7 +473,7 @@ Ang mga anak na lalaki ni Naftali kay Bilha ay sina Jahziel, Guni, Jezer at Shil
 
 
 
-May dalawang_ anak si Manase sa asawa niyang Arameo. Sila ay sina Asriel at Makir. Si Makir ang ama ni Gilead, 
+May dalawang anak si Manase sa asawa niyang Arameo. Sila ay sina Asriel at Makir. Si Makir ang ama ni Gilead, 
 
 
 
@@ -605,7 +605,7 @@ Ang anak na lalaki ni Ulam ay si Bedan. Sila ang mga angkan ni Gilead na anak ni
 
 
 
-Ang kapatid na babae ni Gilead na si Hammoleket ay may mga anak na lalaki_ na sina Ishod, Abiezer at Mala. 
+Ang kapatid na babae ni Gilead na si Hammoleket ay may mga anak na lalaki na sina Ishod, Abiezer at Mala. 
 
 
 
@@ -772,7 +772,7 @@ Matagal ang paghihinagpis ni Efraim sa kanilang pagkamatay, at pumunta ang kanya
 
 
 
-Nang bandang_ huli, sumiping si Efraim sa kanyang asawa; nabuntis ito at nanganak ng lalaki. Pinangalanan ni Efraim ang bata na Beria, dahil sa kasawiang dumating sa kanilang pamilya. 
+Nang bandang huli, sumiping si Efraim sa kanyang asawa; nabuntis ito at nanganak ng lalaki. Pinangalanan ni Efraim ang bata na Beria, dahil sa kasawiang dumating sa kanilang pamilya. 
 
 
 

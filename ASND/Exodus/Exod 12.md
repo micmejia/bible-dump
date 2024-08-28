@@ -403,7 +403,7 @@ Habang kumakain kayo, handa na dapat kayo sa pag-alis. Isuot ninyo ang inyong mg
 
 
 
-"Sa gabing iyon, dadaan ako sa Egipto at papatayin ko ang lahat ng panganay na lalaki ng mga Egipcio_ pati na ang panganay ng kanilang mga hayop. Parurusahan ko ang lahat ng dios ng Egipto. Ako ang Panginoon. 
+"Sa gabing iyon, dadaan ako sa Egipto at papatayin ko ang lahat ng panganay na lalaki ng mga Egipcio pati na ang panganay ng kanilang mga hayop. Parurusahan ko ang lahat ng dios ng Egipto. Ako ang Panginoon. 
 
 
 
@@ -436,7 +436,7 @@ Habang kumakain kayo, handa na dapat kayo sa pag-alis. Isuot ninyo ang inyong mg
 
 
 
-Ang dugong ipinahid ninyo sa hamba_ ng pintuan ninyo ang magiging tanda na nakatira kayo roon. Kapag nakita ko ang dugo, lalampasan ko ang bahay ninyo, at walang salot na sasapit sa inyo kapag pinarusahan ko ang Egipto. 
+Ang dugong ipinahid ninyo sa hamba ng pintuan ninyo ang magiging tanda na nakatira kayo roon. Kapag nakita ko ang dugo, lalampasan ko ang bahay ninyo, at walang salot na sasapit sa inyo kapag pinarusahan ko ang Egipto. 
 
 
 
@@ -634,7 +634,7 @@ Simulan ninyong ipagdiwang ito sa dapit-hapon ng ika-14 na araw ng unang buwan h
 
 
 
-Sa loob ng pitong araw, dapat walang makitang pampaalsa sa bahay ninyo. Ang sinumang kumain ng tinapay na may pampaalsa, katutubo na Israelita_ man o hindi ay ituturing na hindi na kabilang sa mamamayan ng Israel. 
+Sa loob ng pitong araw, dapat walang makitang pampaalsa sa bahay ninyo. Ang sinumang kumain ng tinapay na may pampaalsa, katutubo na Israelita man o hindi ay ituturing na hindi na kabilang sa mamamayan ng Israel. 
 
 
 
@@ -667,7 +667,7 @@ Sa loob ng pitong araw, dapat walang makitang pampaalsa sa bahay ninyo. Ang sinu
 
 
 
-Huwag na huwag kayong kakain ng tinapay na may pampaalsa sa panahon ng pista_, saan man kayo nakatira." 
+Huwag na huwag kayong kakain ng tinapay na may pampaalsa sa panahon ng pista, saan man kayo nakatira." 
 
 
 
@@ -766,7 +766,7 @@ Patuluin ninyo ang dugo nito sa mangkok. Pagkatapos, kumuha kayo ng mga sanga ng
 
 
 
-Dahil dadaan ang Panginoon sa Egipto para patayin ang mga panganay na lalaki ng mga_ Egipcio. Pero kapag nakita ng Panginoon ang dugo sa ibabaw at sa gilid ng hamba ng mga pintuan ninyo_, lalampasan lang niya ang mga bahay ninyo at hindi niya papayagan ang Mamumuksa na pumasok sa mga bahay ninyo at patayin ang inyong mga panganay na lalaki_. 
+Dahil dadaan ang Panginoon sa Egipto para patayin ang mga panganay na lalaki ng mga Egipcio. Pero kapag nakita ng Panginoon ang dugo sa ibabaw at sa gilid ng hamba ng mga pintuan ninyo, lalampasan lang niya ang mga bahay ninyo at hindi niya papayagan ang Mamumuksa na pumasok sa mga bahay ninyo at patayin ang inyong mga panganay na lalaki. 
 
 
 
@@ -898,7 +898,7 @@ Kapag nagtanong ang mga anak ninyo kung ano ang ibig sabihin ng seremonyang ito,
 
 
 
-ito ang isasagot ninyo: Pista ito ng Paglampas ng Anghel bilang pagpaparangal sa Panginoon, dahil nilampasan lang niya ang mga bahay ng mga Israelita sa Egipto nang patayin niya ang mga Egipcio." Pagkatapos magsalita ni Moises,_ yumukod ang mga Israelita at sumamba sa Panginoon_. 
+ito ang isasagot ninyo: Pista ito ng Paglampas ng Anghel bilang pagpaparangal sa Panginoon, dahil nilampasan lang niya ang mga bahay ng mga Israelita sa Egipto nang patayin niya ang mga Egipcio." Pagkatapos magsalita ni Moises, yumukod ang mga Israelita at sumamba sa Panginoon. 
 
 
 
@@ -1063,7 +1063,7 @@ Nang gabi ring iyon, ipinatawag ng Faraon sila Moises at Aaron at sinabi, "Umali
 
 
 
-Dalhin ninyo ang mga hayop ninyo, gaya rin ng pakiusap ninyo at umalis kayo. Pero ipanalangin ninyo na_ kaawaan ako ng inyong Dios_." 
+Dalhin ninyo ang mga hayop ninyo, gaya rin ng pakiusap ninyo at umalis kayo. Pero ipanalangin ninyo na kaawaan ako ng inyong Dios." 
 
 
 
@@ -1096,7 +1096,7 @@ Dalhin ninyo ang mga hayop ninyo, gaya rin ng pakiusap ninyo at umalis kayo. Per
 
 
 
-Pinagmadali ng mga Egipcio ang mga Israelita na umalis sa kanilang bansa, dahil sabi nila, "Kung hindi kayo aalis,_ mamamatay kaming lahat!" 
+Pinagmadali ng mga Egipcio ang mga Israelita na umalis sa kanilang bansa, dahil sabi nila, "Kung hindi kayo aalis, mamamatay kaming lahat!" 
 
 
 
@@ -1294,7 +1294,7 @@ Marami ring mga dayuhan ang sumama sa kanila at marami silang dinalang hayop.
 
 
 
-Nang huminto sila para kumain,_ nagluto sila ng tinapay na walang pampaalsa mula sa minasang harina na dala nila galing sa Egipto. Hindi ito nalagyan ng pampaalsa dahil pinagmadali sila ng mga Egipcio na umalis at wala na silang panahong hintayin pa ang pag-alsa ng minasang harina. 
+Nang huminto sila para kumain, nagluto sila ng tinapay na walang pampaalsa mula sa minasang harina na dala nila galing sa Egipto. Hindi ito nalagyan ng pampaalsa dahil pinagmadali sila ng mga Egipcio na umalis at wala na silang panahong hintayin pa ang pag-alsa ng minasang harina. 
 
 
 
@@ -1626,7 +1626,7 @@ Dapat itong ipagdiwang ng buong mamamayan ng Israel.
 
 
 
-Ang tuntuning itoʼy para sa lahat – sa mga katutubong Israelita_ at sa mga dayuhang naninirahang kasama ninyo." 
+Ang tuntuning itoʼy para sa lahat – sa mga katutubong Israelita at sa mga dayuhang naninirahang kasama ninyo." 
 
 
 

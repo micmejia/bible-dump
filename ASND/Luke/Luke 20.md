@@ -205,7 +205,7 @@ Nag-usap-usap sila, "Kung sasabihin nating mula sa Dios, sasabihin niya, 'Bakit 
 
 
 
-Pero kung sasabihin nating mula sa tao, babatuhin tayo ng mga tao, dahil naniniwala silang si Juan ay propeta ng Dios_." 
+Pero kung sasabihin nating mula sa tao, babatuhin tayo ng mga tao, dahil naniniwala silang si Juan ay propeta ng Dios." 
 
 
 
@@ -733,7 +733,7 @@ Sinabi ng mga espiya kay Jesus, "Guro, alam naming totoo ang mga sinasabi at iti
 
 
 
-Ngayon para sa inyo, tama po ba na tayong mga Judio ay_ magbayad ng buwis sa Emperador ng Roma o hindi?" 
+Ngayon para sa inyo, tama po ba na tayong mga Judio ay magbayad ng buwis sa Emperador ng Roma o hindi?" 
 
 
 
@@ -933,7 +933,7 @@ May ilang Saduceo na lumapit kay Jesus at nagtanong. (Ang mga Saduceo ay hindi n
 
 
 
-Sinabi nila, "Guro, ayon po sa batas na_ isinulat ni Moises, kapag ang isang lalaki ay namatay na walang anak sa kanyang asawa, dapat ay pakasalan ng kapatid niyang lalaki ang naiwan niyang asawa, para magkaanak sila para sa kanya. 
+Sinabi nila, "Guro, ayon po sa batas na isinulat ni Moises, kapag ang isang lalaki ay namatay na walang anak sa kanyang asawa, dapat ay pakasalan ng kapatid niyang lalaki ang naiwan niyang asawa, para magkaanak sila para sa kanya. 
 
 
 
@@ -1298,7 +1298,7 @@ At wala nang nangahas na magtanong sa kanya.
 
 
 
-Ngayon, si Jesus naman ang nagtanong sa kanila, "Bakit sinasabi ng mga tao na ang Cristo raw ay lahi lang_ ni David? 
+Ngayon, si Jesus naman ang nagtanong sa kanila, "Bakit sinasabi ng mga tao na ang Cristo raw ay lahi lang ni David? 
 
 
 
@@ -1397,7 +1397,7 @@ hanggang sa mapasuko ko sa iyo ang iyong mga kaaway.'
 
 
 
-Ngayon, kung tinawag siya ni David na Panginoon, paano masasabing lahi lang_ siya ni David?" ## Babala Laban sa mga Tagapagturo ng Kautusan 
+Ngayon, kung tinawag siya ni David na Panginoon, paano masasabing lahi lang siya ni David?" ## Babala Laban sa mga Tagapagturo ng Kautusan 
 
 
 

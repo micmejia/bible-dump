@@ -10,7 +10,7 @@ next: ['Mic 5']
 
 
 ###### 1 
-Now it shall come to pass in the latter days _That_ the mountain of the Lord's house Shall be established on the top of the mountains, And shall be exalted above the hills; And peoples shall flow to it. 
+Now it shall come to pass in the latter days That the mountain of the Lord's house Shall be established on the top of the mountains, And shall be exalted above the hills; And peoples shall flow to it. 
 
 ###### 2 
 Many nations shall come and say, "Come, and let us go up to the mountain of the Lord, To the house of the God of Jacob; He will teach us His ways, And we shall walk in His paths." For out of Zion the law shall go forth, And the word of the Lord from Jerusalem. 
@@ -19,7 +19,7 @@ Many nations shall come and say, "Come, and let us go up to the mountain of the 
 He shall judge between many peoples, And rebuke strong nations afar off; They shall beat their swords into plowshares, And their spears into pruning hooks; Nation shall not lift up sword against nation, Neither shall they learn war anymore. 
 
 ###### 4 
-But everyone shall sit under his vine and under his fig tree, And no one shall make _them_ afraid; For the mouth of the Lord of hosts has spoken. 
+But everyone shall sit under his vine and under his fig tree, And no one shall make them afraid; For the mouth of the Lord of hosts has spoken. 
 
 ###### 5 
 For all people walk each in the name of his god, But we will walk in the name of the Lord our God Forever and ever.
@@ -36,7 +36,7 @@ I will make the lame a remnant, And the outcast a strong nation; So the Lord wil
 And you, O tower of the flock, The stronghold of the daughter of Zion, To you shall it come, Even the former dominion shall come, The kingdom of the daughter of Jerusalem." 
 
 ###### 9 
-Now why do you cry aloud? _Is there_ no king in your midst? Has your counselor perished? For pangs have seized you like a woman in labor. 
+Now why do you cry aloud? Is there no king in your midst? Has your counselor perished? For pangs have seized you like a woman in labor. 
 
 ###### 10 
 Be in pain, and labor to bring forth, O daughter of Zion, Like a woman in birth pangs. For now you shall go forth from the city, You shall dwell in the field, And to Babylon you shall go. There you shall be delivered; There the Lord will redeem you From the hand of your enemies. 

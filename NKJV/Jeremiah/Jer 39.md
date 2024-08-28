@@ -13,7 +13,7 @@ next: ['Jer 40']
 In the ninth year of Zedekiah king of Judah, in the tenth month, Nebuchadnezzar king of Babylon and all his army came against Jerusalem, and besieged it. 
 
 ###### 2 
-In the eleventh year of Zedekiah, in the fourth month, on the ninth _day_ of the month, the city was penetrated. 
+In the eleventh year of Zedekiah, in the fourth month, on the ninth day of the month, the city was penetrated. 
 
 ###### 3 
 Then all the princes of the king of Babylon came in and sat in the Middle Gate: Nergal-Sharezer, Samgar-Nebo, Sarsechim, Rabsaris, Nergal-Sarezer, Rabmag, with the rest of the princes of the king of Babylon. 
@@ -51,16 +51,16 @@ Now Nebuchadnezzar king of Babylon gave charge concerning Jeremiah to Nebuzarada
 So Nebuzaradan the captain of the guard sent Nebushasban, Rabsaris, Nergal-Sharezer, Rabmag, and all the king of Babylon's chief officers; 
 
 ###### 14 
-then they sent _someone_ to take Jeremiah from the court of the prison, and committed him to Gedaliah the son of Ahikam, the son of Shaphan, that he should take him home. So he dwelt among the people. 
+then they sent someone to take Jeremiah from the court of the prison, and committed him to Gedaliah the son of Ahikam, the son of Shaphan, that he should take him home. So he dwelt among the people. 
 
 ###### 15 
 Meanwhile the word of the Lord had come to Jeremiah while he was shut up in the court of the prison, saying, 
 
 ###### 16 
-"Go and speak to Ebed-Melech the Ethiopian, saying, 'Thus says the Lord of hosts, the God of Israel: "Behold, I will bring My words upon this city for adversity and not for good, and they shall be _performed_ in that day before you. 
+"Go and speak to Ebed-Melech the Ethiopian, saying, 'Thus says the Lord of hosts, the God of Israel: "Behold, I will bring My words upon this city for adversity and not for good, and they shall be performed in that day before you. 
 
 ###### 17 
-But I will deliver you in that day," says the Lord, "and you shall not be given into the hand of the men of whom you _are_ afraid. 
+But I will deliver you in that day," says the Lord, "and you shall not be given into the hand of the men of whom you are afraid. 
 
 ###### 18 
 For I will surely deliver you, and you shall not fall by the sword; but your life shall be as a prize to you, because you have put your trust in Me," says the Lord.' "

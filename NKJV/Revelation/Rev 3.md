@@ -34,7 +34,7 @@ He who overcomes shall be clothed in white garments, and I will not blot out his
 "I know your works. See, I have set before you an open door, and no one can shut it; for you have a little strength, have kept My word, and have not denied My name. 
 
 ###### 9 
-Indeed I will make _those_ of the synagogue of Satan, who say they are Jews and are not, but lie--indeed I will make them come and worship before your feet, and to know that I have loved you. 
+Indeed I will make those of the synagogue of Satan, who say they are Jews and are not, but lie--indeed I will make them come and worship before your feet, and to know that I have loved you. 
 
 ###### 10 
 Because you have kept My command to persevere, I also will keep you from the hour of trial which shall come upon the whole world, to test those who dwell on the earth. 
@@ -43,7 +43,7 @@ Because you have kept My command to persevere, I also will keep you from the hou
 Behold, I am coming quickly! Hold fast what you have, that no one may take your crown. 
 
 ###### 12 
-He who overcomes, I will make him a pillar in the temple of My God, and he shall go out no more. I will write on him the name of My God and the name of the city of My God, the New Jerusalem, which comes down out of heaven from My God. And _I will write on him_ My new name. 
+He who overcomes, I will make him a pillar in the temple of My God, and he shall go out no more. I will write on him the name of My God and the name of the city of My God, the New Jerusalem, which comes down out of heaven from My God. And I will write on him My new name. 
 
 ###### 13 
 "He who has an ear, let him hear what the Spirit says to the churches." ' ## The Lukewarm Church 
@@ -61,7 +61,7 @@ So then, because you are lukewarm, and neither cold nor hot, I will vomit you ou
 Because you say, 'I am rich, have become wealthy, and have need of nothing'--and do not know that you are wretched, miserable, poor, blind, and naked-- 
 
 ###### 18 
-I counsel you to buy from Me gold refined in the fire, that you may be rich; and white garments, that you may be clothed, _that_ the shame of your nakedness may not be revealed; and anoint your eyes with eye salve, that you may see. 
+I counsel you to buy from Me gold refined in the fire, that you may be rich; and white garments, that you may be clothed, that the shame of your nakedness may not be revealed; and anoint your eyes with eye salve, that you may see. 
 
 ###### 19 
 As many as I love, I rebuke and chasten. Therefore be zealous and repent. 

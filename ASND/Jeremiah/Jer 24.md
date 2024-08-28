@@ -40,7 +40,7 @@ next: ['Jer 25']
 
 
 
-May ipinakitang pangitain_ sa akin ang Panginoon pagkatapos bihagin ni Haring Nebucadnezar ng Babilonia si Haring Jehoyakin ng Juda na anak ni Jehoyakim. Si Jehoyakin ay dinala sa Babilonia pati ang mga pinuno niya at ang mahuhusay na panday at manggagawa ng Juda. Sa pangitain ko, nakita ko ang dalawang basket na igos na nasa harap ng templo ng Panginoon. 
+May ipinakitang pangitain sa akin ang Panginoon pagkatapos bihagin ni Haring Nebucadnezar ng Babilonia si Haring Jehoyakin ng Juda na anak ni Jehoyakim. Si Jehoyakin ay dinala sa Babilonia pati ang mga pinuno niya at ang mahuhusay na panday at manggagawa ng Juda. Sa pangitain ko, nakita ko ang dalawang basket na igos na nasa harap ng templo ng Panginoon. 
 
 
 
@@ -172,7 +172,7 @@ Pagkatapos, sinabi sa akin ng Panginoon,
 
 
 
-"Ako,_ ang Panginoon, ang Dios ng Israel ay nagsasabing ituturing kong parang magagandang igos ang mga Israelitang ipinabihag ko sa mga taga-Babilonia. 
+"Ako, ang Panginoon, ang Dios ng Israel ay nagsasabing ituturing kong parang magagandang igos ang mga Israelitang ipinabihag ko sa mga taga-Babilonia. 
 
 
 

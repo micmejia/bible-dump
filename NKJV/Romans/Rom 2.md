@@ -46,13 +46,13 @@ For there is no partiality with God.
 For as many as have sinned without law will also perish without law, and as many as have sinned in the law will be judged by the law 
 
 ###### 13 
-(for not the hearers of the law _are_ just in the sight of God, but the doers of the law will be justified; 
+(for not the hearers of the law are just in the sight of God, but the doers of the law will be justified; 
 
 ###### 14 
 for when Gentiles, who do not have the law, by nature do the things in the law, these, although not having the law, are a law to themselves, 
 
 ###### 15 
-who show the work of the law written in their hearts, their conscience also bearing witness, and between themselves _their_ thoughts accusing or else excusing _them_) 
+who show the work of the law written in their hearts, their conscience also bearing witness, and between themselves their thoughts accusing or else excusing them) 
 
 ###### 16 
 in the day when God will judge the secrets of men by Jesus Christ, according to my gospel.
@@ -63,7 +63,7 @@ in the day when God will judge the secrets of men by Jesus Christ, according to 
 Indeed you are called a Jew, and rest on the law, and make your boast in God, 
 
 ###### 18 
-and know _His_ will, and approve the things that are excellent, being instructed out of the law, 
+and know His will, and approve the things that are excellent, being instructed out of the law, 
 
 ###### 19 
 and are confident that you yourself are a guide to the blind, a light to those who are in darkness, 
@@ -92,10 +92,10 @@ For circumcision is indeed profitable if you keep the law; but if you are a brea
 Therefore, if an uncircumcised man keeps the righteous requirements of the law, will not his uncircumcision be counted as circumcision? 
 
 ###### 27 
-And will not the physically uncircumcised, if he fulfills the law, judge you who, _even_ with _your_ written _code_ and circumcision, _are_ a transgressor of the law? 
+And will not the physically uncircumcised, if he fulfills the law, judge you who, even with your written code and circumcision, are a transgressor of the law? 
 
 ###### 28 
-For he is not a Jew who _is one_ outwardly, nor _is_ circumcision that which _is_ outward in the flesh; 
+For he is not a Jew who is one outwardly, nor is circumcision that which is outward in the flesh; 
 
 ###### 29 
-but _he is_ a Jew who _is one_ inwardly; and circumcision _is that_ of the heart, in the Spirit, not in the letter; whose praise _is_ not from men but from God.
+but he is a Jew who is one inwardly; and circumcision is that of the heart, in the Spirit, not in the letter; whose praise is not from men but from God.

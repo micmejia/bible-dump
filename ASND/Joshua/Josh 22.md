@@ -139,7 +139,7 @@ Hanggang ngayon, hindi nʼyo pinapabayaan ang mga kapatid ninyong Israelita at t
 
 
 
-At ngayon, naangkin na ng mga kapatid ninyong Israelita ang kapahingahan na ipinangako sa kanila ng Panginoon. Kaya bumalik na kayo sa mga lugar nʼyo sa kabila ng Ilog ng_ Jordan, sa lupain na ibinigay sa inyo ni Moises na lingkod ng Panginoon. 
+At ngayon, naangkin na ng mga kapatid ninyong Israelita ang kapahingahan na ipinangako sa kanila ng Panginoon. Kaya bumalik na kayo sa mga lugar nʼyo sa kabila ng Ilog ng Jordan, sa lupain na ibinigay sa inyo ni Moises na lingkod ng Panginoon. 
 
 
 
@@ -337,7 +337,7 @@ At umuwi na ang mga mamamayan ng lahi nina Reuben, Gad at ang kalahating lahi ni
 
 
 
-Pagdating nila sa Gelilot, malapit sa Ilog ng_ Jordan, nagpatayo ang mga lahi nina Reuben, Gad at ang kalahating lahi ni Manase ng malaking altar. Ang lugar na ito ay sakop pa rin ng Canaan. 11-12At nabalitaan ng ibang mga Israelita na nagpatayo ang lahi nina Reuben, Gad at kalahating lahi ni Manase ng altar sa hangganan ng Canaan sa Gelilot, malapit sa Ilog ng_ Jordan. Kaya nagtipon sila sa Shilo para makipaglaban sa kanila. 
+Pagdating nila sa Gelilot, malapit sa Ilog ng Jordan, nagpatayo ang mga lahi nina Reuben, Gad at ang kalahating lahi ni Manase ng malaking altar. Ang lugar na ito ay sakop pa rin ng Canaan. 11-12At nabalitaan ng ibang mga Israelita na nagpatayo ang lahi nina Reuben, Gad at kalahating lahi ni Manase ng altar sa hangganan ng Canaan sa Gelilot, malapit sa Ilog ng Jordan. Kaya nagtipon sila sa Shilo para makipaglaban sa kanila. 
 
 
 
@@ -766,7 +766,7 @@ Kung nilabag namin ang Panginoon dahil sa pagpapatayo namin ng sariling altar pa
 
 
 
-Ginawa na ng Panginoon na hangganan ang Ilog ng_ Jordan para ihiwalay kayo sa amin. Kayong mga lahi nina Reuben at Gad, wala kayong bahagi sa Panginoon.' Baka ang mga kaapu-apuhan nʼyo ang siyang magpahinto sa mga kaapu-apuhan namin sa pagsamba sa Panginoon. 
+Ginawa na ng Panginoon na hangganan ang Ilog ng Jordan para ihiwalay kayo sa amin. Kayong mga lahi nina Reuben at Gad, wala kayong bahagi sa Panginoon.' Baka ang mga kaapu-apuhan nʼyo ang siyang magpahinto sa mga kaapu-apuhan namin sa pagsamba sa Panginoon. 
 
 
 
@@ -865,7 +865,7 @@ kundi para maging tanda para sa amin, sa inyo, at para sa mga susunod nating hen
 
 
 
-At kung mangyari nga na sabihin nila ito sa mga kaapu-apuhan namin, sasagutin sila ng kaapu-apuhan namin, 'Tingnan nʼyo_! Nagpatayo ang mga ninuno namin ng altar, gaya ng altar ng Panginoon, hindi para pag-alayan ng mga handog na sinusunog at ng iba pang mga handog, kundi upang maging paalala para sa amin at sa inyo na isang Dios lamang ang ating sinasamba_.' 
+At kung mangyari nga na sabihin nila ito sa mga kaapu-apuhan namin, sasagutin sila ng kaapu-apuhan namin, 'Tingnan nʼyo! Nagpatayo ang mga ninuno namin ng altar, gaya ng altar ng Panginoon, hindi para pag-alayan ng mga handog na sinusunog at ng iba pang mga handog, kundi upang maging paalala para sa amin at sa inyo na isang Dios lamang ang ating sinasamba.' 
 
 
 

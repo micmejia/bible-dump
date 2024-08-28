@@ -370,7 +370,7 @@ Kayo, O Dios, ang nag-iingat sa akin. Inililigtas nʼyo ang mga namumuhay nang m
 
 
 
-Kayo ang matuwid na hukom, at sa araw-araw ay ipinapakita nʼyo ang inyong_ galit sa masasama. 12-13Kung ayaw nilang magsisi sa kanilang mga kasalanan, ikaw namaʼy nakahandang silaʼy parusahan. Katulad nʼyo ay isang sundalong nakahanda na ang mga nakamamatay na sandata. Nahasa na niya ang kanyang espada, at nakaumang na ang palasong nagbabaga. 
+Kayo ang matuwid na hukom, at sa araw-araw ay ipinapakita nʼyo ang inyong galit sa masasama. 12-13Kung ayaw nilang magsisi sa kanilang mga kasalanan, ikaw namaʼy nakahandang silaʼy parusahan. Katulad nʼyo ay isang sundalong nakahanda na ang mga nakamamatay na sandata. Nahasa na niya ang kanyang espada, at nakaumang na ang palasong nagbabaga. 
 
 
 

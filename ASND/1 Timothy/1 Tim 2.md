@@ -205,7 +205,7 @@ Sapagkat iisa lang ang Dios at iisa lang ang tagapamagitan sa Dios at sa mga tao
 
 
 
-Ibinigay niya ang buhay niya bilang pantubos sa lahat ng tao. Ito ang nagpapatunay na nais ng Dios na maligtas ang lahat ng tao_, at inihayag niya ito sa takdang panahon. 
+Ibinigay niya ang buhay niya bilang pantubos sa lahat ng tao. Ito ang nagpapatunay na nais ng Dios na maligtas ang lahat ng tao, at inihayag niya ito sa takdang panahon. 
 
 
 
@@ -370,7 +370,7 @@ Sa halip, magpakita sila ng mabubuting gawa na nararapat sa mga babaeng sumasamp
 
 
 
-At kung may nagtuturo,_ dapat tahimik na makinig ang mga babae at lubos na magpasakop. 
+At kung may nagtuturo, dapat tahimik na makinig ang mga babae at lubos na magpasakop. 
 
 
 

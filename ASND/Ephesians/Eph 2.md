@@ -40,7 +40,7 @@ next: ['Eph 3']
 
 
 
-Noong una, itinuring_ kayong mga patay ng Dios_ dahil sa mga pagsuway ninyo at mga kasalanan. 
+Noong una, itinuring kayong mga patay ng Dios dahil sa mga pagsuway ninyo at mga kasalanan. 
 
 
 
@@ -73,7 +73,7 @@ Noong una, itinuring_ kayong mga patay ng Dios_ dahil sa mga pagsuway ninyo at m
 
 
 
-Namuhay kayong gaya ng mga taong makamundo. Sakop kayo noon ng kapangyarihan ni Satanas, ang_ hari ng mga espiritung naghahari sa mundo. At siya rin ang espiritung kumikilos sa puso ng mga taong ayaw sumunod sa Dios_. 
+Namuhay kayong gaya ng mga taong makamundo. Sakop kayo noon ng kapangyarihan ni Satanas, ang hari ng mga espiritung naghahari sa mundo. At siya rin ang espiritung kumikilos sa puso ng mga taong ayaw sumunod sa Dios. 
 
 
 
@@ -172,7 +172,7 @@ Ngunit napakamaawain ng Dios at napakadakila ng pag-ibig niya sa atin,
 
 
 
-na kahit itinuring tayong patay dahil sa mga kasalanan natin, muli niya tayong binuhay kasama ni Cristo. (Kaya naligtas tayo dahil lamang sa biyaya ng Dios_.) 
+na kahit itinuring tayong patay dahil sa mga kasalanan natin, muli niya tayong binuhay kasama ni Cristo. (Kaya naligtas tayo dahil lamang sa biyaya ng Dios.) 
 
 
 
@@ -238,7 +238,7 @@ At dahil sa pakikipag-isa natin kay Cristo Jesus, binuhay tayo ng Dios mula sa m
 
 
 
-Ginawa niya ito_ para maipakita niya sa lahat, sa darating na panahon, ang hindi mapapantayang kasaganaan ng biyaya niya at kabutihan na ibinigay niya sa atin sa pamamagitan ni Cristo Jesus. 
+Ginawa niya ito para maipakita niya sa lahat, sa darating na panahon, ang hindi mapapantayang kasaganaan ng biyaya niya at kabutihan na ibinigay niya sa atin sa pamamagitan ni Cristo Jesus. 
 
 
 
@@ -271,7 +271,7 @@ Ginawa niya ito_ para maipakita niya sa lahat, sa darating na panahon, ang hindi
 
 
 
-Dahil sa biyaya ng Dios_, naligtas kayo nang sumampalataya kayo kay Cristo_. Kaloob ito ng Dios, at hindi galing sa inyo. 
+Dahil sa biyaya ng Dios, naligtas kayo nang sumampalataya kayo kay Cristo. Kaloob ito ng Dios, at hindi galing sa inyo. 
 
 
 
@@ -304,7 +304,7 @@ Dahil sa biyaya ng Dios_, naligtas kayo nang sumampalataya kayo kay Cristo_. Kal
 
 
 
-Hindi ito nakasalalay sa mabubuti_ ninyong gawa, para walang maipagmalaki ang sinuman. 
+Hindi ito nakasalalay sa mabubuti ninyong gawa, para walang maipagmalaki ang sinuman. 
 
 
 
@@ -436,7 +436,7 @@ Alalahanin nʼyo rin na noon ay hindi nʼyo pa kilala si Cristo; hindi kayo kabi
 
 
 
-Ngunit kayo ngayon ay na kay Cristo na. Malayo kayo noon sa Dios_, pero ngayon ay malapit na kayo sa kanya sa pamamagitan ng dugo ni Cristo. 
+Ngunit kayo ngayon ay na kay Cristo na. Malayo kayo noon sa Dios, pero ngayon ay malapit na kayo sa kanya sa pamamagitan ng dugo ni Cristo. 
 
 
 
@@ -535,7 +535,7 @@ Ang pader na giniba niya ay ang Kautusan, kasama ang mga utos at mga tuntunin ni
 
 
 
-Ngayong iisang katawan na lang tayo sa pamamagitan ng kamatayan niya sa_ krus, winakasan na niya ang alitan natin at ibinalik niya tayo sa Dios. 
+Ngayong iisang katawan na lang tayo sa pamamagitan ng kamatayan niya sa krus, winakasan na niya ang alitan natin at ibinalik niya tayo sa Dios. 
 
 
 
@@ -601,7 +601,7 @@ Pumarito si Cristo at ipinahayag ang Magandang Balita na nagbibigay ng kapayapaa
 
 
 
-Ngayon, tayong lahat ay makakalapit sa Ama sa pamamagitan ng iisang Banal na_ Espiritu dahil sa ginawa ni Cristo para sa atin. 
+Ngayon, tayong lahat ay makakalapit sa Ama sa pamamagitan ng iisang Banal na Espiritu dahil sa ginawa ni Cristo para sa atin. 
 
 
 
@@ -667,7 +667,7 @@ Kaya kayong mga hindi Judio ay hindi na mga dayuhan o taga-ibang bansa, kundi ka
 
 
 
-Tayong mga mananampalataya ay katulad ng_ gusali na ang mga haligi ay ang mga apostol at mga propeta, at ang pundasyon ay si Cristo Jesus. 
+Tayong mga mananampalataya ay katulad ng gusali na ang mga haligi ay ang mga apostol at mga propeta, at ang pundasyon ay si Cristo Jesus. 
 
 
 

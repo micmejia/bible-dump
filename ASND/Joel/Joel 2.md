@@ -40,7 +40,7 @@ next: ['Joel 3']
 
 
 
-Hipan ninyo ang trumpeta upang bigyang babala ang mga tao_ sa Zion, ang banal na bundok ng Panginoon. Lahat kayong nakatira sa Juda, manginig kayo sa takot, dahil malapit na ang araw ng paghatol_ ng Panginoon. 
+Hipan ninyo ang trumpeta upang bigyang babala ang mga tao sa Zion, ang banal na bundok ng Panginoon. Lahat kayong nakatira sa Juda, manginig kayo sa takot, dahil malapit na ang araw ng paghatol ng Panginoon. 
 
 
 
@@ -405,7 +405,7 @@ Magsisi kayo nang buong puso at hindi pakitang-tao lamang sa pamamagitan ng pagp
 
 
 
-Baka sakaling magbago ang isip ng Panginoon na inyong Dios at pagpalain kayo ng masaganang ani_, para makapaghandog kayo sa kanya ng mga butil at inumin. 
+Baka sakaling magbago ang isip ng Panginoon na inyong Dios at pagpalain kayo ng masaganang ani, para makapaghandog kayo sa kanya ng mga butil at inumin. 
 
 
 
@@ -636,7 +636,7 @@ Palalayasin ko ang mga sasalakay sa inyo mula sa hilaga at itataboy ko sila sa d
 
 
 
-Hindi dapat matakot ang lupain ng Juda_, sa halip dapat itong magalak dahil sa kamangha-manghang ginawa ng Panginoon. 
+Hindi dapat matakot ang lupain ng Juda, sa halip dapat itong magalak dahil sa kamangha-manghang ginawa ng Panginoon. 
 
 
 
@@ -768,7 +768,7 @@ Mapupuno ng butil ang mga giikan, at aapaw ang bagong katas ng ubas at langis sa
 
 
 
-Sapagkat sinasabi ng Panginoon,_ "Ibabalik ko ang lahat ng nawala sa inyo noong mga panahon na sinalakay ang inyong mga pananim ng sunud-sunod na pulutong ng mga balang na iyon. Ako ang nagpadala sa inyo ng napakalaking pulutong ng mga balang. 
+Sapagkat sinasabi ng Panginoon, "Ibabalik ko ang lahat ng nawala sa inyo noong mga panahon na sinalakay ang inyong mga pananim ng sunud-sunod na pulutong ng mga balang na iyon. Ako ang nagpadala sa inyo ng napakalaking pulutong ng mga balang. 
 
 
 
@@ -935,7 +935,7 @@ Sa mga araw na iyon, ibibigay ko rin ang aking Espiritu sa mga utusang lalaki at
 
 
 
-Magpapakita ako ng mga himala sa langit at sa lupa: May makikitang_ dugo, apoy, at makapal na usok. 
+Magpapakita ako ng mga himala sa langit at sa lupa: May makikitang dugo, apoy, at makapal na usok. 
 
 
 
@@ -968,7 +968,7 @@ Magpapakita ako ng mga himala sa langit at sa lupa: May makikitang_ dugo, apoy, 
 
 
 
-Magdidilim ang araw at pupula ang buwan na parang dugo. Mangyayari ito bago dumating ang nakakatakot na araw ng paghuhukom ng_ Panginoon." 
+Magdidilim ang araw at pupula ang buwan na parang dugo. Mangyayari ito bago dumating ang nakakatakot na araw ng paghuhukom ng Panginoon." 
 
 
 
@@ -1001,4 +1001,4 @@ Magdidilim ang araw at pupula ang buwan na parang dugo. Mangyayari ito bago duma
 
 
 
-Ang sinumang hihingi ng tulong sa Panginoon ay maliligtas sa parusang darating_. Sapagkat ayon sa sinabi ng Panginoon, may matitirang mga Israelita sa Bundok ng Zion, ang Jerusalem. Sila ang mga pinili ng Panginoon na maliligtas.
+Ang sinumang hihingi ng tulong sa Panginoon ay maliligtas sa parusang darating. Sapagkat ayon sa sinabi ng Panginoon, may matitirang mga Israelita sa Bundok ng Zion, ang Jerusalem. Sila ang mga pinili ng Panginoon na maliligtas.

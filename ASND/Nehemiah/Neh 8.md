@@ -7,7 +7,7 @@ next: ['Neh 9']
 # Nehemiah 8
 
 ***
-# Nehemias 8 (Ang Salita ng Dios (Tagalog Contemporary Bible)) ###### 2-3 Kaya nang araw na iyon_, ang unang araw ng ikapitong buwan, dinala ng paring si Ezra ang Kautusan sa harap ng mga tao – mga lalaki, babae, at mga batang_ nakakaunawa na. Binasa niya ito sa kanila nang malakas mula sa pagsikat ng araw hanggang tanghali, doon sa plasa na nasa harapan ng Pintuan ng Tubig. At pinakinggang mabuti ng lahat ang Aklat ng Kautusan. 
+# Nehemias 8 (Ang Salita ng Dios (Tagalog Contemporary Bible)) ###### 2-3 Kaya nang araw na iyon, ang unang araw ng ikapitong buwan, dinala ng paring si Ezra ang Kautusan sa harap ng mga tao – mga lalaki, babae, at mga batang nakakaunawa na. Binasa niya ito sa kanila nang malakas mula sa pagsikat ng araw hanggang tanghali, doon sa plasa na nasa harapan ng Pintuan ng Tubig. At pinakinggang mabuti ng lahat ang Aklat ng Kautusan. 
 
 
 
@@ -304,7 +304,7 @@ Sinabi rin ng mga Levita, "Tumahimik kayo! Huwag kayong mabalisa! Sapagkat banal
 
 
 
-Kaya umuwi ang lahat ng tao para kumain at uminom at magbigay ng pagkain sa iba. Nagdiwang sila nang may lubos na kagalakan dahil naunawaan nila ang mga mensahe ng Dios_ na binasa sa kanila.
+Kaya umuwi ang lahat ng tao para kumain at uminom at magbigay ng pagkain sa iba. Nagdiwang sila nang may lubos na kagalakan dahil naunawaan nila ang mga mensahe ng Dios na binasa sa kanila.
 
 ## Ang Pista ng Pagtatayo ng mga Kubol 
 
@@ -405,7 +405,7 @@ Natuklasan nila sa Kautusan na iniutos ng Panginoon sa pamamagitan ni Moises na 
 
 
 
-At dapat nilang ipaalam sa Jerusalem at sa iba pa nilang mga bayan ang utos ng Panginoon_ na pumunta sila sa mga kaburulan at kumuha ng mga sanga ng olibo, mirto, palma, at ng iba pang mga kahoy na malago para gawing mga kubol, ayon sa nakasulat sa Kautusan_. 
+At dapat nilang ipaalam sa Jerusalem at sa iba pa nilang mga bayan ang utos ng Panginoon na pumunta sila sa mga kaburulan at kumuha ng mga sanga ng olibo, mirto, palma, at ng iba pang mga kahoy na malago para gawing mga kubol, ayon sa nakasulat sa Kautusan. 
 
 
 
@@ -438,7 +438,7 @@ At dapat nilang ipaalam sa Jerusalem at sa iba pa nilang mga bayan ang utos ng P
 
 
 
-Kaya kumuha ang mga tao ng mga sanga at gumawa ng kubol sa patag na_ bubong ng mga bahay nila, sa bakuran ng mga bahay nila, sa bakuran ng templo ng Dios, sa plasa na nasa harapan ng Pintuan ng Tubig, at sa Pintuan ni Efraim. 
+Kaya kumuha ang mga tao ng mga sanga at gumawa ng kubol sa patag na bubong ng mga bahay nila, sa bakuran ng mga bahay nila, sa bakuran ng templo ng Dios, sa plasa na nasa harapan ng Pintuan ng Tubig, at sa Pintuan ni Efraim. 
 
 
 
@@ -504,4 +504,4 @@ Lahat sila na bumalik mula sa pagkabihag ay gumawa ng mga kubol at doon tumira. 
 
 
 
-Araw-araw ay binabasa ni Ezra sa mga tao_ ang Aklat ng Kautusan ng Dios, mula sa una hanggang sa huling araw ng pista_. Ipinagdiwang nila ang pista ng pitong araw, at nang ikawalong araw, nagtipon sila para sumamba sa Panginoon,_ ayon sa Kautusan.
+Araw-araw ay binabasa ni Ezra sa mga tao ang Aklat ng Kautusan ng Dios, mula sa una hanggang sa huling araw ng pista. Ipinagdiwang nila ang pista ng pitong araw, at nang ikawalong araw, nagtipon sila para sumamba sa Panginoon, ayon sa Kautusan.

@@ -106,7 +106,7 @@ Tinanong ako ng anghel, "Ano ang nakita mo?" Sinabi ko, "Isang kasulatang nakaro
 
 
 
-Sinabi ng anghel sa akin, "Nakasulat sa kasulatang iyan ang sumpang darating sa buong lupain ng Israel_. Sinasabi sa isang bahagi ng kasulatan na ang lahat ng magnanakaw ay aalisin sa Israel_, at sa kabilang bahagi naman ng kasulatan ay sinasabi na ang lahat ng sumusumpa ng may kasinungalingan ay aalisin din_. 
+Sinabi ng anghel sa akin, "Nakasulat sa kasulatang iyan ang sumpang darating sa buong lupain ng Israel. Sinasabi sa isang bahagi ng kasulatan na ang lahat ng magnanakaw ay aalisin sa Israel, at sa kabilang bahagi naman ng kasulatan ay sinasabi na ang lahat ng sumusumpa ng may kasinungalingan ay aalisin din. 
 
 
 
@@ -205,7 +205,7 @@ Muling nagpakita sa akin ang anghel na nakipag-usap sa akin at sinabi, "Tingnan 
 
 
 
-Nagtanong ako, "Ano iyan?" Sinabi niya, "Kaing." At sinabi pa niya, "Iyan ay sumisimbolo sa kasalanan ng mga tao sa buong lupain ng Israel_." 
+Nagtanong ako, "Ano iyan?" Sinabi niya, "Kaing." At sinabi pa niya, "Iyan ay sumisimbolo sa kasalanan ng mga tao sa buong lupain ng Israel." 
 
 
 

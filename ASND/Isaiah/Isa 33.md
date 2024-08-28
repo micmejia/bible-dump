@@ -106,7 +106,7 @@ Panginoon, kaawaan nʼyo po kami. Nagtitiwala kami sa inyo. Palakasin nʼyo kami
 
 
 
-Tumatakas ang mga tao sa dagundong ng inyong tinig. Kapag kayoʼy tumayo para magparusa_, nagsisipangalat ang mga bansa. 
+Tumatakas ang mga tao sa dagundong ng inyong tinig. Kapag kayoʼy tumayo para magparusa, nagsisipangalat ang mga bansa. 
 
 
 
@@ -304,7 +304,7 @@ Wala nang dumadaan o lumalakad sa mga lansangan. Nilalabag na ang kasunduan at h
 
 
 
-Kawawa ang lupain ng Israel_. Nalalanta ang mga puno ng Lebanon, at napapahiya. Naging ilang ang kapatagan ng_ Sharon. Nalalaglag ang mga dahon ng mga puno sa Bashan at sa Carmel. 
+Kawawa ang lupain ng Israel. Nalalanta ang mga puno ng Lebanon, at napapahiya. Naging ilang ang kapatagan ng Sharon. Nalalaglag ang mga dahon ng mga puno sa Bashan at sa Carmel. 
 
 
 
@@ -535,7 +535,7 @@ Ang makakatagal ay ang mga taong namumuhay nang matuwid at hindi nagsisinungalin
 
 
 
-Ganyang klaseng mga tao ang maliligtas sa kapahamakan, parang_ nakatira sa mataas na lugar, na ang kanilang kanlungan ay ang malalaking bato. Hindi sila mawawalan ng pagkain at inumin. 
+Ganyang klaseng mga tao ang maliligtas sa kapahamakan, parang nakatira sa mataas na lugar, na ang kanilang kanlungan ay ang malalaking bato. Hindi sila mawawalan ng pagkain at inumin. 
 
 
 
@@ -568,7 +568,7 @@ Ganyang klaseng mga tao ang maliligtas sa kapahamakan, parang_ nakatira sa mataa
 
 
 
-Mga Israelita,_ makikita ninyo ang isang makapangyarihang hari na namamahala sa napakalawak na kaharian. 
+Mga Israelita, makikita ninyo ang isang makapangyarihang hari na namamahala sa napakalawak na kaharian. 
 
 
 

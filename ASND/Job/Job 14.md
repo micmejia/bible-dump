@@ -106,7 +106,7 @@ Ang katulad nito ay isang bulaklak, namumukadkad pero agad nalalanta. Katulad di
 
 
 
-Kaya Panginoon,_ bakit kailangan nʼyo pang bantayan nang ganito ang tao? Gusto nʼyo pa ba siyang hatulan sa inyong hukuman? 
+Kaya Panginoon, bakit kailangan nʼyo pang bantayan nang ganito ang tao? Gusto nʼyo pa ba siyang hatulan sa inyong hukuman? 
 
 
 
@@ -436,7 +436,7 @@ gayon din naman, ang taoʼy namamatay at hindi na makakabangon pa o magigising s
 
 
 
-"Panginoon,_ itago nʼyo na lamang po sana ako sa lugar ng mga patay hanggang sa mawala ang galit nʼyo sa akin, at saka nʼyo ako alalahanin sa inyong itinakdang panahon. 
+"Panginoon, itago nʼyo na lamang po sana ako sa lugar ng mga patay hanggang sa mawala ang galit nʼyo sa akin, at saka nʼyo ako alalahanin sa inyong itinakdang panahon. 
 
 
 
@@ -469,7 +469,7 @@ gayon din naman, ang taoʼy namamatay at hindi na makakabangon pa o magigising s
 
 
 
-Kung mamatay ang tao, mabubuhay pa kaya ito? Kung ganoon,_ titiisin ko ang lahat ng paghihirap na ito hanggang sa dumating ang oras na matapos ito. 
+Kung mamatay ang tao, mabubuhay pa kaya ito? Kung ganoon, titiisin ko ang lahat ng paghihirap na ito hanggang sa dumating ang oras na matapos ito. 
 
 
 
@@ -502,7 +502,7 @@ Kung mamatay ang tao, mabubuhay pa kaya ito? Kung ganoon,_ titiisin ko ang lahat
 
 
 
-At sa oras na tawagin nʼyo ako, Panginoon,_ sasagot ako, at kasasabikan nʼyo ako na inyong nilikha. 
+At sa oras na tawagin nʼyo ako, Panginoon, sasagot ako, at kasasabikan nʼyo ako na inyong nilikha. 
 
 
 

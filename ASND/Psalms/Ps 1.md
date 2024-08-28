@@ -171,7 +171,7 @@ Ngunit iba ang mga taong masama; silaʼy parang ipa na tinatangay ng hangin.
 
 
 
-Parurusahan sila ng Dios_ sa araw ng paghatol, at ihihiwalay sa mga matuwid. 
+Parurusahan sila ng Dios sa araw ng paghatol, at ihihiwalay sa mga matuwid. 
 
 
 

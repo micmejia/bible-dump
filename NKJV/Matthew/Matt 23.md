@@ -16,10 +16,10 @@ Then Jesus spoke to the multitudes and to His disciples,
 saying: "The scribes and the Pharisees sit in Moses' seat. 
 
 ###### 3 
-Therefore whatever they tell you to observe, _that_ observe and do, but do not do according to their works; for they say, and do not do. 
+Therefore whatever they tell you to observe, that observe and do, but do not do according to their works; for they say, and do not do. 
 
 ###### 4 
-For they bind heavy burdens, hard to bear, and lay _them_ on men's shoulders; but they _themselves_ will not move them with one of their fingers. 
+For they bind heavy burdens, hard to bear, and lay them on men's shoulders; but they themselves will not move them with one of their fingers. 
 
 ###### 5 
 But all their works they do to be seen by men. They make their phylacteries broad and enlarge the borders of their garments. 
@@ -46,7 +46,7 @@ But he who is greatest among you shall be your servant.
 And whoever exalts himself will be humbled, and he who humbles himself will be exalted. 
 
 ###### 13 
-"But woe to you, scribes and Pharisees, hypocrites! For you shut up the kingdom of heaven against men; for you neither go in _yourselves,_ nor do you allow those who are entering to go in. 
+"But woe to you, scribes and Pharisees, hypocrites! For you shut up the kingdom of heaven against men; for you neither go in yourselves, nor do you allow those who are entering to go in. 
 
 ###### 14 
 Woe to you, scribes and Pharisees, hypocrites! For you devour widows' houses, and for a pretense make long prayers. Therefore you will receive greater condemnation. 
@@ -55,13 +55,13 @@ Woe to you, scribes and Pharisees, hypocrites! For you devour widows' houses, an
 "Woe to you, scribes and Pharisees, hypocrites! For you travel land and sea to win one proselyte, and when he is won, you make him twice as much a son of hell as yourselves. 
 
 ###### 16 
-"Woe to you, blind guides, who say, 'Whoever swears by the temple, it is nothing; but whoever swears by the gold of the temple, he is obliged _to perform it._' 
+"Woe to you, blind guides, who say, 'Whoever swears by the temple, it is nothing; but whoever swears by the gold of the temple, he is obliged to perform it.' 
 
 ###### 17 
 Fools and blind! For which is greater, the gold or the temple that sanctifies the gold? 
 
 ###### 18 
-And, 'Whoever swears by the altar, it is nothing; but whoever swears by the gift that is on it, he is obliged _to perform it._' 
+And, 'Whoever swears by the altar, it is nothing; but whoever swears by the gift that is on it, he is obliged to perform it.' 
 
 ###### 19 
 Fools and blind! For which is greater, the gift or the altar that sanctifies the gift? 
@@ -76,7 +76,7 @@ He who swears by the temple, swears by it and by Him who dwells in it.
 And he who swears by heaven, swears by the throne of God and by Him who sits on it. 
 
 ###### 23 
-"Woe to you, scribes and Pharisees, hypocrites! For you pay tithe of mint and anise and cummin, and have neglected the weightier _matters_ of the law: justice and mercy and faith. These you ought to have done, without leaving the others undone. 
+"Woe to you, scribes and Pharisees, hypocrites! For you pay tithe of mint and anise and cummin, and have neglected the weightier matters of the law: justice and mercy and faith. These you ought to have done, without leaving the others undone. 
 
 ###### 24 
 Blind guides, who strain out a gnat and swallow a camel! 
@@ -88,7 +88,7 @@ Blind guides, who strain out a gnat and swallow a camel!
 Blind Pharisee, first cleanse the inside of the cup and dish, that the outside of them may be clean also. 
 
 ###### 27 
-"Woe to you, scribes and Pharisees, hypocrites! For you are like whitewashed tombs which indeed appear beautiful outwardly, but inside are full of dead _men's_ bones and all uncleanness. 
+"Woe to you, scribes and Pharisees, hypocrites! For you are like whitewashed tombs which indeed appear beautiful outwardly, but inside are full of dead men's bones and all uncleanness. 
 
 ###### 28 
 Even so you also outwardly appear righteous to men, but inside you are full of hypocrisy and lawlessness. 
@@ -103,13 +103,13 @@ and say, 'If we had lived in the days of our fathers, we would not have been par
 "Therefore you are witnesses against yourselves that you are sons of those who murdered the prophets. 
 
 ###### 32 
-Fill up, then, the measure of your fathers' _guilt._ 
+Fill up, then, the measure of your fathers' guilt. 
 
 ###### 33 
 Serpents, brood of vipers! How can you escape the condemnation of hell? 
 
 ###### 34 
-Therefore, indeed, I send you prophets, wise men, and scribes: _some_ of them you will kill and crucify, and _some_ of them you will scourge in your synagogues and persecute from city to city, 
+Therefore, indeed, I send you prophets, wise men, and scribes: some of them you will kill and crucify, and some of them you will scourge in your synagogues and persecute from city to city, 
 
 ###### 35 
 that on you may come all the righteous blood shed on the earth, from the blood of righteous Abel to the blood of Zechariah, son of Berechiah, whom you murdered between the temple and the altar. 
@@ -120,10 +120,10 @@ Assuredly, I say to you, all these things will come upon this generation.
 ## Jesus Laments over Jerusalem 
 
 ###### 37 
-"O Jerusalem, Jerusalem, the one who kills the prophets and stones those who are sent to her! How often I wanted to gather your children together, as a hen gathers her chicks under _her_ wings, but you were not willing! 
+"O Jerusalem, Jerusalem, the one who kills the prophets and stones those who are sent to her! How often I wanted to gather your children together, as a hen gathers her chicks under her wings, but you were not willing! 
 
 ###### 38 
 See! Your house is left to you desolate; 
 
 ###### 39 
-for I say to you, you shall see Me no more till you say, 'Blessed _is_ He who comes in the name of the Lord!' "
+for I say to you, you shall see Me no more till you say, 'Blessed is He who comes in the name of the Lord!' "

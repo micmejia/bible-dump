@@ -139,7 +139,7 @@ Ikaw at ang mga sundalo mo ay iikot sa lungsod ng isang beses sa bawat araw, sa 
 
 
 
-Pauunahin mo sa Kahon ng Kasunduan_ ang pitong pari na ang bawat isa sa kanila ay may dalang trumpeta. Sa ikapitong araw, iikutan nʼyo ang lungsod ng pitong beses, kasama ng mga paring nagpapatunog ng mga trumpeta nila. 
+Pauunahin mo sa Kahon ng Kasunduan ang pitong pari na ang bawat isa sa kanila ay may dalang trumpeta. Sa ikapitong araw, iikutan nʼyo ang lungsod ng pitong beses, kasama ng mga paring nagpapatunog ng mga trumpeta nila. 
 
 
 
@@ -568,7 +568,7 @@ Sa ikapitong beses nilang pag-ikot, pinatunog ng mga pari ang mga trumpeta nila 
 
 
 
-Ang buong lungsod at ang lahat ng makukuha rito ay wawasakin nang lubusan bilang_ handog na buo sa Panginoon. Si Rahab lang na babaeng bayaran at ang buo niyang sambahayan niya ang ililigtas dahil itinago niya ang mga espiya natin. 
+Ang buong lungsod at ang lahat ng makukuha rito ay wawasakin nang lubusan bilang handog na buo sa Panginoon. Si Rahab lang na babaeng bayaran at ang buo niyang sambahayan niya ang ililigtas dahil itinago niya ang mga espiya natin. 
 
 
 

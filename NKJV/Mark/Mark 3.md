@@ -22,7 +22,7 @@ And He said to the man who had the withered hand, "Step forward."
 Then He said to them, "Is it lawful on the Sabbath to do good or to do evil, to save life or to kill?" But they kept silent. 
 
 ###### 5 
-And when He had looked around at them with anger, being grieved by the hardness of their hearts, He said to the man, "Stretch out your hand." And he stretched _it_ out, and his hand was restored as whole as the other. 
+And when He had looked around at them with anger, being grieved by the hardness of their hearts, He said to the man, "Stretch out your hand." And he stretched it out, and his hand was restored as whole as the other. 
 
 ###### 6 
 Then the Pharisees went out and immediately plotted with the Herodians against Him, how they might destroy Him.
@@ -50,7 +50,7 @@ But He sternly warned them that they should not make Him known.
 ## The Twelve Apostles 
 
 ###### 13 
-And He went up on the mountain and called to _Him_ those He Himself wanted. And they came to Him. 
+And He went up on the mountain and called to Him those He Himself wanted. And they came to Him. 
 
 ###### 14 
 Then He appointed twelve, that they might be with Him and that He might send them out to preach, 
@@ -62,10 +62,10 @@ and to have power to heal sicknesses and to cast out demons:
 Simon, to whom He gave the name Peter; 
 
 ###### 17 
-James the _son_ of Zebedee and John the brother of James, to whom He gave the name Boanerges, that is, "Sons of Thunder"; 
+James the son of Zebedee and John the brother of James, to whom He gave the name Boanerges, that is, "Sons of Thunder"; 
 
 ###### 18 
-Andrew, Philip, Bartholomew, Matthew, Thomas, James the _son_ of Alphaeus, Thaddaeus, Simon the Cananite; 
+Andrew, Philip, Bartholomew, Matthew, Thomas, James the son of Alphaeus, Thaddaeus, Simon the Cananite; 
 
 ###### 19 
 and Judas Iscariot, who also betrayed Him. And they went into a house.
@@ -76,13 +76,13 @@ and Judas Iscariot, who also betrayed Him. And they went into a house.
 Then the multitude came together again, so that they could not so much as eat bread. 
 
 ###### 21 
-But when His own people heard _about this,_ they went out to lay hold of Him, for they said, "He is out of His mind." 
+But when His own people heard about this, they went out to lay hold of Him, for they said, "He is out of His mind." 
 
 ###### 22 
 And the scribes who came down from Jerusalem said, "He has Beelzebub," and, "By the ruler of the demons He casts out demons." 
 
 ###### 23 
-So He called them to _Himself_ and said to them in parables: "How can Satan cast out Satan? 
+So He called them to Himself and said to them in parables: "How can Satan cast out Satan? 
 
 ###### 24 
 If a kingdom is divided against itself, that kingdom cannot stand. 

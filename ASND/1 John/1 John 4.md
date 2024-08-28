@@ -106,7 +106,7 @@ Sa ganitong paraan ninyo malalaman kung ang espiritung sumasakanila ay mula sa D
 
 
 
-Ngunit ang hindi kumikilala na si Jesus ay naging tao ay hindi isinugo ng Dios kundi ng espiritu ng_ anti-Cristo. Narinig ninyo na darating na ang anti-Cristo, at naririto na nga sa mundo. 
+Ngunit ang hindi kumikilala na si Jesus ay naging tao ay hindi isinugo ng Dios kundi ng espiritu ng anti-Cristo. Narinig ninyo na darating na ang anti-Cristo, at naririto na nga sa mundo. 
 
 
 
@@ -139,7 +139,7 @@ Ngunit ang hindi kumikilala na si Jesus ay naging tao ay hindi isinugo ng Dios k
 
 
 
-Ngunit mga anak ko_, kayoʼy sa Dios at napagtagumpayan na ninyo ang mga huwad at sinungaling na propeta, dahil ang Espiritung nasa inyo ay higit na makapangyarihan kaysa kay Satanas, na siyang naghahari ngayon sa mga makamundo. 
+Ngunit mga anak ko, kayoʼy sa Dios at napagtagumpayan na ninyo ang mga huwad at sinungaling na propeta, dahil ang Espiritung nasa inyo ay higit na makapangyarihan kaysa kay Satanas, na siyang naghahari ngayon sa mga makamundo. 
 
 
 
@@ -339,7 +339,7 @@ Ipinakita ng Dios ang kanyang pag-ibig sa atin nang isinugo niya ang kanyang kai
 
 
 
-Ito ang tunay na_ pag-ibig: hindi tayo ang umibig sa Dios kundi siya ang umibig sa atin; at isinugo niya ang kanyang anak upang akuin ang ating mga kasalanan para sa kapatawaran natin. 
+Ito ang tunay na pag-ibig: hindi tayo ang umibig sa Dios kundi siya ang umibig sa atin; at isinugo niya ang kanyang anak upang akuin ang ating mga kasalanan para sa kapatawaran natin. 
 
 
 
@@ -636,7 +636,7 @@ Walang anumang takot sa pag-ibig. Pinapawi ng ganap na pag-ibig ang anumang tako
 
 
 
-Umiibig tayo sa Dios_ dahil siya ang unang umibig sa atin. 
+Umiibig tayo sa Dios dahil siya ang unang umibig sa atin. 
 
 
 

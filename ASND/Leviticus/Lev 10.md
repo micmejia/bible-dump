@@ -73,7 +73,7 @@ Ang dalawang anak ni Aaron na sina Nadab at Abihu ay kapwa kumuha ng lalagyan ng
 
 
 
-Kaya nagpadala ng apoy ang Panginoon at sinunog sila hanggang sa silaʼy mamatay sa presensya ng Panginoon doon sa Toldang Tipanan_. 
+Kaya nagpadala ng apoy ang Panginoon at sinunog sila hanggang sa silaʼy mamatay sa presensya ng Panginoon doon sa Toldang Tipanan. 
 
 
 
@@ -205,7 +205,7 @@ Kaya kinuha nila ang mga bangkay, sa pamamagitan ng paghawak sa mga damit nito a
 
 
 
-Pagkatapos, sinabi ni Moises kay Aaron at sa mga anak niyang sina Eleazar at Itamar, "Huwag ninyong guguluhin ang inyong buhok o pupunitin man ang inyong damit para ipakita ang inyong pagluluksa sa namatay_. Kapag ginawa ninyo iyon, pati kayo ay mamamatay at magagalit ang Panginoon sa lahat ng taga-Israel. Pero maaaring magluksa ang mga Israelitang kamag-anak ninyo para sa kanilang dalawa na sinunog ng Panginoon. 
+Pagkatapos, sinabi ni Moises kay Aaron at sa mga anak niyang sina Eleazar at Itamar, "Huwag ninyong guguluhin ang inyong buhok o pupunitin man ang inyong damit para ipakita ang inyong pagluluksa sa namatay. Kapag ginawa ninyo iyon, pati kayo ay mamamatay at magagalit ang Panginoon sa lahat ng taga-Israel. Pero maaaring magluksa ang mga Israelitang kamag-anak ninyo para sa kanilang dalawa na sinunog ng Panginoon. 
 
 
 
@@ -601,7 +601,7 @@ Nang siyasatin ni Moises ang tungkol sa kambing na handog sa paglilinis, napag-a
 
 
 
-Sapagkat ang dugo nito ay hindi dinala sa loob ng Banal na Lugar, kinain sana ninyo iyon doon sa Tolda, ayon sa sinabi ko sa inyo_." 
+Sapagkat ang dugo nito ay hindi dinala sa loob ng Banal na Lugar, kinain sana ninyo iyon doon sa Tolda, ayon sa sinabi ko sa inyo." 
 
 
 
@@ -634,7 +634,7 @@ Sapagkat ang dugo nito ay hindi dinala sa loob ng Banal na Lugar, kinain sana ni
 
 
 
-Pero sumagot si Aaron kay Moises, "Kanina, naghandog ang aking mga anak ng kanilang handog sa paglilinis at handog na sinusunog, pero namatay ang dalawa sa kanila_. Sa nangyaring ito sa aking mga anak,_ matutuwa kaya ang Panginoon kung kinain ko ang handog sa paglilinis ngayong araw?" 
+Pero sumagot si Aaron kay Moises, "Kanina, naghandog ang aking mga anak ng kanilang handog sa paglilinis at handog na sinusunog, pero namatay ang dalawa sa kanila. Sa nangyaring ito sa aking mga anak, matutuwa kaya ang Panginoon kung kinain ko ang handog sa paglilinis ngayong araw?" 
 
 
 

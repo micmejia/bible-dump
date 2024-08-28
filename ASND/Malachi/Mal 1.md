@@ -74,7 +74,7 @@ Ito ang mensahe ng Panginoon para sa mga taga-Israel sa pamamagitan ni Malakias.
 
 
 
-Sinabi ng Panginoon,_ "Mahal ko kayo. Pero nagtatanong pa kayo, 'Paano mo kami minahal?' Alalahanin ninyo na kahit magkapatid sina Esau at Jacob, minahal ko si Jacob 
+Sinabi ng Panginoon, "Mahal ko kayo. Pero nagtatanong pa kayo, 'Paano mo kami minahal?' Alalahanin ninyo na kahit magkapatid sina Esau at Jacob, minahal ko si Jacob 
 
 
 
@@ -140,7 +140,7 @@ pero si Esau, hindi. Winasak ko ang kanyang mga kabundukan, kaya naging tirahan 
 
 
 
-"Maaaring sabihin ng mga Edomita na mga lahi ni Esau,_ 'Kahit na winasak ang aming bayan, itoʼy muli naming itatayo.' Ako,_ ang Panginoong Makapangyarihan ay nagsasabi: Kahit na itayo nilang muli ang kanilang bayan, gigibain ko pa rin ito. Tatawagin silang 'masamang bansa' at 'mga mamamayang laging kinapopootan ng Panginoon.' 
+"Maaaring sabihin ng mga Edomita na mga lahi ni Esau, 'Kahit na winasak ang aming bayan, itoʼy muli naming itatayo.' Ako, ang Panginoong Makapangyarihan ay nagsasabi: Kahit na itayo nilang muli ang kanilang bayan, gigibain ko pa rin ito. Tatawagin silang 'masamang bansa' at 'mga mamamayang laging kinapopootan ng Panginoon.' 
 
 
 
@@ -305,7 +305,7 @@ Kaya hinahandugan ninyo ako ng mga hayop na bulag, pilay o may sakit. Hindi tama
 
 
 
-Sinabi ni Malakias,_ "Kayong mga pari, hilingin ninyo sa Dios na kaawaan niya tayo. Pero sa ganyang klaseng mga inihahandog ninyo sa kanya, tiyak na hindi niya kayo kalulugdan. Iyan ang sinasabi ng Makapangyarihang Panginoon." 
+Sinabi ni Malakias, "Kayong mga pari, hilingin ninyo sa Dios na kaawaan niya tayo. Pero sa ganyang klaseng mga inihahandog ninyo sa kanya, tiyak na hindi niya kayo kalulugdan. Iyan ang sinasabi ng Makapangyarihang Panginoon." 
 
 
 
@@ -338,7 +338,7 @@ Sinabi ni Malakias,_ "Kayong mga pari, hilingin ninyo sa Dios na kaawaan niya ta
 
 
 
-Sinabi ng Makapangyarihang Panginoon, "May isa sana sa mga pari nʼyo na magsara ng mga pintuan ng aking templo_, upang hindi na kayo magsisindi ng walang kabuluhang apoy sa aking altar. Hindi ko tatanggapin ang inyong mga handog dahil hindi ako nalulugod sa inyo. 
+Sinabi ng Makapangyarihang Panginoon, "May isa sana sa mga pari nʼyo na magsara ng mga pintuan ng aking templo, upang hindi na kayo magsisindi ng walang kabuluhang apoy sa aking altar. Hindi ko tatanggapin ang inyong mga handog dahil hindi ako nalulugod sa inyo. 
 
 
 
@@ -470,4 +470,4 @@ Sinasabi pa ninyo na nagsasawa na kayo sa paghahandog at binabalewala ninyo ang 
 
 
 
-Susumpain ko ang mga mandaraya sa inyo, na nangakong maghahandog ng pinakamabuting hayop pero ang inihahandog ay ang may kapintasan. Susumpain ko siya_ dahil ako ang makapangyarihang hari na kinatatakutan ng mga bansa. Ako, ang Panginoong Makapangyarihan, ang nagsasabi nito."
+Susumpain ko ang mga mandaraya sa inyo, na nangakong maghahandog ng pinakamabuting hayop pero ang inihahandog ay ang may kapintasan. Susumpain ko siya dahil ako ang makapangyarihang hari na kinatatakutan ng mga bansa. Ako, ang Panginoong Makapangyarihan, ang nagsasabi nito."

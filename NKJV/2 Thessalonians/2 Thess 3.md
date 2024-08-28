@@ -9,13 +9,13 @@ up: ['2 Thessalonians']
 
 
 ###### 1 
-Finally, brethren, pray for us, that the word of the Lord may run _swiftly_ and be glorified, just as _it is_ with you, 
+Finally, brethren, pray for us, that the word of the Lord may run swiftly and be glorified, just as it is with you, 
 
 ###### 2 
 and that we may be delivered from unreasonable and wicked men; for not all have faith. 
 
 ###### 3 
-But the Lord is faithful, who will establish you and guard _you_ from the evil one. 
+But the Lord is faithful, who will establish you and guard you from the evil one. 
 
 ###### 4 
 And we have confidence in the Lord concerning you, both that you do and will do the things we command you. 
@@ -47,21 +47,21 @@ For we hear that there are some who walk among you in a disorderly manner, not w
 Now those who are such we command and exhort through our Lord Jesus Christ that they work in quietness and eat their own bread. 
 
 ###### 13 
-But _as for_ you, brethren, do not grow weary _in_ doing good. 
+But as for you, brethren, do not grow weary in doing good. 
 
 ###### 14 
 And if anyone does not obey our word in this epistle, note that person and do not keep company with him, that he may be ashamed. 
 
 ###### 15 
-Yet do not count _him_ as an enemy, but admonish _him_ as a brother.
+Yet do not count him as an enemy, but admonish him as a brother.
 
 ## Benediction 
 
 ###### 16 
-Now may the Lord of peace Himself give you peace always in every way. The Lord _be_ with you all. 
+Now may the Lord of peace Himself give you peace always in every way. The Lord be with you all. 
 
 ###### 17 
 The salutation of Paul with my own hand, which is a sign in every epistle; so I write. 
 
 ###### 18 
-The grace of our Lord Jesus Christ _be_ with you all. Amen.
+The grace of our Lord Jesus Christ be with you all. Amen.

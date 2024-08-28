@@ -40,7 +40,7 @@ next: ['Mic 7']
 
 
 
-Sinabi ni Micas:_ Pakinggan ninyo ang sasabihin ng Panginoon sa inyo_: "Sige na, ilahad ninyo ang inyong kaso; iparinig ninyo sa mga bundok at mga burol ang inyong sasabihin. 
+Sinabi ni Micas: Pakinggan ninyo ang sasabihin ng Panginoon sa inyo: "Sige na, ilahad ninyo ang inyong kaso; iparinig ninyo sa mga bundok at mga burol ang inyong sasabihin. 
 
 
 
@@ -106,7 +106,7 @@ At kayong mga bundok na matitibay na pundasyon ng mundo, pakinggan ninyo ang par
 
 
 
-Sinabi ng Panginoon_, "Mga mamamayan ko, ano ang nagawa kong kasalanan sa inyo? Pinahirapan ko ba kayo? Sagutin ninyo ako. 
+Sinabi ng Panginoon, "Mga mamamayan ko, ano ang nagawa kong kasalanan sa inyo? Pinahirapan ko ba kayo? Sagutin ninyo ako. 
 
 
 
@@ -172,7 +172,7 @@ Inilabas ko pa nga kayo sa Egipto kung saan inalipin kayo. At pinili ko sina Moi
 
 
 
-Mga mamamayan ko, alalahanin din ninyong sinugo ni Haring Balak ng Moab si Balaam na anak ni Beor para sumpain kayo. Pero pinagsalita ko si Balaam ng mga pagpapala sa inyo. Alalahanin din ninyo kung paano ko kayo tinulungan nang maglakbay kayo_ mula sa Shitim hanggang sa Gilgal. Alalahanin ninyo ang mga pangyayaring ito_ para malaman ninyo na iniligtas ko kayo." 
+Mga mamamayan ko, alalahanin din ninyong sinugo ni Haring Balak ng Moab si Balaam na anak ni Beor para sumpain kayo. Pero pinagsalita ko si Balaam ng mga pagpapala sa inyo. Alalahanin din ninyo kung paano ko kayo tinulungan nang maglakbay kayo mula sa Shitim hanggang sa Gilgal. Alalahanin ninyo ang mga pangyayaring ito para malaman ninyo na iniligtas ko kayo." 
 
 
 
@@ -205,7 +205,7 @@ Mga mamamayan ko, alalahanin din ninyong sinugo ni Haring Balak ng Moab si Balaa
 
 
 
-Sumagot ang isang Israelita,_ "Ano ang ihahandog ko sa Panginoon, ang Dios sa langit, kapag sasamba ako sa kanya? Mag-aalay ba ako ng guya bilang handog na sinusunog? 
+Sumagot ang isang Israelita, "Ano ang ihahandog ko sa Panginoon, ang Dios sa langit, kapag sasamba ako sa kanya? Mag-aalay ba ako ng guya bilang handog na sinusunog? 
 
 
 
@@ -271,7 +271,7 @@ Matutuwa kaya ang Panginoon kung hahandugan ko siya ng libu-libong tupa at nag-u
 
 
 
-Sumagot si Micas:_ Tinuruan tayo ng Panginoon kung ano ang mabuti. At ito ang nais niyang gawin natin: Gawin natin ang matuwid, pairalin natin ang pagkamaawain sa iba at buong pagpapakumbabang sumunod sa Dios.
+Sumagot si Micas: Tinuruan tayo ng Panginoon kung ano ang mabuti. At ito ang nais niyang gawin natin: Gawin natin ang matuwid, pairalin natin ang pagkamaawain sa iba at buong pagpapakumbabang sumunod sa Dios.
 
 ## Parurusahan ng Panginoon ang mga Israelita 
 
@@ -306,7 +306,7 @@ Sumagot si Micas:_ Tinuruan tayo ng Panginoon kung ano ang mabuti. At ito ang na
 
 
 
-Pakinggan ninyo ang sinasabi ng Panginoon sa lungsod ng Jerusalem_, dahil ang taong may takot sa kanya ang siyang may tunay na karunungan: "Kayong mga kabilang sa lahi ni Juda_, magtipon-tipon kayo sa lungsod ng Jerusalem_ at makinig. 
+Pakinggan ninyo ang sinasabi ng Panginoon sa lungsod ng Jerusalem, dahil ang taong may takot sa kanya ang siyang may tunay na karunungan: "Kayong mga kabilang sa lahi ni Juda, magtipon-tipon kayo sa lungsod ng Jerusalem at makinig. 
 
 
 
@@ -537,4 +537,4 @@ Magtatanim kayo, pero hindi kayo ang aani. Magpipisa kayo ng mga olibo pero hind
 
 
 
-Mangyayari ito sa inyo dahil sinunod ninyo ang masasamang gawa, mga tuntunin, at mga payo ni Haring_ Omri at ng anak niyang si Haring_ Ahab. Kaya wawasakin ko kayo; hahamakin kayo at lalaitin ng ibang mga bansa."
+Mangyayari ito sa inyo dahil sinunod ninyo ang masasamang gawa, mga tuntunin, at mga payo ni Haring Omri at ng anak niyang si Haring Ahab. Kaya wawasakin ko kayo; hahamakin kayo at lalaitin ng ibang mga bansa."

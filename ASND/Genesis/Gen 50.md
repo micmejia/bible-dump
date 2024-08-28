@@ -204,7 +204,7 @@ na pahintulutan niya akong ilibing ang aking ama sa Canaan. Sapagkat bago siya n
 
 
 
-Nang malaman ito ng Faraon,_ sinabi niya kay Jose, "Tuparin mo ang ipinangako mo sa iyong ama. Umalis ka at ilibing siya." 
+Nang malaman ito ng Faraon, sinabi niya kay Jose, "Tuparin mo ang ipinangako mo sa iyong ama. Umalis ka at ilibing siya." 
 
 
 
@@ -336,7 +336,7 @@ Kasama rin nila ang mga karwahe at mga mangangabayo. Talagang napakarami nila.
 
 
 
-Pagdating nila sa giikan sa Atad, malapit sa Ilog ng Jordan, nagluksa sila roon para kay Jacob_ at labis ang kanilang pag-iyak. Labis ang kalungkutan ni Jose sa loob ng pitong araw para sa kanyang ama. 
+Pagdating nila sa giikan sa Atad, malapit sa Ilog ng Jordan, nagluksa sila roon para kay Jacob at labis ang kanilang pag-iyak. Labis ang kalungkutan ni Jose sa loob ng pitong araw para sa kanyang ama. 
 
 
 
@@ -602,7 +602,7 @@ na sabihin sa iyo na patawarin mo kami sa masamang ginawa namin sa iyo. Kaya nga
 
 
 
-Hindi nagtagal, pumunta mismo ang mga kapatid niya sa kanya. Pagdating nila, nagpatirapa sila sa harapan niya bilang paggalang_. Pagkatapos, sinabi nila, "Handa kaming maging alipin mo." 
+Hindi nagtagal, pumunta mismo ang mga kapatid niya sa kanya. Pagdating nila, nagpatirapa sila sa harapan niya bilang paggalang. Pagkatapos, sinabi nila, "Handa kaming maging alipin mo." 
 
 
 
@@ -668,7 +668,7 @@ Pero sumagot si Jose sa kanila, "Huwag kayong matakot. Sino ako para makialam sa
 
 
 
-Totoong nagplano kayo ng masama sa akin, pero plinano na ng Dios na magdulot iyon ng kabutihan na siyang nagligtas ng marami sa inyo sa taggutom_. 
+Totoong nagplano kayo ng masama sa akin, pero plinano na ng Dios na magdulot iyon ng kabutihan na siyang nagligtas ng marami sa inyo sa taggutom. 
 
 
 

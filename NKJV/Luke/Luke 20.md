@@ -10,7 +10,7 @@ next: ['Luke 21']
 
 
 ###### 1 
-Now it happened on one of those days, as He taught the people in the temple and preached the gospel, _that_ the chief priests and the scribes, together with the elders, confronted _Him_ 
+Now it happened on one of those days, as He taught the people in the temple and preached the gospel, that the chief priests and the scribes, together with the elders, confronted Him 
 
 ###### 2 
 and spoke to Him, saying, "Tell us, by what authority are You doing these things? Or who is he who gave You this authority?" 
@@ -28,7 +28,7 @@ And they reasoned among themselves, saying, "If we say, 'From heaven,' He will s
 But if we say, 'From men,' all the people will stone us, for they are persuaded that John was a prophet." 
 
 ###### 7 
-So they answered that they did not know where _it was_ from. 
+So they answered that they did not know where it was from. 
 
 ###### 8 
 And Jesus said to them, "Neither will I tell you by what authority I do these things." ## The Parable of the Wicked Vinedressers 
@@ -37,25 +37,25 @@ And Jesus said to them, "Neither will I tell you by what authority I do these th
 Then He began to tell the people this parable: "A certain man planted a vineyard, leased it to vinedressers, and went into a far country for a long time. 
 
 ###### 10 
-Now at vintage-time he sent a servant to the vinedressers, that they might give him some of the fruit of the vineyard. But the vinedressers beat him and sent _him_ away empty-handed. 
+Now at vintage-time he sent a servant to the vinedressers, that they might give him some of the fruit of the vineyard. But the vinedressers beat him and sent him away empty-handed. 
 
 ###### 11 
-Again he sent another servant; and they beat him also, treated _him_ shamefully, and sent _him_ away empty-handed. 
+Again he sent another servant; and they beat him also, treated him shamefully, and sent him away empty-handed. 
 
 ###### 12 
-And again he sent a third; and they wounded him also and cast _him_ out. 
+And again he sent a third; and they wounded him also and cast him out. 
 
 ###### 13 
-"Then the owner of the vineyard said, 'What shall I do? I will send my beloved son. Probably they will respect _him_ when they see him.' 
+"Then the owner of the vineyard said, 'What shall I do? I will send my beloved son. Probably they will respect him when they see him.' 
 
 ###### 14 
 But when the vinedressers saw him, they reasoned among themselves, saying, 'This is the heir. Come, let us kill him, that the inheritance may be ours.' 
 
 ###### 15 
-So they cast him out of the vineyard and killed _him._ Therefore what will the owner of the vineyard do to them? 
+So they cast him out of the vineyard and killed him. Therefore what will the owner of the vineyard do to them? 
 
 ###### 16 
-He will come and destroy those vinedressers and give the vineyard to others." And when they heard _it_ they said, "Certainly not!" 
+He will come and destroy those vinedressers and give the vineyard to others." And when they heard it they said, "Certainly not!" 
 
 ###### 17 
 Then He looked at them and said, "What then is this that is written: 'The stone which the builders rejected Has become the chief cornerstone'? 
@@ -69,7 +69,7 @@ And the chief priests and the scribes that very hour sought to lay hands on Him,
 ## The Pharisees: Is It Lawful to Pay Taxes to Caesar? 
 
 ###### 20 
-So they watched _Him,_ and sent spies who pretended to be righteous, that they might seize on His words, in order to deliver Him to the power and the authority of the governor. 
+So they watched Him, and sent spies who pretended to be righteous, that they might seize on His words, in order to deliver Him to the power and the authority of the governor. 
 
 ###### 21 
 Then they asked Him, saying, "Teacher, we know that You say and teach rightly, and You do not show personal favoritism, but teach the way of God in truth: 
@@ -92,10 +92,10 @@ But they could not catch Him in His words in the presence of the people. And the
 ## The Sadducees: What About the Resurrection? 
 
 ###### 27 
-Then some of the Sadducees, who deny that there is a resurrection, came to _Him_ and asked Him, 
+Then some of the Sadducees, who deny that there is a resurrection, came to Him and asked Him, 
 
 ###### 28 
-saying: "Teacher, Moses wrote to us _that_ if a man's brother dies, having a wife, and he dies without children, his brother should take his wife and raise up offspring for his brother. 
+saying: "Teacher, Moses wrote to us that if a man's brother dies, having a wife, and he dies without children, his brother should take his wife and raise up offspring for his brother. 
 
 ###### 29 
 Now there were seven brothers. And the first took a wife, and died without children. 
@@ -122,7 +122,7 @@ But those who are counted worthy to attain that age, and the resurrection from t
 nor can they die anymore, for they are equal to the angels and are sons of God, being sons of the resurrection. 
 
 ###### 37 
-But even Moses showed in the _burning_ bush _passage_ that the dead are raised, when he called the Lord 'the God of Abraham, the God of Isaac, and the God of Jacob.' 
+But even Moses showed in the burning bush passage that the dead are raised, when he called the Lord 'the God of Abraham, the God of Isaac, and the God of Jacob.' 
 
 ###### 38 
 For He is not the God of the dead but of the living, for all live to Him." 

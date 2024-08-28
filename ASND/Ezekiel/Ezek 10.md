@@ -40,7 +40,7 @@ next: ['Ezek 11']
 
 
 
-Habang nakatingin ako, may nakita akong parang isang trono na yari sa batong_ safiro. Nasa itaas ito ng takip na kristal_ sa itaas ng ulo ng mga kerubin. 
+Habang nakatingin ako, may nakita akong parang isang trono na yari sa batong safiro. Nasa itaas ito ng takip na kristal sa itaas ng ulo ng mga kerubin. 
 
 
 
@@ -73,7 +73,7 @@ Habang nakatingin ako, may nakita akong parang isang trono na yari sa batong_ sa
 
 
 
-Sinabi ng Panginoon sa taong nakadamit ng telang_ linen, "Pumunta ka sa gitna ng mga gulong sa ilalim ng mga kerubin at punuin mo ang mga kamay mo ng baga at isabog mo sa buong lungsod." At nakita kong pumunta siya. 
+Sinabi ng Panginoon sa taong nakadamit ng telang linen, "Pumunta ka sa gitna ng mga gulong sa ilalim ng mga kerubin at punuin mo ang mga kamay mo ng baga at isabog mo sa buong lungsod." At nakita kong pumunta siya. 
 
 
 
@@ -205,7 +205,7 @@ Ang pagaspas ng pakpak ng mga kerubin ay naririnig hanggang sa bakuran sa labas 
 
 
 
-Nang utusan ng Panginoon ang taong nakadamit ng telang_ linen na kumuha ng baga sa gitna ng mga gulong sa ilalim ng mga kerubin, pumasok siya sa templo at tumayo sa tabi ng gulong. 
+Nang utusan ng Panginoon ang taong nakadamit ng telang linen na kumuha ng baga sa gitna ng mga gulong sa ilalim ng mga kerubin, pumasok siya sa templo at tumayo sa tabi ng gulong. 
 
 
 
@@ -238,7 +238,7 @@ Nang utusan ng Panginoon ang taong nakadamit ng telang_ linen na kumuha ng baga 
 
 
 
-Pagkatapos, isa sa mga kerubin ang kumuha ng baga sa apoy at inilagay sa kamay ng taong nakadamit ng telang_ linen. Dinala ito ng tao at lumabas. 
+Pagkatapos, isa sa mga kerubin ang kumuha ng baga sa apoy at inilagay sa kamay ng taong nakadamit ng telang linen. Dinala ito ng tao at lumabas. 
 
 
 
@@ -304,7 +304,7 @@ Ang bawat kerubin ay parang may mga kamay ng tao sa ilalim ng kanilang pakpak.
 
 
 
-May nakita akong apat na gulong sa gilid ng apat_ na kerubin. Kumikislap na parang mamahalin na batong_ krisolito 
+May nakita akong apat na gulong sa gilid ng apat na kerubin. Kumikislap na parang mamahalin na batong krisolito 
 
 
 
@@ -667,7 +667,7 @@ At habang nakatingin ako, lumipad ang mga kerubin kasama ang mga gulong. Tumigil
 
 
 
-Iyon ang mga buhay na nilalang na nakita ko roon sa ilalim ng presensya_ ng Dios ng Israel doon sa Ilog ng Kebar. At nalaman ko na ang mga nilalang na ito ay mga kerubin. 
+Iyon ang mga buhay na nilalang na nakita ko roon sa ilalim ng presensya ng Dios ng Israel doon sa Ilog ng Kebar. At nalaman ko na ang mga nilalang na ito ay mga kerubin. 
 
 
 

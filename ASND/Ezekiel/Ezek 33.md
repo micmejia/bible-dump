@@ -568,7 +568,7 @@ Hindi na aalalahanin ang mga ginawa niyang kasalanan noon. Dahil gumawa siya ng 
 
 
 
-"Pero ang iyong mga kababayan, Ezekiel,_ dumadaing na hindi raw tama ang pamamaraan ko, gayong ang pamamaraan nila ang hindi tama. 
+"Pero ang iyong mga kababayan, Ezekiel, dumadaing na hindi raw tama ang pamamaraan ko, gayong ang pamamaraan nila ang hindi tama. 
 
 
 
@@ -700,7 +700,7 @@ Ngunit sinasabi pa rin ng mga mamamayan ng Israel hindi tama ang pamamaraan ko. 
 
 
 
-Noong ikalimang araw ng ikasampung buwan, nang ika-12 taon ng aming pagkabihag, may isang takas mula sa Jerusalem na lumapit sa akin at nagsabi, "Nawasak na po ang lungsod ng Jerusalem_!" 
+Noong ikalimang araw ng ikasampung buwan, nang ika-12 taon ng aming pagkabihag, may isang takas mula sa Jerusalem na lumapit sa akin at nagsabi, "Nawasak na po ang lungsod ng Jerusalem!" 
 
 
 
@@ -832,7 +832,7 @@ Sinabi sa akin ng Panginoon,
 
 
 
-Sabihin mo na ako,_ ang Panginoong Dios ay nagsasabi: Inaakala ba ninyong kayo ang magmamay-ari ng lupaing iyon, kahit na kumakain kayo ng karneng may dugo, sumasamba sa mga dios-diosan ninyo at pumapatay ng tao? 
+Sabihin mo na ako, ang Panginoong Dios ay nagsasabi: Inaakala ba ninyong kayo ang magmamay-ari ng lupaing iyon, kahit na kumakain kayo ng karneng may dugo, sumasamba sa mga dios-diosan ninyo at pumapatay ng tao? 
 
 
 
@@ -931,7 +931,7 @@ Nagtitiwala kayo sa inyong espada, gumagawa kayo ng mga kasuklam-suklam na bagay
 
 
 
-Gagawin kong mapanglaw ang lupain ng Israel_ at aalisin ko ang kapangyarihang ipinagmamalaki niya. Magiging mapanglaw kahit ang mga kabundukan niya at wala nang dadaan doon. 
+Gagawin kong mapanglaw ang lupain ng Israel at aalisin ko ang kapangyarihang ipinagmamalaki niya. Magiging mapanglaw kahit ang mga kabundukan niya at wala nang dadaan doon. 
 
 
 
@@ -997,7 +997,7 @@ Kapag ginawa ko nang mapanglaw ang lupain dahil sa mga kasuklam-suklam na ginawa
 
 
 
-Sinabi sa akin ng Panginoon_, "Pinag-uusapan ka ng mga kababayan mo kapag nagtitipon sila sa pader at sa pintuan ng bahay nila. Sinasabi nila sa isaʼt isa, 'Halikayo, pakinggan natin si Ezekiel_ kung ano ang sasabihin niya mula sa Panginoon!' 
+Sinabi sa akin ng Panginoon, "Pinag-uusapan ka ng mga kababayan mo kapag nagtitipon sila sa pader at sa pintuan ng bahay nila. Sinasabi nila sa isaʼt isa, 'Halikayo, pakinggan natin si Ezekiel kung ano ang sasabihin niya mula sa Panginoon!' 
 
 
 

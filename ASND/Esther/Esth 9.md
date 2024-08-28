@@ -502,7 +502,7 @@ Kaya nag-utos ang hari na gawin ang kahilingan ni Ester. Ipinaalam sa mga taga-S
 
 
 
-Kinaumagahan,_ ika-14 na araw ng buwan ng Adar, nagtipong muli ang mga Judio na nasa Susa at nakapatay pa sila ng 300 lalaki. Pero hindi rin nila sinamsam ang mga ari-arian ng mga kalaban nila_. 16-17Pero noong ika-13 araw ng buwan ng Adar, nagtipon ang mga Judio sa ibaʼt ibang probinsya ng kaharian para ipagtanggol ang kanilang sarili sa mga kalaban nila. At nakapatay sila ng 75,000 tao, pero hindi nila sinamsam ang mga ari-arian nito. Kinaumagahan, ika-14 na araw ng buwan ng Adar, nagpahinga sila at nagdiwang ng pista. 
+Kinaumagahan, ika-14 na araw ng buwan ng Adar, nagtipong muli ang mga Judio na nasa Susa at nakapatay pa sila ng 300 lalaki. Pero hindi rin nila sinamsam ang mga ari-arian ng mga kalaban nila. 16-17Pero noong ika-13 araw ng buwan ng Adar, nagtipon ang mga Judio sa ibaʼt ibang probinsya ng kaharian para ipagtanggol ang kanilang sarili sa mga kalaban nila. At nakapatay sila ng 75,000 tao, pero hindi nila sinamsam ang mga ari-arian nito. Kinaumagahan, ika-14 na araw ng buwan ng Adar, nagpahinga sila at nagdiwang ng pista. 
 
 
 
@@ -803,7 +803,7 @@ Pero nang malaman ng hari ang planong ito sa pamamagitan ni Reyna Ester, nagpasu
 
 
 
-Ito ang dahilan kaya tinawag ang pistang iyon na Purim, na mula sa salitang "pur", na ang ibig sabihin ay palabunutan._ At dahil sa sulat ni Mordecai at ayon sa karanasan nila, 
+Ito ang dahilan kaya tinawag ang pistang iyon na Purim, na mula sa salitang "pur", na ang ibig sabihin ay palabunutan. At dahil sa sulat ni Mordecai at ayon sa karanasan nila, 
 
 
 

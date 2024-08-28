@@ -205,7 +205,7 @@ Kaya tinanong siya ng mga Pariseo at ng mga tagapagturo ng Kautusan, "Bakit hind
 
 
 
-Sinagot sila ni Jesus, "Tamang-tama ang sinabi ni Isaias tungkol sa inyo na mga pakitang-tao. Ayon sa isinulat niya, sinabi ng Dios na,_ 'Iginagalang ako ng mga taong ito sa mga labi lang nila, ngunit malayo sa akin ang kanilang mga puso. 
+Sinagot sila ni Jesus, "Tamang-tama ang sinabi ni Isaias tungkol sa inyo na mga pakitang-tao. Ayon sa isinulat niya, sinabi ng Dios na, 'Iginagalang ako ng mga taong ito sa mga labi lang nila, ngunit malayo sa akin ang kanilang mga puso. 
 
 
 
@@ -436,7 +436,7 @@ hindi na siya obligadong tumulong pa sa kanila.
 
 
 
-Pinapawalang-halaga ninyo ang utos ng Dios sa pamamagitan ng mga tradisyong minana ninyo sa inyong mga ninuno_. At marami pa kayong ginagawa na tulad nito." ## Ang Nagpaparumi sa Tao 
+Pinapawalang-halaga ninyo ang utos ng Dios sa pamamagitan ng mga tradisyong minana ninyo sa inyong mga ninuno. At marami pa kayong ginagawa na tulad nito." ## Ang Nagpaparumi sa Tao 
 
 
 
@@ -469,7 +469,7 @@ Pinapawalang-halaga ninyo ang utos ng Dios sa pamamagitan ng mga tradisyong mina
 
 
 
-Muling tinawag ni Jesus ang mga tao at sinabi sa kanila, "Makinig kayong lahat sa akin at unawain ang sasabihin ko_. 
+Muling tinawag ni Jesus ang mga tao at sinabi sa kanila, "Makinig kayong lahat sa akin at unawain ang sasabihin ko. 
 
 
 
@@ -568,7 +568,7 @@ Hindi ang pumapasok sa bibig ng tao ang nagpaparumi sa kanya, kundi ang mga luma
 
 
 
-Pagkatapos, iniwan niya ang mga tao at pumasok sa bahay. Nang nasa loob na siya,_ tinanong siya ng mga tagasunod niya kung ano ang ibig sabihin ng talinghaga na iyon. 
+Pagkatapos, iniwan niya ang mga tao at pumasok sa bahay. Nang nasa loob na siya, tinanong siya ng mga tagasunod niya kung ano ang ibig sabihin ng talinghaga na iyon. 
 
 
 
@@ -634,7 +634,7 @@ Sinabi ni Jesus sa kanila, "Bakit, hindi nʼyo pa rin ba naiintindihan? Hindi n�
 
 
 
-Sapagkat anuman ang kainin niya ay hindi naman sa puso pumupunta kundi sa kanyang tiyan, at idudumi rin niya iyon." (Sa sinabing ito ni Jesus_, ipinahayag niya na lahat ng pagkain ay maaaring kainin.) 
+Sapagkat anuman ang kainin niya ay hindi naman sa puso pumupunta kundi sa kanyang tiyan, at idudumi rin niya iyon." (Sa sinabing ito ni Jesus, ipinahayag niya na lahat ng pagkain ay maaaring kainin.) 
 
 
 
@@ -667,7 +667,7 @@ Sapagkat anuman ang kainin niya ay hindi naman sa puso pumupunta kundi sa kanyan
 
 
 
-Sinabi pa ni Jesus, "Ang lumalabas sa tao ang nagpaparumi sa kanya sa paningin ng Dios_. 
+Sinabi pa ni Jesus, "Ang lumalabas sa tao ang nagpaparumi sa kanya sa paningin ng Dios. 
 
 
 
@@ -799,7 +799,7 @@ Ang lahat ng kasamaang ito ay nanggagaling sa puso ng tao, at siyang nagpaparumi
 
 
 
-Umalis si Jesus mula roon at pumunta sa mga lugar na malapit sa Tyre. Pagdating niya roon,_ tumuloy siya sa isang bahay. Ayaw sana niyang malaman ng mga tao na naroon siya; pero hindi rin niya ito naitago. 25-26Sa katunayan, nalaman agad ito ng isang ina na may anak na babaeng sinaniban ng masamang espiritu. Ang babaeng itoʼy taga-Fenicia na sakop ng Syria, at Griego ang kanyang salita. Pinuntahan niya agad si Jesus at nagpatirapa sa paanan nito, at nagmamakaawang palayasin ang masamang espiritu sa kanyang anak. 
+Umalis si Jesus mula roon at pumunta sa mga lugar na malapit sa Tyre. Pagdating niya roon, tumuloy siya sa isang bahay. Ayaw sana niyang malaman ng mga tao na naroon siya; pero hindi rin niya ito naitago. 25-26Sa katunayan, nalaman agad ito ng isang ina na may anak na babaeng sinaniban ng masamang espiritu. Ang babaeng itoʼy taga-Fenicia na sakop ng Syria, at Griego ang kanyang salita. Pinuntahan niya agad si Jesus at nagpatirapa sa paanan nito, at nagmamakaawang palayasin ang masamang espiritu sa kanyang anak. 
 
 
 
@@ -832,7 +832,7 @@ Umalis si Jesus mula roon at pumunta sa mga lugar na malapit sa Tyre. Pagdating 
 
 
 
-Pero sinagot siya ni Jesus sa pamamagitan ng isang kasabihan_, "Dapat munang pakainin ang mga anak, dahil hindi tamang kunin ang pagkain ng mga anak at ihagis sa mga aso." 
+Pero sinagot siya ni Jesus sa pamamagitan ng isang kasabihan, "Dapat munang pakainin ang mga anak, dahil hindi tamang kunin ang pagkain ng mga anak at ihagis sa mga aso." 
 
 
 
@@ -865,7 +865,7 @@ Pero sinagot siya ni Jesus sa pamamagitan ng isang kasabihan_, "Dapat munang pak
 
 
 
-Sumagot ang babae, "Tama po kayo,_ Panginoon, pero kahit mga aso sa ilalim ng mesa ay kumakain ng mga mumo na nailalaglag ng mga anak." 
+Sumagot ang babae, "Tama po kayo, Panginoon, pero kahit mga aso sa ilalim ng mesa ay kumakain ng mga mumo na nailalaglag ng mga anak." 
 
 
 
@@ -1032,7 +1032,7 @@ Doon, dinala sa kanya ng mga tao ang isang lalaking pipiʼt bingi. Nakiusap sila
 
 
 
-Inilayo muna ni Jesus ang lalaki sa mga tao. Pagkatapos, ipinasok niya ang kanyang mga daliri sa mga tainga ng lalaki, saka dinuraan ang kanyang mga daliri_ at hinipo ang dila nito. 
+Inilayo muna ni Jesus ang lalaki sa mga tao. Pagkatapos, ipinasok niya ang kanyang mga daliri sa mga tainga ng lalaki, saka dinuraan ang kanyang mga daliri at hinipo ang dila nito. 
 
 
 

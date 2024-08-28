@@ -10,28 +10,28 @@ next: ['Ezek 27']
 
 
 ###### 1 
-And it came to pass in the eleventh year, on the first _day_ of the month, _that_ the word of the Lord came to me, saying, 
+And it came to pass in the eleventh year, on the first day of the month, that the word of the Lord came to me, saying, 
 
 ###### 2 
-"Son of man, because Tyre has said against Jerusalem, 'Aha! She is broken who _was_ the gateway of the peoples; now she is turned over to me; I shall be filled; she is laid waste.' 
+"Son of man, because Tyre has said against Jerusalem, 'Aha! She is broken who was the gateway of the peoples; now she is turned over to me; I shall be filled; she is laid waste.' 
 
 ###### 3 
-"Therefore thus says the Lord God: 'Behold, I _am_ against you, O Tyre, and will cause many nations to come up against you, as the sea causes its waves to come up. 
+"Therefore thus says the Lord God: 'Behold, I am against you, O Tyre, and will cause many nations to come up against you, as the sea causes its waves to come up. 
 
 ###### 4 
 And they shall destroy the walls of Tyre and break down her towers; I will also scrape her dust from her, and make her like the top of a rock. 
 
 ###### 5 
-It shall be _a place for_ spreading nets in the midst of the sea, for I have spoken,' says the Lord God; 'it shall become plunder for the nations. 
+It shall be a place for spreading nets in the midst of the sea, for I have spoken,' says the Lord God; 'it shall become plunder for the nations. 
 
 ###### 6 
-Also her daughter _villages_ which _are_ in the fields shall be slain by the sword. Then they shall know that I am the Lord.' 
+Also her daughter villages which are in the fields shall be slain by the sword. Then they shall know that I am the Lord.' 
 
 ###### 7 
 "For thus says the Lord God: 'Behold, I will bring against Tyre from the north Nebuchadnezzar king of Babylon, king of kings, with horses, with chariots, and with horsemen, and an army with many people. 
 
 ###### 8 
-He will slay with the sword your daughter _villages_ in the fields; he will heap up a siege mound against you, build a wall against you, and raise a defense against you. 
+He will slay with the sword your daughter villages in the fields; he will heap up a siege mound against you, build a wall against you, and raise a defense against you. 
 
 ###### 9 
 He will direct his battering rams against your walls, and with his axes he will break down your towers. 
@@ -49,16 +49,16 @@ They will plunder your riches and pillage your merchandise; they will break down
 I will put an end to the sound of your songs, and the sound of your harps shall be heard no more. 
 
 ###### 14 
-I will make you like the top of a rock; you shall be _a place for_ spreading nets, and you shall never be rebuilt, for I the Lord have spoken,' says the Lord God. 
+I will make you like the top of a rock; you shall be a place for spreading nets, and you shall never be rebuilt, for I the Lord have spoken,' says the Lord God. 
 
 ###### 15 
 "Thus says the Lord God to Tyre: 'Will the coastlands not shake at the sound of your fall, when the wounded cry, when slaughter is made in the midst of you? 
 
 ###### 16 
-Then all the princes of the sea will come down from their thrones, lay aside their robes, and take off their embroidered garments; they will clothe themselves with trembling; they will sit on the ground, tremble _every_ moment, and be astonished at you. 
+Then all the princes of the sea will come down from their thrones, lay aside their robes, and take off their embroidered garments; they will clothe themselves with trembling; they will sit on the ground, tremble every moment, and be astonished at you. 
 
 ###### 17 
-And they will take up a lamentation for you, and say to you: "How you have perished, O one inhabited by seafaring men, O renowned city, Who was strong at sea, She and her inhabitants, Who caused their terror _to be_ on all her inhabitants! 
+And they will take up a lamentation for you, and say to you: "How you have perished, O one inhabited by seafaring men, O renowned city, Who was strong at sea, She and her inhabitants, Who caused their terror to be on all her inhabitants! 
 
 ###### 18 
 Now the coastlands tremble on the day of your fall; Yes, the coastlands by the sea are troubled at your departure." ' 
@@ -70,4 +70,4 @@ Now the coastlands tremble on the day of your fall; Yes, the coastlands by the s
 then I will bring you down with those who descend into the Pit, to the people of old, and I will make you dwell in the lowest part of the earth, in places desolate from antiquity, with those who go down to the Pit, so that you may never be inhabited; and I shall establish glory in the land of the living. 
 
 ###### 21 
-I will make you a terror, and you _shall be_ no _more;_ though you are sought for, you will never be found again,' says the Lord God."
+I will make you a terror, and you shall be no more; though you are sought for, you will never be found again,' says the Lord God."

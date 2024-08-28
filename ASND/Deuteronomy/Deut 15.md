@@ -405,7 +405,7 @@ Hindi maiiwasan na may mahihirap sa inyong bayan, kaya inuutusan ko kayong magin
 
 
 
-"Kung ang kapwa mo Hebreo, lalaki man o babae ay ipinagbili ang sarili niya sa iyo bilang alipin_, at naglingkod siya sa iyo sa loob ng anim na taon, kailangang palayain mo siya sa ikapitong taon. 
+"Kung ang kapwa mo Hebreo, lalaki man o babae ay ipinagbili ang sarili niya sa iyo bilang alipin, at naglingkod siya sa iyo sa loob ng anim na taon, kailangang palayain mo siya sa ikapitong taon. 
 
 
 

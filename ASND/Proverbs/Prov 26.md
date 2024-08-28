@@ -172,7 +172,7 @@ Huwag mong sagutin ang hangal kung nakikipag-usap siya sa iyo ng kahangalan, at 
 
 
 
-Ngunit kung minsan, kailangang_ sagutin din siya, para malaman niya na hindi siya marunong tulad ng kanyang inaakala. 
+Ngunit kung minsan, kailangang sagutin din siya, para malaman niya na hindi siya marunong tulad ng kanyang inaakala. 
 
 
 
@@ -238,7 +238,7 @@ Kapag nagpadala ka ng mensahe sa pamamagitan ng isang mangmang, para mo na ring 
 
 
 
-Ang pilay na paa ay walang kabuluhan,_ katulad ng kawikaan sa bibig ng hangal. 
+Ang pilay na paa ay walang kabuluhan, katulad ng kawikaan sa bibig ng hangal. 
 
 
 
@@ -304,7 +304,7 @@ Ang isang papuri na sa hangal iniuukol ay parang batong nakatali sa tirador.
 
 
 
-Ang kasabihang sinasabi ng hangal ay makapipinsala_ tulad ng matinik na kahoy na hawak ng lasing. 
+Ang kasabihang sinasabi ng hangal ay makapipinsala tulad ng matinik na kahoy na hawak ng lasing. 
 
 
 
@@ -832,7 +832,7 @@ Maaaring ang galit ay kanyang maitago, ngunit malalantad din sa karamihan ang ma
 
 
 
-Ang humuhukay ng patibong para mahulog ang iba_ ay siya rin ang mahuhulog doon. Ang nagpapagulong ng malaking bato para magulungan ang iba_ ay siya rin ang magugulungan nito. 
+Ang humuhukay ng patibong para mahulog ang iba ay siya rin ang mahuhulog doon. Ang nagpapagulong ng malaking bato para magulungan ang iba ay siya rin ang magugulungan nito. 
 
 
 

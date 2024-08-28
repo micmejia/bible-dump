@@ -22,10 +22,10 @@ So He spoke this parable to them, saying:
 "What man of you, having a hundred sheep, if he loses one of them, does not leave the ninety-nine in the wilderness, and go after the one which is lost until he finds it? 
 
 ###### 5 
-And when he has found _it,_ he lays _it_ on his shoulders, rejoicing. 
+And when he has found it, he lays it on his shoulders, rejoicing. 
 
 ###### 6 
-And when he comes home, he calls together _his_ friends and neighbors, saying to them, 'Rejoice with me, for I have found my sheep which was lost!' 
+And when he comes home, he calls together his friends and neighbors, saying to them, 'Rejoice with me, for I have found my sheep which was lost!' 
 
 ###### 7 
 I say to you that likewise there will be more joy in heaven over one sinner who repents than over ninety-nine just persons who need no repentance.
@@ -33,10 +33,10 @@ I say to you that likewise there will be more joy in heaven over one sinner who 
 ## The Parable of the Lost Coin 
 
 ###### 8 
-"Or what woman, having ten silver coins, if she loses one coin, does not light a lamp, sweep the house, and search carefully until she finds _it?_ 
+"Or what woman, having ten silver coins, if she loses one coin, does not light a lamp, sweep the house, and search carefully until she finds it? 
 
 ###### 9 
-And when she has found _it,_ she calls _her_ friends and neighbors together, saying, 'Rejoice with me, for I have found the piece which I lost!' 
+And when she has found it, she calls her friends and neighbors together, saying, 'Rejoice with me, for I have found the piece which I lost!' 
 
 ###### 10 
 Likewise, I say to you, there is joy in the presence of the angels of God over one sinner who repents." ## The Parable of the Lost Son 
@@ -45,7 +45,7 @@ Likewise, I say to you, there is joy in the presence of the angels of God over o
 Then He said: "A certain man had two sons. 
 
 ###### 12 
-And the younger of them said to _his_ father, 'Father, give me the portion of goods that falls _to me._' So he divided to them _his_ livelihood. 
+And the younger of them said to his father, 'Father, give me the portion of goods that falls to me.' So he divided to them his livelihood. 
 
 ###### 13 
 And not many days after, the younger son gathered all together, journeyed to a far country, and there wasted his possessions with prodigal living. 
@@ -57,7 +57,7 @@ But when he had spent all, there arose a severe famine in that land, and he bega
 Then he went and joined himself to a citizen of that country, and he sent him into his fields to feed swine. 
 
 ###### 16 
-And he would gladly have filled his stomach with the pods that the swine ate, and no one gave him _anything._ 
+And he would gladly have filled his stomach with the pods that the swine ate, and no one gave him anything. 
 
 ###### 17 
 "But when he came to himself, he said, 'How many of my father's hired servants have bread enough and to spare, and I perish with hunger! 
@@ -75,10 +75,10 @@ and I am no longer worthy to be called your son. Make me like one of your hired 
 And the son said to him, 'Father, I have sinned against heaven and in your sight, and am no longer worthy to be called your son.' 
 
 ###### 22 
-"But the father said to his servants, 'Bring out the best robe and put _it_ on him, and put a ring on his hand and sandals on _his_ feet. 
+"But the father said to his servants, 'Bring out the best robe and put it on him, and put a ring on his hand and sandals on his feet. 
 
 ###### 23 
-And bring the fatted calf here and kill _it,_ and let us eat and be merry; 
+And bring the fatted calf here and kill it, and let us eat and be merry; 
 
 ###### 24 
 for this my son was dead and is alive again; he was lost and is found.' And they began to be merry. 
@@ -96,7 +96,7 @@ And he said to him, 'Your brother has come, and because he has received him safe
 "But he was angry and would not go in. Therefore his father came out and pleaded with him. 
 
 ###### 29 
-So he answered and said to _his_ father, 'Lo, these many years I have been serving you; I never transgressed your commandment at any time; and yet you never gave me a young goat, that I might make merry with my friends. 
+So he answered and said to his father, 'Lo, these many years I have been serving you; I never transgressed your commandment at any time; and yet you never gave me a young goat, that I might make merry with my friends. 
 
 ###### 30 
 But as soon as this son of yours came, who has devoured your livelihood with harlots, you killed the fatted calf for him.' 

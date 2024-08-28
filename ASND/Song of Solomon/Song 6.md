@@ -139,7 +139,7 @@ Akoʼy sa aking mahal, at ang mahal ko naman ay sa akin lang. Nagpapastol siya s
 
 
 
-O napakaganda mo, irog ko. Kasingganda ka ng lungsod ng_ Tirza at kabigha-bighani gaya ng Jerusalem. Kamangha-mangha ka gaya ng mga kawal na may dalang mga bandila. 
+O napakaganda mo, irog ko. Kasingganda ka ng lungsod ng Tirza at kabigha-bighani gaya ng Jerusalem. Kamangha-mangha ka gaya ng mga kawal na may dalang mga bandila. 
 
 
 
@@ -238,7 +238,7 @@ Ang mga ngipin moʼy kasimputi ng tupang bagong paligo. Buong-buo at maganda ang
 
 
 
-Mamula-mula ang noo mong natatakpan ng belo, tulad ng bunga ng_ pomegranata. 
+Mamula-mula ang noo mong natatakpan ng belo, tulad ng bunga ng pomegranata. 
 
 
 
@@ -337,7 +337,7 @@ nag-iisa lang ang aking sinisinta. Tunay na maganda at walang kapintasan. Ang ta
 
 
 
-Ang sabi nila,_ "Sino ba ito na kapag tiningnan ay parang bukang-liwayway ang kagandahan? Kasingganda siya ng buwan, nakakasilaw na parang araw at nakakamangha tulad ng mga bituin." 
+Ang sabi nila, "Sino ba ito na kapag tiningnan ay parang bukang-liwayway ang kagandahan? Kasingganda siya ng buwan, nakakasilaw na parang araw at nakakamangha tulad ng mga bituin." 
 
 
 

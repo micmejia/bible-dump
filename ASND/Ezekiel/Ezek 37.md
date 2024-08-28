@@ -172,7 +172,7 @@ Sinabi niya sa akin, "Sabihin mo sa mga butong ito na makinig sa sasabihin ko.
 
 
 
-Sapagkat ako,_ ang Panginoong Dios, ang magsasabi nito sa kanila, 'Bibigyan ko kayo ng hininga, at mabubuhay kayo. 
+Sapagkat ako, ang Panginoong Dios, ang magsasabi nito sa kanila, 'Bibigyan ko kayo ng hininga, at mabubuhay kayo. 
 
 
 
@@ -469,7 +469,7 @@ Kapag binuksan ko ang mga libingan ninyo at binuhay ko kayong muli, malalaman ni
 
 
 
-Ibibigay ko sa inyo ang aking Espiritu at mabubuhay kayo. Patitirahin ko kayo sa sarili ninyong lupain. At malalaman nga ninyo na ako ang Panginoon na tumutupad ng aking pangako. Ako,_ ang Panginoon, ang nagsasabi nito." ## Pinag-isa ang Juda at Israel 
+Ibibigay ko sa inyo ang aking Espiritu at mabubuhay kayo. Patitirahin ko kayo sa sarili ninyong lupain. At malalaman nga ninyo na ako ang Panginoon na tumutupad ng aking pangako. Ako, ang Panginoon, ang nagsasabi nito." ## Pinag-isa ang Juda at Israel 
 
 
 
@@ -799,7 +799,7 @@ Hindi na nila dudungisan ang kanilang sarili sa pamamagitan ng pagsamba sa mga k
 
 
 
-Paghaharian sila ng haring mula sa angkan ng_ lingkod kong si David. Isa lang ang magiging pastol nila. Susundin na nilang mabuti ang mga utos koʼt mga tuntunin. 
+Paghaharian sila ng haring mula sa angkan ng lingkod kong si David. Isa lang ang magiging pastol nila. Susundin na nilang mabuti ang mga utos koʼt mga tuntunin. 
 
 
 
@@ -832,7 +832,7 @@ Paghaharian sila ng haring mula sa angkan ng_ lingkod kong si David. Isa lang an
 
 
 
-Maninirahan sila sa lupaing ibinigay ko sa lingkod kong si Jacob, ang lupaing tinirhan ng kanilang mga ninuno. Sila at ang mga anak nila ay titira roon habang panahon. At maghahari sa kanila ang haring mula sa lahi ni_ David na lingkod ko magpakailanman. 
+Maninirahan sila sa lupaing ibinigay ko sa lingkod kong si Jacob, ang lupaing tinirhan ng kanilang mga ninuno. Sila at ang mga anak nila ay titira roon habang panahon. At maghahari sa kanila ang haring mula sa lahi ni David na lingkod ko magpakailanman. 
 
 
 

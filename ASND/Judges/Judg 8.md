@@ -139,7 +139,7 @@ Hinayaan ng Dios na matalo nʼyo ang dalawang pinuno ng mga Midianita na sina Or
 
 
 
-Pagkatapos, tumawid si Gideon at ang 300 tauhan niya sa Ilog ng_ Jordan. Kahit pagod na pagod na, patuloy pa rin nilang hinabol ang mga kalaban nila_. 
+Pagkatapos, tumawid si Gideon at ang 300 tauhan niya sa Ilog ng Jordan. Kahit pagod na pagod na, patuloy pa rin nilang hinabol ang mga kalaban nila. 
 
 
 
@@ -172,7 +172,7 @@ Pagkatapos, tumawid si Gideon at ang 300 tauhan niya sa Ilog ng_ Jordan. Kahit p
 
 
 
-Nang makarating sila_ sa Sucot, humiling si Gideon sa mga taga-roon. Sinabi niya, "Pahingi po ng pagkain. Pagod na pagod at gutom na gutom na kami, hahabulin pa namin ang dalawang hari ng Midian na sina Zeba at Zalmuna." 
+Nang makarating sila sa Sucot, humiling si Gideon sa mga taga-roon. Sinabi niya, "Pahingi po ng pagkain. Pagod na pagod at gutom na gutom na kami, hahabulin pa namin ang dalawang hari ng Midian na sina Zeba at Zalmuna." 
 
 
 
@@ -370,7 +370,7 @@ Ngayon, sina Zeba at Zalmuna ay nasa Karkor kasama ang 15,000 nilang sundalo na 
 
 
 
-Nagpatuloy sina Gideon sa paghabol._ Dumaan sila Gideon sa lugar ng mga taong nakatira sa tolda sa silangan ng Noba at Jogbeha. Saka nila biglang sinalakay ang mga Midianita. 
+Nagpatuloy sina Gideon sa paghabol. Dumaan sila Gideon sa lugar ng mga taong nakatira sa tolda sa silangan ng Noba at Jogbeha. Saka nila biglang sinalakay ang mga Midianita. 
 
 
 
@@ -700,7 +700,7 @@ Pagkatapos, sinabi niya sa panganay niyang anak na si Jeter, "Patayin sila!" Per
 
 
 
-Sinabi nina Zeba at Zalmuna kay Gideon_, "Bakit hindi na lang ikaw ang pumatay sa amin? Kung tunay kang lalaki, ikaw na ang pumatay sa amin." Kaya pinatay sila ni Gideon at kinuha niya ang mga palamuti sa leeg ng kanilang mga kamelyo.
+Sinabi nina Zeba at Zalmuna kay Gideon, "Bakit hindi na lang ikaw ang pumatay sa amin? Kung tunay kang lalaki, ikaw na ang pumatay sa amin." Kaya pinatay sila ni Gideon at kinuha niya ang mga palamuti sa leeg ng kanilang mga kamelyo.
 
 ## Ang Espesyal na Damit ni Gideon 
 
@@ -834,7 +834,7 @@ Pero may hihilingin ako sa inyo: maaari bang ang bawat isa sa inyo ay magbigay s
 
 
 
-Sumagot ang mga tao, "Oo, bibigyan ka namin." Naglatag sila ng isang damit at naglagay ang bawat isa roon ng hikaw mula sa nasamsam nila sa mga Midianita_. 
+Sumagot ang mga tao, "Oo, bibigyan ka namin." Naglatag sila ng isang damit at naglagay ang bawat isa roon ng hikaw mula sa nasamsam nila sa mga Midianita. 
 
 
 
@@ -1100,7 +1100,7 @@ Namatay si Gideon sa katandaan. Inilibing siya sa libingan ng ama niyang si Joas
 
 
 
-Hindi pa nagtatagal mula nang mamatay si Gideon nang muling tumalikod ang mga Israelita sa Dios at sumambang muli sa mga imahen ni_ Baal. Ginawa nilang dios si Baal Berit. 
+Hindi pa nagtatagal mula nang mamatay si Gideon nang muling tumalikod ang mga Israelita sa Dios at sumambang muli sa mga imahen ni Baal. Ginawa nilang dios si Baal Berit. 
 
 
 

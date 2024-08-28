@@ -207,7 +207,7 @@ Nang mamatay si Jair, inilibing siya sa Kamon.
 
 
 
-Muling gumawa ng kasamaan ang mga Israelita sa paningin ng Panginoon. Itinakwil nila ang Panginoon at sumamba sila sa mga imahen ni_ Baal at ni Ashtoret, at sa mga dios-diosan ng Aram, Sidon, Moab, Ammon at Filisteo. 
+Muling gumawa ng kasamaan ang mga Israelita sa paningin ng Panginoon. Itinakwil nila ang Panginoon at sumamba sila sa mga imahen ni Baal at ni Ashtoret, at sa mga dios-diosan ng Aram, Sidon, Moab, Ammon at Filisteo. 
 
 
 
@@ -273,7 +273,7 @@ Dahil dito, nagalit sa kanila ang Panginoon at pinasakop sila sa mga Ammonita at
 
 
 
-At nang taon ding iyon, pinagdusa at pinahirapan nila ang mga Israelita. Sa loob ng 18 taon, pinahirapan nila_ ang lahat ng mga Israelita sa Gilead, sa silangan ng Ilog ng_ Jordan na sakop noon ng mga Amoreo. 
+At nang taon ding iyon, pinagdusa at pinahirapan nila ang mga Israelita. Sa loob ng 18 taon, pinahirapan nila ang lahat ng mga Israelita sa Gilead, sa silangan ng Ilog ng Jordan na sakop noon ng mga Amoreo. 
 
 
 
@@ -306,7 +306,7 @@ At nang taon ding iyon, pinagdusa at pinahirapan nila ang mga Israelita. Sa loob
 
 
 
-Tumawid din ang mga taga-Ammon sa kanluran ng Ilog ng_ Jordan at nakipaglaban sa lahi nina_ Juda, Benjamin at ang sa sambahayan ni Efraim. Dahil dito, labis na nahirapan ang Israel. 
+Tumawid din ang mga taga-Ammon sa kanluran ng Ilog ng Jordan at nakipaglaban sa lahi nina Juda, Benjamin at ang sa sambahayan ni Efraim. Dahil dito, labis na nahirapan ang Israel. 
 
 
 
@@ -339,7 +339,7 @@ Tumawid din ang mga taga-Ammon sa kanluran ng Ilog ng_ Jordan at nakipaglaban sa
 
 
 
-Kaya humingi ng tulong ang mga Israelita sa Panginoon. Sinabi nila, "Nagkasala po kami laban sa inyo, dahil tumalikod kami sa inyo na aming Dios at sumamba sa mga imahen ni_ Baal." 11-12Sumagot ang Panginoon, "Nang pinahirapan kayo ng mga Egipcio, Amoreo, Ammonita, Filisteo, Sidoneo, Amalekita at mga Maon, humingi kayo ng tulong sa akin at iniligtas ko kayo. 
+Kaya humingi ng tulong ang mga Israelita sa Panginoon. Sinabi nila, "Nagkasala po kami laban sa inyo, dahil tumalikod kami sa inyo na aming Dios at sumamba sa mga imahen ni Baal." 11-12Sumagot ang Panginoon, "Nang pinahirapan kayo ng mga Egipcio, Amoreo, Ammonita, Filisteo, Sidoneo, Amalekita at mga Maon, humingi kayo ng tulong sa akin at iniligtas ko kayo. 
 
 
 
@@ -405,7 +405,7 @@ Pero tumalikod kayo sa akin at sumamba sa ibang mga dios. Kaya ngayon hindi ko n
 
 
 
-Bakit hindi kayo humingi ng tulong sa mga dios na pinili ninyo na sambahin_? Sila na lang ang magligtas sa inyo sa oras ng inyong kagipitan." 
+Bakit hindi kayo humingi ng tulong sa mga dios na pinili ninyo na sambahin? Sila na lang ang magligtas sa inyo sa oras ng inyong kagipitan." 
 
 
 

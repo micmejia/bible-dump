@@ -17,7 +17,7 @@ elect according to the foreknowledge of God the Father, in sanctification of the
 ## A Heavenly Inheritance 
 
 ###### 3 
-Blessed _be_ the God and Father of our Lord Jesus Christ, who according to His abundant mercy has begotten us again to a living hope through the resurrection of Jesus Christ from the dead, 
+Blessed be the God and Father of our Lord Jesus Christ, who according to His abundant mercy has begotten us again to a living hope through the resurrection of Jesus Christ from the dead, 
 
 ###### 4 
 to an inheritance incorruptible and undefiled and that does not fade away, reserved in heaven for you, 
@@ -29,16 +29,16 @@ who are kept by the power of God through faith for salvation ready to be reveale
 In this you greatly rejoice, though now for a little while, if need be, you have been grieved by various trials, 
 
 ###### 7 
-that the genuineness of your faith, _being_ much more precious than gold that perishes, though it is tested by fire, may be found to praise, honor, and glory at the revelation of Jesus Christ, 
+that the genuineness of your faith, being much more precious than gold that perishes, though it is tested by fire, may be found to praise, honor, and glory at the revelation of Jesus Christ, 
 
 ###### 8 
-whom having not seen you love. Though now you do not see _Him,_ yet believing, you rejoice with joy inexpressible and full of glory, 
+whom having not seen you love. Though now you do not see Him, yet believing, you rejoice with joy inexpressible and full of glory, 
 
 ###### 9 
-receiving the end of your faith--the salvation of _your_ souls. 
+receiving the end of your faith--the salvation of your souls. 
 
 ###### 10 
-Of this salvation the prophets have inquired and searched carefully, who prophesied of the grace _that would come_ to you, 
+Of this salvation the prophets have inquired and searched carefully, who prophesied of the grace that would come to you, 
 
 ###### 11 
 searching what, or what manner of time, the Spirit of Christ who was in them was indicating when He testified beforehand the sufferings of Christ and the glories that would follow. 
@@ -49,22 +49,22 @@ To them it was revealed that, not to themselves, but to us they were ministering
 ## Living Before God Our Father 
 
 ###### 13 
-Therefore gird up the loins of your mind, be sober, and rest _your_ hope fully upon the grace that is to be brought to you at the revelation of Jesus Christ; 
+Therefore gird up the loins of your mind, be sober, and rest your hope fully upon the grace that is to be brought to you at the revelation of Jesus Christ; 
 
 ###### 14 
-as obedient children, not conforming yourselves to the former lusts, _as_ in your ignorance; 
+as obedient children, not conforming yourselves to the former lusts, as in your ignorance; 
 
 ###### 15 
-but as He who called you _is_ holy, you also be holy in all _your_ conduct, 
+but as He who called you is holy, you also be holy in all your conduct, 
 
 ###### 16 
 because it is written, "Be holy, for I am holy." 
 
 ###### 17 
-And if you call on the Father, who without partiality judges according to each one's work, conduct yourselves throughout the time of your stay _here_ in fear; 
+And if you call on the Father, who without partiality judges according to each one's work, conduct yourselves throughout the time of your stay here in fear; 
 
 ###### 18 
-knowing that you were not redeemed with corruptible things, _like_ silver or gold, from your aimless conduct _received_ by tradition from your fathers, 
+knowing that you were not redeemed with corruptible things, like silver or gold, from your aimless conduct received by tradition from your fathers, 
 
 ###### 19 
 but with the precious blood of Christ, as of a lamb without blemish and without spot. 
@@ -84,7 +84,7 @@ Since you have purified your souls in obeying the truth through the Spirit in si
 having been born again, not of corruptible seed but incorruptible, through the word of God which lives and abides forever, 
 
 ###### 24 
-because "All flesh _is_ as grass, And all the glory of man as the flower of the grass. The grass withers, And its flower falls away, 
+because "All flesh is as grass, And all the glory of man as the flower of the grass. The grass withers, And its flower falls away, 
 
 ###### 25 
 But the word of the Lord endures forever." Now this is the word which by the gospel was preached to you.

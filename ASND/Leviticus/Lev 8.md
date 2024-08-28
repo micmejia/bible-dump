@@ -172,7 +172,7 @@ Dinala niya sa gitna si Aaron at ang mga anak niyang lalaki at silaʼy pinaligua
 
 
 
-Ipinasuot niya kay Aaron ang damit bilang punong pari_: ang damit-panloob, ang sinturon, ang damit-panlabas, at ang espesyal na damit at binigkisang mabuti ng hinabing sinturon na maganda ang pagkakagawa. 
+Ipinasuot niya kay Aaron ang damit bilang punong pari: ang damit-panloob, ang sinturon, ang damit-panlabas, at ang espesyal na damit at binigkisang mabuti ng hinabing sinturon na maganda ang pagkakagawa. 
 
 
 
@@ -370,7 +370,7 @@ Pagkatapos, binuhusan niya ng langis ang ulo ni Aaron bilang pagtatalaga sa kany
 
 
 
-At pinalapit niya sa gitna ang mga anak na lalaki ni Aaron at ipinasuot sa kanila ang kasuotan nila na pampari_ at nilagyan ng sinturon. Ipinasuot din sa kanila ang kanilang mga turban. Ginawa ito ni Moises ayon sa iniutos sa kanya ng Panginoon. 
+At pinalapit niya sa gitna ang mga anak na lalaki ni Aaron at ipinasuot sa kanila ang kasuotan nila na pampari at nilagyan ng sinturon. Ipinasuot din sa kanila ang kanilang mga turban. Ginawa ito ni Moises ayon sa iniutos sa kanya ng Panginoon. 
 
 
 
@@ -436,7 +436,7 @@ Pagkatapos nitoʼy ipinakuha ni Moises ang baka na handog sa paglilinis. At ipin
 
 
 
-Pagkatapos, pinatay ni Moises ang baka at kumuha siya ng dugo. Inilubog niya ang kanyang daliri sa dugo at pinahiran niya ang parang_ sungay sa mga sulok ng altar para luminis ito. At ang natirang dugo ay ibinuhos niya sa ilalim ng altar. Sa ganitong paraan niya itinalaga ang altar para sa Panginoon upang maging karapat-dapat na lugar na pinaghahandugan ng mga pantubos sa kasalanan. 
+Pagkatapos, pinatay ni Moises ang baka at kumuha siya ng dugo. Inilubog niya ang kanyang daliri sa dugo at pinahiran niya ang parang sungay sa mga sulok ng altar para luminis ito. At ang natirang dugo ay ibinuhos niya sa ilalim ng altar. Sa ganitong paraan niya itinalaga ang altar para sa Panginoon upang maging karapat-dapat na lugar na pinaghahandugan ng mga pantubos sa kasalanan. 
 
 
 
@@ -964,7 +964,7 @@ Ang Panginoon ang nag-utos sa atin na gawin natin ang ating ginagawa ngayon, par
 
 
 
-Kinakailangang manatili kayo rito araw at gabi sa loob ng pitong araw, at gawin ninyo ang ipinapagawa sa inyo ng Panginoon para hindi kayo mamatay, dahil ito ang iniutos sa akin ng Panginoon na dapat ninyong gawin_." 
+Kinakailangang manatili kayo rito araw at gabi sa loob ng pitong araw, at gawin ninyo ang ipinapagawa sa inyo ng Panginoon para hindi kayo mamatay, dahil ito ang iniutos sa akin ng Panginoon na dapat ninyong gawin." 
 
 
 

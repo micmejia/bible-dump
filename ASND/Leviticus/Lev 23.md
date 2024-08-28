@@ -745,7 +745,7 @@ Sa loob ng pitong araw, mag-aalay kayo ng handog sa pamamagitan ng apoy para sa 
 
 
 
-Iyon ang itinakdang espesyal na mga araw na magtitipon kayo para sumamba sa Panginoon at para mag-alay ng mga handog sa pamamagitan ng apoy para sa Panginoon. Dapat magdala kayo ng_ mga handog na sinusunog, handog ng pagpaparangal sa Panginoon, at mga handog na inumin. Ang mga handog na ito ay kinakailangang ihandog ninyo sa itinakdang araw ng paghahandog nito. 
+Iyon ang itinakdang espesyal na mga araw na magtitipon kayo para sumamba sa Panginoon at para mag-alay ng mga handog sa pamamagitan ng apoy para sa Panginoon. Dapat magdala kayo ng mga handog na sinusunog, handog ng pagpaparangal sa Panginoon, at mga handog na inumin. Ang mga handog na ito ay kinakailangang ihandog ninyo sa itinakdang araw ng paghahandog nito. 
 
 
 

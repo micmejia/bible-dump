@@ -172,7 +172,7 @@ Sapagkat ang mga namumuno sa bayan ay mga lingkod ng Dios para sa ating ikabubut
 
 
 
-Kaya magpasakop kayo sa pamahalaan_, hindi lang para maiwasan ang parusa kundi dahil ito ang nararapat gawin. 
+Kaya magpasakop kayo sa pamahalaan, hindi lang para maiwasan ang parusa kundi dahil ito ang nararapat gawin. 
 
 
 
@@ -372,7 +372,7 @@ Ang taong nagmamahal ay hindi gumagawa ng masama sa kanyang kapwa. Kaya kung nag
 
 
 
-Dapat ninyong gawin ito dahil alam ninyong panahon na para gumising kayo. Sapagkat mas malapit na ngayon ang oras ng ating kaligtasan kaysa noong una, nang tayoʼy sumampalataya kay Jesu-Cristo_. 
+Dapat ninyong gawin ito dahil alam ninyong panahon na para gumising kayo. Sapagkat mas malapit na ngayon ang oras ng ating kaligtasan kaysa noong una, nang tayoʼy sumampalataya kay Jesu-Cristo. 
 
 
 

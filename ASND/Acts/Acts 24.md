@@ -40,7 +40,7 @@ next: ['Acts 25']
 
 
 
-Makalipas ang limang araw, pumunta sa Cesarea_ si Ananias na punong pari. Kasama niya ang ilang pinuno ng mga Judio at ang abogadong si Tertulus. Humarap sila kay Gobernador Felix at sinabi nila sa kanya ang kanilang akusasyon laban kay Pablo. 
+Makalipas ang limang araw, pumunta sa Cesarea si Ananias na punong pari. Kasama niya ang ilang pinuno ng mga Judio at ang abogadong si Tertulus. Humarap sila kay Gobernador Felix at sinabi nila sa kanya ang kanilang akusasyon laban kay Pablo. 
 
 
 
@@ -405,7 +405,7 @@ Kung mag-iimbestiga kayo, malalaman ninyo na 12 araw pa lang ang nakalipas nang 
 
 
 
-Ang mga Judiong itoʼy hindi kailanman nakakita sa akin na nakikipagdiskusyon kahit kanino o kayaʼy nanggulo sa templo o sa sambahan ng mga Judio, o kahit saan sa Jerusalem_. 
+Ang mga Judiong itoʼy hindi kailanman nakakita sa akin na nakikipagdiskusyon kahit kanino o kayaʼy nanggulo sa templo o sa sambahan ng mga Judio, o kahit saan sa Jerusalem. 
 
 
 
@@ -471,7 +471,7 @@ Hindi nga po nila mapapatunayan sa inyo na totoo ang kanilang akusasyon sa akin.
 
 
 
-Pero inaamin kong sinasamba ko ang Dios ng aming mga ninuno sa pamamaraan na ayon sa mga taong ito ay maling sekta. Pero naniniwala rin ako sa lahat ng nasusulat sa Kautusan ni Moises_ at sa lahat ng isinulat ng mga propeta. 
+Pero inaamin kong sinasamba ko ang Dios ng aming mga ninuno sa pamamaraan na ayon sa mga taong ito ay maling sekta. Pero naniniwala rin ako sa lahat ng nasusulat sa Kautusan ni Moises at sa lahat ng isinulat ng mga propeta. 
 
 
 
@@ -537,7 +537,7 @@ Ang pag-asa ko sa Dios ay katulad din ng pag-asa nila, na ang lahat ng tao, mabu
 
 
 
-Kaya pinagsisikapan ko na laging maging malinis ang aking konsensya sa harap ng_ Dios at sa mga tao. 
+Kaya pinagsisikapan ko na laging maging malinis ang aking konsensya sa harap ng Dios at sa mga tao. 
 
 
 
@@ -570,7 +570,7 @@ Kaya pinagsisikapan ko na laging maging malinis ang aking konsensya sa harap ng_
 
 
 
-"Pagkalipas ng ilang taon na wala po ako sa Jerusalem_, bumalik ako roon para magdala ng tulong para sa aking mahihirap na_ kababayan, at para maghandog sa templo_. 
+"Pagkalipas ng ilang taon na wala po ako sa Jerusalem, bumalik ako roon para magdala ng tulong para sa aking mahihirap na kababayan, at para maghandog sa templo. 
 
 
 
@@ -636,7 +636,7 @@ At nadatnan nila ako roon sa templo na naghahandog matapos kong gawin ang seremo
 
 
 
-Pero may mga Judio roon na galing sa lalawigan ng_ Asia. Sila sana ang dapat humarap sa inyo kung talagang may akusasyon sila laban sa akin. 
+Pero may mga Judio roon na galing sa lalawigan ng Asia. Sila sana ang dapat humarap sa inyo kung talagang may akusasyon sila laban sa akin. 
 
 
 
@@ -735,7 +735,7 @@ Sapagkat wala akong ibang sinabi sa harapan nila kundi ito: 'Inaakusahan ninyo a
 
 
 
-Dahil sa marami nang nalalaman noon si Felix tungkol sa pamamaraan ni Jesus_, pinatigil niya ang paglilitis. Sinabi niya, "Hahatulan ko lang ang kasong ito kung dumating na rito si kumander Lysias." 
+Dahil sa marami nang nalalaman noon si Felix tungkol sa pamamaraan ni Jesus, pinatigil niya ang paglilitis. Sinabi niya, "Hahatulan ko lang ang kasong ito kung dumating na rito si kumander Lysias." 
 
 
 

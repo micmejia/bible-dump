@@ -271,7 +271,7 @@ Kinuha rin niya ang Aklat ng Kasunduan at binasa ito sa mga tao. At sumagot ang 
 
 
 
-Pagkatapos, kinuha niya ang dugo sa mga mangkok_ at iwinisik ito sa mga tao, at sinabi, "Ito ang dugo na nagpapatibay sa kasunduan na ginawa ng Panginoon sa inyo nang ibigay niya ang mga utos na ito." 
+Pagkatapos, kinuha niya ang dugo sa mga mangkok at iwinisik ito sa mga tao, at sinabi, "Ito ang dugo na nagpapatibay sa kasunduan na ginawa ng Panginoon sa inyo nang ibigay niya ang mga utos na ito." 
 
 
 
@@ -304,7 +304,7 @@ Pagkatapos, kinuha niya ang dugo sa mga mangkok_ at iwinisik ito sa mga tao, at 
 
 
 
-Pumunta paakyat sa bundok_ sina Moises, Aaron, Nadab, Abihu at 70 tagapamahala ng Israel, 
+Pumunta paakyat sa bundok sina Moises, Aaron, Nadab, Abihu at 70 tagapamahala ng Israel, 
 
 
 
@@ -370,7 +370,7 @@ at nakita nila ang Dios ng Israel. Sa paanan niya ay may parang daan na gawa sa 
 
 
 
-Kahit nakita na ng mga pinuno ang Dios, hindi sila pinatay ng Dios. Kumain pa sila at uminom doon sa kanyang presensya_. 
+Kahit nakita na ng mga pinuno ang Dios, hindi sila pinatay ng Dios. Kumain pa sila at uminom doon sa kanyang presensya. 
 
 
 
@@ -469,7 +469,7 @@ Kaya umakyat si Moises sa bundok kasama ang lingkod niyang si Josue.
 
 
 
-Bago sila umakyat,_ sinabi ni Moises sa mga tagapamahala ng Israel_, "Hintayin nʼyo kami rito hanggang sa makabalik kami. Maiiwan dito sina Aaron at Hur, at kung may problema kayo, lumapit lang kayo sa kanila." 
+Bago sila umakyat, sinabi ni Moises sa mga tagapamahala ng Israel, "Hintayin nʼyo kami rito hanggang sa makabalik kami. Maiiwan dito sina Aaron at Hur, at kung may problema kayo, lumapit lang kayo sa kanila." 
 
 
 

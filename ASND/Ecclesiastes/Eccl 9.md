@@ -139,7 +139,7 @@ Ito ang hindi maganda sa lahat ng nangyayari rito sa mundo: iisa lang ang kasasa
 
 
 
-Habang may buhay ang tao, may pag-asa. May kasabihan nga,_ "Mas mabuti pa ang buhay na aso kaysa sa patay na leon." 
+Habang may buhay ang tao, may pag-asa. May kasabihan nga, "Mas mabuti pa ang buhay na aso kaysa sa patay na leon." 
 
 
 
@@ -471,7 +471,7 @@ Mayroon pang isang halimbawa ng karunungan na aking nagustuhan.
 
 
 
-May isang maliit na lungsod na kakaunti lang ang mga mamamayan. Nilusob ito ng makapangyarihang hari kasama ng kanyang mga kawal_ at pinalibutan. 
+May isang maliit na lungsod na kakaunti lang ang mga mamamayan. Nilusob ito ng makapangyarihang hari kasama ng kanyang mga kawal at pinalibutan. 
 
 
 

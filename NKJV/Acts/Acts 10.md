@@ -13,7 +13,7 @@ next: ['Acts 11']
 There was a certain man in Caesarea called Cornelius, a centurion of what was called the Italian Regiment, 
 
 ###### 2 
-a devout _man_ and one who feared God with all his household, who gave alms generously to the people, and prayed to God always. 
+a devout man and one who feared God with all his household, who gave alms generously to the people, and prayed to God always. 
 
 ###### 3 
 About the ninth hour of the day he saw clearly in a vision an angel of God coming in and saying to him, "Cornelius!" 
@@ -31,7 +31,7 @@ He is lodging with Simon, a tanner, whose house is by the sea. He will tell you 
 And when the angel who spoke to him had departed, Cornelius called two of his household servants and a devout soldier from among those who waited on him continually. 
 
 ###### 8 
-So when he had explained all _these_ things to them, he sent them to Joppa.
+So when he had explained all these things to them, he sent them to Joppa.
 
 ## Peter's Vision 
 
@@ -54,7 +54,7 @@ And a voice came to him, "Rise, Peter; kill and eat."
 But Peter said, "Not so, Lord! For I have never eaten anything common or unclean." 
 
 ###### 15 
-And a voice _spoke_ to him again the second time, "What God has cleansed you must not call common." 
+And a voice spoke to him again the second time, "What God has cleansed you must not call common." 
 
 ###### 16 
 This was done three times. And the object was taken up into heaven again.
@@ -77,10 +77,10 @@ Arise therefore, go down and go with them, doubting nothing; for I have sent the
 Then Peter went down to the men who had been sent to him from Cornelius, and said, "Yes, I am he whom you seek. For what reason have you come?" 
 
 ###### 22 
-And they said, "Cornelius _the_ centurion, a just man, one who fears God and has a good reputation among all the nation of the Jews, was divinely instructed by a holy angel to summon you to his house, and to hear words from you." 
+And they said, "Cornelius the centurion, a just man, one who fears God and has a good reputation among all the nation of the Jews, was divinely instructed by a holy angel to summon you to his house, and to hear words from you." 
 
 ###### 23 
-Then he invited them in and lodged _them._ On the next day Peter went away with them, and some brethren from Joppa accompanied him.
+Then he invited them in and lodged them. On the next day Peter went away with them, and some brethren from Joppa accompanied him.
 
 ## Peter Meets Cornelius 
 
@@ -88,7 +88,7 @@ Then he invited them in and lodged _them._ On the next day Peter went away with 
 And the following day they entered Caesarea. Now Cornelius was waiting for them, and had called together his relatives and close friends. 
 
 ###### 25 
-As Peter was coming in, Cornelius met him and fell down at his feet and worshiped _him._ 
+As Peter was coming in, Cornelius met him and fell down at his feet and worshiped him. 
 
 ###### 26 
 But Peter lifted him up, saying, "Stand up; I myself am also a man." 
@@ -115,13 +115,13 @@ Send therefore to Joppa and call Simon here, whose surname is Peter. He is lodgi
 So I sent to you immediately, and you have done well to come. Now therefore, we are all present before God, to hear all the things commanded you by God." ## Preaching to Cornelius' Household 
 
 ###### 34 
-Then Peter opened _his_ mouth and said: "In truth I perceive that God shows no partiality. 
+Then Peter opened his mouth and said: "In truth I perceive that God shows no partiality. 
 
 ###### 35 
 But in every nation whoever fears Him and works righteousness is accepted by Him. 
 
 ###### 36 
-The word which _God_ sent to the children of Israel, preaching peace through Jesus Christ--He is Lord of all-- 
+The word which God sent to the children of Israel, preaching peace through Jesus Christ--He is Lord of all-- 
 
 ###### 37 
 that word you know, which was proclaimed throughout all Judea, and began from Galilee after the baptism which John preached: 
@@ -136,10 +136,10 @@ And we are witnesses of all things which He did both in the land of the Jews and
 Him God raised up on the third day, and showed Him openly, 
 
 ###### 41 
-not to all the people, but to witnesses chosen before by God, _even_ to us who ate and drank with Him after He arose from the dead. 
+not to all the people, but to witnesses chosen before by God, even to us who ate and drank with Him after He arose from the dead. 
 
 ###### 42 
-And He commanded us to preach to the people, and to testify that it is He who was ordained by God _to be_ Judge of the living and the dead. 
+And He commanded us to preach to the people, and to testify that it is He who was ordained by God to be Judge of the living and the dead. 
 
 ###### 43 
 To Him all the prophets witness that, through His name, whoever believes in Him will receive remission of sins." ## The Holy Spirit Falls on the Gentiles 
@@ -154,7 +154,7 @@ And those of the circumcision who believed were astonished, as many as came with
 For they heard them speak with tongues and magnify God. Then Peter answered, 
 
 ###### 47 
-"Can anyone forbid water, that these should not be baptized who have received the Holy Spirit just as we _have?_" 
+"Can anyone forbid water, that these should not be baptized who have received the Holy Spirit just as we have?" 
 
 ###### 48 
 And he commanded them to be baptized in the name of the Lord. Then they asked him to stay a few days.

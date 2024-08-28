@@ -10,13 +10,13 @@ next: ['Matt 11']
 
 
 ###### 1 
-And when He had called His twelve disciples to _Him,_ He gave them power _over_ unclean spirits, to cast them out, and to heal all kinds of sickness and all kinds of disease. 
+And when He had called His twelve disciples to Him, He gave them power over unclean spirits, to cast them out, and to heal all kinds of sickness and all kinds of disease. 
 
 ###### 2 
-Now the names of the twelve apostles are these: first, Simon, who is called Peter, and Andrew his brother; James the _son_ of Zebedee, and John his brother; 
+Now the names of the twelve apostles are these: first, Simon, who is called Peter, and Andrew his brother; James the son of Zebedee, and John his brother; 
 
 ###### 3 
-Philip and Bartholomew; Thomas and Matthew the tax collector; James the _son_ of Alphaeus, and Lebbaeus, whose surname was Thaddaeus; 
+Philip and Bartholomew; Thomas and Matthew the tax collector; James the son of Alphaeus, and Lebbaeus, whose surname was Thaddaeus; 
 
 ###### 4 
 Simon the Cananite, and Judas Iscariot, who also betrayed Him.
@@ -39,7 +39,7 @@ Heal the sick, cleanse the lepers, raise the dead, cast out demons. Freely you h
 Provide neither gold nor silver nor copper in your money belts, 
 
 ###### 10 
-nor bag for _your_ journey, nor two tunics, nor sandals, nor staffs; for a worker is worthy of his food. 
+nor bag for your journey, nor two tunics, nor sandals, nor staffs; for a worker is worthy of his food. 
 
 ###### 11 
 "Now whatever city or town you enter, inquire who in it is worthy, and stay there till you go out. 
@@ -72,7 +72,7 @@ But when they deliver you up, do not worry about how or what you should speak. F
 for it is not you who speak, but the Spirit of your Father who speaks in you. 
 
 ###### 21 
-"Now brother will deliver up brother to death, and a father _his_ child; and children will rise up against parents and cause them to be put to death. 
+"Now brother will deliver up brother to death, and a father his child; and children will rise up against parents and cause them to be put to death. 
 
 ###### 22 
 And you will be hated by all for My name's sake. But he who endures to the end will be saved. 
@@ -81,10 +81,10 @@ And you will be hated by all for My name's sake. But he who endures to the end w
 When they persecute you in this city, flee to another. For assuredly, I say to you, you will not have gone through the cities of Israel before the Son of Man comes. 
 
 ###### 24 
-"A disciple is not above _his_ teacher, nor a servant above his master. 
+"A disciple is not above his teacher, nor a servant above his master. 
 
 ###### 25 
-It is enough for a disciple that he be like his teacher, and a servant like his master. If they have called the master of the house Beelzebub, how much more _will they call_ those of his household! 
+It is enough for a disciple that he be like his teacher, and a servant like his master. If they have called the master of the house Beelzebub, how much more will they call those of his household! 
 
 ###### 26 
 Therefore do not fear them. For there is nothing covered that will not be revealed, and hidden that will not be known.
@@ -123,7 +123,7 @@ But whoever denies Me before men, him I will also deny before My Father who is i
 For I have come to 'set a man against his father, a daughter against her mother, and a daughter-in-law against her mother-in-law'; 
 
 ###### 36 
-and 'a man's enemies _will be_ those of his _own_ household.' 
+and 'a man's enemies will be those of his own household.' 
 
 ###### 37 
 He who loves father or mother more than Me is not worthy of Me. And he who loves son or daughter more than Me is not worthy of Me. 
@@ -143,4 +143,4 @@ He who finds his life will lose it, and he who loses his life for My sake will f
 He who receives a prophet in the name of a prophet shall receive a prophet's reward. And he who receives a righteous man in the name of a righteous man shall receive a righteous man's reward. 
 
 ###### 42 
-And whoever gives one of these little ones only a cup of cold _water_ in the name of a disciple, assuredly, I say to you, he shall by no means lose his reward."
+And whoever gives one of these little ones only a cup of cold water in the name of a disciple, assuredly, I say to you, he shall by no means lose his reward."

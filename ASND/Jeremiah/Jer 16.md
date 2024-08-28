@@ -304,7 +304,7 @@ Huwag ka ring papasok sa mga tahanang may mga handaan para kumain at uminom doon
 
 
 
-Sapagkat ako,_ ang Panginoong Makapangyarihan, ang Dios ng Israel ay nagsasabi, 'Makikita mo sa kapanahunan mo na patitigilin ko ang kasiyahan at kagalakan sa lugar na ito, pati ang kaligayahan ng mga bagong kasal.' 
+Sapagkat ako, ang Panginoong Makapangyarihan, ang Dios ng Israel ay nagsasabi, 'Makikita mo sa kapanahunan mo na patitigilin ko ang kasiyahan at kagalakan sa lugar na ito, pati ang kaligayahan ng mga bagong kasal.' 
 
 
 
@@ -634,7 +634,7 @@ Kaya pagbabayarin ko sila nang doble sa kasamaan at kasalanan nila dahil dinungi
 
 
 
-Sinabi ko,_ "O Panginoon, kayo po ang kalakasan at tagapagkalinga ko sa panahon ng pagdadalamhati. Lalapit po sa inyo ang mga bansa mula sa buong mundo at sasabihin nila, 'Walang kwenta ang mga dios-diosan ng aming mga ninuno. Wala silang nagawa na anumang kabutihan. 
+Sinabi ko, "O Panginoon, kayo po ang kalakasan at tagapagkalinga ko sa panahon ng pagdadalamhati. Lalapit po sa inyo ang mga bansa mula sa buong mundo at sasabihin nila, 'Walang kwenta ang mga dios-diosan ng aming mga ninuno. Wala silang nagawa na anumang kabutihan. 
 
 
 
@@ -700,4 +700,4 @@ Ang tao baʼy makakagawa ng kanyang dios? Kung makakagawa siya, hindi iyon totoo
 
 
 
-Sinabi ng Panginoon,_ "Kaya ngayon, ipapakita ko sa kanila ang kapangyarihan at kakayahan ko para malaman nila na ako nga ang Panginoon."
+Sinabi ng Panginoon, "Kaya ngayon, ipapakita ko sa kanila ang kapangyarihan at kakayahan ko para malaman nila na ako nga ang Panginoon."

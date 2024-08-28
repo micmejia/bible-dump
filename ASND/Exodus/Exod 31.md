@@ -436,7 +436,7 @@ Iniutos ng Dios kay Moises
 
 
 
-na sabihin niya ito sa mga Israelita, "Sundin ninyo ang aking ipinag-uutos tungkol sa_ Araw ng Pamamahinga, dahil tanda ito ng kasunduan natin hanggang sa susunod pang mga henerasyon. Sa pamamagitan nito, malalaman ninyo na ako ang Panginoon na pumili sa inyo na maging mga mamamayan ko. 
+na sabihin niya ito sa mga Israelita, "Sundin ninyo ang aking ipinag-uutos tungkol sa Araw ng Pamamahinga, dahil tanda ito ng kasunduan natin hanggang sa susunod pang mga henerasyon. Sa pamamagitan nito, malalaman ninyo na ako ang Panginoon na pumili sa inyo na maging mga mamamayan ko. 
 
 
 
@@ -469,7 +469,7 @@ na sabihin niya ito sa mga Israelita, "Sundin ninyo ang aking ipinag-uutos tungk
 
 
 
-Dapat ninyong sundin ang ipinag-uutos ko tungkol sa Araw ng Pamamahinga, dahil banal ang araw na ito para sa inyo. Ang sinumang lalabag sa ipinag-uutos ko sa araw na iyon_ ay dapat patayin. Ang sinumang gagawa sa araw na iyon ay huwag na ninyong ituring na kababayan. 
+Dapat ninyong sundin ang ipinag-uutos ko tungkol sa Araw ng Pamamahinga, dahil banal ang araw na ito para sa inyo. Ang sinumang lalabag sa ipinag-uutos ko sa araw na iyon ay dapat patayin. Ang sinumang gagawa sa araw na iyon ay huwag na ninyong ituring na kababayan. 
 
 
 

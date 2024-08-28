@@ -535,4 +535,4 @@ Pagkatapos, sinabi niya kay Abraham, "Payag akong patirahin kayo sa aking lupain
 
 
 
-Sinabi rin niya kay Sara, "Bibigyan ko ang kapatid mo ng 1,000 pirasong pilak bilang katibayan sa lahat ng kasamahan ninyo na hindi kita nagalaw at para hindi sila mag-isip na nakagawa ka ng masama." 17-18Dahil sa pagkuha kay Sara, niloob ng Panginoon na hindi magkakaanak ang lahat ng babae sa sambahayan ni Abimelec. Kaya nanalangin si Abraham sa Dios, at pinagaling ng Dios ang asawa ni Abimelec at ang mga alipin niyang babae para muli silang magkaanak. Pinagaling din ng Dios si Abimelec sa kanyang karamdaman_.
+Sinabi rin niya kay Sara, "Bibigyan ko ang kapatid mo ng 1,000 pirasong pilak bilang katibayan sa lahat ng kasamahan ninyo na hindi kita nagalaw at para hindi sila mag-isip na nakagawa ka ng masama." 17-18Dahil sa pagkuha kay Sara, niloob ng Panginoon na hindi magkakaanak ang lahat ng babae sa sambahayan ni Abimelec. Kaya nanalangin si Abraham sa Dios, at pinagaling ng Dios ang asawa ni Abimelec at ang mga alipin niyang babae para muli silang magkaanak. Pinagaling din ng Dios si Abimelec sa kanyang karamdaman.

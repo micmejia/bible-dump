@@ -7,7 +7,7 @@ next: ['Zech 14']
 # Zechariah 13
 
 ***
-###### 1-2 Sinabi ng Panginoong Makapangyarihan, "Sa araw na iyon, bubuksan ang bukal para sa mga angkan ni David at ng mga taga-Jerusalem, upang linisin sila sa kanilang mga kasalanan at karumihan. Aalisin ko ang mga dios-diosan sa lupain ng Israel_ at hindi na sila maaalala. Aalisin ko sa Israel ang mga huwad na_ propeta at ang masasamang espiritung nasa kanila. 
+###### 1-2 Sinabi ng Panginoong Makapangyarihan, "Sa araw na iyon, bubuksan ang bukal para sa mga angkan ni David at ng mga taga-Jerusalem, upang linisin sila sa kanilang mga kasalanan at karumihan. Aalisin ko ang mga dios-diosan sa lupain ng Israel at hindi na sila maaalala. Aalisin ko sa Israel ang mga huwad na propeta at ang masasamang espiritung nasa kanila. 
 
 
 
@@ -172,7 +172,7 @@ At kung may magtatanong tungkol sa mga sugat nila sa katawan, sasabihin nila, 'N
 
 
 
-Sinabi ng Panginoong Makapangyarihan, "Ihanda ang espada! Patayin ang pastol ko na aking lingkod. Patayin siya at mangangalat ang mga tupa, ang aba kong mga mamamayan_. At parurusahan ko sila_. 
+Sinabi ng Panginoong Makapangyarihan, "Ihanda ang espada! Patayin ang pastol ko na aking lingkod. Patayin siya at mangangalat ang mga tupa, ang aba kong mga mamamayan. At parurusahan ko sila. 
 
 
 
@@ -205,7 +205,7 @@ Sinabi ng Panginoong Makapangyarihan, "Ihanda ang espada! Patayin ang pastol ko 
 
 
 
-Mamamatay ang dalawa sa tatlong bahagi ng mga tao sa buong lupain ng Israel_. 
+Mamamatay ang dalawa sa tatlong bahagi ng mga tao sa buong lupain ng Israel. 
 
 
 

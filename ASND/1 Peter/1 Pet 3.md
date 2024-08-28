@@ -238,7 +238,7 @@ Katulad ni Sara, sinunod niya si Abraham at tinawag pa niyang "panginoon." Mga a
 
 
 
-Kayo namang mga lalaki, pakisamahan ninyong mabuti ang inyong asawa, dahil ito ang nararapat bilang isang Cristiano. Igalang nʼyo sila bilang mga babaeng mas mahina kaysa sa inyo, dahil binigyan din sila ng Dios ng buhay na walang hanggan_ katulad ninyo. Kapag ginawa nʼyo ito, sasagutin ng Dios_ ang mga panalangin ninyo.
+Kayo namang mga lalaki, pakisamahan ninyong mabuti ang inyong asawa, dahil ito ang nararapat bilang isang Cristiano. Igalang nʼyo sila bilang mga babaeng mas mahina kaysa sa inyo, dahil binigyan din sila ng Dios ng buhay na walang hanggan katulad ninyo. Kapag ginawa nʼyo ito, sasagutin ng Dios ang mga panalangin ninyo.
 
 ## Magmahalan Kayong Lahat 
 
@@ -339,7 +339,7 @@ Huwag ninyong gantihan ng masama ang gumagawa sa inyo ng masama, at huwag din ni
 
 
 
-Sapagkat sinasabi sa Kasulatan_, "Ang sinumang nagnanais ng maligaya at masaganang pamumuhay ay hindi dapat magsalita ng masama at kasinungalingan. 
+Sapagkat sinasabi sa Kasulatan, "Ang sinumang nagnanais ng maligaya at masaganang pamumuhay ay hindi dapat magsalita ng masama at kasinungalingan. 
 
 
 
@@ -603,7 +603,7 @@ Mas mabuti pang magtiis kayo ng hirap dahil sa paggawa ng mabuti, kung ito talag
 
 
 
-Sapagkat si Cristo ngaʼy pinatay kahit wala siyang nagawang masama_. At minsan lang siya namatay para mapatawad ang mga kasalanan natin. Siya na walang kasalanan ay pinatay alang-alang sa atin na mga makasalanan, para madala niya tayo sa Dios. Pinatay siya sa laman pero binuhay siya sa espiritu. 19-20At sa kalagayan niyang espiritwal, nangaral siya kahit sa mga espiritu ng mga taong nakabilanggo, na hindi sumunod sa Dios noong panahon ni Noe. Sa panahong iyon, matiyagang hinintay ng Dios ang pagsampalataya nila sa kanya_ habang ginagawa ang barko. Ngunit walong tao lang ang sumampalataya at pumasok sa barko at_ nakaligtas sa tubig. 
+Sapagkat si Cristo ngaʼy pinatay kahit wala siyang nagawang masama. At minsan lang siya namatay para mapatawad ang mga kasalanan natin. Siya na walang kasalanan ay pinatay alang-alang sa atin na mga makasalanan, para madala niya tayo sa Dios. Pinatay siya sa laman pero binuhay siya sa espiritu. 19-20At sa kalagayan niyang espiritwal, nangaral siya kahit sa mga espiritu ng mga taong nakabilanggo, na hindi sumunod sa Dios noong panahon ni Noe. Sa panahong iyon, matiyagang hinintay ng Dios ang pagsampalataya nila sa kanya habang ginagawa ang barko. Ngunit walong tao lang ang sumampalataya at pumasok sa barko at nakaligtas sa tubig. 
 
 
 
@@ -669,4 +669,4 @@ Ang tubig na itoʼy larawan ng bautismong nagliligtas sa atin sa pamamagitan ng 
 
 
 
-Si Jesu-Cristo ay nasa langit na ngayon, sa kanan ng Dios, at ipinasakop sa kanya ang lahat ng anghel at ang lahat ng espiritung_ namumuno at may kapangyarihan.
+Si Jesu-Cristo ay nasa langit na ngayon, sa kanan ng Dios, at ipinasakop sa kanya ang lahat ng anghel at ang lahat ng espiritung namumuno at may kapangyarihan.

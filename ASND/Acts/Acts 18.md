@@ -205,7 +205,7 @@ Nang dumating sina Silas at Timoteo mula sa Macedonia, ginamit ni Pablo ang buon
 
 
 
-Pero kinontra nila si Pablo at pinagsabihan ng masama. Kaya ipinagpag ni Pablo ang alikabok sa kanyang damit bilang babala laban sa kanila_. Sinabi niya, "Kasalanan na ninyo kung parurusahan kayo ng Dios. Wala na akong pananagutan sa inyo. Simula ngayon, sa mga hindi Judio na ako mangangaral." 
+Pero kinontra nila si Pablo at pinagsabihan ng masama. Kaya ipinagpag ni Pablo ang alikabok sa kanyang damit bilang babala laban sa kanila. Sinabi niya, "Kasalanan na ninyo kung parurusahan kayo ng Dios. Wala na akong pananagutan sa inyo. Simula ngayon, sa mga hindi Judio na ako mangangaral." 
 
 
 
@@ -238,7 +238,7 @@ Pero kinontra nila si Pablo at pinagsabihan ng masama. Kaya ipinagpag ni Pablo a
 
 
 
-Kaya iniwan niya ang mga Judio at doon siya nakituloy sa bahay ni Titius Justus. Ang taong ito ay hindi Judio, pero_ sumasamba sa Dios. Ang bahay niya ay nasa tabi mismo ng sambahan ng mga Judio. 
+Kaya iniwan niya ang mga Judio at doon siya nakituloy sa bahay ni Titius Justus. Ang taong ito ay hindi Judio, pero sumasamba sa Dios. Ang bahay niya ay nasa tabi mismo ng sambahan ng mga Judio. 
 
 
 
@@ -271,7 +271,7 @@ Kaya iniwan niya ang mga Judio at doon siya nakituloy sa bahay ni Titius Justus.
 
 
 
-Si Crispus na namumuno sa sambahan ng mga Judio at ang kanyang pamilya ay sumampalataya rin sa Panginoong Jesus_; at marami pang mga taga-Corinto na nakinig kay Pablo ang sumampalataya at nagpabautismo. 
+Si Crispus na namumuno sa sambahan ng mga Judio at ang kanyang pamilya ay sumampalataya rin sa Panginoong Jesus; at marami pang mga taga-Corinto na nakinig kay Pablo ang sumampalataya at nagpabautismo. 
 
 
 
@@ -603,7 +603,7 @@ Pagkatapos, hinuli ng mga Griego si Sostenes na namumuno sa sambahan ng mga Judi
 
 
 
-Nanatili pa si Pablo nang ilang araw sa Corinto_. Pagkatapos, nagpaalam siya sa mga kapatid at pumunta sa Cencrea kasama ang mag-asawang Priscila at Aquila. Nagpagupit siya roon ng buhok dahil natupad na niya ang isa niyang panata sa Dios. Mula sa Cencrea bumiyahe sila papuntang Syria. 19-21Dumaan sila sa Efeso at pumasok si Pablo sa sambahan ng mga Judio at nakipagdiskusyon sa kanila. Kinausap nila si Pablo na manatili muna roon sa kanila, pero ayaw ni Pablo. Bago siya umalis, sinabi niya sa kanila, "Kung loloobin ng Dios, babalik ako rito." Iniwan ni Pablo ang mag-asawang Priscila at Aquila sa Efeso at bumiyahe siya papuntang Syria. 
+Nanatili pa si Pablo nang ilang araw sa Corinto. Pagkatapos, nagpaalam siya sa mga kapatid at pumunta sa Cencrea kasama ang mag-asawang Priscila at Aquila. Nagpagupit siya roon ng buhok dahil natupad na niya ang isa niyang panata sa Dios. Mula sa Cencrea bumiyahe sila papuntang Syria. 19-21Dumaan sila sa Efeso at pumasok si Pablo sa sambahan ng mga Judio at nakipagdiskusyon sa kanila. Kinausap nila si Pablo na manatili muna roon sa kanila, pero ayaw ni Pablo. Bago siya umalis, sinabi niya sa kanila, "Kung loloobin ng Dios, babalik ako rito." Iniwan ni Pablo ang mag-asawang Priscila at Aquila sa Efeso at bumiyahe siya papuntang Syria. 
 
 
 
@@ -669,7 +669,7 @@ Pagdating niya sa Cesarea, pumunta siya sa Jerusalem at dinalaw ang iglesya, at 
 
 
 
-Hindi siya nagtagal doon, umalis siya at inikot niya ang mga lugar na sakop ng Galacia at Frigia at pinalakas niya ang pananampalataya ng mga tagasunod ni Jesus_ doon.
+Hindi siya nagtagal doon, umalis siya at inikot niya ang mga lugar na sakop ng Galacia at Frigia at pinalakas niya ang pananampalataya ng mga tagasunod ni Jesus doon.
 
 ## Ang Pagtuturo ni Apolos sa Efeso 
 
@@ -803,7 +803,7 @@ Hindi siya natatakot magsalita sa sambahan ng mga Judio. Nang marinig nina Prisc
 
 
 
-At nang magpasya si Apolos na pumunta sa Acaya, tinulungan siya ng mga mananampalataya sa Efeso. Sumulat sila sa mga tagasunod ni Jesus_ sa Acaya na tanggapin nila si Apolos. Pagdating niya roon, malaki ang naitulong niya sa mga naging mananampalataya dahil sa biyaya ng Dios. 
+At nang magpasya si Apolos na pumunta sa Acaya, tinulungan siya ng mga mananampalataya sa Efeso. Sumulat sila sa mga tagasunod ni Jesus sa Acaya na tanggapin nila si Apolos. Pagdating niya roon, malaki ang naitulong niya sa mga naging mananampalataya dahil sa biyaya ng Dios. 
 
 
 

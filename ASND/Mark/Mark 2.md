@@ -7,7 +7,7 @@ next: ['Mark 3']
 # Mark 2
 
 ***
-###### 1-2 Pagkalipas ng ilang araw, bumalik si Jesus sa Capernaum. Agad namang kumalat ang balitang naroon siya. Kaya napakaraming tao ang nagtipon doon sa tinutuluyan niya hanggang sa wala nang lugar kahit sa labas ng pintuan. At ipinangaral niya sa kanila ang salita ng Dios_. 
+###### 1-2 Pagkalipas ng ilang araw, bumalik si Jesus sa Capernaum. Agad namang kumalat ang balitang naroon siya. Kaya napakaraming tao ang nagtipon doon sa tinutuluyan niya hanggang sa wala nang lugar kahit sa labas ng pintuan. At ipinangaral niya sa kanila ang salita ng Dios. 
 
 
 
@@ -40,7 +40,7 @@ next: ['Mark 3']
 
 
 
-Habang siya ay nangangaral, may mga taong dumating kasama ang isang paralitikong nasa higaan_ na buhat-buhat ng apat na lalaki. 
+Habang siya ay nangangaral, may mga taong dumating kasama ang isang paralitikong nasa higaan na buhat-buhat ng apat na lalaki. 
 
 
 
@@ -271,7 +271,7 @@ Alin ba ang mas madaling sabihin sa paralitiko: 'Pinatawad na ang iyong mga kasa
 
 
 
-Ngayon, papatunayan ko sa inyo sa pamamagitan ng pagpapagaling sa taong ito_ na ako na_ Anak ng Tao ay may kapangyarihan dito sa lupa na magpatawad ng kasalanan." At sinabi niya sa paralitiko, 
+Ngayon, papatunayan ko sa inyo sa pamamagitan ng pagpapagaling sa taong ito na ako na Anak ng Tao ay may kapangyarihan dito sa lupa na magpatawad ng kasalanan." At sinabi niya sa paralitiko, 
 
 
 
@@ -370,7 +370,7 @@ Tumayo nga ang paralitiko, agad na binuhat ang kanyang higaan at lumabas habang 
 
 
 
-Muling pumunta si Jesus sa tabi ng lawa ng Galilea_. Maraming tao ang pumunta roon sa kanya, at tinuruan niya ang mga ito. 
+Muling pumunta si Jesus sa tabi ng lawa ng Galilea. Maraming tao ang pumunta roon sa kanya, at tinuruan niya ang mga ito. 
 
 
 
@@ -403,7 +403,7 @@ Muling pumunta si Jesus sa tabi ng lawa ng Galilea_. Maraming tao ang pumunta ro
 
 
 
-Habang naglalakad siya, nakita niya ang maniningil ng buwis na_ si Levi na anak ni Alfeus. Nakaupo siya sa lugar na pinagbabayaran ng buwis. Sinabi ni Jesus sa kanya, "Sumunod ka sa akin." Tumayo naman si Levi at sumunod kay Jesus. 
+Habang naglalakad siya, nakita niya ang maniningil ng buwis na si Levi na anak ni Alfeus. Nakaupo siya sa lugar na pinagbabayaran ng buwis. Sinabi ni Jesus sa kanya, "Sumunod ka sa akin." Tumayo naman si Levi at sumunod kay Jesus. 
 
 
 
@@ -436,7 +436,7 @@ Habang naglalakad siya, nakita niya ang maniningil ng buwis na_ si Levi na anak 
 
 
 
-Habang kumakain si Jesus at ang mga tagasunod niya sa bahay ni Levi, maraming maniningil ng buwis at iba pang mga itinuturing na_ makasalanan ang kasama nilang kumakain, dahil marami sa kanila ang sumusunod kay Jesus. 
+Habang kumakain si Jesus at ang mga tagasunod niya sa bahay ni Levi, maraming maniningil ng buwis at iba pang mga itinuturing na makasalanan ang kasama nilang kumakain, dahil marami sa kanila ang sumusunod kay Jesus. 
 
 
 
@@ -469,7 +469,7 @@ Habang kumakain si Jesus at ang mga tagasunod niya sa bahay ni Levi, maraming ma
 
 
 
-May mga Pariseong tagapagturo ng Kautusan na naroon. Nang makita nilang kumakain si Jesus kasama ng mga maniningil ng buwis at ng iba pang mga itinuturing nilang_ makasalanan, sinabi nila sa mga tagasunod niya, "Bakit kumakain siyang kasama ng mga taong iyan?" 
+May mga Pariseong tagapagturo ng Kautusan na naroon. Nang makita nilang kumakain si Jesus kasama ng mga maniningil ng buwis at ng iba pang mga itinuturing nilang makasalanan, sinabi nila sa mga tagasunod niya, "Bakit kumakain siyang kasama ng mga taong iyan?" 
 
 
 
@@ -502,7 +502,7 @@ May mga Pariseong tagapagturo ng Kautusan na naroon. Nang makita nilang kumakain
 
 
 
-Narinig iyon ni Jesus, kaya sinagot niya ang mga ito, "Ang mga taong walang sakit ay hindi nangangailangan ng doktor, kundi ang mga may sakit. Naparito ako hindi upang tawagin ang mga taong matuwid sa kanilang sariling paningin_, kundi ang mga makasalanan." ## Ang Tanong tungkol sa Pag-aayuno 
+Narinig iyon ni Jesus, kaya sinagot niya ang mga ito, "Ang mga taong walang sakit ay hindi nangangailangan ng doktor, kundi ang mga may sakit. Naparito ako hindi upang tawagin ang mga taong matuwid sa kanilang sariling paningin, kundi ang mga makasalanan." ## Ang Tanong tungkol sa Pag-aayuno 
 
 
 
@@ -535,7 +535,7 @@ Narinig iyon ni Jesus, kaya sinagot niya ang mga ito, "Ang mga taong walang saki
 
 
 
-Nang minsang nag-aayuno ang mga tagasunod ni Juan na tagapagbautismo_ at ang mga Pariseo, lumapit ang ilang mga tao kay Jesus at nagtanong, "Bakit po nag-aayuno ang mga tagasunod ni Juan at ang mga Pariseo pero ang mga tagasunod nʼyo ay hindi?" 
+Nang minsang nag-aayuno ang mga tagasunod ni Juan na tagapagbautismo at ang mga Pariseo, lumapit ang ilang mga tao kay Jesus at nagtanong, "Bakit po nag-aayuno ang mga tagasunod ni Juan at ang mga Pariseo pero ang mga tagasunod nʼyo ay hindi?" 
 
 
 
@@ -634,7 +634,7 @@ Ngunit darating ang araw na kukunin sa kanila ang lalaking ikakasal, at saka sil
 
 
 
-Sinabi pa ni Jesus,_ "Walang nagtatagpi ng bagong tela sa lumang damit, dahil uurong ang bagong tela kapag nilabhan_ at lalo pang lalaki ang punit. 
+Sinabi pa ni Jesus, "Walang nagtatagpi ng bagong tela sa lumang damit, dahil uurong ang bagong tela kapag nilabhan at lalo pang lalaki ang punit. 
 
 
 
@@ -733,7 +733,7 @@ Isang Araw ng Pamamahinga, habang dumadaan sina Jesus sa triguhan, nagsimulang m
 
 
 
-Kaya sinabi sa kanya ng mga Pariseo, "Tingnan mo ang mga tagasunod mo_! Bakit nila ginagawa ang ipinagbabawal sa Araw ng Pamamahinga?" 
+Kaya sinabi sa kanya ng mga Pariseo, "Tingnan mo ang mga tagasunod mo! Bakit nila ginagawa ang ipinagbabawal sa Araw ng Pamamahinga?" 
 
 
 
@@ -766,7 +766,7 @@ Kaya sinabi sa kanya ng mga Pariseo, "Tingnan mo ang mga tagasunod mo_! Bakit ni
 
 
 
-Sinagot sila ni Jesus, "Hindi nʼyo ba nabasa sa Kasulatan_ ang ginawa ni David at ng mga kasama niya nang magutom sila at walang makain? 
+Sinagot sila ni Jesus, "Hindi nʼyo ba nabasa sa Kasulatan ang ginawa ni David at ng mga kasama niya nang magutom sila at walang makain? 
 
 
 
@@ -799,7 +799,7 @@ Sinagot sila ni Jesus, "Hindi nʼyo ba nabasa sa Kasulatan_ ang ginawa ni David 
 
 
 
-Pumasok si David sa bahay ng Dios noong si Abiatar ang punong pari. Kinain ni David ang tinapay na inihandog sa Dios, at binigyan pa niya ang mga kasamahan niya, kahit na ayon sa Kautusan_, ang mga pari lang ang may karapatang kumain nito." 
+Pumasok si David sa bahay ng Dios noong si Abiatar ang punong pari. Kinain ni David ang tinapay na inihandog sa Dios, at binigyan pa niya ang mga kasamahan niya, kahit na ayon sa Kautusan, ang mga pari lang ang may karapatang kumain nito." 
 
 
 
@@ -832,7 +832,7 @@ Pumasok si David sa bahay ng Dios noong si Abiatar ang punong pari. Kinain ni Da
 
 
 
-At sinabi pa ni Jesus sa kanila, "Ginawa ang Araw ng Pamamahinga para sa ikabubuti ng_ tao. Hindi ginawa ang tao para sa ikabubuti ng_ Araw ng Pamamahinga. 
+At sinabi pa ni Jesus sa kanila, "Ginawa ang Araw ng Pamamahinga para sa ikabubuti ng tao. Hindi ginawa ang tao para sa ikabubuti ng Araw ng Pamamahinga. 
 
 
 
@@ -865,4 +865,4 @@ At sinabi pa ni Jesus sa kanila, "Ginawa ang Araw ng Pamamahinga para sa ikabubu
 
 
 
-Kaya ako na_ Anak ng Tao ang makapagsasabi kung ano ang nararapat gawin sa Araw ng Pamamahinga."
+Kaya ako na Anak ng Tao ang makapagsasabi kung ano ang nararapat gawin sa Araw ng Pamamahinga."

@@ -12,12 +12,12 @@ next: ['2 Tim 2']
 Paul, an apostle of Jesus Christ by the will of God, according to the promise of life which is in Christ Jesus, 
 
 ###### 2 
-To Timothy, a beloved son: Grace, mercy, _and_ peace from God the Father and Christ Jesus our Lord.
+To Timothy, a beloved son: Grace, mercy, and peace from God the Father and Christ Jesus our Lord.
 
 ## Timothy's Faith and Heritage 
 
 ###### 3 
-I thank God, whom I serve with a pure conscience, as _my_ forefathers _did,_ as without ceasing I remember you in my prayers night and day, 
+I thank God, whom I serve with a pure conscience, as my forefathers did, as without ceasing I remember you in my prayers night and day, 
 
 ###### 4 
 greatly desiring to see you, being mindful of your tears, that I may be filled with joy, 
@@ -37,10 +37,10 @@ For God has not given us a spirit of fear, but of power and of love and of a sou
 Therefore do not be ashamed of the testimony of our Lord, nor of me His prisoner, but share with me in the sufferings for the gospel according to the power of God, 
 
 ###### 9 
-who has saved us and called _us_ with a holy calling, not according to our works, but according to His own purpose and grace which was given to us in Christ Jesus before time began, 
+who has saved us and called us with a holy calling, not according to our works, but according to His own purpose and grace which was given to us in Christ Jesus before time began, 
 
 ###### 10 
-but has now been revealed by the appearing of our Savior Jesus Christ, _who_ has abolished death and brought life and immortality to light through the gospel, 
+but has now been revealed by the appearing of our Savior Jesus Christ, who has abolished death and brought life and immortality to light through the gospel, 
 
 ###### 11 
 to which I was appointed a preacher, an apostle, and a teacher of the Gentiles. 
@@ -63,7 +63,7 @@ This you know, that all those in Asia have turned away from me, among whom are P
 The Lord grant mercy to the household of Onesiphorus, for he often refreshed me, and was not ashamed of my chain; 
 
 ###### 17 
-but when he arrived in Rome, he sought me out very zealously and found _me._ 
+but when he arrived in Rome, he sought me out very zealously and found me. 
 
 ###### 18 
-The Lord grant to him that he may find mercy from the Lord in that Day--and you know very well how many ways he ministered _to me_ at Ephesus.
+The Lord grant to him that he may find mercy from the Lord in that Day--and you know very well how many ways he ministered to me at Ephesus.

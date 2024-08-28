@@ -7,7 +7,7 @@ next: ['Mal 3']
 # Malachi 2
 
 ***
-###### 1-2 Sinabi pa ng Panginoong Makapangyarihan sa mga pari, "Ito ang aking babala sa inyo: Kung hindi ninyo pakikinggan ang sinasabi ko at hindi ninyo pahahalagahan ang pagpaparangal sa akin, susumpain ko kayo, pati na ang mga pagpapalang tinatanggap ninyo bilang mga pari_. Sa katunayan, ginawa ko na iyan dahil hindi ninyo pinahahalagahan ang pagpaparangal sa akin. 
+###### 1-2 Sinabi pa ng Panginoong Makapangyarihan sa mga pari, "Ito ang aking babala sa inyo: Kung hindi ninyo pakikinggan ang sinasabi ko at hindi ninyo pahahalagahan ang pagpaparangal sa akin, susumpain ko kayo, pati na ang mga pagpapalang tinatanggap ninyo bilang mga pari. Sa katunayan, ginawa ko na iyan dahil hindi ninyo pinahahalagahan ang pagpaparangal sa akin. 
 
 
 
@@ -73,7 +73,7 @@ next: ['Mal 3']
 
 
 
-Dapat ninyong malaman na binabalaan ko kayo upang magpatuloy ang aking kasunduan sa inyong ninunong si_ Levi. 
+Dapat ninyong malaman na binabalaan ko kayo upang magpatuloy ang aking kasunduan sa inyong ninunong si Levi. 
 
 
 
@@ -205,7 +205,7 @@ Itinuro niya ang katotohanan at hindi ang kasinungalingan. Maayos ang kanyang re
 
 
 
-Pero hindi ninyo sinunod ang aking mga pamamaraan. Ang mga turo ninyo ang nagtulak sa marami para magkasala. Ako, ang Panginoong Makapangyarihan, ang nagsasabing, sinira nʼyo ang kasunduan ko sa ninuno ninyong si_ Levi. 
+Pero hindi ninyo sinunod ang aking mga pamamaraan. Ang mga turo ninyo ang nagtulak sa marami para magkasala. Ako, ang Panginoong Makapangyarihan, ang nagsasabing, sinira nʼyo ang kasunduan ko sa ninuno ninyong si Levi. 
 
 
 
@@ -271,7 +271,7 @@ Kaya ipinahamak at ipinahiya ko kayo sa lahat ng tao dahil hindi ninyo sinunod a
 
 
 
-Sinabi ni Malakias sa mga Israelita:_ Hindi baʼt iisa ang ating ama? At iisang Dios ang lumalang sa atin? Bakit hindi tayo nagiging tapat sa isaʼt isa? Sa ginagawa nating ito, binabalewala natin ang kasunduan ng Dios_ sa ating mga ninuno. 
+Sinabi ni Malakias sa mga Israelita: Hindi baʼt iisa ang ating ama? At iisang Dios ang lumalang sa atin? Bakit hindi tayo nagiging tapat sa isaʼt isa? Sa ginagawa nating ito, binabalewala natin ang kasunduan ng Dios sa ating mga ninuno. 
 
 
 
@@ -304,7 +304,7 @@ Sinabi ni Malakias sa mga Israelita:_ Hindi baʼt iisa ang ating ama? At iisang 
 
 
 
-Naging taksil ang mga taga-Juda. Gumawa sila ng kasuklam-suklam sa Jerusalem at sa buong bansa ng_ Israel. Sapagkat dinungisan nila ang templo na mahal ng Panginoon sa pamamagitan ng pagpapakasal sa mga babaeng sumasamba sa ibang mga dios. 
+Naging taksil ang mga taga-Juda. Gumawa sila ng kasuklam-suklam sa Jerusalem at sa buong bansa ng Israel. Sapagkat dinungisan nila ang templo na mahal ng Panginoon sa pamamagitan ng pagpapakasal sa mga babaeng sumasamba sa ibang mga dios. 
 
 
 
@@ -504,4 +504,4 @@ Sapagkat sinabi ng Panginoon, ang Dios ng Israel, "Ayaw kong maghiwalay ang mag-
 
 
 
-Sawang-sawa na ang Panginoon sa inyong mga sinasabi. Pero itinatanong pa ninyo, "Ano ang ikinasasawa niya sa amin?" Sinasabi ninyo na mabuti sa paningin ng Dios ang lahat ng gumagawa ng masama at natutuwa siya sa kanila. Pakutya_ ninyong sinasabi, "Nasaan na ang Dios ng katarungan?"
+Sawang-sawa na ang Panginoon sa inyong mga sinasabi. Pero itinatanong pa ninyo, "Ano ang ikinasasawa niya sa amin?" Sinasabi ninyo na mabuti sa paningin ng Dios ang lahat ng gumagawa ng masama at natutuwa siya sa kanila. Pakutya ninyong sinasabi, "Nasaan na ang Dios ng katarungan?"

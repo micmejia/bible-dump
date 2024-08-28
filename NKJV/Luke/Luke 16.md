@@ -22,7 +22,7 @@ So he called him and said to him, 'What is this I hear about you? Give an accoun
 I have resolved what to do, that when I am put out of the stewardship, they may receive me into their houses.' 
 
 ###### 5 
-"So he called every one of his master's debtors to _him,_ and said to the first, 'How much do you owe my master?' 
+"So he called every one of his master's debtors to him, and said to the first, 'How much do you owe my master?' 
 
 ###### 6 
 And he said, 'A hundred measures of oil.' So he said to him, 'Take your bill, and sit down quickly and write fifty.' 
@@ -37,10 +37,10 @@ So the master commended the unjust steward because he had dealt shrewdly. For th
 "And I say to you, make friends for yourselves by unrighteous mammon, that when you fail, they may receive you into an everlasting home. 
 
 ###### 10 
-He who _is_ faithful in _what is_ least is faithful also in much; and he who is unjust in _what is_ least is unjust also in much. 
+He who is faithful in what is least is faithful also in much; and he who is unjust in what is least is unjust also in much. 
 
 ###### 11 
-Therefore if you have not been faithful in the unrighteous mammon, who will commit to your trust the true _riches?_ 
+Therefore if you have not been faithful in the unrighteous mammon, who will commit to your trust the true riches? 
 
 ###### 12 
 And if you have not been faithful in what is another man's, who will give you what is your own? 
@@ -55,13 +55,13 @@ Now the Pharisees, who were lovers of money, also heard all these things, and th
 And He said to them, "You are those who justify yourselves before men, but God knows your hearts. For what is highly esteemed among men is an abomination in the sight of God. 
 
 ###### 16 
-"The law and the prophets _were_ until John. Since that time the kingdom of God has been preached, and everyone is pressing into it. 
+"The law and the prophets were until John. Since that time the kingdom of God has been preached, and everyone is pressing into it. 
 
 ###### 17 
 And it is easier for heaven and earth to pass away than for one tittle of the law to fail. 
 
 ###### 18 
-"Whoever divorces his wife and marries another commits adultery; and whoever marries her who is divorced from _her_ husband commits adultery.
+"Whoever divorces his wife and marries another commits adultery; and whoever marries her who is divorced from her husband commits adultery.
 
 ## The Rich Man and Lazarus 
 

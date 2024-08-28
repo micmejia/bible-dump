@@ -40,7 +40,7 @@ next: ['Ezr 9']
 
 
 
-Sinabi ni Ezra,_ "Ito ang mga pinuno ng mga pamilya na sumama sa akin sa Jerusalem_ galing sa Babilonia, noong panahon ng paghahari ni Haring Artaserses: 
+Sinabi ni Ezra, "Ito ang mga pinuno ng mga pamilya na sumama sa akin sa Jerusalem galing sa Babilonia, noong panahon ng paghahari ni Haring Artaserses: 
 
 
 
@@ -502,7 +502,7 @@ si Utai at si Zacur at ang 70 lalaking kasama niya, na galing sa pamilya ni Bigv
 
 
 
-Tinipon ko ang sasama sa akin sa Jerusalem_ doon sa ilog na dumadaloy papunta sa lugar ng_ Ahava. Nagkampo kami roon ng tatlong araw. Nang tingnan ko ang talaan ng mga tao na sasama sa akin, pati na ang mga pari, nalaman kong walang mga Levita roon. 
+Tinipon ko ang sasama sa akin sa Jerusalem doon sa ilog na dumadaloy papunta sa lugar ng Ahava. Nagkampo kami roon ng tatlong araw. Nang tingnan ko ang talaan ng mga tao na sasama sa akin, pati na ang mga pari, nalaman kong walang mga Levita roon. 
 
 
 
@@ -836,7 +836,7 @@ Pumili ako ng 12 tao mula sa mga namumunong pari, hindi kabilang sina Sherebia, 
 
 
 
-Pagkatapos, ipinagkatiwala ko sa kanila ng walang kulang ang mga pilak, ginto, at mga kagamitang ibinigay ng hari, at ng mga tagapayo niya at mga opisyal, at ng maraming Israelita, bilang tulong sa templo ng aming Dios. 26-27Ito ang aking ipinagkatiwala sa kanila: 22 toneladang pilak 3 toneladang kasangkapang pilak 3 toneladang ginto 20 gintong mangkok na mga waloʼt kalahating kilo, 2 tansong mangkok na pinakintab na kasinghalaga ng mga mangkok na_ ginto. 
+Pagkatapos, ipinagkatiwala ko sa kanila ng walang kulang ang mga pilak, ginto, at mga kagamitang ibinigay ng hari, at ng mga tagapayo niya at mga opisyal, at ng maraming Israelita, bilang tulong sa templo ng aming Dios. 26-27Ito ang aking ipinagkatiwala sa kanila: 22 toneladang pilak 3 toneladang kasangkapang pilak 3 toneladang ginto 20 gintong mangkok na mga waloʼt kalahating kilo, 2 tansong mangkok na pinakintab na kasinghalaga ng mga mangkok na ginto. 
 
 
 
@@ -1135,4 +1135,4 @@ Pagkatapos, ang lahat ng bumalik galing sa pagkabihag ay nag-alay sa Dios ng Isr
 
 
 
-Ibinigay din nila sa mga gobernador at mga opisyal ng lalawigan sa kanluran ng Eufrates ang dokumento kung saan nakasulat ang utos ng hari. At ang mga pinunong ito ay tumulong sa mga mamamayan ng Israel_ at sa templo ng Dios.
+Ibinigay din nila sa mga gobernador at mga opisyal ng lalawigan sa kanluran ng Eufrates ang dokumento kung saan nakasulat ang utos ng hari. At ang mga pinunong ito ay tumulong sa mga mamamayan ng Israel at sa templo ng Dios.

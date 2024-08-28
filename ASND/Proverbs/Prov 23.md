@@ -634,7 +634,7 @@ Anak, makinig kang mabuti sa akin at tularan mo ang aking pamumuhay.
 
 
 
-Sapagkat ang babaeng bayaran ay makapagpapahamak sa iyo_ katulad ng malalim at makitid na hukay. 
+Sapagkat ang babaeng bayaran ay makapagpapahamak sa iyo katulad ng malalim at makitid na hukay. 
 
 
 
@@ -799,7 +799,7 @@ Huwag kang matakam sa alak na napakagandang tingnan sa isang baso at tila masara
 
 
 
-Kapag nalasing ka, sasama ang iyong pakiramdam na_ parang tinuklaw ka ng makamandag na ahas. 
+Kapag nalasing ka, sasama ang iyong pakiramdam na parang tinuklaw ka ng makamandag na ahas. 
 
 
 

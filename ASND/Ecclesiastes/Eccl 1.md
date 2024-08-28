@@ -470,7 +470,7 @@ Sa aking karunungan, pinag-aralan kong mabuti ang lahat ng nangyayari rito sa mu
 
 
 
-Nakita kong walang kabuluhan ang lahat ng ginagawa ng tao rito sa mundo. Para kang_ humahabol sa hangin. 
+Nakita kong walang kabuluhan ang lahat ng ginagawa ng tao rito sa mundo. Para kang humahabol sa hangin. 
 
 
 
@@ -569,7 +569,7 @@ Sinabi ko sa aking sarili, "Mas marunong ako kaysa sa lahat ng naging hari sa Je
 
 
 
-Pinag-aralan kong mabuti ang pagkakaiba ng karunungan at kamangmangan, pero nakita kong wala rin itong kabuluhan. Para kang_ humahabol sa hangin. 
+Pinag-aralan kong mabuti ang pagkakaiba ng karunungan at kamangmangan, pero nakita kong wala rin itong kabuluhan. Para kang humahabol sa hangin. 
 
 
 

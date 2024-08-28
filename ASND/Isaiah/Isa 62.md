@@ -139,7 +139,7 @@ Ikaw ay magiging parang koronang maganda sa kamay ng Panginoon na iyong Dios.
 
 
 
-Hindi ka na tatawaging, "Itinakwil" o "Pinabayaan". Ikaw ay tatawaging, "Kaligayahan ng Dios" o "Ikinasal sa Dios_", dahil nalulugod sa iyo ang Dios at para bang ikaw ay ikakasal sa kanya. 
+Hindi ka na tatawaging, "Itinakwil" o "Pinabayaan". Ikaw ay tatawaging, "Kaligayahan ng Dios" o "Ikinasal sa Dios", dahil nalulugod sa iyo ang Dios at para bang ikaw ay ikakasal sa kanya. 
 
 
 
@@ -337,7 +337,7 @@ Kayo mismong nag-aani ng trigo ang kakain nito, at pupurihin ninyo ako. Kayo mis
 
 
 
-Mga taga-Jerusalem,_ lumabas kayo sa pintuan ng inyong lungsod, at ihanda ninyo ang daraanan ng iba pa ninyong mga kababayan. Linisin ninyo ang kanilang daraanan. Alisin ninyo ang mga bato, at magtayo kayo ng bandila na nagpapahiwatig sa mga tao na pinauuwi na ng Panginoon ang kanyang mga mamamayan_. 
+Mga taga-Jerusalem, lumabas kayo sa pintuan ng inyong lungsod, at ihanda ninyo ang daraanan ng iba pa ninyong mga kababayan. Linisin ninyo ang kanilang daraanan. Alisin ninyo ang mga bato, at magtayo kayo ng bandila na nagpapahiwatig sa mga tao na pinauuwi na ng Panginoon ang kanyang mga mamamayan. 
 
 
 

@@ -10,13 +10,13 @@ next: ['Jas 5']
 
 
 ###### 1 
-Where do wars and fights _come_ from among you? Do _they_ not _come_ from your _desires for_ pleasure that war in your members? 
+Where do wars and fights come from among you? Do they not come from your desires for pleasure that war in your members? 
 
 ###### 2 
 You lust and do not have. You murder and covet and cannot obtain. You fight and war. Yet you do not have because you do not ask. 
 
 ###### 3 
-You ask and do not receive, because you ask amiss, that you may spend _it_ on your pleasures. 
+You ask and do not receive, because you ask amiss, that you may spend it on your pleasures. 
 
 ###### 4 
 Adulterers and adulteresses! Do you not know that friendship with the world is enmity with God? Whoever therefore wants to be a friend of the world makes himself an enemy of God. 
@@ -31,10 +31,10 @@ But He gives more grace. Therefore He says: "God resists the proud, But gives gr
 Therefore submit to God. Resist the devil and he will flee from you. 
 
 ###### 8 
-Draw near to God and He will draw near to you. Cleanse _your_ hands, _you_ sinners; and purify _your_ hearts, _you_ double-minded. 
+Draw near to God and He will draw near to you. Cleanse your hands, you sinners; and purify your hearts, you double-minded. 
 
 ###### 9 
-Lament and mourn and weep! Let your laughter be turned to mourning and _your_ joy to gloom. 
+Lament and mourn and weep! Let your laughter be turned to mourning and your joy to gloom. 
 
 ###### 10 
 Humble yourselves in the sight of the Lord, and He will lift you up.
@@ -51,13 +51,13 @@ There is one Lawgiver, who is able to save and to destroy. Who are you to judge 
 Come now, you who say, "Today or tomorrow we will go to such and such a city, spend a year there, buy and sell, and make a profit"; 
 
 ###### 14 
-whereas you do not know what _will happen_ tomorrow. For what _is_ your life? It is even a vapor that appears for a little time and then vanishes away. 
+whereas you do not know what will happen tomorrow. For what is your life? It is even a vapor that appears for a little time and then vanishes away. 
 
 ###### 15 
-Instead you _ought_ to say, "If the Lord wills, we shall live and do this or that." 
+Instead you ought to say, "If the Lord wills, we shall live and do this or that." 
 
 ###### 16 
 But now you boast in your arrogance. All such boasting is evil. 
 
 ###### 17 
-Therefore, to him who knows to do good and does not do _it,_ to him it is sin.
+Therefore, to him who knows to do good and does not do it, to him it is sin.

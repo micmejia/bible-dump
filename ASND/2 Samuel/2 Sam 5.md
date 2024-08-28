@@ -73,7 +73,7 @@ Ang lahat ng lahi ng Israel ay pumunta kay David sa Hebron at sinabi, "Kadugo n�
 
 
 
-Mula pa noong una, kahit si Saul pa ang hari namin, kayo na ang namumuno sa mga Israelita sa kanilang mga pakikipaglaban. At sinabi sa inyo ng Panginoon, 'Ikaw ang gagabay sa mga mamamayan kong Israelita gaya ng paggabay ng isang_ pastol sa mga tupa niya. Ikaw ang magiging pinuno nila.' " 
+Mula pa noong una, kahit si Saul pa ang hari namin, kayo na ang namumuno sa mga Israelita sa kanilang mga pakikipaglaban. At sinabi sa inyo ng Panginoon, 'Ikaw ang gagabay sa mga mamamayan kong Israelita gaya ng paggabay ng isang pastol sa mga tupa niya. Ikaw ang magiging pinuno nila.' " 
 
 
 
@@ -106,7 +106,7 @@ Mula pa noong una, kahit si Saul pa ang hari namin, kayo na ang namumuno sa mga 
 
 
 
-Kaya roon sa Hebron, gumawa ng kasunduan si David sa mga tagapamahala ng Israel sa presensya ng Panginoon. At pinahiran nila ng langis ang ulo ni David bilang pagkilala na siya na ang_ hari ng Israel. 
+Kaya roon sa Hebron, gumawa ng kasunduan si David sa mga tagapamahala ng Israel sa presensya ng Panginoon. At pinahiran nila ng langis ang ulo ni David bilang pagkilala na siya na ang hari ng Israel. 
 
 
 
@@ -240,7 +240,7 @@ Isang araw, pumunta si David at ang mga tauhan niya sa Jerusalem para salakayin 
 
 
 
-Pero nasakop ni David at ng mga tauhan niya ang matatag na kampo ng Zion, na tinatawag ngayong_ Lungsod ni David. 
+Pero nasakop ni David at ng mga tauhan niya ang matatag na kampo ng Zion, na tinatawag ngayong Lungsod ni David. 
 
 
 
@@ -273,7 +273,7 @@ Pero nasakop ni David at ng mga tauhan niya ang matatag na kampo ng Zion, na tin
 
 
 
-Nang hindi pa napapasok ni David ang Jerusalem, sinabi niya sa mga tauhan niya, "Doon kayo dumaan sa daanan ng tubig para makapasok kayo sa Jerusalem at talunin nʼyo ang mga 'bulag at pilay' na mga Jebuseo. Kinamumuhian ko sila!" Diyan nagsimula ang kasabihang "Hindi makakapasok ang mga bulag at pilay sa bahay ng Panginoon_." 
+Nang hindi pa napapasok ni David ang Jerusalem, sinabi niya sa mga tauhan niya, "Doon kayo dumaan sa daanan ng tubig para makapasok kayo sa Jerusalem at talunin nʼyo ang mga 'bulag at pilay' na mga Jebuseo. Kinamumuhian ko sila!" Diyan nagsimula ang kasabihang "Hindi makakapasok ang mga bulag at pilay sa bahay ng Panginoon." 
 
 
 

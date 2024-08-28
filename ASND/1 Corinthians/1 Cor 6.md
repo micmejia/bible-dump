@@ -73,7 +73,7 @@ Kapag may reklamo ang isa sa inyo laban sa kanyang kapatid, bakit dinadala niya 
 
 
 
-Hindi nʼyo ba alam na sa mga huling araw tayong_ mga banal ang hahatol sa mga tao sa_ mundo? At kung kayo ang hahatol sa mga tao sa_ mundo, wala ba kayong kakayahang hatulan ang maliliit na bagay na iyan? 
+Hindi nʼyo ba alam na sa mga huling araw tayong mga banal ang hahatol sa mga tao sa mundo? At kung kayo ang hahatol sa mga tao sa mundo, wala ba kayong kakayahang hatulan ang maliliit na bagay na iyan? 
 
 
 
@@ -106,7 +106,7 @@ Hindi nʼyo ba alam na sa mga huling araw tayong_ mga banal ang hahatol sa mga t
 
 
 
-Hindi nʼyo ba alam na tayo ang hahatol sa mga anghel? At kung kaya nating gawin ito,_ mas lalong kaya ninyong ayusin ang mga alitan sa buhay na ito. 
+Hindi nʼyo ba alam na tayo ang hahatol sa mga anghel? At kung kaya nating gawin ito, mas lalong kaya ninyong ayusin ang mga alitan sa buhay na ito. 
 
 
 
@@ -205,7 +205,7 @@ Mahiya naman kayo! Wala na ba talagang marurunong sa inyo na may kakayahang umay
 
 
 
-Ang nangyayari, nagdedemandahan ang magkakapatid sa Panginoon_, at sa harapan pa ng mga hindi mananampalataya! 
+Ang nangyayari, nagdedemandahan ang magkakapatid sa Panginoon, at sa harapan pa ng mga hindi mananampalataya! 
 
 
 
@@ -271,7 +271,7 @@ Kayo mismo ang talo sa pagkakaroon ninyo ng mga kaso laban sa isaʼt isa. Bakit 
 
 
 
-Ngunit ang nangyayari, kayo pa mismo ang gumagawa ng masama at nandaraya, at ginagawa ninyo ito mismo sa inyong kapatid sa Panginoon_. 9-10Hindi nʼyo ba alam na hindi magmamana ng kaharian ng Dios ang masasama? Huwag kayong palilinlang! Sapagkat kailanmaʼy hindi magmamana ng kaharian ng Dios ang mga imoral, sumasamba sa dios-diosan, nangangalunya, nakikipagrelasyon sa kapwa lalaki o babae, magnanakaw, sakim, lasenggo, mapanlait, at mandarambong. 
+Ngunit ang nangyayari, kayo pa mismo ang gumagawa ng masama at nandaraya, at ginagawa ninyo ito mismo sa inyong kapatid sa Panginoon. 9-10Hindi nʼyo ba alam na hindi magmamana ng kaharian ng Dios ang masasama? Huwag kayong palilinlang! Sapagkat kailanmaʼy hindi magmamana ng kaharian ng Dios ang mga imoral, sumasamba sa dios-diosan, nangangalunya, nakikipagrelasyon sa kapwa lalaki o babae, magnanakaw, sakim, lasenggo, mapanlait, at mandarambong. 
 
 
 
@@ -304,7 +304,7 @@ Ngunit ang nangyayari, kayo pa mismo ang gumagawa ng masama at nandaraya, at gin
 
 
 
-At ganyan nga ang ilan sa inyo noon. Ngunit nilinis na kayo sa inyong mga kasalanan_ at ibinukod na kayo ng Dios para maging kanya; itinuring na kayong matuwid dahil sa Panginoong Jesu-Cristo at sa Espiritu ng ating Dios.
+At ganyan nga ang ilan sa inyo noon. Ngunit nilinis na kayo sa inyong mga kasalanan at ibinukod na kayo ng Dios para maging kanya; itinuring na kayong matuwid dahil sa Panginoong Jesu-Cristo at sa Espiritu ng ating Dios.
 
 ## Ang Katawan Ninyo ay Templo ng Banal na Espiritu 
 
@@ -339,7 +339,7 @@ At ganyan nga ang ilan sa inyo noon. Ngunit nilinis na kayo sa inyong mga kasala
 
 
 
-Maaaring may magsabi sa inyo ng ganito,_ "Pwede kong gawin ang kahit ano." Totoo iyan,_ ngunit hindi lahat ng bagay ay nakakabuti sa inyo. Kaya kahit pwede kong gawin ang kahit ano, hindi naman ako paaalipin dito. 
+Maaaring may magsabi sa inyo ng ganito, "Pwede kong gawin ang kahit ano." Totoo iyan, ngunit hindi lahat ng bagay ay nakakabuti sa inyo. Kaya kahit pwede kong gawin ang kahit ano, hindi naman ako paaalipin dito. 
 
 
 
@@ -372,7 +372,7 @@ Maaaring may magsabi sa inyo ng ganito,_ "Pwede kong gawin ang kahit ano." Totoo
 
 
 
-Maaari rin namang sabihin ng iba,_ "Ang pagkain ay ginawa para sa tiyan at ang tiyan ay para sa pagkain." Totoo iyan,_ ngunit darating ang araw na pareho itong sisirain ng Dios. Ang katawan ay hindi para sa sekswal na imoralidad kundi para sa paglilingkod sa Dios; at ang Dios ang nag-iingat nito. 
+Maaari rin namang sabihin ng iba, "Ang pagkain ay ginawa para sa tiyan at ang tiyan ay para sa pagkain." Totoo iyan, ngunit darating ang araw na pareho itong sisirain ng Dios. Ang katawan ay hindi para sa sekswal na imoralidad kundi para sa paglilingkod sa Dios; at ang Dios ang nag-iingat nito. 
 
 
 
@@ -504,7 +504,7 @@ Hindi baʼt ang nakikipagtalik sa ganoong babae ay nagiging kaisang-katawan niya
 
 
 
-At kung nakikipag-isa tayo sa Panginoong Jesu-Cristo_ kaisa niya tayo sa espiritu. 
+At kung nakikipag-isa tayo sa Panginoong Jesu-Cristo kaisa niya tayo sa espiritu. 
 
 
 
@@ -570,7 +570,7 @@ Kaya lumayo kayo sa sekswal na imoralidad. Ang ibang kasalanang ginagawa ng tao 
 
 
 
-Hindi baʼt ang katawan ninyo ay templo ng Banal na Espiritung nasa inyo at tinanggap ninyo mula sa Dios? Kung ganoon, ang katawan ninyoʼy hindi sa inyo kundi sa Dios_, 
+Hindi baʼt ang katawan ninyo ay templo ng Banal na Espiritung nasa inyo at tinanggap ninyo mula sa Dios? Kung ganoon, ang katawan ninyoʼy hindi sa inyo kundi sa Dios, 
 
 
 

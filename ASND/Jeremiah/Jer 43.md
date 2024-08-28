@@ -238,7 +238,7 @@ at mga anak na babae ng hari na ipinagkatiwala ni Nebuzaradan na pinuno ng mga g
 
 
 
-Hindi sila sumunod sa Panginoon, talagang pumunta sila sa Egipto, at nakarating sila sa lungsod ng_ Tapanhes. 
+Hindi sila sumunod sa Panginoon, talagang pumunta sila sa Egipto, at nakarating sila sa lungsod ng Tapanhes. 
 
 
 
@@ -337,7 +337,7 @@ Doon sa Tapanhes, sinabi ng Panginoon kay Jeremias,
 
 
 
-Pagkatapos, sabihin mo sa kanila na ako,_ ang Panginoong Makapangyarihan, ang Dios ng Israel ay nagsasabi, 'Susuguin ko ang lingkod kong si Haring Nebucadnezar ng Babilonia at ilalagay ko ang kanyang trono at toldang panghari sa ibabaw ng mga batong ito na ibinaon ko sa lupa sa gitna ng daan. 
+Pagkatapos, sabihin mo sa kanila na ako, ang Panginoong Makapangyarihan, ang Dios ng Israel ay nagsasabi, 'Susuguin ko ang lingkod kong si Haring Nebucadnezar ng Babilonia at ilalagay ko ang kanyang trono at toldang panghari sa ibabaw ng mga batong ito na ibinaon ko sa lupa sa gitna ng daan. 
 
 
 

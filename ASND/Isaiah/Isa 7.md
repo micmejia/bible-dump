@@ -139,7 +139,7 @@ Sinabi ng Panginoon kay Isaias, "Isama mo ang anak mong si Shear Jashub at salub
 
 
 
-Ito ang sasabihin mo sa kanya, 'Humanda ka! Pumanatag ka at huwag matakot. Huwag kang kabahan dahil sa tindi ng galit nina Haring_ Rezin ng Aram at Haring Peka na_ anak ni Remalia. Ang dalawang itoʼy parang mga tuod ng puno na umuusok pero walang apoy. 
+Ito ang sasabihin mo sa kanya, 'Humanda ka! Pumanatag ka at huwag matakot. Huwag kang kabahan dahil sa tindi ng galit nina Haring Rezin ng Aram at Haring Peka na anak ni Remalia. Ang dalawang itoʼy parang mga tuod ng puno na umuusok pero walang apoy. 
 
 
 
@@ -306,7 +306,7 @@ Muling nangusap ang Panginoon kay Ahaz,
 
 
 
-"Ako ang Panginoon na iyong Dios. Humingi ka sa akin ng palatandaan bilang patunay na gagawin ko ang aking ipinangako_. Kahit magmula man ito sa ilalim, doon sa lugar ng mga patay, o sa itaas, doon sa langit." 
+"Ako ang Panginoon na iyong Dios. Humingi ka sa akin ng palatandaan bilang patunay na gagawin ko ang aking ipinangako. Kahit magmula man ito sa ilalim, doon sa lugar ng mga patay, o sa itaas, doon sa langit." 
 
 
 
@@ -405,7 +405,7 @@ Sinabi ni Isaias, "Makinig kayong mga angkan ni David. Hindi pa ba kayo nasisiya
 
 
 
-Dahil dito, ang Panginoon na mismo ang magbibigay sa inyo ng palatandaan: Magbubuntis ang isang birhen, at manganganak siya ng isang sanggol na lalaki. At tatawagin niya ang bata na Emmanuel. 15-16Bago siya magkaisip at makakain ng keso at pulot, ang lupain ng dalawang hari na kinatatakutan mo, Ahaz,_ ay mawawasak at pababayaan na lang. 
+Dahil dito, ang Panginoon na mismo ang magbibigay sa inyo ng palatandaan: Magbubuntis ang isang birhen, at manganganak siya ng isang sanggol na lalaki. At tatawagin niya ang bata na Emmanuel. 15-16Bago siya magkaisip at makakain ng keso at pulot, ang lupain ng dalawang hari na kinatatakutan mo, Ahaz, ay mawawasak at pababayaan na lang. 
 
 
 
@@ -438,7 +438,7 @@ Dahil dito, ang Panginoon na mismo ang magbibigay sa inyo ng palatandaan: Magbub
 
 
 
-Pero darating ang araw na_ ikaw at ang mga mamamayan mo, pati na ang sambahayan mo, ay ipapalusob ng Panginoon sa hari ng Asiria. At mararanasan ninyo ang hirap na hindi pa ninyo naranasan mula nang humiwalay ang Israel sa Juda." 
+Pero darating ang araw na ikaw at ang mga mamamayan mo, pati na ang sambahayan mo, ay ipapalusob ng Panginoon sa hari ng Asiria. At mararanasan ninyo ang hirap na hindi pa ninyo naranasan mula nang humiwalay ang Israel sa Juda." 
 
 
 

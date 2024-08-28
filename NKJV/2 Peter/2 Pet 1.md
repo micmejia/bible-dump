@@ -15,10 +15,10 @@ Simon Peter, a bondservant and apostle of Jesus Christ, To those who have obtain
 Grace and peace be multiplied to you in the knowledge of God and of Jesus our Lord, 
 
 ###### 3 
-as His divine power has given to us all things that _pertain_ to life and godliness, through the knowledge of Him who called us by glory and virtue, 
+as His divine power has given to us all things that pertain to life and godliness, through the knowledge of Him who called us by glory and virtue, 
 
 ###### 4 
-by which have been given to us exceedingly great and precious promises, that through these you may be partakers of the divine nature, having escaped the corruption _that is_ in the world through lust.
+by which have been given to us exceedingly great and precious promises, that through these you may be partakers of the divine nature, having escaped the corruption that is in the world through lust.
 
 ## Fruitful Growth in the Faith 
 
@@ -32,7 +32,7 @@ to knowledge self-control, to self-control perseverance, to perseverance godline
 to godliness brotherly kindness, and to brotherly kindness love. 
 
 ###### 8 
-For if these things are yours and abound, _you_ will be neither barren nor unfruitful in the knowledge of our Lord Jesus Christ. 
+For if these things are yours and abound, you will be neither barren nor unfruitful in the knowledge of our Lord Jesus Christ. 
 
 ###### 9 
 For he who lacks these things is shortsighted, even to blindness, and has forgotten that he was cleansed from his old sins. 
@@ -49,10 +49,10 @@ for so an entrance will be supplied to you abundantly into the everlasting kingd
 For this reason I will not be negligent to remind you always of these things, though you know and are established in the present truth. 
 
 ###### 13 
-Yes, I think it is right, as long as I am in this tent, to stir you up by reminding _you_, 
+Yes, I think it is right, as long as I am in this tent, to stir you up by reminding you, 
 
 ###### 14 
-knowing that shortly I _must_ put off my tent, just as our Lord Jesus Christ showed me. 
+knowing that shortly I must put off my tent, just as our Lord Jesus Christ showed me. 
 
 ###### 15 
 Moreover I will be careful to ensure that you always have a reminder of these things after my decease.
@@ -75,4 +75,4 @@ And so we have the prophetic word confirmed, which you do well to heed as a ligh
 knowing this first, that no prophecy of Scripture is of any private interpretation, 
 
 ###### 21 
-for prophecy never came by the will of man, but holy men of God spoke _as they were_ moved by the Holy Spirit.
+for prophecy never came by the will of man, but holy men of God spoke as they were moved by the Holy Spirit.

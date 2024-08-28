@@ -10,7 +10,7 @@ next: ['Acts 21']
 
 
 ###### 1 
-After the uproar had ceased, Paul called the disciples to _himself,_ embraced _them,_ and departed to go to Macedonia. 
+After the uproar had ceased, Paul called the disciples to himself, embraced them, and departed to go to Macedonia. 
 
 ###### 2 
 Now when he had gone over that region and encouraged them with many words, he came to Greece 
@@ -30,7 +30,7 @@ But we sailed away from Philippi after the Days of Unleavened Bread, and in five
 ## Ministering at Troas 
 
 ###### 7 
-Now on the first _day_ of the week, when the disciples came together to break bread, Paul, ready to depart the next day, spoke to them and continued his message until midnight. 
+Now on the first day of the week, when the disciples came together to break bread, Paul, ready to depart the next day, spoke to them and continued his message until midnight. 
 
 ###### 8 
 There were many lamps in the upper room where they were gathered together. 
@@ -39,7 +39,7 @@ There were many lamps in the upper room where they were gathered together.
 And in a window sat a certain young man named Eutychus, who was sinking into a deep sleep. He was overcome by sleep; and as Paul continued speaking, he fell down from the third story and was taken up dead. 
 
 ###### 10 
-But Paul went down, fell on him, and embracing _him_ said, "Do not trouble yourselves, for his life is in him." 
+But Paul went down, fell on him, and embracing him said, "Do not trouble yourselves, for his life is in him." 
 
 ###### 11 
 Now when he had come up, had broken bread and eaten, and talked a long while, even till daybreak, he departed. 
@@ -56,7 +56,7 @@ Then we went ahead to the ship and sailed to Assos, there intending to take Paul
 And when he met us at Assos, we took him on board and came to Mitylene. 
 
 ###### 15 
-We sailed from there, and the next _day_ came opposite Chios. The following _day_ we arrived at Samos and stayed at Trogyllium. The next _day_ we came to Miletus. 
+We sailed from there, and the next day came opposite Chios. The following day we arrived at Samos and stayed at Trogyllium. The next day we came to Miletus. 
 
 ###### 16 
 For Paul had decided to sail past Ephesus, so that he would not have to spend time in Asia; for he was hurrying to be at Jerusalem, if possible, on the Day of Pentecost.
@@ -91,7 +91,7 @@ But none of these things move me; nor do I count my life dear to myself, so that
 "And indeed, now I know that you all, among whom I have gone preaching the kingdom of God, will see my face no more. 
 
 ###### 26 
-Therefore I testify to you this day that I _am_ innocent of the blood of all _men._ 
+Therefore I testify to you this day that I am innocent of the blood of all men. 
 
 ###### 27 
 For I have not shunned to declare to you the whole counsel of God. 

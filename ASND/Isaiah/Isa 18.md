@@ -73,7 +73,7 @@ Nakakaawa ang mga lugar malapit sa mga ilog ng Etiopia, na may mga pagaspas ng p
 
 
 
-Mula sa lugar na ito ay may mga sugong nakasakay sa sasakyang yari sa tambo at dumadaan sa Ilog ng Nilo_. Kayong mabibilis na sugo, bumalik na kayo sa inyong lupain na hinahati ng mga ilog. Bumalik na kayo sa inyong mga mamamayan na matatangkad at makikinis ang balat, mga taong makapangyarihan at kinakatakutan kahit saan. 
+Mula sa lugar na ito ay may mga sugong nakasakay sa sasakyang yari sa tambo at dumadaan sa Ilog ng Nilo. Kayong mabibilis na sugo, bumalik na kayo sa inyong lupain na hinahati ng mga ilog. Bumalik na kayo sa inyong mga mamamayan na matatangkad at makikinis ang balat, mga taong makapangyarihan at kinakatakutan kahit saan. 
 
 
 
@@ -205,7 +205,7 @@ Bago pa dumating ang panahon ng pag-ani, sa panahon pa lang ng pamumulaklak ng m
 
 
 
-Lilipulin ng Dios ang mga taga-Etiopia, at_ ang mga bangkay nila ay ipapaubaya sa ibong mandaragit at mababangis na hayop. Magiging pagkain sila ng mga ibon sa panahon ng tag-araw at ng mababangis na hayop sa panahon ng taglamig. 
+Lilipulin ng Dios ang mga taga-Etiopia, at ang mga bangkay nila ay ipapaubaya sa ibong mandaragit at mababangis na hayop. Magiging pagkain sila ng mga ibon sa panahon ng tag-araw at ng mababangis na hayop sa panahon ng taglamig. 
 
 
 

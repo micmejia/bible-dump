@@ -304,7 +304,7 @@ At isulat ninyo nang malinaw ang mga kautusan ng Dios sa mga batong pinahiran ni
 
 
 
-Sinabi pa ni Moises at ng mga pari na mga Levita sa lahat ng Israelita, "Makinig kayo, O mga mamamayan ng_ Israel! Sa araw na ito, naging mamamayan na kayo ng Panginoon na inyong Dios. 
+Sinabi pa ni Moises at ng mga pari na mga Levita sa lahat ng Israelita, "Makinig kayo, O mga mamamayan ng Israel! Sa araw na ito, naging mamamayan na kayo ng Panginoon na inyong Dios. 
 
 
 
@@ -403,7 +403,7 @@ Nang araw na iyon, iniutos ni Moises sa mga tao,
 
 
 
-"Kapag nakatawid na kayo sa Jordan, ito ang mga angkan_ na tatayo sa Bundok ng Gerizim para basbasan ang mga tao: ang lahi nina Simeon, Levi, Juda, Isacar, Jose at Benjamin. 
+"Kapag nakatawid na kayo sa Jordan, ito ang mga angkan na tatayo sa Bundok ng Gerizim para basbasan ang mga tao: ang lahi nina Simeon, Levi, Juda, Isacar, Jose at Benjamin. 
 
 
 
@@ -436,7 +436,7 @@ Nang araw na iyon, iniutos ni Moises sa mga tao,
 
 
 
-At ito ang mga lahi_ na tatayo sa Bundok ng Ebal para sumpain ang mga tao: ang lahi nina Reuben, Gad, Asher, Zebulun, Dan at Naftali. 
+At ito ang mga lahi na tatayo sa Bundok ng Ebal para sumpain ang mga tao: ang lahi nina Reuben, Gad, Asher, Zebulun, Dan at Naftali. 
 
 
 

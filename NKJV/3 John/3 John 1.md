@@ -14,7 +14,7 @@ The Elder, To the beloved Gaius, whom I love in truth:
 Beloved, I pray that you may prosper in all things and be in health, just as your soul prospers. 
 
 ###### 3 
-For I rejoiced greatly when brethren came and testified of the truth _that is_ in you, just as you walk in the truth. 
+For I rejoiced greatly when brethren came and testified of the truth that is in you, just as you walk in the truth. 
 
 ###### 4 
 I have no greater joy than to hear that my children walk in truth.
@@ -25,7 +25,7 @@ I have no greater joy than to hear that my children walk in truth.
 Beloved, you do faithfully whatever you do for the brethren and for strangers, 
 
 ###### 6 
-who have borne witness of your love before the church. _If_ you send them forward on their journey in a manner worthy of God, you will do well, 
+who have borne witness of your love before the church. If you send them forward on their journey in a manner worthy of God, you will do well, 
 
 ###### 7 
 because they went forth for His name's sake, taking nothing from the Gentiles. 
@@ -39,13 +39,13 @@ We therefore ought to receive such, that we may become fellow workers for the tr
 I wrote to the church, but Diotrephes, who loves to have the preeminence among them, does not receive us. 
 
 ###### 10 
-Therefore, if I come, I will call to mind his deeds which he does, prating against us with malicious words. And not content with that, he himself does not receive the brethren, and forbids those who wish to, putting _them_ out of the church. 
+Therefore, if I come, I will call to mind his deeds which he does, prating against us with malicious words. And not content with that, he himself does not receive the brethren, and forbids those who wish to, putting them out of the church. 
 
 ###### 11 
 Beloved, do not imitate what is evil, but what is good. He who does good is of God, but he who does evil has not seen God. 
 
 ###### 12 
-Demetrius has a _good_ testimony from all, and from the truth itself. And we also bear witness, and you know that our testimony is true.
+Demetrius has a good testimony from all, and from the truth itself. And we also bear witness, and you know that our testimony is true.
 
 ## Farewell Greeting 
 

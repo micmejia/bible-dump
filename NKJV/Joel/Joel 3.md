@@ -15,7 +15,7 @@ up: ['Joel']
 I will also gather all nations, And bring them down to the Valley of Jehoshaphat; And I will enter into judgment with them there On account of My people, My heritage Israel, Whom they have scattered among the nations; They have also divided up My land. 
 
 ###### 3 
-They have cast lots for My people, Have given a boy _as payment_ for a harlot, And sold a girl for wine, that they may drink. 
+They have cast lots for My people, Have given a boy as payment for a harlot, And sold a girl for wine, that they may drink. 
 
 ###### 4 
 "Indeed, what have you to do with Me, O Tyre and Sidon, and all the coasts of Philistia? Will you retaliate against Me? But if you retaliate against Me, Swiftly and speedily I will return your retaliation upon your own head; 
@@ -36,7 +36,7 @@ I will sell your sons and your daughters Into the hand of the people of Judah, A
 Proclaim this among the nations: "Prepare for war! Wake up the mighty men, Let all the men of war draw near, Let them come up. 
 
 ###### 10 
-Beat your plowshares into swords And your pruning hooks into spears; Let the weak say, 'I _am_ strong.' " 
+Beat your plowshares into swords And your pruning hooks into spears; Let the weak say, 'I am strong.' " 
 
 ###### 11 
 Assemble and come, all you nations, And gather together all around. Cause Your mighty ones to go down there, O Lord. 
@@ -45,10 +45,10 @@ Assemble and come, all you nations, And gather together all around. Cause Your m
 "Let the nations be wakened, and come up to the Valley of Jehoshaphat; For there I will sit to judge all the surrounding nations. 
 
 ###### 13 
-Put in the sickle, for the harvest is ripe. Come, go down; For the winepress is full, The vats overflow-- For their wickedness _is_ great." 
+Put in the sickle, for the harvest is ripe. Come, go down; For the winepress is full, The vats overflow-- For their wickedness is great." 
 
 ###### 14 
-Multitudes, multitudes in the valley of decision! For the day of the Lord _is_ near in the valley of decision. 
+Multitudes, multitudes in the valley of decision! For the day of the Lord is near in the valley of decision. 
 
 ###### 15 
 The sun and moon will grow dark, And the stars will diminish their brightness. 
@@ -57,13 +57,13 @@ The sun and moon will grow dark, And the stars will diminish their brightness.
 The Lord also will roar from Zion, And utter His voice from Jerusalem; The heavens and earth will shake; But the Lord will be a shelter for His people, And the strength of the children of Israel. 
 
 ###### 17 
-"So you shall know that I _am_ the Lord your God, Dwelling in Zion My holy mountain. Then Jerusalem shall be holy, And no aliens shall ever pass through her again." ## God Blesses His People 
+"So you shall know that I am the Lord your God, Dwelling in Zion My holy mountain. Then Jerusalem shall be holy, And no aliens shall ever pass through her again." ## God Blesses His People 
 
 ###### 18 
-And it will come to pass in that day _That_ the mountains shall drip with new wine, The hills shall flow with milk, And all the brooks of Judah shall be flooded with water; A fountain shall flow from the house of the Lord And water the Valley of Acacias. 
+And it will come to pass in that day That the mountains shall drip with new wine, The hills shall flow with milk, And all the brooks of Judah shall be flooded with water; A fountain shall flow from the house of the Lord And water the Valley of Acacias. 
 
 ###### 19 
-"Egypt shall be a desolation, And Edom a desolate wilderness, Because of violence _against_ the people of Judah, For they have shed innocent blood in their land. 
+"Egypt shall be a desolation, And Edom a desolate wilderness, Because of violence against the people of Judah, For they have shed innocent blood in their land. 
 
 ###### 20 
 But Judah shall abide forever, And Jerusalem from generation to generation. 

@@ -40,7 +40,7 @@ next: ['Neh 3']
 
 
 
-Noong unang buwan, na siyang_ buwan ng Nisan, nang ika-20 taon ng paghahari ni Artaserses, sinilbihan ko ng inumin ang hari. Noon lang niya ako nakitang malungkot. 
+Noong unang buwan, na siyang buwan ng Nisan, nang ika-20 taon ng paghahari ni Artaserses, sinilbihan ko ng inumin ang hari. Noon lang niya ako nakitang malungkot. 
 
 
 
@@ -504,7 +504,7 @@ Nagpatuloy ako sa Pintuan ng Bukal hanggang sa paliguan ng hari, pero hindi maka
 
 
 
-Kaya tumuloy na lang ako sa Lambak ng Kidron_, at siniyasat ang mga pader nang gabing iyon. Pagkatapos, bumalik ako at muling dumaan sa pintuang nakaharap sa lambak. 
+Kaya tumuloy na lang ako sa Lambak ng Kidron, at siniyasat ang mga pader nang gabing iyon. Pagkatapos, bumalik ako at muling dumaan sa pintuang nakaharap sa lambak. 
 
 
 
@@ -537,7 +537,7 @@ Kaya tumuloy na lang ako sa Lambak ng Kidron_, at siniyasat ang mga pader nang g
 
 
 
-Hindi alam ng mga opisyal ng lungsod_ kung saan ako nanggaling at kung ano ang ginawa ko. Sapagkat wala pa akong pinagsabihang Judio tungkol sa balak ko, kahit ang mga pari, mga pinuno, mga opisyal, at ang iba pang nasa pamahalaan. 
+Hindi alam ng mga opisyal ng lungsod kung saan ako nanggaling at kung ano ang ginawa ko. Sapagkat wala pa akong pinagsabihang Judio tungkol sa balak ko, kahit ang mga pari, mga pinuno, mga opisyal, at ang iba pang nasa pamahalaan. 
 
 
 
@@ -669,4 +669,4 @@ Ngunit nang mabalitaan ito ni Sanbalat na taga-Horon, ni Tobia na isang opisyal 
 
 
 
-Sinagot ko sila, "Magtatagumpay kami sa pamamagitan ng tulong ng Dios sa langit. Kami na mga lingkod niya ay magsisimula na sa pagpapatayo ng pader ng Jerusalem_. Pero kayo ay hindi kabilang at walang karapatan sa Jerusalem, at hindi kayo bahagi ng kasaysayan nito."
+Sinagot ko sila, "Magtatagumpay kami sa pamamagitan ng tulong ng Dios sa langit. Kami na mga lingkod niya ay magsisimula na sa pagpapatayo ng pader ng Jerusalem. Pero kayo ay hindi kabilang at walang karapatan sa Jerusalem, at hindi kayo bahagi ng kasaysayan nito."

@@ -39,7 +39,7 @@ next: ['1 Tim 2']
 
 
 
-Mula kay_ Pablo na apostol ni Cristo Jesus ayon sa utos ng Dios na ating Tagapagligtas at ni Cristo Jesus na ating pag-asa. 
+Mula kay Pablo na apostol ni Cristo Jesus ayon sa utos ng Dios na ating Tagapagligtas at ni Cristo Jesus na ating pag-asa. 
 
 
 
@@ -72,7 +72,7 @@ Mula kay_ Pablo na apostol ni Cristo Jesus ayon sa utos ng Dios na ating Tagapag
 
 
 
-Mahal kong_ Timoteo, tunay kong_ anak sa pananampalataya: Sumaiyo nawa ang biyaya, awa at kapayapaang galing sa Dios Ama at kay Cristo Jesus na ating Panginoon.
+Mahal kong Timoteo, tunay kong anak sa pananampalataya: Sumaiyo nawa ang biyaya, awa at kapayapaang galing sa Dios Ama at kay Cristo Jesus na ating Panginoon.
 
 ## Babala sa mga Maling Aral 
 
@@ -338,7 +338,7 @@ Dapat nating alalahanin na hindi ibinigay ang Kautusan para sa mga matuwid kundi
 
 
 
-Ang Kautusan ay ibinigay din para sa_ mga gumagawa ng sekswal na imoralidad, mga nakikipagtalik sa kapwa lalaki, kidnaper, sinungaling at tumetestigo nang hindi totoo, at sa sinumang sumasalungat sa tamang aral 
+Ang Kautusan ay ibinigay din para sa mga gumagawa ng sekswal na imoralidad, mga nakikipagtalik sa kapwa lalaki, kidnaper, sinungaling at tumetestigo nang hindi totoo, at sa sinumang sumasalungat sa tamang aral 
 
 
 
@@ -371,7 +371,7 @@ Ang Kautusan ay ibinigay din para sa_ mga gumagawa ng sekswal na imoralidad, mga
 
 
 
-na naaayon sa Magandang Balita ng dakila at mapagpalang Dios. Ipinagkatiwala sa akin Ang Magandang Balitang_ ito para ipahayag_.
+na naaayon sa Magandang Balita ng dakila at mapagpalang Dios. Ipinagkatiwala sa akin Ang Magandang Balitang ito para ipahayag.
 
 ## Pasasalamat sa Awa ng Dios 
 
@@ -406,7 +406,7 @@ na naaayon sa Magandang Balita ng dakila at mapagpalang Dios. Ipinagkatiwala sa 
 
 
 
-Nagpapasalamat ako kay Cristo Jesus na ating Panginoon na nagbigay sa akin ng lakas na maglingkod sa kanya_, dahil itinuring niya akong mapagkakatiwalaan. Kaya nga pinili niya akong maglingkod sa kanya, 
+Nagpapasalamat ako kay Cristo Jesus na ating Panginoon na nagbigay sa akin ng lakas na maglingkod sa kanya, dahil itinuring niya akong mapagkakatiwalaan. Kaya nga pinili niya akong maglingkod sa kanya, 
 
 
 
@@ -439,7 +439,7 @@ Nagpapasalamat ako kay Cristo Jesus na ating Panginoon na nagbigay sa akin ng la
 
 
 
-kahit na nilapastangan ko siya noong una. Bukod pa riyan, inusig at nilait ko ang mga sumasampalataya sa kanya_. Ngunit kinaawaan ako ng Dios, dahil ginawa ko ito noong hindi pa ako sumasampalataya sa kanya at hindi ko alam ang ginagawa ko. 
+kahit na nilapastangan ko siya noong una. Bukod pa riyan, inusig at nilait ko ang mga sumasampalataya sa kanya. Ngunit kinaawaan ako ng Dios, dahil ginawa ko ito noong hindi pa ako sumasampalataya sa kanya at hindi ko alam ang ginagawa ko. 
 
 
 
@@ -538,7 +538,7 @@ Ito ang katotohanang dapat tanggapin at paniwalaan ng lahat: naparito si Cristo 
 
 
 
-Ngunit kinaawaan ako ng Dios_ para maipakita ni Jesu-Cristo sa pamamagitan ko kung gaano siya katiyaga sa mga makasalanan_. Magsisilbing halimbawa ang ginawa ni Cristo sa akin para sa iba na sasampalataya sa kanya na pagkakalooban niya ng buhay na walang hanggan. 
+Ngunit kinaawaan ako ng Dios para maipakita ni Jesu-Cristo sa pamamagitan ko kung gaano siya katiyaga sa mga makasalanan. Magsisilbing halimbawa ang ginawa ni Cristo sa akin para sa iba na sasampalataya sa kanya na pagkakalooban niya ng buhay na walang hanggan. 
 
 
 
@@ -670,4 +670,4 @@ Ingatan mo ang pananampalataya mo at panatilihin mong malinis ang konsensya mo. 
 
 
 
-Kabilang na rito sina Hymeneus at Alexander na ipinaubaya ko na kay Satanas para maturuang huwag lumapastangan sa Dios_.
+Kabilang na rito sina Hymeneus at Alexander na ipinaubaya ko na kay Satanas para maturuang huwag lumapastangan sa Dios.

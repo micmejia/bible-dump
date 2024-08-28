@@ -139,7 +139,7 @@ Ngunit ito ang sagot nina Zerubabel, Jeshua, at ng mga pinuno ng mga pamilya: "I
 
 
 
-Kaya pinahina ang loob at tinakot ng mga taong dati nang nakatira sa lupaing iyon ang mga tao sa Juda para hindi nila maipagpatuloy ang pagpapagawa nila ng templo_. 
+Kaya pinahina ang loob at tinakot ng mga taong dati nang nakatira sa lupaing iyon ang mga tao sa Juda para hindi nila maipagpatuloy ang pagpapagawa nila ng templo. 
 
 
 
@@ -172,7 +172,7 @@ Kaya pinahina ang loob at tinakot ng mga taong dati nang nakatira sa lupaing iyo
 
 
 
-Sinuhulan nila ang mga opisyal ng gobyerno ng Persia para salungatin ang mga plano ng mga tao sa Juda_. Patuloy nila itong ginagawa mula nang panahon na si Cyrus ang hari ng Persia hanggang sa panahong si Darius na ang hari ng Persia.
+Sinuhulan nila ang mga opisyal ng gobyerno ng Persia para salungatin ang mga plano ng mga tao sa Juda. Patuloy nila itong ginagawa mula nang panahon na si Cyrus ang hari ng Persia hanggang sa panahong si Darius na ang hari ng Persia.
 
 ## Ang Pagsalungat sa Pagpapatayo ng Templo nang Panahon ni Haring Artaserses 
 
@@ -240,7 +240,7 @@ Nang maging hari si Ahasuerus, ang mga kalaban ng mga naninirahan sa Jerusalem a
 
 
 
-At kahit na noong si Artaserses na ang hari ng Persia, sumulat din sila sa kanya. Sila ay sina Bishlam, Mitredat, Tabeel, at ang iba pa nilang mga kasama. Isinulat nila ito sa wikang Aramico at isinalin ito sa wika ng mga taga-Persia_. 8-11Sumulat din kay Haring Artaserses si Rehum na gobernador at si Shimsai na kalihim laban sa mga taga-Jerusalem. Ito ang nilalaman ng_ sulat nila: "Mahal na Haring Artaserses, "Una po sa lahat_ nangungumusta kami sa inyo, kaming mga lingkod nʼyo rito sa lalawigan ng_ kanluran ng Eufrates. Kasama po sa mga nangungumusta ay ang mga kasama naming mga pinuno at opisyal, ang mga tao sa Tripolis, Persia, Erec, Babilonia, at ang mga tao sa Susa sa lupain ng Elam. Kinukumusta rin po kayo ng mga taong pinaalis sa kanilang mga lugar ni Osnapar, ang tanyag at makapangyarihan na hari ng Asiria_. Itong mga mamamayan ay pinatira niya sa lungsod ng Samaria at sa ibang mga lugar sa kanluran ng Eufrates. 
+At kahit na noong si Artaserses na ang hari ng Persia, sumulat din sila sa kanya. Sila ay sina Bishlam, Mitredat, Tabeel, at ang iba pa nilang mga kasama. Isinulat nila ito sa wikang Aramico at isinalin ito sa wika ng mga taga-Persia. 8-11Sumulat din kay Haring Artaserses si Rehum na gobernador at si Shimsai na kalihim laban sa mga taga-Jerusalem. Ito ang nilalaman ng sulat nila: "Mahal na Haring Artaserses, "Una po sa lahat nangungumusta kami sa inyo, kaming mga lingkod nʼyo rito sa lalawigan ng kanluran ng Eufrates. Kasama po sa mga nangungumusta ay ang mga kasama naming mga pinuno at opisyal, ang mga tao sa Tripolis, Persia, Erec, Babilonia, at ang mga tao sa Susa sa lupain ng Elam. Kinukumusta rin po kayo ng mga taong pinaalis sa kanilang mga lugar ni Osnapar, ang tanyag at makapangyarihan na hari ng Asiria. Itong mga mamamayan ay pinatira niya sa lungsod ng Samaria at sa ibang mga lugar sa kanluran ng Eufrates. 
 
 
 
@@ -438,7 +438,7 @@ Ipinapaalam lang po namin sa inyo, Mahal na Hari, na kung muling maipatayo ang l
 
 
 
-Ito ang sagot na ipinadala ng hari: "Nangungumusta ako_ sa iyo_ Gobernador Rehum, kay Shimsai na kalihim, at sa inyong mga kasama na nakatira sa Samaria at sa iba pang mga lugar sa kanluran ng Eufrates. "Nawaʼy nasa mabuti kayong kalagayan. 
+Ito ang sagot na ipinadala ng hari: "Nangungumusta ako sa iyo Gobernador Rehum, kay Shimsai na kalihim, at sa inyong mga kasama na nakatira sa Samaria at sa iba pang mga lugar sa kanluran ng Eufrates. "Nawaʼy nasa mabuti kayong kalagayan. 
 
 
 
@@ -537,7 +537,7 @@ Nag-utos akong saliksikin ang mga kasulatan, at napatunayan na ang mga dating na
 
 
 
-Nalaman ko rin sa pamamagitan ng mga kasulatan na_ ang Jerusalem ay pinamahalaan at pinagbayad ng buwis at ng iba pang bayarin ng mga makapangyarihang hari, na namuno sa buong lalawigan sa kanluran ng Eufrates. 
+Nalaman ko rin sa pamamagitan ng mga kasulatan na ang Jerusalem ay pinamahalaan at pinagbayad ng buwis at ng iba pang bayarin ng mga makapangyarihang hari, na namuno sa buong lalawigan sa kanluran ng Eufrates. 
 
 
 

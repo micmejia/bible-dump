@@ -271,7 +271,7 @@ Ito ang mga kamag-anak ni Beera na naitala sa talaan ng kanilang mga angkan ayon
 
 
 
-at si Bela na anak ni Azaz na anak ni Shema at apo ni Joel. Ito ang lahi ni Reuben na_ tumira mula sa Aroer hanggang sa Nebo at Baal Meon. 
+at si Bela na anak ni Azaz na anak ni Shema at apo ni Joel. Ito ang lahi ni Reuben na tumira mula sa Aroer hanggang sa Nebo at Baal Meon. 
 
 
 
@@ -405,7 +405,7 @@ Tumira ang lahi ni Gad sa lupain ng Bashan na kasunod ng lupain nina Reuben, han
 
 
 
-Ito ang lahi ni Gad:_ si Joel, na siyang pinuno sa Bashan, ang sumunod sa kanya ay si Shafam, pagkatapos ay sina Janai at Shafat. 
+Ito ang lahi ni Gad: si Joel, na siyang pinuno sa Bashan, ang sumunod sa kanya ay si Shafam, pagkatapos ay sina Janai at Shafat. 
 
 
 
@@ -438,7 +438,7 @@ Ito ang lahi ni Gad:_ si Joel, na siyang pinuno sa Bashan, ang sumunod sa kanya 
 
 
 
-Ang kanilang mga kamag-anak ayon sa bawat pamilya ay sina Micael, Meshulam, Sheba, Jorai, Jacan, Zia at Eber – pito silang lahat_. 
+Ang kanilang mga kamag-anak ayon sa bawat pamilya ay sina Micael, Meshulam, Sheba, Jorai, Jacan, Zia at Eber – pito silang lahat. 
 
 
 
@@ -735,7 +735,7 @@ Pinagkukuha nila ang hayop ng mga Hagreo: 50,000 kamelyo, 250,000 tupa at 2,000 
 
 
 
-at marami silang napatay dahil tinulungan sila ng Dios sa pakikipaglaban. Tinirhan nila ang mga lugar na ito hanggang sa mabihag sila ng ibang bansa_.
+at marami silang napatay dahil tinulungan sila ng Dios sa pakikipaglaban. Tinirhan nila ang mga lugar na ito hanggang sa mabihag sila ng ibang bansa.
 
 ## Ang Kalahating Lahi ni Manase 
 

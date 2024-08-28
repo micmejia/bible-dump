@@ -16,7 +16,7 @@ Now after Jesus was born in Bethlehem of Judea in the days of Herod the king, be
 saying, "Where is He who has been born King of the Jews? For we have seen His star in the East and have come to worship Him." 
 
 ###### 3 
-When Herod the king heard _this,_ he was troubled, and all Jerusalem with him. 
+When Herod the king heard this, he was troubled, and all Jerusalem with him. 
 
 ###### 4 
 And when he had gathered all the chief priests and scribes of the people together, he inquired of them where the Christ was to be born. 
@@ -25,13 +25,13 @@ And when he had gathered all the chief priests and scribes of the people togethe
 So they said to him, "In Bethlehem of Judea, for thus it is written by the prophet: 
 
 ###### 6 
-'But you, Bethlehem, _in_ the land of Judah, Are not the least among the rulers of Judah; For out of you shall come a Ruler Who will shepherd My people Israel.' " 
+'But you, Bethlehem, in the land of Judah, Are not the least among the rulers of Judah; For out of you shall come a Ruler Who will shepherd My people Israel.' " 
 
 ###### 7 
 Then Herod, when he had secretly called the wise men, determined from them what time the star appeared. 
 
 ###### 8 
-And he sent them to Bethlehem and said, "Go and search carefully for the young Child, and when you have found _Him,_ bring back word to me, that I may come and worship Him also." 
+And he sent them to Bethlehem and said, "Go and search carefully for the young Child, and when you have found Him, bring back word to me, that I may come and worship Him also." 
 
 ###### 9 
 When they heard the king, they departed; and behold, the star which they had seen in the East went before them, till it came and stood over where the young Child was. 
@@ -63,7 +63,7 @@ Then Herod, when he saw that he was deceived by the wise men, was exceedingly an
 Then was fulfilled what was spoken by Jeremiah the prophet, saying: 
 
 ###### 18 
-"A voice was heard in Ramah, Lamentation, weeping, and great mourning, Rachel weeping _for_ her children, Refusing to be comforted, Because they are no more." ## The Home in Nazareth 
+"A voice was heard in Ramah, Lamentation, weeping, and great mourning, Rachel weeping for her children, Refusing to be comforted, Because they are no more." ## The Home in Nazareth 
 
 ###### 19 
 Now when Herod was dead, behold, an angel of the Lord appeared in a dream to Joseph in Egypt, 

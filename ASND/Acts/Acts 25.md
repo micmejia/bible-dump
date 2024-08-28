@@ -40,7 +40,7 @@ next: ['Acts 26']
 
 
 
-Dumating si Festus sa lalawigan ng Judea bilang gobernador_, at pagkaraan ng tatlong araw, pumunta siya sa Jerusalem mula Cesarea. 
+Dumating si Festus sa lalawigan ng Judea bilang gobernador, at pagkaraan ng tatlong araw, pumunta siya sa Jerusalem mula Cesarea. 
 
 
 
@@ -436,7 +436,7 @@ Nakipag-usap agad si Festus sa mga miyembro ng kanyang korte, at pagkatapos ay s
 
 
 
-Makaraan ang ilang araw, dumating sa Cesarea si Haring Agripa at ang kanyang kapatid na_ si Bernice dahil nais nilang dalawin si Gobernador_ Festus. 
+Makaraan ang ilang araw, dumating sa Cesarea si Haring Agripa at ang kanyang kapatid na si Bernice dahil nais nilang dalawin si Gobernador Festus. 
 
 
 
@@ -766,7 +766,7 @@ Sinabi ni Agripa kay Festus, "Gusto kong mapakinggan ang taong ito." Sinabi ni F
 
 
 
-Kinabukasan, dumating sa korte sina Agripa at Bernice na may buong parangal. Maraming opisyal ng mga sundalo at mga kilalang tao sa lungsod ang sumama sa kanila. Pagkatapos, nag-utos si Festus na dalhin doon si Pablo. Nang nasa loob na si Pablo,_ 
+Kinabukasan, dumating sa korte sina Agripa at Bernice na may buong parangal. Maraming opisyal ng mga sundalo at mga kilalang tao sa lungsod ang sumama sa kanila. Pagkatapos, nag-utos si Festus na dalhin doon si Pablo. Nang nasa loob na si Pablo, 
 
 
 

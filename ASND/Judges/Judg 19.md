@@ -304,7 +304,7 @@ Kinaumagahan, nakahanda na silang umalis, pero sinabi na naman ng ama ng babae, 
 
 
 
-Nang aalis na ang Levita, ang asawa niya, at ang kanyang utusan, sinabi ng ama ng babae, "Hapon na at maya-maya ay madilim na. Mabuti pa rito na lang kayo muling matulog. Magsaya muna kayo rito at maaga na lang kayo umalis bukas." 10-11Pero hindi na pumayag ang Levita, sa halip, umalis siya at ang asawa niya, kasama ang utusan at_ ang dalawang asno. Papalubog na ang araw nang dumating sila malapit sa Jebus (na siyang Jerusalem ngayon). Kaya sinabi ng utusan ng Levita, "Mabuti po siguro na rito na lang tayo matulog sa lungsod na ito ng mga Jebuseo." 
+Nang aalis na ang Levita, ang asawa niya, at ang kanyang utusan, sinabi ng ama ng babae, "Hapon na at maya-maya ay madilim na. Mabuti pa rito na lang kayo muling matulog. Magsaya muna kayo rito at maaga na lang kayo umalis bukas." 10-11Pero hindi na pumayag ang Levita, sa halip, umalis siya at ang asawa niya, kasama ang utusan at ang dalawang asno. Papalubog na ang araw nang dumating sila malapit sa Jebus (na siyang Jerusalem ngayon). Kaya sinabi ng utusan ng Levita, "Mabuti po siguro na rito na lang tayo matulog sa lungsod na ito ng mga Jebuseo." 
 
 
 

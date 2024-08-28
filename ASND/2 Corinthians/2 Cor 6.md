@@ -106,7 +106,7 @@ Sapagkat sinabi ng Dios, "Dininig kita sa tamang panahon, at tinulungan kita sa 
 
 
 
-Hindi kami gumagawa ng kahit ano na ikatitisod ng ibang tao, para hindi mapintasan ang paglilingkod namin sa Dios_. 
+Hindi kami gumagawa ng kahit ano na ikatitisod ng ibang tao, para hindi mapintasan ang paglilingkod namin sa Dios. 
 
 
 
@@ -172,7 +172,7 @@ Sa lahat ng aming ginagawa, sinisikap naming ipakita na kami ay totoong mga ling
 
 
 
-Nakaranas kami ng_ pambubugbog, pagkakakulong, at panggugulo ng mga tao_. Nagsikap kami nang husto, at kung minsan ay wala pang tulog at wala ring pagkain. 
+Nakaranas kami ng pambubugbog, pagkakakulong, at panggugulo ng mga tao. Nagsikap kami nang husto, at kung minsan ay wala pang tulog at wala ring pagkain. 
 
 
 
@@ -205,7 +205,7 @@ Nakaranas kami ng_ pambubugbog, pagkakakulong, at panggugulo ng mga tao_. Nagsik
 
 
 
-Pinatunayan namin sa lahat na kami ay mga tunay na lingkod ng Dios_ sa pamamagitan ng aming malinis na pamumuhay, kaalaman, pagtitiyaga, kagandahang-loob, sa pamamagitan ng patnubay ng Banal na Espiritu sa amin, sa tapat na pag-ibig 
+Pinatunayan namin sa lahat na kami ay mga tunay na lingkod ng Dios sa pamamagitan ng aming malinis na pamumuhay, kaalaman, pagtitiyaga, kagandahang-loob, sa pamamagitan ng patnubay ng Banal na Espiritu sa amin, sa tapat na pag-ibig 
 
 
 
@@ -271,7 +271,7 @@ at pananalita, at sa pamamagitan ng kapangyarihan ng Dios. Ang matuwid naming pa
 
 
 
-Bilang mga lingkod ng Dios,_ naranasan naming parangalan at siraan ng kapwa_, purihin ng iba at laitin ng iba. Pawang katotohanan ang aming mga sinasabi, ngunit itinuturing kaming mga sinungaling. 
+Bilang mga lingkod ng Dios, naranasan naming parangalan at siraan ng kapwa, purihin ng iba at laitin ng iba. Pawang katotohanan ang aming mga sinasabi, ngunit itinuturing kaming mga sinungaling. 
 
 
 
@@ -337,7 +337,7 @@ Kami ay tanyag, ngunit hindi kinikilala; lagi kaming nasa bingit ng kamatayan, n
 
 
 
-May mga nagpapalungkot sa amin, ngunit lagi pa rin kaming masaya. Mahirap lang kami, ngunit marami kaming pinapayaman. Kung tungkol sa mga bagay dito sa mundo,_ wala kaming masasabing amin, ngunit ang totoo, kami ang nagmamay-ari sa lahat ng mga bagay. 
+May mga nagpapalungkot sa amin, ngunit lagi pa rin kaming masaya. Mahirap lang kami, ngunit marami kaming pinapayaman. Kung tungkol sa mga bagay dito sa mundo, wala kaming masasabing amin, ngunit ang totoo, kami ang nagmamay-ari sa lahat ng mga bagay. 
 
 
 

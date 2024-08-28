@@ -106,7 +106,7 @@ Maging mahinahon kayo, mapagpakumbaba, maunawain at mapagpaumanhin sa mga pagkuk
 
 
 
-Pagsikapan ninyong mapanatili ang pagkakaisa nʼyo mula sa Banal na_ Espiritu sa pamamagitan ng mapayapa ninyong pagsasamahan. 
+Pagsikapan ninyong mapanatili ang pagkakaisa nʼyo mula sa Banal na Espiritu sa pamamagitan ng mapayapa ninyong pagsasamahan. 
 
 
 
@@ -139,7 +139,7 @@ Pagsikapan ninyong mapanatili ang pagkakaisa nʼyo mula sa Banal na_ Espiritu sa
 
 
 
-Sapagkat iisang katawan lamang tayo na may iisang Banal na_ Espiritu, at iisa rin ang pag-asang ibinigay sa atin nang tawagin tayo ng Dios. 
+Sapagkat iisang katawan lamang tayo na may iisang Banal na Espiritu, at iisa rin ang pag-asang ibinigay sa atin nang tawagin tayo ng Dios. 
 
 
 
@@ -172,7 +172,7 @@ Sapagkat iisang katawan lamang tayo na may iisang Banal na_ Espiritu, at iisa ri
 
 
 
-Iisa ang Panginoon natin_, iisang pananampalataya, at iisang bautismo. 
+Iisa ang Panginoon natin, iisang pananampalataya, at iisang bautismo. 
 
 
 
@@ -205,7 +205,7 @@ Iisa ang Panginoon natin_, iisang pananampalataya, at iisang bautismo.
 
 
 
-Iisa ang Dios natin_ at siya ang Ama nating lahat. Naghahari siya, kumikilos at nananahan sa ating lahat. 
+Iisa ang Dios natin at siya ang Ama nating lahat. Naghahari siya, kumikilos at nananahan sa ating lahat. 
 
 
 
@@ -238,7 +238,7 @@ Iisa ang Dios natin_ at siya ang Ama nating lahat. Naghahari siya, kumikilos at 
 
 
 
-Ngunit kahit na bahagi tayo ng iisang katawan_, binigyan ang bawat isa sa atin ng kaloob ayon sa nais ibigay ni Cristo. 
+Ngunit kahit na bahagi tayo ng iisang katawan, binigyan ang bawat isa sa atin ng kaloob ayon sa nais ibigay ni Cristo. 
 
 
 
@@ -304,7 +304,7 @@ Tulad ng sinasabi sa Kasulatan, "Nang umakyat siya sa langit, marami siyang dina
 
 
 
-(Ngayon, ano ang kahulugan ng, "Umakyat siya sa langit_"? Ang ibig sabihin nito ay bumaba muna siya rito sa lupa. 
+(Ngayon, ano ang kahulugan ng, "Umakyat siya sa langit"? Ang ibig sabihin nito ay bumaba muna siya rito sa lupa. 
 
 
 
@@ -403,7 +403,7 @@ Ang ibaʼy ginawa niyang apostol, ang ibaʼy propeta, ang ibaʼy mangangaral ng 
 
 
 
-Ginawa niya ito_ para ihanda sa paglilingkod ang mga pinabanal, at para lumago at maging matatag sila bilang_ katawan ni Cristo. 
+Ginawa niya ito para ihanda sa paglilingkod ang mga pinabanal, at para lumago at maging matatag sila bilang katawan ni Cristo. 
 
 
 
@@ -469,7 +469,7 @@ Sa ganitong paraan, maaabot nating lahat ang pagkakaisa sa pananampalataya at pa
 
 
 
-At kapag naabot na natin ito, hindi na tayo tulad ng mga bata na pabago-bago ng isip at_ nadadala ng ibaʼt ibang aral ng mga taong nanlilinlang, na ang hangad ay dalhin ang mga tao sa kamalian. 
+At kapag naabot na natin ito, hindi na tayo tulad ng mga bata na pabago-bago ng isip at nadadala ng ibaʼt ibang aral ng mga taong nanlilinlang, na ang hangad ay dalhin ang mga tao sa kamalian. 
 
 
 
@@ -502,7 +502,7 @@ At kapag naabot na natin ito, hindi na tayo tulad ng mga bata na pabago-bago ng 
 
 
 
-Sa halip, mananatili tayo sa katotohanan nang may pag-ibig, upang sa lahat ng bagay ay maging katulad tayo ni Cristo na siyang ulo ng iglesya_. 
+Sa halip, mananatili tayo sa katotohanan nang may pag-ibig, upang sa lahat ng bagay ay maging katulad tayo ni Cristo na siyang ulo ng iglesya. 
 
 
 
@@ -535,7 +535,7 @@ Sa halip, mananatili tayo sa katotohanan nang may pag-ibig, upang sa lahat ng ba
 
 
 
-At sa pamumuno niya, ang lahat ng bahagi ng katawan, na walang iba kundi ang mga mananampalataya,_ ay pinag-uugnay-ugnay, at ang bawat isaʼy nagtutulungan. At sa pagganap ng bawat isa sa kani-kanilang tungkulin nang may pag-ibig, ang buong katawan ay lalago at lalakas.
+At sa pamumuno niya, ang lahat ng bahagi ng katawan, na walang iba kundi ang mga mananampalataya, ay pinag-uugnay-ugnay, at ang bawat isaʼy nagtutulungan. At sa pagganap ng bawat isa sa kani-kanilang tungkulin nang may pag-ibig, ang buong katawan ay lalago at lalakas.
 
 ## Ang Bagong Buhay kay Cristo 
 
@@ -570,7 +570,7 @@ At sa pamumuno niya, ang lahat ng bahagi ng katawan, na walang iba kundi ang mga
 
 
 
-Sa pangalan ng_ Panginoon, iginigiit kong huwag na kayong mamuhay gaya ng mga taong hindi nakakakilala sa Dios. Walang kabuluhan ang iniisip nila, 
+Sa pangalan ng Panginoon, iginigiit kong huwag na kayong mamuhay gaya ng mga taong hindi nakakakilala sa Dios. Walang kabuluhan ang iniisip nila, 
 
 
 
@@ -834,7 +834,7 @@ Ipakita nʼyong binago na kayo ng Dios at binigyan ng buhay na matuwid at banal 
 
 
 
-Kaya huwag na kayong magsisinungaling. Ang bawat isaʼy magsabi ng katotohanan sa kanyang mga kapatid kay Cristo_, dahil kabilang tayong lahat sa iisang katawan. 
+Kaya huwag na kayong magsisinungaling. Ang bawat isaʼy magsabi ng katotohanan sa kanyang mga kapatid kay Cristo, dahil kabilang tayong lahat sa iisang katawan. 
 
 
 

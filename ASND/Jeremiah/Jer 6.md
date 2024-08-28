@@ -139,7 +139,7 @@ Papalibutan ito ng mga pinuno at ng kanilang mga sundalo. Magtatayo sila ng kani
 
 
 
-Sasabihin ng mga pinuno,_ 'Humanda kayo! Pagsapit ng tanghali, sasalakayin natin sila.' Pero pagdating ng hapon, sasabihin ng pinuno_, 'Lumulubog na ang araw at medyo nagdidilim na. 
+Sasabihin ng mga pinuno, 'Humanda kayo! Pagsapit ng tanghali, sasalakayin natin sila.' Pero pagdating ng hapon, sasabihin ng pinuno, 'Lumulubog na ang araw at medyo nagdidilim na. 
 
 
 
@@ -205,7 +205,7 @@ Ngayong gabi na lang tayo sasalakay at wawasakin natin ang mga matitibay na baha
 
 
 
-Ito ang sinasabi ng Panginoong Makapangyarihan, "Pumutol kayo ng mga kahoy na pangwasak sa mga pader ng Jerusalem_, at magtambak kayo ng lupa sa gilid ng pader at doon kayo dumaan. Nararapat nang parusahan ang lungsod na ito dahil laganap na rito ang mga pang-aapi. 
+Ito ang sinasabi ng Panginoong Makapangyarihan, "Pumutol kayo ng mga kahoy na pangwasak sa mga pader ng Jerusalem, at magtambak kayo ng lupa sa gilid ng pader at doon kayo dumaan. Nararapat nang parusahan ang lungsod na ito dahil laganap na rito ang mga pang-aapi. 
 
 
 
@@ -304,7 +304,7 @@ Mga taga-Jerusalem, babala ito sa inyo at kung ayaw pa ninyong makinig, lalayo a
 
 
 
-Sinabi pa ng Panginoong Makapangyarihan, "Ang mga matitirang buhay sa Israel ay ipapaubos ko sa mga kaaway,_ katulad ng huling pamimitas ng mga natitirang ubas. Tinitingnan nilang mabuti ang mga sanga at kukunin ang mga natitirang bunga." 
+Sinabi pa ng Panginoong Makapangyarihan, "Ang mga matitirang buhay sa Israel ay ipapaubos ko sa mga kaaway, katulad ng huling pamimitas ng mga natitirang ubas. Tinitingnan nilang mabuti ang mga sanga at kukunin ang mga natitirang bunga." 
 
 
 
@@ -337,7 +337,7 @@ Sinabi pa ng Panginoong Makapangyarihan, "Ang mga matitirang buhay sa Israel ay 
 
 
 
-Nagtanong ako,_ "Pero Panginoon sino po ang bibigyan ko ng babala? Sino po kaya ang makikinig sa akin? Tinakpan po nila ang kanilang mga tainga para hindi sila makarinig. Kinasusuklaman po nila ang salita ng Panginoon, kaya ayaw nilang makinig. 
+Nagtanong ako, "Pero Panginoon sino po ang bibigyan ko ng babala? Sino po kaya ang makikinig sa akin? Tinakpan po nila ang kanilang mga tainga para hindi sila makarinig. Kinasusuklaman po nila ang salita ng Panginoon, kaya ayaw nilang makinig. 
 
 
 
@@ -370,7 +370,7 @@ Nagtanong ako,_ "Pero Panginoon sino po ang bibigyan ko ng babala? Sino po kaya 
 
 
 
-Matindi rin ang galit na nararamdaman ko tulad ng sa Panginoon at hindi ko mapigilan." Sinabi ng Panginoon,_ "Ipapadama ko ang galit ko pati sa mga batang naglalaro sa lansangan, mga kabataang lalaki na nagkakatipon, mga mag-asawa at pati na sa matatanda. 
+Matindi rin ang galit na nararamdaman ko tulad ng sa Panginoon at hindi ko mapigilan." Sinabi ng Panginoon, "Ipapadama ko ang galit ko pati sa mga batang naglalaro sa lansangan, mga kabataang lalaki na nagkakatipon, mga mag-asawa at pati na sa matatanda. 
 
 
 
@@ -403,7 +403,7 @@ Matindi rin ang galit na nararamdaman ko tulad ng sa Panginoon at hindi ko mapig
 
 
 
-Ibibigay sa iba ang mga bahay nila, pati ang mga bukid at mga asawa nila. Mangyayari ito kapag pinarusahan ko na ang mga nakatira sa lupaing ito. Ako,_ ang Panginoon, ang nagsasabi nito. 
+Ibibigay sa iba ang mga bahay nila, pati ang mga bukid at mga asawa nila. Mangyayari ito kapag pinarusahan ko na ang mga nakatira sa lupaing ito. Ako, ang Panginoon, ang nagsasabi nito. 
 
 
 
@@ -502,7 +502,7 @@ Binabalewala nila ang sugat ng aking mga mamamayan kahit malala na ito. Sinasabi
 
 
 
-Nahihiya ba sila sa ugali nilang kasuklam-suklam? Hindi! Wala na kasi silang kahihiyan! Ni hindi nga namumula ang kanilang mukha sa kahihiyan_. Kaya mapapahamak sila katulad ng iba. Ibabagsak sila sa araw na parusahan ko sila. Ako,_ ang Panginoon, ang nagsasabi nito." 
+Nahihiya ba sila sa ugali nilang kasuklam-suklam? Hindi! Wala na kasi silang kahihiyan! Ni hindi nga namumula ang kanilang mukha sa kahihiyan. Kaya mapapahamak sila katulad ng iba. Ibabagsak sila sa araw na parusahan ko sila. Ako, ang Panginoon, ang nagsasabi nito." 
 
 
 
@@ -568,7 +568,7 @@ Ito pa ang sinabi ng Panginoon, "Tumayo kayo sa mga kanto at magmasid kayo nang 
 
 
 
-Naglagay ako ng mga tagapagbantay at sinabi nila sa inyo, 'Pakinggan ninyo ang tunog ng trumpeta bilang babala_.' Pero sinabi ninyo, 'Hindi namin iyon pakikinggan.' 
+Naglagay ako ng mga tagapagbantay at sinabi nila sa inyo, 'Pakinggan ninyo ang tunog ng trumpeta bilang babala.' Pero sinabi ninyo, 'Hindi namin iyon pakikinggan.' 
 
 
 
@@ -634,7 +634,7 @@ Naglagay ako ng mga tagapagbantay at sinabi nila sa inyo, 'Pakinggan ninyo ang t
 
 
 
-Buong mundo, makinig kayo! Magpapadala ako ng kapahamakan sa mga taong ito para parusahan sila sa kanilang masamang_ mga binabalak. Sapagkat ayaw nilang pakinggan ang mga salita ko at itinakwil nila ang mga kautusan ko. 
+Buong mundo, makinig kayo! Magpapadala ako ng kapahamakan sa mga taong ito para parusahan sila sa kanilang masamang mga binabalak. Sapagkat ayaw nilang pakinggan ang mga salita ko at itinakwil nila ang mga kautusan ko. 
 
 
 
@@ -700,7 +700,7 @@ Walang halaga sa akin ang inihahandog nilang insenso kahit na galing pa ito sa S
 
 
 
-Kaya ako,_ ang Panginoon, ay maglalagay ng katitisuran sa dinadaanan ng mga taong ito. At dahil dito, babagsak ang mga ama at mga batang lalaki, pati ang mga magkaibigan at magkapitbahay." 
+Kaya ako, ang Panginoon, ay maglalagay ng katitisuran sa dinadaanan ng mga taong ito. At dahil dito, babagsak ang mga ama at mga batang lalaki, pati ang mga magkaibigan at magkapitbahay." 
 
 
 
@@ -832,7 +832,7 @@ Nabalitaan namin ang tungkol sa kanila at kami ay nanlupaypay. Takot at hirap an
 
 
 
-Huwag na kayong lalabas para pumunta sa mga_ bukid o lumakad sa mga_ daan, dahil may mga_ kaaway kahit saan na handang pumatay. Nakakatakot sa ating paligid. 
+Huwag na kayong lalabas para pumunta sa mga bukid o lumakad sa mga daan, dahil may mga kaaway kahit saan na handang pumatay. Nakakatakot sa ating paligid. 
 
 
 
@@ -865,7 +865,7 @@ Huwag na kayong lalabas para pumunta sa mga_ bukid o lumakad sa mga_ daan, dahil
 
 
 
-Mga kababayan, magsuot kayo ng damit na panluksa at gumulong kayo sa abo para ipakita ang kalungkutan ninyo_. Umiyak kayo na parang namatay ang kaisa-isa ninyong anak na lalaki. Sapagkat bigla tayong sasalakayin ng kaaway. 
+Mga kababayan, magsuot kayo ng damit na panluksa at gumulong kayo sa abo para ipakita ang kalungkutan ninyo. Umiyak kayo na parang namatay ang kaisa-isa ninyong anak na lalaki. Sapagkat bigla tayong sasalakayin ng kaaway. 
 
 
 
@@ -898,7 +898,7 @@ Mga kababayan, magsuot kayo ng damit na panluksa at gumulong kayo sa abo para ip
 
 
 
-Sinabi sa akin ng Panginoon,_ "Ginawa kitang tulad ng tagasuri ng mga metal, para masuri mo ang pag-uugali ng aking mga mamamayan. 
+Sinabi sa akin ng Panginoon, "Ginawa kitang tulad ng tagasuri ng mga metal, para masuri mo ang pag-uugali ng aking mga mamamayan. 
 
 
 
@@ -964,7 +964,7 @@ Silang lahat ay rebelde at matitigas ang ulo, kasintigas ng tanso at bakal. Nanl
 
 
 
-Pinapainit nang husto ang pugon para dalisayin ang pilak_ mula sa tinggang nakahalo rito_, pero hindi rin lubusang nadalisay ang pilak_. Ganyan din ang mga mamamayan ko, wala ring kabuluhan ang pagdalisay sa kanila, dahil hindi pa rin naaalis nang lubusan ang kasamaan nila. 
+Pinapainit nang husto ang pugon para dalisayin ang pilak mula sa tinggang nakahalo rito, pero hindi rin lubusang nadalisay ang pilak. Ganyan din ang mga mamamayan ko, wala ring kabuluhan ang pagdalisay sa kanila, dahil hindi pa rin naaalis nang lubusan ang kasamaan nila. 
 
 
 

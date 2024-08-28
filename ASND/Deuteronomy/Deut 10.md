@@ -205,7 +205,7 @@ bumaba ako sa bundok at inilagay ito sa kahong ginawa ko, ayon sa iniutos ng Pan
 
 
 
-(Naglakbay ang mga Israelita mula sa balon ng mga taga-Jaakan papunta sa Mosera. Doon namatay si Aaron at doon din inilibing. At si Eleazar na anak niya ang pumalit sa kanya bilang punong_ pari. 
+(Naglakbay ang mga Israelita mula sa balon ng mga taga-Jaakan papunta sa Mosera. Doon namatay si Aaron at doon din inilibing. At si Eleazar na anak niya ang pumalit sa kanya bilang punong pari. 
 
 
 
@@ -271,7 +271,7 @@ Mula roon, pumunta sila sa Gudgoda at sa Jotbata, isang lugar na may mga sapa.
 
 
 
-Nang panahong iyon, pinili ng Panginoon ang lahi ni Levi para sila ang magbuhat ng Kahon ng Kasunduan ng Panginoon, para maglingkod sa kanyang presensya, at para magbasbas sa mga tao_ sa kanyang pangalan. At hanggang ngayoʼy ganito ang gawain nila. 
+Nang panahong iyon, pinili ng Panginoon ang lahi ni Levi para sila ang magbuhat ng Kahon ng Kasunduan ng Panginoon, para maglingkod sa kanyang presensya, at para magbasbas sa mga tao sa kanyang pangalan. At hanggang ngayoʼy ganito ang gawain nila. 
 
 
 
@@ -337,7 +337,7 @@ Ito ang dahilan kung bakit walang bahagi o mana ang mga Levita sa lupain, hindi 
 
 
 
-Sinabi pa ni Moises,_ "Gaya ng ginawa ko noong una, nanatili ako sa bundok sa loob ng 40 araw at 40 gabi, at muli akong pinakinggan ng Panginoon at hindi niya kayo pinatay. 
+Sinabi pa ni Moises, "Gaya ng ginawa ko noong una, nanatili ako sa bundok sa loob ng 40 araw at 40 gabi, at muli akong pinakinggan ng Panginoon at hindi niya kayo pinatay. 
 
 
 
@@ -403,7 +403,7 @@ Sinabi niya sa akin, 'Lumakad ka at pamunuan ang mga Israelita sa pagpasok at sa
 
 
 
-"At ngayon, O mga mamamayan ng_ Israel, ang hinihingi lang ng Panginoon na inyong Dios sa inyo ay igalang ninyo siya, mamuhay ayon sa kanyang pamamaraan, mahalin siya, maglingkod sa kanya nang buong pusoʼt kaluluwa, 
+"At ngayon, O mga mamamayan ng Israel, ang hinihingi lang ng Panginoon na inyong Dios sa inyo ay igalang ninyo siya, mamuhay ayon sa kanyang pamamaraan, mahalin siya, maglingkod sa kanya nang buong pusoʼt kaluluwa, 
 
 
 

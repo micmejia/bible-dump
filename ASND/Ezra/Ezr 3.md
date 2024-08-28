@@ -139,7 +139,7 @@ Kahit takot sila sa mga tao na dati nang nakatira sa lupaing iyon, itinayo nila 
 
 
 
-Ipinagdiwang din nila ang Pista ng Pagtatayo ng mga Kubol ayon sa nakasulat sa Kautusan ni Moises_. At nag-alay sila ng mga handog na sinusunog, na kinakailangang ihandog sa bawat araw ng ganitong pista_. 
+Ipinagdiwang din nila ang Pista ng Pagtatayo ng mga Kubol ayon sa nakasulat sa Kautusan ni Moises. At nag-alay sila ng mga handog na sinusunog, na kinakailangang ihandog sa bawat araw ng ganitong pista. 
 
 
 
@@ -205,7 +205,7 @@ Bukod pa sa mga handog na sinusunog, naghahandog din sila ng mga handog sa bawat
 
 
 
-Kahit hindi pa nasisimulan ang muling pagpapatayo ng templo ng Panginoon, nagsimula na ang mga Israelita sa pag-aalay ng mga handog na sinusunog nang unang araw ng ikapitong buwan nang taon ding iyon_.
+Kahit hindi pa nasisimulan ang muling pagpapatayo ng templo ng Panginoon, nagsimula na ang mga Israelita sa pag-aalay ng mga handog na sinusunog nang unang araw ng ikapitong buwan nang taon ding iyon.
 
 ## Muling Ipinatayo ang Templo 
 

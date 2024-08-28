@@ -436,7 +436,7 @@ Kaya tinapat sila ni Jesus, "Patay na si Lazarus.
 
 
 
-Ngunit nagpapasalamat ako na wala ako roon, dahil ang gagawin kong himala sa kanya ay_ para sa kabutihan ninyo, upang lalo pa kayong sumampalataya sa akin_. Tayo na, puntahan natin siya." 
+Ngunit nagpapasalamat ako na wala ako roon, dahil ang gagawin kong himala sa kanya ay para sa kabutihan ninyo, upang lalo pa kayong sumampalataya sa akin. Tayo na, puntahan natin siya." 
 
 
 
@@ -502,7 +502,7 @@ Si Tomas na tinatawag na Kambal ay nagsabi sa mga kapwa niya tagasunod, "Sumama 
 
 
 
-Nang dumating si Jesus sa Betania_, nalaman niyang apat na araw nang nakalibing si Lazarus. 
+Nang dumating si Jesus sa Betania, nalaman niyang apat na araw nang nakalibing si Lazarus. 
 
 
 
@@ -568,7 +568,7 @@ May tatlong kilometro lang ang layo ng Betania sa Jerusalem,
 
 
 
-kaya maraming Judio galing sa Jerusalem_ ang dumalaw kina Marta at Maria upang makiramay sa pagkamatay ng kanilang kapatid. 
+kaya maraming Judio galing sa Jerusalem ang dumalaw kina Marta at Maria upang makiramay sa pagkamatay ng kanilang kapatid. 
 
 
 
@@ -832,7 +832,7 @@ Ang sinumang nabubuhay at sumasampalataya sa akin ay hindi mamamatay kailanman. 
 
 
 
-Sumagot si Marta, "Opo, Panginoon, sumasampalataya ako na kayo ang Cristo, ang Anak ng Dios, na hinihintay naming_ darating dito sa mundo." ## Umiyak si Jesus 
+Sumagot si Marta, "Opo, Panginoon, sumasampalataya ako na kayo ang Cristo, ang Anak ng Dios, na hinihintay naming darating dito sa mundo." ## Umiyak si Jesus 
 
 
 
@@ -1228,7 +1228,7 @@ Muling nabagbag ang puso ni Jesus. Kaya pumunta siya sa pinaglibingan kay Lazaru
 
 
 
-Pagdating nila roon,_ sinabi ni Jesus, "Alisin ninyo ang bato." Sumagot si Marta na kapatid ng namatay, "Panginoon, tiyak na nangangamoy na ngayon ang bangkay. Apat na araw na siyang nakalibing." 
+Pagdating nila roon, sinabi ni Jesus, "Alisin ninyo ang bato." Sumagot si Marta na kapatid ng namatay, "Panginoon, tiyak na nangangamoy na ngayon ang bangkay. Apat na araw na siyang nakalibing." 
 
 
 
@@ -1393,7 +1393,7 @@ Pagkasabi niya nito, sumigaw siya, "Lazarus, lumabas ka!"
 
 
 
-At lumabas nga ang namatay na si Lazarus_ na nababalot pa ng tela ang mga kamay at paa, at may takip na tela ang mukha. Sinabi ni Jesus sa kanila, "Kalagan nʼyo siya at palakarin." ## Ang Plano ng mga Pinuno Laban kay Jesus 
+At lumabas nga ang namatay na si Lazarus na nababalot pa ng tela ang mga kamay at paa, at may takip na tela ang mukha. Sinabi ni Jesus sa kanila, "Kalagan nʼyo siya at palakarin." ## Ang Plano ng mga Pinuno Laban kay Jesus 
 
 
 
@@ -1492,7 +1492,7 @@ Pero ang iba sa kanila ay pumunta sa mga Pariseo at ibinalita ang ginawa ni Jesu
 
 
 
-Kaya ipinatawag ng mga namamahalang pari at ng mga Pariseo ang lahat ng miyembro ng Korte ng mga Judio. At nang nagkatipon na sila,_ sinabi nila, "Ano ang gagawin natin? Maraming himala ang ginagawa ng taong ito. 
+Kaya ipinatawag ng mga namamahalang pari at ng mga Pariseo ang lahat ng miyembro ng Korte ng mga Judio. At nang nagkatipon na sila, sinabi nila, "Ano ang gagawin natin? Maraming himala ang ginagawa ng taong ito. 
 
 
 
@@ -1525,7 +1525,7 @@ Kaya ipinatawag ng mga namamahalang pari at ng mga Pariseo ang lahat ng miyembro
 
 
 
-Kapag pinabayaan natin siya, maniniwala ang lahat ng tao sa kanya na siya ang hari ng Israel_. Kapag nangyari iyan, lulusubin tayo ng mga hukbong Romano at wawasakin nila ang templo at ang ating bansa." 
+Kapag pinabayaan natin siya, maniniwala ang lahat ng tao sa kanya na siya ang hari ng Israel. Kapag nangyari iyan, lulusubin tayo ng mga hukbong Romano at wawasakin nila ang templo at ang ating bansa." 
 
 
 
@@ -1756,7 +1756,7 @@ Kaya hindi na lantarang nagpakita si Jesus sa mga Judio. Sa halip ay pumunta siy
 
 
 
-Nang malapit na ang pista ng mga Judio na tinatawag na Pista ng Paglampas ng Anghel, maraming tao mula sa ibaʼt ibang bayan ng Israel_ ang pumunta sa Jerusalem upang isagawa ang ritwal na paglilinis bago magpista. 
+Nang malapit na ang pista ng mga Judio na tinatawag na Pista ng Paglampas ng Anghel, maraming tao mula sa ibaʼt ibang bayan ng Israel ang pumunta sa Jerusalem upang isagawa ang ritwal na paglilinis bago magpista. 
 
 
 

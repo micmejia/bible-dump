@@ -28,7 +28,7 @@ They knew me from the first, if they were willing to testify, that according to 
 And now I stand and am judged for the hope of the promise made by God to our fathers. 
 
 ###### 7 
-To this _promise_ our twelve tribes, earnestly serving _God_ night and day, hope to attain. For this hope's sake, King Agrippa, I am accused by the Jews. 
+To this promise our twelve tribes, earnestly serving God night and day, hope to attain. For this hope's sake, King Agrippa, I am accused by the Jews. 
 
 ###### 8 
 Why should it be thought incredible by you that God raises the dead? 
@@ -37,10 +37,10 @@ Why should it be thought incredible by you that God raises the dead?
 "Indeed, I myself thought I must do many things contrary to the name of Jesus of Nazareth. 
 
 ###### 10 
-This I also did in Jerusalem, and many of the saints I shut up in prison, having received authority from the chief priests; and when they were put to death, I cast my vote against _them._ 
+This I also did in Jerusalem, and many of the saints I shut up in prison, having received authority from the chief priests; and when they were put to death, I cast my vote against them. 
 
 ###### 11 
-And I punished them often in every synagogue and compelled _them_ to blaspheme; and being exceedingly enraged against them, I persecuted _them_ even to foreign cities.
+And I punished them often in every synagogue and compelled them to blaspheme; and being exceedingly enraged against them, I persecuted them even to foreign cities.
 
 ## Paul Recounts His Conversion 
 
@@ -51,7 +51,7 @@ And I punished them often in every synagogue and compelled _them_ to blaspheme; 
 at midday, O king, along the road I saw a light from heaven, brighter than the sun, shining around me and those who journeyed with me. 
 
 ###### 14 
-And when we all had fallen to the ground, I heard a voice speaking to me and saying in the Hebrew language, 'Saul, Saul, why are you persecuting Me? _It is_ hard for you to kick against the goads.' 
+And when we all had fallen to the ground, I heard a voice speaking to me and saying in the Hebrew language, 'Saul, Saul, why are you persecuting Me? It is hard for you to kick against the goads.' 
 
 ###### 15 
 So I said, 'Who are You, Lord?' And He said, 'I am Jesus, whom you are persecuting. 
@@ -60,25 +60,25 @@ So I said, 'Who are You, Lord?' And He said, 'I am Jesus, whom you are persecuti
 But rise and stand on your feet; for I have appeared to you for this purpose, to make you a minister and a witness both of the things which you have seen and of the things which I will yet reveal to you. 
 
 ###### 17 
-I will deliver you from the _Jewish_ people, as well as _from_ the Gentiles, to whom I now send you, 
+I will deliver you from the Jewish people, as well as from the Gentiles, to whom I now send you, 
 
 ###### 18 
-to open their eyes, _in order_ to turn _them_ from darkness to light, and _from_ the power of Satan to God, that they may receive forgiveness of sins and an inheritance among those who are sanctified by faith in Me.' ## Paul's Post-Conversion Life 
+to open their eyes, in order to turn them from darkness to light, and from the power of Satan to God, that they may receive forgiveness of sins and an inheritance among those who are sanctified by faith in Me.' ## Paul's Post-Conversion Life 
 
 ###### 19 
 "Therefore, King Agrippa, I was not disobedient to the heavenly vision, 
 
 ###### 20 
-but declared first to those in Damascus and in Jerusalem, and throughout all the region of Judea, and _then_ to the Gentiles, that they should repent, turn to God, and do works befitting repentance. 
+but declared first to those in Damascus and in Jerusalem, and throughout all the region of Judea, and then to the Gentiles, that they should repent, turn to God, and do works befitting repentance. 
 
 ###### 21 
-For these reasons the Jews seized me in the temple and tried to kill _me._ 
+For these reasons the Jews seized me in the temple and tried to kill me. 
 
 ###### 22 
 Therefore, having obtained help from God, to this day I stand, witnessing both to small and great, saying no other things than those which the prophets and Moses said would come-- 
 
 ###### 23 
-that the Christ would suffer, that He would be the first to rise from the dead, and would proclaim light to the _Jewish_ people and to the Gentiles." ## Agrippa Parries Paul's Challenge 
+that the Christ would suffer, that He would be the first to rise from the dead, and would proclaim light to the Jewish people and to the Gentiles." ## Agrippa Parries Paul's Challenge 
 
 ###### 24 
 Now as he thus made his defense, Festus said with a loud voice, "Paul, you are beside yourself! Much learning is driving you mad!" 

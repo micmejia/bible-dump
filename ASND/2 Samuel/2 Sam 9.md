@@ -40,7 +40,7 @@ next: ['2 Sam 10']
 
 
 
-Isang araw,_ nagtanong si David, "May natitira pa ba sa sambahayan ni Saul na maaari kong pakitaan ng kabutihan alang-alang kay Jonatan?" 
+Isang araw, nagtanong si David, "May natitira pa ba sa sambahayan ni Saul na maaari kong pakitaan ng kabutihan alang-alang kay Jonatan?" 
 
 
 
@@ -73,7 +73,7 @@ Isang araw,_ nagtanong si David, "May natitira pa ba sa sambahayan ni Saul na ma
 
 
 
-Ipinatawag ni David ang isang tao na nagngangalang Ziba, isang utusan mula sa sambahayan ni Saul. Pagdating niya,_ tinanong siya ni David, "Ikaw ba si Ziba?" Sumagot siya, "Ako nga po." 
+Ipinatawag ni David ang isang tao na nagngangalang Ziba, isang utusan mula sa sambahayan ni Saul. Pagdating niya, tinanong siya ni David, "Ikaw ba si Ziba?" Sumagot siya, "Ako nga po." 
 
 
 
@@ -205,7 +205,7 @@ Kaya ipinasundo siya ni David mula sa bahay ni Makir.
 
 
 
-Ang pangalan ng anak ni Jonatan ay Mefiboset at apo siya ni Saul. Pagdating niya kay David, yumukod siya bilang paggalang_ dito. Sinabi ni David sa kanya, "Ikaw pala si Mefiboset." Sumagot siya, "Ako nga po." 
+Ang pangalan ng anak ni Jonatan ay Mefiboset at apo siya ni Saul. Pagdating niya kay David, yumukod siya bilang paggalang dito. Sinabi ni David sa kanya, "Ikaw pala si Mefiboset." Sumagot siya, "Ako nga po." 
 
 
 
@@ -304,7 +304,7 @@ Yumukod si Mefiboset at sinabi, "Sino po ako para tratuhin nʼyo ako ng ganito? 
 
 
 
-Pagkatapos, ipinatawag ng hari si Ziba, ang dating_ utusan ni Saul at sinabi, "Ibinigay ko na sa apo ng amo mong si Saul ang lahat ng ari-arian ng kanyang lolo. 
+Pagkatapos, ipinatawag ng hari si Ziba, ang dating utusan ni Saul at sinabi, "Ibinigay ko na sa apo ng amo mong si Saul ang lahat ng ari-arian ng kanyang lolo. 
 
 
 

@@ -27,34 +27,34 @@ Then death shall be chosen rather than life by all the residue of those who rema
 Why has this people slidden back, Jerusalem, in a perpetual backsliding? They hold fast to deceit, They refuse to return. 
 
 ###### 6 
-I listened and heard, _But_ they do not speak aright. No man repented of his wickedness, Saying, 'What have I done?' Everyone turned to his own course, As the horse rushes into the battle. 
+I listened and heard, But they do not speak aright. No man repented of his wickedness, Saying, 'What have I done?' Everyone turned to his own course, As the horse rushes into the battle. 
 
 ###### 7 
 "Even the stork in the heavens Knows her appointed times; And the turtledove, the swift, and the swallow Observe the time of their coming. But My people do not know the judgment of the Lord. 
 
 ###### 8 
-"How can you say, 'We _are_ wise, And the law of the Lord _is_ with us'? Look, the false pen of the scribe certainly works falsehood. 
+"How can you say, 'We are wise, And the law of the Lord is with us'? Look, the false pen of the scribe certainly works falsehood. 
 
 ###### 9 
 The wise men are ashamed, They are dismayed and taken. Behold, they have rejected the word of the Lord; So what wisdom do they have? 
 
 ###### 10 
-Therefore I will give their wives to others, _And_ their fields to those who will inherit _them;_ Because from the least even to the greatest Everyone is given to covetousness; From the prophet even to the priest Everyone deals falsely. 
+Therefore I will give their wives to others, And their fields to those who will inherit them; Because from the least even to the greatest Everyone is given to covetousness; From the prophet even to the priest Everyone deals falsely. 
 
 ###### 11 
-For they have healed the hurt of the daughter of My people slightly, Saying, 'Peace, peace!' When _there is_ no peace. 
+For they have healed the hurt of the daughter of My people slightly, Saying, 'Peace, peace!' When there is no peace. 
 
 ###### 12 
 Were they ashamed when they had committed abomination? No! They were not at all ashamed, Nor did they know how to blush. Therefore they shall fall among those who fall; In the time of their punishment They shall be cast down," says the Lord. 
 
 ###### 13 
-"I will surely consume them," says the Lord. "No grapes _shall be_ on the vine, Nor figs on the fig tree, And the leaf shall fade; And _the things_ I have given them shall pass away from them." ' " 
+"I will surely consume them," says the Lord. "No grapes shall be on the vine, Nor figs on the fig tree, And the leaf shall fade; And the things I have given them shall pass away from them." ' " 
 
 ###### 14 
 "Why do we sit still? Assemble yourselves, And let us enter the fortified cities, And let us be silent there. For the Lord our God has put us to silence And given us water of gall to drink, Because we have sinned against the Lord. 
 
 ###### 15 
-"_We_ looked for peace, but no good _came;_ And for a time of health, and there was trouble! 
+"We looked for peace, but no good came; And for a time of health, and there was trouble! 
 
 ###### 16 
 The snorting of His horses was heard from Dan. The whole land trembled at the sound of the neighing of His strong ones; For they have come and devoured the land and all that is in it, The city and those who dwell in it." 
@@ -65,10 +65,10 @@ The snorting of His horses was heard from Dan. The whole land trembled at the so
 ## The Prophet Mourns for the People 
 
 ###### 18 
-I would comfort myself in sorrow; My heart _is_ faint in me. 
+I would comfort myself in sorrow; My heart is faint in me. 
 
 ###### 19 
-Listen! The voice, The cry of the daughter of my people From a far country: "_Is_ not the Lord in Zion? _Is_ not her King in her?" "Why have they provoked Me to anger With their carved images-- With foreign idols?" 
+Listen! The voice, The cry of the daughter of my people From a far country: "Is not the Lord in Zion? Is not her King in her?" "Why have they provoked Me to anger With their carved images-- With foreign idols?" 
 
 ###### 20 
 "The harvest is past, The summer is ended, And we are not saved!" 
@@ -77,4 +77,4 @@ Listen! The voice, The cry of the daughter of my people From a far country: "_Is
 For the hurt of the daughter of my people I am hurt. I am mourning; Astonishment has taken hold of me. 
 
 ###### 22 
-_Is there_ no balm in Gilead, _Is there_ no physician there? Why then is there no recovery For the health of the daughter of my people?
+Is there no balm in Gilead, Is there no physician there? Why then is there no recovery For the health of the daughter of my people?

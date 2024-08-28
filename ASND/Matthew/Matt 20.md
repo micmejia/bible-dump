@@ -40,7 +40,7 @@ next: ['Matt 21']
 
 
 
-Sinabi pa ni Jesus sa kanila,_ "Ang paghahari ng Dios ay maitutulad sa kwentong ito: Isang araw,_ maagang lumabas ang isang may-ari ng ubasan para humanap ng mga manggagawa. 
+Sinabi pa ni Jesus sa kanila, "Ang paghahari ng Dios ay maitutulad sa kwentong ito: Isang araw, maagang lumabas ang isang may-ari ng ubasan para humanap ng mga manggagawa. 
 
 
 
@@ -73,7 +73,7 @@ Sinabi pa ni Jesus sa kanila,_ "Ang paghahari ng Dios ay maitutulad sa kwentong 
 
 
 
-Nang makakita siya ng mga manggagawa,_ nakipagkasundo siya sa kanila na makakatanggap sila ng karampatang sahod para sa isang araw na trabaho, at pagkatapos ay pinapunta ang mga ito sa ubasan niya. 
+Nang makakita siya ng mga manggagawa, nakipagkasundo siya sa kanila na makakatanggap sila ng karampatang sahod para sa isang araw na trabaho, at pagkatapos ay pinapunta ang mga ito sa ubasan niya. 
 
 
 
@@ -535,7 +535,7 @@ Hindi baʼt may karapatan akong gawin ang gusto ko sa pera ko? O naiinggit lang 
 
 
 
-Pagkatapos, sinabi ni Jesus,_ "Ganyan din ang mangyayari sa huling araw_. May mga hamak ngayon na magiging dakila, at may mga dakila ngayon na magiging hamak." ## Ang Ikatlong Pagpapahayag ni Jesus tungkol sa Kanyang Kamatayan 
+Pagkatapos, sinabi ni Jesus, "Ganyan din ang mangyayari sa huling araw. May mga hamak ngayon na magiging dakila, at may mga dakila ngayon na magiging hamak." ## Ang Ikatlong Pagpapahayag ni Jesus tungkol sa Kanyang Kamatayan 
 
 
 
@@ -601,7 +601,7 @@ Habang naglalakad sina Jesus papuntang Jerusalem, inihiwalay niya ang 12 tagasun
 
 
 
-"Pupunta na tayo sa Jerusalem, at ako na_ Anak ng Tao ay ipagkakanulo sa mga namamahalang pari at mga tagapagturo ng Kautusan. Hahatulan nila ako ng kamatayan 
+"Pupunta na tayo sa Jerusalem, at ako na Anak ng Tao ay ipagkakanulo sa mga namamahalang pari at mga tagapagturo ng Kautusan. Hahatulan nila ako ng kamatayan 
 
 
 
@@ -931,7 +931,7 @@ At ang sinuman sa inyo na gustong maging pinuno ay dapat maging alipin ninyo.
 
 
 
-Maging ako na_ Anak ng Tao ay naparito sa mundo_, hindi upang paglingkuran kundi upang maglingkod at magbigay ng aking buhay para maligtas ang maraming tao." ## Pinagaling ni Jesus ang Dalawang Bulag 
+Maging ako na Anak ng Tao ay naparito sa mundo, hindi upang paglingkuran kundi upang maglingkod at magbigay ng aking buhay para maligtas ang maraming tao." ## Pinagaling ni Jesus ang Dalawang Bulag 
 
 
 

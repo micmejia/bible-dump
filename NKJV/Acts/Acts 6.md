@@ -10,13 +10,13 @@ next: ['Acts 7']
 
 
 ###### 1 
-Now in those days, when _the number of_ the disciples was multiplying, there arose a complaint against the Hebrews by the Hellenists, because their widows were neglected in the daily distribution. 
+Now in those days, when the number of the disciples was multiplying, there arose a complaint against the Hebrews by the Hellenists, because their widows were neglected in the daily distribution. 
 
 ###### 2 
 Then the twelve summoned the multitude of the disciples and said, "It is not desirable that we should leave the word of God and serve tables. 
 
 ###### 3 
-Therefore, brethren, seek out from among you seven men of _good_ reputation, full of the Holy Spirit and wisdom, whom we may appoint over this business; 
+Therefore, brethren, seek out from among you seven men of good reputation, full of the Holy Spirit and wisdom, whom we may appoint over this business; 
 
 ###### 4 
 but we will give ourselves continually to prayer and to the ministry of the word." 
@@ -45,7 +45,7 @@ And they were not able to resist the wisdom and the Spirit by which he spoke.
 Then they secretly induced men to say, "We have heard him speak blasphemous words against Moses and God." 
 
 ###### 12 
-And they stirred up the people, the elders, and the scribes; and they came upon _him,_ seized him, and brought _him_ to the council. 
+And they stirred up the people, the elders, and the scribes; and they came upon him, seized him, and brought him to the council. 
 
 ###### 13 
 They also set up false witnesses who said, "This man does not cease to speak blasphemous words against this holy place and the law; 

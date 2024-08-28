@@ -370,7 +370,7 @@ Ang mangmang ay imposibleng maging marunong gaya ng asnong-gubat na imposibleng 
 
 
 
-"Job,_ kung magsisisi ka at lalapit sa Dios, 
+"Job, kung magsisisi ka at lalapit sa Dios, 
 
 
 
@@ -535,7 +535,7 @@ At ang buhay moʼy magiging mas maliwanag pa kaysa sa sikat ng araw sa katanghal
 
 
 
-Mapapanatag ang buhay mo dahil may bago kang pag-asa. Iingatan ka ng Dios_ at makapagpapahinga ka ng walang kinatatakutan. 
+Mapapanatag ang buhay mo dahil may bago kang pag-asa. Iingatan ka ng Dios at makapagpapahinga ka ng walang kinatatakutan. 
 
 
 

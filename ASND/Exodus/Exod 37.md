@@ -40,7 +40,7 @@ next: ['Exod 38']
 
 
 
-Ginawa nina Bezalel ang Kahon ng Kasunduan_. Kahoy ng akasya ang ginamit nila. May 45 pulgada ang haba ng Kahon, 27 pulgada ang lapad at taas nito. 
+Ginawa nina Bezalel ang Kahon ng Kasunduan. Kahoy ng akasya ang ginamit nila. May 45 pulgada ang haba ng Kahon, 27 pulgada ang lapad at taas nito. 
 
 
 
@@ -774,7 +774,7 @@ Ang nagamit sa paggawa ng lalagyan ng ilaw at ng lahat ng kagamitan nito ay 35 k
 
 
 
-Gumawa rin sila ng altar na akasya na pagsusunugan ng insenso. Kwadrado ito, 18 pulgada ang haba, 18 pulgada ang lapad, at mga tatlong talampakan ang taas. May parang_ sungay ito sa mga sulok na kasama nang ginawa nang gawin ang altar. 
+Gumawa rin sila ng altar na akasya na pagsusunugan ng insenso. Kwadrado ito, 18 pulgada ang haba, 18 pulgada ang lapad, at mga tatlong talampakan ang taas. May parang sungay ito sa mga sulok na kasama nang ginawa nang gawin ang altar. 
 
 
 
@@ -807,7 +807,7 @@ Gumawa rin sila ng altar na akasya na pagsusunugan ng insenso. Kwadrado ito, 18 
 
 
 
-Nilagyan nila ng purong ginto ang ibabaw nito, ang apat na gilid at ang parang_ sungay sa mga sulok at hinulmang ginto sa palibot. 
+Nilagyan nila ng purong ginto ang ibabaw nito, ang apat na gilid at ang parang sungay sa mga sulok at hinulmang ginto sa palibot. 
 
 
 

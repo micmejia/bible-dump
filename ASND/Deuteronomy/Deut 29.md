@@ -601,7 +601,7 @@ Ang sinumang nakarinig ng mga babala ng sumpang ito ay huwag mag-iisip na hindi 
 
 
 
-Hindi siya patatawarin ng Panginoon. Maglalagablab ang galit ng Panginoon sa kanya tulad ng apoy_, at mangyayari sa kanya ang lahat ng sumpa na nakasulat sa aklat na ito, at buburahin ng Panginoon ang kanyang pangalan sa mundo. 
+Hindi siya patatawarin ng Panginoon. Maglalagablab ang galit ng Panginoon sa kanya tulad ng apoy, at mangyayari sa kanya ang lahat ng sumpa na nakasulat sa aklat na ito, at buburahin ng Panginoon ang kanyang pangalan sa mundo. 
 
 
 

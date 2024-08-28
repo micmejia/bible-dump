@@ -1261,7 +1261,7 @@ Kumuha si Jacob ng mga sanga ng almendro, abilyano, at kastanyo, at binalat-bala
 
 
 
-Pero iba ang ginawa ni Jacob sa mga tupa: Habang nagkakastahan ang mga hayop na ito,_ pinapaharap niya sila sa mga batik-batik na kambing niya at sa itim na mga kambing ni Laban. Kaya nakaipon din si Jacob ng sarili niyang mga hayop at hindi niya ito isinama sa mga hayop ni Laban. 
+Pero iba ang ginawa ni Jacob sa mga tupa: Habang nagkakastahan ang mga hayop na ito, pinapaharap niya sila sa mga batik-batik na kambing niya at sa itim na mga kambing ni Laban. Kaya nakaipon din si Jacob ng sarili niyang mga hayop at hindi niya ito isinama sa mga hayop ni Laban. 
 
 
 

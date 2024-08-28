@@ -73,7 +73,7 @@ Patuloy pa rin ang pagbabanta ni Saulo sa buhay ng mga tagasunod ng Panginoon. P
 
 
 
-at humingi ng mga sulat na ipapakita niya_ sa mga sambahan ng mga Judio sa Damascus bilang katibayan na binibigyan siya ng_ kapangyarihang hulihin at dalhin sa Jerusalem ang sinumang makikita niya roon na sumusunod sa pamamaraan ni Jesus_, lalaki man ito o babae. 
+at humingi ng mga sulat na ipapakita niya sa mga sambahan ng mga Judio sa Damascus bilang katibayan na binibigyan siya ng kapangyarihang hulihin at dalhin sa Jerusalem ang sinumang makikita niya roon na sumusunod sa pamamaraan ni Jesus, lalaki man ito o babae. 
 
 
 
@@ -337,7 +337,7 @@ Tatlong araw siyang hindi nakakita, at hindi siya kumain o uminom.
 
 
 
-Doon sa Damascus ay may isang tagasunod ni Jesus_ na ang pangalan ay Ananias. Nagpakita sa kanya ang Panginoon sa isang pangitain at sinabi, "Ananias!" Sumagot siya, "Panginoon, bakit po?" 
+Doon sa Damascus ay may isang tagasunod ni Jesus na ang pangalan ay Ananias. Nagpakita sa kanya ang Panginoon sa isang pangitain at sinabi, "Ananias!" Sumagot siya, "Panginoon, bakit po?" 
 
 
 
@@ -568,7 +568,7 @@ At ipapakita ko rin sa kanya ang mga paghihirap na dapat niyang danasin para sa 
 
 
 
-Kaya pinuntahan ni Ananias si Saulo sa bahay na tinutuluyan nito_, at pagpasok niya roon ay_ ipinatong niya ang kanyang kamay kay Saulo. At sinabi niya, "Saulo, kapatid ko sa Panginoon_, pinapunta ako rito ng Panginoong Jesus. Siya ang nagpakita sa iyo sa daan nang papunta ka rito. Inutusan niya ako rito para muli kang makakita at mapuspos ng Banal na Espiritu." 
+Kaya pinuntahan ni Ananias si Saulo sa bahay na tinutuluyan nito, at pagpasok niya roon ay ipinatong niya ang kanyang kamay kay Saulo. At sinabi niya, "Saulo, kapatid ko sa Panginoon, pinapunta ako rito ng Panginoong Jesus. Siya ang nagpakita sa iyo sa daan nang papunta ka rito. Inutusan niya ako rito para muli kang makakita at mapuspos ng Banal na Espiritu." 
 
 
 
@@ -636,7 +636,7 @@ Biglang may nahulog na parang mga kaliskis ng isda mula sa mga mata ni Saulo, at
 
 Kumain siya at muling lumakas.
 
-## Nangaral si Saulo sa Damascus Nanatili si Saulo ng ilang araw sa Damascus kasama ng mga tagasunod ni Jesus_. 
+## Nangaral si Saulo sa Damascus Nanatili si Saulo ng ilang araw sa Damascus kasama ng mga tagasunod ni Jesus. 
 
 
 
@@ -869,7 +869,7 @@ Kaya isang gabi, isinakay siya ng mga tagasunod niya sa malaking kaing at ibinab
 
 
 
-Pagdating ni Saulo sa Jerusalem, gusto niya sanang makisalamuha sa mga tagasunod ni Jesus_, pero takot sila sa kanya. Hindi sila naniniwala na siyaʼy tagasunod na rin ni Jesus_. 
+Pagdating ni Saulo sa Jerusalem, gusto niya sanang makisalamuha sa mga tagasunod ni Jesus, pero takot sila sa kanya. Hindi sila naniniwala na siyaʼy tagasunod na rin ni Jesus. 
 
 
 
@@ -902,7 +902,7 @@ Pagdating ni Saulo sa Jerusalem, gusto niya sanang makisalamuha sa mga tagasunod
 
 
 
-Pero isinama siya ni Bernabe at dinala sa mga apostol. Ikinuwento ni Bernabe sa kanila kung paano nakita ni Saulo ang Panginoong Jesus_ sa daan at kung ano ang sinabi nito sa kanya. At sinabi rin niya ang katapangan ni Saulo sa pangangaral tungkol kay Jesus doon sa Damascus. 
+Pero isinama siya ni Bernabe at dinala sa mga apostol. Ikinuwento ni Bernabe sa kanila kung paano nakita ni Saulo ang Panginoong Jesus sa daan at kung ano ang sinabi nito sa kanya. At sinabi rin niya ang katapangan ni Saulo sa pangangaral tungkol kay Jesus doon sa Damascus. 
 
 
 
@@ -935,7 +935,7 @@ Pero isinama siya ni Bernabe at dinala sa mga apostol. Ikinuwento ni Bernabe sa 
 
 
 
-Kaya mula noon, kasama na nila si Saulo, at buong tapang niyang ipinangaral ang tungkol sa Panginoon saan man_ sa Jerusalem. 
+Kaya mula noon, kasama na nila si Saulo, at buong tapang niyang ipinangaral ang tungkol sa Panginoon saan man sa Jerusalem. 
 
 
 
@@ -968,7 +968,7 @@ Kaya mula noon, kasama na nila si Saulo, at buong tapang niyang ipinangaral ang 
 
 
 
-Nakipag-usap din siya at nakipagdebate sa mga Judiong nagsasalita ng Griego, kaya nagalit sila at_ nagplanong patayin siya. 
+Nakipag-usap din siya at nakipagdebate sa mga Judiong nagsasalita ng Griego, kaya nagalit sila at nagplanong patayin siya. 
 
 
 
@@ -1069,7 +1069,7 @@ Pagkatapos noon, naging matiwasay ang pamumuhay ng iglesya sa buong Judea, sa Ga
 
 
 
-Maraming lugar ang pinuntahan ni Pedro para dalawin ang mga pinabanal ng Dios_. Pumunta rin siya sa Lyda. 
+Maraming lugar ang pinuntahan ni Pedro para dalawin ang mga pinabanal ng Dios. Pumunta rin siya sa Lyda. 
 
 
 
@@ -1201,7 +1201,7 @@ Nakita ng lahat ng naninirahan sa Lyda at sa Sharon na gumaling na si Eneas, at 
 
 
 
-Sa lungsod ng_ Jopa, may isang babaeng mananampalataya na ang pangalan ay Tabita. (Sa Griego, ang kanyang pangalan ay Dorcas) Marami siyang nagawang mabuti lalung-lalo na sa mga dukha. 
+Sa lungsod ng Jopa, may isang babaeng mananampalataya na ang pangalan ay Tabita. (Sa Griego, ang kanyang pangalan ay Dorcas) Marami siyang nagawang mabuti lalung-lalo na sa mga dukha. 
 
 
 
@@ -1267,7 +1267,7 @@ Nagkataon noon na nagkasakit ang babaeng ito at namatay. Nilinis nila ang kanyan
 
 
 
-Ang Jopa ay malapit lang sa Lyda. Kaya nang mabalitaan ng mga tagasunod ni Jesus_ na si Pedro ay naroon sa Lyda, inutusan nila ang dalawang tao na pakiusapan si Pedro na pumunta agad sa Jopa. 
+Ang Jopa ay malapit lang sa Lyda. Kaya nang mabalitaan ng mga tagasunod ni Jesus na si Pedro ay naroon sa Lyda, inutusan nila ang dalawang tao na pakiusapan si Pedro na pumunta agad sa Jopa. 
 
 
 
@@ -1300,7 +1300,7 @@ Ang Jopa ay malapit lang sa Lyda. Kaya nang mabalitaan ng mga tagasunod ni Jesus
 
 
 
-Pagdating ng dalawa roon kay Pedro,_ agad namang sumama si Pedro sa kanila. Pagdating nila sa Jopa, dinala siya sa kwarto na pinagbuburulan ng patay. May mga biyuda roon na umiiyak. Ipinakita nila kay Pedro ang mga damit na tinahi ni Dorcas noong nabubuhay pa siya. 
+Pagdating ng dalawa roon kay Pedro, agad namang sumama si Pedro sa kanila. Pagdating nila sa Jopa, dinala siya sa kwarto na pinagbuburulan ng patay. May mga biyuda roon na umiiyak. Ipinakita nila kay Pedro ang mga damit na tinahi ni Dorcas noong nabubuhay pa siya. 
 
 
 
@@ -1399,7 +1399,7 @@ Hinawakan siya ni Pedro sa kamay at tinulungang tumayo. Pagkatapos, tinawag ni P
 
 
 
-Ang pangyayaring ito ay napabalita sa buong Jopa, at marami ang sumampalataya sa Panginoong Jesus_. 
+Ang pangyayaring ito ay napabalita sa buong Jopa, at marami ang sumampalataya sa Panginoong Jesus. 
 
 
 

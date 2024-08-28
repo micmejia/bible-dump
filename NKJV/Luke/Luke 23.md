@@ -13,10 +13,10 @@ next: ['Luke 24']
 Then the whole multitude of them arose and led Him to Pilate. 
 
 ###### 2 
-And they began to accuse Him, saying, "We found this _fellow_ perverting the nation, and forbidding to pay taxes to Caesar, saying that He Himself is Christ, a King." 
+And they began to accuse Him, saying, "We found this fellow perverting the nation, and forbidding to pay taxes to Caesar, saying that He Himself is Christ, a King." 
 
 ###### 3 
-Then Pilate asked Him, saying, "Are You the King of the Jews?" He answered him and said, "_It is as_ you say." 
+Then Pilate asked Him, saying, "Are You the King of the Jews?" He answered him and said, "It is as you say." 
 
 ###### 4 
 So Pilate said to the chief priests and the crowd, "I find no fault in this Man." 
@@ -31,7 +31,7 @@ When Pilate heard of Galilee, he asked if the Man were a Galilean.
 And as soon as he knew that He belonged to Herod's jurisdiction, he sent Him to Herod, who was also in Jerusalem at that time. 
 
 ###### 8 
-Now when Herod saw Jesus, he was exceedingly glad; for he had desired for a long _time_ to see Him, because he had heard many things about Him, and he hoped to see some miracle done by Him. 
+Now when Herod saw Jesus, he was exceedingly glad; for he had desired for a long time to see Him, because he had heard many things about Him, and he hoped to see some miracle done by Him. 
 
 ###### 9 
 Then he questioned Him with many words, but He answered him nothing. 
@@ -40,7 +40,7 @@ Then he questioned Him with many words, but He answered him nothing.
 And the chief priests and scribes stood and vehemently accused Him. 
 
 ###### 11 
-Then Herod, with his men of war, treated Him with contempt and mocked _Him,_ arrayed Him in a gorgeous robe, and sent Him back to Pilate. 
+Then Herod, with his men of war, treated Him with contempt and mocked Him, arrayed Him in a gorgeous robe, and sent Him back to Pilate. 
 
 ###### 12 
 That very day Pilate and Herod became friends with each other, for previously they had been at enmity with each other.
@@ -51,19 +51,19 @@ That very day Pilate and Herod became friends with each other, for previously th
 Then Pilate, when he had called together the chief priests, the rulers, and the people, 
 
 ###### 14 
-said to them, "You have brought this Man to me, as one who misleads the people. And indeed, having examined _Him_ in your presence, I have found no fault in this Man concerning those things of which you accuse Him; 
+said to them, "You have brought this Man to me, as one who misleads the people. And indeed, having examined Him in your presence, I have found no fault in this Man concerning those things of which you accuse Him; 
 
 ###### 15 
 no, neither did Herod, for I sent you back to him; and indeed nothing deserving of death has been done by Him. 
 
 ###### 16 
-I will therefore chastise Him and release _Him_" 
+I will therefore chastise Him and release Him" 
 
 ###### 17 
 (for it was necessary for him to release one to them at the feast). 
 
 ###### 18 
-And they all cried out at once, saying, "Away with this _Man,_ and release to us Barabbas"-- 
+And they all cried out at once, saying, "Away with this Man, and release to us Barabbas"-- 
 
 ###### 19 
 who had been thrown into prison for a certain rebellion made in the city, and for murder. 
@@ -72,10 +72,10 @@ who had been thrown into prison for a certain rebellion made in the city, and fo
 Pilate, therefore, wishing to release Jesus, again called out to them. 
 
 ###### 21 
-But they shouted, saying, "Crucify _Him,_ crucify Him!" 
+But they shouted, saying, "Crucify Him, crucify Him!" 
 
 ###### 22 
-Then he said to them the third time, "Why, what evil has He done? I have found no reason for death in Him. I will therefore chastise Him and let _Him_ go." 
+Then he said to them the third time, "Why, what evil has He done? I have found no reason for death in Him. I will therefore chastise Him and let Him go." 
 
 ###### 23 
 But they were insistent, demanding with loud voices that He be crucified. And the voices of these men and of the chief priests prevailed. 
@@ -89,7 +89,7 @@ And he released to them the one they requested, who for rebellion and murder had
 ## The King on a Cross 
 
 ###### 26 
-Now as they led Him away, they laid hold of a certain man, Simon a Cyrenian, who was coming from the country, and on him they laid the cross that he might bear _it_ after Jesus. 
+Now as they led Him away, they laid hold of a certain man, Simon a Cyrenian, who was coming from the country, and on him they laid the cross that he might bear it after Jesus. 
 
 ###### 27 
 And a great multitude of the people followed Him, and women who also mourned and lamented Him. 
@@ -98,7 +98,7 @@ And a great multitude of the people followed Him, and women who also mourned and
 But Jesus, turning to them, said, "Daughters of Jerusalem, do not weep for Me, but weep for yourselves and for your children. 
 
 ###### 29 
-For indeed the days are coming in which they will say, 'Blessed _are_ the barren, wombs that never bore, and breasts which never nursed!' 
+For indeed the days are coming in which they will say, 'Blessed are the barren, wombs that never bore, and breasts which never nursed!' 
 
 ###### 30 
 Then they will begin 'to say to the mountains, "Fall on us!" and to the hills, "Cover us!" ' 
@@ -163,16 +163,16 @@ But all His acquaintances, and the women who followed Him from Galilee, stood at
 ## Jesus Buried in Joseph's Tomb 
 
 ###### 50 
-Now behold, _there was_ a man named Joseph, a council member, a good and just man. 
+Now behold, there was a man named Joseph, a council member, a good and just man. 
 
 ###### 51 
-He had not consented to their decision and deed. _He was_ from Arimathea, a city of the Jews, who himself was also waiting for the kingdom of God. 
+He had not consented to their decision and deed. He was from Arimathea, a city of the Jews, who himself was also waiting for the kingdom of God. 
 
 ###### 52 
 This man went to Pilate and asked for the body of Jesus. 
 
 ###### 53 
-Then he took it down, wrapped it in linen, and laid it in a tomb _that was_ hewn out of the rock, where no one had ever lain before. 
+Then he took it down, wrapped it in linen, and laid it in a tomb that was hewn out of the rock, where no one had ever lain before. 
 
 ###### 54 
 That day was the Preparation, and the Sabbath drew near. 

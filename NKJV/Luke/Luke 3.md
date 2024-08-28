@@ -31,7 +31,7 @@ And all flesh shall see the salvation of God.' " ## John Preaches to the People
 Then he said to the multitudes that came out to be baptized by him, "Brood of vipers! Who warned you to flee from the wrath to come? 
 
 ###### 8 
-Therefore bear fruits worthy of repentance, and do not begin to say to yourselves, 'We have Abraham as _our_ father.' For I say to you that God is able to raise up children to Abraham from these stones. 
+Therefore bear fruits worthy of repentance, and do not begin to say to yourselves, 'We have Abraham as our father.' For I say to you that God is able to raise up children to Abraham from these stones. 
 
 ###### 9 
 And even now the ax is laid to the root of the trees. Therefore every tree which does not bear good fruit is cut down and thrown into the fire." 
@@ -52,13 +52,13 @@ And he said to them, "Collect no more than what is appointed for you."
 Likewise the soldiers asked him, saying, "And what shall we do?" So he said to them, "Do not intimidate anyone or accuse falsely, and be content with your wages." 
 
 ###### 15 
-Now as the people were in expectation, and all reasoned in their hearts about John, whether he was the Christ _or_ not, 
+Now as the people were in expectation, and all reasoned in their hearts about John, whether he was the Christ or not, 
 
 ###### 16 
 John answered, saying to all, "I indeed baptize you with water; but One mightier than I is coming, whose sandal strap I am not worthy to loose. He will baptize you with the Holy Spirit and fire. 
 
 ###### 17 
-His winnowing fan _is_ in His hand, and He will thoroughly clean out His threshing floor, and gather the wheat into His barn; but the chaff He will burn with unquenchable fire." 
+His winnowing fan is in His hand, and He will thoroughly clean out His threshing floor, and gather the wheat into His barn; but the chaff He will burn with unquenchable fire." 
 
 ###### 18 
 And with many other exhortations he preached to the people. 
@@ -78,49 +78,49 @@ When all the people were baptized, it came to pass that Jesus also was baptized;
 And the Holy Spirit descended in bodily form like a dove upon Him, and a voice came from heaven which said, "You are My beloved Son; in You I am well pleased." ## The Genealogy of Jesus Christ 
 
 ###### 23 
-Now Jesus Himself began _His ministry at_ about thirty years of age, being (as was supposed) _the_ son of Joseph, _the son_ of Heli, 
+Now Jesus Himself began His ministry at about thirty years of age, being (as was supposed) the son of Joseph, the son of Heli, 
 
 ###### 24 
-_the son_ of Matthat, _the son_ of Levi, _the son_ of Melchi, _the son_ of Janna, _the son_ of Joseph, 
+the son of Matthat, the son of Levi, the son of Melchi, the son of Janna, the son of Joseph, 
 
 ###### 25 
-_the son_ of Mattathiah, _the son_ of Amos, _the son_ of Nahum, _the son_ of Esli, _the son_ of Naggai, 
+the son of Mattathiah, the son of Amos, the son of Nahum, the son of Esli, the son of Naggai, 
 
 ###### 26 
-_the son_ of Maath, _the son_ of Mattathiah, _the son_ of Semei, _the son_ of Joseph, _the son_ of Judah, 
+the son of Maath, the son of Mattathiah, the son of Semei, the son of Joseph, the son of Judah, 
 
 ###### 27 
-_the son_ of Joannas, _the son_ of Rhesa, _the son_ of Zerubbabel, _the son_ of Shealtiel, _the son_ of Neri, 
+the son of Joannas, the son of Rhesa, the son of Zerubbabel, the son of Shealtiel, the son of Neri, 
 
 ###### 28 
-_the son_ of Melchi, _the son_ of Addi, _the son_ of Cosam, _the son_ of Elmodam, _the son_ of Er, 
+the son of Melchi, the son of Addi, the son of Cosam, the son of Elmodam, the son of Er, 
 
 ###### 29 
-_the son_ of Jose, _the son_ of Eliezer, _the son_ of Jorim, _the son_ of Matthat, _the son_ of Levi, 
+the son of Jose, the son of Eliezer, the son of Jorim, the son of Matthat, the son of Levi, 
 
 ###### 30 
-_the son_ of Simeon, _the son_ of Judah, _the son_ of Joseph, _the son_ of Jonan, _the son_ of Eliakim, 
+the son of Simeon, the son of Judah, the son of Joseph, the son of Jonan, the son of Eliakim, 
 
 ###### 31 
-_the son_ of Melea, _the son_ of Menan, _the son_ of Mattathah, _the son_ of Nathan, _the son_ of David, 
+the son of Melea, the son of Menan, the son of Mattathah, the son of Nathan, the son of David, 
 
 ###### 32 
-_the son_ of Jesse, _the son_ of Obed, _the son_ of Boaz, _the son_ of Salmon, _the son_ of Nahshon, 
+the son of Jesse, the son of Obed, the son of Boaz, the son of Salmon, the son of Nahshon, 
 
 ###### 33 
-_the son_ of Amminadab, _the son_ of Ram, _the son_ of Hezron, _the son_ of Perez, _the son_ of Judah, 
+the son of Amminadab, the son of Ram, the son of Hezron, the son of Perez, the son of Judah, 
 
 ###### 34 
-_the son_ of Jacob, _the son_ of Isaac, _the son_ of Abraham, _the son_ of Terah, _the son_ of Nahor, 
+the son of Jacob, the son of Isaac, the son of Abraham, the son of Terah, the son of Nahor, 
 
 ###### 35 
-_the son_ of Serug, _the son_ of Reu, _the son_ of Peleg, _the son_ of Eber, _the son_ of Shelah, 
+the son of Serug, the son of Reu, the son of Peleg, the son of Eber, the son of Shelah, 
 
 ###### 36 
-_the son_ of Cainan, _the son_ of Arphaxad, _the son_ of Shem, _the son_ of Noah, _the son_ of Lamech, 
+the son of Cainan, the son of Arphaxad, the son of Shem, the son of Noah, the son of Lamech, 
 
 ###### 37 
-_the son_ of Methuselah, _the son_ of Enoch, _the son_ of Jared, _the son_ of Mahalalel, _the son_ of Cainan, 
+the son of Methuselah, the son of Enoch, the son of Jared, the son of Mahalalel, the son of Cainan, 
 
 ###### 38 
-_the son_ of Enosh, _the son_ of Seth, _the son_ of Adam, _the son_ of God.
+the son of Enosh, the son of Seth, the son of Adam, the son of God.

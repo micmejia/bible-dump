@@ -21,7 +21,7 @@ Grace to you and peace from God the Father and our Lord Jesus Christ,
 who gave Himself for our sins, that He might deliver us from this present evil age, according to the will of our God and Father, 
 
 ###### 5 
-to whom _be_ glory forever and ever. Amen.
+to whom be glory forever and ever. Amen.
 
 ## Only One Gospel 
 
@@ -46,22 +46,22 @@ For do I now persuade men, or God? Or do I seek to please men? For if I still pl
 But I make known to you, brethren, that the gospel which was preached by me is not according to man. 
 
 ###### 12 
-For I neither received it from man, nor was I taught _it,_ but _it came_ through the revelation of Jesus Christ. 
+For I neither received it from man, nor was I taught it, but it came through the revelation of Jesus Christ. 
 
 ###### 13 
-For you have heard of my former conduct in Judaism, how I persecuted the church of God beyond measure and _tried to_ destroy it. 
+For you have heard of my former conduct in Judaism, how I persecuted the church of God beyond measure and tried to destroy it. 
 
 ###### 14 
 And I advanced in Judaism beyond many of my contemporaries in my own nation, being more exceedingly zealous for the traditions of my fathers. 
 
 ###### 15 
-But when it pleased God, who separated me from my mother's womb and called _me_ through His grace, 
+But when it pleased God, who separated me from my mother's womb and called me through His grace, 
 
 ###### 16 
 to reveal His Son in me, that I might preach Him among the Gentiles, I did not immediately confer with flesh and blood, 
 
 ###### 17 
-nor did I go up to Jerusalem to those _who were_ apostles before me; but I went to Arabia, and returned again to Damascus.
+nor did I go up to Jerusalem to those who were apostles before me; but I went to Arabia, and returned again to Damascus.
 
 ## Contacts at Jerusalem 
 
@@ -72,16 +72,16 @@ Then after three years I went up to Jerusalem to see Peter, and remained with hi
 But I saw none of the other apostles except James, the Lord's brother. 
 
 ###### 20 
-(Now _concerning_ the things which I write to you, indeed, before God, I do not lie.) 
+(Now concerning the things which I write to you, indeed, before God, I do not lie.) 
 
 ###### 21 
 Afterward I went into the regions of Syria and Cilicia. 
 
 ###### 22 
-And I was unknown by face to the churches of Judea which _were_ in Christ. 
+And I was unknown by face to the churches of Judea which were in Christ. 
 
 ###### 23 
-But they were hearing only, "He who formerly persecuted us now preaches the faith which he once _tried to_ destroy." 
+But they were hearing only, "He who formerly persecuted us now preaches the faith which he once tried to destroy." 
 
 ###### 24 
 And they glorified God in me.

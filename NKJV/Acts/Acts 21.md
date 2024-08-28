@@ -10,7 +10,7 @@ next: ['Acts 22']
 
 
 ###### 1 
-Now it came to pass, that when we had departed from them and set sail, running a straight course we came to Cos, the following _day_ to Rhodes, and from there to Patara. 
+Now it came to pass, that when we had departed from them and set sail, running a straight course we came to Cos, the following day to Rhodes, and from there to Patara. 
 
 ###### 2 
 And finding a ship sailing over to Phoenicia, we went aboard and set sail. 
@@ -22,16 +22,16 @@ When we had sighted Cyprus, we passed it on the left, sailed to Syria, and lande
 And finding disciples, we stayed there seven days. They told Paul through the Spirit not to go up to Jerusalem. 
 
 ###### 5 
-When we had come to the end of those days, we departed and went on our way; and they all accompanied us, with wives and children, till _we were_ out of the city. And we knelt down on the shore and prayed. 
+When we had come to the end of those days, we departed and went on our way; and they all accompanied us, with wives and children, till we were out of the city. And we knelt down on the shore and prayed. 
 
 ###### 6 
 When we had taken our leave of one another, we boarded the ship, and they returned home. 
 
 ###### 7 
-And when we had finished _our_ voyage from Tyre, we came to Ptolemais, greeted the brethren, and stayed with them one day. 
+And when we had finished our voyage from Tyre, we came to Ptolemais, greeted the brethren, and stayed with them one day. 
 
 ###### 8 
-On the next _day_ we who were Paul's companions departed and came to Caesarea, and entered the house of Philip the evangelist, who was _one_ of the seven, and stayed with him. 
+On the next day we who were Paul's companions departed and came to Caesarea, and entered the house of Philip the evangelist, who was one of the seven, and stayed with him. 
 
 ###### 9 
 Now this man had four virgin daughters who prophesied. 
@@ -40,7 +40,7 @@ Now this man had four virgin daughters who prophesied.
 And as we stayed many days, a certain prophet named Agabus came down from Judea. 
 
 ###### 11 
-When he had come to us, he took Paul's belt, bound his _own_ hands and feet, and said, "Thus says the Holy Spirit, 'So shall the Jews at Jerusalem bind the man who owns this belt, and deliver _him_ into the hands of the Gentiles.' " 
+When he had come to us, he took Paul's belt, bound his own hands and feet, and said, "Thus says the Holy Spirit, 'So shall the Jews at Jerusalem bind the man who owns this belt, and deliver him into the hands of the Gentiles.' " 
 
 ###### 12 
 Now when we heard these things, both we and those from that place pleaded with him not to go up to Jerusalem. 
@@ -61,16 +61,16 @@ Also some of the disciples from Caesarea went with us and brought with them a ce
 And when we had come to Jerusalem, the brethren received us gladly. 
 
 ###### 18 
-On the following _day_ Paul went in with us to James, and all the elders were present. 
+On the following day Paul went in with us to James, and all the elders were present. 
 
 ###### 19 
 When he had greeted them, he told in detail those things which God had done among the Gentiles through his ministry. 
 
 ###### 20 
-And when they heard _it,_ they glorified the Lord. And they said to him, "You see, brother, how many myriads of Jews there are who have believed, and they are all zealous for the law; 
+And when they heard it, they glorified the Lord. And they said to him, "You see, brother, how many myriads of Jews there are who have believed, and they are all zealous for the law; 
 
 ###### 21 
-but they have been informed about you that you teach all the Jews who are among the Gentiles to forsake Moses, saying that they ought not to circumcise _their_ children nor to walk according to the customs. 
+but they have been informed about you that you teach all the Jews who are among the Gentiles to forsake Moses, saying that they ought not to circumcise their children nor to walk according to the customs. 
 
 ###### 22 
 What then? The assembly must certainly meet, for they will hear that you have come. 
@@ -79,10 +79,10 @@ What then? The assembly must certainly meet, for they will hear that you have co
 Therefore do what we tell you: We have four men who have taken a vow. 
 
 ###### 24 
-Take them and be purified with them, and pay their expenses so that they may shave _their_ heads, and that all may know that those things of which they were informed concerning you are nothing, but _that_ you yourself also walk orderly and keep the law. 
+Take them and be purified with them, and pay their expenses so that they may shave their heads, and that all may know that those things of which they were informed concerning you are nothing, but that you yourself also walk orderly and keep the law. 
 
 ###### 25 
-But concerning the Gentiles who believe, we have written _and_ decided that they should observe no such thing, except that they should keep themselves from _things_ offered to idols, from blood, from things strangled, and from sexual immorality." ## Arrested in the Temple 
+But concerning the Gentiles who believe, we have written and decided that they should observe no such thing, except that they should keep themselves from things offered to idols, from blood, from things strangled, and from sexual immorality." ## Arrested in the Temple 
 
 ###### 26 
 Then Paul took the men, and the next day, having been purified with them, entered the temple to announce the expiration of the days of purification, at which time an offering should be made for each one of them. 
@@ -91,7 +91,7 @@ Then Paul took the men, and the next day, having been purified with them, entere
 Now when the seven days were almost ended, the Jews from Asia, seeing him in the temple, stirred up the whole crowd and laid hands on him, 
 
 ###### 28 
-crying out, "Men of Israel, help! This is the man who teaches all _men_ everywhere against the people, the law, and this place; and furthermore he also brought Greeks into the temple and has defiled this holy place." 
+crying out, "Men of Israel, help! This is the man who teaches all men everywhere against the people, the law, and this place; and furthermore he also brought Greeks into the temple and has defiled this holy place." 
 
 ###### 29 
 (For they had previously seen Trophimus the Ephesian with him in the city, whom they supposed that Paul had brought into the temple.) 
@@ -106,7 +106,7 @@ Now as they were seeking to kill him, news came to the commander of the garrison
 He immediately took soldiers and centurions, and ran down to them. And when they saw the commander and the soldiers, they stopped beating Paul. 
 
 ###### 33 
-Then the commander came near and took him, and commanded _him_ to be bound with two chains; and he asked who he was and what he had done. 
+Then the commander came near and took him, and commanded him to be bound with two chains; and he asked who he was and what he had done. 
 
 ###### 34 
 And some among the multitude cried one thing and some another. So when he could not ascertain the truth because of the tumult, he commanded him to be taken into the barracks. 
@@ -127,4 +127,4 @@ Are you not the Egyptian who some time ago stirred up a rebellion and led the fo
 But Paul said, "I am a Jew from Tarsus, in Cilicia, a citizen of no mean city; and I implore you, permit me to speak to the people." 
 
 ###### 40 
-So when he had given him permission, Paul stood on the stairs and motioned with his hand to the people. And when there was a great silence, he spoke to _them_ in the Hebrew language, saying,
+So when he had given him permission, Paul stood on the stairs and motioned with his hand to the people. And when there was a great silence, he spoke to them in the Hebrew language, saying,

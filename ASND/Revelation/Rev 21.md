@@ -205,7 +205,7 @@ At sinabi ng nakaupo sa trono, "Binabago ko na ngayon ang lahat ng bagay!" At si
 
 
 
-At sinabi pa niya, "Naganap na ang lahat_! Ako ang Alpha at ang Omega, na ang ibig sabihin,_ ang simula at ang katapusan ng lahat_. Ang sinumang nauuhaw ay paiinumin ko nang walang bayad sa bukal na nagbibigay ng buhay na walang hanggan_. 
+At sinabi pa niya, "Naganap na ang lahat! Ako ang Alpha at ang Omega, na ang ibig sabihin, ang simula at ang katapusan ng lahat. Ang sinumang nauuhaw ay paiinumin ko nang walang bayad sa bukal na nagbibigay ng buhay na walang hanggan. 
 
 
 
@@ -271,7 +271,7 @@ Ang mga magtatagumpay ay gagawin kong mga anak ko, at akoʼy magiging Dios nila.
 
 
 
-Pero nakakatakot ang sasapitin ng_ mga duwag, mga ayaw sumampalataya sa akin, marurumi ang gawain, mga mamamatay-tao, mga imoral, mga mangkukulam, mga sumasamba sa mga dios-diosan, at lahat ng sinungaling. Itatapon sila sa nagliliyab na lawang apoy at asupre, na siyang ikalawang kamatayan." ## Ang Bagong Jerusalem 
+Pero nakakatakot ang sasapitin ng mga duwag, mga ayaw sumampalataya sa akin, marurumi ang gawain, mga mamamatay-tao, mga imoral, mga mangkukulam, mga sumasamba sa mga dios-diosan, at lahat ng sinungaling. Itatapon sila sa nagliliyab na lawang apoy at asupre, na siyang ikalawang kamatayan." ## Ang Bagong Jerusalem 
 
 
 
@@ -337,7 +337,7 @@ Lumapit sa akin ang isa sa pitong anghel na nagbuhos ng laman ng kanilang mga si
 
 
 
-Napuspos agad ako ng Banal na_ Espiritu, at dinala ako ng anghel sa tuktok ng napakataas na bundok. At ipinakita niya sa akin ang Banal na Lungsod, ang bagong Jerusalem, na bumababa mula sa langit galing sa Dios. 
+Napuspos agad ako ng Banal na Espiritu, at dinala ako ng anghel sa tuktok ng napakataas na bundok. At ipinakita niya sa akin ang Banal na Lungsod, ang bagong Jerusalem, na bumababa mula sa langit galing sa Dios. 
 
 
 
@@ -601,7 +601,7 @@ Sinukat din niya ang pader, 64 metro ang taas nito. (Ang panukat na ginamit ng a
 
 
 
-Ang pader ay yari sa batong_ jasper. Ang lungsod naman ay yari sa purong ginto na kasinglinaw ng kristal. 
+Ang pader ay yari sa batong jasper. Ang lungsod naman ay yari sa purong ginto na kasinglinaw ng kristal. 
 
 
 
@@ -898,4 +898,4 @@ Ang magaganda at mamahaling bagay ng mga bansa ay dadalhin din sa lungsod na iyo
 
 
 
-Pero hindi makakapasok doon ang anumang bagay na marumi sa paningin ng Dios, ang mga gumagawa ng mga bagay na nakakahiya, at ang mga sinungaling. Ang mga makakapasok lang doon ay ang mga taong nakasulat ang pangalan sa aklat ng Tupa, na listahan ng mga taong binigyan_ ng buhay na walang hanggan_.
+Pero hindi makakapasok doon ang anumang bagay na marumi sa paningin ng Dios, ang mga gumagawa ng mga bagay na nakakahiya, at ang mga sinungaling. Ang mga makakapasok lang doon ay ang mga taong nakasulat ang pangalan sa aklat ng Tupa, na listahan ng mga taong binigyan ng buhay na walang hanggan.

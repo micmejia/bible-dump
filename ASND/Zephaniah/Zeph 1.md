@@ -107,7 +107,7 @@ Sinabi ng Panginoon, "Lilipulin ko ang lahat ng bagay na nasa mundo –
 
 
 
-ang mga tao, hayop, ibon at isda. Mawawala ang lahat ng nag-uudyok sa tao para magkasala pati ang mga makasalanan. Lilipulin ko nga ang lahat ng tao sa mundo. Ako,_ ang Panginoon, ang nagsasabi nito. 
+ang mga tao, hayop, ibon at isda. Mawawala ang lahat ng nag-uudyok sa tao para magkasala pati ang mga makasalanan. Lilipulin ko nga ang lahat ng tao sa mundo. Ako, ang Panginoon, ang nagsasabi nito. 
 
 
 
@@ -173,7 +173,7 @@ ang mga tao, hayop, ibon at isda. Mawawala ang lahat ng nag-uudyok sa tao para m
 
 
 
-Lilipulin ko rin_ ang mga taong umaakyat sa bubong ng kanilang bahay para sumamba sa araw, sa buwan at mga bituin. Lilipulin ko_ ang mga sumasamba at sumusumpang maglilingkod sa akin, pero sumusumpa ring maglilingkod sa dios-diosang si_ Molec. 
+Lilipulin ko rin ang mga taong umaakyat sa bubong ng kanilang bahay para sumamba sa araw, sa buwan at mga bituin. Lilipulin ko ang mga sumasamba at sumusumpang maglilingkod sa akin, pero sumusumpa ring maglilingkod sa dios-diosang si Molec. 
 
 
 
@@ -206,7 +206,7 @@ Lilipulin ko rin_ ang mga taong umaakyat sa bubong ng kanilang bahay para sumamb
 
 
 
-Lilipulin ko_ ang mga tumatalikod at hindi dumudulog sa akin. 
+Lilipulin ko ang mga tumatalikod at hindi dumudulog sa akin. 
 
 
 
@@ -239,7 +239,7 @@ Lilipulin ko_ ang mga tumatalikod at hindi dumudulog sa akin.
 
 
 
-"Tumahimik kayo sa harapan ko, dahil malapit na ang araw ng aking pagpaparusa. Inihanda ko na ang aking mga mamamayan para patayin tulad ng_ hayop na ihahandog. Pinili ko na ang mga kalaban na_ tinawag ko na sasalakay sa Juda_. 
+"Tumahimik kayo sa harapan ko, dahil malapit na ang araw ng aking pagpaparusa. Inihanda ko na ang aking mga mamamayan para patayin tulad ng hayop na ihahandog. Pinili ko na ang mga kalaban na tinawag ko na sasalakay sa Juda. 
 
 
 
@@ -272,7 +272,7 @@ Lilipulin ko_ ang mga tumatalikod at hindi dumudulog sa akin.
 
 
 
-Sa araw na iyon, papatayin ko ang mga taga-Juda na parang_ hayop na ihahandog. Parurusahan ko ang kanilang_ mga opisyal at ang mga anak ng kanilang_ hari, at ang lahat sa kanila_ na sumusunod sa masasamang_ ugali ng ibang bansa. 
+Sa araw na iyon, papatayin ko ang mga taga-Juda na parang hayop na ihahandog. Parurusahan ko ang kanilang mga opisyal at ang mga anak ng kanilang hari, at ang lahat sa kanila na sumusunod sa masasamang ugali ng ibang bansa. 
 
 
 
@@ -305,7 +305,7 @@ Sa araw na iyon, papatayin ko ang mga taga-Juda na parang_ hayop na ihahandog. P
 
 
 
-Parurusahan ko rin sa araw na iyon ang lahat ng sumasali sa mga seremonya ng mga hindi nakakakilala sa akin, at ang mga nagmamalupit at nandaraya para punuin ng mga bagay_ ang bahay ng kanilang panginoon. 
+Parurusahan ko rin sa araw na iyon ang lahat ng sumasali sa mga seremonya ng mga hindi nakakakilala sa akin, at ang mga nagmamalupit at nandaraya para punuin ng mga bagay ang bahay ng kanilang panginoon. 
 
 
 
@@ -338,7 +338,7 @@ Parurusahan ko rin sa araw na iyon ang lahat ng sumasali sa mga seremonya ng mga
 
 
 
-"Ako,_ ang Panginoon ay nagsasabing sa araw na iyon maririnig ang iyakan sa pintuan na tinatawag na Isda ng lungsod ng Jerusalem_ at sa bagong bahagi ng lungsod. Maririnig din ang malakas na ingay ng mga nagigibang bahay_ sa mga burol. 
+"Ako, ang Panginoon ay nagsasabing sa araw na iyon maririnig ang iyakan sa pintuan na tinatawag na Isda ng lungsod ng Jerusalem at sa bagong bahagi ng lungsod. Maririnig din ang malakas na ingay ng mga nagigibang bahay sa mga burol. 
 
 
 
@@ -371,7 +371,7 @@ Parurusahan ko rin sa araw na iyon ang lahat ng sumasali sa mga seremonya ng mga
 
 
 
-Mag-iyakan kayo, kayong mga naninirahan sa mababang bahagi ng lungsod ng Jerusalem_ dahil mamamatay ang lahat ng inyong mga mangangalakal. 
+Mag-iyakan kayo, kayong mga naninirahan sa mababang bahagi ng lungsod ng Jerusalem dahil mamamatay ang lahat ng inyong mga mangangalakal. 
 
 
 
@@ -470,7 +470,7 @@ Aagawin sa mga taong ito ang kanilang mga pag-aari at wawasakin ang kanilang mga
 
 
 
-Malapit na ang nakakatakot na araw ng pagpaparusa ng Panginoon. Itoʼy mabilis na dumarating. Mapait ang araw na iyon, dahil kahit na ang matatapang na sundalo ay sisigaw para humingi ng tulong_. 
+Malapit na ang nakakatakot na araw ng pagpaparusa ng Panginoon. Itoʼy mabilis na dumarating. Mapait ang araw na iyon, dahil kahit na ang matatapang na sundalo ay sisigaw para humingi ng tulong. 
 
 
 
@@ -569,7 +569,7 @@ at maririnig ang tunog ng trumpeta at sigawan ng mga sundalong sumasalakay sa mg
 
 
 
-Sinabi ng Panginoon,_ "Ipaparanas ko ang paghihirap sa mga tao, at lalakad sila na parang bulag dahil nagkasala sila sa akin. Dadaloy na parang tubig ang kanilang dugo, at mabubulok na parang dumi ang kanilang bangkay. 
+Sinabi ng Panginoon, "Ipaparanas ko ang paghihirap sa mga tao, at lalakad sila na parang bulag dahil nagkasala sila sa akin. Dadaloy na parang tubig ang kanilang dugo, at mabubulok na parang dumi ang kanilang bangkay. 
 
 
 

@@ -40,7 +40,7 @@ next: ['Matt 20']
 
 
 
-Pagkatapos ipangaral ni Jesus ang mga bagay na ito, umalis siya sa Galilea at pumunta sa lalawigan ng Judea sa kabila ng Ilog ng_ Jordan. 
+Pagkatapos ipangaral ni Jesus ang mga bagay na ito, umalis siya sa Galilea at pumunta sa lalawigan ng Judea sa kabila ng Ilog ng Jordan. 
 
 
 
@@ -238,7 +238,7 @@ Hindi na sila dalawa kundi isa na lang. Kaya hindi dapat paghiwalayin ng tao ang
 
 
 
-Nagtanong uli_ ang mga Pariseo, "Pero bakit sinabi ni Moises na pwedeng hiwalayan ng lalaki ang asawa niya, bastaʼt bigyan niya ito ng kasulatan ng paghihiwalay?" 
+Nagtanong uli ang mga Pariseo, "Pero bakit sinabi ni Moises na pwedeng hiwalayan ng lalaki ang asawa niya, bastaʼt bigyan niya ito ng kasulatan ng paghihiwalay?" 
 
 
 
@@ -702,7 +702,7 @@ Sinabi ng binata, "Sinusunod ko po ang lahat ng iyan. Ano pa po ba ang kulang sa
 
 
 
-Sumagot si Jesus, "Kung nais mong maging ganap sa harap ng Dios_, umuwi ka at ipagbili ang iyong mga ari-arian at ipamigay mo ang pera_ sa mga mahihirap. At magkakaroon ka ng kayamanan sa langit. Pagkatapos, bumalik ka at sumunod sa akin." 
+Sumagot si Jesus, "Kung nais mong maging ganap sa harap ng Dios, umuwi ka at ipagbili ang iyong mga ari-arian at ipamigay mo ang pera sa mga mahihirap. At magkakaroon ka ng kayamanan sa langit. Pagkatapos, bumalik ka at sumunod sa akin." 
 
 
 
@@ -933,7 +933,7 @@ Nagsalita si Pedro, "Paano naman po kami? Iniwan namin ang lahat para sumunod sa
 
 
 
-Sumagot si Jesus, "Sinasabi ko sa inyo ang totoo, darating ang araw na babaguhin ng Dios ang mundo, at ako na_ Anak ng Tao ay uupo sa aking trono. At kayong mga tagasunod ko ay uupo rin sa 12 trono upang husgahan ang 12 lahi ng Israel. 
+Sumagot si Jesus, "Sinasabi ko sa inyo ang totoo, darating ang araw na babaguhin ng Dios ang mundo, at ako na Anak ng Tao ay uupo sa aking trono. At kayong mga tagasunod ko ay uupo rin sa 12 trono upang husgahan ang 12 lahi ng Israel. 
 
 
 

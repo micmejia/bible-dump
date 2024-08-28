@@ -799,7 +799,7 @@ Ang kayabangan ng tao ang magbibigay sa kanya ng kahihiyan, ngunit ang pagpapaku
 
 
 
-Ang taong nakikipagsabwatan sa magnanakaw ay ipinapahamak ang kanyang sarili. Kahit na pasumpain siya na magsabi ng totoo_ ay hindi pa rin magsasabi. 
+Ang taong nakikipagsabwatan sa magnanakaw ay ipinapahamak ang kanyang sarili. Kahit na pasumpain siya na magsabi ng totoo ay hindi pa rin magsasabi. 
 
 
 

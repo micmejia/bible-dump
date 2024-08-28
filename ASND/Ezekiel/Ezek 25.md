@@ -106,7 +106,7 @@ Sinabi sa akin ng Panginoon,
 
 
 
-Sabihin mo sa kanyang mga mamamayan na makinig sa akin, dahil ako,_ ang Panginoong Dios, ay nagsasabi: Dahil natuwa kayo nang gibain ang aking templo, nang wasakin ang Israel at bihagin ang mga taga-Juda, 
+Sabihin mo sa kanyang mga mamamayan na makinig sa akin, dahil ako, ang Panginoong Dios, ay nagsasabi: Dahil natuwa kayo nang gibain ang aking templo, nang wasakin ang Israel at bihagin ang mga taga-Juda, 
 
 
 
@@ -172,7 +172,7 @@ ipapasakop ko kayo sa mga tao sa silangan at magiging pagmamay-ari nila kayo. Ma
 
 
 
-Gagawin kong pastulan ng mga kamelyo ang lungsod ng_ Rabba, at ang buong Ammon ay gagawin kong pastulan ng mga tupa. At malalaman ninyo na ako ang Panginoon. 
+Gagawin kong pastulan ng mga kamelyo ang lungsod ng Rabba, at ang buong Ammon ay gagawin kong pastulan ng mga tupa. At malalaman ninyo na ako ang Panginoon. 
 
 
 
@@ -205,7 +205,7 @@ Gagawin kong pastulan ng mga kamelyo ang lungsod ng_ Rabba, at ang buong Ammon a
 
 
 
-"Ako,_ ang Panginoong Dios, ang nagsasabi: 'Dahil pumalakpak kayo at lumundag sa tuwa sa pagkutya sa Israel, 
+"Ako, ang Panginoong Dios, ang nagsasabi: 'Dahil pumalakpak kayo at lumundag sa tuwa sa pagkutya sa Israel, 
 
 
 
@@ -337,7 +337,7 @@ Kaya ipapalusob ko ang mga bayan sa mga hangganan ng Moab, kasama ang ipinagmama
 
 
 
-Ipapasakop ko ang mga ito sa mga tao sa silangan at aariin din silang katulad ng mga taga-Ammon. At ang Ammon ay hindi na maituturing na isang bansa, ganoon din ang Moab_. 
+Ipapasakop ko ang mga ito sa mga tao sa silangan at aariin din silang katulad ng mga taga-Ammon. At ang Ammon ay hindi na maituturing na isang bansa, ganoon din ang Moab. 
 
 
 
@@ -436,7 +436,7 @@ Sinabi ng Panginoong Dios, "Gumanti ang Edom sa Juda at dahil ditoʼy nagkasala 
 
 
 
-Kaya ako,_ ang Panginoong Dios ay nagsasabing, parurusahan ko ang Edom. Papatayin ko ang mga mamamayan at mga hayop niya. Gagawin ko itong mapanglaw, mula sa Teman hanggang sa Dedan. Mamamatay ang mga mamamayan nito sa digmaan. 
+Kaya ako, ang Panginoong Dios ay nagsasabing, parurusahan ko ang Edom. Papatayin ko ang mga mamamayan at mga hayop niya. Gagawin ko itong mapanglaw, mula sa Teman hanggang sa Dedan. Mamamatay ang mga mamamayan nito sa digmaan. 
 
 
 
@@ -469,7 +469,7 @@ Kaya ako,_ ang Panginoong Dios ay nagsasabing, parurusahan ko ang Edom. Papatayi
 
 
 
-Maghihiganti ako sa Edom sa pamamagitan ng mga mamamayan kong Israelita. Parurusahan nila ang mga taga-Edom ayon sa matinding galit ko sa kanila, at malalaman ng mga taga-Edom kung paano ako maghiganti. Ako,_ ang Panginoong Dios, ang nagsasabi nito." ## Ang Mensahe Laban sa Filistia 
+Maghihiganti ako sa Edom sa pamamagitan ng mga mamamayan kong Israelita. Parurusahan nila ang mga taga-Edom ayon sa matinding galit ko sa kanila, at malalaman ng mga taga-Edom kung paano ako maghiganti. Ako, ang Panginoong Dios, ang nagsasabi nito." ## Ang Mensahe Laban sa Filistia 
 
 
 

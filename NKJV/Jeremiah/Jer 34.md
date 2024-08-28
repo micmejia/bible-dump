@@ -22,24 +22,24 @@ And you shall not escape from his hand, but shall surely be taken and delivered 
 Yet hear the word of the Lord, O Zedekiah king of Judah! Thus says the Lord concerning you: 'You shall not die by the sword. 
 
 ###### 5 
-You shall die in peace; as in the ceremonies of your fathers, the former kings who were before you, so they shall burn _incense_ for you and lament for you, _saying,_ "Alas, lord!" For I have pronounced the word, says the Lord.' " 
+You shall die in peace; as in the ceremonies of your fathers, the former kings who were before you, so they shall burn incense for you and lament for you, saying, "Alas, lord!" For I have pronounced the word, says the Lord.' " 
 
 ###### 6 
 Then Jeremiah the prophet spoke all these words to Zedekiah king of Judah in Jerusalem, 
 
 ###### 7 
-when the king of Babylon's army fought against Jerusalem and all the cities of Judah that were left, against Lachish and Azekah; for _only_ these fortified cities remained of the cities of Judah.
+when the king of Babylon's army fought against Jerusalem and all the cities of Judah that were left, against Lachish and Azekah; for only these fortified cities remained of the cities of Judah.
 
 ## Treacherous Treatment of Slaves 
 
 ###### 8 
-_This is_ the word that came to Jeremiah from the Lord, after King Zedekiah had made a covenant with all the people who _were_ at Jerusalem to proclaim liberty to them: 
+This is the word that came to Jeremiah from the Lord, after King Zedekiah had made a covenant with all the people who were at Jerusalem to proclaim liberty to them: 
 
 ###### 9 
 that every man should set free his male and female slave--a Hebrew man or woman--that no one should keep a Jewish brother in bondage. 
 
 ###### 10 
-Now when all the princes and all the people, who had entered into the covenant, heard that everyone should set free his male and female slaves, that no one should keep them in bondage anymore, they obeyed and let _them_ go. 
+Now when all the princes and all the people, who had entered into the covenant, heard that everyone should set free his male and female slaves, that no one should keep them in bondage anymore, they obeyed and let them go. 
 
 ###### 11 
 But afterward they changed their minds and made the male and female slaves return, whom they had set free, and brought them into subjection as male and female slaves. 

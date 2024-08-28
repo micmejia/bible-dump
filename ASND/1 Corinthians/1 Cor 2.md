@@ -139,7 +139,7 @@ Pumunta ako riyan na may kahinaan, at nanginginig pa sa takot.
 
 
 
-At nang mangaral ako sa inyo, hindi ako gumamit ng matatamis na pananalita batay sa karunungan ng tao upang kumbinsihin kayo. Sa halip, pinatunayan ng Banal na_ Espiritu ang aking pangangaral sa pamamagitan ng kanyang kapangyarihan, 
+At nang mangaral ako sa inyo, hindi ako gumamit ng matatamis na pananalita batay sa karunungan ng tao upang kumbinsihin kayo. Sa halip, pinatunayan ng Banal na Espiritu ang aking pangangaral sa pamamagitan ng kanyang kapangyarihan, 
 
 
 
@@ -436,7 +436,7 @@ At ang Espiritu na ito ng Dios ang tinanggap nating mga mananampalataya, hindi a
 
 
 
-Kaya nga ipinangangaral namin ang mga bagay na ito sa pamamagitan ng mga salitang mula sa Banal na_ Espiritu at hindi mula sa karunungan ng tao. Ipinangangaral namin ang espiritwal na mga bagay sa mga taong pinananahanan ng Espiritu. 
+Kaya nga ipinangangaral namin ang mga bagay na ito sa pamamagitan ng mga salitang mula sa Banal na Espiritu at hindi mula sa karunungan ng tao. Ipinangangaral namin ang espiritwal na mga bagay sa mga taong pinananahanan ng Espiritu. 
 
 
 
@@ -502,7 +502,7 @@ Ngunit sa taong hindi pinananahanan ng Espiritu ng Dios, hindi niya tinatanggap 
 
 
 
-Sa taong pinananahanan ng Espiritu, nauunawaan niya ang mga bagay na ito, ngunit hindi naman siya maunawaan ng mga tao na hindi pinananahanan ng Espiritu ng Dios_. 
+Sa taong pinananahanan ng Espiritu, nauunawaan niya ang mga bagay na ito, ngunit hindi naman siya maunawaan ng mga tao na hindi pinananahanan ng Espiritu ng Dios. 
 
 
 
@@ -535,4 +535,4 @@ Sa taong pinananahanan ng Espiritu, nauunawaan niya ang mga bagay na ito, ngunit
 
 
 
-Ayon nga sa sinasabi ng Kasulatan,_ "Sino ba ang nakakaalam ng isip ng Panginoon? Sino ba ang makakapagpayo sa kanya?" Ngunit tayo, taglay natin ang pag-iisip ni Cristo, kaya nakakaunawa tayo._
+Ayon nga sa sinasabi ng Kasulatan, "Sino ba ang nakakaalam ng isip ng Panginoon? Sino ba ang makakapagpayo sa kanya?" Ngunit tayo, taglay natin ang pag-iisip ni Cristo, kaya nakakaunawa tayo.

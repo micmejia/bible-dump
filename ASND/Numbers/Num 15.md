@@ -372,7 +372,7 @@ Gawin ninyo ito sa bawat hayop na inyong ihahandog.
 
 
 
-"Ang lahat ng katutubong Israelita_ na mag-aalay ng mga handog sa pamamagitan ng apoy bilang mabangong handog na makalulugod sa akin ay dapat sumunod sa mga tuntuning ito. 
+"Ang lahat ng katutubong Israelita na mag-aalay ng mga handog sa pamamagitan ng apoy bilang mabangong handog na makalulugod sa akin ay dapat sumunod sa mga tuntuning ito. 
 
 
 
@@ -735,7 +735,7 @@ Ang handog na ito mula sa harina na una ninyong giniling ay ihahandog ninyo sa a
 
 
 
-kung hindi nga sinasadya ang paggawa nito, at hindi rin alam ng buong kapulungan na pagsuway pala ito, ang buong kapulungan ang maghahandog ng isang batang toro bilang handog na sinusunog sa panahon na nalaman ninyo ang inyong pagsuway_. Ang mabangong samyo ng handog na itoʼy makalulugod sa Panginoon. Isama rin ninyo ang mga kinakailangang mga handog para sa pagpaparangal sa akin at mga handog na inumin at isang lalaking kambing bilang handog sa paglilinis. 
+kung hindi nga sinasadya ang paggawa nito, at hindi rin alam ng buong kapulungan na pagsuway pala ito, ang buong kapulungan ang maghahandog ng isang batang toro bilang handog na sinusunog sa panahon na nalaman ninyo ang inyong pagsuway. Ang mabangong samyo ng handog na itoʼy makalulugod sa Panginoon. Isama rin ninyo ang mga kinakailangang mga handog para sa pagpaparangal sa akin at mga handog na inumin at isang lalaking kambing bilang handog sa paglilinis. 
 
 
 
@@ -933,7 +933,7 @@ Iisa lang ang tuntunin para sa lahat ng nagkasala nang hindi sinasadya, katutubo
 
 
 
-"Pero, ang sinumang nagkasala nang sinadya, katutubo na Israelita_ man o hindi, na lumapastangan sa Panginoon, kailangang huwag na ninyong ituring na kababayan. 
+"Pero, ang sinumang nagkasala nang sinadya, katutubo na Israelita man o hindi, na lumapastangan sa Panginoon, kailangang huwag na ninyong ituring na kababayan. 
 
 
 

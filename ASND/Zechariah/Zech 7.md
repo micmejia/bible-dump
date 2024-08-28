@@ -42,7 +42,7 @@ next: ['Zech 8']
 
 May sinabi ang Panginoon kay Zacarias noong ikaapat na araw ng buwan ng Kislev (ikasiyam na buwan), nang ikaapat na taon ng paghahari ni Darius.
 
-###### 2-3 Nangyari ito matapos_ ipadala ng mga mamamayan ng Betel si Sharezer at si Regem Melec, kasama ang kanilang mga tauhan, upang hilingin sa mga pari sa templo at sa mga propeta na tanungin ang Panginoon kung talagang kailangan pa nilang magluksa at mag-ayuno sa ikalimang buwan upang alalahanin ang pagkagiba ng templo_, gaya ng maraming taon na nilang ginagawa. 
+###### 2-3 Nangyari ito matapos ipadala ng mga mamamayan ng Betel si Sharezer at si Regem Melec, kasama ang kanilang mga tauhan, upang hilingin sa mga pari sa templo at sa mga propeta na tanungin ang Panginoon kung talagang kailangan pa nilang magluksa at mag-ayuno sa ikalimang buwan upang alalahanin ang pagkagiba ng templo, gaya ng maraming taon na nilang ginagawa. 
 
 
 
@@ -174,7 +174,7 @@ At kung silaʼy kumakain at umiinom, ginagawa nila iyan para lamang sa sarili ni
 
 
 
-Ito rin ang mensahe na ipinasabi ko sa mga propeta noon, nang masagana pa ang Jerusalem at marami pa itong tao pati ang mga bayang nasa paligid nito, at pati na ang Negev at ang kaburulan sa kanluran." ###### 8-9 Sinabi muli_ ng Panginoong Makapangyarihan kay Zacarias, "Ito ang sinabi ko sa aking mga mamamayan_: 'Humatol kayo nang makatarungan. Ipakita ninyo ang inyong kabutihan at habag sa isaʼt isa. 
+Ito rin ang mensahe na ipinasabi ko sa mga propeta noon, nang masagana pa ang Jerusalem at marami pa itong tao pati ang mga bayang nasa paligid nito, at pati na ang Negev at ang kaburulan sa kanluran." ###### 8-9 Sinabi muli ng Panginoong Makapangyarihan kay Zacarias, "Ito ang sinabi ko sa aking mga mamamayan: 'Humatol kayo nang makatarungan. Ipakita ninyo ang inyong kabutihan at habag sa isaʼt isa. 
 
 
 
@@ -273,7 +273,7 @@ Huwag ninyong gigipitin ang mga biyuda, mga ulila, mga dayuhan, at ang mga mahih
 
 
 
-Pinatigas nilang parang bato ang kanilang mga puso, at hindi sila nakinig sa Kautusan at mga salitang ipinasasabi ng aking Espiritu sa pamamagitan ng mga propeta noon. Kaya ako,_ ang Makapangyarihang Panginoon, ay talagang galit na galit. 
+Pinatigas nilang parang bato ang kanilang mga puso, at hindi sila nakinig sa Kautusan at mga salitang ipinasasabi ng aking Espiritu sa pamamagitan ng mga propeta noon. Kaya ako, ang Makapangyarihang Panginoon, ay talagang galit na galit. 
 
 
 

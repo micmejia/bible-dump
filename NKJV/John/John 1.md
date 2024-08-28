@@ -26,13 +26,13 @@ And the light shines in the darkness, and the darkness did not comprehend it.
 ## John's Witness: The True Light 
 
 ###### 6 
-There was a man sent from God, whose name _was_ John. 
+There was a man sent from God, whose name was John. 
 
 ###### 7 
 This man came for a witness, to bear witness of the Light, that all through him might believe. 
 
 ###### 8 
-He was not that Light, but _was sent_ to bear witness of that Light. 
+He was not that Light, but was sent to bear witness of that Light. 
 
 ###### 9 
 That was the true Light which gives light to every man coming into the world. 
@@ -61,10 +61,10 @@ John bore witness of Him and cried out, saying, "This was He of whom I said, 'He
 And of His fullness we have all received, and grace for grace. 
 
 ###### 17 
-For the law was given through Moses, _but_ grace and truth came through Jesus Christ. 
+For the law was given through Moses, but grace and truth came through Jesus Christ. 
 
 ###### 18 
-No one has seen God at any time. The only begotten Son, who is in the bosom of the Father, He has declared _Him._
+No one has seen God at any time. The only begotten Son, who is in the bosom of the Father, He has declared Him.
 
 ## A Voice in the Wilderness 
 
@@ -81,7 +81,7 @@ And they asked him, "What then? Are you Elijah?" He said, "I am not." "Are you t
 Then they said to him, "Who are you, that we may give an answer to those who sent us? What do you say about yourself?" 
 
 ###### 23 
-He said: "I _am_ 'The voice of one crying in the wilderness: "Make straight the way of the Lord," ' as the prophet Isaiah said." 
+He said: "I am 'The voice of one crying in the wilderness: "Make straight the way of the Lord," ' as the prophet Isaiah said." 
 
 ###### 24 
 Now those who were sent were from the Pharisees. 
@@ -134,7 +134,7 @@ Then Jesus turned, and seeing them following, said to them, "What do you seek?" 
 He said to them, "Come and see." They came and saw where He was staying, and remained with Him that day (now it was about the tenth hour). 
 
 ###### 40 
-One of the two who heard John _speak,_ and followed Him, was Andrew, Simon Peter's brother. 
+One of the two who heard John speak, and followed Him, was Andrew, Simon Peter's brother. 
 
 ###### 41 
 He first found his own brother Simon, and said to him, "We have found the Messiah" (which is translated, the Christ). 

@@ -19,19 +19,19 @@ Then I saw another angel ascending from the east, having the seal of the living 
 saying, "Do not harm the earth, the sea, or the trees till we have sealed the servants of our God on their foreheads." 
 
 ###### 4 
-And I heard the number of those who were sealed. One hundred _and_ forty-four thousand of all the tribes of the children of Israel _were_ sealed: 
+And I heard the number of those who were sealed. One hundred and forty-four thousand of all the tribes of the children of Israel were sealed: 
 
 ###### 5 
-of the tribe of Judah twelve thousand _were_ sealed; of the tribe of Reuben twelve thousand _were_ sealed; of the tribe of Gad twelve thousand _were_ sealed; 
+of the tribe of Judah twelve thousand were sealed; of the tribe of Reuben twelve thousand were sealed; of the tribe of Gad twelve thousand were sealed; 
 
 ###### 6 
-of the tribe of Asher twelve thousand _were_ sealed; of the tribe of Naphtali twelve thousand _were_ sealed; of the tribe of Manasseh twelve thousand _were_ sealed; 
+of the tribe of Asher twelve thousand were sealed; of the tribe of Naphtali twelve thousand were sealed; of the tribe of Manasseh twelve thousand were sealed; 
 
 ###### 7 
-of the tribe of Simeon twelve thousand _were_ sealed; of the tribe of Levi twelve thousand _were_ sealed; of the tribe of Issachar twelve thousand _were_ sealed; 
+of the tribe of Simeon twelve thousand were sealed; of the tribe of Levi twelve thousand were sealed; of the tribe of Issachar twelve thousand were sealed; 
 
 ###### 8 
-of the tribe of Zebulun twelve thousand _were_ sealed; of the tribe of Joseph twelve thousand _were_ sealed; of the tribe of Benjamin twelve thousand _were_ sealed.
+of the tribe of Zebulun twelve thousand were sealed; of the tribe of Joseph twelve thousand were sealed; of the tribe of Benjamin twelve thousand were sealed.
 
 ## A Multitude from the Great Tribulation 
 
@@ -39,13 +39,13 @@ of the tribe of Zebulun twelve thousand _were_ sealed; of the tribe of Joseph tw
 After these things I looked, and behold, a great multitude which no one could number, of all nations, tribes, peoples, and tongues, standing before the throne and before the Lamb, clothed with white robes, with palm branches in their hands, 
 
 ###### 10 
-and crying out with a loud voice, saying, "Salvation _belongs_ to our God who sits on the throne, and to the Lamb!" 
+and crying out with a loud voice, saying, "Salvation belongs to our God who sits on the throne, and to the Lamb!" 
 
 ###### 11 
 All the angels stood around the throne and the elders and the four living creatures, and fell on their faces before the throne and worshiped God, 
 
 ###### 12 
-saying: "Amen! Blessing and glory and wisdom, Thanksgiving and honor and power and might, _Be_ to our God forever and ever. Amen." 
+saying: "Amen! Blessing and glory and wisdom, Thanksgiving and honor and power and might, Be to our God forever and ever. Amen." 
 
 ###### 13 
 Then one of the elders answered, saying to me, "Who are these arrayed in white robes, and where did they come from?" 

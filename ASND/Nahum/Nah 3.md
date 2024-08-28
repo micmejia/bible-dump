@@ -39,7 +39,7 @@ up: ['Nahum']
 
 
 
-Kahabag-habag ang lungsod ng Nineve_. Ito ay puno ng kasakiman at kasinungalingan, lungsod ng mamamatay-tao at hindi nauubusan ng mabibiktima. 
+Kahabag-habag ang lungsod ng Nineve. Ito ay puno ng kasakiman at kasinungalingan, lungsod ng mamamatay-tao at hindi nauubusan ng mabibiktima. 
 
 
 
@@ -72,7 +72,7 @@ Kahabag-habag ang lungsod ng Nineve_. Ito ay puno ng kasakiman at kasinungalinga
 
 
 
-Sasalakayin sila ng mga kalaban nila. Maririnig nila_ ang paghagupit ng latigo, ang ingay ng mga gulong ng mga karwahe, ang yabag ng paa ng mga kabayo, at ang rumaragasang mga karwahe. 
+Sasalakayin sila ng mga kalaban nila. Maririnig nila ang paghagupit ng latigo, ang ingay ng mga gulong ng mga karwahe, ang yabag ng paa ng mga kabayo, at ang rumaragasang mga karwahe. 
 
 
 
@@ -105,7 +105,7 @@ Sasalakayin sila ng mga kalaban nila. Maririnig nila_ ang paghagupit ng latigo, 
 
 
 
-Makikita nila_ ang sumusugod na mga mangangabayo, ang kumikinang na mga espada at mga sibat, at ang nakabunton na mga patay na di-mabilang. Matitisod sa mga bangkay ang mga sundalo. 
+Makikita nila ang sumusugod na mga mangangabayo, ang kumikinang na mga espada at mga sibat, at ang nakabunton na mga patay na di-mabilang. Matitisod sa mga bangkay ang mga sundalo. 
 
 
 
@@ -171,7 +171,7 @@ Mangyayari ito sa Nineve dahil para siyang babaeng bayaran na paulit-ulit na ibi
 
 
 
-Sinabi ng Panginoong Makapangyarihan, "Mga taga-Nineve,_ makinig kayo! Kalaban ko kayo! Kaya hihiyain ko kayo sa harap ng mga bansa at mga kaharian. Maihahalintulad kayo sa isang babaeng itinaas ang damit hanggang ulo at nakita ang kahubaran.
+Sinabi ng Panginoong Makapangyarihan, "Mga taga-Nineve, makinig kayo! Kalaban ko kayo! Kaya hihiyain ko kayo sa harap ng mga bansa at mga kaharian. Maihahalintulad kayo sa isang babaeng itinaas ang damit hanggang ulo at nakita ang kahubaran.
 
 ###### 6-7 Kasusuklaman ko kayo tulad ng isang taong hinagisan ng basura, kaya ang lahat ng makakakita sa inyo ay mandidiri at iiwas sa inyo. Sasabihin nila, 'Giba na ang Nineve. Walang iiyak o aaliw sa kanya.' " 
 
@@ -206,7 +206,7 @@ Sinabi ng Panginoong Makapangyarihan, "Mga taga-Nineve,_ makinig kayo! Kalaban k
 
 
 
-Higit bang mabuti ang Nineve kaysa sa lungsod ng_ Tebes na malapit sa Ilog ng_ Nilo? Ang ilog na ito ang pinakapader ng Tebes na nagsisilbing proteksyon nito. 
+Higit bang mabuti ang Nineve kaysa sa lungsod ng Tebes na malapit sa Ilog ng Nilo? Ang ilog na ito ang pinakapader ng Tebes na nagsisilbing proteksyon nito. 
 
 
 
@@ -239,7 +239,7 @@ Higit bang mabuti ang Nineve kaysa sa lungsod ng_ Tebes na malapit sa Ilog ng_ N
 
 
 
-Ang Etiopia at ang buong_ Egipto ang pinanggagalingan ng lakas ng Tebes, at ang akala niyaʼy mananatili ito magpakailanman. Ang Put at ang Libya ay mga bansang kakampi rin niya. 
+Ang Etiopia at ang buong Egipto ang pinanggagalingan ng lakas ng Tebes, at ang akala niyaʼy mananatili ito magpakailanman. Ang Put at ang Libya ay mga bansang kakampi rin niya. 
 
 
 
@@ -272,7 +272,7 @@ Ang Etiopia at ang buong_ Egipto ang pinanggagalingan ng lakas ng Tebes, at ang 
 
 
 
-Ganoon pa man, naging bihag pa rin ang kanyang mga mamamayan at dinala sa ibang lugar. Ang kanilang mga anak ay pinagdudurog sa mga lansangan. Ginapos ng kadena ang kanilang mga tanyag na mamamayan at pinaghiwa-hiwalay para gawing alipin_ sa pamamagitan ng palabunutan. 
+Ganoon pa man, naging bihag pa rin ang kanyang mga mamamayan at dinala sa ibang lugar. Ang kanilang mga anak ay pinagdudurog sa mga lansangan. Ginapos ng kadena ang kanilang mga tanyag na mamamayan at pinaghiwa-hiwalay para gawing alipin sa pamamagitan ng palabunutan. 
 
 
 
@@ -305,7 +305,7 @@ Ganoon pa man, naging bihag pa rin ang kanyang mga mamamayan at dinala sa ibang 
 
 
 
-Kayo rin na mga taga-Nineve_, magiging pareho kayo sa lasing na hindi alam kung ano ang nangyayari_. Sasalakayin din kayo ng inyong mga kalaban at maghahanap kayo ng inyong matataguan na hindi kayo mahuhuli. 
+Kayo rin na mga taga-Nineve, magiging pareho kayo sa lasing na hindi alam kung ano ang nangyayari. Sasalakayin din kayo ng inyong mga kalaban at maghahanap kayo ng inyong matataguan na hindi kayo mahuhuli. 
 
 
 
@@ -404,7 +404,7 @@ Tingnan ninyo ang inyong mga kawal – para silang mga babae! Ang tarangkahan ng
 
 
 
-Humanda na kayo_ sa pagdating ng inyong kalaban. Mag-ipon na kayo ng tubig. Patibayin ninyo ang mga pader sa palibot ng inyong lungsod. Gumawa kayo ng mga tisa at ayusin ninyo ang mga pader na ito. 
+Humanda na kayo sa pagdating ng inyong kalaban. Mag-ipon na kayo ng tubig. Patibayin ninyo ang mga pader sa palibot ng inyong lungsod. Gumawa kayo ng mga tisa at ayusin ninyo ang mga pader na ito. 
 
 
 

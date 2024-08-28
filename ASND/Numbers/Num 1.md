@@ -171,7 +171,7 @@ Tutulong sa inyo ang pinuno ng bawat lahi." 5-15Ito ang pangalan ng mga taong tu
 
 
 
-Sila ang mga pinuno ng mga lahing pinili mula sa mga mamamayan ng Israel_. 17-18Kasama ng mga pinunong ito, tinipon nina Moises at Aaron ang lahat ng mga Israelita nang araw ding iyon. Inilista nila ang lahat ng lalaking may edad na 20 taong gulang pataas, ayon sa kanilang lahi at pamilya. 
+Sila ang mga pinuno ng mga lahing pinili mula sa mga mamamayan ng Israel. 17-18Kasama ng mga pinunong ito, tinipon nina Moises at Aaron ang lahat ng mga Israelita nang araw ding iyon. Inilista nila ang lahat ng lalaking may edad na 20 taong gulang pataas, ayon sa kanilang lahi at pamilya. 
 
 
 
@@ -336,7 +336,7 @@ Sapagkat sinabi ng Panginoon kay Moises,
 
 
 
-"Huwag ninyong isama ang lahi ni Levi sa sensus kasama ng ibang mga Israelita, na magsisilbi sa panahon ng labanan_. 
+"Huwag ninyong isama ang lahi ni Levi sa sensus kasama ng ibang mga Israelita, na magsisilbi sa panahon ng labanan. 
 
 
 

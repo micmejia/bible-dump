@@ -108,7 +108,7 @@ Nagtahi rin sila ng espesyal na damit ng mga pari. Ang telang ginamit nila ay pi
 
 
 
-Gumawa sila ng sinulid na ginto sa pamamagitan ng pagpitpit sa ginto at paghahati-hati rito nang manipis. Pagkatapos, ibinurda nila ito sa pinong telang_ linen, kasama ng lanang kulay asul, ube at pula. Napakaganda ng pagkakaburda nito. 
+Gumawa sila ng sinulid na ginto sa pamamagitan ng pagpitpit sa ginto at paghahati-hati rito nang manipis. Pagkatapos, ibinurda nila ito sa pinong telang linen, kasama ng lanang kulay asul, ube at pula. Napakaganda ng pagkakaburda nito. 
 
 
 
@@ -174,7 +174,7 @@ May dalawang parte ang damit na ito, sa likod at harap, at pinagdudugtong ito ng
 
 
 
-Ang sinturon nito ay gawa sa pinong telang_ linen na binurdahan ng gintong sinulid at lanang kulay_ asul, ube at pula. Ginawa nila itong lahat_ ayon sa iniutos ng Panginoon kay Moises. 
+Ang sinturon nito ay gawa sa pinong telang linen na binurdahan ng gintong sinulid at lanang kulay asul, ube at pula. Ginawa nila itong lahat ayon sa iniutos ng Panginoon kay Moises. 
 
 
 
@@ -240,7 +240,7 @@ Ikinabit nila ang mga batong onix sa balangkas na ginto. Inukitan nila ito ng pa
 
 
 
-Ikinabit nila ito sa mga tirante ng espesyal na damit bilang mga alaalang bato para sa lahi ng Israel. Ginawa nila itong lahat_ ayon sa iniutos ng Panginoon kay Moises.
+Ikinabit nila ito sa mga tirante ng espesyal na damit bilang mga alaalang bato para sa lahi ng Israel. Ginawa nila itong lahat ayon sa iniutos ng Panginoon kay Moises.
 
 ## Ang Bulsa na Nasa Dibdib 
 
@@ -275,7 +275,7 @@ Ikinabit nila ito sa mga tirante ng espesyal na damit bilang mga alaalang bato p
 
 
 
-Gumawa rin sila ng bulsa na nasa dibdib at napakaganda ng pagkakagawa nito. Ang tela nitoʼy katulad din ng tela ng espesyal na damit: pinong telang_ linen na binurdahan gamit ang gintong sinulid, lanang kulay asul, ube at pula. 
+Gumawa rin sila ng bulsa na nasa dibdib at napakaganda ng pagkakagawa nito. Ang tela nitoʼy katulad din ng tela ng espesyal na damit: pinong telang linen na binurdahan gamit ang gintong sinulid, lanang kulay asul, ube at pula. 
 
 
 
@@ -605,7 +605,7 @@ Isinuot nila ang dalawang mala-kwintas na taling ginto sa dalawang parang singsi
 
 
 
-at ang dalawang dulo naman ng mala-kwintas na tali ay isinuot sa dalawang balangkas na ginto_ na nakakabit sa tirante ng espesyal na damit. 
+at ang dalawang dulo naman ng mala-kwintas na tali ay isinuot sa dalawang balangkas na ginto na nakakabit sa tirante ng espesyal na damit. 
 
 
 
@@ -704,7 +704,7 @@ Gumawa pa rin sila ng dalawa pang parang singsing na ginto at ikabit nila ito sa
 
 
 
-Pagkatapos, tinahi nila ng asul na panali ang ilalim ng mga parang singsing sa bulsa sa dibdib at ang mga parang singsing sa espesyal na damit. Sa pamamagitan nito, mapapagdugtong nang maayos ang mga parang singsing sa bulsa sa dibdib at sa espesyal na damit, sa itaas ng sinturon. Ginawa nila itong lahat_ ayon sa iniutos ng Panginoon kay Moises.
+Pagkatapos, tinahi nila ng asul na panali ang ilalim ng mga parang singsing sa bulsa sa dibdib at ang mga parang singsing sa espesyal na damit. Sa pamamagitan nito, mapapagdugtong nang maayos ang mga parang singsing sa bulsa sa dibdib at sa espesyal na damit, sa itaas ng sinturon. Ginawa nila itong lahat ayon sa iniutos ng Panginoon kay Moises.
 
 ## Ang Iba pang Damit ng mga Pari 
 
@@ -739,7 +739,7 @@ Pagkatapos, tinahi nila ng asul na panali ang ilalim ng mga parang singsing sa b
 
 
 
-Tumahi rin sila ng damit-panlabas ng mga pari_. Ang mga ito ay napapatungan ng espesyal na damit. Ang telang ginamit nila sa pagtahi ng damit-panlabas ay lana na purong asul. 
+Tumahi rin sila ng damit-panlabas ng mga pari. Ang mga ito ay napapatungan ng espesyal na damit. Ang telang ginamit nila sa pagtahi ng damit-panlabas ay lana na purong asul. 
 
 
 
@@ -805,7 +805,7 @@ Ang mga damit na itoʼy may butas sa gitna para sa ulo at may parang kwelyo para
 
 
 
-Nilagyan nila ang palibot ng laylayan ng damit ng mga palamuting korteng prutas na pomegranata, na gawa sa pinong telang_ linen na binurdahan gamit ang lanang kulay asul, ube at pula. 25-26Nilagyan nila ng mga gintong kampanilya ang laylayan ng damit sa pagitan ng palamuting hugis pomegranata. Ang damit na ito ang isusuot ni Aaron kapag naglilingkod na siya sa Panginoon. Ginawa nila itong lahat_ ayon sa iniutos ng Panginoon kay Moises. 
+Nilagyan nila ang palibot ng laylayan ng damit ng mga palamuting korteng prutas na pomegranata, na gawa sa pinong telang linen na binurdahan gamit ang lanang kulay asul, ube at pula. 25-26Nilagyan nila ng mga gintong kampanilya ang laylayan ng damit sa pagitan ng palamuting hugis pomegranata. Ang damit na ito ang isusuot ni Aaron kapag naglilingkod na siya sa Panginoon. Ginawa nila itong lahat ayon sa iniutos ng Panginoon kay Moises. 
 
 
 
@@ -904,7 +904,7 @@ Ganito rin ang tela na ginamit nila sa paggawa ng mga turban, mga panali sa ulo 
 
 
 
-Ang mga sinturon ay gawa rin sa pinong telang_ linen na binurdahan gamit ang lanang kulay asul, ube at pula. At napakaganda ng pagkakaburda nito. Ginawa nila itong lahat_ ayon sa iniutos ng Panginoon kay Moises. 
+Ang mga sinturon ay gawa rin sa pinong telang linen na binurdahan gamit ang lanang kulay asul, ube at pula. At napakaganda ng pagkakaburda nito. Ginawa nila itong lahat ayon sa iniutos ng Panginoon kay Moises. 
 
 
 
@@ -970,7 +970,7 @@ Gumawa sila ng parang medalya na purong ginto at inukit nila ang mga salitang it
 
 
 
-Itinali nila ito sa harap ng turban sa pamamagitan ng asul na panali. Ginawa nila itong lahat_ ayon sa iniutos ng Panginoon kay Moises.
+Itinali nila ito sa harap ng turban sa pamamagitan ng asul na panali. Ginawa nila itong lahat ayon sa iniutos ng Panginoon kay Moises.
 
 ## Ang Pagsusuri ni Moises sa Natapos na Gawain 
 
@@ -1005,7 +1005,7 @@ Itinali nila ito sa harap ng turban sa pamamagitan ng asul na panali. Ginawa nil
 
 
 
-Natapos ang lahat ng gawain sa Toldang Sambahan na tinatawag ding_ Toldang Tipanan. Ginawa ng mga Israelita ang lahat ng iniutos ng Panginoon kay Moises. 
+Natapos ang lahat ng gawain sa Toldang Sambahan na tinatawag ding Toldang Tipanan. Ginawa ng mga Israelita ang lahat ng iniutos ng Panginoon kay Moises. 
 
 
 
@@ -1269,7 +1269,7 @@ ang altar na tanso at ang parilyang tanso, ang pambuhat at ang lahat ng kagamita
 
 
 
-ang mga kurtina sa palibot_ ng bakuran at ang mga haligi at pundasyon nito, ang kurtina sa pintuan ng bakuran, ang mga panali at mga tulos para sa kurtina ng_ bakuran, ang lahat ng kagamitan sa Toldang Sambahan na tinatawag ding_ Toldang Tipanan; 
+ang mga kurtina sa palibot ng bakuran at ang mga haligi at pundasyon nito, ang kurtina sa pintuan ng bakuran, ang mga panali at mga tulos para sa kurtina ng bakuran, ang lahat ng kagamitan sa Toldang Sambahan na tinatawag ding Toldang Tipanan; 
 
 
 

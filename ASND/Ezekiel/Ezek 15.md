@@ -139,7 +139,7 @@ Ang mga sanga ba nito ay magagamit sa iba pang mga bagay? Maaari ba itong gawing
 
 
 
-Hindi!_ Pwede lang itong panggatong; ganoon pa man madali itong matupok. 
+Hindi! Pwede lang itong panggatong; ganoon pa man madali itong matupok. 
 
 
 
@@ -205,7 +205,7 @@ Kaya wala talaga itong kabuluhan, sunog man o hindi pa.
 
 
 
-"Ngayon, ako,_ ang Panginoong Dios, ay nagsasabi na ang mga mamamayan ng Jerusalem ay tulad ng baging ng ubas na tumutubong kasama ng mga punongkahoy sa kagubatan. Dahil itoʼy walang kabuluhan, susunugin ko sila. 
+"Ngayon, ako, ang Panginoong Dios, ay nagsasabi na ang mga mamamayan ng Jerusalem ay tulad ng baging ng ubas na tumutubong kasama ng mga punongkahoy sa kagubatan. Dahil itoʼy walang kabuluhan, susunugin ko sila. 
 
 
 
@@ -238,7 +238,7 @@ Kaya wala talaga itong kabuluhan, sunog man o hindi pa.
 
 
 
-Oo,_ parurusahan ko sila at kahit na makatakas sila sa apoy, tutupukin pa rin sila ng isa pang apoy. At malalaman nila na ako ang Panginoon. 
+Oo, parurusahan ko sila at kahit na makatakas sila sa apoy, tutupukin pa rin sila ng isa pang apoy. At malalaman nila na ako ang Panginoon. 
 
 
 
@@ -271,4 +271,4 @@ Oo,_ parurusahan ko sila at kahit na makatakas sila sa apoy, tutupukin pa rin si
 
 
 
-Gagawin kong mapanglaw ang lugar nila dahil nagtaksil sila sa akin. Ako,_ ang Panginoong Dios, ang nagsasabi nito."
+Gagawin kong mapanglaw ang lugar nila dahil nagtaksil sila sa akin. Ako, ang Panginoong Dios, ang nagsasabi nito."

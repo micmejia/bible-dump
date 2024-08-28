@@ -39,7 +39,7 @@ up: ['Joel']
 
 
 
-Sinabi ng Panginoon,_ "Sa panahong iyon na ibabalik ko ang mabuting kalagayan ng Juda at Jerusalem, 
+Sinabi ng Panginoon, "Sa panahong iyon na ibabalik ko ang mabuting kalagayan ng Juda at Jerusalem, 
 
 
 
@@ -105,7 +105,7 @@ titipunin ko ang mga bansa at dadalhin ko sila sa Lambak ni Jehoshafat. Doon ko 
 
 
 
-Nagpalabunutan sila para paghati-hatian_ ang aking mga mamamayan, at ipinagbili nila bilang alipin ang mga batang lalaki at babae, upang ibili ng alak at ibayad sa babaeng bayaran. 
+Nagpalabunutan sila para paghati-hatian ang aking mga mamamayan, at ipinagbili nila bilang alipin ang mga batang lalaki at babae, upang ibili ng alak at ibayad sa babaeng bayaran. 
 
 
 
@@ -204,7 +204,7 @@ Sapagkat kinuha ninyo ang aking mga ginto at pilak at iba pang mamahaling bagay 
 
 
 
-Ipinagbili ninyo sa mga Griego ang mga mamamayan ng Juda at Jerusalem bilang mga alipin_, upang mailayo ninyo sila sa sarili nilang bayan. 
+Ipinagbili ninyo sa mga Griego ang mga mamamayan ng Juda at Jerusalem bilang mga alipin, upang mailayo ninyo sila sa sarili nilang bayan. 
 
 
 
@@ -237,7 +237,7 @@ Ipinagbili ninyo sa mga Griego ang mga mamamayan ng Juda at Jerusalem bilang mga
 
 
 
-Pero tutulungan ko silang makaalis sa mga bayang sa mga bayang pinagbilhan ninyo sa kanila, at gagawin ko sa inyo ang inyong ginawa sa kanila_. 
+Pero tutulungan ko silang makaalis sa mga bayang sa mga bayang pinagbilhan ninyo sa kanila, at gagawin ko sa inyo ang inyong ginawa sa kanila. 
 
 
 
@@ -270,7 +270,7 @@ Pero tutulungan ko silang makaalis sa mga bayang sa mga bayang pinagbilhan ninyo
 
 
 
-Ipagbibili ko ang inyong mga anak sa mga taga-Juda, at ipagbibili naman nila ang mga ito sa mga taga-Sabea na nakatira sa malayong lugar." Mangyayari nga ito,_ dahil ako,_ ang Panginoon, ang nagsasabi nito. 
+Ipagbibili ko ang inyong mga anak sa mga taga-Juda, at ipagbibili naman nila ang mga ito sa mga taga-Sabea na nakatira sa malayong lugar." Mangyayari nga ito, dahil ako, ang Panginoon, ang nagsasabi nito. 
 
 
 
@@ -369,7 +369,7 @@ Gawin ninyong mga espada ang sudsod ng inyong mga araro at gawin ninyong mga sib
 
 
 
-Pumarito kayo, lahat kayong mga bansang nasa paligid, at magtipon kayo doon sa Lambak ni Jehoshafat_. Panginoon, papuntahin nʼyo na po roon_ ang inyong hukbo. 
+Pumarito kayo, lahat kayong mga bansang nasa paligid, at magtipon kayo doon sa Lambak ni Jehoshafat. Panginoon, papuntahin nʼyo na po roon ang inyong hukbo. 
 
 
 
@@ -402,7 +402,7 @@ Pumarito kayo, lahat kayong mga bansang nasa paligid, at magtipon kayo doon sa L
 
 
 
-Sinabi ng Panginoon,_ "Kailangang hikayatin ang mga bansa sa paligid na pumunta sa Lambak ni Jehoshafat, dahil doon ko sila hahatulan. 
+Sinabi ng Panginoon, "Kailangang hikayatin ang mga bansa sa paligid na pumunta sa Lambak ni Jehoshafat, dahil doon ko sila hahatulan. 
 
 
 
@@ -534,7 +534,7 @@ Magdidilim ang araw at ang buwan, at hindi na magliliwanag ang mga bituin.
 
 
 
-Aatungal na parang leon_ ang Panginoon mula sa Zion; dadagundong ang kanyang tinig mula sa Jerusalem. Kaya mayayanig ang lupa at langit. Pero ang Panginoon ang matibay na kanlungan para sa mga Israelita na kanyang mamamayan.
+Aatungal na parang leon ang Panginoon mula sa Zion; dadagundong ang kanyang tinig mula sa Jerusalem. Kaya mayayanig ang lupa at langit. Pero ang Panginoon ang matibay na kanlungan para sa mga Israelita na kanyang mamamayan.
 
 ## Ang mga Pagpapalang para sa mga Mamamayan ng Dios 
 
@@ -569,7 +569,7 @@ Aatungal na parang leon_ ang Panginoon mula sa Zion; dadagundong ang kanyang tin
 
 
 
-Sinabi ng Panginoon,_ "Malalaman ninyong mga taga-Juda na_ ako, ang Panginoon na inyong Dios, ay nakatira sa Zion, ang aking banal na bundok. Magiging banal muli_ ang Jerusalem; hindi na ito muling lulusubin ng ibang bansa. 
+Sinabi ng Panginoon, "Malalaman ninyong mga taga-Juda na ako, ang Panginoon na inyong Dios, ay nakatira sa Zion, ang aking banal na bundok. Magiging banal muli ang Jerusalem; hindi na ito muling lulusubin ng ibang bansa. 
 
 
 
@@ -602,7 +602,7 @@ Sinabi ng Panginoon,_ "Malalaman ninyong mga taga-Juda na_ ako, ang Panginoon na
 
 
 
-Sa panahong iyon, pagpapalain ko kayo_. Magiging sagana ang inyong bagong katas ng ubas na mula sa maraming ubas_ sa mga bundok. Magiging sagana rin ang inyong gatas mula sa maraming baka at kambing na nanginginain_ sa mga burol. At hindi na matutuyuan ang inyong mga sapa at ilog. At may bukal mula sa templo ng Panginoon na dadaloy sa lambak na may mga punong akasya. 
+Sa panahong iyon, pagpapalain ko kayo. Magiging sagana ang inyong bagong katas ng ubas na mula sa maraming ubas sa mga bundok. Magiging sagana rin ang inyong gatas mula sa maraming baka at kambing na nanginginain sa mga burol. At hindi na matutuyuan ang inyong mga sapa at ilog. At may bukal mula sa templo ng Panginoon na dadaloy sa lambak na may mga punong akasya. 
 
 
 
@@ -701,4 +701,4 @@ Pero ang Juda at ang Jerusalem ay titirhan magpakailanman.
 
 
 
-Ipaghihiganti ko ang mga pinatay sa aking mga mamamayan. Parurusahan ko ang mga gumawa nito sa kanila. Ako,_ ang Panginoon na nakatira sa Zion."
+Ipaghihiganti ko ang mga pinatay sa aking mga mamamayan. Parurusahan ko ang mga gumawa nito sa kanila. Ako, ang Panginoon na nakatira sa Zion."

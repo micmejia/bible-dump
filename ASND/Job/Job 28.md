@@ -172,7 +172,7 @@ Humuhukay sila ng daanan sa minahan, sa dakong walang taong nakatira at dumadaan
 
 
 
-Sa ibabaw ng lupa tumutubo ang mga tanim kung saan_ nagmumula ang pagkain, pero sa ilalim ay parang dinaanan ng apoy. 
+Sa ibabaw ng lupa tumutubo ang mga tanim kung saan nagmumula ang pagkain, pero sa ilalim ay parang dinaanan ng apoy. 
 
 
 
@@ -271,7 +271,7 @@ Ang mga daan patungo roon ay hindi makita ng mga ibon, kahit ng ibong mandaragit
 
 
 
-Hindi rin ito nadaanan ng mga mababangis na hayop_ o ng leon. 
+Hindi rin ito nadaanan ng mga mababangis na hayop o ng leon. 
 
 
 
@@ -535,7 +535,7 @@ Hindi rin ito nabibili ng purong ginto o pilak.
 
 
 
-Ang halaga nito ay hindi matutumbasan ng ginto o ng alin mang mamahaling bato_ gaya ng onix o safiro. 
+Ang halaga nito ay hindi matutumbasan ng ginto o ng alin mang mamahaling bato gaya ng onix o safiro. 
 
 
 
@@ -634,7 +634,7 @@ Ang halaga nitoʼy higit pa sa koral, jasper, o rubi.
 
 
 
-Hindi ito mapapantayan ng mamahaling batong_ topaz na mula sa Etiopia at hindi rin mababayaran ng purong ginto. 
+Hindi ito mapapantayan ng mamahaling batong topaz na mula sa Etiopia at hindi rin mababayaran ng purong ginto. 
 
 
 

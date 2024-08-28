@@ -40,7 +40,7 @@ next: ['1 Chr 10']
 
 
 
-Nailista ang lahat ng Israelita sa talaan ng mga lahi sa Aklat ng Kasaysayan ng mga hari ng Israel. Ang mga mamamayan ng Juda ay binihag sa Babilonia dahil hindi sila naging tapat sa Panginoon_. 
+Nailista ang lahat ng Israelita sa talaan ng mga lahi sa Aklat ng Kasaysayan ng mga hari ng Israel. Ang mga mamamayan ng Juda ay binihag sa Babilonia dahil hindi sila naging tapat sa Panginoon. 
 
 
 
@@ -205,7 +205,7 @@ Sa mga Shilonita: si Asaya (ang panganay) at ang mga anak niya.
 
 
 
-Sa mga Zerahita: ang pamilya ni Jeuel. Silang lahat ay_ 690 mula sa lahi ni Juda_. 
+Sa mga Zerahita: ang pamilya ni Jeuel. Silang lahat ay 690 mula sa lahi ni Juda. 
 
 
 
@@ -436,7 +436,7 @@ si Adaya na anak ni Jeroham (si Jeroham ay anak ni Pashur; si Pashur ay anak ni 
 
 
 
-Ang mga pari na nakabalik_ ay 1,760 lahat. Mahuhusay silang pinuno ng kanilang mga pamilya. Sila ang mga pinagkatiwalaan sa paglilingkod sa templo ng Dios. 
+Ang mga pari na nakabalik ay 1,760 lahat. Mahuhusay silang pinuno ng kanilang mga pamilya. Sila ang mga pinagkatiwalaan sa paglilingkod sa templo ng Dios. 
 
 
 
@@ -601,7 +601,7 @@ Ang mga guwardya ng pintuan: sina Shalum, Akub, Talmon, Ahiman, at ang kanilang 
 
 
 
-Hanggang ngayon, sila pa rin ang guwardya ng Pintuan ng Hari sa bandang silangan ng lungsod_. Sila noon ang mga guwardya ng pintuang papasok sa kampo ng mga Levita. 
+Hanggang ngayon, sila pa rin ang guwardya ng Pintuan ng Hari sa bandang silangan ng lungsod. Sila noon ang mga guwardya ng pintuang papasok sa kampo ng mga Levita. 
 
 
 
@@ -634,7 +634,7 @@ Hanggang ngayon, sila pa rin ang guwardya ng Pintuan ng Hari sa bandang silangan
 
 
 
-Si Shalum ay anak ni Kore at apo ni Ebiasaf, na mula sa pamilya ni Kora. Si Shalum at ang kanyang mga kamag-anak na mula sa angkan ni Kora ang pinagkatiwalaan sa pagbabantay ng pintuan ng Tolda_ katulad ng kanilang mga ninuno na pinagkatiwalaan sa pagbabantay ng pintuan ng bahay ng Panginoon. 
+Si Shalum ay anak ni Kore at apo ni Ebiasaf, na mula sa pamilya ni Kora. Si Shalum at ang kanyang mga kamag-anak na mula sa angkan ni Kora ang pinagkatiwalaan sa pagbabantay ng pintuan ng Tolda katulad ng kanilang mga ninuno na pinagkatiwalaan sa pagbabantay ng pintuan ng bahay ng Panginoon. 
 
 
 
@@ -700,7 +700,7 @@ Si Finehas na anak ni Eleazar ang namamahala noon sa mga guwardya ng pintuan, at
 
 
 
-Si Zacarias na anak ni Meshelemia ay guwardya rin_ ng pintuan ng Toldang Tipanan. 
+Si Zacarias na anak ni Meshelemia ay guwardya rin ng pintuan ng Toldang Tipanan. 
 
 
 
@@ -1030,7 +1030,7 @@ Ngunit katungkulan ng mga pari ang pagtitimpla ng mga pampalasa.
 
 
 
-Si Matitia na Levita, at panganay na anak ni Shalum na mula sa angkan ni Kora, ang pinagkatiwalaan sa pagluluto ng tinapay para ihandog_. 
+Si Matitia na Levita, at panganay na anak ni Shalum na mula sa angkan ni Kora, ang pinagkatiwalaan sa pagluluto ng tinapay para ihandog. 
 
 
 
@@ -1096,7 +1096,7 @@ Ang ibang angkan ni Kohat ang pinagkatiwalaan sa paghahanda at paglalagay ng mga
 
 
 
-Ang mga musikero sa templo_ na mga pinuno rin ng mga pamilyang Levita ay doon na rin tumira sa mga silid sa templo. At wala na silang iba pang gawain, dahil ginagawa nila ito araw at gabi. 
+Ang mga musikero sa templo na mga pinuno rin ng mga pamilyang Levita ay doon na rin tumira sa mga silid sa templo. At wala na silang iba pang gawain, dahil ginagawa nila ito araw at gabi. 
 
 
 

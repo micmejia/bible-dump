@@ -636,4 +636,4 @@ Sinabi ng Panginoon, "Darating sa Zion ang magliligtas sa inyong mga lahi ni Jac
 
 
 
-At ito ang kasunduan ko sa inyo: Hindi mawawala ang aking Espiritu na nasa inyo at ang mga salitang sinabi ko sa inyo. Sabihin ninyo ito sa inyong mga anak, at kailangang sabihin din ito ng inyong mga anak sa kanilang mga anak hanggang sa susunod pang mga henerasyon. Ako,_ ang Panginoon, ang nagsasabi nito."
+At ito ang kasunduan ko sa inyo: Hindi mawawala ang aking Espiritu na nasa inyo at ang mga salitang sinabi ko sa inyo. Sabihin ninyo ito sa inyong mga anak, at kailangang sabihin din ito ng inyong mga anak sa kanilang mga anak hanggang sa susunod pang mga henerasyon. Ako, ang Panginoon, ang nagsasabi nito."

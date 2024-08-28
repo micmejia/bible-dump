@@ -73,7 +73,7 @@ Dahil ipinanganak na kayong muli, talikuran nʼyo na ang lahat ng uri ng kasamaa
 
 
 
-Gaya ng sanggol na bagong panganak, manabik kayo sa dalisay na gatas na espiritwal, upang lumago kayo hanggang makamtan nʼyo ang ganap na_ kaligtasan 
+Gaya ng sanggol na bagong panganak, manabik kayo sa dalisay na gatas na espiritwal, upang lumago kayo hanggang makamtan nʼyo ang ganap na kaligtasan 
 
 
 
@@ -205,7 +205,7 @@ kayo na tulad din ng batong buhay ay itinatayo ng Dios bilang isang gusaling esp
 
 
 
-Sapagkat sinasabi ng Dios_ sa Kasulatan, "May pinili akong maghahari sa Zion. Tulad niyaʼy mahalagang bato na ginawa kong pundasyon. Ang sumasampalataya sa kanya ay hindi mapapahiya." 
+Sapagkat sinasabi ng Dios sa Kasulatan, "May pinili akong maghahari sa Zion. Tulad niyaʼy mahalagang bato na ginawa kong pundasyon. Ang sumasampalataya sa kanya ay hindi mapapahiya." 
 
 
 
@@ -570,7 +570,7 @@ Malaya nga kayo, pero hindi ito nangangahulugang malaya na kayong gumawa ng masa
 
 
 
-Igalang nʼyo ang lahat ng tao at mahalin nʼyo ang mga kapatid ninyo kay Cristo_. Mamuhay kayo nang may takot sa Dios, at igalang ninyo ang Emperador.
+Igalang nʼyo ang lahat ng tao at mahalin nʼyo ang mga kapatid ninyo kay Cristo. Mamuhay kayo nang may takot sa Dios, at igalang ninyo ang Emperador.
 
 ## Tularan Ninyo si Cristo 
 
@@ -836,4 +836,4 @@ Si Cristo ang umako sa mga kasalanan natin nang ipako siya sa krus, para iwanan 
 
 
 
-Para tayong mga tupang naligaw noon, pero nakabalik na tayo ngayon sa Panginoon na_ Tagapag-alaga at Tagapagbantay ng ating buhay.
+Para tayong mga tupang naligaw noon, pero nakabalik na tayo ngayon sa Panginoon na Tagapag-alaga at Tagapagbantay ng ating buhay.

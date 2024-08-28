@@ -273,7 +273,7 @@ Ganito ang gagawin mong paglilinis sa kanila: wisikan mo sila ng tubig na ginaga
 
 
 
-Pagkatapos, pagdalhin mo sila ng batang toro at ng magandang klaseng harina na hinaluan ng langis bilang handog na pagpaparangal sa Panginoon. Pagdalhin mo rin sila_ ng isa pang batang toro bilang handog sa paglilinis. 
+Pagkatapos, pagdalhin mo sila ng batang toro at ng magandang klaseng harina na hinaluan ng langis bilang handog na pagpaparangal sa Panginoon. Pagdalhin mo rin sila ng isa pang batang toro bilang handog sa paglilinis. 
 
 
 

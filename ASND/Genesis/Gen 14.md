@@ -337,7 +337,7 @@ at nakipaglaban sila kina Haring Kedorlaomer ng Elam, Haring Tidal ng Goyim, Har
 
 
 
-Ngayon, ang Lambak ng Sidim ay may maraming malalim na hukay na pinagkukunan ng aspalto. At nang tumakas ang hari ng Sodom at ng Gomora kasama ang mga tauhan nila, nahulog sila sa mga balon, pero ang iba nilang kasama ay tumakas sa mga bundok. 11-12Ang lahat ng ari-arian ng Sodom at Gomora pati ang mga pagkain nila ay kinuha ng mga kalaban nila. Nabihag din nila si Lot na pamangkin ni Abram at kinuha ang mga ari-arian nito, dahil doon siya nakatira sa Sodom. Pagkatapos itong makuha ng mga kalaban, umalis agad_ sila. 
+Ngayon, ang Lambak ng Sidim ay may maraming malalim na hukay na pinagkukunan ng aspalto. At nang tumakas ang hari ng Sodom at ng Gomora kasama ang mga tauhan nila, nahulog sila sa mga balon, pero ang iba nilang kasama ay tumakas sa mga bundok. 11-12Ang lahat ng ari-arian ng Sodom at Gomora pati ang mga pagkain nila ay kinuha ng mga kalaban nila. Nabihag din nila si Lot na pamangkin ni Abram at kinuha ang mga ari-arian nito, dahil doon siya nakatira sa Sodom. Pagkatapos itong makuha ng mga kalaban, umalis agad sila. 
 
 
 
@@ -735,4 +735,4 @@ na hindi ako kukuha ng kahit anumang ari-arian na galing sa iyo, kahit sinulid o
 
 
 
-Hindi ako tatanggap ng kahit anuman para sa sarili ko. Ang ituturing ko lang na natanggap ko ay ang mga kinain ng aking mga tauhan, at pabayaan mo lang sina Aner, Eshcol at Mamre na sumama sa akin sa pagkuha ng bahagi nila sa mga bagay na nakuha mula sa labanan_."
+Hindi ako tatanggap ng kahit anuman para sa sarili ko. Ang ituturing ko lang na natanggap ko ay ang mga kinain ng aking mga tauhan, at pabayaan mo lang sina Aner, Eshcol at Mamre na sumama sa akin sa pagkuha ng bahagi nila sa mga bagay na nakuha mula sa labanan."

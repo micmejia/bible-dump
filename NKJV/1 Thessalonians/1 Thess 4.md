@@ -25,13 +25,13 @@ that each of you should know how to possess his own vessel in sanctification and
 not in passion of lust, like the Gentiles who do not know God; 
 
 ###### 6 
-that no one should take advantage of and defraud his brother in this matter, because the Lord _is_ the avenger of all such, as we also forewarned you and testified. 
+that no one should take advantage of and defraud his brother in this matter, because the Lord is the avenger of all such, as we also forewarned you and testified. 
 
 ###### 7 
 For God did not call us to uncleanness, but in holiness. 
 
 ###### 8 
-Therefore he who rejects _this_ does not reject man, but God, who has also given us His Holy Spirit.
+Therefore he who rejects this does not reject man, but God, who has also given us His Holy Spirit.
 
 ## A Brotherly and Orderly Life 
 
@@ -45,7 +45,7 @@ and indeed you do so toward all the brethren who are in all Macedonia. But we ur
 that you also aspire to lead a quiet life, to mind your own business, and to work with your own hands, as we commanded you, 
 
 ###### 12 
-that you may walk properly toward those who are outside, and _that_ you may lack nothing.
+that you may walk properly toward those who are outside, and that you may lack nothing.
 
 ## The Comfort of Christ's Coming 
 
@@ -56,13 +56,13 @@ But I do not want you to be ignorant, brethren, concerning those who have fallen
 For if we believe that Jesus died and rose again, even so God will bring with Him those who sleep in Jesus. 
 
 ###### 15 
-For this we say to you by the word of the Lord, that we who are alive _and_ remain until the coming of the Lord will by no means precede those who are asleep. 
+For this we say to you by the word of the Lord, that we who are alive and remain until the coming of the Lord will by no means precede those who are asleep. 
 
 ###### 16 
 For the Lord Himself will descend from heaven with a shout, with the voice of an archangel, and with the trumpet of God. And the dead in Christ will rise first. 
 
 ###### 17 
-Then we who are alive _and_ remain shall be caught up together with them in the clouds to meet the Lord in the air. And thus we shall always be with the Lord. 
+Then we who are alive and remain shall be caught up together with them in the clouds to meet the Lord in the air. And thus we shall always be with the Lord. 
 
 ###### 18 
 Therefore comfort one another with these words.

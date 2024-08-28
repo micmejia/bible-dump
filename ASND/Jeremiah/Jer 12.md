@@ -172,7 +172,7 @@ Hanggang kailan po kaya ang pagkatuyo ng lupa at ang pagkalanta ng mga damo? Nam
 
 
 
-Sinabi ng Panginoon, "Jeremias,_ kung napapagod ka sa pakikipaghabulan sa mga tao, di lalo na sa mga kabayo? Kung nadadapa ka sa lugar na patag, di lalo na sa kagubatan na malapit sa Ilog_ ng Jordan? 
+Sinabi ng Panginoon, "Jeremias, kung napapagod ka sa pakikipaghabulan sa mga tao, di lalo na sa mga kabayo? Kung nadadapa ka sa lugar na patag, di lalo na sa kagubatan na malapit sa Ilog ng Jordan? 
 
 
 
@@ -337,7 +337,7 @@ Naging kasuklam-suklam sila sa akin na parang ibong mandaragit. At sila mismoʼy
 
 
 
-Wawasakin ng maraming pinuno ang Juda na itinuturing kong_ aking ubasan. Tatapak-tapakan nila itong magandang lupain at gagawing ilang. 
+Wawasakin ng maraming pinuno ang Juda na itinuturing kong aking ubasan. Tatapak-tapakan nila itong magandang lupain at gagawing ilang. 
 
 
 
@@ -568,4 +568,4 @@ At kung tatanggapin nila nang buong puso ang pananampalataya ng mga mamamayan ko
 
 
 
-Pero ang alin mang bansa na hindi susunod sa akin_ ay palalayasin ko sa kanilang lupain at lilipulin. Ako,_ ang Panginoon, ang nagsasabi nito."
+Pero ang alin mang bansa na hindi susunod sa akin ay palalayasin ko sa kanilang lupain at lilipulin. Ako, ang Panginoon, ang nagsasabi nito."

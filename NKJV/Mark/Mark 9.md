@@ -52,7 +52,7 @@ But I say to you that Elijah has also come, and they did to him whatever they wi
 And when He came to the disciples, He saw a great multitude around them, and scribes disputing with them. 
 
 ###### 15 
-Immediately, when they saw Him, all the people were greatly amazed, and running to _Him,_ greeted Him. 
+Immediately, when they saw Him, all the people were greatly amazed, and running to Him, greeted Him. 
 
 ###### 16 
 And He asked the scribes, "What are you discussing with them?" 
@@ -76,7 +76,7 @@ So He asked his father, "How long has this been happening to him?" And he said, 
 And often he has thrown him both into the fire and into the water to destroy him. But if You can do anything, have compassion on us and help us." 
 
 ###### 23 
-Jesus said to him, "If you can believe, all things _are_ possible to him who believes." 
+Jesus said to him, "If you can believe, all things are possible to him who believes." 
 
 ###### 24 
 Immediately the father of the child cried out and said with tears, "Lord, I believe; help my unbelief!" 
@@ -85,7 +85,7 @@ Immediately the father of the child cried out and said with tears, "Lord, I beli
 When Jesus saw that the people came running together, He rebuked the unclean spirit, saying to it, "Deaf and dumb spirit, I command you, come out of him and enter him no more!" 
 
 ###### 26 
-Then _the spirit_ cried out, convulsed him greatly, and came out of him. And he became as one dead, so that many said, "He is dead." 
+Then the spirit cried out, convulsed him greatly, and came out of him. And he became as one dead, so that many said, "He is dead." 
 
 ###### 27 
 But Jesus took him by the hand and lifted him up, and he arose. 
@@ -97,7 +97,7 @@ And when He had come into the house, His disciples asked Him privately, "Why cou
 So He said to them, "This kind can come out by nothing but prayer and fasting." ## Jesus Again Predicts His Death and Resurrection 
 
 ###### 30 
-Then they departed from there and passed through Galilee, and He did not want anyone to know _it._ 
+Then they departed from there and passed through Galilee, and He did not want anyone to know it. 
 
 ###### 31 
 For He taught His disciples and said to them, "The Son of Man is being betrayed into the hands of men, and they will kill Him. And after He is killed, He will rise the third day." 
@@ -111,7 +111,7 @@ But they did not understand this saying, and were afraid to ask Him.
 Then He came to Capernaum. And when He was in the house He asked them, "What was it you disputed among yourselves on the road?" 
 
 ###### 34 
-But they kept silent, for on the road they had disputed among themselves who _would be the_ greatest. 
+But they kept silent, for on the road they had disputed among themselves who would be the greatest. 
 
 ###### 35 
 And He sat down, called the twelve, and said to them, "If anyone desires to be first, he shall be last of all and servant of all." 
@@ -161,4 +161,4 @@ where 'Their worm does not die And the fire is not quenched.' ## Tasteless Salt 
 "For everyone will be seasoned with fire, and every sacrifice will be seasoned with salt. 
 
 ###### 50 
-Salt _is_ good, but if the salt loses its flavor, how will you season it? Have salt in yourselves, and have peace with one another."
+Salt is good, but if the salt loses its flavor, how will you season it? Have salt in yourselves, and have peace with one another."

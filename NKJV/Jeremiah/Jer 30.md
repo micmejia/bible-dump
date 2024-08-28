@@ -19,46 +19,46 @@ The word that came to Jeremiah from the Lord, saying,
 For behold, the days are coming,' says the Lord, 'that I will bring back from captivity My people Israel and Judah,' says the Lord. 'And I will cause them to return to the land that I gave to their fathers, and they shall possess it.' " 
 
 ###### 4 
-Now these _are_ the words that the Lord spoke concerning Israel and Judah. 
+Now these are the words that the Lord spoke concerning Israel and Judah. 
 
 ###### 5 
 "For thus says the Lord: 'We have heard a voice of trembling, Of fear, and not of peace. 
 
 ###### 6 
-Ask now, and see, Whether a man is ever in labor with child? So why do I see every man _with_ his hands on his loins Like a woman in labor, And all faces turned pale? 
+Ask now, and see, Whether a man is ever in labor with child? So why do I see every man with his hands on his loins Like a woman in labor, And all faces turned pale? 
 
 ###### 7 
-Alas! For that day _is_ great, So that none _is_ like it; And it _is_ the time of Jacob's trouble, But he shall be saved out of it. 
+Alas! For that day is great, So that none is like it; And it is the time of Jacob's trouble, But he shall be saved out of it. 
 
 ###### 8 
-'For it shall come to pass in that day,' Says the Lord of hosts, '_That_ I will break his yoke from your neck, And will burst your bonds; Foreigners shall no more enslave them. 
+'For it shall come to pass in that day,' Says the Lord of hosts, 'That I will break his yoke from your neck, And will burst your bonds; Foreigners shall no more enslave them. 
 
 ###### 9 
 But they shall serve the Lord their God, And David their king, Whom I will raise up for them. 
 
 ###### 10 
-'Therefore do not fear, O My servant Jacob,' says the Lord, 'Nor be dismayed, O Israel; For behold, I will save you from afar, And your seed from the land of their captivity. Jacob shall return, have rest and be quiet, And no one shall make _him_ afraid. 
+'Therefore do not fear, O My servant Jacob,' says the Lord, 'Nor be dismayed, O Israel; For behold, I will save you from afar, And your seed from the land of their captivity. Jacob shall return, have rest and be quiet, And no one shall make him afraid. 
 
 ###### 11 
-For I _am_ with you,' says the Lord, 'to save you; Though I make a full end of all nations where I have scattered you, Yet I will not make a complete end of you. But I will correct you in justice, And will not let you go altogether unpunished.' 
+For I am with you,' says the Lord, 'to save you; Though I make a full end of all nations where I have scattered you, Yet I will not make a complete end of you. But I will correct you in justice, And will not let you go altogether unpunished.' 
 
 ###### 12 
-"For thus says the Lord: 'Your affliction _is_ incurable, Your wound _is_ severe. 
+"For thus says the Lord: 'Your affliction is incurable, Your wound is severe. 
 
 ###### 13 
-_There is_ no one to plead your cause, That you may be bound up; You have no healing medicines. 
+There is no one to plead your cause, That you may be bound up; You have no healing medicines. 
 
 ###### 14 
-All your lovers have forgotten you; They do not seek you; For I have wounded you with the wound of an enemy, With the chastisement of a cruel one, For the multitude of your iniquities, _Because_ your sins have increased. 
+All your lovers have forgotten you; They do not seek you; For I have wounded you with the wound of an enemy, With the chastisement of a cruel one, For the multitude of your iniquities, Because your sins have increased. 
 
 ###### 15 
-Why do you cry about your affliction? Your sorrow _is_ incurable. Because of the multitude of your iniquities, _Because_ your sins have increased, I have done these things to you. 
+Why do you cry about your affliction? Your sorrow is incurable. Because of the multitude of your iniquities, Because your sins have increased, I have done these things to you. 
 
 ###### 16 
 'Therefore all those who devour you shall be devoured; And all your adversaries, every one of them, shall go into captivity; Those who plunder you shall become plunder, And all who prey upon you I will make a prey. 
 
 ###### 17 
-For I will restore health to you And heal you of your wounds,' says the Lord, 'Because they called you an outcast _saying:_ "This _is_ Zion; No one seeks her." ' 
+For I will restore health to you And heal you of your wounds,' says the Lord, 'Because they called you an outcast saying: "This is Zion; No one seeks her." ' 
 
 ###### 18 
 "Thus says the Lord: 'Behold, I will bring back the captivity of Jacob's tents, And have mercy on his dwelling places; The city shall be built upon its own mound, And the palace shall remain according to its own plan. 
@@ -70,7 +70,7 @@ Then out of them shall proceed thanksgiving And the voice of those who make merr
 Their children also shall be as before, And their congregation shall be established before Me; And I will punish all who oppress them. 
 
 ###### 21 
-Their nobles shall be from among them, And their governor shall come from their midst; Then I will cause him to draw near, And he shall approach Me; For who _is_ this who pledged his heart to approach Me?' says the Lord. 
+Their nobles shall be from among them, And their governor shall come from their midst; Then I will cause him to draw near, And he shall approach Me; For who is this who pledged his heart to approach Me?' says the Lord. 
 
 ###### 22 
 'You shall be My people, And I will be your God.' " 

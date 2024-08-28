@@ -471,7 +471,7 @@ Matapos siyang tuksuhin ng diyablo sa lahat ng paraan, iniwan siya nito at naghi
 
 
 
-Bumalik si Jesus sa Galilea na taglay ang kapangyarihan ng Banal na_ Espiritu. Kumalat sa lahat ng lugar doon ang balita tungkol sa kanya. 
+Bumalik si Jesus sa Galilea na taglay ang kapangyarihan ng Banal na Espiritu. Kumalat sa lahat ng lugar doon ang balita tungkol sa kanya. 
 
 
 
@@ -671,7 +671,7 @@ at ipahayag na dumating na ang panahon ng pagliligtas ng Panginoon."
 
 
 
-Pagkatapos, ibinilot ni Jesus ang Kasulatan at isinauli sa tagapag-ingat nito. Umupo siya para magsimulang mangaral_. Nakatingin sa kanya ang lahat ng naroon. 
+Pagkatapos, ibinilot ni Jesus ang Kasulatan at isinauli sa tagapag-ingat nito. Umupo siya para magsimulang mangaral. Nakatingin sa kanya ang lahat ng naroon. 
 
 
 
@@ -770,7 +770,7 @@ Pinuri siya ng lahat at humanga sa napakaganda niyang pananalita. Sinabi nila, "
 
 
 
-Sinabi ni Jesus sa kanila, "Tiyak na babanggitin ninyo sa akin ang kawikaang ito: 'Manggagamot, gamutin mo muna ang iyong sarili,' na ang ibig sabihin_, 'Gawin mo rin dito sa sarili mong bayan ang mga nababalitaan naming ginawa mo sa Capernaum.' " 
+Sinabi ni Jesus sa kanila, "Tiyak na babanggitin ninyo sa akin ang kawikaang ito: 'Manggagamot, gamutin mo muna ang iyong sarili,' na ang ibig sabihin, 'Gawin mo rin dito sa sarili mong bayan ang mga nababalitaan naming ginawa mo sa Capernaum.' " 
 
 
 
@@ -836,7 +836,7 @@ Sinabi pa ni Jesus sa kanila, "Sinasabi ko sa inyo ang totoo, walang propetang t
 
 
 
-Alalahanin ninyo ang nangyari noong panahon ni Propeta Elias. Hindi nagpaulan ang Dios_ sa loob ng tatlo at kalahating taon, at nagkaroon ng matinding taggutom sa buong lupain. Maraming biyuda sa Israel noon, 
+Alalahanin ninyo ang nangyari noong panahon ni Propeta Elias. Hindi nagpaulan ang Dios sa loob ng tatlo at kalahating taon, at nagkaroon ng matinding taggutom sa buong lupain. Maraming biyuda sa Israel noon, 
 
 
 
@@ -869,7 +869,7 @@ Alalahanin ninyo ang nangyari noong panahon ni Propeta Elias. Hindi nagpaulan an
 
 
 
-pero hindi pinapunta ng Dios_ si Elias sa kaninuman sa kanila kundi sa isang biyuda na hindi Judio_ sa Zarefat na sakop ng Sidon. 
+pero hindi pinapunta ng Dios si Elias sa kaninuman sa kanila kundi sa isang biyuda na hindi Judio sa Zarefat na sakop ng Sidon. 
 
 
 
@@ -902,7 +902,7 @@ pero hindi pinapunta ng Dios_ si Elias sa kaninuman sa kanila kundi sa isang biy
 
 
 
-Ganyan din ang nangyari noong panahon ni propeta Eliseo. Maraming tao sa Israel ang may malubhang sakit sa balat, ngunit walang pinagaling ni isa man sa kanila si Eliseo_. Sa halip, si Naaman pa na taga-Syria ang pinagaling niya_." 
+Ganyan din ang nangyari noong panahon ni propeta Eliseo. Maraming tao sa Israel ang may malubhang sakit sa balat, ngunit walang pinagaling ni isa man sa kanila si Eliseo. Sa halip, si Naaman pa na taga-Syria ang pinagaling niya." 
 
 
 
@@ -1036,7 +1036,7 @@ Pero dumaan siya sa kalagitnaan nila at iniwan sila.
 
 
 
-Mula roon, pumunta si Jesus sa bayan ng Capernaum na sakop ng Galilea. Nangaral siya sa sambahan ng_ mga Judio sa Araw ng Pamamahinga. 
+Mula roon, pumunta si Jesus sa bayan ng Capernaum na sakop ng Galilea. Nangaral siya sa sambahan ng mga Judio sa Araw ng Pamamahinga. 
 
 
 
@@ -1135,7 +1135,7 @@ Doon sa sambahan ay may isang lalaking sinaniban ng masamang espiritu. Sumigaw s
 
 
 
-"Ano ang pakialam mo sa amin, Jesus na taga-Nazaret? Naparito ka ba para puksain kami? Kilala kita! Ikaw ang Banal na sugo_ ng Dios." 
+"Ano ang pakialam mo sa amin, Jesus na taga-Nazaret? Naparito ka ba para puksain kami? Kilala kita! Ikaw ang Banal na sugo ng Dios." 
 
 
 
@@ -1368,7 +1368,7 @@ Nang palubog na ang araw, dinala ng mga tao kay Jesus ang lahat ng may sakit. Sa
 
 
 
-Pinalabas din niya ang masasamang espiritu mula sa maraming tao. Habang lumalabas ang masasamang espiritu, sumisigaw sila kay Jesus_, "Ikaw ang Anak ng Dios!" Pero sinaway sila ni Jesus at pinatahimik, dahil alam nilang siya ang Cristo. 
+Pinalabas din niya ang masasamang espiritu mula sa maraming tao. Habang lumalabas ang masasamang espiritu, sumisigaw sila kay Jesus, "Ikaw ang Anak ng Dios!" Pero sinaway sila ni Jesus at pinatahimik, dahil alam nilang siya ang Cristo. 
 
 
 

@@ -106,7 +106,7 @@ May isang kapitan doon ng hukbong Romano na may aliping malubha ang sakit at nag
 
 
 
-Kaya nang mabalitaan ng kapitan ang tungkol kay Jesus, sinugo niya ang ilang mga pinuno ng mga Judio para pakiusapan si Jesus na pumunta sa bahay niya_ at pagalingin ang kanyang alipin. 
+Kaya nang mabalitaan ng kapitan ang tungkol kay Jesus, sinugo niya ang ilang mga pinuno ng mga Judio para pakiusapan si Jesus na pumunta sa bahay niya at pagalingin ang kanyang alipin. 
 
 
 
@@ -405,7 +405,7 @@ Pagkatapos, pumunta si Jesus sa bayan ng Nain. Sumama sa kanya ang mga tagasunod
 
 
 
-Nang malapit na sila sa pintuan ng bayan ng Nain_, nakasalubong nila ang libing ng kaisa-isang anak ng isang biyuda. Marami ang nakikipaglibing. 
+Nang malapit na sila sa pintuan ng bayan ng Nain, nakasalubong nila ang libing ng kaisa-isang anak ng isang biyuda. Marami ang nakikipaglibing. 
 
 
 
@@ -704,7 +704,7 @@ Pagdating nila kay Jesus, sinabi nila, "Pinapunta po kami rito ni Juan na tagapa
 
 
 
-Nang mga sandaling iyon, maraming pinagaling si Jesus na mga may sakit, at pinalayas niya ang masasamang espiritu sa mga tao_. Pinagaling din niya ang mga bulag. 
+Nang mga sandaling iyon, maraming pinagaling si Jesus na mga may sakit, at pinalayas niya ang masasamang espiritu sa mga tao. Pinagaling din niya ang mga bulag. 
 
 
 
@@ -737,7 +737,7 @@ Nang mga sandaling iyon, maraming pinagaling si Jesus na mga may sakit, at pinal
 
 
 
-Kaya sinabi niya sa mga tagasunod ni Juan_, "Bumalik kayo kay Juan at sabihin sa kanya ang nakita at narinig ninyo: Nakakakita ang mga bulag, nakakalakad ang mga lumpo, gumagaling ang mga may malubhang sakit sa balat, nakakarinig ang mga bingi, muling nabubuhay ang mga patay, at ipinangangaral sa mga mahihirap ang Magandang Balita. 
+Kaya sinabi niya sa mga tagasunod ni Juan, "Bumalik kayo kay Juan at sabihin sa kanya ang nakita at narinig ninyo: Nakakakita ang mga bulag, nakakalakad ang mga lumpo, gumagaling ang mga may malubhang sakit sa balat, nakakarinig ang mga bingi, muling nabubuhay ang mga patay, at ipinangangaral sa mga mahihirap ang Magandang Balita. 
 
 
 
@@ -803,7 +803,7 @@ Mapalad ang taong hindi nagdududa sa akin."
 
 
 
-Nang makaalis na ang mga taong inutusan ni Juan, nagtanong si Jesus sa mga tao tungkol kay Juan, "Noong pumunta kayo kay Juan sa ilang, ano ang inaasahan ninyong makita? Isang taong tulad ng talahib na humahapay sa ihip ng_ hangin? 
+Nang makaalis na ang mga taong inutusan ni Juan, nagtanong si Jesus sa mga tao tungkol kay Juan, "Noong pumunta kayo kay Juan sa ilang, ano ang inaasahan ninyong makita? Isang taong tulad ng talahib na humahapay sa ihip ng hangin? 
 
 
 
@@ -902,7 +902,7 @@ Pumunta kayo roon para makita ang isang propeta, hindi ba? Totoo, isa nga siyang
 
 
 
-Siya ang binabanggit ng Dios_ sa Kasulatan, 'Ipapadala ko ang aking mensahero. Mauuna siya sa iyo upang ihanda ang dadaanan mo.' 
+Siya ang binabanggit ng Dios sa Kasulatan, 'Ipapadala ko ang aking mensahero. Mauuna siya sa iyo upang ihanda ang dadaanan mo.' 
 
 
 
@@ -1034,7 +1034,7 @@ Pero ang mga Pariseo at mga tagapagturo ng Kautusan ay tumanggi sa layunin ng Di
 
 
 
-Sinabi pa ni Jesus,_ "Sa anong bagay ko maihahambing ang mga tao ngayon? Kanino ko sila maihahalintulad? 
+Sinabi pa ni Jesus, "Sa anong bagay ko maihahambing ang mga tao ngayon? Kanino ko sila maihahalintulad? 
 
 
 
@@ -1067,7 +1067,7 @@ Sinabi pa ni Jesus,_ "Sa anong bagay ko maihahambing ang mga tao ngayon? Kanino 
 
 
 
-Katulad sila ng mga batang nakaupo sa plasa at sinasabi sa kanilang kalaro, 'Tinugtugan namin kayo ng tugtuging pangkasal_, pero hindi kayo sumayaw! Umawit kami ng awit para sa patay pero hindi kayo umiyak!' 
+Katulad sila ng mga batang nakaupo sa plasa at sinasabi sa kanilang kalaro, 'Tinugtugan namin kayo ng tugtuging pangkasal, pero hindi kayo sumayaw! Umawit kami ng awit para sa patay pero hindi kayo umiyak!' 
 
 
 
@@ -1100,7 +1100,7 @@ Katulad sila ng mga batang nakaupo sa plasa at sinasabi sa kanilang kalaro, 'Tin
 
 
 
-Katulad nila kayo,_ dahil pagdating dito ni Juan na nakita ninyong nag-aayuno at hindi umiinom ng alak, sinabi ninyo, 'Sinasaniban siya ng masamang espiritu.' 
+Katulad nila kayo, dahil pagdating dito ni Juan na nakita ninyong nag-aayuno at hindi umiinom ng alak, sinabi ninyo, 'Sinasaniban siya ng masamang espiritu.' 
 
 
 
@@ -1133,7 +1133,7 @@ Katulad nila kayo,_ dahil pagdating dito ni Juan na nakita ninyong nag-aayuno at
 
 
 
-At nang dumating naman ako na_ Anak ng Tao, nakita ninyong kumakain ako at umiinom, ang sabi naman ninyo, 'Ang taong iyan ay matakaw at lasenggo, at kaibigan ng mga maniningil ng buwis at ng iba pang makasalanan.' 
+At nang dumating naman ako na Anak ng Tao, nakita ninyong kumakain ako at umiinom, ang sabi naman ninyo, 'Ang taong iyan ay matakaw at lasenggo, at kaibigan ng mga maniningil ng buwis at ng iba pang makasalanan.' 
 
 
 
@@ -1232,7 +1232,7 @@ Inanyayahan si Jesus ng isang Pariseo na kumain sa bahay niya. Pumunta naman si 
 
 
 
-Sa bayang iyon ay may isang babaeng kilala sa pagiging makasalanan. Nabalitaan niyang kumakain si Jesus sa bahay ng Pariseo, kaya pumunta siya roon at nagdala ng pabango na nasa isang sisidlang yari sa batong_ alabastro. 
+Sa bayang iyon ay may isang babaeng kilala sa pagiging makasalanan. Nabalitaan niyang kumakain si Jesus sa bahay ng Pariseo, kaya pumunta siya roon at nagdala ng pabango na nasa isang sisidlang yari sa batong alabastro. 
 
 
 
@@ -1496,7 +1496,7 @@ Pagkatapos ay nilingon niya ang babae at sinabi kay Simon, "Tingnan mo ang babae
 
 
 
-Hindi mo ako hinalikan bilang pagtanggap_, pero siyaʼy walang tigil sa paghalik sa mga paa ko mula nang dumating ako. 
+Hindi mo ako hinalikan bilang pagtanggap, pero siyaʼy walang tigil sa paghalik sa mga paa ko mula nang dumating ako. 
 
 
 

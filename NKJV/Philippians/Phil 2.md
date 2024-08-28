@@ -10,13 +10,13 @@ next: ['Phil 3']
 
 
 ###### 1 
-Therefore if _there is_ any consolation in Christ, if any comfort of love, if any fellowship of the Spirit, if any affection and mercy, 
+Therefore if there is any consolation in Christ, if any comfort of love, if any fellowship of the Spirit, if any affection and mercy, 
 
 ###### 2 
-fulfill my joy by being like-minded, having the same love, _being_ of one accord, of one mind. 
+fulfill my joy by being like-minded, having the same love, being of one accord, of one mind. 
 
 ###### 3 
-_Let_ nothing _be done_ through selfish ambition or conceit, but in lowliness of mind let each esteem others better than himself. 
+Let nothing be done through selfish ambition or conceit, but in lowliness of mind let each esteem others better than himself. 
 
 ###### 4 
 Let each of you look out not only for his own interests, but also for the interests of others.
@@ -30,10 +30,10 @@ Let this mind be in you which was also in Christ Jesus,
 who, being in the form of God, did not consider it robbery to be equal with God, 
 
 ###### 7 
-but made Himself of no reputation, taking the form of a bondservant, _and_ coming in the likeness of men. 
+but made Himself of no reputation, taking the form of a bondservant, and coming in the likeness of men. 
 
 ###### 8 
-And being found in appearance as a man, He humbled Himself and became obedient to _the point of_ death, even the death of the cross. 
+And being found in appearance as a man, He humbled Himself and became obedient to the point of death, even the death of the cross. 
 
 ###### 9 
 Therefore God also has highly exalted Him and given Him the name which is above every name, 
@@ -42,7 +42,7 @@ Therefore God also has highly exalted Him and given Him the name which is above 
 that at the name of Jesus every knee should bow, of those in heaven, and of those on earth, and of those under the earth, 
 
 ###### 11 
-and _that_ every tongue should confess that Jesus Christ _is_ Lord, to the glory of God the Father.
+and that every tongue should confess that Jesus Christ is Lord, to the glory of God the Father.
 
 ## Light Bearers 
 
@@ -50,7 +50,7 @@ and _that_ every tongue should confess that Jesus Christ _is_ Lord, to the glory
 Therefore, my beloved, as you have always obeyed, not as in my presence only, but now much more in my absence, work out your own salvation with fear and trembling; 
 
 ###### 13 
-for it is God who works in you both to will and to do for _His_ good pleasure. 
+for it is God who works in you both to will and to do for His good pleasure. 
 
 ###### 14 
 Do all things without complaining and disputing, 
@@ -62,7 +62,7 @@ that you may become blameless and harmless, children of God without fault in the
 holding fast the word of life, so that I may rejoice in the day of Christ that I have not run in vain or labored in vain. 
 
 ###### 17 
-Yes, and if I am being poured out _as a drink offering_ on the sacrifice and service of your faith, I am glad and rejoice with you all. 
+Yes, and if I am being poured out as a drink offering on the sacrifice and service of your faith, I am glad and rejoice with you all. 
 
 ###### 18 
 For the same reason you also be glad and rejoice with me.
@@ -79,7 +79,7 @@ For I have no one like-minded, who will sincerely care for your state.
 For all seek their own, not the things which are of Christ Jesus. 
 
 ###### 22 
-But you know his proven character, that as a son with _his_ father he served with me in the gospel. 
+But you know his proven character, that as a son with his father he served with me in the gospel. 
 
 ###### 23 
 Therefore I hope to send him at once, as soon as I see how it goes with me. 

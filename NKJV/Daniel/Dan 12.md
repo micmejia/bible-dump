@@ -9,10 +9,10 @@ up: ['Daniel']
 
 
 ###### 1 
-"At that time Michael shall stand up, The great prince who stands _watch_ over the sons of your people; And there shall be a time of trouble, Such as never was since there was a nation, _Even_ to that time. And at that time your people shall be delivered, Every one who is found written in the book. 
+"At that time Michael shall stand up, The great prince who stands watch over the sons of your people; And there shall be a time of trouble, Such as never was since there was a nation, Even to that time. And at that time your people shall be delivered, Every one who is found written in the book. 
 
 ###### 2 
-And many of those who sleep in the dust of the earth shall awake, Some to everlasting life, Some to shame _and_ everlasting contempt. 
+And many of those who sleep in the dust of the earth shall awake, Some to everlasting life, Some to shame and everlasting contempt. 
 
 ###### 3 
 Those who are wise shall shine Like the brightness of the firmament, And those who turn many to righteousness Like the stars forever and ever. 
@@ -24,25 +24,25 @@ Those who are wise shall shine Like the brightness of the firmament, And those w
 Then I, Daniel, looked; and there stood two others, one on this riverbank and the other on that riverbank. 
 
 ###### 6 
-And _one_ said to the man clothed in linen, who _was_ above the waters of the river, "How long shall the fulfillment of these wonders _be?_" 
+And one said to the man clothed in linen, who was above the waters of the river, "How long shall the fulfillment of these wonders be?" 
 
 ###### 7 
-Then I heard the man clothed in linen, who _was_ above the waters of the river, when he held up his right hand and his left hand to heaven, and swore by Him who lives forever, that _it shall be_ for a time, times, and half _a time;_ and when the power of the holy people has been completely shattered, all these _things_ shall be finished. 
+Then I heard the man clothed in linen, who was above the waters of the river, when he held up his right hand and his left hand to heaven, and swore by Him who lives forever, that it shall be for a time, times, and half a time; and when the power of the holy people has been completely shattered, all these things shall be finished. 
 
 ###### 8 
-Although I heard, I did not understand. Then I said, "My lord, what _shall be_ the end of these _things?_" 
+Although I heard, I did not understand. Then I said, "My lord, what shall be the end of these things?" 
 
 ###### 9 
-And he said, "Go _your way,_ Daniel, for the words _are_ closed up and sealed till the time of the end. 
+And he said, "Go your way, Daniel, for the words are closed up and sealed till the time of the end. 
 
 ###### 10 
 Many shall be purified, made white, and refined, but the wicked shall do wickedly; and none of the wicked shall understand, but the wise shall understand. 
 
 ###### 11 
-"And from the time _that_ the daily _sacrifice_ is taken away, and the abomination of desolation is set up, _there shall be_ one thousand two hundred and ninety days. 
+"And from the time that the daily sacrifice is taken away, and the abomination of desolation is set up, there shall be one thousand two hundred and ninety days. 
 
 ###### 12 
-Blessed _is_ he who waits, and comes to the one thousand three hundred and thirty-five days. 
+Blessed is he who waits, and comes to the one thousand three hundred and thirty-five days. 
 
 ###### 13 
-"But you, go _your way_ till the end; for you shall rest, and will arise to your inheritance at the end of the days."
+"But you, go your way till the end; for you shall rest, and will arise to your inheritance at the end of the days."

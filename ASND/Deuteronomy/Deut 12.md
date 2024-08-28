@@ -106,7 +106,7 @@ Kapag pinalayas na ninyo ang mga taong naninirahan doon, gibain ninyo ang lahat 
 
 
 
-Gibain din ninyo ang kanilang mga altar, durugin ang mga alaalang bato nila, sunugin ang kanilang mga posteng simbolo ng diosang si_ Ashera, at durugin ang imahen ng kanilang mga dios para hindi na ito alalahanin pa sa mga lugar na iyon. 
+Gibain din ninyo ang kanilang mga altar, durugin ang mga alaalang bato nila, sunugin ang kanilang mga posteng simbolo ng diosang si Ashera, at durugin ang imahen ng kanilang mga dios para hindi na ito alalahanin pa sa mga lugar na iyon. 
 
 
 
@@ -172,7 +172,7 @@ Gibain din ninyo ang kanilang mga altar, durugin ang mga alaalang bato nila, sun
 
 
 
-kundi dumulog kayo sa Panginoon na inyong Dios at parangalan siya sa lugar na kanyang pipiliin mula sa lahat ng teritoryo ng mga lahi ng Israel_. 
+kundi dumulog kayo sa Panginoon na inyong Dios at parangalan siya sa lugar na kanyang pipiliin mula sa lahat ng teritoryo ng mga lahi ng Israel. 
 
 
 
@@ -438,7 +438,7 @@ kundi, ihandog ninyo ito sa lugar ng lahi na pipiliin ng Panginoon, at doon niny
 
 
 
-"Pero kung hindi panghandog_, maaari ninyong katayin at kainin ang hayop saanman kayo nakatira. Magpakasawa kayong kumain ng karne nito, kagaya ng pagkain ninyo ng usa at ng gasela ayon sa pagpapalang ibinibigay sa inyo ng Panginoon na inyong Dios. Ang bawat tao ay makakakain nito, itinuturing man siyang malinis o marumi. 
+"Pero kung hindi panghandog, maaari ninyong katayin at kainin ang hayop saanman kayo nakatira. Magpakasawa kayong kumain ng karne nito, kagaya ng pagkain ninyo ng usa at ng gasela ayon sa pagpapalang ibinibigay sa inyo ng Panginoon na inyong Dios. Ang bawat tao ay makakakain nito, itinuturing man siyang malinis o marumi. 
 
 
 

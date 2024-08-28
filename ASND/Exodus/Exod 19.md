@@ -304,7 +304,7 @@ At sinabi sa kanya ng Panginoon, "Puntahan mo ang mga tao at sabihin sa kanilang
 
 
 
-Siguraduhing handa sila sa ikatlong araw, dahil sa araw na iyon, ako,_ ang Panginoon ay bababa sa Bundok ng Sinai na kitang-kita ng mga tao. 
+Siguraduhing handa sila sa ikatlong araw, dahil sa araw na iyon, ako, ang Panginoon ay bababa sa Bundok ng Sinai na kitang-kita ng mga tao. 
 
 
 
@@ -634,7 +634,7 @@ Bumaba ang Panginoon sa ibabaw ng Bundok ng Sinai, at tinawag niya si Moises na 
 
 
 
-at sinabi sa kanya ng Panginoon, "Bumalik ka sa ibaba at balaan mo sila na huwag na huwag silang lalampas sa hangganan na inilagay sa paligid ng bundok_ para tingnan ako, dahil kung gagawin nila ito, marami sa kanila ang mamamatay. 
+at sinabi sa kanya ng Panginoon, "Bumalik ka sa ibaba at balaan mo sila na huwag na huwag silang lalampas sa hangganan na inilagay sa paligid ng bundok para tingnan ako, dahil kung gagawin nila ito, marami sa kanila ang mamamatay. 
 
 
 
@@ -700,7 +700,7 @@ Kahit na ang mga pari na palaging lumalapit sa presensya koʼy kailangang maglin
 
 
 
-Sinabi ni Moises sa Panginoon, "Paano po aakyat ang mga tao sa bundok gayong binigyan nʼyo na kami ng babala na ituring naming banal ang bundok, at sinabihan nʼyo kaming lagyan ng tanda ang paligid ng bundok kung hanggang saan lang kami tatayo_." 
+Sinabi ni Moises sa Panginoon, "Paano po aakyat ang mga tao sa bundok gayong binigyan nʼyo na kami ng babala na ituring naming banal ang bundok, at sinabihan nʼyo kaming lagyan ng tanda ang paligid ng bundok kung hanggang saan lang kami tatayo." 
 
 
 

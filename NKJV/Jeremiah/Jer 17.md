@@ -10,55 +10,55 @@ next: ['Jer 18']
 
 
 ###### 1 
-"The sin of Judah _is_ written with a pen of iron; With the point of a diamond _it is_ engraved On the tablet of their heart, And on the horns of your altars, 
+"The sin of Judah is written with a pen of iron; With the point of a diamond it is engraved On the tablet of their heart, And on the horns of your altars, 
 
 ###### 2 
 While their children remember Their altars and their wooden images By the green trees on the high hills. 
 
 ###### 3 
-O My mountain in the field, I will give as plunder your wealth, all your treasures, _And_ your high places of sin within all your borders. 
+O My mountain in the field, I will give as plunder your wealth, all your treasures, And your high places of sin within all your borders. 
 
 ###### 4 
-And you, even yourself, Shall let go of your heritage which I gave you; And I will cause you to serve your enemies In the land which you do not know; For you have kindled a fire in My anger _which_ shall burn forever." 
+And you, even yourself, Shall let go of your heritage which I gave you; And I will cause you to serve your enemies In the land which you do not know; For you have kindled a fire in My anger which shall burn forever." 
 
 ###### 5 
-Thus says the Lord: "Cursed _is_ the man who trusts in man And makes flesh his strength, Whose heart departs from the Lord. 
+Thus says the Lord: "Cursed is the man who trusts in man And makes flesh his strength, Whose heart departs from the Lord. 
 
 ###### 6 
-For he shall be like a shrub in the desert, And shall not see when good comes, But shall inhabit the parched places in the wilderness, _In_ a salt land _which is_ not inhabited. 
+For he shall be like a shrub in the desert, And shall not see when good comes, But shall inhabit the parched places in the wilderness, In a salt land which is not inhabited. 
 
 ###### 7 
-"Blessed _is_ the man who trusts in the Lord, And whose hope is the Lord. 
+"Blessed is the man who trusts in the Lord, And whose hope is the Lord. 
 
 ###### 8 
 For he shall be like a tree planted by the waters, Which spreads out its roots by the river, And will not fear when heat comes; But its leaf will be green, And will not be anxious in the year of drought, Nor will cease from yielding fruit. 
 
 ###### 9 
-"The heart _is_ deceitful above all _things,_ And desperately wicked; Who can know it? 
+"The heart is deceitful above all things, And desperately wicked; Who can know it? 
 
 ###### 10 
-I, the Lord, search the heart, _I_ test the mind, Even to give every man according to his ways, According to the fruit of his doings. 
+I, the Lord, search the heart, I test the mind, Even to give every man according to his ways, According to the fruit of his doings. 
 
 ###### 11 
-"_As_ a partridge that broods but does not hatch, _So is_ he who gets riches, but not by right; It will leave him in the midst of his days, And at his end he will be a fool." 
+"As a partridge that broods but does not hatch, So is he who gets riches, but not by right; It will leave him in the midst of his days, And at his end he will be a fool." 
 
 ###### 12 
-A glorious high throne from the beginning _Is_ the place of our sanctuary. 
+A glorious high throne from the beginning Is the place of our sanctuary. 
 
 ###### 13 
 O Lord, the hope of Israel, All who forsake You shall be ashamed. "Those who depart from Me Shall be written in the earth, Because they have forsaken the Lord, The fountain of living waters." ## Jeremiah Prays for Deliverance 
 
 ###### 14 
-Heal me, O Lord, and I shall be healed; Save me, and I shall be saved, For You _are_ my praise. 
+Heal me, O Lord, and I shall be healed; Save me, and I shall be saved, For You are my praise. 
 
 ###### 15 
-Indeed they say to me, "Where _is_ the word of the Lord? Let it come now!" 
+Indeed they say to me, "Where is the word of the Lord? Let it come now!" 
 
 ###### 16 
-As for me, I have not hurried away from _being_ a shepherd _who_ follows You, Nor have I desired the woeful day; You know what came out of my lips; It was right there before You. 
+As for me, I have not hurried away from being a shepherd who follows You, Nor have I desired the woeful day; You know what came out of my lips; It was right there before You. 
 
 ###### 17 
-Do not be a terror to me; You _are_ my hope in the day of doom. 
+Do not be a terror to me; You are my hope in the day of doom. 
 
 ###### 18 
 Let them be ashamed who persecute me, But do not let me be put to shame; Let them be dismayed, But do not let me be dismayed. Bring on them the day of doom, And destroy them with double destruction! ## Hallow the Sabbath Day 
@@ -70,7 +70,7 @@ Thus the Lord said to me: "Go and stand in the gate of the children of the peopl
 and say to them, 'Hear the word of the Lord, you kings of Judah, and all Judah, and all the inhabitants of Jerusalem, who enter by these gates. 
 
 ###### 21 
-Thus says the Lord: "Take heed to yourselves, and bear no burden on the Sabbath day, nor bring _it_ in by the gates of Jerusalem; 
+Thus says the Lord: "Take heed to yourselves, and bear no burden on the Sabbath day, nor bring it in by the gates of Jerusalem; 
 
 ###### 22 
 nor carry a burden out of your houses on the Sabbath day, nor do any work, but hallow the Sabbath day, as I commanded your fathers. 

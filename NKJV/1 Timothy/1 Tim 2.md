@@ -10,25 +10,25 @@ next: ['1 Tim 3']
 
 
 ###### 1 
-Therefore I exhort first of all that supplications, prayers, intercessions, _and_ giving of thanks be made for all men, 
+Therefore I exhort first of all that supplications, prayers, intercessions, and giving of thanks be made for all men, 
 
 ###### 2 
 for kings and all who are in authority, that we may lead a quiet and peaceable life in all godliness and reverence. 
 
 ###### 3 
-For this _is_ good and acceptable in the sight of God our Savior, 
+For this is good and acceptable in the sight of God our Savior, 
 
 ###### 4 
 who desires all men to be saved and to come to the knowledge of the truth. 
 
 ###### 5 
-For _there is_ one God and one Mediator between God and men, _the_ Man Christ Jesus, 
+For there is one God and one Mediator between God and men, the Man Christ Jesus, 
 
 ###### 6 
 who gave Himself a ransom for all, to be testified in due time, 
 
 ###### 7 
-for which I was appointed a preacher and an apostle--I am speaking the truth in Christ _and_ not lying--a teacher of the Gentiles in faith and truth.
+for which I was appointed a preacher and an apostle--I am speaking the truth in Christ and not lying--a teacher of the Gentiles in faith and truth.
 
 ## Men and Women in the Church 
 

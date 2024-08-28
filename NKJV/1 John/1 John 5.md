@@ -45,7 +45,7 @@ And this is the testimony: that God has given us eternal life, and this life is 
 He who has the Son has life; he who does not have the Son of God does not have life. 
 
 ###### 13 
-These things I have written to you who believe in the name of the Son of God, that you may know that you have eternal life, and that you may _continue to_ believe in the name of the Son of God.
+These things I have written to you who believe in the name of the Son of God, that you may know that you have eternal life, and that you may continue to believe in the name of the Son of God.
 
 ## Confidence and Compassion in Prayer 
 
@@ -56,10 +56,10 @@ Now this is the confidence that we have in Him, that if we ask anything accordin
 And if we know that He hears us, whatever we ask, we know that we have the petitions that we have asked of Him. 
 
 ###### 16 
-If anyone sees his brother sinning a sin _which does_ not _lead_ to death, he will ask, and He will give him life for those who commit sin not _leading_ to death. There is sin _leading_ to death. I do not say that he should pray about that. 
+If anyone sees his brother sinning a sin which does not lead to death, he will ask, and He will give him life for those who commit sin not leading to death. There is sin leading to death. I do not say that he should pray about that. 
 
 ###### 17 
-All unrighteousness is sin, and there is sin not _leading_ to death.
+All unrighteousness is sin, and there is sin not leading to death.
 
 ## Knowing the True--Rejecting the False 
 
@@ -67,7 +67,7 @@ All unrighteousness is sin, and there is sin not _leading_ to death.
 We know that whoever is born of God does not sin; but he who has been born of God keeps himself, and the wicked one does not touch him. 
 
 ###### 19 
-We know that we are of God, and the whole world lies _under the sway of_ the wicked one. 
+We know that we are of God, and the whole world lies under the sway of the wicked one. 
 
 ###### 20 
 And we know that the Son of God has come and has given us an understanding, that we may know Him who is true; and we are in Him who is true, in His Son Jesus Christ. This is the true God and eternal life. 

@@ -9,13 +9,13 @@ next: ['Rev 2']
 
 
 ###### 1 
-The Revelation of Jesus Christ, which God gave Him to show His servants--things which must shortly take place. And He sent and signified _it_ by His angel to His servant John, 
+The Revelation of Jesus Christ, which God gave Him to show His servants--things which must shortly take place. And He sent and signified it by His angel to His servant John, 
 
 ###### 2 
 who bore witness to the word of God, and to the testimony of Jesus Christ, to all things that he saw. 
 
 ###### 3 
-Blessed _is_ he who reads and those who hear the words of this prophecy, and keep those things which are written in it; for the time _is_ near.
+Blessed is he who reads and those who hear the words of this prophecy, and keep those things which are written in it; for the time is near.
 
 ## Greeting the Seven Churches 
 
@@ -26,13 +26,13 @@ John, to the seven churches which are in Asia: Grace to you and peace from Him w
 and from Jesus Christ, the faithful witness, the firstborn from the dead, and the ruler over the kings of the earth. To Him who loved us and washed us from our sins in His own blood, 
 
 ###### 6 
-and has made us kings and priests to His God and Father, to Him _be_ glory and dominion forever and ever. Amen. 
+and has made us kings and priests to His God and Father, to Him be glory and dominion forever and ever. Amen. 
 
 ###### 7 
 Behold, He is coming with clouds, and every eye will see Him, even they who pierced Him. And all the tribes of the earth will mourn because of Him. Even so, Amen. 
 
 ###### 8 
-"I am the Alpha and the Omega, _the_ Beginning and _the_ End," says the Lord, "who is and who was and who is to come, the Almighty." ## Vision of the Son of Man 
+"I am the Alpha and the Omega, the Beginning and the End," says the Lord, "who is and who was and who is to come, the Almighty." ## Vision of the Son of Man 
 
 ###### 9 
 I, John, both your brother and companion in the tribulation and kingdom and patience of Jesus Christ, was on the island that is called Patmos for the word of God and for the testimony of Jesus Christ. 
@@ -41,28 +41,28 @@ I, John, both your brother and companion in the tribulation and kingdom and pati
 I was in the Spirit on the Lord's Day, and I heard behind me a loud voice, as of a trumpet, 
 
 ###### 11 
-saying, "I am the Alpha and the Omega, the First and the Last," and, "What you see, write in a book and send _it_ to the seven churches which are in Asia: to Ephesus, to Smyrna, to Pergamos, to Thyatira, to Sardis, to Philadelphia, and to Laodicea." 
+saying, "I am the Alpha and the Omega, the First and the Last," and, "What you see, write in a book and send it to the seven churches which are in Asia: to Ephesus, to Smyrna, to Pergamos, to Thyatira, to Sardis, to Philadelphia, and to Laodicea." 
 
 ###### 12 
 Then I turned to see the voice that spoke with me. And having turned I saw seven golden lampstands, 
 
 ###### 13 
-and in the midst of the seven lampstands _One_ like the Son of Man, clothed with a garment down to the feet and girded about the chest with a golden band. 
+and in the midst of the seven lampstands One like the Son of Man, clothed with a garment down to the feet and girded about the chest with a golden band. 
 
 ###### 14 
-His head and hair _were_ white like wool, as white as snow, and His eyes like a flame of fire; 
+His head and hair were white like wool, as white as snow, and His eyes like a flame of fire; 
 
 ###### 15 
-His feet _were_ like fine brass, as if refined in a furnace, and His voice as the sound of many waters; 
+His feet were like fine brass, as if refined in a furnace, and His voice as the sound of many waters; 
 
 ###### 16 
-He had in His right hand seven stars, out of His mouth went a sharp two-edged sword, and His countenance _was_ like the sun shining in its strength. 
+He had in His right hand seven stars, out of His mouth went a sharp two-edged sword, and His countenance was like the sun shining in its strength. 
 
 ###### 17 
 And when I saw Him, I fell at His feet as dead. But He laid His right hand on me, saying to me, "Do not be afraid; I am the First and the Last. 
 
 ###### 18 
-I _am_ He who lives, and was dead, and behold, I am alive forevermore. Amen. And I have the keys of Hades and of Death. 
+I am He who lives, and was dead, and behold, I am alive forevermore. Amen. And I have the keys of Hades and of Death. 
 
 ###### 19 
 Write the things which you have seen, and the things which are, and the things which will take place after this. 

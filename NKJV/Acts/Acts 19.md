@@ -22,7 +22,7 @@ And he said to them, "Into what then were you baptized?" So they said, "Into Joh
 Then Paul said, "John indeed baptized with a baptism of repentance, saying to the people that they should believe on Him who would come after him, that is, on Christ Jesus." 
 
 ###### 5 
-When they heard _this,_ they were baptized in the name of the Lord Jesus. 
+When they heard this, they were baptized in the name of the Lord Jesus. 
 
 ###### 6 
 And when Paul had laid hands on them, the Holy Spirit came upon them, and they spoke with tongues and prophesied. 
@@ -66,7 +66,7 @@ This became known both to all Jews and Greeks dwelling in Ephesus; and fear fell
 And many who had believed came confessing and telling their deeds. 
 
 ###### 19 
-Also, many of those who had practiced magic brought their books together and burned _them_ in the sight of all. And they counted up the value of them, and _it_ totaled fifty thousand _pieces_ of silver. 
+Also, many of those who had practiced magic brought their books together and burned them in the sight of all. And they counted up the value of them, and it totaled fifty thousand pieces of silver. 
 
 ###### 20 
 So the word of the Lord grew mightily and prevailed.
@@ -95,7 +95,7 @@ Moreover you see and hear that not only at Ephesus, but throughout almost all As
 So not only is this trade of ours in danger of falling into disrepute, but also the temple of the great goddess Diana may be despised and her magnificence destroyed, whom all Asia and the world worship." 
 
 ###### 28 
-Now when they heard _this,_ they were full of wrath and cried out, saying, "Great _is_ Diana of the Ephesians!" 
+Now when they heard this, they were full of wrath and cried out, saying, "Great is Diana of the Ephesians!" 
 
 ###### 29 
 So the whole city was filled with confusion, and rushed into the theater with one accord, having seized Gaius and Aristarchus, Macedonians, Paul's travel companions. 
@@ -113,10 +113,10 @@ Some therefore cried one thing and some another, for the assembly was confused, 
 And they drew Alexander out of the multitude, the Jews putting him forward. And Alexander motioned with his hand, and wanted to make his defense to the people. 
 
 ###### 34 
-But when they found out that he was a Jew, all with one voice cried out for about two hours, "Great _is_ Diana of the Ephesians!" 
+But when they found out that he was a Jew, all with one voice cried out for about two hours, "Great is Diana of the Ephesians!" 
 
 ###### 35 
-And when the city clerk had quieted the crowd, he said: "Men of Ephesus, what man is there who does not know that the city of the Ephesians is temple guardian of the great goddess Diana, and of the _image_ which fell down from Zeus? 
+And when the city clerk had quieted the crowd, he said: "Men of Ephesus, what man is there who does not know that the city of the Ephesians is temple guardian of the great goddess Diana, and of the image which fell down from Zeus? 
 
 ###### 36 
 Therefore, since these things cannot be denied, you ought to be quiet and do nothing rashly. 

@@ -46,16 +46,16 @@ The Pharisee stood and prayed thus with himself, 'God, I thank You that I am not
 I fast twice a week; I give tithes of all that I possess.' 
 
 ###### 13 
-And the tax collector, standing afar off, would not so much as raise _his_ eyes to heaven, but beat his breast, saying, 'God, be merciful to me a sinner!' 
+And the tax collector, standing afar off, would not so much as raise his eyes to heaven, but beat his breast, saying, 'God, be merciful to me a sinner!' 
 
 ###### 14 
-I tell you, this man went down to his house justified _rather_ than the other; for everyone who exalts himself will be humbled, and he who humbles himself will be exalted." ## Jesus Blesses Little Children 
+I tell you, this man went down to his house justified rather than the other; for everyone who exalts himself will be humbled, and he who humbles himself will be exalted." ## Jesus Blesses Little Children 
 
 ###### 15 
-Then they also brought infants to Him that He might touch them; but when the disciples saw _it,_ they rebuked them. 
+Then they also brought infants to Him that He might touch them; but when the disciples saw it, they rebuked them. 
 
 ###### 16 
-But Jesus called them to _Him_ and said, "Let the little children come to Me, and do not forbid them; for of such is the kingdom of God. 
+But Jesus called them to Him and said, "Let the little children come to Me, and do not forbid them; for of such is the kingdom of God. 
 
 ###### 17 
 Assuredly, I say to you, whoever does not receive the kingdom of God as a little child will by no means enter it." ## Jesus Counsels the Rich Young Ruler 
@@ -64,7 +64,7 @@ Assuredly, I say to you, whoever does not receive the kingdom of God as a little
 Now a certain ruler asked Him, saying, "Good Teacher, what shall I do to inherit eternal life?" 
 
 ###### 19 
-So Jesus said to him, "Why do you call Me good? No one _is_ good but One, _that is,_ God. 
+So Jesus said to him, "Why do you call Me good? No one is good but One, that is, God. 
 
 ###### 20 
 You know the commandments: 'Do not commit adultery,' 'Do not murder,' 'Do not steal,' 'Do not bear false witness,' 'Honor your father and your mother.' " 
@@ -108,7 +108,7 @@ Then He took the twelve aside and said to them, "Behold, we are going up to Jeru
 For He will be delivered to the Gentiles and will be mocked and insulted and spit upon. 
 
 ###### 33 
-They will scourge _Him_ and kill Him. And the third day He will rise again." 
+They will scourge Him and kill Him. And the third day He will rise again." 
 
 ###### 34 
 But they understood none of these things; this saying was hidden from them, and they did not know the things which were spoken.
@@ -140,4 +140,4 @@ saying, "What do you want Me to do for you?" He said, "Lord, that I may receive 
 Then Jesus said to him, "Receive your sight; your faith has made you well." 
 
 ###### 43 
-And immediately he received his sight, and followed Him, glorifying God. And all the people, when they saw _it,_ gave praise to God.
+And immediately he received his sight, and followed Him, glorifying God. And all the people, when they saw it, gave praise to God.

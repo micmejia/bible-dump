@@ -106,7 +106,7 @@ Sumigaw siya nang malakas, "Bumagsak na! Bumagsak na ang sikat na lungsod ng Bab
 
 
 
-Nangyari ito sa lungsod ng Babilonia_ dahil inakit nito ang mga tao sa buong mundo na sumunod sa imoralidad niya na kinamumuhian ng Dios. Ang mga hari sa mundo ay nakipagrelasyon sa kanya. At yumaman ang mga negosyante sa mundo, dahil sa kanila siya bumibili ng mga pangangailangan niya upang masunod ang bisyo at kalayawan niya." 
+Nangyari ito sa lungsod ng Babilonia dahil inakit nito ang mga tao sa buong mundo na sumunod sa imoralidad niya na kinamumuhian ng Dios. Ang mga hari sa mundo ay nakipagrelasyon sa kanya. At yumaman ang mga negosyante sa mundo, dahil sa kanila siya bumibili ng mga pangangailangan niya upang masunod ang bisyo at kalayawan niya." 
 
 
 
@@ -403,7 +403,7 @@ Tatayo lang sila sa malayo at magmamasid dahil takot silang madamay sa parusa sa
 
 
 
-Wala nang bibili ng kanilang mga_ ginto, pilak, mamahaling bato, at perlas; at ng kanilang mga telang_ linen, seda at mga telang kulay ube at pula. Wala na ring bibili ng kanilang_ mababangong kahoy, mga kagamitang yari sa pangil ng elepante at yari sa mamahaling kahoy, tanso, bakal at marmol. 
+Wala nang bibili ng kanilang mga ginto, pilak, mamahaling bato, at perlas; at ng kanilang mga telang linen, seda at mga telang kulay ube at pula. Wala na ring bibili ng kanilang mababangong kahoy, mga kagamitang yari sa pangil ng elepante at yari sa mamahaling kahoy, tanso, bakal at marmol. 
 
 
 
@@ -436,7 +436,7 @@ Wala nang bibili ng kanilang mga_ ginto, pilak, mamahaling bato, at perlas; at n
 
 
 
-At sino pa ang bibili ng mga pabango nila tulad ng_ sinamon, kamangyan, mira at iba pa? Wala nang bibili ng kanilang mga_ alak, langis, harina at trigo; at ng kanilang mga baka, tupa, kabayo at karo; at pati ng kanilang mga alipin at mga tao. 
+At sino pa ang bibili ng mga pabango nila tulad ng sinamon, kamangyan, mira at iba pa? Wala nang bibili ng kanilang mga alak, langis, harina at trigo; at ng kanilang mga baka, tupa, kabayo at karo; at pati ng kanilang mga alipin at mga tao. 
 
 
 
@@ -469,7 +469,7 @@ At sino pa ang bibili ng mga pabango nila tulad ng_ sinamon, kamangyan, mira at 
 
 
 
-Sasabihin ng mga negosyante sa lungsod ng Babilonia,_ 'Nawala na ang lahat ng bagay na hinangad mo na maangkin. Kinuha na sa iyo ang lahat ng kayamanan at ari-ariang ipinagmamalaki mo, at hindi mo na makikitang muli ang mga ito!' 
+Sasabihin ng mga negosyante sa lungsod ng Babilonia, 'Nawala na ang lahat ng bagay na hinangad mo na maangkin. Kinuha na sa iyo ang lahat ng kayamanan at ari-ariang ipinagmamalaki mo, at hindi mo na makikitang muli ang mga ito!' 
 
 
 
@@ -634,7 +634,7 @@ At habang minamasdan nila ang usok ng nasusunog na lungsod, sisigaw sila, 'Walan
 
 
 
-At dahil sa kanilang kalungkutan, lalagyan nila ng alikabok ang ulo nila at mag-iiyakan. Sasabihin nila, 'Sayang! Sayang ang sikat na lungsod na iyan. Dahil sa yaman niya, yumaman ang mga may-ari ng barko na bumibiyahe roon_. Pero sa loob lang ng maikling panahon, nawala ang lahat!' 
+At dahil sa kanilang kalungkutan, lalagyan nila ng alikabok ang ulo nila at mag-iiyakan. Sasabihin nila, 'Sayang! Sayang ang sikat na lungsod na iyan. Dahil sa yaman niya, yumaman ang mga may-ari ng barko na bumibiyahe roon. Pero sa loob lang ng maikling panahon, nawala ang lahat!' 
 
 
 
@@ -667,7 +667,7 @@ At dahil sa kanilang kalungkutan, lalagyan nila ng alikabok ang ulo nila at mag-
 
 
 
-"Kaya kayong lahat ng nasa langit, matuwa kayo dahil sa nangyari sa lungsod na iyon. Matuwa kayo, kayong mga propeta, mga apostol at mga pinabanal ng Dios_, dahil hinatulan na siya ng Dios sa mga ginawa niya sa inyo!" 
+"Kaya kayong lahat ng nasa langit, matuwa kayo dahil sa nangyari sa lungsod na iyon. Matuwa kayo, kayong mga propeta, mga apostol at mga pinabanal ng Dios, dahil hinatulan na siya ng Dios sa mga ginawa niya sa inyo!" 
 
 
 
@@ -766,7 +766,7 @@ Hindi na maririnig ang mga pagtugtog ng alpa, plauta at trumpeta, at ang tinig n
 
 
 
-Magiging madilim doon, dahil wala nang ilaw kahit isa. Wala na ring masayang tinig ng bagong kasal na mapapakinggan. Mangyayari ito sa kanya_ dahil ang mga negosyante niya ay masyadong mapagmataas, at dinaya niya ang lahat sa pamamagitan ng pangkukulam." 
+Magiging madilim doon, dahil wala nang ilaw kahit isa. Wala na ring masayang tinig ng bagong kasal na mapapakinggan. Mangyayari ito sa kanya dahil ang mga negosyante niya ay masyadong mapagmataas, at dinaya niya ang lahat sa pamamagitan ng pangkukulam." 
 
 
 
@@ -799,4 +799,4 @@ Magiging madilim doon, dahil wala nang ilaw kahit isa. Wala na ring masayang tin
 
 
 
-At ang lungsod na iyon ang pumatay sa mga propeta at sa mga pinabanal ng Dios_, at sa iba pang mga tao sa buong mundo.
+At ang lungsod na iyon ang pumatay sa mga propeta at sa mga pinabanal ng Dios, at sa iba pang mga tao sa buong mundo.

@@ -40,7 +40,7 @@ next: ['Luke 14']
 
 
 
-May ilang tao roon na nagbalita kay Jesus tungkol sa mga taga-Galileang ipinapatay ni Pilato habang naghahandog sila sa templo_. 
+May ilang tao roon na nagbalita kay Jesus tungkol sa mga taga-Galileang ipinapatay ni Pilato habang naghahandog sila sa templo. 
 
 
 
@@ -370,7 +370,7 @@ Isang Araw ng Pamamahinga, nagtuturo si Jesus sa sambahan ng mga Judio.
 
 
 
-May isang babae roon na 18 taon nang may karamdaman dahil sa ginawa sa kanya ng masamang_ espiritu. Baluktot ang katawan niya at hindi ito maituwid. 
+May isang babae roon na 18 taon nang may karamdaman dahil sa ginawa sa kanya ng masamang espiritu. Baluktot ang katawan niya at hindi ito maituwid. 
 
 
 
@@ -636,7 +636,7 @@ Nagpatuloy si Jesus sa pagtuturo niya, "Ano kaya ang katulad ng paghahari ng Dio
 
 
 
-Katulad ito ng isang buto ng mustasa na itinanim ng isang tao sa kanyang taniman. Tumubo iyon at lumaki na parang_ punongkahoy ang taas_, at pinamugaran ng mga ibon ang mga sanga nito." ## Ang Paghahalintulad sa Pampaalsa 
+Katulad ito ng isang buto ng mustasa na itinanim ng isang tao sa kanyang taniman. Tumubo iyon at lumaki na parang punongkahoy ang taas, at pinamugaran ng mga ibon ang mga sanga nito." ## Ang Paghahalintulad sa Pampaalsa 
 
 
 
@@ -1131,7 +1131,7 @@ Basta kailangang ipagpatuloy ko ang aking paglalakbay ngayon, bukas at sa makala
 
 
 
-"Kayong mga taga-Jerusalem, binabato ninyo at pinapatay ang mga propeta na isinugo ng Dios_ sa inyo. Maraming beses ko na kayong gustong tipunin at alagaan_ gaya ng isang inahing manok na nagtitipon ng kanyang mga sisiw sa ilalim ng kanyang mga pakpak, pero ayaw ninyo. 
+"Kayong mga taga-Jerusalem, binabato ninyo at pinapatay ang mga propeta na isinugo ng Dios sa inyo. Maraming beses ko na kayong gustong tipunin at alagaan gaya ng isang inahing manok na nagtitipon ng kanyang mga sisiw sa ilalim ng kanyang mga pakpak, pero ayaw ninyo. 
 
 
 

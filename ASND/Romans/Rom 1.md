@@ -39,7 +39,7 @@ next: ['Rom 2']
 
 
 
-Mula kay_ Pablo na lingkod ni Cristo Jesus. Pinili at tinawag ako ng Dios na maging apostol upang ipangaral ang kanyang Magandang Balita. 
+Mula kay Pablo na lingkod ni Cristo Jesus. Pinili at tinawag ako ng Dios na maging apostol upang ipangaral ang kanyang Magandang Balita. 
 
 
 
@@ -74,7 +74,7 @@ Mula kay_ Pablo na lingkod ni Cristo Jesus. Pinili at tinawag ako ng Dios na mag
 
 Ang Magandang Balitang itoʼy ipinangako ng Dios noon sa pamamagitan ng mga propeta at nakasulat sa Banal na Kasulatan.
 
-###### 3-4 Ang balitang itoʼy tungkol sa kanyang Anak, ang ating Panginoong Jesu-Cristo. Sa kanyang pagkatao, isinilang siya sa lahi ni Haring_ David, at sa kanyang banal na espiritu, napatunayang siya ang makapangyarihang Anak ng Dios, nang siyaʼy nabuhay mula sa mga patay. 
+###### 3-4 Ang balitang itoʼy tungkol sa kanyang Anak, ang ating Panginoong Jesu-Cristo. Sa kanyang pagkatao, isinilang siya sa lahi ni Haring David, at sa kanyang banal na espiritu, napatunayang siya ang makapangyarihang Anak ng Dios, nang siyaʼy nabuhay mula sa mga patay. 
 
 
 
@@ -140,7 +140,7 @@ Sa pamamagitan ni Cristo, tinanggap namin ang kaloob na maging apostol para mada
 
 
 
-At kayong mga mananampalataya riyan sa Roma_ ay kabilang din sa kanyang mga tinawag na maging tagasunod ni Jesu-Cristo. 
+At kayong mga mananampalataya riyan sa Roma ay kabilang din sa kanyang mga tinawag na maging tagasunod ni Jesu-Cristo. 
 
 
 
@@ -373,7 +373,7 @@ Sa ganoon, magkakatulungan tayo sa pagpapalakas ng pananampalataya ng isaʼt isa
 
 
 
-Mga kapatid, nais kong malaman ninyo na ilang ulit ko nang binalak na pumunta riyan, pero laging may humahadlang. Nais kong pumunta riyan_ para mayroon din akong maakay sa pananampalataya kay Cristo, tulad ng ginawa ko sa mga hindi Judio sa mga napuntahan kong lugar_. 
+Mga kapatid, nais kong malaman ninyo na ilang ulit ko nang binalak na pumunta riyan, pero laging may humahadlang. Nais kong pumunta riyan para mayroon din akong maakay sa pananampalataya kay Cristo, tulad ng ginawa ko sa mga hindi Judio sa mga napuntahan kong lugar. 
 
 
 
@@ -406,7 +406,7 @@ Mga kapatid, nais kong malaman ninyo na ilang ulit ko nang binalak na pumunta ri
 
 
 
-Sapagkat may pananagutan ako na mangaral sa lahat ng tao_: sa mga may pinag-aralan man o wala, sa marurunong o hangal. 
+Sapagkat may pananagutan ako na mangaral sa lahat ng tao: sa mga may pinag-aralan man o wala, sa marurunong o hangal. 
 
 
 
@@ -474,7 +474,7 @@ Iyan ang dahilan kung bakit nais ko ring maipangaral ang Magandang Balita riyan 
 
 
 
-Hindi ko ikinakahiya ang Magandang Balita tungkol kay Cristo_, dahil ito ang kapangyarihan ng Dios sa ikaliligtas ng lahat ng sumasampalataya – una ang mga Judio at gayon din ang mga hindi Judio. 
+Hindi ko ikinakahiya ang Magandang Balita tungkol kay Cristo, dahil ito ang kapangyarihan ng Dios sa ikaliligtas ng lahat ng sumasampalataya – una ang mga Judio at gayon din ang mga hindi Judio. 
 
 
 
@@ -507,7 +507,7 @@ Hindi ko ikinakahiya ang Magandang Balita tungkol kay Cristo_, dahil ito ang kap
 
 
 
-Sapagkat ipinapahayag sa Magandang Balita_ kung paano itinuturing ng Dios na matuwid ang tao, at itoʼy sa pamamagitan lang ng pananampalataya. Ayon nga sa Kasulatan, "Sa pananampalataya mabubuhay ang matuwid." ## Ang Galit ng Dios sa Lahat ng Kasamaan 
+Sapagkat ipinapahayag sa Magandang Balita kung paano itinuturing ng Dios na matuwid ang tao, at itoʼy sa pamamagitan lang ng pananampalataya. Ayon nga sa Kasulatan, "Sa pananampalataya mabubuhay ang matuwid." ## Ang Galit ng Dios sa Lahat ng Kasamaan 
 
 
 

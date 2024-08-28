@@ -304,7 +304,7 @@ Nang kunin niya iyon, lumuhod sa harap ng Tupa ang apat na buhay na nilalang at 
 
 
 
-at umaawit sila ng bagong awit na ito: "Kayo po ang karapat-dapat na kumuha ng kasulatan at magtanggal ng mga selyo nito, dahil kayo ay pinatay, at sa pamamagitan ng inyong dugo ay tinubos nʼyo ang mga tao para sa Dios. Ang mga taong ito ay_ mula sa bawat angkan, wika, lahi, at bansa. 
+at umaawit sila ng bagong awit na ito: "Kayo po ang karapat-dapat na kumuha ng kasulatan at magtanggal ng mga selyo nito, dahil kayo ay pinatay, at sa pamamagitan ng inyong dugo ay tinubos nʼyo ang mga tao para sa Dios. Ang mga taong ito ay mula sa bawat angkan, wika, lahi, at bansa. 
 
 
 

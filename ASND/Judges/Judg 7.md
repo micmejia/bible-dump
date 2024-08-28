@@ -172,7 +172,7 @@ Pero sinabi ng Panginoon kay Gideon, "Marami pa rin ang naiwan. Dalhin mo sila s
 
 
 
-Kaya dinala sila ni Gideon sa ilog. At dooʼy sinabi ng Panginoon, "Ibukod ang lahat ng umiinom ng tubig sa kanilang kamay_ na parang umiinom na aso, at ibukod din ang umiinom nang nakaluhod." 
+Kaya dinala sila ni Gideon sa ilog. At dooʼy sinabi ng Panginoon, "Ibukod ang lahat ng umiinom ng tubig sa kanilang kamay na parang umiinom na aso, at ibukod din ang umiinom nang nakaluhod." 
 
 
 
@@ -271,7 +271,7 @@ Sinabi ng Panginoon kay Gideon, "Sa pamamagitan ng 300 taong ito ay ililigtas ko
 
 
 
-Kaya pinauwi nga sila ni Gideon matapos ipaiwan ang mga dala nilang baon at mga trumpeta; pinaiwan din niya ang 300 taong napili. Ang kampo ng mga Midianita ay nasa ibaba lang ng bundok, kung saan sa itaas nito ay_ naroon sila Gideon. 
+Kaya pinauwi nga sila ni Gideon matapos ipaiwan ang mga dala nilang baon at mga trumpeta; pinaiwan din niya ang 300 taong napili. Ang kampo ng mga Midianita ay nasa ibaba lang ng bundok, kung saan sa itaas nito ay naroon sila Gideon. 
 
 
 
@@ -304,7 +304,7 @@ Kaya pinauwi nga sila ni Gideon matapos ipaiwan ang mga dala nilang baon at mga 
 
 
 
-Nang gabing iyon, sinabi ng Panginoon kay Gideon, "Maghanda ka na! Lusubin nʼyo na ang kampo ng mga Midianita_, dahil ipapatalo ko sila sa inyo. 
+Nang gabing iyon, sinabi ng Panginoon kay Gideon, "Maghanda ka na! Lusubin nʼyo na ang kampo ng mga Midianita, dahil ipapatalo ko sila sa inyo. 
 
 
 
@@ -370,7 +370,7 @@ Kung natatakot kang lumusob, isama mo ang lingkod mong si Pura at pumunta kayo s
 
 
 
-at pakinggan nʼyo kung ano ang sinasabi nila. Tiyak na lalakas ang loob mong lumusob dahil sa maririnig mo." Kaya pumunta silang dalawa sa hangganan ng kampo ng mga Midianita_, kung saan may mga sundalong nagbabantay. 
+at pakinggan nʼyo kung ano ang sinasabi nila. Tiyak na lalakas ang loob mong lumusob dahil sa maririnig mo." Kaya pumunta silang dalawa sa hangganan ng kampo ng mga Midianita, kung saan may mga sundalong nagbabantay. 
 
 
 
@@ -568,7 +568,7 @@ Hinati niya sa tatlong grupo ang 300 niyang tauhan, at binigyan ang bawat isa ng
 
 
 
-At sinabi niya sa kanila, "Sundan nʼyo ako ng tingin. Kapag naroon na kami sa dulo ng kampo ng kalaban_, gawin nʼyo kung ano ang gagawin ko. 
+At sinabi niya sa kanila, "Sundan nʼyo ako ng tingin. Kapag naroon na kami sa dulo ng kampo ng kalaban, gawin nʼyo kung ano ang gagawin ko. 
 
 
 
@@ -601,7 +601,7 @@ At sinabi niya sa kanila, "Sundan nʼyo ako ng tingin. Kapag naroon na kami sa d
 
 
 
-Kapag pinatunog ko at ng mga kasama ko ang mga trumpeta namin, ganoon din ang gawin nʼyo sa palibot ng kampo, at isigaw nʼyo nang malakas_, 'Para sa Panginoon at kay Gideon!' " 
+Kapag pinatunog ko at ng mga kasama ko ang mga trumpeta namin, ganoon din ang gawin nʼyo sa palibot ng kampo, at isigaw nʼyo nang malakas, 'Para sa Panginoon at kay Gideon!' " 
 
 
 
@@ -634,7 +634,7 @@ Kapag pinatunog ko at ng mga kasama ko ang mga trumpeta namin, ganoon din ang ga
 
 
 
-Maghahatinggabi na nang dumating si Gideon at ang 100 niyang kasama sa hangganan ng kampo ng kalaban_, kapapalit lang ng guwardya noon. Pinatunog nina Gideon ang mga trumpeta nila at pinagbabasag ang kanilang mga banga. 
+Maghahatinggabi na nang dumating si Gideon at ang 100 niyang kasama sa hangganan ng kampo ng kalaban, kapapalit lang ng guwardya noon. Pinatunog nina Gideon ang mga trumpeta nila at pinagbabasag ang kanilang mga banga. 
 
 
 
@@ -766,7 +766,7 @@ Habang tumutunog ang trumpeta ng 300 Israelita, pinaglaban-laban ng Panginoon an
 
 
 
-Ipinatawag ni Gideon ang mga Israelita mula sa lahi nina_ Naftali, Asher at sa buong lahi ni_ Manase, at ipinahabol sa kanila ang mga Midianita. 
+Ipinatawag ni Gideon ang mga Israelita mula sa lahi nina Naftali, Asher at sa buong lahi ni Manase, at ipinahabol sa kanila ang mga Midianita. 
 
 
 
@@ -832,4 +832,4 @@ Nagsugo rin si Gideon ng mga mensahero para sabihin sa mga naninirahan sa kabund
 
 
 
-Nabihag nila ang dalawang pinuno ng mga Midianita na sina Oreb at Zeeb. Pinatay nila si Oreb sa bato na tinawag na_ Bato ni Oreb, at si Zeeb ay pinatay nila sa pisaan ng ubas na tinawag na_ Pisaan ng Ubas ni Zeeb. Patuloy nilang hinabol ang mga Midianita. Pagkatapos, dinala nila ang ulo ni Oreb at ni Zeeb kay Gideon na naroon sa kabila ng Ilog ng_ Jordan.
+Nabihag nila ang dalawang pinuno ng mga Midianita na sina Oreb at Zeeb. Pinatay nila si Oreb sa bato na tinawag na Bato ni Oreb, at si Zeeb ay pinatay nila sa pisaan ng ubas na tinawag na Pisaan ng Ubas ni Zeeb. Patuloy nilang hinabol ang mga Midianita. Pagkatapos, dinala nila ang ulo ni Oreb at ni Zeeb kay Gideon na naroon sa kabila ng Ilog ng Jordan.

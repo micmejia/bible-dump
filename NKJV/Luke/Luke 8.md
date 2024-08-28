@@ -10,7 +10,7 @@ next: ['Luke 9']
 
 
 ###### 1 
-Now it came to pass, afterward, that He went through every city and village, preaching and bringing the glad tidings of the kingdom of God. And the twelve _were_ with Him, 
+Now it came to pass, afterward, that He went through every city and village, preaching and bringing the glad tidings of the kingdom of God. And the twelve were with Him, 
 
 ###### 2 
 and certain women who had been healed of evil spirits and infirmities--Mary called Magdalene, out of whom had come seven demons, 
@@ -39,7 +39,7 @@ But others fell on good ground, sprang up, and yielded a crop a hundredfold." Wh
 Then His disciples asked Him, saying, "What does this parable mean?" 
 
 ###### 10 
-And He said, "To you it has been given to know the mysteries of the kingdom of God, but to the rest _it is given_ in parables, that 'Seeing they may not see, And hearing they may not understand.' ## The Parable of the Sower Explained 
+And He said, "To you it has been given to know the mysteries of the kingdom of God, but to the rest it is given in parables, that 'Seeing they may not see, And hearing they may not understand.' ## The Parable of the Sower Explained 
 
 ###### 11 
 "Now the parable is this: The seed is the word of God. 
@@ -48,30 +48,30 @@ And He said, "To you it has been given to know the mysteries of the kingdom of G
 Those by the wayside are the ones who hear; then the devil comes and takes away the word out of their hearts, lest they should believe and be saved. 
 
 ###### 13 
-But the ones on the rock _are those_ who, when they hear, receive the word with joy; and these have no root, who believe for a while and in time of temptation fall away. 
+But the ones on the rock are those who, when they hear, receive the word with joy; and these have no root, who believe for a while and in time of temptation fall away. 
 
 ###### 14 
-Now the ones _that_ fell among thorns are those who, when they have heard, go out and are choked with cares, riches, and pleasures of life, and bring no fruit to maturity. 
+Now the ones that fell among thorns are those who, when they have heard, go out and are choked with cares, riches, and pleasures of life, and bring no fruit to maturity. 
 
 ###### 15 
-But the ones _that_ fell on the good ground are those who, having heard the word with a noble and good heart, keep _it_ and bear fruit with patience.
+But the ones that fell on the good ground are those who, having heard the word with a noble and good heart, keep it and bear fruit with patience.
 
 ## The Parable of the Revealed Light 
 
 ###### 16 
-"No one, when he has lit a lamp, covers it with a vessel or puts _it_ under a bed, but sets _it_ on a lampstand, that those who enter may see the light. 
+"No one, when he has lit a lamp, covers it with a vessel or puts it under a bed, but sets it on a lampstand, that those who enter may see the light. 
 
 ###### 17 
-For nothing is secret that will not be revealed, nor _anything_ hidden that will not be known and come to light. 
+For nothing is secret that will not be revealed, nor anything hidden that will not be known and come to light. 
 
 ###### 18 
-Therefore take heed how you hear. For whoever has, to him _more_ will be given; and whoever does not have, even what he seems to have will be taken from him." ## Jesus' Mother and Brothers Come to Him 
+Therefore take heed how you hear. For whoever has, to him more will be given; and whoever does not have, even what he seems to have will be taken from him." ## Jesus' Mother and Brothers Come to Him 
 
 ###### 19 
 Then His mother and brothers came to Him, and could not approach Him because of the crowd. 
 
 ###### 20 
-And it was told Him _by some,_ who said, "Your mother and Your brothers are standing outside, desiring to see You." 
+And it was told Him by some, who said, "Your mother and Your brothers are standing outside, desiring to see You." 
 
 ###### 21 
 But He answered and said to them, "My mother and My brothers are these who hear the word of God and do it." ## Wind and Wave Obey Jesus 
@@ -80,7 +80,7 @@ But He answered and said to them, "My mother and My brothers are these who hear 
 Now it happened, on a certain day, that He got into a boat with His disciples. And He said to them, "Let us cross over to the other side of the lake." And they launched out. 
 
 ###### 23 
-But as they sailed He fell asleep. And a windstorm came down on the lake, and they were filling _with water,_ and were in jeopardy. 
+But as they sailed He fell asleep. And a windstorm came down on the lake, and they were filling with water, and were in jeopardy. 
 
 ###### 24 
 And they came to Him and awoke Him, saying, "Master, Master, we are perishing!" Then He arose and rebuked the wind and the raging of the water. And they ceased, and there was a calm. 
@@ -113,13 +113,13 @@ Now a herd of many swine was feeding there on the mountain. So they begged Him t
 Then the demons went out of the man and entered the swine, and the herd ran violently down the steep place into the lake and drowned. 
 
 ###### 34 
-When those who fed _them_ saw what had happened, they fled and told _it_ in the city and in the country. 
+When those who fed them saw what had happened, they fled and told it in the city and in the country. 
 
 ###### 35 
 Then they went out to see what had happened, and came to Jesus, and found the man from whom the demons had departed, sitting at the feet of Jesus, clothed and in his right mind. And they were afraid. 
 
 ###### 36 
-They also who had seen _it_ told them by what means he who had been demon-possessed was healed. 
+They also who had seen it told them by what means he who had been demon-possessed was healed. 
 
 ###### 37 
 Then the whole multitude of the surrounding region of the Gadarenes asked Him to depart from them, for they were seized with great fear. And He got into the boat and returned. 
@@ -160,10 +160,10 @@ Now when the woman saw that she was not hidden, she came trembling; and falling 
 And He said to her, "Daughter, be of good cheer; your faith has made you well. Go in peace." 
 
 ###### 49 
-While He was still speaking, someone came from the ruler of the synagogue's _house,_ saying to him, "Your daughter is dead. Do not trouble the Teacher." 
+While He was still speaking, someone came from the ruler of the synagogue's house, saying to him, "Your daughter is dead. Do not trouble the Teacher." 
 
 ###### 50 
-But when Jesus heard _it,_ He answered him, saying, "Do not be afraid; only believe, and she will be made well." 
+But when Jesus heard it, He answered him, saying, "Do not be afraid; only believe, and she will be made well." 
 
 ###### 51 
 When He came into the house, He permitted no one to go in except Peter, James, and John, and the father and mother of the girl. 
@@ -178,7 +178,7 @@ And they ridiculed Him, knowing that she was dead.
 But He put them all outside, took her by the hand and called, saying, "Little girl, arise." 
 
 ###### 55 
-Then her spirit returned, and she arose immediately. And He commanded that she be given _something_ to eat. 
+Then her spirit returned, and she arose immediately. And He commanded that she be given something to eat. 
 
 ###### 56 
 And her parents were astonished, but He charged them to tell no one what had happened.

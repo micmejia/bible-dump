@@ -73,7 +73,7 @@ next: ['Exod 23']
 
 
 
-"Kung nahuli siya sa gabi_ na aktong nagnanakaw, at napatay siya, walang pananagutan ang nakapatay sa kanya. 
+"Kung nahuli siya sa gabi na aktong nagnanakaw, at napatay siya, walang pananagutan ang nakapatay sa kanya. 
 
 
 
@@ -205,7 +205,7 @@ Kung ang baka o asno o tupa na ninakaw niya ay nasa kanya pa, babayaran niya ito
 
 
 
-"Kung may nagsiga at_ kumalat ang apoy sa mga damo hanggang sa taniman ng ibang tao_, kailangang bayaran ng nagsiga ang mga pananim na nasira. 
+"Kung may nagsiga at kumalat ang apoy sa mga damo hanggang sa taniman ng ibang tao, kailangang bayaran ng nagsiga ang mga pananim na nasira. 
 
 
 
@@ -304,7 +304,7 @@ Pero kung hindi nahuli ang magnanakaw, haharap sa presensya ng Dios ang pinagpat
 
 
 
-"Kung may dalawang taong nagtatalo tungkol sa kung sino sa kanila ang may-ari ng isang pag-aari kagaya ng baka, asno, tupa, damit o kahit anong bagay, dapat nilang dalhin ang kaso nila sa presensya ng Dios. Ang taong nagkasala ayon sa desisyon ng Dios ay magbabayad ng doble sa totoong_ may-ari. 
+"Kung may dalawang taong nagtatalo tungkol sa kung sino sa kanila ang may-ari ng isang pag-aari kagaya ng baka, asno, tupa, damit o kahit anong bagay, dapat nilang dalhin ang kaso nila sa presensya ng Dios. Ang taong nagkasala ayon sa desisyon ng Dios ay magbabayad ng doble sa totoong may-ari. 
 
 
 
@@ -537,7 +537,7 @@ Pero kung nariyan ang may-ari nang mangyari ito, hindi dapat magbayad ang nanghi
 
 
 
-"Kung linlangin ng isang lalaki ang dalagang malapit nang ikasal, at sumiping siya sa kanya, dapat magbayad ang lalaki sa pamilya ng dalaga_ ng dote, at magiging asawa niya ang dalaga. 
+"Kung linlangin ng isang lalaki ang dalagang malapit nang ikasal, at sumiping siya sa kanya, dapat magbayad ang lalaki sa pamilya ng dalaga ng dote, at magiging asawa niya ang dalaga. 
 
 
 
@@ -867,7 +867,7 @@ Talagang magagalit ako sa inyo at papatayin ko kayo sa labanan. Mabibiyuda ang i
 
 
 
-Kung kukunin ninyo ang balabal ng kapwa ninyo bilang garantiya na magbabayad siya ng utang sa iyo_, isauli mo ito sa kanya bago lumubog ang araw. 
+Kung kukunin ninyo ang balabal ng kapwa ninyo bilang garantiya na magbabayad siya ng utang sa iyo, isauli mo ito sa kanya bago lumubog ang araw. 
 
 
 

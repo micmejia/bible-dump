@@ -106,7 +106,7 @@ Ang bawat isa sa kanilaʼy magiging kanlungan sa malakas na hangin at bagyo. Ang
 
 
 
-Maghahanap at makikinig ang mga tao sa Dios_. 
+Maghahanap at makikinig ang mga tao sa Dios. 
 
 
 

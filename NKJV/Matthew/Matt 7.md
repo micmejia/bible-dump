@@ -19,7 +19,7 @@ For with what judgment you judge, you will be judged; and with the measure you u
 And why do you look at the speck in your brother's eye, but do not consider the plank in your own eye? 
 
 ###### 4 
-Or how can you say to your brother, 'Let me remove the speck from your eye'; and look, a plank _is_ in your own eye? 
+Or how can you say to your brother, 'Let me remove the speck from your eye'; and look, a plank is in your own eye? 
 
 ###### 5 
 Hypocrite! First remove the plank from your own eye, and then you will see clearly to remove the speck from your brother's eye. 
@@ -50,10 +50,10 @@ Therefore, whatever you want men to do to you, do also to them, for this is the 
 ## The Narrow Way 
 
 ###### 13 
-"Enter by the narrow gate; for wide _is_ the gate and broad _is_ the way that leads to destruction, and there are many who go in by it. 
+"Enter by the narrow gate; for wide is the gate and broad is the way that leads to destruction, and there are many who go in by it. 
 
 ###### 14 
-Because narrow _is_ the gate and difficult _is_ the way which leads to life, and there are few who find it.
+Because narrow is the gate and difficult is the way which leads to life, and there are few who find it.
 
 ## You Will Know Them by Their Fruits 
 
@@ -67,7 +67,7 @@ You will know them by their fruits. Do men gather grapes from thornbushes or fig
 Even so, every good tree bears good fruit, but a bad tree bears bad fruit. 
 
 ###### 18 
-A good tree cannot bear bad fruit, nor _can_ a bad tree bear good fruit. 
+A good tree cannot bear bad fruit, nor can a bad tree bear good fruit. 
 
 ###### 19 
 Every tree that does not bear good fruit is cut down and thrown into the fire. 

@@ -9,16 +9,16 @@ up: ['2 Timothy']
 
 
 ###### 1 
-I charge _you_ therefore before God and the Lord Jesus Christ, who will judge the living and the dead at His appearing and His kingdom: 
+I charge you therefore before God and the Lord Jesus Christ, who will judge the living and the dead at His appearing and His kingdom: 
 
 ###### 2 
-Preach the word! Be ready in season _and_ out of season. Convince, rebuke, exhort, with all longsuffering and teaching. 
+Preach the word! Be ready in season and out of season. Convince, rebuke, exhort, with all longsuffering and teaching. 
 
 ###### 3 
-For the time will come when they will not endure sound doctrine, but according to their own desires, _because_ they have itching ears, they will heap up for themselves teachers; 
+For the time will come when they will not endure sound doctrine, but according to their own desires, because they have itching ears, they will heap up for themselves teachers; 
 
 ###### 4 
-and they will turn _their_ ears away from the truth, and be turned aside to fables. 
+and they will turn their ears away from the truth, and be turned aside to fables. 
 
 ###### 5 
 But you be watchful in all things, endure afflictions, do the work of an evangelist, fulfill your ministry.
@@ -63,10 +63,10 @@ At my first defense no one stood with me, but all forsook me. May it not be char
 ## The Lord Is Faithful 
 
 ###### 17 
-But the Lord stood with me and strengthened me, so that the message might be preached fully through me, and _that_ all the Gentiles might hear. Also I was delivered out of the mouth of the lion. 
+But the Lord stood with me and strengthened me, so that the message might be preached fully through me, and that all the Gentiles might hear. Also I was delivered out of the mouth of the lion. 
 
 ###### 18 
-And the Lord will deliver me from every evil work and preserve _me_ for His heavenly kingdom. To Him _be_ glory forever and ever. Amen! ## Come Before Winter 
+And the Lord will deliver me from every evil work and preserve me for His heavenly kingdom. To Him be glory forever and ever. Amen! ## Come Before Winter 
 
 ###### 19 
 Greet Prisca and Aquila, and the household of Onesiphorus. 

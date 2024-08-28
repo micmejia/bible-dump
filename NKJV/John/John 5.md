@@ -13,7 +13,7 @@ next: ['John 6']
 After this there was a feast of the Jews, and Jesus went up to Jerusalem. 
 
 ###### 2 
-Now there is in Jerusalem by the Sheep _Gate_ a pool, which is called in Hebrew, Bethesda, having five porches. 
+Now there is in Jerusalem by the Sheep Gate a pool, which is called in Hebrew, Bethesda, having five porches. 
 
 ###### 3 
 In these lay a great multitude of sick people, blind, lame, paralyzed, waiting for the moving of the water. 
@@ -25,7 +25,7 @@ For an angel went down at a certain time into the pool and stirred up the water;
 Now a certain man was there who had an infirmity thirty-eight years. 
 
 ###### 6 
-When Jesus saw him lying there, and knew that he already had been _in that condition_ a long time, He said to him, "Do you want to be made well?" 
+When Jesus saw him lying there, and knew that he already had been in that condition a long time, He said to him, "Do you want to be made well?" 
 
 ###### 7 
 The sick man answered Him, "Sir, I have no man to put me into the pool when the water is stirred up; but while I am coming, another steps down before me." 
@@ -46,7 +46,7 @@ He answered them, "He who made me well said to me, 'Take up your bed and walk.' 
 Then they asked him, "Who is the Man who said to you, 'Take up your bed and walk'?" 
 
 ###### 13 
-But the one who was healed did not know who it was, for Jesus had withdrawn, a multitude being in _that_ place. 
+But the one who was healed did not know who it was, for Jesus had withdrawn, a multitude being in that place. 
 
 ###### 14 
 Afterward Jesus found him in the temple, and said to him, "See, you have been made well. Sin no more, lest a worse thing come upon you." 
@@ -72,7 +72,7 @@ Then Jesus answered and said to them, "Most assuredly, I say to you, the Son can
 For the Father loves the Son, and shows Him all things that He Himself does; and He will show Him greater works than these, that you may marvel. 
 
 ###### 21 
-For as the Father raises the dead and gives life to _them,_ even so the Son gives life to whom He will. 
+For as the Father raises the dead and gives life to them, even so the Son gives life to whom He will. 
 
 ###### 22 
 For the Father judges no one, but has committed all judgment to the Son, 
@@ -145,10 +145,10 @@ But I know you, that you do not have the love of God in you.
 I have come in My Father's name, and you do not receive Me; if another comes in his own name, him you will receive. 
 
 ###### 44 
-How can you believe, who receive honor from one another, and do not seek the honor that _comes_ from the only God? 
+How can you believe, who receive honor from one another, and do not seek the honor that comes from the only God? 
 
 ###### 45 
-Do not think that I shall accuse you to the Father; there is _one_ who accuses you--Moses, in whom you trust. 
+Do not think that I shall accuse you to the Father; there is one who accuses you--Moses, in whom you trust. 
 
 ###### 46 
 For if you believed Moses, you would believe Me; for he wrote about Me. 

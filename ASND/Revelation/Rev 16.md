@@ -172,7 +172,7 @@ Pagkatapos, ibinuhos ng ikatlong anghel ang laman ng kanyang sisidlan sa mga ilo
 
 
 
-Narinig kong sinabi ng anghel na katiwala sa tubig, "Makatarungan po kayo, Panginoon._ Kayo ang Dios noon at kayo rin ang Dios magpahanggang ngayon. Banal kayo, at matuwid ang pagpaparusa ninyong ito sa mga tao. 
+Narinig kong sinabi ng anghel na katiwala sa tubig, "Makatarungan po kayo, Panginoon. Kayo ang Dios noon at kayo rin ang Dios magpahanggang ngayon. Banal kayo, at matuwid ang pagpaparusa ninyong ito sa mga tao. 
 
 
 
@@ -205,7 +205,7 @@ Narinig kong sinabi ng anghel na katiwala sa tubig, "Makatarungan po kayo, Pangi
 
 
 
-Pinadanak nila ang dugo ng mga pinabanal at ng inyong_ mga propeta, kaya dugo rin ang ipaiinom nʼyo sa kanila. Ito ang nararapat na ganti sa kanila." 
+Pinadanak nila ang dugo ng mga pinabanal at ng inyong mga propeta, kaya dugo rin ang ipaiinom nʼyo sa kanila. Ito ang nararapat na ganti sa kanila." 
 
 
 
@@ -469,7 +469,7 @@ At nakita kong lumabas mula sa bunganga ng dragon, ng halimaw, at ng huwad at si
 
 
 
-Iyon ang mga demonyong gumagawa ng mga kababalaghan. Pumunta sila sa mga hari sa buong mundo upang tipunin sila para sa pakikipaglaban sa Dios pagdating ng dakilang araw na itinakda_ ng Dios na makapangyarihan sa lahat. 15-16Ang lugar na pinagtipunan sa kanila at sa kanilang mga sundalo_ ay tinatawag na Armagedon sa wikang Hebreo. Pero sinabi ng Panginoon,_ "Makinig kayong mabuti! Darating ako na tulad ng magnanakaw dahil walang nakakaalam_. Mapalad ang taong nagbabantay at hindi naghuhubad ng kanyang damit, upang sa pagdating ko ay hindi siya lalakad na hubad at hindi mapapahiya sa mga tao." 
+Iyon ang mga demonyong gumagawa ng mga kababalaghan. Pumunta sila sa mga hari sa buong mundo upang tipunin sila para sa pakikipaglaban sa Dios pagdating ng dakilang araw na itinakda ng Dios na makapangyarihan sa lahat. 15-16Ang lugar na pinagtipunan sa kanila at sa kanilang mga sundalo ay tinatawag na Armagedon sa wikang Hebreo. Pero sinabi ng Panginoon, "Makinig kayong mabuti! Darating ako na tulad ng magnanakaw dahil walang nakakaalam. Mapalad ang taong nagbabantay at hindi naghuhubad ng kanyang damit, upang sa pagdating ko ay hindi siya lalakad na hubad at hindi mapapahiya sa mga tao." 
 
 
 

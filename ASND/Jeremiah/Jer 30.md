@@ -7,7 +7,7 @@ next: ['Jer 31']
 # Jeremiah 30
 
 ***
-###### 1-2 Sinabi ng Panginoon kay Jeremias, "Ako,_ ang Panginoon, ang Dios ng Israel ay nagsasabing, isulat mo sa aklat ang lahat ng sinabi ko sa iyo. 
+###### 1-2 Sinabi ng Panginoon kay Jeremias, "Ako, ang Panginoon, ang Dios ng Israel ay nagsasabing, isulat mo sa aklat ang lahat ng sinabi ko sa iyo. 
 
 
 
@@ -139,7 +139,7 @@ Lubhang nakakatakot kapag dumating na ang araw na iyon, at wala itong katulad. P
 
 
 
-Ako,_ ang Panginoong Makapangyarihan, ay nagsasabing sa panahong iyon, hindi na sila aalipinin ng mga taga-ibang bansa. Babaliin ko na ang pamatok sa mga leeg nila at tatanggalin ko na ang mga kadena nila. 
+Ako, ang Panginoong Makapangyarihan, ay nagsasabing sa panahong iyon, hindi na sila aalipinin ng mga taga-ibang bansa. Babaliin ko na ang pamatok sa mga leeg nila at tatanggalin ko na ang mga kadena nila. 
 
 
 
@@ -172,7 +172,7 @@ Ako,_ ang Panginoong Makapangyarihan, ay nagsasabing sa panahong iyon, hindi na 
 
 
 
-Maglilingkod na sila sa akin, ang_ Panginoon nilang Dios, at hihirang ako ng hari nila mula sa angkan ni David. 
+Maglilingkod na sila sa akin, ang Panginoon nilang Dios, at hihirang ako ng hari nila mula sa angkan ni David. 
 
 
 
@@ -205,7 +205,7 @@ Maglilingkod na sila sa akin, ang_ Panginoon nilang Dios, at hihirang ako ng har
 
 
 
-"Kaya huwag kayong matatakot, o manlulupaypay man, kayong mga lahi ni Jacob na lingkod ko. Ako,_ ang Panginoon, ay nagsasabing kukunin ko kayo mula riyan sa malayong lugar kung saan kayo binihag. Sa pagbabalik ninyo, mamumuhay na kayo nang payapa, tahimik, at walang kinatatakutan. 
+"Kaya huwag kayong matatakot, o manlulupaypay man, kayong mga lahi ni Jacob na lingkod ko. Ako, ang Panginoon, ay nagsasabing kukunin ko kayo mula riyan sa malayong lugar kung saan kayo binihag. Sa pagbabalik ninyo, mamumuhay na kayo nang payapa, tahimik, at walang kinatatakutan. 
 
 
 
@@ -370,7 +370,7 @@ Huwag kayong dadaing na hindi na gumagaling ang sugat ninyo. Pinarusahan ko kayo
 
 
 
-Ngunit gagamutin at pagagalingin ko ang mga sugat nʼyo kahit na sinasabi ng iba na kayong mga taga-Jerusalem ay itinakwil at pinabayaan. Ako,_ ang Panginoon, ang nagsasabi nito." 
+Ngunit gagamutin at pagagalingin ko ang mga sugat nʼyo kahit na sinasabi ng iba na kayong mga taga-Jerusalem ay itinakwil at pinabayaan. Ako, ang Panginoon, ang nagsasabi nito." 
 
 
 
@@ -502,7 +502,7 @@ Magiging maunlad ang kanilang mga anak katulad noong una. Patatatagin ko sila sa
 
 
 
-Ang mga pinuno nilaʼy magmumula rin sa kanila. Palalapitin ko siya sa akin, at siya naman ay lalapit. Sapagkat walang sinumang taong mangangahas na lumapit sa akin kung hindi ko siya palalapitin. Ako,_ ang Panginoon, ay nagsasabing, 
+Ang mga pinuno nilaʼy magmumula rin sa kanila. Palalapitin ko siya sa akin, at siya naman ay lalapit. Sapagkat walang sinumang taong mangangahas na lumapit sa akin kung hindi ko siya palalapitin. Ako, ang Panginoon, ay nagsasabing, 
 
 
 

@@ -15,16 +15,16 @@ The words of Amos, who was among the sheepbreeders of Tekoa, which he saw concer
 And he said: "The Lord roars from Zion, And utters His voice from Jerusalem; The pastures of the shepherds mourn, And the top of Carmel withers." ## Judgment on the Nations 
 
 ###### 3 
-Thus says the Lord: "For three transgressions of Damascus, and for four, I will not turn away its _punishment,_ Because they have threshed Gilead with implements of iron. 
+Thus says the Lord: "For three transgressions of Damascus, and for four, I will not turn away its punishment, Because they have threshed Gilead with implements of iron. 
 
 ###### 4 
 But I will send a fire into the house of Hazael, Which shall devour the palaces of Ben-Hadad. 
 
 ###### 5 
-I will also break the _gate_ bar of Damascus, And cut off the inhabitant from the Valley of Aven, And the one who holds the scepter from Beth Eden. The people of Syria shall go captive to Kir," Says the Lord. 
+I will also break the gate bar of Damascus, And cut off the inhabitant from the Valley of Aven, And the one who holds the scepter from Beth Eden. The people of Syria shall go captive to Kir," Says the Lord. 
 
 ###### 6 
-Thus says the Lord: "For three transgressions of Gaza, and for four, I will not turn away its _punishment,_ Because they took captive the whole captivity To deliver _them_ up to Edom. 
+Thus says the Lord: "For three transgressions of Gaza, and for four, I will not turn away its punishment, Because they took captive the whole captivity To deliver them up to Edom. 
 
 ###### 7 
 But I will send a fire upon the wall of Gaza, Which shall devour its palaces. 
@@ -33,19 +33,19 @@ But I will send a fire upon the wall of Gaza, Which shall devour its palaces.
 I will cut off the inhabitant from Ashdod, And the one who holds the scepter from Ashkelon; I will turn My hand against Ekron, And the remnant of the Philistines shall perish," Says the Lord God. 
 
 ###### 9 
-Thus says the Lord: "For three transgressions of Tyre, and for four, I will not turn away its _punishment,_ Because they delivered up the whole captivity to Edom, And did not remember the covenant of brotherhood. 
+Thus says the Lord: "For three transgressions of Tyre, and for four, I will not turn away its punishment, Because they delivered up the whole captivity to Edom, And did not remember the covenant of brotherhood. 
 
 ###### 10 
 But I will send a fire upon the wall of Tyre, Which shall devour its palaces." 
 
 ###### 11 
-Thus says the Lord: "For three transgressions of Edom, and for four, I will not turn away its _punishment,_ Because he pursued his brother with the sword, And cast off all pity; His anger tore perpetually, And he kept his wrath forever. 
+Thus says the Lord: "For three transgressions of Edom, and for four, I will not turn away its punishment, Because he pursued his brother with the sword, And cast off all pity; His anger tore perpetually, And he kept his wrath forever. 
 
 ###### 12 
 But I will send a fire upon Teman, Which shall devour the palaces of Bozrah." 
 
 ###### 13 
-Thus says the Lord: "For three transgressions of the people of Ammon, and for four, I will not turn away its _punishment,_ Because they ripped open the women with child in Gilead, That they might enlarge their territory. 
+Thus says the Lord: "For three transgressions of the people of Ammon, and for four, I will not turn away its punishment, Because they ripped open the women with child in Gilead, That they might enlarge their territory. 
 
 ###### 14 
 But I will kindle a fire in the wall of Rabbah, And it shall devour its palaces, Amid shouting in the day of battle, And a tempest in the day of the whirlwind. 

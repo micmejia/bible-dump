@@ -33,10 +33,10 @@ Whoever receives one little child like this in My name receives Me.
 Woe to the world because of offenses! For offenses must come, but woe to that man by whom the offense comes! 
 
 ###### 8 
-"If your hand or foot causes you to sin, cut it off and cast _it_ from you. It is better for you to enter into life lame or maimed, rather than having two hands or two feet, to be cast into the everlasting fire. 
+"If your hand or foot causes you to sin, cut it off and cast it from you. It is better for you to enter into life lame or maimed, rather than having two hands or two feet, to be cast into the everlasting fire. 
 
 ###### 9 
-And if your eye causes you to sin, pluck it out and cast _it_ from you. It is better for you to enter into life with one eye, rather than having two eyes, to be cast into hell fire.
+And if your eye causes you to sin, pluck it out and cast it from you. It is better for you to enter into life with one eye, rather than having two eyes, to be cast into hell fire.
 
 ## The Parable of the Lost Sheep 
 
@@ -50,7 +50,7 @@ For the Son of Man has come to save that which was lost.
 "What do you think? If a man has a hundred sheep, and one of them goes astray, does he not leave the ninety-nine and go to the mountains to seek the one that is straying? 
 
 ###### 13 
-And if he should find it, assuredly, I say to you, he rejoices more over that _sheep_ than over the ninety-nine that did not go astray. 
+And if he should find it, assuredly, I say to you, he rejoices more over that sheep than over the ninety-nine that did not go astray. 
 
 ###### 14 
 Even so it is not the will of your Father who is in heaven that one of these little ones should perish.
@@ -64,7 +64,7 @@ Even so it is not the will of your Father who is in heaven that one of these lit
 But if he will not hear, take with you one or two more, that 'by the mouth of two or three witnesses every word may be established.' 
 
 ###### 17 
-And if he refuses to hear them, tell _it_ to the church. But if he refuses even to hear the church, let him be to you like a heathen and a tax collector. 
+And if he refuses to hear them, tell it to the church. But if he refuses even to hear the church, let him be to you like a heathen and a tax collector. 
 
 ###### 18 
 "Assuredly, I say to you, whatever you bind on earth will be bound in heaven, and whatever you loose on earth will be loosed in heaven. 
@@ -97,7 +97,7 @@ The servant therefore fell down before him, saying, 'Master, have patience with 
 Then the master of that servant was moved with compassion, released him, and forgave him the debt. 
 
 ###### 28 
-"But that servant went out and found one of his fellow servants who owed him a hundred denarii; and he laid hands on him and took _him_ by the throat, saying, 'Pay me what you owe!' 
+"But that servant went out and found one of his fellow servants who owed him a hundred denarii; and he laid hands on him and took him by the throat, saying, 'Pay me what you owe!' 
 
 ###### 29 
 So his fellow servant fell down at his feet and begged him, saying, 'Have patience with me, and I will pay you all.' 

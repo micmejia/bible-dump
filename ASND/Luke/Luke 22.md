@@ -9,68 +9,13 @@ next: ['Luke 23']
 ***
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 1 
-
-
-
-
-
-
-
-
 
 
 Nalalapit na noon ang Pista ng Tinapay na Walang Pampaalsa na tinatawag ding Pista ng Paglampas ng Anghel. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 2 
-
-
-
-
-
-
-
-
 
 
 Ang mga namamahalang pari at ang mga tagapagturo ng Kautusan ay naghahanap ng paraan upang maipapatay si Jesus ng hindi magkakagulo, dahil natatakot sila sa mga tao.
@@ -78,133 +23,25 @@ Ang mga namamahalang pari at ang mga tagapagturo ng Kautusan ay naghahanap ng pa
 ## Nakipagkasundo si Judas sa mga Kaaway ni Jesus 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 3 
-
-
-
-
-
-
-
-
 
 
 Pumasok si Satanas kay Judas na tinatawag na Iscariote. Isa siya sa 12 tagasunod ni Jesus. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 4 
-
-
-
-
-
-
-
-
 
 
 Pumunta siya sa mga namamahalang pari at mga opisyal ng mga guwardya sa templo, at pinag-usapan nila kung paano niya maibibigay sa kanila si Jesus. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 5 
-
-
-
-
-
-
-
-
 
 
 Natuwa sila at nakipagkasundo kay Judas na bayaran siya. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 6 
-
-
-
-
-
-
-
-
 
 
 Pumayag naman si Judas sa kasunduan, at mula noon, humanap siya ng pagkakataon upang maibigay sa kanila si Jesus nang hindi nalalaman ng mga tao.
@@ -212,232 +49,43 @@ Pumayag naman si Judas sa kasunduan, at mula noon, humanap siya ng pagkakataon u
 ## Paghahanda ng Hapunan para sa Pista 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 7 
-
-
-
-
-
-
-
-
 
 
 Dumating ang Pista ng Tinapay na Walang Pampaalsa. At sa araw na ito, kailangang maghandog ang mga Judio ng tupa na kakainin nila sa Pista ng Paglampas ng Anghel. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 8 
-
-
-
-
-
-
-
-
 
 
 Kaya inutusan ni Jesus sina Pedro at Juan, "Ihanda ninyo ang hapunan natin para sa Pista ng Paglampas ng Anghel." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 9 
-
-
-
-
-
-
-
-
 
 
 Nagtanong sila, "Saan nʼyo po kami gustong maghanda?" 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 10 
-
-
-
-
-
-
-
-
 
 
 Sumagot si Jesus, "Pagpasok ninyo sa lungsod ng Jerusalem, sasalubungin kayo ng isang lalaking may pasan na banga ng tubig. Sundan ninyo siya sa bahay na papasukan niya, 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 11 
-
-
-
-
-
-
-
-
 
 
 at sabihin ninyo sa may-ari ng bahay, 'Ipinapatanong ng Guro kung saan ang kwartong kakainan niya ng hapunan na kasama ang mga tagasunod niya upang ipagdiwang ang Pista ng Paglampas ng Anghel.' 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 12 
-
-
-
-
-
-
-
-
 
 
 Isasama niya kayo sa itaas at ituturo sa inyo ang isang malaking kwarto na kumpleto ang kagamitan. Doon kayo maghanda ng hapunan natin." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 13 
-
-
-
-
-
-
-
-
 
 
 Lumakad sila at nakita nga nila ang lahat ayon sa sinabi ni Jesus sa kanila. At inihanda nila roon ang hapunan para sa pista.
@@ -445,331 +93,61 @@ Lumakad sila at nakita nga nila ang lahat ayon sa sinabi ni Jesus sa kanila. At 
 ## Huling Hapunan ni Jesus 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 14 
-
-
-
-
-
-
-
-
 
 
 Pagdating ng oras ng hapunan, kumain si Jesus at ang kanyang mga apostol. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 15 
-
-
-
-
-
-
-
-
 
 
 Sinabi ni Jesus sa kanila, "Gustong-gusto kong makasalo kayo sa hapunang ito sa pagdiriwang ng Pista ng Paglampas ng Anghel, bago ako maghirap. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 16 
-
-
-
-
-
-
-
-
 
 
 Sapagkat sinasabi ko sa inyo na hindi na ako muling kakain nito hanggang sa matupad ang kahulugan nito sa araw ng paghahari ng Dios." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 17 
-
-
-
-
-
-
-
-
 
 
 Pagkatapos, kumuha siya ng inumin, nagpasalamat sa Dios, at sinabi sa kanila, "Kunin ninyo ito at paghati-hatian. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 18 
-
-
-
-
-
-
-
-
 
 
 Sinasabi ko sa inyo na hindi na ako muling iinom ng inuming mula sa ubas hanggang sa araw ng paghahari ng Dios" 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 19 
-
-
-
-
-
-
-
-
 
 
 Pagkatapos, kumuha siya ng tinapay, at matapos magpasalamat sa Dios ay hinati-hati niya ito at ibinigay sa kanila. Sinabi niya, "Ito ang aking katawan na inihahandog para sa inyo. Gawin ninyo ito bilang pag-alaala sa akin." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 20 
-
-
-
-
-
-
-
-
 
 
 Pagkatapos nilang kumain, ganoon din ang ginawa niya sa inumin: kinuha niya ito at nagpasalamat sa Dios, at sinabi, "Ang inuming ito ang bagong kasunduan na pinagtibay ng dugo kong mabubuhos ng dahil sa inyo. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 21 
-
-
-
-
-
-
-
-
 
 
 "Ngunit makinig kayo! Kasalo ko sa mesang ito ang taong magtatraydor sa akin. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 22 
-
-
-
-
-
-
-
-
 
 
 Sapagkat ayon sa itinalaga ng Dios, Ako na Anak ng Tao ay papatayin, ngunit nakakaawa ang taong magtatraydor sa akin." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 23 
-
-
-
-
-
-
-
-
 
 
 Nagtanungan sa isaʼt isa ang mga tagasunod niya kung sino kaya sa kanila ang gagawa noon.
@@ -777,232 +155,43 @@ Nagtanungan sa isaʼt isa ang mga tagasunod niya kung sino kaya sa kanila ang ga
 ## Ang Pagtatalo tungkol sa Kadakilaan 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 24 
-
-
-
-
-
-
-
-
 
 
 Nagtalo-talo ang mga tagasunod ni Jesus kung sino sa kanila ang pinakadakila. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 25 
-
-
-
-
-
-
-
-
 
 
 Kaya sinabi sa kanila ni Jesus, "Sa mundong ito, ang mga hari ay pinapanginoon ng mga nasasakupan nila, at ang mga may kapangyarihan ay gustong tawagin na 'Tagatulong ng mga Tao.' 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 26 
-
-
-
-
-
-
-
-
 
 
 Ngunit hindi kayo dapat maging ganoon. Ang mas mataas ay dapat magpakababa, at ang pinuno ay dapat maging tulad ng isang tagapaglingkod. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 27 
-
-
-
-
-
-
-
-
 
 
 Sapagkat sino ba ang mas mataas, ang pinaglilingkuran o ang naglilingkod? Siyempre, ang pinaglilingkuran. Ngunit naglilingkod ako sa inyo kahit na ako ang Panginoon ninyo." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 28 
-
-
-
-
-
-
-
-
 
 
 "Kayo ang nanatiling kasama ko sa mga pagsubok na dinaranas ko. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 29 
-
-
-
-
-
-
-
-
 
 
 Kaya kung paanong binigyan ako ng aking Ama ng kapangyarihang maghari, kayo rin ay bibigyan ko ng ganoong kapangyarihan. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 30 
-
-
-
-
-
-
-
-
 
 
 Makakasalo ko kayo sa aking mesa sa aking kaharian, at uupo kayo sa mga trono upang mamahala sa 12 lahi ng Israel." 
@@ -1010,133 +199,25 @@ Makakasalo ko kayo sa aking mesa sa aking kaharian, at uupo kayo sa mga trono up
 ## Sinabi ni Jesus na Ikakaila Siya ni Pedro 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 31 
-
-
-
-
-
-
-
-
 
 
 Sinabi ni Jesus kay Pedro. "Simon, makinig kang mabuti! Humingi ng pahintulot si Satanas sa Dios na subukin niya kayong lahat tulad ng pag-aalis ng ipa sa mga trigo. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 32 
-
-
-
-
-
-
-
-
 
 
 Ngunit nanalangin ako para sa iyo, na huwag manghina ang iyong pananampalataya. At kapag nagbalik-loob ka na, palalakasin mo ang pananampalataya ng iyong mga kapatid." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 33 
-
-
-
-
-
-
-
-
 
 
 Sumagot si Simon, "Panginoon, handa po akong mabilanggo o mamatay na kasama ninyo." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 34 
-
-
-
-
-
-
-
-
 
 
 Pero sinabi sa kanya ni Jesus, "Pedro, tandaan mo, bago tumilaok ang manok ngayong gabi, tatlong beses mong ikakaila na kilala mo ako." 
@@ -1144,133 +225,25 @@ Pero sinabi sa kanya ni Jesus, "Pedro, tandaan mo, bago tumilaok ang manok ngayo
 ## Sa Panahon ng Kahirapan 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 35 
-
-
-
-
-
-
-
-
 
 
 Pagkatapos, sinabi ni Jesus sa mga tagasunod niya, "Noong suguin ko kayo nang walang dalang pitaka, bag, o sandalyas, kinulang ba kayo?" Sumagot sila, "Hindi po." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 36 
-
-
-
-
-
-
-
-
 
 
 "Ngunit ngayon," sabi ni Jesus, "Kung may pitaka o bag kayo, dalhin ninyo. At kung wala kayong espada, ipagbili ninyo ang damit ninyo at bumili kayo ng espada. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 37 
-
-
-
-
-
-
-
-
 
 
 Sapagkat sinasabi ko sa inyo na kailangang matupad ang sinasabing ito ng Kasulatan tungkol sa akin: 'Itinuring siyang isang kriminal.' At natutupad na ito ngayon!" 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 38 
-
-
-
-
-
-
-
-
 
 
 Sinabi ng mga tagasunod niya, "Panginoon, may dalawa po kaming espada." "Tama na iyan," sagot niya.
@@ -1278,265 +251,49 @@ Sinabi ng mga tagasunod niya, "Panginoon, may dalawa po kaming espada." "Tama na
 ## Nanalangin si Jesus sa Bundok ng mga Olibo 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 39 
-
-
-
-
-
-
-
-
 
 
 Lumabas si Jesus sa Jerusalem, at gaya ng nakaugalian niya, pumunta siya sa Bundok ng mga Olibo. Sumama rin ang mga tagasunod niya. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 40 
-
-
-
-
-
-
-
-
 
 
 Pagdating nila roon, sinabi niya sa kanila, "Manalangin kayo upang hindi kayo madaig ng tukso." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 41 
-
-
-
-
-
-
-
-
 
 
 Iniwan niya ang mga tagasunod niya at lumayo nang kaunti. Pagkatapos, lumuhod siya at nanalangin, 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 42 
-
-
-
-
-
-
-
-
 
 
 "Ama, kung maaari ay ilayo nʼyo sana sa akin ang mga paghihirap na darating. Ngunit hindi ang kalooban ko ang masunod kundi ang kalooban ninyo." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 43 
-
-
-
-
-
-
-
-
 
 
 [Nagpakita sa kanya ang isang anghel mula sa langit at pinalakas siya. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 44 
-
-
-
-
-
-
-
-
 
 
 Dahil sa paghihirap ng kanyang kalooban, lalo siyang nanalangin nang taimtim, at ang mga pawis niya ay parang dugo na tumutulo sa lupa.] 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 45 
-
-
-
-
-
-
-
-
 
 
 Pagkatapos, tumayo siya at binalikan ang mga tagasunod niya, pero nadatnan niya silang natutulog dahil napagod sila sa matinding paghihinagpis. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 46 
-
-
-
-
-
-
-
-
 
 
 Kaya sinabi niya sa kanila, "Bakit kayo natutulog? Bumangon kayo at manalangin, upang hindi kayo madaig ng tukso." 
@@ -1544,232 +301,43 @@ Kaya sinabi niya sa kanila, "Bakit kayo natutulog? Bumangon kayo at manalangin, 
 ## Ang Pagdakip kay Jesus 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 47 
-
-
-
-
-
-
-
-
 
 
 Nagsasalita pa si Jesus nang dumating ang maraming tao. Si Judas na isa sa 12 tagasunod ang nangunguna sa kanila. Nilapitan niya si Jesus at hinalikan. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 48 
-
-
-
-
-
-
-
-
 
 
 Sinabi ni Jesus sa kanya, "Judas, tinatraydor mo ba ako, na Anak ng Tao, sa pamamagitan ng isang halik?" 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 49 
-
-
-
-
-
-
-
-
 
 
 Nang makita ng mga kasamahan ni Jesus ang mga nangyayari, sinabi nila, "Panginoon, tatagain na ba namin sila?" 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 50 
-
-
-
-
-
-
-
-
 
 
 At tinaga ng isa sa kanila ang alipin ng punong pari, at naputol ang kanang tainga nito. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 51 
-
-
-
-
-
-
-
-
 
 
 Pero sinaway sila ni Jesus, "Tama na iyan!" Hinipo niya ang tainga ng alipin at pinagaling ito. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 52 
-
-
-
-
-
-
-
-
 
 
 Pagkatapos, kinausap ni Jesus ang mga namamahalang pari, mga opisyal ng mga guwardya sa templo at ang mga pinuno ng mga Judio na naroon upang dakpin siya, "Isa ba akong tulisan? Bakit kailangan pa ninyong magdala ng mga espada at mga pamalo upang dakpin ako? 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 53 
-
-
-
-
-
-
-
-
 
 
 Araw-araw akong nasa templo, at naroon din kayo. Bakit hindi nʼyo ako dinakip? Ngunit ito na ang pagkakataong ibinigay sa inyo upang dakpin ako. At sa sandaling ito ay naghahari ang kadiliman." 
@@ -1777,298 +345,55 @@ Araw-araw akong nasa templo, at naroon din kayo. Bakit hindi nʼyo ako dinakip? 
 ## Ipinagkaila ni Pedro na Kilala Niya si Jesus 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 54 
-
-
-
-
-
-
-
-
 
 
 Dinakip nila si Jesus at dinala sa bahay ng punong pari. Sumunod naman si Pedro pero nasa malayo siya. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 55 
-
-
-
-
-
-
-
-
 
 
 Nagsiga sa gitna ng bakuran ang mga naroon at naupo sila sa paligid ng siga para magpainit. Nakiupo rin si Pedro sa kanila. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 56 
-
-
-
-
-
-
-
-
 
 
 Nakita siya ng isang utusang babae sa tabi ng siga at tiningnang mabuti. Sinabi ng babae, "Kasamahan din ni Jesus ang lalaking ito!" 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 57 
-
-
-
-
-
-
-
-
 
 
 Pero itinanggi ito ni Pedro, "Babae, hindi ko siya kilala." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 58 
-
-
-
-
-
-
-
-
 
 
 Maya-maya, may nakakita na naman sa kanya at nagsabi, "Kasamahan ka rin nila, di ba?" "Aba, hindi!" sagot ni Pedro. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 59 
-
-
-
-
-
-
-
-
 
 
 Pagkalipas ng isang oras, iginiit naman ng isa, "Totoong kasamahan din ni Jesus ang taong ito, dahil taga-Galilea rin siya." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 60 
-
-
-
-
-
-
-
-
 
 
 Pero sumagot si Pedro, "Hindi ko alam kung ano ang pinagsasabi mo!" At habang nagsasalita pa siya ay tumilaok ang manok. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 61 
-
-
-
-
-
-
-
-
 
 
 Lumingon ang Panginoon at tiningnan si Pedro. Naalala ni Pedro ang sinabi ng Panginoon, "Bago tumilaok ang manok ngayong gabi, tatlong beses mong ikakaila na kilala mo ako." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 62 
-
-
-
-
-
-
-
-
 
 
 Kaya lumabas si Pedro at humagulgol.
@@ -2076,100 +401,19 @@ Kaya lumabas si Pedro at humagulgol.
 ## Kinutya at Binugbog si Jesus 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 63 
-
-
-
-
-
-
-
-
 
 
 Samantala, kinutya at binugbog si Jesus ng mga nagbabantay sa kanya. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 64 
-
-
-
-
-
-
-
-
 
 
 Piniringan nila siya at sinuntok, at tinanong, "Hulaan mo, sino ang sumuntok sa iyo?" 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 65 
-
-
-
-
-
-
-
-
 
 
 At marami pa silang sinabing masama laban sa kanya.
@@ -2177,199 +421,37 @@ At marami pa silang sinabing masama laban sa kanya.
 ## Dinala si Jesus sa Korte ng mga Judio 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 66 
-
-
-
-
-
-
-
-
 
 
 Kinaumagahan, nagtipon ang mga pinuno ng mga Judio, mga namamahalang pari, at ang mga tagapagturo ng Kautusan. Iniharap nila si Jesus sa kanilang korte. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 67 
-
-
-
-
-
-
-
-
 
 
 Sinabi nila, "Sabihin mo sa amin, ikaw ba ang Cristo?" Sumagot si Jesus, "Kung sasabihin ko sa inyo, hindi naman kayo maniniwala. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 68 
-
-
-
-
-
-
-
-
 
 
 At kung tatanungin ko kayo, hindi naman kayo sasagot. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 69 
-
-
-
-
-
-
-
-
 
 
 Ngunit mula ngayon, ako na Anak ng Tao ay uupo na sa kanan ng makapangyarihang Dios." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 70 
-
-
-
-
-
-
-
-
 
 
 "Kung ganoon, ikaw nga ang Anak ng Dios?" sabi nila. Sumagot si Jesus, "Kayo na rin ang nagsabi na ako nga." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 71 
-
-
-
-
-
-
-
-
 
 
 Kaya sinabi nila, "Narinig na natin ang sinabi niya, ano pang ebidensya ang kailangan natin?"

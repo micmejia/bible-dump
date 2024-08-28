@@ -9,299 +9,55 @@ next: ['Matt 14']
 ***
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 1 
-
-
-
-
-
-
-
-
 
 
 Nang araw ding iyon, lumabas ng bahay si Jesus at naupo sa tabi ng lawa. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 2 
-
-
-
-
-
-
-
-
 
 
 Napakaraming tao ang nagtipon sa paligid niya, kaya sumakay siya sa isang bangka at doon umupo, habang ang mga tao namaʼy nasa dalampasigan. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 3 
-
-
-
-
-
-
-
-
 
 
 Marami siyang itinuro sa kanila sa pamamagitan ng mga talinghaga o paghahalintulad. Sinabi niya, "May isang magsasakang naghasik ng binhi. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 4 
-
-
-
-
-
-
-
-
 
 
 Sa kanyang paghahasik, may mga binhing nahulog sa tabi ng daan. Dumating ang mga ibon at tinuka ang mga binhing iyon. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 5 
-
-
-
-
-
-
-
-
 
 
 May mga binhi namang nahulog sa mabatong lugar, kung saan walang gaanong lupa. Mabilis na tumubo ang binhi dahil mababaw ang lupa. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 6 
-
-
-
-
-
-
-
-
 
 
 Ngunit natuyo rin ito nang masikatan ng araw, at dahil hindi malalim ang ugat, namatay ito. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 7 
-
-
-
-
-
-
-
-
 
 
 May mga binhi namang nahulog sa lupang may matitinik na damo. Lumago ang mga damo at natakpan ang mga tumubong binhi. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 8 
-
-
-
-
-
-
-
-
 
 
 Ang iba namaʼy nahulog sa mabuting lupa, lumago at namunga. Ang ibaʼy napakarami ng bunga, ang ibaʼy marami-rami, at ang iba namaʼy katamtaman lang. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 9 
-
-
-
-
-
-
-
-
 
 
 Kayong mga nakikinig, dapat ninyo itong pag-isipan!" 
@@ -309,265 +65,49 @@ Kayong mga nakikinig, dapat ninyo itong pag-isipan!"
 ## Ang Layunin ng mga Talinghaga 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 10 
-
-
-
-
-
-
-
-
 
 
 Pagkatapos, lumapit kay Jesus ang mga tagasunod niya at nagtanong, "Bakit po kayo gumagamit ng talinghaga sa pagtuturo sa mga tao?" 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 11 
-
-
-
-
-
-
-
-
 
 
 Sumagot si Jesus, "Ipinagkaloob sa inyo na malaman ang mga lihim tungkol sa paghahari ng Dios, pero hindi ito ipinagkaloob sa iba. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 12 
-
-
-
-
-
-
-
-
 
 
 Sapagkat ang taong sumusunod sa narinig niyang katotohanan ay bibigyan pa ng higit na pang-unawa. Ngunit ang taong hindi sumusunod sa katotohanan, kahit ang kaunti niyang naunawaan ay kukunin pa sa kanya. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 13 
-
-
-
-
-
-
-
-
 
 
 Kaya nagsasalita ako sa kanila sa pamamagitan ng talinghaga, dahil tumitingin sila pero hindi nakakakita, at nakikinig pero hindi naman nakakaunawa. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 14 
-
-
-
-
-
-
-
-
 
 
 Sa kanila natupad ang sinabi noon ni Isaias: 'Makinig man kayo nang makinig, hindi kayo makakaunawa. Tumingin man kayo nang tumingin, hindi kayo makakakita. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 15 
-
-
-
-
-
-
-
-
 
 
 Dahil matigas ang puso ng mga taong ito. Tinakpan nila ang kanilang mga tainga, at ipinikit ang kanilang mga mata, dahil baka makakita sila at makarinig, at maunawaan nila kung ano ang tama, at magbalik-loob sila sa akin, at pagalingin ko sila.' 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 16 
-
-
-
-
-
-
-
-
 
 
 Ngunit mapalad kayo, dahil nakakakita kayo at nakakaunawa. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 17 
-
-
-
-
-
-
-
-
 
 
 Sinasabi ko sa inyo ang totoo, maraming propeta at matutuwid na tao noon ang naghangad na makakita at makarinig ng nakikita at naririnig ninyo ngayon, pero hindi ito nangyari sa kanilang panahon." 
@@ -575,199 +115,37 @@ Sinasabi ko sa inyo ang totoo, maraming propeta at matutuwid na tao noon ang nag
 ## Ang Kahulugan ng Talinghaga tungkol sa Manghahasik 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 18 
-
-
-
-
-
-
-
-
 
 
 "Pakinggan ninyo ang kahulugan ng talinghaga tungkol sa manghahasik: 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 19 
-
-
-
-
-
-
-
-
 
 
 Ang tabi ng daan, kung saan nahulog ang ilang binhi ay ang mga taong nakinig ng mensahe tungkol sa paghahari ng Dios pero hindi nakaunawa. Dumating si Satanas at inagaw ang salita sa kanilang puso. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 20 
-
-
-
-
-
-
-
-
 
 
 Ang mabatong lugar, kung saan nahulog ang ibang binhi ay ang mga taong nakinig ng salita ng Dios at masaya itong tinanggap agad. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 21 
-
-
-
-
-
-
-
-
 
 
 Ngunit hindi taimtim sa puso ang kanilang pagtanggap, kaya hindi tumagal ang kanilang pananampalataya. Pagdating ng kahirapan o pag-uusig dahil sa salita ng Dios na kanilang tinanggap, agad silang tumatalikod sa kanilang pananampalataya. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 22 
-
-
-
-
-
-
-
-
 
 
 Ang lupang may matitinik na damo, kung saan nahulog ang iba pang binhi ay ang mga taong nakinig ng salita ng Dios. Ngunit dahil sa mga alalahanin dito sa mundo at sa paghahangad na yumaman, nakalimutan nila ang salita ng Dios, kaya hindi namunga ang salita sa buhay nila. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 23 
-
-
-
-
-
-
-
-
 
 
 Ngunit ang mabuting lupang hinasikan ng binhi ay ang mga taong nakikinig sa salita ng Dios at nakakaunawa nito. Kaya namumunga ito sa kanilang buhay. Ang ibaʼy napakarami ang bunga, ang ibaʼy marami, at ang iba namaʼy katamtaman lang." 
@@ -775,232 +153,43 @@ Ngunit ang mabuting lupang hinasikan ng binhi ay ang mga taong nakikinig sa sali
 ## Ang Talinghaga tungkol sa mga Damo sa Triguhan 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 24 
-
-
-
-
-
-
-
-
 
 
 Muling nagbigay ng talinghaga si Jesus sa kanila, "Ang paghahari ng Dios ay maitutulad sa kwentong ito: May isang taong naghasik ng mabuting binhi sa kanyang bukid. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 25 
-
-
-
-
-
-
-
-
 
 
 Pero kinagabihan, habang natutulog ang mga tao, dumating ang kanyang kaaway at naghasik ng masasamang damo at umalis. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 26 
-
-
-
-
-
-
-
-
 
 
 Nang tumubo ang mga tanim at namunga, lumitaw din ang masasamang damo. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 27 
-
-
-
-
-
-
-
-
 
 
 Kaya pumunta sa kanya ang kanyang mga alipin at sinabi, 'Hindi po ba mabubuting binhi lamang ang inihasik ninyo sa inyong bukid? Paano po ba ito nagkaroon ng masasamang damo?' 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 28 
-
-
-
-
-
-
-
-
 
 
 Sinabi ng may-ari, 'Isang kaaway ang may kagagawan nito.' Tinanong siya ng mga utusan, 'Gusto po ba ninyong bunutin namin ang masasamang damo?' 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 29 
-
-
-
-
-
-
-
-
 
 
 Sumagot siya, 'Huwag, baka mabunot din ninyo pati ang trigo. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 30 
-
-
-
-
-
-
-
-
 
 
 Hayaan na lang muna ninyong lumagong pareho hanggang sa anihan. Kapag dumating na ang panahong iyon, sasabihin ko sa mga tagapag-ani na unahin muna nilang bunutin ang masasamang damo, at bigkisin para sunugin. Pagkatapos, ipapaani ko sa kanila ang trigo at ipapaimbak sa aking bodega.' " 
@@ -1008,67 +197,13 @@ Hayaan na lang muna ninyong lumagong pareho hanggang sa anihan. Kapag dumating n
 ## Ang Paghahalintulad sa Buto ng Mustasa 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 31 
-
-
-
-
-
-
-
-
 
 
 Ikinuwento pa sa kanila ni Jesus ang paghahalintulad na ito: "Ang kaharian ng Dios ay katulad ng isang buto ng mustasa na itinanim ng isang tao sa kanyang bukid. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 32 
-
-
-
-
-
-
-
-
 
 
 Ito ang pinakamaliit sa lahat ng buto. Ngunit kapag tumubo at lumaki na, nagiging mas mataas ito kaysa sa ibang mga halamang gulay, na parang punongkahoy ang taas, at pinupugaran ng mga ibon ang mga sanga nito." 
@@ -1076,34 +211,7 @@ Ito ang pinakamaliit sa lahat ng buto. Ngunit kapag tumubo at lumaki na, nagigin
 ## Ang Paghahalintulad sa Pampaalsa 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 33 
-
-
-
-
-
-
-
-
 
 
 Isa pang paghahalintulad ang ikinuwento ni Jesus: "Ang kaharian ng Dios ay katulad ng pampaalsang inihalo ng babae sa isang malaking planggana ng harina, at napaalsa nito ang buong masa ng harina." 
@@ -1111,67 +219,13 @@ Isa pang paghahalintulad ang ikinuwento ni Jesus: "Ang kaharian ng Dios ay katul
 ## Ang Paggamit ni Jesus ng mga Paghahalintulad o mga Talinghaga 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 34 
-
-
-
-
-
-
-
-
 
 
 Gumamit si Jesus ng mga paghahalintulad o mga talinghaga sa lahat ng kanyang pangangaral tungkol sa paghahari ng Dios. Hindi siya nangaral sa mga tao nang hindi sa pamamagitan nito. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 35 
-
-
-
-
-
-
-
-
 
 
 Sa ganitong paraan ay natupad ang sinabi ng Dios sa pamamagitan ng kanyang propeta: "Magsasalita ako sa kanila sa pamamagitan ng paghahalintulad. Sasabihin ko sa kanila ang mga bagay na nalilihim mula pa nang likhain ang mundo." 
@@ -1179,265 +233,49 @@ Sa ganitong paraan ay natupad ang sinabi ng Dios sa pamamagitan ng kanyang prope
 ## Ang Kahulugan ng Talinghaga tungkol sa mga Damo sa Triguhan 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 36 
-
-
-
-
-
-
-
-
 
 
 Pagkatapos, iniwan ni Jesus ang mga tao at pumasok siya sa isang bahay. Nilapitan siya ng mga tagasunod niya at sinabi, "Pakipaliwanag po sa amin ang talinghaga tungkol sa masasamang damo." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 37 
-
-
-
-
-
-
-
-
 
 
 Sumagot si Jesus, "Ang naghasik ng mabuting binhi ay walang iba kundi ako na Anak ng Tao. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 38 
-
-
-
-
-
-
-
-
 
 
 Ang bukid ay ang mundo, at ang mabuting binhi ay ang mga kabilang sa kaharian ng Dios. Ang masasamang damo naman ay ang mga sakop ni Satanas. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 39 
-
-
-
-
-
-
-
-
 
 
 Si Satanas ang kaaway na nagtanim sa kanila. Ang anihan ay ang katapusan ng mundo, at ang tagapag-ani ay ang mga anghel. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 40 
-
-
-
-
-
-
-
-
 
 
 Kung paanong binubunot at sinusunog ang masasamang damo, ganoon din ang mangyayari sa katapusan ng mundo. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 41 
-
-
-
-
-
-
-
-
 
 
 Ako na Anak ng Tao ay magpapadala ng mga anghel, at aalisin nila sa aking kaharian ang lahat ng gumagawa ng kasalanan at nagiging dahilan ng pagkakasala ng iba. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 42 
-
-
-
-
-
-
-
-
 
 
 Itatapon sila sa nagliliyab na apoy, at dooʼy iiyak sila at magngangalit ang kanilang ngipin. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 43 
-
-
-
-
-
-
-
-
 
 
 Pero ang matutuwid ay magniningning na parang araw sa kaharian ng kanilang Ama. Kayong mga nakikinig, dapat ninyo itong pag-isipan!" 
@@ -1445,34 +283,7 @@ Pero ang matutuwid ay magniningning na parang araw sa kaharian ng kanilang Ama. 
 ## Ang Paghahalintulad sa Natatagong Kayamanan 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 44 
-
-
-
-
-
-
-
-
 
 
 Sinabi pa ni Jesus, "Ang kaharian ng Dios ay katulad ng kayamanang nakabaon sa isang bukid. Nang mahukay ito ng isang tao, itinago niya itong muli. At sa tuwa niyaʼy umuwi siya at ipinagbili ang lahat ng kanyang ari-arian, at binili niya ang bukid na iyon." 
@@ -1480,67 +291,13 @@ Sinabi pa ni Jesus, "Ang kaharian ng Dios ay katulad ng kayamanang nakabaon sa i
 ## Ang Paghahalintulad sa Perlas 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 45 
-
-
-
-
-
-
-
-
 
 
 "Ang kaharian ng Dios ay katulad din nito: May isang negosyante na naghahanap ng magagandang perlas. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 46 
-
-
-
-
-
-
-
-
 
 
 Nang makatagpo siya ng isang mamahaling perlas, ipinagbili niya ang lahat ng kanyang ari-arian at binili ang perlas na iyon." 
@@ -1548,199 +305,37 @@ Nang makatagpo siya ng isang mamahaling perlas, ipinagbili niya ang lahat ng kan
 ## Ang Paghahalintulad sa Lambat 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 47 
-
-
-
-
-
-
-
-
 
 
 "Ang kaharian ng Dios ay katulad din ng isang lambat na inihagis ng mga mangingisda sa lawa at nakahuli ng sari-saring isda. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 48 
-
-
-
-
-
-
-
-
 
 
 Nang mapuno ang lambat, hinila nila ito papunta sa dalampasigan. Pagkatapos, naupo sila para pagbukud-bukurin ang mga isda. Ang mabubuting isda ay inilagay nila sa mga basket, at ang mga walang kwenta ay itinapon nila. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 49 
-
-
-
-
-
-
-
-
 
 
 Ganyan din ang mangyayari sa katapusan ng mundo. Darating ang mga anghel at ihihiwalay nila ang masasama sa matutuwid. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 50 
-
-
-
-
-
-
-
-
 
 
 Itatapon ang masasama sa nagliliyab na apoy, at dooʼy iiyak sila at magngangalit ang kanilang ngipin." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 51 
-
-
-
-
-
-
-
-
 
 
 Pagkatapos, tinanong sila ni Jesus, "Naunawaan ba ninyong lahat ang sinabi ko?" Sumagot sila, "Opo." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 52 
-
-
-
-
-
-
-
-
 
 
 At sinabi ni Jesus sa kanila, "Kaya nga, ang bawat tagapagturo ng Kautusan na naturuan tungkol sa kaharian ng Dios ay maitutulad sa isang may-ari ng bahay na maraming ari-arian sa bodega niya. Hindi lang ang mga lumang bagay ang kanyang inilalabas sa bodega kundi pati ang mga bago." 
@@ -1748,199 +343,37 @@ At sinabi ni Jesus sa kanila, "Kaya nga, ang bawat tagapagturo ng Kautusan na na
 ## Hindi Tinanggap si Jesus sa Nazaret 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 53 
-
-
-
-
-
-
-
-
 
 
 Pagkatapos mangaral ni Jesus sa pamamagitan ng mga talinghaga ay umalis na siya. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 54 
-
-
-
-
-
-
-
-
 
 
 Pumunta siya sa sarili niyang bayan at nangaral doon sa kanilang sambahan. Nagtaka sa kanya ang mga kababayan niya. Sinabi nila, "Saan kaya niya nakuha ang karunungang iyan at ang kapangyarihang gumawa ng himala? 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 55 
-
-
-
-
-
-
-
-
 
 
 Hindi baʼt anak siya ng karpintero? Hindi baʼt si Maria ang kanyang ina at ang mga kapatid niya ay sina Santiago, Jose, Simon at Judas? 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 56 
-
-
-
-
-
-
-
-
 
 
 Hindi baʼt ang lahat ng kapatid niyang babae ay dito rin nakatira sa atin? Saan niya nakuha ang ganyang kakayahan?" 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 57 
-
-
-
-
-
-
-
-
 
 
 At hindi nila siya pinaniwalaan. Kaya sinabi ni Jesus sa kanila, "Ang isang propeta ay iginagalang kahit saan, maliban lang sa sarili niyang bayan at pamilya." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 58 
-
-
-
-
-
-
-
-
 
 
 Kaya hindi gumawa si Jesus ng maraming himala roon dahil sa kawalan nila ng pananampalataya sa kanya.

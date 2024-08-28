@@ -9,200 +9,37 @@ next: ['Luke 10']
 ***
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 1 
-
-
-
-
-
-
-
-
 
 
 Isang araw tinipon ni Jesus ang 12 apostol at binigyan ng kapangyarihang magpalayas ng lahat ng masasamang espiritu at magpagaling ng mga sakit. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 2 
-
-
-
-
-
-
-
-
 
 
 Pagkatapos, sinugo niya sila upang mangaral tungkol sa paghahari ng Dios at magpagaling ng mga may sakit. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 3 
-
-
-
-
-
-
-
-
 
 
 Sinabi niya sa kanila, "Huwag kayong magdala ng anuman sa inyong paglalakbay, kahit tungkod, bag, pagkain, pera o bihisan. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 4 
-
-
-
-
-
-
-
-
 
 
 Kapag tinanggap kayo sa isang bahay, doon kayo makituloy hanggang sa pag-alis ninyo sa bayang iyon. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 5 
-
-
-
-
-
-
-
-
 
 
 At kung ayaw kayong tanggapin ng mga tao sa isang bayan, umalis kayo roon at ipagpag ninyo ang alikabok sa mga paa nʼyo bilang babala sa kanila." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 6 
-
-
-
-
-
-
-
-
 
 
 Pagkatapos noon, umalis ang mga apostol at pumunta sa mga nayon. Nangaral sila ng Magandang Balita at nagpagaling ng mga may sakit kahit saan.
@@ -210,100 +47,19 @@ Pagkatapos noon, umalis ang mga apostol at pumunta sa mga nayon. Nangaral sila n
 ## Naguluhan si Haring Herodes 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 7 
-
-
-
-
-
-
-
-
 
 
 Nabalitaan ni Herodes na pinuno ng Galilea ang mga ginagawa ni Jesus. Naguluhan siya dahil may mga nagsasabing muling nabuhay si Juan na tagapagbautismo. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 8 
-
-
-
-
-
-
-
-
 
 
 May nagsasabi namang siya si Elias na nagpakita ngayon. At may nagsasabi pang isa siya sa mga propeta noong unang panahon na muling nabuhay. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 9 
-
-
-
-
-
-
-
-
 
 
 Sinabi ni Herodes, "Pinapugutan ko ng ulo si Juan. Pero sino kaya itong nababalitaan ko? Marami akong kahanga-hangang bagay na narinig tungkol sa kanya." Kaya pinagsikapan ni Herodes na makita si Jesus.
@@ -311,265 +67,49 @@ Sinabi ni Herodes, "Pinapugutan ko ng ulo si Juan. Pero sino kaya itong nababali
 ## Pinakain ni Jesus ang 5,000 Tao 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 10 
-
-
-
-
-
-
-
-
 
 
 Pagbalik ng mga apostol, ikinuwento nila kay Jesus ang lahat ng ginawa nila. Pagkatapos, isinama sila ni Jesus sa bayan ng Betsaida; wala na siyang isinamang iba. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 11 
-
-
-
-
-
-
-
-
 
 
 Pero nalaman pa rin ng mga tao kung saan sila pumunta at sinundan sila. Pagdating nila doon, tinanggap naman sila ni Jesus at nangaral siya sa kanila tungkol sa paghahari ng Dios, at pinagaling din niya ang mga may sakit. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 12 
-
-
-
-
-
-
-
-
 
 
 Nang dapit-hapon na, lumapit sa kanya ang 12 apostol at sinabi, "Paalisin nʼyo na po ang mga tao nang makapunta sila sa kanayunan at kabukiran na malapit para humanap ng matutuluyan at makakain, dahil nasa ilang na lugar po tayo." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 13 
-
-
-
-
-
-
-
-
 
 
 Pero sinabi ni Jesus sa kanila, "Kayo ang magpakain sa kanila." Sumagot sila, "May limang tinapay lang po tayo at dalawang isda. Hindi ito kakasya, maliban na lang kung bibili kami ng pagkain para sa kanila." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 14 
-
-
-
-
-
-
-
-
 
 
 (May 5,000 lalaki ang naroon.) Sinabi ni Jesus sa mga tagasunod niya, "Paupuin ninyo sila nang grupo-grupo na tig-50 bawat grupo." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 15 
-
-
-
-
-
-
-
-
 
 
 At pinaupo nga nila ang lahat. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 16 
-
-
-
-
-
-
-
-
 
 
 Kinuha ni Jesus ang limang tinapay at dalawang isda. Tumingala siya sa langit at nagpasalamat sa Dios. Pagkatapos, hinati-hati niya ang tinapay at ibinigay sa mga tagasunod niya upang ipamigay sa mga tao. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 17 
-
-
-
-
-
-
-
-
 
 
 Kumain silang lahat at nabusog. Pagkatapos, tinipon nila ang natirang pagkain, at nakapuno sila ng 12 basket.
@@ -577,100 +117,19 @@ Kumain silang lahat at nabusog. Pagkatapos, tinipon nila ang natirang pagkain, a
 ## Ang Pahayag ni Pedro tungkol kay Jesus 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 18 
-
-
-
-
-
-
-
-
 
 
 Isang araw, nanalanging mag-isa si Jesus nang di-kalayuan sa mga tagasunod niya. Tinanong niya sila, "Sino raw ako ayon sa mga tao?" 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 19 
-
-
-
-
-
-
-
-
 
 
 Sumagot sila, "May mga nagsasabing kayo po si Juan na tagapagbautismo. May nagsasabi ring kayo si Elias. At ang iba namaʼy nagsasabing isa po kayo sa mga propeta noong unang panahon, na muling nabuhay." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 20 
-
-
-
-
-
-
-
-
 
 
 Tinanong sila ni Jesus, "Pero para sa inyo, sino ako?" Sumagot si Pedro, "Kayo po ang Cristo!" 
@@ -678,232 +137,43 @@ Tinanong sila ni Jesus, "Pero para sa inyo, sino ako?" Sumagot si Pedro, "Kayo p
 ## Ang Unang Pagpapahayag ni Jesus tungkol sa Kanyang Kamatayan 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 21 
-
-
-
-
-
-
-
-
 
 
 Mahigpit na sinabihan ni Jesus ang mga tagasunod niya na huwag nilang ipaalam kahit kanino na siya ang Cristo. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 22 
-
-
-
-
-
-
-
-
 
 
 Sinabi pa niya, "Ako na Anak ng Tao ay kailangang dumanas ng maraming paghihirap. Itatakwil ako ng mga pinuno ng mga Judio, ng mga namamahalang pari, at ng mga tagapagturo ng Kautusan. Ipapapatay nila ako, ngunit sa ikatlong araw ay muli akong mabubuhay." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 23 
-
-
-
-
-
-
-
-
 
 
 Pagkatapos, sinabi niya sa kanilang lahat, "Ang sinumang gustong sumunod sa akin ay hindi dapat inuuna ang sarili. At dapat ay handa siyang humarap kahit sa kamatayan alang-alang sa pagsunod niya sa akin araw-araw. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 24 
-
-
-
-
-
-
-
-
 
 
 Sapagkat ang taong naghahangad magligtas ng kanyang buhay ay mawawalan nito. Ngunit ang taong nagnanais mag-alay ng kanyang buhay alang-alang sa akin ay magkakaroon ng buhay na walang hanggan. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 25 
-
-
-
-
-
-
-
-
 
 
 Ano ba ang mapapala ng isang tao kung mapasakanya man ang lahat ng bagay sa mundo pero mapapahamak naman ang buhay niya? Wala! 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 26 
-
-
-
-
-
-
-
-
 
 
 Kung ako at ang mga aral ko ay ikakahiya ninuman, ikakahiya ko rin siya kapag ako na Anak ng Tao ay pumarito na taglay ang aking kapangyarihan at ang kapangyarihan ng Ama at ng mga banal na anghel. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 27 
-
-
-
-
-
-
-
-
 
 
 Sinasabi ko sa inyo ang totoo, may ilan sa inyo rito na hindi mamamatay hanggaʼt hindi nila nakikita ang paghahari ng Dios." 
@@ -911,298 +181,55 @@ Sinasabi ko sa inyo ang totoo, may ilan sa inyo rito na hindi mamamatay hanggaʼ
 ## Ang Pagbabagong-anyo ni Jesus 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 28 
-
-
-
-
-
-
-
-
 
 
 Mga walong araw matapos sabihin ni Jesus iyon, isinama niya sina Pedro, Juan at Santiago sa isang bundok upang manalangin. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 29 
-
-
-
-
-
-
-
-
 
 
 Habang nananalangin si Jesus, nagbago ang anyo ng kanyang mukha. At ang damit niya ay naging puting-puti at nakakasilaw tingnan. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 30 
-
-
-
-
-
-
-
-
 
 
 Biglang lumitaw ang dalawang lalaki – sina Moises at Elias – at nakipag-usap sa kanya. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 31 
-
-
-
-
-
-
-
-
 
 
 Nakakasilaw din ang kanilang anyo, at ang pinag-uusapan nila ni Jesus ay ang tungkol sa kanyang kamatayan na malapit nang maganap sa Jerusalem. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 32 
-
-
-
-
-
-
-
-
 
 
 Tulog na tulog noon sina Pedro. Pero nagising sila at nakita nila ang nagliliwanag na anyo ni Jesus at ang dalawang lalaking nakatayo sa tabi niya. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 33 
-
-
-
-
-
-
-
-
 
 
 Nang paalis na ang dalawang lalaki, sinabi ni Pedro kay Jesus, "Guro, mabuti poʼt narito kami. Gagawa po kami ng tatlong kubol: isa para sa inyo, isa para kay Moises at isa para kay Elias." (Ang totoo, hindi niya alam ang sinasabi niya.) 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 34 
-
-
-
-
-
-
-
-
 
 
 At habang nagsasalita pa si Pedro, tinakpan sila ng ulap at natakot sila. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 35 
-
-
-
-
-
-
-
-
 
 
 May narinig silang tinig mula sa ulap na nagsasabi, "Ito ang aking Anak, na aking pinili. Pakinggan ninyo siya!" 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 36 
-
-
-
-
-
-
-
-
 
 
 Nang tumigil ang tinig, nakita nilang nag-iisa na lang si Jesus. Hindi muna nila sinabi kahit kanino ang mga nasaksihan nila nang mga panahong iyon.
@@ -1210,232 +237,43 @@ Nang tumigil ang tinig, nakita nilang nag-iisa na lang si Jesus. Hindi muna nila
 ## Pinagaling ni Jesus ang Batang Sinasaniban ng Masamang Espiritu 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 37 
-
-
-
-
-
-
-
-
 
 
 Kinabukasan, pagbaba nila galing sa bundok ay sinalubong si Jesus ng napakaraming tao. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 38 
-
-
-
-
-
-
-
-
 
 
 May isang lalaki roon sa karamihan na sumisigaw, "Guro, pakitingnan po ninyo ang kaisa-isa kong anak na lalaki! 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 39 
-
-
-
-
-
-
-
-
 
 
 Sinasaniban po siya ng masamang espiritu at bigla na lang siyang sumisigaw, nangingisay at bumubula ang bibig. Sinasaktan siya lagi ng masamang espiritu at halos ayaw siyang iwan. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 40 
-
-
-
-
-
-
-
-
 
 
 Nakiusap ako sa mga tagasunod ninyo na palayasin nila ang masamang espiritu, pero hindi po nila kaya." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 41 
-
-
-
-
-
-
-
-
 
 
 Sumagot si Jesus, "Kayong henerasyon ng mga walang pananampalataya at baluktot ang pag-iisip! Hanggang kailan ba ako magtitiis sa inyo? Dalhin mo rito ang anak mo!" 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 42 
-
-
-
-
-
-
-
-
 
 
 Nang papalapit na ang bata, itinumba siya at pinangisay ng masamang espiritu. Pero pinalayas ni Jesus ang masamang espiritu at pinagaling ang bata, at ibinalik sa ama nito. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 43 
-
-
-
-
-
-
-
-
 
 
 Namangha ang lahat sa kapangyarihan ng Dios.
@@ -1443,67 +281,13 @@ Namangha ang lahat sa kapangyarihan ng Dios.
 ## Ang Ikalawang Pagpapahayag ni Jesus tungkol sa Kanyang Kamatayan Habang mangha pa ang lahat sa mga ginawa ni Jesus, sinabi niya sa mga tagasunod niya, 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 44 
-
-
-
-
-
-
-
-
 
 
 "Pakinggan ninyo at tandaan ang sasabihin kong ito: Ako na Anak ng Tao ay ibibigay sa kamay ng mga tao na kumokontra sa akin." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 45 
-
-
-
-
-
-
-
-
 
 
 Pero hindi nila naunawaan ang sinasabi niya, dahil inilihim sa kanila ang kahulugan nito. Nag-aalangan naman silang magtanong sa kanya tungkol sa bagay na ito.
@@ -1511,100 +295,19 @@ Pero hindi nila naunawaan ang sinasabi niya, dahil inilihim sa kanila ang kahulu
 ## Sino ang Pinakadakila? 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 46 
-
-
-
-
-
-
-
-
 
 
 Minsan, nagtalo-talo ang mga tagasunod ni Jesus kung sino sa kanila ang pinakadakila. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 47 
-
-
-
-
-
-
-
-
 
 
 Alam ni Jesus ang iniisip nila, kaya kumuha siya ng isang maliit na bata at pinatayo sa tabi niya. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 48 
-
-
-
-
-
-
-
-
 
 
 Pagkatapos, sinabi niya sa kanila, "Ang sinumang tumatanggap sa batang tulad nito dahil sa akin ay tumatanggap sa akin. At ang tumatanggap sa akin ay tumatanggap sa aking Amang nagsugo sa akin. Sapagkat ang pinakamababa sa inyong lahat ang siyang pinakadakila." 
@@ -1612,67 +315,13 @@ Pagkatapos, sinabi niya sa kanila, "Ang sinumang tumatanggap sa batang tulad nit
 ## Kakampi Natin ang Hindi Laban sa Atin 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 49 
-
-
-
-
-
-
-
-
 
 
 Sinabi ni Juan kay Jesus, "Guro, nakakita po kami ng taong nagpapalayas ng masasamang espiritu sa inyong pangalan. Pinagbawalan namin siya dahil hindi natin siya kasamahan." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 50 
-
-
-
-
-
-
-
-
 
 
 Pero sinabi sa kanya ni Jesus, "Huwag nʼyo siyang pagbawalan, dahil ang hindi laban sa atin ay kakampi natin." 
@@ -1680,199 +329,37 @@ Pero sinabi sa kanya ni Jesus, "Huwag nʼyo siyang pagbawalan, dahil ang hindi l
 ## Hindi Tinanggap si Jesus sa Isang Nayon sa Samaria 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 51 
-
-
-
-
-
-
-
-
 
 
 Nang malapit na ang araw para bumalik si Jesus sa langit, nagpasya siyang pumunta sa Jerusalem. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 52 
-
-
-
-
-
-
-
-
 
 
 Kaya pinauna niya ang ilang tao sa isang nayon ng mga Samaritano para humanap ng matutuluyan. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 53 
-
-
-
-
-
-
-
-
 
 
 Pero ayaw siyang tanggapin ng mga taga-roon dahil alam nilang papunta siya sa Jerusalem. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 54 
-
-
-
-
-
-
-
-
 
 
 Nang malaman iyon ng mga tagasunod ni Jesus na sina Santiago at Juan, sinabi nila kay Jesus, "Panginoon, gusto nʼyo po bang humingi kami ng apoy mula sa langit para sunugin sila?" 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 55 
-
-
-
-
-
-
-
-
 
 
 Pero lumingon si Jesus at pinagsabihan sila. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 56 
-
-
-
-
-
-
-
-
 
 
 At tumuloy na lang sila sa ibang nayon.
@@ -1880,199 +367,37 @@ At tumuloy na lang sila sa ibang nayon.
 ## Ang mga Nagnais Sumunod kay Jesus 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 57 
-
-
-
-
-
-
-
-
 
 
 Habang naglalakad sila, may isang lalaking nagsabi kay Jesus, "Susunod po ako sa inyo kahit saan." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 58 
-
-
-
-
-
-
-
-
 
 
 Pero sinagot siya ni Jesus, "May mga lungga ang mga asong-gubat, at may mga pugad ang mga ibon, ngunit ako na Anak ng Tao ay walang sariling tahanan na mapagpahingahan." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 59 
-
-
-
-
-
-
-
-
 
 
 Sinabi ni Jesus sa isa, "Sumunod ka sa akin." Pero sumagot siya, "Panginoon, pauwiin po muna ninyo ako para maipalibing ko ang aking ama." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 60 
-
-
-
-
-
-
-
-
 
 
 Pero sinabi sa kanya ni Jesus, "Ipaubaya mo sa mga patay ang paglilibing ng kanilang patay. Pero ikaw, lumakad ka at ipangaral ang tungkol sa paghahari ng Dios." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 61 
-
-
-
-
-
-
-
-
 
 
 May isa ring nagsabi kay Jesus, "Susunod po ako sa inyo, Panginoon, pero hayaan nʼyo muna po akong magpaalam sa pamilya ko." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 62 
-
-
-
-
-
-
-
-
 
 
 Sinabi ni Jesus sa kanya, "Ang sinumang nag-aararo na palaging lumilingon ay hindi kapaki-pakinabang ang paglilingkod sa ilalim ng paghahari ng Dios."

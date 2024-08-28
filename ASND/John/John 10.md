@@ -9,200 +9,37 @@ next: ['John 11']
 ***
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 1 
-
-
-
-
-
-
-
-
 
 
 Nagsalita si Jesus sa pamamagitan ng paghahalintulad. Sinabi niya, "Sinasabi ko sa inyo ang totoo, ang pumapasok sa kulungan ng mga tupa nang hindi dumadaan sa pintuan, kundi umaakyat sa pader ay magnanakaw at tulisan. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 2 
-
-
-
-
-
-
-
-
 
 
 Ngunit ang dumadaan sa pintuan ay ang pastol ng mga tupa. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 3 
-
-
-
-
-
-
-
-
 
 
 Pinapapasok siya ng tagapagbantay sa pintuan, at kilala ng mga tupa ang boses niya. Tinatawag niya ang mga tupa sa kani-kanilang pangalan at inilalabas sa kulungan. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 4 
-
-
-
-
-
-
-
-
 
 
 Kapag nailabas na niya ang mga tupa, nauuna siya sa kanila at sumusunod naman ang mga tupa dahil, kilala nila ang boses niya. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 5 
-
-
-
-
-
-
-
-
 
 
 Ngunit hindi nila susundin ang iba; sa halip ay agad pa nga nila itong lalayuan, dahil hindi nila kilala ang boses nito." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 6 
-
-
-
-
-
-
-
-
 
 
 Sinabi ni Jesus sa mga tao ang paghahalintulad na ito, pero hindi nila naintindihan ang ibig niyang sabihin.
@@ -210,430 +47,79 @@ Sinabi ni Jesus sa mga tao ang paghahalintulad na ito, pero hindi nila naintindi
 ## Si Jesus ang Mabuting Pastol 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 7 
-
-
-
-
-
-
-
-
 
 
 Kaya muling sinabi ni Jesus, "Sinasabi ko sa inyo ang totoo, ako ang pintuan na dinadaanan ng mga tupa. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 8 
-
-
-
-
-
-
-
-
 
 
 May mga tagapagturo na nauna sa akin, na ang katulad ay mga magnanakaw at mga tulisan. Ngunit hindi sila pinakinggan ng aking mga tupa. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 9 
-
-
-
-
-
-
-
-
 
 
 Ako ang pintuan. Ang sinumang pumasok sa pamamagitan ko ay maliligtas. Magiging katulad siya ng tupa na malayang nakakapasok at nakakalabas ng kulungan, at makakatagpo siya ng pastulan. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 10 
-
-
-
-
-
-
-
-
 
 
 Dumarating ang magnanakaw para lang magnakaw, pumatay at mangwasak. Ngunit dumating ako upang magkaroon ang mga tao ng buhay na ganap. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 11 
-
-
-
-
-
-
-
-
 
 
 "Ako ang mabuting pastol, at ang isang mabuting pastol ay handang mag-alay ng kanyang buhay para sa kanyang mga tupa. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 12 
-
-
-
-
-
-
-
-
 
 
 Hindi siya katulad ng bayarang pastol ng mga tupa, sapagkat ang ganitong tagapagbantay ay tumatakas at iniiwan ang mga tupa kapag nakakita ng asong lobo na paparating. Kaya sinasalakay ng lobo ang mga tupa at nagkakawatak-watak sila. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 13 
-
-
-
-
-
-
-
-
 
 
 Tumatakas siya dahil bayaran lang siya at walang malasakit sa mga tupa. 14-15Ako ang mabuting pastol. Kung paano ako nakikilala ng aking Ama at kung paano ko siya nakikilala, ganyan din ang pagkakakilala ko sa aking mga tupa at ang pagkakakilala nila sa akin. At iniaalay ko ang aking buhay para sa kanila. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 16 
-
-
-
-
-
-
-
-
 
 
 May iba pa akong mga tupa na wala sa kawan na ito ng mga Judio. Kinakailangan ko rin silang tipunin. Pakikinggan din nila ang mga salita ko, at ang lahat ng nakikinig sa akin ay magiging isang kawan na lang na may iisang pastol. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 17 
-
-
-
-
-
-
-
-
 
 
 "Mahal ako ng Ama, dahil iniaalay ko ang aking buhay para sa kanila, at pagkatapos ay muli akong mabubuhay. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 18 
-
-
-
-
-
-
-
-
 
 
 Walang makakakuha ng aking buhay, kundi kusa ko itong ibinibigay. May kapangyarihan akong ibigay ito, at may kapangyarihan din akong bawiin ito. Sinabi ito ng aking Ama sa akin." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 19 
-
-
-
-
-
-
-
-
 
 
 Dahil sa sinabing ito ni Jesus, nagkaroon na naman ng pagtatalo ang mga Judio. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 20 
-
-
-
-
-
-
-
-
 
 
 Marami sa kanila ang nagsasabi, "Baliw siya at sinasaniban ng masamang espiritu. Bakit nʼyo siya pinapakinggan?" 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 21 
-
-
-
-
-
-
-
-
 
 
 Pero sinabi naman ng iba, "Hindi makakapagturo nang ganyan ang sinasaniban ng masamang espiritu. At isa pa, paano siya makakapagpagaling ng bulag kung totoong sinasaniban nga siya?" 
@@ -641,694 +127,127 @@ Pero sinabi naman ng iba, "Hindi makakapagturo nang ganyan ang sinasaniban ng ma
 ## Itinakwil ng mga Judio si Jesus 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 22 
-
-
-
-
-
-
-
-
 
 
 Sumapit ang pagdiriwang ng Pista ng Pagtatalaga ng Templo sa Jerusalem. Taglamig na noon, 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 23 
-
-
-
-
-
-
-
-
 
 
 at naglalakad si Jesus sa bahagi ng templo na kung tawagin ay Balkonahe ni Solomon. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 24 
-
-
-
-
-
-
-
-
 
 
 Pinalibutan siya ng mga Judio at sinabi sa kanya, "Hanggang kailan mo ililihim sa amin kung sino ka talaga? Kung ikaw nga ang Cristo, tapatin mo na kami." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 25 
-
-
-
-
-
-
-
-
 
 
 Sumagot si Jesus sa kanila, "Sinabi ko na sa inyo kung sino ako, pero ayaw naman ninyong maniwala. Ang mga ginawa kong himala sa pangalan ng aking Ama ang nagpapatunay kung sino ako. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 26 
-
-
-
-
-
-
-
-
 
 
 Ngunit ayaw nʼyong maniwala sa akin dahil hindi kayo kabilang sa aking mga tupa. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 27 
-
-
-
-
-
-
-
-
 
 
 Nakikinig sa akin ang aking mga tupa. Kilala ko sila at sumusunod sila sa akin. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 28 
-
-
-
-
-
-
-
-
 
 
 Binibigyan ko sila ng buhay na walang hanggan, at kailanman ay hindi sila mapapahamak. Walang makakaagaw sa kanila sa aking kamay. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 29 
-
-
-
-
-
-
-
-
 
 
 Ibinigay sila sa akin ng Ama na higit na makapangyarihan sa lahat. Walang makakaagaw sa kanila mula sa kamay ng aking Ama. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 30 
-
-
-
-
-
-
-
-
 
 
 Ako at ang Ama ay iisa." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 31 
-
-
-
-
-
-
-
-
 
 
 Nang marinig ito ng mga Judio, muli silang dumampot ng mga bato para batuhin siya. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 32 
-
-
-
-
-
-
-
-
 
 
 Pero sinabi sa kanila ni Jesus, "Ipinakita ko sa inyo ang maraming mabubuting gawa na ipinapagawa sa akin ng Ama. Alin sa mga ito ang dahilan kung bakit nʼyo ako babatuhin?" 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 33 
-
-
-
-
-
-
-
-
 
 
 Sumagot sila, "Hindi ka namin babatuhin dahil sa mabubuti mong gawa, kundi dahil sa paglapastangan mo sa Dios. Sapagkat sinasabi mong ikaw ay Dios gayong tao ka lang." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 34 
-
-
-
-
-
-
-
-
 
 
 Sumagot si Jesus, "Hindi baʼt nakasulat sa Kautusan na sinabi ng Dios na kayoʼy mga dios? 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 35 
-
-
-
-
-
-
-
-
 
 
 At hindi natin maaaring balewalain ang Kasulatan. Kaya kung tinawag niyang 'dios' ang mga binigyan niya ng mensahe niya, 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 36 
-
-
-
-
-
-
-
-
 
 
 bakit nʼyo sinasabing nilalapastangan ko ang Dios dahil sa sinabi kong akoʼy Anak ng Dios? Pinili ako ng Ama at sinugo niya rito sa mundo. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 37 
-
-
-
-
-
-
-
-
 
 
 Kung hindi ko ginagawa ang mga ipinapagawa ng Ama, huwag kayong maniwala sa akin. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 38 
-
-
-
-
-
-
-
-
 
 
 Ngunit kung ginagawa ko ang mga ipinapagawa ng aking Ama, kahit ayaw nʼyong maniwala sa akin, paniwalaan nʼyo ang mga ginawa ko upang maunawaan nʼyo na ang Ama ay nasa akin at ako ay nasa aking Ama." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 39 
-
-
-
-
-
-
-
-
 
 
 Tinangka na naman nilang dakpin si Jesus, pero nakatakas siya. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 40 
-
-
-
-
-
-
-
-
 
 
 Bumalik si Jesus sa kabila ng Ilog ng Jordan, sa lugar na pinagbautismuhan noon ni Juan. Nanatili siya roon 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 41 
-
-
-
-
-
-
-
-
 
 
 at maraming tao ang pumunta sa kanya. Sinabi nila, "Wala ngang ginawang himala si Juan, pero totoong lahat ang sinabi niya tungkol sa taong ito." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 42 
-
-
-
-
-
-
-
-
 
 
 At marami sa mga naroon ang sumampalataya kay Jesus.

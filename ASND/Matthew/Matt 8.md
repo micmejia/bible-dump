@@ -9,134 +9,25 @@ next: ['Matt 9']
 ***
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 1 
-
-
-
-
-
-
-
-
 
 
 Nang bumaba na si Jesus mula sa bundok, sinundan siya ng napakaraming tao. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 2 
-
-
-
-
-
-
-
-
 
 
 Lumapit sa kanya ang isang lalaking may malubhang sakit sa balat at lumuhod sa harap niya, at sinabi, "Panginoon, kung gusto nʼyo po, mapapagaling nʼyo ako upang maituring akong malinis." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 3 
-
-
-
-
-
-
-
-
 
 
 Hinawakan siya ni Jesus at sinabi, "Gusto ko. Luminis ka!" Agad na gumaling ang kanyang sakit at luminis siya. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 4 
-
-
-
-
-
-
-
-
 
 
 At sinabi sa kanya ni Jesus, "Huwag mo itong sasabihin kaninuman. Sa halip, pumunta ka sa pari at magpasuri. Pagkatapos, maghandog ka ayon sa iniutos ni Moises bilang patunay na malinis ka na." 
@@ -144,298 +35,55 @@ At sinabi sa kanya ni Jesus, "Huwag mo itong sasabihin kaninuman. Sa halip, pumu
 ## Pinagaling ni Jesus ang Utusan ng Kapitan 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 5 
-
-
-
-
-
-
-
-
 
 
 Nang dumating si Jesus sa bayan ng Capernaum, pumunta sa kanya ang isang kapitan ng hukbong Romano at nakiusap: 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 6 
-
-
-
-
-
-
-
-
 
 
 "Panginoon, may sakit po ang aking utusan. Nakaratay siya sa bahay at nasa matinding paghihirap." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 7 
-
-
-
-
-
-
-
-
 
 
 Sinabi ni Jesus, "Pupuntahan ko siya at pagagalingin." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 8 
-
-
-
-
-
-
-
-
 
 
 Pero sumagot ang kapitan, "Panginoon, hindi po ako karapat-dapat na puntahan nʼyo ang tahanan ko. Sabihin nʼyo na lang na gumaling siya, at gagaling na ang aking utusan. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 9 
-
-
-
-
-
-
-
-
 
 
 Alam ko ito dahil nasa ilalim ako ng nakakataas na opisyal, at may nasasakupan din akong mga sundalo. Kapag sinabi ko sa isa, 'Pumunta ka roon,' pumupunta siya. Kapag sinabi kong, 'Halika,' lumalapit siya. At kung ano pa ang iniuutos ko sa aking alipin, sinusunod niya." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 10 
-
-
-
-
-
-
-
-
 
 
 Namangha si Jesus nang marinig niya ito. At sinabi niya sa mga taong sumusunod sa kanya, "Sinasabi ko sa inyo ang totoo, hindi pa ako nakakita ng isang tao sa Israel na may ganitong pananampalataya. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 11 
-
-
-
-
-
-
-
-
 
 
 Sinasabi ko rin sa inyo na maraming hindi Judio mula sa ibaʼt ibang dako ang kakaing kasama nina Abraham, Isaac, at Jacob sa handaan ng paghahari ng Dios. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 12 
-
-
-
-
-
-
-
-
 
 
 Ngunit maraming Judio, na paghaharian sana ng Dios, ang itatapon sa matinding kadiliman sa labas. At doon ay iiyak sila, at magngangalit ang kanilang mga ngipin." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 13 
-
-
-
-
-
-
-
-
 
 
 At sinabi ni Jesus sa kapitan, "Umuwi ka na. Mangyayari ang hinihiling mo ayon sa iyong pananampalataya." At nang oras ding iyon ay gumaling ang utusan ng kapitan.
@@ -443,133 +91,25 @@ At sinabi ni Jesus sa kapitan, "Umuwi ka na. Mangyayari ang hinihiling mo ayon s
 ## Maraming Pinagaling si Jesus 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 14 
-
-
-
-
-
-
-
-
 
 
 Pumunta si Jesus sa bahay ni Pedro. Pagdating niya roon, nakita niya ang biyenang babae ni Pedro na nakahiga at nilalagnat. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 15 
-
-
-
-
-
-
-
-
 
 
 Hinawakan ni Jesus ang kamay ng babae at nawala ang lagnat nito. Bumangon siya at pinagsilbihan si Jesus. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 16 
-
-
-
-
-
-
-
-
 
 
 Nang magtakip-silim na, maraming sinasaniban ng masasamang espiritu ang dinala ng mga tao kay Jesus. Sa isang salita lang, pinalayas niya ang masasamang espiritu at pinagaling ang mga may sakit. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 17 
-
-
-
-
-
-
-
-
 
 
 Ginawa niya ang mga ito upang matupad ang sinabi ni Propeta Isaias, "Kinuha niya ang ating mga sakit at inalis ang ating mga karamdaman." 
@@ -577,166 +117,31 @@ Ginawa niya ang mga ito upang matupad ang sinabi ni Propeta Isaias, "Kinuha niya
 ## Ang Pagsunod kay Jesus 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 18 
-
-
-
-
-
-
-
-
 
 
 Nang makita ni Jesus ang napakaraming tao sa kanyang paligid, inutusan niya ang mga tagasunod niya na tumawid sa kabila ng lawa. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 19 
-
-
-
-
-
-
-
-
 
 
 May tagapagturo ng Kautusan na lumapit sa kanya at sinabi, "Guro, susunod po ako sa inyo kahit saan." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 20 
-
-
-
-
-
-
-
-
 
 
 Pero sinagot siya ni Jesus, "May mga lungga ang mga asong-gubat, at may mga pugad ang mga ibon. Ngunit ako na Anak ng Tao ay walang sariling tahanan na mapagpahingahan." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 21 
-
-
-
-
-
-
-
-
 
 
 Isa pa sa mga tagasunod niya ang nagsabi, "Panginoon, pauwiin po muna ninyo ako para maipalibing ko ang aking ama." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 22 
-
-
-
-
-
-
-
-
 
 
 Pero sinabi ni Jesus sa kanya, "Sumunod ka sa akin at ipaubaya mo sa mga patay ang paglilibing ng kanilang patay." 
@@ -744,166 +149,31 @@ Pero sinabi ni Jesus sa kanya, "Sumunod ka sa akin at ipaubaya mo sa mga patay a
 ## Pinatigil ni Jesus ang Malakas na Hangin at Alon 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 23 
-
-
-
-
-
-
-
-
 
 
 Sumakay sa bangka si Jesus, at sumama ang mga tagasunod niya. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 24 
-
-
-
-
-
-
-
-
 
 
 At habang naglalayag sila, biglang lumakas ang hangin at halos matabunan na ng malalaking alon ang kanilang bangka. Natutulog noon si Jesus. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 25 
-
-
-
-
-
-
-
-
 
 
 Kaya nilapitan siya ng mga tagasunod niya at ginising, "Panginoon, iligtas nʼyo po kami! Malulunod na tayo!" 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 26 
-
-
-
-
-
-
-
-
 
 
 Sumagot si Jesus, "Bakit kayo natatakot? Kay liit ng inyong pananampalataya." Bumangon si Jesus at pinatigil ang hangin at ang mga alon, at biglang kumalma ang tubig. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 27 
-
-
-
-
-
-
-
-
 
 
 Namangha ang mga tagasunod niya at sinabi, "Anong klaseng tao ito? Kahit ang hangin at mga alon ay napapasunod niya!" 
@@ -911,232 +181,43 @@ Namangha ang mga tagasunod niya at sinabi, "Anong klaseng tao ito? Kahit ang han
 ## Pinagaling ni Jesus ang Dalawang Lalaking Sinasaniban ng Masasamang Espiritu 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 28 
-
-
-
-
-
-
-
-
 
 
 Nang dumating siya sa kabila ng lawa, sa lupain ng mga Gadareno, sinalubong siya ng dalawang lalaking galing sa mga kwebang libingan. Ang mga lalaking itoʼy sinasaniban ng masasamang espiritu. Napakababangis nila, kaya walang nakakadaan doon. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 29 
-
-
-
-
-
-
-
-
 
 
 Sumigaw sila kay Jesus, "Ano ang pakialam mo sa amin, ikaw na anak ng Dios? Pumunta ka ba rito para pahirapan kami nang wala pa sa takdang panahon?" 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 30 
-
-
-
-
-
-
-
-
 
 
 Sa di-kalayuan ay may malaking kawan ng baboy na nanginginain. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 31 
-
-
-
-
-
-
-
-
 
 
 Nakiusap ang masasamang espiritu sa kanya, "Kung palalayasin mo kami, payagan mo na lang kaming pumasok sa mga baboy na iyon." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 32 
-
-
-
-
-
-
-
-
 
 
 Sinabi ni Jesus, "Sige, umalis kayo!" Kaya lumabas ang masasamang espiritu sa dalawang lalaki at pumasok sa mga baboy. Nagtakbuhan ang buong kawan ng baboy pababa ng burol, nagtuloy-tuloy sa lawa at nalunod. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 33 
-
-
-
-
-
-
-
-
 
 
 Tumakbo ang mga tagapag-alaga ng mga baboy papunta sa bayan at ipinamalita ang nangyari sa mga baboy at sa dalawang lalaking sinaniban ng masasamang espiritu. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 34 
-
-
-
-
-
-
-
-
 
 
 Kaya lumabas ang lahat ng tao sa bayan at pinuntahan si Jesus, at nakiusap sila na umalis siya sa lugar nila.

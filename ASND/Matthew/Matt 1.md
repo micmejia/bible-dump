@@ -8,233 +8,43 @@ next: ['Matt 2']
 ***
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 1 
-
-
-
-
-
-
-
-
 
 
 Ito ang talaan ng mga ninuno ni Jesu-Cristo na mula sa angkan ni David. Si David ay mula sa lahi ni Abraham. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 2 
-
-
-
-
-
-
-
-
 
 
 Si Abraham ang ama ni Isaac, si Isaac ang ama ni Jacob, at si Jacob ang ama ni Juda at ng kanyang mga kapatid. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 3 
-
-
-
-
-
-
-
-
 
 
 Si Juda ang ama nina Perez at Zera, at si Tamar ang kanilang ina. Si Perez ang ama ni Hezron, at si Hezron ang ama ni Aram. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 4 
-
-
-
-
-
-
-
-
 
 
 Si Aram ang ama ni Aminadab, si Aminadab ang ama ni Nashon, at si Nashon ang ama ni Salmon. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 5 
-
-
-
-
-
-
-
-
 
 
 Si Salmon ang ama ni Boaz, at si Rahab ang kanyang ina. Si Boaz ang ama ni Obed, at si Ruth ang kanyang ina. Si Obed ang ama ni Jesse, 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 6 
-
-
-
-
-
-
-
-
 
 
 at si Jesse ang ama ni Haring David. Si Haring David ang ama ni Solomon (ang ina niya ay ang dating asawa ni Uria). 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 7 
-
-
-
-
-
-
-
-
 
 
 Si Solomon ang ama ni Rehoboam, si Rehoboam ang ama ni Abijah, at si Abijah ang ama ni Asa. 

@@ -9,167 +9,31 @@ next: ['Mark 16']
 ***
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 1 
-
-
-
-
-
-
-
-
 
 
 Kinaumagahan, nagpulong agad ang mga namamahalang pari, mga pinuno ng mga Judio, mga tagapagturo ng Kautusan at ang lahat ng miyembro ng Korte ng mga Judio. Ginapos nila si Jesus at dinala kay Gobernador Pilato. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 2 
-
-
-
-
-
-
-
-
 
 
 Nang naroon na sila, tinanong siya ni Pilato, "Ikaw nga ba ang hari ng mga Judio?" Sumagot si Jesus, "Kayo na ang nagsasabi." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 3 
-
-
-
-
-
-
-
-
 
 
 Maraming paratang ang mga namamahalang pari laban kay Jesus. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 4 
-
-
-
-
-
-
-
-
 
 
 Kaya tinanong siyang muli ni Pilato, "Wala ka bang sagot sa paratang ng mga ito? Marami silang paratang laban sa iyo!" 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 5 
-
-
-
-
-
-
-
-
 
 
 Pero hindi pa rin sumagot si Jesus, kaya nagtaka si Pilato.
@@ -177,331 +41,61 @@ Pero hindi pa rin sumagot si Jesus, kaya nagtaka si Pilato.
 ## Hinatulan si Jesus ng Kamatayan 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 6 
-
-
-
-
-
-
-
-
 
 
 Tuwing Pista ng Paglampas ng Anghel, nakaugalian na ni Pilato na magpalaya ng isang bilanggo na gustong palayain ng mga tao. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 7 
-
-
-
-
-
-
-
-
 
 
 May isang bilanggo roon na ang pangalan ay Barabas. Nabilanggo siya dahil kabilang siya sa mga nakapatay noong naghimagsik sila laban sa pamahalaan. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 8 
-
-
-
-
-
-
-
-
 
 
 Marami ang lumapit kay Pilato at hiniling na gawin muli ang nakaugaliang pagpapalaya ng bilanggo. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 9 
-
-
-
-
-
-
-
-
 
 
 Kaya tinanong sila ni Pilato, "Gusto ba ninyo na palayain ko ang Hari ng mga Judio?" 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 10 
-
-
-
-
-
-
-
-
 
 
 Alam ni Pilato na pagkainggit ang nagtulak sa mga namamahalang pari na dalhin sa kanya si Jesus. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 11 
-
-
-
-
-
-
-
-
 
 
 Sinulsulan ng mga namamahalang pari ang mga tao na si Barabas ang hilinging palayain at hindi si Jesus. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 12 
-
-
-
-
-
-
-
-
 
 
 Nagtanong ulit si Pilato sa mga tao, "Ano ngayon ang gagawin ko sa taong tinatawag nʼyong Hari ng mga Judio?" 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 13 
-
-
-
-
-
-
-
-
 
 
 Sumigaw sila, "Ipako siya sa krus!" 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 14 
-
-
-
-
-
-
-
-
 
 
 Sinabi ni Pilato sa kanila, "Bakit, ano ba ang ginawa niyang kasalanan?" Pero lalo pang sumigaw ang mga tao, "Ipako siya sa krus!" 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 15 
-
-
-
-
-
-
-
-
 
 
 Dahil gustong pagbigyan ni Pilato ang mga tao, pinalaya niya si Barabas. Ipinahagupit naman niya si Jesus at saka ibinigay sa mga sundalo upang ipako sa krus.
@@ -509,166 +103,31 @@ Dahil gustong pagbigyan ni Pilato ang mga tao, pinalaya niya si Barabas. Ipinaha
 ## Pinahirapan ng mga Sundalo si Jesus 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 16 
-
-
-
-
-
-
-
-
 
 
 Dinala ng mga sundalo si Jesus sa loob ng palasyo ng gobernador at tinipon nila roon ang buong batalyon ng mga sundalo. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 17 
-
-
-
-
-
-
-
-
 
 
 Sinuotan nila si Jesus ng kapa na kulay ube at gumawa sila ng koronang tinik at ipinutong sa kanya. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 18 
-
-
-
-
-
-
-
-
 
 
 Pagkatapos, pakutya silang nagsisigaw, "Mabuhay ang Hari ng mga Judio!" 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 19 
-
-
-
-
-
-
-
-
 
 
 At paulit-ulit nilang pinaghahampas ng tungkod ang kanyang ulo, at pinagduduraan nila siya. Lumuluhod sila sa kanya na kunwari ay sumasamba sa kanya. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 20 
-
-
-
-
-
-
-
-
 
 
 Matapos nilang kutyain si Jesus, hinubad nila ang kulay ubeng kapa at ipinasuot ang kanyang damit. Pagkatapos, dinala nila siya sa labas ng lungsod upang ipako sa krus.
@@ -676,397 +135,73 @@ Matapos nilang kutyain si Jesus, hinubad nila ang kulay ubeng kapa at ipinasuot 
 ## Ipinako sa Krus si Jesus 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 21 
-
-
-
-
-
-
-
-
 
 
 Habang naglalakad sila, nasalubong nila ang isang tao na galing sa bukid. Siyaʼy si Simon na taga-Cyrene, na ama ni Alexander at ni Rufus. Sapilitan nilang ipinapasan sa kanya ang krus ni Jesus. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 22 
-
-
-
-
-
-
-
-
 
 
 Pagkatapos, dinala nila si Jesus sa lugar na tinatawag na Golgota, na ang ibig sabihin ay "lugar ng bungo." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 23 
-
-
-
-
-
-
-
-
 
 
 Pagdating nila roon, binigyan nila si Jesus ng alak na may halong mira, pero hindi niya ito ininom. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 24 
-
-
-
-
-
-
-
-
 
 
 Ipinako nila sa krus si Jesus at pinaghati-hatian nila ang mga damit niya sa pamamagitan ng palabunutan para malaman nila ang bahaging mapupunta sa bawat isa. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 25 
-
-
-
-
-
-
-
-
 
 
 Alas nuwebe noon ng umaga nang ipako siya sa krus. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 26 
-
-
-
-
-
-
-
-
 
 
 May karatula sa itaas ng krus, at ganito ang nakasulat na paratang laban sa kanya: "Ang Hari ng mga Judio." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 27 
-
-
-
-
-
-
-
-
 
 
 May dalawa ring tulisan na ipinako sa krus kasabay ni Jesus, isa sa kanan niya at isa sa kaliwa. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 28 
-
-
-
-
-
-
-
-
 
 
 [Sa pangyayaring ito, natupad ang sinasabi ng Kasulatan, "Napabilang siya sa mga kriminal."] 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 29 
-
-
-
-
-
-
-
-
 
 
 Ininsulto si Jesus ng mga taong napapadaan doon. Napapailing sila at sabay sabi, "O ano ngayon? Hindi baʼt sinasabi mong gigibain mo ang templo at muli mong itatayo sa loob ng tatlong araw? 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 30 
-
-
-
-
-
-
-
-
 
 
 Bumaba ka sa krus at iligtas mo ang iyong sarili!" 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 31 
-
-
-
-
-
-
-
-
 
 
 Ganito rin ang pangungutya ng mga namamahalang pari at mga tagapagturo ng Kautusan. Sinasabi nila sa isaʼt isa, "Iniligtas niya ang iba, pero hindi niya mailigtas ang kanyang sarili! 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 32 
-
-
-
-
-
-
-
-
 
 
 Tingnan nga natin kung makakababa sa krus ang Cristong ito na hari raw ng Israel! Kapag nakababa siya, maniniwala na tayo sa kanya." Maging ang mga ipinakong kasabay niya ay nang-insulto rin sa kanya.
@@ -1074,298 +209,55 @@ Tingnan nga natin kung makakababa sa krus ang Cristong ito na hari raw ng Israel
 ## Ang Pagkamatay ni Jesus 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 33 
-
-
-
-
-
-
-
-
 
 
 Nang mag-alas dose na ng tanghali, dumilim ang buong lupain sa loob ng tatlong oras. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 34 
-
-
-
-
-
-
-
-
 
 
 Nang mag-alas tres na ng hapon, sumigaw si Jesus nang malakas, "Eloi, Eloi, lema sabachtani?" na ang ibig sabihin ay "Dios ko, Dios ko, bakit mo ako pinabayaan?" 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 35 
-
-
-
-
-
-
-
-
 
 
 Nang marinig iyon ng mga nakatayo roon, sinabi nila, "Pakinggan ninyo, tinatawag niya si Elias." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 36 
-
-
-
-
-
-
-
-
 
 
 Tumakbo agad ang isang tao at kumuha ng espongha at isinawsaw sa maasim na alak. Ikinabit niya ito sa dulo ng isang patpat at idinampi sa bibig ni Jesus para sipsipin niya. Sinabi ng taong iyon, "Tingnan natin kung darating nga si Elias upang ibaba siya sa krus." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 37 
-
-
-
-
-
-
-
-
 
 
 Sumigaw nang malakas si Jesus at nalagutan ng hininga. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 38 
-
-
-
-
-
-
-
-
 
 
 Nang sandali ring iyon, nahati mula sa itaas hanggang sa ibaba ang kurtina sa loob ng templo. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 39 
-
-
-
-
-
-
-
-
 
 
 Nakatayo sa harap ng krus ang kapitan ng mga sundalo at nakita niya kung paanong nalagutan ng hininga si Jesus. Sinabi niya, "Totoo ngang siya ang Anak ng Dios!" 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 40 
-
-
-
-
-
-
-
-
 
 
 Sa di-kalayuan ay may mga babaeng nanonood sa mga nangyayari. Kabilang sa kanila si Salome, si Maria na taga-Magdala, at si Maria na ina ni Jose at ng nakababata nitong kapatid na si Santiago. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 41 
-
-
-
-
-
-
-
-
 
 
 Ang mga babaeng ito ay sumasama kay Jesus at tumutulong sa kanya noong nasa Galilea siya. Naroon din ang iba pang babaeng sumama sa kanya sa Jerusalem.
@@ -1373,199 +265,37 @@ Ang mga babaeng ito ay sumasama kay Jesus at tumutulong sa kanya noong nasa Gali
 ## Ang Paglilibing kay Jesus 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 42 
-
-
-
-
-
-
-
-
 
 
 Namatay si Jesus sa araw ng paghahanda para sa pista. Padilim na noon, at ang susunod na araw ay Araw ng Pamamahinga. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 43 
-
-
-
-
-
-
-
-
 
 
 Kaya naglakas-loob si Jose na taga-Arimatea na puntahan si Pilato at hingin ang bangkay ni Jesus. Si Jose ay isa sa mga iginagalang na miyembro ng Korte ng mga Judio. At isa siya sa mga naghihintay sa pagdating ng paghahari ng Dios. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 44 
-
-
-
-
-
-
-
-
 
 
 Nang marinig ni Pilato na patay na si Jesus, nagtaka siya. Kaya ipinatawag niya ang kapitan ng mga sundalo at tinanong kung patay na nga si Jesus. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 45 
-
-
-
-
-
-
-
-
 
 
 At nang marinig ni Pilato sa kapitan na patay na nga si Jesus, pinayagan niya si Jose na kunin ang bangkay ni Jesus. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 46 
-
-
-
-
-
-
-
-
 
 
 Bumili si Jose ng mamahaling telang linen at kinuha ang bangkay ni Jesus sa krus. Binalot niya ito ng telang binili niya at inilagay sa libingang hinukay sa gilid ng burol. At pinagulong niya ang malaking bato upang takpan ang pintuan ng libingan. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 47 
-
-
-
-
-
-
-
-
 
 
 Nagmamasid noon si Maria na taga-Magdala at si Maria na ina ni Jose, kaya nakita nila kung saan inilibing si Jesus.

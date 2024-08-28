@@ -9,200 +9,37 @@ next: ['Jer 41']
 ***
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 1 
-
-
-
-
-
-
-
-
 
 
 May sinabi ang Panginoon kay Jeremias pagkatapos siyang palayain ni Nebuzaradan na pinuno ng mga guwardya sa Rama. Nakakadena siya noon kasama ng mga bihag na mga taga-Jerusalem at taga-Juda na dadalhin sa Babilonia. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 2 
-
-
-
-
-
-
-
-
 
 
 Nang makita ni Nebuzaradan si Jeremias, sinabi niya sa kanya, "Ang Panginoon na iyong Dios ay nagsabing wawasakin niya ang Jerusalem. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 3 
-
-
-
-
-
-
-
-
 
 
 At nangyari ito ngayon. Talagang ginawa ng Panginoon ang sinabi niya. Nangyari ito dahil gumawa ng kasalanan sa Panginoon ang mga kababayan mo at hindi sila sumunod sa kanya. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 4 
-
-
-
-
-
-
-
-
 
 
 Aalisin ko na ngayon ang kadena mo at palalayain na kita. Kung gusto mo, sumama ka sa akin sa Babilonia at aalagaan kita roon. Pero kung ayaw mo, nasa sa iyo iyon. Tingnan mo ang buong lupain; malaya kang pumunta kahit saan. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 5 
-
-
-
-
-
-
-
-
 
 
 Kung gusto mo talagang magpaiwan dito, bumalik ka kay Gedalia na anak ni Ahikam at apo ni Shafan. Ginawa siyang tagapangasiwa ng hari ng Babilonia sa mga bayan ng Juda. Maaari kang makapanirahang kasama niya at ng mga nasasakupan niya o kahit saan man na nais mong pumunta." Pagkatapos, binigyan siya ni Nebuzaradan ng mga pagkain at regalo, at pinalaya. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 6 
-
-
-
-
-
-
-
-
 
 
 Kaya umalis si Jeremias at pumunta kay Gedalia roon sa Mizpa at tumira roon kasama ng mga taong naiwan.
@@ -210,331 +47,61 @@ Kaya umalis si Jeremias at pumunta kay Gedalia roon sa Mizpa at tumira roon kasa
 ## Ang Pamamahala ni Gedalia sa Juda 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 7 
-
-
-
-
-
-
-
-
 
 
 May ilang mga opisyal at mga sundalo ng Juda na nasa bukirin na hindi sumuko sa mga taga-Babilonia. Nabalitaan nilang si Gedalia ay ginawang gobernador ng hari ng Babilonia sa buong lupain para mamuno sa mga lalaki, babae at mga bata na siyang pinakamahirap ang kalagayan na naiwan at hindi dinalang bihag sa Babilonia. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 8 
-
-
-
-
-
-
-
-
 
 
 Kaya pumunta ang mga pinunong ito kay Gedalia na nasa Mizpa. Ang mga pinunong ito ay sina Ishmael na anak ni Netania, Johanan at Jonatan na mga anak ni Karea, Seraya na anak ni Tanhumet, ang mga anak ni Efai na taga-Netofa, at Jaazania na anak ng taga-Maaca. Sumama sa kanila ang mga tauhan nila. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 9 
-
-
-
-
-
-
-
-
 
 
 Sumumpa sa kanila si Gedalia na hindi sila mapapahamak kung magpapasakop sila sa mga taga-Babilonia. Sinabi niya sa kanila, "Manirahan kayo rito sa lupaing ito at maglingkod kayo sa hari ng Babilonia, at mapapabuti kayo. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 10 
-
-
-
-
-
-
-
-
 
 
 Mananatili ako rito sa Mizpa upang humarap sa mga taga-Babilonia para sa inyo kapag dumating sila rito. Manirahan kayo sa kahit saang lugar na inyong gusto, at anihin ninyo ang mga ubas, mga olibo, at ang iba pang mga prutas, at iimbak ninyo sa mga lalagyan." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 11 
-
-
-
-
-
-
-
-
 
 
 Nabalitaan din ng lahat ng Judio na nagsitakas sa Moab, Ammon, Edom at sa iba pang mga bansa na may mga taong iniwan si Haring Nebucadnezar na mga mamamayan ng Juda, at ginawa niyang gobernador si Gedalia na anak ni Ahikam at apo ni Shafan. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 12 
-
-
-
-
-
-
-
-
 
 
 Kaya bumalik sila sa Juda mula sa ibaʼt ibang lugar na pinangalatan nila at pumunta sila kay Gedalia sa Mizpa. At nanguha sila ng mga ubas at iba pang mga prutas. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 13 
-
-
-
-
-
-
-
-
 
 
 Pumunta rin kay Gedalia sa Mizpa si Johanan na anak ni Karea at ang iba pang mga opisyal ng mga sundalo na hindi sumuko sa mga taga-Babilonia. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 14 
-
-
-
-
-
-
-
-
 
 
 Sinabi nila, "Hindi mo ba alam na isinugo ni Haring Baalis ng Ammon si Ishmael na anak ni Netania para patayin ka?" Pero hindi naniwala si Gedalia sa kanila. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 15 
-
-
-
-
-
-
-
-
 
 
 Pagkatapos, nakipagkita si Johanan kay Gedalia ng lihim at sinabi niya sa kanya, "Papatayin ko ang anak ni Netania na si Ishmael ng walang sinumang nakakaalam. Huwag natin siyang pabayaan na patayin ka. Kung sakaling mangyari ito, ito ang magiging dahilan para mangalat at mawala ang mga Judiong naiwan dito sa Juda na pinamumunuan mo." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 16 
-
-
-
-
-
-
-
-
 
 
 Pero sinabi ni Gedalia na anak ni Ahikam kay Johanan, "Huwag mong gawin iyan. Hindi totoo ang sinasabi mo tungkol kay Ishmael."

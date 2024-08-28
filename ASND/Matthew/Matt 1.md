@@ -50,331 +50,61 @@ at si Jesse ang ama ni Haring David. Si Haring David ang ama ni Solomon (ang ina
 Si Solomon ang ama ni Rehoboam, si Rehoboam ang ama ni Abijah, at si Abijah ang ama ni Asa. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 8 
-
-
-
-
-
-
-
-
 
 
 Si Asa ang ama ni Jehoshafat, si Jehoshafat ang ama ni Joram, at si Joram ang ama ni Uzia. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 9 
-
-
-
-
-
-
-
-
 
 
 Si Uzia ang ama ni Jotam, si Jotam ang ama ni Ahaz, at si Ahaz ang ama ni Hezekia. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 10 
-
-
-
-
-
-
-
-
 
 
 Si Hezekia ang ama ni Manase, si Manase ang ama ni Amos, si Amos ang ama ni Josia, 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 11 
-
-
-
-
-
-
-
-
 
 
 at si Josia ang ama ni Jeconia at ng kanyang mga kapatid. Sa panahong ito, binihag ang mga Israelita at dinala sa Babilonia. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 12 
-
-
-
-
-
-
-
-
 
 
 Ito naman ang talaan ng mga ninuno ni Jesus matapos ang pagkabihag ng mga Israelita sa Babilonia: Si Jeconia ang ama ni Shealtiel, si Shealtiel ang ama ni Zerubabel, 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 13 
-
-
-
-
-
-
-
-
 
 
 at si Zerubabel ang ama ni Abiud. Si Abiud ang ama ni Eliakim, si Eliakim ang ama ni Azor, 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 14 
-
-
-
-
-
-
-
-
 
 
 at si Azor ang ama ni Zadok. Si Zadok ang ama ni Akim, si Akim ang ama ni Eliud, 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 15 
-
-
-
-
-
-
-
-
 
 
 at si Eliud ang ama ni Eleazar. Si Eleazar ang ama ni Matan, si Matan ang ama ni Jacob, 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 16 
-
-
-
-
-
-
-
-
 
 
 at si Jacob ang ama ni Jose na ang asawaʼy si Maria. Si Maria ang ina ni Jesus na tinatawag na Cristo. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 17 
-
-
-
-
-
-
-
-
 
 
 Kaya may 14 na henerasyon mula kay Abraham hanggang kay David, may 14 na henerasyon naman mula kay David hanggang sa pagkabihag ng mga Israelita sa Babilonia, at may 14 na henerasyon din mula sa pagkabihag hanggang kay Cristo.
@@ -382,265 +112,49 @@ Kaya may 14 na henerasyon mula kay Abraham hanggang kay David, may 14 na heneras
 ## Ang Pagkapanganak kay Jesu-Cristo 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 18 
-
-
-
-
-
-
-
-
 
 
 Ganito ang pangyayari sa pagkapanganak kay Jesu-Cristo: Si Maria na kanyang ina ay nakatakdang ikasal kay Jose. Pero bago pa sila ikasal, nalaman ni Maria na buntis siya sa pamamagitan ng Banal na Espiritu. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 19 
-
-
-
-
-
-
-
-
 
 
 Si Jose na magiging asawa niya ay isang matuwid na tao at ayaw nitong malagay sa kahihiyan si Maria, kaya ipinasya niyang hiwalayan na lang si Maria nang palihim. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 20 
-
-
-
-
-
-
-
-
 
 
 Habang pinag-iisipan ito ni Jose, nagpakita sa kanya sa panaginip ang isang anghel ng Panginoon at nagsabi, "Jose, na mula sa angkan ni David, huwag kang matakot na pakasalan si Maria dahil ang pagbubuntis niyaʼy sa pamamagitan ng Banal na Espiritu. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 21 
-
-
-
-
-
-
-
-
 
 
 Manganganak siya ng isang lalaki at papangalanan mo siyang Jesus, dahil ililigtas niya ang kanyang bayan sa kanilang mga kasalanan." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 22 
-
-
-
-
-
-
-
-
 
 
 Nangyari ang lahat ng ito upang matupad ang sinabi ng Panginoon sa pamamagitan ng propeta, 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 23 
-
-
-
-
-
-
-
-
 
 
 "Magbubuntis ang isang birhen at manganganak ng isang lalaki. Tatawagin siyang Emmanuel" (na ang ibig sabihin, "Kasama natin ang Dios"). 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 24 
-
-
-
-
-
-
-
-
 
 
 Nang magising si Jose, sinunod niya ang sinabi ng anghel at pinakasalan niya si Maria. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 25 
-
-
-
-
-
-
-
-
 
 
 Pero hindi siya sumiping kay Maria hanggang sa maipanganak nito ang sanggol. Nang manganak na si Maria, pinangalanan ni Jose ang sanggol ng Jesus.

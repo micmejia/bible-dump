@@ -9,299 +9,55 @@ next: ['Judg 3']
 ***
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 1 
-
-
-
-
-
-
-
-
 
 
 Pumunta ang anghel ng Panginoon sa Bokim mula sa Gilgal. At sinabi niya sa mga Israelita, ito ang ipinapasabi ng Panginoon: "Inilabas ko kayo sa Egipto at dinala dito sa lupain na ipinangako ko sa inyong mga ninuno. Sinabi ko noon na hindi ko sisirain ang kasunduan ko sa inyo. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 2 
-
-
-
-
-
-
-
-
 
 
 Sinabi ko rin na huwag kayong gagawa ng kasunduan sa mga tao sa lupaing ito kundi gibain nʼyo ang mga altar nila. Pero ano ang ginawa ninyo? Hindi nʼyo ako sinunod! 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 3 
-
-
-
-
-
-
-
-
 
 
 Kaya ngayon, hindi ko sila itataboy sa lupain ninyo. Magiging parang tinik sila sa daraanan ninyo at ang mga dios nila ay magiging parang bitag sa inyo." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 4 
-
-
-
-
-
-
-
-
 
 
 Nang marinig ito ng mga Israelita, humagulgol sila. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 5 
-
-
-
-
-
-
-
-
 
 
 Kaya tinawag nilang Bokim ang lugar na iyon. At doon sila naghandog sa Panginoon. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 6 
-
-
-
-
-
-
-
-
 
 
 Nang pinauwi na ni Josue ang mga Israelita, umalis sila upang angkinin ang lupain na nakalaan para sa kanila. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 7 
-
-
-
-
-
-
-
-
 
 
 At naglingkod sila sa Panginoon habang nabubuhay si Josue. At kahit namatay na siya, patuloy pa rin silang naglingkod sa Panginoon habang nabubuhay ang mga tagapamahala ng Israel na nakakita ng lahat ng kahanga-hangang ginawa ng Panginoon para sa Israel. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 8 
-
-
-
-
-
-
-
-
 
 
 Ang lingkod ng Panginoon na si Josue na anak ni Nun ay namatay sa edad na 110. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 9 
-
-
-
-
-
-
-
-
 
 
 Inilibing siya sa kanyang lupain doon sa Timnat Heres, sa kabundukan ng Efraim, sa hilaga ng Bundok ng Gaas.
@@ -309,463 +65,85 @@ Inilibing siya sa kanyang lupain doon sa Timnat Heres, sa kabundukan ng Efraim, 
 ## Huminto ang mga Israelita sa Paglilingkod sa Panginoon 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 10 
-
-
-
-
-
-
-
-
 
 
 Nang mamatay ang mga tao sa henerasyong iyon, ang sumunod na salinlahi ay hindi nakikilala ang Panginoon, maging ang mga ginawa niya para sa Israel. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 11 
-
-
-
-
-
-
-
-
 
 
 Gumawa ng kasamaan ang mga Israelita sa paningin ng Panginoon at naglingkod sa mga imahen ni Baal. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 12 
-
-
-
-
-
-
-
-
 
 
 Itinakwil nila ang Panginoon, ang Dios ng kanilang mga ninuno, na siyang naglabas sa kanila sa Egipto. Sinunod nila at sinamba ang ibaʼt ibang dios ng mga tao sa paligid nila. Nagalit ang Panginoon, 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 13 
-
-
-
-
-
-
-
-
 
 
 dahil itinakwil siya ng mga ito at naglingkod kay Baal at kay Ashtoret. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 14 
-
-
-
-
-
-
-
-
 
 
 Dahil sa galit ng Panginoon sa Israel, pinabayaan niyang lusubin sila ng mga tulisan para samsamin ang kanilang mga ari-arian. Pinabayaan din sila ng Panginoon na matalo ng mga kaaway nila sa paligid at hindi na nila makayanang ipagtanggol ang kanilang sarili. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 15 
-
-
-
-
-
-
-
-
 
 
 Kapag nakikipaglaban sila, pinapatalo sila ng Panginoon, tulad ng sinabi niya. Kaya labis silang nahirapan. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 16 
-
-
-
-
-
-
-
-
 
 
 Ngayon, binigyan ng Panginoon ang Israel ng mga pinuno na magliligtas sa kanila mula sa mga tulisan. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 17 
-
-
-
-
-
-
-
-
 
 
 Pero hindi nila pinansin ang kanilang mga pinuno. Sa halip, tumalikod sila sa Panginoon at sumamba sa ibang mga dios. Hindi sila katulad ng kanilang mga ninuno. Napakadali nilang tumalikod sa mga utos ng Dios na sinunod noon ng mga ninuno nila. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 18 
-
-
-
-
-
-
-
-
 
 
 Ang lahat na pinunong ibinigay ng Panginoon sa kanila ay tinulungan niya. At habang buhay ang pinuno nila, inililigtas sila ng Panginoon sa kanilang mga kaaway. Sapagkat naaawa siya sa kanila dahil sa mga pagtitiis nila sa mga nanggigipit at nagpapahirap sa kanila. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 19 
-
-
-
-
-
-
-
-
 
 
 Pero kapag namatay na ang pinuno, bumabalik na naman sila sa masasama nilang gawa. Muli silang naglilingkod at sumasamba sa ibang mga dios mas masahol pa sa pagkakasala ng kanilang mga ninuno. Ayaw nilang talikuran ang masasamang gawain nila at ang katigasan ng kanilang mga ulo. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 20 
-
-
-
-
-
-
-
-
 
 
 Kaya lalo pang nagalit ang Panginoon sa kanila. Sinabi ng Panginoon, "Dahil nilabag ng bansang ito ang kasunduan ko sa kanilang mga ninuno, at hindi nila ako sinunod, 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 21 
-
-
-
-
-
-
-
-
 
 
 hindi ko itataboy ang natirang mga bansa na hindi nasakop ni bago siya namatay. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 22 
-
-
-
-
-
-
-
-
 
 
 Gagamitin ko ang mga bansang ito para subukin ang mga Israelita kung talagang tutuparin nila ang aking mga utos katulad ng kanilang mga ninuno." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 23 
-
-
-
-
-
-
-
-
 
 
 Ito ang dahilan kung bakit hindi agad itinaboy ng Panginoon ang natirang mga bansa at hindi niya pinahintulutang matalo ito ni Josue.

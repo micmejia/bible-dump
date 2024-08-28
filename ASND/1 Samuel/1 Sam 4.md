@@ -9,35 +9,7 @@ next: ['1 Sam 5']
 ***
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 1 
-
-
-
-
-
-
-
-
 
 
 Kumalat sa buong Israel ang mensahe ni Samuel.
@@ -45,331 +17,61 @@ Kumalat sa buong Israel ang mensahe ni Samuel.
 ## Nakuha ng mga Filisteo ang Kahon ng Kasunduan Nagkaroon ng digmaan sa pagitan ng mga Israelita at mga Filisteo nang mga panahong iyon. Nagkampo ang mga Israelita sa Ebenezer, at ang mga Filisteo naman ay sa Afek. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 2 
-
-
-
-
-
-
-
-
 
 
 Sinugod ng mga Filisteo ang mga Israelita at tinalo ang mga ito; 4,000 Israelita ang napatay nila. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 3 
-
-
-
-
-
-
-
-
 
 
 Pagkatapos ng digmaan, bumalik ang mga natirang Israelita sa kampo nila. Tinanong sila ng mga tagapamahala ng Israel, "Bakit hinayaan ng Panginoon na matalo tayo ng mga Filisteo? Mabuti pa sigurong kunin natin ang Kahon ng Kasunduan sa Shilo para samahan tayo ng Panginoon at iligtas tayo sa mga kalaban natin." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 4 
-
-
-
-
-
-
-
-
 
 
 Kaya ipinakuha nila sa Shilo ang Kahon ng Kasunduan ng Panginoong Makapangyarihan. Ang takip ng Kahon ay may estatwa ng dalawang kerubin, at nananahan sa kalagitnaan nito ang Panginoon. Sumama sa pagdala ng Kahon ng Kasunduan ang dalawang anak ni Eli na sina Hofni at Finehas. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 5 
-
-
-
-
-
-
-
-
 
 
 Nang madala na ang Kahon ng Kasunduan doon sa kampo, sumigaw nang malakas ang mga Israelita sa kasiyahan at yumanig ang lupa. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 6 
-
-
-
-
-
-
-
-
 
 
 Nang marinig ng mga Filisteo ang sigawan ng mga Israelita, nagtanong sila, "Bakit kaya sumisigaw ang mga Hebreo sa kanilang kampo?" Nang malaman nila na ang Kahon ng Panginoon ay nasa kampo ng mga Israelita, 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 7 
-
-
-
-
-
-
-
-
 
 
 natakot sila at sinabi, "May dumating na dios sa kampo ng mga Israelita! Nanganganib tayo! Kahit kailan, hindi pa nangyayari ang ganito sa atin. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 8 
-
-
-
-
-
-
-
-
 
 
 Nakakaawa tayo! Sino ang magliligtas sa atin sa mga makapangyarihan nilang dios? Sila rin ang mga dios na pumatay sa mga Egipcio sa disyerto sa pamamagitan ng ibaʼt ibang mga salot. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 9 
-
-
-
-
-
-
-
-
 
 
 Kaya magpakatatag tayo, dahil kung hindi, magiging alipin tayo ng mga Hebreo gaya ng pang-aalipin natin sa kanila. Labanan natin sila." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 10 
-
-
-
-
-
-
-
-
 
 
 Kaya nakipaglaban ang mga Filisteo at natalo ang mga Israelita. Napakarami ng napatay; 30,000 ang napatay na mga Israelita. Ang mga natira sa kanila ay tumakas pabalik sa kanilang tinitirhan. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 11 
-
-
-
-
-
-
-
-
 
 
 Naagaw ng mga Filisteo ang Kahon ng Kasunduan at napatay ang dalawang anak ni Eli na sina Hofni at Finehas.
@@ -377,199 +79,37 @@ Naagaw ng mga Filisteo ang Kahon ng Kasunduan at napatay ang dalawang anak ni El
 ## Ang Pagkamatay ni Eli 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 12 
-
-
-
-
-
-
-
-
 
 
 Nang araw ding iyon, may isang tao mula sa lahi ni Benjamin na tumatakbo galing sa digmaan papunta sa Shilo. Pinunit niya ang kanyang damit at nilagyan ng abo ang kanyang ulo bilang tanda ng pagluluksa. 13-15Pagdating niya sa Shilo, nakaupo si Eli sa upuan na nasa gilid ng daan at nagbabantay dahil nag-aalala siya para sa Kahon ng Dios. Si Eli ay 98 taon na noon at halos hindi na nakakakita. Ibinalita ng tao ang nangyaring digmaan sa bayan. Nang marinig ito ng mga tao, nag-iyakan sila. Narinig ito ni Eli at nagtanong siya, "Bakit umiiyak ang mga tao?" Dali-daling lumapit sa kanya ang tao, 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 16 
-
-
-
-
-
-
-
-
 
 
 at sinabi, "Kagagaling ko lang po sa digmaan. Nakatakas po ako." Nagtanong si Eli, "Ano ang nangyari, anak?" 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 17 
-
-
-
-
-
-
-
-
 
 
 Sumagot ang tao, "Nagsitakas po ang mga Israelita sa harap ng mga Filisteo. Napakarami pong namatay sa mga sundalo natin, kasama po ang dalawang anak nʼyo na sina Hofni at Finehas. At naagaw din po ang Kahon ng Dios." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 18 
-
-
-
-
-
-
-
-
 
 
 Nang mabanggit ng tao ang tungkol sa Kahon ng Dios, natumba si Eli mula sa kinauupuan niya na nasa gilid ng pintuan ng lungsod. Nabali ang kanyang leeg at agad na namatay, dahil mataba siya at matanda na. Pinamunuan niya ang Israel sa loob ng 40 taon. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 19 
-
-
-
-
-
-
-
-
 
 
 Nang panahon ding iyon, kabuwanan ng manugang ni Eli na asawa ni Finehas. Nang mabalitaan niya na naagaw ang Kahon ng Dios at namatay ang kanyang asawa at biyenang lalaki, sumakit ang tiyan niya at napaanak ng wala sa panahon dahil sa matinding sakit. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 20 
-
-
-
-
-
-
-
-
 
 
 Nang nag-aagaw buhay na siya, sinabi sa kanya ng mga manghihilot, "Lakasan mo ang loob mo. Lalaki ang anak mo." Pero hindi na siya sumagot. 21-22Bago siya namatay, Icabod ang ipinangalan niya sa bata, dahil sinabi niya, "Wala na ang makapangyarihang presensya ng Dios sa Israel." Sinabi niya ito dahil naagaw ang Kahon ng Dios at napatay ang asawa niya at biyenan niyang lalaki.

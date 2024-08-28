@@ -9,794 +9,145 @@ next: ['Gen 31']
 ***
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 1 
-
-
-
-
-
-
-
-
 
 
 Si Raquel ay hindi pa rin nagbubuntis, kaya nainggit siya kay Lea. Sinabi niya kay Jacob, "Bigyan mo ako ng anak dahil kung hindi, mamamatay talaga ako!" 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 2 
-
-
-
-
-
-
-
-
 
 
 Nagalit si Jacob sa kanya at sinabi, "Bakit, Dios ba ako? Siya ang nagpasya na hindi ka magkaanak." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 3 
-
-
-
-
-
-
-
-
 
 
 Sinabi ni Raquel, "Kung ganoon, sumiping ka kay Bilha na alipin ko para kahit sa pamamagitan niya magkaroon din ako ng anak." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 4 
-
-
-
-
-
-
-
-
 
 
 Kaya ibinigay niya si Bilha kay Jacob bilang asawa, at sumiping si Jacob kay Bilha. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 5 
-
-
-
-
-
-
-
-
 
 
 Dumating ang panahon, nabuntis si Bilha at nanganak ng lalaki. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 6 
-
-
-
-
-
-
-
-
 
 
 Sinabi ni Raquel, "Kinuha na ng Dios ang aking kahihiyan. Tinugon niya ang panalangin ko dahil binigyan niya ako ng isang anak na lalaki." Kaya pinangalanan niya ang sanggol na Dan. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 7 
-
-
-
-
-
-
-
-
 
 
 Muling nagbuntis si Bilha na alipin ni Raquel at nanganak ng lalaki na pangalawang anak nila ni Jacob. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 8 
-
-
-
-
-
-
-
-
 
 
 Sinabi ni Raquel, "Napakahigpit ng labanan namin bilang magkapatid, at nagtagumpay ako." Kaya pinangalanan niya ang sanggol na Naftali. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 9 
-
-
-
-
-
-
-
-
 
 
 Nang hindi na magkaanak si Lea, pinasipingan niya kay Jacob ang alipin niyang si Zilpa. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 10 
-
-
-
-
-
-
-
-
 
 
 Nabuntis si Zilpa at nanganak ng lalaki. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 11 
-
-
-
-
-
-
-
-
 
 
 Sinabi ni Lea, "Parang pinalad ako." Kaya pinangalanan niya ang sanggol na Gad. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 12 
-
-
-
-
-
-
-
-
 
 
 Muling nanganak si Zilpa ng lalaki na pangalawang anak nila ni Jacob. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 13 
-
-
-
-
-
-
-
-
 
 
 Sinabi ni Lea, "Lubha akong nasisiyahan! Ngayon tatawagin ako ng mga babae na masiyahin." Kaya pinangalanan niya ang sanggol na Asher. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 14 
-
-
-
-
-
-
-
-
 
 
 Anihan ng trigo noon, pumunta si Reuben sa bukid at may nakita siyang tanim na mandragora. Kumuha siya ng bunga nito at dinala sa ina niyang si Lea. Pagkakita noon ni Raquel ay sinabi niya kay Lea, "Bigyan mo rin ako ng mandragora na dinala ng anak mo." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 15 
-
-
-
-
-
-
-
-
 
 
 Pero sumagot si Lea, "Hindi ka pa ba kontento na kinuha mo ang asawa ko? Ngayon, kukunin mo pa ang mandragora ng anak ko?" Sinabi ni Raquel, "Kung bibigyan mo ako ng mandragora pasisipingin ko si Jacob sa iyo ngayong gabi." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 16 
-
-
-
-
-
-
-
-
 
 
 Mag-aagaw dilim na nang dumating si Jacob mula sa bukid, sinalubong siya ni Lea at sinabi, "Kailangang sa akin ka sumiping ngayong gabi, dahil binayaran na kita kay Raquel ng mandragora na dala ng anak ko." Kaya sumiping si Jacob kay Lea nang gabing iyon. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 17 
-
-
-
-
-
-
-
-
 
 
 Sinagot ng Dios ang panalangin ni Lea at siyaʼy nabuntis. Nanganak siya ng lalaki na ikalimang anak nila ni Jacob. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 18 
-
-
-
-
-
-
-
-
 
 
 Sinabi ni Lea, "Ginantimpalaan ako ng Dios dahil ibinigay ko ang alipin ko sa aking asawa." Kaya pinangalanan niya ang kanyang anak na Isacar. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 19 
-
-
-
-
-
-
-
-
 
 
 Muling nabuntis si Lea at nanganak ng lalaki na ikaanim nilang anak ni Jacob. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 20 
-
-
-
-
-
-
-
-
 
 
 Sinabi niya, "Binigyan ako ng Dios ng mabuting regalo. Pararangalan na ako nito ngayon ng asawa ko dahil nabigyan ko na siya ng anim na anak na puro lalaki." Kaya pinangalanan niya ang sanggol na Zebulun. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 21 
-
-
-
-
-
-
-
-
 
 
 Hindi nagtagal nanganak si Lea ng babae at pinangalanan niyang Dina. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 22 
-
-
-
-
-
-
-
-
 
 
 Hindi rin kinalimutan ng Dios si Raquel. Sinagot niya ang kanyang panalangin na magkaanak din siya. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 23 
-
-
-
-
-
-
-
-
 
 
 Nagbuntis siya at nanganak ng lalaki. Sinabi niya, "Inalis ng Dios ang aking kahihiyan." Kaya pinangalanan niya ang sanggol na Jose dahil sinabi niya, 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 24 
-
-
-
-
-
-
-
-
 
 
 "Nawaʼy bigyan ako ng Panginoon ng isa pang anak." 
@@ -804,562 +155,103 @@ Nagbuntis siya at nanganak ng lalaki. Sinabi niya, "Inalis ng Dios ang aking kah
 ## Ang Kasunduan ni Jacob at ni Laban 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 25 
-
-
-
-
-
-
-
-
 
 
 Pagkatapos na ipanganak ni Raquel si Jose, sinabi ni Jacob kay Laban, "Pahintulutan nʼyo akong makauwi sa lugar namin. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 26 
-
-
-
-
-
-
-
-
 
 
 Ibigay nʼyo sa akin ang mga asawa ko, na ipinaglingkod ko sa inyo, at ang mga anak ko, dahil babalik na ako sa amin. Nalalaman nʼyo kung paano ako naglingkod sa inyo." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 27 
-
-
-
-
-
-
-
-
 
 
 Sumagot si Laban, "Kung maaari huwag muna. Ayon sa pagpapahula ko, nalaman ko na pinagpala ako ng Panginoon dahil sa iyo. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 28 
-
-
-
-
-
-
-
-
 
 
 Sabihin mo lang kung magkano ang ibabayad ko sa iyo at babayaran kita." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 29 
-
-
-
-
-
-
-
-
 
 
 Sinabi ni Jacob, "Alam mo kung paano ako naglingkod sa inyo at kung paano dumami ang mga hayop ninyo dahil sa pag-aalaga ko. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 30 
-
-
-
-
-
-
-
-
 
 
 Nang dumating ako rito, kakaunti pa lang ang mga hayop nʼyo, pero ngayon ay napakarami na, dahil pinagpala kayo ng Panginoon dahil sa akin. Ngayon, dapat na sigurong magsumikap ako para sa sarili kong sambahayan." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 31 
-
-
-
-
-
-
-
-
 
 
 Nagtanong si Laban, "Ano ba ang gusto mong ibayad ko sa iyo?" Sumagot si Jacob, "Huwag nʼyo na lang po akong bayaran. Ipagpapatuloy ko ang pag-aalaga sa mga hayop ninyo kung papayag kayo sa kundisyon ko: 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 32 
-
-
-
-
-
-
-
-
 
 
 Titingnan ko ngayon ang mga hayop nʼyo at kukunin ko ang itim na mga tupa at batik-batik na mga kambing. Iyon na lang ang pinakabayad nʼyo sa akin. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 33 
-
-
-
-
-
-
-
-
 
 
 Darating ang araw, malalaman nʼyo kung maaasahan ako o hindi kung susuriin nʼyo ang mga hayop na ibinayad sa akin. Kung may makita po kayong kambing na hindi batik-batik o tupa na hindi itim, ituring nʼyo na ninakaw ko ito." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 34 
-
-
-
-
-
-
-
-
 
 
 Sumagot si Laban, "Kung ganyan ang gusto mo, payag ako." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 35 
-
-
-
-
-
-
-
-
 
 
 Pero nang araw ding iyon, ibinukod ni Laban ang mga batik-batik na kambing na lalaki at babae, pati ang mga itim na tupa. Pinaalagaan niya ito sa mga anak niyang lalaki. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 36 
-
-
-
-
-
-
-
-
 
 
 Ibinukod niya ito kay Jacob sa layo na tatlong araw kung lalakarin. Ang naiwang mga hayop ay ang binabantayan ni Jacob. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 37 
-
-
-
-
-
-
-
-
 
 
 Kumuha si Jacob ng mga sanga ng almendro, abilyano, at kastanyo, at binalat-balatan niya ito. Pero hindi niya lubos na binalatan, kaya may batik-batik na puti kapag tiningnan ang mga sanga. 38-39Inilagay niya ang mga sangang iyon sa harapan ng painuman ng mga hayop para makita ng mga ito kapag iinom sila. Doon sa harapan ng mga sanga nagkakastahan ang mga kambing kapag umiinom sila. Batik-batik ang mga anak nila kapag nanganganak sila. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 40 
-
-
-
-
-
-
-
-
 
 
 Pero iba ang ginawa ni Jacob sa mga tupa: Habang nagkakastahan ang mga hayop na ito, pinapaharap niya sila sa mga batik-batik na kambing niya at sa itim na mga kambing ni Laban. Kaya nakaipon din si Jacob ng sarili niyang mga hayop at hindi niya ito isinama sa mga hayop ni Laban. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 41 
-
-
-
-
-
-
-
-
 
 
 Kapag nagkakastahan na ang mga hayop na maganda ang katawan doon sa pinag-iinuman, inilalagay agad ni Jacob ang mga sangang iyon sa harapan ng mga ito. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 42 
-
-
-
-
-
-
-
-
 
 
 Pero kapag ang mga hayop na matatamlay ang nagkakastahan, hindi niya inilalagay ang mga sanga, kaya ang mga matatamlay ay kay Laban at ang mga masisigla ang katawan ay kay Jacob. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 43 
-
-
-
-
-
-
-
-
 
 
 Sa ganitong paraan, labis na yumaman si Jacob. Dumami ang hayop niya pati na ang mga kamelyo at asno. Dumami rin ang alipin niyang lalaki at babae.

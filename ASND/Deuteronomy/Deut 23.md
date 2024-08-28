@@ -9,266 +9,49 @@ next: ['Deut 24']
 ***
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 1 
-
-
-
-
-
-
-
-
 
 
 "Walang taong kinapon o pinutulan ng ari ang makakasama sa pagtitipon ng mga mamamayan ng Panginoon. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 2 
-
-
-
-
-
-
-
-
 
 
 "Ang anak sa labas ay hindi makakasama sa pagtitipon ng mga mamamayan ng Panginoon pati na ang kanyang angkan hanggang sa ikasampung salinlahi. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 3 
-
-
-
-
-
-
-
-
 
 
 Walang Amoreo o Moabita o sinuman sa kanilang lahi hanggang sa ikasampung salinlahi ang makakasama sa pagtitipon ng mga mamamayan ng Panginoon. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 4 
-
-
-
-
-
-
-
-
 
 
 Sapagkat hindi nila kayo binigyan ng pagkain o tubig nang naglalakbay kayo mula sa Egipto, at sinulsulan pa nila si Balaam na anak ni Beor na taga-Petor sa Mesopotamia para sumpain kayo. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 5 
-
-
-
-
-
-
-
-
 
 
 Ngunit hindi nakinig ang Panginoon na inyong Dios kay Balaam. Sa halip, ginawa niyang basbas ang sumpa sa inyo, dahil minamahal kayo ng Panginoon na inyong Dios. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 6 
-
-
-
-
-
-
-
-
 
 
 Habang buhay kayo, huwag kayong tutulong sa mga Amoreo o Moabita sa anumang paraan. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 7 
-
-
-
-
-
-
-
-
 
 
 "Huwag ninyong kamumuhian ang mga Edomita, dahil kadugo nʼyo sila. Huwag din ninyong kamumuhian ang mga Egipcio dahil tumira kayo dati sa kanilang lupain bilang mga dayuhan. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 8 
-
-
-
-
-
-
-
-
 
 
 Ang kanilang mga angkan sa ikatlong salinlahi ay maaaring makasama sa pagtitipon ng mga mamamayan ng Panginoon.
@@ -276,562 +59,103 @@ Ang kanilang mga angkan sa ikatlong salinlahi ay maaaring makasama sa pagtitipon
 ## Iba pang mga Tuntunin 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 9 
-
-
-
-
-
-
-
-
 
 
 "Kapag makikipaglaban kayo sa inyong mga kaaway, umiwas kayo sa anumang bagay na makakadungis sa inyo. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 10 
-
-
-
-
-
-
-
-
 
 
 Kung may isa sa inyo na nilabasan ng binhi sa kanyang pagtulog sa gabi, kailangang lumabas siya sa kampo at doon muna siya manatili. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 11 
-
-
-
-
-
-
-
-
 
 
 "Pagdating ng hapon, maliligo siya, at paglubog ng araw, maaari na siyang makabalik sa kampo. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 12 
-
-
-
-
-
-
-
-
 
 
 Pumili kayo ng lugar sa labas ng kampo na gagawin ninyong palikuran. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 13 
-
-
-
-
-
-
-
-
 
 
 Kailangang may panghukay ang bawat isa sa inyo, para huhukay kayo kapag nadudumi kayo, at tatabunan ito kapag tapos na kayo. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 14 
-
-
-
-
-
-
-
-
 
 
 Sapagkat ang Panginoon na inyong Dios ay naglilibot sa inyong kampo para iligtas kayo at ibigay sa inyo ang mga kaaway ninyo. Kaya kailangang malinis ang inyong kampo para wala siyang makitang hindi maganda sa inyo, at para hindi niya kayo pabayaan. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 15 
-
-
-
-
-
-
-
-
 
 
 "Kung tumakas ang isang alipin sa kanyang amo at tumakbo sa inyo, huwag ninyo siyang piliting bumalik sa kanyang amo. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 16 
-
-
-
-
-
-
-
-
 
 
 Patirahin ninyo siya sa inyong lugar, kahit saang bayan niya gusto. Huwag ninyo siyang aapihin. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 17 
-
-
-
-
-
-
-
-
 
 
 "Dapat walang Israelita, lalaki man o babae, na magbebenta ng kanyang katawan bilang pagsamba sa mga dios-diosan sa templo. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 18 
-
-
-
-
-
-
-
-
 
 
 Huwag ninyong dadalhin sa bahay ng Panginoon na inyong Dios ang pera na natanggap ninyo sa pamamaraang ito bilang bayad sa inyong pangako sa Panginoon na inyong Dios, dahil kasuklam-suklam ito sa kanya. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 19 
-
-
-
-
-
-
-
-
 
 
 "Kung magpapautang kayo sa kapwa ninyo Israelita, huwag ninyo itong tutubuan, pera man ito o pagkain o anumang bagay na maaaring patubuan. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 20 
-
-
-
-
-
-
-
-
 
 
 Maaari kayong magpautang nang may patubo sa mga dayuhan, pero hindi sa mga kapwa ninyo Israelita. Gawin ninyo ito para pagpalain kayo ng Panginoon na inyong Dios sa lahat ng ginagawa ninyo roon sa lupain na titirhan at aangkinin ninyo. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 21 
-
-
-
-
-
-
-
-
 
 
 "Kung gagawa kayo ng panata sa Panginoon na inyong Dios, huwag ninyong patatagalin ang pagtupad nito, dahil siguradong sisingilin kayo ng Panginoon na inyong Dios, at magkakasala kayo sa hindi pagtupad nito. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 22 
-
-
-
-
-
-
-
-
 
 
 Hindi ito kasalanan kung hindi kayo gumawa ng panata sa Panginoon. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 23 
-
-
-
-
-
-
-
-
 
 
 Pero anumang ipanata ninyo sa Panginoon na inyong Dios ay dapat ninyong tuparin. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 24 
-
-
-
-
-
-
-
-
 
 
 "Kung pupunta kayo sa ubasan ng inyong kapwa, maaari kayong kumain hanggang gusto ninyo, pero huwag kayong kukuha at maglalagay sa inyong lalagyan para dalhin. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 25 
-
-
-
-
-
-
-
-
 
 
 Kung mapapadaan kayo sa taniman ng trigo ng inyong kapwa, maaari kayong makaputol ng mga uhay, pero huwag ninyo itong gagamitan ng karit na panggapas.

@@ -9,431 +9,79 @@ next: ['Jer 44']
 ***
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 1 
-
-
-
-
-
-
-
-
 
 
 Nang masabi na ni Jeremias ang lahat ng ipinapasabi ng Panginoon na kanilang Dios ang tungkol sa kanila, 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 2 
-
-
-
-
-
-
-
-
 
 
 sinabi sa kanya nina Azaria na anak ni Hosaya, Johanan na anak ni Karea, at ng iba pang mayayabang na lalaki, "Sinungaling ka! Hindi ka isinugo ng Panginoon na aming Dios, para sabihin sa amin na hindi kami dapat pumunta sa Egipto upang manirahan doon. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 3 
-
-
-
-
-
-
-
-
 
 
 Si Baruc na anak ni Neria ang naghikayat sa iyo na ibigay kami sa mga taga-Babilonia para patayin nila kami o bihagin." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 4 
-
-
-
-
-
-
-
-
 
 
 Kaya si Johanan na anak ni Karea at ang mga kasama niyang opisyal ng mga sundalo at ang lahat ng mamamayan ay hindi sumunod sa utos ng Panginoon na manatili sila sa Juda. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 5 
-
-
-
-
-
-
-
-
 
 
 Sa halip, dinala ni Johanan at ng mga kasama niyang opisyal ng mga sundalo ang mga natirang taga-Juda na nagsibalikan sa Juda mula sa ibaʼt ibang bansa na pinangalatan nila. Kabilang dito ang mga lalaki, babae, bata, 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 6 
-
-
-
-
-
-
-
-
 
 
 at mga anak na babae ng hari na ipinagkatiwala ni Nebuzaradan na pinuno ng mga guwardya kay Gedalia na anak ni Ahikam at apo ni Shafan. Dinala rin nila sina Propeta Jeremias at Baruc na anak ni Neria. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 7 
-
-
-
-
-
-
-
-
 
 
 Hindi sila sumunod sa Panginoon, talagang pumunta sila sa Egipto, at nakarating sila sa lungsod ng Tapanhes. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 8 
-
-
-
-
-
-
-
-
 
 
 Doon sa Tapanhes, sinabi ng Panginoon kay Jeremias, 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 9 
-
-
-
-
-
-
-
-
 
 
 "Habang nakatingin ang mga taga-Juda, kumuha ka ng malalaking bato at ibaon mo sa lupa sa gitna ng daan papasok sa palasyo ng Faraon sa Tapanhes. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 10 
-
-
-
-
-
-
-
-
 
 
 Pagkatapos, sabihin mo sa kanila na ako, ang Panginoong Makapangyarihan, ang Dios ng Israel ay nagsasabi, 'Susuguin ko ang lingkod kong si Haring Nebucadnezar ng Babilonia at ilalagay ko ang kanyang trono at toldang panghari sa ibabaw ng mga batong ito na ibinaon ko sa lupa sa gitna ng daan. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 11 
-
-
-
-
-
-
-
-
 
 
 Sasalakayin niya ang Egipto at papatayin niya ang mga itinakdang patayin, at bibihagin niya ang mga itinakdang bihagin. Ang ibaʼy itinakdang mamatay sa digmaan. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 12 
-
-
-
-
-
-
-
-
 
 
 Susunugin niya ang mga templo ng mga dios-diosan sa Egipto. Ang ibang mga dios-diosan ay masusunog din, at ang iba ay dadalhin niyang bihag. Lilinisin niya ang lupain ng Egipto katulad ng paglilinis ng pastol ng kanyang damit para alisin ang mga pulgas. Pagkatapos, aalis si Nebucadnezar na ligtas sa anumang pinsala. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 13 
-
-
-
-
-
-
-
-
 
 
 Talagang wawasakin niya ang mga haligi ng dios-diosan sa Heliopolis sa Egipto, at susunugin niya ang mga templo ng mga dios-diosan doon.' "

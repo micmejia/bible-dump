@@ -9,233 +9,43 @@ next: ['Judg 13']
 ***
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 1 
-
-
-
-
-
-
-
-
 
 
 Nagtipon ang mga sundalo ng Efraim, at tumawid sila sa Ilog ng Jordan, at pumunta sa Zafon para harapin si Jefta. Nagtanong sila sa kanya, "Bakit hindi mo kami tinawag nang makipaglaban kayo sa mga Ammonita? Dahil sa ginawa mong ito, susunugin namin ang bahay mo na nandoon ka sa loob." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 2 
-
-
-
-
-
-
-
-
 
 
 Pero sinabi ni Jefta sa kanila, "Nang nakipaglaban kami sa mga Ammonita, humingi kami ng tulong sa inyo. Pero hindi nʼyo kami tinulungan. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 3 
-
-
-
-
-
-
-
-
 
 
 Nang malaman kong hindi kayo tutulong, itinaya ko ang buhay ko sa labanan. At pinagtagumpay ako ng Panginoon. Ngayon, bakit ba gusto nʼyong makipaglaban sa akin?" 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 4 
-
-
-
-
-
-
-
-
 
 
 Sumagot ang mga taga-Efraim, "Kayong mga taga-Gilead ay mga sampid lamang sa angkan ng Efraim at Manase." Kaya tinipon ni Jefta ang mga lalaki sa Gilead at nakipaglaban sila sa mga taga-Efraim at nalupig nila ang mga ito. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 5 
-
-
-
-
-
-
-
-
 
 
 Sinakop nila ang mga lugar sa Ilog ng Jordan na tinatawiran papunta sa Efraim, para walang taga-Efraim na makatakas. Ang kahit sinong tatawid ay tinatanong nila kung taga-Efraim ba sila o hindi. Kung sasagot sila ng, "Hindi," 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 6 
-
-
-
-
-
-
-
-
 
 
 pinagsasalita nila ito ng "Shibolet", dahil ang mga taga-Efraim ay hindi makabigkas nito. Kung ang pagkakasabi naman ay "Sibolet", papatayin sila sa may tawiran ng Ilog ng Jordan. May 42,000 taga-Efraim ang namatay nang panahong iyon. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 7 
-
-
-
-
-
-
-
-
 
 
 Pinamunuan ni Jefta ang Israel sa loob ng anim na taon. Nang mamatay siya, inilibing siya sa isang bayan sa Gilead.
@@ -243,265 +53,49 @@ Pinamunuan ni Jefta ang Israel sa loob ng anim na taon. Nang mamatay siya, inili
 ## Si Ibzan, si Elon, at si Abdon 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 8 
-
-
-
-
-
-
-
-
 
 
 Pagkamatay ni Jefta, si Ibzan na taga-Betlehem ang pumalit sa kanya bilang pinuno ng Israel. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 9 
-
-
-
-
-
-
-
-
 
 
 Si Ibzan ay may 60 anak: 30 lalaki at 30 babae. Pinapag-asawa niya ang mga anak niyang babae sa mga hindi kabilang sa kanilang angkan. Namuno siya sa Israel sa loob ng pitong taon. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 10 
-
-
-
-
-
-
-
-
 
 
 Nang mamatay siya, inilibing siya sa Betlehem. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 11 
-
-
-
-
-
-
-
-
 
 
 Ang pumalit sa kanya bilang pinuno ay si Elon na taga-Zebulun. Pinamunuan niya ang Israel sa loob ng sampung taon. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 12 
-
-
-
-
-
-
-
-
 
 
 Nang mamatay siya, inilibing siya sa Ayalon na sakop ng Zebulun. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 13 
-
-
-
-
-
-
-
-
 
 
 Ang pumalit sa kanya bilang pinuno ay si Abdon na anak ni Hilel na taga-Piraton. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 14 
-
-
-
-
-
-
-
-
 
 
 May 40 siyang anak na lalaki at 30 apo na lalaki, at ang bawat isa sa kanilaʼy may asnong sinasakyan. Siya ang namuno sa Israel sa loob ng walong taon. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 15 
-
-
-
-
-
-
-
-
 
 
 Pagkamatay niya, inilibing siya sa Piraton, sa kabundukan ng Efraim, na sakop ng mga Amalekita.

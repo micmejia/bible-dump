@@ -9,200 +9,37 @@ next: ['Lev 13']
 ***
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 1 
-
-
-
-
-
-
-
-
 
 
 Inutusan ng Panginoon si Moises na 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 2 
-
-
-
-
-
-
-
-
 
 
 sabihin ito sa mga taga-Israel: Kung ang isang babae ay nanganak ng lalaki, siyaʼy ituturing na marumi sa loob ng pitong araw, tulad nang panahong siya ay may buwanang dalaw. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 3 
-
-
-
-
-
-
-
-
 
 
 Sa ikawalong araw, tutuliin ang kanyang anak. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 4 
-
-
-
-
-
-
-
-
 
 
 Dahil sa siyaʼy dinudugo pa, maghihintay pa siya hanggang sa makalipas ang 33 araw bago siya ituring na malinis dahil sa dugo ng panganganak. Hindi siya maaaring humipo ng kahit anumang bagay at hindi siya maaaring pumunta sa Toldang Tipanan hanggang sa matapos ang kanyang paglilinis. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 5 
-
-
-
-
-
-
-
-
 
 
 Kung babae ang anak niya, ituturing siyang marumi sa loob ng 14 na araw, tulad nang panahong siya ay siyaʼy may buwanang dalaw. Maghihintay pa siya ng 66 na araw bago siya ituring na malinis mula sa dugo ng panganganak. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 6 
-
-
-
-
-
-
-
-
 
 
 Kapag tapos na ang mga araw ng kanyang paglilinis para sa anak na lalaki o babae, magdadala siya sa pari malapit sa may pintuan ng Toldang Tipanan ng isang tupang may isang taong gulang, bilang handog na sinusunog at isang inakay na kalapati o batu-bato bilang handog sa paglilinis.

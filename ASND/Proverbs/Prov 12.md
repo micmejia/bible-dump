@@ -9,926 +9,169 @@ next: ['Prov 13']
 ***
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 1 
-
-
-
-
-
-
-
-
 
 
 Ang taong tumatanggap ng pagtutuwid sa kanyang pag-uugali ay nagnanais ng karunungan, ngunit ang taong ayaw tumanggap ay hangal. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 2 
-
-
-
-
-
-
-
-
 
 
 Ang mabuting tao ay kinalulugdan ng Panginoon, ngunit ang taong nagpaplano ng masama ay kanyang pinarurusahan. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 3 
-
-
-
-
-
-
-
-
 
 
 Ang taong gumagawa ng masama ay walang katatagan, ngunit ang taong matuwid ay matatag tulad ng isang punongkahoy na malalim ang ugat. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 4 
-
-
-
-
-
-
-
-
 
 
 Ang mabuting maybahay ay kasiyahan at karangalan ng kanyang asawa, ngunit parang kanser sa buto ang nakakahiyang asawa. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 5 
-
-
-
-
-
-
-
-
 
 
 Ang iniisip ng taong matuwid ay tama, ngunit ang mga payo ng taong masama ay pandaraya. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 6 
-
-
-
-
-
-
-
-
 
 
 Ang salita ng taong masama ay nakamamatay, ngunit ang salita ng taong matuwid ay nakapagliligtas. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 7 
-
-
-
-
-
-
-
-
 
 
 Mapapahamak at maglalaho ang mga taong masama, ngunit mananatili ang lahi ng mga taong matuwid. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 8 
-
-
-
-
-
-
-
-
 
 
 Pinararangalan ang taong may karunungan, ngunit hinahamak ang taong masama ang kaisipan. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 9 
-
-
-
-
-
-
-
-
 
 
 Mas mabuti ang taong simple pero kayang magbayad ng katulong kaysa sa taong nagkukunwaring mayaman ngunit kahit makain ay wala naman. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 10 
-
-
-
-
-
-
-
-
 
 
 Ang taong matuwid ay mabait sa kanyang mga alagang hayop, ngunit ang taong masama ay malupit at walang awa sa kanyang mga hayop. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 11 
-
-
-
-
-
-
-
-
 
 
 Ang magsasakang masipag ay laging sagana sa pagkain, ngunit ang walang sapat na pang-unawa ay nagsasayang ng oras sa mga walang kabuluhang gawain. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 12 
-
-
-
-
-
-
-
-
 
 
 Ang taong masama ay laging kasamaan ang ginagawa, kaya hindi matatag ang kanyang kalagayan; ngunit ang taong matuwid ay matatag gaya ng punongkahoy na malalim ang ugat. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 13 
-
-
-
-
-
-
-
-
 
 
 Ang kasamaang sinasabi ng taong masama ay nagdudulot sa kanya ng gulo, ngunit ang taong matuwid ay umiiwas sa gulo. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 14 
-
-
-
-
-
-
-
-
 
 
 Ang bawat isa ay tatanggap ng gantimpala ayon sa kanyang sinabi o ginawa. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 15 
-
-
-
-
-
-
-
-
 
 
 Ang akala ng hangal ay palagi siyang tama, ngunit ang taong marunong ay nakikinig sa payo. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 16 
-
-
-
-
-
-
-
-
 
 
 Ang hangal ay madaling magalit kapag iniinsulto, ngunit ang taong may karunungan ay hindi pinapansin ang pang-iinsulto sa kanya. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 17 
-
-
-
-
-
-
-
-
 
 
 Ang tapat na saksi ay nagsasabi ng katotohanan, ngunit ang hindi tapat na saksi ay nagsasabi ng kasinungalingan. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 18 
-
-
-
-
-
-
-
-
 
 
 Ang pabigla-biglang salita ay nakakasugat ng damdamin, ngunit ang magandang salita ay nagpapagaling. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 19 
-
-
-
-
-
-
-
-
 
 
 Ang katotohanan ay mananatili kailanman, ngunit hindi magtatagal ang kasinungalingan. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 20 
-
-
-
-
-
-
-
-
 
 
 Pandaraya ang nasa puso ng mga taong nagbabalak ng masama, ngunit kagalakan ang nasa puso ng mga taong nagbabalak ng mabuti. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 21 
-
-
-
-
-
-
-
-
 
 
 Walang mangyayaring masama sa taong matuwid, ngunit sa masama, pawang kaguluhan ang mararanasan. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 22 
-
-
-
-
-
-
-
-
 
 
 Nasusuklam ang Panginoon sa mga nagsasabi ng kasinungalingan, ngunit nalulugod siya sa nagsasabi ng katotohanan. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 23 
-
-
-
-
-
-
-
-
 
 
 Hindi ipinagyayabang ng taong marunong ang kanyang nalalaman, ngunit ang hangal ay ibinibida ang kanyang kahangalan. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 24 
-
-
-
-
-
-
-
-
 
 
 Ang taong masipag ay magiging pinuno, ngunit ang tamad ay magiging alipin. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 25 
-
-
-
-
-
-
-
-
 
 
 Nakapagpapalungkot sa tao ang kabalisahan, ngunit ang magandang pananalita ay kaaliwan. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 26 
-
-
-
-
-
-
-
-
 
 
 Ginagabayan ng taong matuwid ang kanyang kaibigan, ngunit ililigaw ka ng taong masama. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 27 
-
-
-
-
-
-
-
-
 
 
 Hindi makakamit ng taong tamad ang kanyang hinahangad, ngunit ang taong masipag maganda ang hinaharap. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 28 
-
-
-
-
-
-
-
-
 
 
 Ang matuwid na pamumuhay ay patungo sa buhay, at maililigtas ka nito sa kamatayan.

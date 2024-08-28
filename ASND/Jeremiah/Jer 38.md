@@ -9,200 +9,37 @@ next: ['Jer 39']
 ***
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 1 
-
-
-
-
-
-
-
-
 
 
 Nabalitaan nina Shefatia na anak ni Matan, Gedalia na anak ni Pashur, Jehucal na anak ni Shelemia, at Pashur na anak ni Malkia ang sinabi ni Jeremias sa mga tao. Ito ang sinabi niya, "Sinasabi ng Panginoon na 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 2 
-
-
-
-
-
-
-
-
 
 
 ang sinumang manatili rito sa lungsod ay mamamatay sa digmaan, gutom at sakit. Pero ang sinumang susuko sa mga taga-Babilonia ay hindi mamamatay. Makakaligtas siya at mabubuhay. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 3 
-
-
-
-
-
-
-
-
 
 
 Sinasabi rin ng Panginoon na tiyak na maaagaw at sasakupin ng mga taga-Babilonia ang lungsod na ito." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 4 
-
-
-
-
-
-
-
-
 
 
 Kaya sinabi ng mga pinunong iyon sa hari, "Kinakailangang patayin ang taong ito dahil pinahihina niya ang loob ng mga sundalong natitira, pati ang mga mamamayan dahil sa mga sinasabi niya sa kanila. Hindi siya naghahangad ng kabutihan para sa mga tao kundi ang kapahamakan nila." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 5 
-
-
-
-
-
-
-
-
 
 
 Sumagot si Haring Zedekia, "Ibibigay ko siya sa inyo. Gawin nʼyo sa kanya ang ibig ninyo." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 6 
-
-
-
-
-
-
-
-
 
 
 Kaya kinuha nila si Jeremias sa kulungan at ibinaba nila sa balon na nasa himpilan ng mga guwardya. Ang balon na ito ay pag-aari ni Malkia na anak ng hari. Walang tubig ang balon pero may putik, at halos lumubog doon si Jeremias.
@@ -210,166 +47,31 @@ Kaya kinuha nila si Jeremias sa kulungan at ibinaba nila sa balon na nasa himpil
 ###### 7-8 Ngunit nang nabalitaan ito ni Ebed Melec na taga-Etiopia na isa ring pinuno sa palasyo, pinuntahan niya ang hari sa palasyo. Nakaupo noon ang hari sa Pintuan ni Benjamin. Sinabi niya sa hari, 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 9 
-
-
-
-
-
-
-
-
 
 
 "Mahal na Hari, masama po ang ginawa ng mga taong iyon kay Jeremias. Inihulog nila siya sa balon, at tiyak na mamamatay siya doon sa gutom, dahil halos mauubos na po ang tinapay sa buong lungsod." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 10 
-
-
-
-
-
-
-
-
 
 
 Kaya sinabi ni Haring Zedekia sa kanya, "Magsama ka ng 30 lalaki mula sa mga tao ko at kunin nʼyo si Jeremias sa balon bago pa siya mamatay." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 11 
-
-
-
-
-
-
-
-
 
 
 Kaya isinama ni Ebed Melec ang mga tao at pumunta sila sa bodega ng palasyo, at kumuha ng mga basahan, lumang damit, at lubid at ibinaba nila kay Jeremias ang mga ito roon sa balon. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 12 
-
-
-
-
-
-
-
-
 
 
 Sinabi ni Ebed Melec kay Jeremias, "Isapin mo ang mga basahan at lumang damit sa kilikili mo para hindi ka masaktan ng lubid." At ito nga ang ginawa ni Jeremias. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 13 
-
-
-
-
-
-
-
-
 
 
 Pagkatapos, iniahon nila siya mula sa loob ng balon at ibinalik sa himpilan ng mga guwardya ng palasyo.
@@ -377,496 +79,91 @@ Pagkatapos, iniahon nila siya mula sa loob ng balon at ibinalik sa himpilan ng m
 ## Muling Ipinatawag ni Haring Zedekia si Jeremias 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 14 
-
-
-
-
-
-
-
-
 
 
 Muling ipinatawag ni Haring Zedekia si Jeremias doon sa pangatlong pintuan ng templo ng Panginoon. Sinabi ni Zedekia kay Jeremias, "May itatanong ako sa iyo, at nais kong sabihin mo sa akin ang totoo." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 15 
-
-
-
-
-
-
-
-
 
 
 Sinabi ni Jeremias kay Zedekia, "Kapag sinabi ko po sa inyo ang katotohanan, ipapapatay nʼyo pa rin ako. At kahit na payuhan ko po kayo, hindi rin po kayo maniniwala sa akin." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 16 
-
-
-
-
-
-
-
-
 
 
 Pero lihim na sumumpa si Haring Zedekia kay Jeremias. Sinabi niya, "Sumusumpa ako sa buhay na Panginoon, na siya ring nagbigay ng buhay sa atin, na hindi kita papatayin o ibibigay sa mga nais pumatay sa iyo." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 17 
-
-
-
-
-
-
-
-
 
 
 Sinabi ni Jeremias kay Zedekia, "Ito ang sinabi ng Panginoong Dios na Makapangyarihan, ang Dios ng Israel, 'Kung susuko po kayo sa mga pinuno ng hari ng Babilonia, maliligtas po ang buhay nʼyo at hindi po nila susunugin ang lungsod na ito. Kayo po at ang sambahayan nʼyo ay mabubuhay. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 18 
-
-
-
-
-
-
-
-
 
 
 Pero kung hindi po kayo susuko, ibibigay ang lungsod na ito sa mga taga-Babilonia, at ito po ay kanilang susunugin at hindi po kayo makakatakas sa kanila.' " 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 19 
-
-
-
-
-
-
-
-
 
 
 Sinabi ni Haring Zedekia, "Natatakot ako sa mga Judiong kumakampi sa mga taga-Babilonia, baka ibigay ako ng mga taga-Babilonia sa kanila at saktan nila ako." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 20 
-
-
-
-
-
-
-
-
 
 
 Sinabi ni Jeremias, "Hindi po kayo ibibigay sa kanila kung susundin nʼyo lang ang Panginoon. Maliligtas po ang buhay nʼyo at walang anumang mangyayari sa inyo. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 21 
-
-
-
-
-
-
-
-
 
 
 Pero kung hindi po kayo susuko, ito naman ang sinabi sa akin ng Panginoon na mangyayari sa inyo: 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 22 
-
-
-
-
-
-
-
-
 
 
 Ang lahat ng babaeng naiwan sa palasyo nʼyo ay dadalhin ng mga pinuno ng hari sa Babilonia. At sasabihin sa inyo ng mga babaeng ito, 'Niloko po kayo ng mga matalik nʼyong kaibigan. At ngayon na nakalubog po sa putik ang mga paa nʼyo, iniwan nila kayo.' 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 23 
-
-
-
-
-
-
-
-
 
 
 "Dadalhin po nila ang lahat ng asawaʼt anak nʼyo sa Babilonia. Kayo po ay hindi rin makakatakas sa kanila. At ang lungsod na itoʼy susunugin nila." 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 24 
-
-
-
-
-
-
-
-
 
 
 Pagkatapos, sinabi ni Zedekia kay Jeremias, "Huwag mong sasabihin kaninuman ang napag-usapan natin para hindi ka mamatay. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 25 
-
-
-
-
-
-
-
-
 
 
 Maaaring mabalitaan ng mga pinuno na nag-usap tayo. Baka puntahan ka nila at itanong sa iyo, 'Ano ang pinag-usapan ninyo ng hari? Kung hindi mo sasabihin ay papatayin ka namin.' 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 26 
-
-
-
-
-
-
-
-
 
 
 Kapag nangyari ito, sabihin mo sa kanila, 'Nakiusap ako sa hari na huwag niya akong ibalik doon sa bahay ni Jonatan, baka mamatay ako roon.' " 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 27 
-
-
-
-
-
-
-
-
 
 
 Pumunta nga ang mga pinuno kay Jeremias at tinanong siya. At sinagot niya sila ayon sa sinabi ng hari sa kanya, kaya hindi na sila nag-usisa pa. Walang nakarinig ng usapan ni Jeremias at ng hari. 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ###### 28 
-
-
-
-
-
-
-
-
 
 
 At nanatiling nakakulong si Jeremias doon sa himpilan ng mga guwardya ng palasyo hanggang sa masakop ang Jerusalem.

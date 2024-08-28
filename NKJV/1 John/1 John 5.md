@@ -45,7 +45,9 @@ And this is the testimony: that God has given us eternal life, and this life is 
 He who has the Son has life; he who does not have the Son of God does not have life. 
 
 ###### 13 
-These things I have written to you who believe in the name of the Son of God, that you may know that you have eternal life, and that you may _continue to_ believe in the name of the Son of God. ## Confidence and Compassion in Prayer 
+These things I have written to you who believe in the name of the Son of God, that you may know that you have eternal life, and that you may _continue to_ believe in the name of the Son of God.
+
+## Confidence and Compassion in Prayer 
 
 ###### 14 
 Now this is the confidence that we have in Him, that if we ask anything according to His will, He hears us. 
@@ -57,7 +59,9 @@ And if we know that He hears us, whatever we ask, we know that we have the petit
 If anyone sees his brother sinning a sin _which does_ not _lead_ to death, he will ask, and He will give him life for those who commit sin not _leading_ to death. There is sin _leading_ to death. I do not say that he should pray about that. 
 
 ###### 17 
-All unrighteousness is sin, and there is sin not _leading_ to death. ## Knowing the True--Rejecting the False 
+All unrighteousness is sin, and there is sin not _leading_ to death.
+
+## Knowing the True--Rejecting the False 
 
 ###### 18 
 We know that whoever is born of God does not sin; but he who has been born of God keeps himself, and the wicked one does not touch him. 

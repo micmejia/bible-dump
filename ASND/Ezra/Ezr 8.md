@@ -667,7 +667,9 @@ Ipinadala rin nila si Hashabia at ang mga kapatid at mga pamangkin nitong lalaki
 
 
 
-Ipinadala pa nila ang 220 utusan sa templo. Ang mga utusan sa templo ay pinili noon ni Haring David at ng mga opisyal niya para tumulong sa mga Levita. Nakalista lahat ang mga pangalan nila. ## Nag-ayuno at Nanalangin Sina Ezra 
+Ipinadala pa nila ang 220 utusan sa templo. Ang mga utusan sa templo ay pinili noon ni Haring David at ng mga opisyal niya para tumulong sa mga Levita. Nakalista lahat ang mga pangalan nila.
+
+## Nag-ayuno at Nanalangin Sina Ezra 
 
 
 
@@ -766,7 +768,9 @@ Sapagkat nahihiya akong humingi sa hari ng mga sundalo at mangangabayo na magbab
 
 
 
-Kaya nag-ayuno at nanalangin kami sa aming Dios na ingatan niya kami, at tinugon niya ang dalangin namin. ## Ang mga Handog para sa Templo 
+Kaya nag-ayuno at nanalangin kami sa aming Dios na ingatan niya kami, at tinugon niya ang dalangin namin.
+
+## Ang mga Handog para sa Templo 
 
 
 
@@ -931,7 +935,9 @@ Ingatan nʼyo itong mabuti hanggang sa madala nʼyo ito sa mga bodega templo ng 
 
 
 
-Kaya kinuha ng mga pari at ng mga Levita ang mga pilak, ginto, at ang mga kagamitan, na walang kulang, para dalhin sa templo ng aming Dios sa Jerusalem. ## Ang Pagbalik sa Jerusalem 
+Kaya kinuha ng mga pari at ng mga Levita ang mga pilak, ginto, at ang mga kagamitan, na walang kulang, para dalhin sa templo ng aming Dios sa Jerusalem.
+
+## Ang Pagbalik sa Jerusalem 
 
 
 

@@ -16,7 +16,9 @@ Now it came to pass, afterward, that He went through every city and village, pre
 and certain women who had been healed of evil spirits and infirmities--Mary called Magdalene, out of whom had come seven demons, 
 
 ###### 3 
-and Joanna the wife of Chuza, Herod's steward, and Susanna, and many others who provided for Him from their substance. ## The Parable of the Sower 
+and Joanna the wife of Chuza, Herod's steward, and Susanna, and many others who provided for Him from their substance.
+
+## The Parable of the Sower 
 
 ###### 4 
 And when a great multitude had gathered, and they had come to Him from every city, He spoke by a parable: 
@@ -52,7 +54,9 @@ But the ones on the rock _are those_ who, when they hear, receive the word with 
 Now the ones _that_ fell among thorns are those who, when they have heard, go out and are choked with cares, riches, and pleasures of life, and bring no fruit to maturity. 
 
 ###### 15 
-But the ones _that_ fell on the good ground are those who, having heard the word with a noble and good heart, keep _it_ and bear fruit with patience. ## The Parable of the Revealed Light 
+But the ones _that_ fell on the good ground are those who, having heard the word with a noble and good heart, keep _it_ and bear fruit with patience.
+
+## The Parable of the Revealed Light 
 
 ###### 16 
 "No one, when he has lit a lamp, covers it with a vessel or puts _it_ under a bed, but sets _it_ on a lampstand, that those who enter may see the light. 
@@ -124,7 +128,9 @@ Then the whole multitude of the surrounding region of the Gadarenes asked Him to
 Now the man from whom the demons had departed begged Him that he might be with Him. But Jesus sent him away, saying, 
 
 ###### 39 
-"Return to your own house, and tell what great things God has done for you." And he went his way and proclaimed throughout the whole city what great things Jesus had done for him. ## A Girl Restored to Life and a Woman Healed 
+"Return to your own house, and tell what great things God has done for you." And he went his way and proclaimed throughout the whole city what great things Jesus had done for him.
+
+## A Girl Restored to Life and a Woman Healed 
 
 ###### 40 
 So it was, when Jesus returned, that the multitude welcomed Him, for they were all waiting for Him. 

@@ -43,7 +43,9 @@ So David rested with his fathers, and was buried in the City of David.
 The period that David reigned over Israel _was_ forty years; seven years he reigned in Hebron, and in Jerusalem he reigned thirty-three years. 
 
 ###### 12 
-Then Solomon sat on the throne of his father David; and his kingdom was firmly established. ## Solomon Executes Adonijah 
+Then Solomon sat on the throne of his father David; and his kingdom was firmly established.
+
+## Solomon Executes Adonijah 
 
 ###### 13 
 Now Adonijah the son of Haggith came to Bathsheba the mother of Solomon. So she said, "Do you come peaceably?" And he said, "Peaceably." 
@@ -82,7 +84,9 @@ Then King Solomon swore by the Lord, saying, "May God do so to me, and more also
 Now therefore, _as_ the Lord lives, who has confirmed me and set me on the throne of David my father, and who has established a house for me, as He promised, Adonijah shall be put to death today!" 
 
 ###### 25 
-So King Solomon sent by the hand of Benaiah the son of Jehoiada; and he struck him down, and he died. ## Abiathar Exiled, Joab Executed 
+So King Solomon sent by the hand of Benaiah the son of Jehoiada; and he struck him down, and he died.
+
+## Abiathar Exiled, Joab Executed 
 
 ###### 26 
 And to Abiathar the priest the king said, "Go to Anathoth, to your own fields, for you _are_ deserving of death; but I will not put you to death at this time, because you carried the ark of the Lord God before my father David, and because you were afflicted every time my father was afflicted." 
@@ -112,7 +116,9 @@ Their blood shall therefore return upon the head of Joab and upon the head of hi
 So Benaiah the son of Jehoiada went up and struck and killed him; and he was buried in his own house in the wilderness. 
 
 ###### 35 
-The king put Benaiah the son of Jehoiada in his place over the army, and the king put Zadok the priest in the place of Abiathar. ## Shimei Executed 
+The king put Benaiah the son of Jehoiada in his place over the army, and the king put Zadok the priest in the place of Abiathar.
+
+## Shimei Executed 
 
 ###### 36 
 Then the king sent and called for Shimei, and said to him, "Build yourself a house in Jerusalem and dwell there, and do not go out from there anywhere. 

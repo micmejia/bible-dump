@@ -145,7 +145,9 @@ he is a leprous man. He _is_ unclean. The priest shall surely pronounce him uncl
 "Now the leper on whom the sore _is_, his clothes shall be torn and his head bare; and he shall cover his mustache, and cry, 'Unclean! Unclean!' 
 
 ###### 46 
-He shall be unclean. All the days he has the sore he shall be unclean. He _is_ unclean, and he shall dwell alone; his dwelling _shall be_ outside the camp. ## The Law Concerning Leprous Garments 
+He shall be unclean. All the days he has the sore he shall be unclean. He _is_ unclean, and he shall dwell alone; his dwelling _shall be_ outside the camp.
+
+## The Law Concerning Leprous Garments 
 
 ###### 47 
 "Also, if a garment has a leprous plague in it, _whether it is_ a woolen garment or a linen garment, 

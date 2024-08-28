@@ -336,7 +336,9 @@ Dahil sa pangyayaring iyon, ang lahat ng may sakit sa isla ay pumunta sa amin at
 
 
 
-Marami silang ibinigay sa amin na regalo. At nang paalis na kami, binigyan pa nila kami ng mga kakailanganin namin sa paglalakbay. ## Mula Malta Papuntang Roma 
+Marami silang ibinigay sa amin na regalo. At nang paalis na kami, binigyan pa nila kami ng mga kakailanganin namin sa paglalakbay.
+
+## Mula Malta Papuntang Roma 
 
 
 
@@ -501,7 +503,9 @@ Doon may nakita kaming mga kapatid <i class="trans-change">sa Panginoon_. Hinili
 
 
 
-Nang marinig ng mga kapatid sa Roma na dumating kami, sinalubong nila kami sa Pamilihan ng Apius at sa Tres Tabernas. Nang makita ni Pablo ang mga kapatid, nagpasalamat siya sa Dios at lumakas ang kanyang loob. ## Sa Roma 
+Nang marinig ng mga kapatid sa Roma na dumating kami, sinalubong nila kami sa Pamilihan ng Apius at sa Tres Tabernas. Nang makita ni Pablo ang mga kapatid, nagpasalamat siya sa Dios at lumakas ang kanyang loob.
+
+## Sa Roma 
 
 
 

@@ -22,7 +22,9 @@ Now Joshua was clothed with filthy garments, and was standing before the Angel.
 Then He answered and spoke to those who stood before Him, saying, "Take away the filthy garments from him." And to him He said, "See, I have removed your iniquity from you, and I will clothe you with rich robes." 
 
 ###### 5 
-And I said, "Let them put a clean turban on his head." So they put a clean turban on his head, and they put the clothes on him. And the Angel of the Lord stood by. ## The Coming Branch 
+And I said, "Let them put a clean turban on his head." So they put a clean turban on his head, and they put the clothes on him. And the Angel of the Lord stood by.
+
+## The Coming Branch 
 
 ###### 6 
 Then the Angel of the Lord admonished Joshua, saying, 

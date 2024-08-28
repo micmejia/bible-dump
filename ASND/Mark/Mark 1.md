@@ -303,7 +303,9 @@ At noon din ay pinapunta siya ng <i class="trans-change">Banal na_ Espiritu sa i
 
 
 
-Nanatili siya roon ng 40 araw na tinutukso ni Satanas. May mababangis na hayop doon, pero tinulungan si Jesus ng mga anghel. ## Tinawag ni Jesus ang Apat na Mangingisda 
+Nanatili siya roon ng 40 araw na tinutukso ni Satanas. May mababangis na hayop doon, pero tinulungan si Jesus ng mga anghel.
+
+## Tinawag ni Jesus ang Apat na Mangingisda 
 
 
 
@@ -534,7 +536,9 @@ Nagpatuloy si Jesus sa paglalakad, at sa di-kalayuan ay nakita naman niya ang da
 
 
 
-Agad silang tinawag ni Jesus. Iniwan nila sa bangka ang ama nilang si Zebedee at ang mga tauhan nila, at sumunod kay Jesus. ## Ang Taong Sinaniban ng Masamang Espiritu 
+Agad silang tinawag ni Jesus. Iniwan nila sa bangka ang ama nilang si Zebedee at ang mga tauhan nila, at sumunod kay Jesus.
+
+## Ang Taong Sinaniban ng Masamang Espiritu 
 
 
 
@@ -798,7 +802,9 @@ Namangha ang lahat ng naroon, at sinabi nila sa isaʼt isa, "Ano ito? Isang bago
 
 
 
-At mabilis na kumalat ang balita tungkol kay Jesus sa buong Galilea. ## Maraming Pinagaling si Jesus 
+At mabilis na kumalat ang balita tungkol kay Jesus sa buong Galilea.
+
+## Maraming Pinagaling si Jesus 
 
 
 
@@ -996,7 +1002,9 @@ At ang lahat ng tao sa bayang iyon ay nagkatipon-tipon sa harapan ng pinto ng ba
 
 
 
-Maraming may sakit ang pinagaling ni Jesus, anuman ang kanilang karamdaman, at pinalayas din niya ang maraming masamang espiritu. Hindi niya pinayagang magsalita ang masasamang espiritu, dahil alam nila kung sino siya. ## Nangaral si Jesus sa Galilea 
+Maraming may sakit ang pinagaling ni Jesus, anuman ang kanilang karamdaman, at pinalayas din niya ang maraming masamang espiritu. Hindi niya pinayagang magsalita ang masasamang espiritu, dahil alam nila kung sino siya.
+
+## Nangaral si Jesus sa Galilea 
 
 
 
@@ -1161,7 +1169,9 @@ Pero sinabi ni Jesus sa kanila, "Pumunta naman tayo sa mga kalapit-bayan, para m
 
 
 
-Kaya nilibot ni Jesus ang buong Galilea at nangaral siya sa mga sambahan ng mga Judio at nagpalayas ng masasamang espiritu <i class="trans-change">sa mga taong sinaniban ng mga ito_. ## Pinagaling ni Jesus ang Isang Lalaking May Malubhang Sakit sa Balat 
+Kaya nilibot ni Jesus ang buong Galilea at nangaral siya sa mga sambahan ng mga Judio at nagpalayas ng masasamang espiritu <i class="trans-change">sa mga taong sinaniban ng mga ito_.
+
+## Pinagaling ni Jesus ang Isang Lalaking May Malubhang Sakit sa Balat 
 
 
 

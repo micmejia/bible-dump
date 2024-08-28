@@ -37,7 +37,9 @@ And many nations will pass by this city; and everyone will say to his neighbor, 
 Then they will answer, 'Because they have forsaken the covenant of the Lord their God, and worshiped other gods and served them.' " 
 
 ###### 10 
-Weep not for the dead, nor bemoan him; Weep bitterly for him who goes away, For he shall return no more, Nor see his native country. ## Message to the Sons of Josiah 
+Weep not for the dead, nor bemoan him; Weep bitterly for him who goes away, For he shall return no more, Nor see his native country.
+
+## Message to the Sons of Josiah 
 
 ###### 11 
 For thus says the Lord concerning Shallum the son of Josiah, king of Judah, who reigned instead of Josiah his father, who went from this place: "He shall not return here anymore, 

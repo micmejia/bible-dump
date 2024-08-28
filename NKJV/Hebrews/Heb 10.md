@@ -19,7 +19,9 @@ For then would they not have ceased to be offered? For the worshipers, once puri
 But in those _sacrifices there is_ a reminder of sins every year. 
 
 ###### 4 
-For _it is_ not possible that the blood of bulls and goats could take away sins. ## Christ's Death Fulfills God's Will 
+For _it is_ not possible that the blood of bulls and goats could take away sins.
+
+## Christ's Death Fulfills God's Will 
 
 ###### 5 
 Therefore, when He came into the world, He said: "Sacrifice and offering You did not desire, But a body You have prepared for Me. 
@@ -37,7 +39,9 @@ Previously saying, "Sacrifice and offering, burnt offerings, and _offerings_ for
 then He said, "Behold, I have come to do Your will, O God." He takes away the first that He may establish the second. 
 
 ###### 10 
-By that will we have been sanctified through the offering of the body of Jesus Christ once _for all._ ## Christ's Death Perfects the Sanctified 
+By that will we have been sanctified through the offering of the body of Jesus Christ once _for all._
+
+## Christ's Death Perfects the Sanctified 
 
 ###### 11 
 And every priest stands ministering daily and offering repeatedly the same sacrifices, which can never take away sins. 
@@ -61,7 +65,9 @@ But the Holy Spirit also witnesses to us; for after He had said before,
 _then He adds,_ "Their sins and their lawless deeds I will remember no more." 
 
 ###### 18 
-Now where there is remission of these, _there is_ no longer an offering for sin. ## Hold Fast Your Confession 
+Now where there is remission of these, _there is_ no longer an offering for sin.
+
+## Hold Fast Your Confession 
 
 ###### 19 
 Therefore, brethren, having boldness to enter the Holiest by the blood of Jesus, 
@@ -82,7 +88,9 @@ Let us hold fast the confession of _our_ hope without wavering, for He who promi
 And let us consider one another in order to stir up love and good works, 
 
 ###### 25 
-not forsaking the assembling of ourselves together, as _is_ the manner of some, but exhorting _one another,_ and so much the more as you see the Day approaching. ## The Just Live by Faith 
+not forsaking the assembling of ourselves together, as _is_ the manner of some, but exhorting _one another,_ and so much the more as you see the Day approaching.
+
+## The Just Live by Faith 
 
 ###### 26 
 For if we sin willfully after we have received the knowledge of the truth, there no longer remains a sacrifice for sins, 

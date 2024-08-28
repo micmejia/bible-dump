@@ -700,7 +700,9 @@ Pinangalanan ni Adan ang asawa niya na "Eva" dahil siya ang magiging ina ng laha
 
 
 
-Pagkatapos, gumawa ang Panginoong Dios ng damit mula sa balat ng hayop para kay Adan at sa asawa nito. ## Pinaalis ng Dios sina Adan at Eva sa Halamanan ng Eden 
+Pagkatapos, gumawa ang Panginoong Dios ng damit mula sa balat ng hayop para kay Adan at sa asawa nito.
+
+## Pinaalis ng Dios sina Adan at Eva sa Halamanan ng Eden 
 
 
 

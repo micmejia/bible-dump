@@ -700,7 +700,9 @@ At pinaalalahanan niya ang mga ito na huwag kalimutang sabihin kay Esau na nakas
 
 
 
-Kaya pinauna niya ang mga regalo niya, pero nagpaiwan siya noong gabing iyon doon sa tinutuluyan nila. ## May Nakipagbuno kay Jacob sa Peniel 
+Kaya pinauna niya ang mga regalo niya, pero nagpaiwan siya noong gabing iyon doon sa tinutuluyan nila.
+
+## May Nakipagbuno kay Jacob sa Peniel 
 
 
 

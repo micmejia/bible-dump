@@ -94,7 +94,9 @@ TEKEL: You have been weighed in the balances, and found wanting;
 PERES: Your kingdom has been divided, and given to the Medes and Persians." 
 
 ###### 29 
-Then Belshazzar gave the command, and they clothed Daniel with purple and _put_ a chain of gold around his neck, and made a proclamation concerning him that he should be the third ruler in the kingdom. ## Belshazzar's Fall 
+Then Belshazzar gave the command, and they clothed Daniel with purple and _put_ a chain of gold around his neck, and made a proclamation concerning him that he should be the third ruler in the kingdom.
+
+## Belshazzar's Fall 
 
 ###### 30 
 That very night Belshazzar, king of the Chaldeans, was slain. 

@@ -436,7 +436,9 @@ Ang lupain na ibinigay ko kay Abraham at kay Isaac ay ibibigay ko rin sa iyo at 
 
 
 
-Pinangalanan niya ang lugar na iyon na Betel. ## Ang Pagkamatay ni Raquel 
+Pinangalanan niya ang lugar na iyon na Betel.
+
+## Ang Pagkamatay ni Raquel 
 
 
 
@@ -667,7 +669,9 @@ Nagpatuloy sina Jacob sa kanilang paglalakbay. Pagdating nila sa kabilang <i cla
 
 
 
-Habang nakatira roon sila Jacob, sumiping si Reuben kay Bilha na isa sa mga asawa ng kanyang ama. Nang malaman iyon ni Jacob, galit na galit siya. ## Ang mga Anak na Lalaki ni Jacob May 12 Anak na lalaki si Jacob. 
+Habang nakatira roon sila Jacob, sumiping si Reuben kay Bilha na isa sa mga asawa ng kanyang ama. Nang malaman iyon ni Jacob, galit na galit siya.
+
+## Ang mga Anak na Lalaki ni Jacob May 12 Anak na lalaki si Jacob. 
 
 
 
@@ -799,7 +803,9 @@ Ang mga anak niya kay Bilha na alipin ni Raquel ay sina Dan at Naftali.
 
 
 
-Ang mga anak niya kay Zilpa na alipin ni Lea ay sina Gad at Asher. Silang lahat ang anak na lalaki ni Jacob na isinilang sa Padan Aram. ## Ang Pagkamatay ni Isaac 
+Ang mga anak niya kay Zilpa na alipin ni Lea ay sina Gad at Asher. Silang lahat ang anak na lalaki ni Jacob na isinilang sa Padan Aram.
+
+## Ang Pagkamatay ni Isaac 
 
 
 

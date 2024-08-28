@@ -9,7 +9,9 @@ up: ['Colossians']
 
 
 ###### 1 
-Masters, give your bondservants what is just and fair, knowing that you also have a Master in heaven. ## Christian Graces 
+Masters, give your bondservants what is just and fair, knowing that you also have a Master in heaven.
+
+## Christian Graces 
 
 ###### 2 
 Continue earnestly in prayer, being vigilant in it with thanksgiving; 
@@ -24,7 +26,9 @@ that I may make it manifest, as I ought to speak.
 Walk in wisdom toward those _who are_ outside, redeeming the time. 
 
 ###### 6 
-_Let_ your speech always _be_ with grace, seasoned with salt, that you may know how you ought to answer each one. ## Final Greetings 
+_Let_ your speech always _be_ with grace, seasoned with salt, that you may know how you ought to answer each one.
+
+## Final Greetings 
 
 ###### 7 
 Tychicus, a beloved brother, faithful minister, and fellow servant in the Lord, will tell you all the news about me. 
@@ -51,7 +55,9 @@ For I bear him witness that he has a great zeal for you, and those who are in La
 Luke the beloved physician and Demas greet you. 
 
 ###### 15 
-Greet the brethren who are in Laodicea, and Nymphas and the church that _is_ in his house. ## Closing Exhortations and Blessing 
+Greet the brethren who are in Laodicea, and Nymphas and the church that _is_ in his house.
+
+## Closing Exhortations and Blessing 
 
 ###### 16 
 Now when this epistle is read among you, see that it is read also in the church of the Laodiceans, and that you likewise read the _epistle_ from Laodicea. 

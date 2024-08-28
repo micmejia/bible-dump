@@ -73,7 +73,9 @@ And remember that you were a slave in the land of Egypt, and the Lord your God b
 'You shall not covet your neighbor's wife; and you shall not desire your neighbor's house, his field, his male servant, his female servant, his ox, his donkey, or anything that _is_ your neighbor's.' 
 
 ###### 22 
-"These words the Lord spoke to all your assembly, in the mountain from the midst of the fire, the cloud, and the thick darkness, with a loud voice; and He added no more. And He wrote them on two tablets of stone and gave them to me. ## The People Afraid of God's Presence 
+"These words the Lord spoke to all your assembly, in the mountain from the midst of the fire, the cloud, and the thick darkness, with a loud voice; and He added no more. And He wrote them on two tablets of stone and gave them to me.
+
+## The People Afraid of God's Presence 
 
 ###### 23 
 "So it was, when you heard the voice from the midst of the darkness, while the mountain was burning with fire, that you came near to me, all the heads of your tribes and your elders. 

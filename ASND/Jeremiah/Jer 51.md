@@ -634,7 +634,9 @@ wala silang kabuluhan at dapat kamuhian. Darating ang araw na wawasakin ang laha
 
 
 
-Pero ang Dios ni Jacob ay hindi katulad ng mga iyon. Siya ang lumikha ng lahat ng bagay pati na ang Israel, ang mga taong hinirang niya – Panginoong Makapangyarihan ang pangalan niya. ## Ang Martilyo ng Panginoon 
+Pero ang Dios ni Jacob ay hindi katulad ng mga iyon. Siya ang lumikha ng lahat ng bagay pati na ang Israel, ang mga taong hinirang niya – Panginoong Makapangyarihan ang pangalan niya.
+
+## Ang Martilyo ng Panginoon 
 
 
 
@@ -1558,7 +1560,9 @@ At kapag nangyari iyon, sisigaw sa kagalakan ang langit at ang lupa, at ang laha
 
 
 
-"Kinakailangang wasakin ang Babilonia dahil sa pagpatay niya sa mga Israelita at sa iba pang mga tao sa buong mundo. ## Ang Mensahe ng Panginoon sa mga Israelita na nasa Babilonia 
+"Kinakailangang wasakin ang Babilonia dahil sa pagpatay niya sa mga Israelita at sa iba pang mga tao sa buong mundo.
+
+## Ang Mensahe ng Panginoon sa mga Israelita na nasa Babilonia 
 
 
 

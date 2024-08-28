@@ -22,7 +22,9 @@ forbidding to marry, _and commanding_ to abstain from foods which God created to
 For every creature of God _is_ good, and nothing is to be refused if it is received with thanksgiving; 
 
 ###### 5 
-for it is sanctified by the word of God and prayer. ## A Good Servant of Jesus Christ 
+for it is sanctified by the word of God and prayer.
+
+## A Good Servant of Jesus Christ 
 
 ###### 6 
 If you instruct the brethren in these things, you will be a good minister of Jesus Christ, nourished in the words of faith and of the good doctrine which you have carefully followed. 
@@ -40,7 +42,9 @@ This _is_ a faithful saying and worthy of all acceptance.
 For to this _end_ we both labor and suffer reproach, because we trust in the living God, who is _the_ Savior of all men, especially of those who believe. 
 
 ###### 11 
-These things command and teach. ## Take Heed to Your Ministry 
+These things command and teach.
+
+## Take Heed to Your Ministry 
 
 ###### 12 
 Let no one despise your youth, but be an example to the believers in word, in conduct, in love, in spirit, in faith, in purity. 

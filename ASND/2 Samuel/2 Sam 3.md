@@ -172,7 +172,9 @@ Si Adonia ang pang-apat, na anak niya kay Hagit. Si Shefatia ang panglima, na an
 
 
 
-Si Itream ang pang-anim, na anak niya kay Egla. Sila ang mga anak ni David na isinilang sa Hebron. ## Kumampi si Abner kay David 
+Si Itream ang pang-anim, na anak niya kay Egla. Sila ang mga anak ni David na isinilang sa Hebron.
+
+## Kumampi si Abner kay David 
 
 
 
@@ -700,7 +702,9 @@ Nang dumating si Abner sa Hebron kasama ang 20 niyang tauhan, nagdaos si David n
 
 
 
-Sinabi ni Abner kay David, "Mahal na Hari, payagan nʼyo po akong umalis para kumbinsihin ang lahat na mamamayan ng Israel na suportahan kayo bilang hari. <i class="trans-change">Sa ganitong paraan,_ makikipagkasundo sila inyo na tatanggapin nila kayo bilang hari. Pagkatapos, makakapamuno na po kayo sa buong Israel, sa paraang gusto ninyo." At hinayaan ni David si Abner na umalis ng matiwasay. ## Pinatay ni Joab si Abner 
+Sinabi ni Abner kay David, "Mahal na Hari, payagan nʼyo po akong umalis para kumbinsihin ang lahat na mamamayan ng Israel na suportahan kayo bilang hari. <i class="trans-change">Sa ganitong paraan,_ makikipagkasundo sila inyo na tatanggapin nila kayo bilang hari. Pagkatapos, makakapamuno na po kayo sa buong Israel, sa paraang gusto ninyo." At hinayaan ni David si Abner na umalis ng matiwasay.
+
+## Pinatay ni Joab si Abner 
 
 
 

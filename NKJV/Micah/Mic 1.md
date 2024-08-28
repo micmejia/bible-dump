@@ -9,7 +9,9 @@ next: ['Mic 2']
 
 
 ###### 1 
-The word of the Lord that came to Micah of Moresheth in the days of Jotham, Ahaz, _and_ Hezekiah, kings of Judah, which he saw concerning Samaria and Jerusalem. ## The Coming Judgment on Israel 
+The word of the Lord that came to Micah of Moresheth in the days of Jotham, Ahaz, _and_ Hezekiah, kings of Judah, which he saw concerning Samaria and Jerusalem.
+
+## The Coming Judgment on Israel 
 
 ###### 2 
 Hear, all you peoples! Listen, O earth, and all that is in it! Let the Lord God be a witness against you, The Lord from His holy temple. 

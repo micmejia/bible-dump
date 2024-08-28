@@ -336,7 +336,9 @@ Tingnan ninyo! Mag-uutos na ako; sasalain ko kayong mga mamamayan ng Israel kasa
 
 
 
-<i class="trans-change">hindi rin makakalusot sa akin ang masasama sa inyo, kundi_ mamamatay silang lahat sa digmaan, silang mga nagsasabi na wala raw masamang mangyayari sa kanila. ## Muling Itatayo ang Israel 
+<i class="trans-change">hindi rin makakalusot sa akin ang masasama sa inyo, kundi_ mamamatay silang lahat sa digmaan, silang mga nagsasabi na wala raw masamang mangyayari sa kanila.
+
+## Muling Itatayo ang Israel 
 
 
 

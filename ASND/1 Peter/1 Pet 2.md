@@ -403,7 +403,9 @@ Mga minamahal, mga dayuhan kayong nakikitira lang sa mundong ito. Kaya nakikiusa
 
 
 
-Sa lahat ng oras, ipakita nʼyo sa mga taong hindi kumikilala sa Dios ang matuwid ninyong pamumuhay. Kahit pinararatangan nila kayo ngayon ng masama, sa bandang huli ay makikita nila ang mga kabutihang ginagawa nʼyo at luluwalhatiin nila ang Dios sa araw ng pagdating niya. ## Magpasakop Kayo sa mga Tagapamahala ng Bayan 
+Sa lahat ng oras, ipakita nʼyo sa mga taong hindi kumikilala sa Dios ang matuwid ninyong pamumuhay. Kahit pinararatangan nila kayo ngayon ng masama, sa bandang huli ay makikita nila ang mga kabutihang ginagawa nʼyo at luluwalhatiin nila ang Dios sa araw ng pagdating niya.
+
+## Magpasakop Kayo sa mga Tagapamahala ng Bayan 
 
 
 
@@ -568,7 +570,9 @@ Malaya nga kayo, pero hindi ito nangangahulugang malaya na kayong gumawa ng masa
 
 
 
-Igalang nʼyo ang lahat ng tao at mahalin nʼyo ang mga kapatid ninyo <i class="trans-change">kay Cristo_. Mamuhay kayo nang may takot sa Dios, at igalang ninyo ang Emperador. ## Tularan Ninyo si Cristo 
+Igalang nʼyo ang lahat ng tao at mahalin nʼyo ang mga kapatid ninyo <i class="trans-change">kay Cristo_. Mamuhay kayo nang may takot sa Dios, at igalang ninyo ang Emperador.
+
+## Tularan Ninyo si Cristo 
 
 
 

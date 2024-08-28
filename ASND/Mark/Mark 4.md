@@ -1129,7 +1129,9 @@ Marami pang mga talinghaga o mga paghahalintulad na gaya ng mga ito ang ginamit 
 
 
 
-Hindi siya nangangaral sa mga tao nang hindi gumagamit ng talinghaga, pero ipinapaliwanag naman niya sa mga tagasunod niya kapag sila-sila na lang. ## Pinatigil ni Jesus ang Malakas na Hangin at Alon 
+Hindi siya nangangaral sa mga tao nang hindi gumagamit ng talinghaga, pero ipinapaliwanag naman niya sa mga tagasunod niya kapag sila-sila na lang.
+
+## Pinatigil ni Jesus ang Malakas na Hangin at Alon 
 
 
 

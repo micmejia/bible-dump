@@ -139,7 +139,9 @@ Pumapatay kayo ng tao, at gumagawa pa ng ibang kasamaan. Nagsisinungaling kayo a
 
 
 
-Wala sa isip ninyo ang katarungan; ang mga bintang ninyo sa inyong kapwa ay puro mga kasinungalingan. Ang inyong iniisip ay masama, at iyon ay inyong ginagawa. ###### 5-6 Ang masasamang plano nʼyo ay parang itlog ng makamandag na ahas; ang sinumang kumain nito ay mamamatay. Katulad din ito ng bahay ng gagamba na hindi maaaring gawing damit kaya walang kabuluhan ang masasama ninyong plano. Masama ang ginagawa nʼyo at namiminsala kayo. 
+Wala sa isip ninyo ang katarungan; ang mga bintang ninyo sa inyong kapwa ay puro mga kasinungalingan. Ang inyong iniisip ay masama, at iyon ay inyong ginagawa.
+
+###### 5-6 Ang masasamang plano nʼyo ay parang itlog ng makamandag na ahas; ang sinumang kumain nito ay mamamatay. Katulad din ito ng bahay ng gagamba na hindi maaaring gawing damit kaya walang kabuluhan ang masasama ninyong plano. Masama ang ginagawa nʼyo at namiminsala kayo. 
 
 
 

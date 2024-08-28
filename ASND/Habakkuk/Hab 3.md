@@ -237,7 +237,9 @@ Kapag tumayo kayo ay nayayanig ang mundo, at kapag tumingin kayo ay nanginginig 
 
 
 
-Nakita kong nagiba ang mga tolda sa Cushan at sa Midian. ###### 8-9 "Panginoon, tulad kayo ng sundalong nakasakay sa karwahe na nagbibigay tagumpay sa labanan. Nakahanda na kayong pumana. Pero sino ang inyong kinapopootan? Ang mga ilog ba at ang mga dagat? Ang mga ilog ba at ang mga dagat? Pinabitak nʼyo ang lupa at lumabas ang tubig. 
+Nakita kong nagiba ang mga tolda sa Cushan at sa Midian.
+
+###### 8-9 "Panginoon, tulad kayo ng sundalong nakasakay sa karwahe na nagbibigay tagumpay sa labanan. Nakahanda na kayong pumana. Pero sino ang inyong kinapopootan? Ang mga ilog ba at ang mga dagat? Ang mga ilog ba at ang mga dagat? Pinabitak nʼyo ang lupa at lumabas ang tubig. 
 
 
 

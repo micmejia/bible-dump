@@ -46,7 +46,9 @@ Jesus answered and said to them, "Indeed, Elijah is coming first and will restor
 But I say to you that Elijah has come already, and they did not know him but did to him whatever they wished. Likewise the Son of Man is also about to suffer at their hands." 
 
 ###### 13 
-Then the disciples understood that He spoke to them of John the Baptist. ## A Boy Is Healed 
+Then the disciples understood that He spoke to them of John the Baptist.
+
+## A Boy Is Healed 
 
 ###### 14 
 And when they had come to the multitude, a man came to Him, kneeling down to Him and saying, 
@@ -76,7 +78,9 @@ However, this kind does not go out except by prayer and fasting." ## Jesus Again
 Now while they were staying in Galilee, Jesus said to them, "The Son of Man is about to be betrayed into the hands of men, 
 
 ###### 23 
-and they will kill Him, and the third day He will be raised up." And they were exceedingly sorrowful. ## Peter and His Master Pay Their Taxes 
+and they will kill Him, and the third day He will be raised up." And they were exceedingly sorrowful.
+
+## Peter and His Master Pay Their Taxes 
 
 ###### 24 
 When they had come to Capernaum, those who received the _temple_ tax came to Peter and said, "Does your Teacher not pay the _temple_ tax?" 

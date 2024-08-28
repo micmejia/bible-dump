@@ -304,7 +304,9 @@ hanggang sa Baalat Beer (na siyang Rama) sa Negev. Ito ang lupaing natanggap ng 
 
 
 
-Ang ibang bahagi ng lupang ito ay galing sa parte ng lahi ni Juda dahil ang ibinigay sa kanila ay sobrang maluwang para sa kanila. Kaya natanggap ng lahi ni Simeon ang kanilang lupain sa gitna ng lupain ng lahi ni Juda. ## Ang Lupaing Ibinigay sa Lahi ni Zebulun. 
+Ang ibang bahagi ng lupang ito ay galing sa parte ng lahi ni Juda dahil ang ibinigay sa kanila ay sobrang maluwang para sa kanila. Kaya natanggap ng lahi ni Simeon ang kanilang lupain sa gitna ng lupain ng lahi ni Juda.
+
+## Ang Lupaing Ibinigay sa Lahi ni Zebulun. 
 
 
 
@@ -535,7 +537,9 @@ Lahat ay 12 bayan, kasama ang mga baryo sa paligid nito. <i class="trans-change"
 
 
 
-Ito ang mga bayan at baryo na natanggap ng lahi ni Zebulun na hinati ayon sa bawat sambahayan. ## Ang Lupaing Ibinigay sa Lahi ni Isacar 
+Ito ang mga bayan at baryo na natanggap ng lahi ni Zebulun na hinati ayon sa bawat sambahayan.
+
+## Ang Lupaing Ibinigay sa Lahi ni Isacar 
 
 
 
@@ -766,7 +770,9 @@ Ang hangganan ng lupain ay umaabot sa Tabor, Shahazuma at sa Bet Shemesh at nagt
 
 
 
-Ito ang mga bayan at baryo na natanggap ng lahi ni Isacar na hinati ayon sa bawat sambahayan. ## Ang Lupaing Ibinigay sa Lahi ni Asher 
+Ito ang mga bayan at baryo na natanggap ng lahi ni Isacar na hinati ayon sa bawat sambahayan.
+
+## Ang Lupaing Ibinigay sa Lahi ni Asher 
 
 
 
@@ -1030,7 +1036,9 @@ Uma, Afek at Rehob – 22 bayan lahat, kasama ang mga bayan sa paligid nito.
 
 
 
-Ito ang mga bayan at baryo na natanggap ng lahi ni Asher na hinati ayon sa bawat sambahayan. ## Ang Lupaing Ibinigay sa Lahi ni Naftali 
+Ito ang mga bayan at baryo na natanggap ng lahi ni Asher na hinati ayon sa bawat sambahayan.
+
+## Ang Lupaing Ibinigay sa Lahi ni Naftali 
 
 
 
@@ -1294,7 +1302,9 @@ Iron, Migdal El, Horem, Bet Anat at Bet Shemesh – 19 na bayan lahat, kasama 
 
 
 
-Iyon ang mga bayan at baryo na natanggap ng lahi ni Naftali na hinati ayon sa bawat sambahayan. ## Ang Lupaing Ibinigay sa Angkan ni Dan 
+Iyon ang mga bayan at baryo na natanggap ng lahi ni Naftali na hinati ayon sa bawat sambahayan.
+
+## Ang Lupaing Ibinigay sa Angkan ni Dan 
 
 
 
@@ -1591,7 +1601,9 @@ Nahirapan ang mga lahi ni Dan sa pag-agaw ng lupain nila, kaya nilusob nila ang 
 
 
 
-Ito ang mga bayan at baryo na natanggap ng lahi ni Dan na hinati ayon sa bawat sambahayan. ## Ang Lupaing Ibinigay kay Josue 
+Ito ang mga bayan at baryo na natanggap ng lahi ni Dan na hinati ayon sa bawat sambahayan.
+
+## Ang Lupaing Ibinigay kay Josue 
 
 
 

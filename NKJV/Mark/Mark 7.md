@@ -97,7 +97,9 @@ And she answered and said to Him, "Yes, Lord, yet even the little dogs under the
 Then He said to her, "For this saying go your way; the demon has gone out of your daughter." 
 
 ###### 30 
-And when she had come to her house, she found the demon gone out, and her daughter lying on the bed. ## Jesus Heals a Deaf-Mute 
+And when she had come to her house, she found the demon gone out, and her daughter lying on the bed.
+
+## Jesus Heals a Deaf-Mute 
 
 ###### 31 
 Again, departing from the region of Tyre and Sidon, He came through the midst of the region of Decapolis to the Sea of Galilee. 

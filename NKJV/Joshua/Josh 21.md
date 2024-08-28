@@ -133,7 +133,9 @@ So all the cities for the children of Merari according to their families, the re
 All the cities of the Levites within the possession of the children of Israel _were_ forty-eight cities with their common-lands. 
 
 ###### 42 
-Every one of these cities had its common-land surrounding it; thus _were_ all these cities. ## The Promise Fulfilled 
+Every one of these cities had its common-land surrounding it; thus _were_ all these cities.
+
+## The Promise Fulfilled 
 
 ###### 43 
 So the Lord gave to Israel all the land of which He had sworn to give to their fathers, and they took possession of it and dwelt in it. 

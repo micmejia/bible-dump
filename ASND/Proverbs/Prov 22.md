@@ -535,7 +535,9 @@ Likas sa mga bata ang pagiging pilyo, ngunit magiging matuwid sila kung didisipl
 
 
 
-Ang nagreregalo sa mayaman o nang-aapi sa mahihirap para yumaman ay hahantong din sa karalitaan. ## Ang 30 Mahalagang Kawikaan 
+Ang nagreregalo sa mayaman o nang-aapi sa mahihirap para yumaman ay hahantong din sa karalitaan.
+
+## Ang 30 Mahalagang Kawikaan 
 
 
 

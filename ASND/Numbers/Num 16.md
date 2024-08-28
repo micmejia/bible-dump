@@ -106,7 +106,9 @@ Pagkarinig nito ni Moises, nagpatirapa siya <i class="trans-change">para manalan
 
 
 
-Pagkatapos, sinabi niya kay Kora at sa lahat ng kanyang tagasunod, "Bukas ng umaga, ipapahayag ng Panginoon kung sino ang totoong pinili na maglingkod sa kanya bilang mga pari dahil palalapitin niya sa kanyang presensya ang kanyang pinili. Kaya ganito ang inyong gagawin bukas: Kumuha kayo ng lalagyan ng insenso ###### 6-7 at lagyan ninyo ito ng baga at insenso, at dalhin sa presensya ng Panginoon. Pagkatapos, makikita natin kung sino ang pinili ng Panginoon na maglingkod sa kanya. Kayong mga Levita ang sumusobra na ang mga ginagawa!" 
+Pagkatapos, sinabi niya kay Kora at sa lahat ng kanyang tagasunod, "Bukas ng umaga, ipapahayag ng Panginoon kung sino ang totoong pinili na maglingkod sa kanya bilang mga pari dahil palalapitin niya sa kanyang presensya ang kanyang pinili. Kaya ganito ang inyong gagawin bukas: Kumuha kayo ng lalagyan ng insenso
+
+###### 6-7 at lagyan ninyo ito ng baga at insenso, at dalhin sa presensya ng Panginoon. Pagkatapos, makikita natin kung sino ang pinili ng Panginoon na maglingkod sa kanya. Kayong mga Levita ang sumusobra na ang mga ginagawa!" 
 
 
 

@@ -55,7 +55,9 @@ Everyone is dull-hearted, without knowledge; Every metalsmith is put to shame by
 They _are_ futile, a work of errors; In the time of their punishment they shall perish. 
 
 ###### 16 
-The Portion of Jacob _is_ not like them, For He _is_ the Maker of all _things,_ And Israel _is_ the tribe of His inheritance; The Lord of hosts _is_ His name. ## The Coming Captivity of Judah 
+The Portion of Jacob _is_ not like them, For He _is_ the Maker of all _things,_ And Israel _is_ the tribe of His inheritance; The Lord of hosts _is_ His name.
+
+## The Coming Captivity of Judah 
 
 ###### 17 
 Gather up your wares from the land, O inhabitant of the fortress! 

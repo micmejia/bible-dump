@@ -49,7 +49,9 @@ Now Timna was the concubine of Eliphaz, Esau's son, and she bore Amalek to Eliph
 These _were_ the sons of Reuel: Nahath, Zerah, Shammah, and Mizzah. These were the sons of Basemath, Esau's wife. 
 
 ###### 14 
-These were the sons of Aholibamah, Esau's wife, the daughter of Anah, the daughter of Zibeon. And she bore to Esau: Jeush, Jaalam, and Korah. ## The Chiefs of Edom 
+These were the sons of Aholibamah, Esau's wife, the daughter of Anah, the daughter of Zibeon. And she bore to Esau: Jeush, Jaalam, and Korah.
+
+## The Chiefs of Edom 
 
 ###### 15 
 These _were_ the chiefs of the sons of Esau. The sons of Eliphaz, the firstborn _son_ of Esau, were Chief Teman, Chief Omar, Chief Zepho, Chief Kenaz, 
@@ -64,7 +66,9 @@ These _were_ the sons of Reuel, Esau's son: Chief Nahath, Chief Zerah, Chief Sha
 And these _were_ the sons of Aholibamah, Esau's wife: Chief Jeush, Chief Jaalam, and Chief Korah. These _were_ the chiefs _who descended_ from Aholibamah, Esau's wife, the daughter of Anah. 
 
 ###### 19 
-These _were_ the sons of Esau, who is Edom, and these _were_ their chiefs. ## The Sons of Seir 
+These _were_ the sons of Esau, who is Edom, and these _were_ their chiefs.
+
+## The Sons of Seir 
 
 ###### 20 
 These _were_ the sons of Seir the Horite who inhabited the land: Lotan, Shobal, Zibeon, Anah, 
@@ -97,7 +101,9 @@ These _were_ the sons of Dishan: Uz and Aran.
 These _were_ the chiefs of the Horites: Chief Lotan, Chief Shobal, Chief Zibeon, Chief Anah, 
 
 ###### 30 
-Chief Dishon, Chief Ezer, and Chief Dishan. These _were_ the chiefs of the Horites, according to their chiefs in the land of Seir. ## The Kings of Edom 
+Chief Dishon, Chief Ezer, and Chief Dishan. These _were_ the chiefs of the Horites, according to their chiefs in the land of Seir.
+
+## The Kings of Edom 
 
 ###### 31 
 Now these _were_ the kings who reigned in the land of Edom before any king reigned over the children of Israel: 
@@ -124,7 +130,9 @@ And when Samlah died, Saul of Rehoboth-_by_-the-River reigned in his place.
 When Saul died, Baal-Hanan the son of Achbor reigned in his place. 
 
 ###### 39 
-And when Baal-Hanan the son of Achbor died, Hadar reigned in his place; and the name of his city _was_ Pau. His wife's name _was_ Mehetabel, the daughter of Matred, the daughter of Mezahab. ## The Chiefs of Esau 
+And when Baal-Hanan the son of Achbor died, Hadar reigned in his place; and the name of his city _was_ Pau. His wife's name _was_ Mehetabel, the daughter of Matred, the daughter of Mezahab.
+
+## The Chiefs of Esau 
 
 ###### 40 
 And these _were_ the names of the chiefs of Esau, according to their families and their places, by their names: Chief Timnah, Chief Alvah, Chief Jetheth, 

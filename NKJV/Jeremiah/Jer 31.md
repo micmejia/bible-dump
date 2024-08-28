@@ -97,7 +97,9 @@ And it shall come to pass, _that_ as I have watched over them to pluck up, to br
 In those days they shall say no more: 'The fathers have eaten sour grapes, And the children's teeth are set on edge.' 
 
 ###### 30 
-But every one shall die for his own iniquity; every man who eats the sour grapes, his teeth shall be set on edge. ## A New Covenant 
+But every one shall die for his own iniquity; every man who eats the sour grapes, his teeth shall be set on edge.
+
+## A New Covenant 
 
 ###### 31 
 "Behold, the days are coming, says the Lord, when I will make a new covenant with the house of Israel and with the house of Judah-- 

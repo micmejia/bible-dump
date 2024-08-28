@@ -469,7 +469,9 @@ Kinagabihan, hinati ni Abram ang mga tauhan niya at nilusob nila ang mga kalaban
 
 
 
-Binawi nila ang lahat ng ari-arian na inagaw ng mga kalaban. Binawi rin nila si Lot at ang mga ari-arian nito pati ang mga babae at ang iba pang mga tao. ## Binasbasan ni Melkizedek si Abram 
+Binawi nila ang lahat ng ari-arian na inagaw ng mga kalaban. Binawi rin nila si Lot at ang mga ari-arian nito pati ang mga babae at ang iba pang mga tao.
+
+## Binasbasan ni Melkizedek si Abram 
 
 
 

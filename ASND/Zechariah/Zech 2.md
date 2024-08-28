@@ -172,7 +172,9 @@ at sinabi sa kanya, "Magmadali ka, sabihin mo sa lalaking iyon <i class="trans-c
 
 
 
-Sinabi ng Panginoon na siya mismo ang magiging pader na apoy sa paligid ng lungsod ng Jerusalem, at siya rin ang magiging dakila sa bayan na ito." ## Pinababalik ng Dios ang Kanyang mga Mamamayan sa Kanilang Lugar ###### 6-7 Sinabi ng Panginoon <i class="trans-change">sa mga Israelita_, "Pinangalat ko kayo sa lahat ng sulok ng mundo. Pero ngayon, tumakas na kayo, pati kayong mga binihag at dinala sa Babilonia, at bumalik na kayo sa Zion." 
+Sinabi ng Panginoon na siya mismo ang magiging pader na apoy sa paligid ng lungsod ng Jerusalem, at siya rin ang magiging dakila sa bayan na ito." ## Pinababalik ng Dios ang Kanyang mga Mamamayan sa Kanilang Lugar
+
+###### 6-7 Sinabi ng Panginoon <i class="trans-change">sa mga Israelita_, "Pinangalat ko kayo sa lahat ng sulok ng mundo. Pero ngayon, tumakas na kayo, pati kayong mga binihag at dinala sa Babilonia, at bumalik na kayo sa Zion." 
 
 
 

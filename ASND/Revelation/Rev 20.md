@@ -205,7 +205,9 @@ Ito ang unang pagkabuhay ng mga patay. (Ang ibang mga patay ay saka lang bubuhay
 
 
 
-Mapalad at banal ang mga kabilang sa unang pagkabuhay ng mga patay. Walang kapangyarihan sa kanila ang ikalawang kamatayan. Magiging mga pari sila ng Dios at ni Cristo, at maghaharing kasama niya sa loob ng 1,000 taon. ## Ang Pagkatalo ni Satanas 
+Mapalad at banal ang mga kabilang sa unang pagkabuhay ng mga patay. Walang kapangyarihan sa kanila ang ikalawang kamatayan. Magiging mga pari sila ng Dios at ni Cristo, at maghaharing kasama niya sa loob ng 1,000 taon.
+
+## Ang Pagkatalo ni Satanas 
 
 
 
@@ -337,7 +339,9 @@ Kakalat sila sa buong mundo, at paliligiran nila ang kampo ng mga banal at ang p
 
 
 
-At si Satanas na dumaya sa kanila ay itatapon sa lawang apoy at asupre, na siya ring pinagtapunan ng halimaw at ng huwad at sinungaling na propeta. Magkakasama silang parurusahan at pahihirapan araw-gabi, magpakailanman. ## Ang Huling Paghatol 
+At si Satanas na dumaya sa kanila ay itatapon sa lawang apoy at asupre, na siya ring pinagtapunan ng halimaw at ng huwad at sinungaling na propeta. Magkakasama silang parurusahan at pahihirapan araw-gabi, magpakailanman.
+
+## Ang Huling Paghatol 
 
 
 

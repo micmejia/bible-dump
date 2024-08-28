@@ -46,7 +46,9 @@ I will also cause all her mirth to cease, Her feast days, Her New Moons, Her Sab
 "And I will destroy her vines and her fig trees, Of which she has said, 'These _are_ my wages that my lovers have given me.' So I will make them a forest, And the beasts of the field shall eat them. 
 
 ###### 13 
-I will punish her For the days of the Baals to which she burned incense. She decked herself with her earrings and jewelry, And went after her lovers; But Me she forgot," says the Lord. ## God's Mercy on His People 
+I will punish her For the days of the Baals to which she burned incense. She decked herself with her earrings and jewelry, And went after her lovers; But Me she forgot," says the Lord.
+
+## God's Mercy on His People 
 
 ###### 14 
 "Therefore, behold, I will allure her, Will bring her into the wilderness, And speak comfort to her. 

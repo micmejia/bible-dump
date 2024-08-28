@@ -39,7 +39,9 @@ That which has been _is_ what will be, That which _is_ done is what will be done
 Is there anything of which it may be said, "See, this _is_ new"? It has already been in ancient times before us. 
 
 ###### 11 
-_There is_ no remembrance of former _things,_ Nor will there be any remembrance of _things_ that are to come By _those_ who will come after. ## The Grief of Wisdom 
+_There is_ no remembrance of former _things,_ Nor will there be any remembrance of _things_ that are to come By _those_ who will come after.
+
+## The Grief of Wisdom 
 
 ###### 12 
 I, the Preacher, was king over Israel in Jerusalem. 

@@ -72,7 +72,9 @@ next: ['Col 2']
 
 
 
-<i class="trans-change">Mahal kong_ mga taga-Colosas, pinabanal at matatapat na kapatid na nakay Cristo: Sumainyo nawa ang biyaya at kapayapaang galing sa Dios na ating Ama. ## Ang Panalangin ni Pablo para sa mga Taga-Colosas 
+<i class="trans-change">Mahal kong_ mga taga-Colosas, pinabanal at matatapat na kapatid na nakay Cristo: Sumainyo nawa ang biyaya at kapayapaang galing sa Dios na ating Ama.
+
+## Ang Panalangin ni Pablo para sa mga Taga-Colosas 
 
 
 
@@ -468,7 +470,9 @@ Iniligtas niya tayo mula sa kapangyarihan ng kadiliman at inilipat tayo sa kahar
 
 
 
-At sa pamamagitan ng kanyang Anak, tinubos <i class="trans-change">niya_ tayo, na ang ibig sabihin ay pinatawad na ang ating mga kasalanan. ## Ang Kadakilaan ni Cristo 
+At sa pamamagitan ng kanyang Anak, tinubos <i class="trans-change">niya_ tayo, na ang ibig sabihin ay pinatawad na ang ating mga kasalanan.
+
+## Ang Kadakilaan ni Cristo 
 
 
 
@@ -765,7 +769,9 @@ Pero ngayon, ibinalik na niya kayo sa kanyang sarili sa pamamagitan ng kamatayan
 
 
 
-Pero kailangan ninyong manatiling tapat at matatag sa pananampalataya, at huwag hayaang mawala ang pag-asang dulot ng Magandang Balita na narinig ninyo. Ang Magandang Balita na ito ay ipinahayag na sa buong mundo, at akong si Pablo ay naging lingkod nito. ## Ang Paghihirap ni Pablo para sa mga Mananampalataya 
+Pero kailangan ninyong manatiling tapat at matatag sa pananampalataya, at huwag hayaang mawala ang pag-asang dulot ng Magandang Balita na narinig ninyo. Ang Magandang Balita na ito ay ipinahayag na sa buong mundo, at akong si Pablo ay naging lingkod nito.
+
+## Ang Paghihirap ni Pablo para sa mga Mananampalataya 
 
 
 

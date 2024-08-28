@@ -22,7 +22,9 @@ They sang as it were a new song before the throne, before the four living creatu
 These are the ones who were not defiled with women, for they are virgins. These are the ones who follow the Lamb wherever He goes. These were redeemed from _among_ men, _being_ firstfruits to God and to the Lamb. 
 
 ###### 5 
-And in their mouth was found no deceit, for they are without fault before the throne of God. ## The Proclamations of Three Angels 
+And in their mouth was found no deceit, for they are without fault before the throne of God.
+
+## The Proclamations of Three Angels 
 
 ###### 6 
 Then I saw another angel flying in the midst of heaven, having the everlasting gospel to preach to those who dwell on the earth--to every nation, tribe, tongue, and people-- 
@@ -55,7 +57,9 @@ Then I looked, and behold, a white cloud, and on the cloud sat _One_ like the So
 And another angel came out of the temple, crying with a loud voice to Him who sat on the cloud, "Thrust in Your sickle and reap, for the time has come for You to reap, for the harvest of the earth is ripe." 
 
 ###### 16 
-So He who sat on the cloud thrust in His sickle on the earth, and the earth was reaped. ## Reaping the Grapes of Wrath 
+So He who sat on the cloud thrust in His sickle on the earth, and the earth was reaped.
+
+## Reaping the Grapes of Wrath 
 
 ###### 17 
 Then another angel came out of the temple which is in heaven, he also having a sharp sickle. 

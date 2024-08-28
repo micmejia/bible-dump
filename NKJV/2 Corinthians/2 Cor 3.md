@@ -16,7 +16,9 @@ Do we begin again to commend ourselves? Or do we need, as some _others_, epistle
 You are our epistle written in our hearts, known and read by all men; 
 
 ###### 3 
-clearly you are an epistle of Christ, ministered by us, written not with ink but by the Spirit of the living God, not on tablets of stone but on tablets of flesh, _that is,_ of the heart. ## The Spirit, Not the Letter 
+clearly you are an epistle of Christ, ministered by us, written not with ink but by the Spirit of the living God, not on tablets of stone but on tablets of flesh, _that is,_ of the heart.
+
+## The Spirit, Not the Letter 
 
 ###### 4 
 And we have such trust through Christ toward God. 
@@ -25,7 +27,9 @@ And we have such trust through Christ toward God.
 Not that we are sufficient of ourselves to think of anything as _being_ from ourselves, but our sufficiency _is_ from God, 
 
 ###### 6 
-who also made us sufficient as ministers of the new covenant, not of the letter but of the Spirit; for the letter kills, but the Spirit gives life. ## Glory of the New Covenant 
+who also made us sufficient as ministers of the new covenant, not of the letter but of the Spirit; for the letter kills, but the Spirit gives life.
+
+## Glory of the New Covenant 
 
 ###### 7 
 But if the ministry of death, written _and_ engraved on stones, was glorious, so that the children of Israel could not look steadily at the face of Moses because of the glory of his countenance, which _glory_ was passing away, 

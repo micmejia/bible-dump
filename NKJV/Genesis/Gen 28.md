@@ -22,7 +22,9 @@ Arise, go to Padan Aram, to the house of Bethuel your mother's father; and take 
 And give you the blessing of Abraham, To you and your descendants with you, That you may inherit the land In which you are a stranger, Which God gave to Abraham." 
 
 ###### 5 
-So Isaac sent Jacob away, and he went to Padan Aram, to Laban the son of Bethuel the Syrian, the brother of Rebekah, the mother of Jacob and Esau. ## Esau Marries Mahalath 
+So Isaac sent Jacob away, and he went to Padan Aram, to Laban the son of Bethuel the Syrian, the brother of Rebekah, the mother of Jacob and Esau.
+
+## Esau Marries Mahalath 
 
 ###### 6 
 Esau saw that Isaac had blessed Jacob and sent him away to Padan Aram to take himself a wife from there, _and that_ as he blessed him he gave him a charge, saying, "You shall not take a wife from the daughters of Canaan," 
@@ -34,7 +36,9 @@ and that Jacob had obeyed his father and his mother and had gone to Padan Aram.
 Also Esau saw that the daughters of Canaan did not please his father Isaac. 
 
 ###### 9 
-So Esau went to Ishmael and took Mahalath the daughter of Ishmael, Abraham's son, the sister of Nebajoth, to be his wife in addition to the wives he had. ## Jacob's Vow at Bethel 
+So Esau went to Ishmael and took Mahalath the daughter of Ishmael, Abraham's son, the sister of Nebajoth, to be his wife in addition to the wives he had.
+
+## Jacob's Vow at Bethel 
 
 ###### 10 
 Now Jacob went out from Beersheba and went toward Haran. 

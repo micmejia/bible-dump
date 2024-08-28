@@ -436,7 +436,9 @@ Inihagis ng bawat isa sa kanila ang mga baston nila at naging ahas din ang mga i
 
 
 
-Pero nagmatigas pa rin ang puso ng Faraon at hindi siya nakinig kina Moises at Aaron, gaya na rin ng sinabi ng Panginoon. ## Naging Dugo ang Tubig sa Ilog Nilo 
+Pero nagmatigas pa rin ang puso ng Faraon at hindi siya nakinig kina Moises at Aaron, gaya na rin ng sinabi ng Panginoon.
+
+## Naging Dugo ang Tubig sa Ilog Nilo 
 
 
 
@@ -799,7 +801,9 @@ Bumalik ang Faraon sa palasyo niya at hindi pinansin ang nangyari.
 
 
 
-Naghukay ang mga Egipcio sa palibot ng ilog para makakuha ng tubig na inumin dahil hindi nila mainom ang tubig sa ilog. ## Ang Salot na mga Palaka 
+Naghukay ang mga Egipcio sa palibot ng ilog para makakuha ng tubig na inumin dahil hindi nila mainom ang tubig sa ilog.
+
+## Ang Salot na mga Palaka 
 
 
 

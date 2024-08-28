@@ -12,7 +12,9 @@ up: ['Romans']
 I commend to you Phoebe our sister, who is a servant of the church in Cenchrea, 
 
 ###### 2 
-that you may receive her in the Lord in a manner worthy of the saints, and assist her in whatever business she has need of you; for indeed she has been a helper of many and of myself also. ## Greeting Roman Saints 
+that you may receive her in the Lord in a manner worthy of the saints, and assist her in whatever business she has need of you; for indeed she has been a helper of many and of myself also.
+
+## Greeting Roman Saints 
 
 ###### 3 
 Greet Priscilla and Aquila, my fellow workers in Christ Jesus, 
@@ -54,7 +56,9 @@ Greet Asyncritus, Phlegon, Hermas, Patrobas, Hermes, and the brethren who are wi
 Greet Philologus and Julia, Nereus and his sister, and Olympas, and all the saints who are with them. 
 
 ###### 16 
-Greet one another with a holy kiss. The churches of Christ greet you. ## Avoid Divisive Persons 
+Greet one another with a holy kiss. The churches of Christ greet you.
+
+## Avoid Divisive Persons 
 
 ###### 17 
 Now I urge you, brethren, note those who cause divisions and offenses, contrary to the doctrine which you learned, and avoid them. 
@@ -66,7 +70,9 @@ For those who are such do not serve our Lord Jesus Christ, but their own belly, 
 For your obedience has become known to all. Therefore I am glad on your behalf; but I want you to be wise in what is good, and simple concerning evil. 
 
 ###### 20 
-And the God of peace will crush Satan under your feet shortly. The grace of our Lord Jesus Christ _be_ with you. Amen. ## Greetings from Paul's Friends 
+And the God of peace will crush Satan under your feet shortly. The grace of our Lord Jesus Christ _be_ with you. Amen.
+
+## Greetings from Paul's Friends 
 
 ###### 21 
 Timothy, my fellow worker, and Lucius, Jason, and Sosipater, my countrymen, greet you. 
@@ -78,7 +84,9 @@ I, Tertius, who wrote _this_ epistle, greet you in the Lord.
 Gaius, my host and _the host_ of the whole church, greets you. Erastus, the treasurer of the city, greets you, and Quartus, a brother. 
 
 ###### 24 
-The grace of our Lord Jesus Christ _be_ with you all. Amen. ## Benediction 
+The grace of our Lord Jesus Christ _be_ with you all. Amen.
+
+## Benediction 
 
 ###### 25 
 Now to Him who is able to establish you according to my gospel and the preaching of Jesus Christ, according to the revelation of the mystery kept secret since the world began 

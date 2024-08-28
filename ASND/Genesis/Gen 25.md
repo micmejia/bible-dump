@@ -139,7 +139,11 @@ Si Jokshan ang ama nina Sheba at Dedan. Ang mga lahi ni Dedan ay ang mga Asureo,
 
 
 
-Ang mga anak na lalaki ni Midian ay sina Efa, Efer, Hanoc, Abida at Eldaa. Silang lahat ang mga lahi ni Ketura. ###### 5-6 Bago namatay si Abraham, iniwan niya ang lahat ng ari-arian niya kay Isaac. Pero binigyan niya ng mga regalo ang iba niyang mga anak sa iba niyang mga asawa, at pinapunta sa silangan para ihiwalay sa anak niyang si Isaac. ## Ang Pagkamatay at Paglilibing kay Abraham 
+Ang mga anak na lalaki ni Midian ay sina Efa, Efer, Hanoc, Abida at Eldaa. Silang lahat ang mga lahi ni Ketura.
+
+###### 5-6 Bago namatay si Abraham, iniwan niya ang lahat ng ari-arian niya kay Isaac. Pero binigyan niya ng mga regalo ang iba niyang mga anak sa iba niyang mga asawa, at pinapunta sa silangan para ihiwalay sa anak niyang si Isaac.
+
+## Ang Pagkamatay at Paglilibing kay Abraham 
 
 
 
@@ -304,7 +308,9 @@ Ang bukid na iyon ay binili ni Abraham sa harapan ng mga Heteo. Doon inilibing s
 
 
 
-Pagkatapos mamatay ni Abraham, binasbasan ng Dios si Isaac at doon siya nanirahan sa Beer Lahai Roi. ## Ang mga Angkan ni Ishmael 
+Pagkatapos mamatay ni Abraham, binasbasan ng Dios si Isaac at doon siya nanirahan sa Beer Lahai Roi.
+
+## Ang mga Angkan ni Ishmael 
 
 
 
@@ -535,7 +541,9 @@ Nabuhay si Ishmael ng 137 taon. Namatay siya at kasama na ng kanyang mga kamag-a
 
 
 
-Tumira ang mga angkan niya sa mga lugar na galing sa Havila hanggang sa Shur, sa silangan ng Egipto na papunta sa Asiria. Kinalaban nila ang lahat ng kamag-anak nila <i class="trans-change">na mga lahi ni Isaac_. ## Ipinanganak sina Esau at Jacob 
+Tumira ang mga angkan niya sa mga lugar na galing sa Havila hanggang sa Shur, sa silangan ng Egipto na papunta sa Asiria. Kinalaban nila ang lahat ng kamag-anak nila <i class="trans-change">na mga lahi ni Isaac_.
+
+## Ipinanganak sina Esau at Jacob 
 
 
 
@@ -799,7 +807,9 @@ Ang unang lumabas ay mapula-pula at balbon, kaya pinangalanan nila siyang Esau.
 
 
 
-Nang lumabas ang ikalawa, ang kamay niya ay nakahawak sa sakong ng kanyang kapatid, kaya pinangalanan nila siyang Jacob. Si Isaac ay 60 taong gulang nang manganak si Rebeka ng kambal. ## Ibinenta ni Esau ang Kanyang Karapatan bilang Panganay 
+Nang lumabas ang ikalawa, ang kamay niya ay nakahawak sa sakong ng kanyang kapatid, kaya pinangalanan nila siyang Jacob. Si Isaac ay 60 taong gulang nang manganak si Rebeka ng kambal.
+
+## Ibinenta ni Esau ang Kanyang Karapatan bilang Panganay 
 
 
 

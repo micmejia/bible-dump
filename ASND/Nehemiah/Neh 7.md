@@ -502,4 +502,6 @@ Ang kabuuang ibinigay ng iba pang mga tao ay 168 kilong ginto, 1,100 kilong pila
 
 
 
-Ang bawat isa sa kanila ay bumalik sa mga bayan na kung saan nagmula ang kanilang pamilya, pati na ang mga pari, ang mga Levita, ang mga guwardya ng mga pintuan <i class="trans-change">ng templo_, ang mga mang-aawit, at ang mga utusan sa templo. ## Binasa ni Ezra ang Kautusan Nang dumating ang ikapitong buwan, nang nakatira na ang mga Israelita sa mga bayan nila,
+Ang bawat isa sa kanila ay bumalik sa mga bayan na kung saan nagmula ang kanilang pamilya, pati na ang mga pari, ang mga Levita, ang mga guwardya ng mga pintuan <i class="trans-change">ng templo_, ang mga mang-aawit, at ang mga utusan sa templo.
+
+## Binasa ni Ezra ang Kautusan Nang dumating ang ikapitong buwan, nang nakatira na ang mga Israelita sa mga bayan nila,

@@ -58,7 +58,9 @@ And Esau said, "Now let me leave with you _some_ of the people who _are_ with me
 So Esau returned that day on his way to Seir. 
 
 ###### 17 
-And Jacob journeyed to Succoth, built himself a house, and made booths for his livestock. Therefore the name of the place is called Succoth. ## Jacob Comes to Canaan 
+And Jacob journeyed to Succoth, built himself a house, and made booths for his livestock. Therefore the name of the place is called Succoth.
+
+## Jacob Comes to Canaan 
 
 ###### 18 
 Then Jacob came safely to the city of Shechem, which _is_ in the land of Canaan, when he came from Padan Aram; and he pitched his tent before the city. 

@@ -12,7 +12,9 @@ next: ['Col 2']
 Paul, an apostle of Jesus Christ by the will of God, and Timothy our brother, 
 
 ###### 2 
-To the saints and faithful brethren in Christ _who are_ in Colosse: Grace to you and peace from God our Father and the Lord Jesus Christ. ## Their Faith in Christ 
+To the saints and faithful brethren in Christ _who are_ in Colosse: Grace to you and peace from God our Father and the Lord Jesus Christ.
+
+## Their Faith in Christ 
 
 ###### 3 
 We give thanks to the God and Father of our Lord Jesus Christ, praying always for you, 
@@ -30,7 +32,9 @@ which has come to you, as _it has_ also in all the world, and is bringing forth 
 as you also learned from Epaphras, our dear fellow servant, who is a faithful minister of Christ on your behalf, 
 
 ###### 8 
-who also declared to us your love in the Spirit. ## Preeminence of Christ 
+who also declared to us your love in the Spirit.
+
+## Preeminence of Christ 
 
 ###### 9 
 For this reason we also, since the day we heard it, do not cease to pray for you, and to ask that you may be filled with the knowledge of His will in all wisdom and spiritual understanding; 
@@ -60,7 +64,9 @@ For by Him all things were created that are in heaven and that are on earth, vis
 And He is before all things, and in Him all things consist. 
 
 ###### 18 
-And He is the head of the body, the church, who is the beginning, the firstborn from the dead, that in all things He may have the preeminence. ## Reconciled in Christ 
+And He is the head of the body, the church, who is the beginning, the firstborn from the dead, that in all things He may have the preeminence.
+
+## Reconciled in Christ 
 
 ###### 19 
 For it pleased _the Father that_ in Him all the fullness should dwell, 
@@ -75,7 +81,9 @@ And you, who once were alienated and enemies in your mind by wicked works, yet n
 in the body of His flesh through death, to present you holy, and blameless, and above reproach in His sight-- 
 
 ###### 23 
-if indeed you continue in the faith, grounded and steadfast, and are not moved away from the hope of the gospel which you heard, which was preached to every creature under heaven, of which I, Paul, became a minister. ## Sacrificial Service for Christ 
+if indeed you continue in the faith, grounded and steadfast, and are not moved away from the hope of the gospel which you heard, which was preached to every creature under heaven, of which I, Paul, became a minister.
+
+## Sacrificial Service for Christ 
 
 ###### 24 
 I now rejoice in my sufferings for you, and fill up in my flesh what is lacking in the afflictions of Christ, for the sake of His body, which is the church, 

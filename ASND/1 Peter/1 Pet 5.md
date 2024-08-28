@@ -369,7 +369,9 @@ Maikling panahon lang ang paghihirap ninyo. Pagkatapos nito, tutulungan kayo ng 
 
 
 
-Purihin siya sa kapangyarihan niyang walang hanggan! Amen. ## Mga Pangangamusta 
+Purihin siya sa kapangyarihan niyang walang hanggan! Amen.
+
+## Mga Pangangamusta 
 
 
 

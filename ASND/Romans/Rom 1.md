@@ -72,7 +72,9 @@ next: ['Rom 2']
 
 
 
-Ang Magandang Balitang itoʼy ipinangako ng Dios noon sa pamamagitan ng mga propeta at nakasulat sa Banal na Kasulatan. ###### 3-4 Ang balitang itoʼy tungkol sa kanyang Anak, ang ating Panginoong Jesu-Cristo. Sa kanyang pagkatao, isinilang siya sa lahi ni <i class="trans-change">Haring_ David, at sa kanyang banal na espiritu, napatunayang siya ang makapangyarihang Anak ng Dios, nang siyaʼy nabuhay mula sa mga patay. 
+Ang Magandang Balitang itoʼy ipinangako ng Dios noon sa pamamagitan ng mga propeta at nakasulat sa Banal na Kasulatan.
+
+###### 3-4 Ang balitang itoʼy tungkol sa kanyang Anak, ang ating Panginoong Jesu-Cristo. Sa kanyang pagkatao, isinilang siya sa lahi ni <i class="trans-change">Haring_ David, at sa kanyang banal na espiritu, napatunayang siya ang makapangyarihang Anak ng Dios, nang siyaʼy nabuhay mula sa mga patay. 
 
 
 
@@ -171,7 +173,9 @@ At kayong <i class="trans-change">mga mananampalataya riyan sa Roma_ ay kabilang
 
 
 
-Sa inyong lahat diyan sa Roma na minamahal ng Dios at tinawag na maging banal, sumainyo nawa ang biyaya at kapayapaang galing sa Dios na ating Ama at sa Panginoong Jesu-Cristo. ## Ang Dahilan ng Pagpunta ni Pablo sa Roma 
+Sa inyong lahat diyan sa Roma na minamahal ng Dios at tinawag na maging banal, sumainyo nawa ang biyaya at kapayapaang galing sa Dios na ating Ama at sa Panginoong Jesu-Cristo.
+
+## Ang Dahilan ng Pagpunta ni Pablo sa Roma 
 
 
 
@@ -435,7 +439,9 @@ Sapagkat may pananagutan ako <i class="trans-change">na mangaral sa lahat ng tao
 
 
 
-Iyan ang dahilan kung bakit nais ko ring maipangaral ang Magandang Balita riyan sa inyo sa Roma. ## Ang Kapangyarihan ng Magandang Balita 
+Iyan ang dahilan kung bakit nais ko ring maipangaral ang Magandang Balita riyan sa inyo sa Roma.
+
+## Ang Kapangyarihan ng Magandang Balita 
 
 
 

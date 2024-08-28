@@ -22,7 +22,9 @@ For I could wish that I myself were accursed from Christ for my brethren, my cou
 who are Israelites, to whom _pertain_ the adoption, the glory, the covenants, the giving of the law, the service _of God,_ and the promises; 
 
 ###### 5 
-of whom _are_ the fathers and from whom, according to the flesh, Christ _came,_ who is over all, _the_ eternally blessed God. Amen. ## Israel's Rejection and God's Purpose 
+of whom _are_ the fathers and from whom, according to the flesh, Christ _came,_ who is over all, _the_ eternally blessed God. Amen.
+
+## Israel's Rejection and God's Purpose 
 
 ###### 6 
 But it is not that the word of God has taken no effect. For they _are_ not all Israel who _are_ of Israel, 

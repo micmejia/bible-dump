@@ -34,7 +34,9 @@ Then the Lord appeared to Abram and said, "To your descendants I will give this 
 And he moved from there to the mountain east of Bethel, and he pitched his tent _with_ Bethel on the west and Ai on the east; there he built an altar to the Lord and called on the name of the Lord. 
 
 ###### 9 
-So Abram journeyed, going on still toward the South. ## Abram in Egypt 
+So Abram journeyed, going on still toward the South.
+
+## Abram in Egypt 
 
 ###### 10 
 Now there was a famine in the land, and Abram went down to Egypt to dwell there, for the famine _was_ severe in the land. 

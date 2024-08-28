@@ -370,7 +370,9 @@ Nagpagawa si Solomon sa loob ng Pinakabanal na Lugar ng dalawang kerubin at pina
 
 
 
-Ang kurtina <i class="trans-change">na nakatakip sa Pinakabanal na Lugar_ ay gawa mula sa pinong <i class="trans-change">telang_ linen na asul, kulay ube at pula, na may burdang kerubin. ## Ang Dalawang Haligi 
+Ang kurtina <i class="trans-change">na nakatakip sa Pinakabanal na Lugar_ ay gawa mula sa pinong <i class="trans-change">telang_ linen na asul, kulay ube at pula, na may burdang kerubin.
+
+## Ang Dalawang Haligi 
 
 
 

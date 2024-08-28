@@ -37,7 +37,9 @@ And he went into the synagogue and spoke boldly for three months, reasoning and 
 But when some were hardened and did not believe, but spoke evil of the Way before the multitude, he departed from them and withdrew the disciples, reasoning daily in the school of Tyrannus. 
 
 ###### 10 
-And this continued for two years, so that all who dwelt in Asia heard the word of the Lord Jesus, both Jews and Greeks. ## Miracles Glorify Christ 
+And this continued for two years, so that all who dwelt in Asia heard the word of the Lord Jesus, both Jews and Greeks.
+
+## Miracles Glorify Christ 
 
 ###### 11 
 Now God worked unusual miracles by the hands of Paul, 
@@ -67,7 +69,9 @@ And many who had believed came confessing and telling their deeds.
 Also, many of those who had practiced magic brought their books together and burned _them_ in the sight of all. And they counted up the value of them, and _it_ totaled fifty thousand _pieces_ of silver. 
 
 ###### 20 
-So the word of the Lord grew mightily and prevailed. ## The Riot at Ephesus 
+So the word of the Lord grew mightily and prevailed.
+
+## The Riot at Ephesus 
 
 ###### 21 
 When these things were accomplished, Paul purposed in the Spirit, when he had passed through Macedonia and Achaia, to go to Jerusalem, saying, "After I have been there, I must also see Rome." 

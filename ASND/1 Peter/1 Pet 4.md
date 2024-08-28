@@ -205,7 +205,9 @@ Ngunit mananagot sila sa Dios sa ginagawa nila, dahil hahatulan ng Dios ang laha
 
 
 
-Ito ang dahilan kung bakit ipinangaral ang Magandang Balita sa mga taong patay na. Nang sa ganoon, kahit patay na sila sa laman, at mahatulan tulad ng lahat ng tao, mabubuhay pa rin sila sa espiritu gaya ng Dios. ## Gamitin Ninyo ang Kaloob na Ibinigay ng Dios 
+Ito ang dahilan kung bakit ipinangaral ang Magandang Balita sa mga taong patay na. Nang sa ganoon, kahit patay na sila sa laman, at mahatulan tulad ng lahat ng tao, mabubuhay pa rin sila sa espiritu gaya ng Dios.
+
+## Gamitin Ninyo ang Kaloob na Ibinigay ng Dios 
 
 
 
@@ -370,7 +372,9 @@ Binigyan ng Dios ang bawat isa sa atin ng kaloob. Gamitin natin ito para sa ikab
 
 
 
-Ang binigyan ng kaloob sa pangangaral ay dapat mangaral ng salita ng Dios. At ang binigyan ng kaloob para maglingkod ay dapat maglingkod ayon sa kakayahang ibinigay sa kanya ng Dios, upang mapapurihan ang Dios sa lahat ng ginagawa natin sa pamamagitan ni Jesu-Cristo. Makapangyarihan siya at karapat-dapat purihin magpakailanman! Amen. ## Ang Pagtitiis Bilang Cristiano 
+Ang binigyan ng kaloob sa pangangaral ay dapat mangaral ng salita ng Dios. At ang binigyan ng kaloob para maglingkod ay dapat maglingkod ayon sa kakayahang ibinigay sa kanya ng Dios, upang mapapurihan ang Dios sa lahat ng ginagawa natin sa pamamagitan ni Jesu-Cristo. Makapangyarihan siya at karapat-dapat purihin magpakailanman! Amen.
+
+## Ang Pagtitiis Bilang Cristiano 
 
 
 

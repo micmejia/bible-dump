@@ -27,7 +27,9 @@ Do not trust in a friend; Do not put your confidence in a companion; Guard the d
 For son dishonors father, Daughter rises against her mother, Daughter-in-law against her mother-in-law; A man's enemies _are_ the men of his own household. 
 
 ###### 7 
-Therefore I will look to the Lord; I will wait for the God of my salvation; My God will hear me. ## Israel's Confession and Comfort 
+Therefore I will look to the Lord; I will wait for the God of my salvation; My God will hear me.
+
+## Israel's Confession and Comfort 
 
 ###### 8 
 Do not rejoice over me, my enemy; When I fall, I will arise; When I sit in darkness, The Lord _will be_ a light to me. 
@@ -45,7 +47,9 @@ _In_ the day when your walls are to be built, _In_ that day the decree shall go 
 _In_ that day they shall come to you From Assyria and the fortified cities, From the fortress to the River, From sea to sea, And mountain _to_ mountain. 
 
 ###### 13 
-Yet the land shall be desolate Because of those who dwell in it, And for the fruit of their deeds. ## God Will Forgive Israel 
+Yet the land shall be desolate Because of those who dwell in it, And for the fruit of their deeds.
+
+## God Will Forgive Israel 
 
 ###### 14 
 Shepherd Your people with Your staff, The flock of Your heritage, Who dwell solitarily _in_ a woodland, In the midst of Carmel; Let them feed _in_ Bashan and Gilead, As in days of old. 

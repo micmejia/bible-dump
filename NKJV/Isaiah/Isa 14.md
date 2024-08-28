@@ -13,7 +13,9 @@ next: ['Isa 15']
 For the Lord will have mercy on Jacob, and will still choose Israel, and settle them in their own land. The strangers will be joined with them, and they will cling to the house of Jacob. 
 
 ###### 2 
-Then people will take them and bring them to their place, and the house of Israel will possess them for servants and maids in the land of the Lord; they will take them captive whose captives they were, and rule over their oppressors. ## Fall of the King of Babylon 
+Then people will take them and bring them to their place, and the house of Israel will possess them for servants and maids in the land of the Lord; they will take them captive whose captives they were, and rule over their oppressors.
+
+## Fall of the King of Babylon 
 
 ###### 3 
 It shall come to pass in the day the Lord gives you rest from your sorrow, and from your fear and the hard bondage in which you were made to serve, 
@@ -76,7 +78,9 @@ Prepare slaughter for his children Because of the iniquity of their fathers, Les
 "For I will rise up against them," says the Lord of hosts, "And cut off from Babylon the name and remnant, And offspring and posterity," says the Lord. 
 
 ###### 23 
-"I will also make it a possession for the porcupine, And marshes of muddy water; I will sweep it with the broom of destruction," says the Lord of hosts. ## Assyria Destroyed 
+"I will also make it a possession for the porcupine, And marshes of muddy water; I will sweep it with the broom of destruction," says the Lord of hosts.
+
+## Assyria Destroyed 
 
 ###### 24 
 The Lord of hosts has sworn, saying, "Surely, as I have thought, so it shall come to pass, And as I have purposed, _so_ it shall stand: 

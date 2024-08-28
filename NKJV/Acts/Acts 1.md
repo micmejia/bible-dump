@@ -15,7 +15,9 @@ The former account I made, O Theophilus, of all that Jesus began both to do and 
 until the day in which He was taken up, after He through the Holy Spirit had given commandments to the apostles whom He had chosen, 
 
 ###### 3 
-to whom He also presented Himself alive after His suffering by many infallible proofs, being seen by them during forty days and speaking of the things pertaining to the kingdom of God. ## The Holy Spirit Promised 
+to whom He also presented Himself alive after His suffering by many infallible proofs, being seen by them during forty days and speaking of the things pertaining to the kingdom of God.
+
+## The Holy Spirit Promised 
 
 ###### 4 
 And being assembled together with _them,_ He commanded them not to depart from Jerusalem, but to wait for the Promise of the Father, "which," _He said,_ "you have heard from Me; 
@@ -48,7 +50,9 @@ Then they returned to Jerusalem from the mount called Olivet, which is near Jeru
 And when they had entered, they went up into the upper room where they were staying: Peter, James, John, and Andrew; Philip and Thomas; Bartholomew and Matthew; James _the son_ of Alphaeus and Simon the Zealot; and Judas _the son_ of James. 
 
 ###### 14 
-These all continued with one accord in prayer and supplication, with the women and Mary the mother of Jesus, and with His brothers. ## Matthias Chosen 
+These all continued with one accord in prayer and supplication, with the women and Mary the mother of Jesus, and with His brothers.
+
+## Matthias Chosen 
 
 ###### 15 
 And in those days Peter stood up in the midst of the disciples (altogether the number of names was about a hundred and twenty), and said, 

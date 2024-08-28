@@ -73,7 +73,9 @@ And He said to them, "Whose image and inscription _is_ this?"
 They said to Him, "Caesar's." And He said to them, "Render therefore to Caesar the things that are Caesar's, and to God the things that are God's." 
 
 ###### 22 
-When they had heard _these words,_ they marveled, and left Him and went their way. ## The Sadducees: What About the Resurrection? 
+When they had heard _these words,_ they marveled, and left Him and went their way.
+
+## The Sadducees: What About the Resurrection? 
 
 ###### 23 
 The same day the Sadducees, who say there is no resurrection, came to Him and asked Him, 
@@ -106,7 +108,9 @@ But concerning the resurrection of the dead, have you not read what was spoken t
 'I am the God of Abraham, the God of Isaac, and the God of Jacob'? God is not the God of the dead, but of the living." 
 
 ###### 33 
-And when the multitudes heard _this,_ they were astonished at His teaching. ## The Scribes: Which Is the First Commandment of All? 
+And when the multitudes heard _this,_ they were astonished at His teaching.
+
+## The Scribes: Which Is the First Commandment of All? 
 
 ###### 34 
 But when the Pharisees heard that He had silenced the Sadducees, they gathered together. 

@@ -139,7 +139,9 @@ Kaya hindi tayo makakaligtas kung babalewalain natin ang dakilang kaligtasang it
 
 
 
-Pinatunayan din ito ng Dios sa pamamagitan ng mga himala at mga kamangha-manghang gawa, at ibaʼt ibang kakayahang kaloob ng Banal na Espiritu na ipinamahagi niya ayon sa kanyang kalooban. ## Dumating ang Kaligtasan sa Pamamagitan ni Cristo 
+Pinatunayan din ito ng Dios sa pamamagitan ng mga himala at mga kamangha-manghang gawa, at ibaʼt ibang kakayahang kaloob ng Banal na Espiritu na ipinamahagi niya ayon sa kanyang kalooban.
+
+## Dumating ang Kaligtasan sa Pamamagitan ni Cristo 
 
 
 

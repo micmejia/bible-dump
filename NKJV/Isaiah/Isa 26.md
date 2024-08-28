@@ -64,7 +64,9 @@ As a woman with child Is in pain and cries out in her pangs, _When_ she draws ne
 We have been with child, we have been in pain; We have, as it were, brought forth wind; We have not accomplished any deliverance in the earth, Nor have the inhabitants of the world fallen. 
 
 ###### 19 
-Your dead shall live; _Together with_ my dead body they shall arise. Awake and sing, you who dwell in dust; For your dew _is like_ the dew of herbs, And the earth shall cast out the dead. ## Take Refuge from the Coming Judgment 
+Your dead shall live; _Together with_ my dead body they shall arise. Awake and sing, you who dwell in dust; For your dew _is like_ the dew of herbs, And the earth shall cast out the dead.
+
+## Take Refuge from the Coming Judgment 
 
 ###### 20 
 Come, my people, enter your chambers, And shut your doors behind you; Hide yourself, as it were, for a little moment, Until the indignation is past. 

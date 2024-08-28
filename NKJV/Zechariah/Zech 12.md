@@ -34,7 +34,9 @@ In that day I will make the governors of Judah like a firepan in the woodpile, a
 In that day the Lord will defend the inhabitants of Jerusalem; the one who is feeble among them in that day shall be like David, and the house of David _shall be_ like God, like the Angel of the Lord before them. 
 
 ###### 9 
-It shall be in that day _that_ I will seek to destroy all the nations that come against Jerusalem. ## Mourning for the Pierced One 
+It shall be in that day _that_ I will seek to destroy all the nations that come against Jerusalem.
+
+## Mourning for the Pierced One 
 
 ###### 10 
 "And I will pour on the house of David and on the inhabitants of Jerusalem the Spirit of grace and supplication; then they will look on Me whom they pierced. Yes, they will mourn for Him as one mourns for _his_ only _son,_ and grieve for Him as one grieves for a firstborn. 

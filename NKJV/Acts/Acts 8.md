@@ -16,7 +16,9 @@ Now Saul was consenting to his death. At that time a great persecution arose aga
 And devout men carried Stephen _to his burial,_ and made great lamentation over him. 
 
 ###### 3 
-As for Saul, he made havoc of the church, entering every house, and dragging off men and women, committing _them_ to prison. ## Christ Is Preached in Samaria 
+As for Saul, he made havoc of the church, entering every house, and dragging off men and women, committing _them_ to prison.
+
+## Christ Is Preached in Samaria 
 
 ###### 4 
 Therefore those who were scattered went everywhere preaching the word. 
@@ -31,7 +33,9 @@ And the multitudes with one accord heeded the things spoken by Philip, hearing a
 For unclean spirits, crying with a loud voice, came out of many who were possessed; and many who were paralyzed and lame were healed. 
 
 ###### 8 
-And there was great joy in that city. ## The Sorcerer's Profession of Faith 
+And there was great joy in that city.
+
+## The Sorcerer's Profession of Faith 
 
 ###### 9 
 But there was a certain man called Simon, who previously practiced sorcery in the city and astonished the people of Samaria, claiming that he was someone great, 
@@ -46,7 +50,9 @@ And they heeded him because he had astonished them with his sorceries for a long
 But when they believed Philip as he preached the things concerning the kingdom of God and the name of Jesus Christ, both men and women were baptized. 
 
 ###### 13 
-Then Simon himself also believed; and when he was baptized he continued with Philip, and was amazed, seeing the miracles and signs which were done. ## The Sorcerer's Sin 
+Then Simon himself also believed; and when he was baptized he continued with Philip, and was amazed, seeing the miracles and signs which were done.
+
+## The Sorcerer's Sin 
 
 ###### 14 
 Now when the apostles who were at Jerusalem heard that Samaria had received the word of God, they sent Peter and John to them, 
@@ -82,7 +88,9 @@ For I see that you are poisoned by bitterness and bound by iniquity."
 Then Simon answered and said, "Pray to the Lord for me, that none of the things which you have spoken may come upon me." 
 
 ###### 25 
-So when they had testified and preached the word of the Lord, they returned to Jerusalem, preaching the gospel in many villages of the Samaritans. ## Christ Is Preached to an Ethiopian 
+So when they had testified and preached the word of the Lord, they returned to Jerusalem, preaching the gospel in many villages of the Samaritans.
+
+## Christ Is Preached to an Ethiopian 
 
 ###### 26 
 Now an angel of the Lord spoke to Philip, saying, "Arise and go toward the south along the road which goes down from Jerusalem to Gaza." This is desert. 

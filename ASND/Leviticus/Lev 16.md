@@ -271,7 +271,9 @@ Ang kambing na nabunot sa pamamagitan ng palabunutan na para sa Panginoon ay ang
 
 
 
-Pero ang kambing na nabunot para kay Azazel ang ihahandog niyang buhay sa Panginoon at saka niya ito pakakawalan sa ilang para matubos ang mga tao sa kanilang mga kasalanan. ## Ang mga Detalye ng Seremonyang Iyon 
+Pero ang kambing na nabunot para kay Azazel ang ihahandog niyang buhay sa Panginoon at saka niya ito pakakawalan sa ilang para matubos ang mga tao sa kanilang mga kasalanan.
+
+## Ang mga Detalye ng Seremonyang Iyon 
 
 
 

@@ -436,7 +436,9 @@ Hindi kami nagkulang sa pagmamahal sa inyo. Kayo ang nagkulang sa pagmamahal sa 
 
 
 
-Nakikiusap ako sa inyo tulad ng isang ama sa kanyang mga anak: Mahalin ninyo ako tulad ng pagmamahal ko sa inyo. ## Huwag Makikiisa sa mga Hindi Mananampalataya 
+Nakikiusap ako sa inyo tulad ng isang ama sa kanyang mga anak: Mahalin ninyo ako tulad ng pagmamahal ko sa inyo.
+
+## Huwag Makikiisa sa mga Hindi Mananampalataya 
 
 
 

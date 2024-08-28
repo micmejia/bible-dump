@@ -22,7 +22,9 @@ that no one should be shaken by these afflictions; for you yourselves know that 
 For, in fact, we told you before when we were with you that we would suffer tribulation, just as it happened, and you know. 
 
 ###### 5 
-For this reason, when I could no longer endure it, I sent to know your faith, lest by some means the tempter had tempted you, and our labor might be in vain. ## Encouraged by Timothy 
+For this reason, when I could no longer endure it, I sent to know your faith, lest by some means the tempter had tempted you, and our labor might be in vain.
+
+## Encouraged by Timothy 
 
 ###### 6 
 But now that Timothy has come to us from you, and brought us good news of your faith and love, and that you always have good remembrance of us, greatly desiring to see us, as we also _to see_ you-- 

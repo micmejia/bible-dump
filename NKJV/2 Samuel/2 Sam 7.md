@@ -58,7 +58,9 @@ But My mercy shall not depart from him, as I took _it_ from Saul, whom I removed
 And your house and your kingdom shall be established forever before you. Your throne shall be established forever." ' " 
 
 ###### 17 
-According to all these words and according to all this vision, so Nathan spoke to David. ## David's Thanksgiving to God 
+According to all these words and according to all this vision, so Nathan spoke to David.
+
+## David's Thanksgiving to God 
 
 ###### 18 
 Then King David went in and sat before the Lord; and he said: "Who _am_ I, O Lord God? And what is my house, that You have brought me this far? 

@@ -46,7 +46,9 @@ Thus says the Lord, The Holy One of Israel, and his Maker: "Ask Me of things to 
 I have made the earth, And created man on it. I--My hands--stretched out the heavens, And all their host I have commanded. 
 
 ###### 13 
-I have raised him up in righteousness, And I will direct all his ways; He shall build My city And let My exiles go free, Not for price nor reward," Says the Lord of hosts. ## The Lord, the Only Savior 
+I have raised him up in righteousness, And I will direct all his ways; He shall build My city And let My exiles go free, Not for price nor reward," Says the Lord of hosts.
+
+## The Lord, the Only Savior 
 
 ###### 14 
 Thus says the Lord: "The labor of Egypt and merchandise of Cush And of the Sabeans, men of stature, Shall come over to you, and they shall be yours; They shall walk behind you, They shall come over in chains; And they shall bow down to you. They will make supplication to you, _saying,_ 'Surely God _is_ in you, And _there is_ no other; _There is_ no other God.' " 

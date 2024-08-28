@@ -205,7 +205,9 @@ Kaya pumunta ang mga anak ni Jacob sa Egipto kasama ng mga taga-ibang lugar para
 
 
 
-Bilang gobernador ng Egipto, tungkulin ni Jose na pagbilhan ng pagkain ang lahat ng tao. Kaya pagdating ng mga kapatid niya, yumukod sila kay Jose <i class="trans-change">bilang paggalang sa kanya_. ###### 7-9 Pagkakita ni Jose sa kanila, nakilala niya agad ang mga ito pero siyaʼy hindi nila nakilala. Hindi lang siya nagpahalata na siya si Jose. Nagtanong siya sa kanila kung taga-saan sila. Sumagot sila, "Taga-Canaan po kami, at pumunta po kami rito para bumili ng pagkain." Naalala agad ni Jose ang panaginip niya tungkol sa kanila <i class="trans-change">na naging dahilan kung bakit sila nagalit sa kanya_. Kaya nagsalita siya ng masasakit na salita sa kanila, "Mga espiya kayo! Pumunta kayo rito para tingnan kung ano ang kahinaan ng bansa namin." 
+Bilang gobernador ng Egipto, tungkulin ni Jose na pagbilhan ng pagkain ang lahat ng tao. Kaya pagdating ng mga kapatid niya, yumukod sila kay Jose <i class="trans-change">bilang paggalang sa kanya_.
+
+###### 7-9 Pagkakita ni Jose sa kanila, nakilala niya agad ang mga ito pero siyaʼy hindi nila nakilala. Hindi lang siya nagpahalata na siya si Jose. Nagtanong siya sa kanila kung taga-saan sila. Sumagot sila, "Taga-Canaan po kami, at pumunta po kami rito para bumili ng pagkain." Naalala agad ni Jose ang panaginip niya tungkol sa kanila <i class="trans-change">na naging dahilan kung bakit sila nagalit sa kanya_. Kaya nagsalita siya ng masasakit na salita sa kanila, "Mga espiya kayo! Pumunta kayo rito para tingnan kung ano ang kahinaan ng bansa namin." 
 
 
 
@@ -700,7 +702,9 @@ Hindi nila alam na nauunawaan ni Jose ang usapan nila dahil habang nakikipag-usa
 
 
 
-Lumayo muna si Jose sa kanila at umiyak. Pero hindi nagtagal, bumalik siya at nakipag-usap sa kanila. Hiniwalay niya si Simeon sa kanila at ipinagapos sa kanilang harapan. ## Bumalik sa Canaan ang mga Kapatid ni Jose 
+Lumayo muna si Jose sa kanila at umiyak. Pero hindi nagtagal, bumalik siya at nakipag-usap sa kanila. Hiniwalay niya si Simeon sa kanila at ipinagapos sa kanilang harapan.
+
+## Bumalik sa Canaan ang mga Kapatid ni Jose 
 
 
 

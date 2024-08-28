@@ -964,7 +964,9 @@ Kinuha ng mga lingkod ni Ahazia ang bangkay niya at isinakay sa karwahe papunta 
 
 
 
-Naging hari ng Juda si Ahazia nang ika-11 taon ng paghahari ni Joram na anak ni Ahab sa Israel. ## Pinatay si Jezebel 
+Naging hari ng Juda si Ahazia nang ika-11 taon ng paghahari ni Joram na anak ni Ahab sa Israel.
+
+## Pinatay si Jezebel 
 
 
 

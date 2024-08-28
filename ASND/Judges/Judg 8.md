@@ -700,7 +700,9 @@ Pagkatapos, sinabi niya sa panganay niyang anak na si Jeter, "Patayin sila!" Per
 
 
 
-Sinabi nina Zeba at Zalmuna <i class="trans-change">kay Gideon_, "Bakit hindi na lang ikaw ang pumatay sa amin? Kung tunay kang lalaki, ikaw na ang pumatay sa amin." Kaya pinatay sila ni Gideon at kinuha niya ang mga palamuti sa leeg ng kanilang mga kamelyo. ## Ang Espesyal na Damit ni Gideon 
+Sinabi nina Zeba at Zalmuna <i class="trans-change">kay Gideon_, "Bakit hindi na lang ikaw ang pumatay sa amin? Kung tunay kang lalaki, ikaw na ang pumatay sa amin." Kaya pinatay sila ni Gideon at kinuha niya ang mga palamuti sa leeg ng kanilang mga kamelyo.
+
+## Ang Espesyal na Damit ni Gideon 
 
 
 
@@ -931,7 +933,9 @@ Mula sa natipon na ginto, nagpagawa si Gideon ng isang espesyal na damit at inil
 
 
 
-Lubusang natalo ng mga Israelita ang mga Midianita at hindi na nakabawi pa ang mga ito. Naging mapayapa ang Israel sa loob ng 40 taon habang nabubuhay si Gideon. ## Ang Pagkamatay ni Gideon 
+Lubusang natalo ng mga Israelita ang mga Midianita at hindi na nakabawi pa ang mga ito. Naging mapayapa ang Israel sa loob ng 40 taon habang nabubuhay si Gideon.
+
+## Ang Pagkamatay ni Gideon 
 
 
 

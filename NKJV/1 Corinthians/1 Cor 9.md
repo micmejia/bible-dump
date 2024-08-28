@@ -61,7 +61,9 @@ For if I preach the gospel, I have nothing to boast of, for necessity is laid up
 For if I do this willingly, I have a reward; but if against my will, I have been entrusted with a stewardship. 
 
 ###### 18 
-What is my reward then? That when I preach the gospel, I may present the gospel of Christ without charge, that I may not abuse my authority in the gospel. ## Serving All Men 
+What is my reward then? That when I preach the gospel, I may present the gospel of Christ without charge, that I may not abuse my authority in the gospel.
+
+## Serving All Men 
 
 ###### 19 
 For though I am free from all _men,_ I have made myself a servant to all, that I might win the more; 
@@ -76,7 +78,9 @@ to those _who are_ without law, as without law (not being without law toward God
 to the weak I became as weak, that I might win the weak. I have become all things to all _men,_ that I might by all means save some. 
 
 ###### 23 
-Now this I do for the gospel's sake, that I may be partaker of it with _you._ ## Striving for a Crown 
+Now this I do for the gospel's sake, that I may be partaker of it with _you._
+
+## Striving for a Crown 
 
 ###### 24 
 Do you not know that those who run in a race all run, but one receives the prize? Run in such a way that you may obtain _it._ 

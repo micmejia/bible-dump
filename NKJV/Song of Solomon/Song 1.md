@@ -9,7 +9,9 @@ next: ['Song 2']
 
 
 ###### 1 
-The song of songs, which _is_ Solomon's. ## The Banquet 
+The song of songs, which _is_ Solomon's.
+
+## The Banquet 
 
 ###### 2 
 Let him kiss me with the kisses of his mouth-- For your love _is_ better than wine. 

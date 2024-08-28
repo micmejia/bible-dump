@@ -31,7 +31,9 @@ You shall not seek their peace nor their prosperity all your days forever.
 "You shall not abhor an Edomite, for he _is_ your brother. You shall not abhor an Egyptian, because you were an alien in his land. 
 
 ###### 8 
-The children of the third generation born to them may enter the assembly of the Lord. ## Cleanliness of the Campsite 
+The children of the third generation born to them may enter the assembly of the Lord.
+
+## Cleanliness of the Campsite 
 
 ###### 9 
 "When the army goes out against your enemies, then keep yourself from every wicked thing. 
@@ -49,7 +51,9 @@ But it shall be, when evening comes, that he shall wash with water; and when the
 and you shall have an implement among your equipment, and when you sit down outside, you shall dig with it and turn and cover your refuse. 
 
 ###### 14 
-For the Lord your God walks in the midst of your camp, to deliver you and give your enemies over to you; therefore your camp shall be holy, that He may see no unclean thing among you, and turn away from you. ## Miscellaneous Laws 
+For the Lord your God walks in the midst of your camp, to deliver you and give your enemies over to you; therefore your camp shall be holy, that He may see no unclean thing among you, and turn away from you.
+
+## Miscellaneous Laws 
 
 ###### 15 
 "You shall not give back to his master the slave who has escaped from his master to you. 

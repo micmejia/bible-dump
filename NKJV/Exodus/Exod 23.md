@@ -34,7 +34,9 @@ Keep yourself far from a false matter; do not kill the innocent and righteous. F
 And you shall take no bribe, for a bribe blinds the discerning and perverts the words of the righteous. 
 
 ###### 9 
-"Also you shall not oppress a stranger, for you know the heart of a stranger, because you were strangers in the land of Egypt. ## The Law of Sabbaths 
+"Also you shall not oppress a stranger, for you know the heart of a stranger, because you were strangers in the land of Egypt.
+
+## The Law of Sabbaths 
 
 ###### 10 
 "Six years you shall sow your land and gather in its produce, 
@@ -46,7 +48,9 @@ but the seventh _year_ you shall let it rest and lie fallow, that the poor of yo
 Six days you shall do your work, and on the seventh day you shall rest, that your ox and your donkey may rest, and the son of your female servant and the stranger may be refreshed. 
 
 ###### 13 
-"And in all that I have said to you, be circumspect and make no mention of the name of other gods, nor let it be heard from your mouth. ## Three Annual Feasts 
+"And in all that I have said to you, be circumspect and make no mention of the name of other gods, nor let it be heard from your mouth.
+
+## Three Annual Feasts 
 
 ###### 14 
 "Three times you shall keep a feast to Me in the year: 
@@ -64,7 +68,9 @@ and the Feast of Harvest, the firstfruits of your labors which you have sown in 
 "You shall not offer the blood of My sacrifice with leavened bread; nor shall the fat of My sacrifice remain until morning. 
 
 ###### 19 
-The first of the firstfruits of your land you shall bring into the house of the Lord your God. You shall not boil a young goat in its mother's milk. ## The Angel and the Promises 
+The first of the firstfruits of your land you shall bring into the house of the Lord your God. You shall not boil a young goat in its mother's milk.
+
+## The Angel and the Promises 
 
 ###### 20 
 "Behold, I send an Angel before you to keep you in the way and to bring you into the place which I have prepared. 

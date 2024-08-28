@@ -70,7 +70,9 @@ The foundations of the wall of the city _were_ adorned with all kinds of preciou
 the fifth sardonyx, the sixth sardius, the seventh chrysolite, the eighth beryl, the ninth topaz, the tenth chrysoprase, the eleventh jacinth, and the twelfth amethyst. 
 
 ###### 21 
-The twelve gates _were_ twelve pearls: each individual gate was of one pearl. And the street of the city _was_ pure gold, like transparent glass. ## The Glory of the New Jerusalem 
+The twelve gates _were_ twelve pearls: each individual gate was of one pearl. And the street of the city _was_ pure gold, like transparent glass.
+
+## The Glory of the New Jerusalem 
 
 ###### 22 
 But I saw no temple in it, for the Lord God Almighty and the Lamb are its temple. 

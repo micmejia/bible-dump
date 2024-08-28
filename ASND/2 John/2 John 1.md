@@ -104,7 +104,9 @@ up: ['2 John']
 
 
 
-Manatili sana sa atin ang biyaya, awa, at kapayapaang galing sa Dios Ama at sa Panginoong Jesu-Cristo na kanyang Anak, habang namumuhay tayo sa katotohanan at pag-ibig. ## Ang Katotohanan at Ang Pag-ibig 
+Manatili sana sa atin ang biyaya, awa, at kapayapaang galing sa Dios Ama at sa Panginoong Jesu-Cristo na kanyang Anak, habang namumuhay tayo sa katotohanan at pag-ibig.
+
+## Ang Katotohanan at Ang Pag-ibig 
 
 
 

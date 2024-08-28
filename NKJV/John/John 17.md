@@ -22,7 +22,9 @@ And this is eternal life, that they may know You, the only true God, and Jesus C
 I have glorified You on the earth. I have finished the work which You have given Me to do. 
 
 ###### 5 
-And now, O Father, glorify Me together with Yourself, with the glory which I had with You before the world was. ## Jesus Prays for His Disciples 
+And now, O Father, glorify Me together with Yourself, with the glory which I had with You before the world was.
+
+## Jesus Prays for His Disciples 
 
 ###### 6 
 "I have manifested Your name to the men whom You have given Me out of the world. They were Yours, You gave them to Me, and they have kept Your word. 
@@ -64,7 +66,9 @@ Sanctify them by Your truth. Your word is truth.
 As You sent Me into the world, I also have sent them into the world. 
 
 ###### 19 
-And for their sakes I sanctify Myself, that they also may be sanctified by the truth. ## Jesus Prays for All Believers 
+And for their sakes I sanctify Myself, that they also may be sanctified by the truth.
+
+## Jesus Prays for All Believers 
 
 ###### 20 
 "I do not pray for these alone, but also for those who will believe in Me through their word; 

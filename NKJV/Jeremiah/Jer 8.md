@@ -16,7 +16,9 @@ next: ['Jer 9']
 They shall spread them before the sun and the moon and all the host of heaven, which they have loved and which they have served and after which they have walked, which they have sought and which they have worshiped. They shall not be gathered nor buried; they shall be like refuse on the face of the earth. 
 
 ###### 3 
-Then death shall be chosen rather than life by all the residue of those who remain of this evil family, who remain in all the places where I have driven them," says the Lord of hosts. ## The Peril of False Teaching 
+Then death shall be chosen rather than life by all the residue of those who remain of this evil family, who remain in all the places where I have driven them," says the Lord of hosts.
+
+## The Peril of False Teaching 
 
 ###### 4 
 "Moreover you shall say to them, 'Thus says the Lord: "Will they fall and not rise? Will one turn away and not return? 
@@ -58,7 +60,9 @@ Were they ashamed when they had committed abomination? No! They were not at all 
 The snorting of His horses was heard from Dan. The whole land trembled at the sound of the neighing of His strong ones; For they have come and devoured the land and all that is in it, The city and those who dwell in it." 
 
 ###### 17 
-"For behold, I will send serpents among you, Vipers which cannot be charmed, And they shall bite you," says the Lord. ## The Prophet Mourns for the People 
+"For behold, I will send serpents among you, Vipers which cannot be charmed, And they shall bite you," says the Lord.
+
+## The Prophet Mourns for the People 
 
 ###### 18 
 I would comfort myself in sorrow; My heart _is_ faint in me. 

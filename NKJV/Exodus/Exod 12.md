@@ -91,13 +91,17 @@ And it shall be, when your children say to you, 'What do you mean by this servic
 that you shall say, 'It _is_ the Passover sacrifice of the Lord, who passed over the houses of the children of Israel in Egypt when He struck the Egyptians and delivered our households.' " So the people bowed their heads and worshiped. 
 
 ###### 28 
-Then the children of Israel went away and did _so;_ just as the Lord had commanded Moses and Aaron, so they did. ## The Tenth Plague: Death of the Firstborn 
+Then the children of Israel went away and did _so;_ just as the Lord had commanded Moses and Aaron, so they did.
+
+## The Tenth Plague: Death of the Firstborn 
 
 ###### 29 
 And it came to pass at midnight that the Lord struck all the firstborn in the land of Egypt, from the firstborn of Pharaoh who sat on his throne to the firstborn of the captive who _was_ in the dungeon, and all the firstborn of livestock. 
 
 ###### 30 
-So Pharaoh rose in the night, he, all his servants, and all the Egyptians; and there was a great cry in Egypt, for _there was_ not a house where _there was_ not one dead. ## The Exodus 
+So Pharaoh rose in the night, he, all his servants, and all the Egyptians; and there was a great cry in Egypt, for _there was_ not a house where _there was_ not one dead.
+
+## The Exodus 
 
 ###### 31 
 Then he called for Moses and Aaron by night, and said, "Rise, go out from among my people, both you and the children of Israel. And go, serve the Lord as you have said. 
@@ -133,7 +137,9 @@ Now the sojourn of the children of Israel who lived in Egypt _was_ four hundred 
 And it came to pass at the end of the four hundred and thirty years--on that very same day--it came to pass that all the armies of the Lord went out from the land of Egypt. 
 
 ###### 42 
-It _is_ a night of solemn observance to the Lord for bringing them out of the land of Egypt. This _is_ that night of the Lord, a solemn observance for all the children of Israel throughout their generations. ## Passover Regulations 
+It _is_ a night of solemn observance to the Lord for bringing them out of the land of Egypt. This _is_ that night of the Lord, a solemn observance for all the children of Israel throughout their generations.
+
+## Passover Regulations 
 
 ###### 43 
 And the Lord said to Moses and Aaron, "This _is_ the ordinance of the Passover: No foreigner shall eat it. 

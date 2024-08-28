@@ -304,7 +304,9 @@ Nang marinig iyon ng mga tao at ng mga opisyal, nagkagulo sila.
 
 
 
-Bago nila pinakawalan si Jason at ang kanyang mga kasama, pinagpiyansa muna sila. ## Sina Pablo at Silas sa Berea 
+Bago nila pinakawalan si Jason at ang kanyang mga kasama, pinagpiyansa muna sila.
+
+## Sina Pablo at Silas sa Berea 
 
 
 
@@ -502,7 +504,9 @@ Kaya inihatid ng mga mananampalataya si Pablo sa tabing-dagat. Pero sina Silas a
 
 
 
-Ang mga taong naghatid kay Pablo ay sumama sa kanya hanggang sa Athens. Pagkatapos, bumalik sila sa Berea na dala ang bilin <i class="trans-change">ni Pablo_ na pasunurin sa kanya sa Athens sina Silas at Timoteo. ## Nangaral si Pablo sa Athens 
+Ang mga taong naghatid kay Pablo ay sumama sa kanya hanggang sa Athens. Pagkatapos, bumalik sila sa Berea na dala ang bilin <i class="trans-change">ni Pablo_ na pasunurin sa kanya sa Athens sina Silas at Timoteo.
+
+## Nangaral si Pablo sa Athens 
 
 
 

@@ -172,7 +172,9 @@ Pagkatapos, pinuntahan nila ang mga bayan at ipinaalam nila sa mga mananampalata
 
 
 
-Kaya lalong tumibay ang pananampalataya ng mga iglesya, at araw-araw ay nadadagdagan pa ang bilang ng mga mananampalataya. ## Ang Pangitain ni Pablo tungkol sa Lalaking Taga-Macedonia 
+Kaya lalong tumibay ang pananampalataya ng mga iglesya, at araw-araw ay nadadagdagan pa ang bilang ng mga mananampalataya.
+
+## Ang Pangitain ni Pablo tungkol sa Lalaking Taga-Macedonia 
 
 
 
@@ -337,7 +339,9 @@ Nang gabing iyon, ipinakita <i class="trans-change">ng Dios_ kay Pablo ang isang
 
 
 
-Pagkatapos makita ni Pablo ang pangitaing iyon, gumayak agad kami papunta sa Macedonia, dahil naramdaman naming pinapapunta kami roon ng Dios para mangaral ng Magandang Balita sa mga taga-roon. ## Naniwala si Lydia kay Jesus 
+Pagkatapos makita ni Pablo ang pangitaing iyon, gumayak agad kami papunta sa Macedonia, dahil naramdaman naming pinapapunta kami roon ng Dios para mangaral ng Magandang Balita sa mga taga-roon.
+
+## Naniwala si Lydia kay Jesus 
 
 
 
@@ -502,7 +506,9 @@ Isa sa mga nakikinig sa amin ay si Lydia na taga-Tyatira. Siyaʼy isang negosyan
 
 
 
-Nagpabautismo siya at ang kanyang pamilya. Pagkatapos, sinabi niya, "Kung naniniwala kayo na ako ay isa nang tunay na mananampalataya sa Panginoon, doon na kayo tumuloy sa aking bahay." At nakumbinsi niya kaming <i class="trans-change">tumuloy sa bahay nila_. ## Sina Pablo at Silas sa Bilangguan 
+Nagpabautismo siya at ang kanyang pamilya. Pagkatapos, sinabi niya, "Kung naniniwala kayo na ako ay isa nang tunay na mananampalataya sa Panginoon, doon na kayo tumuloy sa aking bahay." At nakumbinsi niya kaming <i class="trans-change">tumuloy sa bahay nila_.
+
+## Sina Pablo at Silas sa Bilangguan 
 
 
 

@@ -15,7 +15,9 @@ Now the word of the Lord came to Jonah the son of Amittai, saying,
 "Arise, go to Nineveh, that great city, and cry out against it; for their wickedness has come up before Me." 
 
 ###### 3 
-But Jonah arose to flee to Tarshish from the presence of the Lord. He went down to Joppa, and found a ship going to Tarshish; so he paid the fare, and went down into it, to go with them to Tarshish from the presence of the Lord. ## The Storm at Sea 
+But Jonah arose to flee to Tarshish from the presence of the Lord. He went down to Joppa, and found a ship going to Tarshish; so he paid the fare, and went down into it, to go with them to Tarshish from the presence of the Lord.
+
+## The Storm at Sea 
 
 ###### 4 
 But the Lord sent out a great wind on the sea, and there was a mighty tempest on the sea, so that the ship was about to be broken up. 
@@ -54,7 +56,9 @@ Therefore they cried out to the Lord and said, "We pray, O Lord, please do not l
 So they picked up Jonah and threw him into the sea, and the sea ceased from its raging. 
 
 ###### 16 
-Then the men feared the Lord exceedingly, and offered a sacrifice to the Lord and took vows. ## Jonah's Prayer and Deliverance 
+Then the men feared the Lord exceedingly, and offered a sacrifice to the Lord and took vows.
+
+## Jonah's Prayer and Deliverance 
 
 ###### 17 
 Now the Lord had prepared a great fish to swallow Jonah. And Jonah was in the belly of the fish three days and three nights.

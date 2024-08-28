@@ -337,7 +337,9 @@ Ang bilang ng mga taong kumain ay mga 4,000. Pagkatapos ay pinauwi na ni Jesus a
 
 
 
-at agad siyang sumakay sa bangka kasama ang mga tagasunod niya, at pumunta sila sa Dalmanuta. ## Humingi ng Himala ang mga Pariseo 
+at agad siyang sumakay sa bangka kasama ang mga tagasunod niya, at pumunta sila sa Dalmanuta.
+
+## Humingi ng Himala ang mga Pariseo 
 
 
 
@@ -436,7 +438,9 @@ Pero napabuntong-hininga si Jesus at sinabi, "Bakit nga ba humihingi ng himala a
 
 
 
-Pagkatapos, iniwan niya sila. Sumakay ulit siya sa bangka at tumawid sa kabila <i class="trans-change">ng lawa_. ## Ang Pampaalsa ng mga Pariseo at ni Haring Herodes 
+Pagkatapos, iniwan niya sila. Sumakay ulit siya sa bangka at tumawid sa kabila <i class="trans-change">ng lawa_.
+
+## Ang Pampaalsa ng mga Pariseo at ni Haring Herodes 
 
 
 
@@ -931,7 +935,9 @@ Tinanong sila ni Jesus, "Pero para sa inyo, sino ako?" Sumagot si Pedro, "Kayo p
 
 
 
-Sinabihan sila ni Jesus na huwag nilang ipaalam kahit kanino na siya ang Cristo. ## Ang Unang Pagpapahayag ni Jesus tungkol sa Kanyang Kamatayan 
+Sinabihan sila ni Jesus na huwag nilang ipaalam kahit kanino na siya ang Cristo.
+
+## Ang Unang Pagpapahayag ni Jesus tungkol sa Kanyang Kamatayan 
 
 
 

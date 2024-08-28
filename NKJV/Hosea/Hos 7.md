@@ -37,7 +37,9 @@ They are all hot, like an oven, And have devoured their judges; All their kings 
 Aliens have devoured his strength, But he does not know _it;_ Yes, gray hairs are here and there on him, Yet he does not know _it._ 
 
 ###### 10 
-And the pride of Israel testifies to his face, But they do not return to the Lord their God, Nor seek Him for all this. ## Futile Reliance on the Nations 
+And the pride of Israel testifies to his face, But they do not return to the Lord their God, Nor seek Him for all this.
+
+## Futile Reliance on the Nations 
 
 ###### 11 
 "Ephraim also is like a silly dove, without sense-- They call to Egypt, They go to Assyria. 

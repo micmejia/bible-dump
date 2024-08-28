@@ -337,7 +337,9 @@ Isipin ninyo na ang Panginoon na inyong Dios ay iisang Dios. Matapat siya at tin
 
 
 
-Ngunit hindi siya magdadalawang-isip na ibagsak ang mga napopoot sa kanya. ## Ang Gantimpala sa Katapatan 
+Ngunit hindi siya magdadalawang-isip na ibagsak ang mga napopoot sa kanya.
+
+## Ang Gantimpala sa Katapatan 
 
 
 

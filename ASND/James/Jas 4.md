@@ -337,7 +337,9 @@ Maging malungkot kayo at maghinagpis <i class="trans-change">dahil sa mga kasala
 
 
 
-Magpakumbaba kayo sa harapan ng Panginoon, at itataas niya kayo. ## Paalala sa Paghuhusga sa Kapwa 
+Magpakumbaba kayo sa harapan ng Panginoon, at itataas niya kayo.
+
+## Paalala sa Paghuhusga sa Kapwa 
 
 
 

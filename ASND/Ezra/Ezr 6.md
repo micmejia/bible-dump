@@ -601,7 +601,9 @@ Sa pagtatalagang ito ng templo ng Dios, naghandog sila ng 100 toro, 200 lalaking
 
 
 
-Itinalaga nila ang mga pari at mga Levita sa kani-kanilang tungkulin sa templo ng Jerusalem ayon sa nakasulat sa Aklat ni Moises. ## Ang Pista ng Paglampas ng Anghel 
+Itinalaga nila ang mga pari at mga Levita sa kani-kanilang tungkulin sa templo ng Jerusalem ayon sa nakasulat sa Aklat ni Moises.
+
+## Ang Pista ng Paglampas ng Anghel 
 
 
 

@@ -337,7 +337,9 @@ At dahil dumami ang kanilang hayop doon sa Gilead, tumira sila hanggang sa silan
 
 
 
-Nang si Saul pa ang hari, nakipaglaban sila sa mga Hagreo at tinalo nila ang mga ito. Sinakop nila ang mga tinitirhan ng mga Hagreo sa buong silangan ng Gilead. ## Ang Lahi ni Gad 
+Nang si Saul pa ang hari, nakipaglaban sila sa mga Hagreo at tinalo nila ang mga ito. Sinakop nila ang mga tinitirhan ng mga Hagreo sa buong silangan ng Gilead.
+
+## Ang Lahi ni Gad 
 
 
 
@@ -733,7 +735,9 @@ Pinagkukuha nila ang hayop ng mga Hagreo: 50,000 kamelyo, 250,000 tupa at 2,000 
 
 
 
-at marami silang napatay dahil tinulungan sila ng Dios sa pakikipaglaban. Tinirhan nila ang mga lugar na ito hanggang sa mabihag sila <i class="trans-change">ng ibang bansa_. ## Ang Kalahating Lahi ni Manase 
+at marami silang napatay dahil tinulungan sila ng Dios sa pakikipaglaban. Tinirhan nila ang mga lugar na ito hanggang sa mabihag sila <i class="trans-change">ng ibang bansa_.
+
+## Ang Kalahating Lahi ni Manase 
 
 
 

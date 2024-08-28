@@ -43,7 +43,9 @@ Now let them put their harlotry and the carcasses of their kings far away from M
 And if they are ashamed of all that they have done, make known to them the design of the temple and its arrangement, its exits and its entrances, its entire design and all its ordinances, all its forms and all its laws. Write _it_ down in their sight, so that they may keep its whole design and all its ordinances, and perform them. 
 
 ###### 12 
-This _is_ the law of the temple: The whole area surrounding the mountaintop _is_ most holy. Behold, this _is_ the law of the temple. ## Dimensions of the Altar 
+This _is_ the law of the temple: The whole area surrounding the mountaintop _is_ most holy. Behold, this _is_ the law of the temple.
+
+## Dimensions of the Altar 
 
 ###### 13 
 "These are the measurements of the altar in cubits (the cubit _is_ one cubit and a handbreadth): the base one cubit high and one cubit wide, with a rim all around its edge of one span. This _is_ the height of the altar: 

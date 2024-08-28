@@ -28,7 +28,9 @@ And the saying pleased the whole multitude. And they chose Stephen, a man full o
 whom they set before the apostles; and when they had prayed, they laid hands on them. 
 
 ###### 7 
-Then the word of God spread, and the number of the disciples multiplied greatly in Jerusalem, and a great many of the priests were obedient to the faith. ## Stephen Accused of Blasphemy 
+Then the word of God spread, and the number of the disciples multiplied greatly in Jerusalem, and a great many of the priests were obedient to the faith.
+
+## Stephen Accused of Blasphemy 
 
 ###### 8 
 And Stephen, full of faith and power, did great wonders and signs among the people. 

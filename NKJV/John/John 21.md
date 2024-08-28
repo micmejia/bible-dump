@@ -48,7 +48,9 @@ Jesus said to them, "Come _and_ eat breakfast." Yet none of the disciples dared 
 Jesus then came and took the bread and gave it to them, and likewise the fish. 
 
 ###### 14 
-This _is_ now the third time Jesus showed Himself to His disciples after He was raised from the dead. ## Jesus Restores Peter 
+This _is_ now the third time Jesus showed Himself to His disciples after He was raised from the dead.
+
+## Jesus Restores Peter 
 
 ###### 15 
 So when they had eaten breakfast, Jesus said to Simon Peter, "Simon, _son_ of Jonah, do you love Me more than these?" He said to Him, "Yes, Lord; You know that I love You." He said to him, "Feed My lambs." 

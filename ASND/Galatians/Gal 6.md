@@ -336,7 +336,9 @@ Kaya huwag tayong magsasawa sa paggawa ng mabuti, dahil sa tamang panahon matata
 
 
 
-Kaya nga sa tuwing may pagkakataon, gumawa tayo ng kabutihan sa lahat ng tao, lalo na sa mga kapatid natin sa pananampalataya. ## Mga Huling Bilin 
+Kaya nga sa tuwing may pagkakataon, gumawa tayo ng kabutihan sa lahat ng tao, lalo na sa mga kapatid natin sa pananampalataya.
+
+## Mga Huling Bilin 
 
 
 

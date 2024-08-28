@@ -502,7 +502,9 @@ Hindi pa nangyari ang ganito mula noon, mula noon, na sumagot ang Panginoon sa p
 
 
 
-Pagkatapos, bumalik si Josue at ang lahat ng mga Israelita sa kampo nila sa Gilgal. ## Pinatay ang Limang Hari ng mga Amoreo 
+Pagkatapos, bumalik si Josue at ang lahat ng mga Israelita sa kampo nila sa Gilgal.
+
+## Pinatay ang Limang Hari ng mga Amoreo 
 
 
 
@@ -898,7 +900,9 @@ At pinatay ni Josue ang limang hari at ipinabitin sa limang puno hanggang hapon.
 
 
 
-Nang lumubog na ang araw, ipinakuha ni Josue ang mga bangkay nila at ipinatapon sa kweba na pinagtaguan nila. Tinakpan nila ang bunganga ng kweba ng malalaking bato na hanggang ngayon ay naroon pa. ## Sinakop ni Josue ang Iba pang mga Lugar ng mga Amoreo 
+Nang lumubog na ang araw, ipinakuha ni Josue ang mga bangkay nila at ipinatapon sa kweba na pinagtaguan nila. Tinakpan nila ang bunganga ng kweba ng malalaking bato na hanggang ngayon ay naroon pa.
+
+## Sinakop ni Josue ang Iba pang mga Lugar ng mga Amoreo 
 
 
 

@@ -238,7 +238,9 @@ Kasunod naman niyang dumating si Simon Pedro, at pumasok siya sa loob ng libinga
 
 
 
-maging ang ipinambalot sa ulo ni Jesus. Nakatiklop ito sa mismong lugar nito, at nakahiwalay sa ibang pang mga tela. ###### 8-9 Pumasok na rin ang tagasunod na naunang nakarating, at nakita rin niya <i class="trans-change">ang mga ito_. Kahit na hindi pa nila nauunawaan ang tungkol sa sinasabi ng Kasulatan na si Jesus ay muling mabubuhay, naniwala siya <i class="trans-change">na muling nabuhay si Jesus_. 
+maging ang ipinambalot sa ulo ni Jesus. Nakatiklop ito sa mismong lugar nito, at nakahiwalay sa ibang pang mga tela.
+
+###### 8-9 Pumasok na rin ang tagasunod na naunang nakarating, at nakita rin niya <i class="trans-change">ang mga ito_. Kahit na hindi pa nila nauunawaan ang tungkol sa sinasabi ng Kasulatan na si Jesus ay muling mabubuhay, naniwala siya <i class="trans-change">na muling nabuhay si Jesus_. 
 
 
 
@@ -271,7 +273,9 @@ maging ang ipinambalot sa ulo ni Jesus. Nakatiklop ito sa mismong lugar nito, at
 
 
 
-Pagkatapos nito, umuwi ang dalawang tagasunod. ## Nagpakita si Jesus kay Maria na Taga-Magdala 
+Pagkatapos nito, umuwi ang dalawang tagasunod.
+
+## Nagpakita si Jesus kay Maria na Taga-Magdala 
 
 
 
@@ -535,7 +539,9 @@ Sinabi ni Jesus, "Huwag mo akong hawakan, dahil hindi pa ako nakakabalik sa akin
 
 
 
-Kaya pinuntahan ni Maria na taga-Magdala ang mga tagasunod <i class="trans-change">ni Jesus_ at ibinalita sa kanila na nakita niya ang Panginoon. At sinabi niya sa kanila ang mga ipinapasabi ni Jesus. ## Nagpakita si Jesus sa mga Tagasunod Niya 
+Kaya pinuntahan ni Maria na taga-Magdala ang mga tagasunod <i class="trans-change">ni Jesus_ at ibinalita sa kanila na nakita niya ang Panginoon. At sinabi niya sa kanila ang mga ipinapasabi ni Jesus.
+
+## Nagpakita si Jesus sa mga Tagasunod Niya 
 
 
 

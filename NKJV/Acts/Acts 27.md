@@ -31,7 +31,9 @@ There the centurion found an Alexandrian ship sailing to Italy, and he put us on
 When we had sailed slowly many days, and arrived with difficulty off Cnidus, the wind not permitting us to proceed, we sailed under _the shelter of_ Crete off Salmone. 
 
 ###### 8 
-Passing it with difficulty, we came to a place called Fair Havens, near the city _of_ Lasea. ## Paul's Warning Ignored 
+Passing it with difficulty, we came to a place called Fair Havens, near the city _of_ Lasea.
+
+## Paul's Warning Ignored 
 
 ###### 9 
 Now when much time had been spent, and sailing was now dangerous because the Fast was already over, Paul advised them, 
@@ -43,7 +45,9 @@ saying, "Men, I perceive that this voyage will end with disaster and much loss, 
 Nevertheless the centurion was more persuaded by the helmsman and the owner of the ship than by the things spoken by Paul. 
 
 ###### 12 
-And because the harbor was not suitable to winter in, the majority advised to set sail from there also, if by any means they could reach Phoenix, a harbor of Crete opening toward the southwest and northwest, _and_ winter _there._ ## In the Tempest 
+And because the harbor was not suitable to winter in, the majority advised to set sail from there also, if by any means they could reach Phoenix, a harbor of Crete opening toward the southwest and northwest, _and_ winter _there._
+
+## In the Tempest 
 
 ###### 13 
 When the south wind blew softly, supposing that they had obtained _their_ desire, putting out to sea, they sailed close by Crete. 
@@ -121,7 +125,9 @@ Then they were all encouraged, and also took food themselves.
 And in all we were two hundred and seventy-six persons on the ship. 
 
 ###### 38 
-So when they had eaten enough, they lightened the ship and threw out the wheat into the sea. ## Shipwrecked on Malta 
+So when they had eaten enough, they lightened the ship and threw out the wheat into the sea.
+
+## Shipwrecked on Malta 
 
 ###### 39 
 When it was day, they did not recognize the land; but they observed a bay with a beach, onto which they planned to run the ship if possible. 

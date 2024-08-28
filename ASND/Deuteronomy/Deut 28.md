@@ -469,7 +469,9 @@ Gagawin kayo ng Panginoon na pinuno <i class="trans-change">ng mga bansa_, at hi
 
 
 
-Kaya huwag ninyong susuwayin ang alinman sa iniuutos ko sa inyo sa araw na ito, at huwag kayong susunod sa ibang mga dios at maglilingkod sa kanila. ## Ang mga Sumpa sa Hindi Pagsunod 
+Kaya huwag ninyong susuwayin ang alinman sa iniuutos ko sa inyo sa araw na ito, at huwag kayong susunod sa ibang mga dios at maglilingkod sa kanila.
+
+## Ang mga Sumpa sa Hindi Pagsunod 
 
 
 

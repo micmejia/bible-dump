@@ -19,7 +19,9 @@ being greatly disturbed that they taught the people and preached in Jesus the re
 And they laid hands on them, and put _them_ in custody until the next day, for it was already evening. 
 
 ###### 4 
-However, many of those who heard the word believed; and the number of the men came to be about five thousand. ## Addressing the Sanhedrin 
+However, many of those who heard the word believed; and the number of the men came to be about five thousand.
+
+## Addressing the Sanhedrin 
 
 ###### 5 
 And it came to pass, on the next day, that their rulers, elders, and scribes, 
@@ -73,7 +75,9 @@ For we cannot but speak the things which we have seen and heard."
 So when they had further threatened them, they let them go, finding no way of punishing them, because of the people, since they all glorified God for what had been done. 
 
 ###### 22 
-For the man was over forty years old on whom this miracle of healing had been performed. ## Prayer for Boldness 
+For the man was over forty years old on whom this miracle of healing had been performed.
+
+## Prayer for Boldness 
 
 ###### 23 
 And being let go, they went to their own _companions_ and reported all that the chief priests and elders had said to them. 
@@ -100,7 +104,9 @@ Now, Lord, look on their threats, and grant to Your servants that with all boldn
 by stretching out Your hand to heal, and that signs and wonders may be done through the name of Your holy Servant Jesus." 
 
 ###### 31 
-And when they had prayed, the place where they were assembled together was shaken; and they were all filled with the Holy Spirit, and they spoke the word of God with boldness. ## Sharing in All Things 
+And when they had prayed, the place where they were assembled together was shaken; and they were all filled with the Holy Spirit, and they spoke the word of God with boldness.
+
+## Sharing in All Things 
 
 ###### 32 
 Now the multitude of those who believed were of one heart and one soul; neither did anyone say that any of the things he possessed was his own, but they had all things in common. 

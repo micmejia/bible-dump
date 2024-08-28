@@ -40,7 +40,9 @@ But you are not in the flesh but in the Spirit, if indeed the Spirit of God dwel
 And if Christ _is_ in you, the body _is_ dead because of sin, but the Spirit _is_ life because of righteousness. 
 
 ###### 11 
-But if the Spirit of Him who raised Jesus from the dead dwells in you, He who raised Christ from the dead will also give life to your mortal bodies through His Spirit who dwells in you. ## Sonship Through the Spirit 
+But if the Spirit of Him who raised Jesus from the dead dwells in you, He who raised Christ from the dead will also give life to your mortal bodies through His Spirit who dwells in you.
+
+## Sonship Through the Spirit 
 
 ###### 12 
 Therefore, brethren, we are debtors--not to the flesh, to live according to the flesh. 
@@ -58,7 +60,9 @@ For you did not receive the spirit of bondage again to fear, but you received th
 The Spirit Himself bears witness with our spirit that we are children of God, 
 
 ###### 17 
-and if children, then heirs--heirs of God and joint heirs with Christ, if indeed we suffer with _Him,_ that we may also be glorified together. ## From Suffering to Glory 
+and if children, then heirs--heirs of God and joint heirs with Christ, if indeed we suffer with _Him,_ that we may also be glorified together.
+
+## From Suffering to Glory 
 
 ###### 18 
 For I consider that the sufferings of this present time are not worthy _to be compared_ with the glory which shall be revealed in us. 
@@ -97,7 +101,9 @@ And we know that all things work together for good to those who love God, to tho
 For whom He foreknew, He also predestined _to be_ conformed to the image of His Son, that He might be the firstborn among many brethren. 
 
 ###### 30 
-Moreover whom He predestined, these He also called; whom He called, these He also justified; and whom He justified, these He also glorified. ## God's Everlasting Love 
+Moreover whom He predestined, these He also called; whom He called, these He also justified; and whom He justified, these He also glorified.
+
+## God's Everlasting Love 
 
 ###### 31 
 What then shall we say to these things? If God _is_ for us, who _can be_ against us? 

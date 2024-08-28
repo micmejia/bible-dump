@@ -106,7 +106,9 @@ next: ['Hos 3']
 
 
 
-Kung hindi siya titigil ay huhubaran ko siya, at ang kahubaran niya ay gaya noong siya ay isinilang. Gagawin ko siyang parang disyerto o ilang, at pababayaang mamatay sa uhaw. ###### 4-5 At kayong mga anak niya ay hindi ko kaaawaan, dahil mga anak kayo ng babaeng nangangalunya. Nakakahiya ang ginagawa ng inyong inang nagsilang sa inyo. Sinabi pa niya, 'Hahabulin ko ang aking mga lalaki na nagbibigay sa akin ng pagkain, tubig, telang lana at linen, langis, at inumin.' 
+Kung hindi siya titigil ay huhubaran ko siya, at ang kahubaran niya ay gaya noong siya ay isinilang. Gagawin ko siyang parang disyerto o ilang, at pababayaang mamatay sa uhaw.
+
+###### 4-5 At kayong mga anak niya ay hindi ko kaaawaan, dahil mga anak kayo ng babaeng nangangalunya. Nakakahiya ang ginagawa ng inyong inang nagsilang sa inyo. Sinabi pa niya, 'Hahabulin ko ang aking mga lalaki na nagbibigay sa akin ng pagkain, tubig, telang lana at linen, langis, at inumin.' 
 
 
 

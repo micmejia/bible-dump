@@ -72,7 +72,9 @@ Sa mga alipin na mananampalataya, dapat igalang nila nang lubos ang mga amo nila
 
 
 
-At kung mga mananampalataya rin ang amo nila, hindi sila dapat mawalan ng paggalang dahil lang sa magkakapatid sila sa pananampalataya. Sa halip, lalo pa nga nilang dapat pagbutihin ang paglilingkod nila dahil kapwa mananampalataya ang nakikinabang sa paglilingkod nila, at mahal din ng Dios. ## Mga Maling Aral at ang Pag-ibig sa Salapi Ituro mo ang mga bagay na ito at hikayatin silang sundin ito. 
+At kung mga mananampalataya rin ang amo nila, hindi sila dapat mawalan ng paggalang dahil lang sa magkakapatid sila sa pananampalataya. Sa halip, lalo pa nga nilang dapat pagbutihin ang paglilingkod nila dahil kapwa mananampalataya ang nakikinabang sa paglilingkod nila, at mahal din ng Dios.
+
+## Mga Maling Aral at ang Pag-ibig sa Salapi Ituro mo ang mga bagay na ito at hikayatin silang sundin ito. 
 
 
 

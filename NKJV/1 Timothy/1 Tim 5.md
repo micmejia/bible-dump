@@ -13,7 +13,9 @@ next: ['1 Tim 6']
 Do not rebuke an older man, but exhort _him_ as a father, younger men as brothers, 
 
 ###### 2 
-older women as mothers, younger women as sisters, with all purity. ## Honor True Widows 
+older women as mothers, younger women as sisters, with all purity.
+
+## Honor True Widows 
 
 ###### 3 
 Honor widows who are really widows. 
@@ -55,7 +57,9 @@ Therefore I desire that _the_ younger _widows_ marry, bear children, manage the 
 For some have already turned aside after Satan. 
 
 ###### 16 
-If any believing man or woman has widows, let them relieve them, and do not let the church be burdened, that it may relieve those who are really widows. ## Honor the Elders 
+If any believing man or woman has widows, let them relieve them, and do not let the church be burdened, that it may relieve those who are really widows.
+
+## Honor the Elders 
 
 ###### 17 
 Let the elders who rule well be counted worthy of double honor, especially those who labor in the word and doctrine. 

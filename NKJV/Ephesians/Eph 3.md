@@ -28,7 +28,9 @@ which in other ages was not made known to the sons of men, as it has now been re
 that the Gentiles should be fellow heirs, of the same body, and partakers of His promise in Christ through the gospel, 
 
 ###### 7 
-of which I became a minister according to the gift of the grace of God given to me by the effective working of His power. ## Purpose of the Mystery 
+of which I became a minister according to the gift of the grace of God given to me by the effective working of His power.
+
+## Purpose of the Mystery 
 
 ###### 8 
 To me, who am less than the least of all the saints, this grace was given, that I should preach among the Gentiles the unsearchable riches of Christ, 
@@ -46,7 +48,9 @@ according to the eternal purpose which He accomplished in Christ Jesus our Lord,
 in whom we have boldness and access with confidence through faith in Him. 
 
 ###### 13 
-Therefore I ask that you do not lose heart at my tribulations for you, which is your glory. ## Appreciation of the Mystery 
+Therefore I ask that you do not lose heart at my tribulations for you, which is your glory.
+
+## Appreciation of the Mystery 
 
 ###### 14 
 For this reason I bow my knees to the Father of our Lord Jesus Christ, 

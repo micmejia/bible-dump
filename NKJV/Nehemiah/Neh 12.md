@@ -85,7 +85,9 @@ And the heads of the Levites _were_ Hashabiah, Sherebiah, and Jeshua the son of 
 Mattaniah, Bakbukiah, Obadiah, Meshullam, Talmon, and Akkub _were_ gatekeepers keeping the watch at the storerooms of the gates. 
 
 ###### 26 
-These _lived_ in the days of Joiakim the son of Jeshua, the son of Jozadak, and in the days of Nehemiah the governor, and of Ezra the priest, the scribe. ## Nehemiah Dedicates the Wall 
+These _lived_ in the days of Joiakim the son of Jeshua, the son of Jozadak, and in the days of Nehemiah the governor, and of Ezra the priest, the scribe.
+
+## Nehemiah Dedicates the Wall 
 
 ###### 27 
 Now at the dedication of the wall of Jerusalem they sought out the Levites in all their places, to bring them to Jerusalem to celebrate the dedication with gladness, both with thanksgivings and singing, _with_ cymbals and stringed instruments and harps. 
@@ -136,7 +138,9 @@ and the priests, Eliakim, Maaseiah, Minjamin, Michaiah, Elioenai, Zechariah, _an
 also Maaseiah, Shemaiah, Eleazar, Uzzi, Jehohanan, Malchijah, Elam, and Ezer. The singers sang loudly with Jezrahiah the director. 
 
 ###### 43 
-Also that day they offered great sacrifices, and rejoiced, for God had made them rejoice with great joy; the women and the children also rejoiced, so that the joy of Jerusalem was heard afar off. ## Temple Responsibilities 
+Also that day they offered great sacrifices, and rejoiced, for God had made them rejoice with great joy; the women and the children also rejoiced, so that the joy of Jerusalem was heard afar off.
+
+## Temple Responsibilities 
 
 ###### 44 
 And at the same time some were appointed over the rooms of the storehouse for the offerings, the firstfruits, and the tithes, to gather into them from the fields of the cities the portions specified by the Law for the priests and Levites; for Judah rejoiced over the priests and Levites who ministered. 

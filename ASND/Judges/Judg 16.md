@@ -40,7 +40,9 @@ next: ['Judg 17']
 
 
 
-Pero sumiping si Samson sa babae hanggang hatinggabi lang. Bumangon siya at pumunta sa may pintuan ng lungsod. Hinawakan niya ang pintuan at binunot, at natanggal ito pati ang mga kandado at haligi nito. Pagkatapos, pinasan niya ito at dinala sa tuktok ng bundok na nakaharap sa Hebron. ## Si Samson at si Delaila 
+Pero sumiping si Samson sa babae hanggang hatinggabi lang. Bumangon siya at pumunta sa may pintuan ng lungsod. Hinawakan niya ang pintuan at binunot, at natanggal ito pati ang mga kandado at haligi nito. Pagkatapos, pinasan niya ito at dinala sa tuktok ng bundok na nakaharap sa Hebron.
+
+## Si Samson at si Delaila 
 
 
 
@@ -667,7 +669,9 @@ Dinakip siya ng mga Filisteo at dinukit ang kanyang mga mata. Pagkatapos, dinala
 
 
 
-Pero unti-unting tumubo ulit ang kanyang buhok. ## Ang Pagkamatay ni Samson 
+Pero unti-unting tumubo ulit ang kanyang buhok.
+
+## Ang Pagkamatay ni Samson 
 
 
 

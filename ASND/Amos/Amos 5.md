@@ -667,7 +667,9 @@ Para kayong taong nag-aakalang ligtas na siya dahil nakatakas siya sa leon, pero
 
 
 
-Tiyak na darating ang araw ng Panginoon at itoʼy magdudulot ng kaparusahan at hindi kaligtasan; katulad ito ng dilim na walang liwanag kahit kaunti man lang. ## Ang Gusto ng Panginoon na Dapat Gawin ng Kanyang mga Mamamayan 
+Tiyak na darating ang araw ng Panginoon at itoʼy magdudulot ng kaparusahan at hindi kaligtasan; katulad ito ng dilim na walang liwanag kahit kaunti man lang.
+
+## Ang Gusto ng Panginoon na Dapat Gawin ng Kanyang mga Mamamayan 
 
 
 

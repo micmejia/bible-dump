@@ -127,7 +127,9 @@ The censers of these men who sinned against their own souls, let them be made in
 So Eleazar the priest took the bronze censers, which those who were burned up had presented, and they were hammered out as a covering on the altar, 
 
 ###### 40 
-_to be_ a memorial to the children of Israel that no outsider, who _is_ not a descendant of Aaron, should come near to offer incense before the Lord, that he might not become like Korah and his companions, just as the Lord had said to him through Moses. ## Complaints of the People 
+_to be_ a memorial to the children of Israel that no outsider, who _is_ not a descendant of Aaron, should come near to offer incense before the Lord, that he might not become like Korah and his companions, just as the Lord had said to him through Moses.
+
+## Complaints of the People 
 
 ###### 41 
 On the next day all the congregation of the children of Israel complained against Moses and Aaron, saying, "You have killed the people of the Lord." 

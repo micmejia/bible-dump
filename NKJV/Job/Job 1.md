@@ -21,7 +21,9 @@ Also, his possessions were seven thousand sheep, three thousand camels, five hun
 And his sons would go and feast _in their_ houses, each on his _appointed_ day, and would send and invite their three sisters to eat and drink with them. 
 
 ###### 5 
-So it was, when the days of feasting had run their course, that Job would send and sanctify them, and he would rise early in the morning and offer burnt offerings _according to_ the number of them all. For Job said, "It may be that my sons have sinned and cursed God in their hearts." Thus Job did regularly. ## Satan Attacks Job's Character 
+So it was, when the days of feasting had run their course, that Job would send and sanctify them, and he would rise early in the morning and offer burnt offerings _according to_ the number of them all. For Job said, "It may be that my sons have sinned and cursed God in their hearts." Thus Job did regularly.
+
+## Satan Attacks Job's Character 
 
 ###### 6 
 Now there was a day when the sons of God came to present themselves before the Lord, and Satan also came among them. 
@@ -42,7 +44,9 @@ Have You not made a hedge around him, around his household, and around all that 
 But now, stretch out Your hand and touch all that he has, and he will surely curse You to Your face!" 
 
 ###### 12 
-And the Lord said to Satan, "Behold, all that he has _is_ in your power; only do not lay a hand on his _person._" So Satan went out from the presence of the Lord. ## Job Loses His Property and Children 
+And the Lord said to Satan, "Behold, all that he has _is_ in your power; only do not lay a hand on his _person._" So Satan went out from the presence of the Lord.
+
+## Job Loses His Property and Children 
 
 ###### 13 
 Now there was a day when his sons and daughters _were_ eating and drinking wine in their oldest brother's house; 

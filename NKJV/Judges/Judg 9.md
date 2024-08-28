@@ -25,7 +25,9 @@ So they gave him seventy _shekels_ of silver from the temple of Baal-Berith, wit
 Then he went to his father's house at Ophrah and killed his brothers, the seventy sons of Jerubbaal, on one stone. But Jotham the youngest son of Jerubbaal was left, because he hid himself. 
 
 ###### 6 
-And all the men of Shechem gathered together, all of Beth Millo, and they went and made Abimelech king beside the terebinth tree at the pillar that _was_ in Shechem. ## The Parable of the Trees 
+And all the men of Shechem gathered together, all of Beth Millo, and they went and made Abimelech king beside the terebinth tree at the pillar that _was_ in Shechem.
+
+## The Parable of the Trees 
 
 ###### 7 
 Now when they told Jotham, he went and stood on top of Mount Gerizim, and lifted his voice and cried out. And he said to them: "Listen to me, you men of Shechem, That God may listen to you! 
@@ -70,7 +72,9 @@ if then you have acted in truth and sincerity with Jerubbaal and with his house 
 But if not, let fire come from Abimelech and devour the men of Shechem and Beth Millo; and let fire come from the men of Shechem and from Beth Millo and devour Abimelech!" 
 
 ###### 21 
-And Jotham ran away and fled; and he went to Beer and dwelt there, for fear of Abimelech his brother. ## Downfall of Abimelech 
+And Jotham ran away and fled; and he went to Beer and dwelt there, for fear of Abimelech his brother.
+
+## Downfall of Abimelech 
 
 ###### 22 
 After Abimelech had reigned over Israel three years, 

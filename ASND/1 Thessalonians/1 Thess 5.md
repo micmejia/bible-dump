@@ -369,7 +369,9 @@ Namatay siya para sa atin, para kahit buhay pa tayo o patay na <i class="trans-c
 
 
 
-Dahil dito, patuloy ninyong pasiglahin at patatagin ang isaʼt isa, katulad nga ng ginagawa ninyo. ## Mga Pangwakas na Bilin at Pagbati 
+Dahil dito, patuloy ninyong pasiglahin at patatagin ang isaʼt isa, katulad nga ng ginagawa ninyo.
+
+## Mga Pangwakas na Bilin at Pagbati 
 
 
 

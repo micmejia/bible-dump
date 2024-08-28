@@ -28,7 +28,9 @@ The Gileadites seized the fords of the Jordan before the Ephraimites _arrived._ 
 then they would say to him, "Then say, 'Shibboleth'!" And he would say, "Sibboleth," for he could not pronounce _it_ right. Then they would take him and kill him at the fords of the Jordan. There fell at that time forty-two thousand Ephraimites. 
 
 ###### 7 
-And Jephthah judged Israel six years. Then Jephthah the Gileadite died and was buried among the cities of Gilead. ## Ibzan, Elon, and Abdon 
+And Jephthah judged Israel six years. Then Jephthah the Gileadite died and was buried among the cities of Gilead.
+
+## Ibzan, Elon, and Abdon 
 
 ###### 8 
 After him, Ibzan of Bethlehem judged Israel. 

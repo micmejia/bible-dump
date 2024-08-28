@@ -469,7 +469,9 @@ Naging tanyag pa si David nang mapatay niya ang 18,000 Edomita sa lambak na tina
 
 
 
-Naglagay siya ng mga kampo sa buong Edom, at sinakop niya ang mga Edomita. Pinagtagumpay ng Panginoon si David sa bawat labanang pinupuntahan niya. ## Ang mga Opisyal ni David 
+Naglagay siya ng mga kampo sa buong Edom, at sinakop niya ang mga Edomita. Pinagtagumpay ng Panginoon si David sa bawat labanang pinupuntahan niya.
+
+## Ang mga Opisyal ni David 
 
 
 

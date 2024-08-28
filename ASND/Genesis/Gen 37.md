@@ -370,7 +370,9 @@ Isinalaysay din ni Jose ang panaginip niya sa kanyang ama pero nagalit din ang k
 
 
 
-Nainggit ang mga kapatid ni Jose sa kanya, pero si Jacob ay sinarili na lamang ang bagay na ito. ## Ipinagbili si Jose ng Kanyang mga Kapatid 
+Nainggit ang mga kapatid ni Jose sa kanya, pero si Jacob ay sinarili na lamang ang bagay na ito.
+
+## Ipinagbili si Jose ng Kanyang mga Kapatid 
 
 
 

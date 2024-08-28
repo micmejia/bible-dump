@@ -106,7 +106,9 @@ na sabihin ito sa mga taga-Israel: Ako ang Panginoon na inyong Dios.
 
 
 
-Huwag nʼyong gawin ang mga ginagawa ng mga taga-Egipto, kung saan kayo tumira noon. Huwag din ninyong gayahin ang mga ginagawa ng mga taga-Canaan na pagdadalhan ko sa inyo. ###### 4-5 Dapat ninyong sundin ang aking mga utos at mga tuntunin dahil ang mga susunod dito ay mabubuhay. Ako ang Panginoon na inyong Dios. 
+Huwag nʼyong gawin ang mga ginagawa ng mga taga-Egipto, kung saan kayo tumira noon. Huwag din ninyong gayahin ang mga ginagawa ng mga taga-Canaan na pagdadalhan ko sa inyo.
+
+###### 4-5 Dapat ninyong sundin ang aking mga utos at mga tuntunin dahil ang mga susunod dito ay mabubuhay. Ako ang Panginoon na inyong Dios. 
 
 
 
@@ -139,7 +141,9 @@ Huwag nʼyong gawin ang mga ginagawa ng mga taga-Egipto, kung saan kayo tumira n
 
 
 
-Huwag kayong sumiping sa malapit ninyong kamag-anak. Ako ang Panginoon. ###### 7-8 Huwag mong ilagay sa kahihiyan ang iyong ama sa pamamagitan ng pagsiping sa iyong ina o sa iba pa niyang asawa. 
+Huwag kayong sumiping sa malapit ninyong kamag-anak. Ako ang Panginoon.
+
+###### 7-8 Huwag mong ilagay sa kahihiyan ang iyong ama sa pamamagitan ng pagsiping sa iyong ina o sa iba pa niyang asawa. 
 
 
 

@@ -304,7 +304,9 @@ At sinabi niya na kung sino ang may akusasyon laban kay Pablo ay kinakailangang 
 
 
 
-At sinang-ayunan din ng mga Judio ang lahat ng sinabi ni Tertulus. ## Sinagot ni Pablo ang mga Akusasyon sa Kanya 
+At sinang-ayunan din ng mga Judio ang lahat ng sinabi ni Tertulus.
+
+## Sinagot ni Pablo ang mga Akusasyon sa Kanya 
 
 
 
@@ -766,7 +768,9 @@ Dahil sa marami nang nalalaman noon si Felix tungkol sa pamamaraan <i class="tra
 
 
 
-Pagkatapos, inutusan niya ang kapitan na bantayan si Pablo pero huwag higpitan, at payagan ang kanyang mga kaibigan na tumulong sa mga pangangailangan niya. ## Humarap si Pablo kina Felix at Drusila 
+Pagkatapos, inutusan niya ang kapitan na bantayan si Pablo pero huwag higpitan, at payagan ang kanyang mga kaibigan na tumulong sa mga pangangailangan niya.
+
+## Humarap si Pablo kina Felix at Drusila 
 
 
 

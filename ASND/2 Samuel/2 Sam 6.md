@@ -73,7 +73,9 @@ Muling tinipon ni David ang pinakamagagaling na sundalo ng Israel at umabot ito 
 
 
 
-Lumakad sila papuntang Baala na sakop ng Juda para kunin doon ang Kahon ng Dios, kung saan naroon ang presensya ng Panginoong Makapangyarihan. Nakaluklok ang Panginoon sa gitna ng dalawang kerubin na nasa ibabaw ng Kahon. ###### 3-4 Kinuha nina David ang Kahon ng Kasunduan ng Dios na nandoon sa bahay ni Abinadab sa burol at isinakay ito sa bagong kariton. Sina Uza at Ahio na anak ni Abinadab ang umaalalay sa kariton; si Ahio ang nasa unahan. 
+Lumakad sila papuntang Baala na sakop ng Juda para kunin doon ang Kahon ng Dios, kung saan naroon ang presensya ng Panginoong Makapangyarihan. Nakaluklok ang Panginoon sa gitna ng dalawang kerubin na nasa ibabaw ng Kahon.
+
+###### 3-4 Kinuha nina David ang Kahon ng Kasunduan ng Dios na nandoon sa bahay ni Abinadab sa burol at isinakay ito sa bagong kariton. Sina Uza at Ahio na anak ni Abinadab ang umaalalay sa kariton; si Ahio ang nasa unahan. 
 
 
 

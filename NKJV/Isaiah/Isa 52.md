@@ -43,7 +43,9 @@ The Lord has made bare His holy arm In the eyes of all the nations; And all the 
 Depart! Depart! Go out from there, Touch no unclean _thing;_ Go out from the midst of her, Be clean, You who bear the vessels of the Lord. 
 
 ###### 12 
-For you shall not go out with haste, Nor go by flight; For the Lord will go before you, And the God of Israel _will be_ your rear guard. ## The Sin-Bearing Servant 
+For you shall not go out with haste, Nor go by flight; For the Lord will go before you, And the God of Israel _will be_ your rear guard.
+
+## The Sin-Bearing Servant 
 
 ###### 13 
 Behold, My Servant shall deal prudently; He shall be exalted and extolled and be very high. 

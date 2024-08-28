@@ -304,7 +304,9 @@ Ang pagkontra sa katotohanan ng mga lalaking nangangaral sa kanila ay gaya ng pa
 
 
 
-Pero hindi rin magpapatuloy ang ginagawa nila dahil mahahalata ng lahat ang kahangalan nila, gaya ng nangyari kina Jannes at Jambres. ## Mga Bilin 
+Pero hindi rin magpapatuloy ang ginagawa nila dahil mahahalata ng lahat ang kahangalan nila, gaya ng nangyari kina Jannes at Jambres.
+
+## Mga Bilin 
 
 
 

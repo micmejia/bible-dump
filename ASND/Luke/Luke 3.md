@@ -601,7 +601,9 @@ Kahit ang pinunong si Herodes ay pinagsabihan niya, dahil kinakasama nito ang hi
 
 
 
-Sa bandang huli, nadagdagan pa ang kasalanan ni Herodes dahil ipinabilanggo niya si Juan. ## Ang Pagbabautismo kay Jesus 
+Sa bandang huli, nadagdagan pa ang kasalanan ni Herodes dahil ipinabilanggo niya si Juan.
+
+## Ang Pagbabautismo kay Jesus 
 
 
 

@@ -535,7 +535,9 @@ Wala silang kabuluhan at dapat kamuhian. Darating ang araw na wawasakin ang laha
 
 
 
-Pero ang Dios ni Jacob ay hindi katulad ng mga iyon. Siya ang lumikha ng lahat ng bagay pati na ang Israel, ang mga taong hinirang niya – Panginoong Makapangyarihan ang pangalan niya. ## Ang Kapahamakang Darating 
+Pero ang Dios ni Jacob ay hindi katulad ng mga iyon. Siya ang lumikha ng lahat ng bagay pati na ang Israel, ang mga taong hinirang niya – Panginoong Makapangyarihan ang pangalan niya.
+
+## Ang Kapahamakang Darating 
 
 
 
@@ -733,7 +735,9 @@ Wasak na ang mga tolda natin; nalagot na ang mga tali nito. Iniwan na tayo ng mg
 
 
 
-Pakinggan nʼyo ang malakas na ingay ng mga sundalo na dumarating mula sa hilaga! Wawasakin nila ang mga bayan ng Juda at magiging tirahan na lang ito ng mga asong-gubat. ## Ang Panalangin ni Jeremias 
+Pakinggan nʼyo ang malakas na ingay ng mga sundalo na dumarating mula sa hilaga! Wawasakin nila ang mga bayan ng Juda at magiging tirahan na lang ito ng mga asong-gubat.
+
+## Ang Panalangin ni Jeremias 
 
 
 

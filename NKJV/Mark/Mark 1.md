@@ -45,7 +45,9 @@ Then a voice came from heaven, "You are My beloved Son, in whom I am well please
 Immediately the Spirit drove Him into the wilderness. 
 
 ###### 13 
-And He was there in the wilderness forty days, tempted by Satan, and was with the wild beasts; and the angels ministered to Him. ## Jesus Begins His Galilean Ministry 
+And He was there in the wilderness forty days, tempted by Satan, and was with the wild beasts; and the angels ministered to Him.
+
+## Jesus Begins His Galilean Ministry 
 
 ###### 14 
 Now after John was put in prison, Jesus came to Galilee, preaching the gospel of the kingdom of God, 
@@ -66,7 +68,9 @@ They immediately left their nets and followed Him.
 When He had gone a little farther from there, He saw James the _son_ of Zebedee, and John his brother, who also _were_ in the boat mending their nets. 
 
 ###### 20 
-And immediately He called them, and they left their father Zebedee in the boat with the hired servants, and went after Him. ## Jesus Casts Out an Unclean Spirit 
+And immediately He called them, and they left their father Zebedee in the boat with the hired servants, and went after Him.
+
+## Jesus Casts Out an Unclean Spirit 
 
 ###### 21 
 Then they went into Capernaum, and immediately on the Sabbath He entered the synagogue and taught. 
@@ -90,7 +94,9 @@ And when the unclean spirit had convulsed him and cried out with a loud voice, h
 Then they were all amazed, so that they questioned among themselves, saying, "What is this? What new doctrine _is_ this? For with authority He commands even the unclean spirits, and they obey Him." 
 
 ###### 28 
-And immediately His fame spread throughout all the region around Galilee. ## Peter's Mother-in-Law Healed 
+And immediately His fame spread throughout all the region around Galilee.
+
+## Peter's Mother-in-Law Healed 
 
 ###### 29 
 Now as soon as they had come out of the synagogue, they entered the house of Simon and Andrew, with James and John. 
@@ -99,7 +105,9 @@ Now as soon as they had come out of the synagogue, they entered the house of Sim
 But Simon's wife's mother lay sick with a fever, and they told Him about her at once. 
 
 ###### 31 
-So He came and took her by the hand and lifted her up, and immediately the fever left her. And she served them. ## Many Healed After Sabbath Sunset 
+So He came and took her by the hand and lifted her up, and immediately the fever left her. And she served them.
+
+## Many Healed After Sabbath Sunset 
 
 ###### 32 
 At evening, when the sun had set, they brought to Him all who were sick and those who were demon-possessed. 
@@ -108,7 +116,9 @@ At evening, when the sun had set, they brought to Him all who were sick and thos
 And the whole city was gathered together at the door. 
 
 ###### 34 
-Then He healed many who were sick with various diseases, and cast out many demons; and He did not allow the demons to speak, because they knew Him. ## Preaching in Galilee 
+Then He healed many who were sick with various diseases, and cast out many demons; and He did not allow the demons to speak, because they knew Him.
+
+## Preaching in Galilee 
 
 ###### 35 
 Now in the morning, having risen a long while before daylight, He went out and departed to a solitary place; and there He prayed. 
@@ -123,7 +133,9 @@ When they found Him, they said to Him, "Everyone is looking for You."
 But He said to them, "Let us go into the next towns, that I may preach there also, because for this purpose I have come forth." 
 
 ###### 39 
-And He was preaching in their synagogues throughout all Galilee, and casting out demons. ## Jesus Cleanses a Leper 
+And He was preaching in their synagogues throughout all Galilee, and casting out demons.
+
+## Jesus Cleanses a Leper 
 
 ###### 40 
 Now a leper came to Him, imploring Him, kneeling down to Him and saying to Him, "If You are willing, You can make me clean." 

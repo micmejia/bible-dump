@@ -34,7 +34,9 @@ You have made him a little lower than the angels; You have crowned him with glor
 You have put all things in subjection under his feet." For in that He put all in subjection under him, He left nothing _that is_ not put under him. But now we do not yet see all things put under him. 
 
 ###### 9 
-But we see Jesus, who was made a little lower than the angels, for the suffering of death crowned with glory and honor, that He, by the grace of God, might taste death for everyone. ## Bringing Many Sons to Glory 
+But we see Jesus, who was made a little lower than the angels, for the suffering of death crowned with glory and honor, that He, by the grace of God, might taste death for everyone.
+
+## Bringing Many Sons to Glory 
 
 ###### 10 
 For it was fitting for Him, for whom _are_ all things and by whom _are_ all things, in bringing many sons to glory, to make the captain of their salvation perfect through sufferings. 

@@ -238,7 +238,9 @@ Doon ninyo dalhin ang mga handog ninyo na sinusunog at iba pang mga handog, ang 
 
 
 
-Doon kayo kumain at ang inyong pamilya sa presensya ng Panginoon na inyong Dios, at magsaya kayo sa lahat ng inyong nagawa dahil pinagpala kayo ng Panginoon. ###### 8-9 "Kapag dumating na kayo sa lugar na kung saan makapagpapahinga na kayo, ang lugar na ibinibigay ng Panginoon na inyong Dios bilang inyong mana, huwag na ninyong gawin ang ginagawa natin ngayon, na kahit saan lang tayo naghahandog. 
+Doon kayo kumain at ang inyong pamilya sa presensya ng Panginoon na inyong Dios, at magsaya kayo sa lahat ng inyong nagawa dahil pinagpala kayo ng Panginoon.
+
+###### 8-9 "Kapag dumating na kayo sa lugar na kung saan makapagpapahinga na kayo, ang lugar na ibinibigay ng Panginoon na inyong Dios bilang inyong mana, huwag na ninyong gawin ang ginagawa natin ngayon, na kahit saan lang tayo naghahandog. 
 
 
 

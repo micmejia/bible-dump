@@ -370,7 +370,9 @@ Dudurugin niya ang kanyang mga kaaway. Padadagundungin niya ang langit laban sa 
 
 
 
-Pagkatapos, umuwi si Elkana <i class="trans-change">at ang sambahayan niya_ sa Rama. Pero iniwan nila si Samuel para maglingkod sa Panginoon sa ilalim ng pangangalaga ni Eli na pari. ## Ang Kasalanan ng Dalawang anak ni Eli 
+Pagkatapos, umuwi si Elkana <i class="trans-change">at ang sambahayan niya_ sa Rama. Pero iniwan nila si Samuel para maglingkod sa Panginoon sa ilalim ng pangangalaga ni Eli na pari.
+
+## Ang Kasalanan ng Dalawang anak ni Eli 
 
 
 
@@ -700,7 +702,9 @@ Doon, binabasbasan ni Eli si Elkana at ang kanyang asawa. Sinasabi niya kay Elka
 
 
 
-Kinahabagan ng Panginoon si Hanna. Nagkaanak pa siya ng tatlong lalaki at dalawang babae, habang si Samuel ay patuloy na lumalaking naglilingkod sa Panginoon. ## Si Eli at ang mga Anak Niya 
+Kinahabagan ng Panginoon si Hanna. Nagkaanak pa siya ng tatlong lalaki at dalawang babae, habang si Samuel ay patuloy na lumalaking naglilingkod sa Panginoon.
+
+## Si Eli at ang mga Anak Niya 
 
 
 
@@ -865,7 +869,9 @@ Sinabi pa ni Eli, "Kung magkasala ang isang tao sa kanyang kapwa, maaaring mamam
 
 
 
-Samantala, patuloy na lumalaki si Samuel, at kinalulugdan siya ng Panginoon at ng mga tao. ## Ang Propesiya tungkol sa Sambahayan ni Eli 
+Samantala, patuloy na lumalaki si Samuel, at kinalulugdan siya ng Panginoon at ng mga tao.
+
+## Ang Propesiya tungkol sa Sambahayan ni Eli 
 
 
 

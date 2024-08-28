@@ -39,7 +39,9 @@ next: ['Nah 2']
 
 
 
-Ang mensahe ng aklat na ito ay tungkol sa Nineve. Itoʼy ipinahayag <i class="trans-change">ng Panginoon_ kay Nahum na taga-Elkosh. ## Ang Galit ng Panginoon sa Nineve 
+Ang mensahe ng aklat na ito ay tungkol sa Nineve. Itoʼy ipinahayag <i class="trans-change">ng Panginoon_ kay Nahum na taga-Elkosh.
+
+## Ang Galit ng Panginoon sa Nineve 
 
 
 

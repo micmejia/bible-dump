@@ -535,7 +535,9 @@ Silang mga Judio ang pumatay sa Panginoong Jesus at sa mga propeta noon. Sila ri
 
 
 
-Hinahadlangan nila ang pangangaral namin <i class="trans-change">ng salita ng Dios_ sa mga hindi Judio na siyang ikaliligtas ng mga ito. Dahil dito, umabot na sa sukdulan ang mga kasalanan nila at hahatulan na sila ng Dios. ## Ang Hangarin ni Pablo na Makadalaw Muli sa Tesalonica 
+Hinahadlangan nila ang pangangaral namin <i class="trans-change">ng salita ng Dios_ sa mga hindi Judio na siyang ikaliligtas ng mga ito. Dahil dito, umabot na sa sukdulan ang mga kasalanan nila at hahatulan na sila ng Dios.
+
+## Ang Hangarin ni Pablo na Makadalaw Muli sa Tesalonica 
 
 
 

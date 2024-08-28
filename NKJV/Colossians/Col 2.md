@@ -37,7 +37,9 @@ Beware lest anyone cheat you through philosophy and empty deceit, according to t
 For in Him dwells all the fullness of the Godhead bodily; 
 
 ###### 10 
-and you are complete in Him, who is the head of all principality and power. ## Not Legalism but Christ 
+and you are complete in Him, who is the head of all principality and power.
+
+## Not Legalism but Christ 
 
 ###### 11 
 In Him you were also circumcised with the circumcision made without hands, by putting off the body of the sins of the flesh, by the circumcision of Christ, 

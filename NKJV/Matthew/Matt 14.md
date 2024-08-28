@@ -43,7 +43,9 @@ So he sent and had John beheaded in prison.
 And his head was brought on a platter and given to the girl, and she brought _it_ to her mother. 
 
 ###### 12 
-Then his disciples came and took away the body and buried it, and went and told Jesus. ## Feeding the Five Thousand 
+Then his disciples came and took away the body and buried it, and went and told Jesus.
+
+## Feeding the Five Thousand 
 
 ###### 13 
 When Jesus heard _it,_ He departed from there by boat to a deserted place by Himself. But when the multitudes heard it, they followed Him on foot from the cities. 
@@ -70,7 +72,9 @@ Then He commanded the multitudes to sit down on the grass. And He took the five 
 So they all ate and were filled, and they took up twelve baskets full of the fragments that remained. 
 
 ###### 21 
-Now those who had eaten were about five thousand men, besides women and children. ## Jesus Walks on the Sea 
+Now those who had eaten were about five thousand men, besides women and children.
+
+## Jesus Walks on the Sea 
 
 ###### 22 
 Immediately Jesus made His disciples get into the boat and go before Him to the other side, while He sent the multitudes away. 

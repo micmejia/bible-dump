@@ -172,7 +172,9 @@ Mayroon siyang 30 anak, at ang bawat isa sa kanilaʼy may asnong sinasakyan. Ang
 
 
 
-Nang mamatay si Jair, inilibing siya sa Kamon. ## Pinahirapan ng mga Ammonita ang mga Israelita 
+Nang mamatay si Jair, inilibing siya sa Kamon.
+
+## Pinahirapan ng mga Ammonita ang mga Israelita 
 
 
 

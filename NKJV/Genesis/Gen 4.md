@@ -52,7 +52,9 @@ And Cain said to the Lord, "My punishment _is_ greater than I can bear!
 Surely You have driven me out this day from the face of the ground; I shall be hidden from Your face; I shall be a fugitive and a vagabond on the earth, and it will happen _that_ anyone who finds me will kill me." 
 
 ###### 15 
-And the Lord said to him, "Therefore, whoever kills Cain, vengeance shall be taken on him sevenfold." And the Lord set a mark on Cain, lest anyone finding him should kill him. ## The Family of Cain 
+And the Lord said to him, "Therefore, whoever kills Cain, vengeance shall be taken on him sevenfold." And the Lord set a mark on Cain, lest anyone finding him should kill him.
+
+## The Family of Cain 
 
 ###### 16 
 Then Cain went out from the presence of the Lord and dwelt in the land of Nod on the east of Eden. 

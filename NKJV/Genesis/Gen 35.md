@@ -52,7 +52,9 @@ Then God went up from him in the place where He talked with him.
 So Jacob set up a pillar in the place where He talked with him, a pillar of stone; and he poured a drink offering on it, and he poured oil on it. 
 
 ###### 15 
-And Jacob called the name of the place where God spoke with him, Bethel. ## Death of Rachel 
+And Jacob called the name of the place where God spoke with him, Bethel.
+
+## Death of Rachel 
 
 ###### 16 
 Then they journeyed from Bethel. And when there was but a little distance to go to Ephrath, Rachel labored _in childbirth,_ and she had hard labor. 
@@ -73,7 +75,9 @@ And Jacob set a pillar on her grave, which _is_ the pillar of Rachel's grave to 
 Then Israel journeyed and pitched his tent beyond the tower of Eder. 
 
 ###### 22 
-And it happened, when Israel dwelt in that land, that Reuben went and lay with Bilhah his father's concubine; and Israel heard _about it._ ## Jacob's Twelve Sons Now the sons of Jacob were twelve: 
+And it happened, when Israel dwelt in that land, that Reuben went and lay with Bilhah his father's concubine; and Israel heard _about it._
+
+## Jacob's Twelve Sons Now the sons of Jacob were twelve: 
 
 ###### 23 
 the sons of Leah _were_ Reuben, Jacob's firstborn, and Simeon, Levi, Judah, Issachar, and Zebulun; 
@@ -85,7 +89,9 @@ the sons of Rachel _were_ Joseph and Benjamin;
 the sons of Bilhah, Rachel's maidservant, _were_ Dan and Naphtali; 
 
 ###### 26 
-and the sons of Zilpah, Leah's maidservant, _were_ Gad and Asher. These _were_ the sons of Jacob who were born to him in Padan Aram. ## Death of Isaac 
+and the sons of Zilpah, Leah's maidservant, _were_ Gad and Asher. These _were_ the sons of Jacob who were born to him in Padan Aram.
+
+## Death of Isaac 
 
 ###### 27 
 Then Jacob came to his father Isaac at Mamre, or Kirjath Arba (that _is,_ Hebron), where Abraham and Isaac had dwelt. 

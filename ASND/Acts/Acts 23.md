@@ -667,7 +667,9 @@ Pero huwag po kayong maniwala sa kanila, dahil mahigit 40 tao ang nagbabantay na
 
 
 
-Sinabi ng kumander sa kanya, "Huwag mong sasabihin kahit kanino na ipinaalam mo ito sa akin." At pinauwi niya ang binatilyo. ## Ipinadala si Pablo sa Cesarea 
+Sinabi ng kumander sa kanya, "Huwag mong sasabihin kahit kanino na ipinaalam mo ito sa akin." At pinauwi niya ang binatilyo.
+
+## Ipinadala si Pablo sa Cesarea 
 
 
 

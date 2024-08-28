@@ -172,7 +172,9 @@ Mula sa kamay ng anghel ay pumailanlang sa harap ng Dios ang usok ng insenso kas
 
 
 
-Pagkatapos, kumuha ang anghel ng mga baga sa altar at pinuno ang lalagyan ng insenso, at inihagis sa lupa. At bigla namang kumidlat, kumulog, umugong at lumindol. ## Ang mga Trumpeta 
+Pagkatapos, kumuha ang anghel ng mga baga sa altar at pinuno ang lalagyan ng insenso, at inihagis sa lupa. At bigla namang kumidlat, kumulog, umugong at lumindol.
+
+## Ang mga Trumpeta 
 
 
 

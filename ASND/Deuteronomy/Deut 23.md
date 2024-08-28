@@ -271,7 +271,9 @@ Habang buhay kayo, huwag kayong tutulong sa mga Amoreo o Moabita sa anumang para
 
 
 
-Ang kanilang mga angkan sa ikatlong salinlahi ay maaaring makasama sa pagtitipon ng mga mamamayan ng Panginoon. ## Iba pang mga Tuntunin 
+Ang kanilang mga angkan sa ikatlong salinlahi ay maaaring makasama sa pagtitipon ng mga mamamayan ng Panginoon.
+
+## Iba pang mga Tuntunin 
 
 
 

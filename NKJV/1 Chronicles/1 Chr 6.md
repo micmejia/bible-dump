@@ -97,7 +97,9 @@ The sons of Samuel _were_ _Joel_ the firstborn, and Abijah the second.
 The sons of Merari _were_ Mahli, Libni his son, Shimei his son, Uzzah his son, 
 
 ###### 30 
-Shimea his son, Haggiah his son, _and_ Asaiah his son. ## Musicians in the House of the Lord 
+Shimea his son, Haggiah his son, _and_ Asaiah his son.
+
+## Musicians in the House of the Lord 
 
 ###### 31 
 Now these are the men whom David appointed over the service of song in the house of the Lord, after the ark came to rest. 
@@ -151,7 +153,9 @@ the son of Amzi, the son of Bani, the son of Shamer,
 the son of Mahli, the son of Mushi, the son of Merari, the son of Levi. 
 
 ###### 48 
-And their brethren, the Levites, _were_ appointed to every kind of service of the tabernacle of the house of God. ## The Family of Aaron 
+And their brethren, the Levites, _were_ appointed to every kind of service of the tabernacle of the house of God.
+
+## The Family of Aaron 
 
 ###### 49 
 But Aaron and his sons offered sacrifices on the altar of burnt offering and on the altar of incense, for all the work of the Most Holy _Place,_ and to make atonement for Israel, according to all that Moses the servant of God had commanded. 
@@ -166,7 +170,9 @@ Bukki his son, Uzzi his son, Zerahiah his son,
 Meraioth his son, Amariah his son, Ahitub his son, 
 
 ###### 53 
-Zadok his son, _and_ Ahimaaz his son. ## Dwelling Places of the Levites 
+Zadok his son, _and_ Ahimaaz his son.
+
+## Dwelling Places of the Levites 
 
 ###### 54 
 Now these _are_ their dwelling places throughout their settlements in their territory, for they were _given_ by lot to the sons of Aaron, of the family of the Kohathites: 

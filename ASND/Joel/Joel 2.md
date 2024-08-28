@@ -205,7 +205,9 @@ Ang ingay ng kanilang paglukso sa ibabaw ng mga bundok ay parang mga karwaheng t
 
 
 
-Ang mga taong makakakita sa kanila ay mamumutla sa takot. ###### 7-8 Sumasalakay sila at umaakyat sa mga pader na parang mga sundalo. Diretso ang kanilang paglakad at hindi lumilihis sa kanilang dinadaanan. Hindi sila nagtutulakan, at kahit masalubong nila ang mga sandata ng kaaway, hindi sila naghihiwa-hiwalay. 
+Ang mga taong makakakita sa kanila ay mamumutla sa takot.
+
+###### 7-8 Sumasalakay sila at umaakyat sa mga pader na parang mga sundalo. Diretso ang kanilang paglakad at hindi lumilihis sa kanilang dinadaanan. Hindi sila nagtutulakan, at kahit masalubong nila ang mga sandata ng kaaway, hindi sila naghihiwa-hiwalay. 
 
 
 
@@ -832,7 +834,9 @@ Magkakaroon na kayo ngayon ng saganang pagkain at lubusang mabubusog. At dahil d
 
 
 
-Malalaman ninyo na akoʼy sumasainyo na mga taga-Israel, at ako lamang ang Panginoon na inyong Dios at wala nang iba pa. Kayo na aking mga mamamayan ay hindi na nga mapapahiya kailanman. ## Ang mga Pagpapalang Espiritwal 
+Malalaman ninyo na akoʼy sumasainyo na mga taga-Israel, at ako lamang ang Panginoon na inyong Dios at wala nang iba pa. Kayo na aking mga mamamayan ay hindi na nga mapapahiya kailanman.
+
+## Ang mga Pagpapalang Espiritwal 
 
 
 

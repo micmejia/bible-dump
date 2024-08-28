@@ -154,7 +154,9 @@ They moved from Almon Diblathaim and camped in the mountains of Abarim, before N
 They departed from the mountains of Abarim and camped in the plains of Moab by the Jordan, _across from_ Jericho. 
 
 ###### 49 
-They camped by the Jordan, from Beth Jesimoth as far as the Abel Acacia Grove in the plains of Moab. ## Instructions for the Conquest of Canaan 
+They camped by the Jordan, from Beth Jesimoth as far as the Abel Acacia Grove in the plains of Moab.
+
+## Instructions for the Conquest of Canaan 
 
 ###### 50 
 Now the Lord spoke to Moses in the plains of Moab by the Jordan, _across from_ Jericho, saying, 

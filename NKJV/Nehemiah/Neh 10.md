@@ -88,7 +88,9 @@ Rehum, Hashabnah, Maaseiah,
 Ahijah, Hanan, Anan, 
 
 ###### 27 
-Malluch, Harim, _and_ Baanah. ## The Covenant That Was Sealed 
+Malluch, Harim, _and_ Baanah.
+
+## The Covenant That Was Sealed 
 
 ###### 28 
 Now the rest of the people--the priests, the Levites, the gatekeepers, the singers, the Nethinim, and all those who had separated themselves from the peoples of the lands to the Law of God, their wives, their sons, and their daughters, everyone who had knowledge and understanding-- 

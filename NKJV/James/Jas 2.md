@@ -46,7 +46,9 @@ For He who said, "Do not commit adultery," also said, "Do not murder." Now if yo
 So speak and so do as those who will be judged by the law of liberty. 
 
 ###### 13 
-For judgment is without mercy to the one who has shown no mercy. Mercy triumphs over judgment. ## Faith Without Works Is Dead 
+For judgment is without mercy to the one who has shown no mercy. Mercy triumphs over judgment.
+
+## Faith Without Works Is Dead 
 
 ###### 14 
 What _does it_ profit, my brethren, if someone says he has faith but does not have works? Can faith save him? 

@@ -139,7 +139,11 @@ Ang sakop ng kaharian niya ay ang Bundok ng Hermon, Saleca, ang buong Bashan han
 
 
 
-Tinalo sila ni Moises, na lingkod ng Panginoon, at ng mga Israelita. Ibinigay ni Moises ang lupain ng mga ito sa lahi ni Reuben, Gad at sa kalahating lahi ni Manase bilang mana nila. ## Ang mga Hari na Natalo sa Kanluran ng Jordan ###### 7-8 Sinakop din ni Josue at ng mga Israelita ang mga lupain sa kanluran ng Jordan, mula sa Baal Gad sa Lambak ng Lebanon hanggang sa Bundok ng Halak na paahon sa Seir. Ibinigay ni Josue ang mga lupaing ito sa mga Israelita bilang mana nila. Hinati niya ito ayon sa bawat lahi nila. Ang mga lupaing ito ay ang mga kabundukan, mga kaburulan sa kanluran, ang Lambak ng Jordan, ang mga libis, ang disyerto <i class="trans-change">sa timog_, at ang Negev. Tinirhan ito dati ng mga Heteo, Amoreo, Cananeo, Perezeo, Hiveo, at mga Jebuseo. Ito ang mga hari ng mga lugar na iyon na tinalo ni Josue at ng mga Israelita: 
+Tinalo sila ni Moises, na lingkod ng Panginoon, at ng mga Israelita. Ibinigay ni Moises ang lupain ng mga ito sa lahi ni Reuben, Gad at sa kalahating lahi ni Manase bilang mana nila.
+
+## Ang mga Hari na Natalo sa Kanluran ng Jordan
+
+###### 7-8 Sinakop din ni Josue at ng mga Israelita ang mga lupain sa kanluran ng Jordan, mula sa Baal Gad sa Lambak ng Lebanon hanggang sa Bundok ng Halak na paahon sa Seir. Ibinigay ni Josue ang mga lupaing ito sa mga Israelita bilang mana nila. Hinati niya ito ayon sa bawat lahi nila. Ang mga lupaing ito ay ang mga kabundukan, mga kaburulan sa kanluran, ang Lambak ng Jordan, ang mga libis, ang disyerto <i class="trans-change">sa timog_, at ang Negev. Tinirhan ito dati ng mga Heteo, Amoreo, Cananeo, Perezeo, Hiveo, at mga Jebuseo. Ito ang mga hari ng mga lugar na iyon na tinalo ni Josue at ng mga Israelita: 
 
 
 

@@ -64,7 +64,9 @@ These _are_ the golden tumors which the Philistines returned _as_ a trespass off
 and the golden rats, _according to_ the number of all the cities of the Philistines _belonging_ to the five lords, _both_ fortified cities and country villages, even as far as the large _stone of_ Abel on which they set the ark of the Lord, _which stone remains_ to this day in the field of Joshua of Beth Shemesh. 
 
 ###### 19 
-Then He struck the men of Beth Shemesh, because they had looked into the ark of the Lord. He struck fifty thousand and seventy men of the people, and the people lamented because the Lord had struck the people with a great slaughter. ## The Ark at Kirjath Jearim 
+Then He struck the men of Beth Shemesh, because they had looked into the ark of the Lord. He struck fifty thousand and seventy men of the people, and the people lamented because the Lord had struck the people with a great slaughter.
+
+## The Ark at Kirjath Jearim 
 
 ###### 20 
 And the men of Beth Shemesh said, "Who is able to stand before this holy Lord God? And to whom shall it go up from us?" 

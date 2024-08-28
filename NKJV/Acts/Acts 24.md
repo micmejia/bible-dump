@@ -34,7 +34,9 @@ But the commander Lysias came by and with great violence took _him_ out of our h
 commanding his accusers to come to you. By examining him yourself you may ascertain all these things of which we accuse him." 
 
 ###### 9 
-And the Jews also assented, maintaining that these things were so. ## The Defense Before Felix 
+And the Jews also assented, maintaining that these things were so.
+
+## The Defense Before Felix 
 
 ###### 10 
 Then Paul, after the governor had nodded to him to speak, answered: "Inasmuch as I know that you have been for many years a judge of this nation, I do the more cheerfully answer for myself, 

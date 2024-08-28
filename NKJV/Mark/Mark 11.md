@@ -40,7 +40,9 @@ Then those who went before and those who followed cried out, saying: "Hosanna! '
 Blessed _is_ the kingdom of our father David That comes in the name of the Lord! Hosanna in the highest!" 
 
 ###### 11 
-And Jesus went into Jerusalem and into the temple. So when He had looked around at all things, as the hour was already late, He went out to Bethany with the twelve. ## The Fig Tree Withered 
+And Jesus went into Jerusalem and into the temple. So when He had looked around at all things, as the hour was already late, He went out to Bethany with the twelve.
+
+## The Fig Tree Withered 
 
 ###### 12 
 Now the next day, when they had come out from Bethany, He was hungry. 
@@ -49,7 +51,9 @@ Now the next day, when they had come out from Bethany, He was hungry.
 And seeing from afar a fig tree having leaves, He went to see if perhaps He would find something on it. When He came to it, He found nothing but leaves, for it was not the season for figs. 
 
 ###### 14 
-In response Jesus said to it, "Let no one eat fruit from you ever again." And His disciples heard _it._ ## Jesus Cleanses the Temple 
+In response Jesus said to it, "Let no one eat fruit from you ever again." And His disciples heard _it._
+
+## Jesus Cleanses the Temple 
 
 ###### 15 
 So they came to Jerusalem. Then Jesus went into the temple and began to drive out those who bought and sold in the temple, and overturned the tables of the money changers and the seats of those who sold doves. 
@@ -64,7 +68,9 @@ Then He taught, saying to them, "Is it not written, 'My house shall be called a 
 And the scribes and chief priests heard it and sought how they might destroy Him; for they feared Him, because all the people were astonished at His teaching. 
 
 ###### 19 
-When evening had come, He went out of the city. ## The Lesson of the Withered Fig Tree 
+When evening had come, He went out of the city.
+
+## The Lesson of the Withered Fig Tree 
 
 ###### 20 
 Now in the morning, as they passed by, they saw the fig tree dried up from the roots. 
@@ -79,7 +85,9 @@ So Jesus answered and said to them, "Have faith in God.
 For assuredly, I say to you, whoever says to this mountain, 'Be removed and be cast into the sea,' and does not doubt in his heart, but believes that those things he says will be done, he will have whatever he says. 
 
 ###### 24 
-Therefore I say to you, whatever things you ask when you pray, believe that you receive _them,_ and you will have _them._ ## Forgiveness and Prayer 
+Therefore I say to you, whatever things you ask when you pray, believe that you receive _them,_ and you will have _them._
+
+## Forgiveness and Prayer 
 
 ###### 25 
 "And whenever you stand praying, if you have anything against anyone, forgive him, that your Father in heaven may also forgive you your trespasses. 

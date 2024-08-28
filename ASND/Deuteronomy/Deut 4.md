@@ -1030,7 +1030,9 @@ Kapag dumating ang kahirapan sa inyo, sa bandang huliʼy manunumbalik kayo sa Pa
 
 
 
-Sapagkat maawain ang Panginoon na inyong Dios, hindi niya kayo pababayaan o lilipulin. Hindi niya kalilimutan ang kasunduang kanyang ipinangako sa inyong mga ninuno. ## May Iisa lang na Dios 
+Sapagkat maawain ang Panginoon na inyong Dios, hindi niya kayo pababayaan o lilipulin. Hindi niya kalilimutan ang kasunduang kanyang ipinangako sa inyong mga ninuno.
+
+## May Iisa lang na Dios 
 
 
 

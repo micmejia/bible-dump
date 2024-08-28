@@ -237,7 +237,9 @@ upang maunawaan nila ang kahulugan ng mga kawikaan, mga talinghaga, at mga bugto
 
 
 
-Ang pagkatakot sa Panginoon <i class="trans-change">na may paggalang_ ang simula ng karunungan. Ngunit sa hangal, walang halaga ang karunungan at ayaw niyang maturuan upang maituwid ang kanyang pag-uugali. ## Payo sa Pag-iwas sa Masamang Tao 
+Ang pagkatakot sa Panginoon <i class="trans-change">na may paggalang_ ang simula ng karunungan. Ngunit sa hangal, walang halaga ang karunungan at ayaw niyang maturuan upang maituwid ang kanyang pag-uugali.
+
+## Payo sa Pag-iwas sa Masamang Tao 
 
 
 
@@ -633,7 +635,9 @@ Walang kabuluhan ang paglalagay ng bitag kung ang ibong iyong huhulihin ay nakat
 
 
 
-Ganyan ang mangyayari sa mga taong ang ari-arian ay nakuha sa masamang paraan. Mamamatay sila sa ganoon ding paraan. ## Kapag Itinakwil ang Karunungan <sup class="versenum">20-21</sup>Ang karunungan ay <i class="trans-change">katulad ng isang_ mangangaral na nagsasalita sa mga lansangan, plasa, pamilihan, at mga pintuang bayan. Sinasabi niya, 
+Ganyan ang mangyayari sa mga taong ang ari-arian ay nakuha sa masamang paraan. Mamamatay sila sa ganoon ding paraan.
+
+## Kapag Itinakwil ang Karunungan <sup class="versenum">20-21</sup>Ang karunungan ay <i class="trans-change">katulad ng isang_ mangangaral na nagsasalita sa mga lansangan, plasa, pamilihan, at mga pintuang bayan. Sinasabi niya, 
 
 
 

@@ -172,7 +172,9 @@ Ang pamumunuin ng Panginoon sa kanila ay mga kabataan.
 
 
 
-Aapihin ng bawat isa ang kanyang kapwa. Lalabanan ng mga bata ang matatanda, at lalabanan ng mga hamak ang mararangal. ###### 6-7 Sa mga araw na iyon, pupuntahan ng isang tao ang kanyang kamag-anak at sasabihin, "Maayos pa naman ang damit mo, ikaw na lang ang mamuno sa amin sa panahong ito na wasak ang ating lugar." Pero sasagot siya, "Hindi ko kayo matutulungan. Wala ring pagkain o damit ang aking pamilya, kaya huwag nʼyo akong gagawing pinuno." 
+Aapihin ng bawat isa ang kanyang kapwa. Lalabanan ng mga bata ang matatanda, at lalabanan ng mga hamak ang mararangal.
+
+###### 6-7 Sa mga araw na iyon, pupuntahan ng isang tao ang kanyang kamag-anak at sasabihin, "Maayos pa naman ang damit mo, ikaw na lang ang mamuno sa amin sa panahong ito na wasak ang ating lugar." Pero sasagot siya, "Hindi ko kayo matutulungan. Wala ring pagkain o damit ang aking pamilya, kaya huwag nʼyo akong gagawing pinuno." 
 
 
 

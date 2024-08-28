@@ -40,7 +40,9 @@ Then Peter said to her, "How is it that you have agreed together to test the Spi
 Then immediately she fell down at his feet and breathed her last. And the young men came in and found her dead, and carrying _her_ out, buried _her_ by her husband. 
 
 ###### 11 
-So great fear came upon all the church and upon all who heard these things. ## Continuing Power in the Church 
+So great fear came upon all the church and upon all who heard these things.
+
+## Continuing Power in the Church 
 
 ###### 12 
 And through the hands of the apostles many signs and wonders were done among the people. And they were all with one accord in Solomon's Porch. 
@@ -55,7 +57,9 @@ And believers were increasingly added to the Lord, multitudes of both men and wo
 so that they brought the sick out into the streets and laid _them_ on beds and couches, that at least the shadow of Peter passing by might fall on some of them. 
 
 ###### 16 
-Also a multitude gathered from the surrounding cities to Jerusalem, bringing sick people and those who were tormented by unclean spirits, and they were all healed. ## Imprisoned Apostles Freed 
+Also a multitude gathered from the surrounding cities to Jerusalem, bringing sick people and those who were tormented by unclean spirits, and they were all healed.
+
+## Imprisoned Apostles Freed 
 
 ###### 17 
 Then the high priest rose up, and all those who _were_ with him (which is the sect of the Sadducees), and they were filled with indignation, 
@@ -70,7 +74,9 @@ But at night an angel of the Lord opened the prison doors and brought them out, 
 "Go, stand in the temple and speak to the people all the words of this life." 
 
 ###### 21 
-And when they heard _that,_ they entered the temple early in the morning and taught. But the high priest and those with him came and called the council together, with all the elders of the children of Israel, and sent to the prison to have them brought. ## Apostles on Trial Again 
+And when they heard _that,_ they entered the temple early in the morning and taught. But the high priest and those with him came and called the council together, with all the elders of the children of Israel, and sent to the prison to have them brought.
+
+## Apostles on Trial Again 
 
 ###### 22 
 But when the officers came and did not find them in the prison, they returned and reported, 

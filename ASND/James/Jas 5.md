@@ -204,7 +204,9 @@ Namuhay kayo nang marangya at maluho sa mundong ito. Para nʼyo na ring pinataba
 
 
 
-Hinatulan ninyoʼt ipinapatay ang mga taong walang kasalanan kahit hindi sila lumalaban sa inyo. ## Pagtitiyaga at Pananalangin 
+Hinatulan ninyoʼt ipinapatay ang mga taong walang kasalanan kahit hindi sila lumalaban sa inyo.
+
+## Pagtitiyaga at Pananalangin 
 
 
 

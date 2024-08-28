@@ -1063,7 +1063,9 @@ Pinagtagumpay ng Panginoon ang mga Israelita. At sa araw na iyon, nakapatay sila
 
 
 
-At napansin ng mga taga-Benjamin na natatalo na sila. ## Ang Detalye nang Pagtatagumpay ng mga Israelita Tumakas ang malaking grupo ng mga sundalo ng Israel para makalusob ang mga taong itinalaga nilang pumaligid sa bayan ng Gibea. 
+At napansin ng mga taga-Benjamin na natatalo na sila.
+
+## Ang Detalye nang Pagtatagumpay ng mga Israelita Tumakas ang malaking grupo ng mga sundalo ng Israel para makalusob ang mga taong itinalaga nilang pumaligid sa bayan ng Gibea. 
 
 
 

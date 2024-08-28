@@ -997,7 +997,9 @@ Ang akala ng iba, inutusan lang ni Jesus si Judas na bumili ng mga kakailanganin
 
 
 
-Pagkakain ni Judas ng tinapay, agad siyang umalis. Gabi na noon. ## Ang Bagong Utos 
+Pagkakain ni Judas ng tinapay, agad siyang umalis. Gabi na noon.
+
+## Ang Bagong Utos 
 
 
 

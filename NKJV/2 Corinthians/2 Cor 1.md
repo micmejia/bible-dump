@@ -12,7 +12,9 @@ next: ['2 Cor 2']
 Paul, an apostle of Jesus Christ by the will of God, and Timothy _our_ brother, To the church of God which is at Corinth, with all the saints who are in all Achaia: 
 
 ###### 2 
-Grace to you and peace from God our Father and the Lord Jesus Christ. ## Comfort in Suffering 
+Grace to you and peace from God our Father and the Lord Jesus Christ.
+
+## Comfort in Suffering 
 
 ###### 3 
 Blessed _be_ the God and Father of our Lord Jesus Christ, the Father of mercies and God of all comfort, 
@@ -27,7 +29,9 @@ For as the sufferings of Christ abound in us, so our consolation also abounds th
 Now if we are afflicted, _it is_ for your consolation and salvation, which is effective for enduring the same sufferings which we also suffer. Or if we are comforted, _it is_ for your consolation and salvation. 
 
 ###### 7 
-And our hope for you _is_ steadfast, because we know that as you are partakers of the sufferings, so also _you will partake_ of the consolation. ## Delivered from Suffering 
+And our hope for you _is_ steadfast, because we know that as you are partakers of the sufferings, so also _you will partake_ of the consolation.
+
+## Delivered from Suffering 
 
 ###### 8 
 For we do not want you to be ignorant, brethren, of our trouble which came to us in Asia: that we were burdened beyond measure, above strength, so that we despaired even of life. 
@@ -39,7 +43,9 @@ Yes, we had the sentence of death in ourselves, that we should not trust in ours
 who delivered us from so great a death, and does deliver us; in whom we trust that He will still deliver _us,_ 
 
 ###### 11 
-you also helping together in prayer for us, that thanks may be given by many persons on our behalf for the gift _granted_ to us through many. ## Paul's Sincerity 
+you also helping together in prayer for us, that thanks may be given by many persons on our behalf for the gift _granted_ to us through many.
+
+## Paul's Sincerity 
 
 ###### 12 
 For our boasting is this: the testimony of our conscience that we conducted ourselves in the world in simplicity and godly sincerity, not with fleshly wisdom but by the grace of God, and more abundantly toward you. 
@@ -48,7 +54,9 @@ For our boasting is this: the testimony of our conscience that we conducted ours
 For we are not writing any other things to you than what you read or understand. Now I trust you will understand, even to the end 
 
 ###### 14 
-(as also you have understood us in part), that we are your boast as you also _are_ ours, in the day of the Lord Jesus. ## Sparing the Church 
+(as also you have understood us in part), that we are your boast as you also _are_ ours, in the day of the Lord Jesus.
+
+## Sparing the Church 
 
 ###### 15 
 And in this confidence I intended to come to you before, that you might have a second benefit-- 

@@ -25,7 +25,9 @@ For whatever things were written before were written for our learning, that we t
 Now may the God of patience and comfort grant you to be like-minded toward one another, according to Christ Jesus, 
 
 ###### 6 
-that you may with one mind _and_ one mouth glorify the God and Father of our Lord Jesus Christ. ## Glorify God Together 
+that you may with one mind _and_ one mouth glorify the God and Father of our Lord Jesus Christ.
+
+## Glorify God Together 
 
 ###### 7 
 Therefore receive one another, just as Christ also received us, to the glory of God. 
@@ -46,7 +48,9 @@ And again: "Praise the Lord, all you Gentiles! Laud Him, all you peoples!"
 And again, Isaiah says: "There shall be a root of Jesse; And He who shall rise to reign over the Gentiles, In Him the Gentiles shall hope." 
 
 ###### 13 
-Now may the God of hope fill you with all joy and peace in believing, that you may abound in hope by the power of the Holy Spirit. ## From Jerusalem to Illyricum 
+Now may the God of hope fill you with all joy and peace in believing, that you may abound in hope by the power of the Holy Spirit.
+
+## From Jerusalem to Illyricum 
 
 ###### 14 
 Now I myself am confident concerning you, my brethren, that you also are full of goodness, filled with all knowledge, able also to admonish one another. 

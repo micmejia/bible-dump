@@ -601,7 +601,9 @@ Huwag nʼyo po akong takutin, dahil kayo ang kanlungan ko sa panahon ng kapahama
 
 
 
-Takutin at hiyain nʼyo po ang mga umuusig sa akin. Pero huwag nʼyo itong gawin sa akin. Padalhan nʼyo po sila ng kapahamakan para malipol sila nang lubusan. ## Ang Araw ng Pamamahinga 
+Takutin at hiyain nʼyo po ang mga umuusig sa akin. Pero huwag nʼyo itong gawin sa akin. Padalhan nʼyo po sila ng kapahamakan para malipol sila nang lubusan.
+
+## Ang Araw ng Pamamahinga 
 
 
 

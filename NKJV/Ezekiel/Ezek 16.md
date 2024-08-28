@@ -49,7 +49,9 @@ And I put a jewel in your nose, earrings in your ears, and a beautiful crown on 
 Thus you were adorned with gold and silver, and your clothing _was of_ fine linen, silk, and embroidered cloth. You ate _pastry of_ fine flour, honey, and oil. You were exceedingly beautiful, and succeeded to royalty. 
 
 ###### 14 
-Your fame went out among the nations because of your beauty, for it _was_ perfect through My splendor which I had bestowed on you," says the Lord God. ## Jerusalem's Harlotry 
+Your fame went out among the nations because of your beauty, for it _was_ perfect through My splendor which I had bestowed on you," says the Lord God.
+
+## Jerusalem's Harlotry 
 
 ###### 15 
 "But you trusted in your own beauty, played the harlot because of your fame, and poured out your harlotry on everyone passing by who _would have_ it. 
@@ -97,7 +99,9 @@ You also played the harlot with the Assyrians, because you were insatiable; inde
 Moreover you multiplied your acts of harlotry as far as the land of the trader, Chaldea; and even then you were not satisfied. 
 
 ###### 30 
-"How degenerate is your heart!" says the Lord God, "seeing you do all these _things,_ the deeds of a brazen harlot. ## Jerusalem's Adultery 
+"How degenerate is your heart!" says the Lord God, "seeing you do all these _things,_ the deeds of a brazen harlot.
+
+## Jerusalem's Adultery 
 
 ###### 31 
 "You erected your shrine at the head of every road, and built your high place in every street. Yet you were not like a harlot, because you scorned payment. 
@@ -136,7 +140,9 @@ They shall burn your houses with fire, and execute judgments on you in the sight
 So I will lay to rest My fury toward you, and My jealousy shall depart from you. I will be quiet, and be angry no more. 
 
 ###### 43 
-Because you did not remember the days of your youth, but agitated Me with all these _things,_ surely I will also recompense your deeds on _your own_ head," says the Lord God. "And you shall not commit lewdness in addition to all your abominations. ## More Wicked than Samaria and Sodom 
+Because you did not remember the days of your youth, but agitated Me with all these _things,_ surely I will also recompense your deeds on _your own_ head," says the Lord God. "And you shall not commit lewdness in addition to all your abominations.
+
+## More Wicked than Samaria and Sodom 
 
 ###### 44 
 "Indeed everyone who quotes proverbs will use _this_ proverb against you: 'Like mother, like daughter!' 
@@ -184,7 +190,9 @@ before your wickedness was uncovered. It was like the time of the reproach of th
 You have paid for your lewdness and your abominations," says the Lord. 
 
 ###### 59 
-For thus says the Lord God: "I will deal with you as you have done, who despised the oath by breaking the covenant. ## An Everlasting Covenant 
+For thus says the Lord God: "I will deal with you as you have done, who despised the oath by breaking the covenant.
+
+## An Everlasting Covenant 
 
 ###### 60 
 "Nevertheless I will remember My covenant with you in the days of your youth, and I will establish an everlasting covenant with you. 

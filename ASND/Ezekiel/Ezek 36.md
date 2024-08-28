@@ -106,7 +106,9 @@ Ito ang sinabi ng Panginoong Dios: Sinabi ng mga kalaban ninyo na sa kanila na a
 
 
 
-"Kaya <i class="trans-change">anak ng tao_, sabihin mo <i class="trans-change">sa mga bundok ng Israel_ na <i class="trans-change">ako,_ ang Panginoong Dios ay nagsasabi: Sinalakay kayo ng mga bansa mula sa ibaʼt ibang dako at sila ngayon ang nagmamay-ari sa inyo. Kinutya nila kayo at inilagay sa kahihiyan. ###### 4-5 Kaya kayong mga bundok, burol, mga daluyan ng tubig, lambak, mga gibang lugar at mapanglaw na bayan na sinalakay at kinutya ng mga bansa sa palibot ninyo, pakinggan ninyo ang sasabihin ko. <i class="trans-change">Ako_, ang Panginoong Dios ay nagsasabing, lubha akong nagagalit sa mga bansang iyon, lalung-lalo na sa Edom. Sinakop nila ang aking lupain nang may katuwaan at pangungutya, dahil talagang gusto nilang mapunta sa kanila ang mga pastulan nito. 
+"Kaya <i class="trans-change">anak ng tao_, sabihin mo <i class="trans-change">sa mga bundok ng Israel_ na <i class="trans-change">ako,_ ang Panginoong Dios ay nagsasabi: Sinalakay kayo ng mga bansa mula sa ibaʼt ibang dako at sila ngayon ang nagmamay-ari sa inyo. Kinutya nila kayo at inilagay sa kahihiyan.
+
+###### 4-5 Kaya kayong mga bundok, burol, mga daluyan ng tubig, lambak, mga gibang lugar at mapanglaw na bayan na sinalakay at kinutya ng mga bansa sa palibot ninyo, pakinggan ninyo ang sasabihin ko. <i class="trans-change">Ako_, ang Panginoong Dios ay nagsasabing, lubha akong nagagalit sa mga bansang iyon, lalung-lalo na sa Edom. Sinakop nila ang aking lupain nang may katuwaan at pangungutya, dahil talagang gusto nilang mapunta sa kanila ang mga pastulan nito. 
 
 
 

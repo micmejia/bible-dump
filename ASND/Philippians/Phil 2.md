@@ -370,7 +370,9 @@ upang ang lahat ng nasa langit at lupa, at nasa ilalim ng lupa ay luluhod <i cla
 
 
 
-At kikilalanin ng lahat na si Jesu-Cristo ang Panginoon, sa ikapupuri ng Dios Ama. ## Magsilbi Kayong Ilaw na Nagliliwanag 
+At kikilalanin ng lahat na si Jesu-Cristo ang Panginoon, sa ikapupuri ng Dios Ama.
+
+## Magsilbi Kayong Ilaw na Nagliliwanag 
 
 
 
@@ -601,7 +603,9 @@ Ang paglilingkod ninyo na bunga ng inyong pananampalataya ay tulad sa isang hand
 
 
 
-At dapat maligaya rin kayo at makigalak sa akin. ## Si Timoteo at si Epafroditus 
+At dapat maligaya rin kayo at makigalak sa akin.
+
+## Si Timoteo at si Epafroditus 
 
 
 

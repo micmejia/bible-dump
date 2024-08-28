@@ -28,7 +28,9 @@ and they spoke to Moses, saying, "The people bring much more than enough for the
 So Moses gave a commandment, and they caused it to be proclaimed throughout the camp, saying, "Let neither man nor woman do any more work for the offering of the sanctuary." And the people were restrained from bringing, 
 
 ###### 7 
-for the material they had was sufficient for all the work to be done--indeed too much. ## Building the Tabernacle 
+for the material they had was sufficient for all the work to be done--indeed too much.
+
+## Building the Tabernacle 
 
 ###### 8 
 Then all the gifted artisans among them who worked on the tabernacle made ten curtains woven of fine linen, and of blue, purple, and scarlet _thread; with_ artistic designs of cherubim they made them. 

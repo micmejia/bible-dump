@@ -18,7 +18,9 @@ I would lead you _and_ bring you Into the house of my mother, She _who_ used to 
 His left hand _is_ under my head, And his right hand embraces me. 
 
 ###### 4 
-I charge you, O daughters of Jerusalem, Do not stir up nor awaken love Until it pleases. ## Love Renewed in Lebanon 
+I charge you, O daughters of Jerusalem, Do not stir up nor awaken love Until it pleases.
+
+## Love Renewed in Lebanon 
 
 ###### 5 
 Who _is_ this coming up from the wilderness, Leaning upon her beloved? I awakened you under the apple tree. There your mother brought you forth; There she _who_ bore you brought _you_ forth. 

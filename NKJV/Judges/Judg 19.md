@@ -70,7 +70,9 @@ although we have both straw and fodder for our donkeys, and bread and wine for m
 And the old man said, "Peace _be_ with you! However, _let_ all your needs _be_ my responsibility; only do not spend the night in the open square." 
 
 ###### 21 
-So he brought him into his house, and gave fodder to the donkeys. And they washed their feet, and ate and drank. ## Gibeah's Crime 
+So he brought him into his house, and gave fodder to the donkeys. And they washed their feet, and ate and drank.
+
+## Gibeah's Crime 
 
 ###### 22 
 As they were enjoying themselves, suddenly certain men of the city, perverted men, surrounded the house _and_ beat on the door. They spoke to the master of the house, the old man, saying, "Bring out the man who came to your house, that we may know him _carnally!_" 

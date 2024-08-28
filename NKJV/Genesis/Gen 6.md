@@ -31,7 +31,9 @@ And the Lord was sorry that He had made man on the earth, and He was grieved in 
 So the Lord said, "I will destroy man whom I have created from the face of the earth, both man and beast, creeping thing and birds of the air, for I am sorry that I have made them." 
 
 ###### 8 
-But Noah found grace in the eyes of the Lord. ## Noah Pleases God 
+But Noah found grace in the eyes of the Lord.
+
+## Noah Pleases God 
 
 ###### 9 
 This is the genealogy of Noah. Noah was a just man, perfect in his generations. Noah walked with God. 
@@ -43,7 +45,9 @@ And Noah begot three sons: Shem, Ham, and Japheth.
 The earth also was corrupt before God, and the earth was filled with violence. 
 
 ###### 12 
-So God looked upon the earth, and indeed it was corrupt; for all flesh had corrupted their way on the earth. ## The Ark Prepared 
+So God looked upon the earth, and indeed it was corrupt; for all flesh had corrupted their way on the earth.
+
+## The Ark Prepared 
 
 ###### 13 
 And God said to Noah, "The end of all flesh has come before Me, for the earth is filled with violence through them; and behold, I will destroy them with the earth. 

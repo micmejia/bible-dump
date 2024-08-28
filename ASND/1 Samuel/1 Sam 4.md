@@ -40,7 +40,9 @@ next: ['1 Sam 5']
 
 
 
-Kumalat sa buong Israel ang mensahe ni Samuel. ## Nakuha ng mga Filisteo ang Kahon ng Kasunduan Nagkaroon ng digmaan sa pagitan ng mga Israelita at mga Filisteo nang mga panahong iyon. Nagkampo ang mga Israelita sa Ebenezer, at ang mga Filisteo naman ay sa Afek. 
+Kumalat sa buong Israel ang mensahe ni Samuel.
+
+## Nakuha ng mga Filisteo ang Kahon ng Kasunduan Nagkaroon ng digmaan sa pagitan ng mga Israelita at mga Filisteo nang mga panahong iyon. Nagkampo ang mga Israelita sa Ebenezer, at ang mga Filisteo naman ay sa Afek. 
 
 
 
@@ -370,7 +372,9 @@ Kaya nakipaglaban ang mga Filisteo at natalo ang mga Israelita. Napakarami ng na
 
 
 
-Naagaw ng mga Filisteo ang Kahon ng Kasunduan at napatay ang dalawang anak ni Eli na sina Hofni at Finehas. ## Ang Pagkamatay ni Eli 
+Naagaw ng mga Filisteo ang Kahon ng Kasunduan at napatay ang dalawang anak ni Eli na sina Hofni at Finehas.
+
+## Ang Pagkamatay ni Eli 
 
 
 

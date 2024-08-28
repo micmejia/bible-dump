@@ -19,7 +19,9 @@ And these _are_ the names of the sons of Aaron: Nadab, the firstborn, and Abihu,
 These _are_ the names of the sons of Aaron, the anointed priests, whom he consecrated to minister as priests. 
 
 ###### 4 
-Nadab and Abihu had died before the Lord when they offered profane fire before the Lord in the Wilderness of Sinai; and they had no children. So Eleazar and Ithamar ministered as priests in the presence of Aaron their father. ## The Levites Serve in the Tabernacle 
+Nadab and Abihu had died before the Lord when they offered profane fire before the Lord in the Wilderness of Sinai; and they had no children. So Eleazar and Ithamar ministered as priests in the presence of Aaron their father.
+
+## The Levites Serve in the Tabernacle 
 
 ###### 5 
 And the Lord spoke to Moses, saying: 
@@ -124,7 +126,9 @@ and the pillars of the court all around, with their sockets, their pegs, and the
 Moreover those who were to camp before the tabernacle on the east, before the tabernacle of meeting, _were_ Moses, Aaron, and his sons, keeping charge of the sanctuary, to meet the needs of the children of Israel; but the outsider who came near was to be put to death. 
 
 ###### 39 
-All who were numbered of the Levites, whom Moses and Aaron numbered at the commandment of the Lord, by their families, all the males from a month old and above, _were_ twenty-two thousand. ## Levites Dedicated Instead of the Firstborn 
+All who were numbered of the Levites, whom Moses and Aaron numbered at the commandment of the Lord, by their families, all the males from a month old and above, _were_ twenty-two thousand.
+
+## Levites Dedicated Instead of the Firstborn 
 
 ###### 40 
 Then the Lord said to Moses: "Number all the firstborn males of the children of Israel from a month old and above, and take the number of their names. 

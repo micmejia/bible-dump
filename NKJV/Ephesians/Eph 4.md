@@ -25,7 +25,9 @@ _There is_ one body and one Spirit, just as you were called in one hope of your 
 one Lord, one faith, one baptism; 
 
 ###### 6 
-one God and Father of all, who _is_ above all, and through all, and in you all. ## Spiritual Gifts 
+one God and Father of all, who _is_ above all, and through all, and in you all.
+
+## Spiritual Gifts 
 
 ###### 7 
 But to each one of us grace was given according to the measure of Christ's gift. 
@@ -55,7 +57,9 @@ that we should no longer be children, tossed to and fro and carried about with e
 but, speaking the truth in love, may grow up in all things into Him who is the head--Christ-- 
 
 ###### 16 
-from whom the whole body, joined and knit together by what every joint supplies, according to the effective working by which every part does its share, causes growth of the body for the edifying of itself in love. ## The New Man 
+from whom the whole body, joined and knit together by what every joint supplies, according to the effective working by which every part does its share, causes growth of the body for the edifying of itself in love.
+
+## The New Man 
 
 ###### 17 
 This I say, therefore, and testify in the Lord, that you should no longer walk as the rest of the Gentiles walk, in the futility of their mind, 
@@ -79,7 +83,9 @@ that you put off, concerning your former conduct, the old man which grows corrup
 and be renewed in the spirit of your mind, 
 
 ###### 24 
-and that you put on the new man which was created according to God, in true righteousness and holiness. ## Do Not Grieve the Spirit 
+and that you put on the new man which was created according to God, in true righteousness and holiness.
+
+## Do Not Grieve the Spirit 
 
 ###### 25 
 Therefore, putting away lying, "_Let_ each one _of you_ speak truth with his neighbor," for we are members of one another. 

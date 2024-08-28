@@ -106,7 +106,9 @@ Pagkatapos, sumumpa ang mga Israelita sa Panginoon, "Kung ibibigay nʼyo po ang 
 
 
 
-Pinakinggan ng Panginoon ang pakiusap ng mga Israelita at ibinigay niya sa kanila ang mga Cananeo. Lubusan silang nilipol ng mga Israelita pati ang kanilang mga bayan bilang handog sa Panginoon, kaya tinawag itong lugar ng Horma. ## Ang Tansong Ahas 
+Pinakinggan ng Panginoon ang pakiusap ng mga Israelita at ibinigay niya sa kanila ang mga Cananeo. Lubusan silang nilipol ng mga Israelita pati ang kanilang mga bayan bilang handog sa Panginoon, kaya tinawag itong lugar ng Horma.
+
+## Ang Tansong Ahas 
 
 
 
@@ -304,7 +306,9 @@ Sinabi ng Panginoon kay Moises, "Gumawa ka ng <i class="trans-change">tansong_ a
 
 
 
-Kaya gumawa si Moises ng tansong ahas at inilagay niya ito sa dulo ng isang tukod. At ang mga nakagat ng ahas na tumingin sa tansong ahas ay hindi nga namatay. ## Ang Paglalakbay Papunta sa Moab 
+Kaya gumawa si Moises ng tansong ahas at inilagay niya ito sa dulo ng isang tukod. At ang mga nakagat ng ahas na tumingin sa tansong ahas ay hindi nga namatay.
+
+## Ang Paglalakbay Papunta sa Moab 
 
 
 
@@ -634,7 +638,9 @@ mula sa Matana nagpunta sila sa Nahaliel; mula sa Nahaliel nagpunta sila sa Bamo
 
 
 
-at mula sa Bamot nagpunta sila sa lambak ng Moab, na kung saan makikita ang disyerto sa baba ng tuktok ng Pisga. ## Natalo si Haring Sihon at si Haring Og 
+at mula sa Bamot nagpunta sila sa lambak ng Moab, na kung saan makikita ang disyerto sa baba ng tuktok ng Pisga.
+
+## Natalo si Haring Sihon at si Haring Og 
 
 
 

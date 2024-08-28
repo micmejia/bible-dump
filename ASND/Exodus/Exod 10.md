@@ -667,7 +667,9 @@ Sumagot ang Panginoon sa pamamagitan ng pagpapadala ng malakas na hangin galing 
 
 
 
-Pero pinatigas pa rin ng Panginoon ang puso ng Faraon, at hindi niya pinaalis ang mga Israelita. ## Ang Salot na Kadiliman 
+Pero pinatigas pa rin ng Panginoon ang puso ng Faraon, at hindi niya pinaalis ang mga Israelita.
+
+## Ang Salot na Kadiliman 
 
 
 

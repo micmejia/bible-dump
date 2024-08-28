@@ -172,7 +172,9 @@ Ituring mo na parang kapatid na babae ang karunungan at ang pang-unawa na parang
 
 
 
-Sapagkat ilalayo ka nito sa masamang babaeng nakakaakit ang pananalita. ## Ang Masamang Babae 
+Sapagkat ilalayo ka nito sa masamang babaeng nakakaakit ang pananalita.
+
+## Ang Masamang Babae 
 
 
 

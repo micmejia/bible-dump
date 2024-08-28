@@ -52,7 +52,9 @@ So Hazael said, "But what _is_ your servant--a dog, that he should do this gross
 Then he departed from Elisha, and came to his master, who said to him, "What did Elisha say to you?" And he answered, "He told me you would surely recover." 
 
 ###### 15 
-But it happened on the next day that he took a thick cloth and dipped _it_ in water, and spread _it_ over his face so that he died; and Hazael reigned in his place. ## Jehoram Reigns in Judah 
+But it happened on the next day that he took a thick cloth and dipped _it_ in water, and spread _it_ over his face so that he died; and Hazael reigned in his place.
+
+## Jehoram Reigns in Judah 
 
 ###### 16 
 Now in the fifth year of Joram the son of Ahab, king of Israel, Jehoshaphat _having been_ king of Judah, Jehoram the son of Jehoshaphat began to reign as king of Judah. 
@@ -79,7 +81,9 @@ Thus Edom has been in revolt against Judah's authority to this day. And Libnah r
 Now the rest of the acts of Joram, and all that he did, _are_ they not written in the book of the chronicles of the kings of Judah? 
 
 ###### 24 
-So Joram rested with his fathers, and was buried with his fathers in the City of David. Then Ahaziah his son reigned in his place. ## Ahaziah Reigns in Judah 
+So Joram rested with his fathers, and was buried with his fathers in the City of David. Then Ahaziah his son reigned in his place.
+
+## Ahaziah Reigns in Judah 
 
 ###### 25 
 In the twelfth year of Joram the son of Ahab, king of Israel, Ahaziah the son of Jehoram, king of Judah, began to reign. 

@@ -49,7 +49,9 @@ Of how much more value then is a man than a sheep? Therefore it is lawful to do 
 Then He said to the man, "Stretch out your hand." And he stretched _it_ out, and it was restored as whole as the other. 
 
 ###### 14 
-Then the Pharisees went out and plotted against Him, how they might destroy Him. ## Behold, My Servant 
+Then the Pharisees went out and plotted against Him, how they might destroy Him.
+
+## Behold, My Servant 
 
 ###### 15 
 But when Jesus knew _it,_ He withdrew from there. And great multitudes followed Him, and He healed them all. 
@@ -97,13 +99,17 @@ But if I cast out demons by the Spirit of God, surely the kingdom of God has com
 Or how can one enter a strong man's house and plunder his goods, unless he first binds the strong man? And then he will plunder his house. 
 
 ###### 30 
-He who is not with Me is against Me, and he who does not gather with Me scatters abroad. ## The Unpardonable Sin 
+He who is not with Me is against Me, and he who does not gather with Me scatters abroad.
+
+## The Unpardonable Sin 
 
 ###### 31 
 "Therefore I say to you, every sin and blasphemy will be forgiven men, but the blasphemy _against_ the Spirit will not be forgiven men. 
 
 ###### 32 
-Anyone who speaks a word against the Son of Man, it will be forgiven him; but whoever speaks against the Holy Spirit, it will not be forgiven him, either in this age or in the _age_ to come. ## A Tree Known by Its Fruit 
+Anyone who speaks a word against the Son of Man, it will be forgiven him; but whoever speaks against the Holy Spirit, it will not be forgiven him, either in this age or in the _age_ to come.
+
+## A Tree Known by Its Fruit 
 
 ###### 33 
 "Either make the tree good and its fruit good, or else make the tree bad and its fruit bad; for a tree is known by _its_ fruit. 
@@ -133,7 +139,9 @@ For as Jonah was three days and three nights in the belly of the great fish, so 
 The men of Nineveh will rise up in the judgment with this generation and condemn it, because they repented at the preaching of Jonah; and indeed a greater than Jonah _is_ here. 
 
 ###### 42 
-The queen of the South will rise up in the judgment with this generation and condemn it, for she came from the ends of the earth to hear the wisdom of Solomon; and indeed a greater than Solomon _is_ here. ## An Unclean Spirit Returns 
+The queen of the South will rise up in the judgment with this generation and condemn it, for she came from the ends of the earth to hear the wisdom of Solomon; and indeed a greater than Solomon _is_ here.
+
+## An Unclean Spirit Returns 
 
 ###### 43 
 "When an unclean spirit goes out of a man, he goes through dry places, seeking rest, and finds none. 

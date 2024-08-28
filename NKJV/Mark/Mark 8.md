@@ -37,7 +37,9 @@ So they ate and were filled, and they took up seven large baskets of leftover fr
 Now those who had eaten were about four thousand. And He sent them away, 
 
 ###### 10 
-immediately got into the boat with His disciples, and came to the region of Dalmanutha. ## The Pharisees Seek a Sign 
+immediately got into the boat with His disciples, and came to the region of Dalmanutha.
+
+## The Pharisees Seek a Sign 
 
 ###### 11 
 Then the Pharisees came out and began to dispute with Him, seeking from Him a sign from heaven, testing Him. 
@@ -97,7 +99,9 @@ So they answered, "John the Baptist; but some _say,_ Elijah; and others, one of 
 He said to them, "But who do you say that I am?" Peter answered and said to Him, "You are the Christ." 
 
 ###### 30 
-Then He strictly warned them that they should tell no one about Him. ## Jesus Predicts His Death and Resurrection 
+Then He strictly warned them that they should tell no one about Him.
+
+## Jesus Predicts His Death and Resurrection 
 
 ###### 31 
 And He began to teach them that the Son of Man must suffer many things, and be rejected by the elders and chief priests and scribes, and be killed, and after three days rise again. 

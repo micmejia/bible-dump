@@ -49,7 +49,9 @@ all the kingdom of Og in Bashan, who reigned in Ashtaroth and Edrei, who remaine
 Nevertheless the children of Israel did not drive out the Geshurites or the Maachathites, but the Geshurites and the Maachathites dwell among the Israelites until this day. 
 
 ###### 14 
-Only to the tribe of Levi he had given no inheritance; the sacrifices of the Lord God of Israel made by fire _are_ their inheritance, as He said to them. ## The Land of Reuben 
+Only to the tribe of Levi he had given no inheritance; the sacrifices of the Lord God of Israel made by fire _are_ their inheritance, as He said to them.
+
+## The Land of Reuben 
 
 ###### 15 
 And Moses had given to the tribe of the children of Reuben _an inheritance_ according to their families. 
@@ -76,7 +78,9 @@ all the cities of the plain and all the kingdom of Sihon king of the Amorites, w
 The children of Israel also killed with the sword Balaam the son of Beor, the soothsayer, among those who were killed by them. 
 
 ###### 23 
-And the border of the children of Reuben was the bank of the Jordan. This _was_ the inheritance of the children of Reuben according to their families, the cities and their villages. ## The Land of Gad 
+And the border of the children of Reuben was the bank of the Jordan. This _was_ the inheritance of the children of Reuben according to their families, the cities and their villages.
+
+## The Land of Gad 
 
 ###### 24 
 Moses also had given _an inheritance_ to the tribe of Gad, to the children of Gad according to their families. 
@@ -91,7 +95,9 @@ and from Heshbon to Ramath Mizpah and Betonim, and from Mahanaim to the border o
 and in the valley Beth Haram, Beth Nimrah, Succoth, and Zaphon, the rest of the kingdom of Sihon king of Heshbon, with the Jordan as _its_ border, as far as the edge of the Sea of Chinnereth, on the other side of the Jordan eastward. 
 
 ###### 28 
-This _is_ the inheritance of the children of Gad according to their families, the cities and their villages. ## Half the Tribe of Manasseh (East) 
+This _is_ the inheritance of the children of Gad according to their families, the cities and their villages.
+
+## Half the Tribe of Manasseh (East) 
 
 ###### 29 
 Moses also had given _an inheritance_ to half the tribe of Manasseh; it was for half the tribe of the children of Manasseh according to their families: 

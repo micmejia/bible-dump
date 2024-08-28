@@ -70,7 +70,9 @@ Then God opened her eyes, and she saw a well of water. And she went and filled t
 So God was with the lad; and he grew and dwelt in the wilderness, and became an archer. 
 
 ###### 21 
-He dwelt in the Wilderness of Paran; and his mother took a wife for him from the land of Egypt. ## A Covenant with Abimelech 
+He dwelt in the Wilderness of Paran; and his mother took a wife for him from the land of Egypt.
+
+## A Covenant with Abimelech 
 
 ###### 22 
 And it came to pass at that time that Abimelech and Phichol, the commander of his army, spoke to Abraham, saying, "God _is_ with you in all that you do. 

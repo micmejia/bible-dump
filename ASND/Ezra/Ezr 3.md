@@ -205,7 +205,9 @@ Bukod pa sa mga handog na sinusunog, naghahandog din sila ng mga handog sa bawat
 
 
 
-Kahit hindi pa nasisimulan ang muling pagpapatayo ng templo ng Panginoon, nagsimula na ang mga Israelita sa pag-aalay ng mga handog na sinusunog nang unang araw ng ikapitong buwan <i class="trans-change">nang taon ding iyon_. ## Muling Ipinatayo ang Templo 
+Kahit hindi pa nasisimulan ang muling pagpapatayo ng templo ng Panginoon, nagsimula na ang mga Israelita sa pag-aalay ng mga handog na sinusunog nang unang araw ng ikapitong buwan <i class="trans-change">nang taon ding iyon_.
+
+## Muling Ipinatayo ang Templo 
 
 
 

@@ -733,7 +733,9 @@ Pero mahigpit pa rin silang binawalan na mangaral bago sila pinakawalan. Gusto s
 
 
 
-Sapagkat ang taong pinagaling sa pamamagitan ng himala ay mahigit 40 taon nang <i class="trans-change">lumpo_. ## Ang Panalangin ng mga Mananampalataya 
+Sapagkat ang taong pinagaling sa pamamagitan ng himala ay mahigit 40 taon nang <i class="trans-change">lumpo_.
+
+## Ang Panalangin ng mga Mananampalataya 
 
 
 
@@ -1030,7 +1032,9 @@ Ipakita nʼyo ang inyong kapangyarihan. Loobin nʼyo na sa pamamagitan ng kapang
 
 
 
-Pagkatapos nilang manalangin, nayanig ang bahay na kanilang pinagtitipunan. Silang lahat ay napuspos ng Banal na Espiritu at buong tapang na nangaral ng salita ng Dios. ## Ang Pagtutulungan ng mga Mananampalataya 
+Pagkatapos nilang manalangin, nayanig ang bahay na kanilang pinagtitipunan. Silang lahat ay napuspos ng Banal na Espiritu at buong tapang na nangaral ng salita ng Dios.
+
+## Ang Pagtutulungan ng mga Mananampalataya 
 
 
 

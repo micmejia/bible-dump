@@ -55,7 +55,9 @@ The mouth of an immoral woman _is_ a deep pit; He who is abhorred by the Lord wi
 Foolishness _is_ bound up in the heart of a child; The rod of correction will drive it far from him. 
 
 ###### 16 
-He who oppresses the poor to increase his _riches,_ _And_ he who gives to the rich, _will_ surely _come_ to poverty. ## Sayings of the Wise 
+He who oppresses the poor to increase his _riches,_ _And_ he who gives to the rich, _will_ surely _come_ to poverty.
+
+## Sayings of the Wise 
 
 ###### 17 
 Incline your ear and hear the words of the wise, And apply your heart to my knowledge; 

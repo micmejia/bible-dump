@@ -55,7 +55,9 @@ Now it was the Preparation Day of the Passover, and about the sixth hour. And he
 But they cried out, "Away with _Him,_ away with _Him!_ Crucify Him!" Pilate said to them, "Shall I crucify your King?" The chief priests answered, "We have no king but Caesar!" 
 
 ###### 16 
-Then he delivered Him to them to be crucified. Then they took Jesus and led _Him_ away. ## The King on a Cross 
+Then he delivered Him to them to be crucified. Then they took Jesus and led _Him_ away.
+
+## The King on a Cross 
 
 ###### 17 
 And He, bearing His cross, went out to a place called _the Place_ of a Skull, which is called in Hebrew, Golgotha, 
@@ -79,7 +81,9 @@ Pilate answered, "What I have written, I have written."
 Then the soldiers, when they had crucified Jesus, took His garments and made four parts, to each soldier a part, and also the tunic. Now the tunic was without seam, woven from the top in one piece. 
 
 ###### 24 
-They said therefore among themselves, "Let us not tear it, but cast lots for it, whose it shall be," that the Scripture might be fulfilled which says: "They divided My garments among them, And for My clothing they cast lots." Therefore the soldiers did these things. ## Behold Your Mother 
+They said therefore among themselves, "Let us not tear it, but cast lots for it, whose it shall be," that the Scripture might be fulfilled which says: "They divided My garments among them, And for My clothing they cast lots." Therefore the soldiers did these things.
+
+## Behold Your Mother 
 
 ###### 25 
 Now there stood by the cross of Jesus His mother, and His mother's sister, Mary the _wife_ of Clopas, and Mary Magdalene. 
@@ -88,7 +92,9 @@ Now there stood by the cross of Jesus His mother, and His mother's sister, Mary 
 When Jesus therefore saw His mother, and the disciple whom He loved standing by, He said to His mother, "Woman, behold your son!" 
 
 ###### 27 
-Then He said to the disciple, "Behold your mother!" And from that hour that disciple took her to his own _home._ ## It Is Finished 
+Then He said to the disciple, "Behold your mother!" And from that hour that disciple took her to his own _home._
+
+## It Is Finished 
 
 ###### 28 
 After this, Jesus, knowing that all things were now accomplished, that the Scripture might be fulfilled, said, "I thirst!" 
@@ -97,7 +103,9 @@ After this, Jesus, knowing that all things were now accomplished, that the Scrip
 Now a vessel full of sour wine was sitting there; and they filled a sponge with sour wine, put _it_ on hyssop, and put _it_ to His mouth. 
 
 ###### 30 
-So when Jesus had received the sour wine, He said, "It is finished!" And bowing His head, He gave up His spirit. ## Jesus' Side Is Pierced 
+So when Jesus had received the sour wine, He said, "It is finished!" And bowing His head, He gave up His spirit.
+
+## Jesus' Side Is Pierced 
 
 ###### 31 
 Therefore, because it was the Preparation _Day,_ that the bodies should not remain on the cross on the Sabbath (for that Sabbath was a high day), the Jews asked Pilate that their legs might be broken, and _that_ they might be taken away. 

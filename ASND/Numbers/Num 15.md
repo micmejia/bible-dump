@@ -106,7 +106,9 @@ na sabihin ito sa mga Israelita: "Kapag dumating na kayo sa lupain na ibibigay k
 
 
 
-maghandog kayo sa akin mula sa inyong mga hayop bilang mga handog sa pamamagitan ng apoy. Maghandog din kayo ng mga handog sa pagtupad ng isang panata o mga handog na kusang-loob o mga handog sa panahon ng mga pista. Ang mabangong samyo ng mga handog na sinusunog na ito ay makalulugod sa akin. ###### 4-5 Ang maghahandog ng batang tupa bilang handog na sinusunog para sa akin ay maghandog din ng handog para sa pagpaparangal sa akin ng mga dalawang kilo ng magandang klaseng harina na hinaluan ng isang litrong langis. At sasamahan pa ito ng handog na inumin na isang litrong katas ng ubas. 
+maghandog kayo sa akin mula sa inyong mga hayop bilang mga handog sa pamamagitan ng apoy. Maghandog din kayo ng mga handog sa pagtupad ng isang panata o mga handog na kusang-loob o mga handog sa panahon ng mga pista. Ang mabangong samyo ng mga handog na sinusunog na ito ay makalulugod sa akin.
+
+###### 4-5 Ang maghahandog ng batang tupa bilang handog na sinusunog para sa akin ay maghandog din ng handog para sa pagpaparangal sa akin ng mga dalawang kilo ng magandang klaseng harina na hinaluan ng isang litrong langis. At sasamahan pa ito ng handog na inumin na isang litrong katas ng ubas. 
 
 
 

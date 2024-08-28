@@ -600,7 +600,9 @@ Ibinigay sa atin ng Dios ang Kautusan sa pamamagitan ni Moises, ngunit ang biyay
 
 
 
-Wala pang nakakita sa Dios <i class="trans-change">Ama_ kahit kailan, ngunit ipinakilala siya sa atin ng kanyang Bugtong na Anak, na Dios din nga at kapiling ng Ama. ## Ang Patotoo ni Juan tungkol kay Jesus <sup class="versenum">19-20</sup>Pinapunta <i class="trans-change">ng mga pinuno_ ng mga Judio sa Jerusalem ang ilang mga pari at Levita upang tanungin si Juan kung sino talaga siya. Tinapat sila ni Juan. Sinabi niya, "Hindi ako ang Cristo." 
+Wala pang nakakita sa Dios <i class="trans-change">Ama_ kahit kailan, ngunit ipinakilala siya sa atin ng kanyang Bugtong na Anak, na Dios din nga at kapiling ng Ama.
+
+## Ang Patotoo ni Juan tungkol kay Jesus <sup class="versenum">19-20</sup>Pinapunta <i class="trans-change">ng mga pinuno_ ng mga Judio sa Jerusalem ang ilang mga pari at Levita upang tanungin si Juan kung sino talaga siya. Tinapat sila ni Juan. Sinabi niya, "Hindi ako ang Cristo." 
 
 
 
@@ -864,7 +866,9 @@ Siya ang <i class="trans-change">sinasabi kong_ darating na kasunod ko, at ni hi
 
 
 
-Nangyari ito sa Betania, sa kabila ng <i class="trans-change">Ilog ng_ Jordan, kung saan nagbabautismo si Juan. ## Si Jesus ang Tupa ng Dios 
+Nangyari ito sa Betania, sa kabila ng <i class="trans-change">Ilog ng_ Jordan, kung saan nagbabautismo si Juan.
+
+## Si Jesus ang Tupa ng Dios 
 
 
 

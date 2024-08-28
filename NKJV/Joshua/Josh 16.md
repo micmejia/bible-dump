@@ -19,7 +19,9 @@ then went out from Bethel to Luz, passed along to the border of the Archites at 
 and went down westward to the boundary of the Japhletites, as far as the boundary of Lower Beth Horon to Gezer; and it ended at the sea. 
 
 ###### 4 
-So the children of Joseph, Manasseh and Ephraim, took their inheritance. ## The Land of Ephraim 
+So the children of Joseph, Manasseh and Ephraim, took their inheritance.
+
+## The Land of Ephraim 
 
 ###### 5 
 The border of the children of Ephraim, according to their families, was _thus:_ The border of their inheritance on the east side was Ataroth Addar as far as Upper Beth Horon. 

@@ -304,7 +304,9 @@ Ngunit ang nangyayari, kayo pa mismo ang gumagawa ng masama at nandaraya, at gin
 
 
 
-At ganyan nga ang ilan sa inyo noon. Ngunit nilinis na kayo <i class="trans-change">sa inyong mga kasalanan_ at ibinukod na kayo ng Dios para maging kanya; itinuring na kayong matuwid dahil sa Panginoong Jesu-Cristo at sa Espiritu ng ating Dios. ## Ang Katawan Ninyo ay Templo ng Banal na Espiritu 
+At ganyan nga ang ilan sa inyo noon. Ngunit nilinis na kayo <i class="trans-change">sa inyong mga kasalanan_ at ibinukod na kayo ng Dios para maging kanya; itinuring na kayong matuwid dahil sa Panginoong Jesu-Cristo at sa Espiritu ng ating Dios.
+
+## Ang Katawan Ninyo ay Templo ng Banal na Espiritu 
 
 
 

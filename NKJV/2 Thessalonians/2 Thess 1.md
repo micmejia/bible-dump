@@ -12,7 +12,9 @@ next: ['2 Thess 2']
 Paul, Silvanus, and Timothy, To the church of the Thessalonians in God our Father and the Lord Jesus Christ: 
 
 ###### 2 
-Grace to you and peace from God our Father and the Lord Jesus Christ. ## God's Final Judgment and Glory 
+Grace to you and peace from God our Father and the Lord Jesus Christ.
+
+## God's Final Judgment and Glory 
 
 ###### 3 
 We are bound to thank God always for you, brethren, as it is fitting, because your faith grows exceedingly, and the love of every one of you all abounds toward each other, 

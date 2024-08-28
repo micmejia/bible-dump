@@ -18,7 +18,9 @@ has in these last days spoken to us by _His_ Son, whom He has appointed heir of 
 who being the brightness of _His_ glory and the express image of His person, and upholding all things by the word of His power, when He had by Himself purged our sins, sat down at the right hand of the Majesty on high, 
 
 ###### 4 
-having become so much better than the angels, as He has by inheritance obtained a more excellent name than they. ## The Son Exalted Above Angels 
+having become so much better than the angels, as He has by inheritance obtained a more excellent name than they.
+
+## The Son Exalted Above Angels 
 
 ###### 5 
 For to which of the angels did He ever say: "You are My Son, Today I have begotten You"? And again: "I will be to Him a Father, And He shall be to Me a Son"? 

@@ -9,7 +9,9 @@ next: ['Jas 2']
 
 
 ###### 1 
-James, a bondservant of God and of the Lord Jesus Christ, To the twelve tribes which are scattered abroad: Greetings. ## Profiting from Trials 
+James, a bondservant of God and of the Lord Jesus Christ, To the twelve tribes which are scattered abroad: Greetings.
+
+## Profiting from Trials 
 
 ###### 2 
 My brethren, count it all joy when you fall into various trials, 
@@ -30,7 +32,9 @@ But let him ask in faith, with no doubting, for he who doubts is like a wave of 
 For let not that man suppose that he will receive anything from the Lord; 
 
 ###### 8 
-_he is_ a double-minded man, unstable in all his ways. ## The Perspective of Rich and Poor 
+_he is_ a double-minded man, unstable in all his ways.
+
+## The Perspective of Rich and Poor 
 
 ###### 9 
 Let the lowly brother glory in his exaltation, 
@@ -39,7 +43,9 @@ Let the lowly brother glory in his exaltation,
 but the rich in his humiliation, because as a flower of the field he will pass away. 
 
 ###### 11 
-For no sooner has the sun risen with a burning heat than it withers the grass; its flower falls, and its beautiful appearance perishes. So the rich man also will fade away in his pursuits. ## Loving God Under Trials 
+For no sooner has the sun risen with a burning heat than it withers the grass; its flower falls, and its beautiful appearance perishes. So the rich man also will fade away in his pursuits.
+
+## Loving God Under Trials 
 
 ###### 12 
 Blessed _is_ the man who endures temptation; for when he has been approved, he will receive the crown of life which the Lord has promised to those who love Him. 
@@ -60,13 +66,17 @@ Do not be deceived, my beloved brethren.
 Every good gift and every perfect gift is from above, and comes down from the Father of lights, with whom there is no variation or shadow of turning. 
 
 ###### 18 
-Of His own will He brought us forth by the word of truth, that we might be a kind of firstfruits of His creatures. ## Qualities Needed in Trials 
+Of His own will He brought us forth by the word of truth, that we might be a kind of firstfruits of His creatures.
+
+## Qualities Needed in Trials 
 
 ###### 19 
 So then, my beloved brethren, let every man be swift to hear, slow to speak, slow to wrath; 
 
 ###### 20 
-for the wrath of man does not produce the righteousness of God. ## Doers--Not Hearers Only 
+for the wrath of man does not produce the righteousness of God.
+
+## Doers--Not Hearers Only 
 
 ###### 21 
 Therefore lay aside all filthiness and overflow of wickedness, and receive with meekness the implanted word, which is able to save your souls. 

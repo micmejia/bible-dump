@@ -22,7 +22,9 @@ He shall judge between many peoples, And rebuke strong nations afar off; They sh
 But everyone shall sit under his vine and under his fig tree, And no one shall make _them_ afraid; For the mouth of the Lord of hosts has spoken. 
 
 ###### 5 
-For all people walk each in the name of his god, But we will walk in the name of the Lord our God Forever and ever. ## Zion's Future Triumph 
+For all people walk each in the name of his god, But we will walk in the name of the Lord our God Forever and ever.
+
+## Zion's Future Triumph 
 
 ###### 6 
 "In that day," says the Lord, "I will assemble the lame, I will gather the outcast And those whom I have afflicted; 

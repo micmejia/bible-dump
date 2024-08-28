@@ -304,7 +304,9 @@ Nais naming patuloy na maging masigasig ang bawat isa sa inyo sa pag-asa nʼyo s
 
 
 
-Huwag kayong maging tamad, sa halip, tularan nʼyo ang mga tao na tumatanggap ng mga ipinangako <i class="trans-change">ng Dios_ sa pamamagitan ng pananampalataya nila at pagtitiis. ## Tiyak ang Pangako ng Dios 
+Huwag kayong maging tamad, sa halip, tularan nʼyo ang mga tao na tumatanggap ng mga ipinangako <i class="trans-change">ng Dios_ sa pamamagitan ng pananampalataya nila at pagtitiis.
+
+## Tiyak ang Pangako ng Dios 
 
 
 

@@ -403,7 +403,9 @@ Mula roon, nagpatuloy ito sa hilagang bahagi ng libis ng Ekron at paliko papunta
 
 
 
-at ito rin ang hangganan sa kanluran. Iyon ang mga hangganan sa paligid ng lupaing hinati sa mga sambahayan ng lahi ni Juda. ## Ang Lupaing Ibinigay kay Caleb 
+at ito rin ang hangganan sa kanluran. Iyon ang mga hangganan sa paligid ng lupaing hinati sa mga sambahayan ng lahi ni Juda.
+
+## Ang Lupaing Ibinigay kay Caleb 
 
 
 
@@ -634,7 +636,9 @@ Nang ikinasal na sila, hinikayat ni Acsa ang asawa niya na humingi sila ng <i cl
 
 
 
-Sumagot si Acsa, "Hihingi po sana ako ng pabor sa inyo, gusto ko po sanang bigyan nʼyo ako ng <i class="trans-change">lupaing may_ mga bukal dahil ang lupaing ibinigay nʼyo sa akin sa Negev <i class="trans-change">ay walang bukal_." Kaya ibinigay sa kanya ni Caleb ang lugar na may mga bukal sa itaas at sa ibaba ng Negev. ## Ang mga Lungsod ng Juda 
+Sumagot si Acsa, "Hihingi po sana ako ng pabor sa inyo, gusto ko po sanang bigyan nʼyo ako ng <i class="trans-change">lupaing may_ mga bukal dahil ang lupaing ibinigay nʼyo sa akin sa Negev <i class="trans-change">ay walang bukal_." Kaya ibinigay sa kanya ni Caleb ang lugar na may mga bukal sa itaas at sa ibaba ng Negev.
+
+## Ang mga Lungsod ng Juda 
 
 
 

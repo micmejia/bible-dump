@@ -19,7 +19,9 @@ Now the names of the twelve apostles are these: first, Simon, who is called Pete
 Philip and Bartholomew; Thomas and Matthew the tax collector; James the _son_ of Alphaeus, and Lebbaeus, whose surname was Thaddaeus; 
 
 ###### 4 
-Simon the Cananite, and Judas Iscariot, who also betrayed Him. ## Sending Out the Twelve 
+Simon the Cananite, and Judas Iscariot, who also betrayed Him.
+
+## Sending Out the Twelve 
 
 ###### 5 
 These twelve Jesus sent out and commanded them, saying: "Do not go into the way of the Gentiles, and do not enter a city of the Samaritans. 
@@ -85,7 +87,9 @@ When they persecute you in this city, flee to another. For assuredly, I say to y
 It is enough for a disciple that he be like his teacher, and a servant like his master. If they have called the master of the house Beelzebub, how much more _will they call_ those of his household! 
 
 ###### 26 
-Therefore do not fear them. For there is nothing covered that will not be revealed, and hidden that will not be known. ## Jesus Teaches the Fear of God 
+Therefore do not fear them. For there is nothing covered that will not be revealed, and hidden that will not be known.
+
+## Jesus Teaches the Fear of God 
 
 ###### 27 
 "Whatever I tell you in the dark, speak in the light; and what you hear in the ear, preach on the housetops. 
@@ -100,13 +104,17 @@ Are not two sparrows sold for a copper coin? And not one of them falls to the gr
 But the very hairs of your head are all numbered. 
 
 ###### 31 
-Do not fear therefore; you are of more value than many sparrows. ## Confess Christ Before Men 
+Do not fear therefore; you are of more value than many sparrows.
+
+## Confess Christ Before Men 
 
 ###### 32 
 "Therefore whoever confesses Me before men, him I will also confess before My Father who is in heaven. 
 
 ###### 33 
-But whoever denies Me before men, him I will also deny before My Father who is in heaven. ## Christ Brings Division 
+But whoever denies Me before men, him I will also deny before My Father who is in heaven.
+
+## Christ Brings Division 
 
 ###### 34 
 "Do not think that I came to bring peace on earth. I did not come to bring peace but a sword. 
@@ -124,7 +132,9 @@ He who loves father or mother more than Me is not worthy of Me. And he who loves
 And he who does not take his cross and follow after Me is not worthy of Me. 
 
 ###### 39 
-He who finds his life will lose it, and he who loses his life for My sake will find it. ## A Cup of Cold Water 
+He who finds his life will lose it, and he who loses his life for My sake will find it.
+
+## A Cup of Cold Water 
 
 ###### 40 
 "He who receives you receives Me, and he who receives Me receives Him who sent Me. 

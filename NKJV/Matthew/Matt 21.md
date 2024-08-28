@@ -58,13 +58,17 @@ But when the chief priests and scribes saw the wonderful things that He did, and
 and said to Him, "Do You hear what these are saying?" And Jesus said to them, "Yes. Have you never read, 'Out of the mouth of babes and nursing infants You have perfected praise'?" 
 
 ###### 17 
-Then He left them and went out of the city to Bethany, and He lodged there. ## The Fig Tree Withered 
+Then He left them and went out of the city to Bethany, and He lodged there.
+
+## The Fig Tree Withered 
 
 ###### 18 
 Now in the morning, as He returned to the city, He was hungry. 
 
 ###### 19 
-And seeing a fig tree by the road, He came to it and found nothing on it but leaves, and said to it, "Let no fruit grow on you ever again." Immediately the fig tree withered away. ## The Lesson of the Withered Fig Tree 
+And seeing a fig tree by the road, He came to it and found nothing on it but leaves, and said to it, "Let no fruit grow on you ever again." Immediately the fig tree withered away.
+
+## The Lesson of the Withered Fig Tree 
 
 ###### 20 
 And when the disciples saw _it,_ they marveled, saying, "How did the fig tree wither away so soon?" 
@@ -88,7 +92,9 @@ The baptism of John--where was it from? From heaven or from men?" And they reaso
 But if we say, 'From men,' we fear the multitude, for all count John as a prophet." 
 
 ###### 27 
-So they answered Jesus and said, "We do not know." And He said to them, "Neither will I tell you by what authority I do these things. ## The Parable of the Two Sons 
+So they answered Jesus and said, "We do not know." And He said to them, "Neither will I tell you by what authority I do these things.
+
+## The Parable of the Two Sons 
 
 ###### 28 
 "But what do you think? A man had two sons, and he came to the first and said, 'Son, go, work today in my vineyard.' 
@@ -103,7 +109,9 @@ Then he came to the second and said likewise. And he answered and said, 'I _go,_
 Which of the two did the will of _his_ father?" They said to Him, "The first." Jesus said to them, "Assuredly, I say to you that tax collectors and harlots enter the kingdom of God before you. 
 
 ###### 32 
-For John came to you in the way of righteousness, and you did not believe him; but tax collectors and harlots believed him; and when you saw _it,_ you did not afterward relent and believe him. ## The Parable of the Wicked Vinedressers 
+For John came to you in the way of righteousness, and you did not believe him; but tax collectors and harlots believed him; and when you saw _it,_ you did not afterward relent and believe him.
+
+## The Parable of the Wicked Vinedressers 
 
 ###### 33 
 "Hear another parable: There was a certain landowner who planted a vineyard and set a hedge around it, dug a winepress in it and built a tower. And he leased it to vinedressers and went into a far country. 

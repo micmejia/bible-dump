@@ -90,4 +90,6 @@ And above the firmament over their heads _was_ the likeness of a throne, in appe
 Also from the appearance of His waist and upward I saw, as it were, the color of amber with the appearance of fire all around within it; and from the appearance of His waist and downward I saw, as it were, the appearance of fire with brightness all around. 
 
 ###### 28 
-Like the appearance of a rainbow in a cloud on a rainy day, so _was_ the appearance of the brightness all around it. This _was_ the appearance of the likeness of the glory of the Lord. ## Ezekiel Sent to Rebellious Israel So when I saw _it,_ I fell on my face, and I heard a voice of One speaking.
+Like the appearance of a rainbow in a cloud on a rainy day, so _was_ the appearance of the brightness all around it. This _was_ the appearance of the likeness of the glory of the Lord.
+
+## Ezekiel Sent to Rebellious Israel So when I saw _it,_ I fell on my face, and I heard a voice of One speaking.

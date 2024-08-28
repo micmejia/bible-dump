@@ -205,7 +205,9 @@ Nawa ang Dios na nagpapalakas at nagbibigay sa atin ng pag-asa ay tulungan kayon
 
 
 
-Sa ganoon, sama-sama kayong magpupuri sa Dios at Ama ng ating Panginoong Jesu-Cristo. ## Ang Magandang Balita para sa mga Hindi Judio 
+Sa ganoon, sama-sama kayong magpupuri sa Dios at Ama ng ating Panginoong Jesu-Cristo.
+
+## Ang Magandang Balita para sa mga Hindi Judio 
 
 
 
@@ -436,7 +438,9 @@ Sinabi naman ni Isaias, "Magmumula sa lahi ni Jesse ang isang mamumuno sa mga hi
 
 
 
-Nawa ang Dios na nagbibigay sa atin ng pag-asa ang siya ring magbigay sa inyo ng buong kagalakan at kapayapaan dahil sa inyong pananampalataya sa kanya, para patuloy na lumago ang inyong pag-asa sa pamamagitan ng Banal na Espiritu. ## Ang Dahilan ng Pagsulat ni Pablo 
+Nawa ang Dios na nagbibigay sa atin ng pag-asa ang siya ring magbigay sa inyo ng buong kagalakan at kapayapaan dahil sa inyong pananampalataya sa kanya, para patuloy na lumago ang inyong pag-asa sa pamamagitan ng Banal na Espiritu.
+
+## Ang Dahilan ng Pagsulat ni Pablo 
 
 
 

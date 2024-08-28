@@ -70,7 +70,9 @@ Then he said, "They _were_ my brothers, the sons of my mother. _As_ the Lord liv
 And he said to Jether his firstborn, "Rise, kill them!" But the youth would not draw his sword; for he was afraid, because he _was_ still a youth. 
 
 ###### 21 
-So Zebah and Zalmunna said, "Rise yourself, and kill us; for as a man _is, so is_ his strength." So Gideon arose and killed Zebah and Zalmunna, and took the crescent ornaments that _were_ on their camels' necks. ## Gideon's Ephod 
+So Zebah and Zalmunna said, "Rise yourself, and kill us; for as a man _is, so is_ his strength." So Gideon arose and killed Zebah and Zalmunna, and took the crescent ornaments that _were_ on their camels' necks.
+
+## Gideon's Ephod 
 
 ###### 22 
 Then the men of Israel said to Gideon, "Rule over us, both you and your son, and your grandson also; for you have delivered us from the hand of Midian." 
@@ -91,7 +93,9 @@ Now the weight of the gold earrings that he requested was one thousand seven hun
 Then Gideon made it into an ephod and set it up in his city, Ophrah. And all Israel played the harlot with it there. It became a snare to Gideon and to his house. 
 
 ###### 28 
-Thus Midian was subdued before the children of Israel, so that they lifted their heads no more. And the country was quiet for forty years in the days of Gideon. ## Death of Gideon 
+Thus Midian was subdued before the children of Israel, so that they lifted their heads no more. And the country was quiet for forty years in the days of Gideon.
+
+## Death of Gideon 
 
 ###### 29 
 Then Jerubbaal the son of Joash went and dwelt in his own house. 

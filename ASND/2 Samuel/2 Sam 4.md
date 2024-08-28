@@ -172,7 +172,9 @@ dahil tumakas ang mga unang naninirahan dito papuntang Gittaim. Hanggang ngayon,
 
 
 
-Isang araw, nagpunta sa bahay ni Ishboshet sina Recab at Baana na mga anak ni Rimon na taga-Beerot. Tanghaling-tapat nang dumating sila habang nagpapahinga si Ishboshet. ###### 6-7 Pumasok sila sa bahay na kunwariʼy kukuha ng trigo. Dumiretso sila sa kwarto ni Ishboshet kung saan nakahiga ito sa kama niya at pagkatapos, sinaksak nila ito sa tiyan. Pinutol nila ang ulo ni Ishboshet at dinala nila ito sa kanilang pagtakas. Buong gabi silang naglakbay sa Lambak ng Jordan. 
+Isang araw, nagpunta sa bahay ni Ishboshet sina Recab at Baana na mga anak ni Rimon na taga-Beerot. Tanghaling-tapat nang dumating sila habang nagpapahinga si Ishboshet.
+
+###### 6-7 Pumasok sila sa bahay na kunwariʼy kukuha ng trigo. Dumiretso sila sa kwarto ni Ishboshet kung saan nakahiga ito sa kama niya at pagkatapos, sinaksak nila ito sa tiyan. Pinutol nila ang ulo ni Ishboshet at dinala nila ito sa kanilang pagtakas. Buong gabi silang naglakbay sa Lambak ng Jordan. 
 
 
 

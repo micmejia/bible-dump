@@ -25,7 +25,9 @@ whose minds the god of this age has blinded, who do not believe, lest the light 
 For we do not preach ourselves, but Christ Jesus the Lord, and ourselves your bondservants for Jesus' sake. 
 
 ###### 6 
-For it is the God who commanded light to shine out of darkness, who has shone in our hearts to _give_ the light of the knowledge of the glory of God in the face of Jesus Christ. ## Cast Down but Unconquered 
+For it is the God who commanded light to shine out of darkness, who has shone in our hearts to _give_ the light of the knowledge of the glory of God in the face of Jesus Christ.
+
+## Cast Down but Unconquered 
 
 ###### 7 
 But we have this treasure in earthen vessels, that the excellence of the power may be of God and not of us. 
@@ -52,7 +54,9 @@ And since we have the same spirit of faith, according to what is written, "I bel
 knowing that He who raised up the Lord Jesus will also raise us up with Jesus, and will present _us_ with you. 
 
 ###### 15 
-For all things _are_ for your sakes, that grace, having spread through the many, may cause thanksgiving to abound to the glory of God. ## Seeing the Invisible 
+For all things _are_ for your sakes, that grace, having spread through the many, may cause thanksgiving to abound to the glory of God.
+
+## Seeing the Invisible 
 
 ###### 16 
 Therefore we do not lose heart. Even though our outward man is perishing, yet the inward _man_ is being renewed day by day. 

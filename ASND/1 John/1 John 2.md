@@ -469,7 +469,9 @@ Sumusulat ako sa inyo, mga ama, dahil nakilala nʼyo na siya na mula pa sa simul
 
 
 
-Sumusulat ako sa inyo, mga anak, dahil nakilala nʼyo na ang Ama. Sumusulat ako sa inyo, mga ama, dahil nakilala nʼyo na siya na mula pa sa simula ay nariyan na. Sumusulat ako sa inyo, mga kabataan, dahil matatag ang <i class="trans-change">inyong pananampalataya_. Sinusunod ninyo ang salita ng Dios, at nalupig na ninyo si Satanas. ## Huwag Ibigin ang Mundo 
+Sumusulat ako sa inyo, mga anak, dahil nakilala nʼyo na ang Ama. Sumusulat ako sa inyo, mga ama, dahil nakilala nʼyo na siya na mula pa sa simula ay nariyan na. Sumusulat ako sa inyo, mga kabataan, dahil matatag ang <i class="trans-change">inyong pananampalataya_. Sinusunod ninyo ang salita ng Dios, at nalupig na ninyo si Satanas.
+
+## Huwag Ibigin ang Mundo 
 
 
 
@@ -568,7 +570,9 @@ Sapagkat ang lahat ng kamunduhan – ang masasamang hilig ng laman, ang pagnanas
 
 
 
-Ang mundo at lahat ng bagay dito na hinahangad ng tao ay mawawala, ngunit ang taong sumusunod sa kalooban ng Dios ay mabubuhay magpakailanman. ## Ang Anti-Cristo 
+Ang mundo at lahat ng bagay dito na hinahangad ng tao ay mawawala, ngunit ang taong sumusunod sa kalooban ng Dios ay mabubuhay magpakailanman.
+
+## Ang Anti-Cristo 
 
 
 

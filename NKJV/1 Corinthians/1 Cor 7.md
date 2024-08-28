@@ -34,7 +34,9 @@ For I wish that all men were even as I myself. But each one has his own gift fro
 But I say to the unmarried and to the widows: It is good for them if they remain even as I am; 
 
 ###### 9 
-but if they cannot exercise self-control, let them marry. For it is better to marry than to burn _with passion._ ## Keep Your Marriage Vows 
+but if they cannot exercise self-control, let them marry. For it is better to marry than to burn _with passion._
+
+## Keep Your Marriage Vows 
 
 ###### 10 
 Now to the married I command, _yet_ not I but the Lord: A wife is not to depart from _her_ husband. 
@@ -79,7 +81,9 @@ For he who is called in the Lord _while_ a slave is the Lord's freedman. Likewis
 You were bought at a price; do not become slaves of men. 
 
 ###### 24 
-Brethren, let each one remain with God in that _state_ in which he was called. ## To the Unmarried and Widows 
+Brethren, let each one remain with God in that _state_ in which he was called.
+
+## To the Unmarried and Widows 
 
 ###### 25 
 Now concerning virgins: I have no commandment from the Lord; yet I give judgment as one whom the Lord in His mercy has made trustworthy. 

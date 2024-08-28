@@ -16,7 +16,9 @@ But there were also false prophets among the people, even as there will be false
 And many will follow their destructive ways, because of whom the way of truth will be blasphemed. 
 
 ###### 3 
-By covetousness they will exploit you with deceptive words; for a long time their judgment has not been idle, and their destruction does not slumber. ## Doom of False Teachers 
+By covetousness they will exploit you with deceptive words; for a long time their judgment has not been idle, and their destruction does not slumber.
+
+## Doom of False Teachers 
 
 ###### 4 
 For if God did not spare the angels who sinned, but cast _them_ down to hell and delivered _them_ into chains of darkness, to be reserved for judgment; 
@@ -40,7 +42,9 @@ _then_ the Lord knows how to deliver the godly out of temptations and to reserve
 and especially those who walk according to the flesh in the lust of uncleanness and despise authority. _They are_ presumptuous, self-willed. They are not afraid to speak evil of dignitaries, 
 
 ###### 11 
-whereas angels, who are greater in power and might, do not bring a reviling accusation against them before the Lord. ## Depravity of False Teachers 
+whereas angels, who are greater in power and might, do not bring a reviling accusation against them before the Lord.
+
+## Depravity of False Teachers 
 
 ###### 12 
 But these, like natural brute beasts made to be caught and destroyed, speak evil of the things they do not understand, and will utterly perish in their own corruption, 
@@ -58,7 +62,9 @@ They have forsaken the right way and gone astray, following the way of Balaam th
 but he was rebuked for his iniquity: a dumb donkey speaking with a man's voice restrained the madness of the prophet. 
 
 ###### 17 
-These are wells without water, clouds carried by a tempest, for whom is reserved the blackness of darkness forever. ## Deceptions of False Teachers 
+These are wells without water, clouds carried by a tempest, for whom is reserved the blackness of darkness forever.
+
+## Deceptions of False Teachers 
 
 ###### 18 
 For when they speak great swelling _words_ of emptiness, they allure through the lusts of the flesh, through lewdness, the ones who have actually escaped from those who live in error. 

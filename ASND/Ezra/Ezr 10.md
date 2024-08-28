@@ -204,7 +204,9 @@ Kaya tumayo si Ezra at pinanumpa niya ang mga namumunong pari, mga Levita, at an
 
 
 
-Pagkatapos, umalis si Ezra sa harapan ng templo ng Dios at pumunta sa kwarto ni Jehohanan na anak ni Eliashib. Pagdating niya roon, hindi siya kumain at uminom, dahil nalulungkot siya dahil hindi naging tapat ang mga Israelitang bumalik mula sa pagkabihag. ###### 7-8 Ipinabatid ng mga pinuno at mga tagapamahala sa mga Israelita sa buong Juda pati na sa Jerusalem na ang lahat ng bumalik galing sa pagkabihag ay magtipon sa Jerusalem. At ang sinumang hindi pupunta doon sa loob ng tatlong araw, kukunin sa kanya ang lahat niyang mga ari-arian at hindi na siya ituturing na kabilang sa mga tao na bumalik galing sa pagkabihag. 
+Pagkatapos, umalis si Ezra sa harapan ng templo ng Dios at pumunta sa kwarto ni Jehohanan na anak ni Eliashib. Pagdating niya roon, hindi siya kumain at uminom, dahil nalulungkot siya dahil hindi naging tapat ang mga Israelitang bumalik mula sa pagkabihag.
+
+###### 7-8 Ipinabatid ng mga pinuno at mga tagapamahala sa mga Israelita sa buong Juda pati na sa Jerusalem na ang lahat ng bumalik galing sa pagkabihag ay magtipon sa Jerusalem. At ang sinumang hindi pupunta doon sa loob ng tatlong araw, kukunin sa kanya ang lahat niyang mga ari-arian at hindi na siya ituturing na kabilang sa mga tao na bumalik galing sa pagkabihag. 
 
 
 
@@ -435,7 +437,9 @@ Ang mga opisyal na lang natin ang magpaiwan dito at mag-asikaso nito para sa buo
 
 
 
-Walang sumuway sa planong ito maliban kina Jonatan na anak ni Asahel at Jazea na anak ni Tikva. Sinuportahan din sila nina Meshulam at Shabetai na Levita. <sup class="versenum">16-17</sup>Tinupad ng mga bumalik sa pagkabihag ang planong iyon. Kaya pumili si Ezra na pari ng mga lalaking pinuno ng mga pamilya, at inilista ang pangalan nila. At nang unang araw ng ikasampung buwan, naupo sila at sinimulan nila ang pagsisiyasat tungkol sa pag-aasawa ng mga Israelita ng mga dayuhang babae. Natapos nila ang pagsisiyasat ng lahat ng kaso nang unang araw ng unang buwan, <i class="trans-change">ng sumunod na taon._ ## Ang mga Lalaki na Nagsipag-asawa ng mga Dayuhan <sup class="versenum">18-19</sup>Ito ang mga lalaking nagsipag-asawa ng mga dayuhan, at nangakong hihiwalayan nila ang mga asawa nila: (Naghandog sila ng mga lalaking tupa bilang pambayad sa mga kasalanan nila.) Sa mga pari: sina Maaseya, Eliezer, Jarib, at Gedalia, na galing sa pamilya ni Jeshua na anak ni Jozadak at ang mga kapatid niya; 
+Walang sumuway sa planong ito maliban kina Jonatan na anak ni Asahel at Jazea na anak ni Tikva. Sinuportahan din sila nina Meshulam at Shabetai na Levita. <sup class="versenum">16-17</sup>Tinupad ng mga bumalik sa pagkabihag ang planong iyon. Kaya pumili si Ezra na pari ng mga lalaking pinuno ng mga pamilya, at inilista ang pangalan nila. At nang unang araw ng ikasampung buwan, naupo sila at sinimulan nila ang pagsisiyasat tungkol sa pag-aasawa ng mga Israelita ng mga dayuhang babae. Natapos nila ang pagsisiyasat ng lahat ng kaso nang unang araw ng unang buwan, <i class="trans-change">ng sumunod na taon._
+
+## Ang mga Lalaki na Nagsipag-asawa ng mga Dayuhan <sup class="versenum">18-19</sup>Ito ang mga lalaking nagsipag-asawa ng mga dayuhan, at nangakong hihiwalayan nila ang mga asawa nila: (Naghandog sila ng mga lalaking tupa bilang pambayad sa mga kasalanan nila.) Sa mga pari: sina Maaseya, Eliezer, Jarib, at Gedalia, na galing sa pamilya ni Jeshua na anak ni Jozadak at ang mga kapatid niya; 
 
 
 

@@ -91,7 +91,9 @@ But He answered and said, "It is not good to take the children's bread and throw
 And she said, "Yes, Lord, yet even the little dogs eat the crumbs which fall from their masters' table." 
 
 ###### 28 
-Then Jesus answered and said to her, "O woman, great _is_ your faith! Let it be to you as you desire." And her daughter was healed from that very hour. ## Jesus Heals Great Multitudes 
+Then Jesus answered and said to her, "O woman, great _is_ your faith! Let it be to you as you desire." And her daughter was healed from that very hour.
+
+## Jesus Heals Great Multitudes 
 
 ###### 29 
 Jesus departed from there, skirted the Sea of Galilee, and went up on the mountain and sat down there. 
@@ -100,7 +102,9 @@ Jesus departed from there, skirted the Sea of Galilee, and went up on the mounta
 Then great multitudes came to Him, having with them _the_ lame, blind, mute, maimed, and many others; and they laid them down at Jesus' feet, and He healed them. 
 
 ###### 31 
-So the multitude marveled when they saw _the_ mute speaking, _the_ maimed made whole, _the_ lame walking, and _the_ blind seeing; and they glorified the God of Israel. ## Feeding the Four Thousand 
+So the multitude marveled when they saw _the_ mute speaking, _the_ maimed made whole, _the_ lame walking, and _the_ blind seeing; and they glorified the God of Israel.
+
+## Feeding the Four Thousand 
 
 ###### 32 
 Now Jesus called His disciples to _Himself_ and said, "I have compassion on the multitude, because they have now continued with Me three days and have nothing to eat. And I do not want to send them away hungry, lest they faint on the way." 

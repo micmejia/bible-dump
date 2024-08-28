@@ -51,7 +51,9 @@ It shall come to pass in that day _That_ a great panic from the Lord will be amo
 Judah also will fight at Jerusalem. And the wealth of all the surrounding nations Shall be gathered together: Gold, silver, and apparel in great abundance. 
 
 ###### 15 
-Such also shall be the plague On the horse _and_ the mule, On the camel and the donkey, And on all the cattle that will be in those camps. So _shall_ this plague _be._ ## The Nations Worship the King 
+Such also shall be the plague On the horse _and_ the mule, On the camel and the donkey, And on all the cattle that will be in those camps. So _shall_ this plague _be._
+
+## The Nations Worship the King 
 
 ###### 16 
 And it shall come to pass _that_ everyone who is left of all the nations which came against Jerusalem shall go up from year to year to worship the King, the Lord of hosts, and to keep the Feast of Tabernacles. 

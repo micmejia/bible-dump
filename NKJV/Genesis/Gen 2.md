@@ -28,7 +28,9 @@ before any plant of the field was in the earth and before any herb of the field 
 but a mist went up from the earth and watered the whole face of the ground. 
 
 ###### 7 
-And the Lord God formed man _of_ the dust of the ground, and breathed into his nostrils the breath of life; and man became a living being. ## Life in God's Garden 
+And the Lord God formed man _of_ the dust of the ground, and breathed into his nostrils the breath of life; and man became a living being.
+
+## Life in God's Garden 
 
 ###### 8 
 The Lord God planted a garden eastward in Eden, and there He put the man whom He had formed. 

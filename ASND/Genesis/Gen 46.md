@@ -172,7 +172,9 @@ Ako mismo ang kasama mo sa pagpunta sa Egipto at muli kitang ibabalik dito <i cl
 
 
 
-Pinasakay si Jacob ng mga anak niya sa karwaheng ibinigay ng Faraon para sakyan niya. Pinasakay din nila ang mga asawaʼt anak nila, at lumipat sila mula sa Beersheba. ###### 6-7 Dinala nila ang mga hayop at mga ari-ariang naipon nila sa Canaan. Dinala rin ni Jacob sa Egipto ang lahat ng kanyang lahi: ang mga anak niya at mga apo. 
+Pinasakay si Jacob ng mga anak niya sa karwaheng ibinigay ng Faraon para sakyan niya. Pinasakay din nila ang mga asawaʼt anak nila, at lumipat sila mula sa Beersheba.
+
+###### 6-7 Dinala nila ang mga hayop at mga ari-ariang naipon nila sa Canaan. Dinala rin ni Jacob sa Egipto ang lahat ng kanyang lahi: ang mga anak niya at mga apo. 
 
 
 

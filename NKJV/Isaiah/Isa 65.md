@@ -55,7 +55,9 @@ Behold, My servants shall sing for joy of heart, But you shall cry for sorrow of
 You shall leave your name as a curse to My chosen; For the Lord God will slay you, And call His servants by another name; 
 
 ###### 16 
-So that he who blesses himself in the earth Shall bless himself in the God of truth; And he who swears in the earth Shall swear by the God of truth; Because the former troubles are forgotten, And because they are hidden from My eyes. ## The Glorious New Creation 
+So that he who blesses himself in the earth Shall bless himself in the God of truth; And he who swears in the earth Shall swear by the God of truth; Because the former troubles are forgotten, And because they are hidden from My eyes.
+
+## The Glorious New Creation 
 
 ###### 17 
 "For behold, I create new heavens and a new earth; And the former shall not be remembered or come to mind. 

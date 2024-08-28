@@ -58,7 +58,9 @@ Neither will there be _any_ work for Egypt, Which the head or tail, Palm branch 
 In that day Egypt will be like women, and will be afraid and fear because of the waving of the hand of the Lord of hosts, which He waves over it. 
 
 ###### 17 
-And the land of Judah will be a terror to Egypt; everyone who makes mention of it will be afraid in himself, because of the counsel of the Lord of hosts which He has determined against it. ## Egypt, Assyria, and Israel Blessed 
+And the land of Judah will be a terror to Egypt; everyone who makes mention of it will be afraid in himself, because of the counsel of the Lord of hosts which He has determined against it.
+
+## Egypt, Assyria, and Israel Blessed 
 
 ###### 18 
 In that day five cities in the land of Egypt will speak the language of Canaan and swear by the Lord of hosts; one will be called the City of Destruction. 

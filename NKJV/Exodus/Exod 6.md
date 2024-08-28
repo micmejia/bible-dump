@@ -46,7 +46,9 @@ And the Lord spoke to Moses, saying,
 And Moses spoke before the Lord, saying, "The children of Israel have not heeded me. How then shall Pharaoh heed me, for I _am_ of uncircumcised lips?" 
 
 ###### 13 
-Then the Lord spoke to Moses and Aaron, and gave them a command for the children of Israel and for Pharaoh king of Egypt, to bring the children of Israel out of the land of Egypt. ## The Family of Moses and Aaron 
+Then the Lord spoke to Moses and Aaron, and gave them a command for the children of Israel and for Pharaoh king of Egypt, to bring the children of Israel out of the land of Egypt.
+
+## The Family of Moses and Aaron 
 
 ###### 14 
 These _are_ the heads of their fathers' houses: The sons of Reuben, the firstborn of Israel, _were_ Hanoch, Pallu, Hezron, and Carmi. These are the families of Reuben. 
@@ -88,7 +90,9 @@ Eleazar, Aaron's son, took for himself one of the daughters of Putiel as wife; a
 These _are the same_ Aaron and Moses to whom the Lord said, "Bring out the children of Israel from the land of Egypt according to their armies." 
 
 ###### 27 
-These _are_ the ones who spoke to Pharaoh king of Egypt, to bring out the children of Israel from Egypt. These _are the same_ Moses and Aaron. ## Aaron Is Moses' Spokesman 
+These _are_ the ones who spoke to Pharaoh king of Egypt, to bring out the children of Israel from Egypt. These _are the same_ Moses and Aaron.
+
+## Aaron Is Moses' Spokesman 
 
 ###### 28 
 And it came to pass, on the day the Lord spoke to Moses in the land of Egypt, 

@@ -37,7 +37,9 @@ And you shall tell your son in that day, saying, '_This is done_ because of what
 It shall be as a sign to you on your hand and as a memorial between your eyes, that the Lord's law may be in your mouth; for with a strong hand the Lord has brought you out of Egypt. 
 
 ###### 10 
-You shall therefore keep this ordinance in its season from year to year. ## The Law of the Firstborn 
+You shall therefore keep this ordinance in its season from year to year.
+
+## The Law of the Firstborn 
 
 ###### 11 
 "And it shall be, when the Lord brings you into the land of the Canaanites, as He swore to you and your fathers, and gives it to you, 

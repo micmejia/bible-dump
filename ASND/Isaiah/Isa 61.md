@@ -40,7 +40,9 @@ next: ['Isa 62']
 
 
 
-Ang Espiritu ng Panginoong Dios ay nasa akin. Sapagkat hinirang niya ako na mangaral ng magandang balita sa mga mahihirap. Sinugo niya ako para aliwin ang mga sugatang-puso, at para ibalita sa mga bihag at mga bilanggo na silaʼy malaya na. ###### 2-3 Sinugo rin niya ako para ibalita na ngayon na ang panahon na ililigtas ng Panginoon ang kanyang mga mamamayan at parurusahan ang kanilang mga kaaway. Sinugo rin niya ako para aliwin ang mga nalulungkot sa Zion, nang sa ganoon, sa halip na maglagay sila ng abo sa kanilang ulo bilang tanda ng pagdadalamhati, maglalagay sila ng langis o ng koronang bulaklak sa kanilang ulo bilang tanda ng kaligayahan. Silaʼy magiging parang matibay na puno na itinanim ng Panginoon. Kikilalanin silang mga taong matuwid sa ikakaluwalhati ng Panginoon. 
+Ang Espiritu ng Panginoong Dios ay nasa akin. Sapagkat hinirang niya ako na mangaral ng magandang balita sa mga mahihirap. Sinugo niya ako para aliwin ang mga sugatang-puso, at para ibalita sa mga bihag at mga bilanggo na silaʼy malaya na.
+
+###### 2-3 Sinugo rin niya ako para ibalita na ngayon na ang panahon na ililigtas ng Panginoon ang kanyang mga mamamayan at parurusahan ang kanilang mga kaaway. Sinugo rin niya ako para aliwin ang mga nalulungkot sa Zion, nang sa ganoon, sa halip na maglagay sila ng abo sa kanilang ulo bilang tanda ng pagdadalamhati, maglalagay sila ng langis o ng koronang bulaklak sa kanilang ulo bilang tanda ng kaligayahan. Silaʼy magiging parang matibay na puno na itinanim ng Panginoon. Kikilalanin silang mga taong matuwid sa ikakaluwalhati ng Panginoon. 
 
 
 

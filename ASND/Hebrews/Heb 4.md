@@ -436,7 +436,9 @@ Sapagkat buhay at mabisa ang salita ng Dios, at higit na matalas kaysa sa alinma
 
 
 
-Walang makapagtatago sa Dios. Nakikita niya at lantad sa paningin niya ang lahat, at sa kanya tayo mananagot. ## Si Cristo ang Ating Punong Pari 
+Walang makapagtatago sa Dios. Nakikita niya at lantad sa paningin niya ang lahat, at sa kanya tayo mananagot.
+
+## Si Cristo ang Ating Punong Pari 
 
 
 

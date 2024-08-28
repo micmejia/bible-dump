@@ -171,7 +171,9 @@ Makikita nila ang kanyang mukha, at isusulat sa mga noo nila ang kanyang pangala
 
 
 
-Wala nang gabi roon, kaya hindi na kailangan ang mga ilawan o ang liwanag ng araw, dahil ang Panginoong Dios ang magiging ilaw nila. At maghahari sila magpakailanman. ## Ang Pagbabalik ni Jesus 
+Wala nang gabi roon, kaya hindi na kailangan ang mga ilawan o ang liwanag ng araw, dahil ang Panginoong Dios ang magiging ilaw nila. At maghahari sila magpakailanman.
+
+## Ang Pagbabalik ni Jesus 
 
 
 
@@ -567,7 +569,9 @@ Pero maiiwan sa labas ang masasamang tao, mga mangkukulam, mga imoral, mga mamam
 
 
 
-Nag-iimbita ang <i class="trans-change">Banal na_ Espiritu at ang babaeng ikakasal, "Halikayo!" Ang lahat ng nakarinig nito ay magsabi rin, "Halikayo!" Lumapit ang sinumang nauuhaw at gustong uminom ng tubig na nagbibigay-buhay. Wala itong bayad. ## Ang Pangwakas na Sinabi ni Juan 
+Nag-iimbita ang <i class="trans-change">Banal na_ Espiritu at ang babaeng ikakasal, "Halikayo!" Ang lahat ng nakarinig nito ay magsabi rin, "Halikayo!" Lumapit ang sinumang nauuhaw at gustong uminom ng tubig na nagbibigay-buhay. Wala itong bayad.
+
+## Ang Pangwakas na Sinabi ni Juan 
 
 
 

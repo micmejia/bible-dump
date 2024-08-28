@@ -46,7 +46,9 @@ Let the wilderness and its cities lift up _their voice,_ The villages _that_ Ked
 Let them give glory to the Lord, And declare His praise in the coastlands. 
 
 ###### 13 
-The Lord shall go forth like a mighty man; He shall stir up _His_ zeal like a man of war. He shall cry out, yes, shout aloud; He shall prevail against His enemies. ## Promise of the Lord's Help 
+The Lord shall go forth like a mighty man; He shall stir up _His_ zeal like a man of war. He shall cry out, yes, shout aloud; He shall prevail against His enemies.
+
+## Promise of the Lord's Help 
 
 ###### 14 
 "I have held My peace a long time, I have been still and restrained Myself. _Now_ I will cry like a woman in labor, I will pant and gasp at once. 

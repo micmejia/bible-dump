@@ -40,7 +40,9 @@ next: ['Mic 6']
 
 
 
-Mga taga-Jerusalem, ihanda ninyo ang inyong mga kawal, dahil napapaligiran na kayo ng mga kalaban. Hahampasin nila ng tungkod ang mukha ng pinuno ng Israel. ## Ang Ipinangakong Pinuno mula sa Betlehem 
+Mga taga-Jerusalem, ihanda ninyo ang inyong mga kawal, dahil napapaligiran na kayo ng mga kalaban. Hahampasin nila ng tungkod ang mukha ng pinuno ng Israel.
+
+## Ang Ipinangakong Pinuno mula sa Betlehem 
 
 
 
@@ -172,7 +174,9 @@ Pamamahalaan niya <i class="trans-change">ang mga mamamayan ng Israel_ sa pamama
 
 
 
-Bibigyan niya ng mabuting kalagayan ang kanyang mga mamamayan. ## Kalayaan at Kapahamakan Kapag sinalakay ng mga taga-Asiria ang ating bansa at pasukin ang matitibay na bahagi ng ating lungsod, lalabanan natin sila sa pangunguna ng ating mga mahuhusay na pinuno. 
+Bibigyan niya ng mabuting kalagayan ang kanyang mga mamamayan.
+
+## Kalayaan at Kapahamakan Kapag sinalakay ng mga taga-Asiria ang ating bansa at pasukin ang matitibay na bahagi ng ating lungsod, lalabanan natin sila sa pangunguna ng ating mga mahuhusay na pinuno. 
 
 
 
@@ -304,7 +308,9 @@ Pero magdadala rin sila ng kapahamakan sa mga bansa. Magiging tulad sila ng leon
 
 
 
-Magtatagumpay ang mga Israelita laban sa kanilang mga kalaban. Lilipulin nila silang lahat. ## Lilipulin ng Panginoon ang mga Walang Kabuluhang Pinagkakatiwalaan ng mga Israelita 
+Magtatagumpay ang mga Israelita laban sa kanilang mga kalaban. Lilipulin nila silang lahat.
+
+## Lilipulin ng Panginoon ang mga Walang Kabuluhang Pinagkakatiwalaan ng mga Israelita 
 
 
 

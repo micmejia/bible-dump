@@ -40,7 +40,9 @@ next: ['Eccl 9']
 
 
 
-Walang katulad ang taong marunong na kayang magpaliwanag ng mga bagay. Ang karunungan ng taoʼy nakapagpapasaya ng mukha, at ang simangot ay nawawala. ## Sundin ang Hari 
+Walang katulad ang taong marunong na kayang magpaliwanag ng mga bagay. Ang karunungan ng taoʼy nakapagpapasaya ng mukha, at ang simangot ay nawawala.
+
+## Sundin ang Hari 
 
 
 

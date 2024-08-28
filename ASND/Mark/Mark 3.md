@@ -205,7 +205,9 @@ Galit silang tiningnan ni Jesus, pero nalungkot din siya sa katigasan ng kanilan
 
 
 
-Agad na umalis ang mga Pariseo at nakipagpulong sa mga tauhan ni Haring Herodes. Pinag-usapan nila kung paano nila ipapapatay si Jesus. ## Sinundan ng Maraming Tao si Jesus sa Tabi ng Lawa 
+Agad na umalis ang mga Pariseo at nakipagpulong sa mga tauhan ni Haring Herodes. Pinag-usapan nila kung paano nila ipapapatay si Jesus.
+
+## Sinundan ng Maraming Tao si Jesus sa Tabi ng Lawa 
 
 
 
@@ -403,7 +405,9 @@ Kapag nakikita siya ng mga <i class="trans-change">taong sinasaniban ng_ masaman
 
 
 
-Pero mahigpit niya silang pinagbawalan na sabihin sa iba kung sino siya. ## Pumili si Jesus ng Labindalawang Apostol 
+Pero mahigpit niya silang pinagbawalan na sabihin sa iba kung sino siya.
+
+## Pumili si Jesus ng Labindalawang Apostol 
 
 
 
@@ -634,7 +638,9 @@ si Andres, si Felipe, si Bartolome, si Mateo, si Tomas, si Santiago na anak ni A
 
 
 
-at si Judas Iscariote na siyang nagtraydor kay Jesus <i class="trans-change">nang bandang huli_. ## Si Jesus at si Satanas 
+at si Judas Iscariote na siyang nagtraydor kay Jesus <i class="trans-change">nang bandang huli_.
+
+## Si Jesus at si Satanas 
 
 
 
@@ -997,7 +1003,9 @@ Ngunit ang sinumang lumapastangan sa Banal na Espiritu ay hindi talaga mapapataw
 
 
 
-<i class="trans-change">Sinabi iyon ni Jesus_ dahil sinasabi ng mga tagapagturo ng Kautusan na siya ay may masamang espiritu. ## Ang Ina at mga Kapatid ni Jesus 
+<i class="trans-change">Sinabi iyon ni Jesus_ dahil sinasabi ng mga tagapagturo ng Kautusan na siya ay may masamang espiritu.
+
+## Ang Ina at mga Kapatid ni Jesus 
 
 
 

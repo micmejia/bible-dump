@@ -10,7 +10,9 @@ next: ['1 Sam 5']
 
 
 ###### 1 
-And the word of Samuel came to all Israel. ## The Ark of God Captured Now Israel went out to battle against the Philistines, and encamped beside Ebenezer; and the Philistines encamped in Aphek. 
+And the word of Samuel came to all Israel.
+
+## The Ark of God Captured Now Israel went out to battle against the Philistines, and encamped beside Ebenezer; and the Philistines encamped in Aphek. 
 
 ###### 2 
 Then the Philistines put themselves in battle array against Israel. And when they joined battle, Israel was defeated by the Philistines, who killed about four thousand men of the army in the field. 
@@ -40,7 +42,9 @@ Be strong and conduct yourselves like men, you Philistines, that you do not beco
 So the Philistines fought, and Israel was defeated, and every man fled to his tent. There was a very great slaughter, and there fell of Israel thirty thousand foot soldiers. 
 
 ###### 11 
-Also the ark of God was captured; and the two sons of Eli, Hophni and Phinehas, died. ## Death of Eli 
+Also the ark of God was captured; and the two sons of Eli, Hophni and Phinehas, died.
+
+## Death of Eli 
 
 ###### 12 
 Then a man of Benjamin ran from the battle line the same day, and came to Shiloh with his clothes torn and dirt on his head. 
@@ -61,7 +65,9 @@ Then the man said to Eli, "I _am_ he who came from the battle. And I fled today 
 So the messenger answered and said, "Israel has fled before the Philistines, and there has been a great slaughter among the people. Also your two sons, Hophni and Phinehas, are dead; and the ark of God has been captured." 
 
 ###### 18 
-Then it happened, when he made mention of the ark of God, that Eli fell off the seat backward by the side of the gate; and his neck was broken and he died, for the man was old and heavy. And he had judged Israel forty years. ## Ichabod 
+Then it happened, when he made mention of the ark of God, that Eli fell off the seat backward by the side of the gate; and his neck was broken and he died, for the man was old and heavy. And he had judged Israel forty years.
+
+## Ichabod 
 
 ###### 19 
 Now his daughter-in-law, Phinehas' wife, was with child, _due_ to be delivered; and when she heard the news that the ark of God was captured, and that her father-in-law and her husband were dead, she bowed herself and gave birth, for her labor pains came upon her. 

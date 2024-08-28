@@ -28,7 +28,9 @@ to be registered with Mary, his betrothed wife, who was with child.
 So it was, that while they were there, the days were completed for her to be delivered. 
 
 ###### 7 
-And she brought forth her firstborn Son, and wrapped Him in swaddling cloths, and laid Him in a manger, because there was no room for them in the inn. ## Glory in the Highest 
+And she brought forth her firstborn Son, and wrapped Him in swaddling cloths, and laid Him in a manger, because there was no room for them in the inn.
+
+## Glory in the Highest 
 
 ###### 8 
 Now there were in the same country shepherds living out in the fields, keeping watch over their flock by night. 
@@ -67,10 +69,14 @@ And all those who heard _it_ marveled at those things which were told them by th
 But Mary kept all these things and pondered _them_ in her heart. 
 
 ###### 20 
-Then the shepherds returned, glorifying and praising God for all the things that they had heard and seen, as it was told them. ## Circumcision of Jesus 
+Then the shepherds returned, glorifying and praising God for all the things that they had heard and seen, as it was told them.
+
+## Circumcision of Jesus 
 
 ###### 21 
-And when eight days were completed for the circumcision of the Child, His name was called Jesus, the name given by the angel before He was conceived in the womb. ## Jesus Presented in the Temple 
+And when eight days were completed for the circumcision of the Child, His name was called Jesus, the name given by the angel before He was conceived in the womb.
+
+## Jesus Presented in the Temple 
 
 ###### 22 
 Now when the days of her purification according to the law of Moses were completed, they brought Him to Jerusalem to present _Him_ to the Lord 
@@ -121,13 +127,17 @@ Now there was one, Anna, a prophetess, the daughter of Phanuel, of the tribe of 
 and this woman _was_ a widow of about eighty-four years, who did not depart from the temple, but served _God_ with fastings and prayers night and day. 
 
 ###### 38 
-And coming in that instant she gave thanks to the Lord, and spoke of Him to all those who looked for redemption in Jerusalem. ## The Family Returns to Nazareth 
+And coming in that instant she gave thanks to the Lord, and spoke of Him to all those who looked for redemption in Jerusalem.
+
+## The Family Returns to Nazareth 
 
 ###### 39 
 So when they had performed all things according to the law of the Lord, they returned to Galilee, to their _own_ city, Nazareth. 
 
 ###### 40 
-And the Child grew and became strong in spirit, filled with wisdom; and the grace of God was upon Him. ## The Boy Jesus Amazes the Scholars 
+And the Child grew and became strong in spirit, filled with wisdom; and the grace of God was upon Him.
+
+## The Boy Jesus Amazes the Scholars 
 
 ###### 41 
 His parents went to Jerusalem every year at the Feast of the Passover. 
@@ -157,7 +167,9 @@ So when they saw Him, they were amazed; and His mother said to Him, "Son, why ha
 And He said to them, "Why did you seek Me? Did you not know that I must be about My Father's business?" 
 
 ###### 50 
-But they did not understand the statement which He spoke to them. ## Jesus Advances in Wisdom and Favor 
+But they did not understand the statement which He spoke to them.
+
+## Jesus Advances in Wisdom and Favor 
 
 ###### 51 
 Then He went down with them and came to Nazareth, and was subject to them, but His mother kept all these things in her heart. 

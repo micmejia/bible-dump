@@ -34,7 +34,9 @@ Surely their valiant ones shall cry outside, The ambassadors of peace shall weep
 The highways lie waste, The traveling man ceases. He has broken the covenant, He has despised the cities, He regards no man. 
 
 ###### 9 
-The earth mourns _and_ languishes, Lebanon is shamed _and_ shriveled; Sharon is like a wilderness, And Bashan and Carmel shake off _their fruits._ ## Impending Judgment on Zion 
+The earth mourns _and_ languishes, Lebanon is shamed _and_ shriveled; Sharon is like a wilderness, And Bashan and Carmel shake off _their fruits._
+
+## Impending Judgment on Zion 
 
 ###### 10 
 "Now I will rise," says the Lord; "Now I will be exalted, Now I will lift Myself up. 
@@ -55,7 +57,9 @@ The sinners in Zion are afraid; Fearfulness has seized the hypocrites: "Who amon
 He who walks righteously and speaks uprightly, He who despises the gain of oppressions, Who gestures with his hands, refusing bribes, Who stops his ears from hearing of bloodshed, And shuts his eyes from seeing evil: 
 
 ###### 16 
-He will dwell on high; His place of defense _will be_ the fortress of rocks; Bread will be given him, His water _will be_ sure. ## The Land of the Majestic King 
+He will dwell on high; His place of defense _will be_ the fortress of rocks; Bread will be given him, His water _will be_ sure.
+
+## The Land of the Majestic King 
 
 ###### 17 
 Your eyes will see the King in His beauty; They will see the land that is very far off. 

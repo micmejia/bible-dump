@@ -49,7 +49,9 @@ The Lord will open to you His good treasure, the heavens, to give the rain to yo
 And the Lord will make you the head and not the tail; you shall be above only, and not be beneath, if you heed the commandments of the Lord your God, which I command you today, and are careful to observe _them._ 
 
 ###### 14 
-So you shall not turn aside from any of the words which I command you this day, _to_ the right or the left, to go after other gods to serve them. ## Curses on Disobedience 
+So you shall not turn aside from any of the words which I command you this day, _to_ the right or the left, to go after other gods to serve them.
+
+## Curses on Disobedience 
 
 ###### 15 
 "But it shall come to pass, if you do not obey the voice of the Lord your God, to observe carefully all His commandments and His statutes which I command you today, that all these curses will come upon you and overtake you: 

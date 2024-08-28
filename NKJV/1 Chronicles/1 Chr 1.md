@@ -90,7 +90,9 @@ Serug, Nahor, Terah,
 and Abram, who _is_ Abraham. 
 
 ###### 28 
-The sons of Abraham _were_ Isaac and Ishmael. ## The Family of Ishmael 
+The sons of Abraham _were_ Isaac and Ishmael.
+
+## The Family of Ishmael 
 
 ###### 29 
 These _are_ their genealogies: The firstborn of Ishmael _was_ Nebajoth; then Kedar, Adbeel, Mibsam, 
@@ -99,13 +101,17 @@ These _are_ their genealogies: The firstborn of Ishmael _was_ Nebajoth; then Ked
 Mishma, Dumah, Massa, Hadad, Tema, 
 
 ###### 31 
-Jetur, Naphish, and Kedemah. These _were_ the sons of Ishmael. ## The Family of Keturah 
+Jetur, Naphish, and Kedemah. These _were_ the sons of Ishmael.
+
+## The Family of Keturah 
 
 ###### 32 
 Now the sons born to Keturah, Abraham's concubine, _were_ Zimran, Jokshan, Medan, Midian, Ishbak, and Shuah. The sons of Jokshan _were_ Sheba and Dedan. 
 
 ###### 33 
-The sons of Midian _were_ Ephah, Epher, Hanoch, Abida, and Eldaah. All these were the children of Keturah. ## The Family of Isaac 
+The sons of Midian _were_ Ephah, Epher, Hanoch, Abida, and Eldaah. All these were the children of Keturah.
+
+## The Family of Isaac 
 
 ###### 34 
 And Abraham begot Isaac. The sons of Isaac _were_ Esau and Israel. 
@@ -117,7 +123,9 @@ The sons of Esau _were_ Eliphaz, Reuel, Jeush, Jaalam, and Korah.
 And the sons of Eliphaz _were_ Teman, Omar, Zephi, Gatam, _and_ Kenaz; and _by_ Timna, Amalek. 
 
 ###### 37 
-The sons of Reuel _were_ Nahath, Zerah, Shammah, and Mizzah. ## The Family of Seir 
+The sons of Reuel _were_ Nahath, Zerah, Shammah, and Mizzah.
+
+## The Family of Seir 
 
 ###### 38 
 The sons of Seir _were_ Lotan, Shobal, Zibeon, Anah, Dishon, Ezer, and Dishan. 
@@ -132,7 +140,9 @@ The sons of Shobal _were_ Alian, Manahath, Ebal, Shephi, and Onam. The sons of Z
 The son of Anah _was_ Dishon. The sons of Dishon _were_ Hamran, Eshban, Ithran, and Cheran. 
 
 ###### 42 
-The sons of Ezer _were_ Bilhan, Zaavan, _and_ Jaakan. The sons of Dishan _were_ Uz and Aran. ## The Kings of Edom 
+The sons of Ezer _were_ Bilhan, Zaavan, _and_ Jaakan. The sons of Dishan _were_ Uz and Aran.
+
+## The Kings of Edom 
 
 ###### 43 
 Now these _were_ the kings who reigned in the land of Edom before a king reigned over the children of Israel: Bela the son of Beor, and the name of his city was Dinhabah. 

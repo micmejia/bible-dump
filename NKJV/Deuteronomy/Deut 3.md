@@ -40,7 +40,9 @@ But all the livestock and the spoil of the cities we took as booty for ourselves
 all the cities of the plain, all Gilead, and all Bashan, as far as Salcah and Edrei, cities of the kingdom of Og in Bashan. 
 
 ###### 11 
-"For only Og king of Bashan remained of the remnant of the giants. Indeed his bedstead _was_ an iron bedstead. (_Is_ it not in Rabbah of the people of Ammon?) Nine cubits _is_ its length and four cubits its width, according to the standard cubit. ## The Land East of the Jordan Divided 
+"For only Og king of Bashan remained of the remnant of the giants. Indeed his bedstead _was_ an iron bedstead. (_Is_ it not in Rabbah of the people of Ammon?) Nine cubits _is_ its length and four cubits its width, according to the standard cubit.
+
+## The Land East of the Jordan Divided 
 
 ###### 12 
 "And this land, _which_ we possessed at that time, from Aroer, which _is_ by the River Arnon, and half the mountains of Gilead and its cities, I gave to the Reubenites and the Gadites. 

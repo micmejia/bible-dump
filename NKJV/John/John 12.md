@@ -40,7 +40,9 @@ Now a great many of the Jews knew that He was there; and they came, not for Jesu
 But the chief priests plotted to put Lazarus to death also, 
 
 ###### 11 
-because on account of him many of the Jews went away and believed in Jesus. ## The Triumphal Entry 
+because on account of him many of the Jews went away and believed in Jesus.
+
+## The Triumphal Entry 
 
 ###### 12 
 The next day a great multitude that had come to the feast, when they heard that Jesus was coming to Jerusalem, 
@@ -85,7 +87,9 @@ Most assuredly, I say to you, unless a grain of wheat falls into the ground and 
 He who loves his life will lose it, and he who hates his life in this world will keep it for eternal life. 
 
 ###### 26 
-If anyone serves Me, let him follow Me; and where I am, there My servant will be also. If anyone serves Me, him _My_ Father will honor. ## Jesus Predicts His Death on the Cross 
+If anyone serves Me, let him follow Me; and where I am, there My servant will be also. If anyone serves Me, him _My_ Father will honor.
+
+## Jesus Predicts His Death on the Cross 
 
 ###### 27 
 "Now My soul is troubled, and what shall I say? 'Father, save Me from this hour'? But for this purpose I came to this hour. 
@@ -115,7 +119,9 @@ The people answered Him, "We have heard from the law that the Christ remains for
 Then Jesus said to them, "A little while longer the light is with you. Walk while you have the light, lest darkness overtake you; he who walks in darkness does not know where he is going. 
 
 ###### 36 
-While you have the light, believe in the light, that you may become sons of light." These things Jesus spoke, and departed, and was hidden from them. ## Who Has Believed Our Report? 
+While you have the light, believe in the light, that you may become sons of light." These things Jesus spoke, and departed, and was hidden from them.
+
+## Who Has Believed Our Report? 
 
 ###### 37 
 But although He had done so many signs before them, they did not believe in Him, 
@@ -130,7 +136,9 @@ Therefore they could not believe, because Isaiah said again:
 "He has blinded their eyes and hardened their hearts, Lest they should see with _their_ eyes, Lest they should understand with _their_ hearts and turn, So that I should heal them." 
 
 ###### 41 
-These things Isaiah said when he saw His glory and spoke of Him. ## Walk in the Light 
+These things Isaiah said when he saw His glory and spoke of Him.
+
+## Walk in the Light 
 
 ###### 42 
 Nevertheless even among the rulers many believed in Him, but because of the Pharisees they did not confess _Him,_ lest they should be put out of the synagogue; 

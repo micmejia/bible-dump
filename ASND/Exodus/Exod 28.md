@@ -172,7 +172,9 @@ Ito ang mga damit na tatahiin nila: ang bulsa na nasa dibdib, ang espesyal na da
 
 
 
-Kailangan na pinong <i class="trans-change">telang_ linen na may lanang <i class="trans-change">kulay_ ginto, asul, ube at pula ang gagamitin nilang tela. ## Ang Espesyal na Damit ng mga Pari 
+Kailangan na pinong <i class="trans-change">telang_ linen na may lanang <i class="trans-change">kulay_ ginto, asul, ube at pula ang gagamitin nilang tela.
+
+## Ang Espesyal na Damit ng mga Pari 
 
 
 
@@ -469,7 +471,9 @@ Ang balangkas na ginto ay
 
 
 
-palagyan mo ng dalawang mala-kwintas na tali na purong ginto para maikabit sa may balikat ng damit. ## Ang Bulsa na Nasa Dibdib 
+palagyan mo ng dalawang mala-kwintas na tali na purong ginto para maikabit sa may balikat ng damit.
+
+## Ang Bulsa na Nasa Dibdib 
 
 
 
@@ -997,7 +1001,9 @@ Pagkatapos, talian ninyo ng asul na panali ang mga pang-ilalim na parang singsin
 
 
 
-Ilagay sa bulsa na nasa dibdib ang 'Urim' at 'Thummim' para naroon ito sa bulsa ni Aaron kapag pupunta siya sa aking presensya para malaman ang kalooban ko para sa mga Israelita. ## Ang Iba pang Damit ng mga Pari 
+Ilagay sa bulsa na nasa dibdib ang 'Urim' at 'Thummim' para naroon ito sa bulsa ni Aaron kapag pupunta siya sa aking presensya para malaman ang kalooban ko para sa mga Israelita.
+
+## Ang Iba pang Damit ng mga Pari 
 
 
 

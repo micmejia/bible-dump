@@ -40,7 +40,9 @@ next: ['Dan 12']
 
 
 
-"Noong unang taon ng paghahari ni Darius na taga-Media, ako ang tumulong at nagtanggol kay Micael. ## Ang mga Hari ng Hilaga at Timog 
+"Noong unang taon ng paghahari ni Darius na taga-Media, ako ang tumulong at nagtanggol kay Micael.
+
+## Ang mga Hari ng Hilaga at Timog 
 
 
 

@@ -37,7 +37,9 @@ And Ezra came to Jerusalem in the fifth month, which _was_ in the seventh year o
 On the first _day_ of the first month he began _his_ journey from Babylon, and on the first _day_ of the fifth month he came to Jerusalem, according to the good hand of his God upon him. 
 
 ###### 10 
-For Ezra had prepared his heart to seek the Law of the Lord, and to do _it,_ and to teach statutes and ordinances in Israel. ## The Letter of Artaxerxes to Ezra 
+For Ezra had prepared his heart to seek the Law of the Lord, and to do _it,_ and to teach statutes and ordinances in Israel.
+
+## The Letter of Artaxerxes to Ezra 
 
 ###### 11 
 This _is_ a copy of the letter that King Artaxerxes gave Ezra the priest, the scribe, expert in the words of the commandments of the Lord, and of His statutes to Israel: 

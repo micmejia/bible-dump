@@ -22,7 +22,9 @@ Yet I have sent the brethren, lest our boasting of you should be in vain in this
 lest if _some_ Macedonians come with me and find you unprepared, we (not to mention you!) should be ashamed of this confident boasting. 
 
 ###### 5 
-Therefore I thought it necessary to exhort the brethren to go to you ahead of time, and prepare your generous gift beforehand, which _you had_ previously promised, that it may be ready as _a matter of_ generosity and not as a grudging obligation. ## The Cheerful Giver 
+Therefore I thought it necessary to exhort the brethren to go to you ahead of time, and prepare your generous gift beforehand, which _you had_ previously promised, that it may be ready as _a matter of_ generosity and not as a grudging obligation.
+
+## The Cheerful Giver 
 
 ###### 6 
 But this _I say:_ He who sows sparingly will also reap sparingly, and he who sows bountifully will also reap bountifully. 

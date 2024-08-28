@@ -67,7 +67,9 @@ And when He got into the boat, he who had been demon-possessed begged Him that h
 However, Jesus did not permit him, but said to him, "Go home to your friends, and tell them what great things the Lord has done for you, and how He has had compassion on you." 
 
 ###### 20 
-And he departed and began to proclaim in Decapolis all that Jesus had done for him; and all marveled. ## A Girl Restored to Life and a Woman Healed 
+And he departed and began to proclaim in Decapolis all that Jesus had done for him; and all marveled.
+
+## A Girl Restored to Life and a Woman Healed 
 
 ###### 21 
 Now when Jesus had crossed over again by boat to the other side, a great multitude gathered to Him; and He was by the sea. 

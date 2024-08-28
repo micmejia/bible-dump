@@ -31,7 +31,9 @@ But that you may know that the Son of Man has power on earth to forgive sins"--t
 And he arose and departed to his house. 
 
 ###### 8 
-Now when the multitudes saw _it,_ they marveled and glorified God, who had given such power to men. ## Matthew the Tax Collector 
+Now when the multitudes saw _it,_ they marveled and glorified God, who had given such power to men.
+
+## Matthew the Tax Collector 
 
 ###### 9 
 As Jesus passed on from there, He saw a man named Matthew sitting at the tax office. And He said to him, "Follow Me." So he arose and followed Him. 
@@ -85,7 +87,9 @@ He said to them, "Make room, for the girl is not dead, but sleeping." And they r
 But when the crowd was put outside, He went in and took her by the hand, and the girl arose. 
 
 ###### 26 
-And the report of this went out into all that land. ## Two Blind Men Healed 
+And the report of this went out into all that land.
+
+## Two Blind Men Healed 
 
 ###### 27 
 When Jesus departed from there, two blind men followed Him, crying out and saying, "Son of David, have mercy on us!" 
@@ -100,7 +104,9 @@ Then He touched their eyes, saying, "According to your faith let it be to you."
 And their eyes were opened. And Jesus sternly warned them, saying, "See _that_ no one knows _it_." 
 
 ###### 31 
-But when they had departed, they spread the news about Him in all that country. ## A Mute Man Speaks 
+But when they had departed, they spread the news about Him in all that country.
+
+## A Mute Man Speaks 
 
 ###### 32 
 As they went out, behold, they brought to Him a man, mute and demon-possessed. 

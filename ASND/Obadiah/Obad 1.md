@@ -38,7 +38,9 @@ up: ['Obadiah']
 
 
 
-Ito ang sinabi ng Panginoong Dios tungkol sa <i class="trans-change">bansa ng_ Edom, na kanyang ipinahayag kay Obadias. ## Parurusahan ng Panginoon ang Edom Nabalitaan nating <i class="trans-change">mga Israelita_ mula sa Panginoon, na nagsugo siya ng mensahero sa mga bansa upang hikayatin sila na salakayin ang bansa ng Edom. 
+Ito ang sinabi ng Panginoong Dios tungkol sa <i class="trans-change">bansa ng_ Edom, na kanyang ipinahayag kay Obadias.
+
+## Parurusahan ng Panginoon ang Edom Nabalitaan nating <i class="trans-change">mga Israelita_ mula sa Panginoon, na nagsugo siya ng mensahero sa mga bansa upang hikayatin sila na salakayin ang bansa ng Edom. 
 
 
 
@@ -467,7 +469,9 @@ Hindi dapat sana kayo pumasok sa lungsod ng aking mga mamamayan sa panahon ng ka
 
 
 
-Hindi sana kayo nag-abang sa mga sangang-daan upang patayin ang mga tumatakas mula sa Jerusalem. At hindi sana ninyo sila ibinigay <i class="trans-change">sa mga kaaway_ sa panahon ng kanilang kasawian. ## Parurusahan ng Dios ang mga Bansa 
+Hindi sana kayo nag-abang sa mga sangang-daan upang patayin ang mga tumatakas mula sa Jerusalem. At hindi sana ninyo sila ibinigay <i class="trans-change">sa mga kaaway_ sa panahon ng kanilang kasawian.
+
+## Parurusahan ng Dios ang mga Bansa 
 
 
 
@@ -533,7 +537,9 @@ Hindi sana kayo nag-abang sa mga sangang-daan upang patayin ang mga tumatakas mu
 
 
 
-Kung paanong pinarusahan ang aking mga mamamayan sa aking banal na bundok, parurusahan din ang lahat ng bansa. Matinding parusa ang ibibigay ko sa kanila hanggang malipol silang lahat. ## Magtatagumpay ang Israel 
+Kung paanong pinarusahan ang aking mga mamamayan sa aking banal na bundok, parurusahan din ang lahat ng bansa. Matinding parusa ang ibibigay ko sa kanila hanggang malipol silang lahat.
+
+## Magtatagumpay ang Israel 
 
 
 

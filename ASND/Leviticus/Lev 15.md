@@ -139,7 +139,9 @@ At kahit na magpatuloy ang pagtulo o hindi, ituturing pa rin siyang marumi.
 
 
 
-At ituturing na marumi ang anumang mahigaan o maupuan niya. ###### 5-7 At ang sinumang makahipo sa kanya o sa kanyang hinigaan o inupuan ay kinakailangang maglaba ng kanyang damit at maligo, pero ituturing pa rin siyang marumi hanggang sa paglubog ng araw. 
+At ituturing na marumi ang anumang mahigaan o maupuan niya.
+
+###### 5-7 At ang sinumang makahipo sa kanya o sa kanyang hinigaan o inupuan ay kinakailangang maglaba ng kanyang damit at maligo, pero ituturing pa rin siyang marumi hanggang sa paglubog ng araw. 
 
 
 

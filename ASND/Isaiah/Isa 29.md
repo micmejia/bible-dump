@@ -205,7 +205,9 @@ Pero darating ang araw na ang marami niyang kaaway ay magiging parang alikabok o
 
 
 
-Ang Jerusalem ay aalalahanin ko, <i class="trans-change">at ako,_ ang Panginoong Makapangyarihan, <i class="trans-change">ay darating_ na may kulog, lindol, ingay, buhawi, bagyo, at nagliliyab na apoy. ###### 7-8 Mawawalang parang panaginip ang maraming bansang sumasalakay sa Jerusalem at gumigiba ng mga pader nito. Ang katulad nilaʼy taong nananaginip na kumakain, pero nang magising ay gutom pa rin; o katulad ng taong nananaginip na umiinom, pero nang magising uhaw pa rin." 
+Ang Jerusalem ay aalalahanin ko, <i class="trans-change">at ako,_ ang Panginoong Makapangyarihan, <i class="trans-change">ay darating_ na may kulog, lindol, ingay, buhawi, bagyo, at nagliliyab na apoy.
+
+###### 7-8 Mawawalang parang panaginip ang maraming bansang sumasalakay sa Jerusalem at gumigiba ng mga pader nito. Ang katulad nilaʼy taong nananaginip na kumakain, pero nang magising ay gutom pa rin; o katulad ng taong nananaginip na umiinom, pero nang magising uhaw pa rin." 
 
 
 

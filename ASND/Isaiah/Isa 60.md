@@ -238,7 +238,9 @@ Mapupuno ang iyong lupain ng mga kamelyo ng mga taga-Midian at ng mga taga-Efa. 
 
 
 
-Dadalhin ng mga taga-Kedar at mga taga-Nebayot ang kanilang mga tupa sa iyo, at ihahandog ito sa altar ng Panginoon para siyaʼy malugod. At lalo pang pararangalan ng Panginoon ang kanyang templo. ###### 8-9 Maglalayag ang mga barko na parang mga ulap na lumilipad at parang mga kalapating papunta sa kanilang mga pugad. Ang mga barkong itoʼy pag-aari ng mga nakatira sa malalayong lugar, na umaasa sa Panginoon. Pangungunahan sila ng mga barko ng Tarshish para ihatid ang iyong mga mamamayan pauwi mula sa malalayong lugar. Magdadala sila ng mga ginto at pilak para sa Panginoon na iyong Dios, ang Banal na Dios ng Israel, dahil ikaw ay kanyang pinararangalan." 
+Dadalhin ng mga taga-Kedar at mga taga-Nebayot ang kanilang mga tupa sa iyo, at ihahandog ito sa altar ng Panginoon para siyaʼy malugod. At lalo pang pararangalan ng Panginoon ang kanyang templo.
+
+###### 8-9 Maglalayag ang mga barko na parang mga ulap na lumilipad at parang mga kalapating papunta sa kanilang mga pugad. Ang mga barkong itoʼy pag-aari ng mga nakatira sa malalayong lugar, na umaasa sa Panginoon. Pangungunahan sila ng mga barko ng Tarshish para ihatid ang iyong mga mamamayan pauwi mula sa malalayong lugar. Magdadala sila ng mga ginto at pilak para sa Panginoon na iyong Dios, ang Banal na Dios ng Israel, dahil ikaw ay kanyang pinararangalan." 
 
 
 

@@ -271,7 +271,9 @@ Lutuin ninyo ito at kainin sa lugar na pinili ng Panginoon na inyong Dios. Pagka
 
 
 
-Sa susunod na anim na araw, kumain kayo ng tinapay na walang pampaalsa, at sa ikapitong araw, huwag kayong magtrabaho, kundi magtipon kayo para sumamba sa Panginoon na inyong Dios. ## Ang Pista ng Pag-aani 
+Sa susunod na anim na araw, kumain kayo ng tinapay na walang pampaalsa, at sa ikapitong araw, huwag kayong magtrabaho, kundi magtipon kayo para sumamba sa Panginoon na inyong Dios.
+
+## Ang Pista ng Pag-aani 
 
 
 
@@ -403,7 +405,9 @@ At magsaya kayo sa presensya ng Panginoon na inyong Dios sa lugar na pipiliin ni
 
 
 
-Alalahanin ninyo na naging mga alipin muna kayo sa Egipto, kaya sundin ninyong mabuti ang mga tuntuning ito. ## Ang Pista ng Pagtatayo ng mga Kubol 
+Alalahanin ninyo na naging mga alipin muna kayo sa Egipto, kaya sundin ninyong mabuti ang mga tuntuning ito.
+
+## Ang Pista ng Pagtatayo ng mga Kubol 
 
 
 
@@ -568,7 +572,9 @@ Sa loob ng pitong araw, ipagdiwang ninyo ang Pistang ito para parangalan ang Pan
 
 
 
-at nararapat na magdala sila ng handog sa Panginoon ayon sa pagpapalang ibinigay sa kanila ng Panginoon na inyong Dios. ## Ang mga Hukom 
+at nararapat na magdala sila ng handog sa Panginoon ayon sa pagpapalang ibinigay sa kanila ng Panginoon na inyong Dios.
+
+## Ang mga Hukom 
 
 
 
@@ -667,7 +673,9 @@ Huwag nilang babaluktutin ang hustisya at dapat wala silang pinapaboran sa paghu
 
 
 
-Dapat mangibabaw ang tamang hustisya para mabuhay kayo at makapanirahan sa lupaing ibinibigay sa inyo ng Panginoon na inyong Dios. ## Ang Pagsamba sa Ibang mga Dios-diosan 
+Dapat mangibabaw ang tamang hustisya para mabuhay kayo at makapanirahan sa lupaing ibinibigay sa inyo ng Panginoon na inyong Dios.
+
+## Ang Pagsamba sa Ibang mga Dios-diosan 
 
 
 

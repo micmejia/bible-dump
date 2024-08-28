@@ -105,7 +105,9 @@ and Moses, Aaron, and his sons would wash their hands and their feet _with water
 Whenever they went into the tabernacle of meeting, and when they came near the altar, they washed, as the Lord had commanded Moses. 
 
 ###### 33 
-And he raised up the court all around the tabernacle and the altar, and hung up the screen of the court gate. So Moses finished the work. ## The Cloud and the Glory 
+And he raised up the court all around the tabernacle and the altar, and hung up the screen of the court gate. So Moses finished the work.
+
+## The Cloud and the Glory 
 
 ###### 34 
 Then the cloud covered the tabernacle of meeting, and the glory of the Lord filled the tabernacle. 

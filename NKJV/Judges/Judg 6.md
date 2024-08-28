@@ -88,7 +88,9 @@ Now it came to pass the same night that the Lord said to him, "Take your father'
 and build an altar to the Lord your God on top of this rock in the proper arrangement, and take the second bull and offer a burnt sacrifice with the wood of the image which you shall cut down." 
 
 ###### 27 
-So Gideon took ten men from among his servants and did as the Lord had said to him. But because he feared his father's household and the men of the city too much to do _it_ by day, he did _it_ by night. ## Gideon Destroys the Altar of Baal 
+So Gideon took ten men from among his servants and did as the Lord had said to him. But because he feared his father's household and the men of the city too much to do _it_ by day, he did _it_ by night.
+
+## Gideon Destroys the Altar of Baal 
 
 ###### 28 
 And when the men of the city arose early in the morning, there was the altar of Baal, torn down; and the wooden image that _was_ beside it was cut down, and the second bull was being offered on the altar _which had been_ built. 
@@ -112,7 +114,9 @@ Then all the Midianites and Amalekites, the people of the East, gathered togethe
 But the Spirit of the Lord came upon Gideon; then he blew the trumpet, and the Abiezrites gathered behind him. 
 
 ###### 35 
-And he sent messengers throughout all Manasseh, who also gathered behind him. He also sent messengers to Asher, Zebulun, and Naphtali; and they came up to meet them. ## The Sign of the Fleece 
+And he sent messengers throughout all Manasseh, who also gathered behind him. He also sent messengers to Asher, Zebulun, and Naphtali; and they came up to meet them.
+
+## The Sign of the Fleece 
 
 ###### 36 
 So Gideon said to God, "If You will save Israel by my hand as You have said-- 

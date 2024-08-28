@@ -600,7 +600,9 @@ Wala dapat kayong papanigan sa inyong paghatol; parehas ninyong pakinggan ang mg
 
 
 
-At sinabi ko rin sa inyo noon ang lahat ng dapat ninyong gawin. ## Nagpadala Sila ng mga Espiya 
+At sinabi ko rin sa inyo noon ang lahat ng dapat ninyong gawin.
+
+## Nagpadala Sila ng mga Espiya 
 
 
 

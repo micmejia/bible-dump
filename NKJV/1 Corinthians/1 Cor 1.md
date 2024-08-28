@@ -15,7 +15,9 @@ Paul, called _to be_ an apostle of Jesus Christ through the will of God, and Sos
 To the church of God which is at Corinth, to those who are sanctified in Christ Jesus, called _to be_ saints, with all who in every place call on the name of Jesus Christ our Lord, both theirs and ours: 
 
 ###### 3 
-Grace to you and peace from God our Father and the Lord Jesus Christ. ## Spiritual Gifts at Corinth 
+Grace to you and peace from God our Father and the Lord Jesus Christ.
+
+## Spiritual Gifts at Corinth 
 
 ###### 4 
 I thank my God always concerning you for the grace of God which was given to you by Christ Jesus, 
@@ -33,7 +35,9 @@ so that you come short in no gift, eagerly waiting for the revelation of our Lor
 who will also confirm you to the end, _that you may be_ blameless in the day of our Lord Jesus Christ. 
 
 ###### 9 
-God _is_ faithful, by whom you were called into the fellowship of His Son, Jesus Christ our Lord. ## Sectarianism Is Sin 
+God _is_ faithful, by whom you were called into the fellowship of His Son, Jesus Christ our Lord.
+
+## Sectarianism Is Sin 
 
 ###### 10 
 Now I plead with you, brethren, by the name of our Lord Jesus Christ, that you all speak the same thing, and _that_ there be no divisions among you, but _that_ you be perfectly joined together in the same mind and in the same judgment. 
@@ -57,7 +61,9 @@ lest anyone should say that I had baptized in my own name.
 Yes, I also baptized the household of Stephanas. Besides, I do not know whether I baptized any other. 
 
 ###### 17 
-For Christ did not send me to baptize, but to preach the gospel, not with wisdom of words, lest the cross of Christ should be made of no effect. ## Christ the Power and Wisdom of God 
+For Christ did not send me to baptize, but to preach the gospel, not with wisdom of words, lest the cross of Christ should be made of no effect.
+
+## Christ the Power and Wisdom of God 
 
 ###### 18 
 For the message of the cross is foolishness to those who are perishing, but to us who are being saved it is the power of God. 
@@ -81,7 +87,9 @@ but we preach Christ crucified, to the Jews a stumbling block and to the Greeks 
 but to those who are called, both Jews and Greeks, Christ the power of God and the wisdom of God. 
 
 ###### 25 
-Because the foolishness of God is wiser than men, and the weakness of God is stronger than men. ## Glory Only in the Lord 
+Because the foolishness of God is wiser than men, and the weakness of God is stronger than men.
+
+## Glory Only in the Lord 
 
 ###### 26 
 For you see your calling, brethren, that not many wise according to the flesh, not many mighty, not many noble, _are called._ 

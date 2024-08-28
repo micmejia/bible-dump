@@ -46,10 +46,14 @@ lest innocent blood be shed in the midst of your land which the Lord your God is
 then the elders of his city shall send and bring him from there, and deliver him over to the hand of the avenger of blood, that he may die. 
 
 ###### 13 
-Your eye shall not pity him, but you shall put away _the guilt of_ innocent blood from Israel, that it may go well with you. ## Property Boundaries 
+Your eye shall not pity him, but you shall put away _the guilt of_ innocent blood from Israel, that it may go well with you.
+
+## Property Boundaries 
 
 ###### 14 
-"You shall not remove your neighbor's landmark, which the men of old have set, in your inheritance which you will inherit in the land that the Lord your God is giving you to possess. ## The Law Concerning Witnesses 
+"You shall not remove your neighbor's landmark, which the men of old have set, in your inheritance which you will inherit in the land that the Lord your God is giving you to possess.
+
+## The Law Concerning Witnesses 
 
 ###### 15 
 "One witness shall not rise against a man concerning any iniquity or any sin that he commits; by the mouth of two or three witnesses the matter shall be established. 

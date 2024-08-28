@@ -43,7 +43,9 @@ But whatever city you enter, and they do not receive you, go out into its street
 'The very dust of your city which clings to us we wipe off against you. Nevertheless know this, that the kingdom of God has come near you.' 
 
 ###### 12 
-But I say to you that it will be more tolerable in that Day for Sodom than for that city. ## Woe to the Impenitent Cities 
+But I say to you that it will be more tolerable in that Day for Sodom than for that city.
+
+## Woe to the Impenitent Cities 
 
 ###### 13 
 "Woe to you, Chorazin! Woe to you, Bethsaida! For if the mighty works which were done in you had been done in Tyre and Sidon, they would have repented long ago, sitting in sackcloth and ashes. 

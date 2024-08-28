@@ -37,7 +37,9 @@ And he took for himself a potsherd with which to scrape himself while he sat in 
 Then his wife said to him, "Do you still hold fast to your integrity? Curse God and die!" 
 
 ###### 10 
-But he said to her, "You speak as one of the foolish women speaks. Shall we indeed accept good from God, and shall we not accept adversity?" In all this Job did not sin with his lips. ## Job's Three Friends 
+But he said to her, "You speak as one of the foolish women speaks. Shall we indeed accept good from God, and shall we not accept adversity?" In all this Job did not sin with his lips.
+
+## Job's Three Friends 
 
 ###### 11 
 Now when Job's three friends heard of all this adversity that had come upon him, each one came from his own place--Eliphaz the Temanite, Bildad the Shuhite, and Zophar the Naamathite. For they had made an appointment together to come and mourn with him, and to comfort him. 

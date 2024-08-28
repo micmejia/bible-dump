@@ -25,7 +25,9 @@ So it was, when the Angel of the Lord spoke these words to all the children of I
 Then they called the name of that place Bochim; and they sacrificed there to the Lord. 
 
 ###### 6 
-And when Joshua had dismissed the people, the children of Israel went each to his own inheritance to possess the land. ## Death of Joshua 
+And when Joshua had dismissed the people, the children of Israel went each to his own inheritance to possess the land.
+
+## Death of Joshua 
 
 ###### 7 
 So the people served the Lord all the days of Joshua, and all the days of the elders who outlived Joshua, who had seen all the great works of the Lord which He had done for Israel. 
@@ -37,7 +39,9 @@ Now Joshua the son of Nun, the servant of the Lord, died _when he was_ one hundr
 And they buried him within the border of his inheritance at Timnath Heres, in the mountains of Ephraim, on the north side of Mount Gaash. 
 
 ###### 10 
-When all that generation had been gathered to their fathers, another generation arose after them who did not know the Lord nor the work which He had done for Israel. ## Israel's Unfaithfulness 
+When all that generation had been gathered to their fathers, another generation arose after them who did not know the Lord nor the work which He had done for Israel.
+
+## Israel's Unfaithfulness 
 
 ###### 11 
 Then the children of Israel did evil in the sight of the Lord, and served the Baals; 

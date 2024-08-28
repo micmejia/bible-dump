@@ -304,7 +304,9 @@ Huwag kayong magbibintang sa iba nang walang katotohanan. Huwag ninyong papatayi
 
 
 
-"Huwag ninyong pagmamalupitan ang mga dayuhan, dahil kayo mismo ang nakakaalam ng damdamin ng isang dayuhan, dahil mga dayuhan din kayo noon sa Egipto. ## Ang Araw at Taon ng Pamamahinga 
+"Huwag ninyong pagmamalupitan ang mga dayuhan, dahil kayo mismo ang nakakaalam ng damdamin ng isang dayuhan, dahil mga dayuhan din kayo noon sa Egipto.
+
+## Ang Araw at Taon ng Pamamahinga 
 
 
 
@@ -436,7 +438,9 @@ Pero sa ikapitong taon, huwag nʼyo itong tataniman. <i class="trans-change">Kun
 
 
 
-"Sundin ninyong mabuti lahat ng sinabi ko sa inyo. Huwag kayong mananalangin sa ibang dios o babanggit ng pangalan nila. ## Ang Tatlong Pista Bawat Taon 
+"Sundin ninyong mabuti lahat ng sinabi ko sa inyo. Huwag kayong mananalangin sa ibang dios o babanggit ng pangalan nila.
+
+## Ang Tatlong Pista Bawat Taon 
 
 
 

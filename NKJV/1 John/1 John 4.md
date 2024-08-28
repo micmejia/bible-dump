@@ -25,7 +25,9 @@ You are of God, little children, and have overcome them, because He who is in yo
 They are of the world. Therefore they speak _as_ of the world, and the world hears them. 
 
 ###### 6 
-We are of God. He who knows God hears us; he who is not of God does not hear us. By this we know the spirit of truth and the spirit of error. ## Knowing God Through Love 
+We are of God. He who knows God hears us; he who is not of God does not hear us. By this we know the spirit of truth and the spirit of error.
+
+## Knowing God Through Love 
 
 ###### 7 
 Beloved, let us love one another, for love is of God; and everyone who loves is born of God and knows God. 
@@ -40,7 +42,9 @@ In this the love of God was manifested toward us, that God has sent His only beg
 In this is love, not that we loved God, but that He loved us and sent His Son _to be_ the propitiation for our sins. 
 
 ###### 11 
-Beloved, if God so loved us, we also ought to love one another. ## Seeing God Through Love 
+Beloved, if God so loved us, we also ought to love one another.
+
+## Seeing God Through Love 
 
 ###### 12 
 No one has seen God at any time. If we love one another, God abides in us, and His love has been perfected in us. 
@@ -55,7 +59,9 @@ And we have seen and testify that the Father has sent the Son _as_ Savior of the
 Whoever confesses that Jesus is the Son of God, God abides in him, and he in God. 
 
 ###### 16 
-And we have known and believed the love that God has for us. God is love, and he who abides in love abides in God, and God in him. ## The Consummation of Love 
+And we have known and believed the love that God has for us. God is love, and he who abides in love abides in God, and God in him.
+
+## The Consummation of Love 
 
 ###### 17 
 Love has been perfected among us in this: that we may have boldness in the day of judgment; because as He is, so are we in this world. 
@@ -64,7 +70,9 @@ Love has been perfected among us in this: that we may have boldness in the day o
 There is no fear in love; but perfect love casts out fear, because fear involves torment. But he who fears has not been made perfect in love. 
 
 ###### 19 
-We love Him because He first loved us. ## Obedience by Faith 
+We love Him because He first loved us.
+
+## Obedience by Faith 
 
 ###### 20 
 If someone says, "I love God," and hates his brother, he is a liar; for he who does not love his brother whom he has seen, how can he love God whom he has not seen? 

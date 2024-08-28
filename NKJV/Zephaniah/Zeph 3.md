@@ -27,7 +27,9 @@ The Lord _is_ righteous in her midst, He will do no unrighteousness. Every morni
 "I have cut off nations, Their fortresses are devastated; I have made their streets desolate, With none passing by. Their cities are destroyed; _There is_ no one, no inhabitant. 
 
 ###### 7 
-I said, 'Surely you will fear Me, You will receive instruction'-- So that her dwelling would not be cut off, _Despite_ everything for which I punished her. But they rose early and corrupted all their deeds. ## A Faithful Remnant 
+I said, 'Surely you will fear Me, You will receive instruction'-- So that her dwelling would not be cut off, _Despite_ everything for which I punished her. But they rose early and corrupted all their deeds.
+
+## A Faithful Remnant 
 
 ###### 8 
 "Therefore wait for Me," says the Lord, "Until the day I rise up for plunder; My determination _is_ to gather the nations To My assembly of kingdoms, To pour on them My indignation, All My fierce anger; All the earth shall be devoured With the fire of My jealousy. 

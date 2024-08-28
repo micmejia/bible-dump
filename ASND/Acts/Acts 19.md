@@ -667,7 +667,9 @@ At marami ring mga salamangkero ang nagdala ng kanilang aklat at sinunog nila mi
 
 
 
-Dahil sa pangyayaring ito, lalo pang lumaganap ang kapangyarihan ng salita ng Dios. ## Ang Kaguluhan sa Efeso 
+Dahil sa pangyayaring ito, lalo pang lumaganap ang kapangyarihan ng salita ng Dios.
+
+## Ang Kaguluhan sa Efeso 
 
 
 

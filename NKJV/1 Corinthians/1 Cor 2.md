@@ -22,7 +22,9 @@ I was with you in weakness, in fear, and in much trembling.
 And my speech and my preaching _were_ not with persuasive words of human wisdom, but in demonstration of the Spirit and of power, 
 
 ###### 5 
-that your faith should not be in the wisdom of men but in the power of God. ## Spiritual Wisdom 
+that your faith should not be in the wisdom of men but in the power of God.
+
+## Spiritual Wisdom 
 
 ###### 6 
 However, we speak wisdom among those who are mature, yet not the wisdom of this age, nor of the rulers of this age, who are coming to nothing. 

@@ -60,7 +60,9 @@ So I took the heads of your tribes, wise and knowledgeable men, and made them he
 You shall not show partiality in judgment; you shall hear the small as well as the great; you shall not be afraid in any man's presence, for the judgment _is_ God's. The case that is too hard for you, bring to me, and I will hear it.' 
 
 ###### 18 
-And I commanded you at that time all the things which you should do. ## Israel's Refusal to Enter the Land 
+And I commanded you at that time all the things which you should do.
+
+## Israel's Refusal to Enter the Land 
 
 ###### 19 
 "So we departed from Horeb, and went through all that great and terrible wilderness which you saw on the way to the mountains of the Amorites, as the Lord our God had commanded us. Then we came to Kadesh Barnea. 
@@ -105,7 +107,9 @@ and in the wilderness where you saw how the Lord your God carried you, as a man 
 Yet, for all that, you did not believe the Lord your God, 
 
 ###### 33 
-who went in the way before you to search out a place for you to pitch your tents, to show you the way you should go, in the fire by night and in the cloud by day. ## The Penalty for Israel's Rebellion 
+who went in the way before you to search out a place for you to pitch your tents, to show you the way you should go, in the fire by night and in the cloud by day.
+
+## The Penalty for Israel's Rebellion 
 
 ###### 34 
 "And the Lord heard the sound of your words, and was angry, and took an oath, saying, 

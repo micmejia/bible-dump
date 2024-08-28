@@ -40,7 +40,9 @@ next: ['1 Sam 8']
 
 
 
-Kaya kinuha ng mga taga-Kiriat Jearim ang Kahon ng Panginoon at dinala sa bahay ni Abinadab na nasa burol. Pinili nila si Eleazar na anak ni Abinadab na magbantay dito. ## Ang Pamumuno ni Samuel sa Israel 
+Kaya kinuha ng mga taga-Kiriat Jearim ang Kahon ng Panginoon at dinala sa bahay ni Abinadab na nasa burol. Pinili nila si Eleazar na anak ni Abinadab na magbantay dito.
+
+## Ang Pamumuno ni Samuel sa Israel 
 
 
 

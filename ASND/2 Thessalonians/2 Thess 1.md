@@ -72,7 +72,9 @@ next: ['2 Thess 2']
 
 
 
-Sumainyo nawa ang biyaya at kapayapaang galing sa Dios Ama at sa Panginoong Jesu-Cristo. ## Ang Pagbabalik ni Cristo at ang Paghuhukom 
+Sumainyo nawa ang biyaya at kapayapaang galing sa Dios Ama at sa Panginoong Jesu-Cristo.
+
+## Ang Pagbabalik ni Cristo at ang Paghuhukom 
 
 
 

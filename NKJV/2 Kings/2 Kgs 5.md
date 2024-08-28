@@ -64,7 +64,9 @@ So Naaman said, "Then, if not, please let your servant be given two mule-loads o
 Yet in this thing may the Lord pardon your servant: when my master goes into the temple of Rimmon to worship there, and he leans on my hand, and I bow down in the temple of Rimmon--when I bow down in the temple of Rimmon, may the Lord please pardon your servant in this thing." 
 
 ###### 19 
-Then he said to him, "Go in peace." So he departed from him a short distance. ## Gehazi's Greed 
+Then he said to him, "Go in peace." So he departed from him a short distance.
+
+## Gehazi's Greed 
 
 ###### 20 
 But Gehazi, the servant of Elisha the man of God, said, "Look, my master has spared Naaman this Syrian, while not receiving from his hands what he brought; but _as_ the Lord lives, I will run after him and take something from him." 

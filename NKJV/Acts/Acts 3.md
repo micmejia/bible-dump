@@ -37,7 +37,9 @@ So he, leaping up, stood and walked and entered the temple with them--walking, l
 And all the people saw him walking and praising God. 
 
 ###### 10 
-Then they knew that it was he who sat begging alms at the Beautiful Gate of the temple; and they were filled with wonder and amazement at what had happened to him. ## Preaching in Solomon's Portico 
+Then they knew that it was he who sat begging alms at the Beautiful Gate of the temple; and they were filled with wonder and amazement at what had happened to him.
+
+## Preaching in Solomon's Portico 
 
 ###### 11 
 Now as the lame man who was healed held on to Peter and John, all the people ran together to them in the porch which is called Solomon's, greatly amazed. 

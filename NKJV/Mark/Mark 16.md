@@ -30,7 +30,9 @@ But he said to them, "Do not be alarmed. You seek Jesus of Nazareth, who was cru
 But go, tell His disciples--and Peter--that He is going before you into Galilee; there you will see Him, as He said to you." 
 
 ###### 8 
-So they went out quickly and fled from the tomb, for they trembled and were amazed. And they said nothing to anyone, for they were afraid. ## Mary Magdalene Sees the Risen Lord 
+So they went out quickly and fled from the tomb, for they trembled and were amazed. And they said nothing to anyone, for they were afraid.
+
+## Mary Magdalene Sees the Risen Lord 
 
 ###### 9 
 Now when _He_ rose early on the first _day_ of the week, He appeared first to Mary Magdalene, out of whom He had cast seven demons. 
@@ -39,13 +41,17 @@ Now when _He_ rose early on the first _day_ of the week, He appeared first to Ma
 She went and told those who had been with Him, as they mourned and wept. 
 
 ###### 11 
-And when they heard that He was alive and had been seen by her, they did not believe. ## Jesus Appears to Two Disciples 
+And when they heard that He was alive and had been seen by her, they did not believe.
+
+## Jesus Appears to Two Disciples 
 
 ###### 12 
 After that, He appeared in another form to two of them as they walked and went into the country. 
 
 ###### 13 
-And they went and told _it_ to the rest, _but_ they did not believe them either. ## The Great Commission 
+And they went and told _it_ to the rest, _but_ they did not believe them either.
+
+## The Great Commission 
 
 ###### 14 
 Later He appeared to the eleven as they sat at the table; and He rebuked their unbelief and hardness of heart, because they did not believe those who had seen Him after He had risen. 

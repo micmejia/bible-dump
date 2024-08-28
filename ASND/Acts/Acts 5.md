@@ -304,7 +304,9 @@ Natumba noon din si Safira sa harapan ni Pedro at namatay. Pagpasok ng mga binat
 
 
 
-Dahil sa mga pangyayaring iyon, lubhang natakot ang buong iglesya at ang lahat ng nakabalita nito. ## Mga Himala at mga Kamangha-manghang Gawa 
+Dahil sa mga pangyayaring iyon, lubhang natakot ang buong iglesya at ang lahat ng nakabalita nito.
+
+## Mga Himala at mga Kamangha-manghang Gawa 
 
 
 
@@ -469,7 +471,9 @@ Dahil <i class="trans-change">sa mga himalang ginawa ng mga apostol_, dinala ng 
 
 
 
-Hindi lang iyan, kundi marami ring mga tao mula sa mga kalapit baryo ang dumating sa Jerusalem na may dalang mga may sakit at mga taong sinasaniban ng masamang espiritu. At gumaling silang lahat. ## Ang Pag-uusig sa mga Apostol 
+Hindi lang iyan, kundi marami ring mga tao mula sa mga kalapit baryo ang dumating sa Jerusalem na may dalang mga may sakit at mga taong sinasaniban ng masamang espiritu. At gumaling silang lahat.
+
+## Ang Pag-uusig sa mga Apostol 
 
 
 

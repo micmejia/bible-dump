@@ -403,7 +403,9 @@ Kaya pababayaan na lang sila ng Dios sa matinding pagkalinlang para maniwala sil
 
 
 
-nang sa ganoon, maparusahan ang lahat ng ayaw maniwala sa katotohanan at nagpakaligaya sa kasamaan. ## Pinili Kayo para Hindi Mahatulan 
+nang sa ganoon, maparusahan ang lahat ng ayaw maniwala sa katotohanan at nagpakaligaya sa kasamaan.
+
+## Pinili Kayo para Hindi Mahatulan 
 
 
 

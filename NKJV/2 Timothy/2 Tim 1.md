@@ -12,7 +12,9 @@ next: ['2 Tim 2']
 Paul, an apostle of Jesus Christ by the will of God, according to the promise of life which is in Christ Jesus, 
 
 ###### 2 
-To Timothy, a beloved son: Grace, mercy, _and_ peace from God the Father and Christ Jesus our Lord. ## Timothy's Faith and Heritage 
+To Timothy, a beloved son: Grace, mercy, _and_ peace from God the Father and Christ Jesus our Lord.
+
+## Timothy's Faith and Heritage 
 
 ###### 3 
 I thank God, whom I serve with a pure conscience, as _my_ forefathers _did,_ as without ceasing I remember you in my prayers night and day, 
@@ -27,7 +29,9 @@ when I call to remembrance the genuine faith that is in you, which dwelt first i
 Therefore I remind you to stir up the gift of God which is in you through the laying on of my hands. 
 
 ###### 7 
-For God has not given us a spirit of fear, but of power and of love and of a sound mind. ## Not Ashamed of the Gospel 
+For God has not given us a spirit of fear, but of power and of love and of a sound mind.
+
+## Not Ashamed of the Gospel 
 
 ###### 8 
 Therefore do not be ashamed of the testimony of our Lord, nor of me His prisoner, but share with me in the sufferings for the gospel according to the power of God, 
@@ -42,7 +46,9 @@ but has now been revealed by the appearing of our Savior Jesus Christ, _who_ has
 to which I was appointed a preacher, an apostle, and a teacher of the Gentiles. 
 
 ###### 12 
-For this reason I also suffer these things; nevertheless I am not ashamed, for I know whom I have believed and am persuaded that He is able to keep what I have committed to Him until that Day. ## Be Loyal to the Faith 
+For this reason I also suffer these things; nevertheless I am not ashamed, for I know whom I have believed and am persuaded that He is able to keep what I have committed to Him until that Day.
+
+## Be Loyal to the Faith 
 
 ###### 13 
 Hold fast the pattern of sound words which you have heard from me, in faith and love which are in Christ Jesus. 

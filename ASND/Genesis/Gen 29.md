@@ -997,7 +997,9 @@ Ibinigay ni Laban kay Raquel ang alipin niyang babae na si Bilha para maging ali
 
 
 
-Kaya sumiping din si Jacob kay Raquel. Mas mahal niya si Raquel kaysa kay Lea. Naglingkod si Jacob kay Laban ng pitong taon pa. ## Ang mga Anak ni Jacob 
+Kaya sumiping din si Jacob kay Raquel. Mas mahal niya si Raquel kaysa kay Lea. Naglingkod si Jacob kay Laban ng pitong taon pa.
+
+## Ang mga Anak ni Jacob 
 
 
 

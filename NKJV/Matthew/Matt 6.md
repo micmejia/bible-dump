@@ -19,7 +19,9 @@ Therefore, when you do a charitable deed, do not sound a trumpet before you as t
 But when you do a charitable deed, do not let your left hand know what your right hand is doing, 
 
 ###### 4 
-that your charitable deed may be in secret; and your Father who sees in secret will Himself reward you openly. ## The Model Prayer 
+that your charitable deed may be in secret; and your Father who sees in secret will Himself reward you openly.
+
+## The Model Prayer 
 
 ###### 5 
 "And when you pray, you shall not be like the hypocrites. For they love to pray standing in the synagogues and on the corners of the streets, that they may be seen by men. Assuredly, I say to you, they have their reward. 
@@ -52,7 +54,9 @@ And do not lead us into temptation, But deliver us from the evil one. For Yours 
 "For if you forgive men their trespasses, your heavenly Father will also forgive you. 
 
 ###### 15 
-But if you do not forgive men their trespasses, neither will your Father forgive your trespasses. ## Fasting to Be Seen Only by God 
+But if you do not forgive men their trespasses, neither will your Father forgive your trespasses.
+
+## Fasting to Be Seen Only by God 
 
 ###### 16 
 "Moreover, when you fast, do not be like the hypocrites, with a sad countenance. For they disfigure their faces that they may appear to men to be fasting. Assuredly, I say to you, they have their reward. 
@@ -61,7 +65,9 @@ But if you do not forgive men their trespasses, neither will your Father forgive
 But you, when you fast, anoint your head and wash your face, 
 
 ###### 18 
-so that you do not appear to men to be fasting, but to your Father who _is_ in the secret _place;_ and your Father who sees in secret will reward you openly. ## Lay Up Treasures in Heaven 
+so that you do not appear to men to be fasting, but to your Father who _is_ in the secret _place;_ and your Father who sees in secret will reward you openly.
+
+## Lay Up Treasures in Heaven 
 
 ###### 19 
 "Do not lay up for yourselves treasures on earth, where moth and rust destroy and where thieves break in and steal; 
@@ -70,7 +76,9 @@ so that you do not appear to men to be fasting, but to your Father who _is_ in t
 but lay up for yourselves treasures in heaven, where neither moth nor rust destroys and where thieves do not break in and steal. 
 
 ###### 21 
-For where your treasure is, there your heart will be also. ## The Lamp of the Body 
+For where your treasure is, there your heart will be also.
+
+## The Lamp of the Body 
 
 ###### 22 
 "The lamp of the body is the eye. If therefore your eye is good, your whole body will be full of light. 
@@ -79,7 +87,9 @@ For where your treasure is, there your heart will be also. ## The Lamp of the Bo
 But if your eye is bad, your whole body will be full of darkness. If therefore the light that is in you is darkness, how great _is_ that darkness! ## You Cannot Serve God and Riches 
 
 ###### 24 
-"No one can serve two masters; for either he will hate the one and love the other, or else he will be loyal to the one and despise the other. You cannot serve God and mammon. ## Do Not Worry 
+"No one can serve two masters; for either he will hate the one and love the other, or else he will be loyal to the one and despise the other. You cannot serve God and mammon.
+
+## Do Not Worry 
 
 ###### 25 
 "Therefore I say to you, do not worry about your life, what you will eat or what you will drink; nor about your body, what you will put on. Is not life more than food and the body more than clothing? 

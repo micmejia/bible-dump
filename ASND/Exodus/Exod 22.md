@@ -502,7 +502,9 @@ Kung napatay ng mabangis na hayop ang hayop, kailangang dalhin niya ang natirang
 
 
 
-Pero kung nariyan ang may-ari nang mangyari ito, hindi dapat magbayad ang nanghiram. Kung nirentahan ang hayop, ang perang ibinayad sa renta ang ibabayad sa nasugatan o namatay na hayop. ## Ang Iba pang mga Kautusan 
+Pero kung nariyan ang may-ari nang mangyari ito, hindi dapat magbayad ang nanghiram. Kung nirentahan ang hayop, ang perang ibinayad sa renta ang ibabayad sa nasugatan o namatay na hayop.
+
+## Ang Iba pang mga Kautusan 
 
 
 

@@ -43,7 +43,9 @@ When they saw the star, they rejoiced with exceedingly great joy.
 And when they had come into the house, they saw the young Child with Mary His mother, and fell down and worshiped Him. And when they had opened their treasures, they presented gifts to Him: gold, frankincense, and myrrh. 
 
 ###### 12 
-Then, being divinely warned in a dream that they should not return to Herod, they departed for their own country another way. ## The Flight into Egypt 
+Then, being divinely warned in a dream that they should not return to Herod, they departed for their own country another way.
+
+## The Flight into Egypt 
 
 ###### 13 
 Now when they had departed, behold, an angel of the Lord appeared to Joseph in a dream, saying, "Arise, take the young Child and His mother, flee to Egypt, and stay there until I bring you word; for Herod will seek the young Child to destroy Him." 

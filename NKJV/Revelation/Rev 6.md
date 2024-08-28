@@ -13,13 +13,17 @@ next: ['Rev 7']
 Now I saw when the Lamb opened one of the seals; and I heard one of the four living creatures saying with a voice like thunder, "Come and see." 
 
 ###### 2 
-And I looked, and behold, a white horse. He who sat on it had a bow; and a crown was given to him, and he went out conquering and to conquer. ## Second Seal: Conflict on Earth 
+And I looked, and behold, a white horse. He who sat on it had a bow; and a crown was given to him, and he went out conquering and to conquer.
+
+## Second Seal: Conflict on Earth 
 
 ###### 3 
 When He opened the second seal, I heard the second living creature saying, "Come and see." 
 
 ###### 4 
-Another horse, fiery red, went out. And it was granted to the one who sat on it to take peace from the earth, and that _people_ should kill one another; and there was given to him a great sword. ## Third Seal: Scarcity on Earth 
+Another horse, fiery red, went out. And it was granted to the one who sat on it to take peace from the earth, and that _people_ should kill one another; and there was given to him a great sword.
+
+## Third Seal: Scarcity on Earth 
 
 ###### 5 
 When He opened the third seal, I heard the third living creature say, "Come and see." So I looked, and behold, a black horse, and he who sat on it had a pair of scales in his hand. 
@@ -31,7 +35,9 @@ And I heard a voice in the midst of the four living creatures saying, "A quart o
 When He opened the fourth seal, I heard the voice of the fourth living creature saying, "Come and see." 
 
 ###### 8 
-So I looked, and behold, a pale horse. And the name of him who sat on it was Death, and Hades followed with him. And power was given to them over a fourth of the earth, to kill with sword, with hunger, with death, and by the beasts of the earth. ## Fifth Seal: The Cry of the Martyrs 
+So I looked, and behold, a pale horse. And the name of him who sat on it was Death, and Hades followed with him. And power was given to them over a fourth of the earth, to kill with sword, with hunger, with death, and by the beasts of the earth.
+
+## Fifth Seal: The Cry of the Martyrs 
 
 ###### 9 
 When He opened the fifth seal, I saw under the altar the souls of those who had been slain for the word of God and for the testimony which they held. 
@@ -40,7 +46,9 @@ When He opened the fifth seal, I saw under the altar the souls of those who had 
 And they cried with a loud voice, saying, "How long, O Lord, holy and true, until You judge and avenge our blood on those who dwell on the earth?" 
 
 ###### 11 
-Then a white robe was given to each of them; and it was said to them that they should rest a little while longer, until both _the number of_ their fellow servants and their brethren, who would be killed as they _were,_ was completed. ## Sixth Seal: Cosmic Disturbances 
+Then a white robe was given to each of them; and it was said to them that they should rest a little while longer, until both _the number of_ their fellow servants and their brethren, who would be killed as they _were,_ was completed.
+
+## Sixth Seal: Cosmic Disturbances 
 
 ###### 12 
 I looked when He opened the sixth seal, and behold, there was a great earthquake; and the sun became black as sackcloth of hair, and the moon became like blood. 

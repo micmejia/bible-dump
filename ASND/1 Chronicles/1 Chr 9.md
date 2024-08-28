@@ -1129,7 +1129,9 @@ Ang mga musikero <i class="trans-change">sa templo_ na mga pinuno rin ng mga pam
 
 
 
-Silang lahat ang pinuno ng mga pamilyang Levita, nailista sila sa talaan ng kanilang lahi. Tumira sila sa Jerusalem. ## Ang Angkan ni Saul 
+Silang lahat ang pinuno ng mga pamilyang Levita, nailista sila sa talaan ng kanilang lahi. Tumira sila sa Jerusalem.
+
+## Ang Angkan ni Saul 
 
 
 

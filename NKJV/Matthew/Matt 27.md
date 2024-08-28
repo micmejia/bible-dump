@@ -13,7 +13,9 @@ next: ['Matt 28']
 When morning came, all the chief priests and elders of the people plotted against Jesus to put Him to death. 
 
 ###### 2 
-And when they had bound Him, they led Him away and delivered Him to Pontius Pilate the governor. ## Judas Hangs Himself 
+And when they had bound Him, they led Him away and delivered Him to Pontius Pilate the governor.
+
+## Judas Hangs Himself 
 
 ###### 3 
 Then Judas, His betrayer, seeing that He had been condemned, was remorseful and brought back the thirty pieces of silver to the chief priests and elders, 
@@ -49,7 +51,9 @@ And while He was being accused by the chief priests and elders, He answered noth
 Then Pilate said to Him, "Do You not hear how many things they testify against You?" 
 
 ###### 14 
-But He answered him not one word, so that the governor marveled greatly. ## Taking the Place of Barabbas 
+But He answered him not one word, so that the governor marveled greatly.
+
+## Taking the Place of Barabbas 
 
 ###### 15 
 Now at the feast the governor was accustomed to releasing to the multitude one prisoner whom they wished. 
@@ -85,7 +89,9 @@ When Pilate saw that he could not prevail at all, but rather _that_ a tumult was
 And all the people answered and said, "His blood _be_ on us and on our children." 
 
 ###### 26 
-Then he released Barabbas to them; and when he had scourged Jesus, he delivered _Him_ to be crucified. ## The Soldiers Mock Jesus 
+Then he released Barabbas to them; and when he had scourged Jesus, he delivered _Him_ to be crucified.
+
+## The Soldiers Mock Jesus 
 
 ###### 27 
 Then the soldiers of the governor took Jesus into the Praetorium and gathered the whole garrison around Him. 
@@ -100,7 +106,9 @@ When they had twisted a crown of thorns, they put _it_ on His head, and a reed i
 Then they spat on Him, and took the reed and struck Him on the head. 
 
 ###### 31 
-And when they had mocked Him, they took the robe off Him, put His _own_ clothes on Him, and led Him away to be crucified. ## The King on a Cross 
+And when they had mocked Him, they took the robe off Him, put His _own_ clothes on Him, and led Him away to be crucified.
+
+## The King on a Cross 
 
 ###### 32 
 Now as they came out, they found a man of Cyrene, Simon by name. Him they compelled to bear His cross. 
@@ -139,7 +147,9 @@ Likewise the chief priests also, mocking with the scribes and elders, said,
 He trusted in God; let Him deliver Him now if He will have Him; for He said, 'I am the Son of God.' " 
 
 ###### 44 
-Even the robbers who were crucified with Him reviled Him with the same thing. ## Jesus Dies on the Cross 
+Even the robbers who were crucified with Him reviled Him with the same thing.
+
+## Jesus Dies on the Cross 
 
 ###### 45 
 Now from the sixth hour until the ninth hour there was darkness over all the land. 
@@ -175,7 +185,9 @@ So when the centurion and those with him, who were guarding Jesus, saw the earth
 And many women who followed Jesus from Galilee, ministering to Him, were there looking on from afar, 
 
 ###### 56 
-among whom were Mary Magdalene, Mary the mother of James and Joses, and the mother of Zebedee's sons. ## Jesus Buried in Joseph's Tomb 
+among whom were Mary Magdalene, Mary the mother of James and Joses, and the mother of Zebedee's sons.
+
+## Jesus Buried in Joseph's Tomb 
 
 ###### 57 
 Now when evening had come, there came a rich man from Arimathea, named Joseph, who himself had also become a disciple of Jesus. 
@@ -190,7 +202,9 @@ When Joseph had taken the body, he wrapped it in a clean linen cloth,
 and laid it in his new tomb which he had hewn out of the rock; and he rolled a large stone against the door of the tomb, and departed. 
 
 ###### 61 
-And Mary Magdalene was there, and the other Mary, sitting opposite the tomb. ## Pilate Sets a Guard 
+And Mary Magdalene was there, and the other Mary, sitting opposite the tomb.
+
+## Pilate Sets a Guard 
 
 ###### 62 
 On the next day, which followed the Day of Preparation, the chief priests and Pharisees gathered together to Pilate, 

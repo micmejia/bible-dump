@@ -43,13 +43,17 @@ The foundation _was of_ costly stones, large stones, some ten cubits and some ei
 And above _were_ costly stones, hewn to size, and cedar wood. 
 
 ###### 12 
-The great court _was_ enclosed with three rows of hewn stones and a row of cedar beams. So were the inner court of the house of the Lord and the vestibule of the temple. ## Hiram the Craftsman 
+The great court _was_ enclosed with three rows of hewn stones and a row of cedar beams. So were the inner court of the house of the Lord and the vestibule of the temple.
+
+## Hiram the Craftsman 
 
 ###### 13 
 Now King Solomon sent and brought Huram from Tyre. 
 
 ###### 14 
-He _was_ the son of a widow from the tribe of Naphtali, and his father _was_ a man of Tyre, a bronze worker; he was filled with wisdom and understanding and skill in working with all kinds of bronze work. So he came to King Solomon and did all his work. ## The Bronze Pillars for the Temple 
+He _was_ the son of a widow from the tribe of Naphtali, and his father _was_ a man of Tyre, a bronze worker; he was filled with wisdom and understanding and skill in working with all kinds of bronze work. So he came to King Solomon and did all his work.
+
+## The Bronze Pillars for the Temple 
 
 ###### 15 
 And he cast two pillars of bronze, each one eighteen cubits high, and a line of twelve cubits measured the circumference of each. 
@@ -73,7 +77,9 @@ The capitals on the two pillars also _had pomegranates_ above, by the convex sur
 Then he set up the pillars by the vestibule of the temple; he set up the pillar on the right and called its name Jachin, and he set up the pillar on the left and called its name Boaz. 
 
 ###### 22 
-The tops of the pillars were in the shape of lilies. So the work of the pillars was finished. ## The Sea and the Oxen 
+The tops of the pillars were in the shape of lilies. So the work of the pillars was finished.
+
+## The Sea and the Oxen 
 
 ###### 23 
 And he made the Sea of cast bronze, ten cubits from one brim to the other; _it was_ completely round. Its height _was_ five cubits, and a line of thirty cubits measured its circumference. 
@@ -85,7 +91,9 @@ Below its brim _were_ ornamental buds encircling it all around, ten to a cubit, 
 It stood on twelve oxen: three looking toward the north, three looking toward the west, three looking toward the south, and three looking toward the east; the Sea _was set_ upon them, and all their back parts _pointed_ inward. 
 
 ###### 26 
-It _was_ a handbreadth thick; and its brim was shaped like the brim of a cup, _like_ a lily blossom. It contained two thousand baths. ## The Carts and the Lavers 
+It _was_ a handbreadth thick; and its brim was shaped like the brim of a cup, _like_ a lily blossom. It contained two thousand baths.
+
+## The Carts and the Lavers 
 
 ###### 27 
 He also made ten carts of bronze; four cubits _was_ the length of each cart, four cubits its width, and three cubits its height. 
@@ -124,7 +132,9 @@ Thus he made the ten carts. All of them were of the same mold, one measure, _and
 Then he made ten lavers of bronze; each laver contained forty baths, _and_ each laver _was_ four cubits. On each of the ten carts _was_ a laver. 
 
 ###### 39 
-And he put five carts on the right side of the house, and five on the left side of the house. He set the Sea on the right side of the house, toward the southeast. ## Furnishings of the Temple 
+And he put five carts on the right side of the house, and five on the left side of the house. He set the Sea on the right side of the house, toward the southeast.
+
+## Furnishings of the Temple 
 
 ###### 40 
 Huram made the lavers and the shovels and the bowls. So Huram finished doing all the work that he was to do for King Solomon _for_ the house of the Lord: 

@@ -337,7 +337,9 @@ Nang marinig ito ni Jesus, namangha siya sa kapitan at sinabi niya sa mga taong 
 
 
 
-Nang bumalik sa bahay ang mga sinugo ng kapitan, nakita nilang magaling na ang alipin. ## Binuhay ni Jesus ang Patay na Binata 
+Nang bumalik sa bahay ang mga sinugo ng kapitan, nakita nilang magaling na ang alipin.
+
+## Binuhay ni Jesus ang Patay na Binata 
 
 
 
@@ -568,7 +570,9 @@ Kinilabutan ang mga tao at nagpuri sila sa Dios. Sinabi nila, "Inalala tayo ng D
 
 
 
-At kumalat sa buong Judea at sa lahat ng lugar sa palibot nito ang balita tungkol kay Jesus. ## Si Jesus at si Juan na Tagapagbautismo 
+At kumalat sa buong Judea at sa lahat ng lugar sa palibot nito ang balita tungkol kay Jesus.
+
+## Si Jesus at si Juan na Tagapagbautismo 
 
 
 

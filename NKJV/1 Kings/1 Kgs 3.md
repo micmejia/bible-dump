@@ -52,7 +52,9 @@ And I have also given you what you have not asked: both riches and honor, so tha
 So if you walk in My ways, to keep My statutes and My commandments, as your father David walked, then I will lengthen your days." 
 
 ###### 15 
-Then Solomon awoke; and indeed it had been a dream. And he came to Jerusalem and stood before the ark of the covenant of the Lord, offered up burnt offerings, offered peace offerings, and made a feast for all his servants. ## Solomon's Wise Judgment 
+Then Solomon awoke; and indeed it had been a dream. And he came to Jerusalem and stood before the ark of the covenant of the Lord, offered up burnt offerings, offered peace offerings, and made a feast for all his servants.
+
+## Solomon's Wise Judgment 
 
 ###### 16 
 Now two women _who were_ harlots came to the king, and stood before him. 

@@ -43,7 +43,9 @@ And he said to him, "Every man at the beginning sets out the good wine, and when
 This beginning of signs Jesus did in Cana of Galilee, and manifested His glory; and His disciples believed in Him. 
 
 ###### 12 
-After this He went down to Capernaum, He, His mother, His brothers, and His disciples; and they did not stay there many days. ## Jesus Cleanses the Temple 
+After this He went down to Capernaum, He, His mother, His brothers, and His disciples; and they did not stay there many days.
+
+## Jesus Cleanses the Temple 
 
 ###### 13 
 Now the Passover of the Jews was at hand, and Jesus went up to Jerusalem. 
@@ -73,7 +75,9 @@ Then the Jews said, "It has taken forty-six years to build this temple, and will
 But He was speaking of the temple of His body. 
 
 ###### 22 
-Therefore, when He had risen from the dead, His disciples remembered that He had said this to them; and they believed the Scripture and the word which Jesus had said. ## The Discerner of Hearts 
+Therefore, when He had risen from the dead, His disciples remembered that He had said this to them; and they believed the Scripture and the word which Jesus had said.
+
+## The Discerner of Hearts 
 
 ###### 23 
 Now when He was in Jerusalem at the Passover, during the feast, many believed in His name when they saw the signs which He did. 

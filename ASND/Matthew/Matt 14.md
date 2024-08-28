@@ -403,7 +403,9 @@ inilagay ang ulo niya sa isang bandehado at dinala sa dalaga. At ibinigay naman 
 
 
 
-Ang bangkay ni Juan ay kinuha ng kanyang mga tagasunod at inilibing, at ibinalita nila kay Jesus ang nangyari. ## Pinakain ni Jesus ang 5,000 Tao 
+Ang bangkay ni Juan ay kinuha ng kanyang mga tagasunod at inilibing, at ibinalita nila kay Jesus ang nangyari.
+
+## Pinakain ni Jesus ang 5,000 Tao 
 
 
 
@@ -700,7 +702,9 @@ Kumain silang lahat at nabusog. Pagkatapos, tinipon nila ang natirang pagkain, a
 
 
 
-Ang bilang ng mga lalaking kumain ay mga 5,000, maliban pa sa mga babae at mga bata. ## Lumakad si Jesus sa Ibabaw ng Tubig 
+Ang bilang ng mga lalaking kumain ay mga 5,000, maliban pa sa mga babae at mga bata.
+
+## Lumakad si Jesus sa Ibabaw ng Tubig 
 
 
 

@@ -61,7 +61,9 @@ And He said to them, "You are those who justify yourselves before men, but God k
 And it is easier for heaven and earth to pass away than for one tittle of the law to fail. 
 
 ###### 18 
-"Whoever divorces his wife and marries another commits adultery; and whoever marries her who is divorced from _her_ husband commits adultery. ## The Rich Man and Lazarus 
+"Whoever divorces his wife and marries another commits adultery; and whoever marries her who is divorced from _her_ husband commits adultery.
+
+## The Rich Man and Lazarus 
 
 ###### 19 
 "There was a certain rich man who was clothed in purple and fine linen and fared sumptuously every day. 

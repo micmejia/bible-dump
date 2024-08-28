@@ -72,7 +72,9 @@ Ito ang mensahe ng Panginoon tungkol sa Samaria at Jerusalem. Ipinahayag niya it
 
 
 
-Makinig kayong mabuti, lahat kayong mga mamamayan sa buong mundo. Sapagkat sasaksi ang Panginoong Dios laban sa inyo mula sa kanyang banal na templo. ## Parurusahan ang Israel at Juda 
+Makinig kayong mabuti, lahat kayong mga mamamayan sa buong mundo. Sapagkat sasaksi ang Panginoong Dios laban sa inyo mula sa kanyang banal na templo.
+
+## Parurusahan ang Israel at Juda 
 
 
 

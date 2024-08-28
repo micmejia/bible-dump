@@ -40,7 +40,9 @@ For he and all who were with him were astonished at the catch of fish which they
 and so also _were_ James and John, the sons of Zebedee, who were partners with Simon. And Jesus said to Simon, "Do not be afraid. From now on you will catch men." 
 
 ###### 11 
-So when they had brought their boats to land, they forsook all and followed Him. ## Jesus Cleanses a Leper 
+So when they had brought their boats to land, they forsook all and followed Him.
+
+## Jesus Cleanses a Leper 
 
 ###### 12 
 And it happened when He was in a certain city, that behold, a man who was full of leprosy saw Jesus; and he fell on _his_ face and implored Him, saying, "Lord, if You are willing, You can make me clean." 
@@ -55,7 +57,9 @@ And He charged him to tell no one, "But go and show yourself to the priest, and 
 However, the report went around concerning Him all the more; and great multitudes came together to hear, and to be healed by Him of their infirmities. 
 
 ###### 16 
-So He Himself _often_ withdrew into the wilderness and prayed. ## Jesus Forgives and Heals a Paralytic 
+So He Himself _often_ withdrew into the wilderness and prayed.
+
+## Jesus Forgives and Heals a Paralytic 
 
 ###### 17 
 Now it happened on a certain day, as He was teaching, that there were Pharisees and teachers of the law sitting by, who had come out of every town of Galilee, Judea, and Jerusalem. And the power of the Lord was _present_ to heal them. 

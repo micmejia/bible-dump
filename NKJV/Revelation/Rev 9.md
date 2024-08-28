@@ -43,7 +43,9 @@ They had tails like scorpions, and there were stings in their tails. Their power
 And they had as king over them the angel of the bottomless pit, whose name in Hebrew _is_ Abaddon, but in Greek he has the name Apollyon. 
 
 ###### 12 
-One woe is past. Behold, still two more woes are coming after these things. ## Sixth Trumpet: The Angels from the Euphrates 
+One woe is past. Behold, still two more woes are coming after these things.
+
+## Sixth Trumpet: The Angels from the Euphrates 
 
 ###### 13 
 Then the sixth angel sounded: And I heard a voice from the four horns of the golden altar which is before God, 

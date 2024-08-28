@@ -172,7 +172,9 @@ At <i class="trans-change">sa pamamagitan ng mga kautusan niya,_ pagkakasunduin 
 
 
 
-Halikayo, mga lahi ni Jacob, mamuhay tayo sa katotohanan, na ibinigay sa atin ng Panginoon. ## Ang Araw na Magpaparusa ang Dios 
+Halikayo, mga lahi ni Jacob, mamuhay tayo sa katotohanan, na ibinigay sa atin ng Panginoon.
+
+## Ang Araw na Magpaparusa ang Dios 
 
 
 

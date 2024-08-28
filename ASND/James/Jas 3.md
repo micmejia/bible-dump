@@ -403,7 +403,9 @@ Maaari bang lumabas sa iisang bukal ang matabang na tubig at ang maalat na tubig
 
 
 
-Mga kapatid, hindi rin maaaring mamunga ng olibo ang puno ng igos o ng igos ang ubas. Hindi rin maaaring makakuha ng tubig-tabang sa tubig-alat. ## Ang Karunungang Mula sa Dios 
+Mga kapatid, hindi rin maaaring mamunga ng olibo ang puno ng igos o ng igos ang ubas. Hindi rin maaaring makakuha ng tubig-tabang sa tubig-alat.
+
+## Ang Karunungang Mula sa Dios 
 
 
 

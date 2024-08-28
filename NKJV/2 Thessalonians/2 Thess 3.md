@@ -21,7 +21,9 @@ But the Lord is faithful, who will establish you and guard _you_ from the evil o
 And we have confidence in the Lord concerning you, both that you do and will do the things we command you. 
 
 ###### 5 
-Now may the Lord direct your hearts into the love of God and into the patience of Christ. ## Warning Against Idleness 
+Now may the Lord direct your hearts into the love of God and into the patience of Christ.
+
+## Warning Against Idleness 
 
 ###### 6 
 But we command you, brethren, in the name of our Lord Jesus Christ, that you withdraw from every brother who walks disorderly and not according to the tradition which he received from us. 
@@ -51,7 +53,9 @@ But _as for_ you, brethren, do not grow weary _in_ doing good.
 And if anyone does not obey our word in this epistle, note that person and do not keep company with him, that he may be ashamed. 
 
 ###### 15 
-Yet do not count _him_ as an enemy, but admonish _him_ as a brother. ## Benediction 
+Yet do not count _him_ as an enemy, but admonish _him_ as a brother.
+
+## Benediction 
 
 ###### 16 
 Now may the Lord of peace Himself give you peace always in every way. The Lord _be_ with you all. 

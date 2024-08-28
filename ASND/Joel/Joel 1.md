@@ -39,7 +39,9 @@ next: ['Joel 2']
 
 
 
-Ito ang mensahe ng Panginoon na ipinahayag niya kay Joel na anak ni Petuel. ## Sinira ng mga Balang ang mga Tanim 
+Ito ang mensahe ng Panginoon na ipinahayag niya kay Joel na anak ni Petuel.
+
+## Sinira ng mga Balang ang mga Tanim 
 
 
 
@@ -402,7 +404,9 @@ Kayong mga magsasaka, dapat kayong malungkot! Kayong mga tagapangalaga ng ubasan
 
 
 
-Nalanta ang mga tanim na ubas at ang lahat ng puno, pati na ang mga igos, pomegranata, palma, at mansanas. Talagang nawala ang kaligayahan ng mga tao. ## Panawagan ng Pagsisisi 
+Nalanta ang mga tanim na ubas at ang lahat ng puno, pati na ang mga igos, pomegranata, palma, at mansanas. Talagang nawala ang kaligayahan ng mga tao.
+
+## Panawagan ng Pagsisisi 
 
 
 

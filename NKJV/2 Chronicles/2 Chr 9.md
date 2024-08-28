@@ -43,7 +43,9 @@ Also, the servants of Hiram and the servants of Solomon, who brought gold from O
 And the king made walkways _of_ the algum wood for the house of the Lord and for the king's house, also harps and stringed instruments for singers; and there were none such _as these_ seen before in the land of Judah. 
 
 ###### 12 
-Now King Solomon gave to the queen of Sheba all she desired, whatever she asked, _much more_ than she had brought to the king. So she turned and went to her own country, she and her servants. ## Solomon's Great Wealth 
+Now King Solomon gave to the queen of Sheba all she desired, whatever she asked, _much more_ than she had brought to the king. So she turned and went to her own country, she and her servants.
+
+## Solomon's Great Wealth 
 
 ###### 13 
 The weight of gold that came to Solomon yearly was six hundred and sixty-six talents of gold, 
@@ -91,7 +93,9 @@ So he reigned over all the kings from the River to the land of the Philistines, 
 The king made silver _as common_ in Jerusalem as stones, and he made cedar trees as abundant as the sycamores which _are_ in the lowland. 
 
 ###### 28 
-And they brought horses to Solomon from Egypt and from all lands. ## Death of Solomon 
+And they brought horses to Solomon from Egypt and from all lands.
+
+## Death of Solomon 
 
 ###### 29 
 Now the rest of the acts of Solomon, first and last, _are_ they not written in the book of Nathan the prophet, in the prophecy of Ahijah the Shilonite, and in the visions of Iddo the seer concerning Jeroboam the son of Nebat? 

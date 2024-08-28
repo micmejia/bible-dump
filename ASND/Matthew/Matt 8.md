@@ -436,7 +436,9 @@ Ngunit maraming Judio, na paghaharian sana ng Dios, ang itatapon sa matinding ka
 
 
 
-At sinabi ni Jesus sa kapitan, "Umuwi ka na. Mangyayari ang hinihiling mo ayon sa iyong pananampalataya." At nang oras ding iyon ay gumaling ang utusan ng kapitan. ## Maraming Pinagaling si Jesus 
+At sinabi ni Jesus sa kapitan, "Umuwi ka na. Mangyayari ang hinihiling mo ayon sa iyong pananampalataya." At nang oras ding iyon ay gumaling ang utusan ng kapitan.
+
+## Maraming Pinagaling si Jesus 
 
 
 

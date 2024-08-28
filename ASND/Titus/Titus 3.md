@@ -369,7 +369,9 @@ Pagsabihan mo ang taong sumisira sa inyong pagkakaisa. Itakwil mo siya kung pagk
 
 
 
-Alam nʼyo na masama ang ganyang tao, at ang kanyang mga kasalanan mismo ang nagpapatunay na parurusahan siya. ## Mga Huling Bilin 
+Alam nʼyo na masama ang ganyang tao, at ang kanyang mga kasalanan mismo ang nagpapatunay na parurusahan siya.
+
+## Mga Huling Bilin 
 
 
 

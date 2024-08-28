@@ -105,7 +105,9 @@ Inialay ni Cristo ang sarili niya para sa mga kasalanan natin, ayon sa kalooban 
 
 
 
-Purihin natin ang Dios magpakailanman! Amen. ## Iisa Lang ang Magandang Balita 
+Purihin natin ang Dios magpakailanman! Amen.
+
+## Iisa Lang ang Magandang Balita 
 
 
 
@@ -270,7 +272,9 @@ Sinabi na namin sa inyo noon at muli kong sasabihin: Kung may mangangaral sa iny
 
 
 
-Huwag ninyong isipin na ang nais ko ay malugod sa akin ang tao. <i class="trans-change">Hindi!_ Ang nais ko ay malugod sa akin ang Dios. Kung ang ikalulugod ng tao ang hinahanap ko, hindi ako tunay na lingkod ni Cristo. ## Paano Naging Apostol si Pablo 
+Huwag ninyong isipin na ang nais ko ay malugod sa akin ang tao. <i class="trans-change">Hindi!_ Ang nais ko ay malugod sa akin ang Dios. Kung ang ikalulugod ng tao ang hinahanap ko, hindi ako tunay na lingkod ni Cristo.
+
+## Paano Naging Apostol si Pablo 
 
 
 

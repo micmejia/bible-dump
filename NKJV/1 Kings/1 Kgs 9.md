@@ -49,7 +49,9 @@ Then Hiram went from Tyre to see the cities which Solomon had given him, but the
 So he said, "What _kind of_ cities _are_ these which you have given me, my brother?" And he called them the land of Cabul, as they are to this day. 
 
 ###### 14 
-Then Hiram sent the king one hundred and twenty talents of gold. ## Solomon's Additional Achievements 
+Then Hiram sent the king one hundred and twenty talents of gold.
+
+## Solomon's Additional Achievements 
 
 ###### 15 
 And this _is_ the reason for the labor force which King Solomon raised: to build the house of the Lord, his own house, the Millo, the wall of Jerusalem, Hazor, Megiddo, and Gezer. 

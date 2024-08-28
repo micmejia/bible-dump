@@ -205,7 +205,9 @@ Itong mga huwad at sinungaling na propetaʼy makamundo, kaya ang mga bagay ng mu
 
 
 
-Ngunit tayo naman ay sa Dios. Ang mga kumikilala sa Dios ay nakikinig sa mga itinuturo natin, ngunit ang mga hindi kumikilala sa Dios ay hindi nakikinig sa atin. Sa gayong paraan natin makikilala kung sino ang nangangaral ng mula sa Espiritu ng katotohanan o sa espiritu ng kasinungalingan. ## Ang Dios ay Pag-ibig 
+Ngunit tayo naman ay sa Dios. Ang mga kumikilala sa Dios ay nakikinig sa mga itinuturo natin, ngunit ang mga hindi kumikilala sa Dios ay hindi nakikinig sa atin. Sa gayong paraan natin makikilala kung sino ang nangangaral ng mula sa Espiritu ng katotohanan o sa espiritu ng kasinungalingan.
+
+## Ang Dios ay Pag-ibig 
 
 
 

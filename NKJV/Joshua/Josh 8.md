@@ -94,7 +94,9 @@ Only the livestock and the spoil of that city Israel took as booty for themselve
 So Joshua burned Ai and made it a heap forever, a desolation to this day. 
 
 ###### 29 
-And the king of Ai he hanged on a tree until evening. And as soon as the sun was down, Joshua commanded that they should take his corpse down from the tree, cast it at the entrance of the gate of the city, and raise over it a great heap of stones _that remains_ to this day. ## Joshua Renews the Covenant 
+And the king of Ai he hanged on a tree until evening. And as soon as the sun was down, Joshua commanded that they should take his corpse down from the tree, cast it at the entrance of the gate of the city, and raise over it a great heap of stones _that remains_ to this day.
+
+## Joshua Renews the Covenant 
 
 ###### 30 
 Now Joshua built an altar to the Lord God of Israel in Mount Ebal, 

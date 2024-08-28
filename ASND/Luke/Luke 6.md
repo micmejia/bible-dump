@@ -370,7 +370,9 @@ Tiningnan silang lahat ni Jesus, at pagkatapos ay sinabi niya sa lalaki, "Iunat 
 
 
 
-Pero galit na galit ang mga tagapagturo ng Kautusan at mga Pariseo, kaya pinag-usapan nila kung ano ang dapat gawin kay Jesus. ## Pumili si Jesus ng Labindalawang Apostol 
+Pero galit na galit ang mga tagapagturo ng Kautusan at mga Pariseo, kaya pinag-usapan nila kung ano ang dapat gawin kay Jesus.
+
+## Pumili si Jesus ng Labindalawang Apostol 
 
 
 
@@ -535,7 +537,9 @@ Mateo, Tomas, Santiago na anak ni Alfeus, Simon na makabayan,
 
 
 
-Judas na anak ng isa pang Santiago, at si Judas Iscariote na siyang nagtraydor kay Jesus. ## Nangaral at Nagpagaling si Jesus 
+Judas na anak ng isa pang Santiago, at si Judas Iscariote na siyang nagtraydor kay Jesus.
+
+## Nangaral at Nagpagaling si Jesus 
 
 
 
@@ -634,7 +638,9 @@ Pumunta sila roon upang makinig sa kanya at mapagaling sa kanilang mga sakit. Pi
 
 
 
-Sinikap ng lahat ng tao roon na mahipo siya, dahil may kapangyarihang nagmumula sa kanya na nakapagpapagaling sa lahat. ## Ang Mapalad at ang Nakakaawa 
+Sinikap ng lahat ng tao roon na mahipo siya, dahil may kapangyarihang nagmumula sa kanya na nakapagpapagaling sa lahat.
+
+## Ang Mapalad at ang Nakakaawa 
 
 
 

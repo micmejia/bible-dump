@@ -39,7 +39,9 @@ next: ['Jas 2']
 
 
 
-<i class="trans-change">Mula kay_ Santiago na lingkod ng Dios at ng Panginoong Jesu-Cristo. <i class="trans-change">Mahal kong_ mga mananampalataya na nagsipangalat saan man sa mundo. ## Ang Pananampalataya at Karunungan 
+<i class="trans-change">Mula kay_ Santiago na lingkod ng Dios at ng Panginoong Jesu-Cristo. <i class="trans-change">Mahal kong_ mga mananampalataya na nagsipangalat saan man sa mundo.
+
+## Ang Pananampalataya at Karunungan 
 
 
 
@@ -270,7 +272,9 @@ Ang ganitong tao ay hindi dapat umasa na may matatanggap mula sa Panginoon
 
 
 
-dahil nagdadalawang-isip siya at walang katiyakan sa mga ginagawa niya. ## Mga Mahihirap at Mayayaman 
+dahil nagdadalawang-isip siya at walang katiyakan sa mga ginagawa niya.
+
+## Mga Mahihirap at Mayayaman 
 
 
 
@@ -369,7 +373,9 @@ Ang mga mayayaman naman <i class="trans-change">na kapatid kay Cristo_ ay dapat 
 
 
 
-Natutuyo ang mga damo sa matinding sikat ng araw, nalalagas ang mga bulaklak nito, at kumukupas ang ganda. Ganoon din naman ang isang mayaman, mamamatay siya sa kasagsagan ng paghahanapbuhay niya. ## Mga Pagsubok at Tukso 
+Natutuyo ang mga damo sa matinding sikat ng araw, nalalagas ang mga bulaklak nito, at kumukupas ang ganda. Ganoon din naman ang isang mayaman, mamamatay siya sa kasagsagan ng paghahanapbuhay niya.
+
+## Mga Pagsubok at Tukso 
 
 
 
@@ -600,7 +606,9 @@ Lahat ng mabubuti at angkop na kaloob ay nanggagaling sa Dios na siyang lumikha 
 
 
 
-Ayon sa kanyang kalooban, ginawa niya tayong mga anak niya sa pamamagitan ng pagkilala natin sa katotohanan, upang maging higit tayo sa lahat ng nilikha niya. ## Pagdinig at Pagsunod 
+Ayon sa kanyang kalooban, ginawa niya tayong mga anak niya sa pamamagitan ng pagkilala natin sa katotohanan, upang maging higit tayo sa lahat ng nilikha niya.
+
+## Pagdinig at Pagsunod 
 
 
 

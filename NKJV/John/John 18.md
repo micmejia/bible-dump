@@ -49,7 +49,9 @@ Then the detachment _of troops_ and the captain and the officers of the Jews arr
 And they led Him away to Annas first, for he was the father-in-law of Caiaphas who was high priest that year. 
 
 ###### 14 
-Now it was Caiaphas who advised the Jews that it was expedient that one man should die for the people. ## Peter Denies Jesus 
+Now it was Caiaphas who advised the Jews that it was expedient that one man should die for the people.
+
+## Peter Denies Jesus 
 
 ###### 15 
 And Simon Peter followed Jesus, and so _did_ another disciple. Now that disciple was known to the high priest, and went with Jesus into the courtyard of the high priest. 
@@ -61,7 +63,9 @@ But Peter stood at the door outside. Then the other disciple, who was known to t
 Then the servant girl who kept the door said to Peter, "You are not also _one_ of this Man's disciples, are you?" He said, "I am not." 
 
 ###### 18 
-Now the servants and officers who had made a fire of coals stood there, for it was cold, and they warmed themselves. And Peter stood with them and warmed himself. ## Jesus Questioned by the High Priest 
+Now the servants and officers who had made a fire of coals stood there, for it was cold, and they warmed themselves. And Peter stood with them and warmed himself.
+
+## Jesus Questioned by the High Priest 
 
 ###### 19 
 The high priest then asked Jesus about His disciples and His doctrine. 
@@ -79,7 +83,9 @@ And when He had said these things, one of the officers who stood by struck Jesus
 Jesus answered him, "If I have spoken evil, bear witness of the evil; but if well, why do you strike Me?" 
 
 ###### 24 
-Then Annas sent Him bound to Caiaphas the high priest. ## Peter Denies Twice More 
+Then Annas sent Him bound to Caiaphas the high priest.
+
+## Peter Denies Twice More 
 
 ###### 25 
 Now Simon Peter stood and warmed himself. Therefore they said to him, "You are not also _one_ of His disciples, are you?" He denied _it_ and said, "I am not!" 
@@ -88,7 +94,9 @@ Now Simon Peter stood and warmed himself. Therefore they said to him, "You are n
 One of the servants of the high priest, a relative _of him_ whose ear Peter cut off, said, "Did I not see you in the garden with Him?" 
 
 ###### 27 
-Peter then denied again; and immediately a rooster crowed. ## In Pilate's Court 
+Peter then denied again; and immediately a rooster crowed.
+
+## In Pilate's Court 
 
 ###### 28 
 Then they led Jesus from Caiaphas to the Praetorium, and it was early morning. But they themselves did not go into the Praetorium, lest they should be defiled, but that they might eat the Passover. 
@@ -121,7 +129,9 @@ Jesus answered, "My kingdom is not of this world. If My kingdom were of this wor
 Pilate therefore said to Him, "Are You a king then?" Jesus answered, "You say _rightly_ that I am a king. For this cause I was born, and for this cause I have come into the world, that I should bear witness to the truth. Everyone who is of the truth hears My voice." 
 
 ###### 38 
-Pilate said to Him, "What is truth?" And when he had said this, he went out again to the Jews, and said to them, "I find no fault in Him at all. ## Taking the Place of Barabbas 
+Pilate said to Him, "What is truth?" And when he had said this, he went out again to the Jews, and said to them, "I find no fault in Him at all.
+
+## Taking the Place of Barabbas 
 
 ###### 39 
 "But you have a custom that I should release someone to you at the Passover. Do you therefore want me to release to you the King of the Jews?" 

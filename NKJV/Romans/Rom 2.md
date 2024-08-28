@@ -55,7 +55,9 @@ for when Gentiles, who do not have the law, by nature do the things in the law, 
 who show the work of the law written in their hearts, their conscience also bearing witness, and between themselves _their_ thoughts accusing or else excusing _them_) 
 
 ###### 16 
-in the day when God will judge the secrets of men by Jesus Christ, according to my gospel. ## The Jews Guilty as the Gentiles 
+in the day when God will judge the secrets of men by Jesus Christ, according to my gospel.
+
+## The Jews Guilty as the Gentiles 
 
 ###### 17 
 Indeed you are called a Jew, and rest on the law, and make your boast in God, 
@@ -79,7 +81,9 @@ You who say, "Do not commit adultery," do you commit adultery? You who abhor ido
 You who make your boast in the law, do you dishonor God through breaking the law? 
 
 ###### 24 
-For "the name of God is blasphemed among the Gentiles because of you," as it is written. ## Circumcision of No Avail 
+For "the name of God is blasphemed among the Gentiles because of you," as it is written.
+
+## Circumcision of No Avail 
 
 ###### 25 
 For circumcision is indeed profitable if you keep the law; but if you are a breaker of the law, your circumcision has become uncircumcision. 

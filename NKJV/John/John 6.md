@@ -70,7 +70,9 @@ So when they had rowed about three or four miles, they saw Jesus walking on the 
 But He said to them, "It is I; do not be afraid." 
 
 ###### 21 
-Then they willingly received Him into the boat, and immediately the boat was at the land where they were going. ## The Bread from Heaven 
+Then they willingly received Him into the boat, and immediately the boat was at the land where they were going.
+
+## The Bread from Heaven 
 
 ###### 22 
 On the following day, when the people who were standing on the other side of the sea saw that there was no other boat there, except that one which His disciples had entered, and that Jesus had not entered the boat with His disciples, but His disciples had gone away alone-- 
@@ -184,7 +186,9 @@ As the living Father sent Me, and I live because of the Father, so he who feeds 
 This is the bread which came down from heaven--not as your fathers ate the manna, and are dead. He who eats this bread will live forever." 
 
 ###### 59 
-These things He said in the synagogue as He taught in Capernaum. ## Many Disciples Turn Away 
+These things He said in the synagogue as He taught in Capernaum.
+
+## Many Disciples Turn Away 
 
 ###### 60 
 Therefore many of His disciples, when they heard _this,_ said, "This is a hard saying; who can understand it?" 

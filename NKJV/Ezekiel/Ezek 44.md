@@ -34,7 +34,9 @@ When you brought in foreigners, uncircumcised in heart and uncircumcised in fles
 And you have not kept charge of My holy things, but you have set _others_ to keep charge of My sanctuary for you." 
 
 ###### 9 
-Thus says the Lord God: "No foreigner, uncircumcised in heart or uncircumcised in flesh, shall enter My sanctuary, including any foreigner who _is_ among the children of Israel. ## Laws Governing Priests 
+Thus says the Lord God: "No foreigner, uncircumcised in heart or uncircumcised in flesh, shall enter My sanctuary, including any foreigner who _is_ among the children of Israel.
+
+## Laws Governing Priests 
 
 ###### 10 
 "And the Levites who went far from Me, when Israel went astray, who strayed away from Me after their idols, they shall bear their iniquity. 

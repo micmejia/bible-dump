@@ -502,7 +502,9 @@ Nang makita ng mga tao ang himalang ginawa ni Jesus, sinabi nila, "Siguradong it
 
 
 
-Alam ni Jesus na balak ng mga taong kunin siya at sapilitang gawing hari. Kaya umalis siya roon at muling umakyat nang mag-isa sa bundok. ## Lumakad si Jesus sa Ibabaw ng Tubig 
+Alam ni Jesus na balak ng mga taong kunin siya at sapilitang gawing hari. Kaya umalis siya roon at muling umakyat nang mag-isa sa bundok.
+
+## Lumakad si Jesus sa Ibabaw ng Tubig 
 
 
 
@@ -700,7 +702,9 @@ Pero sinabi sa kanila ni Jesus, "Ako ito! Huwag kayong matakot."
 
 
 
-Kaya pinasakay nila si Jesus sa bangka, at nakarating agad sila sa kanilang pupuntahan. ## Hinanap ng mga Tao si Jesus <sup class="versenum">22-23</sup>Kinabukasan, naroon pa ang mga tao sa kabila ng lawa, kung saan sila kumain ng tinapay matapos magpasalamat ng Panginoon. Alam nilang iisa lang ang bangka roon nang gabing iyon, at iyon ang sinakyan ng mga tagasunod ni Jesus. Alam din nilang hindi kasamang umalis si Jesus ng mga tagasunod niya. Samantala, may dumating na mga bangka galing sa Tiberias at dumaong malapit sa kinaroroonan ng mga tao. 
+Kaya pinasakay nila si Jesus sa bangka, at nakarating agad sila sa kanilang pupuntahan.
+
+## Hinanap ng mga Tao si Jesus <sup class="versenum">22-23</sup>Kinabukasan, naroon pa ang mga tao sa kabila ng lawa, kung saan sila kumain ng tinapay matapos magpasalamat ng Panginoon. Alam nilang iisa lang ang bangka roon nang gabing iyon, at iyon ang sinakyan ng mga tagasunod ni Jesus. Alam din nilang hindi kasamang umalis si Jesus ng mga tagasunod niya. Samantala, may dumating na mga bangka galing sa Tiberias at dumaong malapit sa kinaroroonan ng mga tao. 
 
 
 
@@ -733,7 +737,9 @@ Kaya pinasakay nila si Jesus sa bangka, at nakarating agad sila sa kanilang pupu
 
 
 
-Nang mapansin ng mga tao na wala na roon si Jesus at ang mga tagasunod niya, sumakay sila sa mga bangkang iyon at pumunta sa Capernaum para hanapin si Jesus. ## Ang Pagkaing Nagbibigay-buhay 
+Nang mapansin ng mga tao na wala na roon si Jesus at ang mga tagasunod niya, sumakay sila sa mga bangkang iyon at pumunta sa Capernaum para hanapin si Jesus.
+
+## Ang Pagkaing Nagbibigay-buhay 
 
 
 
@@ -1888,7 +1894,9 @@ Ako ang tinapay na mula sa langit. Hindi ito tulad ng 'manna' na kinain ng inyon
 
 
 
-Sinabi ni Jesus ang mga bagay na ito nang nangangaral siya sa sambahan ng mga Judio sa Capernaum. ## Ang mga Salitang Nagbibigay ng Buhay na Walang Hanggan 
+Sinabi ni Jesus ang mga bagay na ito nang nangangaral siya sa sambahan ng mga Judio sa Capernaum.
+
+## Ang mga Salitang Nagbibigay ng Buhay na Walang Hanggan 
 
 
 

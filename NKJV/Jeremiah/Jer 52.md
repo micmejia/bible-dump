@@ -39,7 +39,9 @@ So they took the king and brought him up to the king of Babylon at Riblah in the
 Then the king of Babylon killed the sons of Zedekiah before his eyes. And he killed all the princes of Judah in Riblah. 
 
 ###### 11 
-He also put out the eyes of Zedekiah; and the king of Babylon bound him in bronze fetters, took him to Babylon, and put him in prison till the day of his death. ## The Temple and City Plundered and Burned 
+He also put out the eyes of Zedekiah; and the king of Babylon bound him in bronze fetters, took him to Babylon, and put him in prison till the day of his death.
+
+## The Temple and City Plundered and Burned 
 
 ###### 12 
 Now in the fifth month, on the tenth _day_ of the month (which _was_ the nineteenth year of King Nebuchadnezzar king of Babylon), Nebuzaradan, the captain of the guard, _who_ served the king of Babylon, came to Jerusalem. 
@@ -75,7 +77,9 @@ Now _concerning_ the pillars: the height of one pillar _was_ eighteen cubits, a 
 A capital of bronze _was_ on it; and the height of one capital _was_ five cubits, with a network and pomegranates all around the capital, all of bronze. The second pillar, with pomegranates was the same. 
 
 ###### 23 
-There were ninety-six pomegranates on the sides; all the pomegranates, all around on the network, _were_ one hundred. ## The People Taken Captive to Babylonia 
+There were ninety-six pomegranates on the sides; all the pomegranates, all around on the network, _were_ one hundred.
+
+## The People Taken Captive to Babylonia 
 
 ###### 24 
 The captain of the guard took Seraiah the chief priest, Zephaniah the second priest, and the three doorkeepers. 
@@ -96,7 +100,9 @@ These _are_ the people whom Nebuchadnezzar carried away captive: in the seventh 
 in the eighteenth year of Nebuchadnezzar he carried away captive from Jerusalem eight hundred and thirty-two persons; 
 
 ###### 30 
-in the twenty-third year of Nebuchadnezzar, Nebuzaradan the captain of the guard carried away captive of the Jews seven hundred and forty-five persons. All the persons _were_ four thousand six hundred. ## Jehoiachin Released from Prison 
+in the twenty-third year of Nebuchadnezzar, Nebuzaradan the captain of the guard carried away captive of the Jews seven hundred and forty-five persons. All the persons _were_ four thousand six hundred.
+
+## Jehoiachin Released from Prison 
 
 ###### 31 
 Now it came to pass in the thirty-seventh year of the captivity of Jehoiachin king of Judah, in the twelfth month, on the twenty-fifth _day_ of the month, _that_ Evil-Merodach king of Babylon, in the _first_ year of his reign, lifted up the head of Jehoiachin king of Judah and brought him out of prison. 

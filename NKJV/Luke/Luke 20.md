@@ -64,7 +64,9 @@ Then He looked at them and said, "What then is this that is written: 'The stone 
 Whoever falls on that stone will be broken; but on whomever it falls, it will grind him to powder." 
 
 ###### 19 
-And the chief priests and the scribes that very hour sought to lay hands on Him, but they feared the people--for they knew He had spoken this parable against them. ## The Pharisees: Is It Lawful to Pay Taxes to Caesar? 
+And the chief priests and the scribes that very hour sought to lay hands on Him, but they feared the people--for they knew He had spoken this parable against them.
+
+## The Pharisees: Is It Lawful to Pay Taxes to Caesar? 
 
 ###### 20 
 So they watched _Him,_ and sent spies who pretended to be righteous, that they might seize on His words, in order to deliver Him to the power and the authority of the governor. 
@@ -85,7 +87,9 @@ Show Me a denarius. Whose image and inscription does it have?" They answered and
 And He said to them, "Render therefore to Caesar the things that are Caesar's, and to God the things that are God's." 
 
 ###### 26 
-But they could not catch Him in His words in the presence of the people. And they marveled at His answer and kept silent. ## The Sadducees: What About the Resurrection? 
+But they could not catch Him in His words in the presence of the people. And they marveled at His answer and kept silent.
+
+## The Sadducees: What About the Resurrection? 
 
 ###### 27 
 Then some of the Sadducees, who deny that there is a resurrection, came to _Him_ and asked Him, 
@@ -127,7 +131,9 @@ For He is not the God of the dead but of the living, for all live to Him."
 Then some of the scribes answered and said, "Teacher, You have spoken well." 
 
 ###### 40 
-But after that they dared not question Him anymore. ## Jesus: How Can David Call His Descendant Lord? 
+But after that they dared not question Him anymore.
+
+## Jesus: How Can David Call His Descendant Lord? 
 
 ###### 41 
 And He said to them, "How can they say that the Christ is the Son of David? 

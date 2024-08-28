@@ -64,7 +64,9 @@ And you will be hated by all for My name's sake.
 But not a hair of your head shall be lost. 
 
 ###### 19 
-By your patience possess your souls. ## The Destruction of Jerusalem 
+By your patience possess your souls.
+
+## The Destruction of Jerusalem 
 
 ###### 20 
 "But when you see Jerusalem surrounded by armies, then know that its desolation is near. 
@@ -79,7 +81,9 @@ For these are the days of vengeance, that all things which are written may be fu
 But woe to those who are pregnant and to those who are nursing babies in those days! For there will be great distress in the land and wrath upon this people. 
 
 ###### 24 
-And they will fall by the edge of the sword, and be led away captive into all nations. And Jerusalem will be trampled by Gentiles until the times of the Gentiles are fulfilled. ## The Coming of the Son of Man 
+And they will fall by the edge of the sword, and be led away captive into all nations. And Jerusalem will be trampled by Gentiles until the times of the Gentiles are fulfilled.
+
+## The Coming of the Son of Man 
 
 ###### 25 
 "And there will be signs in the sun, in the moon, and in the stars; and on the earth distress of nations, with perplexity, the sea and the waves roaring; 
@@ -106,7 +110,9 @@ So you also, when you see these things happening, know that the kingdom of God i
 Assuredly, I say to you, this generation will by no means pass away till all things take place. 
 
 ###### 33 
-Heaven and earth will pass away, but My words will by no means pass away. ## The Importance of Watching 
+Heaven and earth will pass away, but My words will by no means pass away.
+
+## The Importance of Watching 
 
 ###### 34 
 "But take heed to yourselves, lest your hearts be weighed down with carousing, drunkenness, and cares of this life, and that Day come on you unexpectedly. 

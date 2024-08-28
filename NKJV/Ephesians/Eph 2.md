@@ -37,7 +37,9 @@ For by grace you have been saved through faith, and that not of yourselves; _it 
 not of works, lest anyone should boast. 
 
 ###### 10 
-For we are His workmanship, created in Christ Jesus for good works, which God prepared beforehand that we should walk in them. ## Brought Near by His Blood 
+For we are His workmanship, created in Christ Jesus for good works, which God prepared beforehand that we should walk in them.
+
+## Brought Near by His Blood 
 
 ###### 11 
 Therefore remember that you, once Gentiles in the flesh--who are called Uncircumcision by what is called the Circumcision made in the flesh by hands-- 
@@ -46,7 +48,9 @@ Therefore remember that you, once Gentiles in the flesh--who are called Uncircum
 that at that time you were without Christ, being aliens from the commonwealth of Israel and strangers from the covenants of promise, having no hope and without God in the world. 
 
 ###### 13 
-But now in Christ Jesus you who once were far off have been brought near by the blood of Christ. ## Christ Our Peace 
+But now in Christ Jesus you who once were far off have been brought near by the blood of Christ.
+
+## Christ Our Peace 
 
 ###### 14 
 For He Himself is our peace, who has made both one, and has broken down the middle wall of separation, 
@@ -61,7 +65,9 @@ and that He might reconcile them both to God in one body through the cross, ther
 And He came and preached peace to you who were afar off and to those who were near. 
 
 ###### 18 
-For through Him we both have access by one Spirit to the Father. ## Christ Our Cornerstone 
+For through Him we both have access by one Spirit to the Father.
+
+## Christ Our Cornerstone 
 
 ###### 19 
 Now, therefore, you are no longer strangers and foreigners, but fellow citizens with the saints and members of the household of God, 

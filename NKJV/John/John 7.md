@@ -34,7 +34,9 @@ The world cannot hate you, but it hates Me because I testify of it that its work
 You go up to this feast. I am not yet going up to this feast, for My time has not yet fully come." 
 
 ###### 9 
-When He had said these things to them, He remained in Galilee. ## The Heavenly Scholar 
+When He had said these things to them, He remained in Galilee.
+
+## The Heavenly Scholar 
 
 ###### 10 
 But when His brothers had gone up, then He also went up to the feast, not openly, but as it were in secret. 
@@ -124,7 +126,9 @@ On the last day, that great _day_ of the feast, Jesus stood and cried out, sayin
 He who believes in Me, as the Scripture has said, out of his heart will flow rivers of living water." 
 
 ###### 39 
-But this He spoke concerning the Spirit, whom those believing in Him would receive; for the Holy Spirit was not yet _given,_ because Jesus was not yet glorified. ## Who Is He? 
+But this He spoke concerning the Spirit, whom those believing in Him would receive; for the Holy Spirit was not yet _given,_ because Jesus was not yet glorified.
+
+## Who Is He? 
 
 ###### 40 
 Therefore many from the crowd, when they heard this saying, said, "Truly this is the Prophet." 
@@ -139,7 +143,9 @@ Has not the Scripture said that the Christ comes from the seed of David and from
 So there was a division among the people because of Him. 
 
 ###### 44 
-Now some of them wanted to take Him, but no one laid hands on Him. ## Rejected by the Authorities 
+Now some of them wanted to take Him, but no one laid hands on Him.
+
+## Rejected by the Authorities 
 
 ###### 45 
 Then the officers came to the chief priests and Pharisees, who said to them, "Why have you not brought Him?" 

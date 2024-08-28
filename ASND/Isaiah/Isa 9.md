@@ -238,7 +238,9 @@ Ipapanganak ang isang batang lalaki na maghahari sa amin. Tatawagin siyang, "Kah
 
 
 
-Hindi magwawakas ang pag-unlad ng kanyang pamamahala, at maghahari ang kapayapaan. Siya ang magmamana ng kaharian ni David. Patatatagin niya ito at paghahariang may katarungan at katuwiran magpakailanman. Sisiguraduhin ng Panginoong Makapangyarihan na matutupad ito. ## Ang Galit ng Dios sa Israel 
+Hindi magwawakas ang pag-unlad ng kanyang pamamahala, at maghahari ang kapayapaan. Siya ang magmamana ng kaharian ni David. Patatatagin niya ito at paghahariang may katarungan at katuwiran magpakailanman. Sisiguraduhin ng Panginoong Makapangyarihan na matutupad ito.
+
+## Ang Galit ng Dios sa Israel 
 
 
 

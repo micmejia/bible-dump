@@ -303,7 +303,9 @@ Bukod diyan, mga kapatid, lagi ninyong isaisip ang mga bagay na mabuti at kapuri
 
 
 
-Ipamuhay nʼyo ang lahat ng natutunan nʼyo at tinanggap mula sa akin, sa salita at sa gawa, at sasainyo ang Dios na nagbibigay ng kapayapaan. ## Ang Pasasalamat ni Pablo sa Kanilang Tulong 
+Ipamuhay nʼyo ang lahat ng natutunan nʼyo at tinanggap mula sa akin, sa salita at sa gawa, at sasainyo ang Dios na nagbibigay ng kapayapaan.
+
+## Ang Pasasalamat ni Pablo sa Kanilang Tulong 
 
 
 
@@ -666,7 +668,9 @@ At dahil kayoʼy nakay Cristo Jesus, ibibigay sa inyo ng aking Dios ang lahat ng
 
 
 
-Purihin natin ang ating Dios at Ama magpakailanman. Amen. ## Mga Huling Pangangamusta 
+Purihin natin ang ating Dios at Ama magpakailanman. Amen.
+
+## Mga Huling Pangangamusta 
 
 
 

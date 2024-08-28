@@ -55,7 +55,9 @@ But when Jesus saw _it,_ He was greatly displeased and said to them, "Let the li
 Assuredly, I say to you, whoever does not receive the kingdom of God as a little child will by no means enter it." 
 
 ###### 16 
-And He took them up in His arms, laid _His_ hands on them, and blessed them. ## Jesus Counsels the Rich Young Ruler 
+And He took them up in His arms, laid _His_ hands on them, and blessed them.
+
+## Jesus Counsels the Rich Young Ruler 
 
 ###### 17 
 Now as He was going out on the road, one came running, knelt before Him, and asked Him, "Good Teacher, what shall I do that I may inherit eternal life?" 
@@ -73,7 +75,9 @@ And he answered and said to Him, "Teacher, all these things I have kept from my 
 Then Jesus, looking at him, loved him, and said to him, "One thing you lack: Go your way, sell whatever you have and give to the poor, and you will have treasure in heaven; and come, take up the cross, and follow Me." 
 
 ###### 22 
-But he was sad at this word, and went away sorrowful, for he had great possessions. ## With God All Things Are Possible 
+But he was sad at this word, and went away sorrowful, for he had great possessions.
+
+## With God All Things Are Possible 
 
 ###### 23 
 Then Jesus looked around and said to His disciples, "How hard it is for those who have riches to enter the kingdom of God!" 

@@ -568,7 +568,9 @@ Pero sa Susa, patuloy pa ang pagpatay ng mga Judio sa kanilang mga kalaban. At n
 
 
 
-Ito ang dahilan kung bakit ang mga Judiong nasa probinsya ay nagdiriwang ng pista sa ika-14 na araw ng buwan ng Adar. Sa araw na iyon, nagbibigayan sila ng mga regalo. ## Ang Pista ng "Purim" 
+Ito ang dahilan kung bakit ang mga Judiong nasa probinsya ay nagdiriwang ng pista sa ika-14 na araw ng buwan ng Adar. Sa araw na iyon, nagbibigayan sila ng mga regalo.
+
+## Ang Pista ng "Purim" 
 
 
 
@@ -700,7 +702,9 @@ Itoʼy para alalahanin ang araw na nakaligtas sila sa mga kalaban, na ang kalung
 
 
 
-Sinunod ng mga Judio ang utos ni Mordecai, na patuloy nilang ipagdiwang ang pistang iyon sa bawat taon. ## Ang Dahilan kung Bakit may Pista ng Purim 
+Sinunod ng mga Judio ang utos ni Mordecai, na patuloy nilang ipagdiwang ang pistang iyon sa bawat taon.
+
+## Ang Dahilan kung Bakit may Pista ng Purim 
 
 
 

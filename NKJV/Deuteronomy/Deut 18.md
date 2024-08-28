@@ -31,7 +31,9 @@ For the Lord your God has chosen him out of all your tribes to stand to minister
 then he may serve in the name of the Lord his God as all his brethren the Levites _do,_ who stand there before the Lord. 
 
 ###### 8 
-They shall have equal portions to eat, besides what comes from the sale of his inheritance. ## Avoid Wicked Customs 
+They shall have equal portions to eat, besides what comes from the sale of his inheritance.
+
+## Avoid Wicked Customs 
 
 ###### 9 
 "When you come into the land which the Lord your God is giving you, you shall not learn to follow the abominations of those nations. 
@@ -49,7 +51,9 @@ For all who do these things _are_ an abomination to the Lord, and because of the
 You shall be blameless before the Lord your God. 
 
 ###### 14 
-For these nations which you will dispossess listened to soothsayers and diviners; but as for you, the Lord your God has not appointed such for you. ## A New Prophet Like Moses 
+For these nations which you will dispossess listened to soothsayers and diviners; but as for you, the Lord your God has not appointed such for you.
+
+## A New Prophet Like Moses 
 
 ###### 15 
 "The Lord your God will raise up for you a Prophet like me from your midst, from your brethren. Him you shall hear, 

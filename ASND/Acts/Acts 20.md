@@ -205,7 +205,9 @@ Pagdating namin sa Filipos, nauna sila sa amin sa Troas at doon nila kami hinint
 
 
 
-Pinalampas muna namin ang Pista ng Tinapay na Walang Pampaalsa bago kami bumiyahe galing sa Filipos. Limang araw ang biyahe namin at nagkita kaming muli sa Troas. Nanatili kami roon ng pitong araw. ## Ang Huling Pagdalaw ni Pablo sa Troas 
+Pinalampas muna namin ang Pista ng Tinapay na Walang Pampaalsa bago kami bumiyahe galing sa Filipos. Limang araw ang biyahe namin at nagkita kaming muli sa Troas. Nanatili kami roon ng pitong araw.
+
+## Ang Huling Pagdalaw ni Pablo sa Troas 
 
 
 
@@ -403,7 +405,9 @@ At bumalik si Pablo sa itaas, hinati-hati ang tinapay at kumain. Pagkatapos, nan
 
 
 
-Ang binatang nahulog ay iniuwi nilang buhay, at lubos silang natuwa. ## Mula sa Troas Papuntang Miletus 
+Ang binatang nahulog ay iniuwi nilang buhay, at lubos silang natuwa.
+
+## Mula sa Troas Papuntang Miletus 
 
 
 
@@ -535,7 +539,9 @@ Mula sa Mitilene, tumuloy kami sa Kios, at nakarating kami roon kinabukasan. Nan
 
 
 
-Hindi kami dumaan sa Efeso, dahil ayaw ni Pablo na maggugol ng oras sa <i class="trans-change">lalawigan ng_ Asia. Nagmamadali siya dahil gusto niyang makarating sa Jerusalem bago dumating ang Araw ng Pentecostes. ## Ang Pamamaalam ni Pablo sa mga Namumuno ng Iglesya sa Efeso 
+Hindi kami dumaan sa Efeso, dahil ayaw ni Pablo na maggugol ng oras sa <i class="trans-change">lalawigan ng_ Asia. Nagmamadali siya dahil gusto niyang makarating sa Jerusalem bago dumating ang Araw ng Pentecostes.
+
+## Ang Pamamaalam ni Pablo sa mga Namumuno ng Iglesya sa Efeso 
 
 
 

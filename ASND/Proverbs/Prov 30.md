@@ -304,7 +304,9 @@ Una, tulungan nʼyo ako na huwag magsinungaling. Pangalawa, huwag nʼyo akong pa
 
 
 
-Dahil kung yumaman ako, baka sabihin kong hindi ko na kayo kailangan; at kung ako naman ay maghirap, baka matuto akong magnakaw at mailagay ko kayo sa kahihiyan. ## Dagdag pang mga Kawikaan 
+Dahil kung yumaman ako, baka sabihin kong hindi ko na kayo kailangan; at kung ako naman ay maghirap, baka matuto akong magnakaw at mailagay ko kayo sa kahihiyan.
+
+## Dagdag pang mga Kawikaan 
 
 
 

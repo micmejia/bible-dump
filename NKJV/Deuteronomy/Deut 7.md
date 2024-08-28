@@ -40,7 +40,9 @@ but because the Lord loves you, and because He would keep the oath which He swor
 and He repays those who hate Him to their face, to destroy them. He will not be slack with him who hates Him; He will repay him to his face. 
 
 ###### 11 
-Therefore you shall keep the commandment, the statutes, and the judgments which I command you today, to observe them. ## Blessings of Obedience 
+Therefore you shall keep the commandment, the statutes, and the judgments which I command you today, to observe them.
+
+## Blessings of Obedience 
 
 ###### 12 
 "Then it shall come to pass, because you listen to these judgments, and keep and do them, that the Lord your God will keep with you the covenant and the mercy which He swore to your fathers. 

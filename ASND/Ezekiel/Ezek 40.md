@@ -172,7 +172,9 @@ Pagkatapos, pumunta ang tao sa daanan <i class="trans-change">sa templo_ na naka
 
 
 
-Sa bawat gilid ng daanang ito ay may tatlong silid na may guwardyang nagbabantay. Ang bawat silid na itoʼy may sukat na sampung talampakan ang haba at ganoon din ang luwang, at ang kapal ng pader sa pagitan ay walong talampakan. Sa kabila ng mga silid ay may daanang papunta sa balkonahe na nakaharap sa templo. Ang daanang ito ay sampung talampakan din ang haba. ###### 8-9 Sinukat din ng tao ang bulwagan at 14 na talampakan ang haba nito. Ang kapal ng dingding sa magkabilang daanan ng balkonahe ay tatlong talampakan. 
+Sa bawat gilid ng daanang ito ay may tatlong silid na may guwardyang nagbabantay. Ang bawat silid na itoʼy may sukat na sampung talampakan ang haba at ganoon din ang luwang, at ang kapal ng pader sa pagitan ay walong talampakan. Sa kabila ng mga silid ay may daanang papunta sa balkonahe na nakaharap sa templo. Ang daanang ito ay sampung talampakan din ang haba.
+
+###### 8-9 Sinukat din ng tao ang bulwagan at 14 na talampakan ang haba nito. Ang kapal ng dingding sa magkabilang daanan ng balkonahe ay tatlong talampakan. 
 
 
 
@@ -403,7 +405,9 @@ Ang haba naman ng daanan mula sa pintuan hanggang sa dulo ng bulwagan ay 85 tala
 
 
 
-May maliit na bintana sa bawat silid, kung saan naroon ang nagbabantay at sa pader sa gitna ng mga silid. Ang mga pader na ito ay may palamuting nakaukit na puno ng palma. ## Ang Bakuran sa Labas ng Templo 
+May maliit na bintana sa bawat silid, kung saan naroon ang nagbabantay at sa pader sa gitna ng mga silid. Ang mga pader na ito ay may palamuting nakaukit na puno ng palma.
+
+## Ang Bakuran sa Labas ng Templo 
 
 
 
@@ -502,7 +506,9 @@ Ang daanang bato na ito sa bandang ibaba ay umaabot hanggang sa gilid ng mga daa
 
 
 
-Pagkatapos, sinukat ng tao ang layo mula sa daanang papasok sa bakuran sa labas <i class="trans-change">ng templo_ hanggang sa daanang papunta sa loob ng bakuran <i class="trans-change">ng templo_ at ang layo ay 170 talampakan. ## Ang Daanan sa Hilaga 
+Pagkatapos, sinukat ng tao ang layo mula sa daanang papasok sa bakuran sa labas <i class="trans-change">ng templo_ hanggang sa daanang papunta sa loob ng bakuran <i class="trans-change">ng templo_ at ang layo ay 170 talampakan.
+
+## Ang Daanan sa Hilaga 
 
 
 
@@ -634,7 +640,9 @@ Ang mga bintana, balkonahe at palamuting palma ay katulad din ng nasa silangang 
 
 
 
-Mayroon ding daanan papunta sa bakuran sa loob, sa gawing hilagang daanan katulad ng daanan sa silangan. Sinukat din ng tao ang layo ng dalawang daanan, at itoʼy 170 talampakan. ## Ang Daanan sa Timog 
+Mayroon ding daanan papunta sa bakuran sa loob, sa gawing hilagang daanan katulad ng daanan sa silangan. Sinukat din ng tao ang layo ng dalawang daanan, at itoʼy 170 talampakan.
+
+## Ang Daanan sa Timog 
 
 
 
@@ -766,7 +774,9 @@ Pito ang baitang nito paakyat sa daanan at may balkonahe sa dulo nito. Ang mga p
 
 
 
-Mayroon ding daanan ang bakuran sa loob, na nakaharap sa timog. Sinukat ito ng tao at ang layo mula sa daanang ito hanggang sa daanan sa labas sa timog ay 170 talampakan. ## Ang mga Daanan Papunta sa Bakuran sa Loob 
+Mayroon ding daanan ang bakuran sa loob, na nakaharap sa timog. Sinukat ito ng tao at ang layo mula sa daanang ito hanggang sa daanan sa labas sa timog ay 170 talampakan.
+
+## Ang mga Daanan Papunta sa Bakuran sa Loob 
 
 
 
@@ -1096,7 +1106,9 @@ May mga silid din ito na kinaroroonan ng mga guwardyang nagbabantay. Ang luwang 
 
 
 
-Ang balkonahe nito ay nakaharap sa bakuran sa labas, at may mga palamuting puno ng palma na nakaukit sa pader. May walong baitang pataas sa daanang ito. ## Ang Silid na Pinaghahandaan ng mga Handog 
+Ang balkonahe nito ay nakaharap sa bakuran sa labas, at may mga palamuting puno ng palma na nakaukit sa pader. May walong baitang pataas sa daanang ito.
+
+## Ang Silid na Pinaghahandaan ng mga Handog 
 
 
 
@@ -1294,7 +1306,9 @@ Mayroon ding apat na mesa roon na gawa sa tinapyas na bato. Doon inilalagay ang 
 
 
 
-Sa palibot ng dingding ng balkonahe ay may mga sabitan na tatlong pulgada ang haba. At naroon sa mga mesa ang mga karneng ihahandog. ## Ang mga Silid ng mga Pari 
+Sa palibot ng dingding ng balkonahe ay may mga sabitan na tatlong pulgada ang haba. At naroon sa mga mesa ang mga karneng ihahandog.
+
+## Ang mga Silid ng mga Pari 
 
 
 

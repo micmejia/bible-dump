@@ -19,7 +19,9 @@ And suddenly there came a sound from heaven, as of a rushing mighty wind, and it
 Then there appeared to them divided tongues, as of fire, and _one_ sat upon each of them. 
 
 ###### 4 
-And they were all filled with the Holy Spirit and began to speak with other tongues, as the Spirit gave them utterance. ## The Crowd's Response 
+And they were all filled with the Holy Spirit and began to speak with other tongues, as the Spirit gave them utterance.
+
+## The Crowd's Response 
 
 ###### 5 
 And there were dwelling in Jerusalem Jews, devout men, from every nation under heaven. 

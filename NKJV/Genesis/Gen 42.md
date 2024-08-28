@@ -79,7 +79,9 @@ And Reuben answered them, saying, "Did I not speak to you, saying, 'Do not sin a
 But they did not know that Joseph understood _them,_ for he spoke to them through an interpreter. 
 
 ###### 24 
-And he turned himself away from them and wept. Then he returned to them again, and talked with them. And he took Simeon from them and bound him before their eyes. ## The Brothers Return to Canaan 
+And he turned himself away from them and wept. Then he returned to them again, and talked with them. And he took Simeon from them and bound him before their eyes.
+
+## The Brothers Return to Canaan 
 
 ###### 25 
 Then Joseph gave a command to fill their sacks with grain, to restore every man's money to his sack, and to give them provisions for the journey. Thus he did for them. 

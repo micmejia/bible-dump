@@ -16,7 +16,9 @@ Open your doors, O Lebanon, That fire may devour your cedars.
 Wail, O cypress, for the cedar has fallen, Because the mighty _trees_ are ruined. Wail, O oaks of Bashan, For the thick forest has come down. 
 
 ###### 3 
-_There is_ the sound of wailing shepherds! For their glory is in ruins. _There is_ the sound of roaring lions! For the pride of the Jordan is in ruins. ## Prophecy of the Shepherds 
+_There is_ the sound of wailing shepherds! For their glory is in ruins. _There is_ the sound of roaring lions! For the pride of the Jordan is in ruins.
+
+## Prophecy of the Shepherds 
 
 ###### 4 
 Thus says the Lord my God, "Feed the flock for slaughter, 

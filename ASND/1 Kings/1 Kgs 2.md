@@ -403,7 +403,9 @@ Naghari siya sa buong Israel sa loob ng 40 taon – pitong taon sa Hebron at 33 
 
 
 
-Si Solomon ang pumalit sa ama niyang si David bilang hari, at tunay na matatag ang kaharian niya. ## Namatay si Adonia 
+Si Solomon ang pumalit sa ama niyang si David bilang hari, at tunay na matatag ang kaharian niya.
+
+## Namatay si Adonia 
 
 
 
@@ -898,7 +900,9 @@ Pagkatapos, sinabi ni Haring Solomon kay Abiatar na pari, "Umuwi ka sa iyong buk
 
 
 
-Kaya tinanggal ni Solomon si Abiatar sa kanyang tungkulin bilang pari ng Panginoon. At natupad ang sinasabi ng Panginoon doon sa Shilo tungkol sa pamilya ni Eli. ## Namatay si Joab 
+Kaya tinanggal ni Solomon si Abiatar sa kanyang tungkulin bilang pari ng Panginoon. At natupad ang sinasabi ng Panginoon doon sa Shilo tungkol sa pamilya ni Eli.
+
+## Namatay si Joab 
 
 
 
@@ -1096,7 +1100,9 @@ Kaya pinuntahan ni Benaya si Joab at pinatay. Inilibing siya <i class="trans-cha
 
 
 
-Pagkatapos, ipinalit ng hari si Benaya kay Joab bilang kumander ng mga sundalo at ang ipinalit niya kay Abiatar ay ang paring si Zadok. ## Ang Pagkamatay ni Shimei 
+Pagkatapos, ipinalit ng hari si Benaya kay Joab bilang kumander ng mga sundalo at ang ipinalit niya kay Abiatar ay ang paring si Zadok.
+
+## Ang Pagkamatay ni Shimei 
 
 
 

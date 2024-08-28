@@ -31,7 +31,9 @@ Their webs will not become garments, Nor will they cover themselves with their w
 Their feet run to evil, And they make haste to shed innocent blood; Their thoughts _are_ thoughts of iniquity; Wasting and destruction _are_ in their paths. 
 
 ###### 8 
-The way of peace they have not known, And _there is_ no justice in their ways; They have made themselves crooked paths; Whoever takes that way shall not know peace. ## Sin Confessed 
+The way of peace they have not known, And _there is_ no justice in their ways; They have made themselves crooked paths; Whoever takes that way shall not know peace.
+
+## Sin Confessed 
 
 ###### 9 
 Therefore justice is far from us, Nor does righteousness overtake us; We look for light, but there is darkness! For brightness, _but_ we walk in blackness! 
@@ -52,7 +54,9 @@ In transgressing and lying against the Lord, And departing from our God, Speakin
 Justice is turned back, And righteousness stands afar off; For truth is fallen in the street, And equity cannot enter. 
 
 ###### 15 
-So truth fails, And he _who_ departs from evil makes himself a prey. ## The Redeemer of Zion Then the Lord saw _it,_ and it displeased Him That _there was_ no justice. 
+So truth fails, And he _who_ departs from evil makes himself a prey.
+
+## The Redeemer of Zion Then the Lord saw _it,_ and it displeased Him That _there was_ no justice. 
 
 ###### 16 
 He saw that _there was_ no man, And wondered that _there was_ no intercessor; Therefore His own arm brought salvation for Him; And His own righteousness, it sustained Him. 

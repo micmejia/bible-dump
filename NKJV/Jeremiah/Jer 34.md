@@ -28,7 +28,9 @@ You shall die in peace; as in the ceremonies of your fathers, the former kings w
 Then Jeremiah the prophet spoke all these words to Zedekiah king of Judah in Jerusalem, 
 
 ###### 7 
-when the king of Babylon's army fought against Jerusalem and all the cities of Judah that were left, against Lachish and Azekah; for _only_ these fortified cities remained of the cities of Judah. ## Treacherous Treatment of Slaves 
+when the king of Babylon's army fought against Jerusalem and all the cities of Judah that were left, against Lachish and Azekah; for _only_ these fortified cities remained of the cities of Judah.
+
+## Treacherous Treatment of Slaves 
 
 ###### 8 
 _This is_ the word that came to Jeremiah from the Lord, after King Zedekiah had made a covenant with all the people who _were_ at Jerusalem to proclaim liberty to them: 

@@ -226,4 +226,6 @@ Some of the heads of the fathers' _houses_ gave to the treasury of the work twen
 And that which the rest of the people gave _was_ twenty thousand gold drachmas, two thousand silver minas, and sixty-seven priestly garments. 
 
 ###### 73 
-So the priests, the Levites, the gatekeepers, the singers, _some_ of the people, the Nethinim, and all Israel dwelt in their cities. ## Ezra Reads the Law When the seventh month came, the children of Israel _were_ in their cities.
+So the priests, the Levites, the gatekeepers, the singers, _some_ of the people, the Nethinim, and all Israel dwelt in their cities.
+
+## Ezra Reads the Law When the seventh month came, the children of Israel _were_ in their cities.

@@ -58,7 +58,9 @@ The Lord then answered him and said, "Hypocrite! Does not each one of you on the
 So ought not this woman, being a daughter of Abraham, whom Satan has bound--think of it--for eighteen years, be loosed from this bond on the Sabbath?" 
 
 ###### 17 
-And when He said these things, all His adversaries were put to shame; and all the multitude rejoiced for all the glorious things that were done by Him. ## The Parable of the Mustard Seed 
+And when He said these things, all His adversaries were put to shame; and all the multitude rejoiced for all the glorious things that were done by Him.
+
+## The Parable of the Mustard Seed 
 
 ###### 18 
 Then He said, "What is the kingdom of God like? And to what shall I compare it? 
@@ -106,7 +108,9 @@ On that very day some Pharisees came, saying to Him, "Get out and depart from he
 And He said to them, "Go, tell that fox, 'Behold, I cast out demons and perform cures today and tomorrow, and the third _day_ I shall be perfected.' 
 
 ###### 33 
-Nevertheless I must journey today, tomorrow, and the _day_ following; for it cannot be that a prophet should perish outside of Jerusalem. ## Jesus Laments over Jerusalem 
+Nevertheless I must journey today, tomorrow, and the _day_ following; for it cannot be that a prophet should perish outside of Jerusalem.
+
+## Jesus Laments over Jerusalem 
 
 ###### 34 
 "O Jerusalem, Jerusalem, the one who kills the prophets and stones those who are sent to her! How often I wanted to gather your children together, as a hen _gathers_ her brood under _her_ wings, but you were not willing! 

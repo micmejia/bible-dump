@@ -73,7 +73,9 @@ Inutusan ng Panginoon si Moises
 
 
 
-na sabihin sa mga Israelita ang mga tuntuning ito tungkol sa mga espesyal na araw na magtitipon sila para sumamba sa Panginoon. ## Ang Araw ng Pamamahinga 
+na sabihin sa mga Israelita ang mga tuntuning ito tungkol sa mga espesyal na araw na magtitipon sila para sumamba sa Panginoon.
+
+## Ang Araw ng Pamamahinga 
 
 
 
@@ -106,7 +108,9 @@ na sabihin sa mga Israelita ang mga tuntuning ito tungkol sa mga espesyal na ara
 
 
 
-May anim na araw kayo para magtrabaho, pero sa ikapitong araw ay magpahinga kayo, dahil ito ang Araw ng Pamamahinga. Huwag kayong magtrabaho sa araw na ito, sa halip ay magtipon kayo para sumamba dahil ito ang araw para purihin ang Panginoon. ## Ang Pista ng Paglampas ng Anghel at ang Pista ng Tinapay na Walang Pampaalsa 
+May anim na araw kayo para magtrabaho, pero sa ikapitong araw ay magpahinga kayo, dahil ito ang Araw ng Pamamahinga. Huwag kayong magtrabaho sa araw na ito, sa halip ay magtipon kayo para sumamba dahil ito ang araw para purihin ang Panginoon.
+
+## Ang Pista ng Paglampas ng Anghel at ang Pista ng Tinapay na Walang Pampaalsa 
 
 
 
@@ -271,7 +275,9 @@ Sa unang araw ng pistang ito, huwag kayong magtatrabaho, sa halip ay magtipon ka
 
 
 
-Sa loob ng pitong araw, mag-aalay kayo sa Panginoon ng handog sa pamamagitan ng apoy. At sa ikapitong araw, huwag kayong magtatrabaho sa halip ay magtipon nga kayo at sumamba sa Panginoon. ## Ang Pista ng Pag-aani <sup class="versenum">9-11</sup>Kapag naroon na kayo sa lupaing ibibigay sa inyo ng Panginoon, ihandog ninyo sa kanya ang unang bigkis ng bawat ani. Dalhin ninyo ito sa pari sa susunod na araw pagkatapos ng Araw ng Pamamahinga. Itataas ito ng pari sa Panginoon para tanggapin kayo ng Panginoon sa pamamagitan nito. 
+Sa loob ng pitong araw, mag-aalay kayo sa Panginoon ng handog sa pamamagitan ng apoy. At sa ikapitong araw, huwag kayong magtatrabaho sa halip ay magtipon nga kayo at sumamba sa Panginoon.
+
+## Ang Pista ng Pag-aani <sup class="versenum">9-11</sup>Kapag naroon na kayo sa lupaing ibibigay sa inyo ng Panginoon, ihandog ninyo sa kanya ang unang bigkis ng bawat ani. Dalhin ninyo ito sa pari sa susunod na araw pagkatapos ng Araw ng Pamamahinga. Itataas ito ng pari sa Panginoon para tanggapin kayo ng Panginoon sa pamamagitan nito. 
 
 
 
@@ -535,7 +541,9 @@ Huwag kayong magtatrabaho sa araw ding iyon, kundi magtipon kayo at sumamba sa P
 
 
 
-Kung aani kayo, huwag ninyong uubusin ang mga nasa gilid ng inyong mga bukid, at huwag na ninyong balikan para ipunin ang mga naiwan. Ipaubaya na lang ninyo iyon sa mga dukha at sa mga dayuhan. Ito ang utos ng Panginoon na inyong Dios. ## Ang Pista ng Pagpapatunog ng mga Trumpeta <sup class="versenum">23-24</sup>Sa unang araw ng ikapitong buwan, magpahinga kayo para alalahanin ang Panginoon. Kung marinig ninyo ang tunog ng trumpeta, magtipon kayo para sumamba sa kanya. 
+Kung aani kayo, huwag ninyong uubusin ang mga nasa gilid ng inyong mga bukid, at huwag na ninyong balikan para ipunin ang mga naiwan. Ipaubaya na lang ninyo iyon sa mga dukha at sa mga dayuhan. Ito ang utos ng Panginoon na inyong Dios.
+
+## Ang Pista ng Pagpapatunog ng mga Trumpeta <sup class="versenum">23-24</sup>Sa unang araw ng ikapitong buwan, magpahinga kayo para alalahanin ang Panginoon. Kung marinig ninyo ang tunog ng trumpeta, magtipon kayo para sumamba sa kanya. 
 
 
 
@@ -568,7 +576,9 @@ Kung aani kayo, huwag ninyong uubusin ang mga nasa gilid ng inyong mga bukid, at
 
 
 
-Huwag kayong magtrabaho sa araw na iyon, sa halip mag-alay kayo ng handog sa pamamagitan ng apoy para sa Panginoon. ## Ang Araw ng Pagtubos <sup class="versenum">26-28</sup>Ang ikasampung araw ng ikapitong buwan ding iyon ay Araw ng Pagtubos. Huwag kayong magtatrabaho sa araw na iyon kundi magtipon kayo sa pagsamba sa Panginoon na may pag-aayuno at pag-aalay ng handog sa pamamagitan ng apoy. Sapagkat sa araw na iyon gagawin ang seremonya ng pagtubos sa inyong mga kasalanan sa Panginoon na inyong Dios. 
+Huwag kayong magtrabaho sa araw na iyon, sa halip mag-alay kayo ng handog sa pamamagitan ng apoy para sa Panginoon.
+
+## Ang Araw ng Pagtubos <sup class="versenum">26-28</sup>Ang ikasampung araw ng ikapitong buwan ding iyon ay Araw ng Pagtubos. Huwag kayong magtatrabaho sa araw na iyon kundi magtipon kayo sa pagsamba sa Panginoon na may pag-aayuno at pag-aalay ng handog sa pamamagitan ng apoy. Sapagkat sa araw na iyon gagawin ang seremonya ng pagtubos sa inyong mga kasalanan sa Panginoon na inyong Dios. 
 
 
 
@@ -634,7 +644,9 @@ Ang ayaw mag-ayuno sa araw na iyon ay huwag na ninyong ituring na kababayan.
 
 
 
-Papatayin ng Panginoon ang sinumang magtatrabaho sa araw na iyon. <sup class="versenum">31-32</sup>Kaya magpahinga kayo at mag-ayuno mula sa paglubog ng araw nang ikasiyam na araw ng buwang iyon hanggang sa susunod na paglubog ng araw. Dapat ninyong sundin ang tuntuning ito kahit saan kayo tumira, kayo at ng susunod pang mga henerasyon. ## Ang Pista ng Pagtatayo ng mga Kubol <sup class="versenum">33-34</sup>Inutusan ng Panginoon si Moises na sabihin ito sa mga Israelita: Sa ika-15 araw ng ikapitong buwan, magsisimula ang Pista ng Pagtatayo ng mga Kubol at itoʼy ipagdiriwang ninyo sa loob ng pitong araw. 
+Papatayin ng Panginoon ang sinumang magtatrabaho sa araw na iyon. <sup class="versenum">31-32</sup>Kaya magpahinga kayo at mag-ayuno mula sa paglubog ng araw nang ikasiyam na araw ng buwang iyon hanggang sa susunod na paglubog ng araw. Dapat ninyong sundin ang tuntuning ito kahit saan kayo tumira, kayo at ng susunod pang mga henerasyon.
+
+## Ang Pista ng Pagtatayo ng mga Kubol <sup class="versenum">33-34</sup>Inutusan ng Panginoon si Moises na sabihin ito sa mga Israelita: Sa ika-15 araw ng ikapitong buwan, magsisimula ang Pista ng Pagtatayo ng mga Kubol at itoʼy ipagdiriwang ninyo sa loob ng pitong araw. 
 
 
 

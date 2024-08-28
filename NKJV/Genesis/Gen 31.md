@@ -70,7 +70,9 @@ Now Laban had gone to shear his sheep, and Rachel had stolen the household idols
 And Jacob stole away, unknown to Laban the Syrian, in that he did not tell him that he intended to flee. 
 
 ###### 21 
-So he fled with all that he had. He arose and crossed the river, and headed toward the mountains of Gilead. ## Laban Pursues Jacob 
+So he fled with all that he had. He arose and crossed the river, and headed toward the mountains of Gilead.
+
+## Laban Pursues Jacob 
 
 ###### 22 
 And Laban was told on the third day that Jacob had fled. 

@@ -568,7 +568,9 @@ At sa pamamagitan ng iyong mga lahi, pagpapalain ko ang lahat ng bansa sa mundo,
 
 
 
-Pagkatapos nito, binalikan nila Abraham <i class="trans-change">at Isaac_ ang kanilang mga alipin. At bumalik sila sa Beersheba at doon na nanirahan. ## Ang mga Lahi ni Nahor 
+Pagkatapos nito, binalikan nila Abraham <i class="trans-change">at Isaac_ ang kanilang mga alipin. At bumalik sila sa Beersheba at doon na nanirahan.
+
+## Ang mga Lahi ni Nahor 
 
 
 

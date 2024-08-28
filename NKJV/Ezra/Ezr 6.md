@@ -43,7 +43,9 @@ that they may offer sacrifices of sweet aroma to the God of heaven, and pray for
 Also I issue a decree that whoever alters this edict, let a timber be pulled from his house and erected, and let him be hanged on it; and let his house be made a refuse heap because of this. 
 
 ###### 12 
-And may the God who causes His name to dwell there destroy any king or people who put their hand to alter it, or to destroy this house of God which is in Jerusalem. I Darius issue a decree; let it be done diligently. ## The Temple Completed and Dedicated 
+And may the God who causes His name to dwell there destroy any king or people who put their hand to alter it, or to destroy this house of God which is in Jerusalem. I Darius issue a decree; let it be done diligently.
+
+## The Temple Completed and Dedicated 
 
 ###### 13 
 Then Tattenai, governor of _the region_ beyond the River, Shethar-Boznai, and their companions diligently did according to what King Darius had sent. 
@@ -61,7 +63,9 @@ Then the children of Israel, the priests and the Levites and the rest of the des
 And they offered sacrifices at the dedication of this house of God, one hundred bulls, two hundred rams, four hundred lambs, and as a sin offering for all Israel twelve male goats, according to the number of the tribes of Israel. 
 
 ###### 18 
-They assigned the priests to their divisions and the Levites to their divisions, over the service of God in Jerusalem, as it is written in the Book of Moses. ## The Passover Celebrated 
+They assigned the priests to their divisions and the Levites to their divisions, over the service of God in Jerusalem, as it is written in the Book of Moses.
+
+## The Passover Celebrated 
 
 ###### 19 
 And the descendants of the captivity kept the Passover on the fourteenth _day_ of the first month. 

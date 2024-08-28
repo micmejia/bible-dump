@@ -370,7 +370,9 @@ Kumakain nga kayo pero hindi kayo nabubusog. Sumasamba kayo sa mga dios-diosan p
 
 
 
-upang sumamba sa mga dios-diosan. ## Isinusumpa ng Dios ang Pagsamba sa mga Dios-diosan "Mga mamamayan ko, ang bago at lumang alak ay nakakasira ng inyong pang-unawa. 
+upang sumamba sa mga dios-diosan.
+
+## Isinusumpa ng Dios ang Pagsamba sa mga Dios-diosan "Mga mamamayan ko, ang bago at lumang alak ay nakakasira ng inyong pang-unawa. 
 
 
 

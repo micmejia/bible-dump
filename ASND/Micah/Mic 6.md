@@ -271,7 +271,9 @@ Matutuwa kaya ang Panginoon kung hahandugan ko siya ng libu-libong tupa at nag-u
 
 
 
-<i class="trans-change">Sumagot si Micas:_ Tinuruan tayo ng Panginoon kung ano ang mabuti. At ito ang nais niyang gawin natin: Gawin natin ang matuwid, pairalin natin ang pagkamaawain sa iba at buong pagpapakumbabang sumunod sa Dios. ## Parurusahan ng Panginoon ang mga Israelita 
+<i class="trans-change">Sumagot si Micas:_ Tinuruan tayo ng Panginoon kung ano ang mabuti. At ito ang nais niyang gawin natin: Gawin natin ang matuwid, pairalin natin ang pagkamaawain sa iba at buong pagpapakumbabang sumunod sa Dios.
+
+## Parurusahan ng Panginoon ang mga Israelita 
 
 
 

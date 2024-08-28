@@ -12,7 +12,9 @@ next: ['Eph 2']
 Paul, an apostle of Jesus Christ by the will of God, To the saints who are in Ephesus, and faithful in Christ Jesus: 
 
 ###### 2 
-Grace to you and peace from God our Father and the Lord Jesus Christ. ## Redemption in Christ 
+Grace to you and peace from God our Father and the Lord Jesus Christ.
+
+## Redemption in Christ 
 
 ###### 3 
 Blessed _be_ the God and Father of our Lord Jesus Christ, who has blessed us with every spiritual blessing in the heavenly _places_ in Christ, 
@@ -48,7 +50,9 @@ that we who first trusted in Christ should be to the praise of His glory.
 In Him you also _trusted,_ after you heard the word of truth, the gospel of your salvation; in whom also, having believed, you were sealed with the Holy Spirit of promise, 
 
 ###### 14 
-who is the guarantee of our inheritance until the redemption of the purchased possession, to the praise of His glory. ## Prayer for Spiritual Wisdom 
+who is the guarantee of our inheritance until the redemption of the purchased possession, to the praise of His glory.
+
+## Prayer for Spiritual Wisdom 
 
 ###### 15 
 Therefore I also, after I heard of your faith in the Lord Jesus and your love for all the saints, 

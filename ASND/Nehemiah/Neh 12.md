@@ -73,7 +73,9 @@ Ang mga Levita ay sina Jeshua, Binui, Kadmiel, Sherebia, Juda at Matania. Si Mat
 
 
 
-At sina Bakbukia, Uni, at ang mga kasama nila, ang katiwala sa pagsagot sa awit na iyon. ## Ang mga Lahi ng Punong Pari na si Jeshua 
+At sina Bakbukia, Uni, at ang mga kasama nila, ang katiwala sa pagsagot sa awit na iyon.
+
+## Ang mga Lahi ng Punong Pari na si Jeshua 
 
 
 
@@ -139,7 +141,9 @@ Si Jeshua ay ama ni Joyakim. Si Joyakim ay ama ni Eliashib. Si Eliashib ay ama n
 
 
 
-Si Joyada ay ama ni Jonatan. At si Jonatan ay ama ni Jadua. ## Ang Pinuno ng mga Pamilya ng mga Pari <sup class="versenum">12-13</sup>Ito ang mga pinuno ng mga pamilya ng mga pari noong si Joyakim ang punong pari: Si Meraya ang pinuno ng pamilya ni Seraya. Si Hanania ang pinuno ng pamilya ni Jeremias. Si Meshulam ang pinuno ng pamilya ni Ezra. Si Jehohanan ang pinuno ng pamilya ni Amaria. 
+Si Joyada ay ama ni Jonatan. At si Jonatan ay ama ni Jadua.
+
+## Ang Pinuno ng mga Pamilya ng mga Pari <sup class="versenum">12-13</sup>Ito ang mga pinuno ng mga pamilya ng mga pari noong si Joyakim ang punong pari: Si Meraya ang pinuno ng pamilya ni Seraya. Si Hanania ang pinuno ng pamilya ni Jeremias. Si Meshulam ang pinuno ng pamilya ni Ezra. Si Jehohanan ang pinuno ng pamilya ni Amaria. 
 
 
 
@@ -403,7 +407,9 @@ Si Kalai ang pinuno ng pamilya ni Salu. Si Eber ang pinuno ng pamilya ni Amok.
 
 
 
-Si Hashabia ang pinuno ng pamilya ni Hilkia. At si Netanel ang pinuno ng pamilya ni Jedaya. ## Ang mga Pinuno ng mga Pamilya ng mga Levita 
+Si Hashabia ang pinuno ng pamilya ni Hilkia. At si Netanel ang pinuno ng pamilya ni Jedaya.
+
+## Ang mga Pinuno ng mga Pamilya ng mga Levita 
 
 
 
@@ -568,7 +574,9 @@ Ang mga guwardya ng pintuan ng templo na nagbabantay ng mga bodega na malapit sa
 
 
 
-Sila ang naglilingkod sa panahon ni Joyakim na anak ni Jeshua at apo ni Jozadak, at sa panahon ni Nehemias na gobernador at ni Ezra na pari at tagapagturo ng Kautusan. ## Itinalaga sa Dios ang Pader ng Lungsod 
+Sila ang naglilingkod sa panahon ni Joyakim na anak ni Jeshua at apo ni Jozadak, at sa panahon ni Nehemias na gobernador at ni Ezra na pari at tagapagturo ng Kautusan.
+
+## Itinalaga sa Dios ang Pader ng Lungsod 
 
 
 

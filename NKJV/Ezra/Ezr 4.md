@@ -22,7 +22,9 @@ But Zerubbabel and Jeshua and the rest of the heads of the fathers' _houses_ of 
 Then the people of the land tried to discourage the people of Judah. They troubled them in building, 
 
 ###### 5 
-and hired counselors against them to frustrate their purpose all the days of Cyrus king of Persia, even until the reign of Darius king of Persia. ## Rebuilding of Jerusalem Opposed 
+and hired counselors against them to frustrate their purpose all the days of Cyrus king of Persia, even until the reign of Darius king of Persia.
+
+## Rebuilding of Jerusalem Opposed 
 
 ###### 6 
 In the reign of Ahasuerus, in the beginning of his reign, they wrote an accusation against the inhabitants of Judah and Jerusalem. 

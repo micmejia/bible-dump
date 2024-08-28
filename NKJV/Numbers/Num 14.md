@@ -37,7 +37,9 @@ If the Lord delights in us, then He will bring us into this land and give it to 
 Only do not rebel against the Lord, nor fear the people of the land, for they _are_ our bread; their protection has departed from them, and the Lord _is_ with us. Do not fear them." 
 
 ###### 10 
-And all the congregation said to stone them with stones. Now the glory of the Lord appeared in the tabernacle of meeting before all the children of Israel. ## Moses Intercedes for the People 
+And all the congregation said to stone them with stones. Now the glory of the Lord appeared in the tabernacle of meeting before all the children of Israel.
+
+## Moses Intercedes for the People 
 
 ###### 11 
 Then the Lord said to Moses: "How long will these people reject Me? And how long will they not believe Me, with all the signs which I have performed among them? 
@@ -121,7 +123,9 @@ Now the men whom Moses sent to spy out the land, who returned and made all the c
 those very men who brought the evil report about the land, died by the plague before the Lord. 
 
 ###### 38 
-But Joshua the son of Nun and Caleb the son of Jephunneh remained alive, of the men who went to spy out the land. ## A Futile Invasion Attempt 
+But Joshua the son of Nun and Caleb the son of Jephunneh remained alive, of the men who went to spy out the land.
+
+## A Futile Invasion Attempt 
 
 ###### 39 
 Then Moses told these words to all the children of Israel, and the people mourned greatly. 

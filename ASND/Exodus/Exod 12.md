@@ -1393,7 +1393,9 @@ Sa huling araw ng 430 taon, umalis sa Egipto ang buong mamamayan ng Panginoon.
 
 
 
-Nang gabing umalis ang mga Israelita sa Egipto, binantayan sila ng Panginoon buong gabi. Kaya katulad ng gabing iyon taun-taon, magpupuyat ang lahat ng mga Israelita bilang pagpaparangal sa Panginoon at gagawin nila ito hanggang sa mga susunod pang henerasyon. ## Ang mga Tuntunin tungkol sa Pista ng Paglampas ng Anghel 
+Nang gabing umalis ang mga Israelita sa Egipto, binantayan sila ng Panginoon buong gabi. Kaya katulad ng gabing iyon taun-taon, magpupuyat ang lahat ng mga Israelita bilang pagpaparangal sa Panginoon at gagawin nila ito hanggang sa mga susunod pang henerasyon.
+
+## Ang mga Tuntunin tungkol sa Pista ng Paglampas ng Anghel 
 
 
 

@@ -46,7 +46,9 @@ So Ebed-Melech took the men with him and went into the house of the king under t
 Then Ebed-Melech the Ethiopian said to Jeremiah, "Please put these old clothes and rags under your armpits, under the ropes." And Jeremiah did so. 
 
 ###### 13 
-So they pulled Jeremiah up with ropes and lifted him out of the dungeon. And Jeremiah remained in the court of the prison. ## Zedekiah's Fears and Jeremiah's Advice 
+So they pulled Jeremiah up with ropes and lifted him out of the dungeon. And Jeremiah remained in the court of the prison.
+
+## Zedekiah's Fears and Jeremiah's Advice 
 
 ###### 14 
 Then Zedekiah the king sent and had Jeremiah the prophet brought to him at the third entrance of the house of the Lord. And the king said to Jeremiah, "I will ask you something. Hide nothing from me." 

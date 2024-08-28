@@ -21,7 +21,9 @@ For the time will come when they will not endure sound doctrine, but according t
 and they will turn _their_ ears away from the truth, and be turned aside to fables. 
 
 ###### 5 
-But you be watchful in all things, endure afflictions, do the work of an evangelist, fulfill your ministry. ## Paul's Valedictory 
+But you be watchful in all things, endure afflictions, do the work of an evangelist, fulfill your ministry.
+
+## Paul's Valedictory 
 
 ###### 6 
 For I am already being poured out as a drink offering, and the time of my departure is at hand. 
@@ -30,7 +32,9 @@ For I am already being poured out as a drink offering, and the time of my depart
 I have fought the good fight, I have finished the race, I have kept the faith. 
 
 ###### 8 
-Finally, there is laid up for me the crown of righteousness, which the Lord, the righteous Judge, will give to me on that Day, and not to me only but also to all who have loved His appearing. ## The Abandoned Apostle 
+Finally, there is laid up for me the crown of righteousness, which the Lord, the righteous Judge, will give to me on that Day, and not to me only but also to all who have loved His appearing.
+
+## The Abandoned Apostle 
 
 ###### 9 
 Be diligent to come to me quickly; 
@@ -54,7 +58,9 @@ Alexander the coppersmith did me much harm. May the Lord repay him according to 
 You also must beware of him, for he has greatly resisted our words. 
 
 ###### 16 
-At my first defense no one stood with me, but all forsook me. May it not be charged against them. ## The Lord Is Faithful 
+At my first defense no one stood with me, but all forsook me. May it not be charged against them.
+
+## The Lord Is Faithful 
 
 ###### 17 
 But the Lord stood with me and strengthened me, so that the message might be preached fully through me, and _that_ all the Gentiles might hear. Also I was delivered out of the mouth of the lion. 
@@ -69,7 +75,9 @@ Greet Prisca and Aquila, and the household of Onesiphorus.
 Erastus stayed in Corinth, but Trophimus I have left in Miletus sick. 
 
 ###### 21 
-Do your utmost to come before winter. Eubulus greets you, as well as Pudens, Linus, Claudia, and all the brethren. ## Farewell 
+Do your utmost to come before winter. Eubulus greets you, as well as Pudens, Linus, Claudia, and all the brethren.
+
+## Farewell 
 
 ###### 22 
 The Lord Jesus Christ be with your spirit. Grace be with you. Amen.

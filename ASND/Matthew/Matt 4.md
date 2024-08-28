@@ -370,7 +370,9 @@ Pero sinagot siya ni Jesus, "Lumayas ka, Satanas! Sapagkat sinasabi sa Kasulatan
 
 
 
-Pagkatapos nito, iniwan na siya ng diyablo. Dumating naman ang mga anghel ng Dios at naglingkod sa kanya. ## Sinimulan ni Jesus ang Kanyang Gawain 
+Pagkatapos nito, iniwan na siya ng diyablo. Dumating naman ang mga anghel ng Dios at naglingkod sa kanya.
+
+## Sinimulan ni Jesus ang Kanyang Gawain 
 
 
 
@@ -733,7 +735,9 @@ At habang patuloy sa paglalakad si Jesus, nakita niya ang magkapatid na sina San
 
 
 
-Iniwan nila agad ang bangka at ang kanilang ama, at sumunod kay Jesus. ## Nangaral at Nagpagaling ng mga May Sakit si Jesus 
+Iniwan nila agad ang bangka at ang kanilang ama, at sumunod kay Jesus.
+
+## Nangaral at Nagpagaling ng mga May Sakit si Jesus 
 
 
 

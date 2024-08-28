@@ -535,7 +535,9 @@ Sinasabi ko sa inyo ang totoo, ang sinumang hindi tumatanggap sa paghahari ng Di
 
 
 
-Pagkatapos, kinalong niya ang mga bata, ipinatong ang kanyang kamay sa kanila at pinagpala. ## Ang Mayamang Lalaking 
+Pagkatapos, kinalong niya ang mga bata, ipinatong ang kanyang kamay sa kanila at pinagpala.
+
+## Ang Mayamang Lalaking 
 
 
 

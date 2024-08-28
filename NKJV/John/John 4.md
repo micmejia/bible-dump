@@ -142,7 +142,9 @@ Now after the two days He departed from there and went to Galilee.
 For Jesus Himself testified that a prophet has no honor in his own country. 
 
 ###### 45 
-So when He came to Galilee, the Galileans received Him, having seen all the things He did in Jerusalem at the feast; for they also had gone to the feast. ## A Nobleman's Son Healed 
+So when He came to Galilee, the Galileans received Him, having seen all the things He did in Jerusalem at the feast; for they also had gone to the feast.
+
+## A Nobleman's Son Healed 
 
 ###### 46 
 So Jesus came again to Cana of Galilee where He had made the water wine. And there was a certain nobleman whose son was sick at Capernaum. 

@@ -70,7 +70,9 @@ Behold, I will do a new thing, Now it shall spring forth; Shall you not know it?
 The beast of the field will honor Me, The jackals and the ostriches, Because I give waters in the wilderness _And_ rivers in the desert, To give drink to My people, My chosen. 
 
 ###### 21 
-This people I have formed for Myself; They shall declare My praise. ## Pleading with Unfaithful Israel 
+This people I have formed for Myself; They shall declare My praise.
+
+## Pleading with Unfaithful Israel 
 
 ###### 22 
 "But you have not called upon Me, O Jacob; And you have been weary of Me, O Israel. 

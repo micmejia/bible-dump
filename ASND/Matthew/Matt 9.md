@@ -271,7 +271,9 @@ Tumayo nga ang paralitiko at umuwi.
 
 
 
-Namangha ang mga tao nang makita nila ito, at pinapurihan nila ang Dios na nagbigay sa mga tao ng ganoong kapangyarihan. ## Tinawag ni Jesus si Mateo 
+Namangha ang mga tao nang makita nila ito, at pinapurihan nila ang Dios na nagbigay sa mga tao ng ganoong kapangyarihan.
+
+## Tinawag ni Jesus si Mateo 
 
 
 
@@ -865,7 +867,9 @@ Nang mapalabas na ang mga tao, pumasok si Jesus at hinawakan sa kamay ang bata, 
 
 
 
-Kumalat ang balitang ito sa buong lugar na iyon. ## Pinagaling ni Jesus ang Dalawang Bulag 
+Kumalat ang balitang ito sa buong lugar na iyon.
+
+## Pinagaling ni Jesus ang Dalawang Bulag 
 
 
 
@@ -1030,7 +1034,9 @@ At nakakita nga ang dalawa. Mahigpit silang pinagbilinan ni Jesus na huwag nila 
 
 
 
-Pero umalis ang dalawa at ibinalita nila sa buong lugar na iyon ang ginawa sa kanila ni Jesus. ## Pinagaling ni Jesus ang Isang Pipi 
+Pero umalis ang dalawa at ibinalita nila sa buong lugar na iyon ang ginawa sa kanila ni Jesus.
+
+## Pinagaling ni Jesus ang Isang Pipi 
 
 
 

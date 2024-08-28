@@ -31,7 +31,9 @@ of the tribe of Asher twelve thousand _were_ sealed; of the tribe of Naphtali tw
 of the tribe of Simeon twelve thousand _were_ sealed; of the tribe of Levi twelve thousand _were_ sealed; of the tribe of Issachar twelve thousand _were_ sealed; 
 
 ###### 8 
-of the tribe of Zebulun twelve thousand _were_ sealed; of the tribe of Joseph twelve thousand _were_ sealed; of the tribe of Benjamin twelve thousand _were_ sealed. ## A Multitude from the Great Tribulation 
+of the tribe of Zebulun twelve thousand _were_ sealed; of the tribe of Joseph twelve thousand _were_ sealed; of the tribe of Benjamin twelve thousand _were_ sealed.
+
+## A Multitude from the Great Tribulation 
 
 ###### 9 
 After these things I looked, and behold, a great multitude which no one could number, of all nations, tribes, peoples, and tongues, standing before the throne and before the Lamb, clothed with white robes, with palm branches in their hands, 

@@ -13,10 +13,14 @@ next: ['Rev 17']
 Then I heard a loud voice from the temple saying to the seven angels, "Go and pour out the bowls of the wrath of God on the earth." ## First Bowl: Loathsome Sores 
 
 ###### 2 
-So the first went and poured out his bowl upon the earth, and a foul and loathsome sore came upon the men who had the mark of the beast and those who worshiped his image. ## Second Bowl: The Sea Turns to Blood 
+So the first went and poured out his bowl upon the earth, and a foul and loathsome sore came upon the men who had the mark of the beast and those who worshiped his image.
+
+## Second Bowl: The Sea Turns to Blood 
 
 ###### 3 
-Then the second angel poured out his bowl on the sea, and it became blood as of a dead _man;_ and every living creature in the sea died. ## Third Bowl: The Waters Turn to Blood 
+Then the second angel poured out his bowl on the sea, and it became blood as of a dead _man;_ and every living creature in the sea died.
+
+## Third Bowl: The Waters Turn to Blood 
 
 ###### 4 
 Then the third angel poured out his bowl on the rivers and springs of water, and they became blood. 
@@ -34,13 +38,17 @@ And I heard another from the altar saying, "Even so, Lord God Almighty, true and
 Then the fourth angel poured out his bowl on the sun, and power was given to him to scorch men with fire. 
 
 ###### 9 
-And men were scorched with great heat, and they blasphemed the name of God who has power over these plagues; and they did not repent and give Him glory. ## Fifth Bowl: Darkness and Pain 
+And men were scorched with great heat, and they blasphemed the name of God who has power over these plagues; and they did not repent and give Him glory.
+
+## Fifth Bowl: Darkness and Pain 
 
 ###### 10 
 Then the fifth angel poured out his bowl on the throne of the beast, and his kingdom became full of darkness; and they gnawed their tongues because of the pain. 
 
 ###### 11 
-They blasphemed the God of heaven because of their pains and their sores, and did not repent of their deeds. ## Sixth Bowl: Euphrates Dried Up 
+They blasphemed the God of heaven because of their pains and their sores, and did not repent of their deeds.
+
+## Sixth Bowl: Euphrates Dried Up 
 
 ###### 12 
 Then the sixth angel poured out his bowl on the great river Euphrates, and its water was dried up, so that the way of the kings from the east might be prepared. 
@@ -55,7 +63,9 @@ For they are spirits of demons, performing signs, _which_ go out to the kings of
 "Behold, I am coming as a thief. Blessed _is_ he who watches, and keeps his garments, lest he walk naked and they see his shame." 
 
 ###### 16 
-And they gathered them together to the place called in Hebrew, Armageddon. ## Seventh Bowl: The Earth Utterly Shaken 
+And they gathered them together to the place called in Hebrew, Armageddon.
+
+## Seventh Bowl: The Earth Utterly Shaken 
 
 ###### 17 
 Then the seventh angel poured out his bowl into the air, and a loud voice came out of the temple of heaven, from the throne, saying, "It is done!" 

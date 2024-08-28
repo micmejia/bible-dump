@@ -37,7 +37,9 @@ For I also am a man placed under authority, having soldiers under me. And I say 
 When Jesus heard these things, He marveled at him, and turned around and said to the crowd that followed Him, "I say to you, I have not found such great faith, not even in Israel!" 
 
 ###### 10 
-And those who were sent, returning to the house, found the servant well who had been sick. ## Jesus Raises the Son of the Widow of Nain 
+And those who were sent, returning to the house, found the servant well who had been sick.
+
+## Jesus Raises the Son of the Widow of Nain 
 
 ###### 11 
 Now it happened, the day after, _that_ He went into a city called Nain; and many of His disciples went with Him, and a large crowd. 
@@ -58,7 +60,9 @@ So he who was dead sat up and began to speak. And He presented him to his mother
 Then fear came upon all, and they glorified God, saying, "A great prophet has risen up among us"; and, "God has visited His people." 
 
 ###### 17 
-And this report about Him went throughout all Judea and all the surrounding region. ## John the Baptist Sends Messengers to Jesus 
+And this report about Him went throughout all Judea and all the surrounding region.
+
+## John the Baptist Sends Messengers to Jesus 
 
 ###### 18 
 Then the disciples of John reported to him concerning all these things. 

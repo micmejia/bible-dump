@@ -271,7 +271,9 @@ Ipasok ang tukod sa argolya sa bawat gilid ng altar para mabuhat ang altar.
 
 
 
-Ang ipapagawa mong altar ay tabla at dapat bakante sa loob. Ipagawa ito ayon sa planong sinabi ko sa iyo roon sa bundok. ## Ang Bakuran ng Toldang Sambahan 
+Ang ipapagawa mong altar ay tabla at dapat bakante sa loob. Ipagawa ito ayon sa planong sinabi ko sa iyo roon sa bundok.
+
+## Ang Bakuran ng Toldang Sambahan 
 
 
 
@@ -634,7 +636,9 @@ Ang buong sukat ng bakuran ay 150 talampakan ang haba at 75 talampakan ang lapad
 
 
 
-Kailangang purong tanso ang lahat ng kagamitan sa Toldang Sambahan pati na ang lahat ng tulos ng Tolda at sa bakuran nito. ## Ang Pangangalaga sa Ilawan ng Toldang Sambahan 
+Kailangang purong tanso ang lahat ng kagamitan sa Toldang Sambahan pati na ang lahat ng tulos ng Tolda at sa bakuran nito.
+
+## Ang Pangangalaga sa Ilawan ng Toldang Sambahan 
 
 
 

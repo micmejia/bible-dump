@@ -138,7 +138,9 @@ Enoc, Metusela, Lamec at Noe.
 
 
 
-<i class="trans-change">Ang mga anak na lalaki ni_ Noe <i class="trans-change">ay sina_ Shem, Ham at Jafet. ## Ang Lahi ni Jafet 
+<i class="trans-change">Ang mga anak na lalaki ni_ Noe <i class="trans-change">ay sina_ Shem, Ham at Jafet.
+
+## Ang Lahi ni Jafet 
 
 
 
@@ -237,7 +239,9 @@ Si Gomer ay may mga anak din na lalaki na sina Ashkenaz, Rifat, at Togarma.
 
 
 
-Ang mga anak na lalaki ni Javan ay sina Elisha, Tarshish, Kitim at Rodanim. ## Ang Lahi ni Ham 
+Ang mga anak na lalaki ni Javan ay sina Elisha, Tarshish, Kitim at Rodanim.
+
+## Ang Lahi ni Ham 
 
 
 
@@ -534,7 +538,9 @@ Hiveo, Arkeo, Sineo,
 
 
 
-Arvadeo, Zemareo at Hamateo. ## Ang Lahi ni Shem 
+Arvadeo, Zemareo at Hamateo.
+
+## Ang Lahi ni Shem 
 
 
 
@@ -897,7 +903,9 @@ Serug, Nahor, Tera,
 
 
 
-at si Abram na siya ring si Abraham. ## Ang Lahi ni Abraham 
+at si Abram na siya ring si Abraham.
+
+## Ang Lahi ni Abraham 
 
 
 
@@ -1095,7 +1103,9 @@ Ang mga anak na lalaki ni Ketura na isa pang asawa ni Abraham ay sina Zimran, Jo
 
 
 
-Ang mga anak na lalaki ni Midian ay sina Efa, Efer, Hanoc, Abida at Eldaa. Silang lahat ang angkan ni Ketura. ## Ang Lahi ni Esau 
+Ang mga anak na lalaki ni Midian ay sina Efa, Efer, Hanoc, Abida at Eldaa. Silang lahat ang angkan ni Ketura.
+
+## Ang Lahi ni Esau 
 
 
 
@@ -1227,7 +1237,9 @@ Ang mga anak na lalaki ni Elifaz ay sina Teman, Omar, Zefo, Gatam, Kenaz at Amal
 
 
 
-Ang mga anak na lalaki ni Reuel ay sina Nahat, Zera, Shama at Miza. ## Ang mga Edomita 
+Ang mga anak na lalaki ni Reuel ay sina Nahat, Zera, Shama at Miza.
+
+## Ang mga Edomita 
 
 
 
@@ -1392,7 +1404,9 @@ Ang anak na lalaki ni Ana ay si Dishon. Ang mga anak na lalaki ni Dishon ay sina
 
 
 
-Ang mga anak na lalaki ni Ezer ay sina Bilhan, Zaavan at Akan. Ang mga anak na lalaki ni Dishan ay sina Uz at Aran. ## Ang mga Hari ng Edom 
+Ang mga anak na lalaki ni Ezer ay sina Bilhan, Zaavan at Akan. Ang mga anak na lalaki ni Dishan ay sina Uz at Aran.
+
+## Ang mga Hari ng Edom 
 
 
 

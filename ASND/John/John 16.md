@@ -139,7 +139,9 @@ Gagawin nila ang mga bagay na ito dahil hindi nila kilala ang Ama o ako.
 
 
 
-Pero sinasabi ko sa inyo ang mga ito para pagdating ng pag-uusig, maaalala nʼyong sinabi ko na ito sa inyo. ## Ang Gawain ng Banal na Espiritu "Hindi ko sinabi sa inyo ang mga bagay na ito noong una, dahil kasama nʼyo pa ako. 
+Pero sinasabi ko sa inyo ang mga ito para pagdating ng pag-uusig, maaalala nʼyong sinabi ko na ito sa inyo.
+
+## Ang Gawain ng Banal na Espiritu "Hindi ko sinabi sa inyo ang mga bagay na ito noong una, dahil kasama nʼyo pa ako. 
 
 
 
@@ -502,7 +504,9 @@ Pararangalan niya ako dahil sa akin manggagaling ang lahat ng ipapahayag niya sa
 
 
 
-Ang lahat ng nasa Ama ay nasa akin, kaya sinabi kong sa akin manggagaling ang lahat ng ipapahayag niya sa inyo. ## Mapapalitan ng Galak ang Kalungkutan 
+Ang lahat ng nasa Ama ay nasa akin, kaya sinabi kong sa akin manggagaling ang lahat ng ipapahayag niya sa inyo.
+
+## Mapapalitan ng Galak ang Kalungkutan 
 
 
 
@@ -799,7 +803,9 @@ Ganyan din kayo. Nalulungkot kayo ngayon, pero magagalak kayo sa araw na magkita
 
 
 
-Hanggang ngayon ay wala pa kayong hinihingi sa kanya sa aking pangalan. Humingi kayo at makakatanggap kayo, para malubos ang inyong kagalakan. ## Napagtagumpayan ni Jesus ang Kapangyarihan ng Mundo 
+Hanggang ngayon ay wala pa kayong hinihingi sa kanya sa aking pangalan. Humingi kayo at makakatanggap kayo, para malubos ang inyong kagalakan.
+
+## Napagtagumpayan ni Jesus ang Kapangyarihan ng Mundo 
 
 
 

@@ -832,7 +832,9 @@ Nang gabing dumating siya, nagpakita sa kanya ang Panginoon at sinabi, "Ako ang 
 
 
 
-Kaya gumawa ng altar si Isaac at sumamba sa Panginoon. Nagpatayo siya ng tolda sa lugar na iyon at nagpahukay ng balon sa kanyang mga alipin. ## Ang Kasunduan nina Isaac at Abimelec 
+Kaya gumawa ng altar si Isaac at sumamba sa Panginoon. Nagpatayo siya ng tolda sa lugar na iyon at nagpahukay ng balon sa kanyang mga alipin.
+
+## Ang Kasunduan nina Isaac at Abimelec 
 
 
 
@@ -1096,7 +1098,9 @@ Sa araw ding iyon, dumating ang mga alipin ni Isaac at ibinalita sa kanya na may
 
 
 
-Pinangalanan ni Isaac ang balon na iyon na Shiba. Kaya hanggang ngayon, ang lugar na iyon ay tinatawag na Beersheba. ## Nag-asawa si Esau ng Hindi Nila Kalahi 
+Pinangalanan ni Isaac ang balon na iyon na Shiba. Kaya hanggang ngayon, ang lugar na iyon ay tinatawag na Beersheba.
+
+## Nag-asawa si Esau ng Hindi Nila Kalahi 
 
 
 

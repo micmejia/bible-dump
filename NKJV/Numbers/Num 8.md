@@ -19,7 +19,9 @@ And the Lord spoke to Moses, saying:
 And Aaron did so; he arranged the lamps to face toward the front of the lampstand, as the Lord commanded Moses. 
 
 ###### 4 
-Now this workmanship of the lampstand _was_ hammered gold; from its shaft to its flowers it _was_ hammered work. According to the pattern which the Lord had shown Moses, so he made the lampstand. ## Cleansing and Dedication of the Levites 
+Now this workmanship of the lampstand _was_ hammered gold; from its shaft to its flowers it _was_ hammered work. According to the pattern which the Lord had shown Moses, so he made the lampstand.
+
+## Cleansing and Dedication of the Levites 
 
 ###### 5 
 Then the Lord spoke to Moses, saying: 

@@ -46,7 +46,9 @@ But when they arrest _you_ and deliver you up, do not worry beforehand, or preme
 Now brother will betray brother to death, and a father _his_ child; and children will rise up against parents and cause them to be put to death. 
 
 ###### 13 
-And you will be hated by all for My name's sake. But he who endures to the end shall be saved. ## The Great Tribulation 
+And you will be hated by all for My name's sake. But he who endures to the end shall be saved.
+
+## The Great Tribulation 
 
 ###### 14 
 "So when you see the 'abomination of desolation,' spoken of by Daniel the prophet, standing where it ought not" (let the reader understand), "then let those who are in Judea flee to the mountains. 
@@ -76,7 +78,9 @@ And unless the Lord had shortened those days, no flesh would be saved; but for t
 For false christs and false prophets will rise and show signs and wonders to deceive, if possible, even the elect. 
 
 ###### 23 
-But take heed; see, I have told you all things beforehand. ## The Coming of the Son of Man 
+But take heed; see, I have told you all things beforehand.
+
+## The Coming of the Son of Man 
 
 ###### 24 
 "But in those days, after that tribulation, the sun will be darkened, and the moon will not give its light; 
@@ -88,7 +92,9 @@ the stars of heaven will fall, and the powers in the heavens will be shaken.
 Then they will see the Son of Man coming in the clouds with great power and glory. 
 
 ###### 27 
-And then He will send His angels, and gather together His elect from the four winds, from the farthest part of earth to the farthest part of heaven. ## The Parable of the Fig Tree 
+And then He will send His angels, and gather together His elect from the four winds, from the farthest part of earth to the farthest part of heaven.
+
+## The Parable of the Fig Tree 
 
 ###### 28 
 "Now learn this parable from the fig tree: When its branch has already become tender, and puts forth leaves, you know that summer is near. 
@@ -100,7 +106,9 @@ So you also, when you see these things happening, know that it is near--at the d
 Assuredly, I say to you, this generation will by no means pass away till all these things take place. 
 
 ###### 31 
-Heaven and earth will pass away, but My words will by no means pass away. ## No One Knows the Day or Hour 
+Heaven and earth will pass away, but My words will by no means pass away.
+
+## No One Knows the Day or Hour 
 
 ###### 32 
 "But of that day and hour no one knows, not even the angels in heaven, nor the Son, but only the Father. 

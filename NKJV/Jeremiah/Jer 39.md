@@ -37,7 +37,9 @@ And the Chaldeans burned the king's house and the houses of the people with fire
 Then Nebuzaradan the captain of the guard carried away captive to Babylon the remnant of the people who remained in the city and those who defected to him, with the rest of the people who remained. 
 
 ###### 10 
-But Nebuzaradan the captain of the guard left in the land of Judah the poor people, who had nothing, and gave them vineyards and fields at the same time. ## Jeremiah Goes Free 
+But Nebuzaradan the captain of the guard left in the land of Judah the poor people, who had nothing, and gave them vineyards and fields at the same time.
+
+## Jeremiah Goes Free 
 
 ###### 11 
 Now Nebuchadnezzar king of Babylon gave charge concerning Jeremiah to Nebuzaradan the captain of the guard, saying, 

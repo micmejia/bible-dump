@@ -28,7 +28,9 @@ And when a violent attempt was made by both the Gentiles and Jews, with their ru
 they became aware of it and fled to Lystra and Derbe, cities of Lycaonia, and to the surrounding region. 
 
 ###### 7 
-And they were preaching the gospel there. ## Idolatry at Lystra 
+And they were preaching the gospel there.
+
+## Idolatry at Lystra 
 
 ###### 8 
 And in Lystra a certain man without strength in his feet was sitting, a cripple from his mother's womb, who had never walked. 
@@ -61,13 +63,17 @@ who in bygone generations allowed all nations to walk in their own ways.
 Nevertheless He did not leave Himself without witness, in that He did good, gave us rain from heaven and fruitful seasons, filling our hearts with food and gladness." 
 
 ###### 18 
-And with these sayings they could scarcely restrain the multitudes from sacrificing to them. ## Stoning, Escape to Derbe 
+And with these sayings they could scarcely restrain the multitudes from sacrificing to them.
+
+## Stoning, Escape to Derbe 
 
 ###### 19 
 Then Jews from Antioch and Iconium came there; and having persuaded the multitudes, they stoned Paul _and_ dragged _him_ out of the city, supposing him to be dead. 
 
 ###### 20 
-However, when the disciples gathered around him, he rose up and went into the city. And the next day he departed with Barnabas to Derbe. ## Strengthening the Converts 
+However, when the disciples gathered around him, he rose up and went into the city. And the next day he departed with Barnabas to Derbe.
+
+## Strengthening the Converts 
 
 ###### 21 
 And when they had preached the gospel to that city and made many disciples, they returned to Lystra, Iconium, and Antioch, 

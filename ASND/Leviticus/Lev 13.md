@@ -1294,7 +1294,9 @@ Ang taong may sakit sa balat na nakakahawa ay dapat magsuot ng punit na damit, g
 
 
 
-Siyaʼy ituturing na marumi habang siyaʼy hindi gumagaling sa sakit niyang iyon. At dapat siyang tumirang nag-iisa sa labas ng kampo. ## Mga Tuntunin Tungkol sa Amag sa Damit <sup class="versenum">47-50</sup>Kung ang may sakit sa balat na nakakahawa ay magkakaroon ng amag sa damit na lana o linen o anumang gamit na yari sa balat, itoʼy dapat ipasuri sa pari. Pagkatapos suriin ng pari ang damit o balat, ibubukod niya iyon sa loob ng pitong araw. <sup class="versenum">51-52</sup>Sa ikapitong araw, muli itong titingnan ng pari. At kung kumalat pa ang amag, ituturing na marumi ang damit o balat na iyon, at dapat sunugin dahil ang amag na ito ay kumakalat 
+Siyaʼy ituturing na marumi habang siyaʼy hindi gumagaling sa sakit niyang iyon. At dapat siyang tumirang nag-iisa sa labas ng kampo.
+
+## Mga Tuntunin Tungkol sa Amag sa Damit <sup class="versenum">47-50</sup>Kung ang may sakit sa balat na nakakahawa ay magkakaroon ng amag sa damit na lana o linen o anumang gamit na yari sa balat, itoʼy dapat ipasuri sa pari. Pagkatapos suriin ng pari ang damit o balat, ibubukod niya iyon sa loob ng pitong araw. <sup class="versenum">51-52</sup>Sa ikapitong araw, muli itong titingnan ng pari. At kung kumalat pa ang amag, ituturing na marumi ang damit o balat na iyon, at dapat sunugin dahil ang amag na ito ay kumakalat 
 
 
 

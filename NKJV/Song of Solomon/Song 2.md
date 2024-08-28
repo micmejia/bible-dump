@@ -28,7 +28,9 @@ Sustain me with cakes of raisins, Refresh me with apples, For I _am_ lovesick.
 His left hand _is_ under my head, And his right hand embraces me. 
 
 ###### 7 
-I charge you, O daughters of Jerusalem, By the gazelles or by the does of the field, Do not stir up nor awaken love Until it pleases. ## The Beloved's Request 
+I charge you, O daughters of Jerusalem, By the gazelles or by the does of the field, Do not stir up nor awaken love Until it pleases.
+
+## The Beloved's Request 
 
 ###### 8 
 The voice of my beloved! Behold, he comes Leaping upon the mountains, Skipping upon the hills. 

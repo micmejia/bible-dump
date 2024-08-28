@@ -85,7 +85,9 @@ So the cook took up the thigh with its upper part and set _it_ before Saul. And 
 When they had come down from the high place into the city, _Samuel_ spoke with Saul on the top of the house. 
 
 ###### 26 
-They arose early; and it was about the dawning of the day that Samuel called to Saul on the top of the house, saying, "Get up, that I may send you on your way." And Saul arose, and both of them went outside, he and Samuel. ## Saul Anointed King 
+They arose early; and it was about the dawning of the day that Samuel called to Saul on the top of the house, saying, "Get up, that I may send you on your way." And Saul arose, and both of them went outside, he and Samuel.
+
+## Saul Anointed King 
 
 ###### 27 
 As they were going down to the outskirts of the city, Samuel said to Saul, "Tell the servant to go on ahead of us." And he went on. "But you stand here awhile, that I may announce to you the word of God."

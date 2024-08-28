@@ -13,7 +13,9 @@ next: ['Heb 13']
 Therefore we also, since we are surrounded by so great a cloud of witnesses, let us lay aside every weight, and the sin which so easily ensnares _us,_ and let us run with endurance the race that is set before us, 
 
 ###### 2 
-looking unto Jesus, the author and finisher of _our_ faith, who for the joy that was set before Him endured the cross, despising the shame, and has sat down at the right hand of the throne of God. ## The Discipline of God 
+looking unto Jesus, the author and finisher of _our_ faith, who for the joy that was set before Him endured the cross, despising the shame, and has sat down at the right hand of the throne of God.
+
+## The Discipline of God 
 
 ###### 3 
 For consider Him who endured such hostility from sinners against Himself, lest you become weary and discouraged in your souls. 
@@ -40,7 +42,9 @@ Furthermore, we have had human fathers who corrected _us,_ and we paid _them_ re
 For they indeed for a few days chastened _us_ as seemed _best_ to them, but He for _our_ profit, that _we_ may be partakers of His holiness. 
 
 ###### 11 
-Now no chastening seems to be joyful for the present, but painful; nevertheless, afterward it yields the peaceable fruit of righteousness to those who have been trained by it. ## Renew Your Spiritual Vitality 
+Now no chastening seems to be joyful for the present, but painful; nevertheless, afterward it yields the peaceable fruit of righteousness to those who have been trained by it.
+
+## Renew Your Spiritual Vitality 
 
 ###### 12 
 Therefore strengthen the hands which hang down, and the feeble knees, 
@@ -58,7 +62,9 @@ looking carefully lest anyone fall short of the grace of God; lest any root of b
 lest there _be_ any fornicator or profane person like Esau, who for one morsel of food sold his birthright. 
 
 ###### 17 
-For you know that afterward, when he wanted to inherit the blessing, he was rejected, for he found no place for repentance, though he sought it diligently with tears. ## The Glorious Company 
+For you know that afterward, when he wanted to inherit the blessing, he was rejected, for he found no place for repentance, though he sought it diligently with tears.
+
+## The Glorious Company 
 
 ###### 18 
 For you have not come to the mountain that may be touched and that burned with fire, and to blackness and darkness and tempest, 
@@ -79,7 +85,9 @@ But you have come to Mount Zion and to the city of the living God, the heavenly 
 to the general assembly and church of the firstborn _who are_ registered in heaven, to God the Judge of all, to the spirits of just men made perfect, 
 
 ###### 24 
-to Jesus the Mediator of the new covenant, and to the blood of sprinkling that speaks better things than _that of_ Abel. ## Hear the Heavenly Voice 
+to Jesus the Mediator of the new covenant, and to the blood of sprinkling that speaks better things than _that of_ Abel.
+
+## Hear the Heavenly Voice 
 
 ###### 25 
 See that you do not refuse Him who speaks. For if they did not escape who refused Him who spoke on earth, much more _shall we not escape_ if we turn away from Him who _speaks_ from heaven, 

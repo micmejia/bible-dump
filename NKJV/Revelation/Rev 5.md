@@ -28,7 +28,9 @@ But one of the elders said to me, "Do not weep. Behold, the Lion of the tribe of
 And I looked, and behold, in the midst of the throne and of the four living creatures, and in the midst of the elders, stood a Lamb as though it had been slain, having seven horns and seven eyes, which are the seven Spirits of God sent out into all the earth. 
 
 ###### 7 
-Then He came and took the scroll out of the right hand of Him who sat on the throne. ## Worthy Is the Lamb 
+Then He came and took the scroll out of the right hand of Him who sat on the throne.
+
+## Worthy Is the Lamb 
 
 ###### 8 
 Now when He had taken the scroll, the four living creatures and the twenty-four elders fell down before the Lamb, each having a harp, and golden bowls full of incense, which are the prayers of the saints. 

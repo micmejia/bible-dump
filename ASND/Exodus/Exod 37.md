@@ -205,7 +205,9 @@ Ikinabit nila ang mga argolya sa bawat gilid ng Kahon para mabuhat ang Kahon sa 
 
 
 
-Ginawaan din nila ang Kahon ng takip na purong ginto. May 45 pulgada ang haba at 27 pulgada ang lapad. ###### 7-8 Gumawa rin sila ng dalawang gintong kerubin, at inilagay sa bawat dulo ng takip ng Kahon. 
+Ginawaan din nila ang Kahon ng takip na purong ginto. May 45 pulgada ang haba at 27 pulgada ang lapad.
+
+###### 7-8 Gumawa rin sila ng dalawang gintong kerubin, at inilagay sa bawat dulo ng takip ng Kahon. 
 
 
 
@@ -238,7 +240,9 @@ Ginawaan din nila ang Kahon ng takip na purong ginto. May 45 pulgada ang haba at
 
 
 
-Nakalukob ang mga pakpak ng mga kerubin sa ibabaw ng takip para maliliman nila ito. Magkaharap ang dalawang kerubin at nakatingin sa takip. ## Ang Paggawa ng Mesa na Nilalagyan ng Tinapay 
+Nakalukob ang mga pakpak ng mga kerubin sa ibabaw ng takip para maliliman nila ito. Magkaharap ang dalawang kerubin at nakatingin sa takip.
+
+## Ang Paggawa ng Mesa na Nilalagyan ng Tinapay 
 
 
 
@@ -469,7 +473,9 @@ Gawa sa akasya ang mga tukod na ito at nababalot ng ginto.
 
 
 
-Gumawa rin sila ng mga kagamitang purong ginto para sa mesa: pinggan, tasa, mangkok at banga na gagamitin para sa mga handog na inumin. ## Ang Paggawa ng Lalagyan ng Ilaw 
+Gumawa rin sila ng mga kagamitang purong ginto para sa mesa: pinggan, tasa, mangkok at banga na gagamitin para sa mga handog na inumin.
+
+## Ang Paggawa ng Lalagyan ng Ilaw 
 
 
 
@@ -733,7 +739,9 @@ Gumawa rin sila ng pitong ilaw, mga panggupit ng mitsa nito, at mga pansahod sa 
 
 
 
-Ang nagamit sa paggawa ng lalagyan ng ilaw at ng lahat ng kagamitan nito ay 35 kilong purong ginto. ## Ang Paggawa ng Altar na Pagsusunugan ng Insenso 
+Ang nagamit sa paggawa ng lalagyan ng ilaw at ng lahat ng kagamitan nito ay 35 kilong purong ginto.
+
+## Ang Paggawa ng Altar na Pagsusunugan ng Insenso 
 
 
 

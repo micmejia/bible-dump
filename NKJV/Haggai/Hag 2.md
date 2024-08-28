@@ -48,7 +48,9 @@ On the twenty-fourth _day_ of the ninth _month,_ in the second year of Darius, t
 And Haggai said, "If _one who is_ unclean _because_ of a dead body touches any of these, will it be unclean?" So the priests answered and said, "It shall be unclean." 
 
 ###### 14 
-Then Haggai answered and said, " 'So is this people, and so is this nation before Me,' says the Lord, 'and so is every work of their hands; and what they offer there is unclean. ## Promised Blessing 
+Then Haggai answered and said, " 'So is this people, and so is this nation before Me,' says the Lord, 'and so is every work of their hands; and what they offer there is unclean.
+
+## Promised Blessing 
 
 ###### 15 
 'And now, carefully consider from this day forward: from before stone was laid upon stone in the temple of the Lord-- 

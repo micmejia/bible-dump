@@ -238,7 +238,9 @@ Katulad ni Sara, sinunod niya si Abraham at tinawag pa niyang "panginoon." Mga a
 
 
 
-Kayo namang mga lalaki, pakisamahan ninyong mabuti ang inyong asawa, dahil ito ang nararapat bilang isang Cristiano. Igalang nʼyo sila bilang mga babaeng mas mahina kaysa sa inyo, dahil binigyan din sila ng Dios ng buhay <i class="trans-change">na walang hanggan_ katulad ninyo. Kapag ginawa nʼyo ito, sasagutin <i class="trans-change">ng Dios_ ang mga panalangin ninyo. ## Magmahalan Kayong Lahat 
+Kayo namang mga lalaki, pakisamahan ninyong mabuti ang inyong asawa, dahil ito ang nararapat bilang isang Cristiano. Igalang nʼyo sila bilang mga babaeng mas mahina kaysa sa inyo, dahil binigyan din sila ng Dios ng buhay <i class="trans-change">na walang hanggan_ katulad ninyo. Kapag ginawa nʼyo ito, sasagutin <i class="trans-change">ng Dios_ ang mga panalangin ninyo.
+
+## Magmahalan Kayong Lahat 
 
 
 

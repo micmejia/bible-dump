@@ -70,7 +70,9 @@ then it will be, when you eat of the bread of the land, that you shall offer up 
 You shall offer up a cake of the first of your ground meal _as_ a heave offering; as a heave offering of the threshing floor, so shall you offer it up. 
 
 ###### 21 
-Of the first of your ground meal you shall give to the Lord a heave offering throughout your generations. ## Laws Concerning Unintentional Sin 
+Of the first of your ground meal you shall give to the Lord a heave offering throughout your generations.
+
+## Laws Concerning Unintentional Sin 
 
 ###### 22 
 'If you sin unintentionally, and do not observe all these commandments which the Lord has spoken to Moses-- 
@@ -94,7 +96,9 @@ It shall be forgiven the whole congregation of the children of Israel and the st
 So the priest shall make atonement for the person who sins unintentionally, when he sins unintentionally before the Lord, to make atonement for him; and it shall be forgiven him. 
 
 ###### 29 
-You shall have one law for him who sins unintentionally, _for_ him who is native-born among the children of Israel and for the stranger who dwells among them. ## Law Concerning Presumptuous Sin 
+You shall have one law for him who sins unintentionally, _for_ him who is native-born among the children of Israel and for the stranger who dwells among them.
+
+## Law Concerning Presumptuous Sin 
 
 ###### 30 
 'But the person who does _anything_ presumptuously, _whether he is_ native-born or a stranger, that one brings reproach on the Lord, and he shall be cut off from among his people. 
@@ -115,7 +119,9 @@ They put him under guard, because it had not been explained what should be done 
 Then the Lord said to Moses, "The man must surely be put to death; all the congregation shall stone him with stones outside the camp." 
 
 ###### 36 
-So, as the Lord commanded Moses, all the congregation brought him outside the camp and stoned him with stones, and he died. ## Tassels on Garments 
+So, as the Lord commanded Moses, all the congregation brought him outside the camp and stoned him with stones, and he died.
+
+## Tassels on Garments 
 
 ###### 37 
 Again the Lord spoke to Moses, saying, 

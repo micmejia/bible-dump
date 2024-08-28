@@ -9,7 +9,9 @@ next: ['Zeph 2']
 
 
 ###### 1 
-The word of the Lord which came to Zephaniah the son of Cushi, the son of Gedaliah, the son of Amariah, the son of Hezekiah, in the days of Josiah the son of Amon, king of Judah. ## The Great Day of the Lord 
+The word of the Lord which came to Zephaniah the son of Cushi, the son of Gedaliah, the son of Amariah, the son of Hezekiah, in the days of Josiah the son of Amon, king of Judah.
+
+## The Great Day of the Lord 
 
 ###### 2 
 "I will utterly consume everything From the face of the land," Says the Lord; 

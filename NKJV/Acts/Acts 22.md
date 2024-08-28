@@ -94,7 +94,9 @@ Then the commander came and said to him, "Tell me, are you a Roman?" He said, "Y
 The commander answered, "With a large sum I obtained this citizenship." And Paul said, "But I was born _a citizen._" 
 
 ###### 29 
-Then immediately those who were about to examine him withdrew from him; and the commander was also afraid after he found out that he was a Roman, and because he had bound him. ## The Sanhedrin Divided 
+Then immediately those who were about to examine him withdrew from him; and the commander was also afraid after he found out that he was a Roman, and because he had bound him.
+
+## The Sanhedrin Divided 
 
 ###### 30 
 The next day, because he wanted to know for certain why he was accused by the Jews, he released him from _his_ bonds, and commanded the chief priests and all their council to appear, and brought Paul down and set him before them.

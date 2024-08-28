@@ -105,7 +105,9 @@ Ngunit nitong mga huling araw, nangusap siya sa atin sa pamamagitan ng kanyang A
 
 
 
-Sa kanya makikita ang nagniningning na kadakilaan ng Dios, at kung ano ang Dios ay ganoon din siya. Siya ang nag-iingat sa lahat ng bagay sa mundo sa pamamagitan ng makapangyarihan niyang salita. Matapos niya tayong linisin sa ating mga kasalanan, umupo siya sa kanan ng Makapangyarihang Dios doon sa langit. ## Mas Dakila ang Anak ng Dios Kaysa sa Mga Anghel 
+Sa kanya makikita ang nagniningning na kadakilaan ng Dios, at kung ano ang Dios ay ganoon din siya. Siya ang nag-iingat sa lahat ng bagay sa mundo sa pamamagitan ng makapangyarihan niyang salita. Matapos niya tayong linisin sa ating mga kasalanan, umupo siya sa kanan ng Makapangyarihang Dios doon sa langit.
+
+## Mas Dakila ang Anak ng Dios Kaysa sa Mga Anghel 
 
 
 

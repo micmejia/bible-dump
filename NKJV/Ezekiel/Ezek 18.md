@@ -61,7 +61,9 @@ Has not oppressed anyone, Nor withheld a pledge, Nor robbed by violence, _But_ h
 _Who_ has withdrawn his hand from the poor _And_ not received usury or increase, But has executed My judgments And walked in My statutes-- He shall not die for the iniquity of his father; He shall surely live! 
 
 ###### 18 
-"_As for_ his father, Because he cruelly oppressed, Robbed his brother by violence, And did what _is_ not good among his people, Behold, he shall die for his iniquity. ## Turn and Live 
+"_As for_ his father, Because he cruelly oppressed, Robbed his brother by violence, And did what _is_ not good among his people, Behold, he shall die for his iniquity.
+
+## Turn and Live 
 
 ###### 19 
 "Yet you say, 'Why should the son not bear the guilt of the father?' Because the son has done what is lawful and right, and has kept all My statutes and observed them, he shall surely live. 

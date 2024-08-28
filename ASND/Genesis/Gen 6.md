@@ -271,7 +271,9 @@ kaya sinabi niya, "Lilipulin ko ang lahat ng taong nilikha ko sa buong lupain. A
 
 
 
-Pero may isang tao na nakapagbigay-lugod sa Panginoon, siya ay si Noe. ## Si Noe 
+Pero may isang tao na nakapagbigay-lugod sa Panginoon, siya ay si Noe.
+
+## Si Noe 
 
 
 

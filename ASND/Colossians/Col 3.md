@@ -139,7 +139,9 @@ Sapagkat namatay na kayo <i class="trans-change">sa dati nʼyong buhay_, at ang 
 
 
 
-Si Cristo ang buhay ninyo, at kapag dumating na ang panahon na nahayag na siya, mahahayag din kayo at makikibahagi sa kapangyarihan niya at karangalan. ## Ang Dati at ang Bagong Buhay 
+Si Cristo ang buhay ninyo, at kapag dumating na ang panahon na nahayag na siya, mahahayag din kayo at makikibahagi sa kapangyarihan niya at karangalan.
+
+## Ang Dati at ang Bagong Buhay 
 
 
 
@@ -568,7 +570,9 @@ Itanim ninyong mabuti sa mga puso nʼyo ang mga aral ni Cristo. Paalalahanan at 
 
 
 
-At anuman ang ginagawa nʼyo, sa salita man o sa gawa, gawin nʼyo ang lahat bilang mananampalataya sa Panginoong Jesus, at magpasalamat kayo sa Dios Ama sa pamamagitan niya. ## Ang Mabuting Relasyon sa Kapwa 
+At anuman ang ginagawa nʼyo, sa salita man o sa gawa, gawin nʼyo ang lahat bilang mananampalataya sa Panginoong Jesus, at magpasalamat kayo sa Dios Ama sa pamamagitan niya.
+
+## Ang Mabuting Relasyon sa Kapwa 
 
 
 

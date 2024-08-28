@@ -9,7 +9,9 @@ next: ['Hos 2']
 
 
 ###### 1 
-The word of the Lord that came to Hosea the son of Beeri, in the days of Uzziah, Jotham, Ahaz, _and_ Hezekiah, kings of Judah, and in the days of Jeroboam the son of Joash, king of Israel. ## The Family of Hosea 
+The word of the Lord that came to Hosea the son of Beeri, in the days of Uzziah, Jotham, Ahaz, _and_ Hezekiah, kings of Judah, and in the days of Jeroboam the son of Joash, king of Israel.
+
+## The Family of Hosea 
 
 ###### 2 
 When the Lord began to speak by Hosea, the Lord said to Hosea: "Go, take yourself a wife of harlotry And children of harlotry, For the land has committed great harlotry _By departing_ from the Lord." 
@@ -33,7 +35,9 @@ Yet I will have mercy on the house of Judah, Will save them by the Lord their Go
 Now when she had weaned Lo-Ruhamah, she conceived and bore a son. 
 
 ###### 9 
-Then _God_ said: "Call his name Lo-Ammi, For you _are_ not My people, And I will not be your _God._ ## The Restoration of Israel 
+Then _God_ said: "Call his name Lo-Ammi, For you _are_ not My people, And I will not be your _God._
+
+## The Restoration of Israel 
 
 ###### 10 
 "Yet the number of the children of Israel Shall be as the sand of the sea, Which cannot be measured or numbered. And it shall come to pass In the place where it was said to them, 'You _are_ not My people,' _There_ it shall be said to them, '_You are_ sons of the living God.' 

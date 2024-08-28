@@ -31,7 +31,9 @@ So _we are_ always confident, knowing that while we are at home in the body we a
 For we walk by faith, not by sight. 
 
 ###### 8 
-We are confident, yes, well pleased rather to be absent from the body and to be present with the Lord. ## The Judgment Seat of Christ 
+We are confident, yes, well pleased rather to be absent from the body and to be present with the Lord.
+
+## The Judgment Seat of Christ 
 
 ###### 9 
 Therefore we make it our aim, whether present or absent, to be well pleasing to Him. 
@@ -40,7 +42,9 @@ Therefore we make it our aim, whether present or absent, to be well pleasing to 
 For we must all appear before the judgment seat of Christ, that each one may receive the things _done_ in the body, according to what he has done, whether good or bad. 
 
 ###### 11 
-Knowing, therefore, the terror of the Lord, we persuade men; but we are well known to God, and I also trust are well known in your consciences. ## Be Reconciled to God 
+Knowing, therefore, the terror of the Lord, we persuade men; but we are well known to God, and I also trust are well known in your consciences.
+
+## Be Reconciled to God 
 
 ###### 12 
 For we do not commend ourselves again to you, but give you opportunity to boast on our behalf, that you may have _an answer_ for those who boast in appearance and not in heart. 

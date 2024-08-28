@@ -73,7 +73,9 @@ For the bed is too short to stretch out _on,_ And the covering so narrow that on
 For the Lord will rise up as _at_ Mount Perazim, He will be angry as in the Valley of Gibeon-- That He may do His work, His awesome work, And bring to pass His act, His unusual act. 
 
 ###### 22 
-Now therefore, do not be mockers, Lest your bonds be made strong; For I have heard from the Lord God of hosts, A destruction determined even upon the whole earth. ## Listen to the Teaching of God 
+Now therefore, do not be mockers, Lest your bonds be made strong; For I have heard from the Lord God of hosts, A destruction determined even upon the whole earth.
+
+## Listen to the Teaching of God 
 
 ###### 23 
 Give ear and hear my voice, Listen and hear my speech. 

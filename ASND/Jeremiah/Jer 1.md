@@ -105,7 +105,9 @@ Ibinigay ng Panginoon kay Jeremias ang kanyang mensahe noong ika-13 taon ng pagh
 
 
 
-Patuloy na nagbigay ng mensahe ang Panginoon kay Jeremias hanggang sa panahon ng paghahari ni Jehoyakim na anak ni Josia at hanggang sa ika-11 taon ng paghahari ni Zedekia na anak <i class="trans-change">rin_ ni Josia. Nang ikalimang buwan ng taon na iyon, binihag ang mga taga-Jerusalem. ## Ang Pagtawag kay Jeremias 
+Patuloy na nagbigay ng mensahe ang Panginoon kay Jeremias hanggang sa panahon ng paghahari ni Jehoyakim na anak ni Josia at hanggang sa ika-11 taon ng paghahari ni Zedekia na anak <i class="trans-change">rin_ ni Josia. Nang ikalimang buwan ng taon na iyon, binihag ang mga taga-Jerusalem.
+
+## Ang Pagtawag kay Jeremias 
 
 
 

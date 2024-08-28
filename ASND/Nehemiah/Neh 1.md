@@ -39,7 +39,9 @@ next: ['Neh 2']
 
 
 
-Ito ang salaysay tungkol sa mga ginawa ni Nehemias na anak ni Hacalia. ## Ang Pananalangin ni Nehemias para sa Jerusalem Noong <i class="trans-change">ikasiyam na buwan, ang_ buwan ng Kislev, nang ika-20 taon <i class="trans-change">ng paghahari ni Artaserses sa Persia,_ naroon ako sa palasyo sa Susa. 
+Ito ang salaysay tungkol sa mga ginawa ni Nehemias na anak ni Hacalia.
+
+## Ang Pananalangin ni Nehemias para sa Jerusalem Noong <i class="trans-change">ikasiyam na buwan, ang_ buwan ng Kislev, nang ika-20 taon <i class="trans-change">ng paghahari ni Artaserses sa Persia,_ naroon ako sa palasyo sa Susa. 
 
 
 

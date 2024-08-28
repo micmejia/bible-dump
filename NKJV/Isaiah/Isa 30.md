@@ -28,7 +28,9 @@ They were all ashamed of a people _who_ could not benefit them, Or be help or be
 The burden against the beasts of the South. Through a land of trouble and anguish, From which _came_ the lioness and lion, The viper and fiery flying serpent, They will carry their riches on the backs of young donkeys, And their treasures on the humps of camels, To a people _who_ shall not profit; 
 
 ###### 7 
-For the Egyptians shall help in vain and to no purpose. Therefore I have called her Rahab-Hem-Shebeth. ## A Rebellious People 
+For the Egyptians shall help in vain and to no purpose. Therefore I have called her Rahab-Hem-Shebeth.
+
+## A Rebellious People 
 
 ###### 8 
 Now go, write it before them on a tablet, And note it on a scroll, That it may be for time to come, Forever and ever: 
@@ -58,7 +60,9 @@ For thus says the Lord God, the Holy One of Israel: "In returning and rest you s
 And you said, "No, for we will flee on horses"-- Therefore you shall flee! And, "We will ride on swift _horses_"-- Therefore those who pursue you shall be swift! 
 
 ###### 17 
-One thousand _shall flee_ at the threat of one, At the threat of five you shall flee, Till you are left as a pole on top of a mountain And as a banner on a hill. ## God Will Be Gracious 
+One thousand _shall flee_ at the threat of one, At the threat of five you shall flee, Till you are left as a pole on top of a mountain And as a banner on a hill.
+
+## God Will Be Gracious 
 
 ###### 18 
 Therefore the Lord will wait, that He may be gracious to you; And therefore He will be exalted, that He may have mercy on you. For the Lord _is_ a God of justice; Blessed _are_ all those who wait for Him. 
@@ -85,7 +89,9 @@ Likewise the oxen and the young donkeys that work the ground Will eat cured fodd
 There will be on every high mountain And on every high hill Rivers _and_ streams of waters, In the day of the great slaughter, When the towers fall. 
 
 ###### 26 
-Moreover the light of the moon will be as the light of the sun, And the light of the sun will be sevenfold, As the light of seven days, In the day that the Lord binds up the bruise of His people And heals the stroke of their wound. ## Judgment on Assyria 
+Moreover the light of the moon will be as the light of the sun, And the light of the sun will be sevenfold, As the light of seven days, In the day that the Lord binds up the bruise of His people And heals the stroke of their wound.
+
+## Judgment on Assyria 
 
 ###### 27 
 Behold, the name of the Lord comes from afar, Burning _with_ His anger, And _His_ burden _is_ heavy; His lips are full of indignation, And His tongue like a devouring fire. 

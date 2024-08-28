@@ -138,7 +138,9 @@ At ngayon na ang panahon na itinakda niya upang maihayag ang kanyang salita tung
 
 
 
-<i class="trans-change">Mahal kong_ Tito, <i class="trans-change">aking_ tunay na anak sa iisang pananampalataya: Sumaiyo nawa ang biyaya at kapayapaang galing sa Dios Ama at sa ating Tagapagligtas na si Cristo Jesus. ## Ang mga Gawain ni Tito sa Crete 
+<i class="trans-change">Mahal kong_ Tito, <i class="trans-change">aking_ tunay na anak sa iisang pananampalataya: Sumaiyo nawa ang biyaya at kapayapaang galing sa Dios Ama at sa ating Tagapagligtas na si Cristo Jesus.
+
+## Ang mga Gawain ni Tito sa Crete 
 
 
 

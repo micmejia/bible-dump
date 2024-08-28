@@ -21,7 +21,9 @@ For if anyone thinks himself to be something, when he is nothing, he deceives hi
 But let each one examine his own work, and then he will have rejoicing in himself alone, and not in another. 
 
 ###### 5 
-For each one shall bear his own load. ## Be Generous and Do Good 
+For each one shall bear his own load.
+
+## Be Generous and Do Good 
 
 ###### 6 
 Let him who is taught the word share in all good things with him who teaches. 
@@ -36,7 +38,9 @@ For he who sows to his flesh will of the flesh reap corruption, but he who sows 
 And let us not grow weary while doing good, for in due season we shall reap if we do not lose heart. 
 
 ###### 10 
-Therefore, as we have opportunity, let us do good to all, especially to those who are of the household of faith. ## Glory Only in the Cross 
+Therefore, as we have opportunity, let us do good to all, especially to those who are of the household of faith.
+
+## Glory Only in the Cross 
 
 ###### 11 
 See with what large letters I have written to you with my own hand! 
@@ -51,7 +55,9 @@ For not even those who are circumcised keep the law, but they desire to have you
 But God forbid that I should boast except in the cross of our Lord Jesus Christ, by whom the world has been crucified to me, and I to the world. 
 
 ###### 15 
-For in Christ Jesus neither circumcision nor uncircumcision avails anything, but a new creation. ## Blessing and a Plea 
+For in Christ Jesus neither circumcision nor uncircumcision avails anything, but a new creation.
+
+## Blessing and a Plea 
 
 ###### 16 
 And as many as walk according to this rule, peace and mercy _be_ upon them, and upon the Israel of God. 

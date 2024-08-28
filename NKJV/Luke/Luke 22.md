@@ -25,7 +25,9 @@ So he went his way and conferred with the chief priests and captains, how he mig
 And they were glad, and agreed to give him money. 
 
 ###### 6 
-So he promised and sought opportunity to betray Him to them in the absence of the multitude. ## Jesus and His Disciples Prepare the Passover 
+So he promised and sought opportunity to betray Him to them in the absence of the multitude.
+
+## Jesus and His Disciples Prepare the Passover 
 
 ###### 7 
 Then came the Day of Unleavened Bread, when the Passover must be killed. 
@@ -46,7 +48,9 @@ Then you shall say to the master of the house, 'The Teacher says to you, "Where 
 Then he will show you a large, furnished upper room; there make ready." 
 
 ###### 13 
-So they went and found it just as He had said to them, and they prepared the Passover. ## Jesus Institutes the Lord's Supper 
+So they went and found it just as He had said to them, and they prepared the Passover.
+
+## Jesus Institutes the Lord's Supper 
 
 ###### 14 
 When the hour had come, He sat down, and the twelve apostles with Him. 
@@ -76,7 +80,9 @@ But behold, the hand of My betrayer _is_ with Me on the table.
 And truly the Son of Man goes as it has been determined, but woe to that man by whom He is betrayed!" 
 
 ###### 23 
-Then they began to question among themselves, which of them it was who would do this thing. ## The Disciples Argue About Greatness 
+Then they began to question among themselves, which of them it was who would do this thing.
+
+## The Disciples Argue About Greatness 
 
 ###### 24 
 Now there was also a dispute among them, as to which of them should be considered the greatest. 
@@ -193,7 +199,9 @@ But Peter said, "Man, I do not know what you are saying!" Immediately, while he 
 And the Lord turned and looked at Peter. Then Peter remembered the word of the Lord, how He had said to him, "Before the rooster crows, you will deny Me three times." 
 
 ###### 62 
-So Peter went out and wept bitterly. ## Jesus Mocked and Beaten 
+So Peter went out and wept bitterly.
+
+## Jesus Mocked and Beaten 
 
 ###### 63 
 Now the men who held Jesus mocked Him and beat Him. 
@@ -202,7 +210,9 @@ Now the men who held Jesus mocked Him and beat Him.
 And having blindfolded Him, they struck Him on the face and asked Him, saying, "Prophesy! Who is the one who struck You?" 
 
 ###### 65 
-And many other things they blasphemously spoke against Him. ## Jesus Faces the Sanhedrin 
+And many other things they blasphemously spoke against Him.
+
+## Jesus Faces the Sanhedrin 
 
 ###### 66 
 As soon as it was day, the elders of the people, both chief priests and scribes, came together and led Him into their council, saying, 

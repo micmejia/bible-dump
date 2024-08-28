@@ -13,7 +13,9 @@ next: ['1 Chr 3']
 These _were_ the sons of Israel: Reuben, Simeon, Levi, Judah, Issachar, Zebulun, 
 
 ###### 2 
-Dan, Joseph, Benjamin, Naphtali, Gad, and Asher. ## From Judah to David 
+Dan, Joseph, Benjamin, Naphtali, Gad, and Asher.
+
+## From Judah to David 
 
 ###### 3 
 The sons of Judah _were_ Er, Onan, and Shelah. _These_ three were born to him by the daughter of Shua, the Canaanitess. Er, the firstborn of Judah, was wicked in the sight of the Lord; so He killed him. 
@@ -58,7 +60,9 @@ Ozem the sixth, _and_ David the seventh.
 Now their sisters _were_ Zeruiah and Abigail. And the sons of Zeruiah _were_ Abishai, Joab, and Asahel--three. 
 
 ###### 17 
-Abigail bore Amasa; and the father of Amasa _was_ Jether the Ishmaelite. ## The Family of Hezron 
+Abigail bore Amasa; and the father of Amasa _was_ Jether the Ishmaelite.
+
+## The Family of Hezron 
 
 ###### 18 
 Caleb the son of Hezron had children by Azubah, _his_ wife, and by Jerioth. Now these were her sons: Jesher, Shobab, and Ardon. 
@@ -79,7 +83,9 @@ Segub begot Jair, who had twenty-three cities in the land of Gilead.
 (Geshur and Syria took from them the towns of Jair, with Kenath and its towns--sixty towns.) All these _belonged to_ the sons of Machir the father of Gilead. 
 
 ###### 24 
-After Hezron died in Caleb Ephrathah, Hezron's wife Abijah bore him Ashhur the father of Tekoa. ## The Family of Jerahmeel 
+After Hezron died in Caleb Ephrathah, Hezron's wife Abijah bore him Ashhur the father of Tekoa.
+
+## The Family of Jerahmeel 
 
 ###### 25 
 The sons of Jerahmeel, the firstborn of Hezron, _were_ Ram, the firstborn, and Bunah, Oren, Ozem, _and_ Ahijah. 
@@ -130,7 +136,9 @@ Azariah begot Helez, and Helez begot Eleasah;
 Eleasah begot Sismai, and Sismai begot Shallum; 
 
 ###### 41 
-Shallum begot Jekamiah, and Jekamiah begot Elishama. ## The Family of Caleb 
+Shallum begot Jekamiah, and Jekamiah begot Elishama.
+
+## The Family of Caleb 
 
 ###### 42 
 The descendants of Caleb the brother of Jerahmeel _were_ Mesha, his firstborn, who was the father of Ziph, and the sons of Mareshah the father of Hebron. 

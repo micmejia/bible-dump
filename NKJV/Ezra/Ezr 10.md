@@ -57,7 +57,9 @@ Only Jonathan the son of Asahel and Jahaziah the son of Tikvah opposed this, and
 Then the descendants of the captivity did so. And Ezra the priest, _with_ certain heads of the fathers' _households,_ were set apart by the fathers' households, each of them by name; and they sat down on the first day of the tenth month to examine the matter. 
 
 ###### 17 
-By the first day of the first month they finished _questioning_ all the men who had taken pagan wives. ## Pagan Wives Put Away 
+By the first day of the first month they finished _questioning_ all the men who had taken pagan wives.
+
+## Pagan Wives Put Away 
 
 ###### 18 
 And among the sons of the priests who had taken pagan wives _the following_ were found of the sons of Jeshua the son of Jozadak, and his brothers: Maaseiah, Eliezer, Jarib, and Gedaliah. 

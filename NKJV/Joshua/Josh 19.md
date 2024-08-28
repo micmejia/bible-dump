@@ -34,7 +34,9 @@ Ain, Rimmon, Ether, and Ashan: four cities and their villages;
 and all the villages that _were_ all around these cities as far as Baalath Beer, Ramah of the South. This _was_ the inheritance of the tribe of the children of Simeon according to their families. 
 
 ###### 9 
-The inheritance of the children of Simeon _was included_ in the share of the children of Judah, for the share of the children of Judah was too much for them. Therefore the children of Simeon had _their_ inheritance within the inheritance of that people. ## The Land of Zebulun 
+The inheritance of the children of Simeon _was included_ in the share of the children of Judah, for the share of the children of Judah was too much for them. Therefore the children of Simeon had _their_ inheritance within the inheritance of that people.
+
+## The Land of Zebulun 
 
 ###### 10 
 The third lot came out for the children of Zebulun according to their families, and the border of their inheritance was as far as Sarid. 
@@ -55,7 +57,9 @@ Then the border went around it on the north side of Hannathon, and it ended in t
 Included were Kattath, Nahallal, Shimron, Idalah, and Bethlehem: twelve cities with their villages. 
 
 ###### 16 
-This _was_ the inheritance of the children of Zebulun according to their families, these cities with their villages. ## The Land of Issachar 
+This _was_ the inheritance of the children of Zebulun according to their families, these cities with their villages.
+
+## The Land of Issachar 
 
 ###### 17 
 The fourth lot came out to Issachar, for the children of Issachar according to their families. 
@@ -76,7 +80,9 @@ Remeth, En Gannim, En Haddah, and Beth Pazzez.
 And the border reached to Tabor, Shahazimah, and Beth Shemesh; their border ended at the Jordan: sixteen cities with their villages. 
 
 ###### 23 
-This _was_ the inheritance of the tribe of the children of Issachar according to their families, the cities and their villages. ## The Land of Asher 
+This _was_ the inheritance of the tribe of the children of Issachar according to their families, the cities and their villages.
+
+## The Land of Asher 
 
 ###### 24 
 The fifth lot came out for the tribe of the children of Asher according to their families. 
@@ -100,7 +106,9 @@ And the border turned to Ramah and to the fortified city of Tyre; then the borde
 Also Ummah, Aphek, and Rehob _were included:_ twenty-two cities with their villages. 
 
 ###### 31 
-This _was_ the inheritance of the tribe of the children of Asher according to their families, these cities with their villages. ## The Land of Naphtali 
+This _was_ the inheritance of the tribe of the children of Asher according to their families, these cities with their villages.
+
+## The Land of Naphtali 
 
 ###### 32 
 The sixth lot came out to the children of Naphtali, for the children of Naphtali according to their families. 
@@ -124,7 +132,9 @@ Kedesh, Edrei, En Hazor,
 Iron, Migdal El, Horem, Beth Anath, and Beth Shemesh: nineteen cities with their villages. 
 
 ###### 39 
-This _was_ the inheritance of the tribe of the children of Naphtali according to their families, the cities and their villages. ## The Land of Dan 
+This _was_ the inheritance of the tribe of the children of Naphtali according to their families, the cities and their villages.
+
+## The Land of Dan 
 
 ###### 40 
 The seventh lot came out for the tribe of the children of Dan according to their families. 
@@ -151,7 +161,9 @@ Me Jarkon, and Rakkon, with the region near Joppa.
 And the border of the children of Dan went beyond these, because the children of Dan went up to fight against Leshem and took it; and they struck it with the edge of the sword, took possession of it, and dwelt in it. They called Leshem, Dan, after the name of Dan their father. 
 
 ###### 48 
-This _is_ the inheritance of the tribe of the children of Dan according to their families, these cities with their villages. ## Joshua's Inheritance 
+This _is_ the inheritance of the tribe of the children of Dan according to their families, these cities with their villages.
+
+## Joshua's Inheritance 
 
 ###### 49 
 When they had made an end of dividing the land as an inheritance according to their borders, the children of Israel gave an inheritance among them to Joshua the son of Nun. 

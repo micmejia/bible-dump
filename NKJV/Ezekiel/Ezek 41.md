@@ -40,10 +40,14 @@ The thickness of the outer wall of the side chambers _was_ five cubits, and so a
 And between _it and_ the _wall_ chambers was a width of twenty cubits all around the temple on every side. 
 
 ###### 11 
-The doors of the side chambers opened on the terrace, one door toward the north and another toward the south; and the width of the terrace _was_ five cubits all around. ## The Building at the Western End 
+The doors of the side chambers opened on the terrace, one door toward the north and another toward the south; and the width of the terrace _was_ five cubits all around.
+
+## The Building at the Western End 
 
 ###### 12 
-The building that faced the separating courtyard at its western end _was_ seventy cubits wide; the wall of the building _was_ five cubits thick all around, and its length ninety cubits. ## Dimensions and Design of the Temple Area 
+The building that faced the separating courtyard at its western end _was_ seventy cubits wide; the wall of the building _was_ five cubits thick all around, and its length ninety cubits.
+
+## Dimensions and Design of the Temple Area 
 
 ###### 13 
 So he measured the temple, one hundred cubits long; and the separating courtyard with the building and its walls _was_ one hundred cubits long; 

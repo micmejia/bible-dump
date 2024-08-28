@@ -238,7 +238,9 @@ Tingnan ninyo kung ano ang nangyari sa <i class="trans-change">lungsod ng_ Calne
 
 
 
-Kaya kayong mga pinuno ang unang bibihagin at matitigil na ang inyong mga pagpipista at pagwawalang-bahala. ## Kinamumuhian ng Panginoon ang Pagmamataas ng Israel 
+Kaya kayong mga pinuno ang unang bibihagin at matitigil na ang inyong mga pagpipista at pagwawalang-bahala.
+
+## Kinamumuhian ng Panginoon ang Pagmamataas ng Israel 
 
 
 

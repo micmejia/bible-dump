@@ -39,7 +39,9 @@ next: ['Zech 2']
 
 
 
-May sinabi ang Panginoon kay Propeta Zacarias noong ikawalong buwan ng ikalawang taon ng paghahari ni Darius <i class="trans-change">sa Persia_. Si Zacarias ay anak ni Berekia na anak ni Iddo. ###### 2-3 Inutusan ng Panginoong Makapangyarihan si Zacarias na sabihin ito sa mga mamamayan <i class="trans-change">ng Israel_: "Matindi ang galit ko sa inyong mga ninuno. Kaya magbalik-loob na kayo sa akin at manunumbalik ako sa inyo. 
+May sinabi ang Panginoon kay Propeta Zacarias noong ikawalong buwan ng ikalawang taon ng paghahari ni Darius <i class="trans-change">sa Persia_. Si Zacarias ay anak ni Berekia na anak ni Iddo.
+
+###### 2-3 Inutusan ng Panginoong Makapangyarihan si Zacarias na sabihin ito sa mga mamamayan <i class="trans-change">ng Israel_: "Matindi ang galit ko sa inyong mga ninuno. Kaya magbalik-loob na kayo sa akin at manunumbalik ako sa inyo. 
 
 
 
@@ -138,7 +140,9 @@ Ang inyong mga ninuno at ang mga propetang iyon ay namatay na.
 
 
 
-Ngunit nangyari sa inyong mga ninuno ang aking mga sinabi at mga babala sa pamamagitan ng aking mga lingkod na propeta. Kaya nagsisi sila at sinabi, 'Pinarusahan tayo ng Panginoong Makapangyarihan ayon sa ating ginawa, gaya ng kanyang napagpasyahang gawin sa atin.' " ## Ang Pangitain tungkol sa mga Kabayo ###### 7-8 May sinabi ang Panginoon kay Zacarias sa pamamagitan ng isang pangitain. Nangyari ito noong gabi ng ika-24, buwan ng Shebat (ika-11 buwan), noong ikalawang taon ng paghahari ni Darius. <i class="trans-change">At ito ang ipinahayag ni Zacarias:_ Nakita ko ang isang tao na nakasakay sa kabayong kulay pula na nakatigil sa isang patag na lugar na may mga puno ng mirto. Sa likuran niya ay may <i class="trans-change">nakasakay sa_ kabayong pula, kayumanggi, at puti. 
+Ngunit nangyari sa inyong mga ninuno ang aking mga sinabi at mga babala sa pamamagitan ng aking mga lingkod na propeta. Kaya nagsisi sila at sinabi, 'Pinarusahan tayo ng Panginoong Makapangyarihan ayon sa ating ginawa, gaya ng kanyang napagpasyahang gawin sa atin.' " ## Ang Pangitain tungkol sa mga Kabayo
+
+###### 7-8 May sinabi ang Panginoon kay Zacarias sa pamamagitan ng isang pangitain. Nangyari ito noong gabi ng ika-24, buwan ng Shebat (ika-11 buwan), noong ikalawang taon ng paghahari ni Darius. <i class="trans-change">At ito ang ipinahayag ni Zacarias:_ Nakita ko ang isang tao na nakasakay sa kabayong kulay pula na nakatigil sa isang patag na lugar na may mga puno ng mirto. Sa likuran niya ay may <i class="trans-change">nakasakay sa_ kabayong pula, kayumanggi, at puti. 
 
 
 

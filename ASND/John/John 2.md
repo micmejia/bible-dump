@@ -403,7 +403,9 @@ Ang nangyaring ito sa Cana, Galilea ay ang unang himala na ginawa ni Jesus. <i c
 
 
 
-Pagkatapos ng kasalan, pumunta si Jesus sa Capernaum, kasama ang kanyang ina, mga kapatid, at mga tagasunod. Nanatili sila roon ng ilang araw. ## Ang Pagmamalasakit ni Jesus sa Templo 
+Pagkatapos ng kasalan, pumunta si Jesus sa Capernaum, kasama ang kanyang ina, mga kapatid, at mga tagasunod. Nanatili sila roon ng ilang araw.
+
+## Ang Pagmamalasakit ni Jesus sa Templo 
 
 
 
@@ -733,7 +735,9 @@ Pero <i class="trans-change">hindi nila naintindihan na_ ang templong tinutukoy 
 
 
 
-Kaya nang nabuhay siyang muli, naalala ng mga tagasunod niya ang sinabi niyang ito. At naniwala sila sa <i class="trans-change">pahayag ng_ Kasulatan at sa mga sinabi ni Jesus <i class="trans-change">tungkol sa kanyang muling pagkabuhay_. ## Alam ni Jesus ang Kalooban ng Tao 
+Kaya nang nabuhay siyang muli, naalala ng mga tagasunod niya ang sinabi niyang ito. At naniwala sila sa <i class="trans-change">pahayag ng_ Kasulatan at sa mga sinabi ni Jesus <i class="trans-change">tungkol sa kanyang muling pagkabuhay_.
+
+## Alam ni Jesus ang Kalooban ng Tao 
 
 
 

@@ -28,7 +28,9 @@ For _there is_ one God and one Mediator between God and men, _the_ Man Christ Je
 who gave Himself a ransom for all, to be testified in due time, 
 
 ###### 7 
-for which I was appointed a preacher and an apostle--I am speaking the truth in Christ _and_ not lying--a teacher of the Gentiles in faith and truth. ## Men and Women in the Church 
+for which I was appointed a preacher and an apostle--I am speaking the truth in Christ _and_ not lying--a teacher of the Gentiles in faith and truth.
+
+## Men and Women in the Church 
 
 ###### 8 
 I desire therefore that the men pray everywhere, lifting up holy hands, without wrath and doubting; 

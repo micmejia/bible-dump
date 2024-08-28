@@ -46,7 +46,9 @@ _It is_ a difficult thing that the king requests, and there is no other who can 
 For this reason the king was angry and very furious, and gave the command to destroy all the wise _men_ of Babylon. 
 
 ###### 13 
-So the decree went out, and they began killing the wise _men;_ and they sought Daniel and his companions, to kill _them._ ## God Reveals Nebuchadnezzar's Dream 
+So the decree went out, and they began killing the wise _men;_ and they sought Daniel and his companions, to kill _them._
+
+## God Reveals Nebuchadnezzar's Dream 
 
 ###### 14 
 Then with counsel and wisdom Daniel answered Arioch, the captain of the king's guard, who had gone out to kill the wise _men_ of Babylon; 

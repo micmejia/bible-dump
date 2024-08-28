@@ -19,7 +19,9 @@ And the Lord spoke to Moses, saying:
 You shall put out both male and female; you shall put them outside the camp, that they may not defile their camps in the midst of which I dwell." 
 
 ###### 4 
-And the children of Israel did so, and put them outside the camp; as the Lord spoke to Moses, so the children of Israel did. ## Confession and Restitution 
+And the children of Israel did so, and put them outside the camp; as the Lord spoke to Moses, so the children of Israel did.
+
+## Confession and Restitution 
 
 ###### 5 
 Then the Lord spoke to Moses, saying, 

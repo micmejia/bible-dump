@@ -31,7 +31,9 @@ but at the place where the Lord your God chooses to make His name abide, there y
 And you shall roast and eat _it_ in the place which the Lord your God chooses, and in the morning you shall turn and go to your tents. 
 
 ###### 8 
-Six days you shall eat unleavened bread, and on the seventh day there _shall be_ a sacred assembly to the Lord your God. You shall do no work _on it._ ## The Feast of Weeks Reviewed 
+Six days you shall eat unleavened bread, and on the seventh day there _shall be_ a sacred assembly to the Lord your God. You shall do no work _on it._
+
+## The Feast of Weeks Reviewed 
 
 ###### 9 
 "You shall count seven weeks for yourself; begin to count the seven weeks from _the time_ you begin _to put_ the sickle to the grain. 
@@ -43,7 +45,9 @@ Then you shall keep the Feast of Weeks to the Lord your God with the tribute of 
 You shall rejoice before the Lord your God, you and your son and your daughter, your male servant and your female servant, the Levite who _is_ within your gates, the stranger and the fatherless and the widow who _are_ among you, at the place where the Lord your God chooses to make His name abide. 
 
 ###### 12 
-And you shall remember that you were a slave in Egypt, and you shall be careful to observe these statutes. ## The Feast of Tabernacles Reviewed 
+And you shall remember that you were a slave in Egypt, and you shall be careful to observe these statutes.
+
+## The Feast of Tabernacles Reviewed 
 
 ###### 13 
 "You shall observe the Feast of Tabernacles seven days, when you have gathered from your threshing floor and from your winepress. 
@@ -58,7 +62,9 @@ Seven days you shall keep a sacred feast to the Lord your God in the place which
 "Three times a year all your males shall appear before the Lord your God in the place which He chooses: at the Feast of Unleavened Bread, at the Feast of Weeks, and at the Feast of Tabernacles; and they shall not appear before the Lord empty-handed. 
 
 ###### 17 
-Every man _shall give_ as he is able, according to the blessing of the Lord your God which He has given you. ## Justice Must Be Administered 
+Every man _shall give_ as he is able, according to the blessing of the Lord your God which He has given you.
+
+## Justice Must Be Administered 
 
 ###### 18 
 "You shall appoint judges and officers in all your gates, which the Lord your God gives you, according to your tribes, and they shall judge the people with just judgment. 

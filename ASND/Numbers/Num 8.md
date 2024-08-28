@@ -139,7 +139,9 @@ Kaya ginawa ito ni Aaron; inilagay niya ang mga ilaw na ang sinag nito ay naglil
 
 
 
-Ang buong lalagyan ng ilaw, mula sa ilalim hanggang sa itaas ay ginawa mula sa ginto ayon sa disenyo na ipinakita ng Panginoon kay Moises. ## Ang Pagtatalaga ng mga Levita 
+Ang buong lalagyan ng ilaw, mula sa ilalim hanggang sa itaas ay ginawa mula sa ginto ayon sa disenyo na ipinakita ng Panginoon kay Moises.
+
+## Ang Pagtatalaga ng mga Levita 
 
 
 

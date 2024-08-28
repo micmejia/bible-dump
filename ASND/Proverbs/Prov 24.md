@@ -73,7 +73,9 @@ Huwag kang mainggit sa mga taong masama o hangarin mang makipagkaibigan sa kanil
 
 
 
-Sapagkat ang iniisip nila at sinasabi ay para sa kapahamakan ng iba. ###### 3-4 Sa pamamagitan ng karunungan, maitatayo mo at mapapaunlad ang iyong tahanan. Mapupuno rin ito ng mahahalagang kayamanan. 
+Sapagkat ang iniisip nila at sinasabi ay para sa kapahamakan ng iba.
+
+###### 3-4 Sa pamamagitan ng karunungan, maitatayo mo at mapapaunlad ang iyong tahanan. Mapupuno rin ito ng mahahalagang kayamanan. 
 
 
 
@@ -601,7 +603,9 @@ Anak, igalang mo ang Panginoon at ang hari. Huwag kang makisama sa mga taong sum
 
 
 
-sapagkat hindi mo alam kung anong kapahamakan ang biglang ibibigay ng Panginoon o ng hari sa kanila. ## Dagdag pang Kawikaan 
+sapagkat hindi mo alam kung anong kapahamakan ang biglang ibibigay ng Panginoon o ng hari sa kanila.
+
+## Dagdag pang Kawikaan 
 
 
 

@@ -73,7 +73,9 @@ Nang panahong iyon, ang mga pinuno ng mga mamamayan <i class="trans-change">ng I
 
 
 
-Pinuri ng mga tao ang lahat ng nagpasyang tumira sa Jerusalem. ###### 3-4 Ang ibang Israelita, pati mga pari, mga Levita, mga utusan sa templo, at ang mga angkan ng mga alipin ni Solomon ay patuloy na nakatira sa kanilang sariling mga lupain sa ibaʼt ibang mga bayan ng Juda. Ang ibang mga mamamayan ng Juda at Benjamin ay nakatira sa Jerusalem. Ito ang mga pinuno ng mga probinsya <i class="trans-change">ng Juda at Benjamin_ na nakatira sa Jerusalem. Mula sa lahi ni Juda: Si Ataya na anak ni Uzia. (Si Uzia ay anak ni Zacarias. Si Zacarias ay anak ni Amaria. Si Amaria ay anak ni Shefatia. At si Shefatia ay anak ni Mahalalel na mula sa angkan ni Perez.) 
+Pinuri ng mga tao ang lahat ng nagpasyang tumira sa Jerusalem.
+
+###### 3-4 Ang ibang Israelita, pati mga pari, mga Levita, mga utusan sa templo, at ang mga angkan ng mga alipin ni Solomon ay patuloy na nakatira sa kanilang sariling mga lupain sa ibaʼt ibang mga bayan ng Juda. Ang ibang mga mamamayan ng Juda at Benjamin ay nakatira sa Jerusalem. Ito ang mga pinuno ng mga probinsya <i class="trans-change">ng Juda at Benjamin_ na nakatira sa Jerusalem. Mula sa lahi ni Juda: Si Ataya na anak ni Uzia. (Si Uzia ay anak ni Zacarias. Si Zacarias ay anak ni Amaria. Si Amaria ay anak ni Shefatia. At si Shefatia ay anak ni Mahalalel na mula sa angkan ni Perez.) 
 
 
 

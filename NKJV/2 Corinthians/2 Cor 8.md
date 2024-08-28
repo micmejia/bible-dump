@@ -28,7 +28,9 @@ And not _only_ as we had hoped, but they first gave themselves to the Lord, and 
 So we urged Titus, that as he had begun, so he would also complete this grace in you as well. 
 
 ###### 7 
-But as you abound in everything--in faith, in speech, in knowledge, in all diligence, and in your love for us--_see_ that you abound in this grace also. ## Christ Our Pattern 
+But as you abound in everything--in faith, in speech, in knowledge, in all diligence, and in your love for us--_see_ that you abound in this grace also.
+
+## Christ Our Pattern 
 
 ###### 8 
 I speak not by commandment, but I am testing the sincerity of your love by the diligence of others. 

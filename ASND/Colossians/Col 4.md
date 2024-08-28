@@ -39,7 +39,9 @@ up: ['Colossians']
 
 
 
-Mga amo, maging mabuti at makatarungan kayo sa mga alipin ninyo. Alalahanin ninyong kayo rin ay mayroong amo sa langit. ## Ang Ilan pang mga Bilin 
+Mga amo, maging mabuti at makatarungan kayo sa mga alipin ninyo. Alalahanin ninyong kayo rin ay mayroong amo sa langit.
+
+## Ang Ilan pang mga Bilin 
 
 
 
@@ -204,7 +206,9 @@ Maging matalino kayo sa pakikitungo sa mga hindi mananampalataya, at samantalahi
 
 
 
-Kung nakikipag-usap kayo sa kanila, gumamit kayo ng mga kawili-wiling salita para makinig sila sa inyo, at dapat alam nʼyo kung paano sumagot sa tanong ng bawat isa. ## Mga Pangangamusta 
+Kung nakikipag-usap kayo sa kanila, gumamit kayo ng mga kawili-wiling salita para makinig sila sa inyo, at dapat alam nʼyo kung paano sumagot sa tanong ng bawat isa.
+
+## Mga Pangangamusta 
 
 
 

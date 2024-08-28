@@ -91,7 +91,9 @@ While Israel dwelt in Heshbon and its villages, in Aroer and its villages, and i
 Therefore I have not sinned against you, but you wronged me by fighting against me. May the Lord, the Judge, render judgment this day between the children of Israel and the people of Ammon.' " 
 
 ###### 28 
-However, the king of the people of Ammon did not heed the words which Jephthah sent him. ## Jephthah's Vow and Victory 
+However, the king of the people of Ammon did not heed the words which Jephthah sent him.
+
+## Jephthah's Vow and Victory 
 
 ###### 29 
 Then the Spirit of the Lord came upon Jephthah, and he passed through Gilead and Manasseh, and passed through Mizpah of Gilead; and from Mizpah of Gilead he advanced _toward_ the people of Ammon. 
@@ -106,7 +108,9 @@ then it will be that whatever comes out of the doors of my house to meet me, whe
 So Jephthah advanced toward the people of Ammon to fight against them, and the Lord delivered them into his hands. 
 
 ###### 33 
-And he defeated them from Aroer as far as Minnith--twenty cities--and to Abel Keramim, with a very great slaughter. Thus the people of Ammon were subdued before the children of Israel. ## Jephthah's Daughter 
+And he defeated them from Aroer as far as Minnith--twenty cities--and to Abel Keramim, with a very great slaughter. Thus the people of Ammon were subdued before the children of Israel.
+
+## Jephthah's Daughter 
 
 ###### 34 
 When Jephthah came to his house at Mizpah, there was his daughter, coming out to meet him with timbrels and dancing; and she _was his_ only child. Besides her he had neither son nor daughter. 

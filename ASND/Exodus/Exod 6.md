@@ -898,7 +898,9 @@ Ang Aaron at Moises na nabanggit sa listahang ito ay ang Aaron at Moises na inut
 
 
 
-Sila ang nakipag-usap sa Faraon na hari ng Egipto na palayain ang mga Israelita sa Egipto. ## Inutusan ng Panginoon si Aaron na Magsalita para kay Moises 
+Sila ang nakipag-usap sa Faraon na hari ng Egipto na palayain ang mga Israelita sa Egipto.
+
+## Inutusan ng Panginoon si Aaron na Magsalita para kay Moises 
 
 
 

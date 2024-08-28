@@ -1096,7 +1096,9 @@ Nakipaglaban si Jefta sa mga Ammonita, at pinagtagumpay siya ng Panginoon.
 
 
 
-Natalo nila ang mga Ammonita, at napakarami nilang pinatay. Sinakop nila ang 20 bayan mula sa Aroer papunta sa paligid ng Minit hanggang sa Abel Keramim. ## Ang Anak ni Jefta 
+Natalo nila ang mga Ammonita, at napakarami nilang pinatay. Sinakop nila ang 20 bayan mula sa Aroer papunta sa paligid ng Minit hanggang sa Abel Keramim.
+
+## Ang Anak ni Jefta 
 
 
 

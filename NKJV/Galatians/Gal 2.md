@@ -37,7 +37,9 @@ But on the contrary, when they saw that the gospel for the uncircumcised had bee
 and when James, Cephas, and John, who seemed to be pillars, perceived the grace that had been given to me, they gave me and Barnabas the right hand of fellowship, that we _should go_ to the Gentiles and they to the circumcised. 
 
 ###### 10 
-_They desired_ only that we should remember the poor, the very thing which I also was eager to do. ## No Return to the Law 
+_They desired_ only that we should remember the poor, the very thing which I also was eager to do.
+
+## No Return to the Law 
 
 ###### 11 
 Now when Peter had come to Antioch, I withstood him to his face, because he was to be blamed; 

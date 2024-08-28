@@ -84,7 +84,9 @@ And when the spies saw a man coming out of the city, they said to him, "Please s
 So he showed them the entrance to the city, and they struck the city with the edge of the sword; but they let the man and all his family go. 
 
 ###### 26 
-And the man went to the land of the Hittites, built a city, and called its name Luz, which _is_ its name to this day. ## Incomplete Conquest of the Land 
+And the man went to the land of the Hittites, built a city, and called its name Luz, which _is_ its name to this day.
+
+## Incomplete Conquest of the Land 
 
 ###### 27 
 However, Manasseh did not drive out _the inhabitants of_ Beth Shean and its villages, or Taanach and its villages, or the inhabitants of Dor and its villages, or the inhabitants of Ibleam and its villages, or the inhabitants of Megiddo and its villages; for the Canaanites were determined to dwell in that land. 

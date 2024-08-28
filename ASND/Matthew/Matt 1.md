@@ -567,7 +567,9 @@ at si Jacob ang ama ni Jose na ang asawaʼy si Maria. Si Maria ang ina ni Jesus 
 
 
 
-Kaya may 14 na henerasyon mula kay Abraham hanggang kay David, may 14 na henerasyon naman mula kay David hanggang sa pagkabihag ng mga Israelita sa Babilonia, at may 14 na henerasyon din mula sa pagkabihag hanggang kay Cristo. ## Ang Pagkapanganak kay Jesu-Cristo 
+Kaya may 14 na henerasyon mula kay Abraham hanggang kay David, may 14 na henerasyon naman mula kay David hanggang sa pagkabihag ng mga Israelita sa Babilonia, at may 14 na henerasyon din mula sa pagkabihag hanggang kay Cristo.
+
+## Ang Pagkapanganak kay Jesu-Cristo 
 
 
 

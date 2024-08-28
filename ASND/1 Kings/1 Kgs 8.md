@@ -73,7 +73,9 @@ Ipinatawag ni Haring Solomon sa Jerusalem ang mga tagapamahala ng Israel at ang 
 
 
 
-Pumunta silang lahat kay Haring Solomon noong panahon ng Pista <i class="trans-change">ng Pagtatayo ng mga Kubol_, noong buwan ng Etanim, na siyang ikapitong buwan. ###### 3-4 Nang magkatipon na ang lahat ng tagapamahala ng Israel, kinuha ng mga pari at ng mga Levita ang Kahon ng Panginoon, pati ang Toldang Tipanan at ang mga banal na gamit nito at dinala nila ang lahat ng ito sa templo. 
+Pumunta silang lahat kay Haring Solomon noong panahon ng Pista <i class="trans-change">ng Pagtatayo ng mga Kubol_, noong buwan ng Etanim, na siyang ikapitong buwan.
+
+###### 3-4 Nang magkatipon na ang lahat ng tagapamahala ng Israel, kinuha ng mga pari at ng mga Levita ang Kahon ng Panginoon, pati ang Toldang Tipanan at ang mga banal na gamit nito at dinala nila ang lahat ng ito sa templo. 
 
 
 

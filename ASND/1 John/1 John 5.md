@@ -402,7 +402,9 @@ At ito ang patotoo ng Dios: Binigyan niya tayo ng buhay na walang hanggan, at an
 
 
 
-Ang sinumang nasa kanya ang Anak <i class="trans-change">ng Dios_ ay may buhay <i class="trans-change">na walang hanggan_. Ngunit ang sinumang wala sa kanya ang Anak ng Dios ay walang buhay <i class="trans-change">na walang hanggan_. ## Ang Buhay na Walang Hanggan 
+Ang sinumang nasa kanya ang Anak <i class="trans-change">ng Dios_ ay may buhay <i class="trans-change">na walang hanggan_. Ngunit ang sinumang wala sa kanya ang Anak ng Dios ay walang buhay <i class="trans-change">na walang hanggan_.
+
+## Ang Buhay na Walang Hanggan 
 
 
 

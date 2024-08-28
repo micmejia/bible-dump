@@ -403,7 +403,9 @@ Pero nang isipin kong mabuti ang lahat ng ginawa at pinaghirapan ko, naisip ko n
 
 
 
-Ano pa ba ang magagawa ng susunod na hari? Ano pa nga ba, kundi iyong nagawa na rin noong una. ## Ang Karunungan at Kamangmangan ay Walang Kabuluhan Sinubukan ko ring ihambing ang karunungan at ang kamangmangan. 
+Ano pa ba ang magagawa ng susunod na hari? Ano pa nga ba, kundi iyong nagawa na rin noong una.
+
+## Ang Karunungan at Kamangmangan ay Walang Kabuluhan Sinubukan ko ring ihambing ang karunungan at ang kamangmangan. 
 
 
 
@@ -535,7 +537,9 @@ Kaya sinabi ko sa aking sarili, "Ang sinapit ng mangmang ay sasapitin ko rin. Ka
 
 
 
-Lahat tayo, marunong man o mangmang ay pare-parehong mamamatay at makakalimutan. ## Walang Kabuluhan ang Pagsusumikap 
+Lahat tayo, marunong man o mangmang ay pare-parehong mamamatay at makakalimutan.
+
+## Walang Kabuluhan ang Pagsusumikap 
 
 
 

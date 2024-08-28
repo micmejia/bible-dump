@@ -40,7 +40,9 @@ next: ['Dan 4']
 
 
 
-Nagpagawa si Haring Nebucadnezar ng rebultong ginto. May 90 talampakan ang taas at 9 na talampakan ang lapad. Ipinatayo niya ito sa kapatagan ng Dura sa lalawigan ng Babilonia. ###### 2-3 Pagkatapos, ipinatawag ni Haring Nebucadnezar ang mga gobernador, mga mayor, mga komisyoner, mga tagapayo, mga ingat-yaman, mga hukom, at iba pang mga opisyal ng lalawigan para dumalo sa pagtatalaga ng nasabing rebulto. Nang naroon na sila nakatayo sa harap ng rebulto, 
+Nagpagawa si Haring Nebucadnezar ng rebultong ginto. May 90 talampakan ang taas at 9 na talampakan ang lapad. Ipinatayo niya ito sa kapatagan ng Dura sa lalawigan ng Babilonia.
+
+###### 2-3 Pagkatapos, ipinatawag ni Haring Nebucadnezar ang mga gobernador, mga mayor, mga komisyoner, mga tagapayo, mga ingat-yaman, mga hukom, at iba pang mga opisyal ng lalawigan para dumalo sa pagtatalaga ng nasabing rebulto. Nang naroon na sila nakatayo sa harap ng rebulto, 
 
 
 

@@ -22,7 +22,9 @@ So do this, my son, and deliver yourself; For you have come into the hand of you
 Give no sleep to your eyes, Nor slumber to your eyelids. 
 
 ###### 5 
-Deliver yourself like a gazelle from the hand _of the hunter,_ And like a bird from the hand of the fowler. ## The Folly of Indolence 
+Deliver yourself like a gazelle from the hand _of the hunter,_ And like a bird from the hand of the fowler.
+
+## The Folly of Indolence 
 
 ###### 6 
 Go to the ant, you sluggard! Consider her ways and be wise, 
@@ -40,7 +42,9 @@ How long will you slumber, O sluggard? When will you rise from your sleep?
 A little sleep, a little slumber, A little folding of the hands to sleep-- 
 
 ###### 11 
-So shall your poverty come on you like a prowler, And your need like an armed man. ## The Wicked Man 
+So shall your poverty come on you like a prowler, And your need like an armed man.
+
+## The Wicked Man 
 
 ###### 12 
 A worthless person, a wicked man, Walks with a perverse mouth; 
@@ -64,7 +68,9 @@ A proud look, A lying tongue, Hands that shed innocent blood,
 A heart that devises wicked plans, Feet that are swift in running to evil, 
 
 ###### 19 
-A false witness _who_ speaks lies, And one who sows discord among brethren. ## Beware of Adultery 
+A false witness _who_ speaks lies, And one who sows discord among brethren.
+
+## Beware of Adultery 
 
 ###### 20 
 My son, keep your father's command, And do not forsake the law of your mother. 

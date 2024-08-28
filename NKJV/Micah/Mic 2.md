@@ -22,7 +22,9 @@ Therefore thus says the Lord: "Behold, against this family I am devising disaste
 In that day _one_ shall take up a proverb against you, And lament with a bitter lamentation, saying: 'We are utterly destroyed! He has changed the heritage of my people; How He has removed _it_ from me! To a turncoat He has divided our fields.' " 
 
 ###### 5 
-Therefore you will have no one to determine boundaries by lot In the assembly of the Lord. ## Lying Prophets 
+Therefore you will have no one to determine boundaries by lot In the assembly of the Lord.
+
+## Lying Prophets 
 
 ###### 6 
 "Do not prattle," _you say to those_ who prophesy. So they shall not prophesy to you; They shall not return insult for insult. 
@@ -40,7 +42,9 @@ The women of My people you cast out From their pleasant houses; From their child
 "Arise and depart, For this _is_ not _your_ rest; Because it is defiled, it shall destroy, Yes, with utter destruction. 
 
 ###### 11 
-If a man should walk in a false spirit And speak a lie, _saying,_ 'I will prophesy to you of wine and drink,' Even he would be the prattler of this people. ## Israel Restored 
+If a man should walk in a false spirit And speak a lie, _saying,_ 'I will prophesy to you of wine and drink,' Even he would be the prattler of this people.
+
+## Israel Restored 
 
 ###### 12 
 "I will surely assemble all of you, O Jacob, I will surely gather the remnant of Israel; I will put them together like sheep of the fold, Like a flock in the midst of their pasture; They shall make a loud noise because of _so many_ people. 

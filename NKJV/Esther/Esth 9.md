@@ -58,7 +58,9 @@ And the Jews who _were_ in Shushan gathered together again on the fourteenth day
 The remainder of the Jews in the king's provinces gathered together and protected their lives, had rest from their enemies, and killed seventy-five thousand of their enemies; but they did not lay a hand on the plunder. 
 
 ###### 17 
-_This was_ on the thirteenth day of the month of Adar. And on the fourteenth of _the month_ they rested and made it a day of feasting and gladness. ## The Feast of Purim 
+_This was_ on the thirteenth day of the month of Adar. And on the fourteenth of _the month_ they rested and made it a day of feasting and gladness.
+
+## The Feast of Purim 
 
 ###### 18 
 But the Jews who _were_ at Shushan assembled together on the thirteenth _day,_ as well as on the fourteenth; and on the fifteenth of _the month_ they rested, and made it a day of feasting and gladness. 

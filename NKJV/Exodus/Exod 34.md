@@ -91,7 +91,9 @@ For I will cast out the nations before you and enlarge your borders; neither wil
 Then the Lord said to Moses, "Write these words, for according to the tenor of these words I have made a covenant with you and with Israel." 
 
 ###### 28 
-So he was there with the Lord forty days and forty nights; he neither ate bread nor drank water. And He wrote on the tablets the words of the covenant, the Ten Commandments. ## The Shining Face of Moses 
+So he was there with the Lord forty days and forty nights; he neither ate bread nor drank water. And He wrote on the tablets the words of the covenant, the Ten Commandments.
+
+## The Shining Face of Moses 
 
 ###### 29 
 Now it was so, when Moses came down from Mount Sinai (and the two tablets of the Testimony _were_ in Moses' hand when he came down from the mountain), that Moses did not know that the skin of his face shone while he talked with Him. 

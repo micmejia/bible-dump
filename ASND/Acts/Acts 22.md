@@ -172,7 +172,9 @@ Inusig ko at sinikap na patayin ang mga sumusunod sa pamamaraan <i class="trans-
 
 
 
-Ang punong pari at ang lahat ng miyembro ng Korte ng mga Judio ay makapagpapatunay sa lahat ng sinasabi ko. Sila mismo ang nagbigay sa akin ng sulat para sa mga kapatid <i class="trans-change">nating Judio_ doon sa Damascus. <i class="trans-change">At sa bisa ng sulat na iyon,_ pumunta ako sa Damascus para hulihin ang mga sumasampalataya kay Jesus at dalhin pabalik dito sa Jerusalem para parusahan. ## Ikinuwento ni Pablo Kung Paano Niya Nakilala si Jesus 
+Ang punong pari at ang lahat ng miyembro ng Korte ng mga Judio ay makapagpapatunay sa lahat ng sinasabi ko. Sila mismo ang nagbigay sa akin ng sulat para sa mga kapatid <i class="trans-change">nating Judio_ doon sa Damascus. <i class="trans-change">At sa bisa ng sulat na iyon,_ pumunta ako sa Damascus para hulihin ang mga sumasampalataya kay Jesus at dalhin pabalik dito sa Jerusalem para parusahan.
+
+## Ikinuwento ni Pablo Kung Paano Niya Nakilala si Jesus 
 
 
 
@@ -964,7 +966,9 @@ Sinabi ng kumander, "Ako rin ay naging Romano sa pamamagitan ng pagbayad ng mala
 
 
 
-Umurong agad ang mga sundalo na mag-iimbestiga sana sa kanya. Natakot din ang kumander dahil ipinagapos niya si Pablo, gayong isa pala siyang Romano. ## Dinala si Pablo sa Korte ng mga Judio 
+Umurong agad ang mga sundalo na mag-iimbestiga sana sa kanya. Natakot din ang kumander dahil ipinagapos niya si Pablo, gayong isa pala siyang Romano.
+
+## Dinala si Pablo sa Korte ng mga Judio 
 
 
 

@@ -39,7 +39,9 @@ next: ['Hos 2']
 
 
 
-Ito ang ipinahayag ng Panginoon kay Hoseas na anak ni Beeri noong <i class="trans-change">magkakasunod na_ naging hari sa Juda sina Uzia, Jotam, Ahaz at Hezekia, habang naghahari naman sa Israel si Jeroboam na anak ni Joash. ## Ang Asawa at mga Anak ni Hoseas 
+Ito ang ipinahayag ng Panginoon kay Hoseas na anak ni Beeri noong <i class="trans-change">magkakasunod na_ naging hari sa Juda sina Uzia, Jotam, Ahaz at Hezekia, habang naghahari naman sa Israel si Jeroboam na anak ni Joash.
+
+## Ang Asawa at mga Anak ni Hoseas 
 
 
 

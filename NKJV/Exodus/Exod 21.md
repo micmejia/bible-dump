@@ -40,7 +40,9 @@ And if he has betrothed her to his son, he shall deal with her according to the 
 If he takes another _wife,_ he shall not diminish her food, her clothing, and her marriage rights. 
 
 ###### 11 
-And if he does not do these three for her, then she shall go out free, without _paying_ money. ## The Law Concerning Violence 
+And if he does not do these three for her, then she shall go out free, without _paying_ money.
+
+## The Law Concerning Violence 
 
 ###### 12 
 "He who strikes a man so that he dies shall surely be put to death. 
@@ -88,7 +90,9 @@ burn for burn, wound for wound, stripe for stripe.
 "If a man strikes the eye of his male or female servant, and destroys it, he shall let him go free for the sake of his eye. 
 
 ###### 27 
-And if he knocks out the tooth of his male or female servant, he shall let him go free for the sake of his tooth. ## Animal Control Laws 
+And if he knocks out the tooth of his male or female servant, he shall let him go free for the sake of his tooth.
+
+## Animal Control Laws 
 
 ###### 28 
 "If an ox gores a man or a woman to death, then the ox shall surely be stoned, and its flesh shall not be eaten; but the owner of the ox _shall be_ acquitted. 

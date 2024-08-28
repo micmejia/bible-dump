@@ -54,7 +54,9 @@ You thrust through with his own arrows The head of his villages. They came out l
 You walked through the sea with Your horses, Through the heap of great waters. 
 
 ###### 16 
-When I heard, my body trembled; My lips quivered at _the_ voice; Rottenness entered my bones; And I trembled in myself, That I might rest in the day of trouble. When he comes up to the people, He will invade them with his troops. ## A Hymn of Faith 
+When I heard, my body trembled; My lips quivered at _the_ voice; Rottenness entered my bones; And I trembled in myself, That I might rest in the day of trouble. When he comes up to the people, He will invade them with his troops.
+
+## A Hymn of Faith 
 
 ###### 17 
 Though the fig tree may not blossom, Nor fruit be on the vines; Though the labor of the olive may fail, And the fields yield no food; Though the flock may be cut off from the fold, And there be no herd in the stalls-- 

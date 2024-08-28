@@ -205,7 +205,9 @@ Sapagkat, iniutos ng Panginoon kay Moises na sabihin ito sa mga Israelita: "Napa
 
 
 
-Kaya hinubad ng mga Israelita ang mga alahas nila roon sa bundok ng Horeb. ## Ang Toldang Tipanan 
+Kaya hinubad ng mga Israelita ang mga alahas nila roon sa bundok ng Horeb.
+
+## Ang Toldang Tipanan 
 
 
 
@@ -370,7 +372,9 @@ At kapag nakita ng mga tao ang makapal na ulap sa pintuan ng Tolda, tumatayo sil
 
 
 
-Kapag nakikipag-usap ang Panginoon kay Moises, magkaharap sila, katulad ng magkaibigan na nagkukwentuhan. Pagkatapos, bumabalik si Moises sa kampo, pero ang binata niyang lingkod na si Josue na anak ni Nun ay nananatili sa Tolda. ## Nakita ni Moises ang Makapangyarihang Presensya ng Dios 
+Kapag nakikipag-usap ang Panginoon kay Moises, magkaharap sila, katulad ng magkaibigan na nagkukwentuhan. Pagkatapos, bumabalik si Moises sa kampo, pero ang binata niyang lingkod na si Josue na anak ni Nun ay nananatili sa Tolda.
+
+## Nakita ni Moises ang Makapangyarihang Presensya ng Dios 
 
 
 

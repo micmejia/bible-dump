@@ -22,7 +22,9 @@ For Moses had given the inheritance of the two tribes and the half-tribe on the 
 For the children of Joseph were two tribes: Manasseh and Ephraim. And they gave no part to the Levites in the land, except cities to dwell _in,_ with their common-lands for their livestock and their property. 
 
 ###### 5 
-As the Lord had commanded Moses, so the children of Israel did; and they divided the land. ## Caleb Inherits Hebron 
+As the Lord had commanded Moses, so the children of Israel did; and they divided the land.
+
+## Caleb Inherits Hebron 
 
 ###### 6 
 Then the children of Judah came to Joshua in Gilgal. And Caleb the son of Jephunneh the Kenizzite said to him: "You know the word which the Lord said to Moses the man of God concerning you and me in Kadesh Barnea. 

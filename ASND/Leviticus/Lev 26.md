@@ -436,7 +436,9 @@ Akoʼy magiging kasama ninyo, at patuloy akong magiging Dios ninyo, at patuloy k
 
 
 
-Ako ang Panginoon na inyong Dios na naglabas sa inyo sa Egipto para huwag na kayong maging mga alipin ng mga taga-Egipto. Pinalaya ko na kayo, kaya wala na kayong dapat ikahiya. ## Ang Parusa sa mga Sumusuway <sup class="versenum">14-15</sup>Pero kung hindi kayo makikinig sa akin, at hindi ninyo susundin ang aking mga utos at tuntunin, nilalabag ninyo ang kasunduan ko sa inyo. 
+Ako ang Panginoon na inyong Dios na naglabas sa inyo sa Egipto para huwag na kayong maging mga alipin ng mga taga-Egipto. Pinalaya ko na kayo, kaya wala na kayong dapat ikahiya.
+
+## Ang Parusa sa mga Sumusuway <sup class="versenum">14-15</sup>Pero kung hindi kayo makikinig sa akin, at hindi ninyo susundin ang aking mga utos at tuntunin, nilalabag ninyo ang kasunduan ko sa inyo. 
 
 
 

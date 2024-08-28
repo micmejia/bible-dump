@@ -28,7 +28,9 @@ Better not to vow than to vow and not pay.
 Do not let your mouth cause your flesh to sin, nor say before the messenger _of God_ that it _was_ an error. Why should God be angry at your excuse and destroy the work of your hands? 
 
 ###### 7 
-For in the multitude of dreams and many words _there is_ also vanity. But fear God. ## The Vanity of Gain and Honor 
+For in the multitude of dreams and many words _there is_ also vanity. But fear God.
+
+## The Vanity of Gain and Honor 
 
 ###### 8 
 If you see the oppression of the poor, and the violent perversion of justice and righteousness in a province, do not marvel at the matter; for high official watches over high official, and higher officials are over them. 

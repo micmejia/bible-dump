@@ -28,7 +28,9 @@ one who rules his own house well, having _his_ children in submission with all r
 not a novice, lest being puffed up with pride he fall into the _same_ condemnation as the devil. 
 
 ###### 7 
-Moreover he must have a good testimony among those who are outside, lest he fall into reproach and the snare of the devil. ## Qualifications of Deacons 
+Moreover he must have a good testimony among those who are outside, lest he fall into reproach and the snare of the devil.
+
+## Qualifications of Deacons 
 
 ###### 8 
 Likewise deacons _must be_ reverent, not double-tongued, not given to much wine, not greedy for money, 
@@ -46,7 +48,9 @@ Likewise, _their_ wives _must be_ reverent, not slanderers, temperate, faithful 
 Let deacons be the husbands of one wife, ruling _their_ children and their own houses well. 
 
 ###### 13 
-For those who have served well as deacons obtain for themselves a good standing and great boldness in the faith which is in Christ Jesus. ## The Great Mystery 
+For those who have served well as deacons obtain for themselves a good standing and great boldness in the faith which is in Christ Jesus.
+
+## The Great Mystery 
 
 ###### 14 
 These things I write to you, though I hope to come to you shortly; 

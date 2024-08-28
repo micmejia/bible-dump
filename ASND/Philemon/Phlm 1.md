@@ -104,7 +104,9 @@ kasama si Afia na <i class="trans-change">ating_ kapatid, si Arkipus na kapwa na
 
 
 
-Sumainyo nawa ang biyaya at kapayapaang galing sa Dios na ating Ama at sa Panginoong Jesu-Cristo. ## Ang Pag-ibig at Pananampalataya ni Filemon 
+Sumainyo nawa ang biyaya at kapayapaang galing sa Dios na ating Ama at sa Panginoong Jesu-Cristo.
+
+## Ang Pag-ibig at Pananampalataya ni Filemon 
 
 
 
@@ -236,7 +238,9 @@ Idinadalangin ko na sana ang pagiging mapagbigay mo, <i class="trans-change">na 
 
 
 
-<i class="trans-change">Minamahal kong_ kapatid, labis na nagbigay kagalakan at kaaliwan sa akin ang iyong pagmamahal sa mga mananampalataya na nagpasigla sa kanila. ## Ang Hiling ni Pablo para kay Onesimus 
+<i class="trans-change">Minamahal kong_ kapatid, labis na nagbigay kagalakan at kaaliwan sa akin ang iyong pagmamahal sa mga mananampalataya na nagpasigla sa kanila.
+
+## Ang Hiling ni Pablo para kay Onesimus 
 
 
 
@@ -731,7 +735,9 @@ Sumulat ako dahil malaki ang tiwala kong pagbibigyan mo ang aking kahilingan, at
 
 
 
-Siya nga pala, ipaghanda mo ako ng matutuluyan, dahil umaasa akong makakabalik sa inyo dahil sa inyong panalangin. ## Pangwakas na Pagbati 
+Siya nga pala, ipaghanda mo ako ng matutuluyan, dahil umaasa akong makakabalik sa inyo dahil sa inyong panalangin.
+
+## Pangwakas na Pagbati 
 
 
 

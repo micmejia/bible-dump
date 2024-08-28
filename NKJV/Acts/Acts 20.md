@@ -25,7 +25,9 @@ And Sopater of Berea accompanied him to Asia--also Aristarchus and Secundus of t
 These men, going ahead, waited for us at Troas. 
 
 ###### 6 
-But we sailed away from Philippi after the Days of Unleavened Bread, and in five days joined them at Troas, where we stayed seven days. ## Ministering at Troas 
+But we sailed away from Philippi after the Days of Unleavened Bread, and in five days joined them at Troas, where we stayed seven days.
+
+## Ministering at Troas 
 
 ###### 7 
 Now on the first _day_ of the week, when the disciples came together to break bread, Paul, ready to depart the next day, spoke to them and continued his message until midnight. 
@@ -43,7 +45,9 @@ But Paul went down, fell on him, and embracing _him_ said, "Do not trouble yours
 Now when he had come up, had broken bread and eaten, and talked a long while, even till daybreak, he departed. 
 
 ###### 12 
-And they brought the young man in alive, and they were not a little comforted. ## From Troas to Miletus 
+And they brought the young man in alive, and they were not a little comforted.
+
+## From Troas to Miletus 
 
 ###### 13 
 Then we went ahead to the ship and sailed to Assos, there intending to take Paul on board; for so he had given orders, intending himself to go on foot. 
@@ -55,7 +59,9 @@ And when he met us at Assos, we took him on board and came to Mitylene.
 We sailed from there, and the next _day_ came opposite Chios. The following _day_ we arrived at Samos and stayed at Trogyllium. The next _day_ we came to Miletus. 
 
 ###### 16 
-For Paul had decided to sail past Ephesus, so that he would not have to spend time in Asia; for he was hurrying to be at Jerusalem, if possible, on the Day of Pentecost. ## The Ephesian Elders Exhorted 
+For Paul had decided to sail past Ephesus, so that he would not have to spend time in Asia; for he was hurrying to be at Jerusalem, if possible, on the Day of Pentecost.
+
+## The Ephesian Elders Exhorted 
 
 ###### 17 
 From Miletus he sent to Ephesus and called for the elders of the church. 

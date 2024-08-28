@@ -28,7 +28,9 @@ to redeem those who were under the law, that we might receive the adoption as so
 And because you are sons, God has sent forth the Spirit of His Son into your hearts, crying out, "Abba, Father!" 
 
 ###### 7 
-Therefore you are no longer a slave but a son, and if a son, then an heir of God through Christ. ## Fears for the Church 
+Therefore you are no longer a slave but a son, and if a son, then an heir of God through Christ.
+
+## Fears for the Church 
 
 ###### 8 
 But then, indeed, when you did not know God, you served those which by nature are not gods. 
@@ -67,7 +69,9 @@ But it is good to be zealous in a good thing always, and not only when I am pres
 My little children, for whom I labor in birth again until Christ is formed in you, 
 
 ###### 20 
-I would like to be present with you now and to change my tone; for I have doubts about you. ## Two Covenants 
+I would like to be present with you now and to change my tone; for I have doubts about you.
+
+## Two Covenants 
 
 ###### 21 
 Tell me, you who desire to be under the law, do you not hear the law? 

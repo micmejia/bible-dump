@@ -9,7 +9,9 @@ next: ['Hab 2']
 
 
 ###### 1 
-The burden which the prophet Habakkuk saw. ## The Prophet's Question 
+The burden which the prophet Habakkuk saw.
+
+## The Prophet's Question 
 
 ###### 2 
 O Lord, how long shall I cry, And You will not hear? Even cry out to You, "Violence!" And You will not save. 
@@ -18,7 +20,9 @@ O Lord, how long shall I cry, And You will not hear? Even cry out to You, "Viole
 Why do You show me iniquity, And cause _me_ to see trouble? For plundering and violence _are_ before me; There is strife, and contention arises. 
 
 ###### 4 
-Therefore the law is powerless, And justice never goes forth. For the wicked surround the righteous; Therefore perverse judgment proceeds. ## The Lord's Reply 
+Therefore the law is powerless, And justice never goes forth. For the wicked surround the righteous; Therefore perverse judgment proceeds.
+
+## The Lord's Reply 
 
 ###### 5 
 "Look among the nations and watch-- Be utterly astounded! For _I will_ work a work in your days _Which_ you would not believe, though it were told _you._ 

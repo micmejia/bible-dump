@@ -138,7 +138,9 @@ Katabi ng lupain <i class="trans-change">ng lahi_ ni Asher ang lupain <i class="
 
 
 
-Ang lupain <i class="trans-change">ng lahi_ ni Manase ay nasa gawing timog ng lupain <i class="trans-change">ng lahi_ ni Naftali, at ang luwang nito ay mula pa rin sa silangan hanggang sa kanluran <i class="trans-change">ng Israel_. ###### 5-7 Ang susunod pang mga lupa ay pag-aari ng lahi nina Efraim, Reuben, at ni Juda, na ang lawak ay mula rin sa silangan hanggang sa kanluran <i class="trans-change">ng Israel_. 
+Ang lupain <i class="trans-change">ng lahi_ ni Manase ay nasa gawing timog ng lupain <i class="trans-change">ng lahi_ ni Naftali, at ang luwang nito ay mula pa rin sa silangan hanggang sa kanluran <i class="trans-change">ng Israel_.
+
+###### 5-7 Ang susunod pang mga lupa ay pag-aari ng lahi nina Efraim, Reuben, at ni Juda, na ang lawak ay mula rin sa silangan hanggang sa kanluran <i class="trans-change">ng Israel_. 
 
 
 
@@ -633,7 +635,9 @@ Ang hangganan sa timog ng lupaing para <i class="trans-change">sa lahi_ ni Gad a
 
 
 
-Ito ang mga lupaing tatanggapin ng mga lahi ng Israel na kanilang mamanahin. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito. ## Ang mga Pintuan ng Lungsod ng Jerusalem <sup class="versenum">30-34</sup>Ang lungsod <i class="trans-change">ng Jerusalem_ ay napapalibutan ng pader. Sa bawat panig nito ay may tatlong pintuan. Ang tatlong pintuan sa gawing hilaga ng pader ay tatawaging Reuben, Juda, at Levi. Ang tatlong pintuan sa gawing silangan ay tatawaging Jose, Benjamin at Dan. Ang tatlong pintuan sa gawing timog ay tatawaging Simeon, Isacar at Zebulun. At ang tatlong pintuan sa gawing kanluran ay tatawaging Gad, Asher, at Naftali. Ang bawat pader sa ibaʼt ibang panig ay 2,250 metro ang haba. 
+Ito ang mga lupaing tatanggapin ng mga lahi ng Israel na kanilang mamanahin. <i class="trans-change">Ako,_ ang Panginoong Dios, ang nagsasabi nito.
+
+## Ang mga Pintuan ng Lungsod ng Jerusalem <sup class="versenum">30-34</sup>Ang lungsod <i class="trans-change">ng Jerusalem_ ay napapalibutan ng pader. Sa bawat panig nito ay may tatlong pintuan. Ang tatlong pintuan sa gawing hilaga ng pader ay tatawaging Reuben, Juda, at Levi. Ang tatlong pintuan sa gawing silangan ay tatawaging Jose, Benjamin at Dan. Ang tatlong pintuan sa gawing timog ay tatawaging Simeon, Isacar at Zebulun. At ang tatlong pintuan sa gawing kanluran ay tatawaging Gad, Asher, at Naftali. Ang bawat pader sa ibaʼt ibang panig ay 2,250 metro ang haba. 
 
 
 

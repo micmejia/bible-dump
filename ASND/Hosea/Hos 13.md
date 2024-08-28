@@ -205,7 +205,9 @@ Kinalinga ko kayo roon sa disyerto, sa tuyong lupain.
 
 
 
-Pero pagkatapos ko kayong pagpalain at paunlarin, naging mapagmataas kayo at kinalimutan na ninyo ako. ###### 7-8 Kaya sasalakayin ko kayo at lalapain tulad ng ginagawa ng mabangis na hayop sa kanyang biktima. Lalapain ko kayo gaya ng ginagawa ng leon at ng osong inagawan ng anak. Babantayan ko kayo sa daan at sasalakayin tulad ng <i class="trans-change">hayop na_ leopardo. 
+Pero pagkatapos ko kayong pagpalain at paunlarin, naging mapagmataas kayo at kinalimutan na ninyo ako.
+
+###### 7-8 Kaya sasalakayin ko kayo at lalapain tulad ng ginagawa ng mabangis na hayop sa kanyang biktima. Lalapain ko kayo gaya ng ginagawa ng leon at ng osong inagawan ng anak. Babantayan ko kayo sa daan at sasalakayin tulad ng <i class="trans-change">hayop na_ leopardo. 
 
 
 

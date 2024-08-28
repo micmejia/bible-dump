@@ -12,7 +12,9 @@ next: ['1 Pet 2']
 Peter, an apostle of Jesus Christ, To the pilgrims of the Dispersion in Pontus, Galatia, Cappadocia, Asia, and Bithynia, 
 
 ###### 2 
-elect according to the foreknowledge of God the Father, in sanctification of the Spirit, for obedience and sprinkling of the blood of Jesus Christ: Grace to you and peace be multiplied. ## A Heavenly Inheritance 
+elect according to the foreknowledge of God the Father, in sanctification of the Spirit, for obedience and sprinkling of the blood of Jesus Christ: Grace to you and peace be multiplied.
+
+## A Heavenly Inheritance 
 
 ###### 3 
 Blessed _be_ the God and Father of our Lord Jesus Christ, who according to His abundant mercy has begotten us again to a living hope through the resurrection of Jesus Christ from the dead, 
@@ -42,7 +44,9 @@ Of this salvation the prophets have inquired and searched carefully, who prophes
 searching what, or what manner of time, the Spirit of Christ who was in them was indicating when He testified beforehand the sufferings of Christ and the glories that would follow. 
 
 ###### 12 
-To them it was revealed that, not to themselves, but to us they were ministering the things which now have been reported to you through those who have preached the gospel to you by the Holy Spirit sent from heaven--things which angels desire to look into. ## Living Before God Our Father 
+To them it was revealed that, not to themselves, but to us they were ministering the things which now have been reported to you through those who have preached the gospel to you by the Holy Spirit sent from heaven--things which angels desire to look into.
+
+## Living Before God Our Father 
 
 ###### 13 
 Therefore gird up the loins of your mind, be sober, and rest _your_ hope fully upon the grace that is to be brought to you at the revelation of Jesus Christ; 
@@ -69,7 +73,9 @@ but with the precious blood of Christ, as of a lamb without blemish and without 
 He indeed was foreordained before the foundation of the world, but was manifest in these last times for you 
 
 ###### 21 
-who through Him believe in God, who raised Him from the dead and gave Him glory, so that your faith and hope are in God. ## The Enduring Word 
+who through Him believe in God, who raised Him from the dead and gave Him glory, so that your faith and hope are in God.
+
+## The Enduring Word 
 
 ###### 22 
 Since you have purified your souls in obeying the truth through the Spirit in sincere love of the brethren, love one another fervently with a pure heart, 

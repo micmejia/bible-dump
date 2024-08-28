@@ -172,7 +172,9 @@ Pagkatapos, pumunta si Jeremias sa Jerusalem, at sinabi ang lahat ng ito kay Har
 
 
 
-Sumasalakay na ng panahong iyon ang hukbo ng hari ng Babilonia sa Jerusalem, sa Lakish at sa Azeka. Ito na lang ang mga lungsod ng Juda na may mga pader. ## Pagpapalaya ng mga Alipin 
+Sumasalakay na ng panahong iyon ang hukbo ng hari ng Babilonia sa Jerusalem, sa Lakish at sa Azeka. Ito na lang ang mga lungsod ng Juda na may mga pader.
+
+## Pagpapalaya ng mga Alipin 
 
 
 

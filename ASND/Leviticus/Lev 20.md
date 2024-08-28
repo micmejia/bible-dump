@@ -73,7 +73,9 @@ Inutusan ng Panginoon si Moises,
 
 
 
-na sabihin ito sa mga taga-Israel: Ang sinuman sa inyo at sa mga dayuhang naninirahang kasama ninyo na maghahandog ng kanyang anak sa <i class="trans-change">dios-diosang si_ Molec ay dapat batuhin ng taong bayan hanggang sa mamatay. ###### 3-4 Kasusuklaman ko ang taong iyon at huwag na ninyong ituring na kababayan. Sapagkat dahil sa paghahandog niya ng kanyang anak kay Molec, dinungisan niya ang lugar na pinagsasambahan sa akin at nilapastangan niya ang aking pangalan. Kapag ang taong iyon ay hinahayaan ninyo sa kanyang ginagawang iyon, 
+na sabihin ito sa mga taga-Israel: Ang sinuman sa inyo at sa mga dayuhang naninirahang kasama ninyo na maghahandog ng kanyang anak sa <i class="trans-change">dios-diosang si_ Molec ay dapat batuhin ng taong bayan hanggang sa mamatay.
+
+###### 3-4 Kasusuklaman ko ang taong iyon at huwag na ninyong ituring na kababayan. Sapagkat dahil sa paghahandog niya ng kanyang anak kay Molec, dinungisan niya ang lugar na pinagsasambahan sa akin at nilapastangan niya ang aking pangalan. Kapag ang taong iyon ay hinahayaan ninyo sa kanyang ginagawang iyon, 
 
 
 

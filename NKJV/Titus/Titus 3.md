@@ -30,7 +30,9 @@ whom He poured out on us abundantly through Jesus Christ our Savior,
 that having been justified by His grace we should become heirs according to the hope of eternal life. 
 
 ###### 8 
-This is a faithful saying, and these things I want you to affirm constantly, that those who have believed in God should be careful to maintain good works. These things are good and profitable to men. ## Avoid Dissension 
+This is a faithful saying, and these things I want you to affirm constantly, that those who have believed in God should be careful to maintain good works. These things are good and profitable to men.
+
+## Avoid Dissension 
 
 ###### 9 
 But avoid foolish disputes, genealogies, contentions, and strivings about the law; for they are unprofitable and useless. 
@@ -39,7 +41,9 @@ But avoid foolish disputes, genealogies, contentions, and strivings about the la
 Reject a divisive man after the first and second admonition, 
 
 ###### 11 
-knowing that such a person is warped and sinning, being self-condemned. ## Final Messages 
+knowing that such a person is warped and sinning, being self-condemned.
+
+## Final Messages 
 
 ###### 12 
 When I send Artemas to you, or Tychicus, be diligent to come to me at Nicopolis, for I have decided to spend the winter there. 
@@ -48,7 +52,9 @@ When I send Artemas to you, or Tychicus, be diligent to come to me at Nicopolis,
 Send Zenas the lawyer and Apollos on their journey with haste, that they may lack nothing. 
 
 ###### 14 
-And let our _people_ also learn to maintain good works, to _meet_ urgent needs, that they may not be unfruitful. ## Farewell 
+And let our _people_ also learn to maintain good works, to _meet_ urgent needs, that they may not be unfruitful.
+
+## Farewell 
 
 ###### 15 
 All who _are_ with me greet you. Greet those who love us in the faith. Grace _be_ with you all. Amen.

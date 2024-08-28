@@ -28,7 +28,9 @@ Afterwards _they offered_ the regular burnt offering, and _those_ for New Moons 
 From the first day of the seventh month they began to offer burnt offerings to the Lord, although the foundation of the temple of the Lord had not been laid. 
 
 ###### 7 
-They also gave money to the masons and the carpenters, and food, drink, and oil to the people of Sidon and Tyre to bring cedar logs from Lebanon to the sea, to Joppa, according to the permission which they had from Cyrus king of Persia. ## Restoration of the Temple Begins 
+They also gave money to the masons and the carpenters, and food, drink, and oil to the people of Sidon and Tyre to bring cedar logs from Lebanon to the sea, to Joppa, according to the permission which they had from Cyrus king of Persia.
+
+## Restoration of the Temple Begins 
 
 ###### 8 
 Now in the second month of the second year of their coming to the house of God at Jerusalem, Zerubbabel the son of Shealtiel, Jeshua the son of Jozadak, and the rest of their brethren the priests and the Levites, and all those who had come out of the captivity to Jerusalem, began _work_ and appointed the Levites from twenty years old and above to oversee the work of the house of the Lord. 

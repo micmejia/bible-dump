@@ -16,7 +16,9 @@ Behold what manner of love the Father has bestowed on us, that we should be call
 Beloved, now we are children of God; and it has not yet been revealed what we shall be, but we know that when He is revealed, we shall be like Him, for we shall see Him as He is. 
 
 ###### 3 
-And everyone who has this hope in Him purifies himself, just as He is pure. ## Sin and the Child of God 
+And everyone who has this hope in Him purifies himself, just as He is pure.
+
+## Sin and the Child of God 
 
 ###### 4 
 Whoever commits sin also commits lawlessness, and sin is lawlessness. 
@@ -34,7 +36,9 @@ Little children, let no one deceive you. He who practices righteousness is right
 He who sins is of the devil, for the devil has sinned from the beginning. For this purpose the Son of God was manifested, that He might destroy the works of the devil. 
 
 ###### 9 
-Whoever has been born of God does not sin, for His seed remains in him; and he cannot sin, because he has been born of God. ## The Imperative of Love 
+Whoever has been born of God does not sin, for His seed remains in him; and he cannot sin, because he has been born of God.
+
+## The Imperative of Love 
 
 ###### 10 
 In this the children of God and the children of the devil are manifest: Whoever does not practice righteousness is not of God, nor _is_ he who does not love his brother. 
@@ -52,7 +56,9 @@ Do not marvel, my brethren, if the world hates you.
 We know that we have passed from death to life, because we love the brethren. He who does not love _his_ brother abides in death. 
 
 ###### 15 
-Whoever hates his brother is a murderer, and you know that no murderer has eternal life abiding in him. ## The Outworking of Love 
+Whoever hates his brother is a murderer, and you know that no murderer has eternal life abiding in him.
+
+## The Outworking of Love 
 
 ###### 16 
 By this we know love, because He laid down His life for us. And we also ought to lay down _our_ lives for the brethren. 
@@ -76,7 +82,9 @@ Beloved, if our heart does not condemn us, we have confidence toward God.
 And whatever we ask we receive from Him, because we keep His commandments and do those things that are pleasing in His sight. 
 
 ###### 23 
-And this is His commandment: that we should believe on the name of His Son Jesus Christ and love one another, as He gave us commandment. ## The Spirit of Truth and the Spirit of Error 
+And this is His commandment: that we should believe on the name of His Son Jesus Christ and love one another, as He gave us commandment.
+
+## The Spirit of Truth and the Spirit of Error 
 
 ###### 24 
 Now he who keeps His commandments abides in Him, and He in him. And by this we know that He abides in us, by the Spirit whom He has given us.

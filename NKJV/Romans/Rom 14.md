@@ -46,7 +46,9 @@ For it is written: "_As_ I live, says the Lord, Every knee shall bow to Me, And 
 So then each of us shall give account of himself to God. 
 
 ###### 13 
-Therefore let us not judge one another anymore, but rather resolve this, not to put a stumbling block or a cause to fall in _our_ brother's way. ## The Law of Love 
+Therefore let us not judge one another anymore, but rather resolve this, not to put a stumbling block or a cause to fall in _our_ brother's way.
+
+## The Law of Love 
 
 ###### 14 
 I know and am convinced by the Lord Jesus that _there is_ nothing unclean of itself; but to him who considers anything to be unclean, to him _it is_ unclean. 

@@ -46,7 +46,9 @@ Then he shall take off his garments, put on other garments, and carry the ashes 
 And the fire on the altar shall be kept burning on it; it shall not be put out. And the priest shall burn wood on it every morning, and lay the burnt offering in order on it; and he shall burn on it the fat of the peace offerings. 
 
 ###### 13 
-A fire shall always be burning on the altar; it shall never go out. ## The Law of the Grain Offering 
+A fire shall always be burning on the altar; it shall never go out.
+
+## The Law of the Grain Offering 
 
 ###### 14 
 'This _is_ the law of the grain offering: The sons of Aaron shall offer it on the altar before the Lord. 

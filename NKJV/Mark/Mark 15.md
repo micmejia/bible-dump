@@ -22,7 +22,9 @@ And the chief priests accused Him of many things, but He answered nothing.
 Then Pilate asked Him again, saying, "Do You answer nothing? See how many things they testify against You!" 
 
 ###### 5 
-But Jesus still answered nothing, so that Pilate marveled. ## Taking the Place of Barabbas 
+But Jesus still answered nothing, so that Pilate marveled.
+
+## Taking the Place of Barabbas 
 
 ###### 6 
 Now at the feast he was accustomed to releasing one prisoner to them, whomever they requested. 
@@ -52,7 +54,9 @@ So they cried out again, "Crucify Him!"
 Then Pilate said to them, "Why, what evil has He done?" But they cried out all the more, "Crucify Him!" 
 
 ###### 15 
-So Pilate, wanting to gratify the crowd, released Barabbas to them; and he delivered Jesus, after he had scourged _Him,_ to be crucified. ## The Soldiers Mock Jesus 
+So Pilate, wanting to gratify the crowd, released Barabbas to them; and he delivered Jesus, after he had scourged _Him,_ to be crucified.
+
+## The Soldiers Mock Jesus 
 
 ###### 16 
 Then the soldiers led Him away into the hall called Praetorium, and they called together the whole garrison. 
@@ -67,7 +71,9 @@ and began to salute Him, "Hail, King of the Jews!"
 Then they struck Him on the head with a reed and spat on Him; and bowing the knee, they worshiped Him. 
 
 ###### 20 
-And when they had mocked Him, they took the purple off Him, put His own clothes on Him, and led Him out to crucify Him. ## The King on a Cross 
+And when they had mocked Him, they took the purple off Him, put His own clothes on Him, and led Him out to crucify Him.
+
+## The King on a Cross 
 
 ###### 21 
 Then they compelled a certain man, Simon a Cyrenian, the father of Alexander and Rufus, as he was coming out of the country and passing by, to bear His cross. 
@@ -103,7 +109,9 @@ save Yourself, and come down from the cross!"
 Likewise the chief priests also, mocking among themselves with the scribes, said, "He saved others; Himself He cannot save. 
 
 ###### 32 
-Let the Christ, the King of Israel, descend now from the cross, that we may see and believe." Even those who were crucified with Him reviled Him. ## Jesus Dies on the Cross 
+Let the Christ, the King of Israel, descend now from the cross, that we may see and believe." Even those who were crucified with Him reviled Him.
+
+## Jesus Dies on the Cross 
 
 ###### 33 
 Now when the sixth hour had come, there was darkness over the whole land until the ninth hour. 
@@ -130,7 +138,9 @@ So when the centurion, who stood opposite Him, saw that He cried out like this a
 There were also women looking on from afar, among whom were Mary Magdalene, Mary the mother of James the Less and of Joses, and Salome, 
 
 ###### 41 
-who also followed Him and ministered to Him when He was in Galilee, and many other women who came up with Him to Jerusalem. ## Jesus Buried in Joseph's Tomb 
+who also followed Him and ministered to Him when He was in Galilee, and many other women who came up with Him to Jerusalem.
+
+## Jesus Buried in Joseph's Tomb 
 
 ###### 42 
 Now when evening had come, because it was the Preparation Day, that is, the day before the Sabbath, 

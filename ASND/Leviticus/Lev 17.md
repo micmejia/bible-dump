@@ -106,7 +106,9 @@ na sabihin ito kay Aaron at sa mga anak niyang lalaki, at sa lahat ng mga taga-I
 
 
 
-Ang sinuman sa inyo na maghahandog ng baka, tupa, o kambing sa ibang lugar ###### 4-5 maliban sa Toldang Tipanan ay katulad ng taong nakapatay ng kapwa, kaya huwag ninyo siyang ituturing na kababayan ninyo. Ang tuntuning itoʼy ginawa para ang paghahandog ay gagawin ninyo malapit sa may pintuan ng Tolda at hindi sa ibang lugar. Ang inyong mga handog para sa mabuting relasyon ay ibibigay ninyo sa pari na siyang maghahandog nito sa Panginoon. 
+Ang sinuman sa inyo na maghahandog ng baka, tupa, o kambing sa ibang lugar
+
+###### 4-5 maliban sa Toldang Tipanan ay katulad ng taong nakapatay ng kapwa, kaya huwag ninyo siyang ituturing na kababayan ninyo. Ang tuntuning itoʼy ginawa para ang paghahandog ay gagawin ninyo malapit sa may pintuan ng Tolda at hindi sa ibang lugar. Ang inyong mga handog para sa mabuting relasyon ay ibibigay ninyo sa pari na siyang maghahandog nito sa Panginoon. 
 
 
 

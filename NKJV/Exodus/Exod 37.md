@@ -34,7 +34,9 @@ He made two cherubim of beaten gold; he made them of one piece at the two ends o
 one cherub at one end on this side, and the other cherub at the _other_ end on that side. He made the cherubim at the two ends _of one piece_ with the mercy seat. 
 
 ###### 9 
-The cherubim spread out _their_ wings above, _and_ covered the mercy seat with their wings. They faced one another; the faces of the cherubim were toward the mercy seat. ## Making the Table for the Showbread 
+The cherubim spread out _their_ wings above, _and_ covered the mercy seat with their wings. They faced one another; the faces of the cherubim were toward the mercy seat.
+
+## Making the Table for the Showbread 
 
 ###### 10 
 He made the table of acacia wood; two cubits _was_ its length, a cubit its width, and a cubit and a half its height. 
@@ -55,7 +57,9 @@ The rings were close to the frame, as holders for the poles to bear the table.
 And he made the poles of acacia wood to bear the table, and overlaid them with gold. 
 
 ###### 16 
-He made of pure gold the utensils which were on the table: its dishes, its cups, its bowls, and its pitchers for pouring. ## Making the Gold Lampstand 
+He made of pure gold the utensils which were on the table: its dishes, its cups, its bowls, and its pitchers for pouring.
+
+## Making the Gold Lampstand 
 
 ###### 17 
 He also made the lampstand of pure gold; of hammered work he made the lampstand. Its shaft, its branches, its bowls, its _ornamental_ knobs, and its flowers were of the same piece. 
@@ -79,7 +83,9 @@ Their knobs and their branches were of one piece; all of it _was_ one hammered p
 And he made its seven lamps, its wick-trimmers, and its trays of pure gold. 
 
 ###### 24 
-Of a talent of pure gold he made it, with all its utensils. ## Making the Altar of Incense 
+Of a talent of pure gold he made it, with all its utensils.
+
+## Making the Altar of Incense 
 
 ###### 25 
 He made the incense altar of acacia wood. Its length _was_ a cubit and its width a cubit--_it was_ square--and two cubits _was_ its height. Its horns were _of one piece_ with it. 
@@ -91,7 +97,9 @@ And he overlaid it with pure gold: its top, its sides all around, and its horns.
 He made two rings of gold for it under its molding, by its two corners on both sides, as holders for the poles with which to bear it. 
 
 ###### 28 
-And he made the poles of acacia wood, and overlaid them with gold. ## Making the Anointing Oil and the Incense 
+And he made the poles of acacia wood, and overlaid them with gold.
+
+## Making the Anointing Oil and the Incense 
 
 ###### 29 
 He also made the holy anointing oil and the pure incense of sweet spices, according to the work of the perfumer.

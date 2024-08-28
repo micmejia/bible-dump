@@ -16,7 +16,9 @@ Gather yourselves together, yes, gather together, O undesirable nation,
 Before the decree is issued, _Or_ the day passes like chaff, Before the Lord's fierce anger comes upon you, Before the day of the Lord's anger comes upon you! 
 
 ###### 3 
-Seek the Lord, all you meek of the earth, Who have upheld His justice. Seek righteousness, seek humility. It may be that you will be hidden In the day of the Lord's anger. ## Judgment on Nations 
+Seek the Lord, all you meek of the earth, Who have upheld His justice. Seek righteousness, seek humility. It may be that you will be hidden In the day of the Lord's anger.
+
+## Judgment on Nations 
 
 ###### 4 
 For Gaza shall be forsaken, And Ashkelon desolate; They shall drive out Ashdod at noonday, And Ekron shall be uprooted. 

@@ -634,7 +634,9 @@ Niloko ni Jacob si Laban na Arameo dahil hindi siya nagpaalam sa pag-alis niya.
 
 
 
-Nang umalis si Jacob, dala niya ang lahat ng ari-arian niya. Tumawid siya sa Ilog Eufrates at pumunta sa bundok ng Gilead. ## Hinabol ni Laban si Jacob 
+Nang umalis si Jacob, dala niya ang lahat ng ari-arian niya. Tumawid siya sa Ilog Eufrates at pumunta sa bundok ng Gilead.
+
+## Hinabol ni Laban si Jacob 
 
 
 

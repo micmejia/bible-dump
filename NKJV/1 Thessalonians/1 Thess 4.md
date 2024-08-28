@@ -31,7 +31,9 @@ that no one should take advantage of and defraud his brother in this matter, bec
 For God did not call us to uncleanness, but in holiness. 
 
 ###### 8 
-Therefore he who rejects _this_ does not reject man, but God, who has also given us His Holy Spirit. ## A Brotherly and Orderly Life 
+Therefore he who rejects _this_ does not reject man, but God, who has also given us His Holy Spirit.
+
+## A Brotherly and Orderly Life 
 
 ###### 9 
 But concerning brotherly love you have no need that I should write to you, for you yourselves are taught by God to love one another; 
@@ -43,7 +45,9 @@ and indeed you do so toward all the brethren who are in all Macedonia. But we ur
 that you also aspire to lead a quiet life, to mind your own business, and to work with your own hands, as we commanded you, 
 
 ###### 12 
-that you may walk properly toward those who are outside, and _that_ you may lack nothing. ## The Comfort of Christ's Coming 
+that you may walk properly toward those who are outside, and _that_ you may lack nothing.
+
+## The Comfort of Christ's Coming 
 
 ###### 13 
 But I do not want you to be ignorant, brethren, concerning those who have fallen asleep, lest you sorrow as others who have no hope. 

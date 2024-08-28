@@ -403,7 +403,9 @@ Pero mas naniwala ang kapitan ng mga sundalo sa sinabi ng kapitan ng barko at ng
 
 
 
-At dahil sa hindi ligtas sa malakas na hangin ang daungan doon, karamihan sa mga kasama namin ay sumang-ayon na magbiyahe. Nagbakasakali silang makakarating kami sa Fenix at doon magpapalipas ng tag-unos. Sapagkat ang Fenix ay isang daungan sa Crete na may magandang kublihan kung tag-unos. ## Ang Malakas na Hangin at Alon sa Dagat 
+At dahil sa hindi ligtas sa malakas na hangin ang daungan doon, karamihan sa mga kasama namin ay sumang-ayon na magbiyahe. Nagbakasakali silang makakarating kami sa Fenix at doon magpapalipas ng tag-unos. Sapagkat ang Fenix ay isang daungan sa Crete na may magandang kublihan kung tag-unos.
+
+## Ang Malakas na Hangin at Alon sa Dagat 
 
 
 
@@ -1261,7 +1263,9 @@ Lumakas ang kanilang loob at kumain silang lahat.
 
 
 
-Nang makakain na ang lahat at busog na, itinapon nila sa dagat ang kanilang mga dalang trigo para gumaan ang barko. ## Ang Pagkasira ng Barko 
+Nang makakain na ang lahat at busog na, itinapon nila sa dagat ang kanilang mga dalang trigo para gumaan ang barko.
+
+## Ang Pagkasira ng Barko 
 
 
 

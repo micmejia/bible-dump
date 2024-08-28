@@ -1095,7 +1095,9 @@ Maghuhugas sila kapag pumapasok sa Tolda o kapag lalapit sila sa altar. <i class
 
 
 
-Pagkatapos, inilagay ni Moises ang mga kurtina ng bakuran, na nakapaligid sa Tolda at altar, pati ang kurtina sa pintuan ng bakuran. At natapos ni Moises ang lahat ng gawain niya. ## Ang Makapangyarihang Presensya ng Panginoon 
+Pagkatapos, inilagay ni Moises ang mga kurtina ng bakuran, na nakapaligid sa Tolda at altar, pati ang kurtina sa pintuan ng bakuran. At natapos ni Moises ang lahat ng gawain niya.
+
+## Ang Makapangyarihang Presensya ng Panginoon 
 
 
 

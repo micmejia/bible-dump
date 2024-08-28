@@ -46,7 +46,9 @@ And while they went to buy, the bridegroom came, and those who were ready went i
 But he answered and said, 'Assuredly, I say to you, I do not know you.' 
 
 ###### 13 
-"Watch therefore, for you know neither the day nor the hour in which the Son of Man is coming. ## The Parable of the Talents 
+"Watch therefore, for you know neither the day nor the hour in which the Son of Man is coming.
+
+## The Parable of the Talents 
 
 ###### 14 
 "For _the kingdom of heaven is_ like a man traveling to a far country, _who_ called his own servants and delivered his goods to them. 

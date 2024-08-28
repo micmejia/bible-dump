@@ -205,7 +205,9 @@ Kung gusto mo talagang magpaiwan dito, bumalik ka kay Gedalia na anak ni Ahikam 
 
 
 
-Kaya umalis si Jeremias at pumunta kay Gedalia roon sa Mizpa at tumira roon kasama ng mga taong naiwan. ## Ang Pamamahala ni Gedalia sa Juda 
+Kaya umalis si Jeremias at pumunta kay Gedalia roon sa Mizpa at tumira roon kasama ng mga taong naiwan.
+
+## Ang Pamamahala ni Gedalia sa Juda 
 
 
 

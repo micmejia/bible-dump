@@ -85,7 +85,9 @@ So he said, "You have taken away my gods which I made, and the priest, and you h
 And the children of Dan said to him, "Do not let your voice be heard among us, lest angry men fall upon you, and you lose your life, with the lives of your household!" 
 
 ###### 26 
-Then the children of Dan went their way. And when Micah saw that they _were_ too strong for him, he turned and went back to his house. ## Danites Settle in Laish 
+Then the children of Dan went their way. And when Micah saw that they _were_ too strong for him, he turned and went back to his house.
+
+## Danites Settle in Laish 
 
 ###### 27 
 So they took _the things_ Micah had made, and the priest who had belonged to him, and went to Laish, to a people quiet and secure; and they struck them with the edge of the sword and burned the city with fire. 

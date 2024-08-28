@@ -40,7 +40,9 @@ Why should it be thought incredible by you that God raises the dead?
 This I also did in Jerusalem, and many of the saints I shut up in prison, having received authority from the chief priests; and when they were put to death, I cast my vote against _them._ 
 
 ###### 11 
-And I punished them often in every synagogue and compelled _them_ to blaspheme; and being exceedingly enraged against them, I persecuted _them_ even to foreign cities. ## Paul Recounts His Conversion 
+And I punished them often in every synagogue and compelled _them_ to blaspheme; and being exceedingly enraged against them, I persecuted _them_ even to foreign cities.
+
+## Paul Recounts His Conversion 
 
 ###### 12 
 "While thus occupied, as I journeyed to Damascus with authority and commission from the chief priests, 

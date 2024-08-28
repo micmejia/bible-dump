@@ -31,7 +31,9 @@ for a friend of mine has come to me on his journey, and I have nothing to set be
 and he will answer from within and say, 'Do not trouble me; the door is now shut, and my children are with me in bed; I cannot rise and give to you'? 
 
 ###### 8 
-I say to you, though he will not rise and give to him because he is his friend, yet because of his persistence he will rise and give him as many as he needs. ## Keep Asking, Seeking, Knocking 
+I say to you, though he will not rise and give to him because he is his friend, yet because of his persistence he will rise and give him as many as he needs.
+
+## Keep Asking, Seeking, Knocking 
 
 ###### 9 
 "So I say to you, ask, and it will be given to you; seek, and you will find; knock, and it will be opened to you. 
@@ -76,7 +78,9 @@ When a strong man, fully armed, guards his own palace, his goods are in peace.
 But when a stronger than he comes upon him and overcomes him, he takes from him all his armor in which he trusted, and divides his spoils. 
 
 ###### 23 
-He who is not with Me is against Me, and he who does not gather with Me scatters. ## An Unclean Spirit Returns 
+He who is not with Me is against Me, and he who does not gather with Me scatters.
+
+## An Unclean Spirit Returns 
 
 ###### 24 
 "When an unclean spirit goes out of a man, he goes through dry places, seeking rest; and finding none, he says, 'I will return to my house from which I came.' 
@@ -103,7 +107,9 @@ For as Jonah became a sign to the Ninevites, so also the Son of Man will be to t
 The queen of the South will rise up in the judgment with the men of this generation and condemn them, for she came from the ends of the earth to hear the wisdom of Solomon; and indeed a greater than Solomon _is_ here. 
 
 ###### 32 
-The men of Nineveh will rise up in the judgment with this generation and condemn it, for they repented at the preaching of Jonah; and indeed a greater than Jonah _is_ here. ## The Lamp of the Body 
+The men of Nineveh will rise up in the judgment with this generation and condemn it, for they repented at the preaching of Jonah; and indeed a greater than Jonah _is_ here.
+
+## The Lamp of the Body 
 
 ###### 33 
 "No one, when he has lit a lamp, puts _it_ in a secret place or under a basket, but on a lampstand, that those who come in may see the light. 

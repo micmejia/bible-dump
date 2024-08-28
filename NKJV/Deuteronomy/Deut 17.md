@@ -46,7 +46,9 @@ According to the sentence of the law in which they instruct you, according to th
 Now the man who acts presumptuously and will not heed the priest who stands to minister there before the Lord your God, or the judge, that man shall die. So you shall put away the evil from Israel. 
 
 ###### 13 
-And all the people shall hear and fear, and no longer act presumptuously. ## Principles Governing Kings 
+And all the people shall hear and fear, and no longer act presumptuously.
+
+## Principles Governing Kings 
 
 ###### 14 
 "When you come to the land which the Lord your God is giving you, and possess it and dwell in it, and say, 'I will set a king over me like all the nations that _are_ around me,' 

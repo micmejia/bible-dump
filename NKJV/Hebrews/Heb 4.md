@@ -37,7 +37,9 @@ For if Joshua had given them rest, then He would not afterward have spoken of an
 There remains therefore a rest for the people of God. 
 
 ###### 10 
-For he who has entered His rest has himself also ceased from his works as God _did_ from His. ## The Word Discovers Our Condition 
+For he who has entered His rest has himself also ceased from his works as God _did_ from His.
+
+## The Word Discovers Our Condition 
 
 ###### 11 
 Let us therefore be diligent to enter that rest, lest anyone fall according to the same example of disobedience. 
@@ -46,7 +48,9 @@ Let us therefore be diligent to enter that rest, lest anyone fall according to t
 For the word of God _is_ living and powerful, and sharper than any two-edged sword, piercing even to the division of soul and spirit, and of joints and marrow, and is a discerner of the thoughts and intents of the heart. 
 
 ###### 13 
-And there is no creature hidden from His sight, but all things _are_ naked and open to the eyes of Him to whom we _must give_ account. ## Our Compassionate High Priest 
+And there is no creature hidden from His sight, but all things _are_ naked and open to the eyes of Him to whom we _must give_ account.
+
+## Our Compassionate High Priest 
 
 ###### 14 
 Seeing then that we have a great High Priest who has passed through the heavens, Jesus the Son of God, let us hold fast _our_ confession. 

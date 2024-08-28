@@ -58,7 +58,9 @@ For the hearts of this people have grown dull. _Their_ ears are hard of hearing,
 But blessed _are_ your eyes for they see, and your ears for they hear; 
 
 ###### 17 
-for assuredly, I say to you that many prophets and righteous _men_ desired to see what you see, and did not see _it,_ and to hear what you hear, and did not hear _it._ ## The Parable of the Sower Explained 
+for assuredly, I say to you that many prophets and righteous _men_ desired to see what you see, and did not see _it,_ and to hear what you hear, and did not hear _it._
+
+## The Parable of the Sower Explained 
 
 ###### 18 
 "Therefore hear the parable of the sower: 
@@ -139,13 +141,17 @@ and will cast them into the furnace of fire. There will be wailing and gnashing 
 Then the righteous will shine forth as the sun in the kingdom of their Father. He who has ears to hear, let him hear! ## The Parable of the Hidden Treasure 
 
 ###### 44 
-"Again, the kingdom of heaven is like treasure hidden in a field, which a man found and hid; and for joy over it he goes and sells all that he has and buys that field. ## The Parable of the Pearl of Great Price 
+"Again, the kingdom of heaven is like treasure hidden in a field, which a man found and hid; and for joy over it he goes and sells all that he has and buys that field.
+
+## The Parable of the Pearl of Great Price 
 
 ###### 45 
 "Again, the kingdom of heaven is like a merchant seeking beautiful pearls, 
 
 ###### 46 
-who, when he had found one pearl of great price, went and sold all that he had and bought it. ## The Parable of the Dragnet 
+who, when he had found one pearl of great price, went and sold all that he had and bought it.
+
+## The Parable of the Dragnet 
 
 ###### 47 
 "Again, the kingdom of heaven is like a dragnet that was cast into the sea and gathered some of every kind, 

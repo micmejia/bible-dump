@@ -337,7 +337,9 @@ Nakita ng lahat na lumalakad siya at nagpupuri sa Dios.
 
 
 
-Napansin nila na siya pala ang taong palaging nakaupo at humihingi ng limos doon sa pintuan ng templo na tinatawag na "Maganda." Kaya lubos ang kanilang pagkamangha sa nangyari sa kanya. ## Nagsalita si Pedro sa Balkonahe ni Solomon 
+Napansin nila na siya pala ang taong palaging nakaupo at humihingi ng limos doon sa pintuan ng templo na tinatawag na "Maganda." Kaya lubos ang kanilang pagkamangha sa nangyari sa kanya.
+
+## Nagsalita si Pedro sa Balkonahe ni Solomon 
 
 
 

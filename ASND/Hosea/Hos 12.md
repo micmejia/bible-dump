@@ -205,7 +205,9 @@ Siya ang Panginoong Dios na Makapangyarihan sa lahat. Panginoon ang kanyang pang
 
 
 
-Kaya kayong mga lahi ni Jacob, magbalik-loob na kayo sa Dios at ipakita ninyo ang pag-ibig at katarungan. At patuloy kayong magtiwala sa kanya. ## Dagdag na Sumbat ng Panginoon sa Israel 
+Kaya kayong mga lahi ni Jacob, magbalik-loob na kayo sa Dios at ipakita ninyo ang pag-ibig at katarungan. At patuloy kayong magtiwala sa kanya.
+
+## Dagdag na Sumbat ng Panginoon sa Israel 
 
 
 

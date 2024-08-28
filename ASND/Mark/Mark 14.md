@@ -370,7 +370,9 @@ Si Judas Iscariote na isa sa 12 <i class="trans-change">tagasunod_ ay pumunta sa
 
 
 
-Natuwa sila nang malaman nila ang pakay ni Judas, at nangako silang bibigyan siya ng pera. Kaya mula noon, humanap si Judas ng pagkakataon upang maibigay si Jesus sa kanila. ## Ang Huling Hapunan ni Jesus Kasama ang mga Tagasunod Niya 
+Natuwa sila nang malaman nila ang pakay ni Judas, at nangako silang bibigyan siya ng pera. Kaya mula noon, humanap si Judas ng pagkakataon upang maibigay si Jesus sa kanila.
+
+## Ang Huling Hapunan ni Jesus Kasama ang mga Tagasunod Niya 
 
 
 
@@ -799,7 +801,9 @@ Sinasabi ko sa inyo ang totoo, hindi na ako muling iinom ng inuming mula sa ubas
 
 
 
-Umawit sila ng papuri sa Dios at pagkatapos ay pumunta sila sa Bundok ng mga Olibo. ## Sinabi ni Jesus na Ikakaila Siya ni Pedro 
+Umawit sila ng papuri sa Dios at pagkatapos ay pumunta sila sa Bundok ng mga Olibo.
+
+## Sinabi ni Jesus na Ikakaila Siya ni Pedro 
 
 
 
@@ -964,7 +968,9 @@ Sinagot siya ni Jesus, "Sinasabi ko sa iyo ang totoo, bago tumilaok ang manok na
 
 
 
-Pero iginiit pa rin ni Pedro, "Hinding-hindi ko kayo ikakaila, kahit na patayin pa akong kasama ninyo." At ganoon din ang sinabi ng iba pa niyang kasamahan. ## Nanalangin si Jesus sa Getsemane 
+Pero iginiit pa rin ni Pedro, "Hinding-hindi ko kayo ikakaila, kahit na patayin pa akong kasama ninyo." At ganoon din ang sinabi ng iba pa niyang kasamahan.
+
+## Nanalangin si Jesus sa Getsemane 
 
 
 
@@ -1657,7 +1663,9 @@ May isang binata roon na sumunod kay Jesus na nakabalabal lang ng telang linen. 
 
 
 
-pero nakawala siya at tumakas nang hubad, <i class="trans-change">dahil nahawakan nila ang kanyang balabal._ ## Dinala si Jesus sa Korte ng mga Judio 
+pero nakawala siya at tumakas nang hubad, <i class="trans-change">dahil nahawakan nila ang kanyang balabal._
+
+## Dinala si Jesus sa Korte ng mga Judio 
 
 
 
@@ -2086,7 +2094,9 @@ Narinig ninyo ang paglapastangan <i class="trans-change">niya_ sa Dios. Ano ngay
 
 
 
-Dinuraan siya ng ilang naroon. Piniringan din siya at sinuntok, at tinanong, "Sige nga, hulaan mo kung sino ang sumuntok sa iyo?" Pagkatapos, kinuha siya ng mga guwardya at pinagbubugbog. ## Ipinagkaila ni Pedro na Kilala Niya si Jesus 
+Dinuraan siya ng ilang naroon. Piniringan din siya at sinuntok, at tinanong, "Sige nga, hulaan mo kung sino ang sumuntok sa iyo?" Pagkatapos, kinuha siya ng mga guwardya at pinagbubugbog.
+
+## Ipinagkaila ni Pedro na Kilala Niya si Jesus 
 
 
 

@@ -39,7 +39,9 @@ next: ['Acts 2']
 
 
 
-<i class="trans-change">Minamahal kong_ Teofilus: Sa aking unang aklat, isinulat ko ang lahat ng ginawa at itinuro ni Jesus mula nang nagsimula siya sa kanyang gawain ###### 2-3 hanggang sa araw na dinala siya sa langit. Matapos siyang mamatay at mabuhay muli, makailang beses siyang nagpakita sa kanyang mga apostol sa ibaʼt ibang paraan para patunayan <i class="trans-change">sa kanila_ na muli siyang nabuhay. Sa loob ng 40 araw, nagpakita siya sa kanila at nagturo tungkol sa paghahari ng Dios. At sa pamamagitan ng Banal na Espiritu, nag-iwan siya ng mga utos sa kanyang piniling mga apostol. 
+<i class="trans-change">Minamahal kong_ Teofilus: Sa aking unang aklat, isinulat ko ang lahat ng ginawa at itinuro ni Jesus mula nang nagsimula siya sa kanyang gawain
+
+###### 2-3 hanggang sa araw na dinala siya sa langit. Matapos siyang mamatay at mabuhay muli, makailang beses siyang nagpakita sa kanyang mga apostol sa ibaʼt ibang paraan para patunayan <i class="trans-change">sa kanila_ na muli siyang nabuhay. Sa loob ng 40 araw, nagpakita siya sa kanila at nagturo tungkol sa paghahari ng Dios. At sa pamamagitan ng Banal na Espiritu, nag-iwan siya ng mga utos sa kanyang piniling mga apostol. 
 
 
 

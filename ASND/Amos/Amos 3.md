@@ -73,7 +73,9 @@ Kayong mga taga-Israel, na <i class="trans-change">ang mga ninuno ay_ inilabas n
 
 
 
-Sa lahat ng bansa sa buong mundo, kayo lamang ang aking pinili na maging mga mamamayan ko. Kaya parurusahan ko kayo dahil sa lahat ng inyong mga kasalanan. ## Itinalaga ng Dios ang Gawain ng mga Propeta 
+Sa lahat ng bansa sa buong mundo, kayo lamang ang aking pinili na maging mga mamamayan ko. Kaya parurusahan ko kayo dahil sa lahat ng inyong mga kasalanan.
+
+## Itinalaga ng Dios ang Gawain ng mga Propeta 
 
 
 

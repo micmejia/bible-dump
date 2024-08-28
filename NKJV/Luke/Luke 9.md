@@ -25,7 +25,9 @@ And He said to them, "Take nothing for the journey, neither staffs nor bag nor b
 And whoever will not receive you, when you go out of that city, shake off the very dust from your feet as a testimony against them." 
 
 ###### 6 
-So they departed and went through the towns, preaching the gospel and healing everywhere. ## Herod Seeks to See Jesus 
+So they departed and went through the towns, preaching the gospel and healing everywhere.
+
+## Herod Seeks to See Jesus 
 
 ###### 7 
 Now Herod the tetrarch heard of all that was done by Him; and he was perplexed, because it was said by some that John had risen from the dead, 
@@ -34,7 +36,9 @@ Now Herod the tetrarch heard of all that was done by Him; and he was perplexed, 
 and by some that Elijah had appeared, and by others that one of the old prophets had risen again. 
 
 ###### 9 
-Herod said, "John I have beheaded, but who is this of whom I hear such things?" So he sought to see Him. ## Feeding the Five Thousand 
+Herod said, "John I have beheaded, but who is this of whom I hear such things?" So he sought to see Him.
+
+## Feeding the Five Thousand 
 
 ###### 10 
 And the apostles, when they had returned, told Him all that they had done. Then He took them and went aside privately into a deserted place belonging to the city called Bethsaida. 
@@ -58,7 +62,9 @@ And they did so, and made them all sit down.
 Then He took the five loaves and the two fish, and looking up to heaven, He blessed and broke them, and gave _them_ to the disciples to set before the multitude. 
 
 ###### 17 
-So they all ate and were filled, and twelve baskets of the leftover fragments were taken up by them. ## Peter Confesses Jesus as the Christ 
+So they all ate and were filled, and twelve baskets of the leftover fragments were taken up by them.
+
+## Peter Confesses Jesus as the Christ 
 
 ###### 18 
 And it happened, as He was alone praying, _that_ His disciples joined Him, and He asked them, saying, "Who do the crowds say that I am?" 
@@ -115,7 +121,9 @@ While he was saying this, a cloud came and overshadowed them; and they were fear
 And a voice came out of the cloud, saying, "This is My beloved Son. Hear Him!" 
 
 ###### 36 
-When the voice had ceased, Jesus was found alone. But they kept quiet, and told no one in those days any of the things they had seen. ## A Boy Is Healed 
+When the voice had ceased, Jesus was found alone. But they kept quiet, and told no one in those days any of the things they had seen.
+
+## A Boy Is Healed 
 
 ###### 37 
 Now it happened on the next day, when they had come down from the mountain, that a great multitude met Him. 
@@ -133,7 +141,9 @@ So I implored Your disciples to cast it out, but they could not."
 Then Jesus answered and said, "O faithless and perverse generation, how long shall I be with you and bear with you? Bring your son here." 
 
 ###### 42 
-And as he was still coming, the demon threw him down and convulsed _him._ Then Jesus rebuked the unclean spirit, healed the child, and gave him back to his father. ## Jesus Again Predicts His Death 
+And as he was still coming, the demon threw him down and convulsed _him._ Then Jesus rebuked the unclean spirit, healed the child, and gave him back to his father.
+
+## Jesus Again Predicts His Death 
 
 ###### 43 
 And they were all amazed at the majesty of God. But while everyone marveled at all the things which Jesus did, He said to His disciples, 
@@ -142,7 +152,9 @@ And they were all amazed at the majesty of God. But while everyone marveled at a
 "Let these words sink down into your ears, for the Son of Man is about to be betrayed into the hands of men." 
 
 ###### 45 
-But they did not understand this saying, and it was hidden from them so that they did not perceive it; and they were afraid to ask Him about this saying. ## Who Is the Greatest? 
+But they did not understand this saying, and it was hidden from them so that they did not perceive it; and they were afraid to ask Him about this saying.
+
+## Who Is the Greatest? 
 
 ###### 46 
 Then a dispute arose among them as to which of them would be greatest. 
@@ -175,7 +187,9 @@ And when His disciples James and John saw _this,_ they said, "Lord, do You want 
 But He turned and rebuked them, and said, "You do not know what manner of spirit you are of. 
 
 ###### 56 
-For the Son of Man did not come to destroy men's lives but to save _them._" And they went to another village. ## The Cost of Discipleship 
+For the Son of Man did not come to destroy men's lives but to save _them._" And they went to another village.
+
+## The Cost of Discipleship 
 
 ###### 57 
 Now it happened as they journeyed on the road, _that_ someone said to Him, "Lord, I will follow You wherever You go." 

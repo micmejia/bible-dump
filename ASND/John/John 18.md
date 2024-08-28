@@ -469,7 +469,9 @@ dinala muna kay Anas na biyenan ni Caifas. Si Caifas ang punong pari nang taon n
 
 
 
-at siya ang nagpayo sa mga <i class="trans-change">pinuno ng mga_ Judio na mabuting mamatay ang isang tao kaysa sa mapahamak ang buong bansa. ## Ipinagkaila ni Pedro na Kilala Niya si Jesus 
+at siya ang nagpayo sa mga <i class="trans-change">pinuno ng mga_ Judio na mabuting mamatay ang isang tao kaysa sa mapahamak ang buong bansa.
+
+## Ipinagkaila ni Pedro na Kilala Niya si Jesus 
 
 
 
@@ -601,7 +603,9 @@ Sinabi ng babae kay Pedro, "Hindi baʼt isa ka sa mga tagasunod ng taong iyan?" 
 
 
 
-Maginaw noon, kaya nagsiga ang mga alipin at mga guwardya, at tumayo sila sa paligid nito para magpainit. Nakihalo si Pedro sa kanila at nagpainit din. ## Tinanong si Jesus ng Punong Pari 
+Maginaw noon, kaya nagsiga ang mga alipin at mga guwardya, at tumayo sila sa paligid nito para magpainit. Nakihalo si Pedro sa kanila at nagpainit din.
+
+## Tinanong si Jesus ng Punong Pari 
 
 
 
@@ -799,7 +803,9 @@ Sinagot siya ni Jesus, "Kung may masama akong sinabi, patunayan mo. Pero kung to
 
 
 
-Habang nakagapos pa si Jesus, ipinadala siya ni Anas kay Caifas na punong pari. ## Muling Ipinagkaila ni Pedro na Kilala Niya si Jesus 
+Habang nakagapos pa si Jesus, ipinadala siya ni Anas kay Caifas na punong pari.
+
+## Muling Ipinagkaila ni Pedro na Kilala Niya si Jesus 
 
 
 
@@ -898,7 +904,9 @@ Tinanong din si Pedro ng isa sa mga alipin ng punong pari, na kamag-anak ng pinu
 
 
 
-Muli itong itinanggi ni Pedro, at noon din ay tumilaok ang manok. ## Dinala si Jesus kay Pilato 
+Muli itong itinanggi ni Pedro, at noon din ay tumilaok ang manok.
+
+## Dinala si Jesus kay Pilato 
 
 
 

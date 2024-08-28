@@ -70,7 +70,9 @@ So he commanded the second, the third, and all who followed the droves, saying, 
 and also say, 'Behold, your servant Jacob _is_ behind us.' " For he said, "I will appease him with the present that goes before me, and afterward I will see his face; perhaps he will accept me." 
 
 ###### 21 
-So the present went on over before him, but he himself lodged that night in the camp. ## Wrestling with God 
+So the present went on over before him, but he himself lodged that night in the camp.
+
+## Wrestling with God 
 
 ###### 22 
 And he arose that night and took his two wives, his two female servants, and his eleven sons, and crossed over the ford of Jabbok. 

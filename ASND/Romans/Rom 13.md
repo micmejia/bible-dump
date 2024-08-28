@@ -238,7 +238,9 @@ Iyan din ang dahilan kung bakit tayo nagbabayad ng buwis. Sapagkat ang mga namum
 
 
 
-Kaya ibigay ninyo ang nararapat ibigay. Bayaran ninyo ang inyong mga buwis, igalang ang dapat igalang, at parangalan ang dapat parangalan. ## Tungkulin sa Isaʼt Isa 
+Kaya ibigay ninyo ang nararapat ibigay. Bayaran ninyo ang inyong mga buwis, igalang ang dapat igalang, at parangalan ang dapat parangalan.
+
+## Tungkulin sa Isaʼt Isa 
 
 
 

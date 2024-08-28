@@ -34,7 +34,9 @@ You shall teach them diligently to your children, and shall talk of them when yo
 You shall bind them as a sign on your hand, and they shall be as frontlets between your eyes. 
 
 ###### 9 
-You shall write them on the doorposts of your house and on your gates. ## Caution Against Disobedience 
+You shall write them on the doorposts of your house and on your gates.
+
+## Caution Against Disobedience 
 
 ###### 10 
 "So it shall be, when the Lord your God brings you into the land of which He swore to your fathers, to Abraham, Isaac, and Jacob, to give you large and beautiful cities which you did not build, 

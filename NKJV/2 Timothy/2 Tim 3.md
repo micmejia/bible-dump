@@ -34,7 +34,9 @@ always learning and never able to come to the knowledge of the truth.
 Now as Jannes and Jambres resisted Moses, so do these also resist the truth: men of corrupt minds, disapproved concerning the faith; 
 
 ###### 9 
-but they will progress no further, for their folly will be manifest to all, as theirs also was. ## The Man of God and the Word of God 
+but they will progress no further, for their folly will be manifest to all, as theirs also was.
+
+## The Man of God and the Word of God 
 
 ###### 10 
 But you have carefully followed my doctrine, manner of life, purpose, faith, longsuffering, love, perseverance, 

@@ -25,7 +25,9 @@ For if He were on earth, He would not be a priest, since there are priests who o
 who serve the copy and shadow of the heavenly things, as Moses was divinely instructed when he was about to make the tabernacle. For He said, "See _that_ you make all things according to the pattern shown you on the mountain." 
 
 ###### 6 
-But now He has obtained a more excellent ministry, inasmuch as He is also Mediator of a better covenant, which was established on better promises. ## A New Covenant 
+But now He has obtained a more excellent ministry, inasmuch as He is also Mediator of a better covenant, which was established on better promises.
+
+## A New Covenant 
 
 ###### 7 
 For if that first _covenant_ had been faultless, then no place would have been sought for a second. 

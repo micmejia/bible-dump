@@ -238,7 +238,9 @@ Nagplano sila ng masama laban sa iyo. Nagkasundo sila at sinabi,
 
 
 
-" 'Pero sinabi ng Panginoong Dios na hindi mangyayari iyon. ###### 8-9 Sapagkat ang Damascus ay kabisera lang ng Aram, at si Rezin ay sa Damascus lang naghahari. At ang Samaria ay kabisera lang ng Israel, at si Peka na anak ni Remalia ay sa Samaria rin lang naghahari. Tungkol naman sa Israel, mawawasak ito sa loob ng 65 taon, at hindi na ito matatawag na bansa. Kung hindi matatag ang pananalig nʼyo sa Dios, tiyak na mapapahamak kayo.' " 
+" 'Pero sinabi ng Panginoong Dios na hindi mangyayari iyon.
+
+###### 8-9 Sapagkat ang Damascus ay kabisera lang ng Aram, at si Rezin ay sa Damascus lang naghahari. At ang Samaria ay kabisera lang ng Israel, at si Peka na anak ni Remalia ay sa Samaria rin lang naghahari. Tungkol naman sa Israel, mawawasak ito sa loob ng 65 taon, at hindi na ito matatawag na bansa. Kung hindi matatag ang pananalig nʼyo sa Dios, tiyak na mapapahamak kayo.' " 
 
 
 

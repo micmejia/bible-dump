@@ -172,7 +172,9 @@ Sinasabi ko sa inyo ang mga bagay na ito para hindi kayo malinlang ninuman sa pa
 
 
 
-Kahit wala ako riyan sa inyo, lagi kayong nasa isipan ko. At masaya ako dahil maayos ang pamumuhay nʼyo at matatag ang inyong pananampalataya kay Cristo. ## Si Cristo ang Dapat Nating Sundin 
+Kahit wala ako riyan sa inyo, lagi kayong nasa isipan ko. At masaya ako dahil maayos ang pamumuhay nʼyo at matatag ang inyong pananampalataya kay Cristo.
+
+## Si Cristo ang Dapat Nating Sundin 
 
 
 
@@ -634,7 +636,9 @@ Huwag kayong padadaya sa mga taong humihikayat na kailangan ninyong pagkaitan an
 
 
 
-Wala silang kaugnayan kay Cristo na siyang ulo <i class="trans-change">natin_. Siya ang nag-uugnay-ugnay at nag-aalaga sa <i class="trans-change">atin na kanyang_ katawan sa pamamagitan ng mga magkakaugnay na bahagi nito. Sa ganoon, lumalago tayo nang naaayon sa Dios. ## Ang Bagong Buhay Kay Cristo 
+Wala silang kaugnayan kay Cristo na siyang ulo <i class="trans-change">natin_. Siya ang nag-uugnay-ugnay at nag-aalaga sa <i class="trans-change">atin na kanyang_ katawan sa pamamagitan ng mga magkakaugnay na bahagi nito. Sa ganoon, lumalago tayo nang naaayon sa Dios.
+
+## Ang Bagong Buhay Kay Cristo 
 
 
 

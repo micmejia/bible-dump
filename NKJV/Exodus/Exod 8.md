@@ -52,7 +52,9 @@ So the Lord did according to the word of Moses. And the frogs died out of the ho
 They gathered them together in heaps, and the land stank. 
 
 ###### 15 
-But when Pharaoh saw that there was relief, he hardened his heart and did not heed them, as the Lord had said. ## The Third Plague: Lice 
+But when Pharaoh saw that there was relief, he hardened his heart and did not heed them, as the Lord had said.
+
+## The Third Plague: Lice 
 
 ###### 16 
 So the Lord said to Moses, "Say to Aaron, 'Stretch out your rod, and strike the dust of the land, so that it may become lice throughout all the land of Egypt.' " 
@@ -64,7 +66,9 @@ And they did so. For Aaron stretched out his hand with his rod and struck the du
 Now the magicians so worked with their enchantments to bring forth lice, but they could not. So there were lice on man and beast. 
 
 ###### 19 
-Then the magicians said to Pharaoh, "This _is_ the finger of God." But Pharaoh's heart grew hard, and he did not heed them, just as the Lord had said. ## The Fourth Plague: Flies 
+Then the magicians said to Pharaoh, "This _is_ the finger of God." But Pharaoh's heart grew hard, and he did not heed them, just as the Lord had said.
+
+## The Fourth Plague: Flies 
 
 ###### 20 
 And the Lord said to Moses, "Rise early in the morning and stand before Pharaoh as he comes out to the water. Then say to him, 'Thus says the Lord: "Let My people go, that they may serve Me. 

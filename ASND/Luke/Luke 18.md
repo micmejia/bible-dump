@@ -1129,7 +1129,9 @@ Hahagupitin nila ako at papatayin, ngunit muli akong mabubuhay sa ikatlong araw.
 
 
 
-Pero wala silang naintindihan sa mga sinabi ni Jesus, dahil itinago sa kanila ang kahulugan niyon. ## Pinagaling ni Jesus ang Isang Bulag 
+Pero wala silang naintindihan sa mga sinabi ni Jesus, dahil itinago sa kanila ang kahulugan niyon.
+
+## Pinagaling ni Jesus ang Isang Bulag 
 
 
 

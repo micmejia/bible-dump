@@ -403,7 +403,9 @@ Tinuli siya bilang tanda na itinuring na siyang matuwid dahil sa kanyang pananam
 
 
 
-Siya rin ang ama ng mga Judiong tuli, hindi lang dahil silaʼy tuli <i class="trans-change">sa laman_, kundi dahil sumasampalataya rin sila tulad ng ating ninunong si Abraham noong hindi pa siya tuli. ## Natatanggap ang Pangako ng Dios sa Pamamagitan ng Pananampalataya 
+Siya rin ang ama ng mga Judiong tuli, hindi lang dahil silaʼy tuli <i class="trans-change">sa laman_, kundi dahil sumasampalataya rin sila tulad ng ating ninunong si Abraham noong hindi pa siya tuli.
+
+## Natatanggap ang Pangako ng Dios sa Pamamagitan ng Pananampalataya 
 
 
 

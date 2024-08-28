@@ -31,7 +31,9 @@ Your glorying _is_ not good. Do you not know that a little leaven leavens the wh
 Therefore purge out the old leaven, that you may be a new lump, since you truly are unleavened. For indeed Christ, our Passover, was sacrificed for us. 
 
 ###### 8 
-Therefore let us keep the feast, not with old leaven, nor with the leaven of malice and wickedness, but with the unleavened _bread_ of sincerity and truth. ## Immorality Must Be Judged 
+Therefore let us keep the feast, not with old leaven, nor with the leaven of malice and wickedness, but with the unleavened _bread_ of sincerity and truth.
+
+## Immorality Must Be Judged 
 
 ###### 9 
 I wrote to you in my epistle not to keep company with sexually immoral people. 

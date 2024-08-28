@@ -88,7 +88,9 @@ Since the day that your fathers came out of the land of Egypt until this day, I 
 Yet they did not obey Me or incline their ear, but stiffened their neck. They did worse than their fathers. 
 
 ###### 27 
-"Therefore you shall speak all these words to them, but they will not obey you. You shall also call to them, but they will not answer you. ## Judgment on Obscene Religion 
+"Therefore you shall speak all these words to them, but they will not obey you. You shall also call to them, but they will not answer you.
+
+## Judgment on Obscene Religion 
 
 ###### 28 
 "So you shall say to them, 'This _is_ a nation that does not obey the voice of the Lord their God nor receive correction. Truth has perished and has been cut off from their mouth. 

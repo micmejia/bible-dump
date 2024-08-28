@@ -91,7 +91,9 @@ the screen for the door of the gate of the court, the hangings of the court whic
 "Aaron and his sons shall assign all the service of the sons of the Gershonites, all their tasks and all their service. And you shall appoint to them all their tasks as their duty. 
 
 ###### 28 
-This _is_ the service of the families of the sons of Gershon in the tabernacle of meeting. And their duties _shall be_ under the authority of Ithamar the son of Aaron the priest. ## Duties of the Sons of Merari 
+This _is_ the service of the families of the sons of Gershon in the tabernacle of meeting. And their duties _shall be_ under the authority of Ithamar the son of Aaron the priest.
+
+## Duties of the Sons of Merari 
 
 ###### 29 
 "_As for_ the sons of Merari, you shall number them by their families and by their fathers' house. 

@@ -535,7 +535,9 @@ Pero sinabi ng Panginoon kay Cain, "Hindi iyan mangyayari sa iyo! Sapagkat ang s
 
 
 
-Pagkatapos, lumayo si Cain sa Panginoon at doon tumira sa lugar ng Nod, sa bandang silangan ng Eden. ## Ang mga Lahi ni Cain 
+Pagkatapos, lumayo si Cain sa Panginoon at doon tumira sa lugar ng Nod, sa bandang silangan ng Eden.
+
+## Ang mga Lahi ni Cain 
 
 
 

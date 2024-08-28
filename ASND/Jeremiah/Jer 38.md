@@ -205,7 +205,9 @@ Sumagot si Haring Zedekia, "Ibibigay ko siya sa inyo. Gawin nʼyo sa kanya ang i
 
 
 
-Kaya kinuha nila si Jeremias sa kulungan at ibinaba nila sa balon na nasa himpilan ng mga guwardya. Ang balon na ito ay pag-aari ni Malkia na anak ng hari. Walang tubig ang balon pero may putik, at halos lumubog doon si Jeremias. ###### 7-8 Ngunit nang nabalitaan ito ni Ebed Melec na taga-Etiopia na isa ring pinuno sa palasyo, pinuntahan niya ang hari sa palasyo. Nakaupo noon ang hari sa Pintuan ni Benjamin. Sinabi niya sa hari, 
+Kaya kinuha nila si Jeremias sa kulungan at ibinaba nila sa balon na nasa himpilan ng mga guwardya. Ang balon na ito ay pag-aari ni Malkia na anak ng hari. Walang tubig ang balon pero may putik, at halos lumubog doon si Jeremias.
+
+###### 7-8 Ngunit nang nabalitaan ito ni Ebed Melec na taga-Etiopia na isa ring pinuno sa palasyo, pinuntahan niya ang hari sa palasyo. Nakaupo noon ang hari sa Pintuan ni Benjamin. Sinabi niya sa hari, 
 
 
 
@@ -370,7 +372,9 @@ Sinabi ni Ebed Melec kay Jeremias, "Isapin mo ang mga basahan at lumang damit sa
 
 
 
-Pagkatapos, iniahon nila siya mula sa loob ng balon at ibinalik sa himpilan ng mga guwardya ng palasyo. ## Muling Ipinatawag ni Haring Zedekia si Jeremias 
+Pagkatapos, iniahon nila siya mula sa loob ng balon at ibinalik sa himpilan ng mga guwardya ng palasyo.
+
+## Muling Ipinatawag ni Haring Zedekia si Jeremias 
 
 
 

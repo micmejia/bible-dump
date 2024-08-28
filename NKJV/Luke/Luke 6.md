@@ -40,7 +40,9 @@ Then Jesus said to them, "I will ask you one thing: Is it lawful on the Sabbath 
 And when He had looked around at them all, He said to the man, "Stretch out your hand." And he did so, and his hand was restored as whole as the other. 
 
 ###### 11 
-But they were filled with rage, and discussed with one another what they might do to Jesus. ## The Twelve Apostles 
+But they were filled with rage, and discussed with one another what they might do to Jesus.
+
+## The Twelve Apostles 
 
 ###### 12 
 Now it came to pass in those days that He went out to the mountain to pray, and continued all night in prayer to God. 
@@ -55,7 +57,9 @@ Simon, whom He also named Peter, and Andrew his brother; James and John; Philip 
 Matthew and Thomas; James the _son_ of Alphaeus, and Simon called the Zealot; 
 
 ###### 16 
-Judas _the son_ of James, and Judas Iscariot who also became a traitor. ## Jesus Heals a Great Multitude 
+Judas _the son_ of James, and Judas Iscariot who also became a traitor.
+
+## Jesus Heals a Great Multitude 
 
 ###### 17 
 And He came down with them and stood on a level place with a crowd of His disciples and a great multitude of people from all Judea and Jerusalem, and from the seacoast of Tyre and Sidon, who came to hear Him and be healed of their diseases, 
@@ -64,7 +68,9 @@ And He came down with them and stood on a level place with a crowd of His discip
 as well as those who were tormented with unclean spirits. And they were healed. 
 
 ###### 19 
-And the whole multitude sought to touch Him, for power went out from Him and healed _them_ all. ## The Beatitudes 
+And the whole multitude sought to touch Him, for power went out from Him and healed _them_ all.
+
+## The Beatitudes 
 
 ###### 20 
 Then He lifted up His eyes toward His disciples, and said: "Blessed _are you_ poor, For yours is the kingdom of God. 
@@ -76,7 +82,9 @@ Blessed _are you_ who hunger now, For you shall be filled. Blessed _are you_ who
 Blessed are you when men hate you, And when they exclude you, And revile _you,_ and cast out your name as evil, For the Son of Man's sake. 
 
 ###### 23 
-Rejoice in that day and leap for joy! For indeed your reward _is_ great in heaven, For in like manner their fathers did to the prophets. ## Jesus Pronounces Woes 
+Rejoice in that day and leap for joy! For indeed your reward _is_ great in heaven, For in like manner their fathers did to the prophets.
+
+## Jesus Pronounces Woes 
 
 ###### 24 
 "But woe to you who are rich, For you have received your consolation. 
@@ -85,7 +93,9 @@ Rejoice in that day and leap for joy! For indeed your reward _is_ great in heave
 Woe to you who are full, For you shall hunger. Woe to you who laugh now, For you shall mourn and weep. 
 
 ###### 26 
-Woe to you when all men speak well of you, For so did their fathers to the false prophets. ## Love Your Enemies 
+Woe to you when all men speak well of you, For so did their fathers to the false prophets.
+
+## Love Your Enemies 
 
 ###### 27 
 "But I say to you who hear: Love your enemies, do good to those who hate you, 
@@ -115,7 +125,9 @@ And if you lend _to those_ from whom you hope to receive back, what credit is th
 But love your enemies, do good, and lend, hoping for nothing in return; and your reward will be great, and you will be sons of the Most High. For He is kind to the unthankful and evil. 
 
 ###### 36 
-Therefore be merciful, just as your Father also is merciful. ## Do Not Judge 
+Therefore be merciful, just as your Father also is merciful.
+
+## Do Not Judge 
 
 ###### 37 
 "Judge not, and you shall not be judged. Condemn not, and you shall not be condemned. Forgive, and you will be forgiven. 
@@ -133,7 +145,9 @@ A disciple is not above his teacher, but everyone who is perfectly trained will 
 And why do you look at the speck in your brother's eye, but do not perceive the plank in your own eye? 
 
 ###### 42 
-Or how can you say to your brother, 'Brother, let me remove the speck that _is_ in your eye,' when you yourself do not see the plank that _is_ in your own eye? Hypocrite! First remove the plank from your own eye, and then you will see clearly to remove the speck that is in your brother's eye. ## A Tree Is Known by Its Fruit 
+Or how can you say to your brother, 'Brother, let me remove the speck that _is_ in your eye,' when you yourself do not see the plank that _is_ in your own eye? Hypocrite! First remove the plank from your own eye, and then you will see clearly to remove the speck that is in your brother's eye.
+
+## A Tree Is Known by Its Fruit 
 
 ###### 43 
 "For a good tree does not bear bad fruit, nor does a bad tree bear good fruit. 
@@ -142,7 +156,9 @@ Or how can you say to your brother, 'Brother, let me remove the speck that _is_ 
 For every tree is known by its own fruit. For _men_ do not gather figs from thorns, nor do they gather grapes from a bramble bush. 
 
 ###### 45 
-A good man out of the good treasure of his heart brings forth good; and an evil man out of the evil treasure of his heart brings forth evil. For out of the abundance of the heart his mouth speaks. ## Build on the Rock 
+A good man out of the good treasure of his heart brings forth good; and an evil man out of the evil treasure of his heart brings forth evil. For out of the abundance of the heart his mouth speaks.
+
+## Build on the Rock 
 
 ###### 46 
 "But why do you call Me 'Lord, Lord,' and not do the things which I say? 

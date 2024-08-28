@@ -436,7 +436,9 @@ Pero sinabi ng Panginoon kina Moises at Aaron, "Dahil sa hindi kayo naniwala sa 
 
 
 
-Ang lugar na ito ay tinatawag na Meriba dahil nakipagtalo ang mga Israelita sa Panginoon sa lugar na ito, at dito rin ipinakita ng Panginoon ang kanyang kabanalan. ## Hindi Pinayagan ng mga taga-Edom na Dumaan ang mga Israelita 
+Ang lugar na ito ay tinatawag na Meriba dahil nakipagtalo ang mga Israelita sa Panginoon sa lugar na ito, at dito rin ipinakita ng Panginoon ang kanyang kabanalan.
+
+## Hindi Pinayagan ng mga taga-Edom na Dumaan ang mga Israelita 
 
 
 
@@ -700,7 +702,9 @@ Sumagot muli ang hari ng Edom: "Hindi kayo maaaring dumaan dito!" Pagkatapos, ti
 
 
 
-Dahil ayaw magpadaan ng mga taga-Edom sa kanilang teritoryo, humanap na lang ang mga Israelita ng ibang madaraanan. ## Namatay si Aaron 
+Dahil ayaw magpadaan ng mga taga-Edom sa kanilang teritoryo, humanap na lang ang mga Israelita ng ibang madaraanan.
+
+## Namatay si Aaron 
 
 
 

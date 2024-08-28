@@ -1129,7 +1129,9 @@ Ako, ang Panginoon, ang nagsasabi nito at siguradong gagawin ko ang mga bagay na
 
 
 
-Sa 12 espiya, si Josue na anak ni Nun at si Caleb na anak ni Jefune lang ang hindi namatay. ## Natalo ang mga Israelita sa Kanilang Pagsalakay sa Canaan 
+Sa 12 espiya, si Josue na anak ni Nun at si Caleb na anak ni Jefune lang ang hindi namatay.
+
+## Natalo ang mga Israelita sa Kanilang Pagsalakay sa Canaan 
 
 
 

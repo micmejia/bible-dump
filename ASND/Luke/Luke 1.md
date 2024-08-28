@@ -39,7 +39,9 @@ next: ['Luke 2']
 
 
 
-upang lubusan mong matiyak na totoo ang mga aral na itinuro sa iyo. ## Nagpakita ang Anghel kay Zacarias 
+upang lubusan mong matiyak na totoo ang mga aral na itinuro sa iyo.
+
+## Nagpakita ang Anghel kay Zacarias 
 
 
 
@@ -1161,7 +1163,9 @@ Sapagkat walang imposible sa Dios."
 
 
 
-Sumagot si Maria, "Alipin po ako ng Panginoon. Mangyari nawa sa akin ang mga sinabi ninyo." At iniwan siya ng anghel. ## Ang Pagdalaw ni Maria kay Elizabet 
+Sumagot si Maria, "Alipin po ako ng Panginoon. Mangyari nawa sa akin ang mga sinabi ninyo." At iniwan siya ng anghel.
+
+## Ang Pagdalaw ni Maria kay Elizabet 
 
 
 
@@ -1689,7 +1693,9 @@ Binusog niya ng mabubuting bagay ang mga nagugutom, ngunit pinaalis niya na wala
 
 
 
-At nakitira si Maria kina Elizabet ng mga tatlong buwan bago siya umuwi. ## Ang Pagsilang kay Juan na Tagapagbautismo 
+At nakitira si Maria kina Elizabet ng mga tatlong buwan bago siya umuwi.
+
+## Ang Pagsilang kay Juan na Tagapagbautismo 
 
 
 
@@ -2019,7 +2025,9 @@ Nangilabot ang lahat ng kapitbahay nila, at naging usap-usapan sa buong kabunduk
 
 
 
-Ang lahat ng nakabalita ay nag-isip at nagtanong, "Magiging ano kaya ang batang ito kapag lumaki na siya?" Sapagkat malinaw na sumasakanya ang Panginoon. ## Ang Pahayag ni Zacarias 
+Ang lahat ng nakabalita ay nag-isip at nagtanong, "Magiging ano kaya ang batang ito kapag lumaki na siya?" Sapagkat malinaw na sumasakanya ang Panginoon.
+
+## Ang Pahayag ni Zacarias 
 
 
 

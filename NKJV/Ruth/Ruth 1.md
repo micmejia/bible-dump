@@ -21,7 +21,9 @@ Then Elimelech, Naomi's husband, died; and she was left, and her two sons.
 Now they took wives of the women of Moab: the name of the one _was_ Orpah, and the name of the other Ruth. And they dwelt there about ten years. 
 
 ###### 5 
-Then both Mahlon and Chilion also died; so the woman survived her two sons and her husband. ## Naomi Returns with Ruth 
+Then both Mahlon and Chilion also died; so the woman survived her two sons and her husband.
+
+## Naomi Returns with Ruth 
 
 ###### 6 
 Then she arose with her daughters-in-law that she might return from the country of Moab, for she had heard in the country of Moab that the Lord had visited His people by giving them bread. 

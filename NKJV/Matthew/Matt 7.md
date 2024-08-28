@@ -25,7 +25,9 @@ Or how can you say to your brother, 'Let me remove the speck from your eye'; and
 Hypocrite! First remove the plank from your own eye, and then you will see clearly to remove the speck from your brother's eye. 
 
 ###### 6 
-"Do not give what is holy to the dogs; nor cast your pearls before swine, lest they trample them under their feet, and turn and tear you in pieces. ## Keep Asking, Seeking, Knocking 
+"Do not give what is holy to the dogs; nor cast your pearls before swine, lest they trample them under their feet, and turn and tear you in pieces.
+
+## Keep Asking, Seeking, Knocking 
 
 ###### 7 
 "Ask, and it will be given to you; seek, and you will find; knock, and it will be opened to you. 
@@ -43,13 +45,17 @@ Or if he asks for a fish, will he give him a serpent?
 If you then, being evil, know how to give good gifts to your children, how much more will your Father who is in heaven give good things to those who ask Him! 
 
 ###### 12 
-Therefore, whatever you want men to do to you, do also to them, for this is the Law and the Prophets. ## The Narrow Way 
+Therefore, whatever you want men to do to you, do also to them, for this is the Law and the Prophets.
+
+## The Narrow Way 
 
 ###### 13 
 "Enter by the narrow gate; for wide _is_ the gate and broad _is_ the way that leads to destruction, and there are many who go in by it. 
 
 ###### 14 
-Because narrow _is_ the gate and difficult _is_ the way which leads to life, and there are few who find it. ## You Will Know Them by Their Fruits 
+Because narrow _is_ the gate and difficult _is_ the way which leads to life, and there are few who find it.
+
+## You Will Know Them by Their Fruits 
 
 ###### 15 
 "Beware of false prophets, who come to you in sheep's clothing, but inwardly they are ravenous wolves. 
@@ -67,7 +73,9 @@ A good tree cannot bear bad fruit, nor _can_ a bad tree bear good fruit.
 Every tree that does not bear good fruit is cut down and thrown into the fire. 
 
 ###### 20 
-Therefore by their fruits you will know them. ## I Never Knew You 
+Therefore by their fruits you will know them.
+
+## I Never Knew You 
 
 ###### 21 
 "Not everyone who says to Me, 'Lord, Lord,' shall enter the kingdom of heaven, but he who does the will of My Father in heaven. 

@@ -238,7 +238,9 @@ Nang malaman ng mga apostol ang planong iyon, agad silang umalis papuntang Lystr
 
 
 
-Ipinangaral nila roon ang Magandang Balita. ## Sina Pablo at Bernabe sa Lystra 
+Ipinangaral nila roon ang Magandang Balita.
+
+## Sina Pablo at Bernabe sa Lystra 
 
 
 
@@ -667,7 +669,9 @@ May mga Judiong dumating mula sa Antioc <i class="trans-change">na sakop ng Pisi
 
 
 
-Pero nang paligiran siya ng mga tagasunod <i class="trans-change">ni Jesus_, bumangon siya at bumalik sa lungsod. Kinabukasan, pumunta silang dalawa ni Bernabe sa Derbe. ## Bumalik sina Pablo at Bernabe sa Antioc na Sakop ng Syria 
+Pero nang paligiran siya ng mga tagasunod <i class="trans-change">ni Jesus_, bumangon siya at bumalik sa lungsod. Kinabukasan, pumunta silang dalawa ni Bernabe sa Derbe.
+
+## Bumalik sina Pablo at Bernabe sa Antioc na Sakop ng Syria 
 
 
 

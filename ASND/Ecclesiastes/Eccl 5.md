@@ -238,7 +238,9 @@ Huwag kang magkasala sa iyong pagsasalita. At huwag mong sabihin sa pari na nasa
 
 
 
-Ang sobrang pananaginip at pagsasalita ay walang kabuluhan. Sa halip, matakot ka sa Dios. ## Walang Kabuluhan ang Kayamanan 
+Ang sobrang pananaginip at pagsasalita ay walang kabuluhan. Sa halip, matakot ka sa Dios.
+
+## Walang Kabuluhan ang Kayamanan 
 
 
 

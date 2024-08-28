@@ -27,7 +27,9 @@ Through Him we have received grace and apostleship for obedience to the faith am
 among whom you also are the called of Jesus Christ; 
 
 ###### 7 
-To all who are in Rome, beloved of God, called _to be_ saints: Grace to you and peace from God our Father and the Lord Jesus Christ. ## Desire to Visit Rome 
+To all who are in Rome, beloved of God, called _to be_ saints: Grace to you and peace from God our Father and the Lord Jesus Christ.
+
+## Desire to Visit Rome 
 
 ###### 8 
 First, I thank my God through Jesus Christ for you all, that your faith is spoken of throughout the whole world. 
@@ -51,7 +53,9 @@ Now I do not want you to be unaware, brethren, that I often planned to come to y
 I am a debtor both to Greeks and to barbarians, both to wise and to unwise. 
 
 ###### 15 
-So, as much as is in me, _I am_ ready to preach the gospel to you who are in Rome also. ## The Just Live by Faith 
+So, as much as is in me, _I am_ ready to preach the gospel to you who are in Rome also.
+
+## The Just Live by Faith 
 
 ###### 16 
 For I am not ashamed of the gospel of Christ, for it is the power of God to salvation for everyone who believes, for the Jew first and also for the Greek. 

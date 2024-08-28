@@ -34,7 +34,9 @@ Therefore know that _only_ those who are of faith are sons of Abraham.
 And the Scripture, foreseeing that God would justify the Gentiles by faith, preached the gospel to Abraham beforehand, _saying,_ "In you all the nations shall be blessed." 
 
 ###### 9 
-So then those who _are_ of faith are blessed with believing Abraham. ## The Law Brings a Curse 
+So then those who _are_ of faith are blessed with believing Abraham.
+
+## The Law Brings a Curse 
 
 ###### 10 
 For as many as are of the works of the law are under the curse; for it is written, "Cursed _is_ everyone who does not continue in all things which are written in the book of the law, to do them." 
@@ -49,7 +51,9 @@ Yet the law is not of faith, but "the man who does them shall live by them."
 Christ has redeemed us from the curse of the law, having become a curse for us (for it is written, "Cursed _is_ everyone who hangs on a tree"), 
 
 ###### 14 
-that the blessing of Abraham might come upon the Gentiles in Christ Jesus, that we might receive the promise of the Spirit through faith. ## The Changeless Promise 
+that the blessing of Abraham might come upon the Gentiles in Christ Jesus, that we might receive the promise of the Spirit through faith.
+
+## The Changeless Promise 
 
 ###### 15 
 Brethren, I speak in the manner of men: Though _it is_ only a man's covenant, yet _if it is_ confirmed, no one annuls or adds to it. 
@@ -61,7 +65,9 @@ Now to Abraham and his Seed were the promises made. He does not say, "And to see
 And this I say, _that_ the law, which was four hundred and thirty years later, cannot annul the covenant that was confirmed before by God in Christ, that it should make the promise of no effect. 
 
 ###### 18 
-For if the inheritance _is_ of the law, _it is_ no longer of promise; but God gave _it_ to Abraham by promise. ## Purpose of the Law 
+For if the inheritance _is_ of the law, _it is_ no longer of promise; but God gave _it_ to Abraham by promise.
+
+## Purpose of the Law 
 
 ###### 19 
 What purpose then _does_ the law _serve?_ It was added because of transgressions, till the Seed should come to whom the promise was made; _and it was_ appointed through angels by the hand of a mediator. 
@@ -82,7 +88,9 @@ But before faith came, we were kept under guard by the law, kept for the faith w
 Therefore the law was our tutor _to bring us_ to Christ, that we might be justified by faith. 
 
 ###### 25 
-But after faith has come, we are no longer under a tutor. ## Sons and Heirs 
+But after faith has come, we are no longer under a tutor.
+
+## Sons and Heirs 
 
 ###### 26 
 For you are all sons of God through faith in Christ Jesus. 

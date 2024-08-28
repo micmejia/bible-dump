@@ -403,7 +403,9 @@ Gawa ito ng Panginoon at kahanga-hanga ito sa atin!' "
 
 
 
-Alam ng mga pinuno ng mga Judio na sila ang pinatatamaan ni Jesus sa talinghaga na iyon. Kaya gusto nilang dakpin si Jesus, pero natatakot sila sa mga tao. Kaya pinabayaan na lang nila si Jesus, at umalis sila. ## Ang Tanong tungkol sa Pagbabayad ng Buwis 
+Alam ng mga pinuno ng mga Judio na sila ang pinatatamaan ni Jesus sa talinghaga na iyon. Kaya gusto nilang dakpin si Jesus, pero natatakot sila sa mga tao. Kaya pinabayaan na lang nila si Jesus, at umalis sila.
+
+## Ang Tanong tungkol sa Pagbabayad ng Buwis 
 
 
 
@@ -568,7 +570,9 @@ Dinalhan nga nila <i class="trans-change">ng pera si Jesus_. Nagtanong si Jesus,
 
 
 
-Kaya sinabi ni Jesus sa kanila, "Ibigay ninyo sa Emperador ang para sa Emperador, at sa Dios ang para sa Dios." Namangha sila sa kanyang sagot. ## Ang Tanong tungkol sa Muling Pagkabuhay 
+Kaya sinabi ni Jesus sa kanila, "Ibigay ninyo sa Emperador ang para sa Emperador, at sa Dios ang para sa Dios." Namangha sila sa kanyang sagot.
+
+## Ang Tanong tungkol sa Muling Pagkabuhay 
 
 
 
@@ -1129,7 +1133,9 @@ At kailangang mahalin siya nang buong puso, nang buong pag-iisip, at nang buong 
 
 
 
-Nang marinig ni Jesus na may katuturan ang mga sagot nito, sinabi niya rito, "Malapit ka nang mapabilang sa kaharian ng Dios." Mula noon, wala nang nangahas na magtanong kay Jesus. ## Ang Tanong tungkol sa Cristo 
+Nang marinig ni Jesus na may katuturan ang mga sagot nito, sinabi niya rito, "Malapit ka nang mapabilang sa kaharian ng Dios." Mula noon, wala nang nangahas na magtanong kay Jesus.
+
+## Ang Tanong tungkol sa Cristo 
 
 
 
@@ -1228,7 +1234,9 @@ Samantalang si David na mismo na pinatnubayan ng Banal na Espiritu ang nagsabing
 
 
 
-Ngayon, kung tinawag siya ni David na Panginoon, paano siyang naging lahi <i class="trans-change">lang_ ni David?" Wiling-wili sa pakikinig ang mga tao kay Jesus. ## Babala Laban sa mga Tagapagturo ng Kautusan 
+Ngayon, kung tinawag siya ni David na Panginoon, paano siyang naging lahi <i class="trans-change">lang_ ni David?" Wiling-wili sa pakikinig ang mga tao kay Jesus.
+
+## Babala Laban sa mga Tagapagturo ng Kautusan 
 
 
 

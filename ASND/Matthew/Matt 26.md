@@ -535,7 +535,9 @@ Sinabi niya sa kanila, "Ano po ang ibabayad ninyo sa akin kung tutulungan ko kay
 
 
 
-Mula noon, humanap na si Judas ng pagkakataon upang traydurin si Jesus. ## Sinabi ni Jesus na Tatraydurin Siya 
+Mula noon, humanap na si Judas ng pagkakataon upang traydurin si Jesus.
+
+## Sinabi ni Jesus na Tatraydurin Siya 
 
 
 
@@ -997,7 +999,9 @@ Sinasabi ko sa inyo na hindi na ako muling iinom ng inuming mula sa ubas hanggan
 
 
 
-Umawit sila ng papuri <i class="trans-change">sa Dios_, at pagkatapos ay pumunta sila sa Bundok ng mga Olibo. ## Sinabi ni Jesus na Ikakaila Siya ni Pedro 
+Umawit sila ng papuri <i class="trans-change">sa Dios_, at pagkatapos ay pumunta sila sa Bundok ng mga Olibo.
+
+## Sinabi ni Jesus na Ikakaila Siya ni Pedro 
 
 
 
@@ -1162,7 +1166,9 @@ Sinagot siya ni Jesus, "Sinasabi ko sa iyo ang totoo, bago tumilaok ang manok ng
 
 
 
-Sinabi ni Pedro, "Hinding-hindi ko po kayo ikakaila, kahit na patayin pa akong kasama ninyo." At ganoon din ang sinabi ng iba pang mga tagasunod. ## Nanalangin si Jesus sa Getsemane 
+Sinabi ni Pedro, "Hinding-hindi ko po kayo ikakaila, kahit na patayin pa akong kasama ninyo." At ganoon din ang sinabi ng iba pang mga tagasunod.
+
+## Nanalangin si Jesus sa Getsemane 
 
 
 
@@ -1855,7 +1861,9 @@ Pagkatapos, sinabi ni Jesus sa mga tao, "Isa ba akong tulisan? Bakit kailangan p
 
 
 
-Ngunit nangyari ang lahat ng ito upang matupad ang isinulat ng mga propeta." Iniwan siya noon din ng mga tagasunod niya at nagsitakas sila. ## Dinala si Jesus sa Korte ng mga Judio 
+Ngunit nangyari ang lahat ng ito upang matupad ang isinulat ng mga propeta." Iniwan siya noon din ng mga tagasunod niya at nagsitakas sila.
+
+## Dinala si Jesus sa Korte ng mga Judio 
 
 
 

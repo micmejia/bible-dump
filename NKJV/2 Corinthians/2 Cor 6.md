@@ -37,7 +37,9 @@ by honor and dishonor, by evil report and good report; as deceivers, and _yet_ t
 as unknown, and _yet_ well known; as dying, and behold we live; as chastened, and _yet_ not killed; 
 
 ###### 10 
-as sorrowful, yet always rejoicing; as poor, yet making many rich; as having nothing, and _yet_ possessing all things. ## Be Holy 
+as sorrowful, yet always rejoicing; as poor, yet making many rich; as having nothing, and _yet_ possessing all things.
+
+## Be Holy 
 
 ###### 11 
 O Corinthians! We have spoken openly to you, our heart is wide open. 

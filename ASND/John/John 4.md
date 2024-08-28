@@ -139,7 +139,9 @@ Nang dumadaan na sila sa Samaria, dumating sila sa isang bayan na tinatawag na S
 
 
 
-May balon doon na ginawa ni Jacob. Dahil tanghaling-tapat na noon at pagod na si Jesus sa paglalakbay, umupo siya sa tabi ng balon <i class="trans-change">para magpahinga_. ###### 7-8 Tumuloy naman ang mga tagasunod niya sa bayan upang bumili ng pagkain. <i class="trans-change">Habang nakaupo si Jesus,_ dumating ang isang babaeng taga-Samaria para umigib. Sinabi ni Jesus sa kanya, "Pwede bang makiinom?" 
+May balon doon na ginawa ni Jacob. Dahil tanghaling-tapat na noon at pagod na si Jesus sa paglalakbay, umupo siya sa tabi ng balon <i class="trans-change">para magpahinga_.
+
+###### 7-8 Tumuloy naman ang mga tagasunod niya sa bayan upang bumili ng pagkain. <i class="trans-change">Habang nakaupo si Jesus,_ dumating ang isang babaeng taga-Samaria para umigib. Sinabi ni Jesus sa kanya, "Pwede bang makiinom?" 
 
 
 

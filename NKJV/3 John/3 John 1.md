@@ -17,7 +17,9 @@ Beloved, I pray that you may prosper in all things and be in health, just as you
 For I rejoiced greatly when brethren came and testified of the truth _that is_ in you, just as you walk in the truth. 
 
 ###### 4 
-I have no greater joy than to hear that my children walk in truth. ## Gaius Commended for Generosity 
+I have no greater joy than to hear that my children walk in truth.
+
+## Gaius Commended for Generosity 
 
 ###### 5 
 Beloved, you do faithfully whatever you do for the brethren and for strangers, 
@@ -29,7 +31,9 @@ who have borne witness of your love before the church. _If_ you send them forwar
 because they went forth for His name's sake, taking nothing from the Gentiles. 
 
 ###### 8 
-We therefore ought to receive such, that we may become fellow workers for the truth. ## Diotrephes and Demetrius 
+We therefore ought to receive such, that we may become fellow workers for the truth.
+
+## Diotrephes and Demetrius 
 
 ###### 9 
 I wrote to the church, but Diotrephes, who loves to have the preeminence among them, does not receive us. 
@@ -41,7 +45,9 @@ Therefore, if I come, I will call to mind his deeds which he does, prating again
 Beloved, do not imitate what is evil, but what is good. He who does good is of God, but he who does evil has not seen God. 
 
 ###### 12 
-Demetrius has a _good_ testimony from all, and from the truth itself. And we also bear witness, and you know that our testimony is true. ## Farewell Greeting 
+Demetrius has a _good_ testimony from all, and from the truth itself. And we also bear witness, and you know that our testimony is true.
+
+## Farewell Greeting 
 
 ###### 13 
 I had many things to write, but I do not wish to write to you with pen and ink; 

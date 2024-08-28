@@ -10,7 +10,9 @@ next: ['Mic 6']
 
 
 ###### 1 
-Now gather yourself in troops, O daughter of troops; He has laid siege against us; They will strike the judge of Israel with a rod on the cheek. ## The Coming Messiah 
+Now gather yourself in troops, O daughter of troops; He has laid siege against us; They will strike the judge of Israel with a rod on the cheek.
+
+## The Coming Messiah 
 
 ###### 2 
 "But you, Bethlehem Ephrathah, _Though_ you are little among the thousands of Judah, _Yet_ out of you shall come forth to Me The One to be Ruler in Israel, Whose goings forth _are_ from of old, From everlasting." 
@@ -22,7 +24,9 @@ Therefore He shall give them up, Until the time _that_ she who is in labor has g
 And He shall stand and feed _His flock_ In the strength of the Lord, In the majesty of the name of the Lord His God; And they shall abide, For now He shall be great To the ends of the earth; 
 
 ###### 5 
-And this _One_ shall be peace. ## Judgment on Israel's Enemies When the Assyrian comes into our land, And when he treads in our palaces, Then we will raise against him Seven shepherds and eight princely men. 
+And this _One_ shall be peace.
+
+## Judgment on Israel's Enemies When the Assyrian comes into our land, And when he treads in our palaces, Then we will raise against him Seven shepherds and eight princely men. 
 
 ###### 6 
 They shall waste with the sword the land of Assyria, And the land of Nimrod at its entrances; Thus He shall deliver _us_ from the Assyrian, When he comes into our land And when he treads within our borders. 

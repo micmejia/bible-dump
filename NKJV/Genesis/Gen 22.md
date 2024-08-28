@@ -64,7 +64,9 @@ blessing I will bless you, and multiplying I will multiply your descendants as t
 In your seed all the nations of the earth shall be blessed, because you have obeyed My voice." 
 
 ###### 19 
-So Abraham returned to his young men, and they rose and went together to Beersheba; and Abraham dwelt at Beersheba. ## The Family of Nahor 
+So Abraham returned to his young men, and they rose and went together to Beersheba; and Abraham dwelt at Beersheba.
+
+## The Family of Nahor 
 
 ###### 20 
 Now it came to pass after these things that it was told Abraham, saying, "Indeed Milcah also has borne children to your brother Nahor: 

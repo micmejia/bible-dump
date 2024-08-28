@@ -535,7 +535,9 @@ Sapagkat ayon sa Kasulatan, sinabi ng Dios sa Faraon, "Pinayagan kitang mabuhay 
 
 
 
-Kaya nga, kinaaawaan ng Dios ang ibig niyang kaawaan, at pinatitigas niya ang ulo ng ibig niyang patigasin. ## Ang Galit at Awa ng Dios 
+Kaya nga, kinaaawaan ng Dios ang ibig niyang kaawaan, at pinatitigas niya ang ulo ng ibig niyang patigasin.
+
+## Ang Galit at Awa ng Dios 
 
 
 

@@ -18,7 +18,9 @@ just as those who from the beginning were eyewitnesses and ministers of the word
 it seemed good to me also, having had perfect understanding of all things from the very first, to write to you an orderly account, most excellent Theophilus, 
 
 ###### 4 
-that you may know the certainty of those things in which you were instructed. ## John's Birth Announced to Zacharias 
+that you may know the certainty of those things in which you were instructed.
+
+## John's Birth Announced to Zacharias 
 
 ###### 5 
 There was in the days of Herod, the king of Judea, a certain priest named Zacharias, of the division of Abijah. His wife _was_ of the daughters of Aaron, and her name _was_ Elizabeth. 
@@ -120,7 +122,9 @@ Now indeed, Elizabeth your relative has also conceived a son in her old age; and
 For with God nothing will be impossible." 
 
 ###### 38 
-Then Mary said, "Behold the maidservant of the Lord! Let it be to me according to your word." And the angel departed from her. ## Mary Visits Elizabeth 
+Then Mary said, "Behold the maidservant of the Lord! Let it be to me according to your word." And the angel departed from her.
+
+## Mary Visits Elizabeth 
 
 ###### 39 
 Now Mary arose in those days and went into the hill country with haste, to a city of Judah, 
@@ -174,13 +178,17 @@ He has helped His servant Israel, In remembrance of _His_ mercy,
 As He spoke to our fathers, To Abraham and to his seed forever." 
 
 ###### 56 
-And Mary remained with her about three months, and returned to her house. ## Birth of John the Baptist 
+And Mary remained with her about three months, and returned to her house.
+
+## Birth of John the Baptist 
 
 ###### 57 
 Now Elizabeth's full time came for her to be delivered, and she brought forth a son. 
 
 ###### 58 
-When her neighbors and relatives heard how the Lord had shown great mercy to her, they rejoiced with her. ## Circumcision of John the Baptist 
+When her neighbors and relatives heard how the Lord had shown great mercy to her, they rejoiced with her.
+
+## Circumcision of John the Baptist 
 
 ###### 59 
 So it was, on the eighth day, that they came to circumcise the child; and they would have called him by the name of his father, Zacharias. 
@@ -204,7 +212,9 @@ Immediately his mouth was opened and his tongue _loosed,_ and he spoke, praising
 Then fear came on all who dwelt around them; and all these sayings were discussed throughout all the hill country of Judea. 
 
 ###### 66 
-And all those who heard _them_ kept _them_ in their hearts, saying, "What kind of child will this be?" And the hand of the Lord was with him. ## Zacharias' Prophecy 
+And all those who heard _them_ kept _them_ in their hearts, saying, "What kind of child will this be?" And the hand of the Lord was with him.
+
+## Zacharias' Prophecy 
 
 ###### 67 
 Now his father Zacharias was filled with the Holy Spirit, and prophesied, saying: 

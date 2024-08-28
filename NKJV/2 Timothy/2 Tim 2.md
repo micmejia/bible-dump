@@ -46,7 +46,9 @@ _This is_ a faithful saying: For if we died with _Him,_ We shall also live with 
 If we endure, We shall also reign with _Him._ If we deny _Him,_ He also will deny us. 
 
 ###### 13 
-If we are faithless, He remains faithful; He cannot deny Himself. ## Approved and Disapproved Workers 
+If we are faithless, He remains faithful; He cannot deny Himself.
+
+## Approved and Disapproved Workers 
 
 ###### 14 
 Remind _them_ of these things, charging _them_ before the Lord not to strive about words to no profit, to the ruin of the hearers. 

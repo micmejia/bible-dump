@@ -118,7 +118,9 @@ He returned and walked back and forth in the house, and again went up and stretc
 And he called Gehazi and said, "Call this Shunammite woman." So he called her. And when she came in to him, he said, "Pick up your son." 
 
 ###### 37 
-So she went in, fell at his feet, and bowed to the ground; then she picked up her son and went out. ## Elisha Purifies the Pot of Stew 
+So she went in, fell at his feet, and bowed to the ground; then she picked up her son and went out.
+
+## Elisha Purifies the Pot of Stew 
 
 ###### 38 
 And Elisha returned to Gilgal, and _there was_ a famine in the land. Now the sons of the prophets _were_ sitting before him; and he said to his servant, "Put on the large pot, and boil stew for the sons of the prophets." 
@@ -130,7 +132,9 @@ So one went out into the field to gather herbs, and found a wild vine, and gathe
 Then they served it to the men to eat. Now it happened, as they were eating the stew, that they cried out and said, "Man of God, _there is_ death in the pot!" And they could not eat _it._ 
 
 ###### 41 
-So he said, "Then bring some flour." And he put _it_ into the pot, and said, "Serve _it_ to the people, that they may eat." And there was nothing harmful in the pot. ## Elisha Feeds One Hundred Men 
+So he said, "Then bring some flour." And he put _it_ into the pot, and said, "Serve _it_ to the people, that they may eat." And there was nothing harmful in the pot.
+
+## Elisha Feeds One Hundred Men 
 
 ###### 42 
 Then a man came from Baal Shalisha, and brought the man of God bread of the firstfruits, twenty loaves of barley bread, and newly ripened grain in his knapsack. And he said, "Give _it_ to the people, that they may eat." 

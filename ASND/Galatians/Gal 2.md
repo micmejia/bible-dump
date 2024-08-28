@@ -337,7 +337,9 @@ Kaya nang malaman ng mga kinikilalang pinuno ng iglesya, na sina Santiago, Pedro
 
 
 
-Ang tanging hiling nila ay huwag naming kalilimutang tulungan ang mga mahihirap, at iyan din naman talaga ang nais kong gawin. ## Pinagsabihan ni Pablo si Pedro 
+Ang tanging hiling nila ay huwag naming kalilimutang tulungan ang mga mahihirap, at iyan din naman talaga ang nais kong gawin.
+
+## Pinagsabihan ni Pablo si Pedro 
 
 
 

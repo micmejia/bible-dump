@@ -46,7 +46,9 @@ Then Moses lifted his hand and struck the rock twice with his rod; and water cam
 Then the Lord spoke to Moses and Aaron, "Because you did not believe Me, to hallow Me in the eyes of the children of Israel, therefore you shall not bring this assembly into the land which I have given them." 
 
 ###### 13 
-This _was_ the water of Meribah, because the children of Israel contended with the Lord, and He was hallowed among them. ## Passage Through Edom Refused 
+This _was_ the water of Meribah, because the children of Israel contended with the Lord, and He was hallowed among them.
+
+## Passage Through Edom Refused 
 
 ###### 14 
 Now Moses sent messengers from Kadesh to the king of Edom. "Thus says your brother Israel: 'You know all the hardship that has befallen us, 
@@ -70,7 +72,9 @@ So the children of Israel said to him, "We will go by the Highway, and if I or m
 Then he said, "You shall not pass through." So Edom came out against them with many men and with a strong hand. 
 
 ###### 21 
-Thus Edom refused to give Israel passage through his territory; so Israel turned away from him. ## Death of Aaron 
+Thus Edom refused to give Israel passage through his territory; so Israel turned away from him.
+
+## Death of Aaron 
 
 ###### 22 
 Now the children of Israel, the whole congregation, journeyed from Kadesh and came to Mount Hor. 

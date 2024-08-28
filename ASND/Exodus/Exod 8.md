@@ -502,7 +502,9 @@ Tinipon ito ng mga Egipcio at ibinunton, dahil ditoʼy bumaho ang buong Egipto.
 
 
 
-Pero nang makita ng Faraon na wala na ang mga palaka, nagmatigas na naman siya, at ayaw niyang makinig kina Moises at Aaron, gaya ng sinabi ng Panginoon. ## Ang Salot na mga Lamok 
+Pero nang makita ng Faraon na wala na ang mga palaka, nagmatigas na naman siya, at ayaw niyang makinig kina Moises at Aaron, gaya ng sinabi ng Panginoon.
+
+## Ang Salot na mga Lamok 
 
 
 
@@ -634,7 +636,9 @@ Tinangka rin ng mga salamangkero na gayahin ito sa pamamagitan ng kanilang salam
 
 
 
-Sinabi ng mga salamangkero sa Faraon, "Ang Dios ang may gawa nito!" Pero matigas pa rin ang puso ng Faraon, at hindi siya nakinig <i class="trans-change">kina Moises at Aaron_, gaya ng sinabi ng Panginoon. ## Ang Salot na mga Langaw 
+Sinabi ng mga salamangkero sa Faraon, "Ang Dios ang may gawa nito!" Pero matigas pa rin ang puso ng Faraon, at hindi siya nakinig <i class="trans-change">kina Moises at Aaron_, gaya ng sinabi ng Panginoon.
+
+## Ang Salot na mga Langaw 
 
 
 

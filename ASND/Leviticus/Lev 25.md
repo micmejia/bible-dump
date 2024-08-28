@@ -73,7 +73,9 @@ Noong si Moises ay nasa bundok ng Sinai, inutusan siya ng Panginoon
 
 
 
-na sabihin ito sa mga Israelita: Kapag naroon na kayo sa lupaing ibibigay ko sa inyo, huwag ninyong tataniman ang inyong mga bukid tuwing ikapitong taon para akoʼy inyong maparangalan. ###### 3-4 Sa loob ng anim na taon ay makakapagtanim kayo at makakapag-ani, pero sa ikapitong taon ay dapat ninyong pagpahingahin ang lupa. Huwag ninyong tataniman ang inyong mga bukid at puputulan ng mga sanga ang inyong mga ubas. 
+na sabihin ito sa mga Israelita: Kapag naroon na kayo sa lupaing ibibigay ko sa inyo, huwag ninyong tataniman ang inyong mga bukid tuwing ikapitong taon para akoʼy inyong maparangalan.
+
+###### 3-4 Sa loob ng anim na taon ay makakapagtanim kayo at makakapag-ani, pero sa ikapitong taon ay dapat ninyong pagpahingahin ang lupa. Huwag ninyong tataniman ang inyong mga bukid at puputulan ng mga sanga ang inyong mga ubas. 
 
 
 
@@ -172,7 +174,11 @@ Pero maaari kayong kumuha nito para may makain kayo, ang inyong mga alipin mga m
 
 
 
-mga alaga nʼyong hayop, at mga hayop sa gubat na nasa inyong lupain. ## Ang Taon ng Pagpapalaya at Pagsasauli ###### 8-9 Tuwing ika-49 na taon, sa ikasampung araw ng ikapitong buwan, ang Araw ng Pagtubos, patunugin ninyo ang mga trumpeta sa buong lupain. 
+mga alaga nʼyong hayop, at mga hayop sa gubat na nasa inyong lupain.
+
+## Ang Taon ng Pagpapalaya at Pagsasauli
+
+###### 8-9 Tuwing ika-49 na taon, sa ikasampung araw ng ikapitong buwan, ang Araw ng Pagtubos, patunugin ninyo ang mga trumpeta sa buong lupain. 
 
 
 

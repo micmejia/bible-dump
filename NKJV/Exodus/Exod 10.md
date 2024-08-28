@@ -67,7 +67,9 @@ So he went out from Pharaoh and entreated the Lord.
 And the Lord turned a very strong west wind, which took the locusts away and blew them into the Red Sea. There remained not one locust in all the territory of Egypt. 
 
 ###### 20 
-But the Lord hardened Pharaoh's heart, and he did not let the children of Israel go. ## The Ninth Plague: Darkness 
+But the Lord hardened Pharaoh's heart, and he did not let the children of Israel go.
+
+## The Ninth Plague: Darkness 
 
 ###### 21 
 Then the Lord said to Moses, "Stretch out your hand toward heaven, that there may be darkness over the land of Egypt, darkness _which_ may even be felt." 

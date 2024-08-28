@@ -73,7 +73,9 @@ Sinabi ng Panginoon kina Moises at Aaron,
 
 
 
-"Magkakampo ang bawat lahi ng Israel sa ilalim ng bandila ng kani-kanilang lahi. Ang Toldang Tipanan ay ilalagay sa gitna ng kampo. ###### 3-8 Ang mga lahi nina Juda, Isacar at Zebulun ay magkakampo sa silangan, sa ilalim ng bandila ng kani-kanilang lahi. Ito ang mga pangalan ng kanilang mga pinuno at ang bilang ng kanilang mga tauhan: 
+"Magkakampo ang bawat lahi ng Israel sa ilalim ng bandila ng kani-kanilang lahi. Ang Toldang Tipanan ay ilalagay sa gitna ng kampo.
+
+###### 3-8 Ang mga lahi nina Juda, Isacar at Zebulun ay magkakampo sa silangan, sa ilalim ng bandila ng kani-kanilang lahi. Ito ang mga pangalan ng kanilang mga pinuno at ang bilang ng kanilang mga tauhan: 
 
 
 

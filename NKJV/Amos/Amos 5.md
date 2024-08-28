@@ -52,7 +52,9 @@ Therefore the prudent keep silent at that time, For it _is_ an evil time.
 Seek good and not evil, That you may live; So the Lord God of hosts will be with you, As you have spoken. 
 
 ###### 15 
-Hate evil, love good; Establish justice in the gate. It may be that the Lord God of hosts Will be gracious to the remnant of Joseph. ## The Day of the Lord 
+Hate evil, love good; Establish justice in the gate. It may be that the Lord God of hosts Will be gracious to the remnant of Joseph.
+
+## The Day of the Lord 
 
 ###### 16 
 Therefore the Lord God of hosts, the Lord, says this: "_There shall be_ wailing in all streets, And they shall say in all the highways, 'Alas! Alas!' They shall call the farmer to mourning, And skillful lamenters to wailing. 

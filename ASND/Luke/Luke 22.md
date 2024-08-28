@@ -73,7 +73,9 @@ Nalalapit na noon ang Pista ng Tinapay na Walang Pampaalsa na tinatawag ding Pis
 
 
 
-Ang mga namamahalang pari at ang mga tagapagturo ng Kautusan ay naghahanap ng paraan upang maipapatay si Jesus <i class="trans-change">ng hindi magkakagulo_, dahil natatakot sila sa mga tao. ## Nakipagkasundo si Judas sa mga Kaaway ni Jesus 
+Ang mga namamahalang pari at ang mga tagapagturo ng Kautusan ay naghahanap ng paraan upang maipapatay si Jesus <i class="trans-change">ng hindi magkakagulo_, dahil natatakot sila sa mga tao.
+
+## Nakipagkasundo si Judas sa mga Kaaway ni Jesus 
 
 
 
@@ -205,7 +207,9 @@ Natuwa sila at nakipagkasundo kay Judas na bayaran siya.
 
 
 
-Pumayag naman si Judas sa kasunduan, at mula noon, humanap siya ng pagkakataon upang maibigay sa kanila si Jesus nang hindi nalalaman ng mga tao. ## Paghahanda ng Hapunan para sa Pista 
+Pumayag naman si Judas sa kasunduan, at mula noon, humanap siya ng pagkakataon upang maibigay sa kanila si Jesus nang hindi nalalaman ng mga tao.
+
+## Paghahanda ng Hapunan para sa Pista 
 
 
 
@@ -436,7 +440,9 @@ Isasama niya kayo sa itaas at ituturo sa inyo ang isang malaking kwarto na kumpl
 
 
 
-Lumakad sila at nakita nga nila ang lahat ayon sa sinabi ni Jesus sa kanila. At inihanda nila roon ang hapunan para sa pista. ## Huling Hapunan ni Jesus 
+Lumakad sila at nakita nga nila ang lahat ayon sa sinabi ni Jesus sa kanila. At inihanda nila roon ang hapunan para sa pista.
+
+## Huling Hapunan ni Jesus 
 
 
 
@@ -766,7 +772,9 @@ Sapagkat ayon sa itinalaga ng Dios, <i class="trans-change">Ako na_ Anak ng Tao 
 
 
 
-Nagtanungan sa isaʼt isa ang mga tagasunod niya kung sino kaya sa kanila ang gagawa noon. ## Ang Pagtatalo tungkol sa Kadakilaan 
+Nagtanungan sa isaʼt isa ang mga tagasunod niya kung sino kaya sa kanila ang gagawa noon.
+
+## Ang Pagtatalo tungkol sa Kadakilaan 
 
 
 
@@ -1261,7 +1269,9 @@ Sapagkat sinasabi ko sa inyo na kailangang matupad ang sinasabing ito ng Kasulat
 
 
 
-Sinabi ng mga tagasunod niya, "Panginoon, may dalawa po kaming espada." "Tama na iyan," sagot niya. ## Nanalangin si Jesus sa Bundok ng mga Olibo 
+Sinabi ng mga tagasunod niya, "Panginoon, may dalawa po kaming espada." "Tama na iyan," sagot niya.
+
+## Nanalangin si Jesus sa Bundok ng mga Olibo 
 
 
 
@@ -2053,7 +2063,9 @@ Lumingon ang Panginoon at tiningnan si Pedro. Naalala ni Pedro ang sinabi ng Pan
 
 
 
-Kaya lumabas si Pedro at humagulgol. ## Kinutya at Binugbog si Jesus 
+Kaya lumabas si Pedro at humagulgol.
+
+## Kinutya at Binugbog si Jesus 
 
 
 
@@ -2152,7 +2164,9 @@ Piniringan nila siya <i class="trans-change">at sinuntok_, at tinanong, "Hulaan 
 
 
 
-At marami pa silang sinabing masama laban sa kanya. ## Dinala si Jesus sa Korte ng mga Judio 
+At marami pa silang sinabing masama laban sa kanya.
+
+## Dinala si Jesus sa Korte ng mga Judio 
 
 
 

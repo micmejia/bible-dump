@@ -13,7 +13,9 @@ next: ['1 John 3']
 My little children, these things I write to you, so that you may not sin. And if anyone sins, we have an Advocate with the Father, Jesus Christ the righteous. 
 
 ###### 2 
-And He Himself is the propitiation for our sins, and not for ours only but also for the whole world. ## The Test of Knowing Him 
+And He Himself is the propitiation for our sins, and not for ours only but also for the whole world.
+
+## The Test of Knowing Him 
 
 ###### 3 
 Now by this we know that we know Him, if we keep His commandments. 
@@ -40,7 +42,9 @@ He who says he is in the light, and hates his brother, is in darkness until now.
 He who loves his brother abides in the light, and there is no cause for stumbling in him. 
 
 ###### 11 
-But he who hates his brother is in darkness and walks in darkness, and does not know where he is going, because the darkness has blinded his eyes. ## Their Spiritual State 
+But he who hates his brother is in darkness and walks in darkness, and does not know where he is going, because the darkness has blinded his eyes.
+
+## Their Spiritual State 
 
 ###### 12 
 I write to you, little children, Because your sins are forgiven you for His name's sake. 
@@ -49,7 +53,9 @@ I write to you, little children, Because your sins are forgiven you for His name
 I write to you, fathers, Because you have known Him _who is_ from the beginning. I write to you, young men, Because you have overcome the wicked one. I write to you, little children, Because you have known the Father. 
 
 ###### 14 
-I have written to you, fathers, Because you have known Him _who is_ from the beginning. I have written to you, young men, Because you are strong, and the word of God abides in you, And you have overcome the wicked one. ## Do Not Love the World 
+I have written to you, fathers, Because you have known Him _who is_ from the beginning. I have written to you, young men, Because you are strong, and the word of God abides in you, And you have overcome the wicked one.
+
+## Do Not Love the World 
 
 ###### 15 
 Do not love the world or the things in the world. If anyone loves the world, the love of the Father is not in him. 
@@ -58,7 +64,9 @@ Do not love the world or the things in the world. If anyone loves the world, the
 For all that _is_ in the world--the lust of the flesh, the lust of the eyes, and the pride of life--is not of the Father but is of the world. 
 
 ###### 17 
-And the world is passing away, and the lust of it; but he who does the will of God abides forever. ## Deceptions of the Last Hour 
+And the world is passing away, and the lust of it; but he who does the will of God abides forever.
+
+## Deceptions of the Last Hour 
 
 ###### 18 
 Little children, it is the last hour; and as you have heard that the Antichrist is coming, even now many antichrists have come, by which we know that it is the last hour. 
@@ -76,7 +84,9 @@ I have not written to you because you do not know the truth, but because you kno
 Who is a liar but he who denies that Jesus is the Christ? He is antichrist who denies the Father and the Son. 
 
 ###### 23 
-Whoever denies the Son does not have the Father either; he who acknowledges the Son has the Father also. ## Let Truth Abide in You 
+Whoever denies the Son does not have the Father either; he who acknowledges the Son has the Father also.
+
+## Let Truth Abide in You 
 
 ###### 24 
 Therefore let that abide in you which you heard from the beginning. If what you heard from the beginning abides in you, you also will abide in the Son and in the Father. 
@@ -88,7 +98,9 @@ And this is the promise that He has promised us--eternal life.
 These things I have written to you concerning those who _try to_ deceive you. 
 
 ###### 27 
-But the anointing which you have received from Him abides in you, and you do not need that anyone teach you; but as the same anointing teaches you concerning all things, and is true, and is not a lie, and just as it has taught you, you will abide in Him. ## The Children of God 
+But the anointing which you have received from Him abides in you, and you do not need that anyone teach you; but as the same anointing teaches you concerning all things, and is true, and is not a lie, and just as it has taught you, you will abide in Him.
+
+## The Children of God 
 
 ###### 28 
 And now, little children, abide in Him, that when He appears, we may have confidence and not be ashamed before Him at His coming. 

@@ -403,7 +403,9 @@ Hinamak at ininsulto ni Herodes at ng mga sundalo niya si Jesus. Sinuotan nila s
 
 
 
-At nang araw ding iyon ay naging magkaibigan ang dating magkaaway na sina Herodes at Pilato. ## Hinatulan si Jesus ng Kamatayan 
+At nang araw ding iyon ay naging magkaibigan ang dating magkaaway na sina Herodes at Pilato.
+
+## Hinatulan si Jesus ng Kamatayan 
 
 
 
@@ -832,7 +834,9 @@ Kaya pinagbigyan ni Pilato ang kahilingan ng mga tao <i class="trans-change">na 
 
 
 
-At ayon din sa kahilingan nila, pinalaya niya si Barabas, na nabilanggo dahil sa paghihimagsik at pagpatay. Pero ibinigay niya si Jesus sa kanila para gawin ang gusto nila. ## Ipinako sa Krus si Jesus 
+At ayon din sa kahilingan nila, pinalaya niya si Barabas, na nabilanggo dahil sa paghihimagsik at pagpatay. Pero ibinigay niya si Jesus sa kanila para gawin ang gusto nila.
+
+## Ipinako sa Krus si Jesus 
 
 
 
@@ -1558,7 +1562,9 @@ Ang mga taong pumunta roon at nakasaksi sa lahat ng nangyari ay umuwi nang <i cl
 
 
 
-Sa di-kalayuan ay nakatayo ang mga kaibigan ni Jesus, pati ang mga babaeng sumama sa kanya mula sa Galilea. At nakita rin nila ang lahat ng nangyari. ## Ang Paglilibing kay Jesus <sup class="versenum">50-51</sup>May isang lalaki na ang pangalan ay Jose. Siya ay taga-Arimatea na sakop ng Judea. Kahit na miyembro siya ng korte ng mga Judio, hindi niya sinang-ayunan ang kanilang ginawa kay Jesus. Mabuting tao siya, matuwid at kabilang sa mga naghihintay sa paghahari ng Dios. 
+Sa di-kalayuan ay nakatayo ang mga kaibigan ni Jesus, pati ang mga babaeng sumama sa kanya mula sa Galilea. At nakita rin nila ang lahat ng nangyari.
+
+## Ang Paglilibing kay Jesus <sup class="versenum">50-51</sup>May isang lalaki na ang pangalan ay Jose. Siya ay taga-Arimatea na sakop ng Judea. Kahit na miyembro siya ng korte ng mga Judio, hindi niya sinang-ayunan ang kanilang ginawa kay Jesus. Mabuting tao siya, matuwid at kabilang sa mga naghihintay sa paghahari ng Dios. 
 
 
 

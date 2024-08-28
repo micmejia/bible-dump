@@ -109,7 +109,9 @@ but when it is sown, it grows up and becomes greater than all herbs, and shoots 
 And with many such parables He spoke the word to them as they were able to hear _it._ 
 
 ###### 34 
-But without a parable He did not speak to them. And when they were alone, He explained all things to His disciples. ## Wind and Wave Obey Jesus 
+But without a parable He did not speak to them. And when they were alone, He explained all things to His disciples.
+
+## Wind and Wave Obey Jesus 
 
 ###### 35 
 On the same day, when evening had come, He said to them, "Let us cross over to the other side." 

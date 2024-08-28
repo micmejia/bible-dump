@@ -468,7 +468,9 @@ Kumuha si Jesus ng tinapay at ibinigay sa kanila. Ganoon din ang ginawa niya sa 
 
 
 
-Ito na ang ikatlong pagpapakita ni Jesus sa mga tagasunod <i class="trans-change">niya_ pagkatapos niyang mabuhay muli. ## Si Jesus at si Pedro 
+Ito na ang ikatlong pagpapakita ni Jesus sa mga tagasunod <i class="trans-change">niya_ pagkatapos niyang mabuhay muli.
+
+## Si Jesus at si Pedro 
 
 
 

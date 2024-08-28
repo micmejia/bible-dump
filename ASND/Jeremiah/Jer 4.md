@@ -139,7 +139,9 @@ Sinabi ng Panginoon sa mga taga-Juda at taga-Jerusalem, "<i class="trans-change"
 
 
 
-Linisin nʼyo ang inyong mga puso sa presensya ng Panginoon, kayong mga taga-Juda at taga-Jerusalem, dahil kung hindi ay mararanasan nʼyo ang galit kong parang apoy na hindi namamatay dahil sa ginawa nʼyong kasamaan. ## Ang Parusang Darating sa Juda 
+Linisin nʼyo ang inyong mga puso sa presensya ng Panginoon, kayong mga taga-Juda at taga-Jerusalem, dahil kung hindi ay mararanasan nʼyo ang galit kong parang apoy na hindi namamatay dahil sa ginawa nʼyong kasamaan.
+
+## Ang Parusang Darating sa Juda 
 
 
 

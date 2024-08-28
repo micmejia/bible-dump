@@ -31,7 +31,9 @@ if they fall away, to renew them again to repentance, since they crucify again f
 For the earth which drinks in the rain that often comes upon it, and bears herbs useful for those by whom it is cultivated, receives blessing from God; 
 
 ###### 8 
-but if it bears thorns and briers, _it is_ rejected and near to being cursed, whose end _is_ to be burned. ## A Better Estimate 
+but if it bears thorns and briers, _it is_ rejected and near to being cursed, whose end _is_ to be burned.
+
+## A Better Estimate 
 
 ###### 9 
 But, beloved, we are confident of better things concerning you, yes, things that accompany salvation, though we speak in this manner. 
@@ -43,7 +45,9 @@ For God _is_ not unjust to forget your work and labor of love which you have sho
 And we desire that each one of you show the same diligence to the full assurance of hope until the end, 
 
 ###### 12 
-that you do not become sluggish, but imitate those who through faith and patience inherit the promises. ## God's Infallible Purpose in Christ 
+that you do not become sluggish, but imitate those who through faith and patience inherit the promises.
+
+## God's Infallible Purpose in Christ 
 
 ###### 13 
 For when God made a promise to Abraham, because He could swear by no one greater, He swore by Himself, 

@@ -103,7 +103,9 @@ Then they departed from there and passed through Galilee, and He did not want an
 For He taught His disciples and said to them, "The Son of Man is being betrayed into the hands of men, and they will kill Him. And after He is killed, He will rise the third day." 
 
 ###### 32 
-But they did not understand this saying, and were afraid to ask Him. ## Who Is the Greatest? 
+But they did not understand this saying, and were afraid to ask Him.
+
+## Who Is the Greatest? 
 
 ###### 33 
 Then He came to Capernaum. And when He was in the house He asked them, "What was it you disputed among yourselves on the road?" 
@@ -130,7 +132,9 @@ But Jesus said, "Do not forbid him, for no one who works a miracle in My name ca
 For he who is not against us is on our side. 
 
 ###### 41 
-For whoever gives you a cup of water to drink in My name, because you belong to Christ, assuredly, I say to you, he will by no means lose his reward. ## Jesus Warns of Offenses 
+For whoever gives you a cup of water to drink in My name, because you belong to Christ, assuredly, I say to you, he will by no means lose his reward.
+
+## Jesus Warns of Offenses 
 
 ###### 42 
 "But whoever causes one of these little ones who believe in Me to stumble, it would be better for him if a millstone were hung around his neck, and he were thrown into the sea. 

@@ -568,7 +568,9 @@ Kung sa mga hayop nga ay naaawa kayo, bakit hindi sa babaeng ito na mula rin sa 
 
 
 
-Napahiya ang mga kumakalaban kay Jesus sa sinabi niyang ito. Natuwa naman ang mga tao sa mga kahanga-hangang bagay na ginawa ni Jesus. ## Ang Paghahalintulad sa Buto ng Mustasa 
+Napahiya ang mga kumakalaban kay Jesus sa sinabi niyang ito. Natuwa naman ang mga tao sa mga kahanga-hangang bagay na ginawa ni Jesus.
+
+## Ang Paghahalintulad sa Buto ng Mustasa 
 
 
 

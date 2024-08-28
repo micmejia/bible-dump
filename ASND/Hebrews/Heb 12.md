@@ -370,7 +370,9 @@ Sa maikling panahon, dinidisiplina tayo ng mga ama natin dito sa lupa ayon sa in
 
 
 
-Habang dinidisiplina tayo, hindi tayo natutuwa kundi nasasaktan. Ngunit ang ibubunga naman nito sa bandang huli ay ang mapayapa at matuwid na pamumuhay. ## Mga Babala at Bilin 
+Habang dinidisiplina tayo, hindi tayo natutuwa kundi nasasaktan. Ngunit ang ibubunga naman nito sa bandang huli ay ang mapayapa at matuwid na pamumuhay.
+
+## Mga Babala at Bilin 
 
 
 

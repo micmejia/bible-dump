@@ -39,7 +39,9 @@ next: ['Zeph 2']
 
 
 
-Ito ang ipinahayag ng Panginoon kay Zefanias noong si Josia na anak ni Amon ang hari ng Juda. Si Zefanias ay anak ni Cushi na anak ni Gedalia. Si Gedalia naman ay anak ni Amaria na anak ni Hezekia. ## Darating ang Parusa ng Panginoon 
+Ito ang ipinahayag ng Panginoon kay Zefanias noong si Josia na anak ni Amon ang hari ng Juda. Si Zefanias ay anak ni Cushi na anak ni Gedalia. Si Gedalia naman ay anak ni Amaria na anak ni Hezekia.
+
+## Darating ang Parusa ng Panginoon 
 
 
 

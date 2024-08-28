@@ -369,7 +369,9 @@ May mga bagay pa ba na masasabi mong bago? Nariyan na iyan noon pa, kahit noong 
 
 
 
-Hindi na natin naaalala ang mga nangyari noon; ganoon din sa hinaharap, hindi rin ito maaalala ng mga tao sa bandang huli. ## Ang Karunungan ng Tao ay Walang Kabuluhan 
+Hindi na natin naaalala ang mga nangyari noon; ganoon din sa hinaharap, hindi rin ito maaalala ng mga tao sa bandang huli.
+
+## Ang Karunungan ng Tao ay Walang Kabuluhan 
 
 
 

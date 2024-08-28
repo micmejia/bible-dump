@@ -469,7 +469,9 @@ At anuman ang hilingin nʼyo sa aking pangalan ay gagawin ko upang maparangalan 
 
 
 
-Oo, gagawin ko ang anumang hilingin ninyo sa aking pangalan. ## Ipinangako ni Jesus ang Banal na Espiritu 
+Oo, gagawin ko ang anumang hilingin ninyo sa aking pangalan.
+
+## Ipinangako ni Jesus ang Banal na Espiritu 
 
 
 

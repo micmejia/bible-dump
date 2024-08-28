@@ -205,7 +205,9 @@ At hindi rin ba ninyo nabasa sa Kautusan na ang mga pari <i class="trans-change"
 
 
 
-Tandaan ninyo: may naririto ngayon na mas dakila pa kaysa sa templo. ###### 7-8 Sapagkat <i class="trans-change">ako na_ Anak ng Tao ang siyang makapagsasabi kung ano ang dapat gawin sa Araw ng Pamamahinga. Kung alam lang sana ninyo ang ibig sabihin ng <i class="trans-change">sinabi ng Dios sa Kasulatan_: 'Hindi ang handog ninyo ang hinahangad ko kundi ang maging maawain kayo,' hindi sana ninyo hinatulan ang mga taong walang kasalanan." ## Ang Lalaking Paralisado ang Isang Kamay 
+Tandaan ninyo: may naririto ngayon na mas dakila pa kaysa sa templo.
+
+###### 7-8 Sapagkat <i class="trans-change">ako na_ Anak ng Tao ang siyang makapagsasabi kung ano ang dapat gawin sa Araw ng Pamamahinga. Kung alam lang sana ninyo ang ibig sabihin ng <i class="trans-change">sinabi ng Dios sa Kasulatan_: 'Hindi ang handog ninyo ang hinahangad ko kundi ang maging maawain kayo,' hindi sana ninyo hinatulan ang mga taong walang kasalanan." ## Ang Lalaking Paralisado ang Isang Kamay 
 
 
 
@@ -403,7 +405,9 @@ Pagkatapos, sinabi ni Jesus sa lalaking <i class="trans-change">paralisado ang k
 
 
 
-Lumabas naman ang mga Pariseo at nagplano kung paano nila ipapapatay si Jesus. ## Ang Piniling Lingkod ng Dios 
+Lumabas naman ang mga Pariseo at nagplano kung paano nila ipapapatay si Jesus.
+
+## Ang Piniling Lingkod ng Dios 
 
 
 

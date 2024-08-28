@@ -40,7 +40,9 @@ And he said to Him, "All these things I will give You if You will fall down and 
 Then Jesus said to him, "Away with you, Satan! For it is written, 'You shall worship the Lord your God, and Him only you shall serve.' " 
 
 ###### 11 
-Then the devil left Him, and behold, angels came and ministered to Him. ## Jesus Begins His Galilean Ministry 
+Then the devil left Him, and behold, angels came and ministered to Him.
+
+## Jesus Begins His Galilean Ministry 
 
 ###### 12 
 Now when Jesus heard that John had been put in prison, He departed to Galilee. 
@@ -73,7 +75,9 @@ They immediately left _their_ nets and followed Him.
 Going on from there, He saw two other brothers, James _the son_ of Zebedee, and John his brother, in the boat with Zebedee their father, mending their nets. He called them, 
 
 ###### 22 
-and immediately they left the boat and their father, and followed Him. ## Jesus Heals a Great Multitude 
+and immediately they left the boat and their father, and followed Him.
+
+## Jesus Heals a Great Multitude 
 
 ###### 23 
 And Jesus went about all Galilee, teaching in their synagogues, preaching the gospel of the kingdom, and healing all kinds of sickness and all kinds of disease among the people. 

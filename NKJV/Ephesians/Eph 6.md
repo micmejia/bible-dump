@@ -18,7 +18,9 @@ Children, obey your parents in the Lord, for this is right.
 "that it may be well with you and you may live long on the earth." 
 
 ###### 4 
-And you, fathers, do not provoke your children to wrath, but bring them up in the training and admonition of the Lord. ## Bondservants and Masters 
+And you, fathers, do not provoke your children to wrath, but bring them up in the training and admonition of the Lord.
+
+## Bondservants and Masters 
 
 ###### 5 
 Bondservants, be obedient to those who are your masters according to the flesh, with fear and trembling, in sincerity of heart, as to Christ; 
@@ -33,7 +35,9 @@ with goodwill doing service, as to the Lord, and not to men,
 knowing that whatever good anyone does, he will receive the same from the Lord, whether _he is_ a slave or free. 
 
 ###### 9 
-And you, masters, do the same things to them, giving up threatening, knowing that your own Master also is in heaven, and there is no partiality with Him. ## The Whole Armor of God 
+And you, masters, do the same things to them, giving up threatening, knowing that your own Master also is in heaven, and there is no partiality with Him.
+
+## The Whole Armor of God 
 
 ###### 10 
 Finally, my brethren, be strong in the Lord and in the power of His might. 
@@ -66,7 +70,9 @@ praying always with all prayer and supplication in the Spirit, being watchful to
 and for me, that utterance may be given to me, that I may open my mouth boldly to make known the mystery of the gospel, 
 
 ###### 20 
-for which I am an ambassador in chains; that in it I may speak boldly, as I ought to speak. ## A Gracious Greeting 
+for which I am an ambassador in chains; that in it I may speak boldly, as I ought to speak.
+
+## A Gracious Greeting 
 
 ###### 21 
 But that you also may know my affairs _and_ how I am doing, Tychicus, a beloved brother and faithful minister in the Lord, will make all things known to you; 

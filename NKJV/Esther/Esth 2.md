@@ -61,7 +61,9 @@ So Esther was taken to King Ahasuerus, into his royal palace, in the tenth month
 The king loved Esther more than all the _other_ women, and she obtained grace and favor in his sight more than all the virgins; so he set the royal crown upon her head and made her queen instead of Vashti. 
 
 ###### 18 
-Then the king made a great feast, the Feast of Esther, for all his officials and servants; and he proclaimed a holiday in the provinces and gave gifts according to the generosity of a king. ## Mordecai Discovers a Plot 
+Then the king made a great feast, the Feast of Esther, for all his officials and servants; and he proclaimed a holiday in the provinces and gave gifts according to the generosity of a king.
+
+## Mordecai Discovers a Plot 
 
 ###### 19 
 When virgins were gathered together a second time, Mordecai sat within the king's gate. 

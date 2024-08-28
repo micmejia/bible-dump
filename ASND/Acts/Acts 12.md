@@ -172,7 +172,9 @@ Ipinabilanggo niya si Pedro at pinabantayan sa apat na grupo ng mga sundalo na a
 
 
 
-Habang nasa bilangguan si Pedro, patuloy ang taimtim na pananalangin ng iglesya para sa kanya. ## Ang Himalang Pagkalabas ni Pedro sa Bilangguan 
+Habang nasa bilangguan si Pedro, patuloy ang taimtim na pananalangin ng iglesya para sa kanya.
+
+## Ang Himalang Pagkalabas ni Pedro sa Bilangguan 
 
 
 
@@ -634,7 +636,9 @@ Kinaumagahan, nagkagulo ang mga guwardya, dahil wala na si Pedro at hindi nila a
 
 
 
-Nag-utos si Herodes na hanapin siya, pero hindi talaga nila makita. Kaya pinaimbestigahan niya ang mga guwardya at ipinapatay. Pagkatapos, umalis si Herodes sa Judea. Pumunta siya sa Cesarea at doon nanatili. ## Ang Pagkamatay ni Haring Herodes 
+Nag-utos si Herodes na hanapin siya, pero hindi talaga nila makita. Kaya pinaimbestigahan niya ang mga guwardya at ipinapatay. Pagkatapos, umalis si Herodes sa Judea. Pumunta siya sa Cesarea at doon nanatili.
+
+## Ang Pagkamatay ni Haring Herodes 
 
 
 

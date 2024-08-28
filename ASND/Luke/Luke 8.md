@@ -106,7 +106,9 @@ at ilang babaeng pinagaling niya sa sakit o pinalaya sa masasamang espiritu. Kab
 
 
 
-si Juana na asawa ni Cuza na katiwala ni Herodes, si Susana, at marami pang iba. Ang mga babaeng ito ay tumutulong sa mga pangangailangan nina Jesus mula sa mga ari-arian nila. ## Ang Talinghaga tungkol sa Manghahasik 
+si Juana na asawa ni Cuza na katiwala ni Herodes, si Susana, at marami pang iba. Ang mga babaeng ito ay tumutulong sa mga pangangailangan nina Jesus mula sa mga ari-arian nila.
+
+## Ang Talinghaga tungkol sa Manghahasik 
 
 
 
@@ -1294,7 +1296,9 @@ Nakiusap sa kanya ang lalaking gumaling na isama siya. Pero hindi pumayag si Jes
 
 
 
-"Umuwi ka na sa inyo at sabihin mo sa kanila ang ginawa sa iyo ng Dios." Umuwi nga ang lalaki at ipinamalita sa buong bayan ang ginawa sa kanya ni Jesus. ## Ang Anak ni Jairus at ang Babaeng Dinudugo 
+"Umuwi ka na sa inyo at sabihin mo sa kanila ang ginawa sa iyo ng Dios." Umuwi nga ang lalaki at ipinamalita sa buong bayan ang ginawa sa kanya ni Jesus.
+
+## Ang Anak ni Jairus at ang Babaeng Dinudugo 
 
 
 

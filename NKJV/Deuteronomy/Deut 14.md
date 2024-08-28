@@ -13,7 +13,9 @@ next: ['Deut 15']
 "You _are_ the children of the Lord your God; you shall not cut yourselves nor shave the front of your head for the dead. 
 
 ###### 2 
-For you _are_ a holy people to the Lord your God, and the Lord has chosen you to be a people for Himself, a special treasure above all the peoples who _are_ on the face of the earth. ## Clean and Unclean Meat 
+For you _are_ a holy people to the Lord your God, and the Lord has chosen you to be a people for Himself, a special treasure above all the peoples who _are_ on the face of the earth.
+
+## Clean and Unclean Meat 
 
 ###### 3 
 "You shall not eat any detestable thing. 
@@ -70,7 +72,9 @@ the stork, the heron after its kind, and the hoopoe and the bat.
 "You may eat all clean birds. 
 
 ###### 21 
-"You shall not eat anything that dies _of itself;_ you may give it to the alien who _is_ within your gates, that he may eat it, or you may sell it to a foreigner; for you _are_ a holy people to the Lord your God. "You shall not boil a young goat in its mother's milk. ## Tithing Principles 
+"You shall not eat anything that dies _of itself;_ you may give it to the alien who _is_ within your gates, that he may eat it, or you may sell it to a foreigner; for you _are_ a holy people to the Lord your God. "You shall not boil a young goat in its mother's milk.
+
+## Tithing Principles 
 
 ###### 22 
 "You shall truly tithe all the increase of your grain that the field produces year by year. 

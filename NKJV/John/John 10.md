@@ -25,7 +25,9 @@ And when he brings out his own sheep, he goes before them; and the sheep follow 
 Yet they will by no means follow a stranger, but will flee from him, for they do not know the voice of strangers." 
 
 ###### 6 
-Jesus used this illustration, but they did not understand the things which He spoke to them. ## Jesus the Good Shepherd 
+Jesus used this illustration, but they did not understand the things which He spoke to them.
+
+## Jesus the Good Shepherd 
 
 ###### 7 
 Then Jesus said to them again, "Most assuredly, I say to you, I am the door of the sheep. 
@@ -124,7 +126,9 @@ If I do not do the works of My Father, do not believe Me;
 but if I do, though you do not believe Me, believe the works, that you may know and believe that the Father _is_ in Me, and I in Him." 
 
 ###### 39 
-Therefore they sought again to seize Him, but He escaped out of their hand. ## The Believers Beyond Jordan 
+Therefore they sought again to seize Him, but He escaped out of their hand.
+
+## The Believers Beyond Jordan 
 
 ###### 40 
 And He went away again beyond the Jordan to the place where John was baptizing at first, and there He stayed. 

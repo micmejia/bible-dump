@@ -31,7 +31,9 @@ The first _was_ like a lion, and had eagle's wings. I watched till its wings wer
 "After this I saw in the night visions, and behold, a fourth beast, dreadful and terrible, exceedingly strong. It had huge iron teeth; it was devouring, breaking in pieces, and trampling the residue with its feet. It _was_ different from all the beasts that _were_ before it, and it had ten horns. 
 
 ###### 8 
-I was considering the horns, and there was another horn, a little one, coming up among them, before whom three of the first horns were plucked out by the roots. And there, in this horn, _were_ eyes like the eyes of a man, and a mouth speaking pompous words. ## Vision of the Ancient of Days 
+I was considering the horns, and there was another horn, a little one, coming up among them, before whom three of the first horns were plucked out by the roots. And there, in this horn, _were_ eyes like the eyes of a man, and a mouth speaking pompous words.
+
+## Vision of the Ancient of Days 
 
 ###### 9 
 "I watched till thrones were put in place, And the Ancient of Days was seated; His garment _was_ white as snow, And the hair of His head _was_ like pure wool. His throne _was_ a fiery flame, Its wheels a burning fire; 
@@ -49,7 +51,9 @@ As for the rest of the beasts, they had their dominion taken away, yet their liv
 "I was watching in the night visions, And behold, _One_ like the Son of Man, Coming with the clouds of heaven! He came to the Ancient of Days, And they brought Him near before Him. 
 
 ###### 14 
-Then to Him was given dominion and glory and a kingdom, That all peoples, nations, and languages should serve Him. His dominion _is_ an everlasting dominion, Which shall not pass away, And His kingdom _the one_ Which shall not be destroyed. ## Daniel's Visions Interpreted 
+Then to Him was given dominion and glory and a kingdom, That all peoples, nations, and languages should serve Him. His dominion _is_ an everlasting dominion, Which shall not pass away, And His kingdom _the one_ Which shall not be destroyed.
+
+## Daniel's Visions Interpreted 
 
 ###### 15 
 "I, Daniel, was grieved in my spirit within _my_ body, and the visions of my head troubled me. 

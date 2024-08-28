@@ -469,7 +469,9 @@ Sa halip, nagdiwang kayo at nagsaya. Nagkatay kayo ng mga baka at tupa, at nagka
 
 
 
-Sinabi sa akin ng Panginoong Makapangyarihan na hindi niya kayo patatawarin sa kasalanang ito habang kayoʼy nabubuhay. ## Ang Mensahe para kay Shebna 
+Sinabi sa akin ng Panginoong Makapangyarihan na hindi niya kayo patatawarin sa kasalanang ito habang kayoʼy nabubuhay.
+
+## Ang Mensahe para kay Shebna 
 
 
 

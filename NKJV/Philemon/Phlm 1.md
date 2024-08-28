@@ -14,7 +14,9 @@ Paul, a prisoner of Christ Jesus, and Timothy _our_ brother, To Philemon our bel
 to the beloved Apphia, Archippus our fellow soldier, and to the church in your house: 
 
 ###### 3 
-Grace to you and peace from God our Father and the Lord Jesus Christ. ## Philemon's Love and Faith 
+Grace to you and peace from God our Father and the Lord Jesus Christ.
+
+## Philemon's Love and Faith 
 
 ###### 4 
 I thank my God, making mention of you always in my prayers, 
@@ -26,7 +28,9 @@ hearing of your love and faith which you have toward the Lord Jesus and toward a
 that the sharing of your faith may become effective by the acknowledgment of every good thing which is in you in Christ Jesus. 
 
 ###### 7 
-For we have great joy and consolation in your love, because the hearts of the saints have been refreshed by you, brother. ## The Plea for Onesimus 
+For we have great joy and consolation in your love, because the hearts of the saints have been refreshed by you, brother.
+
+## The Plea for Onesimus 
 
 ###### 8 
 Therefore, though I might be very bold in Christ to command you what is fitting, 
@@ -53,7 +57,9 @@ But without your consent I wanted to do nothing, that your good deed might not b
 For perhaps he departed for a while for this _purpose,_ that you might receive him forever, 
 
 ###### 16 
-no longer as a slave but more than a slave--a beloved brother, especially to me but how much more to you, both in the flesh and in the Lord. ## Philemon's Obedience Encouraged 
+no longer as a slave but more than a slave--a beloved brother, especially to me but how much more to you, both in the flesh and in the Lord.
+
+## Philemon's Obedience Encouraged 
 
 ###### 17 
 If then you count me as a partner, receive him as _you would_ me. 
@@ -71,7 +77,9 @@ Yes, brother, let me have joy from you in the Lord; refresh my heart in the Lord
 Having confidence in your obedience, I write to you, knowing that you will do even more than I say. 
 
 ###### 22 
-But, meanwhile, also prepare a guest room for me, for I trust that through your prayers I shall be granted to you. ## Farewell 
+But, meanwhile, also prepare a guest room for me, for I trust that through your prayers I shall be granted to you.
+
+## Farewell 
 
 ###### 23 
 Epaphras, my fellow prisoner in Christ Jesus, greets you, 

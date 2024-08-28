@@ -502,7 +502,9 @@ Si Azaria ay ama ni Seraya at si Seraya ay ama ni Jehozadak.
 
 
 
-Si Jehozadak ay kasama sa mga bihag nang ipabihag ng Panginoon ang mga mamamayan ng Jerusalem at Juda kay Nebucadnezar. ## Ang Iba pang Lahi ni Levi 
+Si Jehozadak ay kasama sa mga bihag nang ipabihag ng Panginoon ang mga mamamayan ng Jerusalem at Juda kay Nebucadnezar.
+
+## Ang Iba pang Lahi ni Levi 
 
 
 
@@ -997,7 +999,9 @@ Sa mga angkan ni Merari: sina Mahli, Libni, Shimei, Uza,
 
 
 
-Shimea, Haggia at Asaya. ## Ang mga Musikero sa Templo 
+Shimea, Haggia at Asaya.
+
+## Ang mga Musikero sa Templo 
 
 
 
@@ -1756,7 +1760,9 @@ Merayot, Amaria, Ahitub,
 
 
 
-Zadok, at Ahimaaz. ## Ang mga Lupain ng Lahi ni Levi 
+Zadok, at Ahimaaz.
+
+## Ang mga Lupain ng Lahi ni Levi 
 
 
 

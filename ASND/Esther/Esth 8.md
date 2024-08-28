@@ -106,7 +106,9 @@ Kinuha ng hari ang kanyang singsing na pantatak, na binawi niya kay Haman, at ib
 
 
 
-Minsan pang lumapit si Ester kay Haring Ahasuerus habang nakaluhod at umiiyak sa kanyang paanan. Hiniling niyang huwag nang ituloy ang masamang plano ni Haman na Agageo laban sa mga Judio. ###### 4-5 Itinuro ng hari ang kanyang gintong setro kay Ester, kaya tumayo siya sa harap ng hari at sinabi, "Kung kalugod-lugod po ako sa inyo, Mahal na Hari, at kung para sa inyoʼy tama at matuwid ito, nais ko sanang hilingin sa inyo na gumawa po kayo ng isang kautusan na magpapawalang bisa sa kautusang ipinakalat ni Haman na anak ni Hamedata na Agageo, na patayin ang lahat ng Judio sa inyong kaharian. 
+Minsan pang lumapit si Ester kay Haring Ahasuerus habang nakaluhod at umiiyak sa kanyang paanan. Hiniling niyang huwag nang ituloy ang masamang plano ni Haman na Agageo laban sa mga Judio.
+
+###### 4-5 Itinuro ng hari ang kanyang gintong setro kay Ester, kaya tumayo siya sa harap ng hari at sinabi, "Kung kalugod-lugod po ako sa inyo, Mahal na Hari, at kung para sa inyoʼy tama at matuwid ito, nais ko sanang hilingin sa inyo na gumawa po kayo ng isang kautusan na magpapawalang bisa sa kautusang ipinakalat ni Haman na anak ni Hamedata na Agageo, na patayin ang lahat ng Judio sa inyong kaharian. 
 
 
 

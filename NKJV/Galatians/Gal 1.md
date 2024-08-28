@@ -21,7 +21,9 @@ Grace to you and peace from God the Father and our Lord Jesus Christ,
 who gave Himself for our sins, that He might deliver us from this present evil age, according to the will of our God and Father, 
 
 ###### 5 
-to whom _be_ glory forever and ever. Amen. ## Only One Gospel 
+to whom _be_ glory forever and ever. Amen.
+
+## Only One Gospel 
 
 ###### 6 
 I marvel that you are turning away so soon from Him who called you in the grace of Christ, to a different gospel, 
@@ -36,7 +38,9 @@ But even if we, or an angel from heaven, preach any other gospel to you than wha
 As we have said before, so now I say again, if anyone preaches any other gospel to you than what you have received, let him be accursed. 
 
 ###### 10 
-For do I now persuade men, or God? Or do I seek to please men? For if I still pleased men, I would not be a bondservant of Christ. ## Call to Apostleship 
+For do I now persuade men, or God? Or do I seek to please men? For if I still pleased men, I would not be a bondservant of Christ.
+
+## Call to Apostleship 
 
 ###### 11 
 But I make known to you, brethren, that the gospel which was preached by me is not according to man. 
@@ -57,7 +61,9 @@ But when it pleased God, who separated me from my mother's womb and called _me_ 
 to reveal His Son in me, that I might preach Him among the Gentiles, I did not immediately confer with flesh and blood, 
 
 ###### 17 
-nor did I go up to Jerusalem to those _who were_ apostles before me; but I went to Arabia, and returned again to Damascus. ## Contacts at Jerusalem 
+nor did I go up to Jerusalem to those _who were_ apostles before me; but I went to Arabia, and returned again to Damascus.
+
+## Contacts at Jerusalem 
 
 ###### 18 
 Then after three years I went up to Jerusalem to see Peter, and remained with him fifteen days. 

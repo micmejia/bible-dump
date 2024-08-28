@@ -25,7 +25,9 @@ And where I go you know, and the way you know."
 Thomas said to Him, "Lord, we do not know where You are going, and how can we know the way?" 
 
 ###### 6 
-Jesus said to him, "I am the way, the truth, and the life. No one comes to the Father except through Me. ## The Father Revealed 
+Jesus said to him, "I am the way, the truth, and the life. No one comes to the Father except through Me.
+
+## The Father Revealed 
 
 ###### 7 
 "If you had known Me, you would have known My Father also; and from now on you know Him and have seen Him." 
@@ -40,7 +42,9 @@ Jesus said to him, "Have I been with you so long, and yet you have not known Me,
 Do you not believe that I am in the Father, and the Father in Me? The words that I speak to you I do not speak on My own _authority;_ but the Father who dwells in Me does the works. 
 
 ###### 11 
-Believe Me that I _am_ in the Father and the Father in Me, or else believe Me for the sake of the works themselves. ## The Answered Prayer 
+Believe Me that I _am_ in the Father and the Father in Me, or else believe Me for the sake of the works themselves.
+
+## The Answered Prayer 
 
 ###### 12 
 "Most assuredly, I say to you, he who believes in Me, the works that I do he will do also; and greater _works_ than these he will do, because I go to My Father. 
@@ -49,7 +53,9 @@ Believe Me that I _am_ in the Father and the Father in Me, or else believe Me fo
 And whatever you ask in My name, that I will do, that the Father may be glorified in the Son. 
 
 ###### 14 
-If you ask anything in My name, I will do _it._ ## Jesus Promises Another Helper 
+If you ask anything in My name, I will do _it._
+
+## Jesus Promises Another Helper 
 
 ###### 15 
 "If you love Me, keep My commandments. 
@@ -61,7 +67,9 @@ And I will pray the Father, and He will give you another Helper, that He may abi
 the Spirit of truth, whom the world cannot receive, because it neither sees Him nor knows Him; but you know Him, for He dwells with you and will be in you. 
 
 ###### 18 
-I will not leave you orphans; I will come to you. ## Indwelling of the Father and the Son 
+I will not leave you orphans; I will come to you.
+
+## Indwelling of the Father and the Son 
 
 ###### 19 
 "A little while longer and the world will see Me no more, but you will see Me. Because I live, you will live also. 
@@ -79,7 +87,9 @@ Judas (not Iscariot) said to Him, "Lord, how is it that You will manifest Yourse
 Jesus answered and said to him, "If anyone loves Me, he will keep My word; and My Father will love him, and We will come to him and make Our home with him. 
 
 ###### 24 
-He who does not love Me does not keep My words; and the word which you hear is not Mine but the Father's who sent Me. ## The Gift of His Peace 
+He who does not love Me does not keep My words; and the word which you hear is not Mine but the Father's who sent Me.
+
+## The Gift of His Peace 
 
 ###### 25 
 "These things I have spoken to you while being present with you. 

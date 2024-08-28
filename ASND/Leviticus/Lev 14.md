@@ -799,7 +799,9 @@ Ang ibang langis sa kanyang palad ay ipapahid niya sa ibabang bahagi ng kanang t
 
 
 
-Ito ang mga tuntunin tungkol sa paglilinis ng taong may sakit sa balat at kung ano ang dapat niyang gawin kung hindi niya kaya ang handog sa paglilinis. ## Ang mga Tuntunin Tungkol sa mga Amag na Kumakalat sa Bahay 
+Ito ang mga tuntunin tungkol sa paglilinis ng taong may sakit sa balat at kung ano ang dapat niyang gawin kung hindi niya kaya ang handog sa paglilinis.
+
+## Ang mga Tuntunin Tungkol sa mga Amag na Kumakalat sa Bahay 
 
 
 

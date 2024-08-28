@@ -403,7 +403,9 @@ Natisod ang mga Judio <i class="trans-change">dahil hindi sila sumampalataya kay
 
 
 
-Ngayon, kung ang paglabag at pagkabigong ito ng mga Judio ay nagdulot ng malaking pagpapala sa mga hindi Judio sa buong mundo, gaano pa kaya kalaki ang pagpapalang maidudulot kung makumpleto na ang buong bilang ng mga Judio <i class="trans-change">na sasampalataya kay Cristo_. ## Ang Kaligtasan ng mga Hindi Judio 
+Ngayon, kung ang paglabag at pagkabigong ito ng mga Judio ay nagdulot ng malaking pagpapala sa mga hindi Judio sa buong mundo, gaano pa kaya kalaki ang pagpapalang maidudulot kung makumpleto na ang buong bilang ng mga Judio <i class="trans-change">na sasampalataya kay Cristo_.
+
+## Ang Kaligtasan ng mga Hindi Judio 
 
 
 
@@ -799,7 +801,9 @@ At kung hindi na magmamatigas ang mga Judio kundi sasampalataya, ikakabit din si
 
 
 
-Sapagkat kung kayong mga sanga ng olibong ligaw ay naidugtong niya sa olibong inalagaan kahit na hindi ito kadalasang ginagawa, mas madaling idugtong muli ng Dios ang mga sangang pinutol mula sa dating puno. ## Ang Dios ay Maawain sa Lahat 
+Sapagkat kung kayong mga sanga ng olibong ligaw ay naidugtong niya sa olibong inalagaan kahit na hindi ito kadalasang ginagawa, mas madaling idugtong muli ng Dios ang mga sangang pinutol mula sa dating puno.
+
+## Ang Dios ay Maawain sa Lahat 
 
 
 
@@ -1063,7 +1067,9 @@ Ganoon din naman, kaaawaan niya ang mga Judio sa kabila ng pagkasuwail nila, tul
 
 
 
-Sapagkat hinayaan ng Dios na ang lahat ng tao ay maging alipin ng kasalanan para maipakita sa kanila ang kanyang awa. ## Papuri sa Dios 
+Sapagkat hinayaan ng Dios na ang lahat ng tao ay maging alipin ng kasalanan para maipakita sa kanila ang kanyang awa.
+
+## Papuri sa Dios 
 
 
 

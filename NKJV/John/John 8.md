@@ -67,7 +67,9 @@ I am One who bears witness of Myself, and the Father who sent Me bears witness o
 Then they said to Him, "Where is Your Father?" Jesus answered, "You know neither Me nor My Father. If you had known Me, you would have known My Father also." 
 
 ###### 20 
-These words Jesus spoke in the treasury, as He taught in the temple; and no one laid hands on Him, for His hour had not yet come. ## Jesus Predicts His Departure 
+These words Jesus spoke in the treasury, as He taught in the temple; and no one laid hands on Him, for His hour had not yet come.
+
+## Jesus Predicts His Departure 
 
 ###### 21 
 Then Jesus said to them again, "I am going away, and you will seek Me, and will die in your sin. Where I go you cannot come." 
@@ -97,7 +99,9 @@ Then Jesus said to them, "When you lift up the Son of Man, then you will know th
 And He who sent Me is with Me. The Father has not left Me alone, for I always do those things that please Him." 
 
 ###### 30 
-As He spoke these words, many believed in Him. ## The Truth Shall Make You Free 
+As He spoke these words, many believed in Him.
+
+## The Truth Shall Make You Free 
 
 ###### 31 
 Then Jesus said to those Jews who believed Him, "If you abide in My word, you are My disciples indeed. 
@@ -115,7 +119,9 @@ Jesus answered them, "Most assuredly, I say to you, whoever commits sin is a sla
 And a slave does not abide in the house forever, _but_ a son abides forever. 
 
 ###### 36 
-Therefore if the Son makes you free, you shall be free indeed. ## Abraham's Seed and Satan's 
+Therefore if the Son makes you free, you shall be free indeed.
+
+## Abraham's Seed and Satan's 
 
 ###### 37 
 "I know that you are Abraham's descendants, but you seek to kill Me, because My word has no place in you. 

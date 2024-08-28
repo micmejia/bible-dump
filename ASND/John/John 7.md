@@ -304,7 +304,9 @@ Kayo na lang ang pumunta sa pista. Hindi ako pupunta dahil hindi pa ito ang pana
 
 
 
-Pagkasabi niya nito, nagpaiwan siya sa Galilea. ## Pumunta si Jesus sa Pista 
+Pagkasabi niya nito, nagpaiwan siya sa Galilea.
+
+## Pumunta si Jesus sa Pista 
 
 
 
@@ -1459,7 +1461,9 @@ Kaya iba-iba ang paniniwala ng mga tao tungkol kay Jesus.
 
 
 
-Gusto ng ilan na dakpin siya, pero walang humuli sa kanya. ## Ayaw Maniwala ng mga Pinuno ng mga Judio kay Jesus 
+Gusto ng ilan na dakpin siya, pero walang humuli sa kanya.
+
+## Ayaw Maniwala ng mga Pinuno ng mga Judio kay Jesus 
 
 
 

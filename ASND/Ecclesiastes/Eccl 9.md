@@ -403,7 +403,9 @@ Mayroon pa akong nakita rito sa mundo: Hindi lahat ng mabibilis ay nananalo sa t
 
 
 
-Pero hindi niya alam kung kailan darating ang takdang oras. Tulad siya ng isang ibong nabitag o ng isdang nahuli sa lambat. Biglang dumarating sa tao ang masamang pagkakataon na para siyang nahuli sa isang patibong. ## Mas Mabuti ang Karunungan Kaysa Kamangmangan 
+Pero hindi niya alam kung kailan darating ang takdang oras. Tulad siya ng isang ibong nabitag o ng isdang nahuli sa lambat. Biglang dumarating sa tao ang masamang pagkakataon na para siyang nahuli sa isang patibong.
+
+## Mas Mabuti ang Karunungan Kaysa Kamangmangan 
 
 
 

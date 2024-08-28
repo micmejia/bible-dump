@@ -34,7 +34,9 @@ Nogah, Nepheg, Japhia,
 Elishama, Eliada, and Eliphelet--nine _in all._ 
 
 ###### 9 
-_These were_ all the sons of David, besides the sons of the concubines, and Tamar their sister. ## The Family of Solomon 
+_These were_ all the sons of David, besides the sons of the concubines, and Tamar their sister.
+
+## The Family of Solomon 
 
 ###### 10 
 Solomon's son _was_ Rehoboam; Abijah _was_ his son, Asa his son, Jehoshaphat his son, 
@@ -55,7 +57,9 @@ Amon his son, _and_ Josiah his son.
 The sons of Josiah _were_ Johanan the firstborn, the second Jehoiakim, the third Zedekiah, and the fourth Shallum. 
 
 ###### 16 
-The sons of Jehoiakim _were_ Jeconiah his son _and_ Zedekiah his son. ## The Family of Jeconiah 
+The sons of Jehoiakim _were_ Jeconiah his son _and_ Zedekiah his son.
+
+## The Family of Jeconiah 
 
 ###### 17 
 And the sons of Jeconiah _were_ Assir, Shealtiel his son, 

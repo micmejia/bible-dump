@@ -34,7 +34,9 @@ onyx stones, and stones to be set in the ephod and in the breastplate.
 And let them make Me a sanctuary, that I may dwell among them. 
 
 ###### 9 
-According to all that I show you, _that is,_ the pattern of the tabernacle and the pattern of all its furnishings, just so you shall make _it._ ## The Ark of the Testimony 
+According to all that I show you, _that is,_ the pattern of the tabernacle and the pattern of all its furnishings, just so you shall make _it._
+
+## The Ark of the Testimony 
 
 ###### 10 
 "And they shall make an ark of acacia wood; two and a half cubits _shall be_ its length, a cubit and a half its width, and a cubit and a half its height. 
@@ -73,7 +75,9 @@ And the cherubim shall stretch out _their_ wings above, covering the mercy seat 
 You shall put the mercy seat on top of the ark, and in the ark you shall put the Testimony that I will give you. 
 
 ###### 22 
-And there I will meet with you, and I will speak with you from above the mercy seat, from between the two cherubim which _are_ on the ark of the Testimony, about everything which I will give you in commandment to the children of Israel. ## The Table for the Showbread 
+And there I will meet with you, and I will speak with you from above the mercy seat, from between the two cherubim which _are_ on the ark of the Testimony, about everything which I will give you in commandment to the children of Israel.
+
+## The Table for the Showbread 
 
 ###### 23 
 "You shall also make a table of acacia wood; two cubits _shall be_ its length, a cubit its width, and a cubit and a half its height. 
@@ -97,7 +101,9 @@ And you shall make the poles of acacia wood, and overlay them with gold, that th
 You shall make its dishes, its pans, its pitchers, and its bowls for pouring. You shall make them of pure gold. 
 
 ###### 30 
-And you shall set the showbread on the table before Me always. ## The Gold Lampstand 
+And you shall set the showbread on the table before Me always.
+
+## The Gold Lampstand 
 
 ###### 31 
 "You shall also make a lampstand of pure gold; the lampstand shall be of hammered work. Its shaft, its branches, its bowls, its _ornamental_ knobs, and flowers shall be _of one piece._ 

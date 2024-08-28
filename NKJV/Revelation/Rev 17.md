@@ -25,7 +25,9 @@ The woman was arrayed in purple and scarlet, and adorned with gold and precious 
 And on her forehead a name _was_ written: MYSTERY, BABYLON THE GREAT, THE MOTHER OF HARLOTS AND OF THE ABOMINATIONS OF THE EARTH. 
 
 ###### 6 
-I saw the woman, drunk with the blood of the saints and with the blood of the martyrs of Jesus. And when I saw her, I marveled with great amazement. ## The Meaning of the Woman and the Beast 
+I saw the woman, drunk with the blood of the saints and with the blood of the martyrs of Jesus. And when I saw her, I marveled with great amazement.
+
+## The Meaning of the Woman and the Beast 
 
 ###### 7 
 But the angel said to me, "Why did you marvel? I will tell you the mystery of the woman and of the beast that carries her, which has the seven heads and the ten horns. 

@@ -49,7 +49,9 @@ from Syria, from Moab, from the people of Ammon, from the Philistines, from Amal
 And David made _himself_ a name when he returned from killing eighteen thousand Syrians in the Valley of Salt. 
 
 ###### 14 
-He also put garrisons in Edom; throughout all Edom he put garrisons, and all the Edomites became David's servants. And the Lord preserved David wherever he went. ## David's Administration 
+He also put garrisons in Edom; throughout all Edom he put garrisons, and all the Edomites became David's servants. And the Lord preserved David wherever he went.
+
+## David's Administration 
 
 ###### 15 
 So David reigned over all Israel; and David administered judgment and justice to all his people. 

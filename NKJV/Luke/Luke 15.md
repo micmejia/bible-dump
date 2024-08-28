@@ -28,7 +28,9 @@ And when he has found _it,_ he lays _it_ on his shoulders, rejoicing.
 And when he comes home, he calls together _his_ friends and neighbors, saying to them, 'Rejoice with me, for I have found my sheep which was lost!' 
 
 ###### 7 
-I say to you that likewise there will be more joy in heaven over one sinner who repents than over ninety-nine just persons who need no repentance. ## The Parable of the Lost Coin 
+I say to you that likewise there will be more joy in heaven over one sinner who repents than over ninety-nine just persons who need no repentance.
+
+## The Parable of the Lost Coin 
 
 ###### 8 
 "Or what woman, having ten silver coins, if she loses one coin, does not light a lamp, sweep the house, and search carefully until she finds _it?_ 

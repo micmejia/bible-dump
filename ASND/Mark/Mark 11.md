@@ -370,7 +370,9 @@ Pagpalain nawa ng Dios ang dumarating na kaharian ng ninuno nating si David. Pur
 
 
 
-Pagdating ni Jesus sa Jerusalem, pumunta siya sa templo. Pinagmasdan niyang mabuti ang lahat ng bagay doon. At dahil sa gumagabi na, pumunta siya sa Betania kasama ang <i class="trans-change">kanyang_ 12 <i class="trans-change">apostol_. ## Isinumpa ni Jesus ang Puno ng Igos 
+Pagdating ni Jesus sa Jerusalem, pumunta siya sa templo. Pinagmasdan niyang mabuti ang lahat ng bagay doon. At dahil sa gumagabi na, pumunta siya sa Betania kasama ang <i class="trans-change">kanyang_ 12 <i class="trans-change">apostol_.
+
+## Isinumpa ni Jesus ang Puno ng Igos 
 
 
 
@@ -469,7 +471,9 @@ May nakita siyang isang madahong puno ng igos. Kaya nilapitan niya ito at tining
 
 
 
-Sinabi ni Jesus sa puno, "Mula ngayon, wala nang makakakain ng bunga mo." Narinig iyon ng mga tagasunod niya. ## Ang Pagmamalasakit ni Jesus sa Templo 
+Sinabi ni Jesus sa puno, "Mula ngayon, wala nang makakakain ng bunga mo." Narinig iyon ng mga tagasunod niya.
+
+## Ang Pagmamalasakit ni Jesus sa Templo 
 
 
 
@@ -634,7 +638,9 @@ Nabalitaan ng mga namamahalang pari at ng mga tagapagturo ng Kautusan <i class="
 
 
 
-Kinagabihan, umalis si Jesus sa Jerusalem kasama ang mga tagasunod niya. ## Ang Aral Mula sa Namatay na Puno ng Igos 
+Kinagabihan, umalis si Jesus sa Jerusalem kasama ang mga tagasunod niya.
+
+## Ang Aral Mula sa Namatay na Puno ng Igos 
 
 
 

@@ -70,7 +70,9 @@ Then they said to Moses, "You speak with us, and we will hear; but let not God s
 And Moses said to the people, "Do not fear; for God has come to test you, and that His fear may be before you, so that you may not sin." 
 
 ###### 21 
-So the people stood afar off, but Moses drew near the thick darkness where God _was._ ## The Law of the Altar 
+So the people stood afar off, but Moses drew near the thick darkness where God _was._
+
+## The Law of the Altar 
 
 ###### 22 
 Then the Lord said to Moses, "Thus you shall say to the children of Israel: 'You have seen that I have talked with you from heaven. 

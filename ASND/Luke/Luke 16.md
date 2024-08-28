@@ -601,7 +601,9 @@ Pero <i class="trans-change">hindi ibig sabihin na wala nang kabuluhan ang Kautu
 
 
 
-"Ang lalaking hiniwalayan ang asawa at mag-asawa ng iba ay nagkasala siya ng pangangalunya. At ang mag-asawa ng babaeng hiniwalayan ay nagkasala rin ng pangangalunya. ## Ang Mayaman at si Lazarus 
+"Ang lalaking hiniwalayan ang asawa at mag-asawa ng iba ay nagkasala siya ng pangangalunya. At ang mag-asawa ng babaeng hiniwalayan ay nagkasala rin ng pangangalunya.
+
+## Ang Mayaman at si Lazarus 
 
 
 

@@ -106,7 +106,9 @@ Kung paanong nasira ang inyong mga magaganda at mayayabong na mga puno ng sedro,
 
 
 
-Umiiyak ang mga pastol dahil nasira ang kanilang berdeng pastulan. Pati ang mga leon ay umaatungal dahil nasira ang kagubatan ng Jordan <i class="trans-change">na kanilang tinitirhan_. ## Ang Dalawang Pastol 
+Umiiyak ang mga pastol dahil nasira ang kanilang berdeng pastulan. Pati ang mga leon ay umaatungal dahil nasira ang kagubatan ng Jordan <i class="trans-change">na kanilang tinitirhan_.
+
+## Ang Dalawang Pastol 
 
 
 

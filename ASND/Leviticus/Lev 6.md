@@ -238,7 +238,11 @@ Magdadala siya sa pari ng isang tupang walang kapintasan, at ihahandog niya ito 
 
 
 
-Sa pamamagitan ng gagawing ito ng pari, matutubos ang tao sa kanyang kasalanan, at siyaʼy patatawarin <i class="trans-change">ng Panginoon_ sa alin mang kasalanang nabanggit na kanyang nagawa. ## Karagdagang mga Tuntunin tungkol sa Handog na Sinusunog ###### 8-9 Inutusan ng Panginoon si Moises na sabihin kay Aaron at sa mga anak niyang lalaki ang tungkol sa mga tuntuning ito, tungkol sa handog na sinusunog. Ang handog na ito ay kinakailangang iwanan sa altar hanggang umaga, at kinakailangang patuloy ang pagningas ng apoy sa altar; huwag itong pabayaang mamatay. 
+Sa pamamagitan ng gagawing ito ng pari, matutubos ang tao sa kanyang kasalanan, at siyaʼy patatawarin <i class="trans-change">ng Panginoon_ sa alin mang kasalanang nabanggit na kanyang nagawa.
+
+## Karagdagang mga Tuntunin tungkol sa Handog na Sinusunog
+
+###### 8-9 Inutusan ng Panginoon si Moises na sabihin kay Aaron at sa mga anak niyang lalaki ang tungkol sa mga tuntuning ito, tungkol sa handog na sinusunog. Ang handog na ito ay kinakailangang iwanan sa altar hanggang umaga, at kinakailangang patuloy ang pagningas ng apoy sa altar; huwag itong pabayaang mamatay. 
 
 
 
@@ -370,7 +374,9 @@ Kinakailangang ang apoy sa altar ay patuloy na nagniningas. Huwag itong papatayi
 
 
 
-Patuloy na paniningasin ang apoy sa altar, at huwag itong pabayaang mamatay. ## Karagdagang mga Tuntunin tungkol sa Handog na Pagpaparangal sa Panginoon 
+Patuloy na paniningasin ang apoy sa altar, at huwag itong pabayaang mamatay.
+
+## Karagdagang mga Tuntunin tungkol sa Handog na Pagpaparangal sa Panginoon 
 
 
 
@@ -634,7 +640,9 @@ Kinakailangang sunugin itong lahat, dahil itoʼy handog para sa Panginoon. Dapat
 
 
 
-Ang lahat ng handog ng pagpaparangal ng mga pari ay kinakailangang sunugin, hindi ito maaaring kainin. ## Karagdagang Tuntunin Tungkol sa Handog na Paglilinis sa Kasalanan 
+Ang lahat ng handog ng pagpaparangal ng mga pari ay kinakailangang sunugin, hindi ito maaaring kainin.
+
+## Karagdagang Tuntunin Tungkol sa Handog na Paglilinis sa Kasalanan 
 
 
 

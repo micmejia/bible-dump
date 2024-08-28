@@ -238,7 +238,9 @@ Pagkaraan ng mahabang panahon, muling sinabi sa akin ng Panginoon, "Pumunta ka s
 
 
 
-Kaya pumunta ako sa <i class="trans-change">Ilog ng_ Eufrates at kinuha ko ang sinturon sa pinagtaguan ko, pero sira na iyon at hindi na mapapakinabangan. ###### 8-9 Pagkatapos, sinabi sa akin ng Panginoon, "Ganyan din ang mangyayari sa Juda na mapagmataas at sa higit na pagmamataas ng Jerusalem. 
+Kaya pumunta ako sa <i class="trans-change">Ilog ng_ Eufrates at kinuha ko ang sinturon sa pinagtaguan ko, pero sira na iyon at hindi na mapapakinabangan.
+
+###### 8-9 Pagkatapos, sinabi sa akin ng Panginoon, "Ganyan din ang mangyayari sa Juda na mapagmataas at sa higit na pagmamataas ng Jerusalem. 
 
 
 

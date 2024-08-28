@@ -18,7 +18,9 @@ Grace and peace be multiplied to you in the knowledge of God and of Jesus our Lo
 as His divine power has given to us all things that _pertain_ to life and godliness, through the knowledge of Him who called us by glory and virtue, 
 
 ###### 4 
-by which have been given to us exceedingly great and precious promises, that through these you may be partakers of the divine nature, having escaped the corruption _that is_ in the world through lust. ## Fruitful Growth in the Faith 
+by which have been given to us exceedingly great and precious promises, that through these you may be partakers of the divine nature, having escaped the corruption _that is_ in the world through lust.
+
+## Fruitful Growth in the Faith 
 
 ###### 5 
 But also for this very reason, giving all diligence, add to your faith virtue, to virtue knowledge, 
@@ -39,7 +41,9 @@ For he who lacks these things is shortsighted, even to blindness, and has forgot
 Therefore, brethren, be even more diligent to make your call and election sure, for if you do these things you will never stumble; 
 
 ###### 11 
-for so an entrance will be supplied to you abundantly into the everlasting kingdom of our Lord and Savior Jesus Christ. ## Peter's Approaching Death 
+for so an entrance will be supplied to you abundantly into the everlasting kingdom of our Lord and Savior Jesus Christ.
+
+## Peter's Approaching Death 
 
 ###### 12 
 For this reason I will not be negligent to remind you always of these things, though you know and are established in the present truth. 
@@ -51,7 +55,9 @@ Yes, I think it is right, as long as I am in this tent, to stir you up by remind
 knowing that shortly I _must_ put off my tent, just as our Lord Jesus Christ showed me. 
 
 ###### 15 
-Moreover I will be careful to ensure that you always have a reminder of these things after my decease. ## The Trustworthy Prophetic Word 
+Moreover I will be careful to ensure that you always have a reminder of these things after my decease.
+
+## The Trustworthy Prophetic Word 
 
 ###### 16 
 For we did not follow cunningly devised fables when we made known to you the power and coming of our Lord Jesus Christ, but were eyewitnesses of His majesty. 

@@ -28,7 +28,9 @@ Therefore _you_ must be subject, not only because of wrath but also for conscien
 For because of this you also pay taxes, for they are God's ministers attending continually to this very thing. 
 
 ###### 7 
-Render therefore to all their due: taxes to whom taxes _are due,_ customs to whom customs, fear to whom fear, honor to whom honor. ## Love Your Neighbor 
+Render therefore to all their due: taxes to whom taxes _are due,_ customs to whom customs, fear to whom fear, honor to whom honor.
+
+## Love Your Neighbor 
 
 ###### 8 
 Owe no one anything except to love one another, for he who loves another has fulfilled the law. 
@@ -37,7 +39,9 @@ Owe no one anything except to love one another, for he who loves another has ful
 For the commandments, "You shall not commit adultery," "You shall not murder," "You shall not steal," "You shall not bear false witness," "You shall not covet," and if _there is_ any other commandment, are _all_ summed up in this saying, namely, "You shall love your neighbor as yourself." 
 
 ###### 10 
-Love does no harm to a neighbor; therefore love _is_ the fulfillment of the law. ## Put on Christ 
+Love does no harm to a neighbor; therefore love _is_ the fulfillment of the law.
+
+## Put on Christ 
 
 ###### 11 
 And _do_ this, knowing the time, that now _it is_ high time to awake out of sleep; for now our salvation _is_ nearer than when we _first_ believed. 

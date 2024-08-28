@@ -10,7 +10,9 @@ next: ['Exod 40']
 
 
 ###### 1 
-Of the blue, purple, and scarlet _thread_ they made garments of ministry, for ministering in the holy _place,_ and made the holy garments for Aaron, as the Lord had commanded Moses. ## Making the Ephod 
+Of the blue, purple, and scarlet _thread_ they made garments of ministry, for ministering in the holy _place,_ and made the holy garments for Aaron, as the Lord had commanded Moses.
+
+## Making the Ephod 
 
 ###### 2 
 He made the ephod of gold, blue, purple, and scarlet _thread,_ and of fine woven linen. 
@@ -28,7 +30,9 @@ And the intricately woven band of his ephod that _was_ on it _was_ of the same w
 And they set onyx stones, enclosed in settings of gold; they were engraved, as signets are engraved, with the names of the sons of Israel. 
 
 ###### 7 
-He put them on the shoulders of the ephod _as_ memorial stones for the sons of Israel, as the Lord had commanded Moses. ## Making the Breastplate 
+He put them on the shoulders of the ephod _as_ memorial stones for the sons of Israel, as the Lord had commanded Moses.
+
+## Making the Breastplate 
 
 ###### 8 
 And he made the breastplate, artistically woven like the workmanship of the ephod, of gold, blue, purple, and scarlet _thread,_ and of fine woven linen. 
@@ -70,7 +74,9 @@ And they made two rings of gold and put _them_ on the two ends of the breastplat
 They made two _other_ gold rings and put them on the two shoulder straps, underneath the ephod toward its front, right at the seam above the intricately woven band of the ephod. 
 
 ###### 21 
-And they bound the breastplate by means of its rings to the rings of the ephod with a blue cord, so that it would be above the intricately woven band of the ephod, and that the breastplate would not come loose from the ephod, as the Lord had commanded Moses. ## Making the Other Priestly Garments 
+And they bound the breastplate by means of its rings to the rings of the ephod with a blue cord, so that it would be above the intricately woven band of the ephod, and that the breastplate would not come loose from the ephod, as the Lord had commanded Moses.
+
+## Making the Other Priestly Garments 
 
 ###### 22 
 He made the robe of the ephod of woven work, all of blue. 
@@ -100,7 +106,9 @@ and a sash of fine woven linen with blue, purple, and scarlet _thread,_ made by 
 Then they made the plate of the holy crown of pure gold, and wrote on it an inscription _like_ the engraving of a signet: HOLINESS TO THE LORD. 
 
 ###### 31 
-And they tied to it a blue cord, to fasten _it_ above on the turban, as the Lord had commanded Moses. ## The Work Completed 
+And they tied to it a blue cord, to fasten _it_ above on the turban, as the Lord had commanded Moses.
+
+## The Work Completed 
 
 ###### 32 
 Thus all the work of the tabernacle of the tent of meeting was finished. And the children of Israel did according to all that the Lord had commanded Moses; so they did. 

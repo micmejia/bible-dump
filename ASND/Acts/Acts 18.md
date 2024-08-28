@@ -568,7 +568,9 @@ At pinalabas niya sila sa korte.
 
 
 
-Pagkatapos, hinuli ng mga Griego si Sostenes na namumuno sa sambahan ng mga Judio at ginulpi nila roon mismo sa labas ng korte, pero hindi ito pinansin ni Galio. ## Ang Pagbalik ni Pablo sa Antioc na Sakop ng Syria 
+Pagkatapos, hinuli ng mga Griego si Sostenes na namumuno sa sambahan ng mga Judio at ginulpi nila roon mismo sa labas ng korte, pero hindi ito pinansin ni Galio.
+
+## Ang Pagbalik ni Pablo sa Antioc na Sakop ng Syria 
 
 
 
@@ -667,7 +669,9 @@ Pagdating niya sa Cesarea, pumunta siya sa Jerusalem at dinalaw ang iglesya, at 
 
 
 
-Hindi siya nagtagal doon, umalis siya at inikot niya ang mga lugar na sakop ng Galacia at Frigia at pinalakas niya ang pananampalataya ng mga tagasunod <i class="trans-change">ni Jesus_ doon. ## Ang Pagtuturo ni Apolos sa Efeso 
+Hindi siya nagtagal doon, umalis siya at inikot niya ang mga lugar na sakop ng Galacia at Frigia at pinalakas niya ang pananampalataya ng mga tagasunod <i class="trans-change">ni Jesus_ doon.
+
+## Ang Pagtuturo ni Apolos sa Efeso 
 
 
 

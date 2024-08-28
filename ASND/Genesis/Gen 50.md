@@ -468,7 +468,9 @@ Sapagkat dinala nila ang bangkay nito sa Canaan at inilibing sa kweba na nasa bu
 
 
 
-Pagkatapos ng libing, bumalik si Jose sa Egipto kasama ang kanyang mga kapatid at ang lahat ng sumama sa paglilibing. ## Ang Pangako ni Jose sa Kanyang mga Kapatid 
+Pagkatapos ng libing, bumalik si Jose sa Egipto kasama ang kanyang mga kapatid at ang lahat ng sumama sa paglilibing.
+
+## Ang Pangako ni Jose sa Kanyang mga Kapatid 
 
 
 
@@ -699,7 +701,9 @@ Totoong nagplano kayo ng masama sa akin, pero plinano na ng Dios na magdulot iyo
 
 
 
-Kaya huwag kayong matakot. Susustentuhan ko kayo ng pagkain pati ang mga anak ninyo." Pinangakuan sila ni Jose at nakapagbigay ito ng kaligayahan sa kanila. ## Ang Pagkamatay ni Jose 
+Kaya huwag kayong matakot. Susustentuhan ko kayo ng pagkain pati ang mga anak ninyo." Pinangakuan sila ni Jose at nakapagbigay ito ng kaligayahan sa kanila.
+
+## Ang Pagkamatay ni Jose 
 
 
 

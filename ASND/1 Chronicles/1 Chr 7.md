@@ -172,7 +172,9 @@ Marami silang asawaʼt anak, kaya ayon sa talaan ng kanilang mga angkan, mayroon
 
 
 
-Ang bilang ng mga lalaking handa sa paglilingkod sa militar mula sa lahat ng pamilya ni Isacar ay 87,000, ayon sa talaan ng kanilang lahi. ## Ang Lahi ni Benjamin 
+Ang bilang ng mga lalaking handa sa paglilingkod sa militar mula sa lahat ng pamilya ni Isacar ay 87,000, ayon sa talaan ng kanilang lahi.
+
+## Ang Lahi ni Benjamin 
 
 
 
@@ -403,7 +405,9 @@ Sila ang mga pinuno ng kanilang mga pamilya. May 17,200 silang kalalakihang hand
 
 
 
-Ang mga anak na lalaki ni Ir ay sina Shupim at si Hupim, at ang anak ni Aher ay si Hushim. ## Ang Lahi ni Naftali 
+Ang mga anak na lalaki ni Ir ay sina Shupim at si Hupim, at ang anak ni Aher ay si Hushim.
+
+## Ang Lahi ni Naftali 
 
 
 
@@ -634,7 +638,9 @@ Ang kapatid na babae ni Gilead na si Hammoleket ay may mga anak <i class="trans-
 
 
 
-Ang mga anak na lalaki ni Shemida ay sina Ahian, Shekem, Likhi at Aniam. ## Ang Lahi ni Efraim 
+Ang mga anak na lalaki ni Shemida ay sina Ahian, Shekem, Likhi at Aniam.
+
+## Ang Lahi ni Efraim 
 
 
 
@@ -964,7 +970,9 @@ Ang lupaing natanggap at tinirhan ng lahi ni Efraim ay ang Betel at ang mga bary
 
 
 
-Ang lahi ni Manase ang nagmamay-ari sa mga lungsod ng Bet Shan, Taanac, Megido at Dor, pati sa mga baryo sa paligid nito. Sa mga bayang ito nakatira ang lahi ni Jose na anak ni Israel. ## Ang Lahi ni Asher 
+Ang lahi ni Manase ang nagmamay-ari sa mga lungsod ng Bet Shan, Taanac, Megido at Dor, pati sa mga baryo sa paligid nito. Sa mga bayang ito nakatira ang lahi ni Jose na anak ni Israel.
+
+## Ang Lahi ni Asher 
 
 
 

@@ -25,7 +25,9 @@ _The other king was_ Og king of Bashan and his territory, _who was_ of the remna
 and reigned over Mount Hermon, over Salcah, over all Bashan, as far as the border of the Geshurites and the Maachathites, and over half of Gilead _to_ the border of Sihon king of Heshbon. 
 
 ###### 6 
-These Moses the servant of the Lord and the children of Israel had conquered; and Moses the servant of the Lord had given it _as_ a possession to the Reubenites, the Gadites, and half the tribe of Manasseh. ## The Kings Conquered by Joshua 
+These Moses the servant of the Lord and the children of Israel had conquered; and Moses the servant of the Lord had given it _as_ a possession to the Reubenites, the Gadites, and half the tribe of Manasseh.
+
+## The Kings Conquered by Joshua 
 
 ###### 7 
 And these _are_ the kings of the country which Joshua and the children of Israel conquered on this side of the Jordan, on the west, from Baal Gad in the Valley of Lebanon as far as Mount Halak and the ascent to Seir, which Joshua gave to the tribes of Israel _as_ a possession according to their divisions, 

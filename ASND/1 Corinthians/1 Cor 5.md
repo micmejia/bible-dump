@@ -73,7 +73,9 @@ May nagbalita sa akin na mayroon diyan sa inyo na gumagawa ng sekswal na imorali
 
 
 
-At <i class="trans-change">sa kabila ng pangyayaring ito,_ nagawa pa ninyong magyabang! Dapat sana ay naghinagpis kayo at pinalayas na ninyo sa inyong grupo ang gumagawa nito. ###### 3-4 Kahit na wala ako riyan ng personal, nariyan naman ako sa espiritu. At sa pangalan ng ating Panginoong Jesu-Cristo, hinatulan ko na ang taong iyon. Kaya sa pagtitipon ninyo, isipin ninyo na parang nariyan na rin ako sa espiritu. At sa kapangyarihang ibinigay sa atin ng ating Panginoong Jesu-Cristo, 
+At <i class="trans-change">sa kabila ng pangyayaring ito,_ nagawa pa ninyong magyabang! Dapat sana ay naghinagpis kayo at pinalayas na ninyo sa inyong grupo ang gumagawa nito.
+
+###### 3-4 Kahit na wala ako riyan ng personal, nariyan naman ako sa espiritu. At sa pangalan ng ating Panginoong Jesu-Cristo, hinatulan ko na ang taong iyon. Kaya sa pagtitipon ninyo, isipin ninyo na parang nariyan na rin ako sa espiritu. At sa kapangyarihang ibinigay sa atin ng ating Panginoong Jesu-Cristo, 
 
 
 

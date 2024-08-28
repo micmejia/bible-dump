@@ -436,7 +436,9 @@ Dadalhin niya ito sa pari at babawasan ng pari ng isang dakot bilang pag-alaala 
 
 
 
-Sa pamamagitan ng gagawing ito ng pari, matubos ang tao sa anumang kasalanang nagawa niya at patatawarin siya <i class="trans-change">ng Panginoon_. Ang natirang handog na harina ay sa pari na, gaya ng ginagawa sa handog ng pagpaparangal. ## Ang Handog na Pambayad ng Kasalanan 
+Sa pamamagitan ng gagawing ito ng pari, matubos ang tao sa anumang kasalanang nagawa niya at patatawarin siya <i class="trans-change">ng Panginoon_. Ang natirang handog na harina ay sa pari na, gaya ng ginagawa sa handog ng pagpaparangal.
+
+## Ang Handog na Pambayad ng Kasalanan 
 
 
 

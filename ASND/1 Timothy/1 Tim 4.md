@@ -172,7 +172,9 @@ Lahat ng nilikha ng Dios ay mabuti, at dapat walang ituring na masama kung tinat
 
 
 
-dahil nilinis ito ng salita ng Dios at ng panalangin. ## Ang Mabuting Lingkod ni Cristo Jesus 
+dahil nilinis ito ng salita ng Dios at ng panalangin.
+
+## Ang Mabuting Lingkod ni Cristo Jesus 
 
 
 

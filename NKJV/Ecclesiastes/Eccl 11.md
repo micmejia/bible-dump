@@ -31,7 +31,9 @@ In the morning sow your seed, And in the evening do not withhold your hand; For 
 Truly the light is sweet, And _it is_ pleasant for the eyes to behold the sun; 
 
 ###### 8 
-But if a man lives many years _And_ rejoices in them all, Yet let him remember the days of darkness, For they will be many. All that is coming _is_ vanity. ## Seek God in Early Life 
+But if a man lives many years _And_ rejoices in them all, Yet let him remember the days of darkness, For they will be many. All that is coming _is_ vanity.
+
+## Seek God in Early Life 
 
 ###### 9 
 Rejoice, O young man, in your youth, And let your heart cheer you in the days of your youth; Walk in the ways of your heart, And in the sight of your eyes; But know that for all these God will bring you into judgment. 

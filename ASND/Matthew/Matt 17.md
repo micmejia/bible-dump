@@ -436,7 +436,9 @@ Ngunit sinasabi ko sa inyo: dumating na si Elias. Kaya lang hindi siya nakilala 
 
 
 
-At naunawaan ng mga tagasunod niya na ang tinutukoy niyaʼy si Juan na tagapagbautismo. ## Pinagaling ni Jesus ang Batang Sinasaniban ng Masamang Espiritu 
+At naunawaan ng mga tagasunod niya na ang tinutukoy niyaʼy si Juan na tagapagbautismo.
+
+## Pinagaling ni Jesus ang Batang Sinasaniban ng Masamang Espiritu 
 
 
 
@@ -766,7 +768,9 @@ Habang nagtitipon sina Jesus at ang mga tagasunod niya sa Galilea, sinabi ni Jes
 
 
 
-Papatayin nila ako, pero mabubuhay akong muli pagkaraan ng tatlong araw." Labis itong ikinalungkot ng mga tagasunod ni Jesus. ## Pagbabayad ng Buwis para sa Templo 
+Papatayin nila ako, pero mabubuhay akong muli pagkaraan ng tatlong araw." Labis itong ikinalungkot ng mga tagasunod ni Jesus.
+
+## Pagbabayad ng Buwis para sa Templo 
 
 
 

@@ -667,7 +667,9 @@ Nagtanong ang mga Pariseo, "Nasaan ba ang iyong Ama?" Sumagot si Jesus, "Hindi n
 
 
 
-Ang mga itoʼy sinabi ni Jesus nang nangangaral siya sa templo, malapit sa lalagyan ng mga kaloob. Pero walang nagtangkang dumakip sa kanya dahil hindi pa dumarating ang oras niya. ## Si Jesus ay Hindi Taga-mundo 
+Ang mga itoʼy sinabi ni Jesus nang nangangaral siya sa templo, malapit sa lalagyan ng mga kaloob. Pero walang nagtangkang dumakip sa kanya dahil hindi pa dumarating ang oras niya.
+
+## Si Jesus ay Hindi Taga-mundo 
 
 
 
@@ -997,7 +999,9 @@ Lagi kong kasama ang nagsugo sa akin, at hindi niya ako pababayaang mag-isa, dah
 
 
 
-Nang marinig ng mga tao ang mga sinabi ni Jesus, marami sa kanila ang sumampalataya sa kanya. ## Ang Katotohanang Nagpapalaya sa Tao 
+Nang marinig ng mga tao ang mga sinabi ni Jesus, marami sa kanila ang sumampalataya sa kanya.
+
+## Ang Katotohanang Nagpapalaya sa Tao 
 
 
 

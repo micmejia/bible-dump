@@ -52,7 +52,9 @@ If it is torn to pieces _by a beast, then_ he shall bring it as evidence, _and_ 
 "And if a man borrows _anything_ from his neighbor, and it becomes injured or dies, the owner of it not _being_ with it, he shall surely make _it_ good. 
 
 ###### 15 
-If its owner _was_ with it, he shall not make _it_ good; if it _was_ hired, it came for its hire. ## Moral and Ceremonial Principles 
+If its owner _was_ with it, he shall not make _it_ good; if it _was_ hired, it came for its hire.
+
+## Moral and Ceremonial Principles 
 
 ###### 16 
 "If a man entices a virgin who is not betrothed, and lies with her, he shall surely pay the bride-price for her _to be_ his wife. 

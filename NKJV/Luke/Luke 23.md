@@ -43,7 +43,9 @@ And the chief priests and scribes stood and vehemently accused Him.
 Then Herod, with his men of war, treated Him with contempt and mocked _Him,_ arrayed Him in a gorgeous robe, and sent Him back to Pilate. 
 
 ###### 12 
-That very day Pilate and Herod became friends with each other, for previously they had been at enmity with each other. ## Taking the Place of Barabbas 
+That very day Pilate and Herod became friends with each other, for previously they had been at enmity with each other.
+
+## Taking the Place of Barabbas 
 
 ###### 13 
 Then Pilate, when he had called together the chief priests, the rulers, and the people, 
@@ -82,7 +84,9 @@ But they were insistent, demanding with loud voices that He be crucified. And th
 So Pilate gave sentence that it should be as they requested. 
 
 ###### 25 
-And he released to them the one they requested, who for rebellion and murder had been thrown into prison; but he delivered Jesus to their will. ## The King on a Cross 
+And he released to them the one they requested, who for rebellion and murder had been thrown into prison; but he delivered Jesus to their will.
+
+## The King on a Cross 
 
 ###### 26 
 Now as they led Him away, they laid hold of a certain man, Simon a Cyrenian, who was coming from the country, and on him they laid the cross that he might bear _it_ after Jesus. 
@@ -154,7 +158,9 @@ So when the centurion saw what had happened, he glorified God, saying, "Certainl
 And the whole crowd who came together to that sight, seeing what had been done, beat their breasts and returned. 
 
 ###### 49 
-But all His acquaintances, and the women who followed Him from Galilee, stood at a distance, watching these things. ## Jesus Buried in Joseph's Tomb 
+But all His acquaintances, and the women who followed Him from Galilee, stood at a distance, watching these things.
+
+## Jesus Buried in Joseph's Tomb 
 
 ###### 50 
 Now behold, _there was_ a man named Joseph, a council member, a good and just man. 

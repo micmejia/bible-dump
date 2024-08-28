@@ -43,7 +43,9 @@ you shall surely let the mother go, and take the young for yourself, that it may
 "You shall not wear a garment of different sorts, _such as_ wool and linen mixed together. 
 
 ###### 12 
-"You shall make tassels on the four corners of the clothing with which you cover _yourself._ ## Laws of Sexual Morality 
+"You shall make tassels on the four corners of the clothing with which you cover _yourself._
+
+## Laws of Sexual Morality 
 
 ###### 13 
 "If any man takes a wife, and goes in to her, and detests her, 

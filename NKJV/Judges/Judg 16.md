@@ -73,7 +73,9 @@ And she said, "The Philistines _are_ upon you, Samson!" So he awoke from his sle
 Then the Philistines took him and put out his eyes, and brought him down to Gaza. They bound him with bronze fetters, and he became a grinder in the prison. 
 
 ###### 22 
-However, the hair of his head began to grow again after it had been shaven. ## Samson Dies with the Philistines 
+However, the hair of his head began to grow again after it had been shaven.
+
+## Samson Dies with the Philistines 
 
 ###### 23 
 Now the lords of the Philistines gathered together to offer a great sacrifice to Dagon their god, and to rejoice. And they said: "Our god has delivered into our hands Samson our enemy!" 

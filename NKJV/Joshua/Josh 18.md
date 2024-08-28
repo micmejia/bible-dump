@@ -37,7 +37,9 @@ Then the men arose to go away; and Joshua charged those who went to survey the l
 So the men went, passed through the land, and wrote the survey in a book in seven parts by cities; and they came to Joshua at the camp in Shiloh. 
 
 ###### 10 
-Then Joshua cast lots for them in Shiloh before the Lord, and there Joshua divided the land to the children of Israel according to their divisions. ## The Land of Benjamin 
+Then Joshua cast lots for them in Shiloh before the Lord, and there Joshua divided the land to the children of Israel according to their divisions.
+
+## The Land of Benjamin 
 
 ###### 11 
 Now the lot of the tribe of the children of Benjamin came up according to their families, and the territory of their lot came out between the children of Judah and the children of Joseph. 

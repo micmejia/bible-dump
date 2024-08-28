@@ -139,7 +139,9 @@ si Felipe, si Bartolome, si Tomas, si Mateo na maniningil ng buwis, si Santiago 
 
 
 
-si Simon na makabayan, at si Judas Iscariote na siyang nagtraydor kay Jesus <i class="trans-change">nang bandang huli_. ## Sinugo ni Jesus ang Labindalawang Apostol 
+si Simon na makabayan, at si Judas Iscariote na siyang nagtraydor kay Jesus <i class="trans-change">nang bandang huli_.
+
+## Sinugo ni Jesus ang Labindalawang Apostol 
 
 
 

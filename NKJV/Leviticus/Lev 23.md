@@ -13,10 +13,14 @@ next: ['Lev 24']
 And the Lord spoke to Moses, saying, 
 
 ###### 2 
-"Speak to the children of Israel, and say to them: 'The feasts of the Lord, which you shall proclaim _to be_ holy convocations, these _are_ My feasts. ## The Sabbath 
+"Speak to the children of Israel, and say to them: 'The feasts of the Lord, which you shall proclaim _to be_ holy convocations, these _are_ My feasts.
+
+## The Sabbath 
 
 ###### 3 
-'Six days shall work be done, but the seventh day _is_ a Sabbath of solemn rest, a holy convocation. You shall do no work _on it;_ it _is_ the Sabbath of the Lord in all your dwellings. ## The Passover and Unleavened Bread 
+'Six days shall work be done, but the seventh day _is_ a Sabbath of solemn rest, a holy convocation. You shall do no work _on it;_ it _is_ the Sabbath of the Lord in all your dwellings.
+
+## The Passover and Unleavened Bread 
 
 ###### 4 
 'These _are_ the feasts of the Lord, holy convocations which you shall proclaim at their appointed times. 
@@ -49,7 +53,9 @@ And you shall offer on that day, when you wave the sheaf, a male lamb of the fir
 Its grain offering _shall be_ two-tenths _of an ephah_ of fine flour mixed with oil, an offering made by fire to the Lord, for a sweet aroma; and its drink offering _shall be_ of wine, one-fourth of a hin. 
 
 ###### 14 
-You shall eat neither bread nor parched grain nor fresh grain until the same day that you have brought an offering to your God; _it shall be_ a statute forever throughout your generations in all your dwellings. ## The Feast of Weeks 
+You shall eat neither bread nor parched grain nor fresh grain until the same day that you have brought an offering to your God; _it shall be_ a statute forever throughout your generations in all your dwellings.
+
+## The Feast of Weeks 
 
 ###### 15 
 'And you shall count for yourselves from the day after the Sabbath, from the day that you brought the sheaf of the wave offering: seven Sabbaths shall be completed. 

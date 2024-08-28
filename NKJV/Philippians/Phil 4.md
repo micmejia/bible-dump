@@ -9,7 +9,9 @@ up: ['Philippians']
 
 
 ###### 1 
-Therefore, my beloved and longed-for brethren, my joy and crown, so stand fast in the Lord, beloved. ## Be United, Joyful, and in Prayer 
+Therefore, my beloved and longed-for brethren, my joy and crown, so stand fast in the Lord, beloved.
+
+## Be United, Joyful, and in Prayer 
 
 ###### 2 
 I implore Euodia and I implore Syntyche to be of the same mind in the Lord. 
@@ -27,13 +29,17 @@ Let your gentleness be known to all men. The Lord _is_ at hand.
 Be anxious for nothing, but in everything by prayer and supplication, with thanksgiving, let your requests be made known to God; 
 
 ###### 7 
-and the peace of God, which surpasses all understanding, will guard your hearts and minds through Christ Jesus. ## Meditate on These Things 
+and the peace of God, which surpasses all understanding, will guard your hearts and minds through Christ Jesus.
+
+## Meditate on These Things 
 
 ###### 8 
 Finally, brethren, whatever things are true, whatever things _are_ noble, whatever things _are_ just, whatever things _are_ pure, whatever things _are_ lovely, whatever things _are_ of good report, if _there is_ any virtue and if _there is_ anything praiseworthy--meditate on these things. 
 
 ###### 9 
-The things which you learned and received and heard and saw in me, these do, and the God of peace will be with you. ## Philippian Generosity 
+The things which you learned and received and heard and saw in me, these do, and the God of peace will be with you.
+
+## Philippian Generosity 
 
 ###### 10 
 But I rejoiced in the Lord greatly that now at last your care for me has flourished again; though you surely did care, but you lacked opportunity. 
@@ -66,7 +72,9 @@ Indeed I have all and abound. I am full, having received from Epaphroditus the t
 And my God shall supply all your need according to His riches in glory by Christ Jesus. 
 
 ###### 20 
-Now to our God and Father _be_ glory forever and ever. Amen. ## Greeting and Blessing 
+Now to our God and Father _be_ glory forever and ever. Amen.
+
+## Greeting and Blessing 
 
 ###### 21 
 Greet every saint in Christ Jesus. The brethren who are with me greet you. 

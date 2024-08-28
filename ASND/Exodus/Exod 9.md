@@ -172,7 +172,9 @@ Hindi magiging pareho ang trato ko sa mga hayop ng mga Israelita at sa mga hayop
 
 
 
-Nagpadala ang Faraon ng mga tao at nalaman niya na walang namatay kahit isa sa mga hayop ng mga Israelita. Pero matigas pa rin ang puso niya at hindi pinaalis ang mga Israelita. ## Ang Salot na mga Bukol 
+Nagpadala ang Faraon ng mga tao at nalaman niya na walang namatay kahit isa sa mga hayop ng mga Israelita. Pero matigas pa rin ang puso niya at hindi pinaalis ang mga Israelita.
+
+## Ang Salot na mga Bukol 
 
 
 
@@ -337,7 +339,9 @@ Kahit na ang mga salamangkero ay hindi makaharap kay Moises dahil tinubuan din s
 
 
 
-Pero pinatigas ng Panginoon ang puso ng Faraon, at hindi siya nakinig kina Moises at Aaron, gaya ng sinabi ng Panginoon kay Moises. ## Ang Pag-ulan ng Yelo 
+Pero pinatigas ng Panginoon ang puso ng Faraon, at hindi siya nakinig kina Moises at Aaron, gaya ng sinabi ng Panginoon kay Moises.
+
+## Ang Pag-ulan ng Yelo 
 
 
 

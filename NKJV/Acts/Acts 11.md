@@ -85,7 +85,9 @@ For he was a good man, full of the Holy Spirit and of faith. And a great many pe
 Then Barnabas departed for Tarsus to seek Saul. 
 
 ###### 26 
-And when he had found him, he brought him to Antioch. So it was that for a whole year they assembled with the church and taught a great many people. And the disciples were first called Christians in Antioch. ## Relief to Judea 
+And when he had found him, he brought him to Antioch. So it was that for a whole year they assembled with the church and taught a great many people. And the disciples were first called Christians in Antioch.
+
+## Relief to Judea 
 
 ###### 27 
 And in these days prophets came from Jerusalem to Antioch. 

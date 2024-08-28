@@ -19,7 +19,9 @@ And you shall make holy garments for Aaron your brother, for glory and for beaut
 So you shall speak to all _who are_ gifted artisans, whom I have filled with the spirit of wisdom, that they may make Aaron's garments, to consecrate him, that he may minister to Me as priest. 
 
 ###### 4 
-And these _are_ the garments which they shall make: a breastplate, an ephod, a robe, a skillfully woven tunic, a turban, and a sash. So they shall make holy garments for Aaron your brother and his sons, that he may minister to Me as priest. ## The Ephod 
+And these _are_ the garments which they shall make: a breastplate, an ephod, a robe, a skillfully woven tunic, a turban, and a sash. So they shall make holy garments for Aaron your brother and his sons, that he may minister to Me as priest.
+
+## The Ephod 
 
 ###### 5 
 "They shall take the gold, blue, purple, and scarlet _thread,_ and the fine linen, 
@@ -49,7 +51,9 @@ And you shall put the two stones on the shoulders of the ephod _as_ memorial sto
 You shall also make settings of gold, 
 
 ###### 14 
-and you shall make two chains of pure gold like braided cords, and fasten the braided chains to the settings. ## The Breastplate 
+and you shall make two chains of pure gold like braided cords, and fasten the braided chains to the settings.
+
+## The Breastplate 
 
 ###### 15 
 "You shall make the breastplate of judgment. Artistically woven according to the workmanship of the ephod you shall make it: of gold, blue, purple, and scarlet _thread,_ and fine woven linen, you shall make it. 
@@ -97,7 +101,9 @@ They shall bind the breastplate by means of its rings to the rings of the ephod,
 "So Aaron shall bear the names of the sons of Israel on the breastplate of judgment over his heart, when he goes into the holy _place,_ as a memorial before the Lord continually. 
 
 ###### 30 
-And you shall put in the breastplate of judgment the Urim and the Thummim, and they shall be over Aaron's heart when he goes in before the Lord. So Aaron shall bear the judgment of the children of Israel over his heart before the Lord continually. ## Other Priestly Garments 
+And you shall put in the breastplate of judgment the Urim and the Thummim, and they shall be over Aaron's heart when he goes in before the Lord. So Aaron shall bear the judgment of the children of Israel over his heart before the Lord continually.
+
+## Other Priestly Garments 
 
 ###### 31 
 "You shall make the robe of the ephod all of blue. 

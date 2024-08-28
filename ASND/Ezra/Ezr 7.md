@@ -40,7 +40,9 @@ next: ['Ezr 8']
 
 
 
-May sumama ring mga Israelita sa kanya nang bumalik siya sa Jerusalem noong ikapitong taon ng paghahari ni Artaserses. Kabilang sa mga sumama ay ang mga pari, mga Levita, mga mang-aawit, mga guwardya ng mga pintuan <i class="trans-change">ng templo_, at mga utusan sa templo. ###### 8-9 Umalis si Ezra sa Babilonia nang unang araw ng unang buwan. At sa tulong ng Dios, nakarating siya sa Jerusalem nang unang araw ng ikalimang buwan, nang ikapitong taon ng paghahari ni Artaserses. 
+May sumama ring mga Israelita sa kanya nang bumalik siya sa Jerusalem noong ikapitong taon ng paghahari ni Artaserses. Kabilang sa mga sumama ay ang mga pari, mga Levita, mga mang-aawit, mga guwardya ng mga pintuan <i class="trans-change">ng templo_, at mga utusan sa templo.
+
+###### 8-9 Umalis si Ezra sa Babilonia nang unang araw ng unang buwan. At sa tulong ng Dios, nakarating siya sa Jerusalem nang unang araw ng ikalimang buwan, nang ikapitong taon ng paghahari ni Artaserses. 
 
 
 
@@ -73,7 +75,9 @@ May sumama ring mga Israelita sa kanya nang bumalik siya sa Jerusalem noong ikap
 
 
 
-<i class="trans-change">Tinulungan siya ng Dios_ dahil itinalaga niya ang sarili niya sa pag-aaral at pagtupad ng Kautusan ng Panginoon, at sa pagtuturo ng mga tuntunin at mga utos nito sa mga Israelita. ## Ang Sulat ni Artaserses kay Ezra 
+<i class="trans-change">Tinulungan siya ng Dios_ dahil itinalaga niya ang sarili niya sa pag-aaral at pagtupad ng Kautusan ng Panginoon, at sa pagtuturo ng mga tuntunin at mga utos nito sa mga Israelita.
+
+## Ang Sulat ni Artaserses kay Ezra 
 
 
 

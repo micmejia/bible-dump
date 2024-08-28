@@ -25,7 +25,9 @@ But Jesus said to them, "A prophet is not without honor except in his own countr
 Now He could do no mighty work there, except that He laid His hands on a few sick people and healed _them._ 
 
 ###### 6 
-And He marveled because of their unbelief. Then He went about the villages in a circuit, teaching. ## Sending Out the Twelve 
+And He marveled because of their unbelief. Then He went about the villages in a circuit, teaching.
+
+## Sending Out the Twelve 
 
 ###### 7 
 And He called the twelve to _Himself,_ and began to send them out two _by_ two, and gave them power over unclean spirits. 
@@ -46,7 +48,9 @@ And whoever will not receive you nor hear you, when you depart from there, shake
 So they went out and preached that _people_ should repent. 
 
 ###### 13 
-And they cast out many demons, and anointed with oil many who were sick, and healed _them._ ## John the Baptist Beheaded 
+And they cast out many demons, and anointed with oil many who were sick, and healed _them._
+
+## John the Baptist Beheaded 
 
 ###### 14 
 Now King Herod heard _of Him,_ for His name had become well known. And he said, "John the Baptist is risen from the dead, and therefore these powers are at work in him." 
@@ -94,7 +98,9 @@ Immediately the king sent an executioner and commanded his head to be brought. A
 brought his head on a platter, and gave it to the girl; and the girl gave it to her mother. 
 
 ###### 29 
-When his disciples heard _of it,_ they came and took away his corpse and laid it in a tomb. ## Feeding the Five Thousand 
+When his disciples heard _of it,_ they came and took away his corpse and laid it in a tomb.
+
+## Feeding the Five Thousand 
 
 ###### 30 
 Then the apostles gathered to Jesus and told Him all things, both what they had done and what they had taught. 
@@ -139,7 +145,9 @@ So they all ate and were filled.
 And they took up twelve baskets full of fragments and of the fish. 
 
 ###### 44 
-Now those who had eaten the loaves were about five thousand men. ## Jesus Walks on the Sea 
+Now those who had eaten the loaves were about five thousand men.
+
+## Jesus Walks on the Sea 
 
 ###### 45 
 Immediately He made His disciples get into the boat and go before Him to the other side, to Bethsaida, while He sent the multitude away. 
@@ -163,7 +171,9 @@ for they all saw Him and were troubled. But immediately He talked with them and 
 Then He went up into the boat to them, and the wind ceased. And they were greatly amazed in themselves beyond measure, and marveled. 
 
 ###### 52 
-For they had not understood about the loaves, because their heart was hardened. ## Many Touch Him and Are Made Well 
+For they had not understood about the loaves, because their heart was hardened.
+
+## Many Touch Him and Are Made Well 
 
 ###### 53 
 When they had crossed over, they came to the land of Gennesaret and anchored there. 

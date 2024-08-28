@@ -205,7 +205,9 @@ Nagsisisigaw siya araw at gabi sa mga libingan at kaburulan, at sinusugatan ang 
 
 
 
-Malayo pa si Jesus ay nakita na siya ng lalaki. Patakbo siyang lumapit kay Jesus at lumuhod sa harapan niya. ###### 7-8 Sinabi ni Jesus sa masamang espiritu, "Ikaw na masamang espiritu, lumabas ka sa taong iyan!" Sumigaw ang lalaki, "Ano ang pakialam mo sa akin, Jesus na Anak ng Kataas-taasang Dios? Nakikiusap ako, sa pangalan ng Dios, huwag mo akong pahirapan!" 
+Malayo pa si Jesus ay nakita na siya ng lalaki. Patakbo siyang lumapit kay Jesus at lumuhod sa harapan niya.
+
+###### 7-8 Sinabi ni Jesus sa masamang espiritu, "Ikaw na masamang espiritu, lumabas ka sa taong iyan!" Sumigaw ang lalaki, "Ano ang pakialam mo sa akin, Jesus na Anak ng Kataas-taasang Dios? Nakikiusap ako, sa pangalan ng Dios, huwag mo akong pahirapan!" 
 
 
 
@@ -601,7 +603,9 @@ Pero hindi pumayag si Jesus. Sa halip, sinabi niya sa lalaki, "Umuwi ka sa pamil
 
 
 
-Kaya umalis ang lalaki at ipinamalita sa Decapolis, ang ginawa sa kanya ni Jesus. At namangha ang lahat <i class="trans-change">ng nakarinig tungkol sa nangyari_. ## Ang Anak ni Jairus at ang Babaeng Dinudugo 
+Kaya umalis ang lalaki at ipinamalita sa Decapolis, ang ginawa sa kanya ni Jesus. At namangha ang lahat <i class="trans-change">ng nakarinig tungkol sa nangyari_.
+
+## Ang Anak ni Jairus at ang Babaeng Dinudugo 
 
 
 

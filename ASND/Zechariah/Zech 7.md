@@ -40,7 +40,9 @@ next: ['Zech 8']
 
 
 
-May sinabi ang Panginoon kay Zacarias noong ikaapat na araw ng buwan ng Kislev (ikasiyam na buwan), nang ikaapat na taon ng paghahari ni Darius. ###### 2-3 <i class="trans-change">Nangyari ito matapos_ ipadala ng mga mamamayan ng Betel si Sharezer at si Regem Melec, kasama ang kanilang mga tauhan, upang hilingin sa mga pari sa templo at sa mga propeta na tanungin ang Panginoon kung talagang kailangan pa nilang magluksa at mag-ayuno sa ikalimang buwan <i class="trans-change">upang alalahanin ang pagkagiba ng templo_, gaya ng maraming taon na nilang ginagawa. 
+May sinabi ang Panginoon kay Zacarias noong ikaapat na araw ng buwan ng Kislev (ikasiyam na buwan), nang ikaapat na taon ng paghahari ni Darius.
+
+###### 2-3 <i class="trans-change">Nangyari ito matapos_ ipadala ng mga mamamayan ng Betel si Sharezer at si Regem Melec, kasama ang kanilang mga tauhan, upang hilingin sa mga pari sa templo at sa mga propeta na tanungin ang Panginoon kung talagang kailangan pa nilang magluksa at mag-ayuno sa ikalimang buwan <i class="trans-change">upang alalahanin ang pagkagiba ng templo_, gaya ng maraming taon na nilang ginagawa. 
 
 
 

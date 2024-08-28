@@ -930,7 +930,9 @@ At sinabi ni Josue sa lahat ng tao, "Ang batong ito ang saksi natin na nakipag-u
 
 
 
-Pagkatapos, pinauwi ni Josue ang mga tao sa kanya-kanyang lugar. ## Namatay si Josue at si Eleazar 
+Pagkatapos, pinauwi ni Josue ang mga tao sa kanya-kanyang lugar.
+
+## Namatay si Josue at si Eleazar 
 
 
 

@@ -25,7 +25,9 @@ and one-tenth for each of the seven lambs;
 also one kid of the goats _as_ a sin offering, to make atonement for you; 
 
 ###### 6 
-besides the burnt offering with its grain offering for the New Moon, the regular burnt offering with its grain offering, and their drink offerings, according to their ordinance, as a sweet aroma, an offering made by fire to the Lord. ## Offerings on the Day of Atonement 
+besides the burnt offering with its grain offering for the New Moon, the regular burnt offering with its grain offering, and their drink offerings, according to their ordinance, as a sweet aroma, an offering made by fire to the Lord.
+
+## Offerings on the Day of Atonement 
 
 ###### 7 
 'On the tenth _day_ of this seventh month you shall have a holy convocation. You shall afflict your souls; you shall not do any work. 
@@ -40,7 +42,9 @@ Their grain offering _shall be of_ fine flour mixed with oil: three-tenths _of a
 and one-tenth for each of the seven lambs; 
 
 ###### 11 
-also one kid of the goats _as_ a sin offering, besides the sin offering for atonement, the regular burnt offering with its grain offering, and their drink offerings. ## Offerings at the Feast of Tabernacles 
+also one kid of the goats _as_ a sin offering, besides the sin offering for atonement, the regular burnt offering with its grain offering, and their drink offerings.
+
+## Offerings at the Feast of Tabernacles 
 
 ###### 12 
 'On the fifteenth day of the seventh month you shall have a holy convocation. You shall do no customary work, and you shall keep a feast to the Lord seven days. 

@@ -64,7 +64,9 @@ Listen carefully to my speech, And to my declaration with your ears.
 See now, I have prepared _my_ case, I know that I shall be vindicated. 
 
 ###### 19 
-Who _is_ he _who_ will contend with me? If now I hold my tongue, I perish. ## Job's Despondent Prayer 
+Who _is_ he _who_ will contend with me? If now I hold my tongue, I perish.
+
+## Job's Despondent Prayer 
 
 ###### 20 
 "Only two _things_ do not do to me, Then I will not hide myself from You: 

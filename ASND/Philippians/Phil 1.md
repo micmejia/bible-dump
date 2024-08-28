@@ -72,7 +72,9 @@ next: ['Phil 2']
 
 
 
-Sumainyo nawa ang biyaya at kapayapaang galing sa Dios na ating Ama at sa Panginoong Jesu-Cristo. ## Ang Panalangin ni Pablo para sa mga Taga-Filipos 
+Sumainyo nawa ang biyaya at kapayapaang galing sa Dios na ating Ama at sa Panginoong Jesu-Cristo.
+
+## Ang Panalangin ni Pablo para sa mga Taga-Filipos 
 
 
 
@@ -369,7 +371,9 @@ para mapili nʼyo ang pinakamabuti sa lahat ng bagay at madatnan kayong malinis 
 
 
 
-Mapuspos nawa kayo ng mga katangiang ipinagkaloob ni Jesu-Cristo sa inyo para maparangalan at mapapurihan ang Dios. ## Ang Kagalakan ni Pablo na Naipapangaral si Cristo 
+Mapuspos nawa kayo ng mga katangiang ipinagkaloob ni Jesu-Cristo sa inyo para maparangalan at mapapurihan ang Dios.
+
+## Ang Kagalakan ni Pablo na Naipapangaral si Cristo 
 
 
 

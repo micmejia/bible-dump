@@ -337,7 +337,9 @@ Ganoon din sa lahat ng handog na butil na inialay bilang handog na pagpaparangal
 
 
 
-At ang lahat ng handog na pagpaparangal, may halo man itong langis o wala ay para na sa mga paring mula sa angkan ni Aaron at paghahati-hatian nila ito ng pantay-pantay. ## Mga Karagdagang Tuntunin para sa Handog para sa Mabuting Relasyon 
+At ang lahat ng handog na pagpaparangal, may halo man itong langis o wala ay para na sa mga paring mula sa angkan ni Aaron at paghahati-hatian nila ito ng pantay-pantay.
+
+## Mga Karagdagang Tuntunin para sa Handog para sa Mabuting Relasyon 
 
 
 
@@ -700,7 +702,9 @@ Pero ang sinumang itinuturing na marumi at kakain ng karneng handog para sa mabu
 
 
 
-Ang sinumang nakahipo ng mga bagay na itinuturing na marumi, katulad ng dumi o sakit ng taong nakakahawa, hayop na itinuturing na marumi, o anumang bagay na kasuklam-suklam at pagkatapos ay kumain ng karne na inihandog sa Panginoon ay huwag na ninyong ituring na kababayan. ## Pagbabawal ng Pagkain ng Dugo at Taba 
+Ang sinumang nakahipo ng mga bagay na itinuturing na marumi, katulad ng dumi o sakit ng taong nakakahawa, hayop na itinuturing na marumi, o anumang bagay na kasuklam-suklam at pagkatapos ay kumain ng karne na inihandog sa Panginoon ay huwag na ninyong ituring na kababayan.
+
+## Pagbabawal ng Pagkain ng Dugo at Taba 
 
 
 
@@ -898,7 +902,9 @@ At saan man kayo tumira, huwag kayong kakain ng dugo ng hayop o ibon.
 
 
 
-Ang sinumang kakain ng dugo ay huwag na ninyong ituring na kababayan. ## Ang Bahagi ng mga Pari sa mga Handog 
+Ang sinumang kakain ng dugo ay huwag na ninyong ituring na kababayan.
+
+## Ang Bahagi ng mga Pari sa mga Handog 
 
 
 

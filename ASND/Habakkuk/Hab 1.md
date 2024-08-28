@@ -39,7 +39,9 @@ next: ['Hab 2']
 
 
 
-Ito ang mensahe ni Propeta Habakuk na ipinahayag sa kanya <i class="trans-change">ng Panginoon_. ## Ang Unang Hinaing ni Habakuk 
+Ito ang mensahe ni Propeta Habakuk na ipinahayag sa kanya <i class="trans-change">ng Panginoon_.
+
+## Ang Unang Hinaing ni Habakuk 
 
 
 

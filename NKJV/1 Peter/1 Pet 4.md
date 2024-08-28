@@ -25,7 +25,9 @@ In regard to these, they think it strange that you do not run with _them_ in the
 They will give an account to Him who is ready to judge the living and the dead. 
 
 ###### 6 
-For this reason the gospel was preached also to those who are dead, that they might be judged according to men in the flesh, but live according to God in the spirit. ## Serving for God's Glory 
+For this reason the gospel was preached also to those who are dead, that they might be judged according to men in the flesh, but live according to God in the spirit.
+
+## Serving for God's Glory 
 
 ###### 7 
 But the end of all things is at hand; therefore be serious and watchful in your prayers. 
@@ -40,7 +42,9 @@ _Be_ hospitable to one another without grumbling.
 As each one has received a gift, minister it to one another, as good stewards of the manifold grace of God. 
 
 ###### 11 
-If anyone speaks, _let him speak_ as the oracles of God. If anyone ministers, _let him do it_ as with the ability which God supplies, that in all things God may be glorified through Jesus Christ, to whom belong the glory and the dominion forever and ever. Amen. ## Suffering for God's Glory 
+If anyone speaks, _let him speak_ as the oracles of God. If anyone ministers, _let him do it_ as with the ability which God supplies, that in all things God may be glorified through Jesus Christ, to whom belong the glory and the dominion forever and ever. Amen.
+
+## Suffering for God's Glory 
 
 ###### 12 
 Beloved, do not think it strange concerning the fiery trial which is to try you, as though some strange thing happened to you; 

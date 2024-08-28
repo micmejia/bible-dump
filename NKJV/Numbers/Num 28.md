@@ -31,13 +31,17 @@ _It is_ a regular burnt offering which was ordained at Mount Sinai for a sweet a
 And its drink offering _shall be_ one-fourth of a hin for each lamb; in a holy _place_ you shall pour out the drink to the Lord as an offering. 
 
 ###### 8 
-The other lamb you shall offer in the evening; as the morning grain offering and its drink offering, you shall offer _it_ as an offering made by fire, a sweet aroma to the Lord. ## Sabbath Offerings 
+The other lamb you shall offer in the evening; as the morning grain offering and its drink offering, you shall offer _it_ as an offering made by fire, a sweet aroma to the Lord.
+
+## Sabbath Offerings 
 
 ###### 9 
 'And on the Sabbath day two lambs in their first year, without blemish, and two-tenths _of an ephah_ of fine flour as a grain offering, mixed with oil, with its drink offering-- 
 
 ###### 10 
-_this is_ the burnt offering for every Sabbath, besides the regular burnt offering with its drink offering. ## Monthly Offerings 
+_this is_ the burnt offering for every Sabbath, besides the regular burnt offering with its drink offering.
+
+## Monthly Offerings 
 
 ###### 11 
 'At the beginnings of your months you shall present a burnt offering to the Lord: two young bulls, one ram, and seven lambs in their first year, without blemish; 
@@ -52,7 +56,9 @@ and one-tenth _of an ephah_ of fine flour, mixed with oil, as a grain offering f
 Their drink offering shall be half a hin of wine for a bull, one-third of a hin for a ram, and one-fourth of a hin for a lamb; this _is_ the burnt offering for each month throughout the months of the year. 
 
 ###### 15 
-Also one kid of the goats as a sin offering to the Lord shall be offered, besides the regular burnt offering and its drink offering. ## Offerings at Passover 
+Also one kid of the goats as a sin offering to the Lord shall be offered, besides the regular burnt offering and its drink offering.
+
+## Offerings at Passover 
 
 ###### 16 
 'On the fourteenth day of the first month _is_ the Passover of the Lord. 
@@ -82,7 +88,9 @@ You shall offer these besides the burnt offering of the morning, which _is_ for 
 In this manner you shall offer the food of the offering made by fire daily for seven days, as a sweet aroma to the Lord; it shall be offered besides the regular burnt offering and its drink offering. 
 
 ###### 25 
-And on the seventh day you shall have a holy convocation. You shall do no customary work. ## Offerings at the Feast of Weeks 
+And on the seventh day you shall have a holy convocation. You shall do no customary work.
+
+## Offerings at the Feast of Weeks 
 
 ###### 26 
 'Also on the day of the firstfruits, when you bring a new grain offering to the Lord at your _Feast of_ Weeks, you shall have a holy convocation. You shall do no customary work. 

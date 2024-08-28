@@ -172,7 +172,9 @@ Si David ay 30 taong gulang nang maging hari ng Israel, at naghari siya sa loob 
 
 
 
-Naghari siya sa Juda sa loob ng pitong taon at anim na buwan habang nakatira siya sa Hebron, at 33 taon ang paghahari niya sa buong Israel at Juda habang nakatira siya sa Jerusalem. ## Sinakop ni David ang Jerusalem 
+Naghari siya sa Juda sa loob ng pitong taon at anim na buwan habang nakatira siya sa Hebron, at 33 taon ang paghahari niya sa buong Israel at Juda habang nakatira siya sa Jerusalem.
+
+## Sinakop ni David ang Jerusalem 
 
 
 
@@ -535,7 +537,9 @@ Ibhar, Elishua, Nefeg, Jafia,
 
 
 
-Elishama, Eliada at Elifelet. ## Tinalo ni David ang mga Filisteo 
+Elishama, Eliada at Elifelet.
+
+## Tinalo ni David ang mga Filisteo 
 
 
 

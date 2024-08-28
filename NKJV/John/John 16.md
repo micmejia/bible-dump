@@ -19,7 +19,9 @@ They will put you out of the synagogues; yes, the time is coming that whoever ki
 And these things they will do to you because they have not known the Father nor Me. 
 
 ###### 4 
-But these things I have told you, that when the time comes, you may remember that I told you of them. "And these things I did not say to you at the beginning, because I was with you. ## The Work of the Holy Spirit 
+But these things I have told you, that when the time comes, you may remember that I told you of them. "And these things I did not say to you at the beginning, because I was with you.
+
+## The Work of the Holy Spirit 
 
 ###### 5 
 "But now I go away to Him who sent Me, and none of you asks Me, 'Where are You going?' 
@@ -52,7 +54,9 @@ However, when He, the Spirit of truth, has come, He will guide you into all trut
 He will glorify Me, for He will take of what is Mine and declare _it_ to you. 
 
 ###### 15 
-All things that the Father has are Mine. Therefore I said that He will take of Mine and declare _it_ to you. ## Sorrow Will Turn to Joy 
+All things that the Father has are Mine. Therefore I said that He will take of Mine and declare _it_ to you.
+
+## Sorrow Will Turn to Joy 
 
 ###### 16 
 "A little while, and you will not see Me; and again a little while, and you will see Me, because I go to the Father." 
@@ -79,7 +83,9 @@ Therefore you now have sorrow; but I will see you again and your heart will rejo
 "And in that day you will ask Me nothing. Most assuredly, I say to you, whatever you ask the Father in My name He will give you. 
 
 ###### 24 
-Until now you have asked nothing in My name. Ask, and you will receive, that your joy may be full. ## Jesus Christ Has Overcome the World 
+Until now you have asked nothing in My name. Ask, and you will receive, that your joy may be full.
+
+## Jesus Christ Has Overcome the World 
 
 ###### 25 
 "These things I have spoken to you in figurative language; but the time is coming when I will no longer speak to you in figurative language, but I will tell you plainly about the Father. 

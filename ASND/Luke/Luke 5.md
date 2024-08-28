@@ -370,7 +370,9 @@ Namangha rin sina Santiago at Juan na mga anak ni Zebedee, na mga kasosyo ni Sim
 
 
 
-Nang maitabi na nila ang kanilang mga bangka, iniwan nila ang lahat at sumunod kay Jesus. ## Pinagaling ni Jesus ang Isang Lalaking May Malubhang Sakit sa Balat 
+Nang maitabi na nila ang kanilang mga bangka, iniwan nila ang lahat at sumunod kay Jesus.
+
+## Pinagaling ni Jesus ang Isang Lalaking May Malubhang Sakit sa Balat 
 
 
 
@@ -535,7 +537,9 @@ Pero lalo pang kumalat ang balita tungkol kay Jesus, kaya dumating ang napakaram
 
 
 
-Pero laging pumupunta si Jesus sa ilang at doon nananalangin. ## Pinagaling ni Jesus ang Isang Paralitiko 
+Pero laging pumupunta si Jesus sa ilang at doon nananalangin.
+
+## Pinagaling ni Jesus ang Isang Paralitiko 
 
 
 

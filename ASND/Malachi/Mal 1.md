@@ -39,7 +39,9 @@ next: ['Mal 2']
 
 
 
-Ito ang mensahe ng Panginoon para sa mga taga-Israel sa pamamagitan ni Malakias. ## Mahal ng Dios ang mga Israelita 
+Ito ang mensahe ng Panginoon para sa mga taga-Israel sa pamamagitan ni Malakias.
+
+## Mahal ng Dios ang mga Israelita 
 
 
 

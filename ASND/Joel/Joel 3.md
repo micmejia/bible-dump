@@ -534,7 +534,9 @@ Magdidilim ang araw at ang buwan, at hindi na magliliwanag ang mga bituin.
 
 
 
-Aatungal <i class="trans-change">na parang leon_ ang Panginoon mula sa Zion; dadagundong ang kanyang tinig mula sa Jerusalem. Kaya mayayanig ang lupa at langit. Pero ang Panginoon ang matibay na kanlungan para sa mga Israelita na kanyang mamamayan. ## Ang mga Pagpapalang para sa mga Mamamayan ng Dios 
+Aatungal <i class="trans-change">na parang leon_ ang Panginoon mula sa Zion; dadagundong ang kanyang tinig mula sa Jerusalem. Kaya mayayanig ang lupa at langit. Pero ang Panginoon ang matibay na kanlungan para sa mga Israelita na kanyang mamamayan.
+
+## Ang mga Pagpapalang para sa mga Mamamayan ng Dios 
 
 
 

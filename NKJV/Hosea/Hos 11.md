@@ -40,7 +40,9 @@ I will not execute the fierceness of My anger; I will not again destroy Ephraim.
 "They shall walk after the Lord. He will roar like a lion. When He roars, Then _His_ sons shall come trembling from the west; 
 
 ###### 11 
-They shall come trembling like a bird from Egypt, Like a dove from the land of Assyria. And I will let them dwell in their houses," Says the Lord. ## God's Charge Against Ephraim 
+They shall come trembling like a bird from Egypt, Like a dove from the land of Assyria. And I will let them dwell in their houses," Says the Lord.
+
+## God's Charge Against Ephraim 
 
 ###### 12 
 "Ephraim has encircled Me with lies, And the house of Israel with deceit; But Judah still walks with God, Even with the Holy One _who is_ faithful.

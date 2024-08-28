@@ -106,7 +106,9 @@ Habang sumasamba sila sa Panginoon at nag-aayuno, sinabi ng Banal na Espiritu sa
 
 
 
-Pagkatapos nilang mag-ayuno at manalangin, pinatungan nila sina Bernabe at Saulo ng kanilang mga kamay at pinaalis na sila. ## Ang Unang Paglalakbay ni Pablo Bilang Misyonero 
+Pagkatapos nilang mag-ayuno at manalangin, pinatungan nila sina Bernabe at Saulo ng kanilang mga kamay at pinaalis na sila.
+
+## Ang Unang Paglalakbay ni Pablo Bilang Misyonero 
 
 
 
@@ -403,7 +405,9 @@ Parurusahan ka ngayon ng Panginoon. Mabubulag ka at hindi makakakita sa loob ng 
 
 
 
-Nang makita ng gobernador ang nangyari kay Elimas, sumampalataya siya, at namangha sa mga katuruan tungkol sa Panginoon. ## Nangaral si Pablo sa Antioc ng Pisidia 
+Nang makita ng gobernador ang nangyari kay Elimas, sumampalataya siya, at namangha sa mga katuruan tungkol sa Panginoon.
+
+## Nangaral si Pablo sa Antioc ng Pisidia 
 
 
 
@@ -1360,7 +1364,9 @@ Nang palabas na sina Pablo at Bernabe sa sambahan ng mga Judio, inimbitahan sila
 
 
 
-Pagkatapos ng pagtitipon, maraming Judio at mga taong lumipat sa relihiyon ng mga Judio ang sumunod kina Pablo at Bernabe. Pinangaralan sila nina Pablo at Bernabe at pinayuhan na ipagpatuloy ang kanilang pagtitiwala sa biyaya ng Dios. ## Bumaling si Pablo sa mga Hindi Judio 
+Pagkatapos ng pagtitipon, maraming Judio at mga taong lumipat sa relihiyon ng mga Judio ang sumunod kina Pablo at Bernabe. Pinangaralan sila nina Pablo at Bernabe at pinayuhan na ipagpatuloy ang kanilang pagtitiwala sa biyaya ng Dios.
+
+## Bumaling si Pablo sa mga Hindi Judio 
 
 
 

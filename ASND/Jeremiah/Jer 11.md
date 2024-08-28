@@ -568,7 +568,9 @@ Noong una ay inihambing sila ng Panginoon sa isang malagong puno ng olibo na mar
 
 
 
-Ang Panginoong Makapangyarihan ang nagtayo sa Juda at Israel, pero ngayon ay iniutos niyang wasakin ang mga ito, dahil masama ang ginagawa nila. Ginalit nila ang Panginoon sa pamamagitan ng paghahandog ng mga sinusunog na insenso kay Baal. ## Ang Balak Laban kay Jeremias 
+Ang Panginoong Makapangyarihan ang nagtayo sa Juda at Israel, pero ngayon ay iniutos niyang wasakin ang mga ito, dahil masama ang ginagawa nila. Ginalit nila ang Panginoon sa pamamagitan ng paghahandog ng mga sinusunog na insenso kay Baal.
+
+## Ang Balak Laban kay Jeremias 
 
 
 

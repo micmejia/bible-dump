@@ -28,7 +28,9 @@ For this you know, that no fornicator, unclean person, nor covetous man, who is 
 Let no one deceive you with empty words, for because of these things the wrath of God comes upon the sons of disobedience. 
 
 ###### 7 
-Therefore do not be partakers with them. ## Walk in Light 
+Therefore do not be partakers with them.
+
+## Walk in Light 
 
 ###### 8 
 For you were once darkness, but now _you are_ light in the Lord. Walk as children of light 
@@ -70,7 +72,9 @@ speaking to one another in psalms and hymns and spiritual songs, singing and mak
 giving thanks always for all things to God the Father in the name of our Lord Jesus Christ, 
 
 ###### 21 
-submitting to one another in the fear of God. ## Marriage--Christ and the Church 
+submitting to one another in the fear of God.
+
+## Marriage--Christ and the Church 
 
 ###### 22 
 Wives, submit to your own husbands, as to the Lord. 

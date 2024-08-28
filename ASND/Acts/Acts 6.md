@@ -238,7 +238,9 @@ Dinala nila ang mga napiling ito sa mga apostol. At ipinanalangin sila ng mga ap
 
 
 
-Kaya patuloy na kumalat ang salita ng Dios. Marami pang mga taga-Jerusalem ang naging tagasunod <i class="trans-change">ni Jesus_, at marami ring pari ang sumampalataya <i class="trans-change">sa kanya_. ## Ang Pagdakip kay Esteban 
+Kaya patuloy na kumalat ang salita ng Dios. Marami pang mga taga-Jerusalem ang naging tagasunod <i class="trans-change">ni Jesus_, at marami ring pari ang sumampalataya <i class="trans-change">sa kanya_.
+
+## Ang Pagdakip kay Esteban 
 
 
 

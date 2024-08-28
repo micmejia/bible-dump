@@ -43,7 +43,9 @@ and with all unrighteous deception among those who perish, because they did not 
 And for this reason God will send them strong delusion, that they should believe the lie, 
 
 ###### 12 
-that they all may be condemned who did not believe the truth but had pleasure in unrighteousness. ## Stand Fast 
+that they all may be condemned who did not believe the truth but had pleasure in unrighteousness.
+
+## Stand Fast 
 
 ###### 13 
 But we are bound to give thanks to God always for you, brethren beloved by the Lord, because God from the beginning chose you for salvation through sanctification by the Spirit and belief in the truth, 

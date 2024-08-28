@@ -337,7 +337,9 @@ At ito ang isasagot sa kanila, 'Dahil itinakwil nila ang kasunduan nila sa Pangi
 
 
 
-Mamamatay siya sa lupain kung saan siya dinalang bihag. Hindi na niya makikita pang muli ang lupaing ito. ## Ang Mensahe tungkol kay Jehoyakim 
+Mamamatay siya sa lupain kung saan siya dinalang bihag. Hindi na niya makikita pang muli ang lupaing ito.
+
+## Ang Mensahe tungkol kay Jehoyakim 
 
 
 
@@ -700,7 +702,9 @@ Kaya pangangalatin ko ang mga pinuno nʼyo na parang ipa na tinatangay ng hangin
 
 
 
-"Kayong mga nakatira sa <i class="trans-change">palasyo ng Jerusalem na_ gawa sa <i class="trans-change">kahoy na_ sedro mula sa Lebanon, kahabag-habag kayo kapag dumating na sa inyo ang paghihirap, na parang babaeng naghihirap sa panganganak. ## Ang Mensahe tungkol kay Jehoyakin 
+"Kayong mga nakatira sa <i class="trans-change">palasyo ng Jerusalem na_ gawa sa <i class="trans-change">kahoy na_ sedro mula sa Lebanon, kahabag-habag kayo kapag dumating na sa inyo ang paghihirap, na parang babaeng naghihirap sa panganganak.
+
+## Ang Mensahe tungkol kay Jehoyakin 
 
 
 

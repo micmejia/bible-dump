@@ -469,7 +469,9 @@ Ngunit kung gustong humiwalay ng asawang hindi mananampalataya, hayaan siyang hu
 
 
 
-Kung sabagay, hindi naman kayo nakasisiguro kung ang inyong pagsasama ay magiging kasangkapan ng Dios para maligtas ang inyong asawa. ## Mamuhay Ayon sa Kalagayang Ibinigay ng Dios 
+Kung sabagay, hindi naman kayo nakasisiguro kung ang inyong pagsasama ay magiging kasangkapan ng Dios para maligtas ang inyong asawa.
+
+## Mamuhay Ayon sa Kalagayang Ibinigay ng Dios 
 
 
 
@@ -733,7 +735,9 @@ Binili kayo <i class="trans-change">ng Dios_ sa malaking halaga, kaya huwag kayo
 
 
 
-Kaya nga mga kapatid, mamuhay ang bawat isa sa inyo ayon sa kanyang kalagayan nang tawagin siya ng Dios. ## Tungkol sa mga Walang Asawa at mga Biyuda 
+Kaya nga mga kapatid, mamuhay ang bawat isa sa inyo ayon sa kanyang kalagayan nang tawagin siya ng Dios.
+
+## Tungkol sa mga Walang Asawa at mga Biyuda 
 
 
 

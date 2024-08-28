@@ -31,7 +31,9 @@ Certainly not! For then how will God judge the world?
 For if the truth of God has increased through my lie to His glory, why am I also still judged as a sinner? 
 
 ###### 8 
-And _why_ not _say,_ "Let us do evil that good may come"?--as we are slanderously reported and as some affirm that we say. Their condemnation is just. ## All Have Sinned 
+And _why_ not _say,_ "Let us do evil that good may come"?--as we are slanderously reported and as some affirm that we say. Their condemnation is just.
+
+## All Have Sinned 
 
 ###### 9 
 What then? Are we better _than they?_ Not at all. For we have previously charged both Jews and Greeks that they are all under sin. 
@@ -67,7 +69,9 @@ And the way of peace they have not known."
 Now we know that whatever the law says, it says to those who are under the law, that every mouth may be stopped, and all the world may become guilty before God. 
 
 ###### 20 
-Therefore by the deeds of the law no flesh will be justified in His sight, for by the law _is_ the knowledge of sin. ## God's Righteousness Through Faith 
+Therefore by the deeds of the law no flesh will be justified in His sight, for by the law _is_ the knowledge of sin.
+
+## God's Righteousness Through Faith 
 
 ###### 21 
 But now the righteousness of God apart from the law is revealed, being witnessed by the Law and the Prophets, 
@@ -85,7 +89,9 @@ being justified freely by His grace through the redemption that is in Christ Jes
 whom God set forth _as_ a propitiation by His blood, through faith, to demonstrate His righteousness, because in His forbearance God had passed over the sins that were previously committed, 
 
 ###### 26 
-to demonstrate at the present time His righteousness, that He might be just and the justifier of the one who has faith in Jesus. ## Boasting Excluded 
+to demonstrate at the present time His righteousness, that He might be just and the justifier of the one who has faith in Jesus.
+
+## Boasting Excluded 
 
 ###### 27 
 Where _is_ boasting then? It is excluded. By what law? Of works? No, but by the law of faith. 

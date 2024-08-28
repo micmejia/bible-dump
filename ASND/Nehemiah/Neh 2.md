@@ -337,7 +337,9 @@ Sa pag-alis ko, pinasamahan pa ako ng hari sa mga opisyal ng sundalo at sa mga m
 
 
 
-Ngunit nang marinig nina Sanbalat na taga-Horon at Tobia na isang opisyal ng Ammonita na dumating ako para tulungan ang mga Israelita, labis silang nagalit. ## Tiningnan ni Nehemias ang Pader ng Jerusalem 
+Ngunit nang marinig nina Sanbalat na taga-Horon at Tobia na isang opisyal ng Ammonita na dumating ako para tulungan ang mga Israelita, labis silang nagalit.
+
+## Tiningnan ni Nehemias ang Pader ng Jerusalem 
 
 
 

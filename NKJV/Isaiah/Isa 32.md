@@ -31,7 +31,9 @@ For the foolish person will speak foolishness, And his heart will work iniquity:
 Also the schemes of the schemer _are_ evil; He devises wicked plans To destroy the poor with lying words, Even when the needy speaks justice. 
 
 ###### 8 
-But a generous man devises generous things, And by generosity he shall stand. ## Consequences of Complacency 
+But a generous man devises generous things, And by generosity he shall stand.
+
+## Consequences of Complacency 
 
 ###### 9 
 Rise up, you women who are at ease, Hear my voice; You complacent daughters, Give ear to my speech. 
@@ -52,7 +54,9 @@ On the land of my people will come up thorns _and_ briers, Yes, on all the happy
 Because the palaces will be forsaken, The bustling city will be deserted. The forts and towers will become lairs forever, A joy of wild donkeys, a pasture of flocks-- 
 
 ###### 15 
-Until the Spirit is poured upon us from on high, And the wilderness becomes a fruitful field, And the fruitful field is counted as a forest. ## The Peace of God's Reign 
+Until the Spirit is poured upon us from on high, And the wilderness becomes a fruitful field, And the fruitful field is counted as a forest.
+
+## The Peace of God's Reign 
 
 ###### 16 
 Then justice will dwell in the wilderness, And righteousness remain in the fruitful field. 

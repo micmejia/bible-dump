@@ -72,7 +72,9 @@ next: ['1 Tim 2']
 
 
 
-<i class="trans-change">Mahal kong_ Timoteo, tunay <i class="trans-change">kong_ anak sa pananampalataya: Sumaiyo nawa ang biyaya, awa at kapayapaang galing sa Dios Ama at kay Cristo Jesus na ating Panginoon. ## Babala sa mga Maling Aral 
+<i class="trans-change">Mahal kong_ Timoteo, tunay <i class="trans-change">kong_ anak sa pananampalataya: Sumaiyo nawa ang biyaya, awa at kapayapaang galing sa Dios Ama at kay Cristo Jesus na ating Panginoon.
+
+## Babala sa mga Maling Aral 
 
 
 
@@ -369,7 +371,9 @@ Dapat nating alalahanin na hindi ibinigay ang Kautusan para sa mga matuwid kundi
 
 
 
-na naaayon sa Magandang Balita ng dakila at mapagpalang Dios. Ipinagkatiwala sa akin <i class="trans-change">Ang Magandang Balitang_ ito <i class="trans-change">para ipahayag_. ## Pasasalamat sa Awa ng Dios 
+na naaayon sa Magandang Balita ng dakila at mapagpalang Dios. Ipinagkatiwala sa akin <i class="trans-change">Ang Magandang Balitang_ ito <i class="trans-change">para ipahayag_.
+
+## Pasasalamat sa Awa ng Dios 
 
 
 

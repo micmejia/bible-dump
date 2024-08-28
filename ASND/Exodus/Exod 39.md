@@ -40,7 +40,9 @@ next: ['Exod 40']
 
 
 
-Tumahi rin sina Bezalel ng banal na mga damit para sa mga pari ayon sa iniutos ng Panginoon kay Moises. Ang telang ginamit nila ay lanang kulay asul, ube at pula. Ito rin ang telang ginamit nila sa pagtahi ng damit ni Aaron. ## Ang Espesyal na Damit ng mga Pari 
+Tumahi rin sina Bezalel ng banal na mga damit para sa mga pari ayon sa iniutos ng Panginoon kay Moises. Ang telang ginamit nila ay lanang kulay asul, ube at pula. Ito rin ang telang ginamit nila sa pagtahi ng damit ni Aaron.
+
+## Ang Espesyal na Damit ng mga Pari 
 
 
 
@@ -238,7 +240,9 @@ Ikinabit nila ang mga batong onix sa balangkas na ginto. Inukitan nila ito ng pa
 
 
 
-Ikinabit nila ito sa mga tirante ng espesyal na damit bilang mga alaalang bato para sa lahi ng Israel. <i class="trans-change">Ginawa nila itong lahat_ ayon sa iniutos ng Panginoon kay Moises. ## Ang Bulsa na Nasa Dibdib 
+Ikinabit nila ito sa mga tirante ng espesyal na damit bilang mga alaalang bato para sa lahi ng Israel. <i class="trans-change">Ginawa nila itong lahat_ ayon sa iniutos ng Panginoon kay Moises.
+
+## Ang Bulsa na Nasa Dibdib 
 
 
 
@@ -700,7 +704,9 @@ Gumawa pa rin sila ng dalawa pang parang singsing na ginto at ikabit nila ito sa
 
 
 
-Pagkatapos, tinahi nila ng asul na panali ang ilalim ng mga parang singsing sa bulsa sa dibdib at ang mga parang singsing sa espesyal na damit. Sa pamamagitan nito, mapapagdugtong nang maayos ang mga parang singsing sa bulsa sa dibdib at sa espesyal na damit, sa itaas ng sinturon. <i class="trans-change">Ginawa nila itong lahat_ ayon sa iniutos ng Panginoon kay Moises. ## Ang Iba pang Damit ng mga Pari 
+Pagkatapos, tinahi nila ng asul na panali ang ilalim ng mga parang singsing sa bulsa sa dibdib at ang mga parang singsing sa espesyal na damit. Sa pamamagitan nito, mapapagdugtong nang maayos ang mga parang singsing sa bulsa sa dibdib at sa espesyal na damit, sa itaas ng sinturon. <i class="trans-change">Ginawa nila itong lahat_ ayon sa iniutos ng Panginoon kay Moises.
+
+## Ang Iba pang Damit ng mga Pari 
 
 
 
@@ -964,7 +970,9 @@ Gumawa sila ng parang medalya na purong ginto at inukit nila ang mga salitang it
 
 
 
-Itinali nila ito sa harap ng turban sa pamamagitan ng asul na panali. <i class="trans-change">Ginawa nila itong lahat_ ayon sa iniutos ng Panginoon kay Moises. ## Ang Pagsusuri ni Moises sa Natapos na Gawain 
+Itinali nila ito sa harap ng turban sa pamamagitan ng asul na panali. <i class="trans-change">Ginawa nila itong lahat_ ayon sa iniutos ng Panginoon kay Moises.
+
+## Ang Pagsusuri ni Moises sa Natapos na Gawain 
 
 
 

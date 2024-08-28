@@ -16,7 +16,9 @@ Thus the Lord God showed me: Behold, He formed locust swarms at the beginning of
 And so it was, when they had finished eating the grass of the land, that I said: "O Lord God, forgive, I pray! Oh, that Jacob may stand, For he _is_ small!" 
 
 ###### 3 
-_So_ the Lord relented concerning this. "It shall not be," said the Lord. ## Vision of the Fire 
+_So_ the Lord relented concerning this. "It shall not be," said the Lord.
+
+## Vision of the Fire 
 
 ###### 4 
 Thus the Lord God showed me: Behold, the Lord God called for conflict by fire, and it consumed the great deep and devoured the territory. 
@@ -25,7 +27,9 @@ Thus the Lord God showed me: Behold, the Lord God called for conflict by fire, a
 Then I said: "O Lord God, cease, I pray! Oh, that Jacob may stand, For he _is_ small!" 
 
 ###### 6 
-_So_ the Lord relented concerning this. "This also shall not be," said the Lord God. ## Vision of the Plumb Line 
+_So_ the Lord relented concerning this. "This also shall not be," said the Lord God.
+
+## Vision of the Plumb Line 
 
 ###### 7 
 Thus He showed me: Behold, the Lord stood on a wall _made_ with a plumb line, with a plumb line in His hand. 

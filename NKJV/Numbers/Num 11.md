@@ -97,7 +97,9 @@ So Joshua the son of Nun, Moses' assistant, _one_ of his choice men, answered an
 Then Moses said to him, "Are you zealous for my sake? Oh, that all the Lord's people were prophets _and_ that the Lord would put His Spirit upon them!" 
 
 ###### 30 
-And Moses returned to the camp, he and the elders of Israel. ## The Lord Sends Quail 
+And Moses returned to the camp, he and the elders of Israel.
+
+## The Lord Sends Quail 
 
 ###### 31 
 Now a wind went out from the Lord, and it brought quail from the sea and left _them_ fluttering near the camp, about a day's journey on this side and about a day's journey on the other side, all around the camp, and about two cubits above the surface of the ground. 

@@ -238,7 +238,9 @@ Maghahandog kayo ng mga tupa, kambing, at mga baka sa paglapit ninyo sa akin. Pe
 
 
 
-Nagtaksil kayo sa akin, dahil nagkaanak kayo sa labas. Kaya lilipulin ko kayo at sisirain ko ang lupain ninyo sa loob lamang ng isang buwan. ## Ang Labanan ng Juda at Israel 
+Nagtaksil kayo sa akin, dahil nagkaanak kayo sa labas. Kaya lilipulin ko kayo at sisirain ko ang lupain ninyo sa loob lamang ng isang buwan.
+
+## Ang Labanan ng Juda at Israel 
 
 
 

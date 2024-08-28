@@ -106,7 +106,9 @@ bago dumating ang itinakdang araw na kayoʼy palalayasin at ipapadpad na parang 
 
 
 
-Kayo namang mga mapagpakumbaba at sumusunod sa mga utos ng Panginoon, lumapit kayo sa kanya. Magpatuloy kayong gumawa ng matuwid at magpakumbaba. Baka sakaling ingatan kayo ng Panginoon sa araw na ibuhos niya ang kanyang galit. ## Parusa sa Bansang Filistia 
+Kayo namang mga mapagpakumbaba at sumusunod sa mga utos ng Panginoon, lumapit kayo sa kanya. Magpatuloy kayong gumawa ng matuwid at magpakumbaba. Baka sakaling ingatan kayo ng Panginoon sa araw na ibuhos niya ang kanyang galit.
+
+## Parusa sa Bansang Filistia 
 
 
 
@@ -238,7 +240,11 @@ Kaya ang inyong mga lupain sa tabing-dagat ay magiging pastulan at kulungan ng m
 
 
 
-Sasakupin iyon ng natitirang mga taga-Juda. Doon sila magpapastol ng kanilang mga hayop at pagsapit ng gabi ay matutulog sila sa mga bahay sa Ashkelon. Kahahabagan sila ng Panginoon na kanilang Dios at pauunlarin silang muli. ## Parusa sa mga Bansa ng Moab at Ammon ###### 8-9 Sinabi ng Panginoong Makapangyarihan, ang Dios ng Israel, "Narinig ko ang pang-iinsulto at panunuya ng mga taga-Moab at taga-Ammon sa aking mga mamamayan. Ipinagyayabang nilang kaya nilang sakupin ang lupain ng aking mga mamamayan. Kaya isinusumpa kong wawasakin ko ang Moab at Ammon katulad ng Sodom at Gomora. At ang kanilang lupain ay hindi na mapapakinabangan habang panahon. Tutubuan ito ng mga matitinik na damo, at mapupuno ng mga hukay na gawaan ng asin. Lulusubin ito ng natitira kong mga mamamayan at sasamsamin nila ang mga ari-arian nito." 
+Sasakupin iyon ng natitirang mga taga-Juda. Doon sila magpapastol ng kanilang mga hayop at pagsapit ng gabi ay matutulog sila sa mga bahay sa Ashkelon. Kahahabagan sila ng Panginoon na kanilang Dios at pauunlarin silang muli.
+
+## Parusa sa mga Bansa ng Moab at Ammon
+
+###### 8-9 Sinabi ng Panginoong Makapangyarihan, ang Dios ng Israel, "Narinig ko ang pang-iinsulto at panunuya ng mga taga-Moab at taga-Ammon sa aking mga mamamayan. Ipinagyayabang nilang kaya nilang sakupin ang lupain ng aking mga mamamayan. Kaya isinusumpa kong wawasakin ko ang Moab at Ammon katulad ng Sodom at Gomora. At ang kanilang lupain ay hindi na mapapakinabangan habang panahon. Tutubuan ito ng mga matitinik na damo, at mapupuno ng mga hukay na gawaan ng asin. Lulusubin ito ng natitira kong mga mamamayan at sasamsamin nila ang mga ari-arian nito." 
 
 
 
@@ -304,7 +310,9 @@ Sasakupin iyon ng natitirang mga taga-Juda. Doon sila magpapastol ng kanilang mg
 
 
 
-Sisindakin sila ng Panginoon dahil lilipulin niya ang lahat ng mga dios-diosan sa buong mundo. At sasambahin siya ng mga tao sa lahat ng bansa sa kani-kanilang bayan. ## Ang Parusa sa mga Bansa ng Etiopia at Asiria 
+Sisindakin sila ng Panginoon dahil lilipulin niya ang lahat ng mga dios-diosan sa buong mundo. At sasambahin siya ng mga tao sa lahat ng bansa sa kani-kanilang bayan.
+
+## Ang Parusa sa mga Bansa ng Etiopia at Asiria 
 
 
 

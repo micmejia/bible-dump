@@ -22,7 +22,9 @@ The watchmen who go about the city found me; _I said,_ "Have you seen the one I 
 Scarcely had I passed by them, When I found the one I love. I held him and would not let him go, Until I had brought him to the house of my mother, And into the chamber of her who conceived me. 
 
 ###### 5 
-I charge you, O daughters of Jerusalem, By the gazelles or by the does of the field, Do not stir up nor awaken love Until it pleases. ## The Coming of Solomon 
+I charge you, O daughters of Jerusalem, By the gazelles or by the does of the field, Do not stir up nor awaken love Until it pleases.
+
+## The Coming of Solomon 
 
 ###### 6 
 Who _is_ this coming out of the wilderness Like pillars of smoke, Perfumed with myrrh and frankincense, With all the merchant's fragrant powders? 

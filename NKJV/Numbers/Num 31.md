@@ -40,7 +40,9 @@ And the children of Israel took the women of Midian captive, with their little o
 They also burned with fire all the cities where they dwelt, and all their forts. 
 
 ###### 11 
-And they took all the spoil and all the booty--of man and beast. ## Return from the War 
+And they took all the spoil and all the booty--of man and beast.
+
+## Return from the War 
 
 ###### 12 
 Then they brought the captives, the booty, and the spoil to Moses, to Eleazar the priest, and to the congregation of the children of Israel, to the camp in the plains of Moab by the Jordan, _across from_ Jericho. 

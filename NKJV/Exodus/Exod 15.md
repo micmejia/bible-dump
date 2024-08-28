@@ -64,7 +64,9 @@ You will bring them in and plant them In the mountain of Your inheritance, _In_ 
 "The Lord shall reign forever and ever." 
 
 ###### 19 
-For the horses of Pharaoh went with his chariots and his horsemen into the sea, and the Lord brought back the waters of the sea upon them. But the children of Israel went on dry _land_ in the midst of the sea. ## The Song of Miriam 
+For the horses of Pharaoh went with his chariots and his horsemen into the sea, and the Lord brought back the waters of the sea upon them. But the children of Israel went on dry _land_ in the midst of the sea.
+
+## The Song of Miriam 
 
 ###### 20 
 Then Miriam the prophetess, the sister of Aaron, took the timbrel in her hand; and all the women went out after her with timbrels and with dances. 

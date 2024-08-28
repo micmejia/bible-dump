@@ -19,7 +19,9 @@ Then he killed James the brother of John with the sword.
 And because he saw that it pleased the Jews, he proceeded further to seize Peter also. Now it was _during_ the Days of Unleavened Bread. 
 
 ###### 4 
-So when he had arrested him, he put _him_ in prison, and delivered _him_ to four squads of soldiers to keep him, intending to bring him before the people after Passover. ## Peter Freed from Prison 
+So when he had arrested him, he put _him_ in prison, and delivered _him_ to four squads of soldiers to keep him, intending to bring him before the people after Passover.
+
+## Peter Freed from Prison 
 
 ###### 5 
 Peter was therefore kept in prison, but constant prayer was offered to God for him by the church. 
@@ -64,7 +66,9 @@ But motioning to them with his hand to keep silent, he declared to them how the 
 Then, as soon as it was day, there was no small stir among the soldiers about what had become of Peter. 
 
 ###### 19 
-But when Herod had searched for him and not found him, he examined the guards and commanded that _they_ should be put to death. And he went down from Judea to Caesarea, and stayed _there._ ## Herod's Violent Death 
+But when Herod had searched for him and not found him, he examined the guards and commanded that _they_ should be put to death. And he went down from Judea to Caesarea, and stayed _there._
+
+## Herod's Violent Death 
 
 ###### 20 
 Now Herod had been very angry with the people of Tyre and Sidon; but they came to him with one accord, and having made Blastus the king's personal aide their friend, they asked for peace, because their country was supplied with food by the king's _country._ 
@@ -79,7 +83,9 @@ And the people kept shouting, "The voice of a god and not of a man!"
 Then immediately an angel of the Lord struck him, because he did not give glory to God. And he was eaten by worms and died. 
 
 ###### 24 
-But the word of God grew and multiplied. ## Barnabas and Saul Appointed 
+But the word of God grew and multiplied.
+
+## Barnabas and Saul Appointed 
 
 ###### 25 
 And Barnabas and Saul returned from Jerusalem when they had fulfilled _their_ ministry, and they also took with them John whose surname was Mark.

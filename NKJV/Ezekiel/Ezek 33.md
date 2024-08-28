@@ -73,7 +73,9 @@ Yet you say, 'The way of the Lord is not fair.' O house of Israel, I will judge 
 And it came to pass in the twelfth year of our captivity, in the tenth _month,_ on the fifth _day_ of the month, _that_ one who had escaped from Jerusalem came to me and said, "The city has been captured!" 
 
 ###### 22 
-Now the hand of the Lord had been upon me the evening before the man came who had escaped. And He had opened my mouth; so when he came to me in the morning, my mouth was opened, and I was no longer mute. ## The Cause of Judah's Ruin 
+Now the hand of the Lord had been upon me the evening before the man came who had escaped. And He had opened my mouth; so when he came to me in the morning, my mouth was opened, and I was no longer mute.
+
+## The Cause of Judah's Ruin 
 
 ###### 23 
 Then the word of the Lord came to me, saying: 

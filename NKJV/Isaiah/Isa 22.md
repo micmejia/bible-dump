@@ -49,7 +49,9 @@ And in that day the Lord God of hosts Called for weeping and for mourning, For b
 But instead, joy and gladness, Slaying oxen and killing sheep, Eating meat and drinking wine: "Let us eat and drink, for tomorrow we die!" 
 
 ###### 14 
-Then it was revealed in my hearing by the Lord of hosts, "Surely for this iniquity there will be no atonement for you, Even to your death," says the Lord God of hosts. ## The Judgment on Shebna 
+Then it was revealed in my hearing by the Lord of hosts, "Surely for this iniquity there will be no atonement for you, Even to your death," says the Lord God of hosts.
+
+## The Judgment on Shebna 
 
 ###### 15 
 Thus says the Lord God of hosts: "Go, proceed to this steward, To Shebna, who _is_ over the house, _and say:_ 

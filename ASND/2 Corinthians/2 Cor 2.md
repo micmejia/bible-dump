@@ -139,7 +139,9 @@ Iyan ang dahilan kung bakit sumulat ako sa inyo noon. Ayaw kong sa pagpunta ko r
 
 
 
-Nang sumulat ako noon sa inyo, nabagabag ang aking kalooban. Nalungkot akoʼt lumuha. Sumulat ako sa inyo hindi dahil sa gusto ko kayong saktan kundi dahil gusto kong maipakita kung gaano ko kayo kamahal. ## Patawarin ang Nagkasala 
+Nang sumulat ako noon sa inyo, nabagabag ang aking kalooban. Nalungkot akoʼt lumuha. Sumulat ako sa inyo hindi dahil sa gusto ko kayong saktan kundi dahil gusto kong maipakita kung gaano ko kayo kamahal.
+
+## Patawarin ang Nagkasala 
 
 
 
@@ -370,7 +372,9 @@ Kung pinatawad na ninyo ang taong nagkasala, pinatawad ko na rin siya. At kung n
 
 
 
-Nararapat <i class="trans-change">lamang na magpatawad tayo para_ hindi tayo madaig ni Satanas. Alam naman natin ang mga binabalak niyang masama. ## Si Pablo sa Troas 
+Nararapat <i class="trans-change">lamang na magpatawad tayo para_ hindi tayo madaig ni Satanas. Alam naman natin ang mga binabalak niyang masama.
+
+## Si Pablo sa Troas 
 
 
 
@@ -436,7 +440,9 @@ Nang dumating ako sa Troas para ipangaral ang Magandang Balita tungkol kay Crist
 
 
 
-Pero hindi ako mapalagay dahil hindi ko nakita roon ang kapatid nating si Tito. Kaya nagpaalam ako sa mga mananampalataya roon at pumunta sa Macedonia. ## Tagumpay sa Pamamagitan ni Cristo 
+Pero hindi ako mapalagay dahil hindi ko nakita roon ang kapatid nating si Tito. Kaya nagpaalam ako sa mga mananampalataya roon at pumunta sa Macedonia.
+
+## Tagumpay sa Pamamagitan ni Cristo 
 
 
 

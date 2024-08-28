@@ -238,7 +238,11 @@ Pagkatapos, ang lahat ng tagapamahala ng bayan sa pinakamalapit na lugar kung sa
 
 
 
-At sasabihin nila, 'Hindi kami ang pumatay at hindi rin namin nakita kung sino ang pumatay. ###### 8-9 O Panginoon, patawarin nʼyo po ang mga mamamayan ninyong Israelita na inyong iniligtas <i class="trans-change">sa Egipto_. Huwag ninyo kaming panagutin sa kamatayan ng inosenteng taong ito.' Kung ganito ang gagawin ninyo hindi na kayo pananagutin ng Panginoon sa pagpatay, dahil makikita niya na matuwid kayo. ## Ang Pag-aasawa ng Bihag na Babae 
+At sasabihin nila, 'Hindi kami ang pumatay at hindi rin namin nakita kung sino ang pumatay.
+
+###### 8-9 O Panginoon, patawarin nʼyo po ang mga mamamayan ninyong Israelita na inyong iniligtas <i class="trans-change">sa Egipto_. Huwag ninyo kaming panagutin sa kamatayan ng inosenteng taong ito.' Kung ganito ang gagawin ninyo hindi na kayo pananagutin ng Panginoon sa pagpatay, dahil makikita niya na matuwid kayo.
+
+## Ang Pag-aasawa ng Bihag na Babae 
 
 
 
@@ -403,7 +407,9 @@ at papalitan ang suot niyang damit nang binihag siya. Dapat magpaiwan ang babae 
 
 
 
-Pero kung sa bandang huli ay mawalan ang lalaki ng gana sa babae, dapat niya itong payagang pumunta saan man gustuhin ng babae. Hindi na siya dapat pang ipagbili o gawing alipin dahil siyaʼy ipinahiya niya. ## Ang Karapatan ng mga Panganay 
+Pero kung sa bandang huli ay mawalan ang lalaki ng gana sa babae, dapat niya itong payagang pumunta saan man gustuhin ng babae. Hindi na siya dapat pang ipagbili o gawing alipin dahil siyaʼy ipinahiya niya.
+
+## Ang Karapatan ng mga Panganay 
 
 
 
@@ -502,7 +508,9 @@ kapag hahatiin na niya ang kanyang ari-arian, kailangang ang parte na para sa pa
 
 
 
-Kailangan niyang kilalanin na panganay niyang anak ang anak ng asawa niyang hindi minamahal. Ibibigay niya sa kanya nang doble ang bahagi ng ari-arian niya dahil siya ang naunang anak at may karapatan siyang tumanggap ng kanyang bahagi bilang panganay na anak. ## Ang Hindi Matapat na Anak 
+Kailangan niyang kilalanin na panganay niyang anak ang anak ng asawa niyang hindi minamahal. Ibibigay niya sa kanya nang doble ang bahagi ng ari-arian niya dahil siya ang naunang anak at may karapatan siyang tumanggap ng kanyang bahagi bilang panganay na anak.
+
+## Ang Hindi Matapat na Anak 
 
 
 
@@ -634,7 +642,9 @@ Sasabihin nila sa mga tagapamahala, 'Matigas ang ulo nitong anak namin at rebeld
 
 
 
-Pagkatapos, dapat siyang batuhin ng lahat ng naninirahan sa bayan hanggang sa mamatay siya. Marinig ito ng lahat ng Israelita at matatakot sila. Sa pamamagitan nito, mawawala ang masasamang gawa sa inyong bansa. ## Ang Iba pang mga Kautusan 
+Pagkatapos, dapat siyang batuhin ng lahat ng naninirahan sa bayan hanggang sa mamatay siya. Marinig ito ng lahat ng Israelita at matatakot sila. Sa pamamagitan nito, mawawala ang masasamang gawa sa inyong bansa.
+
+## Ang Iba pang mga Kautusan 
 
 
 

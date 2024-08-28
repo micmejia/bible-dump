@@ -40,7 +40,9 @@ And on the eighth day they held a sacred assembly, for they observed the dedicat
 On the twenty-third day of the seventh month he sent the people away to their tents, joyful and glad of heart for the good that the Lord had done for David, for Solomon, and for His people Israel. 
 
 ###### 11 
-Thus Solomon finished the house of the Lord and the king's house; and Solomon successfully accomplished all that came into his heart to make in the house of the Lord and in his own house. ## God's Second Appearance to Solomon 
+Thus Solomon finished the house of the Lord and the king's house; and Solomon successfully accomplished all that came into his heart to make in the house of the Lord and in his own house.
+
+## God's Second Appearance to Solomon 
 
 ###### 12 
 Then the Lord appeared to Solomon by night, and said to him: "I have heard your prayer, and have chosen this place for Myself as a house of sacrifice. 

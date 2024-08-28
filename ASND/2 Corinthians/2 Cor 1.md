@@ -72,7 +72,9 @@ next: ['2 Cor 2']
 
 
 
-Sumainyo nawa ang biyaya at kapayapaang galing sa Dios na ating Ama at sa Panginoong Jesu-Cristo. ## Pasasalamat sa Dios 
+Sumainyo nawa ang biyaya at kapayapaang galing sa Dios na ating Ama at sa Panginoong Jesu-Cristo.
+
+## Pasasalamat sa Dios 
 
 
 
@@ -369,7 +371,9 @@ Iniligtas niya kami sa malagim na kamatayan, at patuloy niya kaming ililigtas. A
 
 
 
-sa tulong ng inyong mga panalangin. Sa ganoon, marami ang magpapasalamat sa Dios dahil sa mga pagpapalang tatanggapin namin mula sa kanya bilang sagot sa mga panalangin ng marami. ## Nagbago ng Plano si Pablo 
+sa tulong ng inyong mga panalangin. Sa ganoon, marami ang magpapasalamat sa Dios dahil sa mga pagpapalang tatanggapin namin mula sa kanya bilang sagot sa mga panalangin ng marami.
+
+## Nagbago ng Plano si Pablo 
 
 
 

@@ -171,7 +171,9 @@ Mangyayari ito sa Nineve dahil para siyang babaeng bayaran na paulit-ulit na ibi
 
 
 
-Sinabi ng Panginoong Makapangyarihan, "<i class="trans-change">Mga taga-Nineve,_ makinig kayo! Kalaban ko kayo! Kaya hihiyain ko kayo sa harap ng mga bansa at mga kaharian. Maihahalintulad kayo sa isang babaeng itinaas ang damit hanggang ulo at nakita ang kahubaran. ###### 6-7 Kasusuklaman ko kayo tulad ng isang taong hinagisan ng basura, kaya ang lahat ng makakakita sa inyo ay mandidiri at iiwas sa inyo. Sasabihin nila, 'Giba na ang Nineve. Walang iiyak o aaliw sa kanya.' " 
+Sinabi ng Panginoong Makapangyarihan, "<i class="trans-change">Mga taga-Nineve,_ makinig kayo! Kalaban ko kayo! Kaya hihiyain ko kayo sa harap ng mga bansa at mga kaharian. Maihahalintulad kayo sa isang babaeng itinaas ang damit hanggang ulo at nakita ang kahubaran.
+
+###### 6-7 Kasusuklaman ko kayo tulad ng isang taong hinagisan ng basura, kaya ang lahat ng makakakita sa inyo ay mandidiri at iiwas sa inyo. Sasabihin nila, 'Giba na ang Nineve. Walang iiyak o aaliw sa kanya.' " 
 
 
 

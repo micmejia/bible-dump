@@ -28,10 +28,14 @@ He cast four rings for the four corners of the bronze grating, _as_ holders for 
 And he made the poles of acacia wood, and overlaid them with bronze. 
 
 ###### 7 
-Then he put the poles into the rings on the sides of the altar, with which to bear it. He made the altar hollow with boards. ## Making the Bronze Laver 
+Then he put the poles into the rings on the sides of the altar, with which to bear it. He made the altar hollow with boards.
+
+## Making the Bronze Laver 
 
 ###### 8 
-He made the laver of bronze and its base of bronze, from the bronze mirrors of the serving women who assembled at the door of the tabernacle of meeting. ## Making the Court of the Tabernacle 
+He made the laver of bronze and its base of bronze, from the bronze mirrors of the serving women who assembled at the door of the tabernacle of meeting.
+
+## Making the Court of the Tabernacle 
 
 ###### 9 
 Then he made the court on the south side; the hangings of the court _were of_ fine woven linen, one hundred cubits long. 
@@ -67,7 +71,9 @@ The screen for the gate of the court _was_ woven of blue, purple, and scarlet _t
 And _there were_ four pillars _with_ their four sockets of bronze; their hooks _were_ silver, and the overlay of their capitals and their bands _was_ silver. 
 
 ###### 20 
-All the pegs of the tabernacle, and of the court all around, _were_ bronze. ## Materials of the Tabernacle 
+All the pegs of the tabernacle, and of the court all around, _were_ bronze.
+
+## Materials of the Tabernacle 
 
 ###### 21 
 This is the inventory of the tabernacle, the tabernacle of the Testimony, which was counted according to the commandment of Moses, for the service of the Levites, by the hand of Ithamar, son of Aaron the priest. 

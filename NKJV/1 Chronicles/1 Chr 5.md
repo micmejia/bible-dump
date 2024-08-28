@@ -37,7 +37,9 @@ and Bela the son of Azaz, the son of Shema, the son of Joel, who dwelt in Aroer,
 Eastward they settled as far as the entrance of the wilderness this side of the River Euphrates, because their cattle had multiplied in the land of Gilead. 
 
 ###### 10 
-Now in the days of Saul they made war with the Hagrites, who fell by their hand; and they dwelt in their tents throughout the entire _area_ east of Gilead. ## The Family of Gad 
+Now in the days of Saul they made war with the Hagrites, who fell by their hand; and they dwelt in their tents throughout the entire _area_ east of Gilead.
+
+## The Family of Gad 
 
 ###### 11 
 And the children of Gad dwelt next to them in the land of Bashan as far as Salcah: 
@@ -73,7 +75,9 @@ And they were helped against them, and the Hagrites were delivered into their ha
 Then they took away their livestock--fifty thousand of their camels, two hundred and fifty thousand of their sheep, and two thousand of their donkeys--also one hundred thousand of their men; 
 
 ###### 22 
-for many fell dead, because the war _was_ God's. And they dwelt in their place until the captivity. ## The Family of Manasseh (East) 
+for many fell dead, because the war _was_ God's. And they dwelt in their place until the captivity.
+
+## The Family of Manasseh (East) 
 
 ###### 23 
 So the children of the half-tribe of Manasseh dwelt in the land. Their _numbers_ increased from Bashan to Baal Hermon, that is, to Senir, or Mount Hermon. 

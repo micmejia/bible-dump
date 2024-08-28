@@ -40,7 +40,9 @@ Surely you did not hear, Surely you did not know; Surely from long ago your ear 
 Behold, I have refined you, but not as silver; I have tested you in the furnace of affliction. 
 
 ###### 11 
-For My own sake, for My own sake, I will do _it;_ For how should _My name_ be profaned? And I will not give My glory to another. ## God's Ancient Plan to Redeem Israel 
+For My own sake, for My own sake, I will do _it;_ For how should _My name_ be profaned? And I will not give My glory to another.
+
+## God's Ancient Plan to Redeem Israel 
 
 ###### 12 
 "Listen to Me, O Jacob, And Israel, My called: I _am_ He, I _am_ the First, I _am_ also the Last. 

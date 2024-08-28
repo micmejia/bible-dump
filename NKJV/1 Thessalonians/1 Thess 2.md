@@ -43,7 +43,9 @@ You _are_ witnesses, and God _also,_ how devoutly and justly and blamelessly we 
 as you know how we exhorted, and comforted, and charged every one of you, as a father _does_ his own children, 
 
 ###### 12 
-that you would walk worthy of God who calls you into His own kingdom and glory. ## Their Conversion 
+that you would walk worthy of God who calls you into His own kingdom and glory.
+
+## Their Conversion 
 
 ###### 13 
 For this reason we also thank God without ceasing, because when you received the word of God which you heard from us, you welcomed _it_ not _as_ the word of men, but as it is in truth, the word of God, which also effectively works in you who believe. 
@@ -55,7 +57,9 @@ For you, brethren, became imitators of the churches of God which are in Judea in
 who killed both the Lord Jesus and their own prophets, and have persecuted us; and they do not please God and are contrary to all men, 
 
 ###### 16 
-forbidding us to speak to the Gentiles that they may be saved, so as always to fill up _the measure of_ their sins; but wrath has come upon them to the uttermost. ## Longing to See Them 
+forbidding us to speak to the Gentiles that they may be saved, so as always to fill up _the measure of_ their sins; but wrath has come upon them to the uttermost.
+
+## Longing to See Them 
 
 ###### 17 
 But we, brethren, having been taken away from you for a short time in presence, not in heart, endeavored more eagerly to see your face with great desire. 

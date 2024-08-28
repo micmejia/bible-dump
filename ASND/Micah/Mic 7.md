@@ -237,7 +237,9 @@ Sapagkat <i class="trans-change">sa mga panahong ito,_ ang anak na lalaki ay hin
 
 
 
-Pero para sa akin, magtitiwala ako sa Panginoon na aking Dios. Maghihintay ako sa kanya na magliligtas sa akin, at tiyak na ako ay kanyang diringgin. ## Ililigtas ng Panginoon ang mga Israelita 
+Pero para sa akin, magtitiwala ako sa Panginoon na aking Dios. Maghihintay ako sa kanya na magliligtas sa akin, at tiyak na ako ay kanyang diringgin.
+
+## Ililigtas ng Panginoon ang mga Israelita 
 
 
 
@@ -435,7 +437,9 @@ Sa panahon ding iyon, pupunta sa inyo ang mga tao mula sa Asiria at sa mga lungs
 
 
 
-Magiging mapanglaw na lugar ang <i class="trans-change">mga bansa sa_ mundo dahil sa kasamaan ng mga naninirahan doon. ## Nanalangin ang mga Israelita na Kaawaan Sila ng Dios 
+Magiging mapanglaw na lugar ang <i class="trans-change">mga bansa sa_ mundo dahil sa kasamaan ng mga naninirahan doon.
+
+## Nanalangin ang mga Israelita na Kaawaan Sila ng Dios 
 
 
 

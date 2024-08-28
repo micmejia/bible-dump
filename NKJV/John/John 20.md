@@ -37,7 +37,9 @@ Then the other disciple, who came to the tomb first, went in also; and he saw an
 For as yet they did not know the Scripture, that He must rise again from the dead. 
 
 ###### 10 
-Then the disciples went away again to their own homes. ## Mary Magdalene Sees the Risen Lord 
+Then the disciples went away again to their own homes.
+
+## Mary Magdalene Sees the Risen Lord 
 
 ###### 11 
 But Mary stood outside by the tomb weeping, and as she wept she stooped down _and looked_ into the tomb. 
@@ -61,7 +63,9 @@ Jesus said to her, "Mary!" She turned and said to Him, "Rabboni!" (which is to s
 Jesus said to her, "Do not cling to Me, for I have not yet ascended to My Father; but go to My brethren and say to them, 'I am ascending to My Father and your Father, and _to_ My God and your God.' " 
 
 ###### 18 
-Mary Magdalene came and told the disciples that she had seen the Lord, and _that_ He had spoken these things to her. ## The Apostles Commissioned 
+Mary Magdalene came and told the disciples that she had seen the Lord, and _that_ He had spoken these things to her.
+
+## The Apostles Commissioned 
 
 ###### 19 
 Then, the same day at evening, being the first _day_ of the week, when the doors were shut where the disciples were assembled, for fear of the Jews, Jesus came and stood in the midst, and said to them, "Peace _be_ with you." 

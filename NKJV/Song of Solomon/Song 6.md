@@ -16,7 +16,9 @@ Where has your beloved gone, O fairest among women? Where has your beloved turne
 My beloved has gone to his garden, To the beds of spices, To feed _his flock_ in the gardens, And to gather lilies. 
 
 ###### 3 
-I _am_ my beloved's, And my beloved _is_ mine. He feeds _his flock_ among the lilies. ## Praise of the Shulamite's Beauty 
+I _am_ my beloved's, And my beloved _is_ mine. He feeds _his flock_ among the lilies.
+
+## Praise of the Shulamite's Beauty 
 
 ###### 4 
 O my love, you _are as_ beautiful as Tirzah, Lovely as Jerusalem, Awesome as _an army_ with banners! 

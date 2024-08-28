@@ -19,7 +19,9 @@ Then the Lord spoke to Moses, saying:
 Outside the veil of the Testimony, in the tabernacle of meeting, Aaron shall be in charge of it from evening until morning before the Lord continually; _it shall be_ a statute forever in your generations. 
 
 ###### 4 
-He shall be in charge of the lamps on the pure _gold_ lampstand before the Lord continually. ## The Bread of the Tabernacle 
+He shall be in charge of the lamps on the pure _gold_ lampstand before the Lord continually.
+
+## The Bread of the Tabernacle 
 
 ###### 5 
 "And you shall take fine flour and bake twelve cakes with it. Two-tenths _of an ephah_ shall be in each cake. 

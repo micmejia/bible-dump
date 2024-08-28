@@ -171,7 +171,9 @@ Dahil sa Panginoon, nagtitiwala kaming ginagawa nʼyo at patuloy na gagawin ang 
 
 
 
-Gabayan nawa kayo ng Panginoon para makita sa inyo ang pag-ibig ng Dios at katatagan ni Cristo. ## Tungkol sa Katamaran 
+Gabayan nawa kayo ng Panginoon para makita sa inyo ang pag-ibig ng Dios at katatagan ni Cristo.
+
+## Tungkol sa Katamaran 
 
 
 
@@ -501,7 +503,9 @@ Kung mayroon mang ayaw sumunod sa mga sinabi namin sa sulat na ito, tandaan nʼy
 
 
 
-Ngunit huwag nʼyo siyang ituring na kaaway, kundi paalalahanan siya bilang kapatid. ## Paalam at Bendisyon 
+Ngunit huwag nʼyo siyang ituring na kaaway, kundi paalalahanan siya bilang kapatid.
+
+## Paalam at Bendisyon 
 
 
 

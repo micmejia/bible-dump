@@ -16,7 +16,9 @@ In the meantime, when an innumerable multitude of people had gathered together, 
 For there is nothing covered that will not be revealed, nor hidden that will not be known. 
 
 ###### 3 
-Therefore whatever you have spoken in the dark will be heard in the light, and what you have spoken in the ear in inner rooms will be proclaimed on the housetops. ## Jesus Teaches the Fear of God 
+Therefore whatever you have spoken in the dark will be heard in the light, and what you have spoken in the ear in inner rooms will be proclaimed on the housetops.
+
+## Jesus Teaches the Fear of God 
 
 ###### 4 
 "And I say to you, My friends, do not be afraid of those who kill the body, and after that have no more that they can do. 
@@ -28,7 +30,9 @@ But I will show you whom you should fear: Fear Him who, after He has killed, has
 "Are not five sparrows sold for two copper coins? And not one of them is forgotten before God. 
 
 ###### 7 
-But the very hairs of your head are all numbered. Do not fear therefore; you are of more value than many sparrows. ## Confess Christ Before Men 
+But the very hairs of your head are all numbered. Do not fear therefore; you are of more value than many sparrows.
+
+## Confess Christ Before Men 
 
 ###### 8 
 "Also I say to you, whoever confesses Me before men, him the Son of Man also will confess before the angels of God. 
@@ -109,7 +113,9 @@ But seek the kingdom of God, and all these things shall be added to you.
 Sell what you have and give alms; provide yourselves money bags which do not grow old, a treasure in the heavens that does not fail, where no thief approaches nor moth destroys. 
 
 ###### 34 
-For where your treasure is, there your heart will be also. ## The Faithful Servant and the Evil Servant 
+For where your treasure is, there your heart will be also.
+
+## The Faithful Servant and the Evil Servant 
 
 ###### 35 
 "Let your waist be girded and _your_ lamps burning; 
@@ -151,7 +157,9 @@ the master of that servant will come on a day when he is not looking for _him,_ 
 And that servant who knew his master's will, and did not prepare _himself_ or do according to his will, shall be beaten with many _stripes._ 
 
 ###### 48 
-But he who did not know, yet committed things deserving of stripes, shall be beaten with few. For everyone to whom much is given, from him much will be required; and to whom much has been committed, of him they will ask the more. ## Christ Brings Division 
+But he who did not know, yet committed things deserving of stripes, shall be beaten with few. For everyone to whom much is given, from him much will be required; and to whom much has been committed, of him they will ask the more.
+
+## Christ Brings Division 
 
 ###### 49 
 "I came to send fire on the earth, and how I wish it were already kindled! 

@@ -19,7 +19,9 @@ Now it shall come to pass in the latter days _That_ the mountain of the Lord's h
 Many people shall come and say, "Come, and let us go up to the mountain of the Lord, To the house of the God of Jacob; He will teach us His ways, And we shall walk in His paths." For out of Zion shall go forth the law, And the word of the Lord from Jerusalem. 
 
 ###### 4 
-He shall judge between the nations, And rebuke many people; They shall beat their swords into plowshares, And their spears into pruning hooks; Nation shall not lift up sword against nation, Neither shall they learn war anymore. ## The Day of the Lord 
+He shall judge between the nations, And rebuke many people; They shall beat their swords into plowshares, And their spears into pruning hooks; Nation shall not lift up sword against nation, Neither shall they learn war anymore.
+
+## The Day of the Lord 
 
 ###### 5 
 O house of Jacob, come and let us walk In the light of the Lord. 

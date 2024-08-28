@@ -55,7 +55,9 @@ Then one of the twelve, called Judas Iscariot, went to the chief priests
 and said, "What are you willing to give me if I deliver Him to you?" And they counted out to him thirty pieces of silver. 
 
 ###### 16 
-So from that time he sought opportunity to betray Him. ## Jesus Celebrates Passover with His Disciples 
+So from that time he sought opportunity to betray Him.
+
+## Jesus Celebrates Passover with His Disciples 
 
 ###### 17 
 Now on the first _day of the Feast_ of the Unleavened Bread the disciples came to Jesus, saying to Him, "Where do You want us to prepare for You to eat the Passover?" 
@@ -97,7 +99,9 @@ For this is My blood of the new covenant, which is shed for many for the remissi
 But I say to you, I will not drink of this fruit of the vine from now on until that day when I drink it new with you in My Father's kingdom." 
 
 ###### 30 
-And when they had sung a hymn, they went out to the Mount of Olives. ## Jesus Predicts Peter's Denial 
+And when they had sung a hymn, they went out to the Mount of Olives.
+
+## Jesus Predicts Peter's Denial 
 
 ###### 31 
 Then Jesus said to them, "All of you will be made to stumble because of Me this night, for it is written: 'I will strike the Shepherd, And the sheep of the flock will be scattered.' 
@@ -112,7 +116,9 @@ Peter answered and said to Him, "Even if all are made to stumble because of You,
 Jesus said to him, "Assuredly, I say to you that this night, before the rooster crows, you will deny Me three times." 
 
 ###### 35 
-Peter said to Him, "Even if I have to die with You, I will not deny You!" And so said all the disciples. ## The Prayer in the Garden 
+Peter said to Him, "Even if I have to die with You, I will not deny You!" And so said all the disciples.
+
+## The Prayer in the Garden 
 
 ###### 36 
 Then Jesus came with them to a place called Gethsemane, and said to the disciples, "Sit here while I go and pray over there." 
@@ -175,7 +181,9 @@ How then could the Scriptures be fulfilled, that it must happen thus?"
 In that hour Jesus said to the multitudes, "Have you come out, as against a robber, with swords and clubs to take Me? I sat daily with you, teaching in the temple, and you did not seize Me. 
 
 ###### 56 
-But all this was done that the Scriptures of the prophets might be fulfilled." Then all the disciples forsook Him and fled. ## Jesus Faces the Sanhedrin 
+But all this was done that the Scriptures of the prophets might be fulfilled." Then all the disciples forsook Him and fled.
+
+## Jesus Faces the Sanhedrin 
 
 ###### 57 
 And those who had laid hold of Jesus led _Him_ away to Caiaphas the high priest, where the scribes and the elders were assembled. 

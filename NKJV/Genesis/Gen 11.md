@@ -34,7 +34,9 @@ Come, let Us go down and there confuse their language, that they may not underst
 So the Lord scattered them abroad from there over the face of all the earth, and they ceased building the city. 
 
 ###### 9 
-Therefore its name is called Babel, because there the Lord confused the language of all the earth; and from there the Lord scattered them abroad over the face of all the earth. ## Shem's Descendants 
+Therefore its name is called Babel, because there the Lord confused the language of all the earth; and from there the Lord scattered them abroad over the face of all the earth.
+
+## Shem's Descendants 
 
 ###### 10 
 This _is_ the genealogy of Shem: Shem _was_ one hundred years old, and begot Arphaxad two years after the flood. 
@@ -85,7 +87,9 @@ Nahor lived twenty-nine years, and begot Terah.
 After he begot Terah, Nahor lived one hundred and nineteen years, and begot sons and daughters. 
 
 ###### 26 
-Now Terah lived seventy years, and begot Abram, Nahor, and Haran. ## Terah's Descendants 
+Now Terah lived seventy years, and begot Abram, Nahor, and Haran.
+
+## Terah's Descendants 
 
 ###### 27 
 This _is_ the genealogy of Terah: Terah begot Abram, Nahor, and Haran. Haran begot Lot. 

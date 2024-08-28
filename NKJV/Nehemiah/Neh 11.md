@@ -79,7 +79,9 @@ Also the overseer of the Levites at Jerusalem _was_ Uzzi the son of Bani, the so
 For _it was_ the king's command concerning them that a certain portion should be for the singers, a quota day by day. 
 
 ###### 24 
-Pethahiah the son of Meshezabel, of the children of Zerah the son of Judah, _was_ the king's deputy in all matters concerning the people. ## The People Dwelling Outside Jerusalem 
+Pethahiah the son of Meshezabel, of the children of Zerah the son of Judah, _was_ the king's deputy in all matters concerning the people.
+
+## The People Dwelling Outside Jerusalem 
 
 ###### 25 
 And as for the villages with their fields, _some_ of the children of Judah dwelt in Kirjath Arba and its villages, Dibon and its villages, Jekabzeel and its villages; 

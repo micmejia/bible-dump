@@ -469,7 +469,9 @@ Ngunit hindi natin masunod ang lahat ng iniuutos ng Kautusan, kaya sinumpa tayo 
 
 
 
-<i class="trans-change">Ginawa ito ng Dios_ para ang pagpapalang ibinigay niya kay Abraham ay matanggap din ng mga hindi Judio sa pamamagitan ni Cristo Jesus; at para matanggap natin ang ipinangakong Espiritu sa pamamagitan ng pananampalataya. ## Ang Kautusan at ang Pangako ng Dios 
+<i class="trans-change">Ginawa ito ng Dios_ para ang pagpapalang ibinigay niya kay Abraham ay matanggap din ng mga hindi Judio sa pamamagitan ni Cristo Jesus; at para matanggap natin ang ipinangakong Espiritu sa pamamagitan ng pananampalataya.
+
+## Ang Kautusan at ang Pangako ng Dios 
 
 
 
@@ -832,7 +834,9 @@ Ang Kautusan ay naging tagapag-alaga natin hanggang sa dumating si Cristo, para 
 
 
 
-At ngayong may pananampalataya na, wala na tayo sa patnubay ng <i class="trans-change">Kautusan na_ tagapag-alaga. ## Mga Anak ng Dios sa Pananampalataya 
+At ngayong may pananampalataya na, wala na tayo sa patnubay ng <i class="trans-change">Kautusan na_ tagapag-alaga.
+
+## Mga Anak ng Dios sa Pananampalataya 
 
 
 

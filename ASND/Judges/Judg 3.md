@@ -205,7 +205,9 @@ Kaya nanirahan ang mga Israelita kasama ng mga Cananeo, Heteo, Amoreo, Perezeo, 
 
 
 
-Nagsipag-asawa ang mga Israelita ng mga anak ng mga taong ito at ibinigay nila ang kanilang mga anak na babae para maging asawa rin ng mga ito, at sumamba rin sila sa mga dios-diosan ng mga ito. ## Si Otniel 
+Nagsipag-asawa ang mga Israelita ng mga anak ng mga taong ito at ibinigay nila ang kanilang mga anak na babae para maging asawa rin ng mga ito, at sumamba rin sila sa mga dios-diosan ng mga ito.
+
+## Si Otniel 
 
 
 
@@ -370,7 +372,9 @@ Ginabayan siya ng Espiritu ng Panginoon, at pinamunuan niya ang Israel. Nakipagl
 
 
 
-Kaya nagkaroon ng kapayapaan sa Israel sa loob ng 40 taon. At pagkatapos ay namatay si Otniel. ## Si Ehud 
+Kaya nagkaroon ng kapayapaan sa Israel sa loob ng 40 taon. At pagkatapos ay namatay si Otniel.
+
+## Si Ehud 
 
 
 
@@ -997,7 +1001,9 @@ Nang araw na iyon, nakapatay sila ng 10,000 malalakas at matatapang na Moabita. 
 
 
 
-Sinakop ng Israel ang Moab nang araw na iyon, at mula noon, naging mapayapa ang Israel sa loob ng 80 taon. ## Si Shamgar 
+Sinakop ng Israel ang Moab nang araw na iyon, at mula noon, naging mapayapa ang Israel sa loob ng 80 taon.
+
+## Si Shamgar 
 
 
 

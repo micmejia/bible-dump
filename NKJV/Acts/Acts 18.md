@@ -58,7 +58,9 @@ But if it is a question of words and names and your own law, look _to it_ yourse
 And he drove them from the judgment seat. 
 
 ###### 17 
-Then all the Greeks took Sosthenes, the ruler of the synagogue, and beat _him_ before the judgment seat. But Gallio took no notice of these things. ## Paul Returns to Antioch 
+Then all the Greeks took Sosthenes, the ruler of the synagogue, and beat _him_ before the judgment seat. But Gallio took no notice of these things.
+
+## Paul Returns to Antioch 
 
 ###### 18 
 So Paul still remained a good while. Then he took leave of the brethren and sailed for Syria, and Priscilla and Aquila _were_ with him. He had _his_ hair cut off at Cenchrea, for he had taken a vow. 
@@ -76,7 +78,9 @@ but took leave of them, saying, "I must by all means keep this coming feast in J
 And when he had landed at Caesarea, and gone up and greeted the church, he went down to Antioch. 
 
 ###### 23 
-After he had spent some time _there,_ he departed and went over the region of Galatia and Phrygia in order, strengthening all the disciples. ## Ministry of Apollos 
+After he had spent some time _there,_ he departed and went over the region of Galatia and Phrygia in order, strengthening all the disciples.
+
+## Ministry of Apollos 
 
 ###### 24 
 Now a certain Jew named Apollos, born at Alexandria, an eloquent man _and_ mighty in the Scriptures, came to Ephesus. 

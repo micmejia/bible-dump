@@ -568,7 +568,9 @@ Magpapatuloy ang paghahari mo magpakailanman, ganoon din ang paghahari ng iyong 
 
 
 
-Isinalaysay ni Natan kay David ang lahat ng ipinahayag ng Dios sa kanya. ## Ang Panalangin ni David 
+Isinalaysay ni Natan kay David ang lahat ng ipinahayag ng Dios sa kanya.
+
+## Ang Panalangin ni David 
 
 
 

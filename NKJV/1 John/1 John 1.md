@@ -18,7 +18,9 @@ the life was manifested, and we have seen, and bear witness, and declare to you 
 that which we have seen and heard we declare to you, that you also may have fellowship with us; and truly our fellowship _is_ with the Father and with His Son Jesus Christ. 
 
 ###### 4 
-And these things we write to you that your joy may be full. ## Fellowship with Him and One Another 
+And these things we write to you that your joy may be full.
+
+## Fellowship with Him and One Another 
 
 ###### 5 
 This is the message which we have heard from Him and declare to you, that God is light and in Him is no darkness at all. 

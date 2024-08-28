@@ -37,7 +37,9 @@ Here mortal men receive tithes, but there he _receives them,_ of whom it is witn
 Even Levi, who receives tithes, paid tithes through Abraham, so to speak, 
 
 ###### 10 
-for he was still in the loins of his father when Melchizedek met him. ## Need for a New Priesthood 
+for he was still in the loins of his father when Melchizedek met him.
+
+## Need for a New Priesthood 
 
 ###### 11 
 Therefore, if perfection were through the Levitical priesthood (for under it the people received the law), what further need _was there_ that another priest should rise according to the order of Melchizedek, and not be called according to the order of Aaron? 
@@ -64,7 +66,9 @@ For He testifies: "You _are_ a priest forever According to the order of Melchize
 For on the one hand there is an annulling of the former commandment because of its weakness and unprofitableness, 
 
 ###### 19 
-for the law made nothing perfect; on the other hand, _there is the_ bringing in of a better hope, through which we draw near to God. ## Greatness of the New Priest 
+for the law made nothing perfect; on the other hand, _there is the_ bringing in of a better hope, through which we draw near to God.
+
+## Greatness of the New Priest 
 
 ###### 20 
 And inasmuch as _He was_ not _made priest_ without an oath 

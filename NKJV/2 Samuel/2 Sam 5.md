@@ -22,7 +22,9 @@ Therefore all the elders of Israel came to the king at Hebron, and King David ma
 David _was_ thirty years old when he began to reign, _and_ he reigned forty years. 
 
 ###### 5 
-In Hebron he reigned over Judah seven years and six months, and in Jerusalem he reigned thirty-three years over all Israel and Judah. ## The Conquest of Jerusalem 
+In Hebron he reigned over Judah seven years and six months, and in Jerusalem he reigned thirty-three years over all Israel and Judah.
+
+## The Conquest of Jerusalem 
 
 ###### 6 
 And the king and his men went to Jerusalem against the Jebusites, the inhabitants of the land, who spoke to David, saying, "You shall not come in here; but the blind and the lame will repel you," thinking, "David cannot come in here." 
@@ -55,7 +57,9 @@ Now these _are_ the names of those who were born to him in Jerusalem: Shammua, S
 Ibhar, Elishua, Nepheg, Japhia, 
 
 ###### 16 
-Elishama, Eliada, and Eliphelet. ## The Philistines Defeated 
+Elishama, Eliada, and Eliphelet.
+
+## The Philistines Defeated 
 
 ###### 17 
 Now when the Philistines heard that they had anointed David king over Israel, all the Philistines went up to search for David. And David heard _of it_ and went down to the stronghold. 

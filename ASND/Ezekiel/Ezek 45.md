@@ -73,7 +73,9 @@ next: ['Ezek 46']
 
 
 
-Ang bahagi nito na 875 talampakan na parisukat ang siyang pagtatayuan ng templo, at sa paligid ng templo ay may bakanteng bahagi na 87 talampakan ang luwang. ###### 3-4 Ang kalahati ng parte kong lupain na 12 kilometro ang haba at limang kilometro ang luwang ay ibubukod ko para sa mga paring naglilingkod sa akin sa templo. Pagtatayuan ito ng mga bahay nila at ng templo na siyang pinakabanal na lugar. 
+Ang bahagi nito na 875 talampakan na parisukat ang siyang pagtatayuan ng templo, at sa paligid ng templo ay may bakanteng bahagi na 87 talampakan ang luwang.
+
+###### 3-4 Ang kalahati ng parte kong lupain na 12 kilometro ang haba at limang kilometro ang luwang ay ibubukod ko para sa mga paring naglilingkod sa akin sa templo. Pagtatayuan ito ng mga bahay nila at ng templo na siyang pinakabanal na lugar. 
 
 
 
@@ -205,7 +207,9 @@ Bibigyan din ng dalawang bahagi ng lupain ang pinuno ng Israel. Ang isang bahagi
 
 
 
-Ang lupaing ito ang magiging parte ng pinuno ng Israel. ## Mga Utos para sa mga Pinuno ng Israel "Ang aking mga pinuno ay hindi na mang-aapi sa aking mga mamamayan. Hahayaan nila na ang mga mamamayan ng Israel ang magmay-ari ng lupang ibinibigay sa kanila ayon sa angkan nila. 
+Ang lupaing ito ang magiging parte ng pinuno ng Israel.
+
+## Mga Utos para sa mga Pinuno ng Israel "Ang aking mga pinuno ay hindi na mang-aapi sa aking mga mamamayan. Hahayaan nila na ang mga mamamayan ng Israel ang magmay-ari ng lupang ibinibigay sa kanila ayon sa angkan nila. 
 
 
 
@@ -337,7 +341,9 @@ Ang 'homer' ang batayan ng panukat sa pagbilang. Ang isang 'homer' ay sampung 'e
 
 
 
-Ang 'shekel' ang siyang batayan ng pagsukat ng bigat. Ang isang 'shekel' ay 20 'gera', at ang 60 'shekel' ay isang 'mina'. ## Mga Natatanging Kaloob at mga Araw 
+Ang 'shekel' ang siyang batayan ng pagsukat ng bigat. Ang isang 'shekel' ay 20 'gera', at ang 60 'shekel' ay isang 'mina'.
+
+## Mga Natatanging Kaloob at mga Araw 
 
 
 

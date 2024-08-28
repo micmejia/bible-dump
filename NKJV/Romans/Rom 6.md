@@ -49,7 +49,9 @@ Therefore do not let sin reign in your mortal body, that you should obey it in i
 And do not present your members _as_ instruments of unrighteousness to sin, but present yourselves to God as being alive from the dead, and your members _as_ instruments of righteousness to God. 
 
 ###### 14 
-For sin shall not have dominion over you, for you are not under law but under grace. ## From Slaves of Sin to Slaves of God 
+For sin shall not have dominion over you, for you are not under law but under grace.
+
+## From Slaves of Sin to Slaves of God 
 
 ###### 15 
 What then? Shall we sin because we are not under law but under grace? Certainly not! 

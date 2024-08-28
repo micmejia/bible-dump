@@ -40,7 +40,9 @@ next: ['1 Kgs 8']
 
 
 
-Nagpatayo rin si Solomon ng palasyo niya at inabot ng 13 taon ang pagpapatayo nito. ###### 2-3 Ang isa sa mga gusali nito ay tinawag na Kagubatan ng Lebanon. Ang haba nito ay 150 talampakan, ang luwang ay 75 talampakan at ang taas ay 45 talampakan. Ito ay may apat na hanay ng mga haliging sedro – 15 bawat hanay, at nakatukod ito sa 45 na pambalagbag sa ibabaw ng haligi kung saan nakakabit ang kisameng sedro. 
+Nagpatayo rin si Solomon ng palasyo niya at inabot ng 13 taon ang pagpapatayo nito.
+
+###### 2-3 Ang isa sa mga gusali nito ay tinawag na Kagubatan ng Lebanon. Ang haba nito ay 150 talampakan, ang luwang ay 75 talampakan at ang taas ay 45 talampakan. Ito ay may apat na hanay ng mga haliging sedro – 15 bawat hanay, at nakatukod ito sa 45 na pambalagbag sa ibabaw ng haligi kung saan nakakabit ang kisameng sedro. 
 
 
 
@@ -337,7 +339,9 @@ Sa ibabaw nito ay mga <i class="trans-change">kahoy na_ sedro at mamahaling mga 
 
 
 
-Ang maluwang na bakuran ay napapaligiran ng pader, na ang bawat tatlong patong ng mga tinabas na bato ay pinatungan ng kahoy na sedro. Katulad din nito ang pagkakagawa ng mga pader ng bakuran sa loob ng templo ng Panginoon at ng balkonahe. ## Ang mga Gamit ng Templo 
+Ang maluwang na bakuran ay napapaligiran ng pader, na ang bawat tatlong patong ng mga tinabas na bato ay pinatungan ng kahoy na sedro. Katulad din nito ang pagkakagawa ng mga pader ng bakuran sa loob ng templo ng Panginoon at ng balkonahe.
+
+## Ang mga Gamit ng Templo 
 
 
 

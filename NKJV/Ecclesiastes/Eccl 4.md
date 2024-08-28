@@ -16,7 +16,9 @@ Then I returned and considered all the oppression that is done under the sun: An
 Therefore I praised the dead who were already dead, More than the living who are still alive. 
 
 ###### 3 
-Yet, better than both _is he_ who has never existed, Who has not seen the evil work that is done under the sun. ## The Vanity of Selfish Toil 
+Yet, better than both _is he_ who has never existed, Who has not seen the evil work that is done under the sun.
+
+## The Vanity of Selfish Toil 
 
 ###### 4 
 Again, I saw that for all toil and every skillful work a man is envied by his neighbor. This also _is_ vanity and grasping for the wind. 
@@ -31,7 +33,9 @@ Better a handful _with_ quietness Than both hands full, _together with_ toil and
 Then I returned, and I saw vanity under the sun: 
 
 ###### 8 
-There is one alone, without companion: He has neither son nor brother. Yet _there is_ no end to all his labors, Nor is his eye satisfied with riches. _But_ _he never asks,_ "For whom do I toil and deprive myself of good?" This also _is_ vanity and a grave misfortune. ## The Value of a Friend 
+There is one alone, without companion: He has neither son nor brother. Yet _there is_ no end to all his labors, Nor is his eye satisfied with riches. _But_ _he never asks,_ "For whom do I toil and deprive myself of good?" This also _is_ vanity and a grave misfortune.
+
+## The Value of a Friend 
 
 ###### 9 
 Two _are_ better than one, Because they have a good reward for their labor. 
@@ -43,7 +47,9 @@ For if they fall, one will lift up his companion. But woe to him _who is_ alone 
 Again, if two lie down together, they will keep warm; But how can one be warm _alone?_ 
 
 ###### 12 
-Though one may be overpowered by another, two can withstand him. And a threefold cord is not quickly broken. ## Popularity Passes Away 
+Though one may be overpowered by another, two can withstand him. And a threefold cord is not quickly broken.
+
+## Popularity Passes Away 
 
 ###### 13 
 Better a poor and wise youth Than an old and foolish king who will be admonished no more. 

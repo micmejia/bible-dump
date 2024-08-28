@@ -7,7 +7,9 @@ next: ['Acts 9']
 # Acts 8
 
 ***
-###### 1-2 Inilibing si Esteban ng mga taong may takot sa Dios, at labis nila siyang iniyakan. ## Pinag-uusig ni Saulo ang mga Mananampalataya Mula noon, nagsimula na ang matinding pag-uusig sa mga mananampalataya sa Jerusalem. Kaya nagkawatak-watak ang mga mananampalataya sa buong lalawigan ng Judea at Samaria. Ang mga apostol lang ang hindi umalis sa Jerusalem. Si Saulo na sumang-ayon sa pagpatay kay Esteban 
+###### 1-2 Inilibing si Esteban ng mga taong may takot sa Dios, at labis nila siyang iniyakan.
+
+## Pinag-uusig ni Saulo ang mga Mananampalataya Mula noon, nagsimula na ang matinding pag-uusig sa mga mananampalataya sa Jerusalem. Kaya nagkawatak-watak ang mga mananampalataya sa buong lalawigan ng Judea at Samaria. Ang mga apostol lang ang hindi umalis sa Jerusalem. Si Saulo na sumang-ayon sa pagpatay kay Esteban 
 
 
 
@@ -40,7 +42,9 @@ next: ['Acts 9']
 
 
 
-ay nagsumikap na wasakin ang iglesya. Kaya pinasok niya ang mga bahay-bahay at dinakip <i class="trans-change">ang mga mananampalataya_, lalaki man o babae, at dinala sa bilangguan. ## Ipinangaral ang Magandang Balita sa Samaria 
+ay nagsumikap na wasakin ang iglesya. Kaya pinasok niya ang mga bahay-bahay at dinakip <i class="trans-change">ang mga mananampalataya_, lalaki man o babae, at dinala sa bilangguan.
+
+## Ipinangaral ang Magandang Balita sa Samaria 
 
 
 
@@ -766,7 +770,9 @@ Sinabi ni Simon, "Kung maaari, manalangin din kayo sa Panginoon para sa akin upa
 
 
 
-Pagkatapos magpatotoo nina Pedro at Juan at mangaral ng mensahe ng Panginoon, bumalik sila sa Jerusalem. At nangaral din sila ng Magandang Balita sa mga baryo na dinaanan nila sa lalawigan ng Samaria. ## Si Felipe at ang Opisyal na Taga-Etiopia 
+Pagkatapos magpatotoo nina Pedro at Juan at mangaral ng mensahe ng Panginoon, bumalik sila sa Jerusalem. At nangaral din sila ng Magandang Balita sa mga baryo na dinaanan nila sa lalawigan ng Samaria.
+
+## Si Felipe at ang Opisyal na Taga-Etiopia 
 
 
 

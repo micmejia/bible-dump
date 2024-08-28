@@ -46,13 +46,17 @@ and, 'In _their_ hands they shall bear you up, Lest you dash your foot against a
 And Jesus answered and said to him, "It has been said, 'You shall not tempt the Lord your God.' " 
 
 ###### 13 
-Now when the devil had ended every temptation, he departed from Him until an opportune time. ## Jesus Begins His Galilean Ministry 
+Now when the devil had ended every temptation, he departed from Him until an opportune time.
+
+## Jesus Begins His Galilean Ministry 
 
 ###### 14 
 Then Jesus returned in the power of the Spirit to Galilee, and news of Him went out through all the surrounding region. 
 
 ###### 15 
-And He taught in their synagogues, being glorified by all. ## Jesus Rejected at Nazareth 
+And He taught in their synagogues, being glorified by all.
+
+## Jesus Rejected at Nazareth 
 
 ###### 16 
 So He came to Nazareth, where He had been brought up. And as His custom was, He went into the synagogue on the Sabbath day, and stood up to read. 
@@ -97,7 +101,9 @@ So all those in the synagogue, when they heard these things, were filled with wr
 and rose up and thrust Him out of the city; and they led Him to the brow of the hill on which their city was built, that they might throw Him down over the cliff. 
 
 ###### 30 
-Then passing through the midst of them, He went His way. ## Jesus Casts Out an Unclean Spirit 
+Then passing through the midst of them, He went His way.
+
+## Jesus Casts Out an Unclean Spirit 
 
 ###### 31 
 Then He went down to Capernaum, a city of Galilee, and was teaching them on the Sabbaths. 
@@ -118,19 +124,25 @@ But Jesus rebuked him, saying, "Be quiet, and come out of him!" And when the dem
 Then they were all amazed and spoke among themselves, saying, "What a word this _is!_ For with authority and power He commands the unclean spirits, and they come out." 
 
 ###### 37 
-And the report about Him went out into every place in the surrounding region. ## Peter's Mother-in-Law Healed 
+And the report about Him went out into every place in the surrounding region.
+
+## Peter's Mother-in-Law Healed 
 
 ###### 38 
 Now He arose from the synagogue and entered Simon's house. But Simon's wife's mother was sick with a high fever, and they made request of Him concerning her. 
 
 ###### 39 
-So He stood over her and rebuked the fever, and it left her. And immediately she arose and served them. ## Many Healed After Sabbath Sunset 
+So He stood over her and rebuked the fever, and it left her. And immediately she arose and served them.
+
+## Many Healed After Sabbath Sunset 
 
 ###### 40 
 When the sun was setting, all those who had any that were sick with various diseases brought them to Him; and He laid His hands on every one of them and healed them. 
 
 ###### 41 
-And demons also came out of many, crying out and saying, "You are the Christ, the Son of God!" And He, rebuking _them,_ did not allow them to speak, for they knew that He was the Christ. ## Jesus Preaches in Galilee 
+And demons also came out of many, crying out and saying, "You are the Christ, the Son of God!" And He, rebuking _them,_ did not allow them to speak, for they knew that He was the Christ.
+
+## Jesus Preaches in Galilee 
 
 ###### 42 
 Now when it was day, He departed and went into a deserted place. And the crowd sought Him and came to Him, and tried to keep Him from leaving them; 

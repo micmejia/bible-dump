@@ -85,7 +85,9 @@ The daughter of Egypt shall be ashamed; She shall be delivered into the hand Of 
 The Lord of hosts, the God of Israel, says: "Behold, I will bring punishment on Amon of No, and Pharaoh and Egypt, with their gods and their kings--Pharaoh and those who trust in him. 
 
 ###### 26 
-And I will deliver them into the hand of those who seek their lives, into the hand of Nebuchadnezzar king of Babylon and the hand of his servants. Afterward it shall be inhabited as in the days of old," says the Lord. ## God Will Preserve Israel 
+And I will deliver them into the hand of those who seek their lives, into the hand of Nebuchadnezzar king of Babylon and the hand of his servants. Afterward it shall be inhabited as in the days of old," says the Lord.
+
+## God Will Preserve Israel 
 
 ###### 27 
 "But do not fear, O My servant Jacob, And do not be dismayed, O Israel! For behold, I will save you from afar, And your offspring from the land of their captivity; Jacob shall return, have rest and be at ease; No one shall make _him_ afraid. 

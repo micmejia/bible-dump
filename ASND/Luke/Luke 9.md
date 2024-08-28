@@ -205,7 +205,9 @@ At kung ayaw kayong tanggapin ng mga tao sa isang bayan, umalis kayo roon at ipa
 
 
 
-Pagkatapos noon, umalis ang mga apostol at pumunta sa mga nayon. Nangaral sila ng Magandang Balita at nagpagaling ng mga may sakit kahit saan. ## Naguluhan si Haring Herodes 
+Pagkatapos noon, umalis ang mga apostol at pumunta sa mga nayon. Nangaral sila ng Magandang Balita at nagpagaling ng mga may sakit kahit saan.
+
+## Naguluhan si Haring Herodes 
 
 
 
@@ -304,7 +306,9 @@ May nagsasabi namang siya si Elias na nagpakita ngayon. At may nagsasabi pang is
 
 
 
-Sinabi ni Herodes, "Pinapugutan ko ng ulo si Juan. Pero sino kaya itong nababalitaan ko? Marami akong kahanga-hangang bagay na narinig tungkol sa kanya." Kaya pinagsikapan ni Herodes na makita si Jesus. ## Pinakain ni Jesus ang 5,000 Tao 
+Sinabi ni Herodes, "Pinapugutan ko ng ulo si Juan. Pero sino kaya itong nababalitaan ko? Marami akong kahanga-hangang bagay na narinig tungkol sa kanya." Kaya pinagsikapan ni Herodes na makita si Jesus.
+
+## Pinakain ni Jesus ang 5,000 Tao 
 
 
 
@@ -568,7 +572,9 @@ Kinuha ni Jesus ang limang tinapay at dalawang isda. Tumingala siya sa langit at
 
 
 
-Kumain silang lahat at nabusog. Pagkatapos, tinipon nila ang natirang pagkain, at nakapuno sila ng 12 basket. ## Ang Pahayag ni Pedro tungkol kay Jesus 
+Kumain silang lahat at nabusog. Pagkatapos, tinipon nila ang natirang pagkain, at nakapuno sila ng 12 basket.
+
+## Ang Pahayag ni Pedro tungkol kay Jesus 
 
 
 
@@ -1195,7 +1201,9 @@ May narinig silang tinig mula sa ulap na nagsasabi, "Ito ang aking Anak, na akin
 
 
 
-Nang tumigil ang tinig, nakita nilang nag-iisa na lang si Jesus. Hindi muna nila sinabi kahit kanino ang mga nasaksihan nila nang mga panahong iyon. ## Pinagaling ni Jesus ang Batang Sinasaniban ng Masamang Espiritu 
+Nang tumigil ang tinig, nakita nilang nag-iisa na lang si Jesus. Hindi muna nila sinabi kahit kanino ang mga nasaksihan nila nang mga panahong iyon.
+
+## Pinagaling ni Jesus ang Batang Sinasaniban ng Masamang Espiritu 
 
 
 
@@ -1426,7 +1434,9 @@ Nang papalapit na ang bata, itinumba siya at pinangisay ng masamang espiritu. Pe
 
 
 
-Namangha ang lahat sa kapangyarihan ng Dios. ## Ang Ikalawang Pagpapahayag ni Jesus tungkol sa Kanyang Kamatayan Habang mangha pa ang lahat sa mga ginawa ni Jesus, sinabi niya sa mga tagasunod niya, 
+Namangha ang lahat sa kapangyarihan ng Dios.
+
+## Ang Ikalawang Pagpapahayag ni Jesus tungkol sa Kanyang Kamatayan Habang mangha pa ang lahat sa mga ginawa ni Jesus, sinabi niya sa mga tagasunod niya, 
 
 
 
@@ -1492,7 +1502,9 @@ Namangha ang lahat sa kapangyarihan ng Dios. ## Ang Ikalawang Pagpapahayag ni Je
 
 
 
-Pero hindi nila naunawaan ang sinasabi niya, dahil inilihim sa kanila ang kahulugan nito. Nag-aalangan naman silang magtanong sa kanya tungkol sa bagay na ito. ## Sino ang Pinakadakila? 
+Pero hindi nila naunawaan ang sinasabi niya, dahil inilihim sa kanila ang kahulugan nito. Nag-aalangan naman silang magtanong sa kanya tungkol sa bagay na ito.
+
+## Sino ang Pinakadakila? 
 
 
 
@@ -1855,7 +1867,9 @@ Pero lumingon si Jesus at pinagsabihan sila.
 
 
 
-At tumuloy na lang sila sa ibang nayon. ## Ang mga Nagnais Sumunod kay Jesus 
+At tumuloy na lang sila sa ibang nayon.
+
+## Ang mga Nagnais Sumunod kay Jesus 
 
 
 

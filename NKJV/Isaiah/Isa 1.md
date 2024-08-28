@@ -9,7 +9,9 @@ next: ['Isa 2']
 
 
 ###### 1 
-The vision of Isaiah the son of Amoz, which he saw concerning Judah and Jerusalem in the days of Uzziah, Jotham, Ahaz, _and_ Hezekiah, kings of Judah. ## The Wickedness of Judah 
+The vision of Isaiah the son of Amoz, which he saw concerning Judah and Jerusalem in the days of Uzziah, Jotham, Ahaz, _and_ Hezekiah, kings of Judah.
+
+## The Wickedness of Judah 
 
 ###### 2 
 Hear, O heavens, and give ear, O earth! For the Lord has spoken: "I have nourished and brought up children, And they have rebelled against Me; 
@@ -66,7 +68,9 @@ Learn to do good; Seek justice, Rebuke the oppressor; Defend the fatherless, Ple
 If you are willing and obedient, You shall eat the good of the land; 
 
 ###### 20 
-But if you refuse and rebel, You shall be devoured by the sword"; For the mouth of the Lord has spoken. ## The Degenerate City 
+But if you refuse and rebel, You shall be devoured by the sword"; For the mouth of the Lord has spoken.
+
+## The Degenerate City 
 
 ###### 21 
 How the faithful city has become a harlot! It was full of justice; Righteousness lodged in it, But now murderers. 

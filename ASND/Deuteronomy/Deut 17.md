@@ -436,7 +436,9 @@ Ang taong hindi tatanggap sa desisyon ng hukom o ng pari na naglilingkod sa Pang
 
 
 
-Kapag narinig ito ng lahat ng tao, matatakot sila at hindi na muling gagawa ng bagay na iyon. ## Ang mga Hari 
+Kapag narinig ito ng lahat ng tao, matatakot sila at hindi na muling gagawa ng bagay na iyon.
+
+## Ang mga Hari 
 
 
 

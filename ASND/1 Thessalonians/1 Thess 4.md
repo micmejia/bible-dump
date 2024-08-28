@@ -403,7 +403,9 @@ Sikapin ninyong mamuhay nang mapayapa, at huwag kayong makikialam sa buhay ng ib
 
 
 
-Nang sa ganoon, hindi nʼyo na kailangang umasa sa iba, at igagalang kayo ng mga hindi mananampalataya. ## Ang Pagbabalik ng Panginoon 
+Nang sa ganoon, hindi nʼyo na kailangang umasa sa iba, at igagalang kayo ng mga hindi mananampalataya.
+
+## Ang Pagbabalik ng Panginoon 
 
 
 

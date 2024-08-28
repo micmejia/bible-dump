@@ -70,7 +70,9 @@ Now therefore, please, you also stay here tonight, that I may know what more the
 And God came to Balaam at night and said to him, "If the men come to call you, rise _and_ go with them; but only the word which I speak to you--that you shall do." 
 
 ###### 21 
-So Balaam rose in the morning, saddled his donkey, and went with the princes of Moab. ## Balaam, the Donkey, and the Angel 
+So Balaam rose in the morning, saddled his donkey, and went with the princes of Moab.
+
+## Balaam, the Donkey, and the Angel 
 
 ###### 22 
 Then God's anger was aroused because he went, and the Angel of the Lord took His stand in the way as an adversary against him. And he was riding on his donkey, and his two servants _were_ with him. 
@@ -127,7 +129,9 @@ And Balaam said to Balak, "Look, I have come to you! Now, have I any power at al
 So Balaam went with Balak, and they came to Kirjath Huzoth. 
 
 ###### 40 
-Then Balak offered oxen and sheep, and he sent _some_ to Balaam and to the princes who _were_ with him. ## Balaam's First Prophecy 
+Then Balak offered oxen and sheep, and he sent _some_ to Balaam and to the princes who _were_ with him.
+
+## Balaam's First Prophecy 
 
 ###### 41 
 So it was, the next day, that Balak took Balaam and brought him up to the high places of Baal, that from there he might observe the extent of the people.

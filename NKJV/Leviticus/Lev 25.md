@@ -28,7 +28,9 @@ What grows of its own accord of your harvest you shall not reap, nor gather the 
 And the sabbath _produce_ of the land shall be food for you: for you, your male and female servants, your hired man, and the stranger who dwells with you, 
 
 ###### 7 
-for your livestock and the beasts that _are_ in your land--all its produce shall be for food. ## The Year of Jubilee 
+for your livestock and the beasts that _are_ in your land--all its produce shall be for food.
+
+## The Year of Jubilee 
 
 ###### 8 
 'And you shall count seven sabbaths of years for yourself, seven times seven years; and the time of the seven sabbaths of years shall be to you forty-nine years. 
@@ -58,7 +60,9 @@ According to the number of years after the Jubilee you shall buy from your neigh
 According to the multitude of years you shall increase its price, and according to the fewer number of years you shall diminish its price; for he sells to you _according_ to the number _of the years_ of the crops. 
 
 ###### 17 
-Therefore you shall not oppress one another, but you shall fear your God; for I _am_ the Lord your God. ## Provisions for the Seventh Year 
+Therefore you shall not oppress one another, but you shall fear your God; for I _am_ the Lord your God.
+
+## Provisions for the Seventh Year 
 
 ###### 18 
 'So you shall observe My statutes and keep My judgments, and perform them; and you will dwell in the land in safety. 
@@ -73,7 +77,9 @@ Then the land will yield its fruit, and you will eat your fill, and dwell there 
 Then I will command My blessing on you in the sixth year, and it will bring forth produce enough for three years. 
 
 ###### 22 
-And you shall sow in the eighth year, and eat old produce until the ninth year; until its produce comes in, you shall eat _of_ the old _harvest_. ## Redemption of Property 
+And you shall sow in the eighth year, and eat old produce until the ninth year; until its produce comes in, you shall eat _of_ the old _harvest_.
+
+## Redemption of Property 
 
 ###### 23 
 'The land shall not be sold permanently, for the land _is_ Mine; for you _are_ strangers and sojourners with Me. 
@@ -109,7 +115,9 @@ Nevertheless the cities of the Levites, _and_ the houses in the cities of their 
 And if a man purchases a house from the Levites, then the house that was sold in the city of his possession shall be released in the Jubilee; for the houses in the cities of the Levites _are_ their possession among the children of Israel. 
 
 ###### 34 
-But the field of the common-land of their cities may not be sold, for it _is_ their perpetual possession. ## Lending to the Poor 
+But the field of the common-land of their cities may not be sold, for it _is_ their perpetual possession.
+
+## Lending to the Poor 
 
 ###### 35 
 'If one of your brethren becomes poor, and falls into poverty among you, then you shall help him, like a stranger or a sojourner, that he may live with you. 
@@ -121,7 +129,9 @@ Take no usury or interest from him; but fear your God, that your brother may liv
 You shall not lend him your money for usury, nor lend him your food at a profit. 
 
 ###### 38 
-I _am_ the Lord your God, who brought you out of the land of Egypt, to give you the land of Canaan _and_ to be your God. ## The Law Concerning Slavery 
+I _am_ the Lord your God, who brought you out of the land of Egypt, to give you the land of Canaan _and_ to be your God.
+
+## The Law Concerning Slavery 
 
 ###### 39 
 'And if _one of_ your brethren _who dwells_ by you becomes poor, and sells himself to you, you shall not compel him to serve as a slave. 

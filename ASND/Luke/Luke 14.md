@@ -205,7 +205,9 @@ Pagkatapos, sinabi niya sa kanila, "Kung mahulog ang anak o baka ninyo sa isang 
 
 
 
-Hindi sila nakasagot sa tanong niya. ## Matutong Magpakababa 
+Hindi sila nakasagot sa tanong niya.
+
+## Matutong Magpakababa 
 
 
 

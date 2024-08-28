@@ -40,7 +40,9 @@ next: ['2 Chr 6']
 
 
 
-Nang matapos na ni Solomon ang lahat ng gawain para sa templo ng Panginoon, dinala niya sa bodega ng templo ang lahat ng bagay na itinalaga ng ama niyang si David pati na ang ginto, pilak at iba pang kagamitan. ## Dinala sa Templo ang Kahon ng Kasunduan 
+Nang matapos na ni Solomon ang lahat ng gawain para sa templo ng Panginoon, dinala niya sa bodega ng templo ang lahat ng bagay na itinalaga ng ama niyang si David pati na ang ginto, pilak at iba pang kagamitan.
+
+## Dinala sa Templo ang Kahon ng Kasunduan 
 
 
 
@@ -106,7 +108,9 @@ Ipinatawag ni <i class="trans-change">Haring_ Solomon sa Jerusalem ang mga tagap
 
 
 
-Pumunta silang lahat kay Haring <i class="trans-change">Solomon_ noong panahon ng Pista <i class="trans-change">ng Pagtatayo ng mga Kubol_, nang ikapitong buwan. ###### 4-5 Nang magkatipon na ang lahat ng tagapamahala ng Israel, kinuha ng mga pari at ng mga Levita ang Kahon, ang Toldang Tipanan at ang mga banal na gamit nito. Dinala nilang lahat ito sa templo. 
+Pumunta silang lahat kay Haring <i class="trans-change">Solomon_ noong panahon ng Pista <i class="trans-change">ng Pagtatayo ng mga Kubol_, nang ikapitong buwan.
+
+###### 4-5 Nang magkatipon na ang lahat ng tagapamahala ng Israel, kinuha ng mga pari at ng mga Levita ang Kahon, ang Toldang Tipanan at ang mga banal na gamit nito. Dinala nilang lahat ito sa templo. 
 
 
 

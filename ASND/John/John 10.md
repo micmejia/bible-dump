@@ -205,7 +205,9 @@ Ngunit hindi nila susundin ang iba; sa halip ay agad pa nga nila itong lalayuan,
 
 
 
-Sinabi ni Jesus sa mga tao ang paghahalintulad na ito, pero hindi nila naintindihan ang ibig niyang sabihin. ## Si Jesus ang Mabuting Pastol 
+Sinabi ni Jesus sa mga tao ang paghahalintulad na ito, pero hindi nila naintindihan ang ibig niyang sabihin.
+
+## Si Jesus ang Mabuting Pastol 
 
 
 

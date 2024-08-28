@@ -46,7 +46,9 @@ I will make each of My mountains a road, And My highways shall be elevated.
 Surely these shall come from afar; Look! Those from the north and the west, And these from the land of Sinim." 
 
 ###### 13 
-Sing, O heavens! Be joyful, O earth! And break out in singing, O mountains! For the Lord has comforted His people, And will have mercy on His afflicted. ## God Will Remember Zion 
+Sing, O heavens! Be joyful, O earth! And break out in singing, O mountains! For the Lord has comforted His people, And will have mercy on His afflicted.
+
+## God Will Remember Zion 
 
 ###### 14 
 But Zion said, "The Lord has forsaken me, And my Lord has forgotten me." 

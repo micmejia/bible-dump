@@ -58,7 +58,9 @@ For I have given you an example, that you should do as I have done to you.
 Most assuredly, I say to you, a servant is not greater than his master; nor is he who is sent greater than he who sent him. 
 
 ###### 17 
-If you know these things, blessed are you if you do them. ## Jesus Identifies His Betrayer 
+If you know these things, blessed are you if you do them.
+
+## Jesus Identifies His Betrayer 
 
 ###### 18 
 "I do not speak concerning all of you. I know whom I have chosen; but that the Scripture may be fulfilled, 'He who eats bread with Me has lifted up his heel against Me.' 
@@ -97,7 +99,9 @@ But no one at the table knew for what reason He said this to him.
 For some thought, because Judas had the money box, that Jesus had said to him, "Buy _those things_ we need for the feast," or that he should give something to the poor. 
 
 ###### 30 
-Having received the piece of bread, he then went out immediately. And it was night. ## The New Commandment 
+Having received the piece of bread, he then went out immediately. And it was night.
+
+## The New Commandment 
 
 ###### 31 
 So, when he had gone out, Jesus said, "Now the Son of Man is glorified, and God is glorified in Him. 

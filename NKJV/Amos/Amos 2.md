@@ -16,7 +16,9 @@ Thus says the Lord: "For three transgressions of Moab, and for four, I will not 
 But I will send a fire upon Moab, And it shall devour the palaces of Kerioth; Moab shall die with tumult, With shouting _and_ trumpet sound. 
 
 ###### 3 
-And I will cut off the judge from its midst, And slay all its princes with him," Says the Lord. ## Judgment on Judah 
+And I will cut off the judge from its midst, And slay all its princes with him," Says the Lord.
+
+## Judgment on Judah 
 
 ###### 4 
 Thus says the Lord: "For three transgressions of Judah, and for four, I will not turn away its _punishment,_ Because they have despised the law of the Lord, And have not kept His commandments. Their lies lead them astray, _Lies_ which their fathers followed. 

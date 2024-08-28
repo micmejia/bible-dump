@@ -139,7 +139,9 @@ Itoʼy sa dahilang hindi nila alam kung paano itinuturing ng Dios na matuwid ang
 
 
 
-Sapagkat <i class="trans-change">hindi nila alam na_ si Cristo ang hangganan ng Kautusan. Dahil sa kanyang ginawa, ang lahat ng sumasampalataya sa kanya ay itinuturing ng Dios na matuwid. ## Ang Kaligtasan ay para sa Lahat 
+Sapagkat <i class="trans-change">hindi nila alam na_ si Cristo ang hangganan ng Kautusan. Dahil sa kanyang ginawa, ang lahat ng sumasampalataya sa kanya ay itinuturing ng Dios na matuwid.
+
+## Ang Kaligtasan ay para sa Lahat 
 
 
 

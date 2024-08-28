@@ -28,7 +28,9 @@ The angel whom I saw standing on the sea and on the land raised up his hand to h
 and swore by Him who lives forever and ever, who created heaven and the things that are in it, the earth and the things that are in it, and the sea and the things that are in it, that there should be delay no longer, 
 
 ###### 7 
-but in the days of the sounding of the seventh angel, when he is about to sound, the mystery of God would be finished, as He declared to His servants the prophets. ## John Eats the Little Book 
+but in the days of the sounding of the seventh angel, when he is about to sound, the mystery of God would be finished, as He declared to His servants the prophets.
+
+## John Eats the Little Book 
 
 ###### 8 
 Then the voice which I heard from heaven spoke to me again and said, "Go, take the little book which is open in the hand of the angel who stands on the sea and on the earth." 

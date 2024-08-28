@@ -865,7 +865,9 @@ Sinabi ni Jesus, "Kung ganoon, ibigay ninyo sa Emperador ang para sa Emperador, 
 
 
 
-Nabigo sila sa pakay nilang mahuli si Jesus sa kanyang pananalita sa harapan ng mga tao. At dahil namangha sila sa sagot niya, tumahimik na lang sila. ## Ang Tanong tungkol sa Muling Pagkabuhay 
+Nabigo sila sa pakay nilang mahuli si Jesus sa kanyang pananalita sa harapan ng mga tao. At dahil namangha sila sa sagot niya, tumahimik na lang sila.
+
+## Ang Tanong tungkol sa Muling Pagkabuhay 
 
 
 
@@ -1261,7 +1263,9 @@ Sinabi ng ilang tagapagturo ng Kautusan, "Guro, mahusay ang sagot ninyo."
 
 
 
-At wala nang nangahas na magtanong sa kanya. ## Ang Tanong tungkol sa Cristo 
+At wala nang nangahas na magtanong sa kanya.
+
+## Ang Tanong tungkol sa Cristo 
 
 
 

@@ -46,7 +46,9 @@ Restore now to them, even this day, their lands, their vineyards, their olive gr
 So they said, "We will restore _it,_ and will require nothing from them; we will do as you say." Then I called the priests, and required an oath from them that they would do according to this promise. 
 
 ###### 13 
-Then I shook out the fold of my garment and said, "So may God shake out each man from his house, and from his property, who does not perform this promise. Even thus may he be shaken out and emptied." And all the assembly said, "Amen!" and praised the Lord. Then the people did according to this promise. ## The Generosity of Nehemiah 
+Then I shook out the fold of my garment and said, "So may God shake out each man from his house, and from his property, who does not perform this promise. Even thus may he be shaken out and emptied." And all the assembly said, "Amen!" and praised the Lord. Then the people did according to this promise.
+
+## The Generosity of Nehemiah 
 
 ###### 14 
 Moreover, from the time that I was appointed to be their governor in the land of Judah, from the twentieth year until the thirty-second year of King Artaxerxes, twelve years, neither I nor my brothers ate the governor's provisions. 

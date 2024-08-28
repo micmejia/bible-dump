@@ -25,7 +25,9 @@ But they kept silent. And He took _him_ and healed him, and let him go.
 Then He answered them, saying, "Which of you, having a donkey or an ox that has fallen into a pit, will not immediately pull him out on the Sabbath day?" 
 
 ###### 6 
-And they could not answer Him regarding these things. ## Take the Lowly Place 
+And they could not answer Him regarding these things.
+
+## Take the Lowly Place 
 
 ###### 7 
 So He told a parable to those who were invited, when He noted how they chose the best places, saying to them: 
@@ -106,7 +108,9 @@ Or what king, going to make war against another king, does not sit down first an
 Or else, while the other is still a great way off, he sends a delegation and asks conditions of peace. 
 
 ###### 33 
-So likewise, whoever of you does not forsake all that he has cannot be My disciple. ## Tasteless Salt Is Worthless 
+So likewise, whoever of you does not forsake all that he has cannot be My disciple.
+
+## Tasteless Salt Is Worthless 
 
 ###### 34 
 "Salt _is_ good; but if the salt has lost its flavor, how shall it be seasoned? 

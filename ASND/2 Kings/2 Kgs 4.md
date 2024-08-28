@@ -1228,7 +1228,9 @@ Tinawag ni Eliseo si Gehazi at sinabi, "Tawagin mo ang kanyang ina." Kaya tinawa
 
 
 
-Nagpatirapa ang babae sa paanan ni Eliseo <i class="trans-change">bilang pagpapasalamat_ <i class="trans-change">sa kanya_. Kinuha niya ang anak niya at dinala sa ibaba. ## Ang Himala sa Panahon ng Taggutom 
+Nagpatirapa ang babae sa paanan ni Eliseo <i class="trans-change">bilang pagpapasalamat_ <i class="trans-change">sa kanya_. Kinuha niya ang anak niya at dinala sa ibaba.
+
+## Ang Himala sa Panahon ng Taggutom 
 
 
 

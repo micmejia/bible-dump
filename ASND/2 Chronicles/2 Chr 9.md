@@ -403,7 +403,9 @@ Ginamit ng hari ang mga kahoy na almug para gawing hagdanan sa templo ng Pangino
 
 
 
-Ibinigay ni Haring Solomon sa reyna ng Sheba ang kahit anong hingin nito. Mas sobra pa ang ibinigay ni Solomon sa kanya kaysa sa dinala niya. Pagkatapos, umuwi na ang reyna kasama ng mga tauhan niya. ## Ang Kayamanan ni Solomon 
+Ibinigay ni Haring Solomon sa reyna ng Sheba ang kahit anong hingin nito. Mas sobra pa ang ibinigay ni Solomon sa kanya kaysa sa dinala niya. Pagkatapos, umuwi na ang reyna kasama ng mga tauhan niya.
+
+## Ang Kayamanan ni Solomon 
 
 
 
@@ -931,7 +933,9 @@ Noong panahon na siya ang hari, ang pilak sa Jerusalem ay gaya lang ng ordinaryo
 
 
 
-Ang mga kabayo ni Solomon ay nagmula sa Egipto at sa iba pang mga bansa. ## Ang Pagkamatay ni Solomon 
+Ang mga kabayo ni Solomon ay nagmula sa Egipto at sa iba pang mga bansa.
+
+## Ang Pagkamatay ni Solomon 
 
 
 

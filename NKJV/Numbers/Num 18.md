@@ -67,7 +67,9 @@ And their flesh shall be yours, just as the wave breast and the right thigh are 
 "All the heave offerings of the holy things, which the children of Israel offer to the Lord, I have given to you and your sons and daughters with you as an ordinance forever; it _is_ a covenant of salt forever before the Lord with you and your descendants with you." 
 
 ###### 20 
-Then the Lord said to Aaron: "You shall have no inheritance in their land, nor shall you have any portion among them; I _am_ your portion and your inheritance among the children of Israel. ## Tithes for Support of the Levites 
+Then the Lord said to Aaron: "You shall have no inheritance in their land, nor shall you have any portion among them; I _am_ your portion and your inheritance among the children of Israel.
+
+## Tithes for Support of the Levites 
 
 ###### 21 
 "Behold, I have given the children of Levi all the tithes in Israel as an inheritance in return for the work which they perform, the work of the tabernacle of meeting. 

@@ -19,7 +19,9 @@ The word of the Lord came again to me, saying:
 They committed harlotry in Egypt, They committed harlotry in their youth; Their breasts were there embraced, Their virgin bosom was there pressed. 
 
 ###### 4 
-Their names: Oholah the elder and Oholibah her sister; They were Mine, And they bore sons and daughters. _As for_ their names, Samaria _is_ Oholah, and Jerusalem _is_ Oholibah. ## The Older Sister, Samaria 
+Their names: Oholah the elder and Oholibah her sister; They were Mine, And they bore sons and daughters. _As for_ their names, Samaria _is_ Oholah, and Jerusalem _is_ Oholibah.
+
+## The Older Sister, Samaria 
 
 ###### 5 
 "Oholah played the harlot even though she was Mine; And she lusted for her lovers, the neighboring Assyrians, 
@@ -37,7 +39,9 @@ She has never given up her harlotry _brought_ from Egypt, For in her youth they 
 "Therefore I have delivered her Into the hand of her lovers, Into the hand of the Assyrians, For whom she lusted. 
 
 ###### 10 
-They uncovered her nakedness, Took away her sons and daughters, And slew her with the sword; She became a byword among women, For they had executed judgment on her. ## The Younger Sister, Jerusalem 
+They uncovered her nakedness, Took away her sons and daughters, And slew her with the sword; She became a byword among women, For they had executed judgment on her.
+
+## The Younger Sister, Jerusalem 
 
 ###### 11 
 "Now although her sister Oholibah saw _this,_ she became more corrupt in her lust than she, and in her harlotry more corrupt than her sister's harlotry. 
@@ -70,7 +74,9 @@ She revealed her harlotry and uncovered her nakedness. Then I alienated Myself f
 For she lusted for her paramours, Whose flesh _is like_ the flesh of donkeys, And whose issue _is like_ the issue of horses. 
 
 ###### 21 
-Thus you called to remembrance the lewdness of your youth, When the Egyptians pressed your bosom Because of your youthful breasts. ## Judgment on Jerusalem 
+Thus you called to remembrance the lewdness of your youth, When the Egyptians pressed your bosom Because of your youthful breasts.
+
+## Judgment on Jerusalem 
 
 ###### 22 
 "Therefore, Oholibah, thus says the Lord God: 'Behold, I will stir up your lovers against you, From whom you have alienated yourself, And I will bring them against you from every side: 

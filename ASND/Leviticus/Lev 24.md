@@ -7,7 +7,9 @@ next: ['Lev 25']
 # Leviticus 24
 
 ***
-###### 1-4 Sinabi ng Panginoon kay Moises na iutos ito sa mga Israelita: Magdala kayo ng purong langis mula sa pinigang olibo para sa ilaw na nasa labas ng kwarto kung saan nakalagay ang <i class="trans-change">Kahon_ ng Kasunduan doon sa Toldang Tipanan, para patuloy itong magningas sa presensya ng Panginoon. Sisindihan ito ni Aaron tuwing takip-silim at patuloy na pagniningasin hanggang sa umaga. Dapat tiyakin na laging nagniningas ang mga ilaw sa patungang ginto nito. Dapat ninyong sundin ang tuntuning ito, kayo at ng susunod pang mga henerasyon. ## Ang mga Tinapay na Inihahandog sa Presensya ng Dios 
+###### 1-4 Sinabi ng Panginoon kay Moises na iutos ito sa mga Israelita: Magdala kayo ng purong langis mula sa pinigang olibo para sa ilaw na nasa labas ng kwarto kung saan nakalagay ang <i class="trans-change">Kahon_ ng Kasunduan doon sa Toldang Tipanan, para patuloy itong magningas sa presensya ng Panginoon. Sisindihan ito ni Aaron tuwing takip-silim at patuloy na pagniningasin hanggang sa umaga. Dapat tiyakin na laging nagniningas ang mga ilaw sa patungang ginto nito. Dapat ninyong sundin ang tuntuning ito, kayo at ng susunod pang mga henerasyon.
+
+## Ang mga Tinapay na Inihahandog sa Presensya ng Dios 
 
 
 
@@ -172,7 +174,9 @@ Dapat laging maglagay ng tinapay sa presensya ng Panginoon tuwing Araw ng Pamama
 
 
 
-Ang mga tinapay na itoʼy para kay Aaron at sa kanyang angkan. Kakainin nila ito sa banal na lugar <i class="trans-change">doon sa Tolda_, dahil ito ang pinakabanal na bahagi ng mga handog sa pamamagitan ng apoy para sa Panginoon, at itoʼy para sa kanila magpakailanman. ## Ang Parusa sa Panlalait sa Dios at Pamiminsala sa Kapwa <sup class="versenum">10-11</sup>May isang tao noon na ang ama ay isang Egipcio at ang ina ay Israelita. (Ang pangalan ng ina niya ay si Shelomit na anak ni Dibri na mula sa lahi ni Dan). Siyaʼy nakipag-away sa isang Israelita roon sa kampo, at nilapastangan niya ang pangalan ng Panginoon. Kaya dinala nila siya kay Moises, 
+Ang mga tinapay na itoʼy para kay Aaron at sa kanyang angkan. Kakainin nila ito sa banal na lugar <i class="trans-change">doon sa Tolda_, dahil ito ang pinakabanal na bahagi ng mga handog sa pamamagitan ng apoy para sa Panginoon, at itoʼy para sa kanila magpakailanman.
+
+## Ang Parusa sa Panlalait sa Dios at Pamiminsala sa Kapwa <sup class="versenum">10-11</sup>May isang tao noon na ang ama ay isang Egipcio at ang ina ay Israelita. (Ang pangalan ng ina niya ay si Shelomit na anak ni Dibri na mula sa lahi ni Dan). Siyaʼy nakipag-away sa isang Israelita roon sa kampo, at nilapastangan niya ang pangalan ng Panginoon. Kaya dinala nila siya kay Moises, 
 
 
 

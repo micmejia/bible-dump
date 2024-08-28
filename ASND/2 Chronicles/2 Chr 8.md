@@ -205,7 +205,9 @@ Pinatibay niya ang itaas at ilalim na bahagi ng Bet Horon. Pinaligiran niya ito 
 
 
 
-Ganito rin ang ginawa niya sa Baalat at sa iba pang mga lungsod na lagayan ng kanyang mga pangangailangan, mga karwahe at mga kabayo. Ipinatayo niya ang lahat ng gusto niyang ipatayo sa Jerusalem, Lebanon at sa lahat ng lupaing sakop niya. ###### 7-8 May mga tao pang naiwan sa Israel na hindi mga Israelita. Sila ang mga lahi ng mga Heteo, Amoreo, Perezeo, Hiveo at mga Jebuseo, na hindi nalipol ng mga Israelita <i class="trans-change">nang agawin nila ang lupain ng Canaan_. Ginawa silang alipin ni Solomon at pinilit na gumawa, at nanatili silang alipin hanggang ngayon. 
+Ganito rin ang ginawa niya sa Baalat at sa iba pang mga lungsod na lagayan ng kanyang mga pangangailangan, mga karwahe at mga kabayo. Ipinatayo niya ang lahat ng gusto niyang ipatayo sa Jerusalem, Lebanon at sa lahat ng lupaing sakop niya.
+
+###### 7-8 May mga tao pang naiwan sa Israel na hindi mga Israelita. Sila ang mga lahi ng mga Heteo, Amoreo, Perezeo, Hiveo at mga Jebuseo, na hindi nalipol ng mga Israelita <i class="trans-change">nang agawin nila ang lupain ng Canaan_. Ginawa silang alipin ni Solomon at pinilit na gumawa, at nanatili silang alipin hanggang ngayon. 
 
 
 

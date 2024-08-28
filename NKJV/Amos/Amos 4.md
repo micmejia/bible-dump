@@ -22,7 +22,9 @@ You will go out _through_ broken _walls,_ Each one straight ahead of her, And yo
 "Come to Bethel and transgress, At Gilgal multiply transgression; Bring your sacrifices every morning, Your tithes every three days. 
 
 ###### 5 
-Offer a sacrifice of thanksgiving with leaven, Proclaim _and_ announce the freewill offerings; For this you love, _You_ children of Israel!" Says the Lord God. ## Israel Did Not Accept Correction 
+Offer a sacrifice of thanksgiving with leaven, Proclaim _and_ announce the freewill offerings; For this you love, _You_ children of Israel!" Says the Lord God.
+
+## Israel Did Not Accept Correction 
 
 ###### 6 
 "Also I gave you cleanness of teeth in all your cities, And lack of bread in all your places; Yet you have not returned to Me," Says the Lord. 

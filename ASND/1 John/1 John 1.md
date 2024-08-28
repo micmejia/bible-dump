@@ -138,7 +138,9 @@ Ipinapahayag namin sa inyo ang nakita at narinig namin upang maging kaisa namin 
 
 
 
-Isinusulat namin ito upang malubos ang aming kagalakan. ## Ang Pamumuhay sa Liwanag 
+Isinusulat namin ito upang malubos ang aming kagalakan.
+
+## Ang Pamumuhay sa Liwanag 
 
 
 

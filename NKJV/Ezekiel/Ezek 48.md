@@ -93,7 +93,9 @@ by the border of Zebulun, from the east side to the west, Gad _shall have_ one _
 by the border of Gad, on the south side, toward the South, the border shall be from Tamar _to_ the waters of Meribah _by_ Kadesh, along the brook to the Great Sea. 
 
 ###### 29 
-This _is_ the land which you shall divide by lot as an inheritance among the tribes of Israel, and these _are_ their portions," says the Lord God. ## The Gates of the City and Its Name 
+This _is_ the land which you shall divide by lot as an inheritance among the tribes of Israel, and these _are_ their portions," says the Lord God.
+
+## The Gates of the City and Its Name 
 
 ###### 30 
 "These _are_ the exits of the city. On the north side, measuring four thousand five hundred _cubits_ 

@@ -667,7 +667,9 @@ Huwag kayong maglalasing dahil nakakasira ito ng maayos na pamumuhay. Sa halip, 
 
 
 
-Lagi kayong magpasalamat sa Dios Ama sa lahat ng bagay bilang mananampalataya ng ating Panginoong Jesu-Cristo. ## Aral sa mga Mag-asawa 
+Lagi kayong magpasalamat sa Dios Ama sa lahat ng bagay bilang mananampalataya ng ating Panginoong Jesu-Cristo.
+
+## Aral sa mga Mag-asawa 
 
 
 

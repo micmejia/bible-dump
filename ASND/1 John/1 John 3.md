@@ -337,7 +337,9 @@ Ang sinumang naging anak ng Dios ay hindi na nagpapatuloy sa kasalanan dahil ang
 
 
 
-At dito makikilala kung sino ang mga anak ng Dios at kung sino ang mga anak ng diyablo: ang lahat ng hindi gumagawa ng matuwid o hindi nagmamahal sa kanyang kapatid ay hindi anak ng Dios. ## Magmahalan Tayo 
+At dito makikilala kung sino ang mga anak ng Dios at kung sino ang mga anak ng diyablo: ang lahat ng hindi gumagawa ng matuwid o hindi nagmamahal sa kanyang kapatid ay hindi anak ng Dios.
+
+## Magmahalan Tayo 
 
 
 

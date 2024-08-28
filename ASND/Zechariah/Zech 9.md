@@ -271,7 +271,9 @@ Hindi na sila kakain ng karneng may dugo o ng mga pagkaing ipinagbabawal na kain
 
 
 
-Iingatan ng Panginoon ang kanyang templo laban sa mga sumasalakay. Wala nang mang-aapi sa mga mamamayan niya dahil binabantayan na niya sila. ## Ang Darating na Hari ng Jerusalem 
+Iingatan ng Panginoon ang kanyang templo laban sa mga sumasalakay. Wala nang mang-aapi sa mga mamamayan niya dahil binabantayan na niya sila.
+
+## Ang Darating na Hari ng Jerusalem 
 
 
 

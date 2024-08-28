@@ -22,7 +22,9 @@ And not only _that,_ but we also glory in tribulations, knowing that tribulation
 and perseverance, character; and character, hope. 
 
 ###### 5 
-Now hope does not disappoint, because the love of God has been poured out in our hearts by the Holy Spirit who was given to us. ## Christ in Our Place 
+Now hope does not disappoint, because the love of God has been poured out in our hearts by the Holy Spirit who was given to us.
+
+## Christ in Our Place 
 
 ###### 6 
 For when we were still without strength, in due time Christ died for the ungodly. 
@@ -40,7 +42,9 @@ Much more then, having now been justified by His blood, we shall be saved from w
 For if when we were enemies we were reconciled to God through the death of His Son, much more, having been reconciled, we shall be saved by His life. 
 
 ###### 11 
-And not only _that,_ but we also rejoice in God through our Lord Jesus Christ, through whom we have now received the reconciliation. ## Death in Adam, Life in Christ 
+And not only _that,_ but we also rejoice in God through our Lord Jesus Christ, through whom we have now received the reconciliation.
+
+## Death in Adam, Life in Christ 
 
 ###### 12 
 Therefore, just as through one man sin entered the world, and death through sin, and thus death spread to all men, because all sinned-- 

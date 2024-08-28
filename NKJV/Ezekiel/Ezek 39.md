@@ -37,7 +37,9 @@ Surely it is coming, and it shall be done," says the Lord God. "This _is_ the da
 "Then those who dwell in the cities of Israel will go out and set on fire and burn the weapons, both the shields and bucklers, the bows and arrows, the javelins and spears; and they will make fires with them for seven years. 
 
 ###### 10 
-They will not take wood from the field nor cut down _any_ from the forests, because they will make fires with the weapons; and they will plunder those who plundered them, and pillage those who pillaged them," says the Lord God. ## The Burial of Gog 
+They will not take wood from the field nor cut down _any_ from the forests, because they will make fires with the weapons; and they will plunder those who plundered them, and pillage those who pillaged them," says the Lord God.
+
+## The Burial of Gog 
 
 ###### 11 
 "It will come to pass in that day _that_ I will give Gog a burial place there in Israel, the valley of those who pass by east of the sea; and it will obstruct travelers, because there they will bury Gog and all his multitude. Therefore they will call _it_ the Valley of Hamon Gog. 
@@ -67,7 +69,9 @@ You shall eat the flesh of the mighty, Drink the blood of the princes of the ear
 You shall eat fat till you are full, And drink blood till you are drunk, At My sacrificial meal Which I am sacrificing for you. 
 
 ###### 20 
-You shall be filled at My table With horses and riders, With mighty men And with all the men of war," says the Lord God. ## Israel Restored to the Land 
+You shall be filled at My table With horses and riders, With mighty men And with all the men of war," says the Lord God.
+
+## Israel Restored to the Land 
 
 ###### 21 
 "I will set My glory among the nations; all the nations shall see My judgment which I have executed, and My hand which I have laid on them. 

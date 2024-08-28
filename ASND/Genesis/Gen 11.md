@@ -73,7 +73,9 @@ Noon, isang wika lang ang ginagamit ng lahat ng tao sa buong mundo.
 
 
 
-Habang lumilipat ng tirahan ang mga tao patungo sa silangan, nakarating sila sa isang patag na lugar sa Shinar, at doon sila nanirahan. ###### 3-4 Ngayon, sinabi ng mga tao, "Magtayo tayo ng isang lungsod na may tore na aabot sa langit, para maging tanyag tayo at hindi mangalat sa buong mundo." Kaya gumawa sila ng mga tisa, at pinainitan nila ito nang mabuti para tumigas nang husto. Tisa ang ginamit nila sa halip na bato. At aspalto ang ginamit nila bilang semento. 
+Habang lumilipat ng tirahan ang mga tao patungo sa silangan, nakarating sila sa isang patag na lugar sa Shinar, at doon sila nanirahan.
+
+###### 3-4 Ngayon, sinabi ng mga tao, "Magtayo tayo ng isang lungsod na may tore na aabot sa langit, para maging tanyag tayo at hindi mangalat sa buong mundo." Kaya gumawa sila ng mga tisa, at pinainitan nila ito nang mabuti para tumigas nang husto. Tisa ang ginamit nila sa halip na bato. At aspalto ang ginamit nila bilang semento. 
 
 
 
@@ -238,7 +240,9 @@ Kaya pinangalat sila ng Panginoon sa buong mundo <i class="trans-change">dahil h
 
 
 
-Ang lungsod na ito ay tinawag na Babel dahil doon pinag-iba-iba ng Panginoon ang wika ng mga tao, at mula roon ay pinangalat niya sila sa buong mundo. ## Ang mga Lahi ni Shem 
+Ang lungsod na ito ay tinawag na Babel dahil doon pinag-iba-iba ng Panginoon ang wika ng mga tao, at mula roon ay pinangalat niya sila sa buong mundo.
+
+## Ang mga Lahi ni Shem 
 
 
 
@@ -799,7 +803,9 @@ Matapos isilang si Tera, nabuhay pa si Nahor ng 119 na taon at nadagdagan pa ang
 
 
 
-Nang 70 taong gulang na si Tera, isinilang ang mga anak niyang lalaki na sina Abram, Nahor at Haran. ## Ang mga Lahi ni Tera 
+Nang 70 taong gulang na si Tera, isinilang ang mga anak niyang lalaki na sina Abram, Nahor at Haran.
+
+## Ang mga Lahi ni Tera 
 
 
 

@@ -73,7 +73,9 @@ Ngayon, masasabi mong dapat lang hatulan ang mga taong ito dahil sa kanilang kas
 
 
 
-Alam nating makatarungan ang hatol ng Dios sa mga taong gumagawa ng kasamaan. ###### 3-4 Pero sino ka para humatol sa iba kung ikaw mismo ay gumagawa rin ng mga iyon? Ang akala mo baʼy makakaligtas ka sa hatol ng Dios dahil alam mong siyaʼy mabuti, matiyaga at mapagtimpi? Dapat mong malaman na ang Dios ay mabuti sa iyo dahil binibigyan ka niya ng pagkakataong magsisi sa mga kasalanan mo. 
+Alam nating makatarungan ang hatol ng Dios sa mga taong gumagawa ng kasamaan.
+
+###### 3-4 Pero sino ka para humatol sa iba kung ikaw mismo ay gumagawa rin ng mga iyon? Ang akala mo baʼy makakaligtas ka sa hatol ng Dios dahil alam mong siyaʼy mabuti, matiyaga at mapagtimpi? Dapat mong malaman na ang Dios ay mabuti sa iyo dahil binibigyan ka niya ng pagkakataong magsisi sa mga kasalanan mo. 
 
 
 
@@ -469,7 +471,9 @@ Ang <i class="trans-change">mabubuting_ gawa nila ay nagpapakita na ang iniuutos
 
 
 
-At ayon sa Magandang Balita na itinuturo ko, ang konsensya ay pagbabatayan din sa araw na hahatulan ng Dios, sa pamamagitan ni Jesu-Cristo, ang lahat ng lihim ng mga tao. ## Ang mga Judio at ang Kautusan 
+At ayon sa Magandang Balita na itinuturo ko, ang konsensya ay pagbabatayan din sa araw na hahatulan ng Dios, sa pamamagitan ni Jesu-Cristo, ang lahat ng lihim ng mga tao.
+
+## Ang mga Judio at ang Kautusan 
 
 
 

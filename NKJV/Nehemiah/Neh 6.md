@@ -49,7 +49,9 @@ Then I perceived that God had not sent him at all, but that he pronounced _this_
 For this reason he _was_ hired, that I should be afraid and act that way and sin, so _that_ they might have _cause_ for an evil report, that they might reproach me. 
 
 ###### 14 
-My God, remember Tobiah and Sanballat, according to these their works, and the prophetess Noadiah and the rest of the prophets who would have made me afraid. ## The Wall Completed 
+My God, remember Tobiah and Sanballat, according to these their works, and the prophetess Noadiah and the rest of the prophets who would have made me afraid.
+
+## The Wall Completed 
 
 ###### 15 
 So the wall was finished on the twenty-fifth _day_ of Elul, in fifty-two days. 

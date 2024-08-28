@@ -370,7 +370,9 @@ Datiʼy kaaway tayo ng Dios, pero ngayon, tinanggap na niya tayong mga kaibigan 
 
 
 
-Hindi lang iyan, nagagalak tayo sa relasyon natin sa Dios ngayon dahil sa ginawa ng ating Panginoong Jesu-Cristo. Naibalik na ang magandang relasyon natin sa Dios dahil sa kanya. ## Si Adan at si Cristo 
+Hindi lang iyan, nagagalak tayo sa relasyon natin sa Dios ngayon dahil sa ginawa ng ating Panginoong Jesu-Cristo. Naibalik na ang magandang relasyon natin sa Dios dahil sa kanya.
+
+## Si Adan at si Cristo 
 
 
 

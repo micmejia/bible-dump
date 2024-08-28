@@ -55,7 +55,9 @@ And the armies in heaven, clothed in fine linen, white and clean, followed Him o
 Now out of His mouth goes a sharp sword, that with it He should strike the nations. And He Himself will rule them with a rod of iron. He Himself treads the winepress of the fierceness and wrath of Almighty God. 
 
 ###### 16 
-And He has on _His_ robe and on His thigh a name written: KING OF KINGS AND LORD OF LORDS. ## The Beast and His Armies Defeated 
+And He has on _His_ robe and on His thigh a name written: KING OF KINGS AND LORD OF LORDS.
+
+## The Beast and His Armies Defeated 
 
 ###### 17 
 Then I saw an angel standing in the sun; and he cried with a loud voice, saying to all the birds that fly in the midst of heaven, "Come and gather together for the supper of the great God, 

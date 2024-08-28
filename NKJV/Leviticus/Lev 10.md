@@ -28,7 +28,9 @@ So they went near and carried them by their tunics out of the camp, as Moses had
 And Moses said to Aaron, and to Eleazar and Ithamar, his sons, "Do not uncover your heads nor tear your clothes, lest you die, and wrath come upon all the people. But let your brethren, the whole house of Israel, bewail the burning which the Lord has kindled. 
 
 ###### 7 
-You shall not go out from the door of the tabernacle of meeting, lest you die, for the anointing oil of the Lord _is_ upon you." And they did according to the word of Moses. ## Conduct Prescribed for Priests 
+You shall not go out from the door of the tabernacle of meeting, lest you die, for the anointing oil of the Lord _is_ upon you." And they did according to the word of Moses.
+
+## Conduct Prescribed for Priests 
 
 ###### 8 
 Then the Lord spoke to Aaron, saying: 

@@ -43,7 +43,9 @@ Then the border turned westward from Baalah to Mount Seir, passed along to the s
 And the border went out to the side of Ekron northward. Then the border went around to Shicron, passed along to Mount Baalah, and extended to Jabneel; and the border ended at the sea. 
 
 ###### 12 
-The west border _was_ the coastline of the Great Sea. This _is_ the boundary of the children of Judah all around according to their families. ## Caleb Occupies Hebron and Debir 
+The west border _was_ the coastline of the Great Sea. This _is_ the boundary of the children of Judah all around according to their families.
+
+## Caleb Occupies Hebron and Debir 
 
 ###### 13 
 Now to Caleb the son of Jephunneh he gave a share among the children of Judah, according to the commandment of the Lord to Joshua, _namely,_ Kirjath Arba, which _is_ Hebron (_Arba was_ the father of Anak). 
@@ -64,7 +66,9 @@ So Othniel the son of Kenaz, the brother of Caleb, took it; and he gave him Achs
 Now it was so, when she came _to him,_ that she persuaded him to ask her father for a field. So she dismounted from _her_ donkey, and Caleb said to her, "What do you wish?" 
 
 ###### 19 
-She answered, "Give me a blessing; since you have given me land in the South, give me also springs of water." So he gave her the upper springs and the lower springs. ## The Cities of Judah 
+She answered, "Give me a blessing; since you have given me land in the South, give me also springs of water." So he gave her the upper springs and the lower springs.
+
+## The Cities of Judah 
 
 ###### 20 
 This _was_ the inheritance of the tribe of the children of Judah according to their families: 

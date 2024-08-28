@@ -238,7 +238,9 @@ Nasa 600 taong gulang na si Noe nang dumating ang baha sa mundo.
 
 
 
-Pumasok siya sa barko kasama ang asawa niya, mga anak na lalaki, at mga manugang para hindi sila mamatay sa baha. ###### 8-9 Ayon sa iniutos ng Dios kay Noe, pinapasok niya sa barko ang bawat pares ng lahat ng uri ng hayop na malinis at marumi na lumapit sa kanya. 
+Pumasok siya sa barko kasama ang asawa niya, mga anak na lalaki, at mga manugang para hindi sila mamatay sa baha.
+
+###### 8-9 Ayon sa iniutos ng Dios kay Noe, pinapasok niya sa barko ang bawat pares ng lahat ng uri ng hayop na malinis at marumi na lumapit sa kanya. 
 
 
 

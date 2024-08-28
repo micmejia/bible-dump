@@ -931,7 +931,9 @@ Kaya sinabi ni Jesus sa kanya, "Dahil sa sagot mong iyan, maaari ka nang umuwi. 
 
 
 
-Umuwi nga ang babae at nadatnan ang anak niya sa higaan, at wala na nga ang masamang espiritu sa kanya. ## Pinagaling ni Jesus ang Isang Pipiʼt Bingi 
+Umuwi nga ang babae at nadatnan ang anak niya sa higaan, at wala na nga ang masamang espiritu sa kanya.
+
+## Pinagaling ni Jesus ang Isang Pipiʼt Bingi 
 
 
 

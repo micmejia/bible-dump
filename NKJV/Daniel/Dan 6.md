@@ -34,7 +34,9 @@ All the governors of the kingdom, the administrators and satraps, the counselors
 Now, O king, establish the decree and sign the writing, so that it cannot be changed, according to the law of the Medes and Persians, which does not alter." 
 
 ###### 9 
-Therefore King Darius signed the written decree. ## Daniel in the Lions' Den 
+Therefore King Darius signed the written decree.
+
+## Daniel in the Lions' Den 
 
 ###### 10 
 Now when Daniel knew that the writing was signed, he went home. And in his upper room, with his windows open toward Jerusalem, he knelt down on his knees three times that day, and prayed and gave thanks before his God, as was his custom since early days. 
@@ -58,7 +60,9 @@ Then these men approached the king, and said to the king, "Know, O king, that _i
 So the king gave the command, and they brought Daniel and cast _him_ into the den of lions. _But_ the king spoke, saying to Daniel, "Your God, whom you serve continually, He will deliver you." 
 
 ###### 17 
-Then a stone was brought and laid on the mouth of the den, and the king sealed it with his own signet ring and with the signets of his lords, that the purpose concerning Daniel might not be changed. ## Daniel Saved from the Lions 
+Then a stone was brought and laid on the mouth of the den, and the king sealed it with his own signet ring and with the signets of his lords, that the purpose concerning Daniel might not be changed.
+
+## Daniel Saved from the Lions 
 
 ###### 18 
 Now the king went to his palace and spent the night fasting; and no musicians were brought before him. Also his sleep went from him. 
@@ -76,7 +80,9 @@ Then Daniel said to the king, "O king, live forever!
 My God sent His angel and shut the lions' mouths, so that they have not hurt me, because I was found innocent before Him; and also, O king, I have done no wrong before you." 
 
 ###### 23 
-Now the king was exceedingly glad for him, and commanded that they should take Daniel up out of the den. So Daniel was taken up out of the den, and no injury whatever was found on him, because he believed in his God. ## Darius Honors God 
+Now the king was exceedingly glad for him, and commanded that they should take Daniel up out of the den. So Daniel was taken up out of the den, and no injury whatever was found on him, because he believed in his God.
+
+## Darius Honors God 
 
 ###### 24 
 And the king gave the command, and they brought those men who had accused Daniel, and they cast _them_ into the den of lions--them, their children, and their wives; and the lions overpowered them, and broke all their bones in pieces before they ever came to the bottom of the den. 

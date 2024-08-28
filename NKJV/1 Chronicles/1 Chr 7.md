@@ -22,7 +22,9 @@ The son of Uzzi _was_ Izrahiah, and the sons of Izrahiah _were_ Michael, Obadiah
 And with them, by their generations, according to their fathers' houses, _were_ thirty-six thousand troops ready for war; for they had many wives and sons. 
 
 ###### 5 
-Now their brethren among all the families of Issachar _were_ mighty men of valor, listed by their genealogies, eighty-seven thousand in all. ## The Family of Benjamin 
+Now their brethren among all the families of Issachar _were_ mighty men of valor, listed by their genealogies, eighty-seven thousand in all.
+
+## The Family of Benjamin 
 
 ###### 6 
 _The sons_ of Benjamin _were_ Bela, Becher, and Jediael--three _in all._ 
@@ -43,10 +45,14 @@ The son of Jediael _was_ Bilhan, and the sons of Bilhan _were_ Jeush, Benjamin, 
 All these sons of Jediael _were_ heads of their fathers' houses; _there were_ seventeen thousand two hundred mighty men of valor fit to go out for war _and_ battle. 
 
 ###### 12 
-Shuppim and Huppim _were_ the sons of Ir, _and_ Hushim _was_ the son of Aher. ## The Family of Naphtali 
+Shuppim and Huppim _were_ the sons of Ir, _and_ Hushim _was_ the son of Aher.
+
+## The Family of Naphtali 
 
 ###### 13 
-The sons of Naphtali _were_ Jahziel, Guni, Jezer, and Shallum, the sons of Bilhah. ## The Family of Manasseh (West) 
+The sons of Naphtali _were_ Jahziel, Guni, Jezer, and Shallum, the sons of Bilhah.
+
+## The Family of Manasseh (West) 
 
 ###### 14 
 The descendants of Manasseh: his Syrian concubine bore him Machir the father of Gilead, the father of Asriel. 
@@ -64,7 +70,9 @@ The son of Ulam _was_ Bedan.) These _were_ the descendants of Gilead the son of 
 His sister Hammoleketh bore Ishhod, Abiezer, and Mahlah. 
 
 ###### 19 
-And the sons of Shemida were Ahian, Shechem, Likhi, and Aniam. ## The Family of Ephraim 
+And the sons of Shemida were Ahian, Shechem, Likhi, and Aniam.
+
+## The Family of Ephraim 
 
 ###### 20 
 The sons of Ephraim _were_ Shuthelah, Bered his son, Tahath his son, Eladah his son, Tahath his son, 
@@ -94,7 +102,9 @@ Nun his son, and Joshua his son.
 Now their possessions and dwelling places _were_ Bethel and its towns: to the east Naaran, to the west Gezer and its towns, and Shechem and its towns, as far as Ayyah and its towns; 
 
 ###### 29 
-and by the borders of the children of Manasseh _were_ Beth Shean and its towns, Taanach and its towns, Megiddo and its towns, Dor and its towns. In these dwelt the children of Joseph, the son of Israel. ## The Family of Asher 
+and by the borders of the children of Manasseh _were_ Beth Shean and its towns, Taanach and its towns, Megiddo and its towns, Dor and its towns. In these dwelt the children of Joseph, the son of Israel.
+
+## The Family of Asher 
 
 ###### 30 
 The sons of Asher _were_ Imnah, Ishvah, Ishvi, Beriah, and their sister Serah. 

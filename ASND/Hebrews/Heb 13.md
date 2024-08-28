@@ -699,7 +699,9 @@ Idinadalangin ko rin kayo sa Dios na siyang pinagmumulan ng kapayapaan. Siya ang
 
 
 
-Nawaʼy ipagkaloob niya sa inyo ang lahat ng inyong kailangan para masunod ninyo ang kalooban niya. At sa pamamagitan ni Jesu-Cristo, nawaʼy gawin niya sa atin ang kalugod-lugod sa kanyang paningin. Purihin natin siya magpakailanman. Amen. ## Huling Bilin 
+Nawaʼy ipagkaloob niya sa inyo ang lahat ng inyong kailangan para masunod ninyo ang kalooban niya. At sa pamamagitan ni Jesu-Cristo, nawaʼy gawin niya sa atin ang kalugod-lugod sa kanyang paningin. Purihin natin siya magpakailanman. Amen.
+
+## Huling Bilin 
 
 
 

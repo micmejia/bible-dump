@@ -238,7 +238,9 @@ pinagsasalita nila ito ng "Shibolet", dahil ang mga taga-Efraim ay hindi makabig
 
 
 
-Pinamunuan ni Jefta ang Israel sa loob ng anim na taon. Nang mamatay siya, inilibing siya sa isang bayan sa Gilead. ## Si Ibzan, si Elon, at si Abdon 
+Pinamunuan ni Jefta ang Israel sa loob ng anim na taon. Nang mamatay siya, inilibing siya sa isang bayan sa Gilead.
+
+## Si Ibzan, si Elon, at si Abdon 
 
 
 

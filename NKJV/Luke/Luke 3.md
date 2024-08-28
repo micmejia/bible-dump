@@ -67,7 +67,9 @@ And with many other exhortations he preached to the people.
 But Herod the tetrarch, being rebuked by him concerning Herodias, his brother Philip's wife, and for all the evils which Herod had done, 
 
 ###### 20 
-also added this, above all, that he shut John up in prison. ## John Baptizes Jesus 
+also added this, above all, that he shut John up in prison.
+
+## John Baptizes Jesus 
 
 ###### 21 
 When all the people were baptized, it came to pass that Jesus also was baptized; and while He prayed, the heaven was opened. 

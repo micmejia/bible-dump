@@ -37,7 +37,9 @@ and a letter to Asaph the keeper of the king's forest, that he must give me timb
 Then I went to the governors _in the region_ beyond the River, and gave them the king's letters. Now the king had sent captains of the army and horsemen with me. 
 
 ###### 10 
-When Sanballat the Horonite and Tobiah the Ammonite official heard _of it,_ they were deeply disturbed that a man had come to seek the well-being of the children of Israel. ## Nehemiah Views the Wall of Jerusalem 
+When Sanballat the Horonite and Tobiah the Ammonite official heard _of it,_ they were deeply disturbed that a man had come to seek the well-being of the children of Israel.
+
+## Nehemiah Views the Wall of Jerusalem 
 
 ###### 11 
 So I came to Jerusalem and was there three days. 

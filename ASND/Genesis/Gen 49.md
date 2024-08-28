@@ -931,7 +931,9 @@ Ngayon, marami akong pagpapala; labis pa sa kasaganaan noon ng mga sinaunang kab
 
 
 
-Sila ang 12 anak ni Jacob na pinanggalingan ng mga lahi ng Israel. At iyon ang huling habilin ni Jacob sa bawat isa sa kanila. ## Ang Pagkamatay ni Jacob 
+Sila ang 12 anak ni Jacob na pinanggalingan ng mga lahi ng Israel. At iyon ang huling habilin ni Jacob sa bawat isa sa kanila.
+
+## Ang Pagkamatay ni Jacob 
 
 
 

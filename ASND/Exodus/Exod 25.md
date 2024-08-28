@@ -304,7 +304,9 @@ batong onix at iba pang mamahaling bato na ilalagay sa espesyal na damit <i clas
 
 
 
-Ipagawa mo ang Toldang Sambahan at ang mga kagamitan dito ayon sa eksaktong tuntunin na sinabi ko sa iyo. ## Ang Kahon ng Kasunduan 
+Ipagawa mo ang Toldang Sambahan at ang mga kagamitan dito ayon sa eksaktong tuntunin na sinabi ko sa iyo.
+
+## Ang Kahon ng Kasunduan 
 
 
 
@@ -667,7 +669,9 @@ Ilagay mo sa Kahon ang malapad na bato na ibinigay ko sa iyo, kung saan nakasula
 
 
 
-Makikipagkita ako sa iyo roon sa gitna ng dalawang kerubin na nasa ibabaw ng Kahon, at ibibigay ko sa iyo ang lahat ng utos para sa mga mamamayan ng Israel. ## Ang Mesa na Pinaglalagyan ng Tinapay 
+Makikipagkita ako sa iyo roon sa gitna ng dalawang kerubin na nasa ibabaw ng Kahon, at ibibigay ko sa iyo ang lahat ng utos para sa mga mamamayan ng Israel.
+
+## Ang Mesa na Pinaglalagyan ng Tinapay 
 
 
 
@@ -931,7 +935,9 @@ Dapat ay akasya ang tukod at nababalutan ng ginto.
 
 
 
-At kailangang palaging lagyan ng tinapay na inihahandog sa aking presensya ang mesang ito. ## Ang Lalagyan ng Ilaw 
+At kailangang palaging lagyan ng tinapay na inihahandog sa aking presensya ang mesang ito.
+
+## Ang Lalagyan ng Ilaw 
 
 
 

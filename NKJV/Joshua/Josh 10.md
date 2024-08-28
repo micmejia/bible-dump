@@ -52,7 +52,9 @@ So the sun stood still, And the moon stopped, Till the people had revenge Upon t
 And there has been no day like that, before it or after it, that the Lord heeded the voice of a man; for the Lord fought for Israel. 
 
 ###### 15 
-Then Joshua returned, and all Israel with him, to the camp at Gilgal. ## The Amorite Kings Executed 
+Then Joshua returned, and all Israel with him, to the camp at Gilgal.
+
+## The Amorite Kings Executed 
 
 ###### 16 
 But these five kings had fled and hidden themselves in a cave at Makkedah. 
@@ -88,7 +90,9 @@ Then Joshua said to them, "Do not be afraid, nor be dismayed; be strong and of g
 And afterward Joshua struck them and killed them, and hanged them on five trees; and they were hanging on the trees until evening. 
 
 ###### 27 
-So it was at the time of the going down of the sun _that_ Joshua commanded, and they took them down from the trees, cast them into the cave where they had been hidden, and laid large stones against the cave's mouth, _which remain_ until this very day. ## Conquest of the Southland 
+So it was at the time of the going down of the sun _that_ Joshua commanded, and they took them down from the trees, cast them into the cave where they had been hidden, and laid large stones against the cave's mouth, _which remain_ until this very day.
+
+## Conquest of the Southland 
 
 ###### 28 
 On that day Joshua took Makkedah, and struck it and its king with the edge of the sword. He utterly destroyed them--all the people who _were_ in it. He let none remain. He also did to the king of Makkedah as he had done to the king of Jericho. 

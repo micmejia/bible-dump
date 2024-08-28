@@ -25,7 +25,9 @@ And the sons of Midian _were_ Ephah, Epher, Hanoch, Abidah, and Eldaah. All thes
 And Abraham gave all that he had to Isaac. 
 
 ###### 6 
-But Abraham gave gifts to the sons of the concubines which Abraham had; and while he was still living he sent them eastward, away from Isaac his son, to the country of the east. ## Abraham's Death and Burial 
+But Abraham gave gifts to the sons of the concubines which Abraham had; and while he was still living he sent them eastward, away from Isaac his son, to the country of the east.
+
+## Abraham's Death and Burial 
 
 ###### 7 
 This _is_ the sum of the years of Abraham's life which he lived: one hundred and seventy-five years. 
@@ -40,7 +42,9 @@ And his sons Isaac and Ishmael buried him in the cave of Machpelah, which _is_ b
 the field which Abraham purchased from the sons of Heth. There Abraham was buried, and Sarah his wife. 
 
 ###### 11 
-And it came to pass, after the death of Abraham, that God blessed his son Isaac. And Isaac dwelt at Beer Lahai Roi. ## The Families of Ishmael and Isaac 
+And it came to pass, after the death of Abraham, that God blessed his son Isaac. And Isaac dwelt at Beer Lahai Roi.
+
+## The Families of Ishmael and Isaac 
 
 ###### 12 
 Now this _is_ the genealogy of Ishmael, Abraham's son, whom Hagar the Egyptian, Sarah's maidservant, bore to Abraham. 
@@ -91,7 +95,9 @@ Afterward his brother came out, and his hand took hold of Esau's heel; so his na
 So the boys grew. And Esau was a skillful hunter, a man of the field; but Jacob was a mild man, dwelling in tents. 
 
 ###### 28 
-And Isaac loved Esau because he ate _of his_ game, but Rebekah loved Jacob. ## Esau Sells His Birthright 
+And Isaac loved Esau because he ate _of his_ game, but Rebekah loved Jacob.
+
+## Esau Sells His Birthright 
 
 ###### 29 
 Now Jacob cooked a stew; and Esau came in from the field, and he _was_ weary. 

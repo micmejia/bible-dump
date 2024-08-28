@@ -436,7 +436,9 @@ kailangang ipakuha siya ng mga tagapamahala ng kanyang bayan at ibigay sa guston
 
 
 
-Huwag kayong maaawa sa kanya. Kailangang alisin ninyo sa Israel ang pumapatay ng mga inosenteng tao para maging mabuti ang inyong kalagayan. ## Ang Hangganan ng Lupa 
+Huwag kayong maaawa sa kanya. Kailangang alisin ninyo sa Israel ang pumapatay ng mga inosenteng tao para maging mabuti ang inyong kalagayan.
+
+## Ang Hangganan ng Lupa 
 
 
 
@@ -469,7 +471,9 @@ Huwag kayong maaawa sa kanya. Kailangang alisin ninyo sa Israel ang pumapatay ng
 
 
 
-"Kapag dumating na kayo sa lupaing ibinibigay sa inyo ng Panginoon na inyong Dios na inyong aangkinin, huwag ninyong nanakawin ang lupain ng inyong kapwa sa pamamagitan ng paglilipat ng muhon ng kanyang lupain na inilagay noon ng inyong ninuno. ## Ang mga Saksi 
+"Kapag dumating na kayo sa lupaing ibinibigay sa inyo ng Panginoon na inyong Dios na inyong aangkinin, huwag ninyong nanakawin ang lupain ng inyong kapwa sa pamamagitan ng paglilipat ng muhon ng kanyang lupain na inilagay noon ng inyong ninuno.
+
+## Ang mga Saksi 
 
 
 

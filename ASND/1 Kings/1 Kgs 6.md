@@ -403,7 +403,9 @@ Sinabi ng Panginoon kay Solomon, <sup class="versenum">12-13</sup>"Kung tutupari
 
 
 
-Natapos ni Solomon ang pagpapatayo ng templo. ## Ang mga Ipinagawa sa Loob ng Templo 
+Natapos ni Solomon ang pagpapatayo ng templo.
+
+## Ang mga Ipinagawa sa Loob ng Templo 
 
 
 

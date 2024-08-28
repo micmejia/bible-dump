@@ -34,7 +34,9 @@ Now to half the tribe of Manasseh Moses had given a possession in Bashan, but to
 and spoke to them, saying, "Return with much riches to your tents, with very much livestock, with silver, with gold, with bronze, with iron, and with very much clothing. Divide the spoil of your enemies with your brethren." 
 
 ###### 9 
-So the children of Reuben, the children of Gad, and half the tribe of Manasseh returned, and departed from the children of Israel at Shiloh, which _is_ in the land of Canaan, to go to the country of Gilead, to the land of their possession, which they had obtained according to the word of the Lord by the hand of Moses. ## An Altar by the Jordan 
+So the children of Reuben, the children of Gad, and half the tribe of Manasseh returned, and departed from the children of Israel at Shiloh, which _is_ in the land of Canaan, to go to the country of Gilead, to the land of their possession, which they had obtained according to the word of the Lord by the hand of Moses.
+
+## An Altar by the Jordan 
 
 ###### 10 
 And when they came to the region of the Jordan which _is_ in the land of Canaan, the children of Reuben, the children of Gad, and half the tribe of Manasseh built an altar there by the Jordan--a great, impressive altar. 

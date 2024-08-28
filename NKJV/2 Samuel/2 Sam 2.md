@@ -40,7 +40,9 @@ and he made him king over Gilead, over the Ashurites, over Jezreel, over Ephraim
 Ishbosheth, Saul's son, _was_ forty years old when he began to reign over Israel, and he reigned two years. Only the house of Judah followed David. 
 
 ###### 11 
-And the time that David was king in Hebron over the house of Judah was seven years and six months. ## Israel and Judah at War 
+And the time that David was king in Hebron over the house of Judah was seven years and six months.
+
+## Israel and Judah at War 
 
 ###### 12 
 Now Abner the son of Ner, and the servants of Ishbosheth the son of Saul, went out from Mahanaim to Gibeon. 

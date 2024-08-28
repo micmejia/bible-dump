@@ -31,7 +31,9 @@ Ashkelon shall see _it_ and fear; Gaza also shall be very sorrowful; And Ekron, 
 I will take away the blood from his mouth, And the abominations from between his teeth. But he who remains, even he _shall be_ for our God, And shall be like a leader in Judah, And Ekron like a Jebusite. 
 
 ###### 8 
-I will camp around My house Because of the army, Because of him who passes by and him who returns. No more shall an oppressor pass through them, For now I have seen with My eyes. ## The Coming King 
+I will camp around My house Because of the army, Because of him who passes by and him who returns. No more shall an oppressor pass through them, For now I have seen with My eyes.
+
+## The Coming King 
 
 ###### 9 
 "Rejoice greatly, O daughter of Zion! Shout, O daughter of Jerusalem! Behold, your King is coming to you; He _is_ just and having salvation, Lowly and riding on a donkey, A colt, the foal of a donkey. 

@@ -58,7 +58,9 @@ If anyone's work is burned, he will suffer loss; but he himself will be saved, y
 Do you not know that you are the temple of God and _that_ the Spirit of God dwells in you? 
 
 ###### 17 
-If anyone defiles the temple of God, God will destroy him. For the temple of God is holy, which _temple_ you are. ## Avoid Worldly Wisdom 
+If anyone defiles the temple of God, God will destroy him. For the temple of God is holy, which _temple_ you are.
+
+## Avoid Worldly Wisdom 
 
 ###### 18 
 Let no one deceive himself. If anyone among you seems to be wise in this age, let him become a fool that he may become wise. 

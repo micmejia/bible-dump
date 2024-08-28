@@ -118,7 +118,9 @@ And if any of the flesh of the consecration offerings, or of the bread, remains 
 And you shall offer a bull every day _as_ a sin offering for atonement. You shall cleanse the altar when you make atonement for it, and you shall anoint it to sanctify it. 
 
 ###### 37 
-Seven days you shall make atonement for the altar and sanctify it. And the altar shall be most holy. Whatever touches the altar must be holy. ## The Daily Offerings 
+Seven days you shall make atonement for the altar and sanctify it. And the altar shall be most holy. Whatever touches the altar must be holy.
+
+## The Daily Offerings 
 
 ###### 38 
 "Now this _is_ what you shall offer on the altar: two lambs of the first year, day by day continually. 

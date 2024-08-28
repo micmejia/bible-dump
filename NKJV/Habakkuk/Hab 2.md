@@ -10,7 +10,9 @@ next: ['Hab 3']
 
 
 ###### 1 
-I will stand my watch And set myself on the rampart, And watch to see what He will say to me, And what I will answer when I am corrected. ## The Just Live by Faith 
+I will stand my watch And set myself on the rampart, And watch to see what He will say to me, And what I will answer when I am corrected.
+
+## The Just Live by Faith 
 
 ###### 2 
 Then the Lord answered me and said: "Write the vision And make _it_ plain on tablets, That he may run who reads it. 
@@ -19,7 +21,9 @@ Then the Lord answered me and said: "Write the vision And make _it_ plain on tab
 For the vision _is_ yet for an appointed time; But at the end it will speak, and it will not lie. Though it tarries, wait for it; Because it will surely come, It will not tarry. 
 
 ###### 4 
-"Behold the proud, His soul is not upright in him; But the just shall live by his faith. ## Woe to the Wicked 
+"Behold the proud, His soul is not upright in him; But the just shall live by his faith.
+
+## Woe to the Wicked 
 
 ###### 5 
 "Indeed, because he transgresses by wine, _He is_ a proud man, And he does not stay at home. Because he enlarges his desire as hell, And he _is_ like death, and cannot be satisfied, He gathers to himself all nations And heaps up for himself all peoples. 

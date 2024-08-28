@@ -535,7 +535,9 @@ Makaraan ang ilang araw, naghanda kami at umalis papuntang Jerusalem.
 
 
 
-Sinamahan kami ng ilang mga tagasunod <i class="trans-change">ni Jesus_ na taga-Cesarea. Dinala nila kami sa bahay ni Mnason na taga-Cyprus at doon kami nakituloy. <i class="trans-change">Si Mnason ay_ isa sa mga unang tagasunod <i class="trans-change">ni Jesus_. ## Dinalaw ni Pablo si Santiago 
+Sinamahan kami ng ilang mga tagasunod <i class="trans-change">ni Jesus_ na taga-Cesarea. Dinala nila kami sa bahay ni Mnason na taga-Cyprus at doon kami nakituloy. <i class="trans-change">Si Mnason ay_ isa sa mga unang tagasunod <i class="trans-change">ni Jesus_.
+
+## Dinalaw ni Pablo si Santiago 
 
 
 
@@ -865,7 +867,9 @@ Kung tungkol sa mga hindi Judiong sumasampalataya kay Jesus, nakapagpadala na ka
 
 
 
-Kaya kinabukasan, isinama ni Pablo ang apat na lalaki at isinagawa nila ang seremonya ng paglilinis. Pagkatapos, pumunta si Pablo sa templo at ipinagbigay-alam kung kailan matatapos ang kanilang paglilinis para maihandog ang mga hayop para sa bawat isa sa kanila. ## Hinuli si Pablo 
+Kaya kinabukasan, isinama ni Pablo ang apat na lalaki at isinagawa nila ang seremonya ng paglilinis. Pagkatapos, pumunta si Pablo sa templo at ipinagbigay-alam kung kailan matatapos ang kanilang paglilinis para maihandog ang mga hayop para sa bawat isa sa kanila.
+
+## Hinuli si Pablo 
 
 
 

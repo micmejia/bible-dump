@@ -39,7 +39,9 @@ next: ['Isa 2']
 
 
 
-Ang aklat na itoʼy tungkol sa ipinahayag ng Dios kay Isaias na anak ni Amoz. Tungkol ito sa Juda at Jerusalem noong <i class="trans-change">magkakasunod na_ naghari sa Juda sina Uzia, Jotam, Ahaz, at Hezekia. ## Ang Makasalanang Bansa 
+Ang aklat na itoʼy tungkol sa ipinahayag ng Dios kay Isaias na anak ni Amoz. Tungkol ito sa Juda at Jerusalem noong <i class="trans-change">magkakasunod na_ naghari sa Juda sina Uzia, Jotam, Ahaz, at Hezekia.
+
+## Ang Makasalanang Bansa 
 
 
 
@@ -666,7 +668,9 @@ Kung susunod lang kayo sa akin ay pagpapalain ko kayo.
 
 
 
-Pero kung patuloy kayong magrerebelde, tiyak na mamamatay kayo." <i class="trans-change">Mangyayari nga ito_ dahil sinabi ng Panginoon. ## Ang Makasalanang Lungsod 
+Pero kung patuloy kayong magrerebelde, tiyak na mamamatay kayo." <i class="trans-change">Mangyayari nga ito_ dahil sinabi ng Panginoon.
+
+## Ang Makasalanang Lungsod 
 
 
 

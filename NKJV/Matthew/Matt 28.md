@@ -30,7 +30,9 @@ He is not here; for He is risen, as He said. Come, see the place where the Lord 
 And go quickly and tell His disciples that He is risen from the dead, and indeed He is going before you into Galilee; there you will see Him. Behold, I have told you." 
 
 ###### 8 
-So they went out quickly from the tomb with fear and great joy, and ran to bring His disciples word. ## The Women Worship the Risen Lord 
+So they went out quickly from the tomb with fear and great joy, and ran to bring His disciples word.
+
+## The Women Worship the Risen Lord 
 
 ###### 9 
 And as they went to tell His disciples, behold, Jesus met them, saying, "Rejoice!" So they came and held Him by the feet and worshiped Him. 
@@ -51,7 +53,9 @@ saying, "Tell them, 'His disciples came at night and stole Him _away_ while we s
 And if this comes to the governor's ears, we will appease him and make you secure." 
 
 ###### 15 
-So they took the money and did as they were instructed; and this saying is commonly reported among the Jews until this day. ## The Great Commission 
+So they took the money and did as they were instructed; and this saying is commonly reported among the Jews until this day.
+
+## The Great Commission 
 
 ###### 16 
 Then the eleven disciples went away into Galilee, to the mountain which Jesus had appointed for them. 

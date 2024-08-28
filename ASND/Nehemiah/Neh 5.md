@@ -436,7 +436,9 @@ Sumagot sila, "Ibabalik namin ang lahat ng iyon sa kanila. Hindi na namin sila s
 
 
 
-Ipinagpag ko ang balabal ko sa baywang ko at sinabi, "Ganito nawa ang gawin ng Dios sa mga bahay at ari-arian ninyo kapag hindi ninyo tinupad ang pangako ninyo. Kunin nawa niya ang lahat ng ito sa inyo." Ang lahat ng tao roon ay sumagot, "Siya nawa," at pinuri nila ang Panginoon. At tinupad ng mga pinuno at ng mga opisyal ang pangako nila. ## Ang Pagiging Mapagbigay ni Nehemias 
+Ipinagpag ko ang balabal ko sa baywang ko at sinabi, "Ganito nawa ang gawin ng Dios sa mga bahay at ari-arian ninyo kapag hindi ninyo tinupad ang pangako ninyo. Kunin nawa niya ang lahat ng ito sa inyo." Ang lahat ng tao roon ay sumagot, "Siya nawa," at pinuri nila ang Panginoon. At tinupad ng mga pinuno at ng mga opisyal ang pangako nila.
+
+## Ang Pagiging Mapagbigay ni Nehemias 
 
 
 

@@ -337,7 +337,9 @@ Sinabi sa kanya ng asawa niya, "Ano, tapat ka pa rin ba sa iyong Dios? Sumpain m
 
 
 
-Sumagot si Job, "Nagsasalita ka ng walang kabuluhan. Mabubuting bagay lang ba ang tatanggapin natin mula sa Dios at hindi ang masasama?" Sa kabila ng lahat ng nangyari kay Job ay hindi siya nagkasala kahit sa pananalita. ## Ang Tatlong Kaibigan ni Job 
+Sumagot si Job, "Nagsasalita ka ng walang kabuluhan. Mabubuting bagay lang ba ang tatanggapin natin mula sa Dios at hindi ang masasama?" Sa kabila ng lahat ng nangyari kay Job ay hindi siya nagkasala kahit sa pananalita.
+
+## Ang Tatlong Kaibigan ni Job 
 
 
 

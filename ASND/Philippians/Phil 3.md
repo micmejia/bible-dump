@@ -370,7 +370,9 @@ Nais ko ngayon na higit pang makilala si Cristo, maranasan ang kapangyarihan ng 
 
 
 
-Sa ganoon, mabubuhay akong muli. Harinawa. ## Magpatuloy Hanggang Makamtan ang Gantimpala 
+Sa ganoon, mabubuhay akong muli. Harinawa.
+
+## Magpatuloy Hanggang Makamtan ang Gantimpala 
 
 
 

@@ -73,7 +73,9 @@ Kinaumagahan, nagplano ang lahat ng namamahalang pari at ang pinuno ng mga Judio
 
 
 
-Ginapos nila si Jesus at dinala kay Gobernador Pilato. ## Ang Pagkamatay ni Judas 
+Ginapos nila si Jesus at dinala kay Gobernador Pilato.
+
+## Ang Pagkamatay ni Judas 
 
 
 
@@ -469,7 +471,9 @@ Kaya tinanong siyang muli ni Pilato, "Bakit ayaw mong sagutin ang mga paratang n
 
 
 
-Pero hindi pa rin sumagot si Jesus, kaya nagtaka ang gobernador. ## Hinatulan si Jesus ng Kamatayan 
+Pero hindi pa rin sumagot si Jesus, kaya nagtaka ang gobernador.
+
+## Hinatulan si Jesus ng Kamatayan 
 
 
 
@@ -865,7 +869,9 @@ Sumagot ang mga tao, "Kami at ang mga anak namin ang mananagot sa kanyang kamata
 
 
 
-Pagkatapos, pinalaya ni Pilato si Barabas. Pero si Jesus ay ipinahagupit niya at saka ibinigay <i class="trans-change">sa mga sundalo_ upang ipako sa krus. ## Pinahirapan ng mga Sundalo si Jesus 
+Pagkatapos, pinalaya ni Pilato si Barabas. Pero si Jesus ay ipinahagupit niya at saka ibinigay <i class="trans-change">sa mga sundalo_ upang ipako sa krus.
+
+## Pinahirapan ng mga Sundalo si Jesus 
 
 
 
@@ -1030,7 +1036,9 @@ Dinuraan nila si Jesus at kinuha ang tungkod <i class="trans-change">sa kanyang 
 
 
 
-Matapos nilang kutyain si Jesus, hinubad nila sa kanya ang kapa at isinuot muli sa kanya ang damit niya. Pagkatapos, dinala nila siya <i class="trans-change">sa labas ng lungsod_ upang ipako sa krus. ## Ipinako sa Krus si Jesus 
+Matapos nilang kutyain si Jesus, hinubad nila sa kanya ang kapa at isinuot muli sa kanya ang damit niya. Pagkatapos, dinala nila siya <i class="trans-change">sa labas ng lungsod_ upang ipako sa krus.
+
+## Ipinako sa Krus si Jesus 
 
 
 
@@ -1459,7 +1467,9 @@ Nagtitiwala siya sa Dios at sinasabi niyang siya ang Anak ng Dios. Ngayon, tingn
 
 
 
-Maging ang mga tulisang ipinakong kasama niya ay nang-insulto rin sa kanya. ## Ang Pagkamatay ni Jesus 
+Maging ang mga tulisang ipinakong kasama niya ay nang-insulto rin sa kanya.
+
+## Ang Pagkamatay ni Jesus 
 
 
 
@@ -1855,7 +1865,9 @@ Sa di-kalayuan ay maraming babae na nanonood sa mga pangyayari. Noong umalis si 
 
 
 
-Kabilang sa kanila si Maria na taga-Magdala, si Maria na ina nina Santiago at Jose, at ang asawa ni Zebedee. ## Ang Paglilibing kay Jesus 
+Kabilang sa kanila si Maria na taga-Magdala, si Maria na ina nina Santiago at Jose, at ang asawa ni Zebedee.
+
+## Ang Paglilibing kay Jesus 
 
 
 
@@ -2020,7 +2032,9 @@ Inilagay niya ito sa bagong libingang hinukay sa gilid ng burol, na ipinagawa ni
 
 
 
-Si Maria na taga-Magdala at ang isa pang Maria ay naroong nakaupo sa harap ng libingan. ## Naglagay ng mga Guwardya sa Libingan 
+Si Maria na taga-Magdala at ang isa pang Maria ay naroong nakaupo sa harap ng libingan.
+
+## Naglagay ng mga Guwardya sa Libingan 
 
 
 

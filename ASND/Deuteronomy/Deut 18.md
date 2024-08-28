@@ -271,7 +271,9 @@ at makapaglilingkod siya roon sa Panginoon na kanyang Dios, katulad ng kapwa niy
 
 
 
-Makakatanggap din siya ng kanyang bahagi sa mga handog kahit na mayroon pa siyang tinatanggap mula sa iba na kanyang ikinabubuhay. ## Ang mga Kasuklam-suklam na Kaugalian 
+Makakatanggap din siya ng kanyang bahagi sa mga handog kahit na mayroon pa siyang tinatanggap mula sa iba na kanyang ikinabubuhay.
+
+## Ang mga Kasuklam-suklam na Kaugalian 
 
 
 
@@ -436,7 +438,9 @@ Kinasusuklaman ng Panginoon ang sinumang gumagawa ng mga bagay na ito. Ito ang d
 
 
 
-Wala dapat kayong maging kapintasan sa harap ng Panginoon na inyong Dios. ## Ang mga Propeta 
+Wala dapat kayong maging kapintasan sa harap ng Panginoon na inyong Dios.
+
+## Ang mga Propeta 
 
 
 

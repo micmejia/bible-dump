@@ -138,7 +138,9 @@ Kaya naghanap sila ng magandang dalagita sa buong Israel, at nakita nila si Abis
 
 
 
-Talagang maganda si Abishag at naging tagapag-alaga siya ng hari. Pero hindi sumiping ang hari sa kanya. ## Gusto ni Adonia na Maging Hari 
+Talagang maganda si Abishag at naging tagapag-alaga siya ng hari. Pero hindi sumiping ang hari sa kanya.
+
+## Gusto ni Adonia na Maging Hari 
 
 
 

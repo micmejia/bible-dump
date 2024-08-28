@@ -469,7 +469,9 @@ Nang oras ding iyon, lumindol nang napakalakas. Nawasak ang ikasampung bahagi ng
 
 
 
-Natapos na ang ikalawang nakakatakot na pangyayari, ngunit susunod pa ang ikatlo. ## Ang Ikapitong Trumpeta 
+Natapos na ang ikalawang nakakatakot na pangyayari, ngunit susunod pa ang ikatlo.
+
+## Ang Ikapitong Trumpeta 
 
 
 

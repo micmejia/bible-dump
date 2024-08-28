@@ -31,7 +31,9 @@ Render to her just as she rendered to you, and repay her double according to her
 In the measure that she glorified herself and lived luxuriously, in the same measure give her torment and sorrow; for she says in her heart, 'I sit _as_ queen, and am no widow, and will not see sorrow.' 
 
 ###### 8 
-Therefore her plagues will come in one day--death and mourning and famine. And she will be utterly burned with fire, for strong _is_ the Lord God who judges her. ## The World Mourns Babylon's Fall 
+Therefore her plagues will come in one day--death and mourning and famine. And she will be utterly burned with fire, for strong _is_ the Lord God who judges her.
+
+## The World Mourns Babylon's Fall 
 
 ###### 9 
 "The kings of the earth who committed fornication and lived luxuriously with her will weep and lament for her, when they see the smoke of her burning, 

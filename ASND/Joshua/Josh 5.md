@@ -106,7 +106,9 @@ Nang panahong iyon, sinabi ng Panginoon kay Josue, "Gumawa ka ng mga patalim na 
 
 
 
-Kaya gumawa si Josue ng mga patalim, at tinuli ang mga lalaking Israelita roon sa <i class="trans-change">lugar na tinawag na_ Bundok ng Pinagtulian. ###### 4-6 Ito ang dahilan kung bakit tinuli ni Josue ang mga lalaki: Nang umalis ang mga Israelita sa Egipto, ang lahat ng lalaki ay natuli na. Pero ang mga isinilang sa loob ng 40 taon na paglalakbay nila sa ilang ay hindi pa natutuli. Nang panahong iyon, ang mga lalaking nasa tamang edad na para makipaglaban ay nangamatay dahil hindi sila sumunod sa Panginoon. Sinabi sa kanila ng Panginoon na hindi nila makikita ang maganda at masaganang lupain na ipinangako niya sa mga ninuno nila. 
+Kaya gumawa si Josue ng mga patalim, at tinuli ang mga lalaking Israelita roon sa <i class="trans-change">lugar na tinawag na_ Bundok ng Pinagtulian.
+
+###### 4-6 Ito ang dahilan kung bakit tinuli ni Josue ang mga lalaki: Nang umalis ang mga Israelita sa Egipto, ang lahat ng lalaki ay natuli na. Pero ang mga isinilang sa loob ng 40 taon na paglalakbay nila sa ilang ay hindi pa natutuli. Nang panahong iyon, ang mga lalaking nasa tamang edad na para makipaglaban ay nangamatay dahil hindi sila sumunod sa Panginoon. Sinabi sa kanila ng Panginoon na hindi nila makikita ang maganda at masaganang lupain na ipinangako niya sa mga ninuno nila. 
 
 
 

@@ -27,7 +27,9 @@ A wise _man_ will hear and increase learning, And a man of understanding will at
 To understand a proverb and an enigma, The words of the wise and their riddles. 
 
 ###### 7 
-The fear of the Lord _is_ the beginning of knowledge, _But_ fools despise wisdom and instruction. ## Shun Evil Counsel 
+The fear of the Lord _is_ the beginning of knowledge, _But_ fools despise wisdom and instruction.
+
+## Shun Evil Counsel 
 
 ###### 8 
 My son, hear the instruction of your father, And do not forsake the law of your mother; 
@@ -63,7 +65,9 @@ Surely, in vain the net is spread In the sight of any bird;
 But they lie in wait for their _own_ blood, They lurk secretly for their _own_ lives. 
 
 ###### 19 
-So _are_ the ways of everyone who is greedy for gain; It takes away the life of its owners. ## The Call of Wisdom 
+So _are_ the ways of everyone who is greedy for gain; It takes away the life of its owners.
+
+## The Call of Wisdom 
 
 ###### 20 
 Wisdom calls aloud outside; She raises her voice in the open squares. 

@@ -76,7 +76,9 @@ Yet these you may eat of every flying insect that creeps on _all_ fours: those w
 These you may eat: the locust after its kind, the destroying locust after its kind, the cricket after its kind, and the grasshopper after its kind. 
 
 ###### 23 
-But all _other_ flying insects which have four feet _shall be_ an abomination to you. ## Unclean Animals 
+But all _other_ flying insects which have four feet _shall be_ an abomination to you.
+
+## Unclean Animals 
 
 ###### 24 
 'By these you shall become unclean; whoever touches the carcass of any of them shall be unclean until evening; 

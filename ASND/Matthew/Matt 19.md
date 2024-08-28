@@ -502,7 +502,9 @@ Sinabi ni Jesus sa mga tagasunod niya, "Hayaan ninyong lumapit sa akin ang mga b
 
 
 
-Ipinatong nga niya ang kanyang kamay sa mga bata at pinagpala niya sila, at pagkatapos nito ay umalis siya. ## Ang Lalaking Mayaman 
+Ipinatong nga niya ang kanyang kamay sa mga bata at pinagpala niya sila, at pagkatapos nito ay umalis siya.
+
+## Ang Lalaking Mayaman 
 
 
 

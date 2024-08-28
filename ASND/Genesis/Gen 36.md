@@ -634,7 +634,9 @@ Naging pinuno rin ang mga anak ni Esau kay Oholibama na anak ni Ana. Sila ay sin
 
 
 
-Silang lahat ang lahi ni Esau na mga pinuno ng Edom. ## Ang mga Lahi ni Seir 
+Silang lahat ang lahi ni Esau na mga pinuno ng Edom.
+
+## Ang mga Lahi ni Seir 
 
 
 
@@ -931,7 +933,9 @@ Ang mga anak na lalaki ni Ezer ay sina Bilhan, Zaavan at Akan.
 
 
 
-Ang mga anak na lalaki ni Dishan ay sina Uz at Aran. <sup class="versenum">29-30</sup>Ito naman ang mga pinuno batay sa bawat lahi ng mga Horeo na may pinamamahalaang lupain sa Seir: sina Lotan, Shobal, Zibeon, Ana, Dishon, Ezer at Dishan. ## Ang mga Hari ng Edom 
+Ang mga anak na lalaki ni Dishan ay sina Uz at Aran. <sup class="versenum">29-30</sup>Ito naman ang mga pinuno batay sa bawat lahi ng mga Horeo na may pinamamahalaang lupain sa Seir: sina Lotan, Shobal, Zibeon, Ana, Dishon, Ezer at Dishan.
+
+## Ang mga Hari ng Edom 
 
 
 

@@ -337,7 +337,9 @@ Kayong mga bansa, kahit na magsama-sama kayo, magkakawatak-watak pa rin kayo. Ma
 
 
 
-Anuman ang binabalak ninyo laban sa amin ay hindi magtatagumpay, dahil kasama namin ang Dios. ## Panawagan ng Pagtitiwala sa Dios 
+Anuman ang binabalak ninyo laban sa amin ay hindi magtatagumpay, dahil kasama namin ang Dios.
+
+## Panawagan ng Pagtitiwala sa Dios 
 
 
 

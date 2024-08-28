@@ -34,7 +34,9 @@ And the men who journeyed with him stood speechless, hearing a voice but seeing 
 Then Saul arose from the ground, and when his eyes were opened he saw no one. But they led him by the hand and brought _him_ into Damascus. 
 
 ###### 9 
-And he was three days without sight, and neither ate nor drank. ## Ananias Baptizes Saul 
+And he was three days without sight, and neither ate nor drank.
+
+## Ananias Baptizes Saul 
 
 ###### 10 
 Now there was a certain disciple at Damascus named Ananias; and to him the Lord said in a vision, "Ananias." And he said, "Here I am, Lord." 
@@ -64,7 +66,9 @@ And Ananias went his way and entered the house; and laying his hands on him he s
 Immediately there fell from his eyes _something_ like scales, and he received his sight at once; and he arose and was baptized. 
 
 ###### 19 
-So when he had received food, he was strengthened. Then Saul spent some days with the disciples at Damascus. ## Saul Preaches Christ 
+So when he had received food, he was strengthened. Then Saul spent some days with the disciples at Damascus.
+
+## Saul Preaches Christ 
 
 ###### 20 
 Immediately he preached the Christ in the synagogues, that He is the Son of God. 
@@ -73,7 +77,9 @@ Immediately he preached the Christ in the synagogues, that He is the Son of God.
 Then all who heard were amazed, and said, "Is this not he who destroyed those who called on this name in Jerusalem, and has come here for that purpose, so that he might bring them bound to the chief priests?" 
 
 ###### 22 
-But Saul increased all the more in strength, and confounded the Jews who dwelt in Damascus, proving that this _Jesus_ is the Christ. ## Saul Escapes Death 
+But Saul increased all the more in strength, and confounded the Jews who dwelt in Damascus, proving that this _Jesus_ is the Christ.
+
+## Saul Escapes Death 
 
 ###### 23 
 Now after many days were past, the Jews plotted to kill him. 
@@ -82,7 +88,9 @@ Now after many days were past, the Jews plotted to kill him.
 But their plot became known to Saul. And they watched the gates day and night, to kill him. 
 
 ###### 25 
-Then the disciples took him by night and let _him_ down through the wall in a large basket. ## Saul at Jerusalem 
+Then the disciples took him by night and let _him_ down through the wall in a large basket.
+
+## Saul at Jerusalem 
 
 ###### 26 
 And when Saul had come to Jerusalem, he tried to join the disciples; but they were all afraid of him, and did not believe that he was a disciple. 
@@ -97,10 +105,14 @@ So he was with them at Jerusalem, coming in and going out.
 And he spoke boldly in the name of the Lord Jesus and disputed against the Hellenists, but they attempted to kill him. 
 
 ###### 30 
-When the brethren found out, they brought him down to Caesarea and sent him out to Tarsus. ## The Church Prospers 
+When the brethren found out, they brought him down to Caesarea and sent him out to Tarsus.
+
+## The Church Prospers 
 
 ###### 31 
-Then the churches throughout all Judea, Galilee, and Samaria had peace and were edified. And walking in the fear of the Lord and in the comfort of the Holy Spirit, they were multiplied. ## Aeneas Healed 
+Then the churches throughout all Judea, Galilee, and Samaria had peace and were edified. And walking in the fear of the Lord and in the comfort of the Holy Spirit, they were multiplied.
+
+## Aeneas Healed 
 
 ###### 32 
 Now it came to pass, as Peter went through all _parts of the country,_ that he also came down to the saints who dwelt in Lydda. 
@@ -112,7 +124,9 @@ There he found a certain man named Aeneas, who had been bedridden eight years an
 And Peter said to him, "Aeneas, Jesus the Christ heals you. Arise and make your bed." Then he arose immediately. 
 
 ###### 35 
-So all who dwelt at Lydda and Sharon saw him and turned to the Lord. ## Dorcas Restored to Life 
+So all who dwelt at Lydda and Sharon saw him and turned to the Lord.
+
+## Dorcas Restored to Life 
 
 ###### 36 
 At Joppa there was a certain disciple named Tabitha, which is translated Dorcas. This woman was full of good works and charitable deeds which she did. 

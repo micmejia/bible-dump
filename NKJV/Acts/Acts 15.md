@@ -94,7 +94,9 @@ We have therefore sent Judas and Silas, who will also report the same things by 
 For it seemed good to the Holy Spirit, and to us, to lay upon you no greater burden than these necessary things: 
 
 ###### 29 
-that you abstain from things offered to idols, from blood, from things strangled, and from sexual immorality. If you keep yourselves from these, you will do well. Farewell. ## Continuing Ministry in Syria 
+that you abstain from things offered to idols, from blood, from things strangled, and from sexual immorality. If you keep yourselves from these, you will do well. Farewell.
+
+## Continuing Ministry in Syria 
 
 ###### 30 
 So when they were sent off, they came to Antioch; and when they had gathered the multitude together, they delivered the letter. 
@@ -112,7 +114,9 @@ And after they had stayed _there_ for a time, they were sent back with greetings
 However, it seemed good to Silas to remain there. 
 
 ###### 35 
-Paul and Barnabas also remained in Antioch, teaching and preaching the word of the Lord, with many others also. ## Division over John Mark 
+Paul and Barnabas also remained in Antioch, teaching and preaching the word of the Lord, with many others also.
+
+## Division over John Mark 
 
 ###### 36 
 Then after some days Paul said to Barnabas, "Let us now go back and visit our brethren in every city where we have preached the word of the Lord, _and see_ how they are doing." 

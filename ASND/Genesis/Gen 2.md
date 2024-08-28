@@ -139,7 +139,9 @@ Binasbasan niya ang ikapitong araw at itinuring na di-pangkaraniwang araw, dahil
 
 
 
-Ito ang salaysay tungkol sa paglikha ng Dios sa kalangitan at sa mundo. ## Si Adan at si Eva Nang likhain ng Panginoong Dios ang mundo at ang kalangitan, 
+Ito ang salaysay tungkol sa paglikha ng Dios sa kalangitan at sa mundo.
+
+## Si Adan at si Eva Nang likhain ng Panginoong Dios ang mundo at ang kalangitan, 
 
 
 

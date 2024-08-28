@@ -28,7 +28,9 @@ For every warrior's sandal from the noisy battle, And garments rolled in blood, 
 For unto us a Child is born, Unto us a Son is given; And the government will be upon His shoulder. And His name will be called Wonderful, Counselor, Mighty God, Everlasting Father, Prince of Peace. 
 
 ###### 7 
-Of the increase of _His_ government and peace _There will be_ no end, Upon the throne of David and over His kingdom, To order it and establish it with judgment and justice From that time forward, even forever. The zeal of the Lord of hosts will perform this. ## The Punishment of Samaria 
+Of the increase of _His_ government and peace _There will be_ no end, Upon the throne of David and over His kingdom, To order it and establish it with judgment and justice From that time forward, even forever. The zeal of the Lord of hosts will perform this.
+
+## The Punishment of Samaria 
 
 ###### 8 
 The Lord sent a word against Jacob, And it has fallen on Israel. 

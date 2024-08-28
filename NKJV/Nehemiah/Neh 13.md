@@ -15,7 +15,9 @@ On that day they read from the Book of Moses in the hearing of the people, and i
 because they had not met the children of Israel with bread and water, but hired Balaam against them to curse them. However, our God turned the curse into a blessing. 
 
 ###### 3 
-So it was, when they had heard the Law, that they separated all the mixed multitude from Israel. ## The Reforms of Nehemiah 
+So it was, when they had heard the Law, that they separated all the mixed multitude from Israel.
+
+## The Reforms of Nehemiah 
 
 ###### 4 
 Now before this, Eliashib the priest, having authority over the storerooms of the house of our God, _was_ allied with Tobiah. 

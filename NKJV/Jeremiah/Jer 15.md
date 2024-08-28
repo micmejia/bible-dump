@@ -34,7 +34,9 @@ And I will winnow them with a winnowing fan in the gates of the land; I will ber
 Their widows will be increased to Me more than the sand of the seas; I will bring against them, Against the mother of the young men, A plunderer at noonday; I will cause anguish and terror to fall on them suddenly. 
 
 ###### 9 
-"She languishes who has borne seven; She has breathed her last; Her sun has gone down While _it was_ yet day; She has been ashamed and confounded. And the remnant of them I will deliver to the sword Before their enemies," says the Lord. ## Jeremiah's Dejection 
+"She languishes who has borne seven; She has breathed her last; Her sun has gone down While _it was_ yet day; She has been ashamed and confounded. And the remnant of them I will deliver to the sword Before their enemies," says the Lord.
+
+## Jeremiah's Dejection 
 
 ###### 10 
 Woe is me, my mother, That you have borne me, A man of strife and a man of contention to the whole earth! I have neither lent for interest, Nor have men lent to me for interest. Every one of them curses me. 

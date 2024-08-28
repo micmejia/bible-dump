@@ -733,7 +733,9 @@ Sumagot sila, "Sa Emperador." Kaya sinabi ni Jesus sa kanila, "Kung ganoon, ibig
 
 
 
-Namangha sila nang marinig ang sagot ni Jesus, kaya iniwan nila siya. ## Ang Tanong tungkol sa Muling Pagkabuhay 
+Namangha sila nang marinig ang sagot ni Jesus, kaya iniwan nila siya.
+
+## Ang Tanong tungkol sa Muling Pagkabuhay 
 
 
 
@@ -1096,7 +1098,9 @@ Tungkol naman sa muling pagkabuhay, hindi ba ninyo nabasa <i class="trans-change
 
 
 
-Nang marinig ito ng mga tao, namangha sila sa kanyang pagtuturo. ## Ang Pinakamahalagang Utos 
+Nang marinig ito ng mga tao, namangha sila sa kanyang pagtuturo.
+
+## Ang Pinakamahalagang Utos 
 
 
 

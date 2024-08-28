@@ -49,7 +49,9 @@ And the Lord spoke to you out of the midst of the fire. You heard the sound of t
 So He declared to you His covenant which He commanded you to perform, the Ten Commandments; and He wrote them on two tablets of stone. 
 
 ###### 14 
-And the Lord commanded me at that time to teach you statutes and judgments, that you might observe them in the land which you cross over to possess. ## Beware of Idolatry 
+And the Lord commanded me at that time to teach you statutes and judgments, that you might observe them in the land which you cross over to possess.
+
+## Beware of Idolatry 
 
 ###### 15 
 "Take careful heed to yourselves, for you saw no form when the Lord spoke to you at Horeb out of the midst of the fire, 
@@ -136,7 +138,9 @@ Then Moses set apart three cities on this side of the Jordan, toward the rising 
 that the manslayer might flee there, who kills his neighbor unintentionally, without having hated him in time past, and that by fleeing to one of these cities he might live: 
 
 ###### 43 
-Bezer in the wilderness on the plateau for the Reubenites, Ramoth in Gilead for the Gadites, and Golan in Bashan for the Manassites. ## Introduction to God's Law 
+Bezer in the wilderness on the plateau for the Reubenites, Ramoth in Gilead for the Gadites, and Golan in Bashan for the Manassites.
+
+## Introduction to God's Law 
 
 ###### 44 
 Now this _is_ the law which Moses set before the children of Israel. 

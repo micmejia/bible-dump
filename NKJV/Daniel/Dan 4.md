@@ -106,7 +106,9 @@ While the word _was still_ in the king's mouth, a voice fell from heaven: "King 
 And they shall drive you from men, and your dwelling _shall be_ with the beasts of the field. They shall make you eat grass like oxen; and seven times shall pass over you, until you know that the Most High rules in the kingdom of men, and gives it to whomever He chooses." 
 
 ###### 33 
-That very hour the word was fulfilled concerning Nebuchadnezzar; he was driven from men and ate grass like oxen; his body was wet with the dew of heaven till his hair had grown like eagles' _feathers_ and his nails like birds' _claws._ ## Nebuchadnezzar Praises God 
+That very hour the word was fulfilled concerning Nebuchadnezzar; he was driven from men and ate grass like oxen; his body was wet with the dew of heaven till his hair had grown like eagles' _feathers_ and his nails like birds' _claws._
+
+## Nebuchadnezzar Praises God 
 
 ###### 34 
 And at the end of the time I, Nebuchadnezzar, lifted my eyes to heaven, and my understanding returned to me; and I blessed the Most High and praised and honored Him who lives forever: For His dominion _is_ an everlasting dominion, And His kingdom _is_ from generation to generation. 

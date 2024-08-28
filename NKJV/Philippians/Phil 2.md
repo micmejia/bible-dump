@@ -19,7 +19,9 @@ fulfill my joy by being like-minded, having the same love, _being_ of one accord
 _Let_ nothing _be done_ through selfish ambition or conceit, but in lowliness of mind let each esteem others better than himself. 
 
 ###### 4 
-Let each of you look out not only for his own interests, but also for the interests of others. ## The Humbled and Exalted Christ 
+Let each of you look out not only for his own interests, but also for the interests of others.
+
+## The Humbled and Exalted Christ 
 
 ###### 5 
 Let this mind be in you which was also in Christ Jesus, 
@@ -40,7 +42,9 @@ Therefore God also has highly exalted Him and given Him the name which is above 
 that at the name of Jesus every knee should bow, of those in heaven, and of those on earth, and of those under the earth, 
 
 ###### 11 
-and _that_ every tongue should confess that Jesus Christ _is_ Lord, to the glory of God the Father. ## Light Bearers 
+and _that_ every tongue should confess that Jesus Christ _is_ Lord, to the glory of God the Father.
+
+## Light Bearers 
 
 ###### 12 
 Therefore, my beloved, as you have always obeyed, not as in my presence only, but now much more in my absence, work out your own salvation with fear and trembling; 
@@ -61,7 +65,9 @@ holding fast the word of life, so that I may rejoice in the day of Christ that I
 Yes, and if I am being poured out _as a drink offering_ on the sacrifice and service of your faith, I am glad and rejoice with you all. 
 
 ###### 18 
-For the same reason you also be glad and rejoice with me. ## Timothy Commended 
+For the same reason you also be glad and rejoice with me.
+
+## Timothy Commended 
 
 ###### 19 
 But I trust in the Lord Jesus to send Timothy to you shortly, that I also may be encouraged when I know your state. 
@@ -79,7 +85,9 @@ But you know his proven character, that as a son with _his_ father he served wit
 Therefore I hope to send him at once, as soon as I see how it goes with me. 
 
 ###### 24 
-But I trust in the Lord that I myself shall also come shortly. ## Epaphroditus Praised 
+But I trust in the Lord that I myself shall also come shortly.
+
+## Epaphroditus Praised 
 
 ###### 25 
 Yet I considered it necessary to send to you Epaphroditus, my brother, fellow worker, and fellow soldier, but your messenger and the one who ministered to my need; 

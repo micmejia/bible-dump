@@ -16,7 +16,9 @@ Now in the church that was at Antioch there were certain prophets and teachers: 
 As they ministered to the Lord and fasted, the Holy Spirit said, "Now separate to Me Barnabas and Saul for the work to which I have called them." 
 
 ###### 3 
-Then, having fasted and prayed, and laid hands on them, they sent _them_ away. ## Preaching in Cyprus 
+Then, having fasted and prayed, and laid hands on them, they sent _them_ away.
+
+## Preaching in Cyprus 
 
 ###### 4 
 So, being sent out by the Holy Spirit, they went down to Seleucia, and from there they sailed to Cyprus. 
@@ -43,7 +45,9 @@ and said, "O full of all deceit and all fraud, _you_ son of the devil, _you_ ene
 And now, indeed, the hand of the Lord _is_ upon you, and you shall be blind, not seeing the sun for a time." And immediately a dark mist fell on him, and he went around seeking someone to lead him by the hand. 
 
 ###### 12 
-Then the proconsul believed, when he saw what had been done, being astonished at the teaching of the Lord. ## At Antioch in Pisidia 
+Then the proconsul believed, when he saw what had been done, being astonished at the teaching of the Lord.
+
+## At Antioch in Pisidia 
 
 ###### 13 
 Now when Paul and his party set sail from Paphos, they came to Perga in Pamphylia; and John, departing from them, returned to Jerusalem. 

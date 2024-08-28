@@ -33,7 +33,9 @@ But the heavens and the earth _which_ are now preserved by the same word, are re
 But, beloved, do not forget this one thing, that with the Lord one day _is_ as a thousand years, and a thousand years as one day. 
 
 ###### 9 
-The Lord is not slack concerning _His_ promise, as some count slackness, but is longsuffering toward us, not willing that any should perish but that all should come to repentance. ## The Day of the Lord 
+The Lord is not slack concerning _His_ promise, as some count slackness, but is longsuffering toward us, not willing that any should perish but that all should come to repentance.
+
+## The Day of the Lord 
 
 ###### 10 
 But the day of the Lord will come as a thief in the night, in which the heavens will pass away with a great noise, and the elements will melt with fervent heat; both the earth and the works that are in it will be burned up. 
@@ -45,7 +47,9 @@ Therefore, since all these things will be dissolved, what manner _of persons_ ou
 looking for and hastening the coming of the day of God, because of which the heavens will be dissolved, being on fire, and the elements will melt with fervent heat? 
 
 ###### 13 
-Nevertheless we, according to His promise, look for new heavens and a new earth in which righteousness dwells. ## Be Steadfast 
+Nevertheless we, according to His promise, look for new heavens and a new earth in which righteousness dwells.
+
+## Be Steadfast 
 
 ###### 14 
 Therefore, beloved, looking forward to these things, be diligent to be found by Him in peace, without spot and blameless; 

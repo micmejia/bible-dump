@@ -71,7 +71,9 @@ up: ['Jude']
 
 
 
-Sumainyo nawa ang higit pang awa, kapayapaan, at pag-ibig <i class="trans-change">mula sa Dios_. ## Mga Huwad at Sinungaling na Guro 
+Sumainyo nawa ang higit pang awa, kapayapaan, at pag-ibig <i class="trans-change">mula sa Dios_.
+
+## Mga Huwad at Sinungaling na Guro 
 
 
 
@@ -533,7 +535,9 @@ para hatulan ang lahat at parusahan ang mga hindi kumikilala sa Dios dahil sa ma
 
 
 
-Ang mga taong ito <i class="trans-change">na sumasalungat sa katotohanan_ ay mareklamo, mapagpuna, at ang tanging sinusunod ay ang masasamang hangarin nila. Mayabang sila sa kanilang pananalita, at nililinlang nila ang mga tao para makuha ang gusto nila. ## Mga Payo at Babala 
+Ang mga taong ito <i class="trans-change">na sumasalungat sa katotohanan_ ay mareklamo, mapagpuna, at ang tanging sinusunod ay ang masasamang hangarin nila. Mayabang sila sa kanilang pananalita, at nililinlang nila ang mga tao para makuha ang gusto nila.
+
+## Mga Payo at Babala 
 
 
 
@@ -764,7 +768,9 @@ Maawa kayo sa mga nag-aalinlangan.
 
 
 
-Tulungan ninyo ang iba na maligtas sa kaparusahan, na para bang nagliligtas kayo ng isang bagay na masusunog na. Maawa kayo kahit sa mga taong napakasama, pero mag-ingat kayo <i class="trans-change">sa masasama nilang gawa_. Kasuklaman ninyo kahit na ang damit nilang nadumihan ng kasamaan nila. ## Papuri at Pasasalamat sa Dios 
+Tulungan ninyo ang iba na maligtas sa kaparusahan, na para bang nagliligtas kayo ng isang bagay na masusunog na. Maawa kayo kahit sa mga taong napakasama, pero mag-ingat kayo <i class="trans-change">sa masasama nilang gawa_. Kasuklaman ninyo kahit na ang damit nilang nadumihan ng kasamaan nila.
+
+## Papuri at Pasasalamat sa Dios 
 
 
 

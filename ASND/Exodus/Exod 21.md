@@ -370,7 +370,9 @@ Kung <i class="trans-change">gagawin niyang asawa ang alipin, at_ mag-aasawa pa 
 
 
 
-Kung hindi niya masusunod ang tatlong bagay na ito, papayagan niyang lumaya ang babae nang walang bayad. ## Mga Kautusan Tungkol sa mga Krimen 
+Kung hindi niya masusunod ang tatlong bagay na ito, papayagan niyang lumaya ang babae nang walang bayad.
+
+## Mga Kautusan Tungkol sa mga Krimen 
 
 
 

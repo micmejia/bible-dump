@@ -37,7 +37,9 @@ And Baruch the son of Neriah did according to all that Jeremiah the prophet comm
 Now it came to pass in the fifth year of Jehoiakim the son of Josiah, king of Judah, in the ninth month, _that_ they proclaimed a fast before the Lord to all the people in Jerusalem, and to all the people who came from the cities of Judah to Jerusalem. 
 
 ###### 10 
-Then Baruch read from the book the words of Jeremiah in the house of the Lord, in the chamber of Gemariah the son of Shaphan the scribe, in the upper court at the entry of the New Gate of the Lord's house, in the hearing of all the people. ## The Scroll Read in the Palace 
+Then Baruch read from the book the words of Jeremiah in the house of the Lord, in the chamber of Gemariah the son of Shaphan the scribe, in the upper court at the entry of the New Gate of the Lord's house, in the hearing of all the people.
+
+## The Scroll Read in the Palace 
 
 ###### 11 
 When Michaiah the son of Gemariah, the son of Shaphan, heard all the words of the Lord from the book, 
@@ -85,7 +87,9 @@ Yet they were not afraid, nor did they tear their garments, the king nor any of 
 Nevertheless Elnathan, Delaiah, and Gemariah implored the king not to burn the scroll; but he would not listen to them. 
 
 ###### 26 
-And the king commanded Jerahmeel the king's son, Seraiah the son of Azriel, and Shelemiah the son of Abdeel, to seize Baruch the scribe and Jeremiah the prophet, but the Lord hid them. ## Jeremiah Rewrites the Scroll 
+And the king commanded Jerahmeel the king's son, Seraiah the son of Azriel, and Shelemiah the son of Abdeel, to seize Baruch the scribe and Jeremiah the prophet, but the Lord hid them.
+
+## Jeremiah Rewrites the Scroll 
 
 ###### 27 
 Now after the king had burned the scroll with the words which Baruch had written at the instruction of Jeremiah, the word of the Lord came to Jeremiah, saying: 

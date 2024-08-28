@@ -25,7 +25,9 @@ His tail drew a third of the stars of heaven and threw them to the earth. And th
 She bore a male Child who was to rule all nations with a rod of iron. And her Child was caught up to God and His throne. 
 
 ###### 6 
-Then the woman fled into the wilderness, where she has a place prepared by God, that they should feed her there one thousand two hundred and sixty days. ## Satan Thrown Out of Heaven 
+Then the woman fled into the wilderness, where she has a place prepared by God, that they should feed her there one thousand two hundred and sixty days.
+
+## Satan Thrown Out of Heaven 
 
 ###### 7 
 And war broke out in heaven: Michael and his angels fought with the dragon; and the dragon and his angels fought, 

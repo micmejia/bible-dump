@@ -24,7 +24,9 @@ Indeed the wages of the laborers who mowed your fields, which you kept back by f
 You have lived on the earth in pleasure and luxury; you have fattened your hearts as in a day of slaughter. 
 
 ###### 6 
-You have condemned, you have murdered the just; he does not resist you. ## Be Patient and Persevering 
+You have condemned, you have murdered the just; he does not resist you.
+
+## Be Patient and Persevering 
 
 ###### 7 
 Therefore be patient, brethren, until the coming of the Lord. See _how_ the farmer waits for the precious fruit of the earth, waiting patiently for it until it receives the early and latter rain. 
@@ -42,7 +44,9 @@ My brethren, take the prophets, who spoke in the name of the Lord, as an example
 Indeed we count them blessed who endure. You have heard of the perseverance of Job and seen the end _intended by_ the Lord--that the Lord is very compassionate and merciful. 
 
 ###### 12 
-But above all, my brethren, do not swear, either by heaven or by earth or with any other oath. But let your "Yes" be "Yes," and _your_ "No," "No," lest you fall into judgment. ## Meeting Specific Needs 
+But above all, my brethren, do not swear, either by heaven or by earth or with any other oath. But let your "Yes" be "Yes," and _your_ "No," "No," lest you fall into judgment.
+
+## Meeting Specific Needs 
 
 ###### 13 
 Is anyone among you suffering? Let him pray. Is anyone cheerful? Let him sing psalms. 
@@ -60,7 +64,9 @@ Confess _your_ trespasses to one another, and pray for one another, that you may
 Elijah was a man with a nature like ours, and he prayed earnestly that it would not rain; and it did not rain on the land for three years and six months. 
 
 ###### 18 
-And he prayed again, and the heaven gave rain, and the earth produced its fruit. ## Bring Back the Erring One 
+And he prayed again, and the heaven gave rain, and the earth produced its fruit.
+
+## Bring Back the Erring One 
 
 ###### 19 
 Brethren, if anyone among you wanders from the truth, and someone turns him back, 

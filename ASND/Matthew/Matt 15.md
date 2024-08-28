@@ -931,7 +931,9 @@ Sumagot naman ang babae, "Tama po kayo, Panginoon, pero kahit mga aso ay kumakai
 
 
 
-At sinabi sa kanya ni Jesus, "Napakalaki ng pananampalataya mo! Mangyayari ang ayon sa hinihiling mo." At nang sandaling iyon ay gumaling ang anak ng babae. ## Maraming Pinagaling si Jesus 
+At sinabi sa kanya ni Jesus, "Napakalaki ng pananampalataya mo! Mangyayari ang ayon sa hinihiling mo." At nang sandaling iyon ay gumaling ang anak ng babae.
+
+## Maraming Pinagaling si Jesus 
 
 
 
@@ -1030,7 +1032,9 @@ Maraming tao ang pumunta sa kanya na may dalang mga pilay, bulag, komang, pipi, 
 
 
 
-Namangha nang husto ang mga tao nang makita nilang nakakapagsalita na ang mga pipi, gumaling na ang mga komang, nakakalakad na ang mga pilay, at nakakakita na ang mga bulag. Kaya pinuri nila ang Dios ng Israel. ## Ang Pagpapakain sa Apat na Libo 
+Namangha nang husto ang mga tao nang makita nilang nakakapagsalita na ang mga pipi, gumaling na ang mga komang, nakakalakad na ang mga pilay, at nakakakita na ang mga bulag. Kaya pinuri nila ang Dios ng Israel.
+
+## Ang Pagpapakain sa Apat na Libo 
 
 
 

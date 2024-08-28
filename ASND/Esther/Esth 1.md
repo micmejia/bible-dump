@@ -138,7 +138,9 @@ Pagkatapos noon, naghanda rin ang hari para sa lahat ng mga taga-Susa, mayaman m
 
 
 
-Naglagay sila ng kurtinang puti at asul na tinalian ng panaling <i class="trans-change">gawa sa telang_ linen na kulay ube. At ikinabit sa mga argolya na pilak sa mga haliging marmol. Ang mga upuan ay yari sa ginto at pilak. Ang sahig naman nito ay may disenyong yari sa kristal, marmol, nakar, at iba pang mamahaling bato. ###### 7-8 Pati ang mga kopa na iniinuman ng mga panauhin ay yari sa ginto na ibaʼt iba ang hugis at disenyo. Nag-utos ang hari sa mga alipin niya na bigyan ng mamahaling alak ang mga panauhin niya hanggaʼt gusto nila. 
+Naglagay sila ng kurtinang puti at asul na tinalian ng panaling <i class="trans-change">gawa sa telang_ linen na kulay ube. At ikinabit sa mga argolya na pilak sa mga haliging marmol. Ang mga upuan ay yari sa ginto at pilak. Ang sahig naman nito ay may disenyong yari sa kristal, marmol, nakar, at iba pang mamahaling bato.
+
+###### 7-8 Pati ang mga kopa na iniinuman ng mga panauhin ay yari sa ginto na ibaʼt iba ang hugis at disenyo. Nag-utos ang hari sa mga alipin niya na bigyan ng mamahaling alak ang mga panauhin niya hanggaʼt gusto nila. 
 
 
 

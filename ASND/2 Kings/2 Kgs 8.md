@@ -502,7 +502,9 @@ Umalis si Hazael at bumalik sa amo niya <i class="trans-change">na si Haring Ben
 
 
 
-Pero nang sumunod na araw, kumuha si Hazael ng makapal na tela, isinawsaw ito sa tubig at itinakip sa mukha ng hari hanggang sa mamatay ito. Kaya si Hazael ang pumalit bilang hari ng Aram. ## Ang Paghahari ni Jehoram sa Juda 
+Pero nang sumunod na araw, kumuha si Hazael ng makapal na tela, isinawsaw ito sa tubig at itinakip sa mukha ng hari hanggang sa mamatay ito. Kaya si Hazael ang pumalit bilang hari ng Aram.
+
+## Ang Paghahari ni Jehoram sa Juda 
 
 
 
@@ -799,7 +801,9 @@ Ang iba pang salaysay tungkol sa paghahari ni Jehoram, at ang lahat na ginawa ni
 
 
 
-Nang mamatay si Jehoram, inilibing siya sa libingan ng mga ninuno niya sa Lungsod ni David. At ang anak niyang si Ahazia ang pumalit sa kanya bilang hari. ## Ang Paghahari ni Ahazia sa Juda 
+Nang mamatay si Jehoram, inilibing siya sa libingan ng mga ninuno niya sa Lungsod ni David. At ang anak niyang si Ahazia ang pumalit sa kanya bilang hari.
+
+## Ang Paghahari ni Ahazia sa Juda 
 
 
 

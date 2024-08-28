@@ -58,7 +58,9 @@ He divided his forces against them by night, and he and his servants attacked th
 So he brought back all the goods, and also brought back his brother Lot and his goods, as well as the women and the people. 
 
 ###### 17 
-And the king of Sodom went out to meet him at the Valley of Shaveh (that _is,_ the King's Valley), after his return from the defeat of Chedorlaomer and the kings who _were_ with him. ## Abram and Melchizedek 
+And the king of Sodom went out to meet him at the Valley of Shaveh (that _is,_ the King's Valley), after his return from the defeat of Chedorlaomer and the kings who _were_ with him.
+
+## Abram and Melchizedek 
 
 ###### 18 
 Then Melchizedek king of Salem brought out bread and wine; he _was_ the priest of God Most High. 

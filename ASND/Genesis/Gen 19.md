@@ -370,7 +370,9 @@ pero binuksan ito ng dalawang anghel na nasa loob at hinatak nila si Lot papasok
 
 
 
-Pagkatapos, binulag nila ang mga tao na nasa labas para hindi na nila makita ang pintuan. ## Pinaalis si Lot sa Sodom 
+Pagkatapos, binulag nila ang mga tao na nasa labas para hindi na nila makita ang pintuan.
+
+## Pinaalis si Lot sa Sodom 
 
 
 
@@ -733,7 +735,9 @@ Sumagot ang Panginoon, "Oo, payag ako sa kahilingan mo; hindi ko lilipulin ang b
 
 
 
-Sige, tumakbo na kayo roon, dahil wala pa akong gagawin hanggaʼt hindi pa kayo nakakarating doon." Ang bayang iyon ay tinatawag na Zoar dahil maliit ang bayang iyon. ## Ang Paglipol sa Sodom at Gomora 
+Sige, tumakbo na kayo roon, dahil wala pa akong gagawin hanggaʼt hindi pa kayo nakakarating doon." Ang bayang iyon ay tinatawag na Zoar dahil maliit ang bayang iyon.
+
+## Ang Paglipol sa Sodom at Gomora 
 
 
 
@@ -964,7 +968,9 @@ Minasdan niya ang Sodom at Gomora, at ang buong kapatagan. Nakita niya ang usok 
 
 
 
-Inalala ng Dios si Abraham, nang lipulin ng Dios ang mga lungsod sa kapatagan kung saan nakatira si Lot, iniligtas niya muna si Lot para hindi ito mapahamak. ## Ang Pinanggalingan ng mga Moabita at Ammonita 
+Inalala ng Dios si Abraham, nang lipulin ng Dios ang mga lungsod sa kapatagan kung saan nakatira si Lot, iniligtas niya muna si Lot para hindi ito mapahamak.
+
+## Ang Pinanggalingan ng mga Moabita at Ammonita 
 
 
 

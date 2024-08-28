@@ -42,7 +42,9 @@ It was Mary Magdalene, Joanna, Mary _the mother_ of James, and the other _women_
 And their words seemed to them like idle tales, and they did not believe them. 
 
 ###### 12 
-But Peter arose and ran to the tomb; and stooping down, he saw the linen cloths lying by themselves; and he departed, marveling to himself at what had happened. ## The Road to Emmaus 
+But Peter arose and ran to the tomb; and stooping down, he saw the linen cloths lying by themselves; and he departed, marveling to himself at what had happened.
+
+## The Road to Emmaus 
 
 ###### 13 
 Now behold, two of them were traveling that same day to a village called Emmaus, which was seven miles from Jerusalem. 
@@ -87,7 +89,9 @@ Then He said to them, "O foolish ones, and slow of heart to believe in all that 
 Ought not the Christ to have suffered these things and to enter into His glory?" 
 
 ###### 27 
-And beginning at Moses and all the Prophets, He expounded to them in all the Scriptures the things concerning Himself. ## The Disciples' Eyes Opened 
+And beginning at Moses and all the Prophets, He expounded to them in all the Scriptures the things concerning Himself.
+
+## The Disciples' Eyes Opened 
 
 ###### 28 
 Then they drew near to the village where they were going, and He indicated that He would have gone farther. 
@@ -111,7 +115,9 @@ So they rose up that very hour and returned to Jerusalem, and found the eleven a
 saying, "The Lord is risen indeed, and has appeared to Simon!" 
 
 ###### 35 
-And they told about the things _that had happened_ on the road, and how He was known to them in the breaking of bread. ## Jesus Appears to His Disciples 
+And they told about the things _that had happened_ on the road, and how He was known to them in the breaking of bread.
+
+## Jesus Appears to His Disciples 
 
 ###### 36 
 Now as they said these things, Jesus Himself stood in the midst of them, and said to them, "Peace to you." 
@@ -135,7 +141,9 @@ But while they still did not believe for joy, and marveled, He said to them, "Ha
 So they gave Him a piece of a broiled fish and some honeycomb. 
 
 ###### 43 
-And He took _it_ and ate in their presence. ## The Scriptures Opened 
+And He took _it_ and ate in their presence.
+
+## The Scriptures Opened 
 
 ###### 44 
 Then He said to them, "These _are_ the words which I spoke to you while I was still with you, that all things must be fulfilled which were written in the Law of Moses and _the_ Prophets and _the_ Psalms concerning Me." 

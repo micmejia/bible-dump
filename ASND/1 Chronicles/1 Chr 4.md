@@ -700,7 +700,9 @@ Ito ang mga angkan ni Shela na anak ni Juda: si Er (na ama ni Leca), at si Laada
 
 
 
-Sila ang mga magpapalayok na nakatira sa Netaim at Gedera. Nagtatrabaho sila para sa hari. ## Ang Angkan ni Simeon 
+Sila ang mga magpapalayok na nakatira sa Netaim at Gedera. Nagtatrabaho sila para sa hari.
+
+## Ang Angkan ni Simeon 
 
 
 

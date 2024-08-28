@@ -997,7 +997,9 @@ dahil tinuturuan niya ang mga tagasunod niya. Sinabi niya sa kanila, "<i class="
 
 
 
-Ngunit hindi nila naunawaan ang sinabi niya, at natakot naman silang magtanong sa kanya. ## Sino ang Pinakadakila? 
+Ngunit hindi nila naunawaan ang sinabi niya, at natakot naman silang magtanong sa kanya.
+
+## Sino ang Pinakadakila? 
 
 
 

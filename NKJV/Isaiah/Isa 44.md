@@ -22,7 +22,9 @@ For I will pour water on him who is thirsty, And floods on the dry ground; I wil
 They will spring up among the grass Like willows by the watercourses.' 
 
 ###### 5 
-One will say, 'I _am_ the Lord's'; Another will call _himself_ by the name of Jacob; Another will write _with_ his hand, 'The Lord's,' And name _himself_ by the name of Israel. ## There Is No Other God 
+One will say, 'I _am_ the Lord's'; Another will call _himself_ by the name of Jacob; Another will write _with_ his hand, 'The Lord's,' And name _himself_ by the name of Israel.
+
+## There Is No Other God 
 
 ###### 6 
 "Thus says the Lord, the King of Israel, And his Redeemer, the Lord of hosts: 'I _am_ the First and I _am_ the Last; Besides Me _there is_ no God. 
@@ -76,7 +78,9 @@ He feeds on ashes; A deceived heart has turned him aside; And he cannot deliver 
 I have blotted out, like a thick cloud, your transgressions, And like a cloud, your sins. Return to Me, for I have redeemed you." 
 
 ###### 23 
-Sing, O heavens, for the Lord has done _it!_ Shout, you lower parts of the earth; Break forth into singing, you mountains, O forest, and every tree in it! For the Lord has redeemed Jacob, And glorified Himself in Israel. ## Judah Will Be Restored 
+Sing, O heavens, for the Lord has done _it!_ Shout, you lower parts of the earth; Break forth into singing, you mountains, O forest, and every tree in it! For the Lord has redeemed Jacob, And glorified Himself in Israel.
+
+## Judah Will Be Restored 
 
 ###### 24 
 Thus says the Lord, your Redeemer, And He who formed you from the womb: "I _am_ the Lord, who makes all _things,_ Who stretches out the heavens all alone, Who spreads abroad the earth by Myself; 

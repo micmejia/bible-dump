@@ -27,7 +27,9 @@ But to Hannah he would give a double portion, for he loved Hannah, although the 
 And her rival also provoked her severely, to make her miserable, because the Lord had closed her womb. 
 
 ###### 7 
-So it was, year by year, when she went up to the house of the Lord, that she provoked her; therefore she wept and did not eat. ## Hannah's Vow 
+So it was, year by year, when she went up to the house of the Lord, that she provoked her; therefore she wept and did not eat.
+
+## Hannah's Vow 
 
 ###### 8 
 Then Elkanah her husband said to her, "Hannah, why do you weep? Why do you not eat? And why is your heart grieved? _Am_ I not better to you than ten sons?" 
@@ -60,7 +62,9 @@ Do not consider your maidservant a wicked woman, for out of the abundance of my 
 Then Eli answered and said, "Go in peace, and the God of Israel grant your petition which you have asked of Him." 
 
 ###### 18 
-And she said, "Let your maidservant find favor in your sight." So the woman went her way and ate, and her face was no longer _sad._ ## Samuel Is Born and Dedicated 
+And she said, "Let your maidservant find favor in your sight." So the woman went her way and ate, and her face was no longer _sad._
+
+## Samuel Is Born and Dedicated 
 
 ###### 19 
 Then they rose early in the morning and worshiped before the Lord, and returned and came to their house at Ramah. And Elkanah knew Hannah his wife, and the Lord remembered her. 

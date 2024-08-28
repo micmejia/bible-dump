@@ -403,7 +403,9 @@ Huwag kayong magsusuot ng damit na ginawa sa dalawang klase ng tela.
 
 
 
-"Lagyan ninyo ng palawit ang apat na gilid ng balabal na damit ninyo. ## Ang Kautusan tungkol sa Dangal ng Babae 
+"Lagyan ninyo ng palawit ang apat na gilid ng balabal na damit ninyo.
+
+## Ang Kautusan tungkol sa Dangal ng Babae 
 
 
 
@@ -700,7 +702,9 @@ Pagmumultahin siya ng 100 pirasong pilak at ibibigay ito sa ama ng babae, dahil 
 
 
 
-dadalhin ang babaeng iyon sa harap ng bahay ng kanyang ama at doon babatuhin siya ng mga lalaki ng bayan hanggang sa mamatay. Sa pamamagitan nito, mawawala ang masasamang gawa sa inyong bansa. Nakakahiya ang bagay na ginawa niya sa Israel sa pamamagitan ng pakikiapid habang nasa poder pa siya ng kanyang ama. ## Ang Kautusan tungkol sa Pakikiapid 
+dadalhin ang babaeng iyon sa harap ng bahay ng kanyang ama at doon babatuhin siya ng mga lalaki ng bayan hanggang sa mamatay. Sa pamamagitan nito, mawawala ang masasamang gawa sa inyong bansa. Nakakahiya ang bagay na ginawa niya sa Israel sa pamamagitan ng pakikiapid habang nasa poder pa siya ng kanyang ama.
+
+## Ang Kautusan tungkol sa Pakikiapid 
 
 
 

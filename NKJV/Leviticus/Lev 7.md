@@ -37,7 +37,9 @@ And the priest who offers anyone's burnt offering, that priest shall have for hi
 Also every grain offering that is baked in the oven and all that is prepared in the covered pan, or in a pan, shall be the priest's who offers it. 
 
 ###### 10 
-Every grain offering, _whether_ mixed with oil or dry, shall belong to all the sons of Aaron, to one _as much_ as the other. ## The Law of Peace Offerings 
+Every grain offering, _whether_ mixed with oil or dry, shall belong to all the sons of Aaron, to one _as much_ as the other.
+
+## The Law of Peace Offerings 
 
 ###### 11 
 'This _is_ the law of the sacrifice of peace offerings which he shall offer to the Lord: 

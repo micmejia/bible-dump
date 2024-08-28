@@ -32,7 +32,9 @@ All the men in your confederacy Shall force you to the border; The men at peace 
 "Will I not in that day," says the Lord, "Even destroy the wise _men_ from Edom, And understanding from the mountains of Esau? 
 
 ###### 9 
-Then your mighty men, O Teman, shall be dismayed, To the end that everyone from the mountains of Esau May be cut off by slaughter. ## Edom Mistreated His Brother 
+Then your mighty men, O Teman, shall be dismayed, To the end that everyone from the mountains of Esau May be cut off by slaughter.
+
+## Edom Mistreated His Brother 
 
 ###### 10 
 "For violence against your brother Jacob, Shame shall cover you, And you shall be cut off forever. 
@@ -53,7 +55,9 @@ You should not have stood at the crossroads To cut off those among them who esca
 "For the day of the Lord upon all the nations _is_ near; As you have done, it shall be done to you; Your reprisal shall return upon your own head. 
 
 ###### 16 
-For as you drank on My holy mountain, _So_ shall all the nations drink continually; Yes, they shall drink, and swallow, And they shall be as though they had never been. ## Israel's Final Triumph 
+For as you drank on My holy mountain, _So_ shall all the nations drink continually; Yes, they shall drink, and swallow, And they shall be as though they had never been.
+
+## Israel's Final Triumph 
 
 ###### 17 
 "But on Mount Zion there shall be deliverance, And there shall be holiness; The house of Jacob shall possess their possessions. 

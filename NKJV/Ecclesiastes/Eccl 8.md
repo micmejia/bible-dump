@@ -10,7 +10,9 @@ next: ['Eccl 9']
 
 
 ###### 1 
-Who _is_ like a wise _man?_ And who knows the interpretation of a thing? A man's wisdom makes his face shine, And the sternness of his face is changed. ## Obey Authorities for God's Sake 
+Who _is_ like a wise _man?_ And who knows the interpretation of a thing? A man's wisdom makes his face shine, And the sternness of his face is changed.
+
+## Obey Authorities for God's Sake 
 
 ###### 2 
 I _say,_ "Keep the king's commandment for the sake of your oath to God. 
@@ -34,7 +36,9 @@ For he does not know what will happen; So who can tell him when it will occur?
 No one has power over the spirit to retain the spirit, And no one has power in the day of death. _There is_ no release from that war, And wickedness will not deliver those who are given to it. 
 
 ###### 9 
-All this I have seen, and applied my heart to every work that is done under the sun: _There is_ a time in which one man rules over another to his own hurt. ## Death Comes to All 
+All this I have seen, and applied my heart to every work that is done under the sun: _There is_ a time in which one man rules over another to his own hurt.
+
+## Death Comes to All 
 
 ###### 10 
 Then I saw the wicked buried, who had come and gone from the place of holiness, and they were forgotten in the city where they had so done. This also _is_ vanity. 

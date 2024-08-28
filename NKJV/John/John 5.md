@@ -52,7 +52,9 @@ But the one who was healed did not know who it was, for Jesus had withdrawn, a m
 Afterward Jesus found him in the temple, and said to him, "See, you have been made well. Sin no more, lest a worse thing come upon you." 
 
 ###### 15 
-The man departed and told the Jews that it was Jesus who had made him well. ## Honor the Father and the Son 
+The man departed and told the Jews that it was Jesus who had made him well.
+
+## Honor the Father and the Son 
 
 ###### 16 
 For this reason the Jews persecuted Jesus, and sought to kill Him, because He had done these things on the Sabbath. 
@@ -76,7 +78,9 @@ For as the Father raises the dead and gives life to _them,_ even so the Son give
 For the Father judges no one, but has committed all judgment to the Son, 
 
 ###### 23 
-that all should honor the Son just as they honor the Father. He who does not honor the Son does not honor the Father who sent Him. ## Life and Judgment Are Through the Son 
+that all should honor the Son just as they honor the Father. He who does not honor the Son does not honor the Father who sent Him.
+
+## Life and Judgment Are Through the Son 
 
 ###### 24 
 "Most assuredly, I say to you, he who hears My word and believes in Him who sent Me has everlasting life, and shall not come into judgment, but has passed from death into life. 
@@ -97,7 +101,9 @@ Do not marvel at this; for the hour is coming in which all who are in the graves
 and come forth--those who have done good, to the resurrection of life, and those who have done evil, to the resurrection of condemnation. 
 
 ###### 30 
-I can of Myself do nothing. As I hear, I judge; and My judgment is righteous, because I do not seek My own will but the will of the Father who sent Me. ## The Fourfold Witness 
+I can of Myself do nothing. As I hear, I judge; and My judgment is righteous, because I do not seek My own will but the will of the Father who sent Me.
+
+## The Fourfold Witness 
 
 ###### 31 
 "If I bear witness of Myself, My witness is not true. 

@@ -72,7 +72,9 @@ next: ['2 Pet 2']
 
 
 
-Sumainyo nawa ang higit pang biyaya at kapayapaan dahil sa pagkakakilala ninyo sa ating Dios at Panginoong Jesu-Cristo. ## Pinili Tayo ng Dios na Maging mga Anak Niya 
+Sumainyo nawa ang higit pang biyaya at kapayapaan dahil sa pagkakakilala ninyo sa ating Dios at Panginoong Jesu-Cristo.
+
+## Pinili Tayo ng Dios na Maging mga Anak Niya 
 
 
 
@@ -501,7 +503,9 @@ dahil alam kong hindi na ako magtatagal sa mundong ito. Ang ating Panginoong Jes
 
 
 
-Kaya gagawin ko ang lahat para makatiyak akong maaalala nʼyo pa rin ang mga itinuro ko kahit wala na ako rito. ## Naging Saksi Kami sa Kapangyarihan ni Cristo 
+Kaya gagawin ko ang lahat para makatiyak akong maaalala nʼyo pa rin ang mga itinuro ko kahit wala na ako rito.
+
+## Naging Saksi Kami sa Kapangyarihan ni Cristo 
 
 
 

@@ -40,7 +40,9 @@ Then he dreamed still another dream and told it to his brothers, and said, "Look
 So he told _it_ to his father and his brothers; and his father rebuked him and said to him, "What _is_ this dream that you have dreamed? Shall your mother and I and your brothers indeed come to bow down to the earth before you?" 
 
 ###### 11 
-And his brothers envied him, but his father kept the matter _in mind._ ## Joseph Sold by His Brothers 
+And his brothers envied him, but his father kept the matter _in mind._
+
+## Joseph Sold by His Brothers 
 
 ###### 12 
 Then his brothers went to feed their father's flock in Shechem. 

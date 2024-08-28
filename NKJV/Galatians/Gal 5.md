@@ -25,7 +25,9 @@ You have become estranged from Christ, you who _attempt to_ be justified by law;
 For we through the Spirit eagerly wait for the hope of righteousness by faith. 
 
 ###### 6 
-For in Christ Jesus neither circumcision nor uncircumcision avails anything, but faith working through love. ## Love Fulfills the Law 
+For in Christ Jesus neither circumcision nor uncircumcision avails anything, but faith working through love.
+
+## Love Fulfills the Law 
 
 ###### 7 
 You ran well. Who hindered you from obeying the truth? 

@@ -16,7 +16,9 @@ The king of Arad, the Canaanite, who dwelt in the South, heard that Israel was c
 So Israel made a vow to the Lord, and said, "If You will indeed deliver this people into my hand, then I will utterly destroy their cities." 
 
 ###### 3 
-And the Lord listened to the voice of Israel and delivered up the Canaanites, and they utterly destroyed them and their cities. So the name of that place was called Hormah. ## The Bronze Serpent 
+And the Lord listened to the voice of Israel and delivered up the Canaanites, and they utterly destroyed them and their cities. So the name of that place was called Hormah.
+
+## The Bronze Serpent 
 
 ###### 4 
 Then they journeyed from Mount Hor by the Way of the Red Sea, to go around the land of Edom; and the soul of the people became very discouraged on the way. 
@@ -34,7 +36,9 @@ Therefore the people came to Moses, and said, "We have sinned, for we have spoke
 Then the Lord said to Moses, "Make a fiery _serpent,_ and set it on a pole; and it shall be that everyone who is bitten, when he looks at it, shall live." 
 
 ###### 9 
-So Moses made a bronze serpent, and put it on a pole; and so it was, if a serpent had bitten anyone, when he looked at the bronze serpent, he lived. ## From Mount Hor to Moab 
+So Moses made a bronze serpent, and put it on a pole; and so it was, if a serpent had bitten anyone, when he looked at the bronze serpent, he lived.
+
+## From Mount Hor to Moab 
 
 ###### 10 
 Now the children of Israel moved on and camped in Oboth. 
@@ -67,7 +71,9 @@ The well the leaders sank, Dug by the nation's nobles, By the lawgiver, with the
 from Mattanah to Nahaliel, from Nahaliel to Bamoth, 
 
 ###### 20 
-and from Bamoth, _in_ the valley that _is_ in the country of Moab, to the top of Pisgah which looks down on the wasteland. ## King Sihon Defeated 
+and from Bamoth, _in_ the valley that _is_ in the country of Moab, to the top of Pisgah which looks down on the wasteland.
+
+## King Sihon Defeated 
 
 ###### 21 
 Then Israel sent messengers to Sihon king of the Amorites, saying, 
@@ -103,7 +109,9 @@ Woe to you, Moab! You have perished, O people of Chemosh! He has given his sons 
 Thus Israel dwelt in the land of the Amorites. 
 
 ###### 32 
-Then Moses sent to spy out Jazer; and they took its villages and drove out the Amorites who _were_ there. ## King Og Defeated 
+Then Moses sent to spy out Jazer; and they took its villages and drove out the Amorites who _were_ there.
+
+## King Og Defeated 
 
 ###### 33 
 And they turned and went up by the way to Bashan. So Og king of Bashan went out against them, he and all his people, to battle at Edrei. 

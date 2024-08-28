@@ -172,7 +172,9 @@ Nang panahong iyon, hindi pa nabibilanggo si Jeremias, kaya malaya pa siyang pum
 
 
 
-Nang araw ding iyon, sumasalakay ang mga taga-Babilonia sa Jerusalem, pero nang marinig nilang dumarating ang mga sundalo ng Faraon, tumigil sila sa pagsalakay sa Jerusalem. ###### 6-7 Pagkatapos, sinabi ng Panginoon, ang Dios ng Israel, kay Jeremias, "Sabihin mo kay Haring Zedekia ng Juda na nag-utos para magtanong sa iyo kung ano ang sinabi kong mangyayari, 'Dumating ang mga sundalo ng Faraon para tulungan ka, pero babalik sila sa Egipto. 
+Nang araw ding iyon, sumasalakay ang mga taga-Babilonia sa Jerusalem, pero nang marinig nilang dumarating ang mga sundalo ng Faraon, tumigil sila sa pagsalakay sa Jerusalem.
+
+###### 6-7 Pagkatapos, sinabi ng Panginoon, ang Dios ng Israel, kay Jeremias, "Sabihin mo kay Haring Zedekia ng Juda na nag-utos para magtanong sa iyo kung ano ang sinabi kong mangyayari, 'Dumating ang mga sundalo ng Faraon para tulungan ka, pero babalik sila sa Egipto. 
 
 
 

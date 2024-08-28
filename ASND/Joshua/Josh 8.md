@@ -964,7 +964,9 @@ Pagkatapos, ipinasunog ni Josue ang buong Ai, at hindi na ito muling maitatayo; 
 
 
 
-Pinabitin ni Josue sa isang puno ang hari at pinabayaan doon maghapon. Paglubog ng araw, ipinakuha niya ang bangkay at ipinatapon sa labas ng pintuan ng lungsod. Pinatambakan nila ito ng malaking bunton ng mga bato, at hanggang ngayon ay makikita pa roon ang mga batong ito. ## Binasa ang Kasunduan sa Bundok ng Ebal 
+Pinabitin ni Josue sa isang puno ang hari at pinabayaan doon maghapon. Paglubog ng araw, ipinakuha niya ang bangkay at ipinatapon sa labas ng pintuan ng lungsod. Pinatambakan nila ito ng malaking bunton ng mga bato, at hanggang ngayon ay makikita pa roon ang mga batong ito.
+
+## Binasa ang Kasunduan sa Bundok ng Ebal 
 
 
 

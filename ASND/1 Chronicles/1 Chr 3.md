@@ -304,7 +304,9 @@ Elishama, Eliada at Elifelet.
 
 
 
-Iyon ang lahat ng mga anak na lalaki ni David, bukod sa iba pa niyang mga anak na lalaki sa iba pa niyang mga asawa. May anak din si David na babae na si Tamar. ## Ang mga Hari ng Juda 
+Iyon ang lahat ng mga anak na lalaki ni David, bukod sa iba pa niyang mga anak na lalaki sa iba pa niyang mga asawa. May anak din si David na babae na si Tamar.
+
+## Ang mga Hari ng Juda 
 
 
 
@@ -535,7 +537,9 @@ Ito ang mga anak ni Josia: Ang panganay ay si Johanan, ang ikalawa ay si Jehoyak
 
 
 
-Ang pumalit kay Jehoyakim bilang hari ay si Jehoyakin na kanyang anak. At ang pumalit kay Jehoyakin ay si Zedekia <i class="trans-change">na kanyang tiyuhin_. ## Ang Angkan ni Jehoyakin 
+Ang pumalit kay Jehoyakim bilang hari ay si Jehoyakin na kanyang anak. At ang pumalit kay Jehoyakin ay si Zedekia <i class="trans-change">na kanyang tiyuhin_.
+
+## Ang Angkan ni Jehoyakin 
 
 
 

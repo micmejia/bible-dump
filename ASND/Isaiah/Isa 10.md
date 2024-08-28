@@ -73,7 +73,9 @@ Ano ang gagawin ninyo sa araw ng pagpaparusa sa inyo? Ano ang gagawin nʼyo pagd
 
 
 
-Walang matitira sa inyo. Mabibihag o mamamatay kayo, pero ang galit ng Panginoon ay hindi pa mapapawi. Nakahanda pa rin siyang magparusa sa inyo. ## Ang Parusa ng Panginoon sa mga taga-Asiria 
+Walang matitira sa inyo. Mabibihag o mamamatay kayo, pero ang galit ng Panginoon ay hindi pa mapapawi. Nakahanda pa rin siyang magparusa sa inyo.
+
+## Ang Parusa ng Panginoon sa mga taga-Asiria 
 
 
 

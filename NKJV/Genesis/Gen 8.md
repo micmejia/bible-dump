@@ -64,7 +64,9 @@ Bring out with you every living thing of all flesh that _is_ with you: birds and
 So Noah went out, and his sons and his wife and his sons' wives with him. 
 
 ###### 19 
-Every animal, every creeping thing, every bird, _and_ whatever creeps on the earth, according to their families, went out of the ark. ## God's Covenant with Creation 
+Every animal, every creeping thing, every bird, _and_ whatever creeps on the earth, according to their families, went out of the ark.
+
+## God's Covenant with Creation 
 
 ###### 20 
 Then Noah built an altar to the Lord, and took of every clean animal and of every clean bird, and offered burnt offerings on the altar. 

@@ -19,7 +19,9 @@ For if Abraham was justified by works, he has _something_ to boast about, but no
 For what does the Scripture say? "Abraham believed God, and it was accounted to him for righteousness." 
 
 ###### 4 
-Now to him who works, the wages are not counted as grace but as debt. ## David Celebrates the Same Truth 
+Now to him who works, the wages are not counted as grace but as debt.
+
+## David Celebrates the Same Truth 
 
 ###### 5 
 But to him who does not work but believes on Him who justifies the ungodly, his faith is accounted for righteousness, 
@@ -43,7 +45,9 @@ How then was it accounted? While he was circumcised, or uncircumcised? Not while
 And he received the sign of circumcision, a seal of the righteousness of the faith which _he had while still_ uncircumcised, that he might be the father of all those who believe, though they are uncircumcised, that righteousness might be imputed to them also, 
 
 ###### 12 
-and the father of circumcision to those who not only _are_ of the circumcision, but who also walk in the steps of the faith which our father Abraham _had while still_ uncircumcised. ## The Promise Granted Through Faith 
+and the father of circumcision to those who not only _are_ of the circumcision, but who also walk in the steps of the faith which our father Abraham _had while still_ uncircumcised.
+
+## The Promise Granted Through Faith 
 
 ###### 13 
 For the promise that he would be the heir of the world _was_ not to Abraham or to his seed through the law, but through the righteousness of faith. 

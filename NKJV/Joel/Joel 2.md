@@ -88,7 +88,9 @@ The threshing floors shall be full of wheat, And the vats shall overflow with ne
 You shall eat in plenty and be satisfied, And praise the name of the Lord your God, Who has dealt wondrously with you; And My people shall never be put to shame. 
 
 ###### 27 
-Then you shall know that I _am_ in the midst of Israel: I _am_ the Lord your God And there is no other. My people shall never be put to shame. ## God's Spirit Poured Out 
+Then you shall know that I _am_ in the midst of Israel: I _am_ the Lord your God And there is no other. My people shall never be put to shame.
+
+## God's Spirit Poured Out 
 
 ###### 28 
 "And it shall come to pass afterward That I will pour out My Spirit on all flesh; Your sons and your daughters shall prophesy, Your old men shall dream dreams, Your young men shall see visions. 

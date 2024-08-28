@@ -436,7 +436,9 @@ Kaya mag-ingat kayo sa pananalita at gawa nʼyo, dahil ang Kautusan na nagpalaya
 
 
 
-Walang awang hahatulan ng Dios ang hindi marunong maawa; pero ang maawain sa kapwa ay hindi kailangang matakot sa oras ng paghatol. ## Ang Pananampalataya at Mabuting Gawa 
+Walang awang hahatulan ng Dios ang hindi marunong maawa; pero ang maawain sa kapwa ay hindi kailangang matakot sa oras ng paghatol.
+
+## Ang Pananampalataya at Mabuting Gawa 
 
 
 

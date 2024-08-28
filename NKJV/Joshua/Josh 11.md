@@ -52,7 +52,9 @@ But _as for_ the cities that stood on their mounds, Israel burned none of them, 
 And all the spoil of these cities and the livestock, the children of Israel took as booty for themselves; but they struck every man with the edge of the sword until they had destroyed them, and they left none breathing. 
 
 ###### 15 
-As the Lord had commanded Moses His servant, so Moses commanded Joshua, and so Joshua did. He left nothing undone of all that the Lord had commanded Moses. ## Summary of Joshua's Conquests 
+As the Lord had commanded Moses His servant, so Moses commanded Joshua, and so Joshua did. He left nothing undone of all that the Lord had commanded Moses.
+
+## Summary of Joshua's Conquests 
 
 ###### 16 
 Thus Joshua took all this land: the mountain country, all the South, all the land of Goshen, the lowland, and the Jordan plain--the mountains of Israel and its lowlands, 

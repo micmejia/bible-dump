@@ -172,7 +172,9 @@ Nawaʼy ibigay din sa iyo at sa mga lahi mo ang pagpapalang ibinigay niya kay Ab
 
 
 
-Agad na pinapunta ni Isaac si Jacob sa Padan Aram, sa lugar ni Laban na anak ni Betuel na Arameo. Si Laban ay kapatid ni Rebeka na ina nina Jacob at Esau. ## Muling nag-asawa si Esau 
+Agad na pinapunta ni Isaac si Jacob sa Padan Aram, sa lugar ni Laban na anak ni Betuel na Arameo. Si Laban ay kapatid ni Rebeka na ina nina Jacob at Esau.
+
+## Muling nag-asawa si Esau 
 
 
 
@@ -304,7 +306,9 @@ Dito napansin ni Esau na ayaw ng kanyang ama ang mga babaeng taga-Canaan.
 
 
 
-Kaya pumunta siya sa tiyuhin niyang si Ishmael na anak ni Abraham <i class="trans-change">kay Hagar_ at napangasawa si Mahalat na kapatid ni Nebayot at anak ni Ishmael, bukod pa sa dalawang naging asawa niya. ## Nanaginip si Jacob sa Betel 
+Kaya pumunta siya sa tiyuhin niyang si Ishmael na anak ni Abraham <i class="trans-change">kay Hagar_ at napangasawa si Mahalat na kapatid ni Nebayot at anak ni Ishmael, bukod pa sa dalawang naging asawa niya.
+
+## Nanaginip si Jacob sa Betel 
 
 
 

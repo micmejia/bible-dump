@@ -25,7 +25,9 @@ Therefore, my brethren, you also have become dead to the law through the body of
 For when we were in the flesh, the sinful passions which were aroused by the law were at work in our members to bear fruit to death. 
 
 ###### 6 
-But now we have been delivered from the law, having died to what we were held by, so that we should serve in the newness of the Spirit and not _in_ the oldness of the letter. ## Sin's Advantage in the Law 
+But now we have been delivered from the law, having died to what we were held by, so that we should serve in the newness of the Spirit and not _in_ the oldness of the letter.
+
+## Sin's Advantage in the Law 
 
 ###### 7 
 What shall we say then? _Is_ the law sin? Certainly not! On the contrary, I would not have known sin except through the law. For I would not have known covetousness unless the law had said, "You shall not covet." 
@@ -43,7 +45,9 @@ And the commandment, which _was_ to _bring_ life, I found to _bring_ death.
 For sin, taking occasion by the commandment, deceived me, and by it killed _me._ 
 
 ###### 12 
-Therefore the law _is_ holy, and the commandment holy and just and good. ## Law Cannot Save from Sin 
+Therefore the law _is_ holy, and the commandment holy and just and good.
+
+## Law Cannot Save from Sin 
 
 ###### 13 
 Has then what is good become death to me? Certainly not! But sin, that it might appear sin, was producing death in me through what is good, so that sin through the commandment might become exceedingly sinful. 

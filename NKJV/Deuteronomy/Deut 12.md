@@ -91,7 +91,9 @@ Only the holy things which you have, and your vowed offerings, you shall take an
 And you shall offer your burnt offerings, the meat and the blood, on the altar of the Lord your God; and the blood of your sacrifices shall be poured out on the altar of the Lord your God, and you shall eat the meat. 
 
 ###### 28 
-Observe and obey all these words which I command you, that it may go well with you and your children after you forever, when you do _what is_ good and right in the sight of the Lord your God. ## Beware of False Gods 
+Observe and obey all these words which I command you, that it may go well with you and your children after you forever, when you do _what is_ good and right in the sight of the Lord your God.
+
+## Beware of False Gods 
 
 ###### 29 
 "When the Lord your God cuts off from before you the nations which you go to dispossess, and you displace them and dwell in their land, 

@@ -10,7 +10,9 @@ next: ['Isa 28']
 
 
 ###### 1 
-In that day the Lord with His severe sword, great and strong, Will punish Leviathan the fleeing serpent, Leviathan that twisted serpent; And He will slay the reptile that _is_ in the sea. ## The Restoration of Israel 
+In that day the Lord with His severe sword, great and strong, Will punish Leviathan the fleeing serpent, Leviathan that twisted serpent; And He will slay the reptile that _is_ in the sea.
+
+## The Restoration of Israel 
 
 ###### 2 
 In that day sing to her, "A vineyard of red wine! 

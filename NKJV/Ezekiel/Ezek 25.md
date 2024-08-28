@@ -49,7 +49,9 @@ And I will execute judgments upon Moab, and they shall know that I _am_ the Lord
 therefore thus says the Lord God: "I will also stretch out My hand against Edom, cut off man and beast from it, and make it desolate from Teman; Dedan shall fall by the sword. 
 
 ###### 14 
-I will lay My vengeance on Edom by the hand of My people Israel, that they may do in Edom according to My anger and according to My fury; and they shall know My vengeance," says the Lord God. ## Proclamation Against Philistia 
+I will lay My vengeance on Edom by the hand of My people Israel, that they may do in Edom according to My anger and according to My fury; and they shall know My vengeance," says the Lord God.
+
+## Proclamation Against Philistia 
 
 ###### 15 
 'Thus says the Lord God: "Because the Philistines dealt vengefully and took vengeance with a spiteful heart, to destroy because of the old hatred," 

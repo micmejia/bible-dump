@@ -501,7 +501,9 @@ Kapag narinig ito ng gobernador, kami na ang bahalang magpaliwanag sa kanya, par
 
 
 
-Tinanggap ng mga guwardya ang pera at ginawa ang sinabi sa kanila. Kaya hanggang ngayon, ito pa rin ang kwentong ikinakalat ng mga Judio. ## Nagpakita si Jesus sa mga Tagasunod Niya 
+Tinanggap ng mga guwardya ang pera at ginawa ang sinabi sa kanila. Kaya hanggang ngayon, ito pa rin ang kwentong ikinakalat ng mga Judio.
+
+## Nagpakita si Jesus sa mga Tagasunod Niya 
 
 
 

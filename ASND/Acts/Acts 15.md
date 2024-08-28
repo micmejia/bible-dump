@@ -1162,7 +1162,9 @@ Pero nagpasya si Silas na magpaiwan doon.]
 
 
 
-Nanatili sina Pablo at Bernabe ng ilang araw sa Antioc. Marami silang kasamang nagtuturo at nangangaral ng salita ng Panginoon. ## Naghiwalay sina Pablo at Bernabe 
+Nanatili sina Pablo at Bernabe ng ilang araw sa Antioc. Marami silang kasamang nagtuturo at nangangaral ng salita ng Panginoon.
+
+## Naghiwalay sina Pablo at Bernabe 
 
 
 

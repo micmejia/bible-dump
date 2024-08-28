@@ -25,7 +25,9 @@ These are the two olive trees and the two lampstands standing before the God of 
 And if anyone wants to harm them, fire proceeds from their mouth and devours their enemies. And if anyone wants to harm them, he must be killed in this manner. 
 
 ###### 6 
-These have power to shut heaven, so that no rain falls in the days of their prophecy; and they have power over waters to turn them to blood, and to strike the earth with all plagues, as often as they desire. ## The Witnesses Killed 
+These have power to shut heaven, so that no rain falls in the days of their prophecy; and they have power over waters to turn them to blood, and to strike the earth with all plagues, as often as they desire.
+
+## The Witnesses Killed 
 
 ###### 7 
 When they finish their testimony, the beast that ascends out of the bottomless pit will make war against them, overcome them, and kill them. 
@@ -37,7 +39,9 @@ And their dead bodies _will lie_ in the street of the great city which spiritual
 Then _those_ from the peoples, tribes, tongues, and nations will see their dead bodies three-and-a-half days, and not allow their dead bodies to be put into graves. 
 
 ###### 10 
-And those who dwell on the earth will rejoice over them, make merry, and send gifts to one another, because these two prophets tormented those who dwell on the earth. ## The Witnesses Resurrected 
+And those who dwell on the earth will rejoice over them, make merry, and send gifts to one another, because these two prophets tormented those who dwell on the earth.
+
+## The Witnesses Resurrected 
 
 ###### 11 
 Now after the three-and-a-half days the breath of life from God entered them, and they stood on their feet, and great fear fell on those who saw them. 
@@ -49,7 +53,9 @@ And they heard a loud voice from heaven saying to them, "Come up here." And they
 In the same hour there was a great earthquake, and a tenth of the city fell. In the earthquake seven thousand people were killed, and the rest were afraid and gave glory to the God of heaven. 
 
 ###### 14 
-The second woe is past. Behold, the third woe is coming quickly. ## Seventh Trumpet: The Kingdom Proclaimed 
+The second woe is past. Behold, the third woe is coming quickly.
+
+## Seventh Trumpet: The Kingdom Proclaimed 
 
 ###### 15 
 Then the seventh angel sounded: And there were loud voices in heaven, saying, "The kingdoms of this world have become _the kingdoms_ of our Lord and of His Christ, and He shall reign forever and ever!" 

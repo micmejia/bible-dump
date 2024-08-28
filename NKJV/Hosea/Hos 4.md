@@ -37,7 +37,9 @@ They eat up the sin of My people; They set their heart on their iniquity.
 And it shall be: like people, like priest. So I will punish them for their ways, And reward them for their deeds. 
 
 ###### 10 
-For they shall eat, but not have enough; They shall commit harlotry, but not increase; Because they have ceased obeying the Lord. ## The Idolatry of Israel 
+For they shall eat, but not have enough; They shall commit harlotry, but not increase; Because they have ceased obeying the Lord.
+
+## The Idolatry of Israel 
 
 ###### 11 
 "Harlotry, wine, and new wine enslave the heart. 

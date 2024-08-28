@@ -19,7 +19,9 @@ He can have compassion on those who are ignorant and going astray, since he hims
 Because of this he is required as for the people, so also for himself, to offer _sacrifices_ for sins. 
 
 ###### 4 
-And no man takes this honor to himself, but he who is called by God, just as Aaron _was._ ## A Priest Forever 
+And no man takes this honor to himself, but he who is called by God, just as Aaron _was._
+
+## A Priest Forever 
 
 ###### 5 
 So also Christ did not glorify Himself to become High Priest, but _it was_ He who said to Him: "You are My Son, Today I have begotten You." 
@@ -40,7 +42,9 @@ And having been perfected, He became the author of eternal salvation to all who 
 called by God as High Priest "according to the order of Melchizedek," 
 
 ###### 11 
-of whom we have much to say, and hard to explain, since you have become dull of hearing. ## Spiritual Immaturity 
+of whom we have much to say, and hard to explain, since you have become dull of hearing.
+
+## Spiritual Immaturity 
 
 ###### 12 
 For though by this time you ought to be teachers, you need _someone_ to teach you again the first principles of the oracles of God; and you have come to need milk and not solid food. 

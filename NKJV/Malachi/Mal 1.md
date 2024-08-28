@@ -9,7 +9,9 @@ next: ['Mal 2']
 
 
 ###### 1 
-The burden of the word of the Lord to Israel by Malachi. ## Israel Beloved of God 
+The burden of the word of the Lord to Israel by Malachi.
+
+## Israel Beloved of God 
 
 ###### 2 
 "I have loved you," says the Lord. "Yet you say, 'In what way have You loved us?' _Was_ not Esau Jacob's brother?" Says the Lord. "Yet Jacob I have loved; 

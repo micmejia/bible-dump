@@ -49,7 +49,9 @@ And Jacob told Rachel that he _was_ her father's relative and that he _was_ Rebe
 Then it came to pass, when Laban heard the report about Jacob his sister's son, that he ran to meet him, and embraced him and kissed him, and brought him to his house. So he told Laban all these things. 
 
 ###### 14 
-And Laban said to him, "Surely you _are_ my bone and my flesh." And he stayed with him for a month. ## Jacob Marries Leah and Rachel 
+And Laban said to him, "Surely you _are_ my bone and my flesh." And he stayed with him for a month.
+
+## Jacob Marries Leah and Rachel 
 
 ###### 15 
 Then Laban said to Jacob, "Because you _are_ my relative, should you therefore serve me for nothing? Tell me, what _should_ your wages _be?_" 
@@ -97,7 +99,9 @@ Then Jacob did so and fulfilled her week. So he gave him his daughter Rachel as 
 And Laban gave his maid Bilhah to his daughter Rachel as a maid. 
 
 ###### 30 
-Then _Jacob_ also went in to Rachel, and he also loved Rachel more than Leah. And he served with Laban still another seven years. ## The Children of Jacob 
+Then _Jacob_ also went in to Rachel, and he also loved Rachel more than Leah. And he served with Laban still another seven years.
+
+## The Children of Jacob 
 
 ###### 31 
 When the Lord saw that Leah _was_ unloved, He opened her womb; but Rachel _was_ barren. 

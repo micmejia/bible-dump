@@ -34,7 +34,9 @@ And I, Daniel, alone saw the vision, for the men who were with me did not see th
 Therefore I was left alone when I saw this great vision, and no strength remained in me; for my vigor was turned to frailty in me, and I retained no strength. 
 
 ###### 9 
-Yet I heard the sound of his words; and while I heard the sound of his words I was in a deep sleep on my face, with my face to the ground. ## Prophecies Concerning Persia and Greece 
+Yet I heard the sound of his words; and while I heard the sound of his words I was in a deep sleep on my face, with my face to the ground.
+
+## Prophecies Concerning Persia and Greece 
 
 ###### 10 
 Suddenly, a hand touched me, which made me tremble on my knees and _on_ the palms of my hands. 

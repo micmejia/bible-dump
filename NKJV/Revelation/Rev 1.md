@@ -15,7 +15,9 @@ The Revelation of Jesus Christ, which God gave Him to show His servants--things 
 who bore witness to the word of God, and to the testimony of Jesus Christ, to all things that he saw. 
 
 ###### 3 
-Blessed _is_ he who reads and those who hear the words of this prophecy, and keep those things which are written in it; for the time _is_ near. ## Greeting the Seven Churches 
+Blessed _is_ he who reads and those who hear the words of this prophecy, and keep those things which are written in it; for the time _is_ near.
+
+## Greeting the Seven Churches 
 
 ###### 4 
 John, to the seven churches which are in Asia: Grace to you and peace from Him who is and who was and who is to come, and from the seven Spirits who are before His throne, 

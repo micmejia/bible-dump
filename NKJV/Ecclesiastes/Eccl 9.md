@@ -43,7 +43,9 @@ Whatever your hand finds to do, do _it_ with your might; for _there is_ no work 
 I returned and saw under the sun that-- The race _is_ not to the swift, Nor the battle to the strong, Nor bread to the wise, Nor riches to men of understanding, Nor favor to men of skill; But time and chance happen to them all. 
 
 ###### 12 
-For man also does not know his time: Like fish taken in a cruel net, Like birds caught in a snare, So the sons of men _are_ snared in an evil time, When it falls suddenly upon them. ## Wisdom Superior to Folly 
+For man also does not know his time: Like fish taken in a cruel net, Like birds caught in a snare, So the sons of men _are_ snared in an evil time, When it falls suddenly upon them.
+
+## Wisdom Superior to Folly 
 
 ###### 13 
 This wisdom I have also seen under the sun, and it _seemed_ great to me: 

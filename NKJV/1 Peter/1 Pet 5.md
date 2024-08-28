@@ -18,7 +18,9 @@ Shepherd the flock of God which is among you, serving as overseers, not by compu
 nor as being lords over those entrusted to you, but being examples to the flock; 
 
 ###### 4 
-and when the Chief Shepherd appears, you will receive the crown of glory that does not fade away. ## Submit to God, Resist the Devil 
+and when the Chief Shepherd appears, you will receive the crown of glory that does not fade away.
+
+## Submit to God, Resist the Devil 
 
 ###### 5 
 Likewise you younger people, submit yourselves to _your_ elders. Yes, all of _you_ be submissive to one another, and be clothed with humility, for "God resists the proud, But gives grace to the humble." 
@@ -39,7 +41,9 @@ Resist him, steadfast in the faith, knowing that the same sufferings are experie
 But may the God of all grace, who called us to His eternal glory by Christ Jesus, after you have suffered a while, perfect, establish, strengthen, and settle _you._ 
 
 ###### 11 
-To Him _be_ the glory and the dominion forever and ever. Amen. ## Farewell and Peace 
+To Him _be_ the glory and the dominion forever and ever. Amen.
+
+## Farewell and Peace 
 
 ###### 12 
 By Silvanus, our faithful brother as I consider him, I have written to you briefly, exhorting and testifying that this is the true grace of God in which you stand. 

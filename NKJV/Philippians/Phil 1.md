@@ -12,7 +12,9 @@ next: ['Phil 2']
 Paul and Timothy, bondservants of Jesus Christ, To all the saints in Christ Jesus who are in Philippi, with the bishops and deacons: 
 
 ###### 2 
-Grace to you and peace from God our Father and the Lord Jesus Christ. ## Thankfulness and Prayer 
+Grace to you and peace from God our Father and the Lord Jesus Christ.
+
+## Thankfulness and Prayer 
 
 ###### 3 
 I thank my God upon every remembrance of you, 
@@ -39,7 +41,9 @@ And this I pray, that your love may abound still more and more in knowledge and 
 that you may approve the things that are excellent, that you may be sincere and without offense till the day of Christ, 
 
 ###### 11 
-being filled with the fruits of righteousness which _are_ by Jesus Christ, to the glory and praise of God. ## Christ Is Preached 
+being filled with the fruits of righteousness which _are_ by Jesus Christ, to the glory and praise of God.
+
+## Christ Is Preached 
 
 ###### 12 
 But I want you to know, brethren, that the things _which happened_ to me have actually turned out for the furtherance of the gospel, 
@@ -60,7 +64,9 @@ The former preach Christ from selfish ambition, not sincerely, supposing to add 
 but the latter out of love, knowing that I am appointed for the defense of the gospel. 
 
 ###### 18 
-What then? Only _that_ in every way, whether in pretense or in truth, Christ is preached; and in this I rejoice, yes, and will rejoice. ## To Live Is Christ 
+What then? Only _that_ in every way, whether in pretense or in truth, Christ is preached; and in this I rejoice, yes, and will rejoice.
+
+## To Live Is Christ 
 
 ###### 19 
 For I know that this will turn out for my deliverance through your prayer and the supply of the Spirit of Jesus Christ, 
@@ -84,7 +90,9 @@ Nevertheless to remain in the flesh _is_ more needful for you.
 And being confident of this, I know that I shall remain and continue with you all for your progress and joy of faith, 
 
 ###### 26 
-that your rejoicing for me may be more abundant in Jesus Christ by my coming to you again. ## Striving and Suffering for Christ 
+that your rejoicing for me may be more abundant in Jesus Christ by my coming to you again.
+
+## Striving and Suffering for Christ 
 
 ###### 27 
 Only let your conduct be worthy of the gospel of Christ, so that whether I come and see you or am absent, I may hear of your affairs, that you stand fast in one spirit, with one mind striving together for the faith of the gospel, 

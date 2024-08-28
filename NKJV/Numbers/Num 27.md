@@ -40,7 +40,9 @@ If he has no daughter, then you shall give his inheritance to his brothers.
 If he has no brothers, then you shall give his inheritance to his father's brothers. 
 
 ###### 11 
-And if his father has no brothers, then you shall give his inheritance to the relative closest to him in his family, and he shall possess it.' " And it shall be to the children of Israel a statute of judgment, just as the Lord commanded Moses. ## Joshua the Next Leader of Israel 
+And if his father has no brothers, then you shall give his inheritance to the relative closest to him in his family, and he shall possess it.' " And it shall be to the children of Israel a statute of judgment, just as the Lord commanded Moses.
+
+## Joshua the Next Leader of Israel 
 
 ###### 12 
 Now the Lord said to Moses: "Go up into this Mount Abarim, and see the land which I have given to the children of Israel. 

@@ -13,7 +13,9 @@ next: ['1 Chr 10']
 So all Israel was recorded by genealogies, and indeed, they _were_ inscribed in the book of the kings of Israel. But Judah was carried away captive to Babylon because of their unfaithfulness. 
 
 ###### 2 
-And the first inhabitants who _dwelt_ in their possessions in their cities _were_ Israelites, priests, Levites, and the Nethinim. ## Dwellers in Jerusalem 
+And the first inhabitants who _dwelt_ in their possessions in their cities _were_ Israelites, priests, Levites, and the Nethinim.
+
+## Dwellers in Jerusalem 
 
 ###### 3 
 Now in Jerusalem the children of Judah dwelt, and some of the children of Benjamin, and of the children of Ephraim and Manasseh: 
@@ -34,7 +36,9 @@ Of the sons of Benjamin: Sallu the son of Meshullam, the son of Hodaviah, the so
 Ibneiah the son of Jeroham; Elah the son of Uzzi, the son of Michri; Meshullam the son of Shephatiah, the son of Reuel, the son of Ibnijah; 
 
 ###### 9 
-and their brethren, according to their generations--nine hundred and fifty-six. All these men _were_ heads of a father's _house_ in their fathers' houses. ## The Priests at Jerusalem 
+and their brethren, according to their generations--nine hundred and fifty-six. All these men _were_ heads of a father's _house_ in their fathers' houses.
+
+## The Priests at Jerusalem 
 
 ###### 10 
 Of the priests: Jedaiah, Jehoiarib, and Jachin; 
@@ -46,7 +50,9 @@ Azariah the son of Hilkiah, the son of Meshullam, the son of Zadok, the son of M
 Adaiah the son of Jeroham, the son of Pashur, the son of Malchijah; Maasai the son of Adiel, the son of Jahzerah, the son of Meshullam, the son of Meshillemith, the son of Immer; 
 
 ###### 13 
-and their brethren, heads of their fathers' houses--one thousand seven hundred and sixty. _They were_ very able men for the work of the service of the house of God. ## The Levites at Jerusalem 
+and their brethren, heads of their fathers' houses--one thousand seven hundred and sixty. _They were_ very able men for the work of the service of the house of God.
+
+## The Levites at Jerusalem 
 
 ###### 14 
 Of the Levites: Shemaiah the son of Hasshub, the son of Azrikam, the son of Hashabiah, of the sons of Merari; 
@@ -55,7 +61,9 @@ Of the Levites: Shemaiah the son of Hasshub, the son of Azrikam, the son of Hash
 Bakbakkar, Heresh, Galal, and Mattaniah the son of Micah, the son of Zichri, the son of Asaph; 
 
 ###### 16 
-Obadiah the son of Shemaiah, the son of Galal, the son of Jeduthun; and Berechiah the son of Asa, the son of Elkanah, who lived in the villages of the Netophathites. ## The Levite Gatekeepers 
+Obadiah the son of Shemaiah, the son of Galal, the son of Jeduthun; and Berechiah the son of Asa, the son of Elkanah, who lived in the villages of the Netophathites.
+
+## The Levite Gatekeepers 
 
 ###### 17 
 And the gatekeepers _were_ Shallum, Akkub, Talmon, Ahiman, and their brethren. Shallum _was_ the chief. 
@@ -88,7 +96,9 @@ And their brethren in their villages _had_ to come with them from time to time f
 For in this trusted office _were_ four chief gatekeepers; they were Levites. And they had charge over the chambers and treasuries of the house of God. 
 
 ###### 27 
-And they lodged _all_ around the house of God because they _had_ the responsibility, and they _were_ in charge of opening _it_ every morning. ## Other Levite Responsibilities 
+And they lodged _all_ around the house of God because they _had_ the responsibility, and they _were_ in charge of opening _it_ every morning.
+
+## Other Levite Responsibilities 
 
 ###### 28 
 Now _some_ of them were in charge of the serving vessels, for they brought them in and took them out by count. 
@@ -109,7 +119,9 @@ And some of their brethren of the sons of the Kohathites _were_ in charge of pre
 These are the singers, heads of the fathers' _houses_ of the Levites, _who lodged_ in the chambers, _and were_ free _from other duties;_ for they were employed in _that_ work day and night. 
 
 ###### 34 
-These heads of the fathers' _houses_ of the Levites _were_ heads throughout their generations. They dwelt at Jerusalem. ## The Family of King Saul 
+These heads of the fathers' _houses_ of the Levites _were_ heads throughout their generations. They dwelt at Jerusalem.
+
+## The Family of King Saul 
 
 ###### 35 
 Jeiel the father of Gibeon, whose wife's name _was_ Maacah, dwelt at Gibeon. 

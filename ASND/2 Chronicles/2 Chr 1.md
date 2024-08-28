@@ -435,7 +435,9 @@ ibibigay ko sa iyo ang iyong hinihingi. At hindi lang iyan, bibigyan din kita ng
 
 
 
-Pagkatapos, umalis si Solomon sa Toldang Tipanan doon sa sambahan sa matataas na lugar na nasa Gibeon, at bumalik sa Jerusalem. At naghari siya sa Israel. ## Ang mga Kayamanan ni Solomon 
+Pagkatapos, umalis si Solomon sa Toldang Tipanan doon sa sambahan sa matataas na lugar na nasa Gibeon, at bumalik sa Jerusalem. At naghari siya sa Israel.
+
+## Ang mga Kayamanan ni Solomon 
 
 
 

@@ -43,7 +43,9 @@ Have you not even read this Scripture: 'The stone which the builders rejected Ha
 This was the Lord's doing, And it is marvelous in our eyes'?" 
 
 ###### 12 
-And they sought to lay hands on Him, but feared the multitude, for they knew He had spoken the parable against them. So they left Him and went away. ## The Pharisees: Is It Lawful to Pay Taxes to Caesar? 
+And they sought to lay hands on Him, but feared the multitude, for they knew He had spoken the parable against them. So they left Him and went away.
+
+## The Pharisees: Is It Lawful to Pay Taxes to Caesar? 
 
 ###### 13 
 Then they sent to Him some of the Pharisees and the Herodians, to catch Him in _His_ words. 
@@ -58,7 +60,9 @@ Shall we pay, or shall we not pay?" But He, knowing their hypocrisy, said to the
 So they brought _it._ And He said to them, "Whose image and inscription _is_ this?" They said to Him, "Caesar's." 
 
 ###### 17 
-And Jesus answered and said to them, "Render to Caesar the things that are Caesar's, and to God the things that are God's." And they marveled at Him. ## The Sadducees: What About the Resurrection? 
+And Jesus answered and said to them, "Render to Caesar the things that are Caesar's, and to God the things that are God's." And they marveled at Him.
+
+## The Sadducees: What About the Resurrection? 
 
 ###### 18 
 Then _some_ Sadducees, who say there is no resurrection, came to Him; and they asked Him, saying: 
@@ -109,7 +113,9 @@ So the scribe said to Him, "Well _said,_ Teacher. You have spoken the truth, for
 And to love Him with all the heart, with all the understanding, with all the soul, and with all the strength, and to love one's neighbor as oneself, is more than all the whole burnt offerings and sacrifices." 
 
 ###### 34 
-Now when Jesus saw that he answered wisely, He said to him, "You are not far from the kingdom of God." But after that no one dared question Him. ## Jesus: How Can David Call His Descendant Lord? 
+Now when Jesus saw that he answered wisely, He said to him, "You are not far from the kingdom of God." But after that no one dared question Him.
+
+## Jesus: How Can David Call His Descendant Lord? 
 
 ###### 35 
 Then Jesus answered and said, while He taught in the temple, "How _is it_ that the scribes say that the Christ is the Son of David? 
@@ -118,7 +124,9 @@ Then Jesus answered and said, while He taught in the temple, "How _is it_ that t
 For David himself said by the Holy Spirit: 'The Lord said to my Lord, "Sit at My right hand, Till I make Your enemies Your footstool." ' 
 
 ###### 37 
-Therefore David himself calls Him 'Lord'; how is He _then_ his Son?" And the common people heard Him gladly. ## Beware of the Scribes 
+Therefore David himself calls Him 'Lord'; how is He _then_ his Son?" And the common people heard Him gladly.
+
+## Beware of the Scribes 
 
 ###### 38 
 Then He said to them in His teaching, "Beware of the scribes, who desire to go around in long robes, _love_ greetings in the marketplaces, 

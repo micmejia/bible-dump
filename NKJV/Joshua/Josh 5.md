@@ -43,7 +43,9 @@ Now the children of Israel camped in Gilgal, and kept the Passover on the fourte
 And they ate of the produce of the land on the day after the Passover, unleavened bread and parched grain, on the very same day. 
 
 ###### 12 
-Then the manna ceased on the day after they had eaten the produce of the land; and the children of Israel no longer had manna, but they ate the food of the land of Canaan that year. ## The Commander of the Army of the Lord 
+Then the manna ceased on the day after they had eaten the produce of the land; and the children of Israel no longer had manna, but they ate the food of the land of Canaan that year.
+
+## The Commander of the Army of the Lord 
 
 ###### 13 
 And it came to pass, when Joshua was by Jericho, that he lifted his eyes and looked, and behold, a Man stood opposite him with His sword drawn in His hand. And Joshua went to Him and said to Him, "_Are_ You for us or for our adversaries?" 

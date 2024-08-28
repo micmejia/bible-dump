@@ -49,7 +49,9 @@ Who led _them_ by the right hand of Moses, With His glorious arm, Dividing the w
 Who led them through the deep, As a horse in the wilderness, _That_ they might not stumble?" 
 
 ###### 14 
-As a beast goes down into the valley, _And_ the Spirit of the Lord causes him to rest, So You lead Your people, To make Yourself a glorious name. ## A Prayer of Penitence 
+As a beast goes down into the valley, _And_ the Spirit of the Lord causes him to rest, So You lead Your people, To make Yourself a glorious name.
+
+## A Prayer of Penitence 
 
 ###### 15 
 Look down from heaven, And see from Your habitation, holy and glorious. Where _are_ Your zeal and Your strength, The yearning of Your heart and Your mercies toward me? Are they restrained? 

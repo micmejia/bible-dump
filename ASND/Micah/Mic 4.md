@@ -172,7 +172,11 @@ Ang bawat tao ay uupo sa ilalim ng kanilang tanim na ubas at puno ng igos nang w
 
 
 
-Kahit na sumunod ang mga tao sa mga dios-diosan nila, kami ay patuloy pa ring susunod sa Panginoon na aming Dios magpakailanman. ## Babalik ang mga Israelita sa Kanilang Bayan ###### 6-7 Sinabi ng Panginoon, "Sa darating na mga araw, titipunin ko ang aking mga mamamayan na aking pinarusahan, <i class="trans-change">na parang mga tupang_ pilay at nagsipangalat. Ang mga natira sa kanila ay gagawin kong makapangyarihang bansa. At mula sa araw na iyon ay maghahari ako sa kanila sa Bundok ng Zion magpakailanman. 
+Kahit na sumunod ang mga tao sa mga dios-diosan nila, kami ay patuloy pa ring susunod sa Panginoon na aming Dios magpakailanman.
+
+## Babalik ang mga Israelita sa Kanilang Bayan
+
+###### 6-7 Sinabi ng Panginoon, "Sa darating na mga araw, titipunin ko ang aking mga mamamayan na aking pinarusahan, <i class="trans-change">na parang mga tupang_ pilay at nagsipangalat. Ang mga natira sa kanila ay gagawin kong makapangyarihang bansa. At mula sa araw na iyon ay maghahari ako sa kanila sa Bundok ng Zion magpakailanman. 
 
 
 

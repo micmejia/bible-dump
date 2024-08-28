@@ -403,7 +403,9 @@ Kapag napahiya na sila sa lahat ng ginawa nila, ilarawan mo sa kanila kung paano
 
 
 
-At ito ang <i class="trans-change">pangunahing_ kautusan tungkol sa templo: Ituring ninyong banal ang lahat ng lugar sa paligid ng bundok doon sa itaas na pagtatayuan ng templo. ## Ang Altar 
+At ito ang <i class="trans-change">pangunahing_ kautusan tungkol sa templo: Ituring ninyong banal ang lahat ng lugar sa paligid ng bundok doon sa itaas na pagtatayuan ng templo.
+
+## Ang Altar 
 
 
 

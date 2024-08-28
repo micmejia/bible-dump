@@ -22,7 +22,9 @@ and said, "Assuredly, I say to you, unless you are converted and become as littl
 Therefore whoever humbles himself as this little child is the greatest in the kingdom of heaven. 
 
 ###### 5 
-Whoever receives one little child like this in My name receives Me. ## Jesus Warns of Offenses 
+Whoever receives one little child like this in My name receives Me.
+
+## Jesus Warns of Offenses 
 
 ###### 6 
 "But whoever causes one of these little ones who believe in Me to sin, it would be better for him if a millstone were hung around his neck, and he were drowned in the depth of the sea. 
@@ -34,7 +36,9 @@ Woe to the world because of offenses! For offenses must come, but woe to that ma
 "If your hand or foot causes you to sin, cut it off and cast _it_ from you. It is better for you to enter into life lame or maimed, rather than having two hands or two feet, to be cast into the everlasting fire. 
 
 ###### 9 
-And if your eye causes you to sin, pluck it out and cast _it_ from you. It is better for you to enter into life with one eye, rather than having two eyes, to be cast into hell fire. ## The Parable of the Lost Sheep 
+And if your eye causes you to sin, pluck it out and cast _it_ from you. It is better for you to enter into life with one eye, rather than having two eyes, to be cast into hell fire.
+
+## The Parable of the Lost Sheep 
 
 ###### 10 
 "Take heed that you do not despise one of these little ones, for I say to you that in heaven their angels always see the face of My Father who is in heaven. 
@@ -49,7 +53,9 @@ For the Son of Man has come to save that which was lost.
 And if he should find it, assuredly, I say to you, he rejoices more over that _sheep_ than over the ninety-nine that did not go astray. 
 
 ###### 14 
-Even so it is not the will of your Father who is in heaven that one of these little ones should perish. ## Dealing with a Sinning Brother 
+Even so it is not the will of your Father who is in heaven that one of these little ones should perish.
+
+## Dealing with a Sinning Brother 
 
 ###### 15 
 "Moreover if your brother sins against you, go and tell him his fault between you and him alone. If he hears you, you have gained your brother. 

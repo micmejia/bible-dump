@@ -28,7 +28,9 @@ And the Egyptians shall know that I _am_ the Lord, when I stretch out My hand on
 Then Moses and Aaron did _so;_ just as the Lord commanded them, so they did. 
 
 ###### 7 
-And Moses _was_ eighty years old and Aaron eighty-three years old when they spoke to Pharaoh. ## Aaron's Miraculous Rod 
+And Moses _was_ eighty years old and Aaron eighty-three years old when they spoke to Pharaoh.
+
+## Aaron's Miraculous Rod 
 
 ###### 8 
 Then the Lord spoke to Moses and Aaron, saying, 
@@ -46,7 +48,9 @@ But Pharaoh also called the wise men and the sorcerers; so the magicians of Egyp
 For every man threw down his rod, and they became serpents. But Aaron's rod swallowed up their rods. 
 
 ###### 13 
-And Pharaoh's heart grew hard, and he did not heed them, as the Lord had said. ## The First Plague: Waters Become Blood 
+And Pharaoh's heart grew hard, and he did not heed them, as the Lord had said.
+
+## The First Plague: Waters Become Blood 
 
 ###### 14 
 So the Lord said to Moses: "Pharaoh's heart _is_ hard; he refuses to let the people go. 

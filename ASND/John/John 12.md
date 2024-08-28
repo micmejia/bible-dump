@@ -370,7 +370,9 @@ Kaya binalak din ng mga namamahalang pari na ipapatay si Lazarus,
 
 
 
-dahil siya ang dahilan kaya maraming Judio ang humihiwalay na sa kanila at sumasampalataya kay Jesus. ## Ang Matagumpay na Pagpasok ni Jesus sa Jerusalem 
+dahil siya ang dahilan kaya maraming Judio ang humihiwalay na sa kanila at sumasampalataya kay Jesus.
+
+## Ang Matagumpay na Pagpasok ni Jesus sa Jerusalem 
 
 
 
@@ -1195,7 +1197,9 @@ Sumagot si Jesus, "Maikling panahon na lang ninyong makakasama ang ilaw. Kaya ma
 
 
 
-Kaya sumampalataya kayo sa <i class="trans-change">akin na siyang_ ilaw <i class="trans-change">ninyo_ habang narito pa <i class="trans-change">ako_, para maliwanagan ang isipan ninyo." Pagkasabi ni Jesus nito, umalis siya at nagtago sa kanila. ## Ayaw Manampalataya ng mga Judio kay Jesus 
+Kaya sumampalataya kayo sa <i class="trans-change">akin na siyang_ ilaw <i class="trans-change">ninyo_ habang narito pa <i class="trans-change">ako_, para maliwanagan ang isipan ninyo." Pagkasabi ni Jesus nito, umalis siya at nagtago sa kanila.
+
+## Ayaw Manampalataya ng mga Judio kay Jesus 
 
 
 
@@ -1426,7 +1430,9 @@ Ganoon pa man, maraming pinuno <i class="trans-change">ng mga Judio_ ang sumampa
 
 
 
-Sapagkat mas ginusto pa nilang purihin sila ng tao kaysa ng Dios. ## Ang Salita ni Jesus ang Hahatol sa mga Tao 
+Sapagkat mas ginusto pa nilang purihin sila ng tao kaysa ng Dios.
+
+## Ang Salita ni Jesus ang Hahatol sa mga Tao 
 
 
 

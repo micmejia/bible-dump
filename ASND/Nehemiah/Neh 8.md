@@ -304,7 +304,9 @@ Sinabi rin ng mga Levita, "Tumahimik kayo! Huwag kayong mabalisa! Sapagkat banal
 
 
 
-Kaya umuwi ang lahat ng tao para kumain at uminom at magbigay ng pagkain sa iba. Nagdiwang sila nang may lubos na kagalakan dahil naunawaan nila ang mga mensahe <i class="trans-change">ng Dios_ na binasa sa kanila. ## Ang Pista ng Pagtatayo ng mga Kubol 
+Kaya umuwi ang lahat ng tao para kumain at uminom at magbigay ng pagkain sa iba. Nagdiwang sila nang may lubos na kagalakan dahil naunawaan nila ang mga mensahe <i class="trans-change">ng Dios_ na binasa sa kanila.
+
+## Ang Pista ng Pagtatayo ng mga Kubol 
 
 
 

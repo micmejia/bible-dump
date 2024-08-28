@@ -337,7 +337,9 @@ Kaya lumakad ang mga tao para suriin ang buong lupain. Pagkatapos, ginawan nila 
 
 
 
-At pagkatapos magpalabunutan sa presensya ng Panginoon, binigyan ni Josue ng bahagi ang mga lahi ng Israel <i class="trans-change">na walang lupain_. ## Ang Lupaing Ibinigay sa Lahi ni Benjamin 
+At pagkatapos magpalabunutan sa presensya ng Panginoon, binigyan ni Josue ng bahagi ang mga lahi ng Israel <i class="trans-change">na walang lupain_.
+
+## Ang Lupaing Ibinigay sa Lahi ni Benjamin 
 
 
 
@@ -667,7 +669,9 @@ Pagkatapos, papunta ito sa hilagang libis ng Bet Hogla, at nagtapos ito sa hilag
 
 
 
-Ang <i class="trans-change">Ilog ng_ Jordan ay ang hangganan sa silangan. Iyon ang mga hangganan ng lupaing natanggap ng lahi ni Benjamin ayon sa bawat sambahayan. ## Ang mga Lungsod na Natanggap ng Lahi ni Benjamin 
+Ang <i class="trans-change">Ilog ng_ Jordan ay ang hangganan sa silangan. Iyon ang mga hangganan ng lupaing natanggap ng lahi ni Benjamin ayon sa bawat sambahayan.
+
+## Ang mga Lungsod na Natanggap ng Lahi ni Benjamin 
 
 
 

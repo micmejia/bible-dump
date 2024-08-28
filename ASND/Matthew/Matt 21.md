@@ -568,7 +568,9 @@ Sinabi nila kay Jesus, "Naririnig mo ba ang sinasabi nila?" Sumagot si Jesus, "O
 
 
 
-Pagkatapos, iniwan sila ni Jesus. Lumabas siya ng lungsod at nagpunta sa Betania, at doon siya nagpalipas ng gabi. ## Isinumpa ni Jesus ang Puno ng Igos 
+Pagkatapos, iniwan sila ni Jesus. Lumabas siya ng lungsod at nagpunta sa Betania, at doon siya nagpalipas ng gabi.
+
+## Isinumpa ni Jesus ang Puno ng Igos 
 
 
 

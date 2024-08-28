@@ -205,7 +205,9 @@ Sinabi ni Jesus sa kanila, "Ang isang propeta ay iginagalang kahit saan, maliban
 
 
 
-Nagtaka siya sa kawalan nila ng pananampalataya sa kanya. ## Sinugo ni Jesus ang Labindalawang Apostol Nilibot ni Jesus ang mga kanayunan at nangaral sa mga tao. 
+Nagtaka siya sa kawalan nila ng pananampalataya sa kanya.
+
+## Sinugo ni Jesus ang Labindalawang Apostol Nilibot ni Jesus ang mga kanayunan at nangaral sa mga tao. 
 
 
 
@@ -436,7 +438,9 @@ Kaya umalis ang 12 at nangaral sa mga tao na dapat nilang pagsisihan ang kanilan
 
 
 
-Pinalayas nila ang maraming masamang espiritu at maraming may sakit ang pinahiran nila ng langis at pinagaling. ## Ang Pagkamatay ni Juan na Tagapagbautismo 
+Pinalayas nila ang maraming masamang espiritu at maraming may sakit ang pinahiran nila ng langis at pinagaling.
+
+## Ang Pagkamatay ni Juan na Tagapagbautismo 
 
 
 
@@ -964,7 +968,9 @@ inilagay niya ang ulo sa bandehado at ibinigay sa dalaga. At ibinigay naman ito 
 
 
 
-Nang mabalitaan ng mga tagasunod ni Juan ang nangyari, kinuha nila ang kanyang bangkay at inilibing. ## Pinakain ni Jesus ang 5,000 Tao 
+Nang mabalitaan ng mga tagasunod ni Juan ang nangyari, kinuha nila ang kanyang bangkay at inilibing.
+
+## Pinakain ni Jesus ang 5,000 Tao 
 
 
 
@@ -1459,7 +1465,9 @@ Kumain silang lahat at nabusog.
 
 
 
-Ang bilang ng mga lalaking kumain ay 5,000. ## Lumakad si Jesus sa Ibabaw ng Tubig 
+Ang bilang ng mga lalaking kumain ay 5,000.
+
+## Lumakad si Jesus sa Ibabaw ng Tubig 
 
 
 
@@ -1657,7 +1665,9 @@ Sumakay siya sa bangka at biglang tumigil ang <i class="trans-change">malakas na
 
 
 
-dahil hindi pa rin sila nakakaunawa kahit nakita na nila ang himalang ginawa ni Jesus sa tinapay. <i class="trans-change">Ayaw nilang maniwala_ dahil matigas ang puso nila. ## Pinagaling ni Jesus ang mga May Sakit sa Genesaret 
+dahil hindi pa rin sila nakakaunawa kahit nakita na nila ang himalang ginawa ni Jesus sa tinapay. <i class="trans-change">Ayaw nilang maniwala_ dahil matigas ang puso nila.
+
+## Pinagaling ni Jesus ang mga May Sakit sa Genesaret 
 
 
 

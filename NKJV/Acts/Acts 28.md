@@ -36,7 +36,9 @@ And it happened that the father of Publius lay sick of a fever and dysentery. Pa
 So when this was done, the rest of those on the island who had diseases also came and were healed. 
 
 ###### 10 
-They also honored us in many ways; and when we departed, they provided such things as were necessary. ## Arrival at Rome 
+They also honored us in many ways; and when we departed, they provided such things as were necessary.
+
+## Arrival at Rome 
 
 ###### 11 
 After three months we sailed in an Alexandrian ship whose figurehead was the Twin Brothers, which had wintered at the island. 
@@ -54,7 +56,9 @@ where we found brethren, and were invited to stay with them seven days. And so w
 And from there, when the brethren heard about us, they came to meet us as far as Appii Forum and Three Inns. When Paul saw them, he thanked God and took courage. 
 
 ###### 16 
-Now when we came to Rome, the centurion delivered the prisoners to the captain of the guard; but Paul was permitted to dwell by himself with the soldier who guarded him. ## Paul's Ministry at Rome 
+Now when we came to Rome, the centurion delivered the prisoners to the captain of the guard; but Paul was permitted to dwell by himself with the soldier who guarded him.
+
+## Paul's Ministry at Rome 
 
 ###### 17 
 And it came to pass after three days that Paul called the leaders of the Jews together. So when they had come together, he said to them: "Men _and_ brethren, though I have done nothing against our people or the customs of our fathers, yet I was delivered as a prisoner from Jerusalem into the hands of the Romans, 

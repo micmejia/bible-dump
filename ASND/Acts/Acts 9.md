@@ -634,7 +634,9 @@ Biglang may nahulog na parang mga kaliskis ng isda mula sa mga mata ni Saulo, at
 
 
 
-Kumain siya at muling lumakas. ## Nangaral si Saulo sa Damascus Nanatili si Saulo ng ilang araw sa Damascus kasama ng mga tagasunod <i class="trans-change">ni Jesus_. 
+Kumain siya at muling lumakas.
+
+## Nangaral si Saulo sa Damascus Nanatili si Saulo ng ilang araw sa Damascus kasama ng mga tagasunod <i class="trans-change">ni Jesus_. 
 
 
 
@@ -832,7 +834,9 @@ Araw-gabi nilang inaabangan si Saulo sa mga pintuan ng lungsod upang patayin. Pe
 
 
 
-Kaya isang gabi, isinakay siya ng mga tagasunod niya sa malaking kaing at ibinaba sa labas ng pader ng lungsod. ## Si Saulo sa Jerusalem 
+Kaya isang gabi, isinakay siya ng mga tagasunod niya sa malaking kaing at ibinaba sa labas ng pader ng lungsod.
+
+## Si Saulo sa Jerusalem 
 
 
 
@@ -1030,7 +1034,9 @@ Nang malaman ng mga mananampalataya ang plano nila, inihatid nila si Saulo sa Ce
 
 
 
-Pagkatapos noon, naging matiwasay ang pamumuhay ng iglesya sa buong Judea, sa Galilea, at sa Samaria. Lalo pang lumakas ang kanilang pananampalataya at namuhay silang may takot sa Panginoon. Pinalalakas ng Banal na Espiritu ang kanilang loob, kaya lalo pa silang dumami. ## Si Pedro sa Lyda at sa Jopa 
+Pagkatapos noon, naging matiwasay ang pamumuhay ng iglesya sa buong Judea, sa Galilea, at sa Samaria. Lalo pang lumakas ang kanilang pananampalataya at namuhay silang may takot sa Panginoon. Pinalalakas ng Banal na Espiritu ang kanilang loob, kaya lalo pa silang dumami.
+
+## Si Pedro sa Lyda at sa Jopa 
 
 
 

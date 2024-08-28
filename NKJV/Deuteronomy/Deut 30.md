@@ -37,7 +37,9 @@ And you will again obey the voice of the Lord and do all His commandments which 
 The Lord your God will make you abound in all the work of your hand, in the fruit of your body, in the increase of your livestock, and in the produce of your land for good. For the Lord will again rejoice over you for good as He rejoiced over your fathers, 
 
 ###### 10 
-if you obey the voice of the Lord your God, to keep His commandments and His statutes which are written in this Book of the Law, _and_ if you turn to the Lord your God with all your heart and with all your soul. ## The Choice of Life or Death 
+if you obey the voice of the Lord your God, to keep His commandments and His statutes which are written in this Book of the Law, _and_ if you turn to the Lord your God with all your heart and with all your soul.
+
+## The Choice of Life or Death 
 
 ###### 11 
 "For this commandment which I command you today _is_ not _too_ mysterious for you, nor _is_ it far off. 

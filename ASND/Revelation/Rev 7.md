@@ -271,7 +271,9 @@ Ayon sa narinig ko, 144,000 ang lahat ng tinatakan mula sa 12 lahi ng Israel.
 
 
 
-12,000 mula sa lahi ni Zebulun; 12,000 mula sa lahi ni Jose; 12,000 mula sa lahi ni Benjamin. ## Ang mga Tao sa Harap ng Trono ng Dios 
+12,000 mula sa lahi ni Zebulun; 12,000 mula sa lahi ni Jose; 12,000 mula sa lahi ni Benjamin.
+
+## Ang mga Tao sa Harap ng Trono ng Dios 
 
 
 

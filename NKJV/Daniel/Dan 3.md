@@ -28,7 +28,9 @@ _that_ at the time you hear the sound of the horn, flute, harp, lyre, _and_ psal
 and whoever does not fall down and worship shall be cast immediately into the midst of a burning fiery furnace." 
 
 ###### 7 
-So at that time, when all the people heard the sound of the horn, flute, harp, _and_ lyre, in symphony with all kinds of music, all the people, nations, and languages fell down _and_ worshiped the gold image which King Nebuchadnezzar had set up. ## Daniel's Friends Disobey the King 
+So at that time, when all the people heard the sound of the horn, flute, harp, _and_ lyre, in symphony with all kinds of music, all the people, nations, and languages fell down _and_ worshiped the gold image which King Nebuchadnezzar had set up.
+
+## Daniel's Friends Disobey the King 
 
 ###### 8 
 Therefore at that time certain Chaldeans came forward and accused the Jews. 

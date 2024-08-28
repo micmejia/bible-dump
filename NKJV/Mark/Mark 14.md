@@ -40,7 +40,9 @@ Assuredly, I say to you, wherever this gospel is preached in the whole world, wh
 Then Judas Iscariot, one of the twelve, went to the chief priests to betray Him to them. 
 
 ###### 11 
-And when they heard _it,_ they were glad, and promised to give him money. So he sought how he might conveniently betray Him. ## Jesus Celebrates the Passover with His Disciples 
+And when they heard _it,_ they were glad, and promised to give him money. So he sought how he might conveniently betray Him.
+
+## Jesus Celebrates the Passover with His Disciples 
 
 ###### 12 
 Now on the first day of Unleavened Bread, when they killed the Passover _lamb,_ His disciples said to Him, "Where do You want us to go and prepare, that You may eat the Passover?" 
@@ -85,7 +87,9 @@ And He said to them, "This is My blood of the new covenant, which is shed for ma
 Assuredly, I say to you, I will no longer drink of the fruit of the vine until that day when I drink it new in the kingdom of God." 
 
 ###### 26 
-And when they had sung a hymn, they went out to the Mount of Olives. ## Jesus Predicts Peter's Denial 
+And when they had sung a hymn, they went out to the Mount of Olives.
+
+## Jesus Predicts Peter's Denial 
 
 ###### 27 
 Then Jesus said to them, "All of you will be made to stumble because of Me this night, for it is written: 'I will strike the Shepherd, And the sheep will be scattered.' 
@@ -100,7 +104,9 @@ Peter said to Him, "Even if all are made to stumble, yet I _will_ not _be._"
 Jesus said to him, "Assuredly, I say to you that today, _even_ this night, before the rooster crows twice, you will deny Me three times." 
 
 ###### 31 
-But he spoke more vehemently, "If I have to die with You, I will not deny You!" And they all said likewise. ## The Prayer in the Garden 
+But he spoke more vehemently, "If I have to die with You, I will not deny You!" And they all said likewise.
+
+## The Prayer in the Garden 
 
 ###### 32 
 Then they came to a place which was named Gethsemane; and He said to His disciples, "Sit here while I pray." 
@@ -157,13 +163,17 @@ Then Jesus answered and said to them, "Have you come out, as against a robber, w
 I was daily with you in the temple teaching, and you did not seize Me. But the Scriptures must be fulfilled." 
 
 ###### 50 
-Then they all forsook Him and fled. ## A Young Man Flees Naked 
+Then they all forsook Him and fled.
+
+## A Young Man Flees Naked 
 
 ###### 51 
 Now a certain young man followed Him, having a linen cloth thrown around _his_ naked _body._ And the young men laid hold of him, 
 
 ###### 52 
-and he left the linen cloth and fled from them naked. ## Jesus Faces the Sanhedrin 
+and he left the linen cloth and fled from them naked.
+
+## Jesus Faces the Sanhedrin 
 
 ###### 53 
 And they led Jesus away to the high priest; and with him were assembled all the chief priests, the elders, and the scribes. 
@@ -202,7 +212,9 @@ Then the high priest tore his clothes and said, "What further need do we have of
 You have heard the blasphemy! What do you think?" And they all condemned Him to be deserving of death. 
 
 ###### 65 
-Then some began to spit on Him, and to blindfold Him, and to beat Him, and to say to Him, "Prophesy!" And the officers struck Him with the palms of their hands. ## Peter Denies Jesus, and Weeps 
+Then some began to spit on Him, and to blindfold Him, and to beat Him, and to say to Him, "Prophesy!" And the officers struck Him with the palms of their hands.
+
+## Peter Denies Jesus, and Weeps 
 
 ###### 66 
 Now as Peter was below in the courtyard, one of the servant girls of the high priest came. 

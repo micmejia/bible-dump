@@ -436,7 +436,9 @@ Sa pananampalataya natin kay Cristo Jesus at pakikipag-isa sa kanya, tayo ngayon
 
 
 
-Kaya huwag sana kayong panghinaan ng loob dahil sa mga paghihirap na dinaranas ko, dahil para ito sa ikabubuti ninyo. ## Ang Pag-ibig ni Cristo 
+Kaya huwag sana kayong panghinaan ng loob dahil sa mga paghihirap na dinaranas ko, dahil para ito sa ikabubuti ninyo.
+
+## Ang Pag-ibig ni Cristo 
 
 
 

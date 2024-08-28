@@ -601,7 +601,9 @@ Pero sinabihan sila ni Jesus, "Patuloy na gumagawa ang aking Ama, kaya patuloy d
 
 
 
-Dahil sa sinabing ito ni Jesus, lalong sinikap ng mga <i class="trans-change">pinuno ng mga_ Judio na patayin siya. Sapagkat hindi lang niya nilabag ang batas tungkol sa Araw ng Pamamahinga, kundi tinawag pa niyang sariling Ama ang Dios, at sa gayoʼy ipinapantay ang sarili sa Dios. ## Ang Kapangyarihan ng Anak ng Dios 
+Dahil sa sinabing ito ni Jesus, lalong sinikap ng mga <i class="trans-change">pinuno ng mga_ Judio na patayin siya. Sapagkat hindi lang niya nilabag ang batas tungkol sa Araw ng Pamamahinga, kundi tinawag pa niyang sariling Ama ang Dios, at sa gayoʼy ipinapantay ang sarili sa Dios.
+
+## Ang Kapangyarihan ng Anak ng Dios 
 
 
 

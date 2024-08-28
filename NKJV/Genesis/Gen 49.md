@@ -91,7 +91,9 @@ The blessings of your father Have excelled the blessings of my ancestors, Up to 
 "Benjamin is a ravenous wolf; In the morning he shall devour the prey, And at night he shall divide the spoil." 
 
 ###### 28 
-All these _are_ the twelve tribes of Israel, and this _is_ what their father spoke to them. And he blessed them; he blessed each one according to his own blessing. ## Jacob's Death and Burial 
+All these _are_ the twelve tribes of Israel, and this _is_ what their father spoke to them. And he blessed them; he blessed each one according to his own blessing.
+
+## Jacob's Death and Burial 
 
 ###### 29 
 Then he charged them and said to them: "I am to be gathered to my people; bury me with my fathers in the cave that _is_ in the field of Ephron the Hittite, 

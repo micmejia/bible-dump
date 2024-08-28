@@ -52,7 +52,9 @@ _I_ also _heard_ the noise of the wings of the living creatures that touched one
 So the Spirit lifted me up and took me away, and I went in bitterness, in the heat of my spirit; but the hand of the Lord was strong upon me. 
 
 ###### 15 
-Then I came to the captives at Tel Abib, who dwelt by the River Chebar; and I sat where they sat, and remained there astonished among them seven days. ## Ezekiel Is a Watchman 
+Then I came to the captives at Tel Abib, who dwelt by the River Chebar; and I sat where they sat, and remained there astonished among them seven days.
+
+## Ezekiel Is a Watchman 
 
 ###### 16 
 Now it came to pass at the end of seven days that the word of the Lord came to me, saying, 

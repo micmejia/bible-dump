@@ -40,7 +40,9 @@ next: ['2 Cor 8']
 
 
 
-Mga minamahal, dahil sa mga ipinangako <i class="trans-change">ng Dios_ sa atin, linisin natin ang ating sarili sa anumang bagay na nagpaparumi sa ating katawan at espiritu, at sikapin nating mamuhay nang banal at may takot sa Dios. ## Ang Kagalakan ni Pablo 
+Mga minamahal, dahil sa mga ipinangako <i class="trans-change">ng Dios_ sa atin, linisin natin ang ating sarili sa anumang bagay na nagpaparumi sa ating katawan at espiritu, at sikapin nating mamuhay nang banal at may takot sa Dios.
+
+## Ang Kagalakan ni Pablo 
 
 
 

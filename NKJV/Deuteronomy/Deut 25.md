@@ -19,7 +19,9 @@ then it shall be, if the wicked man deserves to be beaten, that the judge will c
 Forty blows he may give him _and_ no more, lest he should exceed this and beat him with many blows above these, and your brother be humiliated in your sight. 
 
 ###### 4 
-"You shall not muzzle an ox while it treads out _the grain._ ## Marriage Duty of the Surviving Brother 
+"You shall not muzzle an ox while it treads out _the grain._
+
+## Marriage Duty of the Surviving Brother 
 
 ###### 5 
 "If brothers dwell together, and one of them dies and has no son, the widow of the dead man shall not be _married_ to a stranger outside _the family;_ her husband's brother shall go in to her, take her as his wife, and perform the duty of a husband's brother to her. 
@@ -55,7 +57,9 @@ You shall not have in your house differing measures, a large and a small.
 You shall have a perfect and just weight, a perfect and just measure, that your days may be lengthened in the land which the Lord your God is giving you. 
 
 ###### 16 
-For all who do such things, all who behave unrighteously, _are_ an abomination to the Lord your God. ## Destroy the Amalekites 
+For all who do such things, all who behave unrighteously, _are_ an abomination to the Lord your God.
+
+## Destroy the Amalekites 
 
 ###### 17 
 "Remember what Amalek did to you on the way as you were coming out of Egypt, 

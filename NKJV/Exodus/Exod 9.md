@@ -28,7 +28,9 @@ Then the Lord appointed a set time, saying, "Tomorrow the Lord will do this thin
 So the Lord did this thing on the next day, and all the livestock of Egypt died; but of the livestock of the children of Israel, not one died. 
 
 ###### 7 
-Then Pharaoh sent, and indeed, not even one of the livestock of the Israelites was dead. But the heart of Pharaoh became hard, and he did not let the people go. ## The Sixth Plague: Boils 
+Then Pharaoh sent, and indeed, not even one of the livestock of the Israelites was dead. But the heart of Pharaoh became hard, and he did not let the people go.
+
+## The Sixth Plague: Boils 
 
 ###### 8 
 So the Lord said to Moses and Aaron, "Take for yourselves handfuls of ashes from a furnace, and let Moses scatter it toward the heavens in the sight of Pharaoh. 
@@ -43,7 +45,9 @@ Then they took ashes from the furnace and stood before Pharaoh, and Moses scatte
 And the magicians could not stand before Moses because of the boils, for the boils were on the magicians and on all the Egyptians. 
 
 ###### 12 
-But the Lord hardened the heart of Pharaoh; and he did not heed them, just as the Lord had spoken to Moses. ## The Seventh Plague: Hail 
+But the Lord hardened the heart of Pharaoh; and he did not heed them, just as the Lord had spoken to Moses.
+
+## The Seventh Plague: Hail 
 
 ###### 13 
 Then the Lord said to Moses, "Rise early in the morning and stand before Pharaoh, and say to him, 'Thus says the Lord God of the Hebrews: "Let My people go, that they may serve Me, 

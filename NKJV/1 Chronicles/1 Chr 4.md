@@ -76,7 +76,9 @@ The sons of Shelah the son of Judah _were_ Er the father of Lecah, Laadah the fa
 also Jokim, the men of Chozeba, and Joash; Saraph, who ruled in Moab, and Jashubi-Lehem. Now the records are ancient. 
 
 ###### 23 
-These _were_ the potters and those who dwell at Netaim and Gederah; there they dwelt with the king for his work. ## The Family of Simeon 
+These _were_ the potters and those who dwell at Netaim and Gederah; there they dwelt with the king for his work.
+
+## The Family of Simeon 
 
 ###### 24 
 The sons of Simeon _were_ Nemuel, Jamin, Jarib, Zerah, _and_ Shaul, 

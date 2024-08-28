@@ -21,7 +21,9 @@ All things were made through Him, and without Him nothing was made that was made
 In Him was life, and the life was the light of men. 
 
 ###### 5 
-And the light shines in the darkness, and the darkness did not comprehend it. ## John's Witness: The True Light 
+And the light shines in the darkness, and the darkness did not comprehend it.
+
+## John's Witness: The True Light 
 
 ###### 6 
 There was a man sent from God, whose name _was_ John. 
@@ -45,7 +47,9 @@ He came to His own, and His own did not receive Him.
 But as many as received Him, to them He gave the right to become children of God, to those who believe in His name: 
 
 ###### 13 
-who were born, not of blood, nor of the will of the flesh, nor of the will of man, but of God. ## The Word Becomes Flesh 
+who were born, not of blood, nor of the will of the flesh, nor of the will of man, but of God.
+
+## The Word Becomes Flesh 
 
 ###### 14 
 And the Word became flesh and dwelt among us, and we beheld His glory, the glory as of the only begotten of the Father, full of grace and truth. 
@@ -60,7 +64,9 @@ And of His fullness we have all received, and grace for grace.
 For the law was given through Moses, _but_ grace and truth came through Jesus Christ. 
 
 ###### 18 
-No one has seen God at any time. The only begotten Son, who is in the bosom of the Father, He has declared _Him._ ## A Voice in the Wilderness 
+No one has seen God at any time. The only begotten Son, who is in the bosom of the Father, He has declared _Him._
+
+## A Voice in the Wilderness 
 
 ###### 19 
 Now this is the testimony of John, when the Jews sent priests and Levites from Jerusalem to ask him, "Who are you?" 
@@ -90,7 +96,9 @@ John answered them, saying, "I baptize with water, but there stands One among yo
 It is He who, coming after me, is preferred before me, whose sandal strap I am not worthy to loose." 
 
 ###### 28 
-These things were done in Bethabara beyond the Jordan, where John was baptizing. ## The Lamb of God 
+These things were done in Bethabara beyond the Jordan, where John was baptizing.
+
+## The Lamb of God 
 
 ###### 29 
 The next day John saw Jesus coming toward him, and said, "Behold! The Lamb of God who takes away the sin of the world! 
@@ -132,7 +140,9 @@ One of the two who heard John _speak,_ and followed Him, was Andrew, Simon Peter
 He first found his own brother Simon, and said to him, "We have found the Messiah" (which is translated, the Christ). 
 
 ###### 42 
-And he brought him to Jesus. Now when Jesus looked at him, He said, "You are Simon the son of Jonah. You shall be called Cephas" (which is translated, A Stone). ## Philip and Nathanael 
+And he brought him to Jesus. Now when Jesus looked at him, He said, "You are Simon the son of Jonah. You shall be called Cephas" (which is translated, A Stone).
+
+## Philip and Nathanael 
 
 ###### 43 
 The following day Jesus wanted to go to Galilee, and He found Philip and said to him, "Follow Me." 

@@ -109,7 +109,9 @@ Since the world began it has been unheard of that anyone opened the eyes of one 
 If this Man were not from God, He could do nothing." 
 
 ###### 34 
-They answered and said to him, "You were completely born in sins, and are you teaching us?" And they cast him out. ## True Vision and True Blindness 
+They answered and said to him, "You were completely born in sins, and are you teaching us?" And they cast him out.
+
+## True Vision and True Blindness 
 
 ###### 35 
 Jesus heard that they had cast him out; and when He had found him, He said to him, "Do you believe in the Son of God?" 

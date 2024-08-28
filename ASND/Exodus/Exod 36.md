@@ -238,7 +238,9 @@ Kaya ipinadala ni Moises ang utos na ito sa buong kampo: "Huwag na kayong maghah
 
 
 
-dahil sobra-sobra na ang ibinigay nila para sa lahat ng gawain <i class="trans-change">sa Tolda_. ## Ang Pagpapatayo ng Toldang Sambahan 
+dahil sobra-sobra na ang ibinigay nila para sa lahat ng gawain <i class="trans-change">sa Tolda_.
+
+## Ang Pagpapatayo ng Toldang Sambahan 
 
 
 

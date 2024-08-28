@@ -16,7 +16,9 @@ Therefore, laying aside all malice, all deceit, hypocrisy, envy, and all evil sp
 as newborn babes, desire the pure milk of the word, that you may grow thereby, 
 
 ###### 3 
-if indeed you have tasted that the Lord _is_ gracious. ## The Chosen Stone and His Chosen People 
+if indeed you have tasted that the Lord _is_ gracious.
+
+## The Chosen Stone and His Chosen People 
 
 ###### 4 
 Coming to Him _as to_ a living stone, rejected indeed by men, but chosen by God _and_ precious, 
@@ -37,13 +39,17 @@ and "A stone of stumbling And a rock of offense." They stumble, being disobedien
 But you _are_ a chosen generation, a royal priesthood, a holy nation, His own special people, that you may proclaim the praises of Him who called you out of darkness into His marvelous light; 
 
 ###### 10 
-who once _were_ not a people but _are_ now the people of God, who had not obtained mercy but now have obtained mercy. ## Living Before the World 
+who once _were_ not a people but _are_ now the people of God, who had not obtained mercy but now have obtained mercy.
+
+## Living Before the World 
 
 ###### 11 
 Beloved, I beg _you_ as sojourners and pilgrims, abstain from fleshly lusts which war against the soul, 
 
 ###### 12 
-having your conduct honorable among the Gentiles, that when they speak against you as evildoers, they may, by _your_ good works which they observe, glorify God in the day of visitation. ## Submission to Government 
+having your conduct honorable among the Gentiles, that when they speak against you as evildoers, they may, by _your_ good works which they observe, glorify God in the day of visitation.
+
+## Submission to Government 
 
 ###### 13 
 Therefore submit yourselves to every ordinance of man for the Lord's sake, whether to the king as supreme, 
@@ -58,7 +64,9 @@ For this is the will of God, that by doing good you may put to silence the ignor
 as free, yet not using liberty as a cloak for vice, but as bondservants of God. 
 
 ###### 17 
-Honor all _people._ Love the brotherhood. Fear God. Honor the king. ## Submission to Masters 
+Honor all _people._ Love the brotherhood. Fear God. Honor the king.
+
+## Submission to Masters 
 
 ###### 18 
 Servants, _be_ submissive to _your_ masters with all fear, not only to the good and gentle, but also to the harsh. 

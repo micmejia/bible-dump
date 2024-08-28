@@ -19,7 +19,9 @@ And now I will tell you the truth: Behold, three more kings will arise in Persia
 Then a mighty king shall arise, who shall rule with great dominion, and do according to his will. 
 
 ###### 4 
-And when he has arisen, his kingdom shall be broken up and divided toward the four winds of heaven, but not among his posterity nor according to his dominion with which he ruled; for his kingdom shall be uprooted, even for others besides these. ## Warring Kings of North and South 
+And when he has arisen, his kingdom shall be broken up and divided toward the four winds of heaven, but not among his posterity nor according to his dominion with which he ruled; for his kingdom shall be uprooted, even for others besides these.
+
+## Warring Kings of North and South 
 
 ###### 5 
 "Also the king of the South shall become strong, as well as _one_ of his princes; and he shall gain power over him and have dominion. His dominion _shall be_ a great dominion. 
@@ -91,7 +93,9 @@ Yes, those who eat of the portion of his delicacies shall destroy him; his army 
 Both these kings' hearts _shall be_ bent on evil, and they shall speak lies at the same table; but it shall not prosper, for the end _will_ still _be_ at the appointed time. 
 
 ###### 28 
-While returning to his land with great riches, his heart shall be _moved_ against the holy covenant; so he shall do _damage_ and return to his own land. ## The Northern King's Blasphemies 
+While returning to his land with great riches, his heart shall be _moved_ against the holy covenant; so he shall do _damage_ and return to his own land.
+
+## The Northern King's Blasphemies 
 
 ###### 29 
 "At the appointed time he shall return and go toward the south; but it shall not be like the former or the latter. 
@@ -124,7 +128,9 @@ He shall regard neither the God of his fathers nor the desire of women, nor rega
 But in their place he shall honor a god of fortresses; and a god which his fathers did not know he shall honor with gold and silver, with precious stones and pleasant things. 
 
 ###### 39 
-Thus he shall act against the strongest fortresses with a foreign god, which he shall acknowledge, _and_ advance _its_ glory; and he shall cause them to rule over many, and divide the land for gain. ## The Northern King's Conquests 
+Thus he shall act against the strongest fortresses with a foreign god, which he shall acknowledge, _and_ advance _its_ glory; and he shall cause them to rule over many, and divide the land for gain.
+
+## The Northern King's Conquests 
 
 ###### 40 
 "At the time of the end the king of the South shall attack him; and the king of the North shall come against him like a whirlwind, with chariots, horsemen, and with many ships; and he shall enter the countries, overwhelm _them,_ and pass through. 

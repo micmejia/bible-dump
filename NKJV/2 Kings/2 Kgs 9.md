@@ -94,7 +94,9 @@ But when Ahaziah king of Judah saw _this,_ he fled by the road to Beth Haggan. S
 And his servants carried him in the chariot to Jerusalem, and buried him in his tomb with his fathers in the City of David. 
 
 ###### 29 
-In the eleventh year of Joram the son of Ahab, Ahaziah had become king over Judah. ## Jezebel's Violent Death 
+In the eleventh year of Joram the son of Ahab, Ahaziah had become king over Judah.
+
+## Jezebel's Violent Death 
 
 ###### 30 
 Now when Jehu had come to Jezreel, Jezebel heard _of it;_ and she put paint on her eyes and adorned her head, and looked through a window. 

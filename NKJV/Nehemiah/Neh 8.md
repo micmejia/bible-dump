@@ -43,7 +43,9 @@ Then he said to them, "Go your way, eat the fat, drink the sweet, and send porti
 So the Levites quieted all the people, saying, "Be still, for the day _is_ holy; do not be grieved." 
 
 ###### 12 
-And all the people went their way to eat and drink, to send portions and rejoice greatly, because they understood the words that were declared to them. ## The Feast of Tabernacles 
+And all the people went their way to eat and drink, to send portions and rejoice greatly, because they understood the words that were declared to them.
+
+## The Feast of Tabernacles 
 
 ###### 13 
 Now on the second day the heads of the fathers' _houses_ of all the people, with the priests and Levites, were gathered to Ezra the scribe, in order to understand the words of the Law. 

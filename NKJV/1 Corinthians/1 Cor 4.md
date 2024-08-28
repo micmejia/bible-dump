@@ -22,7 +22,9 @@ But with me it is a very small thing that I should be judged by you or by a huma
 For I know of nothing against myself, yet I am not justified by this; but He who judges me is the Lord. 
 
 ###### 5 
-Therefore judge nothing before the time, until the Lord comes, who will both bring to light the hidden things of darkness and reveal the counsels of the hearts. Then each one's praise will come from God. ## Fools for Christ's Sake 
+Therefore judge nothing before the time, until the Lord comes, who will both bring to light the hidden things of darkness and reveal the counsels of the hearts. Then each one's praise will come from God.
+
+## Fools for Christ's Sake 
 
 ###### 6 
 Now these things, brethren, I have figuratively transferred to myself and Apollos for your sakes, that you may learn in us not to think beyond what is written, that none of you may be puffed up on behalf of one against the other. 
@@ -46,7 +48,9 @@ To the present hour we both hunger and thirst, and we are poorly clothed, and be
 And we labor, working with our own hands. Being reviled, we bless; being persecuted, we endure; 
 
 ###### 13 
-being defamed, we entreat. We have been made as the filth of the world, the offscouring of all things until now. ## Paul's Paternal Care 
+being defamed, we entreat. We have been made as the filth of the world, the offscouring of all things until now.
+
+## Paul's Paternal Care 
 
 ###### 14 
 I do not write these things to shame you, but as my beloved children I warn _you._ 

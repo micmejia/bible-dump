@@ -31,7 +31,9 @@ He is lodging with Simon, a tanner, whose house is by the sea. He will tell you 
 And when the angel who spoke to him had departed, Cornelius called two of his household servants and a devout soldier from among those who waited on him continually. 
 
 ###### 8 
-So when he had explained all _these_ things to them, he sent them to Joppa. ## Peter's Vision 
+So when he had explained all _these_ things to them, he sent them to Joppa.
+
+## Peter's Vision 
 
 ###### 9 
 The next day, as they went on their journey and drew near the city, Peter went up on the housetop to pray, about the sixth hour. 
@@ -55,7 +57,9 @@ But Peter said, "Not so, Lord! For I have never eaten anything common or unclean
 And a voice _spoke_ to him again the second time, "What God has cleansed you must not call common." 
 
 ###### 16 
-This was done three times. And the object was taken up into heaven again. ## Summoned to Caesarea 
+This was done three times. And the object was taken up into heaven again.
+
+## Summoned to Caesarea 
 
 ###### 17 
 Now while Peter wondered within himself what this vision which he had seen meant, behold, the men who had been sent from Cornelius had made inquiry for Simon's house, and stood before the gate. 
@@ -76,7 +80,9 @@ Then Peter went down to the men who had been sent to him from Cornelius, and sai
 And they said, "Cornelius _the_ centurion, a just man, one who fears God and has a good reputation among all the nation of the Jews, was divinely instructed by a holy angel to summon you to his house, and to hear words from you." 
 
 ###### 23 
-Then he invited them in and lodged _them._ On the next day Peter went away with them, and some brethren from Joppa accompanied him. ## Peter Meets Cornelius 
+Then he invited them in and lodged _them._ On the next day Peter went away with them, and some brethren from Joppa accompanied him.
+
+## Peter Meets Cornelius 
 
 ###### 24 
 And the following day they entered Caesarea. Now Cornelius was waiting for them, and had called together his relatives and close friends. 

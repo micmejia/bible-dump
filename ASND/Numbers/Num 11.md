@@ -238,7 +238,9 @@ Pero dito wala tayong ganang kumain; puro 'manna' lang ang ating kinakain."
 
 
 
-Ang mga "manna" na ito ay parang mga buto na maliliit at mapuputi. ###### 8-9 Pinupulot ito ng mga Israelita sa lupa tuwing umaga at ginigiling nila ito o binabayo sa lusong. Pagkatapos, niluluto nila ito sa banga at ginagawang manipis na tinapay. Ang lasa nito ay katulad ng tinapay na niluto sa langis ng olibo. 
+Ang mga "manna" na ito ay parang mga buto na maliliit at mapuputi.
+
+###### 8-9 Pinupulot ito ng mga Israelita sa lupa tuwing umaga at ginigiling nila ito o binabayo sa lusong. Pagkatapos, niluluto nila ito sa banga at ginagawang manipis na tinapay. Ang lasa nito ay katulad ng tinapay na niluto sa langis ng olibo. 
 
 
 

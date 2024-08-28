@@ -33,7 +33,9 @@ Let him drink and forget his poverty, And remember his misery no more.
 Open your mouth for the speechless, In the cause of all _who are_ appointed to die. 
 
 ###### 9 
-Open your mouth, judge righteously, And plead the cause of the poor and needy. ## The Virtuous Wife 
+Open your mouth, judge righteously, And plead the cause of the poor and needy.
+
+## The Virtuous Wife 
 
 ###### 10 
 Who can find a virtuous wife? For her worth _is_ far above rubies. 

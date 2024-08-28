@@ -39,7 +39,9 @@ For God did not appoint us to wrath, but to obtain salvation through our Lord Je
 who died for us, that whether we wake or sleep, we should live together with Him. 
 
 ###### 11 
-Therefore comfort each other and edify one another, just as you also are doing. ## Various Exhortations 
+Therefore comfort each other and edify one another, just as you also are doing.
+
+## Various Exhortations 
 
 ###### 12 
 And we urge you, brethren, to recognize those who labor among you, and are over you in the Lord and admonish you, 
@@ -72,7 +74,9 @@ Do not despise prophecies.
 Test all things; hold fast what is good. 
 
 ###### 22 
-Abstain from every form of evil. ## Blessing and Admonition 
+Abstain from every form of evil.
+
+## Blessing and Admonition 
 
 ###### 23 
 Now may the God of peace Himself sanctify you completely; and may your whole spirit, soul, and body be preserved blameless at the coming of our Lord Jesus Christ. 

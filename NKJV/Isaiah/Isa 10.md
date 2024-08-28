@@ -19,7 +19,9 @@ To rob the needy of justice, And to take what is right from the poor of My peopl
 What will you do in the day of punishment, And in the desolation _which_ will come from afar? To whom will you flee for help? And where will you leave your glory? 
 
 ###### 4 
-Without Me they shall bow down among the prisoners, And they shall fall among the slain." For all this His anger is not turned away, But His hand _is_ stretched out still. ## Arrogant Assyria Also Judged 
+Without Me they shall bow down among the prisoners, And they shall fall among the slain." For all this His anger is not turned away, But His hand _is_ stretched out still.
+
+## Arrogant Assyria Also Judged 
 
 ###### 5 
 "Woe to Assyria, the rod of My anger And the staff in whose hand is My indignation. 
@@ -64,7 +66,9 @@ So the Light of Israel will be for a fire, And his Holy One for a flame; It will
 And it will consume the glory of his forest and of his fruitful field, Both soul and body; And they will be as when a sick man wastes away. 
 
 ###### 19 
-Then the rest of the trees of his forest Will be so few in number That a child may write them. ## The Returning Remnant of Israel 
+Then the rest of the trees of his forest Will be so few in number That a child may write them.
+
+## The Returning Remnant of Israel 
 
 ###### 20 
 And it shall come to pass in that day _That_ the remnant of Israel, And such as have escaped of the house of Jacob, Will never again depend on him who defeated them, But will depend on the Lord, the Holy One of Israel, in truth. 

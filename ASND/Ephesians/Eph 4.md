@@ -535,7 +535,9 @@ Sa halip, mananatili tayo sa katotohanan nang may pag-ibig, upang sa lahat ng ba
 
 
 
-At sa pamumuno niya, ang lahat ng bahagi ng katawan, <i class="trans-change">na walang iba kundi ang mga mananampalataya,_ ay pinag-uugnay-ugnay, at ang bawat isaʼy nagtutulungan. At sa pagganap ng bawat isa sa kani-kanilang tungkulin nang may pag-ibig, ang buong katawan ay lalago at lalakas. ## Ang Bagong Buhay kay Cristo 
+At sa pamumuno niya, ang lahat ng bahagi ng katawan, <i class="trans-change">na walang iba kundi ang mga mananampalataya,_ ay pinag-uugnay-ugnay, at ang bawat isaʼy nagtutulungan. At sa pagganap ng bawat isa sa kani-kanilang tungkulin nang may pag-ibig, ang buong katawan ay lalago at lalakas.
+
+## Ang Bagong Buhay kay Cristo 
 
 
 

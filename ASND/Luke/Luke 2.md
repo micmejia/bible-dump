@@ -238,7 +238,9 @@ At habang naroon sila sa Betlehem, dumating ang oras ng panganganak ni Maria.
 
 
 
-Isinilang niya ang panganay niya, na isang lalaki. Binalot niya ng lampin ang sanggol at inihiga sa sabsaban, dahil walang lugar para sa kanila sa mga bahay-panuluyan. ## Nagpakita ang mga Anghel sa mga Pastol 
+Isinilang niya ang panganay niya, na isang lalaki. Binalot niya ng lampin ang sanggol at inihiga sa sabsaban, dahil walang lugar para sa kanila sa mga bahay-panuluyan.
+
+## Nagpakita ang mga Anghel sa mga Pastol 
 
 
 
@@ -667,7 +669,9 @@ Pero iningatan ito ni Maria sa kanyang puso, at pinagbulay-bulayan ang lahat ng 
 
 
 
-Bumalik sa parang ang mga pastol na labis ang pagpupuri sa Dios dahil sa lahat ng kanilang narinig at nakita, na ayon nga sa sinabi ng anghel. ## Pinangalanang Jesus ang Sanggol 
+Bumalik sa parang ang mga pastol na labis ang pagpupuri sa Dios dahil sa lahat ng kanilang narinig at nakita, na ayon nga sa sinabi ng anghel.
+
+## Pinangalanang Jesus ang Sanggol 
 
 
 
@@ -700,7 +704,9 @@ Bumalik sa parang ang mga pastol na labis ang pagpupuri sa Dios dahil sa lahat n
 
 
 
-Pagdating ng ikawalong araw ay tinuli ang sanggol at pinangalanang Jesus. Ito ang pangalang ibinigay ng anghel bago siya ipinaglihi. ## Inihandog si Jesus sa Templo 
+Pagdating ng ikawalong araw ay tinuli ang sanggol at pinangalanang Jesus. Ito ang pangalang ibinigay ng anghel bago siya ipinaglihi.
+
+## Inihandog si Jesus sa Templo 
 
 
 
@@ -1327,7 +1333,9 @@ Nang maisagawa na nina Jose at Maria ang lahat ng dapat nilang gawin ayon sa Kau
 
 
 
-Lumaki ang batang si Jesus, at naging malakas at napakatalino. At pinagpala siya ng Dios. ## Ang Batang si Jesus sa Templo 
+Lumaki ang batang si Jesus, at naging malakas at napakatalino. At pinagpala siya ng Dios.
+
+## Ang Batang si Jesus sa Templo 
 
 
 

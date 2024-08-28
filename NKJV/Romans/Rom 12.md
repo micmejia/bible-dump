@@ -13,7 +13,9 @@ next: ['Rom 13']
 I beseech you therefore, brethren, by the mercies of God, that you present your bodies a living sacrifice, holy, acceptable to God, _which is_ your reasonable service. 
 
 ###### 2 
-And do not be conformed to this world, but be transformed by the renewing of your mind, that you may prove what _is_ that good and acceptable and perfect will of God. ## Serve God with Spiritual Gifts 
+And do not be conformed to this world, but be transformed by the renewing of your mind, that you may prove what _is_ that good and acceptable and perfect will of God.
+
+## Serve God with Spiritual Gifts 
 
 ###### 3 
 For I say, through the grace given to me, to everyone who is among you, not to think _of himself_ more highly than he ought to think, but to think soberly, as God has dealt to each one a measure of faith. 
@@ -31,7 +33,9 @@ Having then gifts differing according to the grace that is given to us, _let us 
 or ministry, _let us use it_ in _our_ ministering; he who teaches, in teaching; 
 
 ###### 8 
-he who exhorts, in exhortation; he who gives, with liberality; he who leads, with diligence; he who shows mercy, with cheerfulness. ## Behave Like a Christian 
+he who exhorts, in exhortation; he who gives, with liberality; he who leads, with diligence; he who shows mercy, with cheerfulness.
+
+## Behave Like a Christian 
 
 ###### 9 
 _Let_ love _be_ without hypocrisy. Abhor what is evil. Cling to what is good. 

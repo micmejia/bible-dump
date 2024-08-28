@@ -138,7 +138,9 @@ Mga anak, sundin nʼyo ang mga magulang nʼyo dahil ito ang nararapat gawin <i c
 
 
 
-At kayo namang mga magulang, huwag kayong gumawa ng mga bagay na ikasasama ng loob ng mga anak ninyo. Sa halip, palakihin ninyo sila nang may disiplina at turuan ng mga aral ng Panginoon. ## Aral sa mga Alipin at mga Amo 
+At kayo namang mga magulang, huwag kayong gumawa ng mga bagay na ikasasama ng loob ng mga anak ninyo. Sa halip, palakihin ninyo sila nang may disiplina at turuan ng mga aral ng Panginoon.
+
+## Aral sa mga Alipin at mga Amo 
 
 
 
@@ -303,7 +305,9 @@ Alalahanin ninyong gagantimpalaan ng Panginoon ang bawat isa ayon sa ginawa niya
 
 
 
-At kayo namang mga amo, tratuhin ninyo nang mabuti ang inyong mga alipin at huwag ninyo silang tatakutin o pagbabantaan, dahil alam naman ninyong kayo at sila ay may iisang amo sa langit, at wala siyang kinikilingan kahit sino. ## Mga Kagamitang Pandigma na Kaloob ng Dios 
+At kayo namang mga amo, tratuhin ninyo nang mabuti ang inyong mga alipin at huwag ninyo silang tatakutin o pagbabantaan, dahil alam naman ninyong kayo at sila ay may iisang amo sa langit, at wala siyang kinikilingan kahit sino.
+
+## Mga Kagamitang Pandigma na Kaloob ng Dios 
 
 
 
@@ -666,7 +670,9 @@ Ipanalangin din ninyo ako sa tuwing mangangaral ako, na bigyan ako <i class="tra
 
 
 
-Sapagkat isinugo ako <i class="trans-change">ng Dios_ para mangaral ng Magandang Balitang ito na siyang dahilan ng pagkakabilanggo ko. Kaya kung maaari, ipanalangin ninyong maipahayag ko ito nang buong tapang gaya ng nararapat. ## Mga Pangwakas na Pagbati 
+Sapagkat isinugo ako <i class="trans-change">ng Dios_ para mangaral ng Magandang Balitang ito na siyang dahilan ng pagkakabilanggo ko. Kaya kung maaari, ipanalangin ninyong maipahayag ko ito nang buong tapang gaya ng nararapat.
+
+## Mga Pangwakas na Pagbati 
 
 
 

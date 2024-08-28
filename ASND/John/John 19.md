@@ -535,7 +535,9 @@ Pero nagsigawan ang mga Judio, "Patayin siya! Patayin siya! Ipako siya sa krus!"
 
 
 
-Kaya ibinigay ni Pilato sa kanila si Jesus upang ipako sa krus. ## Ipinako sa Krus si Jesus Dinala si Jesus ng mga sundalo 
+Kaya ibinigay ni Pilato sa kanila si Jesus upang ipako sa krus.
+
+## Ipinako sa Krus si Jesus Dinala si Jesus ng mga sundalo 
 
 
 
@@ -898,7 +900,9 @@ Nang makita ni Jesus ang kanyang ina na nakatayo roon katabi ng minamahal niyang
 
 
 
-At sinabi naman niya sa tagasunod niya, "Ituring mo siyang ina." Mula noon, tumira na ang ina ni Jesus sa tahanan ng tagasunod na ito. ## Ang Pagkamatay ni Jesus 
+At sinabi naman niya sa tagasunod niya, "Ituring mo siyang ina." Mula noon, tumira na ang ina ni Jesus sa tahanan ng tagasunod na ito.
+
+## Ang Pagkamatay ni Jesus 
 
 
 
@@ -997,7 +1001,9 @@ May isang banga roon na puno ng maasim na alak. Isinawsaw ng mga sundalo ang isa
 
 
 
-Nang masipsip na ni Jesus ang alak, sinabi niya, "Tapos na!" Iniyuko niya ang kanyang ulo at nalagot ang kanyang hininga. ## Sinibat ang Tagiliran ni Jesus 
+Nang masipsip na ni Jesus ang alak, sinabi niya, "Tapos na!" Iniyuko niya ang kanyang ulo at nalagot ang kanyang hininga.
+
+## Sinibat ang Tagiliran ni Jesus 
 
 
 

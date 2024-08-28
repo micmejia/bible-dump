@@ -88,7 +88,9 @@ These _were_ the sons of Bilhah, whom Laban gave to Rachel his daughter, and she
 All the persons who went with Jacob to Egypt, who came from his body, besides Jacob's sons' wives, _were_ sixty-six persons in all. 
 
 ###### 27 
-And the sons of Joseph who were born to him in Egypt _were_ two persons. All the persons of the house of Jacob who went to Egypt were seventy. ## Jacob Settles in Goshen 
+And the sons of Joseph who were born to him in Egypt _were_ two persons. All the persons of the house of Jacob who went to Egypt were seventy.
+
+## Jacob Settles in Goshen 
 
 ###### 28 
 Then he sent Judah before him to Joseph, to point out before him _the way_ to Goshen. And they came to the land of Goshen. 

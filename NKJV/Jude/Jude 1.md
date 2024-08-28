@@ -11,13 +11,17 @@ up: ['Jude']
 Jude, a bondservant of Jesus Christ, and brother of James, To those who are called, sanctified by God the Father, and preserved in Jesus Christ: 
 
 ###### 2 
-Mercy, peace, and love be multiplied to you. ## Contend for the Faith 
+Mercy, peace, and love be multiplied to you.
+
+## Contend for the Faith 
 
 ###### 3 
 Beloved, while I was very diligent to write to you concerning our common salvation, I found it necessary to write to you exhorting you to contend earnestly for the faith which was once for all delivered to the saints. 
 
 ###### 4 
-For certain men have crept in unnoticed, who long ago were marked out for this condemnation, ungodly men, who turn the grace of our God into lewdness and deny the only Lord God and our Lord Jesus Christ. ## Old and New Apostates 
+For certain men have crept in unnoticed, who long ago were marked out for this condemnation, ungodly men, who turn the grace of our God into lewdness and deny the only Lord God and our Lord Jesus Christ.
+
+## Old and New Apostates 
 
 ###### 5 
 But I want to remind you, though you once knew this, that the Lord, having saved the people out of the land of Egypt, afterward destroyed those who did not believe. 
@@ -38,7 +42,9 @@ Yet Michael the archangel, in contending with the devil, when he disputed about 
 But these speak evil of whatever they do not know; and whatever they know naturally, like brute beasts, in these things they corrupt themselves. 
 
 ###### 11 
-Woe to them! For they have gone in the way of Cain, have run greedily in the error of Balaam for profit, and perished in the rebellion of Korah. ## Apostates Depraved and Doomed 
+Woe to them! For they have gone in the way of Cain, have run greedily in the error of Balaam for profit, and perished in the rebellion of Korah.
+
+## Apostates Depraved and Doomed 
 
 ###### 12 
 These are spots in your love feasts, while they feast with you without fear, serving _only_ themselves. _They are_ clouds without water, carried about by the winds; late autumn trees without fruit, twice dead, pulled up by the roots; 
@@ -62,7 +68,9 @@ But you, beloved, remember the words which were spoken before by the apostles of
 how they told you that there would be mockers in the last time who would walk according to their own ungodly lusts. 
 
 ###### 19 
-These are sensual persons, who cause divisions, not having the Spirit. ## Maintain Your Life with God 
+These are sensual persons, who cause divisions, not having the Spirit.
+
+## Maintain Your Life with God 
 
 ###### 20 
 But you, beloved, building yourselves up on your most holy faith, praying in the Holy Spirit, 
@@ -74,7 +82,9 @@ keep yourselves in the love of God, looking for the mercy of our Lord Jesus Chri
 And on some have compassion, making a distinction; 
 
 ###### 23 
-but others save with fear, pulling _them_ out of the fire, hating even the garment defiled by the flesh. ## Glory to God 
+but others save with fear, pulling _them_ out of the fire, hating even the garment defiled by the flesh.
+
+## Glory to God 
 
 ###### 24 
 Now to Him who is able to keep you from stumbling, And to present _you_ faultless Before the presence of His glory with exceeding joy, 

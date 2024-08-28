@@ -39,7 +39,9 @@ next: ['Hag 2']
 
 
 
-Noong unang araw ng ikaanim na buwan, nang ikalawang taon ng paghahari ni Darius <i class="trans-change">sa Persia_, may sinabi ang Panginoon kina Zerubabel at Josue sa pamamagitan ni Propeta Hageo. Si Zerubabel na anak ni Shealtiel ang gobernador ng Juda, at si Josue na anak ni Jehozadak ang punong pari. ###### 2-3 Ito ang sinabi ng Panginoong Makapangyarihan sa pamamagitan ni Propeta Hageo, "Sinasabi ninyo na hindi pa ito ang panahon upang muling itayo ang aking templo. 
+Noong unang araw ng ikaanim na buwan, nang ikalawang taon ng paghahari ni Darius <i class="trans-change">sa Persia_, may sinabi ang Panginoon kina Zerubabel at Josue sa pamamagitan ni Propeta Hageo. Si Zerubabel na anak ni Shealtiel ang gobernador ng Juda, at si Josue na anak ni Jehozadak ang punong pari.
+
+###### 2-3 Ito ang sinabi ng Panginoong Makapangyarihan sa pamamagitan ni Propeta Hageo, "Sinasabi ninyo na hindi pa ito ang panahon upang muling itayo ang aking templo. 
 
 
 

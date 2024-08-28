@@ -25,7 +25,9 @@ And when the people heard this bad news, they mourned, and no one put on his orn
 For the Lord had said to Moses, "Say to the children of Israel, 'You _are_ a stiff-necked people. I could come up into your midst in one moment and consume you. Now therefore, take off your ornaments, that I may know what to do to you.' " 
 
 ###### 6 
-So the children of Israel stripped themselves of their ornaments by Mount Horeb. ## Moses Meets with the Lord 
+So the children of Israel stripped themselves of their ornaments by Mount Horeb.
+
+## Moses Meets with the Lord 
 
 ###### 7 
 Moses took his tent and pitched it outside the camp, far from the camp, and called it the tabernacle of meeting. And it came to pass _that_ everyone who sought the Lord went out to the tabernacle of meeting which _was_ outside the camp. 
@@ -40,7 +42,9 @@ And it came to pass, when Moses entered the tabernacle, that the pillar of cloud
 All the people saw the pillar of cloud standing _at_ the tabernacle door, and all the people rose and worshiped, each man _in_ his tent door. 
 
 ###### 11 
-So the Lord spoke to Moses face to face, as a man speaks to his friend. And he would return to the camp, but his servant Joshua the son of Nun, a young man, did not depart from the tabernacle. ## The Promise of God's Presence 
+So the Lord spoke to Moses face to face, as a man speaks to his friend. And he would return to the camp, but his servant Joshua the son of Nun, a young man, did not depart from the tabernacle.
+
+## The Promise of God's Presence 
 
 ###### 12 
 Then Moses said to the Lord, "See, You say to me, 'Bring up this people.' But You have not let me know whom You will send with me. Yet You have said, 'I know you by name, and you have also found grace in My sight.' 

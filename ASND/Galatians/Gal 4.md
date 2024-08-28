@@ -238,7 +238,9 @@ At dahil mga anak na tayo ngayon <i class="trans-change">ng Dios_, isinugo ng Di
 
 
 
-Ngayon, hindi na tayo mga alipin kundi mga anak. At kung mga anak tayo <i class="trans-change">ng Dios_, tagapagmana rin tayo <i class="trans-change">ng mga pangako niya_. ## Ang Pagmamalasakit ni Pablo sa mga Taga-Galacia 
+Ngayon, hindi na tayo mga alipin kundi mga anak. At kung mga anak tayo <i class="trans-change">ng Dios_, tagapagmana rin tayo <i class="trans-change">ng mga pangako niya_.
+
+## Ang Pagmamalasakit ni Pablo sa mga Taga-Galacia 
 
 
 

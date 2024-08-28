@@ -9,7 +9,9 @@ next: ['Nah 2']
 
 
 ###### 1 
-The burden against Nineveh. The book of the vision of Nahum the Elkoshite. ## God's Wrath on His Enemies 
+The burden against Nineveh. The book of the vision of Nahum the Elkoshite.
+
+## God's Wrath on His Enemies 
 
 ###### 2 
 God _is_ jealous, and the Lord avenges; The Lord avenges and _is_ furious. The Lord will take vengeance on His adversaries, And He reserves _wrath_ for His enemies; 

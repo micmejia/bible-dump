@@ -535,7 +535,9 @@ Nagustuhan ng hari si Ester ng higit kaysa sa ibang mga dalaga <i class="trans-c
 
 
 
-Nagdaos ang hari ng malaking handaan para parangalan si Ester. Inanyayahan niya ang lahat ng pinuno niya at ang iba pang naglilingkod sa kanya. Nang araw na iyon, ipinag-utos niya sa lahat at sa buong kaharian na magdiwang ng isang pista opisyal, at nagbigay siya ng maraming regalo sa mga tao. ## Iniligtas ni Mordecai ang Hari 
+Nagdaos ang hari ng malaking handaan para parangalan si Ester. Inanyayahan niya ang lahat ng pinuno niya at ang iba pang naglilingkod sa kanya. Nang araw na iyon, ipinag-utos niya sa lahat at sa buong kaharian na magdiwang ng isang pista opisyal, at nagbigay siya ng maraming regalo sa mga tao.
+
+## Iniligtas ni Mordecai ang Hari 
 
 
 

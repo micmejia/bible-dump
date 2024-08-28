@@ -57,13 +57,17 @@ Therefore by Him let us continually offer the sacrifice of praise to God, that i
 But do not forget to do good and to share, for with such sacrifices God is well pleased. 
 
 ###### 17 
-Obey those who rule over you, and be submissive, for they watch out for your souls, as those who must give account. Let them do so with joy and not with grief, for that would be unprofitable for you. ## Prayer Requested 
+Obey those who rule over you, and be submissive, for they watch out for your souls, as those who must give account. Let them do so with joy and not with grief, for that would be unprofitable for you.
+
+## Prayer Requested 
 
 ###### 18 
 Pray for us; for we are confident that we have a good conscience, in all things desiring to live honorably. 
 
 ###### 19 
-But I especially urge _you_ to do this, that I may be restored to you the sooner. ## Benediction, Final Exhortation, Farewell 
+But I especially urge _you_ to do this, that I may be restored to you the sooner.
+
+## Benediction, Final Exhortation, Farewell 
 
 ###### 20 
 Now may the God of peace who brought up our Lord Jesus from the dead, that great Shepherd of the sheep, through the blood of the everlasting covenant, 

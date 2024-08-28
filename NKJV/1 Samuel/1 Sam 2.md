@@ -40,7 +40,9 @@ He will guard the feet of His saints, But the wicked shall be silent in darkness
 The adversaries of the Lord shall be broken in pieces; From heaven He will thunder against them. The Lord will judge the ends of the earth. "He will give strength to His king, And exalt the horn of His anointed." 
 
 ###### 11 
-Then Elkanah went to his house at Ramah. But the child ministered to the Lord before Eli the priest. ## The Wicked Sons of Eli 
+Then Elkanah went to his house at Ramah. But the child ministered to the Lord before Eli the priest.
+
+## The Wicked Sons of Eli 
 
 ###### 12 
 Now the sons of Eli _were_ corrupt; they did not know the Lord. 
@@ -58,7 +60,9 @@ Also, before they burned the fat, the priest's servant would come and say to the
 And _if_ the man said to him, "They should really burn the fat first; _then_ you may take _as much_ as your heart desires," he would then answer him, "_No,_ but you must give _it_ now; and if not, I will take _it_ by force." 
 
 ###### 17 
-Therefore the sin of the young men was very great before the Lord, for men abhorred the offering of the Lord. ## Samuel's Childhood Ministry 
+Therefore the sin of the young men was very great before the Lord, for men abhorred the offering of the Lord.
+
+## Samuel's Childhood Ministry 
 
 ###### 18 
 But Samuel ministered before the Lord, _even as_ a child, wearing a linen ephod. 
@@ -70,7 +74,9 @@ Moreover his mother used to make him a little robe, and bring _it_ to him year b
 And Eli would bless Elkanah and his wife, and say, "The Lord give you descendants from this woman for the loan that was given to the Lord." Then they would go to their own home. 
 
 ###### 21 
-And the Lord visited Hannah, so that she conceived and bore three sons and two daughters. Meanwhile the child Samuel grew before the Lord. ## Prophecy Against Eli's Household 
+And the Lord visited Hannah, so that she conceived and bore three sons and two daughters. Meanwhile the child Samuel grew before the Lord.
+
+## Prophecy Against Eli's Household 
 
 ###### 22 
 Now Eli was very old; and he heard everything his sons did to all Israel, and how they lay with the women who assembled at the door of the tabernacle of meeting. 

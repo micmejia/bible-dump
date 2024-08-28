@@ -469,7 +469,9 @@ At ang natitirang tatlong hayop ay inalisan ng kapangyarihan, pero hinayaang mab
 
 
 
-Pinarangalan siya at binigyan ng kapangyarihang maghari, at naglingkod sa kanya ang lahat ng tao sa ibaʼt ibang bansa, lahi, at wika. Ang paghahari niya ay walang hanggan. At walang makakapagpabagsak ng kaharian niya. ## Ang Kahulugan ng Panaginip 
+Pinarangalan siya at binigyan ng kapangyarihang maghari, at naglingkod sa kanya ang lahat ng tao sa ibaʼt ibang bansa, lahi, at wika. Ang paghahari niya ay walang hanggan. At walang makakapagpabagsak ng kaharian niya.
+
+## Ang Kahulugan ng Panaginip 
 
 
 

@@ -34,7 +34,9 @@ ram skins dyed red, badger skins, and acacia wood;
 oil for the light, and spices for the anointing oil and for the sweet incense; 
 
 ###### 9 
-onyx stones, and stones to be set in the ephod and in the breastplate. ## Articles of the Tabernacle 
+onyx stones, and stones to be set in the ephod and in the breastplate.
+
+## Articles of the Tabernacle 
 
 ###### 10 
 'All _who are_ gifted artisans among you shall come and make all that the Lord has commanded: 
@@ -94,7 +96,9 @@ The rulers brought onyx stones, and the stones to be set in the ephod and in the
 and spices and oil for the light, for the anointing oil, and for the sweet incense. 
 
 ###### 29 
-The children of Israel brought a freewill offering to the Lord, all the men and women whose hearts were willing to bring _material_ for all kinds of work which the Lord, by the hand of Moses, had commanded to be done. ## The Artisans Called by God 
+The children of Israel brought a freewill offering to the Lord, all the men and women whose hearts were willing to bring _material_ for all kinds of work which the Lord, by the hand of Moses, had commanded to be done.
+
+## The Artisans Called by God 
 
 ###### 30 
 And Moses said to the children of Israel, "See, the Lord has called by name Bezalel the son of Uri, the son of Hur, of the tribe of Judah; 

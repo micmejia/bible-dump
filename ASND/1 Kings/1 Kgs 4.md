@@ -634,7 +634,9 @@ Si Shimei na anak ni Ela, <i class="trans-change">na namamahala_ sa Benjamin.
 
 
 
-Si Geber na anak ni Uri, <i class="trans-change">na namamahala_ sa Gilead na sakop noon ni Sihon na hari ng mga Amoreo at ni Haring Og ng Bashan. Si Geber lang ang gobernador sa buong distritong ito. ## Ang Kasaganaan at ang Karunungan ni Solomon 
+Si Geber na anak ni Uri, <i class="trans-change">na namamahala_ sa Gilead na sakop noon ni Sihon na hari ng mga Amoreo at ni Haring Og ng Bashan. Si Geber lang ang gobernador sa buong distritong ito.
+
+## Ang Kasaganaan at ang Karunungan ni Solomon 
 
 
 

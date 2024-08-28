@@ -57,7 +57,9 @@ Eliud begot Eleazar, Eleazar begot Matthan, and Matthan begot Jacob.
 And Jacob begot Joseph the husband of Mary, of whom was born Jesus who is called Christ. 
 
 ###### 17 
-So all the generations from Abraham to David _are_ fourteen generations, from David until the captivity in Babylon _are_ fourteen generations, and from the captivity in Babylon until the Christ _are_ fourteen generations. ## Christ Born of Mary 
+So all the generations from Abraham to David _are_ fourteen generations, from David until the captivity in Babylon _are_ fourteen generations, and from the captivity in Babylon until the Christ _are_ fourteen generations.
+
+## Christ Born of Mary 
 
 ###### 18 
 Now the birth of Jesus Christ was as follows: After His mother Mary was betrothed to Joseph, before they came together, she was found with child of the Holy Spirit. 

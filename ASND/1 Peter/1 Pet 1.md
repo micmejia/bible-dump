@@ -72,7 +72,11 @@ next: ['1 Pet 2']
 
 
 
-Pinili na kayo ng Dios Ama noon pa para maging mga anak niya sa pamamagitan ng <i class="trans-change">Banal na_ Espiritu, para sundin nʼyo si Jesu-Cristo at upang linisin kayo sa mga kasalanan nʼyo sa pamamagitan ng kanyang dugo. Sumainyo nawa ang higit pang biyaya at kapayapaan. ## May Inihanda ang Dios para sa Atin ###### 3-4 Purihin natin ang Dios at Ama ng ating Panginoong Jesu-Cristo! Dahil sa dakila niyang awa sa atin, ipinanganak tayong muli sa pamamagitan ng muling pagkabuhay ni Jesu-Cristo. Ito ang nagbibigay sa atin ng malaking pag-asa na may nakahandang mana ang Dios para sa atin. Ang manang itoʼy nasa langit, walang kapintasan, hindi nasisira, at hindi kumukupas. 
+Pinili na kayo ng Dios Ama noon pa para maging mga anak niya sa pamamagitan ng <i class="trans-change">Banal na_ Espiritu, para sundin nʼyo si Jesu-Cristo at upang linisin kayo sa mga kasalanan nʼyo sa pamamagitan ng kanyang dugo. Sumainyo nawa ang higit pang biyaya at kapayapaan.
+
+## May Inihanda ang Dios para sa Atin
+
+###### 3-4 Purihin natin ang Dios at Ama ng ating Panginoong Jesu-Cristo! Dahil sa dakila niyang awa sa atin, ipinanganak tayong muli sa pamamagitan ng muling pagkabuhay ni Jesu-Cristo. Ito ang nagbibigay sa atin ng malaking pag-asa na may nakahandang mana ang Dios para sa atin. Ang manang itoʼy nasa langit, walang kapintasan, hindi nasisira, at hindi kumukupas. 
 
 
 
@@ -336,7 +340,9 @@ Ipinahayag na sa kanila ng Espiritu ni Cristo na nasa kanila, na maghihirap siya
 
 
 
-Ipinahayag din sa kanila na ang mga bagay na ipinaalam nila ay hindi para sa ikabubuti nila kundi para sa atin. At ngayon, napakinggan nʼyo na sa mga nangangaral ng Magandang Balita ang mga ipinahayag nila. Nagsalita sila sa inyo sa pamamagitan ng <i class="trans-change">kapangyarihan ng_ Banal na Espiritung sinugo sa kanila mula sa langit. Kahit ang mga anghel noon ay nagnais na maunawaan ang Magandang Balitang ito na ipinangaral sa inyo. ## Sundin Ninyo ang Dios 
+Ipinahayag din sa kanila na ang mga bagay na ipinaalam nila ay hindi para sa ikabubuti nila kundi para sa atin. At ngayon, napakinggan nʼyo na sa mga nangangaral ng Magandang Balita ang mga ipinahayag nila. Nagsalita sila sa inyo sa pamamagitan ng <i class="trans-change">kapangyarihan ng_ Banal na Espiritung sinugo sa kanila mula sa langit. Kahit ang mga anghel noon ay nagnais na maunawaan ang Magandang Balitang ito na ipinangaral sa inyo.
+
+## Sundin Ninyo ang Dios 
 
 
 

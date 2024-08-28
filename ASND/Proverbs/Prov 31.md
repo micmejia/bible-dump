@@ -171,7 +171,9 @@ Lemuel, hindi dapat uminom ng alak ang isang hari. Ang mga namumuno ay hindi dap
 
 
 
-Sapagkat kapag nalasing na sila, kadalasan ay nakakalimutan na nila ang kanilang tungkulin, at hindi nila nabibigyan ng katarungan ang mga nasa kagipitan. ###### 6-7 Hayaan mong mag-inom ang mga taong nawalan na ng pag-asa at naghihirap ang kalooban, upang makalimutan nila ang kanilang mga kasawian at kahirapan. 
+Sapagkat kapag nalasing na sila, kadalasan ay nakakalimutan na nila ang kanilang tungkulin, at hindi nila nabibigyan ng katarungan ang mga nasa kagipitan.
+
+###### 6-7 Hayaan mong mag-inom ang mga taong nawalan na ng pag-asa at naghihirap ang kalooban, upang makalimutan nila ang kanilang mga kasawian at kahirapan. 
 
 
 
@@ -237,7 +239,9 @@ Ipagtanggol mo ang karapatan ng mga taong kahabag-habag, na hindi maipagtanggol 
 
 
 
-Humatol ka ng walang kinikilingan, at ipagtanggol ang karapatan ng mga mahihirap at nangangailangan. ## Ang Mabuting Asawa 
+Humatol ka ng walang kinikilingan, at ipagtanggol ang karapatan ng mga mahihirap at nangangailangan.
+
+## Ang Mabuting Asawa 
 
 
 

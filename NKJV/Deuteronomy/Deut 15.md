@@ -25,7 +25,9 @@ except when there may be no poor among you; for the Lord will greatly bless you 
 only if you carefully obey the voice of the Lord your God, to observe with care all these commandments which I command you today. 
 
 ###### 6 
-For the Lord your God will bless you just as He promised you; you shall lend to many nations, but you shall not borrow; you shall reign over many nations, but they shall not reign over you. ## Generosity to the Poor 
+For the Lord your God will bless you just as He promised you; you shall lend to many nations, but you shall not borrow; you shall reign over many nations, but they shall not reign over you.
+
+## Generosity to the Poor 
 
 ###### 7 
 "If there is among you a poor man of your brethren, within any of the gates in your land which the Lord your God is giving you, you shall not harden your heart nor shut your hand from your poor brother, 
@@ -61,7 +63,9 @@ And if it happens that he says to you, 'I will not go away from you,' because he
 then you shall take an awl and thrust _it_ through his ear to the door, and he shall be your servant forever. Also to your female servant you shall do likewise. 
 
 ###### 18 
-It shall not seem hard to you when you send him away free from you; for he has been worth a double hired servant in serving you six years. Then the Lord your God will bless you in all that you do. ## The Law Concerning Firstborn Animals 
+It shall not seem hard to you when you send him away free from you; for he has been worth a double hired servant in serving you six years. Then the Lord your God will bless you in all that you do.
+
+## The Law Concerning Firstborn Animals 
 
 ###### 19 
 "All the firstborn males that come from your herd and your flock you shall sanctify to the Lord your God; you shall do no work with the firstborn of your herd, nor shear the firstborn of your flock. 

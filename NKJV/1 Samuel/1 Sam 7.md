@@ -10,7 +10,9 @@ next: ['1 Sam 8']
 
 
 ###### 1 
-Then the men of Kirjath Jearim came and took the ark of the Lord, and brought it into the house of Abinadab on the hill, and consecrated Eleazar his son to keep the ark of the Lord. ## Samuel Judges Israel 
+Then the men of Kirjath Jearim came and took the ark of the Lord, and brought it into the house of Abinadab on the hill, and consecrated Eleazar his son to keep the ark of the Lord.
+
+## Samuel Judges Israel 
 
 ###### 2 
 So it was that the ark remained in Kirjath Jearim a long time; it was there twenty years. And all the house of Israel lamented after the Lord. 

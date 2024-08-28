@@ -46,7 +46,9 @@ And in Issachar and in Asher, Manasseh had Beth Shean and its towns, Ibleam and 
 Yet the children of Manasseh could not drive out _the inhabitants of_ those cities, but the Canaanites were determined to dwell in that land. 
 
 ###### 13 
-And it happened, when the children of Israel grew strong, that they put the Canaanites to forced labor, but did not utterly drive them out. ## More Land for Ephraim and Manasseh 
+And it happened, when the children of Israel grew strong, that they put the Canaanites to forced labor, but did not utterly drive them out.
+
+## More Land for Ephraim and Manasseh 
 
 ###### 14 
 Then the children of Joseph spoke to Joshua, saying, "Why have you given us _only_ one lot and one share to inherit, since we _are_ a great people, inasmuch as the Lord has blessed us until now?" 

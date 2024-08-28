@@ -205,7 +205,9 @@ Noong namumuhay pa tayo sa dati nating pagkatao, ang masamang pagnanasa ang nagh
 
 
 
-Pero ngayon ay malaya na tayo sa Kautusan, dahil namatay na tayo sa <i class="trans-change">Kautusang ito na_ dating umalipin sa atin. Ang ating paglilingkod ngayon sa Dios ay hindi na ayon sa dating buhay na dulot ng Kautusan kundi sa bagong buhay na dulot ng <i class="trans-change">Banal na_ Espiritu. ## Ang Kautusan at ang Kasalanan 
+Pero ngayon ay malaya na tayo sa Kautusan, dahil namatay na tayo sa <i class="trans-change">Kautusang ito na_ dating umalipin sa atin. Ang ating paglilingkod ngayon sa Dios ay hindi na ayon sa dating buhay na dulot ng Kautusan kundi sa bagong buhay na dulot ng <i class="trans-change">Banal na_ Espiritu.
+
+## Ang Kautusan at ang Kasalanan 
 
 
 
@@ -436,7 +438,9 @@ Pero sa kabila nito, banal pa rin ang Kautusan; ang bawat utos nito ay banal, ma
 
 
 
-Nangangahulugan ba na ang mabuting bagay pa ang siyang nagdulot sa akin ng kamatayan? Aba, hindi! Ang kasalanan ang siyang nagdulot nito. Ginamit ng kasalanan ang Kautusan, na isang mabuting bagay, para akoʼy mahatulan ng kamatayan. At dahil dito, nalaman ko kung gaano talaga kasama ang kasalanan. ## Ang Kaguluhan sa Puso ng Tao 
+Nangangahulugan ba na ang mabuting bagay pa ang siyang nagdulot sa akin ng kamatayan? Aba, hindi! Ang kasalanan ang siyang nagdulot nito. Ginamit ng kasalanan ang Kautusan, na isang mabuting bagay, para akoʼy mahatulan ng kamatayan. At dahil dito, nalaman ko kung gaano talaga kasama ang kasalanan.
+
+## Ang Kaguluhan sa Puso ng Tao 
 
 
 

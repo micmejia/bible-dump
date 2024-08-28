@@ -172,7 +172,9 @@ Lalago sila na parang halaman na nasa tabi ng masaganang tubig o mga puno sa tab
 
 
 
-May mga magsasabi, 'Ako ay sa Panginoon.' At mayroon ding magsasabi, 'Akoʼy lahi ni Jacob.' Mayroon ding mga maglalagay ng tatak sa kanilang kamay ng pangalan ng Panginoon, at ituturing ang sarili na kabilang sa mga mamamayan ng Israel. ## Walang Kabuluhan ang mga Dios-diosan 
+May mga magsasabi, 'Ako ay sa Panginoon.' At mayroon ding magsasabi, 'Akoʼy lahi ni Jacob.' Mayroon ding mga maglalagay ng tatak sa kanilang kamay ng pangalan ng Panginoon, at ituturing ang sarili na kabilang sa mga mamamayan ng Israel.
+
+## Walang Kabuluhan ang mga Dios-diosan 
 
 
 

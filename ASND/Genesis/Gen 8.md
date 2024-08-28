@@ -634,7 +634,9 @@ Kaya lumabas si Noe kasama ang kanyang asawa, mga anak na lalaki at mga manugang
 
 
 
-Lumabas din ang lahat ng hayop: mga lumalakad, lumilipad at gumagapang. Magkakasama sila ayon sa kani-kanilang uri. ## Naghandog si Noe 
+Lumabas din ang lahat ng hayop: mga lumalakad, lumilipad at gumagapang. Magkakasama sila ayon sa kani-kanilang uri.
+
+## Naghandog si Noe 
 
 
 

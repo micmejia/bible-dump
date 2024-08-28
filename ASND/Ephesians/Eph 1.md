@@ -72,7 +72,9 @@ next: ['Eph 2']
 
 
 
-Sumainyo nawa ang biyaya at kapayapaang galing sa Dios na ating Ama at sa Panginoong Jesu-Cristo. ###### 3-4 Purihin natin ang Dios at Ama ng ating Panginoong Jesu-Cristo! Dahil sa pakikipag-isa natin kay Cristo, ibinigay niya sa atin ang lahat ng pagpapalang espiritwal mula sa langit. Bago pa man niya likhain ang mundo, pinili na niya tayo para maging banal at walang kapintasan sa paningin niya. Dahil sa pag-ibig niya, 
+Sumainyo nawa ang biyaya at kapayapaang galing sa Dios na ating Ama at sa Panginoong Jesu-Cristo.
+
+###### 3-4 Purihin natin ang Dios at Ama ng ating Panginoong Jesu-Cristo! Dahil sa pakikipag-isa natin kay Cristo, ibinigay niya sa atin ang lahat ng pagpapalang espiritwal mula sa langit. Bago pa man niya likhain ang mundo, pinili na niya tayo para maging banal at walang kapintasan sa paningin niya. Dahil sa pag-ibig niya, 
 
 
 
@@ -138,7 +140,9 @@ noong una paʼy itinalaga na niya tayo para maging mga anak niya sa pamamagitan 
 
 
 
-Purihin natin ang Dios dahil sa kamangha-mangha niyang biyaya na ibinigay sa atin sa pamamagitan ng kanyang minamahal <i class="trans-change">na Anak_. ###### 7-8 Sa pamamagitan ng dugo ni Cristo, tinubos tayo, na ang ibig sabihin ay pinatawad ang mga kasalanan natin. Napakalaki ng biyayang ipinagkaloob sa atin ng Dios. Binigyan niya tayo ng karunungan at pang-unawa 
+Purihin natin ang Dios dahil sa kamangha-mangha niyang biyaya na ibinigay sa atin sa pamamagitan ng kanyang minamahal <i class="trans-change">na Anak_.
+
+###### 7-8 Sa pamamagitan ng dugo ni Cristo, tinubos tayo, na ang ibig sabihin ay pinatawad ang mga kasalanan natin. Napakalaki ng biyayang ipinagkaloob sa atin ng Dios. Binigyan niya tayo ng karunungan at pang-unawa 
 
 
 

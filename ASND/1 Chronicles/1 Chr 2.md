@@ -73,7 +73,9 @@ Ito ang mga anak na lalaki ni Israel: Reuben, Simeon, Levi, Juda, Isacar, Zebulu
 
 
 
-Dan, Jose, Benjamin, Naftali, Gad at Asher. ## Ang Lahi ni Juda 
+Dan, Jose, Benjamin, Naftali, Gad at Asher.
+
+## Ang Lahi ni Juda 
 
 
 
@@ -271,7 +273,9 @@ Ang anak na lalaki ni Carmi ay si Acar. Si Acar ang nagdala ng kasamaan sa Israe
 
 
 
-Ang anak na lalaki ni Etan ay si Azaria. ## Ang Lahi na Pinagmulan ni David 
+Ang anak na lalaki ni Etan ay si Azaria.
+
+## Ang Lahi na Pinagmulan ni David 
 
 
 
@@ -568,7 +572,9 @@ Ang mga kapatid nilang babae ay sina Zeruya at Abigail. Si Zeruya ay may tatlong
 
 
 
-Ang asawa ni Abigail ay si Jeter na Ishmaelita at may anak silang lalaki na si Amasa. ## Ang Angkan ni Hezron 
+Ang asawa ni Abigail ay si Jeter na Ishmaelita at may anak silang lalaki na si Amasa.
+
+## Ang Angkan ni Hezron 
 
 
 
@@ -799,7 +805,9 @@ Si Segub ang ama ni Jair, na namahala ng 23 bayan sa Gilead.
 
 
 
-Kamamatay lang ni Hezron sa Caleb Efrata nang manganak ang asawa niyang si Abijah. Ang anak niya ay si Ashur na ama ni Tekoa. ## Ang Angkan ni Jerameel na Anak ni Hezron 
+Kamamatay lang ni Hezron sa Caleb Efrata nang manganak ang asawa niyang si Abijah. Ang anak niya ay si Ashur na ama ni Tekoa.
+
+## Ang Angkan ni Jerameel na Anak ni Hezron 
 
 
 
@@ -1360,7 +1368,9 @@ at si Eleasa ang ama ni Sismai. Si Sismai ang ama ni Shalum,
 
 
 
-si Shalum ang ama ni Jekamia, at si Jekamia ang ama ni Elishama. ## Ang Iba pang Angkan ni Caleb 
+si Shalum ang ama ni Jekamia, at si Jekamia ang ama ni Elishama.
+
+## Ang Iba pang Angkan ni Caleb 
 
 
 
@@ -1657,7 +1667,9 @@ Shaaf na ama ni Madmana at Sheva na ama naman nina Macbena at Gibea. Ang anak na
 
 
 
-Sila ang angkan ni Caleb. ## Ang Angkan ng Anak ni Caleb na si Hur. Si Hur ang panganay na anak <i class="trans-change">ni Caleb at_ ni Efrata. Ang mga anak na lalaki ni Hur ay sina Shobal na ama ni Kiriat Jearim, 
+Sila ang angkan ni Caleb.
+
+## Ang Angkan ng Anak ni Caleb na si Hur. Si Hur ang panganay na anak <i class="trans-change">ni Caleb at_ ni Efrata. Ang mga anak na lalaki ni Hur ay sina Shobal na ama ni Kiriat Jearim, 
 
 
 

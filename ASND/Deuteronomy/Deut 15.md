@@ -370,7 +370,9 @@ Magbigay kayo sa kanila nang bukal sa loob. Kung gagawin ninyo ito, pagpapalain 
 
 
 
-Hindi maiiwasan na may mahihirap sa inyong bayan, kaya inuutusan ko kayong maging lubos na mapagbigay sa kanila. ## Ang Pagpapalaya sa mga Alipin 
+Hindi maiiwasan na may mahihirap sa inyong bayan, kaya inuutusan ko kayong maging lubos na mapagbigay sa kanila.
+
+## Ang Pagpapalaya sa mga Alipin 
 
 
 

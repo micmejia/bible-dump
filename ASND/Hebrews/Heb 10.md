@@ -601,7 +601,9 @@ Dagdag pa niya, "Tuluyan ko nang lilimutin ang mga kasalanan at kasamaan nila."
 
 
 
-At dahil napatawad na ang mga kasalanan natin, hindi na <i class="trans-change">natin_ kailangan pang maghandog para sa <i class="trans-change">ating_ mga kasalanan. ## Lumapit Tayo sa Dios 
+At dahil napatawad na ang mga kasalanan natin, hindi na <i class="trans-change">natin_ kailangan pang maghandog para sa <i class="trans-change">ating_ mga kasalanan.
+
+## Lumapit Tayo sa Dios 
 
 
 

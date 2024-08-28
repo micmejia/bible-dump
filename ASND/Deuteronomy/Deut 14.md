@@ -73,7 +73,9 @@ next: ['Deut 15']
 
 
 
-Sapagkat mga mamamayan nga kayo ng Panginoon na inyong Dios. Sa lahat ng tao sa mundo, kayo ang kanyang pinili na maging espesyal niyang mga mamamayan. ## Ang mga Hayop na Itinuturing na Malinis at Marumi 
+Sapagkat mga mamamayan nga kayo ng Panginoon na inyong Dios. Sa lahat ng tao sa mundo, kayo ang kanyang pinili na maging espesyal niyang mga mamamayan.
+
+## Ang mga Hayop na Itinuturing na Malinis at Marumi 
 
 
 
@@ -469,7 +471,9 @@ Pero pwede ninyong kainin ang mga insektong itinuturing na malinis.
 
 
 
-"Huwag ninyong kakainin ang anumang hayop na patay na. Maaari ninyo itong ipagbili sa mga dayuhan o ibigay sa mga dayuhang naninirahang sa bayan nʼyo, at kakainin nila ito. <i class="trans-change">Pero huwag kayong kakain nito,_ dahil ibinukod kayo bilang mamamayan ng Panginoon na inyong Dios. "Huwag ninyong lulutuin ang batang kambing sa gatas ng kanyang ina. ## Ang Ikapu 
+"Huwag ninyong kakainin ang anumang hayop na patay na. Maaari ninyo itong ipagbili sa mga dayuhan o ibigay sa mga dayuhang naninirahang sa bayan nʼyo, at kakainin nila ito. <i class="trans-change">Pero huwag kayong kakain nito,_ dahil ibinukod kayo bilang mamamayan ng Panginoon na inyong Dios. "Huwag ninyong lulutuin ang batang kambing sa gatas ng kanyang ina.
+
+## Ang Ikapu 
 
 
 

@@ -172,7 +172,9 @@ Kaya pinahina ang loob at tinakot ng mga taong dati nang nakatira sa lupaing iyo
 
 
 
-Sinuhulan nila ang mga opisyal ng gobyerno ng Persia para salungatin ang mga plano <i class="trans-change">ng mga tao sa Juda_. Patuloy nila itong ginagawa mula nang panahon na si Cyrus ang hari ng Persia hanggang sa panahong si Darius na ang hari ng Persia. ## Ang Pagsalungat sa Pagpapatayo ng Templo nang Panahon ni Haring Artaserses 
+Sinuhulan nila ang mga opisyal ng gobyerno ng Persia para salungatin ang mga plano <i class="trans-change">ng mga tao sa Juda_. Patuloy nila itong ginagawa mula nang panahon na si Cyrus ang hari ng Persia hanggang sa panahong si Darius na ang hari ng Persia.
+
+## Ang Pagsalungat sa Pagpapatayo ng Templo nang Panahon ni Haring Artaserses 
 
 
 

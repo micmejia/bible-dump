@@ -40,7 +40,9 @@ So I became great and excelled more than all who were before me in Jerusalem. Al
 Whatever my eyes desired I did not keep from them. I did not withhold my heart from any pleasure, For my heart rejoiced in all my labor; And this was my reward from all my labor. 
 
 ###### 11 
-Then I looked on all the works that my hands had done And on the labor in which I had toiled; And indeed all _was_ vanity and grasping for the wind. _There was_ no profit under the sun. ## The End of the Wise and the Fool 
+Then I looked on all the works that my hands had done And on the labor in which I had toiled; And indeed all _was_ vanity and grasping for the wind. _There was_ no profit under the sun.
+
+## The End of the Wise and the Fool 
 
 ###### 12 
 Then I turned myself to consider wisdom and madness and folly; For what _can_ the man _do_ who succeeds the king?-- _Only_ what he has already done. 

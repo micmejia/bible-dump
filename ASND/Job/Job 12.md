@@ -205,7 +205,9 @@ Ang mga taong naghihirap na <i class="trans-change">gaya ko na_ tila mabubuwal a
 
 
 
-Pero ang mga tulisan at ang mga taong ginagalit ang Dios ay namumuhay ng payapa gayong ang dinidios nilaʼy ang sarili nilang kakayahan. ###### 7-8 "Matututo ka sa ibaʼt ibang hayop – ang lumalakad, lumilipad, gumagapang, at ang lumalangoy. 
+Pero ang mga tulisan at ang mga taong ginagalit ang Dios ay namumuhay ng payapa gayong ang dinidios nilaʼy ang sarili nilang kakayahan.
+
+###### 7-8 "Matututo ka sa ibaʼt ibang hayop – ang lumalakad, lumilipad, gumagapang, at ang lumalangoy. 
 
 
 

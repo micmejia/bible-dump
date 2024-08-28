@@ -14,7 +14,9 @@ The Elder, To the elect lady and her children, whom I love in truth, and not onl
 because of the truth which abides in us and will be with us forever: 
 
 ###### 3 
-Grace, mercy, _and_ peace will be with you from God the Father and from the Lord Jesus Christ, the Son of the Father, in truth and love. ## Walk in Christ's Commandments 
+Grace, mercy, _and_ peace will be with you from God the Father and from the Lord Jesus Christ, the Son of the Father, in truth and love.
+
+## Walk in Christ's Commandments 
 
 ###### 4 
 I rejoiced greatly that I have found _some_ of your children walking in truth, as we received commandment from the Father. 
@@ -23,7 +25,9 @@ I rejoiced greatly that I have found _some_ of your children walking in truth, a
 And now I plead with you, lady, not as though I wrote a new commandment to you, but that which we have had from the beginning: that we love one another. 
 
 ###### 6 
-This is love, that we walk according to His commandments. This is the commandment, that as you have heard from the beginning, you should walk in it. ## Beware of Antichrist Deceivers 
+This is love, that we walk according to His commandments. This is the commandment, that as you have heard from the beginning, you should walk in it.
+
+## Beware of Antichrist Deceivers 
 
 ###### 7 
 For many deceivers have gone out into the world who do not confess Jesus Christ _as_ coming in the flesh. This is a deceiver and an antichrist. 
@@ -38,7 +42,9 @@ Whoever transgresses and does not abide in the doctrine of Christ does not have 
 If anyone comes to you and does not bring this doctrine, do not receive him into your house nor greet him; 
 
 ###### 11 
-for he who greets him shares in his evil deeds. ## John's Farewell Greeting 
+for he who greets him shares in his evil deeds.
+
+## John's Farewell Greeting 
 
 ###### 12 
 Having many things to write to you, I did not wish _to do so_ with paper and ink; but I hope to come to you and speak face to face, that our joy may be full. 

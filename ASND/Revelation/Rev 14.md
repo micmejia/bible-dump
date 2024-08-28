@@ -172,7 +172,9 @@ Sila ang mga lalaking hindi sumiping sa babae at hindi nag-asawa. Sumunod sila s
 
 
 
-Hindi sila nagsinungaling kailanman at wala silang anumang kapintasan. ## Ang Tatlong Anghel 
+Hindi sila nagsinungaling kailanman at wala silang anumang kapintasan.
+
+## Ang Tatlong Anghel 
 
 
 

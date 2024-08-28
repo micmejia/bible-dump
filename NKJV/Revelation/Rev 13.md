@@ -37,7 +37,9 @@ All who dwell on the earth will worship him, whose names have not been written i
 If anyone has an ear, let him hear. 
 
 ###### 10 
-He who leads into captivity shall go into captivity; he who kills with the sword must be killed with the sword. Here is the patience and the faith of the saints. ## The Beast from the Earth 
+He who leads into captivity shall go into captivity; he who kills with the sword must be killed with the sword. Here is the patience and the faith of the saints.
+
+## The Beast from the Earth 
 
 ###### 11 
 Then I saw another beast coming up out of the earth, and he had two horns like a lamb and spoke like a dragon. 

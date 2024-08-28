@@ -25,7 +25,9 @@ Why do you boast in the valleys, Your flowing valley, O backsliding daughter? Wh
 Behold, I will bring fear upon you," Says the Lord God of hosts, "From all those who are around you; You shall be driven out, everyone headlong, And no one will gather those who wander off. 
 
 ###### 6 
-But afterward I will bring back The captives of the people of Ammon," says the Lord. ## Judgment on Edom 
+But afterward I will bring back The captives of the people of Ammon," says the Lord.
+
+## Judgment on Edom 
 
 ###### 7 
 Against Edom. Thus says the Lord of hosts: "_Is_ wisdom no more in Teman? Has counsel perished from the prudent? Has their wisdom vanished? 
@@ -73,7 +75,9 @@ Therefore hear the counsel of the Lord that He has taken against Edom, And His p
 The earth shakes at the noise of their fall; At the cry its noise is heard at the Red Sea. 
 
 ###### 22 
-Behold, He shall come up and fly like the eagle, And spread His wings over Bozrah; The heart of the mighty men of Edom in that day shall be Like the heart of a woman in birth pangs. ## Judgment on Damascus 
+Behold, He shall come up and fly like the eagle, And spread His wings over Bozrah; The heart of the mighty men of Edom in that day shall be Like the heart of a woman in birth pangs.
+
+## Judgment on Damascus 
 
 ###### 23 
 Against Damascus. "Hamath and Arpad are shamed, For they have heard bad news. They are fainthearted; _There is_ trouble on the sea; It cannot be quiet. 

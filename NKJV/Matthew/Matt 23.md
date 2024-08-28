@@ -115,7 +115,9 @@ Therefore, indeed, I send you prophets, wise men, and scribes: _some_ of them yo
 that on you may come all the righteous blood shed on the earth, from the blood of righteous Abel to the blood of Zechariah, son of Berechiah, whom you murdered between the temple and the altar. 
 
 ###### 36 
-Assuredly, I say to you, all these things will come upon this generation. ## Jesus Laments over Jerusalem 
+Assuredly, I say to you, all these things will come upon this generation.
+
+## Jesus Laments over Jerusalem 
 
 ###### 37 
 "O Jerusalem, Jerusalem, the one who kills the prophets and stones those who are sent to her! How often I wanted to gather your children together, as a hen gathers her chicks under _her_ wings, but you were not willing! 

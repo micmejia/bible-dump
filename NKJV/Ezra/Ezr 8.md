@@ -49,7 +49,9 @@ of the sons of Azgad, Johanan the son of Hakkatan, and with him one hundred and 
 of the last sons of Adonikam, whose names _are_ these--Eliphelet, Jeiel, and Shemaiah--and with them sixty males; 
 
 ###### 14 
-also of the sons of Bigvai, Uthai and Zabbud, and with them seventy males. ## Servants for the Temple 
+also of the sons of Bigvai, Uthai and Zabbud, and with them seventy males.
+
+## Servants for the Temple 
 
 ###### 15 
 Now I gathered them by the river that flows to Ahava, and we camped there three days. And I looked among the people and the priests, and found none of the sons of Levi there. 
@@ -67,7 +69,9 @@ Then, by the good hand of our God upon us, they brought us a man of understandin
 and Hashabiah, and with him Jeshaiah of the sons of Merari, his brothers and their sons, twenty men; 
 
 ###### 20 
-also of the Nethinim, whom David and the leaders had appointed for the service of the Levites, two hundred and twenty Nethinim. All of them were designated by name. ## Fasting and Prayer for Protection 
+also of the Nethinim, whom David and the leaders had appointed for the service of the Levites, two hundred and twenty Nethinim. All of them were designated by name.
+
+## Fasting and Prayer for Protection 
 
 ###### 21 
 Then I proclaimed a fast there at the river of Ahava, that we might humble ourselves before our God, to seek from Him the right way for us and our little ones and all our possessions. 
@@ -76,7 +80,9 @@ Then I proclaimed a fast there at the river of Ahava, that we might humble ourse
 For I was ashamed to request of the king an escort of soldiers and horsemen to help us against the enemy on the road, because we had spoken to the king, saying, "The hand of our God _is_ upon all those for good who seek Him, but His power and His wrath _are_ against all those who forsake Him." 
 
 ###### 23 
-So we fasted and entreated our God for this, and He answered our prayer. ## Gifts for the Temple 
+So we fasted and entreated our God for this, and He answered our prayer.
+
+## Gifts for the Temple 
 
 ###### 24 
 And I separated twelve of the leaders of the priests--Sherebiah, Hashabiah, and ten of their brethren with them-- 
@@ -97,7 +103,9 @@ And I said to them, "You _are_ holy to the Lord; the articles _are_ holy also; a
 Watch and keep _them_ until you weigh _them_ before the leaders of the priests and the Levites and heads of the fathers' _houses_ of Israel in Jerusalem, _in_ the chambers of the house of the Lord." 
 
 ###### 30 
-So the priests and the Levites received the silver and the gold and the articles by weight, to bring _them_ to Jerusalem to the house of our God. ## The Return to Jerusalem 
+So the priests and the Levites received the silver and the gold and the articles by weight, to bring _them_ to Jerusalem to the house of our God.
+
+## The Return to Jerusalem 
 
 ###### 31 
 Then we departed from the river of Ahava on the twelfth _day_ of the first month, to go to Jerusalem. And the hand of our God was upon us, and He delivered us from the hand of the enemy and from ambush along the road. 

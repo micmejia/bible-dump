@@ -568,7 +568,9 @@ Ang <i class="trans-change">Banal na_ Espiritu at ang ating espiritu ay parehong
 
 
 
-At bilang mga anak, mga tagapagmana tayo ng Dios at kasama ni Cristo na magmamana <i class="trans-change">ng mga pagpapalang inilaan niya_. Sapagkat kung magtitiis tayo kagaya ni Cristo noon, darating ang araw na pararangalan din tayong kasama niya. ## Ang Napakagandang Kalagayan sa Hinaharap 
+At bilang mga anak, mga tagapagmana tayo ng Dios at kasama ni Cristo na magmamana <i class="trans-change">ng mga pagpapalang inilaan niya_. Sapagkat kung magtitiis tayo kagaya ni Cristo noon, darating ang araw na pararangalan din tayong kasama niya.
+
+## Ang Napakagandang Kalagayan sa Hinaharap 
 
 
 
@@ -997,7 +999,9 @@ Sapagkat alam na ng Dios noon pa man kung sinu-sino ang kanyang magiging mga ana
 
 
 
-Kaya nga, ang mga taong pinili ng Dios noong una pa ay tinawag niya <i class="trans-change">para maging kanyang mga anak_, at ang mga tinawag niya ay itinuring niyang matuwid, at ang itinuring niyang matuwid ay binigyan niya ng karangalan. ## Ang Pag-ibig ng Dios 
+Kaya nga, ang mga taong pinili ng Dios noong una pa ay tinawag niya <i class="trans-change">para maging kanyang mga anak_, at ang mga tinawag niya ay itinuring niyang matuwid, at ang itinuring niyang matuwid ay binigyan niya ng karangalan.
+
+## Ang Pag-ibig ng Dios 
 
 
 

@@ -40,7 +40,9 @@ Do not lie to one another, since you have put off the old man with his deeds,
 and have put on the new _man_ who is renewed in knowledge according to the image of Him who created him, 
 
 ###### 11 
-where there is neither Greek nor Jew, circumcised nor uncircumcised, barbarian, Scythian, slave _nor_ free, but Christ _is_ all and in all. ## Character of the New Man 
+where there is neither Greek nor Jew, circumcised nor uncircumcised, barbarian, Scythian, slave _nor_ free, but Christ _is_ all and in all.
+
+## Character of the New Man 
 
 ###### 12 
 Therefore, as _the_ elect of God, holy and beloved, put on tender mercies, kindness, humility, meekness, longsuffering; 
@@ -58,7 +60,9 @@ And let the peace of God rule in your hearts, to which also you were called in o
 Let the word of Christ dwell in you richly in all wisdom, teaching and admonishing one another in psalms and hymns and spiritual songs, singing with grace in your hearts to the Lord. 
 
 ###### 17 
-And whatever you do in word or deed, _do_ all in the name of the Lord Jesus, giving thanks to God the Father through Him. ## The Christian Home 
+And whatever you do in word or deed, _do_ all in the name of the Lord Jesus, giving thanks to God the Father through Him.
+
+## The Christian Home 
 
 ###### 18 
 Wives, submit to your own husbands, as is fitting in the Lord. 

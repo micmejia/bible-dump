@@ -337,7 +337,9 @@ Pagpasok nila sa bahay, nakita nila ang sanggol at ang ina nitong si Maria. Lumu
 
 
 
-Nang pauwi na sila, binalaan sila <i class="trans-change">ng Dios_ sa pamamagitan ng isang panaginip na huwag nang bumalik kay Herodes. Kaya nag-iba na sila ng daan pauwi. ## Ang Pagtakas Patungo sa Egipto 
+Nang pauwi na sila, binalaan sila <i class="trans-change">ng Dios_ sa pamamagitan ng isang panaginip na huwag nang bumalik kay Herodes. Kaya nag-iba na sila ng daan pauwi.
+
+## Ang Pagtakas Patungo sa Egipto 
 
 
 

@@ -37,7 +37,9 @@ Then he cried, "A lion, my Lord! I stand continually on the watchtower in the da
 And look, here comes a chariot of men _with_ a pair of horsemen!" Then he answered and said, "Babylon is fallen, is fallen! And all the carved images of her gods He has broken to the ground." 
 
 ###### 10 
-Oh, my threshing and the grain of my floor! That which I have heard from the Lord of hosts, The God of Israel, I have declared to you. ## Proclamation Against Edom 
+Oh, my threshing and the grain of my floor! That which I have heard from the Lord of hosts, The God of Israel, I have declared to you.
+
+## Proclamation Against Edom 
 
 ###### 11 
 The burden against Dumah. He calls to me out of Seir, "Watchman, what of the night? Watchman, what of the night?" 

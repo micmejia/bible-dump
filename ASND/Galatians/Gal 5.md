@@ -502,7 +502,9 @@ Sapagkat ang buod ng buong Kautusan ay nasa isang utos: "Mahalin mo ang iyong ka
 
 
 
-Ngunit kung patuloy kayong mag-aaway-away na parang mga hayop, baka tuluyan na ninyong masira ang buhay ng isaʼt isa. ## Ang Pamumuhay sa Banal na Espiritu 
+Ngunit kung patuloy kayong mag-aaway-away na parang mga hayop, baka tuluyan na ninyong masira ang buhay ng isaʼt isa.
+
+## Ang Pamumuhay sa Banal na Espiritu 
 
 
 

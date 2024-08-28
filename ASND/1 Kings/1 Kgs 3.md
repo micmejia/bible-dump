@@ -502,7 +502,9 @@ At kung susunod ka sa aking mga pamamaraan at tutupad sa aking mga tuntunin at m
 
 
 
-Nagising si Solomon, at naunawaan niya na nakipag-usap ang Panginoon sa kanya sa pamamagitan ng panaginip. Pagbalik ni Solomon sa Jerusalem, tumayo siya sa harap ng Kahon ng Kasunduan ng Panginoon at nag-alay ng mga handog na sinusunog at mga handog para sa mabuting relasyon. Nagpahanda agad siya <i class="trans-change">ng mga pagkain_ para sa lahat ng pinuno niya. ## Ang Mahusay na Paghatol ni Solomon 
+Nagising si Solomon, at naunawaan niya na nakipag-usap ang Panginoon sa kanya sa pamamagitan ng panaginip. Pagbalik ni Solomon sa Jerusalem, tumayo siya sa harap ng Kahon ng Kasunduan ng Panginoon at nag-alay ng mga handog na sinusunog at mga handog para sa mabuting relasyon. Nagpahanda agad siya <i class="trans-change">ng mga pagkain_ para sa lahat ng pinuno niya.
+
+## Ang Mahusay na Paghatol ni Solomon 
 
 
 

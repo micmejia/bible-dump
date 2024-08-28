@@ -40,7 +40,9 @@ next: ['Judg 18']
 
 
 
-May isang tao na nakatira sa kabundukan ng Efraim na ang pangalan ay Micas. ###### 2-3 <i class="trans-change">Isang araw,_ sinabi ni Micas sa kanyang ina, "Narinig ko pong isinumpa nʼyo ang kumuha ng inyong 1,100 pirasong pilak. Narito ang pilak, ako po ang kumuha." Pagkatanggap nito ng kanyang ina, sinabi nito, "Anak, pagpalain ka sana ng Panginoon. Ihahandog ko itong pilak sa Panginoon para hindi dumating sa iyo ang sumpa. Gagamitin ko ito na pangtapal sa kahoy na imahen na ipapagawa ko. Ihahandog ko nga ito sa Panginoon para maligtas ka sa sumpa." 
+May isang tao na nakatira sa kabundukan ng Efraim na ang pangalan ay Micas.
+
+###### 2-3 <i class="trans-change">Isang araw,_ sinabi ni Micas sa kanyang ina, "Narinig ko pong isinumpa nʼyo ang kumuha ng inyong 1,100 pirasong pilak. Narito ang pilak, ako po ang kumuha." Pagkatanggap nito ng kanyang ina, sinabi nito, "Anak, pagpalain ka sana ng Panginoon. Ihahandog ko itong pilak sa Panginoon para hindi dumating sa iyo ang sumpa. Gagamitin ko ito na pangtapal sa kahoy na imahen na ipapagawa ko. Ihahandog ko nga ito sa Panginoon para maligtas ka sa sumpa." 
 
 
 

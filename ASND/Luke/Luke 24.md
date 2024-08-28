@@ -402,7 +402,9 @@ pero hindi naniwala ang mga apostol dahil akala nila ay gawa-gawa lang iyon ng m
 
 
 
-Ganoon pa man, tumakbo si Pedro at pumunta sa libingan. Pagdating niya roon, sumilip siya sa loob pero wala siyang nakita kundi ang <i class="trans-change">telang_ linen na ipinambalot sa bangkay. Kaya umuwi siyang nagtataka sa pangyayari. ## Ang Nangyari sa Daan na Patungong Emaus 
+Ganoon pa man, tumakbo si Pedro at pumunta sa libingan. Pagdating niya roon, sumilip siya sa loob pero wala siyang nakita kundi ang <i class="trans-change">telang_ linen na ipinambalot sa bangkay. Kaya umuwi siyang nagtataka sa pangyayari.
+
+## Ang Nangyari sa Daan na Patungong Emaus 
 
 
 
@@ -1095,7 +1097,9 @@ Pinag-uusapan nilang, "Muli ngang nabuhay ang Panginoon! Nagpakita siya kay Pedr
 
 
 
-Ikinuwento naman ng dalawang galing Emaus ang nangyari sa kanila sa daan, at kung paano nila nakilala si Jesus nang paghahati-hatiin niya ang tinapay. ## Nagpakita si Jesus sa mga Tagasunod Niya 
+Ikinuwento naman ng dalawang galing Emaus ang nangyari sa kanila sa daan, at kung paano nila nakilala si Jesus nang paghahati-hatiin niya ang tinapay.
+
+## Nagpakita si Jesus sa mga Tagasunod Niya 
 
 
 

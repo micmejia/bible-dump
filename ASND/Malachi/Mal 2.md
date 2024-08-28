@@ -469,7 +469,9 @@ Hindi baʼt pinag-isa kayo ng Dios sa katawan at sa espiritu para maging kanya? 
 
 
 
-Sapagkat sinabi ng Panginoon, ang Dios ng Israel, "Ayaw kong maghiwalay ang mag-asawa. Kung hiwalayan ng lalaki ang kanyang asawa, itoʼy pagmamalupit sa asawang babae." Kaya siguraduhin ninyong hindi kayo magtataksil sa inyong asawa. ## Ang Araw ng Paghatol ng Panginoon 
+Sapagkat sinabi ng Panginoon, ang Dios ng Israel, "Ayaw kong maghiwalay ang mag-asawa. Kung hiwalayan ng lalaki ang kanyang asawa, itoʼy pagmamalupit sa asawang babae." Kaya siguraduhin ninyong hindi kayo magtataksil sa inyong asawa.
+
+## Ang Araw ng Paghatol ng Panginoon 
 
 
 

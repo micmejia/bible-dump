@@ -22,7 +22,9 @@ and behind the second veil, the part of the tabernacle which is called the Holie
 which had the golden censer and the ark of the covenant overlaid on all sides with gold, in which _were_ the golden pot that had the manna, Aaron's rod that budded, and the tablets of the covenant; 
 
 ###### 5 
-and above it were the cherubim of glory overshadowing the mercy seat. Of these things we cannot now speak in detail. ## Limitations of the Earthly Service 
+and above it were the cherubim of glory overshadowing the mercy seat. Of these things we cannot now speak in detail.
+
+## Limitations of the Earthly Service 
 
 ###### 6 
 Now when these things had been thus prepared, the priests always went into the first part of the tabernacle, performing the services. 
@@ -37,7 +39,9 @@ the Holy Spirit indicating this, that the way into the Holiest of All was not ye
 It _was_ symbolic for the present time in which both gifts and sacrifices are offered which cannot make him who performed the service perfect in regard to the conscience-- 
 
 ###### 10 
-_concerned_ only with foods and drinks, various washings, and fleshly ordinances imposed until the time of reformation. ## The Heavenly Sanctuary 
+_concerned_ only with foods and drinks, various washings, and fleshly ordinances imposed until the time of reformation.
+
+## The Heavenly Sanctuary 
 
 ###### 11 
 But Christ came _as_ High Priest of the good things to come, with the greater and more perfect tabernacle not made with hands, that is, not of this creation. 
@@ -52,7 +56,9 @@ For if the blood of bulls and goats and the ashes of a heifer, sprinkling the un
 how much more shall the blood of Christ, who through the eternal Spirit offered Himself without spot to God, cleanse your conscience from dead works to serve the living God? 
 
 ###### 15 
-And for this reason He is the Mediator of the new covenant, by means of death, for the redemption of the transgressions under the first covenant, that those who are called may receive the promise of the eternal inheritance. ## The Mediator's Death Necessary 
+And for this reason He is the Mediator of the new covenant, by means of death, for the redemption of the transgressions under the first covenant, that those who are called may receive the promise of the eternal inheritance.
+
+## The Mediator's Death Necessary 
 
 ###### 16 
 For where there _is_ a testament, there must also of necessity be the death of the testator. 
@@ -73,7 +79,9 @@ saying, "This _is_ the blood of the covenant which God has commanded you."
 Then likewise he sprinkled with blood both the tabernacle and all the vessels of the ministry. 
 
 ###### 22 
-And according to the law almost all things are purified with blood, and without shedding of blood there is no remission. ## Greatness of Christ's Sacrifice 
+And according to the law almost all things are purified with blood, and without shedding of blood there is no remission.
+
+## Greatness of Christ's Sacrifice 
 
 ###### 23 
 Therefore _it was_ necessary that the copies of the things in the heavens should be purified with these, but the heavenly things themselves with better sacrifices than these. 

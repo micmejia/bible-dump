@@ -238,7 +238,9 @@ Pababayaan ko na lang ito at hindi na aasikasuhin. Hindi ko na rin ito puputulan
 
 
 
-Ang ubasan ng Panginoong Makapangyarihan na kanyang inalagaan at magbibigay sana sa kanya ng kaligayahan ay ang Israel at Juda. Umasa siyang paiiralin nila ang katarungan, pero pumatay sila. Umasa siyang paiiralin nila ang katuwiran pero pang-aapi ang ginawa nila. ## Ang Kasamaang Ginawa ng mga Tao 
+Ang ubasan ng Panginoong Makapangyarihan na kanyang inalagaan at magbibigay sana sa kanya ng kaligayahan ay ang Israel at Juda. Umasa siyang paiiralin nila ang katarungan, pero pumatay sila. Umasa siyang paiiralin nila ang katuwiran pero pang-aapi ang ginawa nila.
+
+## Ang Kasamaang Ginawa ng mga Tao 
 
 
 

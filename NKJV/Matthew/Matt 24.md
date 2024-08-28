@@ -49,7 +49,9 @@ And because lawlessness will abound, the love of many will grow cold.
 But he who endures to the end shall be saved. 
 
 ###### 14 
-And this gospel of the kingdom will be preached in all the world as a witness to all the nations, and then the end will come. ## The Great Tribulation 
+And this gospel of the kingdom will be preached in all the world as a witness to all the nations, and then the end will come.
+
+## The Great Tribulation 
 
 ###### 15 
 "Therefore when you see the 'abomination of desolation,' spoken of by Daniel the prophet, standing in the holy place" (whoever reads, let him understand), 
@@ -91,7 +93,9 @@ See, I have told you beforehand.
 For as the lightning comes from the east and flashes to the west, so also will the coming of the Son of Man be. 
 
 ###### 28 
-For wherever the carcass is, there the eagles will be gathered together. ## The Coming of the Son of Man 
+For wherever the carcass is, there the eagles will be gathered together.
+
+## The Coming of the Son of Man 
 
 ###### 29 
 "Immediately after the tribulation of those days the sun will be darkened, and the moon will not give its light; the stars will fall from heaven, and the powers of the heavens will be shaken. 
@@ -100,7 +104,9 @@ For wherever the carcass is, there the eagles will be gathered together. ## The 
 Then the sign of the Son of Man will appear in heaven, and then all the tribes of the earth will mourn, and they will see the Son of Man coming on the clouds of heaven with power and great glory. 
 
 ###### 31 
-And He will send His angels with a great sound of a trumpet, and they will gather together His elect from the four winds, from one end of heaven to the other. ## The Parable of the Fig Tree 
+And He will send His angels with a great sound of a trumpet, and they will gather together His elect from the four winds, from one end of heaven to the other.
+
+## The Parable of the Fig Tree 
 
 ###### 32 
 "Now learn this parable from the fig tree: When its branch has already become tender and puts forth leaves, you know that summer _is_ near. 
@@ -112,7 +118,9 @@ So you also, when you see all these things, know that it is near--at the doors!
 Assuredly, I say to you, this generation will by no means pass away till all these things take place. 
 
 ###### 35 
-Heaven and earth will pass away, but My words will by no means pass away. ## No One Knows the Day or Hour 
+Heaven and earth will pass away, but My words will by no means pass away.
+
+## No One Knows the Day or Hour 
 
 ###### 36 
 "But of that day and hour no one knows, not even the angels of heaven, but My Father only. 
@@ -139,7 +147,9 @@ Watch therefore, for you do not know what hour your Lord is coming.
 But know this, that if the master of the house had known what hour the thief would come, he would have watched and not allowed his house to be broken into. 
 
 ###### 44 
-Therefore you also be ready, for the Son of Man is coming at an hour you do not expect. ## The Faithful Servant and the Evil Servant 
+Therefore you also be ready, for the Son of Man is coming at an hour you do not expect.
+
+## The Faithful Servant and the Evil Servant 
 
 ###### 45 
 "Who then is a faithful and wise servant, whom his master made ruler over his household, to give them food in due season? 

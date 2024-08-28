@@ -238,7 +238,9 @@ Ang mga tukod ay gawa sa kahoy ng akasya at binalutan ng tanso.
 
 
 
-Isinuksok nila ang mga tukod sa argolya sa bawat gilid ng altar para mabuhat ito. Tabla ang ginawa nilang altar at bakante ang loob. ## Ang Paggawa ng Plangganang Hugasan 
+Isinuksok nila ang mga tukod sa argolya sa bawat gilid ng altar para mabuhat ito. Tabla ang ginawa nilang altar at bakante ang loob.
+
+## Ang Paggawa ng Plangganang Hugasan 
 
 
 
@@ -271,7 +273,9 @@ Isinuksok nila ang mga tukod sa argolya sa bawat gilid ng altar para mabuhat ito
 
 
 
-Pagkatapos, gumawa sila ng tansong planggana. Ang patungan nito ay tanso rin. Ang mga tansong ginamit dito ay galing sa <i class="trans-change">tanso na_ salamin ng mga babaeng naglilingkod sa pintuan ng Toldang Tipanan. ## Ang Paggawa sa Bakuran ng Toldang Tipanan 
+Pagkatapos, gumawa sila ng tansong planggana. Ang patungan nito ay tanso rin. Ang mga tansong ginamit dito ay galing sa <i class="trans-change">tanso na_ salamin ng mga babaeng naglilingkod sa pintuan ng Toldang Tipanan.
+
+## Ang Paggawa sa Bakuran ng Toldang Tipanan 
 
 
 
@@ -667,7 +671,9 @@ Ang kurtinang itoʼy nakakabit sa apat na haligi na nakasuksok naman sa apat na 
 
 
 
-Purong tanso ang lahat ng tulos ng Tolda at ng bakuran sa palibot nito. ## Ang mga Materyales na Ginamit sa Pagpapatayo ng Tolda 
+Purong tanso ang lahat ng tulos ng Tolda at ng bakuran sa palibot nito.
+
+## Ang mga Materyales na Ginamit sa Pagpapatayo ng Tolda 
 
 
 

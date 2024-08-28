@@ -10,7 +10,9 @@ next: ['2 Cor 8']
 
 
 ###### 1 
-Therefore, having these promises, beloved, let us cleanse ourselves from all filthiness of the flesh and spirit, perfecting holiness in the fear of God. ## The Corinthians' Repentance 
+Therefore, having these promises, beloved, let us cleanse ourselves from all filthiness of the flesh and spirit, perfecting holiness in the fear of God.
+
+## The Corinthians' Repentance 
 
 ###### 2 
 Open _your hearts_ to us. We have wronged no one, we have corrupted no one, we have cheated no one. 
@@ -43,7 +45,9 @@ For godly sorrow produces repentance _leading_ to salvation, not to be regretted
 For observe this very thing, that you sorrowed in a godly manner: What diligence it produced in you, _what_ clearing _of yourselves, what_ indignation, _what_ fear, _what_ vehement desire, _what_ zeal, _what_ vindication! In all _things_ you proved yourselves to be clear in this matter. 
 
 ###### 12 
-Therefore, although I wrote to you, _I did_ not _do it_ for the sake of him who had done the wrong, nor for the sake of him who suffered wrong, but that our care for you in the sight of God might appear to you. ## The Joy of Titus 
+Therefore, although I wrote to you, _I did_ not _do it_ for the sake of him who had done the wrong, nor for the sake of him who suffered wrong, but that our care for you in the sight of God might appear to you.
+
+## The Joy of Titus 
 
 ###### 13 
 Therefore we have been comforted in your comfort. And we rejoiced exceedingly more for the joy of Titus, because his spirit has been refreshed by you all. 

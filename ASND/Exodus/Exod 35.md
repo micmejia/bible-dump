@@ -304,7 +304,9 @@ langis ng olibo para sa ilaw, mga sangkap sa langis na pamahid at pabango sa ins
 
 
 
-batong onix at iba pang mamahaling bato na ilalagay sa espesyal na damit <i class="trans-change">ng punong pari_ at sa bulsa sa dibdib nito. ## Mga Kagamitan para sa Toldang Sambahan 
+batong onix at iba pang mamahaling bato na ilalagay sa espesyal na damit <i class="trans-change">ng punong pari_ at sa bulsa sa dibdib nito.
+
+## Mga Kagamitan para sa Toldang Sambahan 
 
 
 
@@ -964,7 +966,9 @@ Nagdala rin sila ng mga sangkap at langis ng olibo para sa ilaw, para sa langis 
 
 
 
-Kaya ang lahat ng mga Israelita, lalaki man o babae, na gustong tumulong sa lahat ng gawain na iniutos ng Panginoon sa pamamagitan ni Moises ay kusang-loob na nagdala ng mga handog sa Panginoon. ## Ang mga Manggagawa ng Toldang Sambahan 
+Kaya ang lahat ng mga Israelita, lalaki man o babae, na gustong tumulong sa lahat ng gawain na iniutos ng Panginoon sa pamamagitan ni Moises ay kusang-loob na nagdala ng mga handog sa Panginoon.
+
+## Ang mga Manggagawa ng Toldang Sambahan 
 
 
 

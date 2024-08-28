@@ -22,7 +22,9 @@ Bind them on your fingers; Write them on the tablet of your heart.
 Say to wisdom, "You _are_ my sister," And call understanding _your_ nearest kin, 
 
 ###### 5 
-That they may keep you from the immoral woman, From the seductress _who_ flatters with her words. ## The Crafty Harlot 
+That they may keep you from the immoral woman, From the seductress _who_ flatters with her words.
+
+## The Crafty Harlot 
 
 ###### 6 
 For at the window of my house I looked through my lattice, 

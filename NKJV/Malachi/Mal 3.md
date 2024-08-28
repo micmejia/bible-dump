@@ -43,7 +43,9 @@ Bring all the tithes into the storehouse, That there may be food in My house, An
 "And I will rebuke the devourer for your sakes, So that he will not destroy the fruit of your ground, Nor shall the vine fail to bear fruit for you in the field," Says the Lord of hosts; 
 
 ###### 12 
-"And all nations will call you blessed, For you will be a delightful land," Says the Lord of hosts. ## The People Complain Harshly 
+"And all nations will call you blessed, For you will be a delightful land," Says the Lord of hosts.
+
+## The People Complain Harshly 
 
 ###### 13 
 "Your words have been harsh against Me," Says the Lord, "Yet you say, 'What have we spoken against You?' 

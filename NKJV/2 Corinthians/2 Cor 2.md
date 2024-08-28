@@ -40,7 +40,9 @@ For to this end I also wrote, that I might put you to the test, whether you are 
 Now whom you forgive anything, I also _forgive_. For if indeed I have forgiven anything, I have forgiven that one for your sakes in the presence of Christ, 
 
 ###### 11 
-lest Satan should take advantage of us; for we are not ignorant of his devices. ## Triumph in Christ 
+lest Satan should take advantage of us; for we are not ignorant of his devices.
+
+## Triumph in Christ 
 
 ###### 12 
 Furthermore, when I came to Troas to _preach_ Christ's gospel, and a door was opened to me by the Lord, 

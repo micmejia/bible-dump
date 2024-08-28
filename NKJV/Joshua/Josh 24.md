@@ -90,7 +90,9 @@ Then Joshua wrote these words in the Book of the Law of God. And he took a large
 And Joshua said to all the people, "Behold, this stone shall be a witness to us, for it has heard all the words of the Lord which He spoke to us. It shall therefore be a witness to you, lest you deny your God." 
 
 ###### 28 
-So Joshua let the people depart, each to his own inheritance. ## Death of Joshua and Eleazar 
+So Joshua let the people depart, each to his own inheritance.
+
+## Death of Joshua and Eleazar 
 
 ###### 29 
 Now it came to pass after these things that Joshua the son of Nun, the servant of the Lord, died, _being_ one hundred and ten years old. 

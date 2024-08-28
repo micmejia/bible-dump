@@ -172,7 +172,9 @@ Kaya tinanong siyang muli ni Pilato, "Wala ka bang sagot sa paratang ng mga ito?
 
 
 
-Pero hindi pa rin sumagot si Jesus, kaya nagtaka si Pilato. ## Hinatulan si Jesus ng Kamatayan 
+Pero hindi pa rin sumagot si Jesus, kaya nagtaka si Pilato.
+
+## Hinatulan si Jesus ng Kamatayan 
 
 
 
@@ -502,7 +504,9 @@ Sinabi ni Pilato sa kanila, "Bakit, ano ba ang ginawa niyang kasalanan?" Pero la
 
 
 
-Dahil gustong pagbigyan ni Pilato ang mga tao, pinalaya niya si Barabas. Ipinahagupit naman niya si Jesus at saka ibinigay <i class="trans-change">sa mga sundalo_ upang ipako sa krus. ## Pinahirapan ng mga Sundalo si Jesus 
+Dahil gustong pagbigyan ni Pilato ang mga tao, pinalaya niya si Barabas. Ipinahagupit naman niya si Jesus at saka ibinigay <i class="trans-change">sa mga sundalo_ upang ipako sa krus.
+
+## Pinahirapan ng mga Sundalo si Jesus 
 
 
 
@@ -667,7 +671,9 @@ At paulit-ulit nilang pinaghahampas ng tungkod ang kanyang ulo, at pinagduduraan
 
 
 
-Matapos nilang kutyain si Jesus, hinubad nila ang kulay ubeng kapa at ipinasuot ang kanyang damit. Pagkatapos, dinala nila siya sa labas ng lungsod upang ipako sa krus. ## Ipinako sa Krus si Jesus 
+Matapos nilang kutyain si Jesus, hinubad nila ang kulay ubeng kapa at ipinasuot ang kanyang damit. Pagkatapos, dinala nila siya sa labas ng lungsod upang ipako sa krus.
+
+## Ipinako sa Krus si Jesus 
 
 
 
@@ -1063,7 +1069,9 @@ Ganito rin ang pangungutya ng mga namamahalang pari at mga tagapagturo ng Kautus
 
 
 
-Tingnan nga natin kung makakababa sa krus ang Cristong ito na hari raw ng Israel! Kapag nakababa siya, maniniwala na tayo sa kanya." Maging ang mga ipinakong kasabay niya ay nang-insulto rin sa kanya. ## Ang Pagkamatay ni Jesus 
+Tingnan nga natin kung makakababa sa krus ang Cristong ito na hari raw ng Israel! Kapag nakababa siya, maniniwala na tayo sa kanya." Maging ang mga ipinakong kasabay niya ay nang-insulto rin sa kanya.
+
+## Ang Pagkamatay ni Jesus 
 
 
 
@@ -1360,7 +1368,9 @@ Sa di-kalayuan ay may mga babaeng nanonood sa mga nangyayari. Kabilang sa kanila
 
 
 
-Ang mga babaeng ito ay sumasama kay Jesus at tumutulong sa kanya noong nasa Galilea siya. Naroon din ang iba pang babaeng sumama sa kanya sa Jerusalem. ## Ang Paglilibing kay Jesus 
+Ang mga babaeng ito ay sumasama kay Jesus at tumutulong sa kanya noong nasa Galilea siya. Naroon din ang iba pang babaeng sumama sa kanya sa Jerusalem.
+
+## Ang Paglilibing kay Jesus 
 
 
 

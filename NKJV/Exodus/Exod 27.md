@@ -31,7 +31,9 @@ And you shall make poles for the altar, poles of acacia wood, and overlay them w
 The poles shall be put in the rings, and the poles shall be on the two sides of the altar to bear it. 
 
 ###### 8 
-You shall make it hollow with boards; as it was shown you on the mountain, so shall they make _it._ ## The Court of the Tabernacle 
+You shall make it hollow with boards; as it was shown you on the mountain, so shall they make _it._
+
+## The Court of the Tabernacle 
 
 ###### 9 
 "You shall also make the court of the tabernacle. For the south side _there shall be_ hangings for the court _made of_ fine woven linen, one hundred cubits long for one side. 
@@ -64,7 +66,9 @@ All the pillars around the court shall have bands of silver; their hooks _shall 
 The length of the court _shall be_ one hundred cubits, the width fifty throughout, and the height five cubits, _made of_ fine woven linen, and its sockets of bronze. 
 
 ###### 19 
-All the utensils of the tabernacle for all its service, all its pegs, and all the pegs of the court, _shall be_ of bronze. ## The Care of the Lampstand 
+All the utensils of the tabernacle for all its service, all its pegs, and all the pegs of the court, _shall be_ of bronze.
+
+## The Care of the Lampstand 
 
 ###### 20 
 "And you shall command the children of Israel that they bring you pure oil of pressed olives for the light, to cause the lamp to burn continually. 

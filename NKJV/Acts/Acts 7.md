@@ -31,7 +31,9 @@ But God spoke in this way: that his descendants would dwell in a foreign land, a
 'And the nation to whom they will be in bondage I will judge,' said God, 'and after that they shall come out and serve Me in this place.' 
 
 ###### 8 
-Then He gave him the covenant of circumcision; and so _Abraham_ begot Isaac and circumcised him on the eighth day; and Isaac _begot_ Jacob, and Jacob _begot_ the twelve patriarchs. ## The Patriarchs in Egypt 
+Then He gave him the covenant of circumcision; and so _Abraham_ begot Isaac and circumcised him on the eighth day; and Isaac _begot_ Jacob, and Jacob _begot_ the twelve patriarchs.
+
+## The Patriarchs in Egypt 
 
 ###### 9 
 "And the patriarchs, becoming envious, sold Joseph into Egypt. But God was with him 
@@ -55,7 +57,9 @@ Then Joseph sent and called his father Jacob and all his relatives to _him,_ sev
 So Jacob went down to Egypt; and he died, he and our fathers. 
 
 ###### 16 
-And they were carried back to Shechem and laid in the tomb that Abraham bought for a sum of money from the sons of Hamor, _the father_ of Shechem. ## God Delivers Israel by Moses 
+And they were carried back to Shechem and laid in the tomb that Abraham bought for a sum of money from the sons of Hamor, _the father_ of Shechem.
+
+## God Delivers Israel by Moses 
 
 ###### 17 
 "But when the time of the promise drew near which God had sworn to Abraham, the people grew and multiplied in Egypt 
@@ -115,7 +119,9 @@ I have surely seen the oppression of My people who are in Egypt; I have heard th
 "This Moses whom they rejected, saying, 'Who made you a ruler and a judge?' is the one God sent _to be_ a ruler and a deliverer by the hand of the Angel who appeared to him in the bush. 
 
 ###### 36 
-He brought them out, after he had shown wonders and signs in the land of Egypt, and in the Red Sea, and in the wilderness forty years. ## Israel Rebels Against God 
+He brought them out, after he had shown wonders and signs in the land of Egypt, and in the Red Sea, and in the wilderness forty years.
+
+## Israel Rebels Against God 
 
 ###### 37 
 "This is that Moses who said to the children of Israel, 'The Lord your God will raise up for you a Prophet like me from your brethren. Him you shall hear.' 

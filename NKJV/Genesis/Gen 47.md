@@ -43,7 +43,9 @@ So Jacob blessed Pharaoh, and went out from before Pharaoh.
 And Joseph situated his father and his brothers, and gave them a possession in the land of Egypt, in the best of the land, in the land of Rameses, as Pharaoh had commanded. 
 
 ###### 12 
-Then Joseph provided his father, his brothers, and all his father's household with bread, according to the number in _their_ families. ## Joseph Deals with the Famine 
+Then Joseph provided his father, his brothers, and all his father's household with bread, according to the number in _their_ families.
+
+## Joseph Deals with the Famine 
 
 ###### 13 
 Now _there was_ no bread in all the land; for the famine _was_ very severe, so that the land of Egypt and the land of Canaan languished because of the famine. 
@@ -85,7 +87,9 @@ And it shall come to pass in the harvest that you shall give one-fifth to Pharao
 So they said, "You have saved our lives; let us find favor in the sight of my lord, and we will be Pharaoh's servants." 
 
 ###### 26 
-And Joseph made it a law over the land of Egypt to this day, _that_ Pharaoh should have one-fifth, except for the land of the priests only, _which_ did not become Pharaoh's. ## Joseph's Vow to Jacob 
+And Joseph made it a law over the land of Egypt to this day, _that_ Pharaoh should have one-fifth, except for the land of the priests only, _which_ did not become Pharaoh's.
+
+## Joseph's Vow to Jacob 
 
 ###### 27 
 So Israel dwelt in the land of Egypt, in the country of Goshen; and they had possessions there and grew and multiplied exceedingly. 

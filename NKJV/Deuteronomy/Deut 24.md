@@ -19,7 +19,9 @@ when she has departed from his house, and goes and becomes another man's _wife,_
 _if_ the latter husband detests her and writes her a certificate of divorce, puts _it_ in her hand, and sends her out of his house, or if the latter husband dies who took her as his wife, 
 
 ###### 4 
-_then_ her former husband who divorced her must not take her back to be his wife after she has been defiled; for that _is_ an abomination before the Lord, and you shall not bring sin on the land which the Lord your God is giving you _as_ an inheritance. ## Miscellaneous Laws 
+_then_ her former husband who divorced her must not take her back to be his wife after she has been defiled; for that _is_ an abomination before the Lord, and you shall not bring sin on the land which the Lord your God is giving you _as_ an inheritance.
+
+## Miscellaneous Laws 
 
 ###### 5 
 "When a man has taken a new wife, he shall not go out to war or be charged with any business; he shall be free at home one year, and bring happiness to his wife whom he has taken. 

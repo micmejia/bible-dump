@@ -22,7 +22,9 @@ Paul wanted to have him go on with him. And he took _him_ and circumcised him be
 And as they went through the cities, they delivered to them the decrees to keep, which were determined by the apostles and elders at Jerusalem. 
 
 ###### 5 
-So the churches were strengthened in the faith, and increased in number daily. ## The Macedonian Call 
+So the churches were strengthened in the faith, and increased in number daily.
+
+## The Macedonian Call 
 
 ###### 6 
 Now when they had gone through Phrygia and the region of Galatia, they were forbidden by the Holy Spirit to preach the word in Asia. 
@@ -37,7 +39,9 @@ So passing by Mysia, they came down to Troas.
 And a vision appeared to Paul in the night. A man of Macedonia stood and pleaded with him, saying, "Come over to Macedonia and help us." 
 
 ###### 10 
-Now after he had seen the vision, immediately we sought to go to Macedonia, concluding that the Lord had called us to preach the gospel to them. ## Lydia Baptized at Philippi 
+Now after he had seen the vision, immediately we sought to go to Macedonia, concluding that the Lord had called us to preach the gospel to them.
+
+## Lydia Baptized at Philippi 
 
 ###### 11 
 Therefore, sailing from Troas, we ran a straight course to Samothrace, and the next _day_ came to Neapolis, 
@@ -52,7 +56,9 @@ And on the Sabbath day we went out of the city to the riverside, where prayer wa
 Now a certain woman named Lydia heard _us._ She was a seller of purple from the city of Thyatira, who worshiped God. The Lord opened her heart to heed the things spoken by Paul. 
 
 ###### 15 
-And when she and her household were baptized, she begged _us,_ saying, "If you have judged me to be faithful to the Lord, come to my house and stay." So she persuaded us. ## Paul and Silas Imprisoned 
+And when she and her household were baptized, she begged _us,_ saying, "If you have judged me to be faithful to the Lord, come to my house and stay." So she persuaded us.
+
+## Paul and Silas Imprisoned 
 
 ###### 16 
 Now it happened, as we went to prayer, that a certain slave girl possessed with a spirit of divination met us, who brought her masters much profit by fortune-telling. 
@@ -79,7 +85,9 @@ Then the multitude rose up together against them; and the magistrates tore off t
 And when they had laid many stripes on them, they threw _them_ into prison, commanding the jailer to keep them securely. 
 
 ###### 24 
-Having received such a charge, he put them into the inner prison and fastened their feet in the stocks. ## The Philippian Jailer Saved 
+Having received such a charge, he put them into the inner prison and fastened their feet in the stocks.
+
+## The Philippian Jailer Saved 
 
 ###### 25 
 But at midnight Paul and Silas were praying and singing hymns to God, and the prisoners were listening to them. 
@@ -109,7 +117,9 @@ Then they spoke the word of the Lord to him and to all who were in his house.
 And he took them the same hour of the night and washed _their_ stripes. And immediately he and all his _family_ were baptized. 
 
 ###### 34 
-Now when he had brought them into his house, he set food before them; and he rejoiced, having believed in God with all his household. ## Paul Refuses to Depart Secretly 
+Now when he had brought them into his house, he set food before them; and he rejoiced, having believed in God with all his household.
+
+## Paul Refuses to Depart Secretly 
 
 ###### 35 
 And when it was day, the magistrates sent the officers, saying, "Let those men go." 

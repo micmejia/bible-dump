@@ -34,7 +34,9 @@ Then they shall answer and say, 'Our hands have not shed this blood, nor have ou
 Provide atonement, O Lord, for Your people Israel, whom You have redeemed, and do not lay innocent blood to the charge of Your people Israel.' And atonement shall be provided on their behalf for the blood. 
 
 ###### 9 
-So you shall put away the _guilt of_ innocent blood from among you when you do _what is_ right in the sight of the Lord. ## Female Captives 
+So you shall put away the _guilt of_ innocent blood from among you when you do _what is_ right in the sight of the Lord.
+
+## Female Captives 
 
 ###### 10 
 "When you go out to war against your enemies, and the Lord your God delivers them into your hand, and you take them captive, 
@@ -49,7 +51,9 @@ then you shall bring her home to your house, and she shall shave her head and tr
 She shall put off the clothes of her captivity, remain in your house, and mourn her father and her mother a full month; after that you may go in to her and be her husband, and she shall be your wife. 
 
 ###### 14 
-And it shall be, if you have no delight in her, then you shall set her free, but you certainly shall not sell her for money; you shall not treat her brutally, because you have humbled her. ## Firstborn Inheritance Rights 
+And it shall be, if you have no delight in her, then you shall set her free, but you certainly shall not sell her for money; you shall not treat her brutally, because you have humbled her.
+
+## Firstborn Inheritance Rights 
 
 ###### 15 
 "If a man has two wives, one loved and the other unloved, and they have borne him children, _both_ the loved and the unloved, and _if_ the firstborn son is of her who is unloved, 
@@ -58,7 +62,9 @@ And it shall be, if you have no delight in her, then you shall set her free, but
 then it shall be, on the day he bequeaths his possessions to his sons, _that_ he must not bestow firstborn status on the son of the loved wife in preference to the son of the unloved, the _true_ firstborn. 
 
 ###### 17 
-But he shall acknowledge the son of the unloved wife _as_ the firstborn by giving him a double portion of all that he has, for he _is_ the beginning of his strength; the right of the firstborn _is_ his. ## The Rebellious Son 
+But he shall acknowledge the son of the unloved wife _as_ the firstborn by giving him a double portion of all that he has, for he _is_ the beginning of his strength; the right of the firstborn _is_ his.
+
+## The Rebellious Son 
 
 ###### 18 
 "If a man has a stubborn and rebellious son who will not obey the voice of his father or the voice of his mother, and _who,_ when they have chastened him, will not heed them, 
@@ -70,7 +76,9 @@ then his father and his mother shall take hold of him and bring him out to the e
 And they shall say to the elders of his city, 'This son of ours is stubborn and rebellious; he will not obey our voice; he is a glutton and a drunkard.' 
 
 ###### 21 
-Then all the men of his city shall stone him to death with stones; so you shall put away the evil from among you, and all Israel shall hear and fear. ## Miscellaneous Laws 
+Then all the men of his city shall stone him to death with stones; so you shall put away the evil from among you, and all Israel shall hear and fear.
+
+## Miscellaneous Laws 
 
 ###### 22 
 "If a man has committed a sin deserving of death, and he is put to death, and you hang him on a tree, 

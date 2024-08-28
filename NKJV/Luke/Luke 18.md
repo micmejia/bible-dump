@@ -76,7 +76,9 @@ And he said, "All these things I have kept from my youth."
 So when Jesus heard these things, He said to him, "You still lack one thing. Sell all that you have and distribute to the poor, and you will have treasure in heaven; and come, follow Me." 
 
 ###### 23 
-But when he heard this, he became very sorrowful, for he was very rich. ## With God All Things Are Possible 
+But when he heard this, he became very sorrowful, for he was very rich.
+
+## With God All Things Are Possible 
 
 ###### 24 
 And when Jesus saw that he became very sorrowful, He said, "How hard it is for those who have riches to enter the kingdom of God! 
@@ -109,7 +111,9 @@ For He will be delivered to the Gentiles and will be mocked and insulted and spi
 They will scourge _Him_ and kill Him. And the third day He will rise again." 
 
 ###### 34 
-But they understood none of these things; this saying was hidden from them, and they did not know the things which were spoken. ## A Blind Man Receives His Sight 
+But they understood none of these things; this saying was hidden from them, and they did not know the things which were spoken.
+
+## A Blind Man Receives His Sight 
 
 ###### 35 
 Then it happened, as He was coming near Jericho, that a certain blind man sat by the road begging. 

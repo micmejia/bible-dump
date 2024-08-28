@@ -1327,7 +1327,9 @@ Marami ang naniwala sa kanyang mensahe at nagpabautismo agad sila. Nang araw na 
 
 
 
-Naging masigasig sila sa pag-aaral ng mga itinuturo ng mga apostol, sa pagtitipon bilang magkakapatid, sa paghahati-hati ng tinapay, at sa pananalangin. ## Ang Pamumuhay ng mga Mananampalataya 
+Naging masigasig sila sa pag-aaral ng mga itinuturo ng mga apostol, sa pagtitipon bilang magkakapatid, sa paghahati-hati ng tinapay, at sa pananalangin.
+
+## Ang Pamumuhay ng mga Mananampalataya 
 
 
 

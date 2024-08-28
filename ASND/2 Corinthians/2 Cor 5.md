@@ -337,7 +337,9 @@ Kaya naman, sinisikap naming malugod ang Dios sa amin, maging dito man o sa pili
 
 
 
-Sapagkat haharap tayong lahat kay Cristo para hatulan. Tatanggapin ng bawat isa ang nararapat na kabayaran sa kanyang mga ginawa, mabuti man o masama, nang nabubuhay pa siya sa mundong ito. ## Nakabalik Tayo sa Dios Dahil kay Cristo 
+Sapagkat haharap tayong lahat kay Cristo para hatulan. Tatanggapin ng bawat isa ang nararapat na kabayaran sa kanyang mga ginawa, mabuti man o masama, nang nabubuhay pa siya sa mundong ito.
+
+## Nakabalik Tayo sa Dios Dahil kay Cristo 
 
 
 

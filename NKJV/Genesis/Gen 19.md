@@ -40,7 +40,9 @@ And they said, "Stand back!" Then they said, "This one came in to stay _here,_ a
 But the men reached out their hands and pulled Lot into the house with them, and shut the door. 
 
 ###### 11 
-And they struck the men who _were_ at the doorway of the house with blindness, both small and great, so that they became weary _trying_ to find the door. ## Sodom and Gomorrah Destroyed 
+And they struck the men who _were_ at the doorway of the house with blindness, both small and great, so that they became weary _trying_ to find the door.
+
+## Sodom and Gomorrah Destroyed 
 
 ###### 12 
 Then the men said to Lot, "Have you anyone else here? Son-in-law, your sons, your daughters, and whomever you have in the city--take _them_ out of this place! 
@@ -94,7 +96,9 @@ And Abraham went early in the morning to the place where he had stood before the
 Then he looked toward Sodom and Gomorrah, and toward all the land of the plain; and he saw, and behold, the smoke of the land which went up like the smoke of a furnace. 
 
 ###### 29 
-And it came to pass, when God destroyed the cities of the plain, that God remembered Abraham, and sent Lot out of the midst of the overthrow, when He overthrew the cities in which Lot had dwelt. ## The Descendants of Lot 
+And it came to pass, when God destroyed the cities of the plain, that God remembered Abraham, and sent Lot out of the midst of the overthrow, when He overthrew the cities in which Lot had dwelt.
+
+## The Descendants of Lot 
 
 ###### 30 
 Then Lot went up out of Zoar and dwelt in the mountains, and his two daughters were with him; for he was afraid to dwell in Zoar. And he and his two daughters dwelt in a cave. 

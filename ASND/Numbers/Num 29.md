@@ -205,7 +205,9 @@ Maghandog din kayo ng isang lalaking kambing bilang handog sa paglilinis para ma
 
 
 
-Ihandog ninyo ito bukod pa sa buwanan at pang-araw-araw na mga handog na sinusunog na may kasamang handog bilang pagpaparangal sa Panginoon at mga handog na inumin. Mga handog ito na sinusunog, at ang mabangong samyo nito ay makalulugod sa Panginoon. ## Mga Handog sa Araw ng Pagtubos 
+Ihandog ninyo ito bukod pa sa buwanan at pang-araw-araw na mga handog na sinusunog na may kasamang handog bilang pagpaparangal sa Panginoon at mga handog na inumin. Mga handog ito na sinusunog, at ang mabangong samyo nito ay makalulugod sa Panginoon.
+
+## Mga Handog sa Araw ng Pagtubos 
 
 
 
@@ -370,7 +372,9 @@ at dalawang kilo sa bawat batang tupa.
 
 
 
-Maghandog din kayo ng isang lalaking kambing bilang handog sa paglilinis, bukod sa isa pang handog sa paglilinis para sa kapatawaran ng inyong kasalanan at sa pang-araw-araw na handog na sinusunog na may kasamang handog bilang pagpaparangal sa Panginoon, at sa handog na inumin. ## Ang mga Handog sa Pista ng Pagtatayo ng mga Kubol 
+Maghandog din kayo ng isang lalaking kambing bilang handog sa paglilinis, bukod sa isa pang handog sa paglilinis para sa kapatawaran ng inyong kasalanan at sa pang-araw-araw na handog na sinusunog na may kasamang handog bilang pagpaparangal sa Panginoon, at sa handog na inumin.
+
+## Ang mga Handog sa Pista ng Pagtatayo ng mga Kubol 
 
 
 

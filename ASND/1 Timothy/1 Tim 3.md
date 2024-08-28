@@ -238,7 +238,9 @@ Dapat ay hindi siya bagong mananampalataya, at baka maging mayabang siya at maha
 
 
 
-Bukod pa rito, kailangang iginagalang siya ng mga hindi miyembro ng iglesya para hindi siya mapintasan at hindi mahulog sa bitag ng diablo. ## Ang mga Tagapaglingkod sa Iglesya 
+Bukod pa rito, kailangang iginagalang siya ng mga hindi miyembro ng iglesya para hindi siya mapintasan at hindi mahulog sa bitag ng diablo.
+
+## Ang mga Tagapaglingkod sa Iglesya 
 
 
 
@@ -436,7 +438,9 @@ Dapat iisa lang ang asawa ng mga tagapaglingkod at mahusay mamahala ng kanilang 
 
 
 
-Ang mga naglilingkod nang mabuti ay iginagalang ng mga tao at hindi na natatakot magsalita tungkol sa pananampalataya nila kay Cristo Jesus. ## Ang Hiwaga ng Ating Pananampalataya 
+Ang mga naglilingkod nang mabuti ay iginagalang ng mga tao at hindi na natatakot magsalita tungkol sa pananampalataya nila kay Cristo Jesus.
+
+## Ang Hiwaga ng Ating Pananampalataya 
 
 
 

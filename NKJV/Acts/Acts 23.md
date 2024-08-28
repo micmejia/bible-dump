@@ -37,7 +37,9 @@ For Sadducees say that there is no resurrection--and no angel or spirit; but the
 Then there arose a loud outcry. And the scribes of the Pharisees' party arose and protested, saying, "We find no evil in this man; but if a spirit or an angel has spoken to him, let us not fight against God." 
 
 ###### 10 
-Now when there arose a great dissension, the commander, fearing lest Paul might be pulled to pieces by them, commanded the soldiers to go down and take him by force from among them, and bring _him_ into the barracks. ## The Plot Against Paul 
+Now when there arose a great dissension, the commander, fearing lest Paul might be pulled to pieces by them, commanded the soldiers to go down and take him by force from among them, and bring _him_ into the barracks.
+
+## The Plot Against Paul 
 
 ###### 11 
 But the following night the Lord stood by him and said, "Be of good cheer, Paul; for as you have testified for Me in Jerusalem, so you must also bear witness at Rome." 

@@ -18,7 +18,9 @@ in hope of eternal life which God, who cannot lie, promised before time began,
 but has in due time manifested His word through preaching, which was committed to me according to the commandment of God our Savior; 
 
 ###### 4 
-To Titus, a true son in _our_ common faith: Grace, mercy, _and_ peace from God the Father and the Lord Jesus Christ our Savior. ## Qualified Elders 
+To Titus, a true son in _our_ common faith: Grace, mercy, _and_ peace from God the Father and the Lord Jesus Christ our Savior.
+
+## Qualified Elders 
 
 ###### 5 
 For this reason I left you in Crete, that you should set in order the things that are lacking, and appoint elders in every city as I commanded you-- 
@@ -33,7 +35,9 @@ For a bishop must be blameless, as a steward of God, not self-willed, not quick-
 but hospitable, a lover of what is good, sober-minded, just, holy, self-controlled, 
 
 ###### 9 
-holding fast the faithful word as he has been taught, that he may be able, by sound doctrine, both to exhort and convict those who contradict. ## The Elders' Task 
+holding fast the faithful word as he has been taught, that he may be able, by sound doctrine, both to exhort and convict those who contradict.
+
+## The Elders' Task 
 
 ###### 10 
 For there are many insubordinate, both idle talkers and deceivers, especially those of the circumcision, 

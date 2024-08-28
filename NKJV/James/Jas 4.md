@@ -37,7 +37,9 @@ Draw near to God and He will draw near to you. Cleanse _your_ hands, _you_ sinne
 Lament and mourn and weep! Let your laughter be turned to mourning and _your_ joy to gloom. 
 
 ###### 10 
-Humble yourselves in the sight of the Lord, and He will lift you up. ## Do Not Judge a Brother 
+Humble yourselves in the sight of the Lord, and He will lift you up.
+
+## Do Not Judge a Brother 
 
 ###### 11 
 Do not speak evil of one another, brethren. He who speaks evil of a brother and judges his brother, speaks evil of the law and judges the law. But if you judge the law, you are not a doer of the law but a judge. 

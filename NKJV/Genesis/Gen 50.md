@@ -48,7 +48,9 @@ So his sons did for him just as he had commanded them.
 For his sons carried him to the land of Canaan, and buried him in the cave of the field of Machpelah, before Mamre, which Abraham bought with the field from Ephron the Hittite as property for a burial place. 
 
 ###### 14 
-And after he had buried his father, Joseph returned to Egypt, he and his brothers and all who went up with him to bury his father. ## Joseph Reassures His Brothers 
+And after he had buried his father, Joseph returned to Egypt, he and his brothers and all who went up with him to bury his father.
+
+## Joseph Reassures His Brothers 
 
 ###### 15 
 When Joseph's brothers saw that their father was dead, they said, "Perhaps Joseph will hate us, and may actually repay us for all the evil which we did to him." 
@@ -69,7 +71,9 @@ Joseph said to them, "Do not be afraid, for _am_ I in the place of God?
 But as for you, you meant evil against me; _but_ God meant it for good, in order to bring it about as _it is_ this day, to save many people alive. 
 
 ###### 21 
-Now therefore, do not be afraid; I will provide for you and your little ones." And he comforted them and spoke kindly to them. ## Death of Joseph 
+Now therefore, do not be afraid; I will provide for you and your little ones." And he comforted them and spoke kindly to them.
+
+## Death of Joseph 
 
 ###### 22 
 So Joseph dwelt in Egypt, he and his father's household. And Joseph lived one hundred and ten years. 

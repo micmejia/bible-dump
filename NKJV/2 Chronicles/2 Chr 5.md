@@ -10,7 +10,9 @@ next: ['2 Chr 6']
 
 
 ###### 1 
-So all the work that Solomon had done for the house of the Lord was finished; and Solomon brought in the things which his father David had dedicated: the silver and the gold and all the furnishings. And he put _them_ in the treasuries of the house of God. ## The Ark Brought into the Temple 
+So all the work that Solomon had done for the house of the Lord was finished; and Solomon brought in the things which his father David had dedicated: the silver and the gold and all the furnishings. And he put _them_ in the treasuries of the house of God.
+
+## The Ark Brought into the Temple 
 
 ###### 2 
 Now Solomon assembled the elders of Israel and all the heads of the tribes, the chief fathers of the children of Israel, in Jerusalem, that they might bring the ark of the covenant of the Lord up from the City of David, which _is_ Zion. 

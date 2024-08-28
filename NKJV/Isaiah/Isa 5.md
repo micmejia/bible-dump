@@ -28,7 +28,9 @@ And now, please let Me tell you what I will do to My vineyard: I will take away 
 I will lay it waste; It shall not be pruned or dug, But there shall come up briers and thorns. I will also command the clouds That they rain no rain on it." 
 
 ###### 7 
-For the vineyard of the Lord of hosts _is_ the house of Israel, And the men of Judah are His pleasant plant. He looked for justice, but behold, oppression; For righteousness, but behold, a cry _for help._ ## Impending Judgment on Excesses 
+For the vineyard of the Lord of hosts _is_ the house of Israel, And the men of Judah are His pleasant plant. He looked for justice, but behold, oppression; For righteousness, but behold, a cry _for help._
+
+## Impending Judgment on Excesses 
 
 ###### 8 
 Woe to those who join house to house; They add field to field, Till _there is_ no place Where they may dwell alone in the midst of the land! 

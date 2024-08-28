@@ -19,7 +19,9 @@ Then Paul, as his custom was, went in to them, and for three Sabbaths reasoned w
 explaining and demonstrating that the Christ had to suffer and rise again from the dead, and _saying,_ "This Jesus whom I preach to you is the Christ." 
 
 ###### 4 
-And some of them were persuaded; and a great multitude of the devout Greeks, and not a few of the leading women, joined Paul and Silas. ## Assault on Jason's House 
+And some of them were persuaded; and a great multitude of the devout Greeks, and not a few of the leading women, joined Paul and Silas.
+
+## Assault on Jason's House 
 
 ###### 5 
 But the Jews who were not persuaded, becoming envious, took some of the evil men from the marketplace, and gathering a mob, set all the city in an uproar and attacked the house of Jason, and sought to bring them out to the people. 
@@ -34,7 +36,9 @@ Jason has harbored them, and these are all acting contrary to the decrees of Cae
 And they troubled the crowd and the rulers of the city when they heard these things. 
 
 ###### 9 
-So when they had taken security from Jason and the rest, they let them go. ## Ministering at Berea 
+So when they had taken security from Jason and the rest, they let them go.
+
+## Ministering at Berea 
 
 ###### 10 
 Then the brethren immediately sent Paul and Silas away by night to Berea. When they arrived, they went into the synagogue of the Jews. 
@@ -52,7 +56,9 @@ But when the Jews from Thessalonica learned that the word of God was preached by
 Then immediately the brethren sent Paul away, to go to the sea; but both Silas and Timothy remained there. 
 
 ###### 15 
-So those who conducted Paul brought him to Athens; and receiving a command for Silas and Timothy to come to him with all speed, they departed. ## The Philosophers at Athens 
+So those who conducted Paul brought him to Athens; and receiving a command for Silas and Timothy to come to him with all speed, they departed.
+
+## The Philosophers at Athens 
 
 ###### 16 
 Now while Paul waited for them at Athens, his spirit was provoked within him when he saw that the city was given over to idols. 
@@ -70,7 +76,9 @@ And they took him and brought him to the Areopagus, saying, "May we know what th
 For you are bringing some strange things to our ears. Therefore we want to know what these things mean." 
 
 ###### 21 
-For all the Athenians and the foreigners who were there spent their time in nothing else but either to tell or to hear some new thing. ## Addressing the Areopagus 
+For all the Athenians and the foreigners who were there spent their time in nothing else but either to tell or to hear some new thing.
+
+## Addressing the Areopagus 
 
 ###### 22 
 Then Paul stood in the midst of the Areopagus and said, "Men of Athens, I perceive that in all things you are very religious; 

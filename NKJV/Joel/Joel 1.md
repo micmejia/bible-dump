@@ -9,7 +9,9 @@ next: ['Joel 2']
 
 
 ###### 1 
-The word of the Lord that came to Joel the son of Pethuel. ## The Land Laid Waste 
+The word of the Lord that came to Joel the son of Pethuel.
+
+## The Land Laid Waste 
 
 ###### 2 
 Hear this, you elders, And give ear, all you inhabitants of the land! Has _anything like_ this happened in your days, Or even in the days of your fathers? 
@@ -42,7 +44,9 @@ The field is wasted, The land mourns; For the grain is ruined, The new wine is d
 Be ashamed, you farmers, Wail, you vinedressers, For the wheat and the barley; Because the harvest of the field has perished. 
 
 ###### 12 
-The vine has dried up, And the fig tree has withered; The pomegranate tree, The palm tree also, And the apple tree-- All the trees of the field are withered; Surely joy has withered away from the sons of men. ## Mourning for the Land 
+The vine has dried up, And the fig tree has withered; The pomegranate tree, The palm tree also, And the apple tree-- All the trees of the field are withered; Surely joy has withered away from the sons of men.
+
+## Mourning for the Land 
 
 ###### 13 
 Gird yourselves and lament, you priests; Wail, you who minister before the altar; Come, lie all night in sackcloth, You who minister to my God; For the grain offering and the drink offering Are withheld from the house of your God. 

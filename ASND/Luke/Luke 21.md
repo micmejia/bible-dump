@@ -634,7 +634,9 @@ Ngunit hindi kayo mapapahamak.
 
 
 
-At kung magpapakatatag kayo, magkakaroon kayo ng buhay <i class="trans-change">na walang hanggan_. ## Tungkol sa Pagkawasak ng Jerusalem 
+At kung magpapakatatag kayo, magkakaroon kayo ng buhay <i class="trans-change">na walang hanggan_.
+
+## Tungkol sa Pagkawasak ng Jerusalem 
 
 
 
@@ -799,7 +801,9 @@ Kawawa ang mga buntis at ang mga nagpapasuso sa mga araw na iyon <i class="trans
 
 
 
-Ang iba sa kanilaʼy papatayin sa espada, at ang iba namaʼy dadalhing bihag sa ibang mga bansa. At ang Jerusalem ay sasakupin ng mga hindi Judio hanggang sa matapos ang panahong itinakda ng Dios sa kanila. ## Ang Pagbabalik ni Jesus sa Mundo 
+Ang iba sa kanilaʼy papatayin sa espada, at ang iba namaʼy dadalhing bihag sa ibang mga bansa. At ang Jerusalem ay sasakupin ng mga hindi Judio hanggang sa matapos ang panahong itinakda ng Dios sa kanila.
+
+## Ang Pagbabalik ni Jesus sa Mundo 
 
 
 

@@ -16,7 +16,9 @@ Now faith is the substance of things hoped for, the evidence of things not seen.
 For by it the elders obtained a _good_ testimony. 
 
 ###### 3 
-By faith we understand that the worlds were framed by the word of God, so that the things which are seen were not made of things which are visible. ## Faith at the Dawn of History 
+By faith we understand that the worlds were framed by the word of God, so that the things which are seen were not made of things which are visible.
+
+## Faith at the Dawn of History 
 
 ###### 4 
 By faith Abel offered to God a more excellent sacrifice than Cain, through which he obtained witness that he was righteous, God testifying of his gifts; and through it he being dead still speaks. 
@@ -28,7 +30,9 @@ By faith Enoch was taken away so that he did not see death, "and was not found, 
 But without faith _it is_ impossible to please _Him,_ for he who comes to God must believe that He is, and _that_ He is a rewarder of those who diligently seek Him. 
 
 ###### 7 
-By faith Noah, being divinely warned of things not yet seen, moved with godly fear, prepared an ark for the saving of his household, by which he condemned the world and became heir of the righteousness which is according to faith. ## Faithful Abraham 
+By faith Noah, being divinely warned of things not yet seen, moved with godly fear, prepared an ark for the saving of his household, by which he condemned the world and became heir of the righteousness which is according to faith.
+
+## Faithful Abraham 
 
 ###### 8 
 By faith Abraham obeyed when he was called to go out to the place which he would receive as an inheritance. And he went out, not knowing where he was going. 
@@ -43,7 +47,9 @@ for he waited for the city which has foundations, whose builder and maker _is_ G
 By faith Sarah herself also received strength to conceive seed, and she bore a child when she was past the age, because she judged Him faithful who had promised. 
 
 ###### 12 
-Therefore from one man, and him as good as dead, were born _as many_ as the stars of the sky in multitude--innumerable as the sand which is by the seashore. ## The Heavenly Hope 
+Therefore from one man, and him as good as dead, were born _as many_ as the stars of the sky in multitude--innumerable as the sand which is by the seashore.
+
+## The Heavenly Hope 
 
 ###### 13 
 These all died in faith, not having received the promises, but having seen them afar off were assured of them, embraced _them_ and confessed that they were strangers and pilgrims on the earth. 
@@ -55,7 +61,9 @@ For those who say such things declare plainly that they seek a homeland.
 And truly if they had called to mind that _country_ from which they had come out, they would have had opportunity to return. 
 
 ###### 16 
-But now they desire a better, that is, a heavenly _country._ Therefore God is not ashamed to be called their God, for He has prepared a city for them. ## The Faith of the Patriarchs 
+But now they desire a better, that is, a heavenly _country._ Therefore God is not ashamed to be called their God, for He has prepared a city for them.
+
+## The Faith of the Patriarchs 
 
 ###### 17 
 By faith Abraham, when he was tested, offered up Isaac, and he who had received the promises offered up his only begotten _son,_ 
@@ -73,7 +81,9 @@ By faith Isaac blessed Jacob and Esau concerning things to come.
 By faith Jacob, when he was dying, blessed each of the sons of Joseph, and worshiped, _leaning_ on the top of his staff. 
 
 ###### 22 
-By faith Joseph, when he was dying, made mention of the departure of the children of Israel, and gave instructions concerning his bones. ## The Faith of Moses 
+By faith Joseph, when he was dying, made mention of the departure of the children of Israel, and gave instructions concerning his bones.
+
+## The Faith of Moses 
 
 ###### 23 
 By faith Moses, when he was born, was hidden three months by his parents, because they saw _he was_ a beautiful child; and they were not afraid of the king's command. 
@@ -94,7 +104,9 @@ By faith he forsook Egypt, not fearing the wrath of the king; for he endured as 
 By faith he kept the Passover and the sprinkling of blood, lest he who destroyed the firstborn should touch them. 
 
 ###### 29 
-By faith they passed through the Red Sea as by dry _land, whereas_ the Egyptians, attempting to do so, were drowned. ## By Faith They Overcame 
+By faith they passed through the Red Sea as by dry _land, whereas_ the Egyptians, attempting to do so, were drowned.
+
+## By Faith They Overcame 
 
 ###### 30 
 By faith the walls of Jericho fell down after they were encircled for seven days. 

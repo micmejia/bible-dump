@@ -139,7 +139,9 @@ Palabasin ninyo sila, lalaki man o babae para hindi nila marumihan ang kampo, ku
 
 
 
-Kaya pinalabas ng mga Israelita ang mga ganoong tao sa kampo ayon sa iniutos ng Panginoon kay Moises. ## Ang Bayad sa Ginawan ng Masama 
+Kaya pinalabas ng mga Israelita ang mga ganoong tao sa kampo ayon sa iniutos ng Panginoon kay Moises.
+
+## Ang Bayad sa Ginawan ng Masama 
 
 
 

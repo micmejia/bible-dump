@@ -67,7 +67,9 @@ I will open rivers in desolate heights, And fountains in the midst of the valley
 I will plant in the wilderness the cedar and the acacia tree, The myrtle and the oil tree; I will set in the desert the cypress tree _and_ the pine And the box tree together, 
 
 ###### 20 
-That they may see and know, And consider and understand together, That the hand of the Lord has done this, And the Holy One of Israel has created it. ## The Futility of Idols 
+That they may see and know, And consider and understand together, That the hand of the Lord has done this, And the Holy One of Israel has created it.
+
+## The Futility of Idols 
 
 ###### 21 
 "Present your case," says the Lord. "Bring forth your strong _reasons,_" says the King of Jacob. 

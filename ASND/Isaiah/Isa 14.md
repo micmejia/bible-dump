@@ -73,7 +73,9 @@ Kaaawaan ng Panginoon ang Israel at muli niyang pipiliin <i class="trans-change"
 
 
 
-Tutulungan ng ibang bansa ang Israel para makabalik sila sa lupaing ibinigay sa kanila ng Panginoon. At magiging alipin nila roon ang mga dayuhan. Bibihagin nila ang mga bumihag sa kanila noon, at sasakupin nila ang mga umapi sa kanila. ## Mamamatay ang Hari ng Babilonia 
+Tutulungan ng ibang bansa ang Israel para makabalik sila sa lupaing ibinigay sa kanila ng Panginoon. At magiging alipin nila roon ang mga dayuhan. Bibihagin nila ang mga bumihag sa kanila noon, at sasakupin nila ang mga umapi sa kanila.
+
+## Mamamatay ang Hari ng Babilonia 
 
 
 

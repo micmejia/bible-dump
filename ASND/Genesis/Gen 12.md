@@ -238,7 +238,9 @@ Mula roon, lumipat sila sa bundok na nasa silangan ng Betel, at doon sila nagtay
 
 
 
-Hindi nagtagal, muli silang lumipat. Nagpatuloy sila sa paglalakbay papunta sa Negev. ## Pumunta si Abram sa Egipto 
+Hindi nagtagal, muli silang lumipat. Nagpatuloy sila sa paglalakbay papunta sa Negev.
+
+## Pumunta si Abram sa Egipto 
 
 
 

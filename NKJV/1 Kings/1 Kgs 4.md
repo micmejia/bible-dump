@@ -64,7 +64,9 @@ Jehoshaphat the son of Paruah, in Issachar;
 Shimei the son of Elah, in Benjamin; 
 
 ###### 19 
-Geber the son of Uri, in the land of Gilead, _in_ the country of Sihon king of the Amorites, and of Og king of Bashan. _He was_ the only governor who _was_ in the land. ## Prosperity and Wisdom of Solomon's Reign 
+Geber the son of Uri, in the land of Gilead, _in_ the country of Sihon king of the Amorites, and of Og king of Bashan. _He was_ the only governor who _was_ in the land.
+
+## Prosperity and Wisdom of Solomon's Reign 
 
 ###### 20 
 Judah and Israel _were_ as numerous as the sand by the sea in multitude, eating and drinking and rejoicing. 

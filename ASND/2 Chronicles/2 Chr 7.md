@@ -337,7 +337,9 @@ Nang ikawalong araw, ginanap nila ang huling pagtitipon, dahil ipinagdiwang nila
 
 
 
-Kinabukasan, na siyang ika-23 araw ng ikapitong buwan, pinauwi ni Solomon ang mga tao. Umuwi sila na masaya dahil sa lahat ng kabutihang ginawa ng Panginoon kay David at kay Solomon, at sa mga mamamayan niyang Israelita. ## Nagpakita ang Dios kay Solomon 
+Kinabukasan, na siyang ika-23 araw ng ikapitong buwan, pinauwi ni Solomon ang mga tao. Umuwi sila na masaya dahil sa lahat ng kabutihang ginawa ng Panginoon kay David at kay Solomon, at sa mga mamamayan niyang Israelita.
+
+## Nagpakita ang Dios kay Solomon 
 
 
 

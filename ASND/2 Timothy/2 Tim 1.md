@@ -72,7 +72,9 @@ next: ['2 Tim 2']
 
 
 
-Timoteo, minamahal kong anak: Sumaiyo nawa ang biyaya, awa at kapayapaang galing sa Dios Ama at kay Cristo Jesus na ating Panginoon. ## Pasasalamat sa Dios at Paalala kay Timoteo 
+Timoteo, minamahal kong anak: Sumaiyo nawa ang biyaya, awa at kapayapaang galing sa Dios Ama at kay Cristo Jesus na ating Panginoon.
+
+## Pasasalamat sa Dios at Paalala kay Timoteo 
 
 
 

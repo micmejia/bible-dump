@@ -43,7 +43,9 @@ Out of the same mouth proceed blessing and cursing. My brethren, these things ou
 Does a spring send forth fresh _water_ and bitter from the same opening? 
 
 ###### 12 
-Can a fig tree, my brethren, bear olives, or a grapevine bear figs? Thus no spring yields both salt water and fresh. ## Heavenly Versus Demonic Wisdom 
+Can a fig tree, my brethren, bear olives, or a grapevine bear figs? Thus no spring yields both salt water and fresh.
+
+## Heavenly Versus Demonic Wisdom 
 
 ###### 13 
 Who _is_ wise and understanding among you? Let him show by good conduct _that_ his works _are done_ in the meekness of wisdom. 

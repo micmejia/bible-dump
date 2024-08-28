@@ -13,7 +13,9 @@ next: ['Judg 11']
 After Abimelech there arose to save Israel Tola the son of Puah, the son of Dodo, a man of Issachar; and he dwelt in Shamir in the mountains of Ephraim. 
 
 ###### 2 
-He judged Israel twenty-three years; and he died and was buried in Shamir. ## Jair 
+He judged Israel twenty-three years; and he died and was buried in Shamir.
+
+## Jair 
 
 ###### 3 
 After him arose Jair, a Gileadite; and he judged Israel twenty-two years. 
@@ -22,7 +24,9 @@ After him arose Jair, a Gileadite; and he judged Israel twenty-two years.
 Now he had thirty sons who rode on thirty donkeys; they also had thirty towns, which are called "Havoth Jair" to this day, which _are_ in the land of Gilead. 
 
 ###### 5 
-And Jair died and was buried in Camon. ## Israel Oppressed Again 
+And Jair died and was buried in Camon.
+
+## Israel Oppressed Again 
 
 ###### 6 
 Then the children of Israel again did evil in the sight of the Lord, and served the Baals and the Ashtoreths, the gods of Syria, the gods of Sidon, the gods of Moab, the gods of the people of Ammon, and the gods of the Philistines; and they forsook the Lord and did not serve Him. 

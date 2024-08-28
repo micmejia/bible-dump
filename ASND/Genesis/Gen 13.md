@@ -436,7 +436,9 @@ Si Abram ay nagpaiwan sa Canaan habang si Lot naman ay naroon sa mga lungsod ng 
 
 
 
-Ang mga tao sa Sodom ay talamak na makasalanan. Labis ang pagkakasala nila laban sa Panginoon. ## Lumipat si Abram sa Hebron 
+Ang mga tao sa Sodom ay talamak na makasalanan. Labis ang pagkakasala nila laban sa Panginoon.
+
+## Lumipat si Abram sa Hebron 
 
 
 

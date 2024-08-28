@@ -28,7 +28,9 @@ But as one was cutting down a tree, the iron _ax head_ fell into the water; and 
 So the man of God said, "Where did it fall?" And he showed him the place. So he cut off a stick, and threw _it_ in there; and he made the iron float. 
 
 ###### 7 
-Therefore he said, "Pick _it_ up for yourself." So he reached out his hand and took it. ## The Blinded Syrians Captured 
+Therefore he said, "Pick _it_ up for yourself." So he reached out his hand and took it.
+
+## The Blinded Syrians Captured 
 
 ###### 8 
 Now the king of Syria was making war against Israel; and he consulted with his servants, saying, "My camp _will be_ in such and such a place." 
@@ -76,7 +78,9 @@ Now when the king of Israel saw them, he said to Elisha, "My father, shall I kil
 But he answered, "You shall not kill _them._ Would you kill those whom you have taken captive with your sword and your bow? Set food and water before them, that they may eat and drink and go to their master." 
 
 ###### 23 
-Then he prepared a great feast for them; and after they ate and drank, he sent them away and they went to their master. So the bands of Syrian _raiders_ came no more into the land of Israel. ## Syria Besieges Samaria in Famine 
+Then he prepared a great feast for them; and after they ate and drank, he sent them away and they went to their master. So the bands of Syrian _raiders_ came no more into the land of Israel.
+
+## Syria Besieges Samaria in Famine 
 
 ###### 24 
 And it happened after this that Ben-Hadad king of Syria gathered all his army, and went up and besieged Samaria. 

@@ -46,13 +46,17 @@ And I say to you that many will come from east and west, and sit down with Abrah
 But the sons of the kingdom will be cast out into outer darkness. There will be weeping and gnashing of teeth." 
 
 ###### 13 
-Then Jesus said to the centurion, "Go your way; and as you have believed, _so_ let it be done for you." And his servant was healed that same hour. ## Peter's Mother-in-Law Healed 
+Then Jesus said to the centurion, "Go your way; and as you have believed, _so_ let it be done for you." And his servant was healed that same hour.
+
+## Peter's Mother-in-Law Healed 
 
 ###### 14 
 Now when Jesus had come into Peter's house, He saw his wife's mother lying sick with a fever. 
 
 ###### 15 
-So He touched her hand, and the fever left her. And she arose and served them. ## Many Healed in the Evening 
+So He touched her hand, and the fever left her. And she arose and served them.
+
+## Many Healed in the Evening 
 
 ###### 16 
 When evening had come, they brought to Him many who were demon-possessed. And He cast out the spirits with a word, and healed all who were sick, 

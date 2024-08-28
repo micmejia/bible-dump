@@ -25,22 +25,30 @@ And the smoke of the incense, with the prayers of the saints, ascended before Go
 Then the angel took the censer, filled it with fire from the altar, and threw _it_ to the earth. And there were noises, thunderings, lightnings, and an earthquake. 
 
 ###### 6 
-So the seven angels who had the seven trumpets prepared themselves to sound. ## First Trumpet: Vegetation Struck 
+So the seven angels who had the seven trumpets prepared themselves to sound.
+
+## First Trumpet: Vegetation Struck 
 
 ###### 7 
-The first angel sounded: And hail and fire followed, mingled with blood, and they were thrown to the earth. And a third of the trees were burned up, and all green grass was burned up. ## Second Trumpet: The Seas Struck 
+The first angel sounded: And hail and fire followed, mingled with blood, and they were thrown to the earth. And a third of the trees were burned up, and all green grass was burned up.
+
+## Second Trumpet: The Seas Struck 
 
 ###### 8 
 Then the second angel sounded: And _something_ like a great mountain burning with fire was thrown into the sea, and a third of the sea became blood. 
 
 ###### 9 
-And a third of the living creatures in the sea died, and a third of the ships were destroyed. ## Third Trumpet: The Waters Struck 
+And a third of the living creatures in the sea died, and a third of the ships were destroyed.
+
+## Third Trumpet: The Waters Struck 
 
 ###### 10 
 Then the third angel sounded: And a great star fell from heaven, burning like a torch, and it fell on a third of the rivers and on the springs of water. 
 
 ###### 11 
-The name of the star is Wormwood. A third of the waters became wormwood, and many men died from the water, because it was made bitter. ## Fourth Trumpet: The Heavens Struck 
+The name of the star is Wormwood. A third of the waters became wormwood, and many men died from the water, because it was made bitter.
+
+## Fourth Trumpet: The Heavens Struck 
 
 ###### 12 
 Then the fourth angel sounded: And a third of the sun was struck, a third of the moon, and a third of the stars, so that a third of them were darkened. A third of the day did not shine, and likewise the night. 

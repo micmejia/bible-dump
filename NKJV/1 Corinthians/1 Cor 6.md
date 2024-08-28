@@ -40,7 +40,9 @@ Do you not know that the unrighteous will not inherit the kingdom of God? Do not
 nor thieves, nor covetous, nor drunkards, nor revilers, nor extortioners will inherit the kingdom of God. 
 
 ###### 11 
-And such were some of you. But you were washed, but you were sanctified, but you were justified in the name of the Lord Jesus and by the Spirit of our God. ## Glorify God in Body and Spirit 
+And such were some of you. But you were washed, but you were sanctified, but you were justified in the name of the Lord Jesus and by the Spirit of our God.
+
+## Glorify God in Body and Spirit 
 
 ###### 12 
 All things are lawful for me, but all things are not helpful. All things are lawful for me, but I will not be brought under the power of any. 

@@ -31,7 +31,9 @@ If anyone does not abide in Me, he is cast out as a branch and is withered; and 
 If you abide in Me, and My words abide in you, you will ask what you desire, and it shall be done for you. 
 
 ###### 8 
-By this My Father is glorified, that you bear much fruit; so you will be My disciples. ## Love and Joy Perfected 
+By this My Father is glorified, that you bear much fruit; so you will be My disciples.
+
+## Love and Joy Perfected 
 
 ###### 9 
 "As the Father loved Me, I also have loved you; abide in My love. 
@@ -58,7 +60,9 @@ No longer do I call you servants, for a servant does not know what his master is
 You did not choose Me, but I chose you and appointed you that you should go and bear fruit, and _that_ your fruit should remain, that whatever you ask the Father in My name He may give you. 
 
 ###### 17 
-These things I command you, that you love one another. ## The World's Hatred 
+These things I command you, that you love one another.
+
+## The World's Hatred 
 
 ###### 18 
 "If the world hates you, you know that it hated Me before _it hated_ you. 

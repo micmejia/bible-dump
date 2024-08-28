@@ -271,7 +271,9 @@ Aba, hindi maaari iyan. Sapagkat kung ganyan, paano niya hahatulan ang mga tao s
 
 
 
-Kung ganito ang iyong pangangatwiran, para mo na ring sinasabi na gumawa tayo ng masama para lumabas ang mabuti. At ayon sa mga taong naninira sa amin, ganyan daw ang aming itinuturo. Ang mga taong iyan ay nararapat lamang na parusahan <i class="trans-change">ng Dios_. ## Ang Lahat ng Tao ay Makasalanan 
+Kung ganito ang iyong pangangatwiran, para mo na ring sinasabi na gumawa tayo ng masama para lumabas ang mabuti. At ayon sa mga taong naninira sa amin, ganyan daw ang aming itinuturo. Ang mga taong iyan ay nararapat lamang na parusahan <i class="trans-change">ng Dios_.
+
+## Ang Lahat ng Tao ay Makasalanan 
 
 
 

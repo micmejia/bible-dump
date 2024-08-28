@@ -436,7 +436,9 @@ Pero sumagot si Jesus, "Sinasabi sa Kasulatan, 'Huwag mong subukin ang Panginoon
 
 
 
-Matapos siyang tuksuhin ng diyablo sa lahat ng paraan, iniwan siya nito at naghintay ng ibang pagkakataon. ## Sinimulan ni Jesus ang Kanyang Gawain 
+Matapos siyang tuksuhin ng diyablo sa lahat ng paraan, iniwan siya nito at naghintay ng ibang pagkakataon.
+
+## Sinimulan ni Jesus ang Kanyang Gawain 
 
 
 
@@ -502,7 +504,9 @@ Bumalik si Jesus sa Galilea na taglay ang kapangyarihan ng <i class="trans-chang
 
 
 
-Nagturo siya sa mga sambahan ng mga Judio, at pinuri siya ng lahat. ## Hindi Tinanggap si Jesus sa Nazaret 
+Nagturo siya sa mga sambahan ng mga Judio, at pinuri siya ng lahat.
+
+## Hindi Tinanggap si Jesus sa Nazaret 
 
 
 
@@ -997,7 +1001,9 @@ Nagtayuan sila at ipinagtabuyan si Jesus palabas ng bayan, at dinala malapit sa 
 
 
 
-Pero dumaan siya sa kalagitnaan nila at iniwan sila. ## Ang Taong Sinaniban ng Masamang Espiritu 
+Pero dumaan siya sa kalagitnaan nila at iniwan sila.
+
+## Ang Taong Sinaniban ng Masamang Espiritu 
 
 
 
@@ -1228,7 +1234,9 @@ Namangha ang mga tao at sinabi nila sa isaʼt isa, "Anong uri ang ipinangangaral
 
 
 
-Kaya kumalat ang balita tungkol kay Jesus sa buong lupaing iyon. ## Maraming Pinagaling si Jesus 
+Kaya kumalat ang balita tungkol kay Jesus sa buong lupaing iyon.
+
+## Maraming Pinagaling si Jesus 
 
 
 

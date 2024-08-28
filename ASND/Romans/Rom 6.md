@@ -469,7 +469,9 @@ Huwag na ninyong gamitin ang alin mang bahagi ng inyong katawan sa paggawa ng ka
 
 
 
-Sapagkat hindi na dapat maghari pa sa inyo ang kasalanan, dahil wala na kayo sa ilalim ng Kautusan kundi sa ilalim na ng biyaya <i class="trans-change">ng Dios_. ## Mga Alipin ng Katuwiran 
+Sapagkat hindi na dapat maghari pa sa inyo ang kasalanan, dahil wala na kayo sa ilalim ng Kautusan kundi sa ilalim na ng biyaya <i class="trans-change">ng Dios_.
+
+## Mga Alipin ng Katuwiran 
 
 
 

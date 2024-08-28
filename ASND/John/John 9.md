@@ -1129,7 +1129,9 @@ Kung hindi nanggaling sa Dios ang taong iyon, hindi niya magagawa ang himalang i
 
 
 
-Sumagot ang mga pinuno ng mga Judio, "Ipinanganak kang makasalanan! At ang lakas pa ng loob mo ngayon na pangaralan kami!" At pinagbawalan nila siyang pumasok sa sambahan nila. ## Ang Espiritwal na Pagkabulag 
+Sumagot ang mga pinuno ng mga Judio, "Ipinanganak kang makasalanan! At ang lakas pa ng loob mo ngayon na pangaralan kami!" At pinagbawalan nila siyang pumasok sa sambahan nila.
+
+## Ang Espiritwal na Pagkabulag 
 
 
 

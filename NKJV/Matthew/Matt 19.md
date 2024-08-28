@@ -43,7 +43,9 @@ His disciples said to Him, "If such is the case of the man with _his_ wife, it i
 But He said to them, "All cannot accept this saying, but only _those_ to whom it has been given: 
 
 ###### 12 
-For there are eunuchs who were born thus from _their_ mother's womb, and there are eunuchs who were made eunuchs by men, and there are eunuchs who have made themselves eunuchs for the kingdom of heaven's sake. He who is able to accept _it,_ let him accept _it."_ ## Jesus Blesses Little Children 
+For there are eunuchs who were born thus from _their_ mother's womb, and there are eunuchs who were made eunuchs by men, and there are eunuchs who have made themselves eunuchs for the kingdom of heaven's sake. He who is able to accept _it,_ let him accept _it."_
+
+## Jesus Blesses Little Children 
 
 ###### 13 
 Then little children were brought to Him that He might put _His_ hands on them and pray, but the disciples rebuked them. 
@@ -52,7 +54,9 @@ Then little children were brought to Him that He might put _His_ hands on them a
 But Jesus said, "Let the little children come to Me, and do not forbid them; for of such is the kingdom of heaven." 
 
 ###### 15 
-And He laid _His_ hands on them and departed from there. ## Jesus Counsels the Rich Young Ruler 
+And He laid _His_ hands on them and departed from there.
+
+## Jesus Counsels the Rich Young Ruler 
 
 ###### 16 
 Now behold, one came and said to Him, "Good Teacher, what good thing shall I do that I may have eternal life?" 
@@ -73,7 +77,9 @@ The young man said to Him, "All these things I have kept from my youth. What do 
 Jesus said to him, "If you want to be perfect, go, sell what you have and give to the poor, and you will have treasure in heaven; and come, follow Me." 
 
 ###### 22 
-But when the young man heard that saying, he went away sorrowful, for he had great possessions. ## With God All Things Are Possible 
+But when the young man heard that saying, he went away sorrowful, for he had great possessions.
+
+## With God All Things Are Possible 
 
 ###### 23 
 Then Jesus said to His disciples, "Assuredly, I say to you that it is hard for a rich man to enter the kingdom of heaven. 

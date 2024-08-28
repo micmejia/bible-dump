@@ -105,7 +105,9 @@ Sumagot ang Panginoon, "Ang lahi ni Juda, dahil ipinagkatiwala ko sa kanila ang 
 
 
 
-Kaya sinabi ng lahi ni Juda sa lahi ni Simeon na kanilang kadugo, "Tulungan nʼyo kaming sakupin ang lugar ng mga Cananeo na para sa amin at tutulungan din namin kayo na sakupin ang lugar na para sa inyo." Kaya tinulungan sila ng lahi ni Simeon <i class="trans-change">sa labanan_. ###### 4-5 Nang lumusob ang <i class="trans-change">angkan ni_ Juda, pinagtagumpay sila ng Panginoon laban sa mga Cananeo at Perezeo. May 10,000 tao ang napatay nila sa Bezek. Habang nakikipaglaban sila sa Bezek, nakalaban nila roon si Adoni Bezek <i class="trans-change">na hari sa lugar na iyon_. 
+Kaya sinabi ng lahi ni Juda sa lahi ni Simeon na kanilang kadugo, "Tulungan nʼyo kaming sakupin ang lugar ng mga Cananeo na para sa amin at tutulungan din namin kayo na sakupin ang lugar na para sa inyo." Kaya tinulungan sila ng lahi ni Simeon <i class="trans-change">sa labanan_.
+
+###### 4-5 Nang lumusob ang <i class="trans-change">angkan ni_ Juda, pinagtagumpay sila ng Panginoon laban sa mga Cananeo at Perezeo. May 10,000 tao ang napatay nila sa Bezek. Habang nakikipaglaban sila sa Bezek, nakalaban nila roon si Adoni Bezek <i class="trans-change">na hari sa lugar na iyon_. 
 
 
 
@@ -270,7 +272,9 @@ Pagkatapos, kinalaban nila ang mga Cananeo na nakatira sa mga kabundukan, sa Neg
 
 
 
-Nilusob din nila ang mga Cananeo na nakatira sa Hebron (na noon ay tinatawag na Kiriat Arba), at pinatay nila sina Sheshai, Ahiman at Talmai. ## Sinakop ni Otniel ang Lungsod ng Debir 
+Nilusob din nila ang mga Cananeo na nakatira sa Hebron (na noon ay tinatawag na Kiriat Arba), at pinatay nila sina Sheshai, Ahiman at Talmai.
+
+## Sinakop ni Otniel ang Lungsod ng Debir 
 
 
 
@@ -435,7 +439,9 @@ Nang ikinasal na sila, hinikayat ni Acsa ang asawa niya na humingi sila ng <i cl
 
 
 
-Sumagot si Acsa, "Hihingi po sana ako ng pabor sa inyo, gusto ko po sanang bigyan nʼyo ako ng <i class="trans-change">lupaing may_ mga bukal, dahil ang lupaing ibinigay nʼyo sa akin sa Negev <i class="trans-change">ay walang bukal_." Kaya ibinigay sa kanya ni Caleb ang <i class="trans-change">lugar na may_ mga bukal sa itaas at sa ibaba <i class="trans-change">ng Negev_. ## Ang mga Pananakop ng lahi ni Juda at ng lahi ni Benjamin 
+Sumagot si Acsa, "Hihingi po sana ako ng pabor sa inyo, gusto ko po sanang bigyan nʼyo ako ng <i class="trans-change">lupaing may_ mga bukal, dahil ang lupaing ibinigay nʼyo sa akin sa Negev <i class="trans-change">ay walang bukal_." Kaya ibinigay sa kanya ni Caleb ang <i class="trans-change">lugar na may_ mga bukal sa itaas at sa ibaba <i class="trans-change">ng Negev_.
+
+## Ang mga Pananakop ng lahi ni Juda at ng lahi ni Benjamin 
 
 
 
@@ -633,7 +639,9 @@ At tulad ng ipinangako ni Moises, ibinigay kay Caleb ang Hebron. Itinaboy ni Cal
 
 
 
-Hindi itinaboy ng lahi ni Benjamin ang mga Jebuseo na nakatira sa Jerusalem. Kaya hanggang ngayon, naninirahan pa rin ang mga ito kasama ng mga lahi ni Benjamin. ## Sinakop ng Dalawang Lahi ni Jose ang Betel <sup class="versenum">22-23</sup>Ngayon, nilusob ng mga lahi ni Jose ang lungsod ng Betel (na noon ay tinatawag na Luz), at tinulungan sila ng Panginoon. Nang nagpadala sila ng mga tao para mag-espiya sa Betel, 
+Hindi itinaboy ng lahi ni Benjamin ang mga Jebuseo na nakatira sa Jerusalem. Kaya hanggang ngayon, naninirahan pa rin ang mga ito kasama ng mga lahi ni Benjamin.
+
+## Sinakop ng Dalawang Lahi ni Jose ang Betel <sup class="versenum">22-23</sup>Ngayon, nilusob ng mga lahi ni Jose ang lungsod ng Betel (na noon ay tinatawag na Luz), at tinulungan sila ng Panginoon. Nang nagpadala sila ng mga tao para mag-espiya sa Betel, 
 
 
 
@@ -732,7 +740,9 @@ Tinuruan niya sila, at pinatay nila ang lahat ng nakatira sa lungsod na iyon. Pe
 
 
 
-Ang taong itoʼy pumunta sa lupain ng mga Heteo, at doon nagtayo ng isang lungsod na tinawag niyang Luz. Ito pa rin ang pangalan nito hanggang ngayon. ## Ang mga Tao na Hindi Itinaboy ng mga Israelita sa Kanilang mga Lupain 
+Ang taong itoʼy pumunta sa lupain ng mga Heteo, at doon nagtayo ng isang lungsod na tinawag niyang Luz. Ito pa rin ang pangalan nito hanggang ngayon.
+
+## Ang mga Tao na Hindi Itinaboy ng mga Israelita sa Kanilang mga Lupain 
 
 
 

@@ -25,7 +25,9 @@ And they were _left, that He might_ test Israel by them, to know whether they wo
 Thus the children of Israel dwelt among the Canaanites, the Hittites, the Amorites, the Perizzites, the Hivites, and the Jebusites. 
 
 ###### 6 
-And they took their daughters to be their wives, and gave their daughters to their sons; and they served their gods. ## Othniel 
+And they took their daughters to be their wives, and gave their daughters to their sons; and they served their gods.
+
+## Othniel 
 
 ###### 7 
 So the children of Israel did evil in the sight of the Lord. They forgot the Lord their God, and served the Baals and Asherahs. 
@@ -40,7 +42,9 @@ When the children of Israel cried out to the Lord, the Lord raised up a delivere
 The Spirit of the Lord came upon him, and he judged Israel. He went out to war, and the Lord delivered Cushan-Rishathaim king of Mesopotamia into his hand; and his hand prevailed over Cushan-Rishathaim. 
 
 ###### 11 
-So the land had rest for forty years. Then Othniel the son of Kenaz died. ## Ehud 
+So the land had rest for forty years. Then Othniel the son of Kenaz died.
+
+## Ehud 
 
 ###### 12 
 And the children of Israel again did evil in the sight of the Lord. So the Lord strengthened Eglon king of Moab against Israel, because they had done evil in the sight of the Lord. 
@@ -97,7 +101,9 @@ Then he said to them, "Follow _me,_ for the Lord has delivered your enemies the 
 And at that time they killed about ten thousand men of Moab, all stout men of valor; not a man escaped. 
 
 ###### 30 
-So Moab was subdued that day under the hand of Israel. And the land had rest for eighty years. ## Shamgar 
+So Moab was subdued that day under the hand of Israel. And the land had rest for eighty years.
+
+## Shamgar 
 
 ###### 31 
 After him was Shamgar the son of Anath, who killed six hundred men of the Philistines with an ox goad; and he also delivered Israel.

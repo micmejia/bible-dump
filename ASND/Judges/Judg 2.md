@@ -304,7 +304,9 @@ Ang lingkod ng Panginoon na si Josue na anak ni Nun ay namatay sa edad na 110.
 
 
 
-Inilibing siya sa kanyang lupain doon sa Timnat Heres, sa kabundukan ng Efraim, sa hilaga ng Bundok ng Gaas. ## Huminto ang mga Israelita sa Paglilingkod sa Panginoon 
+Inilibing siya sa kanyang lupain doon sa Timnat Heres, sa kabundukan ng Efraim, sa hilaga ng Bundok ng Gaas.
+
+## Huminto ang mga Israelita sa Paglilingkod sa Panginoon 
 
 
 

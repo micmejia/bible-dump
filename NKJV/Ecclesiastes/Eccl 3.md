@@ -31,7 +31,9 @@ A time to gain, And a time to lose; A time to keep, And a time to throw away;
 A time to tear, And a time to sew; A time to keep silence, And a time to speak; 
 
 ###### 8 
-A time to love, And a time to hate; A time of war, And a time of peace. ## The God-Given Task 
+A time to love, And a time to hate; A time of war, And a time of peace.
+
+## The God-Given Task 
 
 ###### 9 
 What profit has the worker from that in which he labors? 
@@ -52,7 +54,9 @@ and also that every man should eat and drink and enjoy the good of all his labor
 I know that whatever God does, It shall be forever. Nothing can be added to it, And nothing taken from it. God does _it,_ that men should fear before Him. 
 
 ###### 15 
-That which is has already been, And what is to be has already been; And God requires an account of what is past. ## Injustice Seems to Prevail 
+That which is has already been, And what is to be has already been; And God requires an account of what is past.
+
+## Injustice Seems to Prevail 
 
 ###### 16 
 Moreover I saw under the sun: _In_ the place of judgment, Wickedness _was_ there; And _in_ the place of righteousness, Iniquity _was_ there. 

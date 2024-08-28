@@ -10,7 +10,9 @@ next: ['2 Sam 4']
 
 
 ###### 1 
-Now there was a long war between the house of Saul and the house of David. But David grew stronger and stronger, and the house of Saul grew weaker and weaker. ## Sons of David 
+Now there was a long war between the house of Saul and the house of David. But David grew stronger and stronger, and the house of Saul grew weaker and weaker.
+
+## Sons of David 
 
 ###### 2 
 Sons were born to David in Hebron: His firstborn was Amnon by Ahinoam the Jezreelitess; 
@@ -22,7 +24,9 @@ his second, Chileab, by Abigail the widow of Nabal the Carmelite; the third, Abs
 the fourth, Adonijah the son of Haggith; the fifth, Shephatiah the son of Abital; 
 
 ###### 5 
-and the sixth, Ithream, by David's wife Eglah. These were born to David in Hebron. ## Abner Joins Forces with David 
+and the sixth, Ithream, by David's wife Eglah. These were born to David in Hebron.
+
+## Abner Joins Forces with David 
 
 ###### 6 
 Now it was so, while there was war between the house of Saul and the house of David, that Abner was strengthening _his hold_ on the house of Saul. 
@@ -70,7 +74,9 @@ And Abner also spoke in the hearing of Benjamin. Then Abner also went to speak i
 So Abner and twenty men with him came to David at Hebron. And David made a feast for Abner and the men who _were_ with him. 
 
 ###### 21 
-Then Abner said to David, "I will arise and go, and gather all Israel to my lord the king, that they may make a covenant with you, and that you may reign over all that your heart desires." So David sent Abner away, and he went in peace. ## Joab Murders Abner 
+Then Abner said to David, "I will arise and go, and gather all Israel to my lord the king, that they may make a covenant with you, and that you may reign over all that your heart desires." So David sent Abner away, and he went in peace.
+
+## Joab Murders Abner 
 
 ###### 22 
 At that moment the servants of David and Joab came from a raid and brought much spoil with them. But Abner _was_ not with David in Hebron, for he had sent him away, and he had gone in peace. 
@@ -97,7 +103,9 @@ Afterward, when David heard _it,_ he said, "My kingdom and I _are_ guiltless bef
 Let it rest on the head of Joab and on all his father's house; and let there never fail to be in the house of Joab one who has a discharge or is a leper, who leans on a staff or falls by the sword, or who lacks bread." 
 
 ###### 30 
-So Joab and Abishai his brother killed Abner, because he had killed their brother Asahel at Gibeon in the battle. ## David's Mourning for Abner 
+So Joab and Abishai his brother killed Abner, because he had killed their brother Asahel at Gibeon in the battle.
+
+## David's Mourning for Abner 
 
 ###### 31 
 Then David said to Joab and to all the people who were with him, "Tear your clothes, gird yourselves with sackcloth, and mourn for Abner." And King David followed the coffin. 

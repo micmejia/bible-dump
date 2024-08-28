@@ -105,7 +105,9 @@ next: ['1 Cor 2']
 
 
 
-Sumainyo nawa ang biyaya at kapayapaang galing sa Dios na ating Ama at sa Panginoong Jesu-Cristo. ## Mga Pagpapala Mula kay Cristo 
+Sumainyo nawa ang biyaya at kapayapaang galing sa Dios na ating Ama at sa Panginoong Jesu-Cristo.
+
+## Mga Pagpapala Mula kay Cristo 
 
 
 
@@ -303,7 +305,9 @@ Pananatilihin niya kayong matatag <i class="trans-change">sa pananampalataya_ ha
 
 
 
-Tapat ang Dios na tumawag sa inyo upang makipag-isa sa kanyang Anak na si Jesu-Cristo na ating Panginoon. ## Dapat Magkaisa ang mga Mananampalataya 
+Tapat ang Dios na tumawag sa inyo upang makipag-isa sa kanyang Anak na si Jesu-Cristo na ating Panginoon.
+
+## Dapat Magkaisa ang mga Mananampalataya 
 
 
 
@@ -567,7 +571,9 @@ Kaya walang makapagsasabing binautismuhan kayo sa pangalan ko.
 
 
 
-Sapagkat hindi ako isinugo ni Cristo upang magbautismo, kundi upang mangaral ng Magandang Balita. At hindi ko ito ginagawa sa pamamagitan ng mahusay na pananalita at karunungan ng tao, upang hindi mawalan ng kapangyarihan ang pagkamatay ni Cristo sa krus. ## Si Cristo ang Kapangyarihan at Karunungan ng Dios. 
+Sapagkat hindi ako isinugo ni Cristo upang magbautismo, kundi upang mangaral ng Magandang Balita. At hindi ko ito ginagawa sa pamamagitan ng mahusay na pananalita at karunungan ng tao, upang hindi mawalan ng kapangyarihan ang pagkamatay ni Cristo sa krus.
+
+## Si Cristo ang Kapangyarihan at Karunungan ng Dios. 
 
 
 

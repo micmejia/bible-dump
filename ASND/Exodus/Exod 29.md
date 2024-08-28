@@ -1228,7 +1228,9 @@ Bawat araw, maghandog ka ng isang baka bilang handog sa paglilinis para maging m
 
 
 
-Gawin mo ito sa loob ng pitong araw; at magiging pinakabanal ang altar, at dapat banal din ang humahawak nito. ## Ang Araw-araw na mga Handog 
+Gawin mo ito sa loob ng pitong araw; at magiging pinakabanal ang altar, at dapat banal din ang humahawak nito.
+
+## Ang Araw-araw na mga Handog 
 
 
 

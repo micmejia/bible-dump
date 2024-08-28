@@ -139,7 +139,9 @@ At kapag umaga at makulimlim ang langit, sinasabi ninyo, 'Uulan ngayon.' Alam ni
 
 
 
-Kayong henerasyon ng masasama at hindi tapat sa Dios! Humihingi kayo ng himala, pero walang ipapakita sa inyo maliban sa himalang katulad ng nangyari kay Jonas." Pagkatapos, umalis si Jesus. ## Ang Babala ni Jesus tungkol sa Turo ng mga Pariseo at mga Saduceo 
+Kayong henerasyon ng masasama at hindi tapat sa Dios! Humihingi kayo ng himala, pero walang ipapakita sa inyo maliban sa himalang katulad ng nangyari kay Jonas." Pagkatapos, umalis si Jesus.
+
+## Ang Babala ni Jesus tungkol sa Turo ng mga Pariseo at mga Saduceo 
 
 
 
@@ -403,7 +405,9 @@ Hindi ba ninyo naiintindihan na hindi tinapay ang tinutukoy ko nang sabihin kong
 
 
 
-At saka lang nila naintindihan na hindi pala sila pinag-iingat sa pampaalsa kundi sa mga aral ng mga Pariseo at Saduceo. ## Ang Pahayag ni Pedro Tungkol kay Jesus 
+At saka lang nila naintindihan na hindi pala sila pinag-iingat sa pampaalsa kundi sa mga aral ng mga Pariseo at Saduceo.
+
+## Ang Pahayag ni Pedro Tungkol kay Jesus 
 
 
 
@@ -667,7 +671,9 @@ Ibibigay ko sa iyo ang kapangyarihan sa kaharian ng Dios. Anuman ang ipagbawal m
 
 
 
-Pagkatapos nito, sinabihan ni Jesus ang mga tagasunod niya na huwag nilang ipaalam kahit kanino na siya ang Cristo. ## Ang Unang Pagpapahayag ni Jesus tungkol sa Kanyang Kamatayan 
+Pagkatapos nito, sinabihan ni Jesus ang mga tagasunod niya na huwag nilang ipaalam kahit kanino na siya ang Cristo.
+
+## Ang Unang Pagpapahayag ni Jesus tungkol sa Kanyang Kamatayan 
 
 
 

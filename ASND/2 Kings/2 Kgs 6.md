@@ -238,7 +238,9 @@ Tinanong ni Eliseo, "Saang banda nahulog?" Itinuro niya kung saang banda ito nah
 
 
 
-Sinabi ni Eliseo, "Kunin mo na." At kinuha nga niya ito. ## Pinahinto ni Eliseo ang Paglusob ng mga Arameo 
+Sinabi ni Eliseo, "Kunin mo na." At kinuha nga niya ito.
+
+## Pinahinto ni Eliseo ang Paglusob ng mga Arameo 
 
 
 
@@ -766,7 +768,9 @@ Sumagot si Eliseo, "Huwag mo silang patayin. Pinapatay ba natin ang mga bihag sa
 
 
 
-Kaya naghanda ang hari ng isang malaking salo-salo para sa kanila at pagkatapos, pinauwi sila sa kanilang hari. At mula noon, hindi na muling lumusob ang mga Arameo sa lupain ng Israel. ## Pinaligiran ang Samaria 
+Kaya naghanda ang hari ng isang malaking salo-salo para sa kanila at pagkatapos, pinauwi sila sa kanilang hari. At mula noon, hindi na muling lumusob ang mga Arameo sa lupain ng Israel.
+
+## Pinaligiran ang Samaria 
 
 
 

@@ -271,7 +271,9 @@ Ang handog na inumin na isasama sa bawat tupa ay isang litrong alak at ibubuhos 
 
 
 
-Ito rin ang gagawin ninyo sa ikalawang tupa na ihahandog ninyo sa hapon. Samahan din ninyo ito ng isang handog bilang pagpaparangal sa Panginoon at handog na inumin. Ang mabangong samyo ng handog na ito sa pamamagitan ng apoy ay makalulugod sa Panginoon. ## Ang mga Handog sa Araw ng Pamamahinga 
+Ito rin ang gagawin ninyo sa ikalawang tupa na ihahandog ninyo sa hapon. Samahan din ninyo ito ng isang handog bilang pagpaparangal sa Panginoon at handog na inumin. Ang mabangong samyo ng handog na ito sa pamamagitan ng apoy ay makalulugod sa Panginoon.
+
+## Ang mga Handog sa Araw ng Pamamahinga 
 
 
 
@@ -337,7 +339,9 @@ Ito rin ang gagawin ninyo sa ikalawang tupa na ihahandog ninyo sa hapon. Samahan
 
 
 
-Ito ang handog na sinusunog tuwing Araw ng Pamamahinga, bukod pa sa pang-araw-araw na handog kasama ang handog na inumin. ## Ang Buwanang Handog 
+Ito ang handog na sinusunog tuwing Araw ng Pamamahinga, bukod pa sa pang-araw-araw na handog kasama ang handog na inumin.
+
+## Ang Buwanang Handog 
 
 
 
@@ -832,7 +836,9 @@ Sa ganitong paraan ninyo ialay itong mga handog sa pamamagitan ng apoy bilang pa
 
 
 
-Sa ikapitong araw, muli kayong magtipon sa pagsamba sa Panginoon. At huwag kayong magtatrabaho sa araw na iyon. ## Ang mga Handog sa Panahon ng Pista ng Pag-aani 
+Sa ikapitong araw, muli kayong magtipon sa pagsamba sa Panginoon. At huwag kayong magtatrabaho sa araw na iyon.
+
+## Ang mga Handog sa Panahon ng Pista ng Pag-aani 
 
 
 

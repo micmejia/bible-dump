@@ -25,7 +25,9 @@ Then He said to them, "Is it lawful on the Sabbath to do good or to do evil, to 
 And when He had looked around at them with anger, being grieved by the hardness of their hearts, He said to the man, "Stretch out your hand." And he stretched _it_ out, and his hand was restored as whole as the other. 
 
 ###### 6 
-Then the Pharisees went out and immediately plotted with the Herodians against Him, how they might destroy Him. ## A Great Multitude Follows Jesus 
+Then the Pharisees went out and immediately plotted with the Herodians against Him, how they might destroy Him.
+
+## A Great Multitude Follows Jesus 
 
 ###### 7 
 But Jesus withdrew with His disciples to the sea. And a great multitude from Galilee followed Him, and from Judea 
@@ -43,7 +45,9 @@ For He healed many, so that as many as had afflictions pressed about Him to touc
 And the unclean spirits, whenever they saw Him, fell down before Him and cried out, saying, "You are the Son of God." 
 
 ###### 12 
-But He sternly warned them that they should not make Him known. ## The Twelve Apostles 
+But He sternly warned them that they should not make Him known.
+
+## The Twelve Apostles 
 
 ###### 13 
 And He went up on the mountain and called to _Him_ those He Himself wanted. And they came to Him. 
@@ -64,7 +68,9 @@ James the _son_ of Zebedee and John the brother of James, to whom He gave the na
 Andrew, Philip, Bartholomew, Matthew, Thomas, James the _son_ of Alphaeus, Thaddaeus, Simon the Cananite; 
 
 ###### 19 
-and Judas Iscariot, who also betrayed Him. And they went into a house. ## A House Divided Cannot Stand 
+and Judas Iscariot, who also betrayed Him. And they went into a house.
+
+## A House Divided Cannot Stand 
 
 ###### 20 
 Then the multitude came together again, so that they could not so much as eat bread. 
@@ -88,7 +94,9 @@ And if a house is divided against itself, that house cannot stand.
 And if Satan has risen up against himself, and is divided, he cannot stand, but has an end. 
 
 ###### 27 
-No one can enter a strong man's house and plunder his goods, unless he first binds the strong man. And then he will plunder his house. ## The Unpardonable Sin 
+No one can enter a strong man's house and plunder his goods, unless he first binds the strong man. And then he will plunder his house.
+
+## The Unpardonable Sin 
 
 ###### 28 
 "Assuredly, I say to you, all sins will be forgiven the sons of men, and whatever blasphemies they may utter; 

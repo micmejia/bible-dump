@@ -337,7 +337,9 @@ Naging ganap siya at pinagmulan ng walang hanggang kaligtasan ng lahat ng sumusu
 
 
 
-Kaya itinalaga siya ng Dios na maging punong pari tulad ng pagkapari ni Melkizedek. ## Babala sa Pagtalikod sa Dios 
+Kaya itinalaga siya ng Dios na maging punong pari tulad ng pagkapari ni Melkizedek.
+
+## Babala sa Pagtalikod sa Dios 
 
 
 

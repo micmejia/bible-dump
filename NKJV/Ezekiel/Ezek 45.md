@@ -22,7 +22,9 @@ So this is the district you shall measure: twenty-five thousand _cubits_ long an
 It shall be a holy _section_ of the land, belonging to the priests, the ministers of the sanctuary, who come near to minister to the Lord; it shall be a place for their houses and a holy place for the sanctuary. 
 
 ###### 5 
-_An area_ twenty-five thousand _cubits_ long and ten thousand wide shall belong to the Levites, the ministers of the temple; they shall have twenty chambers as a possession. ## Properties of the City and the Prince 
+_An area_ twenty-five thousand _cubits_ long and ten thousand wide shall belong to the Levites, the ministers of the temple; they shall have twenty chambers as a possession.
+
+## Properties of the City and the Prince 
 
 ###### 6 
 "You shall appoint as the property of the city _an area_ five thousand _cubits_ wide and twenty-five thousand long, adjacent to the district of the holy _section;_ it shall belong to the whole house of Israel. 

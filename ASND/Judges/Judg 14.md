@@ -60,7 +60,11 @@ Pagkalipas ng ilang araw, bumalik siya sa Timnah para pakasalan ang babae. Doon 
 ###### 9 
 
 
-Isinandok niya ang kanyang kamay sa pulot at kinain ito habang naglalakad. Nang makita niya ang kanyang magulang, binigyan niya sila ng pulot, at kinain din nila ito. Pero hindi niya sinabi sa kanila na kinuha niya ito sa bangkay ng leon. 10-11Pumunta ang ama ni Samson sa bahay ng magiging manugang niya, at doon ay nagpa-piging si Samson ayon sa kaugalian nila na dapat gawin ng isang nobyo. Nang makita nila si Samson, binigyan siya ng 30 binatang lalaki para makasama niya. 
+Isinandok niya ang kanyang kamay sa pulot at kinain ito habang naglalakad. Nang makita niya ang kanyang magulang, binigyan niya sila ng pulot, at kinain din nila ito. Pero hindi niya sinabi sa kanila na kinuha niya ito sa bangkay ng leon.
+
+###### 10-11
+
+Pumunta ang ama ni Samson sa bahay ng magiging manugang niya, at doon ay nagpa-piging si Samson ayon sa kaugalian nila na dapat gawin ng isang nobyo. Nang makita nila si Samson, binigyan siya ng 30 binatang lalaki para makasama niya. 
 
 
 ###### 12 

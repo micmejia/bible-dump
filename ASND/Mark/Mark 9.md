@@ -74,7 +74,11 @@ Kaya hindi nila sinabi kahit kanino ang pangyayaring iyon. Pero pinag-usapan nil
 ###### 11 
 
 
-Nagtanong sila kay Jesus, "Bakit sinasabi po ng mga tagapagturo ng Kautusan na kailangan daw munang dumating si Elias bago dumating ang Cristo?" 12-13Sumagot siya sa kanila, "Totoo iyan, kailangan ngang dumating muna si Elias upang ihanda ang lahat ng bagay. Ngunit sasabihin ko sa inyo: dumating na si Elias at ginawa ng mga tao ang gusto nilang gawin sa kanya ayon na rin sa isinulat tungkol sa kanya. Ngunit bakit nasusulat din na ako na Anak ng Tao ay magtitiis ng maraming hirap at itatakwil ng mga tao?" 
+Nagtanong sila kay Jesus, "Bakit sinasabi po ng mga tagapagturo ng Kautusan na kailangan daw munang dumating si Elias bago dumating ang Cristo?"
+
+###### 12-13
+
+Sumagot siya sa kanila, "Totoo iyan, kailangan ngang dumating muna si Elias upang ihanda ang lahat ng bagay. Ngunit sasabihin ko sa inyo: dumating na si Elias at ginawa ng mga tao ang gusto nilang gawin sa kanya ayon na rin sa isinulat tungkol sa kanya. Ngunit bakit nasusulat din na ako na Anak ng Tao ay magtitiis ng maraming hirap at itatakwil ng mga tao?" 
 
 ## Pinagaling ni Jesus ang Batang Sinasaniban ng Masamang Espiritu 
 
@@ -258,7 +262,15 @@ Sinasabi ko sa inyo ang totoo, ang sinumang magbigay sa inyo ng kahit isang baso
 ###### 42 
 
 
-"Ngunit ang sinumang magiging dahilan ng pagkakasala ng maliliit na batang ito na sumasampalataya sa akin ay mabuti pang talian sa leeg ng gilingang bato at itapon sa dagat. 43-44Kung ang kamay mo ang dahilan ng iyong pagkakasala, putulin mo! Mas mabuti pang isa lang ang kamay mo pero may buhay na walang hanggan ka, kaysa sa dalawa ang kamay mo pero sa impyerno ka naman mapupunta, kung saan ang apoy ay hindi namamatay. 45-46Kung ang paa mo ang dahilan ng iyong pagkakasala, putulin mo! Mas mabuti pang isa lang ang paa mo pero may buhay na walang hanggan ka, kaysa sa dalawa ang paa mo pero itatapon ka naman sa impyerno. 
+"Ngunit ang sinumang magiging dahilan ng pagkakasala ng maliliit na batang ito na sumasampalataya sa akin ay mabuti pang talian sa leeg ng gilingang bato at itapon sa dagat.
+
+###### 43-44
+
+Kung ang kamay mo ang dahilan ng iyong pagkakasala, putulin mo! Mas mabuti pang isa lang ang kamay mo pero may buhay na walang hanggan ka, kaysa sa dalawa ang kamay mo pero sa impyerno ka naman mapupunta, kung saan ang apoy ay hindi namamatay.
+
+###### 45-46
+
+Kung ang paa mo ang dahilan ng iyong pagkakasala, putulin mo! Mas mabuti pang isa lang ang paa mo pero may buhay na walang hanggan ka, kaysa sa dalawa ang paa mo pero itatapon ka naman sa impyerno. 
 
 
 ###### 47 

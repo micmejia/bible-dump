@@ -174,7 +174,11 @@ Sinabi niya, "Purihin ang Panginoon, ang Dios ng aking amo na si Abraham. Ipinak
 ###### 28 
 
 
-Patakbong umuwi si Rebeka sa bahay ng kanyang ina at sinabi niya sa kanila ang lahat ng nangyari. 29-30Ang kapatid niyang si Laban ay naroon din na nakikinig sa sinasabi niya tungkol sa binanggit ng tao sa kanya. Nakita ni Laban ang singsing at pulseras na suot-suot ni Rebeka. Kaya tumakbo siya papunta sa balon at pumunta sa taong sinasabi ni Rebeka. Naroon pa rin ang lalaki na nakatayo malapit sa balon, sa tabi ng mga kamelyo. 
+Patakbong umuwi si Rebeka sa bahay ng kanyang ina at sinabi niya sa kanila ang lahat ng nangyari.
+
+###### 29-30
+
+Ang kapatid niyang si Laban ay naroon din na nakikinig sa sinasabi niya tungkol sa binanggit ng tao sa kanya. Nakita ni Laban ang singsing at pulseras na suot-suot ni Rebeka. Kaya tumakbo siya papunta sa balon at pumunta sa taong sinasabi ni Rebeka. Naroon pa rin ang lalaki na nakatayo malapit sa balon, sa tabi ng mga kamelyo. 
 
 
 ###### 31 

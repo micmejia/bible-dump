@@ -50,7 +50,11 @@ Nang maging hari si Ahasuerus, ang mga kalaban ng mga naninirahan sa Jerusalem a
 ###### 7 
 
 
-At kahit na noong si Artaserses na ang hari ng Persia, sumulat din sila sa kanya. Sila ay sina Bishlam, Mitredat, Tabeel, at ang iba pa nilang mga kasama. Isinulat nila ito sa wikang Aramico at isinalin ito sa wika ng mga taga-Persia. 8-11Sumulat din kay Haring Artaserses si Rehum na gobernador at si Shimsai na kalihim laban sa mga taga-Jerusalem. Ito ang nilalaman ng sulat nila: "Mahal na Haring Artaserses, "Una po sa lahat nangungumusta kami sa inyo, kaming mga lingkod nʼyo rito sa lalawigan ng kanluran ng Eufrates. Kasama po sa mga nangungumusta ay ang mga kasama naming mga pinuno at opisyal, ang mga tao sa Tripolis, Persia, Erec, Babilonia, at ang mga tao sa Susa sa lupain ng Elam. Kinukumusta rin po kayo ng mga taong pinaalis sa kanilang mga lugar ni Osnapar, ang tanyag at makapangyarihan na hari ng Asiria. Itong mga mamamayan ay pinatira niya sa lungsod ng Samaria at sa ibang mga lugar sa kanluran ng Eufrates. 
+At kahit na noong si Artaserses na ang hari ng Persia, sumulat din sila sa kanya. Sila ay sina Bishlam, Mitredat, Tabeel, at ang iba pa nilang mga kasama. Isinulat nila ito sa wikang Aramico at isinalin ito sa wika ng mga taga-Persia.
+
+###### 8-11
+
+Sumulat din kay Haring Artaserses si Rehum na gobernador at si Shimsai na kalihim laban sa mga taga-Jerusalem. Ito ang nilalaman ng sulat nila: "Mahal na Haring Artaserses, "Una po sa lahat nangungumusta kami sa inyo, kaming mga lingkod nʼyo rito sa lalawigan ng kanluran ng Eufrates. Kasama po sa mga nangungumusta ay ang mga kasama naming mga pinuno at opisyal, ang mga tao sa Tripolis, Persia, Erec, Babilonia, at ang mga tao sa Susa sa lupain ng Elam. Kinukumusta rin po kayo ng mga taong pinaalis sa kanilang mga lugar ni Osnapar, ang tanyag at makapangyarihan na hari ng Asiria. Itong mga mamamayan ay pinatira niya sa lungsod ng Samaria at sa ibang mga lugar sa kanluran ng Eufrates. 
 
 
 ###### 12 

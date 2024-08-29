@@ -192,7 +192,11 @@ palaging naliligtas ang masasamang tao sa araw ng pagpaparusa ng Dios.
 ###### 31 
 
 
-Walang hayagang sumasaway sa taong masama. Walang gumaganti sa masama niyang ginawa. 32-33At kapag namatay siya at inihatid sa kanyang huling hantungan, marami ang nakikipaglibing. Tinatanggap ng lupa ang katawan niya at binibigyan ng kapahingahan. Binabantayan pa ang kanyang libingan. 
+Walang hayagang sumasaway sa taong masama. Walang gumaganti sa masama niyang ginawa.
+
+###### 32-33
+
+At kapag namatay siya at inihatid sa kanyang huling hantungan, marami ang nakikipaglibing. Tinatanggap ng lupa ang katawan niya at binibigyan ng kapahingahan. Binabantayan pa ang kanyang libingan. 
 
 
 ###### 34 

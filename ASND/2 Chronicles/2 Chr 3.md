@@ -66,7 +66,11 @@ Ang mga pako ay ginto na may timbang na kalahating kilo. Ang mga dingding sa ita
 ###### 10 
 
 
-Nagpagawa si Solomon sa loob ng Pinakabanal na Lugar ng dalawang kerubin at pinabalutan ito ng ginto. 11-13Ang bawat kerubin ay may dalawang pakpak, at ang bawat pakpak ay may habang pitoʼt kalahating talampakan. Kaya ang kabuuang haba ng nakalukob na mga pakpak ng dalawang kerubin ay 30 talampakan. Ang kabilang dulo ng kanilang pakpak ay nagpapang-abot, at ang kabilang pakpak nito ay nakadikit sa dingding. 
+Nagpagawa si Solomon sa loob ng Pinakabanal na Lugar ng dalawang kerubin at pinabalutan ito ng ginto.
+
+###### 11-13
+
+Ang bawat kerubin ay may dalawang pakpak, at ang bawat pakpak ay may habang pitoʼt kalahating talampakan. Kaya ang kabuuang haba ng nakalukob na mga pakpak ng dalawang kerubin ay 30 talampakan. Ang kabilang dulo ng kanilang pakpak ay nagpapang-abot, at ang kabilang pakpak nito ay nakadikit sa dingding. 
 
 
 ###### 14 

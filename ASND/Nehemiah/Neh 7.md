@@ -50,7 +50,36 @@ Ang mga sumusunod ay ang mga Israelita sa probinsya ng Juda na binihag noon ni H
 ###### 7 
 
 
-Ang namuno sa pagbalik nila sa Jerusalem ay sina Zerubabel, Jeshua, Nehemias, Azaria, Raamias, Nahamani, Mordecai, Bilshan, Misperet, Bigvai, Nehum, at Baana. Ito ang talaan ng mga mamamayan ng Israel na bumalik mula sa pagkabihag: 8-25Mga angkan nina: 26-38Ito ang bilang ng mga tao na bumalik mula sa pagkabihag, na ang mga ninuno ay nakatira sa mga sumusunod na bayan: 39-42Ito ang mga angkan ng mga pari na bumalik mula sa pagkabihag: Mga angkan nina: 43-45Ito ang mga lahi ng mga Levita na bumalik din mula sa pagkabihag: 46-56Ito ang mga angkan ng mga utusan sa templo na bumalik din mula sa pagkabihag: Ziha, Hasufa, Tabaot, Keros, Sia, Padon, Lebana, Hagaba, Shalmai, Hanan, Gidel, Gahar, Reaya, Rezin, Nekoda, Gazam, Uza, Pasea, Besai, Meunim, Nefusim, Bakbuk, Hakufa, Harhur, Bazlut, Mehida, Harsha, Barkos, Sisera, Tema, Nezia, at Hatifa. 57-59Bumalik din mula sa pagkabihag ang mga angkan ng mga alipin ni Solomon: Ang mga angkan nina Sotai, Soferet, Perida, Jaala, Darkon, Gidel, Shefatia, Hatil, Pokeret Hazebaim, at Ammon. 
+Ang namuno sa pagbalik nila sa Jerusalem ay sina Zerubabel, Jeshua, Nehemias, Azaria, Raamias, Nahamani, Mordecai, Bilshan, Misperet, Bigvai, Nehum, at Baana. Ito ang talaan ng mga mamamayan ng Israel na bumalik mula sa pagkabihag:
+
+###### 8-25
+
+Mga angkan nina:
+
+###### 26-38
+
+Ito ang bilang ng mga tao na bumalik mula sa pagkabihag, na ang mga ninuno ay nakatira sa mga sumusunod na bayan:
+
+###### 39-42
+
+Ito ang mga angkan ng mga pari na bumalik mula sa pagkabihag: Mga angkan nina:
+
+###### 43-45
+
+Ito ang mga lahi ng mga Levita na bumalik din mula sa pagkabihag:
+
+###### 46-56
+
+Ito ang mga angkan ng mga utusan sa templo na bumalik din mula sa pagkabihag: Ziha, Hasufa, Tabaot, Keros, Sia, Padon, Lebana, Hagaba, Shalmai, Hanan, Gidel, Gahar, Reaya, Rezin, Nekoda, Gazam, Uza, Pasea, Besai, Meunim, Nefusim, Bakbuk, Hakufa, Harhur, Bazlut, Mehida, Harsha, Barkos, Sisera, Tema, Nezia, at Hatifa.
+
+###### 57-59
+
+Bumalik din mula sa pagkabihag ang mga angkan ng mga alipin ni Solomon: Ang mga angkan nina Sotai, Soferet, Perida, Jaala, Darkon, Gidel, Shefatia, Hatil, Pokeret Hazebaim, at Ammon. 
+
+
+###### 60
+
+Ang kabuuang bilang ng mga angkan ng mga utusan sa templo at mga angkan ng mga alipin ni Solomon ay	392.
 
 
 ###### 61 
@@ -58,6 +87,9 @@ Ang namuno sa pagbalik nila sa Jerusalem ay sina Zerubabel, Jeshua, Nehemias, Az
 
 Mayroon ding bumalik sa Jerusalem mula sa mga bayan ng Tel Mela, Tel Harsha, Kerub, Adon, at Imer. Pero hindi nila mapatunayan na silaʼy talagang mga Israelita: 
 
+###### 62
+
+Sila ang mga angkan nina Delaya, Tobia, at Nekoda	642
 
 ###### 63 
 
@@ -74,7 +106,11 @@ Dahil nga hindi nila makita ang talaan ng kanilang mga ninuno, hindi sila tinang
 ###### 65 
 
 
-Sinabihan sila ng gobernador ng Juda na hindi sila maaaring kumain ng mga pagkain na inihandog sa Dios hanggaʼt walang pari na sasangguni sa Panginoon tungkol sa kanilang pagkapari sa pamamagitan ng "Urim" at "Thummim". 66-69Ang kabuuang bilang ng mga lalaki mula sa pagkabihag ay 42,360, hindi pa kabilang dito ang mga alipin nilang lalaki at babae na 7, 337 at mga mang-aawit na lalaki at babae na 245. May dala silang 736 na kabayo, 245 mola, 435 kamelyo, at 6,720 asno. 
+Sinabihan sila ng gobernador ng Juda na hindi sila maaaring kumain ng mga pagkain na inihandog sa Dios hanggaʼt walang pari na sasangguni sa Panginoon tungkol sa kanilang pagkapari sa pamamagitan ng "Urim" at "Thummim".
+
+###### 66-69
+
+Ang kabuuang bilang ng mga lalaki mula sa pagkabihag ay 42,360, hindi pa kabilang dito ang mga alipin nilang lalaki at babae na 7, 337 at mga mang-aawit na lalaki at babae na 245. May dala silang 736 na kabayo, 245 mola, 435 kamelyo, at 6,720 asno. 
 
 
 ###### 70 
@@ -100,4 +136,4 @@ Ang kabuuang ibinigay ng iba pang mga tao ay 168 kilong ginto, 1,100 kilong pila
 
 Ang bawat isa sa kanila ay bumalik sa mga bayan na kung saan nagmula ang kanilang pamilya, pati na ang mga pari, ang mga Levita, ang mga guwardya ng mga pintuan ng templo, ang mga mang-aawit, at ang mga utusan sa templo.
 
-## Binasa ni Ezra ang Kautusan Nang dumating ang ikapitong buwan, nang nakatira na ang mga Israelita sa mga bayan nila,
+

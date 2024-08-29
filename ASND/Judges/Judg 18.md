@@ -96,7 +96,11 @@ Pagkatapos, ang limang lalaking iyon na nagmanman sa Laish ay nagsabi sa mga kas
 ###### 15 
 
 
-Matapos nilang magdesisyon kung ano ang gagawin, pumunta sila sa bahay ni Micas at nangumusta sa binatilyong Levita na nakatira roon. 16-17Habang nakatayo sa pintuan ng lungsod ang pari at ang 600 armadong lalaki na kalahi ni Dan, pumasok ang limang espiya sa bahay ni Micas at kinuha ang espesyal na damit, ang imahen na nababalutan ng pilak, at ang iba pang dios-diosan. 
+Matapos nilang magdesisyon kung ano ang gagawin, pumunta sila sa bahay ni Micas at nangumusta sa binatilyong Levita na nakatira roon.
+
+###### 16-17
+
+Habang nakatayo sa pintuan ng lungsod ang pari at ang 600 armadong lalaki na kalahi ni Dan, pumasok ang limang espiya sa bahay ni Micas at kinuha ang espesyal na damit, ang imahen na nababalutan ng pilak, at ang iba pang dios-diosan. 
 
 
 ###### 18 

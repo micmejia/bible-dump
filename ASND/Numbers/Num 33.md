@@ -96,19 +96,31 @@ Mula sa Alus, nagkampo sila sa Refidim, kung saan walang tubig na naiinom ang mg
 ###### 15 
 
 
-Mula sa Refidim, nagkampo sila sa disyerto ng Sinai. 16-36Ito pa ang mga lugar na kanilang pinagkampuhan nang naglalakbay sila mula sa disyerto ng Sinai papunta sa Kadesh, sa ilang ng Zin: Kibrot Hataava, Hazerot, Ritma, Rimon Perez, Libna, Risa, Kehelata, Bundok ng Shefer, Harada, Makelot, Tahat, Tera, Mitca, Hasmona, Moserot, Bene Jaakan, Hor Hagidgad, Jotbata, Abrona, Ezion Geber at hanggang sa makarating sila sa Kadesh sa ilang ng Zin. 
+Mula sa Refidim, nagkampo sila sa disyerto ng Sinai.
+
+###### 16-36
+
+Ito pa ang mga lugar na kanilang pinagkampuhan nang naglalakbay sila mula sa disyerto ng Sinai papunta sa Kadesh, sa ilang ng Zin: Kibrot Hataava, Hazerot, Ritma, Rimon Perez, Libna, Risa, Kehelata, Bundok ng Shefer, Harada, Makelot, Tahat, Tera, Mitca, Hasmona, Moserot, Bene Jaakan, Hor Hagidgad, Jotbata, Abrona, Ezion Geber at hanggang sa makarating sila sa Kadesh sa ilang ng Zin. 
 
 
 ###### 37 
 
 
-Mula sa Kadesh, nagkampo sila sa Bundok ng Hor, sa hangganan ng lupain ng Edom. 38-39Sa utos ng Panginoon, umakyat si Aaron sa Bundok ng Hor at doon siya namatay sa edad na 123 taon. Nangyari ito noong unang araw ng ikalimang buwan, nang ika-40 taon mula nang umalis ang mga Israelita sa Egipto. 
+Mula sa Kadesh, nagkampo sila sa Bundok ng Hor, sa hangganan ng lupain ng Edom.
+
+###### 38-39
+
+Sa utos ng Panginoon, umakyat si Aaron sa Bundok ng Hor at doon siya namatay sa edad na 123 taon. Nangyari ito noong unang araw ng ikalimang buwan, nang ika-40 taon mula nang umalis ang mga Israelita sa Egipto. 
 
 
 ###### 40 
 
 
-Ngayon, ang hari ng Canaan na si Arad na naninirahan sa Negev ay nakabalita na paparating ang mga mamamayan ng Israel. 41-48Mula naman sa Bundok ng Hor, nagpatuloy ang mga Israelita sa kanilang paglalakbay. Ito ang mga lugar na kanilang pinagkampuhan: Zalmona, Punon, Obot, Iye Abarim, na nasa hangganan ng Moab, Dibon Gad, Almon Diblataim, sa mga bundok ng Abarim na malapit sa Nebo, at hanggang sa nakarating sila sa kapatagan ng Moab sa tabi ng Jordan malapit sa Jerico. 
+Ngayon, ang hari ng Canaan na si Arad na naninirahan sa Negev ay nakabalita na paparating ang mga mamamayan ng Israel.
+
+###### 41-48
+
+Mula naman sa Bundok ng Hor, nagpatuloy ang mga Israelita sa kanilang paglalakbay. Ito ang mga lugar na kanilang pinagkampuhan: Zalmona, Punon, Obot, Iye Abarim, na nasa hangganan ng Moab, Dibon Gad, Almon Diblataim, sa mga bundok ng Abarim na malapit sa Nebo, at hanggang sa nakarating sila sa kapatagan ng Moab sa tabi ng Jordan malapit sa Jerico. 
 
 
 ###### 49 

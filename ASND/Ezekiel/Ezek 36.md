@@ -212,4 +212,8 @@ ay magsasabi, 'Ang lupaing walang pakinabang noon, ngayon ay parang hardin na ng
 ###### 36 
 
 
-At malalaman ng mga bansang nakatira sa palibot ninyo na ako ang Panginoong nagtayo ng mga nawasak at nagtanim sa mga ilang na lupain. Ako, ang Panginoon, ang nagsasabi nito, at gagawin ko ito." 37-38Patuloy pang sinabi ng Panginoong Dios, "Pakikinggan kong muli ang mga kahilingan ng mga mamamayan ng Israel, at ito pa ang gagawin ko sa kanila. Pararamihin ko sila na kasindami ng mga tupa na inihahandog sa Jerusalem sa panahon ng pista. Kaya ang mga nawasak na lungsod ay titirhan na ng maraming tao. At malalaman nila na ako ang Panginoon."
+At malalaman ng mga bansang nakatira sa palibot ninyo na ako ang Panginoong nagtayo ng mga nawasak at nagtanim sa mga ilang na lupain. Ako, ang Panginoon, ang nagsasabi nito, at gagawin ko ito."
+
+###### 37-38
+
+Patuloy pang sinabi ng Panginoong Dios, "Pakikinggan kong muli ang mga kahilingan ng mga mamamayan ng Israel, at ito pa ang gagawin ko sa kanila. Pararamihin ko sila na kasindami ng mga tupa na inihahandog sa Jerusalem sa panahon ng pista. Kaya ang mga nawasak na lungsod ay titirhan na ng maraming tao. At malalaman nila na ako ang Panginoon."

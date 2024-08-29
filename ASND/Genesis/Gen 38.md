@@ -90,13 +90,21 @@ May nagsabi kay Tamar na ang biyenan niya ay pupunta sa Timnah para pagupitan do
 ###### 14 
 
 
-Nang marinig iyon ni Tamar, pinalitan niya ang kanyang damit na pambalo, at tinakpan ng belo ang kanyang mukha. Naupo siya sa may pintuan ng bayan ng Enaim, sa tabi ng daan na papunta sa Timnah. Plano niyang dayain si Juda dahil hindi pa rin ibinibigay sa kanya si Shela para maging asawa niya kahit binata na ito. 15-16Pagkakita ni Juda kay Tamar, hindi niya nakilala na manugang niya ito dahil may talukbong ang mukha nito. Akala niyaʼy isa itong babaeng bayaran. Kaya lumapit siya sa kanya sa tabi ng daan at sinabi, "Halika, magsiping tayo." Sumagot si Tamar, "Ano ang ibabayad mo sa akin kapag sumiping ako sa iyo?" 
+Nang marinig iyon ni Tamar, pinalitan niya ang kanyang damit na pambalo, at tinakpan ng belo ang kanyang mukha. Naupo siya sa may pintuan ng bayan ng Enaim, sa tabi ng daan na papunta sa Timnah. Plano niyang dayain si Juda dahil hindi pa rin ibinibigay sa kanya si Shela para maging asawa niya kahit binata na ito.
+
+###### 15-16
+
+Pagkakita ni Juda kay Tamar, hindi niya nakilala na manugang niya ito dahil may talukbong ang mukha nito. Akala niyaʼy isa itong babaeng bayaran. Kaya lumapit siya sa kanya sa tabi ng daan at sinabi, "Halika, magsiping tayo." Sumagot si Tamar, "Ano ang ibabayad mo sa akin kapag sumiping ako sa iyo?" 
 
 
 ###### 17 
 
 
-Sinabi ni Juda, "Bibigyan kita ng kambing mula sa aking mga hayop." Sumagot si Tamar, "Papayag ako kung may ibibigay ka sa akin para makatiyak ako na babayaran mo ako hanggang maipadala mo na ang kambing." 18-19Nagtanong si Juda, "Anong garantiya ang gusto mo?" Sumagot si Tamar, "Ibigay mo sa akin ang ginagamit mong pantatak, panali at pati ang iyong tungkod." Kaya ibinigay iyon ni Juda at sumiping siya kay Tamar. Pagkatapos, umuwi si Tamar, at tinanggal niya ang talukbong sa kanyang mukha at muling isinuot ang damit na pambalo. Dumating ang panahon at nagbuntis siya. 
+Sinabi ni Juda, "Bibigyan kita ng kambing mula sa aking mga hayop." Sumagot si Tamar, "Papayag ako kung may ibibigay ka sa akin para makatiyak ako na babayaran mo ako hanggang maipadala mo na ang kambing."
+
+###### 18-19
+
+Nagtanong si Juda, "Anong garantiya ang gusto mo?" Sumagot si Tamar, "Ibigay mo sa akin ang ginagamit mong pantatak, panali at pati ang iyong tungkod." Kaya ibinigay iyon ni Juda at sumiping siya kay Tamar. Pagkatapos, umuwi si Tamar, at tinanggal niya ang talukbong sa kanyang mukha at muling isinuot ang damit na pambalo. Dumating ang panahon at nagbuntis siya. 
 
 
 ###### 20 

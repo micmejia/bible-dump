@@ -80,7 +80,11 @@ Nainggit ang mga kapatid ni Jose sa kanya, pero si Jacob ay sinarili na lamang a
 ###### 12 
 
 
-Isang araw, pumunta ang mga kapatid ni Jose sa Shekem para magbantay ng mga hayop ng kanilang ama. 13-14Sinabi ni Jacob kay Jose, "Ang mga kapatid mo ay naroon sa Shekem na nagpapastol ng mga hayop. Pumunta ka roon at tingnan mo kung maayos ang kalagayan ng mga kapatid mo at ng mga hayop. Bumalik ka agad at sabihin sa akin." Sumagot si Jose, "Opo ama." Kaya mula sa Lambak ng Hebron, pumunta si Jose sa Shekem. 
+Isang araw, pumunta ang mga kapatid ni Jose sa Shekem para magbantay ng mga hayop ng kanilang ama.
+
+###### 13-14
+
+Sinabi ni Jacob kay Jose, "Ang mga kapatid mo ay naroon sa Shekem na nagpapastol ng mga hayop. Pumunta ka roon at tingnan mo kung maayos ang kalagayan ng mga kapatid mo at ng mga hayop. Bumalik ka agad at sabihin sa akin." Sumagot si Jose, "Opo ama." Kaya mula sa Lambak ng Hebron, pumunta si Jose sa Shekem. 
 
 
 ###### 15 

@@ -110,4 +110,8 @@ Kinakailangan niyang bayaran ang hindi niya naibigay na nauukol sa Panginoon, at
 ###### 17 
 
 
-Kung may tao namang lumabag sa utos ng Panginoon nang hindi niya alam, siyaʼy nagkasala pa rin at may pananagutan sa Panginoon. 18-19Kung alam na niyang nagkasala siya, kinakailangang magdala siya sa pari ng lalaking tupa na walang kapintasan na ihahandog niya bilang pambayad sa kanyang kasalanan. Maaari rin niyang bayaran ng pilak na katumbas ng halaga ng lalaking tupa ayon sa bigat ng pilak sa timbangan na ginagamit ng mga pari. Sa pamamagitan ng gagawing ito ng pari, matutubos ang tao sa kanyang kasalanang hindi sinasadya at patatawarin siya ng Panginoon.
+Kung may tao namang lumabag sa utos ng Panginoon nang hindi niya alam, siyaʼy nagkasala pa rin at may pananagutan sa Panginoon.
+
+###### 18-19
+
+Kung alam na niyang nagkasala siya, kinakailangang magdala siya sa pari ng lalaking tupa na walang kapintasan na ihahandog niya bilang pambayad sa kanyang kasalanan. Maaari rin niyang bayaran ng pilak na katumbas ng halaga ng lalaking tupa ayon sa bigat ng pilak sa timbangan na ginagamit ng mga pari. Sa pamamagitan ng gagawing ito ng pari, matutubos ang tao sa kanyang kasalanang hindi sinasadya at patatawarin siya ng Panginoon.

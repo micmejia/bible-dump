@@ -102,7 +102,11 @@ Ito ang mga anak na lalaki ni Caleb na anak ni Jefune: sina Iru, Elah at Naam. A
 ###### 16 
 
 
-Ang mga anak na lalaki ni Jehalelel ay sina Zif, Zifa, Tiria at Asarel. 17-18Ang mga anak na lalaki ni Ezra ay sina Jeter, Mered, Efer at Jalon. Asawa ni Mered si Bitia na anak ng Faraon. Ang mga anak nila ay sina Miriam, Shamai at Ishba. Si Ishba ang ama ni Estemoa. May asawa rin si Mered na taga-Judea, at ang mga anak nila ay sina Jered na ama ni Gedor, Heber na ama ni Soco, at Jekutiel na ama ni Zanoa. 
+Ang mga anak na lalaki ni Jehalelel ay sina Zif, Zifa, Tiria at Asarel.
+
+###### 17-18
+
+Ang mga anak na lalaki ni Ezra ay sina Jeter, Mered, Efer at Jalon. Asawa ni Mered si Bitia na anak ng Faraon. Ang mga anak nila ay sina Miriam, Shamai at Ishba. Si Ishba ang ama ni Estemoa. May asawa rin si Mered na taga-Judea, at ang mga anak nila ay sina Jered na ama ni Gedor, Heber na ama ni Soco, at Jekutiel na ama ni Zanoa. 
 
 
 ###### 19 

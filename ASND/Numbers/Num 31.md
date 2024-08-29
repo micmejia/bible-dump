@@ -132,7 +132,11 @@ Linisin ninyo ang lahat ng damit ninyo, pati ang lahat ng kagamitang gawa sa bal
 ###### 21 
 
 
-Pagkatapos, sinabi ng paring si Eleazar sa mga sundalo na nagpunta sa labanan, "Ito ang tuntunin ng kautusang ibinigay ng Panginoon kay Moises: 22-23Ang anumang bagay na hindi nasusunog gaya ng ginto, pilak, tanso, bakal, lata o tingga ay kailangang ilagay sa apoy para maging malinis ito. Pagkatapos, hugasan ito ng tubig na ginagamit sa paglilinis. Ang kahit anong hindi nasusunog ay hugasan lang sa tubig na ito. 
+Pagkatapos, sinabi ng paring si Eleazar sa mga sundalo na nagpunta sa labanan, "Ito ang tuntunin ng kautusang ibinigay ng Panginoon kay Moises:
+
+###### 22-23
+
+Ang anumang bagay na hindi nasusunog gaya ng ginto, pilak, tanso, bakal, lata o tingga ay kailangang ilagay sa apoy para maging malinis ito. Pagkatapos, hugasan ito ng tubig na ginagamit sa paglilinis. Ang kahit anong hindi nasusunog ay hugasan lang sa tubig na ito. 
 
 
 ###### 24 
@@ -182,13 +186,25 @@ Mula sa parte ng mga Israelita, magbukod ka ng isa sa bawat 50 bihag, tao man o 
 ###### 31 
 
 
-Kaya ginawa ni Moises at ng paring si Eleazar ang iniutos ng Panginoon kay Moises. 32-35Ito ang nasamsam ng mga sundalo sa digmaan: 675,000 tupa, 72,000 baka, 61,000 asno at 32,000 babaeng hindi pa nasipingan. 36-40Ito ang kalahati ng parte ng mga sundalong nakipaglaban. 337,500 tupa na ang 675 nito ay ibinigay para sa Panginoon; 36,000 baka na ang 72 nito ay ibinigay para sa Panginoon; 30,500 asno na ang 61 nito ay ibinigay para sa Panginoon; at 16,000 dalaga na ang 32 nito ay ibinigay para sa Panginoon. 
+Kaya ginawa ni Moises at ng paring si Eleazar ang iniutos ng Panginoon kay Moises.
+
+###### 32-35
+
+Ito ang nasamsam ng mga sundalo sa digmaan: 675,000 tupa, 72,000 baka, 61,000 asno at 32,000 babaeng hindi pa nasipingan.
+
+###### 36-40
+
+Ito ang kalahati ng parte ng mga sundalong nakipaglaban. 337,500 tupa na ang 675 nito ay ibinigay para sa Panginoon; 36,000 baka na ang 72 nito ay ibinigay para sa Panginoon; 30,500 asno na ang 61 nito ay ibinigay para sa Panginoon; at 16,000 dalaga na ang 32 nito ay ibinigay para sa Panginoon. 
 
 
 ###### 41 
 
 
-Ibinigay ni Moises sa kay Eleazar na pari ang bahagi para sa Panginoon ayon sa iniutos sa kanya ng Panginoon. 42-46Ito ang parte ng mga Israelita na kalahati ng ibinigay ni Moises sa mga sundalong nakipaglaban: 337,500 tupa, 36,000 baka, 30,500 asno at 16,000 dalaga. 
+Ibinigay ni Moises sa kay Eleazar na pari ang bahagi para sa Panginoon ayon sa iniutos sa kanya ng Panginoon.
+
+###### 42-46
+
+Ito ang parte ng mga Israelita na kalahati ng ibinigay ni Moises sa mga sundalong nakipaglaban: 337,500 tupa, 36,000 baka, 30,500 asno at 16,000 dalaga. 
 
 
 ###### 47 

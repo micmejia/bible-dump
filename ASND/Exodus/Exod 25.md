@@ -110,7 +110,11 @@ Pagkatapos, ipasok mo sa Kahon ang malapad na bato na ibinigay ko sa iyo, kung s
 ###### 17 
 
 
-"Pagawan mo ng takip na purong ginto ang Kahon, na 45 pulgada ang haba at 27 pulgada ang lapad. 18-19Magpagawa ka rin ng dalawang gintong kerubin, ilalagay ito sa dalawang dulo ng takip ng Kahon. 
+"Pagawan mo ng takip na purong ginto ang Kahon, na 45 pulgada ang haba at 27 pulgada ang lapad.
+
+###### 18-19
+
+Magpagawa ka rin ng dalawang gintong kerubin, ilalagay ito sa dalawang dulo ng takip ng Kahon. 
 
 
 ###### 20 

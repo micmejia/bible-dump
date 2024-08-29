@@ -78,7 +78,11 @@ Sinabi pa ng Dios sa kanya, "Ako ang Makapangyarihang Dios. Magkakaroon ka ng ma
 ###### 12 
 
 
-Ang lupain na ibinigay ko kay Abraham at kay Isaac ay ibibigay ko rin sa iyo at sa mga lahi mo." 13-14Pagkatapos, umalis ang Dios sa lugar na iyon kung saan nakipag-usap siya kay Jacob, at nagtayo roon si Jacob ng batong alaala. Binuhusan niya agad ng alak at langis ang bato para maging banal. 
+Ang lupain na ibinigay ko kay Abraham at kay Isaac ay ibibigay ko rin sa iyo at sa mga lahi mo."
+
+###### 13-14
+
+Pagkatapos, umalis ang Dios sa lugar na iyon kung saan nakipag-usap siya kay Jacob, at nagtayo roon si Jacob ng batong alaala. Binuhusan niya agad ng alak at langis ang bato para maging banal. 
 
 
 ###### 15 

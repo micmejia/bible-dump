@@ -300,7 +300,11 @@ Sa halip, si Solomon ang nagtayo ng templo ng Dios.
 ###### 49 
 
 
-'Ang langit ang aking trono, at ang lupa ang tuntungan ng aking mga paa. Kaya anong uri ng bahay ang gagawin nʼyo para sa akin? Saan ba ang lugar na aking mapagpapahingahan? 50Hindi baʼt ako ang gumawa ng lahat ng bagay?' " 
+'Ang langit ang aking trono, at ang lupa ang tuntungan ng aking mga paa. Kaya anong uri ng bahay ang gagawin nʼyo para sa akin? Saan ba ang lugar na aking mapagpapahingahan?
+
+###### 50
+
+Hindi baʼt ako ang gumawa ng lahat ng bagay?' " 
 
 
 ###### 51 

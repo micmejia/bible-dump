@@ -136,7 +136,11 @@ Huwag kayong maghahandog sa akin ng hayop na kinapon o may kapansanan ang itlog.
 ###### 25 
 
 
-Huwag din kayong bumili ng mga hayop na ganoong uri mula sa ibang lugar at ihandog sa akin, dahil hindi ko iyon tatanggapin. 26-27Ang bagong ipinanganak na baka, tupa, o kambing ay dapat manatili sa kanyang ina sa loob ng pitong araw. Pero mula sa ikawalong araw, maaari na itong ialay sa akin bilang handog sa pamamagitan ng apoy. 
+Huwag din kayong bumili ng mga hayop na ganoong uri mula sa ibang lugar at ihandog sa akin, dahil hindi ko iyon tatanggapin.
+
+###### 26-27
+
+Ang bagong ipinanganak na baka, tupa, o kambing ay dapat manatili sa kanyang ina sa loob ng pitong araw. Pero mula sa ikawalong araw, maaari na itong ialay sa akin bilang handog sa pamamagitan ng apoy. 
 
 
 ###### 28 

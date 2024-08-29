@@ -165,7 +165,11 @@ Ang mga natirang bahagi ng baka at kambing na ang dugo ay dinala sa Pinakabanal 
 ###### 28 
 
 
-At ang taong magsusunog nito ay kinakailangang maglaba rin ng kanyang damit at maligo bago siya bumalik sa kampo. 29-31Ito naman ang mga tuntuning dapat gawin ng mga katutubong Israelita at mga dayuhang naninirahang kasama nila, at itoʼy dapat sundin magpakailanman. Sa ikasampung araw ng ikapitong buwan, dapat silang mag-ayuno at huwag magtrabaho, katulad ng Araw ng Pamamahinga. Sapagkat sa araw na iyon gagawin ang seremonya ng pagtubos sa kanilang mga kasalanan para silaʼy maging malinis sa presensya ng Panginoon. 
+At ang taong magsusunog nito ay kinakailangang maglaba rin ng kanyang damit at maligo bago siya bumalik sa kampo.
+
+###### 29-31
+
+Ito naman ang mga tuntuning dapat gawin ng mga katutubong Israelita at mga dayuhang naninirahang kasama nila, at itoʼy dapat sundin magpakailanman. Sa ikasampung araw ng ikapitong buwan, dapat silang mag-ayuno at huwag magtrabaho, katulad ng Araw ng Pamamahinga. Sapagkat sa araw na iyon gagawin ang seremonya ng pagtubos sa kanilang mga kasalanan para silaʼy maging malinis sa presensya ng Panginoon. 
 
 
 ###### 32 

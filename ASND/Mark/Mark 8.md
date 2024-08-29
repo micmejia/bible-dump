@@ -112,7 +112,11 @@ Nag-usap-usap ang mga tagasunod ni Jesus. Akala nila, kaya niya sinabi iyon ay d
 ###### 17 
 
 
-Alam ni Jesus kung ano ang pinag-uusapan nila kaya sinabi niya sa kanila, "Bakit kayo nagtatalo-talo na wala kayong dalang tinapay? Hindi pa ba kayo nakakaunawa? Hindi ba ninyo ito naiintindihan? Matigas pa rin ba ang mga puso ninyo? 18-19May mga mata kayo, pero hindi kayo makakita. May mga tainga kayo, pero hindi kayo makarinig. Nakalimutan nʼyo na ba nang paghahati-hatiin ko ang limang tinapay para sa 5,000 tao? Ilang basket ang natira?" Sumagot sila, "Labindalawa po!" 
+Alam ni Jesus kung ano ang pinag-uusapan nila kaya sinabi niya sa kanila, "Bakit kayo nagtatalo-talo na wala kayong dalang tinapay? Hindi pa ba kayo nakakaunawa? Hindi ba ninyo ito naiintindihan? Matigas pa rin ba ang mga puso ninyo?
+
+###### 18-19
+
+May mga mata kayo, pero hindi kayo makakita. May mga tainga kayo, pero hindi kayo makarinig. Nakalimutan nʼyo na ba nang paghahati-hatiin ko ang limang tinapay para sa 5,000 tao? Ilang basket ang natira?" Sumagot sila, "Labindalawa po!" 
 
 
 ###### 20 

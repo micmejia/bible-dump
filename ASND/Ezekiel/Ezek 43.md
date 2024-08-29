@@ -86,7 +86,11 @@ At ito ang pangunahing kautusan tungkol sa templo: Ituring ninyong banal ang lah
 ###### 13 
 
 
-"Ito ang sukat ng altar ayon sa umiiral na panukat: Sa paligid ng altar ay gagawa kayo ng parang kanal na 20 pulgada ang luwang at 20 pulgada rin ang lalim at may sinepa sa paligid na anim na pulgada ang kapal. 14-17May tatlong palapag ang altar na parisukat lahat. Ang ibabang palapag ay 27 talampakan ang haba at luwang. Ang taas naman ay tatlong talampakan. Ang gitnang palapag ay 24 na talampakan ang haba at luwang at pitong talampakan naman ang taas. May kanal sa paligid nito na 20 pulgada ang lalim, at may sinepa sa palibot na sampung pulgada ang luwang. Ang palapag sa itaas ay 20 talampakan ang haba at luwang at pitong talampakan naman ang taas. Dito sinusunog ang mga handog. Ang apat na sulok ng altar ay may parang mga sungay ng hayop. Ang hagdan ng altar ay nasa gawing silangan." 
+"Ito ang sukat ng altar ayon sa umiiral na panukat: Sa paligid ng altar ay gagawa kayo ng parang kanal na 20 pulgada ang luwang at 20 pulgada rin ang lalim at may sinepa sa paligid na anim na pulgada ang kapal.
+
+###### 14-17
+
+May tatlong palapag ang altar na parisukat lahat. Ang ibabang palapag ay 27 talampakan ang haba at luwang. Ang taas naman ay tatlong talampakan. Ang gitnang palapag ay 24 na talampakan ang haba at luwang at pitong talampakan naman ang taas. May kanal sa paligid nito na 20 pulgada ang lalim, at may sinepa sa palibot na sampung pulgada ang luwang. Ang palapag sa itaas ay 20 talampakan ang haba at luwang at pitong talampakan naman ang taas. Dito sinusunog ang mga handog. Ang apat na sulok ng altar ay may parang mga sungay ng hayop. Ang hagdan ng altar ay nasa gawing silangan." 
 
 
 ###### 18 

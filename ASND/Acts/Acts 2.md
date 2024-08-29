@@ -206,7 +206,11 @@ Ang kanyang tinutukoy ay walang iba kundi si Jesus na muling binuhay ng Dios, at
 ###### 33 
 
 
-Itinaas siya sa kanan ng Dios. At ibinigay sa kanya ng Ama ang Banal na Espiritung ipinangako sa kanya. Ang Banal na Espiritung ito ay ipinadala naman ni Jesus sa amin, at ang kanyang kapangyarihan ang siyang nakikita ninyo at naririnig ngayon. 34-35Hindi si David ang itinaas sa langit, pero sinabi niya, 'Nagsalita ang Panginoon sa aking Panginoon: Umupo ka rito sa kanan ko hanggang sa mapasuko ko sa iyo ang iyong mga kaaway.' 
+Itinaas siya sa kanan ng Dios. At ibinigay sa kanya ng Ama ang Banal na Espiritung ipinangako sa kanya. Ang Banal na Espiritung ito ay ipinadala naman ni Jesus sa amin, at ang kanyang kapangyarihan ang siyang nakikita ninyo at naririnig ngayon.
+
+###### 34-35
+
+Hindi si David ang itinaas sa langit, pero sinabi niya, 'Nagsalita ang Panginoon sa aking Panginoon: Umupo ka rito sa kanan ko hanggang sa mapasuko ko sa iyo ang iyong mga kaaway.' 
 
 
 ###### 36 

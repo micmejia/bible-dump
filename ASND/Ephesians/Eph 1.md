@@ -95,7 +95,11 @@ Hinihiling ko sa Dios, ang dakilang Ama ng ating Panginoong Jesu-Cristo, na bigy
 ###### 18 
 
 
-Ipinapanalangin ko rin na maliwanagan ang inyong pusoʼt isipan para maunawaan nʼyo ang pag-asa na inilaan niya sa atin, ang napakahalaga at napakasaganang pagpapala na ipinangako niya sa mga pinabanal. 19-20Ipinapanalangin ko rin na malaman nʼyo ang napakadakilang kapangyarihan ng Dios para sa ating mga sumasampalataya sa kanya. Ang kapangyarihan ding ito ang ginamit niya nang buhayin niyang muli si Cristo at nang paupuin sa kanyang kanan sa langit. 
+Ipinapanalangin ko rin na maliwanagan ang inyong pusoʼt isipan para maunawaan nʼyo ang pag-asa na inilaan niya sa atin, ang napakahalaga at napakasaganang pagpapala na ipinangako niya sa mga pinabanal.
+
+###### 19-20
+
+Ipinapanalangin ko rin na malaman nʼyo ang napakadakilang kapangyarihan ng Dios para sa ating mga sumasampalataya sa kanya. Ang kapangyarihan ding ito ang ginamit niya nang buhayin niyang muli si Cristo at nang paupuin sa kanyang kanan sa langit. 
 
 
 ###### 21 

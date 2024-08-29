@@ -186,7 +186,11 @@ Sinabi nila, "Guro, ayon po sa batas na isinulat ni Moises, kapag ang isang lala
 ###### 29 
 
 
-Ngayon, may pitong magkakapatid na lalaki. Nag-asawa ang panganay, at namatay na walang anak. 30-31Kaya ang biyuda ay napangasawa ng ikalawang kapatid. Pero namatay din siya na wala silang anak. Ganoon din ang nangyari sa ikatlo hanggang sa ikapitong kapatid. Namatay silang lahat na walang anak sa babae. 
+Ngayon, may pitong magkakapatid na lalaki. Nag-asawa ang panganay, at namatay na walang anak.
+
+###### 30-31
+
+Kaya ang biyuda ay napangasawa ng ikalawang kapatid. Pero namatay din siya na wala silang anak. Ganoon din ang nangyari sa ikatlo hanggang sa ikapitong kapatid. Namatay silang lahat na walang anak sa babae. 
 
 
 ###### 32 

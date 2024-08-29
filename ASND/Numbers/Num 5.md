@@ -76,7 +76,15 @@ Magiging pag-aari ng mga pari ang mga banal na handog na ito."
 ###### 11 
 
 
-Sinabi pa ng Panginoon kay Moises, 12-13"Sabihin mo ito sa mga Israelita: Kung sakali man na may isang lalaking naghihinala na nanlalalaki ang kanyang asawa, ngunit wala siyang katibayan dahil walang nakakita nito sa akto, 14-15kailangang dalhin niya ang kanyang asawa sa pari, kahit na hindi totoong dinungisan nito ang sarili sa pamamagitan ng pangangalunya. At kailangang magdala ang lalaki ng handog na dalawang kilong harinang sebada para sa kanyang asawa. Hindi niya ito dapat lagyan ng langis o insenso dahil itoʼy handog ng paghihinala. 
+Sinabi pa ng Panginoon kay Moises,
+
+###### 12-13
+
+"Sabihin mo ito sa mga Israelita: Kung sakali man na may isang lalaking naghihinala na nanlalalaki ang kanyang asawa, ngunit wala siyang katibayan dahil walang nakakita nito sa akto,
+
+###### 14-15
+
+kailangang dalhin niya ang kanyang asawa sa pari, kahit na hindi totoong dinungisan nito ang sarili sa pamamagitan ng pangangalunya. At kailangang magdala ang lalaki ng handog na dalawang kilong harinang sebada para sa kanyang asawa. Hindi niya ito dapat lagyan ng langis o insenso dahil itoʼy handog ng paghihinala. 
 
 
 ###### 16 

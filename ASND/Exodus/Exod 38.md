@@ -156,7 +156,11 @@ Katulong niya si Oholiab na anak ni Ahisamac, na mula sa lahi ni Dan. Magaling s
 ###### 24 
 
 
-Ang kabuuang timbang ng gintong inihandog para gamitin sa paggawa ng Tolda ay 1,000 kilo ayon sa timbangang ginagamit ng mga pari. 25-26Ang kabuuang timbang ng pilak na naipon ay 3,520 kilo ayon sa bigat ng pilak sa timbangang ginagamit ng mga pari. Nanggaling ito sa mga taong nailista sa sensus. Nagbigay ang bawat isa sa kanila ng anim na gramo ng pilak ayon sa bigat ng pilak sa timbangang ginagamit ng mga pari. May 603,550 tao na may edad na 20 pataas ang nailista sa sensus. 
+Ang kabuuang timbang ng gintong inihandog para gamitin sa paggawa ng Tolda ay 1,000 kilo ayon sa timbangang ginagamit ng mga pari.
+
+###### 25-26
+
+Ang kabuuang timbang ng pilak na naipon ay 3,520 kilo ayon sa bigat ng pilak sa timbangang ginagamit ng mga pari. Nanggaling ito sa mga taong nailista sa sensus. Nagbigay ang bawat isa sa kanila ng anim na gramo ng pilak ayon sa bigat ng pilak sa timbangang ginagamit ng mga pari. May 603,550 tao na may edad na 20 pataas ang nailista sa sensus. 
 
 
 ###### 27 

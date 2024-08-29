@@ -97,7 +97,11 @@ Ito ang dapat ninyong gawin: Magsabi kayo ng totoo sa isaʼt isa. Humatol kayo n
 ###### 17 
 
 
-Huwag kayong magbalak ng masama laban sa inyong kapwa, at huwag kayong susumpa ng kasinungalingan dahil ang lahat ng iyan ay aking kinapopootan." 18-19Muling sinabi ng Panginoong Makapangyarihan kay Zacarias, "Ang pag-aayuno sa ikaapat, ikalima, ikapito at ikasampung buwan ay magiging masayang araw ng pagdiriwang para sa mga taga-Juda. Kaya pahalagahan ninyo ang katotohanan at kapayapaan. 
+Huwag kayong magbalak ng masama laban sa inyong kapwa, at huwag kayong susumpa ng kasinungalingan dahil ang lahat ng iyan ay aking kinapopootan."
+
+###### 18-19
+
+Muling sinabi ng Panginoong Makapangyarihan kay Zacarias, "Ang pag-aayuno sa ikaapat, ikalima, ikapito at ikasampung buwan ay magiging masayang araw ng pagdiriwang para sa mga taga-Juda. Kaya pahalagahan ninyo ang katotohanan at kapayapaan. 
 
 
 ###### 20 

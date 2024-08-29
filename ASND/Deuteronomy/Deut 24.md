@@ -72,7 +72,11 @@ Alalahanin ninyo kung ano ang ginawa ng Panginoon na inyong Dios kay Miriam nang
 ###### 11 
 
 
-Maghintay lang kayo sa labas at dadalhin niya ito sa inyo. 12-13Kung mahirap ang tao, at pangbalabal ang isinanla niya sa inyo, huwag ninyong palilipasin ang gabi na nasa inyo ito. Isauli ito sa kanya habang hindi pa lumulubog ang araw para magamit niya ito sa kanyang pagtulog, at pasasalamatan ka pa niya. Ituturing ito ng Panginoon na inyong Dios na gawang matuwid. 
+Maghintay lang kayo sa labas at dadalhin niya ito sa inyo.
+
+###### 12-13
+
+Kung mahirap ang tao, at pangbalabal ang isinanla niya sa inyo, huwag ninyong palilipasin ang gabi na nasa inyo ito. Isauli ito sa kanya habang hindi pa lumulubog ang araw para magamit niya ito sa kanyang pagtulog, at pasasalamatan ka pa niya. Ituturing ito ng Panginoon na inyong Dios na gawang matuwid. 
 
 
 ###### 14 

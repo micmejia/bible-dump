@@ -122,7 +122,11 @@ Sinabi ng Panginoon kay Moises,
 ###### 19 
 
 
-Ito ang gagamitin ni Aaron at ng mga anak niya sa paghuhugas ng mga kamay at paa nila, 20-21bago sila pumasok sa Toldang Tipanan, at bago sila lumapit sa altar para mag-alay sa akin ng mga handog sa pamamagitan ng apoy. Kailangan nilang hugasan ang mga kamay at paa nila para hindi sila mamatay. Dapat sundin ni Aaron at ng mga angkan niya ang mga tuntuning ito hanggang sa susunod pang mga henerasyon." 
+Ito ang gagamitin ni Aaron at ng mga anak niya sa paghuhugas ng mga kamay at paa nila,
+
+###### 20-21
+
+bago sila pumasok sa Toldang Tipanan, at bago sila lumapit sa altar para mag-alay sa akin ng mga handog sa pamamagitan ng apoy. Kailangan nilang hugasan ang mga kamay at paa nila para hindi sila mamatay. Dapat sundin ni Aaron at ng mga angkan niya ang mga tuntuning ito hanggang sa susunod pang mga henerasyon." 
 
 ## Ang Langis na Pamahid 
 
@@ -148,7 +152,11 @@ anim na kilong kasia (kailangan ang bigat nitoʼy ayon sa timbangang ginagamit n
 ###### 25 
 
 
-Sa pamamagitan nito, makakagawa ka ng banal na mabangong langis na pamahid. 26-28Pahiran mo ng langis na ito ang Toldang Tipanan, ang Kahon ng Kasunduan, ang mesa at ang lahat ng kagamitan nito, ang lalagyan ng ilaw at ang lahat ng kagamitan nito, ang altar na pagsusunugan ng insenso, ang altar na pinagsusunugan ng mga handog na sinusunog at ang lahat ng kagamitan nito, at ang planggana at ang patungan nito. 
+Sa pamamagitan nito, makakagawa ka ng banal na mabangong langis na pamahid.
+
+###### 26-28
+
+Pahiran mo ng langis na ito ang Toldang Tipanan, ang Kahon ng Kasunduan, ang mesa at ang lahat ng kagamitan nito, ang lalagyan ng ilaw at ang lahat ng kagamitan nito, ang altar na pagsusunugan ng insenso, ang altar na pinagsusunugan ng mga handog na sinusunog at ang lahat ng kagamitan nito, at ang planggana at ang patungan nito. 
 
 
 ###### 29 

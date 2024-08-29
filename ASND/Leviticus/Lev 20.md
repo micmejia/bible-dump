@@ -80,7 +80,11 @@ Kung ang isang lalaki ay sumiping sa kapwa lalaki, pareho silang dapat patayin d
 ###### 14 
 
 
-Kung ang isang lalaki ay sumiping sa mag-ina, silang tatlo ay dapat sunugin dahil masama ang kanilang ginawa. Ang kasamaang ito ay dapat mawala sa inyo. 15-16Kung ang isang lalaki o babae ay sumiping sa hayop, dapat siyang patayin pati na ang hayop. Sila ang responsable sa kanilang kamatayan. 
+Kung ang isang lalaki ay sumiping sa mag-ina, silang tatlo ay dapat sunugin dahil masama ang kanilang ginawa. Ang kasamaang ito ay dapat mawala sa inyo.
+
+###### 15-16
+
+Kung ang isang lalaki o babae ay sumiping sa hayop, dapat siyang patayin pati na ang hayop. Sila ang responsable sa kanilang kamatayan. 
 
 
 ###### 17 

@@ -55,7 +55,11 @@ ang mga bato at ang taba nito, pati na ang maliit na bahagi ng atay.
 ###### 10 
 
 
-(Ganito rin ang gagawin sa hayop na handog para sa mabuting relasyon.) Pagkatapos, ang mga itoʼy susunugin ng pari sa altar na pinagsusunugan ng handog na sinusunog. 11-12Pero ang natitirang bahagi ng hayop, katulad ng balat, laman, ulo, mga paa at nasa loob ng tiyan, pati na ang lamang-loob, ay dadalhin sa labas ng kampo at susunugin sa lumalagablab na siga ng mga kahoy, doon sa itinuturing na malinis na lugar na pinagtatapunan ng abo. 
+(Ganito rin ang gagawin sa hayop na handog para sa mabuting relasyon.) Pagkatapos, ang mga itoʼy susunugin ng pari sa altar na pinagsusunugan ng handog na sinusunog.
+
+###### 11-12
+
+Pero ang natitirang bahagi ng hayop, katulad ng balat, laman, ulo, mga paa at nasa loob ng tiyan, pati na ang lamang-loob, ay dadalhin sa labas ng kampo at susunugin sa lumalagablab na siga ng mga kahoy, doon sa itinuturing na malinis na lugar na pinagtatapunan ng abo. 
 
 
 ###### 13 
@@ -91,7 +95,11 @@ At ilulubog niya ang kanyang daliri sa dugo at iwiwisik ng pitong beses sa tabin
 ###### 18 
 
 
-Pagkatapos, papahiran niya ng dugo ang parang sungay sa mga sulok ng altar na nasa loob ng Tolda sa presensya ng Panginoon. At ang natitirang dugo ay ibubuhos niya sa ilalim ng altar na pinagsusunugan ng handog na sinusunog. Ang altar na itoʼy malapit sa pintuan ng Tolda. 19-21At ang gagawin niya sa toro na itoʼy katulad din ng ginawa niya sa torong handog sa paglilinis. Kukunin niya ang lahat ng taba ng toro at susunugin sa altar, at susunugin ang toro sa labas ng kampo. Sa pamamagitan ng gagawing ito ng punong pari, ang mga taga-Israel ay matutubos sa kanilang mga kasalanan at patatawarin ng Panginoon ang mga kasalanan nila. Ito ang handog sa paglilinis para sa buong sambayanan ng Israel. 
+Pagkatapos, papahiran niya ng dugo ang parang sungay sa mga sulok ng altar na nasa loob ng Tolda sa presensya ng Panginoon. At ang natitirang dugo ay ibubuhos niya sa ilalim ng altar na pinagsusunugan ng handog na sinusunog. Ang altar na itoʼy malapit sa pintuan ng Tolda.
+
+###### 19-21
+
+At ang gagawin niya sa toro na itoʼy katulad din ng ginawa niya sa torong handog sa paglilinis. Kukunin niya ang lahat ng taba ng toro at susunugin sa altar, at susunugin ang toro sa labas ng kampo. Sa pamamagitan ng gagawing ito ng punong pari, ang mga taga-Israel ay matutubos sa kanilang mga kasalanan at patatawarin ng Panginoon ang mga kasalanan nila. Ito ang handog sa paglilinis para sa buong sambayanan ng Israel. 
 
 
 ###### 22 

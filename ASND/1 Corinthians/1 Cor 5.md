@@ -62,4 +62,8 @@ Hindi ko tinutukoy dito ang mga taong hindi sumasampalataya sa Dios – ang mga 
 ###### 11 
 
 
-Ang tinutukoy ko na huwag ninyong pakikisamahan ay ang mga nagsasabing silaʼy mga kapatid sa Panginoon pero mga imoral, sakim, sumasamba sa dios-diosan, mapanlait, lasenggo, at magnanakaw. Ni huwag kayong makisalo sa kanila sa pagkain. 12-13Kung sabagay, ano ba ang karapatan nating husgahan ang mga hindi mananampalataya? Ang Dios na ang huhusga sa kanila. Ngunit tungkulin ninyo na husgahan ang mga kapatid kung tama o mali ang kanilang ginagawa, dahil sinasabi ng Kasulatan, "Paalisin ninyo sa inyong grupo ang taong masama."
+Ang tinutukoy ko na huwag ninyong pakikisamahan ay ang mga nagsasabing silaʼy mga kapatid sa Panginoon pero mga imoral, sakim, sumasamba sa dios-diosan, mapanlait, lasenggo, at magnanakaw. Ni huwag kayong makisalo sa kanila sa pagkain.
+
+###### 12-13
+
+Kung sabagay, ano ba ang karapatan nating husgahan ang mga hindi mananampalataya? Ang Dios na ang huhusga sa kanila. Ngunit tungkulin ninyo na husgahan ang mga kapatid kung tama o mali ang kanilang ginagawa, dahil sinasabi ng Kasulatan, "Paalisin ninyo sa inyong grupo ang taong masama."

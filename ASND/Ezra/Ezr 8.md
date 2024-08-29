@@ -162,7 +162,11 @@ Pumili ako ng 12 tao mula sa mga namumunong pari, hindi kabilang sina Sherebia, 
 ###### 25 
 
 
-Pagkatapos, ipinagkatiwala ko sa kanila ng walang kulang ang mga pilak, ginto, at mga kagamitang ibinigay ng hari, at ng mga tagapayo niya at mga opisyal, at ng maraming Israelita, bilang tulong sa templo ng aming Dios. 26-27Ito ang aking ipinagkatiwala sa kanila: 22 toneladang pilak 3 toneladang kasangkapang pilak 3 toneladang ginto 20 gintong mangkok na mga waloʼt kalahating kilo, 2 tansong mangkok na pinakintab na kasinghalaga ng mga mangkok na ginto. 
+Pagkatapos, ipinagkatiwala ko sa kanila ng walang kulang ang mga pilak, ginto, at mga kagamitang ibinigay ng hari, at ng mga tagapayo niya at mga opisyal, at ng maraming Israelita, bilang tulong sa templo ng aming Dios.
+
+###### 26-27
+
+Ito ang aking ipinagkatiwala sa kanila: 22 toneladang pilak 3 toneladang kasangkapang pilak 3 toneladang ginto 20 gintong mangkok na mga waloʼt kalahating kilo, 2 tansong mangkok na pinakintab na kasinghalaga ng mga mangkok na ginto. 
 
 
 ###### 28 

@@ -138,4 +138,8 @@ Ayon din sa utos ni Moises, itinaas ni Aaron ang pitso at ang kanang hita ng hay
 ###### 22 
 
 
-Pagkatapos maihandog ni Aaron ang lahat ng ito, itinaas niya ang kanyang mga kamay sa mga tao at binasbasan niya, at pagkatapos, bumaba siya mula sa altar. 23-24At pumasok sina Moises at Aaron sa loob ng Toldang Tipanan. Paglabas nila, muli nilang binasbasan ang mga tao. At ipinakita ng Panginoon ang kanyang kapangyarihan sa mga tao sa pamamagitan ng apoy na sumunog sa mga handog na nasa altar. Nang itoʼy makita ng mga tao, nagsigawan sila sa tuwa at nagpatirapa para sambahin ang Panginoon.
+Pagkatapos maihandog ni Aaron ang lahat ng ito, itinaas niya ang kanyang mga kamay sa mga tao at binasbasan niya, at pagkatapos, bumaba siya mula sa altar.
+
+###### 23-24
+
+At pumasok sina Moises at Aaron sa loob ng Toldang Tipanan. Paglabas nila, muli nilang binasbasan ang mga tao. At ipinakita ng Panginoon ang kanyang kapangyarihan sa mga tao sa pamamagitan ng apoy na sumunog sa mga handog na nasa altar. Nang itoʼy makita ng mga tao, nagsigawan sila sa tuwa at nagpatirapa para sambahin ang Panginoon.

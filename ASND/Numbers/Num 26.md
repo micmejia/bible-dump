@@ -114,7 +114,11 @@ Arod at Areli.
 ###### 18 
 
 
-Sila ang mga pamilya na nanggaling kay Gad; 40,500 silang lahat. 19-20May dalawang anak na lalaki si Juda na sina Er at Onan, na namatay sa lupain ng Canaan. Pero may mga lahi rin naman si Juda na siyang pamilya nina Shela, Perez at Zera. 
+Sila ang mga pamilya na nanggaling kay Gad; 40,500 silang lahat.
+
+###### 19-20
+
+May dalawang anak na lalaki si Juda na sina Er at Onan, na namatay sa lupain ng Canaan. Pero may mga lahi rin naman si Juda na siyang pamilya nina Shela, Perez at Zera. 
 
 
 ###### 21 
@@ -318,7 +322,11 @@ Pagkatapos, sinabi ng Panginoon kay Moises,
 ###### 54 
 
 
-Ang malaking lahi, bigyan ng mas malaki at ang maliit na lahi bigyan ng maliit. 55-56Ang lupain ay kailangang hatiin sa pamamagitan ng palabunutan para malaman kung aling bahagi ang makukuha ng malaki at maliit na angkan ayon sa sensus." 
+Ang malaking lahi, bigyan ng mas malaki at ang maliit na lahi bigyan ng maliit.
+
+###### 55-56
+
+Ang lupain ay kailangang hatiin sa pamamagitan ng palabunutan para malaman kung aling bahagi ang makukuha ng malaki at maliit na angkan ayon sa sensus." 
 
 
 ###### 57 

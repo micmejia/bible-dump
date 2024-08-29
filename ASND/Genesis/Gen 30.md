@@ -230,7 +230,11 @@ Ibinukod niya ito kay Jacob sa layo na tatlong araw kung lalakarin. Ang naiwang 
 ###### 37 
 
 
-Kumuha si Jacob ng mga sanga ng almendro, abilyano, at kastanyo, at binalat-balatan niya ito. Pero hindi niya lubos na binalatan, kaya may batik-batik na puti kapag tiningnan ang mga sanga. 38-39Inilagay niya ang mga sangang iyon sa harapan ng painuman ng mga hayop para makita ng mga ito kapag iinom sila. Doon sa harapan ng mga sanga nagkakastahan ang mga kambing kapag umiinom sila. Batik-batik ang mga anak nila kapag nanganganak sila. 
+Kumuha si Jacob ng mga sanga ng almendro, abilyano, at kastanyo, at binalat-balatan niya ito. Pero hindi niya lubos na binalatan, kaya may batik-batik na puti kapag tiningnan ang mga sanga.
+
+###### 38-39
+
+Inilagay niya ang mga sangang iyon sa harapan ng painuman ng mga hayop para makita ng mga ito kapag iinom sila. Doon sa harapan ng mga sanga nagkakastahan ang mga kambing kapag umiinom sila. Batik-batik ang mga anak nila kapag nanganganak sila. 
 
 
 ###### 40 

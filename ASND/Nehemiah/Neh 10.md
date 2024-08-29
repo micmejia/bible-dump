@@ -14,7 +14,15 @@ next: ['Neh 11']
 
 Ang unang pumirma ay si Gobernador Nehemias na anak ni Hakalias, at si Zedekia.
 
-###### 2-8 Ang mga paring pumirma ay sina Seraya, Azaria, Jeremias, Pashur, Amaria, Malkia, Hatush, Shebania, Maluc, Harim, Meremot, Obadias, Daniel, Gineton, Baruc, Meshulam, Abijah, Mijamin, Maazia, Bilgai, at Shemaya. 9-13Ang mga Levita na pumirma ay sina Jeshua na anak ni Azania, Binui na mula sa pamilya ni Henadad, Kadmiel, Shebania, Kelita, Pelaya, Hanan, Mica, Rehob, Hashabia, Zacur, Sherebia, Shebania, Hodia, Bani, at Beninu. 14-27Ang mga pinuno na pumirma ay sina Paros, Pahat Moab, Elam, Zatu, Bani, Buni, Azgad, Bebai, Adonia, Bigvai, Adin, Ater, Hezekia, Azur, Hodia, Hashum, Bezai, Harif, Anatot, Nebai, Magpias, Meshulam, Hezir, Meshezabel, Zadok, Jadua, Palatia, Hanan, Anaya, Hoshea, Hanania, Hashub, Halohes, Pilha, Shobek, Rehum, Hashabna, Maaseya, Ahia, Hanan, Anan, Maluc, Harim, at Baana.
+###### 2-8 Ang mga paring pumirma ay sina Seraya, Azaria, Jeremias, Pashur, Amaria, Malkia, Hatush, Shebania, Maluc, Harim, Meremot, Obadias, Daniel, Gineton, Baruc, Meshulam, Abijah, Mijamin, Maazia, Bilgai, at Shemaya.
+
+###### 9-13
+
+Ang mga Levita na pumirma ay sina Jeshua na anak ni Azania, Binui na mula sa pamilya ni Henadad, Kadmiel, Shebania, Kelita, Pelaya, Hanan, Mica, Rehob, Hashabia, Zacur, Sherebia, Shebania, Hodia, Bani, at Beninu.
+
+###### 14-27
+
+Ang mga pinuno na pumirma ay sina Paros, Pahat Moab, Elam, Zatu, Bani, Buni, Azgad, Bebai, Adonia, Bigvai, Adin, Ater, Hezekia, Azur, Hodia, Hashum, Bezai, Harif, Anatot, Nebai, Magpias, Meshulam, Hezir, Meshezabel, Zadok, Jadua, Palatia, Hanan, Anaya, Hoshea, Hanania, Hashub, Halohes, Pilha, Shobek, Rehum, Hashabna, Maaseya, Ahia, Hanan, Anan, Maluc, Harim, at Baana.
 
 ## Ang Kasunduan 
 

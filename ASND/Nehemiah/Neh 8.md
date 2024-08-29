@@ -9,6 +9,13 @@ next: ['Neh 9']
 ***
 # Nehemias 8 (Ang Salita ng Dios (Tagalog Contemporary Bible)) 
 
+## Binasa ni Ezra ang Kautusan 
+
+###### 1
+
+Nang dumating ang ikapitong buwan, nang nakatira na ang mga Israelita sa mga bayan nila, nagtipon silang lahat sa Jerusalem nang may pagkakaisa, doon sa plasa na nasa harapan ng Pintuan ng Tubig. Hiniling nila kay Ezra na tagapagturo ng kautusan na kunin niya at basahin ang Aklat ng Kautusan ni Moises na iniutos ng Panginoon sa mga Israelita.
+
+
 ###### 2-3 Kaya nang araw na iyon, ang unang araw ng ikapitong buwan, dinala ng paring si Ezra ang Kautusan sa harap ng mga tao – mga lalaki, babae, at mga batang nakakaunawa na. Binasa niya ito sa kanila nang malakas mula sa pagsikat ng araw hanggang tanghali, doon sa plasa na nasa harapan ng Pintuan ng Tubig. At pinakinggang mabuti ng lahat ang Aklat ng Kautusan. 
 
 

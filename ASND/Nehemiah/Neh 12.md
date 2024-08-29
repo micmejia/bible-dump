@@ -35,7 +35,11 @@ Si Jeshua ay ama ni Joyakim. Si Joyakim ay ama ni Eliashib. Si Eliashib ay ama n
 
 Si Joyada ay ama ni Jonatan. At si Jonatan ay ama ni Jadua.
 
-## Ang Pinuno ng mga Pamilya ng mga Pari 12-13Ito ang mga pinuno ng mga pamilya ng mga pari noong si Joyakim ang punong pari: Si Meraya ang pinuno ng pamilya ni Seraya. Si Hanania ang pinuno ng pamilya ni Jeremias. Si Meshulam ang pinuno ng pamilya ni Ezra. Si Jehohanan ang pinuno ng pamilya ni Amaria. 
+## Ang Pinuno ng mga Pamilya ng mga Pari
+
+###### 12-13
+
+Ito ang mga pinuno ng mga pamilya ng mga pari noong si Joyakim ang punong pari: Si Meraya ang pinuno ng pamilya ni Seraya. Si Hanania ang pinuno ng pamilya ni Jeremias. Si Meshulam ang pinuno ng pamilya ni Ezra. Si Jehohanan ang pinuno ng pamilya ni Amaria. 
 
 
 ###### 14 

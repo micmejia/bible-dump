@@ -84,7 +84,11 @@ Nakatayo kayo rito ngayon para gawin ang kasunduan sa Panginoon na inyong Dios. 
 ###### 13 
 
 
-Gusto niyang mapatunayan sa inyo sa araw na ito na kayo ang mamamayan niya at siya ang Dios ninyo ayon sa ipinangako niya sa inyo at sa inyong mga ninuno na sina Abraham, Isaac, at Jacob. 14-15Pero hindi lang kayo na nakatayo ngayon dito sa presensya ng Panginoon na inyong Dios ang saklaw ng kasunduang ito, kundi pati ang lahat ng inyong lahi na ipapanganak pa lang. 
+Gusto niyang mapatunayan sa inyo sa araw na ito na kayo ang mamamayan niya at siya ang Dios ninyo ayon sa ipinangako niya sa inyo at sa inyong mga ninuno na sina Abraham, Isaac, at Jacob.
+
+###### 14-15
+
+Pero hindi lang kayo na nakatayo ngayon dito sa presensya ng Panginoon na inyong Dios ang saklaw ng kasunduang ito, kundi pati ang lahat ng inyong lahi na ipapanganak pa lang. 
 
 
 ###### 16 

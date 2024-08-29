@@ -112,7 +112,11 @@ Mula roon sa Arnon, nagpatuloy ang mga Israelita sa Beer, ang balon na kung saan
 ###### 17 
 
 
-At doon umawit ang mga Israelita ng awit na ito: Patuloy na magbibigay ng tubig ang balong ito! Aawit tayo tungkol sa balong ito 18na ipinahukay ng mga pinuno at mararangal na tao sa pamamagitan ng kanilang kapangyarihan. Mula sa disyerto nagpunta sila sa Matana; 
+At doon umawit ang mga Israelita ng awit na ito: Patuloy na magbibigay ng tubig ang balong ito! Aawit tayo tungkol sa balong ito
+
+###### 18
+
+na ipinahukay ng mga pinuno at mararangal na tao sa pamamagitan ng kanilang kapangyarihan. Mula sa disyerto nagpunta sila sa Matana; 
 
 
 ###### 19 

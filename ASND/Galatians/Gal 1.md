@@ -82,7 +82,11 @@ Alam naman ninyo ang dati kong pamumuhay noong kasapi ako sa relihiyon ng mga Ju
 ###### 14 
 
 
-At tungkol naman sa pagsunod sa relihiyon ng mga Judio, nahigitan ko ang marami sa mga kaedad ko, dahil tapat kong sinunod ang mga tradisyong nanggaling pa sa mga ninuno namin. 15-16Ngunit sa awa ng Dios, bago pa man ako ipanganak, pinili na niya ako at tinawag upang ihayag sa akin ang kanyang Anak para maipangaral siya sa mga hindi Judio. Nang mangyari ito, hindi ako sumangguni kaninuman. 
+At tungkol naman sa pagsunod sa relihiyon ng mga Judio, nahigitan ko ang marami sa mga kaedad ko, dahil tapat kong sinunod ang mga tradisyong nanggaling pa sa mga ninuno namin.
+
+###### 15-16
+
+Ngunit sa awa ng Dios, bago pa man ako ipanganak, pinili na niya ako at tinawag upang ihayag sa akin ang kanyang Anak para maipangaral siya sa mga hindi Judio. Nang mangyari ito, hindi ako sumangguni kaninuman. 
 
 
 ###### 17 

@@ -108,7 +108,11 @@ Ang akala ng batugan mas marunong pa siya kaysa sa pitong tao na tamang mangatuw
 ###### 17 
 
 
-Mapanganib ang nanghihimasok sa gulo ng may gulo, ito ay tulad ng pagdakma sa tainga ng aso. 18-19Ang taong nandaraya sa kanyang kapwa, at saka sasabihing nagbibiro lang siya ay tulad ng isang baliw na pumapana sa mga tao sa pamamagitan ng nakamamatay na palaso. 
+Mapanganib ang nanghihimasok sa gulo ng may gulo, ito ay tulad ng pagdakma sa tainga ng aso.
+
+###### 18-19
+
+Ang taong nandaraya sa kanyang kapwa, at saka sasabihing nagbibiro lang siya ay tulad ng isang baliw na pumapana sa mga tao sa pamamagitan ng nakamamatay na palaso. 
 
 
 ###### 20 

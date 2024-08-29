@@ -254,7 +254,11 @@ Sa paghahandog mo ng tupa sa umaga, maghandog ka rin ng dalawang kilo ng maganda
 ###### 41 
 
 
-Sa paghahandog mo ng tupa sa hapon, ihandog mo rin ang mga nabanggit na harina at inumin. Ang mabangong samyo ng handog na ito sa pamamagitan ng apoy ay makalulugod sa akin. 42-43Ang mga handog na sinusunog ay kailangang ihandog araw-araw ng susunod pang mga henerasyon. Ihandog ninyo ito sa aking presensya, doon sa may pintuan ng Toldang Tipanan kung saan ako makikipag-usap sa iyo at makikipagkita sa mga Israelita. Magiging banal ang Tolda dahil sa makapangyarihan kong presensya. 
+Sa paghahandog mo ng tupa sa hapon, ihandog mo rin ang mga nabanggit na harina at inumin. Ang mabangong samyo ng handog na ito sa pamamagitan ng apoy ay makalulugod sa akin.
+
+###### 42-43
+
+Ang mga handog na sinusunog ay kailangang ihandog araw-araw ng susunod pang mga henerasyon. Ihandog ninyo ito sa aking presensya, doon sa may pintuan ng Toldang Tipanan kung saan ako makikipag-usap sa iyo at makikipagkita sa mga Israelita. Magiging banal ang Tolda dahil sa makapangyarihan kong presensya. 
 
 
 ###### 44 

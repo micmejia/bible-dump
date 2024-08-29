@@ -123,7 +123,11 @@ Alam ng ibon na mahuhuli siya, pero ang taong masasama, hindi nila alam na sila 
 
 Ganyan ang mangyayari sa mga taong ang ari-arian ay nakuha sa masamang paraan. Mamamatay sila sa ganoon ding paraan.
 
-## Kapag Itinakwil ang Karunungan 20-21Ang karunungan ay katulad ng isang mangangaral na nagsasalita sa mga lansangan, plasa, pamilihan, at mga pintuang bayan. Sinasabi niya, 
+## Kapag Itinakwil ang Karunungan
+
+###### 20-21
+
+Ang karunungan ay katulad ng isang mangangaral na nagsasalita sa mga lansangan, plasa, pamilihan, at mga pintuang bayan. Sinasabi niya, 
 
 
 ###### 22 
@@ -147,7 +151,11 @@ sapagkat hindi ninyo pinansin ang panawagan ko na lumapit kayo sa akin,
 ###### 25 
 
 
-at binalewala ninyo ang lahat ng payo ko at pagsaway. 26-27Pagtatawanan ko kayo kapag napahamak kayo; kukutyain ko kayo kapag dumating sa inyo ang paghihirap at mga pangyayaring nakakatakot gaya ng ipu-ipo at bagyo. 
+at binalewala ninyo ang lahat ng payo ko at pagsaway.
+
+###### 26-27
+
+Pagtatawanan ko kayo kapag napahamak kayo; kukutyain ko kayo kapag dumating sa inyo ang paghihirap at mga pangyayaring nakakatakot gaya ng ipu-ipo at bagyo. 
 
 
 ###### 28 

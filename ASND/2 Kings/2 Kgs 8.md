@@ -174,4 +174,8 @@ Si Ahazia ay 22 taong gulang nang maging hari. Sa Jerusalem siya tumira, at nagh
 ###### 27 
 
 
-Sumunod siya sa pamumuhay ng pamilya ni Ahab. Masama ang ginawa niya sa paningin ng Panginoon gaya ng ginawa ng pamilya ni Ahab dahil ginawa niyang asawa ang isa sa kapamilya nito. 28-29Sumama si Ahazia sa anak ni Ahab na si Joram sa pakikipaglaban kay Haring Hazael ng Aram. Nakipaglaban sila sa Ramot Gilead at nasugatan si Joram. Umuwi si Haring Joram sa lungsod ng Jezreel para magpagaling ng sugat niya. Habang naroon siya, dinalaw siya ni Haring Ahazia ng Juda.
+Sumunod siya sa pamumuhay ng pamilya ni Ahab. Masama ang ginawa niya sa paningin ng Panginoon gaya ng ginawa ng pamilya ni Ahab dahil ginawa niyang asawa ang isa sa kapamilya nito.
+
+###### 28-29
+
+Sumama si Ahazia sa anak ni Ahab na si Joram sa pakikipaglaban kay Haring Hazael ng Aram. Nakipaglaban sila sa Ramot Gilead at nasugatan si Joram. Umuwi si Haring Joram sa lungsod ng Jezreel para magpagaling ng sugat niya. Habang naroon siya, dinalaw siya ni Haring Ahazia ng Juda.

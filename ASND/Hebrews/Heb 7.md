@@ -78,7 +78,11 @@ Alam natin na ang Kautusang ibinigay ng Dios sa mga Judio ay batay sa pagkapari 
 ###### 12 
 
 
-At kung papalitan ang pagkapari, kailangan ding palitan ang Kautusan. 13-14Ang ating Panginoong Jesus na siyang tinutukoy na ipinalit sa mga pari ay kabilang sa ibang lahi, dahil malinaw na galing siya sa lahi ni Juda at hindi kay Levi. At wala pang naglingkod kahit kailan bilang pari mula sa lahi ni Juda. Sapagkat nang sabihin ni Moises kung sino ang maaaring maging pari, wala siyang sinabi tungkol sa lahi ni Juda.
+At kung papalitan ang pagkapari, kailangan ding palitan ang Kautusan.
+
+###### 13-14
+
+Ang ating Panginoong Jesus na siyang tinutukoy na ipinalit sa mga pari ay kabilang sa ibang lahi, dahil malinaw na galing siya sa lahi ni Juda at hindi kay Levi. At wala pang naglingkod kahit kailan bilang pari mula sa lahi ni Juda. Sapagkat nang sabihin ni Moises kung sino ang maaaring maging pari, wala siyang sinabi tungkol sa lahi ni Juda.
 
 ## Si Jesus ay Katulad ni Melkizedek 
 

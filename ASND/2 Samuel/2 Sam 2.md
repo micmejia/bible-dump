@@ -110,7 +110,11 @@ Hinawakan nila ang ulo ng isaʼt isa at nagsaksakan hanggang sa mamatay silang l
 ###### 17 
 
 
-At nagkaroon ng matinding labanan sa pagitan ng dalawang grupo. At nang araw na iyon, natalo si Abner at ang mga tauhan ng Israel laban sa mga tauhan ni David. 18-19Kasama sa labanan ang tatlong anak ni Zeruya na sina Joab, Abishai at Asahel. Mabilis tumakbo si Asahel gaya ng usa, at hinabol niya si Abner nang walang lingon-lingon. 
+At nagkaroon ng matinding labanan sa pagitan ng dalawang grupo. At nang araw na iyon, natalo si Abner at ang mga tauhan ng Israel laban sa mga tauhan ni David.
+
+###### 18-19
+
+Kasama sa labanan ang tatlong anak ni Zeruya na sina Joab, Abishai at Asahel. Mabilis tumakbo si Asahel gaya ng usa, at hinabol niya si Abner nang walang lingon-lingon. 
 
 
 ###### 20 

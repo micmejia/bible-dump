@@ -50,7 +50,11 @@ Isang araw, umalis siya para maghanap ng matitirhan sa ibang lugar. Sa kanyang p
 ###### 9 
 
 
-Tinanong siya ni Micas, "Taga-saan ka?" Sumagot siya, "Taga-Betlehem po ako, na sakop ng Juda, at isa po akong Levita. Naghahanap po ako ng matitirhan." 10-11Sinabi ni Micas, "Dito ka na lang tumira kasama ko. Gagawin kitang tagapayo ko at pari. At bawat taon, bibigyan kita ng sampung pirasong pilak, bukod pa sa mga damit at pagkain na ibibigay ko sa iyo." Pumayag ang Levita sa sinabi ni Micas at itinuring siya ni Micas na isa sa kanyang mga anak. 
+Tinanong siya ni Micas, "Taga-saan ka?" Sumagot siya, "Taga-Betlehem po ako, na sakop ng Juda, at isa po akong Levita. Naghahanap po ako ng matitirhan."
+
+###### 10-11
+
+Sinabi ni Micas, "Dito ka na lang tumira kasama ko. Gagawin kitang tagapayo ko at pari. At bawat taon, bibigyan kita ng sampung pirasong pilak, bukod pa sa mga damit at pagkain na ibibigay ko sa iyo." Pumayag ang Levita sa sinabi ni Micas at itinuring siya ni Micas na isa sa kanyang mga anak. 
 
 
 ###### 12 

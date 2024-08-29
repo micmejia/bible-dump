@@ -59,13 +59,21 @@ Sa araw na iyon, dadaloy ang sariwang tubig mula sa Jerusalem. Ang kalahati nito
 ###### 9 
 
 
-Ang Panginoon ang maghahari sa buong mundo. Siya lamang ang kikilalaning Dios at wala nang iba. 10-11Gagawing kapatagan ang buong lupain mula sa Geba sa hilaga hanggang sa Rimon sa timog ng Jerusalem. Kaya mananatiling mataas ang Jerusalem sa kinaroroonan nito. At titirhan ito mula sa Pintuan ni Benjamin hanggang sa lugar na kinaroroonan ng Unang Pintuan, at hanggang sa Sulok na Pintuan; at mula sa Tore ni Hananel hanggang sa pisaan ng ubas ng hari. Ang Jerusalem ay hindi na muling wawasakin, at ang mga mamamayan nito ay mamumuhay nang ligtas sa panganib. 
+Ang Panginoon ang maghahari sa buong mundo. Siya lamang ang kikilalaning Dios at wala nang iba.
+
+###### 10-11
+
+Gagawing kapatagan ang buong lupain mula sa Geba sa hilaga hanggang sa Rimon sa timog ng Jerusalem. Kaya mananatiling mataas ang Jerusalem sa kinaroroonan nito. At titirhan ito mula sa Pintuan ni Benjamin hanggang sa lugar na kinaroroonan ng Unang Pintuan, at hanggang sa Sulok na Pintuan; at mula sa Tore ni Hananel hanggang sa pisaan ng ubas ng hari. Ang Jerusalem ay hindi na muling wawasakin, at ang mga mamamayan nito ay mamumuhay nang ligtas sa panganib. 
 
 
 ###### 12 
 
 
-Ang mga bansang sumalakay sa Jerusalem ay padadalhan ng mga salot na ito: Mabubulok ang kanilang mga katawan, mata, at dila kahit buhay pa sila. 13-15Ganito ring salot ang darating sa lahat ng mga hayop sa kanilang kampo, pati na sa kanilang mga kabayo, mola, kamelyo, at asno. Sa araw na iyon, lubhang lilituhin ng Panginoon ang mga taong iyon. Ang bawat isa sa kanila ay sasalakay sa kanilang kapwa, at sila mismo ay maglalaban-laban. Makikipaglaban din ang ibang mga lungsod ng Juda. Sasamsamin at titipunin nila ang mga kayamanan ng mga bansa sa palibot nila – ang napakaraming ginto, pilak at mga damit. 
+Ang mga bansang sumalakay sa Jerusalem ay padadalhan ng mga salot na ito: Mabubulok ang kanilang mga katawan, mata, at dila kahit buhay pa sila.
+
+###### 13-15
+
+Ganito ring salot ang darating sa lahat ng mga hayop sa kanilang kampo, pati na sa kanilang mga kabayo, mola, kamelyo, at asno. Sa araw na iyon, lubhang lilituhin ng Panginoon ang mga taong iyon. Ang bawat isa sa kanila ay sasalakay sa kanilang kapwa, at sila mismo ay maglalaban-laban. Makikipaglaban din ang ibang mga lungsod ng Juda. Sasamsamin at titipunin nila ang mga kayamanan ng mga bansa sa palibot nila – ang napakaraming ginto, pilak at mga damit. 
 
 
 ###### 16 

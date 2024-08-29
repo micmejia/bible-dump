@@ -72,7 +72,11 @@ At ang mga kwarto sa mga gilid at likod ng templo, na ang taas ay pitoʼt kalaha
 ###### 11 
 
 
-Sinabi ng Panginoon kay Solomon, 12-13"Kung tutuparin mo ang aking mga tuntunin at mga utos, tutuparin ko rin sa pamamagitan mo ang ipinangako ko kay David na iyong ama. Maninirahan ako kasama ng mga Israelita sa templong ito na iyong ipinatayo at hindi ko sila itatakwil." 
+Sinabi ng Panginoon kay Solomon,
+
+###### 12-13
+
+"Kung tutuparin mo ang aking mga tuntunin at mga utos, tutuparin ko rin sa pamamagitan mo ang ipinangako ko kay David na iyong ama. Maninirahan ako kasama ng mga Israelita sa templong ito na iyong ipinatayo at hindi ko sila itatakwil." 
 
 
 ###### 14 
@@ -134,7 +138,11 @@ Kaya natatakpan lahat ng ginto ang loob ng templo, pati na ang altar na nasa loo
 ###### 23 
 
 
-Nagpalagay si Solomon sa loob ng Pinakabanal na Lugar ng dalawang kerubin na gawa sa kahoy na olibo, na ang bawat isa ay 15 talampakan ang taas. 24-26Ang dalawang kerubing ito ay magkasinglaki at magkasinghugis. Ang bawat isa ay may dalawang pakpak, at bawat pakpak ay may habang pitoʼt kalahating talampakan. Kaya ang haba mula sa dulo ng isang pakpak hanggang sa dulo ng isa pang pakpak ay 15 talampakan. 
+Nagpalagay si Solomon sa loob ng Pinakabanal na Lugar ng dalawang kerubin na gawa sa kahoy na olibo, na ang bawat isa ay 15 talampakan ang taas.
+
+###### 24-26
+
+Ang dalawang kerubing ito ay magkasinglaki at magkasinghugis. Ang bawat isa ay may dalawang pakpak, at bawat pakpak ay may habang pitoʼt kalahating talampakan. Kaya ang haba mula sa dulo ng isang pakpak hanggang sa dulo ng isa pang pakpak ay 15 talampakan. 
 
 
 ###### 27 

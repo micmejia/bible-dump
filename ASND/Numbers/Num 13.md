@@ -24,7 +24,11 @@ Sinabi ng Panginoon kay Moises,
 ###### 3 
 
 
-Kaya sinunod ni Moises ang iniutos sa kanya ng Panginoon. Ipinadala niya sa Canaan ang mga pinuno ng mga Israelita mula roon sa Disyerto ng Paran. 4-15Ito ang mga lahi at mga pangalan nila: 
+Kaya sinunod ni Moises ang iniutos sa kanya ng Panginoon. Ipinadala niya sa Canaan ang mga pinuno ng mga Israelita mula roon sa Disyerto ng Paran.
+
+###### 4-15
+
+Ito ang mga lahi at mga pangalan nila: 
 
 
 ###### 16 

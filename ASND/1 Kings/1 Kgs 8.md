@@ -240,7 +240,11 @@ dinggin nʼyo po sila riyan sa inyong luklukan sa langit. Kumilos po kayo at pat
 ###### 40 
 
 
-Gawin nʼyo po ito para gumalang sila sainyo habang nabubuhay sila sa lupaing ibinigay nʼyo sa aming mga ninuno. 41-42"Kung ang mga dayuhan na nakatira sa malayong lugar ay makarinig ng inyong kadakilaan at kapangyarihan, at pumunta sila rito para sumamba sa inyo at manalangin na nakaharap sa templong ito, 
+Gawin nʼyo po ito para gumalang sila sainyo habang nabubuhay sila sa lupaing ibinigay nʼyo sa aming mga ninuno.
+
+###### 41-42
+
+"Kung ang mga dayuhan na nakatira sa malayong lugar ay makarinig ng inyong kadakilaan at kapangyarihan, at pumunta sila rito para sumamba sa inyo at manalangin na nakaharap sa templong ito, 
 
 
 ###### 43 

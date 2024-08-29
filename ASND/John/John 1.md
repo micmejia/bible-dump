@@ -115,7 +115,11 @@ Ibinigay sa atin ng Dios ang Kautusan sa pamamagitan ni Moises, ngunit ang biyay
 
 Wala pang nakakita sa Dios Ama kahit kailan, ngunit ipinakilala siya sa atin ng kanyang Bugtong na Anak, na Dios din nga at kapiling ng Ama.
 
-## Ang Patotoo ni Juan tungkol kay Jesus 19-20Pinapunta ng mga pinuno ng mga Judio sa Jerusalem ang ilang mga pari at Levita upang tanungin si Juan kung sino talaga siya. Tinapat sila ni Juan. Sinabi niya, "Hindi ako ang Cristo." 
+## Ang Patotoo ni Juan tungkol kay Jesus
+
+###### 19-20
+
+Pinapunta ng mga pinuno ng mga Judio sa Jerusalem ang ilang mga pari at Levita upang tanungin si Juan kung sino talaga siya. Tinapat sila ni Juan. Sinabi niya, "Hindi ako ang Cristo." 
 
 
 ###### 21 

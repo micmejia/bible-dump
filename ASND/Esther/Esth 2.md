@@ -90,7 +90,11 @@ At bago siya pumunta sa hari, bibigyan siya ng anumang damit at alahas na gusto 
 ###### 14 
 
 
-Pupunta siya sa hari pagsapit ng gabi at kinabukasan, dadalhin siya sa tirahan ng mga asawa ng hari na pinamamahalaan ni Shaasgaz na isa sa mga pinunong mataas ang katungkulan. Siya ang namamahala sa mga asawa ng hari. Walang sinuman sa kanila ang makakabalik sa hari maliban lang kung magustuhan siya at ipatawag ng hari. 15-16Nang ikasampung buwan, buwan ng Tibet, at ikapitong taon ng paghahari ni Ahasuerus, dumating ang araw na si Ester na ang haharap sa hari sa palasyo. Sinunod ni Ester ang payo ni Hegai, ang pinunong nangangalaga sa kanila sa tahanan ng mga babae. Isinuot niya ang damit na sinabi ni Hegai na isuot niya. Ganoon na lang ang paghanga at pagpuri ng mga nakakita sa kanya, at dinala siya sa palasyo ng hari. 
+Pupunta siya sa hari pagsapit ng gabi at kinabukasan, dadalhin siya sa tirahan ng mga asawa ng hari na pinamamahalaan ni Shaasgaz na isa sa mga pinunong mataas ang katungkulan. Siya ang namamahala sa mga asawa ng hari. Walang sinuman sa kanila ang makakabalik sa hari maliban lang kung magustuhan siya at ipatawag ng hari.
+
+###### 15-16
+
+Nang ikasampung buwan, buwan ng Tibet, at ikapitong taon ng paghahari ni Ahasuerus, dumating ang araw na si Ester na ang haharap sa hari sa palasyo. Sinunod ni Ester ang payo ni Hegai, ang pinunong nangangalaga sa kanila sa tahanan ng mga babae. Isinuot niya ang damit na sinabi ni Hegai na isuot niya. Ganoon na lang ang paghanga at pagpuri ng mga nakakita sa kanya, at dinala siya sa palasyo ng hari. 
 
 
 ###### 17 

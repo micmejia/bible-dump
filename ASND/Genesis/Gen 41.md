@@ -242,7 +242,11 @@ Sinabi niya sa kanyang mga opisyal, "Wala na tayong makikita pang ibang tao na k
 ###### 39 
 
 
-Kaya sinabi ng Faraon kay Jose, "Sapagkat sinabi sa iyo ng Dios ang mga bagay na ito, wala na sigurong iba pang tao na may kaalaman at pang-unawa na kagaya mo. 40-41Gagawin kita ngayon na tagapamahala ng aking kaharian at gobernador ng buong Egipto, at susunod sa iyo ang lahat ng tauhan ko. Pero mas mataas pa rin ang karapatan ko kaysa sa iyo." 
+Kaya sinabi ng Faraon kay Jose, "Sapagkat sinabi sa iyo ng Dios ang mga bagay na ito, wala na sigurong iba pang tao na may kaalaman at pang-unawa na kagaya mo.
+
+###### 40-41
+
+Gagawin kita ngayon na tagapamahala ng aking kaharian at gobernador ng buong Egipto, at susunod sa iyo ang lahat ng tauhan ko. Pero mas mataas pa rin ang karapatan ko kaysa sa iyo." 
 
 
 ###### 42 

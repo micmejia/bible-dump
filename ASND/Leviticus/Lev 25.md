@@ -48,7 +48,11 @@ mga alaga nʼyong hayop, at mga hayop sa gubat na nasa inyong lupain.
 ###### 10 
 
 
-Ang ika-50 taon ay ituring ninyong natatanging taon dahil iyon ay panahon ng pagpapalaya ng mga alipin para silaʼy makabalik na sa sarili nilang sambahayan. Panahon din ito ng pagsasauli sa may-ari ng mga lupain na ipinagbili niya. 11-12Sa taong ito, na Taon ng Pagpapalaya at Pagsasauli, huwag kayong magtatanim sa inyong mga bukirin at huwag din kayong mag-aani o mamimitas ng mga bunga ng mga tanim na kusang tumubo, pero pwede kayong kumuha para may makain kayo. Itoʼy banal na taon para sa inyo. 
+Ang ika-50 taon ay ituring ninyong natatanging taon dahil iyon ay panahon ng pagpapalaya ng mga alipin para silaʼy makabalik na sa sarili nilang sambahayan. Panahon din ito ng pagsasauli sa may-ari ng mga lupain na ipinagbili niya.
+
+###### 11-12
+
+Sa taong ito, na Taon ng Pagpapalaya at Pagsasauli, huwag kayong magtatanim sa inyong mga bukirin at huwag din kayong mag-aani o mamimitas ng mga bunga ng mga tanim na kusang tumubo, pero pwede kayong kumuha para may makain kayo. Itoʼy banal na taon para sa inyo. 
 
 
 ###### 13 
@@ -78,7 +82,11 @@ Kung mahaba pa ang mga taon bago dumating ang Taon ng Pagpapalaya at Pagsasauli,
 ###### 17 
 
 
-Huwag kayong magdadayaan, sa halip ay matakot kayo sa akin, dahil ako ang Panginoon na inyong Dios. 18-19Sundin ninyo ang mga tuntunin at utos ko para kayoʼy mamuhay ng mapayapa sa lupaing inyong titirhan at hindi kayo mawawalan ng pagkain dahil sa masaganang ani ng lupain. 
+Huwag kayong magdadayaan, sa halip ay matakot kayo sa akin, dahil ako ang Panginoon na inyong Dios.
+
+###### 18-19
+
+Sundin ninyo ang mga tuntunin at utos ko para kayoʼy mamuhay ng mapayapa sa lupaing inyong titirhan at hindi kayo mawawalan ng pagkain dahil sa masaganang ani ng lupain. 
 
 
 ###### 20 
@@ -174,7 +182,11 @@ Pati ang mga pastulang nasa palibot ng kanilang bayan ay hindi dapat ipagbili, d
 ###### 35 
 
 
-Kung maghirap ang kapwa ninyo Israelita at hindi na niya kayang buhayin ang kanyang sarili, tulungan nʼyo siya katulad ng inyong pagtulong sa isang dayuhan o bisita para patuloy siyang makapamuhay kasama ninyo. 36-37Pahiramin ninyo siya ng pera na walang tubo, at pagbilhan ninyo siya ng pagkain na walang tubo para patuloy siyang naninirahang kasama ninyo. Gawin ninyo ito para ipakita na may takot kayo sa akin na inyong Dios. 
+Kung maghirap ang kapwa ninyo Israelita at hindi na niya kayang buhayin ang kanyang sarili, tulungan nʼyo siya katulad ng inyong pagtulong sa isang dayuhan o bisita para patuloy siyang makapamuhay kasama ninyo.
+
+###### 36-37
+
+Pahiramin ninyo siya ng pera na walang tubo, at pagbilhan ninyo siya ng pagkain na walang tubo para patuloy siyang naninirahang kasama ninyo. Gawin ninyo ito para ipakita na may takot kayo sa akin na inyong Dios. 
 
 
 ###### 38 
@@ -246,7 +258,11 @@ ang Israelitang iyon ay maaari pang tubusin. Maaari siyang tubusin ng kanyang ka
 ###### 49 
 
 
-tiyuhin, pinsan, o sinumang malapit niyang kamag-anak. Maaari ring siya mismo ang tumubos ng kanyang sarili kung kaya na niya. 50-52Kukuwentahin niya at ng bumili sa kanya kung ilang taon siyang naglingkod at kung magkano ang katumbas na halaga nito kung babayaran siya katulad ng isang upahang manggagawa. At ang halaga nito ay ibabawas niya sa halagang ibinayad sa kanya noong siya ay binili bilang isang alipin. (Ang halagang iyon ay batay sa dami ng taon mula nang siyaʼy binili hanggang sa Taon ng Pagpapalaya at Pagsasauli.) At kung magkano ang natira, iyon ang babayaran niya para matubos ang kanyang sarili. 
+tiyuhin, pinsan, o sinumang malapit niyang kamag-anak. Maaari ring siya mismo ang tumubos ng kanyang sarili kung kaya na niya.
+
+###### 50-52
+
+Kukuwentahin niya at ng bumili sa kanya kung ilang taon siyang naglingkod at kung magkano ang katumbas na halaga nito kung babayaran siya katulad ng isang upahang manggagawa. At ang halaga nito ay ibabawas niya sa halagang ibinayad sa kanya noong siya ay binili bilang isang alipin. (Ang halagang iyon ay batay sa dami ng taon mula nang siyaʼy binili hanggang sa Taon ng Pagpapalaya at Pagsasauli.) At kung magkano ang natira, iyon ang babayaran niya para matubos ang kanyang sarili. 
 
 
 ###### 53 

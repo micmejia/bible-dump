@@ -60,7 +60,11 @@ Ngayon, ito naman ang masasabi ko sa mga wala pang asawa at sa mga biyuda: mas m
 ###### 9 
 
 
-Ngunit kung hindi kayo makapagpigil sa inyong sarili, mag-asawa na lang kayo. Mas mabuti na ito kaysa sa magkasala kayo dahil sa matinding pagnanasa ng laman. 10-11Ngayon, sa inyong mga may asawa, may utos ako na sinabi mismo ng Panginoon: Hindi dapat hiwalayan ng lalaki ang kanyang asawa, at ganoon din naman ang babae sa kanyang asawa. Ngunit kung hihiwalay ang babae sa kanyang asawa, dapat manatili siyang walang asawa o di kayaʼy bumalik na lang sa kanyang asawa. 
+Ngunit kung hindi kayo makapagpigil sa inyong sarili, mag-asawa na lang kayo. Mas mabuti na ito kaysa sa magkasala kayo dahil sa matinding pagnanasa ng laman.
+
+###### 10-11
+
+Ngayon, sa inyong mga may asawa, may utos ako na sinabi mismo ng Panginoon: Hindi dapat hiwalayan ng lalaki ang kanyang asawa, at ganoon din naman ang babae sa kanyang asawa. Ngunit kung hihiwalay ang babae sa kanyang asawa, dapat manatili siyang walang asawa o di kayaʼy bumalik na lang sa kanyang asawa. 
 
 
 ###### 12 

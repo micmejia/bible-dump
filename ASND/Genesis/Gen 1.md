@@ -101,7 +101,9 @@ Magningning ang mga ito sa kalangitan para magbigay-liwanag sa mundo." At iyon n
 ###### 16 
 
 
-Nilikha ng Dios ang dalawang malaking ilaw: ang pinakamalaki ay magliliwanag kung araw, at ang mas malaki ay magliliwanag kung gabi. Nilikha rin niya ang mga bituin. 17-18Inilagay ng Dios ang mga ito sa kalangitan para magbigay-liwanag sa mundo kung araw at gabi, at para ihiwalay ang liwanag sa dilim. At nasiyahan ang Dios sa nakita niya. 
+Nilikha ng Dios ang dalawang malaking ilaw: ang pinakamalaki ay magliliwanag kung araw, at ang mas malaki ay magliliwanag kung gabi. Nilikha rin niya ang mga bituin. 
+
+###### 17-18 Inilagay ng Dios ang mga ito sa kalangitan para magbigay-liwanag sa mundo kung araw at gabi, at para ihiwalay ang liwanag sa dilim. At nasiyahan ang Dios sa nakita niya. 
 
 
 ###### 19 

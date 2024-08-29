@@ -138,7 +138,11 @@ Kung tatanungin mo ang sarili mo kung bakit ka napahamak na parang babaeng pinun
 ###### 23 
 
 
-Mapapalitan ba ng taong maitim ang kulay ng balat niya? Maaalis ba ng leopardo ang mga batik sa katawan niya? Hindi! Ganyan din kayong mga taga-Jerusalem, hindi kayo makakagawa ng mabuti dahil ugali na ninyo ang gumawa ng masama. 24-25Sinabi ng Panginoon, "Pangangalatin ko kayo katulad ng ipa na ipinapadpad ng hanging mula sa disyerto. Iyan ang kahihinatnan ninyo. Gagawin ko ito sa inyo dahil kinalimutan ninyo ako at nagtiwala kayo sa mga dios-diosan. 
+Mapapalitan ba ng taong maitim ang kulay ng balat niya? Maaalis ba ng leopardo ang mga batik sa katawan niya? Hindi! Ganyan din kayong mga taga-Jerusalem, hindi kayo makakagawa ng mabuti dahil ugali na ninyo ang gumawa ng masama.
+
+###### 24-25
+
+Sinabi ng Panginoon, "Pangangalatin ko kayo katulad ng ipa na ipinapadpad ng hanging mula sa disyerto. Iyan ang kahihinatnan ninyo. Gagawin ko ito sa inyo dahil kinalimutan ninyo ako at nagtiwala kayo sa mga dios-diosan. 
 
 
 ###### 26 

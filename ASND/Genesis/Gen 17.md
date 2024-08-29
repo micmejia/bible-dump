@@ -72,7 +72,11 @@ At tungkol sa kasunduang ito, dapat ninyong tuliin ang lahat ng lalaki.
 ###### 11 
 
 
-Ito ang magiging palatandaan ng kasunduan ko sa inyo. 12-13Mula ngayon hanggang sa susunod pang mga henerasyon, ang lahat ng lalaking ipapanganak ay dapat tuliin pagsapit nang ikawalong araw mula nang isilang ito. Tuliin din ninyo ang mga aliping lalaki na isinilang sa tahanan ninyo at pati ang mga aliping binili ninyo sa mga taga-ibang lugar. Ito ang palatandaan sa katawan ninyo na magpapatunay na ang kasunduan ko sa inyo ay magpapatuloy hanggang wakas. 
+Ito ang magiging palatandaan ng kasunduan ko sa inyo.
+
+###### 12-13
+
+Mula ngayon hanggang sa susunod pang mga henerasyon, ang lahat ng lalaking ipapanganak ay dapat tuliin pagsapit nang ikawalong araw mula nang isilang ito. Tuliin din ninyo ang mga aliping lalaki na isinilang sa tahanan ninyo at pati ang mga aliping binili ninyo sa mga taga-ibang lugar. Ito ang palatandaan sa katawan ninyo na magpapatunay na ang kasunduan ko sa inyo ay magpapatuloy hanggang wakas. 
 
 
 ###### 14 
@@ -144,4 +148,8 @@ Si Abraham ay 99 na taong gulang nang tuliin siya,
 ###### 25 
 
 
-at si Ishmael naman ay 13 taong gulang na. 26-27Sa mismong araw na iyon na nag-utos ang Dios na ang lahat ng lalaki ay dapat tuliin, nagpatuli si Abraham at si Ishmael pati ang lahat ng alipin ni Abraham na isinilang sa sambahayan niya at ang mga alipin na binili niya sa mga taga-ibang lugar.
+at si Ishmael naman ay 13 taong gulang na.
+
+###### 26-27
+
+Sa mismong araw na iyon na nag-utos ang Dios na ang lahat ng lalaki ay dapat tuliin, nagpatuli si Abraham at si Ishmael pati ang lahat ng alipin ni Abraham na isinilang sa sambahayan niya at ang mga alipin na binili niya sa mga taga-ibang lugar.

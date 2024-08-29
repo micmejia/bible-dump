@@ -80,7 +80,11 @@ Sinabi ni Isaias, "Makinig kayong mga angkan ni David. Hindi pa ba kayo nasisiya
 ###### 14 
 
 
-Dahil dito, ang Panginoon na mismo ang magbibigay sa inyo ng palatandaan: Magbubuntis ang isang birhen, at manganganak siya ng isang sanggol na lalaki. At tatawagin niya ang bata na Emmanuel. 15-16Bago siya magkaisip at makakain ng keso at pulot, ang lupain ng dalawang hari na kinatatakutan mo, Ahaz, ay mawawasak at pababayaan na lang. 
+Dahil dito, ang Panginoon na mismo ang magbibigay sa inyo ng palatandaan: Magbubuntis ang isang birhen, at manganganak siya ng isang sanggol na lalaki. At tatawagin niya ang bata na Emmanuel.
+
+###### 15-16
+
+Bago siya magkaisip at makakain ng keso at pulot, ang lupain ng dalawang hari na kinatatakutan mo, Ahaz, ay mawawasak at pababayaan na lang. 
 
 
 ###### 17 

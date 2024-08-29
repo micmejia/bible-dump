@@ -18,13 +18,41 @@ Ang mga sumusunod ay ang mga Israelita sa probinsya ng Juda na binihag noon ni H
 ###### 2 
 
 
-Ang mga namuno sa pagbalik nila sa Jerusalem ay sina Zerubabel, Jeshua, Nehemias, Seraya, Reelaya, Mordecai, Bilshan, Mispar, Bigvai, Rehum, at Baana. Ito ang talaan ng mga mamamayan ng Israel na bumalik mula sa pagkabihag: 3-20Mga angkan nina 21-35Ito ang bilang ng mga tao na nakabalik mula sa pagkabihag, na ang mga ninuno ay nakatira sa mga sumusunod na bayan: 36-39Ito ang mga angkan ng mga pari na bumalik mula sa pagkabihag: Mga angkan nina 40-42Ito ang mga angkan ng mga Levita na bumalik din mula sa pagkabihag: 43-54Ito naman ang mga angkan ng mga utusan sa templo na bumalik din mula sa pagkabihag: Mga angkan nina Ziha, Hasufa, Tabaot, Keros, Siaha, Padon, Lebana, Hagaba, Akub, Hagab, Shalmai, Hanan, Gidel, Gahar, Reaya, Rezin, Nekoda, Gazam, Uza, Pasea, Besai, Asna, Meunim, Nefusim, Bakbuk, Hakufa, Harhur, Bazlut, Mehida, Harsha, Barkos, Sisera, Tema, Nezia, at Hatifa. 55-57Bumalik din mula sa pagkabihag ang mga angkan ng mga alipin ni Solomon: Ang mga angkan nina Sotai, Hasoferet, Peruda, Jaala, Darkon, Gidel, Shefatia, Hatil, Pokeret Hazebaim, at Ami. 
+Ang mga namuno sa pagbalik nila sa Jerusalem ay sina Zerubabel, Jeshua, Nehemias, Seraya, Reelaya, Mordecai, Bilshan, Mispar, Bigvai, Rehum, at Baana. Ito ang talaan ng mga mamamayan ng Israel na bumalik mula sa pagkabihag:
+
+###### 3-20
+
+Mga angkan nina
+
+###### 21-35
+
+Ito ang bilang ng mga tao na nakabalik mula sa pagkabihag, na ang mga ninuno ay nakatira sa mga sumusunod na bayan:
+
+###### 36-39
+
+Ito ang mga angkan ng mga pari na bumalik mula sa pagkabihag: Mga angkan nina
+
+###### 40-42
+
+Ito ang mga angkan ng mga Levita na bumalik din mula sa pagkabihag:
+
+###### 43-54
+
+Ito naman ang mga angkan ng mga utusan sa templo na bumalik din mula sa pagkabihag: Mga angkan nina Ziha, Hasufa, Tabaot, Keros, Siaha, Padon, Lebana, Hagaba, Akub, Hagab, Shalmai, Hanan, Gidel, Gahar, Reaya, Rezin, Nekoda, Gazam, Uza, Pasea, Besai, Asna, Meunim, Nefusim, Bakbuk, Hakufa, Harhur, Bazlut, Mehida, Harsha, Barkos, Sisera, Tema, Nezia, at Hatifa.
+
+###### 55-57
+
+Bumalik din mula sa pagkabihag ang mga angkan ng mga alipin ni Solomon: Ang mga angkan nina Sotai, Hasoferet, Peruda, Jaala, Darkon, Gidel, Shefatia, Hatil, Pokeret Hazebaim, at Ami. 
 
 
 ###### 58 
 
 
-Ang kabuuang bilang ng mga angkan ng mga utusan sa templo at mga angkan ng mga alipin ni Solomon ay 392. 59-60May 652 din na bumalik sa Juda mula sa mga bayan ng Tel Mela, Tel Harsha, Kerub, Adon, at Imer. Sila ang mga angkan nina Delaya, Tobia, at Nekoda, pero hindi nila mapatunayan na silaʼy talagang mga Israelita. 
+Ang kabuuang bilang ng mga angkan ng mga utusan sa templo at mga angkan ng mga alipin ni Solomon ay 392.
+
+###### 59-60
+
+May 652 din na bumalik sa Juda mula sa mga bayan ng Tel Mela, Tel Harsha, Kerub, Adon, at Imer. Sila ang mga angkan nina Delaya, Tobia, at Nekoda, pero hindi nila mapatunayan na silaʼy talagang mga Israelita. 
 
 
 ###### 61 
@@ -42,7 +70,11 @@ Dahil nga hindi nila makita ang talaan ng mga ninuno nila, hindi sila tinanggap 
 ###### 63 
 
 
-Pinagbawalan sila ng gobernador ng Juda na kumain ng mga pagkaing inihandog sa Dios habang walang pari na sasangguni sa Panginoon tungkol sa pagkapari nila sa pamamagitan ng "Urim" at "Thummim". 64-67Ang kabuuang bilang ng mga bumalik mula sa pagkabihag ay 42,360, maliban sa 7,337 na mga alipin nila, at 200 lalaki at babaeng mang-aawit. May dala silang 736 na mga kabayo, 245 mola, 435 kamelyo, at 6,720 asno. 
+Pinagbawalan sila ng gobernador ng Juda na kumain ng mga pagkaing inihandog sa Dios habang walang pari na sasangguni sa Panginoon tungkol sa pagkapari nila sa pamamagitan ng "Urim" at "Thummim".
+
+###### 64-67
+
+Ang kabuuang bilang ng mga bumalik mula sa pagkabihag ay 42,360, maliban sa 7,337 na mga alipin nila, at 200 lalaki at babaeng mang-aawit. May dala silang 736 na mga kabayo, 245 mola, 435 kamelyo, at 6,720 asno. 
 
 
 ###### 68 

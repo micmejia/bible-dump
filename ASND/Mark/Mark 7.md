@@ -154,7 +154,11 @@ Ang lahat ng kasamaang ito ay nanggagaling sa puso ng tao, at siyang nagpaparumi
 ###### 24 
 
 
-Umalis si Jesus mula roon at pumunta sa mga lugar na malapit sa Tyre. Pagdating niya roon, tumuloy siya sa isang bahay. Ayaw sana niyang malaman ng mga tao na naroon siya; pero hindi rin niya ito naitago. 25-26Sa katunayan, nalaman agad ito ng isang ina na may anak na babaeng sinaniban ng masamang espiritu. Ang babaeng itoʼy taga-Fenicia na sakop ng Syria, at Griego ang kanyang salita. Pinuntahan niya agad si Jesus at nagpatirapa sa paanan nito, at nagmamakaawang palayasin ang masamang espiritu sa kanyang anak. 
+Umalis si Jesus mula roon at pumunta sa mga lugar na malapit sa Tyre. Pagdating niya roon, tumuloy siya sa isang bahay. Ayaw sana niyang malaman ng mga tao na naroon siya; pero hindi rin niya ito naitago.
+
+###### 25-26
+
+Sa katunayan, nalaman agad ito ng isang ina na may anak na babaeng sinaniban ng masamang espiritu. Ang babaeng itoʼy taga-Fenicia na sakop ng Syria, at Griego ang kanyang salita. Pinuntahan niya agad si Jesus at nagpatirapa sa paanan nito, at nagmamakaawang palayasin ang masamang espiritu sa kanyang anak. 
 
 
 ###### 27 

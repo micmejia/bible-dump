@@ -84,7 +84,27 @@ Ang mga anak na lalaki ni Elpaal ay sina Eber, Misam, Shemed (na nagtatag ng mga
 ###### 13 
 
 
-at sina Beria at Shema. Sila ang mga pinuno ng kanilang mga pamilya na nakatira sa Ayalon. Sila rin ang nagpaalis sa mga naninirahan sa Gat. 14-16Ang mga anak na lalaki ni Beria ay sina Ahio, Shashak, Jeremot, Zebadia, Arad, Eder, Micael, Ishpa at Joha. 17-18Ang mga anak na lalaki ni Elpaal ay sina Zebadia, Meshulam, Hizki, Heber, Ishmerai, Izlia at Jobab. 19-21Ang mga anak na lalaki ni Shimei ay sina Jakim, Zicri, Zabdi, Elienai, Ziletai, Eliel, Adaya, Beraya at Shimrat. 22-25Ang mga anak na lalaki ni Shashak ay sina Ispan, Eber, Eliel Abdon, Zicri, Hanan, Hanania, Elam, Antotia, Ifdeya at Penuel. 26-27Ang mga anak na lalaki ni Jeroham ay sina Shamsherai, Sheharia, Atalia, Jaareshia, Elias at Zicri. 
+at sina Beria at Shema. Sila ang mga pinuno ng kanilang mga pamilya na nakatira sa Ayalon. Sila rin ang nagpaalis sa mga naninirahan sa Gat.
+
+###### 14-16
+
+Ang mga anak na lalaki ni Beria ay sina Ahio, Shashak, Jeremot, Zebadia, Arad, Eder, Micael, Ishpa at Joha.
+
+###### 17-18
+
+Ang mga anak na lalaki ni Elpaal ay sina Zebadia, Meshulam, Hizki, Heber, Ishmerai, Izlia at Jobab.
+
+###### 19-21
+
+Ang mga anak na lalaki ni Shimei ay sina Jakim, Zicri, Zabdi, Elienai, Ziletai, Eliel, Adaya, Beraya at Shimrat.
+
+###### 22-25
+
+Ang mga anak na lalaki ni Shashak ay sina Ispan, Eber, Eliel Abdon, Zicri, Hanan, Hanania, Elam, Antotia, Ifdeya at Penuel.
+
+###### 26-27
+
+Ang mga anak na lalaki ni Jeroham ay sina Shamsherai, Sheharia, Atalia, Jaareshia, Elias at Zicri. 
 
 
 ###### 28 

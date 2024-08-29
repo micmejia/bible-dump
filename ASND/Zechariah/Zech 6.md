@@ -74,7 +74,11 @@ Sinabi ng Panginoon sa akin,
 ###### 11 
 
 
-Ipagawa mong korona ang mga pilak at ginto, at isuot ito sa ulo ng punong pari na si Josue na anak ni Jehozadak. 12-13Sabihin mo sa kanya na ako, ang Panginoong Makapangyarihan, ay nagsasabi, 'Ang taong tinatawag na Sanga ay lalago sa kalagayan niya ngayon, at itatayo niyang muli ang aking templo. Pararangalan siya bilang hari at mamamahala siya. Ang pari ay tatayo sa tabi ng kanyang trono at magkakaroon sila ng mabuting relasyon.' 
+Ipagawa mong korona ang mga pilak at ginto, at isuot ito sa ulo ng punong pari na si Josue na anak ni Jehozadak.
+
+###### 12-13
+
+Sabihin mo sa kanya na ako, ang Panginoong Makapangyarihan, ay nagsasabi, 'Ang taong tinatawag na Sanga ay lalago sa kalagayan niya ngayon, at itatayo niyang muli ang aking templo. Pararangalan siya bilang hari at mamamahala siya. Ang pari ay tatayo sa tabi ng kanyang trono at magkakaroon sila ng mabuting relasyon.' 
 
 
 ###### 14 

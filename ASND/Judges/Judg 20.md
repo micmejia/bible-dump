@@ -132,7 +132,11 @@ At pumunta sila sa Gibea. Pagdating doon, pumwesto na ang mga Israelita para mak
 ###### 21 
 
 
-Naglabasan ang mga taga-Benjamin sa Gibea para lusubin sila. At sa araw na iyon, 22,000 Israelita ang napatay ng mga taga-Benjamin. 22-23Umahon muli ang mga Israelita sa Betel at umiyak doon hanggang gabi. Tinanong nila ang Panginoon, "Muli po ba kaming makikipaglaban sa mga kadugo naming taga-Benjamin?" Sumagot ang Panginoon, "Oo, muli kayong makipaglaban." Kaya pinalakas nila ang kanilang loob at muli silang pumwesto sa dating lugar noong unang araw silang lumusob. 
+Naglabasan ang mga taga-Benjamin sa Gibea para lusubin sila. At sa araw na iyon, 22,000 Israelita ang napatay ng mga taga-Benjamin.
+
+###### 22-23
+
+Umahon muli ang mga Israelita sa Betel at umiyak doon hanggang gabi. Tinanong nila ang Panginoon, "Muli po ba kaming makikipaglaban sa mga kadugo naming taga-Benjamin?" Sumagot ang Panginoon, "Oo, muli kayong makipaglaban." Kaya pinalakas nila ang kanilang loob at muli silang pumwesto sa dating lugar noong unang araw silang lumusob. 
 
 
 ###### 24 
@@ -150,7 +154,11 @@ Pero lumabas muli ang mga taga-Benjamin sa Gibea at sinalubong ang mga kapwa nil
 ###### 26 
 
 
-Kaya umahon muli ang lahat ng Israelita sa Betel at umiyak sa presensya ng Panginoon. Nag-ayuno sila hanggang gabi at nag-alay ng mga handog na sinusunog at mga handog para sa mabuting relasyon. 27-28Nang panahong iyon, ang Kahon ng Kasunduan ng Dios ay nasa Betel, at ang namamahala rito ay si Finehas na anak ni Eleazar at apo ni Aaron. Nagtanong muli ang mga Israelita sa Panginoon, "Muli po ba kaming makikipaglaban sa mga kadugo naming taga-Benjamin o hindi na po?" Sumagot ang Panginoon, "Muli kayong makipaglaban, dahil bukas ay pagtatagumpayin ko kayo laban sa kanila." 
+Kaya umahon muli ang lahat ng Israelita sa Betel at umiyak sa presensya ng Panginoon. Nag-ayuno sila hanggang gabi at nag-alay ng mga handog na sinusunog at mga handog para sa mabuting relasyon.
+
+###### 27-28
+
+Nang panahong iyon, ang Kahon ng Kasunduan ng Dios ay nasa Betel, at ang namamahala rito ay si Finehas na anak ni Eleazar at apo ni Aaron. Nagtanong muli ang mga Israelita sa Panginoon, "Muli po ba kaming makikipaglaban sa mga kadugo naming taga-Benjamin o hindi na po?" Sumagot ang Panginoon, "Muli kayong makipaglaban, dahil bukas ay pagtatagumpayin ko kayo laban sa kanila." 
 
 
 ###### 29 

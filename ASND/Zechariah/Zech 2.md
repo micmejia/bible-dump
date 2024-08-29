@@ -52,7 +52,11 @@ Pagkatapos kong makita ang pangitaing iyon, sinugo ako ng Panginoon na magsalita
 ###### 9 
 
 
-"Parurusahan ko sila; sasalakayin sila ng kanilang mga alipin at sasamsamin ang kanilang mga ari-arian." At kapag nangyari na ito, malalaman ninyo na ang Panginoong Makapangyarihan ang nagpadala sa akin. 10-11Sinabi ng Panginoon, "Sumigaw kayo sa kagalakan, kayong mga taga-Zion, dahil darating ako at maninirahang kasama ninyo. At sa panahong iyon, maraming bansa ang magpapasakop sa akin. At sila rin ay magiging aking mga mamamayan." Kapag nangyari na ito, malalaman ninyo na ang Panginoong Makapangyarihan ang nagpadala sa akin dito sa inyo. 
+"Parurusahan ko sila; sasalakayin sila ng kanilang mga alipin at sasamsamin ang kanilang mga ari-arian." At kapag nangyari na ito, malalaman ninyo na ang Panginoong Makapangyarihan ang nagpadala sa akin.
+
+###### 10-11
+
+Sinabi ng Panginoon, "Sumigaw kayo sa kagalakan, kayong mga taga-Zion, dahil darating ako at maninirahang kasama ninyo. At sa panahong iyon, maraming bansa ang magpapasakop sa akin. At sila rin ay magiging aking mga mamamayan." Kapag nangyari na ito, malalaman ninyo na ang Panginoong Makapangyarihan ang nagpadala sa akin dito sa inyo. 
 
 
 ###### 12 

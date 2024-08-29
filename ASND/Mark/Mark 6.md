@@ -302,7 +302,11 @@ Nang gumabi na, nasa laot na ang bangka at siya na lang ang naiwan.
 ###### 48 
 
 
-Nakita niyang hirap sa pagsagwan ang mga tagasunod niya, dahil salungat sila sa hangin. Nang madaling-araw na, sumunod sa kanila si Jesus na naglalakad sa ibabaw ng tubig. Lalampasan na lang sana niya sila, 49-50pero nakita siya ng mga tagasunod niya na lumalakad sa ibabaw ng tubig. Natakot sila at nagsigawan, dahil akala nila ay multo siya. Pero nagsalita agad si Jesus, "Ako ito! Huwag kayong matakot. Lakasan ninyo ang inyong loob." 
+Nakita niyang hirap sa pagsagwan ang mga tagasunod niya, dahil salungat sila sa hangin. Nang madaling-araw na, sumunod sa kanila si Jesus na naglalakad sa ibabaw ng tubig. Lalampasan na lang sana niya sila,
+
+###### 49-50
+
+pero nakita siya ng mga tagasunod niya na lumalakad sa ibabaw ng tubig. Natakot sila at nagsigawan, dahil akala nila ay multo siya. Pero nagsalita agad si Jesus, "Ako ito! Huwag kayong matakot. Lakasan ninyo ang inyong loob." 
 
 
 ###### 51 

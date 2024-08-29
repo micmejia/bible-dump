@@ -98,4 +98,8 @@ Sumagot si Amos kay Amazia, "Hindi ako propeta noon at hindi rin ako tagasunod n
 ###### 15 
 
 
-Pero sinabi sa akin ng Panginoon na iwan ko ang aking trabaho bilang pastol at ipahayag ko ang kanyang mensahe sa inyo na mga taga-Israel na kanyang mamamayan. 16-17Ngayon, ikaw na nagbabawal sa akin na sabihin ang mensahe ng Dios sa mga taga-Israel na lahi ni Isaac, pakinggan mo ang sinasabi ng Panginoon laban sa iyo: 'Ang iyong asawa ay magiging babaeng bayaran sa lungsod at ang iyong mga anak ay mamamatay sa digmaan. Ang iyong lupain ay paghahati-hatian ng iyong mga kaaway, at mamamatay ka sa ibang bansa. At tiyak na bibihagin ang mga taga-Israel at dadalhin sa ibang bansa.' "
+Pero sinabi sa akin ng Panginoon na iwan ko ang aking trabaho bilang pastol at ipahayag ko ang kanyang mensahe sa inyo na mga taga-Israel na kanyang mamamayan.
+
+###### 16-17
+
+Ngayon, ikaw na nagbabawal sa akin na sabihin ang mensahe ng Dios sa mga taga-Israel na lahi ni Isaac, pakinggan mo ang sinasabi ng Panginoon laban sa iyo: 'Ang iyong asawa ay magiging babaeng bayaran sa lungsod at ang iyong mga anak ay mamamatay sa digmaan. Ang iyong lupain ay paghahati-hatian ng iyong mga kaaway, at mamamatay ka sa ibang bansa. At tiyak na bibihagin ang mga taga-Israel at dadalhin sa ibang bansa.' "

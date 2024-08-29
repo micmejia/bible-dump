@@ -232,7 +232,11 @@ Hindi si David ang tinutukoy dito, dahil nang matapos ni David ang ipinapagawa s
 ###### 37 
 
 
-Ngunit si Jesus na muling binuhay ng Dios ay hindi nabulok. 38-39Kaya nga mga kapatid, dapat ninyong malaman na sa pamamagitan ni Jesus ay ipinapahayag namin sa inyo ang balita na patatawarin tayo ng Dios sa ating mga kasalanan. Ang sinumang sumasampalataya kay Jesus ay itinuturing ng Dios na matuwid. Hindi ito magagawa sa pamamagitan ng pagsunod sa Kautusan ni Moises. 
+Ngunit si Jesus na muling binuhay ng Dios ay hindi nabulok.
+
+###### 38-39
+
+Kaya nga mga kapatid, dapat ninyong malaman na sa pamamagitan ni Jesus ay ipinapahayag namin sa inyo ang balita na patatawarin tayo ng Dios sa ating mga kasalanan. Ang sinumang sumasampalataya kay Jesus ay itinuturing ng Dios na matuwid. Hindi ito magagawa sa pamamagitan ng pagsunod sa Kautusan ni Moises. 
 
 
 ###### 40 

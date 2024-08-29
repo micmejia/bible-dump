@@ -222,7 +222,11 @@ Ipagbili ninyo ang mga ari-arian ninyo at ipamigay ang pera sa mga mahihirap, up
 
 Sapagkat kung nasaan ang kayamanan ninyo, naroon din ang puso ninyo." 
 
-## Ang Mapagkakatiwalaang mga Utusan 35-36Sinabi pa ni Jesus sa kanila, "Maging handa kayo palagi sa pagbabalik ng inyong Panginoon, katulad ng mga aliping naghihintay sa pag-uwi ng kanilang amo mula sa kasalan. Nakahanda sila at nakasindi ang mga ilawan nila, upang sa pagdating at pagkatok ng amo nila ay mabubuksan nila agad ang pinto. 
+## Ang Mapagkakatiwalaang mga Utusan
+
+###### 35-36
+
+Sinabi pa ni Jesus sa kanila, "Maging handa kayo palagi sa pagbabalik ng inyong Panginoon, katulad ng mga aliping naghihintay sa pag-uwi ng kanilang amo mula sa kasalan. Nakahanda sila at nakasindi ang mga ilawan nila, upang sa pagdating at pagkatok ng amo nila ay mabubuksan nila agad ang pinto. 
 
 
 ###### 37 

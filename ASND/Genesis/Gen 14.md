@@ -66,7 +66,11 @@ at nakipaglaban sila kina Haring Kedorlaomer ng Elam, Haring Tidal ng Goyim, Har
 ###### 10 
 
 
-Ngayon, ang Lambak ng Sidim ay may maraming malalim na hukay na pinagkukunan ng aspalto. At nang tumakas ang hari ng Sodom at ng Gomora kasama ang mga tauhan nila, nahulog sila sa mga balon, pero ang iba nilang kasama ay tumakas sa mga bundok. 11-12Ang lahat ng ari-arian ng Sodom at Gomora pati ang mga pagkain nila ay kinuha ng mga kalaban nila. Nabihag din nila si Lot na pamangkin ni Abram at kinuha ang mga ari-arian nito, dahil doon siya nakatira sa Sodom. Pagkatapos itong makuha ng mga kalaban, umalis agad sila. 
+Ngayon, ang Lambak ng Sidim ay may maraming malalim na hukay na pinagkukunan ng aspalto. At nang tumakas ang hari ng Sodom at ng Gomora kasama ang mga tauhan nila, nahulog sila sa mga balon, pero ang iba nilang kasama ay tumakas sa mga bundok.
+
+###### 11-12
+
+Ang lahat ng ari-arian ng Sodom at Gomora pati ang mga pagkain nila ay kinuha ng mga kalaban nila. Nabihag din nila si Lot na pamangkin ni Abram at kinuha ang mga ari-arian nito, dahil doon siya nakatira sa Sodom. Pagkatapos itong makuha ng mga kalaban, umalis agad sila. 
 
 
 ###### 13 

@@ -232,4 +232,8 @@ Gaya nga ng sinasabi sa Kasulatan, "Alang-alang sa iyo, palaging nasa panganib a
 ###### 37 
 
 
-Pero kahit ganito ang kalagayan natin, kayang-kaya nating pagtagumpayan ito sa tulong ni Cristo na nagmamahal sa atin. 38-39Sapagkat natitiyak ko na walang makakapaghiwalay sa atin sa pag-ibig ng Dios na ipinakita sa atin sa pamamagitan ni Cristo Jesus na ating Panginoon. Maging kamatayan o buhay, mga anghel o anumang makapangyarihang espiritu, ang kasalukuyang panahon o ang hinaharap, ang mga kapangyarihan, ang mga nasa itaas o mga nasa ibaba, o kahit ano pang mga bagay sa buong mundo ay hindi makapaghihiwalay sa atin sa pag-ibig ng Dios.
+Pero kahit ganito ang kalagayan natin, kayang-kaya nating pagtagumpayan ito sa tulong ni Cristo na nagmamahal sa atin.
+
+###### 38-39
+
+Sapagkat natitiyak ko na walang makakapaghiwalay sa atin sa pag-ibig ng Dios na ipinakita sa atin sa pamamagitan ni Cristo Jesus na ating Panginoon. Maging kamatayan o buhay, mga anghel o anumang makapangyarihang espiritu, ang kasalukuyang panahon o ang hinaharap, ang mga kapangyarihan, ang mga nasa itaas o mga nasa ibaba, o kahit ano pang mga bagay sa buong mundo ay hindi makapaghihiwalay sa atin sa pag-ibig ng Dios.

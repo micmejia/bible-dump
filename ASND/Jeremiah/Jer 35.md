@@ -72,7 +72,11 @@ Tumira kami sa mga tolda at sinunod namin ang lahat ng itinuro sa amin ni Jonada
 ###### 11 
 
 
-Pero nang sumalakay si Haring Nebucadnezar ng Babilonia sa bansang ito, natakot kami sa mga sundalo ng Babilonia at ng Aram, kaya nagpasya kaming tumakas at pumunta sa Jerusalem. Ito ang dahilan kaya nakatira kami dito sa Jerusalem." 12-13Sinabi pa ng Panginoong Makapangyarihan, ang Dios ng Israel, kay Jeremias, "Pumunta ka sa mga mamamayan ng Juda at Jerusalem, at sabihin ito: Bakit ayaw ninyong makinig sa mga itinuturo ko at ayaw ninyong sundin ang mga salita ko? 
+Pero nang sumalakay si Haring Nebucadnezar ng Babilonia sa bansang ito, natakot kami sa mga sundalo ng Babilonia at ng Aram, kaya nagpasya kaming tumakas at pumunta sa Jerusalem. Ito ang dahilan kaya nakatira kami dito sa Jerusalem."
+
+###### 12-13
+
+Sinabi pa ng Panginoong Makapangyarihan, ang Dios ng Israel, kay Jeremias, "Pumunta ka sa mga mamamayan ng Juda at Jerusalem, at sabihin ito: Bakit ayaw ninyong makinig sa mga itinuturo ko at ayaw ninyong sundin ang mga salita ko? 
 
 
 ###### 14 

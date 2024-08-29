@@ -119,7 +119,11 @@ Nalaman ito ng lahat ng tao sa Jerusalem, kaya tinawag nila ang lugar na iyon na
 ###### 20 
 
 
-Sinabi pa ni Pedro, "Nasusulat sa mga Salmo, 'Pabayaan na lang ang kanyang tirahan, at dapat walang tumira roon.' At nasusulat din, 'Ibibigay na lang sa iba ang kanyang tungkulin.' 21-22"Kaya kinakailangan nating pumili ng tao na ipapalit kay Judas, na kasama nating magpapatotoo sa muling pagkabuhay ni Jesus. Dapat isa siya sa mga kasama natin na naglingkod sa Panginoong Jesus noong nandito pa siya sa mundo, mula noong nagbabautismo si Juan hanggang sa panahon na dinala si Jesus sa langit." 
+Sinabi pa ni Pedro, "Nasusulat sa mga Salmo, 'Pabayaan na lang ang kanyang tirahan, at dapat walang tumira roon.' At nasusulat din, 'Ibibigay na lang sa iba ang kanyang tungkulin.'
+
+###### 21-22
+
+"Kaya kinakailangan nating pumili ng tao na ipapalit kay Judas, na kasama nating magpapatotoo sa muling pagkabuhay ni Jesus. Dapat isa siya sa mga kasama natin na naglingkod sa Panginoong Jesus noong nandito pa siya sa mundo, mula noong nagbabautismo si Juan hanggang sa panahon na dinala si Jesus sa langit." 
 
 
 ###### 23 

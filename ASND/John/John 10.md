@@ -86,7 +86,11 @@ Hindi siya katulad ng bayarang pastol ng mga tupa, sapagkat ang ganitong tagapag
 ###### 13 
 
 
-Tumatakas siya dahil bayaran lang siya at walang malasakit sa mga tupa. 14-15Ako ang mabuting pastol. Kung paano ako nakikilala ng aking Ama at kung paano ko siya nakikilala, ganyan din ang pagkakakilala ko sa aking mga tupa at ang pagkakakilala nila sa akin. At iniaalay ko ang aking buhay para sa kanila. 
+Tumatakas siya dahil bayaran lang siya at walang malasakit sa mga tupa.
+
+###### 14-15
+
+Ako ang mabuting pastol. Kung paano ako nakikilala ng aking Ama at kung paano ko siya nakikilala, ganyan din ang pagkakakilala ko sa aking mga tupa at ang pagkakakilala nila sa akin. At iniaalay ko ang aking buhay para sa kanila. 
 
 
 ###### 16 

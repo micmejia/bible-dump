@@ -102,7 +102,11 @@ Sumagot si Efron,
 ###### 16 
 
 
-Pumayag si Abraham sa halagang sinabi ni Efron. Kaya nagkilo siya ng 400 pirasong pilak ayon sa bigat na pinagbabasihan noon ng mga mangangalakal. At ibinayad niya ito kay Efron sa harap ng mga Heteo. 17-18Kaya naging pag-aari ni Abraham ang bukid ni Efron sa Macpela, sa silangan ng Mamre, pati na ang kweba at ang mga punongkahoy sa paligid ng bukid. Saksi ang lahat ng Heteo na nagtipon doon sa pintuan ng lungsod. 
+Pumayag si Abraham sa halagang sinabi ni Efron. Kaya nagkilo siya ng 400 pirasong pilak ayon sa bigat na pinagbabasihan noon ng mga mangangalakal. At ibinayad niya ito kay Efron sa harap ng mga Heteo.
+
+###### 17-18
+
+Kaya naging pag-aari ni Abraham ang bukid ni Efron sa Macpela, sa silangan ng Mamre, pati na ang kweba at ang mga punongkahoy sa paligid ng bukid. Saksi ang lahat ng Heteo na nagtipon doon sa pintuan ng lungsod. 
 
 
 ###### 19 

@@ -64,7 +64,11 @@ Sino ang hindi matatakot kung umaatungal na ang leon? Sino kaya ang hindi magpap
 ###### 9 
 
 
-Sabihin ninyo sa mga pinunong nakatira sa matitibay na bahagi ng Ashdod at Egipto na magtipon sila sa mga burol sa paligid ng Samaria at tingnan nila ang kaguluhang nangyayari sa lungsod na ito at ang panggigipit sa mga mamamayan nito. 10-11Sapagkat ito ang sinasabi ng Panginoong Dios laban sa Samaria: "Hindi sila marunong gumawa ng matuwid. Ang matitibay na bahagi ng kanilang lungsod ay puno ng mga bagay na ninakaw at sinamsam. Kaya lulusubin sila ng mga kaaway at gigibain ang kanilang mga kampo. Sasamsamin ng mga kaaway ang mga ari-arian sa matitibay na bahagi ng kanilang lungsod." 
+Sabihin ninyo sa mga pinunong nakatira sa matitibay na bahagi ng Ashdod at Egipto na magtipon sila sa mga burol sa paligid ng Samaria at tingnan nila ang kaguluhang nangyayari sa lungsod na ito at ang panggigipit sa mga mamamayan nito.
+
+###### 10-11
+
+Sapagkat ito ang sinasabi ng Panginoong Dios laban sa Samaria: "Hindi sila marunong gumawa ng matuwid. Ang matitibay na bahagi ng kanilang lungsod ay puno ng mga bagay na ninakaw at sinamsam. Kaya lulusubin sila ng mga kaaway at gigibain ang kanilang mga kampo. Sasamsamin ng mga kaaway ang mga ari-arian sa matitibay na bahagi ng kanilang lungsod." 
 
 
 ###### 12 

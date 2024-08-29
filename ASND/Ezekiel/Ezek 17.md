@@ -136,7 +136,11 @@ Huhulihin ko siya at dadalhin sa Babilonia at dooʼy paparusahan ko siya dahil s
 
 Mamamatay ang kanyang mga sundalong tumatakas, at ang matitira sa kanila ay mangangalat sa ibaʼt ibang lugar. At malalaman ninyo na akong Panginoon ang nagsabi nito." 
 
-## Ang Mabuting Kinabukasan na Ipinangako ng Dios 22-23Sinabi pa ng Panginoong Dios, "Kukuha ako ng usbong sa itaas ng punong sedro at itatanim ko sa ibabaw ng pinakamataas na bundok ng Israel. Lalago ito, magbubunga at magiging magandang punong sedro. Pamumugaran ito ng lahat ng uri ng ibon at sisilong naman ang ibaʼt ibang hayop sa ilalim nito. 
+## Ang Mabuting Kinabukasan na Ipinangako ng Dios
+
+###### 22-23
+
+Sinabi pa ng Panginoong Dios, "Kukuha ako ng usbong sa itaas ng punong sedro at itatanim ko sa ibabaw ng pinakamataas na bundok ng Israel. Lalago ito, magbubunga at magiging magandang punong sedro. Pamumugaran ito ng lahat ng uri ng ibon at sisilong naman ang ibaʼt ibang hayop sa ilalim nito. 
 
 
 ###### 24 

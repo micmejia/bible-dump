@@ -78,7 +78,11 @@ Dapat din niyang iwasan ang paglapit sa patay kahit na iyon ay kanyang ama o ina
 ###### 12 
 
 
-At dahil siyaʼy itinalaga sa akin bilang punong pari sa pamamagitan ng pagpapahid sa kanya ng langis ng pagtatalaga, hindi siya dapat umalis sa Toldang Tipanan dahil kapag siyaʼy umalis doon at sumama sa libing, marurumihan ang Tolda. Ako ang Panginoon. 13-14Kung ang punong pari ay mag-aasawa, dapat Israelitang katulad niya at tunay na dalaga. Huwag siyang mag-aasawa ng biyuda, o ng babaeng hiwalay sa asawa, o ng babaeng marumi na nagbebenta ng panandaliang-aliw, 
+At dahil siyaʼy itinalaga sa akin bilang punong pari sa pamamagitan ng pagpapahid sa kanya ng langis ng pagtatalaga, hindi siya dapat umalis sa Toldang Tipanan dahil kapag siyaʼy umalis doon at sumama sa libing, marurumihan ang Tolda. Ako ang Panginoon.
+
+###### 13-14
+
+Kung ang punong pari ay mag-aasawa, dapat Israelitang katulad niya at tunay na dalaga. Huwag siyang mag-aasawa ng biyuda, o ng babaeng hiwalay sa asawa, o ng babaeng marumi na nagbebenta ng panandaliang-aliw, 
 
 
 ###### 15 
@@ -114,7 +118,11 @@ bali ang paa o kamay,
 ###### 20 
 
 
-kuba, unano, may sakit sa mata o sa balat, o baog. 21-23Kaya kung ang angkan ni Aaron ay may kapansanan sa katawan, hindi siya maaaring maghandog sa akin ng mga handog sa pamamagitan ng apoy na siyang pagkain ko. Hindi rin siya maaaring pumasok sa Banal na Lugar o lumapit sa altar dahil madudungisan ang aking Tolda. Pero maaari siyang kumain ng mga pagkaing bahagi ng mga pari sa mga banal at pinakabanal na handog. Ako ang Panginoong nagtalaga sa inyo para maging akin. 
+kuba, unano, may sakit sa mata o sa balat, o baog.
+
+###### 21-23
+
+Kaya kung ang angkan ni Aaron ay may kapansanan sa katawan, hindi siya maaaring maghandog sa akin ng mga handog sa pamamagitan ng apoy na siyang pagkain ko. Hindi rin siya maaaring pumasok sa Banal na Lugar o lumapit sa altar dahil madudungisan ang aking Tolda. Pero maaari siyang kumain ng mga pagkaing bahagi ng mga pari sa mga banal at pinakabanal na handog. Ako ang Panginoong nagtalaga sa inyo para maging akin. 
 
 
 ###### 24 

@@ -82,7 +82,11 @@ Naagaw ng mga Filisteo ang Kahon ng Kasunduan at napatay ang dalawang anak ni El
 ###### 12 
 
 
-Nang araw ding iyon, may isang tao mula sa lahi ni Benjamin na tumatakbo galing sa digmaan papunta sa Shilo. Pinunit niya ang kanyang damit at nilagyan ng abo ang kanyang ulo bilang tanda ng pagluluksa. 13-15Pagdating niya sa Shilo, nakaupo si Eli sa upuan na nasa gilid ng daan at nagbabantay dahil nag-aalala siya para sa Kahon ng Dios. Si Eli ay 98 taon na noon at halos hindi na nakakakita. Ibinalita ng tao ang nangyaring digmaan sa bayan. Nang marinig ito ng mga tao, nag-iyakan sila. Narinig ito ni Eli at nagtanong siya, "Bakit umiiyak ang mga tao?" Dali-daling lumapit sa kanya ang tao, 
+Nang araw ding iyon, may isang tao mula sa lahi ni Benjamin na tumatakbo galing sa digmaan papunta sa Shilo. Pinunit niya ang kanyang damit at nilagyan ng abo ang kanyang ulo bilang tanda ng pagluluksa.
+
+###### 13-15
+
+Pagdating niya sa Shilo, nakaupo si Eli sa upuan na nasa gilid ng daan at nagbabantay dahil nag-aalala siya para sa Kahon ng Dios. Si Eli ay 98 taon na noon at halos hindi na nakakakita. Ibinalita ng tao ang nangyaring digmaan sa bayan. Nang marinig ito ng mga tao, nag-iyakan sila. Narinig ito ni Eli at nagtanong siya, "Bakit umiiyak ang mga tao?" Dali-daling lumapit sa kanya ang tao, 
 
 
 ###### 16 
@@ -112,4 +116,8 @@ Nang panahon ding iyon, kabuwanan ng manugang ni Eli na asawa ni Finehas. Nang m
 ###### 20 
 
 
-Nang nag-aagaw buhay na siya, sinabi sa kanya ng mga manghihilot, "Lakasan mo ang loob mo. Lalaki ang anak mo." Pero hindi na siya sumagot. 21-22Bago siya namatay, Icabod ang ipinangalan niya sa bata, dahil sinabi niya, "Wala na ang makapangyarihang presensya ng Dios sa Israel." Sinabi niya ito dahil naagaw ang Kahon ng Dios at napatay ang asawa niya at biyenan niyang lalaki.
+Nang nag-aagaw buhay na siya, sinabi sa kanya ng mga manghihilot, "Lakasan mo ang loob mo. Lalaki ang anak mo." Pero hindi na siya sumagot.
+
+###### 21-22
+
+Bago siya namatay, Icabod ang ipinangalan niya sa bata, dahil sinabi niya, "Wala na ang makapangyarihang presensya ng Dios sa Israel." Sinabi niya ito dahil naagaw ang Kahon ng Dios at napatay ang asawa niya at biyenan niyang lalaki.

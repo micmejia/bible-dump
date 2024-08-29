@@ -207,7 +207,11 @@ at sa ilang. Nakita ninyo kung paano kayo inalagaan ng Panginoon na inyong Dios,
 ###### 33 
 
 
-na nangunguna sa inyong paglalakbay, sa pamamagitan ng apoy sa gabi at ulap kung araw. Inihanap niya kayo ng mga lugar na mapagkakampuhan ninyo at itinuro sa inyo kung saan kayo dadaan. 34-35"Nang marinig ng Panginoon ang pagrereklamo ninyo, nagalit siya at sumumpang, 'Wala kahit isa sa masamang henerasyong ito ang makakakita ng magandang lupaing ipinangako ko sa kanilang mga ninuno, 
+na nangunguna sa inyong paglalakbay, sa pamamagitan ng apoy sa gabi at ulap kung araw. Inihanap niya kayo ng mga lugar na mapagkakampuhan ninyo at itinuro sa inyo kung saan kayo dadaan.
+
+###### 34-35
+
+"Nang marinig ng Panginoon ang pagrereklamo ninyo, nagalit siya at sumumpang, 'Wala kahit isa sa masamang henerasyong ito ang makakakita ng magandang lupaing ipinangako ko sa kanilang mga ninuno, 
 
 
 ###### 36 

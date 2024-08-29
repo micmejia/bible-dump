@@ -53,13 +53,21 @@ Ganito ang laging nangyayari taun-taon. Sa tuwing pupunta si Hanna sa bahay ng P
 ###### 8 
 
 
-Sinasabi ni Elkana sa kanya, "Bakit ka umiiyak? Bakit ayaw mong kumain? Bakit ka malungkot? Mas mahalaga ba para sa iyo ang sampung anak kaysa sa akin?" 9-10Minsan, pagkatapos nilang kumain sa bahay ng Panginoon sa Shilo, tumayo si Hanna at nanalangin nang umiiyak dahil sa labis na kalungkutan. Nakaupo noon ang pari na si Eli sa may pintuan ng bahay ng Panginoon. 
+Sinasabi ni Elkana sa kanya, "Bakit ka umiiyak? Bakit ayaw mong kumain? Bakit ka malungkot? Mas mahalaga ba para sa iyo ang sampung anak kaysa sa akin?"
+
+###### 9-10
+
+Minsan, pagkatapos nilang kumain sa bahay ng Panginoon sa Shilo, tumayo si Hanna at nanalangin nang umiiyak dahil sa labis na kalungkutan. Nakaupo noon ang pari na si Eli sa may pintuan ng bahay ng Panginoon. 
 
 
 ###### 11 
 
 
-Nangako si Hanna sa Panginoon. Sinabi niya, "O Panginoong Makapangyarihan, tingnan po ninyo ang aking paghihirap. Alalahanin ninyo ang inyong lingkod at huwag ninyo akong kalimutan. Kung bibigyan nʼyo po ako ng isang anak na lalaki, ihahandog ko siya sa inyo para maglingkod sa inyo sa buong buhay niya. At bilang tanda nang lubos niyang pagsunod sa inyo, hindi ko po pagugupitan ang kanyang buhok." 12-13Habang patuloy siyang nananalangin sa Panginoon, nakita ni Eli na bumubuka ang bibig ni Hanna pero hindi naririnig ang kanyang boses. Inakala ni Eli na lasing si Hanna, 
+Nangako si Hanna sa Panginoon. Sinabi niya, "O Panginoong Makapangyarihan, tingnan po ninyo ang aking paghihirap. Alalahanin ninyo ang inyong lingkod at huwag ninyo akong kalimutan. Kung bibigyan nʼyo po ako ng isang anak na lalaki, ihahandog ko siya sa inyo para maglingkod sa inyo sa buong buhay niya. At bilang tanda nang lubos niyang pagsunod sa inyo, hindi ko po pagugupitan ang kanyang buhok."
+
+###### 12-13
+
+Habang patuloy siyang nananalangin sa Panginoon, nakita ni Eli na bumubuka ang bibig ni Hanna pero hindi naririnig ang kanyang boses. Inakala ni Eli na lasing si Hanna, 
 
 
 ###### 14 

@@ -224,7 +224,11 @@ Uusigin ang ilang nakakaunawa ng katotohanan upang maging dalisay at malinis ang
 ###### 36 
 
 
-"Gagawin ng hari ng hilaga ang anumang gusto niyang gawin. Ituturing niyang higit ang kanyang sarili kaysa sinumang dios, at hahamakin niya ang Dios na higit kaysa sa lahat ng dios. Magtatagumpay siya hanggang sa panahon na ipakita ng Dios ang kanyang galit, dahil kailangang mangyari ang mga bagay na itinakda ng Dios na dapat mangyari. 37-38Hindi niya kikilalanin ang dios ng kanyang mga ninuno o ang dios na mahal ng mga babae. Ituturing niyang higit ang kanyang sarili kaysa sa mga iyon. Wala siyang pahahalagahang dios maliban sa dios na nananalakay ng mga napapaderang bayan. Pararangalan niya ang dios na ito na hindi kilala ng kanyang mga ninuno. Hahandugan niya ito ng mga ginto, pilak, mamahaling bato, at ng iba pang mamahaling mga regalo. 
+"Gagawin ng hari ng hilaga ang anumang gusto niyang gawin. Ituturing niyang higit ang kanyang sarili kaysa sinumang dios, at hahamakin niya ang Dios na higit kaysa sa lahat ng dios. Magtatagumpay siya hanggang sa panahon na ipakita ng Dios ang kanyang galit, dahil kailangang mangyari ang mga bagay na itinakda ng Dios na dapat mangyari.
+
+###### 37-38
+
+Hindi niya kikilalanin ang dios ng kanyang mga ninuno o ang dios na mahal ng mga babae. Ituturing niyang higit ang kanyang sarili kaysa sa mga iyon. Wala siyang pahahalagahang dios maliban sa dios na nananalakay ng mga napapaderang bayan. Pararangalan niya ang dios na ito na hindi kilala ng kanyang mga ninuno. Hahandugan niya ito ng mga ginto, pilak, mamahaling bato, at ng iba pang mamahaling mga regalo. 
 
 
 ###### 39 

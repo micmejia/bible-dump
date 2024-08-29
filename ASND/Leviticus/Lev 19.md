@@ -126,7 +126,11 @@ Sundin ninyo ang aking mga utos. Huwag ninyong palalahian ang isang hayop sa iba
 ###### 20 
 
 
-Kung ang isang lalaki ay sumiping sa isang aliping babae na nakatakdang ikasal sa ibang lalaki, pero hindi pa natutubos o napapalaya ang babae, dapat silang parusahan. Pero huwag silang patayin dahil hindi pa napapalaya ang nasabing babae. 21-22Kinakailangang magdala ang lalaki ng lalaking tupa malapit sa may pintuan ng Toldang Tipanan bilang handog na pambayad sa kanyang kasalanan sa Panginoon. Sa paghahandog ng pari ng tupang iyon sa aking harapan, matutubos ang lalaking iyon sa kanyang kasalanan at patatawarin ko siya. 
+Kung ang isang lalaki ay sumiping sa isang aliping babae na nakatakdang ikasal sa ibang lalaki, pero hindi pa natutubos o napapalaya ang babae, dapat silang parusahan. Pero huwag silang patayin dahil hindi pa napapalaya ang nasabing babae.
+
+###### 21-22
+
+Kinakailangang magdala ang lalaki ng lalaking tupa malapit sa may pintuan ng Toldang Tipanan bilang handog na pambayad sa kanyang kasalanan sa Panginoon. Sa paghahandog ng pari ng tupang iyon sa aking harapan, matutubos ang lalaking iyon sa kanyang kasalanan at patatawarin ko siya. 
 
 
 ###### 23 
@@ -204,4 +208,8 @@ Ituring ninyo silang gaya ng inyong mga kababayan at ibigin ninyo sila gaya ng s
 ###### 35 
 
 
-Huwag kayong mandadaya sa inyong pagtitimbang, pagsukat at pagtatakal. 36-37Gamitin ninyo ang tamang timbangan, sukatan, o takalan. Ako ang Panginoon na inyong Dios na naglabas sa inyo sa Egipto. Sundin ninyo ang lahat ng tuntunin at utos ko. Ako ang Panginoon.
+Huwag kayong mandadaya sa inyong pagtitimbang, pagsukat at pagtatakal.
+
+###### 36-37
+
+Gamitin ninyo ang tamang timbangan, sukatan, o takalan. Ako ang Panginoon na inyong Dios na naglabas sa inyo sa Egipto. Sundin ninyo ang lahat ng tuntunin at utos ko. Ako ang Panginoon.

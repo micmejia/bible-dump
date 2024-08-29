@@ -210,7 +210,11 @@ Sila rin ang binigyan ng responsibilidad sa pag-aasikaso ng mga haligi na pinagk
 
 Iyon ang mga gawain ng mga angkan ni Merari sa Toldang Tipanan. Pangungunahan sila ni Itamar na anak ng paring si Aaron." 
 
-## Ang Pagbilang sa mga Levita 34-48Bilang pagsunod sa utos ng Panginoon, inilista nina Moises, Aaron at ng mga pinuno ng mga mamamayan ng Israel ang mga angkan nina Kohat, Gershon at Merari ayon sa bawat pamilya nito. Inilista nila ang lahat ng lalaking may edad 30 hanggang 50 taong gulang na may kakayahang maglingkod sa Toldang Tipanan, at ito ang bilang nila: Ang kabuuang bilang nila ay 8,580. 
+## Ang Pagbilang sa mga Levita
+
+###### 34-48
+
+Bilang pagsunod sa utos ng Panginoon, inilista nina Moises, Aaron at ng mga pinuno ng mga mamamayan ng Israel ang mga angkan nina Kohat, Gershon at Merari ayon sa bawat pamilya nito. Inilista nila ang lahat ng lalaking may edad 30 hanggang 50 taong gulang na may kakayahang maglingkod sa Toldang Tipanan, at ito ang bilang nila: Ang kabuuang bilang nila ay 8,580. 
 
 
 ###### 49 

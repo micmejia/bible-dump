@@ -50,7 +50,11 @@ Pero pagkatapos ko kayong pagpalain at paunlarin, naging mapagmataas kayo at kin
 ###### 9 
 
 
-Pupuksain ko kayong mga taga-Israel dahil ako na nagligtas sa inyo ay kinalaban ninyo. 10-11Nasaan na ngayon ang mga hari at mga pinuno na sa tingin ninyoʼy magliligtas sa inyo? Hiningi ninyo sila sa akin sa pag-aakalang maliligtas nila kayo, at sa galit ko sa inyoʼy ibinigay ko nga ang mga ito, at dahil din sa galit ko, silaʼy kinuha ko. 
+Pupuksain ko kayong mga taga-Israel dahil ako na nagligtas sa inyo ay kinalaban ninyo.
+
+###### 10-11
+
+Nasaan na ngayon ang mga hari at mga pinuno na sa tingin ninyoʼy magliligtas sa inyo? Hiningi ninyo sila sa akin sa pag-aakalang maliligtas nila kayo, at sa galit ko sa inyoʼy ibinigay ko nga ang mga ito, at dahil din sa galit ko, silaʼy kinuha ko. 
 
 
 ###### 12 

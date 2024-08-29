@@ -94,7 +94,11 @@ Ang magtatagumpay ay gagawin kong parang haligi sa bahay ng aking Dios, at hindi
 ###### 14 
 
 
-"Isulat mo ito para sa anghel na nagbabantay sa iglesya sa Laodicea: "Ito ang mensahe ng tinatawag na Amen, ang tapat at tunay na saksi. Siya ang pinagmulan ng lahat ng nilalang ng Dios: 15-16Alam ko ang mga ginagawa ninyo. Alam kong hindi kayo malamig o mainit. Gusto ko sanang malamig kayo o mainit. Ngunit dahil maligamgam kayo, isusuka ko kayo. 
+"Isulat mo ito para sa anghel na nagbabantay sa iglesya sa Laodicea: "Ito ang mensahe ng tinatawag na Amen, ang tapat at tunay na saksi. Siya ang pinagmulan ng lahat ng nilalang ng Dios:
+
+###### 15-16
+
+Alam ko ang mga ginagawa ninyo. Alam kong hindi kayo malamig o mainit. Gusto ko sanang malamig kayo o mainit. Ngunit dahil maligamgam kayo, isusuka ko kayo. 
 
 
 ###### 17 

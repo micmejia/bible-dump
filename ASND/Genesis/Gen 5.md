@@ -132,7 +132,10 @@ Namatay siya sa edad na 962.
 ###### 21 
 
 
-Nang 65 taong gulang na si Enoc, isinilang ang anak niyang lalaki na si Metusela. 22-24Matapos isilang si Metusela, nabuhay pa si Enoc ng 300 taon at nadagdagan pa ang mga anak niya. Nang panahong iyon, malapit ang relasyon ni Enoc sa Dios. Nasa 365 taong gulang siya nang siyaʼy nawala, dahil kinuha siya ng Dios. 
+Nang 65 taong gulang na si Enoc, isinilang ang anak niyang lalaki na si Metusela. 
+
+
+###### 22-24 Matapos isilang si Metusela, nabuhay pa si Enoc ng 300 taon at nadagdagan pa ang mga anak niya. Nang panahong iyon, malapit ang relasyon ni Enoc sa Dios. Nasa 365 taong gulang siya nang siyaʼy nawala, dahil kinuha siya ng Dios. 
 
 
 ###### 25 

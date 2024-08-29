@@ -213,7 +213,11 @@ Sinabi ng Panginoon kay Moises,
 ###### 38 
 
 
-ng mga lalagyang ito na galing sa mga taong nangamatay dahil sa kanilang mga kasalanan. Ipamartilyo ang mga ito hanggang sa mapitpit, at itakip sa altar dahil inihandog ito sa Panginoon at naging banal ito. Ang takip na ito sa altar ay magiging isang babala para sa mga Israelita." 39-40Kaya ayon sa iniutos ng Panginoon sa pamamagitan ni Moises, ipinakuha ng paring si Eleazar ang mga tansong lalagyan ng insenso na dinala ng mga taong nangasunog at minartilyo niya ito upang itakip sa altar. Isa itong babala para sa mga Israelita na walang sinumang makakalapit sa altar para magsunog ng insenso sa Panginoon maliban lang sa mga angkan ni Aaron upang hindi mangyari sa kanya ang nangyari kay Kora at sa mga tagasunod niya. 
+ng mga lalagyang ito na galing sa mga taong nangamatay dahil sa kanilang mga kasalanan. Ipamartilyo ang mga ito hanggang sa mapitpit, at itakip sa altar dahil inihandog ito sa Panginoon at naging banal ito. Ang takip na ito sa altar ay magiging isang babala para sa mga Israelita."
+
+###### 39-40
+
+Kaya ayon sa iniutos ng Panginoon sa pamamagitan ni Moises, ipinakuha ng paring si Eleazar ang mga tansong lalagyan ng insenso na dinala ng mga taong nangasunog at minartilyo niya ito upang itakip sa altar. Isa itong babala para sa mga Israelita na walang sinumang makakalapit sa altar para magsunog ng insenso sa Panginoon maliban lang sa mga angkan ni Aaron upang hindi mangyari sa kanya ang nangyari kay Kora at sa mga tagasunod niya. 
 
 
 ###### 41 

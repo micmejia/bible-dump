@@ -54,7 +54,11 @@ Nang marinig ito ni Herodes, palihim niyang ipinatawag ang mga taong galing sa s
 ###### 8 
 
 
-Pagkatapos, pinapunta niya sila sa Betlehem. Ibinilin niya sa kanila, "Lumakad na kayo at hanaping mabuti ang sanggol. At kapag nakita ninyo, balitaan nʼyo ako kaagad upang makapunta rin ako at makasamba sa kanya." 9-10Pagkatapos nilang marinig ang bilin ng hari, umalis na sila. Habang sila ay naglalakbay, muling lumitaw ang bituin na nakita nila sa silangan, at lubos ang kanilang kagalakan. Nanguna sa kanila ang bituin hanggang makarating sila sa kinaroroonan ng sanggol. 
+Pagkatapos, pinapunta niya sila sa Betlehem. Ibinilin niya sa kanila, "Lumakad na kayo at hanaping mabuti ang sanggol. At kapag nakita ninyo, balitaan nʼyo ako kaagad upang makapunta rin ako at makasamba sa kanya."
+
+###### 9-10
+
+Pagkatapos nilang marinig ang bilin ng hari, umalis na sila. Habang sila ay naglalakbay, muling lumitaw ang bituin na nakita nila sa silangan, at lubos ang kanilang kagalakan. Nanguna sa kanila ang bituin hanggang makarating sila sa kinaroroonan ng sanggol. 
 
 
 ###### 11 

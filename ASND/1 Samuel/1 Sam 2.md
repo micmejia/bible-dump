@@ -192,7 +192,11 @@ Bakit pinag-iinteresan pa ninyo ang mga handog na para sa akin? Bakit mas iginag
 ###### 30 
 
 
-Ako na inyong Panginoon, ang Dios ng Israel ay nangako noon na kayo lang at ang lahi ng inyong mga ninuno ang makapaglilingkod sa akin magpakailanman bilang pari. Ngunit hindi na ngayon, dahil pararangalan ko ang nagpaparangal sa akin, ngunit hahamakin ko ang humahamak sa akin. 31-32Tandaan ninyo ito: Darating ang panahon na lilipulin ko ang lahat ng kabataan sa inyo at sa iba pang lahi ng inyong mga ninuno. Magdurusa kayo at hindi ninyo mararanasan ang kasaganaang ibibigay ko sa Israel. Magiging maikli ang inyong buhay. 
+Ako na inyong Panginoon, ang Dios ng Israel ay nangako noon na kayo lang at ang lahi ng inyong mga ninuno ang makapaglilingkod sa akin magpakailanman bilang pari. Ngunit hindi na ngayon, dahil pararangalan ko ang nagpaparangal sa akin, ngunit hahamakin ko ang humahamak sa akin.
+
+###### 31-32
+
+Tandaan ninyo ito: Darating ang panahon na lilipulin ko ang lahat ng kabataan sa inyo at sa iba pang lahi ng inyong mga ninuno. Magdurusa kayo at hindi ninyo mararanasan ang kasaganaang ibibigay ko sa Israel. Magiging maikli ang inyong buhay. 
 
 
 ###### 33 

@@ -59,7 +59,11 @@ Nang nagtanong sila kung may lahi ng Israel na hindi nakasama nang nagtipon sila
 ###### 9 
 
 
-Dahil nang binilang ang mga tao, wala ni isa mang mga taga-Jabes Gilead ang nandoon. 10-11Kaya pumili ang mga mamamayan ng 12,000 matatapang na sundalo, at pinapunta sa Jabes Gilead para lipulin ang mga taga-roon, bata man o matanda, lalaki o babae, maliban lang sa mga dalaga. 
+Dahil nang binilang ang mga tao, wala ni isa mang mga taga-Jabes Gilead ang nandoon.
+
+###### 10-11
+
+Kaya pumili ang mga mamamayan ng 12,000 matatapang na sundalo, at pinapunta sa Jabes Gilead para lipulin ang mga taga-roon, bata man o matanda, lalaki o babae, maliban lang sa mga dalaga. 
 
 
 ###### 12 

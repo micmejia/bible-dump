@@ -156,7 +156,11 @@ Ang mga damit na itoʼy may butas sa gitna para sa ulo at may parang kwelyo para
 ###### 24 
 
 
-Nilagyan nila ang palibot ng laylayan ng damit ng mga palamuting korteng prutas na pomegranata, na gawa sa pinong telang linen na binurdahan gamit ang lanang kulay asul, ube at pula. 25-26Nilagyan nila ng mga gintong kampanilya ang laylayan ng damit sa pagitan ng palamuting hugis pomegranata. Ang damit na ito ang isusuot ni Aaron kapag naglilingkod na siya sa Panginoon. Ginawa nila itong lahat ayon sa iniutos ng Panginoon kay Moises. 
+Nilagyan nila ang palibot ng laylayan ng damit ng mga palamuting korteng prutas na pomegranata, na gawa sa pinong telang linen na binurdahan gamit ang lanang kulay asul, ube at pula.
+
+###### 25-26
+
+Nilagyan nila ng mga gintong kampanilya ang laylayan ng damit sa pagitan ng palamuting hugis pomegranata. Ang damit na ito ang isusuot ni Aaron kapag naglilingkod na siya sa Panginoon. Ginawa nila itong lahat ayon sa iniutos ng Panginoon kay Moises. 
 
 
 ###### 27 

@@ -127,7 +127,11 @@ at itinaboy mula sa mga tao. Naging isip-hayop siya. Tumira siya kasama ng mga a
 ###### 23 
 
 
-sa halip itinuring mong mas mataas ka kaysa sa Panginoon. Ipinakuha mo ang mga tasang mula sa templo ng Dios at ginamit ninyong inuman ng iyong marangal na mga bisita, mga asawa, at iba pang mga asawang alipin. Maliban diyan, sumamba ka pa sa mga dios-diosang gawa sa pilak, ginto, tanso, bakal, kahoy, at bato. Itoʼy mga dios na hindi nakakakita, hindi nakakarinig, at hindi nakakaunawa. Ngunit hindi mo man lang pinuri ang Dios na siyang may hawak ng iyong buhay at nakakaalam ng iyong landas na dadaanan. 24-25Kaya ipinadala niya ang kamay na iyon para isulat ang mga katagang ito: "Mene, Mene, Tekel, Parsin. 
+sa halip itinuring mong mas mataas ka kaysa sa Panginoon. Ipinakuha mo ang mga tasang mula sa templo ng Dios at ginamit ninyong inuman ng iyong marangal na mga bisita, mga asawa, at iba pang mga asawang alipin. Maliban diyan, sumamba ka pa sa mga dios-diosang gawa sa pilak, ginto, tanso, bakal, kahoy, at bato. Itoʼy mga dios na hindi nakakakita, hindi nakakarinig, at hindi nakakaunawa. Ngunit hindi mo man lang pinuri ang Dios na siyang may hawak ng iyong buhay at nakakaalam ng iyong landas na dadaanan.
+
+###### 24-25
+
+Kaya ipinadala niya ang kamay na iyon para isulat ang mga katagang ito: "Mene, Mene, Tekel, Parsin. 
 
 
 ###### 26 

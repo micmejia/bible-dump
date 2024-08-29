@@ -66,7 +66,11 @@ At umuwi na ang mga mamamayan ng lahi nina Reuben, Gad at ang kalahating lahi ni
 ###### 10 
 
 
-Pagdating nila sa Gelilot, malapit sa Ilog ng Jordan, nagpatayo ang mga lahi nina Reuben, Gad at ang kalahating lahi ni Manase ng malaking altar. Ang lugar na ito ay sakop pa rin ng Canaan. 11-12At nabalitaan ng ibang mga Israelita na nagpatayo ang lahi nina Reuben, Gad at kalahating lahi ni Manase ng altar sa hangganan ng Canaan sa Gelilot, malapit sa Ilog ng Jordan. Kaya nagtipon sila sa Shilo para makipaglaban sa kanila. 
+Pagdating nila sa Gelilot, malapit sa Ilog ng Jordan, nagpatayo ang mga lahi nina Reuben, Gad at ang kalahating lahi ni Manase ng malaking altar. Ang lugar na ito ay sakop pa rin ng Canaan.
+
+###### 11-12
+
+At nabalitaan ng ibang mga Israelita na nagpatayo ang lahi nina Reuben, Gad at kalahating lahi ni Manase ng altar sa hangganan ng Canaan sa Gelilot, malapit sa Ilog ng Jordan. Kaya nagtipon sila sa Shilo para makipaglaban sa kanila. 
 
 
 ###### 13 

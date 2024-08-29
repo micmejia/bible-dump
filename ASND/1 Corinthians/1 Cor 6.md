@@ -54,7 +54,11 @@ Kayo mismo ang talo sa pagkakaroon ninyo ng mga kaso laban sa isaʼt isa. Bakit 
 ###### 8 
 
 
-Ngunit ang nangyayari, kayo pa mismo ang gumagawa ng masama at nandaraya, at ginagawa ninyo ito mismo sa inyong kapatid sa Panginoon. 9-10Hindi nʼyo ba alam na hindi magmamana ng kaharian ng Dios ang masasama? Huwag kayong palilinlang! Sapagkat kailanmaʼy hindi magmamana ng kaharian ng Dios ang mga imoral, sumasamba sa dios-diosan, nangangalunya, nakikipagrelasyon sa kapwa lalaki o babae, magnanakaw, sakim, lasenggo, mapanlait, at mandarambong. 
+Ngunit ang nangyayari, kayo pa mismo ang gumagawa ng masama at nandaraya, at ginagawa ninyo ito mismo sa inyong kapatid sa Panginoon.
+
+###### 9-10
+
+Hindi nʼyo ba alam na hindi magmamana ng kaharian ng Dios ang masasama? Huwag kayong palilinlang! Sapagkat kailanmaʼy hindi magmamana ng kaharian ng Dios ang mga imoral, sumasamba sa dios-diosan, nangangalunya, nakikipagrelasyon sa kapwa lalaki o babae, magnanakaw, sakim, lasenggo, mapanlait, at mandarambong. 
 
 
 ###### 11 

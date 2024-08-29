@@ -84,7 +84,11 @@ Natuwa sila nang malaman nila ang pakay ni Judas, at nangako silang bibigyan siy
 ###### 12 
 
 
-Dumating ang unang araw ng Pista ng Tinapay na Walang Pampaalsa. Ito ang araw na inihahandog ang tupa na kinakain sa Pista ng Paglampas ng Anghel. Kaya tinanong si Jesus ng mga tagasunod niya, "Saan nʼyo po kami gustong maghanda ng hapunan para sa Pista ng Paglampas ng Anghel?" 13-14Inutusan niya ang dalawa sa mga tagasunod niya, "Pumunta kayo sa lungsod ng Jerusalem, at doon ay may masasalubong kayong isang lalaking may pasan na isang bangang tubig. Sundan ninyo siya sa bahay na papasukan niya, at sabihin ninyo sa may-ari ng bahay, 'Ipinapatanong po ng Guro kung saan ang kwartong kakainan niya ng hapunan na kasama ang mga tagasunod niya upang ipagdiwang ang Pista ng Paglampas ng Anghel.' 
+Dumating ang unang araw ng Pista ng Tinapay na Walang Pampaalsa. Ito ang araw na inihahandog ang tupa na kinakain sa Pista ng Paglampas ng Anghel. Kaya tinanong si Jesus ng mga tagasunod niya, "Saan nʼyo po kami gustong maghanda ng hapunan para sa Pista ng Paglampas ng Anghel?"
+
+###### 13-14
+
+Inutusan niya ang dalawa sa mga tagasunod niya, "Pumunta kayo sa lungsod ng Jerusalem, at doon ay may masasalubong kayong isang lalaking may pasan na isang bangang tubig. Sundan ninyo siya sa bahay na papasukan niya, at sabihin ninyo sa may-ari ng bahay, 'Ipinapatanong po ng Guro kung saan ang kwartong kakainan niya ng hapunan na kasama ang mga tagasunod niya upang ipagdiwang ang Pista ng Paglampas ng Anghel.' 
 
 
 ###### 15 

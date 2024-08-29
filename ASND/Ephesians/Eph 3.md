@@ -110,7 +110,11 @@ Ipinapanalangin ko na sa kadakilaan ng kapangyarihan niya ay palakasin niya ang 
 ###### 17 
 
 
-para manahan si Cristo sa mga puso nʼyo dahil sa inyong pananampalataya. Ipinapanalangin ko rin na maging matibay kayo at matatag sa pag-ibig ng Dios, 18-19para maunawaan nʼyo at ng iba pang mga pinabanal kung gaano kalawak, at kahaba, at kataas, at kalalim ang pag-ibig ni Cristo sa atin. Maranasan nʼyo sana ito, kahit hindi ito lubusang maunawaan, para maging ganap sa inyo ang katangian ng Dios. 
+para manahan si Cristo sa mga puso nʼyo dahil sa inyong pananampalataya. Ipinapanalangin ko rin na maging matibay kayo at matatag sa pag-ibig ng Dios,
+
+###### 18-19
+
+para maunawaan nʼyo at ng iba pang mga pinabanal kung gaano kalawak, at kahaba, at kataas, at kalalim ang pag-ibig ni Cristo sa atin. Maranasan nʼyo sana ito, kahit hindi ito lubusang maunawaan, para maging ganap sa inyo ang katangian ng Dios. 
 
 
 ###### 20 

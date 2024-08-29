@@ -102,4 +102,8 @@ Magpapakita ang Panginoon sa ibabaw ng kanyang mga mamamayan. Kikislap ang kanya
 ###### 15 
 
 
-Iingatan ng Panginoong Makapangyarihan ang kanyang mga mamamayan. Tatapak-tapakan lang nila ang mga batong ibinabato sa kanila ng mga kaaway nila. Magkakainan at mag-iinuman sila upang ipagdiwang ang kanilang tagumpay. Magsisigawan sila na parang mga lasing. Mabubusog sila ng inumin katulad ng mangkok na punong-puno ng dugong iwiniwisik sa mga sulok ng altar. 16-17Sa araw na iyon, ililigtas sila ng Panginoon na kanilang Dios bilang kanyang mga tupa. Napakaganda nilang tingnan sa kanilang lupain. Ang katulad nilaʼy mamahaling batong kumikislap sa korona. Magiging sagana sila sa mga butil at ubas na magpapalakas sa kanilang mga kabataan.
+Iingatan ng Panginoong Makapangyarihan ang kanyang mga mamamayan. Tatapak-tapakan lang nila ang mga batong ibinabato sa kanila ng mga kaaway nila. Magkakainan at mag-iinuman sila upang ipagdiwang ang kanilang tagumpay. Magsisigawan sila na parang mga lasing. Mabubusog sila ng inumin katulad ng mangkok na punong-puno ng dugong iwiniwisik sa mga sulok ng altar.
+
+###### 16-17
+
+Sa araw na iyon, ililigtas sila ng Panginoon na kanilang Dios bilang kanyang mga tupa. Napakaganda nilang tingnan sa kanilang lupain. Ang katulad nilaʼy mamahaling batong kumikislap sa korona. Magiging sagana sila sa mga butil at ubas na magpapalakas sa kanilang mga kabataan.

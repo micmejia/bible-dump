@@ -102,4 +102,8 @@ Pagdating ni Moises sa itaas ng bundok, natakpan ng ulap ang bundok.
 ###### 16 
 
 
-At bumaba ang makapangyarihang presensya ng Panginoon sa Bundok ng Sinai. At sa loob ng anim na araw, natakpan ng ulap ang bundok. Sa ikapitong araw, tinawag ng Panginoon si Moises mula sa ulap. 17-18Kaya pumasok si Moises sa ulap habang papaakyat pa siya sa bundok. Nagpaiwan siya roon sa loob ng 40 araw at 40 gabi. Para sa mga Israelitang nasa ibaba, parang apoy na naglalagablab ang makapangyarihang presensya ng Panginoon sa tuktok ng bundok.
+At bumaba ang makapangyarihang presensya ng Panginoon sa Bundok ng Sinai. At sa loob ng anim na araw, natakpan ng ulap ang bundok. Sa ikapitong araw, tinawag ng Panginoon si Moises mula sa ulap.
+
+###### 17-18
+
+Kaya pumasok si Moises sa ulap habang papaakyat pa siya sa bundok. Nagpaiwan siya roon sa loob ng 40 araw at 40 gabi. Para sa mga Israelitang nasa ibaba, parang apoy na naglalagablab ang makapangyarihang presensya ng Panginoon sa tuktok ng bundok.

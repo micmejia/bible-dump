@@ -84,7 +84,11 @@ Kaya ngayon, pumili kayo ng 12 lalaki, isa sa bawat lahi ng Israel.
 ###### 13 
 
 
-Kapag lumusong na ang mga pari na tagabuhat ng Kahon ng Kasunduan ng Panginoon, ang Panginoon na makapangyarihan sa buong mundo, hihinto ang pagdaloy ng tubig sa Ilog ng Jordan. Ang tubig nito mula sa itaas ay maiipon sa isang lugar." 14-15Anihan noon at umaapaw ang tubig sa pampang ng ilog ng Jordan. Umalis ang mga tao sa mga kampo nila para tumawid sa ilog. Nauuna sa kanila ang mga paring buhat ang Kahon ng Kasunduan. Paglusong ng mga pari sa ilog, 
+Kapag lumusong na ang mga pari na tagabuhat ng Kahon ng Kasunduan ng Panginoon, ang Panginoon na makapangyarihan sa buong mundo, hihinto ang pagdaloy ng tubig sa Ilog ng Jordan. Ang tubig nito mula sa itaas ay maiipon sa isang lugar."
+
+###### 14-15
+
+Anihan noon at umaapaw ang tubig sa pampang ng ilog ng Jordan. Umalis ang mga tao sa mga kampo nila para tumawid sa ilog. Nauuna sa kanila ang mga paring buhat ang Kahon ng Kasunduan. Paglusong ng mga pari sa ilog, 
 
 
 ###### 16 

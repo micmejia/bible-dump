@@ -224,7 +224,11 @@ Kung ang tao ay may takot sa Dios at tama ang kanyang ginagawa, kahit ano ang la
 ###### 36 
 
 
-Narinig ninyo ang Magandang Balita na ipinahayag ng Dios sa aming mga Israelita, na ang taoʼy magkakaroon na ng magandang relasyon sa Dios sa pamamagitan ng pananampalataya kay Jesu-Cristo na siyang Panginoon ng lahat. 37-38Alam din ninyo ang mga nangyari sa buong Judea tungkol kay Jesus na taga-Nazaret. Nagsimula ito sa Galilea matapos mangaral ni Juan tungkol sa bautismo. Binigyan ng Dios si Jesus ng Banal na Espiritu at kapangyarihan. At dahil kasama niya ang Dios, pumunta siya sa ibaʼt ibang lugar at gumawa ng kabutihan. Pinagaling niya ang lahat ng sinaniban at pinahirapan ng diyablo. 
+Narinig ninyo ang Magandang Balita na ipinahayag ng Dios sa aming mga Israelita, na ang taoʼy magkakaroon na ng magandang relasyon sa Dios sa pamamagitan ng pananampalataya kay Jesu-Cristo na siyang Panginoon ng lahat.
+
+###### 37-38
+
+Alam din ninyo ang mga nangyari sa buong Judea tungkol kay Jesus na taga-Nazaret. Nagsimula ito sa Galilea matapos mangaral ni Juan tungkol sa bautismo. Binigyan ng Dios si Jesus ng Banal na Espiritu at kapangyarihan. At dahil kasama niya ang Dios, pumunta siya sa ibaʼt ibang lugar at gumawa ng kabutihan. Pinagaling niya ang lahat ng sinaniban at pinahirapan ng diyablo. 
 
 
 ###### 39 

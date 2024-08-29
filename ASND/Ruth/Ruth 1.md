@@ -54,7 +54,11 @@ At loobin sana ng Panginoon na makapag-asawa kayong muli para magkaroon kayo ng 
 ###### 10 
 
 
-at sinabi sa kanya, "Sasama kami sa inyo sa pagbalik nʼyo sa kababayan ninyo." 11-12Pero sinabi ni Naomi, "Umuwi na kayo mga anak. Bakit pa kayo sasama sa akin? Akala nʼyo ba makakapag-asawa pa ako at makakapanganak ng mga lalaking mapapangasawa ninyo? Hindi na maaari dahil matanda na ako. Pero ipagpalagay natin na makapag-asawa ako ngayong gabi at magkaanak pa, 
+at sinabi sa kanya, "Sasama kami sa inyo sa pagbalik nʼyo sa kababayan ninyo."
+
+###### 11-12
+
+Pero sinabi ni Naomi, "Umuwi na kayo mga anak. Bakit pa kayo sasama sa akin? Akala nʼyo ba makakapag-asawa pa ako at makakapanganak ng mga lalaking mapapangasawa ninyo? Hindi na maaari dahil matanda na ako. Pero ipagpalagay natin na makapag-asawa ako ngayong gabi at magkaanak pa, 
 
 
 ###### 13 

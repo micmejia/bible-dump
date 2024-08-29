@@ -248,7 +248,11 @@ Naawa si Jesus sa kanya. Kaya hinawakan siya ni Jesus at sinabi, "Gusto ko. Lumi
 ###### 42 
 
 
-Gumaling agad ang sakit niya, at siya ay luminis. 43-44Pinaalis siya agad ni Jesus at binilinan, "Huwag mo itong ipagsasabi kahit kanino. Sa halip, pumunta ka sa pari at magpasuri. Pagkatapos, maghandog ka ayon sa iniutos ni Moises bilang patunay na malinis ka na." 
+Gumaling agad ang sakit niya, at siya ay luminis.
+
+###### 43-44
+
+Pinaalis siya agad ni Jesus at binilinan, "Huwag mo itong ipagsasabi kahit kanino. Sa halip, pumunta ka sa pari at magpasuri. Pagkatapos, maghandog ka ayon sa iniutos ni Moises bilang patunay na malinis ka na." 
 
 
 ###### 45 

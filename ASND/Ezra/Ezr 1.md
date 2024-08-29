@@ -53,7 +53,11 @@ Ibinalik din sa kanila ni Haring Cyrus ang mga gamit sa templo ng Panginoon na k
 ###### 8 
 
 
-Ipinagkatiwala ito ni Haring Cyrus kay Mitredat na ingat-yaman ng kaharian niya. Binilang ito ni Mitredat at ibinigay ang listahan kay Sheshbazar, ang gobernador ng Juda. 9-10Ito ang bilang ng mga gamit: 
+Ipinagkatiwala ito ni Haring Cyrus kay Mitredat na ingat-yaman ng kaharian niya. Binilang ito ni Mitredat at ibinigay ang listahan kay Sheshbazar, ang gobernador ng Juda.
+
+###### 9-10
+
+Ito ang bilang ng mga gamit: 
 
 
 ###### 11 

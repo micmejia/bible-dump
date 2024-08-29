@@ -137,7 +137,11 @@ Pero unti-unting tumubo ulit ang kanyang buhok.
 ###### 23 
 
 
-Muling nagkatipon ang mga pinuno ng mga Filisteo para magdiwang at mag-alay ng maraming handog sa kanilang dios na si Dagon. Sa pagdiriwang nila ay nag-aawitan sila: "Pinagtagumpay tayo ng dios natin laban sa kalaban nating si Samson." 24-25Labis ang kanilang kasiyahan at nagsigawan sila, "Dalhin dito si Samson para magbigay aliw sa atin!" Kaya pinalabas si Samson sa bilangguan. At nang makita ng mga tao si Samson, pinuri nila ang kanilang dios. Sinabi nila, "Pinagtagumpay tayo ng dios natin sa ating kalaban na nangwasak sa lupain natin at pumatay ng marami sa atin." Pinatayo nila si Samson sa gitna ng dalawang haligi at ginawang katatawanan. 
+Muling nagkatipon ang mga pinuno ng mga Filisteo para magdiwang at mag-alay ng maraming handog sa kanilang dios na si Dagon. Sa pagdiriwang nila ay nag-aawitan sila: "Pinagtagumpay tayo ng dios natin laban sa kalaban nating si Samson."
+
+###### 24-25
+
+Labis ang kanilang kasiyahan at nagsigawan sila, "Dalhin dito si Samson para magbigay aliw sa atin!" Kaya pinalabas si Samson sa bilangguan. At nang makita ng mga tao si Samson, pinuri nila ang kanilang dios. Sinabi nila, "Pinagtagumpay tayo ng dios natin sa ating kalaban na nangwasak sa lupain natin at pumatay ng marami sa atin." Pinatayo nila si Samson sa gitna ng dalawang haligi at ginawang katatawanan. 
 
 
 ###### 26 

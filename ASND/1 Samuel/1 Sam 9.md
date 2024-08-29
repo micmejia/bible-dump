@@ -54,7 +54,11 @@ Sinabi ni Saul sa utusan, "Kung pupunta tayo, ano ang ibibigay natin sa kanya? W
 ###### 8 
 
 
-Sumagot ang utusan, "Mayroon pa po akong isang pirasong pilak. Ibibigay ko po ito sa lingkod ng Dios para sabihin niya sa atin kung saan natin makikita ang mga asno." 9-10"Mabuti," ang sabi ni Saul. "Halika na, pumunta na tayo sa manghuhula." (Noon sa Israel, kung may taong gustong makatanggap ng mensahe galing sa Dios sinasabi niya, "Halika, pumunta tayo sa manghuhula," dahil ang mga tinatawag na propeta ngayon ay tinatawag na manghuhula noon.) Pumunta si Saul at ang utusan sa bayan kung saan naroon ang propeta ng Dios. 
+Sumagot ang utusan, "Mayroon pa po akong isang pirasong pilak. Ibibigay ko po ito sa lingkod ng Dios para sabihin niya sa atin kung saan natin makikita ang mga asno."
+
+###### 9-10
+
+"Mabuti," ang sabi ni Saul. "Halika na, pumunta na tayo sa manghuhula." (Noon sa Israel, kung may taong gustong makatanggap ng mensahe galing sa Dios sinasabi niya, "Halika, pumunta tayo sa manghuhula," dahil ang mga tinatawag na propeta ngayon ay tinatawag na manghuhula noon.) Pumunta si Saul at ang utusan sa bayan kung saan naroon ang propeta ng Dios. 
 
 
 ###### 11 

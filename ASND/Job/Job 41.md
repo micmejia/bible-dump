@@ -96,7 +96,11 @@ Sino ang makakapagpabuka ng kanyang bunganga? Ang mga ngipin niyaʼy nakakatakot
 ###### 15 
 
 
-Ang likod niyaʼy may makakapal na kaliskis na parang panangga na nakasalansan. 16-17Sobrang dikit-dikit na ito na kahit ang hangin ay hindi makakalusot at walang makakatuklap nito. 
+Ang likod niyaʼy may makakapal na kaliskis na parang panangga na nakasalansan.
+
+###### 16-17
+
+Sobrang dikit-dikit na ito na kahit ang hangin ay hindi makakalusot at walang makakatuklap nito. 
 
 
 ###### 18 

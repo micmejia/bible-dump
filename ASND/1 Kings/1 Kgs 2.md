@@ -190,7 +190,11 @@ Nang mabalitaan ni Haring Solomon na tumakas si Joab papunta sa tolda ng Pangino
 ###### 30 
 
 
-Kaya pumunta si Benaya sa tolda ng Panginoon at sinabihan si Joab, "Lumabas ka, sabi ng hari!" Pero sumagot si Joab, "Hindi ako lalabas; dito ako mamamatay!" Bumalik si Benaya sa hari at sinabi ang sagot ni Joab. 31-32Sinabi ni Solomon kay Benaya, "Gawin mo ang sinabi niya. Doon siya patayin sa tolda at ilibing, para ako at ang pamilya ng aking ama ay hindi managot sa pagpatay niya kay Abner na anak ni Ner, na kumander ng mga sundalo ng Israel, at kay Amasa na kumander ng mga sundalo ng Juda. Pinatay niya ang mga taong inosente nang hindi nalalaman ng aking ama. Mas matuwid at mabuti ang mga taong ito kaysa sa kanya. Ngayon, gagantihan siya ng Panginoon sa ginawa niya sa kanila. 
+Kaya pumunta si Benaya sa tolda ng Panginoon at sinabihan si Joab, "Lumabas ka, sabi ng hari!" Pero sumagot si Joab, "Hindi ako lalabas; dito ako mamamatay!" Bumalik si Benaya sa hari at sinabi ang sagot ni Joab.
+
+###### 31-32
+
+Sinabi ni Solomon kay Benaya, "Gawin mo ang sinabi niya. Doon siya patayin sa tolda at ilibing, para ako at ang pamilya ng aking ama ay hindi managot sa pagpatay niya kay Abner na anak ni Ner, na kumander ng mga sundalo ng Israel, at kay Amasa na kumander ng mga sundalo ng Juda. Pinatay niya ang mga taong inosente nang hindi nalalaman ng aking ama. Mas matuwid at mabuti ang mga taong ito kaysa sa kanya. Ngayon, gagantihan siya ng Panginoon sa ginawa niya sa kanila. 
 
 
 ###### 33 

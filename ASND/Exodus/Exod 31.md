@@ -98,7 +98,11 @@ Dapat ninyong sundin ang ipinag-uutos ko tungkol sa Araw ng Pamamahinga, dahil b
 ###### 15 
 
 
-Gawin ninyo ang mga gawain nʼyo sa loob ng anim na araw, pero sa ikapitong araw ay magpahinga kayo. Sapagkat banal ang araw na ito para sa akin, papatayin ang sinumang gagawa sa araw na ito. 16-17Kaya kayong mga Israelita, dapat ninyong sundin magpakailanman ang ipinapagawa ko sa inyo sa Araw ng Pamamahinga hanggang sa susunod pang mga henerasyon. Ito ang walang hanggang tanda ng walang katapusang kasunduan natin. Dahil sa loob ng anim na araw, nilikha ko ang langit at ang mundo, at sa ikapitong araw ay nagpahinga ako." 
+Gawin ninyo ang mga gawain nʼyo sa loob ng anim na araw, pero sa ikapitong araw ay magpahinga kayo. Sapagkat banal ang araw na ito para sa akin, papatayin ang sinumang gagawa sa araw na ito.
+
+###### 16-17
+
+Kaya kayong mga Israelita, dapat ninyong sundin magpakailanman ang ipinapagawa ko sa inyo sa Araw ng Pamamahinga hanggang sa susunod pang mga henerasyon. Ito ang walang hanggang tanda ng walang katapusang kasunduan natin. Dahil sa loob ng anim na araw, nilikha ko ang langit at ang mundo, at sa ikapitong araw ay nagpahinga ako." 
 
 
 ###### 18 

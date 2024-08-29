@@ -198,7 +198,11 @@ At ang bahaging iyon ng handog ay dadalhin mismo ng maghahandog sa altar upang i
 ###### 31 
 
 
-Pagkatapos, susunugin ng paring namumuno ng seremonya ang taba sa altar, pero ang pitso ay para kay Aaron at sa kanyang angkan. 32-33Ang kanang hita ng hayop na inihandog ay ibibigay sa paring naghahandog ng dugo at taba nito. 
+Pagkatapos, susunugin ng paring namumuno ng seremonya ang taba sa altar, pero ang pitso ay para kay Aaron at sa kanyang angkan.
+
+###### 32-33
+
+Ang kanang hita ng hayop na inihandog ay ibibigay sa paring naghahandog ng dugo at taba nito. 
 
 
 ###### 34 

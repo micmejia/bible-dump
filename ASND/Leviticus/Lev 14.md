@@ -97,7 +97,11 @@ at ilulubog niya sa langis ang mga daliri niya sa kanang kamay at iwiwisik ng pi
 ###### 17 
 
 
-Ang ibang langis sa kanyang palad ay ipapahid niya sa ibabang bahagi ng kanang tainga at kanang hinlalaki ng kamay at paa ng taong pinahiran niya mismo ng dugo. 18-20Ang natitira pang langis sa palad ng pari ay ipapahid niya sa ulo ng taong iyon, at saka niya ihahandog ang handog sa paglilinis. Pagkatapos nito, papatayin ng pari ang handog na sinusunog at ihahandog niya ito sa altar pati ang handog ng pagpaparangal. Ganito ang gagawin ng pari sa presensya ng Panginoon para matubos ang karumihan ng tao at magiging malinis siya. 
+Ang ibang langis sa kanyang palad ay ipapahid niya sa ibabang bahagi ng kanang tainga at kanang hinlalaki ng kamay at paa ng taong pinahiran niya mismo ng dugo.
+
+###### 18-20
+
+Ang natitira pang langis sa palad ng pari ay ipapahid niya sa ulo ng taong iyon, at saka niya ihahandog ang handog sa paglilinis. Pagkatapos nito, papatayin ng pari ang handog na sinusunog at ihahandog niya ito sa altar pati ang handog ng pagpaparangal. Ganito ang gagawin ng pari sa presensya ng Panginoon para matubos ang karumihan ng tao at magiging malinis siya. 
 
 
 ###### 21 
@@ -145,7 +149,11 @@ at ilulubog niya sa langis ang mga daliri sa kanang kamay at iwiwisik ng pitong 
 ###### 28 
 
 
-Ang ibang langis sa kanyang palad ay ipapahid niya sa ibabang bahagi ng kanang tainga ng taong nililinis at sa hinlalaki nito sa kanang kamay at paa, doon mismo sa pinahiran ng dugo. 29-31Ang natirang langis sa palad ng pari ay ipapahid sa ulo ng tao. Pagkatapos, ihahandog ng pari ang dalawang kalapati o dalawang ibon na batu-bato. Ang isaʼy handog sa paglilinis at ang isaʼy para sa handog na sinusunog. Ihahandog din niya ang handog ng pagpaparangal. Sa pamamagitan ng gagawing ito ng pari sa presensya ng Panginoon, maaalis ang karumihan ng tao. 
+Ang ibang langis sa kanyang palad ay ipapahid niya sa ibabang bahagi ng kanang tainga ng taong nililinis at sa hinlalaki nito sa kanang kamay at paa, doon mismo sa pinahiran ng dugo.
+
+###### 29-31
+
+Ang natirang langis sa palad ng pari ay ipapahid sa ulo ng tao. Pagkatapos, ihahandog ng pari ang dalawang kalapati o dalawang ibon na batu-bato. Ang isaʼy handog sa paglilinis at ang isaʼy para sa handog na sinusunog. Ihahandog din niya ang handog ng pagpaparangal. Sa pamamagitan ng gagawing ito ng pari sa presensya ng Panginoon, maaalis ang karumihan ng tao. 
 
 
 ###### 32 
@@ -279,4 +287,8 @@ Kaya sa pamamagitan ng dugo ng ibon, tubig na galing sa bukal, buhay na ibon, ka
 ###### 53 
 
 
-Pagkatapos, pakakawalan niya ang buhay na ibon sa labas ng bayan. Ganito ang paraan na gagawin ng pari para maalis ang karumihan sa bahay at magiging malinis na ito. 54-57Ito ang mga tuntunin tungkol sa sakit sa balat na nakakahawa at kumakati, o namamaga, o may butlig o namumuti, at tungkol sa amag ng damit at amag sa bahay. At sa pamamagitan ng mga tuntuning ito, malalaman ninyo kung alin ang malinis at marumi.
+Pagkatapos, pakakawalan niya ang buhay na ibon sa labas ng bayan. Ganito ang paraan na gagawin ng pari para maalis ang karumihan sa bahay at magiging malinis na ito.
+
+###### 54-57
+
+Ito ang mga tuntunin tungkol sa sakit sa balat na nakakahawa at kumakati, o namamaga, o may butlig o namumuti, at tungkol sa amag ng damit at amag sa bahay. At sa pamamagitan ng mga tuntuning ito, malalaman ninyo kung alin ang malinis at marumi.

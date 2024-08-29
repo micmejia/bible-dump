@@ -127,7 +127,11 @@ At tulad ng ipinangako ni Moises, ibinigay kay Caleb ang Hebron. Itinaboy ni Cal
 
 Hindi itinaboy ng lahi ni Benjamin ang mga Jebuseo na nakatira sa Jerusalem. Kaya hanggang ngayon, naninirahan pa rin ang mga ito kasama ng mga lahi ni Benjamin.
 
-## Sinakop ng Dalawang Lahi ni Jose ang Betel 22-23Ngayon, nilusob ng mga lahi ni Jose ang lungsod ng Betel (na noon ay tinatawag na Luz), at tinulungan sila ng Panginoon. Nang nagpadala sila ng mga tao para mag-espiya sa Betel, 
+## Sinakop ng Dalawang Lahi ni Jose ang Betel
+
+###### 22-23
+
+Ngayon, nilusob ng mga lahi ni Jose ang lungsod ng Betel (na noon ay tinatawag na Luz), at tinulungan sila ng Panginoon. Nang nagpadala sila ng mga tao para mag-espiya sa Betel, 
 
 
 ###### 24 

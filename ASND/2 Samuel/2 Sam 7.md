@@ -152,7 +152,11 @@ At wala ring katulad ang inyong mga mamamayang Israelita. Ito lamang ang bansa s
 ###### 24 
 
 
-Itinatag nʼyo ang Israel bilang sarili nʼyong mga mamamayan magpakailanman, at kayo Panginoon, ang kanilang naging Dios. 25-26"At ngayon, Panginoong Dios, tuparin po ninyo ang ipinangako nʼyo sa akin na inyong lingkod at sa angkan ko, para maging tanyag kayo magpakailanman. At sasabihin ng mga tao, 'Ang Panginoong Makapangyarihan ang Dios ng Israel!' At ang sambahayan ko ay patuloy na maglilingkod sa inyo magpakailanman. 
+Itinatag nʼyo ang Israel bilang sarili nʼyong mga mamamayan magpakailanman, at kayo Panginoon, ang kanilang naging Dios.
+
+###### 25-26
+
+"At ngayon, Panginoong Dios, tuparin po ninyo ang ipinangako nʼyo sa akin na inyong lingkod at sa angkan ko, para maging tanyag kayo magpakailanman. At sasabihin ng mga tao, 'Ang Panginoong Makapangyarihan ang Dios ng Israel!' At ang sambahayan ko ay patuloy na maglilingkod sa inyo magpakailanman. 
 
 
 ###### 27 

@@ -88,4 +88,8 @@ At nakita ko ang mga namatay, tanyag at hindi, na nakatayo sa harap ng trono. Bi
 ###### 13 
 
 
-Kahit sa dagat sila namatay o sa lupa, naglabasan sila mula sa lugar ng mga patay. At hinatulan ang lahat ayon sa mga ginawa nila. 14-15At ang sinumang hindi nakasulat ang pangalan sa aklat na listahan ng mga taong binigyan ng buhay na walang hanggan ay itinapon sa lawang apoy. Pagkatapos, itinapon din doon ang kamatayan at ang Hades. Ang parusang ito sa lawang apoy ay ang ikalawang kamatayan.
+Kahit sa dagat sila namatay o sa lupa, naglabasan sila mula sa lugar ng mga patay. At hinatulan ang lahat ayon sa mga ginawa nila.
+
+###### 14-15
+
+At ang sinumang hindi nakasulat ang pangalan sa aklat na listahan ng mga taong binigyan ng buhay na walang hanggan ay itinapon sa lawang apoy. Pagkatapos, itinapon din doon ang kamatayan at ang Hades. Ang parusang ito sa lawang apoy ay ang ikalawang kamatayan.

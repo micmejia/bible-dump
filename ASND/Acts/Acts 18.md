@@ -116,7 +116,11 @@ Pagkatapos, hinuli ng mga Griego si Sostenes na namumuno sa sambahan ng mga Judi
 ###### 18 
 
 
-Nanatili pa si Pablo nang ilang araw sa Corinto. Pagkatapos, nagpaalam siya sa mga kapatid at pumunta sa Cencrea kasama ang mag-asawang Priscila at Aquila. Nagpagupit siya roon ng buhok dahil natupad na niya ang isa niyang panata sa Dios. Mula sa Cencrea bumiyahe sila papuntang Syria. 19-21Dumaan sila sa Efeso at pumasok si Pablo sa sambahan ng mga Judio at nakipagdiskusyon sa kanila. Kinausap nila si Pablo na manatili muna roon sa kanila, pero ayaw ni Pablo. Bago siya umalis, sinabi niya sa kanila, "Kung loloobin ng Dios, babalik ako rito." Iniwan ni Pablo ang mag-asawang Priscila at Aquila sa Efeso at bumiyahe siya papuntang Syria. 
+Nanatili pa si Pablo nang ilang araw sa Corinto. Pagkatapos, nagpaalam siya sa mga kapatid at pumunta sa Cencrea kasama ang mag-asawang Priscila at Aquila. Nagpagupit siya roon ng buhok dahil natupad na niya ang isa niyang panata sa Dios. Mula sa Cencrea bumiyahe sila papuntang Syria.
+
+###### 19-21
+
+Dumaan sila sa Efeso at pumasok si Pablo sa sambahan ng mga Judio at nakipagdiskusyon sa kanila. Kinausap nila si Pablo na manatili muna roon sa kanila, pero ayaw ni Pablo. Bago siya umalis, sinabi niya sa kanila, "Kung loloobin ng Dios, babalik ako rito." Iniwan ni Pablo ang mag-asawang Priscila at Aquila sa Efeso at bumiyahe siya papuntang Syria. 
 
 
 ###### 22 

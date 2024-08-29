@@ -128,7 +128,11 @@ Tulad ako ng isang tupang dinadala sa katayan nang hindi ko nalalaman. Hindi ko 
 ###### 20 
 
 
-Pero nanalangin ako, "O Panginoong Makapangyarihan, matuwid po ang paghatol ninyo. Nalalaman po ninyo ang isip at puso ng tao. Ipakita nʼyo po sa akin ang paghihiganti nʼyo sa kanila, dahil ipinaubaya ko sa inyo ang usaping ito!" 21-22Nais ng mga taga-Anatot na patayin ako kung hindi ako titigil sa pagpapahayag ng mensahe ng Panginoon. Kaya ito ang sinasabi ng Panginoong Makapangyarihan, "Parurusahan ko sila. Mamamatay sa digmaan ang mga kabataan nilang lalaki at mamamatay sa gutom ang mga anak nila. 
+Pero nanalangin ako, "O Panginoong Makapangyarihan, matuwid po ang paghatol ninyo. Nalalaman po ninyo ang isip at puso ng tao. Ipakita nʼyo po sa akin ang paghihiganti nʼyo sa kanila, dahil ipinaubaya ko sa inyo ang usaping ito!"
+
+###### 21-22
+
+Nais ng mga taga-Anatot na patayin ako kung hindi ako titigil sa pagpapahayag ng mensahe ng Panginoon. Kaya ito ang sinasabi ng Panginoong Makapangyarihan, "Parurusahan ko sila. Mamamatay sa digmaan ang mga kabataan nilang lalaki at mamamatay sa gutom ang mga anak nila. 
 
 
 ###### 23 

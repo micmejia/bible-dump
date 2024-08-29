@@ -86,7 +86,11 @@ Akoʼy magiging kasama ninyo, at patuloy akong magiging Dios ninyo, at patuloy k
 
 Ako ang Panginoon na inyong Dios na naglabas sa inyo sa Egipto para huwag na kayong maging mga alipin ng mga taga-Egipto. Pinalaya ko na kayo, kaya wala na kayong dapat ikahiya.
 
-## Ang Parusa sa mga Sumusuway 14-15Pero kung hindi kayo makikinig sa akin, at hindi ninyo susundin ang aking mga utos at tuntunin, nilalabag ninyo ang kasunduan ko sa inyo. 
+## Ang Parusa sa mga Sumusuway
+
+###### 14-15
+
+Pero kung hindi kayo makikinig sa akin, at hindi ninyo susundin ang aking mga utos at tuntunin, nilalabag ninyo ang kasunduan ko sa inyo. 
 
 
 ###### 16 
@@ -194,7 +198,15 @@ Wawasakin ko ang inyong lupain at magtataka ang inyong mga kalaban na sasakop ni
 ###### 33 
 
 
-Pasasapitin ko sa inyo ang digmaan na gigiba ng inyong mga bayan at mga lungsod, at pangangalatin ko kayo sa mga bansa. 34-35Habang bihag kayo ng inyong mga kalaban sa ibang lugar, makakapagpahinga na ang inyong lupain. Sapagkat noong nakatira pa kayo sa inyong lupain, hindi ninyo ito pinagpahinga kahit na sa panahon ng pagpapahinga ng inyong lupain. Pero ngayon ay makakapagpahinga na ito habang nasa ibang lugar kayo. 36-37Kayong mga natitirang buhay na binihag at dinala ng inyong mga kalaban sa kanilang lugar ay padadalhan ko ng labis na pagkatakot. At kahit na kaluskos lang ng dahon sa ihip ng hangin ay katatakutan ninyo, tatakas kayong parang hinahabol upang patayin, kahit walang humahabol sa inyo. At habang tumatakas kayo, magbabanggaan kayo at magkakandarapa. Hindi kayo makakalaban sa inyong mga kalaban. 
+Pasasapitin ko sa inyo ang digmaan na gigiba ng inyong mga bayan at mga lungsod, at pangangalatin ko kayo sa mga bansa.
+
+###### 34-35
+
+Habang bihag kayo ng inyong mga kalaban sa ibang lugar, makakapagpahinga na ang inyong lupain. Sapagkat noong nakatira pa kayo sa inyong lupain, hindi ninyo ito pinagpahinga kahit na sa panahon ng pagpapahinga ng inyong lupain. Pero ngayon ay makakapagpahinga na ito habang nasa ibang lugar kayo.
+
+###### 36-37
+
+Kayong mga natitirang buhay na binihag at dinala ng inyong mga kalaban sa kanilang lugar ay padadalhan ko ng labis na pagkatakot. At kahit na kaluskos lang ng dahon sa ihip ng hangin ay katatakutan ninyo, tatakas kayong parang hinahabol upang patayin, kahit walang humahabol sa inyo. At habang tumatakas kayo, magbabanggaan kayo at magkakandarapa. Hindi kayo makakalaban sa inyong mga kalaban. 
 
 
 ###### 38 
@@ -206,7 +218,11 @@ Mamamatay kayo sa lugar ng inyong mga kalaban.
 ###### 39 
 
 
-At ang matitira sa inyoʼy unti-unting mamamatay dahil sa inyong mga kasalanan at sa kasalanan ng inyong mga ninuno. 40-41Dahil sa inyong pagtataksil at pagsuway sa akin, kinalaban ko kayo at ipinabihag sa inyong mga kalaban. Pero kung ipapahayag ninyo ang inyong mga kasalanan at ang kasalanan ng inyong mga ninuno, at titigilan na ang inyong pagmamatigas, at tatanggapin ang mga parusa para sa inyong mga kasalanan, 
+At ang matitira sa inyoʼy unti-unting mamamatay dahil sa inyong mga kasalanan at sa kasalanan ng inyong mga ninuno.
+
+###### 40-41
+
+Dahil sa inyong pagtataksil at pagsuway sa akin, kinalaban ko kayo at ipinabihag sa inyong mga kalaban. Pero kung ipapahayag ninyo ang inyong mga kasalanan at ang kasalanan ng inyong mga ninuno, at titigilan na ang inyong pagmamatigas, at tatanggapin ang mga parusa para sa inyong mga kasalanan, 
 
 
 ###### 42 

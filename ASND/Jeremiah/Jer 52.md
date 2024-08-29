@@ -167,7 +167,11 @@ Silang lahat ay dinala ni Nebuzaradan sa hari ng Babilonia na nasa Ribla,
 ###### 27 
 
 
-na sakop ng Hamat. At doon sila ipinapatay ng hari. Kaya ang mga mamamayan ng Juda ay binihag at dinala papalayo sa lupain nila. 28-30Ito ang bilang ng mga taong binihag ni Haring Nebucadnezar: Noong ikapitong taon ng paghahari niya, 3,023. Noong ika-18 taon ng paghahari niya, 832. Noong ika-23 taon ng paghahari niya, 745. Si Nebuzaradan ang bumihag sa kanila. May kabuuang bilang na 4,600 ang binihag.
+na sakop ng Hamat. At doon sila ipinapatay ng hari. Kaya ang mga mamamayan ng Juda ay binihag at dinala papalayo sa lupain nila.
+
+###### 28-30
+
+Ito ang bilang ng mga taong binihag ni Haring Nebucadnezar: Noong ikapitong taon ng paghahari niya, 3,023. Noong ika-18 taon ng paghahari niya, 832. Noong ika-23 taon ng paghahari niya, 745. Si Nebuzaradan ang bumihag sa kanila. May kabuuang bilang na 4,600 ang binihag.
 
 ## Pinakawalan si Jehoyakin 
 

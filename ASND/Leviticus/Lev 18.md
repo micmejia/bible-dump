@@ -52,7 +52,11 @@ Huwag kang sumiping sa iyong apong babae dahil magbibigay ito sa iyo ng kahihiya
 ###### 11 
 
 
-Huwag kang sumiping sa anak na babae ng iyong ama sa iba niyang asawa, dahil kapatid mo rin siya. 12-13Huwag kang sumiping sa iyong tiyahin na kapatid ng iyong ama o ina. 
+Huwag kang sumiping sa anak na babae ng iyong ama sa iba niyang asawa, dahil kapatid mo rin siya.
+
+###### 12-13
+
+Huwag kang sumiping sa iyong tiyahin na kapatid ng iyong ama o ina. 
 
 
 ###### 14 
@@ -118,7 +122,11 @@ Huwag kang sumiping sa hayop dahil ito ay napakasama at ikaw ay ituturing na mar
 ###### 24 
 
 
-Huwag ninyong dumihan ang inyong sarili sa pamamagitan ng paggawa ng ganitong mga gawain dahil ito ang nagparumi sa mga taong pinaalis ko sa lupaing ibinigay ko sa inyo. 25-28At kahit ang lupain ay nadungisan dahil sa ginawa nilang iyon. Pinadalhan ko ng mga salot ang lupaing iyon para silaʼy magsialis doon. Pero kayong mga katutubong Israelita at mga dayuhang naninirahang kasama ninyo, huwag ninyong gawin ang kasuklam-suklam na gawaing iyon, kundi sundin ninyo ang mga tuntunin at mga kautusan ko. Sapagkat kung dudungisan din ninyo ang lupaing iyon, sa pamamagitan ng paggawa ng mga gawaing iyon, paaalisin ko rin kayo sa lupaing iyon katulad ng mga taong unang tumira roon. 
+Huwag ninyong dumihan ang inyong sarili sa pamamagitan ng paggawa ng ganitong mga gawain dahil ito ang nagparumi sa mga taong pinaalis ko sa lupaing ibinigay ko sa inyo.
+
+###### 25-28
+
+At kahit ang lupain ay nadungisan dahil sa ginawa nilang iyon. Pinadalhan ko ng mga salot ang lupaing iyon para silaʼy magsialis doon. Pero kayong mga katutubong Israelita at mga dayuhang naninirahang kasama ninyo, huwag ninyong gawin ang kasuklam-suklam na gawaing iyon, kundi sundin ninyo ang mga tuntunin at mga kautusan ko. Sapagkat kung dudungisan din ninyo ang lupaing iyon, sa pamamagitan ng paggawa ng mga gawaing iyon, paaalisin ko rin kayo sa lupaing iyon katulad ng mga taong unang tumira roon. 
 
 
 ###### 29 

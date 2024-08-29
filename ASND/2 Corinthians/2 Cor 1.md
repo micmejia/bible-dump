@@ -81,7 +81,11 @@ sa tulong ng inyong mga panalangin. Sa ganoon, marami ang magpapasalamat sa Dios
 ###### 12 
 
 
-Isang bagay ang maipagmamalaki namin: Namumuhay kaming matuwid at tapat sa harap ng lahat ng tao, lalung-lalo na sa inyo. Nagawa namin ito hindi sa pamamagitan ng karunungan ng mundo kundi dahil sa biyaya ng Dios. At pinatutunayan ng aming konsensya na talagang totoo itong aming ipinagmamalaki. 13-14Sapagkat wala kaming isinusulat sa inyo na hindi ninyo mabasa o maintindihan. Kahit na hindi nʼyo pa kami kilalang mabuti, umaasa akong darating ang araw na makikilala nʼyo kami nang lubusan, para maipagmalaki ninyo kami sa araw ng pagdating ng Panginoong Jesus, at maipagmamalaki rin namin kayo. 
+Isang bagay ang maipagmamalaki namin: Namumuhay kaming matuwid at tapat sa harap ng lahat ng tao, lalung-lalo na sa inyo. Nagawa namin ito hindi sa pamamagitan ng karunungan ng mundo kundi dahil sa biyaya ng Dios. At pinatutunayan ng aming konsensya na talagang totoo itong aming ipinagmamalaki.
+
+###### 13-14
+
+Sapagkat wala kaming isinusulat sa inyo na hindi ninyo mabasa o maintindihan. Kahit na hindi nʼyo pa kami kilalang mabuti, umaasa akong darating ang araw na makikilala nʼyo kami nang lubusan, para maipagmalaki ninyo kami sa araw ng pagdating ng Panginoong Jesus, at maipagmamalaki rin namin kayo. 
 
 
 ###### 15 

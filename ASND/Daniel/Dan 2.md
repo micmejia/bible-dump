@@ -84,7 +84,11 @@ Dahil sa sagot nilang ito, galit na galit ang hari. At nag-utos siyang patayin a
 ###### 13 
 
 
-Nang inilabas na ang utos ng hari na patayin ang mga marurunong, hinanap si Daniel at ang kanyang mga kasama para patayin din. 14-15Kaya nakipag-usap si Daniel kay Arioc na kapitan ng mga tagapagbantay ng hari na siyang inutusan na patayin ang mga marurunong sa Babilonia. Maingat na nagtanong si Daniel sa kanya kung ano ang dahilan ng napakabigat na utos ng hari. Kaya sinabi sa kanya ni Arioc ang nangyari. 
+Nang inilabas na ang utos ng hari na patayin ang mga marurunong, hinanap si Daniel at ang kanyang mga kasama para patayin din.
+
+###### 14-15
+
+Kaya nakipag-usap si Daniel kay Arioc na kapitan ng mga tagapagbantay ng hari na siyang inutusan na patayin ang mga marurunong sa Babilonia. Maingat na nagtanong si Daniel sa kanya kung ano ang dahilan ng napakabigat na utos ng hari. Kaya sinabi sa kanya ni Arioc ang nangyari. 
 
 
 ###### 16 

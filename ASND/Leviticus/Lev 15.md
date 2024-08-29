@@ -38,7 +38,11 @@ At ituturing na marumi ang anumang mahigaan o maupuan niya.
 ###### 8 
 
 
-Ang sinumang maduraan ng taong ito ay kinakailangang maglaba ng kanyang damit at maligo, pero ituturing pa rin siyang marumi hanggang sa paglubog ng araw. 9-10Ang anumang maupuan ng taong ito, katulad ng upuang ginagamit kapag sumasakay sa kabayo ay magiging marumi. Ang sinumang makahipo ng mga bagay na iyon ay kinakailangang maglaba ng kanyang damit at maligo, pero ituturing pa rin siyang marumi hanggang sa paglubog ng araw. 
+Ang sinumang maduraan ng taong ito ay kinakailangang maglaba ng kanyang damit at maligo, pero ituturing pa rin siyang marumi hanggang sa paglubog ng araw.
+
+###### 9-10
+
+Ang anumang maupuan ng taong ito, katulad ng upuang ginagamit kapag sumasakay sa kabayo ay magiging marumi. Ang sinumang makahipo ng mga bagay na iyon ay kinakailangang maglaba ng kanyang damit at maligo, pero ituturing pa rin siyang marumi hanggang sa paglubog ng araw. 
 
 
 ###### 11 
@@ -50,7 +54,11 @@ Ang sinumang makahipo sa taong iyon habang hindi pa siya nakakapaghugas ng kanya
 ###### 12 
 
 
-Ang palayok na mahihipo ng taong iyon ay dapat basagin, at ang mga bagay na gawa sa kahoy ay dapat hugasan. 13-14Kung gumaling na ang may sakit na ito, maghihintay siya ng pitong araw. Pagkatapos, lalabhan niya ang kanyang damit at maliligo ng tubig na galing sa bukal. Sa ikawalong araw, kinakailangang magdala siya ng dalawang kalapati o dalawang ibon na batu-bato sa presensya ng Panginoon malapit sa pintuan ng Toldang Tipanan. At ibibigay niya sa paring maghahandog noon. 
+Ang palayok na mahihipo ng taong iyon ay dapat basagin, at ang mga bagay na gawa sa kahoy ay dapat hugasan.
+
+###### 13-14
+
+Kung gumaling na ang may sakit na ito, maghihintay siya ng pitong araw. Pagkatapos, lalabhan niya ang kanyang damit at maliligo ng tubig na galing sa bukal. Sa ikawalong araw, kinakailangang magdala siya ng dalawang kalapati o dalawang ibon na batu-bato sa presensya ng Panginoon malapit sa pintuan ng Toldang Tipanan. At ibibigay niya sa paring maghahandog noon. 
 
 
 ###### 15 
@@ -86,7 +94,11 @@ Kung ang isang babae ay may buwanang dalaw, ituturing siyang marumi sa loob ng p
 ###### 20 
 
 
-Ang anumang mahigaan o maupuan niya habang siyaʼy may buwanang dalaw ay magiging marumi. 21-23Ang sinumang makahipo sa kanyang hinigaan o inupuan ay kinakailangang maglaba ng kanyang damit at maligo, at ituturing pa rin siyang marumi hanggang sa paglubog ng araw. 
+Ang anumang mahigaan o maupuan niya habang siyaʼy may buwanang dalaw ay magiging marumi.
+
+###### 21-23
+
+Ang sinumang makahipo sa kanyang hinigaan o inupuan ay kinakailangang maglaba ng kanyang damit at maligo, at ituturing pa rin siyang marumi hanggang sa paglubog ng araw. 
 
 
 ###### 24 
@@ -110,7 +122,11 @@ Ang anumang mahigaan niya at maupuan habang siyaʼy dinudugo ay magiging marumi 
 ###### 27 
 
 
-At ang sinumang makahipo ng mga iyon ay magiging marumi, kinakailangang maglaba siya ng kanyang damit at maligo, pero ituturing pa rin siyang marumi hanggang sa paglubog ng araw. 28-29Kung huminto na ang buwanang dalaw ng babae, maghihintay siya ng pitong araw at ituturing na siyang malinis. Sa ikawalong araw, kinakailangang magdala siya ng dalawang kalapati o dalawang ibon na batu-bato malapit sa may pintuan ng Toldang Tipanan. 
+At ang sinumang makahipo ng mga iyon ay magiging marumi, kinakailangang maglaba siya ng kanyang damit at maligo, pero ituturing pa rin siyang marumi hanggang sa paglubog ng araw.
+
+###### 28-29
+
+Kung huminto na ang buwanang dalaw ng babae, maghihintay siya ng pitong araw at ituturing na siyang malinis. Sa ikawalong araw, kinakailangang magdala siya ng dalawang kalapati o dalawang ibon na batu-bato malapit sa may pintuan ng Toldang Tipanan. 
 
 
 ###### 30 
@@ -122,4 +138,8 @@ Ihahandog ng pari ang isa bilang handog sa paglilinis at ang isaʼy bilang hando
 ###### 31 
 
 
-Sinabihan ng Panginoon sina Moises at Aaron na bigyang babala ang mga taga-Israel tungkol sa mga bagay na nakapagpaparumi sa kanila, para hindi sila mamatay kapag lumapit sila sa Tolda ng Panginoon sa gitna ng kampo. 32-33Ito ang mga tuntunin tungkol sa lalaking nilalabasan ng kanyang binhi o may lumalabas sa ari niya dahil sa kanyang sakit, at tungkol sa babaeng dinudugo sa panahon ng buwanang dalaw o dinudugo bago ang kanyang buwanang dalaw, at tungkol sa lalaking sumisiping sa babaeng itinuturing na marumi.
+Sinabihan ng Panginoon sina Moises at Aaron na bigyang babala ang mga taga-Israel tungkol sa mga bagay na nakapagpaparumi sa kanila, para hindi sila mamatay kapag lumapit sila sa Tolda ng Panginoon sa gitna ng kampo.
+
+###### 32-33
+
+Ito ang mga tuntunin tungkol sa lalaking nilalabasan ng kanyang binhi o may lumalabas sa ari niya dahil sa kanyang sakit, at tungkol sa babaeng dinudugo sa panahon ng buwanang dalaw o dinudugo bago ang kanyang buwanang dalaw, at tungkol sa lalaking sumisiping sa babaeng itinuturing na marumi.

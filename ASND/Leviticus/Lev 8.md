@@ -110,7 +110,11 @@ Pagkatapos, ipinakuha ni Moises ang lalaking tupa bilang handog na sinusunog. Ip
 ###### 19 
 
 
-At pinatay ni Moises ang tupa at iwinisik ang dugo sa paligid ng altar. 20-21Kinatay niya ang tupa at hinugasan ang mga lamang-loob at paa, at saka sinunog lahat doon sa altar pati na ang ulo at taba bilang handog na sinusunog. Ang mabangong samyo ng handog na ito sa pamamagitan ng apoy ay makalulugod sa Panginoon. Ginawa ito ni Moises ayon sa utos sa kanya ng Panginoon. 
+At pinatay ni Moises ang tupa at iwinisik ang dugo sa paligid ng altar.
+
+###### 20-21
+
+Kinatay niya ang tupa at hinugasan ang mga lamang-loob at paa, at saka sinunog lahat doon sa altar pati na ang ulo at taba bilang handog na sinusunog. Ang mabangong samyo ng handog na ito sa pamamagitan ng apoy ay makalulugod sa Panginoon. Ginawa ito ni Moises ayon sa utos sa kanya ng Panginoon. 
 
 
 ###### 22 
@@ -134,7 +138,11 @@ Pinapunta rin ni Moises sa gitna ang mga lalaking anak ni Aaron at pinahiran din
 ###### 25 
 
 
-Kinuha rin niya ang mga taba, ang matabang buntot, ang lahat ng taba sa lamang-loob, ang maliit na bahagi ng atay, ang mga bato pati ang taba nito, at ang kanang hita. 26-27Pagkatapos, kumuha rin si Moises ng tinapay mula sa basket na inihandog sa Panginoon – isang makapal na tinapay na walang pampaalsa, isang tinapay na may halong langis at isang tinapay na manipis. Pinahawakan niya ang lahat ng ito kay Aaron at sa mga anak nito pati na ang lahat ng taba at ang kanang hita ng tupa. At itinaas nila ito sa Panginoon bilang handog na itinataas. 
+Kinuha rin niya ang mga taba, ang matabang buntot, ang lahat ng taba sa lamang-loob, ang maliit na bahagi ng atay, ang mga bato pati ang taba nito, at ang kanang hita.
+
+###### 26-27
+
+Pagkatapos, kumuha rin si Moises ng tinapay mula sa basket na inihandog sa Panginoon – isang makapal na tinapay na walang pampaalsa, isang tinapay na may halong langis at isang tinapay na manipis. Pinahawakan niya ang lahat ng ito kay Aaron at sa mga anak nito pati na ang lahat ng taba at ang kanang hita ng tupa. At itinaas nila ito sa Panginoon bilang handog na itinataas. 
 
 
 ###### 28 

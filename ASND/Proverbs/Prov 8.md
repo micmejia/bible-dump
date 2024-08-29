@@ -138,13 +138,21 @@ Bibigyan ko ng kayamanan ang nagmamahal sa akin; pupunuin ko ang lalagyan nila n
 ###### 22 
 
 
-Noong una pa, nilikha na ako ng Panginoon bago niya likhain ang lahat. 23-26Nilikha na niya ako noong una pa man. Naroon na ako nang wala pa ang mundo, ang mga dagat, mga bukal, mga bundok, mga burol, mga bukid at kahit pa ang mga alikabok. 
+Noong una pa, nilikha na ako ng Panginoon bago niya likhain ang lahat.
+
+###### 23-26
+
+Nilikha na niya ako noong una pa man. Naroon na ako nang wala pa ang mundo, ang mga dagat, mga bukal, mga bundok, mga burol, mga bukid at kahit pa ang mga alikabok. 
 
 
 ###### 27 
 
 
-Naroon na ako nang likhain niya ang langit, maging nang likhain niya ang tagpuan ng langit at ng lupa. 28-29Naroon din ako nang likhain niya ang mga ulap, nang palabasin niya ang tubig sa mga bukal mula sa kailaliman, nang ilagay niya ang hangganan ng mga dagat upang hindi ito umapaw, at nang ilagay niya ang mga pundasyon ng mundo. 
+Naroon na ako nang likhain niya ang langit, maging nang likhain niya ang tagpuan ng langit at ng lupa.
+
+###### 28-29
+
+Naroon din ako nang likhain niya ang mga ulap, nang palabasin niya ang tubig sa mga bukal mula sa kailaliman, nang ilagay niya ang hangganan ng mga dagat upang hindi ito umapaw, at nang ilagay niya ang mga pundasyon ng mundo. 
 
 
 ###### 30 

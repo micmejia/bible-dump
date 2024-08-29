@@ -68,7 +68,11 @@ Tumawid din ang mga taga-Ammon sa kanluran ng Ilog ng Jordan at nakipaglaban sa 
 ###### 10 
 
 
-Kaya humingi ng tulong ang mga Israelita sa Panginoon. Sinabi nila, "Nagkasala po kami laban sa inyo, dahil tumalikod kami sa inyo na aming Dios at sumamba sa mga imahen ni Baal." 11-12Sumagot ang Panginoon, "Nang pinahirapan kayo ng mga Egipcio, Amoreo, Ammonita, Filisteo, Sidoneo, Amalekita at mga Maon, humingi kayo ng tulong sa akin at iniligtas ko kayo. 
+Kaya humingi ng tulong ang mga Israelita sa Panginoon. Sinabi nila, "Nagkasala po kami laban sa inyo, dahil tumalikod kami sa inyo na aming Dios at sumamba sa mga imahen ni Baal."
+
+###### 11-12
+
+Sumagot ang Panginoon, "Nang pinahirapan kayo ng mga Egipcio, Amoreo, Ammonita, Filisteo, Sidoneo, Amalekita at mga Maon, humingi kayo ng tulong sa akin at iniligtas ko kayo. 
 
 
 ###### 13 

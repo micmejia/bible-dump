@@ -102,7 +102,11 @@ Ibang tao na kami sa paningin niya. Ipinagbili na kami at naubos na niya ang per
 ###### 16 
 
 
-Ang lahat ng yaman na binawi sa kanya ng Dios at ibinigay na sa iyo ay maituturing namin na mamanahin namin at ng aming mga anak. Kaya gawin mo ang sinabi sa iyo ng Dios." 17-18Naghanda agad si Jacob para bumalik sa Canaan, sa lupain ng ama niyang si Isaac. Pinasakay niya ang mga anak niya at mga asawa sa mga kamelyo. Dinala niya ang mga hayop niya at ang lahat ng ari-arian niya na naipon niya sa Padan Aram. 
+Ang lahat ng yaman na binawi sa kanya ng Dios at ibinigay na sa iyo ay maituturing namin na mamanahin namin at ng aming mga anak. Kaya gawin mo ang sinabi sa iyo ng Dios."
+
+###### 17-18
+
+Naghanda agad si Jacob para bumalik sa Canaan, sa lupain ng ama niyang si Isaac. Pinasakay niya ang mga anak niya at mga asawa sa mga kamelyo. Dinala niya ang mga hayop niya at ang lahat ng ari-arian niya na naipon niya sa Padan Aram. 
 
 
 ###### 19 

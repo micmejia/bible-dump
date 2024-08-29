@@ -115,4 +115,8 @@ Sapagkat sinasabi ng Panginoong Makapangyarihan na ang mga tansong haligi ng tem
 ###### 20 
 
 
-Ang mga nasabing kagamitan ay hindi dinala ni Haring Nebucadnezar sa Babilonia noong binihag niya si Haring Jehoyakin na anak ni Haring Jehoyakim ng Juda, kasama ng mga tagapamahala ng Juda at Jerusalem. 21-22Pero ngayon, ito ang sinabi ng Panginoong Makapangyarihan, ang Dios ng Israel, 'Dadalhin sa Babilonia ang mga kagamitang ito at mananatili roon hanggang sa dumating ang araw na kukunin ko ito at ibabalik sa Jerusalem.' "
+Ang mga nasabing kagamitan ay hindi dinala ni Haring Nebucadnezar sa Babilonia noong binihag niya si Haring Jehoyakin na anak ni Haring Jehoyakim ng Juda, kasama ng mga tagapamahala ng Juda at Jerusalem.
+
+###### 21-22
+
+Pero ngayon, ito ang sinabi ng Panginoong Makapangyarihan, ang Dios ng Israel, 'Dadalhin sa Babilonia ang mga kagamitang ito at mananatili roon hanggang sa dumating ang araw na kukunin ko ito at ibabalik sa Jerusalem.' "

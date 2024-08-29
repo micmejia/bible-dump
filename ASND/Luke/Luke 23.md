@@ -272,7 +272,11 @@ Pagkatapos ay sinabi niya, "Jesus, alalahanin nʼyo ako kapag naghahari na kayo.
 
 Sumagot si Jesus, "Sasabihin ko sa iyo ang totoo, ngayon din ay makakasama kita sa Paraiso." 
 
-## Ang Pagkamatay ni Jesus 44-45Nang mag-aalas dose na ng tanghali, nawala ang liwanag ng araw, at dumilim sa buong lupain sa loob ng tatlong oras. At ang kurtina sa loob ng templo ay nahati mula sa itaas hanggang sa ibaba. 
+## Ang Pagkamatay ni Jesus
+
+###### 44-45
+
+Nang mag-aalas dose na ng tanghali, nawala ang liwanag ng araw, at dumilim sa buong lupain sa loob ng tatlong oras. At ang kurtina sa loob ng templo ay nahati mula sa itaas hanggang sa ibaba. 
 
 
 ###### 46 
@@ -298,7 +302,11 @@ Ang mga taong pumunta roon at nakasaksi sa lahat ng nangyari ay umuwi nang malun
 
 Sa di-kalayuan ay nakatayo ang mga kaibigan ni Jesus, pati ang mga babaeng sumama sa kanya mula sa Galilea. At nakita rin nila ang lahat ng nangyari.
 
-## Ang Paglilibing kay Jesus 50-51May isang lalaki na ang pangalan ay Jose. Siya ay taga-Arimatea na sakop ng Judea. Kahit na miyembro siya ng korte ng mga Judio, hindi niya sinang-ayunan ang kanilang ginawa kay Jesus. Mabuting tao siya, matuwid at kabilang sa mga naghihintay sa paghahari ng Dios. 
+## Ang Paglilibing kay Jesus
+
+###### 50-51
+
+May isang lalaki na ang pangalan ay Jose. Siya ay taga-Arimatea na sakop ng Judea. Kahit na miyembro siya ng korte ng mga Judio, hindi niya sinang-ayunan ang kanilang ginawa kay Jesus. Mabuting tao siya, matuwid at kabilang sa mga naghihintay sa paghahari ng Dios. 
 
 
 ###### 52 

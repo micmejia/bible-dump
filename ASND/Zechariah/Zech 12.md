@@ -72,4 +72,8 @@ Sa araw na iyon, lilipulin ko ang lahat ng bansang sasalakay sa Jerusalem.
 ###### 11 
 
 
-Sa araw na iyon, ang iyakan sa Jerusalem ay magiging kasintindi ng iyakan para kay Hadad Rimon sa kapatagan ng Megido. 12-14Iiyak ang bawat pamilya sa lupain ng Israel: ang mga pamilya ng angkan nina David, Natan, Levi, Shimei, at ang iba pang mga pamilya. Magkahiwalay na mag-iiyakan ang mga lalaki at mga babae."
+Sa araw na iyon, ang iyakan sa Jerusalem ay magiging kasintindi ng iyakan para kay Hadad Rimon sa kapatagan ng Megido.
+
+###### 12-14
+
+Iiyak ang bawat pamilya sa lupain ng Israel: ang mga pamilya ng angkan nina David, Natan, Levi, Shimei, at ang iba pang mga pamilya. Magkahiwalay na mag-iiyakan ang mga lalaki at mga babae."

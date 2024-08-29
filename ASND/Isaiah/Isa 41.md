@@ -134,7 +134,11 @@ para makita, malaman, at maunawaan ng mga tao na ang lumikha nito ay ako, ang Pa
 ###### 21 
 
 
-Sinabi ng Panginoon, ang Hari ng Israel, sa mga dios-diosan, "Sige, magreklamo kayo at mangatuwiran! 22-23Lumapit kayo at sabihin sa amin kung ano ang mga mangyayari sa hinaharap. Sabihin ninyo sa amin ang mga sinabi nʼyo noon na mangyayari para malaman namin kung nangyari nga ito. Sabihin ninyo sa amin kung ano ang mangyayari sa hinaharap para malaman namin na kayo ngaʼy mga dios. Gumawa kayo ng mabuti o ng masama para kami ay magtaka at matakot sa inyo. 
+Sinabi ng Panginoon, ang Hari ng Israel, sa mga dios-diosan, "Sige, magreklamo kayo at mangatuwiran!
+
+###### 22-23
+
+Lumapit kayo at sabihin sa amin kung ano ang mga mangyayari sa hinaharap. Sabihin ninyo sa amin ang mga sinabi nʼyo noon na mangyayari para malaman namin kung nangyari nga ito. Sabihin ninyo sa amin kung ano ang mangyayari sa hinaharap para malaman namin na kayo ngaʼy mga dios. Gumawa kayo ng mabuti o ng masama para kami ay magtaka at matakot sa inyo. 
 
 
 ###### 24 

@@ -74,7 +74,11 @@ Pagkatapos, lumakad ang mga baka patungo sa Bet Shemesh na hindi man lang lumili
 ###### 13 
 
 
-Nang mga panahong iyon, nag-aani ang mga taga-Bet Shemesh ng trigo sa lambak. Nang makita nila ang Kahon ng Kasunduan, tuwang-tuwa sila. 14-15Dumating ang kariton sa bukid ni Josue na taga-Bet Shemesh, at tumigil sa tabi ng isang malaking bato. Kinuha ng mga Levita ang Kahon ng Panginoon at ang kahon na may lamang mga gintong estatwa, at ipinatong sa malaking bato. Pagkatapos, sinibak nila ang kariton at inialay ang mga baka sa Panginoon bilang handog na sinusunog, at nag-alay sila ng iba pang mga handog. 
+Nang mga panahong iyon, nag-aani ang mga taga-Bet Shemesh ng trigo sa lambak. Nang makita nila ang Kahon ng Kasunduan, tuwang-tuwa sila.
+
+###### 14-15
+
+Dumating ang kariton sa bukid ni Josue na taga-Bet Shemesh, at tumigil sa tabi ng isang malaking bato. Kinuha ng mga Levita ang Kahon ng Panginoon at ang kahon na may lamang mga gintong estatwa, at ipinatong sa malaking bato. Pagkatapos, sinibak nila ang kariton at inialay ang mga baka sa Panginoon bilang handog na sinusunog, at nag-alay sila ng iba pang mga handog. 
 
 
 ###### 16 

@@ -102,7 +102,11 @@ Kapag may nakita pa silang mga kalansay ng tao, lalagyan nila ito ng tanda para 
 ###### 16 
 
 
-(May bayang malapit doon na tatawaging Homonah o Maraming Tao). Sa ganitong paraan nila lilinisin ang lupain." 17-18Sinabi pa ng Panginoong Dios sa akin, "Anak ng tao, tipunin mo ang lahat ng uri ng ibon at mababangis na hayop doon sa bundok ng Israel, dahil maghahanda ako ng isang piging at marami akong ihahandog doon na makakain nila. Kakain sila ng laman at iinom ng dugo ng matatapang na mga sundalo at pinuno na parang kumakain lang sila ng tupa, baka at kambing na pinataba mula sa Bashan. 
+(May bayang malapit doon na tatawaging Homonah o Maraming Tao). Sa ganitong paraan nila lilinisin ang lupain."
+
+###### 17-18
+
+Sinabi pa ng Panginoong Dios sa akin, "Anak ng tao, tipunin mo ang lahat ng uri ng ibon at mababangis na hayop doon sa bundok ng Israel, dahil maghahanda ako ng isang piging at marami akong ihahandog doon na makakain nila. Kakain sila ng laman at iinom ng dugo ng matatapang na mga sundalo at pinuno na parang kumakain lang sila ng tupa, baka at kambing na pinataba mula sa Bashan. 
 
 
 ###### 19 

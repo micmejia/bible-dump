@@ -172,7 +172,11 @@ Ganito ang pagkagawa ng mga kariton: Ang mga dingding nito ay may mga kwadro
 ###### 29 
 
 
-at napapalamutian ng mga larawan ng leon, mga baka at mga kerubin. Ang ibabaw at ang ilalim ng mga kwadro ay may magkakatulad na palamuti na parang mga bulaklak. 30-31Ang bawat kariton ay may apat na tansong gulong at mga tansong ehe. Sa bawat sulok ng mga kariton ay may tukod na humahawak sa pabilog na patungan ng tansong planggana. Ang mga tukod ay napapalamutian ng parang mga bulaklak na kabit-kabit. Ang pabilog na patungan ay nakaangat ng isaʼt kalahating talampakan sa ibabaw ng kariton, at ang luwang ng bunganga ay dalawang talampakan at tatlong pulgada. Ang paligid ng ilalim ay may mga inukit na palamuti. Ang dingding ng kariton ay kwadrado, hindi pabilog. 
+at napapalamutian ng mga larawan ng leon, mga baka at mga kerubin. Ang ibabaw at ang ilalim ng mga kwadro ay may magkakatulad na palamuti na parang mga bulaklak.
+
+###### 30-31
+
+Ang bawat kariton ay may apat na tansong gulong at mga tansong ehe. Sa bawat sulok ng mga kariton ay may tukod na humahawak sa pabilog na patungan ng tansong planggana. Ang mga tukod ay napapalamutian ng parang mga bulaklak na kabit-kabit. Ang pabilog na patungan ay nakaangat ng isaʼt kalahating talampakan sa ibabaw ng kariton, at ang luwang ng bunganga ay dalawang talampakan at tatlong pulgada. Ang paligid ng ilalim ay may mga inukit na palamuti. Ang dingding ng kariton ay kwadrado, hindi pabilog. 
 
 
 ###### 32 

@@ -74,7 +74,11 @@ Pero huwag ninyong kainin ang walang palikpik at kaliskis. Ituring ninyo itong m
 ###### 11 
 
 
-Pwede ninyong kainin ang anumang klase ng ibon na itinuturing na malinis. 12-18Pero huwag ninyong kakainin ang mga ibon katulad ng agila, uwak, ibon na kumakain ng bangkay ng tao o hayop, lawin, kuwago, ibong naninila, ibong dumadagit ng isda, tagak, at paniki. 
+Pwede ninyong kainin ang anumang klase ng ibon na itinuturing na malinis.
+
+###### 12-18
+
+Pero huwag ninyong kakainin ang mga ibon katulad ng agila, uwak, ibon na kumakain ng bangkay ng tao o hayop, lawin, kuwago, ibong naninila, ibong dumadagit ng isda, tagak, at paniki. 
 
 
 ###### 19 

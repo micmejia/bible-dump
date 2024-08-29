@@ -162,7 +162,11 @@ Papatayin ko ang mga tagasunod niya upang malaman ng lahat ng iglesya na alam ko
 ###### 25 
 
 
-Ipagpatuloy na lang ninyo ang inyong katapatan sa akin hanggang sa pagdating ko. 26-27Sapagkat ang mga magtatagumpay at patuloy na sumusunod sa kalooban ko hanggang sa wakas ay bibigyan ko ng kapangyarihang mamahala sa mga bansa, tulad ng kapangyarihang ibinigay sa akin ng aking Ama. Mamamahala sila sa pamamagitan ng kamay na bakal at dudurugin nila ang mga bansa gaya ng pagdurog sa palayok. 
+Ipagpatuloy na lang ninyo ang inyong katapatan sa akin hanggang sa pagdating ko.
+
+###### 26-27
+
+Sapagkat ang mga magtatagumpay at patuloy na sumusunod sa kalooban ko hanggang sa wakas ay bibigyan ko ng kapangyarihang mamahala sa mga bansa, tulad ng kapangyarihang ibinigay sa akin ng aking Ama. Mamamahala sila sa pamamagitan ng kamay na bakal at dudurugin nila ang mga bansa gaya ng pagdurog sa palayok. 
 
 
 ###### 28 

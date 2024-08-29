@@ -132,7 +132,11 @@ na nangamatay sa digmaan.' Mamamatay ang mga taga-Egipto dahil nakahanda na ang 
 ###### 21 
 
 
-Buong galak silang tatanggapin ng mga makapangyarihang pinuno ng Egipto at mga kakampi niyang bansa roon sa lugar ng mga patay. Sasabihin nila, 'Bumaba rin sila rito! Kasama na nila ngayon ang mga hindi naniniwala sa Dios na namatay sa digmaan.' 22-23"Naroon din ang hari ng Asiria na napapaligiran ng libingan ng mga sundalo niyang namatay sa digmaan. Ang mga libingan nila ay naroon sa pinakamalalim na bahagi ng kailaliman. Ang mga taong itoʼy naghasik ng takot sa mga tao noong nabubuhay pa sila. 
+Buong galak silang tatanggapin ng mga makapangyarihang pinuno ng Egipto at mga kakampi niyang bansa roon sa lugar ng mga patay. Sasabihin nila, 'Bumaba rin sila rito! Kasama na nila ngayon ang mga hindi naniniwala sa Dios na namatay sa digmaan.'
+
+###### 22-23
+
+"Naroon din ang hari ng Asiria na napapaligiran ng libingan ng mga sundalo niyang namatay sa digmaan. Ang mga libingan nila ay naroon sa pinakamalalim na bahagi ng kailaliman. Ang mga taong itoʼy naghasik ng takot sa mga tao noong nabubuhay pa sila. 
 
 
 ###### 24 

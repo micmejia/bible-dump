@@ -54,7 +54,11 @@ Kapag tinanong ka nila kung bakit ka umiiyak, sabihin mong dahil sa balitang lub
 ###### 8 
 
 
-Sinabi pa ng Panginoon sa akin, 9-10"Anak ng tao, sabihin mo ang ipinapasabi ko sa mga tao. Sabihin mong ako, ang Panginoon, ang nagsasabi nito: Hinasa ko na ang espada ko para patayin kayo. Pinakintab ko ito nang husto para kuminang na parang kidlat. Ngayon, matutuwa pa ba kayo? Kukutyain nʼyo pa ba ang mga turo at pagdidisiplina ko sa inyo? 
+Sinabi pa ng Panginoon sa akin,
+
+###### 9-10
+
+"Anak ng tao, sabihin mo ang ipinapasabi ko sa mga tao. Sabihin mong ako, ang Panginoon, ang nagsasabi nito: Hinasa ko na ang espada ko para patayin kayo. Pinakintab ko ito nang husto para kuminang na parang kidlat. Ngayon, matutuwa pa ba kayo? Kukutyain nʼyo pa ba ang mga turo at pagdidisiplina ko sa inyo? 
 
 
 ###### 11 

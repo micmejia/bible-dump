@@ -102,7 +102,11 @@ Kung ang bayang iniwan nila ang iniisip nila, may pagkakataon pa silang makabali
 ###### 16 
 
 
-Ngunit hinahangad nila ang mas mabuting lugar, at itoʼy walang iba kundi ang lungsod na nasa langit. Kaya hindi ikinakahiya ng Dios na siyaʼy tawagin nilang Dios, dahil ipinaghanda niya sila ng isang lungsod. 17-18Dahil sa pananampalataya, handang ihandog ni Abraham ang kaisa-isa niyang anak na si Isaac nang subukin siya ng Dios. Kahit na alam niyang si Isaac ang ipinangako ng Dios na pagmumulan ng kanyang lahi, handa pa rin niya itong ialay. 
+Ngunit hinahangad nila ang mas mabuting lugar, at itoʼy walang iba kundi ang lungsod na nasa langit. Kaya hindi ikinakahiya ng Dios na siyaʼy tawagin nilang Dios, dahil ipinaghanda niya sila ng isang lungsod.
+
+###### 17-18
+
+Dahil sa pananampalataya, handang ihandog ni Abraham ang kaisa-isa niyang anak na si Isaac nang subukin siya ng Dios. Kahit na alam niyang si Isaac ang ipinangako ng Dios na pagmumulan ng kanyang lahi, handa pa rin niya itong ialay. 
 
 
 ###### 19 

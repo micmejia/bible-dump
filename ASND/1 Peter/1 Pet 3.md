@@ -116,7 +116,11 @@ Mas mabuti pang magtiis kayo ng hirap dahil sa paggawa ng mabuti, kung ito talag
 ###### 18 
 
 
-Sapagkat si Cristo ngaʼy pinatay kahit wala siyang nagawang masama. At minsan lang siya namatay para mapatawad ang mga kasalanan natin. Siya na walang kasalanan ay pinatay alang-alang sa atin na mga makasalanan, para madala niya tayo sa Dios. Pinatay siya sa laman pero binuhay siya sa espiritu. 19-20At sa kalagayan niyang espiritwal, nangaral siya kahit sa mga espiritu ng mga taong nakabilanggo, na hindi sumunod sa Dios noong panahon ni Noe. Sa panahong iyon, matiyagang hinintay ng Dios ang pagsampalataya nila sa kanya habang ginagawa ang barko. Ngunit walong tao lang ang sumampalataya at pumasok sa barko at nakaligtas sa tubig. 
+Sapagkat si Cristo ngaʼy pinatay kahit wala siyang nagawang masama. At minsan lang siya namatay para mapatawad ang mga kasalanan natin. Siya na walang kasalanan ay pinatay alang-alang sa atin na mga makasalanan, para madala niya tayo sa Dios. Pinatay siya sa laman pero binuhay siya sa espiritu.
+
+###### 19-20
+
+At sa kalagayan niyang espiritwal, nangaral siya kahit sa mga espiritu ng mga taong nakabilanggo, na hindi sumunod sa Dios noong panahon ni Noe. Sa panahong iyon, matiyagang hinintay ng Dios ang pagsampalataya nila sa kanya habang ginagawa ang barko. Ngunit walong tao lang ang sumampalataya at pumasok sa barko at nakaligtas sa tubig. 
 
 
 ###### 21 

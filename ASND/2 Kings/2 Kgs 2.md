@@ -72,7 +72,11 @@ Sinabi ni Elias, "Mahirap ang hinihiling mo. Pero, matatanggap mo ito kung makik
 ###### 11 
 
 
-Habang naglalakad sila na nagkukwentuhan, biglang may dumating na karwaheng apoy na hinihila ng mga kabayong apoy. Dumaan ito sa gitna nila na nagpahiwalay sa kanila, at biglang dinala si Elias papuntang langit sa pamamagitan ng isang ipu-ipo. 12-13Nakita ito ni Eliseo at sumigaw siya, "Ama ko! Ama ko! Ang mga karwahe at mangangabayo ng Israel!" At hindi na niya nakita si Elias. Pagkatapos, pinunit niya ang kanyang damit bilang pagpapakita ng kalungkutan niya. Dinampot niya ang balabal ni Elias na nahulog, at bumalik siya sa tabi ng Ilog ng Jordan at tumayo roon. 
+Habang naglalakad sila na nagkukwentuhan, biglang may dumating na karwaheng apoy na hinihila ng mga kabayong apoy. Dumaan ito sa gitna nila na nagpahiwalay sa kanila, at biglang dinala si Elias papuntang langit sa pamamagitan ng isang ipu-ipo.
+
+###### 12-13
+
+Nakita ito ni Eliseo at sumigaw siya, "Ama ko! Ama ko! Ang mga karwahe at mangangabayo ng Israel!" At hindi na niya nakita si Elias. Pagkatapos, pinunit niya ang kanyang damit bilang pagpapakita ng kalungkutan niya. Dinampot niya ang balabal ni Elias na nahulog, at bumalik siya sa tabi ng Ilog ng Jordan at tumayo roon. 
 
 
 ###### 14 

@@ -120,7 +120,11 @@ Sinabi rin sa akin ng Panginoon,
 ###### 19 
 
 
-Kaya ako, ang Panginoong Dios, ay nagsasabi: Sapagkat wala kayong kabuluhan, titipunin ko kayo sa Jerusalem, 20-21katulad ng taong nagtitipon ng pilak, tanso, bakal, tingga at lata sa nagniningas na hurno para tunawin. Titipunin ko kayo sa Jerusalem para ibuhos sa inyo ang galit ko at doon ko kayo parurusahan na parang mga metal na tinutunaw. 
+Kaya ako, ang Panginoong Dios, ay nagsasabi: Sapagkat wala kayong kabuluhan, titipunin ko kayo sa Jerusalem,
+
+###### 20-21
+
+katulad ng taong nagtitipon ng pilak, tanso, bakal, tingga at lata sa nagniningas na hurno para tunawin. Titipunin ko kayo sa Jerusalem para ibuhos sa inyo ang galit ko at doon ko kayo parurusahan na parang mga metal na tinutunaw. 
 
 
 ###### 22 

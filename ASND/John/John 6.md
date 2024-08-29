@@ -136,7 +136,11 @@ Pero sinabi sa kanila ni Jesus, "Ako ito! Huwag kayong matakot."
 
 Kaya pinasakay nila si Jesus sa bangka, at nakarating agad sila sa kanilang pupuntahan.
 
-## Hinanap ng mga Tao si Jesus 22-23Kinabukasan, naroon pa ang mga tao sa kabila ng lawa, kung saan sila kumain ng tinapay matapos magpasalamat ng Panginoon. Alam nilang iisa lang ang bangka roon nang gabing iyon, at iyon ang sinakyan ng mga tagasunod ni Jesus. Alam din nilang hindi kasamang umalis si Jesus ng mga tagasunod niya. Samantala, may dumating na mga bangka galing sa Tiberias at dumaong malapit sa kinaroroonan ng mga tao. 
+## Hinanap ng mga Tao si Jesus
+
+###### 22-23
+
+Kinabukasan, naroon pa ang mga tao sa kabila ng lawa, kung saan sila kumain ng tinapay matapos magpasalamat ng Panginoon. Alam nilang iisa lang ang bangka roon nang gabing iyon, at iyon ang sinakyan ng mga tagasunod ni Jesus. Alam din nilang hindi kasamang umalis si Jesus ng mga tagasunod niya. Samantala, may dumating na mga bangka galing sa Tiberias at dumaong malapit sa kinaroroonan ng mga tao. 
 
 
 ###### 24 

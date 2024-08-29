@@ -51,7 +51,11 @@ Maglilingkod na sila sa akin, ang Panginoon nilang Dios, at hihirang ako ng hari
 ###### 11 
 
 
-Kasama ninyo ako at ililigtas ko kayo. Lubusan kong wawasakin ang mga bansang pinangalatan ko sa inyo pero hindi ko ito gagawin sa inyo. Ngunit hindi rin ito nangangahulugang hindi ko kayo parurusahan. Didisiplinahin ko kayo nang nararapat." 12-13Sinabi pa ng Panginoon sa kanyang mga mamamayan, "Talagang malubha na ang inyong mga sugat at hindi na ito gagaling. Wala nang makakatulong o makakagamot sa inyo. Wala na ring gamot para sa inyo. 
+Kasama ninyo ako at ililigtas ko kayo. Lubusan kong wawasakin ang mga bansang pinangalatan ko sa inyo pero hindi ko ito gagawin sa inyo. Ngunit hindi rin ito nangangahulugang hindi ko kayo parurusahan. Didisiplinahin ko kayo nang nararapat."
+
+###### 12-13
+
+Sinabi pa ng Panginoon sa kanyang mga mamamayan, "Talagang malubha na ang inyong mga sugat at hindi na ito gagaling. Wala nang makakatulong o makakagamot sa inyo. Wala na ring gamot para sa inyo. 
 
 
 ###### 14 

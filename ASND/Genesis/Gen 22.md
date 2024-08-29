@@ -96,7 +96,11 @@ Tinawag ni Abraham ang lugar na iyon na "Naglalaan ang Panginoon." Ito ang pinag
 ###### 15 
 
 
-Muling tinawag ng anghel ng Panginoon si Abraham mula sa langit. 16-17Sinabi niya, "Ito ang sinasabi ng Panginoon: Sumusumpa ako sa sarili ko na pagpapalain kita nang lubos dahil hindi mo ipinagkait sa akin ang kaisa-isa mong anak. Bibigyan kita ng mga lahi na kasindami ng mga bituin sa langit at ng buhangin sa dalampasigan. Sasakupin nila ang mga lungsod ng kanilang mga kaaway. 
+Muling tinawag ng anghel ng Panginoon si Abraham mula sa langit.
+
+###### 16-17
+
+Sinabi niya, "Ito ang sinasabi ng Panginoon: Sumusumpa ako sa sarili ko na pagpapalain kita nang lubos dahil hindi mo ipinagkait sa akin ang kaisa-isa mong anak. Bibigyan kita ng mga lahi na kasindami ng mga bituin sa langit at ng buhangin sa dalampasigan. Sasakupin nila ang mga lungsod ng kanilang mga kaaway. 
 
 
 ###### 18 

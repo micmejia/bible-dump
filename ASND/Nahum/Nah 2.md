@@ -66,7 +66,11 @@ Kayong mga sumasalakay sa Nineve, kunin ninyo ang mga pilak at ginto ng lungsod 
 ###### 10 
 
 
-Malilipol, mawawasak at magiging mapanglaw na ang Nineve! Kaya natatakot ang mga mamamayan nito, nanghihina ang buong katawan nila, nanginginig ang kanilang mga tuhod, at namumutla silang lahat. 11-12Ang Nineve ay parang yungib na tinitirhan ng mag-asawang leon at ng mga anak nito. Walang pwedeng manakit sa kanila sa yungib. Pinapatay at nilalapa ng lalaking leon ang kanyang biktima at ibinibigay sa kanyang asawa at mga anak. Pinupuno niya ang kanyang yungib ng karne ng kanyang mga biktima. Pero ngayon, ang Nineve ay wawasakin na. 
+Malilipol, mawawasak at magiging mapanglaw na ang Nineve! Kaya natatakot ang mga mamamayan nito, nanghihina ang buong katawan nila, nanginginig ang kanilang mga tuhod, at namumutla silang lahat.
+
+###### 11-12
+
+Ang Nineve ay parang yungib na tinitirhan ng mag-asawang leon at ng mga anak nito. Walang pwedeng manakit sa kanila sa yungib. Pinapatay at nilalapa ng lalaking leon ang kanyang biktima at ibinibigay sa kanyang asawa at mga anak. Pinupuno niya ang kanyang yungib ng karne ng kanyang mga biktima. Pero ngayon, ang Nineve ay wawasakin na. 
 
 
 ###### 13 

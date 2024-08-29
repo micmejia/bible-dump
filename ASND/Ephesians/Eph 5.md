@@ -176,7 +176,11 @@ Ginawa niya ito para maiharap niya sa kanyang sarili ang iglesya na maluwalhati,
 ###### 28 
 
 
-Kaya dapat mahalin ng lalaki ang asawa niya tulad ng pagmamahal niya sa kanyang sarili. Sapagkat ang nagmamahal sa kanyang asawa ay nagmamahal sa kanyang sarili. 29-30Walang taong nasusuklam sa sariling katawan, sa halip, pinapakain niya ito at inaalagaan. Ganito rin ang ginagawa ni Cristo sa atin dahil bahagi tayo ng kanyang katawan na tinatawag na iglesya. 
+Kaya dapat mahalin ng lalaki ang asawa niya tulad ng pagmamahal niya sa kanyang sarili. Sapagkat ang nagmamahal sa kanyang asawa ay nagmamahal sa kanyang sarili.
+
+###### 29-30
+
+Walang taong nasusuklam sa sariling katawan, sa halip, pinapakain niya ito at inaalagaan. Ganito rin ang ginagawa ni Cristo sa atin dahil bahagi tayo ng kanyang katawan na tinatawag na iglesya. 
 
 
 ###### 31 

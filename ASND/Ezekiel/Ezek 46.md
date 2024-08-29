@@ -126,7 +126,11 @@ Pagkatapos, dinala ako ng tao sa banal na mga silid ng mga pari sa gawing timog.
 ###### 20 
 
 
-Sinabi niya sa akin, "Dito sa lugar na ito nagluluto ang mga pari ng handog na pambayad ng kasalanan, handog sa paglilinis, at handog ng pagpaparangal sa Panginoon. Dito sila magluluto para maiwasan nila ang pagdadala ng mga handog sa labas ng bulwagan. Sa ganitong paraan hindi maapektuhan ang mga tao sa kabanalan nito." 21-22Pagkatapos, dinala niya ako sa bulwagan sa labas, at ipinakita sa akin ang apat na sulok nito. Sa bawat sulok nito ay may maliliit na bakuran na 68 talampakan ang haba at 50 talampakan ang luwang, at pare-pareho ang laki nito. 
+Sinabi niya sa akin, "Dito sa lugar na ito nagluluto ang mga pari ng handog na pambayad ng kasalanan, handog sa paglilinis, at handog ng pagpaparangal sa Panginoon. Dito sila magluluto para maiwasan nila ang pagdadala ng mga handog sa labas ng bulwagan. Sa ganitong paraan hindi maapektuhan ang mga tao sa kabanalan nito."
+
+###### 21-22
+
+Pagkatapos, dinala niya ako sa bulwagan sa labas, at ipinakita sa akin ang apat na sulok nito. Sa bawat sulok nito ay may maliliit na bakuran na 68 talampakan ang haba at 50 talampakan ang luwang, at pare-pareho ang laki nito. 
 
 
 ###### 23 

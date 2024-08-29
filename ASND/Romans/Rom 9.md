@@ -66,7 +66,11 @@ Sapagkat ganito ang ipinangako ng Dios sa kanya, "Babalik ako rito sa ganito rin
 ###### 10 
 
 
-Hindi lang iyon, kundi nangyari rin ang ganoon sa dalawang anak ni Rebeka sa ating ninunong si Isaac, ipinakita rin ng Dios na hindi lahat ng nagmula kay Abraham ay itinuturing na mga anak niya. 11-12Bago pa man ipanganak ang kambal, sinabi na ng Dios kay Rebeka, "Maglilingkod ang nakatatanda sa nakababatang kapatid." Sinabi ito ng Dios noong wala pa silang nagagawang mabuti o masama, para patunayan na ang pagpili niya ay batay sa sarili niyang pasya at hindi sa mabubuting gawa ng tao. 
+Hindi lang iyon, kundi nangyari rin ang ganoon sa dalawang anak ni Rebeka sa ating ninunong si Isaac, ipinakita rin ng Dios na hindi lahat ng nagmula kay Abraham ay itinuturing na mga anak niya.
+
+###### 11-12
+
+Bago pa man ipanganak ang kambal, sinabi na ng Dios kay Rebeka, "Maglilingkod ang nakatatanda sa nakababatang kapatid." Sinabi ito ng Dios noong wala pa silang nagagawang mabuti o masama, para patunayan na ang pagpili niya ay batay sa sarili niyang pasya at hindi sa mabubuting gawa ng tao. 
 
 
 ###### 13 

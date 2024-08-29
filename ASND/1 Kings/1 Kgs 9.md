@@ -122,7 +122,11 @@ ang Baalat, ang Tamar na nasa disyerto na sakop ng kanyang lupain,
 ###### 19 
 
 
-at ang lahat ng lungsod na imbakan ng kanyang mga pangangailangan, at mga karwahe at mga kabayo. Ipinatayo niya ang lahat ng ninanais niyang ipatayo sa Jerusalem, sa Lebanon at sa lahat ng lupaing sakop niya. 20-21May mga tao pa na naiwan sa Israel na hindi mga Israelita. Sila ay mga lahi ng mga Amoreo, Heteo, Perezeo, Hiveo at mga Jebuseo, na hindi nalipol ng lubusan ng mga Israelita nang sakupin nila ang lupain ng Canaan. Ginawa silang alipin ni Solomon at pinilit na magtrabaho, at nananatili silang alipin hanggang ngayon. 
+at ang lahat ng lungsod na imbakan ng kanyang mga pangangailangan, at mga karwahe at mga kabayo. Ipinatayo niya ang lahat ng ninanais niyang ipatayo sa Jerusalem, sa Lebanon at sa lahat ng lupaing sakop niya.
+
+###### 20-21
+
+May mga tao pa na naiwan sa Israel na hindi mga Israelita. Sila ay mga lahi ng mga Amoreo, Heteo, Perezeo, Hiveo at mga Jebuseo, na hindi nalipol ng lubusan ng mga Israelita nang sakupin nila ang lupain ng Canaan. Ginawa silang alipin ni Solomon at pinilit na magtrabaho, at nananatili silang alipin hanggang ngayon. 
 
 
 ###### 22 

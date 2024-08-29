@@ -132,7 +132,11 @@ Sumagot ang Panginoon, "Patatawarin ko sila ayon sa iyong hiniling.
 ###### 21 
 
 
-Ngunit sumusumpa ako, ang Panginoong nabubuhay, habang ang buong mundo ay napupuno ng aking dakilang presensya, 22-23walang sinuman sa kanila ang makakapasok sa lupaing ipinangako ko sa kanilang mga ninuno. Dahil kahit nakita nila ang aking makapangyarihang presensya at ang mga himala na ginawa ko sa Egipto at sa disyerto, palagi pa rin nila akong sinusubok at hindi sila sumusunod sa akin. Kaya hindi makakapasok sa lupaing iyon ang mga nagtatakwil sa akin. 
+Ngunit sumusumpa ako, ang Panginoong nabubuhay, habang ang buong mundo ay napupuno ng aking dakilang presensya,
+
+###### 22-23
+
+walang sinuman sa kanila ang makakapasok sa lupaing ipinangako ko sa kanilang mga ninuno. Dahil kahit nakita nila ang aking makapangyarihang presensya at ang mga himala na ginawa ko sa Egipto at sa disyerto, palagi pa rin nila akong sinusubok at hindi sila sumusunod sa akin. Kaya hindi makakapasok sa lupaing iyon ang mga nagtatakwil sa akin. 
 
 
 ###### 24 
@@ -204,7 +208,11 @@ Dahil ang mga espiya sa lupain ay tumira roon ng 40 araw, magdurusa rin kayo ng 
 ###### 35 
 
 
-Ako, ang Panginoon, ang nagsasabi nito at siguradong gagawin ko ang mga bagay na ito sa masasamang mamamayang ito na nagkaisang kumalaban sa akin. Mamamatay silang lahat sa disyerto." 36-37Ang mga taong inutusan ni Moises para sa pag-espiya, na nagbalita ng masama tungkol sa lupain na siyang naging dahilan ng pagrereklamo ng mga Israelita ay namatay sa karamdaman sa presensya ng Panginoon. 
+Ako, ang Panginoon, ang nagsasabi nito at siguradong gagawin ko ang mga bagay na ito sa masasamang mamamayang ito na nagkaisang kumalaban sa akin. Mamamatay silang lahat sa disyerto."
+
+###### 36-37
+
+Ang mga taong inutusan ni Moises para sa pag-espiya, na nagbalita ng masama tungkol sa lupain na siyang naging dahilan ng pagrereklamo ng mga Israelita ay namatay sa karamdaman sa presensya ng Panginoon. 
 
 
 ###### 38 

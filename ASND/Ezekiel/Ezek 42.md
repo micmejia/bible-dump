@@ -102,7 +102,11 @@ Matapos sukatin ng tao ang loob ng templo, dinala niya ako sa labas. Doon kami d
 ###### 16 
 
 
-Sinukat niya ng kanyang panukat na kahoy ang gawing silangan, at ang sukat ng haba nito ay 850 talampakan. 17-19Sinukat din niya ang sa gawing hilaga, kanluran at timog at pawang magkakatulad na 850 talampakan ang haba nito. 
+Sinukat niya ng kanyang panukat na kahoy ang gawing silangan, at ang sukat ng haba nito ay 850 talampakan.
+
+###### 17-19
+
+Sinukat din niya ang sa gawing hilaga, kanluran at timog at pawang magkakatulad na 850 talampakan ang haba nito. 
 
 
 ###### 20 

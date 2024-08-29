@@ -270,7 +270,11 @@ Mga bansa, purihin nʼyo ang mga mamamayan ng Panginoon. Sapagkat gaganti ang Pa
 ###### 44 
 
 
-Ito nga ang inawit ni Moises kasama si Josue sa harapan ng mga Israelita. 45-46Pagkatapos niyang sabihin ito, sinabi ni Moises sa mga tao, "Itanim ninyo sa inyong mga puso ang lahat ng sinasabi ko sa inyo sa araw na ito. Ituro rin ninyo ito sa inyong mga anak para matupad nilang mabuti ang lahat ng sinasabi sa mga utos na ito. 
+Ito nga ang inawit ni Moises kasama si Josue sa harapan ng mga Israelita.
+
+###### 45-46
+
+Pagkatapos niyang sabihin ito, sinabi ni Moises sa mga tao, "Itanim ninyo sa inyong mga puso ang lahat ng sinasabi ko sa inyo sa araw na ito. Ituro rin ninyo ito sa inyong mga anak para matupad nilang mabuti ang lahat ng sinasabi sa mga utos na ito. 
 
 
 ###### 47 

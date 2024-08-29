@@ -208,7 +208,11 @@ Naagaw ang mga tawiran sa mga ilog. Sinunog ang mga kampo at natatakot ang mga s
 ###### 33 
 
 
-Sinabi ng Panginoong Makapangyarihan, ang Dios ng Israel, "Ang Babilonia ay tulad ng trigo na malapit nang anihin at giikin." 34-35Sinabi ng mga taga-Jerusalem, "Si Haring Nebucadnezar ng Babilonia ay parang dragon na lumulon sa amin. Binusog niya ang tiyan niya ng mga kayamanan namin. Iniwan niya ang lungsod namin na walang itinira, parang banga na walang laman. Itinaboy niya kami at hindi namin alam kung ano ang gagawin namin. Gawin din sana sa Babilonia ang ginawa niya sa amin at sa mga anak namin. Pagbayaran sana ng mga mamamayan ng Babilonia ang mga pagpatay nila." 
+Sinabi ng Panginoong Makapangyarihan, ang Dios ng Israel, "Ang Babilonia ay tulad ng trigo na malapit nang anihin at giikin."
+
+###### 34-35
+
+Sinabi ng mga taga-Jerusalem, "Si Haring Nebucadnezar ng Babilonia ay parang dragon na lumulon sa amin. Binusog niya ang tiyan niya ng mga kayamanan namin. Iniwan niya ang lungsod namin na walang itinira, parang banga na walang laman. Itinaboy niya kami at hindi namin alam kung ano ang gagawin namin. Gawin din sana sa Babilonia ang ginawa niya sa amin at sa mga anak namin. Pagbayaran sana ng mga mamamayan ng Babilonia ang mga pagpatay nila." 
 
 
 ###### 36 

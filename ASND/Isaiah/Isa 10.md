@@ -111,7 +111,15 @@ Kung paanong sinisira ng sakit ang katawan ng tao, sisirain din ng Panginoon ang
 ###### 19 
 
 
-Iilan lang ang matitirang puno sa kanyang kagubatan. Mabibilang ito kahit ng batang paslit. 20-21Darating ang araw na ang mga natitirang Israelitang lahi ni Jacob ay hindi na magtitiwala sa Asiria na nagpahirap sa kanila. Magtitiwala na sila sa Panginoon, ang Banal na Dios ng Israel. Magbabalik-loob sila sa Makapangyarihang Dios. 22-23Kahit na kasindami ng buhangin sa tabing-dagat ang mga Israelita, iilan lang ang makakabalik. Nakatakda na ang parusang nararapat para sa buong Israel. At tiyak na gagawin ito ng Panginoong Dios na Makapangyarihan. 
+Iilan lang ang matitirang puno sa kanyang kagubatan. Mabibilang ito kahit ng batang paslit.
+
+###### 20-21
+
+Darating ang araw na ang mga natitirang Israelitang lahi ni Jacob ay hindi na magtitiwala sa Asiria na nagpahirap sa kanila. Magtitiwala na sila sa Panginoon, ang Banal na Dios ng Israel. Magbabalik-loob sila sa Makapangyarihang Dios.
+
+###### 22-23
+
+Kahit na kasindami ng buhangin sa tabing-dagat ang mga Israelita, iilan lang ang makakabalik. Nakatakda na ang parusang nararapat para sa buong Israel. At tiyak na gagawin ito ng Panginoong Dios na Makapangyarihan. 
 
 
 ###### 24 

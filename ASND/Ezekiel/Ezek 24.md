@@ -122,7 +122,11 @@ Kinaumagahan, sinabi ko ito sa mga tao, at kinagabihan din ay namatay ang asawa 
 ###### 19 
 
 
-Tinanong ako ng mga tao, "Ano ang gusto mong sabihin sa ginagawa mong iyan?" 20-21Sinabi ko sa kanila, "Sinabi sa akin ng Panginoong Dios na sabihin ko ito sa mga mamamayan ng Israel: Nakahanda na akong dungisan ang aking templo na siyang sagisag ng ipinagmamalaki ninyong kapangyarihan, ang inyong kaligayahan at pinakamamahal. Mamamatay sa digmaan ang mga anak ninyong naiwan sa Jerusalem. 
+Tinanong ako ng mga tao, "Ano ang gusto mong sabihin sa ginagawa mong iyan?"
+
+###### 20-21
+
+Sinabi ko sa kanila, "Sinabi sa akin ng Panginoong Dios na sabihin ko ito sa mga mamamayan ng Israel: Nakahanda na akong dungisan ang aking templo na siyang sagisag ng ipinagmamalaki ninyong kapangyarihan, ang inyong kaligayahan at pinakamamahal. Mamamatay sa digmaan ang mga anak ninyong naiwan sa Jerusalem. 
 
 
 ###### 22 

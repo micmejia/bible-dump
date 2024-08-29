@@ -314,7 +314,11 @@ Ibinagsak niya ang mga makapangyarihang hari mula sa kanilang mga trono, at itin
 ###### 53 
 
 
-Binusog niya ng mabubuting bagay ang mga nagugutom, ngunit pinaalis niya na walang dala ang mayayaman. 54-55Tinulungan niya ang Israel na kanyang lingkod. Sapagkat hindi niya kinalimutan ang kanyang ipinangako sa ating mga ninuno, kay Abraham at sa kanyang lahi, na kaaawaan niya sila magpakailanman." 
+Binusog niya ng mabubuting bagay ang mga nagugutom, ngunit pinaalis niya na walang dala ang mayayaman.
+
+###### 54-55
+
+Tinulungan niya ang Israel na kanyang lingkod. Sapagkat hindi niya kinalimutan ang kanyang ipinangako sa ating mga ninuno, kay Abraham at sa kanyang lahi, na kaaawaan niya sila magpakailanman." 
 
 
 ###### 56 

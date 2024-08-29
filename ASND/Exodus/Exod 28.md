@@ -204,7 +204,11 @@ Ilagay sa bulsa na nasa dibdib ang 'Urim' at 'Thummim' para naroon ito sa bulsa 
 ###### 32 
 
 
-at may butas sa gitna para sa ulo. At kailangang lagyan ng butas ang parang kwelyo para hindi ito mapunit. 33-34Palagyan ang palibot ng mga laylayan nito ng mga palamuti na korteng prutas na pomegranata, na gawa sa lanang kulay asul, ube at pula. Isingit mo ang mga palamuting ito sa mga pagitan ng gintong mga kampanilya. 
+at may butas sa gitna para sa ulo. At kailangang lagyan ng butas ang parang kwelyo para hindi ito mapunit.
+
+###### 33-34
+
+Palagyan ang palibot ng mga laylayan nito ng mga palamuti na korteng prutas na pomegranata, na gawa sa lanang kulay asul, ube at pula. Isingit mo ang mga palamuting ito sa mga pagitan ng gintong mga kampanilya. 
 
 
 ###### 35 

@@ -80,7 +80,15 @@ Noong mismong araw na nagsimulang umulan, pumasok sa barko si Noe, ang asawa niy
 ###### 14 
 
 
-Kasama rin nila ang lahat ng uri ng hayop: mga lumalakad, gumagapang at lumilipad. 15-16Ayon sa iniutos ng Dios kay Noe, pinapasok niya sa barko ang bawat pares ng lahat ng uri ng hayop na lumalapit sa kanya. Pagkatapos, isinara ng Panginoon ang barko. 17-18Walang tigil ang ulan sa mundo sa loob ng 40 araw. Tumaas ang tubig hanggang sa lumutang ang barko. 
+Kasama rin nila ang lahat ng uri ng hayop: mga lumalakad, gumagapang at lumilipad. 
+
+###### 15-16 
+
+Ayon sa iniutos ng Dios kay Noe, pinapasok niya sa barko ang bawat pares ng lahat ng uri ng hayop na lumalapit sa kanya. Pagkatapos, isinara ng Panginoon ang barko. 
+
+###### 17-18 
+
+Walang tigil ang ulan sa mundo sa loob ng 40 araw. Tumaas ang tubig hanggang sa lumutang ang barko. 
 
 
 ###### 19 

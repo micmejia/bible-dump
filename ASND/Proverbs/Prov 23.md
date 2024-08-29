@@ -78,7 +78,15 @@ Sapagkat ang kanilang makapangyarihang tagapagtanggol ay ang Panginoon. Siya ang
 ###### 12 
 
 
-Makinig ka kapag itinutuwid ang iyong pag-uugali upang ikaw ay matuto. 13-14Huwag kang magpapabaya sa pagdidisiplina sa iyong anak. Ang tamang pagpalo ay hindi niya ikamamatay kundi makapagliligtas pa sa kanya sa kamatayan. 15-16Anak, matutuwa ako kung magiging matalino ka at karunungan ang mamumutawi sa iyong mga labi. 
+Makinig ka kapag itinutuwid ang iyong pag-uugali upang ikaw ay matuto.
+
+###### 13-14
+
+Huwag kang magpapabaya sa pagdidisiplina sa iyong anak. Ang tamang pagpalo ay hindi niya ikamamatay kundi makapagliligtas pa sa kanya sa kamatayan.
+
+###### 15-16
+
+Anak, matutuwa ako kung magiging matalino ka at karunungan ang mamumutawi sa iyong mga labi. 
 
 
 ###### 17 
@@ -96,7 +104,11 @@ At kung magkagayon ay gaganda ang kinabukasan mo at mapapasaiyo ang mga hinahang
 ###### 19 
 
 
-Anak, pakinggan mo ang itinuturo ko sa iyo. Maging matalino ka at sundin mo ang tamang daan. 20-21Huwag kang gumaya sa mga lasenggo at matakaw sa pagkain, dahil ang gaya nila ay hahantong sa kahirapan. Tulog lang sila ng tulog, kaya sa bandang huli ay magdadamit na lang sila ng basahan. 
+Anak, pakinggan mo ang itinuturo ko sa iyo. Maging matalino ka at sundin mo ang tamang daan.
+
+###### 20-21
+
+Huwag kang gumaya sa mga lasenggo at matakaw sa pagkain, dahil ang gaya nila ay hahantong sa kahirapan. Tulog lang sila ng tulog, kaya sa bandang huli ay magdadamit na lang sila ng basahan. 
 
 
 ###### 22 
@@ -108,7 +120,11 @@ Makinig ka sa iyong mga magulang sapagkat kung hindi dahil sa kanila, hindi ka n
 ###### 23 
 
 
-Pagsikapan mong mapasaiyo ang katotohanan, karunungan, magandang pag-uugali at pang-unawa. At huwag mo itong ipagpapalit sa kahit anumang bagay. 24-25Matutuwa ang iyong mga magulang kung matuwid ka at matalino. Ikaliligaya nila na sila ang naging iyong ama at ina. 
+Pagsikapan mong mapasaiyo ang katotohanan, karunungan, magandang pag-uugali at pang-unawa. At huwag mo itong ipagpapalit sa kahit anumang bagay.
+
+###### 24-25
+
+Matutuwa ang iyong mga magulang kung matuwid ka at matalino. Ikaliligaya nila na sila ang naging iyong ama at ina. 
 
 
 ###### 26 

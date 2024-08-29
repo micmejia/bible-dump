@@ -66,7 +66,11 @@ Ang sinumang mananatili sa lungsod na ito ay mamamatay sa digmaan, gutom o sakit
 ###### 10 
 
 
-Nakapagpasya na akong padalhan ng kapahamakan ang lungsod na ito at hindi kabutihan. Ipapasakop ko ito sa hari ng Babilonia, at susunugin niya ito. Ako, ang Panginoon, ang nagsasabi nito.' 11-12"Sabihin din ninyo sa sambahayan ng hari ng Juda, na mga angkan ni David, na pakinggan ang mensaheng ito ng Panginoon: Pairalin nʼyo lagi ang katarungan. Tulungan nʼyo ang mga ninakawan; iligtas nʼyo sila sa mga umaapi sa kanila. Sapagkat kung hindi, magniningas ang galit ko na parang apoy na hindi mapapatay dahil sa masama nʼyong ginagawa. 
+Nakapagpasya na akong padalhan ng kapahamakan ang lungsod na ito at hindi kabutihan. Ipapasakop ko ito sa hari ng Babilonia, at susunugin niya ito. Ako, ang Panginoon, ang nagsasabi nito.'
+
+###### 11-12
+
+"Sabihin din ninyo sa sambahayan ng hari ng Juda, na mga angkan ni David, na pakinggan ang mensaheng ito ng Panginoon: Pairalin nʼyo lagi ang katarungan. Tulungan nʼyo ang mga ninakawan; iligtas nʼyo sila sa mga umaapi sa kanila. Sapagkat kung hindi, magniningas ang galit ko na parang apoy na hindi mapapatay dahil sa masama nʼyong ginagawa. 
 
 
 ###### 13 

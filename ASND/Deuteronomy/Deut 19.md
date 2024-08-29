@@ -112,7 +112,11 @@ Kung ang isang saksi ay tatayo sa korte at magpapahayag ng kasinungalingan na na
 ###### 17 
 
 
-patatayuin silang dalawa sa presensya ng Panginoon, sa harap ng mga pari at ng mga hukom na naglilingkod sa panahong iyon. 18-19Dapat itong imbestigahang mabuti ng mga hukom, at kung mapapatunayang nagsisinungaling nga ang saksi sa pamamagitan ng pambibintang sa kanyang kapwa, dapat siyang parusahan ng parusang dapat sana ay sa taong pinagbintangan niya. Sa pamamagitan nito, mawawala ang masasamang gawa sa inyong bansa. 
+patatayuin silang dalawa sa presensya ng Panginoon, sa harap ng mga pari at ng mga hukom na naglilingkod sa panahong iyon.
+
+###### 18-19
+
+Dapat itong imbestigahang mabuti ng mga hukom, at kung mapapatunayang nagsisinungaling nga ang saksi sa pamamagitan ng pambibintang sa kanyang kapwa, dapat siyang parusahan ng parusang dapat sana ay sa taong pinagbintangan niya. Sa pamamagitan nito, mawawala ang masasamang gawa sa inyong bansa. 
 
 
 ###### 20 

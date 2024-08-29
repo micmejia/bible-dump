@@ -66,7 +66,11 @@ Ikaw baʼy makapangyarihang tulad ko? Magagawa mo bang parang kulog ang tinig mo
 ###### 10 
 
 
-Kung magagawa mo iyan, patunayan mo na ikaw ngaʼy makapangyarihan, marangal at dakila. 11-12Ipakita mo ang matindi mong galit sa taong mayayabang at ibagsak sila. Wasakin mo ang taong masasama sa kanilang kinatatayuan. 
+Kung magagawa mo iyan, patunayan mo na ikaw ngaʼy makapangyarihan, marangal at dakila.
+
+###### 11-12
+
+Ipakita mo ang matindi mong galit sa taong mayayabang at ibagsak sila. Wasakin mo ang taong masasama sa kanilang kinatatayuan. 
 
 
 ###### 13 

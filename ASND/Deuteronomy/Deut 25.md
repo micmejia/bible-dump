@@ -78,7 +78,11 @@ Ang pamilya ng taong ito ay tatawagin sa Israel na pamilya ng taong kinuhanan ng
 ###### 12 
 
 
-kailangang putulin ang kamay ng babae nang walang awa. 13-14"Huwag kayong mandaraya sa inyong pagtimbang at pagtakal. 
+kailangang putulin ang kamay ng babae nang walang awa.
+
+###### 13-14
+
+"Huwag kayong mandaraya sa inyong pagtimbang at pagtakal. 
 
 
 ###### 15 

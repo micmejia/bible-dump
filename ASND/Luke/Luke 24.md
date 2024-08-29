@@ -133,7 +133,11 @@ Inakusahan siya ng mga pinuno namin at ng mga namamahalang pari upang mahatulang
 ###### 21 
 
 
-Umasa pa naman kami na siya ang magpapalaya sa Israel mula sa kamay ng mga taga-Roma. Pero ikatlong araw na ngayon mula nang pinatay siya. 22-23Pero nagulat kami sa ibinalita sa amin ng ilang babaeng kasamahan namin na maagang pumunta kanina sa libingan. Hindi nila nakita ang bangkay ni Jesus, pero nakakita raw sila ng mga anghel na nagsabing buhay si Jesus. 
+Umasa pa naman kami na siya ang magpapalaya sa Israel mula sa kamay ng mga taga-Roma. Pero ikatlong araw na ngayon mula nang pinatay siya.
+
+###### 22-23
+
+Pero nagulat kami sa ibinalita sa amin ng ilang babaeng kasamahan namin na maagang pumunta kanina sa libingan. Hindi nila nakita ang bangkay ni Jesus, pero nakakita raw sila ng mga anghel na nagsabing buhay si Jesus. 
 
 
 ###### 24 

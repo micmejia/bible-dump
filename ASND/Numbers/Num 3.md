@@ -252,7 +252,11 @@ Sinabi ng Panginoon kay Moises, "Bilangin mo at ilista ang mga pangalan ng lahat
 ###### 41 
 
 
-Italaga ang mga Levita sa akin kapalit ng lahat ng panganay na lalaki ng mga Israelita. Ihandog din sa akin ang mga hayop ng mga Levita kapalit ng mga hayop ng mga Israelita. Ako ang Panginoon." 42-43Kaya binilang ni Moises ang lahat ng panganay na lalaki ng mga Israelita na may edad isang buwan pataas, ayon sa iniutos ng Panginoon sa kanya. Ang bilang nila ay 22,273. 
+Italaga ang mga Levita sa akin kapalit ng lahat ng panganay na lalaki ng mga Israelita. Ihandog din sa akin ang mga hayop ng mga Levita kapalit ng mga hayop ng mga Israelita. Ako ang Panginoon."
+
+###### 42-43
+
+Kaya binilang ni Moises ang lahat ng panganay na lalaki ng mga Israelita na may edad isang buwan pataas, ayon sa iniutos ng Panginoon sa kanya. Ang bilang nila ay 22,273. 
 
 
 ###### 44 

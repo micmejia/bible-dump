@@ -152,7 +152,11 @@ kaya iniuutos ko sa iyo na payagan mo silang umalis para makasamba sa akin, pero
 ###### 24 
 
 
-Nang naglalakbay na sina Moises at ang kanyang pamilya, nagpahinga sila sa isang bahay-pahingahan. Pinuntahan ng Panginoon si Moises at pinagtangkaang patayin. 25-26Pero kumuha si Zipora ng matalim na bato at tinuli ang kanyang anak, at ang nakuha niyang balat ay idinikit niya sa paa ni Moises. At sinabi ni Zipora, "Ikaw ang duguang asawa ko." (Ang ibig sabihin ni Zipora ay may kaugnayan sa pagtutuli.) Kaya hindi pinatay ng Panginoon si Moises. 
+Nang naglalakbay na sina Moises at ang kanyang pamilya, nagpahinga sila sa isang bahay-pahingahan. Pinuntahan ng Panginoon si Moises at pinagtangkaang patayin.
+
+###### 25-26
+
+Pero kumuha si Zipora ng matalim na bato at tinuli ang kanyang anak, at ang nakuha niyang balat ay idinikit niya sa paa ni Moises. At sinabi ni Zipora, "Ikaw ang duguang asawa ko." (Ang ibig sabihin ni Zipora ay may kaugnayan sa pagtutuli.) Kaya hindi pinatay ng Panginoon si Moises. 
 
 
 ###### 27 

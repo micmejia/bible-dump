@@ -90,7 +90,11 @@ Ito ang mga tuntunin tungkol sa handog na pagpaparangal: Ang mga paring mula sa 
 ###### 15 
 
 
-Dadakot ang pari sa handog na harinang may halong langis at dadalhin niya sa altar pati ang mga insensong inilagay sa harina. Susunugin niya ito bilang alaala sa Panginoon. Ang mabangong samyo ng handog na itoʼy makalulugod sa Panginoon. 16-17Ang natitirang harina ay lulutuin at kakainin ni Aaron at ng kanyang mga angkan. Pero itoʼy lulutuin nilang walang pampaalsa, at doon nila kakainin sa banal na lugar sa bakuran ng Toldang Tipanan. Inilaan iyon ng Panginoon para sa kanila bilang bahagi ng pagkaing inihandog sa kanya. Ang handog na pagpaparangal sa Panginoon ay napakabanal, katulad ng handog sa paglilinis, at handog na pambayad ng kasalanan. 
+Dadakot ang pari sa handog na harinang may halong langis at dadalhin niya sa altar pati ang mga insensong inilagay sa harina. Susunugin niya ito bilang alaala sa Panginoon. Ang mabangong samyo ng handog na itoʼy makalulugod sa Panginoon.
+
+###### 16-17
+
+Ang natitirang harina ay lulutuin at kakainin ni Aaron at ng kanyang mga angkan. Pero itoʼy lulutuin nilang walang pampaalsa, at doon nila kakainin sa banal na lugar sa bakuran ng Toldang Tipanan. Inilaan iyon ng Panginoon para sa kanila bilang bahagi ng pagkaing inihandog sa kanya. Ang handog na pagpaparangal sa Panginoon ay napakabanal, katulad ng handog sa paglilinis, at handog na pambayad ng kasalanan. 
 
 
 ###### 18 

@@ -63,7 +63,11 @@ At ang lahat ng mamamayan, pati ang mga namumuno ay pumayag sa kasunduang ito, a
 ###### 11 
 
 
-Pero sa bandang huli, nagbago ang isip nila at inalipin nila ulit ang mga aliping pinalaya nila. 12-13Kaya sinabi ng Panginoon, ang Dios ng Israel, kay Jeremias, "Gumawa ako ng kasunduan sa mga ninuno nʼyo noong pinalaya ko sila sa lupain ng Egipto, sa lugar kung saan sila inalipin. Sinabi ko sa kanila, 
+Pero sa bandang huli, nagbago ang isip nila at inalipin nila ulit ang mga aliping pinalaya nila.
+
+###### 12-13
+
+Kaya sinabi ng Panginoon, ang Dios ng Israel, kay Jeremias, "Gumawa ako ng kasunduan sa mga ninuno nʼyo noong pinalaya ko sila sa lupain ng Egipto, sa lugar kung saan sila inalipin. Sinabi ko sa kanila, 
 
 
 ###### 14 
@@ -87,7 +91,11 @@ Pero nagbago ang inyong mga isip at inilagay ninyo ako sa kahihiyan. Inalipin ul
 ###### 17 
 
 
-"Kaya ako, ang Panginoon ay nagsasabing dahil hindi ninyo ako sinunod at hindi ninyo pinalaya ang inyong mga alipin na mga kababayan ninyo, bibigyan ko kayo ng kalayaan – ang kalayaan na mamatay sa digmaan, sa gutom at sa sakit. Kayoʼy gagawin kong kasuklam-suklam sa paningin ng lahat ng kaharian sa daigdig. 18-19Ang mga pinuno ng Juda at Jerusalem, at ang mga namamahala sa palasyo, pati ang mga pari at ang mga mamamayan ay nakipagkasundo sa akin, at pinatunayan ito sa pamamagitan ng paghati ng guya, at ang bawat isaʼy dumaan sa pagitan nito. Pero hindi nila tinupad ang nakasaad doon sa kasunduan kaya gagawin ko sa kanila ang ginawa nila sa guyang pinatay at hinati. 
+"Kaya ako, ang Panginoon ay nagsasabing dahil hindi ninyo ako sinunod at hindi ninyo pinalaya ang inyong mga alipin na mga kababayan ninyo, bibigyan ko kayo ng kalayaan – ang kalayaan na mamatay sa digmaan, sa gutom at sa sakit. Kayoʼy gagawin kong kasuklam-suklam sa paningin ng lahat ng kaharian sa daigdig.
+
+###### 18-19
+
+Ang mga pinuno ng Juda at Jerusalem, at ang mga namamahala sa palasyo, pati ang mga pari at ang mga mamamayan ay nakipagkasundo sa akin, at pinatunayan ito sa pamamagitan ng paghati ng guya, at ang bawat isaʼy dumaan sa pagitan nito. Pero hindi nila tinupad ang nakasaad doon sa kasunduan kaya gagawin ko sa kanila ang ginawa nila sa guyang pinatay at hinati. 
 
 
 ###### 20 

@@ -84,7 +84,11 @@ Nahumaling din siya sa mga taga-Asiria na makikisig at nasa kasibulan ng kanilan
 ###### 13 
 
 
-Nakita kong katulad din siya ng kapatid niya. Dinungisan din niya ang kanyang sarili. 14-15"Patuloy na nagbenta ng kanyang dangal si Oholiba. Nagkagusto siya sa mga opisyal ng Babilonia nang makita niya ang mga larawan ng mga ito sa mga pader. Nakapulang uniporme sila, may sinturon sa baywang at nakaturban. 
+Nakita kong katulad din siya ng kapatid niya. Dinungisan din niya ang kanyang sarili.
+
+###### 14-15
+
+"Patuloy na nagbenta ng kanyang dangal si Oholiba. Nagkagusto siya sa mga opisyal ng Babilonia nang makita niya ang mga larawan ng mga ito sa mga pader. Nakapulang uniporme sila, may sinturon sa baywang at nakaturban. 
 
 
 ###### 16 
@@ -216,7 +220,11 @@ Muling sinabi sa akin ng Panginoon, "Anak ng tao, hatulan mo sina Ohola at Oholi
 ###### 37 
 
 
-Sapagkat nakiapid sila at pumatay. Nakikiapid sila sa pamamagitan ng pagsamba sa mga dios-diosan. At ang mga anak nila na itinalaga sa akin nang isilang ay siya mismong inialay nila sa mga dios-diosan bilang pagkain nito. 38-39Ito pa ang ginawa nila sa akin: Nilapastangan nila ang Araw ng Pamamahinga at ang aking templo. Nilapastangan nila ang templo ko sa pamamagitan ng paghahandog ng mga anak nila sa kanilang mga dios-diosan. 
+Sapagkat nakiapid sila at pumatay. Nakikiapid sila sa pamamagitan ng pagsamba sa mga dios-diosan. At ang mga anak nila na itinalaga sa akin nang isilang ay siya mismong inialay nila sa mga dios-diosan bilang pagkain nito.
+
+###### 38-39
+
+Ito pa ang ginawa nila sa akin: Nilapastangan nila ang Araw ng Pamamahinga at ang aking templo. Nilapastangan nila ang templo ko sa pamamagitan ng paghahandog ng mga anak nila sa kanilang mga dios-diosan. 
 
 
 ###### 40 

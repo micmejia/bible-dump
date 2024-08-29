@@ -108,10 +108,4 @@ Pero tinulungan ng lupa ang babae. Bumitak ito nang malalaki at hinigop ang tubi
 ###### 17 
 
 
-Lalo pang nagalit ang dragon kaya nilusob niya ang iba pang mga anak ng babae. Itoʼy walang iba kundi ang mga taong sumusunod sa mga utos ng Dios at sa mga katotohanang itinuro ni Jesus. 
-
-
-###### 18 
-
-
-At tumayo ang dragon sa tabi ng dagat.
+Lalo pang nagalit ang dragon kaya nilusob niya ang iba pang mga anak ng babae. Itoʼy walang iba kundi ang mga taong sumusunod sa mga utos ng Dios at sa mga katotohanang itinuro ni Jesus. At tumayo ang dragon sa tabi ng dagat.

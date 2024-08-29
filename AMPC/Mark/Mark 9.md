@@ -266,12 +266,14 @@ And whoever causes one of these little ones (these believers) who acknowledge an
 
 And if your hand puts a stumbling block before you and causes you to sin, cut it off! It is more profitable and wholesome for you to go into life [that is really worthwhile] maimed than with two hands to go to hell (Gehenna), into the fire that cannot be put out. 
 
+###### 44
 
 ###### 45 
 
 
 And if your foot is a cause of stumbling and sin to you, cut it off! It is more profitable and wholesome for you to enter into life [that is really worthwhile] crippled than, having two feet, to be cast into hell (Gehenna). 
 
+###### 46
 
 ###### 47 
 

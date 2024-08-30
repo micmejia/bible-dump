@@ -1,0 +1,75 @@
+---
+Aliases: [Revelation 10]
+previous: ['Rev 9']
+up: ['Revelation']
+next: ['Rev 11']
+---
+# Revelation 10
+
+***
+
+
+###### 1 
+
+
+Pagkatapos nito, isa na namang makapangyarihang anghel ang nakita ko, bumababa siya mula sa langit. Nababalot siya ng mga ulap at may bahaghari sa kanyang ulo. Ang mukha niya ay nagliliwanag tulad ng araw at ang mga paa niya ay parang nagliliyab na apoy. 
+
+
+###### 2 
+
+
+May hawak siyang maliit na kasulatang nakabukas. Itinuntong niya sa dagat ang kanang paa niya at sa lupa naman ang kaliwa. 
+
+
+###### 3 
+
+
+Sumigaw siya nang malakas na parang atungal ng leon, at tinugon naman siya ng dagundong ng pitong kulog. 
+
+
+###### 4 
+
+
+Isusulat ko na sana ang sinabi ng pitong kulog, ngunit may nagsalita sa akin mula sa langit, "Ilihim mo ang sinabi ng pitong kulog. Huwag mong isulat." 
+
+
+###### 5 
+
+
+Itinaas ng anghel na nakatayo sa dagat at sa lupa, ang kanang kamay niya sa langit 
+
+
+###### 6 
+
+
+at nanumpa sa Dios na nabubuhay magpakailanman, na siyang lumikha ng langit, lupa at dagat, at ng lahat ng naroon. Sinabi ng anghel, "Hindi na magtatagal ang panahon. 
+
+
+###### 7 
+
+
+Kapag pinatunog na ng ikapitong anghel ang kanyang trumpeta, matutupad na ang lihim na plano ng Dios ayon sa sinabi ng mga propeta na kanyang lingkod." 
+
+
+###### 8 
+
+
+Muling nagsalita sa akin ang tinig na mula sa langit. Sinabi niya, "Pumunta ka sa anghel na nakatayo sa dagat at sa lupa, at kunin mo sa kamay niya ang nakabukas na kasulatan." 
+
+
+###### 9 
+
+
+Kaya lumapit ako sa anghel at hiningi ko ang kasulatang iyon. Sinabi niya sa akin, "Narito, kunin mo at kainin. Matamis ito na parang pulot sa bibig mo, ngunit magiging mapait sa tiyan mo." 
+
+
+###### 10 
+
+
+Kinuha ko ang kasulatan sa kamay niya at kinain. Kasintamis nga ito ng pulot sa aking bibig, ngunit nang malunok ko na ay naging mapait sa aking tiyan. 
+
+
+###### 11 
+
+
+Pagkatapos, may nagsabi sa akin, "Kailangang ipahayag mong muli ang mensahe ng Dios tungkol sa ibaʼt ibang tao, bansa, wika at hari."

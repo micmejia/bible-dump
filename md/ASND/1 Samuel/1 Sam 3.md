@@ -1,0 +1,135 @@
+---
+Aliases: [1 Samuel 3]
+previous: ['1 Sam 2']
+up: ['1 Samuel']
+next: ['1 Sam 4']
+---
+# 1 Samuel 3
+
+***
+
+
+###### 1 
+
+
+Noong mga panahong naglilingkod si Samuel sa Panginoon sa ilalim ng pangangalaga ni Eli, madalang nang makipag-usap ang Panginoon, at kakaunti na rin ang mga pangitain. 
+
+
+###### 2 
+
+
+Isang gabi, natutulog si Eli sa kanyang kwarto. Hindi na siya gaanong nakakakita. 
+
+
+###### 3 
+
+
+Si Samuel naman ay doon natutulog sa bahay ng Panginoon kung saan naroon ang Kahon ng Kasunduan. At habang nakasindi pa ang ilawan ng Dios, 
+
+
+###### 4 
+
+
+tinawag ng Panginoon si Samuel. Sumagot si Samuel, "Ano po iyon?" 
+
+
+###### 5 
+
+
+Tumakbo siya kay Eli at sinabi, "Ano po iyon? Bakit nʼyo po ako tinawag?" Sumagot si Eli, "Hindi kita tinawag. Bumalik ka na at matulog ulit." Kaya bumalik siya at muling natulog. 
+
+
+###### 6 
+
+
+Muli siyang tinawag ng Panginoon, "Samuel!" Bumangon si Samuel, pumunta kay Eli at sinabi, "Ano po iyon? Bakit nʼyo po ako tinawag?" Sumagot si Eli, "Anak, hindi kita tinawag, bumalik ka na at matulog ulit." 
+
+
+###### 7 
+
+
+Hindi pa nakikilala noon ni Samuel ang Panginoon dahil hindi pa nakikipag-usap sa kanya ang Panginoon. 
+
+
+###### 8 
+
+
+Tinawag ng Panginoon si Samuel sa ikatlong pagkakataon. Bumangon siya at pumunta kay Eli, "Ano po iyon? Bakit nʼyo po ako tinawag?" At naunawaan ni Eli na ang Panginoon ang tumatawag kay Samuel, 
+
+
+###### 9 
+
+
+kaya sinabi niya kay Samuel, "Bumalik ka na ulit at matulog, kung tatawagin ka ulit, sabihin mo, 'Magsalita po kayo, Panginoon. Nakikinig ang lingkod ninyo.' " Kaya bumalik si Samuel sa higaan at muling natulog. 
+
+
+###### 10 
+
+
+Lumapit kay Samuel ang Panginoon at gaya ng dati, tinawag siya, "Samuel! Samuel!" Sumagot si Samuel, "Magsalita po kayo, Panginoon, sapagkat nakikinig ang lingkod ninyo." 
+
+
+###### 11 
+
+
+Sinabi ng Panginoon, "Tandaan mo ito, hindi magtatagal at may gagawin ako sa bayan ng Israel. Paghaharian ng matinding takot ang lahat ng makakarinig nito. 
+
+
+###### 12 
+
+
+Pagdating ng takdang panahon, gagawin ko ang mga sinabi ko laban sa sambahayan ni Eli. 
+
+
+###### 13 
+
+
+Sinabi ko sa kanya na parurusahan ko habang panahon ang sambahayan niya, dahil pinabayaan niya ang mga anak niya sa mga ginagawa nilang paglapastangan sa akin kahit alam na niya ang tungkol dito. 
+
+
+###### 14 
+
+
+Kaya isinumpa ko, na ang kasalanan nilaʼy hindi mapapatawad ng anumang handog kahit kailan." 
+
+
+###### 15 
+
+
+Natulog si Samuel hanggang umaga, at binuksan niya ang pintuan ng sambahan para sa Panginoon. Natatakot siyang sabihin kay Eli ang tungkol sa pangitain. 
+
+
+###### 16 
+
+
+Ngunit tinawag siya ni Eli, "Samuel, anak." Sumagot si Samuel, "Ano po iyon?" 
+
+
+###### 17 
+
+
+Nagtanong si Eli, "Ano ba ang sinabi ng Panginoon sa iyo? Huwag kang maglilihim sa akin. Parurusahan ka ng Dios ng matindi kung hindi mo sasabihin sa akin ang lahat ng sinabi niya sa iyo." 
+
+
+###### 18 
+
+
+Ipinagtapat nga ni Samuel ang lahat sa kanya. Wala siyang itinago. At sinabi ni Eli, "Siya ang Panginoon. Gagawin niya kung ano sa tingin niya ang mabuti." 
+
+
+###### 19 
+
+
+Patuloy na pinapatnubayan ng Panginoon si Samuel habang siyaʼy lumalaki. Niloob ng Panginoon na matupad ang lahat ng sinabi ni Samuel. 
+
+
+###### 20 
+
+
+Kaya kinilala si Samuel na propeta ng Panginoon mula Dan hanggang sa Beersheba. 
+
+
+###### 21 
+
+
+Patuloy na nagpapakita ang Panginoon kay Samuel doon sa Shilo, at doon ay ipinakikilala ng Panginoon ang kanyang sarili sa pamamagitan ng pakikipag-usap sa kanya.

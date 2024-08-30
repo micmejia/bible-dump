@@ -1,0 +1,351 @@
+---
+Aliases: [1 Chronicles 2]
+previous: ['1 Chr 1']
+up: ['1 Chronicles']
+next: ['1 Chr 3']
+---
+# 1 Chronicles 2
+
+***
+
+
+###### 1 
+
+
+Ito ang mga anak na lalaki ni Israel: Reuben, Simeon, Levi, Juda, Isacar, Zebulun, 
+
+
+###### 2 
+
+
+Dan, Jose, Benjamin, Naftali, Gad at Asher.
+
+## Ang Lahi ni Juda 
+
+
+###### 3 
+
+
+May tatlong anak na lalaki si Juda sa asawa niyang si Batshua na Cananea. Silaʼy sina Er, Onan at Shela. Si Er ang panganay sa magkakapatid. Masama siya sa paningin ng Panginoon, kaya pinatay siya ng Panginoon. 
+
+
+###### 4 
+
+
+May mga anak pang lalaki si Juda kay Tamar na kanyang manugang. Silaʼy sina Perez at Zera. Lima lahat ang anak na lalaki ni Juda. 
+
+
+###### 5 
+
+
+Ang mga anak na lalaki ni Perez ay sina Hezron at Hamul. 
+
+
+###### 6 
+
+
+Lima lahat ang anak na lalaki ni Zera: sina Zimri, Etan, Heman, Calcol at Darda. 
+
+
+###### 7 
+
+
+Ang anak na lalaki ni Carmi ay si Acar. Si Acar ang nagdala ng kasamaan sa Israel dahil kinuha niya ang bagay na inilaan nang buo para sa Dios. 
+
+
+###### 8 
+
+
+Ang anak na lalaki ni Etan ay si Azaria.
+
+## Ang Lahi na Pinagmulan ni David 
+
+
+###### 9 
+
+
+Ang mga anak na lalaki ni Hezron ay sina Jerameel, Ram at Caleb. 
+
+
+###### 10 
+
+
+Si Ram ang ama ni Aminadab, at si Aminadab naman ang ama ni Nashon na pinuno ng lahi ni Juda. 
+
+
+###### 11 
+
+
+Si Nashon ang ama ni Salmon, at si Salmon ang ama ni Boaz. 
+
+
+###### 12 
+
+
+Si Boaz ang ama ni Obed at si Obed ang ama ni Jesse. 
+
+
+###### 13 
+
+
+Ang panganay na anak ni Jesse ay si Eliab, ang ikalawa namaʼy si Abinadab, at ang ikatlo ay si Shimea, 
+
+
+###### 14 
+
+
+ang ikaapat ay si Netanel, ang ikalima ay si Radai, 
+
+
+###### 15 
+
+
+ang ikaanim ay si Ozem, at ang ikapito ay si David. 
+
+
+###### 16 
+
+
+Ang mga kapatid nilang babae ay sina Zeruya at Abigail. Si Zeruya ay may tatlong anak na lalaki, sina Abishai, Joab at Asahel. 
+
+
+###### 17 
+
+
+Ang asawa ni Abigail ay si Jeter na Ishmaelita at may anak silang lalaki na si Amasa.
+
+## Ang Angkan ni Hezron 
+
+
+###### 18 
+
+
+Ang anak ni Hezron na si Caleb ay may mga anak sa asawa niyang si Azuba na tinatawag ding Jeriot. Sila ay sina Jesher, Shobab at Ardon. 
+
+
+###### 19 
+
+
+Pagkamatay ni Azuba, napangasawa ni Caleb si Efrat at ang naging anak nila ay si Hur. 
+
+
+###### 20 
+
+
+Si Hur ang ama ni Uri, at si Uri ang ama ni Bezalel. 
+
+
+###### 21 
+
+
+Noong 60 taong gulang na si Hezron, napangasawa niya ang anak ni Makir, ang kapatid na babae ni Gilead. Si Segub ang naging anak nila. 
+
+
+###### 22 
+
+
+Si Segub ang ama ni Jair, na namahala ng 23 bayan sa Gilead. 
+
+
+###### 23 
+
+
+(Dumating ang panahon na inagaw ni Geshur at ni Aram ang mga bayan ni Jair at ang Kenat, pati ang 60 bayan sa paligid nito.) Silang lahat ang angkan ni Makir na ama ni Gilead. 
+
+
+###### 24 
+
+
+Kamamatay lang ni Hezron sa Caleb Efrata nang manganak ang asawa niyang si Abijah. Ang anak niya ay si Ashur na ama ni Tekoa.
+
+## Ang Angkan ni Jerameel na Anak ni Hezron 
+
+
+###### 25 
+
+
+Ito ang mga anak na lalaki ni Jerameel na panganay na anak ni Hezron: Si Ram ang panganay, sumunod sina Buna, Oren, Ozem at Ahia. 
+
+
+###### 26 
+
+
+Si Jerameel ay may isa pang asawa na ang pangalan ay Atara. Siya ang ina ni Onam. 
+
+
+###### 27 
+
+
+Ang mga anak na lalaki ni Ram na panganay ni Jerameel ay sina Maaz, Jamin at Eker. 
+
+
+###### 28 
+
+
+Ang mga anak na lalaki ni Onam ay sina Shamai at Jada. Ang mga anak na lalaki ni Shamai ay sina Nadab at Abishur. 
+
+
+###### 29 
+
+
+Ang pangalan ng asawa ni Abishur ay Abihail. May mga anak silang lalaki, sina Aban at Molid. 
+
+
+###### 30 
+
+
+Ang mga anak na lalaki ni Nadab ay sina Seled at Apaim. Namatay si Seled na walang anak. 
+
+
+###### 31 
+
+
+Ang anak na lalaki ni Apaim ay si Ishi. Si Ishi ang ama ni Sheshan at si Sheshan ang ama ni Alai. 
+
+
+###### 32 
+
+
+Ang mga anak na lalaki ni Jada na kapatid ni Shamai ay sina Jeter at Jonatan. Namatay si Jeter na walang anak. 
+
+
+###### 33 
+
+
+Ang mga anak na lalaki ni Jonatan ay sina Pelet at Zaza. Silang lahat ang angkan ni Jerameel. 
+
+
+###### 34 
+
+
+Walang anak na lalaki si Sheshan, kundi puro babae. May alipin siyang Egipcio na ang pangalan ay Jarha. 
+
+
+###### 35 
+
+
+Ibinigay ni Sheshan ang anak niyang babae kay Jarha bilang asawa. Nagkaanak sila na ang pangalan ay Atai. 
+
+
+###### 36 
+
+
+Si Atai ang ama ni Natan, at si Natan ang ama ni Zabad, 
+
+
+###### 37 
+
+
+si Zabad naman ang ama ni Eflal, si Eflal ang ama ni Obed, 
+
+
+###### 38 
+
+
+si Obed ang ama ni Jehu, at si Jehu ang ama ni Azaria. 
+
+
+###### 39 
+
+
+Si Azaria ang ama ni Helez, si Helez ang ama ni Eleasa, 
+
+
+###### 40 
+
+
+at si Eleasa ang ama ni Sismai. Si Sismai ang ama ni Shalum, 
+
+
+###### 41 
+
+
+si Shalum ang ama ni Jekamia, at si Jekamia ang ama ni Elishama.
+
+## Ang Iba pang Angkan ni Caleb 
+
+
+###### 42 
+
+
+Ang panganay na anak na lalaki ni Caleb na kapatid ni Jerameel ay si Mesha na ama ni Zif. Ang ikalawa niyang anak ay si Maresha na ama ni Hebron. 
+
+
+###### 43 
+
+
+Ang mga anak na lalaki ni Hebron ay sina Kora, Tapua, Rekem at Shema. 
+
+
+###### 44 
+
+
+Si Shema ang ama ni Raham, at si Raham ang ama ni Jorkeam. Si Rekem ang ama ni Shamai, 
+
+
+###### 45 
+
+
+si Shamai ang ama ni Maon, at si Maon ang ama ni Bet Zur. 
+
+
+###### 46 
+
+
+Ang isa pang asawa ni Caleb na si Efa ang ina nina Haran, Moza at Gazez. May anak si Haran na Gazez din ang pangalan. 
+
+
+###### 47 
+
+
+Ang mga anak na lalaki ni Jadai ay sina Regem, Jotam, Geshan, Pelet, Efa at Shaaf. 
+
+
+###### 48 
+
+
+Ang isa pang asawa ni Caleb ay si Maaca. May mga anak silang lalaki na sina Sheber, Tirhana, 
+
+
+###### 49 
+
+
+Shaaf na ama ni Madmana at Sheva na ama naman nina Macbena at Gibea. Ang anak na babae ni Caleb ay si Acsa. 
+
+
+###### 50 
+
+
+Sila ang angkan ni Caleb.
+
+## Ang Angkan ng Anak ni Caleb na si Hur. Si Hur ang panganay na anak ni Caleb at ni Efrata. Ang mga anak na lalaki ni Hur ay sina Shobal na ama ni Kiriat Jearim, 
+
+
+###### 51 
+
+
+si Salma na ama ni Betlehem, at si Haref na ama ni Bet Gader. 
+
+
+###### 52 
+
+
+Ang angkan ni Shobal na ama ni Kiriat Jearim ay ang mga Haroe, ang kalahati ng mga naninirahan sa Manahat, 
+
+
+###### 53 
+
+
+at ang angkan ni Kiriat Jearim ay ang mga Itreo, Puteo, Sumateo at Misraita. Sila ang pinagmulan ng mga Zoratita at mga Estaolita. 
+
+
+###### 54 
+
+
+Ang angkan ni Salma ay ang mga taga-Betlehem, mga taga-Netofa, mga taga-Atrot Bet Joab, ang kalahati ng mga Manahateo, at ang mga Zorita. 
+
+
+###### 55 
+
+
+Ang lahi ng mga Tirateo, Shimeateo at Sucateo na magagaling sumulat ng mga dokumento ay nakatira sa bayan ng Jabez. Sila ang mga Keneo na nagmula kay Hamat, na ama ng pamilya ni Bet Recab.

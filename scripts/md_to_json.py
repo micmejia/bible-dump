@@ -10,7 +10,6 @@ from chapters import CHAPTERS_COUNT
 MAX_VERSES = 176  # for longest chapter
 
 translations = ['NKJV', 'ASND', 'AMPC']
-translations = ['ASND']
 
 root = Path.cwd().parent
 
@@ -18,15 +17,15 @@ root = Path.cwd().parent
 verse_re = {}
 for v in range(1, MAX_VERSES+1):
   # verse_re[v] = re.compile(fr"###+\s+{v}\s+(?P<verse_text>[^#]*)", re.M)  # normal verse heading scenario, e.g. ###### 17
-  verse_re[v] = re.compile(fr"###+\s+{v}(?P<verse_text>[\-\s]+[^#]*)", re.M)  # consider verse number ranges, e.g. ####### 17-18
+  verse_re[v] = re.compile(fr"###+\s+{v}(?P<verse_text>[\-\s]+[^#]*)", re.M)  # consider verse number ranges for ASND, e.g. ####### 17-18
 
 verse_range_re = re.compile(r"^\-(?P<verse_end_num>\d+)(?P<verse_text>[^#]*)", re.M)
 
 for translation in translations:
-  workdir = root / translation
+  workdir = root / "md" / translation
   translation_output = []
   translation_verses_count = 0
-  print(workdir)
+  print(f"\n\n{workdir}")
 
   with open('bible_index.csv', mode ='r')as index:
     bible_index = csv.DictReader(index)
@@ -100,12 +99,14 @@ for translation in translations:
                 f"Book verses count mismatched: {book_verses_count=}; {book_verses_total=}; {book=}"
       
       # break  # books folders
-    print(f"{translation}: {translation_verses_count}\n\n")
+    print(f"{translation}: {translation_verses_count}")
     # break  # translation
 
 
-  with open(root / f"{translation.lower()}.json", "w") as f:
+  output_json = root / "json" / f"{translation.lower()}.json"
+  with open(output_json, "w") as f:
       json.dump(translation_output, f, indent=4, sort_keys=True)
-      
+      print(output_json)
+
   # print(translation_output)
 

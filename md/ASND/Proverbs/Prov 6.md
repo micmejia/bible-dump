@@ -1,0 +1,219 @@
+---
+Aliases: [Proverbs 6]
+previous: ['Prov 5']
+up: ['Proverbs']
+next: ['Prov 7']
+---
+# Proverbs 6
+
+***
+
+
+###### 1 
+
+
+Anak, kapag nangako kang managot sa utang ng iba, 
+
+
+###### 2 
+
+
+at naipit ka sa pangakong iyon, 
+
+
+###### 3 
+
+
+ganito ang gawin mo upang maayos ang pananagutan mo sa kanya: Puntahan mo siya at makiusap na pakawalan ka niya sa iyong pananagutan. 
+
+
+###### 4 
+
+
+Huwag kang titigil na makiusap 
+
+
+###### 5 
+
+
+hanggang sa maging malaya ka, tulad ng isang ibon o usa na nakawala sa isang mangangaso. 
+
+
+###### 6 
+
+
+Kayong mga tamad, tingnan ninyo at pag-aralan ang pamumuhay ng mga langgam upang matuto kayo sa kanila. 
+
+
+###### 7 
+
+
+Kahit na walang namumuno at nag-uutos sa kanila, 
+
+
+###### 8 
+
+
+nag-iipon sila ng pagkain kapag tag-araw at panahon ng anihan, upang may makain sila pagdating ng tag-ulan. 
+
+
+###### 9 
+
+
+Kayong mga tamad, matutulog nang matutulog na lang ba kayo? Kailan kayo gigising? 
+
+
+###### 10 
+
+
+Kaunting tulog, kaunting pahinga at ang paminsan-minsang paghalukipkip ng mga kamay, 
+
+
+###### 11 
+
+
+at hindi ninyo mamamalayan darating ang kahirapan na para kayong ninakawan ng tulisan. 
+
+
+###### 12 
+
+
+Ang taong walang kwenta at masama ay puro kasinungalingan ang sinasabi. 
+
+
+###### 13 
+
+
+Kumikindat at sumisenyas siya gamit ang kanyang mga kamay at paa para makumbinsi ang mga tao sa mga sinasabi niya. 
+
+
+###### 14 
+
+
+Ang puso niya ay puno ng pandaraya, laging nagbabalak na gumawa ng masama at sa mga gulo siya ang nagpapasimula. 
+
+
+###### 15 
+
+
+Kaya biglang darating sa kanya ang kapahamakan at hindi na siya matutulungan. 
+
+
+###### 16 
+
+
+May mga bagay na kinamumuhian ang Panginoon: 
+
+
+###### 17 
+
+
+ang pagmamataas, ang pagsisinungaling, ang pagpatay ng tao, 
+
+
+###### 18 
+
+
+ang pagpaplano ng masama, ang pagmamadaling gumawa ng masama, 
+
+
+###### 19 
+
+
+ang pagpapatotoo sa kasinungalingan, at pinag-aaway ang kanyang kapwa. 
+
+
+###### 20 
+
+
+Anak, sundin mo ang itinuturo at iniuutos ng iyong mga magulang. 
+
+
+###### 21 
+
+
+Itanim mo ito sa iyong isipan para hindi mo makalimutan. 
+
+
+###### 22 
+
+
+Ito ang magpapatnubay, mag-iingat at magpapaalala sa iyong pamumuhay, kahit ano pa ang iyong ginagawa. 
+
+
+###### 23 
+
+
+Sapagkat ang mga turo at utos ng iyong mga magulang ay katulad ng isang ilaw na tatanglaw sa iyo. At ang kanilang pagsaway sa iyo para ituwid ang ugali mo ay ikabubuti at ikahahaba ng buhay mo. 
+
+
+###### 24 
+
+
+Ilalayo ka rin nito sa masamang babaeng nakakaakit ang pananalita. 
+
+
+###### 25 
+
+
+Huwag kang magnanasa sa kanyang kagandahan. Huwag kang patutukso sa kanyang pang-aakit. 
+
+
+###### 26 
+
+
+Ang pakikipagsiping sa babaeng bayaran ay pwedeng bayaran sa halaga ng tinapay, ngunit ang pakikipagsiping sa asawa ng iba ay pagbabayaran mo ng iyong buhay. 
+
+
+###### 27 
+
+
+Kung maglalaro ka ng apoy sa iyong kandungan tiyak na masusunog ang damit mo. 
+
+
+###### 28 
+
+
+At kung tatapak ka sa baga, mapapaso ang mga paa mo. 
+
+
+###### 29 
+
+
+Kaya kapag sumiping ka sa asawa ng iba, magdurusa ka. 
+
+
+###### 30 
+
+
+Minsan nauunawaan ng mga tao ang taong nagnakaw dahil sa gutom. 
+
+
+###### 31 
+
+
+Ngunit pinagbabayad naman siya ng pitong beses ng kanyang ninakaw kapag nahuli, kahit maubos pa ang lahat ng pag-aari niya. 
+
+
+###### 32 
+
+
+Ang taong sumisiping sa asawa ng iba ay hangal. Sinisira lang niya ang kanyang sarili. 
+
+
+###### 33 
+
+
+Masasaktan siya at habang buhay na mapapahiya. 
+
+
+###### 34 
+
+
+Sapagkat ang asawang seloso ay sobra kung magalit at maghihiganti siya ng walang awa. 
+
+
+###### 35 
+
+
+Kahit magkano pa ang ibayad, hindi niya ito tatanggapin.

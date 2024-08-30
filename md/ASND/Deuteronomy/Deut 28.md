@@ -1,0 +1,419 @@
+---
+Aliases: [Deuteronomy 28]
+previous: ['Deut 27']
+up: ['Deuteronomy']
+next: ['Deut 29']
+---
+# Deuteronomy 28
+
+***
+
+
+###### 1 
+
+
+"Kung lubos ninyong susundin ang Panginoon na inyong Dios at gagawin ang lahat ng utos niya na ibinibigay ko sa inyo ngayon, gagawin niya kayong nakakahigit sa lahat ng bansa rito sa mundo. 
+
+
+###### 2 
+
+
+Kung susundin ninyo ang Panginoon na inyong Dios, mapapasainyo ang lahat ng pagpapalang ito: 
+
+
+###### 3 
+
+
+"Pagpapalain niya ang mga lungsod at mga bukid ninyo. 
+
+
+###### 4 
+
+
+Pagpapalain niya kayo ng maraming anak, masaganang ani at maraming hayop. 
+
+
+###### 5 
+
+
+Pagpapalain niya kayo ng masaganang ani at pagkain. 
+
+
+###### 6 
+
+
+Pagpapalain niya ang lahat ng ginagawa ninyo. 
+
+
+###### 7 
+
+
+Ipapatalo ng Panginoon sa inyo ang mga kaaway na sasalakay sa inyo. Sama-sama silang sasalakay sa inyo pero magkakanya-kanya sila sa pagtakas. 
+
+
+###### 8 
+
+
+Pagpapalain ng Panginoon na inyong Dios ang lahat ng ginagawa ninyo at pupunuin niya ng ani ang mga bodega ninyo. Pagpapalain niya kayo sa lupaing ibinibigay niya sa inyo. 
+
+
+###### 9 
+
+
+Ayon sa ipinangako ng Panginoon na inyong Dios, gagawin niya kayo na pinili niyang mamamayan, kung susundin ninyo ang kanyang mga utos at mamumuhay ng ayon sa kanyang pamamaraan. 
+
+
+###### 10 
+
+
+At sa ganoon ay malalaman ng lahat ng tao sa mundo na pinili kayo ng Panginoon, at matatakot sila sa inyo. 
+
+
+###### 11 
+
+
+Pagpapalain kayo ng Panginoon doon sa lupaing ipinangako niya sa inyong mga ninuno na ibibigay sa inyo. Pararamihin niya ang inyong mga anak, mga hayop at ang inyong ani. 
+
+
+###### 12 
+
+
+Padadalhan kayo ng Panginoon ng ulan sa tamang panahon mula sa taguan ng kayamanan niya sa langit, at pagpapalain niya ang lahat ng ginagawa ninyo. Magpapautang kayo sa maraming bansa, pero kayo ay hindi mangungutang. 
+
+
+###### 13 
+
+
+Gagawin kayo ng Panginoon na pinuno ng mga bansa, at hindi tagasunod lang. Lagi kayong nasa itaas at hindi sa ilalim kung susundin ninyong mabuti ang mga utos ng Panginoon na inyong Dios na ibinibigay ko sa inyo ngayon. 
+
+
+###### 14 
+
+
+Kaya huwag ninyong susuwayin ang alinman sa iniuutos ko sa inyo sa araw na ito, at huwag kayong susunod sa ibang mga dios at maglilingkod sa kanila.
+
+## Ang mga Sumpa sa Hindi Pagsunod 
+
+
+###### 15 
+
+
+"Ngunit kung hindi kayo susunod sa Panginoon na inyong Dios at hindi susunding mabuti ang lahat ng utos niya at tuntunin na ibinibigay ko sa inyo ngayon, mararanasan ninyo ang lahat ng sumpang ito: 
+
+
+###### 16 
+
+
+Susumpain ng Panginoon ang inyong mga lungsod at bukid. 
+
+
+###### 17 
+
+
+Susumpain niya ang inyong mga ani at pagkain. 
+
+
+###### 18 
+
+
+Susumpain niya kayo sa pamamagitan ng pagbibigay sa inyo ng kaunting anak, ani, at hayop. 
+
+
+###### 19 
+
+
+Susumpain niya ang lahat ng gagawin ninyo. 
+
+
+###### 20 
+
+
+Maguguluhan at malilito kayo sa lahat ng gagawin ninyo hanggang sa malipol kayo at tuluyang mawala, dahil sa masama ninyong ginagawa sa pamamagitan ng pagsuway sa kanya. 
+
+
+###### 21 
+
+
+Padadalhan kayo ng Panginoon ng mga salot hanggang sa mamatay kayo roon sa lupain na titirhan at aangkinin ninyo. 
+
+
+###### 22 
+
+
+Pahihirapan kayo ng Panginoon sa sakit na hindi gumagaling, lagnat, pamamaga, mainit na hangin, mahabang tagtuyot, at peste sa mga halaman hanggang sa mamatay kayo. 
+
+
+###### 23 
+
+
+Magiging parang tanso ang langit na hindi magbibigay ng ulan at ang lupa ay matutuyo at magiging kasintigas ng bakal. 
+
+
+###### 24 
+
+
+Sa halip na tubig ang ibigay ng Panginoon sa inyo bilang ulan, alikabok ang ibibigay niya. Pauulanin niya ng alikabok hanggang sa mamatay kayo. 
+
+
+###### 25 
+
+
+"Ipapatalo kayo ng Panginoon sa inyong mga kaaway. Sama-sama kayong sasalakay sa kanila, pero magkakanya-kanya kayo sa pagtakas. Magiging kasuklam-suklam kayo sa lahat ng kaharian sa mundo. 
+
+
+###### 26 
+
+
+Kakainin ng mga ibon at mababangis na hayop ang mga bangkay ninyo, at walang magtataboy sa kanila. 
+
+
+###### 27 
+
+
+Pahihirapan kayo ng Panginoon sa mga bukol na ipinadala niya sa mga Egipcio. Patutubuan niya kayo ng tumor, pangangati at galis na hindi gumagaling. 
+
+
+###### 28 
+
+
+Gagawin kayong baliw ng Panginoon, bubulagin at lilituhin. 
+
+
+###### 29 
+
+
+Mangangapa kayo kahit na araw tulad ng isang bulag. Hindi kayo uunlad sa lahat ng ginagawa ninyo. Palagi kayong aapihin at pagnanakawan, at walang tutulong sa inyo. 
+
+
+###### 30 
+
+
+"Aagawin ng ibang lalaki ang babaeng magiging asawa ninyo. Magpapatayo kayo ng mga bahay pero hindi kayo ang titira rito. Magtatanim kayo ng ubas pero hindi kayo ang makikinabang sa mga bunga nito. 
+
+
+###### 31 
+
+
+Kakatayin ang baka ninyo sa inyong harapan, pero hindi ninyo ito makakain. Pipiliting kunin sa inyo ang inyong mga asno, at hindi na ito ibabalik sa inyo. Ibibigay ang inyong mga tupa sa inyong mga kaaway, at walang tutulong sa inyo upang mabawi ito. 
+
+
+###### 32 
+
+
+Habang nakatingin kayo, bibihagin ang mga anak ninyo ng mga taga-ibang bansa, at araw-araw kayong aasang babalik sila, pero wala kayong magagawa. 
+
+
+###### 33 
+
+
+Kakainin ng mga taong hindi ninyo nakikilala ang pinaghirapan ninyo, at palagi kayong aapihin at pahihirapan. 
+
+
+###### 34 
+
+
+At kapag nakita ninyo itong lahat, mababaliw kayo. 
+
+
+###### 35 
+
+
+Patutubuan kayo ng Panginoon ng mga bukol na hindi gumagaling mula sa sakong hanggang sa ulo ninyo. 
+
+
+###### 36 
+
+
+"Kayo at ang pinili ninyong hari ay ipapabihag ng Panginoon sa bansang hindi ninyo kilala maging ng inyong mga ninuno. Doon, sasamba kayo sa ibang mga dios na gawa sa kahoy at bato. 
+
+
+###### 37 
+
+
+Kasusuklaman kayo, hahamakin, at kukutyain ng mga naninirahan sa mga bansa kung saan kayo binihag. 
+
+
+###### 38 
+
+
+"Marami ang itatanim ninyo pero kakaunti lang ang inyong aanihin, dahil kakainin ito ng mga balang. 
+
+
+###### 39 
+
+
+Magtatanim kayo ng ubas at aalagaan ninyo ito, pero hindi kayo makakapamitas ng bunga nito o makakainom ng katas mula rito, dahil kakainin ito ng mga uod. 
+
+
+###### 40 
+
+
+Magtatanim kayo ng maraming olibo kahit saan sa inyong lugar, pero wala kayong makukuhang langis mula rito, dahil malalaglag ang mga bunga nito. 
+
+
+###### 41 
+
+
+Magkakaanak kayo pero, mawawala sila sa inyo dahil bibihagin sila. 
+
+
+###### 42 
+
+
+Kakainin ng maraming insekto ang lahat ng inyong puno at pananim. 
+
+
+###### 43 
+
+
+"Unti-unting magiging makapangyarihan ang mga dayuhang naninirahang kasama ninyo habang kayo naman ay unti-unting manghihina. 
+
+
+###### 44 
+
+
+Papautangin nila kayo pero hindi kayo makapagpapautang sa kanila. Sila ang mamumuno sa inyo at kayo ang susunod sa kanila. 
+
+
+###### 45 
+
+
+Mangyayari ang lahat ng sumpang ito sa inyo hanggang sa mamatay kayo, kung hindi ninyo susundin ang Panginoon na inyong Dios at ang kanyang mga utos at mga tuntunin na ibinigay niya sa inyo. 
+
+
+###### 46 
+
+
+Magiging babala sa inyo at sa inyong mga salinlahi ang mga sumpang ito magpakailanman. 
+
+
+###### 47 
+
+
+Dahil hindi kayo naglingkod nang may kaligayahan at kagalakan sa Panginoon na inyong Dios sa panahon ng inyong kasaganaan, 
+
+
+###### 48 
+
+
+ibibigay niya kayo sa mga kaaway na ipinadala niya sa inyo at maglilingkod kayo sa kanila. Gugutumin kayo, uuhawin, kukulangin ng damit at mawawalan ng lahat ng bagay. Pahihirapan niya kayo na parang kinabitan ng pamatok na bakal sa leeg hanggang sa mamatay kayo. 
+
+
+###### 49 
+
+
+"Ipapasalakay kayo ng Panginoon sa isang bansa na mula sa malayong lugar, sa dulo ng mundo, na hindi ninyo maintindihan ang salita. Sasalakayin nila kayo katulad ng pagsila ng agila sa mga kaaway. 
+
+
+###### 50 
+
+
+Mababangis sila at walang awa sa matanda man o bata. 
+
+
+###### 51 
+
+
+Kakainin nila ang mga hayop at mga ani ninyo hanggang sa mamatay kayo. Wala silang ititirang trigo, bagong katas ng ubas, langis o hayop hanggang sa malipol kayo. 
+
+
+###### 52 
+
+
+Sasalakayin nila ang lahat ng lungsod na ibinibigay ng Panginoon na inyong Dios sa inyo hanggang sa gumuho ang nagtataasang pader nito na pinagtitiwalaan ninyo. 
+
+
+###### 53 
+
+
+"Sa panahong pinapalibutan kayo ng mga kaaway, kakainin ninyo ang inyong mga anak na ibinigay sa inyo ng Panginoon na inyong Dios dahil sa sobrang gutom. 
+
+
+###### 54 
+
+
+Kahit na ang mahinahon at napakabait na tao sa inyo ay hindi na maaawa sa kanyang kapatid, sa minamahal niyang asawa at sa natira niyang anak. 
+
+
+###### 55 
+
+
+Hindi niya sila bibigyan ng kinakain niyang laman ng kanyang anak dahil natatakot siyang maubusan ng pagkain. Ganyan ang mangyayari sa inyo sa panahon na papalibutan ng inyong mga kaaway ang lahat ng lungsod ninyo. 
+
+
+###### 56 
+
+
+Kahit na ang mahinhin at napakabait na babae ay magiging mabangis sa kanyang minamahal na asawaʼt mga anak. 
+
+
+###### 57 
+
+
+Itatago niya ang kanyang anak na kapapanganak pa lang at ang inunan nito para kainin nang lihim, dahil natatakot siyang walang makain habang pinapalibutan ng inyong mga kaaway ang mga lungsod. 
+
+
+###### 58 
+
+
+"Kung hindi ninyo susunding mabuti ang lahat ng mga utos na nakasulat sa aklat na ito, at hindi igagalang ang kahanga-hanga at kamangha-manghang pangalan ng Panginoon na inyong Dios, 
+
+
+###### 59 
+
+
+padadalhan niya kayo at ang inyong mga lahi ng malulubhang karamdaman na sobrang sakit at wala nang lunas para rito. 
+
+
+###### 60 
+
+
+Ipapalasap niya sa inyo ang nakakatakot na mga karamdaman na ipinadala niya sa Egipto, at mananatili ito sa inyo. 
+
+
+###### 61 
+
+
+Ipapalasap din sa inyo ng Panginoon ang lahat ng uri ng karamdaman na hindi naisulat sa aklat ng kasunduan, hanggang sa mamatay kayo. 
+
+
+###### 62 
+
+
+Kahit na kasindami kayo ng bituin sa langit, kakaunti lang ang matitira sa inyo dahil hindi kayo sumunod sa Panginoon na inyong Dios. 
+
+
+###### 63 
+
+
+Gaya ng kasiyahan ng Panginoon sa pagpapaunlad at pagpaparami sa inyo, ikasisiya rin niya ang pagwasak at pagpatay sa inyo, hanggang sa mawala kayo sa lupaing titirhan at aangkinin ninyo. 
+
+
+###### 64 
+
+
+"Pangangalatin kayo ng Panginoon sa lahat ng bansa sa bawat sulok ng mundo. At dooʼy sasamba kayo sa ibang mga dios na gawa sa kahoy at bato, na hindi ninyo nakikilala o ng inyong mga ninuno. 
+
+
+###### 65 
+
+
+Wala kayong kapayapaan doon at wala rin kayong lugar na mapagpapahingahan. Hindi kayo bibigyan ng Panginoon ng kapanatagan at mawawalan kayo ng pag-asa, at palaging mamumuhay sa kabiguan. 
+
+
+###### 66 
+
+
+Laging manganganib ang inyong buhay; araw at gabi kayoʼy matatakot, at walang katiyakan ang inyong buhay. 
+
+
+###### 67 
+
+
+Dahil sa takot ninyo sa mga bagay na nakikita ninyo sa paligid, sasabihin ninyo kapag umaga, 'Sana, gabi na.' At kapag gabi naman, sasabihin ninyong, 'Sana, umaga na.' 
+
+
+###### 68 
+
+
+Pababalikin kayo ng Panginoon sa Egipto sakay ng barko, kahit na sinabi ko sa inyo na hindi na kayo dapat bumalik doon. Ipagbibili ninyo roon ang inyong mga sarili sa inyong mga kaaway bilang mga alipin, pero walang bibili sa inyo."

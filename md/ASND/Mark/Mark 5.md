@@ -1,0 +1,259 @@
+---
+Aliases: [Mark 5]
+previous: ['Mark 4']
+up: ['Mark']
+next: ['Mark 6']
+---
+# Mark 5
+
+***
+
+
+###### 1 
+
+
+Dumating sila sa kabila ng lawa, sa lupain ng mga Geraseno. 
+
+
+###### 2 
+
+
+Pagbaba ni Jesus sa bangka, sinalubong siya ng isang lalaking galing sa kwebang libingan. Ang lalaking itoʼy sinasaniban ng masamang espiritu, 
+
+
+###### 3 
+
+
+at doon na siya nakatira sa mga libingan. Hindi siya maigapos ng matagal kahit kadena pa ang gamitin nila. 
+
+
+###### 4 
+
+
+Ilang beses na siyang kinadenahan sa kamay at paa, pero nalalagot niya ang mga ito. Walang nakakapigil sa kanya. 
+
+
+###### 5 
+
+
+Nagsisisigaw siya araw at gabi sa mga libingan at kaburulan, at sinusugatan ang sarili ng matatalas na bato. 
+
+
+###### 6 
+
+
+Malayo pa si Jesus ay nakita na siya ng lalaki. Patakbo siyang lumapit kay Jesus at lumuhod sa harapan niya.
+
+###### 7-8 Sinabi ni Jesus sa masamang espiritu, "Ikaw na masamang espiritu, lumabas ka sa taong iyan!" Sumigaw ang lalaki, "Ano ang pakialam mo sa akin, Jesus na Anak ng Kataas-taasang Dios? Nakikiusap ako, sa pangalan ng Dios, huwag mo akong pahirapan!" 
+
+
+###### 9 
+
+
+Tinanong siya ni Jesus, "Ano ang pangalan mo?" Sagot niya, "Kawan, dahil marami kami." 
+
+
+###### 10 
+
+
+At paulit-ulit na nagmakaawa ang masamang espiritu kay Jesus na huwag silang palayasin sa lupaing iyon. 
+
+
+###### 11 
+
+
+Sa di-kalayuan ay may malaking kawan ng mga baboy na nanginginain sa gilid ng burol. 
+
+
+###### 12 
+
+
+Nagmakaawa ang masasamang espiritu na kung maaari ay payagan silang pumasok sa mga baboy. 
+
+
+###### 13 
+
+
+Kaya pinayagan sila ni Jesus. Lumabas ang masasamang espiritu sa lalaki at pumasok sa mga baboy. Nagtakbuhan ang may dalawang libong baboy pababa ng burol, nagtuloy-tuloy sa lawa at nalunod. 
+
+
+###### 14 
+
+
+Tumakbo ang mga tagapag-alaga ng baboy papunta sa bayan at ipinamalita roon at sa mga kalapit-nayon ang nangyari. Kaya pumunta roon ang mga tao para alamin ang tunay na nangyari. 
+
+
+###### 15 
+
+
+Pagdating nila kay Jesus, nakita nila ang taong dating sinasaniban ng kawan ng masasamang espiritu. Nakaupo siya at nakadamit, at matino na ang pag-iisip. Kaya natakot ang mga tao. 
+
+
+###### 16 
+
+
+Ikinuwento sa kanila ng mga nakakita kung ano ang nangyari sa taong iyon at sa mga baboy. 
+
+
+###### 17 
+
+
+Kaya pinakiusapan nila si Jesus na umalis sa kanilang lugar. 
+
+
+###### 18 
+
+
+Nang sumasakay na si Jesus sa bangka, nakiusap sa kanya ang lalaking gumaling na isama siya. 
+
+
+###### 19 
+
+
+Pero hindi pumayag si Jesus. Sa halip, sinabi niya sa lalaki, "Umuwi ka sa pamilya mo at sabihin mo sa kanila ang lahat ng ginawa sa iyo ng Panginoon at kung paano ka niya kinaawaan." 
+
+
+###### 20 
+
+
+Kaya umalis ang lalaki at ipinamalita sa Decapolis, ang ginawa sa kanya ni Jesus. At namangha ang lahat ng nakarinig tungkol sa nangyari.
+
+## Ang Anak ni Jairus at ang Babaeng Dinudugo 
+
+
+###### 21 
+
+
+Nang bumalik si Jesus sa kabila ng lawa, napakaraming tao ang nagtipon doon sa kanya. 
+
+
+###### 22 
+
+
+Pumunta rin doon si Jairus na namumuno sa sambahan ng mga Judio. Pagkakita niya kay Jesus, lumuhod siya sa paanan nito 
+
+
+###### 23 
+
+
+at nagmakaawa, "Agaw-buhay po ang anak kong dalagita. Kung pwede po sana, sumama kayo sa akin at ipatong ninyo ang inyong kamay sa kanya, para gumaling siya at mabuhay!" 
+
+
+###### 24 
+
+
+Sumama sa kanya si Jesus, at sinundan siya ng napakaraming tao na nagsisiksikan sa kanya. 
+
+
+###### 25 
+
+
+May isang babae roon na 12 taon nang dinudugo. 
+
+
+###### 26 
+
+
+Maraming hirap ang dinanas niya sa kabila ng pagpapagamot sa ibaʼt ibang doktor. Naubos na niya ang lahat ng ari-arian niya sa pagpapagamot, pero sa halip na gumaling ay lalo pang lumala ang kanyang sakit. 
+
+
+###### 27 
+
+
+Nabalitaan niya ang mga himalang ginagawa ni Jesus, kaya nakipagsiksikan siya sa mga tao upang mahipo man lang ang damit ni Jesus. 
+
+
+###### 28 
+
+
+Naisip kasi ng babae, "Mahipo ko lang ang damit niya ay gagaling ako." 
+
+
+###### 29 
+
+
+Nang mahipo nga niya ang damit ni Jesus, biglang tumigil ang kanyang pagdurugo at naramdaman niyang magaling na siya. 
+
+
+###### 30 
+
+
+Agad namang naramdaman ni Jesus na may kapangyarihan na lumabas sa kanya, kaya lumingon siya at nagtanong, "Sino ang humipo sa damit ko?" 
+
+
+###### 31 
+
+
+Sumagot ang mga tagasunod niya, "Sa dami po ng mga taong sumisiksik sa inyo, bakit pa kayo nagtatanong kung sino ang humipo sa inyo?" 
+
+
+###### 32 
+
+
+Pero patuloy siyang tumingin sa paligid para makita kung sino ang humipo sa kanya. 
+
+
+###### 33 
+
+
+Alam ng babae kung ano ang nangyari sa kanya, kaya lumapit siyang nanginginig sa takot at lumuhod sa harap ni Jesus. Ipinagtapat niya ang katotohanan kay Jesus. 
+
+
+###### 34 
+
+
+Pagkatapos, sinabi sa kanya ni Jesus, "Anak, pinagaling ka ng iyong pananampalataya. Umuwi kang mapayapa. Magaling ka na." 
+
+
+###### 35 
+
+
+Habang kausap pa ni Jesus ang babae, dumating ang ilang tao mula sa bahay ni Jairus. Sinabi nila kay Jairus, "Patay na po ang anak ninyo. Huwag nʼyo nang abalahin ang guro." 
+
+
+###### 36 
+
+
+Pero hindi pinansin ni Jesus ang sinabi nila. Sa halip, sinabi niya kay Jairus, "Huwag kang matakot. Manampalataya ka lang." 
+
+
+###### 37 
+
+
+Hindi pinayagan ni Jesus ang mga tao na sumama sa kanya sa bahay ni Jairus. Sa halip, si Pedro at ang magkapatid na sina Santiago at Juan lang ang isinama niya. 
+
+
+###### 38 
+
+
+Pagdating nila roon, nakita ni Jesus na nagkakagulo ang mga tao. May mga umiiyak at may mga humahagulgol. 
+
+
+###### 39 
+
+
+Pumasok siya sa bahay at sinabi niya sa mga tao, "Bakit kayo nagkakagulo at nag-iiyakan? Hindi patay ang bata kundi natutulog lang!" 
+
+
+###### 40 
+
+
+Pinagtawanan siya ng mga tao. Kaya pinalabas niya silang lahat maliban sa amaʼt ina ng bata at sa tatlo niyang tagasunod. Pagkatapos, pumasok sila sa kwartong kinaroroonan ng bata. 
+
+
+###### 41 
+
+
+Hinawakan niya sa kamay ang bata at sinabi, "Talitha koum," na ang ibig sabihin ay "Nene, bumangon ka." 
+
+
+###### 42 
+
+
+Bumangon naman agad ang bata at nagpalakad-lakad. (12 taon na noon ang bata.) Labis ang pagkamangha ng mga tao sa nangyari. 
+
+
+###### 43 
+
+
+Pero mahigpit silang pinagbilinan ni Jesus na huwag ipagsabi kahit kanino ang nangyari. Pagkatapos, sinabihan sila ni Jesus na bigyan ng makakain ang bata.

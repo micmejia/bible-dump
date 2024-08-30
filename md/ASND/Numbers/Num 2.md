@@ -1,0 +1,83 @@
+---
+Aliases: [Numbers 2]
+previous: ['Num 1']
+up: ['Numbers']
+next: ['Num 3']
+---
+# Numbers 2
+
+***
+
+
+###### 1 
+
+
+Sinabi ng Panginoon kina Moises at Aaron, 
+
+
+###### 2 
+
+
+"Magkakampo ang bawat lahi ng Israel sa ilalim ng bandila ng kani-kanilang lahi. Ang Toldang Tipanan ay ilalagay sa gitna ng kampo.
+
+###### 3-8 Ang mga lahi nina Juda, Isacar at Zebulun ay magkakampo sa silangan, sa ilalim ng bandila ng kani-kanilang lahi. Ito ang mga pangalan ng kanilang mga pinuno at ang bilang ng kanilang mga tauhan: 
+
+
+###### 9 
+
+
+Ang bilang ng lahat ng grupong ito na pinangungunahan ng lahi ni Juda ay 186,400. Sila ang nasa unahan kapag naglalakbay ang mga Israelita.
+
+###### 10-15
+
+"Ang mga lahi nina Reuben, Simeon at Gad ay magkakampo sa timog, sa ilalim ng bandila ng kani-kanilang lahi. Ito ang mga pangalan ng kanilang mga pinuno at ang bilang ng kanilang mga tauhan: 
+
+
+###### 16 
+
+
+Ang bilang ng lahat ng grupong ito na pinangungunahan ng lahi ni Reuben ay 151,450. Sila ang ikalawang grupo sa linya kapag naglalakbay ang mga Israelita. 
+
+
+###### 17 
+
+
+"Kasunod nila ang mga Levita na nagdadala ng Toldang Tipanan. Ang lahat ng lahi ay maglalakad ng magkakasunod gaya ng kanilang posisyon kapag nagkakampo sila, bawat lahi ay nasa ilalim ng kani-kanilang bandila.
+
+###### 18-23
+
+"Ang mga lahi nina Efraim, Manase at Benjamin ay magkakampo sa kanluran, sa ilalim ng bandila ng kani-kanilang lahi. Ito ang mga pangalan ng kanilang mga pinuno at bilang ng kanilang mga tauhan: 
+
+
+###### 24 
+
+
+Ang bilang ng lahat ng grupong ito na pinangungunahan ng lahi ni Efraim ay 108,100. Sila ang susunod sa lahi ni Levi kapag naglalakbay ang mga Israelita.
+
+###### 25-30
+
+"Ang mga lahi nina Dan, Asher at Naftali ay magkakampo sa hilaga, sa ilalim ng bandila ng kani-kanilang lahi. Ito ang mga pangalan ng kanilang mga pinuno at ang bilang ng kanilang mga tauhan: 
+
+
+###### 31 
+
+
+Ang bilang ng lahat ng grupong ito na pinangungunahan ng lahi ni Dan ay 157,600. Sila ang kahuli-hulihang grupo sa linya kapag naglalakbay ang mga Israelita." 
+
+
+###### 32 
+
+
+Ang kabuuang bilang ng mga Israelita na nailista ayon sa kanilang lahi ay 603,550 lahat. 
+
+
+###### 33 
+
+
+Pero hindi kasama rito ang mga Levita, ayon sa iniutos ng Panginoon kay Moises. 
+
+
+###### 34 
+
+
+Kaya ginawa ng mga Israelita ang lahat ng iniutos ng Panginoon kay Moises. Ang bawat lahi ay nagkampo at naglakbay sa ilalim ng kani-kanilang bandila ayon sa kani-kanilang lahi at pamilya.

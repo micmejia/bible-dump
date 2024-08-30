@@ -1,0 +1,119 @@
+---
+Aliases: [Job 11]
+previous: ['Job 10']
+up: ['Job']
+next: ['Job 12']
+---
+# Job 11
+
+***
+
+
+###### 1 
+
+
+Pagkatapos, sumagot si Zofar na taga-Naama, 
+
+
+###### 2 
+
+
+"Hindi dapat palampasin itong mga sinabi mo. Hindi mapapatunayan ng isang tao na wala siyang kasalanan sa pamamagitan lang ng kanyang mga salita. 
+
+
+###### 3 
+
+
+Sa tingin mo baʼy mapapatahimik kami ng mga sinasabi mong walang saysay? Akala mo baʼy hindi ka namin sasawayin sa iyong panunuya? 
+
+
+###### 4 
+
+
+Sinasabi mong tama ang iyong paniniwala at matuwid ka sa paningin ng Dios. 
+
+
+###### 5 
+
+
+Magsalita sana ang Dios laban sa iyo, 
+
+
+###### 6 
+
+
+at sabihin sa iyo ang mga bagay na hindi mo pa alam. May mga bagay na alam mo na at may mga bagay ding hindi mo pa alam. Alam mo bang ang parusa ng Dios sa iyo ay kulang pa sa nararapat sa iyo? 
+
+
+###### 7 
+
+
+"Kaya mo bang unawain ang lahat-lahat tungkol sa Dios? 
+
+###### 8-9 Mas mataas pa ito kaysa sa langit at mas malalim pa kaysa sa lugar ng mga patay. Mas malawak pa ito kaysa sa mundo at mas maluwang pa kaysa sa dagat. Maihahambing mo kaya ang karunungan mo sa kanya? 
+
+
+###### 10 
+
+
+"Halimbawang dakpin ka ng Dios, iharap sa hukuman at ipakulong, may makakapigil ba sa kanya? 
+
+
+###### 11 
+
+
+Alam niya kung sino ang mga mandaraya at hindi lingid sa kanya ang kanilang kasamaan. 
+
+
+###### 12 
+
+
+Ang mangmang ay imposibleng maging marunong gaya ng asnong-gubat na imposibleng manganak ng tao. 
+
+
+###### 13 
+
+
+"Job, kung magsisisi ka at lalapit sa Dios, 
+
+
+###### 14 
+
+
+at tatalikuran ang iyong mga kasalanan, at kung pati ang sambahayan mo ay magsisisi sa kanilang kasalanan, 
+
+
+###### 15 
+
+
+tiyak na hindi ka na mapapahiya, tatatag ang iyong pamumuhay at wala ka nang katatakutan. 
+
+
+###### 16 
+
+
+Makakalimutan mo na rin ang iyong paghihirap na parang tubig na umagos lang at nawala. 
+
+
+###### 17 
+
+
+At ang buhay moʼy magiging mas maliwanag pa kaysa sa sikat ng araw sa katanghaliang tapat. At ang dati mong buhay na madilim ay magiging maliwanag na parang umaga. 
+
+
+###### 18 
+
+
+Mapapanatag ang buhay mo dahil may bago kang pag-asa. Iingatan ka ng Dios at makapagpapahinga ka ng walang kinatatakutan. 
+
+
+###### 19 
+
+
+Matutulog ka ng walang mananakot sa iyo, at marami ang hihingi ng tulong sa iyo. 
+
+
+###### 20 
+
+
+Pero ang masasama ay mabibigo at walang patutunguhan. At ang tanging pag-asa nila ay kamatayan."

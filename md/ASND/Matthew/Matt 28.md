@@ -1,0 +1,132 @@
+---
+Aliases: [Matthew 28]
+previous: ['Matt 27']
+up: ['Matthew']
+---
+# Matthew 28
+
+***
+
+
+###### 1 
+
+
+Madaling-araw ng Linggo, makalipas ang Araw ng Pamamahinga, pumunta sa libingan si Maria na taga-Magdala kasama ang isa pang Maria upang tingnan ito. 
+
+
+###### 2 
+
+
+Biglang lumindol nang malakas, at isang anghel ng Panginoon ang bumaba mula sa langit at iginulong ang bato na nakatakip sa libingan at inupuan ito. 
+
+
+###### 3 
+
+
+Nakakasilaw na parang kidlat ang kanyang anyo at puting-puti ang kanyang damit. 
+
+
+###### 4 
+
+
+Nanginig sa takot ang mga sundalong nagbabantay sa libingan at hinimatay. 
+
+
+###### 5 
+
+
+Sinabi ng anghel sa mga babae, "Huwag kayong matakot! Alam kong hinahanap ninyo si Jesus na ipinako sa krus. 
+
+
+###### 6 
+
+
+Wala na siya rito, dahil nabuhay siyang muli tulad ng sinabi niya sa inyo. Halikayo, tingnan ninyo ang pinaglagyan ng kanyang bangkay." 
+
+
+###### 7 
+
+
+Pagkatapos, sinabi ng anghel sa kanila, "Puntahan nʼyo agad ang mga tagasunod niya, at sabihin ninyo sa kanila na nabuhay siyang muli at mauuna siya sa inyo sa Galilea. Doon ninyo siya makikita. Tandaan ninyo ang sinabi ko sa inyo!" 
+
+
+###### 8 
+
+
+Kaya dali-dali silang umalis sa libingan. At kahit natatakot sila, masaya pa rin sila sa ibinalita sa kanila ng anghel. Patakbo nilang pinuntahan ang mga tagasunod ni Jesus upang ibalita ang pangyayari. 
+
+
+###### 9 
+
+
+Pero maya-maya, sinalubong sila ni Jesus sa daan at binati. Lumapit sila kay Jesus, niyakap ang kanyang mga paa at sinamba siya. 
+
+
+###### 10 
+
+
+Sinabi sa kanila ni Jesus, "Huwag kayong matakot. Puntahan ninyo ang aking mga kapatid at sabihin sa kanila na pumunta sila sa Galilea. Doon nila ako makikita." 
+
+## Ang Ulat ng Mga Guwardya 
+
+
+###### 11 
+
+
+Pagkaalis ng mga babae sa libingan, pumunta naman sa lungsod ang ilan sa mga guwardya upang ibalita sa mga namamahalang pari ang nangyari. 
+
+
+###### 12 
+
+
+Matapos makipagpulong ng mga namamahalang pari sa mga pinuno ng mga Judio, sinuhulan nila ng malaking halaga ang mga bantay. 
+
+
+###### 13 
+
+
+Sinabi nila sa mga bantay, "Ipamalita ninyo na habang natutulog kayo kagabi, dumating ang mga tagasunod ni Jesus at ninakaw ang kanyang bangkay. 
+
+
+###### 14 
+
+
+Kapag narinig ito ng gobernador, kami na ang bahalang magpaliwanag sa kanya, para hindi kayo mapahamak." 
+
+
+###### 15 
+
+
+Tinanggap ng mga guwardya ang pera at ginawa ang sinabi sa kanila. Kaya hanggang ngayon, ito pa rin ang kwentong ikinakalat ng mga Judio.
+
+## Nagpakita si Jesus sa mga Tagasunod Niya 
+
+
+###### 16 
+
+
+Pumunta ang 11 tagasunod ni Jesus sa Galilea, doon sa isang bundok na sinabi sa kanila ni Jesus. 
+
+
+###### 17 
+
+
+Nang makita nila si Jesus, sumamba sila sa kanya, kahit na ang ilan ay may pagdududa. 
+
+
+###### 18 
+
+
+Lumapit sa kanila si Jesus at sinabi, "Ibinigay sa akin ang lahat ng kapangyarihan sa langit at sa lupa. 
+
+
+###### 19 
+
+
+Kaya puntahan ninyo ang lahat ng mga lahi at gawin silang mga tagasunod ko. Bautismuhan ninyo sila sa pangalan ng Ama at ng Anak at ng Banal na Espiritu. 
+
+
+###### 20 
+
+
+Turuan ninyo silang sumunod sa lahat ng iniutos ko sa inyo. At tandaan ninyo: lagi ninyo akong kasama hanggang sa katapusan ng mundo."

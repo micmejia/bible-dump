@@ -1,67 +1,67 @@
-book,md_name,chapters,verses,ab
-Genesis,Gen,50,1533,GEN
-Exodus,Exod,40,1213,EXO
-Leviticus,Lev,27,859,LEV
-Numbers,Num,36,1288,NUM
-Deuteronomy,Deut,34,959,DEU
-Joshua,Josh,24,658,JOS
-Judges,Judg,21,618,JDG
-Ruth,Ruth,4,85,RUT
-1 Samuel,1 Sam,31,810,1SA
-2 Samuel,2 Sam,24,695,2SA
-1 Kings,1 Kgs,22,816,1KI
-2 Kings,2 Kgs,25,719,2KI
-1 Chronicles,1 Chr,29,942,1CH
-2 Chronicles,2 Chr,36,822,2CH
-Ezra,Ezr,10,280,EZR
-Nehemiah,Neh,13,406,NEH
-Esther,Esth,10,167,EST
-Job,Job,42,1070,JOB
-Psalms,Ps,150,2461,PSA
-Proverbs,Prov,31,915,PRO
-Ecclesiastes,Eccl,12,222,ECC
-Song of Solomon,Song,8,117,SNG
-Isaiah,Isa,66,1292,ISA
-Jeremiah,Jer,52,1364,JER
-Lamentations,Lam,5,154,LAM
-Ezekiel,Ezek,48,1273,EZK
-Daniel,Dan,12,357,DAN
-Hosea,Hos,14,197,HOS
-Joel,Joel,3,73,JOL
-Amos,Amos,9,146,AMO
-Obadiah,Obad,1,21,OBA
-Jonah,Jonah,4,48,JON
-Micah,Mic,7,105,MIC
-Nahum,Nah,3,47,NAM
-Habakkuk,Hab,3,56,HAB
-Zephaniah,Zeph,3,53,ZEP
-Haggai,Hag,2,38,HAG
-Zechariah,Zech,14,211,ZEC
-Malachi,Mal,4,55,MAL
-Matthew,Matt,28,1071,MAT
-Mark,Mark,16,678,MRK
-Luke,Luke,24,1151,LUK
-John,John,21,879,JHN
-Acts,Acts,28,1007,ACT
-Romans,Rom,16,433,ROM
-1 Corinthians,1 Cor,16,437,1CO
-2 Corinthians,2 Cor,13,257,2CO
-Galatians,Gal,6,149,GAL
-Ephesians,Eph,6,155,EPH
-Philippians,Phil,4,104,PHP
-Colossians,Col,4,95,COL
-1 Thessalonians,1 Thess,5,89,1TH
-2 Thessalonians,2 Thess,3,47,2TH
-1 Timothy,1 Tim,6,113,1TI
-2 Timothy,2 Tim,4,83,2TI
-Titus,Titus,3,46,TIT
-Philemon,Phlm,1,25,PHM
-Hebrews,Heb,13,303,HEB
-James,Jas,5,108,JAM
-1 Peter,1 Pet,5,105,1PE
-2 Peter,2 Pet,3,61,2PE
-1 John,1 John,5,105,1JN
-2 John,2 John,1,13,2JN
-3 John,3 John,1,15,3JN
-Jude,Jude,1,25,JUD
-Revelation,Rev,22,404,REV
+book,book_asnd,md_name,chapters,verses,ab
+Genesis,Genesis,Gen,50,1533,GEN
+Exodus,Exodus,Exod,40,1213,EXO
+Leviticus,Leviticus,Lev,27,859,LEV
+Numbers,Bilang,Num,36,1288,NUM
+Deuteronomy,Deuteronomio,Deut,34,959,DEU
+Joshua,Josue,Josh,24,658,JOS
+Judges,Hukom,Judg,21,618,JDG
+Ruth,Ruth,Ruth,4,85,RUT
+1 Samuel,1 Samuel,1 Sam,31,810,1SA
+2 Samuel,2 Samuel,2 Sam,24,695,2SA
+1 Kings,1 Hari,1 Kgs,22,816,1KI
+2 Kings,2 Hari,2 Kgs,25,719,2KI
+1 Chronicles,1 Cronica,1 Chr,29,942,1CH
+2 Chronicles,2 Cronica,2 Chr,36,822,2CH
+Ezra,Ezra,Ezr,10,280,EZR
+Nehemiah,Nehemias,Neh,13,406,NEH
+Esther,Ester,Esth,10,167,EST
+Job,Job,Job,42,1070,JOB
+Psalms,Salmo,Ps,150,2461,PSA
+Proverbs,Kawikaan,Prov,31,915,PRO
+Ecclesiastes,Mangangaral,Eccl,12,222,ECC
+Song of Solomon,Awit,Song,8,117,SNG
+Isaiah,Isaias,Isa,66,1292,ISA
+Jeremiah,Jeremias,Jer,52,1364,JER
+Lamentations,Panaghoy,Lam,5,154,LAM
+Ezekiel,Ezekiel,Ezek,48,1273,EZK
+Daniel,Daniel,Dan,12,357,DAN
+Hosea,Hosea,Hos,14,197,HOS
+Joel,Joel,Joel,3,73,JOL
+Amos,Amos,Amos,9,146,AMO
+Obadiah,Obadias,Obad,1,21,OBA
+Jonah,Jonas,Jonah,4,48,JON
+Micah,Micas,Mic,7,105,MIC
+Nahum,Nahum,Nah,3,47,NAM
+Habakkuk,Habakuk,Hab,3,56,HAB
+Zephaniah,Zefanias,Zeph,3,53,ZEP
+Haggai,Hageo,Hag,2,38,HAG
+Zechariah,Zacarias,Zech,14,211,ZEC
+Malachi,Malakias,Mal,4,55,MAL
+Matthew,Mateo,Matt,28,1071,MAT
+Mark,Marcos,Mark,16,678,MRK
+Luke,Lucas,Luke,24,1151,LUK
+John,Juan,John,21,879,JHN
+Acts,Gawa,Acts,28,1007,ACT
+Romans,Roma,Rom,16,433,ROM
+1 Corinthians,1 Corinto,1 Cor,16,437,1CO
+2 Corinthians,2 Corinto,2 Cor,13,257,2CO
+Galatians,Galacia,Gal,6,149,GAL
+Ephesians,Efeso,Eph,6,155,EPH
+Philippians,Filipos,Phil,4,104,PHP
+Colossians,Colosas,Col,4,95,COL
+1 Thessalonians,1 Tesalonica,1 Thess,5,89,1TH
+2 Thessalonians,2 Tesalonica,2 Thess,3,47,2TH
+1 Timothy,1 Timoteo,1 Tim,6,113,1TI
+2 Timothy,2 Timoteo,2 Tim,4,83,2TI
+Titus,Tito,Titus,3,46,TIT
+Philemon,Filemon,Phlm,1,25,PHM
+Hebrews,Hebreo,Heb,13,303,HEB
+James,Santiago,Jas,5,108,JAM
+1 Peter,1 Pedro,1 Pet,5,105,1PE
+2 Peter,2 Pedro,2 Pet,3,61,2PE
+1 John,1 Juan,1 John,5,105,1JN
+2 John,2 Juan,2 John,1,13,2JN
+3 John,3 Juan,3 John,1,15,3JN
+Jude,Judas,Jude,1,25,JUD
+Revelation,Pahayag,Rev,22,404,REV

@@ -1,0 +1,137 @@
+---
+Aliases: [1 John 4]
+previous: ['1 John 3']
+up: ['1 John']
+next: ['1 John 5']
+---
+# 1 John 4
+
+***
+
+
+###### 1 
+
+
+Mga minamahal, huwag kayong basta maniniwala sa mga taong nagsasabi na ang ipinangangaral nilaʼy mula sa Banal na Espiritu. Sa halip, alamin muna ninyo kung nagmula nga sa Dios ang itinuturo nila. Sapagkat marami nang huwad at sinungaling na propetang nagkalat sa mundo. 
+
+
+###### 2 
+
+
+Sa ganitong paraan ninyo malalaman kung ang espiritung sumasakanila ay mula sa Dios: kung kinikilala nila na si Jesu-Cristoʼy naging tao, ang Dios mismo ang nagsugo sa kanila. 
+
+
+###### 3 
+
+
+Ngunit ang hindi kumikilala na si Jesus ay naging tao ay hindi isinugo ng Dios kundi ng espiritu ng anti-Cristo. Narinig ninyo na darating na ang anti-Cristo, at naririto na nga sa mundo. 
+
+
+###### 4 
+
+
+Ngunit mga anak ko, kayoʼy sa Dios at napagtagumpayan na ninyo ang mga huwad at sinungaling na propeta, dahil ang Espiritung nasa inyo ay higit na makapangyarihan kaysa kay Satanas, na siyang naghahari ngayon sa mga makamundo. 
+
+
+###### 5 
+
+
+Itong mga huwad at sinungaling na propetaʼy makamundo, kaya ang mga bagay ng mundo ang kanilang itinuturo, at nakikinig sa kanila ang mga makamundo. 
+
+
+###### 6 
+
+
+Ngunit tayo naman ay sa Dios. Ang mga kumikilala sa Dios ay nakikinig sa mga itinuturo natin, ngunit ang mga hindi kumikilala sa Dios ay hindi nakikinig sa atin. Sa gayong paraan natin makikilala kung sino ang nangangaral ng mula sa Espiritu ng katotohanan o sa espiritu ng kasinungalingan.
+
+## Ang Dios ay Pag-ibig 
+
+
+###### 7 
+
+
+Mga minamahal, mag-ibigan tayo dahil ang pag-ibig ay mula sa Dios. Ang umiibig sa kanyang kapwa ay anak ng Dios at kumikilala sa Dios. 
+
+
+###### 8 
+
+
+Ang sinumang hindi umiibig sa kanyang kapwa ay hindi kumikilala sa Dios dahil ang Dios ay pag-ibig. 
+
+
+###### 9 
+
+
+Ipinakita ng Dios ang kanyang pag-ibig sa atin nang isinugo niya ang kanyang kaisa-isang anak dito sa mundo, upang sa pamamagitan niya ay magkaroon tayo ng buhay na walang hanggan. 
+
+
+###### 10 
+
+
+Ito ang tunay na pag-ibig: hindi tayo ang umibig sa Dios kundi siya ang umibig sa atin; at isinugo niya ang kanyang anak upang akuin ang ating mga kasalanan para sa kapatawaran natin. 
+
+
+###### 11 
+
+
+Mga minamahal, kung ganoon na lamang ang pag-ibig ng Dios sa atin, nararapat lamang na mag-ibigan tayo. 
+
+
+###### 12 
+
+
+Wala pang tao na nakakita sa Dios. Ngunit kung nagmamahalan tayo, ang Dios ay sumasaatin at lubos na natupad ang kanyang pag-ibig sa atin. 
+
+
+###### 13 
+
+
+Nalalaman nating tayoʼy nasa Dios at ang Dios ay sumasaatin dahil ibinigay niya sa atin ang kanyang Espiritu. 
+
+
+###### 14 
+
+
+Nakita at pinatototohanan namin na isinugo ng Ama ang kanyang anak bilang Tagapagligtas ng mundo. 
+
+
+###### 15 
+
+
+Ang sinumang kumikilala na si Jesus ay Anak ng Dios, ang Dios ay nasa kanya at siya naman ay nasa Dios. 
+
+
+###### 16 
+
+
+Kaya nakilala na natin at pinaniwalaan ang pag-ibig ng Dios sa atin. Ang Dios ay pag-ibig. At ang nabubuhay nang may pag-ibig ay nananatili sa Dios at nananatili rin sa kanya ang Dios. 
+
+
+###### 17 
+
+
+Sa ganitong paraan ay naging ganap ang pag-ibig sa atin, kaya panatag tayo sa pagdating ng Araw ng Paghuhukom, dahil ang pamumuhay natin dito sa mundo ay tulad ng kay Cristo. 
+
+
+###### 18 
+
+
+Walang anumang takot sa pag-ibig. Pinapawi ng ganap na pag-ibig ang anumang takot. Kung natatakot man ang isang tao, itoʼy dahil sa takot na maparusahan, at ipinapakita lang nito na hindi pa lubos na natupad sa kanya ang pag-ibig. 
+
+
+###### 19 
+
+
+Umiibig tayo sa Dios dahil siya ang unang umibig sa atin. 
+
+
+###### 20 
+
+
+Ang nagsasabing mahal niya ang Dios ngunit napopoot naman sa kanyang kapatid ay sinungaling. Dahil kung ang kapatid niya mismo na nakikita niya ay hindi niya mahal, paano pa kaya niya magagawang mahalin ang Dios na hindi naman niya nakikita? 
+
+
+###### 21 
+
+
+Kaya ito ang utos na ibinibigay sa atin ni Cristo: ang taong nagmamahal sa Dios ay dapat ding magmahal sa kanyang kapatid.

@@ -1,0 +1,247 @@
+---
+Aliases: [Numbers 15]
+previous: ['Num 14']
+up: ['Numbers']
+next: ['Num 16']
+---
+# Numbers 15
+
+***
+
+
+###### 1 
+
+
+Inutusan ng Panginoon si Moises 
+
+
+###### 2 
+
+
+na sabihin ito sa mga Israelita: "Kapag dumating na kayo sa lupain na ibibigay ko sa inyo na inyong titirhan, 
+
+
+###### 3 
+
+
+maghandog kayo sa akin mula sa inyong mga hayop bilang mga handog sa pamamagitan ng apoy. Maghandog din kayo ng mga handog sa pagtupad ng isang panata o mga handog na kusang-loob o mga handog sa panahon ng mga pista. Ang mabangong samyo ng mga handog na sinusunog na ito ay makalulugod sa akin.
+
+###### 4-5 Ang maghahandog ng batang tupa bilang handog na sinusunog para sa akin ay maghandog din ng handog para sa pagpaparangal sa akin ng mga dalawang kilo ng magandang klaseng harina na hinaluan ng isang litrong langis. At sasamahan pa ito ng handog na inumin na isang litrong katas ng ubas. 
+
+
+###### 6 
+
+
+Kung matandang tupa ang ihahandog, sasamahan ito ng handog para sa pagpaparangal sa akin ng mga apat na kilo ng magandang klaseng harina, na hinaluan ng isaʼt kalahating litro ng langis. 
+
+
+###### 7 
+
+
+At sasamahan pa ito ng handog na inumin na isaʼt kalahating litrong katas ng ubas. Ang mabangong samyo ng handog na itoʼy makalulugod sa akin. 
+
+
+###### 8 
+
+
+"Ang maghahandog ng batang toro bilang handog na sinusunog o handog sa pagtupad ng isang panata, o handog para sa mabuting relasyon, 
+
+
+###### 9 
+
+
+ay kailangang maghandog din ng handog para sa pagpaparangal sa akin ng mga anim na kilo ng magandang klaseng harina na hinaluan ng dalawang litrong langis. 
+
+
+###### 10 
+
+
+At sasamahan pa ito ng mga handog na inumin na dalawang litrong katas ng ubas. Ang mabangong samyo ng handog na ito sa pamamagitan ng apoy ay makalulugod sa akin. 
+
+
+###### 11 
+
+
+Ito ang inyong gagawin kapag maghahandog kayo ng isang toro o matandang lalaking tupa o kambing. 
+
+
+###### 12 
+
+
+Gawin ninyo ito sa bawat hayop na inyong ihahandog. 
+
+
+###### 13 
+
+
+"Ang lahat ng katutubong Israelita na mag-aalay ng mga handog sa pamamagitan ng apoy bilang mabangong handog na makalulugod sa akin ay dapat sumunod sa mga tuntuning ito. 
+
+
+###### 14 
+
+
+Kung sa susunod pang mga henerasyon ay may mga dayuhang maninirahang kasama ninyo, panandalian man o permanente, at gustong mag-alay ng mga handog sa pamamagitan ng apoy bilang mabangong handog na makalulugod sa akin, dapat ay susundin din nila ang mga nabanggit na tuntunin. 
+
+
+###### 15 
+
+
+Kayong mga Israelita at ang mga dayuhan na naninirahang kasama ninyo ay pareho lang sa harapan ko at parehong kautusan lang ang tutuparin ninyo. Dapat ninyong sundin ang mga tuntuning ito at ng inyong lahi hanggang sa susunod pang mga henerasyon. 
+
+
+###### 16 
+
+
+Pareho lang ang mga utos at mga tuntunin ang susundin ninyo at ng mga dayuhan na naninirahang kasama ninyo." 
+
+
+###### 17 
+
+
+Inutusan pa ng Panginoon si Moises 
+
+
+###### 18 
+
+
+na sabihin sa mga Israelita: "Kapag dumating na kayo sa lupain na ibibigay sa inyo, 
+
+
+###### 19 
+
+
+makakakain kayo ng bunga ng lupaing ito. Pero dapat ibukod ang iba nito para ihandog sa akin. 
+
+
+###### 20 
+
+
+Maghandog kayo ng tinapay galing sa harina na una ninyong giniling, katulad ng inyong ginawa sa unang ani ng inyong trigo mula sa giikan. 
+
+
+###### 21 
+
+
+Ang handog na ito mula sa harina na una ninyong giniling ay ihahandog ninyo sa akin hanggang sa susunod pang mga henerasyon. 
+
+
+###### 22 
+
+
+"Kung ang ilan sa inyo ay nasuway ang isa sa mga utos na ibinigay ko kay Moises nang hindi sinasadya, 
+
+
+###### 23 
+
+
+(ang mga utos na ibinigay ko sa inyo sa pamamagitan ni Moises, dapat nʼyong sundin mula sa araw na ibinigay ko ito hanggang sa susunod pang mga henerasyon) 
+
+
+###### 24 
+
+
+kung hindi nga sinasadya ang paggawa nito, at hindi rin alam ng buong kapulungan na pagsuway pala ito, ang buong kapulungan ang maghahandog ng isang batang toro bilang handog na sinusunog sa panahon na nalaman ninyo ang inyong pagsuway. Ang mabangong samyo ng handog na itoʼy makalulugod sa Panginoon. Isama rin ninyo ang mga kinakailangang mga handog para sa pagpaparangal sa akin at mga handog na inumin at isang lalaking kambing bilang handog sa paglilinis. 
+
+
+###### 25 
+
+
+Ihahandog ito ng pari para matubos ang buong mamamayan ng Israel sa kanilang kasalanan. Patatawarin ko sila dahil hindi naman ito sinasadya, at maghahandog din sila sa akin ng mga handog sa pamamagitan ng apoy at ng handog sa paglilinis. 
+
+
+###### 26 
+
+
+Patatawarin ko ang buong mamamayan ng Israel, pati ang mga dayuhan na naninirahan kasama nila, dahil sangkot ang lahat sa kasalanang iyon na hindi sinasadya. 
+
+
+###### 27 
+
+
+"Pero kung isang tao lang ang nagkasala nang hindi sinasadya, magdadala siya ng isang babaeng kambing na isang taong gulang, bilang handog sa paglilinis. 
+
+
+###### 28 
+
+
+Ihahandog ito ng pari sa aking presensya para matubos ang taong iyon sa kanyang kasalanang hindi sinasadya, at pagkatapos, patatawarin ko siya. 
+
+
+###### 29 
+
+
+Iisa lang ang tuntunin para sa lahat ng nagkasala nang hindi sinasadya, katutubong Israelita man o dayuhan na naninirahan kasama ninyo. 
+
+
+###### 30 
+
+
+"Pero, ang sinumang nagkasala nang sinadya, katutubo na Israelita man o hindi, na lumapastangan sa Panginoon, kailangang huwag na ninyong ituring na kababayan. 
+
+
+###### 31 
+
+
+Dahil sa itinakwil niya ang salita ng Panginoon at sinuway niya ang utos nito. Huwag na siyang ituturing na kabilang sa inyo. Mananagot siya sa kanyang mga kasalanan." 
+
+## Ang Parusa sa Hindi Pagsunod sa Araw ng Pamamahinga 
+
+
+###### 32 
+
+
+Habang naroon sa ilang ang mga Israelita, may nakita silang tao na nangangahoy sa Araw ng Pamamahinga. 
+
+
+###### 33 
+
+
+Dinala siya ng mga tao na nakakita sa kanya kina Moises at Aaron, at sa buong kapulungan. 
+
+
+###### 34 
+
+
+Ikinulong nila siya, dahil hindi sila nakasisiguro kung ano ang dapat gawin sa kanya. 
+
+
+###### 35 
+
+
+Pagkatapos, sinabi ng Panginoon kay Moises, "Kailangang patayin ang taong iyan, babatuhin siya ng buong kapulungan sa labas ng kampo." 
+
+
+###### 36 
+
+
+Kaya dinala siya ng mga tao sa labas ng kampo at pinagbabato hanggang sa mamatay, ayon sa iniutos ng Panginoon kay Moises. 
+
+
+###### 37 
+
+
+Inutusan pa ng Panginoon si Moises 
+
+
+###### 38 
+
+
+na sabihin ito sa mga Israelita: "Gumawa kayo ng mga palawit sa laylayan ng inyong mga damit at lagyan ninyo ito ng taling kulay asul. Kailangang sundin ninyo ito hanggang sa susunod pang mga henerasyon. 
+
+
+###### 39 
+
+
+Ang mga palawit na ito ang magpapaalala sa inyo ng lahat kong mga utos para sundin ninyo ito at hindi ang inyong kagustuhan lang ang inyong gawin. 
+
+
+###### 40 
+
+
+Sa pamamagitan ng mga palawit na ito, maaalala ninyo ang pagtupad sa aking kasunduan, at magiging akin kayo. 
+
+
+###### 41 
+
+
+Ako ang Panginoon na inyong Dios na naglabas sa inyo sa Egipto para maging inyong Dios. Ako ang Panginoon na inyong Dios."

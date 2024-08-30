@@ -1,0 +1,136 @@
+---
+Aliases: [Isaiah 51]
+previous: ['Isa 50']
+up: ['Isaiah']
+next: ['Isa 52']
+---
+# Isaiah 51
+
+***
+###### 1-2 Sinabi ng Panginoon, "Makinig kayo sa akin, kayong mga gustong maligtas at humihingi ng tulong sa akin. Alalahanin ninyo sina Abraham at Sara na inyong mga ninuno. Katulad sila ng batong pinagtibagan sa inyo o pinaghukayan sa inyo. Noong tinawag ko si Abraham, nag-iisa siya, pero pinagpala ko siya at binigyan ng maraming lahi. 
+
+
+###### 3 
+
+
+"Kaaawaan ko ang Jerusalem na nawasak. Ang mga disyerto nito ay gagawin kong parang halamanan ng Eden. Maghahari sa Jerusalem ang kagalakan, pasasalamat at pag-aawitan. 
+
+
+###### 4 
+
+
+"Mga mamamayan ko, makinig kayo sa akin. Dinggin ninyo ako, O bansa ko! Ibibigay ko ang aking kautusan at magsisilbi itong ilaw sa mga bansa. 
+
+
+###### 5 
+
+
+Malapit ko na kayong bigyan ng tagumpay. Hindi magtatagal at ililigtas ko na kayo. Ako ang mamamahala sa mga bansa. Ang mga nasa malalayong lugar ay maghihintay sa akin at maghahangad ng aking kapangyarihan. 
+
+
+###### 6 
+
+
+Tingnan ninyo ang langit at ang mundo. Mawawala ang langit na parang usok, masisira ang mundo na parang damit, at mamamatay ang mga mamamayan nito na parang mga kulisap. Pero ang kaligtasan na aking ibibigay ay mananatili magpakailanman. Ang tagumpay at katuwiran na mula sa akin ay mapapasainyo magpakailanman. 
+
+
+###### 7 
+
+
+Makinig kayo sa akin, kayong mga nakakaalam kung ano ang tama at sumusunod sa aking kautusan! Huwag kayong matatakot sa mga panghihiya at pangungutya ng mga tao sa inyo. 
+
+
+###### 8 
+
+
+Sapagkat matutulad sila sa damit na nginatngat ng mga kulisap. Pero ang tagumpay at katuwiran na aking ibibigay ay mananatili magpakailanman. Ang kaligtasang mula sa akin ay mapapasainyo magpakailanman." 
+
+
+###### 9 
+
+
+Sige na, Panginoon, tulungan nʼyo na po kami. Gamitin nʼyo na ang inyong kapangyarihan sa pagliligtas sa amin. Tulungan nʼyo kami katulad ng ginawa nʼyo noon. Hindi baʼt kayo ang tumadtad sa dragon na si Rahab? 
+
+
+###### 10 
+
+
+Hindi baʼt kayo rin po ang nagpatuyo ng dagat, gumawa ng daan sa gitna nito para makatawid ang inyong mga mamamayan na iniligtas nʼyo sa Egipto? 
+
+
+###### 11 
+
+
+Ang inyong mga tinubos ay babalik sa Zion na nag-aawitan at may kagalakan magpawalang hanggan. Mawawala na ang kanilang mga kalungkutan, at mag-uumapaw ang kanilang kaligayahan. 
+
+
+###### 12 
+
+
+Sumagot ang Panginoon, "Ako ang nagpapalakas at nagpapaligaya sa inyo. Kaya bakit kayo matatakot sa mga taong katulad ninyo na mamamatay din lang na parang damo? 
+
+
+###### 13 
+
+
+Ako baʼy nakalimutan na ninyo? Ako na lumikha sa inyo? Ako ang nagladlad ng langit at naglagay ng pundasyon ng mundo. Bakit nabubuhay kayong natatakot sa galit ng mga umaapi at gustong lumipol sa inyo? Ang kanilang galit ay hindi makakapinsala sa inyo. 
+
+
+###### 14 
+
+
+Hindi magtatagal at ang mga bihag ay palalayain. Hindi sila mamamatay sa kanilang piitan at hindi rin sila mawawalan ng pagkain. 
+
+
+###### 15 
+
+
+Sapagkat ako ang Panginoon na inyong Dios. Kapag kinalawkaw ko ang dagat ay umuugong ang mga alon. Panginoong Makapangyarihan ang aking pangalan. 
+
+
+###### 16 
+
+
+Itinuro ko sa inyo ang ipinasasabi ko, at ipinagtatanggol ko kayo sa pamamagitan ng aking kapangyarihan. Ako ang naglagay ng langit at ng pundasyon ng mundo, at ako ang nagsabi sa Israel, 'Ikaw ang aking mamamayan.' " 
+
+
+###### 17 
+
+
+Jerusalem, bumangon ka! Ang galit ng Panginoon ay parang alak na ininom mong lahat hanggang sa ikaw ay magpasuray-suray sa kalasingan. 
+
+
+###### 18 
+
+
+Wala ni isa man sa iyong mga tauhan ang aalalay sa iyo; wala ni isa man sa kanila ang tutulong sa iyo. 
+
+
+###### 19 
+
+
+Dalawang sakuna ang nangyari sa iyo: Nawasak ka dahil sa digmaan, at nagtiis ng gutom ang iyong mga mamamayan. Walang naiwan sa mga mamamayan mo, na lilingap at aaliw sa iyo. 
+
+
+###### 20 
+
+
+Nanlulupaypay sila at nakahandusay sa mga lansangan. Para silang mga usa na nahuli sa bitag. Dumanas sila ng matinding galit ng Panginoon; sinaway sila ng iyong Dios. 
+
+
+###### 21 
+
+
+Kaya pakinggan ninyo ito, kayong mga nasa matinding hirap at nalasing ng hindi dahil sa alak. 
+
+
+###### 22 
+
+
+Ito ang sinasabi ng Panginoon ninyong Dios na kumakalinga sa inyo: "Makinig kayo! Inalis ko na ang aking galit na parang alak na nakapagpalasing sa inyo. Hindi ko na kayo paiinuming muli nito. 
+
+
+###### 23 
+
+
+Ibibigay ko ito sa mga nagpahirap sa inyo, sa mga nag-utos sa inyo na dumapa para tapakan nila kayo. Tinapakan nila ang inyong mga likod na para bang dumadaan sila sa lansangan."

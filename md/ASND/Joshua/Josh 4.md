@@ -1,0 +1,153 @@
+---
+Aliases: [Joshua 4]
+previous: ['Josh 3']
+up: ['Joshua']
+next: ['Josh 5']
+---
+# Joshua 4
+
+***
+
+
+###### 1 
+
+
+Nang makatawid na ang lahat ng mamamayan ng Israel sa Ilog ng Jordan, sinabi ng Panginoon kay Josue, 
+
+
+###### 2 
+
+
+"Pumili ka ng 12 lalaki, isa sa bawat lahi, 
+
+
+###### 3 
+
+
+at utusan ang bawat isa sa kanila na kumuha ng isang bato sa gitna ng ilog, doon sa kinatatayuan ng mga pari. Pagkatapos, dadalhin nila ito sa lugar na tutuluyan nʼyo ngayong gabi." 
+
+
+###### 4 
+
+
+Kaya tinawag ni Josue ang 12 lalaki na pinili niya mula sa bawat lahi ng Israel at sinabi, 
+
+
+###### 5 
+
+
+"Pumunta kayo sa gitna ng ilog, sa harap ng Kahon ng Kasunduan ng Panginoon na inyong Dios. Ang bawat isa sa inyoʼy kumuha ng isang malaking bato para sa bawat lahi ng Israel at pasanin ito. 
+
+
+###### 6 
+
+
+Gawin nʼyo agad itong monumento bilang alaala sa ginawa ng Panginoon. Sa darating na panahon, kapag nagtanong ang mga anak nʼyo kung ano ang ibig sabihin ng mga batong ito, 
+
+
+###### 7 
+
+
+sabihin nʼyo sa kanila na huminto sa pagdaloy ang Ilog ng Jordan nang itinawid dito ang Kahon ng Kasunduan ng Panginoon. Ang mga batong ito ay isang alaala para sa mga mamamayan ng Israel magpakailanman." 
+
+
+###### 8 
+
+
+Sinunod ng 12 Israelita ang iniutos sa kanila ni Josue, ayon sa sinabi ng Panginoon. Kumuha sila ng 12 bato sa gitna ng ilog, isang bato para sa bawat lahi ng Israel. Dinala nila ang mga bato sa kampo nila at inilagay doon. 
+
+
+###### 9 
+
+
+Naglagay din si Josue ng 12 bato sa gitna ng ilog, sa lugar na kinatatayuan mismo ng mga paring buhat ang Kahon ng Kasunduan. Hanggang ngayon nandoon pa ang mga batong iyon. 
+
+
+###### 10 
+
+
+Nanatiling nakatayo sa gitna ng ilog ang mga pari hanggang sa matapos ng mga tao ang lahat ng iniutos ng Panginoon kay Josue, na ayon din sa iniutos ni Moises kay Josue. 
+
+
+###### 11 
+
+
+Nang makatawid na silang lahat, itinawid din ang Kahon ng Kasunduan. At nauna ulit ang mga pari sa mga tao. 
+
+
+###### 12 
+
+
+Tumawid din at nauna sa mga tao ang mga lalaking armado mula sa lahi nina Reuben, Gad at kalahating lahi ni Manase, ayon sa iniutos ni Moises sa kanila. 
+
+
+###### 13 
+
+
+Ang 40,000 armadong lalaki ay dumaan sa presensya ng Panginoon at pumunta sa Kapatagan ng Jerico para makipaglaban. 
+
+
+###### 14 
+
+
+Nang araw na iyon, pinarangalan ng Panginoon si Josue sa harap ng mga Israelita. At iginalang si Josue ng mga tao sa buong buhay niya gaya ng ginawa ng mga tao kay Moises. 
+
+
+###### 15 
+
+
+Pagkatawid noon ng mga Israelita sa Ilog ng Jordan, sinabi ng Panginoon kay Josue, 
+
+
+###### 16 
+
+
+"Utusan mo ang mga paring may buhat ng Kahon ng Kasunduan, na umahon na sila sa Ilog ng Jordan." 
+
+
+###### 17 
+
+
+At sinunod iyon ni Josue. 
+
+
+###### 18 
+
+
+Kaya umahon ang mga pari na dala ang Kahon ng Kasunduan ng Panginoon. At pagtapak nila sa pampang, dumaloy ulit ang tubig at umapaw gaya ng dati. 
+
+
+###### 19 
+
+
+Ang pagtawid ng mga Israelita sa Ilog ng Jordan ay nangyari nang ikasampung araw ng unang buwan. Pagkatapos, nagkampo ang mga Israelita sa Gilgal, sa gawing silangan ng Jerico. 
+
+
+###### 20 
+
+
+Doon ipinalagay ni Josue ang 12 bato na ipinakuha niya sa Ilog ng Jordan. 
+
+
+###### 21 
+
+
+Sinabi ni Josue sa mga Israelita, "Sa darating na panahon, kapag nagtanong sa inyo ang mga anak nʼyo kung anong ibig sabihin ng mga batong ito, 
+
+
+###### 22 
+
+
+sabihin nʼyo na lumakad sa tuyong lupa ang mga Israelita nang tumawid sila sa Ilog ng Jordan. 
+
+
+###### 23 
+
+
+Sabihin nʼyo sa kanila na pinatuyo ng Panginoon na inyong Dios ang Ilog ng Jordan hanggang sa makatawid kayo, gaya ng ginawa niya sa Dagat na Pula hanggang sa makatawid tayo. 
+
+
+###### 24 
+
+
+Ginawa niya ito para kilalanin ng lahat ng mga tao sa mundo na makapangyarihan ang Panginoon at upang lagi kayong magkaroon ng takot sa Panginoon na inyong Dios."

@@ -1,0 +1,205 @@
+---
+Aliases: [Luke 15]
+previous: ['Luke 14']
+up: ['Luke']
+next: ['Luke 16']
+---
+# Luke 15
+
+***
+
+
+###### 1 
+
+
+Maraming maniningil ng buwis at iba pang mga itinuturing na makasalanan ang pumunta kay Jesus upang makinig sa kanya. 
+
+
+###### 2 
+
+
+Kaya nagreklamo ang mga Pariseo at mga tagapagturo ng Kautusan. Sinabi nila, "Ang taong itoʼy tumatanggap ng mga makasalanan at kumakaing kasama nila." 
+
+
+###### 3 
+
+
+Kaya kinuwentuhan sila ni Jesus, 
+
+
+###### 4 
+
+
+"Kung kayo ay may 100 tupa at nawala ang isa, ano ang gagawin ninyo? Hindi baʼt iiwan ninyo ang 99 sa pastulan at hahanapin ang nawawala hanggang sa makita ninyo? 
+
+
+###### 5 
+
+
+At kapag nakita na ninyo, masaya ninyo itong papasanin pauwi. 
+
+
+###### 6 
+
+
+Pagkatapos, tatawagin ninyo ang inyong mga kaibigan at kapitbahay ninyo at sasabihin sa kanila, 'Makipagsaya kayo sa akin, dahil nakita ko na ang nawawala kong tupa.' " 
+
+
+###### 7 
+
+
+At sinabi ni Jesus, "Ganoon din sa langit, masayang-masaya sila roon dahil sa isang makasalanang nagsisisi kaysa sa 99 na matuwid na hindi nangangailangang magsisi." 
+
+## Ang Nawawalang Salaping Pilak 
+
+
+###### 8 
+
+
+"Halimbawa naman, may isang babaeng may sampung salaping pilak at nawala ang isa. Hindi baʼt sisindihan niya ang ilaw, wawalisan ang bahay, at hahanaping mabuti ang nawawalang salapi hanggang sa makita niya ito? 
+
+
+###### 9 
+
+
+Pagkatapos, tatawagin niya ang mga kaibigan at kapitbahay niya at sasabihin sa kanila, 'Makipagsaya kayo sa akin, dahil nakita ko na ang nawawala kong salapi.' " 
+
+
+###### 10 
+
+
+At sinabi ni Jesus, "Ganoon din sa langit, masayang-masaya ang mga anghel ng Dios dahil sa isang makasalanang nagsisi." 
+
+## Ang Naglayas na Anak 
+
+
+###### 11 
+
+
+Nagpatuloy si Jesus sa kanyang pagkukwento, "May isang ama na may dalawang anak na lalaki. 
+
+
+###### 12 
+
+
+Sinabi ng bunso sa kanyang ama, 'Ama, ibigay nʼyo na sa akin ang bahaging mamanahin ko!' Kaya hinati ng ama ang ari-arian niya sa dalawa niyang anak. 
+
+
+###### 13 
+
+
+Pagkalipas ng ilang araw, ipinagbili ng bunso ang lahat ng minana niya at pumunta sa malayong bayan. Doon niya ginastos ang lahat sa walang kwentang pamumuhay. 
+
+
+###### 14 
+
+
+Nang maubos na ang pera niya, nagkaroon ng matinding taggutom sa lupaing iyon, at naghirap siya. 
+
+
+###### 15 
+
+
+Kaya namasukan siya bilang tagapag-alaga ng baboy sa isang taga-roon. 
+
+
+###### 16 
+
+
+Sa tindi ng kanyang gutom, parang gusto na niyang kainin kahit pagkain ng mga baboy, dahil walang nagbibigay sa kanya ng makakain. 
+
+
+###### 17 
+
+
+"Nang mapag-isip-isip niya ang lahat, sinabi niya sa kanyang sarili, 'Sa amin kahit ang mga utusan ng aking ama ay may sapat na pagkain at sobra pa, pero ako rito ay halos mamatay na sa gutom. 
+
+
+###### 18 
+
+
+Babalik na lang ako sa amin at sasabihin ko sa aking ama, "Ama, nagkasala po ako sa Dios at sa inyo. 
+
+
+###### 19 
+
+
+Hindi na ako karapat-dapat na tawaging anak ninyo. Gawin nʼyo na lang akong isa sa mga utusan ninyo." ' 
+
+
+###### 20 
+
+
+Kaya bumalik siya sa kanyang ama. Malayo pa ay natanaw na siya ng kanyang ama at naawa ito sa kanya, kaya patakbo siya nitong sinalubong, niyakap at hinalikan. 
+
+
+###### 21 
+
+
+Sinabi ng anak sa kanyang ama, 'Ama, nagkasala po ako sa Dios at sa inyo. Hindi na ako karapat-dapat na tawaging anak ninyo.' 
+
+
+###### 22 
+
+
+Pero tinawag ng ama ang mga utusan niya, 'Madali! Dalhin nʼyo rito ang pinakamagandang damit at bihisan siya. Lagyan ninyo ng singsing ang daliri niya at suotan ninyo ng sandalyas ang mga paa niya. 
+
+
+###### 23 
+
+
+At kumuha kayo ng batang baka na pinataba natin, at katayin ninyo. Magdiwang tayo 
+
+
+###### 24 
+
+
+dahil ang anak ko na akala koʼy patay na ay bumalik na buhay. Nawala siya, pero muling nakita.' Kaya nagsimula silang magdiwang. 
+
+
+###### 25 
+
+
+"Samantala, nasa bukid noon ang anak na panganay at nagtatrabaho. Nang pauwi na siya at malapit na sa kanila, narinig niya ang tugtugan at sayawan sa bahay nila. 
+
+
+###### 26 
+
+
+Tinawag niya ang isang utusan at tinanong, 'Bakit? Anong mayroon sa bahay?' 
+
+
+###### 27 
+
+
+Sumagot ang utusan, 'Dumating ang kapatid nʼyo kaya ipinakatay ng inyong ama ang pinatabang baka upang ihanda, dahil bumalik siyang ligtas at nasa mabuting kalagayan.' 
+
+
+###### 28 
+
+
+Nagalit ang panganay at ayaw pumasok sa bahay. Kaya pinuntahan siya ng kanyang ama at pinakiusapang pumasok. 
+
+
+###### 29 
+
+
+Pero sumagot siya, 'Pinaglingkuran ko kayo ng tapat sa loob ng maraming taon at kailanman ay hindi ko sinuway ang utos ninyo. Pero kahit minsan ay hindi ninyo ako binigyan ng kahit isang batang kambing para makapaghanda ako at makapagsaya kasama ang mga kaibigan ko. 
+
+
+###### 30 
+
+
+Pero nang dumating ang anak ninyong lumustay ng kayamanan ninyo sa mga babaeng bayaran, ipinagpatay nʼyo pa ng pinatabang baka.' 
+
+
+###### 31 
+
+
+Sumagot ang ama, 'Anak, lagi tayong magkasama at ang lahat ng ari-arian ko ay sa iyo. 
+
+
+###### 32 
+
+
+Dapat lang na magsaya tayo dahil ang kapatid mo na inakala nating patay na ay bumalik na buhay. Nawala siya, pero muling nakita!' "

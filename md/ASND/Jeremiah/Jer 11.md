@@ -1,0 +1,141 @@
+---
+Aliases: [Jeremiah 11]
+previous: ['Jer 10']
+up: ['Jeremiah']
+next: ['Jer 12']
+---
+# Jeremiah 11
+
+***
+
+
+###### 1 
+
+
+Sinabi ng Panginoon kay Jeremias, 
+
+
+###### 2 
+
+
+"Ipaalala mo sa mga taga-Juda at taga-Jerusalem ang mga dapat sundin sa kasunduan namin. 
+
+
+###### 3 
+
+
+Sabihin mo sa kanila na ako, ang Panginoon, ang Dios ng Israel, ay nagsasabing isusumpa ko ang taong ayaw sumunod sa mga sinasabi sa kasunduang ito. 
+
+
+###### 4 
+
+
+Ang mga utos kong ito ay ipinatupad ko sa inyong mga ninuno noong inilabas ko sila sa Egipto, sa lugar na parang nagniningas na pugon na tunawan ng bakal. Sinabi ko sa kanila, 'Kung susundin ninyo ako at ang lahat ng utos ko, magiging mga mamamayan ko kayo at akoʼy magiging Dios ninyo. 
+
+
+###### 5 
+
+
+Nang sa ganoon, tutuparin ko ang aking ipinangako sa inyong mga ninuno na bibigyan ko sila ng maganda at masaganang lupain – ang lupaing tinitirhan ninyo ngayon.' " At sinabi ko, "Siya nawa, Panginoon." 
+
+
+###### 6 
+
+
+Pagkatapos, muling sinabi sa akin ng Panginoon, "Pumunta ka sa mga bayan ng Juda at sa mga lansangan ng Jerusalem at sabihin mo ito: 'Alalahanin ninyo ang kasunduan ninyo at sundin ninyo ang isinasaad sa kasunduang ito. 
+
+
+###### 7 
+
+
+Mula nang inilabas ko ang mga ninuno ninyo sa Egipto hanggang ngayon, paulit-ulit ko silang pinagsasabihan na dapat nila akong sundin. 
+
+
+###### 8 
+
+
+Pero hindi sila nakinig at hindi nila pinansin ang sinabi ko. Sa halip, sinunod nila ang nais ng matitigas at masasama nilang puso. Sinabi ko sa kanila na sundin nila ang kasunduang ito, pero hindi nila ito sinunod. Kaya ipinadala ko sa kanila ang lahat ng sumpa na nakasaad sa kasunduan.' " 
+
+
+###### 9 
+
+
+Muling sinabi ng Panginoon sa akin, "Ang mga taga-Juda at taga-Jerusalem ay may balak na masama laban sa akin. 
+
+
+###### 10 
+
+
+Tinularan nila ang mga kasalanan ng mga ninuno nilang hindi naniwala sa mga salita ko. Sumamba rin sila sa mga dios-diosan. Ang mga mamamayan ng Israel at Juda ay parehong sumuway sa kasunduang ginawa ko sa mga ninuno nila. 
+
+
+###### 11 
+
+
+Kaya ako, ang Panginoon, ay nagsasabi na magpapadala ako sa kanila ng kaparusahan na hindi nila matatakasan. At kahit na humingi sila ng tulong sa akin, hindi ko sila pakikinggan. 
+
+
+###### 12 
+
+
+Kaya hihingi na lang sila ng tulong sa mga dios-diosang pinaghahandugan nila ng insenso, pero hindi naman sila matutulungan ng mga dios-diosang ito kapag dumating na ang kaparusahan. 
+
+
+###### 13 
+
+
+"Kayong mga taga-Juda, kay dami nʼyong dios-diosan, kasindami ng mga bayan ninyo. At kung gaano karami ang lansangan sa Jerusalem, ganoon din karami ang altar na itinayo nʼyo para pagsunugan ng insenso para sa kasuklam-suklam na dios-diosang si Baal. 
+
+
+###### 14 
+
+
+"Kaya Jeremias, huwag ka nang mananalangin para sa mga taong ito. Huwag ka nang magmakaawa sa akin para sa kanila dahil hindi ko sila sasagutin kung tatawag sila sa akin sa oras ng paghihirap nila. 
+
+
+###### 15 
+
+
+Gumawa ng maraming kasamaan ang mga mamamayan na minamahal ko. Wala silang karapatang pumunta sa templo ko. Hindi mapipigilan ng mga handog nila ang kaparusahang darating sa kanila. Tuwang-tuwa pa sila sa paggawa ng masama." 
+
+
+###### 16 
+
+
+Noong una ay inihambing sila ng Panginoon sa isang malagong puno ng olibo na maraming bunga. Pero sa biglang pagdaan ng naglalagablab na apoy ay mawawasak sila na parang sinunog na mga sanga at hindi na mapapakinabangan pa. 
+
+
+###### 17 
+
+
+Ang Panginoong Makapangyarihan ang nagtayo sa Juda at Israel, pero ngayon ay iniutos niyang wasakin ang mga ito, dahil masama ang ginagawa nila. Ginalit nila ang Panginoon sa pamamagitan ng paghahandog ng mga sinusunog na insenso kay Baal.
+
+## Ang Balak Laban kay Jeremias 
+
+
+###### 18 
+
+
+Sinabi sa akin ng Panginoon ang tungkol sa balak ng mga kaaway laban sa akin. 
+
+
+###### 19 
+
+
+Tulad ako ng isang tupang dinadala sa katayan nang hindi ko nalalaman. Hindi ko alam na may balak pala silang patayin ako. Sinabi nila, "Patayin natin siya katulad ng pagputol sa isang puno na may mga bunga, para mawala siya sa mundo at hindi na maalala." 
+
+
+###### 20 
+
+
+Pero nanalangin ako, "O Panginoong Makapangyarihan, matuwid po ang paghatol ninyo. Nalalaman po ninyo ang isip at puso ng tao. Ipakita nʼyo po sa akin ang paghihiganti nʼyo sa kanila, dahil ipinaubaya ko sa inyo ang usaping ito!"
+
+###### 21-22
+
+Nais ng mga taga-Anatot na patayin ako kung hindi ako titigil sa pagpapahayag ng mensahe ng Panginoon. Kaya ito ang sinasabi ng Panginoong Makapangyarihan, "Parurusahan ko sila. Mamamatay sa digmaan ang mga kabataan nilang lalaki at mamamatay sa gutom ang mga anak nila. 
+
+
+###### 23 
+
+
+Walang matitirang buhay sa mga taga-Anatot, dahil malilipol sila sa oras na parusahan ko na sila."

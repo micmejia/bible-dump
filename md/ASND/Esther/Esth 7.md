@@ -1,0 +1,69 @@
+---
+Aliases: [Esther 7]
+previous: ['Esth 6']
+up: ['Esther']
+next: ['Esth 8']
+---
+# Esther 7
+
+***
+
+
+###### 1 
+
+
+Dumalo sina Haring Ahasuerus at Haman sa inihandang hapunan ni Reyna Ester. 
+
+
+###### 2 
+
+
+At habang nag-iinuman sila, tinanong muli ng hari si Reyna Ester, "Ano ba talaga ang kahilingan mo? Sabihin mo na at ibibigay ko sa iyo kahit kalahati ng kaharian ko." 
+
+
+###### 3 
+
+
+"Mahal na Hari, kung kalugod-lugod po ako sa inyo, iligtas po ninyo ako at ang mga kalahi kong Judio. Iyan ang kahilingan ko sa inyo. 
+
+
+###### 4 
+
+
+Dahil may gantimpalang ipinangako sa mga taong papatay sa amin. Kung ipinagbili po kami para maging alipin lang, magsasawalang-kibo na lang ako, dahil hindi iyon gaanong mahalaga para gambalain ko pa kayo." 
+
+
+###### 5 
+
+
+Sinabi ni Haring Ahasuerus, "Sino ang nangahas na gumawa ng bagay na iyon at nasaan siya ngayon?" 
+
+
+###### 6 
+
+
+Sumagot si Ester, "Ang kumakalaban po sa amin at ang kaaway namin ay ang masamang si Haman." Takot na takot si Haman habang nasa harap ng hari at ng reyna. 
+
+
+###### 7 
+
+
+Galit na galit na tumayo ang hari. Iniwan niya ang kanyang iniinom at pumunta sa hardin ng palasyo. Naiwan si Haman na nagmamakaawa kay Reyna Ester dahil natitiyak niyang parurusahan siya ng hari. 
+
+
+###### 8 
+
+
+Pagbalik ng hari mula sa hardin, nakita niyang nakadapa si Haman na nagmamakaawa sa harap ng hinihigaan ni Ester. Kaya sinabi ng hari, "At gusto mo pang pagsamantalahan ang reyna rito sa loob ng palasyo ko!" Nang masabi iyon ng hari, dinakip ng mga naroon si Haman at tinalukbungan ang ulo nito. 
+
+
+###### 9 
+
+
+Sinabi ni Harbona, isa sa mga lingkod ng hari, "Nagpagawa po si Haman ng matulis na kahoy para tuhugin si Mordecai, na nagligtas sa inyong buhay. Ang taas po ng kahoy ay 75 talampakan at malapit ito sa bahay ni Haman." 
+
+
+###### 10 
+
+
+Kaya nag-utos ang hari, "Doon ninyo siya tuhugin!" At tinuhog nga nila si Haman doon sa ipinagawa niyang matulis na kahoy para kay Mordecai. At nawala ang galit ng hari.

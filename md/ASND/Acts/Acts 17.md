@@ -1,0 +1,217 @@
+---
+Aliases: [Acts 17]
+previous: ['Acts 16']
+up: ['Acts']
+next: ['Acts 18']
+---
+# Acts 17
+
+***
+
+
+###### 1 
+
+
+Dumaan sila sa Amfipolis at sa Apolonia hanggang sa nakarating sila sa Tesalonica. May sambahan ng mga Judio roon. 
+
+
+###### 2 
+
+
+At ayon sa nakagawian ni Pablo, pumasok siya doon sa sambahan. At sa loob ng tatlong Araw ng Pamamahinga, nakipagdiskusyon siya sa mga tao roon. Ginamit niya ang Kasulatan 
+
+
+###### 3 
+
+
+para patunayan sa kanila na ang Cristo ay kinakailangang magtiis at muling mabuhay. Sinabi ni Pablo, "Itong Jesus na aking ipinapahayag sa inyo ay ang Cristo." 
+
+
+###### 4 
+
+
+Ang iba sa kanilaʼy naniwala at sumama kina Pablo at Silas. Marami ring mga Griego na sumasamba sa Dios at mga kilalang babae ang sumama sa kanila. 
+
+
+###### 5 
+
+
+Pero nainggit ang mga Judio kina Pablo at Silas. Kaya tinipon nila ang mga basagulerong tambay sa kanto. At nang marami na silang natipon, nagsimula silang manggulo sa buong lungsod. Nilusob nila ang bahay ni Jason sa paghahanap kina Pablo at Silas para iharap sila sa mga tao. 
+
+
+###### 6 
+
+
+Pero nang hindi nila makita sina Pablo at Silas, hinuli nila si Jason at ang iba pang mga mananampalataya. Kinaladkad nila ang mga ito papunta sa mga opisyal ng lungsod, at sumigaw sila, "Ang mga taong itoʼy nagdadala ng gulo kahit saan sila pumunta dahil sa kanilang itinuturo. At ngayon, narito na sila sa ating lungsod. 
+
+
+###### 7 
+
+
+Pinatuloy ni Jason sina Pablo at Silas sa kanyang bahay. Silang lahat ay kumakalaban sa mga kautusan ng Emperador, dahil sinasabi nilang may iba pang hari na ang pangalan ay Jesus." 
+
+
+###### 8 
+
+
+Nang marinig iyon ng mga tao at ng mga opisyal, nagkagulo sila. 
+
+
+###### 9 
+
+
+Bago nila pinakawalan si Jason at ang kanyang mga kasama, pinagpiyansa muna sila.
+
+## Sina Pablo at Silas sa Berea 
+
+
+###### 10 
+
+
+Kinagabihan, pinapunta ng mga mananampalataya sina Pablo at Silas sa Berea. Pagdating nila roon, pumunta sila sa sambahan ng mga Judio. 
+
+
+###### 11 
+
+
+Mas bukas ang kaisipan ng mga taga-Berea kaysa sa mga taga-Tesalonica. Gustong-gusto nilang makinig sa mga itinuturo nina Pablo. At araw-araw nilang sinasaliksik ang Kasulatan para tingnan kung totoo nga ang mga sinasabi nina Pablo. 
+
+
+###### 12 
+
+
+Marami sa kanila ang sumampalataya kabilang dito ang mga Griegong babae na kilala sa lipunan at mga Griegong lalaki. 
+
+
+###### 13 
+
+
+Pero nang marinig ng mga Judio sa Tesalonica na nangaral si Pablo ng salita ng Dios sa Berea, pumunta sila roon at sinulsulan ang mga tao na manggulo. 
+
+
+###### 14 
+
+
+Kaya inihatid ng mga mananampalataya si Pablo sa tabing-dagat. Pero sina Silas at Timoteo ay nagpaiwan sa Berea. 
+
+
+###### 15 
+
+
+Ang mga taong naghatid kay Pablo ay sumama sa kanya hanggang sa Athens. Pagkatapos, bumalik sila sa Berea na dala ang bilin ni Pablo na pasunurin sa kanya sa Athens sina Silas at Timoteo.
+
+## Nangaral si Pablo sa Athens 
+
+
+###### 16 
+
+
+Habang naghihintay si Pablo kina Silas at Timoteo sa Athens, nakita niyang maraming dios-diosan doon. At lubos niyang ikinabahala ito. 
+
+
+###### 17 
+
+
+Kaya pumasok siya sa sambahan ng mga Judio at nakipagdiskusyon sa kanila at sa mga hindi Judio na sumasamba rin sa Dios. Araw-araw pumupunta rin siya sa plasa at nakikipagdiskusyon sa sinumang makatagpo niya roon. 
+
+
+###### 18 
+
+
+Dalawang grupo ng mga tagapagturo ang nakipagtalo kay Pablo. Ang isa ay tinatawag na mga Epicureo, at ang isa naman ay mga Estoico. Sinabi ng ilan sa kanila, "Ano kaya ang idinadaldal ng mayabang na iyan?" Ang sabi naman ng iba, "Iba yatang dios ang ipinangangaral niya." Ganoon ang sinabi nila dahil nangangaral si Pablo tungkol kay Jesus at sa kanyang muling pagkabuhay. 
+
+
+###### 19 
+
+
+Isinama nila si Pablo sa pinagtitipunan ng mga namumuno sa bayan, na tinatawag na Areopagus. Sinabi nila sa kanya, "Gusto naming malaman ang bagong aral na itinuturo mo. 
+
+
+###### 20 
+
+
+Bago kasi sa aming pandinig ang mga sinasabi mo, kaya gusto naming malaman kung ano iyan." 
+
+
+###### 21 
+
+
+(Sinabi nila ito dahil ang mga taga-Athens at mga dayuhang naninirahan doon ay mahilig magdiskusyon tungkol sa mga bagong aral.) 
+
+
+###### 22 
+
+
+Kaya tumayo si Pablo sa harapan ng mga tao roon sa Areopagus at sinabi, "Mga taga-Athens! Nakita kong napakarelihiyoso ninyo. 
+
+
+###### 23 
+
+
+Sapagkat sa aking paglilibot dito sa inyong lungsod, nakita ko ang mga sinasamba ninyo. May nakita pa akong altar na may nakasulat na ganito: 'Para sa hindi nakikilalang Dios.' Itong Dios na inyong sinasamba na hindi pa ninyo kilala ay ang Dios na aking ipinangangaral sa inyo. 
+
+
+###### 24 
+
+
+Siya ang lumikha ng mundo at ng lahat ng narito. Siya ang Panginoong nagmamay-ari ng langit at lupa, kaya hindi siya nakatira sa mga templo na ginawa ng mga tao. 
+
+
+###### 25 
+
+
+Hindi siya nangangailangan ng tulong mula sa tao dahil siya mismo ang nagbibigay ng buhay sa atin, maging ng lahat ng pangangailangan natin. 
+
+
+###### 26 
+
+
+Mula sa isang tao, nilikha niya ang lahat ng lahi at ipinangalat sa buong mundo. Noon paʼy itinakda na niya ang hangganan ng tirahan ng mga tao at ang panahon na silaʼy mabubuhay dito sa lupa. 
+
+
+###### 27 
+
+
+Ang lahat ng itoʼy ginawa ng Dios upang hanapin natin siya, at baka sakaling matagpuan natin siya. Pero ang totoo, ang Dios ay hindi malayo sa atin, 
+
+
+###### 28 
+
+
+'dahil sa pamamagitan ng kanyang kapangyarihan tayoʼy nabubuhay at nakakakilos.' Katulad din ng sinabi ng ilan sa inyong mga makata, 'Tayo ngaʼy mga anak niya.' 
+
+
+###### 29 
+
+
+Dahil tayo nga ay mga anak ng Dios, huwag nating isipin na ang Dios ay katulad ng dios-diosang ginto, pilak, o bato na pawang imbento ng isip at kamay ng tao. 
+
+
+###### 30 
+
+
+Noong una, nang hindi pa kilala ng mga tao ang Dios, hindi niya pinansin ang kanilang mga kasalanan. Ngunit ngayon, inuutusan ng Dios ang lahat ng tao sa lahat ng lugar na magsisi at talikuran ang kanilang masamang gawain. 
+
+
+###### 31 
+
+
+Sapagkat nagtakda ang Dios ng araw kung kailan niya ipapataw ang kanyang makatarungang hatol sa lahat ng tao rito sa mundo sa pamamagitan ng taong kanyang pinili. Pinatunayan niya ito sa lahat, nang buhayin niyang muli ang taong iyon." 
+
+
+###### 32 
+
+
+Nang marinig nila ang sinabi ni Pablo tungkol sa muling pagkabuhay, pinagtawanan siya ng ilan. Pero sinabi naman ng iba, "Bumalik ka uli rito, dahil gusto pa naming makinig tungkol sa mga bagay na ito." 
+
+
+###### 33 
+
+
+Pagkatapos, umalis si Pablo sa kanilang pinagtitipunan. 
+
+
+###### 34 
+
+
+May ilang lalaking kumampi kay Pablo at sumampalataya kay Jesus. Ang isa sa kanila ay si Dionisius na miyembro ng Areopagus, at ang babaeng si Damaris, at may iba pa.

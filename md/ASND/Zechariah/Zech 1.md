@@ -1,0 +1,118 @@
+---
+Aliases: [Zechariah 1]
+up: ['Zechariah']
+next: ['Zech 2']
+---
+# Zechariah 1
+
+***
+
+
+###### 1 
+
+
+May sinabi ang Panginoon kay Propeta Zacarias noong ikawalong buwan ng ikalawang taon ng paghahari ni Darius sa Persia. Si Zacarias ay anak ni Berekia na anak ni Iddo.
+
+###### 2-3 Inutusan ng Panginoong Makapangyarihan si Zacarias na sabihin ito sa mga mamamayan ng Israel: "Matindi ang galit ko sa inyong mga ninuno. Kaya magbalik-loob na kayo sa akin at manunumbalik ako sa inyo. 
+
+
+###### 4 
+
+
+Huwag ninyong gayahin ang ginawa ng inyong mga ninuno. Inutusan ko noon ang mga propeta na pagsabihan silang talikuran na nila ang kanilang mga ginagawang masama, ngunit hindi sila nakinig. Hindi sila sumunod sa akin. 
+
+
+###### 5 
+
+
+Ang inyong mga ninuno at ang mga propetang iyon ay namatay na. 
+
+
+###### 6 
+
+
+Ngunit nangyari sa inyong mga ninuno ang aking mga sinabi at mga babala sa pamamagitan ng aking mga lingkod na propeta. Kaya nagsisi sila at sinabi, 'Pinarusahan tayo ng Panginoong Makapangyarihan ayon sa ating ginawa, gaya ng kanyang napagpasyahang gawin sa atin.' " 
+
+## Ang Pangitain tungkol sa mga Kabayo
+
+###### 7-8 May sinabi ang Panginoon kay Zacarias sa pamamagitan ng isang pangitain. Nangyari ito noong gabi ng ika-24, buwan ng Shebat (ika-11 buwan), noong ikalawang taon ng paghahari ni Darius. At ito ang ipinahayag ni Zacarias: Nakita ko ang isang tao na nakasakay sa kabayong kulay pula na nakatigil sa isang patag na lugar na may mga puno ng mirto. Sa likuran niya ay may nakasakay sa kabayong pula, kayumanggi, at puti. 
+
+
+###### 9 
+
+
+Itinanong ko sa anghel na nakikipag-usap sa akin, "Ano po ang ibig sabihin ng mga ito?" At sinabi niya sa akin, "Ipapaliwanag ko sa iyo ang ibig sabihin nito." 
+
+
+###### 10 
+
+
+Ang taong nakatayo malapit sa mga puno ng mirto ang siyang nagpaliwanag sa akin. Sinabi niya, "Ang mga mangangabayong iyon ay ipinadala ng Panginoon upang umikot sa buong mundo." 
+
+
+###### 11 
+
+
+Sinabi ng mga mangangabayo sa anghel ng Panginoon na nakatayo malapit sa mga puno ng mirto, "Nalibot na namin ang buong mundo at nakita naming tahimik ito." 
+
+
+###### 12 
+
+
+Sinabi ng anghel ng Panginoon, "Makapangyarihang Panginoon, hanggang kailan nʼyo pa pahihirapan ang Jerusalem at ang iba pang bayan ng Juda? May 70 taon na po kayong galit sa kanila." 
+
+
+###### 13 
+
+
+Ang isinagot ng Panginoon sa anghel ay magagandang salita at nakapagbigay ng kaaliwan. 
+
+
+###### 14 
+
+
+At sinabi sa akin ng anghel na sabihin ko itong mga sinabi ng Makapangyarihang Panginoon: "Totoong nagmamalasakit ako sa Jerusalem na tinatawag ding Zion, 
+
+
+###### 15 
+
+
+pero matindi ang galit ko sa mga bansang nagpapasarap sa buhay. Hindi ako gaanong galit sa kanila noon, ngunit sila na rin ang nagpaningas ng aking galit sa kanila. 
+
+
+###### 16 
+
+
+Kaya babalik akong may awa sa Jerusalem, at itatayo kong muli ang lungsod na ito pati na ang aking templo." 
+
+
+###### 17 
+
+
+Sinabi ng anghel na sabihin ko pa itong ipinapasabi ng Makapangyarihang Panginoon: "Uunlad muli ang aking mga bayan sa Juda. At aaliwin kong muli ang Zion, ang lungsod ng Jerusalem, at muli ko itong ituturing na hinirang kong bayan." 
+
+## Ang Pangitain tungkol sa Apat na Sungay at Apat na Panday 
+
+
+###### 18 
+
+
+Pagkatapos, tumingala ako at nakita ko ang apat na sungay. 
+
+
+###### 19 
+
+
+Tinanong ko ang anghel na nakikipag-usap sa akin, "Ano ang ibig sabihin ng mga sungay na ito?" Sumagot siya, "Ang mga sungay ay ang mga bansang nagpakalat sa mga mamamayan ng Israel, Juda, at Jerusalem." 
+
+
+###### 20 
+
+
+Pagkatapos, ipinakita sa akin ng Panginoon ang apat na panday. 
+
+
+###### 21 
+
+
+Itinanong ko, "Ano ang gagawin nila?" Sumagot siya, "Sisindakin nila at wawasakin ang mga sungay. Ang mga sungay na ito ay ang mga bansang lubusang nagwasak sa Juda at nagpangalat sa kanyang mga mamamayan."

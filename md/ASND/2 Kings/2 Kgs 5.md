@@ -1,0 +1,171 @@
+---
+Aliases: [2 Kings 5]
+previous: ['2 Kgs 4']
+up: ['2 Kings']
+next: ['2 Kgs 6']
+---
+# 2 Kings 5
+
+***
+
+
+###### 1 
+
+
+Iginagalang ng hari ng Aram si Naaman na pinuno ng kanyang hukbo, dahil pinagtagumpay ng Panginoon ang Aram sa pamamagitan niya. Matapang siyang sundalo, pero may malubhang sakit sa balat. 
+
+
+###### 2 
+
+
+Noong lumusob ang mga sundalo ng Aram sa Israel, may nabihag silang dalagita na naging alipin ng asawa ni Naaman. 
+
+
+###### 3 
+
+
+Isang araw, sinabi ng dalagita sa kanyang amo, "Kung makikipagkita lang ang amo ko na si Naaman sa propeta na nasa Samaria, pagagalingin siya nito sa sakit niya sa balat." 
+
+
+###### 4 
+
+
+Pumunta si Naaman sa hari at sinabi niya ang sinabi ng dalagita na mula sa Israel. 
+
+
+###### 5 
+
+
+Sinabi ng hari ng Aram, "Lumakad ka, dalhin mo ang sulat ko sa hari ng Israel." Kaya umalis si Naaman na may dalang regalo na 350 kilong pilak, 70 kilong ginto at sampung pirasong damit. 
+
+
+###### 6 
+
+
+Ito ang mensahe ng sulat na dinala niya sa hari: Ipinadala ko sa iyo si Naaman na aking lingkod para pagalingin mo ang sakit niya sa balat. 
+
+
+###### 7 
+
+
+Nang mabasa ng hari ng Israel ang sulat, pinunit niya ang damit niya at sinabi, "Bakit ipinadala niya sa akin ang taong ito na may malubhang sakit sa balat para pagalingin? Dios ba ako? May kapangyarihan ba ako para pumatay at bumuhay? Gumagawa lang siya ng paraan para makipag-away!" 
+
+
+###### 8 
+
+
+Nang malaman ni Eliseo na lingkod ng Dios ang nangyari, nagpadala siya ng ganitong mensahe sa hari: "Bakit mo pinunit ang damit mo? Papuntahin mo sa akin ang taong iyan para malaman niya na may propeta sa Israel." 
+
+
+###### 9 
+
+
+Kaya umalis si Naaman sakay ng mga kabayo at karwahe niya at huminto sa pintuan ng bahay ni Eliseo. 
+
+
+###### 10 
+
+
+Nagsugo si Eliseo ng mensahero para sabihin kay Naaman na pumunta siya sa Ilog ng Jordan, lumubog doon ng pitong beses at gagaling siya. 
+
+
+###### 11 
+
+
+Pero nagalit si Naaman at umalis nang padabog. Sinabi niya, "Akala ko, talagang lalabas siya at haharap sa akin. Iniisip ko na tatawagin niya ang Panginoon niyang Dios, at ikukumpas ang kanyang kamay sa ibabaw ng aking balat at pagagalingin ako. 
+
+
+###### 12 
+
+
+Ang mga ilog ng Abana at Farpar sa Damascus ay mas mabuti kaysa sa ibang mga ilog dito sa Israel. Bakit hindi na lang ako roon lumubog para gumaling?" Kaya umalis siyang galit na galit. 
+
+
+###### 13 
+
+
+Pero lumapit ang mga utusan niya at sinabi, "Amo, kung may ipinapagawa po sa inyo na malaking bagay ang propeta, hindi ba gagawin ninyo ito? Pero bakit hindi ninyo magawa ang sinabi niya na maghugas at gagaling kayo." 
+
+
+###### 14 
+
+
+Kaya pumunta si Naaman sa Ilog ng Jordan at lumubog ng pitong beses, ayon sa sinabi ng lingkod ng Dios. Gumaling nga ang kanyang sakit at kuminis ang kanyang balat gaya ng balat ng sanggol. 
+
+
+###### 15 
+
+
+Pagkatapos, bumalik si Naaman at ang mga kasama niya sa lingkod ng Dios. Tumayo siya sa harap ni Eliseo at sinabi, "Ngayon, napatunayan ko na wala nang ibang Dios sa buong mundo maliban sa Dios ng Israel. Kaya pakiusap, tanggapin mo ang regalo ko sa iyo, Ginoo." 
+
+
+###### 16 
+
+
+Sumagot si Eliseo, "Sumusumpa ako sa buhay na Panginoon na aking pinaglilingkuran, na hindi ako tatanggap ng anumang regalo." Pinilit siya ni Naaman na tanggapin ang regalo, pero tumanggi siya. 
+
+
+###### 17 
+
+
+Sinabi ni Naaman, "Kung hindi mo tatanggapin ang regalo ko, bigyan mo na lang po ako ng lupa na kayang dalhin ng aking dalawang mola at dadalhin ko sa amin. Mula ngayon, hindi na ako mag-aalay ng mga handog na sinusunog at iba pang mga handog sa ibang dios maliban sa Panginoon. 
+
+
+###### 18 
+
+
+Pero patawarin sana ako ng Panginoon kapag sumama ako sa hari na pumunta sa templo ng dios na si Remon para sumamba. Dapat lang na gawin ko ito bilang opisyal ng hari. Patawarin sana ako ng Panginoon kung luluhod din ako roon." 
+
+
+###### 19 
+
+
+Sinabi ni Eliseo, "Umalis ka nang payapa." Pero hindi pa nakakalayo si Naaman, 
+
+
+###### 20 
+
+
+sinabi ni Gehazi sa sarili niya, "Hindi dapat hinayaan ng aking amo na paalisin ang Arameong si Naaman nang hindi tinatanggap ang regalong dala niya. Sumusumpa ako sa buhay na Panginoon na hahabulin ko siya at kukuha ako ng kahit ano sa kanya." 
+
+
+###### 21 
+
+
+Kaya nagmamadaling hinabol ni Gehazi si Naaman. Nang makita ni Naaman si Gehazi na tumatakbo papunta sa kanya, bumaba siya sa karwahe at sinalubong ito. Nagtanong si Naaman, "May masama bang nangyari?" 
+
+
+###### 22 
+
+
+Sumagot si Gehazi, "Wala naman po. Isinugo po ako ng aking amo para sabihin sa inyo na may dumating na dalawang binatang propeta mula sa kaburulan ng Efraim. Pakibigyan ninyo sila ng 35 kilong pilak at dalawang pirasong damit." 
+
+
+###### 23 
+
+
+Sinabi ni Naaman, "Oo, narito ang 70 kilong pilak." At pinilit niya si Gehazi na tanggapin iyon. Ipinasok ni Naaman ang pilak sa dalawang sisidlan kasama ang dalawang pirasong damit, ibinigay ito sa dalawa niyang lingkod at dinala kay Gehazi. 
+
+
+###### 24 
+
+
+Pagdating ng mga lingkod sa bundok, kinuha ni Gehazi ang dalawang sisidlan at pinabalik sila. Pagkatapos, dinala niya iyon sa bahay niya at itinago. 
+
+
+###### 25 
+
+
+Nang pumunta siya kay Eliseo, tinanong siya nito, "Saan ka nanggaling, Gehazi?" Sumagot si Gehazi, "Wala po akong pinuntahan." 
+
+
+###### 26 
+
+
+Pero sinabi ni Eliseo, "Hindi mo ba alam na ang espiritu ko ay naroon, nang bumaba si Naaman sa karwahe niya para salubungin ka? Hindi ito ang oras para tumanggap ng pera, damit, taniman ng olibo, ubasan, mga baka, tupa, at mga utusan. 
+
+
+###### 27 
+
+
+Dahil sa ginawa mong ito, malilipat sa iyo ang malubhang sakit sa balat ni Naaman at sa mga lahi mo magpakailanman." Nang umalis na si Gehazi, nagkaroon nga siya ng mapanganib na sakit sa balat at naging kasingputi ng niyebe ang balat niya.

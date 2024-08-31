@@ -1,5 +1,6 @@
 import os
 import glob
+import json
 import pandas as pd
 import psycopg
 import requests
@@ -7,27 +8,28 @@ import subprocess
 
 from pathlib import Path
 
-subprocess.run(["./reset_db.sh"])
+from chapters import CHAPTERS_COUNT
 
-API = "https://api.versequick.com"
-df = pd.read_csv("abbr.csv")
-abbreviations = list(df["abbr"])
+# subprocess.run(["./reset_db.sh"])
 
-connection = psycopg.connect("dbname=bibledev user=berinaniesh", autocommit=True)
+df = pd.read_csv("bible_books.csv")
+json_root = Path.cwd().parent / "json" / "by_book"
+
+connection = psycopg.connect("dbname=bible_test_db user=pgadmin password=x host=127.0.0.1 port=5432", autocommit=False)
 cursor = connection.cursor()
+
 
 translations = [
     {
-        "name": "AMPC",
+        "name": "NKJV",
         "language": "English",
-        "full_name": "Amplified Bible, Classic Edition",
-        "year": "1987",
-        "license": "Proprietary, The Lockman Foundation",
-        "bible_name": "Amplified Bible, Classic Edition",
+        "full_name": "New King James Version",
+        "year": "1975",
+        "license": "Proprietary, Thomas Nelson",
+        "bible_name": "New King James Version",
         "ot": "Old Testament",
         "nt": "New Testament",
-        "books": list(df["book"]),
-        "description": "https://en.wikipedia.org/wiki/Amplified_Bible",
+        "description": "https://en.wikipedia.org/wiki/New_King_James_Version",
     },
     {
         "name": "ASND",
@@ -38,20 +40,18 @@ translations = [
         "bible_name": "Ang Salita ng Dios",
         "ot": "Lumang Tipan",
         "nt": "Bagong Tipan",
-        "books": list(df["bookName"]),
         "description": "https://www.biblegateway.com/versions/Ang-Salita-ng-Diyos-ASND/",
     },
     {
-        "name": "NKJV",
+        "name": "AMPC",
         "language": "English",
-        "full_name": "New King James Version",
-        "year": "1975",
-        "license": "Proprietary, Thomas Nelson",
-        "bible_name": "New King James Version",
+        "full_name": "Amplified Bible, Classic Edition",
+        "year": "1987",
+        "license": "Proprietary, The Lockman Foundation",
+        "bible_name": "Amplified Bible, Classic Edition",
         "ot": "Old Testament",
         "nt": "New Testament",
-        "books": list(df["book"]),
-        "description": "https://en.wikipedia.org/wiki/New_King_James_Version",
+        "description": "https://en.wikipedia.org/wiki/Amplified_Bible",
     },
 ]
 
@@ -91,25 +91,111 @@ def get_translation_id(translation):
     translation_id = translation_id[0]
     return translation_id
 
+def get_testament_name_id(translation_id, testament, name):
+    testament_name_id = cursor.execute("""
+    SELECT id FROM "TestamentName" WHERE translation_id=%s AND testament=%s
+    """, (translation_id, testament)).fetchone()
+    if testament_name_id is None:
+        cursor.execute("""
+        INSERT INTO "TestamentName" ("translation_id", "testament", "name") VALUES (%s, %s, %s) 
+        """, (translation_id, testament, name))
+        testament_name_id = cursor.execute("""
+        SELECT id FROM "TestamentName" WHERE translation_id=%s AND testament=%s
+        """, (translation_id, testament)).fetchone()
+    testament_name_id = testament_name_id[0]
+    return testament_name_id
+
+def get_translation_book_name_id(translation_id, book_id, book):
+    translation_book_name_id = cursor.execute("""
+    SELECT id FROM "TranslationBookName" WHERE translation_id=%s AND book_id=%s
+    """, (translation_id, book_id)).fetchone()
+    if translation_book_name_id is None:
+        cursor.execute("""
+        INSERT INTO "TranslationBookName" ("translation_id", "book_id", "name", "long_name") VALUES (%s, %s, %s, %s) 
+        """, (translation_id, book_id, book.name, book.long_name))
+        translation_book_name_id = cursor.execute("""
+        SELECT id FROM "TranslationBookName" WHERE translation_id=%s AND book_id=%s
+        """, (translation_id, book_id)).fetchone()
+    translation_book_name_id = translation_book_name_id[0]
+    return translation_book_name_id
+
 def get_book_id(book):
     book_id = cursor.execute("""
     SELECT id FROM "Book" WHERE name=%s
-    """, (book, )).fetchone()
+    """, (book.name_english, )).fetchone()
     if book_id is None:
         cursor.execute("""
-        INSERT INTO "Book" ("name", "long_name", "book_number", "abbreviation", "testament") VALUES (%s, %s, %s, %s, %s) 
-        """, ())
+        INSERT INTO "Book" ("name", "long_name", "book_number", "abbreviation", "testament", "division") VALUES (%s, %s, %s, %s, %s, %s) 
+        """, (book.name_english, book.long_name, book.book_number, book.abbreviation, book.testament, book.division))
         book_id = cursor.execute("""
         SELECT id FROM "Book" WHERE name=%s
-        """, (book)).fetchone()
+        """, (book.name_english, )).fetchone()
     book_id = book_id[0]
     return book_id
 
-json_root = Path.cwd().parent / "json" / "by_book"
+def get_chapter_id(book_id, chapter_number):
+    chapter_id = cursor.execute("""
+    SELECT id FROM "Chapter" WHERE book_id=%s AND chapter_number=%s
+    """, (book_id, chapter_number)).fetchone()
+    if chapter_id is None:
+        cursor.execute("""
+        INSERT INTO "Chapter" ("book_id", "chapter_number") VALUES (%s, %s) 
+        """, (book_id, chapter_number))
+        chapter_id = cursor.execute("""
+        SELECT id FROM "Chapter" WHERE book_id=%s AND chapter_number=%s
+        """, (book_id, chapter_number)).fetchone()
+    chapter_id = chapter_id[0]
+    return chapter_id
+
+def get_verse_id(chapter_id, verse_number):
+    verse_id = cursor.execute("""
+    SELECT id FROM "Verse" WHERE chapter_id=%s AND verse_number=%s
+    """, (chapter_id, verse_number)).fetchone()
+    if verse_id is None:
+        cursor.execute("""
+        INSERT INTO "Verse" ("chapter_id", "verse_number") VALUES (%s, %s) 
+        """, (chapter_id, verse_number))
+        verse_id = cursor.execute("""
+        SELECT id FROM "Verse" WHERE chapter_id=%s AND verse_number=%s
+        """, (chapter_id, verse_number)).fetchone()
+    verse_id = verse_id[0]
+    return verse_id
+
+def get_verse_text_id(translation_id, verse_id, verse):
+    verse_text_id = cursor.execute("""
+    SELECT id FROM "VerseText" WHERE translation_id=%s AND verse_id=%s
+    """, (translation_id, verse_id)).fetchone()
+    if verse_text_id is None:
+        cursor.execute("""
+        INSERT INTO "VerseText" ("translation_id", "verse_id", "verse") VALUES (%s, %s, %s) 
+        """, (translation_id, verse_id, verse))
+        verse_text_id = cursor.execute("""
+        SELECT id FROM "VerseText" WHERE translation_id=%s AND verse_id=%s
+        """, (translation_id, verse_id)).fetchone()
+    verse_text_id = verse_text_id[0]
+    return verse_text_id
+
+def get_fulltable_id(translation, book, abbreviation, book_name, chapter, verse_number, verse):
+    fulltable_id = cursor.execute("""
+    SELECT id FROM "fulltable" WHERE translation=%s AND book=%s AND chapter=%s AND verse_number=%s
+    """, (translation, book, chapter, verse_number)).fetchone()
+    if fulltable_id is None:
+        cursor.execute("""
+        INSERT INTO "fulltable" ("translation", "book", "abbreviation", "book_name", "chapter", "verse_number", "verse") VALUES (%s, %s, %s, %s, %s, %s, %s) 
+        """, (translation, book, abbreviation, book_name, chapter, verse_number, verse))
+        fulltable_id = cursor.execute("""
+        SELECT id FROM "fulltable" WHERE translation=%s AND book=%s AND chapter=%s AND verse_number=%s
+        """, (translation, book, chapter, verse_number)).fetchone()
+    fulltable_id = fulltable_id[0]
+    return fulltable_id
+
 
 def push_bible(translation):
     translation_id = get_translation_id(translation)
+    get_testament_name_id(translation_id, "OldTestament", translation["ot"])
+    get_testament_name_id(translation_id, "NewTestament", translation["nt"])
 
+    cursor.execute("COMMIT")
     json_file = json_root / f"{translation['name'].lower()}.json"
     assert Path.exists(json_file)
     print(json_file)
@@ -117,12 +203,31 @@ def push_bible(translation):
     with open(json_file) as f:
         data = json.load(f)
 
-    for book in translation["books"]:
-        print(f"{book}: {len(data[book])}")
+    books = df[df.language == translation['language']]
+    for book in books.itertuples():
+        book_id = get_book_id(book)
+        chapter_count=CHAPTERS_COUNT[book.book_number-1][1]
+        _chapter_index = {}
+        for chapter_number in range(1, chapter_count+1):
+            chapter_id = get_chapter_id(book_id, chapter_number)
+            _chapter_index[chapter_number] = chapter_id
+
+        for verse in data[book.name]:
+            verse_id = get_verse_id(_chapter_index[verse['ch']], verse['v'])
+            get_verse_text_id(translation_id, verse_id, verse['text'])
+            get_fulltable_id(translation['name'], book.name_english, book.abbreviation, book.name, verse['ch'], verse['v'], verse['text'])
+        cursor.execute("COMMIT")
+        
+        print(f"{book.name}: {len(data[book.name])}: {book_id=}: {chapter_count=}")
+        translation_book_name_id = get_translation_book_name_id(translation_id, book_id, book)
+        # break
 
 for translation in translations:
     push_bible(translation)
+    print('-----------------------------------------------')
+    # break
 
+cursor.execute("COMMIT")
 connection.close()
 
 

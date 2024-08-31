@@ -1,0 +1,133 @@
+language,name_english,name,long_name,book_number,abbreviation,testament,division
+English,Genesis,Genesis,The Book of Genesis,1,GEN,OldTestament,Pentateuch
+English,Exodus,Exodus,The Book of Exodus,2,EXO,OldTestament,Pentateuch
+English,Leviticus,Leviticus,The Book of Leviticus,3,LEV,OldTestament,Pentateuch
+English,Numbers,Numbers,The Book of Numbers,4,NUM,OldTestament,Pentateuch
+English,Deuteronomy,Deuteronomy,The Book of Deuteronomy,5,DEU,OldTestament,Pentateuch
+English,Joshua,Joshua,The Book of Joshua,6,JOS,OldTestament,HistoricalBook
+English,Judges,Judges,The Book of Judges,7,JDG,OldTestament,HistoricalBook
+English,Ruth,Ruth,The Book of Ruth,8,RUT,OldTestament,HistoricalBook
+English,1 Samuel,1 Samuel,The First Book of Samuel,9,1SA,OldTestament,HistoricalBook
+English,2 Samuel,2 Samuel,The Second Book of Samuel,10,2SA,OldTestament,HistoricalBook
+English,1 Kings,1 Kings,The First Book of Kings,11,1KI,OldTestament,HistoricalBook
+English,2 Kings,2 Kings,The Second Book of Kings,12,2KI,OldTestament,HistoricalBook
+English,1 Chronicles,1 Chronicles,The First Book of Chronicles,13,1CH,OldTestament,HistoricalBook
+English,2 Chronicles,2 Chronicles,The Second Book of Chronicles,14,2CH,OldTestament,HistoricalBook
+English,Ezra,Ezra,The Book of Ezra,15,EZR,OldTestament,HistoricalBook
+English,Nehemiah,Nehemiah,The Book of Nehemiah,16,NEH,OldTestament,HistoricalBook
+English,Esther,Esther,The Book of Ester,17,EST,OldTestament,HistoricalBook
+English,Job,Job,The Book of Job,18,JOB,OldTestament,WisdomBook
+English,Psalms,Psalms,The Book of Psalms,19,PSA,OldTestament,WisdomBook
+English,Proverbs,Proverbs,The Book of Proverbs,20,PRO,OldTestament,WisdomBook
+English,Ecclesiastes,Ecclesiastes,The Book of Ecclesiastes,21,ECC,OldTestament,WisdomBook
+English,Song of Solomon,Song of Solomon,The Song of Solomon,22,SNG,OldTestament,WisdomBook
+English,Isaiah,Isaiah,The Book of Isaiah,23,ISA,OldTestament,MajorProphet
+English,Jeremiah,Jeremiah,The Book of Jeremiah,24,JER,OldTestament,MajorProphet
+English,Lamentations,Lamentations,The Book of Lamentations,25,LAM,OldTestament,MajorProphet
+English,Ezekiel,Ezekiel,The Book of Ezekiel,26,EZK,OldTestament,MajorProphet
+English,Daniel,Daniel,The Book of Daniel,27,DAN,OldTestament,MajorProphet
+English,Hosea,Hosea,The Book of Hosea,28,HOS,OldTestament,MinorProphet
+English,Joel,Joel,The Book of Joel,29,JOL,OldTestament,MinorProphet
+English,Amos,Amos,The Book of Amos,30,AMO,OldTestament,MinorProphet
+English,Obadiah,Obadiah,The Book of Obadiah,31,OBA,OldTestament,MinorProphet
+English,Jonah,Jonah,The Book of Jonah,32,JON,OldTestament,MinorProphet
+English,Micah,Micah,The Book of Micah,33,MIC,OldTestament,MinorProphet
+English,Nahum,Nahum,The Book of Nahum,34,NAM,OldTestament,MinorProphet
+English,Habakkuk,Habakkuk,The Book of Habakkuk,35,HAB,OldTestament,MinorProphet
+English,Zephaniah,Zephaniah,The Book of Zephaniah,36,ZEP,OldTestament,MinorProphet
+English,Haggai,Haggai,The Book of Haggai,37,HAG,OldTestament,MinorProphet
+English,Zechariah,Zechariah,The Book of Zechariah,38,ZEC,OldTestament,MinorProphet
+English,Malachi,Malachi,The Book of Malachi,39,MAL,OldTestament,MinorProphet
+English,Matthew,Matthew,The Gospel According to Matthew,40,MAT,NewTestament,Gospel
+English,Mark,Mark,The Gospel According to Mark,41,MRK,NewTestament,Gospel
+English,Luke,Luke,The Gospel According to Luke,42,LUK,NewTestament,Gospel
+English,John,John,The Gospel According to John,43,JHN,NewTestament,Gospel
+English,Acts,Acts,The Acts of the Apostles,44,ACT,NewTestament,History
+English,Romans,Romans,The Epistle to the Romans,45,ROM,NewTestament,PaulineEpistle
+English,1 Corinthians,1 Corinthians,The First Epistle to the Corinthians,46,1CO,NewTestament,PaulineEpistle
+English,2 Corinthians,2 Corinthians,The Second Epistle to the Corinthians,47,2CO,NewTestament,PaulineEpistle
+English,Galatians,Galatians,The Epistle to the Galatians,48,GAL,NewTestament,PaulineEpistle
+English,Ephesians,Ephesians,The Epistle to the Ephesians,49,EPH,NewTestament,PaulineEpistle
+English,Philippians,Philippians,The Epistle to the Philippians,50,PHP,NewTestament,PaulineEpistle
+English,Colossians,Colossians,The Epistle to the Colossians,51,COL,NewTestament,PaulineEpistle
+English,1 Thessalonians,1 Thessalonians,The First Epistle to the Thessalonians,52,1TH,NewTestament,PaulineEpistle
+English,2 Thessalonians,2 Thessalonians,The Second Epistle to the Thessalonians,53,2TH,NewTestament,PaulineEpistle
+English,1 Timothy,1 Timothy,The First Epistle to Timothy,54,1TI,NewTestament,PaulineEpistle
+English,2 Timothy,2 Timothy,The First Epistle to Timothy,55,2TI,NewTestament,PaulineEpistle
+English,Titus,Titus,The Epistle to Titus,56,TIT,NewTestament,PaulineEpistle
+English,Philemon,Philemon,The Epistle to Philemon,57,PHM,NewTestament,PaulineEpistle
+English,Hebrews,Hebrews,The Epistle to the Hebrews,58,HEB,NewTestament,GeneralEpistle
+English,James,James,The General Epistle of James,59,JAM,NewTestament,GeneralEpistle
+English,1 Peter,1 Peter,The First General Epistle of Peter,60,1PE,NewTestament,GeneralEpistle
+English,2 Peter,2 Peter,The Second General Epistle of Peter,61,2PE,NewTestament,GeneralEpistle
+English,1 John,1 John,The First General Epistle of John,62,1JN,NewTestament,GeneralEpistle
+English,2 John,2 John,The Second General Epistle of John,63,2JN,NewTestament,GeneralEpistle
+English,3 John,3 John,The Third General Epistle of John,64,3JN,NewTestament,GeneralEpistle
+English,Jude,Jude,The General Epistle of Jude,65,JUD,NewTestament,GeneralEpistle
+English,Revelation,Revelation,The Revelation to John,66,REV,NewTestament,Prophecy
+Filipino,Genesis,Genesis,The Book of Genesis,1,GEN,OldTestament,Pentateuch
+Filipino,Exodus,Exodus,The Book of Exodus,2,EXO,OldTestament,Pentateuch
+Filipino,Leviticus,Leviticus,The Book of Leviticus,3,LEV,OldTestament,Pentateuch
+Filipino,Numbers,Bilang,The Book of Numbers,4,NUM,OldTestament,Pentateuch
+Filipino,Deuteronomy,Deuteronomio,The Book of Deuteronomy,5,DEU,OldTestament,Pentateuch
+Filipino,Joshua,Josue,The Book of Joshua,6,JOS,OldTestament,HistoricalBook
+Filipino,Judges,Hukom,The Book of Judges,7,JDG,OldTestament,HistoricalBook
+Filipino,Ruth,Ruth,The Book of Ruth,8,RUT,OldTestament,HistoricalBook
+Filipino,1 Samuel,1 Samuel,The First Book of Samuel,9,1SA,OldTestament,HistoricalBook
+Filipino,2 Samuel,2 Samuel,The Second Book of Samuel,10,2SA,OldTestament,HistoricalBook
+Filipino,1 Kings,1 Hari,The First Book of Kings,11,1KI,OldTestament,HistoricalBook
+Filipino,2 Kings,2 Hari,The Second Book of Kings,12,2KI,OldTestament,HistoricalBook
+Filipino,1 Chronicles,1 Cronica,The First Book of Chronicles,13,1CH,OldTestament,HistoricalBook
+Filipino,2 Chronicles,2 Cronica,The Second Book of Chronicles,14,2CH,OldTestament,HistoricalBook
+Filipino,Ezra,Ezra,The Book of Ezra,15,EZR,OldTestament,HistoricalBook
+Filipino,Nehemiah,Nehemias,The Book of Nehemiah,16,NEH,OldTestament,HistoricalBook
+Filipino,Esther,Ester,The Book of Ester,17,EST,OldTestament,HistoricalBook
+Filipino,Job,Job,The Book of Job,18,JOB,OldTestament,WisdomBook
+Filipino,Psalms,Salmo,The Book of Psalms,19,PSA,OldTestament,WisdomBook
+Filipino,Proverbs,Kawikaan,The Book of Proverbs,20,PRO,OldTestament,WisdomBook
+Filipino,Ecclesiastes,Mangangaral,The Book of Ecclesiastes,21,ECC,OldTestament,WisdomBook
+Filipino,Song of Solomon,Awit,The Song of Solomon,22,SNG,OldTestament,WisdomBook
+Filipino,Isaiah,Isaias,The Book of Isaiah,23,ISA,OldTestament,MajorProphet
+Filipino,Jeremiah,Jeremias,The Book of Jeremiah,24,JER,OldTestament,MajorProphet
+Filipino,Lamentations,Panaghoy,The Book of Lamentations,25,LAM,OldTestament,MajorProphet
+Filipino,Ezekiel,Ezekiel,The Book of Ezekiel,26,EZK,OldTestament,MajorProphet
+Filipino,Daniel,Daniel,The Book of Daniel,27,DAN,OldTestament,MajorProphet
+Filipino,Hosea,Hosea,The Book of Hosea,28,HOS,OldTestament,MinorProphet
+Filipino,Joel,Joel,The Book of Joel,29,JOL,OldTestament,MinorProphet
+Filipino,Amos,Amos,The Book of Amos,30,AMO,OldTestament,MinorProphet
+Filipino,Obadiah,Obadias,The Book of Obadiah,31,OBA,OldTestament,MinorProphet
+Filipino,Jonah,Jonas,The Book of Jonah,32,JON,OldTestament,MinorProphet
+Filipino,Micah,Micas,The Book of Micah,33,MIC,OldTestament,MinorProphet
+Filipino,Nahum,Nahum,The Book of Nahum,34,NAM,OldTestament,MinorProphet
+Filipino,Habakkuk,Habakuk,The Book of Habakkuk,35,HAB,OldTestament,MinorProphet
+Filipino,Zephaniah,Zefanias,The Book of Zephaniah,36,ZEP,OldTestament,MinorProphet
+Filipino,Haggai,Hageo,The Book of Haggai,37,HAG,OldTestament,MinorProphet
+Filipino,Zechariah,Zacarias,The Book of Zechariah,38,ZEC,OldTestament,MinorProphet
+Filipino,Malachi,Malakias,The Book of Malachi,39,MAL,OldTestament,MinorProphet
+Filipino,Matthew,Mateo,The Gospel According to Matthew,40,MAT,NewTestament,Gospel
+Filipino,Mark,Marcos,The Gospel According to Mark,41,MRK,NewTestament,Gospel
+Filipino,Luke,Lucas,The Gospel According to Luke,42,LUK,NewTestament,Gospel
+Filipino,John,Juan,The Gospel According to John,43,JHN,NewTestament,Gospel
+Filipino,Acts,Gawa,The Acts of the Apostles,44,ACT,NewTestament,History
+Filipino,Romans,Roma,The Epistle to the Romans,45,ROM,NewTestament,PaulineEpistle
+Filipino,1 Corinthians,1 Corinto,The First Epistle to the Corinthians,46,1CO,NewTestament,PaulineEpistle
+Filipino,2 Corinthians,2 Corinto,The Second Epistle to the Corinthians,47,2CO,NewTestament,PaulineEpistle
+Filipino,Galatians,Galacia,The Epistle to the Galatians,48,GAL,NewTestament,PaulineEpistle
+Filipino,Ephesians,Efeso,The Epistle to the Ephesians,49,EPH,NewTestament,PaulineEpistle
+Filipino,Philippians,Filipos,The Epistle to the Philippians,50,PHP,NewTestament,PaulineEpistle
+Filipino,Colossians,Colosas,The Epistle to the Colossians,51,COL,NewTestament,PaulineEpistle
+Filipino,1 Thessalonians,1 Tesalonica,The First Epistle to the Thessalonians,52,1TH,NewTestament,PaulineEpistle
+Filipino,2 Thessalonians,2 Tesalonica,The Second Epistle to the Thessalonians,53,2TH,NewTestament,PaulineEpistle
+Filipino,1 Timothy,1 Timoteo,The First Epistle to Timothy,54,1TI,NewTestament,PaulineEpistle
+Filipino,2 Timothy,2 Timoteo,The First Epistle to Timothy,55,2TI,NewTestament,PaulineEpistle
+Filipino,Titus,Tito,The Epistle to Titus,56,TIT,NewTestament,PaulineEpistle
+Filipino,Philemon,Filemon,The Epistle to Philemon,57,PHM,NewTestament,PaulineEpistle
+Filipino,Hebrews,Hebreo,The Epistle to the Hebrews,58,HEB,NewTestament,GeneralEpistle
+Filipino,James,Santiago,The General Epistle of James,59,JAM,NewTestament,GeneralEpistle
+Filipino,1 Peter,1 Pedro,The First General Epistle of Peter,60,1PE,NewTestament,GeneralEpistle
+Filipino,2 Peter,2 Pedro,The Second General Epistle of Peter,61,2PE,NewTestament,GeneralEpistle
+Filipino,1 John,1 Juan,The First General Epistle of John,62,1JN,NewTestament,GeneralEpistle
+Filipino,2 John,2 Juan,The Second General Epistle of John,63,2JN,NewTestament,GeneralEpistle
+Filipino,3 John,3 Juan,The Third General Epistle of John,64,3JN,NewTestament,GeneralEpistle
+Filipino,Jude,Judas,The General Epistle of Jude,65,JUD,NewTestament,GeneralEpistle
+Filipino,Revelation,Pahayag,The Revelation to John,66,REV,NewTestament,Prophecy

@@ -1,0 +1,124 @@
+---
+Aliases: [Jeremiah 35]
+previous: ['Jer 34']
+up: ['Jeremiah']
+next: ['Jer 36']
+---
+# Jeremiah 35
+
+***
+
+
+
+
+###### 1 
+
+This is the message the LORD gave Jeremiah when Jehoiakim son of Josiah was king of Judah: 
+
+
+
+###### 2 
+
+"Go to the settlement where the families of the Recabites live, and invite them to the LORD's Temple. Take them into one of the inner rooms, and offer them some wine." 
+
+
+
+###### 3 
+
+So I went to see Jaazaniah son of Jeremiah and grandson of Habazziniah and all his brothers and sons--representing all the Recabite families. 
+
+
+
+###### 4 
+
+I took them to the Temple, and we went into the room assigned to the sons of Hanan son of Igdaliah, a man of God. This room was located next to the one used by the Temple officials, directly above the room of Maaseiah son of Shallum, the Temple gatekeeper. 
+
+
+
+###### 5 
+
+I set cups and jugs of wine before them and invited them to have a drink, 
+
+
+
+###### 6 
+
+but they refused. "No," they said, "we don't drink wine, because our ancestor Jehonadab[^a] son of Recab gave us this command: 'You and your descendants must never drink wine. 
+
+
+
+###### 7 
+
+And do not build houses or plant crops or vineyards, but always live in tents. If you follow these commands, you will live long, good lives in the land.' 
+
+
+
+###### 8 
+
+So we have obeyed him in all these things. We have never had a drink of wine to this day, nor have our wives, our sons, or our daughters. 
+
+
+
+###### 9 
+
+We haven't built houses or owned vineyards or farms or planted crops. 
+
+
+
+###### 10 
+
+We have lived in tents and have fully obeyed all the commands of Jehonadab, our ancestor. 
+
+
+
+###### 11 
+
+But when King Nebuchadnezzar[^b] of Babylon attacked this country, we were afraid of the Babylonian and Syrian[^c] armies. So we decided to move to Jerusalem. That is why we are here." 
+
+
+
+###### 12 
+
+Then the LORD gave this message to Jeremiah: 
+
+
+
+###### 13 
+
+"This is what the LORD of Heaven's Armies, the God of Israel, says: Go and say to the people in Judah and Jerusalem, 'Come and learn a lesson about how to obey me. 
+
+
+
+###### 14 
+
+The Recabites do not drink wine to this day because their ancestor Jehonadab told them not to. But I have spoken to you again and again, and you refuse to obey me. 
+
+
+
+###### 15 
+
+Time after time I sent you prophets, who told you, "Turn from your wicked ways, and start doing things right. Stop worshiping other gods so that you might live in peace here in the land I have given to you and your ancestors." But you would not listen to me or obey me. 
+
+
+
+###### 16 
+
+The descendants of Jehonadab son of Recab have obeyed their ancestor completely, but you have refused to listen to me.' 
+
+
+
+###### 17 
+
+"Therefore, this is what the LORD God of Heaven's Armies, the God of Israel, says: 'Because you refuse to listen or answer when I call, I will send upon Judah and Jerusalem all the disasters I have threatened.'" 
+
+
+
+###### 18 
+
+Then Jeremiah turned to the Recabites and said, "This is what the LORD of Heaven's Armies, the God of Israel, says: 'You have obeyed your ancestor Jehonadab in every respect, following all his instructions.' 
+
+
+
+###### 19 
+
+Therefore, this is what the LORD of Heaven's Armies, the God of Israel, says: 'Jehonadab son of Recab will always have descendants who serve me.'" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 35:6 Hebrew _Jonadab,_ a variant spelling of Jehonadab; also in [35:10], [19]. See [2 Kgs 10:15]. [^b]: 35:11a Hebrew _Nebuchadrezzar,_ a variant spelling of Nebuchadnezzar. [^c]: 35:11b Or _Chaldean and Aramean._

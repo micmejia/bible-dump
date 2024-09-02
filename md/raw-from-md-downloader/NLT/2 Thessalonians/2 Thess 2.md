@@ -1,0 +1,112 @@
+---
+Aliases: [2 Thessalonians 2]
+previous: ['2 Thess 1']
+up: ['2 Thessalonians']
+next: ['2 Thess 3']
+---
+# 2 Thessalonians 2
+
+***
+
+
+
+
+###### 1 
+
+Now, dear brothers and sisters,[^a] let us clarify some things about the coming of our Lord Jesus Christ and how we will be gathered to meet him. 
+
+
+
+###### 2 
+
+Don't be so easily shaken or alarmed by those who say that the day of the Lord has already begun. Don't believe them, even if they claim to have had a spiritual vision, a revelation, or a letter supposedly from us. 
+
+
+
+###### 3 
+
+Don't be fooled by what they say. For that day will not come until there is a great rebellion against God and the man of lawlessness[^b] is revealed--the one who brings destruction.[^c] 
+
+
+
+###### 4 
+
+He will exalt himself and defy everything that people call god and every object of worship. He will even sit in the temple of God, claiming that he himself is God. 
+
+
+
+###### 5 
+
+Don't you remember that I told you about all this when I was with you? 
+
+
+
+###### 6 
+
+And you know what is holding him back, for he can be revealed only when his time comes. 
+
+
+
+###### 7 
+
+For this lawlessness is already at work secretly, and it will remain secret until the one who is holding it back steps out of the way. 
+
+
+
+###### 8 
+
+Then the man of lawlessness will be revealed, but the Lord Jesus will slay him with the breath of his mouth and destroy him by the splendor of his coming. 
+
+
+
+###### 9 
+
+This man will come to do the work of Satan with counterfeit power and signs and miracles. 
+
+
+
+###### 10 
+
+He will use every kind of evil deception to fool those on their way to destruction, because they refuse to love and accept the truth that would save them. 
+
+
+
+###### 11 
+
+So God will cause them to be greatly deceived, and they will believe these lies. 
+
+
+
+###### 12 
+
+Then they will be condemned for enjoying evil rather than believing the truth. ## Believers Should Stand Firm 
+
+
+
+###### 13 
+
+As for us, we can't help but thank God for you, dear brothers and sisters loved by the Lord. We are always thankful that God chose you to be among the first[^d] to experience salvation--a salvation that came through the Spirit who makes you holy and through your belief in the truth. 
+
+
+
+###### 14 
+
+He called you to salvation when we told you the Good News; now you can share in the glory of our Lord Jesus Christ. 
+
+
+
+###### 15 
+
+With all these things in mind, dear brothers and sisters, stand firm and keep a strong grip on the teaching we passed on to you both in person and by letter. 
+
+
+
+###### 16 
+
+Now may our Lord Jesus Christ himself and God our Father, who loved us and by his grace gave us eternal comfort and a wonderful hope, 
+
+
+
+###### 17 
+
+comfort you and strengthen you in every good thing you do and say. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 2:1 Greek _brothers;_ also in [2:13], [15]. [^b]: 2:3a Some manuscripts read _the man of sin._ [^c]: 2:3b Greek _the son of destruction._ [^d]: 2:13 Some manuscripts read _chose you from the very beginning._

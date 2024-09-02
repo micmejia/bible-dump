@@ -1,0 +1,97 @@
+---
+Aliases: [Deuteronomy 9]
+previous: ['Deut 8']
+up: ['Deuteronomy']
+next: ['Deut 10']
+---
+# Deuteronomy 9
+
+***
+
+
+###### 1 
+"Hear, O Israel: You _are_ to cross over the Jordan today, and go in to dispossess nations greater and mightier than yourself, cities great and fortified up to heaven, 
+
+###### 2 
+a people great and tall, the descendants of the Anakim, whom you know, and _of whom_ you heard _it said,_ 'Who can stand before the descendants of Anak?' 
+
+###### 3 
+Therefore understand today that the Lord your God _is_ He who goes over before you _as_ a consuming fire. He will destroy them and bring them down before you; so you shall drive them out and destroy them quickly, as the Lord has said to you. 
+
+###### 4 
+"Do not think in your heart, after the Lord your God has cast them out before you, saying, 'Because of my righteousness the Lord has brought me in to possess this land'; but _it is_ because of the wickedness of these nations _that_ the Lord is driving them out from before you. 
+
+###### 5 
+_It is_ not because of your righteousness or the uprightness of your heart _that_ you go in to possess their land, but because of the wickedness of these nations _that_ the Lord your God drives them out from before you, and that He may [^a]fulfill the word which the Lord swore to your fathers, to Abraham, Isaac, and Jacob. 
+
+###### 6 
+Therefore understand that the Lord your God is not giving you this good land to possess because of your righteousness, for you _are_ a stiff-necked[^b] people. 
+
+###### 7 
+"Remember! Do not forget how you provoked the Lord your God to wrath in the wilderness. From the day that you departed from the land of Egypt until you came to this place, you have been rebellious against the Lord. 
+
+###### 8 
+Also in Horeb you provoked the Lord to wrath, so that the Lord was angry _enough_ with you to have destroyed you. 
+
+###### 9 
+When I went up into the mountain to receive the tablets of stone, the tablets of the covenant which the Lord made with you, then I stayed on the mountain forty days and forty nights. I neither ate bread nor drank water. 
+
+###### 10 
+Then the Lord delivered to me two tablets of stone written with the finger of God, and on them _were_ all the words which the Lord had spoken to you on the mountain from the midst of the fire in[^c] the day of the assembly. 
+
+###### 11 
+And it came to pass, at the end of forty days and forty nights, _that_ the Lord gave me the two tablets of stone, the tablets of the covenant. 
+
+###### 12 
+"Then the Lord said to me, 'Arise, go down quickly from here, for your people whom you brought out of Egypt have acted corruptly; they have quickly turned aside from the way which I commanded them; they have made themselves a molded image.' 
+
+###### 13 
+"Furthermore the Lord spoke to me, saying, 'I have seen this people, and indeed they are a [^d]stiff-necked people. 
+
+###### 14 
+Let Me alone, that I may destroy them and blot out their name from under heaven; and I will make of you a nation mightier and greater than they.' 
+
+###### 15 
+"So I turned and came down from the mountain, and the mountain burned with fire; and the two tablets of the covenant _were_ in my two hands. 
+
+###### 16 
+And I looked, and behold, you had sinned against the Lord your God--had made for yourselves a molded calf! You had turned aside quickly from the way which the Lord had commanded you. 
+
+###### 17 
+Then I took the two tablets and threw them out of my two hands and broke them before your eyes. 
+
+###### 18 
+And I fell[^e] down before the Lord, as at the first, forty days and forty nights; I neither ate bread nor drank water, because of all your sin which you committed in doing wickedly in the sight of the Lord, to provoke Him to anger. 
+
+###### 19 
+For I was afraid of the anger and hot displeasure with which the Lord was angry with you, to destroy you. But the Lord listened to me at that time also. 
+
+###### 20 
+And the Lord was very angry with Aaron _and_ would have destroyed him; so I prayed for Aaron also at the same time. 
+
+###### 21 
+Then I took your sin, the calf which you had made, and burned it with fire and crushed it _and_ ground _it_ very small, until it was as fine as dust; and I threw its dust into the brook that descended from the mountain. 
+
+###### 22 
+"Also at Taberah and Massah and Kibroth Hattaavah you [^f]provoked the Lord to wrath. 
+
+###### 23 
+Likewise, when the Lord sent you from Kadesh Barnea, saying, 'Go up and possess the land which I have given you,' then you rebelled against the commandment of the Lord your God, and you did not believe Him nor obey His voice. 
+
+###### 24 
+You have been rebellious against the Lord from the day that I knew you. 
+
+###### 25 
+"Thus I [^g]prostrated myself before the Lord; forty days and forty nights I kept prostrating myself, because the Lord had said He would destroy you. 
+
+###### 26 
+Therefore I prayed to the Lord, and said: 'O Lord God, do not destroy Your people and Your inheritance whom You have redeemed through Your greatness, whom You have brought out of Egypt with a mighty hand. 
+
+###### 27 
+Remember Your servants, Abraham, Isaac, and Jacob; do not look on the stubbornness of this people, or on their wickedness or their sin, 
+
+###### 28 
+lest the land from which You brought us should say, "Because the Lord was not able to bring them to the land which He promised them, and because He hated them, He has brought them out to kill them in the wilderness." 
+
+###### 29 
+Yet they _are_ Your people and Your inheritance, whom You brought out by Your mighty power and by Your outstretched arm.' ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Deuteronomy 9:5 _perform_ [^b]: Deuteronomy 9:6 _stubborn_ or _rebellious_ [^c]: Deuteronomy 9:10 _when you were all gathered together_ [^d]: Deuteronomy 9:13 _stubborn_ or _rebellious_ [^e]: Deuteronomy 9:18 _prostrated myself_ [^f]: Deuteronomy 9:22 _caused the Lord to be angry_ [^g]: Deuteronomy 9:25 _fell down_

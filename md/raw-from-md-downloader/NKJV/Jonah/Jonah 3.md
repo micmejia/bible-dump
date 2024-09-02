@@ -1,0 +1,40 @@
+---
+Aliases: [Jonah 3]
+previous: ['Jonah 2']
+up: ['Jonah']
+next: ['Jonah 4']
+---
+# Jonah 3
+
+***
+
+
+###### 1 
+Now the word of the Lord came to Jonah the second time, saying, 
+
+###### 2 
+"Arise, go to Nineveh, that great city, and preach to it the message that I tell you." 
+
+###### 3 
+So Jonah arose and went to Nineveh, according to the word of the Lord. Now Nineveh was an exceedingly great city, [^a]a three-day journey _in extent._ 
+
+###### 4 
+And Jonah began to enter the city on the first day's walk. Then he cried out and said, "Yet forty days, and Nineveh shall be overthrown!" ## The People of Nineveh Believe 
+
+###### 5 
+So the people of Nineveh believed God, proclaimed a fast, and put on sackcloth, from the greatest to the least of them. 
+
+###### 6 
+Then word came to the king of Nineveh; and he arose from his throne and laid aside his robe, covered _himself_ with sackcloth and sat in ashes. 
+
+###### 7 
+And he caused _it_ to be proclaimed and published throughout Nineveh by the decree of the king and his [^b]nobles, saying, Let neither man nor beast, herd nor flock, taste anything; do not let them eat, or drink water. 
+
+###### 8 
+But let man and beast be covered with sackcloth, and cry mightily to God; yes, let every one turn from his evil way and from the violence that is in his hands. 
+
+###### 9 
+Who can tell _if_ God will turn and relent, and turn away from His fierce anger, so that we may not perish? 
+
+###### 10 
+Then God saw their works, that they turned from their evil way; and God relented from the disaster that He had said He would bring upon them, and He did not do it. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Jonah 3:3 Exact meaning unknown [^b]: Jonah 3:7 Lit. _great ones_

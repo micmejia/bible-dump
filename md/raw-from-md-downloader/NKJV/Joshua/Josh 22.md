@@ -1,0 +1,112 @@
+---
+Aliases: [Joshua 22]
+previous: ['Josh 21']
+up: ['Joshua']
+next: ['Josh 23']
+---
+# Joshua 22
+
+***
+
+
+###### 1 
+Then Joshua called the Reubenites, the Gadites, and half the tribe of Manasseh, 
+
+###### 2 
+and said to them: "You have kept all that Moses the servant of the Lord commanded you, and have obeyed my voice in all that I commanded you. 
+
+###### 3 
+You have not [^a]left your brethren these many days, up to this day, but have kept the charge of the commandment of the Lord your God. 
+
+###### 4 
+And now the Lord your God has given rest to your brethren, as He promised them; now therefore, return and go to your tents _and_ to the land of your possession, which Moses the servant of the Lord gave you on the other side of the Jordan. 
+
+###### 5 
+But take[^b] careful heed to do the commandment and the law which Moses the servant of the Lord commanded you, to love the Lord your God, to walk in all His ways, to keep His commandments, to hold fast to Him, and to serve Him with all your heart and with all your soul." 
+
+###### 6 
+So Joshua blessed them and sent them away, and they went to their tents. 
+
+###### 7 
+Now to half the tribe of Manasseh Moses had given a possession in Bashan, but to the _other_ half of it Joshua gave _a possession_ among their brethren on this side of the Jordan, westward. And indeed, when Joshua sent them away to their tents, he blessed them, 
+
+###### 8 
+and spoke to them, saying, "Return with much riches to your tents, with very much livestock, with silver, with gold, with bronze, with iron, and with very much clothing. Divide the [^c]spoil of your enemies with your brethren." 
+
+###### 9 
+So the children of Reuben, the children of Gad, and half the tribe of Manasseh returned, and departed from the children of Israel at Shiloh, which _is_ in the land of Canaan, to go to the country of Gilead, to the land of their possession, which they had obtained according to the word of the Lord by the hand of Moses. ## An Altar by the Jordan 
+
+###### 10 
+And when they came to the region of the Jordan which _is_ in the land of Canaan, the children of Reuben, the children of Gad, and half the tribe of Manasseh built an altar there by the Jordan--a great, impressive altar. 
+
+###### 11 
+Now the children of Israel heard _someone_ say, "Behold, the children of Reuben, the children of Gad, and half the tribe of Manasseh have built an altar on the [^d]frontier of the land of Canaan, in the region of the Jordan--on the children of Israel's side." 
+
+###### 12 
+And when the children of Israel heard _of it,_ the whole congregation of the children of Israel gathered together at Shiloh to go to war against them. 
+
+###### 13 
+Then the children of Israel sent Phinehas the son of Eleazar the priest to the children of Reuben, to the children of Gad, and to half the tribe of Manasseh, into the land of Gilead, 
+
+###### 14 
+and with him ten rulers, one ruler each from the chief house of every tribe of Israel; and each one _was_ the head of the house of his father among the [^e]divisions of Israel. 
+
+###### 15 
+Then they came to the children of Reuben, to the children of Gad, and to half the tribe of Manasseh, to the land of Gilead, and they spoke with them, saying, 
+
+###### 16 
+"Thus says the whole congregation of the Lord: 'What treachery[^f] _is_ this that you have committed against the God of Israel, to turn away this day from following the Lord, in that you have built for yourselves an altar, that you might rebel this day against the Lord? 
+
+###### 17 
+_Is_ the iniquity of Peor not enough for us, from which we are not cleansed till this day, although there was a plague in the congregation of the Lord, 
+
+###### 18 
+but that you must turn away this day from following the Lord? And it shall be, if you rebel today against the Lord, that tomorrow He will be angry with the whole congregation of Israel. 
+
+###### 19 
+[^g]Nevertheless, if the land of your possession _is_ unclean, _then_ cross over to the land of the possession of the Lord, where the Lord's tabernacle stands, and take possession among us; but do not rebel against the Lord, nor rebel against us, by building yourselves an altar besides the altar of the Lord our God. 
+
+###### 20 
+Did not Achan the son of Zerah [^h]commit a trespass in the [^i]accursed thing, and wrath fell on all the congregation of Israel? And that man did not perish alone in his iniquity.' " 
+
+###### 21 
+Then the children of Reuben, the children of Gad, and half the tribe of Manasseh answered and said to the heads of the [^j]divisions of Israel: 
+
+###### 22 
+"The Lord God of gods, the Lord God of gods, He knows, and let Israel itself know--if _it is_ in rebellion, or if in treachery against the Lord, do not save us this day. 
+
+###### 23 
+If we have built ourselves an altar to turn from following the Lord, or if to offer on it burnt offerings or grain offerings, or if to offer peace offerings on it, let the Lord Himself require _an account._ 
+
+###### 24 
+But in fact we have done it [^k]for fear, for a reason, saying, 'In time to come your descendants may speak to our descendants, saying, "What have you to do with the Lord God of Israel? 
+
+###### 25 
+For the Lord has made the Jordan a border between you and us, _you_ children of Reuben and children of Gad. You have no part in the Lord." So your descendants would make our descendants cease fearing the Lord.' 
+
+###### 26 
+Therefore we said, 'Let us now prepare to build ourselves an altar, not for burnt offering nor for sacrifice, 
+
+###### 27 
+but _that_ it _may be_ a [^l]witness between you and us and our generations after us, that we may perform the service of the Lord before Him with our burnt offerings, with our sacrifices, and with our peace offerings; that your descendants may not say to our descendants in time to come, "You have no part in the Lord." ' 
+
+###### 28 
+Therefore we said that it will be, when they say _this_ to us or to our generations in time to come, that we may say, 'Here is the replica of the altar of the Lord which our fathers made, though not for burnt offerings nor for sacrifices; but it _is_ a witness between you and us.' 
+
+###### 29 
+Far be it from us that we should rebel against the Lord, and turn from following the Lord this day, to build an altar for burnt offerings, for grain offerings, or for sacrifices, besides the altar of the Lord our God which _is_ before His tabernacle." 
+
+###### 30 
+Now when Phinehas the priest and the rulers of the congregation, the heads of the [^m]divisions of Israel who _were_ with him, heard the words that the children of Reuben, the children of Gad, and the children of Manasseh spoke, it pleased them. 
+
+###### 31 
+Then Phinehas the son of Eleazar the priest said to the children of Reuben, the children of Gad, and the children of Manasseh, "This day we perceive that the Lord _is_ among us, because you have not committed this treachery against the Lord. Now you have delivered the children of Israel out of the hand of the Lord." 
+
+###### 32 
+And Phinehas the son of Eleazar the priest, and the rulers, returned from the children of Reuben and the children of Gad, from the land of Gilead to the land of Canaan, to the children of Israel, and brought back word to them. 
+
+###### 33 
+So the thing pleased the children of Israel, and the children of Israel blessed God; they spoke no more of going against them in battle, to destroy the land where the children of Reuben and Gad dwelt. 
+
+###### 34 
+The children of Reuben and the children of [^n]Gad called the altar, _Witness,_ "For _it is_ a witness between us that the Lord _is_ God." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Joshua 22:3 _forsaken_ [^b]: Joshua 22:5 _be very careful to do_ [^c]: Joshua 22:8 _plunder_ [^d]: Joshua 22:11 Lit. _front_ [^e]: Joshua 22:14 Lit. _thousands_ [^f]: Joshua 22:16 _unfaithful act_ [^g]: Joshua 22:19 _However_ [^h]: Joshua 22:20 _act unfaithfully_ [^i]: Joshua 22:20 _devoted thing_ [^j]: Joshua 22:21 Lit. _thousands_ [^k]: Joshua 22:24 Lit. _from fear_ [^l]: Joshua 22:27 _testimony_ [^m]: Joshua 22:30 Lit. _thousands_ [^n]: Joshua 22:34 LXX adds _and half the tribe of Manasseh_

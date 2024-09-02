@@ -1,0 +1,226 @@
+---
+Aliases: [Luke 17]
+previous: ['Luke 16']
+up: ['Luke']
+next: ['Luke 18']
+---
+# Luke 17
+
+***
+
+
+
+
+###### 1 
+
+One day Jesus said to his disciples, "There will always be temptations to sin, but what sorrow awaits the person who does the tempting! 
+
+
+
+###### 2 
+
+It would be better to be thrown into the sea with a millstone hung around your neck than to cause one of these little ones to fall into sin. 
+
+
+
+###### 3 
+
+So watch yourselves! "If another believer[^a] sins, rebuke that person; then if there is repentance, forgive. 
+
+
+
+###### 4 
+
+Even if that person wrongs you seven times a day and each time turns again and asks forgiveness, you must forgive." 
+
+
+
+###### 5 
+
+The apostles said to the Lord, "Show us how to increase our faith." 
+
+
+
+###### 6 
+
+The Lord answered, "If you had faith even as small as a mustard seed, you could say to this mulberry tree, 'May you be uprooted and be planted in the sea,' and it would obey you! 
+
+
+
+###### 7 
+
+"When a servant comes in from plowing or taking care of sheep, does his master say, 'Come in and eat with me'? 
+
+
+
+###### 8 
+
+No, he says, 'Prepare my meal, put on your apron, and serve me while I eat. Then you can eat later.' 
+
+
+
+###### 9 
+
+And does the master thank the servant for doing what he was told to do? Of course not. 
+
+
+
+###### 10 
+
+In the same way, when you obey me you should say, 'We are unworthy servants who have simply done our duty.'" ## Ten Healed of Leprosy 
+
+
+
+###### 11 
+
+As Jesus continued on toward Jerusalem, he reached the border between Galilee and Samaria. 
+
+
+
+###### 12 
+
+As he entered a village there, ten men with leprosy stood at a distance, 
+
+
+
+###### 13 
+
+crying out, "Jesus, Master, have mercy on us!" 
+
+
+
+###### 14 
+
+He looked at them and said, "Go show yourselves to the priests."[^b] And as they went, they were cleansed of their leprosy. 
+
+
+
+###### 15 
+
+One of them, when he saw that he was healed, came back to Jesus, shouting, "Praise God!" 
+
+
+
+###### 16 
+
+He fell to the ground at Jesus' feet, thanking him for what he had done. This man was a Samaritan. 
+
+
+
+###### 17 
+
+Jesus asked, "Didn't I heal ten men? Where are the other nine? 
+
+
+
+###### 18 
+
+Has no one returned to give glory to God except this foreigner?" 
+
+
+
+###### 19 
+
+And Jesus said to the man, "Stand up and go. Your faith has healed you.[^c]" ## The Coming of the Kingdom 
+
+
+
+###### 20 
+
+One day the Pharisees asked Jesus, "When will the Kingdom of God come?" Jesus replied, "The Kingdom of God can't be detected by visible signs.[^d] 
+
+
+
+###### 21 
+
+You won't be able to say, 'Here it is!' or 'It's over there!' For the Kingdom of God is already among you.[^e]" 
+
+
+
+###### 22 
+
+Then he said to his disciples, "The time is coming when you will long to see the day when the Son of Man returns,[^f] but you won't see it. 
+
+
+
+###### 23 
+
+People will tell you, 'Look, there is the Son of Man,' or 'Here he is,' but don't go out and follow them. 
+
+
+
+###### 24 
+
+For as the lightning flashes and lights up the sky from one end to the other, so it will be on the day[^g] when the Son of Man comes. 
+
+
+
+###### 25 
+
+But first the Son of Man must suffer terribly[^h] and be rejected by this generation. 
+
+
+
+###### 26 
+
+"When the Son of Man returns, it will be like it was in Noah's day. 
+
+
+
+###### 27 
+
+In those days, the people enjoyed banquets and parties and weddings right up to the time Noah entered his boat and the flood came and destroyed them all. 
+
+
+
+###### 28 
+
+"And the world will be as it was in the days of Lot. People went about their daily business--eating and drinking, buying and selling, farming and building-- 
+
+
+
+###### 29 
+
+until the morning Lot left Sodom. Then fire and burning sulfur rained down from heaven and destroyed them all. 
+
+
+
+###### 30 
+
+Yes, it will be 'business as usual' right up to the day when the Son of Man is revealed. 
+
+
+
+###### 31 
+
+On that day a person out on the deck of a roof must not go down into the house to pack. A person out in the field must not return home. 
+
+
+
+###### 32 
+
+Remember what happened to Lot's wife! 
+
+
+
+###### 33 
+
+If you cling to your life, you will lose it, and if you let your life go, you will save it. 
+
+
+
+###### 34 
+
+That night two people will be asleep in one bed; one will be taken, the other left. 
+
+
+
+###### 35 
+
+Two women will be grinding flour together at the mill; one will be taken, the other left.[^i]" 
+
+
+
+###### 37 
+
+"Where will this happen, Lord?"[^j] the disciples asked. Jesus replied, "Just as the gathering of vultures shows there is a carcass nearby, so these signs indicate that the end is near."[^k] ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 17:3 Greek _If your brother._ [^b]: 17:14 See [Lev 14:2-32]. [^c]: 17:19 Or _Your faith has saved you._ [^d]: 17:20 Or _by your speculations._ [^e]: 17:21 Or _is within you,_ or _is in your grasp._ [^f]: 17:22 Or _long for even one day with the Son of Man._ “Son of Man” is a title Jesus used for himself. [^g]: 17:24 Some manuscripts do not include _on the day._ [^h]: 17:25 Or _suffer many things._ [^i]: 17:35 Some manuscripts add verse 36, _Two men will be working in the field; one will be taken, the other left._ Compare [Matt 24:40]. [^j]: 17:37a Greek _“Where, Lord?”_ [^k]: 17:37b Greek _“Wherever the carcass is, the vultures gather.”_

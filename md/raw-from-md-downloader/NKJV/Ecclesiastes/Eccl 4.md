@@ -1,0 +1,58 @@
+---
+Aliases: [Ecclesiastes 4]
+previous: ['Eccl 3']
+up: ['Ecclesiastes']
+next: ['Eccl 5']
+---
+# Ecclesiastes 4
+
+***
+
+
+###### 1 
+Then I returned and considered all the oppression that is done under the sun: And look! The tears of the oppressed, But they have no comforter-- [^a]On the side of their oppressors _there is_ power, But they have no comforter. 
+
+###### 2 
+Therefore I praised the dead who were already dead, More than the living who are still alive. 
+
+###### 3 
+Yet, better than both _is he_ who has never existed, Who has not seen the evil work that is done under the sun. ## The Vanity of Selfish Toil 
+
+###### 4 
+Again, I saw that for all toil and every skillful work a man is envied by his neighbor. This also _is_ vanity and grasping for the wind. 
+
+###### 5 
+The fool folds his hands And consumes his own flesh. 
+
+###### 6 
+Better a handful _with_ quietness Than both hands full, _together with_ toil and grasping for the wind. 
+
+###### 7 
+Then I returned, and I saw vanity under the sun: 
+
+###### 8 
+There is one alone, without [^b]companion: He has neither son nor brother. Yet _there is_ no end to all his labors, Nor is his eye satisfied with riches. _But_ _he never asks,_ "For whom do I toil and deprive myself of good?" This also _is_ vanity and a [^c]grave misfortune. ## The Value of a Friend 
+
+###### 9 
+Two _are_ better than one, Because they have a good reward for their labor. 
+
+###### 10 
+For if they fall, one will lift up his companion. But woe to him _who is_ alone when he falls, For _he has_ no one to help him up. 
+
+###### 11 
+Again, if two lie down together, they will keep warm; But how can one be warm _alone?_ 
+
+###### 12 
+Though one may be overpowered by another, two can withstand him. And a threefold cord is not quickly broken. ## Popularity Passes Away 
+
+###### 13 
+Better a poor and wise youth Than an old and foolish king who will be admonished no more. 
+
+###### 14 
+For he comes out of prison to be king, Although [^d]he was born poor in his kingdom. 
+
+###### 15 
+I saw all the living who walk under the sun; They were with the second youth who stands in his place. 
+
+###### 16 
+_There was_ no end of all the people [^e]over whom he was made king; Yet those who come afterward will not rejoice in him. Surely this also _is_ vanity and grasping for the wind. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Ecclesiastes 4:1 Lit. _At the hand_ [^b]: Ecclesiastes 4:8 Lit. _a second_ [^c]: Ecclesiastes 4:8 Lit. _evil task_ [^d]: Ecclesiastes 4:14 The youth [^e]: Ecclesiastes 4:16 Lit. _to all before whom he was to be_

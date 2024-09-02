@@ -1,0 +1,91 @@
+---
+Aliases: [Acts 25]
+previous: ['Acts 24']
+up: ['Acts']
+next: ['Acts 26']
+---
+# Acts 25
+
+***
+
+
+###### 1 
+Now when Festus had come to the province, after three days he went up from Caesarea to Jerusalem. 
+
+###### 2 
+Then the [^a]high priest and the chief men of the Jews informed him against Paul; and they petitioned him, 
+
+###### 3 
+asking a favor against him, that he would summon him to Jerusalem--while _they_ lay in ambush along the road to kill him. 
+
+###### 4 
+But Festus answered that Paul should be kept at Caesarea, and that he himself was going _there_ shortly. 
+
+###### 5 
+"Therefore," he said, "let those who have authority among you go down with _me_ and accuse this man, to see if there is any fault in him." 
+
+###### 6 
+And when he had remained among them more than ten days, he went down to Caesarea. And the next day, sitting on the judgment seat, he commanded Paul to be brought. 
+
+###### 7 
+When he had come, the Jews who had come down from Jerusalem stood about and laid many serious complaints against Paul, which they could not prove, 
+
+###### 8 
+while he answered for himself, "Neither against the law of the Jews, nor against the temple, nor against Caesar have I offended in anything at all." 
+
+###### 9 
+But Festus, wanting to do the Jews a favor, answered Paul and said, "Are you willing to go up to Jerusalem and there be judged before me concerning these things?" 
+
+###### 10 
+So Paul said, "I stand at Caesar's judgment seat, where I ought to be judged. To the Jews I have done no wrong, as you very well know. 
+
+###### 11 
+For if I am an offender, or have committed anything deserving of death, I do not object to dying; but if there is nothing in these things of which these men accuse me, no one can deliver me to them. I appeal to Caesar." 
+
+###### 12 
+Then Festus, when he had conferred with the council, answered, "You have appealed to Caesar? To Caesar you shall go!" ## Paul Before Agrippa 
+
+###### 13 
+And after some days King Agrippa and Bernice came to Caesarea to greet Festus. 
+
+###### 14 
+When they had been there many days, Festus laid Paul's case before the king, saying: "There is a certain man left a prisoner by Felix, 
+
+###### 15 
+about whom the chief priests and the elders of the Jews informed _me,_ when I was in Jerusalem, asking for a judgment against him. 
+
+###### 16 
+To them I answered, 'It is not the custom of the Romans to deliver any man [^b]to destruction before the accused meets the accusers face to face, and has opportunity to answer for himself concerning the charge against him.' 
+
+###### 17 
+Therefore when they had come together, without any delay, the next day I sat on the judgment seat and commanded the man to be brought in. 
+
+###### 18 
+When the accusers stood up, they brought no accusation against him of such things as I [^c]supposed, 
+
+###### 19 
+but had some questions against him about their own religion and about a certain Jesus, who had died, whom Paul affirmed to be alive. 
+
+###### 20 
+And because I was uncertain of such questions, I asked whether he was willing to go to Jerusalem and there be judged concerning these matters. 
+
+###### 21 
+But when Paul appealed to be reserved for the decision of Augustus, I commanded him to be kept till I could send him to Caesar." 
+
+###### 22 
+Then Agrippa said to Festus, "I also would like to hear the man myself." "Tomorrow," he said, "you shall hear him." 
+
+###### 23 
+So the next day, when Agrippa and Bernice had come with great [^d]pomp, and had entered the auditorium with the commanders and the prominent men of the city, at Festus' command Paul was brought in. 
+
+###### 24 
+And Festus said: "King Agrippa and all the men who are here present with us, you see this man about whom the whole assembly of the Jews petitioned me, both at Jerusalem and here, crying out that he was not fit to live any longer. 
+
+###### 25 
+But when I found that he had committed nothing deserving of death, and that he himself had appealed to Augustus, I decided to send him. 
+
+###### 26 
+I have nothing certain to write to my lord concerning him. Therefore I have brought him out before you, and especially before you, King Agrippa, so that after the examination has taken place I may have something to write. 
+
+###### 27 
+For it seems to me unreasonable to send a prisoner and not to specify the charges against him." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Acts 25:2 NU _chief priests_ [^b]: Acts 25:16 NU omits _to destruction,_ although it is implied [^c]: Acts 25:18 _suspected_ [^d]: Acts 25:23 _pageantry_

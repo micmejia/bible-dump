@@ -1,0 +1,154 @@
+---
+Aliases: [Leviticus 21]
+previous: ['Lev 20']
+up: ['Leviticus']
+next: ['Lev 22']
+---
+# Leviticus 21
+
+***
+
+
+
+
+###### 1 
+
+The LORD said to Moses, "Give the following instructions to the priests, the descendants of Aaron. "A priest must not make himself ceremonially unclean by touching the dead body of a relative. 
+
+
+
+###### 2 
+
+The only exceptions are his closest relatives--his mother or father, son or daughter, brother, 
+
+
+
+###### 3 
+
+or his virgin sister who depends on him because she has no husband. 
+
+
+
+###### 4 
+
+But a priest must not defile himself and make himself unclean for someone who is related to him only by marriage. 
+
+
+
+###### 5 
+
+"The priests must not shave their heads or trim their beards or cut their bodies. 
+
+
+
+###### 6 
+
+They must be set apart as holy to their God and must never bring shame on the name of God. They must be holy, for they are the ones who present the special gifts to the LORD, gifts of food for their God. 
+
+
+
+###### 7 
+
+"Priests may not marry a woman defiled by prostitution, and they may not marry a woman who is divorced from her husband, for the priests are set apart as holy to their God. 
+
+
+
+###### 8 
+
+You must treat them as holy because they offer up food to your God. You must consider them holy because I, the LORD, am holy, and I make you holy. 
+
+
+
+###### 9 
+
+"If a priest's daughter defiles herself by becoming a prostitute, she also defiles her father's holiness, and she must be burned to death. 
+
+
+
+###### 10 
+
+"The high priest has the highest rank of all the priests. The anointing oil has been poured on his head, and he has been ordained to wear the priestly garments. He must never leave his hair uncombed[^a] or tear his clothing. 
+
+
+
+###### 11 
+
+He must not defile himself by going near a dead body. He may not make himself ceremonially unclean even for his father or mother. 
+
+
+
+###### 12 
+
+He must not defile the sanctuary of his God by leaving it to attend to a dead person, for he has been made holy by the anointing oil of his God. I am the LORD. 
+
+
+
+###### 13 
+
+"The high priest may marry only a virgin. 
+
+
+
+###### 14 
+
+He may not marry a widow, a woman who is divorced, or a woman who has defiled herself by prostitution. She must be a virgin from his own clan, 
+
+
+
+###### 15 
+
+so that he will not dishonor his descendants among his clan, for I am the LORD who makes him holy." 
+
+
+
+###### 16 
+
+Then the LORD said to Moses, 
+
+
+
+###### 17 
+
+"Give the following instructions to Aaron: In all future generations, none of your descendants who has any defect will qualify to offer food to his God. 
+
+
+
+###### 18 
+
+No one who has a defect qualifies, whether he is blind, lame, disfigured, deformed, 
+
+
+
+###### 19 
+
+or has a broken foot or arm, 
+
+
+
+###### 20 
+
+or is hunchbacked or dwarfed, or has a defective eye, or skin sores or scabs, or damaged testicles. 
+
+
+
+###### 21 
+
+No descendant of Aaron who has a defect may approach the altar to present special gifts to the LORD. Since he has a defect, he may not approach the altar to offer food to his God. 
+
+
+
+###### 22 
+
+However, he may eat from the food offered to God, including the holy offerings and the most holy offerings. 
+
+
+
+###### 23 
+
+Yet because of his physical defect, he may not enter the room behind the inner curtain or approach the altar, for this would defile my holy places. I am the LORD who makes them holy." 
+
+
+
+###### 24 
+
+So Moses gave these instructions to Aaron and his sons and to all the Israelites. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 21:10 Or _never uncover his head._

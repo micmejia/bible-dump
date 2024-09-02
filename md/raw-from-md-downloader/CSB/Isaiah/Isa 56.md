@@ -1,0 +1,190 @@
+---
+Aliases: [Isaiah 56]
+previous: ['Isa 55']
+up: ['Isaiah']
+next: ['Isa 57']
+---
+# Isaiah 56
+
+***
+
+
+
+
+
+
+
+
+
+
+###### 1 
+
+
+
+
+This is what the Lord says: Preserve justice and do what is right, for my salvation is coming soon, and my righteousness will be revealed. 
+
+
+
+
+
+
+
+
+
+###### 2 
+
+
+
+
+Happy is the person who does this, the son of man who holds it fast, who keeps the Sabbath without desecrating it, and keeps his hand from doing any evil. 
+
+
+
+
+
+
+
+
+
+###### 3 
+
+
+
+
+No foreigner who has joined himself to the Lord should say, "The Lord will exclude me from his people," and the eunuch should not say, "Look, I am a dried-up tree." 
+
+
+
+
+
+
+
+
+
+###### 4 
+
+
+
+
+For the Lord says this: "For the eunuchs who keep my Sabbaths, and choose what pleases me, and hold firmly to my covenant, 
+
+
+
+
+
+
+
+
+
+###### 5 
+
+
+
+
+I will give them, in my house and within my walls, a memorial and a name better than sons and daughters. I will give each of them an everlasting name that will never be cut off. 
+
+
+
+
+
+
+
+
+
+###### 6 
+
+
+
+
+As for the foreigners who join themselves to the Lord to minister to him, to love the name of the Lord, and to become his servants-- all who keep the Sabbath without desecrating it and who hold firmly to my covenant-- 
+
+
+
+
+
+
+
+
+
+###### 7 
+
+
+
+
+I will bring them to my holy mountain and let them rejoice in my house of prayer. Their burnt offerings and sacrifices will be acceptable on my altar, for my house will be called a house of prayer for all nations." 
+
+
+
+
+
+
+
+
+
+###### 8 
+
+
+
+
+This is the declaration of the Lord God, who gathers the dispersed of Israel: "I will gather to them still others besides those already gathered." ## Unrighteous Leaders Condemned 
+
+
+
+
+
+
+
+
+
+###### 9 
+
+
+
+
+All you animals of the field and forest, come and eat! 
+
+
+
+
+
+
+
+
+
+###### 10 
+
+
+
+
+Israel's[^a] watchmen are blind, all of them, they know nothing; all of them are mute dogs, they cannot bark; they dream, lie down, and love to sleep. 
+
+
+
+
+
+
+
+
+
+###### 11 
+
+
+
+
+These dogs have fierce appetites; they never have enough. And they are shepherds who have no discernment; all of them turn to their own way, every last one for his own profit. 
+
+
+
+
+
+
+
+
+
+###### 12 
+
+
+
+
+"Come, let me get some wine, let's guzzle some beer; and tomorrow will be like today, only far better!" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 56:10 Or <em>His</em>, or <em>Its</em>

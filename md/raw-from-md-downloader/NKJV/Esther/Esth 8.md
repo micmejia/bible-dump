@@ -1,0 +1,61 @@
+---
+Aliases: [Esther 8]
+previous: ['Esth 7']
+up: ['Esther']
+next: ['Esth 9']
+---
+# Esther 8
+
+***
+
+
+###### 1 
+On that day King Ahasuerus gave Queen Esther the house of Haman, the enemy of the Jews. And Mordecai came before the king, for Esther had told how he _was related_ to her. 
+
+###### 2 
+So the king took off his signet ring, which he had taken from Haman, and gave it to Mordecai; and Esther appointed Mordecai over the house of Haman. 
+
+###### 3 
+Now Esther spoke again to the king, fell down at his feet, and implored him with tears to counteract the evil of Haman the Agagite, and the scheme which he had devised against the Jews. 
+
+###### 4 
+And the king held out the golden scepter toward Esther. So Esther arose and stood before the king, 
+
+###### 5 
+and said, "If it pleases the king, and if I have found favor in his sight and the thing _seems_ right to the king and I am pleasing in his eyes, let it be written to revoke the letters devised by Haman, the son of Hammedatha the Agagite, which he wrote to annihilate the Jews who _are_ in all the king's provinces. 
+
+###### 6 
+For how can I endure to see the evil that will come to my people? Or how can I endure to see the destruction of my countrymen?" 
+
+###### 7 
+Then King Ahasuerus said to Queen Esther and Mordecai the Jew, "Indeed, I have given Esther the house of Haman, and they have hanged him on the gallows because he _tried to_ lay his hand on the Jews. 
+
+###### 8 
+You yourselves write _a decree_ concerning the Jews, [^a]as you please, in the king's name, and seal _it_ with the king's signet ring; for whatever is written in the king's name and sealed with the king's signet ring no one can revoke." 
+
+###### 9 
+So the king's scribes were called at that time, in the third month, which _is_ the month of Sivan, on the twenty-third _day;_ and it was written, according to all that Mordecai commanded, to the Jews, the satraps, the governors, and the princes of the provinces from India to Ethiopia, one hundred and twenty-seven provinces _in all,_ to every province in its own script, to every people in their own language, and to the Jews in their own script and language. 
+
+###### 10 
+And he wrote in the name of King Ahasuerus, sealed _it_ with the king's signet ring, and sent letters by couriers on horseback, riding on royal horses [^b]bred from swift steeds. 
+
+###### 11 
+By these letters the king permitted the Jews who _were_ in every city to gather together and protect their lives--to destroy, kill, and annihilate all the forces of any people or province that would assault them, _both_ little children and women, and to plunder their possessions, 
+
+###### 12 
+on one day in all the provinces of King Ahasuerus, on the thirteenth _day_ of the twelfth month, which _is_ the month of [^c]Adar. 
+
+###### 13 
+A copy of the document was to be issued as a decree in every province and published for all people, so that the Jews would be ready on that day to avenge themselves on their enemies. 
+
+###### 14 
+The couriers who rode on royal horses went out, hastened and pressed on by the king's command. And the decree was issued in [^d]Shushan the [^e]citadel. 
+
+###### 15 
+So Mordecai went out from the presence of the king in royal apparel of [^f]blue and white, with a great crown of gold and a garment of fine linen and purple; and the city of [^g]Shushan rejoiced and was glad. 
+
+###### 16 
+The Jews had light and gladness, joy and honor. 
+
+###### 17 
+And in every province and city, wherever the king's command and decree came, the Jews had joy and gladness, a feast and a holiday. Then many of the people of the land became Jews, because fear of the Jews fell upon them. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Esther 8:8 Lit. _as is good in your eyes_ [^b]: Esther 8:10 Lit. _sons of the swift horses_ [^c]: Esther 8:12 LXX adds the text of the letter here [^d]: Esther 8:14 Or _Susa_ [^e]: Esther 8:14 _palace_ [^f]: Esther 8:15 _violet_ [^g]: Esther 8:15 Or _Susa_

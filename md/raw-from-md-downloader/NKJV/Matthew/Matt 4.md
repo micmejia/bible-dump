@@ -1,0 +1,85 @@
+---
+Aliases: [Matthew 4]
+previous: ['Matt 3']
+up: ['Matthew']
+next: ['Matt 5']
+---
+# Matthew 4
+
+***
+
+
+###### 1 
+Then Jesus was led up by the Spirit into the wilderness to be tempted by the devil. 
+
+###### 2 
+And when He had fasted forty days and forty nights, afterward He was hungry. 
+
+###### 3 
+Now when the tempter came to Him, he said, "If You are the Son of God, command that these stones become bread." 
+
+###### 4 
+But He answered and said, "It is written, 'Man shall not live by bread alone, but by every word that proceeds from the mouth of God.' " 
+
+###### 5 
+Then the devil took Him up into the holy city, set Him on the pinnacle of the temple, 
+
+###### 6 
+and said to Him, "If You are the Son of God, throw Yourself down. For it is written: 'He shall give His angels charge over you,' and, 'In _their_ hands they shall bear you up, Lest you dash your foot against a stone.' " 
+
+###### 7 
+Jesus said to him, "It is written again, 'You shall not [^a]tempt the Lord your God.' " 
+
+###### 8 
+Again, the devil took Him up on an exceedingly high mountain, and showed Him all the kingdoms of the world and their glory. 
+
+###### 9 
+And he said to Him, "All these things I will give You if You will fall down and worship me." 
+
+###### 10 
+Then Jesus said to him, [^b]"Away with you, Satan! For it is written, 'You shall worship the Lord your God, and Him only you shall serve.' " 
+
+###### 11 
+Then the devil left Him, and behold, angels came and ministered to Him. ## Jesus Begins His Galilean Ministry 
+
+###### 12 
+Now when Jesus heard that John had been put in prison, He departed to Galilee. 
+
+###### 13 
+And leaving Nazareth, He came and dwelt in Capernaum, which is by the sea, in the regions of Zebulun and Naphtali, 
+
+###### 14 
+that it might be fulfilled which was spoken by Isaiah the prophet, saying: 
+
+###### 15 
+"The land of Zebulun and the land of Naphtali, _By_ the way of the sea, beyond the Jordan, Galilee of the Gentiles: 
+
+###### 16 
+The people who sat in darkness have seen a great light, And upon those who sat in the region and shadow of death Light has dawned." 
+
+###### 17 
+From that time Jesus began to preach and to say, "Repent, for the kingdom of heaven [^c]is at hand." ## Four Fishermen Called as Disciples 
+
+###### 18 
+And Jesus, walking by the Sea of Galilee, saw two brothers, Simon called Peter, and Andrew his brother, casting a net into the sea; for they were fishermen. 
+
+###### 19 
+Then He said to them, "Follow Me, and I will make you fishers of men." 
+
+###### 20 
+They immediately left _their_ nets and followed Him. 
+
+###### 21 
+Going on from there, He saw two other brothers, James _the son_ of Zebedee, and John his brother, in the boat with Zebedee their father, mending their nets. He called them, 
+
+###### 22 
+and immediately they left the boat and their father, and followed Him. ## Jesus Heals a Great Multitude 
+
+###### 23 
+And Jesus went about all Galilee, teaching in their synagogues, preaching the gospel of the kingdom, and healing all kinds of sickness and all kinds of disease among the people. 
+
+###### 24 
+Then [^d]His fame went throughout all Syria; and they brought to Him all sick people who were afflicted with various diseases and torments, and those who were demon-possessed, epileptics, and paralytics; and He healed them. 
+
+###### 25 
+Great multitudes followed Him--from Galilee, and _from_ [^e]Decapolis, Jerusalem, Judea, and beyond the Jordan. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Matthew 4:7 _test_ [^b]: Matthew 4:10 M _Get behind Me_ [^c]: Matthew 4:17 _has drawn near_ [^d]: Matthew 4:24 Lit. _the report of Him_ [^e]: Matthew 4:25 Lit. _Ten Cities_

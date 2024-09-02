@@ -1,0 +1,190 @@
+---
+Aliases: [Judges 19]
+previous: ['Judg 18']
+up: ['Judges']
+next: ['Judg 20']
+---
+# Judges 19
+
+***
+
+
+
+
+###### 1 
+
+Now in those days Israel had no king. There was a man from the tribe of Levi living in a remote area of the hill country of Ephraim. One day he brought home a woman from Bethlehem in Judah to be his concubine. 
+
+
+
+###### 2 
+
+But she became angry with him[^a] and returned to her father's home in Bethlehem. After about four months, 
+
+
+
+###### 3 
+
+her husband set out for Bethlehem to speak personally to her and persuade her to come back. He took with him a servant and a pair of donkeys. When he arrived at[^b] her father's house, her father saw him and welcomed him. 
+
+
+
+###### 4 
+
+Her father urged him to stay awhile, so he stayed three days, eating, drinking, and sleeping there. 
+
+
+
+###### 5 
+
+On the fourth day the man was up early, ready to leave, but the woman's father said to his son-in-law, "Have something to eat before you go." 
+
+
+
+###### 6 
+
+So the two men sat down together and had something to eat and drink. Then the woman's father said, "Please stay another night and enjoy yourself." 
+
+
+
+###### 7 
+
+The man got up to leave, but his father-in-law kept urging him to stay, so he finally gave in and stayed the night. 
+
+
+
+###### 8 
+
+On the morning of the fifth day he was up early again, ready to leave, and again the woman's father said, "Have something to eat; then you can leave later this afternoon." So they had another day of feasting. 
+
+
+
+###### 9 
+
+Later, as the man and his concubine and servant were preparing to leave, his father-in-law said, "Look, it's almost evening. Stay the night and enjoy yourself. Tomorrow you can get up early and be on your way." 
+
+
+
+###### 10 
+
+But this time the man was determined to leave. So he took his two saddled donkeys and his concubine and headed in the direction of Jebus (that is, Jerusalem). 
+
+
+
+###### 11 
+
+It was late in the day when they neared Jebus, and the man's servant said to him, "Let's stop at this Jebusite town and spend the night there." 
+
+
+
+###### 12 
+
+"No," his master said, "we can't stay in this foreign town where there are no Israelites. Instead, we will go on to Gibeah. 
+
+
+
+###### 13 
+
+Come on, let's try to get as far as Gibeah or Ramah, and we'll spend the night in one of those towns." 
+
+
+
+###### 14 
+
+So they went on. The sun was setting as they came to Gibeah, a town in the land of Benjamin, 
+
+
+
+###### 15 
+
+so they stopped there to spend the night. They rested in the town square, but no one took them in for the night. 
+
+
+
+###### 16 
+
+That evening an old man came home from his work in the fields. He was from the hill country of Ephraim, but he was living in Gibeah, where the people were from the tribe of Benjamin. 
+
+
+
+###### 17 
+
+When he saw the travelers sitting in the town square, he asked them where they were from and where they were going. 
+
+
+
+###### 18 
+
+"We have been in Bethlehem in Judah," the man replied. "We are on our way to a remote area in the hill country of Ephraim, which is my home. I traveled to Bethlehem, and now I'm returning home.[^c] But no one has taken us in for the night, 
+
+
+
+###### 19 
+
+even though we have everything we need. We have straw and feed for our donkeys and plenty of bread and wine for ourselves." 
+
+
+
+###### 20 
+
+"You are welcome to stay with me," the old man said. "I will give you anything you might need. But whatever you do, don't spend the night in the square." 
+
+
+
+###### 21 
+
+So he took them home with him and fed the donkeys. After they washed their feet, they ate and drank together. 
+
+
+
+###### 22 
+
+While they were enjoying themselves, a crowd of troublemakers from the town surrounded the house. They began beating at the door and shouting to the old man, "Bring out the man who is staying with you so we can have sex with him." 
+
+
+
+###### 23 
+
+The old man stepped outside to talk to them. "No, my brothers, don't do such an evil thing. For this man is a guest in my house, and such a thing would be shameful. 
+
+
+
+###### 24 
+
+Here, take my virgin daughter and this man's concubine. I will bring them out to you, and you can abuse them and do whatever you like. But don't do such a shameful thing to this man." 
+
+
+
+###### 25 
+
+But they wouldn't listen to him. So the Levite took hold of his concubine and pushed her out the door. The men of the town abused her all night, taking turns raping her until morning. Finally, at dawn they let her go. 
+
+
+
+###### 26 
+
+At daybreak the woman returned to the house where her husband was staying. She collapsed at the door of the house and lay there until it was light. 
+
+
+
+###### 27 
+
+When her husband opened the door to leave, there lay his concubine with her hands on the threshold. 
+
+
+
+###### 28 
+
+He said, "Get up! Let's go!" But there was no answer.[^d] So he put her body on his donkey and took her home. 
+
+
+
+###### 29 
+
+When he got home, he took a knife and cut his concubine's body into twelve pieces. Then he sent one piece to each tribe throughout all the territory of Israel. 
+
+
+
+###### 30 
+
+Everyone who saw it said, "Such a horrible crime has not been committed in all the time since Israel left Egypt. Think about it! What are we going to do? Who's going to speak up?" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 19:2 Or _she was unfaithful to him._ [^b]: 19:3 As in Greek version; Hebrew reads _When she brought him to._ [^c]: 19:18 As in Greek version (see also [19:29]); Hebrew reads _now I’m going to the Tabernacle of the Lord._ [^d]: 19:28 Greek version adds _for she was dead._

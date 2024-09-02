@@ -1,0 +1,106 @@
+---
+Aliases: [Jeremiah 29]
+previous: ['Jer 28']
+up: ['Jeremiah']
+next: ['Jer 30']
+---
+# Jeremiah 29
+
+***
+
+
+###### 1 
+Now these _are_ the words of the letter that Jeremiah the prophet sent from Jerusalem to the remainder of the elders who were carried away captive--to the priests, the prophets, and all the people whom Nebuchadnezzar had carried away captive from Jerusalem to Babylon. 
+
+###### 2 
+(This happened after Jeconiah[^a] the king, the queen mother, the [^b]eunuchs, the princes of Judah and Jerusalem, the craftsmen, and the smiths had departed from Jerusalem.) 
+
+###### 3 
+_The letter was sent_ by the hand of Elasah the son of Shaphan, and Gemariah the son of Hilkiah, whom Zedekiah king of Judah sent to Babylon, to Nebuchadnezzar king of Babylon, saying, 
+
+###### 4 
+Thus says the Lord of hosts, the God of Israel, to all who were carried away captive, whom I have caused to be carried away from Jerusalem to Babylon: 
+
+###### 5 
+Build houses and dwell _in them;_ plant gardens and eat their fruit. 
+
+###### 6 
+Take wives and beget sons and daughters; and take wives for your sons and give your daughters to husbands, so that they may bear sons and daughters--that you may be increased there, and not diminished. 
+
+###### 7 
+And seek the peace of the city where I have caused you to be carried away captive, and pray to the Lord for it; for in its peace you will have peace. 
+
+###### 8 
+For thus says the Lord of hosts, the God of Israel: Do not let your prophets and your diviners who are in your midst deceive you, nor listen to your dreams which you cause to be dreamed. 
+
+###### 9 
+For they prophesy falsely to you in My name; I have not sent them, says the Lord. 
+
+###### 10 
+For thus says the Lord: After seventy years are completed at Babylon, I will visit you and perform My good word toward you, and cause you to return to this place. 
+
+###### 11 
+For I know the thoughts that I think toward you, says the Lord, thoughts of peace and not of evil, to give you a future and a hope. 
+
+###### 12 
+Then you will call upon Me and go and pray to Me, and I will listen to you. 
+
+###### 13 
+And you will seek Me and find _Me,_ when you search for Me with all your heart. 
+
+###### 14 
+I will be found by you, says the Lord, and I will bring you back from your captivity; I will gather you from all the nations and from all the places where I have driven you, says the Lord, and I will bring you to the place from which I cause you to be carried away captive. 
+
+###### 15 
+Because you have said, "The Lord has raised up prophets for us in Babylon"-- 
+
+###### 16 
+therefore thus says the Lord concerning the king who sits on the throne of David, concerning all the people who dwell in this city, and concerning your brethren who have not gone out with you into captivity-- 
+
+###### 17 
+thus says the Lord of hosts: Behold, I will send on them the sword, the famine, and the pestilence, and will make them like rotten figs that cannot be eaten, they are so bad. 
+
+###### 18 
+And I will pursue them with the sword, with famine, and with pestilence; and I will deliver them to trouble among all the kingdoms of the earth--to be a curse, an astonishment, a hissing, and a reproach among all the nations where I have driven them, 
+
+###### 19 
+because they have not heeded My words, says the Lord, which I sent to them by My servants the prophets, rising up early and sending _them;_ neither would you heed, says the Lord. 
+
+###### 20 
+Therefore hear the word of the Lord, all you of the captivity, whom I have sent from Jerusalem to Babylon. 
+
+###### 21 
+Thus says the Lord of hosts, the God of Israel, concerning Ahab the son of Kolaiah, and Zedekiah the son of Maaseiah, who prophesy a lie to you in My name: Behold, I will deliver them into the hand of Nebuchadnezzar king of Babylon, and he shall slay them before your eyes. 
+
+###### 22 
+And because of them a curse shall be taken up by all the captivity of Judah who _are_ in Babylon, saying, "The Lord make you like Zedekiah and Ahab, whom the king of Babylon roasted in the fire"; 
+
+###### 23 
+because they have done disgraceful things in Israel, have committed adultery with their neighbors' wives, and have spoken lying words in My name, which I have not commanded them. Indeed I know, and _am_ a witness, says the Lord. 
+
+###### 24 
+You shall also speak to Shemaiah the Nehelamite, saying, 
+
+###### 25 
+Thus speaks the Lord of hosts, the God of Israel, saying: You have sent letters in your name to all the people who _are_ at Jerusalem, to Zephaniah the son of Maaseiah the priest, and to all the priests, saying, 
+
+###### 26 
+"The Lord has made you priest instead of Jehoiada the priest, so that there should be officers _in_ the house of the Lord over every man _who_ is demented and considers himself a prophet, that you should put him in prison and in the stocks. 
+
+###### 27 
+Now therefore, why have you not rebuked Jeremiah of Anathoth who makes himself a prophet to you? 
+
+###### 28 
+For he has sent to us _in_ Babylon, saying, 'This _captivity is_ long; build houses and dwell _in them,_ and plant gardens and eat their fruit.' " 
+
+###### 29 
+Now Zephaniah the priest read this letter in the hearing of Jeremiah the prophet. 
+
+###### 30 
+Then the word of the Lord came to Jeremiah, saying: 
+
+###### 31 
+Send to all those in captivity, saying, Thus says the Lord concerning Shemaiah the Nehelamite: Because Shemaiah has prophesied to you, and I have not sent him, and he has caused you to trust in a lie-- 
+
+###### 32 
+therefore thus says the Lord: Behold, I will punish Shemaiah the Nehelamite and his [^c]family: he shall not have anyone to dwell among this people, nor shall he see the good that I will do for My people, says the Lord, because he has taught rebellion against the Lord. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Jeremiah 29:2 _Jehoiachin,_ [2 Kin. 24:12]; [2 Chr. 36:10] [^b]: Jeremiah 29:2 Or _officers_ [^c]: Jeremiah 29:32 _descendants,_ lit. _seed_

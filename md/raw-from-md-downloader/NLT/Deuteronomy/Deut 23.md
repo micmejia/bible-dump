@@ -1,0 +1,160 @@
+---
+Aliases: [Deuteronomy 23]
+previous: ['Deut 22']
+up: ['Deuteronomy']
+next: ['Deut 24']
+---
+# Deuteronomy 23
+
+***
+
+
+
+
+###### 1 
+
+[^a]"If a man's testicles are crushed or his penis is cut off, he may not be admitted to the assembly of the LORD. 
+
+
+
+###### 2 
+
+"If a person is illegitimate by birth, neither he nor his descendants for ten generations may be admitted to the assembly of the LORD. 
+
+
+
+###### 3 
+
+"No Ammonite or Moabite or any of their descendants for ten generations may be admitted to the assembly of the LORD. 
+
+
+
+###### 4 
+
+These nations did not welcome you with food and water when you came out of Egypt. Instead, they hired Balaam son of Beor from Pethor in distant Aram-naharaim to curse you. 
+
+
+
+###### 5 
+
+But the LORD your God refused to listen to Balaam. He turned the intended curse into a blessing because the LORD your God loves you. 
+
+
+
+###### 6 
+
+As long as you live, you must never promote the welfare and prosperity of the Ammonites or Moabites. 
+
+
+
+###### 7 
+
+"Do not detest the Edomites or the Egyptians, because the Edomites are your relatives and you lived as foreigners among the Egyptians. 
+
+
+
+###### 8 
+
+The third generation of Edomites and Egyptians may enter the assembly of the LORD. ## Miscellaneous Regulations 
+
+
+
+###### 9 
+
+"When you go to war against your enemies, be sure to stay away from anything that is impure. 
+
+
+
+###### 10 
+
+"Any man who becomes ceremonially defiled because of a nocturnal emission must leave the camp and stay away all day. 
+
+
+
+###### 11 
+
+Toward evening he must bathe himself, and at sunset he may return to the camp. 
+
+
+
+###### 12 
+
+"You must have a designated area outside the camp where you can go to relieve yourself. 
+
+
+
+###### 13 
+
+Each of you must have a spade as part of your equipment. Whenever you relieve yourself, dig a hole with the spade and cover the excrement. 
+
+
+
+###### 14 
+
+The camp must be holy, for the LORD your God moves around in your camp to protect you and to defeat your enemies. He must not see any shameful thing among you, or he will turn away from you. 
+
+
+
+###### 15 
+
+"If slaves should escape from their masters and take refuge with you, you must not hand them over to their masters. 
+
+
+
+###### 16 
+
+Let them live among you in any town they choose, and do not oppress them. 
+
+
+
+###### 17 
+
+"No Israelite, whether man or woman, may become a temple prostitute. 
+
+
+
+###### 18 
+
+When you are bringing an offering to fulfill a vow, you must not bring to the house of the LORD your God any offering from the earnings of a prostitute, whether a man[^b] or a woman, for both are detestable to the LORD your God. 
+
+
+
+###### 19 
+
+"Do not charge interest on the loans you make to a fellow Israelite, whether you loan money, or food, or anything else. 
+
+
+
+###### 20 
+
+You may charge interest to foreigners, but you may not charge interest to Israelites, so that the LORD your God may bless you in everything you do in the land you are about to enter and occupy. 
+
+
+
+###### 21 
+
+"When you make a vow to the LORD your God, be prompt in fulfilling whatever you promised him. For the LORD your God demands that you promptly fulfill all your vows, or you will be guilty of sin. 
+
+
+
+###### 22 
+
+However, it is not a sin to refrain from making a vow. 
+
+
+
+###### 23 
+
+But once you have voluntarily made a vow, be careful to fulfill your promise to the LORD your God. 
+
+
+
+###### 24 
+
+"When you enter your neighbor's vineyard, you may eat your fill of grapes, but you must not carry any away in a basket. 
+
+
+
+###### 25 
+
+And when you enter your neighbor's field of grain, you may pluck the heads of grain with your hand, but you must not harvest it with a sickle. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 23:1 Verses 23:1-25 are numbered 23:2-26 in Hebrew text. [^b]: 23:18 Hebrew _a dog._

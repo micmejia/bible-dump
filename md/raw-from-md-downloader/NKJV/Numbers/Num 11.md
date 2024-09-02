@@ -1,0 +1,115 @@
+---
+Aliases: [Numbers 11]
+previous: ['Num 10']
+up: ['Numbers']
+next: ['Num 12']
+---
+# Numbers 11
+
+***
+
+
+###### 1 
+Now _when_ the people complained, it displeased the Lord; for the Lord heard _it,_ and His anger was aroused. So the fire of the Lord burned among them, and consumed _some_ in the outskirts of the camp. 
+
+###### 2 
+Then the people cried out to Moses, and when Moses prayed to the Lord, the fire was [^a]quenched. 
+
+###### 3 
+So he called the name of the place [^b]Taberah, because the fire of the Lord had burned among them. 
+
+###### 4 
+Now the mixed multitude who were among them [^c]yielded to intense craving; so the children of Israel also wept again and said: "Who will give us meat to eat? 
+
+###### 5 
+We remember the fish which we ate freely in Egypt, the cucumbers, the melons, the leeks, the onions, and the garlic; 
+
+###### 6 
+but now our whole being _is_ dried up; _there is_ nothing at all except this manna _before_ our eyes!" 
+
+###### 7 
+Now the manna _was_ like coriander seed, and its color like the color of bdellium. 
+
+###### 8 
+The people went about and gathered _it,_ ground _it_ on millstones or beat _it_ in the mortar, cooked _it_ in pans, and made cakes of it; and its taste was like the taste of pastry prepared with oil. 
+
+###### 9 
+And when the dew fell on the camp in the night, the manna fell on it. 
+
+###### 10 
+Then Moses heard the people weeping throughout their families, everyone at the door of his tent; and the anger of the Lord was greatly aroused; Moses also was displeased. 
+
+###### 11 
+So Moses said to the Lord, "Why have You afflicted Your servant? And why have I not found favor in Your sight, that You have laid the [^d]burden of all these people on me? 
+
+###### 12 
+Did I conceive all these people? Did I beget them, that You should say to me, 'Carry them in your bosom, as a guardian carries a nursing child,' to the land which You swore[^e] to their fathers? 
+
+###### 13 
+Where am I to get meat to give to all these people? For they weep all over me, saying, 'Give us meat, that we may eat.' 
+
+###### 14 
+I am not able to bear all these people alone, because the burden _is_ too heavy for me. 
+
+###### 15 
+If You treat me like this, please kill me here and now--if I have found favor in Your sight--and do not let me see my wretchedness!" ## The Seventy Elders 
+
+###### 16 
+So the Lord said to Moses: "Gather to Me seventy men of the elders of Israel, whom you know to be the elders of the people and officers over them; bring them to the tabernacle of meeting, that they may stand there with you. 
+
+###### 17 
+Then I will come down and talk with you there. I will take of the Spirit that _is_ upon you and will put _the same_ upon them; and they shall bear the burden of the people with you, that you may not bear _it_ yourself alone. 
+
+###### 18 
+Then you shall say to the people, [^f]'Consecrate yourselves for tomorrow, and you shall eat meat; for you have wept in the hearing of the Lord, saying, "Who will give us meat to eat? For _it was_ well with us in Egypt." Therefore the Lord will give you meat, and you shall eat. 
+
+###### 19 
+You shall eat, not one day, nor two days, nor five days, nor ten days, nor twenty days, 
+
+###### 20 
+but _for_ a whole month, until it comes out of your nostrils and becomes loathsome to you, because you have despised the Lord who is among you, and have wept before Him, saying, "Why did we ever come up out of Egypt?" ' " 
+
+###### 21 
+And Moses said, "The people whom I _am_ among _are_ six hundred thousand men on foot; yet You have said, 'I will give them meat, that they may eat _for_ a whole month.' 
+
+###### 22 
+Shall flocks and herds be slaughtered for them, to provide enough for them? Or shall all the fish of the sea be gathered together for them, to provide enough for them?" 
+
+###### 23 
+And the Lord said to Moses, "Has[^g] the Lord's arm been shortened? Now you shall see whether what I say will happen to you or not." 
+
+###### 24 
+So Moses went out and told the people the words of the Lord, and he gathered the seventy men of the elders of the people and placed them around the tabernacle. 
+
+###### 25 
+Then the Lord came down in the cloud, and spoke to him, and took of the Spirit that _was_ upon him, and placed _the same_ upon the seventy elders; and it happened, when the Spirit rested upon them, that they prophesied, [^h]although they never did _so_ again. 
+
+###### 26 
+But two men had remained in the camp: the name of one _was_ Eldad, and the name of the other Medad. And the Spirit rested upon them. Now they _were_ among those listed, but who had not gone out to the tabernacle; yet they prophesied in the camp. 
+
+###### 27 
+And a young man ran and told Moses, and said, "Eldad and Medad are prophesying in the camp." 
+
+###### 28 
+So Joshua the son of Nun, Moses' assistant, _one_ of his choice men, answered and said, "Moses my lord, forbid them!" 
+
+###### 29 
+Then Moses said to him, "Are you [^i]zealous for my sake? Oh, that all the Lord's people were prophets _and_ that the Lord would put His Spirit upon them!" 
+
+###### 30 
+And Moses returned to the camp, he and the elders of Israel. ## The Lord Sends Quail 
+
+###### 31 
+Now a wind went out from the Lord, and it brought quail from the sea and left _them_ fluttering near the camp, about a day's journey on this side and about a day's journey on the other side, all around the camp, and about two cubits above the surface of the ground. 
+
+###### 32 
+And the people stayed up all that day, all night, and all the next day, and gathered the quail (he who gathered least gathered ten homers); and they spread _them_ out for themselves all around the camp. 
+
+###### 33 
+But while the meat _was_ still between their teeth, before it was chewed, the wrath of the Lord was aroused against the people, and the Lord struck the people with a very great plague. 
+
+###### 34 
+So he called the name of that place [^j]Kibroth Hattaavah, because there they buried the people who had yielded to craving. 
+
+###### 35 
+From Kibroth Hattaavah the people moved to Hazeroth, and camped at Hazeroth. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Numbers 11:2 _extinguished_ [^b]: Numbers 11:3 Lit. _Burning_ [^c]: Numbers 11:4 Lit. _lusted intensely_ [^d]: Numbers 11:11 _responsibility_ [^e]: Numbers 11:12 _solemnly promised_ [^f]: Numbers 11:18 _Set yourselves apart_ [^g]: Numbers 11:23 Is the Lord’s power limited? [^h]: Numbers 11:25 Tg., Vg. _and they did not cease_ [^i]: Numbers 11:29 _jealous_ [^j]: Numbers 11:34 Lit. _Graves of Craving_

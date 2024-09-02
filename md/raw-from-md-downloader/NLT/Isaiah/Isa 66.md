@@ -1,0 +1,153 @@
+---
+Aliases: [Isaiah 66]
+previous: ['Isa 65']
+up: ['Isaiah']
+---
+# Isaiah 66
+
+***
+
+
+
+
+###### 1 
+
+This is what the LORD says: "Heaven is my throne, and the earth is my footstool. Could you build me a temple as good as that? Could you build me such a resting place? 
+
+
+
+###### 2 
+
+My hands have made both heaven and earth; they and everything in them are mine.[^a] I, the LORD, have spoken! "I will bless those who have humble and contrite hearts, who tremble at my word. 
+
+
+
+###### 3 
+
+But those who choose their own ways-- delighting in their detestable sins-- will not have their offerings accepted. When such people sacrifice a bull, it is no more acceptable than a human sacrifice. When they sacrifice a lamb, it's as though they had sacrificed a dog! When they bring an offering of grain, they might as well offer the blood of a pig. When they burn frankincense, it's as if they had blessed an idol. 
+
+
+
+###### 4 
+
+I will send them great trouble-- all the things they feared. For when I called, they did not answer. When I spoke, they did not listen. They deliberately sinned before my very eyes and chose to do what they know I despise." 
+
+
+
+###### 5 
+
+Hear this message from the LORD, all you who tremble at his words: "Your own people hate you and throw you out for being loyal to my name. 'Let the LORD be honored!' they scoff. 'Be joyful in him!' But they will be put to shame. 
+
+
+
+###### 6 
+
+What is all the commotion in the city? What is that terrible noise from the Temple? It is the voice of the LORD taking vengeance against his enemies. 
+
+
+
+###### 7 
+
+"Before the birth pains even begin, Jerusalem gives birth to a son. 
+
+
+
+###### 8 
+
+Who has ever seen anything as strange as this? Who ever heard of such a thing? Has a nation ever been born in a single day? Has a country ever come forth in a mere moment? But by the time Jerusalem's[^b] birth pains begin, her children will be born. 
+
+
+
+###### 9 
+
+Would I ever bring this nation to the point of birth and then not deliver it?" asks the LORD. "No! I would never keep this nation from being born," says your God. 
+
+
+
+###### 10 
+
+"Rejoice with Jerusalem! Be glad with her, all you who love her and all you who mourn for her. 
+
+
+
+###### 11 
+
+Drink deeply of her glory even as an infant drinks at its mother's comforting breasts." 
+
+
+
+###### 12 
+
+This is what the LORD says: "I will give Jerusalem a river of peace and prosperity. The wealth of the nations will flow to her. Her children will be nursed at her breasts, carried in her arms, and held on her lap. 
+
+
+
+###### 13 
+
+I will comfort you there in Jerusalem as a mother comforts her child." 
+
+
+
+###### 14 
+
+When you see these things, your heart will rejoice. You will flourish like the grass! Everyone will see the LORD's hand of blessing on his servants-- and his anger against his enemies. 
+
+
+
+###### 15 
+
+See, the LORD is coming with fire, and his swift chariots roar like a whirlwind. He will bring punishment with the fury of his anger and the flaming fire of his hot rebuke. 
+
+
+
+###### 16 
+
+The LORD will punish the world by fire and by his sword. He will judge the earth, and many will be killed by him. 
+
+
+
+###### 17 
+
+"Those who 'consecrate' and 'purify' themselves in a sacred garden with its idol in the center--feasting on pork and rats and other detestable meats--will come to a terrible end," says the LORD. 
+
+
+
+###### 18 
+
+"I can see what they are doing, and I know what they are thinking. So I will gather all nations and peoples together, and they will see my glory. 
+
+
+
+###### 19 
+
+I will perform a sign among them. And I will send those who survive to be messengers to the nations--to Tarshish, to the Libyans[^c] and Lydians[^d] (who are famous as archers), to Tubal and Greece,[^e] and to all the lands beyond the sea that have not heard of my fame or seen my glory. There they will declare my glory to the nations. 
+
+
+
+###### 20 
+
+They will bring the remnant of your people back from every nation. They will bring them to my holy mountain in Jerusalem as an offering to the LORD. They will ride on horses, in chariots and wagons, and on mules and camels," says the LORD. 
+
+
+
+###### 21 
+
+"And I will appoint some of them to be my priests and Levites. I, the LORD, have spoken! 
+
+
+
+###### 22 
+
+"As surely as my new heavens and earth will remain, so will you always be my people, with a name that will never disappear," says the LORD. 
+
+
+
+###### 23 
+
+"All humanity will come to worship me from week to week and from month to month. 
+
+
+
+###### 24 
+
+And as they go out, they will see the dead bodies of those who have rebelled against me. For the worms that devour them will never die, and the fire that burns them will never go out. All who pass by will view them with utter horror." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 66:2 As in Greek, Latin, and Syriac versions; Hebrew reads _these things are._ [^b]: 66:8 Hebrew _Zion’s._ [^c]: 66:19a As in some Greek manuscripts, which read _Put_ [that is, _Libya_]; Hebrew reads _Pul._ [^d]: 66:19b Hebrew _Lud._ [^e]: 66:19c Hebrew _Javan._

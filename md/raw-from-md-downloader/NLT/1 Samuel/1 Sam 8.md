@@ -1,0 +1,142 @@
+---
+Aliases: [1 Samuel 8]
+previous: ['1 Sam 7']
+up: ['1 Samuel']
+next: ['1 Sam 9']
+---
+# 1 Samuel 8
+
+***
+
+
+
+
+###### 1 
+
+As Samuel grew old, he appointed his sons to be judges over Israel. 
+
+
+
+###### 2 
+
+Joel and Abijah, his oldest sons, held court in Beersheba. 
+
+
+
+###### 3 
+
+But they were not like their father, for they were greedy for money. They accepted bribes and perverted justice. 
+
+
+
+###### 4 
+
+Finally, all the elders of Israel met at Ramah to discuss the matter with Samuel. 
+
+
+
+###### 5 
+
+"Look," they told him, "you are now old, and your sons are not like you. Give us a king to judge us like all the other nations have." 
+
+
+
+###### 6 
+
+Samuel was displeased with their request and went to the LORD for guidance. 
+
+
+
+###### 7 
+
+"Do everything they say to you," the LORD replied, "for they are rejecting me, not you. They don't want me to be their king any longer. 
+
+
+
+###### 8 
+
+Ever since I brought them from Egypt they have continually abandoned me and followed other gods. And now they are giving you the same treatment. 
+
+
+
+###### 9 
+
+Do as they ask, but solemnly warn them about the way a king will reign over them." ## Samuel Warns against a Kingdom 
+
+
+
+###### 10 
+
+So Samuel passed on the LORD's warning to the people who were asking him for a king. 
+
+
+
+###### 11 
+
+"This is how a king will reign over you," Samuel said. "The king will draft your sons and assign them to his chariots and his charioteers, making them run before his chariots. 
+
+
+
+###### 12 
+
+Some will be generals and captains in his army,[^a] some will be forced to plow in his fields and harvest his crops, and some will make his weapons and chariot equipment. 
+
+
+
+###### 13 
+
+The king will take your daughters from you and force them to cook and bake and make perfumes for him. 
+
+
+
+###### 14 
+
+He will take away the best of your fields and vineyards and olive groves and give them to his own officials. 
+
+
+
+###### 15 
+
+He will take a tenth of your grain and your grape harvest and distribute it among his officers and attendants. 
+
+
+
+###### 16 
+
+He will take your male and female slaves and demand the finest of your cattle[^b] and donkeys for his own use. 
+
+
+
+###### 17 
+
+He will demand a tenth of your flocks, and you will be his slaves. 
+
+
+
+###### 18 
+
+When that day comes, you will beg for relief from this king you are demanding, but then the LORD will not help you." 
+
+
+
+###### 19 
+
+But the people refused to listen to Samuel's warning. "Even so, we still want a king," they said. 
+
+
+
+###### 20 
+
+"We want to be like the nations around us. Our king will judge us and lead us into battle." 
+
+
+
+###### 21 
+
+So Samuel repeated to the LORD what the people had said, 
+
+
+
+###### 22 
+
+and the LORD replied, "Do as they say, and give them a king." Then Samuel agreed and sent the people home. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 8:12 Hebrew _commanders of thousands and commanders of fifties._ [^b]: 8:16 As in Greek version; Hebrew reads _young men._

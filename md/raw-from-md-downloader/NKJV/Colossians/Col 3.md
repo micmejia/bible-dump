@@ -1,0 +1,85 @@
+---
+Aliases: [Colossians 3]
+previous: ['Col 2']
+up: ['Colossians']
+next: ['Col 4']
+---
+# Colossians 3
+
+***
+
+
+###### 1 
+If then you were raised with Christ, seek those things which are above, where Christ is, sitting at the right hand of God. 
+
+###### 2 
+Set your mind on things above, not on things on the earth. 
+
+###### 3 
+For you died, and your life is hidden with Christ in God. 
+
+###### 4 
+When Christ _who is_ our life appears, then you also will appear with Him in glory. 
+
+###### 5 
+Therefore put to death your members which are on the earth: fornication, uncleanness, passion, evil desire, and covetousness, which is idolatry. 
+
+###### 6 
+Because of these things the wrath of God is coming upon the sons of disobedience, 
+
+###### 7 
+in which you yourselves once walked when you lived in them. 
+
+###### 8 
+But now you yourselves are to put off all these: anger, wrath, malice, blasphemy, filthy language out of your mouth. 
+
+###### 9 
+Do not lie to one another, since you have put off the old man with his deeds, 
+
+###### 10 
+and have put on the new _man_ who is renewed in knowledge according to the image of Him who created him, 
+
+###### 11 
+where there is neither Greek nor Jew, circumcised nor uncircumcised, barbarian, Scythian, slave _nor_ free, but Christ _is_ all and in all. ## Character of the New Man 
+
+###### 12 
+Therefore, as _the_ elect of God, holy and beloved, put on tender mercies, kindness, humility, meekness, longsuffering; 
+
+###### 13 
+bearing with one another, and forgiving one another, if anyone has a complaint against another; even as Christ forgave you, so you also _must do._ 
+
+###### 14 
+But above all these things put on love, which is the bond of perfection. 
+
+###### 15 
+And let the peace of God rule in your hearts, to which also you were called in one body; and be thankful. 
+
+###### 16 
+Let the word of Christ dwell in you richly in all wisdom, teaching and admonishing one another in psalms and hymns and spiritual songs, singing with grace in your hearts to the Lord. 
+
+###### 17 
+And whatever you do in word or deed, _do_ all in the name of the Lord Jesus, giving thanks to God the Father through Him. ## The Christian Home 
+
+###### 18 
+Wives, submit to your own husbands, as is fitting in the Lord. 
+
+###### 19 
+Husbands, love your wives and do not be bitter toward them. 
+
+###### 20 
+Children, obey your parents in all things, for this is well pleasing to the Lord. 
+
+###### 21 
+Fathers, do not provoke your children, lest they become discouraged. 
+
+###### 22 
+Bondservants, obey in all things your masters according to the flesh, not with eyeservice, as men-pleasers, but in sincerity of heart, fearing God. 
+
+###### 23 
+And whatever you do, do it heartily, as to the Lord and not to men, 
+
+###### 24 
+knowing that from the Lord you will receive the reward of the inheritance; for[^a] you serve the Lord Christ. 
+
+###### 25 
+But he who does wrong will be repaid for what he has done, and there is no partiality. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Colossians 3:24 NU omits _for_

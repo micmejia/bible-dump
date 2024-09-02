@@ -1,0 +1,111 @@
+---
+Aliases: [Habakkuk 1]
+up: ['Habakkuk']
+next: ['Hab 2']
+---
+# Habakkuk 1
+
+***
+
+
+
+
+###### 1 
+
+This is the message that the prophet Habakkuk received in a vision. ## Habakkuk's Complaint 
+
+
+
+###### 2 
+
+How long, O LORD, must I call for help? But you do not listen! "Violence is everywhere!" I cry, but you do not come to save. 
+
+
+
+###### 3 
+
+Must I forever see these evil deeds? Why must I watch all this misery? Wherever I look, I see destruction and violence. I am surrounded by people who love to argue and fight. 
+
+
+
+###### 4 
+
+The law has become paralyzed, and there is no justice in the courts. The wicked far outnumber the righteous, so that justice has become perverted. ## The LORD's Reply 
+
+
+
+###### 5 
+
+The LORD replied, "Look around at the nations; look and be amazed![^a] For I am doing something in your own day, something you wouldn't believe even if someone told you about it. 
+
+
+
+###### 6 
+
+I am raising up the Babylonians,[^b] a cruel and violent people. They will march across the world and conquer other lands. 
+
+
+
+###### 7 
+
+They are notorious for their cruelty and do whatever they like. 
+
+
+
+###### 8 
+
+Their horses are swifter than cheetahs[^c] and fiercer than wolves at dusk. Their charioteers charge from far away. Like eagles, they swoop down to devour their prey. 
+
+
+
+###### 9 
+
+"On they come, all bent on violence. Their hordes advance like a desert wind, sweeping captives ahead of them like sand. 
+
+
+
+###### 10 
+
+They scoff at kings and princes and scorn all their fortresses. They simply pile ramps of earth against their walls and capture them! 
+
+
+
+###### 11 
+
+They sweep past like the wind and are gone. But they are deeply guilty, for their own strength is their god." ## Habakkuk's Second Complaint 
+
+
+
+###### 12 
+
+O LORD my God, my Holy One, you who are eternal-- surely you do not plan to wipe us out? O LORD, our Rock, you have sent these Babylonians to correct us, to punish us for our many sins. 
+
+
+
+###### 13 
+
+But you are pure and cannot stand the sight of evil. Will you wink at their treachery? Should you be silent while the wicked swallow up people more righteous than they? 
+
+
+
+###### 14 
+
+Are we only fish to be caught and killed? Are we only sea creatures that have no leader? 
+
+
+
+###### 15 
+
+Must we be strung up on their hooks and caught in their nets while they rejoice and celebrate? 
+
+
+
+###### 16 
+
+Then they will worship their nets and burn incense in front of them. "These nets are the gods who have made us rich!" they will claim. 
+
+
+
+###### 17 
+
+Will you let them get away with this forever? Will they succeed forever in their heartless conquests? ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 1:5 Greek version reads _Look, you mockers; / look and be amazed and die._ Compare [Acts 13:41]. [^b]: 1:6 Or _Chaldeans._ [^c]: 1:8 Or _leopards._

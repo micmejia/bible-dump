@@ -1,0 +1,85 @@
+---
+Aliases: [Exodus 2]
+previous: ['Exod 1']
+up: ['Exodus']
+next: ['Exod 3']
+---
+# Exodus 2
+
+***
+
+
+###### 1 
+And a man of the house of Levi went and took _as wife_ a daughter of Levi. 
+
+###### 2 
+So the woman conceived and bore a son. And when she saw that he _was_ a beautiful _child,_ she hid him three months. 
+
+###### 3 
+But when she could no longer hide him, she took an ark of bulrushes for him, daubed it with asphalt and pitch, put the child in it, and laid _it_ in the reeds by the river's bank. 
+
+###### 4 
+And his sister stood afar off, to know what would be done to him. 
+
+###### 5 
+Then the daughter of Pharaoh came down to bathe at the river. And her maidens walked along the riverside; and when she saw the ark among the reeds, she sent her maid to get it. 
+
+###### 6 
+And when she opened _it,_ she saw the child, and behold, the baby wept. So she had compassion on him, and said, "This is one of the Hebrews' children." 
+
+###### 7 
+Then his sister said to Pharaoh's daughter, "Shall I go and call a nurse for you from the Hebrew women, that she may nurse the child for you?" 
+
+###### 8 
+And Pharaoh's daughter said to her, "Go." So the maiden went and called the child's mother. 
+
+###### 9 
+Then Pharaoh's daughter said to her, "Take this child away and nurse him for me, and I will give _you_ your wages." So the woman took the child and nursed him. 
+
+###### 10 
+And the child grew, and she brought him to Pharaoh's daughter, and he became her son. So she called his name [^a]Moses, saying, "Because I drew him out of the water." ## Moses Flees to Midian 
+
+###### 11 
+Now it came to pass in those days, when Moses was grown, that he went out to his brethren and looked at their burdens. And he saw an Egyptian beating a Hebrew, one of his brethren. 
+
+###### 12 
+So he looked this way and that way, and when he saw no one, he killed the Egyptian and hid him in the sand. 
+
+###### 13 
+And when he went out the second day, behold, two Hebrew men were fighting, and he said to the one who did the wrong, "Why are you striking your companion?" 
+
+###### 14 
+Then he said, "Who made you a prince and a judge over us? Do you intend to kill me as you killed the Egyptian?" So Moses feared and said, "Surely this thing is known!" 
+
+###### 15 
+When Pharaoh heard of this matter, he sought to kill Moses. But Moses fled from [^b]the face of Pharaoh and dwelt in the land of Midian; and he sat down by a well. 
+
+###### 16 
+Now the priest of Midian had seven daughters. And they came and drew water, and they filled the troughs to water their father's flock. 
+
+###### 17 
+Then the shepherds came and drove them away; but Moses stood up and helped them, and watered their flock. 
+
+###### 18 
+When they came to Reuel[^c] their father, he said, "How _is it that_ you have come so soon today?" 
+
+###### 19 
+And they said, "An Egyptian delivered us from the hand of the shepherds, and he also drew enough water for us and watered the flock." 
+
+###### 20 
+So he said to his daughters, "And where _is_ he? Why _is_ it _that_ you have left the man? Call him, that he may eat bread." 
+
+###### 21 
+Then Moses was content to live with the man, and he gave Zipporah his daughter to Moses. 
+
+###### 22 
+And she bore _him_ a son. He called his name Gershom,[^d] for he said, "I have been a [^e]stranger in a foreign land." 
+
+###### 23 
+Now it happened in the process of time that the king of Egypt died. Then the children of Israel groaned because of the bondage, and they cried out; and their cry came up to God because of the bondage. 
+
+###### 24 
+So God heard their groaning, and God remembered His covenant with Abraham, with Isaac, and with Jacob. 
+
+###### 25 
+And God looked upon the children of Israel, and God acknowledged _them._ ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Exodus 2:10 Heb. _Mosheh,_ lit. _Drawn Out_ [^b]: Exodus 2:15 _the presence of Pharaoh_ [^c]: Exodus 2:18 _Jethro,_ [Ex. 3:1] [^d]: Exodus 2:22 Lit. _Stranger There_ [^e]: Exodus 2:22 _sojourner,_ temporary resident

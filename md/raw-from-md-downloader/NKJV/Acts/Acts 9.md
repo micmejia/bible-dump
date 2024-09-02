@@ -1,0 +1,139 @@
+---
+Aliases: [Acts 9]
+previous: ['Acts 8']
+up: ['Acts']
+next: ['Acts 10']
+---
+# Acts 9
+
+***
+
+
+###### 1 
+Then Saul, still breathing threats and murder against the disciples of the Lord, went to the high priest 
+
+###### 2 
+and asked letters from him to the synagogues of Damascus, so that if he found any who were of the Way, whether men or women, he might bring them bound to Jerusalem. 
+
+###### 3 
+As he journeyed he came near Damascus, and suddenly a light shone around him from heaven. 
+
+###### 4 
+Then he fell to the ground, and heard a voice saying to him, "Saul, Saul, why are you persecuting Me?" 
+
+###### 5 
+And he said, "Who are You, Lord?" Then the Lord said, "I am Jesus, whom you are persecuting. [^a]It _is_ hard for you to kick against the goads." 
+
+###### 6 
+So he, trembling and astonished, said, "Lord, what do You want me to do?" Then the Lord _said_ to him, "Arise and go into the city, and you will be told what you must do." 
+
+###### 7 
+And the men who journeyed with him stood speechless, hearing a voice but seeing no one. 
+
+###### 8 
+Then Saul arose from the ground, and when his eyes were opened he saw no one. But they led him by the hand and brought _him_ into Damascus. 
+
+###### 9 
+And he was three days without sight, and neither ate nor drank. ## Ananias Baptizes Saul 
+
+###### 10 
+Now there was a certain disciple at Damascus named Ananias; and to him the Lord said in a vision, "Ananias." And he said, "Here I am, Lord." 
+
+###### 11 
+So the Lord _said_ to him, "Arise and go to the street called Straight, and inquire at the house of Judas for _one_ called Saul of Tarsus, for behold, he is praying. 
+
+###### 12 
+And in a vision he has seen a man named Ananias coming in and putting _his_ hand on him, so that he might receive his sight." 
+
+###### 13 
+Then Ananias answered, "Lord, I have heard from many about this man, how much [^b]harm he has done to Your saints in Jerusalem. 
+
+###### 14 
+And here he has authority from the chief priests to bind all who call on Your name." 
+
+###### 15 
+But the Lord said to him, "Go, for he is a chosen vessel of Mine to bear My name before Gentiles, kings, and the children[^c] of Israel. 
+
+###### 16 
+For I will show him how many things he must suffer for My name's sake." 
+
+###### 17 
+And Ananias went his way and entered the house; and laying his hands on him he said, "Brother Saul, the Lord [^d]Jesus, who appeared to you on the road as you came, has sent me that you may receive your sight and be filled with the Holy Spirit." 
+
+###### 18 
+Immediately there fell from his eyes _something_ like scales, and he received his sight at once; and he arose and was baptized. 
+
+###### 19 
+So when he had received food, he was strengthened. Then Saul spent some days with the disciples at Damascus. ## Saul Preaches Christ 
+
+###### 20 
+Immediately he preached [^e]the Christ in the synagogues, that He is the Son of God. 
+
+###### 21 
+Then all who heard were amazed, and said, "Is this not he who destroyed those who called on this name in Jerusalem, and has come here for that purpose, so that he might bring them bound to the chief priests?" 
+
+###### 22 
+But Saul increased all the more in strength, and confounded the Jews who dwelt in Damascus, proving that this _Jesus_ is the Christ. ## Saul Escapes Death 
+
+###### 23 
+Now after many days were past, the Jews plotted to kill him. 
+
+###### 24 
+But their plot became known to Saul. And they watched the gates day and night, to kill him. 
+
+###### 25 
+Then the disciples took him by night and let _him_ down through the wall in a large basket. ## Saul at Jerusalem 
+
+###### 26 
+And when Saul had come to Jerusalem, he tried to join the disciples; but they were all afraid of him, and did not believe that he was a disciple. 
+
+###### 27 
+But Barnabas took him and brought _him_ to the apostles. And he declared to them how he had seen the Lord on the road, and that He had spoken to him, and how he had preached boldly at Damascus in the name of Jesus. 
+
+###### 28 
+So he was with them at Jerusalem, coming in and going out. 
+
+###### 29 
+And he spoke boldly in the name of the Lord Jesus and disputed against the Hellenists,[^f] but they attempted to kill him. 
+
+###### 30 
+When the brethren found out, they brought him down to Caesarea and sent him out to Tarsus. ## The Church Prospers 
+
+###### 31 
+Then the [^g]churches throughout all Judea, Galilee, and Samaria had peace and were edified.[^h] And walking in the fear of the Lord and in the comfort of the Holy Spirit, they were multiplied. ## Aeneas Healed 
+
+###### 32 
+Now it came to pass, as Peter went through all _parts of the country,_ that he also came down to the saints who dwelt in Lydda. 
+
+###### 33 
+There he found a certain man named Aeneas, who had been bedridden eight years and was paralyzed. 
+
+###### 34 
+And Peter said to him, "Aeneas, Jesus the Christ heals you. Arise and make your bed." Then he arose immediately. 
+
+###### 35 
+So all who dwelt at Lydda and Sharon saw him and turned to the Lord. ## Dorcas Restored to Life 
+
+###### 36 
+At Joppa there was a certain disciple named [^i]Tabitha, which is translated [^j]Dorcas. This woman was full of good works and charitable deeds which she did. 
+
+###### 37 
+But it happened in those days that she became sick and died. When they had washed her, they laid _her_ in an upper room. 
+
+###### 38 
+And since Lydda was near Joppa, and the disciples had heard that Peter was there, they sent two men to him, imploring _him_ not to delay in coming to them. 
+
+###### 39 
+Then Peter arose and went with them. When he had come, they brought _him_ to the upper room. And all the widows stood by him weeping, showing the tunics and garments which Dorcas had made while she was with them. 
+
+###### 40 
+But Peter put them all out, and knelt down and prayed. And turning to the body he said, "Tabitha, arise." And she opened her eyes, and when she saw Peter she sat up. 
+
+###### 41 
+Then he gave her _his_ hand and lifted her up; and when he had called the saints and widows, he presented her alive. 
+
+###### 42 
+And it became known throughout all Joppa, and many believed on the Lord. 
+
+###### 43 
+So it was that he stayed many days in Joppa with Simon, a tanner. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Acts 9:5 NU, M omit the rest of v. [5] and begin v. [6] with _But arise and go_ [^b]: Acts 9:13 _bad things_ [^c]: Acts 9:15 Lit. _sons_ [^d]: Acts 9:17 M omits _Jesus_ [^e]: Acts 9:20 NU _Jesus_ [^f]: Acts 9:29 Greek-speaking Jews [^g]: Acts 9:31 NU _church_ . . . _was_ [^h]: Acts 9:31 _built up_ [^i]: Acts 9:36 Lit., in Aram., _Gazelle_ [^j]: Acts 9:36 Lit., in Gr., _Gazelle_

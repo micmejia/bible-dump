@@ -1,0 +1,139 @@
+---
+Aliases: [Exodus 28]
+previous: ['Exod 27']
+up: ['Exodus']
+next: ['Exod 29']
+---
+# Exodus 28
+
+***
+
+
+###### 1 
+"Now take Aaron your brother, and his sons with him, from among the children of Israel, that he may minister to Me as priest, Aaron _and_ Aaron's sons: Nadab, Abihu, Eleazar, and Ithamar. 
+
+###### 2 
+And you shall make [^a]holy garments for Aaron your brother, for glory and for beauty. 
+
+###### 3 
+So you shall speak to all _who are_ gifted artisans, whom I have filled with the spirit of wisdom, that they may make Aaron's garments, to consecrate him, that he may minister to Me as priest. 
+
+###### 4 
+And these _are_ the garments which they shall make: a breastplate, an [^b]ephod, a robe, a skillfully woven tunic, a turban, and a sash. So they shall make holy garments for Aaron your brother and his sons, that he may minister to Me as priest. ## The Ephod 
+
+###### 5 
+"They shall take the gold, blue, purple, and scarlet _thread,_ and the fine linen, 
+
+###### 6 
+and they shall make the ephod of gold, blue, purple, _and_ scarlet _thread,_ and fine woven linen, artistically worked. 
+
+###### 7 
+It shall have two shoulder straps joined at its two edges, and _so_ it shall be joined together. 
+
+###### 8 
+And the [^c]intricately woven band of the ephod, which _is_ on it, shall be of the same workmanship, _made of_ gold, blue, purple, and scarlet _thread,_ and fine woven linen. 
+
+###### 9 
+"Then you shall take two onyx stones and engrave on them the names of the sons of Israel: 
+
+###### 10 
+six of their names on one stone and six names on the other stone, in order of their birth. 
+
+###### 11 
+With the work of an engraver in stone, _like_ the engravings of a signet, you shall engrave the two stones with the names of the sons of Israel. You shall set them in settings of gold. 
+
+###### 12 
+And you shall put the two stones on the shoulders of the ephod _as_ memorial stones for the sons of Israel. So Aaron shall bear their names before the Lord on his two shoulders as a memorial. 
+
+###### 13 
+You shall also make settings of gold, 
+
+###### 14 
+and you shall make two chains of pure gold like braided cords, and fasten the braided chains to the settings. ## The Breastplate 
+
+###### 15 
+"You shall make the breastplate of judgment. Artistically woven according to the workmanship of the ephod you shall make it: of gold, blue, purple, and scarlet _thread,_ and fine woven linen, you shall make it. 
+
+###### 16 
+It shall be doubled into a square: a span _shall be_ its length, and a span _shall be_ its width. 
+
+###### 17 
+And you shall put settings of stones in it, four rows of stones: _The first_ row _shall be_ a [^d]sardius, a topaz, and an emerald; _this shall be_ the first row; 
+
+###### 18 
+the second row _shall be_ a turquoise, a sapphire, and a diamond; 
+
+###### 19 
+the third row, a [^e]jacinth, an agate, and an amethyst; 
+
+###### 20 
+and the fourth row, a [^f]beryl, an [^g]onyx, and a jasper. They shall be set in gold settings. 
+
+###### 21 
+And the stones shall have the names of the sons of Israel, twelve according to their names, _like_ the engravings of a signet, each one with its own name; they shall be according to the twelve tribes. 
+
+###### 22 
+"You shall make chains for the breastplate at the end, like braided cords of pure gold. 
+
+###### 23 
+And you shall make two rings of gold for the breastplate, and put the two rings on the two ends of the breastplate. 
+
+###### 24 
+Then you shall put the two braided _chains_ of gold in the two rings which are on the ends of the breastplate; 
+
+###### 25 
+and the _other_ two ends of the two braided _chains_ you shall fasten to the two settings, and put them on the shoulder straps of the ephod in the front. 
+
+###### 26 
+"You shall make two rings of gold, and put them on the two ends of the breastplate, on the edge of it, which is on the inner side of the ephod. 
+
+###### 27 
+And two _other_ rings of gold you shall make, and put them on the two shoulder straps, underneath the ephod toward its front, right at the seam above the [^h]intricately woven band of the ephod. 
+
+###### 28 
+They shall bind the breastplate by means of its rings to the rings of the ephod, using a blue cord, so that it is above the intricately woven band of the ephod, and so that the breastplate does not come loose from the ephod. 
+
+###### 29 
+"So Aaron shall bear the names of the sons of Israel on the breastplate of judgment over his heart, when he goes into the holy _place,_ as a memorial before the Lord continually. 
+
+###### 30 
+And you shall put in the breastplate of judgment the [^i]Urim and the Thummim, and they shall be over Aaron's heart when he goes in before the Lord. So Aaron shall bear the judgment of the children of Israel over his heart before the Lord continually. ## Other Priestly Garments 
+
+###### 31 
+"You shall make the robe of the ephod all of blue. 
+
+###### 32 
+There shall be an opening for his head in the middle of it; it shall have a woven binding all around its opening, like the opening in a coat of mail, so that it does not tear. 
+
+###### 33 
+And upon its hem you shall make pomegranates of blue, purple, and scarlet, all around its hem, and bells of gold between them all around: 
+
+###### 34 
+a golden bell and a pomegranate, a golden bell and a pomegranate, upon the hem of the robe all around. 
+
+###### 35 
+And it shall be upon Aaron when he ministers, and its sound will be heard when he goes into the holy _place_ before the Lord and when he comes out, that he may not die. 
+
+###### 36 
+"You shall also make a plate of pure gold and engrave on it, _like_ the engraving of a signet: HOLINESS TO THE LORD. 
+
+###### 37 
+And you shall put it on a blue cord, that it may be on the turban; it shall be on the front of the turban. 
+
+###### 38 
+So it shall be on Aaron's forehead, that Aaron may bear the iniquity of the holy things which the children of Israel hallow in all their [^j]holy gifts; and it shall always be on his forehead, that they may be accepted before the Lord. 
+
+###### 39 
+"You shall skillfully weave the tunic of fine linen _thread,_ you shall make the turban of fine linen, and you shall make the sash of woven work. 
+
+###### 40 
+"For Aaron's sons you shall make tunics, and you shall make sashes for them. And you shall make [^k]hats for them, for glory and beauty. 
+
+###### 41 
+So you shall put them on Aaron your brother and on his sons with him. You shall anoint them, consecrate them, and [^l]sanctify them, that they may minister to Me as priests. 
+
+###### 42 
+And you shall make for them linen trousers to cover their [^m]nakedness; they shall [^n]reach from the waist to the thighs. 
+
+###### 43 
+They shall be on Aaron and on his sons when they come into the tabernacle of meeting, or when they come near the altar to minister in the holy _place,_ that they do not incur [^o]iniquity and die. _It shall be_ a statute forever to him and his descendants after him. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Exodus 28:2 _sacred_ [^b]: Exodus 28:4 Ornamented vest [^c]: Exodus 28:8 _ingenious work of_ [^d]: Exodus 28:17 Or _ruby_ [^e]: Exodus 28:19 Or _amber_ [^f]: Exodus 28:20 Or _yellow jasper_ [^g]: Exodus 28:20 Or _carnelian_ [^h]: Exodus 28:27 _ingenious work of_ [^i]: Exodus 28:30 Lit. _Lights and the Perfections_ [^j]: Exodus 28:38 _sacred_ [^k]: Exodus 28:40 _headpieces_ or _turbans_ [^l]: Exodus 28:41 _set them apart_ [^m]: Exodus 28:42 _bare flesh_ [^n]: Exodus 28:42 Lit. _be_ [^o]: Exodus 28:43 _guilt_

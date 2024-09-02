@@ -1,0 +1,73 @@
+---
+Aliases: [Daniel 10]
+previous: ['Dan 9']
+up: ['Daniel']
+next: ['Dan 11']
+---
+# Daniel 10
+
+***
+
+
+###### 1 
+In the third year of Cyrus king of Persia a message was revealed to Daniel, whose name was called Belteshazzar. The message _was_ true, [^a]but the appointed time _was_ long; and he understood the message, and had understanding of the vision. 
+
+###### 2 
+In those days I, Daniel, was mourning three full weeks. 
+
+###### 3 
+I ate no [^b]pleasant food, no meat or wine came into my mouth, nor did I anoint myself at all, till three whole weeks were fulfilled. 
+
+###### 4 
+Now on the twenty-fourth day of the first month, as I was by the side of the great river, that _is,_ the [^c]Tigris, 
+
+###### 5 
+I lifted my eyes and looked, and behold, a certain man clothed in linen, whose waist _was_ girded with gold of Uphaz! 
+
+###### 6 
+His body _was_ like beryl, his face like the appearance of lightning, his eyes like torches of fire, his arms and feet like burnished bronze in color, and the sound of his words like the voice of a multitude. 
+
+###### 7 
+And I, Daniel, alone saw the vision, for the men who were with me did not see the vision; but a great terror fell upon them, so that they fled to hide themselves. 
+
+###### 8 
+Therefore I was left alone when I saw this great vision, and no strength remained in me; for my [^d]vigor was turned to [^e]frailty in me, and I retained no strength. 
+
+###### 9 
+Yet I heard the sound of his words; and while I heard the sound of his words I was in a deep sleep on my face, with my face to the ground. ## Prophecies Concerning Persia and Greece 
+
+###### 10 
+Suddenly, a hand touched me, which made me tremble on my knees and _on_ the palms of my hands. 
+
+###### 11 
+And he said to me, "O Daniel, man greatly beloved, understand the words that I speak to you, and stand upright, for I have now been sent to you." While he was speaking this word to me, I stood trembling. 
+
+###### 12 
+Then he said to me, "Do not fear, Daniel, for from the first day that you set your heart to understand, and to humble yourself before your God, your words were heard; and I have come because of your words. 
+
+###### 13 
+But the prince of the kingdom of Persia withstood me twenty-one days; and behold, Michael, one of the chief princes, came to help me, for I had been left alone there with the kings of Persia. 
+
+###### 14 
+Now I have come to make you understand what will happen to your people in the latter days, for the vision _refers_ to _many_ days yet _to come._" 
+
+###### 15 
+When he had spoken such words to me, I [^f]turned my face toward the ground and became speechless. 
+
+###### 16 
+And suddenly, _one_ having the likeness of the [^g]sons of men touched my lips; then I opened my mouth and spoke, saying to him who stood before me, "My lord, because of the vision my sorrows have [^h]overwhelmed me, and I have retained no strength. 
+
+###### 17 
+For how can this servant of my lord talk with you, my lord? As for me, no strength remains in me now, nor is any breath left in me." 
+
+###### 18 
+Then again, _the one_ having the likeness of a man touched me and strengthened me. 
+
+###### 19 
+And he said, "O man greatly beloved, fear not! Peace _be_ to you; be strong, yes, be strong!" So when he spoke to me I was strengthened, and said, "Let my lord speak, for you have strengthened me." 
+
+###### 20 
+Then he said, "Do you know why I have come to you? And now I must return to fight with the prince of Persia; and when I have gone forth, indeed the prince of Greece will come. 
+
+###### 21 
+But I will tell you what is noted in the Scripture of Truth. (No one upholds me against these, except Michael your prince. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Daniel 10:1 Or _and of great conflict;_ [^b]: Daniel 10:3 _desirable_ [^c]: Daniel 10:4 Heb. _Hiddekel_ [^d]: Daniel 10:8 Lit. _splendor_ [^e]: Daniel 10:8 Lit. _ruin_ [^f]: Daniel 10:15 Lit. _set_ [^g]: Daniel 10:16 Theodotion, Vg. _the son;_ LXX _a hand_ [^h]: Daniel 10:16 Or _turned upon_

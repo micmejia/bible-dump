@@ -1,0 +1,69 @@
+---
+Aliases: [Joel 1]
+up: ['Joel']
+next: ['Joel 2']
+---
+# Joel 1
+
+***
+
+
+###### 1 
+The word of the Lord that came to Joel the son of Pethuel. ## The Land Laid Waste 
+
+###### 2 
+Hear this, you elders, And give ear, all you inhabitants of the land! Has _anything like_ this happened in your days, Or even in the days of your fathers? 
+
+###### 3 
+Tell your children about it, _Let_ your children _tell_ their children, And their children another generation. 
+
+###### 4 
+What the chewing [^a]locust left, the swarming locust has eaten; What the swarming locust left, the crawling locust has eaten; And what the crawling locust left, the consuming locust has eaten. 
+
+###### 5 
+Awake, you drunkards, and weep; And wail, all you drinkers of wine, Because of the new wine, For it has been cut off from your mouth. 
+
+###### 6 
+For a nation has come up against My land, Strong, and without number; His teeth _are_ the teeth of a lion, And he has the fangs of a [^b]fierce lion. 
+
+###### 7 
+He has laid waste My vine, And [^c]ruined My fig tree; He has stripped it bare and thrown _it_ away; Its branches are made white. 
+
+###### 8 
+Lament like a virgin girded with sackcloth For the husband of her youth. 
+
+###### 9 
+The grain offering and the drink offering Have been cut off from the house of the Lord; The priests mourn, who minister to the Lord. 
+
+###### 10 
+The field is wasted, The land mourns; For the grain is ruined, The new wine is dried up, The oil fails. 
+
+###### 11 
+Be ashamed, you farmers, Wail, you vinedressers, For the wheat and the barley; Because the harvest of the field has perished. 
+
+###### 12 
+The vine has dried up, And the fig tree has withered; The pomegranate tree, The palm tree also, And the apple tree-- All the trees of the field are withered; Surely joy has withered away from the sons of men. ## Mourning for the Land 
+
+###### 13 
+Gird yourselves and lament, you priests; Wail, you who minister before the altar; Come, lie all night in sackcloth, You who minister to my God; For the grain offering and the drink offering Are withheld from the house of your God. 
+
+###### 14 
+Consecrate a fast, Call a sacred assembly; Gather the elders _And_ all the inhabitants of the land _Into_ the house of the Lord your God, And cry out to the Lord. 
+
+###### 15 
+Alas for the day! For the day of the Lord _is_ at hand; It shall come as destruction from the Almighty. 
+
+###### 16 
+Is not the food cut off before our eyes, Joy and gladness from the house of our God? 
+
+###### 17 
+The seed shrivels under the clods, Storehouses are in shambles; Barns are broken down, For the grain has withered. 
+
+###### 18 
+How the animals groan! The herds of cattle are restless, Because they have no pasture; Even the flocks of sheep [^d]suffer punishment. 
+
+###### 19 
+O Lord, to You I cry out; For fire has devoured the [^e]open pastures, And a flame has burned all the trees of the field. 
+
+###### 20 
+The beasts of the field also cry out to You, For the water brooks are dried up, And fire has devoured the [^f]open pastures. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Joel 1:4 Exact identity of these locusts unknown [^b]: Joel 1:6 Or _lioness_ [^c]: Joel 1:7 Or _splintered_ [^d]: Joel 1:18 LXX, Vg. _are made desolate_ [^e]: Joel 1:19 Lit. _pastures of the wilderness_ [^f]: Joel 1:20 Lit. _pastures of the wilderness_

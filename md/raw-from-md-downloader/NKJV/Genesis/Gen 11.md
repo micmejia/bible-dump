@@ -1,0 +1,106 @@
+---
+Aliases: [Genesis 11]
+previous: ['Gen 10']
+up: ['Genesis']
+next: ['Gen 12']
+---
+# Genesis 11
+
+***
+
+
+###### 1 
+Now the whole earth had one language and one [^a]speech. 
+
+###### 2 
+And it came to pass, as they journeyed from the east, that they found a plain in the land of Shinar, and they dwelt there. 
+
+###### 3 
+Then they said to one another, "Come, let us make bricks and [^b]bake _them_ thoroughly." They had brick for stone, and they had asphalt for mortar. 
+
+###### 4 
+And they said, "Come, let us build ourselves a city, and a tower whose top _is_ in the heavens; let us make a name for ourselves, lest we be scattered abroad over the face of the whole earth." 
+
+###### 5 
+But the Lord came down to see the city and the tower which the sons of men had built. 
+
+###### 6 
+And the Lord said, "Indeed the people _are_ one and they all have one language, and this is what they begin to do; now nothing that they propose to do will be withheld from them. 
+
+###### 7 
+Come, let Us go down and there confuse their language, that they may not understand one another's speech." 
+
+###### 8 
+So the Lord scattered them abroad from there over the face of all the earth, and they ceased building the city. 
+
+###### 9 
+Therefore its name is called [^c]Babel, because there the Lord confused the language of all the earth; and from there the Lord scattered them abroad over the face of all the earth. ## Shem's Descendants 
+
+###### 10 
+This _is_ the genealogy of Shem: Shem _was_ one hundred years old, and begot Arphaxad two years after the flood. 
+
+###### 11 
+After he begot Arphaxad, Shem lived five hundred years, and begot sons and daughters. 
+
+###### 12 
+Arphaxad lived thirty-five years, and begot Salah. 
+
+###### 13 
+After he begot Salah, Arphaxad lived four hundred and three years, and begot sons and daughters. 
+
+###### 14 
+Salah lived thirty years, and begot Eber. 
+
+###### 15 
+After he begot Eber, Salah lived four hundred and three years, and begot sons and daughters. 
+
+###### 16 
+Eber lived thirty-four years, and begot Peleg. 
+
+###### 17 
+After he begot Peleg, Eber lived four hundred and thirty years, and begot sons and daughters. 
+
+###### 18 
+Peleg lived thirty years, and begot Reu. 
+
+###### 19 
+After he begot Reu, Peleg lived two hundred and nine years, and begot sons and daughters. 
+
+###### 20 
+Reu lived thirty-two years, and begot Serug. 
+
+###### 21 
+After he begot Serug, Reu lived two hundred and seven years, and begot sons and daughters. 
+
+###### 22 
+Serug lived thirty years, and begot Nahor. 
+
+###### 23 
+After he begot Nahor, Serug lived two hundred years, and begot sons and daughters. 
+
+###### 24 
+Nahor lived twenty-nine years, and begot Terah. 
+
+###### 25 
+After he begot Terah, Nahor lived one hundred and nineteen years, and begot sons and daughters. 
+
+###### 26 
+Now Terah lived seventy years, and begot [^d]Abram, Nahor, and Haran. ## Terah's Descendants 
+
+###### 27 
+This _is_ the genealogy of Terah: Terah begot Abram, Nahor, and Haran. Haran begot Lot. 
+
+###### 28 
+And Haran died before his father Terah in his native land, in Ur of the Chaldeans. 
+
+###### 29 
+Then Abram and Nahor took wives: the name of Abram's wife _was_ Sarai,[^e] and the name of Nahor's wife, Milcah, the daughter of Haran the father of Milcah and the father of Iscah. 
+
+###### 30 
+But Sarai was barren; she had no child. 
+
+###### 31 
+And Terah took his son Abram and his grandson Lot, the son of Haran, and his daughter-in-law Sarai, his son Abram's wife, and they went out with them from Ur of the Chaldeans to go to the land of Canaan; and they came to Haran and dwelt there. 
+
+###### 32 
+So the days of Terah were two hundred and five years, and Terah died in Haran. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Genesis 11:1 Lit. _lip_ [^b]: Genesis 11:3 Lit. _burn_ [^c]: Genesis 11:9 Lit. _Confusion,_ Babylon [^d]: Genesis 11:26 _Abraham,_ [Gen. 17:5] [^e]: Genesis 11:29 _Sarah,_ [Gen. 17:15]

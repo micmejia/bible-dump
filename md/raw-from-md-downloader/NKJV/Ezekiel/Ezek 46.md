@@ -1,0 +1,82 @@
+---
+Aliases: [Ezekiel 46]
+previous: ['Ezek 45']
+up: ['Ezekiel']
+next: ['Ezek 47']
+---
+# Ezekiel 46
+
+***
+
+
+###### 1 
+'Thus says the Lord God: "The gateway of the inner court that faces toward the east shall be shut the six working days; but on the Sabbath it shall be opened, and on the day of the New Moon it shall be opened. 
+
+###### 2 
+The prince shall enter by way of the vestibule of the gateway from the outside, and stand by the gatepost. The priests shall prepare his burnt offering and his peace offerings. He shall worship at the threshold of the gate. Then he shall go out, but the gate shall not be shut until evening. 
+
+###### 3 
+Likewise the people of the land shall worship at the entrance to this gateway before the Lord on the Sabbaths and the New Moons. 
+
+###### 4 
+The burnt offering that the prince offers to the Lord on the Sabbath day _shall be_ six lambs without blemish, and a ram without blemish; 
+
+###### 5 
+and the grain offering _shall be one_ ephah for a ram, and the grain offering for the lambs, [^a]as much as he wants to give, as well as a hin of oil with every ephah. 
+
+###### 6 
+On the day of the New Moon _it shall be_ a young bull without blemish, six lambs, and a ram; they shall be without blemish. 
+
+###### 7 
+He shall prepare a grain offering of an ephah for a bull, an ephah for a ram, [^b]as much as he wants to give for the lambs, and a hin of oil with every ephah. 
+
+###### 8 
+When the prince enters, he shall go in by way of the vestibule of the gateway, and go out the same way. 
+
+###### 9 
+"But when the people of the land come before the Lord on the appointed feast days, whoever enters by way of the north gate to worship shall go out by way of the south gate; and whoever enters by way of the south gate shall go out by way of the north gate. He shall not return by way of the gate through which he came, but shall go out through the opposite gate. 
+
+###### 10 
+The prince shall then be in their midst. When they go in, he shall go in; and when they go out, he shall go out. 
+
+###### 11 
+At the festivals and the appointed feast days the grain offering shall be an ephah for a bull, an ephah for a ram, as much as he wants to give for the lambs, and a hin of oil with every ephah. 
+
+###### 12 
+"Now when the prince makes a voluntary burnt offering or voluntary peace offering to the Lord, the gate that faces toward the east shall then be opened for him; and he shall prepare his burnt offering and his peace offerings as he did on the Sabbath day. Then he shall go out, and after he goes out the gate shall be shut. 
+
+###### 13 
+"You shall daily make a burnt offering to the Lord _of_ a lamb of the first year without blemish; you shall prepare it [^c]every morning. 
+
+###### 14 
+And you shall prepare a grain offering with it every morning, a sixth of an ephah, and a third of a hin of oil to moisten the fine flour. This grain offering is a perpetual ordinance, to be made regularly to the Lord. 
+
+###### 15 
+Thus they shall prepare the lamb, the grain offering, and the oil, _as_ a regular burnt offering every morning." ## The Prince and Inheritance Laws 
+
+###### 16 
+'Thus says the Lord God: "If the prince gives a gift _of some_ of his inheritance to any of his sons, it shall belong to his sons; it is their possession by inheritance. 
+
+###### 17 
+But if he gives a gift of some of his inheritance to one of his servants, it shall be his until the year of liberty, after which it shall return to the prince. But his inheritance shall belong to his sons; it shall become theirs. 
+
+###### 18 
+Moreover the prince shall not take any of the people's inheritance by evicting them from their property; he shall provide an inheritance for his sons from his own property, so that none of My people may be scattered from his property." ' " ## How the Offerings Were Prepared 
+
+###### 19 
+Now he brought me through the entrance, which _was_ at the side of the gate, into the holy chambers of the priests which face toward the north; and there a place _was_ situated at their extreme western end. 
+
+###### 20 
+And he said to me, "This _is_ the place where the priests shall boil the trespass offering and the sin offering, _and_ where they shall bake the grain offering, so that they do not bring _them_ out into the outer court to sanctify the people." 
+
+###### 21 
+Then he brought me out into the outer court and caused me to pass by the four corners of the court; and in fact, in every corner of the court _there was another_ court. 
+
+###### 22 
+In the four corners of the court _were_ enclosed courts, forty _cubits_ long and thirty wide; all four corners _were_ the same size. 
+
+###### 23 
+_There was_ a row _of building stones_ all around in them, all around the four of them; and [^d]cooking hearths were made under the rows of stones all around. 
+
+###### 24 
+And he said to me, "These _are_ the [^e]kitchens where the ministers of the [^f]temple shall boil the sacrifices of the people." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Ezekiel 46:5 Lit. _the gift of his hand_ [^b]: Ezekiel 46:7 Lit. _as much as his hand can reach_ [^c]: Ezekiel 46:13 Lit. _morning by morning_ [^d]: Ezekiel 46:23 Lit. _boiling places_ [^e]: Ezekiel 46:24 Lit. _house of those who boil_ [^f]: Ezekiel 46:24 Lit. _house_

@@ -1,0 +1,115 @@
+---
+Aliases: [Luke 14]
+previous: ['Luke 13']
+up: ['Luke']
+next: ['Luke 15']
+---
+# Luke 14
+
+***
+
+
+###### 1 
+Now it happened, as He went into the house of one of the rulers of the Pharisees to eat bread on the Sabbath, that they watched Him closely. 
+
+###### 2 
+And behold, there was a certain man before Him who had dropsy. 
+
+###### 3 
+And Jesus, answering, spoke to the lawyers and Pharisees, saying, "Is it lawful to heal on the [^a]Sabbath?" 
+
+###### 4 
+But they kept silent. And He took _him_ and healed him, and let him go. 
+
+###### 5 
+Then He answered them, saying, "Which of you, having a [^b]donkey or an ox that has fallen into a pit, will not immediately pull him out on the Sabbath day?" 
+
+###### 6 
+And they could not answer Him regarding these things. ## Take the Lowly Place 
+
+###### 7 
+So He told a parable to those who were invited, when He noted how they chose the best places, saying to them: 
+
+###### 8 
+"When you are invited by anyone to a wedding feast, do not sit down in the best place, lest one more honorable than you be invited by him; 
+
+###### 9 
+and he who invited you and him come and say to you, 'Give place to this man,' and then you begin with shame to take the lowest place. 
+
+###### 10 
+But when you are invited, go and sit down in the lowest place, so that when he who invited you comes he may say to you, 'Friend, go up higher.' Then you will have glory in the presence of those who sit at the table with you. 
+
+###### 11 
+For whoever exalts himself will be [^c]humbled, and he who humbles himself will be exalted." 
+
+###### 12 
+Then He also said to him who invited Him, "When you give a dinner or a supper, do not ask your friends, your brothers, your relatives, nor rich neighbors, lest they also invite you back, and you be repaid. 
+
+###### 13 
+But when you give a feast, invite _the_ poor, _the_ [^d]maimed, _the_ lame, _the_ blind. 
+
+###### 14 
+And you will be blessed, because they cannot repay you; for you shall be repaid at the resurrection of the just." ## The Parable of the Great Supper 
+
+###### 15 
+Now when one of those who sat at the table with Him heard these things, he said to Him, "Blessed _is_ he who shall eat [^e]bread in the kingdom of God!" 
+
+###### 16 
+Then He said to him, "A certain man gave a great supper and invited many, 
+
+###### 17 
+and sent his servant at supper time to say to those who were invited, 'Come, for all things are now ready.' 
+
+###### 18 
+But they all with one _accord_ began to make excuses. The first said to him, 'I have bought a piece of ground, and I must go and see it. I ask you to have me excused.' 
+
+###### 19 
+And another said, 'I have bought five yoke of oxen, and I am going to test them. I ask you to have me excused.' 
+
+###### 20 
+Still another said, 'I have married a wife, and therefore I cannot come.' 
+
+###### 21 
+So that servant came and reported these things to his master. Then the master of the house, being angry, said to his servant, 'Go out quickly into the streets and lanes of the city, and bring in here _the_ poor and _the_ [^f]maimed and _the_ lame and _the_ blind.' 
+
+###### 22 
+And the servant said, 'Master, it is done as you commanded, and still there is room.' 
+
+###### 23 
+Then the master said to the servant, 'Go out into the highways and hedges, and compel _them_ to come in, that my house may be filled. 
+
+###### 24 
+For I say to you that none of those men who were invited shall taste my supper.' " ## Leaving All to Follow Christ 
+
+###### 25 
+Now great multitudes went with Him. And He turned and said to them, 
+
+###### 26 
+"If anyone comes to Me and does not hate his father and mother, wife and children, brothers and sisters, yes, and his own life also, he cannot be My disciple. 
+
+###### 27 
+And whoever does not bear his cross and come after Me cannot be My disciple. 
+
+###### 28 
+For which of you, intending to build a tower, does not sit down first and count the cost, whether he has _enough_ to finish _it_-- 
+
+###### 29 
+lest, after he has laid the foundation, and is not able to finish, all who see _it_ begin to mock him, 
+
+###### 30 
+saying, 'This man began to build and was not able to finish'? 
+
+###### 31 
+Or what king, going to make war against another king, does not sit down first and consider whether he is able with ten thousand to meet him who comes against him with twenty thousand? 
+
+###### 32 
+Or else, while the other is still a great way off, he sends a delegation and asks conditions of peace. 
+
+###### 33 
+So likewise, whoever of you does not forsake all that he has cannot be My disciple. ## Tasteless Salt Is Worthless 
+
+###### 34 
+"Salt _is_ good; but if the salt has lost its flavor, how shall it be seasoned? 
+
+###### 35 
+It is neither fit for the land nor for the [^g]dunghill, _but_ men throw it out. He who has ears to hear, let him hear!" ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Luke 14:3 NU adds _or not_ [^b]: Luke 14:5 NU, M _son_ [^c]: Luke 14:11 _put down_ [^d]: Luke 14:13 _crippled_ [^e]: Luke 14:15 M _dinner_ [^f]: Luke 14:21 _crippled_ [^g]: Luke 14:35 _rubbish heap_

@@ -1,0 +1,142 @@
+---
+Aliases: [Isaiah 13]
+previous: ['Isa 12']
+up: ['Isaiah']
+next: ['Isa 14']
+---
+# Isaiah 13
+
+***
+
+
+
+
+###### 1 
+
+Isaiah son of Amoz received this message concerning the destruction of Babylon: 
+
+
+
+###### 2 
+
+"Raise a signal flag on a bare hilltop. Call up an army against Babylon. Wave your hand to encourage them as they march into the palaces of the high and mighty. 
+
+
+
+###### 3 
+
+I, the LORD, have dedicated these soldiers for this task. Yes, I have called mighty warriors to express my anger, and they will rejoice when I am exalted." 
+
+
+
+###### 4 
+
+Hear the noise on the mountains! Listen, as the vast armies march! It is the noise and shouting of many nations. The LORD of Heaven's Armies has called this army together. 
+
+
+
+###### 5 
+
+They come from distant countries, from beyond the farthest horizons. They are the LORD's weapons to carry out his anger. With them he will destroy the whole land. 
+
+
+
+###### 6 
+
+Scream in terror, for the day of the LORD has arrived-- the time for the Almighty to destroy. 
+
+
+
+###### 7 
+
+Every arm is paralyzed with fear. Every heart melts, 
+
+
+
+###### 8 
+
+and people are terrified. Pangs of anguish grip them, like those of a woman in labor. They look helplessly at one another, their faces aflame with fear. 
+
+
+
+###### 9 
+
+For see, the day of the LORD is coming-- the terrible day of his fury and fierce anger. The land will be made desolate, and all the sinners destroyed with it. 
+
+
+
+###### 10 
+
+The heavens will be black above them; the stars will give no light. The sun will be dark when it rises, and the moon will provide no light. 
+
+
+
+###### 11 
+
+"I, the LORD, will punish the world for its evil and the wicked for their sin. I will crush the arrogance of the proud and humble the pride of the mighty. 
+
+
+
+###### 12 
+
+I will make people scarcer than gold-- more rare than the fine gold of Ophir. 
+
+
+
+###### 13 
+
+For I will shake the heavens. The earth will move from its place when the LORD of Heaven's Armies displays his wrath in the day of his fierce anger." 
+
+
+
+###### 14 
+
+Everyone in Babylon will run about like a hunted gazelle, like sheep without a shepherd. They will try to find their own people and flee to their own land. 
+
+
+
+###### 15 
+
+Anyone who is captured will be cut down-- run through with a sword. 
+
+
+
+###### 16 
+
+Their little children will be dashed to death before their eyes. Their homes will be sacked, and their wives will be raped. 
+
+
+
+###### 17 
+
+"Look, I will stir up the Medes against Babylon. They cannot be tempted by silver or bribed with gold. 
+
+
+
+###### 18 
+
+The attacking armies will shoot down the young men with arrows. They will have no mercy on helpless babies and will show no compassion for children." 
+
+
+
+###### 19 
+
+Babylon, the most glorious of kingdoms, the flower of Chaldean pride, will be devastated like Sodom and Gomorrah when God destroyed them. 
+
+
+
+###### 20 
+
+Babylon will never be inhabited again. It will remain empty for generation after generation. Nomads will refuse to camp there, and shepherds will not bed down their sheep. 
+
+
+
+###### 21 
+
+Desert animals will move into the ruined city, and the houses will be haunted by howling creatures. Owls will live among the ruins, and wild goats will go there to dance. 
+
+
+
+###### 22 
+
+Hyenas will howl in its fortresses, and jackals will make dens in its luxurious palaces. Babylon's days are numbered; its time of destruction will soon arrive. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences

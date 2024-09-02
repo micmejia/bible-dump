@@ -1,0 +1,112 @@
+---
+Aliases: [Numbers 2]
+previous: ['Num 1']
+up: ['Numbers']
+next: ['Num 3']
+---
+# Numbers 2
+
+***
+
+
+###### 1 
+And the Lord spoke to Moses and Aaron, saying: 
+
+###### 2 
+"Everyone of the children of Israel shall camp by his own [^a]standard, beside the emblems of his father's house; they shall camp some distance from the tabernacle of meeting. 
+
+###### 3 
+On the east side, toward the rising of the sun, those of the standard of the forces with Judah shall camp according to their armies; and Nahshon the son of Amminadab _shall be_ the leader of the children of Judah." 
+
+###### 4 
+And his army was numbered at seventy-four thousand six hundred. 
+
+###### 5 
+"Those who camp next to him _shall be_ the tribe of Issachar, and Nethanel the son of Zuar _shall be_ the leader of the children of Issachar." 
+
+###### 6 
+And his army was numbered at fifty-four thousand four hundred. 
+
+###### 7 
+"Then _comes_ the tribe of Zebulun, and Eliab the son of Helon _shall be_ the leader of the children of Zebulun." 
+
+###### 8 
+And his army was numbered at fifty-seven thousand four hundred. 
+
+###### 9 
+"All who were numbered according to their armies of the forces with Judah, one hundred and eighty-six thousand four hundred--these shall [^b]break camp first. 
+
+###### 10 
+"On the south side _shall be_ the standard of the forces with Reuben according to their armies, and the leader of the children of Reuben _shall be_ Elizur the son of Shedeur." 
+
+###### 11 
+And his army was numbered at forty-six thousand five hundred. 
+
+###### 12 
+"Those who camp next to him _shall be_ the tribe of Simeon, and the leader of the children of Simeon _shall be_ Shelumiel the son of Zurishaddai." 
+
+###### 13 
+And his army was numbered at fifty-nine thousand three hundred. 
+
+###### 14 
+"Then _comes_ the tribe of Gad, and the leader of the children of Gad _shall be_ Eliasaph the son of [^c]Reuel." 
+
+###### 15 
+And his army was numbered at forty-five thousand six hundred and fifty. 
+
+###### 16 
+"All who were numbered according to their armies of the forces with Reuben, one hundred and fifty-one thousand four hundred and fifty--they shall [^d]be the second to break camp. 
+
+###### 17 
+"And the tabernacle of meeting shall move out with the [^e]camp of the Levites in the middle of the [^f]camps; as they camp, so they shall move out, everyone in his place, by their [^g]standards. 
+
+###### 18 
+"On the west side _shall be_ the standard of the forces with Ephraim according to their armies, and the leader of the children of Ephraim _shall be_ Elishama the son of Ammihud." 
+
+###### 19 
+And his army was numbered at forty thousand five hundred. 
+
+###### 20 
+"Next to him _comes_ the tribe of Manasseh, and the leader of the children of Manasseh _shall be_ Gamaliel the son of Pedahzur." 
+
+###### 21 
+And his army was numbered at thirty-two thousand two hundred. 
+
+###### 22 
+"Then _comes_ the tribe of Benjamin, and the leader of the children of Benjamin _shall be_ Abidan the son of Gideoni." 
+
+###### 23 
+And his army was numbered at thirty-five thousand four hundred. 
+
+###### 24 
+"All who were numbered according to their armies of the forces with Ephraim, one hundred and eight thousand one hundred--they shall [^h]be the third to break camp. 
+
+###### 25 
+"The [^i]standard of the forces with Dan _shall be_ on the north side according to their armies, and the leader of the children of Dan _shall be_ Ahiezer the son of Ammishaddai." 
+
+###### 26 
+And his army was numbered at sixty-two thousand seven hundred. 
+
+###### 27 
+"Those who camp next to him _shall be_ the tribe of Asher, and the leader of the children of Asher _shall be_ Pagiel the son of Ocran." 
+
+###### 28 
+And his army was numbered at forty-one thousand five hundred. 
+
+###### 29 
+"Then _comes_ the tribe of Naphtali, and the leader of the children of Naphtali _shall be_ Ahira the son of Enan." 
+
+###### 30 
+And his army was numbered at fifty-three thousand four hundred. 
+
+###### 31 
+"All who were numbered of the forces with Dan, one hundred and fifty-seven thousand six hundred--they shall [^j]break camp last, with their [^k]standards." 
+
+###### 32 
+These _are_ the ones who were numbered of the children of Israel by their fathers' houses. All who were numbered according to their armies of the forces _were_ six hundred and three thousand five hundred and fifty. 
+
+###### 33 
+But the Levites were not numbered among the children of Israel, just as the Lord commanded Moses. 
+
+###### 34 
+Thus the children of Israel did according to all that the Lord commanded Moses; so they camped by their [^l]standards and so they broke camp, each one by his family, according to their fathers' houses. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Numbers 2:2 _banner_ [^b]: Numbers 2:9 Lit. _set forth_ [^c]: Numbers 2:14 _Deuel,_ [Num. 1:14]; [7:42] [^d]: Numbers 2:16 Lit. _set forth second_ [^e]: Numbers 2:17 _company_ [^f]: Numbers 2:17 _whole company_ [^g]: Numbers 2:17 _banners_ [^h]: Numbers 2:24 Lit. _set forth third_ [^i]: Numbers 2:25 _banner_ [^j]: Numbers 2:31 Lit. _set forth last_ [^k]: Numbers 2:31 _banners_ [^l]: Numbers 2:34 _banners_

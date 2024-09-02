@@ -1,0 +1,91 @@
+---
+Aliases: [Ezekiel 43]
+previous: ['Ezek 42']
+up: ['Ezekiel']
+next: ['Ezek 44']
+---
+# Ezekiel 43
+
+***
+
+
+###### 1 
+Afterward he brought me to the gate, the gate that faces toward the east. 
+
+###### 2 
+And behold, the glory of the God of Israel came from the way of the east. His voice _was_ like the sound of many waters; and the earth shone with His glory. 
+
+###### 3 
+_It was_ like the appearance of the vision which I saw--like the vision which I saw when [^a]I came to destroy the city. The visions _were_ like the vision which I saw by the River Chebar; and I fell on my face. 
+
+###### 4 
+And the glory of the Lord came into the [^b]temple by way of the gate which faces toward the east. 
+
+###### 5 
+The Spirit lifted me up and brought me into the inner court; and behold, the glory of the Lord filled the [^c]temple. 
+
+###### 6 
+Then I heard _Him_ speaking to me from the temple, while a man stood beside me. 
+
+###### 7 
+And He said to me, "Son of man, _this is_ the place of My throne and the place of the soles of My feet, where I will dwell in the midst of the children of Israel forever. No more shall the house of Israel defile My holy name, they nor their kings, by their [^d]harlotry or with the carcasses of their kings on their high places. 
+
+###### 8 
+When they set their threshold by My threshold, and their doorpost by My doorpost, with a wall between them and Me, they defiled My holy name by the abominations which they committed; therefore I have consumed them in My anger. 
+
+###### 9 
+Now let them put their harlotry and the carcasses of their kings far away from Me, and I will dwell in their midst forever. 
+
+###### 10 
+"Son of man, describe the [^e]temple to the house of Israel, that they may be ashamed of their iniquities; and let them measure the pattern. 
+
+###### 11 
+And if they are ashamed of all that they have done, make known to them the design of the [^f]temple and its arrangement, its exits and its entrances, its entire design and all its ordinances, all its forms and all its laws. Write _it_ down in their sight, so that they may keep its whole design and all its ordinances, and perform them. 
+
+###### 12 
+This _is_ the law of the [^g]temple: The whole area surrounding the mountaintop _is_ most holy. Behold, this _is_ the law of the temple. ## Dimensions of the Altar 
+
+###### 13 
+"These are the measurements of the altar in cubits (the [^h]cubit _is_ one cubit and a handbreadth): the base one cubit high and one cubit wide, with a rim all around its edge of one span. This _is_ the height of the altar: 
+
+###### 14 
+from the base on the ground to the lower ledge, two cubits; the width of the ledge, one cubit; from the smaller ledge to the larger ledge, four cubits; and the width of the ledge, _one_ cubit. 
+
+###### 15 
+The altar hearth _is_ four cubits high, with four horns extending upward from the [^i]hearth. 
+
+###### 16 
+The altar hearth _is_ twelve _cubits_ long, twelve wide, square at its four corners; 
+
+###### 17 
+the ledge, fourteen _cubits_ long and fourteen wide on its four sides, with a rim of half a cubit around it; its base, one cubit all around; and its steps face toward the east." ## Consecrating the Altar 
+
+###### 18 
+And He said to me, "Son of man, thus says the Lord God: 'These _are_ the ordinances for the altar on the day when it is made, for sacrificing burnt offerings on it, and for sprinkling blood on it. 
+
+###### 19 
+You shall give a young bull for a sin offering to the priests, the Levites, who are of the seed of Zadok, who approach Me to minister to Me,' says the Lord God. 
+
+###### 20 
+'You shall take some of its blood and put _it_ on the four horns of the altar, on the four corners of the ledge, and on the rim around it; thus you shall cleanse it and make atonement for it. 
+
+###### 21 
+Then you shall also take the bull of the sin offering, and burn it in the appointed place of the [^j]temple, outside the sanctuary. 
+
+###### 22 
+On the second day you shall offer a kid of the goats without blemish for a sin offering; and they shall cleanse the altar, as they cleansed _it_ with the bull. 
+
+###### 23 
+When you have finished cleansing _it,_ you shall offer a young bull without blemish, and a ram from the flock without blemish. 
+
+###### 24 
+When you offer them before the Lord, the priests shall throw salt on them, and they will offer them up _as_ a burnt offering to the Lord. 
+
+###### 25 
+Every day for seven days you shall prepare a goat _for_ a sin offering; they shall also prepare a young bull and a ram from the flock, both without blemish. 
+
+###### 26 
+Seven days they shall make atonement for the altar and purify it, and so [^k]consecrate [^l]_it._ 
+
+###### 27 
+When these days are over it shall be, on the eighth day and thereafter, that the priests shall offer your burnt offerings and your peace offerings on the altar; and I will accept you,' says the Lord God." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Ezekiel 43:3 Some Heb. mss., Vg. _He_ [^b]: Ezekiel 43:4 Lit. _house_ [^c]: Ezekiel 43:5 Lit. _house_ [^d]: Ezekiel 43:7 Unfaithful idolatry [^e]: Ezekiel 43:10 Lit. _house_ [^f]: Ezekiel 43:11 Lit. _house_ [^g]: Ezekiel 43:12 Lit. _house_ [^h]: Ezekiel 43:13 A royal cubit of about 21 inches [^i]: Ezekiel 43:15 Heb. _ariel_ [^j]: Ezekiel 43:21 Lit. _house_ [^k]: Ezekiel 43:26 Lit. _fill its hands_ [^l]: Ezekiel 43:26 LXX, Syr. _themselves_

@@ -1,0 +1,100 @@
+---
+Aliases: [Revelation 20]
+previous: ['Rev 19']
+up: ['Revelation']
+next: ['Rev 21']
+---
+# Revelation 20
+
+***
+
+
+
+
+###### 1 
+
+Then I saw an angel coming down from heaven with the key to the bottomless pit[^a] and a heavy chain in his hand. 
+
+
+
+###### 2 
+
+He seized the dragon--that old serpent, who is the devil, Satan--and bound him in chains for a thousand years. 
+
+
+
+###### 3 
+
+The angel threw him into the bottomless pit, which he then shut and locked so Satan could not deceive the nations anymore until the thousand years were finished. Afterward he must be released for a little while. 
+
+
+
+###### 4 
+
+Then I saw thrones, and the people sitting on them had been given the authority to judge. And I saw the souls of those who had been beheaded for their testimony about Jesus and for proclaiming the word of God. They had not worshiped the beast or his statue, nor accepted his mark on their foreheads or their hands. They all came to life again, and they reigned with Christ for a thousand years. 
+
+
+
+###### 5 
+
+This is the first resurrection. (The rest of the dead did not come back to life until the thousand years had ended.) 
+
+
+
+###### 6 
+
+Blessed and holy are those who share in the first resurrection. For them the second death holds no power, but they will be priests of God and of Christ and will reign with him a thousand years. ## The Defeat of Satan 
+
+
+
+###### 7 
+
+When the thousand years come to an end, Satan will be let out of his prison. 
+
+
+
+###### 8 
+
+He will go out to deceive the nations--called Gog and Magog--in every corner of the earth. He will gather them together for battle--a mighty army, as numberless as sand along the seashore. 
+
+
+
+###### 9 
+
+And I saw them as they went up on the broad plain of the earth and surrounded God's people and the beloved city. But fire from heaven came down on the attacking armies and consumed them. 
+
+
+
+###### 10 
+
+Then the devil, who had deceived them, was thrown into the fiery lake of burning sulfur, joining the beast and the false prophet. There they will be tormented day and night forever and ever. ## The Final Judgment 
+
+
+
+###### 11 
+
+And I saw a great white throne and the one sitting on it. The earth and sky fled from his presence, but they found no place to hide. 
+
+
+
+###### 12 
+
+I saw the dead, both great and small, standing before God's throne. And the books were opened, including the Book of Life. And the dead were judged according to what they had done, as recorded in the books. 
+
+
+
+###### 13 
+
+The sea gave up its dead, and death and the grave[^b] gave up their dead. And all were judged according to their deeds. 
+
+
+
+###### 14 
+
+Then death and the grave were thrown into the lake of fire. This lake of fire is the second death. 
+
+
+
+###### 15 
+
+And anyone whose name was not found recorded in the Book of Life was thrown into the lake of fire. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 20:1 Or _the abyss,_ or _the underworld;_ also in [20:3]. [^b]: 20:13 Greek _and Hades;_ also in [20:14].

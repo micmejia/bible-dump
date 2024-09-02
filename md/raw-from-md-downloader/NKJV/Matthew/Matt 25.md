@@ -1,0 +1,148 @@
+---
+Aliases: [Matthew 25]
+previous: ['Matt 24']
+up: ['Matthew']
+next: ['Matt 26']
+---
+# Matthew 25
+
+***
+
+
+###### 1 
+"Then the kingdom of heaven shall be likened to ten virgins who took their lamps and went out to meet the bridegroom. 
+
+###### 2 
+Now five of them were wise, and five _were_ foolish. 
+
+###### 3 
+Those who _were_ foolish took their lamps and took no oil with them, 
+
+###### 4 
+but the wise took oil in their vessels with their lamps. 
+
+###### 5 
+But while the bridegroom was delayed, they all slumbered and slept. 
+
+###### 6 
+"And at midnight a cry was _heard:_ 'Behold, the bridegroom [^a]is coming; go out to meet him!' 
+
+###### 7 
+Then all those virgins arose and trimmed their lamps. 
+
+###### 8 
+And the foolish said to the wise, 'Give us _some_ of your oil, for our lamps are going out.' 
+
+###### 9 
+But the wise answered, saying, '_No,_ lest there should not be enough for us and you; but go rather to those who sell, and buy for yourselves.' 
+
+###### 10 
+And while they went to buy, the bridegroom came, and those who were ready went in with him to the wedding; and the door was shut. 
+
+###### 11 
+"Afterward the other virgins came also, saying, 'Lord, Lord, open to us!' 
+
+###### 12 
+But he answered and said, 'Assuredly, I say to you, I do not know you.' 
+
+###### 13 
+"Watch therefore, for you know neither the day nor the hour [^b]in which the Son of Man is coming. ## The Parable of the Talents 
+
+###### 14 
+"For _the kingdom of heaven is_ like a man traveling to a far country, _who_ called his own servants and delivered his goods to them. 
+
+###### 15 
+And to one he gave five talents, to another two, and to another one, to each according to his own ability; and immediately he went on a journey. 
+
+###### 16 
+Then he who had received the five talents went and traded with them, and made another five talents. 
+
+###### 17 
+And likewise he who _had received_ two gained two more also. 
+
+###### 18 
+But he who had received one went and dug in the ground, and hid his lord's money. 
+
+###### 19 
+After a long time the lord of those servants came and settled accounts with them. 
+
+###### 20 
+"So he who had received five talents came and brought five other talents, saying, 'Lord, you delivered to me five talents; look, I have gained five more talents besides them.' 
+
+###### 21 
+His lord said to him, 'Well _done,_ good and faithful servant; you were faithful over a few things, I will make you ruler over many things. Enter into the joy of your lord.' 
+
+###### 22 
+He also who had received two talents came and said, 'Lord, you delivered to me two talents; look, I have gained two more talents besides them.' 
+
+###### 23 
+His lord said to him, 'Well _done,_ good and faithful servant; you have been faithful over a few things, I will make you ruler over many things. Enter into the joy of your lord.' 
+
+###### 24 
+"Then he who had received the one talent came and said, 'Lord, I knew you to be a hard man, reaping where you have not sown, and gathering where you have not scattered seed. 
+
+###### 25 
+And I was afraid, and went and hid your talent in the ground. Look, _there_ you have _what is_ yours.' 
+
+###### 26 
+"But his lord answered and said to him, 'You wicked and lazy servant, you knew that I reap where I have not sown, and gather where I have not scattered seed. 
+
+###### 27 
+So you ought to have deposited my money with the bankers, and at my coming I would have received back my own with interest. 
+
+###### 28 
+So take the talent from him, and give _it_ to him who has ten talents. 
+
+###### 29 
+'For to everyone who has, more will be given, and he will have abundance; but from him who does not have, even what he has will be taken away. 
+
+###### 30 
+And cast the unprofitable servant into the outer darkness. There will be weeping and gnashing of teeth.' ## The Son of Man Will Judge the Nations 
+
+###### 31 
+"When the Son of Man comes in His glory, and all the [^c]holy angels with Him, then He will sit on the throne of His glory. 
+
+###### 32 
+All the nations will be gathered before Him, and He will separate them one from another, as a shepherd divides _his_ sheep from the goats. 
+
+###### 33 
+And He will set the sheep on His right hand, but the goats on the left. 
+
+###### 34 
+Then the King will say to those on His right hand, 'Come, you blessed of My Father, inherit the kingdom prepared for you from the foundation of the world: 
+
+###### 35 
+for I was hungry and you gave Me food; I was thirsty and you gave Me drink; I was a stranger and you took Me in; 
+
+###### 36 
+I _was_ naked and you clothed Me; I was sick and you visited Me; I was in prison and you came to Me.' 
+
+###### 37 
+"Then the righteous will answer Him, saying, 'Lord, when did we see You hungry and feed _You,_ or thirsty and give _You_ drink? 
+
+###### 38 
+When did we see You a stranger and take _You_ in, or naked and clothe _You?_ 
+
+###### 39 
+Or when did we see You sick, or in prison, and come to You?' 
+
+###### 40 
+And the King will answer and say to them, 'Assuredly, I say to you, inasmuch as you did _it_ to one of the least of these My brethren, you did _it_ to Me.' 
+
+###### 41 
+"Then He will also say to those on the left hand, 'Depart from Me, you cursed, into the everlasting fire prepared for the devil and his angels: 
+
+###### 42 
+for I was hungry and you gave Me no food; I was thirsty and you gave Me no drink; 
+
+###### 43 
+I was a stranger and you did not take Me in, naked and you did not clothe Me, sick and in prison and you did not visit Me.' 
+
+###### 44 
+"Then they also will answer [^d]Him, saying, 'Lord, when did we see You hungry or thirsty or a stranger or naked or sick or in prison, and did not minister to You?' 
+
+###### 45 
+Then He will answer them, saying, 'Assuredly, I say to you, inasmuch as you did not do _it_ to one of the least of these, you did not do _it_ to Me.' 
+
+###### 46 
+And these will go away into everlasting punishment, but the righteous into eternal life." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Matthew 25:6 NU omits _is coming_ [^b]: Matthew 25:13 NU omits the rest of v. [13]. [^c]: Matthew 25:31 NU omits _holy_ [^d]: Matthew 25:44 NU, M omit _Him_

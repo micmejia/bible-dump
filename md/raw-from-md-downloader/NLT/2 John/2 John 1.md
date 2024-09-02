@@ -1,0 +1,86 @@
+---
+Aliases: [2 John 1]
+up: ['2 John']
+---
+# 2 John 1
+
+***
+
+
+
+
+###### 1 
+
+This letter is from John, the elder.[^a] I am writing to the chosen lady and to her children,[^b] whom I love in the truth--as does everyone else who knows the truth-- 
+
+
+
+###### 2 
+
+because the truth lives in us and will be with us forever. 
+
+
+
+###### 3 
+
+Grace, mercy, and peace, which come from God the Father and from Jesus Christ--the Son of the Father--will continue to be with us who live in truth and love. ## Live in the Truth 
+
+
+
+###### 4 
+
+How happy I was to meet some of your children and find them living according to the truth, just as the Father commanded. 
+
+
+
+###### 5 
+
+I am writing to remind you, dear friends,[^c] that we should love one another. This is not a new commandment, but one we have had from the beginning. 
+
+
+
+###### 6 
+
+Love means doing what God has commanded us, and he has commanded us to love one another, just as you heard from the beginning. 
+
+
+
+###### 7 
+
+I say this because many deceivers have gone out into the world. They deny that Jesus Christ came[^d] in a real body. Such a person is a deceiver and an antichrist. 
+
+
+
+###### 8 
+
+Watch out that you do not lose what we[^e] have worked so hard to achieve. Be diligent so that you receive your full reward. 
+
+
+
+###### 9 
+
+Anyone who wanders away from this teaching has no relationship with God. But anyone who remains in the teaching of Christ has a relationship with both the Father and the Son. 
+
+
+
+###### 10 
+
+If anyone comes to your meeting and does not teach the truth about Christ, don't invite that person into your home or give any kind of encouragement. 
+
+
+
+###### 11 
+
+Anyone who encourages such people becomes a partner in their evil work. ## Conclusion 
+
+
+
+###### 12 
+
+I have much more to say to you, but I don't want to do it with paper and ink. For I hope to visit you soon and talk with you face to face. Then our joy will be complete. 
+
+
+
+###### 13 
+
+Greetings from the children of your sister,[^f] chosen by God. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 1a Greek _From the elder._ [^b]: 1b Or _the church God has chosen and its members._ [^c]: 5 Greek _I urge you, lady._ [^d]: 7 Or _will come._ [^e]: 8 Some manuscripts read _you._ [^f]: 13 Or _from the members of your sister church._

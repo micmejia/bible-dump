@@ -1,0 +1,133 @@
+---
+Aliases: [Acts 19]
+previous: ['Acts 18']
+up: ['Acts']
+next: ['Acts 20']
+---
+# Acts 19
+
+***
+
+
+###### 1 
+And it happened, while Apollos was at Corinth, that Paul, having passed through the upper regions, came to Ephesus. And finding some disciples 
+
+###### 2 
+he said to them, "Did you receive the Holy Spirit when you believed?" So they said to him, "We have not so much as heard whether there is a Holy Spirit." 
+
+###### 3 
+And he said to them, "Into what then were you baptized?" So they said, "Into John's baptism." 
+
+###### 4 
+Then Paul said, "John indeed baptized with a baptism of repentance, saying to the people that they should believe on Him who would come after him, that is, on Christ Jesus." 
+
+###### 5 
+When they heard _this,_ they were baptized in the name of the Lord Jesus. 
+
+###### 6 
+And when Paul had laid hands on them, the Holy Spirit came upon them, and they spoke with tongues and prophesied. 
+
+###### 7 
+Now the men were about twelve in all. 
+
+###### 8 
+And he went into the synagogue and spoke boldly for three months, reasoning and persuading concerning the things of the kingdom of God. 
+
+###### 9 
+But when some were hardened and did not believe, but spoke evil of the Way before the multitude, he departed from them and withdrew the disciples, reasoning daily in the school of Tyrannus. 
+
+###### 10 
+And this continued for two years, so that all who dwelt in Asia heard the word of the Lord Jesus, both Jews and Greeks. ## Miracles Glorify Christ 
+
+###### 11 
+Now God worked unusual miracles by the hands of Paul, 
+
+###### 12 
+so that even handkerchiefs or aprons were brought from his body to the sick, and the diseases left them and the evil spirits went out of them. 
+
+###### 13 
+Then some of the itinerant Jewish exorcists took it upon themselves to call the name of the Lord Jesus over those who had evil spirits, saying, [^a]"We [^b]exorcise you by the Jesus whom Paul preaches." 
+
+###### 14 
+Also there were seven sons of Sceva, a Jewish chief priest, who did so. 
+
+###### 15 
+And the evil spirit answered and said, "Jesus I know, and Paul I know; but who are you?" 
+
+###### 16 
+Then the man in whom the evil spirit was leaped on them, [^c]overpowered them, and prevailed against [^d]them, so that they fled out of that house naked and wounded. 
+
+###### 17 
+This became known both to all Jews and Greeks dwelling in Ephesus; and fear fell on them all, and the name of the Lord Jesus was magnified. 
+
+###### 18 
+And many who had believed came confessing and telling their deeds. 
+
+###### 19 
+Also, many of those who had practiced magic brought their books together and burned _them_ in the sight of all. And they counted up the value of them, and _it_ totaled fifty thousand _pieces_ of silver. 
+
+###### 20 
+So the word of the Lord grew mightily and prevailed. ## The Riot at Ephesus 
+
+###### 21 
+When these things were accomplished, Paul purposed in the Spirit, when he had passed through Macedonia and Achaia, to go to Jerusalem, saying, "After I have been there, I must also see Rome." 
+
+###### 22 
+So he sent into Macedonia two of those who ministered to him, Timothy and Erastus, but he himself stayed in Asia for a time. 
+
+###### 23 
+And about that time there arose a great commotion about the Way. 
+
+###### 24 
+For a certain man named Demetrius, a silversmith, who made silver shrines of [^e]Diana, brought no small profit to the craftsmen. 
+
+###### 25 
+He called them together with the workers of similar occupation, and said: "Men, you know that we have our prosperity by this trade. 
+
+###### 26 
+Moreover you see and hear that not only at Ephesus, but throughout almost all Asia, this Paul has persuaded and turned away many people, saying that they are not gods which are made with hands. 
+
+###### 27 
+So not only is this trade of ours in danger of falling into disrepute, but also the temple of the great goddess Diana may be despised and [^f]her magnificence destroyed, whom all Asia and the world worship." 
+
+###### 28 
+Now when they heard _this,_ they were full of wrath and cried out, saying, "Great _is_ Diana of the Ephesians!" 
+
+###### 29 
+So the whole city was filled with confusion, and rushed into the theater with one accord, having seized Gaius and Aristarchus, Macedonians, Paul's travel companions. 
+
+###### 30 
+And when Paul wanted to go in to the people, the disciples would not allow him. 
+
+###### 31 
+Then some of the [^g]officials of Asia, who were his friends, sent to him pleading that he would not venture into the theater. 
+
+###### 32 
+Some therefore cried one thing and some another, for the assembly was confused, and most of them did not know why they had come together. 
+
+###### 33 
+And they drew Alexander out of the multitude, the Jews putting him forward. And Alexander motioned with his hand, and wanted to make his defense to the people. 
+
+###### 34 
+But when they found out that he was a Jew, all with one voice cried out for about two hours, "Great _is_ Diana of the Ephesians!" 
+
+###### 35 
+And when the city clerk had quieted the crowd, he said: "Men of Ephesus, what man is there who does not know that the city of the Ephesians is temple guardian of the great goddess [^h]Diana, and of the _image_ which fell down from [^i]Zeus? 
+
+###### 36 
+Therefore, since these things cannot be denied, you ought to be quiet and do nothing rashly. 
+
+###### 37 
+For you have brought these men here who are neither robbers of temples nor blasphemers of [^j]your goddess. 
+
+###### 38 
+Therefore, if Demetrius and his fellow craftsmen have a [^k]case against anyone, the courts are open and there are proconsuls. Let them bring charges against one another. 
+
+###### 39 
+But if you have any other inquiry to make, it shall be determined in the lawful assembly. 
+
+###### 40 
+For we are in danger of being [^l]called in question for today's uproar, there being no reason which we may give to account for this disorderly gathering." 
+
+###### 41 
+And when he had said these things, he dismissed the assembly. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Acts 19:13 NU _I_ [^b]: Acts 19:13 _adjure,_ solemnly command [^c]: Acts 19:16 M _and they overpowered them_ [^d]: Acts 19:16 NU _both of them_ [^e]: Acts 19:24 Gr. _Artemis_ [^f]: Acts 19:27 NU _she be deposed from her magnificence_ [^g]: Acts 19:31 _Asiarchs, rulers of Asia,_ the province [^h]: Acts 19:35 Gr. _Artemis_ [^i]: Acts 19:35 _heaven_ [^j]: Acts 19:37 NU _our_ [^k]: Acts 19:38 Lit. _matter_ [^l]: Acts 19:40 Or _charged with rebellion concerning today_

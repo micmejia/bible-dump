@@ -1,0 +1,76 @@
+---
+Aliases: [1 Samuel 4]
+previous: ['1 Sam 3']
+up: ['1 Samuel']
+next: ['1 Sam 5']
+---
+# 1 Samuel 4
+
+***
+
+
+###### 1 
+And the word of Samuel came to all [^a]Israel. ## The Ark of God Captured Now Israel went out to battle against the Philistines, and encamped beside Ebenezer; and the Philistines encamped in Aphek. 
+
+###### 2 
+Then the Philistines put themselves in battle array against Israel. And when they joined battle, Israel was [^b]defeated by the Philistines, who killed about four thousand men of the army in the field. 
+
+###### 3 
+And when the people had come into the camp, the elders of Israel said, "Why has the Lord defeated us today before the Philistines? Let us bring the ark of the covenant of the Lord from Shiloh to us, that when it comes among us it may save us from the hand of our enemies." 
+
+###### 4 
+So the people sent to Shiloh, that they might bring from there the ark of the covenant of the Lord of hosts, who dwells _between_ the cherubim. And the two sons of Eli, Hophni and Phinehas, _were_ there with the ark of the covenant of God. 
+
+###### 5 
+And when the ark of the covenant of the Lord came into the camp, all Israel shouted so loudly that the earth shook. 
+
+###### 6 
+Now when the Philistines heard the noise of the shout, they said, "What _does_ the sound of this great shout in the camp of the Hebrews _mean?_" Then they understood that the ark of the Lord had come into the camp. 
+
+###### 7 
+So the Philistines were afraid, for they said, "God has come into the camp!" And they said, "Woe to us! For such a thing has never happened before. 
+
+###### 8 
+Woe to us! Who will deliver us from the hand of these mighty gods? These _are_ the gods who struck the Egyptians with all the plagues in the wilderness. 
+
+###### 9 
+Be strong and conduct yourselves like men, you Philistines, that you do not become servants of the Hebrews, as they have been to you. [^c]Conduct yourselves like men, and fight!" 
+
+###### 10 
+So the Philistines fought, and Israel was [^d]defeated, and every man fled to his tent. There was a very great slaughter, and there fell of Israel thirty thousand foot soldiers. 
+
+###### 11 
+Also the ark of God was captured; and the two sons of Eli, Hophni and Phinehas, died. ## Death of Eli 
+
+###### 12 
+Then a man of Benjamin ran from the battle line the same day, and came to Shiloh with his clothes torn and dirt on his head. 
+
+###### 13 
+Now when he came, there was Eli, sitting on a seat [^e]by the wayside watching, for his heart [^f]trembled for the ark of God. And when the man came into the city and told _it,_ all the city cried out. 
+
+###### 14 
+When Eli heard the noise of the outcry, he said, "What _does_ the sound of this tumult _mean?_" And the man came quickly and told Eli. 
+
+###### 15 
+Eli was ninety-eight years old, and his eyes were so [^g]dim that he could not see. 
+
+###### 16 
+Then the man said to Eli, "I _am_ he who came from the battle. And I fled today from the battle line." And he said, "What happened, my son?" 
+
+###### 17 
+So the messenger answered and said, "Israel has fled before the Philistines, and there has been a great slaughter among the people. Also your two sons, Hophni and Phinehas, are dead; and the ark of God has been captured." 
+
+###### 18 
+Then it happened, when he made mention of the ark of God, that Eli fell off the seat backward by the side of the gate; and his neck was broken and he died, for the man was old and heavy. And he had judged Israel forty years. ## Ichabod 
+
+###### 19 
+Now his daughter-in-law, Phinehas' wife, was with child, _due_ to be delivered; and when she heard the news that the ark of God was captured, and that her father-in-law and her husband were dead, she bowed herself and gave birth, for her labor pains came upon her. 
+
+###### 20 
+And about the time of her death the women who stood by her said to her, "Do not fear, for you have borne a son." But she did not answer, nor did she [^h]regard _it._ 
+
+###### 21 
+Then she named the child Ichabod,[^i] saying, "The glory has departed from Israel!" because the ark of God had been captured and because of her father-in-law and her husband. 
+
+###### 22 
+And she said, "The glory has departed from Israel, for the ark of God has been captured." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 1 Samuel 4:1 So with MT, Tg.; LXX, Vg. add _And it came to pass in those days that the Philistines gathered themselves together to fight;_ LXX adds further _against Israel_ [^b]: 1 Samuel 4:2 Lit. _struck_ [^c]: 1 Samuel 4:9 Lit. _Be men_ [^d]: 1 Samuel 4:10 Lit. _struck down_ [^e]: 1 Samuel 4:13 So with MT, Vg.; LXX _beside the gate watching the road_ [^f]: 1 Samuel 4:13 _trembled with anxiety_ [^g]: 1 Samuel 4:15 _fixed_ [^h]: 1 Samuel 4:20 _pay any attention to_ [^i]: 1 Samuel 4:21 Lit. _Inglorious_

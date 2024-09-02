@@ -1,0 +1,130 @@
+---
+Aliases: [Genesis 33]
+previous: ['Gen 32']
+up: ['Genesis']
+next: ['Gen 34']
+---
+# Genesis 33
+
+***
+
+
+
+
+###### 1 
+
+Then Jacob looked up and saw Esau coming with his 400 men. So he divided the children among Leah, Rachel, and his two servant wives. 
+
+
+
+###### 2 
+
+He put the servant wives and their children at the front, Leah and her children next, and Rachel and Joseph last. 
+
+
+
+###### 3 
+
+Then Jacob went on ahead. As he approached his brother, he bowed to the ground seven times before him. 
+
+
+
+###### 4 
+
+Then Esau ran to meet him and embraced him, threw his arms around his neck, and kissed him. And they both wept. 
+
+
+
+###### 5 
+
+Then Esau looked at the women and children and asked, "Who are these people with you?" "These are the children God has graciously given to me, your servant," Jacob replied. 
+
+
+
+###### 6 
+
+Then the servant wives came forward with their children and bowed before him. 
+
+
+
+###### 7 
+
+Next came Leah with her children, and they bowed before him. Finally, Joseph and Rachel came forward and bowed before him. 
+
+
+
+###### 8 
+
+"And what were all the flocks and herds I met as I came?" Esau asked. Jacob replied, "They are a gift, my lord, to ensure your friendship." 
+
+
+
+###### 9 
+
+"My brother, I have plenty," Esau answered. "Keep what you have for yourself." 
+
+
+
+###### 10 
+
+But Jacob insisted, "No, if I have found favor with you, please accept this gift from me. And what a relief to see your friendly smile. It is like seeing the face of God! 
+
+
+
+###### 11 
+
+Please take this gift I have brought you, for God has been very gracious to me. I have more than enough." And because Jacob insisted, Esau finally accepted the gift. 
+
+
+
+###### 12 
+
+"Well," Esau said, "let's be going. I will lead the way." 
+
+
+
+###### 13 
+
+But Jacob replied, "You can see, my lord, that some of the children are very young, and the flocks and herds have their young, too. If they are driven too hard, even for one day, all the animals could die. 
+
+
+
+###### 14 
+
+Please, my lord, go ahead of your servant. We will follow slowly, at a pace that is comfortable for the livestock and the children. I will meet you at Seir." 
+
+
+
+###### 15 
+
+"All right," Esau said, "but at least let me assign some of my men to guide and protect you." Jacob responded, "That's not necessary. It's enough that you've received me warmly, my lord!" 
+
+
+
+###### 16 
+
+So Esau turned around and started back to Seir that same day. 
+
+
+
+###### 17 
+
+Jacob, on the other hand, traveled on to Succoth. There he built himself a house and made shelters for his livestock. That is why the place was named Succoth (which means "shelters"). 
+
+
+
+###### 18 
+
+Later, having traveled all the way from Paddan-aram, Jacob arrived safely at the town of Shechem, in the land of Canaan. There he set up camp outside the town. 
+
+
+
+###### 19 
+
+Jacob bought the plot of land where he camped from the family of Hamor, the father of Shechem, for 100 pieces of silver.[^a] 
+
+
+
+###### 20 
+
+And there he built an altar and named it El-Elohe-Israel.[^b] ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 33:19 Hebrew _100 kesitahs;_ the value or weight of the kesitah is no longer known. [^b]: 33:20 _El-Elohe-Israel_ means “God, the God of Israel.”

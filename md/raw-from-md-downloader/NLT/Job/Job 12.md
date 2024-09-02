@@ -1,0 +1,160 @@
+---
+Aliases: [Job 12]
+previous: ['Job 11']
+up: ['Job']
+next: ['Job 13']
+---
+# Job 12
+
+***
+
+
+
+
+###### 1 
+
+Then Job spoke again: 
+
+
+
+###### 2 
+
+"You people really know everything, don't you? And when you die, wisdom will die with you! 
+
+
+
+###### 3 
+
+Well, I know a few things myself-- and you're no better than I am. Who doesn't know these things you've been saying? 
+
+
+
+###### 4 
+
+Yet my friends laugh at me, for I call on God and expect an answer. I am a just and blameless man, yet they laugh at me. 
+
+
+
+###### 5 
+
+People who are at ease mock those in trouble. They give a push to people who are stumbling. 
+
+
+
+###### 6 
+
+But robbers are left in peace, and those who provoke God live in safety-- though God keeps them in his power.[^a] 
+
+
+
+###### 7 
+
+"Just ask the animals, and they will teach you. Ask the birds of the sky, and they will tell you. 
+
+
+
+###### 8 
+
+Speak to the earth, and it will instruct you. Let the fish in the sea speak to you. 
+
+
+
+###### 9 
+
+For they all know that my disaster[^b] has come from the hand of the LORD. 
+
+
+
+###### 10 
+
+For the life of every living thing is in his hand, and the breath of every human being. 
+
+
+
+###### 11 
+
+The ear tests the words it hears just as the mouth distinguishes between foods. 
+
+
+
+###### 12 
+
+Wisdom belongs to the aged, and understanding to the old. 
+
+
+
+###### 13 
+
+"But true wisdom and power are found in God; counsel and understanding are his. 
+
+
+
+###### 14 
+
+What he destroys cannot be rebuilt. When he puts someone in prison, there is no escape. 
+
+
+
+###### 15 
+
+If he holds back the rain, the earth becomes a desert. If he releases the waters, they flood the earth. 
+
+
+
+###### 16 
+
+Yes, strength and wisdom are his; deceivers and deceived are both in his power. 
+
+
+
+###### 17 
+
+He leads counselors away, stripped of good judgment; wise judges become fools. 
+
+
+
+###### 18 
+
+He removes the royal robe of kings. They are led away with ropes around their waist. 
+
+
+
+###### 19 
+
+He leads priests away, stripped of status; he overthrows those with long years in power. 
+
+
+
+###### 20 
+
+He silences the trusted adviser and removes the insight of the elders. 
+
+
+
+###### 21 
+
+He pours disgrace upon princes and disarms the strong. 
+
+
+
+###### 22 
+
+"He uncovers mysteries hidden in darkness; he brings light to the deepest gloom. 
+
+
+
+###### 23 
+
+He builds up nations, and he destroys them. He expands nations, and he abandons them. 
+
+
+
+###### 24 
+
+He strips kings of understanding and leaves them wandering in a pathless wasteland. 
+
+
+
+###### 25 
+
+They grope in the darkness without a light. He makes them stagger like drunkards. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 12:6 Or _safety—those who try to manipulate God._ The meaning of the Hebrew is uncertain. [^b]: 12:9 Hebrew _that this._

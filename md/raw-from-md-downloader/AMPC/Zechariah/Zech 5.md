@@ -1,0 +1,241 @@
+---
+Aliases: [Zechariah 5]
+previous: ['Zech 4']
+up: ['Zechariah']
+next: ['Zech 6']
+---
+# Zechariah 5
+
+***
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 1 
+
+
+
+
+
+
+Again I lifted up my eyes and behold, I saw a scroll flying _or_ floating in the air! 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 2 
+
+
+
+
+
+
+And the angel said to me, What do you see? And I answered, I see a flying scroll; its length is twenty cubits _or_ thirty feet and its breadth is ten cubits _or_ fifteen feet. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 3 
+
+
+
+
+
+
+Then he said to me, This is the curse that goes out over the face of the whole land; for everyone who steals shall be cut off from henceforth according to it [the curse written on this subject on the scroll], and everyone who swears falsely shall be cut off from henceforth according to it. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 4 
+
+
+
+
+
+
+I will bring [the curse] forth, says the Lord of hosts, and it shall enter into the house of the thief and into the house of him who swears falsely by My name; and it shall abide in the midst of his house and shall consume it, both its timber and its stones. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 5 
+
+
+
+
+
+
+Then the angel who talked with me came forward and said to me, Lift up now your eyes and see what this is that goes forth. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 6 
+
+
+
+
+
+
+And I said, What is it? [What does it symbolize?] And he said, This that goes forth is an ephah[-sized vessel for separate grains all collected together]. This, he continued, is the symbol of the sinners mentioned above _and_ is the resemblance of their iniquity throughout the whole land. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 7 
+
+
+
+
+
+
+And behold, a round, flat weight of lead was lifted and there sat a woman in the midst of the ephah[-sized vessel]. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 8 
+
+
+
+
+
+
+And he said, This is lawlessness (wickedness)! And he thrust her back into the ephah[-sized vessel] and he cast the weight of lead upon the mouth of it! 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 9 
+
+
+
+
+
+
+Then lifted I up my eyes and looked, and behold, there were two women coming forward! The wind was in their wings, for they had wings like the wings of a stork, and they lifted up the ephah[-sized vessel] between the earth and the heavens. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 10 
+
+
+
+
+
+
+Then said I to the angel who talked with me, Where are they taking the ephah[-sized vessel]? 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 11 
+
+
+
+
+
+
+And he said to me, To the land of Shinar [Babylonia] to build it a house, and when it is finished, to set up the ephah[-sized vessel--the symbol of such sinners and their guilt] there upon its own base. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences

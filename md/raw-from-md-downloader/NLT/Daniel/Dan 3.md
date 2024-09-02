@@ -1,0 +1,190 @@
+---
+Aliases: [Daniel 3]
+previous: ['Dan 2']
+up: ['Daniel']
+next: ['Dan 4']
+---
+# Daniel 3
+
+***
+
+
+
+
+###### 1 
+
+King Nebuchadnezzar made a gold statue ninety feet tall and nine feet wide[^a] and set it up on the plain of Dura in the province of Babylon. 
+
+
+
+###### 2 
+
+Then he sent messages to the high officers, officials, governors, advisers, treasurers, judges, magistrates, and all the provincial officials to come to the dedication of the statue he had set up. 
+
+
+
+###### 3 
+
+So all these officials[^b] came and stood before the statue King Nebuchadnezzar had set up. 
+
+
+
+###### 4 
+
+Then a herald shouted out, "People of all races and nations and languages, listen to the king's command! 
+
+
+
+###### 5 
+
+When you hear the sound of the horn, flute, zither, lyre, harp, pipes, and other musical instruments,[^c] bow to the ground to worship King Nebuchadnezzar's gold statue. 
+
+
+
+###### 6 
+
+Anyone who refuses to obey will immediately be thrown into a blazing furnace." 
+
+
+
+###### 7 
+
+So at the sound of the musical instruments,[^d] all the people, whatever their race or nation or language, bowed to the ground and worshiped the gold statue that King Nebuchadnezzar had set up. 
+
+
+
+###### 8 
+
+But some of the astrologers[^e] went to the king and informed on the Jews. 
+
+
+
+###### 9 
+
+They said to King Nebuchadnezzar, "Long live the king! 
+
+
+
+###### 10 
+
+You issued a decree requiring all the people to bow down and worship the gold statue when they hear the sound of the horn, flute, zither, lyre, harp, pipes, and other musical instruments. 
+
+
+
+###### 11 
+
+That decree also states that those who refuse to obey must be thrown into a blazing furnace. 
+
+
+
+###### 12 
+
+But there are some Jews--Shadrach, Meshach, and Abednego--whom you have put in charge of the province of Babylon. They pay no attention to you, Your Majesty. They refuse to serve your gods and do not worship the gold statue you have set up." 
+
+
+
+###### 13 
+
+Then Nebuchadnezzar flew into a rage and ordered that Shadrach, Meshach, and Abednego be brought before him. When they were brought in, 
+
+
+
+###### 14 
+
+Nebuchadnezzar said to them, "Is it true, Shadrach, Meshach, and Abednego, that you refuse to serve my gods or to worship the gold statue I have set up? 
+
+
+
+###### 15 
+
+I will give you one more chance to bow down and worship the statue I have made when you hear the sound of the musical instruments.[^f] But if you refuse, you will be thrown immediately into the blazing furnace. And then what god will be able to rescue you from my power?" 
+
+
+
+###### 16 
+
+Shadrach, Meshach, and Abednego replied, "O Nebuchadnezzar, we do not need to defend ourselves before you. 
+
+
+
+###### 17 
+
+If we are thrown into the blazing furnace, the God whom we serve is able to save us. He will rescue us from your power, Your Majesty. 
+
+
+
+###### 18 
+
+But even if he doesn't, we want to make it clear to you, Your Majesty, that we will never serve your gods or worship the gold statue you have set up." ## The Blazing Furnace 
+
+
+
+###### 19 
+
+Nebuchadnezzar was so furious with Shadrach, Meshach, and Abednego that his face became distorted with rage. He commanded that the furnace be heated seven times hotter than usual. 
+
+
+
+###### 20 
+
+Then he ordered some of the strongest men of his army to bind Shadrach, Meshach, and Abednego and throw them into the blazing furnace. 
+
+
+
+###### 21 
+
+So they tied them up and threw them into the furnace, fully dressed in their pants, turbans, robes, and other garments. 
+
+
+
+###### 22 
+
+And because the king, in his anger, had demanded such a hot fire in the furnace, the flames killed the soldiers as they threw the three men in. 
+
+
+
+###### 23 
+
+So Shadrach, Meshach, and Abednego, securely tied, fell into the roaring flames. 
+
+
+
+###### 24 
+
+But suddenly, Nebuchadnezzar jumped up in amazement and exclaimed to his advisers, "Didn't we tie up three men and throw them into the furnace?" "Yes, Your Majesty, we certainly did," they replied. 
+
+
+
+###### 25 
+
+"Look!" Nebuchadnezzar shouted. "I see four men, unbound, walking around in the fire unharmed! And the fourth looks like a god[^g]!" 
+
+
+
+###### 26 
+
+Then Nebuchadnezzar came as close as he could to the door of the flaming furnace and shouted: "Shadrach, Meshach, and Abednego, servants of the Most High God, come out! Come here!" So Shadrach, Meshach, and Abednego stepped out of the fire. 
+
+
+
+###### 27 
+
+Then the high officers, officials, governors, and advisers crowded around them and saw that the fire had not touched them. Not a hair on their heads was singed, and their clothing was not scorched. They didn't even smell of smoke! 
+
+
+
+###### 28 
+
+Then Nebuchadnezzar said, "Praise to the God of Shadrach, Meshach, and Abednego! He sent his angel to rescue his servants who trusted in him. They defied the king's command and were willing to die rather than serve or worship any god except their own God. 
+
+
+
+###### 29 
+
+Therefore, I make this decree: If any people, whatever their race or nation or language, speak a word against the God of Shadrach, Meshach, and Abednego, they will be torn limb from limb, and their houses will be turned into heaps of rubble. There is no other god who can rescue like this!" 
+
+
+
+###### 30 
+
+Then the king promoted Shadrach, Meshach, and Abednego to even higher positions in the province of Babylon. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 3:1 Aramaic _60 cubits_ [27 meters] _tall and 6 cubits_ [2.7 meters] _wide._ [^b]: 3:3 Aramaic _the high officers, officials, governors, advisers, treasurers, judges, magistrates, and all the provincial officials._ [^c]: 3:5 The identification of some of these musical instruments is uncertain. [^d]: 3:7 Aramaic _the horn, flute, zither, lyre, harp, and other musical instruments._ [^e]: 3:8 Aramaic _Chaldeans._ [^f]: 3:15 Aramaic _the horn, flute, zither, lyre, harp, pipes, and other musical instruments._ [^g]: 3:25 Aramaic _like a son of the gods._

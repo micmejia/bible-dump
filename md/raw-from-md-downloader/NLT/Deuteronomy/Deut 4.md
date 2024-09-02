@@ -1,0 +1,304 @@
+---
+Aliases: [Deuteronomy 4]
+previous: ['Deut 3']
+up: ['Deuteronomy']
+next: ['Deut 5']
+---
+# Deuteronomy 4
+
+***
+
+
+
+
+###### 1 
+
+"And now, Israel, listen carefully to these decrees and regulations that I am about to teach you. Obey them so that you may live, so you may enter and occupy the land that the LORD, the God of your ancestors, is giving you. 
+
+
+
+###### 2 
+
+Do not add to or subtract from these commands I am giving you. Just obey the commands of the LORD your God that I am giving you. 
+
+
+
+###### 3 
+
+"You saw for yourself what the LORD did to you at Baal-peor. There the LORD your God destroyed everyone who had worshiped Baal, the god of Peor. 
+
+
+
+###### 4 
+
+But all of you who were faithful to the LORD your God are still alive today--every one of you. 
+
+
+
+###### 5 
+
+"Look, I now teach you these decrees and regulations just as the LORD my God commanded me, so that you may obey them in the land you are about to enter and occupy. 
+
+
+
+###### 6 
+
+Obey them completely, and you will display your wisdom and intelligence among the surrounding nations. When they hear all these decrees, they will exclaim, 'How wise and prudent are the people of this great nation!' 
+
+
+
+###### 7 
+
+For what great nation has a god as near to them as the LORD our God is near to us whenever we call on him? 
+
+
+
+###### 8 
+
+And what great nation has decrees and regulations as righteous and fair as this body of instructions that I am giving you today? 
+
+
+
+###### 9 
+
+"But watch out! Be careful never to forget what you yourself have seen. Do not let these memories escape from your mind as long as you live! And be sure to pass them on to your children and grandchildren. 
+
+
+
+###### 10 
+
+Never forget the day when you stood before the LORD your God at Mount Sinai,[^a] where he told me, 'Summon the people before me, and I will personally instruct them. Then they will learn to fear me as long as they live, and they will teach their children to fear me also.' 
+
+
+
+###### 11 
+
+"You came near and stood at the foot of the mountain, while flames from the mountain shot into the sky. The mountain was shrouded in black clouds and deep darkness. 
+
+
+
+###### 12 
+
+And the LORD spoke to you from the heart of the fire. You heard the sound of his words but didn't see his form; there was only a voice. 
+
+
+
+###### 13 
+
+He proclaimed his covenant--the Ten Commandments[^b]--which he commanded you to keep, and which he wrote on two stone tablets. 
+
+
+
+###### 14 
+
+It was at that time that the LORD commanded me to teach you his decrees and regulations so you would obey them in the land you are about to enter and occupy. ## A Warning against Idolatry 
+
+
+
+###### 15 
+
+"But be very careful! You did not see the LORD's form on the day he spoke to you from the heart of the fire at Mount Sinai. 
+
+
+
+###### 16 
+
+So do not corrupt yourselves by making an idol in any form--whether of a man or a woman, 
+
+
+
+###### 17 
+
+an animal on the ground, a bird in the sky, 
+
+
+
+###### 18 
+
+a small animal that scurries along the ground, or a fish in the deepest sea. 
+
+
+
+###### 19 
+
+And when you look up into the sky and see the sun, moon, and stars--all the forces of heaven--don't be seduced into worshiping them. The LORD your God gave them to all the peoples of the earth. 
+
+
+
+###### 20 
+
+Remember that the LORD rescued you from the iron-smelting furnace of Egypt in order to make you his very own people and his special possession, which is what you are today. 
+
+
+
+###### 21 
+
+"But the LORD was angry with me because of you. He vowed that I would not cross the Jordan River into the good land the LORD your God is giving you as your special possession. 
+
+
+
+###### 22 
+
+You will cross the Jordan to occupy the land, but I will not. Instead, I will die here on the east side of the river. 
+
+
+
+###### 23 
+
+So be careful not to break the covenant the LORD your God has made with you. Do not make idols of any shape or form, for the LORD your God has forbidden this. 
+
+
+
+###### 24 
+
+The LORD your God is a devouring fire; he is a jealous God. 
+
+
+
+###### 25 
+
+"In the future, when you have children and grandchildren and have lived in the land a long time, do not corrupt yourselves by making idols of any kind. This is evil in the sight of the LORD your God and will arouse his anger. 
+
+
+
+###### 26 
+
+"Today I call on heaven and earth as witnesses against you. If you break my covenant, you will quickly disappear from the land you are crossing the Jordan to occupy. You will live there only a short time; then you will be utterly destroyed. 
+
+
+
+###### 27 
+
+For the LORD will scatter you among the nations, where only a few of you will survive. 
+
+
+
+###### 28 
+
+There, in a foreign land, you will worship idols made from wood and stone--gods that neither see nor hear nor eat nor smell. 
+
+
+
+###### 29 
+
+But from there you will search again for the LORD your God. And if you search for him with all your heart and soul, you will find him. 
+
+
+
+###### 30 
+
+"In the distant future, when you are suffering all these things, you will finally return to the LORD your God and listen to what he tells you. 
+
+
+
+###### 31 
+
+For the LORD your God is a merciful God; he will not abandon you or destroy you or forget the solemn covenant he made with your ancestors. ## There Is Only One God 
+
+
+
+###### 32 
+
+"Now search all of history, from the time God created people on the earth until now, and search from one end of the heavens to the other. Has anything as great as this ever been seen or heard before? 
+
+
+
+###### 33 
+
+Has any nation ever heard the voice of God[^c] speaking from fire--as you did--and survived? 
+
+
+
+###### 34 
+
+Has any other god dared to take a nation for himself out of another nation by means of trials, miraculous signs, wonders, war, a strong hand, a powerful arm, and terrifying acts? Yet that is what the LORD your God did for you in Egypt, right before your eyes. 
+
+
+
+###### 35 
+
+"He showed you these things so you would know that the LORD is God and there is no other. 
+
+
+
+###### 36 
+
+He let you hear his voice from heaven so he could instruct you. He let you see his great fire here on earth so he could speak to you from it. 
+
+
+
+###### 37 
+
+Because he loved your ancestors, he chose to bless their descendants, and he personally brought you out of Egypt with a great display of power. 
+
+
+
+###### 38 
+
+He drove out nations far greater than you, so he could bring you in and give you their land as your special possession, as it is today. 
+
+
+
+###### 39 
+
+"So remember this and keep it firmly in mind: The LORD is God both in heaven and on earth, and there is no other. 
+
+
+
+###### 40 
+
+If you obey all the decrees and commands I am giving you today, all will be well with you and your children. I am giving you these instructions so you will enjoy a long life in the land the LORD your God is giving you for all time." ## Eastern Cities of Refuge 
+
+
+
+###### 41 
+
+Then Moses set apart three cities of refuge east of the Jordan River. 
+
+
+
+###### 42 
+
+Anyone who killed another person unintentionally, without previous hostility, could flee there to live in safety. 
+
+
+
+###### 43 
+
+These were the cities: Bezer on the wilderness plateau for the tribe of Reuben; Ramoth in Gilead for the tribe of Gad; Golan in Bashan for the tribe of Manasseh. ## Introduction to Moses' Second Address 
+
+
+
+###### 44 
+
+This is the body of instruction that Moses presented to the Israelites. 
+
+
+
+###### 45 
+
+These are the laws, decrees, and regulations that Moses gave to the people of Israel when they left Egypt, 
+
+
+
+###### 46 
+
+and as they camped in the valley near Beth-peor east of the Jordan River. (This land was formerly occupied by the Amorites under King Sihon, who ruled from Heshbon. But Moses and the Israelites destroyed him and his people when they came up from Egypt. 
+
+
+
+###### 47 
+
+Israel took possession of his land and that of King Og of Bashan--the two Amorite kings east of the Jordan. 
+
+
+
+###### 48 
+
+So Israel conquered the entire area from Aroer at the edge of the Arnon Gorge all the way to Mount Sirion,[^d] also called Mount Hermon. 
+
+
+
+###### 49 
+
+And they conquered the eastern bank of the Jordan River as far south as the Dead Sea,[^e] below the slopes of Pisgah.) ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 4:10 Hebrew _Horeb,_ another name for Sinai; also in [4:15]. [^b]: 4:13 Hebrew _the ten words._ [^c]: 4:33 Or _voice of a god._ [^d]: 4:48 As in Syriac version (see also [3:9]); Hebrew reads _Mount Sion._ [^e]: 4:49 Hebrew _took the Arabah on the east side of the Jordan as far as the sea of the Arabah._

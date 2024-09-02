@@ -1,0 +1,124 @@
+---
+Aliases: [Exodus 30]
+previous: ['Exod 29']
+up: ['Exodus']
+next: ['Exod 31']
+---
+# Exodus 30
+
+***
+
+
+###### 1 
+"You shall make an altar to burn incense on; you shall make it of acacia wood. 
+
+###### 2 
+A cubit _shall be_ its length and a cubit its width--it shall be square--and two cubits _shall be_ its height. Its horns _shall be_ of one piece with it. 
+
+###### 3 
+And you shall overlay its top, its sides all around, and its horns with pure gold; and you shall make for it a [^a]molding of gold all around. 
+
+###### 4 
+Two gold rings you shall make for it, under the molding on both its sides. You shall place _them_ on its two sides, and they will be holders for the poles with which to bear it. 
+
+###### 5 
+You shall make the poles of acacia wood, and overlay them with gold. 
+
+###### 6 
+And you shall put it before the veil that _is_ before the ark of the Testimony, before the mercy seat that _is_ over the Testimony, where I will meet with you. 
+
+###### 7 
+"Aaron shall burn on it sweet incense every morning; when he tends the lamps, he shall burn incense on it. 
+
+###### 8 
+And when Aaron lights the lamps [^b]at twilight, he shall burn incense on it, a perpetual incense before the Lord throughout your generations. 
+
+###### 9 
+You shall not offer strange incense on it, or a burnt offering, or a grain offering; nor shall you pour a drink offering on it. 
+
+###### 10 
+And Aaron shall make atonement upon its horns once a year with the blood of the sin offering of atonement; once a year he shall make atonement upon it throughout your generations. It _is_ most holy to the Lord." ## The Ransom Money 
+
+###### 11 
+Then the Lord spoke to Moses, saying: 
+
+###### 12 
+"When you take the census of the children of Israel for their number, then every man shall give a[^c] ransom for himself to the Lord, when you number them, that there may be no plague among them when _you_ number them. 
+
+###### 13 
+This is what everyone among those who are numbered shall give: half a shekel according to the shekel of the sanctuary (a shekel _is_ twenty gerahs). The half-shekel _shall be_ an offering to the Lord. 
+
+###### 14 
+Everyone included among those who are numbered, from twenty years old and above, shall give an [^d]offering to the Lord. 
+
+###### 15 
+The rich shall not give more and the poor shall not give less than half a shekel, when _you_ give an offering to the Lord, to make atonement for yourselves. 
+
+###### 16 
+And you shall take the atonement money of the children of Israel, and shall [^e]appoint it for the service of the tabernacle of meeting, that it may be a memorial for the children of Israel before the Lord, to make atonement for yourselves." ## The Bronze Laver 
+
+###### 17 
+Then the Lord spoke to Moses, saying: 
+
+###### 18 
+"You shall also make a [^f]laver of bronze, with its base also of bronze, for washing. You shall put it between the tabernacle of meeting and the altar. And you shall put water in it, 
+
+###### 19 
+for Aaron and his sons shall wash their hands and their feet in water from it. 
+
+###### 20 
+When they go into the tabernacle of meeting, or when they come near the altar to minister, to burn an offering made by fire to the Lord, they shall wash with water, lest they die. 
+
+###### 21 
+So they shall wash their hands and their feet, lest they die. And it shall be a [^g]statute forever to them--to him and his descendants throughout their generations." ## The Holy Anointing Oil 
+
+###### 22 
+Moreover the Lord spoke to Moses, saying: 
+
+###### 23 
+"Also take for yourself quality spices--five hundred _shekels_ of liquid myrrh, half as much sweet-smelling cinnamon (two hundred and fifty _shekels_), two hundred and fifty _shekels_ of sweet-smelling cane, 
+
+###### 24 
+five hundred _shekels_ of cassia, according to the shekel of the sanctuary, and a hin of olive oil. 
+
+###### 25 
+And you shall make from these a holy anointing oil, an ointment compounded according to the art of the perfumer. It shall be a holy anointing oil. 
+
+###### 26 
+With it you shall anoint the tabernacle of meeting and the ark of the Testimony; 
+
+###### 27 
+the table and all its utensils, the lampstand and its utensils, and the altar of incense; 
+
+###### 28 
+the altar of burnt offering with all its utensils, and the laver and its base. 
+
+###### 29 
+You shall consecrate them, that they may be most holy; whatever touches them must be holy. 
+
+###### 30 
+And you shall anoint Aaron and his sons, and consecrate them, that _they_ may minister to Me as priests. 
+
+###### 31 
+"And you shall speak to the children of Israel, saying: 'This shall be a holy anointing oil to Me throughout your generations. 
+
+###### 32 
+It shall not be poured on man's flesh; nor shall you make _any other_ like it, according to its composition. It _is_ holy, _and_ it shall be holy to you. 
+
+###### 33 
+Whoever [^h]compounds _any_ like it, or whoever puts _any_ of it on an outsider, shall be [^i]cut off from his people.' " ## The Incense 
+
+###### 34 
+And the Lord said to Moses: "Take sweet spices, stacte and onycha and galbanum, and pure frankincense with _these_ sweet spices; there shall be equal amounts of each. 
+
+###### 35 
+You shall make of these an incense, a compound according to the art of the perfumer, salted, pure, _and_ holy. 
+
+###### 36 
+And you shall beat _some_ of it very fine, and put some of it before the Testimony in the tabernacle of meeting where I will meet with you. It shall be most holy to you. 
+
+###### 37 
+But _as for_ the incense which you shall make, you shall not make any for yourselves, according to its [^j]composition. It shall be to you holy for the Lord. 
+
+###### 38 
+Whoever makes _any_ like it, to smell it, he shall be cut off from his people." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Exodus 30:3 _border_ [^b]: Exodus 30:8 Lit. _between the two evenings_ [^c]: Exodus 30:12 _the price of a life_ [^d]: Exodus 30:14 _contribution_ [^e]: Exodus 30:16 _give_ [^f]: Exodus 30:18 _basin_ [^g]: Exodus 30:21 _requirement_ [^h]: Exodus 30:33 _mixes_ [^i]: Exodus 30:33 Put to death [^j]: Exodus 30:37 Lit. _proportion_

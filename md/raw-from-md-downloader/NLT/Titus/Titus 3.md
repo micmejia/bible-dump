@@ -1,0 +1,99 @@
+---
+Aliases: [Titus 3]
+previous: ['Titus 2']
+up: ['Titus']
+---
+# Titus 3
+
+***
+
+
+
+
+###### 1 
+
+Remind the believers to submit to the government and its officers. They should be obedient, always ready to do what is good. 
+
+
+
+###### 2 
+
+They must not slander anyone and must avoid quarreling. Instead, they should be gentle and show true humility to everyone. 
+
+
+
+###### 3 
+
+Once we, too, were foolish and disobedient. We were misled and became slaves to many lusts and pleasures. Our lives were full of evil and envy, and we hated each other. 
+
+
+
+###### 4 
+
+But-- When God our Savior revealed his kindness and love, 
+
+
+
+###### 5 
+
+he saved us, not because of the righteous things we had done, but because of his mercy. He washed away our sins, giving us a new birth and new life through the Holy Spirit.[^a] 
+
+
+
+###### 6 
+
+He generously poured out the Spirit upon us through Jesus Christ our Savior. 
+
+
+
+###### 7 
+
+Because of his grace he made us right in his sight and gave us confidence that we will inherit eternal life. 
+
+
+
+###### 8 
+
+This is a trustworthy saying, and I want you to insist on these teachings so that all who trust in God will devote themselves to doing good. These teachings are good and beneficial for everyone. 
+
+
+
+###### 9 
+
+Do not get involved in foolish discussions about spiritual pedigrees[^b] or in quarrels and fights about obedience to Jewish laws. These things are useless and a waste of time. 
+
+
+
+###### 10 
+
+If people are causing divisions among you, give a first and second warning. After that, have nothing more to do with them. 
+
+
+
+###### 11 
+
+For people like that have turned away from the truth, and their own sins condemn them. ## Paul's Final Remarks and Greetings 
+
+
+
+###### 12 
+
+I am planning to send either Artemas or Tychicus to you. As soon as one of them arrives, do your best to meet me at Nicopolis, for I have decided to stay there for the winter. 
+
+
+
+###### 13 
+
+Do everything you can to help Zenas the lawyer and Apollos with their trip. See that they are given everything they need. 
+
+
+
+###### 14 
+
+Our people must learn to do good by meeting the urgent needs of others; then they will not be unproductive. 
+
+
+
+###### 15 
+
+Everybody here sends greetings. Please give my greetings to the believers--all who love us. May God's grace be with you all. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 3:5 Greek _He saved us through the washing of regeneration and renewing of the Holy Spirit._ [^b]: 3:9 Or _spiritual genealogies._

@@ -1,0 +1,64 @@
+---
+Aliases: [2 Corinthians 3]
+previous: ['2 Cor 2']
+up: ['2 Corinthians']
+next: ['2 Cor 4']
+---
+# 2 Corinthians 3
+
+***
+
+
+###### 1 
+Do we begin again to commend ourselves? Or do we need, as some _others_, epistles of commendation to you or _letters_ of commendation from you? 
+
+###### 2 
+You are our epistle written in our hearts, known and read by all men; 
+
+###### 3 
+clearly you are an epistle of Christ, ministered by us, written not with ink but by the Spirit of the living God, not on tablets of stone but on tablets of flesh, _that is,_ of the heart. ## The Spirit, Not the Letter 
+
+###### 4 
+And we have such trust through Christ toward God. 
+
+###### 5 
+Not that we are sufficient of ourselves to think of anything as _being_ from ourselves, but our sufficiency _is_ from God, 
+
+###### 6 
+who also made us sufficient as ministers of the new covenant, not of the letter but of the [^a]Spirit; for the letter kills, but the Spirit gives life. ## Glory of the New Covenant 
+
+###### 7 
+But if the ministry of death, written _and_ engraved on stones, was glorious, so that the children of Israel could not look steadily at the face of Moses because of the glory of his countenance, which _glory_ was passing away, 
+
+###### 8 
+how will the ministry of the Spirit not be more glorious? 
+
+###### 9 
+For if the ministry of condemnation _had_ glory, the ministry of righteousness exceeds much more in glory. 
+
+###### 10 
+For even what was made glorious had no glory in this respect, because of the glory that excels. 
+
+###### 11 
+For if what is passing away _was_ glorious, what remains _is_ much more glorious. 
+
+###### 12 
+Therefore, since we have such hope, we use great boldness of speech-- 
+
+###### 13 
+unlike Moses, _who_ put a veil over his face so that the children of Israel could not look steadily at the end of what was passing away. 
+
+###### 14 
+But their minds were blinded. For until this day the same veil remains unlifted in the reading of the Old Testament, because the _veil_ is taken away in Christ. 
+
+###### 15 
+But even to this day, when Moses is read, a veil lies on their heart. 
+
+###### 16 
+Nevertheless when one turns to the Lord, the veil is taken away. 
+
+###### 17 
+Now the Lord is the Spirit; and where the Spirit of the Lord _is_, there _is_ liberty. 
+
+###### 18 
+But we all, with unveiled face, beholding as in a mirror the glory of the Lord, are being transformed into the same image from glory to glory, just as [^b]by the Spirit of the Lord. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 2 Corinthians 3:6 Or _spirit_ [^b]: 2 Corinthians 3:18 Or _from the Lord, the Spirit_

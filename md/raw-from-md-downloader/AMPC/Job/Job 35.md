@@ -1,0 +1,346 @@
+---
+Aliases: [Job 35]
+previous: ['Job 34']
+up: ['Job']
+next: ['Job 36']
+---
+# Job 35
+
+***
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 1 
+
+
+
+
+
+
+Elihu spoke further [to Job] and said, 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 2 
+
+
+
+
+
+
+Do you think this is your right, _or_ are you saying, My righteousness is more than God's, 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 3 
+
+
+
+
+
+
+That you ask, What advantage have you? How am I profited more than if I had sinned? 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 4 
+
+
+
+
+
+
+I will answer you and your companions with you. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 5 
+
+
+
+
+
+
+Look to the heavens and see; and behold the skies which are higher than you. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 6 
+
+
+
+
+
+
+If you have sinned, how does that affect God? And if your transgressions are multiplied, what have you done to Him? 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 7 
+
+
+
+
+
+
+If you are righteous, what do you [by that] give God? Or what does He receive from your hand? 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 8 
+
+
+
+
+
+
+Your wickedness touches and affects a man such as you are, and your righteousness is for yourself, one of the human race [but it cannot touch God, Who is above such influence]. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 9 
+
+
+
+
+
+
+Because of the multitudes of oppressions the people cry out; they cry for help because of the violence of the mighty. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 10 
+
+
+
+
+
+
+But no one says, Where is God my Maker, Who gives songs of rejoicing in the night, 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 11 
+
+
+
+
+
+
+Who teaches us more than the beasts of the earth and makes us wiser than the birds of the heavens? 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 12 
+
+
+
+
+
+
+[The people] cry out because of the pride of evil men, but He does not answer. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 13 
+
+
+
+
+
+
+Surely God will refuse to answer [the cry which is] vanity (vain and empty--instead of abiding trust); neither will the Almighty regard it-- 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 14 
+
+
+
+
+
+
+How much less when [missing His righteous judgment on earth] you say that you do not see Him, that your cause is before Him, and you are waiting for Him! 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 15 
+
+
+
+
+
+
+But now because God has not [speedily] punished in His anger and seems to be unaware of the wrong _and_ oppression [of which a person is guilty], 
+
+
+
+
+
+
+
+
+
+
+
+
+
+###### 16 
+
+
+
+
+
+
+Job uselessly opens his mouth and multiplies words without knowledge [drawing the worthless conclusion that the righteous have no more advantage than the wicked]. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences

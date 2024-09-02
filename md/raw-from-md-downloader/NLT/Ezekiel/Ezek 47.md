@@ -1,0 +1,148 @@
+---
+Aliases: [Ezekiel 47]
+previous: ['Ezek 46']
+up: ['Ezekiel']
+next: ['Ezek 48']
+---
+# Ezekiel 47
+
+***
+
+
+
+
+###### 1 
+
+In my vision, the man brought me back to the entrance of the Temple. There I saw a stream flowing east from beneath the door of the Temple and passing to the right of the altar on its south side. 
+
+
+
+###### 2 
+
+The man brought me outside the wall through the north gateway and led me around to the eastern entrance. There I could see the water flowing out through the south side of the east gateway. 
+
+
+
+###### 3 
+
+Measuring as he went, he took me along the stream for 1,750 feet[^a] and then led me across. The water was up to my ankles. 
+
+
+
+###### 4 
+
+He measured off another 1,750 feet and led me across again. This time the water was up to my knees. After another 1,750 feet, it was up to my waist. 
+
+
+
+###### 5 
+
+Then he measured another 1,750 feet, and the river was too deep to walk across. It was deep enough to swim in, but too deep to walk through. 
+
+
+
+###### 6 
+
+He asked me, "Have you been watching, son of man?" Then he led me back along the riverbank. 
+
+
+
+###### 7 
+
+When I returned, I was surprised by the sight of many trees growing on both sides of the river. 
+
+
+
+###### 8 
+
+Then he said to me, "This river flows east through the desert into the valley of the Dead Sea.[^b] The waters of this stream will make the salty waters of the Dead Sea fresh and pure. 
+
+
+
+###### 9 
+
+There will be swarms of living things wherever the water of this river flows.[^c] Fish will abound in the Dead Sea, for its waters will become fresh. Life will flourish wherever this water flows. 
+
+
+
+###### 10 
+
+Fishermen will stand along the shores of the Dead Sea. All the way from En-gedi to En-eglaim, the shores will be covered with nets drying in the sun. Fish of every kind will fill the Dead Sea, just as they fill the Mediterranean.[^d] 
+
+
+
+###### 11 
+
+But the marshes and swamps will not be purified; they will still be salty. 
+
+
+
+###### 12 
+
+Fruit trees of all kinds will grow along both sides of the river. The leaves of these trees will never turn brown and fall, and there will always be fruit on their branches. There will be a new crop every month, for they are watered by the river flowing from the Temple. The fruit will be for food and the leaves for healing." ## Boundaries for the Land 
+
+
+
+###### 13 
+
+This is what the Sovereign LORD says: "Divide the land in this way for the twelve tribes of Israel: The descendants of Joseph will be given two shares of land.[^e] 
+
+
+
+###### 14 
+
+Otherwise each tribe will receive an equal share. I took a solemn oath and swore that I would give this land to your ancestors, and it will now come to you as your possession. 
+
+
+
+###### 15 
+
+"These are the boundaries of the land: The northern border will run from the Mediterranean toward Hethlon, then on through Lebo-hamath to Zedad; 
+
+
+
+###### 16 
+
+then it will run to Berothah and Sibraim,[^f] which are on the border between Damascus and Hamath, and finally to Hazer-hatticon, on the border of Hauran. 
+
+
+
+###### 17 
+
+So the northern border will run from the Mediterranean to Hazar-enan, on the border between Hamath to the north and Damascus to the south. 
+
+
+
+###### 18 
+
+"The eastern border starts at a point between Hauran and Damascus and runs south along the Jordan River between Israel and Gilead, past the Dead Sea[^g] and as far south as Tamar.[^h] This will be the eastern border. 
+
+
+
+###### 19 
+
+"The southern border will go west from Tamar to the waters of Meribah at Kadesh[^i] and then follow the course of the Brook of Egypt to the Mediterranean. This will be the southern border. 
+
+
+
+###### 20 
+
+"On the west side, the Mediterranean itself will be your border from the southern border to the point where the northern border begins, opposite Lebo-hamath. 
+
+
+
+###### 21 
+
+"Divide the land within these boundaries among the tribes of Israel. 
+
+
+
+###### 22 
+
+Distribute the land as an allotment for yourselves and for the foreigners who have joined you and are raising their families among you. They will be like native-born Israelites to you and will receive an allotment among the tribes. 
+
+
+
+###### 23 
+
+These foreigners are to be given land within the territory of the tribe with whom they now live. I, the Sovereign LORD, have spoken! ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 47:3 Hebrew _1,000 cubits_ [530 meters]; also in [47:4], [5]. [^b]: 47:8 Hebrew _the sea._ [^c]: 47:9 As in Greek and Syriac versions; Hebrew reads _of these two rivers flow._ [^d]: 47:10 Hebrew _the Great Sea;_ also in [47:15], [17], [19], [20]. [^e]: 47:13 It was important to retain twelve portions of land. Since Levi had no portion, the descendants of Joseph’s sons, Ephraim and Manasseh, received land as two tribes. [^f]: 47:15-16 As in Greek version; Masoretic Text reads _then on through Lebo to Zedad;_ <sup class="versenum">16 </sup>_then it will run to Hamath, Berothah, and Sibraim._ [^g]: 47:18a Hebrew _the eastern sea._ [^h]: 47:18b As in Greek version; Hebrew reads _you will measure._ [^i]: 47:19 Hebrew _waters of Meribath-kadesh._

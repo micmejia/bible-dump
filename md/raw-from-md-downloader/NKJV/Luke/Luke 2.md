@@ -1,0 +1,166 @@
+---
+Aliases: [Luke 2]
+previous: ['Luke 1']
+up: ['Luke']
+next: ['Luke 3']
+---
+# Luke 2
+
+***
+
+
+###### 1 
+And it came to pass in those days _that_ a decree went out from Caesar Augustus that all the world should be registered. 
+
+###### 2 
+This census first took place while Quirinius was governing Syria. 
+
+###### 3 
+So all went to be registered, everyone to his own city. 
+
+###### 4 
+Joseph also went up from Galilee, out of the city of Nazareth, into Judea, to the city of David, which is called Bethlehem, because he was of the house and lineage of David, 
+
+###### 5 
+to be registered with Mary, his betrothed [^a]wife, who was with child. 
+
+###### 6 
+So it was, that while they were there, the days were completed for her to be delivered. 
+
+###### 7 
+And she brought forth her firstborn Son, and wrapped Him in swaddling cloths, and laid Him in a [^b]manger, because there was no room for them in the inn. ## Glory in the Highest 
+
+###### 8 
+Now there were in the same country shepherds living out in the fields, keeping watch over their flock by night. 
+
+###### 9 
+And [^c]behold, an angel of the Lord stood before them, and the glory of the Lord shone around them, and they were greatly afraid. 
+
+###### 10 
+Then the angel said to them, "Do not be afraid, for behold, I bring you good tidings of great joy which will be to all people. 
+
+###### 11 
+For there is born to you this day in the city of David a Savior, who is Christ the Lord. 
+
+###### 12 
+And this _will be_ the sign to you: You will find a Babe wrapped in swaddling cloths, lying in a [^d]manger." 
+
+###### 13 
+And suddenly there was with the angel a multitude of the heavenly host praising God and saying: 
+
+###### 14 
+"Glory to God in the highest, And on earth peace, goodwill[^e] toward men!" 
+
+###### 15 
+So it was, when the angels had gone away from them into heaven, that the shepherds said to one another, "Let us now go to Bethlehem and see this thing that has come to pass, which the Lord has made known to us." 
+
+###### 16 
+And they came with haste and found Mary and Joseph, and the Babe lying in a manger. 
+
+###### 17 
+Now when they had seen _Him,_ they made [^f]widely known the saying which was told them concerning this Child. 
+
+###### 18 
+And all those who heard _it_ marveled at those things which were told them by the shepherds. 
+
+###### 19 
+But Mary kept all these things and pondered _them_ in her heart. 
+
+###### 20 
+Then the shepherds returned, glorifying and praising God for all the things that they had heard and seen, as it was told them. ## Circumcision of Jesus 
+
+###### 21 
+And when eight days were completed [^g]for the circumcision of the Child, His name was called Jesus, the name given by the angel before He was conceived in the womb. ## Jesus Presented in the Temple 
+
+###### 22 
+Now when the days of her purification according to the law of Moses were completed, they brought Him to Jerusalem to present _Him_ to the Lord 
+
+###### 23 
+(as it is written in the law of the Lord, "Every male who opens the womb shall be called holy to the Lord"), 
+
+###### 24 
+and to offer a sacrifice according to what is said in the law of the Lord, "A pair of turtledoves or two young pigeons." ## Simeon Sees God's Salvation 
+
+###### 25 
+And behold, there was a man in Jerusalem whose name _was_ Simeon, and this man _was_ just and devout, waiting for the Consolation of Israel, and the Holy Spirit was upon him. 
+
+###### 26 
+And it had been revealed to him by the Holy Spirit that he would not see death before he had seen the Lord's Christ. 
+
+###### 27 
+So he came by the Spirit into the temple. And when the parents brought in the Child Jesus, to do for Him according to the custom of the law, 
+
+###### 28 
+he took Him up in his arms and blessed God and said: 
+
+###### 29 
+"Lord, now You are letting Your servant depart in peace, According to Your word; 
+
+###### 30 
+For my eyes have seen Your salvation 
+
+###### 31 
+Which You have prepared before the face of all peoples, 
+
+###### 32 
+A light to _bring_ revelation to the Gentiles, And the glory of Your people Israel." 
+
+###### 33 
+[^h]And Joseph and His mother marveled at those things which were spoken of Him. 
+
+###### 34 
+Then Simeon blessed them, and said to Mary His mother, "Behold, this _Child_ is destined for the fall and rising of many in Israel, and for a sign which will be spoken against 
+
+###### 35 
+(yes, a sword will pierce through your own soul also), that the thoughts of many hearts may be revealed." ## Anna Bears Witness to the Redeemer 
+
+###### 36 
+Now there was one, Anna, a prophetess, the daughter of Phanuel, of the tribe of Asher. She was of a great age, and had lived with a husband seven years from her virginity; 
+
+###### 37 
+and this woman _was_ a widow [^i]of about eighty-four years, who did not depart from the temple, but served _God_ with fastings and prayers night and day. 
+
+###### 38 
+And coming in that instant she gave thanks to [^j]the Lord, and spoke of Him to all those who looked for redemption in Jerusalem. ## The Family Returns to Nazareth 
+
+###### 39 
+So when they had performed all things according to the law of the Lord, they returned to Galilee, to their _own_ city, Nazareth. 
+
+###### 40 
+And the Child grew and became strong [^k]in spirit, filled with wisdom; and the grace of God was upon Him. ## The Boy Jesus Amazes the Scholars 
+
+###### 41 
+His parents went to Jerusalem every year at the Feast of the Passover. 
+
+###### 42 
+And when He was twelve years old, they went up to Jerusalem according to the custom of the feast. 
+
+###### 43 
+When they had finished the days, as they returned, the Boy Jesus lingered behind in Jerusalem. And [^l]Joseph and His mother did not know _it;_ 
+
+###### 44 
+but supposing Him to have been in the company, they went a day's journey, and sought Him among _their_ relatives and acquaintances. 
+
+###### 45 
+So when they did not find Him, they returned to Jerusalem, seeking Him. 
+
+###### 46 
+Now so it was _that_ after three days they found Him in the temple, sitting in the midst of the teachers, both listening to them and asking them questions. 
+
+###### 47 
+And all who heard Him were astonished at His understanding and answers. 
+
+###### 48 
+So when they saw Him, they were amazed; and His mother said to Him, "Son, why have You done this to us? Look, Your father and I have sought You anxiously." 
+
+###### 49 
+And He said to them, "Why did you seek Me? Did you not know that I must be about My Father's business?" 
+
+###### 50 
+But they did not understand the statement which He spoke to them. ## Jesus Advances in Wisdom and Favor 
+
+###### 51 
+Then He went down with them and came to Nazareth, and was [^m]subject to them, but His mother kept all these things in her heart. 
+
+###### 52 
+And Jesus increased in wisdom and stature, and in favor with God and men. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Luke 2:5 NU omits _wife_ [^b]: Luke 2:7 _feed trough_ [^c]: Luke 2:9 NU omits _behold_ [^d]: Luke 2:12 _feed trough_ [^e]: Luke 2:14 NU _toward men of goodwill_ [^f]: Luke 2:17 NU omits _widely_ [^g]: Luke 2:21 NU _for His circumcision_ [^h]: Luke 2:33 NU _And His father and mother_ [^i]: Luke 2:37 NU _until she was eighty-four_ [^j]: Luke 2:38 NU _God_ [^k]: Luke 2:40 NU omits _in spirit_ [^l]: Luke 2:43 NU _His parents_ [^m]: Luke 2:51 _obedient_

@@ -1,0 +1,166 @@
+---
+Aliases: [Acts 13]
+previous: ['Acts 12']
+up: ['Acts']
+next: ['Acts 14']
+---
+# Acts 13
+
+***
+
+
+###### 1 
+Now in the church that was at Antioch there were certain prophets and teachers: Barnabas, Simeon who was called Niger, Lucius of Cyrene, Manaen who had been brought up with Herod the tetrarch, and Saul. 
+
+###### 2 
+As they ministered to the Lord and fasted, the Holy Spirit said, "Now separate to Me Barnabas and Saul for the work to which I have called them." 
+
+###### 3 
+Then, having fasted and prayed, and laid hands on them, they sent _them_ away. ## Preaching in Cyprus 
+
+###### 4 
+So, being sent out by the Holy Spirit, they went down to Seleucia, and from there they sailed to Cyprus. 
+
+###### 5 
+And when they arrived in Salamis, they preached the word of God in the synagogues of the Jews. They also had John as _their_ assistant. 
+
+###### 6 
+Now when they had gone through [^a]the island to Paphos, they found a certain sorcerer, a false prophet, a Jew whose name _was_ Bar-Jesus, 
+
+###### 7 
+who was with the proconsul, Sergius Paulus, an intelligent man. This man called for Barnabas and Saul and sought to hear the word of God. 
+
+###### 8 
+But Elymas the sorcerer (for so his name is translated) [^b]withstood them, seeking to turn the proconsul away from the faith. 
+
+###### 9 
+Then Saul, who also _is called_ Paul, filled with the Holy Spirit, looked intently at him 
+
+###### 10 
+and said, "O full of all deceit and all fraud, _you_ son of the devil, _you_ enemy of all righteousness, will you not cease perverting the straight ways of the Lord? 
+
+###### 11 
+And now, indeed, the hand of the Lord _is_ upon you, and you shall be blind, not seeing the sun for a time." And immediately a dark mist fell on him, and he went around seeking someone to lead him by the hand. 
+
+###### 12 
+Then the proconsul believed, when he saw what had been done, being astonished at the teaching of the Lord. ## At Antioch in Pisidia 
+
+###### 13 
+Now when Paul and his party set sail from Paphos, they came to Perga in Pamphylia; and John, departing from them, returned to Jerusalem. 
+
+###### 14 
+But when they departed from Perga, they came to Antioch in Pisidia, and went into the synagogue on the Sabbath day and sat down. 
+
+###### 15 
+And after the reading of the Law and the Prophets, the rulers of the synagogue sent to them, saying, "Men _and_ brethren, if you have any word of [^c]exhortation for the people, say on." 
+
+###### 16 
+Then Paul stood up, and motioning with _his_ hand said, "Men of Israel, and you who fear God, listen: 
+
+###### 17 
+The God of this people [^d]Israel chose our fathers, and exalted the people when they dwelt as strangers in the land of Egypt, and with [^e]an uplifted arm He brought them out of it. 
+
+###### 18 
+Now for a time of about forty years He put up with their ways in the wilderness. 
+
+###### 19 
+And when He had destroyed seven nations in the land of Canaan, He distributed their land to them by allotment. 
+
+###### 20 
+"After that He gave _them_ judges for about four hundred and fifty years, until Samuel the prophet. 
+
+###### 21 
+And afterward they asked for a king; so God gave them Saul the son of Kish, a man of the tribe of Benjamin, for forty years. 
+
+###### 22 
+And when He had removed him, He raised up for them David as king, to whom also He gave testimony and said, 'I have found David the _son_ of Jesse, a man after My _own_ heart, who will do all My will.' 
+
+###### 23 
+From this man's seed, according to _the_ promise, God raised up for Israel a[^f] Savior--Jesus-- 
+
+###### 24 
+after John had first preached, before His coming, the baptism of repentance to all the people of Israel. 
+
+###### 25 
+And as John was finishing his course, he said, 'Who do you think I am? I am not _He._ But behold, there comes One after me, the sandals of whose feet I am not worthy to loose.' 
+
+###### 26 
+"Men _and_ brethren, sons of the [^g]family of Abraham, and those among you who fear God, to you the [^h]word of this salvation has been sent. 
+
+###### 27 
+For those who dwell in Jerusalem, and their rulers, because they did not know Him, nor even the voices of the Prophets which are read every Sabbath, have fulfilled _them_ in condemning _Him._ 
+
+###### 28 
+And though they found no cause for death _in Him,_ they asked Pilate that He should be put to death. 
+
+###### 29 
+Now when they had fulfilled all that was written concerning Him, they took _Him_ down from the tree and laid _Him_ in a tomb. 
+
+###### 30 
+But God raised Him from the dead. 
+
+###### 31 
+He was seen for many days by those who came up with Him from Galilee to Jerusalem, who are His witnesses to the people. 
+
+###### 32 
+And we declare to you glad tidings--that promise which was made to the fathers. 
+
+###### 33 
+God has fulfilled this for us their children, in that He has raised up Jesus. As it is also written in the second Psalm: 'You are My Son, Today I have begotten You.' 
+
+###### 34 
+And that He raised Him from the dead, no more to return to [^i]corruption, He has spoken thus: 'I will give you the sure [^j]mercies of David.' 
+
+###### 35 
+Therefore He also says in another _Psalm:_ 'You will not allow Your Holy One to see corruption.' 
+
+###### 36 
+"For David, after he had served [^k]his own generation by the will of God, fell asleep, was buried with his fathers, and [^l]saw corruption; 
+
+###### 37 
+but He whom God raised up [^m]saw no corruption. 
+
+###### 38 
+Therefore let it be known to you, brethren, that through this Man is preached to you the forgiveness of sins; 
+
+###### 39 
+and by Him everyone who believes is justified from all things from which you could not be justified by the law of Moses. 
+
+###### 40 
+Beware therefore, lest what has been spoken in the prophets come upon you: 
+
+###### 41 
+'Behold, you despisers, Marvel and perish! For I work a work in your days, A work which you will by no means believe, Though one were to declare it to you.' " ## Blessing and Conflict at Antioch 
+
+###### 42 
+[^n]So when the Jews went out of the synagogue, the Gentiles begged that these words might be preached to them the next Sabbath. 
+
+###### 43 
+Now when the congregation had broken up, many of the Jews and devout proselytes followed Paul and Barnabas, who, speaking to them, persuaded them to continue in the grace of God. 
+
+###### 44 
+On the next Sabbath almost the whole city came together to hear the word of God. 
+
+###### 45 
+But when the Jews saw the multitudes, they were filled with envy; and contradicting and blaspheming, they opposed the things spoken by Paul. 
+
+###### 46 
+Then Paul and Barnabas grew bold and said, "It was necessary that the word of God should be spoken to you first; but since you reject it, and judge yourselves unworthy of everlasting life, behold, we turn to the Gentiles. 
+
+###### 47 
+For so the Lord has commanded us: 'I have set you as a light to the Gentiles, That you should be for salvation to the ends of the earth.' " 
+
+###### 48 
+Now when the Gentiles heard this, they were glad and glorified the word of the Lord. And as many as had been appointed to eternal life believed. 
+
+###### 49 
+And the word of the Lord was being spread throughout all the region. 
+
+###### 50 
+But the Jews stirred up the devout and prominent women and the chief men of the city, raised up persecution against Paul and Barnabas, and expelled them from their region. 
+
+###### 51 
+But they shook off the dust from their feet against them, and came to Iconium. 
+
+###### 52 
+And the disciples were filled with joy and with the Holy Spirit. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Acts 13:6 NU _the whole island_ [^b]: Acts 13:8 _opposed_ [^c]: Acts 13:15 _encouragement_ [^d]: Acts 13:17 M omits _Israel_ [^e]: Acts 13:17 Mighty power [^f]: Acts 13:23 M _salvation, after_ [^g]: Acts 13:26 _stock_ [^h]: Acts 13:26 _message_ [^i]: Acts 13:34 _the state of decay_ [^j]: Acts 13:34 _blessings_ [^k]: Acts 13:36 _in his_ [^l]: Acts 13:36 _underwent decay_ [^m]: Acts 13:37 _underwent no decay_ [^n]: Acts 13:42 Or _And when they went out of the synagogue of the Jews;_ NU _And when they went out, they begged_

@@ -1,0 +1,250 @@
+---
+Aliases: [Acts 15]
+previous: ['Acts 14']
+up: ['Acts']
+next: ['Acts 16']
+---
+# Acts 15
+
+***
+
+
+
+
+###### 1 
+
+While Paul and Barnabas were at Antioch of Syria, some men from Judea arrived and began to teach the believers[^a]: "Unless you are circumcised as required by the law of Moses, you cannot be saved." 
+
+
+
+###### 2 
+
+Paul and Barnabas disagreed with them, arguing vehemently. Finally, the church decided to send Paul and Barnabas to Jerusalem, accompanied by some local believers, to talk to the apostles and elders about this question. 
+
+
+
+###### 3 
+
+The church sent the delegates to Jerusalem, and they stopped along the way in Phoenicia and Samaria to visit the believers. They told them--much to everyone's joy--that the Gentiles, too, were being converted. 
+
+
+
+###### 4 
+
+When they arrived in Jerusalem, Barnabas and Paul were welcomed by the whole church, including the apostles and elders. They reported everything God had done through them. 
+
+
+
+###### 5 
+
+But then some of the believers who belonged to the sect of the Pharisees stood up and insisted, "The Gentile converts must be circumcised and required to follow the law of Moses." 
+
+
+
+###### 6 
+
+So the apostles and elders met together to resolve this issue. 
+
+
+
+###### 7 
+
+At the meeting, after a long discussion, Peter stood and addressed them as follows: "Brothers, you all know that God chose me from among you some time ago to preach to the Gentiles so that they could hear the Good News and believe. 
+
+
+
+###### 8 
+
+God knows people's hearts, and he confirmed that he accepts Gentiles by giving them the Holy Spirit, just as he did to us. 
+
+
+
+###### 9 
+
+He made no distinction between us and them, for he cleansed their hearts through faith. 
+
+
+
+###### 10 
+
+So why are you now challenging God by burdening the Gentile believers[^b] with a yoke that neither we nor our ancestors were able to bear? 
+
+
+
+###### 11 
+
+We believe that we are all saved the same way, by the undeserved grace of the Lord Jesus." 
+
+
+
+###### 12 
+
+Everyone listened quietly as Barnabas and Paul told about the miraculous signs and wonders God had done through them among the Gentiles. 
+
+
+
+###### 13 
+
+When they had finished, James stood and said, "Brothers, listen to me. 
+
+
+
+###### 14 
+
+Peter[^c] has told you about the time God first visited the Gentiles to take from them a people for himself. 
+
+
+
+###### 15 
+
+And this conversion of Gentiles is exactly what the prophets predicted. As it is written: 
+
+
+
+###### 16 
+
+'Afterward I will return and restore the fallen house[^d] of David. I will rebuild its ruins and restore it, 
+
+
+
+###### 17 
+
+so that the rest of humanity might seek the LORD, including the Gentiles-- all those I have called to be mine. The LORD has spoken-- 
+
+
+
+###### 18 
+
+he who made these things known so long ago.'[^e] 
+
+
+
+###### 19 
+
+"And so my judgment is that we should not make it difficult for the Gentiles who are turning to God. 
+
+
+
+###### 20 
+
+Instead, we should write and tell them to abstain from eating food offered to idols, from sexual immorality, from eating the meat of strangled animals, and from consuming blood. 
+
+
+
+###### 21 
+
+For these laws of Moses have been preached in Jewish synagogues in every city on every Sabbath for many generations." ## The Letter for Gentile Believers 
+
+
+
+###### 22 
+
+Then the apostles and elders together with the whole church in Jerusalem chose delegates, and they sent them to Antioch of Syria with Paul and Barnabas to report on this decision. The men chosen were two of the church leaders[^f]--Judas (also called Barsabbas) and Silas. 
+
+
+
+###### 23 
+
+This is the letter they took with them: "This letter is from the apostles and elders, your brothers in Jerusalem. It is written to the Gentile believers in Antioch, Syria, and Cilicia. Greetings! 
+
+
+
+###### 24 
+
+"We understand that some men from here have troubled you and upset you with their teaching, but we did not send them! 
+
+
+
+###### 25 
+
+So we decided, having come to complete agreement, to send you official representatives, along with our beloved Barnabas and Paul, 
+
+
+
+###### 26 
+
+who have risked their lives for the name of our Lord Jesus Christ. 
+
+
+
+###### 27 
+
+We are sending Judas and Silas to confirm what we have decided concerning your question. 
+
+
+
+###### 28 
+
+"For it seemed good to the Holy Spirit and to us to lay no greater burden on you than these few requirements: 
+
+
+
+###### 29 
+
+You must abstain from eating food offered to idols, from consuming blood or the meat of strangled animals, and from sexual immorality. If you do this, you will do well. Farewell." 
+
+
+
+###### 30 
+
+The messengers went at once to Antioch, where they called a general meeting of the believers and delivered the letter. 
+
+
+
+###### 31 
+
+And there was great joy throughout the church that day as they read this encouraging message. 
+
+
+
+###### 32 
+
+Then Judas and Silas, both being prophets, spoke at length to the believers, encouraging and strengthening their faith. 
+
+
+
+###### 33 
+
+They stayed for a while, and then the believers sent them back to the church in Jerusalem with a blessing of peace.[^g] 
+
+
+
+###### 35 
+
+Paul and Barnabas stayed in Antioch. They and many others taught and preached the word of the Lord there. ## Paul and Barnabas Separate 
+
+
+
+###### 36 
+
+After some time Paul said to Barnabas, "Let's go back and visit each city where we previously preached the word of the Lord, to see how the new believers are doing." 
+
+
+
+###### 37 
+
+Barnabas agreed and wanted to take along John Mark. 
+
+
+
+###### 38 
+
+But Paul disagreed strongly, since John Mark had deserted them in Pamphylia and had not continued with them in their work. 
+
+
+
+###### 39 
+
+Their disagreement was so sharp that they separated. Barnabas took John Mark with him and sailed for Cyprus. 
+
+
+
+###### 40 
+
+Paul chose Silas, and as he left, the believers entrusted him to the Lord's gracious care. 
+
+
+
+###### 41 
+
+Then he traveled throughout Syria and Cilicia, strengthening the churches there. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 15:1 Greek _brothers;_ also in [15:3], [23], [32], [33], [36], [40]. [^b]: 15:10 Greek _disciples._ [^c]: 15:14 Greek _Simeon._ [^d]: 15:16 Or _kingdom;_ Greek reads _tent._ [^e]: 15:16-18 [Amos 9:11-12] (Greek version); [Isa 45:21]. [^f]: 15:22 Greek _were leaders among the brothers._ [^g]: 15:33 Some manuscripts add verse 34, _But Silas decided to stay there._

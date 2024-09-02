@@ -1,0 +1,51 @@
+---
+Aliases: [Hebrews 1]
+up: ['Hebrews']
+next: ['Heb 2']
+---
+# Hebrews 1
+
+***
+
+
+###### 1 
+God, who [^a]at various times and in various ways spoke in time past to the fathers by the prophets, 
+
+###### 2 
+has in these last days spoken to us by _His_ Son, whom He has appointed heir of all things, through whom also He made the [^b]worlds; 
+
+###### 3 
+who being the brightness of _His_ glory and the express image of His person, and upholding all things by the word of His power, when He had [^c]by Himself [^d]purged [^e]our sins, sat down at the right hand of the Majesty on high, 
+
+###### 4 
+having become so much better than the angels, as He has by inheritance obtained a more excellent name than they. ## The Son Exalted Above Angels 
+
+###### 5 
+For to which of the angels did He ever say: "You are My Son, Today I have begotten You"? And again: "I will be to Him a Father, And He shall be to Me a Son"? 
+
+###### 6 
+But when He again brings the firstborn into the world, He says: "Let all the angels of God worship Him." 
+
+###### 7 
+And of the angels He says: "Who makes His angels spirits And His ministers a flame of fire." 
+
+###### 8 
+But to the Son _He says:_ "Your throne, O God, _is_ forever and ever; A [^f]scepter of righteousness _is_ the scepter of Your kingdom. 
+
+###### 9 
+You have loved righteousness and hated lawlessness; Therefore God, Your God, has anointed You With the oil of gladness more than Your companions." 
+
+###### 10 
+And: "You, Lord, in the beginning laid the foundation of the earth, And the heavens are the work of Your hands. 
+
+###### 11 
+They will perish, but You remain; And they will all grow old like a garment; 
+
+###### 12 
+Like a cloak You will fold them up, And they will be changed. But You are the same, And Your years will not fail." 
+
+###### 13 
+But to which of the angels has He ever said: "Sit at My right hand, Till I make Your enemies Your footstool"? 
+
+###### 14 
+Are they not all ministering spirits sent forth to minister for those who will inherit salvation? ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Hebrews 1:1 Or _in many portions_ [^b]: Hebrews 1:2 Or _ages,_ Gr. _aiones,_ aeons [^c]: Hebrews 1:3 NU omits _by Himself_ [^d]: Hebrews 1:3 _cleansed_ [^e]: Hebrews 1:3 NU omits _our_ [^f]: Hebrews 1:8 A ruler’s staff

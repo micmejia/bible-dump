@@ -1,0 +1,103 @@
+---
+Aliases: [Judges 3]
+previous: ['Judg 2']
+up: ['Judges']
+next: ['Judg 4']
+---
+# Judges 3
+
+***
+
+
+###### 1 
+Now these _are_ the nations which the Lord left, that He might test Israel by them, _that is,_ all who had not [^a]known any of the wars in Canaan 
+
+###### 2 
+(_this was_ only so that the generations of the children of Israel might be taught to know war, at least those who had not formerly known it), 
+
+###### 3 
+_namely,_ five lords of the Philistines, all the Canaanites, the Sidonians, and the Hivites who dwelt in Mount Lebanon, from Mount Baal Hermon to the entrance of Hamath. 
+
+###### 4 
+And they were _left, that He might_ test Israel by them, to [^b]know whether they would obey the commandments of the Lord, which He had commanded their fathers by the hand of Moses. 
+
+###### 5 
+Thus the children of Israel dwelt among the Canaanites, the Hittites, the Amorites, the Perizzites, the Hivites, and the Jebusites. 
+
+###### 6 
+And they took their daughters to be their wives, and gave their daughters to their sons; and they served their gods. ## Othniel 
+
+###### 7 
+So the children of Israel did evil in the sight of the Lord. They forgot the Lord their God, and served the Baals and [^c]Asherahs. 
+
+###### 8 
+Therefore the anger of the Lord was hot against Israel, and He sold them into the hand of Cushan-Rishathaim king of Mesopotamia; and the children of Israel served Cushan-Rishathaim eight years. 
+
+###### 9 
+When the children of Israel cried out to the Lord, the Lord raised up a deliverer for the children of Israel, who delivered them: Othniel the son of Kenaz, Caleb's younger brother. 
+
+###### 10 
+The Spirit of the Lord came upon him, and he judged Israel. He went out to war, and the Lord delivered Cushan-Rishathaim king of Mesopotamia into his hand; and his hand prevailed over Cushan-Rishathaim. 
+
+###### 11 
+So the land had rest for forty years. Then Othniel the son of Kenaz died. ## Ehud 
+
+###### 12 
+And the children of Israel again did evil in the sight of the Lord. So the Lord strengthened Eglon king of Moab against Israel, because they had done evil in the sight of the Lord. 
+
+###### 13 
+Then he gathered to himself the people of Ammon and Amalek, went and [^d]defeated Israel, and took possession of the City of Palms. 
+
+###### 14 
+So the children of Israel served Eglon king of Moab eighteen years. 
+
+###### 15 
+But when the children of Israel cried out to the Lord, the Lord raised up a deliverer for them: Ehud the son of Gera, the Benjamite, a left-handed man. By him the children of Israel sent tribute to Eglon king of Moab. 
+
+###### 16 
+Now Ehud made himself a dagger (it was double-edged and a cubit in length) and fastened it under his clothes on his right thigh. 
+
+###### 17 
+So he brought the tribute to Eglon king of Moab. (Now Eglon _was_ a very fat man.) 
+
+###### 18 
+And when he had finished presenting the tribute, he sent away the people who had carried the tribute. 
+
+###### 19 
+But he himself turned back from the [^e]stone images that _were_ at Gilgal, and said, "I have a secret message for you, O king." He said, "Keep silence!" And all who attended him went out from him. 
+
+###### 20 
+So Ehud came to him (now he was sitting upstairs in his cool private chamber). Then Ehud said, "I have a message from God for you." So he arose from _his_ seat. 
+
+###### 21 
+Then Ehud reached with his left hand, took the dagger from his right thigh, and thrust it into his belly. 
+
+###### 22 
+Even the [^f]hilt went in after the blade, and the fat closed over the blade, for he did not draw the dagger out of his belly; and his entrails came out. 
+
+###### 23 
+Then Ehud went out through the porch and shut the doors of the upper room behind him and locked them. 
+
+###### 24 
+When he had gone out, [^g]_Eglon's_ servants came to look, and _to their_ surprise, the doors of the upper room were locked. So they said, "He is probably attending[^h] to his needs in the cool chamber." 
+
+###### 25 
+So they waited till they were embarrassed, and still he had not opened the doors of the upper room. Therefore they took the key and opened _them._ And there was their master, fallen dead on the floor. 
+
+###### 26 
+But Ehud had escaped while they delayed, and passed beyond the [^i]stone images and escaped to Seirah. 
+
+###### 27 
+And it happened, when he arrived, that he blew the trumpet in the mountains of Ephraim, and the children of Israel went down with him from the mountains; and [^j]he led them. 
+
+###### 28 
+Then he said to them, "Follow _me,_ for the Lord has delivered your enemies the Moabites into your hand." So they went down after him, seized the fords of the Jordan leading to Moab, and did not allow anyone to cross over. 
+
+###### 29 
+And at that time they killed about ten thousand men of Moab, all stout men of valor; not a man escaped. 
+
+###### 30 
+So Moab was subdued that day under the hand of Israel. And the land had rest for eighty years. ## Shamgar 
+
+###### 31 
+After him was Shamgar the son of Anath, who killed six hundred men of the Philistines with an ox goad; and he also delivered Israel. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Judges 3:1 _experienced_ [^b]: Judges 3:4 _find out_ [^c]: Judges 3:7 Name or symbol for Canaanite goddesses [^d]: Judges 3:13 _struck_ [^e]: Judges 3:19 Tg. _quarries_ [^f]: Judges 3:22 _handle_ [^g]: Judges 3:24 Lit. _his_ [^h]: Judges 3:24 Lit. _covering his feet_ [^i]: Judges 3:26 Tg. _quarries_ [^j]: Judges 3:27 Lit. _he went before them_

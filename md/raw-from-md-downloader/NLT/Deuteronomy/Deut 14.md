@@ -1,0 +1,184 @@
+---
+Aliases: [Deuteronomy 14]
+previous: ['Deut 13']
+up: ['Deuteronomy']
+next: ['Deut 15']
+---
+# Deuteronomy 14
+
+***
+
+
+
+
+###### 1 
+
+"Since you are the people of the LORD your God, never cut yourselves or shave the hair above your foreheads in mourning for the dead. 
+
+
+
+###### 2 
+
+You have been set apart as holy to the LORD your God, and he has chosen you from all the nations of the earth to be his own special treasure. 
+
+
+
+###### 3 
+
+"You must not eat any detestable animals that are ceremonially unclean. 
+
+
+
+###### 4 
+
+These are the animals[^a] you may eat: the ox, the sheep, the goat, 
+
+
+
+###### 5 
+
+the deer, the gazelle, the roe deer, the wild goat, the addax, the antelope, and the mountain sheep. 
+
+
+
+###### 6 
+
+"You may eat any animal that has completely split hooves and chews the cud, 
+
+
+
+###### 7 
+
+but if the animal doesn't have both, it may not be eaten. So you may not eat the camel, the hare, or the hyrax.[^b] They chew the cud but do not have split hooves, so they are ceremonially unclean for you. 
+
+
+
+###### 8 
+
+And you may not eat the pig. It has split hooves but does not chew the cud, so it is ceremonially unclean for you. You may not eat the meat of these animals or even touch their carcasses. 
+
+
+
+###### 9 
+
+"Of all the marine animals, you may eat whatever has both fins and scales. 
+
+
+
+###### 10 
+
+You may not, however, eat marine animals that do not have both fins and scales. They are ceremonially unclean for you. 
+
+
+
+###### 11 
+
+"You may eat any bird that is ceremonially clean. 
+
+
+
+###### 12 
+
+These are the birds you may not eat: the griffon vulture, the bearded vulture, the black vulture, 
+
+
+
+###### 13 
+
+the kite, the falcon, buzzards of all kinds, 
+
+
+
+###### 14 
+
+ravens of all kinds, 
+
+
+
+###### 15 
+
+the eagle owl, the short-eared owl, the seagull, hawks of all kinds, 
+
+
+
+###### 16 
+
+the little owl, the great owl, the barn owl, 
+
+
+
+###### 17 
+
+the desert owl, the Egyptian vulture, the cormorant, 
+
+
+
+###### 18 
+
+the stork, herons of all kinds, the hoopoe, and the bat. 
+
+
+
+###### 19 
+
+"All winged insects that walk along the ground are ceremonially unclean for you and may not be eaten. 
+
+
+
+###### 20 
+
+But you may eat any winged bird or insect that is ceremonially clean. 
+
+
+
+###### 21 
+
+"You must not eat anything that has died a natural death. You may give it to a foreigner living in your town, or you may sell it to a stranger. But do not eat it yourselves, for you are set apart as holy to the LORD your God. "You must not cook a young goat in its mother's milk. ## The Giving of Tithes 
+
+
+
+###### 22 
+
+"You must set aside a tithe of your crops--one-tenth of all the crops you harvest each year. 
+
+
+
+###### 23 
+
+Bring this tithe to the designated place of worship--the place the LORD your God chooses for his name to be honored--and eat it there in his presence. This applies to your tithes of grain, new wine, olive oil, and the firstborn males of your flocks and herds. Doing this will teach you always to fear the LORD your God. 
+
+
+
+###### 24 
+
+"Now when the LORD your God blesses you with a good harvest, the place of worship he chooses for his name to be honored might be too far for you to bring the tithe. 
+
+
+
+###### 25 
+
+If so, you may sell the tithe portion of your crops and herds, put the money in a pouch, and go to the place the LORD your God has chosen. 
+
+
+
+###### 26 
+
+When you arrive, you may use the money to buy any kind of food you want--cattle, sheep, goats, wine, or other alcoholic drink. Then feast there in the presence of the LORD your God and celebrate with your household. 
+
+
+
+###### 27 
+
+And do not neglect the Levites in your town, for they will receive no allotment of land among you. 
+
+
+
+###### 28 
+
+"At the end of every third year, bring the entire tithe of that year's harvest and store it in the nearest town. 
+
+
+
+###### 29 
+
+Give it to the Levites, who will receive no allotment of land among you, as well as to the foreigners living among you, the orphans, and the widows in your towns, so they can eat and be satisfied. Then the LORD your God will bless you in all your work. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 14:4 The identification of some of the animals and birds listed in this chapter is uncertain. [^b]: 14:7 Or _coney,_ or _rock badger._

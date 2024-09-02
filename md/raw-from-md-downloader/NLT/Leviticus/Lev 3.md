@@ -1,0 +1,112 @@
+---
+Aliases: [Leviticus 3]
+previous: ['Lev 2']
+up: ['Leviticus']
+next: ['Lev 4']
+---
+# Leviticus 3
+
+***
+
+
+
+
+###### 1 
+
+"If you present an animal from the herd as a peace offering to the LORD, it may be a male or a female, but it must have no defects. 
+
+
+
+###### 2 
+
+Lay your hand on the animal's head, and slaughter it at the entrance of the Tabernacle.[^a] Then Aaron's sons, the priests, will splatter its blood against all sides of the altar. 
+
+
+
+###### 3 
+
+The priest must present part of this peace offering as a special gift to the LORD. This includes all the fat around the internal organs, 
+
+
+
+###### 4 
+
+the two kidneys and the fat around them near the loins, and the long lobe of the liver. These must be removed with the kidneys, 
+
+
+
+###### 5 
+
+and Aaron's sons will burn them on top of the burnt offering on the wood burning on the altar. It is a special gift, a pleasing aroma to the LORD. 
+
+
+
+###### 6 
+
+"If you present an animal from the flock as a peace offering to the LORD, it may be a male or a female, but it must have no defects. 
+
+
+
+###### 7 
+
+If you present a sheep as your offering, bring it to the LORD, 
+
+
+
+###### 8 
+
+lay your hand on its head, and slaughter it in front of the Tabernacle. Aaron's sons will then splatter the sheep's blood against all sides of the altar. 
+
+
+
+###### 9 
+
+The priest must present the fat of this peace offering as a special gift to the LORD. This includes the fat of the broad tail cut off near the backbone, all the fat around the internal organs, 
+
+
+
+###### 10 
+
+the two kidneys and the fat around them near the loins, and the long lobe of the liver. These must be removed with the kidneys, 
+
+
+
+###### 11 
+
+and the priest will burn them on the altar. It is a special gift of food presented to the LORD. 
+
+
+
+###### 12 
+
+"If you present a goat as your offering, bring it to the LORD, 
+
+
+
+###### 13 
+
+lay your hand on its head, and slaughter it in front of the Tabernacle. Aaron's sons will then splatter the goat's blood against all sides of the altar. 
+
+
+
+###### 14 
+
+The priest must present part of this offering as a special gift to the LORD. This includes all the fat around the internal organs, 
+
+
+
+###### 15 
+
+the two kidneys and the fat around them near the loins, and the long lobe of the liver. These must be removed with the kidneys, 
+
+
+
+###### 16 
+
+and the priest will burn them on the altar. It is a special gift of food, a pleasing aroma to the LORD. All the fat belongs to the LORD. 
+
+
+
+###### 17 
+
+"You must never eat any fat or blood. This is a permanent law for you, and it must be observed from generation to generation, wherever you live." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 3:2 Hebrew _Tent of Meeting;_ also in [3:8], [13].

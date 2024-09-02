@@ -1,0 +1,133 @@
+---
+Aliases: [John 9]
+previous: ['John 8']
+up: ['John']
+next: ['John 10']
+---
+# John 9
+
+***
+
+
+###### 1 
+Now as _Jesus_ passed by, He saw a man who was blind from birth. 
+
+###### 2 
+And His disciples asked Him, saying, "Rabbi, who sinned, this man or his parents, that he was born blind?" 
+
+###### 3 
+Jesus answered, "Neither this man nor his parents sinned, but that the works of God should be revealed in him. 
+
+###### 4 
+I[^a] must work the works of Him who sent Me while it is day; _the_ night is coming when no one can work. 
+
+###### 5 
+As long as I am in the world, I am the light of the world." 
+
+###### 6 
+When He had said these things, He spat on the ground and made clay with the saliva; and He anointed the eyes of the blind man with the clay. 
+
+###### 7 
+And He said to him, "Go, wash in the pool of Siloam" (which is translated, Sent). So he went and washed, and came back seeing. 
+
+###### 8 
+Therefore the neighbors and those who previously had seen that he was [^b]blind said, "Is not this he who sat and begged?" 
+
+###### 9 
+Some said, "This is he." Others _said,_ [^c]"He is like him." He said, "I am _he._" 
+
+###### 10 
+Therefore they said to him, "How were your eyes opened?" 
+
+###### 11 
+He answered and said, "A Man called Jesus made clay and anointed my eyes and said to me, 'Go to [^d]the pool of Siloam and wash.' So I went and washed, and I received sight." 
+
+###### 12 
+Then they said to him, "Where is He?" He said, "I do not know." ## The Pharisees Excommunicate the Healed Man 
+
+###### 13 
+They brought him who formerly was blind to the Pharisees. 
+
+###### 14 
+Now it was a Sabbath when Jesus made the clay and opened his eyes. 
+
+###### 15 
+Then the Pharisees also asked him again how he had received his sight. He said to them, "He put clay on my eyes, and I washed, and I see." 
+
+###### 16 
+Therefore some of the Pharisees said, "This Man is not from God, because He does not [^e]keep the Sabbath." Others said, "How can a man who is a sinner do such signs?" And there was a division among them. 
+
+###### 17 
+They said to the blind man again, "What do you say about Him because He opened your eyes?" He said, "He is a prophet." 
+
+###### 18 
+But the Jews did not believe concerning him, that he had been blind and received his sight, until they called the parents of him who had received his sight. 
+
+###### 19 
+And they asked them, saying, "Is this your son, who you say was born blind? How then does he now see?" 
+
+###### 20 
+His parents answered them and said, "We know that this is our son, and that he was born blind; 
+
+###### 21 
+but by what means he now sees we do not know, or who opened his eyes we do not know. He is of age; ask him. He will speak for himself." 
+
+###### 22 
+His parents said these _things_ because they feared the Jews, for the Jews had agreed already that if anyone confessed _that_ He _was_ Christ, he would be put out of the synagogue. 
+
+###### 23 
+Therefore his parents said, "He is of age; ask him." 
+
+###### 24 
+So they again called the man who was blind, and said to him, "Give God the glory! We know that this Man is a sinner." 
+
+###### 25 
+He answered and said, "Whether He is a sinner _or not_ I do not know. One thing I know: that though I was blind, now I see." 
+
+###### 26 
+Then they said to him again, "What did He do to you? How did He open your eyes?" 
+
+###### 27 
+He answered them, "I told you already, and you did not listen. Why do you want to hear _it_ again? Do you also want to become His disciples?" 
+
+###### 28 
+Then they reviled him and said, "You are His disciple, but we are Moses' disciples. 
+
+###### 29 
+We know that God spoke to Moses; _as for_ this _fellow,_ we do not know where He is from." 
+
+###### 30 
+The man answered and said to them, "Why, this is a marvelous thing, that you do not know where He is from; yet He has opened my eyes! 
+
+###### 31 
+Now we know that God does not hear sinners; but if anyone is a worshiper of God and does His will, He hears him. 
+
+###### 32 
+Since the world began it has been unheard of that anyone opened the eyes of one who was born blind. 
+
+###### 33 
+If this Man were not from God, He could do nothing." 
+
+###### 34 
+They answered and said to him, "You were completely born in sins, and are you teaching us?" And they [^f]cast him out. ## True Vision and True Blindness 
+
+###### 35 
+Jesus heard that they had cast him out; and when He had found him, He said to him, "Do you believe in the Son of [^g]God?" 
+
+###### 36 
+He answered and said, "Who is He, Lord, that I may believe in Him?" 
+
+###### 37 
+And Jesus said to him, "You have both seen Him and it is He who is talking with you." 
+
+###### 38 
+Then he said, "Lord, I believe!" And he worshiped Him. 
+
+###### 39 
+And Jesus said, "For judgment I have come into this world, that those who do not see may see, and that those who see may be made blind." 
+
+###### 40 
+Then _some_ of the Pharisees who were with Him heard these words, and said to Him, "Are we blind also?" 
+
+###### 41 
+Jesus said to them, "If you were blind, you would have no sin; but now you say, 'We see.' Therefore your sin remains. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: John 9:4 NU _We_ [^b]: John 9:8 NU _a beggar_ [^c]: John 9:9 NU _“No, but he is like him.”_ [^d]: John 9:11 NU omits _the pool of_ [^e]: John 9:16 _observe_ [^f]: John 9:34 Excommunicated him [^g]: John 9:35 NU _Man_

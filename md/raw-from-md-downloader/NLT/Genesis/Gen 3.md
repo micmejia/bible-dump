@@ -1,0 +1,154 @@
+---
+Aliases: [Genesis 3]
+previous: ['Gen 2']
+up: ['Genesis']
+next: ['Gen 4']
+---
+# Genesis 3
+
+***
+
+
+
+
+###### 1 
+
+The serpent was the shrewdest of all the wild animals the LORD God had made. One day he asked the woman, "Did God really say you must not eat the fruit from any of the trees in the garden?" 
+
+
+
+###### 2 
+
+"Of course we may eat fruit from the trees in the garden," the woman replied. 
+
+
+
+###### 3 
+
+"It's only the fruit from the tree in the middle of the garden that we are not allowed to eat. God said, 'You must not eat it or even touch it; if you do, you will die.'" 
+
+
+
+###### 4 
+
+"You won't die!" the serpent replied to the woman. 
+
+
+
+###### 5 
+
+"God knows that your eyes will be opened as soon as you eat it, and you will be like God, knowing both good and evil." 
+
+
+
+###### 6 
+
+The woman was convinced. She saw that the tree was beautiful and its fruit looked delicious, and she wanted the wisdom it would give her. So she took some of the fruit and ate it. Then she gave some to her husband, who was with her, and he ate it, too. 
+
+
+
+###### 7 
+
+At that moment their eyes were opened, and they suddenly felt shame at their nakedness. So they sewed fig leaves together to cover themselves. 
+
+
+
+###### 8 
+
+When the cool evening breezes were blowing, the man[^a] and his wife heard the LORD God walking about in the garden. So they hid from the LORD God among the trees. 
+
+
+
+###### 9 
+
+Then the LORD God called to the man, "Where are you?" 
+
+
+
+###### 10 
+
+He replied, "I heard you walking in the garden, so I hid. I was afraid because I was naked." 
+
+
+
+###### 11 
+
+"Who told you that you were naked?" the LORD God asked. "Have you eaten from the tree whose fruit I commanded you not to eat?" 
+
+
+
+###### 12 
+
+The man replied, "It was the woman you gave me who gave me the fruit, and I ate it." 
+
+
+
+###### 13 
+
+Then the LORD God asked the woman, "What have you done?" "The serpent deceived me," she replied. "That's why I ate it." 
+
+
+
+###### 14 
+
+Then the LORD God said to the serpent, "Because you have done this, you are cursed more than all animals, domestic and wild. You will crawl on your belly, groveling in the dust as long as you live. 
+
+
+
+###### 15 
+
+And I will cause hostility between you and the woman, and between your offspring and her offspring. He will strike[^b] your head, and you will strike his heel." 
+
+
+
+###### 16 
+
+Then he said to the woman, "I will sharpen the pain of your pregnancy, and in pain you will give birth. And you will desire to control your husband, but he will rule over you.[^c]" 
+
+
+
+###### 17 
+
+And to the man he said, "Since you listened to your wife and ate from the tree whose fruit I commanded you not to eat, the ground is cursed because of you. All your life you will struggle to scratch a living from it. 
+
+
+
+###### 18 
+
+It will grow thorns and thistles for you, though you will eat of its grains. 
+
+
+
+###### 19 
+
+By the sweat of your brow will you have food to eat until you return to the ground from which you were made. For you were made from dust, and to dust you will return." ## Paradise Lost: God's Judgment 
+
+
+
+###### 20 
+
+Then the man--Adam--named his wife Eve, because she would be the mother of all who live.[^d] 
+
+
+
+###### 21 
+
+And the LORD God made clothing from animal skins for Adam and his wife. 
+
+
+
+###### 22 
+
+Then the LORD God said, "Look, the human beings[^e] have become like us, knowing both good and evil. What if they reach out, take fruit from the tree of life, and eat it? Then they will live forever!" 
+
+
+
+###### 23 
+
+So the LORD God banished them from the Garden of Eden, and he sent Adam out to cultivate the ground from which he had been made. 
+
+
+
+###### 24 
+
+After sending them out, the LORD God stationed mighty cherubim to the east of the Garden of Eden. And he placed a flaming sword that flashed back and forth to guard the way to the tree of life. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 3:8 Or _Adam,_ and so throughout the chapter. [^b]: 3:15 Or _bruise;_ also in [3:15b]. [^c]: 3:16 Or _And though you will have desire for your husband, / he will rule over you._ [^d]: 3:20 _Eve_ sounds like a Hebrew term that means “to give life.” [^e]: 3:22 Or _the man;_ Hebrew reads _ha-adam._

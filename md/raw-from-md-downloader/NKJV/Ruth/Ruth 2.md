@@ -1,0 +1,79 @@
+---
+Aliases: [Ruth 2]
+previous: ['Ruth 1']
+up: ['Ruth']
+next: ['Ruth 3']
+---
+# Ruth 2
+
+***
+
+
+###### 1 
+There was a relative of Naomi's husband, a man of great wealth, of the family of Elimelech. His name _was_ Boaz. 
+
+###### 2 
+So Ruth the Moabitess said to Naomi, "Please let me go to the field, and glean heads of grain after _him_ in whose sight I may find favor." And she said to her, "Go, my daughter." 
+
+###### 3 
+Then she left, and went and gleaned in the field after the reapers. And she happened to come to the part of the field _belonging_ to Boaz, who _was_ of the family of Elimelech. 
+
+###### 4 
+Now behold, Boaz came from Bethlehem, and said to the reapers, "The Lord _be_ with you!" And they answered him, "The Lord bless you!" 
+
+###### 5 
+Then Boaz said to his servant who was in charge of the reapers, "Whose young woman _is_ this?" 
+
+###### 6 
+So the servant who was in charge of the reapers answered and said, "It _is_ the young Moabite woman who came back with Naomi from the country of Moab. 
+
+###### 7 
+And she said, 'Please let me glean and gather after the reapers among the sheaves.' So she came and has continued from morning until now, though she rested a little in the house." 
+
+###### 8 
+Then Boaz said to Ruth, "You will listen, my daughter, will you not? Do not go to glean in another field, nor go from here, but stay close by my young women. 
+
+###### 9 
+_Let_ your eyes _be_ on the field which they reap, and go after them. Have I not commanded the young men not to touch you? And when you are thirsty, go to the vessels and drink from what the young men have drawn." 
+
+###### 10 
+So she fell on her face, bowed down to the ground, and said to him, "Why have I found favor in your eyes, that you should take notice of me, since I _am_ a foreigner?" 
+
+###### 11 
+And Boaz answered and said to her, "It has been fully reported to me, all that you have done for your mother-in-law since the death of your husband, and _how_ you have left your father and your mother and the land of your birth, and have come to a people whom you did not know before. 
+
+###### 12 
+The Lord repay your work, and a full reward be given you by the Lord God of Israel, under whose wings you have come for refuge." 
+
+###### 13 
+Then she said, "Let me find favor in your sight, my lord; for you have comforted me, and have spoken [^a]kindly to your maidservant, though I am not like one of your maidservants." 
+
+###### 14 
+Now Boaz said to her at mealtime, "Come here, and eat of the bread, and dip your piece of bread in the vinegar." So she sat beside the reapers, and he passed parched _grain_ to her; and she ate and was satisfied, and kept some back. 
+
+###### 15 
+And when she rose up to [^b]glean, Boaz commanded his young men, saying, "Let her glean even among the sheaves, and do not [^c]reproach her. 
+
+###### 16 
+Also let _grain_ from the bundles fall purposely for her; leave _it_ that she may glean, and do not rebuke her." 
+
+###### 17 
+So she gleaned in the field until evening, and beat out what she had gleaned, and it was about an ephah of barley. 
+
+###### 18 
+Then she took _it_ up and went into the city, and her mother-in-law saw what she had gleaned. So she brought out and gave to her what she had kept back after she had been satisfied. 
+
+###### 19 
+And her mother-in-law said to her, "Where have you gleaned today? And where did you work? Blessed be the one who took notice of you." So she told her mother-in-law with whom she had worked, and said, "The man's name with whom I worked today _is_ Boaz." 
+
+###### 20 
+Then Naomi said to her daughter-in-law, "Blessed _be_ he of the Lord, who has not forsaken His kindness to the living and the dead!" And Naomi said to her, "This man _is_ a relation of ours, one of [^d]our close relatives." 
+
+###### 21 
+Ruth the Moabitess said, "He also said to me, 'You shall stay close by my young men until they have finished all my harvest.' " 
+
+###### 22 
+And Naomi said to Ruth her daughter-in-law, "_It is_ good, my daughter, that you go out with his young women, and that people do not [^e]meet you in any other field." 
+
+###### 23 
+So she stayed close by the young women of Boaz, to glean until the end of barley harvest and wheat harvest; and she dwelt with her mother-in-law. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Ruth 2:13 Lit. _to the heart of_ [^b]: Ruth 2:15 Gather after the reapers [^c]: Ruth 2:15 _rebuke_ [^d]: Ruth 2:20 _our redeemers,_ Heb. _goalenu_ [^e]: Ruth 2:22 _encounter_

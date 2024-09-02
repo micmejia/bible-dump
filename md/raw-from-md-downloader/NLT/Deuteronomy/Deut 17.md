@@ -1,0 +1,130 @@
+---
+Aliases: [Deuteronomy 17]
+previous: ['Deut 16']
+up: ['Deuteronomy']
+next: ['Deut 18']
+---
+# Deuteronomy 17
+
+***
+
+
+
+
+###### 1 
+
+"Never sacrifice sick or defective cattle, sheep, or goats to the LORD your God, for he detests such gifts. 
+
+
+
+###### 2 
+
+"When you begin living in the towns the LORD your God is giving you, a man or woman among you might do evil in the sight of the LORD your God and violate the covenant. 
+
+
+
+###### 3 
+
+For instance, they might serve other gods or worship the sun, the moon, or any of the stars--the forces of heaven--which I have strictly forbidden. 
+
+
+
+###### 4 
+
+When you hear about it, investigate the matter thoroughly. If it is true that this detestable thing has been done in Israel, 
+
+
+
+###### 5 
+
+then the man or woman who has committed such an evil act must be taken to the gates of the town and stoned to death. 
+
+
+
+###### 6 
+
+But never put a person to death on the testimony of only one witness. There must always be two or three witnesses. 
+
+
+
+###### 7 
+
+The witnesses must throw the first stones, and then all the people may join in. In this way, you will purge the evil from among you. 
+
+
+
+###### 8 
+
+"Suppose a case arises in a local court that is too hard for you to decide--for instance, whether someone is guilty of murder or only of manslaughter, or a difficult lawsuit, or a case involving different kinds of assault. Take such legal cases to the place the LORD your God will choose, 
+
+
+
+###### 9 
+
+and present them to the Levitical priests or the judge on duty at that time. They will hear the case and declare the verdict. 
+
+
+
+###### 10 
+
+You must carry out the verdict they announce and the sentence they prescribe at the place the LORD chooses. You must do exactly what they say. 
+
+
+
+###### 11 
+
+After they have interpreted the law and declared their verdict, the sentence they impose must be fully executed; do not modify it in any way. 
+
+
+
+###### 12 
+
+Anyone arrogant enough to reject the verdict of the judge or of the priest who represents the LORD your God must die. In this way you will purge the evil from Israel. 
+
+
+
+###### 13 
+
+Then everyone else will hear about it and be afraid to act so arrogantly. ## Guidelines for a King 
+
+
+
+###### 14 
+
+"You are about to enter the land the LORD your God is giving you. When you take it over and settle there, you may think, 'We should select a king to rule over us like the other nations around us.' 
+
+
+
+###### 15 
+
+If this happens, be sure to select as king the man the LORD your God chooses. You must appoint a fellow Israelite; he may not be a foreigner. 
+
+
+
+###### 16 
+
+"The king must not build up a large stable of horses for himself or send his people to Egypt to buy horses, for the LORD has told you, 'You must never return to Egypt.' 
+
+
+
+###### 17 
+
+The king must not take many wives for himself, because they will turn his heart away from the LORD. And he must not accumulate large amounts of wealth in silver and gold for himself. 
+
+
+
+###### 18 
+
+"When he sits on the throne as king, he must copy for himself this body of instruction on a scroll in the presence of the Levitical priests. 
+
+
+
+###### 19 
+
+He must always keep that copy with him and read it daily as long as he lives. That way he will learn to fear the LORD his God by obeying all the terms of these instructions and decrees. 
+
+
+
+###### 20 
+
+This regular reading will prevent him from becoming proud and acting as if he is above his fellow citizens. It will also prevent him from turning away from these commands in the smallest way. And it will ensure that he and his descendants will reign for many generations in Israel. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences

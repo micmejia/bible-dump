@@ -1,0 +1,118 @@
+---
+Aliases: [Judges 10]
+previous: ['Judg 9']
+up: ['Judges']
+next: ['Judg 11']
+---
+# Judges 10
+
+***
+
+
+
+
+###### 1 
+
+After Abimelech died, Tola son of Puah, son of Dodo, was the next person to rescue Israel. He was from the tribe of Issachar but lived in the town of Shamir in the hill country of Ephraim. 
+
+
+
+###### 2 
+
+He judged Israel for twenty-three years. When he died, he was buried in Shamir. ## Jair Becomes Israel's Judge 
+
+
+
+###### 3 
+
+After Tola died, Jair from Gilead judged Israel for twenty-two years. 
+
+
+
+###### 4 
+
+His thirty sons rode around on thirty donkeys, and they owned thirty towns in the land of Gilead, which are still called the Towns of Jair.[^a] 
+
+
+
+###### 5 
+
+When Jair died, he was buried in Kamon. ## The Ammonites Oppress Israel 
+
+
+
+###### 6 
+
+Again the Israelites did evil in the LORD's sight. They served the images of Baal and Ashtoreth, and the gods of Aram, Sidon, Moab, Ammon, and Philistia. They abandoned the LORD and no longer served him at all. 
+
+
+
+###### 7 
+
+So the LORD burned with anger against Israel, and he turned them over to the Philistines and the Ammonites, 
+
+
+
+###### 8 
+
+who began to oppress them that year. For eighteen years they oppressed all the Israelites east of the Jordan River in the land of the Amorites (that is, in Gilead). 
+
+
+
+###### 9 
+
+The Ammonites also crossed to the west side of the Jordan and attacked Judah, Benjamin, and Ephraim. The Israelites were in great distress. 
+
+
+
+###### 10 
+
+Finally, they cried out to the LORD for help, saying, "We have sinned against you because we have abandoned you as our God and have served the images of Baal." 
+
+
+
+###### 11 
+
+The LORD replied, "Did I not rescue you from the Egyptians, the Amorites, the Ammonites, the Philistines, 
+
+
+
+###### 12 
+
+the Sidonians, the Amalekites, and the Maonites? When they oppressed you, you cried out to me for help, and I rescued you. 
+
+
+
+###### 13 
+
+Yet you have abandoned me and served other gods. So I will not rescue you anymore. 
+
+
+
+###### 14 
+
+Go and cry out to the gods you have chosen! Let them rescue you in your hour of distress!" 
+
+
+
+###### 15 
+
+But the Israelites pleaded with the LORD and said, "We have sinned. Punish us as you see fit, only rescue us today from our enemies." 
+
+
+
+###### 16 
+
+Then the Israelites put aside their foreign gods and served the LORD. And he was grieved by their misery. 
+
+
+
+###### 17 
+
+At that time the armies of Ammon had gathered for war and were camped in Gilead, and the people of Israel assembled and camped at Mizpah. 
+
+
+
+###### 18 
+
+The leaders of Gilead said to each other, "Whoever attacks the Ammonites first will become ruler over all the people of Gilead." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 10:4 Hebrew _Havvoth-jair._

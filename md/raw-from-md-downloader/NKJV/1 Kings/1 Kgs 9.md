@@ -1,0 +1,94 @@
+---
+Aliases: [1 Kings 9]
+previous: ['1 Kgs 8']
+up: ['1 Kings']
+next: ['1 Kgs 10']
+---
+# 1 Kings 9
+
+***
+
+
+###### 1 
+And it came to pass, when Solomon had finished building the house of the Lord and the king's house, and all Solomon's desire which he wanted to do, 
+
+###### 2 
+that the Lord appeared to Solomon the second time, as He had appeared to him at Gibeon. 
+
+###### 3 
+And the Lord said to him: "I have heard your prayer and your supplication that you have made before Me; I have consecrated this house which you have built to put My name there forever, and My eyes and My heart will be there perpetually. 
+
+###### 4 
+Now if you walk before Me as your father David walked, in integrity of heart and in uprightness, to do according to all that I have commanded you, _and_ if you keep My statutes and My judgments, 
+
+###### 5 
+then I will establish the throne of your kingdom over Israel forever, as I promised David your father, saying, 'You shall not fail to have a man on the throne of Israel.' 
+
+###### 6 
+_But_ if you or your sons at all [^a]turn from following Me, and do not keep My commandments _and_ My statutes which I have set before you, but go and serve other gods and worship them, 
+
+###### 7 
+then I will [^b]cut off Israel from the land which I have given them; and this house which I have consecrated for My name I will cast out of My sight. Israel will be a proverb and a byword among all peoples. 
+
+###### 8 
+And _as for_ this house, _which_ is exalted, everyone who passes by it will be astonished and will hiss, and say, 'Why has the Lord done thus to this land and to this house?' 
+
+###### 9 
+Then they will answer, 'Because they forsook the Lord their God, who brought their fathers out of the land of Egypt, and have embraced other gods, and worshiped them and served them; therefore the Lord has brought all this calamity on them.' " ## Solomon and Hiram Exchange Gifts 
+
+###### 10 
+Now it happened at the end of twenty years, when Solomon had built the two houses, the house of the Lord and the king's house 
+
+###### 11 
+(Hiram the king of Tyre had supplied Solomon with cedar and cypress and gold, as much as he desired), _that_ King Solomon then gave Hiram twenty cities in the land of Galilee. 
+
+###### 12 
+Then Hiram went from Tyre to see the cities which Solomon had given him, but they did not please him. 
+
+###### 13 
+So he said, "What _kind of_ cities _are_ these which you have given me, my brother?" And he called them the land of [^c]Cabul, as they are to this day. 
+
+###### 14 
+Then Hiram sent the king one hundred and twenty talents of gold. ## Solomon's Additional Achievements 
+
+###### 15 
+And this _is_ the reason for the labor force which King Solomon raised: to build the house of the Lord, his own house, [^d]the Millo, the wall of Jerusalem, Hazor, Megiddo, and Gezer. 
+
+###### 16 
+(Pharaoh king of Egypt had gone up and taken Gezer and burned it with fire, had killed the Canaanites who dwelt in the city, and had given it _as_ a dowry to his daughter, Solomon's wife.) 
+
+###### 17 
+And Solomon built Gezer, Lower Beth Horon, 
+
+###### 18 
+Baalath, and Tadmor in the wilderness, in the land _of Judah,_ 
+
+###### 19 
+all the storage cities that Solomon had, cities for his chariots and cities for his cavalry, and whatever Solomon desired to build in Jerusalem, in Lebanon, and in all the land of his dominion. 
+
+###### 20 
+All the people _who were_ left of the Amorites, Hittites, Perizzites, Hivites, and Jebusites, who _were_ not of the children of Israel-- 
+
+###### 21 
+that is, their descendants who were left in the land after them, whom the children of Israel had not been able to destroy completely--from these Solomon raised forced labor, as it is to this day. 
+
+###### 22 
+But of the children of Israel Solomon made no forced laborers, because they _were_ men of war and his servants: his officers, his captains, commanders of his chariots, and his cavalry. 
+
+###### 23 
+Others _were_ chiefs of the officials who _were_ over Solomon's work: five hundred and fifty, who ruled over the people who did the work. 
+
+###### 24 
+But Pharaoh's daughter came up from the City of David to her house which [^e]_Solomon_ had built for her. Then he built the Millo. 
+
+###### 25 
+Now three times a year Solomon offered burnt offerings and peace offerings on the altar which he had built for the Lord, and he burned incense with them _on the altar_ that _was_ before the Lord. So he finished the temple. 
+
+###### 26 
+King Solomon also built a fleet of ships at Ezion Geber, which _is_ near [^f]Elath on the shore of the Red Sea, in the land of Edom. 
+
+###### 27 
+Then Hiram sent his servants with the fleet, seamen who knew the sea, to work with the servants of Solomon. 
+
+###### 28 
+And they went to Ophir, and acquired four hundred and twenty talents of gold from there, and brought _it_ to King Solomon. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 1 Kings 9:6 _turn back_ [^b]: 1 Kings 9:7 _destroy_ [^c]: 1 Kings 9:13 Lit. _Good for Nothing_ [^d]: 1 Kings 9:15 Lit. _The Landfill_ [^e]: 1 Kings 9:24 Lit. _he;_ cf. [2 Chr. 8:11] [^f]: 1 Kings 9:26 Heb. _Eloth_

@@ -1,0 +1,70 @@
+---
+Aliases: [Genesis 12]
+previous: ['Gen 11']
+up: ['Genesis']
+next: ['Gen 13']
+---
+# Genesis 12
+
+***
+
+
+###### 1 
+Now the Lord had said to Abram: "Get out of your country, From your family And from your father's house, To a land that I will show you. 
+
+###### 2 
+I will make you a great nation; I will bless you And make your name great; And you shall be a blessing. 
+
+###### 3 
+I will bless those who bless you, And I will curse him who curses you; And in you all the families of the earth shall be blessed." 
+
+###### 4 
+So Abram departed as the Lord had spoken to him, and Lot went with him. And Abram _was_ seventy-five years old when he departed from Haran. 
+
+###### 5 
+Then Abram took Sarai his wife and Lot his brother's son, and all their possessions that they had gathered, and the [^a]people whom they had acquired in Haran, and they departed to go to the land of Canaan. So they came to the land of Canaan. 
+
+###### 6 
+Abram passed through the land to the place of Shechem, as far as [^b]the terebinth tree of Moreh. And the Canaanites _were_ then in the land. 
+
+###### 7 
+Then the Lord appeared to Abram and said, "To your [^c]descendants I will give this land." And there he built an altar to the Lord, who had appeared to him. 
+
+###### 8 
+And he moved from there to the mountain east of Bethel, and he pitched his tent _with_ Bethel on the west and Ai on the east; there he built an altar to the Lord and called on the name of the Lord. 
+
+###### 9 
+So Abram journeyed, going on still toward the [^d]South. ## Abram in Egypt 
+
+###### 10 
+Now there was a famine in the land, and Abram went down to Egypt to dwell there, for the famine _was_ severe in the land. 
+
+###### 11 
+And it came to pass, when he was close to entering Egypt, that he said to Sarai his wife, "Indeed I know that you _are_ a woman of beautiful countenance. 
+
+###### 12 
+Therefore it will happen, when the Egyptians see you, that they will say, 'This _is_ his wife'; and they will kill me, but they will let you live. 
+
+###### 13 
+Please say you _are_ my sister, that it may be well with me for your sake, and that [^e]I may live because of you." 
+
+###### 14 
+So it was, when Abram came into Egypt, that the Egyptians saw the woman, that she _was_ very beautiful. 
+
+###### 15 
+The princes of Pharaoh also saw her and commended her to Pharaoh. And the woman was taken to Pharaoh's house. 
+
+###### 16 
+He treated Abram well for her sake. He had sheep, oxen, male donkeys, male and female servants, female donkeys, and camels. 
+
+###### 17 
+But the Lord plagued Pharaoh and his house with great plagues because of Sarai, Abram's wife. 
+
+###### 18 
+And Pharaoh called Abram and said, "What _is_ this you have done to me? Why did you not tell me that she _was_ your wife? 
+
+###### 19 
+Why did you say, 'She _is_ my sister'? I might have taken her as my wife. Now therefore, here is your wife; take _her_ and go your way." 
+
+###### 20 
+So Pharaoh commanded _his_ men concerning him; and they sent him away, with his wife and all that he had. ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: Genesis 12:5 Lit. _souls_ [^b]: Genesis 12:6 Heb. _Alon Moreh_ [^c]: Genesis 12:7 Lit. _seed_ [^d]: Genesis 12:9 Heb. _Negev_ [^e]: Genesis 12:13 Lit. _my soul_

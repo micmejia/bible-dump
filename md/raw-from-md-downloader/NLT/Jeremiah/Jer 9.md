@@ -1,0 +1,166 @@
+---
+Aliases: [Jeremiah 9]
+previous: ['Jer 8']
+up: ['Jeremiah']
+next: ['Jer 10']
+---
+# Jeremiah 9
+
+***
+
+
+
+
+###### 1 
+
+[^a]If only my head were a pool of water and my eyes a fountain of tears, I would weep day and night for all my people who have been slaughtered. 
+
+
+
+###### 2 
+
+[^b]Oh, that I could go away and forget my people and live in a travelers' shack in the desert. For they are all adulterers-- a pack of treacherous liars. ## Judgment for Disobedience 
+
+
+
+###### 3 
+
+"My people bend their tongues like bows to shoot out lies. They refuse to stand up for the truth. They only go from bad to worse. They do not know me," says the LORD. 
+
+
+
+###### 4 
+
+"Beware of your neighbor! Don't even trust your brother! For brother takes advantage of brother, and friend slanders friend. 
+
+
+
+###### 5 
+
+They all fool and defraud each other; no one tells the truth. With practiced tongues they tell lies; they wear themselves out with all their sinning. 
+
+
+
+###### 6 
+
+They pile lie upon lie and utterly refuse to acknowledge me," says the LORD. 
+
+
+
+###### 7 
+
+Therefore, this is what the LORD of Heaven's Armies says: "See, I will melt them down in a crucible and test them like metal. What else can I do with my people?[^c] 
+
+
+
+###### 8 
+
+For their tongues shoot lies like poisoned arrows. They speak friendly words to their neighbors while scheming in their heart to kill them. 
+
+
+
+###### 9 
+
+Should I not punish them for this?" says the LORD. "Should I not avenge myself against such a nation?" 
+
+
+
+###### 10 
+
+I will weep for the mountains and wail for the wilderness pastures. For they are desolate and empty of life; the lowing of cattle is heard no more; the birds and wild animals have all fled. 
+
+
+
+###### 11 
+
+"I will make Jerusalem into a heap of ruins," says the LORD. "It will be a place haunted by jackals. The towns of Judah will be ghost towns, with no one living in them." 
+
+
+
+###### 12 
+
+Who is wise enough to understand all this? Who has been instructed by the LORD and can explain it to others? Why has the land been so ruined that no one dares to travel through it? 
+
+
+
+###### 13 
+
+The LORD replies, "This has happened because my people have abandoned my instructions; they have refused to obey what I said. 
+
+
+
+###### 14 
+
+Instead, they have stubbornly followed their own desires and worshiped the images of Baal, as their ancestors taught them. 
+
+
+
+###### 15 
+
+So now, this is what the LORD of Heaven's Armies, the God of Israel, says: Look! I will feed them with bitterness and give them poison to drink. 
+
+
+
+###### 16 
+
+I will scatter them around the world, in places they and their ancestors never heard of, and even there I will chase them with the sword until I have destroyed them completely." ## Weeping in Jerusalem 
+
+
+
+###### 17 
+
+This is what the LORD of Heaven's Armies says: "Consider all this, and call for the mourners. Send for the women who mourn at funerals. 
+
+
+
+###### 18 
+
+Quick! Begin your weeping! Let the tears flow from your eyes. 
+
+
+
+###### 19 
+
+Hear the people of Jerusalem[^d] crying in despair, 'We are ruined! We are completely humiliated! We must leave our land, because our homes have been torn down.'" 
+
+
+
+###### 20 
+
+Listen, you women, to the words of the LORD; open your ears to what he has to say. Teach your daughters to wail; teach one another how to lament. 
+
+
+
+###### 21 
+
+For death has crept in through our windows and has entered our mansions. It has killed off the flower of our youth: Children no longer play in the streets, and young men no longer gather in the squares. 
+
+
+
+###### 22 
+
+This is what the LORD says: "Bodies will be scattered across the fields like clumps of manure, like bundles of grain after the harvest. No one will be left to bury them." 
+
+
+
+###### 23 
+
+This is what the LORD says: "Don't let the wise boast in their wisdom, or the powerful boast in their power, or the rich boast in their riches. 
+
+
+
+###### 24 
+
+But those who wish to boast should boast in this alone: that they truly know me and understand that I am the LORD who demonstrates unfailing love and who brings justice and righteousness to the earth, and that I delight in these things. I, the LORD, have spoken! 
+
+
+
+###### 25 
+
+"A time is coming," says the LORD, "when I will punish all those who are circumcised in body but not in spirit-- 
+
+
+
+###### 26 
+
+the Egyptians, Edomites, Ammonites, Moabites, the people who live in the desert in remote places,[^e] and yes, even the people of Judah. And like all these pagan nations, the people of Israel also have uncircumcised hearts." ## About ## Help ## Our Network ## Social ## Preferences By submitting your email address, you understand that you will receive email communications from Bible Gateway, a division of The Zondervan Corporation, 501 Nelson Pl, Nashville, TN 37214 USA, including commercial communications and messages from partners of Bible Gateway. You may unsubscribe from Bible Gateway&rsquo;s emails at any time. If you have any questions, please review our [Privacy Policy] or email us at [privacy@biblegateway.com]. ## Preferences ### Footnotes [^a]: 9:1 Verse 9:1 is numbered 8:23 in Hebrew text. [^b]: 9:2 Verses 9:2-26 are numbered 9:1-25 in Hebrew text. [^c]: 9:7 Hebrew _with the daughter of my people?_ Greek version reads _with the evil daughter of my people?_ [^d]: 9:19 Hebrew _Zion._ [^e]: 9:26 Or _in the desert and clip the corners of their hair._

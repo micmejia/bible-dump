@@ -1,16 +1,12 @@
-import os
-import glob
-import json
-import pandas as pd
-import psycopg
-import requests
-import subprocess
 
 from pathlib import Path
 
-from chapters import CHAPTERS_COUNT
+import psycopg
 
-connection = psycopg.connect("dbname=bible_db user=pgadmin password=x host=127.0.0.1 port=5432", autocommit=True)
+from chapters import CHAPTERS_COUNT
+from env import PG_DB, PG_PASS, PG_USER
+
+connection = psycopg.connect(f"dbname={PG_DB} user={PG_USER} password={PG_PASS} host=127.0.0.1 port=5432", autocommit=True)
 
 cursor = connection.cursor()
 # cursor.execute("DROP DATABASE bible_test_db WITH (FORCE);")

@@ -1,21 +1,17 @@
-import os
-import glob
 import json
-import pandas as pd
-import psycopg
-import requests
-import subprocess
-
 from pathlib import Path
 
-from chapters import CHAPTERS_COUNT
+import pandas as pd
+import psycopg
 
-# subprocess.run(["./reset_db.sh"])
+from chapters import CHAPTERS_COUNT
+from env import PG_DB, PG_PASS, PG_USER
+
 
 df = pd.read_csv("bible_books.csv")
 json_root = Path.cwd().parent / "json" / "by_book"
 
-connection = psycopg.connect("dbname=bible_test_db user=pgadmin password=x host=127.0.0.1 port=5432", autocommit=False)
+connection = psycopg.connect(f"dbname={PG_DB} user={PG_USER} password={PG_PASS} host=127.0.0.1 port=5432", autocommit=False)
 cursor = connection.cursor()
 
 
@@ -175,20 +171,30 @@ def get_verse_text_id(translation_id, verse_id, verse):
     verse_text_id = verse_text_id[0]
     return verse_text_id
 
-def get_fulltable_id(translation, book, abbreviation, book_name, chapter, verse_number, verse):
-    fulltable_id = cursor.execute("""
-    SELECT id FROM "fulltable" WHERE translation=%s AND book=%s AND chapter=%s AND verse_number=%s
-    """, (translation, book, chapter, verse_number)).fetchone()
-    if fulltable_id is None:
-        cursor.execute("""
-        INSERT INTO "fulltable" ("translation", "book", "abbreviation", "book_name", "chapter", "verse_number", "verse") VALUES (%s, %s, %s, %s, %s, %s, %s) 
-        """, (translation, book, abbreviation, book_name, chapter, verse_number, verse))
-        fulltable_id = cursor.execute("""
-        SELECT id FROM "fulltable" WHERE translation=%s AND book=%s AND chapter=%s AND verse_number=%s
-        """, (translation, book, chapter, verse_number)).fetchone()
-    fulltable_id = fulltable_id[0]
-    return fulltable_id
+# def get_fulltable_id(translation, book, abbreviation, book_name, chapter, verse_number, verse):
+#     fulltable_id = cursor.execute("""
+#     SELECT id FROM "fulltable" WHERE translation=%s AND book=%s AND chapter=%s AND verse_number=%s
+#     """, (translation, book, chapter, verse_number)).fetchone()
+#     if fulltable_id is None:
+#         cursor.execute("""
+#         INSERT INTO "fulltable" ("translation", "book", "abbreviation", "book_name", "chapter", "verse_number", "verse") VALUES (%s, %s, %s, %s, %s, %s, %s) 
+#         """, (translation, book, abbreviation, book_name, chapter, verse_number, verse))
+#         fulltable_id = cursor.execute("""
+#         SELECT id FROM "fulltable" WHERE translation=%s AND book=%s AND chapter=%s AND verse_number=%s
+#         """, (translation, book, chapter, verse_number)).fetchone()
+#     fulltable_id = fulltable_id[0]
+#     return fulltable_id
 
+def create_fulltable():
+    cursor.execute("""
+    drop table if exists fulltable;
+    create table fulltable as select vv.id as id, t.name as translation, b.name as book, b.abbreviation as abbreviation, tt.name as book_name, c.chapter_number as chapter, v.verse_number as verse_number, verse from "VerseText" vv join "Translation" t on vv.translation_id=t.id join "Verse" v on v.id=vv.verse_id join "Chapter" c on v.chapter_id=c.id join "Book" b on c.book_id=b.id join "TranslationBookName" tt on (t.id=tt.translation_id and b.id=tt.book_id) order by vv.id;
+    create index on fulltable(translation);
+    create index on fulltable(book);
+    create index on fulltable(book_name);
+    create index on fulltable(chapter);
+    create index on fulltable(verse_number);
+    """)
 
 def push_bible(translation):
     translation_id = get_translation_id(translation)
@@ -215,7 +221,7 @@ def push_bible(translation):
         for verse in data[book.name]:
             verse_id = get_verse_id(_chapter_index[verse['ch']], verse['v'])
             get_verse_text_id(translation_id, verse_id, verse['text'])
-            get_fulltable_id(translation['name'], book.name_english, book.abbreviation, book.name, verse['ch'], verse['v'], verse['text'])
+            # get_fulltable_id(translation['name'], book.name_english, book.abbreviation, book.name, verse['ch'], verse['v'], verse['text'])
         cursor.execute("COMMIT")
         
         print(f"{book.name}: {len(data[book.name])}: {book_id=}: {chapter_count=}")
@@ -226,6 +232,8 @@ for translation in translations:
     push_bible(translation)
     print('-----------------------------------------------')
     # break
+
+create_fulltable()
 
 cursor.execute("COMMIT")
 connection.close()
